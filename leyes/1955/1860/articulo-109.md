@@ -1,3 +1,2 @@
-Artículo 109.- En los casos que así lo requiera, por la gravedad de
-los mismos o por la naturaleza del problema social, el Ministerio deberá
-actuar de oficio y a la mayor brevedad.
+Artículo 109.-
+La Dirección General de Bienestar Social estará a cargo de un Director, quien actuará como colaborador inmediato del Ministro en las funciones de bienestar social correspondientes a éste. El Director será una persona con adecuada preparación y experiencia en el campo del bienestar social; deberá haber demostrado habilidad administrativa y tenido experiencia satisfactoria en la organización y dirección de servicio social ( Así adicionado por artículo 2º de Ley Nº 3095 de 18 de febrero de 1963).

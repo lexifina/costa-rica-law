@@ -1,19 +1,5 @@
 CAPITULO V
-Oficina de Estadística
-Artículo 33.- Esta Oficina tendrá a su cargo todo lo concerniente a
-la estadística de las cuestiones de orden social y económico, y para tal
-efecto, realizará preferentemente las siguientes actividades:
-a) Organizar y mantener al día la estadística sobre problemas sociales
-propiamente dichos, y sobre los diversos servicios a cargo de este
-Ministerio;
-b) Elaborar los formularios propios para el servicio de estadística,
-de acuerdo con la Dirección General de Estadística;
-c) Realizar estudios comparativos de los datos que sobre el estado y
-movimiento industrial, comercial, económico y financiero, proporcionan
-las publicaciones oficiales de los organismos técnicos, a fin de
-relacionarlos con los antecedentes estadísticos de orden social obtenidos
-por la Oficina, con el objeto de que se puedan derivar conclusiones sobre
-la orientación en la solución de los problemas de trabajo, y aplicación
-de la legislación sobre la materia; y
-d) Confeccionar los resúmenes periódicos o anuales que exijan las
-necesidades del Ministerio.
+Oficina de Estadística Artículo 33.-
+Esta Oficina tendrá a su cargo todo lo concerniente a la estadística de las cuestiones de orden social y económico, y para tal efecto, realizará preferentemente las siguientes actividades: a) Organizar y mantener al día la estadística sobre problemas sociales propiamente dichos, y sobre los diversos servicios a cargo de este Ministerio;
+b) Elaborar los formularios propios para el servicio de estadística, de acuerdo con la Dirección General de Estadística;
+c) Realizar estudios comparativos de los datos que sobre el estado y movimiento industrial, comercial, económico y financiero, proporcionan las publicaciones oficiales de los organismos técnicos, a fin de relacionarlos con los antecedentes estadísticos de orden social obtenidos por la Oficina, con el objeto de que se puedan derivar conclusiones sobre la orientación en la solución de los problemas de trabajo, y aplicación de la legislación sobre la materia; y d) Confeccionar los resúmenes periódicos o anuales que exijan las necesidades del Ministerio.

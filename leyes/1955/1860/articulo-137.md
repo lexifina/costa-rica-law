@@ -1,0 +1,2 @@
+Artículo 137.-
+Toda gestión debe ser presentada ante la Oficina correspondiente para lo cual el Ministerio deberá instruir debidamente a patronos y trabajadores. Sin embargo, el error en que al respecto se incurra, no exonera al Ministerio de encauzar la actuación de que se trate, por el conducto que corresponda. NOTA: El artículo 3º de Ley Nº 3095 de 18 de febrero de 1963 corrió la numeración del presente artículo, pasando del 111 al 131 y posteriormente el artículo 1º de Ley Nº 4076 de 6 de febrero de 1968 alteró nuevamente su numeración del 131 al actual.

@@ -1,7 +1,2 @@
-Artículo 4º.- Para la realización de su destino, el Ministerio de
-Trabajo y Previsión Social se integrará con los departamento, secciones
-u oficinas que se fijan en esta Ley o que establezcan disposiciones
-legales posteriores. Sin embargo, la organización interna de cada
-dependencia, señalamiento de funciones y otros aspectos relaciones con
-la marcha general del Ministerio, se regirán por los Reglamentos que se
-dicten en cada caso.
+Artículo 4º.-
+Para la realización de su destino, el Ministerio de Trabajo y Seguridad Social se integrará con los departamentos, secciones u oficinas que se fijan en esta ley o que establezcan disposiciones legales posteriores. Sin embargo, la organización interna de cada dependencia, señalamiento de funciones y otros aspectos relacionados con la marcha general del Ministerio, se regirán por los reglamentos que se dicten en cada caso. ( Así reformado por artículo 1º de Ley Nº 3095 de 18 de febrero de 1963. El nombre del Ministerio fue así reformado por Ley Nº 5089 de 18 de octubre de 1972).

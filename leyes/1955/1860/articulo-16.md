@@ -1,7 +1,2 @@
-Artículo 16.- Cada Oficina estará a cargo de un Jefe de
-nombramiento del Poder Ejecutivo, el que habrá de recaer en persona de
-reconocida capacidad para desempeñar el puesto. Si la importancia de la
-Oficina lo amerita, podrá nombrarse un Subjefe.
-Además, cada Oficina contará con el personal necesarios para el
-desempeño de sus funciones, y se regirá por lo dispuesto en esta Ley y
-en los Reglamentos.
+Artículo 16.-
+Cada Oficina estará a cargo de un Jefe de nombramiento del Poder Ejecutivo, el que habrá de recaer en persona de reconocida capacidad para desempeñar el puesto. Si la importancia de la Oficina lo amerita, podrá nombrarse un Subjefe. Además, cada Oficina contará con el personal necesarios para el desempeño de sus funciones, y se regirá por lo dispuesto en esta Ley y en los Reglamentos.

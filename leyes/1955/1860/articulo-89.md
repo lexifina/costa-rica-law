@@ -1,12 +1,3 @@
-Artículo 89.- Los Inspectores de Trabajo tendrán derecho a visitar
-los lugares de trabajo, cualquiera que sea su naturaleza, en distintas
-horas del día y aún de la noche, si el trabajo se desarrollare durante
-ésta. Podrán revisar libros de contabilidad, de salarios, planillas,
-medios de pago y cualesquiera otros documentos y constancias que
-eficazmente les ayuden a realizar su labor y que se refieran a los
-respectivos trabajos. Si encontraren resistencia injustificada, darán
-cuenta de lo sucedido al Juez de Trabajo que corresponda, de lo que
-informarán a la mayor brevedad a la Jefatura de la Inspección.
-En casos especiales y en los que la acción de los Inspectores deba
-ser inmediata, podrán requerir el auxilio de las autoridades de policía,
-únicamente para que no se les impida el cumplimiento de sus deberes.
+Artículo 89.-
+Los Inspectores de Trabajo tendrán derecho a visitar los lugares de trabajo, cualquiera que sea su naturaleza, en distintas horas del día y aún de la noche, si el trabajo se desarrollare durante ésta. Podrán revisar libros de contabilidad, de salarios, planillas, medios de pago y cualesquiera otros documentos y constancias que eficazmente les ayuden a realizar su labor y que se refieran a los respectivos trabajos. Si encontraren resistencia injustificada, darán cuenta de lo sucedido al Juez de Trabajo que corresponda, de lo que informarán a la mayor brevedad a la Jefatura de la Inspección. En casos especiales y en los que la acción de los Inspectores deba ser inmediata, podrán requerir el auxilio de las autoridades de policía, únicamente para que no se les impida el cumplimiento de sus deberes.
+(NOTA: Anteriormente, y de conformidad con el dictamen C-060-94 de 25 de abril de 1994, el presente artículo se había considerado como derogado parcialmente en todo lo que se refería a la facultad de revisión de libros y anexos, determinados en los numerales 265, 266 y el Transitorio XII del Código de Comercio No.3284 de 30 de abril de 1964, en relación con el numeral 24 de la Constitución Política. Sin embargo, la Sala Constitucional , mediante Voto N° 6497 del 2 de diciembre de 1996, estableció que los artículos 89 y 94 de la Ley Orgánica del Ministerio de Trabajo, resultan legítimos frente al artículo 24 de la Constitución Política, determinando así la constitucionalidad de esos numerales)

@@ -1,12 +1,5 @@
 CAPITULO III
 Oficina de Cooperativas
-Artículo 73.- Corresponde a esta Oficina facilitar por todos los
-medios posibles el desarrollo y propaganda del movimiento
-cooperativista, para lo cual deberá efectuar un amplio programa de
-capacitación. Además de los cursos, conferencias, publicaciones y otros
-recursos que practique con ese fin, deberá combinar su acción con la
-correspondiente que puedan desarrollar el Ministerio de Educación
-Pública y otros organismos particulares y del Estado.
-Sus actividades las podrá realizar en los centros de trabajo y en
-los locales de sindicatos o de grupos de personas que puedan
-beneficiarse con las cooperativas.
+Artículo 73.-
+La Oficina de Cooperativas tendrá las funciones que le encomienda la Ley de Asociaciones Cooperativas. ( Así reformado por artículo 117 de Ley Nº 4179 de 22 de agosto de 1968.
+Posteriormente, el artículo 2º de Ley Nº 5185 de 20 de febrero de 1973 lo reformó aunque mantuvo su redacción idéntica).

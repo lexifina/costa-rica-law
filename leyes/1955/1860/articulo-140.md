@@ -1,0 +1,2 @@
+Artículo 140.-
+Las resoluciones o pronunciamiento que se produzcan, se harán constar en LIbros Especiales que al efecto se llevarán, o empleando cualquier otro sistema de carácter técnico. NOTA: El artículo 3º de Ley Nº 3095 de 18 de febrero de 1963 corrió la numeración del presente artículo, pasando del 114 al 134 y posteriormente el artículo 1º de Ley Nº 4076 de 6 de febrero de 1968 alteró nuevamente su numeración del 134 al actual.

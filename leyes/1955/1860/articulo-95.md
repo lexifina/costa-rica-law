@@ -1,14 +1,2 @@
-Artículo 95.- La desobediencia a las disposiciones dadas por los
-Inspectores dentro del límite de sus atribuciones legales o
-reglamentarias, y también el hecho de impedirles que cumplan los deberes
-propios de su cargo, y las dificultades que se les crearen en el
-ejercicio de sus funciones, se penarán con multa de veinte a trescientos
-sesenta colones. En caso de más de una reincidencia específica, se
-impondrá forzosamente arresto, de diez a ciento ochenta días, el cual
-tendrá carácter inconmutable.
-La pena se impondrá, tanto a la persona directamente responsable de
-la infracción, como al patrono en cuya empresa, industria, negocio o
-establecimiento hubiere incurrido, a no ser que el último demostrare su
-desconocimiento o no participación en la falta de que se trate. Si el
-patrono fuere una persona moral, se estará a lo dispuesto por el
-artículo 570 del Código de Trabajo.
+Artículo 95.-
+La desobediencia a las disposiciones dadas por los Inspectores dentro del límite de sus atribuciones legales o reglamentarias, y también el hecho de impedirles que cumplan los deberes propios de su cargo, y las dificultades que se les crearen en el ejercicio de sus funciones, se penarán con multa de veinte a trescientos sesenta colones. En caso de más de una reincidencia específica, se impondrá forzosamente arresto, de diez a ciento ochenta días, el cual tendrá carácter inconmutable. La pena se impondrá, tanto a la persona directamente responsable de la infracción, como al patrono en cuya empresa, industria, negocio o establecimiento hubiere incurrido, a no ser que el último demostrare su desconocimiento o no participación en la falta de que se trate. Si el patrono fuere una persona moral, se estará a lo dispuesto por el artículo 570 del Código de Trabajo.

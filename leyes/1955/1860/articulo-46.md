@@ -1,8 +1,2 @@
-Artículo 46.- Para efecto de lo dispuesto en el artículo 43, los
-Inspectores de Trabajo actuarán como delegados auxiliares de la Oficina
-de Asuntos Gremiales y Conciliación Administrativa, dentro de sus
-respectivas jurisdicciones, y siempre que los interesados, por razón de
-la distancia, no puedan presentarse directamente a dicha Oficina.
-En este caso, los Inspectores de que se trate, tendrán las mismas
-atribuciones contempladas en el artículo citado y las referidas en los
-números 44 y 45.
+Artículo 46.-
+Para efecto de lo dispuesto en el artículo 43, los Inspectores de Trabajo actuarán como delegados auxiliares de la Oficina de Asuntos Gremiales y Conciliación Administrativa, dentro de sus respectivas jurisdicciones, y siempre que los interesados, por razón de la distancia, no puedan presentarse directamente a dicha Oficina. En este caso, los Inspectores de que se trate, tendrán las mismas atribuciones contempladas en el artículo citado y las referidas en los números 44 y 45.

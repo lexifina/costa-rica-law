@@ -1,8 +1,2 @@
-Artículo 92.- Siempre que se compruebe la violación de leyes y
-reglamentos de trabajo o de previsión social, la Inspección requerirá al
-patrono correspondiente, por escrito, para que dentro del término que le
-fije, se ajuste a derecho. Vencido el plazo otorgado sin haberse
-cumplido la prevención, la Inspección levantará una acta haciendo constar
-su intervención, procediendo, por medio de su Jefe, a entablar la acción
-judicial correspondiente. Dicho funcionario queda exento de rendir fianza
-por calumnia cuando proceda pedirla.
+Artículo 92.-
+Siempre que se compruebe la violación de leyes y reglamentos de trabajo o de previsión social, la Inspección requerirá al patrono correspondiente, por escrito, para que dentro del término que le fije, se ajuste a derecho. Vencido el plazo otorgado sin haberse cumplido la prevención, la Inspección levantará una acta haciendo constar su intervención, procediendo, por medio de su Jefe, a entablar la acción judicial correspondiente. Dicho funcionario queda exento de rendir fianza por calumnia cuando proceda pedirla.

@@ -1,0 +1,2 @@
+Artículo 143.-
+Para un mejor funcionamiento del Ministerio de Trabajo y Seguridad Social, el Poder Ejecutivo podrá ampliar el número de oficinas contempladas en esta ley, mediante acuerdo dictado al efecto. NOTA: El artículo 3º de Ley Nº 3095 de 18 de febrero de 1963 corrió la numeración del presente artículo, pasando del 117 al 137 y posteriormente el artículo 1º de Ley Nº 4076 de 6 de febrero de 1968 alteró nuevamente su numeración del 137 al actual. El nombre del Ministerio fue así reformado por Ley Nº 5089 de 18 de octubre de 1972.

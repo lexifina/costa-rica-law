@@ -1,27 +1,7 @@
 CAPITULO IV
 Oficina de Empleo
-Artículo 75.- Corresponde a esta Oficina realizar las siguientes
-actividades:
-Primero: Estudiar, de una manera continuada y permanente, las
-necesidades y los recursos de mano de obra del país, con el fin de
-establecer una política nacional en ese sentido, incluyendo colocaciones
-y formación profesional.
-Segundo: Asegurar, hasta donde sea posible, una mejor distribución
-de la mano de obra, encauzando a los trabajadores hacia los empleos
-disponibles dentro de las ocupaciones de su escogencia. Con ese fin se
-procederá a:
-a) Facilitar la movilidad de la mano de obra, con el fin de que los
-trabajadores puedan desarrollar sus actividades de acuerdo con sus
-capacidades y conocimientos, y así alcanzar y mantener un nivel máximo
-en la producción y en el empleo;
-b) Establecer registros especiales para inscribir las demandas y las
-ofertas de empleo, con el objeto de ayudar a los trabajadores a
-encontrar una colocación conveniente y a los patronos, trabajadores
-apropiados a las necesidades de las empresas; y
-c) Determinar facilidades para ayudar a los trabajadores a elegir,
-mejorar o cambiar sus ocupaciones, tomando en cuenta las características
-de las personas y las posibilidades que ofrece el mercado del empleo.
-Tercero: Controlar el funcionamiento de las agencias privadas de
-colocación que la ley permita; y
-Cuarto: Confeccionar y mantener al día un Manual Descriptivo de
-Ocupaciones.
+Artículo 75.-
+Corresponde a esta Oficina realizar las siguientes actividades: Primero: Estudiar, de una manera continuada y permanente, las necesidades y los recursos de mano de obra del país, con el fin de establecer una política nacional en ese sentido, incluyendo colocaciones y formación profesional. Segundo: Asegurar, hasta donde sea posible, una mejor distribución de la mano de obra, encauzando a los trabajadores hacia los empleos disponibles dentro de las ocupaciones de su escogencia. Con ese fin se procederá a:
+a) Facilitar la movilidad de la mano de obra, con el fin de que los trabajadores puedan desarrollar sus actividades de acuerdo con sus capacidades y conocimientos, y así alcanzar y mantener un nivel máximo en la producción y en el empleo;
+b) Establecer registros especiales para inscribir las demandas y las ofertas de empleo, con el objeto de ayudar a los trabajadores a encontrar una colocación conveniente y a los patronos, trabajadores apropiados a las necesidades de las empresas; y c) Determinar facilidades para ayudar a los trabajadores a elegir, mejorar o cambiar sus ocupaciones, tomando en cuenta las características de las personas y las posibilidades que ofrece el mercado del empleo.
+Tercero: Controlar el funcionamiento de las agencias privadas de colocación que la ley permita; y Cuarto: Confeccionar y mantener al día un Manual Descriptivo de Ocupaciones.

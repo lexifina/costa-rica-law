@@ -1,8 +1,2 @@
-Artículo 27.- El funcionamiento de la Biblioteca debe
-acondicionarse dentro de las normas más prácticas y accesibles, no sólo
-para los funcionarios del Ministerio, sino para todas aquellas personas u
-organizaciones a quienes interese disponer de una fuente de ilustración
-en el campo del derecho social.
-Se procurará mantener un servicio de biblioteca nocturno y durante
-los días feriados, a fin de que pueda ser aprovechada, especialmente por
-los trabajadores y público en general.
+Artículo 27.-
+El funcionamiento de la Biblioteca debe acondicionarse dentro de las normas más prácticas y accesibles, no sólo para los funcionarios del Ministerio, sino para todas aquellas persona su organizaciones a quienes interese disponer de una fuente de ilustración en el campo del derecho social. Se procurará mantener un servicio de biblioteca nocturno y durante los días feriados, a fin de que pueda ser aprovechada, especialmente por los trabajadores y público en general.

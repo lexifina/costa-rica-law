@@ -1,5 +1,3 @@
-Artículo 94.- Las actas que levanten los Inspectores y los informes
-que rindan en materia de sus atribuciones, tendrá el valor de prueba muy
-calificada, y sólo se prescindirá de ellas, si hubiere otras que de modo
-evidente revelen la inexactitud, falsedad o parcialidad del acta o
-informe.
+Artículo 94.-
+Las actas que levanten los Inspectores y los informes que rindan en materia de sus atribuciones, tendrá el valor de prueba muy calificada, y sólo se prescindirá de ellas, si hubiere otras que de modo evidente revelen la inexactitud, falsedad o parcialidad del acta o informe.
+(NOTA: Anteriormente, y de conformidad con el dictamen C-060-94 de 25 de abril de 1994, el presente artículo se había considerado como derogado parcialmente en todo lo que se refería a la facultad de revisión de libros y anexos, determinados en los numerales 265, 266 y el Transitorio XII del Código de Comercio No.3284 de 30 de abril de 1964, en relación con el numeral 24 de la Constitución Política. Sin embargo, la Sala Constitucional , mediante Voto N° 6497 del 2 de diciembre de 1996, estableció que los artículos 89 y 94 de la Ley Orgánica del Ministerio de Trabajo, resultan legítimos frente al artículo 24 de la Constitución Política , determinando así la constitucionalidad de esos numerales)

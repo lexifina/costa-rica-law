@@ -1,6 +1,2 @@
-Artículo 53.- En lo que se refiere a la capacitación legal, esta
-oficina mantendrá un servicio constante de instrucción para patronos y
-trabajadores, relativo a todos sus derechos y obligaciones consignados en
-la legislación de trabajo. Para tal efecto, organizará las conferencias
-o seminarios que considere procedentes, labor que podrá llevar a cabo en
-los centros de trabajo en los locales de los sindicatos.
+Artículo 53.-
+En lo que se refiere a la capacitación legal, esta oficina mantendrá un servicio constante de instrucción para patronos y trabajadores, relativo a todos sus derechos y obligaciones consignados en la legislación de trabajo. Para tal efecto, organizará las conferencias o seminarios que considere procedentes, labor que podrá llevar a cabo en los centros de trabajo en los locales de los sindicatos.

@@ -1,3 +1,2 @@
-Artículo 86.- Directamente o por medio de otras instituciones,
-contribuirá a la solución del problema de la vivienda para el
-trabajador, y en el de la rehabilitación de los trabajadores enfermos.
+Artículo 86.-
+DEROGADO. ( Derogado por artículo 5º de Ley Nº 3095 de 18 de febrero de 1963).
