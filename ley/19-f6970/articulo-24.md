@@ -1,1 +1,0 @@
-Artículo 24.- No podrán ser denunciadas ni tituladas las tierras arrendadas por el Estado con la base en la ley N° 29 de 10 de julio de 1891, y decretos ejecutivos Nos. 33 y 34 de 24 de agosto de 1893.

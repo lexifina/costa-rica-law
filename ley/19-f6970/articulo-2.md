@@ -1,3 +1,0 @@
-Artículo 2°-Ningún denuncio podrá comprender una extensión mayor de veinte hectáreas y caducará de pleno derecho, sin necesidad de resolución que así lo declare-pasando su propiedad nuevamente al Estado- si se abandonare y no se ejerciere su posesión efectiva mediante cultivos estables en el término de dos años, contados a partir de la entrega de la parcela.
-Cualquiera con derecho a denunciar podrá alegar la caducidad y solicitar la adjudicación del lote, previa cancelación de la inscripción respectiva en el Registro Público.
-La caducidad a que se refiere este artículo se insertará en la ejecutoria que se expida para la inscripción, a fin de que se haga constar en el Registro mencionado.
