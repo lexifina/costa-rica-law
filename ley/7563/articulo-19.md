@@ -1,0 +1,6 @@
+ARTICULO 19.- Se autoriza al Ministerio de Hacienda para incorporar,
+al Presupuesto Nacional mediante decreto ejecutivo, los recursos que
+reciban la Editorial Costa Rica y la Editorial Tecnológica del Instituto
+Tecnológico de Costa Rica, de conformidad con lo dispuesto en la Ley No.
+5357, del 8 de octubre de 1973, reformada en la Ley No. 6381, del 6 de
+setiembre de 1979.
