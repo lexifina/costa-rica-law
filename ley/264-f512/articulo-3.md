@@ -1,0 +1,1 @@
+Artículo 3°-Los que hayan estado al servicio de dicha empresa por espacio mayor de 35 años y cuya edad pase de 60 años, podrán obtener su retiro con derecho a una pensión por mes equivalente a las dos terceras partes del ultimo sueldo o estipendio mensual devengado.

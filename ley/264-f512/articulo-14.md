@@ -1,0 +1,1 @@
+Artículo 14.-Los beneficios que esta ley otorga no dan derecho a ejercitar acción alguna contra el Estado, ni se extiende a los servidores de los departamentos adscritos al Ferrocarril por disposiciones especiales.

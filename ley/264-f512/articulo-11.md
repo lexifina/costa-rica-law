@@ -1,0 +1,1 @@
+Artículo 11.-Para el cómputo del tiempo servido, no es preciso que los servicios hayan sido prestados consecutivamente: basta que lo hayan sido a la misma Empresa, aunque en diferentes cargos, destinos o trabajos.

@@ -1,0 +1,1 @@
+Artículo 6°- Los empleados y obreros que hubieren servido menos de 10 años, no tendrán derecho a jubilación en ningún caso, ni sus parientes a pensión alguna, aun en el caso de fallecimiento. Quedan a salvo las disposiciones legales en materia de accidentes del trabajo.
