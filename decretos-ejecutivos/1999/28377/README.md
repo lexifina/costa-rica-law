@@ -13,3 +13,4 @@ Crea Comisión de Enlace Nacional con COCATRAM(Comisión Centroamericana de Tran
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-07 | la propia norma |
+| 2 | 2000-10-30 | Ley 7 |
