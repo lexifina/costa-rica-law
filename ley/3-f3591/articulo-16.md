@@ -1,0 +1,1 @@
+Artículo 16.- El Poder Ejecutivo procederá sin demora a reglamentar la presente ley para su debida ejecución en todos sus detalles, especialmente en lo que se refiere a la forma provisional o definitiva para la percepción de los impuestos que se establecen, conversión de la deuda y emisión de bonos.

@@ -1,0 +1,2 @@
+Artículo 4º.- Si hubiere déficit en el pago total del servicio de la emisión de bonos deberá llenarse con fondos que se tomarán de las otras rentas disponibles. Si por el contrario, hubiere superávit, se destinará a constituir un fondo de reserva que se usará a juicio discrecional del Ministerio de Hacienda, para llenar cualquier déficit en los futuros sorteos.
+Efectuado cada sorteo, el Ministerio de Hacienda publicará el resultado por diez días consecutivos en La Gaceta con todos los detalles necesarios.

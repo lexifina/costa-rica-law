@@ -1,0 +1,1 @@
+Artículo 13.- Los impuestos de timbre y comercial que sobre los espectáculos públicos contiene el inciso 29 del artículo 273 del Código Fiscal, y el inciso c) del artículo 2º, ley nº 1 de 2 de setiembre del año en curso, respectivamente, quedan transformados como lo establece la presente ley.
