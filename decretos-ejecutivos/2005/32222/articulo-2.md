@@ -1,0 +1,1 @@
+Artículo 2º—Las dependencias del Sector Público, del Sector Privado, Organismos Internacionales y Organizaciones no Gubernamentales, dentro del marco legal respectivo, podrán contribuir con recursos económicos, humanos o logísticos, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de esta actividad.
