@@ -1,0 +1,6 @@
+Artículo 38.—El presente reglamento rige a partir de su publicación en el diario oficial.
+*********
+Nota de la magistrada León Feoli.
+En relación al rubro "Responsabilidad por el ejercicio profesional de la función electoral" previsto en el inciso h) del artículo 10 de este Reglamento, dejo constancia de que mi posición fue a favor de la propuesta formulada por la Asociación de Profesionales, según la cual, el reconocimiento debe hacerse en función del nivel del cargo, utilizando para ello una banda de un 14 a un 30 % según las diferentes posiciones jerárquicas de la institución.
+Si bien la aprobación de un único porcentaje permite en sí mismo establecer una diferencia en el monto según el nivel de que se trate, dado que su cálculo se hace sobre el salario base de cada categoría, ello a mi juicio, no es suficiente para satisfacer plenamente la razón de ser de este plus, cual es un incremento salarial en función del nivel de responsabilidad que genera el ejercicio del cargo. Esta, indiscutiblemente es diferente según sea el puesto que se desempeña, de suerte que el esquema propuesto, al conjugar la responsabilidad con el porcentaje a otorgar, se convierte en un modelo más justo y acorde con el fin que se persigue.
+San José, 12 de octubre de 1999.

@@ -1,0 +1,1 @@
+Artículo 23.—En los casos de escritos publicados por dos o más autores, el reconocimiento se hará distribuyendo el puntaje correspondiente en forma proporcional al número de aquéllos. En estas circunstancias, las fracciones podrán ser acumuladas a fin de completar unidades.

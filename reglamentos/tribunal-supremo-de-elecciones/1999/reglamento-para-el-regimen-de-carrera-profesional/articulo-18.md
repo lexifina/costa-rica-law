@@ -1,0 +1,1 @@
+Artículo 18.—Para el cálculo de la experiencia laboral no se deducirán los permisos con o sin goce de salario para realizar estudios, siempre que estos estén relacionados con el puesto que desempeña. En todo caso, la ponderación de este factor será proporcional a la jornada de trabajo.

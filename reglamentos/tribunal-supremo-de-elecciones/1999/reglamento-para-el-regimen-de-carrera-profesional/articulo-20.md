@@ -1,0 +1,2 @@
+De la Experiencia Profesional en Organismos Internacionales
+Articulo 20.—La experiencia obtenida en organismos internacionales o proyectos financiados por éstos, podrá ser considerada para la Carrera Profesional cuando las labores desempeñadas por el profesional en esos organismos sean afines a la especialidad del cargo que ocupa o a los planes, tareas y necesidades del Tribunal, para lo cual el interesado debe aportar certificaciones del organismo respectivo, sobre la naturaleza del trabajo desarrollado y su duración.

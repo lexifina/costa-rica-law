@@ -1,0 +1,1 @@
+Artículo 32.—El monto del incentivo derivado de la aplicación de los factores previstos para la Carrera Profesional, se establecerá mediante el valor que le asigne a cada punto el Tribunal Supremo de Elecciones de acuerdo con recomendaciones de la Comisión de Carrera Profesional, lo cual se hará con base en las tendencias del mercado salarial, previa investigación.

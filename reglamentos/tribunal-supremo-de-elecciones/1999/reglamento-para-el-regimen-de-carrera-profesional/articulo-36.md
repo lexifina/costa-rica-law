@@ -1,0 +1,1 @@
+Artículo 36.—Las circunstancias no previstas o no contempladas en este reglamento, serán resueltas de conformidad con las disposiciones y prácticas seguidas para la Carrera Profesional por el Servicio Civil.

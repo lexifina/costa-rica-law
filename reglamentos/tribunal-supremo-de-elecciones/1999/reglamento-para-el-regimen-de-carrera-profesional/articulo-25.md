@@ -1,0 +1,1 @@
+Artículo 25.—Aquel funcionario que obtenga una calificación de servicios inferior a "Muy Bueno" perderá el derecho, durante el siguiente período de evaluación, a solicitar y obtener ajustes para el incremento de los beneficios que concede este régimen.

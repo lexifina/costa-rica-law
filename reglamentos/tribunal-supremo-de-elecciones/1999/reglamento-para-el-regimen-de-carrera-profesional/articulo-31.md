@@ -1,0 +1,1 @@
+Artículo 31.—Las resoluciones del Tribunal Supremo de Elecciones serán comunicadas a la Comisión, al Jefe de Personal, a la Contaduría y a los interesados, a fin de que se tramite la respectiva acción de personal para hacer efectivo el pago del incentivo por Carrera Profesional cuando proceda.

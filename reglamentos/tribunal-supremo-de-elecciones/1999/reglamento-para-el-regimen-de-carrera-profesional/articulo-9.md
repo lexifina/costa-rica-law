@@ -1,0 +1,3 @@
+CAPITULO IV
+De los factores de la Carrera Profesional
+Artículo 9°—Se tomarán como factores objeto de incentivo por concepto de Carrera Profesional los siguientes: grados académicos obtenidos, estudios superiores adicionales al bachillerato universitario, capacitación recibida, capacitación impartida bajo la modalidad de instructor, experiencia profesional en instituciones de la Administración Pública y en organismos internacionales, experiencia docente en instituciones de enseñanza de nivel universitario o parauniversitario, publicaciones efectuadas y responsabilidad por el ejercicio profesional de la función electoral.
