@@ -450,11 +450,9 @@ tendientes a reducir la diferencia entre los precios internos oficiales de
 los productores de arroz y los precios medios de los últimos cinco años de
 sus equivalentes internacionales (determinados de acuerdo con una
 metodología satisfactoria para el Banco) a un máximo de 40%.
-8. Que el Prestatario haya adoptado todas las medidas necesarias para
-permitir a los comerciantes privados importar frijoles, maíz y arroz en
-caso de insuficientes suministros internos, con inclusión del
-establecimiento de un sistema de mercado para la concesión de licencias de
-importación de dichos productos.
+8. DEROGADO
+( Derogado por el inciso g) del segundo grupo de incisos del artículo 70
+de la Ley Nº 7472 de 20 de diciembre de 1994).
 9. Que la cartera vencida en más de 180 días de los Bancos Públicos
 Comerciales se haya reducido al 5% de los préstamos totales pendientes
 concedidos por dichos bancos al 31 de diciembre de 1988, y al 4% al 30 de

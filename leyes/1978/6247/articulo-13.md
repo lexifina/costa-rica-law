@@ -1,1 +1,2 @@
 Artículo 13.- Autorízase la exportación de excedentes de carne de ganado vacuno hembra mayor de un año, sujeta a las regulaciones establecidas por esta ley.
+(Mediante el inciso d) del segundo grupo de incisos del artículo 70 de la Ley de Promoción y Defensa Efectiva del Consumidor, N° 7472 del 20 de diciembre de 1994, se establece dejar sin efecto las funciones y potestades de regulación del comercio y, en particular, para otorgar licencias de importación o exportación, fijar cuotas y otorgar autorizaciones a una actividad económica, que se señalan en este artículo)
