@@ -1,1 +1,0 @@
-Artículo 19.- Mediando causa justificada, a juicio de la Contaduría Mayor y por gestión del interesado, se podrá autorizar el traslado de mercaderías en depósito fiscal de un almacén a otro, previa conformidad del que deba hacer la entrega y del que la deba recibir. El plazo que se fija para el depósito no se interrumpirá por el traslado de mercaderías de un almacén a otro.

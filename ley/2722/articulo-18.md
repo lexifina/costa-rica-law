@@ -1,1 +1,0 @@
-Artículo 18.- El transporte de mercaderías a los almacenes fiscales, deberá hacerse con intervención de los funcionarios aduaneros, quienes deberán tomar todas las medidas que estimen necesarias para evitar sustracciones de mercaderías, o que éstas ingresen al mercado sin el pago de los impuestos correspondientes.

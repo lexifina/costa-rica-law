@@ -1,1 +1,0 @@
-Artículo 11.- Las mercaderías en depósito fiscal podrán ser retiradas total o parcialmente de los almacenes para su consumo en el país, mediante constancia de la aduana respectiva de haber sido satisfechos los impuestos de importación y demás recargos fiscales y cuando también se hayan pagado los cargos de almacén, sin que de estos últimos sea responsable el Estado.

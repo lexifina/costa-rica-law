@@ -1,1 +1,0 @@
-Artículo 2º.- El depósito será autorizado, previo pago del servicio de muelle, necesariamente en bodegas construidas de acuerdo con las especificaciones señaladas en el Reglamento de 4 de abril de 1935, garantizando así la seguridad y buena conservación de las mercaderías.
