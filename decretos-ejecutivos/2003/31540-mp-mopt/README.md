@@ -14,3 +14,4 @@ Declara estado de emergencia nacional en cantones de la provincia de Limón, en 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-11 | la propia norma |
+| 2 | 2004-07-23 | Decreto Ejecutivo 31899 (2004-07-23) |
