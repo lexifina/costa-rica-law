@@ -1,0 +1,2 @@
+Artículo 45: ELECCIÓN DE CANDIDATOS DE BECAS AL EXTERIOR
+La elección de los candidatos a becas en el exterior se hará por medio de concursos por oposición y antecedentes que administrará el Departamento de Desarrollo de Recursos Humanos, así como de las pruebas que se consideren pertinentes. Para tal propósito la Comisión hará la convocatoria mediante el uso de los mecanismos de comunicación interna.

@@ -1,0 +1,3 @@
+Artículo 34: REQUISITOS Y CONDICIONES PARA OTORGAR BENEFICIOS
+Los beneficios del sistema se otorgarán a los funcionarios del INA que se encuentren nombrados conforme a las disposiciones del Estatuto de Servicio Civil, y que hayan cumplido satisfactoriamente su periodo de prueba. También podrán ser becarios del Sistema aquellos funcionarios nombrados bajo el régimen de Servicios Especiales e interinos, siempre que tengan más de seis meses de laborar ininterrumpidamente para el INA.
+En todo caso, el otorgamiento de los beneficios del Sistema, sólo se hará cuando no resulte afectado el servicio público, y si lo permiten las condiciones del Departamento o Dirección a la que pertenece el servidor.
