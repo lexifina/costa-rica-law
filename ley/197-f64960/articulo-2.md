@@ -1,0 +1,1 @@
+Artículo 2°-Los empleados municipales, al cumplir treinta y cinco años de servicio y sesenta años de edad, podrán retirarse con una jubilación igual a los dos terceras partes del sueldo que fije para el último cargo o empleo servido, el presupuesto general de gastos vigente del año en que se opta por el retiro.

@@ -1,0 +1,1 @@
+Artículo 7°-Para obtener y para conservar cualquier pensión, se necesita observar buena conducta y carecer de bienes suficientes para la subsistencia. No tendrá derecho a pensión la viuda del empleado que a la muerte de éste estuviere separada de hecho o judicialmente sin recibir pensión alimenticia.
