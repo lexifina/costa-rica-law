@@ -1,4 +1,5 @@
 N° 7934
+(Nota de Sinalevi Mediante decreto ejecutivo N° 28329 del 25 de noviembre de 1999, Costa Rica ratifica el presente Convenio)
 LA ASAMBLEA LEGISLATIVA
 DE LA RPÚBLICA DE COSTA RICA
 Decreta:
