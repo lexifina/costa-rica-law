@@ -1,0 +1,28 @@
+PODER LEGISLATIVO
+LEYES
+N° 8350
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA DEL ARTÍCULO 169 DE LA LEY DEL SISTEMA
+FINANCIERO NACIONAL PARA LA VIVIENDA,
+N° 7052, Y SUS REFORMAS
+Artículo único.—Refórmase el artículo 169 de la Ley del Sistema Financiero Nacional para la Vivienda, N° 7052, de 13 de noviembre de 1986,y sus reformas. El texto dirá:
+"Artículo 169.—Los bienes inmuebles declarados de interés social, que hayan sido financiados y adquiridos mediante el subsidio o bono familiar de la vivienda establecido en esta Ley, no podrán ser enajenados, gravados ni arrendados, bajo ningún título, gratuito ni oneroso, durante un plazo de diez años contados a partir de la fecha en que se formalice en escritura pública el otorgamiento del subsidio respectivo; lo anterior, con la salvedad de que se cuente con la debida autorización del Banco Hipotecario de la Vivienda (BANVHI). El uso y usufructo de estos inmuebles será exclusivamente de los miembros del grupo familiar que recibió el subsidio indicado, salvo que se cuente con la autorización referida otorgada a favor de terceros. El Registro Público de la Propiedad cancelará, de oficio, la presentación de cualquier documento que no contenga esa autorización.
+La Junta Directiva del BANVHI, de conformidad con las reglas que ella misma determine, podrá delegar en las entidades autorizadas el otorgamiento de las autorizaciones. Asimismo, como requisito para que se otorgue la autorización indicada, podrá establecer que el beneficiario reintegre, total o parcialmente, el monto del subsidio o bono de la vivienda recibido.
+En la vía ejecutiva, podrá exigirse el reintegro del subsidio del bono familiar de vivienda más los respectivos intereses, a la tasa de interés legal desde la fecha de su otorgamiento hasta la fecha del efectivo reintegro, cuando administrativamente se determine, previa audiencia al beneficiario y mediante el procedimiento ordinario, lo siguiente:
+a) Que el beneficiario ha obtenido el subsidio o bono con base en el suministro de datos falsos.
+b) Que el beneficiario ha variado el destino de los fondos del subsidio o bono de vivienda obtenido.
+c) Que el inmueble se ha dispuesto en contra de lo estipulado en el primer párrafo de este artículo.
+d) Que dentro del grupo familiar beneficiado por el subsidio, existen uno o más propietarios de viviendas que se encuentran usufructuando, comercializando o, en general, lucrando con uno o varios de dichos inmuebles; además, cuando se determine que uno o varios de esos propietarios destinan los inmuebles al desarrollo de actividades ilegales o contrarias a la moral o el orden público.
+e) Que el propietario o los miembros del núcleo familiar beneficiado dañan, total o parcialmente, la vivienda con el fin de comercializar sus componentes.
+f) Que uno o varios propietarios colindantes han decidido utilizar o unir sus viviendas, con el objeto de instalar, dentro de un inmueble de interés social, una actividad comercial o un negocio mercantil o industrial, que afecta el fin para el que fue otorgado el bono familiar de la vivienda.
+g) Que se ha hecho abandono de la vivienda por parte de los beneficiarios a favor de terceros a título gratuito u oneroso, o bien, se ha realizado abandono sin que el inmueble sea habitado, salvo justa razón que lo justifique.
+Sin perjuicio de las responsabilidades civiles y penales previstas en las disposiciones legales correspondientes, los solicitantes o los beneficiarios de subsidios del bono familiar de vivienda que violen las disposiciones contempladas en el presente artículo, o bien, que se postulen para obtener los beneficios del bono familiar o ya lo hayan recibido, suministrando información falsa o fraudulenta u ocultando, en forma parcial o total, información esencial, quedarán inhabilitados para postularse para un nuevo subsidio durante un período de diez años, contado a partir de la fecha en que quede firme la disposición o el acto administrativo que declare tal situación. Esta inhabilitación se aplicará únicamente a los miembros del grupo familiar que administrativamente sean declarados como sujetos activos de tal accionar ilícito. En todos los casos, se observará el debido proceso.
+Para los efectos anteriores, una vez verificado el procedimiento administrativo correspondiente, en caso de que el beneficiario no cancele la respectiva obligación, se procederá a su cobro mediante la vía ejecutiva; con ese propósito, el BANVHI emitirá la certificación con carácter de título ejecutivo prevista en el artículo 38 de la presente Ley.
+Los inmuebles que hayan sido financiados por medio del otorgamiento del subsidio o bono de la vivienda, serán inembargables durante un plazo de diez años contado desde la fecha de otorgamiento de dicho subsidio mediante escritura pública. Esta inembargabilidad no se aplicará en cuanto al BANVHI para los efectos de hacer exigible la devolución del bono familiar de vivienda; tampoco a las entidades autorizadas en cuanto a los créditos hipotecarios que hayan otorgado, con las autorizaciones del caso y con garantía sobre dichos bienes."
+Rige a partir de su publicación.
+Comunícase al Poder Ejecutivo
+Asamblea Legislativa.—San José, a los diecisiete días del mes de marzo del dos mil tres.—Rolando Laclé Castro, Presidente.—Ronaldo Alfaro García, Primer Secretario.—Lilliana Salas Salazar, Segunda Secretaria.
+Presidencia de la República.—San José, al primer día del mes de abril del dos mi tres.
+Ejecútese y publíquese
