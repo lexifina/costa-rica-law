@@ -1,0 +1,1 @@
+Artículo 6°—El modelo curricular a que se refiere el artículo 19 así como el Plan de Estudios derivado y los correspondientes programas, deberán ser sometidos a la aprobación del Consejo Superior de Educación.

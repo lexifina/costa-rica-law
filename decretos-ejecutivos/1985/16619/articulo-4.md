@@ -1,0 +1,1 @@
+Artículo 4°—El Ministerio de Educación Pública, en coordinación con las instituciones de educación superior, establecerá programas de formación y capacitación para el personal encargado de la ejecución de los respectivos programas educativos.

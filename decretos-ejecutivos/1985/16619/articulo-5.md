@@ -1,0 +1,1 @@
+Artículo 5°—La Dirección General de Servicio Civil, en coordinación con el Departamento de Personal del Ministerio de Educación Pública, establecerá los requisitos y procedimientos de selección conducentes al nombramiento del personal docente que prestará servicios en las instituciones educativas a cuyo cargo esté el desarrollo de los respectivos programas educativos.

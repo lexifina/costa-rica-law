@@ -1,0 +1,1 @@
+Artículo 2°—El servicio educativo correspondiente a dicho modelo, se brindará dentro del contexto bilingüe y bicultural de las comunidades indígenas y se orientará hacia la revaloración de las condiciones psico-socio-culturales del indio y su comunidad.

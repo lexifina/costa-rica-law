@@ -1,0 +1,1 @@
+Artículo 3°—El Ministerio de Educación Pública podrá requerir la colaboración de instituciones públicas o privadas tanto nacionales como internacionales, para la formulación y ulterior aplicación del modelo curricular. No obstante, deberá asignar en su presupuesto recursos económicos destinados a este fin.
