@@ -14,3 +14,4 @@ Reglamento a la Ley de Armas y Explosivos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-13 | la propia norma |
+| 2 | 1996-06-13 | SINALEVI (sin norma nombrada) |
