@@ -1,0 +1,1 @@
+Art 153.- Concluido el término de prueba se hará publicación de probanzas a pedimentos de cualquiera de las partes sin otra sustantación y se entregarán a cada una de estas pro su orden por el término de seis días.

@@ -1,0 +1,1 @@
+Art 157.- En los alegatos de bien probado se concluirá para definitiva, y sin lo hiciesen ambas partes a instancia de la que hubiese verificado, se declarará el pleito por concluso, se citara a todas ellas para sentencia, señalándose día para la vista.

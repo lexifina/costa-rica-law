@@ -1,0 +1,1 @@
+Art 141.- La prueba documental puede producirse por las partes en cualquier estado del juicio antes de estar legítimamente concluso, observándose en cuanto a los documentos que deban respectivamente producir el actor con la demanda, y el demandado con la contestación, lo prevenido en los artículos 48 y 49.

@@ -1,0 +1,1 @@
+Art 456°.- En el caso de no presentarse al juicio el demandado, que hubiere sido citado por segunda vez, se celebrará en su rebeldía, oyendo al demandante y admitiéndole le las pruebas que le convengan en apoyo de su acción, y el Tribunal proveerá lo que corresponda en derecho.

@@ -1,0 +1,1 @@
+Art 20.- Los convenios hechos en las comparecencias por personas que, según los artículos 3, 4 y 5 del Código, tengan capacidad legal para ejercer actos de comercio, serán ejecutivos entre partes obligadas, como si hubieses hecho en escritura pública, sin admitirse contra ellos más excepción que los de la vía ejecutivo.

@@ -1,0 +1,1 @@
+Art 331°.- Desde la presentación de sus respectivos alegatos hasta que haya espirado el término del encargado, podrán, tanto ele ejecutante como el ejecutado, articular y probar, evacuándose con recíproca citación las diligencias de prueba que soliciten, siendo arregladas a derecho.

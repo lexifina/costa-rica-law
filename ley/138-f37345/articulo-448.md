@@ -1,0 +1,1 @@
+Art 448°.- En la entrega de la cédula de emplazamiento se observarán las formalidades prevenidas en el art 112 de esta ley, haciéndose constar por diligencia a continuación del memorial del demandante.

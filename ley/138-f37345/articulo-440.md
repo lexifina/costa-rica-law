@@ -1,0 +1,1 @@
+Art 440°.-Luego que las partes se presenten a la Corte, se les entregarán los autos por orden con término de seis días precisos a cada una de ellas para el solo efecto de que los defensores tomen la instrucción necesaria de que los defensores tomen la instrucción necesaria para informar al tiempo de la vista.

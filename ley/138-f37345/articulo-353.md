@@ -1,0 +1,1 @@
+Art 353°.- El crédito sobre que se qida el apremio ha de resultar líquido del título que se presente. De lo contrario no tendrá lugar hasta que se haga la liquidación por acuerdo común de las partes, por sentencia judicial, o por árbitros.

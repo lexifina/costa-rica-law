@@ -1,0 +1,1 @@
+Art 212.°.- De las cuentas que presente el depositario de su cuestión, se conferirá traslado a los síndicos, formándose para su examen y calificación ramo separado dependiente de esta pieza, en el con audiencia breve y sumario de ambas partes y el informe del Juez comisario se acordará su aprobación o lo que proceda de derecho sobre reparos que se pongan.

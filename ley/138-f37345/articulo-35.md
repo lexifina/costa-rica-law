@@ -1,0 +1,1 @@
+Artículo 35°.- La persona que litigue por su propio derecho o el apoderado especial que lo haga en nombre ageno, ha de tener domicilio en el lugar donde se sigue el juicio, y en su defecto, nombrará procurador de causas con quien se entiendan las diligencias que ocurran en él, sin lo cual no se permitirá audiencia (1).

@@ -1,0 +1,1 @@
+Art 319°.- El acreedor podrá asistir por sí o por medio de apoderado a la ejecución; y si entendiese no ser suficiente los bienes embargados, o que se han dejado de embargar los necesarios por haberse o ocultando, designado con respecto a estos los que sean, y su paradero y justificando que son propiedad del deudor si se hallaren en poder de otra persona, y ésta lo negare.

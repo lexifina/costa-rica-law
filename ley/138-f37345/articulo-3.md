@@ -1,0 +1,1 @@
+Art 3°.- No se necesita dicha comparecencia para las acciones que se intenten por incidencia de un juicio pendiente en el mismo proceso, y contra personas que hagan parte en él, o hayan sido emplazadas para seguirle.

@@ -1,0 +1,1 @@
+Art 298°.- El procedimiento de los amigables componedores se reducirá a recibir de las partes y examinar los documentos que les entregen, relativos a sus diferencias, y dar su decisión, o laudo, que firmarán entregando una copia autorizado a cada interesado.

@@ -1,0 +1,1 @@
+Art 234.- Las demandas de nulidad o de renovación de los contratos hechos por el quebrado en fraude de los acreedores, se introducirán y sustanciaran según las formas que rijan para el juicio ordinario en el Tribunal a quien competa conocimiento.

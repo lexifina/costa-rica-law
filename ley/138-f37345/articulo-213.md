@@ -1,0 +1,2 @@
+Art 213°.- Las pretensiones de los sindicos para los gastos extraordinarios que ocurran en el caudal de la quiebra, se calificarán instructivamente por el juez comisario, tomando los informes extrajudiciales que crean necesarios, y resolviendo en vista de ellos lo que estime mas ventajoso, a los intereses de la masa, cuando la cantidad que hubiere de invertirse no exceda de cincuenta pesos.
+Pasando de esta cantidad será necesaria la autorización del Tribunal que recaerá con justificación de la necesidad del gasto, y de lo que en su razón informa el mismo Juez comisario.

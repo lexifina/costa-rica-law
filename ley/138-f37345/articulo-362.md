@@ -1,0 +1,1 @@
+Art 362°.- De la decisión del Tribunal de comercio en el procedimiento de apremio no se dará recurso de apelación, quedando a salvo el derecho a las partes para que en juicio ordinario usen del que respectivamente les competa.

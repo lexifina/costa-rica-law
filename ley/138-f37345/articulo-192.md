@@ -1,0 +1,1 @@
+Art 192°.- Para la celebración de la junta general de acreedores se pasará esta pieza de autos con todas las demás en el estado que tengan al Juez comisionario, y se tendrán presentes al tiempo de su celebración para dar aquellos en el acto las explicaciones que pidan sobre lo que resulte de todo lo obrado hasta entonces.

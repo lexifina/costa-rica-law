@@ -1,0 +1,1 @@
+Art 286°.- Concluso el término de prueba, examinarán los árbitros las probanzas hechas, y si hallasen que alguna de las partes hubiere reservado documentos conducentes para la aclaración del derecho deducido por cada una, ordenarán de oficio su presentación o procederán a su reconocimiento a la cuestión del compromiso.

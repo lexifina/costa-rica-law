@@ -1,0 +1,1 @@
+Art 30.- Se tendrá por causa urgente para habilitar los días feriados, el riesgo manifiesto de quedar ilusoria una providencia judicial, o de malograrse una diligencia importante para acreditar el derecho de las partes, por dilatarse la actuación al día no feriado.

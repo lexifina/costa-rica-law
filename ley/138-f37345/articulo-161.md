@@ -1,0 +1,1 @@
+Art 161.- Las demandas contra personas contumaces que no comparezca al juicio sin embargo del emplazamiento, ó que lo abandonen después de haber comparecido, se sustanciarán con los estrados en esta ley, notificándose en persona a los demandados, si constare sus paradero, el auto de prueba y la sentencia definitiva.

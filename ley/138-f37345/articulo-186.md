@@ -1,0 +1,1 @@
+Art 186°.- Al oficio que se despache a la Administración de Correos para la retención de la correspondencia del quebrado, acompañará certificación del auto de quiebras, quedando nota en el expediente de haberse despacho de esta forma.

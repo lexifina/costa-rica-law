@@ -1,0 +1,1 @@
+Art 283°.- De la pretensión y documentos que presente una parte, se dará comunicación a la contraria por término de seis días precisos, y se le admitirán el escrito y documentos que presente en su impugnación.

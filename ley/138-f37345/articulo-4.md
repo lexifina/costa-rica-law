@@ -1,0 +1,1 @@
+Artículo 4° En las demandas contra establecimiento públicos, Corporaciones y Sociedades, la obligación de concurrir a la comparecencia se entenderá en cualquiera persona que tenga la administración de aquel establecimiento

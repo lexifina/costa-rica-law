@@ -1,0 +1,1 @@
+Art 103.- Después del auto en que se declare suficiente la causa de la recusación, podrá el Juez recusado declarar al Tribunal, que se abstiene del conocimiento ulterior del pleito, y en este caso se omitirá la prueba y se le habrá por recusado.

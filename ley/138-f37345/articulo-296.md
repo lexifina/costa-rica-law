@@ -1,0 +1,1 @@
+Art 296°.- Los comerciantes podrán también comprometer la decisión de sus contiendas en amigables componedores que decidan sobre ellas sin sujeción a las formas legales, según su real saber y entender.

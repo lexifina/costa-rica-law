@@ -1,0 +1,1 @@
+Art 418°.- Fuera de los casos de apelación admitida con arreglo a derecho, no acordarán los Tribunales Superiores providencia alguna que interrumpa ni estorbe los procedimientos de los Tribunales de comercio, ni bajo motivo alguno les mandarán remitir los autos ad efectum videndi.

@@ -1,0 +1,1 @@
+Art 216.- Para toda transacción que hayan de hacer los síndicos en los pleitos pendientes sobre intereses de la quiebra, precederá providencia del Tribunal, dada a propuesta del Juez comisario,en que se fijarán las bases de la transacción.

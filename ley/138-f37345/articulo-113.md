@@ -1,0 +1,2 @@
+Art 113.- Cuando la demanda se dirija contra persona que siendo de ageno domilicio no resida de presente en el lugar del juicio, se pasará exhorto requisitorio al Tribunal de comercio o en su defecto al Juzgado de la vecindad del demandado, para que se le haga el emplazamiento, conforme se previene en el artículo anterior.
+El Tribunal fijará, con relación a la distancia del pueblo en que resida el demandado, el término del emplazamiento.

@@ -1,0 +1,1 @@
+Art 182°.- Para el arresto del quebrado se expedirá mandamiento a un alguacil arreglado al párrafo 2° del artículo 984 del Código, en virtud del cual requerirá el ejecutor al mismo quebrado para en acto presente fianza de cárcel.

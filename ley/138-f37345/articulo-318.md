@@ -1,0 +1,2 @@
+Art 318°.- Cuando el título de la ejecución contenga hipoteca especial de algún inmueble, se trabará siempre la ejecución sobre éste, sin perjuicio de que si contuviere además la obligación general de los bienes del deudor, se embargarán también los muebles por el orden prescrito en el art precedente.
+Esta prevención deberá haberse hecho en el auto y mandamiento de ejecución , y no dejarse a la calificación del ejecutor.

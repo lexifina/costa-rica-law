@@ -1,0 +1,1 @@
+Art 377°.- Igualmente quedará ineficaz por el trascurso de los mismos días sin haberse despachado ejecución contra el deudor, la fianza que éste hubiese dado para evitar el embargo provisional y se mandara cancelar, condenando al acreedor en las costas de su otorgamiento y cancelación.

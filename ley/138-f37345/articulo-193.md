@@ -1,0 +1,1 @@
+Art 193°.-De la celebración de la junta en que se observará cuanto se dispone en el art 1002 del Código, se extenderá una acta circunstanciada que se leerá antes de levantarse, la sesión y la firmarán el Juez comisarro, el Secretario, los acreedores concurrentes, y el quebrado o quien le haya representado en ella.

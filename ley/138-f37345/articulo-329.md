@@ -1,0 +1,1 @@
+Art 329°.- De la excepción propuesta por el ejecutado se dará traslado al ejecutante por término de dos días improrrogables; pasados los cuales, y no habiéndolos devuelto, se sacarán los autos de poder de quien los tenga.

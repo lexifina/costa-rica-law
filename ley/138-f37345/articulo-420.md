@@ -1,0 +1,1 @@
+Art 420°.- En las causas de comercio no procederá el recurso de nulidad sino contra las sentencias definitivas de los Tribunales que hayan conocido en primera instancia, interponiéndose ante estos conjuntamente con el de apelación dentro del término prefijado por la ley para este.

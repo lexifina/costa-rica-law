@@ -1,0 +1,1 @@
+Art 292°.- Si con arreglo a los pactos del compromiso causare ejecutoria la sentencia arbitral, se procederá a su ejecución sin admitirse contra ella el recurso de apelación, pero tendrá lugar el de la nulidad, siempre que los árbitros se hayan excedido en lo juzgado de las facultades contenidas en el compromiso.

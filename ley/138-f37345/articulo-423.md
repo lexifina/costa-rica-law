@@ -1,0 +1,2 @@
+Art 423°.- Cuando la nulidad provenga de vicio en el procedimiento, se declarará por nulo lo obrado desde la actuación que de motivo a ella, y se devolverán los autos al Tribunal inferior para que volviendo a sustanciar el proceso desde aquella misma actuación en adelante, pronuncie con arreglo a derecho.
+En este caso, será inexcusablemente condenado en costas el juez, el consultor el Secretario u otro oficial de la administración de justicia que sea responsable de defecto que causare la nulidad del procedimiento.

@@ -1,0 +1,2 @@
+Art 291°.- Si el tercero o el juez avenidor no se conforme con la decisión de ninguno de los árbitros e hiciere voto diferente, se remitirán los autos al Tribunal de comercio para que dirima la discordia según los méritos del proceso, sin nuevas actuaciones.
+En el caso, que el Tribunal no estuviere acorde en su decisión, entrarán en computación los votos singulares de cada uno de sus individuos con los de los jueces árbitros y el tercero, y hará sentencia la decisión del mayor número.

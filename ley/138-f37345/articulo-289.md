@@ -1,0 +1,1 @@
+Art 289.- Estando los árbiros discordes, hará sentencia la decisión del mayor número, y si los votos estuviesen a número igual o no se reuniesen dos votos conformes que hagan mayoría, extenderán cada árbitro su decisión en los mismos autos, y se remitirán estos al tercero en discordia nombrado, o el juez avenidor en su caso para que lo dirima.
