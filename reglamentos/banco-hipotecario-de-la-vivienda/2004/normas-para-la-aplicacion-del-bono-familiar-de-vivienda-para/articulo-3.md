@@ -1,0 +1,1 @@
+3.—Las viviendas que se construyan bajo esta modalidad deberán cumplir con los requerimientos que establece la Ley de Propiedad Horizontal, el Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones, el Reglamento de Construcciones, el Código Sísmico vigente y los Planes Reguladores Cantonales respectivos.

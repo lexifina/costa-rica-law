@@ -1,0 +1,1 @@
+4.—Los proyectos que quieran ser sometidos a este programa de financiamiento, deberán ser presentados al Banco Hipotecario de la Vivienda en su etapa de prefactibilidad, mediante un formulario de precalificación para determinar las condiciones particulares del desarrollo habitacional propuesto.

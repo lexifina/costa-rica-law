@@ -1,0 +1,11 @@
+La Junta Directiva del Banco Hipotecario de la Vivienda en su sesión Nº 02-2004, artículo 2º, del 15 de enero del presente año, tomó el acuerdo Nº 1, que indica lo siguiente:
+"ACUERDO Nº 1
+Considerando:
+Único: Que como respuesta a la necesidad de vivienda determinada por las estadísticas nacionales en áreas urbanas -que según Ley de Planificación Urbana, en su Artículo 1, "Es el ámbito territorial de desenvolvimiento de un centro de población"-, al elevado costo del terreno en esas áreas y a la necesidad de incluir criterios de mejoramiento, regeneración y repoblamiento de dichas áreas, conforme con las directrices establecidas en las Fases I y II del Plan Nacional de Desarrollo Urbano, se requiere incentivar la construcción de viviendas en la modalidad de condominio, bajo el concepto de alta densidad mediana altura, valorando para ello, que este tipo de solución, aunque implica un uso más intensivo del suelo (lo que puede considerarse un ahorro en terreno), conlleva un incremento en los costos de construcción, debido, entre otros factores, a que la planta baja de la construcción debe ser reforzada a fin de que soporte la construcción de las plantas superiores. Por tanto, se acuerda:
+Aprobar las siguientes:
+NORMAS PARA LA APLICACIÓN DEL BONO FAMILIAR DE VIVIENDA PARA VIVIENDA VERTICAL EN CONDOMINIO
+1.—Casos de viviendas existentes en que se propone construir una segunda vivienda en un segundo piso:
+1.1. Un área de lote mínimo de 120 m².
+1.2. Disponibilidad de infraestructura urbana suficiente para atender las demandas del proyecto (calles, aceras, sistema eléctrico, suministro de agua potable, tratamiento de aguas residuales y otros).
+1.3. Donde no exista disponibilidad de red de alcantarillado sanitario, el sistema de tratamiento deberá cumplir los requerimientos mínimos establecidos por el Ministerio de Salud para el tratamiento común de las aguas residuales de las dos viviendas, considerando un mínimo de 5 habitantes por vivienda.
+1.4. Por tanto, deberán cumplirse los requisitos que se refieren al área mínima de lote en cuanto a cobertura, capacidad del tanque séptico, longitud de drenajes (adecuado a la capacidad de infiltración del suelo) y otros requisitos legales y reglamentarios.
