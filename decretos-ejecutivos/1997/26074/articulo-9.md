@@ -1,0 +1,1 @@
+Artículo 9°—Recibida la solicitud con la documentación referida, previa constatación de la información relativa a la institución y a la entidad internacional acreditadorá, se dictará el acto final correspondiente, dentro de los dos meses siguientes a la gestión.
