@@ -1,0 +1,1 @@
+8º—Los ganadores de los premios serán aquellos que presenten a cada administrador el cupón que lo acredite como ganador de un premio y no infrinjan los puntos de nulidad que se citan en el punto Nº 9.

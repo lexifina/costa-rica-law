@@ -1,0 +1,1 @@
+9º—Cualquier alteración en la sincronía de los CUPONES (color, dibujos, letras, etc.), roturas y/o indicio de falsedad, tendrá como consecuencia la ANULACIÓN del premio respectivo; quedando Coopeconpro salvado de toda responsabilidad que el participante desee reclamar.

@@ -1,0 +1,1 @@
+2º—El periodo promocional se establece a partir del 11 de febrero al 30 de abril del 2002, se establece un periodo de prórroga de 15 días calendario para otorgar cualquier premio que durante el periodo establecido de la promoción no haya sido reclamado O HASTA AGOTAR EXISTENCIAS.

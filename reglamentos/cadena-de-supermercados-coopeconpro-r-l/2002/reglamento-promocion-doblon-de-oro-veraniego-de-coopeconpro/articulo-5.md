@@ -1,0 +1,1 @@
+5º—La mecánica del Doblón de Oro Veraniego, se basará en la compra mínima de cinco mil colones y cinco productos patrocinadores; se le estará entregando un cupón que les dará la posibilidad de llevarse un premio, de nuestros productos patrocinadores y donde los premios mayores serán artículos playeros.
