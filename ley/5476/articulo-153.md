@@ -1,0 +1,2 @@
+Artículo 153.- En caso de que los cónyuges se reconcilien, o de que los padres cuyo matrimonio haya sido disuelto contraigan nuevas nupcias entre ellos, recobrará la patria potestad el cónyuge que la hubiere perdido, salvo en el caso de divorcio por la causal prevista en el inciso 3) del artículo 48 en cuanto a los hijos.
+(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 140 al 153)

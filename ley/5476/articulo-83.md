@@ -1,0 +1,1 @@
+Artículo 83.- La calidad de hijo adquirida de conformidad con el artículo 81, surte efecto desde el día de la concepción y aprovecha aun a los descendientes de los hijos muertos al tiempo de la celebración del mismo.

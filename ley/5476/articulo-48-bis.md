@@ -1,0 +1,2 @@
+Artículo 48 bis.- De disolverse el vínculo matrimonial, con base en alguna de las causales establecidas en los incisos 2), 3) y 4) del artículo 48 de este Código, el cónyuge inocente podrá pedir, conjuntamente con la acción de separación o de divorcio, daños y perjuicios de conformidad con el artículo 1045 del Código Civil.
+(Así adicionado por el artículo único de la ley No.7689 de 21 de agosto de 1997)

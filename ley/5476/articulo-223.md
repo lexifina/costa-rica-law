@@ -1,0 +1,3 @@
+Artículo 223.- El tutor cobrará por honorarios, de los rendimientos líquidos anuales de los bienes del menor, sobre los primeros mil colones, un veinticinco por ciento; de más de mil a cinco mil, un veinte por ciento; de más de cinco mil a diez mil, un quince por ciento; y de la suma que pase de diez mil, un diez por ciento.
+Cuando el testador haya fijado la cantidad de honorarios y ésta sea menor que la que el tutor pudiera cobrar para él según la tarifa indicada, tendrá derecho a cobrar la diferencia.
+(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 210 al 223)
