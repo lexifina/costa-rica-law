@@ -14,3 +14,4 @@ Modifica gasto presupuestario del Sistema Nacional de Radio y Televisión Cultur
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-01 | la propia norma |
+| 2 | 2003-06-06 | Decreto Ejecutivo 31234 (2003-06-06) |

@@ -9,4 +9,5 @@ Considerando:
 4º—Que el SINART requiere incorporar recursos en el 2003, dado que dispondrá de mayores ingresos en dicho período para la realización de nuevos proyectos relacionados con las actividades que le han sido encomendadas en el artículo 11 de la Ley N° 6273, del 21 de agosto de 1978 y el Decreto Ejecutivo N° 26916-MP, del 21 de mayo de 1998.
 5º—Que por lo anterior, se hace necesario modificar el gasto presupuestario fijado para el 2003. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase para el Sistema Nacional de Radio y Televisión Cultural, el gasto presupuestario para el período 2003, establecido en el Decreto Ejecutivo N° 30214-H y sus reformas, publicado en La Gaceta N° 54, del 18 de marzo del 2002, fijándolo en ¢782.10 millones.
+Artículo 1º—Modifícase para el Sistema Nacional de Radio y Televisión Cultural, el gasto presupuestario para el período 2003, establecido en el Decreto Ejecutivo N° 30214-H y sus reformas, publicado en La Gaceta N° 54, del 18 de marzo del 2002, fijándolo en ¢861.10 millones.
+(Así Reformado parcial y expresamente por el artículo No. 1 del Decreto Ejecutivo No. 31234 de 06 de junio de 2003, el cual modificó el monto del gasto presupuestario que le corresponde al Sistema Nacional de Rado y Televisión.)
