@@ -1,0 +1,1 @@
+Artículo 4°-Para la atención del mayor gasto que demandará la aplicación de esta ley, el Poder Ejecutivo deberá remitir a la Asamblea Legislativa el correspondiente proyecto de modificación al Presupuesto Ordinario de la República.

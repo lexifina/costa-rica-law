@@ -17,3 +17,6 @@ Guardias Civiles, Directores e Inspectores del Tránsito, Oficiales de
 Investigación y los del Servicio de Inteligencia que quedaren
 inhabilitados para el trabajo a consecuencia del accidente ocurrido en el
 cumplimiento de su deber.
+(NOTA: Tácitamente ampliado por Ley Nº 3081 de 15 de enero de 1963, al
+incluir las personas o familias afectadas por sucesos acaecidos en
+Cartago en noviembre de 1962).
