@@ -14,3 +14,4 @@ Reglamento de otorgamiento de Incapacidades y Licencias a Beneficiarios del Segu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-09-01 | la propia norma |
+| 2 | 2000-03-22 | SINALEVI (sin norma nombrada) |
