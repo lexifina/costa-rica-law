@@ -1,0 +1,2 @@
+Artículo IV.—Programa de Trabajo Anual
+Las Partes formularán un Programa de Trabajo Anual que formará parte integrante del presente Acuerdo. El Programa comprenderá los proyectos específicos a desarrollar, los cuales deberán incluir la siguiente información : autoridades responsables, dependencias participantes, objetivos específicos, resultados esperados, programa de actividades, presupuestos e impacto de la cooperación a desarrollar.

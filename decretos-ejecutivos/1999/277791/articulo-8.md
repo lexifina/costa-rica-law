@@ -1,0 +1,6 @@
+Artículo VIII.—Disposiciones Finales
+El presente Acuerdo entrará en vigor a partir de la fecha de su firma y tendrá una vigencia de dos años, prorrogables por períodos de igual duración, previa evaluación de los resultados obtenidos en los programas conjuntos, mediante notificación escrita, a menos que una de las Partes comunique a la Otra por escrito, con seis meses de antelación, su decisión de darlo por terminado.
+El presente Acuerdo podrá ser modificado por mutuo consentimiento de las Partes, formalizado por escrito, especificando la fecha de su entrada en vigor.
+La terminación anticipada del presente Acuerdo no afectará el desarrollo y conclusión de los proyectos que hayan sido formalizados durante su vigencia.
+Firmado en la ciudad de San José, Costa Rica, el quince de enero de mil novecientos noventa y nueve, en dos ejemplares originales en idioma español, siendo ambos textos igualmente auténticos.
+Por el Ministerio de Economía Industria y Comercio y Fomento de la República de Costa Rica Samuel Guzowski Rose Ministro | Por la Secretaría Técnica de la Comisión Nacional de Desregulación de Comercio y Fomento Industrial del Gobierno de los Estados Unidos Mexicanos Herminio Blanco Mendoza Secretario
