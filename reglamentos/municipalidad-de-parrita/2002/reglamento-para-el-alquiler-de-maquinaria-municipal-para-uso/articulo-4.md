@@ -1,0 +1,1 @@
+Artículo 4º—El alquiler se cobrará por horas y el precio de la misma será acorde con la maquinaria que se alquile, el costo por hora de cada equipo será fijado por el Concejo Municipal, el cual deberá realizar una revisión anual del costo, el informe de los costos deberá ser presentado por el Alcalde Municipal, y si los costos aumentan la tarifa aumentará en la misma proporción.

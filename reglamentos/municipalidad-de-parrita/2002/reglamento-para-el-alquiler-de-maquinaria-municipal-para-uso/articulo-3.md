@@ -1,0 +1,1 @@
+Artículo 3º—El alquiler de la maquinaria municipal no tiene fines de lucro, y se podrá realizar siempre y cuando no haya interferencia con la labor municipal, la Municipalidad de Parrita se reserva el derecho de suspender los trabajos de la maquinaria a particulares cuando se requiera atender asuntos municipales urgentes o causados por fuerza mayor o fortuitos.

@@ -1,0 +1,1 @@
+Artículo 8º—Los particulares y asociaciones de todo tipo que soliciten la reparación de sus caminos privados o campos privados de aterrizajes o cualquier otra labor que requiera de la maquinaria municipal, cancelarán la tarifa establecida en los artículos 4º y 5º de este Reglamento.

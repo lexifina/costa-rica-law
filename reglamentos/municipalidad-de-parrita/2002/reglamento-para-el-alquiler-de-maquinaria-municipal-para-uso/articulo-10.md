@@ -1,0 +1,1 @@
+Artículo 10.—Cuando se realiza la obra, y las horas canceladas no son suficientes el Alcalde podrá aprobar más tiempo siempre y cuando así lo solicite el usuario, y se procederá a continuar con las obras después de que el solicitante haya realizado el pago.

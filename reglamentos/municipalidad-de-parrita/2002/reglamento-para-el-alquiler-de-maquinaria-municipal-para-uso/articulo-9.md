@@ -1,0 +1,1 @@
+Artículo 9º—Las solicitudes de alquiler de maquinaria municipal se debe hacer ante el Alcalde Municipal por escrito, quien será el que apruebe la misma y se debe incluir en la programación que para tales efectos se realiza semanalmente, una vez aprobada, el solicitante deberá cancelar ante la Caja Municipal el monto correspondiente por el costo total de lo que solicitó.

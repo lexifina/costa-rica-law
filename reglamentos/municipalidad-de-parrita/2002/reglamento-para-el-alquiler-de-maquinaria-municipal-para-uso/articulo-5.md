@@ -1,0 +1,1 @@
+Artículo 5º—Para fijar el precio se tomará en cuenta el artículo 4º de este Reglamento y las tarifas establecidas por el Ministerio de Obras Públicas y Transportes, para equipos de iguales condiciones o por lo menos con similares características, de no contar con estos costos se tomará el precio que para tal efecto tiene la empresa privada.

@@ -1,0 +1,1 @@
+Artículo 2º—El fin de este servicio es brindar apoyo a los vecinos, empresarios agricultores y todo aquel que requiera el uso de maquinaria municipal, para realizar labores de todo tipo, sean estos caminos, zanjas, derribar casas, escombros y otros de los cuales tengamos capacidad de alquilar.

@@ -1,0 +1,1 @@
+Artículo 6º—Las organizaciones comunales cuando utilicen la maquinaria municipal en caminos públicos para su reparación, aportarán el combustible y el pago de horas extras, y si el trabajo se hace en días no laborables aportarán el 50% del costo total que será la suma de toda la maquinaria municipal utilizada, por las horas de trabajo.
