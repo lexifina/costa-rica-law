@@ -1,0 +1,1 @@
+Artículo 5º.- El comprobante que el Banco extienda dando fe de que ha recibido los depósitos, releva al patrono o a la Institución depositantes, en el tanto pagado, de toda responsabilidad futura respecto de sus obligaciones.
