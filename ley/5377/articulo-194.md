@@ -1,0 +1,3 @@
+Deberes y facultades de los asistentes
+Artículo 194.- Los defensores que asistan a los actos de instrucción no podrán hacer signos de aprobación o desaprobación y en ningún caso tomarán la palabra sin expresa autorización del juez a quien deberán dirigirse cuando el permiso les fuere concedido; podrán proponer medidas, formular preguntas que no insinúen respuestas, hacer las observaciones que estimen convenientes o pedir que se haga constar cualquier irregularidad.
+La resolución será siempre irrecurrible. Las partes, funcionarios, empleados y demás personas que intervengan en el juicio deberán guardar secreto sobre los actos y constancias de la instrucción.

@@ -1,0 +1,2 @@
+Pruebas para mejor proveer
+Artículo 387.- El tribunal podrá ordenar, aun de oficio, la recepción de cualquier prueba, si en el curso del debate resultaren indispensables o manifiestamente útiles para esclarecer la verdad. También podrá citar a los peritos si sus dictámenes resultaren insuficientes; las operaciones periciales necesarias se practicarán acto continuo en la misma audiencia, cuando fuere posible.

@@ -1,0 +1,6 @@
+Lectura de las declaraciones testificales
+Artículo 384.- Las declaraciones testificales recibidas de acuerdo con las normas de la instrucción, sólo se podrán leer, bajo pena de nulidad, en los siguientes casos:
+1) Si el Ministro Público y las partes manifestaran su conformidad (351) o lo consintieren cuando no comparezca el testigo cuya citación se ordenó; 2) Si hubiere contradicciones entre ellas y las prestadas en el debate, o fuere necesario ayudar la memoria del testigo;
+3) Si el testigo hubiera fallecido, estuviere ausente del país, se ignorare su residencia o se hallare inhabilitado por cualquier causa para declarar; y
+4) Si el testigo hubiera declarado por medio de exhorto o informe, siempre que se hubiese ofrecido el testimonio, o de conformidad a los artículos 353, 234 y 381.
+(La Sala Constitucional mediante resoluciones N° 3990 del 15 de diciembre de 1992 y N° 139 del 12 de enero de 1993, declaró inconstitucional “…la actuación que por jurisprudencia vienen realizando los tribunales del país, de incorporar al debate la declaración rendida en la instrucción, por una de las personas cobijadas por la regla del artículo 36 de la Constitución Política, cuando ya en la etapa de juicio se acoge a su derecho de abstenerse de declarar…” Caso contrario “…en los casos en que no conste dicha oposición…dicha incorporación sí resulta pertinente.”)

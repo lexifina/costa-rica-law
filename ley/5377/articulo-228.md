@@ -1,0 +1,5 @@
+Otros casos
+Artículo 228.- También podrán abstenerse de testificar en contra del imputado sus parientes colaterales hasta el tercer grado de consanguinidad o afinidad, su tutor o pupilo.
+El vínculo entre tutor y pupilo se equipara al parentesco de segundo grado.
+(Texto Modificado por Resolución de la Sala Constitucional Nº 264-91 de las 14:30 horas del 6 de febrero de 1991)
+(La Sala Constitucional mediante resoluciones N° 1155 del 01 de marzo de 1994 y 6798 del 23 de noviembre de 1994, estableció que: “se debe entender extendida la garantía del artículo 36 de la Constitución a las familias de hecho, de la misma forma que protege a las constituidas por vínculo legal”; además señaló que: “…el derecho de abstenerse de declarar que contempla el presente articulo comprende a los familiares, en tercer grado inclusive, de consanguinidad o afinidad, cuyas relaciones de parentesco surjan de una relación de hecho que reúna las características de estabilidad, publicidad, cohabitación y singularidad”.)

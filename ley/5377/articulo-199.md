@@ -1,0 +1,2 @@
+Duración y prórroga
+Artículo 199.- La instrucción deberá concluirse en el término de dos meses a contar de la declaración del imputado. Si resultare insuficiente, el juez solicitará prórroga al Tribunal de Apelación, el que podrá acordarla hasta por otro tanto, según las causas de la demora y la naturaleza de la investigación. En los casos de suma gravedad y de muy difícil investigación, la prórroga podrá exceder excepcionalmente de dicho plazo, no pudiendo sobrepasar de otros dos meses.

@@ -1,0 +1,2 @@
+Recursos
+Artículo 309.- Cuando fuere dictado por el Juez de Instrucción el auto que conceda o niegue la excarcelación, será apelable por el Ministerio Público o el imputado, dentro del término de 24 horas. El recurso no tendrá efecto suspensivo, sino cuando la resolución deba ser de acuerdo con el artículo siguiente: interpuesta la apelación, se remitirá sin trámite alguno al Tribunal de Apelaciones el legajo de excarcelación y el expediente principal.
