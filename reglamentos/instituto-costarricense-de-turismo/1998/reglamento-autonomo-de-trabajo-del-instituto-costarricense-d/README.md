@@ -18,3 +18,4 @@ Reglamento Autónomo de Trabajo del Instituto Costarricense de Turismo
 | 3 | 2002-05-02 | Ley 8 |
 | 4 | 2003-07-22 | Reglamento 5256 (2003-07-22) |
 | 5 | 2004-04-20 | Reglamento 5300 (2004-04-20) |
+| 6 | 2004-06-29 | Reglamento 5313 (2004-06-29) |
