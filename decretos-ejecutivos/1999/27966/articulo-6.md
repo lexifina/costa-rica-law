@@ -1,0 +1,1 @@
+Artículo 6°—Asignación de vehículos: Únicamente podrán ser asignados vehículos al Ministro y Viceministros, por la modalidad discrecional que faculta la Ley. Los vehículos de uso administrativo o de seguridad no podrán ser asignados a funcionario o empleado determinado.

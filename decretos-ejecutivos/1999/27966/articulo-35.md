@@ -1,0 +1,1 @@
+Artículo 35.—Retiro y distribución de los cupones del combustible: La U.T.A.S.. dentro de su P.C.V.O.. asignara un responsable para el retiro de los cupones ante la Refinadora Costarricense de Petróleo, así como para la distribución de los mismos y la tramitación de las reservas correspondientes.

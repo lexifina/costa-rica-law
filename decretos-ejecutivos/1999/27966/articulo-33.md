@@ -1,0 +1,1 @@
+Artículo 33.—Prohibición del uso de vehículos oficiales en actividades particulares: No se podrán utilizar vehículos del Ministerio para actividades que no sean propias de la Institución o Gobierno, por lo que queda prohibida la utilización de los mismos en actividades político electorales.

@@ -1,0 +1,1 @@
+Artículo 44.—Informe del accidente: La U.T.A.S. analizara todo accidente de transito en que participe un vehículo del Ministerio a su cargo, del cual rendirá un informe con la recomendación que proceda a la Dependencia respectiva, dentro los tres días hábiles siguientes a la fecha del percance. Cada Dependencia se encargara de otorgar el debido proceso a los funcionarios.

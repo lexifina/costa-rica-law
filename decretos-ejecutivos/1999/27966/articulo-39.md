@@ -1,0 +1,1 @@
+Artículo 39.—Informe del accidente: La U.T.A.S. analizara todo accidente de tránsito en que participe un vehículo del Ministerio a su cargo, del cual rendirá un informe con la recomendación procedente a la Dependencia respectiva, dentro los tres días hábiles siguientes a la fecha del percance. Cada Dependencia se encargará de otorgar el debido proceso a los funcionarios.

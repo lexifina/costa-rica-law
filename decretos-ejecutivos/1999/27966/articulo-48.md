@@ -1,0 +1,1 @@
+Artículo 48.—Sanciones: Las infracciones al presente Reglamento serán sancionados disciplinariamente de acuerdo a la normativa vigente en el Reglamento Autónomo de Servicios del Ministerio, Código de Trabajo. Estatuto del Servicio Civil, su Reglamento y leyes conexas.

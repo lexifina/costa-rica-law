@@ -1,0 +1,1 @@
+Artículo 29.—Prohibición de intercambio de accesorios: Los conductores y choferes de vehículos institucionales no podrán hacer intercambios de accesorios entre las Unidades, si no cuentan con la aprobación del P.C.V.O.

@@ -1,0 +1,2 @@
+Artículo 25.—Protección a choferes y conductores: El Ministerio otorgará como protección a sus choferes y conductores, durante el ejercicio de sus labores, las pólizas de riesgos del trabajo y las relativas a vehículos según las disposiciones de la Ley de Tránsito.
+Para decidir sobre coberturas adicionales en la pólizas de vehículos, la Administración del Ministerio deberá efectuar un análisis económico- financiero y determinar la conveniencia de las mismas.

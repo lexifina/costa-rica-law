@@ -1,0 +1,4 @@
+Artículo 13.—Solicitudes de uso: Las solicitudes para utilizar los vehículos de uso administrativo, deberán presentarse ante el responsable designado del P.C.V.O. Dentro del horario normal, se utilizara la fórmula diseñada para esos efectos (zarpe) y fuera del horario normal, será necesario además utilizar el documento conocido como tarjeta. Deberán ser firmadas por los responsables designados a saber :
+- Ministro, Viceministros. Oficial Mayor y Director Administrativo, Directores de Programa, y/o a quienes estos designen.
+En caso de gira o misión especial esta debe estar debidamente autorizada por la Dirección Administrativa de la Dependencia de que se trate. Tal solicitud deberá contener los siguientes datos:
+Nombre y apellidos del conductor o chofer y del o los usuarios acompañantes, número de placa, fecha y hora de salida, finalidad del servicio.
