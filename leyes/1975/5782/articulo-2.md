@@ -1,14 +1,8 @@
 CAPITULO II
 De los Beneficiarios
-Artículo 2º.- Tendrán derecho a los beneficios que concede el inciso
-a) del artículo anterior, por su orden:
-a) La viuda o viudo del afiliado directo fallecido, la compañera o
-compañero;
-b) Los hijos;
-c) Los padres;
-d) Los hermanos u otra persona señalada por el afiliado directo como su
-beneficiario; y
-e) Los familiares del afiliado directo que sólo tuviera un año o menos
-de servicios o de cotización voluntaria como retirado, sólo tendrán
-derecho a que se les otorgue el auxilio indicado en el inciso c) del
-artículo 1º.
+ARTICULO 2º.- Tendrán derecho a los beneficios que concede el
+artículo anterior, la persona o las personas que designe el afiliado
+directo en la póliza que la Sociedad de Socorro Mutuo de Comunicaciones
+deberá confeccionar para los efectos de esta ley.
+(Así reformado por el artículo 14, inciso 19), de la Ley de
+Presupuesto No. 7018 de 20 de diciembre de 1985)
