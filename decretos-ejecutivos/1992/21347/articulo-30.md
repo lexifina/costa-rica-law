@@ -1,0 +1,1 @@
+Artículo 30.—Los Lineamientos aquí establecidos son de carácter vinculante, su incumplimiento acarreara la aplicación de las sanciones establecidas en el Reglamento de la Ley de Creación de la Autoridad Presupuestaria.

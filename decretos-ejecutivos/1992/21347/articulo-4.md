@@ -1,0 +1,1 @@
+Artículo 4°—No se podrán adquirir compromisos si no se cuenta con el contenido presupuestario respectivo. Asimismo, la ejecución de los gastos debe ajustarse al comportamiento que presenten los ingresos en el ejercicio correspondiente.

@@ -1,0 +1,1 @@
+Artículo 18.—En casos de extrema urgencia (emergencia nacional), la Autoridad Presupuestaria analizara la solicitud del exceso del gasto comente de la Institución, previo estudio de la Secretaría Técnica.

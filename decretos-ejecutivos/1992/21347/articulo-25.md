@@ -1,0 +1,1 @@
+Artículo 25.—Cuando se incluyan gastos de inversión en el presupuesto Ordinario y sus Modificaciones, se deberá suministrar un detalle de los gastos a ejecutar y objetivos de cada subpartida relacionándola con los objetivos y metas propuestas en el plan operativo anual o plan de trabajo.

@@ -1,0 +1,3 @@
+Artículo 12.—Cuando el crédito es externo, la autoridad Presupuestaria previamente a extender su dictamen, lo someterá a estudio del Consejo Nacional de Financiamiento Externo.
+La Dirección de Crédito Público del Ministerio de Hacienda, suministrará a la Autoridad Presupuestaria y a MIDEPLAN, la información de los créditos externos en vigencia de la Institución solicitante.
+Con el propósito de que esta información se mantenga actualizada, todos los Ministerios, Entidades o Empresas Públicas deberán suministrar trimestralmente in- formes a la Dirección de Crédito Público, sobre dichos créditos (artículo 4 –decreto N° 20922-H-MIDEPLAN).

@@ -1,0 +1,1 @@
+Artículo 21.—Las Instituciones y Empresas del Sector Público que no tengan presupuesto de operación, inversión y caja, incluirán los gastos relacionados con Proyectos de Inversión en programa (s) separado (s) de tal manera que se puedan identificar con facilidad.

@@ -1,0 +1,3 @@
+Artículo 2°—Las Instituciones y Empresas Públicas deberán presentar a la Autoridad Presupuestaria y a Mideplan copia de sus presupuestos para el siguiente ejercicio económico a más tardar el 30 de setiembre de 1992, bajo la modalidad de Presupuesto por Programas.
+La Autoridad Presupuestaria por medio de su Secretaría Técnica, estudiará los presupuestos en un término de tres meses, a partir de su recibo y podrá rebajar las partidas que considere superfluas y/o no prioritarias.
+La Contraloría General de la República ordenará las rebajas en los presupuestos. para que se ajuste a lo dispuesto por la Autoridad Presupuestaria, a través de su Secretaría Técnica, según lo establece el Artículo 4 de la Ley No 6955 y artículo 10 de su Reglamento.

@@ -1,0 +1,2 @@
+Artículo 9°—A más tardar el 28 de febrero de 1993, se entregará a la Secretaría Técnica de la Autoridad Presupuestaria y a MIDEPLAN, la liquidación del presupuesto del ano 1992, según lo establece el artículo 13 de la Ley No 6821.
+Se acompañará una justificación del comportamiento de las subpartidas que muestran una variación significativa, incluyendo diesel, gasolina, alquiler, energía eléctrica, telecomunicaciones, agua, gastos de viaje y de transportes dentro y fuera del País.

@@ -1,0 +1,1 @@
+Artículo 7°—La Secretaría Técnica de la Autoridad Presupuestaria tramitará un máximo de diez modificaciones externas al presupuesto vigente, durante el período comprendido entre el 1° de enero y el 30 de setiembre de 1993, respetando las especificaciones señaladas por la Contraloría General de la República.

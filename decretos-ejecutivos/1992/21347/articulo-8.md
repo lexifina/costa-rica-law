@@ -1,0 +1,2 @@
+Artículo 8°—La Autoridad Presupuestaria o su Secretaría Técnica analizará y dictaminará sobre todos los rubros de los presupuestos y modificaciones de los entes cubiertos por Lineamientos Específicos, a la vez deberán cumplir con lo que establece el artículo 9" de la Ley N° 5525 de MIDEPLAN.
+Queda igualmente facultada para solicitar a las Auditorías Internas las certificaciones que considere necesarias.

@@ -1,0 +1,1 @@
+Artículo 20.—La Secretaría Técnica de la Autoridad Presupuestaria se pronunciará en los proyectos de inversión incluidos en el presupuesto ordinario y sus modificaciones cuando se cumpla con lo establecido en el artículo anterior.
