@@ -1,0 +1,1 @@
+Transitorio II.—Se exceptúa a las organizaciones cooperativas de la productividad establecida en el aparte I) del inciso a) del artículo 2° del decreto ejecutivo N° 16563-MAG, reformado por el artículo 6° del presente decreto. Dicha excepción tendrá vigencia por el plazo de dos años, contados a partir de la publicación de este decreto.

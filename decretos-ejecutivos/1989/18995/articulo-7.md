@@ -1,0 +1,4 @@
+Artículo 7°- Se modifica el artículo 8° del decreto ejecutivo N° 16563-MAG de setiembre de 1985, que a su vez fue modificado por el artículo 17 del decreto ejecutivo N° 17057-P-MAG de 3 de junio de 1986, para que en adelante se lea así:
+“Artículo 8°.- El período en que estarán vigentes los anteriores incentivos fiscales será de ocho años, contados a partir de la primera exportación.
+Para los efectos correspondientes al presente artículo, ASBANA podrá dividir en un máximo de cuatro secciones cada finca, de manera que cada sección finalice su período de disfrute de los incentivos en diferentes fechas, de acuerdo con el inicio de sus exportaciones.
+Las fincas o empresas que al cumplir el período de ocho años se encuentren en dificultades financieras, por causa de fenómenos naturales, podrán gozar de beneficios fiscales de este programa por un año más, siempre que ASBANA y el Ministerio de Hacienda así lo aprueben.”

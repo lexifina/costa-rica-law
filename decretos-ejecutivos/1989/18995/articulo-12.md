@@ -1,0 +1,4 @@
+Artículo 12.—Se reforman el artículo 1° y el inciso a) del artículo 9° del decreto ejecutivo N° 17890-H-MAG de 29 de setiembre de 1987, para que en el futuro establezcan lo siguiente:
+"Artículo 1°—El Fondo de Contingencias Bananeras. El Fondo de Contingencias se formará con US$ 0,01 que, de conformidad con el artículo 11 del decreto ejecutivo N° 16563-MAG de 24 de setiembre de 1985, donarán los productores de banano por cada caja exportada; y con la suma que corresponda al 50% del impuesto que se pagare por el número de cajas de banano que se exportaren más allá de las metas fijadas por el artículo 59 del decreto ejecutivo N° 16564-P-H- MEC de 24 de setiembre de 1985."
+"Artículo 9"— ...
+a) Los ingresos que provienen de los productores, resultarán de la multiplicación del número de cajas exportadas de cada productor por la suma de US$0,01."
