@@ -1,0 +1,1 @@
+Artículo 9º.-Para que cada actividad sea ordenada como lo requiere la nueva organización aduanera la Dirección General pondrá en práctica cualquier complemento de las funciones que señala este decreto, mediante resolución.

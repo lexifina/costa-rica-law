@@ -1,0 +1,1 @@
+Artículo 7º.-Por el cumplimiento de sus objetivos y funciones, el Departamento de Estudio y Control Arancelario, contará con las secciones siguientes: Sección de Revisión de Aforo y Sección de Clasificación Arancelaria.
