@@ -1,0 +1,3 @@
+Cláusula segunda: De la solicitud:
+Quien solicite a Recope la transferencia de recursos financieros, deberá presentar ante la Gerencia de Administración y Finanzas una solicitud formal suscrita por el jerarca o el representante legal, en la que se deberá describir claramente el proyecto que se desea financiar, su cronograma de ejecución y su vinculación con los objetivos fijados por ley a Recope, señalar la ley que autoriza a esta empresa pública a realizar tal transferencia, y presentar un presupuesto de gastos justificado técnica y financieramente.
+Si el solicitante fuera una entidad con personería jurídica propia, deberá adjuntar con su solicitud certificación notarial de la personería del representante legal, y de la fotocopia de la cédula jurídica.
