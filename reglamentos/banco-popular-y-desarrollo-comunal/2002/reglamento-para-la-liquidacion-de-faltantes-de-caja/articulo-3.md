@@ -1,0 +1,2 @@
+Artículo 3º—Semestralmente, cada unidad administrativa liquidará y distribuirá la suma señalada en el indicado artículo 41, con corte en los meses de junio y diciembre. El monto resultante se pagará en la primera quincena de julio y enero de cada año, mediante depósito en la cuenta de ahorros del empleado, o bien mediante comprobante de pago.
+En dicha liquidación no se tomarán en cuenta, en ningún caso, los sobrantes de cajas que los empleados hayan tenido, los cuales no podrán ser objeto de compensación, debiendo ingresar al Banco Popular.

@@ -1,0 +1,5 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+La Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal, en sesión ordinaria Nº 4017, celebrada el 25 de junio del 2002, acordó por unanimidad:
+"1º—Aprobar el Reglamento para la Liquidación de Faltantes de Caja, a saber:
+REGLAMENTO PARA LA LIQUIDACIÓN DE FALTANTES DE CAJA
+Artículo 1º—El presente Reglamento se dicta con fundamento en los artículos 24 b. y 25 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, y regula el manejo y distribución de los recursos señalados en el artículo 41 de la Tercera Reforma a la Tercera Convención Colectiva del Banco Popular y de Desarrollo Comunal, destinados a cubrir las diferencias de caja de los empleados indicados en ese artículo, tales como cajeros y oficiales en servicios y operaciones bancarias I y II, así como todos los que por acto motivado y por escrito, el Director del Macroproceso de Captación, el Gerente de la Sucursal o el Coordinador de la Oficina Periférica que corresponda así lo determinen, cuando entre sus funciones estén las indicadas en dicha norma.
