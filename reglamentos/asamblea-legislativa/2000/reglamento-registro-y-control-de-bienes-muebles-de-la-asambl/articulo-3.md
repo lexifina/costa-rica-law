@@ -1,0 +1,2 @@
+Artículo 3.—Concepto de bienes muebles. Se consideran bienes muebles, todos aquellos activos adquiridos por una institución o los provenientes de donaciones, tales como maquinaria, mobiliario y el equipo utilizado en la ejecución de las funciones y actividades conexas.
+En la Asamblea Legislativa, estos bienes están destinados a diversas actividades en la División Administrativa, División Legislativa. Auditoria Interna, Asesoría Legal. Departamento de Relaciones Públicas y Prensa, fracciones políticas y Organización y Métodos.

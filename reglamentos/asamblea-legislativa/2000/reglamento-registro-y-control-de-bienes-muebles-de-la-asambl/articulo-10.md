@@ -1,0 +1,2 @@
+Artículo 10.—Diferencia en inventarios. Todo jefe de departamento informará a la Dirección Ejecutiva las diferencias encontradas en su inventario; las cuales serán analizadas por ambos y solicitarán a los Departamentos Financiero y de Proveeduría (Unidad de Bienes Muebles) los ajustes correspondientes. Se adjuntarán los documentos requeridos y la respectiva justificación.
+El Departamento Financiero analizará las solicitudes por ajuste y si son procedentes, realizara los ajustes contables, emitirá un nuevo listado mecanizado e informara al solicitante.

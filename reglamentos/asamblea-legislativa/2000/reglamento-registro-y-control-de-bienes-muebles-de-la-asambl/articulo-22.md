@@ -1,0 +1,8 @@
+CAPÍTULO IV
+Recepción y registro de bienes muebles
+Artículo 22.—Trámite para la recepción de bienes muebles. Una vez adjudicada la compra, el proveedor entregara el bien a la Unidad de Control de Bienes Muebles del Departamento de Proveeduría, quien procederá a:
+a) Revisarlo cualitativa y cuantitativamente contra la orden de compra y la factura, a fin de determinar si se ajusta a las características señaladas en esos documentos.
+b) Sellar y firmar el recibo de entrada para que ingrese al inventario de activos y se proceda a su identificación. Asimismo, recibirá la documentación de garantía a la Unidad de Bienes Muebles y remitirá copia a la Unidad de Mantenimiento para su control y seguimiento.
+c) La Unidad de Bienes Muebles identificara el bien conforme lo establecido. Además, confeccionará el "Vale de Entrada" e inmediatamente, lo registrara en la fórmula No 015 y su ingreso en el "Sistema de Control de Bienes Muebles.
+d) La Unidad de Control de Bienes Muebles entregara el bien mueble, debidamente identificado, al departamento u oficina solicitante, por medio de la fórmula No 016 "Solicitud a la Proveeduría".
+e) Es responsabilidad del funcionario que reciba el bien, confrontar contra la orden de pedido, para verificar que cuenta con las características solicitadas. De igual manera, es su obligación revisar el bien y verificar su perfecto estado, ya que si por falta de cuidado. negligencia o cualquier otra acción culposa, no lo revisa correctamente, o bien lo recibe con defectos o sin que cuente con las características acordadas, será personalmente responsable por las pérdidas en que pueda incurrir la institución. Lo anterior sin perjuicio de la responsabilidad que eventualmente pueda recaer sobre la compañía proveedora.

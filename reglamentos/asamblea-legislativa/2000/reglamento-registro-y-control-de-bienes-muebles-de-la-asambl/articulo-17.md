@@ -1,0 +1,7 @@
+Artículo 17.—Administración, custodia, uso. destino y mantenimiento de los bienes muebles. Responsabilidades por el uso de bienes muebles:
+a) Al retirarse del cargo los funcionarios deben presentar a su superior inmediato, un inventario detallado de los activos que hasta ese momento han estado bajo su responsabilidad.
+Si el inventario y la entrega fueran correctos, se hará constar así; de lo contrario, los funcionarios de la Unidad de Bienes Muebles. deberán hacer las observaciones respecto a faltantes o al estado de los bienes. En ambos casos firmaran ellos y quién hizo la entrega.
+b) Cuando una de las personas mencionadas en el inciso anterior, cese en sus funciones o sea trasladada a otro empleo o sitio, está en la obligación de devolver, por inventario, todos los bienes que tenía a su cargo.
+c) Al retirarse de sus funciones, los diputados deben presentar a la Dirección Administrativa de su fracción, un inventario detallado de los activos que hasta ese momento han estado bajo su responsabilidad.
+Si el inventario y la entrega fueran correctos, se hará constar así; de lo contrario, los encargados de la Unidad de Bienes Muebles. deberán revisar los inventarios y harán las observaciones respecto a fallantes o estado de los bienes. En ambos casos firmará el diputado y quien haga la entrega.
+d) El Directorio Legislativo o la Dirección Ejecutiva, en lo que le compete, autorizará el préstamo externo de activos y notificara al Departamento de Asesoría Legal para que confeccione el convenio de préstamo respectivo.

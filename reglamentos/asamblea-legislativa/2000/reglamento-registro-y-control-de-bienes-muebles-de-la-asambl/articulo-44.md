@@ -1,0 +1,2 @@
+Articulo 44.—Depreciaciones. Este proceso estara a cargo del Departamento Financiero por medio de la Sección de Contabilidad. Se establecerá una depreciación lineal, con base en los factores que determine la Dirección General de Tributación Directa del Ministerio de Hacienda.
+El gasto de depreciación se calculará y registrara mensualmente, con base en los saldos mensuales de los activos; para ello, se utilizarán los sistemas computarizados o manuales disponibles.

@@ -1,0 +1,4 @@
+Artículo 39.—Mantenimiento y restauración de obras de arte. Las jefaturas que tengan en custodia obras de arte, deben tomar las previsiones para detectar oportunamente su deterioro o daño. Y comunicarlo de inmediato a la Unidad de Bienes Muebles, para que se proceda a solicitar su mantenimiento o restauración.
+La Institución contratará los servicios de mantenimiento, conservación y restauración de esos bienes, según normas contempladas en el Reglamento de la Contratación Administrativa.
+El trabajo será ejecutado según lo estipulado en el contrato escrito y firmado por las partes interesadas. En este se especificará la fecha de inicio, finalización, detalles sobre los arreglos realizados y su valor.
+El recibo de conformidad del trabajo contratado lo hará la Comisión Asesora de Obras de Arte de la Asamblea Legislativa, quienes completarán el acta respectiva con las firmas de los responsables, conforme con la Ley de Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 6.—Control de bienes muebles. Cada departamento. unidad u oficina llevara un control de los bienes muebles asignados, por funcionario, ubicación, código, número de placa, fecha de recibido o asignación y descripción completa de acuerdo con el catalogo general de suministros, que para ese efecto suministrara la Unidad de Bienes Muebles.

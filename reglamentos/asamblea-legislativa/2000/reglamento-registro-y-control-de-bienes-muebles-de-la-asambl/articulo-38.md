@@ -1,0 +1,1 @@
+Artículo 38.—Préstamo de obras de arte a terceros. Si las obras de arte son trasladadas en calidad de préstamo, se cumplirá con lo establecido en el inciso 13.6 del articulo 13 del Manual de normas y procedimientos para la Administración y control de bienes muebles.

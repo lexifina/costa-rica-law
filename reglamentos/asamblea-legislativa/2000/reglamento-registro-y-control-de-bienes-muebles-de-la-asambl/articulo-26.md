@@ -1,0 +1,1 @@
+Artículo 26.—Reparación de equipo especial. Cuando se requiera reparar equipo de cómputo o electrónico, se debe usar la fórmula No 001 Solicitud de Reparación" y su respectiva orden de salida. También se podrá recurrir a talleres particulares especializados, inscritos como proveedores, conforme con la Ley de Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 35.—Entrega de obras de arte. La entrega de la obra de arte debe hacerse en presencia de por lo menos dos miembros de la Comisión Asesora de Obras de Arte de la Asamblea Legislativa. Se dejará constancia escrita de su autenticidad y estado físico, además, deberá constar la firma de recibido del jefe del departamento donde se asigna.

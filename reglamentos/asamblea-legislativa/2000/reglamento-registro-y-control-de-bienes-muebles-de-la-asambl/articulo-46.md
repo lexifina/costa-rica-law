@@ -1,0 +1,2 @@
+Articulo 46.—Modificación o restauración de un bien mueble. La Unidad de Mantenimiento comunicara al Departamento Financiero la modificación o restauración de un bien mueble, para que lo actualice con sus nuevas características, lo evalúe de acuerdo con su nueva condición y establezca los ajustes contables necesarios.
+Idéntico procedimiento debe aplicarse a los equipos de transporte, cómputo, maquinaria, mobiliario, etc.

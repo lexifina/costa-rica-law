@@ -1,0 +1,1 @@
+Artículo 45.—Revaluación. El proceso de revaluación estará a cargo de la Unidad de Mantenimiento o la Unidad con capacidad técnica para hacerlo, quien lo comunicará al Departamento Financiero para efectos de su registro contable, utilizando la fórmula No 010 "Reporte de Reparación y Aumento de Vida Útil".

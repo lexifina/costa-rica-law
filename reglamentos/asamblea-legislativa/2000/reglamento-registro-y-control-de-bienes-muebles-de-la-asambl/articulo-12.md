@@ -1,0 +1,4 @@
+Artículo 12.—Traslado o traspaso interno de activos. Si se requiere trasladar bienes entre departamentos, unidades, oficinas y edificios, se debe cumplir con el siguiente procedimiento:
+a) El encargado de activos del lugar llenara la fórmula No 012 "Autorización para Traslado Interno de Activos"; la cual deberá posteriormente ser firmada por el jefe inmediato.
+b) De esa fórmula, el encargado de activos se dejará copia para su respectivo control; el original se enviara a la Unidad de Bienes Muebles, para que se realicen los ajustes pertinentes y se entregará una copia a la Unidad que lo recibe.
+c) Si el activo debe trasladarse fuera de la institución, se procederá de acuerdo con lo establecido en el inciso 13.6 del articulo 13 del Manual de normas y procedimientos para la administración y control de bienes muebles de este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 29.—Concepto de bienes muebles en desuso. Se consideran bienes muebles en desuso los obsoletos, faltos de repuestos los descontinuados por sus fabricantes, previa calificación de la Unidad Mantenimiento u otra unidad con capacidad de realizarla.
+Antes de proceder a la donación, la Unidad de Mantenimiento o la Unidad con capacidad técnica para hacerlo, analizara la conveniencia de utilizar sus partes como repuestos.

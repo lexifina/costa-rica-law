@@ -1,0 +1,1 @@
+Artículo 31.—Aprobación de donaciones. Las donaciones deben ser aprobadas por el Directorio Legislativo. Una vez autorizadas, la Dirección Ejecutiva comunicara por escrito la decisión al Jefe del Departamento de Proveeduría, e indicara los activos por donar, el número de acuerdo y sesión. Seguidamente se procederá a elaborar el acta de donación.

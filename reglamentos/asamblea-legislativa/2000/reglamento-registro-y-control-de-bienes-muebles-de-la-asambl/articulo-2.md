@@ -1,0 +1,1 @@
+Artículo 2.—Objetivos. El objetivo del presente Reglamento es establecer las normas y los procedimientos para controlar las operaciones patrimoniales relativas a la adquisición de bienes muebles: además, facilitar y mantener su registro y establecer las responsabilidades por su administración y uso.

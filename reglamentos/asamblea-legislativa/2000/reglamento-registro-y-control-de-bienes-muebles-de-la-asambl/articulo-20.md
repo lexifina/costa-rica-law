@@ -1,0 +1,2 @@
+Articulo 20.—Pérdida de activos. Si un bien o herramienta de trabajo se pierde, el responsable deberá comunicarlo por escrito a su jefe inmediato, quien luego de comprobarlo, informará a la Dirección Ejecutiva. La Asesoría Legal recibirá el reporte de desaparición y procederá a una investigación.
+Si se comprueba la responsabilidad de algún funcionario en la desaparición del bien, el Departamento Financiero procederá a su cobro; para calcular el costo, considerará, entre otros, el tiempo de uso y el precio de mercado. De acuerdo con ello indicará el monto por pagar.

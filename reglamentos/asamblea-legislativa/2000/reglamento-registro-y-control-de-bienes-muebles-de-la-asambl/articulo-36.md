@@ -1,0 +1,1 @@
+Artículo 36.—Identificación de obras de arte. Para identificar las obras de arte, quienes las reciban deben solicitar la asignación de números de placas a la Unidad de Bienes Muebles del Departamento de Proveeduría, para el registro correspondiente.

@@ -1,0 +1,1 @@
+Artículo 40.— Identificación del activo. La Unidad de Bienes Muebles del Departamento de Proveeduría velara por que la placa que identifica el bien como propiedad de la Asamblea Legislativa, no sea retirada; si esto sucediera, al recibir el trabajo ordenará que sea restituida inmediatamente.
