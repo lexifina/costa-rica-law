@@ -1,0 +1,1 @@
+Artículo 5º—Vigencia de la Autorización. La autorización para la aceptación de riesgos y digitación en línea, podrá otorgarla el Instituto al Intermediario por línea de seguros, hasta por el plazo máximo de vigencia del contrato mercantil para la comercialización de seguros.

@@ -1,0 +1,7 @@
+Artículo 10.—Traslado del Riesgo. El traslado del riesgo operará a partir de la coexistencia de los siguientes actos:
+a. La suscripción del documento por parte del Agente de Seguros de la entidad comercializadora, indicando la correcta cumplimentación de los requisitos administrativos, inspecciones y condiciones técnicas de la solicitud de seguro.
+b. El pago de la prima fijada para el seguro respectivo.
+Todo trámite realizado por el Agente Vendedor de Seguros acreditado debe ser refrendado por un funcionario autorizado para ese efecto por el Intermediario, y previamente reportado al Instituto, debiendo registrarse su firma, calidades y demás datos pertinentes, en la Dirección de Mercadeo y Ventas.
+Será responsabilidad absoluta del Intermediario reportar cualquier cambio del funcionario que ha sido autorizado para el refrendo.
+Lo anterior rige para todos aquellos seguros que se tramitan dentro del Gran Área Metropolitana.
+En el caso de las entidades comercializadoras con agentes acreditados en zonas rurales del país, para los seguros suscritos en esas zonas no se requerirá el refrendo mencionado, de manera que podrán los agentes presentar las solicitudes de seguro directamente en las oficinas y sucursales del Instituto a nombre de la Entidad Comercializadora, y hasta los límites de aceptación previa que poseen los Agentes Independientes y en las mismas líneas, siempre y cuando así lo hubiere autorizado la entidad comercializadora, previa comunicación a la Dirección de Mercadeo y Ventas.
