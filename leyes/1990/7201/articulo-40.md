@@ -1,0 +1,3 @@
+Artículo 40.- Los títulos no podrán perseguirse por ningún acreedor de la bolsa y, en consecuencia, no podrán ser embargados ni secuestrados en forma alguna, salvo por los respectivos depositantes. Sólo podrán serlo por acreedores del depositante, en el tanto en que se compruebe que le pertenecen.
+Los depósitos constituidos en la Central se harán siempre a nombre del puesto, institución u otro intermediario depositante, con indicación, en su caso, de cuáles son por cuenta propia y cuáles por cuenta ajena.
+Quedan a salvo los derechos de los tenedores de cédulas prendarias sobre los títulos depositados.

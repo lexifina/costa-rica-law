@@ -1,0 +1,1 @@
+Artículo 39.- Al concluir el depósito, la Central queda obligada a restituir al depositante títulos del mismo emisor, de la misma especie y de las mismas características de los que fueron depositados.

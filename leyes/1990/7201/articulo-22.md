@@ -1,0 +1,1 @@
+Artículo 22.- Los recursos ordinarios contra las decisiones y resoluciones de la Comisión Nacional de Valores, deberán presentarse ante ésta dentro del término de cinco días, tratándose del acto final, y de tres días en los demás casos, ambos plazos contados a partir de la última comunicación del acto.

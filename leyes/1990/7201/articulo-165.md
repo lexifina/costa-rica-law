@@ -1,0 +1,2 @@
+Artículo 165.- Son operaciones a premio, los contratos a plazo en donde una de las partes se reserva la facultad de no cumplir la obligación asumida, o bien, de variarla en la forma prevista, mediante el pago del premio pactado.
+Esta facultad deberá ejercerse dentro del término anterior al vencimiento que se fije en el reglamento.

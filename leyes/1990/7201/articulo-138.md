@@ -1,0 +1,2 @@
+Artículo 138.- La cancelación o suspensión del ejercicio de la profesión, acordada por el Colegio profesional respectivo, será causa de remoción del fiscal contador.
+La renuncia al cargo del fiscal surtirá efectos desde el momento en que se ponga en conocimiento de la junta directiva, que de inmediato convocará a asamblea general de accionistas para que proceda a nombrar a los sustitutos. Igual procedimiento se seguirá ante cualquier vacante definitiva en el órgano.

@@ -1,0 +1,2 @@
+Artículo 86.- Para la organización y el funcionamiento de las sociedades de inversión, se requiere concesión de la Comisión Nacional de Valores.
+Las sociedades de inversión tienen por objeto la adquisición de títulos seleccionados de acuerdo con el criterio de diversificación de riesgos, con recursos provenientes de la colocación de las acciones representativas de su capital social, entre el público inversionista o aquéllas cuyo único objeto sea la administración de fondos y valores de terceras personas.

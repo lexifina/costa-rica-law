@@ -1,0 +1,1 @@
+Artículo 133.- Cualquier modificación al pacto constitutivo de estas sociedades, o cambio de su administración o vigilancia, deberá ser comunicada inmediatamente a la bolsa de valores correspondiente.

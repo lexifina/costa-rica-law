@@ -1,0 +1,3 @@
+Artículo 144.- Estas sociedades serán liquidadas por una junta compuesta por tres liquidadores, elegidos por la asamblea general de accionistas, que indicará cuál de ellos fungirá como presidente. Para la elección de los liquidadores se estará a lo dispuesto en el artículo 136.
+Durante la liquidación de la sociedad, el comité de vigilancia y la auditoría externa se mantendrán sin pérdida de sus atribuciones y deberes.
+A la junta y a los liquidadores se les aplicarán las disposiciones de los artículos 183, 184, 187, 188, 189, 190, 191 y 192 del Código de Comercio, con las limitaciones inherentes a su carácter.

@@ -1,0 +1,1 @@
+Artículo 117.- Las sociedades de fondos de inversión no podrán invertir los recursos recibidos en títulos valores emitidos por esta misma. Tampoco podrán invertir su propio capital en la cartera de títulos por ellos administrada, ni podrán emitir obligaciones.

@@ -1,0 +1,2 @@
+Artículo 90.- Las expresiones sociedades de inversión, fondos de inversión u otras equivalentes, en cualquier idioma, sólo podrán ser utilizadas en la denominación de las sociedades que gocen de concesión según los términos de esta ley. La Comisión Nacional de Valores podrá ordenar la intervención administrativa del establecimiento infractor hasta que deje de usar la expresión indebidamente empleada, sin perjuicio de la sanción penal correspondiente.
+Las sociedades de inversión, en seguida de su denominación, deberán expresar invariablemente el tipo al cual pertenecen.

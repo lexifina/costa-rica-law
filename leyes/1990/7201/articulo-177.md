@@ -1,0 +1,2 @@
+Artículo 177.- Efectuada la operación en los términos del artículo anterior, la bolsa entregará al interesado un certificado por el crédito que resulte a su favor de la liquidación efectuada.
+El certificado del crédito tendrá el carácter de título ejecutivo y su tenedor podrá hacerlo efectivo ante la propia bolsa directamente, sin necesidad de procedimiento judicial, con cargo a la garantía a que se refiere el artículo 68, inciso b), o bien, si así lo prefiere, en la vía ejecutiva común.

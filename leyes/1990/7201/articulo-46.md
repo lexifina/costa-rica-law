@@ -1,0 +1,2 @@
+Artículo 46.- No se emitirá ninguna cédula prendaria sobre títulos valores depositados que hayan sido objeto de embargo, secuestro u otra medida de cualquier naturaleza, que perjudique su libre transmisión, debidamente notificado a la Central. La bolsa que emitiere cédulas en contra de esta disposición será sancionada conforme con el artículo 28.
+Una vez emitidas las cédulas prendarias, los títulos valores que las garantizan tampoco podrán ser objeto de las medidas precautorias del párrafo anterior.

@@ -1,0 +1,1 @@
+Artículo 78.- Los puestos de bolsa ejecutarán las órdenes recibidas de los clientes por medio de un agente de bolsa, quien será su representante, por el simple hecho del nombramiento, con facultades para obligarlo, en cualquiera de las actividades de intermediación bursátil autorizadas por esta ley.

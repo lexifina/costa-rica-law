@@ -1,0 +1,12 @@
+Artículo 110.- Las sociedades operadoras de sociedades de inversión requieren ser previamente autorizadas por la Comisión Nacional de Valores. Esta autorización será otorgada cuando, a juicio de la citada Comisión, se satisfagan los requisitos siguientes:
+a) Presentar la solicitud respectiva.
+b) Presentar un programa general de funcionamiento de la sociedad que deberá contener, en todo caso, los planes para distribuir entre el público las acciones emitidas por sociedades de inversión.
+c) Estar constituidas como sociedades anónimas con régimen de acciones comunes y nominativas, y tener íntegramente pagado el capital mínimo que determine la Comisión Nacional de Valores, mediante disposiciones de carácter general.
+ch) La denominación deberá ser distinta a la utilizada por sus socios y por cualquier sociedad de inversión.
+d) Los accionistas deberán ser puestos de bolsa o los socios de éstos; o bien, personas físicas o jurídicas que hayan figurado como socios fundadores al constituirse las sociedades de inversión con las que celebren contratos de prestación de servicios, de administración o de distribución de acciones.
+e) En ningún momento podrán participar en su capital social, directa o indirectamente, las personas o agrupaciones de personas a que se refiere el inciso c) del artículo 91 de esta ley.
+( NOTA: el artículo 91 citado no contiene inciso c), sino que debe referirse al inciso 3)
+( NOTA: Tanto el inciso citado como el presente e) han sido derogados tácitamente por los artículos 1º y 6º de la Ley de Promoción de la Competencia No.7472 de 20 de diciembre de 1994. Véase al respecto el Dictamen C-134-95 de 12 de junio de 1995)
+f) El número de sus administradores no será inferior a cinco, quienes actuarán constituidos en consejo de administración.
+g) Utilizar los servicios de personas físicas que les autorice la Comisión, lo cual será otorgado cuando, a su juicio, estas personas cuenten con la capacidad técnica y la solvencia moral necesaria para llevar a cabo la promoción y la venta de acciones de sociedades de inversión.
+La escritura constitutiva y los estatutos de las sociedades de que se trate, así como sus modificaciones, deberán ser aprobadas por la Comisión Nacional de Valores. Con esta aprobación, la escritura o sus reformas podrán ser inscritas en el Registro Mercantil. En todo caso, deberán proporcionar a la Comisión copia certificada de las actas de sus asambleas y, cuando proceda, certificación notarial en la que conste la protocolización respectiva.

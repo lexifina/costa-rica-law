@@ -1,0 +1,1 @@
+Artículo 24.- El resultado de las investigaciones que realice la Comisión, en el ejercicio de las atribuciones de inspección, constituyen material secreto al que sólo tendrán acceso las autoridades judiciales competentes.

@@ -1,0 +1,2 @@
+Artículo 137.- La vigilancia de estas sociedades la ejercerá un comité compuesto al menos por tres fiscales, quienes pueden ser o no socios; por lo menos uno de ellos debe ser contador público autorizado.
+Los fiscales serán nombrados por el plazo que fije la escritura social, y podrán ser reelegidos indefinidamente. El cargo será revocable, personal e indelegable. Para la elección de los fiscales se estará a lo dispuesto en el artículo 136.

@@ -1,0 +1,3 @@
+Artículo 74.- Contra las sanciones cabrán los recursos de revocatoria y de apelación, que se interpondrán dentro de los tres días siguientes al de la notificación. La bolsa deberá pronunciarse sobre la revocatoria a más tardar dentro de los diez días siguientes al recibo del recurso. Su silencio se entenderá como denegatorio del recurso.
+Confirmada la sanción por la bolsa, se admitirá la apelación ante la Comisión Nacional de Valores, que oirá al recurrente por un plazo mínimo de cinco días y que deberá pronunciarse dentro del mes siguiente. Si no dictare resolución en ese plazo, se entenderá denegado el recurso.
+( TEXTO MODIFICADO por Resolución de la Sala Constitucional No. 6290-99 de las 17:33 horas del 11 de agosto de 1999, que anuló el último párrafo).

@@ -1,0 +1,2 @@
+Artículo 164.- Los contratos podrán ser opcionales de venta o de compra, cuando el vendedor pueda cumplir o el comprador pueda abandonar la operación dentro del plazo pactado.
+Los contratos opcionales serán siempre con prima cuyos montos mínimos fijará reglamentariamente cada bolsa. Si el contrato se perfeccionare, se aplicará a la suma entregada con prima, lo dispuesto para las arras en el artículo 447 del Código de Comercio. Si no se concertare, la suma quedará a favor de la parte que cumpla como indemnización de daños y perjuicios.

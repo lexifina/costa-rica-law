@@ -1,0 +1,1 @@
+Artículo 63.- El plazo de la concesión será el mismo de la propia bolsa, incluyendo sus prórrogas. En el reglamento se establecerán los procedimientos para determinar el precio de la concesión y la forma de pago. Asimismo, la bolsa establecerá el cargo mensual por gastos de operación y mantenimiento que debe cubrir cada puesto.

@@ -1,0 +1,1 @@
+Artículo 16.- La Junta Directiva de la Comisión Nacional de Valores elegirá, por mayoría de votos, un gerente, que deberá ser ratificado por la Junta Directiva del Banco Central de Costa Rica, quien será nombrado por un período de cuatro años en sus funciones y podrá ser reelegido.

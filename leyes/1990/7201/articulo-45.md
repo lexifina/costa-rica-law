@@ -1,0 +1,3 @@
+Artículo 45.- Las Centrales podrán emitir cédulas prendarias, que serán títulos valores representativos de un crédito prendario sobre los títulos que se indiquen, y que otorguen a su tenedor los derechos y privilegios que esta ley establece.
+Sólo las Centrales de depósito podrán emitir esta clase de títulos. Las constancias, recibos o certificados que expidan otras personas o instituciones para acreditar depósitos de valores, no serán títulos valores.
+Se exceptúan de esta disposición los almacenes generales de depósito, los cuales conservan todas las facultades que les confiere la Ley de Almacenes Generales de Depósito, No. 5 del 15 de octubre de 1934 y sus reformas, en relación con la emisión de títulos valores.

@@ -1,0 +1,1 @@
+Artículo 62.- En el reglamento de cada bolsa se determinarán el número de puestos que se puedan conceder para la realización de operaciones de intermediación bursátil, y el procedimiento de adjudicación de las concesiones.

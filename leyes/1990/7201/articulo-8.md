@@ -1,10 +1,7 @@
-ARTICULO 8.- Adiciónase un nuevo inciso al artículo 18 del Código de
-Comercio, que será el número 13, y se corre la enumeración de los restantes.
-El nuevo inciso dirá:
-"Artículo 18.-
-...
-13) Nombramiento de un agente residente, que deberá ser abogado con
-oficina abierta en el territorio nacional, con facultades suficientes para
-atender notificaciones judiciales y administrativas a nombre de la sociedad.
-El Registro no inscribirá documento alguno relativo a la sociedad, si
-este nombramiento no se encontrara vigente."
+Artículo 8.- En sus funciones de promover el desarrollo del mercado de valores, la Comisión tendrá los siguientes deberes y obligaciones:
+a) Pronunciarse sobre las políticas que afecten el mercado de valores, y coordinarlas con el Poder Ejecutivo.
+b) Promulgar y colaborar con el Ministerio de Hacienda y el Banco Central de Costa Rica en la adopción de políticas que promuevan el ahorro nacional y faciliten
+su flujo para financiar la inversión de los sectores público y privado.
+c) Propiciar una mayor participación de todos los sectores de la economía nacional en el mercado de valores, para lo cual creará los instrumentos y los
+procedimientos idóneos.
+ch) Establecer procedimientos que tiendan a facilitar y agilizar la intermediación en el mercado de valores.

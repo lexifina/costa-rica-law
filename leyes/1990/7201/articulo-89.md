@@ -1,0 +1,1 @@
+Artículo 89.- La concesión, así como sus modificaciones, se publicarán en el diario oficial La Gaceta, a costa del interesado. El acuerdo de revocación se publicará sin costo alguno para la sociedad de inversión correspondiente.
