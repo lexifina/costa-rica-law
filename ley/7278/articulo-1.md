@@ -1,6 +1,2 @@
-TARIFA DE IMPUESTOS MUNICIPALES DEL CANTON DE ACOSTA
-ARTICULO 1.- Todas las personas físicas o jurídicas, que se dediquen
-al ejercicio de cualquier tipo de actividades lucrativas lícitas en el
-Cantón de Acosta, estarán obligadas a pagar a la Municipalidad el impuesto
-de patentes que las faculte a ejercer esas actividades, de conformidad con
-esta Ley, según corresponda.
+(NOTA DE SINALEVI: El artículo N° 27 de la Ley de Tarifa de Impuestos Municipales del Cantón de Acosta N° 8649 del 26 de junio del 2008, derogará esta Ley a partir del 01 de octubre del 2008, por lo que la respectiva abrogación será introducida en la fecha indicada)
+ARTICULO 1.- Todas las personas físicas o jurídicas, que se dediquen al ejercicio de cualquier tipo de actividades lucrativas lícitas en el Cantón de Acosta, estarán obligadas a pagar a la Municipalidad el impuesto de patentes que las faculte a ejercer esas actividades, de conformidad con esta Ley, según corresponda.
