@@ -1,0 +1,9 @@
+ARTICULO XIV
+Sin perjuicio de lo dispuesto en el artículo anterior, cuando la
+Comisión Interamericana de Derechos Humanos reciba una petición o
+comunicación sobre una supuesta desaparición forzada se dirigirá, por
+medio de su Secretaría Ejecutiva, en forma urgente y confidencial, al
+correspondiente gobierno solicitándole que proporcione a la brevedad
+posible la información sobre el paradero de la persona presuntamente
+desaparecida y demás información que estime pertinente, sin que esta
+solicitud prejuzgue la admisibilidad de la petición.
