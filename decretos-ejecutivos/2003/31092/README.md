@@ -48,3 +48,4 @@ Directrices de política presupuestaria del 2004 para los ministerios, demás ó
 | 33 | 2004-07-27 | Decreto Ejecutivo 31985 (2004-07-27) |
 | 34 | 2004-08-24 | Decreto Ejecutivo 31956 (2004-08-24) |
 | 35 | 2004-09-20 | Decreto Ejecutivo 32026 (2004-09-20) |
+| 36 | 2004-09-20 | Decreto Ejecutivo 32032 (2004-09-20) |
