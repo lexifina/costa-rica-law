@@ -1,0 +1,1 @@
+Artículo 2°.- Los demás datos necesarios serán suministrados oportunamente por el Instituto interesado al correspondiente Jugado de lo Contencioso Administrativo y Civil de Hacienda.
