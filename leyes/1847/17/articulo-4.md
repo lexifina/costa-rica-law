@@ -1,0 +1,1 @@
+Art. 4. Los resguardos referidos tendrán en los efectos que aprehendan la parte que por recompensa les señalan las leyes. -Dado en la ciudad de San José á diez de mayo de mil ochocientos cuarenta y siete. –José Maria Castro. Al Jefe de Seccion encargado accidentalmente del despacho de hacienda y guerra Sr. Juan de Dios Zespedes.

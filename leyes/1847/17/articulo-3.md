@@ -1,0 +1,1 @@
+Art. 3. Son objetos de dichos resguardos aprehender los articulos y efectos que ilegalmente se introduzcan al Estado, é impedir la salida de cualquiera persona que no exhiba su correspondiente pasaporte, y despues de seis meses de la emisión de este decreto, tambien la internacion de las que no traigan; dicho documento.
