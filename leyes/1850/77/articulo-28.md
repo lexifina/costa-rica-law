@@ -1,0 +1,1 @@
+Art. 28. Igualmente se prohibe bajo la multa de ocho reales que se separen de los puntos designados à no ser que lo exija la necesidad. La misma multa se les impondra por cada vez que no presenten sus armas con la debida limpieza.

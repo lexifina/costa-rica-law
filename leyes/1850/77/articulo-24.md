@@ -1,0 +1,1 @@
+Art. 24. Si la falta fuere de toda la noche, será multado en una cantidad igual a la tercera parte del sueldo mensual por la primera vez, à las dos terceras partes por la segunda, al todo por la tercera, y pérdida del destino por la cuarta.

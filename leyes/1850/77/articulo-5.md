@@ -1,0 +1,1 @@
+Art. 5. Tanto para asegurar las cantidades que el empresario reciba y se hayan estipulado en el remate, como para el cumplimiento de las obligaciones impuestas en el art. anterior, prestará una fianza ó hipoteca especialmente una finca de valor igual a la cantidad en que se haya celebrado el remate.

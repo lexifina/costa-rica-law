@@ -1,0 +1,1 @@
+Art. 21. Si por su omision descuido se encontrare alguna noche la ciudad sin alumbrado, sufrirá por la primera vez una multa de veinticinco pesos, doble por la segunda y triple por la tercera, se rescindira del contrato á eleccion de la Municipalidad.
