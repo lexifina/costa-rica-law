@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. Esta Comisión tiene como tarea principal definir e implementar mecanismos de coordinación y el desarrollo de políticas y programas ambientales en el campo minero, que se recomendaran para que promuevan y faciliten la participación de los gobiernos locales.
