@@ -5,8 +5,10 @@ Bioequivalencia: Condición que se da entre dos productos farmacéuticos que son
 Buenas prácticas de manufactura: Conjunto de normas y procedimientos destinados a garantizar en forma permanente, la producción uniforme de los lotes de medicamentos que cumplan con los requerimientos de calidad que demanda la necesidad de los usuarios.
 Carta de sanidad o certificado sanitario: Es el documento expedido por la autoridad sanitaria competente en el país de origen del fabricante, en el cual se indica que las instalaciones donde se elaboran los productos están sometidos a inspecciones regulares encaminadas a comprobar si el fabricante está autorizado, por cuanto se ajusta a las buenas prácticas de manufactura.
 Certificado de análisis: Es el certificado en el cual se indican las especificaciones y los resultados de los análisis físicos, químicos, biológicos, microbiológicos y biofarmacéuticos de un medicamento, emitido por un laboratorio nacional o extranjero que a juicio del Ministerio garantice su identidad y calidad.
-Certificado de libre venta: Es el documento expedido por la autoridad competente del país de origen, debidamente consularizado, en el cual se indica que el producto tiene su registro vigente y que su venta para consumo humano está autorizada legalmente en ese país.
-Certificado de producto farmacéutico: Es el certificado tipo de la Organización Mundial de la Salud (OMS), en el que se certifica entre otras cosas, las buenas prácticas de manufactura y la libre venta.
+Certificado de Libre Venta: Es el documento expedido por la autoridad reguladora o responsable del registro de medicamentos, en el que se certifica que el producto a que se refiere el certificado está autorizado para la venta o distribución en el país o región de origen o procedencia.
+(Así reformado por el artículo 1 del decreto ejecutivo N° 30446 de 18 de abril del 2002)
+Certificado de Producto Farmacéutico: Es el certificado tipo de la Organización Mundial de la Salud (OMS).
+(Así reformado por el artículo 1 del decreto ejecutivo N° 30446 de 18 de abril del 2002)
 Consejo: Consejo Técnico de Inscripción de Medicamentos, órgano a que se refiere el artículo 113 de la Ley General de Salud.
 Cosmético medicado: Es todo aquel cosmético al que se adicionan sustancias medicinales que le confieren propiedades terapéuticas, preventivas o de alivio y debe ser registrado como medicamento.
 Dirección: Es la Dirección de Registros y Controles del Ministerio de Salud.
@@ -28,6 +30,8 @@ Farmacopea: Conjunto o colección de normas sobre principios activos, productos 
 FDA: Administración de Drogas y Alimentos de los Estados Unidos.
 Forma farmacéutica: Forma dosificada en la cual se expende el producto farmacéutico terminado.
 Formulario Será el formulario dado por la Dirección de Registros y Controles para la inscripción de medicamentos.
+Importación paralela de medicamentos: Es la importación de medicamentos registrados en la Dirección
+(Así adicionado el término anterior por artículo 1° del Decreto Ejecutivo No. 28596 de 22 de marzo de 2000).
 Importador: Persona física o jurídica que se dedica a la importación de medicamentos y cosméticos medicados o materias primas para la elaboración de los mismos.
 Laboratorios certificados: son aquellos laboratorios farmacéuticos cuyas Buenas Prácticas de Manufactura son certificadas por el FDA o por las autoridades sanitarias de Costa Rica, u otro organismo reconocido por el Ministerio.
 Laboratorio farmacéutico o fabricante: Establecimiento dedicado a la manipulación o elaboración de medicamentos, o bien, de materias primas destinadas exclusivamente a la elaboración o preparación de los mismos.
@@ -64,6 +68,10 @@ Ministro: Ministro de Salud.
 Muestra: Parte de la porción finita representativa de un lote de producción o de una cantidad de medicamento almacenada, transportada o en uso que se somete a análisis a efectos de verificar las características de calidad o su adecuación para el uso, ya sea para registro o control.
 Muestras médicas: Las unidades o ejemplares de un medicamento que se facilitan gratuitamente a profesionales médicos, odontólogos y veterinarios para su promoción.
 Normas farmacológicas: Son el conjunto de reglas farmacológicas oficialmente establecidas o aprobadas por el Consejo, siguiendo criterios técnicos señalados por la Dirección, que rigen la inscripción de productos y que deben ser adecuadamente divulgados.
+País de origen: Es el país donde se fabrica el producto. En el caso de fabricación por terceros o entre filiales puede ser también el país donde se localiza el dueño o representante de la comercialización del producto.
+(Así adicionado por el artículo 2 del decreto ejecutivo N° 30446 de18 de abril del 2002)
+País de procedencia: Es el país desde donde se distribuye o exporta el producto si interviene en el proceso de fabricación.
+(Así adicionado por el artículo 2 del decreto ejecutivo N° 30446 de18 de abril del 2002)
 Planta farmacéutica: Lugar específico donde se lleve a cabo la fabricación o manufactura secundaria.
 Producto: Entiéndase los medicamentos o cosméticos medicados.
 Producto farmacéutico o medicamento innovador: Es aquel producto farmacéutico que se autorizó primero para su mercadeo en el país, sobre la base de su documentación de eficacia, seguridad y calidad.
