@@ -1,0 +1,1 @@
+Artículo 3° La Comisión codificadora procederá a la formación de los proyectos dichos en el orden indicado en el artículo 1° y a medida que termine su trabajo en cada ramo, entregará la obra a la Secretaría del Congreso o en receso de éste a la de la Comisión Permanente, con el objeto de que sea considerada en la Legislatura más próxima.
