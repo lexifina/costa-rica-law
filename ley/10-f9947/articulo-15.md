@@ -1,0 +1,1 @@
+Artículo 15.-Cuando un profesor esté impedido de asistir á sus clases, se procederá al nombramiento de un sustituto, sin necesidad de autorización del Poder Ejecutivo. El término no excederá de dos meses.
