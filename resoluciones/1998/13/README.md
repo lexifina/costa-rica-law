@@ -14,3 +14,4 @@ Estructura y División Interna de la Dirección General de Tributación Directa.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-09-02 | la propia norma |
+| 2 | 2000-02-08 | Resolución 3 (2000-02-08) |
