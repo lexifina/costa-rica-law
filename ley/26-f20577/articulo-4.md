@@ -1,0 +1,1 @@
+Art 4°.- Queda insubsistente el Decreto de 28 de marzo de 835 y reformado el artículo 38 de la Ley Fundamental del Estado.- Dado en la Ciudad de Heredia a los veintinueve días del mes de Agosto de mil ochocientos treinta y siete.
