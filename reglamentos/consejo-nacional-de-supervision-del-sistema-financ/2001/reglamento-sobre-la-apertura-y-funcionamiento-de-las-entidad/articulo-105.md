@@ -1,2 +1,4 @@
-Artículo 105. De las condiciones del traslado
-El traslado solo podrá efectuarse en las condiciones del Fondo al cual se transfiere el afiliado y podrá mantener la antigüedad acumulada en el Fondo original.
+Artículo 105. De las condiciones del traslado. Si el traslado se realiza al amparo de la libre transferencia solo podrá efectuarse, en las condiciones del Fondo al cual se transfiere el afiliado, por el total del saldo existente en su cuenta individual. En todo caso, para los fines del retiro anticipado, se contabilizará el número de aportaciones desde la fecha del primer aporte realizado.
+Los contratos provenientes de la Ley 7523 que sean trasladados a otro fondo u operadora mantendrán, exclusivamente, la antigüedad acumulada en el contrato original.
+En el caso de traslados entre fondos de diferente moneda se aplicará las mismas condiciones que facultan la libre transferencia entre operadoras.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión N° 346-2002, celebrada el 19 de diciembre de 2002, publicada en La Gaceta N° 16 de 23 de enero de 2003.)
