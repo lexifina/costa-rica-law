@@ -1,0 +1,2 @@
+Artículo 4º.- El Consejo se reunirá ordinariamente una vez al año y extraordinariamente cuando lo soliciten, por lo menos, dos de sus miembros, mencionado los puntos que se quieran discutir.
+Sesionará con la mayoría absoluta de votos de los Miembros Activos. Se entenderá por Miembros Activos las partes contratantes que no estuvieren en mora en el cumplimiento de sus obligaciones para con el INCAP.

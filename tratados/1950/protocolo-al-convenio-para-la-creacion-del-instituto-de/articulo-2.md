@@ -1,0 +1,1 @@
+Artículo 2º.- El INCAP será dirigido por un "Consejo" compuesto de un representante de cada uno de los países signatarios y de los que posteriormente suscriban y ratifiquen este Protocolo, por un representante de la Oficina Sanitaria Panamericana y uno de la Fundación W. K. Kellogg.

@@ -1,0 +1,2 @@
+Artículo 10.- La cuota básica anual con que contribuirá cada país signatario para las actividades centrales del INCAP, será de $ 12,500.00 (doce mil quinientos dólares), en moneda de los Estados Unidos de América, pagadera por adelantado a la Oficina Sanitaria Panamericana.
+Esta suma será cuota básica para el futuro y podrá modificarse, si los representantes de los países miembros, previamente autorizados por sus respectivos gobiernos, lo acordaren unánimemente.

@@ -1,0 +1,1 @@
+Artículo 9º.- El Director de la Oficina Sanitaria Panamericana nombrará una Junta Consultiva de expertos en nutrición y ciencias afines, con el conocimiento del Consejo, la cual colaborará en los planes del programa científico del INCAP.

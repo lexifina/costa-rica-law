@@ -1,0 +1,1 @@
+Artículo 16.- Se anexa el presente Protocolo al Convenio que creó el INCAP, firmado en la ciudad de Guatemala el 20 de febrero de 1946, y entrará en vigor y permanecerá vigente por un período de cinco años, contados a partir del 1º de enero de 1950.

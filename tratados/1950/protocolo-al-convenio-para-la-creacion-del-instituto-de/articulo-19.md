@@ -1,0 +1,1 @@
+Artículo 19.- Además de Costa Rica, Nicaragua y Panamá podrán ingresar como miembros de la INCAP otros Estados e Instituciones que tengan interés y lo soliciten al Consejo, quien será el órgano competente para resolver la admisión y condiciones de está.

@@ -1,0 +1,1 @@
+Artículo 18.- Los Estados de Costa Rica, Nicaragua y Panamá, podrán incorporarse al INCAP aprobando y ratificando este Protocolo y cubriendo además la cuota correspondiente al ejercicio económico en que se verifique su ingreso. Esta determinación deberá ser comunicada a la Oficina Sanitaria Panamericana.

@@ -1,0 +1,1 @@
+Artículo 7º.- La "Oficina" continuará patrocinando el INCAP, facilitándole sus recursos, tales como su Sección de Nutrición y las facilidades de su organización administrativa. Conviene además en proporcionarle los servicios del Jefe de su Sección de Nutrición y en poner a su disposición otros técnicos para el mejor desarrollo de sus programas cuando esto fuere necesario.

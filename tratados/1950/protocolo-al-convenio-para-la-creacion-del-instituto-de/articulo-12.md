@@ -1,0 +1,1 @@
+Artículo 12.- El Gobierno de Guatemala se compromete a hacer las gestiones necesarias para que el INCAP use sin costo alguno y por todo el tiempo de su existencia, los edificios construidos para su servicio, sus mejoras y ampliaciones y el terreno en que estén construídos.

@@ -1,0 +1,1 @@
+Artículo 13.- Los países participantes se comprometen a tomar las medidas pertinentes a fin de liberar de impuestos el equipo y materiales que el INCAP proporcionará para el desarrollo de sus trabajos en cada país.
