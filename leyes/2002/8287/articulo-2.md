@@ -1,0 +1,4 @@
+Artículo 2º—Adiciónase a la Ley de patentes de la Municipalidad de Pérez Zeledón, Nº 7737, de 19 de diciembre de 1997, el artículo 22, cuyo texto dirá:
+"Artículo 22.—Autorízase a la administración tributaria municipal para que proceda a sancionar a los contribuyentes que evadan o no paguen este impuesto, de acuerdo con el título III del Código de Normas y Procedimientos Tributarios, vigente en la actualidad.
+Los funcionarios municipales designados para el trámite de este impuesto, quedan investidos de fe pública para hacer constar, bajo su estricta responsabilidad, la diligencia de notificación, cuando el contribuyente o su representante se niegue a recibirla. Para ello, el Concejo deberá tomar un acuerdo e investir con esta autoridad a los funcionarios municipales específicamente."
+Rige a partir de su publicación.
