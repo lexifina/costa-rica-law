@@ -1,1 +1,1 @@
-Art. 95.—La recaudación de las rentas expresadas en el artículo anterior, se, verificará por el Tesorero de los fondos del distrito en la forma y según las reglas establecidas hoy para su percepción por los Tesoreros cantonales.
+Art. 95.—(Derogado por el artículo 10 de la ley N° 28 del 8 de noviembre de 1910 "Crea Tesorería Cantonal Enseñanza Primaria")
