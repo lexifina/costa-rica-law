@@ -1,2 +1,0 @@
-(Derogado)
-Texto no disponible
