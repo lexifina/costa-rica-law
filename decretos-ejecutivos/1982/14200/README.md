@@ -13,3 +13,4 @@ Reglamento Zonaje Empleados Ministerio Hacienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-02-08 | la propia norma |
+| 2 | 1983-02-08 | SINALEVI (sin norma nombrada) |
