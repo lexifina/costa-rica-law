@@ -1,0 +1,3 @@
+Artículo 20 bis.—Póliza de saldos deudores
+Autorízase al Fideicomiso Agropecuario para que suscriba con el Instituto Nacional de Seguros (INS) una póliza de saldos deudores. Todos los beneficiarios del Fideicomiso Agropecuario se acogerán a dicha póliza por un monto que cubra la totalidad del crédito de que se trate durante toda la vigencia de las operaciones que hayan sido objeto de compra y readecuación. El costo del seguro será asumido en su totalidad por el beneficiario y será cargado a la cuota periódica establecida.
+(Así adicionado por el inciso d) del artículo 1 de la Ley No. 8390 de 4 de noviembre de 2003).
