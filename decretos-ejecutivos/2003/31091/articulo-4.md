@@ -1,0 +1,1 @@
+Artículo 4°—Cuando un puesto sea declarado de confianza, tanto por la Dirección General de Servicio Civil (DGSC) como por la Secretaría Técnica de la Autoridad Presupuestaria (STAP) no podrá volver a tener la condición de puesto regular.
