@@ -1,0 +1,1 @@
+Artículo 4°-La Contraloría General de la República no aprobará los presupuestos ordinarios anuales de la Municipalidad de Grecia que no contengan expresamente las sumas a que se refiere el artículo anterior, o las sumas que indica el artículo 1° en el caso de que la Municipalidad efectúe el empréstito a que se refiere dicho artículo.
