@@ -1,7 +1,7 @@
 Artículo 79.—Contornos de intensidad de campo. A continuación se dan los valores específicos de las intensidades medias de campo para las señales del servicio de televisión, correspondientes a cada estación, según la banda de frecuencias de que se trate. Los contornos de intensidad de campo 47, 56 y 64 dBµV/m, marcados con (1) en la tabla de intensidad de campo, corresponden a los contornos protegidos de la estación; los de 68, 71 y 74 dBµV/m, marcados con (2) en la siguiente tabla se refieren a la señal de referencia para cada grupo de canales, dentro de la que se pueden ubicar sistemas de retransmisión de baja potencia, como son los mini transmisores, trasladores o amplificadores, con el objeto de cubrir zonas difíciles o de nula recepción y los contornos de intensidad de campo 74, 77 y 80 dBµV/m, marcados con (3) en la tabla, se refieren a la señal mínima dentro de la cual debe quedar comprendida la ciudad principal a servir.
 TABLA INTENSIDAD DE CAMPO TV.
 2 AL 6 | 7 AL 13 | 14 AL 69
-dBµV/m | V/m | dBµV/m | V/ m | dBµV/m | V/m
+dBµV/m | *uV/m* (Así reformado por el artículo 3° del decreto ejecutivo N° 32168 del 22 de octubre del 2004) | dBµV/m | *uV/ m *(Así reformado por el artículo 3° del decreto ejecutivo N° 32168 del 22 de octubre del 2004) | dBµV/m | *uV/m (*Así reformado por el artículo 3° del decreto ejecutivo N° 32168 del 22 de octubre del 2004)
 74(3) | 5011 | 77(3) | 7080 | 80(3) | 10000
 68(2) | 2511 | 71(2) | 2458 | 74(2) | 5011
 47(1) | 224 | 56(1) | 631 | 64(1) | 1585

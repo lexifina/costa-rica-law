@@ -1,7 +1,7 @@
 Artículo 110.—De las normas operativas. Al operar en la banda ciudadana deberán observarse las siguientes normas operativas:
 1. Antes de emitir señal, debe verificarse si el canal a utilizar se encuentra libre a fin de evitar interferencias con otros usuarios.
 2. El que opera una estación de banda ciudadana, deberá identificarse con sus letras de identificación completas, al principio y al final de cada cambio, sin agregar nombres complementarios. Para tal efecto las estaciones dedicadas a este servicio usarán el prefijo "TEA" seguido de un dígito que será determinado por la localidad de la estación y dos o tres letras que serán asignadas por Control Nacional de Radio. Los dígitos serán asignados de acuerdo a cada provincia de la siguiente forma:
-Provincia | Distrito
+Provincia | *Dígito *(Así reformado por el artículo 4° del decreto ejecutivo N° 32168 del 22 de octubre del 2004)
 San José | 2
 Cartago | 3
 Heredia | 4
