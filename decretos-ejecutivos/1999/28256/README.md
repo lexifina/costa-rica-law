@@ -14,3 +14,4 @@ Pone en Vigor Medidas Salvaguardia por Precio (SGE) a Importaciones Arroz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-15 | la propia norma |
+| 2 | 1999-11-15 | SINALEVI (sin norma nombrada) |
