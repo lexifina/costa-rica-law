@@ -1,0 +1,1 @@
+ARTICULO 47.- La venta de las materias primas con acción farmacológica y medicamentos por parte de las droguerías, se efectuará únicamente a patentados de establecimientos farmacéuticos. Las drogas tóxicas y las que inducen a la farmacodependencia sólo podrán ser vendidas al público de conformidad con las disposiciones establecidas por la Ley General de Salud y sus Reglamentos.

@@ -1,0 +1,1 @@
+ARTICULO 28.- La Junta Directiva fijará mediante un reglamento las horas que debe permanecer el regente en los establecimientos farmacéuticos de acuerdo con la índole de éstos y para asegurar el óptimo servicio profesional al público.

@@ -1,0 +1,1 @@
+ARTICULO 32.- El cargo de regente de establecimientos farmacéuticos es incompatible con cualquier otro empleo público o privado que necesite para su desempeño las mismas horas señaladas para su regencia.

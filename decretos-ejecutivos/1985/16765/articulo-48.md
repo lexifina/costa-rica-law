@@ -1,0 +1,1 @@
+ARTICULO 48.- El Ministerio oyendo previamente el criterio del Colegio, elaborará la lista de productos que se expenderán en los establecimientos comerciales no farmacéuticos, línea popular, los que deben estar debidamente registrados en el Departamento. En el caso de medicamentos para uso veterinario, será también consultado el Colegio de Médicos Veterinarios.

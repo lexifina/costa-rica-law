@@ -1,0 +1,1 @@
+ARTICULO 62.- El Ministerio y el Colegio, serán los únicos encargados de investigar en las áreas que a cada uno le corresponde, si este Reglamento se cumple, así como también serán los únicos encargados de investigar si se cumplen las disposiciones que ellos dicten al amparo de las leyes y reglamentos.

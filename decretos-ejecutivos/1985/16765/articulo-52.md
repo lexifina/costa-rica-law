@@ -1,0 +1,1 @@
+ARTICULO 52.- Las personas que en los establecimientos farmacéuticos se ocupen en la fabricación o manipulación de drogas y medicamentos deberán cumplir con las buenas prácticas de higiene y manufactura.

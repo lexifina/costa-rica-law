@@ -1,0 +1,1 @@
+ARTICULO 30.- El regente farmacéutico por vía de excepción previo acuerdo de la Junta Directiva del Colegio, podrá delegar las funciones de la regencia, en otro farmacéutico (regente suplente), siendo ambos solidariamente responsables.

@@ -1,0 +1,1 @@
+ARTICULO 29.- Cuando el regente debe ausentarse temporalmente de su cargo, ya sea por vacaciones o por cualquier motivo justo, informará por escrito previamente a la Fiscalía del Colegio, indicando quién será el sustituto y éste deberá comunicar la aceptación del cargo con todos los derechos y obligaciones.

@@ -1,0 +1,1 @@
+ARTÍCULO 22.- Los establecimientos exclusivamente de medicamentos para uso veterinario, en casos especiales pueden ser regentados por médico veterinario. Todo de acuerdo con el artículo 96 de la Ley General de Salud.

@@ -1,0 +1,1 @@
+ARTICULO 55.- Toda persona que mantenga o almacene medicamentos o cosméticos que contengan medicamento, deberá utilizar lugares, condiciones, equipo, procedimientos, envases y embalajes adecuados que impidan su deterioro y adulteración.

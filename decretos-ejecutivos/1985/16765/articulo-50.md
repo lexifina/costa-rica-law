@@ -1,0 +1,1 @@
+ARTICULO 50.- Regirán como dosis máximas de medicamentos, las señaladas en los libros oficiales. Las prescripciones médicas con sobredosis, sólo podrán ser despachadas si éstas contienen la indicación “Q R” (quantun rectun), ratificada por la firma del médico que la prescribe.

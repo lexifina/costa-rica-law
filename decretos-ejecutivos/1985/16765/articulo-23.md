@@ -1,0 +1,1 @@
+ARTICULO 23.- El propietario o representante legal del establecimiento está obligado a colocar en lugar visible, el certificado que suministrará la Fiscalía del Colegio, indicando el nombre del regente y el horario de regencia.

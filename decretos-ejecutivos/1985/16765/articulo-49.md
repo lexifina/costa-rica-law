@@ -1,0 +1,1 @@
+ARTICULO 49.- Los medicamentos estupefacientes y psicotrópicos y los medicamentos declarados de uso restringido, para su despacho, deberán guardarse en áreas separadas, bajo la responsabilidad del regente.

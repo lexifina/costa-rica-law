@@ -1,0 +1,1 @@
+ARTICULO 63.- El presente Reglamento deroga en todos sus extremos al Reglamento de Establecimientos Farmacéuticos, promulgado por Decreto número 14 del 12 de diciembre de 1945 y su reforma promulgada por Decreto número 74037-S del 2 de noviembre de 1983 y cualquier otro Decreto que se le oponga.

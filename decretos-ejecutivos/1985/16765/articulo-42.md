@@ -1,0 +1,1 @@
+ARTICULO 42.- La prescripción al público de los psicotrópicos sólo podrá hacerse en la receta médica oficial para psicotrópicos o receta blanca con duplicado según Decreto número 8361-SPPS, publicado en el Alcance número 72, a “La Gaceta” número 82 del 28 de abril de 1978.

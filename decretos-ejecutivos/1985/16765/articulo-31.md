@@ -1,0 +1,2 @@
+ARTICULO 31.- Toda renuncia al cargo de regente deberá comunicarse a la Fiscalía con dos semanas de anticipación al día en que hará efectiva la renuncia, debiendo depositar en aquello el respectivo certificado de regencia.
+Durante este lapso, el propietario del establecimiento o representante legal del mismo, deberá nombrar a quien haya de reemplazarlo de acuerdo con lo establecido en este reglamento. El Colegio informará de todo ello al Departamento.

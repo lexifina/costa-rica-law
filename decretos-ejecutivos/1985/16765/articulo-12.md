@@ -1,0 +1,1 @@
+ARTICULO 12.- Es obligatorio que los dueños de establecimientos farmacéuticos privados comuniquen con 15 días de antelación al Colegio: Cese de la regencia autorizada por el Colegio, cambio de razón social, vacaciones del regente y sustituto, traslado o cierre del establecimiento y compra-venta del establecimiento.

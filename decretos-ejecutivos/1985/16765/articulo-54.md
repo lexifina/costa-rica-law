@@ -1,0 +1,1 @@
+ARTICULO 54.- Queda prohibida la importación, uso o suministro de medicamentos que se encuentren en proceso de experimentación, salvo en las condiciones, circunstancias o por el tiempo que el Ministerio autorice.

@@ -1,0 +1,1 @@
+ARTICULO 61.- Toda concesión de patentes para la apertura de establecimientos farmacéuticos y el funcionamiento de ellos, estará supeditado al fiel cumplimiento de lo prescrito en el presente Reglamento.

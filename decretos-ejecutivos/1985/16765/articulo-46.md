@@ -1,0 +1,1 @@
+ARTICULO 46.- Las drogas, productos químicos para uso en farmacia y medicamentos, deben conservarse según las instrucciones de los respectivos libros oficiales. El regente controlará personalmente estos productos a fin de eliminar los que estén deteriorados o vencidos.
