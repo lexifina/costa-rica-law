@@ -1,1 +1,2 @@
-Art. 53.—Las pensiones expresadas en el artículo 50, no podrán ser acordadas antes de diez años de promulgada esta ley.
+Artículo 53.—Con los intereses del capital consolidado hasta hoy, se comenzará a pagar esas pensiones, dando preferencia a las solicitudes de los maestros enfermos y a los que acrediten mayor cantidad de años de servicio. Estas solicitudes serán tramitadas en la Secretaría de Instrucción Pública conforme esta ley.
+(Así reformado por el artículo 1° de la ley N° 59 del 21 de agosto de 1916. De conformidad con lo que establece el numeral 4 de la ley referida este numeral empezará a regir en enero de 1917)
