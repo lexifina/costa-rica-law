@@ -114,3 +114,5 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificado el límite de gasto presupuestario y efectivo de la Compañia Nacional de Fuerza y Luz para el año 2002, por el artículo 1 del Decreto Ejecutivo N° 29864 de 24 de setiembre del 2001)
 (Modificado el límite de gasto presupuestario y efectivo del Consejo Nacional de Producción para el año 2002, por el artículo 1 del Decreto Ejecutivo N° 29905 de 04 de octubre del 2001)
 (Modificado el límite de gasto presupuestario y efectivo de la Junta de Protección Social de San José, por el artículo 1 del Decreto Ejecutivo N° 29904 de 08 de octubre del 2001)
+(Modificado el límite de gasto presupuestario y efectivo para el Consejo Nacional para Investigaciones Científicas y Tecnológicas , por el artículo 1 del Decreto Ejecutivo N° 29912 de 9 de octubre del 2001)
+(Modificado el límite de gasto presupuestario y efectivo del Instituto de Fomento y Asesoría Municipal, por el artículo 1 del Decreto Ejecutivo N° 29924 de 9 de octubre del 2001)
