@@ -1,3 +1,4 @@
 ARTICULO 19
 Denuncia
-1.—A efecto de la denuncia del presente Protocolo, se aplicará lo previsto en el artículo 19 del Convenio, excepto con respecto a las Partes de que habla el párrafo 1 del artículo 5. Dichas Partes, mediante notificación por escrito transmitida al Depositario, podrán denunciar este Protocolo cuatro años después de haber asumido las obligaciones prescritas en los párrafos 1 a 4 del artículo 2. Toda denuncia surtirá año después de la fecha en la cual el Depositario haya recibido la notificación o en aquella fecha posterior que se especifique en la denuncia.
+1.—Cualquiera de las Partes podrá denunciar el presente Protocolo mediante notificación por escrito transmitida al Depositario una vez transcurrido un plazo de cuatro años después de haber asumido las obligaciones establecidas en el párrafo 1 del artículo 2A. Esa denuncia surtirá efecto un año después de la fecha en que haya sido recibida por el Depositario o en la fecha posterior que se indique en la notificación de la denuncia.
+(Así reformado por el artículo 1° punto X de la Ley N° 7808 del 11 de junio de 1998)

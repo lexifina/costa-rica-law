@@ -14,7 +14,8 @@ c) Decidir la adición, la inclusión o la supresión de sustancias en los anexo
 d) Establecer, cuando sea necesario, directrices o procedimientos para la presentación de información con arreglo a lo previsto en el artículo 7 y en el párrafo 3 del artículo 9;
 e) Examinar las solicitudes de asistencia técnica formuladas de conformidad con el párrafo 2 del artículo 10;
 f) Examinar los informes preparados por la Secretaría de conformidad con lo previsto en el inciso c) del artículo 12;
-g) Evaluar, de conformidad con lo dispuesto en el artículo 6, las medidas de control previstas en el artículo 2;
+g) Evaluar, de conformidad con lo dispuesto en medidas de control;
+(Así reformado por el artículo 1° punto V y 2° anexo III punto CC de la Ley N° 7808 del 11 de junio de 1998).
 h) Examinar y aprobar, cuando proceda, propuestas relativas a la enmienda de este Protocolo;
 i) Examinar y aprobar el prepuesto para la aplicación de este Protocolo; y
 j) Examinar y adoptar cualesquiera otras medidas que puedan requerirse para alcanzar los fines de este Protocolo.
