@@ -1,0 +1,3 @@
+Adición al artículo final del Reglamento para la Administración y Control de los Recursos Económicos girados por el Fondo para la niñez y la adolescencia.
+La Junta Directiva en Sesión Ordinaria 2002-0066 celebrada el lunes 26 de agosto del 2002, artículo 018), inciso A) aparte 01):SE ACUERDA:
+Adicionar al acuerdo tomado en la sesión ordinaria 2002-50, artículo 3) aparte 01) en el "Artículo Final" antes de "publíquese", lo siguiente: "...y el reglamento aprobado por acuerdo de Junta Directiva, del Artículo 006) Aparte 01) de la Sesión Ordinaria 2001-0060 del 06 de agosto del 2001 y cualquiera otras disposiciones internas que se le opongan".
