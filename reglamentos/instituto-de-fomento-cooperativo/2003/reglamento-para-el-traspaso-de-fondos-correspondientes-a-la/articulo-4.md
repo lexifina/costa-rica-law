@@ -1,0 +1,7 @@
+Artículo 4º—Dentro de los primeros ocho días hábiles del mes siguiente al recibo de la petición a la cual se refiere este artículo o de determinado el devengo, el INFOCOOP depositará el equivalente al 5.33% del salario bruto de cada trabajador correspondiente al mes anterior al depósito, siempre y cuando el trabajador así lo haya solicitado expresamente mediante solicitud dirigida al Proceso de Desarrollo Humano, la cual contendrá:
+a. Calidades del empleado.
+b. El nombre de la organización autorizada en la que se depositen sus haberes.
+c. Manifestación expresa de que el empleado, con el depósito de por recibida, y en consecuencia, cancelada por parte del INFOCOOP la cesantía en el monto correspondiente a los depósitos que el INFOCOOP hubiese realizado, sin que ello exonere a la Institución de la responsabilidad que de conformidad con la Ley pueda caberle por el monto de la eventual diferencia entre lo que le corresponda al trabajador como auxilio de cesantía y lo que el INFOCOOP hubiere aportado.
+d. Manifestación expresa de que el empleado exime al INFOCOOP de cualquier responsabilidad que resulte de una administración culposa o dolosa de los fondos acreditados.
+e. Certificación que lo acredite como asociado activo de la organización autorizada en cuya cuenta corriente desea que se depositen las sumas.
+El giro del 3% de las sumas indicadas en el artículo 1º de este Reglamento, que corresponden al Fondo de Capitalización Laboral, se regirá por lo dispuesto en la Ley de Protección al Trabajador.

@@ -1,0 +1,1 @@
+Artículo 7º—En caso de cese de la relación laboral, se procederá de conformidad con el artículo 6º de la Ley de Protección al Trabajador en lo que corresponde a sumas del Fondo de Capitalización Laboral. En cuanto al resto de las sumas traspasadas, se aplicará lo dispuesto en el artículo 23 ch. iii de la Ley 7391.

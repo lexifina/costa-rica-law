@@ -1,0 +1,1 @@
+Artículo 3º—Las entidades deberán abrir una cuenta corriente en un Banco del Estado o en el Banco Popular y de Desarrollo Comunal, la que será exclusivamente para el depósito de esas sumas por parte del patrono y su retiro por parte de la organización.
