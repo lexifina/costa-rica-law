@@ -1,5 +1,5 @@
 (Derogado)
-(Esta ley fue derogada por el artículo 4° de la ley N° 68 del 13 de agosto de 1920 "Impuesto Destace y Exonera Importación Ganado Vacuno"
+(Esta ley fue derogada por el artículo 4° de la ley N° 68 del 13 de agosto de 1920 "Impuesto Destace y Exonera Importación Ganado Vacuno". Posteriormente mediante el artículo 1° de la ley N° 41 "Ley de Nulidades contra Normativa Emitida en Régimen de Tinoco" del 21 de agosto de 1920 se deroga nuevamente la presente norma)
 El Presidente Constitucional de la República de Costa Rica
 Por cuanto el Congreso Constitucional ha decretado lo siguiente:
 N° 4

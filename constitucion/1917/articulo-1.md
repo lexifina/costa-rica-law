@@ -1,6 +1,6 @@
 (Derogado)
 ASAMBLEA NACIONAL CONSTITUYENTE
-(Esta norma fue derogada por el artículo 1° de la ley N° 1 del 3 de setiembre de 1919. Posteriormente por el artículo 1° de la ley N° 4 del 29 de octubre de 1919, se declaró nula y de ningún valor ni efecto la presente norma)
+(Esta norma fue derogada por el artículo 1° de la ley N° 1 del 3 de setiembre de 1919. Posteriormente por el artículo 1° de la ley N° 4 del 29 de octubre de 1919, se declaró nula y de ningún valor ni efecto la presente norma. Subsiguientemente esta norma se declaró absolutamente nula por el artículo 1° inciso a) de la ley N° 41 del 21 de agosto de 1920, "Ley de Nulidades contra Normativa Emitida en Régimen de Tinoco")
 NOSOTROS, los Representantes del pueblo de Costa Rica, legítimamente convocados para rever la Constitución Política y proceder a su reforma total a fin de asegurar sobre bases sólidas el bien común y los beneficios de la libertad
 y de un Gobierno adoptado a las necesidades y conveniencias generales, decretamos y sancionamos la siguiente
 CONSTITUCION POLITICA
