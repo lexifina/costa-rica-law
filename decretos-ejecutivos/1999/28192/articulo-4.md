@@ -1,0 +1,3 @@
+Artículo 4°—Toda persona adolescente que trabaja por cuenta propia e independiente, y que cumple las condiciones especificadas en el artículo 2°, tiene derecho a un seguro de riesgos del trabajo subsidiado por el Instituto Nacional de Seguros.
+El subsidio consiste en un aporte del Instituto Nacional de Seguros de un veinticinco por ciento del monto de la prima del seguro que suscriba, hasta por el monto del salario mínimo legal.
+La tarifa que se aplicara a este seguro será de 1.89%. Esta tarifa y el porcentaje de subsidio pueden ser revisados anualmente por el Instituto Nacional de Seguros, a fin de ajustarlo a las condiciones económicas y de riesgo del grupo de personas subsidiadas.

@@ -1,0 +1,3 @@
+Articulo 22.—El asegurado cederá al Instituto, por el monto de la indemnización recibida, sus derechos frente a terceros y responderá por cualquier acto que perjudique dicha cesión.
+Tanto antes como después de cobrar la indemnización, el asegurado queda comprometido a intervenir personalmente, gestionar y documentarse en cuanto fuere indispensable o lo requiera el Instituto, con el objeto de que éste pueda ejercer los derechos, recursos y acciones derivadas o procedentes de la subrogación aquí prevista.
+El incumplimiento del asegurado faculta al Instituto para cobrarle la indemnización pagada.

@@ -1,0 +1,3 @@
+Artículo 25.—Cuando hubiere desacuerdo entre el Asegurado y el Instituto, respecto a la interpretación de las cláusulas del contrato y los beneficios otorgados, el Asegurado, podrá recurrir al Ministerio de Trabajo y Seguridad Social, quien nombrara un perito que analizara el conflicto conjuntamente con un técnico nombrado al efecto por el Instituto.
+Si el desacuerdo persiste ambas partes acordarán nombrar un tercer perito que consideren neutral y de amplio criterio para la resolución del conflicto. La impugnación de su resolución sólo es apelable ante los Juzgados de Trabajo.
+Si el desacuerdo se refiere a un dictamen médico emitido por el Instituto, el procedimiento administrativo será aquel que mencionan los artículos 261 y siguientes del Código de Trabajo.

@@ -1,0 +1,13 @@
+Artículo 17.—Las rentas a que se refiere el articulo anterior, se fijarán conforme al siguiente orden y condiciones:
+a) Una renta equivalente al 30% del ingreso asegurado, durante un plazo de diez años, para la madre que habitaba con él, sea ésta la madre biológica o la madre de crianza.
+La renta que se fije conforme a este inciso podrá elevarse al 40% del ingreso asegurado, si no hubieren beneficiarios de los que se citan en el inciso b) de este artículo.
+b) Una renta que se determinara con base en las disposiciones que luego se numeran, para las personas menores de edad que dependían económicamente de él y que hayan sido declarados como beneficiarios del seguro.
+La renta de las personas menores de edad se fijará con base en el ingreso asegurado, siendo del 30% si se trata de uno, del 40% a repartir entre dos y del 45% a distribuir entre tres o más.
+Esta renta se podrá aumentar cuando no exista beneficiarios con derecho de los señalados en el inciso a) anterior, a 35% si es uno, 60% para dos, 75% para tres o más.
+Las rentas que fija este inciso son por el tiempo que falte para que cumplan dieciocho años y podrán prorrogarse como máximo hasta los 25 años, cuando demuestren que están cursando estudios a un nivel de quinto año de secundaria o enseñanza superior universitaria, de acuerdo con los requisitos que señale el Instituto.
+c) Los demás beneficiarios señalados por el asegurado tendrán derecho a un porcentaje de renta equivalente al 10% del salario asegurado, ó menos, dependiendo del porcentaje remanente que no debe exceder la distribución del 75% del salario asegurado para el grupo familiar. El plazo para estas rentas es de 10 años.
+Todas las rentas fijadas con arreglo a los incisos anteriores podrán prorrogarse por periodos de 5 años. si se comprueba una dependencia económica de la misma.
+La caducidad de la renta, por cualquier causa o por muerte de un beneficiario de los comprendidos en esta cláusula, no configurara derecho a favor de ningún otro
+Todas las rentas a las que se refiere este capitulo y las establecidas por incapacidad parcial y total permanente, podrán actualizarse anualmente, por aumento en el costo de la vida, en la proporción y condiciones que define el Instituto, de acuerdo con la factibilidad técnica
+y de financiamiento de las reservas que garantizan estas obligaciones.
+Las rentas pueden ser conmutadas después de dos años de haber sido otorgadas La conmutación se aprobará, cuando existan razones justificadas y ventajosas que beneficien al rentista respecto del pago mensual de las rentas. Durante los primeros dos años, las rentas tendrán carácter provisional y los porcentajes de los beneficiarios podrán reajustarse, si se modificara el número de derecho-habientes.

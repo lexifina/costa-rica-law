@@ -1,0 +1,1 @@
+Articulo 23.—Los derechos y acciones para reclamar las prestaciones que establece el contrato prescriben en un año, contado desde el día en que ocurrió el accidente o en que el trabajador esté en capacidad de gestionar su reconocimiento, y en caso de muerte a partir del deceso. La prescripción en un año es aplicable también a los beneficiarios.

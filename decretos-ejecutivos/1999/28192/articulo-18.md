@@ -1,0 +1,1 @@
+Articulo 18.—E! asegurado puede solicitar la reapertura de su caso hasta en dos ocasiones, siempre y cuando no hayan transcurrido mas de treinta y seis meses desde la primera alta y no más de doce meses entre la primera y segunda solicitud de reapertura.

@@ -1,0 +1,2 @@
+Articulo 19.—Las prestaciones económicas reconocidas al amparo de este seguro, no excluyen el giro de ninguno de los beneficios establecidos en las leyes de jubilaciones, pensiones o subsidios de carácter general o especial.
+Si el accidente de trabajo es a la vez de transito, será amparado conforme a las prestaciones que otorga el Seguro Obligatorio de Vehículos Automotores. En este caso, el seguro para adolescentes de trabajo independiente cubre aquellas prestaciones no cubiertas por el de Vehículos Automotores.

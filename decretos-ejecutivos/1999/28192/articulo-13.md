@@ -1,0 +1,2 @@
+Artículo 13.—Las declaraciones consignadas en la solicitud se tendrán por incorporadas y formarán parte integrante del contrato de seguro.
+Cualquier cambio o variación en la naturaleza, condiciones o lugar de actividades declaradas para expedir el seguro, deberán ser puestas en conocimiento del Instituto, el cual podrá aplicar la tarifa correspondiente y cobrar el ajuste de prima de acuerdo con la variación producida. Los cambios o alteraciones de los términos de la póliza de seguro, sin consentimiento escrito del Instituto, automáticamente la anularán.

@@ -1,0 +1,3 @@
+Artículo 7°—El seguro cubre todo accidente que le ocurra al asegurado, a causa de las actividades laborales declaradas que ejecuta o como consecuencia directa e indudable de éstas, que puedan producirle lesión física o mental, o la muerte.
+Además quedan cubiertas las enfermedades resultantes de la ejecución de la actividad o como consecuencia del medio o condiciones en que se realiza, sujeta a comprobación por parte del Instituto Nacional de Seguros.
+Este seguro ampara los infortunios ocurridos al asegurado, conforme a sus actividades lucrativas, tiempo especificado para su ejecución, las cuales fueron declaradas en la solicitud y aceptadas por el Instituto.

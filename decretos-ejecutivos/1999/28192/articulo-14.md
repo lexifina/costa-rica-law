@@ -1,0 +1,1 @@
+Artículo 14.—En cada aniversario del contrato de seguro, sus condiciones podrán ser modificadas, considerando la frecuencia y gravedad de los accidentes ocurridos, así como la presencia de cualquier circunstancia relevante al momento de la renovación.

@@ -1,0 +1,1 @@
+Artículo 3°—Se define como trabajo independiente y por cuenta propia a todas aquellas actividades económicas para la producción de un bien o servicio, que ejecuta una persona directamente sin que medie relación obrero-patronal.
