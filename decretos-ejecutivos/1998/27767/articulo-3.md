@@ -1,0 +1,1 @@
+Artículo 3º—Deróguese el decreto ejecutivo el Nº 18458-MAG-S del 12 de agosto de 1988, visible a Diario Oficial "La Gaceta" Nº 190 del 6 de octubre de 1988 y el decreto ejecutivo Nº 19260-MAG-S del 11 de setiembre de 1989.
