@@ -1,0 +1,1 @@
+Artículo 4º—Comisión Institucional. Cada institución representada en la Comisión, contará con un grupo de apoyo que se denominará comisión institucional para facilitar la elaboración de planes y ejecutar acciones propias de su escenario institucional.

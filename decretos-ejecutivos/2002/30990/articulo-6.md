@@ -1,0 +1,1 @@
+Artículo 6º—Recursos de la Comisión para el cumplimiento de los fines. La Comisión identificará y gestionará recursos humanos, materiales y financieros para el cumplimiento de las actividades del plan de acción nacional de promoción de actividad física.

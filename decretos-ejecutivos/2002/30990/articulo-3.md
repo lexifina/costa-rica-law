@@ -1,0 +1,1 @@
+Artículo 3º—Participación en la Comisión por conveniencia. La Comisión, en razón de conveniencia y para asuntos específicos podrá invitar o integrar a las reuniones a representantes de otras comisiones, de organizaciones no gubernamentales o representantes de otros sectores nacionales u organismos internacionales.
