@@ -1,0 +1,1 @@
+Artículo 4º.- Para los efectos del artículo anterior, el Instituto Geográfico Nacional, la Municipalidad de Nicoya y la Asociación de Desarrollo Integral de Hojancha, nombrarán una Comisión Conjunta con dos delegados de cada parte, en un término no mayor de seis meses.
