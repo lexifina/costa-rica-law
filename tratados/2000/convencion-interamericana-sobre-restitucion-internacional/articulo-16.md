@@ -1,0 +1,2 @@
+Artículo 16
+Después de haber sido informadas del traslado ilícito de un menor o de su retención en el marco del artículo 4º, las autoridades judiciales o administrativas del Estado Parte a donde el menor ha sido trasladado o donde está retenido, no podrán decidir sobre el fondo del derecho de guarda hasta que se demuestre que no se reúnen las condiciones de la Convención para un retorno del menor o hasta que un período razonable haya transcurrido sin que haya sido presentada una solicitud de aplicación de esta Convención.

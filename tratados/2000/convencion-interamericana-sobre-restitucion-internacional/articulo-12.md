@@ -1,0 +1,4 @@
+Artículo 12
+La oposición fundamentada a la que se refiere el artículo anterior deberá presentarse dentro del término de ocho días hábiles contados a partir del momento en que la autoridad tomare conocimiento personal del menor y lo hiciere saber a quien lo retiene.
+Las autoridades judiciales o administrativas evaluarán las circunstancias y las pruebas que aporte la parte opositora para fundar la negativa. Deberán enterarse del derecho aplicable y de los precedentes jurisprudenciales o administrativos existentes en el Estado de la residencia habitual del menor, y requerirán, en caso de ser necesario, la asistencia de las autoridades centrales, o de los agentes diplomáticos o consulares de los Estados Parte.
+Dentro de los sesenta días calendario siguientes a la recepción de la oposición, la autoridad judicial o administrativa dictará la resolución correspondiente

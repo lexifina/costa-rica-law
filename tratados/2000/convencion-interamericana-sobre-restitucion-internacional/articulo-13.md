@@ -1,0 +1,3 @@
+Artículo 13
+Si dentro del plazo de cuarenta y cinco días calendario desde que fuere recibida por la autoridad requirente la resolución por la cual se dispone la entrega, no se hubieren tomado las medidas necesarias para hacer efectivo el traslado del menor, quedarán sin efecto la restitución ordenada y las providencias adoptadas.
+Los gastos del traslado estarán a cargo del actor; en caso de que este careciere de recursos económicos, las autoridades del Estado requirente podrán facilitar los gastos del traslado, sin perjuicio de repetir los mismos contra quien resultare responsable del desplazamiento o retención ilegal.

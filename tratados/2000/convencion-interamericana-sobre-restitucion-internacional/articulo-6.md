@@ -1,0 +1,4 @@
+Artículo 6
+Son competentes para conocer de la solicitud de restitución de menores a que se refiere esta Convención, las autoridades judiciales o administrativas del Estado Parte donde el menor tuviere su residencia habitual inmediatamente antes de su traslado o de su retención.
+A opción del actor y cuando existan razones de urgencia, podrá presentarse la solicitud de restitución ante las autoridades del Estado Parte en cuyo territorio se encontrare o se supone se encontrare el menor ilegalmente trasladado o retenido, al momento de efectuarse dicha solicitud; igualmente, ante las autoridades del Estado Parte donde se hubiere producido el hecho ilícito que dio motivo a la reclamación.
+El hecho de promover la solicitud bajo las condiciones previstas en el párrafo anterior no conlleva modificación de las normas de competencia internacional definidas en el primer párrafo de este artículo.

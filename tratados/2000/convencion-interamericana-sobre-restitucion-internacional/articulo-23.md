@@ -1,0 +1,4 @@
+Artículo 23
+La tramitación de los exhortos o solicitudes contemplados en la presente Convención y las medidas a que diere lugar, serán gratuitas y estarán exentas de cualquier clase de impuesto, depósito o caución, cualquiera que sea su denominación.
+Si los interesados en la tramitación del exhorto o solicitud hubieren designado apoderado en el foro requerido, los gastos y honorarios que ocasionare el ejercicio del poder que otorgue, estarán a su cargo.
+Sin embargo, al ordenar la restitución de un menor conforme a lo dispuesto en la presente Convención, las autoridades competentes podrán disponer, atendiendo a las circunstancias del caso, que la persona que trasladó o retuvo ilegalmente al menor pague los gastos necesarios en que haya incurrido el demandante, los otros incurridos en la localización del menor, así como las costas y gastos inherentes a su restitución.
