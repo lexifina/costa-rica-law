@@ -17,3 +17,4 @@ Crea Comisión de Enlace entre las Instituciones de Educación Superior, los Pod
 | 2 | 1980-07-02 | Decreto Ejecutivo 11644 (1980-07-02) |
 | 3 | 1986-07-01 | Decreto Ejecutivo 17095 (1986-07-01) |
 | 4 | 1991-01-14 | Decreto Ejecutivo 20263 (1991-01-14) |
+| 5 | 1998-06-08 | Decreto Ejecutivo 27104 (1998-06-08) |
