@@ -1,0 +1,15 @@
+# Decreto Ejecutivo 24037
+
+Reglamento Sobre Protección Contras las Radiaciones Ionizantes
+
+- Tipo: Decreto Ejecutivo
+- Número: 24037
+- Fecha: 1994-12-22
+- Publicación: La Gaceta N° 48 del 1995-03-08
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=15464&param2=16578&param3=1 (ficha 15464)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1995-03-08 | la propia norma |
