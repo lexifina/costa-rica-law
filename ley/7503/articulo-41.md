@@ -19,4 +19,5 @@ inmediatamente después de nombrada y estará en funciones hasta que sus
 miembros sean reemplazados por la siguiente Junta Directiva. Este
 reemplazo se efectuará parcialmente.
 TRANSITORIO III.- El Vicepresidente y los Vocales segundo y tercero
-que se elijan la primera vez permanecerán en sus funciones durante un año.
+que se elijan la primera vez permanecerán en sus funciones durante un
+año.

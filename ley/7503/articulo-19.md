@@ -10,8 +10,8 @@ d) Examinar los registros de la tesorería.
 e) Integrar comisiones para desempeñar labores especiales del
 Colegio.
 f) Promover congresos nacionales e internacionales de investigación
-científica, planificación y resolución de problemas, en las especialidades
-profesionales de sus miembros.
+científica, planificación y resolución de problemas, en las
+especialidades profesionales de sus miembros.
 g) Promover el intercambio intelectual de sus miembros con los de
 otras corporaciones afines.
 h) Conocer y resolver las solicitudes de ingreso.
@@ -30,8 +30,8 @@ n) Integrar las ternas y entregarlas cuando las instituciones
 públicas soliciten los servicios de miembros activos del Colegio.
 ñ) Preparar la memoria anual y presentarla, para su examen y
 aprobación, a la Asamblea General ordinaria.
-o) Resolver las cuestiones de orden interno del Colegio, que no estén
-expresamente reservadas para la Asamblea General.
+o) Resolver las cuestiones de orden interno del Colegio, que no
+estén expresamente reservadas para la Asamblea General.
 p) Fijar los sueldos y los honorarios de los servidores del Colegio
 que desempeñen cargos remunerados.
 q) Otras funciones que se estipulen en la ley y los reglamentos le
