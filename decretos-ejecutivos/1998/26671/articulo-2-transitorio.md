@@ -1,0 +1,1 @@
+Transitorio II.—Las entidades o personas que operan actualmente alguna piscina pública y de uso de grupos habitacionales, se les concede un plazo de dos años para ajustarse a las disposiciones de este Reglamento.

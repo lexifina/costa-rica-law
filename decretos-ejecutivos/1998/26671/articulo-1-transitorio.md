@@ -1,0 +1,1 @@
+Transitorio I.—Se otorga un plazo de dos años a partir de la publicación de este Reglamento para que los operadores actuales de piscinas, realicen el curso de capacitación sobre el manejo de piscinas a que alude el artículo 3° de este Reglamento.
