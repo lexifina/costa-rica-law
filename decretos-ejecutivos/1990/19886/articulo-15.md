@@ -1,15 +1,30 @@
-Artículo 15.-Son funciones del Departamento de Financiamiento Forestal:
-a) Asistir y asesorar al Director y Subdirector Forestal en la ejecución de políticas y directrices de financiamiento dirigidas al Sector Forestal.
-b) Planificar y coordinar la formulación de las estrategias para el financiamiento de proyectos de desarrollo forestal.
-c) Supervisar y evaluar la ejecución y resultados de los proyectos financiados con el Fondo Forestal y otras fuentes de financiamiento.
-ch) Establecer los mecanismos de seguimiento, evaluación y control de la actividad forestal financiada mediante el Fondo Forestal y otras fuentes de financiamiento.
-d) Asesorar a las organizaciones regionales no gubernamentales usuarios de los fideicomisos y otros, sobre la utilización del financiamiento de la DGF en actividades forestales, de acuerdo con las políticas que dicte la Dirección, como prioritarias en el sector.
-e) Establecer y mantener actualizado un banco de información sobre el estado y avance de las actividades financiadas.
-f) Revisa, formular, recomendar y establecer normas y requisitos para la presentación, trámite y control, de las solicitudes del financiamiento de las actividades forestales que presente las municipalidades, las organizaciones regionales no gubernamentales y los demás usuarios de los diferentes tipos de financiamiento.
-g) Aprobar y supervisar los proyectos y actividades forestales financiadas con el fondo de municipalidades y de otras organizaciones forestales, provenientes de los artículos 21, 22, 23 y 24 de la Ley Forestal y su Reglamento.
-h) Manejar y dar seguimiento a todas las líneas de financiamiento de desarrollo forestal que para tales efectos fueron establecidas.
-i) Desarrollar y mejorar los mecanismos de colocación, manejo, seguimiento y recuperación de los fondos otorgados mediante el financiamiento forestal.
-j) Establecer los mecanismos necesarios para el mejor de los fondos en fideicomiso con el Sistema Bancario Nacional, que permitan una mayor seguridad de análisis y uso de los mismos.
-k) Coordinar y supervisar las actividades que se ejecutan en las oficinas regionales relacionadas con el crédito forestal, con el fondo de municipalidades y organizaciones forestales, y otros fondos de financiamiento destinado a las actividades forestales.
-l) Promover el diseño y desarrollo de nuevos programas para financiamiento forestal.
-ll) Otras que le asigne el Director y Subdirector Forestal.
+Artículo 15.- El Departamento de Planificación estará integrado por una Sección de Planificación Estratégica y Operativa, Sección de Monitoreo Recurso Forestal y una sección de Cómputo.
+Son funciones del Departamento de Planificación según sus Secciones.
+1 -SECCIÓN DE PLANIFICACIÓN ESTRATÉGICA Y OPERATIVA
+a.- Promover y participar en la elaboración de diagnósticos relacionados con el sector forestal.
+b.- Mantener la coordinación directa con la Dirección General de Planificación y Cooperación Internacional y así también, coordinar con otras dependencias del Ministerio y del Estado que tengan relación con la planificación forestal o de otros sectores afines.
+c.- Participar en la elaboración del plan Nacional de Desarrollo Forestal.
+d.-Coordinar y participar en estudios específicos de planificación forestal.
+e.- Definir las directrices, coordinar y participar en la elaboración de los planes anuales operativos de la DGF.
+f.- Dar seguimiento y evaluar los planes anuales operativos.
+g.- Recomendar a la Dirección modificaciones en la estructura organizativa y operativa de la DGF.
+h.- Participar en la elaboración de los manuales de procedimientos de la institución.
+i.- Participar en la elaboración y distribución del presupuesto DGF.
+j.- Dar seguimiento y evaluar la ejecución presupuestaria.
+k.- Identificar las prioridades de la institución para el financiamiento de proyectos con fondos externos.
+l.- Mantener actualizado el inventario de proyectos.
+m.- Cualquier otra que le asignen el Director o Subdirector General Forestal.
+2-SECCION DE MONITOREO DEL RECURSO FORESTAL
+a.- Evaluar y analizar la cobertura hoscosa del país.
+b.- Clasificar la vegetación para el manejo del bosque tropical.
+c.- Elaborar y mantener actualizado el inventario forestal del país.
+d.- Establecer y mantener actualizada una base de datos sobre recursos forestales y recursos asociados mediante el uso de un Sistema de Información Geográfico (SIG).
+e.- Coordinar con la Dirección General de Planificación y Cooperación Internacional y con diversos organismos e instituciones aspectos relacionados con Sensores Remotos y Sistemas de Información Geográficos (SIG).
+f.- Cualquier otra que le asigne el Director o Subdirector General Forestal.
+3-SECCIÓN DE CÓMPUTO
+a.- Planificar, coordinar y evaluar el desarrollo de un proceso de automatización técnica y administrativa de la DGF.
+b.- Análisis y desarrollo de sistemas de información.
+c.- Administrar los recursos computacionales.
+d.- Brindar asesoría técnica y coordinar con otras dependencias aspectos relacionados con el área de Informática.
+e.- Cualquier otra que le asigne el Director o Subdirector General Forestal.
+(Así reformado por el artículo 8° del decreto ejecutivo N° 22840 del 24 de enero de 1994)

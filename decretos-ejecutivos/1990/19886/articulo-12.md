@@ -1,14 +1,16 @@
-Artículo 12.-Son funciones del Departamento de Desarrollo Forestal Campesino:
-a) Promover la organización de la población campesina para su incorporación al desarrollo forestal y para su equitativa participación en los beneficios generados por los recursos forestales.
-b) Promover dentro de la población rural cambios tendientes a propiciar mayor conciencia hacia los valores de los recursos naturales y generar una nueva cultura forestal.
-c) Promover ante el Ministerio de Educación Pública la inclusión dentro de los programas de estudio de primera y segunda enseñanza, un subprograma permanente de educación sobre la importancia de laconservación de los recursos naturales renovables.
-ch) Promover la elaboración de estudios socioeconómicos y promover de asistencia y apoyo a los grupos organizados de campesinos y comunidades rurales para la elaboración y ejecución de proyectos forestales específicos tendientes al mejoramiento de su nivel de vida.
-d) Dar seguimiento a los recursos financieros destinados a los pequeños y medianos campesinos agrupados en organizaciones forestales.
-e) Elaborar y ejecutar programas de extensión forestalprincipalmente dirigidos a orientar y estimular la participación de comunidades y/o grupos campesinos organizados en actividades de desarrollo con ‚énfasis en lo forestal.
-f) Establecer las normas y procedimientos de operación del departamento y los mecanismos de revisión periódica.
-g) Extender los certificados y/o autorización de calidad y sanidad de semilla y demás productos forestales.
-h) Elaborar programas interinstitucionales de investigación forestal y su mecanismo de ejecución.
-i) Apoyar a los departamentos y oficinas regionales a través del suministro de información generada por medio de las investigaciones desarrolladas.
-j) Mantener actualizados los registros sobre las investigaciones que se realizan.
-k) Otras que le asigne el Director o el Subdirector General Forestal.
-(Así reformado por el artículo 9° del decreto ejecutivo N° 20618 del 12 de julio de 1991)
+Artículo 12.- El Departamento de Desarrollo Industrial, estará integrado por la Sección de Fomento a la Industria Forestal y la Sección de Supervisión y Control.
+Son funciones del Departamento de Desarrollo Industrial, según sus secciones:
+1.-SECCION FOMENTO A LA INDUSTRIA FORESTAL
+a.-Promover y fomentar el desarrollo de la industria forestal nacional, de manera integrada y teniendo como meta el rendimiento sostenible de los recursos forestales.
+b.-Promover la adecuada industrialización de los recursos forestales, de manera que su eficiencia máxima el aprovechamiento de la materia prima.
+c.-Coordinar y fomentar la formulación y uso de normas de clasificación de madera.
+d.-Realizar un estudio de mercadeo de productos forestales y así contribuir en la búsqueda de alternativas para la utilización de la materia prima.
+e.- Otras que la Dirección General y Subdirección le asignen.
+2-SECCIÓN SUPERVISIÓN Y CONTROL DE LA INDUSTRIA FORESTAL
+a.- Elaborar el manual de procedimientos del Departamento.
+b.- Tramitar solicitudes de instalación, funcionamiento, traslado y otras relacionadas con la industria forestal.
+c.- Recibir, analizar y tramitar las solicitudes de importación y exportación de productos madereros.
+d.- Coordinar con las Oficinas Forestales Regionales, en el control de la madera que llega al patio de la industria.
+e.- Elaborar informes sobre la situación de la industria forestal con base en visitas periódicas y en la información estadística que recibe de los propios industriales forestales.
+d.- Otras que la Dirección General y Subdirección le asignen.
+(Así reformado por el artículo 6° del decreto ejecutivo N° 22840 del 24 de enero de 1994)

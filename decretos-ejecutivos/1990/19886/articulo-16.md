@@ -1,18 +1,21 @@
-Artículo 16.- Son funciones del Departamento de Servicios Técnicos:
-a) Realizar interpretación de fotografías áreas y otros productos de sensores remotos, con el fin de determinar áreas boscosas del país.
-b) Analizar y tramitar los planes reguladores y los estudios de impacto ambiental en áreas boscosas y de aptitud forestal fuera de las reas de conservación.
-c) Confeccionar y elaborar mapas, gráficos, organigramas y dibujos, entre otros, para fines de extensión y divulgación relacionados con el recurso forestal.
-ch) Efectuar estudios sobe tenencia de la tierra, levantamiento topográfico y de agrimensura en todo el país, para fines de manejo del recurso natural.
-d) Tramitar y otorgar visados y certificaciones para efectos de cumplir con lo establecido en la Ley de Catastro Nacional y Ley de Informaciones Posesorias.
-e) Preparar el catálogo de utilidades públicas.
-f) Efectuar estudios de capacidad de uso del suelo, según políticas de la Dirección General Forestal.
-g) Evaluar y tramitar solicitudes de clasificación de terrenos forestales, según su aptitud de uso permanente, de acuerdo con lo establecido en el artículo 65 de este reglamento.
-h) Determinar las áreas de aptitud forestal en las propiedades estatales.
-i) Establecer anualmente rea de cobertura boscosa de bosques naturales y de plantaciones forestales.
-j) Coordinar la ejecución del inventario forestal nacional y su actualización periódica.
-k) Establecer un sistema geográfico de información para monitoreo del recurso forestal del país.
-l) Realizar los estudios correspondientes para la creación y/o modificación de nuevas reservas forestales y zonas protectoras.
-m) Tramitar la incorporación al patrimonio forestales del Estado, los terrenos forestales y bosques administrados por otras instituciones públicas.
-n) Preparar proyectos de inversión y manejos de las reas bajo su administración.
-ñ) Otras que le sean asignadas por el Director o el Subdirector General Forestal.
-(Así reformado por el artículo 10 del decreto ejecutivo N° 20618 del 12 de julio de 1991)
+Artículo 16.- El Departamento Financiamiento Forestal estará integrado por una Sección de Control y Registros y una Sección de Crédito y Proyectos.
+Son funciones del Departamento Financiamiento Forestal según sus secciones:
+1 .-SECCIÓN CONTROL Y REGISTROS
+a.- Administrar y mantener actualizados los presupuestos operativos de los Fideicomisos.
+b.- Controlar los estados financieros de las diferentes fuentes de financiamiento que se administran en coordinación con el Sistema Bancario Nacional u otras instituciones.
+e.- Tramitar la confección de desembolsos, cheques y otros títulos para los proyectos forestales financiados.
+d.- Establecer y mantener actualizado un banco de información sobre el estado y avance de las actividades financiadas.
+e.- Otras que la Dirección General y Subdirección le asignen.
+2-SECCION CRÉDITO Y PROYECTOS
+a.- Coordinar la formulación de estrategias para el financiamiento de proyectos de desarrollo forestal inclusive para el manejo de los Recursos Naturales.
+b.- Establecer los requisitos de presentación, así como los mecanismos de seguimiento evaluación y control de la actividad forestal financiada mediante el fondo forestal, los fideicomisos vigentes, así como de otras fuentes de financiamiento forestal (Manuales Operativos, Contratos, Convenios, Reglamentos).
+c.- Coordinar con las Oficinas Regionales la política a seguir en el Financiamiento Foresta!.
+d.- Promover el uso de los diferentes Recursos para financiar actividades forestales.
+e.- Preparar programas de información orientados a incentivar el uso y aplicación de los Recursos disponibles.
+f.- Asistir y asesorar al Director General y Subdirector Forestal en la ejecución de políticas y directrices de financiamiento dirigidas al Sector Forestal,
+g.- Asesorar a las organizaciones regionales no gubernamentales usuarios de los fideicomisos y otros, sobre la utilización del financiamiento de la DGF., en actividades forestales, de acuerdo con las políticas que dicte la Dirección , como prioridades en el sector.
+h.- Aprobar los proyectos y actividades forestales financiadas con el fondo de municipalidades y de organizaciones forestales, según el artículo 21 de la Ley Forestal.
+i. Coordinar, supervisar y evaluar las actividades que se ejecutan relacionadas con el crédito forestal, con el fondo de municipalidades y organizaciones forestales, y otros fondos de financiamiento destinado a las actividades forestales en coordinación con las oficinas regionales.
+j.- Recomendar la aprobación o no de las solicitudes de financiamiento forestal de las diferentes líneas de crédito que se administran a través del Depto.
+k.- Otras que la Dirección General y Subdirección le asignen.
+(Así reformado por el artículo 9° del decreto ejecutivo N° 22840 del 24 de enero de 1994)
