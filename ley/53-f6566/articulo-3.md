@@ -1,0 +1,1 @@
+Art. 3. Espirando el plazo que se prefija, se destruirà el troquel con que se han marcado, para evitar la habilitacion de nueras cantidades de dicha especie; debiendo correr las que no lleven semejante contraseña á razon de real y medio cada pieza.
