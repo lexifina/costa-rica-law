@@ -1,0 +1,1 @@
+Artículo 3° El Poder Ejecutivo pagará a los introductores el valor del pasaje y gastos de equipaje de los inmigrantes hasta cualquiera de nuestros puertos, cuando dichos inmigrantes hayan permanecido dos años por menos en el país y llenado las condiciones reglamentarias.
