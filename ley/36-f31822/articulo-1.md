@@ -1,4 +1,6 @@
+(Derogado)
 N° 36
+(Esta norma fue derogada por el artículo 47 de la ley N° 33 del 18 de diciembre de 1943, Código Sanitario”)
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA
 DECRETA:
 La siguiente
