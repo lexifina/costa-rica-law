@@ -1,0 +1,1 @@
+Art. 14°—La Comisión calificadora tendrá facultad de proponer á la Municipalidad los motivos que excusen del pago de las contribuciones establecidas, cuando algún interesado lo solicitare, y encontrare razones de equidad que justifique la excusa á fin de que se le exonere del pago.

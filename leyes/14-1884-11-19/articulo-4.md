@@ -1,0 +1,1 @@
+Art. 4°—Las alteraciones que se hicieren por la Comisión en los libros de calificación, bien sea imponiendo gravamen á establecimientos no incluídos en ella, aumentando, disminuyendo ó suprimiendo el impuesto, se publicarán cada dos meses. De estas alteraciones se dará cuenta inmediatamente á la Municipalidad para su conocimiento y aprobación.

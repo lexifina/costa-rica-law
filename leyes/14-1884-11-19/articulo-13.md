@@ -1,0 +1,2 @@
+Art. 13°—La Municipalidad, previo dictamen de la Comisión calificadora, tendrá la facultad de incluir en las listas de contribución, las casas ó establecimientos omitidos en ellas, y de aumentar ó disminuir la cuota que les estuviese asignada con arreglo á la tarifa anterior, si por el transcurso del tiempo ó por otras causas deben calificarse en categoría superior ó inferior.
+Todas estas alteraciones deben publicarse en el periódico oficial.

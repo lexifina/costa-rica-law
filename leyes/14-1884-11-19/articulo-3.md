@@ -1,0 +1,1 @@
+Art. 3°—Concluídos los trabajos de calificación, se pasarán por la Comisión expresada á la Municipalidad, para que, aprobados por ésta, se inserten en el periódico oficial y se pase copia autorizada al Inspector de Rentas y á la Tesorería Municipal, para que sirva de base en la recaudación.

@@ -1,0 +1,2 @@
+Art. 16°—La presente ordenanza comenzará á regir desde el día primero de enero próximo en adelante.
+AL PODER EJECUTIVO.—Dado en el salón de sesiones del Palacio Nacional, en San José, á los diez y siete días del mes de noviembre de mil ochocientos ochenta y cuatro.—A. DE JESÚS SOTO, Presidente. AND. SÁENZ, secretario. Alajuela, noviembre diez y nueve de mil ochocientos ochenta y cuatro.— Publíquese y ejecútese.—P. FERNÁNDEZ.—El secretario de Estado del Despacho de Gobernación.—BERNARDO SOTO.

@@ -1,0 +1,1 @@
+Art. 2°—Para la calificación de los establecimientos afectos á los impuestos anteriores, la Municipalidad nombrará en la primera sesión de cada año, una Comisión compuesta de dos individuos de su seno y de tres personas idóneas para este objeto, reservándose el derecho de decidir los reclamos que contra dicha calificación se interpusiesen.
