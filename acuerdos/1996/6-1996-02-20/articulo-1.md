@@ -1,0 +1,1 @@
+(NOTA DE SINALEVI: El artículo N° 79 del “Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros” del 30 de mayo del 2008, derogará este Acuerdo. Esta abrogación será practicada a partir del día 19 de diciembre de 2008, fecha en que entrará en vigencia el reglamento afectante).
