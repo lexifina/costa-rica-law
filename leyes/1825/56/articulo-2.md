@@ -1,0 +1,1 @@
+2°.- El que de contrario con hechos o palabras publicas los despreciase, el que en el Santuario ante el Santisimo Sacramento o las Imágenes de los Santos no hiciese los actos públicos de reverencia acostumbrada, se castigará como perturbador del orden público.
