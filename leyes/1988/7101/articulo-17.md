@@ -1,11 +1,1 @@
-Artículo 17.- Salvo pacto en contrario, corresponde al arrendante el
-pago de la cuota básica por concepto del servicio de agua potable y de
-alcantarillado, y al inquilino pagar el exceso. El comprobante de pago
-constituye título ejecutivo contra el inquilino. En caso de que el
-arrendante, ante la renuencia del inquilino, se viere obligado a acudir a
-la vía ejecutiva, por dos o más veces, para cobrar los servicios de agua,
-sin lograr el reintegro, por un hecho atribuible al inquilino, éste
-incurrirá en causal de desalojo. Si varios inquilinos obtuviesen
-servicio de un mismo medidor, el monto del exceso se prorrateará de
-acuerdo con el área ocupada por cada uno. Esto mismo se aplicará en el
-caso de los servicios eléctricos.
+Artículo 17.- Salvo pacto en contrario, corresponde al arrendante el pago de la cuota básica por concepto del servicio de agua potable y de alcantarillado, y al inquilino pagar el exceso. El comprobante de pago constituye título ejecutivo contra el inquilino. En caso de que el arrendante, ante la renuencia del inquilino, se viere obligado a acudir a la vía ejecutiva, por dos o más veces, para cobrar los servicios de agua, sin lograr el reintegro, por un hecho atribuible al inquilino, éste incurrirá en causal de desalojo. Si varios inquilinos obtuviesen servicio de un mismo medidor, el monto del exceso se prorrateará de acuerdo con el área ocupada por cada uno. Esto mismo se aplicará en el caso de los servicios eléctricos.

@@ -1,4 +1,1 @@
-Artículo 2º.- En lo no contemplado en esta ley se aplicará las normas
-sobre arrendamientos de derecho común, siempre que no contradigan los
-principios del régimen inquilinario. Se aplicarán también, en su orden, la
-costumbre, los usos y los principios generales del Derecho.
+Artículo 2º.- En lo no contemplado en esta ley se aplicará las normas sobre arrendamientos de derecho común, siempre que no contradigan los principios del régimen inquilinario. Se aplicarán también, en su orden, la costumbre, los usos y los principios generales del Derecho.
