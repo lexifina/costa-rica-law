@@ -1,0 +1,1 @@
+Artículo 3°-Los propietarios de fincas rurales, los arrendatarios de las mismas o los ocupantes por cualquier título de ellas, están en la obligación de dar aviso a la autoridad política más cercana, de la presencia en sus terrenos de la langosta, en cualquiera de sus formas, inmediatamente después que esta se presente.
