@@ -2,7 +2,7 @@ Artículo 5º.-El Director General tendrá las siguientes atribuciones:
 a) Aplicar las políticas sobre refugiados dictadas por el Consejo Nacional para los Refugiados;
 b) Asegurar la protección jurídica, económica, social y administrativa de los Refugiados;
 c) Vigilar por la correcta aplicación del Decreto Ejecutivo Nº 14845-G del 29 de agosto de 1983, especialmente en lo que se refiere al reconocimiento de la condición de refugiado y al otorgamiento en un período corto de tiempo de la documentación que lo acredite como tal; así como los documentos a que hacer mención el artículo 25 de la Convención de 1951 sobre el Estatuto de los Refugiados;
-ch) Participar en el otorgamiento de permisos de trabajo a los refugiados, por medio de la Comisión Mixta de al efecto se establecerá, integrada por el Director General Adjunto para la protección y ayuda de los refugiados, quien la presidirá; por un representante del Ministerio de Trabajo y Seguridad Social; y un representante de la Dirección General de Migración y Extranjería del Ministerio de Gobernación y Policía. Dicha Comisión será regulada por Decreto Ejecutivo;
+ch) (Dejado sin efecto por el artículo 2° del decreto ejecutivo N° 19555 del 15 de febrero de 1990)
 d) Recopilar y organizar toda la información sobre refugiados;
 e) Dar apoyo y asesoramiento a los ministerios y demás dependencias del Poder Ejecutivo sobre la gestión en materia de refugiados;
 f) Autorizar, previa consulta con el Consejo Nacional de funcionamiento de las agencias nacionales y extranjeras y otras organizaciones que se encargarán de la administración de los programas para los refugiados;

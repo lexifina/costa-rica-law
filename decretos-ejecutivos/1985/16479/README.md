@@ -15,3 +15,4 @@ Crea Consejo Nacional para Refugiados
 | --- | --- | --- |
 | 1 | 1985-09-01 | la propia norma |
 | 2 | 1986-05-30 | Decreto Ejecutivo 17076 (1986-05-30) |
+| 3 | 1990-02-15 | Decreto Ejecutivo 19555 (1990-02-15) |
