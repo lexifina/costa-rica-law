@@ -13,3 +13,4 @@ Reglamento General de Servicios Portuarios de Caldera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-07-29 | la propia norma |
+| 2 | 2000-10-18 | Reglamento 2966 (2000-10-18) |
