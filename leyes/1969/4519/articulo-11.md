@@ -1,5 +1,2 @@
-Artículo 11.- Los servidores interinos no podrán devengar un salario
-mayor del sueldo base de la categoría del puesto de que se trate. En el
-caso de que a un servidor regular se le ascendiere interinamente,
-devengarán el sueldo base correspondiente a la nueva categoría, salvo que
-su sueldo como servidor regular sea mayor.
+Artículo 11.- ANULADO por Resolución de la Sala Constitucional Nº
+4845-99 de las 16:21 horas del 22 de junio de 1999.
