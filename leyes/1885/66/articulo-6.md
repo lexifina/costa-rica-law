@@ -1,0 +1,1 @@
+Art. 6°. -El Administrador de rentas que expida un recibo sin que se le haya enterado la cantidad por que se va á solicitar un giro postal, incurrir en una multa igual la orden girada, sin perjuicio de pagar el importe del giro.

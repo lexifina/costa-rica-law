@@ -1,0 +1,1 @@
+Art. 5°.-Ninguna orden será válida si no está girada en los esqueletos impresos que habrá para ese efecto, y si la oficina giradora no avisa, por medio del telégrafo, la cantidad por que haya girado y la persona á cuyo favor lo haya hecho.
