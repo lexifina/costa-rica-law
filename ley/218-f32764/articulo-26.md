@@ -1,2 +1,4 @@
-Artículo 26.-Para su funcionamiento las asociaciones pueden adquirir toda clase de bienes, celebrar contratos de toda índole y realizar toda especie de operaciones lícitas encaminadas a la consecución de sus fines.
-(Así reformado por el artículo 1° de la ley N° 6020 del 3 de enero de 1977)
+Artículo 26.-Las asociaciones pueden adquirir toda clase de bienes, celebrar contratos de cualquier índole y realizar operaciones lícitas de todo tipo, encaminadas a la consecusión de sus fines.
+Las donaciones, subvenciones, transferencias de bienes muebles e inmuebles u otros aportes económicos del estado o sus instituciones, deberán ser fiscalizados por la Contraloría General de la República y debidamente liquidados por la Asociación beneficiaria ante el ente contralor, según los fines previstos y los principios de la sana administración.
+De no presentarse las liquidaciones correspondientes dentro del mes siguiente al cierre del año fiscal, el ente contralor lo informará de oficio a la administración activa respectiva y a la vez, la asociación que incumpla quedará imposibilitada para percibir fondos del Estado o sus instituciones, hasta que satisfaga la información requerida.
+(Así reformado por el artículo único de la ley N° 8007 del 4 de julio de 2000)
