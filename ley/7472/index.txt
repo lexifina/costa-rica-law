@@ -74,3 +74,4 @@ articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md
 articulo-4-transitorio.md
+articulo-5-transitorio.md
