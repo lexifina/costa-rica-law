@@ -1,0 +1,1 @@
+Artículo 2º—La Sección de Proveeduría será la encargada de administrar, para todos los efectos, trámites y procedimientos del Registro de Proveedores. Para ello, implantará la organización que se estime necesaria con el apoyo de los medios tecnológicos y recursos que garanticen la eficiencia y eficacia del Registro.

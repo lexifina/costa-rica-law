@@ -1,0 +1,1 @@
+Artículo 16.—En la base de datos que llevará la Sección de Proveeduría se incluirán al menos los siguientes aspectos: código de potencial proveedor, dirección geográfica, teléfono, fax, apartado postal, descripción de los bienes y/o servicios que ofrece, informes por proveedor y por artículo y observaciones, así como la representación legal del mismo.

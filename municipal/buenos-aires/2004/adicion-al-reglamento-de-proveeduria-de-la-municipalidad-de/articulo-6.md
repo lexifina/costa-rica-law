@@ -1,0 +1,1 @@
+Artículo 6º—A efectos de mantener actualizado el Registro de Proveedores, la Municipalidad de Buenos Aires invitará a los interesados en integrarlo mediante publicación en el Diario Oficial y un diario de circulación nacional, al menos una vez al año.
