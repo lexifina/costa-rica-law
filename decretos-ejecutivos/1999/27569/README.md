@@ -14,3 +14,4 @@ Reglamento para Otorgamiento de Permisos de Funcionamiento de MinSalud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-01 | la propia norma |
+| 2 | 1999-02-02 | Decreto Ejecutivo 27657 (1999-02-02) |
