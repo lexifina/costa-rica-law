@@ -1,0 +1,1 @@
+Artículo 2°—Que las acciones que la Comisión Nacional de Emergencia desarrolle deben comprender la atención, rehabilitación y reconstrucción de infraestructuras y servicios dañados como causa de dichos fenómenos naturales.
