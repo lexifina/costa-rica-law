@@ -1,0 +1,1 @@
+Art. 7. Los empleados de Puntarenas observarán la mas escrupulosa exactitud en el peso bruto de los efectos que van á internarse, à fin de que en el repeso que se haga en la Aduana del Rio Grande, no resulten diferencias que hagan dudar á aquel Administrador de la buena fé del comercio.

@@ -1,0 +1,1 @@
+Art. 3. Para la expedicion de las guias, y exhibicion de manifiestos y pòlizas, se arreglarán los empleados de Puntarenas en un todo, à lo dispuesto en el reglamento de 24 de setiembre del corriente año.

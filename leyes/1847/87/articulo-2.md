@@ -1,0 +1,1 @@
+Art. 2. En el derecho señalado en la tarifa à los efectos extranjeros, se halla invíbito el dos por ciento itinerario, que antes se cobraba con el nombre de consulado.-Los Administradores tendrán cuidado de separarlo despues de hecho el cobro de los derechos.
