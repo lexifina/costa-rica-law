@@ -1,0 +1,4 @@
+Artículo 48.- La Dirección General de Protocolo y Ceremonial del
+Estado consultará la fecha de las honras fúnebres que en tales casos
+ofrece el Gobierno de la República siempre y cuando dicho país mantenga
+una representación diplomática con residencia en San José.

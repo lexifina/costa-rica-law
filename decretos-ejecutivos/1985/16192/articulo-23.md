@@ -1,0 +1,9 @@
+Artículo 23.- En los espectáculos musicales o en los deportivos en
+que hubiere una banda de música y se anunciare la asistencia del
+Presidente de la República, se ejecutará el Himno a su llegada. El
+espectáculo podrá ser comenzado a la hora anunciada, aun cuando no
+hubiere llegado el Presidente, y no podrá ser suspendido si el se
+presentare después. Cuando el Himno no hubiere sido ejecutado al
+comenzar el acto, por la ausencia del Primer Magistrado, solo podrá
+ejecutarse al comenzar una segunda parte del espectáculo, si el
+Presidente da expresamente su consentimiento.

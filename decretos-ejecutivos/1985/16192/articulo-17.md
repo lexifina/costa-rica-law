@@ -1,0 +1,9 @@
+Ejecución del Himno Nacional y
+uso de Pabellón Nacional y Bandera
+Artículo 17.- En relación con esta materia se seguirán las normas
+establecidas y que regulan los Ministerios de Seguridad Pública y de
+Educación Pública, ley Nº 18 de 27 de noviembre de 1906, adicionada y
+reformada por leyes Nº 96 del 1º de agosto de 1929, Nº 60 de 13 de junio
+de 1934 y Nº 3429 del 21 de octubre de 1964; capítulo 22 del Reglamento
+de Servicio Disciplinario y Ceremonial Militar y decreto Nº 10471-E del
+1º de setiembre de 1979 y la costumbre.
