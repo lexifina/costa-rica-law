@@ -1,0 +1,1 @@
+Artículo 3º—Se mantiene la prohibición total a la extracción y comercialización de moluscos bivalbos en todo el país, con excepción de lo indicado en el artículo 1º del presente Decreto Ejecutivo, hasta tanto los estudios técnicos y científicos demuestren que estos productos puedan ser aptos nuevamente para el consumo humano.
