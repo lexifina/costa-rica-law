@@ -1,6 +1,6 @@
 ARTICULO IV
-En la realización de los Acuerdos, programas y proyectos previstos en
-el presente Convenio, se observarán las normas siguientes:
+En la realización de los Acuerdos, programas y proyectos previstos
+en el presente Convenio, se observarán las normas siguientes:
 1.- Los elementos enviados por una Parte a la Otra, necesarios para
 la realización de los programas y proyectos, serán exonerados del pago de
 derechos aduaneros o de cualquier otra tasa, gravamen e impuesto y no
@@ -13,9 +13,9 @@ programas y proyectos, no estarán sujetos al pago del impuesto sobre la
 renta en el país receptor.
 3.- De acuerdo con sus respectivas legislaciones, ambas Partes
 permitirán a los técnicos, expertos e investigadores, que no sean
-nacionales del Estado receptor y que trabajen en la ejecución de programas
-y proyectos, la importación libre de derechos e impuestos de los
-siguientes artículos:
+nacionales del Estado receptor y que trabajen en la ejecución de
+programas y proyectos, la importación libre de derechos e impuestos de
+los siguientes artículos:
 a) Los efectos de uso personal y de los miembros de su familia
 siempre que se observen las formalidades que rigen la materia.
 b) Un automóvil por grupo familiar para su uso personal. Esta
