@@ -1,1 +1,1 @@
-Articulo 3°-La Junta estará integrada exclusivamente por miembros de Patronato.
+Articulo 3°-°-(Derogado por el artículo 3° del decreto ejecutivo N° 5401 del 12 de noviembre de 1975)

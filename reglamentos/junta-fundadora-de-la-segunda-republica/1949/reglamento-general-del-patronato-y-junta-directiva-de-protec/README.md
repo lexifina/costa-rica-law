@@ -33,3 +33,4 @@ Reglamento General del Patronato y Junta Directiva de Protección Social de San 
 | 19 | 1972-09-20 | Decreto Ejecutivo 2534 (1972-09-20) |
 | 20 | 1973-04-13 | Decreto Ejecutivo 2946 (1973-04-13) |
 | 21 | 1973-07-13 | Decreto Ejecutivo 3080 (1973-07-13) |
+| 22 | 1975-11-12 | Decreto Ejecutivo 5401 (1975-11-12) |
