@@ -1,0 +1,1 @@
+5°.— Concluido el trabajo ú obra que deba ser preferida (en orden á aumentar las aguas), propondrá la municipalidad al mando Político, dando a este el más completo conocimiento, la obra que deba emprenderse, ó para el mejor curso ó para el ase, y la aprobación del mismo mando se emprenderá usando de los recursos designados en el artículo 3°. de esta ley.
