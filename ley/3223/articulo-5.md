@@ -1,2 +1,0 @@
-Artículo 5º.- Por cada cinco años completos consecutivos de buenos servicios, y a partir del último aumento de salario recibido conforme a la escala anterior, el empleado tendrá derecho a un aumento de diez por ciento de su sueldo básico mensual, por concepto de antigüedad.
-Este beneficio se limita a cinco períodos como máximo. La antigüedad no será elemento que automáticamente haga variar la categoría de un empleado.
