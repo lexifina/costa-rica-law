@@ -1,0 +1,4 @@
+Artículo 8°-De la Privacidad de las Sesiones. Participación de Terceros: Las sesiones de la Comisión serán siempre privadas, pero podrá disponerse, por unanimidad de sus miembros (as) presentes, que tenga acceso a ellas el público en general, o funcionarios y funcionarias de las instituciones ejecutoras, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
+Tendrán derecho a asistir con voz, pero sin voto, el o la Coordinadora de la secretaría.
+Los acuerdos serán tomados por mayoría simple, y solo en casos muy calificados que así disponga la Comisión Nacional Interinstitucional, se tomaran por mayoría absoluta de los miembros (as) asistentes.
+No podrá ser objeto de acuerdo, ningún asunto que no figure en el orden del día, salvo que estén presentes tres miembros (as) de la Comisión y sea declarada la urgencia del asunto por el voto favorable de todas las personas integrantes.

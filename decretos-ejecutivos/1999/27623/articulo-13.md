@@ -1,0 +1,1 @@
+Artículo 13.-De los votos Negativos y Abstenciones: Los miembros (as) de la Comisión deberán hacer constar en el acta su voto negativo o abstención al acuerdo adoptado y los motivos que los justifiquen, quedando en tal caso exentos o exentas de las responsabilidades que, en su caso, pudieren derivarse de esos acuerdos.

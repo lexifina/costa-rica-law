@@ -1,0 +1,1 @@
+Artículo 28.-De la Firma de Convenios de Ejecución: Las instituciones ejecutoras firmarán convenios con la Comisión Nacional Interinstitucional, por medio de los cuales se fijarán las normas substanciales y de procedimientos que se requieren para la ejecución de las directrices y programas de la Comisión.

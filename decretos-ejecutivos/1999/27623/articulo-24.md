@@ -1,0 +1,1 @@
+Artículo 24.-De la Presentación de Solicitudes: Las mujeres sujetas de atención del Programa deberán presentar sus solicitudes al IMAS en forma individual o en forma grupal, para lo cual deberán cumplir con los requisitos establecidos en el presente reglamento y otras normas establecidas o que al efecto se puedan establecer.

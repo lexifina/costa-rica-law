@@ -1,0 +1,1 @@
+Artículo 32.-Del Seguimiento de los Beneficios: Corresponde a cada una de las instituciones ejecutoras, mediante los procedimientos que estimen pertinentes, verificar el cumplimiento de los objetivos y metas del programa.

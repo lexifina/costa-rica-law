@@ -1,0 +1,1 @@
+Artículo 14.-De la Impugnación de los Actos de la Comisión: Todo acuerdo, resolución, disposición o acto administrativo que en el cumplimiento de sus funciones realice la Comisión podrá ser impugnado, de conformidad con la ley.

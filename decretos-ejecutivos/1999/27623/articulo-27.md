@@ -1,0 +1,1 @@
+Artículo 27.-De las Partidas Presupuestarias: Cada una de las instituciones ejecutoras, deberán incluir en sus presupuestos las partidas requeridas para cumplir las disposiciones de la ley y el presente reglamento, todo lo cual será fiscalizado por la Contraloría General de la República, en la forma prevista por el artículo 9" de la Ley.

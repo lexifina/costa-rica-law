@@ -1,0 +1,1 @@
+Artículo 25.-De los Instrumentos de Recolección de Información Social: El IMAS deberá aplicar la Ficha de Información Social (FIS) y la Ficha de Información Grupal (FIG), a toda mujer que presente solicitud formal para participar en el programa, que es requisito necesario para dar trámite y atención a las solicitudes.

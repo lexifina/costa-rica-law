@@ -1,0 +1,1 @@
+Artículo 23.-De las Mujeres Sujetas de Atención del Programa: Son Sujetas de Atención del Programa las mujeres, niñas, adolescentes, adultas madres, en condiciones de pobreza o pobreza extrema, que califiquen de acuerdo a los parámetros establecidos en el SIPO.

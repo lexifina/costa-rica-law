@@ -1,0 +1,1 @@
+Artículo 18.-De las Comisiones Interinstitucionales de Enlace Regional: Las Comisiones Interinstitucionales de Enlace Regional serán integradas por la Comisión Nacional Interinstitucional, a las que les corresponderá, establecer los mecanismos de coordinación, articulación y complementariedad de las acciones a nivel regional, que se requieran para la ejecución del Programa.
