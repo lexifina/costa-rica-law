@@ -1,0 +1,2 @@
+Artículo 6°.- El Concejo Administrativo Municipal se reservará los lotes necesarios para urbanización, establecimiento de servicios de interés colectivo , escuelas, unidades sanitarias, local para espectáculos públicos y para reuniones mercados, plazas para deportes, parques, viveros, silos, oficinas públicas y otros servicios requeridos al cumplimiento desarrollo de una comunidad rural.
+Casa Presidencial, San José a los veintinueve días del mes de julio de mil novecientos cincuenta y dos.

@@ -1,0 +1,1 @@
+Artículo 3°.- Inscríbase en el Registro Público los lotes que se adjudiquen por medio de la presente ley, y para ese efecto queda autorizado el Procurador General de la República, quien incurrirá ante notario para protocolizar esta donación.
