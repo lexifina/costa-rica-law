@@ -13,3 +13,4 @@ Reglamento General del Consejo Nacional de Educación Superior CONESUP
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-24 | la propia norma |
+| 2 | 2000-08-24 | Decreto Ejecutivo 28906 (2000-08-24) |
