@@ -1,2 +1,6 @@
-Artículo 34.- FACULTAD DEL DEPARTAMENTO.
-Toda información suministrada al Departamento en las solicitudes de cualquier tipo de permiso o renovación, queda sujeta a investigación e inspección del mismo.
+Artículo 34.- Facultad del Departamento y Examen Teórico Práctico. Toda información suministrada al Departamento en las solicitudes de cualquier tipo de permiso o renovación, queda sujeta a investigación e inspección del mismo.
+El examen teórico práctico indicado en el artículo 39 de la Ley será aplicado por el Deparatamento en coordinación con la Academia Nacional de Policía. En forma conjunta se establecerán los aspectos a ser evaluados.
+Ambas entidades aportarán el personal calificado necesario para efecutar las evaluaciones en diferentes localidades del país indicando en forma previa los lugares, fecha y hora en que se realizarán.
+Al momento de realizarse las evaluaciones se levantará el acta respectiva que deberá ser firmada por el evaluado, en señal de su asistencia, y una vez finalizada la prueba, por los funcionarios designados por la Academia Nacional de Policía y el Departamento quienes consignarán la calificación final.
+El original de dicho documento será conservado por la Academia Nacional de Policía quién remitirá los resultados a Departamento con el fin de que se adicione la información a la solicitud del permiso o renovación respectiva.
+(Así reformado por artículo 1° del Decreto Ejecutivo N° 29280 del 10 de noviembre de 2000)
