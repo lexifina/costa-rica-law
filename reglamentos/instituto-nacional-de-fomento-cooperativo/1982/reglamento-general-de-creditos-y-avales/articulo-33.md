@@ -7,3 +7,7 @@ e) 'El compromiso de la prestataria de que tomará las disposiciones necesarias 
 f) La constitución por parte de la prestataria, de garantías específicas suficientes a favor del INFOCOOP y la conservación en buen estado de las mismas.
 g) Asegurar y mantener asegurados los bienes entregados en garantía por la suma y el tiempo que el INFOCOOP le indique, y entregarle las pólizas respectivas debidamente endosadas.
 h) Comprobar que cuenta con el seguro de fidelidad que establece el artículo 53 de la Ley de Asociaciones Cooperativas No 5185.
+i) La cooperativa deberá hacer los pagos en atención al crédito en dinero efectivo o mediante cheque de los Bancos del Sistema Bancario Nacional.
+j) La cooperativa se compromete a aceptar la Asistencia Técnica Integral que eventualmente le podría brindar el INFOCOOP y poner en práctica sus recomendaciones.
+k) Cuando proceda, y tratándose de un proyecto independiente, la cooperativa deberá llevar contabilidad independiente del mismo para efectos de evaluación y control.
+(Así ampliado por acuerdo de la Junta Directiva, en su sesión N° 1937 de 22 de febrero de 1990, el cual agregó los incisos i, j y k)
