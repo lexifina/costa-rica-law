@@ -350,3 +350,5 @@ Artículo 4°—Se exonera de todo tributo y sobretasas la importación de la ma
 · Válvulas de todo tipo para la actividad agropecuaria.
 · Zanjeadores agrícolas sin motor, accionadas por toma de fuerza y para acoplar al enganche de tres puntos de tractor agrícola.
 · Zetas de metal para transporte de banano dentro de la finca.
+*Cajas de cartón para el empaque de productos agrícolas frescos.
+(*Así adicionado mediante resolución N° 8 del 28 de enero del 2005)
