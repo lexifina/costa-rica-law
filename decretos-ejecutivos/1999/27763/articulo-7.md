@@ -1,0 +1,1 @@
+Artículo 7°—A efecto de mantener en el tiempo el valor de la tarifa dado el tipo de insumos que se utilizan en la prestación del servicio requerido, la tarifa que se haya tasado en dólares USA debe entenderse pagadera por el usuario en colones a la tasa de cambio vigente el día en que paga el servicio.

@@ -1,0 +1,1 @@
+Articulo 5°—El Ministerio de Agricultura y Ganadería no cobrará los anteriores servicios, cuando tenga interés el Estado en brindarlos por razones de investigación, muestreos, reconocimientos de status sanitarios, convenios y otros, previa calificación y autorización del Director Superior correspondiente.
