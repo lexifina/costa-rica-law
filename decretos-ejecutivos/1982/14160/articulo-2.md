@@ -1,0 +1,1 @@
+Artículo 2°.-La Dirección actuar como instrumento básico de desarrollo, encargado de fomentar, orientar, coordinar y evaluar la organización de las comunidades del país, para lograr su participación activa y consciente en la realización de los objetivos del Plan Nacional de Desarrollo Económico y Social.

@@ -1,0 +1,1 @@
+Artículo 3°.-La Dirección ser , además, un Órgano de coordinación interinstitucional para la ejecución de las políticas del Poder Ejecutivo que sean integradas al Plan Nacional de Desarrollo de la Comunidad, y cumplir funciones de Oficina Sectorial del Ministerio de Planificación Nacional y Política Económica.
