@@ -1,0 +1,1 @@
+Artículo 4° ─ Cada Bono llevará adjuntos cuarenta cupones que tendrán el número del Bono, la fecha de pago y por el anverso y el reverso, el número de orden correspondiente. Cada cupón representará los intereses de un trimestre y será firmado en facsímil por el Ministro de Hacienda.
