@@ -14,3 +14,4 @@ Reglamento a la Ley N° 7658 Creación del FONABE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-12-08 | la propia norma |
+| 2 | 1998-06-12 | Decreto Ejecutivo 27114 (1998-06-12) |
