@@ -1,11 +1,3 @@
 Artículo 4
-1. - En el marco de la cooperación a que se refiere el Artículo 1,
-las Partes intercambiarán información y experiencias sobre las acciones
-emprendidas en ambos países para prestar asistencia a los
-farmacodependientes, sobre las iniciativas adoptadas por las instituciones
-que se dediquen a la rehabilitación de los farmacodependientes y sobre los
-métodos usados en materia de prevención.
-2. - Las Partes promoverán encuentros entre las respectivas
-autoridades competentes para la rehabilitación de los farmacodependientes,
-a través del intercambio de especialistas, cursos de formación y otros
-afines.
+1. - En el marco de la cooperación a que se refiere el Artículo 1, las Partes intercambiarán información y experiencias sobre las acciones emprendidas en ambos países para prestar asistencia a los farmacodependientes, sobre las iniciativas adoptadas por las instituciones que se dediquen a la rehabilitación de los farmacodependientes y sobre los métodos usados en materia de prevención.
+2. - Las Partes promoverán encuentros entre las respectivas autoridades competentes para la rehabilitación de los farmacodependientes, a través del intercambio de especialistas, cursos de formación y otros afines.
