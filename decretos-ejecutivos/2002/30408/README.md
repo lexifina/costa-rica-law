@@ -14,3 +14,4 @@ Régimen Tarifario para Servicios no Aeronáuticos del Aeropuerto Internacional 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-03 | la propia norma |
+| 2 | 2002-05-03 | Decreto Ejecutivo 30426 (2002-05-03) |
