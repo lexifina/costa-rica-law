@@ -1,0 +1,1 @@
+Artículo 2º—Excepciones a la aplicación del presente Reglamento. El presente Reglamento no rige para los casos de construcciones que posean regulación y procedimientos especiales para el visado definidos por ley, o bien aquellos excluidos -por la misma Ley- de la aplicación de la Ley sobre la Zona Marítimo Terrestre Nº 6043 y sus Reformas.
