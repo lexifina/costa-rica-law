@@ -1,0 +1,1 @@
+Artículo 3º—La inscripción a la Asamblea debe hacerse por escrito, indicando la intención de participar, su razón social y el nombre completo y cédula o identificación equivalente para los mayores de 15 años, de los delegados o representantes.

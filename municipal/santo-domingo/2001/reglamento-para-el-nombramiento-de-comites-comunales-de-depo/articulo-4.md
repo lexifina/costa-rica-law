@@ -1,0 +1,1 @@
+Artículo 4º—Los representantes o delegados de cada organización debidamente inscritos tendrán derecho a voz y voto y a proponer candidatos para ocupar un puesto en el Comité Comunal de Deportes y Recreación en la Asamblea correspondiente, la elección será de forma individual y el voto será público.

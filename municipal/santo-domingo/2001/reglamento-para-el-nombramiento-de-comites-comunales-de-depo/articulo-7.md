@@ -1,0 +1,1 @@
+Artículo 7º—En la primera sesión de instalación de la Junta Directiva del Comité Comunal de Deportes y Recreación, nombrarán de su seno un Presidente, un Vicepresidente, un Tesorero, un Secretario y un Vocal y esa elección será dirigida por un miembro del Comité Cantonal de Deportes y Recreación.

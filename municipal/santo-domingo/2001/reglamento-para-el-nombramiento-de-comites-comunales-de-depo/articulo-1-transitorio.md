@@ -1,0 +1,2 @@
+Transitorio 1º—Para el nombramiento del Comité Comunal de Deportes y Recreación del 2001, se procederá de la siguiente manera:
+Se convocará a Asamblea General con dos representantes o delegados de cada una de las Organizaciones Deportivas, Recreativas y de Desarrollo Comunal existentes en el Distrito, debidamente inscritas, la Asamblea deberá celebrarse en el mes de febrero del 2001 en todo el cantón.

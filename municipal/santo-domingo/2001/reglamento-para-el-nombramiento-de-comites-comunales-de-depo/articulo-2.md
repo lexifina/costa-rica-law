@@ -1,0 +1,1 @@
+Artículo 2º—Toda organización deportiva, recreativa o comunal que desee participar en dichas Asambleas, deberá inscribirse previamente en la Secretaría del Comité Cantonal de Deportes y Recreación de Santo Domingo de Heredia, se establecerá el día y hora de la fecha de inicio y límite de inscripción que será comunicada públicamente por los medios disponibles.
