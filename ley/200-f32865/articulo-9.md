@@ -1,1 +1,0 @@
-Artículo 9°.- El Centro de Control está a cargo de un Jefe y de un Subjefe, con las atribuciones y deberes que esta ley consigna y las que marque el respectivo reglamento. Este será elaborado por el Centro de Control y aprobado por el Congreso.

@@ -1,1 +1,0 @@
-Artículo 15.- Los pagos a cuenta de autorizaciones globales tienen que ser ordenados mediante acuerdo del Poder Ejecutivo, con cita concreta de la partida del Presupuesto de que deriven, con las explicaciones conducentes. Sin aprobación expresa, dada por escrito, del departamento donde un gasto se causó, su pago no será tramitado por el Centro.

@@ -1,1 +1,0 @@
-Artículo 17.- A cada empresa y servicio del Estado les abrirá cuenta especial; y llevará con exactitud la de los diversos socorros con que el Estado contribuye a proteger institutos o centros que actúan sometidos a él o bien en forma independiente. En cuanto a éstos, ejercerá la super vigilancia con igual amplitud de facultades.

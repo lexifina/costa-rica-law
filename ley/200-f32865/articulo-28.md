@@ -1,1 +1,0 @@
-Artículo 28.- El Banco que desempeñe las funciones de Cajero, las tesorerías auxiliares y todo aquel que recaude fondos públicos, deberán remitir al Centro una nómina detallada de toda contribución, donativo, multas, conmutaciones, órdenes de entero de parte de las autoridades, inspectores y otros funcionarios facultados para impartirlas.

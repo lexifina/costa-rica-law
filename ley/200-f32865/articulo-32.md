@@ -1,1 +1,0 @@
-Artículo 32.- Esta sentencia se ejecutará sin dilación, pero el interesado conserva acción ordinaria. Su derecho a establecerla caduca al final de dos años, a partir de la fecha del fallo firme de primera instancia o del dado en apelación cuando la hubiere.
