@@ -1,0 +1,1 @@
+Artículo 38.—Cuando se envíe a reparar un activo que se encuentre en mal estado, el funcionario responsable y la jefatura, deberán dejar registro de la salida en el registro correspondiente y conservar copia de la orden de reparación, para que en caso de un inventario sorpresivo no se considere como faltante.

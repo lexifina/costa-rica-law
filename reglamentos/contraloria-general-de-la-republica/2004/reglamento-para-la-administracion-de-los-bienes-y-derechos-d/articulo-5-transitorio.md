@@ -1,0 +1,1 @@
+Transitorio V.—Los Gerentes y jefaturas de unidad deberán realizar la asignación personalizada de bienes de los funcionarios a su cargo establecida en el artículo 20 de este Reglamento a más tardar dentro del plazo de treinta días calendario, contados a partir de la remisión formal del inventario de activos actualizado por parte del Almacén. Publíquese.

@@ -1,0 +1,1 @@
+Transitorio I.—La Unidad de Servicios Financieros deberá presentar a la Gerencia del Área Administrativa las políticas propias de la capitalización de activos, para su aprobación, dentro de un plazo de treinta días calendario contados a partir de la publicación del presente Reglamento.

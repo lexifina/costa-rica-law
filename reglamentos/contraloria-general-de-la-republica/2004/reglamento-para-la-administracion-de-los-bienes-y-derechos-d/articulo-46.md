@@ -1,0 +1,1 @@
+Artículo 46.—Una vez que el acta esté debidamente aprobada y los bienes entregados a la institución beneficiada o hayan sido dados de baja por cualquier concepto, la instancia responsable de llevar este control procederá a excluir física y contablemente, los mismos del inventario.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Control de activos
+Artículo 21.—Con el fin de registrar la responsabilidad de las jefaturas sobre de los bienes que se encuentren bajo su uso; cada Gerente o Jefe deberá firmar el inventario a su cargo de conformidad con lo asignado. Así mismo, con base en los inventarios actualizados, y en lo que corresponda hará entrega a sus subalternos de inventarios individuales de los bienes que a cada uno de ellos se les confíen para el desarrollo de su labor. Lo anterior para que el Gerente o jefe de Unidad salvaguarde responsabilidad por cuanto si no levanta y mantiene actualizado los inventarios individuales, él mismo asumirá la responsabilidad de los activos.

@@ -1,0 +1,1 @@
+Artículo 3°—Principios Aplicables. En la aplicación del presente Reglamento se establecerá que la actividad desplegada por este Órgano Contralor en la Administración de sus Bienes y Derechos de Propiedad Intelectual resultará acorde con los Principios rectores que rigen esta materia, sea la eficiencia, eficacia, racionalidad y transparencia.

@@ -1,0 +1,1 @@
+Artículo 30.—Al funcionario que ingrese a laborar al Órgano Contralor, se le hará entrega de los activos fijos que necesite mediante el formulario Asignación de Activos, del cual se remitirá original al Almacén, copia al funcionario responsable y copia a la jefatura respectiva.

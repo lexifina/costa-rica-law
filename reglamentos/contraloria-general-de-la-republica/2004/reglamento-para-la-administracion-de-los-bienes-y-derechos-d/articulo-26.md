@@ -1,0 +1,1 @@
+Artículo 26.—Todos los funcionarios que tengan asignado un activo fijo asumen plena responsabilidad por su uso, custodia y mantenimiento, además tienen la obligación de reportar daños, robo o extravío de los bienes adscritos a su centro de trabajo.

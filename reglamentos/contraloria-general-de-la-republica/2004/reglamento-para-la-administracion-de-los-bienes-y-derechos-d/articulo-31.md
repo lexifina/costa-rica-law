@@ -1,0 +1,1 @@
+Artículo 31.—Las jefaturas podrán reasignar entre su personal los bienes de la unidad, para lo cual actualizarán la información en el registro correspondientes y llenarán el formulario de reasignación de activo, el cual deberá estar aprobado por el jefe y recibido por los servidores a quienes se descarga y carga el bien, con copia al Almacén.

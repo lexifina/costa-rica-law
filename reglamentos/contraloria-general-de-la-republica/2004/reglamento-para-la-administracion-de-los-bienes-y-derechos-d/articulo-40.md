@@ -1,0 +1,1 @@
+Artículo 40.—Los bienes en desuso que se encuentren en buen estado podrán venderse o permutarse por medio de remate o licitación, de acuerdo con la Ley de Contratación Administrativa y su Reglamento, siendo esos procedimientos el sustento legal para dar de baja al bien.

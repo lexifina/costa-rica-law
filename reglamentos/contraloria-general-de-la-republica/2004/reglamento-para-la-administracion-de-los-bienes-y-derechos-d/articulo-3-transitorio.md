@@ -1,0 +1,1 @@
+Transitorio III.—El Almacén deberá actualizar el inventario de bienes establecido en el artículo 19, dentro del plazo de dos meses calendario contados a partir de la entrega del Sistema de Registro de Bienes que desarrolle la Unidad de Sistemas y Tecnologías de Información.

@@ -1,0 +1,1 @@
+Artículo 4°—Las presentes disposiciones de este Reglamento son de acatamiento obligatorio para todos los funcionarios de la Contraloría General de la República y a las jefaturas corresponderá velar por su cumplimiento.

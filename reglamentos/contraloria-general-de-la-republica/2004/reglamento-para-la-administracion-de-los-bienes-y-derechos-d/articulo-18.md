@@ -1,0 +1,1 @@
+Artículo 18.—En todo movimiento o traslado de activos deberá hacerse entrega del bien al funcionario solicitante, previo a la actualización de la información en el registro correspondiente y a la confección y firma del formulario de “Asignación de Activos”, de este último se remitirá copia al Almacén.

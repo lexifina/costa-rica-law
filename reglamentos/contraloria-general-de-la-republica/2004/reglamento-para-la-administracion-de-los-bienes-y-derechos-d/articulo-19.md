@@ -1,0 +1,1 @@
+Artículo 19.—La firma de los inventarios y la asignación de activos implica responsabilidad administrativa y eventualmente civil y penal por razón de los activos a cargo, cuando sobrevenga pérdida imprudente, sustracción por descuido o daño anormal, conforme al artículo 110 y siguientes de la Ley de Administración Financiera y Presupuestos Públicos.

@@ -1,0 +1,1 @@
+Artículo 13° — La Unidad se Sistemas y Tecnología de la Información conservará y administrará lo relativo a las garantías originales de los equipos de cómputo y licencias adquiridas en materias de hardware y software.

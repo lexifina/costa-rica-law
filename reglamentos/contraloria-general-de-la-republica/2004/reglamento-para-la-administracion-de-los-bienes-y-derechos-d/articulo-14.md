@@ -1,0 +1,1 @@
+Artículo 14.—La División de Asesoría y Gestión Jurídica realizará los trámites de inscripción de los derechos de propiedad intelectual que sean generados por los funcionarios de la Contraloría General de la República, cuyos originales se conservarán en un expediente de cuya custodia se responsabilizará a la Unidad generadora del producto.

@@ -1,0 +1,1 @@
+Artículo 39.—Los bienes que hayan sido devueltos al Almacén y se encuentren en la categoría de desuso o mal estado, podrán ser vendidos o donados, conformes las normas y procedimientos vigentes, sin perjuicio de que se conserven para repuestos cuando corresponda.

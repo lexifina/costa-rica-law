@@ -1,0 +1,1 @@
+Artículo 22.—El Almacén emitirá reportes semestrales que contendrán el detalle de los bienes que se encuentran asignados a cada dependencia, con el objeto de que se remitan a las Gerencias y Jefes de unidad, para que éstos cotejen sus inventarios e informen lo pertinente al Almacén.

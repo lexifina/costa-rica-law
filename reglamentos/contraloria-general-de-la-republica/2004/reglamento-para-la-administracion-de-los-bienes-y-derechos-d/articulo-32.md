@@ -1,0 +1,1 @@
+Artículo 32.—Los bienes que se encuentren en desuso o en mal estado en una unidad deben ser devueltos al Almacén por la Jefatura respectiva, mediante el formulario de reasignación de activos, en éste último se deberá consignar la firma del jefe y del funcionario a quien se le descargan los bienes.

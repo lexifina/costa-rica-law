@@ -1,0 +1,1 @@
+Artículo 9°—Todo funcionario de la Contraloría General de la República recibirá en buenas condiciones de funcionamiento los activos fijos necesarios para el cumplimiento de sus funciones, asumiendo la responsabilidad de darles el uso y la custodia adecuada.
