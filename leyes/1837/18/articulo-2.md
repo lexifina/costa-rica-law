@@ -1,0 +1,1 @@
+2°.- Estas cantidades serán precisamente invertidas en auxiliar el completo aseo de las poblaciones y los Ministros principales que las reciben rendirán la cuenta de su inversión a la Intendencia General.- Dado en la Ciudad de San José a los dieziseis días del mes de junio de mil ochocientos treinta y siete.
