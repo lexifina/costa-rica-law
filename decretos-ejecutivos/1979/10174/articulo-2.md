@@ -8,4 +8,5 @@ f) Un representante del Instituto Costarricense de Turismo.
 g) Un representante del Ministerio de Obras Públicas y Transportes.
 h) Un representante de la Oficina de Planificación Nacional y Política Económica.
 i) Un representante de CODESA.
-j) Un representante de los vecinos de la zona.
+j) Tres representantes de los vecinos de la zona.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 10875 del 22 de noviembre de 1979).
