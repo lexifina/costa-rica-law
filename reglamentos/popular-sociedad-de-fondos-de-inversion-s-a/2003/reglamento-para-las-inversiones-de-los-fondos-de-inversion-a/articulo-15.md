@@ -1,0 +1,1 @@
+Artículo 15.—El administrador de portafolio supervisará la compra y venta de valores para el portafolio, vigilando que se encuentren dentro de los parámetros aprobados por el prospecto de cada Fondo de Inversión y las políticas generales aprobadas por el Comité.

@@ -1,0 +1,1 @@
+Artículo 5º—No corresponderá el pago de dietas por la asistencia a las sesiones del Comité, salvo en el caso del miembro independiente indicado en el inciso d) del artículo 2º y del Fiscal de la Junta Directiva de Popular SAFI, quienes devengarán dietas en el mismo monto señalado para los integrantes de la Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal.

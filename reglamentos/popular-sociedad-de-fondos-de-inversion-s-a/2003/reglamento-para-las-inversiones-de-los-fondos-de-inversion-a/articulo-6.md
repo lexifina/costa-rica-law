@@ -1,0 +1,1 @@
+Artículo 6º—La designación del miembro independiente será potestad de la Junta Directiva de Popular SAFI y se seleccionará de una terna presentada por el Gerente. Su nombramiento será anual y podrá ser removido con el simple acuerdo de la Junta Directiva.

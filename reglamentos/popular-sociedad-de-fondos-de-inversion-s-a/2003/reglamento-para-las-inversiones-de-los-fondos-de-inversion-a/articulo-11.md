@@ -1,0 +1,1 @@
+Artículo 11.—Los miembros deberán realizar la labor encomendada con la mayor responsabilidad y probidad. En caso de incumplimiento de sus obligaciones, se aplicarán las sanciones que estipulen las leyes aplicables, previa oportunidad de defensa otorgada al presunto incumpliente.

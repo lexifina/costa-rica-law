@@ -1,0 +1,2 @@
+Artículo 18.—El Gerente, o en su ausencia el Gerente Financiero Administrativo, podrá negociar las comisiones bursátiles con los Puestos de Bolsa con que realice transacciones. Dichas negociaciones se realizarán evaluando las mejores condiciones del mercado y se informará al Comité en la siguiente reunión, quedando constancia en actas.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 9º—Los miembros que falten tres veces consecutivas a sesiones ordinarias deberán presentar una justificación al Comité. De no aceptarse su justificación, la Presidencia informará a la Junta Directiva de Popular SAFI dicha situación, para lo que considere procedente.

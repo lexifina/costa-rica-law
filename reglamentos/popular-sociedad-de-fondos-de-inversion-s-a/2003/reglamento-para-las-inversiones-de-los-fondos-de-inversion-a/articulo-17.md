@@ -1,0 +1,1 @@
+Artículo 17.—Cuando se deba realizar alguna contratación amparada al artículo 45 y conexos del "Reglamento General sobre Sociedades Administradoras y Fondos de Inversión, deberá ser informada a la Junta Directiva de Popular SAFI en la sesión ordinaria siguiente inmediata a la compra.

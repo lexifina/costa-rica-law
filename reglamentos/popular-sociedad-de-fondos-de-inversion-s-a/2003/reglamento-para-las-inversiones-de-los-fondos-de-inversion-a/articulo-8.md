@@ -1,0 +1,1 @@
+Artículo 8º—Las actas se asentarán en el libro de actas aprobado por la Superintendencia General de Valores y deberán ser firmadas por los funcionarios indicados en los artículos 2º y 3º de este Reglamento que hayan asistido a la respectiva sesión.
