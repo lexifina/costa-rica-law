@@ -14,3 +14,4 @@ Reforma Clasificación Institucional Sector Financiero y Crea ComisiónAutoridad
 | --- | --- | --- |
 | 1 | 1982-03-30 | la propia norma |
 | 2 | 1982-05-05 | Decreto Ejecutivo 13603 (1982-05-05) |
+| 3 | 1982-10-20 | Decreto Ejecutivo 13966 (1982-10-20) |

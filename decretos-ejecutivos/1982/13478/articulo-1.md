@@ -8,4 +8,4 @@ Considerando:
 Por tanto,
 DECRETAN:
 ARTÍCULO 1°.-Se derogan los artículos 6°, 7°, 8°, 9°, 10 y 11 del Decreto Ejecutivo N° 10855-H del 19 de noviembre de 1979.
-(Así reformado por el artículo 1° del Decreto Ejecutivo N° 13603 de 5 de mayo de 1982).
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 13966 de 20 de octubre de 1982).
