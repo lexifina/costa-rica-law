@@ -14,3 +14,4 @@ Reglamento Cajas Chicas Ministerio de Justicia y Paz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-02-24 | la propia norma |
+| 2 | 1995-11-20 | Decreto Ejecutivo 24827 (1995-11-20) |

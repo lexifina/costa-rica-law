@@ -1,1 +1,2 @@
-Artículo 16.—Se exime de la presentación de cotizaciones, las erogaciones a través de la subcaja, cuando se trate de sumas menores o iguales a los ₡1.000,00.
+Artículo 16.-Las solicitudes de erogación mediante subcajas chicas auxiliares deberán contener como mínimo una proforma
+(Así reformado por el artículo 1° del decreto ejecutivo N° 24827 del 20 de noviembre de 1995)
