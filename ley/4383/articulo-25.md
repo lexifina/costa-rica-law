@@ -1,4 +1,4 @@
-Artículo 25.- La Comisión está facultada para modificar, suspender o
+ARTICULO 25.- La Comisión está facultada para modificar, suspender o
 revocar una licencia cuando se compruebe que no se cumple con los
 requisitos establecidos en la misma, o cuando las sustancias radioactivas
 o los equipos se utilicen para fines contratarios a los propósitos de la

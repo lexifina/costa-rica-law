@@ -1,4 +1,4 @@
-Artículo 9º.- Podrán ser separados de sus cargos únicamente en los
+ARTICULO 9º.- Podrán ser separados de sus cargos únicamente en los
 siguientes casos:
 a) Cuando infrinjan alguna de las disposiciones establecidas en la
 presente ley, o en los Decretos y Reglamentos de la Comisión;

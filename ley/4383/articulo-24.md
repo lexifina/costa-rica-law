@@ -1,4 +1,4 @@
-Artículo 24.- Las licencias otorgadas por la Comisión serán generales
+ARTICULO 24.- Las licencias otorgadas por la Comisión serán generales
 o específicas, comerciales y no comerciales. Son licencias generales las
 que comprenden una categoría de sustancias radioactivas naturales o
 artificiales; son específicas cuando se refieren a una sustancia
