@@ -14,3 +14,4 @@ Crea Zonas Protectoras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-07-17 | la propia norma |
+| 2 | 1981-02-26 | Decreto Ejecutivo 12368 (1981-02-26) |

@@ -39,15 +39,9 @@ Cerros de Escazú: Hoja Abra 3345 I en las siguientes coordenadas Lam.
 2 | 523000 | 208000 | 6.000
 3 | 523000 | 202000 | 6.000
 Abarca una extensión de 3.600 hectáreas
-El Rodeo: Hoja Abra 3345 I y Río Grande 3345 IV. El área cubierta por las siguientes coordenadas Lam
-Punto | Coord. Vert. | Horizontal | Distancia M
-0 | 503000 | 210000 | 2.850
-1 | 504000 | 212600 | 8.400
-2 | 511000 | 208000 | 2.000
-3 | 511000 | 206000 | 3.000
-4 | 508000 | 206000 | 6.500
-Tiene una extensión aproximada de 2.350 Has.
-Río Grande: Hoja Naranjo 3346 III. Ubicado dentro de las siguientes coordenadas Lambert.
+(*) El Rodeo: Hoja Abra 3345 I y Río Grande 3345 IV. El área cubierta por las siguientes coordenadas Lam
+(*)(Mediante decreto ejecutivo N° 12368 del 26 de febrero de 1981, se dejo sin efecto la Zona Protectora el Rodeo, posteriormente el decreto ejecutivo N° 12368 fue derogado por el artículo 4° del decreto ejecutivo N° 12608 del 12 de mayo de 1981. Se advierte que dicha derogación no se ha aplicado a esta zona, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver ésta al estado anterior a dicha derogación)
+Río Grande: Hoja Naranjo 3346 III . Ubicado dentro de las siguientes coordenadas Lambert.
 0 | 491000 | 222000 | 5.100
 1 | 492000 | 227000 | 2.00
 2 | 494000 | 227000 | 5.100
