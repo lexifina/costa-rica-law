@@ -1,0 +1,1 @@
+ARTICULO 60.- La primera vez calificará las elecciones y credenciales de los representantes una junta preparatoria compuesta de ellos mismos: en lo sucesivo, mientras no se hubiere abierto las sesiones toca esta calificación a los representantes que continúan, en unión de los nuevamente electos.

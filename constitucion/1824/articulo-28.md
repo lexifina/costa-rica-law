@@ -1,0 +1,1 @@
+ARTICULO 28.- Los electores de distrito y de departamento no son responsables de su ejercicio electoral. Las leyes acordaron las garantías necesarias para que libre y puntualmente verifiquen su encargo.

@@ -1,0 +1,1 @@
+ARTICULO 191.- El orden de procedimientos en las causas contra los representantes en la Asamblea, contra el poder ejecutivo, y contra los individuos del Consejo de la Corte Superior de cada Estado, se establecerá en la forma, y bajo las reglas designadas para las autoridades federales.

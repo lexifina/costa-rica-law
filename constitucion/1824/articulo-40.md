@@ -1,0 +1,1 @@
+ARTICULO 40.- Reunidas por lo menos las dos terceras partes de los electores de distrito que forma la junta de departamento y elige por mayoría absoluta los representantes y suplentes que le corresponden para el Congreso.

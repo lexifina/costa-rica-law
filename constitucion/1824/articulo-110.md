@@ -1,0 +1,1 @@
+ARTICULO 110.- Para ser Presidente y Vice-presidente se requiere naturaleza en la República- tener treinta años cumplidos- haber sido siete ciudadano- ser del estado seglar y hallarse en actual ejercicio de sus derechos.

@@ -1,0 +1,1 @@
+ARTICULO 44.- Las listas relativas a la elección del Presidente y Vicepresidente de la República e individuos de la Suprema Corte de Justicia, deberán firmarse por los electores, y remitirse cerradas y selladas al Congreso. También se dirigirá en la propia forma una copia de ellas, con la de votación para senadores a la Asamblea del Estado respectivo.
