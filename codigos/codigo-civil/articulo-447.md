@@ -1,2 +1,2 @@
-Artículo 447.- A la prenda es aplicable lo dispuesto en el
-artículo 423.
+ARTÍCULO 447.- DEROGADO
+(Así derogado por el Transitorio 3 de la Ley Nº 5 del 5 de octubre de 1941).

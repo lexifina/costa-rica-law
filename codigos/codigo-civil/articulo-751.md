@@ -1,4 +1,2 @@
-Artículo 751.- Los documentos firmados por una persona a ruego
-de otra y por dos testigos más hacen plena prueba, si los tres
-firmantes reconocen su firma y testifican el hecho de haber
-presenciado el otorgamiento.
+ARTÍCULO 751.- DEROGADO.
+(Derogado por el artículo 8º del Código Procesal Civil, ley Nº 7130 de 16 de agosto de 1989.)

@@ -1,5 +1,2 @@
-Artículo 952.- El acreedor dueño de un crédito no reconocido no
-puede concurrir a las juntas mientras por fallo ejecutoriado no se
-declare que es tal acreedor; pero desde que haya iniciado el juicio
-respectivo, el importe del crédito demandado deberá tomarse en cuenta
-para computar la mayoría en la junta sobre convenio.
+ARTÍCULO 952.- El acreedor dueño de un crédito no reconocido no podrá concurrir a las juntas ni emitir su voto por escrito, mientras por fallo firme no se declare que es tal acreedor; pero desde que haya iniciado el juicio respectivo, el importe del crédito demandado deberá tomarse en cuenta para computar la mayoría en la junta sobre el convenio.
+(Así reformado por el artículo 2º de la ley No. 7130 del 16 de agosto de 1989)

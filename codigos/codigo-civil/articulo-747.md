@@ -1,2 +1,2 @@
-Artículo 747.- El documento privado no prueba contra el que lo
-escribió y firmó si siempre ha permanecido en su poder.
+ARTÍCULO 747.- DEROGADO.
+(Derogado por el artículo 8º del Código Procesal Civil, ley Nº 7130 de 16 de agosto de 1989.)

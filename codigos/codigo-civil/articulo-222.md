@@ -1,4 +1,2 @@
-Artículo 222.- La interdicción debe declarar en juicio y
-probados los hechos que la motivaren.
-La ejecutoria que pronuncie la interdicción se publicará por el
-periódico oficial y se inscribirá en el Registro Público.
+ARTÍCULO 222.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

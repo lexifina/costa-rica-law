@@ -1,11 +1,2 @@
-Artículo 25.- Los actos y contratos que personalmente ejecute
-o celebre el que adoleciere de incapacidad mental serán absolutamente
-nulos:
-1º.- Si al celebrarlos, la incapacidad estuviere declarada por
-sentencia inscrita en el correspondiente registro.
-2º.- Si el incapaz se hallare en un establecimiento público de
-locos.
-En cualquier otro caso los actos o contratos del incapaz serán
-relativamente nulos y podrán rescindirse, a solicitud del mismo
-incapaz cuando deje de serlo, o de la persona que legalmente lo
-represente.
+ARTÍCULO 25.- Los bienes muebles pertenecientes a los costarricenses o extranjeros domiciliados en la República se regirán como los inmuebles situados en Costa Rica; pero los muebles que pertenezcan a extranjeros no domiciliados en la República, sólo se regirán por las leyes costarricenses cuando se les considere aisladamente en sí mismo.
+(Así reformado por Ley Nº 7020 de 6 de enero de 1986, artículo 1º)

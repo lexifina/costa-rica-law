@@ -1,8 +1,2 @@
-Artículo 55.- Es legalmente imposible el matrimonio:
-1º.- De la persona que está ligada por un matrimonio anterior.
-2º.- Entre ascendientes y descendientes, por consanguinidad o
-afinidad legítima o natural.
-3º.- Entre hermanos, sean o no legítimos.
-4º.- Entre el autor o cómplice de la muerte de uno de los
-cónyuges y el cónyuge sobreviviente.
-5º.- Entre el condenado por adulterio y su cómplice.
+ARTÍCULO 55.- Una vez presentada la solicitud de cambio, el Tribunal ordenará publicar un edicto en el Diario Oficial concediendo 15 días de término para presentar oposiciones.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 37 al actual).

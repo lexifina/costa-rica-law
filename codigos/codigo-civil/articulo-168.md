@@ -1,2 +1,2 @@
-Artículo 168.- El juez dispondrá la cuantía y forma en que hayan
-de prestarse los alimentos.
+ARTÍCULO 168.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

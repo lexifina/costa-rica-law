@@ -1,7 +1,4 @@
-CAPITULO III
-De los curadores.
-Artículo 921.- El curador provisional debe ser nombrado por el
-Juez al abrirse el concurso; y los curadores definitivos y suplente,
-por los acreedores en su primera junta, que deberá verificarse tan
-pronto como estén concluidos de ocupación e inventario de bienes y
-esté formada o rectificada la lista de créditos activos y pasivos.
+CAPÍTULO III
+De los curadores
+ARTÍCULO 921- Los curadores, propietario y suplente, deben ser nombrados por el Juez al dictar la resolución que declara el concurso.
+(Así reformado por artículo 2º de la Ley Nº 4327 de 17 de febrero de 1969).

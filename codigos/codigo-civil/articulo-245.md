@@ -1,4 +1,2 @@
-Artículo 245.- La legitimación de los hijos y el reconocimiento
-de los no legítimos se anotarán también en las respectivas
-inscripciones de nacimiento, lo mismo que las sentencias pronunciadas
-en juicios sobre filiación.
+ARTÍCULO 245.- DEROGADO
+(Derogado por la Ley Orgánica del Registro Electoral No. 1535 del 10 de diciembre de 1952).

@@ -1,10 +1,3 @@
-Artículo 61.- Los que intentaren contraer matrimonio lo
-manifestarán así a dicho funcionario, y consignarán ambos en esta
-manifestación sus nombres y apellidos, su edad, profesión u oficio,
-el lugar de su nacimiento y las ciudades o pueblos de su residencia
-o domicilio durante los dos últimos años; también expresarán los
-nombres, apellidos y generales de sus padres.
-Esta manifestación se hará por escrito, y se firmará por los
-interesados, o por otra persona a ruego del que no pueda firmar: y
-una vez ratificada verbalmente por los pretendientes, se publicará
-dos veces por medio de edictos.
+ARTÍCULO 61.- El domicilio de las personas jurídicas reconocidas por la ley, es el lugar donde está situada su dirección o administración, salvo lo que se dispusiere por sus estatutos o leyes especiales.
+Cuando tenga agentes o sucursales permanentes en lugares distintos de aquel en que se halle la dirección o administración, se tendrá también como su domicilio el lugar de la sucursal o agencia, respecto a los actos o contratos que ejecuten o celebre por medio del agente.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 43 al actual).

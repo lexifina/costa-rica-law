@@ -1,3 +1,2 @@
-Artículo 163.- El obligado a dar alimentos los debe a todas las
-personas indicadas en el artículo anterior; pero si no pudiere darlos
-a todas, los debe en el orden en que están enumeradas.
+ARTÍCULO 163.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

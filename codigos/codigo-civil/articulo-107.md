@@ -1,4 +1,2 @@
-Artículo 107.- La legitimidad del hijo nacido después de
-trescientos días de la disolución del matrimonio podrá contestarse
-por cualquier persona a quien perjudique la filiación o legitimidad
-del hijo.
+ARTÍCULO 107.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

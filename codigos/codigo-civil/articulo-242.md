@@ -1,4 +1,2 @@
-Artículo 242.- No se admitirá en el Registro declaración de
-paternidad de los hijos ilegítimos, salvo cuando el padre o la madre,
-personalmente o por apoderado bastante, hicieren esta declaración y
-la firmaren.
+ARTÍCULO 242.- DEROGADO
+(Derogado por la Ley Orgánica del Registro Electoral No. 1535 del 10 de diciembre de 1952).

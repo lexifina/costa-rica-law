@@ -1,3 +1,2 @@
-Artículo 722.- Solamente las sentencias definitivas dadas en
-materia de jurisdicción contenciosa y en vía ordinaria, pasan en
-autoridad de cosa juzgada.
+ARTÍCULO 722.- DEROGADO.
+(Derogado por el artículo 8º de la ley No.7130 de 16 de agosto de 1989)

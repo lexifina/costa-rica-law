@@ -1,2 +1,2 @@
-Artículo 167.- Cuando varias personas tengan igual obligación
-de dar alimentos, deberán pagarlos solidariamente.
+ARTÍCULO 167.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

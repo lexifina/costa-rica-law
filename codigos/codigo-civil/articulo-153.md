@@ -1,5 +1,2 @@
-Artículo 153.- El hijo que haya cumplido diez y ocho años puede
-ser emancipado por el padre o madre que ejerza el poder paterno. El
-acto de emancipación debe reducirse a escritura pública y no
-producirá efecto, antes de su inscripción en el registro del estado
-civil.
+ARTÍCULO 153.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,6 +1,2 @@
-TITULO VIII.
-De la tutela.
-CAPITULO I.
-Diversas clases de tutela.
-Artículo 171.- El menor que no esté en patria potestad o
-emancipado estará sujeto a tutela.
+ARTÍCULO 171.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

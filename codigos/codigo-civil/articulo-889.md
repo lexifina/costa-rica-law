@@ -1,5 +1,2 @@
-Artículo 889.- Se distinguen para los efectos legales tres
-clases de insolvencia:
-1º.- Insolvencia excusable.
-2º.- Insolvencia culpable.
-3º.- Insolvencia fraudulenta.
+ARTÍCULO 889- DEROGADO.
+(Derogado por Ley Nº 4327 de 17 de febrero de 1969, artículo 7º)

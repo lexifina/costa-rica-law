@@ -1,4 +1,2 @@
-Artículo 197.- Cuando el tutor no pueda dar hipoteca, y la suma
-que ha de garantizar no exceda de doscientos cincuenta pesos, se
-admitirá la caución juratoria si el tutor es de notoria buena
-conducta.
+ARTÍCULO 197.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

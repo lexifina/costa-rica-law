@@ -1,2 +1,2 @@
-Artículo 158.- Los alimentos no se deben sino en la parte en que
-los bienes y el trabajo del alimentario no los satisfagan.
+ARTÍCULO 158.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,3 +1,2 @@
-Artículo 236.- Cada inscripción debe consignar todas las
-declaraciones que la ley determina y ninguna más de las que ésta
-permite, según el hecho a que la inscripción se refiera.
+ARTÍCULO 236.- DEROGADO
+(Derogado por la Ley Orgánica del Registro Electoral No. 1535 del 10 de diciembre de 1952).

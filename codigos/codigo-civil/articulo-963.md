@@ -1,5 +1,2 @@
-Artículo 963.- Desde la primera junta puede el insolvente hacer
-a los acreedores las proposiciones que a bien tenga sobre el pago o
-arreglo de sus deudas.
-Legalmente aceptadas dichas proposiciones, termina el concurso
-y queda libre el deudor de interdicción por insolvencia.
+ARTÍCULO 963.- En cualquier momento el insolvente podrá hacerles a los acreedores las proposiciones que a bien tenga sobre el pago o arreglo de sus deudas.
+(Así reformado por el artículo 2º de la ley No. 7130 del 16 de agosto de 1989).

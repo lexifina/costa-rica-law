@@ -1,4 +1,2 @@
-Artículo 979.- La calificación definitiva del concurso sólo
-podrá pronunciarse después de terminado éste. Las providencias que
-durante la tramitación del concurso se dicten sobre calificación del
-mismo, tendrán siempre el carácter de provisionales.
+ARTÍCULO 979- DEROGADO
+(Derogado por artículo 7º de la Ley Nº 4327 de 17 de febrero de 1969).

@@ -1,3 +1,2 @@
-Artículo 748.- La nota escrita por el acreedor en seguida, al
-margen, al dorso o en el cuerpo del documento, aunque no esté fechada
-ni firmada, hace prueba en favor del deudor.
+ARTÍCULO 748.- DEROGADO.
+(Derogado por el artículo 8º del Código Procesal Civil, ley Nº 7130 de 16 de agosto de 1989.)

@@ -1,3 +1,2 @@
-Artículo 185.- Los abuelos varones y los hermanos y tíos del
-pupilo deben aceptar la tutela, de la cual no pueden excusarse sino
-por causa legítima.
+ARTÍCULO 185.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,2 +1,2 @@
-Artículo 156.- El mayor de diez y ocho años que no está en
-patria potestad, puede ser emancipado por el Poder Ejecutivo.
+ARTÍCULO 156.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

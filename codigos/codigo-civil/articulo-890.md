@@ -1,3 +1,2 @@
-Artículo 890.- Son insolventes de primera clase los que por
-infortunios casuales e inevitables, sufren disminución en su capital
-al punto de no poder satisfacer el todo o parte de sus deudas.
+ARTÍCULO 890- DEROGADO.
+(Derogado por Ley Nº 4327 de 17 de febrero de 1969, artículo 7º)

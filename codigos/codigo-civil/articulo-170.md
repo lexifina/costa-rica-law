@@ -1,2 +1,2 @@
-Artículo 170.- La prestación alimenticia puede modificarse por
-el cambio de circunstancias de quien la da y de quien la recibe.
+ARTÍCULO 170.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

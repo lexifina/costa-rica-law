@@ -1,6 +1,4 @@
-CAPITULO VII.
-De las presunciones.
-Artículo 759.- Toda presunción legal exime a la parte que la
-alega de la obligación de probar el hecho reputado cierto en virtud
-de tal presunción. Sin embargo, el que invoca una presunción legal
-debe probar la existencia de los hechos que le sirven de base.
+CAPÍTULO VII
+De las presunciones
+ARTÍCULO 759.- DEROGADO.
+(Derogado por el artículo 8º del Código Procesal Civil, ley Nº 7130 de 16 de agosto de 1989.)

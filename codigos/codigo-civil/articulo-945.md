@@ -1,4 +1,2 @@
-Artículo 945.- Convocadas legalmente las juntas comunes, podrán
-verificarse si concurren dos o más acreedores, y las resoluciones que
-por mayoría adopten, serán obligatorias para los acreedores de la
-minoría, lo mismo que para los que no concurriesen a la junta.
+ARTÍCULO 945.- Convocada legalmente una junta, se celebrará si concurren dos o más acreedores, y las resoluciones que por mayoría adopten, serán obligatorias para los acreedores de la minoría, lo mismo que para los que no hubieren concurrido a la junta, salvo que el acuerdo haya sido tomado contra la disposición expresa de una ley.
+(Así reformado por el artículo 2º de la ley Nº 7130 de 16 de agosto de 1989).

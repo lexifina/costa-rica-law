@@ -1,3 +1,2 @@
-Artículo 19.- Si por haber perecido dos o más personas en un
-mismo acontecimiento no pudiere saberse el orden en que han muerto,
-se presumirá que dichas personas han perecido en un mismo momento.
+ARTÍCULO 19.- Los actos contrarios a las normas imperativas y a las prohibitivas son nulos de pleno derecho, salvo que en ellas se establezca un efecto distinto para el caso de contravención.
+(Así reformado por Ley Nº 7020 de 6 de enero de 1986, artículo 1º)

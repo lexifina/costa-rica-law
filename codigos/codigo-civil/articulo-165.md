@@ -1,3 +1,2 @@
-Artículo 165.- No pueden cobrarse alimentos pasados, más que por
-los doce meses anteriores a la demanda, y eso en el caso de que el
-alimentario haya tenido que contraer deudas para vivir.
+ARTÍCULO 165.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,3 +1,2 @@
-Artículo 179.- El juez proveerá de tutor al menor que no lo
-tenga, siempre que el hecho llegue por cualquier medio a su
-conocimiento.
+ARTÍCULO 179.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

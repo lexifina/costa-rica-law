@@ -1,4 +1,2 @@
-Artículo 1387.- Todo contrato de compromiso debe necesariamente
-hacerse constar en escritura pública, pero el nombramiento de
-árbitros o arbitradores posterior a la escritura, puede hacerse ante
-el Juez por medio de escrito.
+ARTÍCULO 1387.- DEROGADO.
+(Derogado por Ley Nº 8 de 29 de noviembre de 1937).

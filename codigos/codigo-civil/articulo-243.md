@@ -1,5 +1,2 @@
-Artículo 243.- Siendo el hijo nacido durante el matrimonio, o
-en tiempo en que legalmente deba reputarse nacido dentro de él, no
-puede ser admitida en el Registro declaración en contrario, aunque
-la madre diga que el hijo no es de su marido, o éste afirme que el
-hijo no es suyo.
+ARTÍCULO 243.- DEROGADO
+(Derogado por la Ley Orgánica del Registro Electoral No. 1535 del 10 de diciembre de 1952).

@@ -1,3 +1,2 @@
-Artículo 34.- Los menores no emancipados tienen por domicilio
-el del padre o el de la madre o el del tutor a cuyo cuidado se
-encuentren sujetos; y los mayores en curatela, el del curador.
+ARTÍCULO 34.- La entidad jurídica de la persona física termina con la muerte de ésta; y la de las personas jurídicas cuando dejan de existir conforme a la ley.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 16 al actual).

@@ -1,4 +1,2 @@
-Artículo 761.- Se deben considerar como presunciones absolutas,
-aquellas en virtud de las cuales la ley anula ciertos actos, o
-acuerda una excepción perentoria contra una acción, si en esas
-hipótesis la ley no ha reservado expresamente la prueba en contrario.
+ARTÍCULO 761.- DEROGADO.
+(Derogado por el artículo 8º del Código Procesal Civil, ley Nº 7130 de 16 de agosto de 1989.)

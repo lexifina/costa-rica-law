@@ -1,6 +1,2 @@
-Artículo 81.- La acción de divorcio sólo puede establecerse por
-el cónyuge inocente, y sólo se admitirá si fuere establecida dentro
-de un año contado desde que llegaron a noticia del ofendido los
-hechos que pudieran motivarlo.
-La acción de divorcio instaurada puede continuarse por los
-herederos.
+ARTÍCULO 81.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

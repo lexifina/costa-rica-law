@@ -1,3 +1,3 @@
-Artículo 265.- Cuando no correspondan al dueño todos los
-derechos que comprende el dominio pleno, la propiedad es imperfecta
-o limitada.
+ARTÍCULO 265- Cuando no corresponden al dueño todos los derechos que comprende el dominio pleno, la propiedad es imperfecta o limitada.
+De acuerdo con las disposiciones del régimen de propiedad en condominio, podrán pertenecer a distintos propietarios, los pisos, locales, las oficinas, los estacionamientos o departamentos en que se dividan uno o varios edificios, cuando se trate de construcciones verticales en varios pisos o niveles, o las casas, locales, oficinas y estacionamientos, cuando el desarrollo no sea vertical sino horizontal y, en los casos de urbanizaciones privadas, tanto los lotes en que se divida el terreno como las construcciones que sobre ellos se levanten. En estos casos, cada propietario será el dueño exclusivo de su piso, local, oficina, estacionamiento, casa o lote y será condómino de los bienes afectos al uso común; además, las diferentes figuras podrán combinarse. Los bienes sometidos a este régimen se conocerán como condominios.
+(Así reformado el párrafo anterior por el artículo 40 de la Ley Reguladora de la Propiedad en Condominio, ley No. 7933 de 28 de octubre de 1999)

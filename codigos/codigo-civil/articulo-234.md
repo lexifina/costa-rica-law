@@ -1,4 +1,2 @@
-Artículo 234.- El Registro del Estado Civil comprende:
-1º.- El Registro de nacimientos
-2º.- El Registro de matrimonios.
-3º.- El Registro de defunciones
+ARTÍCULO 234.- DEROGADO
+(Derogado por la Ley Orgánica del Registro Electoral No. 1535 del 10 de diciembre de 1952).

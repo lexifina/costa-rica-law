@@ -1,9 +1,4 @@
-CAPITULO VII.
-Disposiciones transitorias.
-Artículo 478.- No se admitirá en los tribunales ni en las
-oficinas del Gobierno, a no ser invocado en juicio contra alguna de
-las partes, sus herederos o representantes, ningún documento sujeto
-a inscripción, que no haya sido inscrito; pero respecto de los
-poderes y demás documentos ya otorgados que, por la legislación
-anterior, no estaban sujetos a inscripción, sólo será aplicable este
-artículo noventa días después de hallarse en vigor este Código.
+CAPÍTULO VII
+Disposiciones transitorias
+ARTÍCULO 478.- Ningún documento sujeto a inscripción que no haya sido inscrito se admitirá en los tribunales ni en las oficinas del gobierno, salvo que se invoque en juicio contra alguna de las partes, sus herederos o representantes.
+(Así reformado por el artículo 178, inciso b), del Código Notarial No.7764 de 17 de abril de 1998)

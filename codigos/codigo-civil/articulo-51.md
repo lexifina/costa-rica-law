@@ -1,2 +1,2 @@
-Artículo 51.- Toda condición contraria a los fines esenciales
-del matrimonio es nula.
+ARTÍCULO 51.- Cuando se presente a una persona como hijo de padres desconocidos, el oficial del Registro le pondrá nombre y apellido haciéndose constar esta circunstancia en el acta. En este caso no podrá el oficial imponer nombre o apellidos extranjeros ni aquellos que pueden hacer sospechar el origen del expósito. Tampoco usará nombre o apellidos que puedan causar burla o descrédito al infante, o exponerlo al desprecio público.
+(Así reformado por Ley Nº5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 33 al actual).

@@ -1,6 +1,2 @@
-Artículo 6º.- La prescripción y todo lo que concierne al modo
-de cumplir o extinguir las obligaciones que resulten de cualquier
-acto jurídico o contrato que haya de ejecutarse en Costa Rica, se
-regirá por las leyes costarricenses, aunque los otorgantes sean
-extranjeros, y aunque el acto o contrato no se haya ejecutado o
-celebrado en la República.
+ARTÍCULO 6º- Los Tribunales tienen el deber inexcusable de resolver, en todo caso, los asunto que conozcan, para lo que se atenderán al sistema de fuentes establecido.
+(Así reformado por Ley Nº 7020 de 6 de enero de 1986, artículo 1º)

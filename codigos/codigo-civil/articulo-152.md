@@ -1,4 +1,2 @@
-CAPITULO V.
-De la emancipación.
-Artículo 152.- El matrimonio produce, desde que se inscribe
-conforme a la ley, la emancipación del menor.
+ARTÍCULO 152.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,2 +1,2 @@
-Artículo 50.- El matrimonio es perpetuo y tiene por objeto la
-procreación y el mutuo auxilio.
+ARTÍCULO 50.- Los Registradores Auxiliares del Registro del Estado Civil, al recibir la declaración de un nacimiento consignarán un nombre simple o compuesto de dos nombres conforme a lo que indique la persona que haga la declaración. En el caso de que el Registrador Auxiliar consigne tres o más nombres, el Registro hará la inscripción tomando en cuenta sólo los dos primeros.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 32 al actual).

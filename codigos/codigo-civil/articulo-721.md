@@ -1,5 +1,5 @@
-CAPITULO II.
-De la cosa juzgada.
-Artículo 721.- La cosa juzgada hace legalmente cierta la
-existencia o la no existencia de la relación jurídica que ella
-declara.
+CAPÍTULO II
+De la cosa juzgada
+(NOTA: Este capítulo fue derogado por el articulo 8º del Código Procesal Civil Ley Nº 7130 de 16 de agosto de 1989)
+ARTÍCULO 721.- DEROGADO.
+(Derogado por el artículo 8º de la ley No.7130 de 16 de agosto de 1989)

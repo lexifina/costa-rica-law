@@ -1,6 +1,5 @@
-CAPITULO V.
-De los documentos privados.
-Artículo 741.- Los documentos privados, reconocidos
-judicialmente o declarados por reconocidos conforme a la ley, hacen
-fe entre las partes y con relación a terceros en cuanto a las
-declaraciones en ellos contenidas, salvo prueba en contrario.
+CAPÍTULO V
+De los documentos privados
+(Nota: Este Capítulo fue derogado por el artículo 8º de la Nº 7130 del 16 de agosto de 1989)
+ARTÍCULO 741.- DEROGADO
+(Derogado por el artículo 8 de la ley No.7130 de 16 de agosto de 1989)

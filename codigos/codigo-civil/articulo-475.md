@@ -1,9 +1,2 @@
-Artículo 475.- La inscripción provisional cuando se refiere a
-decreto de embargo o a título con defectos subsanables quedará
-cancelada por el hecho de dejar transcurrir los términos de la ley
-sin presentar el embargo ya verificado o sin corregir los defectos
-del título.
-Si la inscripción provisional se refiere a embargo o a demanda
-se cancelará en virtud del mandamiento de desembargo o de la
-sentencia ejecutoria que absuelva de la demanda o la declare
-definitivamente desierta.
+ARTÍCULO 475.- La anotación provisional referente a decreto de embargo o título con defectos subsanables, quedará cancelada por el hecho de dejar transcurrir los términos de la ley. Si la anotación provisional se refiriere a embargo o demanda, se cancelará en virtud de mandamiento de desembargo o de sentencia ejecutoriada que absuelva de la demanda o la declare definitivamente desierta.
+(Así reformado por el artículo 178, inciso b), del Código Notarial No.7764 de 17 de abril de 1998)

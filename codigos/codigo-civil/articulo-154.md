@@ -1,1 +1,2 @@
-Artículo 154.- Hecha la emancipación, no puede ser revocada.
+ARTÍCULO 154.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,4 +1,2 @@
-Artículo 229.- Cesa la curatela cuando cesa la incapacidad:
-pero deberá preceder declaratoria judicial que levante la
-interdicción, y se observarán las mismas formalidades que para
-establecerla.
+ARTÍCULO 229.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

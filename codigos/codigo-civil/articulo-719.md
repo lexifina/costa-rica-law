@@ -1,7 +1,7 @@
-TITULO III.
-De la prueba.
-CAPITULO I.
-Disposiciones generales.
-Artículo 719.- Todo aquel que intente una acción u oponga una
-excepción, es obligado a probar los hechos en que descansa la acción
-o excepción.
+TÍTULO III
+DE LA PRUEBA
+CAPÍTULO I
+Disposiciones generales
+(NOTA: Este Capítulo fue derogado por el artículo 8 del Código Procesal Civil, Ley Nº 7130 de 16 de agosto de 1989)
+ARTÍCULO 719.- DEROGADO.
+(Derogado por el artículo 8º de la ley No.7130 de 16 de agosto de 1989)

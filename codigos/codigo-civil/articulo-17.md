@@ -1,6 +1,4 @@
-Artículo 17.- Todo el que reclame derechos subordinados a la
-existencia de un individuo en determinada fecha, debe probar su
-existencia contra el que la niega.
-Cualquiera que reclame un derecho dependiente de la muerte de
-una persona, debe probar este hecho contra el que lo niegue, salvo
-lo dispuesto en casos particulares.
+CAPÍTULO III
+Eficacia general de las normas jurídicas
+ARTÍCULO 17.- El error de Derecho producirá únicamente aquellos efectos que las leyes determinen.
+(Así reformado por Ley Nº 7020 de 6 de enero de 1986, artículo 1º)

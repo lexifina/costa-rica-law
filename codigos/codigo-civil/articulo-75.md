@@ -1,12 +1,3 @@
-Artículo 75.- Los cónyuges pueden, antes de celebrar su
-matrimonio, arreglar todo lo que se refiera a sus bienes. Este
-convenio, para valer, deberá constar en escritura pública y
-registrarse debidamente.
-Las capitulaciones matrimoniales pueden alterarse después de
-celebrado el matrimonio; pero el cambio no perjudicará a terceros
-posteriores a él, sino después que la nueva escritura esté inscrita
-en el registro respectivo y se haya anunciado por el periódico
-oficial que los cónyuges han alterado sus capitulaciones.
-El menor hábil para casarse puede celebrar las capitulaciones
-previas al matrimonio; pero deberá estar asistido por la persona cuyo
-consentimiento necesite para contraerlo.
+ARTÍCULO 75.- Los que a consecuencia de la posesión provisional hubieren disfrutado de los bienes del ausente, no estarán obligados a devolver sino el quinto de los frutos líquidos percibidos; cuando la restitución de los bienes se hiciere antes de cinco años después de la entrada en posesión; y el décimo cuando la restitución se hiciere después de este término.
+Pasados diez años desde la entrada en posesión sólo estarán obligados a devolver los bienes.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 57 al actual).

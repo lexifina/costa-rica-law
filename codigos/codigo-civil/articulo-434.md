@@ -1,3 +1,3 @@
-Artículo 434.- En toda hipoteca de cédulas se tendrán por
-renunciados los trámites del juicio ejecutivo, y la base para el
-remate de la finca hipotecada será el valor de la primera hipoteca.
+ARTÍCULO 434.- En toda hipoteca de cédulas se tendrán por renunciados los trámites del juicio ejecutivo, y la base para el remate de la finca hipotecada será el valor de la primera hipoteca.
+Quien tuviere el derecho de pedir el remate, podrá hacerlo con base de la cédula o cédulas en su poder, independientemente de las que se encuentren en el de otras personas. Cuando el comprador deba recibir la finca libre de gravámenes, se pagará íntegramente al ejecutante su crédito si el monto del remate alcanzare a cubrir toda la emisión de cédulas y cupones expedidos; en el caso contrario, se la pagará en proporción su crédito. En uno y otro caso, el resto del precio quedará depositado para responder al pago de las cédulas y cupones no presentados en la ejecución, y se procederá a la cancelación del gravamen en el Registro.
+(Así reformado por Ley Nº 113 de 6 de julio de 1940, artículo 1º).

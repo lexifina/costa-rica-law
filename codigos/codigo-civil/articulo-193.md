@@ -1,4 +1,2 @@
-CAPITULO III.
-De las garantías de la administración.
-Artículo 193.- El tutor debe garantizar, y el juez no dará la
-administración antes de la prestación de garantías.
+ARTÍCULO 193.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,3 +1,2 @@
-Artículo 1005.- En ningún caso se podrá estipular como pena
-entre los particulares, para asegurar el cumplimiento de alguna
-obligación, el apremio corporal.
+ARTÍCULO 1005.- DEROGADO.
+(Derogado por el artículo 69, inciso b), de la Ley de Pensiones Alimentarias No.7654 de 19 de diciembre de 1996)

@@ -1,3 +1,2 @@
-Artículo 111.- En cuanto a los derechos y obligaciones respecto
-de la madre, ninguna diferencia hay entre los hijos legítimos y los
-ilegítimos.
+ARTÍCULO 111.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,2 +1,2 @@
-Artículo 728.- La confesión judicial es irrevocable, salvo que
-se haya dado por error de hecho.
+ARTÍCULO 728.- DEROGADO.
+(Derogado por el artículo 8º de la ley No.7130 de 16 de agosto de 1989)

@@ -1,6 +1,2 @@
-Artículo 469.- La inscripción provisional de los actos jurídicos
-a que se refieren los casos 1º, 2º y 3º del artículo anterior, se
-convierte en definitiva, mediante la presentación en el Registro de
-la respectiva sentencia, pasada en autoridad de cosa juzgada. La del
-caso 6º cuando se subsane el defecto o desaparezca el motivo porque
-no se inscribió definitivamente.
+ARTÍCULO 469.- La anotación provisional de los actos jurídicos a que se refieren los casos 1, 2, 3 y 4 del artículo anterior, se convierte en inscripción definitiva mediante la presentación, en el Registro, de la respectiva sentencia, pasada en autoridad de cosa juzgada.
+(Así reformado por el artículo 178, inciso b), del Código Notarial No.7764 de 17 de abril de 1998)

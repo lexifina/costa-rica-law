@@ -1,3 +1,2 @@
-Artículo 244.- En la inscripción de nacimientos se anotará
-cualquiera otra inscripción que posteriormente se haga en el Registro
-relativa a la misma persona.
+ARTÍCULO 244.- DEROGADO
+(Derogado por la Ley Orgánica del Registro Electoral No. 1535 del 10 de diciembre de 1952).

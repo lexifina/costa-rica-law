@@ -1,4 +1,2 @@
-Artículo 125.- La investigación de paternidad o maternidad es
-prohibida, cuando el reconocimiento no puede verificarse, por ser el
-hijo adulterino o incestuoso: la de maternidad es también prohibida
-cuando la madre del hijo natural es casada actualmente.
+ARTÍCULO 125.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

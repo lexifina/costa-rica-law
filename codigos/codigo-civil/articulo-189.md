@@ -1,4 +1,2 @@
-Artículo 189.- La excusa debe presentarse dentro de los ocho
-días siguientes a la notificación del nombramiento: fuera de este
-término no será admitida. Para presentar la excuse superveniente no
-hay término.
+ARTÍCULO 189.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

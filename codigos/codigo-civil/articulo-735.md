@@ -1,5 +1,2 @@
-Artículo 735.- Los documentos o instrumentos públicos, mientras
-no sean argüidos de falsos, hacen plena prueba de la existencia
-material de los hechos que el oficial público afirma en ellos haber
-realizado él mismo, o haber pasado en su presencia en el ejercicio
-de sus funciones.
+ARTÍCULO 735.- DEROGADO.
+(Derogado por el artículo 8º de la ley No.7130 de 16 de agosto de 1989)

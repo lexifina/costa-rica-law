@@ -1,7 +1,5 @@
-Artículo 477.- Podrá declararse nula la cancelación:
-1º.- Cuando se declare falso o nulo el título en virtud del cual
-fué hecha.
-2º.- Cuando se haya verificado por error o fraude.
-Pero en estos casos la nulidad sólo perjudica a terceros
-posteriores, cuando se haya inscrito provisionalmente la demanda
-establecida para que se declare en juicio.
+ARTÍCULO 477.- La cancelación podrá declararse nula cuando:
+1.- Se declare falso o nulo el título en virtud del cual fue hecha.
+2.- Se haya verificado por error o fraude.
+En estos casos, la nulidad solo perjudica a terceros posteriores cuando la demanda establecida se haya anotado provisionalmente para que se declare en juicio.
+(Así reformado por el artículo 178, inciso b), del Código Notarial No.7764 de 17 de abril de 1998)

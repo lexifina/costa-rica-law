@@ -1,4 +1,2 @@
-Artículo 208.- En los actos o contratos que ejecuté el tutor en
-representación del pupilo, se constar esta circunstancia, so pena de
-reputarse ejecutado el acto en nombre del tutor, cuando perjudica al
-pupilo.
+ARTÍCULO 208.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,2 +1,2 @@
-Artículo 182.- Puede ser excluido de la tutela el tutor que no
-haya promovido el inventario en el término de ley.
+ARTÍCULO 182.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

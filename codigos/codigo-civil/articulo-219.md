@@ -1,3 +1,2 @@
-Artículo 219.- Son incapaces de administrar sus bienes:
-1º.- El loco, imbécil o demente, aunque tenga lúcidos intervalos
-2º.- El sordo mudo que no sabe leer y escribir.
+ARTÍCULO 219.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

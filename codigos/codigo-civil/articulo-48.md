@@ -1,8 +1,3 @@
-Artículo 48.- En cualquier época que se pruebe la muerte del
-ausente se defiere la herencia a los que debieron heredarlo al tiempo
-del fallecimiento; el tenedor de los bienes hereditarios deberá
-devolverlos con la reserva de frutos establecida en el artículo 44,
-salvo que hubiere prescrito la herencia por el trascurso del término
-ordinario, que se contará desde la declaración de presunción de
-muerte o desde el fallecimiento del ausente si hubiere ocurrido
-después de la declaración.
+ARTÍCULO 48.- Si la imagen o fotografía de una persona se publica sin su consentimiento y no se encuentra dentro de alguno de los casos de excepción previstos en el artículo anterior, aquella puede solicitarle al Juez como medida cautelar sin recursos, suspender la publicación, exposición o venta de las fotografías o de las imágenes, sin perjuicio de lo que resuelva en definitiva. Igual medida podrán solicitar la persona directamente afectada, sus representantes o grupos de interés acreditados, en el caso de imagen o fotografías que estereotipen actitudes discriminantes.
+(Así reformado por el artículo 79 de la Ley de Igualdad de Oportunidades para Personas con Discapacidad No.7600 de 2 de mayo de 1996)
+(Así corrida su numeración por el artículo 2° de la Ley Nº 7020 de 6 de enero de 1986, que lo traspasó del antiguo artículo 30 al 48)

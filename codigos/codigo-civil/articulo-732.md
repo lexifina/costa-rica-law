@@ -1,5 +1,5 @@
-CAPITULO IV.
-De los documentos públicos.
-Artículo 732.- Son documentos públicos todos aquellos que han
-sido redactados o extendidos por funcionarios públicos, según las
-formas requeridas y dentro del límite de sus atribuciones.
+CAPÍTULO IV
+De los documentos públicos
+(NOTA: Este Capítulo fue derogado por el artículo 8º de la Ley Nº 7130)
+ARTÍCULO 732.- DEROGADO.
+(Derogado por el artículo 8º de la ley No.7130 de 16 de agosto de 1989)

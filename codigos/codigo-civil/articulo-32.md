@@ -1,8 +1,2 @@
-Artículo 32.- Puede estipularse un domicilio especial para el
-cumplimiento de actos determinados; esta elección vale desde luego,
-hecha en documento público; y si lo fué en documento privado, desde
-que éste sea reconocido. No puede dejarse a un tercero el encargo de
-elegir un domicilio especial.
-La renuncia del domicilio, si no va acompañada de elección de
-alguno especial, autoriza para perseguir al reo en el domicilio que
-tenía cuando celebró el contrato y en el domicilio del acreedor.
+ARTÍCULO 32.- Si dos o más nacen de un mismo parto se consideran iguales en los derechos que dependen de la edad.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 14 al actual).

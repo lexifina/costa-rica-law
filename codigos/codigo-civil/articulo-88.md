@@ -1,5 +1,2 @@
-Artículo 88.- En la sentencia que declare el divorcio, puede el
-juez conceder una pensión alimenticia al cónyuge inocente, a cargo
-del culpable. Esta pensión se calculará de modo que el cónyuge
-conserve la posición pecuniaria que tenía durante el matrimonio, y
-se revocará cuando deje de ser necesaria.
+ARTÍCULO 88.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).
