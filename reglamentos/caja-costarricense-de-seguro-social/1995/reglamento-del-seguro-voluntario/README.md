@@ -15,3 +15,4 @@ Reglamento del Seguro Voluntario
 | --- | --- | --- |
 | 1 | 1996-01-15 | la propia norma |
 | 2 | 2002-12-10 | Reglamento 7712 (2002-12-10) |
+| 3 | 2002-12-10 | Ley 8 |
