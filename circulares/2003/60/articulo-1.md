@@ -14,9 +14,10 @@ Sobre Exceso Hasta ¢5.000.000,00 0,75%máx. ¢70.500,00
 Sobre Exceso Hasta ¢10.000.000,00 0,50%máx. ¢95.500,00
 Sobre Exceso Hasta ¢25.000.000,00 0,25%máx. ¢133.000,00
 Sobre Exceso Hasta ¢50.000.000,00 0,20%máx. ¢183.000,00
-Sobre Exceso Hasta ¢75.000.000,00 0,15%máx. ¢220.000,00
-Sobre Exceso Hasta ¢100.000.000,00 0,10%máx. ¢245.000,00
+Sobre Exceso Hasta ¢75.000.000,00 0,15%máx. ¢220.500,00
+Sobre Exceso Hasta ¢100.000.000,00 0,10%máx. ¢245.500,00
 Sobre Exceso 0,05% Que representan ¢2500,00 por cada ¢5 millones adicionales.
 En aquellos casos concretos en que el Juez así lo estime conveniente (debidamente fundamentado) se cancelará por aparte de los honorarios fijados, los gastos incurridos en alimentación, transporte, hospedaje y utilización de otros servicios.
 Rige a partir de su pulicación.
 San José, 16 de julio del 2003.
+(Así REFORMADO PARCIAL y EXPRESAMENTE por la Circular N° 88-2003, de 22 de julio de 2003, publicada en el Boletín Judicial N° 173 del 09 de setiembre de 2003.)

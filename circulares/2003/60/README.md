@@ -13,3 +13,4 @@ Sobre el Pago Honorarios de Peritos.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-29 | la propia norma |
+| 2 | 2003-07-29 | Circular 88 (2003-07-22) |
