@@ -102,3 +102,4 @@ Secret. Eject. De Planificación Sector Agropecuario 22,3
 Servicio Nacional de Aguas Subterráneas Riego y A. 1.501,4
 Teatro Popular Melico Salazar 570,6
 Unidad Ejecutora PPZN MIDEPLAN 10,3
+(Interpretado por el artículo 1 del Decreto Ejecutivo N° 30401 de 15 de abril del 2002, en el sentido de que para la Oficina del Arroz, el límite de gasto presupuestario y el límite de gasto efectivo señalados en el DE N° 29511-H comprende el período que va del 1° de julio del 2002 al 30 de junio del 2003 y el porcentaje de crecimiento del gasto presupuestario que señala el DE N° 30214-H, se establece para el período que va del 1° de julio del 2003 al 30 de junio del 2004, de acuerdo con el ejercicio económico de la entidad.)
