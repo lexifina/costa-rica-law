@@ -1,0 +1,2 @@
+Art.4°—Con el presente decreto se dará cuenta el Congreso Constitucional en su próxima reunión ordinaria.
+AL PODER EJECUTIVO.—Dado en el salón de sesiones.—Palacio Nacional, en San José, á veintiséis de febrero de mil ochocientos ochenta y tres.—A. DE JESÚS SOTO, Presidente.—VICENTE. C SEGREDA, Secretario.—Palacio Presidencial.—San José, á veintiséis de febrero de mil ochocientos ochenta y tres.—Ejecútese.—P.FERNÁNDEZ.—El Secretario de Estado en el Despacho de Hacienda y Comercio.—BERNARDO SOTO.
