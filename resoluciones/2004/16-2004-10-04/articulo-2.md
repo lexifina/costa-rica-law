@@ -1,0 +1,1 @@
+Artículo 2º—Se deja sin efecto la resolución Nº 25 de las ocho horas del día veintitrés de setiembre del dos mil dos dictada por la Dirección General, publicada en el Diario Oficial La Gaceta Nº 182 de 23 de setiembre del 2003.
