@@ -1,0 +1,1 @@
+Artículo 3°-El Banco Central, depositará los fondos que se recauden por este concepto directamente en la cuenta corriente que indique la Junta Adminis trativa del Registro Nacional, dentro de los primeros cinco días de cada mes y destinado a los fines de creación de la Junta.

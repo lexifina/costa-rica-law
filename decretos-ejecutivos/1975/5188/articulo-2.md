@@ -1,0 +1,1 @@
+Artículo 2°-Se autoriza al Banco Central, para que en el futuro siga habilitando por medio de resello impreso los timbres fiscales, que sean necesarios, hasta tanto no se confeccione un timbre definitivo.
