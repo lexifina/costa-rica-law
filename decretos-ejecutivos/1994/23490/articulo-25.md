@@ -1,6 +1,6 @@
 DE LOS ÁMBITOS TERRITORIALES
 ARTICULO 25. Para los efectos del presente Decreto, la Dirección Provincial de San José, estará compuesta por las siguientes Direcciones Regionales:
-a) Dirección Regional de Educación de San José Uno:
+a) Dirección Regional de Educación de San José:
 PROVINCIA | CANTÓN | DISTRITO ADMINISTRATIVO
 SAN JOSÉ | San José | Carmen
 | | Merced
@@ -50,7 +50,8 @@ SAN JOSÉ | San José | Carmen
 | | Granadilla
 | | Sánchez
 | | Tirrases
-b) Dirección Regional de Educación de San José Dos:
+(Así reformada la denominación de la Dirección Regional de Educación descrita,mediante el artículo 1° del Decreto Ejecutivo No. 27270, del 18 de agosto de 1998.)
+b) Dirección Regional de Educación de Desamparados:
 SAN JOSÉ | Desamparados | Desamparados
 | | San Miguel
 | | San Juan de Dios
@@ -88,6 +89,7 @@ SAN JOSÉ | Desamparados | Desamparados
 | | Llano Bonito
 | | San Isidro
 | | Santa Cruz
+(Así reformada la denominación de la Dirección Regional de Educación descrita, mediante el artículo 1° del Decreto Ejecutivo No. 27270, del 18 de agosto de 1998.)
 c) Dirección Regional de Educación de Puriscal con sede en Santiago de Puriscal, conformada por la siguiente área geográfica:
 SAN JOSÉ | Puriscal | Santiago
 | | Mercedes Sur

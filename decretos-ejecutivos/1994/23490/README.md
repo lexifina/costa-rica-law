@@ -14,3 +14,4 @@ Reglamento de la Organización Administrativa de las Direcciones Provinciales de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-07-29 | la propia norma |
+| 2 | 1998-08-18 | Decreto Ejecutivo 27270 (1998-08-18) |
