@@ -1,0 +1,1 @@
+Artículo 3º—Corresponderá única y exclusivamente al Consejo la emisión de políticas de supervisión, control y operación, el establecimiento de normativa en materia de fijación y actualización del monto del pago por extrafunciones, los requisitos de idoneidad de las personas que realizan extrafunciones, entre otros.

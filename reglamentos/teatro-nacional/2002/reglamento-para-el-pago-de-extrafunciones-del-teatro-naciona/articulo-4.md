@@ -1,0 +1,1 @@
+Artículo 4º—Solo se realizarán pagos por concepto de extrafunciones a personas que mantengan una relación laboral con el Teatro Nacional. El pago por dicho concepto se realizará en la misma fecha en que se efectúe el pago de salarios para el personal de la entidad y será objeto de cotizaciones, deducciones e impuestos que correspondan según la normativa vigente.

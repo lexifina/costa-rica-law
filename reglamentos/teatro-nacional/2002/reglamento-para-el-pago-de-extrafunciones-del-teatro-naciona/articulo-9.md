@@ -1,0 +1,1 @@
+Artículo 9º—La Dirección General tiene la obligación de tomar las medidas pertinentes en materia de coordinación, a fin de garantizar que durante la jornada laboral se ejecuten todas las labores preparatorias necesarias para las funciones y actos especiales, a fin de optimizar el uso de los recursos asignados para desarrollar tareas de extrafunciones.

@@ -1,0 +1,1 @@
+Artículo 5º—Para efectos de pago la Dirección General del Teatro Nacional elaborará un reporte en el que se consigne el nombre del funcionario, la cantidad de eventos en los que prestó servicios (ensayos, funciones y actos especiales), fecha de los eventos y monto a pagar por dicho concepto.

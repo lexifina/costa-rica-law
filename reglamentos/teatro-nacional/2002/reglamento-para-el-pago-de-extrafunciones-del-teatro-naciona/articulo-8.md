@@ -1,0 +1,1 @@
+Artículo 8º—De conformidad con lo dispuesto en el artículo 31 de la Ley Nº 6955, Ley para el Equilibrio Financiero del Sector Público, queda prohibido el pago de extrafunciones de manera permanente a los funcionarios del Teatro Nacional.

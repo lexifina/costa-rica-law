@@ -1,0 +1,1 @@
+Transitorio único.—Los funcionarios que a la fecha de la publicación del presente reglamento se encuentren devengando funciones mantendrán dicho beneficio en las mismas condiciones y regulaciones que han disfrutado, cumpliendo con los requisitos establecidos.

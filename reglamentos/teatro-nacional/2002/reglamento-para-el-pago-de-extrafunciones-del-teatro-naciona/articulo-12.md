@@ -1,0 +1,1 @@
+Artículo 12.—Los personas que realizan extrafunciones deben ser funcionarios regulares de la entidad, de reconocida solvencia moral y deberán atender las indicaciones del encargado de cada grupo de trabajo.
