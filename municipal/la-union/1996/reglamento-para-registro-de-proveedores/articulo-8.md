@@ -1,0 +1,1 @@
+8. Todo cambio que se produzca, deberá comunicarse a la Sección de Proveeduría, mediante nota firmada por quien ostente la autoridad correspondiente, igualmente si se aportan copias de las certificaciones.

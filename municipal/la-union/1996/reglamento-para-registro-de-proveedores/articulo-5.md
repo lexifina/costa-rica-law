@@ -1,0 +1,1 @@
+5. A los interesados en inscribirse como proveedores se les suministrará un formulario con la información básica a suplir, en adelante conocida como "solicitud", la cual deberá retirar y entregar en la Sección de Proveeduría, incluyendo toda la información solicitada en ella.

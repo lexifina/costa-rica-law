@@ -1,0 +1,1 @@
+3. El registro tiene por objetivo facilitar la consecución de los bienes y servicios necesarios para la Municipalidad de La Unión, por ello, el interesado en registrarse, se inscribirá única y exclusivamente en los bienes y servicios que está en capacidad de suministrar de acuerdo con la información que proporcione al efecto.

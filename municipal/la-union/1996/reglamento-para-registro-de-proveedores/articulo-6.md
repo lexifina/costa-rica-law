@@ -1,0 +1,1 @@
+6. La solicitud deberá llenarse correctamente a máquina, sin tachaduras ni borrones. En caso de duda la administración solicitará las aclaraciones respectivas, posponiendo su inscripción hasta el cumplimiento de lo solicitado.
