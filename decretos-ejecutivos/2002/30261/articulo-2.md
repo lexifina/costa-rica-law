@@ -1,0 +1,1 @@
+Artículo 2º—Proceda la Dirección General de Administración de Bienes y Contratación Administrativa a rebajar de los inventarios correspondientes a la Administración Central-Ministerio de Hacienda, los bienes que se traspasan por este medio.
