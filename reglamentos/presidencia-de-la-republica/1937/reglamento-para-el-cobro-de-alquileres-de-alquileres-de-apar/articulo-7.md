@@ -1,0 +1,1 @@
+Artículo 7°.- Para el mejor resultado de sus funciones la Auditoría General de Comunicaciones dictará las medidas que juzgue pertinentes, inclusive la de exigir pólizas de fidelidad, cuando el caso lo requiera.

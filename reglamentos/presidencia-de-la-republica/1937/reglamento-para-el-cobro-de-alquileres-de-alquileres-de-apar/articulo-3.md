@@ -1,0 +1,1 @@
+Artículo 3°.- Estos recibos serán cobrados y sellados por las oficinas de correos que corresponda, debiendo especificarse claramente en ellos la fecha en que se efectúe el pago. Los recibos de Apartados de la Oficina Central de San José serán cobrados y sellados por la Auditoría General de Comunicaciones.
