@@ -1,0 +1,1 @@
+Artículo 11.—El quórum para la realización de las sesiones del COLOSEVI será alcanzado por mayoría simple de sus integrantes, para el cual se dará un tiempo prudencial de 10 minutos. En ausencia del Presidente y vicepresidente y de existir quórum los existentes designarán un coordinador, los acuerdos se tomarán por mayoría simple de los presentes.

@@ -1,0 +1,1 @@
+Artículo 9°—En caso de ausencia a las sesiones del Presidente (a) el Vicepresidente asume el cargo, y en ausencia del Secretario (a) o su suplente el cargo será asumido por quien designe el Presidente (a).

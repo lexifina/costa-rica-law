@@ -1,0 +1,1 @@
+Artículo 10.—El COLOSEVI sesionará ordinariamente una vez al mes y extraordinariamente cuando se considere necesario a criterio del (la) Presidente (a) o a solicitud de dos o más de sus miembros (as). El lugar de reunión será la Municipalidad de Desamparados, o el lugar que el COLOSEVI designe.

@@ -1,0 +1,1 @@
+Artículo 5°—E1 COLOSEVI será un ente adscrito a la Municipalidad de Desamparados y se encargará de proponer los proyectos de Seguridad Vial y de fiscalizar los gastos que se ejecuten con fondos provenientes de la Ley No 7331 y otros que se reciban para los fines específicos.

@@ -1,0 +1,1 @@
+Artículo 20.—El COLOSEVI podrá disponer de los fondos recibidos hasta un 10% para sufragar sus necesidades en las partidas: servicios no personales, materiales y suministros, maquinaria y equipo y un mínimo del 5% para proyectos de capacitación en Educación Vial.

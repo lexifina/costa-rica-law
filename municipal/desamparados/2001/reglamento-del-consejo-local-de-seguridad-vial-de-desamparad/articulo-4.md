@@ -1,0 +1,1 @@
+Artículo 4°—Sus políticas y acciones se regirán en todo momento según lo dispuesto por el Decreto Ejecutivo No-29390-MOPT-S, los lineamientos provenientes del Consejo de Seguridad Vial, Ingeniería de Tránsito, la Dirección General de Tránsito, la Ley de Tránsito No.7331, Concejo Municipal y del propio COLOSEVI.

@@ -1,0 +1,1 @@
+Artículo 14.—Es atribución exclusiva del COLOSEVI solicitar por escrito al Concejo Municipal que informe ante la organización o institución respectiva las faltas o ausencias cometidas por sus representantes.
