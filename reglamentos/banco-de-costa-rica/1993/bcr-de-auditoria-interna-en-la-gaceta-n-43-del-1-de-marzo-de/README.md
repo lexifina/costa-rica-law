@@ -14,3 +14,4 @@ BCR: De Auditoría Interna (En La Gaceta N° 43 del 1° de marzo del 2006, se pu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-08-05 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
