@@ -1,0 +1,1 @@
+Artículo 14. —-Discusión de las propuestas. El Concejo Municipal debe tomar las medidas necesarias para garantizar un adecuado margen de libertad para el planeo y examen de las distintas opciones que presenta la consulta popular, disponiendo un tiempo razonable para la divulgación y análisis de las diferentes alternativas por parle de los habitantes del cantón.
