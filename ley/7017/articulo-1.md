@@ -3,7 +3,7 @@ N° 7017
 "2. Aprobar las modificaciones al Arancel Centroamericano de Importación, que incorpora al Sistema Arancelario Centroamericano (SAC), los resultados de la Tercera Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías y los Derechos Arancelarios a la Importación (DAI), en la forma que se consigna en el Anexo 1 de la presente Resolución, el cual constituye el Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano.")
 LAS ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETAN:
-ARTICULO 1º- Ratifícase, en todas y cada una de sus partes, el Anexo A al Convenio sobre el Régimen Arancelario y Aduanero Centroamericano: Arancel Centroamericano de Importación y la Resolución Nº 2 del Consejo Arancelario y Aduanero Centroamericano, mediante el cual aprobó el Anexo A, suscrito el 20 de setiembre de 1985.
+Artículo 1º- Ratifícase, en todas y cada una de sus partes, el Anexo A al Convenio sobre el Régimen Arancelario y Aduanero Centroamericano: Arancel Centroamericano de Importación y la Resolución Nº 2 del Consejo Arancelario y Aduanero Centroamericano, mediante el cual aprobó el Anexo A, suscrito el 20 de setiembre de 1985.
 Se adjunta como anexo Nº 1 el texto certificado de la citada resolución y del nuevo Arancel de Aduanas.
 ANEXO "A"
 DEL CONVENIO SOBRE EL RÉGIMEN ARANCELARIO Y ADUANERO
@@ -7457,6 +7457,7 @@ artí
 (Modificado mediante Decreto Ejecutivo N° 29955 de 01 de noviembre de 2001)
 (Modificado mediante Decreto Ejecutivo N° 30917 de 13 de diciembre de 2001, en cuanto a Derechos Arancelarios a la Importación productos varios )
 (NOTA: El Decreto Ejecutivo N° 30952 de 6 de enero de 2003 modifica mediante resolución N° 98-2002 una serie de productos al Anexo A)
+(NOTA: El Decreto Ejecutivo N° 30901 de 30 de diciembre de 2002 modifica mediante resolución N° 98-2002 una serie de productos al Anexo A)
 (NOTA: El Decreto Ejecutivo N° 30953 de 6 de enero de 2003 hace una emienda a la resolución N° 96-2002, en el sentido de confirmar los Derechos Arancelarios Autorizados para ser aplicados por parte de El Salvador los cuales son:
 Fracción Arancelaria | Descripción | DAI
 1704.10.00 | - Chicles y demás gomas de | 15%
@@ -7477,10 +7478,9 @@ SAC | Descripción | DAI
 0713.3 | Frijoles (judías, alubias fréjoles) |
 | (Vigna spp., Phaseolus spp.) |
 0713.32.00 | Adzuki (rojos pequeños) |
-| (Phaseolus o Vigna angularis) | 30%
+| (Phaseolus o Vigna angularis) Así modificado por el Decreto Ejecutivo No. 31227 de 03 de junio de 2003. | 46% Del 3 de febrero del 2003 al 15 de agosto del 2003.
 0713.33 | Comunes (Phaseolus vulgaris) |
-0713.3310 | Negros | 30%
-)
+0713.3310 | Negros Así modificado por el Decreto Ejecutivo No. 31227 de 03 de junio de 2003. | 46% Del 3 de febrero del 2003 al 15 de agosto del 2003.
 NOTA: El Decreto Ejecutivo N° 31068 de 5 de marzo del 2003, hizo una modificación en lo siguiente:
 DAI DAI
 (%) (%)
@@ -7498,3 +7498,199 @@ de reacción "Avjet turbo fuel"
 2710.19.23 ----Los demás aceites II 0
 combustibles fuel oil
 2711.19.00 ----Los demás II 0
+NOTA: El Decreto Ejecutivo N° 31225 de 03 de junio de 2003, hizo una modificación en lo siguiente:
+Código Descripción DAI % Sobre
+Valor CIF
+0209.00.20 - Grasa de cerdo 5
+0210.99.30 - - - Harina y polvo, de carne o de despojos 10
+0210.99.90 - - - Otros 15
+0402.91.10 - - - Leche evaporada 10
+0402.99.10 - - - Leche condensada 10
+0404.90.00 - Los demás 10
+0406.40.00 - Queso de pasta azul 15
+0602.20.10 - - Plántulas 10
+0602.90.10 - - Plántulas de hortalizas y tabaco 10
+0713.32.00 - - Adzuki ("rojos pequeños") (Phaseolus o Vigna angularis) 30
+1501.00.00 GRASA DE CERDO (INCLUIDA LA MANTECA DE CERDO) Y GRASA DE AVE, EXCEPTO LAS DE LAS
+PARTIDAS 02.09 ó 15.03 15
+1508.90.00 - Los demás 15
+1702.20.00 - Azúcar y jarabe de arce ("maple") 10
+1806.20.10 - - Preparaciones líquidas a base de jarabe de maíz y aceite de almendra de palma parcialmente hidrogenado, de los tipos utilizados para decoración y relleno de productos de pastelería 0
+2106.90.80 - - Preparaciones líquidas a base de jarabe de maíz y aceite de almendra de palma parcialmente hidrogenado, de los tipos utilizados para decoración y relleno de productos de pastelería, en recipientes o envases con un contenido superior a 2 Kg. 0
+3212.90.90 - - Otros 5
+3917.23.10 - - - Tubos de poli(cloruro de vinilo) (PVC), de diámetro exterior superior a 26 mm pero inferior o igual a 400 mm 15
+3917.23.20 - - - Tubos de poli(cloruro de vinilo) (PVC) o de poli
+(cloruro de vinilo clorado) (C-PVC), de diámetro exterior inferior o igual a 26 mm 15
+3917.23.30 - - - Tubos de poli(cloruro de vinilo) (PVC) o de poli(cloruro de vinilo clorado) (C-PVC), para desagüe de fregaderos y lavabos, de diámetro exterior inferior a 40 mm, incluso metalizados, con o sin accesorios. 15
+3917.32.10 - - - Tubos (mangueras) de polietileno, de diámetro exterior superior o igual a 12.5 mm pero inferior o igual a 51 mm 15
+3917.32.40 - - - Tubos (mangueras) de poli(cloruro de vinilo) (PVC), de diámetro exterior superior o igual a 12.5 mm pero inferior o
+igual a 51 mm 15
+3917.33.20 - - - Tubos (mangueras) de polietileno o de poli(cloruro de vinilo) (PVC), de diámetro exterior superior o igual a 12.5 mm pero inferior o igual a 51 mm 15
+3917.40.10 - - De poli(cloruro de vinilo) (PVC), de diámetro exterior inferior o igual a 110 mm 15
+3920.43.34 - - - - Con impresión, metalizadas 10
+4418.10.00 - Ventanas, contraventanas, y sus marcos y contramarcos 15
+4418.20.00 - Puertas y sus marcos, contramarcos y umbrales 15
+4418.30.00 - Tableros para parqués (zócalos) 15
+4418.40.00 - Encofrados para hormigón 15
+4418.90.10 - - Tableros celulares (alveolares), incluso recubiertos 15
+4418.90.90 - - Otros 15
+4420.90.10 - - Madera con trabajo de marquetería o taracea (incrustación) 15
+4811.60.00 - Papel y cartón recubiertos, impregnados o revestidos de cera, parafina, estearina, aceite o glicerol 10
+4823.60.00 - Bandejas, fuentes, platos, tazas, vasos y artículos similares, de papel o cartón 15
+5402.33.00 - - De poliésteres 5
+5402.62.00 ‘- - De poliésteres 5
+6406.10.10 - - Capelladas 10
+6406.10.90 - - Otras 10
+7607.20.20 - - Con soporte de papel (excepto siliconado) o plástico, con o sin impresión, de espesor inferior o igual a 0.23 mm, incluido el soporte 10
+7610.10.00 - Puertas, ventanas, y sus marcos, bastidores (contramarcos) y umbrales 15
+7610.90.00 - Los demás 15
+8201.10.00 - Layas y palas 15
+8201.30.00 - Azadas, picos, binaderas, rastrillos y raederas 15
+8201.40.10 - - Hachas, chuzos, cuchillos y cortabananos 15
+8201.40.20 - - Machetes 15
+8201.90.10 - - Macanas y barras (barretas) 15
+8303.00.00 CAJAS DE CAUDALES (CAJAS FUERTE), PUERTAS BLINDADAS Y COMPARTIMIENTOS PARA CÁMARAS ACORAZADAS, COFRES Y CAJAS DE SEGURIDAD Y ARTÍCULOS SIMILARES, DE METAL COMÚN 15
+8304.00.00 CLASIFICADORES, FICHEROS, CAJAS DE CLASIFICACIÓN, BANDEJAS DE CORRESPONDENCIA, PLUMEROS (VASOS O CAJAS PARA PLUMAS DE ESCRIBIR), PORTASELLOS Y MATERIAL SIMILAR DE OFICINA, DE METAL COMÚN, EXCEPTO LOS MUEBLES DE OFICINA DE LA PARTIDA 94.03 15
+8422.40.90 - - Otros 10
+8424.90.19 - - - Las demás 5
+8476.21.00 - - Con dispositivo de calentamiento o refrigeración, incorporado 15
+8476.29.00 - - Las demás 15
+8476.89.00 - - Las demás 15
+8481.80.10 - - Grifos y válvulas, de bronce o plástico, de diámetro interior inferior o igual a 26 mm, para regular el paso de agua u otros líquidos a baja presión (presión inferior o igual a 125 psi) 15
+8481.80.20 - - Grifos y válvulas, de diámetro interior inferior a 26 mm, con llave simple o doble, para lavabos, fregaderos (piletas de lavar), bañeras y artículos similares, incluidos los mecanismos de descarga para cisternas de inodoros 15
+8509.10.00 - Aspiradoras, incluidas las de materias secas y líquidas 15
+8509.20.00 - Enceradoras (lustradoras) de pisos 15
+8509.30.00 - Trituradoras de desperdicios de cocina 15
+8509.80.00 - Los demás aparatos 15
+8516.21.00 - - Radiadores de acumulación 15
+8516.29.00 - - Los demás 15
+8516.31.00 - - Secadores para el cabello 15
+8516.32.00 - - Los demás aparatos para el cuidado del cabello 15
+8516.33.00 - - Aparatos para secar las manos 15
+8516.79.00 - - Los demás 15
+8519.40.00 - Aparatos para reproducir dictados 15
+8520.10.00 - Aparatos para dictar que sólo funcionen con fuente de energía exterior 15
+8524.10.10 - - Para aprendizaje 5
+8524.51.10 - - - Para aprendizaje 5
+8524.52.10 - - - Para aprendizaje 5
+8524.53.11 - - - - Para aprendizaje 5
+8524.53.21 - - - - Para aprendizaje 5
+8536.10.21 - - - De seguridad, de accionamiento manual, de intensidad de corriente inferior o igual a 600 A y tensión inferior o igual a 600 V 10
+8536.10.22 - - - De cuchilla, de accionamiento manual, de intensidad de corriente inferior o igual a 100 A y tensión inferior o igual a 250 V 10
+8536.49.10 - - - Relevadores de sobrecarga y contactores eléctricos 10
+8536.61.00 - - Portalámparas 15
+8544.51.10 - - - Hilos, trenzas y cables, de cobre o aluminio (con o sinaleación de silicio, magnesio y manganeso), incluso para uso telefónico (excepto los laqueados, esmaltados, oxidados anódicamente, siliconados o con aislamiento a base de asbesto o fibra de vidrio y los telefónicos submarinos) 15
+8544.59.10 - - - Hilos, trenzas y cables, de cobre o aluminio (con o sin aleación de silicio, magnesio y manganeso), incluso para uso telefónico (excepto los laqueados, esmaltados, oxidados anódicamente, siliconados o con aislamiento a base de asbesto o fibra de vidrio y los telefónicos submarinos) 15
+8544.60.00 - Los demás conductores eléctricos para tensión superior a 1,000 V 15
+9006.61.00 - - Aparatos de tubo de descarga para producir destellos ("flashes electrónicos") 10
+9006.62.00 - - Lámparas y cubos, de destello, y similares 10
+9006.69.00 - - Los demás 10
+9007.11.00 - - Para película cinematográfica (filme) de anchura inferior a 16 mm o para la doble-8 mm 15
+9007.19.00 - - Las demás 15
+9008.10.00 - Proyectores de diapositivas 15
+9008.30.00 - Los demás proyectores de imagen fija 15
+9401.90.00 - Partes 5
+9504.10.00 - Videojuegos de los tipos utilizados con receptor de televisión 15
+9504.20.10 - - Mesas para billar 15
+9504.30.00 - Los demás juegos activados con monedas, billetes de banco, fichas, o demás artículos similares, excepto los juegos de bolos automáticos ("bowlings") 15
+9508.10.00 - Circos y zoológicos, ambulantes 15
+9508.90.00 - Los demás 15
+9602.00.90 - Otras 15
+9612.10.90 - - Otras 15
+9618.00.00 MANIQUÍES Y ARTÍCULOS SIMILARES; AUTÓMATAS Y ESCENAS ANIMADAS PARA ESCAPARATES 15ANEXO 2, RESOLUCIÓN Nº 107-2003 (COMIECO XXVII)
+6401.10.00 - Calzado con puntera metálica de protección 15
+6401.91.00 - - Que cubran la rodilla 15
+6401.92.00 - - Que cubran el tobillo sin cubrir la rodilla 15
+6401.99.00 - - Los demás 15
+6402.12.00 - - Calzado de esquí y calzado para la práctica de "snowboard"(tabla para nieve) 15
+6402.19.00 - - Los demás 15
+6402.20.00 - Calzado con la parte superior de tiras o bridas fijas a la suela por tetones (espigas) 15
+6402.30.00 - Los demás calzados, con puntera metálica de protección 15
+6402.91.00 - - Que cubran el tobillo 15
+6402.99.00 - - Los demás 15
+6403.12.00 - - Calzado de esquí y calzado para la práctica de "snowboard" (tabla para nieve) 15
+6403.19.00 - - Los demás 15
+6403.20.00 - Calzado con suela de cuero natural y parte superior de tiras de cuero natural que pasan por el empeine y rodean el dedo gordo 15
+6403.30.00 - Calzado con palmilla o plataforma de madera, sin plantillas ni puntera metálica de protección 15
+6403.40.00 - Los demás calzados, con puntera metálica de protección 15
+6403.51.00 - - Que cubran el tobillo 15
+6403.59.00 - - Los demás 15
+6403.91.00 - - Que cubran el tobillo 15
+6403.99.00 - - Los demás 15 6404.11.00 - - Calzado de deporte; calzado de tenis, baloncesto, gimnasia, entrenamiento y calzados similares 15
+6404.19.90 - - - Otros 15
+6404.20.00 - Calzado con suela de cuero natural o regenerado 15
+6405.10.00 - Con la parte superior de cuero natural o regenerado 15
+6405.20.00 - Con la parte superior de materia textil 15
+6405.90.00 - Los demás 15
+NOTA: El artículo 2 del Decreto Ejecutivo N° 31225 de 03 de junio de 2003, estableció que de conformidad con la Resolución N° 48-94 (CONSEJO-XII) de fecha 23 de febrero de 1994, que autoriza a Costa Rica para que las tarifas de 10% y 15% incluyan el gravamen del 1% de la Ley 6946, los incisos que aparecen con tarifas de 10% y 15% se les debe aplicar un DAI de 9% y 14% respectivamente.
+NOTA: El Decreto Ejecutivo N° 31226 de 03 de junio del 2003, hizo una modificación en lo siguiente:
+Código Descripción DAI
+GU ES HO NI CR
+0206.10.00 -De la especie bovina, frescos o 15 15 15 15 0
+refrigerados
+0206.21.00 - - Lenguas 10 10 10 10 0
+0206.22.00 - - Hígados 10 10 10 10 0
+0206.29.00 - - Los demás 10 10 10 10 0
+1513.11.00 - - Aceite en bruto de coco 5 5 5 5 10
+1703.10.00 - Melaza de caña 15 15 15 15 36
+1703.90.00 - Las demás 15 15 15 15 36
+3920.49.33 - - - - Con impresión, sin metalizar 10 10 0 10 10
+3920.49.34 - - - - Con impresión, metalizadas 10 10 0 10 10
+Nota El artículo 2 del Decreto Ejecutivo N° 31226 de 03 de junio del 2003,de conformidad con la Resolución N° 48-94 (CONSEJO-XII) de fecha 23 de febrero de 1994, que autoriza a Costa Rica para que las tarifas de 10% y 15% incluyan el gravamen del 1 % de la Ley 6946, a los siguientes incisos arancelarios aplicar el DAI que se indica a continuación:
+Código Descripción DAI
+1513.11.00 - - Aceite en bruto de coco 9
+3920.49.33 - - - - Con impresión, sin metalizar 9
+3920.49.34 - - - - Con impresión, metalizadas 9
+Nota: el Decreto Ejecutivo No. 31227 de 03 de junio de 2003 hizo una modificación tácita de la siguiente manera:
+BARNICES
+32.09 PINTURAS Y BARNICES A BASE DE POLÍMEROS SINTÉTICOS O NATURALES MODIFICADOS, DISPERSOS O DISUELTOS EN UN MEDIO ACUOSO
+3209.10 - A base de polímeros acrílicos o vinílicos:
+3209.10.10 — Barniz para artes gráficas 0 30 de junio 2004
+3209.10.90 — Otros 14 30 de junio de 2004
+Nota: El artículo No. 1 del Decreto Ejecutivo No. 31233 de 03 de junio de 2003 hizo una modificación de la siguiente manera:
+Código Descripción DAI
+GU ES HO NI CR
+0201.10.00 -En canales o medias canales 15 30 15 30 15
+0201.20.00 -Los demás cortes (trozos) sin deshuesar 15 30 15 30 15
+0201.30.00 -Deshuesada 15 30 15 30 15
+0202.10.00 -En canales o medias canales 15 30 15 30 15
+0202.20.00 -Los demás cortes (trozos) sin deshuesar 15 30 15 30 15
+0202.30.00 -Deshuesada 15 30 15 30 15
+0402.10.00 -En polvo, gránulos o demás formas 15 20 15 60 65 sólidas, con un contenido de materias grasas inferior o igual al 1.5% en peso
+0402.21.11 ——En envases de contenido neto 15 15 15 60 65 inferior a 3 kg
+0402.21.12 ——En envases de contenido neto 15 20 15 60 65 superior o igual a 3 kg
+0402.21.21 ——En envases de contenido neto 15 15 5 60 65 inferior a 5 kg
+0402.21.22 ——En envases de contenido neto 15 15 5 60 65 superior o igual a 5 kg
+0402.29.00 —Las demás 15 15 15 60 65
+0402.91.20 —-Crema de leche 15 20 15 40 65
+0403.10.00 -Yogur 15 40 15 40 65
+0405.10.00 -Mantequilla 15 30 15 40 65
+0405.90.90 —Otras 15 20 15 15 65
+0406.10.00 -Queso fresco (sin madurar), incluido el 15 40 15 40 65 del lactosuero, requesón
+0406.20.90 —Otros 15 40 15 35 37
+0406.30.00 -Queso fundido, excepto el rallado o en 15 40 15 40 65 polvo
+0406.90.10 —Tipo mozarella 15 40 15 40 50
+0406.90.90 —Otros 15 40 15 40 50
+0713.33.10 —-Negros 20 30 15 30 30
+1005.90.20 —Maíz amarillo 5/35 0/15 15 BP 0/15 0
+1007.00.90 -Otros 20 15 15 BP 20 15
+1101.00.00 HARINA DE TRIGO O DE 0/10 10 10 10 5 MORCAJO (TRANQUILLON)
+1702.30.20 —Con un contenido de fructosa, 10 40 10 40 10 calculado sobre producto seco, inferior al
+20% en peso
+1702.40.00 -Glucosa y jarabe de glucosa, con un 10 40 10 40 10 contenido de fructosa, calculado sobre producto seco, superior o igual al 20% pero inferior al 50%, en peso, excepto el azúcar invertido
+1702.50.00 -Fructosa químicamente pura 0 40 0 40 0
+1702.60.00 -Las demás fructosas y jarabe de 10 40 10 40 10 fructosa, con un contenido de fructosa,
+calculado sobre producto seco, superior al 50% en peso, excepto el azúcar invertido
+1702.90.10 —Maltosa químicamente pura 0 40 0 40 0
+1702.90.20 —Otros azúcares y jarabes, excepto los 0 40 0 40 0 jarabes de sacarosa los caramelizados
+1702.90.90 —Otros 15 40 15 40 15
+2105.00.00 HELADOS, INCLUSO CON CACAO 15 15 15 40 65
+2207.10.10 —Alcohol etílico absoluto 40 40 15 40 10
+2207.10.90 —Otros 40 40 15 40 15
+2207.20.00 -Alcohol etílico y aguardiente 40 40 15 40 15 desnaturalizados, de cualquier graduación
+2208.40.10 —Ron 40 40 15 40 15
+2208.90.10 —Alcohol etílico sin desnaturalizar 40 40 15 40 10
+Nota El artículo 2 del Decreto Ejecutivo N° 31233 de 03 de junio del 2003,de conformidad con la Resolución N° 48-94 (CONSEJO-XII) de fecha 23 de febrero de 1994, que autoriza a Costa Rica para que las tarifas de 10% y 15% incluyan el gravamen del 1 % de la Ley 6946, los incisos que aparecen con tarifas de 10% y 15% se les debe aplicar un DAI de 9% y 14% respectivamente.
+Nota: el Decreto Ejecutivo No. 31233 de 03 de junio de 2003 hizo una modificación tácita de la siguiente manera:
+Código Descripción DAI %valor CIF
+0713.33.10 —-Negros 46
