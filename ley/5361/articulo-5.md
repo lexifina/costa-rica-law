@@ -15,5 +15,5 @@ Fundos Rurales:
 4.- Fincas mayores de cien hectáreas hasta quinientas hectáreas llevarán timbre de quince colones por plano.
 5.- Fincas mayores de quinientas hectáreas pagarán timbre de quince colones más cincuenta céntimos por cada cien hectáreas o fracción que excedan a las quinientas hectáreas por plano.
 Además toda "Libreta Protocolo" llevará timbres por valor de ¢10.00 los que deberán ser cancelados con el sello del Colegio de Ingenieros Topógrafos.
-Se entiende por plano cada copia del fundo medido y debidamente registrado por el Catrastro Nacional para que pueda emitir los efectos legales.
+Se entiende por plano cada copia del fundo medido y debidamente registrado por el Catastro Nacional para que pueda emitir los efectos legales.
 El producto de este timbre será girado íntegramente por el Colegio Federado a las instituciones de estudios superiores que establezcan la carrera de Ingeniería Topográfica, deducidos los cargos de emisión y manejo del timbre. El producto del timbre se liquidará cada tres meses.
