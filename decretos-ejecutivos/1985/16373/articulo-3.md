@@ -1,0 +1,1 @@
+Artículo 3º.-La Universidad de Costa Rica colaborará con la Subdirección de Vida Silvestre del Ministerio de Agricultura y Ganadería, en la planificación y ejecución de los programas que se desarrollan dentro del área comprendida en este Decreto.
