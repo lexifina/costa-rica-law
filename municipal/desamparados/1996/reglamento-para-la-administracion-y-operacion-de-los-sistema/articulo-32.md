@@ -1,0 +1,1 @@
+Artículo 32.—Aquellos permisos de patentes que se otorguen para ventas ambulantes en las zonas de estacionamiento autorizado deberán obtener previo visto bueno del Departamento de Estacionamiento autorizado de la Comisión de Obras.

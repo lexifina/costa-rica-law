@@ -1,0 +1,1 @@
+Artículo 21.—La Municipalidad de Desamparados, por medio de la sección a cuyo cargo este la regulación de estacionamientos demarcara ángulos no menores de diez metros para el estacionamiento de motocicletas y bicicletas, sin cobro alguno. Asimismo todos aquellos obstáculos que sean ubicados en esta área, serán despejados en coordinación con la autoridad respectiva.

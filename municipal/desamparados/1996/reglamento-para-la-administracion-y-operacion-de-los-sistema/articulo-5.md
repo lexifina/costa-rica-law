@@ -1,0 +1,1 @@
+Artículo 5°—El horario para el funcionamiento y uso de los estacionamientos autorizados, corresponde fijarlos a la Comisión de Obras. Para la aplicación de este Reglamento queda autorizado el horario de lunes a sábado entre las 7,00 horas y las 18,00 horas, los domingos, feriados y días de fiesta nacionales, no se exigirá el uso de tarjeta.

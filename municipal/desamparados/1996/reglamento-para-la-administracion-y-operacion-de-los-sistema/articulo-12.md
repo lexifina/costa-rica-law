@@ -1,0 +1,1 @@
+Artículo 12.—Las tarjetas se venderán en las cajas recaudadoras de la Municipalidad de Desamparados y en los establecimientos mercantiles autorizados por esta Municipalidad. Estos últimos o cualquier persona que compre un valor superior a los ¢1.000,00 en tarjetas, tendrán un 10% de descuento sobre el precio.
