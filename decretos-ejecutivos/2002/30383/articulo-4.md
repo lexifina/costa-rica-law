@@ -1,0 +1,1 @@
+Artículo 4º—Declaratoria de interés público. Para los efectos correspondientes se declaran de interés público las actividades públicas o privadas del Cuerpo de Bomberos que busquen prevenir, capacitar, planificar la atención y entrenar a las personas, sobre situaciones específicas de emergencia.

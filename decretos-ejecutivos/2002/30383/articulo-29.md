@@ -1,0 +1,1 @@
+Artículo 29.—La responsabilidad económica por los gastos incurridos en la atención de las situaciones a que se refieren los artículos precedentes, lo es sin perjuicio de la obligación de la presentación de acciones penales ante los Tribunales de Justicia por contravenciones y delitos por incumplimiento a los preceptos de esta ley.

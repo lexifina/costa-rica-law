@@ -1,0 +1,1 @@
+Artículo 5º—La administración general del Cuerpo de Bomberos. La administración general del Cuerpo de Bomberos estará a cargo de la Dirección de Bomberos, dependencia adscrita al Instituto Nacional de Seguros, que es la encargada de planificar, organizar, controlar y evaluar todas las actividades relacionadas con sus miembros, permanentes, voluntarios y administrativos.

@@ -1,0 +1,1 @@
+Artículo 10.—Ingreso a las áreas afectadas por emergencias. En una situación específica de emergencia el personal del Cuerpo de Bomberos, sin realizar trámite especial y sin restricción de horario, podrá ingresar a las áreas de las instalaciones, obras, infraestructuras e inmuebles afectados por la emergencia, con el fin de ejecutar las labores necesarias de socorro y salvamento.
