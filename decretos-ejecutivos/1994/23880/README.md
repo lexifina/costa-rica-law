@@ -24,3 +24,4 @@ Reglamento de Servicio de los Cuerpos Policiales adscritos al Ministerio de Segu
 | 9 | 1997-11-18 | Decreto Ejecutivo 26854 (1997-11-18) |
 | 10 | 1999-07-20 | Decreto Ejecutivo 28037 (1999-07-20) |
 | 11 | 2000-01-28 | Decreto Ejecutivo 28462 (2000-01-28) |
+| 12 | 2000-03-01 | Decreto Ejecutivo 28504 (2000-03-01) |
