@@ -1,3 +1,3 @@
 Artículo 75.- Designación de candidatos a Regidores y Síndicos
-Los candidatos a Regidores y Síndicos municipales se designarán según lo prescriba el estatuto de cada partido político.
-(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)
+Los candidatos a alcalde, regidor y síndicomunicipal y los miembros de los Concejos de Distrito serándesignados según lo prescriba el estatuto de cada partido político, pero observando los requisitos mínimos fijados en el Código Municipal, para ser candidato y desempeñar el cargo.
+(Así reformado por el artículo 184 (actual 197) aparte e) del Código Municipal N° 7794 del 30 de abril de 1998. El artículo afectante anteriormente era el 175 pero, por la adición efectuada por el numeral único de la ley N° 7812 del 8 de julio de 1998, paso a ser el 184 (actual 197))
