@@ -1,0 +1,3 @@
+Artículo 8°—Análisis de efectos ambientales producidos por la obra. La contratación de una obra pública deberá estar precedida de la aprobación de la Secretaría Técnica del Ambiente, o el organismo destinado para tal función por parte del Estado.
+Cuando dicha Secretaría así lo solicite, deberá realizarse un estudio de impacto ambiental que defina los efectos de la obra. Los proyectos incluirán las previsiones necesarias para preservar o restaurar las condiciones ambientales cuando éstas pudieran sufrir deterioros.
+Los trámites para la obtención de estas autorizaciones estarán a cargo de la Unidad de Arquitectura e Ingeniería.
