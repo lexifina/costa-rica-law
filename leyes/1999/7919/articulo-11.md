@@ -1,40 +1,7 @@
 Artículo 11
 Identificación de Clientes y Mandamiento de Registros
-En los Estados Parte con cuentas cifradas, anónimas u otras que
-operen bajo representación, civil o mercantil, las entidades de
-intermediación financiera y las que realicen actividades financieras, a
-las que se refiere el artículo precedente, estarán obligadas a conocer la
-verdadera identidad de sus propietarios, para que puedan suministrarla a
-las autoridades encargadas del control, en las investigaciones sobre la
-materia regulada por este Convenio.
-Esas entidades deberán registrar y verificar, por medios fehacientes,
-identidad, representación, domicilio, capacidad legal, ocupación u objeto
-social de las personas, sean clientes ocasionales o habituales, mediante
-documentos de identidad, pasaportes, partidas de nacimiento, carnets de
-conducir, contratos sociales y estatutos o cualesquiera otros documentos
-oficiales o privados, cuando establezcan relaciones comerciales, en
-especial, la apertura de cuentas nuevas, el otorgamiento de libretas de
-depósito, las transacciones fiduciarias, el arriendo de cajas de seguridad
-o las transacciones en efectivo que superen un determinado monto de
-conformidad con lo dispuesto por la autoridad competente en cada Estado
-Parte.
-Las entidades de intermediación financiera y las que realicen
-actividades financieras, antes referidas, deberán adoptar medidas
-razonables para obtener y conservar información acerca de la verdadera
-identidad de las personas en cuyo beneficio se abra una cuenta o se
-realice una transacción, cuando exista duda de que tales clientes puedan
-no estar actuando en su propio beneficio, especialmente en el caso de
-personas jurídicas que no lleven a cabo operaciones comerciales,
-financieras o industriales en el Estado donde tengan su sede o domicilio.
-Durante la vigencia de una operación, y por lo menos cinco años a
-partir del fin de la transacción, las entidades de intermediación
-financiera y las que realicen actividades financieras, a que se refiere el
-artículo precedente, deberán mantener registros de la información y
-documentación requeridas en este artículo. Asimismo, deberán conservar los
-registros de la identidad de sus clientes, estados de cuenta y
-correspondencia comercial según lo determine la autoridad competente, por
-lo menos durante cinco años después del cierre de la cuenta.
-Además, estas entidades deberán mantener registros que permitan
-reconstruir transacciones financieras que superen determinado monto de
-conformidad con lo dispuesto por la autoridad competente, en cada Estado
-Parte al menos cinco años después de concluida la transacción.
+En los Estados Parte con cuentas cifradas, anónimas u otras que operen bajo representación, civil o mercantil, las entidades de intermediación financiera y las que realicen actividades financieras, a las que se refiere el artículo precedente, estarán obligadas a conocer la verdadera identidad de sus propietarios, para que puedan suministrarla a las autoridades encargadas del control, en las investigaciones sobre la materia regulada por este Convenio.
+Esas entidades deberán registrar y verificar, por medios fehacientes, identidad, representación, domicilio, capacidad legal, ocupación u objeto social de las personas, sean clientes ocasionales o habituales, mediante documentos de identidad, pasaportes, partidas de nacimiento, carnets de conducir, contratos sociales y estatutos o cualesquiera otros documentos oficiales o privados, cuando establezcan relaciones comerciales, en especial, la apertura de cuentas nuevas, el otorgamiento de libretas de depósito, las transacciones fiduciarias, el arriendo de cajas de seguridad o las transacciones en efectivo que superen un determinado monto de conformidad con lo dispuesto por la autoridad competente en cada Estado Parte.
+Las entidades de intermediación financiera y las que realicen actividades financieras, antes referidas, deberán adoptar medidas razonables para obtener y conservar información acerca de la verdadera identidad de las personas en cuyo beneficio se abra una cuenta o se realice una transacción, cuando exista duda de que tales clientes puedan no estar actuando en su propio beneficio, especialmente en el caso de personas jurídicas que no lleven a cabo operaciones comerciales, financieras o industriales en el Estado donde tengan su sede o domicilio.
+Durante la vigencia de una operación, y por lo menos cinco años a partir del fin de la transacción, las entidades de intermediación financiera y las que realicen actividades financieras, a que se refiere el artículo precedente, deberán mantener registros de la información y documentación requeridas en este artículo. Asimismo, deberán conservar los registros de la identidad de sus clientes, estados de cuenta y correspondencia comercial según lo determine la autoridad competente, por lo menos durante cinco años después del cierre de la cuenta.
+Además, estas entidades deberán mantener registros que permitan reconstruir transacciones financieras que superen determinado monto de conformidad con lo dispuesto por la autoridad competente, en cada Estado Parte al menos cinco años después de concluida la transacción.
