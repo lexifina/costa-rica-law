@@ -1,23 +1,8 @@
-Artículo 68.-Deducción por compra de acciones. Para disfrutar de la
-deducción a que se refiere el artículo 60, inciso b) de la ley, los
-declarantes deberán aportar los documentos que prueben la compra de
-acciones nominativas por un valor que no podrá ser superior al registrado
-en libros, de sociedades anónimas domiciliadas en el país que tengan
-programas de exportación del ciento por ciento (100%) de sus ventas haya
-sido destinado a la ciento por ciento (100%) de sus ventas haya sido
-destinado a la exportación.
-Esta deducción no procederá cuando se trate de acciones de empresas
-que se relacionen económica o administrativamente con el contribuyente
-comprador o por el intercambio de acciones entre sociedades y en general,
-cuando las adquisiciones se hagan recíprocamente o en cadena; tampoco
-procederá cuando formen parte de la aportación de los socios, para la
-constitución del capital inicial de la sociedad.
-La deducción no podrá exceder del veinticinco por ciento (25%) de la
-renta neta del declarante, correspondiente al período en que se compran
-las acciones. Además, el adquirente debe presentar certificación de un
-banco del Estado o de una bolsa de comercio, oficialmente reconocida, de
-la suscripción de un contrato de fideicomiso, por un plazo no menor de
-tres años, para la clase de acciones citadas anteriormente.
-Si las acciones en fideicomiso son retiradas antes del plazo de tres
-años, es obligación del fideicomiso comunicarlo a la Dirección, para que
-ésta proceda al cobro de los impuestos eximidos.
+ARTICULO 68.- Determinación de las utilidades netas exentas. Para disfrutar de los beneficios establecidos en el artículo 60, inciso a) de la ley, los beneficiarios deberán llevar en su contabilidad cuentas separadas para determinar las utilidades netas por las exportaciones del período.
+Esta utilidad no podrá ser mayor al resultado de aplicar, al total de las utilidades netas del exportador en el período correspondiente, la relación que se obtenga de dividir el monto de ventas de las exportaciones entre el monto de las ventas totales de la empresa.
+Las empresas productoras de mercancías, de conformidad con el párrafo penúltimo del inciso c) del artículo 60 antes citado, determinarán las utilidades deducibles correspondientes a las mercancías producidas y efectivamente exportadas, aplicando a la renta imponible la proporción resultante de esas ventas entre las ventas totales.
+Cuando estas empresas tengan otras actividades, deberán llevar cuentas separadas de la actividad generadora de productos no tradicionales para exportación a terceros mercados.
+Mediante certificación emitida por el comprador de los insumos de bienes exportados o de los bienes finales exportados, las empresas productoras de estas mercancías comprobarán ante la Dirección General la exportación efectiva de dichos bienes.
+Para la determinación de las utilidades exentas deberán acompañarse los cálculos correspondientes en un anexo a la declaración.
+Este incentivo entrará un vigencia a partir de la fecha que para esos efectos establezca el contrato de exportación o aprobación de los programas de exportación y de producción; el incentivo se otorgará en el período inicial, con base en el monto de las exportaciones efectuadas en el lapso comprendido entre la fecha de vigencia del contrato o fecha de aprobación de los programas de exportación y la finalización de ese período fiscal. En ejercicios fiscales subsiguientes se otorgará por el período fiscal completo.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 68 ocupó el lugar que antes correspondía al artículo 67).

@@ -1,3 +1,2 @@
-Artículo 62.-Tarifas. La tarifas aplicables a los montos de las
-rentas remesadas al exterior, son las que se indican en el artículo 54 de
-la ley.
+ARTICULO 62.- Contribuyentes. Son contribuyentes de este impuesto las personas físicas o jurídicas domiciliadas en el exterior que perciban rentas o beneficios de fuente costarricense. Son responsables solidarios de las obligaciones establecidas en la ley, las personas físicas o jurídicas, de hecho o de derecho, públicas o privadas, domiciliadas en Costa Rica, que efectúen el crédito, pago o pongan a disposición rentas de fuente costarricense a personas domiciliadas en el exterior.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 62 ocupó el lugar que antes correspondía al artículo 61).

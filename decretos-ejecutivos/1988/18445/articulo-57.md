@@ -1,25 +1,2 @@
-CAPITULO XXI
-DE LOS INVENTARIOS Y SU REGISTRO
-Artículo 57.-Obligación de practicar inventarios y forma de
-registrarlos. Todo declarante que obtenga rentas de la manufactura,
-elaboración, transformación, producción, extracción, adquisición o
-enajenación de mercancías, materias primas, semovientes o cualesquiera
-otros bienes, de los cuales mantenga existencias al final del período
-fiscal, está obligado a practicar inventarios al inicio de operaciones y
-al cierre de cada período. Para los efectos de establecer la comparación
-entre el monto de las existencias al principio y al final de cada período
-fiscal, el inventario de cierre de un período debe regir para la
-iniciación del siguiente.
-Los inventarios deben registrarse en el libro de contabilidad
-respectivo, agrupando los bienes conforme con su naturaleza, con la
-especificación necesaria dentro de cada grupo o categoría y con la
-indicación clara de la cantidad, unidad que se toma como medida,
-denominación o identificación del bien y su referencia, precio de cada
-unida y su valor total. Las referencias de los bienes deben anotarse en
-registros especiales, con indicación del sistema de valuación empleado.
-Los declarantes qu lleven sistemas de contabilidad computadorizados,
-pueden sustituir la anotación detallada de los inventarios en libros, por
-listas emitidas por el computador; no obstante, los montos
-correspondientes deberán anotarse en el libro respectivo. Estas listas
-deberán conservarse durante los plazos de prescripción contemplados en el
-Código de Normas y Procedimientos Tributarios.
+ARTICULO 57.- Ajustes en cuentas de memorándum. El sistema contable del declarante debe ajustare a los principios de contabilidad generalmente aceptados. La diferencia entre los ingresos totales y los costos y gastos totales se denomina "utilidad neta del período". Para obtener la "renta imponible" del periodo, se debe hacer una conciliación, restando de la utilidad neta del período el total de los ingresos no gravables y adicionando aquellos costos y gastos no deducibles. Tales ajustes se registrarán en cuentas de memorándum, las cuales deben contener el suficiente detalle para efectos de fiscalización.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 57 ocupó el lugar que antes correspondía al artículo 56).

@@ -1,10 +1,2 @@
-Artículo 42.-Sustitución del contador público. Cuando habiendo
-informado a la Administración Tributaria que los estados financieros
-serán certificados, el declarante renuncie a ello o sustituya al contador
-público asignado originalmente, deberá comunicarlo a la Dirección por
-escrito, antes del vencimiento del plazo que corresponda, justificando la
-renuncia o el cambio; no obstante, ello no será causal para prorrogar el
-referido plazo. Salvo motivo de fuerza mayor o caso fortuito, la
-Administración podrá conceder, a solicitud de parte, un plazo adicional
-que no podrá exceder de dos meses, para la presentación de los estados
-financieros, a partir de la aprobación de la gestión.
+ARTICULO 42.- Prórroga para la presentación de los estados certificados. Cuando se haya solicitado prórroga para la presentación de la declaración, cuyos estados serán certificados o cuando esté pendiente de resolver por la Dirección alguna consulta que por su trascendencia pueda influir en la opinión que va a emitir el contador público, el término señalado en el artículo 39 de este Reglamento se ampliará por el plazo que autorice la prórroga. En el último caso, el declarante contará con un mes adicional para presentar los estados certificados. La contestación de las consultas, debe notificarse al contador público en el domicilio señalado expresamente por él, o bien, al que aparezca anotado en el Registro de Contadores Públicos Autorizados que llevará la Dirección.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 42 ocupó el lugar que antes correspondía al artículo 41).

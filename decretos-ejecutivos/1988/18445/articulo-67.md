@@ -1,31 +1,7 @@
-Artículo 67.-Determinación de las utilidades netas exentas. Para
-disfrutar de los beneficios establecidos en el artículo 60, inciso a) de
-la ley, los beneficiarios deberán llevar en su contabilidad cuentas
-separadas para determinar las utilidades netas por las exportaciones del
-período.
-Esta utilidad no podrá ser mayor al resultado de aplicar, al total
-de las utilidades netas del exportador en el período correspondiente, la
-relación que se obtenga de dividir el monto de ventas de las
-exportaciones entre el monto de las ventas totales de la empresa.
-Las empresas productoras de mercancías, de conformidad con el
-párrafo penúltimo del inciso c) del artículo 60 antes citado,
-determinarán las utilidades deducibles correspondientes a las mercancías
-producidas y efectivamente exportadas, aplicando a la renta imponible la
-proporción resultante de esas ventas entre las ventas totales.
-Cuando estas empresas tengan otras actividades, deberán llevar
-cuentas separadas de la actividad generadora de productos no
-tradicionales para exportación a terceros mercados.
-Mediante certificación emitida pro el comprador de los insumos de
-bienes exportados o de los bienes finales exportados, las empresas
-productoras de estas mercancías comprobarán ante la Dirección General la
-exportación efectiva de dichos bienes.
-Para la determinación de las utilidades exentas deberán acompañarse
-los cálculos correspondientes en un anexo a la declaración.
-Este incentivo entrará un vigencia a partir de la fecha que para
-esos efectos establezca el contrato de exportación o aprobación de los
-programas de exportación y de producción; el incentivo se otorgará en el
-período inicial, con base en el monto de las exportaciones efectuadas en
-el lapso comprendido entre la fecha de vigencia del contrato o fecha de
-aprobación de los programas de exportación y la finalización de ese
-período fiscal. En ejercicios fiscales subsiguientes se otorgará por el
-período fiscal completo.
+ARTICULO 67.- Normas para disfrutar los beneficios. Para disfrutar de los incentivos que establece el inciso a) del artículo 60 de la ley, los contribuyentes deberán, además de observar las obligaciones establecidas en el artículo anterior, presentar ante la Dirección, los siguientes documentos:
+a) Certificación emitida por el Banco Central de Costa Rica, del monto de las exportaciones de productos no tradicionales hechas a terceros mercados, no amparadas a tratados de libre comercio, durante el período.
+b) Detalle de las exportaciones realizadas, clasificándolas por paísde destino, clase de artículo, precio unitario y total de cada línea de mercancía, certificado por un contador público autorizado.
+c) Un estado de resultados que muestre la utilidad neta obtenida de la actividad de exportación de productos no tradicionales a terceros mercados.
+ch) Detalle por proveedor, de los artículos adquiridos de empresas productoras que hayan suscrito contrato de producción indicando clase de artículo, cantidad, precio y totales de los artículos utilizados como insumo o como bienes finales exportados durante el período, certificado por un contador público autorizado, el cual servirá de base para el cálculo de incentivos a conceder. Para disfrutar por proveedor, de los artículos en el inciso c) del artículo 60 de la ley, los exportadores de productos no tradicionales que exporten a terceros mercados podrán solicitar a la Dirección General de Hacienda el otorgamiento de exención de los impuestos y sobretasas que gravan la importación de materias primas, insumos y envases no producidos en el país que formen parte componente de tales productos, o la devolución de los mismos por razones de pago indebido. Mediante decreto ejecutivo, se establecerán las formalidades y mecanismos de trámite y control de los beneficios establecidos en el inciso c) del artículo 60 de la ley, lo referente al Consejo Nacional de Inversiones, al contrato de exportación; y al régimen de admisión temporal.
+(Así reformado por el artículo 1º del Decreto Nº 18590 de 3 de noviembre de 1988).
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 67 ocupó el lugar que antes correspondía al artículo 66).

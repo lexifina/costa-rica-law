@@ -1,11 +1,6 @@
-Artículo 51.-Emisión de la certificación. Cumplido lo dispuesto en
-los artículos anteriores, el contador público procederá a emitir la
-certificación de los estados financieros, en la cual incluirá su opinión,
-cuyo contenido deberá ajustarse a los términos que fije la Dirección
-mediante resolución.
-Cuando sea necesario emitir una opinión con salvedades o negativas,
-el contador público debe expresar con toda claridad las razones de ello,
-así como su efecto cuantitativo sobre los estados financieros presentados
-por el declarante. De igual manera, si las circunstancias estudiadas
-obligan a abstenerse de opinar, también deberá expresar con claridad las
-razones que originan tal abstención.
+ARTICULO 51.- Procedimiento para la ejecución de la auditoría. El contador público en la ejecución de la auditoría debe cumplir con lo siguiente:
+a) El trabajo debe ser adecuadamente planeado y supervisado de manera que obtenga elementos de juicio suficientes para sustentar su opinión.
+b) El sistema de control interno del declarante debe ser estudiado y evaluado cuidadosamente, para delimitar con propiedad tanto el tamaño de la muestra como el alcance de las pruebas que se van a efectuar, para verificar las partidas seleccionadas.
+c) En los papeles de trabajo debe quedar constancia de la metodología empleada para definir el tamaño de la muestra y el alcance de las pruebas efectuadas para realizar la auditoría.
+Cualquiera que sea la metodología empleada, el contador público debe obtener evidencia comprobatoria suficiente y competente para emitir su opinión.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 51 ocupó el lugar que antes correspondía al artículo 50).

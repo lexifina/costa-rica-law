@@ -1,19 +1,3 @@
-CAPITULO XX
-LIBROS Y NORMAS DE CONTABILIDAD
-Artículo 52.-Legalización de registros contables. Los declarantes a
-que se refiere el Título I de la ley deben llevar, par el adecuado
-control de sus operaciones, los siguientes registros contables,
-debidamente legalizados: a) Diario; b) Mayor; c) Inventarios y Balances y
-ch) Actas. Además, deben llevar libros auxiliares de control, tales
-como: a) Registro de Accionistas, cuando por la naturaleza jurídica del
-declarante, así se requiera; y b) Cálculo de mercadería, cuando el
-declarante sea importador.
-Los libros indicadosen el párrafo anterior, deben cumplir con las
-exigencias establecidas en los artículos 251 a 271 del Código de
-Comercio.
-En los casos de contribuyentes que posean sistemas de contabilidad
-computadorizados, previamente autorizados por la Dirección, también
-deberán cumplir con la obligación de llevar los libros citados en el
-artículo anterior, con anotaciones de resumen que tengan respaldo en los
-datos que contenga el sistema computadorizado, así como en lo documentos
-originales.
+ARTICULO 52.- Emisión de la certificación. Cumplido lo dispuesto en los artículos anteriores, el contador público procederá a emitir la certificación de los estados financieros, en la cual incluirá su opinión, cuyo contenido deberá ajustarse a los términos que fije la Dirección mediante resolución.
+Cuando sea necesario emitir una opinión con salvedades o negativas, el contador público debe expresar con toda claridad las razones de ello, así como su efecto cuantitativo sobre los estados financieros presentados por el declarante. De igual manera, si las circunstancias estudiadas obligan a abstenerse de opinar, también deberá expresar con claridad lasrazones que originan tal abstención.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 52 ocupó el lugar que antes correspondía al artículo 51).

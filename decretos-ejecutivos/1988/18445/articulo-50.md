@@ -1,15 +1,8 @@
-Artículo 50.-Procedimiento para la ejecución de la auditoría. El
-contador público en la ejecución de la auditoría debe cumplir con lo
-siguiente:
-a) El trabajo debe ser adecuadamente planeado y supervisado de manera
-que obtenga elementos de juicio suficientes para sustentar su
-opinión.
-b) El sistema de control interno del declarante debe ser estudiado y
-evaluado cuidadosamente, para delimitar con propiedad tanto el
-tamaño de la muestra como el alcance de las pruebas que se van a
-efectuar, para verificar las partidas seleccionadas.
-c) En los papeles de trabajo debe quedar constancia de la metodología
-empleada para definir el tamaño de la muestra y el alcance de las
-pruebas efectuadas para realizar la auditoría. Cualquiera que sea la
-metodología empleada, el contador público debe obtener evidencia
-comprobatoria suficiente y competente para emitir su opinión.
+ARTICULO 50.- De la certificación y el alcance de la auditoría. La certificación a que se refiere el párrafo primero del artículo 38 de este Reglamento, debe contener el alcance de la intervención llevada a cabo por el contador público en los comprobantes, registros y estados financieros declarados; asimismo, la opinión que le merecen dichos estados, como fiel reflejo de las operaciones efectuadas y el cumplimiento de las obligaciones tributarias, relativas al impuesto sobre la renta del declarante, durante el ejercicio fiscal certificado.
+A tal efecto debe presentarse, además de los estados indicados en el artículo 20 de este Reglamento, la siguiente información obligatoria:
+a) Estados financieros comparativos de los tres últimos ejercicios fiscales, incluido el que se certifica; de igual forma deben señalarse los detalles de los costos de producción y de ventas; de las cuentas de gastos de fabricación, de administración, de ventas, financieros y otros gastos;
+b) Informe comparativo de la conciliación de utilidades contables con la renta líquida gravable de los últimos tres ejercicios fiscales, incluido el que se certifica;
+c) Detalle del cumplimiento de las obligaciones del declarante como agente de retención o percepción;
+d) Información completa (número de contrato, concepto, requisitos para su otorgamiento, monto del beneficio, período que abarca, etc.) y verificación de la correcta aplicación de cada uno de los beneficios fiscales a que tenga derecho el declarante, en virtud de contratos o leyes vigentes; y
+e) Informe detallado de las recomendaciones efectuadas por el contador público al declarante sobre las anomalías detectadas como consecuencia de la auditoría practicada, en el sentido de rectificar los datos declarados, cumplir con las obligaciones como agente de retención o percepción y aplicar correctamente los incentivos fiscales.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 50 ocupó el lugar que antes correspondía al artículo 49).

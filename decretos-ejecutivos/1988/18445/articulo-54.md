@@ -1,4 +1,2 @@
-Artículo 54.-Sistemas contables. Los declarantes deben aplicar los
-resultados de acuerdo con el sistema contable de devengado o acumulado;
-no obstante podrán utilizar también el sistema de percibido, previa
-autorización de la Dirección.
+ARTICULO 54.- Obligación de conservar comprobantes. Los declarantesestán obligados a conservar los comprobantes que respaldan los asientos consignados en los libros y registros de contabilidad, así como a mantenerlos en debido orden, con identificación del asiento contable al que se refieren y con indicación del total correspondiente que debe coincidir con el registrado en los libros.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 54 ocupó el lugar que antes correspondía al artículo 53).

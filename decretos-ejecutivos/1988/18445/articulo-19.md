@@ -1,13 +1,8 @@
-CAPITULO X
-DE LA LIQUIDACION Y EL PAGO
-Artículo 19.-Plazo para presentar la declaración. Los
-contribuyentes deberán presentar la declaración jurada de sus rentas,
-dentro de los dos meses siguientes a la terminación del período fiscal, a
-más tardar el último día hábil del mes de noviembre de cada año.
-En los casos en que la Dirección autorice períodos fiscales
-diferentes al ordinario, se deberá presentar la declaración dentro de los
-dos meses posteriores a la finalización del período fiscal autorizado, a
-más tardar el último día hábil que corresponda.
-No están obligados a presentar declaración jurada de sus rentas los
-contribuyentes, personas físicas, que perciban exclusivamente rentas del
-trabajo personal dependiente.
+ARTICULO 19.- Impuesto sobre la renta disponible de las sociedades de personas y otros contribuyentes. La renta disponible de las sociedades de personas y otros contribuyentes mencionados en el artículo 19 de la ley, estará sujeta a un impuesto único y definitivo, a cargo de los perceptores, la aplicación del impuesto y la retención correspondiente, se regirá por las disposiciones siguientes:
+a) Se considera que el ciento por ciento (100%) de la renta disponible, en el caso de las sociedades de personas, ya sean de hecho o de derecho, fideicomisos, cuentas en participación, encargos de confianza y sucesiones indivisas, pertenece a los socios, fideicomisarios o beneficiarios, que sean personas físicas domiciliadas en el país. En tales casos, las entidades mencionadas que obtengan renta disponible están obligadas a retener y enterar al Fisco por cuenta de los perceptores, sean socios, asociados o beneficiarios, el importe equivalente al quince por ciento (15%) aplicado sobre la suma imputada como participación en aquella renta disponible. No procede practicar la retención cuando se disponga capitalizar la renta disponible, acto que se consolidará con el registro contable correspondiente, el cual deberá realizarse dentro de los tres meses siguientes a la finalización del período fiscal, el detalle del registro de la capitalización deberá indicar el folio del libro diario general, así como el número y fecha del acta en que se acordó.
+b) Las utilidades o excedentes pagados o distribuidos por las cooperativas, asociaciones solidaristas u otras entidades similares, estarán sujetos a una retención del 5% (cinco por ciento), la cual constituirá impuesto único y definitivo a cargo de los perceptores.
+(Así reformado por el artículo 1º del Decreto Nº 21580 de 10 de setiembre de 1992).
+c) Las sucursales, agencias y otros establecimientos permanentes de personas no domiciliadas en el país, que actúen en el territorio nacional, deberán retener y pagar por cuenta del perceptor un impuesto único y definitivo, equivalente al quince por ciento (15%), sobre la totalidad de la renta disponible que se acredite o remese a la casa matriz, el acto que se realice primero.
+No procede practicar la retención, ni pagar el impuesto sobre la renta disponible obtenida por las personas físicas.
+En todos los casos, el impuesto deberá ser enterado al Fisco dentro del plazo a que alude el artículo 21 de la ley.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 19 ocupó el lugar que antes correspondía al artículo 18).

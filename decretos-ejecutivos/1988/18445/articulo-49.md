@@ -1,30 +1,5 @@
-Artículo 49.-De la certificación y el alcance de la auditoría. La
-certificación a que se refiere el párrafo primero del artículo 38 de este
-Reglamento, debe contener el alcance de la intervención llevada a cabo
-por el contador público en los comprobantes, registros y estados
-financieros declarados; asimismo, la opinión que le merecen dichos
-estados, como fiel reflejo de las operaciones efectuadas y el
-cumplimiento de las obligaciones tributarias, relativas al impuesto sobre
-la renta del declarante, durante el ejercicio fiscal certificado.
-A tal efecto debe presentarse, además de los estados indicados en el
-artículo 20 de este Reglamento, a siguiente información obligatoria:
-a) Estados financieros comparativos de los tres últimos ejercicios
-fiscales, incluido el que se certifica; de igual forma deben
-señalarse los detalles de lo costos de producción y de ventas; e las
-cuentas de gastos de fabricación, de administración, de ventas,
-financieros y otros gastos;
-b) Informe comparativo de la conciliación de utilidades contables con
-la renta líquida gravable de los últimos tres ejercicios fiscales,
-incluido el que se certifica;
-c) Detalle del cumplimiento de las obligaciones del declarante como
-agente de retención o percepción;
-d) Información completa (número de contrato, concepto, requisitos para
-su otorgamiento, monto del beneficio, período que abarca, etc) y
-verificación de la correcta aplicación de cada uno de los beneficios
-fiscales a que tenga derecho el declarante, en virtud de contratos o
-leyes vigentes; y
-e) Informe detallado de las recomendaciones efectuadas por el contador
-público al declarante sobre las anomalías detectadas como
-consecuencia de la auditoría practicada, en el sentido de rectificar
-los datos declarados, cumplir con las obligaciones como agente de
-retención o percepción y aplicar correctamente los incentivos fiscales.
+ARTICULO 49.- Impedimentos para certificar estados financieros para efectos tributarios. No podrá certificar para efectos tributarios, el contador público que se encuentre en alguna de las siguientes situaciones:
+a) Que sea o haya sido empleado del declarante durante el ejercicio fiscal a certificar o de negocios vinculados económica o administrativamente con el declarante;
+b) Que sea cónyuge, pariente hasta el cuarto grado de consanguinidad o segundo grado de afinidad del propietario, socio principal de la empresa o de algún director, administrador o empleado que tenga intervención importante en la administración; y
+c) Que sea propietario de la empresa o que esté vinculado de cualquier otra forma con el declarante, de tal suerte que ello le impida independencia e imparcialidad de criterio al emitir su opinión.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 49 ocupó el lugar que antes correspondía al artículo 48).

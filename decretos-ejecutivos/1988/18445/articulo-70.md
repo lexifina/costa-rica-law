@@ -1,7 +1,5 @@
-CAPITULO XXV
-DE LA ADMINISTRACION Y FISCALIZACION
-Artículo 70.-Administración y fiscalización. Corresponde a la
-Dirección General de la Tributación Directa, la administración y
-fiscalización del impuesto sobre la renta y los gravámenes especiales a
-que se refiere la ley, lo mismo que aplicar las disposiciones contenidas
-en este Reglamento.
+CAPITULO XXIV
+CREDITO DE IMPUESTO POR CONTRATO FORESTAL
+ARTICULO 70.- DEROGADO
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 70 ocupó el lugar que antes correspondía al artículo 69).
+(Derogado por el artículo 2º del Decreto Nº 21580 de 10 de setiembre de 1992).

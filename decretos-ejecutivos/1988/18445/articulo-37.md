@@ -1,13 +1,8 @@
-Artículo 37.-Certificación de las retenciones. el empleador,
-patrono o pagador, deberá entregar a sus empleados, en el mes de octubre
-de cada año, un estado en el que certificará los conceptos y el monto
-total de las remuneraciones pagadas, así como el de los impuestos
-retenidos y pagados.
-El estado a que alude el párrafo anterior deberá contener el nombre
-completo y el número de cédula del empleado, el nombre y número de cédula
-física o jurídica del empleador, así como un detalle de los créditos
-aplicados.
-El patrono o empleador está obligado a conservar durante los plazos
-que establece el artículo 51 del Código de Normas y Procedimientos
-Tributarios, los documentos aportados por los contribuyentes para
-justificar los créditos aplicados.
+ARTICULO 37.- Pago del impuesto. Los agentes retenedores procederán
+a depositar las sumas retenidas en el Banco Central de Costa Rica o en
+las tesorerías recaudadoras autorizadas, dentro de los diez primeros días
+hábiles del mes siguiente a la fecha en que se efectuaron, para lo cual
+utilizarán el entero-nómina que proporcionará la Dirección. El patrono,
+empleador o pagador queda obligado, según lo dispone el artículo 37 de la
+ley, a efectuar el pago del impuesto aún cuando no hubiera practicado la
+retención.

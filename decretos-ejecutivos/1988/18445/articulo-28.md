@@ -1,25 +1,6 @@
-CAPITULO XII
-IMPUESTO UNICO SOBRE LAS RENTAS DEL
-TRABAJO PERSONAL DEPENDIENTE
-Artículo 28.-Objeto del impuesto. El impuesto se aplicará sobre las
-rentas que perciban las personas físicas o naturales domiciliadas en el
-país, por el trabajo personal en relación de dependencia. Son rentas del
-trabajo personal dependiente:
-a) Los sueldos, sobresueldos, salarios, premios, bonificaciones,
-gratificaciones, comisiones, pagos por horas extraordinarias,
-regalías, recargos de funciones, zonajes, subsidios, compensaciones
-de vacaciones, y el aguinaldo, en la proporción que establece el
-inciso b) del artículo 30 de la ley.
-b) Las dietas, gratificaciones y participaciones sociales que reciban
-los ejecutivos, directores, consejeros y demás miembros de las
-sociedades anónimas y otros entes jurídicos.
-c) Cualesquiera otras rentas otorgadas por el patrono o empleador, tales
-como: gastos de representación, gastos confidenciales, asignación de
-vehículo para uso particular, cuotas para combustible, asignación de
-vivienda o pago de ésta, gastos de colegiación del empleado o
-familiares, pagos de afiliación a clubes sociales o entidades que
-extiendan tarjetas de crédito y otros beneficios similares. Cuando
-los ingresos a que alude este inciso, no tengan la representación de
-su monto, corresponde a la Dirección evaluarlos y fijarles el
-correspondiente valor monetario, a instancias del agente retenedor o
-en su defecto, fijarlo de oficio.
+ARTICULO 28.- Empresas de construcción y similares. Las empresas dedicada a la construcción o actividades similares, que realicen contratos u obras que abarquen dos o más períodos fiscales, deberán establecer los resultados de sus operaciones por aplicación de cualquiera de los siguientes métodos:
+a) Asignar a cada período fiscal, como renta neta, la suma que resulte de aplicar, sobre los importes efectivamente percibidos, el porcentaje de ganancia calculado para toda la obra. Si hubiere evidente variación del cálculo efectuado, el porcentaje puede ser modificado por la parte correspondiente a los períodos fiscalesposteriores. En todo caso los porcentajes referidos pueden ser modificados por la Dirección cuando compruebe que no se ajustan a la realidad; y
+b) Asignar a cada período fiscal el resultado neto que sea consecuencia de deducir del importe de la obra contratada, la parte que fue realmente ejecutada en el período, los costos efectivamente efectuados y los gastos ocurridos en el mismo período fiscal. Cuando fuere difícil la determinación del resultado en la forma indicada, la utilidad obtenida por la parte construida se puede establecer mediante un procedimiento análogo al señalado en el inciso anterior. En este caso, la Dirección puede también ejercer las facultades señaladas en dicho inciso.
+La diferencia que se obtenga entre el resultado neto al final de toda la obra y el establecido mediante cualquiera de los procedimientos indicados, debe incidir en el período fiscal en que la obra se concluya, aún cuando no se haya percibido su importe, sin perjuicio de prorratearl equitativamente en los períodos no prescritos.
+Elegido uno de los métodos mencionados, el mismo debe se aplicado por el declarante a todas las obra o trabajos que realice y sólo puede ser cambiado con la previa autorización de la Dirección, la que establecerá a partir de cual período se debe efectuar el cambio.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 28 ocupó el lugar que antes correspondía al artículo 27).

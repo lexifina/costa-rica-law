@@ -1,11 +1,2 @@
-Artículo 43.-Facultades de la Administración sobre la fiscalización.
-La certificación de los estados financieros para efectos tributarios, no
-constituye plena prueba contra el Fisco; la Administración Tributaria
-conserva toda las facultades de fiscalización que le confieren las leyes
-aplicables y podrá ejercerlas ante el declarante, el contador público que
-certificó los estados financieros o terceros que tengan relación con el
-declarante, para determinar en forma correcta la obligación tributaria.
-Tanto el declarante, como el contador público, están obligados a
-conservar y suministrar a la Administración Tributaria, si ésta lo
-requiere, los papeles de trabajo y el informe de auditoría preparado para
-efectos de certificar los estados financieros.
+ARTICULO 43.- Sustitución del contador público. Cuando habiendo informado a la Administración Tributaria que los estados financieros serán certificados, el declarante renuncie a ello o sustituya al contador público asignado originalmente, deberá comunicarlo a la Dirección por escrito, antes del vencimiento del plazo que corresponda, justificando la renuncia o el cambio; no obstante, ello no será causal para prorrogar el referido plazo. Salvo motivo de fuerza mayor o caso fortuito, la Administración podrá conceder, a solicitud de parte, un plazo adicional que no podrá exceder de dos meses, para la presentación de los estados financieros, a partir de la aprobación de la gestión.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 43 ocupó el lugar que antes correspondía al artículo 42).

@@ -1,24 +1,14 @@
-Artículo 20.-Anexos a la declaración. Con la declaración jurada los
-contribuyentes deberán presentar los estados financieros y las notas
-explicativas necesarias. Todos los rubros consignados en la declaración
-deben coincidir con los registros de contabilidad y con los comprobantes
-que respalden sus asientos.
-Los anexos que deberán presentarse con la declaración serán, según
-corresponda:
-a) El balance de comprobación anterior a la liquidación, el estado de
-situación financiera y el estado de resultados, todos con las notas
-explicativas necesarias para justificar las partidas incluidas en
-ellos; además, el estado patrimonial establecido en el artículo 8º,
-párrafo tercero, de este Reglamento;
-b) Nómina de las remuneraciones pagadas, no sometidas al régimen de
-cotizaciones de la Caja Costarricense de Seguro Social;
-c) Nómina de los pagos efectuados por compras a beneficiadores de café,
-arroz y otros productos; a ingenios, aserraderos y otras
-actividades, con indicación de los nombres completos, número de
-cédula y dirección e importes pagados a cada uno de ellos; y
-ch) Nóminas de compradores y vendedores de ganado, cuando este no se
-considere activo fijo, con los que el declarante haya efectuado
-operaciones durante el período fiscal, con indicación de los nombres
-completos, números de cédulas de identidad y de los montos pagados o
-recibidos, según sea el caso. Asimismo, un detalle del inventario
-del ganado al cierre del período fiscal.
+CAPITULO X
+DE LA INSCRIPCIÓN, DECLARACIÓN, LIQUIDACIÓN Y PAGO
+(El título de este capítulo se modificó por el artículo 1° del Decreto Ejecutivo N° 26358- H del 18 de agosto de 1997)
+ARTICULO 20.- Inscripción y Desincripción.: Están obligados a inscribirse al al iniciar sus actividades o negocio de carácter lucrativo:
+a) Las personas jurídicas legalmente constituidas, las sociedades de hecho, las sociedades de actividades profesionales y las cuentas en participación cuando estén obligados a presentar declaración por este impuesto.
+Las personas físicas que realicen actividades profesionales, técnicas o empresariales con excepción de los que exclusivamente realicen alguna de las siguientes actividades: artesanía, agrícola, forestal, ganadera o pesquera.
+La inscripción se realizará en el formulario aprobado por resolución administrativa donde deberán figurar:
+Datos identificativos
+Actividad económica
+Representación legal
+Obligaciones tributarias.
+En los supuestos de cese de la actividad o de modificación de alguno de los datos consignados deberá así mismo comunicarse mediante el citado formulario en el plazo de 10 días.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 20 ocupó el lugar que antes correspondía al artículo 19).
+(Así reformado por el artículo 3° del Decreto Ejecutivo N° 26358- H del 18 de agosto de 1997.)

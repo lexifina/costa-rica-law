@@ -1,4 +1,2 @@
-Artículo 46.-Procedimientos de oposición. Para oponerse a los
-hechos denunciados por la Administración Tributaria, conforme lo previsto
-en el artículo 44 del presente Reglamento, el contador público seguirá el
-procedimiento fijado en el Reglamento del Colegio.
+ARTICULO 46.- Sanción del Colegio. Cuando el Colegio dicte la sanción aplicable al contador público denunciado, se da por terminada la suspensión temporal que establece el artículo anterior y entra en vigencia la sanción impuesta por el Colegio.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 46 ocupó el lugar que antes correspondía al artículo 45).

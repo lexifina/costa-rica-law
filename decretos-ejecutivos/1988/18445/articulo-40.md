@@ -1,12 +1,3 @@
-Artículo 40.-Documentos de la certificación. El declarante que se
-acoja a lo dispuesto en el artículo anterior, debe presentar dentro del
-plazo referido, la siguiente documentación:
-a) Dictamen relativo a los estados financieros;
-b) Estado de situación financiera;
-c) Estado de resultados;
-d) Conciliación de la utilidad contable del período con la renta
-líquida gravable; y
-e) Estado de cambios en la situación financiera con base en el
-efectivo.
-También deberán especificarse las políticas contables y las notas
-explicativas a los estados financieros.
+ARTICULO 40.- Plazo de presentación de los estados financieros certificados. Los declarantes que utilicen los servicios de contadores públicos para que les certifiquen su estados financieros, deben indicar en su declaración que los estados financieros incluidos en ella, serán certificados posteriormente para efectos tributarios por determinado contador público autorizado, indicando su nombre.
+Estos estados certificados deben ser entregados, a más tardar dentro de los cinco meses siguientes al plazo límite fijado por ley o el establecido especialmente por la Dirección, para la presentación de la declaración.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 40 ocupó el lugar que antes correspondía al artículo 39).

@@ -1,7 +1,13 @@
-CAPITULO XXV
-DEL IMPUESTO SOBRE LAS REMESAS AL EXTERIOR
-Artículo 59.-Objetivo del impuesto. Los porcentajes de retención a
-que se refiere el artículo 54 de la ley, se deben aplicar a las
-cantidades brutas que se acrediten, paguen o de cualquier forma se pongan
-a disposición de personas no domiciliadas en el país por los conceptos
-enunciados en los artículos 49 y 50 de la ley.
+ARTICULO 59.- Valuación de inventarios. Para la valuación de inventarios se puede utilizar cualquiera de los siguientes procedimientos, siempre que técnicamente sea apropiado para el negocio de que se trate y se aplique de manera uniforma y continua:
+a) Para la mercancías compradas en plaza o importadas, se debe utilizar el costo de adquisición. Para su valuación se puede usar cualquiera de los siguientes métodos:
+i) Ultima compra.
+ii) Costos promedios movibles.
+iii) Primeras entradas, primeras salidas (P.E.P.S.).
+iv) Ultimas entradas, primeras salidas (U.E.P.S.).
+b) Para los artículos producidos por el declarante, se debe determinar el valor del inventario de la siguiente manera:
+i) Materias primas: Se deben valuar por el costo de adquisición, que comprende el valor de compra, más los gastos efectuados hasta situar estos bienes en el establecimiento; en este caso se puede utilizar cualquiera de los métodos indicados en el inciso a) del presente artículo. Si la propia empresa es productora de las materias primas, su valuación se debe hacer por el costo de producción;
+ii) Productos en proceso: Los artículos que al cierre del ejercicio fiscal se encuentren en proceso de fabricación, se deben valuar proporcionalmente de acuerdo con su grado de elaboración, considerando el valor de la materia prima empleada, el de la mano de obra directa usada y los gastos aplicables en que se haya incurrido; y
+iii) Productos terminados: Se deben valuar por el costo de producción, el cual comprende el valor de la materia prima empleada, el de la mano de obra directa usada y los gastos de fábrica que deban aplicarse, todo de acuerdo con el costo de fabricación del artículo de que se trate.
+c) Para los productos agrícolas producidos por el declarante, la valuación se hará por el precio de venta en el mercado de la zona correspondiente, al por mayor y al contado, menos los gastos de venta. Cuando se trate de productos como el café, la caña de azúcar, granos y cualesquiera otros cuyos precios de venta sean determinados por organismos oficiales, se deben tomar estos precios como de mercado en ese momento. Si la contabilidad del declarante es adecuada, se puede utilizar el sistema de costo, el que debe comprender todos los costos y gastos incurridos en laproducción del artículo respectivo. No obstante, cualquiera de los dos métodos a que se refiere este inciso, que el declarante utilice, debe mantenerse hasta que la dirección autorice su cambio;
+ch) Para los inmuebles. Los declarantes que hagan de la compra y venta de bienes inmuebles su ocupación habitual, deben valuarlos por su precio de adquisición, ya sea que la operación se haya realizado al crédito o al contado. Cuando estos bienes incluyan construcciones o instalaciones, éstas se deben valuar por separado, a su costo real.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 59 ocupó el lugar que antes correspondía al artículo 58).

@@ -1,14 +1,5 @@
-CAPITULO XIX
-DE LOS CERTIFICADOS PARA EFECTOS TRIBUTARIOS
-Artículo 38.-Certificación de estados financieros. Los estados
-financieros incluidos en la declaración pueden ser certificados por
-contadores públicos autorizados, según lo dispone el artículo 43 de la
-ley. A tal fin,la certificación para efectos tributarios debe contener
-la opinión del contador público, sustentada en el examen y evaluación de
-los estados financieros, con aplicación de las normas de auditoría
-generalmente aceptadas y con estricto apego a las disposiciones legales
-que regulan al materia.
-En caso de situaciones no previstas en la ley, deben observarse las
-disposiciones emitidas por la Dirección, en uso de las facultades que le
-confiere el Código de Normas y Procedimientos Tributarios, la
-jurisprudencia y los principios de contabilidad generalmente aceptados.
+ARTICULO 38.- Certificación de las retenciones. El empleador, patrono o pagador, deberá entregar a sus empleados, pensionados o jubilados, en el mes de octubre de cada año, un estado en el que certificará los conceptos y el monto total de las remuneraciones pagadas, así como el de los impuestos retenidos y pagados.
+El estado a que alude el párrafo anterior deberá contener el nombre completo y el número de cédula del empleado, pensionado o jubilado, el nombre y número de cédula física o jurídica del empleador o pagador, así como el detalle de los créditos aplicados.
+El pagador o empleador está obligado a conservar durante los plazos que establece el artículo 51 del Código de Normas y Procedimientos Tributarios, los documentos aportados por los contribuyentes para justificar los créditos aplicados.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 38 ocupó el lugar que antes correspondía al artículo 37).
+(Así reformado por el artículo 12 del decreto ejecutivo No.25046 de 26 de marzo de 1996)

@@ -1,6 +1,6 @@
 CAPITULO IV
 DEL PERIODO FISCAL
-Artículo 7º.-Período del impuesto. El período fiscal ordinario del
+ARTICULO 7º.- Período del impuesto. El período fiscal ordinario del
 impuesto está comprendido entre el 1º de octubre de un año y el 30 de
 setiembre del año siguiente.
 La Administración Tributaria está facultada para, en casos, muy

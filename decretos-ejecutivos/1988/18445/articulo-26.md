@@ -1,8 +1,3 @@
-Artículo 26.-Actividades agrícolas. En las actividades agrícolas,
-los gastos de producción ocasionaos por una sola cosecha, tales como
-preparación del terreno, semillas, agroquímicos, siembra, labores de
-cultivo, recolección y similares, pueden ser deducidos en el período
-fiscal en que se paguen o diferidos para ser deducidos en aquel en que se
-obtengan los ingresos provenientes de la cosecha. Si dichos ingresos se
-obtienen en diferentes períodos fiscales, los gastos de producción pueden
-ser deducidos en la proporción que corresponda.
+ARTICULO 26.- Venta de terrenos en lotes urbanizados. La ganancia obtenida por la venta de terrenos fraccionados en lotes urbanizados debe declararse como renta neta. Esta será la diferencia entre el valor del terreno antes del fraccionamiento, determinado por avalúo de la Dirección, más los costos y gastos de las mejoras introducidas para su urbanización y el precio de venta del terreno urbanizado. En estos casos, cualquiera que fuera el sistema de contabilidad por el que hubiera optado el declarante para el resto de las operaciones, las ventas de lotes urbanizados deben ser declaradas de acuerdo con el sistema de percibido.
+Antes de iniciarse la urbanización, el propietario debe solicitar a la Dirección el avalúo de la finca correspondiente, requisito sin el cual la municipalidad respectiva no debe otorgar permiso para comenzar la obra. El valor de las áreas destinadas a calles, parques, zonas verdes o centros de recreo, se considera costo de la urbanización y, en consecuencia, su deducción procede por tal concepto, independientemente de que las áreas mencionadas hayan sido traspasadas a la municipalidad o a otra entidad estatal.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 26 ocupó el lugar que antes correspondía al artículo 25).

@@ -1,8 +1,4 @@
-Artículo 36.-Pago del impuesto. Los agentes retenedores procederán
-a depositar las sumas retenidas en el Banco Central de Costa Rica o en
-las tesorerías recaudadoras autorizadas, dentro de los diez primeros días
-hábiles del mes siguiente a la fecha en que se efectuaron, para lo cual
-utilizarán el entero-nómina que proporcionará la Dirección. El patrono,
-empleador o pagador queda obligado, según lo dispone el artículo 37 de la
-ley, a efectuar el pago del impuesto aún cuando no hubiera practicado la
-retención.
+CAPITULO XVIII
+DE LA RETENCION Y PAGO DEL IMPUESTO
+ARTICULO 36.- Retención del impuesto. Todo patrono o empleador decarácter público o privado, está obligado a actuar como agente de retención del impuesto a que se refiere el Título II de la ley, cuando pague o acredite rentas de las afectas a dicho impuesto. Efectuada la retención, el obligado a ella es el único responsable ante el Fisco.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 36 ocupó el lugar que antes correspondía al artículo 35).

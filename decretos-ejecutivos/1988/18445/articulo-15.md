@@ -1,28 +1,5 @@
-CAPITULO VIII
-DE LAS TARIFAS DEL IMPUESTO
-Artículo 15.-Tarifas de impuesto. Sobre la renta imponible se
-aplicarán las siguientes tarifas:
-Personas jurídicas:
-a) Pequeñas empresas:
-Hasta ¢ 3.000.000,00 de ingresos brutos, sobre la renta
-neta se aplicará la tarifa única del ...........................10%
-Hasta ¢ 6.000.000,00 de ingresos brutos, sobre la renta
-neta se aplicará la tarifa única del ...........................20%
-b) Con más de ¢ 6.000.000,00 de ingresos brutos, sobre la
-renta neta se aplicará la tarifa única del .....................30%
-c) Las que no hayan realizado actividades durante el período
-fiscal, independientemente de que presenten o no declaración
-jurada, pagarán un impuesto anual de doce mil colones
-(¢ 12.000,00).
-Personas físicas con actividades lucrativas:
-Renta Neta Tarifa Exceso Total
-% ¢ ¢
-Hasta ¢ 200.000,00 Exento 0 0
-Sobre el exceso de ¢ 200.000,00
-hasta ¢ 300.000,00 ..................10 10.000,00 10.000,00
-Sobre el exceso de ¢ 300.000,00
-hasta ¢ 500.000,00 ..................15 30.000,00 40.000,00
-Sobre el exceso de ¢ 500.000,00
-hasta ¢ 1.000.000,00 ................20 100.000,00 140.000,00
-Sobre el exceso de ¢ 1.000.000,00
-en adelante ........................25 - -
+ARTICULO 15.- Otras rentas presuntivas. Para los contribuyentes que sean personas físicas independientemente de la nacionalidad y el lugar de celebración de los contratos, así como para las empresas individuales que actúen en el país, se presumirá que, salvo prueba directa o indirecta en contrario, que obtienen una renta mínima anual, de conformidad con la clasificación que se establece en el artículo 13, incisos a) y b) de la Ley
+La Administración Tributaria queda facultada para establecer la rentas netas que realmente correspondan, sobre la base de investigaciones directas de la actividad desarrollada por el profesional, técnico o transportista. En tales casos la Dirección debe impugnar total o parcialmente las anotaciones de los libros de contabilidad que lleve el profesional, técnico o transportista, si ese es el caso, y establecerá su renta imponible sobre la base de los elementos de prueba que señala el artículo 116 del Código de Normas y Procedimientos Tributarios. En materia de registros contables y comprobantes que deben amparar las anotaciones en los registros contables, estos contribuyentes estarán sujetos a lo dispuesto en los artículos 9º y 53 de este Reglamento.
+Para efectos de este artículo se entiende como salario base (*) la contenida en el artículo 2º de la ley Nº 7337.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 15 ocupó el lugar que antes correspondía al artículo 14).
+(Así reformado por el artículo 6º del decreto ejecutivo No.25046 de 26 de marzo de 1996) (*) Sobre monto del salario base a partir de 1995, ver observaciones de la Ley de Impuesto sobre la Renta Nº 7092 de 21 de abril de 1988.

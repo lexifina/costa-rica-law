@@ -1,25 +1,2 @@
-Artículo 22.-Declaraciones juradas para casos especiales. Se debe
-presentar una declaración jurada especial con las formalidades exigidas
-en los artículos anteriores, dentro de los treinta días siguientes a la
-fecha en que ocurra cualquiera de las siguientes situaciones:
-a) Cuando un contribuyente cese en sus actividades deberá dar aviso por
-escrito a la Administración Tributaria y presentar una última
-declaración, con el estado de resultados y de situación financiera
-finales y pagar en la misma fecha de presentación el impuesto que
-resultare.
-b) En caso de muerte del contribuyente, corresponde al albacea, o en su
-defecto, a los herederos, presentar la declaración por las rentas
-obtenidas por el causante a la fecha de su fallecimiento y pagar el
-impuesto que corresponda en la misma fecha en que se presenta la
-declaración.
-c) En la venta, traspaso, cesión, fusión o cualquiera otra forma de
-transferencia de un negocio o explotación, le corresponde al
-trasmitente la obligación de presentar la declaración por todas las
-operaciones realizadas a la fecha en que ocurra el acto de que se
-trate. Esta liquidación es provisional, pero el declarante podrá
-deducir, del impuesto final que liquide, el monto pagado conforme a
-esta declaración.
-ch) Igualmente deben presentar declaración jurada de sus rentas los
-contribuyentes señalados en el artículo 2º de la ley, cuando a pesar
-de haberse extinguido legalmente, continúen de hecho ejerciendo
-actividades.
+ARTICULO 22.- Casos especiales. Cuando contribuyente tenga actividades referidas a un período menor de cuatro meses, comprendido entre el día que inició operaciones y la fecha del cierre del período fiscal ordinario, opcionalmente podrá presentar la declaración por la fracción de ese período o bien no presentarla, pero el movimiento referente a dicha fracción de período deberá incluirlo en la declaración siguiente, efectuando por separado la liquidación del período y la de la fracción; el impuesto resultante debe cancelarse dentro del plazo establecido para el período fiscal ordinario.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 22 ocupó el lugar que antes correspondía al artículo 21).

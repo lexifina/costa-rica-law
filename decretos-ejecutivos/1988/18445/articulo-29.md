@@ -1,28 +1,9 @@
-CAPITULO XIII
-DE LA TARIFA DEL IMPUESTO
-Artículo 29.-Tarifas. El impuesto a que se refiere el artículo 27
-de la ley tendrá el carácter de único y definitivo y deberá retenerse y
-aplicarse por el empleador o patrono sobre la renta total mensual
-percibida por el trabajador, conforme a las siguientes tarifas:
-a) hasta ¢ 40.000,00 mensuales, exento.
-b) Sobre el exceso de ¢ 40.000,00 hasta ¢ 60.000,00 el 10%
-Sobre el exceso de ¢ 60.000,00 en adelante el 15%
-Con las tarifas anteriores se gravarán las rentas a que alude el
-inciso a) del artículo 27 de la ley, independiente mente de que
-estén afectas al pago de cargas sociales o se incluyan en el cálculo
-del aguinaldo.
-c) Los contribuyentes perciban rentas de las enunciadas en los incisos
-b) y c) del artículo 27 de la ley, pagarán el diez por ciento (10%)
-sobre el ingreso bruto, sin créditos de impuesto.
-El monto anual del impuesto pagado en ningún caso podrá ser superior
-al monto del promedio mensual de las rentas gravadas que se citan en el
-inciso a) del artículo 27 de la ley, ocurridas entre el 1º de octubre de
-un año y el 30 de setiembre del siguiente.
-Cuando resulte un crédito a favor del contribuyente como
-consecuencia de habérsele retenido una suma mayor al promedio indicado,
-la Dirección podrá, de oficio o a instancia del propio contribuyente,
-compensar el pago de otros impuestos a cargo del contribuyente o de otros
-contribuyentes y si no los hubiere, pondrá el crédito a disposición del
-interesado; si el crédito no se hiciera efectivo por negligencia o culpa
-del interesado, no se reconocerá el interés previsto en el artículo 41 de
-la ley.
+CAPITULO XII
+IMPUESTO UNICO SOBRE LAS RENTAS DEL TRABAJO PERSONAL DEPENDIENTE
+ARTICULO 29.- Objeto del impuesto. El impuesto se aplicará sobre las rentas que perciban las personas físicas domiciliadas en el país, por el trabajo personal en relación de dependencia o la jubilación o pensión. Son rentas del trabajo personal dependiente:
+a) Los sueldos, sobresueldos, salarios, premios, bonificaciones, gratificaciones, comisiones, pagos por horas extraordinarias regalías, recargos de funciones, zonajes, subsidios, compensaciones de vacaciones y el aguinaldo, en la proporción que establece el inciso b) del artículo 35 de la Ley.
+b) Las dietas, gratificaciones y participaciones sociales que reciban los ejecutivos, directores, consejeros y demás miembros de las sociedades anónimas y otros entes jurídicos.
+c) Cualesquiera otras rentas otorgadas por el patrono o empleador, tales como salarios en especie, gastos de representación, gastos confidenciales, asignación de vehículo para uso particular, cuotas para combustible, asignación de vivienda o pago de ésta, gastos de colegiación del empleado o familiares, pagos de afiliación a clubes sociales o entidades que extiendan tarjetas de crédito y otros beneficios similares. Cuando los ingresos a que alude este inciso no tengan la representación de su monto, corresponde a la Dirección evaluarlos y fijarles el correspondiente valor monetario, a instancias del agente retenedor o en su defecto, fijarlo de oficio.
+ch) Las jubilaciones y las pensiones de cualquier régimen. En los casos de los incisos a), b) y c) lo aplicará y retendrá el empleador o patrono y en el inciso ch) todas las entidades públicas o privadas pagadoras de pensiones o jubilaciones.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 29 ocupó el lugar que antes correspondía al artículo 28).
+(Así reformado por el artículo 11 del decreto ejecutivo No.25046 de 26 de marzo de 1996)

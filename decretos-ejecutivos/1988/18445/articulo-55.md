@@ -1,18 +1,2 @@
-Artículo 55.-Sistemas contables computadorizados. Aquellos
-declarantes que consideren necesario computadorizar parcial o totalmente
-su sistema contable, deben solicitar por escrito la autorización a la
-Dirección y adjuntar a la petición:
-a) Marca y configuración del equipo (Hardware);
-b) Sistema operativo, operación y aplicación (Software);
-c) Areas que se computadorizan o sistemas que operarán;
-ch) Descripción de los sistemas;
-d) Descripción codificada, en medio magnético, de los programas objeto;
-y
-e) Estado conciliatorio (operación paralela) de las cuentas del sistema
-anterior y el computadorizado.
-Deberán además notificar a la Dirección cualquier cambio en la
-información requerida en los apartes a), b), c), ch) y d) anteriores.
-Asimismo, deberán conservar los archivos de los sistemas por igual
-período que los comprobantes que respaldan loa asientos contables, de
-forma tal que permitan, partiendo del saldo inicial de las cuentas de un
-período, arribar a su saldo al cierre del mismo período fiscal.
+ARTICULO 55.- Sistemas contables. Los declarantes deben aplicar los resultados de acuerdo con el sistema contable de devengado o acumulado; no obstante podrán utilizar también el sistema de percibido, previa autorización de la Dirección.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 55 ocupó el lugar que antes correspondía al artículo 54).

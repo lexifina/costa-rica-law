@@ -1,12 +1,10 @@
-Artículo 41.-Prórroga para la presentación de los estados
-certificados. Cuando se haya solicitado prórrogaa para la presentación
-de la declaración, cuyos estados serán certificados o cuando esté
-pendiente de resolver por la Dirección alguna consulta que por su
-trascendencia pueda influir en la opinión que va a emitir el contador
-público, el término señalado en el artículo 39 de este Reglamento se
-ampliará por el plazo que autorice la prórroga. En el último caso, el
-declarante contra con un mes adicional para presentar los estados
-certificados. La contestación de las consultas, debe notificarse al
-contador público en el domicilio señalado expresamente por él, o bien, al
-que aparezca anotado en el Registro de Contadores Públicos Autorizados
-que llevará la Dirección.
+ARTICULO 41.- Documentos de la certificación. El declarante que se acoja a lo dispuesto en el artículo anterior, debe presentar dentro del plazo referido, la siguiente documentación:
+a) Dictamen relativo a los estados financieros;
+b) Estado de situación financiera;
+c) Estado de resultados;
+d) Conciliación de la utilidad contable del período con la renta
+líquida gravable; y
+e) Estado de cambios en la situación financiera con base en el
+efectivo.
+También deberán especificarse las políticas contables y las notas explicativas a los estados financieros.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 41 ocupó el lugar que antes correspondía al artículo 40).

@@ -1,6 +1,7 @@
-Artículo 53.-Obligación de conservar comprobantes. Los declarantes
-están obligados a conservar los comprobantes que respaldan los asientos
-consignados en los libros y registros de contabilidad, así como a
-mantenerlos en debido orden, con identificación del asiento contable al
-que se refieren y con indicación del total correspondiente que debe
-coincidir con el registrado en los libros.
+CAPITULO XX
+LIBROS Y NORMAS DE CONTABILIDAD
+ARTICULO 53.- Legalización de registros contables. Los contribuyentes a que se refiere el Título I de la Ley deben llevar, para el adecuado control de sus operaciones, los siguientes registros contables debidamente legalizados: Diario, Mayor Inventarios y Balances. Además las sociedades anónimas deben llevar un libro de actas de asambleas de socios y el registro de socios. Estos dos últimos libros también deberán ser llevados por las sociedades de responsabilidad limitada.
+Los libros indicados en el párrafo anterior deben cumplir con las exigencias establecidas en los artículos 251 a 271 del Código de Comercio.
+Como excepción a las disposiciones anteriores, los técnicos y profesionales liberales a que se refiere el artículo 13, inciso a) de la Ley, que únicamente se dediquen al ejercicio liberal de la profesión, sin perjuicio de que también laboren en relación de dependencia, podrán llevar un libro especial de ingresos y un registro auxiliar en el que se anotarán los activos necesarios para el ejercicio de la profesión. Ninguno de estos libros requerirá de legalización ante la Administración Tributaria; sin embargo el contribuyente estará obligado a conservarlos con sus comprobantes de respaldo de las anotaciones efectuadas por el mismo lapso de la prescripción respectiva. La Administración Tributaria, mediante resolución dictada al efecto, fijará la forma en que se deben llevarse estos registros que constituyen los libros legales a que se refiere la norma legal mencionada.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 53 ocupó el lugar que antes correspondía al artículo 52).
+(Así reformado por el artículo 4° del Decreto Ejecutivo N° 26358- H del 18 de agosto de 1997)

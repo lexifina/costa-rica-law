@@ -1,15 +1,24 @@
-Artículo 13.-Casos especiales para determinar la renta líquida. Las
-empresas de transporte en general y las de comunicaciones, cuyos
-propietarios sean personas no domiciliadas en el país, que también
-efectúen operaciones extraterritoriales, motivo por el que se dificulte
-la determinación de la renta atribuible a Costa Rica, podrán solicitar a
-la Administración Tributaria un sistema especial de cálculo de su renta
-imponible.
-Para tales efectos, las empresas interesadas deberán presentar
-solicitud acompañada del estado de resultados de la compañía matriz y el
-desgloce de las actividades que presentaron a las autoridades fiscales
-del país donde están domiciliadas, así como cualquier otra información o
-documentación que la Dirección General estime necesaria para resolver la
-petición de cálculo especial de la renta líquida. Toda la documentación
-deberá estar debidamente certificada y autenticada por autoridad
-competente, a juicio de la Dirección.
+CAPITULO VII
+DE LAS RENTAS NETAS PRESUNTIVAS
+ARTICULO 13.- Renta neta presuntiva y contratos de financiamiento.
+En todo contrato u operación de préstamo, que implique financiamiento,
+cualquiera que sea su naturaleza o denominación, si existe documento
+escrito, se presume, salvo prueba en contrario, que existe una renta neta
+por intereses, la cual debe calcularse a una tasa de interés no menor a
+la tasa activa de interés anual más alta que fije el Banco Central de
+costa Rica o bien, a falta de ésta, con el promedio de las tasas activas
+de interés anual de los bancos del Sistema Bancario Nacional. Esta
+presunción se aplica también para cuando se estipule un interés menor al
+que según el Banco Central de Costa Rica, corresponda al tipo de
+operaciones de que se trate o cuando se hubiere pactado expresamente que
+no existe interés alguno.
+No se admite prueba en contrario para la presunción que se
+establece, cuando no exista documento escrito. La Administración podrá
+aplicar la presunción a que se refiere el artículo 10 de la ley, si se
+produce financiamiento, aún cuando no exista contrato de préstamo. Para
+los efectos de lo estipulado en el artículo 10 de ley, se entiende por
+financiamiento toda acción u operación que genere fondos, que permitan al
+perceptor realizar las actividades de su giro normal, utilizando sus
+activos como garantía o como instrumentos negociables, o mediante la
+emisión de títulos valores u otros documentos o títulos comerciales.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 13 ocupó el lugar que antes correspondía al artículo 12).

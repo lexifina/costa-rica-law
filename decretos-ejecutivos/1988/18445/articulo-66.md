@@ -1,26 +1,11 @@
-Artículo 66.-Normas para disfrutar los beneficios. Para disfrutar
-de los incentivos que establece el artículo 60 de la ley, los
-contribuyentes deberán, además de observar las obligaciones establecidas
-en el artículo anterior, presentar ante la Dirección, los siguientes
-documentos:
-a) Certificación emitida por el Banco Central de Costa rica, del monto
-de las exportaciones de productos no tradicionales hechas a terceros
-mercados, no amparadas a tratados de libre comercio, durante el
-período;
-b) Detalle de las exportaciones realizadas, clasificándoles por país de
-destino, clase de artículo, precio unitario y total de cada línea de
-mercancía, certificado por un contador público autorizado;
-c) Un estado de resultados que muestre la utilidad neta obtenida de la
-actividad de exportación de productos no tradicionales a terceros
-mercados;
-ch) Detalle por proveedor, de los artículos adquiridos de empresas
-productoras que hayan suscrito contrato de producción, indicando
-clase de artículo, cantidad, precio y totales de los artículos
-utilizados como insumo o como bienes finales exportados durante el
-período, certificado por un contador público autorizado, el cual
-servirá de base para el cálculo del incentivo a conceder; y
-d) Solicitud de crédito, acompañada de los documentos y los
-estados de costos correspondientes, por los impuestos de importación
-pagados sobre materias primas, insumos y envases no producidos en el
-país, incorporados o utilizados en la producción de artículos no
-tradicionales exportados a terceros mercados.
+CAPITULO XXIII
+REGULACIONES PARA OTORGAR INCENTIVOS A LAS EXPORTACIONES
+ARTICULO 66.- Normas para disfrutar los beneficios. Para disfrutar de los incentivos que establece el inciso a) del artículo 60 de la ley, los contribuyentes deberán, además de observar las obligaciones establecidas en el artículo anterior, presentar ante la Dirección, los siguientes documentos:
+a) Certificación emitida por el Banco Central de Costa Rica, del monto de las exportaciones de productos no tradicionales hechas a terceros mercados, no amparadas a tratados de libre comercio,durante el período.
+b) Detalle de la exportaciones realizadas, clasificándolas por país de destino, clase de artículo, precio unitario y total de cada línea de mercancía, certificado por un contador público autorizado.
+c) Un estado de resultados que muestre la utilidad neta obtenida de la actividad de exportación de productos no tradicionales a terceros mercados.
+ch) Detalle por proveedor, de los artículos adquiridos de empresas productoras que hayan suscrito contrato de producción indicando clase de artículo, cantidad, precio y totales de los artículos utilizados como insumo o como bienes finales exportados durante el período, certificado por un contador público autorizado, el cual servir de base para el cálculo de incentivos a conceder.
+Para disfrutar por proveedor, de los artículos en el inciso c) del artículo 60 de la ley, los exportadores de productos no tradicionales que exporten a terceros mercados podrán solicitar a la Dirección General de Hacienda el otorgamiento de exención de los impuestos y sobretasas que gravan la importación de materias primas, insumos y envases no producidos en el país que formen parte componente de tales productos, o la devolución de los mismos por razones de pago indebido.
+Mediante decreto ejecutivo, se establecer n las formalidades y mecanismos de trámite y control de los beneficios establecidos en el inciso c) del artículo 60 de la ley, lo referente al Consejo Nacional de Inversiones, al contrato de exportación; y al régimen de admisión temporal.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 18590 del 3 de noviembre de 1988).
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 66 ocupó el lugar que antes correspondía al artículo 65).

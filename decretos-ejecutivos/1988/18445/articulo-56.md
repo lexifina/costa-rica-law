@@ -1,9 +1,4 @@
-Artículo 56.-Ajustes en cuentas de memorándum. El sistema contable
-del declarante debe ajustare a los principios de contabilidad
-generalmente aceptados. La diferencia entre los ingresos totales y los
-costos y gastos totales se denomina "utilidad neta del período". Para
-obtener la "renta imponible" del periodo, se debe hacer una conciliación,
-restando la utilidad neta del período el total de los ingresos no
-grabables y adicionando aquellos costos y gastos no deducibles. Tales
-ajustes se registrarán en cuentas de memorándum, las cuales deben
-contener el suficiente detalle para efectos de fiscalización.
+ARTICULO 56.- Sistemas contables computadorizados. Los contribuyentes que posean sistemas de contabilidad computarizados también deberán cumplir con la obligación de llevar los libros citados en el artículo 53 anterior, con anotaciones de resumen que tengan respaldo en los datos que contenga el sistema computarizado, así como en los documentos originales.
+Asimismo deberán conservar copias de los soportes magnéticos que contengan información tributaria, por igual periodo que los comprobantes que respaldan los asientos contables.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 56 ocupó el lugar que antes correspondía al artículo 55).
+(Así reformado por el Artículo 5° del Decreto Ejecutivo N° 26358- H del 18 de agosto de 1997)

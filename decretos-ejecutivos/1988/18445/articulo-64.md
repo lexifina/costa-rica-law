@@ -1,27 +1,13 @@
-Artículo 64.-Liquidación y pago. Las retenciones que se practiquen
-conforme al artículo 54 de la ley, constituyen pago único y definitivo a
-cargo de los beneficiarios por las rentas correspondientes y los
-obligados a efectuarlas tienen carácter de agentes de retención, y en
-ellos se subrogará la obligación conforme al artículo 52 de la ley. Los
-depósitos se deben efectuar en el Banco Central de Costa Rica o en las
-tesorerías auxiliares autorizadas, dentro de los primeros diez días
-hábiles del mes siguiente de practicadas las retenciones. Para efectos de
-lo dispuesto en el artículo 56 de la ley, el beneficiario del exterior o
-su agente de retención, deberá probar a la Dirección que en su país no se
-le concede crédito o deducción alguna por el impuesto pagado en Costa
-Rica, mediante certificación de la administración de impuestos en que
-declara, debidamente autenticada por autoridad competente a juicio de la
-Dirección. Dicho documento deberá indicar:
-a) El monto de las rentas de fuente costarricense declaradas por el
-beneficiario; y
-b) Las razones por las que no se le concede el crédito o deducción por
-el impuesto pagado en Costa Rica, o bien, el motivo por el cual
-éstos se disminuyen.
-Mientras tal comprobación no se lleve a cabo y no se cuente con la
-autorización de la Dirección, se mantiene la obligación a cargo del
-agente retenedor. Si la autorización se le concede con posterioridad a
-la fecha de retención, puede solicitar el crédito, conforme con lo
-dispuesto en el Código de Normas y Procedimientos Tributarios.
-No procede eximir de la obligación de retener y pagar el impuesto
-cuando en el país de domicilio del beneficiario, dichos ingresos no estén
-gravados con un impuesto sobre la renta.
+ARTICULO 64.- Retenciones. Las retenciones del quince por ciento (15%) o del cinco por ciento (5%), sobre las utilidades, dividendos o participaciones sociales considerados como retribución a capitales extranjeros que operen en el país, se deben practicar en el momento que se efectúe, ya sea el pago, el crédito o se pongan a disposición de los beneficiarios, personas físicas o jurídicas, el acto que se realice primero.
+El impuesto del quince por ciento (15%) sobre los créditos o pagos por intereses, comisiones o financiamiento, no se aplicará cuando:
+a) El préstamo haya sido concedido por un banco del exterior o por entidades financieras de éstos, reconocidas por el Banco Central de Costa Rica como instituciones que normalmente se dedican a
+efectuar operaciones financieras internacionales, incluidos los pagos efectuados por tales conceptos a proveedores del exterior por la importación de mercancías;
+b) El préstamo haya sido concedido a empresas con actividades industriales o agropecuarias, por instituciones que normalmente se dediquen a este tipo de operaciones, reconocidas por el Banco Central de Costa Rica; y
+c) Exista arrendamiento de bienes de capital, siempre que sean utilizados en actividades industriales o agropecuarias. Se entiende por bienes de capital, los muebles necesarios y de uso directo en la explotación de negocios industriales o agropecuarios, a juicio de la Dirección.
+Para efectos de determinar los bancos o instituciones financieras a los cuales no se aplicará el impuesto de retención del quince por ciento (15%), la Dirección General de Tributación llevará un registro de las mismas, el cual será accesible al público.
+Los bancos e instituciones interesadas deberán presentar la solicitud de inclusión de dicho registro, por escrito y acompañada por los documentos probatorios de su reconocimiento como de primer orden por parte del Banco Central de Costa Rica o de su cumplimiento con los criterios técnicos establecidos por dicho Banco para esos efecto, autenticados y legalizados en el lugar de origen, de acuerdo con la legislación consular.
+Aquellos bancos o instituciones extranjeras, que deban tener más de cinco años de haber iniciado actividades y estar habilitadas legalmente para realizar las operaciones que pretenden realizar las operaciones que pretenden realizar en Costa Rica, deberán demostrar el cumplimiento de este requisito mediante certificación extendida por el órgano supervisor de su domicilio social, en la que haga constar de su existencia y del cumplimiento de las regulaciones vigentes en ese país. Asimismo deberán entregar estados financieros auditados al cierre del ejercicio económico inmediato anterior a la fecha en que se presenta la solicitud, emitidos por una firma de auditores externos de reconocido prestigio internacional, para comprobar su cumplimiento con el capital mínimo. Todo lo anterior de conformidad con los requerimientos del Banco Central de Costa Rica.
+Los bancos o instituciones extranjeras que se inscriban en el registro que se establece en el presente artículo, deberán notificar oportunamente a la Dirección General de Tributación, de cualquier cambio que altere su inscripción en el registro creado en este artículo.
+En caso de que se incumpla con los requisitos indicados anteriormente, la retención al impuesto sobre el quince por ciento (15%) deberá efectuarse de acuerdo con el párrafo primero de este artículo.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 64 ocupó el lugar que antes correspondía al artículo 63).
+(Así reformado por el artículo 1º del Decreto Nº 28235- H de 19 de noviembre de 1999).

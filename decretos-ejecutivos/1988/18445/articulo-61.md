@@ -1,8 +1,2 @@
-Artículo 61.-Contribuyentes. Son contribuyentes de este impuesto
-las personas físicas o jurídicas domiciliadas en el exterior que perciban
-rentas o beneficios de fuente costarricense.
-Son responsables solidarios de las obligaciones establecidas en la
-ley, las personas físicas o jurídicas, de hecho o de derecho, públicas o
-privadas, domiciliadas en Costa Rica, que efectúen el crédito, pago o
-pongan a disposición rentas de fuente costarricense a personas
-domiciliadas en el exterior.
+ARTICULO 61.- Hecho generador. Se entiende ocurrido el hecho generador cuando la renta de fuente costarricense se pague, acredite o se ponga a disposición de personas no domiciliadas en el país, el acto que se realice primero.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 61 ocupó el lugar que antes correspondía al artículo 60).

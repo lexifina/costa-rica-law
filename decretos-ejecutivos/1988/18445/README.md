@@ -14,3 +14,4 @@ Reglamento a Ley del Impuesto sobre la Renta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-09-23 | la propia norma |
+| 2 | 1988-09-23 | SINALEVI (sin norma nombrada) |
