@@ -1,0 +1,1 @@
+Artículo 2º—Para los efectos del artículo anterior, la Dirección General de Migración deberá consultar sus registros y atender todo informe que al efecto emita la Dirección de Inteligencia y Seguridad dentro de sus competencias determinadas por la Ley General de Policía número 7410.
