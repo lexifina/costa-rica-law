@@ -1,3 +1,4 @@
+(Derogado)
 Ley 4551
 La presente norma ha sido DEROGADA EN SU TOTALIDAD por la Ley N° 7317 de 30 de octubre de 1992,
 Ley de Conservación de la Vida Silvestre.
