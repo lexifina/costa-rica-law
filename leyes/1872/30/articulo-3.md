@@ -1,0 +1,1 @@
+Art 3° Dentro de seis meses, que empezarán a contarse desde la data del presente decreto, el Sr Gamet debe haber hecho algunas plantaciones de morera, e introducido el gusano de seda, y dos años después, debe tener establecidos los aparatos correspondientes para preparar e hilar la seda.
