@@ -1,0 +1,1 @@
+Articulo 4°— La Sección de Cobro Administrativo y Judicial contará con el personal que requieren las necesidades del servicio y atenderá la organización del cubro de las obligaciones enunciadas en el articulo anterior.

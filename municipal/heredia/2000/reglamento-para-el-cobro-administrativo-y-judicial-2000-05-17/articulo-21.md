@@ -1,0 +1,1 @@
+Articulo 21.—Al ser nombrado como abogado del rol de cobro judicial y una vez firme este nombramiento, el abogado ingresara a la lista alfabética v se le asignarán trabajos en el momento en que de acuerdo con su nombre le corresponda la asignación. Lo anterior independientemente de la ubicación del turno por la ronda.

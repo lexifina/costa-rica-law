@@ -1,0 +1,2 @@
+Articulo 13.—Los ahogados deberán tener experiencia en la tramitación de cobros judiciales y debidamente incorporados al colegio respectivo y devengaran honorarios que pagará el contribuyente moroso, de acuerdo con la tarifa y normas Indicadas en el articulo 29° de este Reglamento.
+Entre la Municipalidad y el profesional no existe ninguna relación de servicio y no genera responsabilidades de tipo laboral. La relación contractual que se establezca será regida por los términos dispuestos en la Ley de Contratación Administrativa.

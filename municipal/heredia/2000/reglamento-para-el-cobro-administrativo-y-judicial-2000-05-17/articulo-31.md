@@ -1,0 +1,2 @@
+DEL CONTROL DE LA TRAMITACIÓN JUDICIAL
+Articulo 31.—Los abogados que se encuentren al servicio de la Municipalidad deberán mantener contacto permanente con la oficina encargada del cobro. La unidad de Cobros se encargará de entregar al abogado los documentos necesarios para la tramitación del cobro judicial. Una vez que el abogado ha redactado las demandas y confeccionado las certificaciones del caso, las entregará a la Unidad de Cobros, quien en el plazo de diez días hábiles las devolverá al abogado para su presentación al despacho judicial respectivo.

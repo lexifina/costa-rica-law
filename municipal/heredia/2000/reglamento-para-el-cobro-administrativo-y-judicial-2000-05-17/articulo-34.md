@@ -1,0 +1,2 @@
+Articulo 34.—La oficina de cobros podrá emitir dos clases de suspensiones de los procedimientos judiciales: suspensión definitiva y suspensión provisional.
+Se entiende por suspensión definitiva la orden de finalización total de un juicio y podrá realizarse únicamente si se cancela la totalidad de la deuda, junto con las multas que correspondan y los honorarios establecidos y gastos administrativos incurridos.

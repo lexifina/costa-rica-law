@@ -1,0 +1,1 @@
+Articulo 27. Los abogados nombrados no podrán aceptar casos de litigio en contra de la Institución , el no cumplimiento de esta disposición hará que su nombramiento quede revocado automáticamente.
