@@ -1,0 +1,1 @@
+6°—Inspección Visual de la revisión técnica. Cuando se indicare que la inspección de es “visual”, ésta consistirá, además de la observación de los órganos o elementos de que trate, de una comprobación de su funcionamiento.

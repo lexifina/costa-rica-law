@@ -1,0 +1,1 @@
+14.—Defectos leves (D.L.). Son aquellos defectos que una vez detectados en el vehículo automotor, deberá subsanar e 1 propietario del vehículo no estando obligado a volver a la estación de RTV para la verificación de las correcciones.

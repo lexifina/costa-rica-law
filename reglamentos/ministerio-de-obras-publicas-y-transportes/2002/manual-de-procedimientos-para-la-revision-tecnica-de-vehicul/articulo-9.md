@@ -1,0 +1,1 @@
+9°—Puntos a evaluar en cada vehículo. Los elementos a evaluar en un vehículo están en función de su naturaleza constructiva y de la reglamentación vigente relacionada con el mismo, por tanto, la revisión técnica no evalúa todos los puntos a un determinado vehículo sino que únicamente los puntos que le son aplicables.

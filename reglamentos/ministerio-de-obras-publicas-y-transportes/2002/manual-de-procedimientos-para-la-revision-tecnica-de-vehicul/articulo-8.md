@@ -1,0 +1,1 @@
+8°—Casos en que procede la aplicación transitoria de la calificación de los defectos. La calificación de los defectos que se encuentran entre paréntesis se aplicarán transitoriamente a los vehículos ya inscritos en el Registro Nacional en el momento de la implementación de este manual.

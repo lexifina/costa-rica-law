@@ -1,0 +1,1 @@
+5°—Duración de cada revisión técnica. La revisión técnica de cada vehículo automotor deberá realizarse en el tiempo razonable conforme a las reglas de la lógica y a los principios unívocos de la ciencia y de la técnica que permitan la valoración adecuada del automotor sin que por ello se produzcan retardos o demoras que afecten la calidad, eficiencia y rapidez del servicio.

@@ -1,0 +1,1 @@
+15.—Defectos Graves (D.G.). Son aquellos defectos que detectados en el vehículo automotor, deberán subsanarse persistiendo la obligación del propietario de llevarlo nuevamente a la estación de RTV para la improbación de las correcciones.
