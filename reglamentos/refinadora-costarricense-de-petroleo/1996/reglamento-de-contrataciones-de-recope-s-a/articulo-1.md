@@ -5,9 +5,10 @@ CAPITULO PRIMERO
 Disposiciones generales
 Artículo 1°—Definiciones
 Para los efectos del Presente Reglamento se entenderá por:
-1.1 Actividad Ordinaria: Conforme a lo dispuesto por la Ley General de la Administración Pública No 6227 de 02 de mayo de 1978, artículo 3.2., la ley No 6588 de 30 de julio de 1981, artículo sexto, se define como actividad ordinaria de RECOPE
-1.1.1 La venta de sus productos.
-1.1.2 La compra, venta, fletamento e inspección de crudo y sus derivados.
+1.1 Actividad Ordinaria: Conforme a lo dispuesto por la Ley General de la Administración Pública No 6227 del 2 de mayo de 1978. artículo 3.2, la Ley No 6588 del 30 de julio de 1981, artículo sexto, se define como actividad ordinaria de RECOPE.
+1.1.1. La venta de productos.
+1.1.2. La compra, venta, fletamento e inspección de petróleo crudo y sus derivados.
+(Así reformado estos dos puntos por Acuerdo de Sesión Nº 3089 del 31 de julio de 1996)
 1.1.3 La compra de insumos requeridos en los procesos de importación, refinación y distribución de crudo y sus derivados.
 1.1.4 Las contrataciones de servicios para mantenimiento preventivo o correctivo de las instalaciones requeridas en los procesos de importación, refinación y distribución.
 1.2 Administración: Todo órgano o unidad administrativa de cualquier nivel de la estructura orgánica de Recope, con participación directa en alguna de las fases de los procedimientos de contratación regulados por este Reglamento.
