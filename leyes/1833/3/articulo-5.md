@@ -1,0 +1,2 @@
+Art 5.- Se señala el Sábado 9 corriente para la posesión y juramento de todas las Autoridades aquí designadas, debiéndose presentar en esta Sala de Sesiones a las diez de la mañana, acompañadas de todas las Corporaciones y Autoridades de la Capital.- Comuníquese al Gobierno para su cumplimiento, publicación y circulación.- Dado en San José a los dos días del mes de marzo de mil ochocientos treinta y tres.
+Por tanto: EJECUTESE.- San José, Marzo cuatro de mil ochocientos treinta y tres.
