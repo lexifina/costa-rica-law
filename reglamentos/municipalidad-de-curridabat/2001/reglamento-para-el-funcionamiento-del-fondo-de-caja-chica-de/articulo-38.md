@@ -1,0 +1,1 @@
+Articulo 38.- Corresponderá al Director Administrativo y Financiero de la Institución velar por el cumplimiento de este Reglamento, quien rendirá un informe trimestral de esta gestión al Alcalde Municipal.

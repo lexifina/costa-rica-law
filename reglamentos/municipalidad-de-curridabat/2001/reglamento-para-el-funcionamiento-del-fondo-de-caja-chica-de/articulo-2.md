@@ -1,0 +1,15 @@
+Artículo 2°—Definiciones: Cuando en este reglamento se empleen términos y definiciones, debe dárseles las acepciones que se señalan a continuación:
+a) Arqueo de caja chica: Verificación del cumplimiento de la normativa y reglamentación que rige la caja chica. Es la constatación de que la documentación que da soporte a los egresos concuerda con los montos autorizados por la caja chica.
+b) Bienes y servicios de uso común: Son los bienes y servicios de uso periódico y repetitivo, utilizados en las operaciones regulares y normales de la Municipalidad. Las dependencias deben asegurarse de tener siempre en existencia este tipo de articules o proveer con suficiente anticipación sus necesidades.
+c) Caso fortuito: Llámese así al suceso que sin poder preverse o que, previsto, no puede evitarse, puede ser producido por la naturaleza o por hechos del hombre.
+d) Compra menor: Es la adquisición de bienes y servicios de menor cuantía, que no superen los limites preestablecidos para los valores de caja chica y cuya necesidad sea urgente y requiere atención inmediata.
+e) Dependencia usuaria del servicio: Se denomina como tal la dirección, departamento, sección o unidad.
+f) Encargado de caja chica: El Tesorero Municipal, quien según el articulo 109 del Código Municipal vigente es quien debe tener a cargo la caja chica.
+g) Fuerza mayor: Acontecimiento (fuerza de la naturaleza, hecho de un tercero que no ha podido ser previsto ni impedido y que libera a! deudor de cumplir su obligación frente al acreedor, o exonera al autor de un daño. frente al tercero victima de este por imposibilidad de evitarlo.
+h) Fondo de caja chica: fondo que contiene recursos para la adquisición de bienes y servicios que son de uso común y que no hay en existencia en bodega municipal. Las adquisiciones son de uso exclusivo de las dependencias administrativas y operativas que las gestiona, utilizando también criterios de compra emergente y compra menor.
+i) Liquidación: Rendición de cuentas que efectúa el responsable del vale de caja chica mediante presentación de los comprobantes originales que sustentan las adquisiciones o servicios recibidos.
+j) Municipalidad: La Municipalidad de Curridahat.
+k) Tesorero Municipal: El funcionario con nombramiento, en la persona de su titular o bien. en la persona de quien lo sustituya en ese mismo cargo por motivo de vacaciones, incapacidad, permiso con o sin goce de salario o cualesquiera otro motivo.
+I) Reintegro de fondos: Solicitud de reintegro de dinero que efectúa la Tesorería Municipal al fondo de caja chica para reembolsar los gastos efectuados.
+m) Viáticos: Son los gastos de viaje (alimentación, transporte y hospedaje) en el interior del país y se pagarán por medio de este fondo siempre y cuando no supere el monto máximo establecido para el vale. También puede conceptuarse como tales, los gastos de viaje fuera del país, referente al pago de timbres de salida y los gastos menores como la compra de presentes que deban llevar los funcionarios en tales viajes.
+n) Vale: Adelanto de dinero dado para adquirir bienes y/o servicios, debidamente autorizados.

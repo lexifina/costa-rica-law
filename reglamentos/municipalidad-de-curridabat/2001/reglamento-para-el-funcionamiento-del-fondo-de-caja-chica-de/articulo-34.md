@@ -1,0 +1,1 @@
+Articulo 34. —El fondo de caja chica no podrá ser utilizado para el cambio de cheques personales ni usarse para fines distintos para el que fue creado ni disponerse para actuaciones distintas a las autorizadas por la ley o de este Reglamento.
