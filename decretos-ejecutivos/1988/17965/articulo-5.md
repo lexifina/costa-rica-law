@@ -1,0 +1,1 @@
+Artículo 5°-Para el cumplimiento de sus objetivos la Comisión contará con asistencia técnica y apoyo económico del Instituto de Nutrición de Centroamérica y Panamá (INCAP), de la Organización Panamericana de la Salud, de UNICEF y de las dependencias que conforman esta Comisión de acuerdo con las facilidades económicas de cada una.

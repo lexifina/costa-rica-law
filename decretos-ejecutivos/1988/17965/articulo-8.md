@@ -1,0 +1,1 @@
+Artículo 8°-La Comisión se reunirá ordinariamente una vez cada quince días y extraordinariamente cuando sea convocada por el Coordinador con tres días de anticipación. La inasistencia del miembro titular será asumida por el miembro suplente.

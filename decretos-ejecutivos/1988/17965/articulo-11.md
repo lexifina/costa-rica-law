@@ -1,0 +1,1 @@
+Artículo 11°-La Comisión mantendrá relaciones con las Comisiones de Lactancia Materna de los países del Área Centroamericana, del Caribe y otros, como con organismos y entidades internacionales que desarrollan acciones en el campo de la atención materno- infantil.

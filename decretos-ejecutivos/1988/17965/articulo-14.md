@@ -1,0 +1,1 @@
+Artículo 14°-Corresponde al Tesorero llevar las cuentas de los fondos donados a la Comisión. Para este efecto deberán registrar sus firmas el Coordinador y el Tesorero en el Banco donde se acrediten los fondos de la Comisión.

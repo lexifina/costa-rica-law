@@ -1,0 +1,1 @@
+Artículo 13°-Corresponde al Coordinador presidir las reuniones de la sesión y representarle en todos los actos oficiales en que deba estar presente la Comisión, salvo causa justificada, en cuyo caso lo representará un suplente.

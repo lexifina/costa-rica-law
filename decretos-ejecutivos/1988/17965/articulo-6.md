@@ -1,0 +1,1 @@
+Artículo 6°-La Comisión fungirá como ente coordinador de las instituciones públicas y privadas que ejecutan actividades en pro de la lactancia natural, como de grupos organizados que desarrollen actividades relacionadas con la lactancia materna.
