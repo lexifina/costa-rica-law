@@ -14,3 +14,4 @@ BCR: Reforma Tarifas y Condiciones para Servicio Local y Exterior
 | --- | --- | --- |
 | 1 | 1993-05-05 | la propia norma |
 | 2 | 1994-09-26 | Reglamento 0 (1994-09-26) |
+| 3 | 1994-09-26 | Ley 8 |
