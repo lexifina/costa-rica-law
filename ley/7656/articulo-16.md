@@ -1,10 +1,10 @@
 Capítulo IV
 DE LOS ACTIVOS AL CIERRE
 ARTICULO 16.- Destino de los ingresos
-Los ingresos que CODESA reciba como producto de la liquidación de sus
-activos, serán destinados, en primer término, a pagar las deudas líquidas
-y exigibles a terceros, con la salvedad indicada en el párrafo primero del
-artículo 14 de esta ley.
+Los ingresos que CODESA reciba como producto de la liquidación de
+sus activos, serán destinados, en primer término, a pagar las deudas
+líquidas y exigibles a terceros, con la salvedad indicada en el párrafo
+primero del artículo 14 de esta ley.
 El remanente será traspasado en su totalidad y a título gratuito, a
 la Comisión Nacional de Emergencias, por medio del Ministerio de Obras
 Públicas y Transportes, para apoyar el proceso de rehabilitación
