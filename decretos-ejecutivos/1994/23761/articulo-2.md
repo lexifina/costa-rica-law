@@ -1,0 +1,3 @@
+Artículo 2º.-Modifíquese el artículo 4º de la Ley Nº 7375 del 17 de
+diciembre de 1993, Ley de Presupuesto Ordinario de la República para
+1994, en la forma que a continuación se indica: ....
