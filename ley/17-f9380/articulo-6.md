@@ -1,0 +1,2 @@
+Art. 6°-Los presidiarios se dedicarán a trabajos glantento más adecuado y conveniente.
+AL PODER EJECUTIVO. -Dado en el Salon de Sesiones. -Palacio Nacional. -San José, enero veintiuno de mil ochocientos setenta y ocho. BRUNO CARRANZA. Presidente. –J Solano, Secretario. José, veintiuno de junio de mil ochocientos setenta y ocho.-T. GUARDIA..El Secretario de Estado en el Despacho de Gobernacion-RAFAEL MACHADO.

@@ -1,0 +1,1 @@
+Art. 2°-Descontarán su pena en este establecimiento. 1°. –Los que merecerían la pena de muerte, según las leyes de la República, ántes de que se emitiese la de garantías en 19 de octubre del año pasado. 2°. –Los reos que se fugaren del presidio de San Lucas. 3°. –Los criminales reincidentes por tercera vez.
