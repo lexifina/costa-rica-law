@@ -17,3 +17,4 @@ Reglamento de la Ley Orgánica del Colegio de Enfermeras de Costa Rica
 | 2 | 1971-12-27 | Decreto Ejecutivo 2115 (1971-12-27) |
 | 3 | 1975-04-17 | Decreto Ejecutivo 4738 (1975-04-17) |
 | 4 | 1977-03-10 | Decreto Ejecutivo 6863 (1977-03-10) |
+| 5 | 1978-10-04 | Decreto Ejecutivo 9180 (1978-10-04) |
