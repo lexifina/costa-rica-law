@@ -1,0 +1,1 @@
+Artículo 3°-La presente convocatoria será para el período comprendido entre las ocho horas del día diez de diciembre de mil novecientos noventa y nueve y las siete horas del día diez de enero del año dos mil.
