@@ -1,0 +1,1 @@
+Art 2° A los funcionarios de la Dirección de Inteligencia y Seguridad Nacional que cumplen funciones mixtas y que fueron excluidos del Régimen del Estatuto Policial mediante acuerdo 160-MP de fecha 5 de mayo de 1998 se les reconocerán los derechos que le correspondan establecidos en la ley respectiva.
