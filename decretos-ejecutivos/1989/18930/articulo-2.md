@@ -1,0 +1,1 @@
+Artículo 2°-Deróguense los decretos ejecutivos N° 12011 A del 4 de noviembre de 1980, N° 11142 OP A del 19 de diciembre de 1979; N° 12222 A del 8 de enero de 1981; N° 15199 MAG del 17 de enero de 1984, N° 15380 MAG del 30 de marzo de 1984 y N° 18760 MAG del 25 de noviembre de 1988: Todos contienen reformas al artículo 2° del decreto N° 9010 A.
