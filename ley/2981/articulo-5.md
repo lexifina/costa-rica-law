@@ -1,0 +1,2 @@
+Artículo 5°-Como gran centro de readaptación de menores de uno y otro sexo, el Consejo de Defensa Social incluirá necesariamente en sus planes a la Ciudad de los Niños de Cartago, cuando esta Institución pueda extender su atención a pequeños delincuentes no mayores de 12 años.
+Esta disposición no implica la pérdida de autonomía de la Ciudad de los Niños, ni alteración del convenio fijado entre esta Institución a través de la Iglesia y el Estado.

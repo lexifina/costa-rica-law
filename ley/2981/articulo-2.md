@@ -1,0 +1,2 @@
+Artículo 2°-EI impuesto que por esta ley se crea será pagado, por los patentados de licores que la expendan, no permitiéndose en forma alguna su traslación al público consumidor, de manera que se entienda que el nuevo impuesto pesará exclusivamente sobre las utilidades de los patentados que tienen autorización para vender cerveza.
+Para la aplicación estricta de esta prohibición el Resguardo Fiscal tomará las medidas del caso, evitando el alza del precio actual de la cerveza al consumidor.
