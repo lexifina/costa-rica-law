@@ -1,8 +1,10 @@
 (Derogado)
-Ley Nº 5424
+Ley Nº 5425
+La presente norma ha sido DEROGADA EN SU TOTALIDAD por la Ley N° 6986 de 30 de mayo de 1985,
+Ley del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano.
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
-Artículo 1º.- Ratifícase en todas y en cada una sus partes, el Segundo Protocolo al Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial, firmado en la Ciudad de Guatemala, República de Guatemala, el 25 de octubre de 1973, que dice:
+Artículo 1º.-Ratifícase en todas y en cada una sus partes, el Segundo Protocolo al Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial, firmado en la Ciudad de Guatemala, República de Guatemala, el 25 de octubre de 1973, que dice:
 SEGUNDO PROTOCOLO AL CONVENIO CENTROAMERICANO
 DE INCENTIVOS FISCALES AL DESARROLLO INDUSTRIAL
 Los Gobiernos de las Repúblicas de Guatemala, El Salvador, Nicaragua y Costa Rica,
