@@ -1,0 +1,1 @@
+Artículo 44.—Sobre la suspensión de recursos: El Ministerio de Salud, concluida la investigación administrativa y corroborado el incumplimiento, comunicará el resultado al Consejo, quién suspenderá la asignación de los recursos.

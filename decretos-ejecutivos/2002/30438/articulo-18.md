@@ -1,0 +1,1 @@
+Artículo 18.—Sobre las modificaciones de los programas: Para cumplir con lo establecido en el artículo 21 de la Ley, el Consejo Superior de Educación dictará, anualmente, las políticas educativas relacionadas con el envejecimiento y velará por su cumplimiento.

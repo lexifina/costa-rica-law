@@ -1,0 +1,12 @@
+Artículo 9º—Función del Consejo: Para cumplir con lo establecido en el artículo II de la Ley, el Consejo negociará beneficios en las siguientes áreas:
+a) Transporte público colectivo remunerado de personas, marítimo y aéreo nacional, para lo cual contará con la asistencia técnica del Ministerio de Obras Públicas y Transportes.
+b) Transporte marítimo y aéreo internacional; así como, en el precio del hospedaje en hoteles u otros centros turísticos, para lo cual contará con la asistencia técnica del Instituto Costarricense de Turismo.
+c) Descuentos en el precio de las entradas a eventos de entretenimiento, artes y deportes, para lo cual contará con el apoyo del Ministerio de Cultura, Juventud y Deportes, el ICODER y la participación activa de sus órganos adscritos.
+d) Descuentos en servicios médicos para el diagnóstico, rehabilitación, medicamentos, prótesis y órtesis, para lo cual contará con el apoyo del Ministerio de Salud.
+e) Tasas de interés preferenciales para las diferentes necesidades en el campo de la vivienda, mediante el Sistema Nacional de Vivienda y el Sistema Bancario Nacional.
+f) Los criterios de clasificación y modelos tarifarios, como base para la negociación de los incisos antes mencionados, para lo cual contará con el apoyo del ente Regulador de los Servicios Públicos.
+g) La comunicación en el ámbito nacional de todas las negociaciones establecidas en los incisos a), b), c), d) y e), y la verificación del cumplimiento de las mismas, para lo cual contará con el apoyo de la Defensoría de los Habitantes.
+h) El Consejo solicitará informes periódicos a las instituciones mencionadas anteriormente sobre las acciones que al respecto estén llevando a cabo.
+i) Emitir políticas de integración de personas adultas mayores a la comunidad y fomentar la creación de organizaciones conformadas por ellas y ellos mismos.
+j) Incentivar, con el apoyo de las entidades no gubernamentales, los gobiernos municipales y otras entidades en el ámbito local, acciones de sensibilización, apoyo y asistencia técnica; así como, campañas educativas para que las personas adultas mayores permanezcan con sus familias.
+k) Promover, mediante un trabajo conjunto con las Instituciones de Gobierno y las organizaciones de base comunal, la creación de actividades locales y nacionales para que las personas adultas mayores se mantengan integradas y participen activamente de acuerdo con sus intereses.

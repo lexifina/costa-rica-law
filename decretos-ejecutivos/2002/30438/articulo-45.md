@@ -1,0 +1,1 @@
+Artículo 45.—Sobre la omisión de denuncias: Si dentro de la investigación se determinara la responsabilidad de algún empleado, personal a cargo o directores sobre el incumplimiento establecido en el artículo 64 de la Ley, el Ministerio de Salud comunicará a la autoridad máxima del establecimiento el resultado, con el fin de que valore la aplicación del citado artículo.

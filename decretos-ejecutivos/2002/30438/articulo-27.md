@@ -1,0 +1,6 @@
+Artículo 27.—Sobre los fines del Consejo: Además de los fines que se establecen en el artículo 34 de la Ley, el Consejo deberá:
+a) Crear las oportunidades y espacios necesarios para que las personas adultas mayores participen en la definición tanto de las políticas como en la ejecución, seguimiento y evaluación de los programas que las instituciones propongan para cumplir con los fines establecidos en la Ley.
+b) Ejecutar un amplio y permanente programa de divulgación y sensibilización dirigido hacia todas las personas y sectores de la vida nacional para que tomen conciencia y procedan a crear las condiciones que le permitan a las personas adultas mayores desenvolverse de manera independiente, debidamente integradas a su familia y a sus respectivas comunidades.
+c) Velar por el poder adquisitivo de las pensiones en los diferentes regímenes, en coordinación con el MTSS, la CCSS y la Superintendencia de Pensiones, entre otras instituciones.
+d) Velar por el respeto a los derechos de las personas adultas mayores referidos en la Ley, en este reglamento y en el ordenamiento jurídico general.
+e) Incluir en el Sistema de Información, Seguimiento y Evaluación, los indicadores que le permitan evaluar los avances o factores limitantes en la realización de los programas dirigidos a las personas adultas mayores.

@@ -1,0 +1,11 @@
+Artículo 36.—Sobre el Sistema Nacional Técnico para la Atención Integral de la Persona Adulta Mayor: El Consejo contará con un Sistema Nacional Técnico para la Atención Integral de la Persona Adulta Mayor, conformado por las personas que tengan a cargo las acciones programáticas relativas a las personas adultas mayores en las diferentes instituciones. Los funcionarios que integran el Sistema Nacional Técnico serán nombrados por el Consejo. Las funciones del Sistema Nacional Técnico serán:
+a) Velar porque en las políticas y en los planes anuales operativos, se incluyan los programas, proyectos y actividades con los respectivos recursos, en beneficio de las personas mayores.
+b) Informar regularmente a la Dirección Ejecutiva del Consejo sobre avances o limitaciones, en cuanto al logro de los derechos de las personas mayores.
+c) Colaborar con el Consejo en la selección de indicadores mediante los cuales se hará un seguimiento y evaluación de los programas y proyectos, tanto en cuanto a impacto en términos de cómo estos están contribuyendo a mejorar la calidad de vida de las personas mayores, como cuanto a la cobertura, alcances y costos de los programas.
+d) Elaborar y presentar a la Dirección Ejecutiva del Consejo, iniciativas, recomendaciones o cualquier otro tipo de sugerencias que contribuyan en la toma de decisiones de la Junta Rectora.
+e) Promover un cambio de actitud hacia lo que significa el proceso de envejecimiento, las facilidades que se deben ofrecer a las personas mayores y la preparación de los mismos funcionarios hacia esa etapa de la vida.
+f) Servir de facilitadora o facilitador y coordinar internamente sobre lo que significa el enfoque de la atención integral para las personas mayores.
+g) Servir de enlace y promover el cambio de actitudes de una nueva cultura hacia la vejez y el envejecimiento.
+h) Elaborar en conjunto con la Dirección Ejecutiva un programa de trabajo, de reuniones periódicas y de actividades que requieren de la participación complementaria de más de una institución.
+i) Identificar los procedimientos e instrumentos mediante los cuales se establecerá la comunicación y el seguimiento de acuerdos.
+j) Otras que sean asignadas por la Junta Rectora.

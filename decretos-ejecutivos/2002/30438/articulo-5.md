@@ -1,0 +1,5 @@
+Artículo 5º—Mecanismos para garantizar el cumplimiento de los derechos laborales: Además de la normativa que existe en otras leyes y reglamentos se tomará en cuenta que:
+a) El MTSS, como ente rector en esta materia, mediante todas sus Direcciones y Oficinas, garantizará la equiparación de oportunidades y la no discriminación para el acceso al trabajo; así como, el mantenimiento y promoción de éste para todas las personas adultas mayores.
+b) El MTSS incluirá en su Plan Anual Operativo la divulgación y difusión de los derechos que la Ley otorga en el campo laboral a las personas adultas mayores.
+c) El MTSS, por medio de la Dirección de Asuntos Laborales, brindará y prestará sus servicios de manera accesible, adecuada, efectiva y oportuna para atender consultas y reclamos de personas trabajadoras adultas mayores.
+d) El MTSS, en coordinación con el Consejo, mantendrá reuniones periódicas para la promoción, sensibilización y concienciación del sector empresarial nacional, de manera que apliquen los criterios y derechos consagrados por la Ley.

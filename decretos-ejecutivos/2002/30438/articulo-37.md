@@ -1,0 +1,8 @@
+CAPÍTULO III
+Financiamiento
+Artículo 37.—Sobre el financiamiento de los programas y proyectos: Para la ejecución de los programas y proyectos se establece que:
+a) Las acciones que se deriven del Consejo deberán contar con la disponibilidad presupuestaria y de liquidez de las instituciones ejecutoras, independiente del origen de los fondos.
+b) Cada una de las instituciones ejecutoras deberán incluir en sus presupuestos las partidas requeridas para cumplir las disposiciones de la Ley, el presente Reglamento y las acciones emanadas del Consejo.
+c) Las instituciones ejecutoras firmarán convenios con el Consejo, por medio de los cuales se fijarán las normas y procedimientos que se requieran para llevar a cabo las directrices y programas acordados.
+d) Todas las instituciones del sector público central y descentralizado estarán autorizadas a trasladar recursos humanos, técnicos y financieros al Consejo, de conformidad con el ordenamiento jurídico, que permitan una adecuada y eficiente ejecución de sus fines, en la forma en que dispongan sus órganos directivos y de conformidad con la naturaleza de cada institución. Para los efectos anteriores, las indicadas instituciones, de cualquier naturaleza jurídica que sean, quedan autorizadas para aprobar programas de participación y realizar aportes económicos y de cualquier tipo que fortalezcan las acciones del Consejo.
+e) El Consejo definirá mediante reglamentos específicos el uso de los fondos en función de su procedencia, de manera que garantice a los donantes nacionales o internacionales que los recursos aportados cumplan con los requisitos y condiciones bajo los cuales han sido donados.
