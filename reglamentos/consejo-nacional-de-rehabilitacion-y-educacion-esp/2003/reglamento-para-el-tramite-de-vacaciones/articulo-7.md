@@ -1,0 +1,1 @@
+Artículo 7º—Previa consulta a Recursos Humanos, las Jefaturas Inmediatas podrán autorizar excepcionalmente y por solo un periodo la acumulación de vacaciones. Las acumulaciones constarán en el expediente personal del colaborador(a) y Recursos Humanos deberá remitirle a las Jefaturas Inmediatas, informes semestrales sobre los saldos de vacaciones de los colaboradores.

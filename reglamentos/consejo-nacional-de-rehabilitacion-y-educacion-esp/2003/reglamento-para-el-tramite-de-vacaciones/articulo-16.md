@@ -1,0 +1,2 @@
+Artículo 16.—Ante falta de disposiciones de este Reglamento aplicables a un caso determinado, el mismo se integrará con la Ley General de Administración Pública, el Código de Trabajo y demás leyes, reglamentos y disposiciones conexos.
+Aprobado por la Junta Directiva del Consejo Nacional de Rehabilitación y Educación Especial en la sesión ordinaria Nº 734 celebrada el jueves 13 de marzo del 2003, acuerdo Nº 11.

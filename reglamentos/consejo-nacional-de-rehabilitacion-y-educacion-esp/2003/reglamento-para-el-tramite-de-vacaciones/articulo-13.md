@@ -1,0 +1,1 @@
+Artículo 13.—Quien ostente la responsabilidad de jefatura o coordinación señalará el periodo en que los(as) colaboradores(as) disfrutarán de sus vacaciones, tratando que no se altere la buena marcha de las funciones encomendadas, ni que se sufra menoscabo la efectividad del descanso.

@@ -1,0 +1,1 @@
+Artículo 10.—El Consejo podrá otorgar vacaciones colectivas a sus colaboradores(as) con ocasión de la Semana Santa, y entre Navidad y Año Nuevo o cuando el gobierno decrete vacaciones obligatorias, las cuales serán deducidas de los saldos correspondientes de cada uno de los(as) colaboradores(as).

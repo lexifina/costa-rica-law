@@ -1,0 +1,6 @@
+Artículo 11.—Para obtener derecho a la vacación anual, es necesario que el o la colaborador(a) haya prestado sus servicios durante cincuenta semanas continuas. Sin embargo, si por cualquier causa no completara ese plazo por terminación de su relación de servicio, tendrá derecho al pago de vacaciones proporcionales, conforme las siguientes disposiciones:
+a) Un día por cada mes de trabajo, en los casos que haya trabajado menos de cincuenta semanas de servicio.
+b) Uno punto veinticinco (1.25) días por cada mes trabajado, en los casos que le correspondiera disfrutar de quince días hábiles de vacaciones.
+c) Uno punto ocho (1.8) días por cada mes trabajado, en los casos que le correspondiera disfrutar de veintidós días hábiles de vacaciones.
+d) Dos punto cinco (2.5) días por cada mes trabajado, en los casos en que le correspondiera disfrutar de treinta días hábiles de vacaciones.
+Para la determinación de los días hábiles, se excluirán los días de descanso semanal, y los feriados establecidos por el artículo 147 del Código de Trabajo y los días de asueto que conceda el Poder Ejecutivo, siempre y cuando el asueto se decrete en el lugar en que se encuentra la Sede Central o las sedes de cada Coordinación Regional del CNREE. En este caso el asueto se regirá según lo decretado por el Poder Ejecutivo.
