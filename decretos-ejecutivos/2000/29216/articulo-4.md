@@ -1,0 +1,2 @@
+Artículo 4°—En caso de que los productos y sub productos agrícolas, no cumplan con las disposiciones relativas a presentación y calidad establecidas en la reglamentación técnica y normativa internacional a vigente, los inspectores levantarán el acta respectiva y elaborarán el informe de inspección.
+Posteriormente los funcionarios del Consejo Nacional de Producción, remitirán los documentos a la Oficina Nacional de Normas y Unidades de Medida, del Ministerio de Economía, Industria y Comercio, la cual, de ser necesario, establecerá la denuncia correspondiente.

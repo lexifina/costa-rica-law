@@ -1,0 +1,1 @@
+Artículo 3°—Los funcionarios, profesionales y técnicos de la Dirección de Calidad Agrícola del Consejo Nacional de Producción, verificarán que los productos y subproductos agrícolas, cumplan con los reglamentos y normas internacionales de calidad respectivas y estén exentos de elementos patógenos que afecten al producto.
