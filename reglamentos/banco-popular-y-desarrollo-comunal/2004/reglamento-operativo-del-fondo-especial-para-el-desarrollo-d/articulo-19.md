@@ -1,0 +1,1 @@
+Artículo 19.—Mecanismos de Control. La Unidad Técnica deberá establecer los mecanismos necesarios para controlar la morosidad de las operaciones de crédito avaladas por el Fondo de Avales y Garantías, mediante un informe mensual que permita al Director Ejecutivo tomar las acciones que correspondan.

@@ -1,0 +1,1 @@
+Artículo 74.—Recursos Humanos. De conformidad con el primer párrafo del artículo 12 de la Ley Nº 8262 , el nombramiento del personal requerido para la operación del FODEMIPYME, se efectuará de conformidad con los perfiles , los requisitos y las competencias definidas en el manual de puestos del Banco Popular y mediante los procedimientos que garanticen la idoneidad profesional .

@@ -1,0 +1,1 @@
+Artículo 23.—Del pago aval o garantía. La negativa de la Unidad Técnica a efectuar el pago del aval legitimará al Banco, para establecer los recursos de revocatoria y/o apelación, de conformidad con el procedimiento que para tales efectos dispone la Ley General de la Administración Pública.

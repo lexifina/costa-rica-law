@@ -1,0 +1,2 @@
+Artículo 48.—De las tasas de interés. El Director Ejecutivo del FODEMIPYME, podrá ajustar y revisar las tasas de interés, dentro del rango establecido en el artículo 47 de éste Reglamento, circunstancia que deberá indicarse en el documento de crédito.
+Toda modificación que se realice en el diferencial entre tasas deberá ser informada a la Junta Directiva Nacional dentro de los ocho días hábiles posteriores a la toma de decisión.

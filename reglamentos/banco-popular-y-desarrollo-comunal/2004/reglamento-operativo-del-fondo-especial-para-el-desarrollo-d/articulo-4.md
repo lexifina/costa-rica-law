@@ -1,0 +1,1 @@
+Artículo 4º—Fuentes. El Fondo de Avales y Garantías tendrá como fuente de recursos el 0.25% del aporte patronal al Banco Popular, establecido en el artículo 5 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal Nº 4351 del 11 de julio de 1969, hasta alcanzar la suma de nueve mil millones de colones.

@@ -1,0 +1,1 @@
+Artículo 51.—Tope. La Dirección Ejecutiva del FODEMIPYME podrá establecer plazos diferenciados por planes de inversión, líneas de crédito y productos específicos, en cuyo caso no podrán exceder los topes máximos establecidos en la Tabla número 2 de este Reglamento.

@@ -1,0 +1,4 @@
+Artículo 27.—Del Comité Resolutivo. Los avales y garantías serán aprobados por un Comité Resolutivo integrado por un analista diferente al que recomendó el aval o garantía, el Coordinador Operativo de la Unidad Técnica y el Director Ejecutivo de FODEMIPYME.
+Todos los casos que se sometan al Comité Resolutivo deberán contar con la recomendación positiva del analista que recomendó el aval o garantía.
+En ausencia del Coordinador Operativo de la Unidad Técnica el Director Ejecutivo del FODEMIPYME nombrará un suplente para estos efectos, a un analista de la Unidad Técnica diferente al que recomendó el otorgamiento del aval o garantía.
+En caso de ausencia del Director Ejecutivo del FODEMIPYME, el Coordinador Operativo de la Unidad Técnica lo sustituirá y nombrará a otro analista como miembro del Comité Resolutivo diferente al que hizo el análisis.

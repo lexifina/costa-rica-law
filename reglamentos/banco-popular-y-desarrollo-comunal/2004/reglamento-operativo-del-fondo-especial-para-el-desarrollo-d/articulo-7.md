@@ -1,0 +1,1 @@
+Artículo 7º—Otros aportes. Los aportes de otros Bancos Públicos, o de donaciones de personas o entidades públicas o privadas, nacionales o internacionales de conformidad con los incisos c), y d), del articulo 9º de la ley 8262, los recursos se acreditarán directamente a la cuenta del Fondo de Avales y Garantías de FODEMIPYME.

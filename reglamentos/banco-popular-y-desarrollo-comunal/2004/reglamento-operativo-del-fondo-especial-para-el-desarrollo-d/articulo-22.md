@@ -1,0 +1,2 @@
+Artículo 22.—Liquidación de Avales y Garantías. Cuando sea requerido por parte del Banco, la Unidad Técnica procederá a pagar el monto avalado dentro de un plazo máximo de 15 días hábiles contados desde la fecha en que se demuestre el cumplimiento de las condiciones establecidas en el artículo anterior, plazo que deberá constar en el documento en el cual se haya constituido la garantía.
+La resolución de la Unidad Técnica rechazando el pago deberá ser motivada.

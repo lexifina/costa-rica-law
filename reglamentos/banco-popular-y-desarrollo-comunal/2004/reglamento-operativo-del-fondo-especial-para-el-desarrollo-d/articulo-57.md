@@ -1,0 +1,1 @@
+Artículo 57.—De las Readecuaciones. La Junta Directiva Nacional podrá autorizar readecuaciones de pago, en atención a la naturaleza y gravedad de la situación. Esas medidas serán de carácter temporal.

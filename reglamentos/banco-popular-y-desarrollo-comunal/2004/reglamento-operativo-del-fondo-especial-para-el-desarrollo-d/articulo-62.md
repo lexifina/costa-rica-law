@@ -1,0 +1,1 @@
+Artículo 62.—Selección de la Institución pública beneficiaria. Para efectos de seleccionar a una entidad pública como beneficiaria de transferencias, la Unidad Técnica invitará en lo posible a tres de ellas y valorará la razonabilidad del precio.

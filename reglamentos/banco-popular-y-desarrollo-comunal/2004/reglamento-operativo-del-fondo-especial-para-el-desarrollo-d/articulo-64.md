@@ -1,0 +1,2 @@
+Artículo 64.—Seguimiento de Riesgo. Con el fin de lograr una adecuada administración del riesgo en las transferencias que realice el FODEMIPYME se establecen las políticas de riesgo en el Anexo 1, en lo referente a Riesgo de Mercado y Riesgo Operacional.
+El cumplimiento de estas políticas, deberá verse reflejado en la definición y aplicación de un conjunto de procedimientos, que permitan implementar las acciones específicas tendientes a identificar, cuantificar, monitorear y administrar los riesgos a que esta expuesto el funcionamiento del Fondo.

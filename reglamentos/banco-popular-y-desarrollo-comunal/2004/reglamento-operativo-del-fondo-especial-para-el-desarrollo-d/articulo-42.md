@@ -1,0 +1,1 @@
+Artículo 42.—Del órgano consultor. En caso de que el funcionario de la Unidad Técnica tenga duda sobre la bondad de la garantía, en vista de aspectos tales como plazo de convalidación, servidumbre, patrimonio familiar u otros, solicitará criterio a la Consultoría Jurídica.

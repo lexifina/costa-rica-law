@@ -1,0 +1,1 @@
+Artículo 28.—Inhibición de los miembros del Comité Resolutivo. Si en un asunto sometido al Comité tuviere interés alguno de sus miembros, su cónyuge o parientes hasta el tercer grado de consanguinidad o afinidad, el integrante afectado deberá abstenerse de participar en el asunto.

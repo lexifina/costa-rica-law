@@ -1,0 +1,1 @@
+Artículo 60.—De las Fuentes. De los recursos del Fondo de Crédito de FODEMIPYME, la Junta Directiva definirá un porcentaje que será destinado a las transferencias, sin menoscabo de la sostenibilidad del Fondo de Crédito del FODEMIPYME.

@@ -1,0 +1,1 @@
+Artículo 87.—Revisión legal. El borrador del convenio junto con el expediente indicado en el punto anterior deberá remitirse a la Consultoría Jurídica del Banco Popular para su revisión y visto bueno, de previo a su formalización.

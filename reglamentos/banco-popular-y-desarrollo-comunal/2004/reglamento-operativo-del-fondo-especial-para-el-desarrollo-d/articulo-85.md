@@ -1,0 +1,1 @@
+Artículo 85.—De la Terminación. No podrán comprometerse en un convenio aspectos que de cualquier forma causen perjuicio a los recursos del FODEMIPYME o a su imagen. En caso de que ello suceda, es obligación de la Unidad Técnica, tomar las acciones correctivas que sean necesarias y si es del caso dar por terminado el convenio sin responsabilidad para el FODEMIPYME.

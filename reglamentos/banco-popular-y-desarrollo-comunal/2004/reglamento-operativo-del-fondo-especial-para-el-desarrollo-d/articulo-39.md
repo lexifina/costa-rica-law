@@ -1,0 +1,1 @@
+Artículo 39.—De las Garantías. Todo crédito deberá ser respaldado con garantía personal o real, a entera satisfacción de la Unidad Técnica, conforme con lo indicado en la Tabla N° 1 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 84.—Actividades de Control. Le corresponderá a la Unidad Técnica, el archivo, control y seguimiento de los convenios que se formalicen debiendo presentar a la Junta Directiva, cada seis meses, un informe detallado de gestión de cada uno de los convenios. En caso de que se pretenda prorrogar un convenio deberá incluirse en dicho informe una justificación en ese sentido.

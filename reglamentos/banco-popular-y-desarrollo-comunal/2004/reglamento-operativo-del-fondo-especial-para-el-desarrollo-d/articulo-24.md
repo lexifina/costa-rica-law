@@ -1,0 +1,2 @@
+Artículo 24.—Responsabilidad del Fondo. El monto máximo del aval o garantía a liquidar para cada operación de crédito se calculará como un porcentaje del principal del crédito, el cual disminuirá conforme el saldo del principal disminuya de acuerdo con los pagos que efectúe el cliente. El avalista no asume responsabilidad por intereses, ni costas, ni otros rubros que se generen en el proceso judicial.
+Lo indicado en este artículo deberá constar en el documento en el cual se constituya la garantía.

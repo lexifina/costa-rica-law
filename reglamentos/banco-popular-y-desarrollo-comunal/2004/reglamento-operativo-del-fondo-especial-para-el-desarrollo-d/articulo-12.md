@@ -1,0 +1,1 @@
+Artículo 12.—De las Comisiones. Las comisiones que pagarán al FODEMIPYME los usuarios de los avales y garantías, son independientes de aquellos que cobren los Bancos por concepto del otorgamiento de los créditos.

@@ -1,0 +1,1 @@
+Artículo 88.—Duración. Los convenios tendrán una duración de un año, prorrogables solo por acuerdo expreso entre las partes. Las prórrogas deberán estar debidamente justificadas por la Unidad Técnica, de lo cual deberá dejar constancia en el expediente respectivo.

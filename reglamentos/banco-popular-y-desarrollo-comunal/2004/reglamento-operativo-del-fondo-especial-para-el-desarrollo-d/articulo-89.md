@@ -1,0 +1,1 @@
+Artículo 89.—De las condiciones. Los convenios no pueden establecer condiciones que de alguna manera otorguen ventajas no autorizadas por el ordenamiento jurídico o hagan discriminaciones de cualquier naturaleza.

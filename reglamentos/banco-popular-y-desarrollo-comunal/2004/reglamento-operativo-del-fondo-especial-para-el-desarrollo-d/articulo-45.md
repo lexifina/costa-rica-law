@@ -1,0 +1,5 @@
+Artículo 45.—De la garantía fiduciaria. En el caso de créditos a personas físicas con garantía fiduciaria:
+a) El Director Ejecutivo del FODEMIPYME, respetando el principio de igualdad, podrá establecer en qué casos es aceptable que tanto el deudor como sus garantes sean de ingresos propios, para lo cual deberá considerarse el historial crediticio, bienes inscritos, capacidad de pago referencias comerciales, solvencia moral y económica, o bien otros elementos que se consideren determinantes en la recuperación del crédito.
+b) Los garantes asalariados deben reportar ingresos mayores al salario mínimo y tener una antigüedad mínima de seis meses en propiedad. Se aceptarán como fiadores empleados interinos del sector público con más de un año de laborar en forma ininterrumpida.
+c) No se aceptarán como garantes a aquellas personas cuyo salario sea inembargable o que esté embargado, excepto por pensión alimentaria.
+d) Si el solicitante es extranjero, deberá aportar dos fiadores, de los cuales uno debe ser necesariamente asalariado y costarricense.

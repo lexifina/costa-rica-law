@@ -1,0 +1,1 @@
+Artículo 26.—Comisión adicional. En caso que la Unidad Técnica apruebe el cambio de cualquier condición original del crédito avalado o garantizado, la Unidad Técnica podrá cobrar al Banco una comisión adicional, la cual deberá pagarse de previo a la formalización por parte de la Unidad Técnica.

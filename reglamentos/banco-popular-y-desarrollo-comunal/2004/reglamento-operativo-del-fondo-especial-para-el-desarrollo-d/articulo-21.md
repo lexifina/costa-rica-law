@@ -1,0 +1,1 @@
+Artículo 21.—Requisitos para liquidar avales o garantías. El Banco deberá demostrar la debida diligencia en las gestiones de cobro en sede judicial. Para el pago de la suma avalada, deberá presentarse la resolución judicial en firme de la liquidación del capital a favor del Banco, requisito que deberá constar en el documento en el cual se haya constituido la garantía.
