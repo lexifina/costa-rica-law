@@ -1,2 +1,2 @@
-Artículo 26.—No se expedirá ningún certificado de depósito ni bono de prenda sobre productos o mercancías que hayan sido objeto de embargo o gravamen previamente notificado al Almacén respectivo
+Artículo 26.—No se expedirá ningún certificado de depósito ni bono de prenda sobre productos o mercancías que hayan sido objeto de embargo o gravamen previamente notificado al Almacén respectivo.
 Una vez emitidos los títulos de crédito relacionados, los bienes o efectos a que se refieren, no podrán ser objeto de embargo, prenda o gravamen de cualquiera otra naturaleza que perjudique su libre trasmisión o movilización.
