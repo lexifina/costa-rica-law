@@ -14,3 +14,4 @@ Reglamento Asignación de Contingentes de Exportación de Queso a EEUU
 | --- | --- | --- |
 | 1 | 1999-10-29 | la propia norma |
 | 2 | 1999-10-29 | SINALEVI (sin norma nombrada) |
+| 3 | 2001-10-18 | SINALEVI (sin norma nombrada) |
