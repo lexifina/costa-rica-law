@@ -1,0 +1,1 @@
+Artículo 2°-La administración del Refugio Nacional de Vida Silvestre Categoría Mixta Punta Río Claro, le corresponde a la Dirección General de Vida Silvestre, quien la ejercerá a través del Área de Conservación OSA, del Sistema Nacional de Áreas de Conservación del Ministerio del Ambiente y Energía, quien determinará los procedimientos a seguir para ejercerla.
