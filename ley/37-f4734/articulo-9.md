@@ -1,0 +1,2 @@
+Artículo 9°.-El comprador recibirá una constancia provisional en que se consignarán los pormenores del contrato y la escritura definitiva le será otorgada una vez que haya satisfecho por lo menos el veinticinco por ciento (25%) del valor total; pero el saldo será garantizado con hipoteca de primer grado.
+Cuando el comprador hubiere pagado la mitad del precio total de la propiedad, tendrá derecho a venderla, siempre que obtenga la autorización previa de la Junta y cuando la venta sea a favor de las personas referidas en el artículo 6°.
