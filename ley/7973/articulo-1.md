@@ -1,0 +1,5 @@
+AUTORIZACIÓN A LA CAJA COSTARRICENSE DE SEGURO
+SOCIAL PARA DONAR UN TERRENO A LA FUNDACIÓN
+NACIONAL PARA LA SALUD
+ARTÍCULO ÚNICO.- Autorízase a la Caja Costarricense de Seguro Social cédula jurídica No. 4-000-042147, para que done a la Fundación Nacional para la Salud, cédula jurídica No. 3-006-233471, un inmueble de su propiedad, situado en el distrito 1°, Heredia, inscrito en el Registro Público en el partido de Heredia, matrícula folio real 031178-000. El terreno mide 111.598,32 m2, según el plano catastrado No. H-0379181-80; es terreno de café con lago, cuatro caminos, casas, piscinas, pilas y galerones. Los linderos son: Norte, calle y otros, Sur, Este y Oeste calle en medio y otros. La beneficiaria se encargará de la construcción, el equipamiento, la operación, el mantenimiento y la administración de un centro hospitalario para brindar servicios a la comunidad herediana y nacional, asimismo, se dedicará al desarrollo y la implementación de nuevos proyectos de investigación y capacitación en las diversas especialidades médicas.
+Rige a partir de su publicación.
