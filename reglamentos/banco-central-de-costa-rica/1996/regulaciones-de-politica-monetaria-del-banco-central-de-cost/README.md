@@ -36,3 +36,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | 21 | 1998-09-23 | Reglamento 4971 (1998-09-23) |
 | 22 | 1998-10-07 | Reglamento 4973 (1998-10-07) |
 | 23 | 1998-11-25 | Reglamento 4978 (1998-11-25) |
+| 24 | 1999-01-20 | Reglamento 4984 (1999-01-20) |
