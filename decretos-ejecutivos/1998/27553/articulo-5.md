@@ -1,0 +1,1 @@
+Artículo 5°—Las recomendaciones de la Comisión serán puestas en conocimiento del Ministerio del Ambiente y Energía, quien las remitirá a la Comisión de Seguimiento de los Acuerdos de la Concertación en materia de Servicios Ambientales, para recibir la recomendación final.

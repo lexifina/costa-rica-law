@@ -1,0 +1,1 @@
+Artículo 7°—Se declara de interés público y consecuentemente se solicita la colaboración de las entidades públicas y privadas, para que dentro de sus posibilidades y sin que se afecte su objetivo principal, apoyen el trabajo a ser desarrollado por la Comisión.
