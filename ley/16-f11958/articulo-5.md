@@ -1,0 +1,1 @@
+Art. 5. Las oficinas públicas, cuartel, cárceles y casa de reclusión, se edificarán en el respectivo lugar que demarca el plano, reponiéndose los solares ocupados para estos edificios, con los que quedan vacantes pertenecientes al público.
