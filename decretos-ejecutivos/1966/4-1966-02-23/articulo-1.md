@@ -17,4 +17,6 @@ Río Colorado hasta su origen en el río San Juan, 40 klómetros.
 Río Tortuguero hasta el puerto del Aserradero, 8 kilómetros.
 Río Sixaola hasta el puente internacional ferroviario en Guabito, 17 kilómetros.
 Río San Carlos, en una longitud de cincuenta y cuatro kilómetros aguas arriba a partir de su desembocadura en el río San Juan.
-(Así adicionado el punto anterior por el artículo 6 del decreto ejecutivo N° 22 del 19 de setiembre de 1967)
+(Así adicionado el río anterior por el artículo 6 del decreto ejecutivo N° 22 del 19 de setiembre de 1967)
+Río Sarapiquí, desde su desembocadura aguas arriba hasta el sitio denominado Puerto Viejo en una longitud de 46 kilómetros aproximadamente.
+(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 4365 del 28 de noviembre de 1974)

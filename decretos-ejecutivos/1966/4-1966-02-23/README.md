@@ -16,3 +16,4 @@ Declara Ríos Navegables en el Territorio Nacional
 | 1 | 1966-02-25 | la propia norma |
 | 2 | 1966-02-25 | SINALEVI (sin norma nombrada) |
 | 3 | 1967-09-19 | Decreto Ejecutivo 22 (1967-09-19) |
+| 4 | 1974-11-28 | Decreto Ejecutivo 4365 (1974-11-28) |
