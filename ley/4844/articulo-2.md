@@ -1,0 +1,7 @@
+Artículo 2º.- Al empresario a quien se comprobare que usó fraude o
+engaño para hacer aparecer como deportivo un espectáculo que no lo es,
+para aprovechar la exención de impuestos, le será aplicada una multa
+igual a diez veces el monto del impuesto que dejo de enterar. La causa
+respectiva será de conocimiento del Juez Penal de Hacienda,
+correspondiendo a la Dirección General de Deportes la acción
+correspondiente.
