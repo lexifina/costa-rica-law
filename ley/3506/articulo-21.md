@@ -1,0 +1,2 @@
+Artículo 21.- El Instituto Nacional de Aprendizaje deberá someter sus presupuestos a la aprobación de la Contraloría General de la República, la cual podrá reformarlos o improbarlos cuando no se ajusten a los preceptos legales vigentes, o no guarden relación con las posibilidades económicas y financieras del Instituto.
+La Contraloría General de la República, en todo caso, será la encargada de la fiscalización y liquidación de los presupuestos del Instituto, el cual estará en todo sujeto a las leyes de administración financiera del país.

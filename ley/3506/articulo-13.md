@@ -1,0 +1,1 @@
+Artículo 13.- La Dirección Ejecutiva es el órgano de administración y en consecuencia, corresponde al Director Ejecutivo planear, organizar, coordinar, ejecutar y controlar todo lo que se relacione con el Instituto.

@@ -1,0 +1,1 @@
+Artículo 22.- La labor del Instituto Nacional de Aprendizaje no podrá obstaculizar el campo de acción de los Colegios Vocacionales del Ministerio de Educación Pública, ni el de la educación técnica. Sin embargo, este Ministerio podrá permitir la realización de cursos o programas del Instituto en sus diversos centros docentes fuera de los horarios de los mismos.
