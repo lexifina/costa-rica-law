@@ -1,2 +1,3 @@
-Artículo 21.- Para sustituir a los miembros de la Junta Directiva durante sus ausencias temporales o definitivas, en la oportunidad en que se elijan los directores propietarios se nombrarán además suplentes para cada uno de los directores a que se refiere este artículo.
-El procedimiento para hacer estas designaciones lo fijará el Reglamento de la presente ley.
+Artículo 21.—Para sustituir a los miembros o las miembras de la Junta Directiva durante sus ausencias temporales o definitivas, cuando se elijan los directores propietarios o las directoras propietarias se nombrará, además, a los respectivos suplentes para cada uno de los directores o las directoras a que se refiere este artículo.
+El nombramiento de las personas que sustituyan en forma temporal o definitiva a los directores propietarios o las directoras propietarias de la Junta Directiva Nacional, deberá hacerse en forma tal que garantice la integración de al menos un cincuenta por ciento (50%) de mujeres.
+(Así reformado por el artículo único de la Ley de Democratización de las Instancias del Decisión del Banco Popular y de Desarrollo Comunal , N° 8322 del 21 de octubre de 2002)
