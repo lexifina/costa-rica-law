@@ -1,0 +1,1 @@
+Artículo 2º—Las autoridades de las instituciones públicas nacionales involucradas y las instancias del sector financiero, promoverán entre sus funcionarios, la participación y divulgación de las investigaciones, trabajos y resultados que se produzcan en este Foro, brindando todas las facilidades que estén a su alcance para la celebración de dicho evento.
