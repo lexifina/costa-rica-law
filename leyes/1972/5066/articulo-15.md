@@ -1,4 +1,2 @@
-Artículo 15.- Toda empresa concesionario de ferrocarriles deberá
-constituirse conforme a las leyes de la República, inscribirse en el
-Registro Público de Costa Rica y tener su domicilio en el territorio
-nacional. Todas las acciones de la compañía deberán ser nominativas.
+Artículo 15.- Toda empresa concesionario de ferrocarriles deberá constituirse conforme a las leyes de la República, inscribirse en el Registro Público de Costa Rica y tener su domicilio en el territorio nacional. Todas las acciones de la compañía deberán ser nominativas.
+(Tácitamente derogado por el artículo 43, en relación con el 6º, de la Ley Nº 7404 de 3 de mayo de 1994 -Ley General de Concesión de Obra Pública-).

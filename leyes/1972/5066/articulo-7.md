@@ -1,5 +1,1 @@
-Artículo 7º.- Para los efectos de la presente ley se entiende por
-ferrocarril la vía, el material fijo y rodante, los ramales o extensiones,
-los apartaderos, las terminales, las estaciones intermedias y todas
-aquellas edificaciones, instalaciones, muelles y otras anexidades que de
-manera directa o indirecta formen parte de una misma explotación.
+Artículo 7º.- Para los efectos de la presente ley se entiende por ferrocarril la vía, el material fijo y rodante, los ramales o extensiones, los apartaderos, las terminales, las estaciones intermedias y todas aquellas edificaciones, instalaciones, muelles y otras anexidades que de manera directa o indirecta formen parte de una misma explotación.

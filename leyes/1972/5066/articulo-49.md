@@ -1,5 +1,1 @@
-Artículo 49.- En el lugar donde una línea férrea cruce a nivel de un
-camino público u otra obra de transporte, deberá el concesionario colocar
-y mantener a su costa el sistema de señales apropiado, de acuerdo con los
-requisitos técnicos que en cada oportunidad fije el Ministerio de Obras
-Públicas y Transportes.
+Artículo 49.- En el lugar donde una línea férrea cruce a nivel de un camino público u otra obra de transporte, deberá el concesionario colocar y mantener a su costa el sistema de señales apropiado, de acuerdo con los requisitos técnicos que en cada oportunidad fije el Ministerio de Obras Públicas y Transportes.

@@ -1,4 +1,1 @@
-Artículo 6º.- No se debe construir ni ampliar tipo de ferrocarril
-alguno sin cumplir previamente con lo dispuesto en esta ley; los que se
-construyan al margen de estas disposiciones, pasarán a dominio pleno del
-Estado sin derecho a indemnización.
+Artículo 6º.- No se debe construir ni ampliar tipo de ferrocarril alguno sin cumplir previamente con lo dispuesto en esta ley; los que se construyan al margen de estas disposiciones, pasarán a dominio pleno del Estado sin derecho a indemnización.

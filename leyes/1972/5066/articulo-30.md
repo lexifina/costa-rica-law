@@ -1,11 +1,3 @@
-Artículo 30.- El empresario de ferrocarril está en obligación de
-mantener el ferrocarril y sus anexidades en perfecto buen estado de
-servicio y limpieza y reemplazar oportunamente el material fijo o rodante
-en mal estado o inadecuado.
-Todo individuo puede denunciar al Ministerio de Obras Públicas y
-Transportes o a las autoridades locales cualquier defecto que note en la
-vía férrea o cualquier peligro proveniente del mal estado del material, sin
-incurrir por ello en responsabilidad alguna. Si a causa del estado de la
-vía o del material rodante existe algún peligro inminente para el público,
-los particulares estarán en la obligación de denunciarlo a las autoridades
-o al Ministerio de Obras Públicas y Transportes.
+Artículo 30.- El empresario de ferrocarril está en obligación de mantener el ferrocarril y sus anexidades en perfecto buen estado de servicio y limpieza y reemplazar oportunamente el material fijo o rodante en mal estado o inadecuado.
+Todo individuo puede denunciar al Ministerio de Obras Públicas y Transportes o a las autoridades locales cualquier defecto que note en la vía férrea o cualquier peligro proveniente del mal estado del material, sin incurrir por ello en responsabilidad alguna. Si a causa del estado de la vía o del material rodante existe algún peligro inminente para el público, los particulares estarán en la obligación de denunciarlo a las autoridades o al Ministerio de Obras Públicas y Transportes.
+(Tácitamente derogado por el artículo 43, en relación con el 6º, de la Ley Nº 7404 de 3 de mayo de 1994 -Ley General de Concesión de Obra Pública-).

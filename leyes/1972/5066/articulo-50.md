@@ -1,5 +1,1 @@
-Artículo 50.- Cuando líneas férreas de diferentes empresas hayan de
-conectarse para usar una misma vía, las empresas deberán acordar, por
-escrito y con la aprobación del Ministerio de Obras Públicas y
-Transportes, la forma de hacer la conexión y la forma de prestaciones del
-servicio y las tarifas.
+Artículo 50.- Cuando líneas férreas de diferentes empresas hayan de conectarse para usar una misma vía, las empresas deberán acordar, por escrito y con la aprobación del Ministerio de Obras Públicas y Transportes, la forma de hacer la conexión y la forma de prestaciones del servicio y las tarifas.

@@ -1,4 +1,1 @@
-Artículo 5º.- La concesión que se otorgue a un particular para la
-construcción y explotación de un ferrocarril será temporal y sólo dará
-derecho a una propiedad limitada sobre el mismo, restringida a la
-prestación del servicio y sujeta a la autoridad y control de Estado.
+Artículo 5º.- La concesión que se otorgue a un particular para la construcción y explotación de un ferrocarril será temporal y sólo dará derecho a una propiedad limitada sobre el mismo, restringida a la prestación del servicio y sujeta a la autoridad y control de Estado.

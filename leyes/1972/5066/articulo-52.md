@@ -1,10 +1,3 @@
-Artículo 52.- Las empresas de ferrocarriles deberán abstenerse de
-arrojar en las propiedades contiguas a la vía, materiales o residuos.
-Por su parte, los dueños de propiedades contiguas a la vía, deberán
-evitar que de sus fundos se arroje el derecho (sic) de vía materiales o
-residuos o que sus acueductos se desborden por el lado de la línea.
-Deben asimismo abstenerse de hacer depósito de madera o de otros
-materiales fácilmente inflamables y de establecer fábricas de pólvora y
-otras análogas a menos de cien metros de distancia de la línea, o hacer
-excavaciones con dinamita u otros explosivos a menos distancia de la
-expresada.
+Artículo 52.- Las empresas de ferrocarriles deberán abstenerse de arrojar en las propiedades contiguas a la vía, materiales o residuos.
+Por su parte, los dueños de propiedades contiguas a la vía, deberán evitar que de sus fundos se arroje el derecho (sic) de vía materiales o residuos o que sus acueductos se desborden por el lado de la línea.
+Deben asimismo abstenerse de hacer depósito de madera o de otros materiales fácilmente inflamables y de establecer fábricas de pólvora y otras análogas a menos de cien metros de distancia de la línea, o hacer excavaciones con dinamita u otros explosivos a menos distancia de la expresada.

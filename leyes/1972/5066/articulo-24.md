@@ -1,6 +1,2 @@
-Artículo 24.- El empresario podrá reclamar, únicamente, que se le
-indemnicen las inversiones hechas en el ferrocarril y sus anexidades,
-deduciéndose de ellas la recuperación del capital invertido, la
-depreciación y los daños y perjuicios a que el Estado tenga derecho con
-motivo del incumplimiento del empresario. El Estado podrá reclamar al
-empresario cualquier diferencia a su favor.
+Artículo 24.- El empresario podrá reclamar, únicamente, que se le indemnicen las inversiones hechas en el ferrocarril y sus anexidades, deduciéndose de ellas la recuperación del capital invertido, la depreciación y los daños y perjuicios a que el Estado tenga derecho con motivo del incumplimiento del empresario. El Estado podrá reclamar al empresario cualquier diferencia a su favor.
+(Tácitamente derogado por el artículo 43, en relación con el 6º, de la Ley Nº 7404 de 3 de mayo de 1994 -Ley General de Concesión de Obra Pública-).

@@ -1,5 +1,2 @@
-Artículo 17.- Toda compañía de ferrocarril está obligada a llevar y
-mantener en el lugar de la República donde tenga su domicilio, la
-contabilidad íntegra de sus actividades y los demás libros que la ley
-establece. El Ministerio de Obras Públicas y Transportes tendrá
-facultades para revisar esos libros en cualquier momento.
+Artículo 17.- Toda compañía de ferrocarril está obligada a llevar y mantener en el lugar de la República donde tenga su domicilio, la contabilidad íntegra de sus actividades y los demás libros que la ley establece. El Ministerio de Obras Públicas y Transportes tendrá facultades para revisar esos libros en cualquier momento.
+(Tácitamente derogado por el artículo 43, en relación con el 6º, de la Ley Nº 7404 de 3 de mayo de 1994 -Ley General de Concesión de Obra Pública-).
