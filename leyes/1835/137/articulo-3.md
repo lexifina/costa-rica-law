@@ -1,0 +1,1 @@
+Art 3°.- Que todos los empleados, sin distinción alguna, que por causa de enfermedad se separen temporalmente con licencia, no pasando esta de dos meses, disfrutará la mitad de su sueldo, no debiendo por otro motivo haber cobrado ni percibir en lo sucesivo cosa alguna, sino es ocupándose en el servicio público.
