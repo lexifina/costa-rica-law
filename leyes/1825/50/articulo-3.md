@@ -1,0 +1,1 @@
+Art° 3° No bastando estos al numero necesario se alistarán tambien los notoriamente viciosos ó vagos sin distincion, calificandolos de tales el mismo Gobierno con las listas é informes que exijirá al efecto de las Municipalidades.
