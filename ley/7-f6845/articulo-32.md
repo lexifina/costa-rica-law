@@ -1,0 +1,2 @@
+Artículo 32. — Bonos al portador y anotados como tales en el tronco que conserva el Banco, no se harán nominales para el Banco por el hecho de ponerse en ellos un nombre, y su valor y sus intereses serán pagados a quien presente los cupones al vencimiento o los Bonos cuanda hayan sido llamados a su pago.
+Para hacer nominales los Bonos al portador es necesario que el poseedor de ellos los presente al Banco con el fin de que se tome nota en los troncos y en los libros correspondientes.

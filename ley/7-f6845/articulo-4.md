@@ -1,0 +1,1 @@
+Artículo 4°.— Las Juntas de Crédito Agrícola suministrarán a los que deseen un préstamo hipotecario, las fórmulas impresas y les ayudarán a llenarlas si fuere solicitada su colaboración. Las mismas Juntas examinarán la proposición e informarán al Banco, cuando remitan la solicitud, sobre las calidades de la persona proponente y de los bienes ofrecidos en garantía.
