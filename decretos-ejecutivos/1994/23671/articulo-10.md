@@ -1,0 +1,1 @@
+Artículo 10.-Los representantes del sector estatal serán nombrados por periodos de cuatro años que coincidirán con los periodos de gobierno. Los representantes de los demás sectores serán nombrados por periodos definidos de acuerdo a los mecanismos internos de cada sector. Ningún nombramiento será a título personal sino en tanto que represente el sector que lo haya designado.

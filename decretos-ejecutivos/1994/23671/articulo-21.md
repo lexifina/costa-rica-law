@@ -1,0 +1,1 @@
+Artículo 21.-La Secretaría Ejecutiva tendrá como función principal apoyar las labores de coordinación entre el Consejo Nacional de Desarrollo Sostenible, el Consejo del Área de Desarrollo Sostenible y las Comisiones Técnicas Consultivas. Para ello dispondrá del personal técnico y administrativo que sea necesario.

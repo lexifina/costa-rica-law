@@ -1,0 +1,1 @@
+Artículo 15.-El Consejo del Área de Desarrollo Sostenible definirá las políticas gubernamentales a seguir en el ámbito del desarrollo sostenible de acuerdo con la estrategia planteada en el Plan Nacional de Desarrollo.

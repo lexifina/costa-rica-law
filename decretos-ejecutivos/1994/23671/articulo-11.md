@@ -1,0 +1,1 @@
+Artículo 11.-El Consejo Nacional de Desarrollo Sostenible será presidido por el Presidente de la República o su representante. Será asistido por un secretario técnico que será designado por los miembros del Consejo.

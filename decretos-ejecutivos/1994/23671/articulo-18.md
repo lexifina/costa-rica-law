@@ -1,0 +1,1 @@
+Artículo 18.-Estarán conformadas por profesionales y técnicos, especialistas en cada tema específico, que pueden ser convocados por cualquiera de las instancias del Sistema o integrarse a él espontáneamente para colaborar en la solución de problemas particulares. Serán comisiones ad hoc.
