@@ -1,0 +1,11 @@
+Nº 28562-H
+EL PRESIDENTE DE LA REPUBLICA Y EL MINISTRO DE HACIENDA
+Con fundamento en lo dispuesto en los artículos 140, inciso 3) y 18 de la Constitución Política y 88 de la Ley del Impuesto sobre la Renta, N° 7092 de 21 de abril de 1988 y sus reformas.
+Considerando:
+1º—Que el artículo 88 de la Ley del Impuesto sobre la Renta, dispone que el Poder Ejecutivo debe actualizar en cada período fiscal, el monto exento del Impuesto sobre los Activos que se establece en dicho artículo, de conformidad con los cambios experimentados en el índice de precios al por mayor que, para tal efecto lleva el Banco Central de Costa Rica.
+2º—Que no obstante haberse derogado el impuesto a los activos mediante la Ley N° 7972 de 22 de diciembre de 1999, publicada en el Alcance N° 205 a La Gaceta N° 250 de 24 de diciembre de 1999, que circuló el día 3 de enero del 2000, para el período fiscal N° 99, tanto el ordinario como aquellos especiales autorizados cuyo cierre máximo sea el 31 de diciembre de 1999, ocurrió el hecho generador de ese tributo, que es la titularidad de activos al cierre del período fiscal. Por tal razón, debe establecerse el monto exento a deducir de la base imponible para efectos de determinar el impuesto a los activos del período fiscal indicado, impuesto que debe declararse y pagarse durante el plazo de presentación y pago previsto para el impuesto a las utilidades del periodo fiscal 2000.
+3º—Que el mencionado índice fue sustituido por el Banco Central de Costa Rica por el índice de precios a la producción industrial, por lo que será con base en la variación experimentada en éste que se efectuará la actualización ordenada por la Ley.
+4º—Que según información emanada del Banco Central de Costa Rica, la variación en dicho índice para el lapso comprendido entre setiembre de 1998 y setiembre de 1999, fue de un once punto catorce por ciento (11.14%).
+5º—Que es conveniente redondear el monto exento que se obtiene con la aplicación del citado índice, para mayor facilidad en la gestión de la administración del impuesto. Por tanto,
+Decretan:
+Artículo 1º—Establécese en la suma de cuarenta y seis millones setecientos mil colones (¢46.700.000,00) el monto exento para efectos de establecer la base imponible del impuesto a los activos del período fiscal N° 99.
