@@ -1,0 +1,1 @@
+Artículo 3°-La tarifa a pagar por el uso de zona de espacios y estacionamientos permanentes, será equivalente al 75% de la tarifa vigente por estacionamiento por hora. Para el cálculo del período contratado serán 30 días por mes, el pago deberá efectuarse en forma anticipada por el valor total.

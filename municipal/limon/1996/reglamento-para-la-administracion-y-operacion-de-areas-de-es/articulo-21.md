@@ -1,0 +1,2 @@
+Artículo 21.-EI gravamen a que se refiere los artículos 4 y 11 de este reglamento se anotará y cancelará mediante oficio que enviará la Tesorería Municipal o la Sección de Estacionamiento Autorizado al Registro de la Propiedad de Vehículos.
+La cancelación total de estas multas será requisito indispensable para retirar los derechos de la circulación cada año a los cuales se acompañarán los correspondientes comprobantes de infracción.

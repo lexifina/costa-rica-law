@@ -1,0 +1,1 @@
+Artículo 22.-Para mayor efectividad de la ley, el Departamento de Rentas, buscará la forma de coordinar con el Instituto Nacional de Seguros, la inclusión de las partes no pagadas dentro de la póliza obligatoria que se cobra cada año, se ejecutará este reglamento en estrecha y efectiva colaboración con la Dirección General de Tránsito.

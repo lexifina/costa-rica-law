@@ -1,0 +1,1 @@
+Artículo 18.-La fijación del tiempo de aparcimiento se hará por medio de tarjetas de estacionamiento, estableciendo distintos colores según se trate de tarjetas con validez para estacionar durante media hora, una hora, doce horas. La dependencia municipal encargada de administrar el sistema, confeccionará la documentación necesaria para la coordinación del cobro de este tributo.

@@ -1,0 +1,2 @@
+Artículo 7°-La Municipalidad demarcará en cada esquina en que se considere necesario, triángulos no menores de cinco metros para el estacionamiento de motos y bicicletas, sin cobro alguno.
+Cuando este tipo de vehículos se estacionen frente a una área demarcada de estacionamiento, su propietario deberá satisfacer la tasa correspondiente, de lo contrario incurrirá en las sanciones del artículo II del presente reglamento.

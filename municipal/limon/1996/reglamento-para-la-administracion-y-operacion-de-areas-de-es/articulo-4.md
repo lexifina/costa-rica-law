@@ -1,0 +1,1 @@
+Artículo 4°-La regulación de los horarios para el funcionamiento y uso de los estacionamientos autorizados, corresponde fijarlos al Ejecutivo Municipal. Para la aplicación de este reglamento queda autorizado el horario de lunes a sábado de cada semana entre las seis y las dieciocho horas, exceptuando de este reglamento los días domingo, feriado por ley y de fiesta nacional.

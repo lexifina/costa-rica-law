@@ -1,0 +1,1 @@
+Artículo 13.-El jefe de la sección, una vez estudiada la solicitud, remitirá con el informe correspondiente a la dependencia a efecto de que se imparta aprobación o rechazo convenientes que justifiquen la solicitud.

@@ -1,0 +1,1 @@
+Artículo 17.-La Municipalidad de Limón por medio de su ejecutivo, el departamento legal o sección a cuyo cargo tenga la administración, control y operación del sistema de estacionamiento, designará zonas, calles o parques y avenidas y demás lugares públicos que serán destinados a estacionamiento autorizado.

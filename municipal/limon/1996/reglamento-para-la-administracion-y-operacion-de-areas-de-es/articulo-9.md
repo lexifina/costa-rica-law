@@ -1,0 +1,2 @@
+Artículo 9°-Las zonas o espacios para estacionamiento permanente, serán para uso único de empresas o establecimientos comerciales, industriales o de servicios, además en cada una de estas zonas solo podrá estacionarse un vehículo a la vez.
+Para corresponder a uno o varios adjudicatarios por el total o determinado período de horas correspondiente al día, conforme con el interés de los solicitantes o a la conveniencia municipal. El número de espacios podrá ser hasta 16 por cada cien metros lineales.
