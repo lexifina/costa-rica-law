@@ -1,0 +1,2 @@
+Artículo 3º.- Refórmase el párrafo último del artículo 8º de la Ley Orgánica del Instituto Nacional de Aprendizaje, Nº 6868 del 6 de mayo de 1983, de la siguiente manera:
+"Artículo 8º.-Por cada sesión completa, los directores asistentes, excepto el presidente ejecutivo y los ministros de Estado o sus representantes, devengarán la dieta que señale la ley. El máximo de sesiones remuneradas que podrá celebrar la junta directiva será de ocho, entre ordinarias y extraordinarias".
