@@ -1,0 +1,1 @@
+Artículo 2°- Todas las dependencias e instituciones públicas, con objetivos o finalidades afines con eventos de este tipo o que de alguna manera tengan relación con aplicaciones de la ciencia y la tecnología de la química, quedan autorizadas, dentro de los límites legales establecidos, para prestar todo tipo de ayuda para la realización de este congreso.
