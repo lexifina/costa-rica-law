@@ -14,3 +14,4 @@ Reforma Reglamento para el Registro y Control de los Bienes Muebles.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-16 | la propia norma |
+| 2 | 2003-03-16 | Reglamento 28 (2002-04-15) |

@@ -9,7 +9,8 @@ ARTÍCULO VIGÉSIMO
 Se somete a consideración de los señores Directores el oficio PE-1373-2002, suscrito por la Presidencia Ejecutiva, con fecha 8 de marzo del año 2002, relacionado con nota DAF-117-02, referente a solicitud para modificar algunos artículos del Reglamento para el registro y control de los bienes muebles.
 Analizado dicho caso, se acuerda:
 1. Modificar los siguientes artículos del "Reglamento para el Registro y Control de los Bienes Muebles" del Instituto, que fuera aprobado por la junta directiva en el acuerdo contenido en el artículo IX de la sesión 081-97 de junta directiva, del 4 de noviembre de 1997 y publicado en La Gaceta N° 235 del viernes 5 de diciembre de 1997, según el siguiente detalle:
-a) Artículo 3, agregar inciso G) "Control de Activos: Unidad que se encuentra adscrita a la Dirección del Departamento Administrativo".
+a) Artículo 3, agregar inciso G) "Control de Activos: Unidad que se encuentra adscrita a la jefatura del Departamento Administrativo".
+(Así modificado por el reglamento 28 del 15 de abril de 2002)
 b) Artículo 4, inciso B), agregar al final de… las cuentas de gasto, "quedando a cargo del funcionario responsable, señalado así en la respectiva boleta".
 c) Artículo 9, incisos E), H), I), J), sustituir "Contratación y Suministros" por "La Unidad de Control de Activos".
 d) Artículo 9, incisos LL, Sustituir "a través de la Proveeduría Nacional" por "de conformidad con las leyes vigentes".
