@@ -1,1 +1,1 @@
-Artículo 23.-Facultase a la Municipalidad del Cantón Central de Limón para revisar, cada tres años, los montos indicados en los artículos 16 y 17, revisiones que deberán ser aprobadas por la Contraloría General de la República.
+Artículo 23.-Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 687-96 del 07 de febrero de 1996)
