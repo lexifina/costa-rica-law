@@ -1,0 +1,2 @@
+Artículo 2°.- La venta de los lotes de dicha propiedad que no estén actualmente ocupados por particulares con cultivos o mejoras estables, podrá hacerse, a juicio de la Municipalidad, mediante remate público, en uno o más lotes. La Municipalidad podrá hacer facilidades de pago a los adquirentes a fin de que cubran el calor de la compra en un plazo no mayor de cinco años.
+Casa Presidencial.- San José, a los veinte días del mes de octubre de mil novecientos cuarenta y cinco.
