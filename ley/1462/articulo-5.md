@@ -1,0 +1,1 @@
+Artículo 5°.- Las subvenciones de los Agentes de Policía que sirvan en localidades administrativas por un Concejo de Distrito, se fijarán conforme a la escala establecida para los Ejecutivos Municipales.
