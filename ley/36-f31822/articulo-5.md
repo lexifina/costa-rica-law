@@ -1,0 +1,1 @@
+Artículo 5°.-Los Médicos Oficiales prestarán su juramento ante la Secretaría de Salubridad Pública o por delegación de ésta ante el Gobernador de la Provincia o la Jefatura Política respectiva y son empleados de la directa dependencia de la Secretaría de Salubridad Pública. Los nombrados por las Municipalidades dependerán en lo técnico de la misma Secretaría.
