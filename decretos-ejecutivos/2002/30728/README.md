@@ -14,3 +14,4 @@ Se acepta renuncia y se nombran nuevos miembros del Sector Empresarial ante el C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-02 | la propia norma |
+| 2 | 2002-10-07 | Decreto Ejecutivo 30779 (2002-10-07) |
