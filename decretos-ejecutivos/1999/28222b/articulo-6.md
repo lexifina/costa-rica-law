@@ -1,0 +1,1 @@
+Artículo 6º—Los Estados Parte que pretendan adoptar o modificar una medida sanitaria o fitosanitaria de aplicación general que deba ser previamente publicada a su entrada en vigor, deberán notificar y enviar el texto escrito de la medida a las autoridades competentes de cada Estado Parte con una antelación no menor de 60 días calendario a la entrada en vigor en su territorio.

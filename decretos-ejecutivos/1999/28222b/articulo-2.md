@@ -1,0 +1,1 @@
+Artículo 2º—Son principios generales del presente reglamento la transparencia, la armonización y la equivalencia de las medidas y procedimientos sanitarios y fitosanitarios y la no discriminación arbitraria o injustificable.

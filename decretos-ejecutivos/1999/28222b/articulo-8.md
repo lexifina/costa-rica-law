@@ -1,0 +1,1 @@
+Artículo 8º—Cuando una de las partes aplique una medida incluyendo la de urgencia, o un procedimiento de los mencionados en el literal b) del Artículo 9, y cause o amenace causar un problema entre dos o más Estados Parte, éste se someterá a consulta técnica entre los Estados Parte involucrados con el objeto de que el problema sea solucionado a la brevedad posible .

@@ -1,0 +1,1 @@
+Artículo 27.—Los Estados Parte facilitarán el tránsito a otro Estado Parte o a terceros países de animales, vegetales, productos o subproductos de los mismos, siempre que se cumplan con los requisitos que se establecen en este Reglamento.

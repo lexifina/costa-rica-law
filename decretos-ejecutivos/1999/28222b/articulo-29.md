@@ -1,0 +1,1 @@
+Artículo 29.—Los organismos técnicos de cooperación regionales especializados en las áreas de sanidad vegetal, salud animal e inocuidad de los alimentos, podrán dar apoyo al seguimiento y actualización del proceso de armonización de normas y procedimientos sanitarios y fitosanitarios para el intercambio comercial en la región.

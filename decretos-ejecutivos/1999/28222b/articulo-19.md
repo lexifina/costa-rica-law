@@ -1,0 +1,1 @@
+Artículo 19.—Los Estados Parte deberán realizar el muestreo, análisis, inspección, control y certificación de los alimentos importados o exportados, de acuerdo con los principios contemplados en el AMSF y promoverán la adopción de las directrices, códigos y normas del CODEX ALIMENTARIUS
