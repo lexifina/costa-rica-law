@@ -14,3 +14,4 @@ Normativa relativa a las Auditorías Externas de los Sujetos Fiscalizados por Su
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-21 | la propia norma |
+| 2 | 2000-01-21 | SINALEVI (sin norma nombrada) |
