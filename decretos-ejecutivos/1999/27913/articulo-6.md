@@ -1,0 +1,1 @@
+Artículo 6º—La Consejería debe garantizar que en todas las acciones que realice se reconozcan las necesidades específicas por género, grupo etáreo, condición socioeconómica e identidad étnica dentro de las normas legales existentes, en forma particular a las personas menores de edad, indocumentadas y a la población no asegurada.

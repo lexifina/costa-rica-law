@@ -1,0 +1,1 @@
+Artículo 7º—El presente decreto ejecutivo es de cumplimiento obligatorio para todo el personal de salud, tanto de los servicios públicos como privados donde se ejecuten programas y servicios de atención sobre salud sexual y reproductiva para hombres y mujeres.
