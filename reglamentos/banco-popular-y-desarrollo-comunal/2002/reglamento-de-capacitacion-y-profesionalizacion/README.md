@@ -15,3 +15,4 @@ Reglamento de Capacitación y Profesionalización
 | --- | --- | --- |
 | 1 | 2002-08-26 | la propia norma |
 | 2 | 2003-08-28 | Reglamento 4142 (2003-08-28) |
+| 3 | 2004-06-07 | Reglamento 4218 (2004-06-07) |
