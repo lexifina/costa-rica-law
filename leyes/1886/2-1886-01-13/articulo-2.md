@@ -1,0 +1,1 @@
+Art. 2°-Se señala el término de seis meses, para que los que se hallen en el caso de pedir la exoneración del pago del precio de un terreno baldío, según lo determinado en el artículo anterior, hagan uso de su derecho; pasado dicho término sin verificarlo, caducará el derecho.
