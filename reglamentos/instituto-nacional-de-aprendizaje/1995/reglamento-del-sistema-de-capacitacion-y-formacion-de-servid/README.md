@@ -14,3 +14,4 @@ Reglamento del Sistema de Capacitación y Formación de Servidores del Instituto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-03-13 | la propia norma |
+| 2 | 1995-06-12 | Reglamento 3255 (1995-06-12) |
