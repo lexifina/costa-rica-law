@@ -3,3 +3,4 @@ Artículo 2°: Aprúebase los siguientes Egresos Ordinarios y Extraordinarios pa
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29230 de 10 de enero del 2001)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29309 de 2 de febrero del 2001)
 (Modificado por el artículo 3 del Decreto Ejecutivo N° 29619 de 9 de abril del 2001)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29462 de 24 de abril del 2001)
