@@ -1,0 +1,1 @@
+ARTICULO 4°.-El Ministerio de Agricultura y Ganadería, una vez realizado el traslado, mantendrá las atribuciones de promulgación de reglamentos, supervisión, control y fiscalización sobre Registro Genealógico de Ganado para lo cual, en cualquier momento podrá solicitar los informes que estime pertinentes.
