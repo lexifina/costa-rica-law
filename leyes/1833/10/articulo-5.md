@@ -1,0 +1,2 @@
+Art 5°.- Queda abolido el art.133 de la ordenanza de Minería, reformados los artículos 3°, 5° y 6° y derogada el 7° de la ley de 3 de julio de 830.- Al Consejo Representativo.- Dado en San José a los trece días del mes de Abril de mil ochocientos treinta y tres. Sala de Consejo. San José Abril veintitrés de mil ochocientos treinta y tres.
+Por tanto: Ejecútese.- San José abril veintitrés de mil ochocientos treinta y tres.
