@@ -1,0 +1,2 @@
+Artículo 2°-Dicho Comité estará integrado por seis miembros de nombramiento del Poder Ejecutivo en la siguiente forma:
+El Oficial Mayor del Ministerio de Agricultura e Industrias, quien será el Presidente nato, el Jefe del Departamento de Industrias, un funcionario más del Ministerio de Agricultura e Industrias y los otros tres miembros serán representantes de la Cámara de Industrias de Costa Rica, quien los elegirá.
