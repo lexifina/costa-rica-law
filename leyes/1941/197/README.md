@@ -1,6 +1,6 @@
 # Ley de Pensiones a Empleados Municipales
 
-Ley N° 197 del 1941-08-05. SINALEVI, ficha 64960: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64960&param2=75772&param3=1>.
+Ley N° 197 del 1941-08-05. SINALEVI, ficha 64960: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64960&param2=75776&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -16,3 +16,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 8 de 13 | 1963-12-17 | Ley 3255 | 1963-12-12 |
 | 9 de 13 | 1968-07-23 | Ley 4158 | 1968-07-19 |
 | 10 de 13 | 1970-11-10 | Ley 4655 | 1970-10-31 |
+| 11 de 13 | 1974-08-08 | Ley 5546 | 1974-07-31 |
