@@ -1,0 +1,2 @@
+Artículo 15.—El quorum para sesionar válidamente la Junta Directiva se formará con la asistencia y presencia de al menos cinco miembros propietarios o sus respectivos suplentes. Los acuerdos se adoptarán por mayoría simple de votos presentes y de persistir empate, en una segunda votación el Presidente contara con doble voto. En tal caso deberá estar presente por lo menos un representante de cada uno de los tres sectores integrantes de la Junta Directiva.
+El doble voto otorgado al Presidente no aplicará para el caso de nombramientos y despidos.

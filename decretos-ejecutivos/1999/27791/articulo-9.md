@@ -1,0 +1,1 @@
+Artículo 9°—En el caso de no existir en un momento determinado formularios para el pago del impuesto establecido en la Ley, la Corporación deberá emitir una constancia que acredite tal situación y que permita a los importadores y exportadores la realización normal de sus actividades.
