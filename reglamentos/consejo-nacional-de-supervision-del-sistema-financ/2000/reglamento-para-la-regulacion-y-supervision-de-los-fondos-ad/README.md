@@ -14,3 +14,4 @@ Reglamento para la regulación y supervisión de los fondos administrados median
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-28 | la propia norma |
+| 2 | 2000-05-02 | Reglamento 152 (2000-05-02) |
