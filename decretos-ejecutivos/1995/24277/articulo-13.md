@@ -1,1 +1,0 @@
-Artículo 13.—La Policía Especial mantendrá un archivo de las denuncias presentadas por incumplimiento de las obligaciones de quienes den trabajo o alojamiento a extranjeros, a fin de poder informar a la autoridad judicial competente sobre la reincidencia de los infractores, conforme al artículo 99 de la Ley.

@@ -1,1 +1,0 @@
-Artículo 14.—El Ministerio de Trabajo y Seguridad Social informará a la Policía Especial de toda denuncia que haga ante las Autoridades Judiciales por infracción a las normas sobre contratación de extranjeros, en uso de las atribuciones que le confiere el artículo 100 de la Ley.

@@ -1,2 +1,0 @@
-Artículo 12.—La Policía Especial podrá investigar también aquellas solicitudes de residencia o de permiso temporal de residencia en las que el motivo principal sea una autorización de trabajo, a fin de verificar la existencia real de una relación laboral.
-En caso contrario y en aplicación del artículo 98 de la Ley, el Jefe de éste cuerpo policial, presentará la denuncia ante la autoridad judicial competente en mismo plazo establecido en el artículo anterior.

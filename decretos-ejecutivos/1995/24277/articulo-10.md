@@ -1,1 +1,0 @@
-Artículo 10.—Será obligación de quienes den trabajo o alojamiento a los extranjeros reportar a quienes trabajan en sus empresas o que se hospeden en su establecimientos, según lo establecido en el artículo 94 de la Ley.
