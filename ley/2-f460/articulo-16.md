@@ -1,0 +1,1 @@
+Art 16° Las cancelaciones o enmiendas que procedan se harán también por actas en la misma forma que si fueran inscripciones y poniendo al margen de las inscripciones respectivas las notas de referencia que corresponda.
