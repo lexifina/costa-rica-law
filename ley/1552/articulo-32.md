@@ -1,0 +1,1 @@
+Artículo 32.- El Gerente y Subgerente asistirán a las sesiones de la Junta, en la cual tendrán voz, pero no voto. Podrán sin embargo, cuando lo consideren necesario, hacer constar en las actas respectivas sus opiniones sobre los asuntos que se debaten. Podrán asistir también los jefes de departamento del banco y aquellas personas invitadas especialmente.

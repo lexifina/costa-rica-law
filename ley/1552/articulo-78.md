@@ -1,0 +1,3 @@
+Artículo 78.- Para los mismos efectos del artículo anterior, los depósitos en monedas extranjeras se clasificarán así:
+1) Depósitos a la vista, serán los constituidos en forma de cuenta corriente y los pagaderos dentro de un término no mayor de 30 días, o sujetos a un aviso previo a su pago, que no exceda de dicho lapso.
+2) Depósitos a plazo, serán los pagaderos dentro de un término mayor de 30 días o sujetos a un aviso previo a su pago, que exceda de dicho lapso. Los depósitos de esta clase que hubieren vencido, o cuyo vencimiento cayera dentro de los próximos 30 días, deberán clasificarse como Depósitos a la Vista.

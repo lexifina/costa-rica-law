@@ -1,0 +1,15 @@
+Artículo 85.- En materia crediticia, la Junta Directiva tendrá las facultades descritas en los incisos 1) y 2) siguientes y la obligación establecida en el inciso 3):
+1º.- Regular las operaciones de crédito de las instituciones bancarias, públicas y privadas, de modo general y uniforme, para lo cual podrá fijar:
+a) Las tasas máximas de interés y de descuento que podrán cobrar los bancos a sus deudores, así como los cargos máximos cobrables por comisiones u otros conceptos.
+b) El límite máximo de crédito directo o indirecto que los bancos podrán otorgar a cada persona natural o jurídica, en cada una de las modalidades de sus operaciones y en el conjunto de todas ellas.
+En los departamentos comerciales de los bancos del Estado y en los bancos privados, el límite máximo será de una suma equivalente al veinte por ciento (20%) del capital suscrito y pagado y de las reservas patrimoniales no redimibles, o de doscientos cincuenta millones de colones (¢ 250.000.000), la suma que sea menor. El parámetro expresado en términos absolutos podrá ser ajustado periódicamente por la Junta Directiva del Banco Central, de acuerdo con la evolución del nivel general de precios.
+En los departamentos hipotecarios de los bancos y en el Departamento de Crédito Rural del Banco Nacional de Costa Rica, el máximo de crédito no podrá exceder del diez por ciento (10%) y del veinticinco por ciento (25%), respectivamente, de sus capitales y reservas patrimoniales. Sin exceder de los límites máximos que establezca el Banco Central, dentro de los parámetros anteriores, internamente los bancos podrán fijar sus propios máximos.
+El crédito directo e indirecto otorgado a grupos de interés económico deberá computarse dentro de los límites establecidos, conforme con estas disposiciones.
+Mediante reglamento, la Junta Directiva definirá lo que debe entenderse por grupo de interés económico y establecerá sus regulaciones.
+c) Los márgenes mínimos de seguridad que deben existir entre el importe de los créditos concedidos por los bancos comerciales y el valor real de sus correspondientes garantías.
+d) Los plazos máximos que los bancos comerciales podrán conceder para el reembolso de sus operaciones de crédito.
+2º.- Aprobar los programas crediticios de las instituciones del
+Estado no contempladas en el inciso 1), anterior, en la parte que esos programas se refieren a sus operaciones con el público; o improbarlos si el Banco Central de Costa Rica comprueba que tales programas no están de acuerdo con su política general, porque los recursos destinados a ese fin no guardan la debida relación con el plazo proyectado para los créditos.
+La resolución del Banco deberá razonarse con la amplitud del caso. Para estos efectos, las instituciones que se citan estarán obligadas a presentar sus planes anuales de crédito al Banco Central de Costa Rica, a más tardar el 1º de diciembre del año anterior.
+3º.- Ejercer, de acuerdo con la ley, las funciones de regulación y vigilancia de las sociedades financieras privadas no bancarias.
+(Así reformado por el artículo 1º de la ley No. 7107 de 4 de noviembre de 1988 )

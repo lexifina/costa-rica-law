@@ -1,0 +1,3 @@
+Artículo 75.- La Junta podrá autorizar a los bancos la recepción de depósitos en monedas extranjeras y revocar esa autorización. Cuando les permitiere recibirlos, reglamentará su funcionamiento y administración y fijará los encajes mínimos legales, que no podrán ser inferiores al 10%, sin obligación de abonar intereses a los bancos, cualquiera que sea la cuantía de los encajes.
+Igualmente determinará la forma, condiciones y clase de moneda, ya sea nacional o extranjera, en que dichos encajes deberán ser mantenidos por los bancos.
+Y cuando no requiera encajes mínimos del 100% en moneda extranjera, podrá exigir que los bancos mantengan otros activos en esas monedas, con el propósito de balancear la situación de activo y pasivo en divisas extranjeras.

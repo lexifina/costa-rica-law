@@ -1,0 +1,4 @@
+CAPITULO III
+La Gerencia del Banco
+Artículo 39.- La Junta Directiva designará con el voto favorable de no menos de cinco de sus miembros, un Gerente en quien delegará la administración del Banco, de acuerdo con la ley y con las instrucciones que le imparta la Junta. Designará, también y en la misma forma, un Subgerente que reemplazará al primero en sus ausencias temporales. Ambos funcionarios deberán reunir los mismos requisitos exigidos a los miembros de la Junta.
+(NOTA: El artículo 7º de la Ley Nº 4646 de 20 de octubre de 1970 dispone: "No podrá ser electo gerente, subgerente o auditor del Banco Central de Costa Rica, de los Bancos Comerciales ni de las instituciones autónomas o semiautónomas, quien hubiere ocupado un cargo como miembro de la Junta Directiva de la respectiva institución durante todos o parte de los dos años anteriores."
