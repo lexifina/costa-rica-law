@@ -1,0 +1,1 @@
+2° Los que se dedicaren a tan interesantes trabajos reservaran la firma en aquellos papeles en que así lo exigeren sus Autores, y solo la descubrirán en el caso de que sean interrogados y requeridos por el Juez para reprimir los abusos conforme a las Leyes , y en el caso de negarse hacer la manifestación ellos serán responsables.
