@@ -14,3 +14,4 @@ Declara de Interés Público el Campeonato Centroamericano y del Caribe de Campo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-18 | la propia norma |
+| 2 | 1998-02-18 | Ley 8 |
