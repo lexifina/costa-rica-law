@@ -1,0 +1,1 @@
+Artículo 4°-La Asamblea General se reunirá ordinariamente cada bienio y extraordinariamente cuando así lo convoque el Comité Ejecutivo y será presidida por el Ministro de Relaciones Exteriores y Culto.
