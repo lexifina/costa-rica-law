@@ -1,0 +1,1 @@
+Artículo 21.—Los presupuestos de ingresos y egresos de la Fundación, de cualquier naturaleza, deberán ser autorizados, antes del inicio de su ejecución, por la Contraloría General de la República, la cual también deberá aprobar su liquidación, al finalizar el ejercicio respectivo.

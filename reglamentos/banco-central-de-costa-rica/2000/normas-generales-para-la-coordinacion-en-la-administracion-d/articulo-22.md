@@ -1,0 +1,4 @@
+Artículo 22.—La Fundación establecerá, en coordinación con la dependencia encargada de la seguridad del Banco Central, un estricto sistema de seguridad en el edificio que alberga los Museos, el cual debe estar acorde con el valor y naturaleza de las colecciones.
+Al menos una vez por trimestre, representantes del Departamento de Seguridad del Banco Central y de la Fundación se reunirán para evaluar el sistema de seguridad, así como para la adopción de cualesquiera medidas que se juzgara importante tomar en ese campo.
+En caso de ser necesario, corresponderá a la Dirección de la Fundación y a la Gerencia del Banco Central resolver, eventuales desacuerdos derivados de la aplicación de dichas disposiciones.
+En última instancia, será la Junta Directiva del Banco Central la cual decidirá en definitiva, previo planteamiento a la Junta Administrativa de la Fundación, lo que proceda sobre el particular.

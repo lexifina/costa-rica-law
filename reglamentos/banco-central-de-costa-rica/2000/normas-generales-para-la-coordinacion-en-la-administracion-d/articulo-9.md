@@ -1,0 +1,1 @@
+Artículo 9º—La inclusión o exclusión de objetos a las colecciones, así como el préstamo de objetos a otras instituciones o entidades, ya sean estas nacionales o internacionales, deberá contar con los estudios técnicos respectivos realizados por profesionales calificados en la materia, y con la aprobación previa del Banco Central de Costa Rica, de acuerdo con sus intereses.

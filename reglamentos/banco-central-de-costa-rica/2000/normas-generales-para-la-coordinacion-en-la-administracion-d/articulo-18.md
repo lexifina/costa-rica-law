@@ -1,0 +1,1 @@
+Artículo 18.—El Banco Central de Costa Rica ejercerá el control global que garantice el buen funcionamiento del servicio a cargo de la Fundación y la buena administración de los fondos; para la cual la Auditoria Interna del Banco Central de Costa Rica deberá contemplar dentro de su Plan Anual, la fiscalización de las operaciones que realice la Fundación.

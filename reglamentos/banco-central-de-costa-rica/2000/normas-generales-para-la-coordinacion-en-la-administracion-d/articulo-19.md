@@ -1,0 +1,1 @@
+Artículo 19.—El Departamento de Contabilidad del Banco Central de Costa Rica será el encargado de mantener el registro contable de todos los bienes traspasados a la Fundación; así como de los objetos que conforman todas las colecciones del Banco Central de Costa Rica.

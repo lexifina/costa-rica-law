@@ -1,0 +1,4 @@
+Artículo 2º—La Fundación, a la luz de lo que establece el artículo 11 de la Ley de Fundaciones, estará regida por una Junta Administrativa compuesta por cinco miembros, nombrados de la siguiente manera: tres miembros designados por el Banco Central de Costa Rica, uno por el Consejo de Gobierno, y uno por el Concejo Municipal de San José.
+El nombramiento de los miembros designados por el Banco Central de Costa Rica, como fundador, serán por un período de cuatro años, pudiendo ser reelegidos o destituidos en cualquier momento, únicamente por acuerdo de la mayoría de los miembros de la Junta Directiva del Banco Central de Costa Rica.
+La Junta Administrativa deberá nombrar en su seno a un Presidente, quien tendrá la representación legal de la Fundación, con facultades de apoderado general, el cual durará en sus funciones un año, pudiendo ser reelecto.
+El desempeño de estos cargos es gratuito.
