@@ -1,0 +1,1 @@
+Artículo 18° Ningún taller podrá prestar servicio para el cual no haya sido autorizado. Tampoco podrá hacerlo con aeronaves y componentes si carece de la información técnica necesaria o el equipo adecuado.

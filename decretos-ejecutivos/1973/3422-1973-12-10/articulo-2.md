@@ -1,0 +1,1 @@
+Artículo 2° Los talleres aeronáuticos, sean estos personas físicas o jurídicas, deberán cumplir con todos los requisitos de este reglamento. Las habilitaciones para los trabajos de este tipo de establecimiento y los requisitos necesarios serán los contemplados en los artículos 13 hasta 21.

@@ -1,0 +1,1 @@
+Artículo 7° Los talleres autorizados, deberán permitir inspecciones periódicas por parte de funcionarios encargados de la Dirección General de Aviación Civil. Lo anterior, con el propósito de constatar el cumplimiento de las prevenciones contenidas en el presente Reglamento y sus derivaciones.

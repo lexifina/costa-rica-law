@@ -1,0 +1,1 @@
+Artículo 20° Los talleres aeronáuticos establecidos están en la obligación de colaborar, a gestión escrita de la Dirección General, en la investigación de accidentes e incidentes, a efectuar pruebas a componentes o partes de las aeronaves accidentadas de conformidad con los dispuesto por el Reglamento de Investigación de Accidentes.

@@ -1,0 +1,1 @@
+Artículo 15° El solicitante que desee obtener un certificado de explotación para taller aeronáutico, está en la obligación de preparar un manual de procedimiento de inspección y someterlo para su aprobación a la Dirección General de Aviación Civil conforme lo dispone el artículo 5° El manual referido deberá explicar con claridad el sistema de inspección interna del taller.

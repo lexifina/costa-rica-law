@@ -1,0 +1,3 @@
+Transitorio único: Los talleres aeronáuticos existentes a la fecha de la publicación del presente Reglamento, deberán registrarse en la Dirección General de Aviación Civil, dentro de un plazo de 90 días.
+Los talleres que se registren tendrán un plazo de180 días para cumplir totalmente con lo dispuesto en el presente Reglamento.
+Una prolongación especial de 90 días mas podría ser otorgada para la Dirección General de Aviación Civil, si así lo considera conveniente, al plazo arriba indicado, siempre y cuando sea solicitado por escrito y los motivos lo ameriten, dentro del plazo inicial relativo al taller correspondiente.

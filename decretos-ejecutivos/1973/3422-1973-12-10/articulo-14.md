@@ -1,0 +1,1 @@
+Articulo 14° Cada taller será responsable ante la Dirección General de Aviación Civil por los trabajos efectuados y los servicios que preste en atención al interés público que priva. Para ello enviará un duplicado a la Dirección General de la actividad que realice en las labores propias de su Certificado de Explotación.

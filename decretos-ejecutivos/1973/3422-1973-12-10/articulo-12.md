@@ -1,0 +1,1 @@
+Artículo 12° Los talleres autorizados están en la obligación de reportar a la Dirección General de Aviación Civil cualquier defecto, daño o fallas encontradas y que afecte la aeronavegabilidad de la aeronave o componente. Lo anterior con el fin de evitar el vuelo de la nave en mal estado, hasta tanto no se reporte su reparación mediante el formulario duplicado.

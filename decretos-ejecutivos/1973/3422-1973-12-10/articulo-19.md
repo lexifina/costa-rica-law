@@ -1,0 +1,1 @@
+Artículo 19° Todos los materiales que sean usados en talleres aeronáuticos autorizados, deberán ser inspeccionados de acuerdo a las normas y reglamentos establecidos. La inspección la llevarán a cabo los funcionarios de la Dirección General de Aviación Civil.

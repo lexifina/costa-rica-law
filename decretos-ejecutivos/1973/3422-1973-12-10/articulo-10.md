@@ -1,0 +1,2 @@
+Artículo 10° Todo taller autorizado, previa iniciación de cualquier clase de trabajo en unas aeronave o componente, deberá realizar una inspección con el objeto de localizar o verificar dichas fallas.
+El personal supervisor y de inspección deberá conocer las especificaciones, procedimientos, y tolerancia del material con que se está trabajando. En caso de que el taller autorizado haga cualquier reparación o modificación mayor deberá utilizar en duplicado el formulario establecido por la Dirección General de Aviación Civil.

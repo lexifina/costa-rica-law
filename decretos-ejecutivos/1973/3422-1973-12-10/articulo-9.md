@@ -1,0 +1,1 @@
+Artículo 9° El Consejo Técnico de Aviación Civil podrá otorgar habilitación otorgada o permitir servicios especializados de taller aeronáutico fuera de las instalaciones de esta modalidad de talleres.

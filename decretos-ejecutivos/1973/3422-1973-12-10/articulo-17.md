@@ -1,0 +1,1 @@
+Artículo 17° Los talleres autorizados deberán usar un adecuado control para efectos de responsabilidad por la calidad y el funcionamiento de la unidad entregada para que regrese a servicio. La Dirección General de Aviación Civil establecerá los modelos de fórmulas que se usarán para ese control.
