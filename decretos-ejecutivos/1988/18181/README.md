@@ -13,3 +13,4 @@ Reglamento de Pago Anualidades Adeudadas en Administración Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-06-23 | la propia norma |
+| 2 | 1988-06-23 | Decreto Ejecutivo 22781 (1993-10-26) |
