@@ -1,0 +1,1 @@
+Artículo 19.-En el caso de referendo la papeleta contendrá el texto íntegro de la norma que se consulta, salvo si fuere muy largo, en cuyo caso se elaborará un afiche con el texto que se pegará en la entrada de cada recinto de votación.

@@ -1,0 +1,1 @@
+Artículo 31.-El Concejo Municipal convocará a cabildo abierto cuando estime necesario abrir a discusión pública asuntos que afecten a los vecinos del cantón, a fin de informar mejor la decisión que deba tomar el Concejo. A estos cabildos pueden asistir todas las personas que tenga interés en el asunto a conocer y residentes en el cantón.

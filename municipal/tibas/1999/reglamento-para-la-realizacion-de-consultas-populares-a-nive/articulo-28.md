@@ -1,0 +1,1 @@
+Artículo 28.-Para destituir al Alcalde o sus suplentes se requiere del voto favorable de los dos tercios del total de votos emitidos, y que esos dos tercios no sean inferiores al diez por ciento del total de electores inscritos en el cantón.

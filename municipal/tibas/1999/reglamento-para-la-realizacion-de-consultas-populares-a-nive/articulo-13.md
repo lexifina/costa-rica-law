@@ -1,0 +1,1 @@
+Artículo 13°-La municipalidad, dentro del mes siguiente a la publicación de la convocatoria a la consulta, fijará los centros de votación, para lo cual pedirá asesoría al Tribunal Supremo de Elecciones. Dichos centros se ubicarán de manera que faciliten el acceso de los votantes a las urnas, y que no tengan que recorrer grandes distancias.

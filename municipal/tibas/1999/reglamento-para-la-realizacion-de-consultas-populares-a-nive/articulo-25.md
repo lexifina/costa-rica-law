@@ -1,0 +1,2 @@
+Artículo 25.-AI final de la jornada electoral, cada junta receptora hará un escrutinio provisional de votos, cuyo resultado se certificará de inmediato, con toda la documentación electoral, al Concejo Municipal.
+Este realizará el escrutinio definitivo, con la presencia de los delegados del Tribunal Supremo de Elecciones. Este último deberá estar concluido a más tardar quince días naturales después de la consulta.

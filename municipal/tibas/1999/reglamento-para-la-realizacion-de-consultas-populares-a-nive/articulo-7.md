@@ -1,0 +1,1 @@
+Artículo 7°-La Municipalidad deberá nombrar una comisión de tres a cinco miembros, conformada por regidores y síndicos, la cual se encargará de la organización y dirección de la consulta. Esta comisión deberá proveer los recursos suficientes para el cumplimiento de su cometido.

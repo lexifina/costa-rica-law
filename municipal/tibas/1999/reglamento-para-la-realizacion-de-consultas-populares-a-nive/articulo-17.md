@@ -1,0 +1,1 @@
+Artículo 17.-La formulación de la pregunta objeto del plebiscito o referendo debe ser clara y concisa, de modo que se eviten interrogaciones confusas, capciosas o de doble sentido. Salvo casos excepcionales esta pregunta se formulará de forma que se pueda contestar "SI" o "NO".

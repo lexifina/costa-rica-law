@@ -1,0 +1,1 @@
+Artículo 34.-EI cabildo será dirigido por el Presidente Municipal, debiendo tomar las medidas para mantener el orden público. Las personas que asistan podrán hablar hasta por diez minutos improrrogables, y por una sola vez. Esta restricción se aplicará por igual al Presidente Municipal y demás regidores y síndicos.

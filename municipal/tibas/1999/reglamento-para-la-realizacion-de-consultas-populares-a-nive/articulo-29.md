@@ -1,0 +1,1 @@
+Artículo 29.-Si el alcalde fuere destituido el Concejo Municipal lo comunicará al Tribunal Supremo de Elecciones, el cual lo repondrá por el resto del período, de conformidad con el artículo 14 del Código Municipal.

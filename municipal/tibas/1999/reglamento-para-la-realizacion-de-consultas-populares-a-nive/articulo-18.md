@@ -1,0 +1,1 @@
+Artículo 18.-EI Concejo Municipal elaborará las papeletas que serán usadas en la votación de los plebiscitos y referendos, las cuales contendrán la pregunta que se somete a consulta y las casillas para marca la respuesta.

@@ -1,0 +1,1 @@
+Artículo 22.-EI Concejo Municipal hará la integración e instalación de las Juntas Receptoras, y dispondrá lo necesario para que se capaciten para su labor. Los miembros de las Juntas Receptoras serán juramentados por el Presidente Municipal o quien le sustituya conforme a la ley.

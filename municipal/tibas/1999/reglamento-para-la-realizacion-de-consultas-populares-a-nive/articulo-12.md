@@ -1,0 +1,1 @@
+Artículo 12°-En los plebiscitos y referendos pueden votar los electores inscritos en el padrón electoral del cantón, según el corte del mes anterior al momento en que quedó firme la convocatoria. Los electores se identificarán con su cédula de identidad.

@@ -1,0 +1,1 @@
+Artículo 35.-EI cabildo será el medio que se utilizará para la designación de los candidatos a integrar los Concejos de Distrito, según el artículo 174 del Código Municipal. Por un acuerdo concomitante con la convocatoria el Concejo Municipal establecerá el procedimiento de selección de estos candidatos.

@@ -1,0 +1,1 @@
+Artículo 10.-Cuando un asunto ha sido rechazado en una consulta popular no podrá ser sometido a nueva consulta dentro de un plazo menor de dos años. Así mismo no se realizarán consultas dentro de los ocho meses anteriores a las elecciones nacionales, ni dentro de los tres meses anteriores a la elección del Alcalde.

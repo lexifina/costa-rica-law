@@ -1,0 +1,1 @@
+Artículo 26.-Para convocar a la comunidad a un plebiscito para destituir al alcalde o sus suplentes deberá ser presentada una moción firmada al menos por la tercera parte de los regidores propietarios. Esta para ser aprobada requiere al menos del voto favorable de las tres cuartas partes de los regidores. Esta decisión no podrá ser vetada.

@@ -1,0 +1,1 @@
+Artículo 38.-Supletoriamente, y en lo pertinente, se aplicarán a las consultas populares las normas y principios de derecho electoral contenidos en el Código Electoral, la Ley Orgánica del Tribunal Supremo de Elecciones y Registro Civil, y en los reglamentos dictados por el Tribunal Supremo de Elecciones.
