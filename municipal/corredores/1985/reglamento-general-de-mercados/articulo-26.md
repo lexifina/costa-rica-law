@@ -1,0 +1,1 @@
+Artículo 26.—No se concederá patente para el expendio de bebidas alcohólicas, objetos usados, o venta de comidas u otro tipo de mercadería o artículos que atenten contra la salud o la seguridad públicas.

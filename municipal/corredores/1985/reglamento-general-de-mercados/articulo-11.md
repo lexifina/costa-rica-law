@@ -1,0 +1,1 @@
+Artículo 11.—Quien resulte favorecido con una adjudicación, y se llegue a constatar que no reúne los requisitos que puntualiza el artículo que antecede, o no se presente a formalizar y firmar el contrato, dentro del plazo precitado, perderá el derecho tanto al local como a participar en futura solicitaciones.

@@ -1,0 +1,1 @@
+Artículo 14.—Podrá ser inquilino, el cesionario del adjudicatario, que compruebe reunir los requisitos del artículo 11 de este Reglamenta. Pero tal sesión carecerá de. valor legal en tanto el Concejo no la apruebe. La falta de aprobación facultará al Municipio para tener por resuelto, de pleno derecho, el contrato de arrendamiento.

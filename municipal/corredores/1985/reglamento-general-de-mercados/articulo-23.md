@@ -1,0 +1,1 @@
+Artículo 23.—El inquilino está obligado a permitir la entrada ia operarios cuando sea necesario subsanar un daño o cumplir reparaciones en los servicios públicos, incluso si la labor ha de llevarse a cabo en local de otro u otros inquilinos.
