@@ -1,0 +1,1 @@
+Art. 10. Tambien percibirá el impuesto de dos reales sobre cada quintal de efectos de exportacion é importacion por et tiempo dicho de treinta años, y cobrará el impuesto de medio real de pontazgo en solo uno de los que se fabriquen.

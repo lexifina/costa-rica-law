@@ -1,0 +1,1 @@
+Art. 7. Se agracia á la compañia con dos millas de terreno en uno de los lados del camino por toda su linea. Queda libre el terreno del lado que no lo ocupe aquella, para que lo cultiven, en propiedad, los agricultores que alli se establezcan, no pudiendo ocupar el frente del camino mas que la mitad del fondo de la porcion que tenga cultivada.
