@@ -1,7 +1,7 @@
 De la Educación Pre-escolar
-Artículo 12.- La educación pre-escolar tiene por finalidades:
-a) Proteger la salud del niño y estimular su crecimiento físico
-armónico;
+ARTICULO 12.-
+La educación pre-escolar tiene por finalidades:
+a) Proteger la salud del niño y estimular su crecimiento físico armónico;
 b) Fomentar la formación de buenos hábitos;
 c) Estimular y guiar las experiencias infantiles;
 d) Cultivar el sentimiento estético;
