@@ -1,0 +1,1 @@
+Artículo 3°—La Auditoría Interna, es parte integral y vital del sistema de control interno del Ministerio, y tendrá como función principal la comprobación del cumplimiento, suficiencia y validez de dicho sistema.

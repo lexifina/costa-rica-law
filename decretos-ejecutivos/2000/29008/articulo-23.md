@@ -1,0 +1,1 @@
+Artículo 23.—El auditor interno deberá formular un Manual de Procedimientos de Auditoría Interna; con el objetivo de que cuente con un instrumento que defina las características y procedimientos de auditoría, aplicables al Ministerio.

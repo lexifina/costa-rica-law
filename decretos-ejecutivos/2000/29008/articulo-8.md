@@ -1,0 +1,1 @@
+Artículo 8°—La auditoría interna contará con la organización y personal profesional y técnico necesario, el que debe poseer suficiente conocimiento en auditoría, contabilidad, administración y de las disposiciones legales que regulan a la Administración Pública, y las de Gobierno Central, que lo califiquen para ejercer en forma apropiada las funciones que se le asignen.

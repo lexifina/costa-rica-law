@@ -1,0 +1,1 @@
+Artículo 10.—El auditor interno actuará como superior jerárquico de su unidad y en esa condición ejercerá todas las funciones que le son propias en la administración de personal, de tal forma que deberá contarse con su anuencia para nombramientos, remociones, promociones, licencias y otros. Todo de acuerdo con el marco jurídico que en la materia rige para el Ministerio.

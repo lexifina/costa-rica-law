@@ -1,0 +1,1 @@
+Artículo 4°—Es responsabilidad exclusiva de la Administración del Ministerio, establecer, mantener y perfeccionar el sistema de control interno, siendo específicamente responsable del ejercicio del mismo, el Ministro como superior, y ante él con respecto a cada órgano competente del Ministerio, el funcionario encargado de su dirección.

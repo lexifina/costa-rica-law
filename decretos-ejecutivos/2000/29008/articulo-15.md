@@ -1,0 +1,1 @@
+Artículo 15.—El personal asignado a cada encargado del equipo de trabajo, deberá cumplir el trabajo que se le asigne, siempre y cuando sea inherente a los objetivos, funciones y atribuciones de la Auditoría.

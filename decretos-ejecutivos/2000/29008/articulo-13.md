@@ -1,0 +1,1 @@
+Artículo 13.—La auditoría interna del Ministerio, para cumplir con las anteriores funciones contará con una estructura orgánica compuesta por equipos de trabajo con responsabilidad totalmente definida, los que al mismo tiempo tendrán su estructura dentro de los lineamientos de la organización global.

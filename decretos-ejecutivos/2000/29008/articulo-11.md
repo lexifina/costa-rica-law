@@ -1,0 +1,1 @@
+Artículo 11.—La auditoría interna deberá contar con los recursos humanos, materiales, tecnológicos, asesoría técnica, capacitación para el desarrollo profesional de sus funcionarios e instalaciones físicas necesarias para el adecuado cumplimiento de sus funciones. Para tales propósitos planteará sus necesidades ante Ministro.
