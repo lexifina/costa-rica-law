@@ -13,3 +13,4 @@ Fija Tasas de Servicio de Encomiendas Postales Internacionales CORTEL
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-11 | la propia norma |
+| 2 | 1996-07-11 | Decreto Ejecutivo 25892 (1997-03-13) |
