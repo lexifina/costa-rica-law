@@ -127,3 +127,4 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificado el límite de gasto presupuestario y efectivo del Consejo Técnico de Asistencia Médico Social para el año 2002 , por el artículo 1 del Decreto Ejecutivo N° 30109 de 14 de enero 2002)
 (Modificado el límite de gastos para el año 2002 de la Junta de Protección Social de San José , por el artículo 1 del Decreto Ejecutivo N° 30133 de 14 de enero 2002)
 (Modificado el límite de gastos para el año 2002 del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud, por el artículo 1 del Decreto Ejecutivo N° 30162 de 24 de enero 2002)
+(Modificado el límite de gasto presupuestario y efectivo del Museo Nacional de Costa Rica para el año 2002 , por el artículo 1 del Decreto Ejecutivo N° 30153 de 30 de enero 2002)

@@ -34,3 +34,4 @@ Directrices Generales de Política Presupuestaria del 2002 para los Ministerios,
 | 19 | 2002-01-14 | Decreto Ejecutivo 30109 (2002-01-14) |
 | 20 | 2002-01-24 | Decreto Ejecutivo 30162 (2002-01-24) |
 | 21 | 2002-01-25 | Decreto Ejecutivo 30142 (2002-01-25) |
+| 22 | 2002-01-30 | Decreto Ejecutivo 30153 (2002-01-30) |
