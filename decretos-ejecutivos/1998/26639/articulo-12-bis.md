@@ -1,0 +1,2 @@
+Artículo 12 bis.—Participación en programas de asistencia y cooperación internacional. Para cumplir con los fines a que aluden los artículos 3º y 5º de la Ley Nº 2035, el CNP podrá participar según convenga a sus intereses, en programas de asistencia y cooperación internacional o con sujetos de derecho público internacional.
+(Así adicionado mediante artículo 2° del Decreto Ejecutivo N°29722 de 04 de Julio de 2001)

@@ -14,3 +14,4 @@ Reglamento a la Ley Orgánica del Consejo Nacional de Producción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-03 | la propia norma |
+| 2 | 2001-07-04 | Decreto Ejecutivo 29722 (2001-07-04) |

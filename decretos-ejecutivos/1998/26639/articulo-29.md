@@ -1,6 +1,5 @@
 CAPITULO CUARTO
-Del nombramiento de los representantes estipulados en los incisos 6,
-7, 9 y 10 del artículo 15 ante la Junta Directiva del
+Del nombramiento de los representantes ante la Junta Directiva del
 Consejo Nacional de Producción
 Artículo 29.—Nombramientos representantes. Para efectos de la elección de los representantes ante la Junta Directiva, estipulados en los incisos 6, 7, 9, 10 del artículo 15 de la ley orgánica del CNP, modificada por la ley 7742, se procederá de la siguiente manera:
 a) El Ministro convocará a la Junta Directiva de la Cámara Nacional de Agricultura y Agroindustria a una sesión en la cual se procederá a elegir el representante ante la Junta Directiva del Consejo Nacional de Producción, de acuerdo con lo estipulado en el inciso 6) artículo 15 de la ley orgánica del CNP.

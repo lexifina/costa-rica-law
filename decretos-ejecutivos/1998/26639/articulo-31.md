@@ -1,1 +1,1 @@
-Artículo 31.—Logística. La logística necesaria para la realización de laAsamblea será aportada por el Consejo Nacional de Producción.
+Artículo 31.—(Derogado expresamente mediante artículo 5° de Decreto Ejecutivo N°29722 de 04 de Julio del 2001).

@@ -1,0 +1,2 @@
+Artículo 48.—Impacto de los proyectos. Los proyectos se deben orientar a lograr un impacto en la condición socioeconómica de los beneficiarios y en la zona donde se ejecutan. El CNP debe elaborar los criterios técnicos de valoración que permitan cuantificar este impacto. Se considera que un proyecto es exitoso, si a pesar de no generar utilidades contables, logre ese impacto socioeconómico cuantificado.
+(Así adicionado mediante artículo 2° del Decreto Ejecutivo N°29722 de 04 de Julio de 2001)

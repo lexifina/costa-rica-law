@@ -1,1 +1,1 @@
-Artículo 38.—Acuerdos. Los Acuerdos serán tomados en firme y para acreditar al miembro electo, el representante del MAG que fungió como Presidente, emitirá una certificación que deberá enviar a la Secretaría General de dicha Institución para los fines pertinentes.
+Artículo 38.—(Derogado expresamente mediante artículo 5° de Decreto Ejecutivo N°29722 de 04 de Julio del 2001).

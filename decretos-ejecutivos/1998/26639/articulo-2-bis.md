@@ -1,0 +1,2 @@
+Artículo 2 bis.—Direccionamiento de los beneficios de la Ley Nº 2035. Los beneficios de la Ley Nº 2035 estarán orientados preferiblemente a organizaciones de pequeños y medianos productores agropecuarios, sean éstas de primero, segundo y tercer grado. Se entenderán como organizaciones de primer grado las de base, de segundo grado aquellas integradas por organizaciones de base o de tercer grado las que integran las dos anteriores.
+(Así adicionado mediante artículo 2° del Decreto Ejecutivo N°29722 de 04 de Julio de 2001)

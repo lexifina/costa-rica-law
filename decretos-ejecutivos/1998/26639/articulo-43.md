@@ -1,1 +1,3 @@
-Artículo 43.—Vigencia. Rige a partir de su publicación.
+Artículo 43.—Utilización de los recursos. De conformidad con el artículo 49 de la Ley Nº 2035, los recursos del Programa de Reconversión Productiva se destinarán prioritariamente para el cumplimiento de sus objetivos y a la asignación de recursos reembolsables y no reembolsables a los proyectos debidamente aprobados por la Junta Directiva.
+Corresponde a la Junta Directiva determinar el porcentaje de los recursos que se destinarán al cumplimiento de sus objetivos y a la asignación de recursos a los proyectos.
+(Así adicionado mediante artículo 2° del Decreto Ejecutivo N°29722 de 04 de Julio de 2001)

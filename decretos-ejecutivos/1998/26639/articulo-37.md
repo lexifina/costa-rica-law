@@ -1,1 +1,1 @@
-Artículo 37.—Asamblea. Presidente. La Asamblea será presidida por un representante del Ministerio de Agricultura y Ganadería el cual tendrá derecho a voz pero no a voto. Deberá resolver de las incidencias que se presenten y levantará un Acta de lo acordado.
+Artículo 37.—(Derogado expresamente mediante artículo 5° de Decreto Ejecutivo N°29722 de 04 de Julio del 2001).

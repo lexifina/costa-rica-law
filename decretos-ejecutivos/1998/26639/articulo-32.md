@@ -1,1 +1,1 @@
-Artículo 32.—Plazo de celebración. La elección deberá celebrarse dentro del mes inmediato anterior al vencimiento del nombramiento del representante de los Centros Agrícolas Cantonales ante la Junta Directiva del Consejo Nacional de Producción.
+Artículo 32.—(Derogado expresamente mediante artículo 5° de Decreto Ejecutivo N°29722 de 04 de Julio del 2001).

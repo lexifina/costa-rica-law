@@ -1,1 +1,1 @@
-Artículo 35.—Candidatos. Podrá ser candidato a miembro de la Junta Directiva del Consejo Nacional de Producción, cualquier socio de un Centro Agrícola Cantonal, mayor de edad y de reconocida honorabilidad, el cuál deberá ser propuesto por un mínimo de cinco de estas organizaciones.
+Artículo 35.—(Derogado expresamente mediante artículo 5° de Decreto Ejecutivo N°29722 de 04 de Julio del 2001).
