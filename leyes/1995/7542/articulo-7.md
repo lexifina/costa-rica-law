@@ -1,0 +1,8 @@
+ARTICULO VII
+Las Partes Contratantes se comprometen a aprehender y decomisar, de
+conformidad con su legislación nacional, los vehículos de transporte
+aéreo, terrestre o marítimo empleados en el tráfico, distribución,
+almacenamiento o transporte ilícito de estupefacientes y sustancias
+psicotrópicas, incluidos los precursores y los productos químicos
+esenciales utilizados en la fabricación y transformación ilegal de esas
+sustancias.
