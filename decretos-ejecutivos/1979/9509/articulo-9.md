@@ -1,1 +1,0 @@
-Artículo 9°-Corresponde a OFIPLAN con la participación del Ministerio de Hacienda, negociar las prioridades de los proyectos a financiarse con recursos externos por parte de los organismos internacionales de créditos.

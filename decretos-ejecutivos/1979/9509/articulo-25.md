@@ -1,2 +1,0 @@
-Artículo 25.-Sin perjuicio de las atribuciones del Presidente de la República los contratos de préstamos del Gobierno Central y los de garantía del Estado sólo serán suscritos por el Ministro de Hacienda. Esta facultad puede ser delegada mediante acuerdo ejecutivo.
-El Ministro de Hacienda no suscribirá aquellos contratos de préstamo o garantía que no se hayan sometido al procedimiento establecido en este Reglamento y en los decretos N° 8760-H y N° 8761-H de 27 de junio y 6 de julio de 1978, respectivamente.

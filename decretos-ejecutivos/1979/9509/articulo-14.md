@@ -1,2 +1,0 @@
-Artículo 14.-Las instituciones mencionadas en el artículo anterior no podrán otorgar mandatos ni comprometerse con ningún banco o institución financiera del exterior, sin la previa autorización escrita del Ministerio de Hacienda. En el caso del Gobierno Central sólo el Ministro de Hacienda podrá otorgar los mandatos respectivos.
-Previo al otorgamiento de mandatos o. a su autorización, el Ministerio de Hacienda, a través de la Dirección de Financiamiento Externo, deberá solicitar al Banco Central el dictamen a que se refiere el artículo 122 de su ley orgánica.

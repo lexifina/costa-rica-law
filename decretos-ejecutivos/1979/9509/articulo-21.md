@@ -1,1 +1,0 @@
-Artículo 21.-El Consejo Nacional de Financiamiento Externo se reunirá en sesiones ordinarias una vez al mes, podrá ser convocado a sesiones extraordinarias por su presidente o por el Ministro de Hacienda, cuando lo estimen pertinente.

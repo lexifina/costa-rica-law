@@ -1,3 +1,0 @@
-Artículo 17.-Todas las operaciones de crédito público externo deberán ser resueltas personalmente por el Ministro de Hacienda, previo informe escrito de la dependencia o institución afectada y del Consejo Nacional de Financiamiento Externo, a quien deberá elevar su opinión razonada la Dirección de Financiamiento Externo.
-A la Asamblea Legislativa deberán enviarse, cuando el crédito deba ser aprobado por ella, el respectivo contrato junto con los informes y opiniones a que se refiere el párrafo anterior.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 9723 del 9 de marzo de 1979).

@@ -1,2 +1,0 @@
-Artículo 24.-La Dirección de Financiamiento Externo y el Consejo Nacional de Financiamiento Externo deberán en todo momento procurar que la contratación del crédito externo se haga en las mejores condiciones del mercado, al menor costo para el país y que su aparición en el mercado de capitales sea en forma organizada.
-Tanto la Dirección como e! Consejo sólo podrán negociar con bancos, instituciones o agentes financieros de primera clase.
