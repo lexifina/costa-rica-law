@@ -1,0 +1,2 @@
+Articulo IV
+La Compañía construirá un telégrafo electromagnético de Océano a Océano, según las invenciones más modernas, y con las últimas mejoras. Una tarifa redactada de común acuerdo entre el Gobierno de Costa Rica, y la Compañía, fijará los precios por telegrama que puedan cobrarse al público, pero estos nunca excederán del doble valor de la tarifa más alta una línea telegráfica en los Estados Unidos.
