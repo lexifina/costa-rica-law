@@ -1,0 +1,1 @@
+Artículo 3°—De igual forma se indemnizará a aquellos trabajadores de la faja transportadora que se vieron afectados en su ingreso salarial, como consecuencia de la gradual disminución en la utilización de la misma.
