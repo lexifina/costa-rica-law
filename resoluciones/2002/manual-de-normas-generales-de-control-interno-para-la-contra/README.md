@@ -14,3 +14,4 @@ Manual de Normas Generales de Control Interno para la Contraloría General de la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-05 | la propia norma |
+| 2 | 2003-12-05 | Resolución 0 (2003-12-05) |
