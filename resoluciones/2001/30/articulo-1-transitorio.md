@@ -1,0 +1,2 @@
+Transitorio único.– Mientras no existen plazas vacantes, el Gerente Tributario de las Administraciones Tributarias podrá designar al Coordinador del Área Legal de de entre los Resolutores Tributarios destacados en cada Administración. En caso de que el Gerente no, designe ningúnningún resolutor como Coordinador del Área Legal, que asumirá dicha coordinación como recargo.
+Dr. Adrián Torrealba Navas, Director General.
