@@ -1,0 +1,10 @@
+CAPÍTULO II
+Amortización, intereses, inspección y vigilancia
+y comisión de crédito
+Cláusula 2.01.—Amortización. El préstamo será amortizado por el prestatario mediante cuotas semestrales, consecutivas y en lo posible iguales. La primera cuota se pagará a los cincuenta y cuatro (54) meses contados a partir de la fecha de vigencia del presente Contrato, teniendo en cuenta lo previsto en el artículo 3.01 de las Normas Generales y la última, a más tardar el día 24 de enero de 2023.
+Cláusula 2.02.—Intereses.
+(a) Los intereses se devengarán sobre los saldos deudores diarios del préstamo a una tasa anual para cada Semestre que se determinará por el costo de los Empréstitos Unimonetarios Calificados para el Semestre anterior, más un diferencial, expresado en términos de un porcentaje anual, que el Banco fijará periódicamente de acuerdo con su política sobre tasa de interés. Tan pronto como sea posible, después de finalizar cada Semestre, el Banco notificará al prestatario acerca de la tasa de interés para el semestre siguiente.
+(b) Los intereses se pagarán semestralmente, comenzando a los seis (6) meses contados a partir de la fecha de vigencia del presente Contrato, teniendo en cuenta lo previsto en el artículo 3.01 de las Normas Generales.
+© Los intereses serán abonados con recursos del Financiamiento y sin necesidad de solicitud del prestatario, durante el período de desembolso y en las fechas establecidas en el párrafo anterior.
+Cláusula 2.03.—Recursos para inspección y vigilancia generales.Del monto del Financiamiento, se destinará la suma de ciento cuarenta y cuatro mil dólares (US$144.000) para cubrir los gastos del Banco por concepto de inspección y vigilancia generales. Dicha suma será desembolsada en cuotas trimestrales y en lo posible iguales, y se acreditará en la cuenta del Banco sin necesidad de solicitud del Prestatario.
+Cláusula 2.04.—Comisión de crédito. El Prestatario pagará una comisión de crédito de acuerdo con lo establecido en el Artículo 3.02 de las Normas Generales.
