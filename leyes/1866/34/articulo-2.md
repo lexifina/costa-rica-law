@@ -1,0 +1,1 @@
+Art 2° En el caso del artículo anterior se permitirá únicamente a los buques y a los correos dejar la correspondencia que traigan, entregándola a los empleados que deban recibirla en el lugar y forma que se designará en instrucción separada.
