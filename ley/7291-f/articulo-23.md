@@ -1,4 +1,3 @@
-ARTÖCULO 23
+ARTÍCULO 23
 Derecho aplicable
-El Tribunal decidir todas las controversias y demandas de
-conformidad con el art¡culo 293.
+El Tribunal decidir todas las controversias y demandas de conformidad con el artículo 293.
