@@ -10,9 +10,9 @@ El hecho generador de los impuestos establecidos en este artículo ocurre en las
 En la producción nacional, será contribuyente de estos impuestos el fabricante o envasador de dichos productos; en la importación o internación, la persona natural o jurídica que introduzca los productos o a cuyo nombre se importen o internen.
 Para aplicar estos impuestos, se entenderá por venta cualquier acto que involucre o tenga por fin último la transferencia del dominio del producto, independientemente de su naturaleza jurídica, la designación y las condiciones pactadas por las partes. Asimismo, se entenderá por importación o internación el ingreso al territorio nacional, una vez cumplidos los trámites legales, de los productos sujetos a estos impuestos, provenientes tanto de Centroamérica como del resto del mundo.
 Exceptúase del pago de estos impuestos el producto destinado a la exportación.
-NOTA: Los montos del impuesto aquí especificado fueron actualizados por el Decreto Ejecutivo N° 30908 de 6 de diciembre de 2002, de la siguiente manera:
+NOTA: Los montos del impuesto aquí especificado fueron actualizados por el Decreto Ejecutivo N° 31097 de 5 de marzo de 2003, de la siguiente manera:
 Tipo de bebida | Impuesto en colones por unidad de consumo
-Bebidas gaseosas y concentrados de gaseosas | 7.55
-Otras bebidas líquidas envasadas (incluso agua) | 5.61
-Agua (envases de 18 litros o más) | 2,61
-Impuesto por gramo de jabón de tocador | 0,096
+Bebidas gaseosas y concentrados de gaseosas | 7.72
+Otras bebidas líquidas envasadas (incluso agua) | 5.74
+Agua (envases de 18 litros o más) | 5.67
+Impuesto por gramo de jabón de tocador | 0,098
