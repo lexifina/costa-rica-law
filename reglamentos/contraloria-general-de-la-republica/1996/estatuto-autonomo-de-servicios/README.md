@@ -14,3 +14,4 @@ Estatuto Autónomo de Servicios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-17 | la propia norma |
+| 2 | 1996-10-16 | Reglamento 19 (1996-10-16) |
