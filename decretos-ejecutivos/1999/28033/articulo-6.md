@@ -1,0 +1,1 @@
+Artículo 6°—La Autoridad Presupuestaria, según su proceder administrativo y técnico, hará extensivas a las instituciones que corresponda, las resoluciones que respecto de las disposiciones del presente decreto, emita la Dirección General de Servicio Civil. Así mismo autorizara el aumento establecido en este Decreto, para las instituciones bajo su ámbito "no Homologadas".

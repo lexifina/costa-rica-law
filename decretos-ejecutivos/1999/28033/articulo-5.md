@@ -1,0 +1,1 @@
+Artículo 5°—Autorícese por una sola vez y en un monto único, el pago de un bono a los trabajadores públicos en servicio. Por su naturaleza, este bono se otorga como una compensación que no integra al salario de dichos servidores y corresponde a la suma de dos mil quinientos colones (C2.500,00) por servidor, en similitud de condiciones no es sujeto de cargas sociales.

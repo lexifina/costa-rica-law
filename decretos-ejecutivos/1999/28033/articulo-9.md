@@ -1,0 +1,1 @@
+Artículo 9°—Ninguna institución pública podrá exceder en monto ni vigencia el límite de aumento general definido en el presente Decreto ni el límite de bono otorgado conforme el artículo 5° precedente.
