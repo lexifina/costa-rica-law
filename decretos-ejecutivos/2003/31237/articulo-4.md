@@ -1,0 +1,1 @@
+Artículo 4°—Se crea el Consejo de Representantes de las Autoridades Científicas que estará conformado por un representante de cada dependencia enunciada en el artículo 2°. Estas representaciones serán ad-honorem y sus funciones serán dadas en el artículo 13.

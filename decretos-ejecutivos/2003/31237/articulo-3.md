@@ -1,0 +1,1 @@
+Artículo 3º—Cada Autoridad Científica, estará en la obligación de proporcionar al SINAC, un registro de los profesionales especialistas en los diferentes campos de la vida silvestre, a los que la Autoridad Administrativa podrá solicitar directamente criterios técnicos según especialidades.
