@@ -1,0 +1,2 @@
+Artículo 10.—Autorización de la tarifas. La autorización de tarifas se regirá conforme a lo dipuesto en el artículo 18 de la ley 7717. Para la fijación respectiva por parte de la Dirección de Ingeniería de Tránsito, se tomarán en consideración los costos de operación, índices de inflación, demanda potencial de usuarios y la tarifa anterior, para lo cual podrá solicitar a los interesados los documentos que estime necesarios.
+Dicha Dirección deberá denunciar si tuviera indicios de prácticas monopolísticas.

@@ -1,0 +1,1 @@
+Artículo 16.—Colisiones dentro de los estacionamientos. Cuando se produjere alguna colisión entre dos o más vehículos dentro de un estacionamiento público, y alguna de las partes solicitare el ingreso de un inspector de tránsito, no podrá la gerencia del estacionamiento ni su personal negar el acceso al sitio de las correspondientes autoridades, ni obstaculizar sus funciones.

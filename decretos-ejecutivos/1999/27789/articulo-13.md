@@ -1,0 +1,1 @@
+Artículo 13.—Normativa aplicable. A los efectos del cumplimiento del debido proceso, se tienen por incorporados las normas y principios jurídicos establecidos en la Ley General de la Administración Pública.

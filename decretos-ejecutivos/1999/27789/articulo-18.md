@@ -1,0 +1,1 @@
+Artículo 18.—Fondos. Los fondos provenientes de las multas que se impusieren a tenor de lo establecido en el inciso a) del artículo 14 de este reglamento, serán depositados en la respectiva cuenta del Consejo de Seguridad Vial, a cargo de los Programas que la Dirección de Ingeniería de Tránsito lleve a cabo para el cumplimiento de lo establecido en dicha Ley.

@@ -1,0 +1,2 @@
+Artículo 8°—De la póliza de seguros. Todo estacionamiento público remunerado deberá contar, al menos, con una póliza individual o colectiva, que expida el Instituto Nacional de Seguros y la cual servirá para enfrentar los reclamos que se presentaren por daños o robo de un vehículo dentro del parqueo.
+La respectiva póliza deberá ser suscrita inmediatamente al momento de entrar en funcionamiento y debiendo el interesado entregar, a su vez, copia certificada de la misma a la Dirección de Ingeniería de Tránsito, en los ocho días hábiles siguientes a su suscripción.

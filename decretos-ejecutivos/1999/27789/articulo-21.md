@@ -1,0 +1,1 @@
+Artículo 21.—Recargo en tarifas. Para los efectos de establecer los días feriados en los cuales podrá cobrarse el porcentaje adicional a que alude el artículo 19 de la Ley Reguladora de los Establecimientos Públicos, estos serán los señalados en el artículo 148 del Código de Trabajo.

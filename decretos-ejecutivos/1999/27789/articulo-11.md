@@ -1,0 +1,3 @@
+Artículo 11.—Recursos Administrativos. Contra los actos que emita la Dirección de Ingeniería de Tránsito cabrá recurso de revocatoria para ante el mismo órgano y de apelación en subsidio para ante el Despacho del Ministro de Obras Públicas y Transportes.
+Podrá interponerse, así mismo, incidente de suspensión de los efectos de acto administrativo, cuando se ordenare el cierre temporal o definitivo del establecimiento, en cuyo caso deberá el interesado sustentar y demostrar, técnica y jurídicamente, las razones de dicha solicitud. Dicho incidente deberá ser resuelto "prima facie".
+Los recursos e incidentes deberán ser interpuestos por quienes ostenten la legitimación necesaria, conforme lo dispuesto por nuestro ordenamiento jurídico.

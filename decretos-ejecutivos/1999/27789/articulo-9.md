@@ -1,0 +1,5 @@
+Artículo 9°—Responsabilidad de los prestatarios del servicio de estacionamiento público. De conformidad con lo establecido por la ley No 7717 del 4 de noviembre de 1997, las personas físicas o jurídicas que presten el servicio de estacionamiento público asumirán, por medio de sus empleados y dependientes, las siguientes obligaciones y responsabilidades:
+a) Ser responsables y garantes de la guarda y custodia de los vehículos que permanezcan dentro del estacionamiento público.
+b) Responder del daño, menoscabo o perjuicio que se cause a los vehículos dentro del estacionamiento por dolo o culpa atribuible o imputable al prestatario del servicio o a sus empleados, según corresponda.
+c) Ejercer las medidas razonables que fueren necesarias para la aprehensión de los presuntos responsables y comunicar de inmediato a las autoridades respectivas, en los casos de comisión de delitos contra la propiedad y afectación a cualquiera de los automotores bajo su custodia.
+d) Suscripción de una póliza de seguros, individual o colectiva, para enfrentar los eventuales reclamos originados en daños o robo de los vehículos automotores.

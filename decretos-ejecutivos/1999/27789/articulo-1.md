@@ -1,0 +1,16 @@
+No 27789-MOPT
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES,
+En el ejercicio de las facultades conferidas por el artículo 140, incisos 3) y 18) de la Constitución Política; y con fundamento en lo establecido por la Ley de Creación del Ministerio de Obras Públicas y Transportes, No 4786 del 5 de julio de 1971 y sus reformas; la Ley General de la Administración Pública, No 6227 del 2 de mayo de 1978 y sus reformas; la Ley de Administración Vial, No 6324 del 24 de mayo de 1979 y sus reformas; la Ley de Tránsito por Vías Públicas Terrestres, No 7331 del 13 de abril de 1993 y sus reformas; la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, No 7472 del 20 de diciembre de 1994; la Ley de Igualdad de Oportunidades para las personas con discapacidad. No 7600 del 2 de mayo de 1996; y la Ley Reguladora de los Estacionamientos Públicos, No 7717 del 4 de noviembre de 1997.
+Considerando:
+1°—Que el funcionamiento de “estacionamientos públicos” evita el congestionamiento de dichas vías y que los conductores encuentren sitios o lugares adyacentes a las vías en donde puedan aparcar los automotores en condiciones adecuadas de seguridad.
+2°—Que mediante Ley Reguladora de los Estacionamientos Públicos, No 7717 del 4 de noviembre de 1997, se establecieron las regulaciones fundamentales de prestación de los servicios de guarda y custodia de vehículos en los edificios o lotes destinados a estacionamientos públicos, de la cual es preciso emitir las disposiciones normativas complementarias claras y concisas para agilizar los trámites establecidos en la ley así como precisar los alcances de la ley.
+3°—Que la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, establece la obligación de la Administración Pública de revisar, analizar, simplificar y eliminar trámites, cuando corresponda, para proteger el ejercicio de la libertad de empresa y garantizar la defensa de la productividad.
+4°—Que es fundamental mantener un adecuado equilibrio entre aquellas regulaciones que como mínimo deben mantenerse para satisfacer el interés público, inmerso en los distintos procesos socioeconómicos, y las acciones aisladas por parte de la Administración, que lejos de satisfacer ese interés, lo perjudican.
+5°—Que es necesario emitir la normativa para simplificar los trámites de funcionamiento e introducir elementos que estimulen la competencia en beneficio de la actividad de estacionamientos públicos así como del consumidor. Por tanto,
+decretan:
+El siguiente,
+Reglamento a la Ley Reguladora de Estacionamientos Públicos.
+(Ley No 7717 del 20 de noviembre de 1997)
+Artículo 1°—Ambito de aplicación. El presente Reglamento regula la prestación de los servicios de guarda y custodia de los vehículos automotores en los edificios, lotes o inmuebles, en general, dedicados a tales propósitos, que se identifiquen como "estacionamientos públicos", y en donde el carácter remunerativo constituye un aspecto esencial de la actividad.
+Corresponderá a la Dirección de Ingeniería de Tránsito, con la colaboración de la Dirección de Policía de Tránsito, ambas del Ministerio de Obras Públicas y Transportes, la fiscalización de los estacionamientos públicos en cuanto a capacidad, demarcación, medida y uso de los espacios, al igual que la zona a destinar para el estacionamiento de motocicletas.

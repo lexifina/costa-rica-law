@@ -1,0 +1,2 @@
+Artículo 19.—Estacionamientos temporales. Los Interesados en obtener autorización para el funcionamiento de estacionamientos temporales u ocasionales, deberán presentar solicitud por escrito ante la Dirección de Ingeniería de Tránsito, con el solo cumplimiento de los requisitos establecidos en los incisos b), d), e) o f) del artículo 5 de este Reglamento.
+Los artículos 3° y 4° de este Reglamento no les serán de aplicación y las tarifas se fijarán libremente entre el prestatario del servicio y el usuario, sin participación alguna de los órganos estatales aquí contemplados.
