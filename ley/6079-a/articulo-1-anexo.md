@@ -106,11 +106,15 @@ Derechos percibidos: | Desde....................................................
 Hecha en ......................................................................... | Hasta ..................................................................
 | Fecha…………………………………………………………..
 | Firma y sello de la autoridad que prorroga o renueva la validez del documento:
+|
+|
 Prórroga o renovación de validez
 Derechos percibidos: | Desde....................................................................
 Hecha en ......................................................................... | Hasta ..................................................................
 | Fecha…………………………………………………………..
 | Firma y sello de la autoridad que prorroga o renueva la validez del documento:
+|
+|
 (Este documento contiene... páginas, sin contar la cubierta).
 (6)
 Prórroga o renovación de validez
@@ -118,12 +122,16 @@ Derechos percibidos: | Desde....................................................
 Hecha en ......................................................................... | Hasta ..................................................................
 | Fecha…………………………………………………………..
 | Firma y sello de la autoridad que prorroga o renueva la validez del documento:
+|
+|
 (Este documento contiene... páginas, sin contar la cubierta).
 Prórroga o renovación de validez
 Derechos percibidos: | Desde....................................................................
 Hecha en ......................................................................... | Hasta ..................................................................
 | Fecha…………………………………………………………..
 | Firma y sello de la autoridad que prorroga o renueva la validez del documento:
+|
+|
 (Este documento contiene... páginas, sin contar la cubierta).
 (7-32)
 Visados
