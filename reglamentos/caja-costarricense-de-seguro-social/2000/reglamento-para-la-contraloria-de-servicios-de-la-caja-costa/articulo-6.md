@@ -1,0 +1,1 @@
+Articulo 6°—La desatención injustificada de los requerimientos de colaboración e información, hechos por la Contraloría de Servicios, por parte de funcionarios de la institución, se considerará falla grave, para todos los electos legales.
