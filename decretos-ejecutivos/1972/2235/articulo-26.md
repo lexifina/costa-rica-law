@@ -1,8 +1,7 @@
-ARTICULO 26.- Cuando existiere queja o denuncia por presunta falta
-grave contra un servidor docente, el Departamento de Personal levantará
-la información respectiva, la cual deberá concluirse en un lapso no mayor
-de tres meses. Al efecto, se observarán los procedimientos que se
-establecen en los artículos 68 a 72 del Estatuto. Una vez concluidos
-dichos trámites, el Director del Departamento de Personal pasará el
-expediente al Tribunal de la Carrera para lo que proceda en derecho, de
-conformidad con lo que prescriben los artículos 73 y 74 ibídem.
+ARTICULO 26.-
+Cuando existiere queja o denuncia por la presunta comisión de falta grave o de alguna gravedad, contra un servidor docente, según se detalla en los artículos 65 y 66 del Estatuto de Servicio Civil, la Dirección General de Personal, realizará una investigación de los hechos denunciados, que deberá concluirse en el plazo ordenatorio de tres meses. Sin embargo, cuando existan razones justificadas y antes de concluir este término, mediante resolución razonada podrá prorrogarse por otro período igual.
+El inicio del cómputo del plazo ordenatorio, señalado en el párrafo anterior, operará en el momento en que sea la Dirección General de Personal tenga conocimiento de la queja o denuncia.
+Al efecto, se observará el procedimiento establecido en los artículos 59 y siguientes del Estatuto de Servicio Civil y lo dispuesto en este Reglamento.
+Concluido el término señalado, el Director General de Personal, o el Ministro de Educación Pública, cuando se trata del cese de funciones de un servidor interino, dispondrán de un mes para dictar el acto o resolución final que en Derecho procedan. La resolución que dicte el Ministro, dará por agotada la vía administrativa.
+La impugnación de las amonestaciones o suspensiones acordadas por el Director General de Personal contra los servidores interinos, se llevará a cabo mediante los recursos ordinarios de revocatoria y apelación para ante el Ministro de Educación Pública, dentro del término establecido por el artículo 66 del Estatuto de Servicio Civil.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 29572 de 10 de mayo del 2001. Véase las observaciones a la Ley)
