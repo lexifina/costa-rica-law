@@ -1,0 +1,1 @@
+Art 4. Por cada saco de café que se remita al puerto del Sur deberá entregarse, á su tránsito por la Aduana del Rio-Grande, un billete de los que se mencionan en los articulos precedentes, al empleado à quien se encargue su recepcion, o al que la Direccion de caminos establezca allí con tal objeto.
