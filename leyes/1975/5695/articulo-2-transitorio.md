@@ -1,0 +1,1 @@
+Transitorio II.- La Junta dará prioridad a la reorganización y modernización del Registro Público y luego al Registro de Propiedad Mueble. El Catastro para Aplicaciones Jurídicas y los demás registros serán atendidos por ella, de acuerdo con las necesidades de cada dependencia, siempre que se hayan traspasado al Ministerio de Gobernación.

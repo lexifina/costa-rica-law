@@ -1,0 +1,1 @@
+Artículo 5º.- La Junta acordará los días y horas de sesión, así como el lugar de las mismas. Sus miembros devengarán un máximo de cuatro dietas mensuales de ¢ 200.00 cada una, siempre que no se produzca superposición horaria con las labores ordinarias de los funcionarios públicos que integran la Junta y las sesiones de ésta.
