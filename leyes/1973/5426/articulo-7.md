@@ -1,4 +1,0 @@
-Artículo 7°-Una vez determinada la cantidad necesaria para satisfacer el consumo interno, éste se abastecerá de la oferta que normalmente existe de ganado en pie en las diferentes plazas, más una cantidad porcentual de carne del ganado macho gordo o de exportación que las plantas procesadora s deberán dejar en el país por cada cien kilos que exportan.
-Esta cantidad proporcional, calculada por la Comisión Asesora y aprobada por la Junta Directiva del Consejo Nacional de Producción, tendrá por objeto regular el Mercado Nacional de la Carne, suministrando la cantidad necesaria para que no se sobrepasen los precios de las distintas calidades, fijados por el Ministerio de Economía, Industria y Comercio.
-A medida en que las plantas empacado ras satisfagan este requisito del consumo local, podrán exportar la carne de ganado macho gordo de que dispongan.
-La Junta Directiva del Consejo Nacional de Producción fijará oportunamente el proyecto oficial de fijación de cuotas.
