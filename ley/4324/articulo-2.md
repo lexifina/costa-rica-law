@@ -1,0 +1,1 @@
+Artículo 2°.- El lote que se traspasa al Instituto Costarricense de Electricidad, se destinará exclusivamente a la construcción del edificio que alojará la central telefónica automática de la ciudad de Nicoya.
