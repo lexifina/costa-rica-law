@@ -1,5 +1,5 @@
 N° 6894
-LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+LA ASAMBLEA DE LA REPÚBLICA DE COSTA RICA
 Decreta:
 Artículo 1º.- Refórmanse los artículos 63, párrafos primero y segundo, 141, 144, 164, 165, 170, 173, 174 y 177 de la Ley Orgánica del Sistema Bancario Nacional, número 1644 del 26 de setiembre de 1953, para que digan así:
 "Artículo 63.- La Junta Directiva de cada banco comercial del Estado establecerá las disposiciones reglamentarias y normas de operación que considere más convenientes para la concesión de créditos por parte de su banco.
