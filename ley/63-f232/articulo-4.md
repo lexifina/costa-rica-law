@@ -1,0 +1,1 @@
+Art, 4. Así mismo nombrarà el citado Gobernador Politico dos personas con las calidades prescritas en el art. anterior, y que tampoco pueden excusarse, con quienes se deberà asociar para atender à los reclamos que se hagan por agravio en la distribucion; y comprobado aquel, se reducirà esta a su justo término.
