@@ -15,3 +15,4 @@ Tarifas para las Áreas Silvestres Protegidas bajo la Administración del Sistem
 | --- | --- | --- |
 | 1 | 1999-05-18 | la propia norma |
 | 2 | 2001-11-27 | Decreto Ejecutivo 30067 (2001-11-27) |
+| 3 | 2002-04-23 | Decreto Ejecutivo 30355 (2002-04-23) |
