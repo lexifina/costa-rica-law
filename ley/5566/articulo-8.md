@@ -1,15 +1,3 @@
 ARTICULO OCTAVO
-Para facilitar el logro de los objetivos del presente convenio, las
-Partes Contratantes que tengan intereses comunes que proteger en el medio
-marino de una zona geográfica determinada se esforzarán en concertar
-acuerdos en el plano regional, para la prevención de la contaminación,
-especialmente por vertimiento, teniendo en cuenta los aspectos
-característicos de la región y en conformidad con el presente Convenio.
-Las Partes Contratantes del presente Convenio se esforzarán en obrar
-conforme a los objetivos y disposiciones de los acuerdos regionales que
-la Organización les notifique. Las Partes Contratantes procurarán
-cooperar con las Partes de acuerdos regionales para elaborar
-procedimientos armonizados que deban ser observados por las Partes
-Contratantes de los diversos convenios en cuestión. Se prestará especial
-atención a la cooperación en la esfera de vigilancia y control, así como
-en la de investigación científica.
+Para facilitar el logro de los objetivos del presente convenio, las Partes Contratantes que tengan intereses comunes que proteger en el medio marino de una zona geográfica determinada se esforzarán en concertar acuerdos en el plano regional, para la prevención de la contaminación, especialmente por vertimiento, teniendo en cuenta los aspectos característicos de la región y en conformidad con el presente Convenio.
+Las Partes Contratantes del presente Convenio se esforzarán en obrar conforme a los objetivos y disposiciones de los acuerdos regionales que la Organización les notifique. Las Partes Contratantes procurarán cooperar con las Partes de acuerdos regionales para elaborar procedimientos armonizados que deban ser observados por las Partes Contratantes de los diversos convenios en cuestión. Se prestará especial atención a la cooperación en la esfera de vigilancia y control, así como en la de investigación científica.
