@@ -1,0 +1,1 @@
+Artículo 54.-Al tiempo de elegirse en cada Provincia donde haya establecida Imprenta, las autoridades municipales, se elegirán también ochenta jurados, de cuya elección se dar cuenta por el Gobernador dentro de ocho días después de verificada, a la Corte Suprema de Justicia y al Juez del Crimen respectivo. También se publicar en el periódico Oficial.

@@ -1,0 +1,1 @@
+Artículo 83.-Si el impreso estuviese autorizado con firma de persona responsable, desde luego se le citar para que reconozca su firma. En caso de negar la firma la persona que aparece suscrita, se proceder como si el impreso fuese anónimo para que se presente el original como queda prevenido.

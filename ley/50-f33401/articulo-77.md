@@ -1,0 +1,2 @@
+Artículo 77.-Seguidamente el Presidente anunciar que se va a deliberar, y saliendo las partes y demás circunstancias continuar la sesión, a puerta cerrada, la cual no podrá suspenderse ni postergarse, hasta que se pronuncie el veredicto, en el cual el Jurado se limitar a declarar. Se ha abusado de la Imprenta, infringiendo el artículo de la ley de la misma en tal grado de culpabilidad; no se ha infringido la ley.
+único. -Los grados de culpabilidad son tres: 1° grave 2° medio; y 3° mínimum.

@@ -1,0 +1,1 @@
+Artículo 10.-Cuando la venta, circulación, o expendio se haga con posterioridad a haberse publicado la calificación condenatoria del libro, folleto, periódico, hoja suelta o impreso, la pena ser el duplo de las designadas en el artículo anterior.

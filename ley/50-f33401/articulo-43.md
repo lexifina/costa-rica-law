@@ -1,0 +1,2 @@
+Artículo 43.-Siempre que recayese sentencia condenatoria de un impreso, quedar por el mismo hecho, prohibida su circulación y se inutilizar n los ejemplares que pudiesen recogerse, todo a costa del culpable. -
+La conservación u ocultación de impresos que hayan sido condenados por el Tribunal, con intención de eludir las disposiciones de esta ley, ser castigado con la tercera parte de la pena impuesta al responsable del impreso.

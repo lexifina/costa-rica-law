@@ -1,0 +1,1 @@
+Artículo 14.-Se llama periódico, todo impreso destinado a la circulación y que se publique en ‚pocas correlativamente determinadas; ya sea con un nombre adoptado de antemano o ya con nombres o títulos distintos en cada publicación.

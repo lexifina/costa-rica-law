@@ -1,0 +1,1 @@
+Artículo 44.-La reimpresión de un escrito abusivo, sujeta al autor o Editor de la reimpresión, a los mismos Tribunales, procedimientos y penas que al autor o Editor del escrito original; pero si el escrito hubiese sido condenado ya y se reimprimiese a sabiendas, la pena ser doble.

@@ -1,0 +1,1 @@
+Artículo 58.-Si después de hecha la elección de autoridades municipales, se estableciese una Imprenta en una Provincia donde antes no había, el Gobernador deber convocar en el término más breve posible, la electoral con el objeto de elegir el Jurado que corresponde.

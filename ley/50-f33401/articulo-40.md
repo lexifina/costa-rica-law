@@ -1,0 +1,1 @@
+Artículo 40.-Los delitos contra los particulares, cometidos por medio de la Imprenta, serán castigados con una multa de veinticinco a doscientos pesos, o con arresto de un mes a un año, por solo el abuso de la libertad de imprenta, sin perjuicio de las demás penas que el ofendido puede reclamar ante los Tribunales ordinarios por la injuria o calumnia.
