@@ -1,4 +1,6 @@
+(Derogado)
 N° 10535
+(Este Decreto fue derogado por el artículo 2 del decreto ejecutivo N°20082 del 09 de noviembre de 1990, no obstante mediante el artículo 3 del decreto ejecutivo N°31591 del 18 de noviembre del 2003 que redefine los límites del Parque Nacional Palo Verde, se deroga parcialmente ... únicamente en cuanto a la definición de los límites del área silvestre protegida, manteniéndose vigente las demás disposiciones)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
 Con fundamento en la Ley número 4551 de 15 de abril de 1970 y
