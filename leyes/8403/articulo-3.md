@@ -1,0 +1,2 @@
+Artículo 3º—Sujeción de los procedimientos de contratación
+al ordenamiento jurídico nacional. Ninguno de los procedimientos de contratación que se realicen con los recursos de este empréstito, podrá ser contrario al ordenamiento jurídico nacional vigente en esta materia. Asimismo, en los procedimientos especiales de licitación se aplicarán los principios fundamentales de la contratación administrativa, así como el régimen de prohibiciones establecido en el artículo 22 de la Ley de Contratación Administrativa y el artículo 24 de su Reglamento.
