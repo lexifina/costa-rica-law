@@ -14,3 +14,4 @@ Declara de interés público las actividades que llevará a cabo la Dirección N
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-06 | la propia norma |
+| 2 | 2004-08-13 | Decreto Ejecutivo 32085 (2004-08-13) |

@@ -7,4 +7,5 @@ Considerando:
 2º—Que las actividades que se realizarán durante el Congreso indicado, se consideran de importancia para el país en materia de desarrollo comunal, toda vez que se reunirá a dirigentes a nivel nacional encargados de diversas Asociaciones de Desarrollo Comunal.
 3º—Que los organizadores del evento han solicitado al Ministerio de Gobernación y Policía, y Seguridad Pública, la declaratoria de interés público de la actividad. Por tanto:
 DECRETAN:
-Artículo 1º—Se declara de interés público las actividades que llevará a cabo la Dirección Nacional de Desarrollo de la Comunidad, con motivo de la celebración del Segundo Congreso Nacional de Asociaciones de Desarrollo, que tendrá lugar en nuestro país los días 24 y 25 de junio del 2004.
+Artículo 1º—Se declara de interés público las actividades que llevará a cabo la Confederación Nacional de Asociaciones de Desarrollo Comunal los días 29, 30 y 31 de octubre del 2004, con motivo de la celebración del Congreso Nacional de Asociaciones de Desarrollo de la Comunidad.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 32085 del 13 de agosto del 2004)
