@@ -1,0 +1,6 @@
+DECRETO III.
+Dispone que solo los naturales de Aserri y Pacaca puedan tomar el fruto de los cocales de “Pirris.” (1)
+(1) Ver el Decreto de la A. Constituyente n° 14 de 24 de Agosto de 1842
+"'El Jefe Supremo del Estado Soberano de Costa Rica.
+Con noticia de que los pescadores de carei, y demás personas que frecuentan las playas de Pirris en la costa del Sur con objeto de cortar cocos, al aprovecharse del fruto, abusan de esta franquicis destruyendo los árboles; y atendiendo á que es necesario remediar este mal que arruina del todo aquellas plantas, dispone.
+Que en lo sucesivo, solo se permite á los naturales de Aserrí y Pacaca tomar el fruto de los referidos cocales, bajo la precisa condición de conservarlos y aumentarlos, cuidando de que no los corten otras personas: á este efecto se les autoriza para que puedan aprehender á los que allí de encuentren , con el conocido designio de hacer uso de dicha fruta, en cuyo caso los presentarán á la autoridad política Departamental, para que les exija dos reales por cada una de las que hayan cortado; y cinco pesos por cada árbol derribado. –Dado en San José, á primero de Abril de mil ochocientos cuarenta y uno. –Braulio Carrillo. – El Secretario General. – M. Guevara.
