@@ -1,0 +1,7 @@
+Artículo 10.- Los concesionarios, para asegurar el cumplimiento de
+sus obligaciones, constituirán el depósito u otorgarán la garantía que
+fije el Ministerio de Seguridad Pública, que no podrá ser inferior a mil
+colones (¢ 1,000.00) ni superior a cinco mil colones (¢ 5,000.00). La
+garantía podrá ser fianza, prenda, hipoteca, depósito de dinero o de
+valores del Estado, o una póliza de fidelidad del Instituto Nacional de
+Seguros, a juicio del Ministerio de Seguridad Pública.
