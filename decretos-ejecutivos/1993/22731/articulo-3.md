@@ -1,1 +1,0 @@
-Artículo 3°—La administración de esta área protegida corresponde a la Dirección General de Vida Silvestre del Ministerio de Recursos Naturales. Energía y Minas, que deberá manejarla acorde con las disposiciones técnicas y jurídicas establecidas en la Ley No 7317 del 30 de octubre de 1992 y su reglamento.
