@@ -1,0 +1,1 @@
+Artículo III.—De los usuarios: Podrán hacer uso de los servicios de las bibliotecas infantiles, todos los niños menores de 14 años. Los jóvenes mayores de 14 años serán atendidos siempre y cuando porten su carné de estudiante y si la Dirección lo autoriza.
