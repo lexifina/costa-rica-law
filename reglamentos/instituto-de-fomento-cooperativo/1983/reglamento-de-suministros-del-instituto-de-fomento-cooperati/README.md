@@ -15,3 +15,4 @@ Reglamento de Suministros del Instituto de Fomento Cooperativo
 | --- | --- | --- |
 | 1 | 1983-10-27 | la propia norma |
 | 2 | 1985-02-07 | Reglamento 1411 (1985-02-07) |
+| 3 | 1985-04-25 | Reglamento 1431 (1985-04-25) |

@@ -1,1 +1,1 @@
-Artículo 38.-De la apertura de ofertas asentará en el libro de licitaciones legalizado por la Contraloría General de la República, un acta que será suscrita por los participantes presentes, y refrendada por el representante de la Auditoría.
+Artículo 38.-La Proveeduría con la colaboración del Jefe del Departamento interesado, procederá a estudiar detenidamente las ofertas y confeccionará para la Dirección Ejecutiva la recomendación que proceda.

@@ -1,1 +1,1 @@
-Artículo 82.-Para los trámites de remate, se seguirán los procedimientos determinados en los artículos del 184 al 192 del Reglamento de la Contratación Administrativa.
+Artículo 82.-Los artículos en desuso y los de desecho cuyo valor en libros o según peritaje, no excedan el limite fijado por el artículo 208 del Reglamento de la Contratación Administrativa, podrán ser donados por el INFOCOOP a otros entes públicos, a cooperativas, a organismos de bien social o de interés comunal.

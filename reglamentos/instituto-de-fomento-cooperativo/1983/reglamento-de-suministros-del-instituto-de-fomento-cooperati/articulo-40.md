@@ -1,1 +1,1 @@
-Artículo 40.-Dentro de los treinta días hábiles siguientes al acto de apertura, o dentro del mayor tiempo señalado en el cartel, conforme con lo dispuesto por el artículo 39 del Reglamento para la Contratación Administrativa, procederá la Junta Directiva a adjudicar el negocio licitado o a declararlo desierto.
+Artículo 40.-El acto de adjudicación o declaratoria de deserción será notificado por la Proveeduría en forma escrita a los concursantes dentro de los quince días hábiles siguientes de tomado el acuerdo (artículo 170 del Reglamento de la Contratación Administrativa).

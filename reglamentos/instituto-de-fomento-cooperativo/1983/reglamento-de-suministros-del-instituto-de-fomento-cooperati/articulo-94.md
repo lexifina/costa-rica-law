@@ -1,1 +1,1 @@
-Artículo 94.-La Proveeduría deberá preparar con suficiente anticipación las licitaciones para la adquisición de materiales y útiles de oficina de uso corriente.
+Artículo 94.-Cuando se trate de pedidos al exterior, la proveeduría dará su conformidad firmando la factura original de la casa vendedora de no estar conforme o no presentar problemas de saqueo o robo deberá realizar las reclamaciones correspondientes e informar a sus superiores.

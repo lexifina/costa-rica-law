@@ -1,3 +1,1 @@
-CAPITULO SETIMO
-Del trámite de pago
-Artículo 21.-Corresponde al Departamento de Finanzas la confección del cheque, cancelación de los justificantes y demás movimientos contables que procedan al pago.
+Artículo 21.-El Departamento de Finanzas devolverá a la Proveeduría la orden de compra que no esté debidamente documentada para su cancelación.

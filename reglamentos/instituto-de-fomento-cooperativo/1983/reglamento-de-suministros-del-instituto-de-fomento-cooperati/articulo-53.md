@@ -1,2 +1,1 @@
-Artículo 53.-Cualquier modificación, prórroga al plazo para recibir las ofertas, aclaraciones e interpretaciones debe publicarse en "La Gaceta" a más tardar el día anterior a la fecha fijada para la presentación de ofertas.
-Si una modificación introduce una alteración importante en la concepción original del objeto del concurso o lo sustituye, los nuevos plazos para recibir ofertas se extenderán conforme con lo que se indica en el artículo 52 anterior, a partir de la fecha de su publicación.
+Artículo 53.-Toda oferta deberá acompañarse de una garantía de participación que se regirá por las normas establecidas en el capítulo cuarto del título tercero del Reglamento de la Contratación Administrativa.

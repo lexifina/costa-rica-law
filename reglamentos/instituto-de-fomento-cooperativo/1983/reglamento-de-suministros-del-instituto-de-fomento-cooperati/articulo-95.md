@@ -1,1 +1,1 @@
-Artículo 95.-Cuando se trate de pedidos al exterior, la proveeduría dará su conformidad firmando la factura original de la casa vendedora. De no estar conforme o presentar problemas de saqueo o robo deberá realizar las reclamaciones correspondientes e informar a sus superiores.
+Artículo 95.-El presente reglamento sólo podrá ser modificado por la Junta Directiva.

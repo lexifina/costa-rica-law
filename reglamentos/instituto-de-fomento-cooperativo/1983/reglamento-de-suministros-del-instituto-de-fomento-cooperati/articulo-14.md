@@ -1,3 +1,1 @@
-CAPITULO QUINTO
-Del papel de los departamentos en el proceso de contratación administrativa
-Articulo l4.-Los departamentos determinarán anualmente las cantidades y especificaciones de los bienes y servicios a utilizar conforme con las necesidades reales y previsibles del departamento o institución y confeccionará la solicitud de materiales y servicios según sea el caso, remitiéndola posteriormente al Departamento de Planificación para la confección del presupuesto correspondiente. No está permitido a los departamentos intervenir en los trámites de adquisición de bienes y servicios que por disposición en este reglamento únicamente son competencia de la Proveeduría, con las excepciones que indica el artículo 8°.
+Artículo 14.-El Departamento de Finanzas, verificará si existe contenido económico para respaldar la orden de compra y en caso afirmativo procederá a codificarla y firmarla. Si no hubiere contenido económico, deberá devolverla a la Proveeduría.

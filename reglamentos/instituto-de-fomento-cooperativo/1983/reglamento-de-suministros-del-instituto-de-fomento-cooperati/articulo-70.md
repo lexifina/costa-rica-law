@@ -1,1 +1,1 @@
-Artículo 70.-La elaboración de las bases del concurso corresponde a la unidad solicitante y el formato definitivo corresponde a la Proveeduría.
+Artículo 70.-EI concurso de antecedentes debe publicarse en "La Gaceta" desde la invitación a participar y sus condiciones hasta la resolución de adjudicación, incluyendo aclaraciones, ampliación de plazos para el recibo de ofertas, etc.

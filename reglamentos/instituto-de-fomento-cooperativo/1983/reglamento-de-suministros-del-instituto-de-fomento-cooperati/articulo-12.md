@@ -1,1 +1,1 @@
-Articulo 12.-La reincidencia comprobada en errores de trámite para la compra de bienes y contratación de servicios, dará base para que la Auditoria solicite a la Dirección Ejecutiva ordenar una investigación de estas anomalías para sentar las responsabilidades que correspondan y aplicar las sanciones del caso.
+Artículo 12.-La proveeduría hará del conocimiento de los proveedores externos, la necesidad de presentar toda factura pendiente de cancelación, a mas tardar el último día laboral del mes de diciembre de cada año.

@@ -1,1 +1,4 @@
-Artículo 71.-El concurso de antecedentes debe publicarse en "La Gaceta" desde la invitación a participar y sus condiciones hasta la resolución de adjudicación, incluyendo aclaraciones, ampliación de plazos para el recibo de ofertas, etc.
+Artículo 71.-Aunque el precio no constituye factor primordial para adjudicar un concurso, debe tenerse en cuenta lo siguiente: .
+a) Cuando el precio u honorarios correspondientes al servicio taxitativamente por aranceles legales obligatorio (no el máximum ni el mínimum) se entenderá la oferta en cuanto a compensación económica, regida por los mismos. Si estuvieren regulados por aranceles mínimos, regirá como precio u honorario el mínimum de la tarifa correspondiente.
+b) Cuando no existan aranceles legales obligatorios para la remuneración de tales servicios los honorarios deberán cotizarse en sobre cerrado, independiente de la propuesta de antecedentes.
+Los sobres de honorarios no serán abiertos sino una vez establecido el orden de excelencia de las ofertas de antecedentes en acto formal convocado al efecto con señalamiento de la fecha respectiva, previa notificación de las firmas participantes.

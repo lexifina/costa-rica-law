@@ -1,3 +1,5 @@
-Artículo 72.-Aunque el precio no constituye factor primordial para adjudicar un concurso, debe tenerse en cuenta lo siguiente:
-a) Cuando el precio y honorarios estuvieren regulados por aranceles legales con tarifa fija y obligatorias, se entenderá que los mismos regirán para las ofertas presentadas (artículo 176 del Reglamento de Contratación Administrativa); y
-b) Si estuvieren regulados por aranceles legales obligatorios, los honorarios deberán cotizarse en sobre cerrado, independientemente de la propuesta de antecedentes. En este caso los sobres de honorarios serán abiertos en acto formal, previamente notificado a las firmas participantes y después de haber establecido el orden de excelencia de las ofertas de antecedentes.
+Artículo 72.-Para efectos de la adjudicación, la Junta Directiva tendrá en cuenta lo siguiente:
+a) A la oferta mejor calificada, cuando rija tarifa fija o mínima. (Artículo 178 del Reglamento de la Contratación Administrativa).
+b) Cuando no rijan aranceles legales obligatorios, se podrá adjudicar a la oferta mejor calificada, si determina que su precio es conveniente a sus intereses y posibilidades.
+(Artículo 178 del Reglamento de la Contratación Administrativa).
+c) Para el caso anterior si se considera que el precio de la oferta mejor calificada no resulta razonable, puede seleccionar un grupo de ofertas satisfactorias para negociar. (Artículo 178 del Reglamento de la Contratación Administrativa).

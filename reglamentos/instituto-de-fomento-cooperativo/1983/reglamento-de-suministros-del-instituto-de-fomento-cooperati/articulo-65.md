@@ -1,1 +1,1 @@
-Artículo 65.-La resolución adjudicatoria deberá constar en el libro de actas, con las referencias necesarias para la identificación del concurso y se publicará en "La Gaceta" a la mayor brevedad posible.
+Artículo 65.-Toda adjudicación se hará a la persona física o jurídica que aparece en la propuesta correspondiente, como el oferente. Ningún .contrato, pedido u orden de compra podrá ser traspasado a terceros sin el consentimiento previo del INFOCOOP y de la Contraloría General de la República.

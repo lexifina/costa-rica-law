@@ -1,3 +1,9 @@
-CAPITULO CUARTO
-De las responsabilidades inherentes a los funcionarios encargados de trámites de contratación administrativa
-Artículo 9°-Ningún empleado del INFOCCOP será relevado de responsabilidad por haber procedido contra la Ley de la Administración Financiera o las disposiciones reglamentarias en lo relativo a trámites que le corresponda cumplir en el proceso de la Contratación Administrativa. Cualquier anomalía debe ser objetada por escrito ante su superior jerárquico, con copia a la Dirección Ejecutiva y al Auditor según lo determina el artículo 8° de la Ley de la Administración Financiera.
+CAPITULO TERCERO
+Del trámite administrativo directo no sujeto a solicitud de materiales y servicios
+Articulo 9°-Los siguientes trámites para pago de servicios no estarán sujetos a ser solicitados a la Unidad de Proveeduría:
+a) Anticipo y liquidación de gastos de viajes y transporte.
+b) Servicios públicos (luz. agua, teléfono, etc.).
+c) Transferencias internas de fondos.
+d) Reintegros de retenciones salariales.
+e) Inversiones transitorias de fondos ociosos.
+f) Transferencias de partidas específicas. Consignadas en el presupuesto y otras aprobadas por la Junta Directiva.

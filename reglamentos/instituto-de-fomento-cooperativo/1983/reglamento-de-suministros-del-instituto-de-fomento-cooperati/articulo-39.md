@@ -1,1 +1,1 @@
-Artículo 39.-La Proveeduría con la colaboración del jefe del departamento interesado, procederá a estudiar detenidamente las ofertas y confeccionará para la Dirección Ejecutiva la recomendación que proceda.
+Artículo 39.-Dentro de los treinta días hábiles siguientes al acto de apertura, o dentro del mayor tiempo señalado en el cartel, conforme con lo dispuesto por el artículo 39 del Reglamento para la Contratación Administrativa, procederá la Junta Directiva a adjudicar el negocio licitado o a declararlo desierto.

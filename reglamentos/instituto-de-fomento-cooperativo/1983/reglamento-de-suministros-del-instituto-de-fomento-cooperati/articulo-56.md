@@ -1,1 +1,1 @@
-Artículo 56.-EI manejo y control de las garantías estará a cargo de la Proveeduría, pero la custodia de los valores corresponde a la Tesorería. La contabilidad llevará las cuentas de orden que permitan el control e información adecuados.
+Artículo 56.-Las ofertas y la literatura que se acompañe deben ser presentadas en idioma español. Si la literatura fuere en otros idiomas porque el cartel lo permite, se acompañará la traducción al español.

@@ -1,3 +1,2 @@
-CAPITULO SEXTO
-Del trámite de adquisición del bien o servicio
-Artículo 19.-La proveeduría entregará a los proveedores externos, el original de la orden de compra con la copia del interesado que haya cumplido con todos los trámites establecidos por este Reglamento.
+Artículo 19.-El original de la orden de compra y el original de la factura del proveedor externo serán recibidas por la Proveeduría, al momento de recibirse de conformidad la mercadería o haberse completado el servicio a entera satisfacción. Estos documentos deberán sellarse y fecharse por la proveeduría al momento de su recibo.
+Las facturas que no tengan membrete o sello del vendedor, serán firmadas y tendrán el número de cédula del proveedor externo.

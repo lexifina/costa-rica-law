@@ -1,1 +1,1 @@
-Artículo 36.-Las ofertas deben recibirse en sobre cerrado y depositarse en el buzón indicado para tal efecto antes de la hora señalada para la apertura.
+Artículo 36.-La garantía de participación será determinada entre un 1% y un 5% del monto de la cotización, debiendo fijar el porcentaje el respectivo cartel y se rendirá conforme con los términos que anuncian los artículos 61 y 62 del Reglamento de la Contratación Administrativa.

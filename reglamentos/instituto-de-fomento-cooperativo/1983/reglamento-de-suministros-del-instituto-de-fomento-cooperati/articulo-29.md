@@ -1,1 +1,1 @@
-Artículo 29.-No está permitido el fraccionamiento de compras o servicios con el propósito de eludir los procedimientos normales de contratación, según su tipo y su monto.
+Artículo 29. La adquisición de inmuebles por compra directa, no podrá hacerse por un precio mayor al avalúo que al efecto establezca la Dirección General de Tributación Directa (artículo 97 de la Ley de Administración Financiera).

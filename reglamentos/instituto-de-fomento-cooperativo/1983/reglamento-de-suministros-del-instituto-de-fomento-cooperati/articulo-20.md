@@ -1,1 +1,3 @@
-Articulo 20.-El original de la orden de compra y el original de la factura del proveedor externo serán recibidas por la Proveeduría, al momento de recibirse de conformidad la mercadería o haberse completado el servicio a entera satisfacción. Estos documentos deberán sellarse y fecharse por la Proveeduría al momento de su recibo. Las facturas que no tengan membrete o sello del vendedor, serán firmadas y tendrán el número de cédula del proveedor externo.
+CAPITULO SETIMO
+Del trámite de pago
+Artículo 20.-Corresponde al Departamento de Finanzas la confección del cheque, cancelación de los justificantes y demás movimientos contables que procedan al pago.

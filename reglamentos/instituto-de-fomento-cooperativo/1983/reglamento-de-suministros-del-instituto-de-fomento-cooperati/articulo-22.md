@@ -1,1 +1,1 @@
-Artículo 22.-El Departamento de Finanzas devolverá a la Proveeduría la orden de compra que no esté debidamente documentada para su cancelación.
+Artículo 22.-Todos los cheques que se emitan, una vez cumplidos los trámites señalados por el presente reglamento serán entregados a la tesorería para su custodia y entrega al beneficiario los días señalados para tal fin.

@@ -1,7 +1,3 @@
-Artículo 63.-La Proveeduría hará el estudio de las ofertas recibidas con la colaboración del jefe del departamento interesado y confeccionará para la Dirección Ejecutiva la recomendación que proceda. En este estudio deben tomarse en cuenta los siguientes factores.
-a) Calidad del producto cotizado;
-b) Precio ofrecido;
-c) Plazo de entrega;
-d) Historial del oferente;
-e) Garantías ofrecidas; y
-f) Demás .aspectos favorables a los intereses del INFOCOOP.
+Artículo 63.-Dentro de los treinta días hábiles siguientes al acto de apertura de las ofertas o dentro del plazo señalado en el cartel, la Junta Directiva procederá a adjudicar la licitación.
+Si el estudio determina que las ofertas no son convenientes a los intereses del INFOCOOP, se declarará desierta.
+Cualquier incumplimiento de una oferta en relación con las condiciones y especificaciones esenciales del cartel la excluye del concurso y por lo tanto no podrá recaer en ella la adjudicación.

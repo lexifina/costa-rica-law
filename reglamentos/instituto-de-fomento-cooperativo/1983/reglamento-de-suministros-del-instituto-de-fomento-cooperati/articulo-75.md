@@ -1,1 +1,1 @@
-Artículo 75.-A juicio de la Administración y según la naturaleza del concurso. se podrán exigir garantías de participación y cumplimiento dentro de los límites y regulaciones que señalan los artículos 54 y 55 de este Reglamento.
+Artículo 75.-En todo lo demás, incluyendo el recurso de apelación al acto de adjudicación, se actuará en cuanto sea pertinente, conforme con los procedimientos ordinarios aplicables a la licitación pública, lo no previsto se regirá por el título quinto del Reglamento de la Contratación Administrativa.

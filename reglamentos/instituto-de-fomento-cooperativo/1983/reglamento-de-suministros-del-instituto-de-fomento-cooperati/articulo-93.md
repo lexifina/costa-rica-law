@@ -1,1 +1,1 @@
-Articulo 93.-La proveeduría debe remitir copia de la "requisición" a la Contabilidad para efectos de descargar las partidas. Asimismo para anotar las entradas, se emitirá un documento por parte de la Proveeduría denominado "Nota de artículos recibidos" que dará la información de la orden de compra, de la factura y demás detalles necesarios para cargar las partidas respectivas.
+Articulo 93.-La Proveeduría deberá preparar con suficiente anticipación las licitaciones para la adquisición de materiales y útiles de oficina de uso corriente.

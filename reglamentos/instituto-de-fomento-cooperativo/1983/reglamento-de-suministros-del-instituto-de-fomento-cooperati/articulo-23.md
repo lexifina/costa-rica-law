@@ -1,1 +1,1 @@
-Artículo 23.-Todos los cheques que se emitan, una vez cumplidos los trámites señalados por el presente reglamento serán entregados a la Tesorería para su custodia y entrega al beneficiario los días señalados para tal fin.
+Artículo 23.-Periódicamente la auditoría procederá a efectuar una revisión total o por muestreo, según lo determine el auditor, de las justificantes que amparan los cheques emitidos, para comprobar que se ajustan en todo a las disposiciones reglamentarias.

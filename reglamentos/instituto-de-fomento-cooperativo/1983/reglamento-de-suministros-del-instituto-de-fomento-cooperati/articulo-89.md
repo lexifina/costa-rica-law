@@ -1,1 +1,1 @@
-Artículo 89.-La Contabilidad llevará un duplicado del tarjetero del inventario permanente de existencias que servirá de control cruzado con las existencias en Proveeduría..
+Artículo 89.-Para el debido control de estas existencias procederá a hacerse periódicamente por parte de la auditoria, un inventario físico de las existencias en bodega por sistema de muestre o pruebas selectivas. Los resultados obtenidos de estos inventarios se cotejarán con los datos de las tarjetas de contabilidad.

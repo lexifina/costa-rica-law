@@ -1,1 +1,1 @@
-Artículo 33.-La invitación para participar en una licitación privada deberá cursarse como mínimo a cinco oferentes señalando las especificaciones y condiciones del concurso (artículos 164 y 165 del Reglamento de la Contratación Administrativa.
+Artículo 33.-Los plazos para recibir ofertas se fijarán según la complejidad de importancia del negocio de tres a diez días para servicios o entregas en plaza, entre cinco y veinte días para contratos de obra. compra de bienes para importación otros. (Articulo 168 del Reglamento de la Contratación Administrativa).

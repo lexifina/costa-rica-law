@@ -1,6 +1,3 @@
-CAPITULO DECIMOSEGUNDO
-De la enajenación de bienes inmuebles
-Artículo 77.-La enajenación de bienes inmuebles del INFOCOOP, estará
-sujeta al cumplimiento de los siguientes requisitos:
-a) Obtener autorización previa de la Asamblea Legislativa o de la Contraloría General de la República;
-b) Ajustarse a los procedimientos ordinarios de Contratación Administrativa (licitación pública o privada, contratación directa y remate según sea el monto) .
+Artículo 77.-La enajenación de bienes inmueble s de dominio público cuyo valor sea superior al millón de colones deberá contar con la autorización previa y expresa de la Asamblea Legislativa y con la aprobación de la Contraloría, si la primera no fuera específica.
+La enajenación de bienes inmueble s del dominio privado cuyo valor exceda el millón de colones también requiere de la autorización legislativa y de la aprobación de la Contraloría.
+Únicamente se requiere autorización de la Contraloría General de la República para la enajenación de bienes del dominio privado cuyo monto no exceda al millón de colones, la compraventa de inmuebles entre entes públicos y los bienes inmuebles adquiridos' en pagos de obligaciones. no requieren autorización de la Contraloría.

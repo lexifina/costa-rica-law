@@ -1,3 +1,2 @@
-Artículo 59.-El proveedor procederá a la apertura de las ofertas a la
-hora y fecha señaladas en el cartel. Asistirá a este acto un(a) representante de la Auditoria, un representante de la Asesoría Legal u otro funcionario de la dependencia interesada en la licitación. También podrán asistir los interesados en el concurso, sus apoderados o representantes, funcionarios de la Contraloría y de las agencias de crédito interesadas en el negocio (artículos 109 y 110 del Reglamento de la Contratación Administrativa). Estos tres últimos en el carácter exclusivo de observadores.
-No se recibirán ofertas fuera del día y hora señalados.
+Artículo 59.-Las ofertas, enmiendas, piezas o documentos conexo s que no se hayan recibido en la Proveeduría antes de la hora señalada no podrán entrar en concurso.
+Recibida formalmente una oferta, no podrá ser retirada. Si el oferente deseare dejarla sin efecto o introducirle alguna modificación. ésta podrá hacerse antes de su apertura. Deberá hacerse por escrito, en sobre cerrado que se entregará a la Proveeduría y en el que se indicará la hora y fecha de recibo.

@@ -70,7 +70,6 @@ articulo-69.md
 articulo-70.md
 articulo-71.md
 articulo-72.md
-articulo-73.md
 articulo-74.md
 articulo-75.md
 articulo-76.md
@@ -94,4 +93,3 @@ articulo-93.md
 articulo-94.md
 articulo-95.md
 articulo-96.md
-articulo-97.md

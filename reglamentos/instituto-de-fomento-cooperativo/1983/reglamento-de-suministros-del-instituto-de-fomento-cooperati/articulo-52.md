@@ -1,5 +1,4 @@
-Artículo 52.-Se concederá a los oferentes para la presentación de sus ofertas los siguientes plazos mínimos:
-a) Construcción o concesión de obras, 30 días hábiles;
-b) Suministros de importación, 21 días hábiles; y
-c) Otras clases de negocios, 15 días hábiles.
-El INFOCOOP podrá ampliar los plazos señalados cuando se trate de licitaciones complejas o cuando convenga a sus intereses.
+Artículo 52.-Cualquier modificación a las condiciones o especificaciones del cartel deberá publicarse en "La Gaceta" .
+El plazo mínimo entre la fecha de tal publicación y la de vencimiento para recibir ofertas queda fijado en ocho días hábiles. Por modificaciones se entienden para estos efectos aquellas que no cambien el objeto del negocio ni varíen fundamentalmente su concepción original. Cuando mediante publicación posterior se sustituya dicho objeto o se introduzca una alteración importante en la concepción original del mismo, los plazos para recibir ofertas se ampliarán como mínimo el número de días que disponen los incisos a), b) y c) del artículo 59, según corresponda de acuerdo con la naturaleza del negocio.
+Las prórrogas al plazo para recibir ofertas así como las modificaciones que se dispongan, para que sean procedentes, deberán publicarse en "La Gaceta" a más tardar el día anterior al que previamente se hubiere señalado como límite para la presentación de aquellas.
+Todas las aclaraciones como las interpretaciones que se hagan al texto del cartel, constituyen parte del mismo y deben ajustarse a las reglas anteriores.

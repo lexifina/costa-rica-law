@@ -1,4 +1,1 @@
-Artículo 27.-La compra directa se regulará en lo que a monto se refiere de la siguiente manera:
-a) Hasta ¢ 5.000,00 la podrá realizar directamente la Proveeduría con las firmas del Proveeduría y del Jefe del Departamento de Finanzas.
-b) Para sumas mayores de (¢ 5.000,00 y hasta ¢150.000,00; con la aprobación de la Dirección o Subdirección Ejecutiva.
-(Así reformado el mediante sesión N° 1411 del 07 de febrero de 1985).
+Artículo 27.-Las compras de artículos o materiales para mantener en existencia en la bodega de la Proveeduría estarán sujetas al trámite de cotización, tomándose en cuenta preferentemente calidad, precio y tiempo de entrega, debiendo invitarse a participar a no menos de tres oferentes en el tanto que sea posible.

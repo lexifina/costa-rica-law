@@ -1,1 +1,1 @@
-Artículo 55.-El adjudicatario rendirá una garantía de cumplimiento que tiene por objetivo asegurar al INFOCOOP la ejecución del contrato conforme con los términos del cartel y de la oferta. Dicha garantía se regirá también por las normas que establece el capitulo cuarto del Reglamento de la Contratación Administrativa.
+Artículo 55.-El manejo y control de las garantías estará a cargo de la Proveeduría, pero la custodia de los valores corresponde a la tesorería. La contabilidad llevará las cuentas de orden que permitan el control e información adecuados.

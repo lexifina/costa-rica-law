@@ -1,2 +1,3 @@
-Artículo 50.-Para resolver mejor los casos de duda con las licitaciones de obras o trabajos en cuanto a los términos del cartel, el proveedor podrá asesorarse de las personas que estime convenientes a fin de estudiar y ponderar las condiciones y naturaleza de los trabajos que se vayan a realizar.
-Previo a acordarse la licitación, se hará un estudio técnico completo y un presupuesto detallado de los materiales, mano de obra y precios que se mantendrá en secreto. Este estudio será hecho por los ingenieros que designe la Dirección Ejecutiva o la Junta Directiva (artículo 38 del Reglamento de la Contratación Administrativa).
+Artículo 50.-Una vez que la Junta Directiva apruebe el cartel, deberá publicarse en "La Gaceta".
+Si la publicación se considera muy compleja y extensa podrá resumirse señalando el lugar en donde se pueden retirar las especulaciones y condiciones completas desde el día de la publicación, mediante el pago de su precio de costo.
+Si se considera conveniente, se publicarán avisos en diferentes órganos de publicidad, haciendo referencia a la publicación en "La Gaceta" .

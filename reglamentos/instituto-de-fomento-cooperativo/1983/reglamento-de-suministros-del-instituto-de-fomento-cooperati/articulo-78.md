@@ -1,3 +1,1 @@
-Artículo 78.-La enajenación de bienes inmuebles del dominio público cuyo
-valor sea superior al millón de colones deberá contar con la autorización previa y expresa de la Asamblea Legislativa y con la aprobación de la Contraloría, si la primera no fuera específica.
-La enajenación de bienes inmueble s del dominio privado cuyo valor exceda al millón de colones también requiere de la autorización legislativa de la aprobación de la Contraloría. Únicamente requiere autorización de la Contraloría General de la República, la enajenación de bienes del dominio privado cuyo monto no exceda al millón de colones; la compraventa de inmuebles entre entes públicos y los bienes inmuebles adquiridos en pagos de obligaciones.
+Artículo 78.-El precio mínimo de venta de los inmueble s propiedad del INFOCQOP será fijado por un avalúo reciente de la Dirección General de Tributación Directa.

@@ -1,4 +1,3 @@
-CAPITULO DECIMOQUINTO
-De otros extremos no contemplados en este Reglamento en cuanto
-a las contrataciones administrativas
-Articulo 87.-Serán regulados por lo que indique la Ley de la Administración Financiera de la República y el Reglamento de la Contratación Administrativa, la licitación con pre calificación, el remate, ampliación, formalización y nulidad de las contrataciones, recurso de objeción al cartel, de apelación o revocatoria al acto de adjudicación de licitaciones, cesión de derechos y obligaciones del contratista y demás no contemplados en este Reglamento.
+CAPITULO DECIMOSEXTO
+De las existencias en proveeduría
+Articulo 87.-La Proveeduría hará las compras de útiles y demás enseres que se requiera en cantidades suficientes para mantener existencias adecuadas a las necesidades del INFOCOOP. Dichas existencias serán registradas en tarjetas con el inventario permanente.
