@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicios de la Municipalidad de Garabito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-01-27 | la propia norma |
+| 2 | 2003-04-09 | Reglamento municipal 49 (2003-04-09) |
