@@ -1,0 +1,11 @@
+Nº 31469
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confiere los artículos 140 incisos 3) y 18) y 146, de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley Nº 6227, o Ley General de la Administración Pública de 2 de mayo de 1978, Ley Nº 8131 o Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001, Ley N° 5412 del 8 de noviembre de 1973 y sus reformas y el Decreto Ejecutivo N° 30824-H de 22 de octubre del 2002.
+Considerando:
+1º—Que de acuerdo con lo dispuesto en la Ley Orgánica del Ministerio de Salud, el Consejo Técnico de Asistencia Médico Social (CTAMS) es un órgano adscrito a dicho Despacho, con personalidad jurídica instrumental y autonomía administrativa.
+2º—Que mediante Decreto Ejecutivo N° 30214-H, publicado en La Gaceta N° 54 del 18 de marzo del 2002, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2003, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República.
+3º—Que mediante Decreto Ejecutivo N° 30824-H, publicado en La Gaceta Nº 219 del 13 de noviembre del 2002, se establece el límite de gasto presupuestario máximo de CTAMS, en el cual no se consideró el monto para apoyar la gestión de lucha contra el VIH/SIDA, por medio de recursos provenientes del Fondo Global (fondo de ayuda que cubre el VIH/ SIDA, tuberculosis, malaria) y del Instituto de Salud Pública de México. Asimismo, los recursos para amortizar cuentas pendientes de ejercicios anteriores, financiados con superávit y otros ingresos de la institución.
+4º—Que el Despacho Ministerial de Salud solicita ampliar el límite de gasto presupuestario fijado al Consejo Técnico de Asistencia Médico Social (CTAMS) para el 2003, por las razones expuestas en el punto anterior.
+5º—Que se hace necesario incrementar el límite de gasto presupuestario del CTAMS, para atender las erogaciones señaladas. Por tanto:
+DECRETAN:
+Artículo 1º—Modificase el artículo 1° del Decreto Ejecutivo N° 30824-H, publicado en La Gaceta N° 219 del 13 de noviembre del 2002, para fijar en ¢1.558.4 millones el límite de gasto presupuestario del Consejo Técnico de Asistencia Médico Social para el año 2003.
