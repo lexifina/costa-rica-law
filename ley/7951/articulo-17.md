@@ -1,0 +1,9 @@
+ARTÍCULO 17.- Verificación de las declaraciones juradas.
+Cuando la Municipalidad dude de la veracidad de la declaración
+jurada, podrá exigir a las personas físicas o jurídicas, declarantes o no
+del impuesto sobre la renta, una certificación sobre el volumen de los
+ingresos brutos y la renta líquida, extendida por un contador público
+autorizado; para tal efecto, se incluyen las actividades lucrativas tales
+como granjas porcinas y granjas avícolas.
+Si se encuentra que efectivamente existen inexactitudes, la
+Municipalidad, de oficio, podrá determinar el impuesto.
