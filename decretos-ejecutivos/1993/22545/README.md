@@ -13,3 +13,4 @@ Reglamento a la Ley de Conservación de la Vida Silvestre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-10-13 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
