@@ -1,1 +1,0 @@
-Artículo 3º.- Estas zonas pertenecerán a la municipalidad del cantón en cuya jurisdicción se encuentren ubicadas y, con base en los respectivos planos, deberán ser inscritas a nombre de la respectiva corporación municipal en el Registro Público de la Propiedad, sin pago de derechos.
