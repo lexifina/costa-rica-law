@@ -1,10 +1,17 @@
 (Derogado)
-Artículo 1º.- Se establece la "Oficina de Migración", en la
-Secretaría de Seguridad Pública, encargada de controlar la entrada y
-salida de nacionales y extranjeros; de conceder y librar licencias y
-dispensas inmigratorias; de extender y visar pasaportes en la provincia
-de San José, pues en las otras lo harán las respectivas Gobernaciones, y
-de vigilar por que a cada permiso de ingreso o de permanencia, se agregue
-un timbre fiscal de cinco colones, y de dos colones a los de reingreso, y
-en general cuidar por la exacta percepción de cualquier otro derecho o
-impuesto que afecte la migración.
+ARTICULO 1º.- Se establece la "Dirección General de Migración y
+Extranjería", dependiente del Ministerio de Gobernación y Policía, que
+será la encargada de controlar la entrada y salida de nacionales y
+extranjeros; de conceder licencias y dispensas inmigratorias; de extender
+y visar pasaportes para los particulares; de vigilar por que cada permiso
+de ingreso, reingreso y permanencia, se otorgue una vez llevada a cabo
+una investigación de los antecedentes y de la conducta del solicitante,
+de sus medios económicos y de las garantías que ofrezca, para el caso de
+que deba dispensarse su expulsión del país; y de todas aquellas funciones
+que tengan relación directa con la dirección y control del movimiento
+migratorio en el país.
+Todo permiso de ingreso, o de permanencia en el país, deberá llevar
+agregado un timbre de diez colones que pagará el interesado; todo permiso
+de reingreso llevará agregado un timbre fiscal de cinco colones.
+(Así reformado por el artículo 8º de Ley Nº 6812 de 14 de setiembre
+de 1982)
