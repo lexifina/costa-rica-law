@@ -1,5 +1,1 @@
-Artículo 19.- La demanda en esta clase de juicios consistirá en una
-solicitud dirigida al Juez, á efecto de que ordene al dueño del inmueble
-que lo abandone al servicio para que se destina y nombre perito que, en
-unión con el que en la misma demanda elegirá el actor, valore el inmueble
-de que se trate y los daños y perjuicios que su ocupación ocasione.
+ARTICULO 19.- La demanda en esta clase de juicios consistirá en una solicitud dirigida al Juez, a efecto de que ordene al dueño del inmueble que lo abandone al servicio para que se destina y nombre perito que, en unión con el que en la misma demanda elegirá el actor, valore el inmueble de que se trate y los daños y perjuicios que su ocupación ocasione.
