@@ -1,0 +1,1 @@
+Artículo 8º—No se podrá dar permisos de ningún tipo, a persona física o jurídica, que se encuentre morosa ante la Municipalidad, entiéndase de construcción, patentes. Ni ser proveedor de la Municipalidad, si no se encuentra al día con los tributos municipales.

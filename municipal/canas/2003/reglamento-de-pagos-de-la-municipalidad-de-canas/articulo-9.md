@@ -1,0 +1,3 @@
+Artículo 9º—Se exceptúan del arreglo de pago:
+a) Licencias Municipales (patentes de comercio). Lo adeudado deberá hacerse en un solo monto. El Departamento de Contabilidad por medio de la Oficina de Patentes queda facultado para realizar el cierre del respectivo local comercial después de incumplimiento de pago por dos trimestres consecutivos (Artículo 72 Código de Procedimientos Tributarios y proceder al cierre de los locales que entren en funcionamiento sin contar con su respectiva licencia municipal (patente) (artículo 1º, Ley Nº 7179)).
+b) Los alquileres. Por este concepto no se aceptarán arreglos de pago; pues deben pagar por adelantado.

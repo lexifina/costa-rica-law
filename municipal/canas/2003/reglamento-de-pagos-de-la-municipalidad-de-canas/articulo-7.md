@@ -1,0 +1,1 @@
+Artículo 7º—Cuando un contribuyente solicitare una certificación de la contaduría municipal para efectos bancarios u otro trámite, si se encuentra en estado de morosidad, la certificación deberá indicar que va al día con los pagos del arreglo de pago y el monto que adeuda.

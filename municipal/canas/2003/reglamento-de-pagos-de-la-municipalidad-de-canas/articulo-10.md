@@ -1,0 +1,2 @@
+Artículo 10.—Podrá cobrarse en especie el 30% por concepto impuesto de explotación a los concesionarios de minas y canteras en el lugar y en la forma que lo determine el Concejo por convenio entre las partes. Este porcentaje se calculará sobre la venta declarada (Artículo 56 Código de Minería). Para tales efectos este convenio deberá ser autorizado por el Concejo Municipal mediante acuerdo tomado por mayoría, calificada.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 5º—El incumplimiento por parte del contribuyente de una sola de las cuotas del compromiso de pago adquirido, será suficiente para que la Municipalidad considere vencido el plazo otorgado y que la cuenta se pase a cobro judicial. La persona que incumplió un arreglo de pago no se le puede realizar otro sobre la misma cuenta.

@@ -1,0 +1,1 @@
+Artículo 2º—Entiéndase por arreglo de pago, el compromiso que asume el contribuyente moroso con la Municipalidad de cancelar en un tiempo a convenir de acuerdo a lo dispuesto en este reglamento, la cuenta que adeuda a esta Corporación Municipal.
