@@ -1,0 +1,1 @@
+Artículo 25.—Garantía de participación y de cumplimiento. La Administración concedente deberá establecer un monto de garantía de participación y de cumplimiento en el cartel de licitación respectivo de conformidad con lo dispuesto en la Ley de Contratación Administrativa y su Reglamento.

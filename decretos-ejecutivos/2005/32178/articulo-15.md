@@ -1,0 +1,2 @@
+Artículo 15.—Potestades de las Autoridades Portuarias. Durante la vigencia del Contrato, la Autoridad Portuaria correspondiente, tendrá todas las potestades que le confiera la ley y las de otorgar las concesiones de explotación, los permisos para la prestación de servicios, auxiliares y los certificados y permisos provisionales de explotación, según lo indique el respectivo cartel.
+Asimismo tendrá los poderes de supervisión e intervención, necesarios para garantizar la buena marcha de los servicios, de conformidad con lo estipulado en el cartel.

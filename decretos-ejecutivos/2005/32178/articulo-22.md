@@ -1,0 +1,1 @@
+Artículo 22.—Fijación de tarifas. Las tarifas aplicables por los servicios de estiba y desestiba serán fijadas de conformidad con los procedimientos legales establecidos. La Autoridad Reguladora de los Servicios Públicos regulará tales tarifas según los términos de la Ley Nº 7593 y su Reglamento.

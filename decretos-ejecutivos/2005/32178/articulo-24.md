@@ -1,0 +1,1 @@
+Artículo 24.—Criterios de evaluación. Los criterios de evaluación y la metodología para la selección del Concesionario estarán determinados en el respectivo cartel de licitación, tomando en cuenta los criterios técnicos desarrollados en el Anteproyecto de Explotación.

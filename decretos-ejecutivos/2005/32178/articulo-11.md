@@ -1,0 +1,1 @@
+Artículo 11.—Plazo del contrato. El plazo de los contratos de Concesión de los Servicios de Estiba y Desestiba, no podrá exceder de cinco años, el cual empezará a correr a partir de la fecha en que se de la orden de inicio.

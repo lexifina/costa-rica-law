@@ -1,0 +1,1 @@
+Artículo 5°—Administración concedente. La Administración Concedente en los Contratos de Concesión de Gestión de Estiba y Desestiba en el Complejo Portuario de Limón y Moín será la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica.
