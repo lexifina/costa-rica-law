@@ -1,0 +1,1 @@
+Artículo 5°.-Tanto el Consejo Nacional de Vivienda y Asentamientos Humanos como su Comité Ejecutivo contarán con la asesoría permanente de los dos Vicepresidentes de la República, los cuales podrán concurrir a las sesiones de ambos.
