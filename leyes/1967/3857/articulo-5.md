@@ -1,1 +1,1 @@
-Artículo 5°-Los acuerdos de la Junta que resuelvan solicitudes, deberán elevarse en consulta a la Municipalidad. los que adjudiquen lotes, deberán establecer con claridad el área, su ubicación, el precio y la forma de pago.
+Artículo 5°-(Derogado por el artículo 2° de la ley N° 6524 del 25 de setiembre de 1980)

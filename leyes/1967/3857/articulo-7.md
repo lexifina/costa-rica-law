@@ -1,5 +1,7 @@
-Artículo 7°-Las personas interesadas en la adjudicación de un lotes deben presentar solicitud escrita ante la Junta Calificadora, dentro de los noventa días siguientes a la fecha en que ésta sea instalada.
-Las solicitudes se consignarán en papel sellado de un colón, agregándoseles un timbre Municipal de igual valor, y deberán contener:
-a) Nombre y dos apellidos del solicitante, estado civil, ocupación y salario o renta mensual que devengue, número de la cédula de identidad personal o residencia, y dirección exacta donde se le puede notificar.
-b) Indicar si el interesado se acogió al arreglo formal, o es heredero de persona acogida a ese arreglo; si es cesionario de los anteriores, o simple ocupante o poseedor, o si fue inquilino de vivienda erradicada. Los herederos deberán demostrar esa calidad. Los cesionarios presentarán el documento en que conste la cesión. Los inquilinos deberán indicar el nombre de la persona que les arrendaba la vivienda erradicada; si éstos fueren extranjeros, deberán demostrar también que tienen a su cuidado parientes que son costarricenses.
-c) Indicar en cuál sector de la finca (parte urbanizada o no urbanizada) está o estuvo localizado el lotes respectivo.
+Artículo 7º.- Las personas interesadas en la adjudicación de un lote, deben presentar solicitud escrita a través de la Secretaría, a la Municipalidad del Golfito.
+Las solicitudes se presentarán en papel sellado de un colón y con un timbre municipal equivalente al valor del papel. Deberán contener, como mínimo, los siguientes datos:
+a) Nombre y dos apellidos del solicitante, estado civil, ocupación y salario, número de cédula de identidad personal o de residencia y dirección exacta donde se le puede notificar;
+b) Indicar si el interesado se acogió al arreglo formal, o si es heredero de persona acogida a ese arreglo; o si es concesionario de los anteriores o simple ocupante o poseedor; o si fue inquilino de vivienda erradicada. Los herederos deberán demostrar esa calidad. Los cesionarios presentarán el documento en que conste la cesión. Los inquilinos deberán indicar el nombre de la persona que les arrendaba la vivienda erradicada.
+Si éstos son extranjeros, deberán demostrar también, que tienen a su cuidado parientes costarricenses.
+c) Se establecerá con claridad, el área, ubicación, precio y forma de pago del lote respectivo.
+(Así reformado por el artículo 1° de la ley N° 6524 del 25 de setiembre de 1980)
