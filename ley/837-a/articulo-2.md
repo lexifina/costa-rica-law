@@ -1,0 +1,1 @@
+Artículo 2°-Adiciónase el inciso b) del artículo 20 de la misma ley con el siguiente párrafo: "En ningún casó el avalúo de la propiedad podrá ser inferior al valor nominal de las cédulas hipotecarias emitidas con garantía de la misma propiedad."
