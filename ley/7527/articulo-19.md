@@ -1,0 +1,3 @@
+ARTICULO 19.- Notificación.
+Una parte de la relación arrendaticia puede notificar a la otra, mediante acta notarial o por simple entrega del documento en la casa de habitación o en el domicilio señalado en el contrato.
+Cuando el destinatario no quiera o no pueda firmar el recibo del documento o no se encuentre en los lugares indicados, la notificación se entregará a cualquier persona que aparente ser mayor de quince años que se halle en la casa de habitación o en el domicilio señalado. En tales casos, a falta de notario, la notificación se practicará ante dos testigos o ante la autoridad de policía del lugar, quienes deberán anotar la fecha de entrega y firmar tanto el original como la copia del documento.

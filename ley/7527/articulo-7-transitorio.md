@@ -1,0 +1,1 @@
+TRANSITORIO VII.- El Instituto Costarricense de Turismo reglamentará el procedimiento para las declaratorias de zonas de interés turístico a que alude el inciso b) del artículo 7, dentro del plazo de nueve meses a partir de la publicación de esta ley.

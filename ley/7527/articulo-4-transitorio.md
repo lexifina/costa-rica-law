@@ -1,0 +1,1 @@
+TRANSITORIO IV.- Los procesos judiciales pendientes al entrar en vigor la presente ley, continuarán tramitándose hasta su fenecimiento, con base en la Ley de inquilinato que se deroga y en las disposiciones del Código Procesal Civil aquí reformadas.

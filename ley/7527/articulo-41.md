@@ -1,0 +1,2 @@
+ARTICULO 41.- Obras sin autorización del arrendatario.
+Si el arrendador pretende realizar, en la cosa arrendada, innovaciones u obras que no sean reparaciones o si las ha efectuado contra la voluntad del arrendatario, este puede, según el caso, oponerse a que las haga, o demandar la demolición y la restitución de la cosa a su estado original, o bien, invocar la rescisión del contrato y pedir indemnización por daños y perjuicios.

@@ -1,0 +1,2 @@
+ARTICULO 98.- Plazo adicional para desalojar.
+El Tribunal ante el cual penda un proceso arrendaticio de desalojamiento puede, de oficio o a solicitud del propio arrendatario, otorgar un plazo adicional para el desalojamiento de la vivienda, no mayor de treinta días, en casos de enfermedad, desamparo u otro motivo de fuerza mayor justificado, siempre que no exista un peligro inminente para la salud o la seguridad de los moradores de la vivienda o de los vecinos.
