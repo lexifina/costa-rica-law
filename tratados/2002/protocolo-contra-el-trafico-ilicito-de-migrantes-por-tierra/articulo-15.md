@@ -1,0 +1,5 @@
+Artículo 15
+Otras medidas de prevención
+1. Cada Estado Parte adoptará medidas para cerciorarse de poner en marcha programas de información o reforzar los ya existentes a fin de que la opinión pública sea más consciente de que las conductas enunciadas en el artículo 6 del presente Protocolo son una actividad delictiva que frecuentemente realizan los grupos delictivos organizados con fines de lucro y que supone graves riesgos para los migrantes afectados.
+2. De conformidad con el artículo 31 de la Convención, los Estados Parte cooperarán en el ámbito de la información pública a fin de impedir que los migrantes potenciales lleguen a ser víctimas de grupos delictivos organizados.
+3. Cada Estado Parte promoverá o reforzará, según proceda, los programas y la cooperación para el desarrollo en los planos nacional, regional e internacional, teniendo en cuenta las realidades socioeconómicas de la migración y prestando especial atención a las zonas económica y socialmente deprimidas, a fin de combatir las causas socioeconómicas fundamentales del tráfico ilícito de migrantes, como la pobreza y el subdesarrollo.

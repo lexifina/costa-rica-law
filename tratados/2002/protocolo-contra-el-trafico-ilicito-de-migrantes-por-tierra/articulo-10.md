@@ -1,0 +1,10 @@
+Artículo 10
+Información
+1. Sin perjuicio de lo dispuesto en los artículos 27 y 28 de la Convención y con miras a lograr los objetivos del presente Protocolo, los Estados Parte, en particular los que tengan fronteras comunes o estén situados en las rutas de tráfico ilícito de migrantes, intercambiarán, de conformidad con sus respectivos ordenamientos jurídicos y administrativos internos, información pertinente sobre asuntos como:
+a) Los lugares de embarque y de destino, así como las rutas, los transportistas y los medios de transporte a los que, según se sepa o se sospeche, recurren los grupos delictivos organizados involucrados en las conductas enunciadas en el artículo 6 del presente Protocolo;
+b) La identidad y los métodos de las organizaciones o los grupos delictivos organizados involucrados o sospechosos de estar involucrados en las conductas enunciadas en el artículo 6 del presente Protocolo;
+c) La autenticidad y la debida forma de los documentos de viaje expedidos por los Estados Parte, así como todo robo o concomitante utilización ilegítima de documentos de viaje o de identidad en blanco;
+d) Los medios y métodos utilizados para la ocultación y el transporte de personas, la alteración, reproducción o adquisición ilícitas o cualquier otra utilización indebida de los documentos de viaje o de identidad empleados en las conductas enunciadas en el artículo 6 del presente Protocolo, así como las formas de detectarlos;
+e) Experiencias de carácter legislativo, así como prácticas y medidas conexas, para prevenir y combatir las conductas enunciadas en el artículo 6 del presente Protocolo; y
+f) Cuestiones científicas y tecnológicas de utilidad para el cumplimiento de la ley, a fin de reforzar la capacidad respectiva de prevenir, detectar e investigar las conductas enunciadas en el artículo 6 del presente Protocolo y de enjuiciar a las personas implicadas en ellas.
+2. El Estado Parte receptor de dicha información dará cumplimiento a toda solicitud del Estado Parte que la haya facilitado en el sentido de imponer restricciones a su utilización.
