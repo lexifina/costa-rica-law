@@ -8,3 +8,4 @@ Relación de puestos de sueldos para cargos fijos del gobierno central, para el 
 (Modificado por el artículo 2 del Decreto Ejecutivo N° 30405 de 16 de abril del 2002)
 (Modificado por el artículo 2 del Decreto Ejecutivo N° 30448 de 18 de abril del 2002)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30349 de 23 de abril del 2002)
+(Modificado respecto la relación de puestos de cargos fijos del Ministerio de la Presidencia, por el artículo 1 del Decreto Ejecutivo N° 30306 de 29 de abril del 2002)
