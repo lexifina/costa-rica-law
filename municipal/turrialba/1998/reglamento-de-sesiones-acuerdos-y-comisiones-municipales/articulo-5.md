@@ -1,0 +1,1 @@
+Artículo 5°—Podrán celebrarse extraordinarias en otro lugar del cantón, cuando la índole de los asuntos a tratar así lo requiera y siempre que la convocatoria, así lo especifique. Se recomienda que por lo menos cada cuatro estimular el contacto con el pueblo, el orden de sesiones en distritos, se hará tomando el orden lógico de la lista de distritos administrativos.

@@ -1,0 +1,1 @@
+Artículo 2°—Las sesiones ordinarias del Concejo, se celebrarán los días viernes iniciándose a las quince horas y terminando a las dieciocho y treinta horas. Los últimos viernes de cada mes, se efectuarán a la misma hora, pero prioritariamente para atención al público.

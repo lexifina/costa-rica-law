@@ -1,0 +1,3 @@
+CAPITULO SEIS
+Disposiciones generales
+Artículo 53.—Los funcionarios municipales deberán asistir a las sesiones del Concejo a que fueran convocados, sin que por ello puedan cobrar remuneración alguna.

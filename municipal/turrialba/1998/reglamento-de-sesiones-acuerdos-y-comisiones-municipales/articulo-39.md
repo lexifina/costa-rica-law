@@ -1,0 +1,1 @@
+Artículo 39.—Una vez designadas las comisiones por el Presidente del Concejo, sus miembros en la sesión de instalación que deberá celebrarse dentro de los quince días siguientes, nombrará de su seno un coordinador y un secretario.
