@@ -1,0 +1,2 @@
+TRANSITORIOS
+I.-El funcionamiento del Organismo queda circunscrito por el momento a la ciudad de San José y comenzará sus labores cuando figuren los puestos y partidas necesarios en la Ley de Presupuesto y la Corte Plena haga los nombramientos correspondientes. En igual forma se hará extensivo el servicio al resto de la provincia de San José y a las otras provincias. Mientras esté circunscrito a la ciudad de San José, los especialistas (patólogo, toxicólogo y criminólogo) estarán obligados a intervenir en los casos en que solicite su colaboración cualquier tribunal del país.
