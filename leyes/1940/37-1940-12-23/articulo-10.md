@@ -1,2 +1,0 @@
-Artículo 10.-Las casa que construya y adjudique la Junta, son inembargables, salvo el caso de que el adquirente estuviera en mora, cuando podrán ser embargadas por la Junta; y únicamente por ella.
-Las casas que en virtud de la cláusula que precede, hubiesen sido readquiridas por la Junta, volver n a ser adjudicadas por ésta, a personas que reúnan las condiciones estipuladas en la Ley y Reglamento respectivos.

@@ -1,1 +1,0 @@
-Artículo 23. El empréstito de que habla el articulo 20 se pagara con la recaudación del impuesto de timbre cobrado a los teatros y cines en el plazo y condiciones que estipulen los contratantes. El pago del empréstito o empréstitos lo hará la Junta Nacional de la Habitación.
