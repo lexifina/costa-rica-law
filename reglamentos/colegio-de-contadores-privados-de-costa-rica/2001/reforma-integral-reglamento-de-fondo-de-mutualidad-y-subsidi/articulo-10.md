@@ -1,0 +1,1 @@
+Artículo 10.—Para garantizar los auxilios económicos que establece el presente Reglamento las reservas del Colegio en sus Fondos de Mutualidad y Subsidios se invertirán en las más eficientes condiciones de garantía y rentabilidad, prefiriéndose en igualdad de circunstancias, aquellas que representen una mayor seguridad para los fines establecidos.

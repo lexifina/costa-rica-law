@@ -1,0 +1,1 @@
+Artículo 13.—El derecho para reclamar la suma que el Colegio otorga en concepto de subsidios por incapacidad temporal para el ejercicio profesional debidamente comprobada, prescribe en el término de tres meses, contados a partir del momento en que la incapacidad fue levantada.

@@ -1,0 +1,1 @@
+Artículo 8°—El auxilio de Mutualidad se pagará por una sola vez a solicitud del o de los beneficiarios y una vez presentadas las certificaciones del caso y con fundamento en el informe del Tesorero del Colegio. La Junta Directiva goza de un plazo máximo de quince días para su aprobación.
