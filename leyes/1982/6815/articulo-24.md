@@ -1,0 +1,5 @@
+ARTÍCULO 24.—SUMINISTRO DE COPIAS Y CITACIÓN DE TESTIGOS:
+Los tribunales de justicia, los administrativos y las dependencias públicas están obligados:
+a) A suministrar, por una sola vez, a la Procuraduría General, copias de todos los escritos y documentos que se presente - excepción hecha de libros y folletos -en los juicios en que sea parte o tenga interés el Estado, cuando la parte contraria no esté obligada a suministrarlas por su cuenta, y siempre que la Procuraduría las solicite por escrito señalando concretamente las piezas respectivas.
+b) A suministrar, a la Procuraduría, copias de todas las resoluciones, actas y diligencias, ya sean probatorias o de cualquier otra naturaleza, que se practiquen durante la tramitación de los juicios o negocios. Esas copias irán selladas y firmadas por el Secretario del Despacho.
+c) A citar, por medio de los notificadores o citadores, a los testigos de la Procuraduría, admitidos en el juicio o causa. Los términos respectivos, en perjuicio del Estado, no correrán mientras no se haya cumplido con lo que se indica en este artículo, ni podrá cobrarse, por esos conceptos, suma alguna a la Procuraduría General de la República.

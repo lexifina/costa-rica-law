@@ -1,0 +1,2 @@
+ARTÍCULO 18.—PUBLICACIÓN DEL NOMBRAMIENTO:
+Los servidores a que se refiere esta ley se nombrarán mediante acuerdo, el cual se publicará en el diario oficial "La Gaceta". Antes de tomar posesión del cargo deberán prestar el juramento constitucional. El Procurador General lo hará ante el Presidente de la República; el Procurador General Adjunto y los Procuradores, ante el Procurador General y el resto del personal ante el Procurador General Adjunto.

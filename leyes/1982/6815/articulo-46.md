@@ -1,0 +1,2 @@
+ARTÍCULO 46.—El Director de la Imprenta Nacional y los representantes legales de las instituciones autónomas del Estado, y demás entidades públicas, enviarán a la Procuraduría General de la República el número de ejemplares que determine el respectivo Reglamento, de toda publicación de índole jurídica que hagan, incluso de toda nueva edición de leyes y reglamentos.
+(Así modificada su numeración por el artículo 3º de la ley Nº 7666 de 14 de abril de 1997, que lo traspasó del 43 al 46)

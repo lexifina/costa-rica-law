@@ -1,0 +1,2 @@
+ARTÍCULO 23.—AMPLIACIÓN DE TÉRMINOS Y SEÑALAMIENTOS:
+Cuando por las necesidades del Despacho, el Procurador General o el Procurador General Adjunto soliciten ampliación de términos y señalamientos, los tribunales de justicia accederán a lo pedido. En ningún caso la ampliación podrá ser menor de la mitad del término originalmente concedido, y la solicitud, necesariamente, deberá ser presentada dentro del término o señalamiento respectivos.

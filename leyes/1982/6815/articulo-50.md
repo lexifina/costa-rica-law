@@ -1,0 +1,3 @@
+ARTÍCULO 50.—Refórmanse los artículos 173 y 183 de la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978, para que donde dice Contraloría General de la República diga Procuraduría General de la República.
+(Reformado tácitamente en forma parcial por el artículo 79 de la Ley Orgánica de la Contraloría General de la República, Nº 7428 de 7 de setiembre de 1994, al disponer: "Cuando la nulidad verse sobre actos administrativos directamente relacionados con la Hacienda Pública, el dictamen favorable deberá rendirlo la Contraloría General de la República")
+(Así modificada su numeración por el artículo 3º de la ley Nº 7666 de 14 de abril de 1997, que lo traspasó del 47 al 50)

@@ -1,0 +1,2 @@
+ARTÍCULO 13.—REPRESENTACIÓN DE LA PROCURADURÍA:
+La representación de la Procuraduría General de la República la tendrá tanto el Procurador General como el Procurador General Adjunto, quienes podrán delegarla, mediante simple escrito o nota, y aun por la vía telegráfica, o radiográfica, en alguno de los Procuradores, para uno o varios asuntos, o para comparecer en uno o varios actos o contratos notariales, de acuerdo con las necesidades de la oficina.

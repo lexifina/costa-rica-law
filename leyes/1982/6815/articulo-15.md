@@ -1,0 +1,2 @@
+ARTÍCULO 15.—NOTARIA:
+Las funciones de Notario del Estado serán ejercidas por los Procuradores que requiera el buen servicio. Para el desempeño de sus cargos deberán proveerse de sus protocolos, de conformidad con las disposiciones de la Ley Orgánica de Notariado, los cuales habrán de usar, exclusivamente, para el otorgamiento de escrituras referentes a actos y contratos en que sean parte o tengan interés el Estado, los entes descentralizados y las empresas estatales, de acuerdo con lo que al efecto dispone el inciso c) del artículo 3º de la presente ley.

@@ -1,0 +1,1 @@
+TRANSITORIO PRIMERO.—La aplicación de las normas establecidas en la presente ley, en ningún caso, podrá ir en perjuicio de los derechos adquiridos por los servidores que integran la Procuraduría General de la República.
