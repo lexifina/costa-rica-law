@@ -1,4 +1,5 @@
 TITULO IV
 DERECHOS Y GARANTIAS INDIVIDUALES
 Capítulo Único
-Artículo 20.-- Todo hombre es libre en la República; No puede ser esclavo el que se halle bajo la protección de sus leyes.
+ARTÍCULO 20.- Toda persona es libre en la República, (sic) quien se halle bajo la protección de sus leyes no podrá ser esclavo ni esclava.
+(Así reformado por el artículo único de la ley N° 7880 de 27 de mayo de 1999)
