@@ -15,3 +15,4 @@ Reglamento de Creación del Órgano Fiscalizador del Contato de Gestión Interes
 | --- | --- | --- |
 | 1 | 2001-05-04 | la propia norma |
 | 2 | 2002-08-27 | Decreto Ejecutivo 30681 (2002-08-27) |
+| 3 | 2004-01-05 | Decreto Ejecutivo 31692 (2004-01-05) |
