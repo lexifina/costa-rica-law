@@ -1,0 +1,1 @@
+Artículo 3°—El muelle de Punta Morales tendrá un Administrador y contará, además, con un Práctico Oficial y con el personal que resulte necesario, todos de nombramiento y remuneración por parte del Instituto Costarricense de Puertos del Pacífico (INCOP).

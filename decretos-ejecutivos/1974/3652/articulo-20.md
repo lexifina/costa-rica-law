@@ -1,0 +1,1 @@
+Artículo 20.—EL INCOP y la Liga de la Caña no serán responsables por los daños que sufran las naves al atracar o desatracar, o durante el tiempo que permanezcan atracadas al muelle. Los daños que sufra el muelle por desperfecto o malas maniobras de las embarcaciones, correrán por cuenta de las Compañías de Vapores o sus Agentes o Representantes.

@@ -1,0 +1,1 @@
+Artículo 16.—Las maniobras de atraque o desatraque deberán hacerse bajo la dirección exclusiva del Práctico Oficial y para ese efecto los capitanes de las naves observarán estrictamente las indicaciones de dicho funcionario.

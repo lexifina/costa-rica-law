@@ -1,0 +1,1 @@
+Artículo 22.—Queda absolutamente prohibida a las naves atracadas al muelle arrojar al mar, cenizas, desperdicios y otras materias análogas. Por incumplimiento de esta disposición, la Compañía dueña del vapor o sus Agentes o Representantes deberán cubrir los daños y perjuicios. que ocasionaren, sin menoscabo de las sanciones establecidas en las leyes respectivas.

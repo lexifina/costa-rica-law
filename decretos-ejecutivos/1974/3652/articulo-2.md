@@ -1,0 +1,1 @@
+Artículo 2°—Las instalaciones de la faja transportadora y todas aquellas obras portuarias que sean necesarias para su operación y funcionamiento, estarán destinadas a la exportación de azúcar a granel.

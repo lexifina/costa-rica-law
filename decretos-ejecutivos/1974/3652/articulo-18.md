@@ -1,0 +1,1 @@
+Artículo 18.—La responsabilidad civil por daños y perjuicios que tengan como causa deficiencias en los aparatos o personal del barco, recaerá solidariamente sobre el capitán, la Compañía propietaria de la nave y sus Agentes o Representantes.

@@ -1,0 +1,1 @@
+Artículo 12.—Ninguna nave podrá atracar al muelle antes de ser visitada por las autoridades respectivas, salvo que éstas hubieren dispuesto lo contrario. No se dará inicio a la carga de una nave si no se han cumplido los requisitos exigidos por el Código Fiscal y el Código Aduanero Uniforme Centroamericano.

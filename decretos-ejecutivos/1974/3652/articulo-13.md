@@ -1,0 +1,1 @@
+Artículo 13.—Todas las embarcaciones serán atendidas en el muelle por riguroso orden de arribo. Perderá el derecho y su lugar será ocupado por la nave, que le sigue en orden de prioridad o llegada, aquel barco al que le corresponda el turno para ocupar el muelle y no haga uso de él. La nave que pierda su derecho ocupará el turno de la favorecida con esta circunstancia.

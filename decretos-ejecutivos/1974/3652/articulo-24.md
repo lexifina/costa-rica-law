@@ -1,0 +1,1 @@
+Artículo 24.—El embarque o desembarque de tripulantes y pasajeros se hará exclusivamente por cuenta y riesgo del Capitán de la nave y de la Compañía de Vapores o de sus Agentes o Representantes. En todos los casos deberán cumplirse las disposiciones del decreto ejecutivo N° 5 de 26 de setiembre de 1962.

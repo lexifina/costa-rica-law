@@ -1,0 +1,1 @@
+Artículo 27.—El recinto portuario tendrá las dimensiones y especificaciones contenidas en los planos levantados al efecto por la Liga de la Caña, con la aprobación del Ministerio de Obras Públicas y Transportes.

@@ -1,0 +1,1 @@
+Artículo 8°—El Ministerio de Obras Públicas y Transportes y la Liga de la Caña, de común acuerdo, podrán realizar las obras que consideren convenientes para acondicionar el muelle a las necesidades de embarque del azúcar.

@@ -1,0 +1,1 @@
+Artículo 4°—El uso del muelle estará sujeto exclusivamente para el transporte de azúcar y siempre que se acate lo dispuesto por este Reglamento y se observen las tarifas que se establezcan con la aprobación del Ministerio de Obras Públicas y Transportes.

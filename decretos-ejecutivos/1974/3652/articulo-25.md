@@ -1,0 +1,1 @@
+Artículo 25.—El Capitán del barco deberá mostrar a las Autoridades Portuarias los certificados que comprueben la validez de sus aseguros. Si no los tuviere, la Compañía Naviera o sus Agentes o Representantes garantizarán a satisfacción de la Administración Portuaria las responsabilidades correspondientes.

@@ -1,0 +1,1 @@
+Artículo 21.—Cuando para la mayor seguridad de las naves o del muelle el Administrador ordene abandonar o cambiar de sitio de atraque, el Capitán o quien lo sustituya a bordo deberá acatar esta orden a la mayor brevedad. Los gastos correrán por cuenta del barco o de sus Agentes o Representantes.

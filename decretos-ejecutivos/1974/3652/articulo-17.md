@@ -1,0 +1,1 @@
+Artículo 17.—Es obligación del Práctico Oficial, antes de proceder al atraque de un barco, cerciorarse de que las máquinas estén en buen estado de funcionamiento. Si advierte desperfecto no permitirá que se realice el atraque.
