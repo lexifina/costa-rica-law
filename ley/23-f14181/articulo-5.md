@@ -1,0 +1,1 @@
+Art. 5. La gracia concedida por los articulos 3 y 4 se hace extensiva à los que presenten por la primera vez una cria de cien ovejas, y á los que también presenten en los Palmares ú otros lugares aparentes y en donde nunca se hayan cultivado nuevas haciendas de cacao y frutales, que tengan, por lo ménos cinco mil plantas cada una.
