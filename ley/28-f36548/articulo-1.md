@@ -1,0 +1,5 @@
+DECRETO XXVIII.
+Designa los individuos que deben componer la H. Comision permanente.
+"Juan Rafael Mora Presidente de la República de Costa Rica.-Por cuanto el Excelentísimo Congreso constitucional ha decretado lo siguiente.
+El Excelentísimo Congreso constitucional de la República de Costa Rica, en cumplimiento de lo dispuesto en el articulo 63 de la Constitucion y del 75 de su reglamento interior, decreta:
+Artículo único. Nombranse individuos de la Honorable Comision Permanente à los Señores Representantes D° Modesto Guevara, D' Miguel Mora, D° Tomas Sandoval y D° Saturnino Tinoco.-Al Poder Ejecutivo. -Dado en el Palacio de los Supremos Poderes, en San José á los once dias del mes de julio de mil ochocientos cincuenta y uno. - Francisco María Oreamuno, Presidente. –Modesto Guevara, Secretario. - Miguel Mora, Secretario. –Por tanto: EJECÚTESE. Palacio Nacional. San José julio veintiocho de mil ochocientos cincuenta y uno. - Juan Rafael Mora. -El Ministro de Estado en el Despacho de Gobernacion, Joaquin Bernardo Calvo.
