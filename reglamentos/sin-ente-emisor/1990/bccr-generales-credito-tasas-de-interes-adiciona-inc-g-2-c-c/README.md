@@ -13,3 +13,4 @@ BCCR: Generales Crédito Tasas de Interés. Adiciona inc g) 2 C Cap VI
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-01-30 | la propia norma |
+| 2 | 1993-01-13 | Ley 8 |
