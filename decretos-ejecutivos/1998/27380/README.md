@@ -16,3 +16,4 @@ Reglamento de Servicios Aeroportuarios
 | 1 | 1998-10-20 | la propia norma |
 | 2 | 2003-02-10 | Decreto Ejecutivo 31122 (2003-02-10) |
 | 3 | 2003-06-25 | Decreto Ejecutivo 31248 (2003-06-25) |
+| 4 | 2003-09-10 | Decreto Ejecutivo 31389 (2003-09-10) |
