@@ -1,0 +1,2 @@
+Artículo 2º—Autorízase a la Municipalidad de San José para que condone, hasta en un sesenta y ocho por ciento (68%), el pago del capital adeudado por los ciento sesenta y dos (162) inquilinos considerados de interés social del Centro de comercio local Paso de la Vaca, correspondiente al período comprendido entre el 26 de noviembre de 1998, día de inicio de las operaciones de este Centro, y el 6 de marzo de 2000, así como todos los intereses corrientes y moratorios adeudados hasta la aprobación de esta Ley.
+Rige a partir de su publicación.
