@@ -14,3 +14,4 @@ Modifica límite de gasto presupuestario y efectivo del 2001, para el Instituto 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-11 | la propia norma |
+| 2 | 2001-09-24 | Decreto Ejecutivo 29936 (2001-09-24) |

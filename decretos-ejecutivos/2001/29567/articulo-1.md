@@ -11,3 +11,4 @@ Considerando:
 6º—Que es necesario ampliarle al INCOP los límites de gasto presupuestario y efectivo para el período 2001. Por tanto,
 Decretan:
 Artículo 1º—Modifícase para el Instituto Costarricense de Puertos del Pacífico, los límites de gasto presupuestario y efectivo del 2001, establecidos en el Decreto Ejecutivo N° 28639-H, de manera que el gasto presupuestario y el gasto efectivo total no podrán exceder la suma de ¢4.445.5 millones, en ese período.
+(Mediante Decreto Ejecutivo N° 29936 de 24 de setiembre del 2001, se modifica el límite de gasto para el 2001, para el INCOP)
