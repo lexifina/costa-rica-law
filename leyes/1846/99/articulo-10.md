@@ -1,0 +1,1 @@
+Artículo 10.-Reunido el público en el local de la Junta, el Domingo o día festivo destinado para la celebración de la lotería, dos vocales de la Junta, el Tesorero, Secretario y Jefe Político presidirán el acto, que comenzar, por la apertura de los globos a la vista de todos del mismo modo que se cerraron.

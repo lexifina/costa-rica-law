@@ -1,0 +1,1 @@
+Artículo 2°. -Cuando el producto de billetes no alcance a la suma señalada en el art. anterior y el Hospital no pudiere llenar el déficit, la lotería se celebrar solamente con el valor de quinientos pesos.

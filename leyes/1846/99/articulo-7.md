@@ -1,0 +1,1 @@
+Artículo 7°. -Dos meses antes de la celebración de dicha lotería, se anunciar por la gaceta y carteles la venta de billetes y el número y valor de los premios, y tres días antes a la vista del público y a presencia del Jefe Político o Alcalde, se verificar la insaculación de los números en los globos, cerrándolos con llave que se entregar a la autoridad en el acto.

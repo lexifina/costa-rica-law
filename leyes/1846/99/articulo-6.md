@@ -1,0 +1,1 @@
+Artículo 6°. -La venta de billetes se hará en la Capital en la Secretaría de la Junta; en los departamentos, en las Administraciones de correos, y en los Puertos en las de Alcabalas, concediéndose por esta ocupación a los encargados, un cuatro por ciento de la utilidad sobre el valor que recauden.

@@ -1,0 +1,1 @@
+Artículo 14.-Al presentar al público el último número y premio que obtuvo, se gritará viva Costa Rica! e incontinente se entregarán los valores correspondientes a los números premiados, advirtiéndose que no se dará cantidad alguna sino al dueño del número o persona de seguridad a quien se recomiende.
