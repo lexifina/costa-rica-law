@@ -1,1 +1,0 @@
-Artículo 3°—La condición de zonaje, la suspensión o modificación del mismo, será confirmada por medio de Acción de Personal. Esta acción debe indicar el monto del zonaje, el domicilio legal del servidor, el lugar donde presta sus servicios y el lugar al cual se traslada, o el lugar donde se le nombra cuando se trate de un ingreso y demás datos propios del documento.

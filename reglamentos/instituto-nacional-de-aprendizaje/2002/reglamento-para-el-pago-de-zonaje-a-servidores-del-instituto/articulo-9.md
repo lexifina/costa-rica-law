@@ -1,1 +1,0 @@
-Artículo 9°—Cuando el INA resolviere suspender el pago de zonaje, conforme lo dispuesto en el artículo 8º, el trabajador afectado no podrá alegar derechos adquiridos, en virtud de que el zonaje no constituye una prestación obligatoria e invariable, y su pago se fundamenta en circunstancias especiales, que al variar, hacen insubsistente la razón de pago.
