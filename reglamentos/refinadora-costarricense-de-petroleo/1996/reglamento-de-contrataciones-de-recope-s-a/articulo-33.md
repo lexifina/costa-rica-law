@@ -1,2 +1,0 @@
-Artículo 33.—Prórroga de los contratos de servicios continuados.
-Tratándose de contratos de servicios continuados en los que se haya previsto en los documentos de la contratación una o varias prórrogas al plazo original, la unidad gestionante, mediando justificación expresa, solicitará a la Dirección de Suministros con al menos 60 días naturales de antelación, la prolongación de la relación contractual, la cual, deberá ser aprobada por el órgano competente, según lo determine la suma del contrato original más el monto de la prórroga.

@@ -1,3 +1,0 @@
-Artículo 20.—Comunicación
-La Dirección de Suministros será encargada de comunicar los actos de adjudicación o resoluciones dentro de los plazos así previstos en el Reglamento General de Contratación Administrativa. La comunicación deberá efectuarse por los mismos medios utilizados para invitar. En las licitaciones por registro o restringidas, deberán enviarse al lugar o medio electrónico expresamente indicado por las partes o interesados. A falta de esa indicación, el acto o resolución se tendrá por comunicado dos días hábiles después de su adopción.
-La comunicación se comprobará con la copia de recibido o la boleta de envío que emita el medio electrónico utilizado para tal fin, de lo cual se en el respectivo expediente.

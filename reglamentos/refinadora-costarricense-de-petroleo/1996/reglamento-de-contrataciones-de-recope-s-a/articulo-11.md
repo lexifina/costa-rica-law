@@ -1,2 +1,0 @@
-Artículo 11.—Cartel
-El cartel o documento que haga las veces de éste contendrá las condiciones generales de la contratación y las especificaciones técnicas. En caso de existir discrepancias entre lo dispuesto en las condiciones generales de un determinado cartel y los principios establecidos en este Reglamento, prevalecerá lo dispuesto en éste. El contenido del cartel establecerá como mínimo los requisitos establecidos en el artículo 45 del Reglamento General de Contratación Administrativa.

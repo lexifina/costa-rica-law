@@ -1,6 +1,0 @@
-Artículo 13.—Modificaciones al cartel y prórrogas en tiempos para recepción de ofertas
-Las modificaciones a las condiciones y especificaciones del cartel, serán divulgadas por los mismos medios utilizados para cursar la invitación, con al menos ocho días hábiles de anticipación al vencimiento del plazo para recibir ofertas siempre que estas modificaciones no cambien el objeto de la contratación ni constituyan una variación fundamental en la concepción original del negocio.
-Cuando se sustituya o amplíe el objeto o se introduzca una alteración importante en su concepción original, se ampliarán los plazos para la recepción de ofertas por un período por lo menos igual al mínimo establecido.
-Cuando se trate de simples aclaraciones pedidas o acordadas de oficio, que no impliquen modificación en los términos de referencia, la Dirección de Suministros las incorporará de inmediato al expediente y les dará una adecuada difusión.
-Las prórrogas en el plazo para la recepción de ofertas deberán estar divulgadas a más tardar el día anterior al que previamente se hubiese señalado como límite para la presentación de ofertas.
-Constituirán parte del cartel las aclaraciones e interpretaciones que se le hagan y se divulguen en la forma aquí regulada.

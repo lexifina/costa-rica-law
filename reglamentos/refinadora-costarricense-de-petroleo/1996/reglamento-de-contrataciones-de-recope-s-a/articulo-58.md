@@ -1,2 +1,0 @@
-Artículo 58.—Contrataciones para instituciones estatales. Aquellas contrataciones de bienes, servicios, obras o arrendamientos que se destinen a otras entidades e instituciones públicas, podrán efectuarse siempre que existan disposiciones legales que así lo faculten y se cuente con los recursos presupuestarios suficientes, debiéndose cumplir con los procedimientos ordinarios de la contratación administrativa y los señalados en este Reglamento.
-(Así adicionado por acuerdo tomado en sesión N° 3681 de 10 de octubre del 2002)

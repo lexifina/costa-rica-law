@@ -1,5 +1,0 @@
-Artículo 42.—Trámite de pago
-En el caso de adquisición de bienes en plaza se pagará contra entrega de los mismos y presentación de facturas en los respectivos almacenes. Para servicios, arrendamientos o contratación de obra, se pagará contra factura presentada por el contratista a la unidad gestionante o el inspector del contrato, el cual se encargará de darle trámite de acuerdo a los procedimientos establecidos. En ambos casos se comprobará previamente que el bien o servicio fue recibido satisfactoriamente y que el contratista haya cumplido con lo pactado.
-Tratándose de contratos para suministro de bienes, de previo al trámite de pago, se constatará la correcta recepción de la prestación contractual, observando al respecto las disposiciones contenidas en el artículo 68 del Reglamento General de Contratación Administrativa.
-Recope reconocerá interés por atraso mayor a los tres meses, en el pago efectivo de sus obligaciones pecuniarias de conformidad con lo establecido en el articulo 21 del Reglamento General de Contratación Administrativa.
-Cuando se trate de compras al exterior, para su pago se seguirán las normas y costumbres del comercio internacional.

@@ -1,5 +1,0 @@
-Artículo 19.—Adjudicación
-Se adjudicará la mejor oferta u ofertas válidas por acuerdo o acto razonado con fundamento en el expediente administrativo de la respectiva contratación, cuando resulte más conveniente a los intereses de Recope, podrá la instancia competente declarar desierto el concurso.
-En caso de que en un procedimiento concursal no se recibiesen ofertas o fuere declarado desierto por ser todas las ofertas inelegibles o inconvenientes para Recope, el órgano competente podrá autorizar la adquisición del objeto requerido mediante el procedimiento ordinario señalado por el artículo 30 de la Ley de Contratación Administrativa. Para el caso de la licitación restringida infructuosa se procederá a tramitar una contratación cotizada.
-El órgano competente de dictar la resolución, será el encargado de realizar las gestiones necesarias para que el acuerdo razonado se reciba oportunamente en la Dirección de Suministros.
-La adjudicación deberá ser comunicada a todos los oferentes participantes por el mismo medio empleado para invitarlas a participar

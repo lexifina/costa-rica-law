@@ -1,4 +1,0 @@
-Artículo 29.—Ejecución de garantía de cumplimiento
-De conformidad con el artículo 16.2.1 del Reglamento de Contratación Administrativa, la Dirección de Suministros, a propia o de la unidad gestionante, ordenará la ejecución parcial o total de la garantía de cumplimiento rendida por el adjudicatario, cuando se presente algunos de los causales que justifiquen tal decisión.
-De previo, se conferirá al contratista una audiencia por hábiles a fin de que presente algunos de los y pruebas de descargo correspondientes.
-Vencido el plazo anterior, la Dirección de Suministros contará con veinte días hábiles para recomendar al órgano competente, la resolución correspondiente, quien dispondrá de diez días para dictar y trasladarla a aquella dependencia para su notificación la que deberá hacerse dentro de los tres días hábiles siguientes.

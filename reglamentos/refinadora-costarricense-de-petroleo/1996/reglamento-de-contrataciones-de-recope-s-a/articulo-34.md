@@ -1,8 +1,0 @@
-Artículo 34.—Inspección de contratos de obras, servicios y suministros de bienes
-Incumbe a la Administración ejercer de una manera eficiente, continua y directa, la inspección de los contratos de obra y servicios durante su ejecución
-El cartel o el documento que haga las veces de éste definirá el órgano competente, así como sus atribuciones y responsabilidades.
-En todo caso, la función del inspector será verificar que la ejecución del objeto contractual se enmarque dentro de las previsiones que al respecto consten en los documentos contractuales, así como recomendar los ajustes al mismo que resulten necesarios para la mejor satisfacción de la necesidad pretendida.
-A los efectos del artículo 61 de la Ley de Administrativa en lo referente a los contratos de obra, una vez que se reciba en forma definitiva o bajo protesta el objeto del contrato, el encargado de la inspección contará con quince días hábiles para a la Dirección de Suministros, un informe técnico y económico en el se consignará el resultado de la fase de ejecución contractual.
-El contratista garantizará a los inspectores y demás autorizados al efecto, el libre a la y a los se deban utilizar en ella.
-En el suministro de bienes, corresponde a la unidad solicitante el respectivo informe de recepción final de los bienes específicos mientras respecto de los bienes de inventario permanente corresponderá tal obligación de información al almacén en que ingresaron los bienes, lo se dispondrá de un plazo máximo de diez días hábiles.
-El contratista devolverá al inspector del contrato, todos los sobrantes que Recope hubiese pagado directamente al fabricante.

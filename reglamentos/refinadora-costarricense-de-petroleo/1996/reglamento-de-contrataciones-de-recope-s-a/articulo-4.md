@@ -1,2 +1,0 @@
-Artículo 4°—Organización y unidad de trámite
-Compete a la Dirección de Suministros y a la unidad desconcentrada en los trámites que ella ejecute, llevar a cabo los procedimientos de contratación tanto de la actividad no ordinaria como ordinaria en coordinación con las unidades gestionantes.

@@ -1,5 +1,0 @@
-Artículo 39.—De la Gestión Económica de los contratistas
-Las gestiones que versan sobre una pretensión de carácter patrimonial deberán ser presentados por el contratista durante su ejecución, ante la Dirección de Suministros, quien deberá instar su de los treinta días hábiles siguientes a su presentación.
-Para tal efecto, contará con la colaboración de la Dirección de Legal y la unidad gestionante, los que en de ser requerida su colaboración, dispondrán de diez días hábiles para pronunciarse en a lo solicitado.
-La Dirección de Suministro una vez que cuente con los criterios técnico y jurídico respectivos procederá dentro de los diez días hábiles siguientes a elaborar la recomendación de resolución y lo remitirá al órgano que resolvió la adjudicación quien decidirá en definitiva el reclamo interpuesto. Para tales fines, dicho órgano contará con un plazo de tres hábiles debiendo remitirla a la Dirección de Suministros para que proceda a la notificación correspondiente.
-Todo reclamo económico que contenga una pretensión abiertamente improcedente podrá ser rechazada ad- portas por la instancia competente.
