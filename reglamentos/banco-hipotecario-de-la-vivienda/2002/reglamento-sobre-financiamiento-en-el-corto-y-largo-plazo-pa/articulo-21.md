@@ -1,0 +1,1 @@
+Artículo 21.—Cuando la Entidad Autorizada remita al BANHVI la solicitud de financiamiento vía artículo 66 BIS del Reglamento de Operaciones del SFNV, deberá especificarse la clase de garantía requerida al desarrollador y su forma de ejecución. La garantía debe ser una de las ya previstas en la normativa del SFNV.

@@ -1,0 +1,3 @@
+SECCIÓN PRIMERA
+Desarrollo de un proyecto sin financiamiento de corto plazo
+Artículo 6º—Sujetándose a los lineamientos del MIVAH, un desarrollador puede llevar a cabo la construcción de determinado proyecto de vivienda con recursos propios, ajustándose a las especificaciones que haya establecido el MIVAH lo mismo respecto a la ubicación del proyecto, al número de viviendas y a sus características para el segmento de beneficiarios. La Entidad Autorizada y el BANHVI deberán en su momento estudiar la propuesta y revisar exhaustivamente, entre otros, los precios propuestos, para lo cual el BANHVI investigará e informará regularmente, cuáles son los precios que se presentan en el mercado de inmuebles y de la vivienda.

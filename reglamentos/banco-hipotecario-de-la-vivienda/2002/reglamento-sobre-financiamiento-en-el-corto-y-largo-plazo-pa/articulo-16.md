@@ -1,0 +1,1 @@
+Artículo 16.—También el BANHVI podrá mantener -para este tipo de casos- un registro de desarrolladores debidamente precalificados. De dicho registro se podrá seleccionar, respetando el principio de igualdad, a los desarrolladores que atenderán estos casos.

@@ -1,0 +1,1 @@
+Artículo 27.—De presentarse situaciones de emergencia debidamente declaradas por el Poder Ejecutivo, el BANHVI podrá dictar normas especiales que contribuyan excepcionalmente a satisfacer el interés público. Para ello podrá incluso excepcionar, de acuerdo con el ordenamiento jurídico, la aplicación de una o varias de las disposiciones contenidas en la presente normativa.

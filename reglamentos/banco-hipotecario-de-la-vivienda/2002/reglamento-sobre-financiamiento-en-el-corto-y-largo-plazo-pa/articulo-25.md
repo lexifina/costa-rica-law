@@ -1,0 +1,1 @@
+Artículo 25.—La canalización de recursos hacia un proyecto de vivienda siempre es una actividad discrecional del BANHVI. Por tal motivo, ésta entidad se reserva el derecho de rechazar una solicitud, en forma total o parcial, cuando no se observen estrictamente los lineamientos establecidos en la presente reglamentación o en otras disposiciones legales aplicables en la materia.

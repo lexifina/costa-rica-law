@@ -1,0 +1,1 @@
+Artículo 12.—Concluido el proceso de formalización individual de las operaciones y pagadas las compras al desarrollador, se procederá a liquidar el contrato de administración y la Entidad Autorizada presentará un informe de liquidación al BANHVI y reintegrará los recursos sobrantes, con lo cual se dará por concluida la operación.

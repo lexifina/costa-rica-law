@@ -1,0 +1,3 @@
+SECCIÓN SEGUNDA
+Desarrollo en terrenos propiedad del BANHVI
+Artículo 13.—En los casos de desarrollo y construcción de un proyecto en terrenos propiedad del BANHVI se requerirá de la precalificación de las familias beneficiadas, de un estudio de prefactibilidad y factibilidad elaborado por el BANHVI que determine la viabilidad del proyecto, y de una fuerte fiscalización por avance de obras, especialmente para el primer desembolso. Esta fiscalización estará a cargo de la Entidad Autorizada. El desarrollador puede eventualmente aportar el primer desembolso en lugar de la respectiva garantía, si así éste lo decidiere.

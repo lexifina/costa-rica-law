@@ -1,0 +1,1 @@
+Artículo 15.—El BANHVI suministrará a la Entidad Autorizada otros documentos e información, como el diseño de sitio y estudios preliminares. En todo caso, aspectos como área de los lotes, área de construcción, tipo de sistema constructivo etc., serán decididos únicamente por el BANHVI.
