@@ -1,2 +1,0 @@
-Artículo 12.—Las operaciones de crédito que se constituyen por arreglo de pago y que incumplen el plan establecido se les podrá efectuar un nuevo arreglo de pago. aplicándoles la presitada normativa. Queda restringido un tercer arreglo de pago, dependiendo de un exhaustivo análisis del nivel resolutivo correspondiente.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Ordinaria No. 3150 de 03 de octubre de 1995, publicada en La Gaceta No. 7 de 10 de enero de 1996.)

@@ -1,1 +1,0 @@
-Articulo 8°—Cuando el arreglo de pago sobrepase el monto indicado en el inciso b), del artículo tercero, el Departamento de Cobro Administrativo, lo remitirá al nivel resolutivo competente, acompañado del estudio y recomen dación es correspondient.,La resolución correspondiente será comunicada al Departamento de Formalización respectivo, para lo procedente.
