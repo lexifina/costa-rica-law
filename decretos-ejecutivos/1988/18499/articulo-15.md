@@ -1,0 +1,1 @@
+Artículo 15.-El Ministerio podrá cobrar daños y perjuicios que le ocasione el becario, a raíz de incumplimiento del contrato y podrá a su vez, separar de su cargo al becado incumpliente sin responsabilidad patronal por falta grave.

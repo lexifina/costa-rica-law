@@ -1,0 +1,2 @@
+Artículo 28.-Concluido el trámite de recepción de solicitud de participación se entrará de inmediato a calificar a los candidatos admitidos y se resolverá la adjudicación de la beca en un término no mayor de cinco días, plazo que se contará desde la fecha de cierre del período de recepción de solicitudes.
+La resolución respectiva la dictará el Departamento de Capacitación, conforme con lo dispuesto en el artículo 35 de este reglamento.

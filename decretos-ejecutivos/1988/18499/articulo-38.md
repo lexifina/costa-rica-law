@@ -1,0 +1,2 @@
+Artículo 38.-Si el funcionario con impedimento comprobado es uno de los miembros del comité‚ su superior así lo declarará ordenando que se nombre un miembro suplente por parte de quien de quien corresponda para que conozca y resuelva conjuntamente con los otros integrantes el caso particular que se trate.
+La designación del miembro suplente deberá hacerse dentro de los tres días hábiles siguientes a la fecha en que se dictó la resolución.

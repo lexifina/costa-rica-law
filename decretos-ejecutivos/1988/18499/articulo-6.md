@@ -1,0 +1,1 @@
+Artículo 6°.-El quórum para las sesiones será integrado por cuatro delegados, de los cuales uno por lo menos deberá ser el representante del Ministro, las decisiones del comité‚ se adoptarán por simple mayoría del plano de sus integrantes.

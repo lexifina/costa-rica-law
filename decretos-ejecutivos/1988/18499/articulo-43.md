@@ -1,0 +1,1 @@
+Artículo 43.-No son aplicables las disposiciones de este reglamento a los permisos con goce de sueldo que el Ministerio hubiese previamente otorgado de conformidad con las leyes laborales vigentes y para empleados del Ministerio de Gobernación y Policía que asistan a cursos de sindicalismo o cooperativismo.

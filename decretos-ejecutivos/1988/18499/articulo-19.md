@@ -1,0 +1,2 @@
+Artículo 19.-El funcionario que, encontrándose disfrutando de una beca, renunciare a ésta sin justa causa, queda obligado a indemnizar al Estado por los gastos en que éste haya incurrido con motivo de la beca, así como por los posibles daños y perjuicios que en forma directa o inmediata puedan derivarse de su decisión.
+No podrá ser favorecido con los beneficios a que hace referencia el presente reglamento, quien habiendo disfrutado anteriormente de ellos, no haya cumplido con las obligaciones del mismo y del contrato correspondiente.

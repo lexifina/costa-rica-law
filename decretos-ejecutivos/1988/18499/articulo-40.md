@@ -1,0 +1,1 @@
+Artículo 40.-Los funcionarios sancionados con corrección disciplinaria de más de dos semanas de suspensión, no podrán concursar para obtener becas dentro de los dos meses siguientes a la fecha en que se les haya sido impuesta la sanción.

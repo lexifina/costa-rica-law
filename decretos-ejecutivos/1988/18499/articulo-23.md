@@ -1,0 +1,1 @@
+Artículo 23.-Cuando por algún motivo se paralicen, temporalmente las actividades docentes (en razón de huelgas, vacaciones, y otras causas), el estudiante deberá reintegrarse a su trabajo habitual, siempre y cuando su ubicación geográfica lo permita.

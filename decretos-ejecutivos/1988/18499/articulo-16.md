@@ -1,0 +1,2 @@
+Artículo 16.-Los términos del contrato se establecerán en cada caso, por común acuerdo del beneficiario y el Ministerio, sin perjuicio de las obligaciones que prescribe la Ley de Licencias para Adiestramiento a Servidores Públicos.
+Las condiciones estipuladas en los carteles que sacan una beca se extienden aceptadas por el interesado y, por los mismo, incorporadas al contrato, salvo las cláusulas que la parte fije de común acuerdo con el señor Ministro.

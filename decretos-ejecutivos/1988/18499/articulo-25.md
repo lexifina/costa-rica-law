@@ -1,0 +1,1 @@
+Artículo 25.-Las ofertas para participar en un concurso, las presentarán los interesados en formularios previamente confeccionados para este efecto según se trate de proyecto donde medie o no la participación de organismos internacionales, gobiernos extranjeros o proyectos nacionales interinstitucionales.

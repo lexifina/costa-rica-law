@@ -1,0 +1,3 @@
+CAPITULO VIII
+De los impedimentos, las excusas y la recusaciones
+Artículo 35.-No pueden intervenir directa o indirectamente en la adjudicación de las becas a que se refiere este reglamento aquellos funcionarios que tuvieren interés en ellas, porque se encuentren concursando a título personal, o por parientes hasta el segundo grado de consanguinidad o afinidad. Es obligación del funcionario excusarse ante el superior inmediato o Presidente del Comité‚ de Becas, en el momento mismo en que tenga conocimiento de los motivos de su impedimento. Si el superior encontrare procedente la excusa, conocerá del asunto y entrará a resolverlo observando las mismas formalidades a que se encuentra sujeto el inferior.

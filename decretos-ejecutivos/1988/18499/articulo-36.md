@@ -1,0 +1,1 @@
+Artículo 36.-Cuando a pesar de impedimento el funcionario continuare conocimiento del asunto, cualquier interesado podrá recusarlo por escrito ante el superior. El no excusarse sabiendo la existencia del impedimento implica una falta grave en las labores y sancionada conforme con la legislación vigente. La resolución que declare con lugar la recusación es en única instancia.

@@ -1,0 +1,2 @@
+Artículo 20.-El Ministerio de Gobernación y policía no contrae ninguna obligación económica, ni garantiza ascensos ni otros beneficios, salvo los relativos a la carrera profesional si fuere así calificados, una vez que el beneficiario haya realizado los estudios de especialización.
+Sin embargo, dará preferencia a los funcionarios en tales condiciones cuando se presenten situaciones en que se requiere de sus conocimientos académicos.

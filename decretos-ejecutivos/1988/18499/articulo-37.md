@@ -1,0 +1,1 @@
+Artículo 37.-(Nota de Sinalevi: En la publicación de este decreto ejecutivo no aparece este artículo. No obstante se ha creado el mismo pero sin texto porque el sistema exige una numeración consecutivo)

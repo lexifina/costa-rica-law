@@ -1,0 +1,1 @@
+Artículo 44.-Se excluye de la presente reglamentación la participación de funcionarios en concursos y conferencias técnicas auspiciadas por organismos nacionales o interinstitucionales y gobiernos extranjeros, para los que constituya requisito indispensable la calidad del cargo desempeñado.

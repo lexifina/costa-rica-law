@@ -1,0 +1,1 @@
+Artículo 17.-En cada caso específico el Ministerio exigirá una garantía colateral de cumplimiento del servidor, ya sea real o personal o título o valor u otra forma convenida entre el Estado y el beneficiario.

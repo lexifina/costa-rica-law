@@ -1,0 +1,1 @@
+Artículo 21.-Además de las obligaciones que expresamente impone este reglamento a los beneficiarios, se podrá establecer cualquier otra en el contrato que se firme en el momento de otorgar el beneficio, atendiendo a la modalidad del estudio que se va a realizar y a los interesados del Ministerio de Gobernación y Policía.

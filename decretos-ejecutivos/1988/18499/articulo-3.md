@@ -1,0 +1,1 @@
+Artículo 3°.-El financiamiento total o parcial de la participación de sus funcionarios por parte del Ministerio de Gobernación y Policía se lleva a cabo en el país o en el extranjero, queda sujeto a que existan disponibilidades presupuestarias adecuadas.
