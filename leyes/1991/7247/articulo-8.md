@@ -1,0 +1,1 @@
+ARTICULO 8.- La información suministrada por los patentados a la Municipalidad de Heredia, tendrá el carácter confidencial que tiene la información de las declaraciones sobre renta. Cualquier violación a esta confidencialidad se castigará con las penas que señala la Ley No. 837 del 20 de diciembre de 1946 y sus reformas.

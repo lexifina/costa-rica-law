@@ -1,0 +1,1 @@
+ARTICULO 11.- Cuando en un mismo establecimiento dedicado a actividades lucrativas ejerzan actividades varias sociedades o personas físicas, el monto del impuesto se determinará a partir de la suma total del impuesto que corresponda a cada una, individualmente.
