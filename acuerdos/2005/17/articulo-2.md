@@ -1,0 +1,2 @@
+2º—Girar instrucciones al Departamento de Protección y Registro, Direcciones y Oficinas Regionales, para que emitan las licencias para embarcaciones extranjeras dedicadas a la pesca deportiva, por un año calendario, estableciéndose que “la misma queda de pleno suspendida en tanto dicha embarcación no cuente con el permiso de importación temporal vigente, quedando habilitada por el restante período, una vez llevado o cumplido su registro”.
+Publíquese
