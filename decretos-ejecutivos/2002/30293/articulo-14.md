@@ -1,1 +1,0 @@
-Artículo 14.—Controles periódicos. Estos establecimientos serán controlados periódicamente por las autoridades de salud o inspectores oficiales acreditados por el MS y se les renovará o conservará el permiso de funcionamiento siempre y cuando el número de aves, el manejo y control de la pollinaza y gallinaza no hayan variado.

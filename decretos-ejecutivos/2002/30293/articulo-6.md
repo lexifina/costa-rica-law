@@ -1,1 +1,0 @@
-Artículo 6º—De la ubicación. Las Granjas Avícolas solo podrán ubicarse, construirse o ampliar sus instalaciones en zonas o sitios previamente aprobados por la Dirección Regional del MS o por la Dirección del Área Rectora de Salud respectiva del MS según corresponda.

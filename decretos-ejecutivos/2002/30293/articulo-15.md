@@ -1,1 +1,0 @@
-Artículo 15.—Para efectos de llevar un control adecuado de la gallinaza y pollinaza, y de las inspecciones de las instituciones correspondientes, se crea la bitácora para cada una de las granjas avícolas.
