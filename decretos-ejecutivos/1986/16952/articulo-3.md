@@ -1,0 +1,1 @@
+Artículo 3°-El INVU preparará el plan regulador indicando la zonificación respectiva. Se reglamentará lo necesario para precaver el uso de las reservas portuarias y las zonas aledañas, de “Control Especial”.

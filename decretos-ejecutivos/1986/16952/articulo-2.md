@@ -1,0 +1,5 @@
+Artículo 2°-Decláranse zonas portuarias reservadas para fines de utilidad e interés público, las comprendidas dentro de los siguientes límites:
+Zona Portuaria (Moín)
+Partiendo de la desembocadura del río Moín, aguas arriba de éste hasta su confluencia con el río Blanco, aguas arriba de este último hasta carretera SAOPIM luego por ésta en sentido este hasta la intersección con el camino viejo, a Portete siguiendo el mismo en sentido noreste, con una zona de protección forestal de por medio hasta llegar al límite este del complejo portuario Moín, siguiendo por este límite en sentido norte y continuando luego por la línea del litoral que incluye el resto del contorno de la planta física del muelle hasta encontrar nuevamente la desembocadura del río Moín.
+Zona Portuaria (Limón Centro)
+Partiendo de la desembocadura del río Limoncito y siguiendo por la línea del litoral en sentido este incluyendo el contorno de la planta física del complejo portuario, hasta llegar al Boulevard, siguiendo por éste , hasta su intersección con la carretera a Cahuita, y continuando por esta en sentido sur hasta llegar nuevamente a la desembocadura del río Limoncito.

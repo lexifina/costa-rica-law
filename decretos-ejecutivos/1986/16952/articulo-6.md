@@ -1,0 +1,1 @@
+Artículo 6°-El Ministerio de Obras Públicas y Transportes procederá a adquirir en forma directa o por expropiación, los terrenos de la zona portuaria reservada a que se refiere el artículo 2°, que estén en poder de particulares.
