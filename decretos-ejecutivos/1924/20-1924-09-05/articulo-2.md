@@ -1,0 +1,1 @@
+Artículo 2°—El Banco al recibir del Gobierno los Bonos acreditará su valor total a una cuenta especial que al efecto abrirá, y cada vez que venda alguna cantidad de ellos acreditará su producto neto a la deuda actual del Gobierno con el Banco, dando aviso inmediato de cada operación a la Secretaría de Hacienda.

@@ -1,0 +1,1 @@
+Artículo 7°—Los peritos que se empleen en el avalúo y vigilancia que por la ley se establecen, serán de nombramiento del Banco, pero sus honorarios serán pagados por los interesados. Esos honorarios los fijará el Banco y en todo caso exigirá el pago anticipado de ellos o podrá cargarlos a la cuenta del interesado si el préstamo se llevó a efecto.

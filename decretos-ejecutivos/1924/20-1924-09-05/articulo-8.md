@@ -1,0 +1,1 @@
+Artículo 8°—De acuerdo con el artículo 11 del decreto que se reglamenta, el Banco exigirá siempre una póliza de seguro contra incendio sobre la propiedad hipotecada, endosada a su favor, y que cubra por lo menos el monto del préstamo. El Banco puede sustituir esa obligación por una garantía subsidiaria equivalente.
