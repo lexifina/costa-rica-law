@@ -1,1 +1,0 @@
-Art. 57.-Cuando el fallecimiento hubiere ocurrido en hospital, lazareto, hospicio, cárcel ú otro establecimiento público, el jefe del mismo dará el parte y proporcionará las noticias para la inscripción.

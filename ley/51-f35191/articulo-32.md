@@ -1,1 +1,0 @@
-Art. 32.-Los documentos que se presenten para la extensión de una partida en el registro civil, han de estar legalizados si proceden de país extranjero, y si se hallaren redactados en idioma extraño, se traducirán oficialmente.

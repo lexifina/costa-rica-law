@@ -1,1 +1,0 @@
-Art. 53.-El matrimonio contraído por extranjeros no se inscribirá, cuando éstos lo contraigan con arreglo á las leyes de su país, sin que presenten, legalizados y traducidos, los documentos que acrediten la celebración del matrimonio.

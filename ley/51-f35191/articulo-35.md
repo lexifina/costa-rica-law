@@ -1,1 +1,0 @@
-Art. 35.-Por la salud del recién-nacido, ó por otra causa igualmente poderosa, el encargado del registro puede trasladarse al lugar en que se encuentre el niño, para llevar cabo la diligencia de inscripción.

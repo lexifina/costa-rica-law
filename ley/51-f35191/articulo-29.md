@@ -1,1 +1,0 @@
-Art. 29.-Las inscripciones podrán formalizarse fuera de la oficina del registro, mediando para ello causa bastante juicio del encargado de practicarlas, ó en los casos que especialmente determina el reglamento.
