@@ -14,3 +14,4 @@ Reforma Integración de Junta de Desarrollo Portuario de Golfito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-07-23 | la propia norma |
+| 2 | 1998-10-22 | Decreto Ejecutivo 27437 (1998-10-22) |
