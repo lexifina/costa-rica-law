@@ -1,0 +1,1 @@
+Art. 4 Los Receptores y Resguardos tendrán respectivamente los deberes y atribuciones que la ley sobre impuesto de muelle al Administrador de la Aduana de Puntarenas y Guarda del referido muelle, para el objeto de la liquidacion y contraste del impuesto que corresponda.
