@@ -1,0 +1,1 @@
+Art 7°.- El Juez de policía lo primero que practicará será recaudar los quatro reales de las personas que no se presten al trabajo y con su producto cuidadará de la compra de materiales necesarios , de herramienta y del pago de los Alvañiles quando se necesiten.

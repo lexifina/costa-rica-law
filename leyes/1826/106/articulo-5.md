@@ -1,0 +1,1 @@
+Art 5°.- Recividos por el Gefe Político el Padron y relación de que se ha hecho merito prevendrá a las municipalidades que en los tres meses primeros del año pongan en obra, primero de la reparación y en seguida la composición de los caminos, puentes y calzadas que con más urgencia la necesitan en su distrito.

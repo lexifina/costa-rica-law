@@ -1,0 +1,1 @@
+Art 9°.- El Juez de policía disfrutará un peso diario sobre los fondos de propios del Pueblo en que lo fuere todo el tiempo que trabajare, esta investido de toda la autoridad necesaria para el cumplimiento de sus deberes, recoger el dinero y hacer trabajar a los comprendidos en el Padrón debiendo usar de la insignia de bastón.
