@@ -1,0 +1,1 @@
+Art. 7°-Los empleados de la Aduana de Limón, al recibir las mercaderías de un buque y verificar la identidad de los bultos por sus marcas, contra- marcas y números, comparando con el manifiesto por mayor, procederán desde luego á averiguar si el contenido del manifiesto corresponde con la descarga efectuada.
