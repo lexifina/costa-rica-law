@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo general de la CI-CR es tener una comisión dedicada a canalizar y promover actividades y proyectos tanto del sector público como privado que busquen el desarrollo de Internet en Costa Rica.

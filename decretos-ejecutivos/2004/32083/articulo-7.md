@@ -1,0 +1,1 @@
+Artículo 7º—Se autoriza a las instituciones del Estado para destinar recursos humanos, financieros y otros, en la medida de sus posibilidades jurídicas y materiales para apoyar en el cumplimiento de los objetivos de esta Comisión.

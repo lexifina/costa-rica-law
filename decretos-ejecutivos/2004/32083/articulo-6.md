@@ -1,0 +1,1 @@
+Artículo 6º—La Comisión sesionará al menos una vez cada dos meses y será convocada por el Presidente de la Comisión, podrá también sesionar en forma extraordinaria cuando al menos tres de sus miembros lo soliciten o por decisión unilateral del Presidente.
