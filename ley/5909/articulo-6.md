@@ -1,0 +1,7 @@
+ARTICULO 6º.- Establécense con carácter permanente las disposiciones comprendidas en la norma cuadrogesimosétima del Capítulo de Normas Generales de la Ley de Presupuesto para el ejercicio fiscal de 1976, número 5875 de 26 de diciembre de 1975, que se transcribe en lo pertinente:
+"Modifícase el sistema de cobro del tributo de la actual Ley de Impuesto sobre las Ventas -Nº 3914 de 14 de julio de 1967 y sus reformas- por el sistema de aplicación no acumulativa del impuesto en todas las etapas de comercialización, incluyendo la introducción de las mercancíaspor aduanas.
+El responsable deberá declarar y pagar el impuesto sobre las ventas gravadas que efectúe y tendrá derecho a deducir y compensar, únicamente contra el impuesto creado por esta ley, el impuesto pagado sobre las mercancías adquiridas o servicios prestados en el mes a que se refiere su declaración, excepto casos especiales conforme lo disponga el Reglamento.
+El derecho al crédito sobre la adquisición de mercancías no procederá cuando las mismas no generen el impuesto de esta ley.
+En el caso de bienes de uso del negocio del adquirente, el cómputo del crédito sólo procederá cuando se trate de maquinarias y equipos destinados directamente a la producción de bienes gravados de la planta industrial.
+Queda sin efecto el uso de la tarjeta de inscripción como documento liberador del pago del impuesto.
+Se derogan y quedan modificadas, con el alcance que señala el párrafo 1º, las disposiciones que se opongan a las establecidas aquí y estas últimas el Poder Ejecutivo las reglamentará".
