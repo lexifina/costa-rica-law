@@ -38,3 +38,5 @@ Artículo 22.-Fórmulas para el alivio de los síntomas de la gripe en tabletas 
 23.-Antidiarreicos para adultos cuyos principios activos sean Caolín-Pectina.
 24.-Polvos y pastas adherentes de prótesis dentarias.
 25.-Parches callicidas cuyo principio activo sea ácido salicílico en concentración hasta el 10%.
+26.-Suplementos nutricionales, a base de proteínas, carbohidratos, grasas, vitaminas y minerales, en una base láctea o no y con una concentración en vitaminas y minerales de hasta el 50% de la dosis diaria requerida (R.D.A.) según lo establecido por las normas internacionales, por unidad posológica y para ser consumidos por personas sin requerimientos nutricionales o terapéuticos especiales.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 26044 del 02 de mayo de 1997).
