@@ -1,0 +1,1 @@
+Artículo 5°-El Ejecutivo Municipal atenderá y tramitará los asuntos administrativos relativo al uso de los vehículos antes y después de cada servicio y todos los datos necesarios para el adecuado control de los mismos, incluyendo el respectivo registro de repuestos, accesorios y herramientas.

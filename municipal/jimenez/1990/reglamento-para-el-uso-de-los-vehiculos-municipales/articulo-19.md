@@ -1,0 +1,1 @@
+Artículo 19.-La aplicación de estas sanciones quedarán bajo responsabilidad de la Dirección Administrativa y del Concejo, cuando se tratare del Ejecutivo, tomando en consideración la gravedad del caso de acuerdo con lo que establecen las leyes laborales conexas sin perjuicio de los " dispuesto en la Ley de Tránsito.

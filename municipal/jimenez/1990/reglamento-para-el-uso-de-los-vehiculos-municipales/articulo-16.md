@@ -1,0 +1,1 @@
+Artículo 16.-A parte de las labores municipales correspondientes los vehículos también podrán utilizarse en aquellos trabajos de bien comunal que realicen las instituciones y grupos debidamente organizados y reconocidos por la Municipalidad.

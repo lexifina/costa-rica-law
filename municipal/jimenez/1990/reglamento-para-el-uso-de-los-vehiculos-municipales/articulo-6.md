@@ -1,0 +1,2 @@
+Artículo 6°-El Ejecutivo Municipal llevará un control exacto de las herramientas y repuestos con que cuenta cada unidad, control que se debe mantener actualizado mediante una lista-registro de la cual se mantendrá copia respectiva en cada unidad. Dicho control se coordinará con los chóferes y funcionarios autorizados.
+Este control tiene como objetivo evitar la pérdida o mal uso de tales implementos así como su recuperación oportuna en cada caso de extravío.
