@@ -143,3 +143,4 @@ Los que reciba el Gobierno del Banco Nacional de Costa Rica como repago, según 
 Interamericano de Desarrollo y la Commonwealth Development Corporation.
 Mientras se procede con el decreto ejecutivo correspondiente, estos recursos se trasladarán a la cuenta "Saldos del presupuesto por ejecutar de la Contabilidad Nacional".
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29426 de 23 de marzo del 2001)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29522 de 14 de mayo del 2001)
