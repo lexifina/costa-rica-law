@@ -13,3 +13,4 @@ INCOP: Reglamento Uso Control Mantenimiento de VehículosApéndice Normas sobre 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-07-22 | la propia norma |
+| 2 | 2002-07-26 | Reglamento 0 (2002-07-26) |
