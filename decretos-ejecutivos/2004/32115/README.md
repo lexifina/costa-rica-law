@@ -14,3 +14,4 @@ Modifica el límite del Gasto Presupuestario para el año 2004, establecido para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-23 | la propia norma |
+| 2 | 2004-11-23 | Decreto Ejecutivo 32148 (2004-11-30) |

@@ -9,4 +9,5 @@ Considerando:
 4º—Que mediante oficio STAP-Circular 647-03 del 29 de abril del 2003, se comunicó al CURDTS el gasto presupuestario máximo autorizado para el año 2004.
 5º—Que por lo anterior, se hace necesario modificar el gasto presupuestario del Colegio Universitario para el Riego y el Desarrollo del Trópico Seco para el 2004. Por tanto:
 DECRETAN:
-Artículo 1º—Modifícase al Colegio Universitario para el Riego y el Desarrollo del Trópico Seco el gasto presupuestario para el año 2004 establecido según el artículo 1° del Decreto Ejecutivo N° 31092-H y sus reformas, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, de manera que este no podrá exceder la suma de ¢333.2 millones.
+Artículo 1º—Modifícase al Colegio Universitario para el Riego y el Desarrollo del Trópico Seco el gasto presupuestario para el año 2004 establecido según el artículo 1° del Decreto Ejecutivo N° 31092-H y sus reformas, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, de manera que este no podrá exceder la suma de ¢394.1* millones.
+*(Así reformado por el artículo 1° del decreto ejecutivo N° 32148 del 30 de noviembre del 2004)
