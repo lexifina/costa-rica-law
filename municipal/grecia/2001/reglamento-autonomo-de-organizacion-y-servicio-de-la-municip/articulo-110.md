@@ -1,0 +1,3 @@
+Artículo 110.—La Municipalidad pagará salarios semanales utilizando el sistema de depósito en el sistema bancario nacional, a las cuadrillas de peones y obreros especializados; el pago se hará los días viernes de cada semana o el día hábil anterior si aquel fuese feriado.
+Por su parte pagará salarios quincenales al resto del personal; el pago se hará los días trece y veintiocho de cada mes, o el día hábil anterior si aquel fuese feriado y para el pago se utilizará el sistema de depósito en el sistema bancario nacional.
+El sistema de pago, podrá ser variado cuando las circunstancias lo ameriten o en caso de que existan medios más novedosos de pago que vayan en beneficio del trabajador.

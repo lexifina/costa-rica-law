@@ -1,0 +1,1 @@
+Artículo 177.—Para el funcionamiento del Comité, se contará con un Reglamento que se dictará al efecto por el Concejo Municipal. La administración de los fondos, los programas que se desarrollarán a partir del Fondo de Cesantía y la responsabilidad de los mismos se regulará mediante dicho Reglamento.

@@ -1,0 +1,2 @@
+Artículo 20.—El Alcalde Municipal, es el enlace entre el Concejo Municipal y los servidores de la comuna, él es el funcionario de mayor Jerarquía dentro de la Institución, por lo que toda información por parte de la administración que sea dirigida al Concejo Municipal a de ser remitida por su despacho y rubricada por su autoridad.
+A él corresponde la presentación ante el Concejo de toda iniciativa y de los informes que presente la administración ante dicha instancia.

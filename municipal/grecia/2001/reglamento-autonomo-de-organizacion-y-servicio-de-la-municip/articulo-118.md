@@ -1,0 +1,1 @@
+Artículo 118.—La Municipalidad de Grecia reconocerá, sin deducciones de cargas sociales, un salario o bono escolar, el cual consistirá en un pago equivalente a un ocho punto diecinueve por ciento del total de los salarios acumulados de enero a diciembre. El pago se hará a los servidores municipales en el mes de enero de cada año.

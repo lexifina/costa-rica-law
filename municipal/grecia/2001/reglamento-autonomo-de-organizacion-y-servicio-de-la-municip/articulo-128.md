@@ -1,0 +1,2 @@
+Artículo 128.—Incurrirá en falta grave el servidor que por dolo o complacencia, marque una tarjeta ajena o que maliciosamente altere, mutile o la haga desaparecer en aquellos casos en que aun se mantiene este sistema; como también el que dañe o altere los otros medios de control que pudiesen existir.
+Dejará de imponerse la sanción disciplinaria, si el trabajador que por error marcó la tarjeta o aquel a quien le marcaron la suya, informa del hecho a su jefe inmediato, a más tardar en el curso de la jornada de trabajo siguiente a aquella en que sucedió el error.

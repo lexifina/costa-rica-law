@@ -1,0 +1,2 @@
+Artículo 97.—El pago de las vacaciones se hará con base en el promedio de los salarios ordinarios y extraordinarios devengas por el trabajador durante las cincuenta semanas de trabajo o durante plazo menor que le diera derecho al pago proporcional a las mismas.
+La negativa injustificada del trabajador a firmar la constancia de haber recibido sus vacaciones anuales será tenida como falta grave al contrato o relación de trabajo, para efectos de la sanción.

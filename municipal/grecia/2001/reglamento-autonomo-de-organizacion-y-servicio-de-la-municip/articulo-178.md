@@ -1,0 +1,1 @@
+Artículo 178.—El Comité dentro de su seno, nombrará un Presidente que durará en su cargo un año. El nombramiento será rotativo, de manera tal que un año lo ejerza el representante del Sindicato y otro año el representante de la Municipalidad. En caso de empate, el Presidente del Comité tendrá doble voto.

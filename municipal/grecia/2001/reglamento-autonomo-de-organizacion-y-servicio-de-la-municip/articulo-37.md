@@ -1,0 +1,1 @@
+Artículo 37.—La información contenida en el expediente personal, es de carácter confidencial y solo tendrán acceso a ella los funcionarios que lo requieran para labores propias del cargo, comisiones de la Junta, el servidor y su representante autorizado.

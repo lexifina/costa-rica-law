@@ -1,0 +1,3 @@
+Artículo 92.—Todos los días del año son hábiles para el trabajo, salvo los feriados señalados en el artículo 148 del Código de Trabajo y aquellos que el Concejo Municipal declare de asueto.
+Sin embargo, podrá trabajarse en tales días, siempre y cuando ello sea posible a tenor de las excepciones contenidas en el artículo 150 y 151 del Cuerpo legal supracitado. En estos casos de excepción, se dará aviso previo con dos días de antelación, salvo que por la naturaleza de las labores a ejecutar el trabajo deba realizarse inmediatamente o dentro de un plazo menor al señalado.
+Para efectos de remuneración de los días feriados, la Municipalidad concederá y pagará como laborados todos los que se concedan conforme a este artículo.
