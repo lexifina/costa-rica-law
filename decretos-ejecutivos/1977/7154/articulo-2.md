@@ -1,0 +1,1 @@
+Artículo 2°-Los miembros suplentes podrán devengar el mismo número máximo de dietas mensuales de ¢250.00 (doscientos cincuenta colones), cada una en la forma y circunstancias que establece el Reglamento Ejecutivo del Consejo Superior de Educación.
