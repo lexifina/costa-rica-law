@@ -1,0 +1,1 @@
+Artículo 8°.-Si el deudor no pudiere presentar personalmente para su inscripción el documento privado en que consta la prenda, ni se pudiere obtener la autenticación de un notario o cartulario, bastar para tenerlo como legítimo con la razón puesta por el Alcalde de la jurisdicción, haciendo constar la autenticidad del documento.

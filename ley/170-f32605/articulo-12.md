@@ -1,0 +1,1 @@
+Artículo 12.-Quien haya dado en préstamos su ganado, podrá en cualquier tiempo venderlo, previa licencia especial del Banco, el cual no podrá otorgarla si no se repone la garantía con prenda sobre ganado de igual valor que los animales que se trate de vender, o que se cancele proporcionalmente el crédito constituído en relación con lo que se vende.
