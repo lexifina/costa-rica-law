@@ -1,10 +1,3 @@
-Artículo 30.- El IMAS deberá someter su presupuesto a la Contraloría
-General de la República, a más tardar el 30 de setiembre, la cual podrá
-aprobarlo o improbarlo cuando no se ajuste a los preceptos legales
-vigentes o no guarden relación con las posibilidades económicas y
-financieras del Instituto. La Contraloría General de la República será en
-todo caso la encargada de la fiscalización y liquidación de los
-presupuestos del Instituto, los cuales estarán en un todo sujetos a la Ley
-de Administración Financiera de la República.
-Todos los ingresos del IMAS serán depositados en los Bancos del
-Sistema Bancario Nacional que designe el Instituto.
+ARTICULO 30.- El IMAS deberá someter su presupuesto a la Contraloría General de la República, a más tardar el 30 de setiembre, la cual podrá aprobarlo o improbarlo cuando no se ajuste a los preceptos legales vigentes o no guarde relación con las posibilidades económicas y financieras del Instituto. La Contraloría General de la República será en todo caso la encargada de la fiscalización y liquidación de los presupuestos del Instituto, los cuales estarán en un todo sujetos a la Ley de Administración Financiera de la República.
+Todos los ingresos del IMAS serán depositados en los Bancos del Sistema Bancario Nacional que designe el Instituto.
+(Véase el artículo 4º, de la Ley del Programa de Reconversión Productiva del Sector Agropecuario No.7742 de 19 de diciembre de 1997, modificado por el artículo 4° de la Ley N° 8563 de 3 de enero de 2007, el cual en su párrafo segundo señala que "El Instituto Mixto de Ayuda Social (IMAS) deberá incluir, como mínimo, una suma del diez por ciento (10%) de sus presupuestos ordinarios y extraordinarios para programas de apoyo al sector agropecuario, de acuerdo con sus objetivos; se ejecutarán en coordinación con las instituciones del sector agropecuario")
