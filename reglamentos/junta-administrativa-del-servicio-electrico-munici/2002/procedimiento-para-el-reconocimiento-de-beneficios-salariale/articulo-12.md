@@ -1,0 +1,4 @@
+Artículo 12.—El Proceso Desarrollar Recursos Humanos hará el análisis de la documentación en apego a la normativa vigente, pudiendo presentarse cualquiera de las siguientes situaciones:
+a) Si el funcionario ha dejado de laborar en una institución del Estado e ingresa de inmediato a JASEC sin mediar interrupción alguna, se computará los puntos correspondientes a experiencia profesional tomando como referencia para el otorgamiento de puntos por este concepto, la fecha definida en la institución de procedencia.
+b) Si el funcionario ha laborado en distintas dependencias del Estado en forma interrumpida, se procederá a computar el tiempo laborado y la fecha de otorgamiento de los puntos correspondientes a experiencia profesional, tomando como referencia la fecha de ingreso a JASEC.
+c) El Proceso Desarrollar Recursos Humanos trasladará la documentación y el informe respectivo al conocimiento de la Comisión de Carrera Profesional, para la respectiva aprobación.

@@ -1,0 +1,1 @@
+Artículo 5º—Una vez recibida la petición del funcionario, el Proceso Desarrollar Recursos Humanos dentro del plazo de 10 días hábiles elaborará un informe en donde indicará los resultados del estudio y hará las recomendaciones pertinentes. El informe deberá ser suscrito por el Coordinador del Proceso Desarrollar Recursos Humanos y avalado por el Líder de la UEN de Apoyo.

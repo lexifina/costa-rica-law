@@ -1,0 +1,3 @@
+Artículo 3º—El Proceso Desarrollar Recursos Humanos hará el análisis de la documentación pudiendo presentarse cualquiera de las siguientes situaciones:
+a) Si el funcionario deja de laborar en una institución del Estado e ingresa de inmediato a JASEC sin mediar interrupción alguna, le corresponderá el cumplimiento de anualidades en la fecha que tenía definida en la institución de procedencia.
+b) Si el funcionario ha laborado en distintas dependencias del Estado en forma interrumpida, se procederá a computar el tiempo total servido en años y fracciones de meses, tiempo que se sumará con el transcurrido en JASEC hasta completar 1 año de servicio y se aplicará el reconocimiento, siendo esta fecha la que fijará el cumplimiento de anualidades.

@@ -1,0 +1,1 @@
+Artículo 4º—En los casos descritos, por efecto del reconocimiento del tiempo laborado en la Administración Pública, la fecha de ingreso a JASEC será distinta a la fecha en que el interesado cumple sus anualidades, lo cual deberá indicarse en el Expediente de Personal mediante la respectiva Acción de Personal.

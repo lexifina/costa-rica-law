@@ -1,0 +1,1 @@
+Artículo 21.—Todo funcionario que provenga de una institución pública deberá tramitar ante aquella la cancelación de las vacaciones no disfrutadas, ya que en JASEC no podrá disfrutar de dicho saldo de vacaciones, de modo que al ingresar a JASEC iniciará un nuevo periodo.

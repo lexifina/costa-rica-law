@@ -1,0 +1,1 @@
+Artículo 24.—El Proceso Desarrollar Recursos Humanos elaborará el Contrato de Dedicación Exclusiva y gestionará la firma por parte del interesado y la Gerencia, quienes contarán con 10 días hábiles para su rúbrica a partir del día hábil siguiente a su recepción.

@@ -1,0 +1,1 @@
+Artículo 13.—Los demás aspectos relacionados con el otorgamiento de puntajes por concepto de Carrera Profesional se hará con base en las normas para la aplicación de la carrera profesional para las instituciones y empresas públicas cubiertas por el ámbito de la Autoridad Presupuestaria.

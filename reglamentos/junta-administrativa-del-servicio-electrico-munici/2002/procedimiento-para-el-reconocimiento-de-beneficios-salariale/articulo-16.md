@@ -1,0 +1,1 @@
+Artículo 16.—Para efectos del pago del reconocimiento por carrera profesional, es de importancia la fecha de recibido en el documento de la solicitud presentada por el funcionario en el Proceso Desarrollar Recursos Humanos y haberse cumplido con todos los requisitos establecidos por este procedimiento.

@@ -1,0 +1,1 @@
+Artículo 19.—La fecha en que el interesado disfrutará su derecho a las vacaciones será la que se determine una vez transcurridas cincuenta y dos semanas de labor continua a partir de la fecha de ingreso a JASEC, conforme lo dispuesto en el artículo 20 del Reglamento Autónomo de Trabajo.

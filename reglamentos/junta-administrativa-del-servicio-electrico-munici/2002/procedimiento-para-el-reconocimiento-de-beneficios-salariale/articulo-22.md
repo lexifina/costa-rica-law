@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Dedicación exclusiva
+Artículo 22.—Para iniciar el trámite de reconocimiento, el funcionario interesado deberá de presentar ante el Proceso Desarrollar Recursos Humanos una petición expresa solicitando el estudio pertinente, adjuntando la documentación que acredite su condición de profesional en determinada área y que se encuentra incorporado en el colegio profesional respectivo cuando corresponda. En cuanto a la documentación aportada, el Proceso de Desarrollar Recursos Humanos en caso de duda, tendrá la obligación de corroborar de oficio, la exactitud y veracidad de la información contenida en el documento.

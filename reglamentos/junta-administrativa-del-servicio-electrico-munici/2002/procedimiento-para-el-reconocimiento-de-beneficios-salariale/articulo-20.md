@@ -1,0 +1,1 @@
+Artículo 20.—El Proceso Desarrollar Recursos Humanos, procederá a consignar y firmar en la "Tarjeta de Control de Vacaciones ", la cantidad de días que disfrutará el interesado conforme al reconocimiento del tiempo laborado para la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 26.—Cuando la Acción de Personal contenga todas las firmas indicadas en el punto anterior, el Proceso Desarrollar Recursos Humanos procederá a remitir una copia de la Acción de Personal al interesado y archivará el original en el expediente personal del mismo, incorporando el pago en la quincena más próxima a la determinación y aprobación del contenido presupuestario.
