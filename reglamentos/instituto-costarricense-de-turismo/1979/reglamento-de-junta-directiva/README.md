@@ -17,3 +17,4 @@ Reglamento de Junta Directiva
 | 2 | 1990-03-06 | Reglamento 4042 (1990-03-06) |
 | 3 | 1992-01-22 | Reglamento 4230 (1992-01-22) |
 | 4 | 1992-07-01 | Reglamento 4277 (1992-07-01) |
+| 5 | 2002-11-12 | Reglamento 5214 (2002-11-12) |
