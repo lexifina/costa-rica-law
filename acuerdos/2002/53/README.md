@@ -14,3 +14,4 @@ Instrucciones para la Determinación del Coeficiente de Liquidez que deben mante
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-12 | la propia norma |
+| 2 | 2003-06-12 | Acuerdo 74 (2003-04-09) |
