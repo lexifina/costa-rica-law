@@ -1,4 +1,2 @@
-Artículo 14.—Requisito para presentar una liquidación cuando se va de vacaciones o en incapacidades
-Cuando después de una gira se toman vacaciones, que han sido autorizadas de previo, será requisito indispensable adjuntar al formulario de liquidación, copia de la orden de personal correspondiente e indicarlo en el formulario de liquidación y en caso de enfermedad o permiso, se adjuntará el comprobante respectivo.
-Para los casos de incapacidad por maternidad u otros casos similares en que sea previsible la incapacidad, será considerado como falta grave el hecho de acogerse a ella teniendo pendiente liquidar gastos de viaje.
-(Así MODIFICADA su numeración por la Sesión Ordinaria Nº4982, celebrada el 13 de diciembre de 1999, publicada en La Gaceta Nº180 del 20 de setiembre de 2000, que lo pasó del 13 al 14.)
+Artículo 14.—Requisitos para presentar una liquidación cuando se va de vacaciones o en incapacidades. Cuando después de una gira se toman vacaciones, que han sido autorizadas de previo, será requisito indispensable adjuntar al formulario de liquidación, copia de la orden de personal correspondiente e indicarlo en el formulario de liquidación y en caso de enfermedad o permiso, se adjuntará el comprobante respectivo.
+Para los casos de incapacidad por maternidad u otros casos similares.

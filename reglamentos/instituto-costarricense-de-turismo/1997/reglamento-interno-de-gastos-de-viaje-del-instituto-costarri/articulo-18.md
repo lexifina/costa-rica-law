@@ -1,4 +1,2 @@
-Artículo 18.—Reconocimiento de gastos de hospedaje.
-El hospedaje hasta donde sea posible, se tramitará a través de la ley 6990 y una vez agotada esta gestión, el reconocimiento de este gasto se realizará de acuerdo con lo estipulado en la tabla de viáticos del Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos de la Contraloría General de la República.
-(Así REFORMADO por Acuerdo tomado en Sesión N° 4971 de 12 de enero de 1998)
-(Así MODIFICADA su numeración por la Sesión Ordinaria Nº4982, celebrada el 13 de diciembre de 1999, publicada en La Gaceta Nº180 del 20 de setiembre de 2000, que lo pasó del 17 al 18.)
+Artículo 18.—Reconocimiento de gastos de hospedaje. El hospedaje hasta donde sea posible, se tramitará por medio de los contratos turísticos amparados a la Ley 6990 y una vez agotada esta gestión, el reconocimiento de este gasto se realizará de acuerdo con lo estipulado en la tabla de viáticos del Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos de la Contraloría General de la República.
+(Reformado así por acuerdo de Junta Directiva en sesión número 4791 del 12 de enero de 1998 y la 4793 del 19 de enero de 1998 y publicado en La Gaceta número 41 del 27 de febrero de 1998 así como en la sesión número 5080 del 29 de enero del 2001).

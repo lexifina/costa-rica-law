@@ -1,3 +1,5 @@
-Artículo 33.—La aplicación de los dineros adelantados es de uso totalmente individual
-Todo adelanto de gastos para atenciones, es de trámite exclusivo del funcionario a quien se le autorice, si se emplea de otra forma, se considerará falta grave y será sancionado conforme lo dispone el Reglamento Autónomo de Trabajo.
-(Así MODIFICADA su numeración por la Sesión Ordinaria Nº4982, celebrada el 13 de diciembre de 1999, publicada en La Gaceta Nº180 del 20 de setiembre de 2000, que lo pasó del 32 al 33.)
+Artículo 33.—Informe sobre gastos por atenciones. Las facturas o tiquetes de caja por gastos de representación o atención deberán acompañarse de un informe con las siguientes indicaciones:
+Cargo y nombre de los funcionarios atendidos y de la entidad a que pertenecen.
+Nombre y firma del funcionario responsable del pago motivo de la atención.
+Clase o tipo de atención, su objetivo, resultado obtenido, conclusiones y de proceder, formular las recomendaciones correspondientes.
+(Reformado así por la Junta Directiva en Sesión número 4851 del 25 de agosto de 1998 y publicado en La Gaceta número 195 del 7 de octubre de 1998 así como en la Sesión número 5080 del 29 de enero del 2001).

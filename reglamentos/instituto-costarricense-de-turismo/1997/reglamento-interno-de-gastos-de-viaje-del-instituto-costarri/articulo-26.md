@@ -1,6 +1,1 @@
-Artículo 26.—Reconocimiento de trámites migratorios
-Los trámites migratorios o el pago de impuestos de salida del país, se podrán realizar en las agencias de viajes o en las ventanillas autorizadas del Aeropuerto Internacional Juan Santamaría, donde se puede solicitar la factura correspondiente.
-En casos especiales, donde el comprobante por pago de impuestos de salida no pueda ser presentado, bastará con la verificación en el pasaporte de los sellos de migración de entrada y salida del país.
-Para el reconocimiento de impuestos de aeropuerto en terminales fuera de Costa Rica será indispensable presentar el comprobante correspondiente en todos los casos".
-(Así reformado por acuerdo tomado en sesión N° 4791 de 12 de enero de 1998)
-(Así MODIFICADA su numeración por la Sesión Ordinaria Nº4982, celebrada el 13 de diciembre de 1999, publicada en La Gaceta Nº180 del 20 de setiembre de 2000, que lo pasó del 25 al 26.)
+Artículo 26.—Reconocimiento de póliza de accidente, enfermedad y gastos menores. Cuando un funcionario se vea obligado a incurrir, durante su regreso al país en algún gasto no contemplado en el artículo 42 Bis del Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos, la Gerencia podrá autorizar como parte de los viáticos, hasta un 10% de la tarifa establecida en el artículo 35 del referido Reglamento, únicamente contra la presentación de una factura emitida a nombre del funcionario. (Reformado así por la Junta Directiva en Sesión Número 4779 del 24 de noviembre de 1997 y publicado en La Gaceta número 11 del 16 de enero de 1998.)

@@ -1,6 +1,1 @@
-Artículo 29.—Reconocimiento de comisiones y/o diferencias cambiarias
-Para el reconocimiento de comisiones y/o diferencias cambiarias en las liquidaciones de viajes al exterior, se aplicarán las siguientes disposiciones:
-Cuando la devolución al ICT del monto no gastado es en dólares, se reconocerá toda la comisión y/o la diferencia cambiaria.
-Cuando la devolución es en colones, sólo se reconocerá sobre lo gastado.
-Cuando sea mixta, se reconocerá sobre la suma de lo gastado y lo devuelto en dólares.
-(Así MODIFICADA su numeración por la Sesión Ordinaria Nº4982, celebrada el 13 de diciembre de 1999, publicada en La Gaceta Nº180 del 20 de setiembre de 2000, que lo pasó del 28 al 29.)
+Artículo 29.—Alquiler de vehículos en el exterior. En el caso de actividades en el exterior que por su índole hagan indispensable la contratación de vehículos de alquiler, deberá solicitarse aprobación previa de la Junta Directiva, la cual emitirá el acuerdo debidamente razonado. (Resolución 724-OD del 13/06/96 de la Contraloría General de la República).

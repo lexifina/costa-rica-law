@@ -1,5 +1,1 @@
-"CAPITULO I
-Aspectos generales
-Artículo 10.—Reconocimiento de gastos por llamadas telefónicas
-Para el reconocimiento de gastos por concepto de llamadas telefónicas, se adjuntará el comprobante correspondiente con un detalle que muestre el nombre de la persona a quien se llamó y motivo de la llamada.
-(Así reformado por acuerdo tomado en sesión N° 4791 de 12 de enero de 1998)
+Artículo 10.—Reconocimiento de gastos por llamadas telefónicas. Para el reconocimiento de gastos por concepto de llamadas telefónicas, se adjuntará el comprobante correspondiente con un detalle que muestre el nombre de la persona a quien se llamó y motivo de la llamada. (Modificado así por la Junta Directiva en Sesión número 4791 del de enero de 1998 y la número 4793 del 19 de enero de 1998 y publicado en La Gaceta número 41 del 27 de febrero de 1998).

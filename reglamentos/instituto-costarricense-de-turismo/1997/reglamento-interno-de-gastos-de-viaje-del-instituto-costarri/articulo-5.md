@@ -1,2 +1,1 @@
-Artículo 5°—Documentos que debe adjuntar el funcionario cuando lleve vehículo del ICT o rentado
-Cuando se efectúe una gira, la persona que lleve el vehículo deberá presentar como soporte en su liquidación de gastos de viaje, la copia de la autorización de la salida del vehículo, y adicionalmente a ésta en el caso de vehículos rentados, se deberá adjuntar copia del contrato.
+Artículo 5°—Documentos que debe adjuntar el funcionario cuando lleve vehículo del ICT o rentado. Cuando se efectúe una gira, la persona que lleve el vehículo deberá presentar como soporte en su liquidación de gastos de viaje, la copia de la autorización de la salida del vehículo, y adicionalmente a ésta en el caso de vehículos rentados, se deberá adjuntar copia del contrato.
