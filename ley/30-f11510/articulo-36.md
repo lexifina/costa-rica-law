@@ -1,0 +1,1 @@
+Artículo 36.-Los Cartularios no autorizarán ningún acto ó contrato de hipoteca por el cual se pretenda sujetar á tal gravámen los bienes que no son hipotecables, con arreglo á los artículos 86 y 87 de la ley hipotecaria.

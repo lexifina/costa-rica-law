@@ -1,0 +1,1 @@
+Artículo 17.-La designacion de toda persona que intervenga en cualquier acta ó contrato sujeta á inscripcion, se hará espresando su nombre, sus apellidos paterno y materno, aunque ella no acostumbre usar mas que uno de estos, su edad, su estado civil, su profesion y domicilio. Si fuere conocida con un segundo nombre unido al primero, se espresará tambien necesariamente.

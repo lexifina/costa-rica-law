@@ -1,0 +1,1 @@
+Artículo 59.-Cuando concurra el padre al otorgamiento de la escritura, en cuya virtud adquiera el hijo bienes muebles, ó semovientes de peculio que ha de administrar el mismo padre, podrá este constituir en ellas,la hipoteca que ha de responder de su conservacion.

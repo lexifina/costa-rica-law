@@ -1,0 +1,1 @@
+Artículo 19.-En todo acto ó contrato sujeto á rejistro, espresará el que trasfiera, revoque ó modifique el derecho, el título de adquisición, en cuya virtud le pertenezca, aunque no haya presentado al Cartulario los documentos que justifiquen su propiedad.

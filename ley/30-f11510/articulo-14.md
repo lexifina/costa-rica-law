@@ -1,0 +1,1 @@
+Artículo 14.-En todo instrumento público, por el cual se constituya, reconozca, modifique ó estinga un derecho real, que tuviere nombre conocio en derecho, se hará espresa mencion de ese, aunque las condiciones estipuladas por los otorgantes modifiquen en algun punto su naturaleza y le atribuyan mas ó menos efectos que los propios de su índole con arreglo á la ley.
