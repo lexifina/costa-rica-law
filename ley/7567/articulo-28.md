@@ -1,0 +1,4 @@
+ARTICULO 28.- El presente Convenio entrará en vigor en la fecha en
+que haya sido depositado el cuarto instrumento de ratificación o de
+adhesión. En cuanto a los estados restantes, entrará en vigor en la fecha
+en que depositen sus ratificaciones.

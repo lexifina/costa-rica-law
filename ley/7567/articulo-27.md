@@ -1,0 +1,4 @@
+ARTICULO 27.- El presente Convenio queda abierto a la adhesión de los
+Estados Americanos. Los instrumentos de adhesión se depositarán en la
+Secretaría General del SICA, y esta notificará dicho depósito a los
+Gobiernos de los Estados Miembros.
