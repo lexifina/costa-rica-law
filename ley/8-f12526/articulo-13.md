@@ -1,0 +1,1 @@
+Art. 13. Para formar el fondo de retirados, montepío militar, é inválidos, se deducirá á todos los funcionarios y empleados públicos, civiles y militares, con exclusión de soldados rasos, un cuatro por ciento de su respectiva dotación, mensualmente.

@@ -1,0 +1,1 @@
+Art. 20. Los presupuestos militares se cubrirán el día 1° de todos los meses, íntegramente con respecto á tropa y clases; guardándose con la oficialidad la proporción que aquí se fija, siempre que no haya caudales para cubrir el todo; pero no dejará de dárseles una mitad, por lo menos, de su dotación.

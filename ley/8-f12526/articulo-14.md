@@ -1,0 +1,1 @@
+Art. 14. Los retiros se concederán, conforme á lo prevenido en el § 8° sección 1a del Decreto de 10 de Diciembre de 1839; exceptuándose los resguardos, escribientes al mérito ó accidentales, y los porteros; y por lo mismo, no se hará deducion alguna á estos. Sin embargo, si correspondieren á las administraciones marítimas, gozarán del retiro
