@@ -1,0 +1,3 @@
+Artículo 16.-Podrá el Ejecutivo disponer, oyendo á la Corte Suprema de Justicia, que un reo sea trasladado del Presidio de San Lucas á la cárcel de San José‚, por razón de enfermedad grave, comprobada legalmente, siempre que ello sea indispensable para la curación del reo, y tan solo por el tiempo necesario.
+El médico de la cárcel deberá avisar, bajo su más estricta responsabilidad, á la Secretaria de Gracia, el hecho de estar ya curado el reo, á fin de que sea devuelto al presidio con el próximo cordón.
+El tiempo que durare el reo en la cárcel será computado por presidio, en la proporción de dos días de cárcel por uno de presidio. El Jefe de San Lucas anotará en el libro correspondiente la liquidación que corresponda para los fines ulteriores.

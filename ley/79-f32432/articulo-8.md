@@ -1,1 +1,1 @@
-Art. 8°-Las conmutaciones sólo se concederán en casos muy excepcionales, por motivos muy calificados y previo informe de la Corte Suprema de Justicia.
+Art. 8°-(Derogado por el artículo 29 de Ley de Gracia, N° 118 del 19 de octubre de 1909)

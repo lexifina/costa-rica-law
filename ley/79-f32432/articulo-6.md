@@ -1,1 +1,1 @@
-Art. 6°-Las penas de extrañamiento, reclusión, confinamiento y destierro, podrán ser conmutadas por el Poder Ejecutivo, unas en otras, por igual tiempo de duración, siempre que el reo haya descontado ya, por lo menos, las tres cuartas partes de la pena impuesta.
+Art. 6°-(Derogado por el artículo 29 de Ley de Gracia, N° 118 del 19 de octubre de 1909)
