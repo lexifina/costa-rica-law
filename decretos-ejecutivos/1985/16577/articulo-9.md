@@ -1,0 +1,1 @@
+Artículo 9°-El Ministerio de Industria, Energía y Minas (MIEM) establecerá median. e reglamento, los procedimientos y normas especificas de trabajo para la Comisión, así mismo, las reformas a dicho reglamento, dentro de los próximos tres meses a partir de la publicación del presente Decreto.
