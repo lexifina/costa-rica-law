@@ -1,0 +1,1 @@
+Articulo 3°—Se autoriza el cumplimiento anticipado de la amortización del titulo valor de deuda interna emitido para asumir la pérdida cuasifiscal pendiente de documentar, del Banco Central de Costa Rica por parte del Gobierno de la República , hasta por la suma de ¢568.983.303,62.
