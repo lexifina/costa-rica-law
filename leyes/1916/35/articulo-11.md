@@ -1,0 +1,1 @@
+Artículo XI-En los cantones en donde no resida Agente Fiscal y haya Alcaldía, serán Procuradores Fiscales, por ministerio de la ley, los Jefes Políticos en los casos en que se necesite la intervención del Ministerio Público, con arreglo a las leyes civiles y de procedimientos.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° 22
+(Esta ley fue derogada por el artículo 20 de la Ley Orgánica del Ministerio Público (1928), N° 35 del 13 de julio de 1916)
 (de 15 de junio)
 Reforma los artículos 27, 28, 49 y 75
 de la Ley Orgánica de Tribunales
