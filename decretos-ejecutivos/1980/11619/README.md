@@ -16,3 +16,4 @@ Reglamento del Consejo Nacional de Salarios
 | 1 | 1980-07-09 | la propia norma |
 | 2 | 1980-07-09 | SINALEVI (sin norma nombrada) |
 | 3 | 1982-07-13 | Decreto Ejecutivo 13746 (1982-07-13) |
+| 4 | 1983-01-27 | Decreto Ejecutivo 14317 (1983-01-27) |
