@@ -1,0 +1,1 @@
+Art. 3. Se suprime la gracia que por el art. 4° del decreto de 24 de Agosto de 1841, se concedía á los introductores de dinero en el Estado –Dado en la ciudad de San José, á veintiséis de marzo de mil ochocientos cuarenta y tres. –José María Alfaro. –Al Ministro general del Despacho, Señor Doctor José Maria Castro.”
