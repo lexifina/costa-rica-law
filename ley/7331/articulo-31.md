@@ -11,17 +11,17 @@ b) Tener un indicador de velocidad, que debe marcar la velocidad en
 kilómetros por hora y estar instalado a la vista del conductor.
 c) Tener ubicado el volante de conducción o dirección al lado
 izquierdo.
-ch) Los automóviles y los vehículos de carga deben estar provistos de
-cinturones de seguridad para todos sus ocupantes. Los de los
-asientos laterales delanteros deben tener tres puntos de apoyo y
-los de los asientos restantes pueden ser subabdominales.
-Para el transporte de menores de cuatro años o de infantes cuyo
-peso no exceda de veinte kilogramos, debe proveerse una silla de
-seguridad sujeta por los cinturones de seguridad. Los asientos
-delanteros deben estar provistos de "apoyacabezas". Los
-microbuses, busetas y autobuses deben estar provistos de
-cinturones en los asientos delanteros de servicio y del
-conductor.
+ch) Los automóviles y los vehículos de transporte exclusivo de estudiantes,
+(buses, busetas y microbuses) excepto de estudiantes universitarios y los
+vehículos de carga deberán de estar provistos de cinturones de seguridad
+para todos sus ocupantes. Los asientos laterales delanteros de los automóviles
+y vehículos de carga deberán tener tres puntos de apoyo, así como los laterales
+traseros. Los cinturones de seguridad de los asientos restantes podrán ser
+subabdominales. Los respaldos de los asientos de los vehículos de transporte
+exclusivo de estudiantes deberán tener un tamaño suficiente para cubrir la cabeza del menor.
+El uso del cinturón de seguridad es obligatorio para los menores de edad en los
+automóviles y en los vehículos de transporte exclusivo de estudiantes.
+(Así reformado por Ley N° 8167 de 27 de noviembre del 2001)
 d) Tener espejos retrovisores colocados de tal manera que el
 conductor pueda, desde su asiento, observar la vía que queda
 atrás y a los lados de su vehículo. Los espejos retrovisores, sus
