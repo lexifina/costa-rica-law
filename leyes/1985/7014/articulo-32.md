@@ -1,3 +1,4 @@
 CAPÍTULO VI
 De la exportación
-Artículo 32.- Determinado el excedente de la producción de arroz, de conformidad con lo que establece el artículo 10 de la presente ley, la Oficina solicitará a los beneficiadores la retención de la cantidad de arroz que corresponda, de la calidad que se especifique, para cubrir la exportación, que se realizará por intermedio de la misma Oficina, para lo cual ésta dictará un reglamento que deberá ser aprobado por el Consejo Nacional de Producción. En la medida de lo posible, se distribuirá el monto de lo exportable en forma proporcional a las existencias de cada beneficiador.
+Artículo 32.- DEROGADO
+( DEROGADO por el artículo 70, inciso a) del segundo grupo de incisos, de la Ley Nº 7472 de 20 de diciembre de 1994).
