@@ -14,3 +14,4 @@ Reglamento para el cobro administrativo y judicial de la Municipalidad de León 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-24 | la propia norma |
+| 2 | 2001-06-11 | Reglamento municipal 159 (2001-06-11) |
