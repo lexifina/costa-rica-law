@@ -1,1 +1,0 @@
-Artículo 24.-La Oficina Administrativa repartirá entre los miembros de la Junta, a más tardar dos días hábiles antes del día de la sesión respectiva, copias del acta o actas que deberán ser discutidas y aprobadas y de su exactitud se hace responsable.

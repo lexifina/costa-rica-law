@@ -1,2 +1,0 @@
-Artículo 11.-La Junta de Fomento Avícola ejercerá sus funciones dentro de las normas establecidas por las leyes, el presente Reglamento y cualesquiera otras normas legales aplicables.
-Los miembros de la Junta de Fomento Avícola procederán en el ejercicio de sus funciones conforme a las leyes correspondientes, a su conciencia y a su propio criterio si fuera del caso y por ello serán personalmente responsables de su gestión y pesará sobre ellos cualquier responsabilidad que conforme a las leyes se les pudiere atribuir.

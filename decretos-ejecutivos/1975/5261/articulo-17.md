@@ -1,1 +1,0 @@
-Artículo 17.-Tres miembros de la Junta de Fomento Avícola, harán quórum para sesionar válidamente y los acuerdos se tomarán por mayoría absoluta de los votos presentes salvo los casos en que la ley exija mayor número de votos. En caso de empate el Presidente tiene doble voto.
