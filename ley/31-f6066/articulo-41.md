@@ -1,0 +1,1 @@
+ART. 41.-La Junta ejercerá las funciones que expresamente se le confieren en estos Estatutos, y auxiliar con su consejo al Director-Administrador en todos los asuntos en que éste solicite su opinión Esto, no obstante, el Director-Administrador no está obligado á seguir el parecer de la Junta.

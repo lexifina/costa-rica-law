@@ -1,0 +1,1 @@
+ART. 49.-Todo accionista puede tomar conocimiento en la oficina de la Sociedad en París, hasta quince días antes de la reunión de la asamblea, cuando m s tarde, del inventario y de la lista de accionistas, y hacerse entregar copia del balance y del informe de los Comisarios.

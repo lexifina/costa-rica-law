@@ -1,0 +1,1 @@
+ART. 52.-En todas las asambleas generales las decisiones se toman por mayoría de los votos que concurran en los miembros presentes ó representados. Cada accionista tiene un voto por cada veinte acciones; sin embargo, ninguno puede tener m s de veinte votos, ya sea por sí mismo, ó ya en representación de otro.

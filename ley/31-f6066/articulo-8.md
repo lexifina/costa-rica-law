@@ -1,0 +1,1 @@
+ART. 8°. Veinte mil acciones quedan reservadas á los fundadores de la Sociedad. La Sociedad dispondrá de las treinta mil acciones sobrantes del modo que sigue: 1°. -Cuatro mil acciones serán afectadas al pago de los gastos y derechos de fundación. 2°. -Veinte y seis mil acciones serán ofrecidas á la suscripción pública.

@@ -1,0 +1,1 @@
+ART. 68.-Las mismas consecuencias tendrán lugar si el deudor ha ocultado á la Sociedad alguna causa de hipoteca legal, ó de disolución ó rescisión del contrato, y que puedan alterar la condición de los bienes hipotecados.

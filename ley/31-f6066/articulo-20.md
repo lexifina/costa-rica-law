@@ -1,0 +1,1 @@
+ART. 20.-Los accionistas, sus herederos y causahabientes, no pueden por ningún motivo, pedir embargo ú ocupación, por medio de sellos, de los bienes y valores de la Sociedad, ni mezclarse de modo alguno en su administración. Ellos deben atenerse á los inventarios sociales y las deliberaciones de las asambleas generales, para ejercer sus derechos.

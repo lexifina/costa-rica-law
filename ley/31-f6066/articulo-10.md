@@ -1,0 +1,1 @@
+ART. 10.-Los suscritores primitivos que hayan enajenado sus acciones, antes de ser pagadas, y los cesionarios de tales acciones, quedan solidariamente obligados al pago del valor total de sus respectivas acciones.

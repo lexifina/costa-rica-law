@@ -1,0 +1,1 @@
+ART. 47.-La asamblea general, que tiene por objeto la modificación de los Estatutos, el aumento del capital social, la prorrogación ó disolución de la Sociedad, no se constituye regularmente, ni delibera con validez, sino cuando ella se compone de un número de accionistas que represente por lo menos la mitad del capital social.

@@ -1,0 +1,1 @@
+ART. 37.-El Director-Administrador puede ejercer por mandatarios, todas y cada una de las facultades que le están delegadas para uno ó para varios objetos. Para representar al Banco ante los tribunales, nombrará un Procurador, delegándole todas las facultades necesarias al intento.
