@@ -1,0 +1,1 @@
+Artículo 3°-Cuando en un área mayor de la anteriormente señalada, exista por cualquier circunstancia peligro de contaminación, ya sea en las aguas superficiales o en las subterráneas, el Poder Ejecutivo, por medio de la Sección de Aguas Potables, dispondrá en el área dicha las medidas que juzgue oportunas para evitar el peligro de contaminación.
