@@ -1,0 +1,1 @@
+Art 9° A ellos deben introducirse las mercaderías que se importen, las cuales deberán estibarse por los interesados, antes de lo cual no se tomará nota de ellas ni se tendrán por ingresadas a los almacenes, ni tampoco pueden despacharse. Dichos almacenes sirven también para el depósito de mercaderías en tránsito, en los casos en que la Ordenanza de Aduanas lo establece.

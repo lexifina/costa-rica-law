@@ -1,0 +1,1 @@
+Art 6° En vez del diario de salida que han llevado hasta aquí los Alcaides, llevarán dos, el uno para lo que despachen de buques de vela, y el otro para lo que corresponda a vapores, anotándose con su firma en los que despachen la razón de cumplimentado.

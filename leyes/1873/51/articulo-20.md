@@ -1,0 +1,1 @@
+Art 20° Cuando hay que aumentar el número de Alcaides, el Inspector informará al Administrador si entre los guardas hay algunos con las aptitudes necesarias para desempeñar aquel destino, a fin de que éste lo recomiende al Gobierno.

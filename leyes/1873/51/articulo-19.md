@@ -1,0 +1,1 @@
+Art 19° Los Alcaides cuidarán de ver personalmente las marcas y números de los bultos cuando están despachados, a fin de evitar cualquier error o equivocación. Tampoco entregará mercaderías a otra persona que a su dueño a casa a que hayan sido consignadas, a no ser consignadas, a no ser con la orden de éstos al pie de los pedimentos.

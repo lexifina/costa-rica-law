@@ -1,0 +1,1 @@
+Art 15° Los empleados y especialmente el Alcaide que haga el despacho, no permitirán que las mercaderías cuyo desalmacenaje se ha solicitado, queden en las bodegas después de registradas, cesando desde entonces la responsabilidad de la Aduana.

@@ -1,0 +1,1 @@
+Art 18° De todas las mercancías que se reciban pertenecientes y por cuenta del Supremo Gobierno, tomará nota un Alcaide con la debida separación, debiendo ser el mismo Alcaide el encargado de su despacho en la forma prevenida en el artículo 47 de las Ordenanzas de Aduana.

@@ -1,0 +1,1 @@
+Art 22° Es prohibido abrir bultos antes de pedirse su despacho, ni en ningún caso, sino es con permiso del Inspector e interesado y a presencia del Alcaide a quien se encargue de inspeccionar la operación.
