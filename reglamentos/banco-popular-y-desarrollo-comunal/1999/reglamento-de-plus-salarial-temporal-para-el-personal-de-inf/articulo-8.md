@@ -1,0 +1,3 @@
+CAPITULO IV
+Del procedimiento para acogerse al pago del plus salarial
+Artículo 8°-Solicitud. El servidor que desee acogerse al pago del Plus Salarial Informático deberá presentar su solicitud ante la Comisión que este Reglamento establece, acompañada de la documentación que demuestre reunir los requisitos establecidos. Dicha solicitud será resuelta por la Comisión en un plazo no mayor de treinta días naturales a partir del día de recibo y comunicada al interesado dentro de los tres días naturales siguientes a tal resolución. La resolución que dicte la Comisión, cuando corresponda, deberá indicar el porcentaje de Plus Salarial que se asigne al solicitante de conformidad con su evaluación del desempeño.

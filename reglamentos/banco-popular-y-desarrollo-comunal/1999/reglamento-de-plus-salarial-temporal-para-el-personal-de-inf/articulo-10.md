@@ -1,0 +1,1 @@
+Artículo 10°-Causas de suspensión del beneficio. El pago del Plus Salarial Informático se suspenderá al servidor en todos los casos en que se conceda una licencia o permiso con o sin goce de salario. Al regreso a labores el servidor continuará devengado el pago del beneficio por lo que reste del período pactado.

@@ -1,0 +1,1 @@
+Artículo 2°-Naturaleza temporal. El Plus Salarial Informático tiene una naturaleza temporal y excepcional y en virtud de lo anterior concluirá, a más tardar en el mes de julio del año 2000, por lo que si sus causas desaparecieren, los contratos de Plus Salarial Informático que se encuentren vigentes no serán renovados a su vencimiento.

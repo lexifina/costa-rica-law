@@ -1,0 +1,3 @@
+CAPITULO II
+Del personal que puede optar al sobresueldo y de los requisitos
+Artículo 4°-Personal sujeto al Plus. El Plus Salarial Informático se pagará únicamente a los funcionarios especialistas en informática de la División de Informática que ocupen los puestos de Profesional PED 1, Profesional PED 2, Ejecutivo Bancario Administrativo 3 y Director de Proyecto Año 2000, a tazón de hasta un 25% sobre el salario base y a partir de la firma de los respectivos contratos. Dicho porcentaje variará en cada caso según el promedio semestral de las calificaciones bimestrales del rendimiento del trabajador. Para obtener el pago del sobresueldo indicado deberá de cumplirse estrictamente con lo dispuesto por la presente reglamentación.
