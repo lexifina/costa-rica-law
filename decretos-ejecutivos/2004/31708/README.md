@@ -33,3 +33,4 @@ Directrices de política presupuestaria del 2005 para los ministerios, demás ó
 | 18 | 2005-01-14 | Decreto Ejecutivo 32213 (2005-01-14) |
 | 19 | 2005-01-14 | Decreto Ejecutivo 32221 (2005-01-14) |
 | 20 | 2005-02-07 | Decreto Ejecutivo 32279 (2005-02-07) |
+| 21 | 2005-02-14 | SINALEVI (sin norma nombrada) |
