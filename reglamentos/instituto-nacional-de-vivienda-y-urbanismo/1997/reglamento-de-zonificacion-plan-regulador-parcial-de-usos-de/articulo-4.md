@@ -1,0 +1,4 @@
+Artículo 4°—Zona cauce del río (Z.C.R.)
+Esta zona corresponde a las Áreas de ALTO RIESGO de inundación, constituidas por orillas, meandros y lecho de río en donde el terreno es inestable por ser suelos formados por arrastre y lavados de agua que obedecen a la dinámica deposición al del río, constituida por suelos de grava de mediano diámetro y arenas, sujeto a inundaciones del río. Las consecuencias por las inundaciones frecuentes y desbordamientos del río. en las construcciones y el terreno, es la destrucción total.
+4.1. Usos permitidos:
+En esta zona no es permitido construir, urbanizar ni fraccionar. tampoco se avala el uso agrícola, ya que al ser Áreas reclamadas por el río como su cauce, los terrenos tienen una marcada influencia fluvial por cambios del lecho del río, así como inundaciones frecuentes que provocan lavados y desbordamientos constantes.
