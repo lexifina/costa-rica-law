@@ -1,0 +1,1 @@
+Artículo 24.—Cuando un abogado tenga que retirarse de su oficina por un plazo mayor a ocho días hábiles, deberá comunicarlo previamente por escrito, e indicar el profesional en derecho que quedará a cargo de los casos asignados para cualquier duda o consulta que se presente por parte de las Municipalidad.

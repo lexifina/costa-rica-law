@@ -1,0 +1,1 @@
+Artículo 34.—Los arreglos de pago para sumas superiores a los diez mil colones y hasta cincuenta mil colones se les dará diez meses para cancelar esas deudas. Superiores a cincuenta mil y un colones se podrá autorizar hasta veinticuatro meses para la atención de la deuda.
