@@ -1,3 +1,1 @@
-Artículo 11.-Todos los miembros del Patronato están en la obligación de pagar una cuota semestral de siete colones como mínimum, por adelantado, pudiendo el Patronato fijar una cuota mayor si fuera necesario, no antes de seis meses de cada elección de Directiva y que no exceda de diez colones.
-Perderá la calidad de miembro del Patronato el que durante dos semestres consecutivos no satisfaga sus cuotas. El que no esté al día en el pago de sus cuotas, perderá el derecho de elegir Junta Directiva y a que sus votos sean tomados en cuenta en las Asambleas del Patronato.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 4 del 8 de abril de 1965)
+Artículo 11.-(Suprimido por el artículo 2° del decreto ejecutivo N° 3080 del 13 de julio de 1973)
