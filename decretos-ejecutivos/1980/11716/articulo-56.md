@@ -1,0 +1,1 @@
+Artículo 56.—Para la revalidación anual de la licencia para estudios, el interesado deberá demostrar que sus calificaciones, puntualidad y conducta, lo hacen acreedor para ser considerado como un buen estudiante. Se tomará en cuenta, asimismo, las necesidades de personal que demanda la respectiva unidad administrativa.

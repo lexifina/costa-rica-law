@@ -1,0 +1,1 @@
+Artículo 29.—El servidor que por error o complacencia marcare las tarjetas o registros de asistencia que no le corresponden, incurrirá en falta grave, y se hará acreedor, por primera vez, a suspensión disciplinaria hasta por ocho días, y en el caso de reincidencia, al despida sin responsabilidad para el Estado.

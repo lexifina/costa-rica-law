@@ -1,0 +1,1 @@
+Artículo 47.—Es deber de la Institución, adoptar las medidas necesarias para proteger eficazmente la vida, la salud, la integridad corporal y la moralidad de sus servidores y mantener en buen estado las edificaciones, instalaciones y condiciones ambientales, el suministro, uso y mantenimiento de los equipos de protección personal. .

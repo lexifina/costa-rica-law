@@ -1,0 +1,1 @@
+Artículo 35.—Para casos muy calificados no incluidos en este Reglamento, queda a juicio del Jefe inmediato, justificar las ausencias que no sean por enfermedad comprobada para efectos de evitar sanción disciplinaria, sin que ello implique obligación al pago del salario.

@@ -1,0 +1,1 @@
+Artículo 64.—El presente Reglamento se presumirá de conocimiento de los servidores, y será de observancia obligatoria para todos desde el día de su vigencia, inclusive para los que en el futuro trabajen en él.

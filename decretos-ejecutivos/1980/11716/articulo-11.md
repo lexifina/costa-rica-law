@@ -1,0 +1,2 @@
+Artículo 11.—En situaciones extraordinarias de emergencia nacional u otras de especial urgencia, los servidores de la Presidencia de la República, estarán en la ineludible obligación de prestar sus servicios de horas extraordinarias, salvo impedimento grave, y hasta por el máximo de horas permitido por ley.
+En cualquier caso, el Ministro o Viceministro deberán comunicarlo a los servidores con la máxima anticipación posible, y la negativa injustificada se tendrá como falta grave.

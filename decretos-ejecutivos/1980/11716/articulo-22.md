@@ -1,0 +1,2 @@
+Artículo 22.—Para obtener derecho a vacación anual, es necesario que el servidor haya prestado sus servicios durante cincuenta semanas continuas.
+Sin embargo, en casos excepcionales podrá adelantarse el disfrute de vacaciones en forma proporcional al tiempo servido, o reconocerse pecuniariamente a razón de un día por cada mes trabajado, en el evento de que el servidor concluya su relación de servicio, antes de que haya transcurrido el plazo estipulado en el primer párrafo.

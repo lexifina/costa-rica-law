@@ -1,0 +1,1 @@
+Artículo 12.—La remuneración de las horas extras, sólo procederá cuando sean autorizadas por el Ministro o Viceministro para la ejecución de trabajos urgentes, por servidores no excluidos de la limitación de la jornada de trabajo. (Artículo 113 del Código de Trabajo).

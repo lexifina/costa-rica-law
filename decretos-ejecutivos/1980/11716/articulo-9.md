@@ -1,0 +1,1 @@
+Artículo 9°—La semana de trabajo puede comenzar en cualquier día de la semana, según lo exija el buen servicio público, sin perjuicio del derecho de los servidores de disfrutar del mismo número de días de descanso. En este caso, y si eventualmente se laborare el día domingo, éste se tendrá como día hábil ordinario para todos los efectos legales.

@@ -1,0 +1,1 @@
+Artículo 52.—Las licencias para qué los servidores asistan a cursos de estudio o adiestramiento, se regirán de acuerdo con las estipulaciones del artículo 37 del Reglamento del Estatuto de Servicio Civil.

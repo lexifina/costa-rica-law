@@ -1,0 +1,1 @@
+Artículo 20.—Los servidores al servicio de la Presidencia dé la República, incluidos o no en el Régimen de Servicio Civil, tendrán derecho a que se les reconozcan. las revaloraciones generales, que se decretan para los servidores del Poder Ejecutivo.

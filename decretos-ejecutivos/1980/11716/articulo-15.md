@@ -1,0 +1,7 @@
+Artículo 15.—Los servidores que ocupen puestos de chóferes, tendrán además las siguientes obligaciones :
+a) Acatar las órdenes del jefe del departamento a que están asignados, atinentes a la prestación de servicios urbanos o rurales y por el tiempo que las necesidades de trabajo así lo requieran.
+b) Velar por la custodia, limpieza v conservación del vehículo que se les asigne durante el ejercicio de sus obligaciones.
+c) Cuidar que el vehículo se encuentre en buen estado de funcionamiento y que posea las herramientas o implementos destinados al mismo.
+d) Informar a la Dirección Administrativa, cualquier accidente que ocurra por leve que sea, suministrando los nombres y apellidos de las personas que resulten afectadas con ocasión del mismo, los daños que sufra el vehículo y las circunstancias en que se produjo el accidente, así como el lugar donde ocurrió. Este informe debe rendirse inmediatamente después de ocurrido el accidente.
+e) Informar por escrito al encargado de vehículos cualquier desperfecto que observe en el vehículo a su cuidado. La falta inexcusable de aviso oportuno hará incurrir en responsabilidad por la agravación del daño y los perjuicios que su omisión provoquen.
+f) Salvo cuando se encuentre en giras o misiones, especiales de trabajo que les impidan regresar al término de la jornada, guardar el vehículo en el garaje especialmente destinado al efecto, y entregar las llaves del mismo al Encargado de Transportes para su custodia.

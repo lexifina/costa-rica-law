@@ -1,0 +1,7 @@
+CAPÍTULO II
+De la Relación de Servicio
+Artículo 3°—Los servidores que ingresen al servicio de la Presidencia, bien sea en propiedad o en forma interina, estarán sujetos a la siguiente relación de servicio:
+a) Cuando se trate de puestos incluidos en el Régimen de Servicio Civil, estarán sometidos a las disposiciones del mismo, así como a este Reglamento.
+b) Cuando se tratare de los servidores de confianza a que se refiere el inciso c) del artículo 3° y d) del artículo 4° del Estatuto de Servicio Civil, dichos nombramientos se harán de conformidad con las políticas que al efecto establezca el señor Presidente, el Ministro o el Viceministro de turno; estarán sujetos a las estipulaciones de este Reglamento y cesarán en sus cargos al término del respectivo período del gobierno para el que fueron nombrados con derecho al pago de prestaciones.
+c) Los servidores no incluidos en los dos apartes anteriores y que se recluten a plazo fijo o para obra determinada, deberán firmar un contrato conforme a las estipulaciones de la Ley General de la Administración Pública y el Código de Trabajo, y terminarán sin responsabilidad para la Presidencia de la República.
+d) Los "servidores destacados" que presten sus servicios en un programa o proyecto de la Presidencia, conservarán las mismas condiciones de trabajo de las instituciones de procedencia, salvo en cuanto a horario, y deberán reintegrarse a las mismas, al término de éstos.

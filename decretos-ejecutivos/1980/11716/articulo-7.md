@@ -1,0 +1,2 @@
+Artículo 7°—Los servidores de la Institución deberán cumplir el siguiente horario de trabajo diario: de 8,00 a.m. a 12,00 m. y de 2,00 p.m. a 6,00 p.m., de lunes a viernes, con un total mínimo de 40,00 horas semanales. Si las necesidades del servicio así lo demandaran, deberá trabajarse el día sábado de 8,00 a 12,00 m.
+No obstante lo anterior, y según lo exija la mejor prestación de servicios o circunstancias de fuerza mayor o caso fortuito, podrá variarse total o parcialmente, y en forma temporaria o definitiva, este horario.

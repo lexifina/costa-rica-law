@@ -1,0 +1,1 @@
+Artículo 5°—La Presidencia de la República está facultada para emplear a sus servidores en las labores que considere necesario asignarles, siempre que sean compatibles con sus aptitudes, fuerzas, estado o condición dentro de aquellas para cuya ejecución hayan sido contratados.
