@@ -1,0 +1,10 @@
+Artículo 8°—Funciones de los Coordinadores de Área: Los Coordinadores de Área tendrán las siguientes funciones:
+· Elaborar el plan anual operativo del componente que contiene las actividades detalladas a realizar, el cronograma y el presupuesto, así como ejercer su control y análisis.
+· Preparar de común acuerdo con el Coordinador General los términos de referencia para las contrataciones de servicios de consultoría del componente y proponer los consultores a contratar en cada caso, con apego a los procedimientos establecidos en los anexos B, C y D del Contrato de Préstamo.
+· Brindar apoyo técnico y logístico a los consultores contratados bajo el respectivo Componente y velar por la calidad de su trabajo, aspectos que deberán ser coordinados con el Coordinador General. Asimismo, evaluar el desempeño de los consultores contratados ( en los formularios que al efecto se han diseñado.
+· Velar por el cumplimiento de los procedimientos, de los costos y de los plazos establecidos para las diversas actividades a cargo del Componente.
+· Mantener estrecha coordinación con las misiones de supervisión y evaluación del respectivo Componente.
+· Rendir informes semestrales de avance al Coordinador General , que deberán ser presentados dentro de los treinta días siguientes al término de cada semestre calendario, preparados de conformidad con la estructura y contenido acordado con la Unidad Ejecutora.
+· Controlar la calidad Técnica de los programas del Componente correspondiente.
+· Asegurar la coherencia entre las acciones que se realicen dentro del programa y las que se realicen en las instituciones involucradas, así como la congruencia técnica entre los diferentes componentes del área respectiva.
+· Apoyar técnicamente en los procesos de monitoreo y las misiones de avance con los funcionarios del Banco Interamericano de Desarrollo, así como las actividades que el Ministerio de Hacienda, por intermedio de la Unidad Ejecutora, determine con el fin de mejorar o divulgar la ejecución de los programas que le competen.

@@ -1,0 +1,1 @@
+Artículo 16.—De la Licitación Privada: Cuando el valor estimado de la adquisición de bienes y servicios sea equivalente a quince mil dólares (US$15.000,00) pero inferior al equivalente de cien mil dólares (US $ R 0.000,00), el procedimiento a emplearse será el de Licitación Privada, lo de conformidad con el Anexo B del Contrato de Préstamo.

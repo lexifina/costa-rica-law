@@ -1,0 +1,1 @@
+Artículo 3°—Aplicación supletoria de normas: A falta de disposición expresa en este Reglamento y en la ley N° 7760, se aplicarán en su orden el Derecho Público, la Jurisprudencia, los Principios Generales de Derecho Público, la costumbre, y las disposiciones del derecho privado que le fueren aplicable.

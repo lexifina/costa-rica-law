@@ -1,0 +1,2 @@
+Artículo 7°—De los Coordinadores de Área: La Unidad Ejecutora estará apoyada en su ejecución técnica por un grupo de expertos de amplia experiencia en las materias de su responsabilidad y que serán seleccionados con base en los procedimientos de contratación establecidos en el Anexo C del Contrato de Préstamo.
+Estos expertos, en adelante denominados “Coordinadores de Área” tendrán la responsabilidad de la planificación, organización y evaluación del componente a su cargo.

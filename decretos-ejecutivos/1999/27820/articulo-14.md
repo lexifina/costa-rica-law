@@ -1,0 +1,1 @@
+Artículo 14.—De la Licitación Pública Internacional: El procedimiento de Licitación Pública Internacional deberá ser utilizado para la adquisición de bienes y servicios cuando el monto de la contratación sea igual o mayor al equivalente de doscientos cincuenta mil dólares (US $ 250.000,00) de conformidad con lo estipulado en el Anexo B del Contrato de Préstamo.

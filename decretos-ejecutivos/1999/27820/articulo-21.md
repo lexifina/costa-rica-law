@@ -1,0 +1,1 @@
+Artículo 21.—Del recurso de apelación ante la Contraloría General de la República: En contra del acto de adjudicación dictado en las licitaciones públicas en cualquiera de sus modalidades, procederá el recurso de apelación ante la Contraloría General de la República el que se tramitará de conformidad con lo dispuesto por la Ley de Contratación Administrativa y su Reglamento.

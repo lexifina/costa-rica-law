@@ -1,0 +1,1 @@
+Artículo 22.—De la revocatoria en los procedimientos de contratación: En los demás procedimientos de contratación administrativa, procederá el recurso de revocatoria ante el Órgano que dictó el acto, en los términos y condiciones señalados en la Ley General de Contratación Administrativa y su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 17.—De la Comparación de Precios: Cuando el valor estimado de la adquisición de bienes y servicios sea inferior al equivalente de quince mil dólares (US $ 15.000,00) el procedimiento a ser utilizado será el de Comparación de Precios a nivel nacional o internacional.

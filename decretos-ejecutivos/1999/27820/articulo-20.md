@@ -1,0 +1,1 @@
+Artículo 20.—Del agotamiento de la vía administrativa: Lo que resuelva el Ministro de Hacienda vía recurso o directamente, con excepción de lo referido a materia de contratación administrativa, agotará la vía administrativa.
