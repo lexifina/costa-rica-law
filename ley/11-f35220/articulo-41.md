@@ -1,3 +1,0 @@
-Artículo 41.
-Carácter de la facultad judicial
-Es facultativo para los tribunales que hayan de formular la condena, el suspender su cumplimiento en conformidad con las condiciones estatuidas en el artículo anterior; pero deben hacerlo siempre que además de darse tales condiciones, estuviese el caso calificado por la demostración de un estado de desequilibrio anímico semejante a la locura o próximo a ella, o por la prueba de la mayor parte de los requisitos integrales de la legitima defensa o de la necesidad de preservación, previstos en los incisos 11, 12 Y 13 del artículo 32, y siempre que el delincuente sea menor de quince años o un sordo-mudo.

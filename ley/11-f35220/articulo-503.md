@@ -1,3 +1,0 @@
-Artículo 503
-Administradores que están comprendidos
-Quedan sujetos a las disposiciones anteriores los que administren, perciban o custodien bienes pertenecientes a las juntas de educación o establecimientos de beneficencia, o provenientes de contribuciones públicas para la construcción de templos u otras empresas costeadas por la comunidad, así como los administradores, curadores o depositarios de bienes embargados o depositados por la autoridad, aunque pertenezcan a particulares.
