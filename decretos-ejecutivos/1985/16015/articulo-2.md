@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-En el área de esta ampliación regirán las normas legales aplicables a los Parques Nacionales. La protección, administración y desarrollo de dicha zona estará a cargo del Servicio de Parques Nacionales del Ministerio de Agricultura y Ganadería de conformidad con las disposiciones de la ley N° 6084.
