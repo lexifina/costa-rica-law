@@ -1,0 +1,2 @@
+Artículo 2°—Obligados a presentar el modelo D-157. La Dirección General de Migración y Extranjería, el ente autorizado de la recaudación del tributo y el Órgano autorizado para la Administración del aeropuerto o, en su defecto, la Dirección General de Aviación Civil están obligados a presentar el formulario D-157.
+En cuanto al incumplimiento en el suministro de la información o la presentación con errores, se aplicará lo dispuesto en el artículo 83 del Código de Normas y Procedimientos Tributarios.

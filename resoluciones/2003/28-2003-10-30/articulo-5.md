@@ -1,0 +1,1 @@
+Artículo 5°—Lugar y plazo de presentación. La información correspondiente al modelo D-157 deberá presentarse en el , la División de Gestión de la Dirección General de Tributación, ubicado en avenida segunda, calles 1 y 3, dentro de los primeros diez días hábiles del mes siguiente al trimestre vencido.
