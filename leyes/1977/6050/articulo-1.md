@@ -157,6 +157,7 @@ Artículo 48.- El Consejo, mientras sea propietario del Matadero Nacional de Mon
 El Consejo Nacional de Producción podrá participar hasta con el 30% del capital social de la Cooperativa Matadero Nacional de Montecillos R. L. y mantendrá un representante en el seno de su Consejo de Administración mientras sea asociado.
 La Contraloría General de la República vigilará que la operación de compraventa del Matadero Nacional de Montecillos R. L. se haga conforme a lo que dispone este artículo.
 La operación de compraventa del Matadero Nacional de Montecillos R. L., deberá realizarse en un plazo máximo de seis meses después de la vigencia de esta ley.
+(Nota de Sinalevi: Mediante el artículo 9° de la ley de Presupuesto Ordinario y Extraordinario, N° 6025 del 20 de diciembre de 1976, por medio de su nota de carácter general la norma septuagesimonovena:, se acordó ampliar el plazo a que se refiere el párrafo final del artículo 48 de la ley Nº 6050 de 14 de marzo de 1977, hasta el 31 de diciembre de 1977.)
 CAPITULO VIII
 De los Programas para Incrementar el Consumo Interno de Carne
 Artículo 49.- Los fondos asignados al Consejo por la ley Nº 5792 de 1º de setiembre de 1975, artículo 29 y Transitorio III, se aplicarán a un Plan Nacional de Fomento del Consumo Popular de Carne, que será elaborado por la Cooperativa encargada por ley de administrar y operar el Matadero Nacional de Montecillos y deberá ser aprobado y apoyado por el Consejo.
