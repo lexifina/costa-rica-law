@@ -1,0 +1,9 @@
+ARTICULO 24
+Deberán tomarse medidas adecuadas, en todos los casos, para
+garantizar la estricta aplicación de los reglamentos relativos al empleo
+del trabajo forzoso u obligatorio, ya sean mediante la extensión al
+trabajo forzoso u obligatorio de las funciones de cualquier organismo de
+inspección creado para la vigilancia del trabajo libre, ya sea mediante
+cualquier otro sistema conveniente. También deberán tomarse medidas para
+que las personas sujetas al trabajo forzoso conozcan el contenido de
+estos reglamentos.

@@ -1,0 +1,15 @@
+ARTICULO 15
+1. Cualquier legislación referente a la indemnización de los accidentes
+de trabajo y cualquier legislación que prevea una indemnización para las
+personas y cargo de los trabajadores fallecidos o inválidos, que estén o
+vayan a entrar en vigor en el territorio interesado, deberán aplicarse a
+las personas sujetas al trabajo forzoso u obligatorio en las mismas
+condiciones que a los trabajadores libres.
+2. En todo caso, cualquier autoridad competente que recurra al trabajo
+forzoso u obligatorio deberá estar obligada a asegurar la subsistencia de
+dichos trabajadores, cuando, a consecuencia de un accidente o de una
+enfermedad que resulte de su trabajo, se encuentre total o parcialmente
+incapacitado para subvenir a sus necesidades. Esta autoridad también
+deberá estar obligada a tomar las medias necesarias para asegurar la
+subsistencia de cualquier persona a cargo del trabajador, en caso de
+incapacidad o de fallecimiento resultante del trabajo.
