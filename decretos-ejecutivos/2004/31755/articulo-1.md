@@ -8,4 +8,5 @@ Considerando:
 4º—Que mediante oficio STAP-Circular STAP-0591-03 del 23 de abril del 2003, se comunicó al PANI el límite de gasto fijado para el año 2004.
 5º—Que por lo anterior, se hace necesario modificar el gasto presupuestario fijado para el Patronato Nacional de la Infancia para el 2004. Por tanto:
 DECRETAN:
-Artículo 1º—Modifícase al Patronato Nacional de la Infancia, el gasto presupuestario para el período 2004, establecido en el artículo 1º del Decreto Ejecutivo N° 31092-H y sus reformas, publicado en La Gaceta Nº 63, del 31 de marzo del 2003, de manera que no exceda la suma ¢7.009.56 millones.
+Artículo 1º—Modifícase al Patronato Nacional de la Infancia, el gasto presupuestario para el período 2004, establecido en el artículo 1º del Decreto Ejecutivo N° 31092-H y sus reformas, publicado en La Gaceta Nº 63, del 31 de marzo del 2003, de manera que no exceda la suma ¢8.812.72 millones.
+(Así reformado mediante el Artículo 1° del Decreto Ejecutivo No. 32074, de fecha 23 de setiembre del 2004.)

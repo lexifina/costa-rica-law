@@ -14,3 +14,4 @@ Modifica al Patronato Nacional de la Infancia, el gasto presupuestario para el p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-03 | la propia norma |
+| 2 | 2004-09-23 | Decreto Ejecutivo 32074 (2004-09-23) |
