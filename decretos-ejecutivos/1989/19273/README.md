@@ -14,3 +14,4 @@ Declara Emergencia Adquisición Repuestos para Equipo INCOFEER
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-11-10 | la propia norma |
+| 2 | 1989-11-10 | SINALEVI (sin norma nombrada) |
