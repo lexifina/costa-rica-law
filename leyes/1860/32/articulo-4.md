@@ -1,0 +1,1 @@
+Art 4° Los Gobernadores formarán las copias que reciban, un libro de rejistros donde siempre que se transfiera en todo o en parte el dominio del terreno, se hará constar el nombre del nuevo propietario, título de adquisición y medida de la parte adquirida.
