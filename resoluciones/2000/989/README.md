@@ -14,3 +14,4 @@ Establece a quienes cuenten con una especialidad o estudios de posgrado en Derec
 | --- | --- | --- |
 | 1 | 2000-07-20 | la propia norma |
 | 2 | 2003-02-10 | Resolución 0 (2003-02-10) |
+| 3 | 2003-03-13 | Resolución 355 (2003-03-13) |
