@@ -5,7 +5,8 @@ b) Clase y horario del establecimiento que se instalará.
 c) Lugar exacto donde se instalará.
 d) Nombre o denominación que se le dará al establecimiento.
 e) Nombre del farmacéutico que ejercerá la regencia y el horario de éste o éstos.
-f) Si se tratara de un establecimiento farmacéutico para uso veterinario, constancia del Colegio de Médicos Veterinarios, de que el profesional que ejercerá la regencia (caso especial) es miembro activo de este Colegio.
+f) Si se tratara de un establecimiento farmacéutico para uso veterinario, certificación de autorización y registro en el Colegio de Médicos Veterinarios y constancia de que el profesional que ejercerá la regencia (caso especial) es miembro activo de este Colegio y que cuenta con la autorización de la Junta Directiva para regentar ese establecimiento.
+(Así reformado por el artículo 1º del decreto ejecutivo Nº 17319 de 24 de noviembre de 1986)
 g) Constancia extendida por la Tesorería del Colegio de haber cancelado los derechos de apertura.
 h) Dirección para recibir avisos o notificaciones.
 i) Lugar y fecha del escrito.

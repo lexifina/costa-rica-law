@@ -14,3 +14,4 @@ Reglamento de Establecimientos Farmacéuticos Privados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-01-15 | la propia norma |
+| 2 | 1986-11-24 | Decreto Ejecutivo 17319 (1986-11-24) |
