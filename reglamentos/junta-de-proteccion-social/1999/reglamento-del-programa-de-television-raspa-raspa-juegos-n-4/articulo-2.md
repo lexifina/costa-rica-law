@@ -1,0 +1,1 @@
+2.- También debe asistir el Jefe del Departamento de Inspectores y funcionarios de la Junta de Protección Social de San José, preferiblemente de este Departamento, a quienes les corresponde velar porque el programa se desarrolle bajo un sistema de seguridad eficiente y se garantice el orden en la Sala Estudio.
