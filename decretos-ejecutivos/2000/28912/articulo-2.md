@@ -1,0 +1,1 @@
+Artículo 2°—La Dirección de Seguridad Marítima y Portuaria en coadyuvancia con la Subárea Administrativa Financiera de la División de Puertos, deberá efectuar las gestiones pertinentes para lograr que los fondos recaudados sean trasladados a la Caja Única del Estado, así como su incorporación al Presupuesto Nacional de la República.

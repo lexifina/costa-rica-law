@@ -1,0 +1,12 @@
+Nº 28912
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En uso de las facultades y prerrogativas conferidas en el artículo 140, inciso 3) y 18), de la Constitución Política; con fundamento en lo establecido en la Ley General de la Administración Pública No 6227, del 2 de mayo de 1978 y sus reformas, artículos 5, 11, 27, 28, incisos 1) y 2) ítemes a) y b); Ley de Creación del Ministerio de Obras Públicas y Transportes No 4786, de 5 de julio de 1971 y sus reformas; Ley de la Administración Financiera de La República No 1279 y la Ley No 12, del 22 de octubre de 1941:
+Considerando:
+a) Que el artículo primero del Decreto Ejecutivo No 19702-MOPT, autoriza a las Capitanías de Puerto al cobro de derechos por servicios extraordinarios a los diferentes buques que arriben a puertos nacionales, fuera de la jornada ordinaria;
+b) Que complementariamente, la citada norma determina, en su artículo quinto, que los fondos recaudados, según lo indicado en el literal anterior, deberán destinarse a la cobertura de las necesidades inmediatas de las Capitanías de Puerto, como el pago de la disponibilidad de los funcionarios que atienden las Capitanías de Puerto, la adquisición de equipo y mobiliario de oficina, mantenimiento de las instalaciones, así como cualquier otro insumo indispensable para la prestación oportuna y eficiente de los servicios de estas dependencias;
+c) Que mediante oficio Nº 6413 de 28 de junio del 2000, la División de Fiscalización Operativa y Evaluativa de la Contraloría General de la República, se pronunció en el sentido de que los fondos de la cuenta bancaria Nº 121230-7 del Banco Nacional deben ingresar a la Caja Única del Estado;
+d) Que al momento de recibirse el oficio de la División de Fiscalización Operativa y Evaluativa, la Dirección de Seguridad Marítima y Portuaria había adquirido compromisos para la adquisición de bienes, y debido a este pronunciamiento del Ente Contralor, no se ha efectuado su cancelación;
+e) Que de conformidad con lo anterior, la Dirección de Seguridad Marítimo y Portuaria deberá acogerse a los términos de lo dispuesto por el Ente Contralor, garantizando, a la vez, la continuidad, eficiencia y seguridad de los servicios que brindan las Capitanías de Puerto. Por tanto,
+DECRETAN:
+Artículo 1°—Los recursos generados por concepto de prestación de servicios extraordinarios por parte de las Capitanías de Puerto, deben ingresar a la Caja Única del Estado;

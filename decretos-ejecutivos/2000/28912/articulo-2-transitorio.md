@@ -1,0 +1,1 @@
+Transitorio 2°—Asimismo, se podrá pagar con los fondos de la cuenta Nº 121230-7 del Banco Nacional de Costa Rica, los compromisos adquiridos por la Dirección de Seguridad Marítima y Portuaria antes del Pronunciamiento de la Contraloría General de la República en oficio Nº 5413 de 28 de junio del 2000.

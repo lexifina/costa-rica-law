@@ -1,0 +1,2 @@
+Transitorio 3°—La Auditoría General de Ministerio de Obras Públicas y Transportes, velará por la correcta utilización de los fondos, para lo cual realizará revisiones trimestrales de la cuenta bancaria 121230-7 del Banco de Costa Rica, durante el período que resta del año 2000 y el año 2001. De los resultados de cada revisión deberá enviar copia a la Contraloría General de la República y al Ministro de Obras Públicas y Transportes.
+Dado en la Presidencia de la República.—San José, a los veintiún días del mes de agosto del dos mil.
