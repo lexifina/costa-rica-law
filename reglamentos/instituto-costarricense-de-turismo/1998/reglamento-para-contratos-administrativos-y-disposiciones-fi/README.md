@@ -16,3 +16,4 @@ Reglamento para Contratos Administrativos y Disposiciones Financieras del Instit
 | 1 | 1998-05-19 | la propia norma |
 | 2 | 1998-09-23 | Reglamento 4859 (1998-09-23) |
 | 3 | 1999-12-13 | Reglamento 4982 (1999-12-13) |
+| 4 | 2000-01-31 | Reglamento 4995 (2000-01-31) |

@@ -1,0 +1,2 @@
+Artículo 76.—Todo adelanto de gastos para atenciones es de trámite exclusivo del funcionario a quien se le autorice, si se emplea de otra forma, se considerará falta grave y hará incurrir al responsable en las sanciones prevista en el artìculo 53 del Reglamento Autónomo de Trabajo.
+(Así ADICIONADO mediante Sesión Ordinaria Nº4995 celebrada el 31 de enero de 2000, publicada en La Gaceta Nº 72 del 12 de abril de 2000.)

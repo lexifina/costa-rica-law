@@ -1,0 +1,2 @@
+Artículo 79.—La fecha máxima para la presentar la liquidación de gastos de representación y de recepciones sera el quinto día hábil posterior al evento, cuya fecha de realización ha de haberse consignado en el formulario Adelanto de Gastos. En lo que respecta a otros bienes y servicios la fecha máxima será el tercer día hábil de haberse adquirido o dado el mismo.
+(Así ADICIONADO mediante Sesión Ordinaria Nº4995 celebrada el 31 de enero de 2000, publicada en La Gaceta Nº 72 del 12 de abril de 2000.)

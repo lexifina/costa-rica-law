@@ -1,0 +1,4 @@
+CAPITULO V
+De los adelantos de gastos para transacciones que no constituyan violaciòn a los procedimientos normales de contratación.
+Artículo 75.—Las solicitudes de adelanto para gastos que no constituyan violación a los procedimientos normales de contratación, tendrán carácter restrictivo. Su uso básico será para atender gastos de representación, adquisiciones de artículos y gastos para recepciones y deberán estar autorizadas por la Presidencia Ejecutiva o la Gerencia. La adquisición de otros bienes y servicios que se consideren de fuerza mayor, deberán ser autorizados por la Dirección Administrativo Financiera y estarán sujetos a los límites y procedimientos establecidos en las disposiciones financieras.
+(Así ADICIONADO mediante Sesión Ordinaria Nº4995 celebrada el 31 de enero de 2000, publicada en La Gaceta Nº 72 del 12 de abril de 2000.)
