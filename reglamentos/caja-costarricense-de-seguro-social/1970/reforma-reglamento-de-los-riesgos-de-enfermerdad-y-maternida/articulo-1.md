@@ -1,0 +1,8 @@
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+REFORMA AL REGLAMENTO DE ENFERMEDAD Y MATERNIDAD
+La Junta Directiva, en el artículo 7° de la sesión N° 4080, celebrada el día 12 de febrero presente, acordó reformar el artículo 26 del Reglamento de Enfermedad y Maternidad el que deberá leerse así:
+Artículo 26°. - El que dejare de ser asegurado activo y obligado, conservará todos los derechos señalados en este Reglamento, con excepción del pago de las prestaciones en dinero, durante los tres meses naturales posteriores a la fecha en que dejo de ser asegurado activo, siempre y cuando haya cotizado por lo menos durante tres meses dentro de los cuatro anteriores a ese momento. En cada uno de esos tres meses, el asegurado regido por el artículo 32 deberá haber cotizado por lo menos durante veinte días, y el regido por el artículo 34, deberá haber pagado una cotización de por lo menos cuatro colones.
+Durante los tres meses de conservación de derechos, el trabajador podrá iniciar o continuar el tratamiento de una dolencia en cualquier momento. Una vez terminado dicho periodo cesará automáticamente su derecho a las prestaciones acordar la prolongación del tratamiento por un nuevo periodo de tres meses.
+Al trabajador que reingreses al seguro obligatorio antes de la expiración de espera a que se refieren los artículos 32 y 34 de este Reglamento.
+La conservación de derechos aquí regulado, no se aplica a quienes soliciten su exclusión del Seguro de Enfermedad y Maternidad de acuerdo con los términos del artículo 3° de este mismo reglamento.
+San José, 18 de febrero de 1970.
