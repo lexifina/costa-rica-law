@@ -1,0 +1,5 @@
+9º—Obligaciones pendientes. La verificación de obligaciones por contratos anteriores de los beneficiarios (as) se realizará de la siguiente forma:
+19.1. El FONAFIFO verificará de acuerdo a los registros con que cuenta, las obligaciones de los beneficiarios (as) u organizaciones con respecto a créditos, certificados de abono forestal, contratos de PSA y según lo establecido en el punto 5.2.
+19.2. Las Oficinas Regionales del FONAFIFO verificarán las obligaciones pendientes en cuanto a los Servicios Ambientales y deberán dejar constancia en el expediente del resultado de esta consulta.
+19.3. Si se determina la existencia de obligaciones pendientes, los responsables de las Oficinas Regionales de FONAFIFO en coordinación con las Oficinas Centrales, iniciarán los procesos administrativos tendientes a la recuperación de los recursos.
+19.4. FONAFIFO mantendrá un registro de beneficiarios (as) u organizaciones que han incumplido con el contrato u obligaciones con el PSA, para verificar si procede o no el trámite de contratos nuevos o solicitudes de pago.
