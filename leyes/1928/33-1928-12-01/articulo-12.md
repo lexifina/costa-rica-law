@@ -1,1 +1,0 @@
-Artículo 12.-Deben los funcionarios del Ministerio Público excusarse de intervenir en los negocios en que tengan algún interés directo sus tíos o sobrinos por consanguinidad -legítima o natural notoriamente conocida- o por afinidad, y en los negocios que del mismo modo interesen a personas con quienes tengan estrecha amistad o enemistad grave.

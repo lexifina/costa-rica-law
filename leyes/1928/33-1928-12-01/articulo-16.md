@@ -1,2 +1,0 @@
-Artículo 16.-El Jefe del Ministerio Público prestará el juramento constitucional ante el Secretario de Estado en el Despacho de Justicia; los demás funcionarios del ramo -excepto los Jefes Políticos llamados por ministerio de la ley a ejercer sus funciones del Procurador Judicial, y quienes no necesitan para ello de prestar nuevo juramento- lo harán ante el Jefe del Ministerio Público o el funcionario a quien al efecto aquél comisione.
-Del juramento deberá necesariamente levantarse acta que firmarán todos los funcionarios que en él intervengan.

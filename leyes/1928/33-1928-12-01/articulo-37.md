@@ -1,3 +1,0 @@
-Artículo 37.-El Poder Ejecutivo está facultado para crear Fiscales Específicos, fuera de los casos de sustitución a que se refiere el artículo 14 de esta ley, en los siguientes:
-1°.-Para que intervengan en los juicios o reclamaciones judiciales de todo género que interesen a la Hacienda Pública, en cuanto a los asuntos de alguna de las dependencias de la Administración Pública ;
-2°.-Para que como representantes del Ministerio Público, intervengan en ciertos negocios judiciales, sea de la clase que fueren, cuando por ser muy numerosos, complejos o complicados, estime el Ejecutivo conveniente separarlos de los demás confiados a los funcionarios permanentes del ramo.
