@@ -15,3 +15,4 @@ Reglamento aplicación de estimaciones a activos financieros por desvalorizació
 | --- | --- | --- |
 | 1 | 2002-06-24 | la propia norma |
 | 2 | 2002-12-16 | Reglamento 4075 (2002-12-16) |
+| 3 | 2003-10-14 | Reglamento 4158 (2003-10-14) |
