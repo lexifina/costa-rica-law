@@ -1,0 +1,5 @@
+Tránsito Internacional
+Artículo 11°.-Cada uno de los Estados contratantes mantendrá plena libertad de tránsito a través de su territorio para las mercancías destinadas a los otros Estados o con procedencia de éstos.
+Dicho tránsito se hará sin deducciones, discriminaciones ni restricciones cuantitativas, salvo los indicados en el artículo 2°. En casos de congestionamiento de carga u otros de fuerza mayor, cada uno de los Estados signatarios atenderá equitativamente la movilización de las mercancías destinadas al abastecimiento de su propia población y la de las mercancías en tránsito para los otros Estados.
+Las operaciones de tránsito se harán por las rutas legalmente habilitadas para este efecto y con sujeción a las leyes y reglamentos de aduana aplicables en el territorio de paso.
+Las mercancías en tránsito estarán exentas de toda clase de derechos, impuestos o contribuciones fiscales, municipales o de otro orden, cualquiera que sea su destino: pero quedarán sujetas al pago de las tasas generalmente aplicables por la prestación de servicios.
