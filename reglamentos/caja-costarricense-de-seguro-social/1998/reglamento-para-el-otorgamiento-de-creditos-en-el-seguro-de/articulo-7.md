@@ -1,7 +1,8 @@
 DE LOS TIPOS DE PRÉSTAMOS
 Artículo 7°—Se pueden conceder los siguientes tipos de préstamos:
 a) Compra o construcción de casa de habitación, vivienda única.
-b) Compra de lote único, ampliación y mejoras de vivienda única.
+b) Compra de lote único, ampliación y mejoras de vivienda.
+Así reformaco por la Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 16 de la sesión 7546, celebrada el 10 de mayo de 2001
 c) Construcción o compra de instalaciones comerciales o industriales.
 d) Compra o construcción de segunda casa o segundo lote.
 e) Pago de hipoteca vivienda única.
