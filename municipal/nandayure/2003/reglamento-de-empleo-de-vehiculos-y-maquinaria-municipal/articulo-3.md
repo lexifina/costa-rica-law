@@ -1,0 +1,1 @@
+Artículo 3º—El uso de los vehículos municipales, fuera de la jornada de trabajo debe ser autorizado únicamente por el Concejo Municipal, mediante acuerdo. En caso de que el señor Alcalde requiera un vehículo en dicha situación para gestiones municipales, estará autorizado pero debe enviar por escrito al Concejo la justificación correspondiente, en la siguiente sesión municipal.

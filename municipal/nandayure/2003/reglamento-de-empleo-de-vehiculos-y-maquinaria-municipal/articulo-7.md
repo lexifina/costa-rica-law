@@ -1,0 +1,1 @@
+Artículo 7º—Se prohíbe que viajen en los vehículos municipales, personas que no sean servidores o funcionarios (as) de la misma, salvo en aquellos casos en que el propósito del viaje o la emergencia lo justifiquen y haya autorización del Alcalde o el Concejo Municipal.

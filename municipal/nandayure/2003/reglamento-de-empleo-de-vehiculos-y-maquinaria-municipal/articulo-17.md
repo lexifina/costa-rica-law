@@ -1,0 +1,1 @@
+Artículo 17.—El incumplimiento al presente Reglamento, será sancionado con una amonestación, suspensión o el despido, de acuerdo con lo que establecen las Leyes Laborales conexas. Sin perjuicio de la Ley de Tránsito.

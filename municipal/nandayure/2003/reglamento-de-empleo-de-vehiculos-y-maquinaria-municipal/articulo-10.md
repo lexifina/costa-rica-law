@@ -1,0 +1,1 @@
+Artículo 10.—La maquinaria Municipal puede ser guardada al final de cada jornada de trabajo en el patio de un vecino donde se esta empleando la misma y con la debida autorización del Alcalde Municipal, transportando a los operadores en los vehículos de la Institución.

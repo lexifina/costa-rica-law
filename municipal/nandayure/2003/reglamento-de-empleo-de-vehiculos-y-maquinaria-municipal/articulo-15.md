@@ -1,0 +1,1 @@
+Artículo 15.—Si la naturaleza de la labor, la conveniencia y la oportunidad permiten trasladarse por medio de transporte público (autobuses, trenes, etc.) estos deberán preferirse siempre que resulten más económicos.

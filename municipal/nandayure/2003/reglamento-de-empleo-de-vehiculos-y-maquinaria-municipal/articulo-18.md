@@ -1,0 +1,1 @@
+Artículo 18.—El presente Reglamento deroga toda disposición de cualquier índole que se le oponga y se presumirá del conocimiento de los usuarios. Cualquier reforma o adición será aprobada por el Concejo Municipal de Nandayure.

@@ -1,0 +1,1 @@
+Artículo 9º—Todos los vehículos municipales deben ser guardados al final de cada jornada de trabajo en el plantel municipal, salvo caso fortuito o fuerza mayor debidamente comprobados de lo cual deberá ser informado por escrito al Alcalde, con copia al Concejo Municipal al día siguiente de la eventualidad.
