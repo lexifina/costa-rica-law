@@ -13,3 +13,4 @@ CCSS: Reforma Artículo 7 de Reglamento de Seguro Voluntario.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-03 | la propia norma |
+| 2 | 2000-02-03 | Ley 7 |
