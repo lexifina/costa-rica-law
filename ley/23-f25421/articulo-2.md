@@ -1,0 +1,1 @@
+Art 2°.- El Gobierno dispondrá que se hagan las liquidaciones del fondo destinado a indemnizar los Esclavos y se cumpla la Ley en lo sucesivo con la mayor puntualidad, castigándose con el duplo cualquiera fraude u omisiones que se hagan en adelante.

@@ -1,0 +1,1 @@
+Art 8°.- Se establece una pensión mensual de cuatro pesos sobre el curato de Cartago, ocho el de Heredia, seis el de Alajuela, y diez el de San José en favor del Lazareto, que será cobrado por el Tesorero de sus fondos (2)

@@ -1,0 +1,1 @@
+Art 7.- Dentro de treinta días de muerto cualesquiera que tenga quinto, deberán las personas de que habla el art´4° hacer el pago al mismo Jefe Político; y este por trimestre dirijirá al Superior las cantidades recaudadas para que las ponga en poder del Tesoro del Lazareto.
