@@ -1,6 +1,7 @@
 ARTÍCULO DÉCIMO QUINTO: ATRIBUCIONES DE LOS MIEMBROS DEL CONSEJO DIRECTIVO.
-a) EL PRESIDENTE será el representante judicial y extrajudicial de la Federación, con carácter de apoderado general Presidirá las sesiones de Asamblea General y Consejo. Firmará junto con el Secretario las actas, autorizará junto con el Tesorero los pagos de la Federación.
-b) EL VICEPRESIDENTE sustituirá al Presidente en sus ausencias temporales, con iguales atribuciones y obligaciones.
-c) EL SECRETARIO confeccionara las actas de las reuniones de la Junta Directiva y Asamblea General, las que firmará junto con el Presidente. Deberá llevar en perfecto orden el libro de actas de Junta Directiva y Asambleas Generales. Dará lectura a la correspondencia y la tramitará oportunamente. Llevará un archivo ordenado y completo.
-d) EL TESORERO tiene como obligación velar por la correcta ejecución presupuestaria y cuidar de los fondos de la Federación, los que se depositarán en cuentas a nombre de ella, en Bancos del Sistema Bancario Nacional.
-Los cheques o retiros se harán con la firma de al menos dos personas: el Director Ejecutivo y alguno de los siguientes miembros: Presidente y/o el Tesorero. Deberá rendir un informe anual de labores a la Asamblea General y controlará que se lleven al día y correctamente, los libros de caja, diario mayor e inventarios y balances.
+EL PRESIDENTE ostenta la representación política de la Federación ante toda clase de órganos y entes públicos de la Administración Pública Centralizada y Descentralizada, Municipal, provincial, local, jurídica o administrativa, asociaciones, fundaciones, federaciones o confederaciones, empresas públicas y privadas. Además de esta función representativa, que se entiende conferida en su más amplio sentido y alcance, tendrá las siguientes:
+1) Convocar y presidir la Asamblea General y el Consejo Directivo.
+2) Dirigir los debates y el orden de las reuniones.
+3) Rendir informe anual de su actuación ante la Asamblea General.
+4) En general, desempeñar cuantas funciones y atribuciones que no sean de competencia específica de la Asamblea General o del Consejo Directivo.
+(Así reformado por Asamblea General Extraordinaria celebrada el 16 de julio de 2004)
