@@ -41,3 +41,4 @@ Directrices Generales de Política Presupuestaria del 2002 para los Ministerios,
 | 26 | 2002-03-06 | Decreto Ejecutivo 30254 (2002-03-06) |
 | 27 | 2002-03-13 | Decreto Ejecutivo 30249 (2002-03-13) |
 | 28 | 2002-04-04 | Decreto Ejecutivo 30284 (2002-04-04) |
+| 29 | 2002-04-15 | Decreto Ejecutivo 30374 (2002-04-15) |
