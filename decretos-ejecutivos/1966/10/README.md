@@ -14,3 +14,4 @@ Reglamento del Estatuto del Servicio Exterior de la República.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1966-04-13 | la propia norma |
+| 2 | 1966-05-30 | Decreto Ejecutivo 20 (1966-05-30) |
