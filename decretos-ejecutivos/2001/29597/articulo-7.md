@@ -1,0 +1,3 @@
+Artículo 7º—De la obligación de los jefes de informar la variación de circunstancias. Los jefes de las respectivas unidades policiales, tendrán la obligación de informar a la Dirección de Recursos Humanos, sobre cualquier cambio de circunstancias en relación con el personal policial, que pueda llegar a significar la supresión del pago del riesgo policial.
+La información debe remitirse a más tardar en el mes siguiente de aquel en el que variaron las circunstancias, quedando cada jefe de unidad, supeditado a las sanciones disciplinarias que puedan corresponder en caso de que omita remitir la información oportunamente. Lo anterior sin perjuicio de otras responsabilidades que puedan atribuirse.
+Disposiciones Finales
