@@ -1,0 +1,8 @@
+DECRETO CIV
+Da nueva plana a la Corte Superior de Justicia (1)
+“ El Vice Jefe encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+La Asamblea Constitucional del Estado libre de Costa Rica considerando: 1° que la administración de Justicia se halla entorpecido y complicada, tanto por la inopia de personas idóneas para desempeñarla en muchos pueblos del Estado, cuanto por la falta obsoluta de Letrados hábiles que asesoren a los jueces legos en los casos en que la ley lo exige; 2° que en semajantes circunstancias en necesario organizarla de un modo diferente, no solo en la 1° Instancia sino también en las ulteriores: 3 que para ello se hace indispensable aumentar el número de Magistrados de la Corte3 Superior de Justicia y reducir el de Jueces de 1° Instancia, recargando a su vez unos y a otros con las funciones de todos: 4° que la responsabilidad en los casos que antes era de los Letrados, debe ser hoy de todos los Jueces por la falta de aquellos; y que por lo mismo, y para alejar el temor de que la necesidad los obligue a corromperse, es necesario que se hallen competencia dotados, decreta.
+Art 1°.- La Corte Superior de Justicia se compondrá de siete individuos que se denominarán, uno Presidente, otro Fiscal, y los cinco restantes Magistrados.
+La Asamblea, sancionada que sea la presente ley, procederá inmediatamente é elegir los dos Magistrados que faltan de entre los candidatos que para individuos de la Corte tengan sufragios de las Juntas Electorales.
+__
+(1) Declarado insubsistente por el Decreto de 3 de Diciembre de 1836, después de haber sufrido las reformas que se anotan.

@@ -1,0 +1,1 @@
+Art 12.- En ningún caso serán obligados a consultar con Letrado, siendo ellos mismos responsables por cualquier falta y pudiendo cobrar los mismos honorarios que un Asesor en lo civil. Si habiendo Letrados expedidos quisiesen aconsejarse de ellos, lo podrán hacer, siendo en tal caso de este la responsabilidad y también los honorarios correspondientes.
