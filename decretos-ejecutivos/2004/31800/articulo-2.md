@@ -1,0 +1,1 @@
+Artículo 2º—Modificase el artículo 2° del Decreto Ejecutivo Nº 31092-H y sus reformas, en su inciso a), incorporándose el concepto de pago de comisiones como exclusión presupuestaria para la Editorial Costa Rica.
