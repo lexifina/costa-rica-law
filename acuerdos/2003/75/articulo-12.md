@@ -1,0 +1,6 @@
+Artículo 12.—Vigencia. Rige a partir de su comunicación, excepto por:
+a) Los cambios a los siguientes reportes rigen a partir de la fecha que se indica a continuación:
+1. Reporte sobre comisiones de administración, valor de la participación, coeficiente de Liquidez y otros, rigen a partir del envío de la información con corte al 19 de mayo del 2003.
+2. Estados financieros de las sociedades administradoras de fondos de inversión, de los fondos de inversión, así como al Reporte de carteras de los fondos de inversión y a la plantilla de la cartera de inversiones por cuenta propia de las sociedades administradoras, rige a partir del envío de la información con corte al 30 de abril del 2003.
+3. Estados financieros de los puestos de bolsa, rige a partir del 31 de mayo del 2003.
+b) La plantilla de la cartera de inversiones por cuenta propia de los puestos de bolsa, cartera activa del OPAB y operaciones posición compradora a plazo, rige a partir del envío de la información con corte al 31 de mayo del 2003.

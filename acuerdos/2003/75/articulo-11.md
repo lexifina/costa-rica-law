@@ -1,6 +1,7 @@
-Artículo 11°—Vigencia. Rige a partir de su comunicación, excepto por a) Los cambios a los siguientes reportes rigen a partir de la fecha que se indica a continuación:
-1. Reporte sobre comisiones de administración, valor de la participación, coeficiente de Liquidez y otros, rigen a partir del envió de la información con corte al 19° de mayo del 2003.
-2. Estados financieros de las sociedades administradoras de fondos de inversión, de los fondos de inversión . así como al Reporte de carteras de los fondos de inversión y a la plantilla de la cartera de inversiones por cuenta propia de las sociedades administradoras, rige a partir del envío de la información con corte al 30 de abril del 2003.
-3. Estados financieros de los puestos de bolsa, rige a partir del 31 de mayo del 2003.
-b) La plantilla de la cartera de inversiones por cuenta propia de los puestos de bolsa, cartera activa del OPAB y operaciones posición compradora a plazo, rige a partir del envío de la información con corte al 31 de mayo del 2003.
-(La numeración de este artículo fue así modificada por el artículo 1º del Acuerdo número SGV-A-85 del 03 de febrero del 2004, emitido por la Superintendencia General de Valores, que lo traspasó del antiguo 10 al actual)
+Artículo 11.—Derogatorias. Se derogan los siguientes acuerdos:
+1. SGV-A-16 Normativa Contable para Puestos de Bolsa, Sociedades Administradoras de Fondos de Inversión y Fondos de Inversión, del 19 de agosto de 1999 y sus respectivos acuerdos de reforma (SGVA- 38, SGV-A-54, SGV-A-63 y SGV-A-67)
+2. SGV-A-22 Acuerdo sobre el suministro de información periódica, y sus modificaciones (SGV-A-25, SGV-A-31, SGV-A-41, SGV-A-44, SGV-A-45).
+3. SGV-A-39. instrucciones sobre la comunicación del nombramiento de auditores externos y de la declaración jurada respectiva.
+4. SGV-A-50 Instrucciones sobre la Información Periódica que deberán remitir las Entidades Administradoras de Emisiones Provenientes de Procesos de Titularización, del 1º de noviembre del 2001.
+5. SGV-A-69. Instrucciones para la remisión de las carteras de valores de los Fondos de Inversión del 28 de octubre del 2002.
+6. SGV-A-70 y SGV-A-71 instrucciones para la publicación de estados financieros auditados por parte de los emisores no financieros, puestos de bolsa y sociedades administradoras de fondos de inversión y fondos de inversión.

@@ -1,12 +1,43 @@
 Articulo 2°—Contenido de los reportes y medios de suministro. El contenido de cada uno de los reportes indicados se establece en los Anexos a este Acuerdo, que forman parte integrante de este. Así mismo cada reporte deberá remitirse por el medio establecido en el cuadro siguiente.
-PARTICIPANTE | TIPO DE INFORMACIÓN | ANEXO No | MEDIO
-Emisores de valores I | Estados financieros, anexos y flujos de Caja: Sector Industrial, Comercio. Agrícola, Servicios, Fideicomisos e Inmobiliario Sector Servicios Financieros y Bursátiles Estados financieros auditados de los emisores y las empresas garantes de emisiones vi Informe complementario de auditores externos vii Estados de Captación de emisiones estandarizadas y no estandarizadas: Sector Industrial, Comercio, Agrícola, Servicios. Fideicomisos, Inmobiliario y Servicios Financieros y Bursátiles Sector Mutuales. Cooperativo, Bancos y financieras Reporte de operaciones en Efectivo Reporte de operaciones Sospechosas Comunicación del nombre del Contador Público Autorizado o firma de auditores externos del emisor y los garantes y declaración jurada del C.P.A o firma sobre el cumplimiento de los requisitos de experiencia e independencia. xv Estados financieros no auditados de las empresas garantes de emisiones: Sector Industrial. Comercio, Agrícola, Servicios. Fideicomisos Sector Servicios Financieros y Bursátiles Certificación de bienes del Registro Público, en el caso de fideicomisos de garantía de emisiones y garantías reales. Avalúo de bienes por parte de un perito independiente, en el caso de fideicomisos de garantiza de emisiones y garantías reales xi. Informe de cumplimiento del fiduciario, en el caso de fideicomisos de garantía de emisiones de valores". | 1 2 N/A N/A 3 3 4 5 N/A 1 2 N/A N/A 6 | Correo Electrónico viii Correo electrónico viii Papel Papel Correo Electrónico VIII Papel y correo electrónico ix Papel Papel Papel Papel Papel Papel Papel Papel
-Puestos de Bolsa | Reporte de encaje mínimo legal Estados financieros no auditados Estados financieros auditados vi Informe complementario de los auditores externos vii Reportes de carteras administradas Reporte de cartera de inversiones propias Reporte de cartera activa del OPAB Reporte de operaciones posición compradora a plazo Reporte de operaciones en Efectivo Reporte de operaciones Sospechosas Reporte de Verificación de Normativa Prudencial xii Comunicación del nombre del Contador Público Autorizado o firma de auditores externos y declaración jurada del C.P.A o firma sobre el cumplimiento de los requisitos de experiencia e independencia. xv | 7 8 N/A N/A 9 10 11 12 4 5 N/A N/A | Correo Electrónico VIII Correo Electrónico VIII Papel Papel Correo Electrónico VIII Correo Electrónico Xiii Correo Electrónico XIII Correo Electrónico XIII Papel Papel Papel Papel
-Sociedades Administradoras de Fondos de Inversión | Reporte de comisiones de administración, valor de la participación, coeficiente de liquidez y otros Estados financieros no auditados de la Sociedad y flujo de caja proyectado Estados financieros no auditados y flujo de caja proyectado: Fondos financieros e inmobiliarios Fondos de titularización Reporte de inversiones propias de la Sociedad Reporte de Composición de las Carteras: Fondos de inversión financieros Fondos de titularización Fondos Inmobiliarios Plantilla de Carteras de los fondos Estados financieros auditados de la SFI y sus respectivos fondos Informe complementario de los auditores externos VII Avalúo pericial y financiero de bienes inmuebles de fondos inmobiliarios Reporte de operaciones en Efectivo Reporte de operaciones Sospechosas Comunicación del nombre del Contador Público Autorizado o firma de auditores externos y declaración jurada del C.P.A o firma sobre el cumplimiento de los requisitos de experiencia e independencia. xv | 13 14 15 20 16 17 21 22 18 N/A N/A N/A 4 5 N/A | Correo Electrónico VIII Correo Electrónico VIII Correo Electrónico VIII Correo Electrónico VIII Correo Electrónico VIII Correo Electrónico VIII Correo Electrónico VIII Correo Electrónico VIII Correo Electrónico VIII Papel Papel Papel Papel Papel Papel
-Bolsas de Valores | Estados financieros no auditados Estados Financieros Auditados VI Informe complementario de los auditores externos VII Informe de Operaciones Bursátiles Comunicación del nombre del Contador Público Autorizado o firma de auditores externos y declaración jurada del C.P.A o firma sobre el cumplimiento de los requisitos de experiencia e independencia. xv | N/A N/A N/A 19 N/A | Papel Papel Papel Líneas dedicadas Papel
-Calificadoras de Riesgo | Estados financieros no auditados Estados Financieros Auditados VI Comunicación del nombre del Contador Público Autorizado o firma de auditores externos y declaración jurada del C.P.A o firma sobre el cumplimiento de los requisitos de experiencia e independencia. xv | N/A N/A N/A | Papel Papel Papel
-Centrales de Valores | Estados financieros no auditados Estados financieros auditados VI Informe complementario de los auditores externos VII Comunicación del nombre del Contador Público Autorizado o firma de auditores externos y declaración jurada del C.P.A o firma sobre el cumplimiento de los requisitos de experiencia e independencia. xv | N/A N/A N/A N/A | Papel Papel Papel Papel
-Grupos financieros | Estados financieros no auditados v Estados financieros auditados VI Informe complementario de los auditores externos VII Comunicación del nombre del Contador Público Autorizado o firma de auditores externos y declaración jurada del C.P.A o firma sobre el cumplimiento de los requisitos de experiencia e independencia. xv | N/A N/A N/A N/A | Papel Papel Papel Papel
+Participante | Tipo de información | Medio
+Emisores de valores | Estados financieros no auditados |
+| de los emisores, anexos y flujos de caja: |
+| Sector Industrial, Comercio | Sistema Ingresador
+| Agrícola, Servicios, Fideicomisos e |
+| Inmobiliario |
+| Sector Servicios Financieros y |
+| Bursátiles | Sistema Ingresador
+| Estados de Captación de emisiones |
+| estandarizadas y no estandarizadas |
+| Sector Industrial, Comercio | Sistema Ingresador
+| Agrícola, Servicios, Fideicomisos, |
+| Inmobiliario y Servicios Financieros, |
+| y Bursátiles |
+Puestos de Bolsa | Reporte de encaje mínimo legal | Sistema Ingresador
+| Estados financieros no auditados | Sistema Ingresador
+| Reportes de carteras administradas | Sistema Ingresador
+| Reporte de cartera de inversiones |
+| propias | Sistema Ingresador
+Sociedades | Reporte de comisiones de | Sistema Ingresador
+Administradoras | administración valor de la participación, |
+de Fondos de | de coeficiente de liquidez y otros (aplica |
+Inversión | a todos los fondos) |
+| Estados financieros no auditados de | Sistema Ingresador
+| la Sociedad y flujo de caja proyectado |
+| Estados financiero no auditados y fluyo |
+| de caja proyectado |
+| Fondos financieros e inmobiliarios | Sistema Ingresador
+| Fondos de titularización | Sistema Ingresador
+| Reporte de inversiones propias de la |
+| Sociedad | Sistema Ingresador
+| Reporte de Composición de las Carteras: |
+| Fondos de inversión financieros | Sistema Ingresador
+| Fondos de titularización | Sistema Ingresador
+| Fondos Inmobiliarios | Sistema Ingresador
+| Plantilla de Carteras (aplica a todos los |
+| fondos). | Sistema Ingresador
+Grupos financieros | Estados financieros no auditados | Sistema Ingresador
+(Así reformado el cuadro por el SGV-A-96 del 27 de setiembre del 2004, emitido por la Superintendencia General de Valores y publicado en La Gaceta N° 227 del 19 de noviembre del 2004)
 i. Cuando d emisor es un empresa controladora de un grupo financiero, únicamente aplica el contenido. periodicidad y plazos de entrega aplicable a los grupos financieros.
 ii. En los casos en que la totalidad de las emisiones hay a sido colocadas y no exista vencimientos. el emisor podrá ser eximido de la presentación de informes de captación mensuales, previa autorización del Superintendente
 iii. Cuando el fideicomiso administre activos financieros y no financieras en conjunto, regirá la periodicidad trimestral.
@@ -25,29 +56,5 @@ xv. Requisitos de experiencia e independencia establecidos en el Reglamento sobr
 En el caso de la información que deba remitirse vía correo electrónico, deberá utilizarse la plataforma de comunicación que se detalla en el Manual de Normas y Procedimientos para el Suministro de Información Periódica que se muestra en el Anexo 26. Para ello tanto los emisores como los sujetos fiscalizados deberán cumplir con el conjunto mínimo de requerimientos de equipo, software y sistemas de comunicación establecidos en dicho Manual la información deberá transmitirse a la dirección electrónica indicada en dicho Manual. La transmisión podrá realizarse durante días no hábiles, siempre y cuando ello se realice antes de la fecha máxima establecida en el respecta o acuerdo.
 Los envíos a cualquier otra dirección que no sea la allí indicada no se consideraran válidos para los efectos del cumplimiento de las obligaciones de suministro de información periódica, salvo que la Superintendencia haya habilitado una dirección de correo alterna, según se detalla en el Manual.
 Únicamente en los casos de fallos de la plataforma de comunicaciones, podrá remitirse la información por medio de disquete. En este caso deberá remitirse el archivo en el mismo formato que se utiliza para su envió por medio de correo electrónico, según se especifica en el Manual de Normas y Procedimientos.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el SGV-A-79 de 01 de setiembre de 2003, publicado en La Gaceta N° 203 de 22 de octubre de 2003, en el siguiente sentido:
-En consecuencia se modifican los siguientes Anexos:
-Regulado Nombre del catálogo Número de Anexo
-Sociedad Administradora de Fondos de Inversión BG_SAFI 14
-Fondos de Inversión BG_FONDOS 15
-Fondos de Inversión RC_FONDOS 17
-Fondos de Inversión RD_FONDOS 13
-Fondos de Inversión Inmobiliarios IM_FONDOS 22
-Fondos de Titularización BG_FOTI 20)
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el SGV-A-79 de 01 de setiembre de 2003, publicado en La Gaceta N° 203 de 22 de octubre de 2003, en el siguiente sentido:
-En consecuencia se modifican los siguientes anexos:
-Regulado Nombre del catálogo Número de Anexo
-Emisores de Valores Sector Industrial, BG_EMISOR 1
-Comercio, Agrícola, Servicios, Fidecomisos e Inmobiliario.
-Emisores de Valores Sector Industrial, IC_EMISOR 1
-Comercio, Agrícola, Servicios, Fidecomisos e Inmobiliario.
-Emisores de Valores Sector Mutuales, Cooperativo, Bancos y Financieras NO ESTANDARIZADAS 3
-(DEROGADO PARCIAL Y EXPRESAMENTE por el SGV-A-79 de 01 de setiembre de 2003, publicado en La Gaceta N° 203 de 22 de octubre de 2003, en el siguiente sentido:
-Se eliminan las siguientes cuentas:
-CO_CATALOGO Nº DE CUENTA Número de Anexo
-IM_FONDOS 17 00 00 00 00 00 Rendimiento del fondo desde 1º enero a la fecha
-IM_FONDOS 17 10 00 00 00 00 Nominal + Dividendos (Sin ajuste por valoración a valor de mercado)
-IM_FONDOS 17 20 00 00 00 00 Con ajuste por valuación de las inversiones en propiedad a valor de mercado.
-En consecuencia se modifica el Anexo Nº 22.
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por el SGV-A-79 de 01 de setiembre de 2003, publicado en La Gaceta N° 203 de 22 de octubre de 2003, en el siguiente sentido: se modifica los términos "Certificación de bienes del Registro Público, en el caso de fideicomisos de garantía de emisiones" para que en adelante se lea "Certificación de bienes del Registro Público, en el caso de fideicomisos de garantía de emisiones y garantías reales", "Avalúo de bienes por parte de un perito independiente" para que en adelante se lea "Avalúo de bienes por parte de un perito independiente, en el caso de fideicomisos de garantiza de emisiones y garantías reales" y "Informe de cumplimiento del fiduciario" para que en adelante se lea "Informe de cumplimiento del fiduciario, en el caso de fideicomisos de garantía de emisiones de valores.)
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por el SGV-A-83 de 25 de noviembre de 2003, emitido por la Superintendencia General de Valores, en el siguiente sentido: Se modifica el artículo 2 para que en la línea que cita: "Reporte de comisiones de administración, valor de la participación, coeficiente de liquidez y otros" en adelante se lea "Reporte de comisiones de administración, valor de la participación, coeficiente de liquidez y otros. Aplica a todos los fondos de inversión". "Plantilla de Carteras de los fondos" en adelante se lea "Plantilla de Carteras. Aplica a todos los fondos de inversión)

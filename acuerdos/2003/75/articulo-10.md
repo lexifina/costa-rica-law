@@ -1,8 +1,2 @@
-Articulo 10°—Derogatorias. Se derogan los siguientes acuerdos:
-1. SGV-A-16 Normativa Contable para Puestos de Bolsa. Sociedades Administradoras de Fondos de Inversión y Fondos de Inversión, del 19 de agosto de 1999 y sus respectivos acuerdos de reforma (SGV- A-38, SGV-A-54, SGV-A-63 y SGV-A-67).
-2. SGV-A-22 Acuerdo sobre el suministro de información periódica, y sus modificaciones (SGV-A-25, SGV-A-31, SGV-A-41, SGV-A-44. SGV-A-45).
-3. SGV-A-39 Instrucciones sobre la comunicación del nombramiento de auditores externos y de la declaración jurada respectiva.
-4. SGV-A-50 Instrucciones sobre la Información Periódica que deberán remitir las Entidades Administradoras de Emisiones Provenientes de Procesos de Titularización, del 1 de noviembre del 2001.
-5. SGV-A-69. Instrucciones para la remisión de las carteras de valores de los Fondos de Inversión del 28 de octubre del 2002.
-6. SGV-A-70 y SGV-A-71 Instrucciones para la publicación de estados financieros auditados por parte de los emisores no financieros, puestos de bolsa y sociedades administradoras de fondos de inversión y fondos de inversión.
-(La numeración de este artículo fue así modificada por el artículo 1º del Acuerdo número SGV-A-85 del 03 de febrero del 2004, emitido por la Superintendencia General de Valores, que lo traspasó del antiguo 9 al actual)
+Artículo 10. Requisitos de la comunicación por parte de los peritos o profesionales que valoran los inmuebles. La declaración jurada que deben remitir los peritos o profesionales sobre el porcentaje de honorarios que perciben de un mismo grupo financiero o económico por los servicios de valoración y otros servicios prestados, deberá presentarse junto con el informe de valoración de compra y los informes de valoración anual que debe remitir la entidad a esta Superintendencia. Deberá presentarse en las oficinas de la Superintendencia, en papel membretado según el contenido del formato del Anexo 32.
+(Artículo adicionado por el acuerdo del Superintendente SGV-A-96 el 27 de septiembre del 2004).
