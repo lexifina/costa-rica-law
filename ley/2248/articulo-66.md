@@ -1,0 +1,5 @@
+Artículo 66.- Cuantía de las prestaciones. La máxima pensión por orfandad, para cada hijo, será equivalente al treinta por ciento (30%) de la que devengaba o hubiera devengado el causante, a la fecha de su fallecimiento.
+De existir más de un hijo con derecho a pensión por orfandad, se aplicarán las normas siguientes:
+a) Cada uno recibirá una pensión en las condiciones del párrafo anterior, salvo que sumadas todas, excedan el ciento por ciento (100%) de la pensión que devengaba o hubiera devengado el causante pues, en tal caso, ese total se prorrateará entre los beneficiarios.
+b) Cuando alguna de las prestaciones prorrateadas a que se refiere el inciso anterior se extinga, las de los subsistentes acrecerán, sin superar el porcentaje correspondiente a la pensión máxima por orfandad.
+c) Cuando en relación con un mismo funcionario o una funcionaria causante, junto con las pensiones por orfandad concurran pensiones por viudez, se aplicará lo dispuesto en el párrafo cuarto del artículo 61 de esta ley.

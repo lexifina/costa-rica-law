@@ -1,3 +1,4 @@
-Artículo 7º.- Para los efectos de jubilaciones ordinarias o pensiones extraordinarias, el año natural no podrá contarse por más de un año de servicio, con excepción de lo establecido en el inciso c) del artículo 2.
-Al sumar el tiempo de servicio, las fracciones de un año que resulten se contarán por años enteros, si son iguales o mayores a seis meses. No serán tomados en cuenta si fueran en lapsos menores.
-El monto de la jubilación será una suma completa de colones, en la que contará como un colón toda fracción de cincuenta o más céntimos.
+SECCION II
+Ambito de cobertura
+Artículo 7.- Ambito de cobertura. Quedan cubiertas por este Régimen de capitalización todas las personas que se desempeñen en el Magisterio Nacional y hayan sido nombradas por primera vez con posterioridad al 14 de julio de 1992 o hayan nacido el 1o. de agosto de 1965 o en fecha posterior.
+Los funcionarios activos del Ministerio de Educación Pública que, por ocupar cargos a tiempo completo en la dirigencia de organizaciones gremiales, corporativas y sindicales directamente vinculadas con el Magisterio Nacional, hayan disfrutado de licencia sin goce de salario en el ejercicio de esa representación, tendrán derecho a que el tiempo destinado a esa actividad se les reconozca como años de servicio únicamente para efectos de pensión. En ningún caso, ese tiempo podrá exceder de diez años. Al efecto de que este tiempo resulte hábil para adquirir el derecho jubilatorio, esas personas deberán haber cotizado sobre los salarios devengados mientras ostentaron la representación.

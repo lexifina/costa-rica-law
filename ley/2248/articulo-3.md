@@ -1,5 +1,8 @@
-Artículo 3º.- La jubilación extraordinaria se otorga a solicitud del interesado, siempre que compruebe hallarse en alguno de los siguientes casos:
-a) Después de quince años de servicio(*) y de haber sido incapacitado total o definitivamente para el ejercicio del cargo a juicio de un Tribunal Médico designado por la Junta Directiva del Colegio de Médicos y Cirujanos, renovable cada dos años. Si el solicitante de la pensión extraordinaria padeciera de alguna enfermedad no comprendida en la especialidad de ninguno de los médicos del Tribunal, éste designará al facultativo o a los facultativos de la especialidad requerida para que dictaminen, a fin de que su informe sirva de elemento básico para sustentar el veredicto final.
-(*) (Mediante resolución de la Sala Constitucional N° 5261 del 26 de setiembre de 1995, se anuló del inciso anterior la frase “Después de quince años de servicio”)
-b) Haber servido por un período menor al descrito en el inciso anterior y ser incapacitado permanentemente como consecuencia de un acto de abnegación en que hubiera arriesgado la vida, por interés público o por salvar la de otra persona, independientemente de sus años de servicio. La incapacidad permanente para el desempeño de las funciones se demostrará mediante los dictámenes médicos a que se refiere el inciso a). En estos casos, se otorgará la pensión completa.
-Si para la emisión del respectivo dictamen médico no hubiera unanimidad de pareceres, la Junta de Pensiones y Jubilaciones del Magisterio Nacional enviará los dictámenes individuales en consulta a la Junta Directiva del Colegio de Médicos y Cirujanos, la que, previo examen del solicitante, por ella o por los especialistas que designe, resolverá en definitiva.
+TITULO II
+Régimen de capitalización
+CAPITULO I
+Ambito de protección
+SECCION I
+Adscripción
+Artículo 3.- Derecho de pertenencia. El Régimen de capitalización es de adscripción voluntaria.
+Los funcionarios que cumplan con los requisitos de pertenencia a las instituciones indicadas en el artículo 8 siguiente, quedarán incluidos de oficio en el colectivo cubierto, por el solo acto de nombramiento. No obstante, cuando lo soliciten de modo expreso, serán excluidos del Régimen y, automáticamente, quedarán cubiertos por el seguro obligatorio de Invalidez, vejez y muerte, creado por la Ley No. 17, del 22 de octubre de 1943 y sus reformas.

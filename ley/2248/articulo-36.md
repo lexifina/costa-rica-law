@@ -1,2 +1,5 @@
-Artículo 36.- El Director Ejecutivo de la Junta de Pensiones y Jubilaciones del Magisterio Nacional adoptará las medidas pertinentes y coordinará las acciones del caso, con el propósito de que lo estatuido en el artículo anterior se cumpla a cabalidad.
-La forma y condiciones de las informaciones, los temas sobre los que habrá que actuar y los medios que empleará para las comunicaciones correspondientes, deberán ser objeto de una reglamentación específica que elaborará el Poder Ejecutivo, quien oirá, previamente, a la Junta de Pensiones del Magisterio Nacional, en un plazo de noventa días.
+CAPITULO II
+Prestaciones
+SECCION I
+Clases de prestaciones
+Artículo 36.- Contingencias protegidas. Este Régimen otorgará prestaciones económicas periódicas para cubrir las contingencias de vejez, invalidez y supervivencia a la muerte del sostén económico de la familia, fundamentadas en los principios de justicia social, solidaridad y redistribución de la riqueza, con estricto apego a los principios técnicos que regulan esta clase de regímenes.

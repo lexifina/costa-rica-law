@@ -1,0 +1,1 @@
+Artículo 82.- Sustanciación del expediente. Los elementos probatorios del derecho reclamado deberán ser propuestos por el solicitante en el acto inicial del procedimiento, pero su consecusión será realizada de oficio por el órgano director, salvo el caso de la prueba testimonial.

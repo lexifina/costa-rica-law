@@ -1,0 +1,2 @@
+Artículo 77.- Sanciones. Si por dolo o culpa suya el jubilado o pensionado por vejez, invalidez o supervivencia, percibe simultáneamente sueldo y jubilación, deberá reintegrar al Estado las prestaciones de jubilación o pensión recibidas ilícitamente, más un veinticinco por ciento (25%) por concepto de cláusula penal.
+Si la devolución no se realiza dentro del mes inmediato posterior a la percepción, el jubilado deberá reconocer los intereses moratorios vencidos, para lo cual se aplicará lo dispuesto en el artículo 1163 del Código Civil.

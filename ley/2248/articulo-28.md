@@ -1,3 +1,4 @@
-Artículo 28.- La Junta de Pensiones y Jubilaciones del Magisterio Nacional será responsable de la administración de un Fondo de reserva derivado de la deducción de un cinco por mil (5/1000) de los salarios y pensiones de los beneficiarios del régimen. Este Fondo deberá depositarse en una institución bancaria del Estado.
-Serán inembargables el patrimonio del fondo de capitalización creado en este artículo, así como el fondo de reserva mencionado en el artículo 28 de la Ley Nº 7268, del 19 de noviembre de 1991.
-(Así adicionado el párrafo anterior por el artículo 1° de la ley N° 7453 del 29 de noviembre de 1994)
+CAPITULO V
+Control y supervisión
+Artículo 28.- Control y supervisión. El Régimen de capitalización y su administración quedarán sujetos al control y la supervisión de la Superintendencia General de Pensiones.
+Transitorio IV.- Hasta tanto no entre en operación la Superintendencia General de Pensiones mencionada en el artículo anterior, la encargada de todas sus funciones será la Auditoría General de Entidades Financieras.

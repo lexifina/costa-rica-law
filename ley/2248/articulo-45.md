@@ -1,0 +1,2 @@
+Artículo 45.- Beneficio por postergación. En caso de que el funcionario opte por postergar su retiro, la tasa de reemplazo establecida en el artículo 43, se aumentará en cero coma quince por ciento (0,15%) del salario de referencia, por cada mes postergado y cotizado.
+En caso de que la pensión por vejez, calculada según lo dispuesto en el artículo 43 de esta ley, supere la limitación establecida en el artículo anterior, el porcentaje de beneficio por postergación se sumará al monto máximo establecido en ese último artículo.
