@@ -1,0 +1,1 @@
+Artículo 21.—El presente reglamento será revisado y de ser necesario ajustado al menos cada seis meses por motivos de razonabilidad, conveniencia y fiscalización para el buen uso del combustible exonerado para la flota pesquera nacional.

@@ -1,0 +1,15 @@
+Artículo 18.—El beneficiario o su representante deberán presentar con cada solicitud los siguientes documentos, que deberán incluirse en el expediente de la embarcación.
+a- Formulario de solicitud con una copia.
+b- Dos copias de la factura de venta del producto desembarcado, conforme a las estipulaciones del Ministerio de Hacienda. En el caso de encontrarse inscrito en el Régimen de Tributación Simplificada, podrá presentar copia de sus registros contables.
+c- Copia confrontada con su original de la factura de compra del combustible del viaje anterior, emitida por un expendio debidamente autorizado por las Instituciones correspondientes.
+d- Copia confrontada con su original del zarpe nacional. Se exceptúa de esta disposición las embarcaciones artesanales en pequeña escala, quienes deberán presentar a estos efectos declaración jurada de los días y horas de pesca en que ejecutó labores.
+e- Tratándose de pescadores artesanales en pequeña escala deberá presentar certificación emitida por la Caja Costarricense del Seguro Social de que no se encuentra registrado como asalariado, la cual deberá presentar cada seis meses.
+f- Las personas jurídicas deberán aportar certificación de personería vigente cada seis meses o cada vez que sea modificada. Dicha certificación deberá presentarse acompañada de fotocopia de la cédula jurídica y cédula de identidad del representante legal.
+g- Los barcos que utilicen redes de arrastre para la captura de camarón, deberán aportar una copia del libro de bitácora correspondiente al reporte del viaje anterior, donde como primera manifestación del Capitán, se haga declaración jurada donde exprese, que su embarcación se encuentra equipada con el dispositivo excluidor de tortugas reglamentario (TED), que conoce sobre la obligatoriedad del uso de éste en todos los arrastres que se realicen a 80 o menos brazas de profundidad y de la responsabilidad y sanciones que conlleva el incumplimiento de esta disposición.
+h- Las embarcaciones sardineras y las embarcaciones palangreras, deberán presentar también fotocopia del libro de bitácora, correspondiente al reporte del viaje anterior.
+i- La bitácora deberá consignar como mínimo lo indicado en el Manual de Procedimientos para la autorización de combustible a precio preferencial.
+j- Las personas jurídicas propietarias de embarcaciones, podrán autorizar a un empleado de su planilla para realizar el trámite y retiro de documentos correspondientes a la solicitud de combustible, conforme se indica en el manual de procedimientos.
+k- Copia de la orden de compra del combustible anterior, firmada por el beneficiario y con el sello de RECOPE, como prueba que la misma se hizo efectiva.
+l- Declaración jurada señalando la veracidad de la información suministrada.
+m- Solicitud expresa a los efectos de que la SCAC confeccione el correspondiente contrato por dos años, a efecto de regular el uso y disfrute del beneficio de combustible a precio preferencial
+n- Cualquier otro documento que la SCAC considere necesario para el trámite de la solicitud.

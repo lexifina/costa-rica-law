@@ -1,0 +1,2 @@
+Artículo 10.—La orden de compra tendrá una vigencia de treinta días calendario. No obstante lo anterior, por razones excepcionales debidamente demostradas ante el Jefe de la SCAC, o los Encargados de Oficinas Regionales, ésta podrá extenderse hasta por un período adicional y continuo de quince días naturales.
+Vencido el plazo de vigencia de la orden de compra sin haberse hecho efectiva, la misma caducará de pleno derecho y bajo ninguna circunstancia podrá ser revalidada
