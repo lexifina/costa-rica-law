@@ -13,3 +13,4 @@ Incorpora Patrimonio Histórico Iglesia Nuestra Señora de las Mercedes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-11 | la propia norma |
+| 2 | 1996-05-11 | SINALEVI (sin norma nombrada) |
