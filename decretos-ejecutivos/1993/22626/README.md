@@ -14,3 +14,4 @@ Declara de Interés Histórico Arquitectónico la Fábrica Nacional de Licores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-11-08 | la propia norma |
+| 2 | 1994-04-07 | Decreto Ejecutivo 23125 (1994-04-07) |
