@@ -1,0 +1,1 @@
+Artículo 5°—Los vecinos presentarán ante el Concejo sus candidatos por escrito, consignando nombre completo y número de cédula, una vez recibidos todos los nombres se someterá a votación de los presentes uno por uno, designando el número de votos de cada candidato se levantará una nómina de quince candidatos por orden de puntaje de mayor a menor.

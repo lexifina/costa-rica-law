@@ -1,0 +1,1 @@
+Artículo 6°—De la nómina de quince candidatos resultado de la CONSULTA POPULAR, el Concejo Municipal de Jiménez, procederá al nombramiento de los cuatro concejales propietarios y suplentes por orden de puntaje de mayor a menor, como miembros del Consejo Municipal de Distrito de Tucurrique, a excepción del síndico propietario y su suplente electos constitucionalmente.

@@ -1,0 +1,1 @@
+Artículo 8°—Conforme lo establece el inciso j) del artículo 13 del Código Municipal Ley 7794 de 30 de abril de 1998, en la celebración de esta consulta el Municipio solicitará la presencia de un delegado del Tribunal Supremo de Elecciones quien dará fe de que se cumplieron los requisitos exigidos en este reglamento.
