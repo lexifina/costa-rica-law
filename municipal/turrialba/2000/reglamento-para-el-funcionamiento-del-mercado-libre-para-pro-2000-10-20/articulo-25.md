@@ -1,0 +1,1 @@
+Artículo 25.-Dependiendo de la falta la Junta podrá suspender los permisos: a. la primera vez de uno a 6 meses, b. la segunda vez de 6 meses a un 1 año y c. la tercera vez suspender el permiso por 3 años o permanentemente.

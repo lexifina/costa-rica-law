@@ -1,0 +1,1 @@
+Artículo 7°-Sin excepción todo productor deberá terminar sus actividades de venta los sábados a las 4,00 p.m. La violación del horario establecido facultará a la Junta para aplicar las sanciones correspondientes.

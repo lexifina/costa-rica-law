@@ -1,0 +1,1 @@
+Artículo 33.-Por las características del bien demadial afectado, ningún vendedor, aún cuando haya ejercido su actividad por muchos años, no podrá alegar derechos adquiridos quedando la Junta facultada para suspender, revocar o reubicar los puestos cuando lo considere conveniente.
