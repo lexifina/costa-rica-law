@@ -1,0 +1,1 @@
+Artículo 5°-Cuando el Coordinador de Bienes y Servicios, por razones muy justificadas y de excepción se vea imposibilitado de realizar sus funciones como coordinador de la Comisión, será sustituto por el Asesor Legal del Proceso de Bienes y Servicios.

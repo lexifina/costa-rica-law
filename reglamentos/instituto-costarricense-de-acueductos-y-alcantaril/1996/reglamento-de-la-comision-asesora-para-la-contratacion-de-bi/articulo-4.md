@@ -1,0 +1,1 @@
+Artículo 4°-Cuando se trate de contrataciones, que por su monto o por la importancia estratégica que revistan, a solicitud del Coordinador del Proceso de Bienes y Servicios, se podrá ampliar la Comisión con la participación de los Directores de Área y el Asesor Jurídico de la Institución, quienes participarán con voz y voto.

@@ -1,0 +1,1 @@
+Artículo 10.-De todas las sesiones se levantará un acta donde se consignarán los aspectos más importantes que se discuten. Asimismo, si fuere del caso, cualquier miembro podrá solicitar que se consigne su criterio.

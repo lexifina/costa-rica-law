@@ -1,0 +1,1 @@
+Artículo 2°-La Comisión conocerá de todos los asuntos relacionados con la Contratación Administrativa de Bienes y Servicios, que someta a su conocimiento el Coordinador del Proceso de Bienes y Servicios. La Comisión se regulará por la normativa vigente.
