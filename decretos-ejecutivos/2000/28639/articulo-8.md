@@ -1,0 +1,1 @@
+Artículo 8º—Los ministerios y las entidades públicas, observarán los procedimientos emitidos para la aplicación y seguimiento de estas directrices, con excepción de lo que establece el Capítulo III de los mismos, que sera de aplicación para las entidades mencionadas en el artículo 7° anterior.
