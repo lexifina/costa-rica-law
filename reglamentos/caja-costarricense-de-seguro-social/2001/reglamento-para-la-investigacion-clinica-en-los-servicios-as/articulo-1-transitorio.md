@@ -1,0 +1,2 @@
+Transitorio: Entre tanto el Consejo Ético Científico indicado en el artículo 36° del presente Reglamento sea acreditado, la evaluación y aprobación de los protocolos de investigación clínica estará bajo la responsabilidad conjunta de los Comités Etico Científicos actualmente acreditados por el Ministerio de Salud y el Director del Centro participante.
+(Así adicionado por la Reforma Reglamentaria N° 7581 del 20 de setiembre del 2001)

@@ -14,3 +14,4 @@ Reglamento para la Investigación Clínica en los Servicios Asistenciales de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-26 | la propia norma |
+| 2 | 2001-10-26 | Reglamento 7581 (2001-09-20) |
