@@ -1,4 +1,4 @@
-ARTÍCULO 9.- Fiscalización
-La Contraloría General de la República fiscalizará que cada
-institución, incluya, dentro de sus presupuestos ordinarios, los rubros
-correspondientes para ejecutar el programa.
+Artículo 9°—Autorización de contrato de fideicomiso.
+Autorízase al Instituto Mixto de Ayuda Social (IMAS) para que, como institución pública destinada a la lucha contra la pobreza o en coordinación con otras entidades de derecho público, suscriba un contrato de fideicomiso con cualquiera de los bancos comerciales del Estado o con el Banco Internacional de Costa Rica, S. A., con recursos propios o del Fondo de Desarrollo Social y Asignaciones Familiares, a fin de establecer mecanismos ágiles de apoyo a las actividades e iniciativas microempresariales que beneficien a las mujeres y las familias en condiciones de pobreza, como un medio para lograr la inserción laboral y productiva y mejorar la calidad de vida de las personas beneficiarías.
+Los mecanismos de apoyo se orientarán, fundamentalmente, a facilitar el otorgamiento de créditos con tasas de interés favorables, el fínanciamiento de garantías adicionales y subsidiarias a estos créditos y la prestación de servicios de apoyo, capacitación y seguimiento de la actividad productiva en todas sus fases, con el fin de dar sostenibilidad a los proyectos productivos en beneficio de las mujeres o las familias en situación de pobreza".
+(Así adicionado por Ley N° 8184 de 17 de diciembre del 2001)
