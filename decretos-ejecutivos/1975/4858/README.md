@@ -15,3 +15,4 @@ Reglamento a la Ley de Tránsito
 | --- | --- | --- |
 | 1 | 1973-12-13 | la propia norma |
 | 2 | 1975-09-23 | Decreto Ejecutivo 5236 (1975-09-23) |
+| 3 | 1975-09-24 | Decreto Ejecutivo 5233 (1975-09-24) |
