@@ -1,0 +1,1 @@
+Artículo 2º—Exonéranse del pago de toda clase de impuestos, tasas, contribuciones o derechos, los documentos que se requieran para la formalización del Contrato de Préstamo aprobado en esta Ley. La inscripción de esos documentos en los registros correspondientes, también estará exenta de todo pago de esas cargas.
