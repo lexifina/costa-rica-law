@@ -1,0 +1,1 @@
+Artículo 8º—Los gastos de representación a que se refiere este reglamento, cubrirán únicamente a los funcionarios autorizados en los artículos anteriores, salvo acuerdo en contrario de la Junta Directiva de la sociedad. Quedan excluidos todos los gastos en que incurran los funcionarios autorizados en su carácter personal o condición particular.
