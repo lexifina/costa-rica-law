@@ -1,0 +1,1 @@
+Artículo N°10.-En las causas por fraudes y contrabandos, pagar las costas procesales el reo reos contra quienes se dictare sentencia condenatoria. En el caso de sobreseimiento absolución del procesado, el Tesoro Nacional satisfacerlas costas causadas en la instrucción al Juez funcionario instructor, si no goza de sueldo en su calidad de empleado de Hacienda.

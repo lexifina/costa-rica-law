@@ -1,0 +1,1 @@
+Artículo 9°. -Las denuncias sobre delitos de fraude y contrabando se conservarán siempre secretas; no ser que por el mérito de los autos resulte falsa y calumniosa, en cuyo caso el Juez la mandar agregar las mismas para proceder de oficio contra el denunciante conforme Derecho.

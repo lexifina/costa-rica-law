@@ -1,0 +1,1 @@
+Artículo 5°. -Los que siembren tabacales clandestinamente, además de perder estos, que deben destruirse sufrir n una multa de veinticinco pesos por cada cien matas, si no pasaren de dos mil; y la fija de seiscientos pesos, si excedieren de este número. Si el reo no tuviere bienes para pagar la multa, de las contar en obras públicas.

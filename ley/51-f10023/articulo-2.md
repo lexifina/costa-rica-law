@@ -1,0 +1,2 @@
+De las penas contra los contrabandistas.
+Artículo 2°. -Las fábricas clandestinas de aguardiente que se aprehendan, cuya existencia se comprobare, ser n decomisadas en el primer caso; y en uno y otro el dueño, inquilino o poseedor que habite actualmente la casa en que se encuentren situadas, ser condenado seiscientos pesos de multa. Si el reo no tuviere con que pagarla, la descontar en obras públicas.
