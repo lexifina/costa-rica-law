@@ -1,0 +1,1 @@
+Artículo 5º—De su financiación. El Cuerpo de Bomberos es financiado por el Instituto Nacional de Seguros. Además, puede recibir colaboración y financiamiento de cualquier ente público o privado, posterior al conocimiento y aprobación de la Junta Directiva del INS.

@@ -1,0 +1,18 @@
+Artículo 32.—Período de vigencia del nombramiento de la Jefatura Superior. Este nombramiento tiene asignado un tiempo de cuatro años exactos.
+Podrá optarse por nombramientos consecutivos para períodos subsecuentes, excepto para la posición de Primer Jefe. Ésta solo se podrá ejercer durante dos períodos consecutivos o tres alternos.
+La Jefatura Superior de Bomberos Voluntarios, debe ser nombrada en la primera quincena del mes de diciembre, e inicia su período de funciones el primer día del mes de enero.
+Para optar por los puestos de primera y segunda categoría, se debe seguir el procedimiento establecido en el artículo 22, inciso a. El nombramiento será ratificado por el Presidente Ejecutivo del Instituto Nacional de Seguros.
+Los ascensos a las categorías 1ª y 2ª. Serán otorgados en forma directa por el Presidente Ejecutivo del Instituto Nacional de Seguros. Para este efecto se tomarán en cuenta:
+1. La formación académica y técnica.
+2. Las cualidades personales.
+3. Los programas y proyectos que el postulante haya dirigido.
+4. Los valores éticos y principios personales de los aspirantes.
+5. Tener un expediente administrativo con un historial que contenga registro libre de sanciones y de faltas disciplinarias.
+6. Los requisitos establecidos por la organización para poder optar por estos cargos.
+Tres meses antes del vencimiento del período de nombramiento de la Jefatura Superior vigente, el Departamento de Recursos Humanos de Bomberos Voluntarios, publicará una convocatoria para que las personas interesadas en concursar por oposición en dichos puestos, presenten su hoja de vida y solicitud escrita en el formulario correspondiente, en donde manifiesten su intención.
+Para estos efectos, se aplicará un sistema de ponderación cualitativa para aplicarla a la evaluación administrativa y defensa de la hoja de vida, de cada participante. El Departamento de Recursos Humanos de Bomberos Voluntarios, presentará ante el Presidente Ejecutivo del Instituto Nacional de Seguros, una lista de 10 nombres que hayan obtenido un puntaje igual o superior a 85.
+En caso de incumplimiento de funciones o mala administración comprobada, el Presidente Ejecutivo del Instituto Nacional de Seguros, puede destituir de los cargos de forma individual o colectiva a la Jefatura Superior de Bomberos Voluntarios.
+En caso de renuncia, destitución, enfermedad o muerte del Primer Jefe, el Segundo Jefe lo puede sustituir, hasta terminar el período por el cual fue nombrado el funcionario titular.
+En caso de renuncia, destitución, enfermedad o muerte del Segundo Jefe, el Tercer Jefe lo puede sustituir de forma temporal hasta que se designe un sustituto que reúna los mismos requisitos establecidos para este cargo. En caso que el Tercer Jefe reúna los requisitos establecidos para este cargo, puede ocupar dicha vacante. Este nombramiento se efectúa de forma exclusiva, para completar el período por el cual fue nombrado el funcionario titular.
+En caso de renuncia, destitución, enfermedad o muerte del Tercer Jefe, el Cuarto Jefe lo puede sustituir, hasta terminar el período por el cual fue nombrado el funcionario titular.
+En caso de renuncia, destitución, enfermedad o muerte del Cuarto Jefe, podrá ser sustituido interinamente por uno de los funcionarios de la categoría inmediata inferior, de forma temporal, hasta que se designe un sustituto que reúna los mismos requisitos establecidos para este nombramiento. En caso que el sustituto interino del Cuarto Jefe reúna los requisitos establecidos para este cargo, puede ocupar la vacante por el resto del período para lo cual fue nombrado el funcionario titular.

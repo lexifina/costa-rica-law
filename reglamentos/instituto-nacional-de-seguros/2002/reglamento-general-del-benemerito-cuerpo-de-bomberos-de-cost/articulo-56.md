@@ -1,0 +1,3 @@
+Artículo 56.—Trámite de Sanciones. Para que la Junta emita su criterio, recibe a las partes en audiencia privada, se escuchan las razonas de funcionario(a) o funcionarios(as) sancionados(as) y la parte solicitante de la sanción, en cuanto a los motivos que dieron lugar para solicitarla, así como las alegaciones que haga en su propia defensa el interesado.
+Con el fin de facilitar la resolución del conflicto, la Junta procurará que éste se resuelva en primera instancia a través de una conciliación entre las partes. En caso contrario la Junta procederá con los trámites administrativos correspondientes.
+La Junta tiene un plazo total de treinta días hábiles, para emitir su criterio y recomendación.

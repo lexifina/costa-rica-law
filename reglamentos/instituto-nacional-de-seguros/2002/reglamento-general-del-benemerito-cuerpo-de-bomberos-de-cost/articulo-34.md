@@ -1,0 +1,3 @@
+Artículo 34.—Reunión de la Junta de Oficiales. La Junta de Oficiales se reunirá una vez al año ordinariamente en el mes de enero. La preside el primer jefe de los Bomberos Voluntarios. En ausencia de éste, lo será por el segundo, el tercer o el cuarto jefe respectivamente y en ausencia del inmediato superior, por el oficial de mayor categoría y en igualdad de categorías, por el oficial de mayor antigüedad en el servicio.
+Para que haya quórum en la primera convocatoria, deben estar presentes la mitad más uno de sus miembros activos.
+De no haber quórum una hora después se efectúa la segunda convocatoria. En esta ocasión el quórum lo forman los oficiales presentes.

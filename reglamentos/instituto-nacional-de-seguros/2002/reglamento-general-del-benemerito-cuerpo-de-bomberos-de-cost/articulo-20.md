@@ -1,0 +1,2 @@
+Artículo 20.—Sobre el acatamiento de las órdenes de Jefatura Superior. Las órdenes emitidas por la Jefatura Superior son de acatamiento obligatorio, todos los integrantes de la organización están comprometidos a cumplirlas. Las labores encomendadas al personal administrativo y de apoyo solo pueden ser revocadas por este órgano regente.
+Todo lo anterior a la luz de lo establecido en el Artículo 108 de la Ley General de Administración Pública.

@@ -1,0 +1,3 @@
+Artículo 64.—Miembros adscritos. Pueden ser miembros adscritos de la organización de Bomberos Voluntarios, a juicio del Consejo Asesor, las siguientes personas o entidades:
+a. Personas con amplia experiencia y formación en todos los aspectos inherentes a las funciones propias del Cuerpo de Bomberos, que por limitaciones de cualquier naturaleza no puedan integrarse con plenitud a las actividades regulares de los bomberos voluntarios.
+b. Organizaciones o entidades de reconocido prestigio nacional o internacional, que manifiesten interés expreso en colaborar con la organización de Bomberos del país.

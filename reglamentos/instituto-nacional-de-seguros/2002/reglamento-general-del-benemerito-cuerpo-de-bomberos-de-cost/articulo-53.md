@@ -1,0 +1,1 @@
+Artículo 53.—Imposición de sanciones a la Jefatura Superior. Es atribución del Jefe de la Dirección de Bomberos la imposición de sanciones que se deriven de las faltas en que incurran el Primero, Segundo, Tercero y Cuarto Jefes.

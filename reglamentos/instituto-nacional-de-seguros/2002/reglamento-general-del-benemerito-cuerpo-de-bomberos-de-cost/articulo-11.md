@@ -1,0 +1,1 @@
+Artículo 11.—Ámbito de Aplicación. Este reglamento regula las actividades de los Bomberos Voluntarios y sus relaciones con el Instituto Nacional de Seguros, representado por la Dirección de Bomberos, y en su defecto, por la más alta autoridad que el INS designe con dicho propósito.

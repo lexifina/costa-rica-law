@@ -1,0 +1,2 @@
+JUNTA DE OFICIALES
+Artículo 33.—De la Junta de Oficiales. La Junta de Oficiales es un órgano asesor del Cuerpo de Bomberos Voluntarios y está constituida por todos los miembros en servicio activo, que ostenten la categoría de Oficial, a saber: Coronel, Teniente Coronel, Mayor, Capital Iª y IIª categoría y teniente, así como los miembros de Bomberos Voluntarios que ostenten el cargo de jefe o encargado de compañía.

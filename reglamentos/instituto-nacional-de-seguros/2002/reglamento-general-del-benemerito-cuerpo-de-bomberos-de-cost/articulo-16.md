@@ -1,0 +1,1 @@
+Artículo 16.—Requisito de funcionamiento de los Departamentos. Todos los departamentos citados en el artículo anterior, para funcionar a derecho, deben establecer sus normas específicas de funcionamiento.

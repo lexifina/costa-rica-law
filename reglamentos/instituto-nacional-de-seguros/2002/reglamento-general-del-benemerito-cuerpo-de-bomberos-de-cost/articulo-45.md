@@ -1,0 +1,1 @@
+Artículo 45.—Del servicio activo. Se consideran miembros del Cuerpo de Bomberos, todos aquellos funcionarios en servicio activo, que pertenecen a la Institución a la fecha de entrada en vigencia de este Reglamento y los que ingresen después, conforme a los requisitos establecidos por el Departamento de Recursos Humanos.

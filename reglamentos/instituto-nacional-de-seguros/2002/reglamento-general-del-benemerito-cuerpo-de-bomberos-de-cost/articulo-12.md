@@ -1,0 +1,3 @@
+Artículo 12.—De su financiación. Los Bomberos Voluntarios dependen económicamente del Instituto Nacional de Seguros. Asimismo, pueden recibir donaciones de cualquier ente público o privado.
+Los fondos o recursos financieros que por cualquier concepto le sean asignados, deben ser administrados conforme a las disposiciones de la Ley de Administración Pública y la de Administración Financiera de la República.
+Sus gastos deben someterse a todos los trámites presupuestarios del INS y a la fiscalización de la Auditoria y de la Contraloría General de la República, cuando su ley orgánica así lo disponga.

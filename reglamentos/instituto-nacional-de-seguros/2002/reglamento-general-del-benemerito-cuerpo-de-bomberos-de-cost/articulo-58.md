@@ -1,0 +1,2 @@
+Artículo 58.—De la Separación de la organización. Quien sea separado de la organización, no puede realizar trámites de ingreso por un período de tiempo no menor a cinco años.
+Si una persona que ha sido separada de la organización desea gestionar su nuevo ingreso, debe cumplir con los trámites regulares de reclutamiento y su incorporación se ubica en la 10ª categoría. Para su ingreso, el Departamento de Recursos Humanos debe emitir un estudio técnico del caso y a su vez debe ser avalado por el Consejo Asesor.

@@ -1,0 +1,6 @@
+Artículo 62.—De los Miembros Honorarios. Quienes pueden ser considerados para tal honor son:
+a. Los bomberos retirados del Cuerpo de Bomberos Voluntarios, cuya trayectoria sea calificada por la Jefatura Superior de Bomberos Voluntarios, por medio de solicitud escrita al Departamento de Recursos Humanos. Éste a su vez debe preparar un informe detallado de las calidades personales que justifiquen el nombramiento.
+b. Aquellos integrantes de otros Cuerpos de Bomberos del exterior, cuya labor en beneficio de las Instituciones de Bomberos, sea internacionalmente reconocida por medio de la Federación Mundial de Asociaciones de Bomberos Voluntarios u otras organizaciones de reconocido prestigio equivalentes a ésta.
+c. Personas físicas o entidades particulares a quienes la institución reconozca señalados servicios prestados tanto a la comunidad, como a la organización de Bomberos del país.
+d. El nombramiento como miembro honorario del Cuerpo de Bomberos, compete a la Junta de Oficiales, tomando como base la votación afirmativa de las dos terceras partes de los presentes.
+e. La declaratoria que confiere el título de Miembro Honorario del Cuerpo de Bomberos, se consolida por medio de un acuerdo que toma y emita la Jefatura Superior de Bomberos Voluntarios.

@@ -1,0 +1,2 @@
+Artículo 63.—Bombero adscrito. Para mejorar la eficiencia, eficacia y efectividad de la organización de Bomberos Voluntarios, se establece la condición de miembro adscrito, según el siguiente concepto:
+"Bombero adscrito, es aquella persona que presenta cualidades profesionales o técnicas del más alto nivel. Que debido a su escasa disponibilidad de tiempo y otras limitaciones personales, no puede ofrecer servicio de forma regular. Aún así, esta dispuesto a formar parte de la organización y brindar aportes dentro del campo de su formación".

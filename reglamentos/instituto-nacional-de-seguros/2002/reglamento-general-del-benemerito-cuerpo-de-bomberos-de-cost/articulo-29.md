@@ -1,0 +1,5 @@
+Artículo 29.—Calificación de los participantes en el concurso. Una vez cerrado el período de inscripción, y si no se han recibido recusaciones contra el Jurado Calificador, la Oficina de Recursos Humanos respectiva enviará toda la documentación al jurado, en un plazo no mayor de tres días hábiles, posteriores al cierre del concurso.
+El Jurado Calificador cuenta como máximo, con sesenta días naturales para emitir las calificaciones de los participantes en el concurso y enviarlas a la Oficina de Recursos Humanos.
+La Oficina de Recursos Humanos a su vez, debe notificar a cada participante la calificación que obtuvo. Para ello cuenta con un plazo máximo de diez días hábiles, los que rigen a partir del momento en que recibiera las notificaciones del Jurado. El envío de calificaciones por parte de la Oficina de Recursos Humanos, se da por las siguientes vías:
+1. Entrega personal, contra firma de recibido con hora y fecha respectiva.
+2. Correo Certificado, por cuanto este sistema posee de un listado en el que se consigna la fecha de recibido y la firma de quien envía y forma de quien lo recibió.

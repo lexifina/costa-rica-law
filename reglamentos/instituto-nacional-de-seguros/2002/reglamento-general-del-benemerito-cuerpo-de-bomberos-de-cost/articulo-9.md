@@ -1,0 +1,1 @@
+Artículo 9º—Generalidades de la Contratación. Los requisitos de ingreso, funciones, deberes, derechos, aspectos disciplinarios y otros asuntos de interés laboral de los Bomberos Permanentes, se rigen de conformidad con el Reglamento Interno de Trabajo y la Convención Colectiva de Trabajo entre el INS y sus trabajadores.

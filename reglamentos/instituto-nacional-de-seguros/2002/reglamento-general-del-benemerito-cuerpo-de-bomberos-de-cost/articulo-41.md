@@ -1,0 +1,1 @@
+Artículo 41.—De las normas de disciplina. Las normas de disciplina y las instrucciones de los superiores, deben ser respetadas de forma individual y colectiva, sin discusión durante cualquier emergencia o actividad en que participe el Cuerpo de Bomberos. Su desacato da lugar a la aplicación de las sanciones disciplinarias establecidas en este reglamento.

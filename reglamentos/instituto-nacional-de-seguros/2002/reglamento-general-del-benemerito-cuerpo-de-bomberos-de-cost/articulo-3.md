@@ -1,0 +1,1 @@
+Artículo 3º—Objetivo del Cuerpo de Bomberos. El Cuerpo de Bomberos tiene como objetivo fundamental la protección, prevención, educación y auxilio de todos los ciudadanos y bienes que puedan ser afectados por un incendio, inundación, derrumbe, urgencias médicas o cualquier otro estado de emergencia, para así reducir los daños y pérdidas.

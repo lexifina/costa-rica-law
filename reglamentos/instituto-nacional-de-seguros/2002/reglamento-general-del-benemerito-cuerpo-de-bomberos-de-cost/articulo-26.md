@@ -1,0 +1,12 @@
+Artículo 26.—Jurados calificadores. Los jurados estarán constituidos por tres miembros, de los cuales uno será coordinador, además se nombrará un suplente.
+La lista de elegibles para integrar los jurados la prepara la Oficina de Recursos Humanos local, así mismo las enviará a las jefaturas correspondientes, con base en la lista recibida.
+La jefatura correspondiente, nombrará oficialmente a las personas que conformarán el jurado, de acuerdo con los siguientes postulados:
+a. Todo jurado calificador está integrado por un mínimo de tres funcionarios, los cuales debe tener la misma o mayor categoría de la plaza en concurso.
+b. Debe ser nombrado un miembro suplente, para que sustituya la ausencia justificada de algún miembro titular del jurado calificador.
+c. Cuando se trate del concurso de una plaza de categoría especial, al menos uno de los miembros del jurado, debe tener la misma especialidad o alguna similar, a aquella que se ha sacado a concurso.
+d. Todos los integrantes del jurado, deben ocupar un puesto de igual o superior categoría al que es objeto del concurso y proceder de cualquier unidad que no sea la que está promoviéndola.
+e. El coordinador será nombrado en el seno del jurado.
+f. En caso de no conformarse el jurado calificador de acuerdo con lo estipulado en este Reglamento, como caso de excepción y con ese justificante único, se podrá tomar en cuenta a personal, exclusivamente profesional, externo a la Institución, para lo cual debe demostrar idoneidad técnica y conocimiento adecuado de los procesos institucionales, que el puesto en concurso requiera. La propuesta se elevará, entonces, a la Jefatura Superior de Bomberos Voluntarios, para su respectiva aprobación. Este procedimiento es excluyente para las categorías primera y segunda.
+g. La capacitación del jurado calificador está a cargo de la Oficina de Recursos Humanos que promueve el concurso, quien, en caso de ser necesario, solicitará la asesoría al Departamento de Recursos Humanos, Sección Clasificación y Selección.
+h. El jurado confeccionará el temario de la prueba escrita, previo a la publicación del cartel de concurso y lo remitirá a la Oficina de Recursos Humanos que promueve el concurso, para la publicación definitiva.
+i. Las pruebas que el jurado prepare deben estar basadas en lo que establece el Manual de Puestos y los respectivos departamentos y secciones especializadas, asesoras de la jefatura superior.
