@@ -13,3 +13,4 @@ Modifica la Concesión Patentes y Permisos de Funcionamiento de Casinos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-01 | la propia norma |
+| 2 | 1996-04-01 | SINALEVI (sin norma nombrada) |
