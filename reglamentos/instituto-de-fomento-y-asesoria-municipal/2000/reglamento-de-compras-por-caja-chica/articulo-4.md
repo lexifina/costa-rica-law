@@ -1,0 +1,1 @@
+Artículo 4°- La titularidad de la Dirección Ejecutiva o aquel funcionario que en su ausencia quede debidamente autorizado por ésta, podrá autorizar compras mayores de ¢50.000.00 (cincuenta mil colones con 00/100), hasta un máximo de ¢100.000.00 (cien mil colones con 00/100)

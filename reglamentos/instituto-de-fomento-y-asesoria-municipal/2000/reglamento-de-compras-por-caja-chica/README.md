@@ -1,0 +1,16 @@
+# Reglamento (2000-07-05)
+
+Reglamento de Compras por Caja Chica
+
+- Tipo: Reglamento
+- Número: 3003
+- Fecha: 2000-07-05
+- Ente emisor: Instituto de Fomento y Asesoría Municipal
+- Publicación: La Gaceta N° 195 del 2000-10-11
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=31178&param2=32896&param3=1 (ficha 31178)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2000-10-11 | la propia norma |
