@@ -1,0 +1,1 @@
+Art 5° Ningún gasto mayor de cien pesos se hará de las cantidades señaladas para Eventuales en los diferentes ramos de la Administración Pública, sin previo acuerdo del Consejo de Gobierno; y de todas las respectivas Secretarias de Estado, llevarán cuenta separada.

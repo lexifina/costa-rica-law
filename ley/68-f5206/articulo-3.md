@@ -1,0 +1,1 @@
+Art 3° El déficit que resulte en las cuentas, podrá llenado el Gobierno, llegado el caso, haciendo uso de la facultad que tiene concedida para emitir billetes privilegiados y ponerlos en circulación, siempre que el monto efectivo de los ingresos y las economías que el mismo Gobierno hiciere, no alcancen a evitarlo.
