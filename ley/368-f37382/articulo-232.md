@@ -1,4 +1,5 @@
-Artículo 232.-EI que abusare deshonestamente de persona de uno u otro sexo, concurriendo alguna de las circunstancias del artículo 216, sin que haya acceso carnal, será penado con prisión de nueve meses a cuatro años.
+Artículo 232.-El que abusare deshonestamente de persona de uno u otro sexo, sin que haya acceso carnal, concurriendo las circunstancias expresadas en el inciso 1) del artículo 216, será penado con prisión de tres a seis años; y cuando concurren las circunstancias de los incisos 2) y 3) del mismo artículo 216, será penado con prisión de nueve meses a cuatro años. A los responsables de este delito, cuando el perjudicado sea un menor de doce años, no se les podrá otorgar el beneficio del indulto, excepto cuando lo recomiende el Tribunal sentenciador.
 No concurriendo en el abuso deshonesto ninguna de las circunstancias del expresado artículo 216, la pena será de seis meses a dos años de prisión, si la víctima fuere una doncella mayor de doce y menor de dieciocho años.
-Para los efectos de la regla anterior, rige la presunción contenida en el artículo 219.
-Si el autor del hecho fuere alguna de las personas mencionadas en el artículo 218, los extremos mayor y menor de las penas antes dichas, serán aumentados en un tercio.
+Para los efectos de la regla anterior, rige la presunción contenida el artículo 219.
+Si el autor del hecho fuere alguna de las personas mencionadas en artículo 218, los extremos mayor y menor de las penas antes dichas, serán aumentados en un tercio.
+(Así reformado por el artículo 1° de la ley N° 2464 del 9 de noviembre de 1959)
