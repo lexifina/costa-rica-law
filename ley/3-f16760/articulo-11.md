@@ -1,4 +1,3 @@
-Artículo 11.- Se prohiben las loterías con excepción de la del Asilo
-Chapuí. Las rifas serán permitidas únicamente en los turnos autorizados
-por el Poder Ejecutivo y siempre que su producto se destine a objetos de
-beneficencia, culto o educación pública.
+Artículo 11.- DEROGADO.
+( Derogado por el artículo 15 de la ley No. 1387 del 21 de noviembre de
+1951 ).

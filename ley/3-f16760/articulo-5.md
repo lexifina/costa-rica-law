@@ -6,5 +6,5 @@ decomisaren los objetos, dineros, etc. de que habla el artículo 7º e
 inciso 4º del artículo 16. El arresto será de ciento ochenta días, si la
 casa donde se hubiere jugado fuere un hotel, hostería, cafetería, fonda,
 posada, club, casino, vinatería, taquilla, billar u otro establecimiento
-frecuentados por el público, o si en la casa de juego se hubiese admitido,
-aun de simples espectadores, a personas menores de edad.
+frecuentados por el público, o si en la casa de juego se hubiese
+admitido, aun de simples espectadores, a personas menores de edad.
