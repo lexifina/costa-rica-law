@@ -1,0 +1,1 @@
+Artículo 19.-Se entenderá por disponibilidad para efectos del presente Reglamento, la compensación económica retribuida a los trabajadores que desempeñen puestos a nivel de jefatura de sección, oficina, departamento o dirección, en los cuales su presencia puede ser requerida por la Institución en cualquier momento.
