@@ -1,0 +1,11 @@
+REGLAMENTOS
+INSTITUTO COSTARRICENSE DE ACUEDUCTOS Y ALCANTARILLADOS
+ASUNTO: MODIFICACION AL INCISO A) DEL ARTICULO 51 DEL
+REGLAMENTO DE BECAS Y CAPACITACION DEL AYA
+ANº 99-126
+Resultando único:
+Mediante acuerdo ANº 99-090 de fecha 28 de abril de 1999, se encomendó a la Dirección Jurídica preparar un proyecto de acuerdo a través del cual se autorice a la Gerencia General a aprobar las solicitudes de permiso con goce de salario de aquellos funcionarios que deban viajar -para capacitación- fuera del país por períodos iguales o menores a ocho días.
+Considerando único:
+De conformidad con el inciso a) del artículo 51 del Reglamento de Becas y Capacitación de este Instituto, corresponde a la Junta Directiva la aprobación de licencias para realizar estudios con goce de sueldo total o parcial. Con el objeto de agilizar el trámite de aprobación de dichos permisos, se quiere autorizar a la Gerencia General a aprobar las solicitudes de permiso con goce de salario de aquellos funcionarios que deban viajar -para capacitación-, fuera del país por menos de ocho días, de tal manera que mediante resolución de la Gerencia General debidamente razonada, se proceda de conformidad. La modificación que se pretende de dicho artículo es en el sentido únicamente de aquellos casos, en que el funcionario deba viajar fuera del país para capacitación, por períodos iguales o menores a ocho días. Por tanto,
+Al tenor de las consideraciones expuestas, esta Junta Directiva Modifica el inciso a) del artículo 51 del Reglamento de Becas y Capacitación del Instituto Costarricense de Acueductos y Alcantarillados, para que en adelante se lea así: "Artículo 51. Los funcionarios, a quienes la Institución apruebe becas en el exterior, podrán disfrutar, total o parcialmente, de los siguientes beneficios en caso de que estos no sean brindados por el organismo o institución a la que se asistirá, o no haya entes que lo patrocinen, y siempre cuando se cuente con la aprobación de la Junta Directiva. Inciso a) Licencia para realizar estudios, con goce de sueldo total o parcial. Para períodos iguales o menores a ocho días, solamente requerirá aprobación de la Gerencia o Subgerencia Generales.
+Notifíquese. Acuerdo Firme.—San José, 29 de julio de 1999.—Lic. Wendy Goicuria R., Dirección de Suministros.—Ricardo Castro Mattey, Secretario.
