@@ -14,3 +14,4 @@ Reglamento de Becas Municipales a Estudiantes de Primaria y Secundaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-16 | la propia norma |
+| 2 | 2004-12-06 | Acuerdo municipal 32 (2004-12-06) |
