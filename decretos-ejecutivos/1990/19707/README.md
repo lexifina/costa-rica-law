@@ -14,3 +14,4 @@ Reforma Reglamento a Ley N° 6588 "Ley que Regula a la Refinadora Costarricense 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-06-04 | la propia norma |
+| 2 | 1990-07-04 | Decreto Ejecutivo 19839 (1990-07-04) |
