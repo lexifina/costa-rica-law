@@ -1,0 +1,1 @@
+Artículo 4°—La Comisión establecerá sus propios procedimientos y normas de operación y llevará a cabo sus funciones de acuerdo con un programa de trabajo, el cual contará con el visto bueno de las instituciones responsables de la ejecución del programa.
