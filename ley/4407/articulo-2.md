@@ -1,3 +1,2 @@
-Artículo 2º.- Los fondos que por esta ley se recauden, serán
-destinados por el Poder Ejecutivo, a construcción del edificio del
-Registro General de Prendas y mejoras del servicio.
+Artículo 2º.- Los fondos que se recauden por concepto de pago del timbre en los endosos, modificaciones y prórrogas por el total o saldo, en su caso, que se practiquen en el Registro General de Prendas, serán depositados por el Banco Central de Costa Rica directamente en la cuenta corriente que indique la Junta Administrativa del Registro Nacional, dentro de los cinco primeros días de cada mes y destinados a los fines de creación de la Junta. Para efectos de control, los timbres que se usen en estos casos llevarán un distintivo especial.
+(Así reformado por el artículo 16 de la Ley de Creación del Registro Nacional No.5695 de 28 de mayo de 1975)
