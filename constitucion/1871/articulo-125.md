@@ -1,4 +1,0 @@
-ARTICULO 125.- Corresponde al Supremo Tribunal hacer el nombramiento
-de sus respectivos Secretarios, Jueces de Primera Instancia y demás
-funcionarios que designe la ley; conocer de las renuncias de éstos y
-concederles licencias cuando las soliciten.
