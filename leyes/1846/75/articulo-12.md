@@ -1,0 +1,1 @@
+Art 12. Pagarán un seis por ciento los frutos cosechados en los otros Estados, ó provengan de sus minas como son: 1° algodón en rama: 2° hierro en barra: 3° cacao, añil. Grana y otros que se especificarán ó que consta proceder de allí y ser productos de Centro-América.

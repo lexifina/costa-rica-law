@@ -1,0 +1,1 @@
+Art 7. Es prohibida también la importación: 1° de azúcar prieta ó blanca ordinaria, chancaca, chocolate labrado, manteca, mantequilla, pita y esteras ó petates iguales á los que se fabrican en el país á no ser que sean productos de los otros Estados de Centro-América: 2° los demás artículos indicados en la tarifa.

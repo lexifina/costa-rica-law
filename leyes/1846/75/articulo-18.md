@@ -1,0 +1,1 @@
+Art 18. Se cobrará también en las aduanas, en lugar de los impuestos municipal y de peaje que anteriormente se exigían, el de tres reales por cada bulto ó tercio de dos en carga, llevándose cuenta separada de él, como correspondiente al fondo de caminos.

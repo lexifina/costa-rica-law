@@ -1,0 +1,1 @@
+Art 21. Siempre que algún objeto estuviere designado en la tarifa nominalmente, se deberá estar al aforo que tenga allí cuando aparezcan comprendidos en alguna otra expresión genérica que comprenda la tarifa.

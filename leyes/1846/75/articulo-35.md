@@ -1,0 +1,1 @@
+Art 35. En órden á las importaciones que se hagan para el consumo libre de Moin, aunque no deban pagar derechos de entrada, se les cobrará el de extracción, siguiendo el espíritu de las disposiciones que precedes, sino constare que se han hecho con el resultado de frutos exportados antes con metálico manifestado.

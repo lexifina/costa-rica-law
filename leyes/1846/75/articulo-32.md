@@ -1,0 +1,1 @@
+Art 32. Es libre de derecho la exportación de cualquiera otro fruto, ó artefacto cosechado, ó manufacturado en el Estado ó en la República; como tambien la exportación de toda clase de mercaderías extranjeras que hayan pagado los correspondientes derechos de internación cuando se despacharon.

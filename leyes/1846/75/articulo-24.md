@@ -1,0 +1,1 @@
+Art 24. Las mercaderías no comprendidas en la tarifa por su nombre ó género, serán evaluadas por los vistas, dándoles el precio de las últimas ventas por mayor que se hubieren hecho dentro de los almacenes de la aduana, ó á bordo, eximiéndose de pagar los derechos de la aduana, ó á bordo, eximiéndose de pagar los derechos el vendedor, y quedando á cargo del comprador.
