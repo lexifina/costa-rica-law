@@ -1,1 +1,0 @@
-Artículo 2°.- El pago se efectuará mediante la entrega al Tesorero General del Partido Unión Nacional de la cantidad disponible que para ese objeto tiene el Ministerio de Economía y Hacienda, de Bonos Refundición Deuda Interna , 6% 1949, de la serie D.
