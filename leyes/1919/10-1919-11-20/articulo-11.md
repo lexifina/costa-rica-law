@@ -1,0 +1,1 @@
+Artículo 11.-La Sección Administrativa de la Secretaria de Instrucción Pública hará los repartos entre todas las Juntas de Educación de la República sirviendo de base la asistencia media escolar del año anterior, y publicará, cada tres meses, en el periódico oficial, lo que a cada junta corresponde.

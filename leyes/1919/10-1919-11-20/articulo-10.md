@@ -1,0 +1,1 @@
+Artículo 10,-La Contabilidad Nacional, cada tres meses deducirá de esa renta los gastos indicados en el artículo 8°. y el excedente lo distribuirá en la proporción de tres cuartas partes para todas las Juntas de Educación y una cuarta parte para el Sanatorio Carit.
