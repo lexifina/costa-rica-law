@@ -125,3 +125,5 @@ respecto de la Junta de Administracion Portuaria y de Desarrollo Económico de l
 para el Editorial Costa Rica)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29241 de 11 de enero del 2001, para
 la Dirección de Servicios Fitosanitarios del Estado)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29303 de 12 de enero del 2001, para
+la Junta Adeministrativa de la Imprenta Nacional)
