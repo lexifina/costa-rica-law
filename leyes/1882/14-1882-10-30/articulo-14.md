@@ -1,0 +1,1 @@
+Art. 14.-En todos los campamentos habrá medicinas para las enfermedades leves, y en los casos que ocurran de gravedad, el Superintendente, o en su defecto, el Contador hará conducir al enfermo á la ciudad de Cartago, ó á la población más inmediata, á la elección del enfermo y por cuenta de la empresa.
