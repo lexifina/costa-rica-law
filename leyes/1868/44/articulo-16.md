@@ -1,0 +1,1 @@
+Art 16° Los Diputado tendrán las calidades que prescribe el artículo 74 de la Constitución de 27 de diciembre de 1859 sin que obste a su elección que tales individuos sean funcionarios públicos, pues solo se exceptúa al Presidente de la República.

@@ -1,0 +1,2 @@
+Art 15° La Provincia de San José elegirá ocho diputados propietarios y cuatro suplentes.
+La Provincia de Cartago cinco diputados propietarios y tres suplentes. La Provincia de Heredia cuatro diputados propietarios y dos suplentes: La Provincia de Alajuela cinco diputados propietarios y tres suplentes: - La Provincia de Guanacaste dos Diputados propietarios y un suplente, y la Comarca de Puntarenas un Diputado propietario y una suplente.
