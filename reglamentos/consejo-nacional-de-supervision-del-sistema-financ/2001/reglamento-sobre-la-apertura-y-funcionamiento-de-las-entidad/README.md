@@ -28,3 +28,4 @@ Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el 
 | 13 | 2003-10-07 | Reglamento 396 (2003-10-07) |
 | 14 | 2004-03-09 | Reglamento 424 (2004-03-09) |
 | 15 | 2005-01-06 | Reglamento 488 (2005-01-06) |
+| 16 | 2005-01-20 | Reglamento 492 (2005-01-20) |
