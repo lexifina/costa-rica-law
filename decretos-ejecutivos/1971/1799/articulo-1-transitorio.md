@@ -1,0 +1,2 @@
+Transitorio único.—Quedan derogados los artículos del Reglamento Interior del Servicio Postal, aprobado por acuerdo N° 31 del 8 de junio de 1921 en lo que se refiere a la categoría de correspondencia. Las nuevas, fijadas el! el artículo 2° del presente decreto serán incorporadas al Código Postal en preparación.
+Dado en la Casa Presidencial.—San José, a los veinticinco días del mes de junio de mil novecientos setenta y uno.

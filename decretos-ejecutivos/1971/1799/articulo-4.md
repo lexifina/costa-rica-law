@@ -1,0 +1,5 @@
+Artículo 4°—Para aplicación de las tarifas:
+— Se considera como carta, todo envío, cerrado o no, que tiene carácter actual y personal.
+— Se considera como impreso, la reproducción de un original que no tiene carácter actual y personal, obtenida por un procedimiento mecánico o fotográfico que requiere el uso de un clisé, de un patrón o de un negativo (fotografías, figurines, mapas geográficos, etc.). Se consideran también como impresos las invitaciones y las tarjetas de felicitación o pésame, siempre que circulen en sobre abierto y que el texto escrito no pase de cinco palabras.
+— Se consideran como papeles de negocios todos aquellos que tienen alguna relación con el comercio y que circulen bajo faja o sobre abierto (guías de ferrocarril, conocimientos de embarque, facturas, recibos, estados de cuenta, etc.).
+En cuanto al acondicionamiento, se respetaran las normas establecidas en el Convenio Postal Universal, y, en particular la que prohibe el uso de grapas para los envíos que circulan a descubierto.
