@@ -1,0 +1,3 @@
+Artículo 2°.-No obstante lo dispuesto en el artículo anterior, el Fiscal de Hacienda, quien el Administrador principal dar oportuno conocimiento de las deudas por intereses de tierras baldías que están por vencerse, está obligado bajo su más estricta responsabilidad, requerir los deudores por el periódico oficial en los diez primeros días del vencimiento del plazo, y dentro los treinta de prologa que concede el citado artículo 96; indicando el nombre y apellido de cada deudor, la cantidad que se adeuda y el día en que se cumple la indicada prórroga.
+Dado en San José, agosto diecinueve de mil ochocientos sesenta y dos.
+Poder Ejecutivo, San José octubre tres de mil ochocientos sesenta y dos.
