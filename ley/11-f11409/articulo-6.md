@@ -1,0 +1,1 @@
+Art. 6. El presente decreto no se opone ni altera en manera alguna, el expedido en primero de Setiembre del año anterior, y será puesto en conocimiento de la próxima Legislatura del Estado. –Dado en la ciudad de San José, a los 3 días del mes de Mayo de mil ochocientos cuarenta y tres. –José María Alfaro- al Ministro General del Despacho Señor Doctor José María Castro.
