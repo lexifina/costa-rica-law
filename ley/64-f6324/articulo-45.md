@@ -1,0 +1,1 @@
+Art.45.-Acordado por el Senado algún proyecto de ley, o decreto, no podrá hacerse en cualquiera de sus articulos nueva adición o declaración, sin que primero vuelva a la comisión que ha entendido en el asunto principal, y oido su informe, el Senado resuelva lo que tuviere por conveniente.

@@ -1,0 +1,1 @@
+Art..21.-Deber el Senado reunirse en sesión extraordinaria, siempre que lo exija algún asunto de urgencia, el más pronto despacho de los negocios, o sea convocado por el Ejecutivo, pudiendo en este caso ser diarias a juicio del Presidente.

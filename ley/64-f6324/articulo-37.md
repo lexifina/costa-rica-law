@@ -1,0 +1,1 @@
+Art.37.-Los individuos de las comisiones siendo Senadores y los que hubieren hecho alguna proposición, podrán pedir la palabra, y el Presidente concederla, cuidando de no molestar con repeticiones inútiles.

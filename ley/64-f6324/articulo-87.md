@@ -1,0 +1,1 @@
+Art.87.-Pero si hubiere sentencia, luego que los jueces hayan convenido en la que han de dar, abrirán el Tribunal: la publicar el Presidente, y si en ella se absolviere al acusado, será puesto inmediatamente en libertad y restituido al ejercicio de sus funciones.
