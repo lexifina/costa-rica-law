@@ -1,0 +1,1 @@
+TRANSITORIO I.- Para los efectos del artículo 2 de esta Ley, el Ministerio de Recursos Naturales, Energía y Minas deberá conformar una comisión interdisciplinaria, la cual, en un término de noventa días a partir de la publicación de la presente Ley, deberá tener elaborada la estrategia de desarrollo del área.

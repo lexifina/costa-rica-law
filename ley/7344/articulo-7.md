@@ -1,0 +1,1 @@
+ARTICULO 7.- El uso del área será permitido para fines recreativos, zona protectora, investigación científica, ecoturismo y protección del recurso de agua, siempre que tal uso sea compatible con la capacidad de soporte del área.

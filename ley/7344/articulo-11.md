@@ -1,0 +1,1 @@
+ARTICULO 11.- Por un período no mayor de tres años, el Poder Ejecutivo procurará incluir, en el Presupuesto Nacional, las partidas presupuestarias correspondientes para que la Municipalidad de Desamparados compre los respectivos terrenos y tenga recursos suficientes para llevar a cabo el programa de planificación, desarrollo y protección.

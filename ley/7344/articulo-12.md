@@ -1,0 +1,1 @@
+ARTICULO 12.- En concordancia con el artículo 4, los nombramientos del personal que se requiera para realizar la estrategia de desarrollo del área, serán efectuados por el organismo no gubernamental. No obstante, la Municipalidad de Desamparados o el Ministerio de Recursos Naturales, Energía y Minas podrán aportar personal de contraparte.
