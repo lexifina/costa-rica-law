@@ -15,3 +15,4 @@ Reglamento para la actividad de Custodia
 | --- | --- | --- |
 | 1 | 2003-01-22 | la propia norma |
 | 2 | 2003-12-16 | Reglamento 410 (2003-12-16) |
+| 3 | 2004-03-30 | Reglamento 429 (2004-03-30) |

@@ -1,3 +1,2 @@
-Transitorio I.—Cumplimiento de los requisitos de autorización y funcionamiento del custodio.
-Aquellas entidades, sean puestos de bolsa o bancos, que vayan a prestar servicios de custodia contarán con plazo hasta el 1º de abril del 2004 para cumplir con los requisitos de autorización y funcionamiento establecidos en este Reglamento.
-(REFORMADO mediante la Sesión Ordinaria N° 410, celebrada el 13 de enero de 2004, publicada en La Gaceta N° 20 de 29 de enero de 2004.)
+Transitorio I.—Cumplimiento de los requisitos de autorización y funcionamiento del custodio. Aquellas entidades, sean puestos de bolsa o bancos, que vayan a prestar servicios de custodia deberán cumplir con los requisitos de autorización y funcionamiento establecidos en este Reglamento, en un plazo máximo de un mes contado a partir de la fecha en que la Superintendencia de por concluido el proceso de traslado de los valores de la Central de Valores a la Central de Anotación en Cuenta.
+(Así reformado mediante sesiones N°s. 428 y 429, ambas de 30 de marzo de 2004).
