@@ -5,7 +5,8 @@ a) Revisada su declaración jurada municipal, se presuma que los datos consignad
 3) Análisis del comportamiento económico de la empresa durante los cinco años anteriores.
 4) Aplicación de los artículos 116, siguientes y concordantes del Código de Normas y Procedimientos Tributarios.
 b) No haya presentado la declaración jurada municipal dentro del término establecido en el artículo 5; en este caso, deberá pagar una suma extra equivalente al diez por ciento (10%) del impuesto de patentes correspondiente al año anterior.
-c) Exista duda y no se aporten los documentos que sirven de base para determinar el impuesto, la Municipalidad lo establecerá con los elementos a su alcance. Su fijación constituirá presunción que admite prueba en contrario. d) Aporte una copia alterada de la declaración que presentó a la Dirección General de Tributación.
+c) Exista duda y no se aporten los documentos que sirven de base para determinar el impuesto, la Municipalidad lo establecerá con los elementos a su alcance. Su fijación constituirá presunción que admite prueba en contrario.
+d) Aporte una copia alterada de la declaración que presentó a la Dirección General de Tributación.
 e) La Dirección General de Tributación haya recalificado los ingresos brutos declarados ante ella. En tal caso, el tributo se establecerá con base en la recalificación.
 f) Se trate de una actividad recién establecida, sujeta al procedimiento previsto en el artículo 15 de esta ley.
 g) Se trate de otros casos considerados en la presente ley.
