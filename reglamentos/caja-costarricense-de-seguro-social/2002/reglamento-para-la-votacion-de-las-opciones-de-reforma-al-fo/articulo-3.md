@@ -1,0 +1,2 @@
+Artículo 3º—El Padrón – registro. Podrán participar en las votaciones todos los trabajadores de la Institución, interinos y en propiedad. Para tales efectos el padrón definitivo se hará tomando como referencia la última planilla de salarios del mes de abril del año 2002.
+Previo a la entrega de la papeleta el elector deberá firmar el Padrón Registro, cuya firma debe ser igual a la que aparece en su cédula de identidad o el carné de servidor.

@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo general. Para efectos de este Reglamento, el objetivo es normar el proceso de votación desde la etapa de recepción hasta el escrutinio de los votos, en la consulta que realizará la Caja Costarricense de Seguro Social a sus trabajadores, para la selección de una de las dos opciones presentadas para garantizar el equilibrio financiero y actuarial del FRE.
