@@ -1,2 +1,0 @@
-Artículo 5°-En caso de que la importación de las sustancias indicadas en el artículo 1° del presente Reglamento, o del equipo destinado a la fabricación de estupefacientes y sicotrópicos, no cuente con la autorización de la Junta de Vigilancia de Drogas Estupefacientes, se ordenará su inmediato decomiso y se informará a la Junta Internacional de Fiscalización de Estupefacientes. Lo anterior sin perjuicio de las acciones legales que proceden.
-Dado en la Presidencia de la República.-San José a los veintiséis días del mes de agosto de mil novecientos ochenta y seis.
