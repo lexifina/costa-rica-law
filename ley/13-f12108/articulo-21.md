@@ -1,0 +1,1 @@
+Art. 21. -Fuera de los derechos de arancel correspondientes á'los Cartularios, cobrarán éstos bajo su responsabilidad, á razon de cincuenta centavos por plana, que ocupe en el Protocolo mayor la escritura que se extendiere, y mensualmente enterarán el producto en la Administración de rentas nacionales á las cuales pertenece.
