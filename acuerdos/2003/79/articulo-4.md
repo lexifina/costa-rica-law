@@ -1,0 +1,2 @@
+Artículo 4º—Incorporación de requerimiento de envío del reporte de operaciones múltiples.
+Se incorpora como parte de los requerimientos de información por parte de los emisores de valores, puestos de bolsa y sociedades administradores de fondos de inversión, el reporte de operaciones múltiples, el cual, debe remitirse en papel, con una periodicidad mensual, diez días hábiles después del cierre de cada mes (Anexo Nº 28).

@@ -1,0 +1,7 @@
+Artículo 5º—Aclaración de términos aplicables a las obligaciones de información de los emisores de valores.
+En el apartado de emisores de valores de los artículos 1 y 2, se modifica lo siguiente:
+i. En la columna "Tipo de información", se modifica el término "Certificación de bienes del Registro Público, en el caso de fideicomisos de garantía de emisiones" para que en adelante se lea "Certificación de bienes del Registro Público, en el caso de fideicomisos de garantía de emisiones y garantías reales".
+ii. En la columna "Tipo de Información", se modifica el término "Avalúo de bienes por parte de un perito independiente" para que en adelante se lea "Avalúo de bienes por parte de un perito independiente, en el caso de fideicomisos de garantiza de emisiones y garantías reales".
+iii. En la columna "Tipo de Información", se modifica el término "Informe de cumplimiento del fiduciario" para que en adelante se lea "Informe de cumplimiento del fiduciario, en el caso de fideicomisos de garantía de emisiones de valores".
+iv. En la columna "Tipo de Información", se sustituye el término "empresas garantes" de las emisiones" por "garantes personales", el cual a la vez se subdivide en "personas físicas" y "personas jurídicas". Se establece que en el caso de las personas físicas aplica la misma periodicidad, plazo de entrega y medio de suministro de información, que está establecido para las empresas garantes.
+En consecuencia, se corrige de conformidad el cuadro perteneciente al artículo 2º del Acuerdo SGV-A-75 del veintidós de abril del dos mil tres.
