@@ -1,3 +1,4 @@
+(Derogado)
 Que es conveniente y oportuno dictar algunas disposiciones previas a
 la vigencia del Estatuto del Servicio Civil referido en el artículo 191
 de la Constitución Política.
