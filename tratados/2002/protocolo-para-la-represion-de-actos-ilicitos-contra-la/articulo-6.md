@@ -1,0 +1,3 @@
+ARTÍCULO 6
+1. El presente Protocolo entrará en vigor noventa días después de la fecha en que tres Estados lo hayan firmado sin reserva en cuanto a ratificación, aceptación o aprobación o hayan depositado un instrumento de ratificación, aceptación, aprobación o adhesión en relación con éste. No obstante, el presente Protocolo no entrará en vigor antes de la entrada en vigor del Convenio.
+2. Para un Estado que deposite un instrumento de ratificación, aceptación, aprobación o adhesión respecto del presente Protocolo una vez satisfechas las condiciones para la entrada en vigor de éste, la ratificación, aceptación, aprobación o adhesión surtirá efecto noventa días después de la fecha en que se haya efectuado tal depósito.
