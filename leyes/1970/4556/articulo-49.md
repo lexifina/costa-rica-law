@@ -1,4 +1,1 @@
-Artículo 49.- Se aplicarán a los empleados de confianza, las
-disposiciones de la presente ley, relativas al régimen de salarios; la
-calificación de los servicios para estos efectos, será hecha, en su caso,
-por el Presidente de la Asamblea o por el Jefe de la Fracción respectiva.
+Artículo 49.- Se aplicarán a los empleados de confianza, las disposiciones de la presente ley, relativas al régimen de salarios; la calificación de los servicios para estos efectos, será hecha, en su caso, por el Presidente de la Asamblea o por el Jefe de la Fracción respectiva.
