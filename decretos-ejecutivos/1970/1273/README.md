@@ -16,3 +16,4 @@ Crea Consejo Agropecuario Nacional (CAN)
 | 1 | 1970-10-08 | la propia norma |
 | 2 | 1971-01-21 | Decreto Ejecutivo 1448 (1971-01-21) |
 | 3 | 1971-04-23 | Decreto Ejecutivo 1677 (1971-04-23) |
+| 4 | 1971-09-29 | Decreto Ejecutivo 1988 (1971-09-29) |
