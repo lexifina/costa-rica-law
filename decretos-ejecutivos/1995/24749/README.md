@@ -14,3 +14,4 @@ Deroga anterior Programa de Formación Integral para Mujeres Jefas de Hogar "ASI
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-11-13 | la propia norma |
+| 2 | 1999-01-21 | Decreto Ejecutivo 27623 (1999-01-21) |
