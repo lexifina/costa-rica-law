@@ -1,0 +1,1 @@
+Artículo 2°—Se autoriza la realización de los ajustes presupuestarios correspondientes, para que el personal que actualmente labora en la Presidencia de la República en funciones de seguridad, se traslade su puesto al Programa Presupuestario de la Guardia Civil, con todos sus derechos adquiridos.
