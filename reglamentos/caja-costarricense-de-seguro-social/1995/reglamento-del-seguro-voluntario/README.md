@@ -14,3 +14,4 @@ Reglamento del Seguro Voluntario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-01-15 | la propia norma |
+| 2 | 2002-12-10 | Reglamento 7712 (2002-12-10) |
