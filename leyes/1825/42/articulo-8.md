@@ -1,0 +1,1 @@
+Art°. 8°. Solo el que tenga en los Potreros de sesenta Reses arriba podrá tener en ellos vivienda y solo el que tenga esta podrá tener uno pequeño que no exceda de doscientas varas de largo y ciento de ancho sin prejuicio de los que actualmente la tienen pagando cuatro reales anuales.

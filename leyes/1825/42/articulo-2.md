@@ -1,0 +1,1 @@
+Art°. 2°. Esta indemnización se hará dando en absoluta propiedad á cada uno tantas manzanas de tierra cuántos pesos constare dio para la compra y medida de ellas, sin prejuicio de la población ni los tejares.
