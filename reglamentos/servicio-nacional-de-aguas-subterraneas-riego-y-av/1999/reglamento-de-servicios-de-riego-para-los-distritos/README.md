@@ -14,3 +14,4 @@ Reglamento de Servicios de Riego para los Distritos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-30 | la propia norma |
+| 2 | 2004-08-17 | Reglamento 460 (2004-08-17) |
