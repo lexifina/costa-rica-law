@@ -1,2 +1,2 @@
-ARTICULO 10.-
+ARTICULO 3º.- Vigencia.
 Rige a partir de su publicación.
