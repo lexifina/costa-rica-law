@@ -1,0 +1,1 @@
+Artículo 8.- Se modifica el párrafo sétimo del inciso d) del artículo 8 de la Ley del impuesto sobre la renta, modificado por la ley de Justicia Tributaria, para que donde dice: "párrafo anterior", se lea: "párrafo trasanterior".

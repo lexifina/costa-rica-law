@@ -1,0 +1,1 @@
+Artículo 4.- Se exonera a la Cruz Roja Costarricense de todo tipo de impuestos, tasas, sobretasas y derechos arancelarios, sobre la adquisición y la enajenación de vehículos, equipo, materiales, medicamentos, combustibles, lubricantes, inmuebles y servicios necesarios para el cumplimiento de sus funciones.
