@@ -1,3 +1,5 @@
+(Derogado)
+DEROGADO TÁCITAMENTE por el SGV-76, de 19 de mayo de 2003, publicado en La Gaceta N° 203 de 22 de octubre de 2003.
 SGV-A-57—Ajuste al capital social suscrito y pagado de las Bolsas de Valores, Los Puestos de Bolsa y las Sociedades Administradoras de Fondos de Inversión y al Activo Neto Mínimo y monto mínimo de participación de los Fondos de Inversión. 1
 Considerando
 I.---Que la Ley Reguladora del Mercado de Valores estableció requisitos de capital mínimo para las bolsas de valores, los puestos de bolsa y las sociedades administradoras de fondos de inversión, como uno de los mecanismos para asegurar la solvencia de los sujetos fiscalizados, y previo mecanismos para su actualización a efecto de que no perdiera su valor en el tiempo,

@@ -14,3 +14,4 @@ Ajuste al Capital Social suscrito y pagado de las Bolsas de Valores, los Puestos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-30 | la propia norma |
+| 2 | 2003-06-30 | Acuerdo 76 (2003-05-19) |
