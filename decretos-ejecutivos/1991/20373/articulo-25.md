@@ -1,0 +1,5 @@
+ARTICULO 25.- Los empresarios serán responsables de la ejecución de
+estas disposiciones, para lo cual, deberán instruir debidamente a los
+encargados del establecimiento y a los porteros, a fin de que los
+funcionarios antes citados no sufran molestias, siempre que muestren la
+referida tarjeta de identificación suscrita por el Ministro del ramo.
