@@ -1,0 +1,2 @@
+Artículo 4°-El Consejo Nacional de Producción podrá garantizar a los bancos comerciales, los créditos de emergencia que éstos otorguen a los cafetaleros de las zonas afectadas por la ceniza volcánica y las plagas, de conformidad con el reglamento bancario para atención de cafetales de zonas afectadas.
+En el Presupuesto General de la República, el Gobierno incluirá una partida para compensar al Consejo Nacional de Producción el perjuicio económico que ese organismo pueda derivar de la aplicación de la presente ley.
