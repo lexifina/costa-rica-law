@@ -1,0 +1,1 @@
+Artículo 8º—La CONATIC presentará al Presidente de la República, por medio del Ministro de Ciencia y Tecnología, un plan de acción con las prioridades y actividades a desarrollar. También deberá presentar al Presidente de la República informes de labores al menos cada seis meses o cuando el señor Presidente de la República lo solicite.

@@ -1,0 +1,1 @@
+Artículo 10.—En lo no previsto en este decreto se aplicará lo dispuesto en los artículos 49 y siguientes de la Ley General de la Administración Pública en materia de órganos colegiados.
