@@ -14,3 +14,4 @@ Reglamento de Asignaciones para Diferencias de Caja JPS
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-28 | la propia norma |
+| 2 | 2000-08-22 | Reglamento 0 (2000-08-22) |
