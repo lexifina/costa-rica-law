@@ -14,3 +14,4 @@ Reforma Existencia Oficial de Grupos Étnicos Indígenas en Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-10-08 | la propia norma |
+| 2 | 1991-08-05 | Decreto Ejecutivo 20645 (1991-08-05) |

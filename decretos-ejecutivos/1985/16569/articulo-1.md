@@ -9,28 +9,30 @@ Considerando:
 Por tanto,
 DECRETAN:
 Artículo 1°—Modifíquese el artículo 6° del decreto N° 13573-G-C, publicado en "La Gaceta" N° 94 del lunes 17 de mayo de 1982, para que en adelante se lea así:
-"Artículo 6°—La lista oficial de las comunidades y reservas indígenas de Costa Rica es la siguiente:
-Grupos étnicos | Reservas indígenas
-(Etnias) | (comunidades indígenas)
-1. BRIBRI ... ... ... ... . | 1. Salitre
-| 2. Cabagra
-| 3. Bribrí de Talamanca
-| 4. Cocles
-2. CABECAR ... ... ... | 1. Chirripó
-| 2. Bajo Chirripó
-| 3. Tayni
-| 4. Telire
-| 5. Cabécar de Talamanca
-| 6. Ujarrás
-3. GUAYMI ... ... ... ... | 1. Guaymi de Coto Brus
-| 2. Abrojo de Montezuma
-| 3. Conteburica
-| 4. Guaymi de Osa
-4. BRUNKA ... ... ... ... ... | 1. Boruca
-| 2. Curré
-5. TERRABA ... ... ... ... | 1. Torraba
-6. HUETAR (Pacacua) | 1. Quitirrisi
-| 2. Zapatón
-7. MALEKU (Guatuso) ... ... | 1. Guatuso
-8. CHOROTEGA ............ | 1. Matambú
-Por tanto, se reconocen así oficialmente 21 reservas indígenas y 21 comunidades indígenas".
+"Artículo 6°.-La lista oficial de las Comunidades Indígenas de Costa rica es la siguiente:
+GRUPOS ETNICOS (ETNIAS) | RESERVAS INDIGENAS (COMUNIDADES INDIGENAS)
+A-Bribrí | 1.-Salitre
+| 2.-Cabagra
+| 3.-Bribrí de Talamanca
+| 4.-Kekoldi (Cocles)
+B-Cabecar | 1.-Chirripó (Duchii)
+| 2.-Bajo Chirripó (Duchii-ñac)
+| 3.-Nairi-Awari
+| 4.-Tayni
+| 5.-Telire
+| 6.-Cabecar de Talamanca
+| 7.-Ujarrás
+C-Guaymí | 1.-Guaymí de Coto Brus
+| 2.-Abrojo de Montezuma
+| 3.-Conteburica
+| 4.-Guaymí de Osa
+GRUPOS ETNICOS (ETNIAS) | RESERVAS INDIGENAS (COMUNIDADES INDIGENAS)
+Ch- Brunca | 1.-Boruca
+| 2.-Curré (Rey Curré)
+D- Térraba | 1.-Térraba
+E- Huetar (Pacacua) | 1.-Quitirrisí
+| 2.-Zapatón
+F- Maleku (Guatuso) | 1.-Guatuso
+G- Chorotega | 1.-Matambú
+Por lo tanto se reconocen así oficialmente 8 grupos étnicos y 22 Reservas Indígenas (22 Comunidades Indígenas).
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 20645 del 5 de agosto de 1991).
