@@ -76,10 +76,10 @@ Instituto Costarricense de Electricidad:
 a) Para traspasar a la Municipalidad de Paraíso los terrenos ubicados
 frente a las casas de los operadores de la Planta de Cachí, para ser
 utilizados en un plan de vivienda popular.
-b) Para que al igual que el ICE, el Instituto Costarricense de Acueductos
-y alcantarillados y la Compañía Nacional de Fuerza y Luz, S. A., conjunta o
-individualmente, coordinen con las municipalidades la forma de cobrar los
-servicios de todas esas instituciones en un único recibo, con el fin de
-disminuir los costos de operación y la morosidad en los pagos. Dichas
-instituciones convendrán en un porcentaje no mayor del dos por ciento por
-concepto de gastos de administración.
+b) Para que al igual que el ICE, el Instituto Costarricense de
+Acueductos y alcantarillados y la Compañía Nacional de Fuerza y Luz, S.
+A., conjunta o individualmente, coordinen con las municipalidades la
+forma de cobrar los servicios de todas esas instituciones en un único
+recibo, con el fin de disminuir los costos de operación y la morosidad en
+los pagos. Dichas instituciones convendrán en un porcentaje no mayor del
+dos por ciento por concepto de gastos de administración.
