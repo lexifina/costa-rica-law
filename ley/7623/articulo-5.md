@@ -1,4 +1,5 @@
-Artículo 5.- Creación de la Comisión Nacional para la Defensa del Idioma. Para proteger el idioma español, créase la Comisión Nacional para la Defensa del Idioma, como órgano de desconcentración máxima, adscrito al Ministerio de Cultura, Juventud y Deportes. Estará integrada por un representante de cada una de las siguientes instituciones:
+Artículo 5.- Creación de la Comisión Nacional para la Defensa del Idioma. Para proteger el idioma español, créase la Comisión Nacional para la
+Defensa del Idioma, como órgano de desconcentración máxima, adscrito al Ministerio de Cultura, Juventud y Deportes. Estará integrada por un representante de cada una de las siguientes instituciones:
 a) Ministerio de Educación Pública.
 b) Ministerio de Cultura, Juventud y Deportes.
 c) Academia Costarricense de la Lengua.
