@@ -1,0 +1,1 @@
+Artículo 8º—Una vez firmado, el contrato, el servidor no podrá ejercer la profesión comprometida con dicha exclusividad, ni actividades relacionadas con ésta o con su cargo, si no es con la institución con quien firmó el contrato.
