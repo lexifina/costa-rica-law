@@ -1,6 +1,7 @@
 Artículo 26.- Corresponde al Tesorero:
-a) Custodiar, bajo su responsabilidad, en una cuenta bancaria los fondos
-del Colegio y racaudar las contribuciones que deben pagar sus miembros;
+a) Custodiar, bajo su responsabilidad, en una cuenta bancaria los
+fondos del Colegio y racaudar las contribuciones que deben pagar sus
+miembros;
 b) Organizar, controlar y promover la recaudación de fondos;
 c) Recibir y custodiar bajo inventario riguroso todos los bienes del
 Colegio;
