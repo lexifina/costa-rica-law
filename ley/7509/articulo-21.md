@@ -1,3 +1,5 @@
-ARTICULO 21.- Porcentaje del impuesto. Cada municipalidad definirá el porcentaje que regirá para el año siguiente a su decisión. Ese porcentaje será único y general por cantón y año y podrá oscilar entre el cero coma treinta por ciento (0,30%) y el uno por ciento (1,00%).
-Cualquier modificación del porcentaje imponible requerirá la consulta popular, pero esta no será vinculante. Se convocará por medio del Diario Oficial, la gaceta municipal, cuando exista, y la divulgación necesaria.
-Se indicará el lugar, la fecha y la hora para conocer las modificaciones propuestas y las observaciones, verbales o escritas, que formulen los vecinos o los interesados. La convocatoria deberá realizarse con una antelación de 15 días hábiles, por lo menos.
+CAPÍTULO VII
+(Así modificada tácitamente la numeración de este Capítulo por el artículo 2, inciso c), de la ley No.7729 de 15 de diciembre de 1997, que lo trasladó del VI al VII)
+Impuesto, fecha y lugares de pago
+ARTÍCULO 21.- Vigencia de modificación de valor. Una vez firme en vía administrativa, toda modificación de valor se tomará en cuenta para fijar el impuesto, a partir del primer día del año siguiente a aquel en que sea notificada.
+(Así modificada su numeración por el artículo 2, inciso c), de la ley No.7729 de 15 de diciembre de 1997, que lo trasladó del 19 al 21)

@@ -1,3 +1,2 @@
-CAPITULO VII
-Disposiciones generales
-ARTICULO 25.- Lista de morosos. El valor de las propiedades es público. Cada municipalidad podrá publicar, trimestralmente, la lista de los contribuyentes que se encuentren en mora.
+ARTÍCULO 25.- Pago adelantado del impuesto. La municipalidad, podrá crear incentivos para el pago adelantado del impuesto al que se refiere esta Ley, hasta en un porcentaje equivalente a la tasa básica pasiva del Banco Central en el momento de pago.
+(Así modificada su numeración por el artículo 2, inciso c), de la ley No.7729 de 15 de diciembre de 1997, que lo trasladó del 23 al 25)

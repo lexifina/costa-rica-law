@@ -1,2 +1,6 @@
-ARTICULO 27.- Inscripción de bienes inmuebles. El Registro Público de la propiedad inmueble no inscribirá documento alguno sobre bienes inmuebles, si en él no consta que el sujeto pasivo está al día en el pago del impuesto territorial. Para tal efecto, cada municipalidad extenderá constancias o las emitirá una oficina establecida conjuntamente por ella.
-Todo notario que autorice una escritura pública sobre bienes inmuebles, inscritos o sin inscribir en el Registro Público, o certifique la fecha cierta del documento privado donde se traspase un inmueble, deberá presentar, a la municipalidad correspondiente, o enviar por correo certificado una copia certificada del testimonio respectivo, a más tardar dentro del mes siguiente a su otorgamiento. Para este fin, la copia certificada está exenta del pago de timbres u otros cargos fiscales. La omisión de este requisito dará lugar a queja ante la Corte Suprema de Justicia.
+CAPÍTULO VIII
+(Así modificada tácitamente la numeración de este Capítulo por el artículo 2, inciso c), de la ley No.7729 de 15 de diciembre de 1997, que lo trasladó del VII al VIII)
+Disposiciones generales
+ARTÍCULO 27.- Lista de morosos. El valor de las propiedades es público. Cada municipalidad podrá publicar, trimestralmente, la lista de los contribuyentes que se encuentren en mora.
+(Así modificada su numeración por el artículo 2, inciso c), de la ley No.7729 del 15 de diciembre de 1997, que lo trasladó del 25 al 27)
+(NOTA: La derogatoria que indica el artículo 190, inciso d), del Código de Notariado, se refiere en realidad al 29, según la variación indicada)

@@ -1,1 +1,2 @@
-ARTICULO 26.- Deudas por impuesto territorial. Las deudas por concepto de impuesto territorial constituyen hipoteca legal preferente sobre los respectivos inmuebles, de conformidad con el artículo 83 del Código Municipal.
+ARTÍCULO 26.- Recaudo del impuesto. Este impuesto podrá pagarse en cualquier ente, público o privado, autorizado por la municipalidad o en la tesorería de la respectiva municipalidad, la cual podrá contratar los servicios de recaudación con las entidades mencionadas.
+(Así modificada su numeración por el artículo 2, inciso c), de la ley No.7729 de 15 de diciembre de 1997, que lo trasladó del 24 al 26)

@@ -1,4 +1,2 @@
-ARTICULO 13.- Causas de modificación del valor registrado. También se modifica el valor registrado de los bienes inmuebles, mediante peritazgo, de oficio o a solicitud del interesado, cuando ocurran uno o ambos de los siguientes supuestos:
-a) La construcción de autopistas, carreteras, caminos vecinales u obras públicas y las mejoras sustanciales que redunden en beneficio de los inmuebles.
-b) El perjuicio que sufra un inmueble por causas ajenas a la voluntad de su titular.
-En los dos casos, la modificación deberá notificarse al interesado, de conformidad con el artículo 14 de esta Ley.
+ARTÍCULO 13.- Asignación y utilización de recursos. El Ministerio de Hacienda tomará las previsiones presupuestarias para el desarrollo adecuado del Órgano de Normalización Técnica Municipal. A fin de cumplir sus objetivos, contará también con el uno por ciento (1%) de lo que cada municipalidad recaude por el impuesto sobre bienes inmuebles. Este fondo podrá ser utilizado únicamente para los fines específicos de esta Ley. La Contraloría General de la República fiscalizará el uso y destino de dichos recursos y rendirá cuentas anualmente a las Municipalidades.
+(Así adicionado por el artículo 2º, inciso c), de la ley No.7729 de 15 de diciembre de 1997. El antiguo numeral 13 es ahora 15)
