@@ -1,0 +1,1 @@
+Art. 3. Si alguna de las bestias resultare inútil ó perdida, será indemnizada por el erario nacional previa justificacion y valúo.- Dado en la ciudad de San José à los treinta dias del mes de octubre de mil ochocientos cuarenta y nueve.- José María Castro,- El Ministro accidental de Hacienda y guerra, Juan de Dios Zéspedes."
