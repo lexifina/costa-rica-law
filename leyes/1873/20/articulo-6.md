@@ -1,0 +1,1 @@
+Artículo 6°. -El cargo de Jurado es obligatorio; pero pueden excusarse los mayores de sesenta años, los habitualmente enfermos de enfermedad que les impida trasladarse de un lugar a otro, u ocuparse mentalmente, y los que actualmente desempeñen algún cargo concejal de ocupaciones diarias.

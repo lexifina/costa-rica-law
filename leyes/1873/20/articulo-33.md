@@ -1,0 +1,1 @@
+ARTICULO 33.-Introducido el proceso en el Tribunal y compareciendo las partes dentro del término del emplazamiento, se señalar día para la vista. En ella, después de leído el proceso, se oir n los alegatos verbales de las partes, si se presentasen, y se fallar en seguida sin otro tr mite, lo que proceda en derecho.

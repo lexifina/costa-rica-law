@@ -1,0 +1,2 @@
+Artículo 45°. -Esta ley comenzar a regir el 1° de Agosto próximo, debiendo, en consecuencia, convocarse extraordinariamente las Asambleas Electorales, a fin de que se proceda a la elección de Jurados, que durarán hasta el treinta y uno de diciembre de este año.
+Poder Ejecutivo, dado en el Salón de Sesiones, Palacio Nacional, San José, a diez de julio de mil ochocientos setenta y tres. Palacio Nacional, San José a diez de julio de mil ochocientos setenta y tres.

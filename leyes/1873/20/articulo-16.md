@@ -1,0 +1,1 @@
+Artículo 16.-Cuando se trate de dos o más delitos, conexos, complejos e independientes, cada delito tendrá precisamente su respectiva serie de cuestiones; y cuando sean dos o mas los reos, cada uno tendrá su serie peculiar.

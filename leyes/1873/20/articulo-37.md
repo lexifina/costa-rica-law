@@ -1,0 +1,4 @@
+CAPITULO V.
+De los procedimientos contra reos ausentes.
+ARTICULO 37.-Si iniciada la instrucción, el reo o reos presuntos no pudiesen ser habidos, se les citar por medio de edictos con un término que no baje de diez días ni exceda de veinte, contados de la publicación en un periódico oficial, sin perjuicio de los edictos en el domicilio del inculpado si fuese conocido, y en el de la residencia del Juez.
+No compareciendo se les nombrar un defensor, y continuar la causa hasta su fenecimiento. Si se presentase el reo o fuese capturado antes de pronunciar el Jurado el veredicto, se le oír y se recibir n las pruebas que presente en juicio de instrucción, asignándole un término que no exceda de ocho días. Si se presentase o fuese capturado, después de pronunciada la sentencia, y se conformase con ella, se ejecutar en el acto; pero si pidiese ser oído, se organizar de nuevo el Jurado, ante quien presentar las pruebas que tenga por conveniente, el día de la audiencia.

@@ -1,0 +1,1 @@
+ARTICULO 29.-Inmediatamente que el Juez haya recibido la causa, proceder a imponer la pena con arreglo a las leyes, a mar tardar dentro de veinticuatro horas, debiendo imponer la de pagar las costas, siempre que el reo tenga bienes en cantidad de mas de mil pesos.

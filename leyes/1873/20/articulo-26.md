@@ -1,0 +1,1 @@
+ARTICULO 26.-Los Jurados al emitir sus votos, no atenderán más que al dictamen de su conciencia, y concretándose a los puntos de hecho sometidos, sin mezclarse en cuestión alguna de derecho. No son responsable por los votos emitidos.

@@ -1,0 +1,1 @@
+Artículo 19.-Al examinar los testigos, podrán la partes repreguntarlos como lo crean conveniente a sus derechos, y los Jurados podrán igualmente hacerles las preguntas que estimen conducentes para formar conciencia acerca de los hechos.
