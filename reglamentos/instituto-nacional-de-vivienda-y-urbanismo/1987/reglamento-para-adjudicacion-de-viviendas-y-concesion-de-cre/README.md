@@ -15,3 +15,4 @@ Reglamento para Adjudicación de Viviendas y Concesión de Créditos Destinados 
 | --- | --- | --- |
 | 1 | 1987-05-11 | la propia norma |
 | 2 | 1987-06-08 | Reglamento 3831 (1987-06-08) |
+| 3 | 1988-02-10 | Reglamento 53 (1988-02-10) |
