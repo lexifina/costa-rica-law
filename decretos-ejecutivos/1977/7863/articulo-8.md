@@ -1,0 +1,2 @@
+Artículo 8°—Las sesiones extraordinarias serán convocadas por el Presidente del Consejo o por dos de sus miembros. La convocatoria deberá hacerse con un mínimo de 24 horas de anticipación y en ella se señalará el objeto de la sesión. Deberá notificarse personalmente o en la casa de habitación del funcionario.
+En las sesiones extraordinarias sólo podrán conocerse los asuntos a que se refirió la convocatoria.

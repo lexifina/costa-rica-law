@@ -1,0 +1,1 @@
+Artículo 7°—Los miembros del Consejo Directivo .devengarán dietas no mayores de ¢400.00 por sesión. Celebrarán una sesión ordinaria quincenal y las extraordinarias que acuerden, pero no se remunerará en total más de cinco sesiones por mes.

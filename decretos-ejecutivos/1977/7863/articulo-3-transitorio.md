@@ -1,0 +1,1 @@
+Transitorio 3°—Hasta tanto el IFAM no haga traspaso formal al PIMA de los derechos y obligaciones derivados del contrato IFAM-BCIE F.O. 518 citado, el PIMA no podrá enajenar los bienes muebles o inmuebles que se hayan adquiridos con recursos del préstamo, salvo autorización escrita del IFAM.
