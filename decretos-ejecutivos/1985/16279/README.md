@@ -15,3 +15,4 @@ Autoriza al Servicio Nacional de Electricidad para realizar la correspondiente f
 | --- | --- | --- |
 | 1 | 1985-05-29 | la propia norma |
 | 2 | 1985-05-29 | SINALEVI (sin norma nombrada) |
+| 3 | 1989-03-27 | Decreto Ejecutivo 18922 (1989-03-27) |
