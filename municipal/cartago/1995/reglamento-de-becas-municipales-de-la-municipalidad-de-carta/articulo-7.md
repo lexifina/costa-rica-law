@@ -1,0 +1,1 @@
+Artículo 7°-El Ejecutivo Municipal deberá incluir en el Presupuesto anual la recomendación que realizará la Comisión de Educación, Cultura y Deportes previa aprobación del Concejo Municipal la suma necesaria para dar cumplimiento al programa de becas municipales.

@@ -1,0 +1,1 @@
+Artículo 10.-Todo estudiante que desea optar al beneficio de una beca debe tener un promedio general anual de 70 puntos del año cursado como nota mínima por asignatura y no haber reprobado ninguna asignatura en el tercer (III) Trimestre.
