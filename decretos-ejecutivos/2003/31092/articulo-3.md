@@ -1,11 +1,13 @@
 CAPÍTULO II
 De las inversiones financieras
 Artículo 3°—Las inversiones financieras se regirán por las siguientes disposiciones:
-a) Las nuevas adquisiciones de activos financieros a plazo en moneda nacional o extranjera, o la renovación de este tipo de operaciones, con excepción de lo que establece el inciso f), g) y h) de este mismo artículo, se harán únicamente en títulos de deuda interna del Gobierno, que ofrecerán el Ministerio de Hacienda (MH) y el Banco Central (BCCR), según el siguiente detalle:
-Plazo en moneda nacional Tipo de título
-Menos de 30 días del BCCR
-De 30 a menos de 365 días Cero Cupón del MH
-Mayores a un año plazo Tudes del MH
+a) Las nuevas adquisiciones de activos financieros a plazo en moneda nacional o extranjera, o la renovación de este tipo de operaciones, con excepción de lo que establece el inciso f), g), y h), de este mismo artículo, se harán únicamente en títulos de deuda interna del Gobierno, que ofrecerán el Ministerio de Hacienda (MH) y el Banco Central (BCCR), según el siguiente detalle:
+Plazo en moneda nacional | tipo de título
+Menos de 30 días | del BCCR
+De 30 a menos de 365 días | cero cupón o TUDES del
+| MH
+Mayores de un año plazo | TUDES del MH
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 31872 del 6 de mayo del 2004.)
 Lo anterior, según las condiciones de rendimiento que defina el MH y el BCCR según corresponda.
 Cuando sea estrictamente necesario para una entidad adquirir títulos en moneda extranjera, la institución coordinará su adquisición con la Tesorería Nacional. Asimismo, las operaciones a menos de 30 días sólo se realizarán cuando también sea estrictamente necesario.
 b) Las inversiones de los entes y órganos públicos en valores emitidos por el Estado, deberán realizarse mediante compra directa en el Banco Central de Costa Rica, Ministerio de Hacienda o directamente en las ventanillas autorizadas para estos efectos, sin costo alguno de comisión, intermediación, descuento o premio.
