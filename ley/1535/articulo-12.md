@@ -1,1 +1,1 @@
-Artículo 12.- Una vez que el Tribunal resuelva, se hará o no la rectificación, según se hubiere ordenado, haciéndose constar en el asiento, que se practica en virtud de la resolución.
+Artículo 12.- (Derogado por el artículo 2° de la ley N° 2926 del 28 de noviembre de 1961)
