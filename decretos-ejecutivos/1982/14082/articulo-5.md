@@ -237,6 +237,7 @@ Vacunas…………………………………………… | 541-02-00
 f) Mercancías varias
 Mercancías | Partida NAUCA
 Cemento de toda clase, incluyendo el puzzolánico……………………………………….. | 661
+Cajas mortuarias: a) De fibra........................................................... b) De madera....................................................... c) De metal........................................................ (Así adicionada la mercancía "cajas mortuarias", anterior por el artículo 1° del decreto ejecutivo N° 19715 del 30 de abril de 1990) | 39.07 80 99 44.27 73.40 80 00
 Cuadernos para escolares, de toda clase……. | 642-03-00
 Cuadros y pinturas hechas a mano, producidas en el país …………………………… | 899-21-03 (Así corregida la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
 Libros, y folletos impresos incluso los atlas, con cualquier encuadernación……………….. (Así corregida la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 892-01-01
