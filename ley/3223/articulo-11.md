@@ -1,0 +1,1 @@
+Artículo 11.- Los sueldos de los empleados actuales serán reajustados a la Escala de esta ley, tomando en cuenta los ascensos anuales y los ascensos por antigüedad. Los empleados que estén devengando sueldos mayores a los máximos de la Escala, no recibirán aumentos hasta tanto no haya derecho a ellos por razones de antigüedad o encarecimiento del costo de la vida.
