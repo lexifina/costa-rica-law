@@ -16,3 +16,4 @@ Reglamento para el otorgamiento de crédito a grupos de interés económico
 | 1 | 1996-08-05 | la propia norma |
 | 2 | 2000-02-29 | Reglamento 142 (2000-02-29) |
 | 3 | 2002-07-09 | Reglamento 311 (2002-07-09) |
+| 4 | 2002-08-05 | Reglamento 317 (2002-08-05) |
