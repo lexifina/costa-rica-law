@@ -20,3 +20,4 @@ Reglamento a la Ley Forestal
 | 5 | 2002-08-23 | Decreto Ejecutivo 30762 (2002-08-23) |
 | 6 | 2003-03-17 | Decreto Ejecutivo 31081 (2003-03-17) |
 | 7 | 2004-01-26 | Decreto Ejecutivo 31633 (2004-01-26) |
+| 8 | 2004-04-22 | Decreto Ejecutivo 31750 (2004-04-22) |
