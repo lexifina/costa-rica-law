@@ -1,0 +1,1 @@
+Artículo 6°—El Consejo Directivo sesionará dos veces al mes y podrá celebrar sesiones extraordinarias. Será presidido por el Decano del Colegio quien, en caso de empate, gozará de doble voto en la segunda votación. El quórum se conformará con la mitad más uno de los miembros del Consejo.

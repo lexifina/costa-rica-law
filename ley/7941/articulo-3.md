@@ -1,0 +1,1 @@
+Artículo 3°—El Colegio contará con una estructura administrativa mínima, compuesta por un Consejo Directivo y un Decano; a este último le corresponderá representar judicial y extrajudicialmente al Colegio.
