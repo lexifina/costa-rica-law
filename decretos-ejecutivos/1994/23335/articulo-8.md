@@ -1,0 +1,1 @@
+Artículo 8°—La Comisión establecerá sus propios procedimientos y normas de trabajo, de conformidad con lo establecido en la Ley General de Administración Pública.

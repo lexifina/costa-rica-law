@@ -1,0 +1,1 @@
+Artículo 6°—A las sesiones de la Comisión podrán ser convocados representantes de otras instituciones públicas o privadas y en general todas aquellas personas a quienes se estime conveniente. Esta convocatoria podrá ser realizada por su presidente o bien por decisión de la Comisión.
