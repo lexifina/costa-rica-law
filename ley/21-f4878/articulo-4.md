@@ -1,0 +1,1 @@
+Art 4° De las resoluciones o providencias de los Caciques Jefes Políticos, se puede reclamar al Gobernador de Cartago, y de las de este al Presidente de la República, quienes en su caso han de confirmar, reformar o revocar tales resoluciones o providencias conforme a los principios de justicia y previos los convenientes informes.
