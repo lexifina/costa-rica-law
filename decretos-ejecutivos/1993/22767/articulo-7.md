@@ -1,0 +1,1 @@
+Artículo 7: Perderá su calidad de miembro del Consejo quien dejare de asistir sin justa causa a tres sesiones consecutivas o a seis no consecutivas de un período de seis meses. El Consejo sancionará ordinariamente dos veces al mes y extraordinariamente cuando se necesario.

@@ -1,0 +1,1 @@
+Artículo 5: La Compañía Nacional de Teatro estará regida por un Consejo Directivo compuesto por el Ministro de Cultura, Juventud y Deportes o su representante y cuatro miembros de libre nombramiento del Ministro, que durarán en sus cargos dos años y podrán se reelectos. Los nombramiento que realicen para cubrir vacantes lo serán por el resto del período.
