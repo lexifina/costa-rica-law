@@ -1,1 +1,2 @@
-Artículo 15.- El contrato de aprendizaje se considerará para todos sus efectos legales, como contrato de trabajo a plazo fijo. La forma del salario será por unidad de tiempo.
+Artículo 15.- El Contrato de aprendizaje se considerará, para todos su efectos legales y en lo que no contravenga la formación profesional, como contrato de trabajo a plazo fijo. No obstante lo dispuesto en el párrafo anterior, cuando el aprendiz se incorpore, dentro de los tres meses siguientes de haber finalizado su aprendizaje, como trabajador permanente en la empresa donde ha servido en las etapas productivas, el tiempo laborado se acumulará en la antigüedad de su contrato individual a tiempo indefinido.
+(Así reformado por el artículo 1° de la ley N° 5833 del 30 de octubre de 1975)

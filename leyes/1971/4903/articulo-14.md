@@ -1,3 +1,3 @@
-Artículo 14.-Para efectos de la fijación de la tasa de remuneración del aprendiz, el Instituto Nacional de Aprendizaje dividirá en tres períodos la duración total de los diversos cursos, debiendo pagarse al aprendiz el 50% del salario mínimo para la ocupación objeto del aprendizaje, durante el primer período, el 75% para el segundo y el 100% durante el último.
-El Salario mínimo a que se refiere este artículo será fijado por el Consejo Nacional de Salarios.
-(Así reformado por el artículo 1º de la ley Nº 5427 del 30 de noviembre de 1973)
+Artículo 14.- La empresa pagará al aprendiz, en todas las etapas productivas, un salario en la siguiente forma: durante la primera, segunda y tercera etapa, el equivalente al 50%, al 75% y al 100%, respectivamente, del salario mínimo que corresponda a la ocupación o especialidad igual al monto de los salarios pagados a los aprendices, en la primera etapa productiva y una suma equivalente a la tercera parte de los salarios pagados en la segunda etapa, para el fondo de becas de los aprendices.
+Se autoriza al INA para que, cuando el caso lo amerite, se le otorgue un subsidio al aprendiz en la primera y segunda etapa, el cual podrá ser tomado del fondo de becas a que se refiere este artículo.
+(Así reformado por el artículo 1° de la ley N° 5833 del 30 de octubre de 1975)
