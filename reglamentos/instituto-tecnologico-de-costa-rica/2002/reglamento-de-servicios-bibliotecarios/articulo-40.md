@@ -1,0 +1,1 @@
+Artículo 40.—El monto a pagar por el préstamo a que se refiere los artículo 38, inciso a) y artículo 39 deberá ser cancelado en la Unidad de Préstamo y Devolución, o en el Departamento Finandero-Contable, según corresponda.

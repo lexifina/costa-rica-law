@@ -1,0 +1,1 @@
+Artículo 34.—Cuando se determine que los(as) usuarios(as), le están dando a las áreas físicas antes mendonadas un uso diferente del autorizado, los(as) funcionarios(as) de la Biblioteca tendrán la facultad de llamarles la atención y en caso necesario, solicitar su desalojo.

@@ -1,0 +1,1 @@
+Artículo 50.—A solicitud del(la) usuario(a) la Biblioteca, deberá entregar a este un comprobante por cada material devuelto. Para lo cual, la Biblioteca establecerá una boleta que deberá entregarle al solicitante.

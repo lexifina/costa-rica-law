@@ -1,0 +1,1 @@
+Artículo 45.—A los(as) funcionarios(as) que tengan deudas pendientes con la Biblioteca al momento de retirarse de la Institución, éstas les serán rebajadas del último salario devengado, en coordinación con los Departamentos de Recursos Humanos y Financiero Contable.

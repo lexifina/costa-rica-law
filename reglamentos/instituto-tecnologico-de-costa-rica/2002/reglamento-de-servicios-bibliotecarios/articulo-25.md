@@ -1,0 +1,1 @@
+Artículo 25.—El personal encargado del servicio de préstamo y devolución del material definirá el periodo de préstamo tomando en cuenta los artículos anteriores, así como la demanda del material, limitaciones de la Biblioteca y otras circunstancias particulares.

@@ -1,0 +1,1 @@
+Artículo 36.—Los(as) usuarios(as) que no devuelvan el material bibliográfico y especial en la fecha y hora indicada, se les suspende todos los servicios que brinde la Biblioteca hasta que regule la situación.

@@ -1,0 +1,1 @@
+Artículo 24.—La devolución del material se debe hacer en las ventanillas de préstamo y devolución de la Biblioteca, o en el buzón asignado para este fin. El(la) usuario(a) que deposite material en el buzón con fecha de préstamo venado, se le aplicará lo mencionado en el artículo 38, inciso a) de este Reglamento.

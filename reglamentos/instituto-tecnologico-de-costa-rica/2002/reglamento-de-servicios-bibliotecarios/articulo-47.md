@@ -1,0 +1,1 @@
+Artículo 47.—El(la) Funcionario(a) de la Biblioteca encargado(a) del control de salida, de acuerdo con el convenio de las Bibliotecas estatales universitarias de CONARE, retendrá el material de otras bibliotecas universitarias cuando presente una situación de préstamo irregular o vencido.

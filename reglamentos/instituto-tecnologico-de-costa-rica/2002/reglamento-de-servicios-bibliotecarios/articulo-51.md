@@ -1,0 +1,1 @@
+Artículo 51.—La Dirección de la Biblioteca y los(as) Encargados(as) de las Bibliotecas de las Sedes, quedan autorizados para establecer todos los Sistemas de Seguridad que consideren pertinente para evitar el robo; daño o mutilación de material y equipo.

@@ -1,0 +1,1 @@
+Artículo 43.—Es responsabilidad del(de la) Coordinador(a) de la Unidad de Préstamo y Devolución, de la Biblioteca de Sede y Centro, realizar acciones para recordar a los(as) usuarios(as) morosos(as) devolver el material regularmente.

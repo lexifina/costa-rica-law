@@ -1,0 +1,1 @@
+Artículo 22.—En aquellos casos que no esté funcionando el Sistema automatizado es requisito presentar la Boleta de Préstamo debidamente llena y firmada con tinta, en forma dará y completa, para los casos que la requieran, además de presentar su identificación correspondiente, según lo estipulado en el artículo 3º.

@@ -1,0 +1,1 @@
+Artículo 39.—El monto a pagar a que se refiere el artículo 38, inciso a) será revisado y ajustado periódicamente, por la Dirección de la Biblioteca, previa consulta al Departamento Financiero-Contable.

@@ -1,0 +1,1 @@
+Artículo 41.—En el caso de los(las) funcionarios(as) que no cancelan el monto a pagar a que se refiere el artículo 38, inciso a) en la Biblioteca, las Boletas de Préstamo o el Informe de Cobro serán remitidas al Departamento de Recursos Humanos, con la indicación del monto correspondiente, para que sea deducida del salario.

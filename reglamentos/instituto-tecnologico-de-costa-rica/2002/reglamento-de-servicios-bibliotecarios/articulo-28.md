@@ -1,0 +1,1 @@
+Artículo 28.—El Préstamo Interbibliotecario se regirá por las disposiciones que se establecen en el documento "Normas y Procedimientos de Préstamo de Material de Préstamo Interbibliotecario del Sistema de Bibliotecas del Instituto".

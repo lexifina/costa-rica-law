@@ -1,0 +1,1 @@
+Artículo 31.—En la Sala de Conferencias se podrán realizar actividades de índole socio-cultural o de divulgación científico-tecnológica que propicien el enriquecimiento cultural y social de la Comunidad Institucional y que no interfiera con la actividad propia de la Biblioteca.

@@ -1,0 +1,1 @@
+Artículo 33.—Las áreas del vestíbulo del segundo piso de la Biblioteca de la sede central, serán utilizadas para exposiciones afines al interés institucional, previa autorización de la Dirección de la Biblioteca.

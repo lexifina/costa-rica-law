@@ -1,0 +1,1 @@
+Artículo 7º—El costo de la membresía, será revisado y ajustado periódicamente por la Dirección de la Biblioteca José Figueres Ferrer, conjuntamente con el Departamento Finandero Contable del Instituto.

@@ -1,0 +1,1 @@
+Artículo 46.—No podrán realizar los trámites de matrícula ni de graduación aquellos(as) estudiantes que presenten una condición irregular con la Biblioteca srtuación que deberá comunicarse con oportunidad, al Departamento de Admisión y Registro y al Director del Colegio Científico.

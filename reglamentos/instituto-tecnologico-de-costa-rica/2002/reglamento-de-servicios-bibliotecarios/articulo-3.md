@@ -1,0 +1,4 @@
+Artículo 3º—Tendrán derecho a utilizar los servicios de las Bibliotecas respectivas del Instituto.
+a) Los(as) usuarios(as) internos(as) que se encuentren inscritos como usuarios(as) activos(as) en cada una de las Bibliotecas del Instituto. El trámite de inscripción se realiza en la ventanilla de la Unidad de Préstamo y Devolución.
+b) Los(as) usuarios(as) extemos(as) que hayan adquirido la membresía según se establece en el Capítulo III de este Reglamento e inscritos como usuarios(as) activos(as).
+c) Los(as) usuarios(as) especiales según el Convenio de Expedición de "Carné para estudiantes activos(as), profesores(as), investigadores(as) y funcionarios(as) administrativos(as) de las Instituciones d’e Educación Superior Universitaria Estatal y de la Oficina de Planificación de la Educación Superior’ y que estén inscritos como usuarios(as) activos(as).

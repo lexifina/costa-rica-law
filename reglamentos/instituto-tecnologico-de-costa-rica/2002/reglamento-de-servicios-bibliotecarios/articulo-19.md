@@ -1,0 +1,1 @@
+Artículo 19.—La colección de reserva está conformada por libros de los cuales las Bibliotecas poseen pocos ejemplares y que son muy utilizados por los(as) usuarios(as), por lo que se hace necesario restringir el tiempo de préstamo.
