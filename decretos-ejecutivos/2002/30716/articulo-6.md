@@ -1,0 +1,1 @@
+Artículo 6º—Para ejercer un adecuado control y fiscalización de los fondos generados por el "Sistema de Contribución Voluntaria", la administración estará en la obligación de entregar un comprobante de pago a cada uno de los conductores que utilicen esta modalidad de Peaje.

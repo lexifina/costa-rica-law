@@ -1,0 +1,1 @@
+Artículo 4º—Los fondos provenientes del "Sistema de Contribución Voluntaria" aquí establecido será destinado única y exclusivamente para el mejoramiento del estado vial (mantenimiento-señalamiento-embellecimiento) de las Autopistas General Cañas, Florencio del Castillo y Próspero Fernández en donde se ubica la Estación de Peaje.

@@ -1,0 +1,1 @@
+Artículo 3º—Este sistema de contribución voluntaria será aplicable únicamente para vehículos livianos que paguen con una moneda de cien colones. Los demás vehículos que deban circular por las Estaciones de Peaje no podrán aplicar este sistema, de modo que deberán utilizar los demás carriles existentes en cada estación para el pago de la tasa oficial que les corresponda.

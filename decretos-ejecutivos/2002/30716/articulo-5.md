@@ -1,0 +1,1 @@
+Artículo 5º—Los fondos provenientes del "Sistema de Contribución Voluntaria" mantendrá una contabilidad adecuada e independiente a los fondos de peaje existentes, los cuales están a cargo del Consejo Nacional de Vialidad la que será objeto de auditoría externa periódica.
