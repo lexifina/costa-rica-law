@@ -1,0 +1,3 @@
+Artículo 3º—Modifíquese el artículo 53 del Decreto Ejecutivo N° 29606-H-COMEX, publicado en La Gaceta N° 121 del 25 de junio del 2001, para que se lea así:
+"Artículo 53.—Para respaldar la venta a un beneficiario del régimen el proveedor nacional de servicios, materias y mercancías necesitará la orden de compra o el documento equivalente, según se regula en el artículo 50 del presente reglamento. El proveedor deberá conservar en debido orden la copia de las facturas con el recibido conforme de las empresas de zonas francas.
+La factura de venta del proveedor nacional deberá indicar además de los datos usuales la referencia al número y fecha de la orden de compra del beneficiario o de su documento equivalente."

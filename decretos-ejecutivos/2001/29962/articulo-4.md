@@ -1,0 +1,2 @@
+Artículo 4º—Modifíquese el Transitorio IV del Decreto Ejecutivo N° 29606-H-COMEX, publicado en La Gaceta N° 121 del 25 de junio del 2001, para que se lea así:
+"Transitorio IV.—Hasta tanto la Promotora del Comercio Exterior realice los ajustes pertinentes con respecto a la transmisión del informe de compras locales y de servicios requeridos a las empresas de zona franca, éstas deberán utilizar el procedimiento vigente. En todo caso estos ajustes deberán realizarse dentro del plazo máximo de dos meses a partir de la entrada en vigencia de este decreto."
