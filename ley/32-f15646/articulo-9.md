@@ -1,0 +1,1 @@
+Art. 9°-La fianza de costas puede decretarse de oficio por el Juez, y se extenderá apud acta. Las partes pueden usar del recurso de revisión de que habla el artículo 2°., cuando se consideren agraviados por las resoluciones que se dicten sobre la cantidad de esta fianza, y calidad de los fiadores.

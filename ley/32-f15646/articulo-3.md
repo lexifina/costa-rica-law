@@ -1,0 +1,1 @@
+Art. 3°-El recurso de revisión debe interponerse ante el Juez tasador, en papel de oficio, y dentro el término de tres días después de notificada la tasación; al interponerlo, deberá expresarse la partida ó partidas en que se juzguen agraviados los recurren la resolución del revisor.

@@ -1,0 +1,1 @@
+Art. 8°-El auto de solvendo comprenderá la cantidad del cobro, y el diez por ciento de en importe en favor del Juez, como pena de la demora en el pago, sin perjuicio de las costas procesales y personales, á que debe ser condenado el deudor negligente.
