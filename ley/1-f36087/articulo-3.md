@@ -1,0 +1,1 @@
+Art 3° El resguardo de la Frontera debe remitir un duplicado de las guías que expida al Gobernador de la Provincia, y este bajo su responsabilidad los pasará a la Contaduría mayor para que sirvan de contraste en las cuentas de la Receptoría.

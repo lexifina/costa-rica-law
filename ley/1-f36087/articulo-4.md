@@ -1,0 +1,5 @@
+Art 4° Las personas que por la misma vía exporten mercancías con destino a la República de Nicaragua, deben sacar guía de ellas en la Receptoría de Liberia, y el resguardo de la frontera detendrá las que vayan sin este requisito hasta que sea llenado debidamente. El Receptor es obligado a pasar copia de dichas guías al Gobernador de la Provincia para que este remita a la autoridad principal de Hacienda de Departamento fronterizo de la misma República de Nicaragua.
+Art 4° El resguardo de la frontera llevará un libro en que, con la mayor exactitud, copiará todas las guías que expida para el interior, el cual remitirá las guías que expida para el interior, el cual remitirá el fin de cada año económico a la Contaduría mayor.
+También llevará otro libro en que tomará razón de las guías expedidas por la Receptoría de Liberia de las mercancías que se exporten para Nicaragua debiendo estas mensualmente al Gobernador de la Provincia de Guanacaste para su conocimiento.
+Dado en San José a los veintiséis días del mes de febrero de mil ochocientos sesenta y uno.
+(Nota de Sinalevi: En la publicación de este reglamento se consignó dos veces el artículo 4)
