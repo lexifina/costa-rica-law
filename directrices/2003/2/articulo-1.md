@@ -1,0 +1,11 @@
+N° 2
+EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso y ejecución de las potestades conferidas por el artículo 141 de la Constitución Política, en concordancia con los artículos 25.2, 28, 59, 83, 102, 103 y 107 de la Ley General de la Administración Pública y 1, 3, 28, 88 a 102 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social.
+Considerando:
+I.—Que en cumplimiento de sus fines y objetivos, la Dirección General de Auditoría del Ministerio de Trabajo y Seguridad Social, ha realizado recomendaciones para la Administración, en el sistema de control interno de los cupones para combustible, que son de oportuno acatamiento, a fin de garantizar una total transparencia en el uso de fondos públicos.
+II.—Que es urgente establecer un criterio ministerial uniforme, sobre el establecimiento de control interno en la materia comentada, cuya aplicación general, será de obligatorio acatamiento para los encargados de elaborar el informe de gastos respectivo a la Dirección General Administrativa para su aprobación.
+III.—Que la aplicación del Decreto Nº 30865-MTSS, de fecha 25 de noviembre del 2002, debe garantizar a la Administración un uso racional y responsable de los cupones de combustible, así como su correcta ejecución por parte de las personas responsables de justificar el gasto por este rubro. Por tanto,
+Se emiten las siguientes disposiciones, sobre la aplicación del Decreto Nº 30865-MTSS, para su correspondiente ejecución por parte de los Jefes y Directores de Departamento, así como a la Oficialía Mayor y Dirección General Administrativa, los Departamentos Financiero y Servicios Generales, en el desempeño de sus respectivas funciones:
+1. Todos los Directores y Jefes de Departamentos, deberán presentar informe los días quince de cada mes, de los gastos en que incurrirán en el mes siguiente, tanto de consumo de combustible, como de viáticos, a la Dirección General Administrativa. Esta no tramitará gestión que en ese sentido, no se ajuste al término concedido.
+2. Tanto la Dirección General Administrativa, como los Departamentos Financiero y Servicios Generales, verificarán que los cupones de combustible sean utilizados racionalmente y solo para el propósito que fueron otorgados.
+Dada en San José, Despacho Ministro, a los veinte días del mes de febrero del dos mil tres.
