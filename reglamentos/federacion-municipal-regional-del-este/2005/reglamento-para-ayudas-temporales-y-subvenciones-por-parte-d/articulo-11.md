@@ -1,0 +1,1 @@
+Artículo 11.—Las ayudas a indigentes que concederá la Federación serán preferiblemente en especie, ya se trate de materiales, víveres etc., y en casos verdaderamente necesarios a juicio de la Dirección Ejecutiva, en efectivo cuando se trate del pago de servicios y lo alquileres según la recomendación previa, de acuerdo con lo establecido en el artículo 5 anterior.

@@ -1,0 +1,1 @@
+Artículo 5º—Para el otorgamiento de este tipo de ayudas, la Federación deberá tener demostrado, en los términos definidos en el artículo anterior, la situación de desgracia o infortunio, para lo cual deberá necesariamente elaborarse el informe previo, que incluirá la recomendación final en los términos que se ha de suministrar la correspondiente ayuda.
