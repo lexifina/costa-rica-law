@@ -23,3 +23,4 @@ Reglamento para la constitución, el traspaso, el registro y el funcionamiento d
 | 8 | 2001-08-27 | Reglamento 248 (2001-08-27) |
 | 9 | 2001-11-26 | Reglamento 266 (2001-11-26) |
 | 10 | 2002-06-11 | Reglamento 305 (2002-06-11) |
+| 11 | 2003-01-09 | Reglamento 348 (2003-01-09) |
