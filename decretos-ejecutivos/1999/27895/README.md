@@ -13,3 +13,4 @@ Interés Público II Congreso Latinoamericano Productores Palma AceiteraDías 26
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-01 | la propia norma |
+| 2 | 1999-06-01 | SINALEVI (sin norma nombrada) |
