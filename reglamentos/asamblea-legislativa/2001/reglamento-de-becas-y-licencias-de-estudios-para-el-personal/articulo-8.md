@@ -1,0 +1,1 @@
+ARTÍCULO 8.- Naturaleza de la actividad de capacitación. Los contenidos del Plan Anual de Capacitación y Formación de los Recursos Humanos asignados a la Asamblea Legislativa deberán estar estrechamente relacionados con las necesidades institucionales y las situaciones que los servidores enfrenten en el servicio que prestan a esta Institución.

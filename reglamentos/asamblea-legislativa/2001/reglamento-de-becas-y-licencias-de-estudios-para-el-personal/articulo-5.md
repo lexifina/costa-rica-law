@@ -1,0 +1,1 @@
+ARTÍCULO 5.- De la Unidad de Capacitación. La Unidad de Capacitación es una dependencia del Departamento de Recursos Humanos, responsable del desarrollo adecuado de las actividades de capacitación a nivel nacional y de la administración de recursos técnicos, tecnológicos y materiales destinados a estas actividades en la Asamblea Legislativa.

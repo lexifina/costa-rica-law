@@ -1,0 +1,8 @@
+CAPÍTULO VII
+DE LAS SANCIONES
+ARTÍCULO 20.- Tipificación de las sanciones. Los funcionarios que incumplan los compromisos derivados de las actividades de capacitación o facilidades otorgadas o hagan abandono sin causa justificada, se harán acreedores de las siguientes sanciones:
+a) Abandono de sus estudios a nivel local: dos años de suspensión para participar en actividades de capacitación y el reintegro a la Asamblea Legislativa de los gastos en que ésta haya incurrido en el financiamiento de los estudios abandonados.
+b) Abandono de estudios en el exterior: tres años de suspensión para participar de toda actividad de capacitación u otorgamiento de otra facilidad y reintegro a la Asamblea Legislativa de los gastos en que ésta haya incurrido en el financiamiento de los estudios abandonados.
+c) El incumplimiento total o parcial de lo indicado en el artículo 19, obligará al beneficiario a devolver los salarios y otras sumas giradas por el Poder Legislativo, durante el disfrute de la beca en forma total o proporcional, dependiendo del tipo de incumplimiento. En el caso que la prestación del servicio sea sólo parcial, el reintegro proporcional se calculará con el monto total recibido y el tiempo que falte de servicio obligatorio.
+d) La Comisión de Becas podrá recomendar al Directorio Legislativo la cancelación de las becas concedidas, exigiendo el reintegro de las sumas giradas si el becario fuere expulsado del centro donde realiza sus estudios o si lo abandonara sin causa justificada, o si se negare a suministrar los datos, en relación con sus estudios, que le solicite la Comisión de Becas.
+e) La Comisión de Becas podrá recomendar al Directorio Legislativo la cancelación de las becas concedidas en caso de pérdida de las materias cursadas.

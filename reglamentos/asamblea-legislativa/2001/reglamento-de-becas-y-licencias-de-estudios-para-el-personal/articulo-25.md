@@ -1,0 +1,1 @@
+ARTÍCULO 25.- Derogatoria. Este reglamento deja sin efecto el "Reglamento para la Adjudicación de Becas, Licencias para Estudio y Capacitación Complementaria al Personal de la Asamblea Legislativa", aprobado por el Directorio Legislativo, en la sesión No. 105-97 celebrada el veinticinco de febrero de mil novecientos noventa y siete.

@@ -1,0 +1,1 @@
+ARTÍCULO 9.- De la Evaluación y seguimiento de las actividades de capacitación. Toda actividad de capacitación debe estar sometida a evaluación y seguimiento por parte de la Unidad respectiva. El cumplimiento del Plan Anual de Capacitación será evaluado por el Directorio Legislativo sobre el informe que al efecto presente la Dirección Ejecutiva de la Institución.

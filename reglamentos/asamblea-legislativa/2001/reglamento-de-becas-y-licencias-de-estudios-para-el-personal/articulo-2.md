@@ -1,0 +1,8 @@
+ARTÍCULO 2.- Definiciones. Para efectos del presente Reglamento se entiende por:
+a) Capacitación. Las actividades tendientes a la adquisición y desarrollo continuo y sistemático de conocimientos, destrezas y aptitudes que contribuyan a la formación de los recursos humanos asignados a la Asamblea Legislativa.
+b) Facilidades. Los beneficios y oportunidades que otorgue la Asamblea Legislativa y que contribuyan al desarrollo del recurso humano a su servicio; que pueden consistir en ayudas económicas, apoyo oficial para la obtención de becas y otros beneficios similares ante otras instituciones nacionales o internacionales.
+c) Comisión de Becas. Órgano de la Asamblea Legislativa cuya creación y facultades se determinan en el presente Reglamento.
+d) Becas. Beneficio económico total o parcial, con una duración mayor de tres meses, que se otorga a un servidor para que reciba adiestramiento dentro de una modalidad estrechamente relacionada con la naturaleza de las funciones que desempeña.
+e) Licencia. Permiso con goce total o parcial de salario, o sin goce de salario que, dentro del horario laboral, se le concede al servidor para la realización de estudios atinentes a sus funciones. Las licencias no podrán superar las seis horas semanales.
+f) Servidor bajo el Régimen de Servicio Civil. Toda persona física que ocupe en propiedad una plaza de la Asamblea Legislativa según el Estatuto del Servicio Civil.
+g) Servidor de Fracción Política. Toda persona física que preste sus servicios en una plaza de la Asamblea Legislativa dentro del Régimen de Fracciones Políticas en calidad de funcionario de confianza.

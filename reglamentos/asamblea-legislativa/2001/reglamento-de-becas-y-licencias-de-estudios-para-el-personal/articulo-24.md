@@ -1,0 +1,3 @@
+CAPÍTULO IX
+DISPOSICIONES FINALES
+ARTÍCULO 24.- Situaciones no previstas. Los casos no contemplados en el presente Reglamento serán resueltos conforme a la Ley de Licencias para Adiestramiento de Servidores Públicos, el Estatuto del Servicio Civil y su Reglamento, así como en las leyes y reglamentos conexos y en cuanto a los asuntos procedimentales de la Comisión de Becas, se regirán según lo dispuesto en el Reglamento de la Asamblea Legislativa. En el caso de licencias para estudio en Costa Rica, éstas se regirán estrictamente por lo que sobre la materia establece el Código de Trabajo. En ningún caso se podrán exceder los limites que al efecto señala la mencionada normativa.

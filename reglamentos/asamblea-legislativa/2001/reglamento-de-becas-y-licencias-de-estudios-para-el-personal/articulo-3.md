@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Del financiamiento. El financiamiento total o parcial de la participación de funcionarios en actividades de capacitación y la concesión de otras facilidades, queda sujeto a que existan disponibilidades presupuestarias adecuadas.
