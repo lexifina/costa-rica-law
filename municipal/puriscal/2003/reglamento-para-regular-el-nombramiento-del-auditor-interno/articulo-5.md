@@ -1,0 +1,1 @@
+Artículo 5º—A partir de la publicación que se menciona en el artículo anterior, se establece un plazo de quince días hábiles para que los interesados presenten sus atestados para optar por el puesto de Auditor Interno.
