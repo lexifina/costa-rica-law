@@ -1,0 +1,1 @@
+Art. 2. Se ocupara este empleado, de toda preferencia, en practicar mensualmente los cortes de caja y especies de las receptorias de esta ciudad, Cartago, Heredia y Alajuela y las de las cabeceras de sus respectivos cantones, arreglandose absolutamente à lo dispuesto en los artículos 10, 11 y 12, párrafo y seccion citada del enunciado Reglamento de Hacienda.

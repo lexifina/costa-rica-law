@@ -1,0 +1,1 @@
+Art. 9. Están tambien obligados los Receptores, al tiempo de asentar las partidas de cargo que ocurran por derechos de alcabala sobre ventas de fincas, à expresar en las mismas partidas, si el pago se ha hecho en dinero ó en billetes nacionales, si parte en billetes y parte en dinero, sea cual fuere la cantidad en esta especie.

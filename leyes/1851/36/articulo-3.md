@@ -1,0 +1,1 @@
+Art. 3. Dichos cortes serán presentados a la Administracion principal el dia quince de cada mes por el referido Inspector, quien en la misma fecha dirigirá un estado general de ellos al Despacho de Hacienda del Gobierno.

@@ -1,0 +1,1 @@
+Art. 6. Igual obligacion tiene este empleado con respecto á las ventas de licores nacionales y extranjeros; y si advirtiere en cualquiera de ellos algun desorden, sin perjuicio de remediarlo en el acto, lo avisará al Administrador del partido à que corresponde la venta, y lo pondrá en conocimiento del Administrador general del ramo.
