@@ -1,0 +1,1 @@
+Artículo 58.-Recibido en el Congreso un proyecto objetado en su totalidad, se tomará en consideración; y si se declarasen fundadas las observaciones, terminará el curso del proyecto que se archivará; mas si las declarase infundadas, quedará pendiente el curso del proyecto hasta la próxima reunión del Congreso.

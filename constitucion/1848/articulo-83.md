@@ -1,0 +1,1 @@
+Artículo 83.-Se exceptúa de los dispuesto en el art. anterior el nombramiento o remoción de los mismos Ministros, lo cual podrá hacer por sí solo el encargado del Poder Ejecutivo sin intervención de ningún Ministro.
