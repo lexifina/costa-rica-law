@@ -1,0 +1,6 @@
+DECRETO XIX
+Dicta reglas de precaución para que no se introduzca el cólera, e impone penas a los contraventores.
+“El Jefe Supremo del Estado libre de Costa Rica.
+Considerando: que a pesar de los cordones sanitarios establecidos en Decreto de 16 del próximo pasado Mayo se han notado transgresiones, y poco zelo en denunciarlas a las autoridades en uso de las facultades que le concede el Decreto de 13 de diciembre próximo pasado, decreta.
+1°.- Toda persona que en el momento que sepa que alguna otra se ha introducido en el Estado salvando la vigilancia de los cordones sanitarios, no la denuncie a las autoridades, incurrirá por el mismo hecho en una multa hasta de dos mil pesos según sus facultados, y le será exigida sin más trámite que la averiguación de que sabedor del hecho no lo denunció.
+2° Los violadores de los mismos cordones se castigarán con destierro por ocho años del Estado y con multa como en el art anterior, y para la imposición y ejecucien de estas penas bastará estar plenamente probado que bien por violencia, o bien a excusas se introdujeron en el Estado salvándolos, y cualesquiera Autoridad que los aprehenda será competente para imponerlas.-Dado en la Ciudad de San José a los días del mes de agosto de 1837.
