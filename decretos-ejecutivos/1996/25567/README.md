@@ -14,3 +14,4 @@ Declara estado de necesidad y urgencia por calamidad pública, la situación cre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-15 | la propia norma |
+| 2 | 1997-03-17 | Decreto Ejecutivo 25893 (1997-03-17) |
