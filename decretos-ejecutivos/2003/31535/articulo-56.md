@@ -1,0 +1,1 @@
+Artículo 56.—Medidas cautelares. La persona ofendida podrá solicitar en cualquier etapa del proceso al órgano instructor como medida cautelar su reubicación temporal en la institución. El órgano Director del procedimiento resolverá la procedencia o no de la imposición de la medida cautelar en única instancia.

@@ -1,0 +1,1 @@
+Artículo 33.—De los traslados. Los traslados, y reubicaciones podrán ser acordados unilateralmente por la Administración, siempre que no se cause grave perjuicio al servidor, y se realizarán con sujeción a lo dispuesto en el Estatuto de Servicio Civil y su Reglamento, aunque estos no se encontraren cubiertos por dicho Régimen.

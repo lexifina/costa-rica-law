@@ -1,0 +1,1 @@
+Artículo 32.—De las permutas. Las permutas de los servidores que ocupen puestos de igual clase y categoría podrán ser acordadas por los servidores entre sí, y deberá contar con la anuencia de los respectivos superiores dando cuenta de ello a la Dirección de Recursos Humanos.

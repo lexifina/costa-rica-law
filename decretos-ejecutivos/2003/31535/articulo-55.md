@@ -1,0 +1,1 @@
+Artículo 55.—Del procedimiento. La persona afectada por acoso u hostigamiento sexual podrá plantear la denuncia, en forma verbal o por escrito, ante el Departamento legal. De lo manifestado por la persona denunciante se levantará un acta.

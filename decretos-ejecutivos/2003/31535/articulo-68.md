@@ -1,0 +1,1 @@
+Artículo 68.—Derechos adquiridos. El presente Reglamento no perjudica los derechos jurídicamente adquiridos por los servidores del Ministerio de Gobernación, Oficina de Control Nacional de Radio, y de la Oficina de Control de Propaganda.

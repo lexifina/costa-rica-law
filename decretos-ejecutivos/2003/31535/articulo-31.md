@@ -1,0 +1,3 @@
+CAPÍTULO X
+De las promociones, traslados y permutas
+Artículo 31.—De los ascensos. Se considera ascenso la promoción a un puesto de clase o categoría superior. Sólo podrán efectuarse previa comprobación de idoneidad del funcionario para desempeñar el puesto al que se propone ser ascendido. Lo anterior será función de la Comisión de Ascensos que deberá conformar la Dirección de Personal, la cual podrá estar conformada por un representante del Ministerio, un representante de la Dirección de Servicio Civil, un representante de los servidores profesionales y otro representante de los servidores técnicos y de apoyo.

@@ -1,0 +1,1 @@
+Artículo 37.—De las vacaciones proporcionales. Únicamente se podrán disfrutar vacaciones proporcionales cuando al no cumplir las cincuenta semanas de servicio contínuo, deviene la terminación de la relación o servicio, o ante vacaciones colectivas que deban concederse.

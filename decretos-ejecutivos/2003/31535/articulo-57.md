@@ -1,0 +1,1 @@
+Artículo 57.—Protección a las partes. El procedimiento deberá ser llevado a cabo resguardando la imagen y confidencialidad de las partes, cumpliendo con los principios que rigen la actividad administrativa so pena de incurrir en falta grave.

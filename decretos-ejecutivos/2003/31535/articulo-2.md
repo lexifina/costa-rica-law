@@ -1,0 +1,6 @@
+Artículo 2º—Definiciones. Para efectos del presente Reglamento se entiende por:
+a) Ministerio. El Ministerio de Gobernación cuya competencia y atribuciones le han sido conferidas por la Ley General de la Administración Pública, cuya representación recae en el Ministro designado por el Presidente de la República.
+b) Órgano Jerárquico Superior del Ministerio. El Ministro designado conforme nuestro ordenamiento jurídico.
+c) Órgano Superior Jerárquico Inmediato. El funcionario que ejerce el cargo de Viceministro.
+d) Servidor. Toda persona física que preste para el Ministerio de Gobernación y Policía sus servicios materiales e intelectuales en forma subordinada, a cambio de una retribución o salario por cuenta del Estado, en virtud de un nombramiento válido y eficaz. Se asimila a este término el de servidor público o empleado público.
+e) Relación de Servicio. El vínculo que se establece entre el Estado y el servidor con el fin de ejecutar una serie de prestaciones recíprocas consistentes para el servidor, en la realización de una tarea determinada de orden material o intelectual y para el patrono, en la retribución salarial como pago de los servicios recibidos, los cuales le permiten lograr sus cometidos.

@@ -1,0 +1,1 @@
+Artículo 41.—De las licencias sin goce de salario. Las licencias sin goce de salario mayores de un mes las concederá el Ministro o funcionario autorizado, con autorización previa de la Dirección General de Servicio Civil de conformidad con el artículo 33 inciso c) del Reglamento del Estatuto de Servicio Civil.

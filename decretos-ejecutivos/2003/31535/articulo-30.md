@@ -1,0 +1,1 @@
+Artículo 30.—De los incrementos salariales. En todos aquellos casos en que el salario de los servidores deba ser incrementado, la Dirección de Recursos Humanos será la responsable de ejecutar las gestiones pertinentes, según le corresponda.

@@ -1,0 +1,1 @@
+Artículo 69.—Normas supletorias. Todo lo no previsto en este Reglamento, se resolverá de acuerdo con la Ley General de la Administración Pública, Estatuto de Servicio Civil y su Reglamento, Código de Trabajo y demás normas vigentes aplicables al caso.

@@ -1,0 +1,1 @@
+Artículo 59.—Plazo para rendir informe. En un plazo no mayor de treinta días naturales, contados desde la fecha de interposición de la denuncia, el órgano director emitirá el informe que trasladará al Viceministro, con las recomendaciones disciplinarias que considere aplicables, quien resolverá, dentro de un plazo de tres días hábiles.
