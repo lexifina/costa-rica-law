@@ -16,3 +16,4 @@ Reglamento de la Ley reguladora de las relaciones entre productores e industrial
 | 1 | 1962-03-22 | la propia norma |
 | 2 | 1966-10-05 | Decreto Ejecutivo 10 (1966-10-05) |
 | 3 | 1971-03-08 | Decreto Ejecutivo 1547 (1971-03-08) |
+| 4 | 1976-01-12 | Decreto Ejecutivo 5660 (1976-01-12) |
