@@ -1,0 +1,6 @@
+N° 5402- E
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE EDUCACION PUBLICA,
+En ejercicio de sus atribuciones constitucionales y visto el acuerdo tomado, por el Consejo Superior de Educación en sesión N° 44-75 de 19 de mayo de 1975, que en los que interesa dice "... el Consejo Superior de Educación en sesión N° 44-75 de 19 de mayo de 1975, acordó, con carácter de firme que se derogue del Reglamento General de Establecimientos Oficiales de Educación Media, todo lo relativo a la Federación Nacional de Estudiantes que se encuentran en los artículos 41 y 42 del mencionado Reglamento y, existiendo solicitud expresa del Ministro de Educación para elaborar, con carácter urgente, las normas de creación y funcionamiento de la Federación Nacional, así como las Regionales, que forman parte del espíritu y del texto del Reglamento de la Comunidad Estudiantil, en aras de llenar la laguna que contiene el mencionado Reglamento y habiendo sido integrada, por el Ministro, con ese fin, una comisión que prepara el anteproyecto correspondiente,
+DECRETAN:
+Artículo 1°-Deróganse los artículos 41 y 42 del Reglamento General de Establecimientos Oficiales de Educación Media, Decreto Ejecutivo número dos de los tres días del mes de marzo de mil novecientos sesenta y cinco.
