@@ -1,0 +1,467 @@
+Artículo único.- Ratifícase el Protocolo de modificación de la
+Convención Unica del 1961, sobre estupefacientes, cuyo texto es el
+siguiente:
+PROTOCOLO DE MODIFICACION DE LA CONVENCION UNICA
+DE 1961 SOBRE ESTUPEFACIENTES
+PREAMBULO
+Las Partes en el presente Protocolo, Considerando las
+disposiciones de la Convención Unica de 1961 sobre Estupefacientes, hecha
+en Nueva York el 30 de marzo de 1961 (que en lo sucesivo se denominará la
+Convención Unica),
+Deseosas de modificar la Convención Unica.
+Han convenido en lo siguiente:
+ARTICULO 1
+Modificación de los párrafos 4, 6 y 7 del artículo 2 de la
+Convención Unica Los párrafos 4, 6 y 7 del artículo 2 de la Convención
+Unica quedarán modificados en la siguiente forma: "4. Los preparados de
+la Lista III estarán sujetos a las mismas medidas de fiscalización que
+los que contengan estupefacientes de la Lista II, excepto que no será
+necesario aplicar en su caso las disposiciones del artículo 31, párrafos
+1 b) y 3 a 15, ni en lo que respecta a su adquisición y su distribución
+al por menor, las del artículo 34, apartado b), y que, a los fines de las
+previsiones (artículo 19) y estadísticas (artículo 20), solo se exigirá
+la información relativa a las cantidades de estupefacientes que se
+empleen en la fabricación de dichos preparados. 6. Además de las medidas
+de fiscalización aplicables a todos los estupefacientes de la Lista I, el
+opio estará sometido a las disposiciones del apartado f) del párrafo 1
+del artículo 19, y de los artículos 21 bis, 23 y 24, la hoja de coca a
+las de los artículos 26 y 27, y la cannabis a las del artículo 28. 7. La
+adormidera, el arbusto de coca, la planta de cannabis, la paja de la
+adormidera y las hojas de la cannabis estarán sujetos a las medidas de
+fiscalización prescritas en el apartado e) del párrafo 1 del artículo 19,
+en el apartado g) del párrafo 1 del artículo 20, y en los artículos 19,
+20, 21 bis y 22 a 24; 22, 26 y 27; 22 y 28; 25; y 28, respectivamente".
+ARTICULO 2
+Modificaciones del título del artículo 9 de la Convención Unica de
+su párrafo 1, e inserción de los nuevos párrafos 4 y 5.
+El título del artículo 9 de la Convención Unica quedará modificado
+en la siguiente forma:
+"Composición y funciones de la Junta".
+El párrafo 1 del artículo 9 de la Convención Unica quedará
+modificado en la siguiente forma:
+"1. La Junta se compondrá de trece miembros, que el Consejo designará
+en la forma siguiente:
+a) Tres miembros que posean experiencia médica, farmacológica o
+farmacéutica, elegidos de una lista de cinco personas, por lo menos,
+propuestas por la Organización Mundial de la Salud;
+b) Diez miembros elegidos de una lista de personas propuestas por los
+Estados Miembros de las Naciones Unidas y por las Partes que no sean
+miembros de las Naciones Unidas".
+A continuación del párrafo 3 del artículo 9 de la Convención Unica
+se insertarán los nuevos párrafos siguientes:
+"4. La Junta, en cooperación con los gobiernos y con sujeción a las
+disposiciones de la presente Convención, tratará de limitar el cultivo,
+la producción, la fabricación y el uso de estupefacientes a la cantidad
+adecuada necesaria para fines médicos y científicos, de asegurar su
+disponibilidad para tales fines y de impedir el cultivo, la producción,
+la fabricación, el tráfico y el uso ilícitos de estupefacientes.
+5. Todas las medidas adoptadas por la Junta en virtud de la
+presente Convención serán las más adecuadas al propósito de fomentar la
+cooperación de los Gobiernos con la Junta y de establecer un mecanismo
+para mantener un diálogo constante entre los Gobiernos y la Junta que
+promueva y facilite una acción nacional efectiva para alcanzar los
+objetivos de la presente Convención".
+ARTICULO 3
+Modificación de los párrafos 1 y 4 del artículo 10 de la Convención
+Unica
+Los párrafos 1 y 4 del artículo 10 de la Convención Unica quedarán
+modificados en la siguiente forma:
+"1. Los miembros de la Junta ejercerán sus funciones durante cinco
+años y podrán ser reelectos.
+4. El Consejo, a recomendación de la Junta, podrá destituir a un
+miembro de la Junta que no reúna ya las condiciones necesarias para
+formar parte de ella conforme al párrafo 2 del artículo 9. Dicha
+recomendación deberá contar con el voto afirmativo de nueve miembros de
+la Junta".
+ARTICULO 4
+Modificación del párrafo 3 del artículo 11 de la Convención Unica
+El párrafo 3 del artículo 11 de la Convención Unica quedará
+modificado en la siguiente forma:
+"3. En las sesiones de la Junta el quórum será de ocho miembros".
+ARTICULO 5
+Modificación del párrafo 5 del artículo 12 de la Convención Unica
+El párrafo 5 del artículo 12 de la Convención Unica quedará
+modificado en la siguiente forma:
+"5. La Junta, con miras a limitar el uso y la distribución de
+estupefacientes a la cantidad adecuada necesaria para fines médicos y
+científicos y a asegurar su disponibilidad para tales fines, confirmará
+lo más rápidamente posible las previsiones, incluso las suplementarias, o
+podrá modificarlas con el consentimiento del Gobierno interesado. En
+caso de desacuerdo entre el Gobierno y la Junta, esta última tendrá
+derecho a establecer, comunicar y publicar sus propias previsiones,
+incluso las suplementarias".
+ARTICULO 6
+Modificación de los párrafos 1 y 2 del artículo 14 de la
+Convención Unica
+Los párrafos 1 y 2 del artículo 14 de la Convención Unica quedarán
+modificados en la siguiente forma:
+"1. a) Si, basándose en el examen de la información presentada por
+los Gobiernos a la junta de conformidad con las disposiciones de la
+presente Convención, o de información transmitida por órganos u
+organismos especializados de las Naciones Unidas o, siempre que sean
+aprobadas por la Comisión previa recomendación de la Junta, por otras
+organizaciones intergubernamentales u organizaciones no gubernamentales
+internacionales que posean competencia directa en el asunto de que se
+trate y estén reconocidas como entidades consultivas por el Consejo
+Económico y Social con arreglo al Artículo 71 de la Carta de las Naciones
+Unidas o que gocen de condición análoga por acuerdo especial del Consejo,
+la Junta tiene razones objetivas para creer que las finalidades de la
+presente Convención corren un grave peligro porque una Parte, un país o
+un territorio no ha cumplido las disposiciones de la presente Convención,
+tendrá derecho a proponer al Gobierno interesado al celebración de
+consultas o a solicitarle explicaciones. Si aun cuando no hayan dejado
+de cumplirse las disposiciones de la Convención, una Parte, un país o un
+territorio se ha convertido en un centro importante de cultivo,
+producción, fabricación, tráfico o uso ilícito de estupefacientes, o hay
+pruebas de que existe un riesgo grave de que llegue a serlo, la Junta
+tendrá derecho a proponer al Gobierno interesado la celebración de
+consultas. Sin perjuicio del derecho de la Junta a señalar a la atención
+de las Partes, del Consejo y de la Comisión las cuestiones mencionadas en
+el apartado d) la solicitud de información y las explicaciones de un
+gobierno o la propuesta de consultas y las consultas celebradas con un
+Gobierno en virtud del presente apartado se considerarán asuntos
+confidenciales.
+b) Después de actuar en virtud del apartado a). la Junta, si ha
+comprobado que es necesario proceder así, podrá pedir al gobierno
+interesado que adopte las medidas correctivas que las circunstancias
+aconsejen para la ejecución de las disposiciones de la presente
+Convención.
+c) La Junta, si lo considera necesario para evaluar una cuestión
+mencionada en el apartado a) supra, podrá proponer al Gobierno interesado
+la realización de un estudio al respecto en su territorio, por los medios
+que el Gobierno estima apropiados. El Gobierno interesado, si decide
+realizar ese estudio, podrá pedir a la Junta que ponga a su disposición
+los medios técnicos periciales y los servicios de una o más personas con
+la capacidad necesaria para prestar ayuda a los funcionarios del Gobierno
+en el estudio propuesto. La persona o personas que para ello proponga la
+Junta se someterán a la aprobación del Gobierno interesado. Las
+modalidades de ese estudio y el plazo dentro del cual debe efectuarse se
+determinarán mediante consulta entre el Gobierno y la Junta. El Gobierno
+comunicará a la Junta los resultados del estudio e indicará las medidas
+correctoras que considera necesario adoptar.
+d) Si la Junta considera que el Gobierno interesado ha dejado de
+dar las explicaciones satisfactorias que se le han solicitado conforme al
+apartado a), o de adoptar las medidas correctivas que se le han pedido
+conforme al apartado b) o que existe una situación grave que requiere la
+adopción de medidas de cooperación en el plano internacional con miras a
+su solución, podrá señalar el asunto a la atención de las Partes, del
+Consejo y de la Comisión. La Junta deberá proceder así cuando los
+objetivos de la presente Convención corran grave peligro y no haya sido
+posible resolver satisfactoriamente el asunto de otro modo. La Junta
+deberá proceder del mismo, modo si comprueba que existe una situación
+grave que requiere la adopción de medidas de cooperación internacional
+con miras a su solución y que el hecho de señalar esta situación a la
+atención de las Partes, del Consejo y de la Comisión es el método más
+apropiado para facilitar esta cooperación: después de examinar los
+informes de la Junta y, en su caso, de la Comisión sobre el asunto, el
+Consejo podrá señalar éste a la atención de la Asamblea General.
+2. La Junta, cuando señale un asunto a la atención de las Partes,
+del Consejo y de la Comisión en virtud del apartado d) del inciso 1,
+podrá, si ha comprobado que es necesario proceder así, recomendar a las
+Partes que cesen de importar drogas del país interesado, de exportarlas a
+él, o de hacer ambas cosas, durante un período determinado o hasta que la
+Junta quede satisfecha con la situación existente en ese territorio o
+país. El Estado interesado podrá plantear la cuestión ante el Consejo".
+ARTICULO 7
+Nuevo artículo 14 bis
+A continuación del artículo 14 de la Convención Unica se insertará
+el nuevo artículo siguiente:
+"ARTICULO 14 BIS
+Asistencia técnica y financiera
+En los casos en que lo estime pertinente, paralelamente a las
+medidas enunciadas en los párrafos 1 y 2 del artículo 14.. o en
+sustitución de ellas, la Junta de acuerdo con el Gobierno interesado,
+podrá recomendar a los órganos competentes de las Naciones Unidas y a sus
+organismos especializados que se presta asistencia técnica o financiera,
+o ambas, a ese Gobierno con miras a darle apoyo en sus esfuerzos por
+cumplir las obligaciones que ha contraído en virtud de la presente
+Convención, entre ellas las estipuladas o mencionadas en los artículos 2,
+35, 38 y 38 bis".
+ARTICULO 8
+Modificación del artículo 16 de la Convención Unica
+El artículo 16 de la Convención Unica quedará modificado en la
+siguiente forma:
+"Los servicios de Secretaría de la Comisión y de la Junta serán
+suministrados por el Secretario General. No obstante, el Secretario de
+la Junta será nombrado por el Secretario General en consulta con la
+Junta".
+ARTICULO 9
+Modificación de los párrafos 1, 2 y 5 del artículo 19 de la
+Convención Unica
+Los párrafos 1, 2 y 5 del artículo 19 de la Convención Unica
+quedarán modificados en la siguiente forma:
+"1. Las Partes facilitarán anualmente a la Junta, respecto de cada
+uno de sus territorios, del modo y en la forma que ella establezca y en
+formularios proporcionados por ella, sus provisiones sobre las cuestiones
+siguientes:
+a) La cantidad de estupefacientes que será consumida con fines médicos
+y científicos;
+b) La cantidad de estupefacientes que será utilizada para fabricar
+otros estupefacientes, preparados de la Lista III y sustancias a las que
+no se aplica esta Convención;
+c) Las existencias de estupefacientes al 31 de diciembre del año a que
+se refieren las previsiones;
+d) Las cantidades de estupefacientes necesarias para agregar a las
+existencias especiales;
+e) La superficie de terreno (en hectáreas) que se destinará al cultivo
+de la adormidera y su ubicación geográfica;
+f) La cantidad aproximada de opio que se producirá;
+g) El número de establecimientos industriales que fabricarán
+estupefacientes sintéticos; y
+h) Las cantidades de estupefacientes sintéticos que fabricará cada uno
+de los establecimientos mencionados en el apartado anterior.
+2. a) Hechas las deducciones a que se refiere el párrafo 3 del
+artículo 21, el total de las previsiones para cada territorio y cada
+estupefaciente, excepto el opio y los estupefacientes sintéticos, será la
+suma de las cantidades indicadas en los apartados a), b) y d) del párrafo
+1 de este artículo, más la cantidad necesaria para que las existencias
+disponibles al 31 de diciembre del año anterior alcancen la cantidad
+prevista, según lo dispuesto en el apartado c) del párrafo 1.
+b) Hechas las deducciones a que se refiere el párrafo 3 del artículo
+21, por lo que respecta a las Importaciones, y el párrafo 2 del artículo
+21 bis, el total de las previsiones de opio para cada territorio será la
+suma de las cantidades indicadas en los apartados a), b) y d) del párrafo
+1 de este artículo, más la cantidad necesaria para que las existencias
+disponibles al 31 de diciembre del año anterior alcancen la cantidad
+prevista, según lo dispuesto en el apartado c) del párrafo 1, o la
+cantidad indicada en el apartado f) del párrafo 1 de esta artículo si
+esta última es mayor.
+c) Hechas las deducciones a que refiere el párrafo 3 del artículo
+21, el total de las previsiones de cada estupefaciente sintético para
+cada territorio será la suma de las cantidades indicadas en los apartados
+a), b) y d) del párrafo 1 de este artículo, más la cantidad necesaria
+para que las existencias disponibles al 31 de diciembre del año anterior
+alcancen la cantidad prevista, según lo dispuesto en el apartado c) del
+párrafo 1, o la suma de las cantidades indicadas en el apartado h) del
+párrafo 1 de este artículo si esta última es mayor.
+d) Las previsiones proporcionadas en virtud de lo dispuesto en los
+apartados precedentes de este párrafo se modificarán según corresponda
+para tener en cuenta toda cantidad decomisada que luego se haya entregado
+para usos lícitos, así como toda cantidad retirada de las existencias
+especiales para las necesidades de la población civil.
+5. Hechas las deducciones mencionadas en el párrafo 3 del artículo
+21 y tomando en consideración, en la medida de lo posible, las
+disposiciones del artículo 21 bis, no deberán excederse las previsiones."
+ARTICULO 10
+Modificación del artículo 20 de la Convención Unica
+El artículo 20 de la Convención Unica quedará modificado en la
+siguiente forma:
+"1.- Las Partes suministrarán a la Junta, respecto de cada uno de sus
+territorios, del modo y en la forma en que ella establezca y en
+formularios proporcionados por ella, datos estadísticos sobre las
+cuestiones siguientes:
+a) Producción y fabricación de estupefacientes;
+b) Uso de estupefacientes para la fabricación de otros
+estupefacientes, de los preparados de la Lista III y de sustancias a las
+que no se aplica esta Convención, así como de la paja de adormidera para
+la fabricación de estupefacientes;
+c) Consumo de estupefacientes;
+d) Importaciones y exportaciones de estupefacientes y de paja de
+adormidera;
+e) Decomiso de estupefacientes y destino que se les da;
+f) Existencias de estupefacientes al 31 de diciembre del año a que
+se refieren las estadísticas; y
+g) Superficie determinable de cultivo de la adormidera.
+2.- a) Los datos estadísticos relativos a las cuestiones mencionadas
+en el párrafo 1, salvo el apartado d), se establecerán anualmente y se
+presentarán a la Junta a más tardar el 30 de junio del año siguiente al
+año a que se refieren.
+b) Los datos estadísticos relativos a las cuestiones mencionadas en el
+apartado d) del inciso 1 se establecerán trimestralmente y se presentarán
+a la Junta dentro del mes siguiente al trimestre a que se refieren.
+3.- Las partes no estarán obligadas a presentar datos estadísticos
+relativos a las existencias especiales, pero presentarán separadamente
+datos relativos a los estupefacientes importados u obtenidos en el país o
+territorio con fines especiales, así como sobre las cantidades de
+estupefacientes retiradas de las existencias especiales para satisfacer
+las necesidades de la población civil."
+ARTICULO 11
+Nuevo artículo 21 bis
+A continuación del artículo 21 de la Convención Unica se insertará el
+nuevo artículo siguiente:
+"ARTICULO 21 BIS
+Limitación de la producción del opio
+1. La producción de opio de cualquier país o territorio se
+organizará y fiscalizará de tal modo que se asegure que, en la medida de
+lo posible, la cantidad producida en un año cualquiera no exceda de las
+previsiones de la cantidad de opio que se ha de producir, establecidas de
+conformidad con el apartado f) del párrafo 1 del artículo 19.
+2. Si la Junta, basándose en la información que posea en virtud de
+las disposiciones de la presente Convención, concluye que una Parte que
+ha presentado unas previsiones de conformidad con el apartado f) del
+párrafo 1 del artículo 19 no ha limitado el opio producido dentro de sus
+fronteras a los fines lícitos conforme a las previsiones pertinentes y
+que una cantidad importante del opio producido, lícita o ilícitamente,
+dentro de las fronteras de dicha Parte, ha sido desviada al tráfico
+ilícito, podrá, después de estudiar las explicaciones de la Parte de que
+se trate, que le deberán ser presentadas en el plazo de un mes a partir
+de la notificación de tal conclusión, decidir que se deduzca la totalidad
+o una parte de dicha cantidad de la que se ha de producir y del total de
+las previsiones definidas en el apartado b) del párrafo 2 del artículo 19
+para el año inmediato en el que dicha deducción pueda realizarse
+técnicamente, teniendo en cuenta la estación del año y las obligaciones
+contractuales respecto de la exportación del opio. Esta decisión entrará
+en vigor noventa días después de haber sido notificada a la Parte de que
+se trate.
+3. Después de notificar a la Parte interesada la decisión adoptada
+conforme al párrafo 2 supra respecto de una deducción, la Junta
+consultará con esa Parte a fin de resolver satisfactoriamente la
+situación.
+4. Si la situación no se resuelve en forma satisfactoria, la Junta,
+en su caso podrá actuar conforme a lo dispuesto en el artículo 14.
+5. Al adoptar su decisión respecto a una deducción de conformidad
+con el párrafo 2 supra, la Junta tendrá en cuenta no sólo todas las
+circunstancias del caso, incluidas las que originen el problema del
+tráfico ilícito a que se hace referencia en dicho párrafo 2, sino también
+cualesquiera nuevas medidas pertinentes de fiscalización que puedan haber
+sido adoptadas por la Parte".
+ARTICULO 12
+Modificación del artículo 22 de la Convención Unica
+El artículo 22 de la Convención quedará modificado en la siguiente
+forma:
+"1.- Cuando las condiciones existentes en el país o en un territorio
+de una Parte sean tales que, a su juicio, la prohibición del cultivo de
+la adormidera, del arbusto de coca o de la planta de la cannabis resulte
+la medida más adecuada para proteger la salud pública y evitar que los
+estupefacientes sean objeto de tráfico ilícito, la Parte interesada
+prohibirá dicho cultivo.
+2.- Una Parte que prohiba el cultivo de la adormidera o de la planta
+de la cannabis tomará las medidas apropiadas para secuestrar cualquier
+planta ilícitamente cultivada y destruirla, excepto pequeñas cantidades
+requeridas por la Parte para propósitos científicos o de investigación".
+ARTICULO 13
+Modificación del artículo 35 de la Convención Unica
+El artículo 35 de la Convención Unica quedará modificado en la
+siguiente forma:
+"Teniendo debidamente en cuenta sus regímenes constitucional, legal
+y administrativo, las Partes:
+a) Asegurarán en el plano nacional una coordinación de la acción
+preventiva y represiva contra el tráfico ilícito; para ello podrán
+designar un servicio apropiado que se encargue de dicha coordinación;
+b) Se ayudarán mutuamente en la lucha contra el tráfico ilícito de
+estupefacientes;
+c) Cooperarán estrechamente entre sí y con las organizaciones
+internacionales competentes de que sean miembros para mantener una lucha
+coordinada contra el tráfico ilícito;
+d) Velarán por que la cooperación internacional de los servicios
+apropiados se efectúen en forma expedita;
+e) Cuidarán que, cuando se transmitan de un país a otro los autos
+para una acción judicial, la transmisión se efectúe en forma expedita a
+los órganos designados por las Partes; este requisito no prejuzga el
+derecho de una Parte a exigir que se le envíen las piezas de autos por
+vía diplomática;
+f) Proporcionarán, si lo consideran apropiado, a la Junta y a la
+Comisión por conducto del Secretario General, además de la información
+prevista en el artículo 18, la información relativa a las actividades
+ilícitas de estupefacientes dentro de sus fronteras, incluida la
+referencia al cultivo, producción, fabricación, tráfico y uso ilícitos de
+estupefacientes; y
+g) En la medida de lo posible, proporcionarán la información a que
+se hace referencia en el apartado anterior en la manera y en la fecha que
+la Junta lo solicita; si se lo pide una Parte, la Junta podrá ofrecerle
+su asesoramiento en su tarea de proporcionar la información y de tratar
+de reducir las actividades ilícitas de estupefacientes dentro de las
+fronteras de la Parte".
+ARTICULO 14
+Modificación de los párrafos 1 y 2 del artículo 36 de la
+Convención Unica
+Los párrafos 1 y 2 del artículo 36 de la Convención Unica quedarán
+modificados en la siguiente forma:
+"1. a) A reserva de lo dispuesto por su constitución, cada una de
+las Partes se obliga a adoptar las medidas necesarias para que el cultivo
+y la producción, fabricación, extracción, preparación, ofertas en
+general, ofertas de venta, distribución, compra, venta, despacho por
+cualquier concepto, corretaje, expedición, expedición en tránsito,
+transporte, importación y exportación y de estupefacientes, no conformes
+a las disposiciones de esta Convención o cualesquiera otros actos que en
+opinión de la Parte puedan efectuarse en infracción de las disposiciones
+de la presente Convención, se consideren como delitos si se cometen
+intencionalmente y que los delitos graves sean castigados en forma
+adecuada, especialmente con penas de prisión u otras penas de privación
+de libertad.
+b) No obstante lo dispuesto en el apartado anterior, cuando las
+personas que hagan uso indebido de estupefacientes hayan cometido esos
+delitos, las Partes podrán en vez de declararlas culpables o de
+sancionarlas penalmente, o además de declararlas culpables o de
+sancionarlas, someterlas a medidas de tratamiento, educación,
+postratamiento, rehabilitación y readaptación social, de conformidad con
+lo dispuesto en el párrafo 1 del artículo 38.
+2. A reserva de lo dispuesto por su Constitución, del régimen
+jurídico y de la legislación nacional de cada Parte:
+a) i) Cada uno de los delitos enumerados en el inciso 1, si se
+comete en diferentes países, se considerará como un delito distinto;
+ii) La participación deliberada o la confabulación para cometer
+cualquiera de esos delitos, así como la tentativa de cometerlos, los
+actos preparatorios y operaciones financieras, relativas a los delitos de
+que trata este artículo, se considerarán como delitos, tal como se
+dispone en el inciso 1; si se comete en diferentes países se considerará
+como un delito distinto;
+iii) Las condenas pronunciadas en el extranjero por esos delitos
+serán computadas para determinar la reincidencia; y
+iv) Los referidos delitos graves cometidos en el extranjero, tanto
+por nacionales como por extranjeros; serán juzgados por la Parte en cuyo
+territorio se haya cometido el delito, o por la Parte en cuyo territorio
+se encuentre el delincuente, si no procede la extradición de conformidad
+con la ley de la Parte a la cual se la solicita, y si dicho delincuente
+no ha sido ya procesado y sentenciado.
+b) i) Cada uno de los delitos enumerados en el párrafo 1 y en el
+inciso ii) del apartado a) del párrafo 2 del presente artículo se
+considerara incluido entre los delitos que den lugar a extradición en
+todo tratado de extradición celebrado entre las Partes. Las Partes se
+comprometen a incluir tales delitos como casos de extradición en todo
+tratado de extradición que celebren entre si en el futuro.
+ii) Si una Parte, que subordine la extradición a la existencia de un
+tratado, recibe de otra Parte, con la que no tiene tratado, una solicitud
+de extradición, podrá discrecionalmente considerar la presente Convención
+como la base jurídica necesaria para la extradición referente a los
+delitos enumerados en el párrafo 1 y en el inciso ii) del apartado a) del
+párrafo 2 del presente artículo. La extradición estará sujeta a las
+demás condiciones exigidas por el derecho de la Parte requerida.
+iii) Las Partes que no subordinen la extradición a la existencia de un
+tratado reconocerán los delitos enumerados en el párrafo 1 y en el inciso
+ii) del apartado a) del párrafo 2 del presente artículo como casos de
+extradición entre ellas, sujetos a las condiciones exigidas por el
+derecho de la Parte requerida.
+iv) La extradición será concedida con arreglo a la legislación de la
+Parte a la que se haya pedido y, no obstante lo dispuesto en los incisos
+i), ii) y iii) del apartado b) de este párrafo, esa Parte tendrá derecho
+a negarse a conceder la extracción si sus autoridades competentes
+consideran que el delito no es suficientemente grave".
+ARTICULO 15
+Modificación del artículo 38 de la Convención Unica y del título del mismo
+El artículo 38 de la Convención Unica y el título del mismo quedarán
+modificados en la siguiente forma:
+"Medidas contra el uso indebido de estupefacientes
+1. Las Partes prestarán atención especial a la prevención del uso
+indebido de estupefacientes y a la pronta indentificación, tratamiento,
+educación, postratamiento, rehabilitación y readaptación social de las
+personas afectadas, adoptarán todas las medidas posibles al efecto y
+coordinarán sus esfuerzos en ese sentido.
+2. Las Partes fomentarán, en la medida de lo posible, la formación
+de personal para el tratamiento, postratamiento, rehabilitación y
+readaptación social de quienes hagan uso indebido de estupefacientes.
+3. Las Partes procurarán prestar asistencia a las personas cuyo
+trabajo así lo exija para que lleguen a conocer los problemas del uso
+indebido de estupefacientes y de su prevención y fomentarán asimismo ese
+conocimiento entre el público en general, si existe el peligro de que se
+difunda el uso indebido de estupefacientes".
+ARTICULO 16
+Nuevo artículo 38 bis
+A continuación del artículo 38 de la Convención Unica de insertará
+el nuevo artículo siguiente:
+"ARTICULO 38 BIS
+Acuerdos conducentes a la creación de centros regionales
+Si una Parte lo considera deseable teniendo debidamente en cuenta su
+régimen constitucional, legal y administrativo, y con el asesoramiento
+técnico de la Junta o de los organismos especializados si a sí lo desea,
+promoverá como parte de su lucha contra el tráfico ilícito, la
+celebración, en consulta con otras Partes interesadas de la misma región,
+de acuerdos conducentes a la creación de centros regionales de
+investigación científica y educación para combatir los problemas que
+originan el uso y el tráfico ilícitos de estupefacientes".
+ARTICULO 17
+Idiomas del Protocolo y procedimientos para su firma, ratificación y
+adhesión
+1. El Presente Protocolo, cuyos textos chino, español, francés,
+inglés y ruso son igualmente auténticos, quedará abierto, hasta el 31 de
+diciembre de 1972, a la firma de todas las Partes en la Convenci
