@@ -1,0 +1,1 @@
+Art. 4° El Juez de Hacienda Municipal gozará por su trabajo de todos los derechos de actuación en los juicios escritos, de los de terminaciones verbales de los de circulación que se ofrezcan en todos los asuntos que ocurran, pertenecientes a los fondos Municipales; y además de veinte pesos mensuales que le cubrirán los fondos pertenecientes a la Provincia.

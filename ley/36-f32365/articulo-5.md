@@ -1,0 +1,1 @@
+Art. 5. El Juez de Hacienda Municipal tiene jurisdicción coactiva en todos aquellos asuntos que pertenezcan a los fondos de propios de la Provincia, sobre las personas de otras que sean deudores a dichos fondos.

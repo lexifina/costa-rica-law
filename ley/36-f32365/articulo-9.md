@@ -1,0 +1,1 @@
+Art 9°.- Los Jueces de Hacienda Municipal son excusables y recusables, deben actuar con dos testigos y despachar diariamente conforme está establecido para los demás Jueces, siendo sus Despachos Públicos.
