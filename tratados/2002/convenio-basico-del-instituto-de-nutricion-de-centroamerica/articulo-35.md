@@ -1,0 +1,2 @@
+ARTÍCULO XXXV
+El INCAP se vincula programáticamente a la OPS/OMS, por lo que sus actividades deberán formar parte del plan de trabajo de la Organización, en su condición de institución centroamericana, en los campos de formación de recursos humanos, asistencia técnica directa, investigación, información y comunicación y la movilización y desarrollo de recursos financieros. Las actividades del INCAP con relación a programas nacionales son coordinadas a través de las Representaciones de la OPS/OMS.

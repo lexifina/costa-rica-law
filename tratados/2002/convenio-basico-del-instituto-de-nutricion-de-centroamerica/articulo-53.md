@@ -1,0 +1,2 @@
+ARTÍCULO LIII
+El presente Convenio Básico entrará en vigencia cuando sea ratificado por todas las partes signatarias, de acuerdo con sus respectivos procedimientos internos o constitucionales. Los instrumentos de ratificación serán depositados en la Secretaría General del Sistema de la Integración Centroamericana y en la Secretaría de la Organización de los Estados Americanos y estas notificarán dicho depósito a los otros signatarios. Al entrar en vigencia el presente Convenio Básico, quedará sin efecto el Convenio Básico firmado el 17 de diciembre de 1953.

@@ -1,0 +1,3 @@
+SEDE DEL INCAP
+ARTÍCULO XXXVII
+La sede del INCAP estará en la República de Guatemala, Estado con el cual se establecerá un acuerdo de sede. La sede del INCAP podrá ser trasladada a cualquier otro de los países Miembros en propiedad cuando su Consejo Directivo lo considere conveniente. El Gobierno del país sede del INCAP se obliga a conceder al Instituto para que este lo utilice de la manera que lo considere más conveniente para el cumplimiento de sus funciones, sin costo alguno y por todo el tiempo de su existencia, los edificios donde está establecido, así como los terrenos en que ellos están construidos, pudiendo el INCAP hacer las ampliaciones y mejoras que sean necesarias.

@@ -1,0 +1,2 @@
+ARTÍCULO XXIV
+El Consejo Consultivo se reunirá en forma ordinaria dos veces al año. Se podrán celebrar reuniones extraordinarias cuando lo soliciten por lo menos dos Estados Miembros, el Director del INCAP o el Representante de la OPS/OMS designado por su Director. Podrán participar en las reuniones del Consejo Consultivo los especialistas y asesores que se estimen convenientes así como observadores que representen otras instituciones invitadas por el Consejo Consultivo.

@@ -1,0 +1,2 @@
+ARTÍCULO XXIX
+El programa de cada reunión será propuesto por el Secretario Técnico en consulta con el Presidente del Consejo Consultivo y deberá ser enviado a los Miembros del Consejo por lo menos con treinta días de anticipación a la reunión, junto con la convocatoria. El programa será aprobado por los Miembros del Consejo Consultivo al inicio de la reunión y deberá vincularse con el temario establecido en el reglamento del Consejo Directivo del INCAP.

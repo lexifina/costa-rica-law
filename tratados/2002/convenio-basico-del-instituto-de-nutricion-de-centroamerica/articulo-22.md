@@ -1,0 +1,2 @@
+ARTÍCULO XXII
+El Consejo Consultivo del INCAP estará integrado por los directores generales designados por el Ministro de Salud de cada uno de los Estados Miembros, o por un funcionario de alto nivel del Ministerio de Salud con la delegación de autoridad correspondiente; el Director del Instituto, quien actuará como Secretario Técnico, y un representante de la OPS/OMS designado por el Director de la OPS/OMS.

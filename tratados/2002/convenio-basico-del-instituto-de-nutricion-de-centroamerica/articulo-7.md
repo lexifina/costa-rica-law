@@ -1,0 +1,2 @@
+ARTÍCULO VII
+La OPS/OMS ocupa dos niveles de vinculación con el INCAP. Es, por una parte, Miembro en propiedad del INCAP, autoridad máxima del Instituto; y por otra es responsable de la administración de la institución, por solicitud del Consejo Directivo, la que se renovará cada cinco años, y deberá ser aceptada cada vez por el Consejo Directivo de la OPS/OMS. Para el cumplimiento de la última responsabilidad, es facultad del Director de la OPS/OMS la representación legal y la dirección del INCAP, la que puede delegar total o parcialmente.

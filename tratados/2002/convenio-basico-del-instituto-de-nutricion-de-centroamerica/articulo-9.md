@@ -1,0 +1,2 @@
+ARTÍCULO IX
+Son Miembros Asociados, las fundaciones, órganos e instituciones cuya misión sea convergente con la visión y misión del INCAP, y cuya solicitud y membresía haya sido aprobada por el Consejo Directivo por unanimidad. Los Miembros Asociados podrán participar por cuenta propia y con la debida anuencia del Consejo Directivo del INCAP, sin derecho a voto, en las deliberaciones de las reuniones ordinarias del Consejo Consultivo y del Consejo Directivo del INCAP.

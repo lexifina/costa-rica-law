@@ -1,0 +1,2 @@
+ARTÍCULO XXVI
+La sede de las reuniones ordinarias rotará entre los Estados Miembros, en el mismo orden establecido para las reuniones del Consejo Directivo del INCAP. El Director del INCAP hará la convocatoria por lo menos con treinta días de anticipación, y fijará las fechas de las mismas previa consulta con el Gobierno anfitrión. Para el caso de las reuniones extraordinarias el Director del Instituto resolverá en consulta con el Presidente del Consejo, el lugar y fecha para su celebración.

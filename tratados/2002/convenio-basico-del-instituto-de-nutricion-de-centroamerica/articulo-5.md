@@ -1,0 +1,2 @@
+ARTÍCULO V
+La estrategia de Seguridad Alimentaria y Nutricional se basa en criterios de equidad, sostenibilidad, productividad, suficiencia y estabilidad, a fin de garantizar el acceso, producción, consumo y adecuada utilización biológica de los alimentos, articulando la producción agropecuaria con la agroindustria y con mecanismos de comercialización rentables, prioritariamente para pequeños y medianos productores e incorporando al sector empresarial en el desarrollo de esta iniciativa.
