@@ -14,3 +14,4 @@ Reglamento Autónomo de Trabajo del Ministerio de Cultura, Juventud y Deportes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-01-20 | la propia norma |
+| 2 | 1995-09-22 | Decreto Ejecutivo 24668 (1995-09-22) |
