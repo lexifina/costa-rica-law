@@ -1,2 +1,2 @@
-Artículo 24.—Rige a partir de su publicación.
-San José, 13 de setiembre del 2000.—José Manuel Echandi Meza, Gerente General.
+Artículo 24.—La Junta Directiva de FOMUVEL podrá convocar en el mes de marzo de cada año a una Asamblea Anual, la cual tendrá carácter consultivo e informativo.
+(Así refromado por acuerdo tomado en sesión de fecha 7 de mayo del 2002)

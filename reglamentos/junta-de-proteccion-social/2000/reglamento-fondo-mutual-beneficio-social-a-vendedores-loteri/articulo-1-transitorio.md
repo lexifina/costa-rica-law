@@ -1,0 +1,4 @@
+Transitorio
+La disposición de entregar el 25% del 1% a los vendedores de lotería que alcancen la edad establecida en el artículo 6 de este Reglamento y que continúen siendo vendedores, los cuales en la actualidad se encuentran invertidos en un fondo de pensiones complementarias a nombre de cada vendedor, es temporal y tendrá vigencia hasta la fecha en que dicho fondo esté en capacidad de girar una suma mensual como pensión a los vendedores,
+Hasta tanto se haga realidad el giro de una suma mensual como pensión a los vendedores, FOMUVEL continuará girando los recursos que se encuentran invertidos en el fondo complementario de pensiones a todos los vendedores y vendedoras que alcancen la edad establecida en el artículo 6 de este Reglamento.
+(Así adicionado por acuerdo tomado en sesión de fecha 7 de mayo del 2002)
