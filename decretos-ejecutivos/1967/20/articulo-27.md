@@ -1,3 +1,0 @@
-Artículo 27°.- Aprobado el Estatuto se procederá inmediatamente a elegir a los miembros de la Junta Directiva de la Asociación en forma individual, directa y secreta. No podrán tener parentesco entre ellos hasta el segundo grado de afinidad y tercero de consanguinidad. La Junta constará por lo menos de un presidente, un vicepresidente, un secretario, un tesorero, un fiscal y dos vocales, quienes tendrán las funciones que se determinarán en los artículos siguientes.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 26 al 27)
-(Así reformado por el artículo 1° del decreto ejecutivo N° 2199 del 4 de febrero de 1972)

@@ -1,2 +1,0 @@
-Artículo 94.- Corresponde a la Dirección determinar, de acuerdo con el artículo 31 de la ley, cuáles asociaciones son representativas de la comunidad correspondiente. Hecha esta determinación, se denegará la inscripción en el Registro de cualquiera otra que solicite tal inscripción.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 93 al 94)

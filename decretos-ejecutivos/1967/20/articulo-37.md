@@ -1,2 +1,0 @@
-Artículo 37.- Los asociados tendrán los derechos y deberes que indique el Estatuto. Los que sean menores de edad, no podrán formar parte de ningún organismos, de la asociación en que se requiera la mayoridad. Pero fuera de esta limitación, no se podrán establecer en el estatuto discriminaciones de ninguna clase. Queda a salvo lo dicho en el párrafo final del artículo 34 de este Reglamento.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 36 al 37)

@@ -1,2 +1,0 @@
-Artículo 34.- Para efectos de su nominación, las asociaciones de desarrollo integral, agregaran a esta frase el nombre de la localidad o región que abarcan sus actividades. En cuanto a las asociaciones específicas, usarán la palabra "asociación" seguida de una frase que indique la obra concreta o el fin específico que persiguen.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 33 al 34)

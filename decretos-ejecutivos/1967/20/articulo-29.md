@@ -1,3 +1,0 @@
-Artículo 29°.- Dentro de los ocho días siguientes a la asamblea constitutiva, el presidente de la asociación procederá conforme al artículo 27 de la Ley, a formular la respectiva solicitud de inscripción ante la Dirección, autenticada por un abogado, a la que deberá acompañar una copia íntegra, del acta de la asamblea constitutiva, incluyendo el Estatuto que la rige.”
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 28 al 29)
-(Así reformado por el artículo 1° del decreto ejecutivo N° 6 del 6 de febrero de 1969)

@@ -1,2 +1,0 @@
-Artículo 101.- La Dirección procurará mantener un sistema adecuado de asesoramiento para las asociaciones de desarrollo, en tal forma que en ningún momento éstas carezcan de la asesoría necesaria para la formulación de sus programas, o para la solución de los problemas. Para estos efectos, la Dirección podrá solicitar a las dependencias
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 100 al 101)

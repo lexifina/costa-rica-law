@@ -1,2 +1,0 @@
-Artículo 79.- Las asociaciones de desarrollo integral requieren la autorización de una asamblea general para entrar a formar parte de una unión cantonal. La misma norma es aplicable a las uniones cantonales, cuando deseen federarse a las federaciones para afiliarse a las confederaciones nacionales.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 78 al 79)

@@ -1,3 +1,0 @@
-Artículo 4°.-La Dirección establecer las Direcciones Regionales y las Direcciones Subregionales o Provinciales que sean necesarias de conformidad con el Subsistema de Dirección y Planificación Sectorial establecido en el Decreto Ejecutivo N° 14184-PLAN de 8 de enero de 1983,
-Dependiente directamente del Departamento de Promoción de la Dirección Nacional de Desarrollo de la Comunidad. Dicho Departamento deber coordinar las labores de las mencionadas Direcciones con los respectivos Gobernadores de Provincia.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 15519 del 19 de junio de 1984)

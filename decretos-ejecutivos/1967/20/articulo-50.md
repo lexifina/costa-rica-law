@@ -1,2 +1,0 @@
-Artículo 50.- La Junta Directiva sesionará ordinariamente por lo menos, dos veces al mes, en el sitio, fecha y hora determinada por sus integrantes. Sesionará también extraordinariamente cuando la convoque el Presidente, el Secretario Ejecutivo o dos de sus miembros. El quórum para sesionar válidamente, será la mayoría absoluta de su integrantes, salvo que el Estatuto establezca uno diferente.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 49 al 50)

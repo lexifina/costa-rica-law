@@ -1,3 +1,0 @@
-Artículo 36.- Se considerarán afiliados los asistentes al acto de constitución de la asociación que hayan firmado el acta respectiva a la tarjeta que al efecto se les ha proporcionado y los que posteriormente hayan sido admitidos mediante acuerdo emanado de la Junta Directiva. Sus nombres deberá aparecer en el Libro de Afiliados, con indicación de la fecha del acuerdo de admisión o el de cancelación de la afiliación si ésta ha sido decretada.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 35 al 36)
-(Así reformado por el artículo 1° del decreto ejecutivo N° 2199 del 4 de febrero de 1972)

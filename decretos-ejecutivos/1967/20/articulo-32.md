@@ -1,4 +1,0 @@
-Artículo 32.- Para los fines legales consiguientes, toda reforma al estatuto deberá ser inscrita conforme a los trámites anteriores. Cada dos años también deberá inscribirse el acuerdo de la asamblea general en que se de la asociación, en la cual dé la información correspondiente y formalice la solicitud de inscripción, en este caso sólo se publicará un aviso en el Diario Oficial dando cuenta de la integración de la nueva Junta Directiva.
-Igual información se requiere para inscribir los nombramientos parciales de la Junta Directiva y las reformas de cancelar la afiliación.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 31 al 32)
-(Así reformado por el artículo único del decreto ejecutivo N° 11153 del 8 de febrero de 1980)

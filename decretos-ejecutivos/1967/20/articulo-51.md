@@ -1,3 +1,0 @@
-Artículo 51.- Perderá su condición de miembro de la Junta Directiva quien falte injustificadamente a tres sesiones ordinarias consecutivas o seis alternas, ordinarias o extraordinarias o por la Comisión de actos graves imputables a ellos, que perjudiquen la marcha o el prestigio de la Asociación, a juicio de la Junta Directiva. La cancelación de la credencial de miembros de Junta Directiva deberá ser acordada en asamblea general, convocada al efecto.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 50 al 51)
-(Así reformado por el artículo 1° del decreto ejecutivo N° 6426 del 4 de octubre de 1976)

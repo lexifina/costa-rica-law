@@ -1,3 +1,0 @@
-Artículo 73.—Todos los fondos de las asociaciones deberán ser canalizados a través de la Tesorería de la Junta Directiva y serán depositados en una cuenta bancaria bajo la responsabilidad del Presidente y Tesorero de la misma. Para suplir la ausencia de algunos de estos miembros podrá registrarse la firma del Vicepresidente. Los giros contra esta cuenta deben necesariamente ir firmados por ambos y estar respaldados por acuerdo de Junta Directiva.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 72 al 73)
-(Así reformado por el artículo único del decreto ejecutivo N° 11153 del 8 de febrero de 1980)

@@ -1,2 +1,0 @@
-Artículo 97.- Corresponde también a la Dirección, coordinar el funcionamiento de las asociaciones dentro del plan nacional de desarrollo de la comunidad, lo mismo que la acción de los organismos gubernamentales con dichas asociaciones, como un medio necesario para impulsar el desarrollo comunal, regional o nacional.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 96 al 97)

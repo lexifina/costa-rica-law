@@ -1,2 +1,0 @@
-Artículo 102.- Para el mejor logro de sus finalidades y para promover una conciencia nacional favorable al plan nacional de desarrollo de la comunidad, la Dirección deberá interesarse porque el Consejo, conforme lo dispone el artículo 10 de la ley, nombre comisiones consultivas públicas, privadas o mixtas, con el ánimo de recabar opiniones y consejos de sectores importantes de la vida nacional y lograr su apoyo.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 101 al 102)

@@ -1,4 +1,0 @@
-Artículo 91.- En todos los casos de disolución, la Dirección nombrara a un liquidador el cual hará un inventario de los bienes y valores de la entidad, y bajo su responsabilidad, los pondrá a la orden de la Dirección para que sean administrados por ésta, hasta tanto proceda a reorganizar la antigua asociación o a promover la creación de una que la sustituya.
-El liquidador deberá denunciar ante los tribunales comunes, cualquier delito o falta que tenga conocimiento en el ejercicio de sus funciones, atribuibles a los miembros de la Junta Directiva.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 90 al 91)
-(Así reformado por el artículo único del decreto ejecutivo N° 11153 del 8 de febrero de 1980)

@@ -1,2 +1,0 @@
-Artículo 78.- El Estatuto determinará la forma en que las asociaciones estarán representadas en las uniones cantonales, éstas en las federaciones y las federaciones en las confederaciones. También indicará las obligaciones económicas que cada entidad tendrá respecto de aquella a que esté afiliada.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 77 al 78)

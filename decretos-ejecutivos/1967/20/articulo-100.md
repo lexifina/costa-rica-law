@@ -1,2 +1,0 @@
-Artículo 100.- También dentro de sus posibilidades presupuestarias deberá la Dirección elaborar un plan de investigaciones y estudios sociales, dirigidos a facilitar la formulación y ejecución del plan nacional de desarrollo de la comunidad, y a proporcionar a la comunidades la información técnica adecuada, para la confección de sus programas de trabajo.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 99 al 100)

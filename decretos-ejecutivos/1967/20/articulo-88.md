@@ -1,2 +1,0 @@
-Artículo 88.- La disolución administrativa será acordada por Decreto Ejecutivo a solicitud de la Dirección y la resolución respectiva se publicará en el Diario Oficial. Con base en esta publicación, se procederá a cancelar el asiento de inscripción en el Registro.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 87 al 88)
