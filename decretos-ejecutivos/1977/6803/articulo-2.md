@@ -1,0 +1,1 @@
+Artículo 2°.- Es entendido que la anterior modificación queda sujeta a que si otra empresa de actividad industrial similar inicia la producción antes que la petente, ésta perderá la clasificación de “B” nueva.
