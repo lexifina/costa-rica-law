@@ -1,0 +1,1 @@
+Artículo 27.—Las resoluciones de la Municipalidad que ordenen la caducidad de la licencia por falta de pago, no tendrá curso alguno y su tramitación no admitirá prueba en contrario salvo la excepción de pago. Las demás resoluciones se regirán por lo que dispone el Artículo 179 del Código Municipal.
