@@ -1,0 +1,1 @@
+Artículo 22.—El cierre del establecimiento, local o centro donde se realiza la actividad se hará mediante la colocación de sellos oficiales en puertas, ventanas, otros lugares de acceso al establecimiento, así como en todo lugar que sea necesario para garantizar el no ejercicio de la actividad durante el período objeto de cierre.

@@ -1,0 +1,2 @@
+Artículo 25.—Si en el establecimiento que se va a cerrar, se encuentran mercancías de fácil descomposición, se solicitará al patrono o trabajador independiente o sus representantes que las coloque en un lugar apropiado, para que no se dañen o deterioren. En caso de negativa, la pérdida será atribuible al patrono, trabajador independiente o sus representantes.
+Si se encuentran animales vivos dentro del local, serán puestos a disposición del interesado.

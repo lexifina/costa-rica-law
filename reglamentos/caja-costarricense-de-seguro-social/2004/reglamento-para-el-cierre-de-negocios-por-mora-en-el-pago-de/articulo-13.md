@@ -1,0 +1,1 @@
+Artículo 13.—Todo acto de procedimiento que afecte derechos e intereses del patrono o trabajador independiente, deberá ser notificado a éste o su representante, en el tanto se haya señalado lugar o medio para oír notificaciones.

@@ -1,0 +1,1 @@
+Artículo 26.—El cierre podrá ordenarse por un período máximo de cinco días, prorrogable por otro igual cuando se mantengan los motivos por los que se dictó, previa resolución motivada al efecto, dictada por parte del Gerente División Financiera, contra el que cabrán los recursos de revocatoria y apelación establecidos en el artículo 16 de este Reglamento.
