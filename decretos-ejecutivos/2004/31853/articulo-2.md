@@ -1,0 +1,1 @@
+Artículo 2º—Bienes susceptibles de donación. Todos los bienes muebles declarados en desuso o en mal estado provenientes de la Administración Central, podrán ser objeto de donación por los medios establecidos en las respectivas normas que versan sobre la materia. Para que un bien pueda ser donado debe tener como máximo el valor de rescate.
