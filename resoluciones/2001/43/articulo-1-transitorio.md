@@ -1,0 +1,2 @@
+TRANSITORIO I
+Dado el carácter interpretativo de esta resolución, se tienen por válidamente realizadas las devoluciones a las que se les ha aplicado el procedimiento indicado en el cuerpo de la misma. Asimismo, se tienen por válidamente realizadas las compensaciones con las deudas que consten en la Cuenta Integral Tributaria por concepto de otros impuestos, además del Impuesto sobre la Renta, en el trámite de devoluciones por concepto de créditos generados en el Impuesto al Activo de las Empresas, efectuadas con anterioridad a la publicación de esta resolución.
