@@ -1045,9 +1045,10 @@ Leyes y decretos de creación y modificaciones:
 -Decreto Ejecutivo 20 de 11 de junio 1968 (creación y límites de los distritos 5, 6, 7, 8 y 9 de Turrialba).
 -Ley 4344 de 24 de junio de 1969 (creación del cantón Matina y da límites con esta Unidad Administrativa).
 -Ley 7393 de 25 de abril de 1994 (creación del distrito Tres Equis).
+-NOTA DE SINALEVI: Mediante Ley N° 8150 de 14 de noviembre de 2001, se Crean los Distritos 11° La Isabel, y 12°, Chirripó, del Cantón de Turrialba.
 Distritos:
-305 01 TURRIALBA:Ciudad: 09°54'20" LAT. N./ 83°41'08" LONG. O. ALTITUD: 646 m.
-Barrios: Américas, Angeles, Cabiria, Campabadal, Cementerio, Clorito Picado, Dominica, El Mora, Guaria, Haciendita, Isabel, Margot, Nochebuena, Numa, Pastor, Poró, Pueblo Nuevo, Repasto, San Cayetano, San Martín, San Rafael, Sictaya.
+305 01 TURRIALBA**:Ciudad: 09°54'20" LAT. N./ 83°41'08" LONG. O. ALTITUD: 646 m.
+Barrios: Américas, Angeles, Cabiria, Campabadal, Cementerio, Clorito Picado, Dominica, El Mora*, Guaria, Haciendita, Isabel, Margot, Nochebuena, Numa, Pastor, Poró, Pueblo Nuevo, Repasto, San Cayetano, San Martín, San Rafael, Sictaya.
 Poblados: Alto Varal, Animas, Azul, Bajo Barrientos, Cañaveral, Colorado, Chiz, Esmeralda, Florencia, Guayabo (parte), Jesús María, Murcia, Pavas, Recreo, Roncha, San Juan Norte, San Juan Sur.
 305 02 LA SUIZA: Villa: 09°51'15" LAT. N./ 83°36'56" LONG. O. ALTITUD: 616 m.
 Barrio: Leona (parte).
@@ -1065,11 +1066,13 @@ Poblados: Angostura, Bóveda, Buenavista, Chitaría, Eslabón, Isla Bonita (part
 Barrio: Leona (parte).
 Poblados: Alto Surtubal, Ángeles, Bajo Pacuare (norte), Cabeza de Buey, Cien Manzanas, Colonia San Lucas, Colonia Silencio, Colonias, Mata de Guineo, Nubes, Paulina, Sacro, San Bosco, Selva (parte).
 305 08 TAYUTIC: Platanillo. Villa: 09°49'20" LAT. N./ 83°33'25" LONG. O. ALTITUD: 870 m.
-Poblados: Bajo Pacuare (sur), Carolina, Damaris, Dos Amigos, Dulce Nombre, Fortuna, Grano de Oro, Guineal, Jicotea, Mina, Morado, Moravia, Paso Marcos, Platanillo (este), Playa Hermosa, Quebradas, San Martín, San Rafael, Santubal, Surí, Tacotal, Vereh.
+Poblados: Bajo Pacuare (sur), Carolina, Damaris, Dos Amigos, Dulce Nombre, Fortuna, Grano de Oro** Guineal, Jicotea, Mina, Morado, Moravia, Paso Marcos, Platanillo (este), Playa Hermosa, Quebradas, San Martín, San Rafael, Santubal, Surí, Tacotal, Vereh.
 305 09 SANTA ROSA: Villa: 09°55'35" LAT. N./ 83°41'58" LONG. O.ALTITUD: 810 m.
 Poblados: Aquiares, Bolsón (parte), Carmen (parte), Río Claro, San Rafael, Verbena Norte, Verbena Sur.
 305 10 TRES EQUIS: Villa: 09º57’42" LAT N./ 83°34'23"LONG.O.ALTITUD: 630 m.
 Poblados: Alto June, Corozal, Flor, Guanacasteca, Isla Bonita(parte), Pilón de Azúcar, Sol.
+*NOTA: Mediante Ley N° 8150 de 14 de noviembre de 2001, se Crea el Distrito 11° La Isabel, del Cantón V, Turrialba, provincia de Cartago. Estará formado por su cabecera, El Mora, segregado del distrito 1°, Turrialba; y los siguientes caseríos: Azul, Jesús María, Alto Varal, San Martín y La Isabel.
+**NOTA: Mediante Ley N° 8150 de 14 de noviembre de 2001, se Crea el Distritos 12° Chirripó, del Cantón V, Turrialba, provincia de Cartago. Estará formado por su cabecera, El Mora, segregado de los distritos 2°, La Suiza y 8°, Tayutic,; y los siguientes poblados : Xaqicha, Quetzal, Tsipiri, Tsineclari, Diquectäri, Bolori-Ñadolori, Jedzuculäri, Xuqubachari, Jaqui o Chirripó Arriba, Tulesi, Jamo o Alto Chirripó, Alto Pacuare, Pacuare Arriba, Pacuare o Jäcuy, Bäreh, Nimari-Santubal, Xcwari, Xara Ayil, Sarcäli-Jacpopori, Valle Escondido, Awari, Nairi-Täwä y Namaldi.
 Hojas del mapa básico, 1:50 000(IGN): Barbilla, Bonilla, Carrillo, Cuericí, Chirripo, Dúrika, Istarú, Matama, Pejibaye, Tucurrique.
 CANTÓN 306: ALVARADO
 Leyes y decretos de creación y modificaciones:

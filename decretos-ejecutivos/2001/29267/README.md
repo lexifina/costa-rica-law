@@ -14,3 +14,4 @@ División Territorial Administrativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-02 | la propia norma |
+| 2 | 2001-11-14 | Ley 8150 |
