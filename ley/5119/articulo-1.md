@@ -1,4 +1,4 @@
-Artículo 1º.- De acuerdo con lo dispuesto por los artículo 15 y 18
+ARTICULO 1º.- De acuerdo con lo dispuesto por los artículo 15 y 18
 del Código Municipal, Nº 4574 de 4 de mayo de 1970, se reconoce
 personalidad jurídica y capacidad legal a la Unión o Liga de
 Municipalidades de la provincia de Cartago así como a sus órganos: El
