@@ -1,0 +1,12 @@
+DECRETOS
+N° 30098-MEIC-COMEX
+EL PRESIDENTE DE LA REPÚBLICA Y LOS MINOISTROS DE INDUSTRIA Y COMERCIO Y COMERCIO EXTERIOR
+Con fundamento en lo dispuesto en los artículos 50, 56, 140, incisos 3) y 18) de la Constitución Política, 25.1 y 27.1 de la Ley General de la Administración Pública (No 6227 del 2 de mayo de 1978), 4° y 12 de la Ley de la Autoridad Reguladora de los Servicios Públicos (N° 7593 del 9 de agosto de 1996) y en el Decreto Ejecutivo N° 29975-MEIC-COMEX.
+Considerando:
+I.—Que mediante el Decreto Ejecutivo No 29975-MEIC-COMEX, se emitió el Reglamento para el Otorgamiento de Tarifas Eléctricas Diferenciadas a las Industrias Manufactureras que realicen inversiones nuevas en cantones de menor desarrollo relativo.
+II.—Que el artículo 5° de dicho Decreto Ejecutivo, estableció un procedimiento para la calificación de las empresas que pretendan acogerse a las tarifas eléctricas diferenciadas, ante la Promotora del Comercio Exterior de Costa Rica y el Área de Fomento Industrial del Ministerio de Economía, Industria y Comercio, según se tratara de empresas acogidas al régimen de zonas francas o otras empresas manufactureras.
+III.—Que habida cuenta que el Decreto Ejecutivo N° 26285-H- COMEX, que reglamenta los Regímenes de Perfeccionamiento Activo y Devolutivo de Derechos, confiere a la Promotora del Comercio Exterior de Costa Rica (PROCOMER) la competencia de tramitar las solicitudes para acogerse al Régimen de Perfeccionamiento Activo, es lo procedente adicionar el articulo 5° del Decreto Ejecutivo N° 29975-MEIC-COMEX para que expresamente se indique que PROCOMER es la entidad ante la que deben tramitar sus solicitudes las empresas acogidas a dicho régimen, que pretendan disfrutar de las tarifas eléctricas diferenciadas que contempla el reglamento precitado. Por tanto,
+decretan:
+Artículo 1°—Se adiciona un párrafo final al artículo 5° del Decreto Ejecutivo N° 29975-MEIC-COMEX, que se leerá así:
+"Las empresas acogidas al Régimen de Perfeccionamiento Activo que pretendan acogerse a los beneficios del presente Reglamento, deberán presentar su solicitud ante la Promotora del Comercio Exterior de Costa Rica (PROCOMER), que realizará los estudios correspondientes y remitirá una recomendación ante el Ministro de Comercio Exterior. Las industrias manufactureras que soliciten su ingreso al Régimen de Perfeccionamiento Activo,
+podrán incluir la solicitud de acogerse a la tarifa diferenciada, siempre que Cumplan con las condiciones y requisitos establecidos en este Reglamento."
