@@ -1,0 +1,1 @@
+Artículo 2º.-Varíase la enumeración de los artículos del capítulo XIV del Reglamento, así: el artículo 25 será el artículo 30; el artículo 26 será el artículo 31, el artículo 27 será el artículo 32 y el artículo 28 será el artículo 33.
