@@ -1,0 +1,1 @@
+ARTICULO 102.- Propondrá ternas al poder ejecutivo para el nombramiento -de los ministros diplomáticos- del comandante de las armas de la Federación- de todos los oficiales del ejército de coronel inclusive arriba- de los comandantes de los puertos y fronteras- de los ministros de la tesorería general- y de los jefes de las rentas generales.

@@ -1,0 +1,1 @@
+ARTICULO 158.- La detención de que hable al artículo anterior no podrá durar mas que cuarenta y ocho horas y durante este término deberá la autoridad que la haya ordenado practicar lo prevenido en el artículo 156 y librar por escrito la orden de prisión o poner en libertad al detenido.

@@ -1,0 +1,1 @@
+ARTICULO 114.- Consultará al Congreso sobre la inteligencia de la ley; y al senado sobre las dudas y dificultades que ofrezca su ejecución. Debe en este caso, conformarse con su dictamen, y cesa su responsabilidad.

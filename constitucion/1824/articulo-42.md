@@ -1,0 +1,1 @@
+ARTICULO 42.- En la renovación del Presidente y Vice-presidente de la República, individuos de la Suprema Corte de Justicia y senadores del Estado, los electores sufragarán para estos funcionarios en actos diversos, y cada voto será registrado con separación.

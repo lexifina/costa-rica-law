@@ -1,0 +1,1 @@
+ARTICULO 147.- Habrá un tribunal compuesto de cinco individuos que nombrará el senado entre los suplentes del mismo o del Congreso, que no hayan entrado al ejercicio de sus funciones. Sus facultades se determinan en los artículos 149 y 150.

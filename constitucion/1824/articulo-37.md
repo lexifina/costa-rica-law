@@ -1,0 +1,1 @@
+ARTICULO 37.- Reunidas por lo menos las dos terceras partes de los electores primario, se forma la junta y nombra por mayoría absoluta un elector de distrito por cada diez primarios de los que le corresponden.

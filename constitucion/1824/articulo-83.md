@@ -1,0 +1,1 @@
+ARTICULO 83.- Cuando el senado rehusare sancionar una resolución del Congreso por ser contraria a los títulos 10 y 11, se requiere también para ratificarla el acuerdo de las tres cuartas partes del Congreso, y debe pasar segunda vez al senado para que de o niegue la sanción.

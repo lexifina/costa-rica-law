@@ -1,0 +1,1 @@
+ARTICULO 203.- Cuando la reforma o adición se versare sobre algún punto que altere en lo esencial la forma de gobierno adoptada, el Congreso después de la aceptación de los Estados, convocará una Asamblea Nacional constituyente para que definitivamente resuelva.

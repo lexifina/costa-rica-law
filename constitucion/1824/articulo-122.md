@@ -1,0 +1,1 @@
+ARTICULO 122.- Podrá separar libremente y sin necesidad de instrucción de causa de los secretarios del despacho-trasladar por arreglos a las leyes a todos los funcionarios del poder ejecutivo federal -suspenderlos por seis meses- y deponerlos con pruebas justificadas de ineptitud o desobediencia, y con acuerdo en vista de ellas de las dos terceras partes del senado.

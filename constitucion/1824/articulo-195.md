@@ -1,0 +1,1 @@
+ARTICULO 195.- Pueden ser reelegidos representantes, senadores, jefes, consejeros e individuos de la corte superior de justicia de cada uno de los estados los ciudadanos hábiles de los otros; pero no son obligados a admitir estos oficios.

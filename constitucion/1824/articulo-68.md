@@ -1,0 +1,1 @@
+ARTICULO 68.- Para toda resolución se necesita la concurrencia de la mayoría absoluta de los representantes, y el acuerdo de la mitad y uno más de los que se hallaren presentes; pero un número menor puede obligar a concurrir a los ausentes del modo y bajo las penas que se designen en el reglamento interior del Congreso.

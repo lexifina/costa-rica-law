@@ -1,0 +1,1 @@
+ARTICULO 134.- En falta de algún individuo de la Suprema Corte hará sus veces uno de tres suplentes que tendrán las mismas calidades y serán elegidos por el pueblo después del nombramiento de los propietarios.

@@ -1,0 +1,1 @@
+ARTICULO 144.- En todos estos casos y en los de infracción de ley, y usurpación habrá igualmente lugar a la formación de causa contra los individuos del senado -de la Corte Suprema de Justicia- contra el Presidente y Vice-presidente de la República y secretarios del despacho.

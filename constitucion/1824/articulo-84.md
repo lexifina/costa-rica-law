@@ -1,0 +1,1 @@
+ARTICULO 84.- Si aun así no lo obtuviere, o si la resolución no hubiere sido ratificada, no puede volver a proponerse sino hasta el año siguiente, debiendo entonces sancionarse o ratificarse según las reglas comunes a toda resolución.

@@ -1,0 +1,1 @@
+ARTICULO 63.- En ningún tiempo ni con motivo alguno los representantes pueden ser responsables por proposición, discurso o debate en el Congreso o fuera de él sobre asuntos relativos a su encargo. Y durante las sesiones y un mes después ser demandados civilmente, ni ejecutadas por deudas.

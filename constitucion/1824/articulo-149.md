@@ -1,0 +1,1 @@
+ARTICULO 149.- En las acusaciones contra el Presidente y Vice-presidente, si ha hecho sus veces declarará el Congreso cuando ha lugar a la formación de causa: juzgará la Suprema Corte; y conocerá en apelación el tribunal que establece el art. 147.

@@ -1,0 +1,1 @@
+ARTICULO 169.- Solo en los delitos de traición se pueden ocupar los papeles de los habitantes de la República; y únicamente podrá practicarse su examen cuando sea indispensable para al averiguación de la verdad, y a presencia del interesado, devolviéndosele en el acto cuantos no tengan relación con lo que se indaga.

@@ -1,0 +1,1 @@
+ARTICULO 46.- Reunidos los pliegos que contienen las listas de todas las juntas de departamento y su escrutinio formado por las asambleas, el Congreso los abrirá y regulará la votación por el número de los electores de distrito, y no por el de las juntas de departamento.

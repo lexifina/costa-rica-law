@@ -1,0 +1,1 @@
+ARTICULO 128.- Comunicará a los Jefes de los Estados las leyes y disposiciones generales, y les prevendrá lo conveniente en todo cuanto concierna al servicio de la Federación y no estuviere encargado a sus agentes particulares.
