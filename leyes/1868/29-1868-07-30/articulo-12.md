@@ -1,0 +1,1 @@
+Art. 12. Las altas partes contratantes se comprometen á recibir á los comisionados y ajentes que la una acredite cerca de la otra, y á darles buena acojida conforme al derecho y práctica jeneral de las naciones.
