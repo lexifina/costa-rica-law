@@ -13,3 +13,4 @@ Reglamento Sobre Granjas Avícolas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-01-27 | la propia norma |
+| 2 | 2002-04-02 | Decreto Ejecutivo 30293 (2002-04-02) |
