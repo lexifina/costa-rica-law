@@ -1,0 +1,1 @@
+Artículo 2°—Por medio del presente Decreto Ejecutivo, téngase por modificado y adicionado el Decreto Ejecutivo número 20517-MIRENEN, del 5 de junio de 1991, únicamente en lo que respecta a la categoría de manejo, manteniéndose los límites establecidos mediante los decretos ejecutivos 20517-MIRENEM y 21221-MIRENEM.

@@ -1,0 +1,1 @@
+Artículo 5°—Los terrenos o fincas no inscritos en el Registro Público, ni amparados por la posesión decenal, serán adquiridas por el Estado, previo pago a sus ocupantes de las mejores correspondientes.
