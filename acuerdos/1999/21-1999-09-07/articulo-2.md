@@ -1,0 +1,6 @@
+Artículo 2°—Información mínima. La Bolsa respectiva deberá asegurarse de que para los valores transados, tanto en mercado secundario como al amparo del Capítulo IV del Reglamento para la oferta pública y negociación de títulos extranjeros y para la compra y venta de títulos extranjeros en los mercados internacionales, se cuente con la siguiente información mínima:
+1) Información en tiempo real de los precios de cotización de los valores. La Bolsa respectiva velará porque los sistemas que contraten los puestos de bolsa con las agencias señaladas en el artículo anterior provean información en tiempo real. Para estos efectos se considerará que cumplen con dicha disposición aquellos sistemas en los que el retraso en el recibo de la información sea razonable para esta Superintendencia. ,
+2) Prospecto informativo aprobado por el ente regulador correspondiente.
+3) Información financiera y demás información periódica que el emisor de tales títulos está obligado a suministrar en el mercado en el que esté inscrito.
+4) Hechos relevantes.
+5) Calificación de riesgo de riesgo vigente. Para estos efectos únicamente se reconocen las clasificaciones emitidas por las compañías Moody's, Standard & Poor's y Duff& Pheips.

@@ -1,0 +1,1 @@
+Transitorio II.—Los fondos de inversión que hubieren adquirido títulos o valores extranjeros que de conformidad con el Reglamento para la inversión de los recursos de los fondos de inversión en títulos o valores extranjeros no califican como títulos autorizados, podrán conservarlos en sus carteras hasta su vencimiento.

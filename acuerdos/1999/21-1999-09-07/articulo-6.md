@@ -1,0 +1,1 @@
+Artículo 6°—Apertura de cuenta con intermediarios bursátiles. El puesto de bolsa o la sociedad administradora deberán contar con contratos de apertura de cuenta con intermediarios bursátiles autorizados por los órganos reguladores del mercado en el que los valores se adquieran.

@@ -1,0 +1,1 @@
+Artículo 7°—Entidades de custodia autorizadas. Se tendrán por autorizadas las entidades de custodia que se encuentren adheridas a los siguientes custodios globales: Depositary Trust Company, Cedel o Euroclear.
