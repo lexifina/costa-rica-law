@@ -14,3 +14,4 @@ Reglamento Interior de Trabajo de Procuraduría General de la República
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1972-12-29 | la propia norma |
+| 2 | 1973-09-12 | Decreto Ejecutivo 3204 (1973-09-12) |
