@@ -1,0 +1,1 @@
+Artículo 36.- El Benemérito Cuerpo de Bomberos a través de su Departamento de Ingeniería de Riesgos emitirá el criterio técnico sobre la seguridad integral contra incendios, con base en las normas oficiales dictadas por el Ministerio de Economía, Industria y Comercio y el Ministerio de Salud, en un plazo no mayor de diez días hábiles luego de recibidos los planos constructivos.

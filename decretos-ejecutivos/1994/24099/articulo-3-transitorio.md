@@ -1,0 +1,1 @@
+Transitorio III.- Las regulaciones para el transporte de sustancias o productos tóxicos y sustancias productos u objetos peligrosos, se dictarán mediante las regulación que pondrá en práctica el Ministerio de Obras Públicas y Transportes conjuntamente con el Ministerio de Salud y el Ministerio de Economía, Industria y Comercio.

@@ -1,0 +1,1 @@
+Artículo 68.- El Registrante estará en la obligación de mantener actualizada la información referente al producto que ha registrado, y en caso de comprobarse incumplimiento de esta obligación el Departamento podrá cancelar el registro cuya información no ha sido suministrada y actualizada por el Registrante.

@@ -1,0 +1,1 @@
+Artículo 13.- La vigencia de la etiqueta será por 2 años, igual plazo regirá para la inscripción de sustancias, productos u objetos tóxicos o peligrosos. Es entendido que el plazo de registro será igual que el de la vigencia de la etiqueta, siendo ambos requisitos igualmente importantes para los efectos de aplicación del presente Reglamento.

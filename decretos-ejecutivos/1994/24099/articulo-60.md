@@ -1,0 +1,1 @@
+Artículo 60.- El Departamento resolverá el Recurso de Revocatoria en un término de 3 días hábiles siguientes a la presentación y si fuere declarado sin lugar, elevará los autos a conocimiento del ministro quien resolverá en definitiva el recurso.

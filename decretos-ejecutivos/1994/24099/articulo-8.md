@@ -1,0 +1,2 @@
+Artículo 8.- El Departamento, cuando lo estime conveniente realizará el muestreo de los productos, tanto a nivel de producción como de canasta de mercado, siguiendo las normas nacionales e internacionales en esta materia. El costo del muestreo y análisis, será sufragado por el registrante.
+Además el registrante aportará un esquema para la toma de muestras representativo para el producto, el cual servirá de referencia, no siendo vinculante para el Departamento.

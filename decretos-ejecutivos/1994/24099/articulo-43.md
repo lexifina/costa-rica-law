@@ -1,0 +1,1 @@
+Artículo 43.- El Departamento mantendrá un registro actualizado sobre los accidentes ocurridos durante el transporte, manipulación, fabricación, venta, distribución de almacenamiento de sustancias, productos u objetos tóxicos o peligrosos y remitirá periódicamente está información a la Comisión Nacional de Emergencia a través del Comité Asesor Técnico en Emergencias Tecnológicas.

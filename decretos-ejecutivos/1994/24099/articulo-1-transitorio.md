@@ -1,0 +1,1 @@
+Transitorio I.- En tanto no sea emitida mediante Decreto Ejecutivo la Norma Oficial de Etiquetas para sustancias o productos Tóxicos o peligrosos, citada en el artículo décimo primero de este reglamento, se estará a lo dispuesto en esta materia por el Decreto 23313-S del 6 de mayo de 1994.

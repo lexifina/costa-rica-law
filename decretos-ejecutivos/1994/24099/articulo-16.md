@@ -1,0 +1,1 @@
+Artículo 16.- La solicitud de renovación de un producto y objeto tóxico y peligroso será válida solo para un producto y deberá ser presentada 90 días antes de la fecha de vencimiento del registro correspondiente ante el Departamento.

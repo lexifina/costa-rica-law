@@ -1,0 +1,1 @@
+Artículo 15.- La renovación del registro consistirá en la actualización por parte del registrante de la información referente al producto que ha registrado. Caso de comprobarse incumplimiento de esta obligación el Departamento podrá revocar el registro cuya información no sea debidamente actualizada.

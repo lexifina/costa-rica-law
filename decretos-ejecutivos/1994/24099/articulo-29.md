@@ -1,0 +1,1 @@
+Artículo 29.- Las operaciones de, carga, descarga y almacenamiento se deben realizar tomando las precauciones necesarias para evitar derrames, roturas, abolladuras o cualquier otro tipo de deterioro de los envases que pueden producir fugas, evaporación, descomposición, explosión, inflamación o escape de las sustancias, productos u objetos tóxicos o peligrosos contenidos.

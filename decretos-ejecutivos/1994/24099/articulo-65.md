@@ -1,0 +1,1 @@
+Artículo 65.- El Departamento tendrá amplias facultades para regular los aspectos no contemplados en este Reglamento en relación a la importación, fabricación, manipulación, almacenamiento, venta, distribución, o suministro de sustancias, productos u objetos tóxicos o peligrosos, Productos u Objetos Peligrosos.
