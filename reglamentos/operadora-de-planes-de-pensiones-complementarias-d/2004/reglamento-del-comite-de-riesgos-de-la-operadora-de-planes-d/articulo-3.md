@@ -1,0 +1,4 @@
+Artículo 3º—De las sesiones, acuerdos y actas. El Comité sesionará ordinariamente al menos una vez al mes y extraordinariamente a criterio del Presidente o cuando alguno de los miembros lo requiera, previa solicitud escrita a la Presidencia.
+En los casos en que el Comité de Riesgos adopte acuerdos que no sean unánimes, dentro de tres días hábiles posteriores a la firmeza, se informará a la Junta Directiva de la Operadora, especificando las causas por las cuales no se alcanza la unanimidad.
+Toda sesión se grabará en cinta, la cual deberá custodiar el Presidente del Comité por lo menos durante un año. El libro de actas se llevará conforme al artículo 5, 6 y 8 del Reglamento de Inversiones y las disposiciones de la Superintendencia de Pensiones para la utilización del libro de actas electrónico.
+Las actas deberán ser firmadas por el presidente y el secretario del Comité de Riesgos.
