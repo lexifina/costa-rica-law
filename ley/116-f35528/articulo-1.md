@@ -28,9 +28,11 @@ su territorio marítimo, terrestre y aéreo, es obligación ineludible del
 Estado, darle su protección.
 Por tanto,
 DECRETA:
-ARTÍCULO 1º.- Se confirma y proclama la Soberanía Nacional sobre toda
-la plataforma submarina o zócalo continental e insular adyacente a las
-costas continentales e insulares del territorio nacional, cualquiera que
-sea la profundidad a que éste se encuentre, reafirmando el derecho
-inalienable de la Nación en todas las riquezas naturales que existen
-sobre, en, o bajo dicho zócalo o plataforma, conocidas o por conocer.
+ARTÍCULO 1º.-Se confirma y proclama la Soberanía Nacional en toda la
+plataforma submarina o zócalo continental e insular adyacente a las costas
+continentales e insulares del territorio nacional, cualquiera que sea la
+profundidad a que éste se encuentre, reafirmando el derecho inalienable de
+la Nación en todas las riquezas naturales que existen en dicho zócalo o
+plataforma.
+(Así reformado por el artículo 1º de la ley No.803 de 2 de noviembre
+de 1949)
