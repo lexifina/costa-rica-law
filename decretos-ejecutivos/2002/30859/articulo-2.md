@@ -1,0 +1,22 @@
+Artículo 2º—Modifícase la relación de puestos de Cargos Fijos de la Defensoría de los Habitantes de la República, contenidos en el Anexo Nº 1 de la Ley Nº 8180 de 6 de diciembre del 2001, en la forma que se indica a continuación:
+Aumentar
+000 RELACIÓN DE PUESTOS DE CARGOS FIJOS PARA EL AÑO 2002
+121 - DEFENS. DE LOS HABIT. DE LA REP.
+Cuota Cuota
+Código Clase Detalle de los puestos mensual anual
+121.808 DEFENSORÍA DE LOS
+HABITANTES DE LA
+REPÚBLICA
+121.808-00.01 UNIDAD DE DEFENSORÍA
+GENERAL 326.300
+121.808-00.01.0001 DIRECCIÓN DE DESPACHO 326.300
+10125 2 OFICIAL DE ADMISIBILIDAD
+a 163.150 cls c/u (1.0 mes) 326.300 326.300
+TOTAL AUMENTAR SUELDOS
+PROGRAMA: 808 DEFENSORÍA
+DE LOS HABITANTES DE LA
+REPÚBLICA 326,300
+TOTAL AUMENTAR SUELDOS
+TÍTULO: 121 DEFENS. DE LOS
+HABIT. DE LA REP. 326,300
+TOTAL AUMENTAR SUELDOS 326,300
