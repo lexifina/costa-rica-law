@@ -1,0 +1,2 @@
+Artículo 85.—El Departamento de Recursos Humanos, previa aprobación de la Dirección General de Servicio Civil, podrá modificar o cambiar los factores que conforman la evaluación del desempeño, con el fin de que concuerden con las circunstancias propias del Ministerio.
+Dicho Departamento será el encargado de dar seguimiento al proceso de evaluación del desempeño, además de preparar y distribuir en forma oportuna el material correspondiente.

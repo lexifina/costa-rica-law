@@ -1,0 +1,1 @@
+Artículo 126.—Para resolver un caso determinado, a falta de disposiciones de este reglamento deberán tenerse como normas supletorias el Estatuto de Servicio Civil y su Reglamento, la Ley General de la Administración Pública, el Código de Trabajo y demás leyes y reglamentos supletorios y conexos.

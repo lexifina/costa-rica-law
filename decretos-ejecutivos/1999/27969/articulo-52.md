@@ -1,0 +1,4 @@
+Artículo 52.—Como regla general, la remuneración de las vacaciones será de acuerdo con el salario correspondiente asignado en la Ley de Salarios de la Administración Pública o en la Ley de Presupuesto, según se trate. En su defecto, se hará con el salario vigente a la fecha en que el servidor disfruta del descanso anual.
+Esa remuneración se calculará con base en el tiempo efectivo de labores y el promedio de los salarios ordinarios y extraordinarios devengados durante las respectivas últimas cincuenta semanas de servicio. A tal efecto, se tomarán en cuenta los subsidios recibidos por el servidor de parte del Estado o de sus Instituciones de Seguridad Social, en los casos siguientes:
+a) Cuando el servidor hubiere estado incapacitado para trabajar por razón de enfermedad o riesgo del trabajo, durante un período mayor de seis meses; y,
+b) Cuando el servidor hubiere disfrutado de licencia sin goce de salario por más de treinta días consecutivos o no.

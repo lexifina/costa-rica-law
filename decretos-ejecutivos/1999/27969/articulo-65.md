@@ -1,0 +1,2 @@
+Artículo 65.—Las licencias concedidas según el artículo anterior serán únicamente por el tiempo necesario para traslados y para concurrir a lecciones. El servidor debe asistir a labores durante los períodos y días libres que conceda el correspondiente centro educacional.
+Salvo disposiciones expresas en contrario, estas licencias serán con goce de salario. En casos muy calificados, no sujetos a otras disposiciones referentes a licencias para estudios, podrá concederse licencia sin goce de salario, siempre que sea autorizada por el Estatuto de Servicio Civil o su Reglamento.

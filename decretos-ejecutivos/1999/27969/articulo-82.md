@@ -1,0 +1,1 @@
+Artículo 82.—En caso de recargo de funciones, el servidor devengará el salario base correspondiente a la categoría del puesto que se le recargue; todo de conformidad con lo que señalan los artículos 13 de la Ley de Salarios de la Administración Pública y 22 bis del Reglamento del Estatuto.

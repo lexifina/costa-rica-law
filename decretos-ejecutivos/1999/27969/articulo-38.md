@@ -1,0 +1,1 @@
+Artículo 38.—Salvo causa justificada, todo servidor está obligado a prestar sus servicios en las oficinas centrales o en cualquier otro lugar de la República, cuando situaciones de emergencia así lo exijan, a juicio del Ministerio, siempre que se le reconozcan los gastos de transporte y de permanencia o viáticos correspondientes.

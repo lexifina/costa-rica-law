@@ -1,0 +1,1 @@
+Artículo 17.—Los jefes inmediatos serán los responsables de advertir a los funcionarios sobre la prohibición del fumado. El Ministerio deberá, asimismo, indicar dicha prohibición por medio de rótulos en lugares visibles.

@@ -1,0 +1,1 @@
+Artículo 26.—Todo servidor tendrá derecho a licencia por una jornada completa con goce de salario el día de su cumpleaños. Dicho beneficio se dará a solicitud del interesado, previa autorización del jefe inmediato y siempre y cuando esa fecha coincida con día hábil de labores.

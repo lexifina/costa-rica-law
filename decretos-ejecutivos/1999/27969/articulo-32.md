@@ -1,0 +1,3 @@
+Artículo 32.—El Ministerio podrá modificar transitoriamente los horarios establecidos en este reglamento, siempre que circunstancias especiales así lo exijan y en tanto no se cause perjuicio grave a sus servidores. El cambio temporal de horario deberá comunicarse a los afectados, con un mínimo de tres días de anticipación.
+La variación definitiva de los horarios deberá aprobarse por modificación de este reglamento mediante decreto ejecutivo.
+No obstante lo dicho en los dos párrafos anteriores, es entendido que el Ministerio podrá aplicar horarios flexibles en las Oficinas y Dependencias cuyos servicios lo justifiquen, siempre que se labore la jornada mínima general correspondiente y se ajusten a la normativa aplicable al efecto.

@@ -1,0 +1,3 @@
+Artículo 48.—Cuando una enfermedad incapacite al servidor para el desempeño de sus labores por un plazo que no exceda de un día, podrá justificarse la ausencia a labores por otro medio que no sea el certificado médico, a juicio del jefe inmediato o del director correspondiente. Dicho plazo podrá ampliarse a dos días, en casos muy calificados, a juicio del director respectivo.
+Para los casos muy calificados, no previstos en este reglamento ni en el Estatuto de Servicio Civil y su Reglamento, a juicio del director respectivo y con la aprobación del Oficial Mayor y Director General Administrativo, se podrán justificar ausencias que no sean por enfermedad comprobada.
+En ninguno de dichos casos la justificación significa pago de salario.

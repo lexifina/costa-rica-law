@@ -1,0 +1,1 @@
+Artículo 93.—Contra la resolución final que se dicte cabrá el recurso de reposición; el cual deberá interponerse ante el Despacho del Ministro de Trabajo y Seguridad Social, dentro de los dos meses siguientes al de su notificación y deberá ser resuelto dentro de los ocho días siguientes a su recibo.

@@ -1,0 +1,1 @@
+Artículo 60.—Los demás permisos, no contemplados en el numeral anterior, podrán otorgarse por el Ministro y el período de licencia con goce de salario se deducirá de las vacaciones correspondientes. En estos casos, el número de días de la licencia no podrá exceder el que por concepto de vacaciones tenga derecho el servidor al momento de concederse el permiso.

@@ -1,0 +1,3 @@
+Artículo 79.—Cada vez que haya una nueva fijación de salarios, el Departamento de Recursos Humanos revisará los salarios básicos acordados por el Poder Ejecutivo, a fin de que ningún servidor devengue menos del salario que le corresponde según su categoría.
+Dicho Departamento hará los ajustes necesarios, para equiparar los salarios de aquellos puestos excluidos del Régimen de Servicio Civil a los correspondientes de dicho régimen y los incluirá en el anteproyecto del Presupuesto Nacional.
+Todo lo anterior se hará de oficio y sin perjuicio de las atribuciones que en esta materia tiene la Dirección General de Servicio Civil.

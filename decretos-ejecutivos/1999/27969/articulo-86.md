@@ -1,0 +1,1 @@
+Artículo 86.—La evaluación del desempeño del servidor de que se trate se hará por el jefe inmediato respectivo, según las disposiciones contenidas en los artículos 42, 43 y 44 del Reglamento del Estatuto de Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 115.—En los casos de suspensión disciplinaria, una vez firme el acto que la acuerde, se hará la rebaja de salario en la forma y oportunidad que establezca el Departamento de Recursos Humanos.

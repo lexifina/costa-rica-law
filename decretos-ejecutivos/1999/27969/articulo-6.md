@@ -1,0 +1,2 @@
+Artículo 6º—Dicho Departamento constituye un elemento del sistema de administración de recursos humanos de la Administración; y, por tanto, en esta materia dependerá técnicamente de la Dirección General de Servicio Civil. Será responsable de la aplicación de las normas y disposiciones técnicas que emita dicha dependencia.
+Cumplirá y ejecutará todas las demás funciones, tareas y actividades propias de la administración de recursos humanos que le asignen el ordenamiento jurídico y las autoridades ministeriales.

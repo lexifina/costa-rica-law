@@ -1,0 +1,8 @@
+Artículo 13.—Además de las contempladas en el artículo anterior y en otros de este reglamento, los choferes y los servidores autorizados para manejar vehículos del Ministerio tendrán las siguientes obligaciones específicas:
+a) Obedecer las normas de tránsito vigentes.
+b) Acatar las órdenes que imparta el Jefe de Transportes o el jefe de la dependencia del Ministerio a la que estén asignados los vehículos, para que presten sus servicios en los lugares y por el tiempo que las necesidades de las labores así lo requieran.
+c) Seguir las instrucciones que sobre la buena marcha de la misión indique el servidor encargado de ésta.
+d) Velar por la custodia, limpieza y conservación del vehículo que se les asigne durante el ejercicio de sus labores, así como verificar que se encuentre en buen estado de funcionamiento y que posea las herramientas e implementos necesarios para su uso idóneo.
+e) Informar a la Oficialía Mayor y Dirección General Administrativa respecto de cualquier accidente e incidente que les ocurra, por leve que sea, suministrando los nombres y apellidos de las personas afectadas, los daños que sufra el vehículo y el lugar y las circunstancias en que se produjo el accidente, robo o hurto. Salvo causa justificada, este informe debe rendirse inmediatamente después de ocurrido el hecho, con copia para la Dirección responsable de la misión y para la Jefatura de Transportes.
+f) Guardar el vehículo en el lugar destinado para ese efecto y entregar las llaves al Jefe de Transportes o al encargado respectivo, para su debida custodia, salvo cuando estén en gira o en misiones especiales del servicio.
+g) Contar con la respectiva licencia de conducir al día.

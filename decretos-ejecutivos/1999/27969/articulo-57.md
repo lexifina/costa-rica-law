@@ -1,0 +1,1 @@
+Artículo 57.—No interrumpirán la continuidad de los servicios las licencias sin goce de salario, los descansos otorgados por el Código de Trabajo y demás leyes conexas, la enfermedad justificada del servidor, la prórroga o renovación inmediata del contrato ni ninguna otra causa análoga que no termine con la relación de servicios.

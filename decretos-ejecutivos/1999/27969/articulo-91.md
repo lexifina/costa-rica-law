@@ -1,0 +1,4 @@
+Procedimiento para la denuncia:
+Artículo 91.—Quien quiera denunciar acoso u hostigamiento sexual contra una persona o personas, cualquiera que sea su rango, podrá hacerlo en forma oral o escrita ante el Departamento de Recursos Humanos, ofreciendo en el mismo acto toda la prueba que considere oportuna.
+En caso de formularse la denuncia de manera oral, en el mismo acto se levantará acta; la cual deberá ser firmada por el o la denunciante.
+Inmediatamente después de recibida la denuncia, el citado Departamento convocará a los representantes de la Dirección Nacional de Seguridad Social y de la Dirección de Asuntos Jurídicos, para que, en conjunto con un representante suyo, integren el órgano director del procedimiento de investigación y procedan a realizar los trámites correspondientes. Dicho órgano deberá estar integrado con al menos un licenciado en Derecho.

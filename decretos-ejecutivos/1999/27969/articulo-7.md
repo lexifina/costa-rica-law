@@ -1,0 +1,3 @@
+CAPITULO III
+De las relaciones de servicio
+Artículo 7º—Las relaciones de servicio entre los servidores y funcionarios con el Ministerio se regirán por las disposiciones del Estatuto y sus Reglamentos, la Ley de Salarios de la Administración Pública, la Ley General de la Administración Pública, el Código de Trabajo y demás leyes supletorias y conexas. Se excluyen las personas contratadas por servicios especiales, conforme con el artículo 105 de la Ley de la Administración Financiera de la República, así como los integrantes de órganos colegiados adscritos al Ministerio y remunerados mediante dietas.

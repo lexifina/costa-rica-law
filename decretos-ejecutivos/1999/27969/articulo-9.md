@@ -1,0 +1,2 @@
+Artículo 9º—Los nombramientos de los servidores que se efectúen con sujeción al Régimen de Servicio Civil se entenderán por tiempo indefinido. Se exceptúan los nombramientos interinos y de servicios especiales, según lo establecido en los incisos j), k) y l) del artículo segundo de este reglamento.
+Los servidores no amparados por dicho Régimen deberán suscribir un contrato de servicios por tiempo definido, de acuerdo con las disposiciones del Código de Trabajo.

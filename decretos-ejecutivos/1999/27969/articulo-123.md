@@ -1,0 +1,1 @@
+Artículo 123.—En todo caso de terminación de la relación de servicios, el interesado deberá plantear en tiempo el correspondiente reclamo para el pago de los derechos adeudados. Caso contrario, el Ministerio declarará la prescripción legal, cuando proceda.

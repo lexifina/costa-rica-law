@@ -1,0 +1,2 @@
+Artículo 24.—El Ministerio permitirá que sus servidores realicen actividades conmemorativas fuera de la jornada laboral, en los Días de la Madre y del Padre, así como en los días asignados a las diversas profesiones como el Día del Abogado y el Día del Trabajador Social.
+Siempre que haya recursos presupuestarios suficientes, el Ministerio efectuará actividades alusivas en la época de Navidad y el 14 de setiembre; el cual se establece como el Día del Ministerio de Trabajo y Seguridad Social, para conmemorar la fecha de su fundación.

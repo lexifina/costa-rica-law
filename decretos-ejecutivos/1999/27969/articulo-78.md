@@ -1,0 +1,2 @@
+Artículo 78.—Con el fin de elevar la eficiencia en la prestación de los servicios, el Ministerio procurará implantar un programa de incentivos salariales por productividad, en coordinación con la Dirección General de Servicio Civil. La determinación de criterios, parámetros y normas de productividad se hará para aquellas labores que por su propia naturaleza permitan cuantificar sus resultados.
+Todo lo relativo al programa de incentivos salariales por productividad será normado en un reglamento específico que se dictará para tales efectos.

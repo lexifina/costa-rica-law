@@ -1,0 +1,2 @@
+Artículo 36.—Salvo impedimento grave, los servidores están en la ineludible obligación de laborar horas extraordinarias hasta por el máximo permitido por la ley, cuando necesidades imperiosas e impostergables del Ministerio así lo requieran.
+En cada caso, el Ministerio deberá comunicar a los servidores con anticipación la jornada extraordinaria que deben laborar, siempre y cuando ello sea posible. La negativa injustificada a laborar jornada extraordinaria se tendrá como falta grave, para efectos de sanción.
