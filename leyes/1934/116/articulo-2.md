@@ -1,1 +1,0 @@
-Artículo 2°-La infracción de esta ley será penada por la primera vez con una multa de cien a doscientos colones; la segunda con una multa de doscientos a trescientos colones y de la tercera en adelante de trescientos a quinientos colones.
