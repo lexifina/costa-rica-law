@@ -1,7 +1,1 @@
-ARTICULO 8.- Deróganse el Código de Procedimientos Civiles emitido
-por la ley No. 50 del 25 del enero de 1933 y sus reformas, los
-artículos 719 a 763, 895, 896, 897, 936, 957 del Código Civil, 869,
-870, el inciso d) del 873, y 906 del Código de Comercio; y 153 a 171,
-173 a 192, 199 a 210 de la Ley Orgánica del Poder Judicial. Derógase
-también, de esta última ley, y de cualesquiera otras, todo cuanto se
-refiera a los bachilleres en leyes y procuradores judiciales.
+ARTICULO 8.- Deróganse el Código de Procedimientos Civiles emitido por la ley No. 50 del 25 del enero de 1933 y sus reformas, los artículos 719 a 763, 895, 896, 897, 936, 957 del Código Civil, 869, 870, el inciso d) del 873, y 906 del Código de Comercio; y 153 a 171, 173 a 192, 199 a 210 de la Ley Orgánica del Poder Judicial. Derógase también, de esta última ley, y de cualesquiera otras, todo cuanto se refiera a los bachilleres en leyes y procuradores judiciales.

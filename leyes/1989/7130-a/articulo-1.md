@@ -1,4 +1,2 @@
-CODIGO PROCESAL CIVIL
-ARTICULO 1.- Díctase el siguiente Código Procesal Civil:
-(NOTA: el texto original del Código Procesal Civil debe consultarse
-en la ley No.7130-0)
+ARTÍCULO 1º.- Dictase el siguiente CODIGO PROCESAL CIVIL
+(Nota de Sinalevi: El texto vigente del Código Procesal Civil debe ser consultado en la ley No.7130-0)
