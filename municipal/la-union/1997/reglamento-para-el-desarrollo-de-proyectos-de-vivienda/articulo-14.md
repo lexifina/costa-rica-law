@@ -1,0 +1,1 @@
+Artículo 14.—Podrá la Municipalidad por su medio, obtener otro tipo de recursos, por medio de partidas específicas, aportes de asociaciones o comités especiales de vivienda, donaciones de instituciones públicas y privadas, que vengan a engrosar y facilitar el fondo económico del proyecto.

@@ -1,0 +1,5 @@
+Artículo 4°—Serán funciones propias de CEMUVI, además de las indicadas en el Reglamento respectivo, las siguientes:
+a) Iniciar y promover los trámites necesarios ante las autoridades competentes para lograr la elaboración y desarrollo de los proyectos de vivienda municipal.
+b) Conocer los expedientes requeridos de todos los posibles beneficiarios, analizarlos y dictaminar sobre ellos a fin de que el Concejo tenga suficientes elementos de juicio para el otorgamiento o denegatoria de las solicitudes presentadas para accesar a este beneficio.
+c) Coordinar con el Ministerio de Vivienda y Asentamientos Humanos o con quien este designe. Instituto de Vivienda y Urbanismo, Instituto Mixto de Ayuda Social y otros, todo lo relacionado a los proyectos que desarrolla la Municipalidad a fin de lograr una mejor utilización de los recursos para dar solución a los problemas de vivienda del cantón.
+d) Supervisar el desarrollo de los proyectos de vivienda que promueve la Municipalidad para que los mismos cumplan con los lineamientos establecidos y acordados por el Concejo.

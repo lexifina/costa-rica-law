@@ -1,0 +1,1 @@
+Artículo 19.—El financiamiento se hará a diez años plazo, con hipoteca de primer grado sobre el inmueble a favor de la Municipalidad, como garantía real del cumplimiento de los pagos establecidos en cada caso, la cual será ejecutada sin responsabilidad alguna para la Municipalidad, si el adjudicatario sufre un atraso de seis meses en el pago de sus obligaciones.

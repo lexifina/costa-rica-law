@@ -1,0 +1,1 @@
+Artículo 24.—Podrá la Municipalidad por medio de Convenio debidamente autorizado, gestionar ante las autoridades respectivas, sistemas de financiamiento para la construcción de sus proyectos, incluyendo las viviendas, con entidades debidamente autorizadas por el Sistema Financiero Nacional para la Vivienda.

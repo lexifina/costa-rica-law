@@ -1,0 +1,1 @@
+Artículo 22.—Cualquier otro servicio que sea necesario, deberá ser cubierto por el adjudicatario, en el entendido que la Municipalidad únicamente cubrirá los gastos necesarios para la suscripción de la escritura de traspaso de inmueble.

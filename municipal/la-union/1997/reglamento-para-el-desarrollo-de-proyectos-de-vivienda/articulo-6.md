@@ -1,0 +1,1 @@
+Artículo 6°—Los estudios solicitados así como la elaboración y desarrollo de los proyectos, los podrá efectuar la Municipalidad con sus recursos humanos y técnicos o mediante la contratación de esos si es que por razones de experticia, calidad o tiempo no se pueden utilizar los municipales.

@@ -1,0 +1,1 @@
+Artículo 15.—CEMUVI, podrá colaborar con las gestiones que busquen la obtención de más y mejores recursos para el proyecto, siempre y cuando el Concejo así lo autorice y se canalicen por los medios cuando el Concejo así lo autorice y se canalicen por los medios que las leyes facultan a este tipo de acciones.

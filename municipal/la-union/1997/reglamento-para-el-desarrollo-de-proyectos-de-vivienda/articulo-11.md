@@ -1,0 +1,1 @@
+Artículo 11.—Todo funcionario municipal, podrá ser beneficiario de estos proyectos, siempre y cuando esté dentro de los condicionamientos que la ley fija para este tipo de casos, entendiéndose por acreedor de tal beneficio, solo quien es funcionario, no sus familiares.
