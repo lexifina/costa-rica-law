@@ -1,0 +1,370 @@
+Nº 29890-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Considerando:
+1º—Que el Numeral 5, inciso b) del artículo 7° de la ley Nº 8050 de 7 de diciembre del 2000. "Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2001". faculta al Misterio de Hacienda. para trasladar previa autorización de la Contraloría General de la República. los sobrantes de las partidas de servicios personales y sus correspondientes cargas sociales. para atender el pago de servicios personales y sus correspondientes cargas sociales. sobrantes en prestaciones legales y en las partidas destinadas a la erogación de los diferentes regímenes de pensiones cargados al presupuesto nacional. para financiar las partidas del servicio de la deuda pública. las partidas para pagar pensiones y prestaciones legales con cargo al Gobierno Central o el pago de servicios personales y sus correspondientes cargas sociales en los programas presupuestarios en que se generen faltantes. De la misma manera. se le autoriza para que realice. en forma inversa. los traslados antes mencionados.
+2º—Que el inciso 6) del artículo 7° de la ley Nº 8050 de 7 de diciembre del 2000. establece:
+"Autorízase al Poder Ejecutivo para que. con la finalidad de adecuar los recursos presupuestarios a la programación a partir del segundo trimestre del año. mediante decreto ejecutivo elaborado por la Dirección General de Presupuesto Nacional y previa autorización de la Contraloría General de la República. pueda ordenar. dentro de un mismo programa o subprograma. traspasos entre los gastos autorizados en la presente ley.
+Asimismo. sin modificar el monto de los recursos asignados al programa. podrán reordenar traspasos por medio de la creación de un nuevo tipo de gasto. cuando este resulte indispensable para conseguir los objetivos y las metas de producción establecidos por cada programa o subprograma presupuestario.
+Sin embargo. para lo anterior se atenderán las siguientes restricciones:
+a) No se rebajarán las siguientes partidas y subpartidas: Las destinadas a cubrir servicios personales. excepto lo dispuesto en el inciso b) de la norma anterior; tampoco las transferencias que incluyan el pago de salarios. ni las partidas destinadas al pago de telecomunicaciones. energía eléctrica. productos alimenticios de los Ministerios de Seguridad Pública y de Justicia y Gracia. cuentas pendientes de ejercicios anteriores. ni las partidas destinadas a la ejecución de obras inconclusas y de carácter prioritario.
+b) No podrán aumentarse. las sumas autorizadas en esta Ley. para gastos de representación. artículos y gastos para recepciones. gastos de viaje al exterior. gastos de transporte de o para el exterior y asignaciones globales.
+Las solicitudes de traspaso de partidas de un mismo programa o subprograma. sin perjuicio de las disposiciones internas que establezca el superior jerárquico de la institución. deben presentarse por escrito. firmadas por el jefe del programa o del subprograma según corresponda. y autorizadas por el superior jerárquico de la institución; deberán ser acompañadas por las respectivas justificaciones y la certificación de los saldos disponibles en las subpartidas sujetas a rebajar. firmada por el oficial presupuestal. así como de la reprogramación que ocasionará la solicitud de traslado planteada. en los productos. los objetivos. las metas de gestión y los indicadores.
+Autorízase el traslado de partidas entre subprogramas. bajo las excepciones aquí establecidas. siempre y cuando dichas modificaciones presupuestarias no afecten el monto total de presupuesto asignado al programa mediante la presente Ley.
+En cualquier momento. los traspasos citados podrán efectuarse para atender situaciones de emergencia o calamidad pública. previamente declaradas por el Poder Ejecutivo".
+3º—Que se hace necesario cubrir faltantes de salarios en los Programas 215- Actividades Centrales. Programa 216- Defensa Consumidor y Promoción de la Competencia. Programa 217- Normas y Unidades de Medida. Programa 222- Fomento Industrial. generados por resoluciones de reasignación de puestos emitidas por la Dirección General de Servicio Civil.
+4º—Que el Ministerio de Economía. Industria y Comercio. solicitó la confección del presente decreto ejecutivo. mediante Oficio Nº URH-887-01 de 20 de agosto del 2001.
+5º—Que el Ministerio de Obras Públicas y Transportes. solicitó la confección del presente decreto ejecutivo. mediante Oficios Nº OPFC-0658 de 24 de agosto del 2001. Oficio Nº FEP-0424 de 31 de agosto del 2001 y Oficio Nº FEP-427 de 3 de setiembre del 2001. para cubrir faltantes en salarios y las respectivas cargas sociales en los programas 326-00 Administración Superior. Programa 328-00 Puertos y Regulación Marítima. 329-00 Edificaciones Nacionales. Programa 330-00 Instituto Geográfico Nacional. Programa 331-00 Transporte Terrestre. así como modificar descripción de coletilla en Programa 332-00 Proyectos y transferencias Sectoriales.
+6º—Que la Contraloría General de la República aprobó el presente decreto mediante oficio Nº 11026 de 2 de octubre del 2001. Por tanto.
+Decretan:
+Artículo 1° Modifícase el artículo 2° de la Ley Nº 8050 del 7 de diciembre del 2000. en la forma que se indica a continuación:
+REBAJAR:
+TÍTULO: 111
+MINISTERIO DE ECONOMÍA. INDUSTRIA Y COMERCIO
+PROGRAMA: 215-00
+ACTIVIDADES CENTRALES
+Registro Contable: 111-215-00
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+G-O FF C-E CF I-P Concepto Monto en ¢
+0 SERVICIOS PERSONALES 17.000.000
+000 01 111 19 SUELDOS PARA CARGOS FIJOS 17.000.000
+Total Rebaja del Programa: 215-00 17.000.000
+PROGRAMA: 216-00
+DEFENSA CONSUMIDOR Y PROMOCIÓN DE LA COMPETENCIA
+Registro Contable: 111-216-00
+0 SERVICIOS PERSONALES 12.000.000
+000 01 111 46 SUELDOS PARA CARGOS FIJOS 12.000.000
+Total Rebaja del Programa: 216-00 12.000.000
+PROGRAMA: 217-00
+NORMAS Y UNIDADES DE MEDIDA
+Registro Contable: 111-217-00
+0 SERVICIOS PERSONALES 18.000.000
+000 01 111 46 SUELDOS PARA CARGOS FIJOS 18.000.000
+Total Rebaja del Programa: 217-00 18.000.000
+PROGRAMA: 222-00
+FOMENTO INDUSTRIAL
+Registro Contable: 111-222-00
+0 SERVICIOS PERSONALES 2.250.000
+000 01 111 46 SUELDOS PARA CARGOS FIJOS 2.250.000
+Total Rebaja del Programa: 222-00 2.250.000
+Total Rebaja del Título: 111 49.250.000
+TÍTULO: 112
+MINISTERIO DE OBRAS PÚBLICAS Y TRANSPORTES
+PROGRAMA: 326-00
+ADMINISTRACIÓN SUPERIOR
+Registro Contable: 112-326-00
+1 SERVICIOS NO PERSONALES 140.500.000
+150 01 112 47 SEGUROS 140.500.000
+2 MATERIALES Y SUMINISTROS 12.000.000
+202 01 112 47 GASOLINA. 12.000.000
+Total Rebaja del Programa: 326-00 152.500.000
+PROGRAMA: 328-00
+PUERTOS Y REGULACIÓN MARÍTIMA
+Registro Contable: 112-328-00
+1 SERVICIOS NO PERSONALES 2.975.000
+199 27 212 47 OTROS SERVICIOS NO PERSONALES
+(ADQUIS. LÍNEAS TELEF.. SIST. PROC.
+DATOS CAPIT. PUERTOS. UNIF. CAPIT..
+BUCEO. CHAPIAS. LIMP. . VIG..
+¢4.574.901 OTROS GASTOS CANON
+DE ARESEP. ¢6.500.000 CONTRAT.
+SERV. OPERACIÓN FERRY
+TEMPISQUE). 2.975.000
+Total Rebaja del Programa: 328-00 2.975.000
+PROGRAMA: 329-00
+EDIFICACIONES NACIONALES
+Registro Contable: 112-329-00
+1 SERVICIOS NO PERSONALES 415.000
+106 27 211 20 OTROS ALQUILERES 200.000
+112 27 211 20 INFORMACIÓN Y PUBLICIDAD 69.550
+144 27 211 20 TRANSPORTES DENTRO DEL PAÍS. 145.450
+2 MATERIALES Y SUMINISTROS 400.000
+270 27 211 20 REPUESTOS 400.000
+3 MAQUINARIA Y EQUIPO 1.250.000
+390 27 221 20 EQUIPOS VARIOS 1.250.000
+Total Rebaja del Programa: 329-00 2.065.000
+PROGRAMA: 330-00
+INSTITUTO GEOGRÁFICO NACIONAL
+Registro Contable: 112-330-00
+1 SERVICIOS NO PERSONALES 617.000
+114 01 112 15 IMPRESIÓN. ENCUADERN. Y OTROS 547.000
+124 01 112 15 SERVICIO DE CORREOS 70.000
+2 MATERIALES Y SUMINISTROS 3.183.000
+220 01 112 15 TEXTILES Y VESTUARIOS 350.000
+232 01 112 15 PRODUCTOS DE PAPEL Y CARTÓN 1.000.000
+234 01 112 15 IMPRESOS Y OTROS 723.000
+252 01 112 15 CEMENTO 500.000
+254 01 112 15 PROD. METAL. PARA LA CONSTR 100.000
+260 01 112 15 INSTRUM.. HERRAMIENT. Y OTROS 200.000
+284 01 112 15 ÚTILES Y MATERIAL DE LIMPIEZA 150.000
+286 01 112 15 OTROS ÚTILES Y MATER. ESPECIF. 160.000
+Total Rebaja del Programa: 330-00 3.800.000
+PROGRAMA: 331-00
+TRANSPORTE TERRESTRE
+Registro Contable: 112-331-00
+1 SERVICIOS NO PERSONALES 13.104.717
+106 01 112 47 OTROS ALQUILERES 700.000
+134 01 112 47 GAST. DE VIAJE DENTRO DEL PAÍS 1.000.000
+172 01 112 47 MANTEN. Y REPAR. MÓVIL. Y EQ. OFI. 1.000.000
+174 01 112 47 MANTEN. Y REPAR. MAQUIN. Y EQ. 2.100.000
+199 01 112 47 OTROS SERVICIOS NO PERSONALES
+(PAGO DE SERVICIOS DE LIMPIEZA.
+VIGILANCIA. SEMINARIOS
+ENTRE OTROS). 8.304.717
+2 MATERIALES Y SUMINISTROS 6.220.510
+206 01 112 47 OTROS COMBUST. GRASAS Y LUBRIC. 2.030.000
+214 01 112 47 OTROS PRODUCTOS QUÍMICOS 390.000
+220 01 112 47 TEXTILES Y VESTUARIOS 2.100.000
+232 01 112 47 PRODUCTOS DE PAPEL Y CARTÓN 400.000
+282 01 112 47 ÚTILES Y MATERIALES DE OFICINA 200.000
+284 01 112 47 ÚTILES Y MATERIAL DE LIMPIEZA 375.000
+299 01 112 47 OTROS MATERIALES Y SUMINISTROS 725.510
+Total Rebaja del Programa: 331-00 19.325.227
+PROGRAMA: 332-00
+PROYECTOS Y TRANSFERENCIAS SECTORIALES
+Registro Contable: 112-332-00
+6 TRANSFERENCIAS CORRIENTES 5.800.000
+682 CUOTAS A ORGANISMOS CENTROAM. 5.800.000
+682 01 133 47 200 SECRETARIA PERMANENTE DE
+INTEGRACIÓN ECONÓMICA
+CENTROAMERICANA (SIECA).
+(PAGO CUOTA ANUAL ORDINARIA
+POR REPRESENTACIÓN DEL
+MINISTERIO DE OBRAS PÚBLICAS
+Y TRANSPORTES).
+Céd. Jur.:3-003-045466 5.800.000
+Total Rebaja del Programa: 332-00 5.800.000
+Total Rebaja del Título: 112 186.465.227
+Total Rebajar 235.715.227
+AUMENTAR
+TÍTULO: 111
+MINISTERIO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+PROGRAMA: 215-00
+ACTIVIDADES CENTRALES
+Registro Contable: 111-215-00
+0 SERVICIOS PERSONALES 17.000.000
+000 01 111 19 SUELDOS PARA CARGOS FIJOS 17.000.000
+Total Aumento del Programa: 215-00 17.000.000
+Programa: 216-00
+DEFENSA CONSUMIDOR Y PROMOCIÓN DE LA COMPETENCIA
+Registro Contable: 111-216-00
+0 SERVICIOS PERSONALES 12.000.000
+000 01 111 46 SUELDOS PARA CARGOS FIJOS 12.000.000
+Total Aumento del Programa: 216-00 12.000.000
+PROGRAMA: 217-00
+NORMAS Y UNIDADES DE MEDIDA
+Registro Contable: 111-217-00
+0 SERVICIOS PERSONALES 18.000.000
+000 01 111 46 SUELDOS PARA CARGOS FIJOS 18.000.000
+Total Aumento del Programa: 217-00 18.000.000
+Programa: 222-00
+FOMENTO INDUSTRIAL
+Registro Contable: 111-222-00
+0 SERVICIOS PERSONALES 2.250.000
+000 01 111 46 SUELDOS PARA CARGOS FIJOS 2.250.000
+Total Aumento del Programa: 222-00 2.250.000
+Total Aumento del Título: 111 49.250.000
+Título: 112
+MINISTERIO DE OBRAS PÚBLICAS Y TRANSPORTES
+Programa: 326-00
+ADMINISTRACIÓN SUPERIOR
+Registro Contable: 112-326-00
+0 SERVICIOS PERSONALES 132.300.000
+000 01 111 47 SUELDOS PARA CARGOS FIJOS 117.300.000
+030 01 111 47 SUELDO ADICIONAL 15.000.000
+6 TRANSFERENCIAS CORRIENTES 19.603.969
+660 CONTRIB. PATRONAL A LA C.C.S.S. 16.254.000
+660 01 132 47 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL C.C.S.S. (CUOTA PATRONAL
+POR CONCEPTO DE SEGURO DE
+INVALIDEZ. VEJEZ Y MUERTE).
+Céd. Jur.:4-000-042147 5.514.750
+660 01 132 47 202 CAJA COSTARRICENSE DE SEGURO
+SOCIAL C.C.S.S.(CUOTA PATRONAL
+POR CONCEPTO DE SEGURO DE
+ENFERMEDAD Y MATERNIDAD).
+Céd. Jur.:4-000-042147 10.739.250
+661 CONTRIB. ESTATAL A LA C.C.S.S. 580.500
+61 01 132 47 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL C.C.S.S. (CONTRIBUCIÓN
+ESTATAL POR CONCEPTO DE
+INVALIDEZ. VEJEZ Y MUERTE).
+Céd. Jur.:4-000-042147 290.250
+661 01 132 47 202 CAJA COSTARRICENSE DE SEGURO
+SOCIAL C.C.S.S. (CONTRIBUCIÓN
+ESTATAL POR CONCEPTO DE
+ENFERMEDAD Y MATERNIDAD)
+Céd. Jur.:4-000-042147 290.250
+667 APORT. PATRON. REG. OBLIGAT.
+PENS. COMPLEMENTARIAS 1.705.219
+667 01 132 47 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (APORTE PATRONAL
+AL RÉGIMEN OBLIGATORIO DE
+PENSIONES COMPLEMENTARIAS.
+LEY DE PROTECCIÓN AL
+TRABAJADOR Nº 7983. DE 16 DE
+FEBRERO DEL 2000).
+Céd. Jur.:4-000-042147 1.705.219
+668 APORT. PATRON. FONDO
+CAPIT. LABORAL 1.064.250
+668 01 132 47 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL C.C.S.S. (APORTE PATRONAL
+FONDO DE CAPITALIZACIÓN
+LABORAL. LEY DE PROTECCIÓN
+AL TRABAJADOR Nº 7983 DE 16 DE
+FEBRERO DEL 2000)
+Céd. Jur.:4-000-042147 1.064.250
+7 TRANSFERENCIAS DE CAPITAL 596.031
+733 APORTES A ORGANISMOS FINANC. 596.031
+733 01 242 47 204 BANCO POPULAR Y DE DESARROLLO
+COMUNAL (PAGO CUOTA PATRONAL
+A BANCO POPULAR Y DE
+DESARROLLO COMUNAL).
+Céd. Jur.:4-000-042152 596.031
+Total Aumento del Programa: 326-00 152.500.000
+PROGRAMA: 328-00
+PUERTOS Y REGULACIÓN MARÍTIMA
+Registro Contable: 112-328-00
+1 SERVICIOS NO PERSONALES 2.975.000
+199 27 212 47 OTROS SERVICIOS NO PERSONALES
+(PARA CUBRIR CONTRATACIÓN DE
+SERVICIOS VARIOS. SEMINARIOS.
+ADQUISICIÓN DE LÍNEAS
+TELEFÓNICAS Y OTROS GASTOS). 2.975.000
+Total Aumento del Programa: 328-00 2.975.000
+PROGRAMA: 329-00
+EDIFICACIONES NACIONALES
+Registro Contable: 112-329-00
+0 SERVICIOS PERSONALES 2.065.000
+030 27 211 20 SUELDO ADICIONAL 2.065.000
+Total Aumento del Programa: 329-00 2.065.000
+PROGRAMA: 330-00
+INSTITUTO GEOGRÁFICO NACIONAL
+Registro Contable: 112-330-00
+0 SERVICIOS PERSONALES 3.300.000
+000 01 111 15 SUELDOS PARA CARGOS FIJOS 2.000.000
+030 01 111 15 SUELDO ADICIONAL 1.300.000
+6 TRANSFERENCIAS CORRIENTES 485.620
+660 CONTRIB. PATRONAL A LA C.C.S.S. 402.637
+660 01 132 15 200 CAJA COSTARRICENSE DE SEGURO,
+SOCIAL C.C.S.S. (CUOTA PATRONAL
+POR CONCEPTO DE SEGURO DE
+INVALIDEZ. VEJEZ Y MUERTE).
+Céd. Jur.:4-000-042147 136.609
+660 01 132 15 202 CAJA COSTARRICENSE DE SEGURO
+SOCIAL C.C.S.S. (CUOTA PATRONAL
+POR CONCEPTO DE SEGURO DE
+ENFERMEDAD Y MATERNIDAD).
+Céd. Jur.:4-000-042147 266.028
+661 CONTRIB. ESTATAL A LA C.C.S.S. 14.380
+661 01 132 15 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL C.C.S.S. (CONTRIBUCIÓN
+ESTATAL POR CONCEPTO DE
+INVALIDEZ. VEJEZ Y MUERTE).
+Céd. Jur.:4-000-042147 7.190
+661 01 132 15 202 CAJA COSTARRICENSE DE SEGURO
+SOCIAL C.C.S.S. (CONTRIBUCIÓN
+ESTATAL POR CONCEPTO DE
+ENFERMEDAD Y MATERNIDAD)
+Céd. Jur.:4-000-042147 7.190
+667 APORT. PATRON. REG. OBLIGAT.
+PENS. COMPLEMENTARIAS 42.240
+667 01 132 15 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (APORTE PATRONAL AL
+RÉGIMEN OBLIGATORIO DE
+PENSIONES COMPLEMENTARIAS.
+LEY DE PROTECCIÓN AL
+TRABAJADOR Nº 7983. DE 16 DE
+FEBRERO DEL 2000).
+Céd. Jur.:4-000-042147 42.240
+668 APORT. PATRON. FONDO CAPIT.
+LABORAL 26.363
+668 01 132 15 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL C.C.S.S. (APORTE
+PATRONAL FONDO DE
+CAPITALIZACIÓN LABORAL. LEY
+DE PROTECCIÓN AL TRABAJADOR
+Nº 7983 DE 16 DE FEBRERO DEL 2000)
+Céd. Jur.:4-000-042147 26.363
+7 TRANSFERENCIAS DE CAPITAL 14.380
+733 APORTES A ORGANISMOS FINANC. 14.380
+733 01 242 15 204 BANCO POPULAR Y DE DESARROLLO
+COMUNAL (PAGO CUOTA PATRONAL
+A BANCO POPULAR Y DE
+DESARROLLO COMUNAL).
+Céd. Jur.:4-000-042152 14.380
+Total Aumento del Programa: 330-00 3.800.000
+PROGRAMA: 331-00
+TRANSPORTE TERRESTRE
+Registro Contable: 112-331-00
+0 SERVICIOS PERSONALES 15.613.000
+000 01 111 47 SUELDOS PARA CARGOS FIJOS 15.613.000
+1 SERVICIOS NO PERSONALES 1.000.000
+102 01 112 47 ALQUILER DE EDIF. Y TERRENOS 1.000.000
+6 TRANSFERENCIAS CORRIENTES 2.634.125
+660 CONTRIB. PATRONAL A LA C.C.S.S. 2.184.000
+660 01 132 47 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL C.C.S.S. (CUOTA PATRONAL
+POR CONCEPTO DE SEGURO DE
+INVALIDEZ. VEJEZ Y MUERTE).
+Céd. Jur.:4-000-042147 741.000
+660 01 132 47 202 CAJA COSTARRICENSE DE SEGURO
+SOCIAL C.C.S.S. (CUOTA PATRONAL
+POR CONCEPTO DE SEGURO DE
+ENFERMEDAD Y MATERNIDAD).
+Céd. Jur.:4-000-042147 1.443.000
+661 CONTRIB. ESTATAL A LA C.C.S.S. 78.000
+661 01 132 47 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL C.C.S.S. (CONTRIBUCIÓN
+ESTATAL POR CONCEPTO DE
+INVALIDEZ. VEJEZ Y MUERTE).
+Céd. Jur.:4-000-042147 39.000
+661 01 132 47 202 CAJA COSTARRICENSE DE SEGURO
+SOCIAL C.C.S.S. (CONTRIBUCIÓN
+ESTATAL POR CONCEPTO DE
+ENFERMEDAD Y MATERNIDAD)
+Céd. Jur.:4-000-042147 39.000
+667 APORT. PATRON. REG. OBLIGAT.
+PENS. COMPLEMENTARIAS 229.125
+667 01 132 47 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (APORTE PATRONAL
+AL RÉGIMEN OBLIGATORIO DE
+PENSIONES COMPLEMENTARIAS.
+LEY DE PROTECCIÓN AL
+TRABAJADOR Nº 7983. DE 16 DE
+FEBRERO DEL 2000).
+Céd. Jur.:4-000- 042147 229.125
+668 APORT. PATRON. FONDO CAPIT.
+LABORAL 143.000
+668 01 132 47 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL C.C.S.S. (APORTE PATRONAL
+FONDO DE CAPITALIZACIÓN
+LABORAL. LEY DE PROTECCIÓN AL
+TRABAJADOR Nº 7983 DE 16 DE
+FEBRERO DEL 2000)
+Céd. Jur.:4-000-042147 143.000
+7 TRANSFERENCIAS DE CAPITAL 78.102
+733 APORTES A ORGANISMOS FINANC. 78.102
+733 01 242 47 204 BANCO POPULAR Y DE
+DESARROLLO COMUNAL (PAGO
+CUOTA PATRONAL A BANCO
+POPULAR Y DE DESARROLLO
+COMUNAL).
+Céd. Jur.:4-000-042152 78.102
+Total Aumento del Programa: 331-00 19.325.227
+PROGRAMA: 332-00
+PROYECTOS Y TRANSFERENCIAS SECTORIALES
+Registro Contable: 112-332-00
+6 TRANSFERENCIAS CORRIENTES 5.800.000
+682 CUOTAS A ORGANISMOS CENTROAM. 5.800.000
+682 01 133 47 200 SECRETARIA PERMANENTE DE
+INTEGRACIÓN ECONÓMICA
+CENTROAMERICANA (SIECA).
+(PAGO CUOTA ANUAL
+ORDINARIA POR REPRESENTACIÓN
+DEL MINISTERIO DE OBRAS
+PÚBLICAS Y TRANSPORTES).
+Céd. Jur.:3-003-045703 5.800.000
+Total Aumento del Programa: 332-00 5.800.000
+Total Aumento del Título: 112 186.465.227
+Total Aumentar 235.715.227
