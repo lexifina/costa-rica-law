@@ -1,0 +1,1 @@
+Artículo 13.—No reconocimiento del zonaje como salario en especie. El reconocimiento del sobresueldo conocido como zonaje, no se podrá contemplar nunca como salario en especie a efectos de cálculos para prestaciones legales.

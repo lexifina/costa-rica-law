@@ -1,0 +1,1 @@
+Artículo 2º—Finalidad. Su otorgamiento tiende a compensar al beneficiado por los mayores gastos en que se le hace incurrir, cuando, por interés institucional, presta servicios en un lugar distante de aquél donde tiene establecido el asiento principal de su domicilio legal, y siempre que lo sea por un lapso igual o superior a un mes.

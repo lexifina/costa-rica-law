@@ -1,0 +1,4 @@
+CAPÍTULO II
+Del pago del zonaje
+Artículo 4º—Sobre la procedencia del pago de zonaje. El zonaje es una compensación económica adicional que pagará el INCOP al personal que tenga que prestar sus servicios por un período superior a un mes o igual a éste, o de manera permanente en lugar distinto al de su domicilio legal o del que fueron contratados, o que eventualmente permanezcan fuera de alguna de esas circunscripciones territoriales por más de un mes. El zonaje regirá desde el primer día del traslado.
+No procederá el pago de zonaje por el tiempo que el beneficiario(a) está en tránsito en un lugar en el que realice los trámites administrativos propios de su cargo o necesarios para trasladarse a laborar a desempeñar las funciones por las que fue nombrado en otro sitio temporalmente. En este caso se pagará el viático, según corresponda.
