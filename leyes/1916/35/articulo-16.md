@@ -1,1 +1,0 @@
-Artículo XVI.-El Promotor Fiscal puede delegar en el Sub-Promotor Fiscal y en los Agentes Fiscales cualquier negocio por entero o cualquier diligencia de él, cuando lo estime conveniente. Puede también apersonarse en cualquier negocio que corresponda a cualquiera de los demás funcionarios del Ministerio Público, sin perjuicio de la intervención del subalterno.

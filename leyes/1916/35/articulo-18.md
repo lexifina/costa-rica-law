@@ -1,1 +1,0 @@
-Articulo XVIIl.-Los Fiscales Específicos tendrán la remuneración que se les asigne en el Acuerdo de su nombramiento; y si no se determinare, podrán cobrar solamente la prorrata que la ley señala por honorarios de abogado o procurador.

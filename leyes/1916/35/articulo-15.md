@@ -1,1 +1,0 @@
-Artículo XV.-Cuando por impedimento o excusa haya de separarse un funcionario del Ministerio Público del conocimiento de un negocio, serán suplidos el Promotor Fiscal y el Fiscal de Corte por el Sub Promotor Fiscal; el Sub Promotor Fiscal por el Agente Fiscal de San José; y el Agente Fiscal de una circunscripción por un procurador Fiscal.

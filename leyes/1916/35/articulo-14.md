@@ -1,1 +1,0 @@
-Artículo XIV.- Los representantes del Ministerio Público excepción hecha de los Fiscales Específicos, no pueden ejercer la abogacía, sino en sus propios negocios y en los de su cónyuge, ascendientes, descendientes, hermanos consanguíneos o del cónyuge de cualquiera de ellos.
