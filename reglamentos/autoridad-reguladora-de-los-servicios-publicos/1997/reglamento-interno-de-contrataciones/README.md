@@ -14,3 +14,4 @@ Reglamento Interno de Contrataciones.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-09-11 | la propia norma |
+| 2 | 2001-10-31 | Reglamento 272 (2001-10-31) |
