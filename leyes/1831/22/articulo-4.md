@@ -1,0 +1,1 @@
+Art. 4. Todo juez y autoridad, en particular las de los puertos y fronteras que estàn sugetas a las leyes del Estado, cuidaràn con la mayor vigilancia y bajo la mas estrecha responsabilidad, que no se introduzcan por sus respectivos puntos los libros contenidos en el art. 1° en cualquiera idioma que estos se hallen escritos, y los que sigan prohibidos y con arreglo al art. 2°
