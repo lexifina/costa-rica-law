@@ -1,0 +1,1 @@
+ARTÍCULO VIGÉSIMO: DE LOS RECURSOS ECONÓMICOS Y SU PATRIMONIO.- La Federación constituirá su patrimonio inicial con los recursos provenientes de la fusión y traspaso a la misma de los dos presupuestos extraordinarios debidamente autorizados por la Contraloría General de la República a ambas municipalidades asociadas para el manejo del Relleno de Río Azul.

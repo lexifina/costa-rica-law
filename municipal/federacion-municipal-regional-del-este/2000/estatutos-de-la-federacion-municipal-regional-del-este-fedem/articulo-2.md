@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO: JURISDICCIÓN.- Su competencia territorial será la misma que la de los cantones que la integran. Su domicilio será las oficinas administrativas del Relleno Sanitario Río Azul, pero podrá abrir oficinas en cualquier localidad de su competencia territorial.

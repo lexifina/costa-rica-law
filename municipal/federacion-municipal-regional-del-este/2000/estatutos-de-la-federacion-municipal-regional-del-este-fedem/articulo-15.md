@@ -1,0 +1,6 @@
+ARTÍCULO DÉCIMO QUINTO: ATRIBUCIONES DE LOS MIEMBROS DEL CONSEJO DIRECTIVO.
+a) EL PRESIDENTE será el representante judicial y extrajudicial de la Federación, con carácter de apoderado general Presidirá las sesiones de Asamblea General y Consejo. Firmará junto con el Secretario las actas, autorizará junto con el Tesorero los pagos de la Federación.
+b) EL VICEPRESIDENTE sustituirá al Presidente en sus ausencias temporales, con iguales atribuciones y obligaciones.
+c) EL SECRETARIO confeccionara las actas de las reuniones de la Junta Directiva y Asamblea General, las que firmará junto con el Presidente. Deberá llevar en perfecto orden el libro de actas de Junta Directiva y Asambleas Generales. Dará lectura a la correspondencia y la tramitará oportunamente. Llevará un archivo ordenado y completo.
+d) EL TESORERO tiene como obligación velar por la correcta ejecución presupuestaria y cuidar de los fondos de la Federación, los que se depositarán en cuentas a nombre de ella, en Bancos del Sistema Bancario Nacional.
+Los cheques o retiros se harán con la firma de al menos dos personas: el Director Ejecutivo y alguno de los siguientes miembros: Presidente y/o el Tesorero. Deberá rendir un informe anual de labores a la Asamblea General y controlará que se lleven al día y correctamente, los libros de caja, diario mayor e inventarios y balances.

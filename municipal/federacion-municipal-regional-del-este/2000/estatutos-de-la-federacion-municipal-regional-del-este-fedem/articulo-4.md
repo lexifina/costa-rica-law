@@ -1,0 +1,9 @@
+ARTÍCULO CUARTO: ATRIBUCIONES Y RECURSOS.- Para lograr de cumplimiento de estos fines, la Federación podrá disponer, conforme las limitaciones del Código Municipal, de todos los mecanismos e instrumentos legales, para la organización, administración y funcionamiento de sus acciones, programas, proyectos y actividades que faciliten el correcto desempeño del Relleno Sanitario. Entre otras actividades la Federación podrá:
+a- Ejecutar el Presupuesto Anual autorizado por la Asamblea General.
+b- Gestionar donaciones de entidades públicas y privadas, nacionales e internacionales.
+c- Propiciar el apoyo de las instituciones públicas, empresa privada y organizaciones sociales en general, para el cumplimiento de sus programas y actividades en general.
+d- Celebrar cualquier tipo de contrato financiero o bancario, siempre y cuando cuente con la aprobación de al menos dos terceras partes de la totalidad de los miembros de su Consejo Directivo.
+e- Emitir bonos para su financiamiento conforme las disposiciones de la Ley Reguladora del Mercado de Valores, los cuales estarán exentos de toda clase de impuestos y podrán ser adquiridos por las instituciones públicas o particulares.
+f- Proponer a los Concejos Municipales asociados, impuestos y proyectos de ley para la aprobación de la Asamblea Legislativa, y acordar la fijación de tasas, precios y contribuciones especiales, siempre y cuando la actividad que se determine gravar no se encuentre afectada por algún otro tributo municipal.
+g- Constituir establecimientos públicos, empresas industriales, comerciales y sociedades públicas de economía mixta, conforme los procedimientos establecidos en el Código Municipal.
+h- Aprobar el Plan Estratégico de desechos sólidos en el Relleno Sanitario de Río Azul y los reglamentos autónomos de organización, operación y servicios del mismo.
