@@ -1,0 +1,1 @@
+Artículo 3º—Requisitos de los puestos: Los requisitos de los puestos de Auditor y Subauditor Interno son los que se encuentran definidos en el Manual de Clases Institucionales que fue aprobado mediante Resolución DG-173-01 del 15 de noviembre del 2001, y publicado en La Gaceta 239 del 12 de diciembre del 2001.
