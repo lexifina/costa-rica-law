@@ -9,5 +9,5 @@ tardar un mes antes de la fecha establecida.
 En casos especiales, cuando las empresas hayan sido autorizadas por
 la Dirección General de la Tributación Directa para presentar la
 declaración en fecha posterior a la establecida en la ley, podrán
-presentarla a la Municipalidad dentro de los cinco días hábiles siguientes
-a la fecha autorizada.
+presentarla a la Municipalidad dentro de los cinco días hábiles
+siguientes a la fecha autorizada.
