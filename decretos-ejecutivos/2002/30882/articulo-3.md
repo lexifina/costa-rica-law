@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión trabajará en estrecha coordinación con todas las direcciones y dependencias que integran el MINAE, para lo cual sus directores y/o coordinadores prestarán apoyo y colaboración para realizar las distintas funciones de ese órgano.

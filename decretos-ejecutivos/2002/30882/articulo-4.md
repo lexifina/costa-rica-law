@@ -1,0 +1,3 @@
+Artículo 4º—La Comisión de Educación Ambiental del MINAE estará conformada por:
+1) Un coordinador o coordinadora de la Oficina de Educación Ambiental del MINAE, quien la coordinará.
+2) El encargado o encargada de educación ambiental de cada una de las siguientes dependencias que conforman el MINAE: Dirección de Geología y Minas, Dirección General de Hidrocarburos, Dirección Sectorial de Energía, Fondo Nacional de Financiamiento Forestal, Instituto Meteorológico Nacional, Oficina de Costarricense de Implementación Conjunta, Oficina Sociedad Civil, Oficina de Género, Oficina de Prensa y Relaciones Públicas, Secretaría Técnica Nacional Ambiental, Sistema Nacional de Areas de Conservación y otras que se creen.
