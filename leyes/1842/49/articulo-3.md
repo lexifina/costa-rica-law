@@ -1,0 +1,1 @@
+Art. 3. Se nombran para componer la Junta, á los Señores, Bachiller Luz Blanco, Joaquin Bernardo Calvo, Rafael Gallegos, Francisco M. Oreamuno, Ramon Jimenez, Pedro Mayorga, Jose Segreda, Rafael Moya, Gordiano Paniagua, José Ma Alfaro, José Leon Fernandez é Ignacio Saborío.
