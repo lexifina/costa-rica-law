@@ -30,3 +30,4 @@ Directrices de política presupuestaria del 2005 para los ministerios, demás ó
 | 15 | 2004-11-29 | Decreto Ejecutivo 32163 (2004-11-29) |
 | 16 | 2004-12-01 | Decreto Ejecutivo 32164 (2004-12-01) |
 | 17 | 2005-01-04 | Decreto Ejecutivo 32217 (2005-01-04) |
+| 18 | 2005-01-14 | Decreto Ejecutivo 32213 (2005-01-14) |
