@@ -1,0 +1,1 @@
+Artículo 28.—El consejo sesionará ordinariamente una (1) vez al mes y extraordinariamente por acuerdo firme del consejo, cuando el director ejecutivo decida por voluntad propia y cuando tres o más miembros del consejo pidan por escrito al director ejecutivo que convoque.

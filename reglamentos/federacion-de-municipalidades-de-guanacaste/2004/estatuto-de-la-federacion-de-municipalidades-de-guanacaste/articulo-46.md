@@ -1,0 +1,1 @@
+Artículo 46.—Miembros colaboradores. Podrán ser colaboradoras todas aquellas personas naturales o jurídicas que lo soliciten y manifiesten por escrito el contenido de su colaboración. El Consejo resolverá sobre las colaboraciones solicitadas.

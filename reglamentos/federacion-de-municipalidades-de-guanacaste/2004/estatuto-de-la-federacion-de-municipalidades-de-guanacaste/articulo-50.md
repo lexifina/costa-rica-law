@@ -1,0 +1,1 @@
+Artículo 50.—Procedimiento de disolución y liquidación. La disolución de la Federación requerirá acuerdo de la asamblea general, adoptado con el voto de los 2/3 y la ratificación de la mayoría de las entidades asociadas, en acuerdos adoptados con igual quórum.

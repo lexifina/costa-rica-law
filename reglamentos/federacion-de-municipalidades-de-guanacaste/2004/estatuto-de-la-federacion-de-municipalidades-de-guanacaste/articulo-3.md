@@ -1,0 +1,1 @@
+Artículo 3.—El domicilio legal es la ciudad de Cañas. Por acuerdo del órgano competente de la Federación, pueden existir delegaciones o sucursales en cualquier lugar comprendido dentro de los cantones que la integran.

@@ -1,0 +1,1 @@
+Artículo 29.—Por cada sesión ordinaria y extraordinaria asistida, por los miembros propietarios del consejo directivo devengarán una dieta de quince mil colones y los miembros suplentes devengarán una dieta de siete mil quinientos colones, lo anterior a partir de la aprobación de la modificación de este estatuto.

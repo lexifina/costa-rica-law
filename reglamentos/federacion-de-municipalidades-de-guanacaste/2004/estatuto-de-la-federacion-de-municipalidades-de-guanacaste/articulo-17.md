@@ -1,0 +1,1 @@
+Artículo 17.—Los miembros de la asamblea podrán ser regidores propietarios o suplentes, quienes serán nombrados por sus respectivos concejos municipales y durarán en funciones dos años, podrán ser reelectos.

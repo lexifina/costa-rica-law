@@ -1,0 +1,1 @@
+Artículo 18.—En caso de pérdida de credenciales como por causa de muerte, de renuncia, de impedimento absoluto o de dos ausencias consecutivas injustificadas o tres alternas de un miembro de la asamblea, en un período de un año pierde su designación; será comunicado al concejo municipal respectivo a fin de proceder a sustituirlo.

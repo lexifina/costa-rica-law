@@ -1,0 +1,1 @@
+Artículo 35.—El director ejecutivo sólo podrá ser removido o suspendido de su cargo por causa justa y por votación no menor de las dos terceras partes de la totalidad de los miembros de la asamblea general.

@@ -1,0 +1,1 @@
+Artículo 12.—El congreso regional se financiará con aportes del estado a través de los diputados de la provincia, aportes extraordinarios que hará cada Municipalidad para ese fin, en el año que se celebrará el mismo, con base en un presupuesto que se elaborará para la realización del congreso.

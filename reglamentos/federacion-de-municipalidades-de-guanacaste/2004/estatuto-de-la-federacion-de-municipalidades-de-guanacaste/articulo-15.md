@@ -1,0 +1,1 @@
+Artículo 15.—Los resultados obtenidos en el congreso serán presentados al consejo directivo a fin de que los mismos sean planteados ante las autoridades competentes, diputados e instituciones del estado.
