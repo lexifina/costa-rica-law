@@ -13,3 +13,4 @@ Reglamento Interno del Sistema de Carrera Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-07-19 | la propia norma |
+| 2 | 1995-11-08 | Circular 18 (1995-11-08) |
