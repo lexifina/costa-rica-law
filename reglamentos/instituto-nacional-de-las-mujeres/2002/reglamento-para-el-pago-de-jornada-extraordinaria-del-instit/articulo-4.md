@@ -1,1 +1,2 @@
-Texto de artículo no encontrado
+Artículo 4º—Las funcionarias y los funcionarios que ocupan puestos de dirección, coordinación de área, jefatura de unidad o de confianza, tendrán derecho al pago de jornada extraordinaria solamente después haber laborado una jornada de doce horas, con un descanso de una y media hora dentro de dicha jornada.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 6 de setiembre del 2002, que lo pasó del 5 al 4)

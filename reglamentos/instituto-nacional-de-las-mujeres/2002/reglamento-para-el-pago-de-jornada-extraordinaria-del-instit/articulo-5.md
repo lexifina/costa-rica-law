@@ -1,1 +1,2 @@
-Artículo 5º—Las funcionarias y los funcionarios que ocupan puestos de dirección, coordinación de área, jefatura de unidad o de confianza, tendrán derecho al pago de jornada extraordinaria solamente después haber laborado una jornada de doce horas, con un descanso de una y media hora dentro de dicha jornada.
+Artículo 5º—Únicamente se reconocerá el pago de la jornada extraordinaria que haya sido autorizada mediante el trámite de la boleta de solicitud.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 6 de setiembre del 2002, que lo pasó del 6 al 5)

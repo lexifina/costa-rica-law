@@ -1,1 +1,2 @@
-Artículo 19.—Con el objeto de corroborar la jornada extraordinaria laborada, la funcionaria o del funcionario deberá registrar en la boleta de solicitud autorizada la hora de entrada y salida de sus labores, utilizando el reloj marcador instalado para el efecto o el registro manual autorizado.
+Artículo 19.—La persona que autoriza procederá a revisar y aprobar la liquidación de jornada extraordinaria laborada y la remitirá al Área de Recursos Humanos, dentro de los tres días hábiles siguientes a su presentación.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 6 de setiembre del 2002, que lo pasó del 20 al 19)

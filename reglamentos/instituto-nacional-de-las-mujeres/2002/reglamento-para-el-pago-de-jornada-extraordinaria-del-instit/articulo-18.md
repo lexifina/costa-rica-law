@@ -1,11 +1,2 @@
-Artículo 18.—La boleta de solicitud y autorización de jornada extraordinaria debe contener la siguiente información:
-· Nombre completo de la funcionario o del funcionario que va a laborar la jornada extraordinaria.
-· Cédula de identidad de a funcionario o del funcionario que va a laborar la jornada extraordinaria.
-· Fecha en que se labora la jornada extraordinaria.
-· Fecha de la solicitud
-· Área a la que pertenece a funcionario o del funcionario
-· Clase de puesto de la funcionaria o del funcionario
-· Justificación
-· Firma de la funcionaria o del funcionario
-· Firma de la persona que autoriza
-· Sello de contabilidad
+Artículo 18.—Con el objeto de corroborar la jornada extraordinaria laborada, la funcionaria o del funcionario deberá registrar en la boleta de solicitud autorizada la hora de entrada y salida de sus labores, utilizando el reloj marcador instalado para el efecto o el registro manual autorizado.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 6 de setiembre del 2002, que lo pasó del 19 al 18)

@@ -1,8 +1,7 @@
-Artículo 14.—Son responsabilidades de las funcionarias y de los funcionarios:
-a) Completar las boletas de solicitud y el formulario de liquidación según los lineamientos del presente Reglamento y entregarlos a la Coordinadora de Área para su trámite correspondiente.
-b) Elaborar dos copias de la boleta de solicitud las cuales se entregarán a: Recursos Humanos y a la interesada o interesado y tres de liquidación, las cuáles se entregarán a: Recursos Humanos, contabilidad y a la interesada o interesado.
-c) El original tanto de la solicitud como de la liquidación permanecerán en la dependencia donde labore.
-d) Registrar en la boleta de solicitud, el tiempo laborado (entrada y salida) mediante el uso del reloj marcador destinado para tal fin. Salvo casos excepcionales y temporales, se permitirá el control en forma manual, el cual debe ser refrendado por el superior inmediato dando fe del tiempo extraordinario reportado por el o la funcionaria.
-e) Brindar información veraz y concordante tanto en la boleta de autorización como en el formulario de liquidación.
-f) Notificar inmediatamente a la Dirección Administrativa cualquier daño o desperfecto encontrado en el reloj marcador a fin de que el tiempo extraordinario laborado se registre manualmente con autorización en la boleta correspondiente.
-g) Aclarar a la Unidad de Recursos Humanos o a la Coordinadora de Área cualquiera duda o incoherencia encontrada en la documentación presentada luego de la realización de los controles de calidad e investigaciones pertinentes.
+Artículo 14.—Son responsabilidades del Área de Recursos Humanos:
+a) Velar por la observancia de la normativa y procedimientos establecidos.
+b) Realizar los controles de marcas y verificar que la información de las boletas de solicitud y los formularios de liquidación sean concordantes.
+c) Remitir a la Contabilidad los formularios de liquidación, debidamente revisados y firmados en los primeros ocho días hábiles de cada mes, para que se tramite el pago correspondiente.
+d) Informar a las funcionarias responsables de la autorización de jornada extraordinaria de cualquier anomalía que detecte en el procedimiento y tramitación de la misma.
+e) Realizar las investigaciones que considere pertinentes y en caso necesario solicitar la apertura del expediente administrativo conforme lo establece el Reglamento Autónomo de Servicios.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 6 de setiembre del 2002, que lo pasó del 15 al 14)

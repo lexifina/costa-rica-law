@@ -1,1 +1,2 @@
-Artículo 10.—La boleta de solicitud de jornada extraordinaria deberá presentarse en forma ordenada, sin tachadura ni borrones, con todos los datos solicitados, de lo contrario no se tramitará dicha solicitud.
+Artículo 10.—El formulario de liquidación de jornada extraordinaria deberá presentarse de la siguiente forma: completar los datos que deben ser coherentes con la boleta de solicitud, firma de la funcionaria o del funcionario, y de la persona que autoriza. El formulario de solicitud debe adjuntarse a la liquidación.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 6 de setiembre del 2002, que lo pasó del 11 al 10)

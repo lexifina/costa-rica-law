@@ -1,3 +1,2 @@
-CAPÍTULO IV
-Disposiciones Finales
-Artículo 23.—El pago de la jornada extraordinaria que no se ajuste a las disposiciones generales y específicas contenidas en el presente Reglamento queda estrictamente prohibido para todas las funcionarias o funcionarios del INAMU.
+Artículo 23.—No se reconocerá como jornada extraordinaria aquella que no hubiese sido autorizada, de acuerdo con las condiciones anteriores, así como el tiempo que la funcionaria o el funcionario ocupe en subsanar los errores imputables a ella o a él, cometidos durante la jornada ordinaria.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 6 de setiembre del 2002, que lo pasó del 24 al 23)

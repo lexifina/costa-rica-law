@@ -1,1 +1,2 @@
-Artículo 11.—El formulario de liquidación de jornada extraordinaria deberá presentarse de la siguiente forma: completar los datos que deben ser coherentes con la boleta de solicitud, firma de la funcionaria o del funcionario, y de la persona que autoriza. El formulario de solicitud debe adjuntarse a la liquidación.
+Artículo 12.—La Unidad de Recursos Humanos presumirá como cierta toda la información suministrada tanto en la boleta de autorización como en la liquidación, en caso de duda verificará la información y/o realizará las investigaciones que considere oportunas. Asimismo firmará también la boleta de aprobación de la jornada extraordinaria.
+(Así reformado por acuerdo tomado en sesión de fecha 6 de setiembre del 2002)

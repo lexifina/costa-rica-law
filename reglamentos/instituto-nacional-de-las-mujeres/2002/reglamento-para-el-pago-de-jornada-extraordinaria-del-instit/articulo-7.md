@@ -1,1 +1,3 @@
-Artículo 7º—La autorización y pago de jornada extraordinaria a los servidores que perciben compensación económica por "disponibilidad" es improcedente.
+Artículo 7º—El trámite de pago de jornada extraordinaria, deberá realizarse sin excepción, ante el Área de Recursos Humanos en el transcurso de los primeros ocho días hábiles de cada mes, mediante la presentación del formulario de liquidación, el cual será remitido por dicha área a la contabilidad, la que procederá a realizar el pago correspondiente durante la primera quincena del mes siguiente a partir de la presentación de todos los documentos requeridos.
+En casos de fuerza mayor el pago podrá hacerse efectivo después de la primera quincena del mes siguiente a la presentación de la liquidación.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 6 de setiembre del 2002, que lo pasó del 8 al 7)

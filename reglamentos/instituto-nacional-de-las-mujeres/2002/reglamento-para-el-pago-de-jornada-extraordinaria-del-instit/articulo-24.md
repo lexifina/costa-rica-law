@@ -1,1 +1,2 @@
-Artículo 24.—No se reconocerá como jornada extraordinaria aquella que no hubiese sido autorizada, de acuerdo con las condiciones anteriores, así como el tiempo que la funcionaria o el funcionario ocupe en subsanar los errores imputables a ella o a él, cometidos durante la jornada ordinaria.
+Artículo 24.—La omisión de autorización por parte de la Jefatura inmediata no afectará a la funcionaria o al funcionario que hubieren laborado de buena fe y podrá dar lugar a responsabilidad civil y administrativa a la persona que autoriza cuando incurra en tal omisión, conforme a la Ley General de la Administración Pública.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 6 de setiembre del 2002, que lo pasó del 25 al 24)

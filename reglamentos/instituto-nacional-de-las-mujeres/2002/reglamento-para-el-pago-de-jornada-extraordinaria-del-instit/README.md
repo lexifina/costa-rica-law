@@ -14,3 +14,4 @@ Reglamento para el pago de Jornada Extraordinaria del Instituto Nacional de las 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-02 | la propia norma |
+| 2 | 2002-09-06 | Reglamento 0 (2002-09-06) |

@@ -1,1 +1,2 @@
-Artículo 25.—La omisión de autorización por parte de la Jefatura inmediata no afectará a la funcionaria o al funcionario que hubieren laborado de buena fe y podrá dar lugar a responsabilidad civil y administrativa a la persona que autoriza cuando incurra en tal omisión, conforme a la Ley General de la Administración Pública.
+Artículo 25.—El contenido presupuestario para el pago de jornada extraordinaria debe estar contemplado en el límite de gasto institucional y cumplir con los parámetros de legalidad e indicaciones de la Contraloría General de la República.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 6 de setiembre del 2002, que lo pasó del 26 al 25)

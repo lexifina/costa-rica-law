@@ -1,10 +1,9 @@
-CAPÍTULO III
-De las responsabilidades
-Artículo 13.—Son responsabilidades de la persona que autoriza:
-a) Velar por la observancia de la normativa y procedimientos establecidos.
-b) Realizar la reserva presupuestaria correspondiente ante la contabilidad.
-c) Justificar los motivos y requerimientos solicitados para el reconocimiento de jornada extraordinaria.
-d) Comprobar que la información de las boletas de solicitud y los formularios de liquidación sea concordante y de que ambos documentos se presenten completos, sin borrones ni tachaduras.
-e) Remitir a la Unidad de Recursos Humanos los formularios de liquidación en un plazo de tres días hábiles luego de su presentación por parte de la funcionaria o del funcionario interesado.
-f) Colaborar con la Dirección Administrativa y con la Unidad de Recursos Humanos en la realización de los controles que se establezcan en el procedimiento y en la ejecución de las investigaciones que se implementen según sea el caso.
-g) La inobservancia de alguna de las responsabilidades mencionadas acarreará las sanciones correspondientes estipuladas en el artículo 44, incisos f), m) y r) del Reglamento Autónomo de Servicios del INAMU.
+Artículo 14.—Son responsabilidades de las funcionarias y de los funcionarios:
+a) Completar las boletas de solicitud y el formulario de liquidación según los lineamientos del presente Reglamento y entregarlos a la Coordinadora de Área para su trámite correspondiente.
+b) Elaborar dos copias de la boleta de solicitud las cuales se entregarán a: Recursos Humanos y a la interesada o interesado y tres de liquidación, las cuáles se entregarán a: Recursos Humanos, contabilidad y a la interesada o interesado.
+c) El original tanto de la solicitud como de la liquidación permanecerán en la dependencia donde labore.
+d) Registrar en la boleta de solicitud, el tiempo de jornada extraordinaria (entrada y salida) mediante el uso del reloj marcador destinado para tal fin. Salvo casos excepcionales y temporales, se permitirá el control en forma manual, el cual debe ser refrendado por el superior inmediato dando fe del tiempo extraordinario reportado por el o la funcionaria.
+(Así reformado por acuerdo tomado en sesión de fecha 6 de setiembre del 2002)
+e) Brindar información veraz y concordante tanto en la boleta de autorización como en el formulario de liquidación.
+f) Notificar inmediatamente a la Dirección Administrativa cualquier daño o desperfecto encontrado en el reloj marcador a fin de que el tiempo extraordinario laborado se registre manualmente con autorización en la boleta correspondiente.
+g) Aclarar a la Unidad de Recursos Humanos o a la Coordinadora de Área cualquiera duda o incoherencia encontrada en la documentación presentada luego de la realización de los controles de calidad e investigaciones pertinentes.

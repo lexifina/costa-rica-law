@@ -1,1 +1,13 @@
-Artículo 20.—La persona que autoriza procederá a revisar y aprobar la liquidación de jornada extraordinaria laborada y la remitirá al Área de Recursos Humanos, dentro de los tres días hábiles siguientes a su presentación.
+Artículo 21.—El formulario de liquidación para el pago de jornada extraordinaria deberá contener la siguiente información:
+· Nombre completo de la funcionaria o del funcionario
+· Cédula de identidad.
+· Fecha del informe.
+· Período o mes reportado.
+· Área a la que pertenece la funcionaria o el funcionario
+· Total de tiempo extraordinario laborado.
+· Firma de la funcionaria o del funcionario
+· Firma de la persona que autoriza
+· Firma de la Coordinadora de Recursos Humanos.
+· Declaración jurada
+. Número horas extras estimadas para laborar.
+(Así adicionado el último punto por acuerdo tomado en sesión de fecha 6 de setiembre del 2002)
