@@ -1,0 +1,1 @@
+Artículo 35.—En la licitación por registro, se utilizará el mecanismo de invitación directa o publicación en La Gaceta, según el número de proveedores inscritos, cuyo plazo de tramitación estará acorde con las disposiciones que rigen la materia.

@@ -1,0 +1,1 @@
+Artículo 47.—Los procesos cuyos montos sean superiores a los asignados para contrataciones directas y menores a las que requieren refrendo de la Contraloría General de la República deberán contar con la aprobación de la unidad de la División de Contratación Administrativa.

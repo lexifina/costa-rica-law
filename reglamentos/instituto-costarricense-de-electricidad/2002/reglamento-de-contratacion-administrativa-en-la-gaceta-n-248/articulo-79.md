@@ -1,0 +1,1 @@
+Artículo 79.—Conformado el Órgano Director, en un plazo máximo de tres días, procederá a la apertura del procedimiento y continuará su trámite hasta emitir el acto final que contenga la recomendación correspondiente, para ser elevada al órgano competente, todo de conformidad con la Ley General de la Administración Pública.

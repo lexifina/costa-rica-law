@@ -1,0 +1,1 @@
+Artículo 36.—En la licitación restringida se invitará por lo menos a cinco proveedores que se encuentran inscritos en el Registro de Proveedores. El ICE podrá utilizar otros medios de invitación garantizando el cumplimiento de los principios de legalidad, publicidad, igualdad de trato y de oportunidad.

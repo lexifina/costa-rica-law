@@ -1,0 +1,3 @@
+CAPÍTULO III
+Sanciones a los funcionarios
+Artículo 83.—Los funcionarios del ICE, que tengan los insumos y la capacitación necesaria, para desempeñar una labor de supervisión de los contratos en forma eficiente, serán responsables en la medida que pueda individualizarse su culpabilidad por las consecuencias provocadas a la Institución en razón de los incumplimientos de los contratistas, si pudiendo prever o denunciar a tiempo las transgresiones contractuales, no lo hicieron o no solicitaron las sanciones, ejecuciones, multas o rescisión o resolución respectivas. Además de la responsabilidad administrativa podrán ser responsables laboral, penal y civilmente, según corresponda y se logre demostrar.

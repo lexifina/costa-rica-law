@@ -1,0 +1,1 @@
+Artículo 77.—De llegarse a un acuerdo entre las partes involucradas, la Proveeduría enviará su recomendación sobre el caso de marras, al Órgano que dictó el acto de adjudicación, para que resuelva lo pertinente.

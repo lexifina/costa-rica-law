@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Prórrogas a los contratos
+Artículo 42.—Cuando se requiera una prórroga de un contrato y esté prevista en las condiciones de la contratación, el AC en coordinación con el CCA, deberá solicitar a la Dirección de Proveeduría dicha prórroga, por lo menos con 5 meses de anticipación al vencimiento. Esta prórroga deberá ser autorizada por el órgano que dictó el acto de adjudicación. Cuando no esté contemplada en las condiciones iniciales de la contratación o que se hayan agotado las prórrogas establecidas, el AC deberá iniciar los nuevos trámites por lo menos 12 meses antes del vencimiento del contrato, cumpliendo para ello los requisitos del procedimiento de contratación que corresponda.

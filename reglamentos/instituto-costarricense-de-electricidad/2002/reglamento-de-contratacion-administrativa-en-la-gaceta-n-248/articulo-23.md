@@ -1,0 +1,1 @@
+Artículo 23.—Todo proveedor inscrito está obligado a verificar y actualizar la información aportada al Registro en el momento de darse un cambio en su situación jurídica o al menos el primer mes de cada año para lo cual debe presentar los documentos legales que demuestren esa situación.

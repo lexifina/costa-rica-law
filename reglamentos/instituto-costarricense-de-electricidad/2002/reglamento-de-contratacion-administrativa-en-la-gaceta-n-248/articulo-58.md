@@ -1,0 +1,1 @@
+Artículo 58.—Dada la Resolución por el órgano competente, se enviará a la Dirección de Proveeduría para que comunique la respuesta a los recurrentes que plantearon objeción a los carteles, revocatoria y apelación contra los actos de adjudicación.

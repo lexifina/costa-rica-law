@@ -1,0 +1,3 @@
+TÍTULO V
+Procedimientos de Contratación
+Artículo 27.—Los funcionarios encargados del manejo de la Contratación Administrativa serán los responsables de velar por la debida aplicación de los procedimientos correspondientes. Cuando se determine el procedimiento a seguir se deberá evitar el Fraccionamiento Ilícito. Aquel funcionario que incurra en esta mala práctica se le aplicará el procedimiento de sanción regulado en el Artículo 83 y siguientes de este reglamento. Será la División de Contratación Administrativa la encargada de dictaminar, ante una solicitud de la Proveeduría, del CCA, o cualquier otro funcionario involucrado en el proceso, si en determinado procedimiento de contratación se configuran las causales del Fraccionamiento Ilícito.

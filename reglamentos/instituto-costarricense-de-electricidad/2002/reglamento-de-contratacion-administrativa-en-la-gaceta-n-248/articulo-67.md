@@ -1,0 +1,1 @@
+Artículo 67.—La Administración deberá resolver el recurso en un plazo máximo de 15 días hábiles siguientes, a la recepción de los argumentos presentados por la parte adjudicataria que ha sido recurrida. Dentro de dicho plazo deberán contabilizarse los señalados en los Artículos 65 y 66, anteriores.

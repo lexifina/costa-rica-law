@@ -1,0 +1,1 @@
+Artículo 28.—Cuando se deba utilizar el Procedimiento de Registro de Elegibles se aplicará, en todos sus extremos, lo establecido en el reglamento específico vigente en la Institución, para obras pequeñas y repetitivas y de montos iguales o inferiores a los aprobados por la Contraloría General de la República.

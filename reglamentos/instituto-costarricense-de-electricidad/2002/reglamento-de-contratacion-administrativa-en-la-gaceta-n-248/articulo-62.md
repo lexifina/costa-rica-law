@@ -1,0 +1,1 @@
+Artículo 62.—Si el recurso es declarado con lugar, la Dirección de Proveeduría, en coordinación con el CCA, se encargará de efectuar las modificaciones y comunicarlas o publicarlas por los mismos medios utilizados para invitar.

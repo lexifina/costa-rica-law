@@ -1,0 +1,3 @@
+CAPÍTULO I
+Objeción al cartel
+Artículo 59.—En el caso de recurso de objeción a los carteles de licitaciones públicas y los pliegos de condiciones en las licitaciones por registro y recibida la notificación de audiencia especial por parte de la Contraloría General de la República, la Proveeduría solicitará el mismo día (al menos por fax ó correo electrónico) el pronunciamiento del Área Técnica (CCA-AC) y de la División de Contratación Administrativa de la Dirección Jurídica Institucional, quienes en un plazo de tres días hábiles, deberán enviar sus alegatos o recomendaciones de modificación a la Proveeduría.

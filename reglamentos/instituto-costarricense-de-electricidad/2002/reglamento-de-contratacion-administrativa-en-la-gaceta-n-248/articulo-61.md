@@ -1,0 +1,1 @@
+Artículo 61.—Si el recurso es interpuesto en una licitación restringida ante la Dirección de Proveeduría, ésta en coordinación con el Área Técnica (CCA-AC) y la División de Contratación Administrativa prepararán la recomendación de resolución, remitiéndola al Subgerente correspondiente. La Proveeduría comunicará al recurrente la resolución del Subgerente.

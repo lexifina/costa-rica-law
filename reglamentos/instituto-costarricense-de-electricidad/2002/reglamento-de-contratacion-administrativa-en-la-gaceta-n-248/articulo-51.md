@@ -1,0 +1,1 @@
+Artículo 51.—La Dirección de Proveeduría, velará también por el cumplimiento de la valoración de mercado por parte de un puesto de bolsa de los bonos y certificados dados en garantía, según lo establecido en el artículo 37.5 del Reglamento General de Contratación Administrativa.

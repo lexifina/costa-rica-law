@@ -1,0 +1,1 @@
+Artículo 52.—La devolución de las garantías de participación se hará previa autorización de la Dirección de Proveeduría, a los oferentes no adjudicados y al adjudicatario cuando éste haya rendido la garantía de cumplimiento. Para el caso de las garantías de cumplimiento la devolución se hará previa autorización del CCA y AC, en coordinación con la Proveeduría.

@@ -1,0 +1,1 @@
+Artículo 26.—El registro de proveedores será el mecanismo que se utilizará para la invitación a los potenciales proveedores en las licitaciones restringidas y por registro, sin que ello obste para que el ICE utilice otros medios, con el fin de garantizar el cumplimiento de los principios de legalidad, publicidad, igualdad de trato y de oportunidad.

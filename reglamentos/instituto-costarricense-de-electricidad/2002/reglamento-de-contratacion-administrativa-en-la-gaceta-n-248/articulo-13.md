@@ -1,0 +1,1 @@
+Artículo 13.—Los Programas de compras deben contar con los recursos presupuestarios necesarios, con excepción de lo dispuesto en la legislación de contratación administrativa en cuanto a inicio y adjudicación de procesos de adquisición de bienes y servicios para presupuestos futuros, previa autorización de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 48.—La División de Contratación Administrativa en conjunto con la Dirección de Proveeduría y las Direcciones Administrativas o UEN’s establecerán los contenidos que deben tener los contratos para que junto con el expediente respectivo se remitan a la Contraloría General de la República.
