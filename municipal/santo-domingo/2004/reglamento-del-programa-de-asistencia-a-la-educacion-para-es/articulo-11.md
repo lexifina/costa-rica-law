@@ -1,0 +1,1 @@
+Artículo 11.—En el mismo formulario, los padres del estudiante firmarán su autorización para ser investigados sobre los datos aportados y cualquier otro aspecto que se considere necesario para establecer su condición socioeconómica.

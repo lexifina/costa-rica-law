@@ -1,0 +1,1 @@
+Artículo 16.—Una vez aplicado todo el proceso de selección y definido los candidatos y en virtud de lo que establece el artículo 57 del Código Municipal, los Concejos de Distrito serán los que recomendarán ante el Concejo Municipal, los beneficiarios de becas para su aprobación definitiva.

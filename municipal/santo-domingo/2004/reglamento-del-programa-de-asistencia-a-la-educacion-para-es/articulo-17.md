@@ -1,0 +1,1 @@
+Artículo 17.—Aprobados los beneficiarios por el Concejo Municipal, la Dirección con los Concejos de Distrito definirán el acto cívico en que se procederá a la entrega oficial de la beca, de tal manera que se muestre la proyección social de la Municipalidad y se pueda motivar a los beneficiarios de su importancia en el desarrollo del cantón.

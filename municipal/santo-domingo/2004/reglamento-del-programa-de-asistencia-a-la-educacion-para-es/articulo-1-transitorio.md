@@ -1,0 +1,1 @@
+Transitorio I.—Mientras no se haya creado formalmente la Dirección de Desarrollo Social, la Oficina de la Mujer tendrá a cargo las funciones que este programa define para la Dirección, en todos sus extremos.

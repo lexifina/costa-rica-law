@@ -1,0 +1,1 @@
+Artículo 3º—Podrá hacerse partícipes y contribuyentes a este Fondo cualquier organización pública o privada o personas físicas que desee colaborar con el objetivo que se persigue y será responsabilidad de la Municipalidad su fortalecimiento y proyección social.

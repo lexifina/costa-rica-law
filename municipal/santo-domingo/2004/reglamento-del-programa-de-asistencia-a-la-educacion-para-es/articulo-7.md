@@ -1,0 +1,1 @@
+Artículo 7º—Complementar con entidades públicas, privadas y personas físicas del cantón de Sto. Domingo el programa, las cuales podrán ser en dinero o en ayudas específicas (útiles, material didáctico, uniforme, etc.)

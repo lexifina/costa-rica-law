@@ -1,0 +1,1 @@
+Artículo 14.—Los Concejos de Distrito serán los responsables de coordinar en su jurisdicción, las posibilidades de ayuda de empresas privadas y públicas, de personas físicas y demás fuerzas vivas, las cuales reportará a la Dirección, para que esta las integre al programa de becas.

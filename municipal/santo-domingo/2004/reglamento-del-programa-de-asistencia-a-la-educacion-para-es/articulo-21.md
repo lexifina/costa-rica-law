@@ -1,0 +1,1 @@
+Artículo 21.—Los Concejos de Distrito definirán las actividades que deberán realizar los estudiantes dentro del PPC, las cuales serán acordes con sus condiciones físicas, mentales y de disponibilidad de tiempo”. Además les corresponderá llevar el control del tiempo que dedicarán los becados a la actividad designada, reportándolo a la Dirección.

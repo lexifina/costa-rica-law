@@ -1,0 +1,1 @@
+Artículo 25.—Efectuada ya la adjudicación preliminar de las solicitudes planteadas, el Concejo de Distrito emitirá un informe al Concejo Municipal del resultado, donde especificará las solicitudes recomendadas, anotando solo el nombre del beneficiario, la beca recomendada y las condiciones de esta.

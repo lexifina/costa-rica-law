@@ -1,0 +1,1 @@
+Artículo 28.—El cambio de domicilio fuera del cantón por parte del estudiante será motivo para perder la beca. en el caso de trasladarse a otro distrito del cantón, deberá comunicarlo al Concejo de Distrito para que este coordine con el del otro distrito para que le de el respectivo seguimiento.

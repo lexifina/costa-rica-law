@@ -1,0 +1,1 @@
+Artículo 30.—Anualmente, quince días naturales después del cierre de cada período lectivo, los Concejos de Distrito y la Dirección deberán presentar un informe de evaluación del impacto social que se tuvo con el PAE-EER, ante el Concejo Municipal. De este deberán salir las recomendaciones del caso para mejorar el sistema.
