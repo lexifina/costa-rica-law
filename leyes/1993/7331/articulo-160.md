@@ -1,5 +1,4 @@
-ARTICULO 160.- En el caso de que la infracción que se imputa
-haya sido cometida por un tercero, la alcaldía notificará al
-propietario del vehículo su derecho de constituirse en parte,
-para lo cual debe apersonarse dentro de los ocho días siguientes
-a su notificación.
+Articulo 160.--En el caso de que la infracción imputada haya sido cometida por un tercero, la alcaldía notificara al propietario del vehículo su derecho a constituirse en parte. La notificación se realizara por cualquier medio idóneo y, cuando resulte inoperante, bastara efectuarla por medio de un edicto, que se publicara por una vez en el boletín judicial y en un diario de circulación nacional. En ambos casos, el propietario del vehículo deberá apersonarse dentro de los ocho días siguientes a la notificación o a la publicación.
+Las publicaciones contendrán, necesariamente el nombre del propietario registral, su número de cédula, el número de placa del vehículo y el del chasis. Los gastos de publicación se cargaran a la parte condenada en costas.
+(El presente artículo fue derogado por el artículo 2° de la Ley No. 7883 de 29 de setiembre de 1998.)
+La vigencia de este artículo fue restablecida por sentencia de la Sala Constitucional No. 438-2001 del 17 de enero de 2001 que declaró inconstitucional la derogatoria realizada por el artículo 2° de la Ley No. 7883 de 29 de setiembre de 1998.
