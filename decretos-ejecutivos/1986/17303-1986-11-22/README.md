@@ -14,3 +14,4 @@ Crea el Premio Nacionnal de Educación Mauro Fernández.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-12-04 | la propia norma |
+| 2 | 2000-02-28 | Decreto Ejecutivo 28561 (2000-02-28) |
