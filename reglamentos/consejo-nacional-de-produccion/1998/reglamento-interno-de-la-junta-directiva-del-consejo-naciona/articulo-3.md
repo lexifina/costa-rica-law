@@ -1,0 +1,2 @@
+Artículo 3°—Conforme con la ley. el presente Reglamento carecerá de valor ante el ordenamiento general del Estado en perjuicio de los administrados, pero no en su beneficio, en cuyo caso el particular que lo invoque deberá aceptarlo en su totalidad.
+La violación del Reglamento en perjuicio del administrado causará la invalidez del acto y eventualmente la responsabilidad de la Institución de los funcionarios responsables con arreglo a la legislación aplicable.

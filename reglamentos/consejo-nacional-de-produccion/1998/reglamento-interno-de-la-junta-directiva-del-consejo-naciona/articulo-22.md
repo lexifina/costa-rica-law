@@ -1,0 +1,1 @@
+Artículo 22.—En la agenda de la Junta Directiva habrá un capítulo permanente para conocimiento y resolución de los proyectos que por ser competencia de la Junta Directiva someta a su conocimiento la Junta Administrativa, cuya presentación será realizada por el Presidente Ejecutivo.

@@ -1,0 +1,2 @@
+Artículo 21.—Todos los acuerdos de la Junta Administrativa se tomarán por mayoría simple.
+De las sesiones se levantara una acta lacónica, que consignara únicamente la parte resolutiva de las discusiones en aquellos casos donde la votación sea unánime. En los casos donde solo haya mayoría y deba elevarse a Junta Directiva para posterior discusión, por ser de su competencia tanto legal como reglamentaria, se deberá consignar además esta circunstancia e incluirse los respectivos antecedentes. La elaboración sera responsabilidad del Secretario de la Junta Directiva.

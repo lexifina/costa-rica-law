@@ -1,0 +1,3 @@
+CAPITULO IV
+De la Junta Administrativa
+Artículo 18.—Habrá una Junta Administrativa, que tendrá el carácter de Comisión Permanente de la Junta Directiva y que estará integrada por el Presidente Ejecutivo, un directivo del sector privado, designado por la Junta Directiva, electo con la votación de mayoría calificada, el Gerente General y el Sub-Gerente General con voz y voto. Asistirán además, en carácter fiscalizador y asesor, respectivamente, el Auditor General y el Director de Asuntos Jurídicos, igualmente lo harán por invitación aquellos otros funcionarios cuya presencia sea exigida por el tema o temas en discusión, todos ellos con voz, pero sin voto.

@@ -1,0 +1,1 @@
+Artículo 5°—El Presidente Ejecutivo será quién represente oficialmente a la Institución para toda circunstancia en lo que amerite, salvo en los casos donde dicha facultad le sea otorgada al Presidente o bien que la Junta Directiva, en casos justificados, autorice a otro de sus miembros o a funcionarios ajenos a ella para que actúe como su vocero.
