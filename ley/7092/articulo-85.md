@@ -1,0 +1,5 @@
+ARTICULO 85.-Durante un lapso de tres meses a partir de la vigencia de la presente ley, toda aquella persona física o jurídica que estuviere en mora en el pago de impuestos nacionales o tasas o servicios municipales, podrá convenir en arreglos de pago con la respectiva institución acreedora, de forma que pueda cancelar el principal adeudado sin recargo de intereses, multas, honorarios, gastos o cualquier otro recargo.
+Para lo dispuesto en este artículo, el contribuyente moroso podrá establecer la forma de pago, de mutuo acuerdo con la institución acreedora, por el lapso que convengan, siempre que ese lapso no exceda de doce meses, a partir de la adopción del acuerdo.
+El beneficio que aquí se establece no rige para quien se encuentre en condición de moroso del pago de impuestos que haya recaudado en beneficio de la Hacienda Pública.
+(Así modificada su numeración por el artículo 3 de la Ley de Ajuste Tributario No. 7543 de 14 de setiembre de 1995, que lo traspasó del antiguo artículo 70 al 80)
+(Así modificada su numeración por el artículo 1º de ley No. 7551 de 22 de setiembre de 1995, que la traspasó del antiguo 80 al actual)

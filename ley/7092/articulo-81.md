@@ -1,0 +1,6 @@
+CAPITULO XXX
+Valuación de operaciones en monedas extranjeras
+(Así modificada su numeración por el artículo 3 de la Ley de Ajuste Tributario No.7543 del 14 de setiembre de 1995, que lo traspasó del XXVIII al XXIX) (Así modificada su numeración por el artículo 1º de ley No.7551 del 22 de setiembre de 1995, del antiguo XXIX al actual)
+ARTICULO 81.-Todos los contribuyentes afectos a los tributos establecidos en esta ley, que realicen operaciones o reciban ingresos en monedas extranjeras que incidan en la determinación de su renta líquida gravable, deberán efectuar la conversión de esas monedas a moneda nacional utilizando el tipo de cambio "interbancario" establecido por el Banco Central de Costa Rica, que prevalezca en el momento en que se realice la operación o se perciba el ingreso. Todas las operaciones pendientes o los ingresos no recibidos al 30 de setiembre de cada ejercicio fiscal, se valuarán al tipo de cambio fijado por el Banco Central de Costa Rica a esa fecha.
+(Así modificada su numeración por el artículo 3 de la Ley de Ajuste Tributario No. 7543 de 14 de setiembre de 1995, que lo traspasó del antiguo artículo 66 al 76)
+(Así modificada su numeración por el artículo 1º de ley No. 7551 de 22 de setiembre de 1995, que la traspasó del antiguo 76 al actual)

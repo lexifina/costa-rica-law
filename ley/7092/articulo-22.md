@@ -1,7 +1,39 @@
-Artículo 22.- Pagos parciales del impuesto.
-Los contribuyentes a que se refiere el artículo 2º de esta ley están obligados a efectuar pagos parciales a cuenta del impuesto de cada período fiscal, conforme con las reglas siguientes:
-a) Servirá de base para calcular las cuotas de pagos parciales el impuesto determinado en el año inmediato anterior, o el promedio aritmético de los tres últimos períodos fiscales, el que fuere mayor.
-En el caso de contribuyentes que por cualquier circunstancia no hubieren declarado en los tres períodos fiscales anteriores, la base para calcular las cuotas de los pagos parciales se determinará utilizando las declaraciones que hubieren presentado y, si fuere la primera, mediante estimación fundada que al efecto deberá proporcionar a la Administración Tributaria el contribuyente que se trate. Dicha estimación deberá presentarse a más tardar en el mes de enero de cada año. Si no se presentare, la Administración Tributaria establecerá de oficio la cuota respectiva.
-b) Determinando el monto del pago a cuenta, el setenta y cinco por ciento (75%) de ese monto deberá fraccionarse en tres cuotas iguales, las que deberán pagarse sucesivamente a más tardar el último día hábil de los meses de marzo, junio y setiembre de cada año.
-c) Del impuesto total que le liquide al presentarse la correspondiente declaración jurada se deberán deducir los pagos parciales correspondientes a ese período fiscal. El saldo resultante deberá pagarse a más tardar el último día hábil del mes de diciembre de cada año. Tratándose de empresas que obtengan sus ingresos exclusivamente de actividades agropecuarias, podrán pagar el impuesto del período fiscal en una sola cuota, a más tardar el último día hábil del mes de diciembre de cada año.
-La Administración Tributaria podrá rectificar las cuotas de los pagos parciales cuando los contribuyentes lo soliciten por escrito y demuestren, a su satisfacción, que la base de cálculo está afectada por ingresos extraordinarios, o cuando se prevean pérdidas para el período fiscal de que se trate.
+ARTICULO 22.- Pagos parciales del impuesto.
+Los contribuyentes a que se refiere el artículo 2 de esta Ley están
+obligados a efectuar pagos parciales a cuenta del impuesto de cada
+período fiscal, conforme con las reglas siguientes:
+a) Servirá de base para calcular las cuotas de pagos parciales el
+impuesto determinado en el año inmediato anterior, o el promedio
+aritmético de los tres últimos períodos fiscales, el que fuere
+mayor.
+En el caso de contribuyentes que por cualquier circunstancia no
+hubieren declarado en los tres períodos fiscales anteriores, la
+base para calcular las cuotas de los pagos parciales se
+determinará utilizando las declaraciones que hubieren presentado
+y, si fuere la primera, mediante estimación fundada que al efecto
+deberá proporcionar a la Administración Tributaria el
+contribuyente de que se trate. Dicha estimación deberá
+presentarse a más tardar en el mes de enero de cada año.
+Si no se presentare, la Administración Tributaria establecerá de
+oficio la cuota respectiva.
+b) Determinado el monto del pago a cuenta, el setenta y cinco por
+ciento (75%) de ese monto deberá fraccionarse en tres cuotas
+iguales, las que deberán pagarse sucesivamente a más tardar el
+último día hábil de los meses de marzo, junio y setiembre de cada
+año.
+c) Del impuesto total que se liquide al presentar la declaración
+jurada, deberán deducirse los pagos parciales que correspondan a
+ese período fiscal. El saldo resultante deberá pagarse dentro de
+los tres meses siguientes al término del período fiscal
+respectivo. Las empresas que obtengan sus ingresos de actividades
+agropecuarias exclusivamente, podrán pagar el impuesto del
+período fiscal en una sola cuota, dentro de los tres meses
+siguientes a la terminación del período fiscal que corresponda.
+La Administración Tributaria podrá rectificar las cuotas de los
+pagos parciales cuando los contribuyentes lo soliciten por
+escrito, antes de la fecha de su vencimiento y demuestren
+satisfactoriamente, ante esa dependencia, que la base del cálculo
+está afectada por ingresos extraordinarios o cuando se prevean
+pérdidas para el período fiscal del que se trate.
+(Así reformado por el artículo 15 de la Ley de Justicia
+Tributaria No. 7535 de 1º de agosto de 1995)

@@ -1,4 +1,3 @@
-TITULO III
-De los certificados para efectos tributarios, libros y normas de Contabilidad
-CAPITULO XX
-Artículo 43.- Los declarantes podrán servirse de contadores públicos autorizados para que, de acuerdo con el inciso c) del artículo 7º de la ley Nº 1038 del 19 de agosto de 1974 y sus reformas, les certifiquen los estados contables y financieros que deban incluir en la declaración. En la certificación, la firma del contador deberá ir precedida de la razón “Certificado para efectos tributarios”.
+ARTICULO 43.-Certificación de las retenciones. En cada período fiscal, el empleador, el patrono o el pagador deberá entregar a sus empleados, pensionados o jubilados, un estado donde conste el total de las remuneraciones pagadas y de los impuestos retenidos y pagados. Igualmente, en el Reglamento de esta Ley podrán fijarse otros requisitos que los retenedores deberán cumplir, o los documentos que deberán presentar en la Dirección General de la Tributación Directa.
+(Así reformado por el artículo 18 de la Ley de Justicia Tributaria No. 7535 de 1º de agosto de 1995)
+(Así modificada su numeración por el artículo 1º de ley No. 7551 de 22 de setiembre de 1995, que la traspasó del antiguo 38 al actual)

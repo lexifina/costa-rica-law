@@ -1,4 +1,9 @@
-CAPITULO XXXI
-Vigencias
-Artículo 69.- Fecha de vigencia.
-Las disposiciones de esta ley son de orden público y rigen a partir del primer día del mes siguiente a su publicación.
+ARTICULO 69.-El régimen de admisión temporal. Se establece un régimen de admisión temporal, mediante el cual se permitirá recibir, dentro del territorio aduanero, con suspensión de toda clase de tributos, las mercancías destinadas al exterior, después de haber sido sometidas a procesos de reparación, reconstrucción, montaje, ensamblaje, incorporación a conjuntos o aparatos de mayor complejidad tecnológica y funcional, o a uso en equipos de transporte y otros fines.
+También podrán ingresar al país mediante el presente procedimiento, por un plazo de hasta doce meses, muestras, modelos, patrones y artículos similares, para fines demostrativos, de instrucción o de exposición en ferias.
+Asimismo, quedan comprendidos dentro de este régimen, los equipos y repuestos necesarios para realizar los procesos citados así como las mercancías que desaparezcan total o parcialmente en ellos, lo mismo que los bienes destinados a ofrecer una mayor comodidad laboral a los empleados de las plantas. Estos últimos de acuerdo con lo que al respecto se señale en una reglamentación especial.
+(Derogado el antiguo párrafo 4 -sobre prenda aduanera- por el artículo 255 (actual 274), inciso e), de la Ley General de Aduanas Nº 7557 de 20 de octubre de 1995)
+El Ministerio de Hacienda velará por la correcta aplicación de este régimen y reglamentará el destino de las mermas y desperdicios que se produzcan en los procesos productivos señalados.
+Las instalaciones o plantas físicas, edificios y predios de las empresas que operen dentro de este régimen, constituyen instalaciones de interés público y estarán sujetas a un control permanente y a la supervisión del servicio aduanero nacional.
+Los beneficiarios de este régimen estarán sujetos al impuesto sobre la renta por las utilidades que les genere esta actividad.
+(Así adicionados estos dos últimos párrafos por el artículo 24 de la Ley Nº 7293 de 31 de marzo 1992)
+(Así modificada su numeración por el artículo 1º de ley Nº 7551 de 22 de setiembre de 1995, que la traspasó del antiguo 64 al actual)
