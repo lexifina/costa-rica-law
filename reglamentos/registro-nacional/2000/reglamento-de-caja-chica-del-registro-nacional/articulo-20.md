@@ -1,0 +1,2 @@
+ARTÍCULO 20
+Las giras deberán programarse con quince días de antelación, con el fin de tramitar el adelanto de acuerdo a la disponibilidad presupuestaría existente, a través de la cuenta corriente de la Junta Administrativa. Por caja chica se tramitaran solamente casos especiales en que deba realizare un viaje no previsto en la programación. La entrega del cheque se hará en la primera hora hábil del día de la salida. En caso de que la salida sea antes del inicio de la jornada laboral, el cheque se entregara al beneficiario el día hábil anterior a la salida.

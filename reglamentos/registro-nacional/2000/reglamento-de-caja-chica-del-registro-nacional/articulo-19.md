@@ -1,0 +1,2 @@
+ARTÍCULO 19
+El incumplimiento de lo estipulado en el artículo 18, será considerado como falta a los deberes y obligaciones del funcionario y será sancionada de acuerdo con las disposiciones del Estatuto del Servicio Civil y su Reglamento, del Reglamento Interior de Trabajo del Ministerio de Justicia, del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos y de la Ley de la Administración Financiera de la República.

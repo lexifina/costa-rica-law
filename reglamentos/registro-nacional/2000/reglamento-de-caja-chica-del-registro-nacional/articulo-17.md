@@ -1,0 +1,3 @@
+ARTÍCULO 17
+Para el trámite de pago mediante estos fondos, se establece el procedimiento señalado en el Manual de Funciones y Procedimientos de Tesorería en el punto 2.1.3 que textualmente indica: "podrán solicitarse sumas como ¡adelanto utilizando el formulario prenumerado "Vale provisional de Caja Chica", el cual se le consignará la fecha, monto, el nombre, concepto y debe ser firmado por el funcionario que recibe el efectivo y la firma del cajero".
+Además se debe indicar el bien o servicio por adquirir. Dicho vale se conservará en caja y será entregado a la persona que realizó la compra, una vez que presente la liquidación del dinero que le fue entregado.

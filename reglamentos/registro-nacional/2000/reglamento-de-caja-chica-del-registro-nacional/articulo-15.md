@@ -1,0 +1,2 @@
+ARTICULO 15
+El Reglamento de cajas chicas auxiliares deberá ajustarse a las disposiciones del presente Reglamento, del Reglamento General de Cajas Chicas, del Reglamento Para la Operación de Cajas Chicas Auxiliares, del Manual sobre Normas Técnicas de Control Interno para la Contraloría General de la República y las Entidades y Órganos sujetos a su fiscalización. La Ley de Contratación Administrativa, el Reglamento General de Contratación Administrativa, y el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.
