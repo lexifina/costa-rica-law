@@ -13,3 +13,4 @@ Deroga Emergencia para Construcción de Edificio del IMAS
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-03-06 | la propia norma |
+| 2 | 1997-03-06 | SINALEVI (sin norma nombrada) |
