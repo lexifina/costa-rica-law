@@ -14,3 +14,4 @@ Declara Emergencia Nacional Carretera Costanera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-02-09 | la propia norma |
+| 2 | 1990-02-09 | Decreto Ejecutivo 19573 (1990-03-28) |
