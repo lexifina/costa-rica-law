@@ -1,0 +1,1 @@
+Artículo 18.—Exportación. Con el otorgamiento del permiso de acceso, no se exonera al interesado del cumplimiento de las obligaciones que estipula la legislación nacional en cuanto a la exportación de las plantas, animales, semillas, microorganismos o partes de estos obtenidos del acceso.

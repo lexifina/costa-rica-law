@@ -1,0 +1,3 @@
+SECCIÓN III
+Convenios marco, contratos y convenios entre particulares
+Artículo 21.—Convenios marco. Las universidades públicas y otros centros de investigación debidamente registrados podrán suscribir periódicamente a juicio de la Oficina Técnica, convenios marco con la CONAGEBIO, para tramitar los permisos de acceso a los elementos o recursos genéticos o bioquímicos de la biodiversidad o al conocimiento asociado; para investigación básica, bioprospección o aprovechamiento comercial y entregar los informes respectivos de las operaciones. En estos casos, los representantes legales de las universidades o instituciones que se acojan a este beneficio, serán penal y civilmente responsables por el uso que se les de.

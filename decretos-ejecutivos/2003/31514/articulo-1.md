@@ -1,0 +1,20 @@
+Nº 31514-MINAE
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DEL AMBIENTE Y ENERGÍA
+En uso de las facultades que le confieren los artículos 46, 50, 140 incisos 3) y 18) y 146 de la Constitución Política, los artículos 46 y 47 de la Ley Orgánica del Ambiente Nº 7554 del 4 de octubre de 1995 y el artículo 62 de la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998.
+Considerando:
+1º—Que el Convenio sobre la Diversidad Biológica, en su artículo 15 afirma que en reconocimiento de los derechos soberanos de los Estados sobre sus recursos naturales, la facultad de regular el acceso a los recursos genéticos incumbe a los gobiernos y está sometida a la legislación nacional y que cada parte procurará crear condiciones para facilitar su acceso para utilizaciones ambientalmente adecuadas.
+2º—Que el artículo 6º de la Ley de Biodiversidad Nº 7788, dispone que las propiedades bioquímicas y genéticas de los elementos de la biodiversidad silvestres y domesticados son de dominio público y que el Estado autorizará la exploración, la investigación, la bioprospección, el uso y el aprovechamiento de los elementos de la biodiversidad que constituyen bienes de dominio público, así como la utilización de todos los recursos genéticos y bioquímicos, por medio de las normas generales de acceso.
+3º—Que el artículo 14 de la Ley de Biodiversidad Nº 7788, crea la Comisión Nacional para la Gestión de la Biodiversidad (CONAGEBIO). 4º—Que el artículo 62 de la misma Ley, establece que: "Corresponde a la Comisión proponer las políticas de acceso sobre los elementos genéticos y bioquímicos de la biodiversidad ex situ e in situ. Actuará como órgano de consulta obligatoria en los procedimientos de solicitud de protección de los derechos intelectuales sobre la biodiversidad.
+Las disposiciones que sobre la materia acuerde constituirán las normas generales para el acceso a los elementos genéticos y bioquímicos y para la protección de los derechos intelectuales sobre la biodiversidad a las que deberán someterse la administración y los particulares interesados…".
+5º—Que la CONAGEBIO ha tomado en cuenta para la elaboración de estas normas, además de la Ley de Biodiversidad, diversos acuerdos internacionales, a saber el Convenio de Diversidad Biológica, las Directrices de Bonn sobre Acceso y Distribución de Beneficios del Convenio de Diversidad Biológica, el Convenio 169 sobre Pueblos Indígenas y Tribales (Ley Nº 7316).
+6º—Que además de las disposiciones legales nacionales e internacionales en materia de acceso ya citadas, la CONAGEBIO realizó consultas y talleres en diversas oportunidades para obtener recomendaciones de expertos, sectores involucrados e instituciones nacionales en la redacción de las mismas, procurando cumplir este deber de la forma más efectiva, participativa y transparente. Por tanto:
+DECRETAN:
+Normas Generales para el Acceso a los Elementos yRecursos Genéticos y Bioquímicos de la Biodiversidad
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Objetivos. Los objetivos de estas normas son:
+a) Regular el acceso a los elementos y recursos genéticos y bioquímicos de la biodiversidad y al conocimiento, innovaciones y prácticas tradicionales asociadas.
+b) Regular la distribución justa y equitativa de los beneficios sociales, ambientales y económicos derivados del uso de los elementos y recursos bioquímicos y genéticos de la biodiversidad para todos los sectores de la sociedad, con atención especial a las comunidades locales y pueblos indígenas.
+c) Tutelar y proteger los derechos intelectuales comunitarios sui generis.
+d) Facilitar el acceso a los elementos y recursos genéticos y bioquímicos de la biodiversidad y propiciar el desarrollo de la investigación y tecnología, siempre que estas actividades no pongan en riesgo la sostenibilidad de los recursos ni contravengan los objetivos del Convenio de Diversidad Biológica.
+e) Asegurar y facilitar el acceso a las tecnologías y a su transferencia adecuada, efectiva y selectiva, en condiciones justas, favorables y mutuamente convenidas de manera que se mejore la capacidad nacional.

@@ -1,0 +1,2 @@
+Transitorio 2º—Conocimientos, innovaciones y prácticas de lascomunidades locales y los pueblos indígenas.
+No se otorgarán permisos de acceso de investigación básica, de bioprospección o de aprovechamiento económico, cuando involucren conocimientos, innovaciones y prácticas de las comunidades locales y los pueblos indígenas sobre el uso de los recursos genéticos y bioquímicos de la biodiversidad, hasta tanto no se cumpla con el procedimiento para establecer sus derechos, según los artículos 66, y del 82 al 85 de la Ley de Biodiversidad.

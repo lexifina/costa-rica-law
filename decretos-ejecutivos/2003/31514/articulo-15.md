@@ -1,0 +1,3 @@
+Artículo 15.—Publicación de las solicitudes y resoluciones.
+Un resumen de las solicitudes y posteriormente las resoluciones finales cuando queden en firme, serán publicadas en la página del Internet de la CONAGEBIO dentro de los ocho días hábiles siguientes a su conocimiento o su dictamen, respetando la confidencialidad y los secretos comerciales e industriales que el interesado señale como tales en la información aportada tanto en la solicitud de permiso de acceso como en los documentos que la acompañan, y de conformidad con la Ley de Información no Divulgada Nº 7975.
+Asimismo, la Oficina elaborará un informe anual sobre los permisos de acceso otorgados en el país, y lo enviará al Mecanismo de Intercambio de Información del Convenio de Diversidad Biológica.

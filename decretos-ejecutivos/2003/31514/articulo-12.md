@@ -1,0 +1,1 @@
+Artículo 12.—Refrendo del consentimiento previamente informado. La Oficina Técnica deberá refrendar el consentimiento previamente informado y en los casos en que lo considere necesario hará consultas de campo, para verificar los términos acordados.
