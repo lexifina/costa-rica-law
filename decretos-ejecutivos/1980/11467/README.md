@@ -13,3 +13,4 @@ Declara Emergencia Solución Falta Agua Potable Valle del Guarco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-05-23 | la propia norma |
+| 2 | 1980-05-23 | SINALEVI (sin norma nombrada) |
