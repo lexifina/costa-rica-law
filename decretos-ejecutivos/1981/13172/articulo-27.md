@@ -1,1 +1,2 @@
-Artículo 27.-Se deroga el reglamento a la ley número 5662 emitido mediante Decreto Ejecutivo número 10119-TSS del 4 de junio de 1979.
+Artículo 27.-Las decisiones del Consejo, en la materia de su competencia, tendrán carácter obligatorio.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 16092 del 12 de marzo de 1985)
