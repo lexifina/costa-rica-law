@@ -1,0 +1,13 @@
+Artículo 3°—Autorizase a la Caja Costarricense de Seguro Social para que otorgue un préstamo por la suma de diez millones de colones (¢10.000,000.00) en dinero efectivo, al Instituto Costarricense de Electricidad, con destino a los gastos locales que demande la ejecución del Proyecto de Telecomunicaciones Nacionales, bajo las siguientes condiciones:
+a) La obligación será pagada dentro de quince años, contados a partir de la firma del respectivo contrato, en el entendido de que durante los primeros tres años el Instituto sólo pagará intereses. A partir del vencimiento del primer trimestre del cuarto año se iniciará la amortización de la deuda, hasta su cancelación, en cuotas fijas periódicas de amortización e intereses; el tipo de interés será del siete por ciento (7%) anual.
+b) La Caja entregará al Instituto los diez millones de colones en sumas parciales que se especificarán en el contrato, por un monto de dos millones de colones durante el año 1963; de cuatro millones de colones durante 1964; y de cuatro millones de colones durante 1965;
+c) El Instituto le otorgará a la Caja hipoteca de segundo grado sobre la Planta Hidroeléctrica de La Garita, cuya primera hipoteca garantiza a la Caja un préstamo anterior al Instituto. El notario que autorice esta escritura no podrá cobrar suma mayor al diez por ciento (10%) de los honorarios que le fija la ley:
+d) La Contraloría General de la República no aprobará los presupuestos del Instituto si en ellos no figuran las partidas necesarias para hacerle frente a las obligaciones contraídas con la Caja, todo de conformidad con la presente ley y el respectivo contrato;
+e) El Estarlo será solidariamente responsable de la amortización y pago de esta deuda en caso de incumplimiento del Instituto;
+f) Este contrato podrá ser rescindido, sin consecuencias jurídicas para las partes, en los siguientes casos:
+1) Si el Instituto no le presentare anualmente a la Caja un programa de los trabajos de telecomunicaciones a realizar el año siguiente;
+2) Si el Instituto llegare a modificar en su esencia los planes de construcciones del Proyecto Nacional de Telecomunicaciones, o bien los dejare en suspenso, sin previa autorización de la Caja;
+3) Si el Instituto impidiere a la Caja fiscalizar la ejecución de los proyectos anuales de telecomunicaciones;
+4) Si no cumpliere puntualmente la atención del préstamo; y
+5) Por mutuo acuerdo..
+g) En caso de incumplimiento, la Caja podrá embargar y subastar los bienes inmuebles que se le hayan dado en garantía, para lo cual se dejan sin efecto las disposiciones legales que declaran inembargables los bienes del Instituto como entidad del Estado, pero únicamente en cuanto a los que garantizan este empréstito.
