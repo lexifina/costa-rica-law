@@ -1,0 +1,1 @@
+ARTÍCULO 35.-La organización de estas juntas y el orden de sus sesiones, ser el mismo que queda detallado para la general del Estado; debiéndose instalar cada una de ellas y permanecer en el lugar señalado para las cabeceras de partido.

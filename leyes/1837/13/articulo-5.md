@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-Se prohíben absolutamente depósitos de basuras y materias corruptibles, aguas detenidas y en general todo cuanto pueda contribuir de algún modo infectar el aire, y proporcionar corrupción, humedad-

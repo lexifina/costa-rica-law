@@ -1,0 +1,1 @@
+ARTÍCULO 11.-Si por desgracia prendiere el cólera en las poblaciones del Estado, la policía inmediatamente mandar cerrar las Iglesias, celebrándose únicamente las misas de precepto en altar portátil en las plazas públicas: también prohibir las grandes reuniones de tiangue en ellas, dividiéndolas en las que hubieren en el lugar para dispersar en lo posible las masas.

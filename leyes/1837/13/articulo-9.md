@@ -1,0 +1,1 @@
+ARTÍCULO 9°.-Con el fin de facilitar el aire libre en el interior de las poblaciones, la policía cuidar que desde la publicación de este decreto se afeiten y descombren las arboledas del interior de los solares, para que no formen bosques, y la circulación del aire sea libre.

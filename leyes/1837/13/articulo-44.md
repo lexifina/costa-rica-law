@@ -1,0 +1,1 @@
+ARTÍCULO 44.-De los productos de esta limosna se formar n cargo los mismos Párrocos, que ser n los tesoreros del fondo de caridad de cada pueblo, llevando un libro de cargo y data que con cuenta y razón se sienten las partidas de las limosnas recogidas, y demás arbitrios para este fondo.

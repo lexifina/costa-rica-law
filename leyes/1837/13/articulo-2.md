@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-Toda persona que resista el obedecimiento de las disposiciones que se dictaren, ser considerada como omisa ‚ inhumana, y queda por lo mismo sujeta la ejecución, bajo el rigor de las providencias que pera su cumplimiento tangan bien los Tribunales y ministros de policía.

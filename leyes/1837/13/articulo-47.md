@@ -1,0 +1,1 @@
+ARTÍCULO 47.-El Tesorero del fondo de caridad, luego que se hayan consumido las limosnas recaudadas, pedir al mayordomo general de fondos píos la parte que ‚este debe satisfacer por el diez por ciento con que quedan gravados aquellos, gastándola según las ¢órdenes que reciba.

@@ -1,0 +1,1 @@
+ARTÍCULO 41.-Estos hospitales los asistirán los inteligentes en medicina que hayan en el p is, para lo cual librar sus órdenes al Ministro principal de policía, sin perjuicio de que visiten los arrabales y barrios, y aun las otras Parroquias del partido si en ellas hubiese enfermos.

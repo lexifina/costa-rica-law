@@ -1,0 +1,1 @@
+ARTÍCULO 49.-Del manejo de la botica se dar cuenta su tiempo, y comprobar n las datas de esta con las órdenes del inteligente, como se ha dicho en el artículo anterior y con las que el Ministro principal de policía ¢ subalterno de Parroquia libren para el auxilio de aquellos enfermos infelices que se hayan podido reunirse en el hospital, ¢ casas de enfermería.

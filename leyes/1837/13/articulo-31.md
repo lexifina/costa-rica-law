@@ -1,0 +1,1 @@
+ARTÍCULO 31.-Esta junta tendrá por principal objetivo la salud p£blica de todo el Estado, y salvar su población del terrible contagio del cólera; y sus acuerdos ser n sancionados por su Presidente ordenando al efecto su publicación y cumplimiento, valiéndose para ello de las facultades y penas establecidas en este reglamento.
