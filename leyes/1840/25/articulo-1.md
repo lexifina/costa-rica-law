@@ -1,0 +1,8 @@
+DECRETA XXV
+(Nota de Sinalevi: Se respeta la ortografía y gramática del texto original)
+(Nota de Sinalevi: Mediante el artículo 1° de la Ley “Designa las leyes y disposiciones dictadas por la Administración del Lic. Carrillo que deben continuar rigiendo provisionalmente”, N° 96 del 05 de setiembre de 1842, se indica: “…que la presente norma continua observándose”)
+Declara que es redimible el censo impuesto sobre los terrenos de Pavas. (1)
+(1) Rehabilitado por el 9° art. 1° del Decreto n° 25 de 1° de Setiembre de 1842.
+EI Jefe Supremo del Estado Soberano de Costa Rica.
+Con presencia de la solicitud que ha hecho la Municipalidad de esta Ciudad, para que el censo establecido por el artículo 3° del Decreto de 17 de Julio del presente año se constituya redimible al arbitrio de los censatarios: atendiendo las razones en que se funda dicho pedimento; y de conformidad con el dictamen del Consejo Representativo a quien se Ie pasó en consulta, decreta.
+Artículo único. Será redimible al arbitrio de Ios censatarios el censo establecido por el articulo 3° del Decreto citado de 17 de Julio de este año, pagándose cien pesos por cada manzana: Ios fondos que produzca la espresada redención, se dividirán por mitades, para la educacion pública una, y para la hacienda municipal otra; administrándose Conforme se disponga en los respectivos reglamentos.-Pagado el capital que se reconozca, se chancelará la obligacion en Ia misma escritura de reconocimiento, en la forma que se hace con todas las que corresponden a la hacienda publica.- Dado en San José, a diezisiete de Setiembre de mil ochocientos cuarenta.-
