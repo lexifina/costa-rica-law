@@ -15,3 +15,4 @@ Reglamento para la Adjudicación de Becas al Personal del Ministerio de Hacienda
 | --- | --- | --- |
 | 1 | 1978-05-23 | la propia norma |
 | 2 | 1984-01-04 | Decreto Ejecutivo 15123 (1984-01-04) |
+| 3 | 1984-02-03 | Decreto Ejecutivo 15279 (1984-02-03) |
