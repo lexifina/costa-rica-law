@@ -1,1 +1,1 @@
-Artículo 106.—Para ser beneficiarios de la distribución de los recursos en Hogares, Albergues y Asilos, el número de Adultos Mayores con capacidad de pagar el cincuenta por ciento del costo de estancia, no puede sobrepasar el cincuenta por ciento del total de la población.
+Artículo 106.—(DEROGADO mediante Decreto Ejecutivo N° 31615 del 08 de enero de 2004, publicado en La Gaceta N° 23 del 03 de enero de 2004.)
