@@ -13,3 +13,4 @@ Reglamento a la Ley de Representantes de Casas Extranjeras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-06-16 | la propia norma |
+| 2 | 1978-06-16 | SINALEVI (sin norma nombrada) |
