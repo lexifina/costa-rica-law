@@ -1,1 +1,3 @@
-Artículo 9°—Las Actas serán firmadas por el Presidente Ejecutivo o por la persona que haya presidido, por la Secretaria y por aquellos Miembros de Junta Directiva que hayan hecho constar su voto negativo.
+Artículo 9º—Las actas serán firmadas por el Presidente Ejecutivo o por la persona que haya presidido, por la Secretaria de la Junta Directiva y por aquellos miembros de la Junta Directiva que hayan hecho constar su voto negativo en determinado acuerdo.
+El Presidente Ejecutivo o la persona que haya presidido y la Secretaria de la Junta Directiva firmarán las Actas una vez que hayan firmado aquellos Directores que hubiesen externado su voto negativo. Todas las firmas se harán en forma consecutiva; además, cada página del Acta será refrendada con la firma del Presidente Ejecutivo.
+(Así reformado mediante sesión N° 2970 de 8 de diciembre del 2000)
