@@ -1,0 +1,1 @@
+Artículo 2°—El Museo de Cultura Popular dependerá administrativa y financieramente de la asociación “Amigos de la Cultura Tradicional”. La Dirección General de Museos, le brindará al Museo asesoría profesional en su campo, y apoyo financiero, de acuerdo con sus posibilidades.

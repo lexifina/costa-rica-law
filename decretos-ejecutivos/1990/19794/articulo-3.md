@@ -1,0 +1,1 @@
+Artículo 3°—La Universidad Nacional dentro de los términos del Convenio de Cooperación suscrito con la asociación “Amigos de la Cultura Tradicional”, dará su apoyo al establecimiento y desarrollo del Museo de Cultura Popular.
