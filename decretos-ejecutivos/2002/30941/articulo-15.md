@@ -1,0 +1,1 @@
+Artículo 15.—El expediente del personal deberá contener todos aquellos documentos y datos que sirvan para determinar el historial. El (la) funcionario (a) será el responsable de actualizar su expediente.

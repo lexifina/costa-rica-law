@@ -1,0 +1,1 @@
+Artículo 98.—La Junta será de carácter consultivo y tendrá como propósito el estudio armonioso de las situaciones de conflicto de índole laboral, sean éstos de naturaleza individual o colectiva, o de las demandas de mejoramiento social en beneficio de los (as) servidores (as).

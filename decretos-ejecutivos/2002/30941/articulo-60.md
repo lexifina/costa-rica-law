@@ -1,0 +1,1 @@
+Artículo 60.—En caso de que el (la) servidor(a) por razones justificadas no pueda disfrutar las vacaciones en el período establecido, deberá comunicarlo de inmediato por escrito a su jefatura para que ésta reprograme las mismas, quien deberá notificarlo a Recursos Humanos.

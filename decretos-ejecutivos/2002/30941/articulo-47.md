@@ -1,0 +1,2 @@
+Artículo 47.—El Órgano Director contará con tres días naturales para dictar el auto inicial del procedimiento, en el cual se dará el traslado de denuncia al (a la) funcionario(a) acusado(a), concediéndole un plazo de cinco días hábiles contados a partir del día siguiente de la notificación, para que se refiera a todos y cada uno de los hechos que se imputan y ofrezca los elementos de prueba de descargo que estime necesarios.
+Si el (la) denunciado(a) no ejerce su defensa se continuará con el procedimiento hasta el informe final.

@@ -1,0 +1,1 @@
+Artículo 8º—El Director Ejecutivo deberá interpretar y resolver las dudas o lagunas que contenga, en la aplicación del presente Reglamento, en cuyo caso podrá consultar a Recursos Humanos o a la Asesoría Legal.

@@ -1,0 +1,1 @@
+Artículo 6º—En virtud del principio de legalidad, el servidor(a) no podrá disfrutar de más beneficios, ni la administración ejercer mayores potestades, que las expresamente autorizadas por el Estatuto de Servicio Civil, su Reglamento y este Reglamento o, en su defecto, por las demás normas del ordenamiento jurídico.

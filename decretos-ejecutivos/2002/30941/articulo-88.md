@@ -1,0 +1,1 @@
+Artículo 88.—El (la) funcionario(a) que efectúe un registro de asistencia que no sea el suyo, incurrirá en falta grave; de la misma manera aquel (aquella) que consienta o solicite a otro le registre su marca de asistencia. Asimismo, el que dañe o altere los medios de control que pudiesen existir.

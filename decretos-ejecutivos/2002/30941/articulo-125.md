@@ -1,0 +1,1 @@
+Artículo 125.—Se amonestará por escrito al (a la) funcionario(a) que por primera vez no atienda un citatorio, realice o remita la información que le sea solicitada para la resolución de un asunto disciplinario laboral y se le suspenderá por cinco días naturales en caso de reincidencia.

@@ -1,0 +1,1 @@
+Artículo 43.—El Órgano Director podrá plantear ante el (la) Director(a) Ejecutivo(a) o ante quién lo (la) sustituya, a solicitud de la persona interesada, la reubicación temporal en cualquier momento del proceso.

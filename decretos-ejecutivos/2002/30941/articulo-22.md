@@ -1,0 +1,1 @@
+Artículo 22.—Las permutas podrán ser acordadas por los (las) funcionarios (as) y jefes (as) respectivos (as) siempre que sea de beneficio para ambas dependencias. Todo traslado deberá ser canalizado por Recursos Humanos con la debida justificación.

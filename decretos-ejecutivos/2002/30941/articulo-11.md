@@ -1,0 +1,6 @@
+CAPÍTULO III
+De la selección de personal y del ingreso al Consejo Nacional de Vialidad
+Artículo 11.—Las personas que ingresen al servicio del CONAVI, lo harán mediante nombramiento, o por contrato a plazo fijo, o por obra determinada cuando fuese procedente, conforme a las siguientes disposiciones:
+1. Cuando se trate de puestos incluidos en el Régimen, estarán sometidos a las disposiciones del Estatuto de Servicio Civil, su Reglamento, Código de Trabajo, este Reglamento y demás normas conexas.
+2. Servidores (as) Interinos (as): Será servidor(a) interino(a) el (la) que sea nombrado(a) para sustituir a uno regular por motivo de licencia sin goce de salario o el nombrado(a) para llenar plazas vacantes mientras no existan candidatos (as) elegibles por la Dirección General de Servicio Civil, por el tiempo que ésta ocupe para realizar el concurso respectivo. Su nombramiento concluirá sin ninguna responsabilidad para la institución al cesar sus funciones. Siempre que la contratación no haya excedido del año en forma ininterrumpida.
+3. Cuando se trate de los puestos de confianza a que se refieren los artículos 3 inciso c) y 4, inciso f) del Estatuto de Servicio Civil, los nombramientos se harán de conformidad con las políticas que se establezcan y las disposiciones que haya emitido la Autoridad Presupuestaria.

@@ -1,0 +1,1 @@
+Artículo 57.—Por regla general las vacaciones son incompensables, no obstante se podrá proceder a su compensación cuando se presenten las excepciones establecidas en el artículo 156 del Código de Trabajo.

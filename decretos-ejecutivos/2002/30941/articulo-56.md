@@ -1,0 +1,1 @@
+Artículo 56.—La concesión de un asueto la dispone la Presidencia de la República de conformidad con la ley, y Recursos Humanos lo comunicará a los (las) trabajadores (as). En ningún caso se considera dicho otorgamiento como un derecho adquirido.

@@ -1,0 +1,1 @@
+Artículo 81.—Será entera responsabilidad de cada jefe(a), el buen uso y regulación del empleo de horas extraordinarias. El (la) funcionario (a) que labore tiempo extraordinario, aunque disfrute de la exoneración de registro de marca, para hacerse acreedor al pago deberá consignar su asistencia mediante la tarjeta o el sistema establecido, en la jornada extraordinaria.

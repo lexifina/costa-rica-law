@@ -1,0 +1,1 @@
+Artículo 110.—La valoración de las faltas en que incurrieren los (as) funcionarios (as) para determinación de la sanción correspondiente, se fundamentará en los principios de derecho, de objetividad y proporcionalidad.

@@ -1,0 +1,1 @@
+Artículo 130.—En el proceso de investigación que establece este Título, Recursos Humanos podrá solicitar de otras dependencias, a los servidores (as) involucrados (as), aportar documentos y/o citarlos para que declaren o realicen cualquier acto necesario para el desenvolvimiento normal del procedimiento disciplinario o para su decisión final.

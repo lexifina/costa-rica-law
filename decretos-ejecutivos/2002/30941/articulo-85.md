@@ -1,0 +1,1 @@
+Artículo 85.—El control de entrada y salida durante el tiempo destinado a la hora de almuerzo, queda bajo la responsabilidad de cada jefe(a) inmediato(a), quien establecerá los mecanismos necesarios para ello, de manera que no se cierre el despacho y no se ocasione menoscabo en la prestación del servicio.

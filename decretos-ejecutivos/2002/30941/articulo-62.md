@@ -1,0 +1,6 @@
+Artículo 62.—Para obtener derecho a la vacación anual, es necesario que el (la) servidor(a) haya prestado sus servicios durante cincuenta semanas continuas. Sin embargo, si por cualquier causa el (la) servidor(a) no completara dicho período por terminación de su relación de servicio, tendrá derecho a vacaciones proporcionales de la siguiente forma:
+1. Un día por cada mes trabajado en los casos en que el (la) servidor(a) no haya cumplido con las cincuenta semanas de servicio.
+2. Uno punto veinticinco días por cada mes trabajado en los casos en que al (a la) servidor(a) le correspondiera disfrutar de quince días de vacaciones.
+3. Uno punto sesenta y seis días por cada mes trabajado en los casos en que el (la) servidor(a) le correspondiera disfrutar de veinte días hábiles de vacaciones.
+4. Dos punto dieciséis días por cada mes trabajado en los casos en que el (la) servidor(a) le correspondiere disfrutar de veintiséis días hábiles de vacaciones.
+La prestación efectiva del servicio, para efectos de cálculo de las vacaciones anuales, no será afectada por las licencias que se conceden a las servidoras por concepto de maternidad y por adoptar un niño no mayor de tres años, según lo establecido en los artículos 29 y 33, inciso b) del Reglamento al Estatuto de Servicio Civil.

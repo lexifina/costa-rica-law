@@ -1,0 +1,2 @@
+Artículo 102.—Recursos Humanos establecerá la evaluación de la sujeción a sanciones disciplinarias de acuerdo con la gravedad de la sanción previo a hacer la invitación a participar en el proceso. Así mismo, la Junta de Relaciones Laborales nombrada de conformidad con el Artículo 97, deberá establecer las normas y procedimientos para su funcionamiento, de conformidad con las funciones que se le están otorgando.
+Respecto a la evaluación de las adhesiones, se aplicará la siguiente fórmula: N° de adhesiones del postulado / N° mayor de adhesiones obtenida x 40

@@ -1,0 +1,1 @@
+Artículo 122.—Cuando el resultado de la evaluación y calificación de servicios anual del (de la) servidor(a) sea regular o inferior por dos veces consecutivas será causal de despido, sin responsabilidad patronal.

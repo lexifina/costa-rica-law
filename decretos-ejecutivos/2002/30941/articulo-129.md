@@ -1,0 +1,4 @@
+Artículo 129.—El procedimiento o instrucción disciplinaria atenderá los siguientes pasos:
+1. Las jefaturas deberán reportar a Recursos Humanos, las faltas en que incurran sus subalternos a más tardar, dentro de los tres días hábiles siguientes en que éstas sean de su conocimiento.
+2. Toda denuncia deberá ser presentada por escrito y contener una relación circunstanciada de los hechos, indicación del o los (as) servidores (as) participantes, fechas, lugares y otros datos de interés. El denunciante deberá aportar y ofrecer las pruebas en que fundamenta su denuncia.
+3. El (la) Jefe(a) de Recursos Humanos, bajo su responsabilidad, hará una prevaloración de la falta reportada para determinar su naturaleza, y establecer la necesidad o no de iniciar una investigación. En caso de que de acuerdo con su criterio no se deba iniciar el procedimiento, deberá solicitar el visto bueno del (de la) Director(a) Ejecutivo(a), para archivar las diligencias.

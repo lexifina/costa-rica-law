@@ -1,0 +1,1 @@
+Artículo 100.—Recursos Humanos debe hacer la elección dentro los postulados que se dirán, teniendo quince días para efectuar la elección. En caso de que no se presente ninguna postulación, se otorgará un plazo de ocho días para que los (as) funcionarios (as) indiquen los nombres de las personas que los representarán en la Junta.

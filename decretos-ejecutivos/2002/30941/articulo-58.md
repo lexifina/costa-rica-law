@@ -1,0 +1,1 @@
+Artículo 58.—El disfrute del período vacacional se suspende si, durante el mismo el (la) servidor (a) es incapacitado (a) por la Caja Costarricense de Seguro Social, por el Instituto Nacional de Seguros o por el médico que preste servicios en el CONAVI.

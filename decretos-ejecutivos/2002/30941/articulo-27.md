@@ -1,0 +1,2 @@
+Artículo 27.—La integración y funcionamiento de la Comisión de Ascensos estará regulada por el Decreto Ejecutivo N° 24025-MP del 1° de marzo de 1995 y el Capítulo III de la Resolución DG-036-94 de la Dirección General de Servicio Civil.
+La integración de la Comisión de Becas se hará conforme los lineamientos generales establecidos en el Decreto Ejecutivo Nº 17339-P que es el Reglamento a la Ley de Licencias para Adiestramiento de Servidores Públicos. Su funcionamiento se regirá por la Ley Nº 3009 de Licencias para Adiestramiento de Servidores Públicos y su Reglamento.

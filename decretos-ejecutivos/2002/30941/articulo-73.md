@@ -1,0 +1,1 @@
+Artículo 73.—Según la legislación vigente, todos los (as) funcionarios (as) cualquiera que sea la función que desempeñen, tendrán derecho a un sueldo adicional anual, equivalente a la doceava parte del total de los salarios ordinarios percibidos durante el período respectivo.

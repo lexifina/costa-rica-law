@@ -1,0 +1,1 @@
+Artículo 67.—Los permisos con goce de salario que excedan un mes serán otorgadas por el Consejo de Administración, incluyendo permisos con goce de salario para los (as) servidores (as) que se acojan a invitaciones de gobiernos o de organismos internacionales para participar en el extranjero de seminarios, cursos, congresos o actividades similares.

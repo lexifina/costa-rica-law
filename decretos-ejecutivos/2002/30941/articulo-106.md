@@ -1,0 +1,18 @@
+Artículo 106.—Sin perjuicio de lo dispuesto en el Estatuto de Servicio Civil, su Reglamento, Código de Trabajo y este Reglamento, son obligaciones de los (as) funcionarios (as) con cargo de jefatura:
+1. Diagnosticar periódicamente en forma objetiva y veraz, el desempeño de todos sus colaboradores (as) en los aspectos técnicos, operativos, administrativo, disciplinario, y brindarles o gestionar la capacitación que requieran.
+2. Preparar informes y reportes con la correspondiente periodicidad sobre la marcha de su respectiva dependencia o proyecto; o en forma inmediata, sobre cualquier hecho relevante que requiera pronta solución.
+3. Observar que se cumplan las normas de disciplina y asistencia que el CONAVI tenga en aplicación y comunicar a sus superiores y a Recursos Humanos, las infracciones a dichas disposiciones cometidas por sus colaboradores.
+4. Planificar, orientar y guiar a sus colaboradores (as) para que las actividades y procesos asignados se desarrollen conforme a las normas de eficiencia y calidad deseadas.
+5. Velar porque sus colaboradores (as) disfruten de sus vacaciones de modo tal que no se produzcan acumulaciones indebidas de éstas.
+6. Elevar ante Recursos Humanos, en el término improrrogable de tres días hábiles a partir de que tuvo conocimiento, los informes correspondientes sobre las faltas en que incurrieron los (as) funcionarios (as) a su cargo.
+7. Velar porque los (as) funcionarios (as) bajo su coordinación y supervisión, cumplan con las obligaciones señaladas en este Reglamento y leyes conexas, y no incurran en las conductas prohibitivas que aquí se señala.
+8. Analizar las pruebas aportadas por sus funcionarios (as) con respecto a las irregularidades de asistencia, para lo cual en el caso de que las apruebe deberá insertar su firma en la tarjeta de asistencia.
+9. Suministrar la información que otras dependencias en asuntos propios de su gestión le soliciten para atender procesos o procedimientos de ley, todo dentro de los plazos que al efecto se señalen
+10. Comparecer ante el Consejo de Administración cuando así sea solicitado por el Director Ejecutivo, a rendir informes sobre los asuntos de su competencia.
+11. Asistir, cuando sea nombrado(a) por el Consejo de Administración o por el (la) Director(a) Ejecutivo(a), regularmente a las sesiones de Comisiones respectivas.
+12. Planear y programar a los niveles que lo exijan, las condiciones del entorno, las acciones estratégicas y operativas pertinentes y formular los anteproyectos de presupuesto correspondientes.
+13. Efectuar la calificación y evaluación del desempeño de los (as) colaboradores (as) en forma objetiva, puntual, veraz y apoyada en el expediente de desempeño de cada subalterno(a), así como enviar en el plazo estipulado los documentos y reportes que al afecto se establezcan. Este expediente deberá ser confeccionado y custodiado por cada jefatura.
+14. Atender las observaciones, ideas e inquietudes del equipo de colaboradores (as) y buscar la pronta solución a las gestiones que le formulen, siempre y cuando procedan, dentro del ámbito de actividad y conforme al ordenamiento establecido.
+15. Velar porque las relaciones interpersonales sean cordiales y se desarrollen dentro de los cánones del respeto mutuo.
+16. Crear y mantener una cultura de trabajo, orientada a estimular en sus colaboradores (as) el trabajo en equipo, sustentado en un enfoque de procesos o productos y en una vocación de creatividad y anticipación a los cambios.
+17. Brindar especial atención a los (as) servidores (as) en los aspectos propios del desempeño de éstos, durante el período de prueba.

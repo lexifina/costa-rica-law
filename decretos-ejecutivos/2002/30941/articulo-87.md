@@ -1,0 +1,1 @@
+Artículo 87.—Salvo los casos previstos en este Reglamento, la omisión de marca a cualquiera de las horas de entrada o salida, hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el trabajador no la justifique a más tardar dentro de los dos días hábiles siguientes a su acaecimiento ante su Jefe(a) Inmediato(a).

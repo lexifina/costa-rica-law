@@ -1,0 +1,1 @@
+Artículo 38.—Las jefaturas están obligadas a verificar y reportar a Recursos Humanos que ha ocurrido un accidente o riesgo laboral, a más tardar el día hábil siguiente en que se presente la situación.

@@ -1,0 +1,1 @@
+Artículo 7º—El (la) Director(a) Ejecutivo(a), los (las) Directores (as), Jefes (as) de Unidad, y todos los (las) funcionarios (as) del CONAVI, son los responsables ante la institución de velar por la correcta aplicación de las disposiciones del presente Reglamento.

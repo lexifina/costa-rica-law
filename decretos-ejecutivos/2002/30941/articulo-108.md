@@ -1,0 +1,41 @@
+TIITULO IIl
+Prohibiciones a los (as) funcionarios (as)
+Artículo 108.—Además de lo establecido en el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo la Ley General de la Administración Pública, Ley de Contratación Administrativa, Ley Administrativa Financiera de la República y Presupuestos Públicos, Código de Normas y Procedimientos Tributarios y demás leyes conexas; así como otros artículos de este reglamento, queda prohibido a los (as) funcionarios (as):
+1. Usar el poder oficial o la influencia que surja de él, para conferir o procurar servicios especiales, nombramientos, o cualquier otro beneficio personal que implique un privilegio, a sus familiares, amigos o cualquier otra persona, medie o no remuneración.
+2. Emitir normas en su propio beneficio.
+3. Usar el título oficial, los distintivos, la papelería o el prestigio de la oficina pública para asuntos de carácter personal o privado.
+4. Usar el equipo electrónico del Estado para observar o reproducir pornografía o exhibir material pornográfico dentro de los edificios donde se ubiquen oficinas del CONAVI. El quebranto de esta disposición se considerará para efectos disciplinarios como falta grave.
+5. Usar los servicios del personal subalterno, así como los servicios que presta la institución a la que sirve, para beneficio propio, de familiares o amigos, salvo el derecho personal que pueda corresponderle.
+6. Participar en transacciones financieras utilizando información del gobierno que no es pública.
+7. Aceptar pago u honorarios por discurso, conferencia o actividad similar, a la que haya sido invitado a participar en su calidad de funcionario(a) público(a).
+8. Llevar a cabo trabajos o actividades, remuneradas o no, fuera de su empleo que estén en conflicto con sus deberes y responsabilidades gubernamentales, que generen motivo de duda razonable sobre la imparcialidad en la toma de decisiones que competen al empleado (a), salvo excepciones admitidas por la ley.
+9. Actuar como agente o abogado de una persona, salvo las excepciones de ley, o si el interesado es cónyuge, hermano, ascendiente o descendiente, hasta el segundo grado de consanguinidad o afinidad inclusive, en reclamos administrativos o judiciales contra la entidad a la que sirve.
+10. Efectuar o patrocinar para terceros, trámites o gestiones administrativas, se encuentren o no directamente a su cargo, fuera de los cauces normales de la prestación del servicio o actividad, de forma tal, que su acción implique discriminación a favor del tercero.
+11. Dirigir, administrar, patrocinar, representar o prestar servicios, remunerados o no, a personas de existencia física o jurídica, que gestionen o exploten concesiones o privilegios de la Administración, o fueren sus proveedores o contratistas.
+12. Solicitar servicios o recursos especiales para la institución, cuando dicha aportación comprometa o condicione en alguna medida la toma de decisiones.
+13. Hacer abandono o dejar de hacer las labores encomendadas sin causa justificada, o sin permiso expreso del responsable de la actividad donde se encuentre ubicado. Sin perjuicio de otros supuestos constituye abandono:
+1. Distraer tiempo de sus horas de trabajo para asuntos ajenos a las labores correspondientes del cargo que desempeña.
+2. Atender, en horas de trabajo, visitas y hacer o recibir llamadas telefónicas, de carácter personal para asuntos ajenos a sus labores, utilizando para ello los medios de comunicación propiedad del CONAVI o de uso personal, a menos que sean de gravedad o de urgencia, en cuyo caso deberán ser lo más breves posibles.
+3. Atender negocios de carácter personal, o ejecutar algún trabajo de cualquier naturaleza, ajeno a los fines de su función o del CONAVI.
+4. Visitar otras oficinas que no sean aquellas donde prestan sus servicios, a no ser que lo exija la naturaleza del trabajo; así como mantener conversaciones innecesarias con compañeros (as) de labores o con extraños, en perjuicio o con demora del trabajo que está ejecutando.
+5. Distraer con cualquier clase de juegos o bromas a los (as) compañeros (as) de trabajo o quebrantar la cordialidad y el mutuo respeto que deben ser normas en las relaciones del personal de la institución.
+14. Incumplir las órdenes de los superiores jerárquicos, cuando sean propias de su competencia, salvo excepciones establecidas por ley.
+15. Ejercer dentro de la institución, actividades de propaganda político-electoral o en el desempeño de sus funciones.
+16. Tomar represalias en contra de sus colaboradores (as), que sean por motivo de orden político-electoral, o que impliquen violación de cualquier otro derecho que conceden las leyes.
+17. Divulgar el contenido de informes o documentos confidenciales, así como hacer público cualquier asunto de orden interno o privado de la oficina, sin la autorización correspondiente.
+18. Impedir o entorpecer el cumplimiento de las medidas que se adopten en materia de salud, seguridad ocupacional, evaluación del desempeño y en cualquier otra actividad que desarrolle el CONAVI.
+19. Utilizar o ceder útiles, herramientas y equipo de cualquier tipo, suministrados por el CONAVI o el Estado, para objeto distinto de aquel al que están oficialmente destinados. Independientemente del estado en que se encuentren.
+20. Portar armas de cualquier clase durante las horas de labor, salvo que ellas sean requisito derivado del desempeño de su cargo.
+21. Recoger o solicitar, directa o indirectamente, contribuciones, suscripciones o cotizaciones de otros (as) compañeros(as) o funcionarios (as) públicos (as); o realizar colectas, rifas o ventas de objetos dentro de las oficinas, salvo las excepciones muy calificadas, que cuente, con el visto bueno del (de la) Director(a) de Administración y Finanzas.
+22. Ampararse en la condición de funcionario(a) del CONAVI o invocarle para obtener ventajas de cualquier índole, ajenas a las funciones que se le han encomendado.
+23. Intervenir directa o indirectamente en razón de su cargo en el otorgamiento de contratos o sus prórrogas, subvenciones o privilegios. Exceptúase de esta prohibición el ingreso a sociedades cooperativas.
+24. Ejercer actividades profesionales cuando las mismas riñan con el ejercicio de las funciones que se estén desempeñando, o violen la prohibición que imponga la ley para el ejercicio liberal de la profesión, o violen los deberes del régimen de dedicación exclusiva, o servir de mediadores para facilitar a terceros sus actividades profesionales, valiéndose para ello del cargo o posición que ocupa.
+25. Salvo lo previsto en la ley, hacer reclamos u otras gestiones similares a favor de los particulares, en forma directa o indirecta, contra las diversas dependencias del CONAVI; llevar contabilidades o practicar auditorajes excepto en cuanto a los negocios propios, de su cónyuge, ascendientes, descendientes y colaterales, hasta el tercer grado por consanguinidad o afinidad, debiendo comunicarlo a las autoridades respectivas.
+26. Ejercer presión, hostigar, acosar, tomar represalias contra compañeros (as) y subalternos (as), para obtener provecho personal en acciones relacionadas con credos, políticos, religiosos, sexuales, económicos y de cualquier índole.
+27. Fumar en el centro de trabajo en áreas no autorizadas, según lo dispone el Decreto Ejecutivo N° 17398, del 6 de febrero de 1987.
+28. Hacer propaganda religiosa o contraria a las instituciones democráticas.
+29. Extraer del CONAVI documentos, expedientes, equipo, o en general cualquier bien de la institución, aunque sea para dar cumplimiento a labores de la misma, sin autorización expresa y previa del superior jerárquico.
+30. Tratar de resolver por medio de la violencia de hecho o de palabra las dificultades que surjan con jefes (as), servidores (as) o usuarios (as).
+31. Incurrir en prácticas laborales desleales.
+32. Nombrar a funcionarios (as) con parentesco de consanguinidad o de afinidad en línea directa o colateral hasta tercer grado inclusive con el (la) jefe(a) inmediato(a) o con los (as) superiores (as) de éste en la respectiva unidad u oficina.
+33. Aquellas otras que se estipulen por los medios administrativos y jurídicos, y las demás incluidas en la legislación existente al respecto y que no se hayan considerado en este artículo.

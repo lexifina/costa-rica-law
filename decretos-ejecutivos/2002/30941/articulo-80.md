@@ -1,0 +1,1 @@
+Artículo 80.—No se pagará, en ningún caso, el tiempo extraordinario ejecutado sin la autorización previa de la Comisión Recursos Humanos de la Dirección General del Servicio Civil. No se reconocerá, como trabajo extraordinario, el tiempo necesario para subsanar errores imputables solo al (a la) funcionario(a) y que hubiere cometido dentro de la jornada ordinaria.
