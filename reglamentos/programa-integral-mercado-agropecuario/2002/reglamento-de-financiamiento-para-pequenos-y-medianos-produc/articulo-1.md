@@ -1,7 +1,0 @@
-PROGRAMA INTEGRAL DE MERCADEO AGROPECUARIO
-DEPARTAMENTO DE PROVEEDURÍA
-REGLAMENTO DE FINANCIAMIENTO PARA PEQUEÑOS Y MEDIANOS PRODUCTORES AGROPECUARIOS E HIDROBIOLÓGICOS DEBIDAMENTE ORGANIZADOS CON FUNDAMENTO EN LOS ALCANCES DE LA LEY 7656 Y SU REFORMA A TRAVÉS DE LA LEY 7959
-CAPÍTULO I
-Consideraciones generales
-Artículo 1°—Del objetivo del Reglamento; del origen y destinos de los recursos. La presente Reglamentación establece y regula los procedimientos, requisitos, garantías, sanciones y en general todos los aspectos relacionados con el financiamiento para pequeños y medianos productores agropecuarios e hidrobiológicos debidamente organizados en todo el territorio nacional según lo previsto por el artículo 17 de la ley 7656 y su reforma a través de la Ley 7959 del 20 de enero del 2000. Los recursos que constituyen su objeto tienen su origen en los aportes provenientes de la cesión que hace CODESA al Programa Integral de Mercadeo Agropecuario (PIMA) de un crédito que le adeuda FERTICA, y cualquier otro recurso donado para el mismo fin.
-Tales recursos están destinados al establecimiento dentro del PIMA de un programa que se encargara del financiamiento de proyectos de asistencia técnica y financiera, así como de apoyo para el transporte de productos y en general de mercadeo para las organizaciones de pequeños y medianos productores agropecuarios e hidrobiológicos en todo el territorio nacional.

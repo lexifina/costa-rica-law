@@ -1,3 +1,0 @@
-CAPÍTULO III
-Del Financiamiento del Programa de Asistencia Técnica y financiera
-Articulo 8°—De los fondos obtenidos mediante la Ley 7656 y sus reformas mediante la Ley 7959, se financiará la Unidad Ejecutora, que brindará la asistencia técnica y el seguimiento tanto a los proyectos financiados hasta ahora, como los que se financiarán en el futuro. Lo anterior incluye la contratación de personal operativo, servicios de consultoría, la compra de vehículos, equipo de transporte y de oficina, la cancelación de viáticos, el pago de combustibles, peajes, mantenimiento, capacitación y otras erogaciones de carácter operativo que se realicen.

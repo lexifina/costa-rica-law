@@ -1,3 +1,0 @@
-CAPÍTULO XII
-Disposiciones Finales
-Artículo 29.—Normas de acatamiento obligatorio para el Beneficiario. El Beneficiario se obliga a aceptar y acatar las recomendaciones que la Unidad Ejecutora le formule o traslade, así como las observaciones y pedimentos que el Consejo Directivo le imponga en relación con el préstamo y su ejecución. Asimismo, se compromete a que los bienes y servicios que se adquieran con los recursos del financiamiento, se utilizaran exclusivamente para los fines preestablecidos en el proyecto. El Beneficiario está obligado a brindar toda la información que le sea requerida y que compruebe la correcta utilización de los recursos.

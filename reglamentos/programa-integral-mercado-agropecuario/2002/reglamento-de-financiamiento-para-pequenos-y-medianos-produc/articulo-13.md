@@ -1,3 +1,0 @@
-Artículo 13.—De los desembolsos. Los desembolsos correspondientes a inversión se giraran mediante cheques a nombre del proveedor o acreedor. La organización tendrá un plazo máximo de quince días para realizar la liquidación correspondiente y así optar por el siguiente desembolso.
-Los desembolsos que corresponden a capital de trabajo se girarán mediante cheques a nombre del beneficiario, para lo cual la organización deberá presentar previamente un plan de desembolsos y posteriormente una liquidación de estos en un plazo no mayor a 30 días naturales.
-Para la ejecución y control de los desembolsos, la administración establecerá un procedimiento escrito, el cual regirá una vez aprobado por la Gerencia.

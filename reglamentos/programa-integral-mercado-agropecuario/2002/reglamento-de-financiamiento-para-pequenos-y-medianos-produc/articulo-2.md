@@ -1,2 +1,0 @@
-Artículo 2°—Para los efectos de este Reglamento se entiende que el Programa Integral de Mercadeo Agropecuario (PIMA) es la entidad pública encargada de ejecutar el programa de asistencia técnica y financiera, sus formalizaciones y recuperaciones siguiendo al efecto los lineamientos técnicos y las políticas que para este efecto establezca el Consejo Directivo del PIMA en coordinación con el ente Rector del Sector
-Agropecuario.

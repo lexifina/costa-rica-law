@@ -1,5 +1,0 @@
-CAPITULO VIII
-De las Garantías y sus requisitos
-Artículo 18.—De la constitución de las garantías. Toda operación de financiamiento deberá estar adecuadamente garantizada conforme a los reglamentos respectivos y políticas internas de PIMA. Dichas garantías deben ser a favor de PIMA.
-En el caso de financiamientos reembolsables se entiende que las garantías responden ante el incumplimiento de pagos del principal, de sus intereses, los gastos de ejecución y de eventuales costas por procesos judiciales que se deriven, así como por incumplimientos de las condiciones de contrato final que tomen exigible la obligación. Tratándose de cooperaciones no reembolsables, el contrato final que formalice la operación, dispondrá en su clausulado la necesaria existencia de garantías que respalden la correcta utilización y el cumplimiento de los fines de la cooperación brindada al Beneficiario.
-Como regla general se establece que cada garantía se regula –en cuanto a requisitos y condiciones- según las características propias existentes en el medio financiero del país, lo mismo que las contenidas en las disposiciones legales aplicables a cada una.
