@@ -1,0 +1,1 @@
+Artículo 2º—La administración y manejo de los humedales continúa a cargo del Sistema Nacional de Areas de Conservación y los demás órganos del MINAE, a los que la legislación les ha otorgado esa competencia.
