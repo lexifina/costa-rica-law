@@ -1,0 +1,1 @@
+Artículo 3°—Dentro de la reserva forestal demarcada se incluye la faja de terreno inalienable de dos mil metros a cada lado de la Carretera Interamericana, que se conoce como Zona de los Robledales y que fue declarada "Parque Nacional" por el artículo 10 de la Ley Orgánica del Instituto de Tierras y Colonización N° 2825 de 14 de octubre de 1961 y sus reformas.
