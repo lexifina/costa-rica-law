@@ -1,0 +1,2 @@
+ARTÍCULO 15.-El presente Tratado permanecerá en vigor durante cinco años, contados desde el día en que se haga el último canje de ratificaciones, y seguirá en vigor por otros cinco años más, si doce meses antes de que expire el primer período de cinco años no fuere denunciado. En el caso de que alguno ó algunos de los Gobiernos lo denunciare, seguirá en vigor entre las otras Partes Contratantes.
+Esta Convención será ratificada y las ratificaciones se canjearán en la ciudad de México dentro del término de un año de su firma.

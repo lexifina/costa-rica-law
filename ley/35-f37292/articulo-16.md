@@ -1,0 +1,1 @@
+ARTÍCULO 16.-Si alguna de las Altas Partes Contratantes hubieren celebrado ya entre si Tratados de extradición, quedarán éstos reformados solamente en la parte modificada ó alterada por las disposiciones del presente.

@@ -1,0 +1,1 @@
+ARTÍCULO 11.-El tránsito por el territorio de uno de los Estados Contratantes, de algún individuo entregado por tercera Potencia á otro Estado y que no pertenezca al país de tránsito, será concedido mediante la simple presentación, en original ó en copia legalizada de la resolución en que se haya concedido la extradición por el Gobierno del país de refugio.

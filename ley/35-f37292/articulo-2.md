@@ -1,0 +1,1 @@
+ARTÍCULO 2.-No podrá concederse la extradición por delitos políticos ó por hechos que les sean conexos. No serán reputados delitos políticos los actos que estén calificados de anarquismo por la legislación del país requiriente y por la del requerido.

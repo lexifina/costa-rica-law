@@ -1,0 +1,3 @@
+ARTÍCULO 7.-Las demandas de extradición serán presentadas por medio de los Agentes Diplomáticos ó Consulares respectivos; y á falta de éstos, directamente de Gobierno a Gobierno; ‚ irán acompañadas de los siguientes documentos:
+I.-Respecto de los presuntos delincuentes: copia legalizada de la ley penal, aplicable á la infracción que motivare la demanda, y del auto de prisión y demás documentos á que se refiere la fracción IV del artículo 1.
+II.-Respecto de los sentenciados: copia legalizada de la sentencia condenatoria ejecutoriada. Deberá también acompañarse á la demanda todos los datos y antecedentes necesarios para establecer la identidad de la persona cuya extradición se reclamare.
