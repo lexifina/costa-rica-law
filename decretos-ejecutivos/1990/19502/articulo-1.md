@@ -1,0 +1,1 @@
+ARTÍCULO 1°.-Declárese de interés arquitectónico el inmueble conocido como edificio Knohr, ubicado en San José, avenida central, calle 1°, propiedad de la firma El Trébol, S.A., e inscrita en el Registro al tomo 1056, folio 583, asiento 014, número 084522.
