@@ -1,0 +1,1 @@
+Artículo 30.—El proceso de Servicios Administrativos, con base en el Registro de Proveedores y lo que se indique en la solicitud de inicio del procedimiento, previa verificación de los requisitos, realiza las invitaciones y recibe las ofertas en los plazos establecidos.

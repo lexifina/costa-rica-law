@@ -1,0 +1,1 @@
+Artículo 33.—Si el monto de la contratación es mayor al 50% del límite establecido para contratación directa, Servicios Administrativos envía el expediente completo a la Comisión de Licitaciones, a efecto de que se verifique y apruebe el procedimiento seguido y se avale la recomendación de adjudicación.

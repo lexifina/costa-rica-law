@@ -1,0 +1,1 @@
+Artículo 51.—En todos los contratos que elabore el SENARA que en razón de sus montos no requieran refrendo por parte de la Contraloría General de la República, se debe enviar a la Asesoría Legal para que se emita la constancia de legalidad en los casos que corresponda.

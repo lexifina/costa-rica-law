@@ -1,0 +1,1 @@
+Artículo 43.—La Comisión de Licitaciones con base en los informes recibidos determina, cual es la oferta que resultó ganadora del concurso y la presidencia de la Comisión en conjunto con la secretaría, remite a la Gerencia el informe integrado de la revisión de ofertas con la recomendación de adjudicación para conocimiento y resolución de la Junta Directiva.

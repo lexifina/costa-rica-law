@@ -1,0 +1,2 @@
+Artículo 7º—Cartel y sus modificaciones. El cartel o el aviso de invitación a participar se debe publicar en La Gaceta respetando el plazo mínimo de recepción de ofertas.
+Las modificaciones al cartel, requieren publicarse en La Gaceta con al menos 8 días hábiles de antelación a la fecha de recepción de ofertas si no modifican aspectos esenciales. Si se modifican aspectos esenciales se debe abrir nuevamente el plazo.

@@ -1,0 +1,1 @@
+Artículo 61.—En el caso de que se presente una suspensión, una prórroga, una orden de modificación o cualquier otra situación durante la ejecución de la contratación, que signifique una variación en una, varias o todas las actividades, las partes deberán actualizar el cronograma de trabajo, lo que deberá hacerse formalmente.

@@ -1,0 +1,1 @@
+Artículo 94.—La devolución de la garantía de cumplimiento será efectuada por el Área Administrativa, una vez que el administrador del contrato le envíe el finiquito de la contratación debidamente firmado por las partes y autorice la devolución de la garantía, o bien cuando la vigencia de la garantía se haya expirado.

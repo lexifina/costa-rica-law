@@ -1,0 +1,1 @@
+Artículo 83.—La suspensión se ordenará al contratista por escrito, con un detalle de las razones que la justifican y las previsiones que al efecto deberá tomar para garantizar la continuidad de la contratación. Toda suspensión implicará necesariamente la actualización del cronograma de trabajo así como el ajuste en el plazo de vigencia de la garantía de cumplimiento.

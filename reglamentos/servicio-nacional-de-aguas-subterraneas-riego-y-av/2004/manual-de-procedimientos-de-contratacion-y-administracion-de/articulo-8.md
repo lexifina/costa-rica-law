@@ -1,0 +1,1 @@
+Artículo 8º—Objeciones al cartel. El recurso de objeción procede en el primer tercio del plazo para ofertar y es conocido y resuelto por la Contraloría General de la República La Contraloría General de la República dará audiencia al SENARA por 3 días hábiles para manifestarse sobre el asunto, luego de lo cual el ente contralor tiene 10 días hábiles para resolver.

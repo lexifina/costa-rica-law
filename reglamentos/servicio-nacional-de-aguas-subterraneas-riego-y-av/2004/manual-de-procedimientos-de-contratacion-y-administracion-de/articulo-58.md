@@ -1,0 +1,1 @@
+Artículo 58.—En caso de que el administrador del contrato recomiende ejecutar las garantías, aplicar penalidades, rescindir o resolver un contrato deberá realizar la gestión correspondiente ante la Gerencia con el visto bueno del Director de Área, con el fin de que esta ordene el inicio del procedimiento respectivo.

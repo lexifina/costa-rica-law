@@ -1,0 +1,1 @@
+Artículo 109.—Una vez efectuada la recepción definitiva, y si esta es a entera satisfacción del SENARA, se dará por terminada la Contratación y recibido totalmente el objeto de la misma, con lo cual quedará el CONTRATISTA exento de ulterior obligación, con excepción de las responsabilidades que por vicios ocultos determina el artículo 35 de la Ley de Contratación Administrativa.

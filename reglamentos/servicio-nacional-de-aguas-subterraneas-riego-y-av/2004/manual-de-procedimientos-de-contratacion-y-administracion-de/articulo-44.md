@@ -1,0 +1,1 @@
+Artículo 44.—Una vez adjudicada la licitación por la Junta Directiva, la secretaría de esta transcribirá el acuerdo en un plazo máximo de tres días hábiles a Servicios Administrativos para que se notifique a los oferentes.

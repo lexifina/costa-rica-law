@@ -1,0 +1,2 @@
+Artículo 107.—De la recepción provisional se levantará una acta, en la cual se indicará al contratista, en forma clara y detallada cualquier deficiencia encontrada durante el periodo para recepción provisional estipulado.
+El contratista contará con el plazo máximo establecido en el cartel de la contratación, para reparar las deficiencias encontradas a partir de la fecha en que se realice la recepción provisional.

@@ -1,0 +1,1 @@
+Artículo 32.—La unidad promovente de la contratación realiza el análisis de las ofertas y emite la recomendación de adjudicación dirigida al proceso de Servicios Administrativos, a efecto de que se verifique lo que corresponda.

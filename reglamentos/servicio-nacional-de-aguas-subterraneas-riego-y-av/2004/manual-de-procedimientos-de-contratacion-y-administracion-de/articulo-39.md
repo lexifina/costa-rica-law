@@ -1,0 +1,1 @@
+Artículo 39.—Servicios Administrativos remite a la Comisión de Licitaciones el cuadro resumen de cumplimiento de todos los requisitos previos y el cartel de licitación para que sea aprobado por la Comisión.

@@ -1,0 +1,1 @@
+Artículo 89.—En caso que se autoricen prórrogas al plazo de ejecución, se deberá formalizar dicho acuerdo en un addendum al contrato, el que deberá contar con el refrendo de la Contraloría General de la República o Constancia de Legalidad respectiva, según correspondiere.

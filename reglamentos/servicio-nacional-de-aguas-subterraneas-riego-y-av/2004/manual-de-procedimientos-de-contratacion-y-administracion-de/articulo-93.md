@@ -1,0 +1,1 @@
+Artículo 93.—Si la prevención de ajustar el monto de la garantía o la ampliación de la vigencia no es atendida por el contratista en el plazo que oportunamente se le indique, el administrador del contrato elevará el asunto a la Gerencia de SENARA para que proceda a ordenar la realización del procedimiento de ejecución de la garantía bajo los términos que establece la ley.

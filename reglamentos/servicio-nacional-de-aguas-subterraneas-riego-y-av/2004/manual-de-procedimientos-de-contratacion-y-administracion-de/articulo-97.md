@@ -1,0 +1,1 @@
+Artículo 97.—Para la estimación del reajuste de precios, resulta fundamental el cronograma de trabajo y un desglose de presupuesto por parte del Contratista, el cual se debe solicitar en el cartel de la contratación a efecto de que sea incorporado en su oferta.

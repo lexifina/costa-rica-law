@@ -1,0 +1,1 @@
+Artículo 68.—En los contratos de obra únicamente se podrá hacer uso de la facultad de aumentar el objeto, en aquellos aspectos que no puedan contratarse independientemente sin afectar la uniformidad, la coordinación o la integridad global de la obra.

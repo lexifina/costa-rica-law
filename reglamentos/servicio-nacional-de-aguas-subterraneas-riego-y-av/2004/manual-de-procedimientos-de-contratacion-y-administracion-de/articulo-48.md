@@ -1,0 +1,1 @@
+Artículo 48.—Posteriormente se elabora la orden de compra y esta se remite adjuntando una copia del contrato al titular de la unidad promovente para que proceda a dar la orden de inicio correspondiente.

@@ -1,0 +1,1 @@
+Artículo 54.—El titular de la unidad promovente tendrá la responsabilidad de verificar que la persona que se designe como administrador del contrato, tenga la formación, los conocimientos y la experiencia necesaria para ejercer las competencias que como administrador le corresponda.

@@ -1,0 +1,1 @@
+Artículo 67.—Las órdenes de modificación, antes de ser comunicadas al contratista, el administrador del contrato deberá remitirlas al Director de Área correspondiente, para su aprobación. Aprobada la orden de modificación y comunicada al contratista, la misma se enviará a Servicios Administrativos para que proceda a confeccionar la orden de compra respectiva.

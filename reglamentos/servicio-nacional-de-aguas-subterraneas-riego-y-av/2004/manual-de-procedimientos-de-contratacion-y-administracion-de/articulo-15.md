@@ -1,0 +1,1 @@
+Artículo 15.—Modificaciones al cartel. Se comunicarán por el mismo medio utilizado para invitar con al menos tres días hábiles de antelación a la fecha de recepción de ofertas si no modifican aspectos esenciales. Si se modifican aspectos esenciales se debe abrir nuevamente el plazo.

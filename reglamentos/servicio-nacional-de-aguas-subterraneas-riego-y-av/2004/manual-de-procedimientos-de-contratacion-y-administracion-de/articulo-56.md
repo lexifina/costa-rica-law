@@ -1,0 +1,1 @@
+Artículo 56.—El administrador del contrato será el responsable directo de la fiscalización del contrato y en tal sentido es responsable de tomar oportunamente las providencias necesarias para que el contratista se ajuste al estricto cumplimiento de las condiciones, especificaciones y plazos establecidos en la contratación y demás obligaciones implícitas en ésta.

@@ -1,0 +1,1 @@
+Artículo 112.—El administrador del contrato debe remitir el finiquito para la firma del Contratista, luego debe remitirlo con un oficio, en su condición de administrador del contrato, recomendando a la Gerencia de la Institución la suscripción del mismo.

@@ -1,0 +1,1 @@
+Artículo 64.—Toda modificación de contratos, entendidas como cambios en las condiciones previamente pactadas, requerirán ser formalizadas mediante adendas a contratos, las cuales deberán contar con el refrendo de la Contraloría General de la República o la Constancia de Legalidad según correspondiere.

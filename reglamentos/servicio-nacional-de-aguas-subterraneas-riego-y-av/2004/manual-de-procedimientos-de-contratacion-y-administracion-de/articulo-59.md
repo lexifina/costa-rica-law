@@ -1,0 +1,1 @@
+Artículo 59.—Estará bajo la responsabilidad del administrador del contrato verificar que la contratación se ejecute de acuerdo con las disposiciones establecidas en el presente manual y demás normativa vigente.

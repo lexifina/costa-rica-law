@@ -1,0 +1,1 @@
+Artículo 55.—El administrador del contrato será el funcionario designado como responsable de la administración total de la contratación hasta la firma del finiquito correspondiente por parte de la Gerencia.

@@ -1,0 +1,1 @@
+Artículo 35.—Una vez comunicada la adjudicación y depositada la garantía de cumplimento, cuando se hubiere exigido, Servicios Administrativos remite el expediente a la Asesoría Legal, cuando se requiera, para la elaboración del contrato respectivo.

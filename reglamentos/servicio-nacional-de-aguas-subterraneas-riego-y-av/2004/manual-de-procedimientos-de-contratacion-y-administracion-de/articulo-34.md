@@ -1,0 +1,1 @@
+Artículo 34.—Con base en el acuerdo favorable de la Comisión de Licitaciones, Servicios Administrativos procede a solicitar a la Gerencia o a la Dirección Administrativa, la emisión del acto de adjudicación.
