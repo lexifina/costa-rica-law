@@ -14,3 +14,4 @@ Normas para Uso de Vehículos del Instituto Nacional de Vivienda y Urbanismo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-01 | la propia norma |
+| 2 | 2003-06-11 | Reglamento 5287 (2003-06-11) |
