@@ -1,3 +1,6 @@
+Nº 1038
+EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA
+DECRETA:
 DE LA PROFESION DE CONTADOR PUBLICO
 TITULO I
 CAPITULO I
@@ -7,5 +10,5 @@ sujeto a las prescripciones de la presente ley y a las disposiciones
 reglamentarias correspondientes.
 El ejercicio privado de la contabilidad seguirá realizándose en la
 forma y con los alcances hasta ahora establecidos, tanto en lo que se
-refiere a las disposiciones legales vigentes, como en lo que respecta a los
-usos y costumbres comerciales.
+refiere a las disposiciones legales vigentes, como en lo que respecta a
+los usos y costumbres comerciales.
