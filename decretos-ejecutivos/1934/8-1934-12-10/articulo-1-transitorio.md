@@ -1,0 +1,2 @@
+Artículo transitorio.-Tomada en cuenta la conveniencia de fijar con cierta anticipación la vigencia de este reglamento, para que los interesados puedan preparar los implementos y embarcaciones necesarios para la pesca y acordarse los Municipios en todo los detalles que por la citada ley a ellos incumbe, se fija el primero de febrero próximo, y por tanto la Sección Sur del litoral, para dar principio a la explotación de los referidos yacimientos perlíferos.
+Dado en San José, a los diez días del mes de diciembre de mil novecientos treinta y cuatro.

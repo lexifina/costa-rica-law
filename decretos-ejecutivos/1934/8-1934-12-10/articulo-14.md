@@ -1,0 +1,1 @@
+Artículo 14.-Se prohibe el empleo de todo género de explosivos o cualesquiera otros medios destructores, bajo la penas de ¢ 100.00 a ¢ 500.00 de multa y la suspensión inmediata del permiso para bucear.

@@ -1,0 +1,1 @@
+Artículo 5°-las estaciones del año para el buceo son dos: una que comprende desde mayo hasta octubre inclusive, para la parte del litoral que queda al Norte de Cabo Blanco, y otra desde noviembre hasta abril inclusive, para la parte que queda al Sur.

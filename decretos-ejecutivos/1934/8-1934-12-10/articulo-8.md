@@ -1,0 +1,1 @@
+Artículo 8°-El Gobernador, con informe del Inspector o Subinspector de Hacienda, podrá cancelar las patentes extendidas a aquellos buceadores que en alguna forma infrinjan o eludan los estatutos de este reglamento.
