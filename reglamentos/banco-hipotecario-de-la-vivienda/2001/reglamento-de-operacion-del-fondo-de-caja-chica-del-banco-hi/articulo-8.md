@@ -1,0 +1,1 @@
+Articulo 8°—Sanciones: Cualquier incumplimiento de las disposiciones del presente Reglamento será sancionado de conformidad con lo establecido en el Estatuto de Personal de la Institución , sin perjuicio de otras responsabilidades que puedan ser aplicadas al funcionario infractor.
