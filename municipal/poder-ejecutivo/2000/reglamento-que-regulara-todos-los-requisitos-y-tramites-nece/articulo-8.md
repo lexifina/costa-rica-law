@@ -1,0 +1,1 @@
+Artículo 8º—Según la Ley Orgánica del Colegio Federado de Ingenieros y Arquitectos de Costa Rica y la Ley de Construcciones, la Función Primordial del Ingeniero Municipal es velar porque todas las obras que se construyen dentro del territorio bajo la Administración Municipal, se encuentren a derecho.
