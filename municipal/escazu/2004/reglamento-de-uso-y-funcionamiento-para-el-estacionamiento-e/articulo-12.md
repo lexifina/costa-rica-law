@@ -1,0 +1,1 @@
+Artículo 12.—De las boletas, tarjetas o cupones de tiempo. La Municipalidad emitirá boletas, tarjetas o cupones de tiempo que servirán al usuario para hacer uso indiscriminado de cualquier espacio de estacionamiento determinado para el uso de este sistema.

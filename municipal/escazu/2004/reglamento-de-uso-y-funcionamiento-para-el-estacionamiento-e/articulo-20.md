@@ -1,0 +1,1 @@
+Artículo 20.—De los entes colaboradores. Para el cumplimiento de la ley de estacionamientos y del presente reglamento, la Municipalidad de Escazú y la Dirección General de Tránsito tomarán las medidas pertinentes en estrecha y efectiva colaboración y sus delegados estarán investidos de autoridad para lo que atañe a sus actuaciones oficiales a ese respecto.

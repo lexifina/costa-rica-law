@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las tarifas, horarios y sistemas de cobro
+Artículo 6º—Del cobro en cada zona. Dentro de toda la zona céntrica se cobrará la tarifa establecida en este reglamento, mientras que en la zona no céntrica únicamente se cobrará en los lugares especialmente señalados para este efecto, en el resto de esta zona el estacionamiento será gratuito. En las zonas céntricas se cobrará por el sistema de boletas, tarjetas o cupones de tiempo, que para efecto de este reglamento surtirán los mismos efectos, a tarifas de media, una y dos horas. En las zonas céntricas y no céntricas debidamente señaladas para tal efecto, se cobrará por el uso permanente de los espacios a tarifa mensual o anual.

@@ -1,0 +1,1 @@
+Artículo 10.—Del destino de la tarifa. El producto de la tarifa de estacionamiento será invertido en el pago de los gastos administrativos y de vigilancia que genere el sistema de estacionamiento, así como en la construcción y mantenimiento de vías públicas o en obras de beneficio comunal.

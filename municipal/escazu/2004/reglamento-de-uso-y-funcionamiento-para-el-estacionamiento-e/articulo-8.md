@@ -1,0 +1,1 @@
+Artículo 8º—Del modo de pago. El pago por del precio por hora o por tarifa mensual anteriormente estipulado deberá efectuarse por adelantado y por el valor del tiempo total vendido o adjudicado. La Municipalidad se reserva el derecho a futuro de implantar otros sistemas de cobro de estacionamiento tales como parquímetros o estacionómetros.

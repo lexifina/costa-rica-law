@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE ESCAZÚ
+El Concejo Municipal del cantón de Escazú, en su sesión ordinaria 123, acta 75, del 9 de setiembre del 2004, aprobó acuerdo que literalmente dice: Acuerdo AC-511-04. “Se acuerda: con fundamento en las disposiciones de los artículos 11 y 169 de la Constitución Política, 11 de la Ley General de la Administración Pública, y 43 del Código Municipal, aprobar el Reglamento de Uso y Funcionamiento para el Estacionamiento en las Vías Públicas. Procédase a la publicación correspondiente en el Diario Oficial La Gaceta como Reglamento”. Acuerdo Firme.
+REGLAMENTO DE USO Y FUNCIONAMIENTO
+PARA EL ESTACIONAMIENTO
+EN LAS VÍAS PÚBLICAS
+La Municipalidad de Escazú con las facultades que le otorgan los artículos 13, incisos c), y d), del Código Municipal, 170 de la Constitución Política y 9 de la Ley Nº 3580 del 17 de noviembre de 1965, reformada por la Ley Nº 6852 del 16 de febrero de 1983, que autoriza a las Municipalidades a cobrar impuestos por el estacionamiento en las vías públicas conforme con las reglamentaciones que dicten al efecto emite el siguiente “Reglamento de Uso y Funcionamiento para el Estacionamiento en las Vías Públicas” y sanciones correspondientes por el incumplimiento de la ley y presente reglamento, según acuerdo Nº 511-04 de la sesión Nº 123 celebrada por el Concejo Municipal el día 9 de setiembre de 2004, decreta:
+CAPÍTULO I
+De la designación de las zonas de estacionamiento
+Artículo 1º—De las potestades. La Municipalidad de Escazú por medio de su Alcalde Municipal y de la Dependencia a cuyo cargo tenga la administración y control de los espacios de parqueo, designará las zonas, calles, avenidas, plazas, parques y demás lugares públicos en donde se demarcarán espacios de estacionamiento autorizado. Esta designación se hará en estrecha colaboración con el Ministerio de Obras Públicas y Transporte.

@@ -1,0 +1,1 @@
+Artículo 11.—Del horario de cobro. Para la aplicación de este reglamento queda autorizado un horario de las siete a las diecinueve horas. Se exceptúan de esta regulación los días domingo, feriados por ley de conformidad con el artículo 148 del Código de Trabajo.

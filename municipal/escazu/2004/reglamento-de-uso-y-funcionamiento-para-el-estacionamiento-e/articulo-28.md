@@ -1,0 +1,1 @@
+Artículo 28.—De la renovación del marchamo mensual. El derecho de marchamo mensual podrá ser revocado cuando se considere conveniente a los intereses de la Municipalidad o cuando se compruebe que no se le está dando el uso debido permitiéndosele al usuario finalizar el mes por el cual pagó el marchamo.
