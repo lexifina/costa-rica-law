@@ -1,0 +1,1 @@
+Articulo 16.—Los miembros de la Junta de Protección, son responsables de los recursos económicos y materiales que el Patronato Nacional de la Infancia, a través del Fondo de la Niñez y Adolescencia, los entes del Estado y otras organizaciones o personas, pongan a su disposición y en todo caso, responderán por su correcto uso y manejo.

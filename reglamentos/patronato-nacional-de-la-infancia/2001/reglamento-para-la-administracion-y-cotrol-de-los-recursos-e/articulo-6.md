@@ -1,0 +1,2 @@
+2. Proceso financiero
+Articulo 6°--El Coordinador del Programa Fondo para la Niñez y la Adolescencia, verificará el contenido presupuestario para los diferentes proyectos antes de que se eleve a la Junta Directiva del PANI, asimismo será el responsable de plantear con la suficiente antelación las modificaciones presupuestarias que así se requieran dentro del Fondo de la Niñez y la Adolescencia.
