@@ -1,0 +1,1 @@
+Artículo 40.—El anterior incentivo se tendrá como justificación válida ante el Departamento de Personal para la ausencia del servidor, cuando haga uso del día premio. Bajo ninguna circunstancia se rebajará la ausencia del servidor de las vacaciones ordinarias, tampoco podrá acumular el día premio con las vacaciones ordinarias.

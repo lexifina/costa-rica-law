@@ -1,0 +1,1 @@
+Artículo 45.—No se pagará el salario que corresponda a las ausencias injustificadas, conforme con lo establecido en este Reglamento, en el Estatuto de Servicio Civil y su Reglamento, Leyes Conexas y Supletorias sin perjuicio de la sanción disciplinaria que corresponda.

@@ -1,0 +1,1 @@
+Artículo 57.—Los despidos de los servidores amparados por el Régimen de Servicio Civil se tramitarán conforme con lo dispuesto por el Estatuto de Servicio Civil y su Reglamento. Los despidos de los demás servidores se regirán por lo que al respecto disponen el Código de Trabajo y este Reglamento.

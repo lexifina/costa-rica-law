@@ -1,0 +1,1 @@
+Artículo 73.—Podrá concederse licencia o permiso con goce de sueldo para viajes al exterior, con motivo de representación oficial siempre que en este último caso, Ministerio derive algún beneficio siempre que no excedan de tres meses.

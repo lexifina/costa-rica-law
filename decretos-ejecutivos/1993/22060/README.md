@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 22060
+
+Reglamento autónomo de servicios de la Dirección General de Migración y Extranjería
+
+- Tipo: Decreto Ejecutivo
+- Número: 22060
+- Fecha: 1993-03-15
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 88 del 1993-05-10
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=52543&param2=57030&param3=1 (ficha 52543)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1993-05-10 | la propia norma |

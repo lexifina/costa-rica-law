@@ -1,0 +1,1 @@
+Artículo 15.—El Departamento de Personal revisará y modificará los salarios que sean variados por el Poder Ejecutivo a fin de que ningún servidor perciba un salario menor al que le corresponde. Asimismo realizará las gestiones correspondientes ante la Oficina de Presupuesto Nacional para que los salarios mínimos se reconozcan en forma pronta y oportuna.

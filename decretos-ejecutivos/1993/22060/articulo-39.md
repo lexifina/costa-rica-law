@@ -1,0 +1,2 @@
+DEL INCENTIVO AL SERVIDOR QUE MARCA PUNTUALMENTE LA TARJETA DE CONTROL
+Artículo 39.—Los servidores de la Institución que marquen la tarjeta de control de asistencia, durante tres meses consecutivos puntualmente sin reportar ninguna llegada tardía, ni omisión de marca por asuntos personales, tendrá derecho como estímulo a un día hábil libre, el cual podrá tomarlo cuando las circunstancias de servicio lo permitan en el término de un mes calendario posterior.

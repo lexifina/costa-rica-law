@@ -1,0 +1,1 @@
+Artículo 3°—Los Jefes de División, Jefes de Departamento, Jefes de Sección y en general todos aquellos servidores que tengan bajo su responsabilidad tareas de administración o supervisión de personal son responsables ante el Director (a) de velar por la correcta aplicación de todas las disposiciones del presente Reglamento.

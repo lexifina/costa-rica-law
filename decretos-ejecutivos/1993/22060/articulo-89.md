@@ -1,0 +1,1 @@
+Artículo 89.—A falta de disposiciones en el Estatuto de Servicio Civil Reglamento en el presente Reglamento, aplicables a un caso determinado, debe tenerse como normas supletoria, el Código de Trabajo, la Ley General Administración Publica.

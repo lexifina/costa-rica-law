@@ -1,0 +1,1 @@
+Artículo 48.—En todos los casos, el servidor deberá notificar (por el medio más idóneo lo antes posible), a su jefe inmediato, verbalmente o por escrito las causas que le impedirán asistir al trabajo. En todo caso, salvo fuerza mayor, o en caso fortuito, no deberá esperar hasta el segundo día de ausencia (el servidor deberá comprobar ante su jefe la causa de la misma).

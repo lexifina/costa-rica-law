@@ -1,0 +1,1 @@
+Artículo 34.—Salvo casos previstos en este Reglamento, la omisión de una marca en la tarjeta a cualquiera de las horas de entrada o salida, hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el servidor no justifique la falta dentro de los cinco días hábiles siguientes después de la omisión de marca.

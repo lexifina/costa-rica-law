@@ -1,0 +1,1 @@
+Artículo 64.—Los funcionarios profesionales de la Dirección podrán acogerse a la Carrera Profesional, de conformidad con los términos que dicte la Dirección General de Servicio Civil. Comisión de Carrera Profesional del Ministerio de Gobernación será el enlace entre los profesionales y la Dirección de Servicio Civil para dichos efectos.

@@ -1,0 +1,1 @@
+Artículo 18.—Los servidores que deban viajar en el ejercicio de sus funciones tendrán derecho a viáticos y gastos de transporte, los cuales serán otorgados por adelantado, según el "Reglamento de Gastos de Viaje y de Transporte para Funcionarios o Empleados del Estado" que emite y actualiza la Contraloría General de la República.

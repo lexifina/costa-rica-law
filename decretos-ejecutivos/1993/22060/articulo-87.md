@@ -1,0 +1,1 @@
+Artículo 87.—La Dirección se reserva el derecho de adicionar o modificar en cualquier momento las disposiciones de este Reglamento, las cuales previamente deberán ser sometidas al trámite de conocimiento y aprobación de la Dirección General Servicio Civil.

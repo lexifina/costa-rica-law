@@ -1,0 +1,1 @@
+Artículo 74.—El Departamento de Adiestramiento del Ministerio de Gobernación será el responsable de velar por el cumplimiento de las anteriores normas y no dará tramite a nuevas licencias para estudio, sin antes verificar que el trabajador se haya hecho acreedor de la misma, de conformidad con las prescripciones anteriores.

@@ -1,0 +1,1 @@
+Artículo 22.—Las vacaciones podrán acumularse por una sola vez, requiriéndose para ello resolución razonada de la Dirección en que el servidor preste sus servicios y que se produzca dentro de las limitaciones contempladas en el artículo 159 del Código de Trabajo.

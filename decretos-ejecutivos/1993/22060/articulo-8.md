@@ -1,0 +1,1 @@
+Artículo 8°—Los servidores que la Dirección nombre en plazas de confianza estarán regulados de conformidad con lo que establezca, la Autoridad Presupuestaria, el Código de Trabajo y Leyes Conexas, y por las disposiciones de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 62.—Todas las servidoras en estado de gravidez, tendrán derecho a licencia por cuatro meses con goce de sueldo completo. Este periodo se distribuirá, un mes antes del parto y tres meses después.

@@ -1,0 +1,1 @@
+Artículo 53.—Las sanciones se aplicarán, atendiendo no estrictamente al orden en que aparecen en el artículo anterior, sino conforme con todas las circunstancias de hechos y de derecho inscritas en la falta cometida, salvo que la misma tenga una sanción específica en el Estatuto de Servicio Civil, el presente Reglamento y demás leyes conexas.
