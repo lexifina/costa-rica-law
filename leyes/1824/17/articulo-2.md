@@ -1,0 +1,1 @@
+Ar 2°.- Esta moneda será de tres valores y tres distintos pesos: la mayor valdrá un real de plata y tendrá de peso media onza completar la siguiente valdrá un medio real de plata y su peso será una quarta de onza, la otra valdrá un quartillo de real de plata y pesará una ochava de onza.

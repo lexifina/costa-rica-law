@@ -1,0 +1,1 @@
+Art 3°.- Esta moneda llebara en el amberso las armas del Estado sin la inscripción del rededor con expresión en el centro de lo que vale, y en el reberso la inscripción que se omitió en el amberso con expresión del año que se omitió en el amberso con expresión del año en que ha sido fabricada.
