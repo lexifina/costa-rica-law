@@ -1,0 +1,2 @@
+Art. 3°-Queda modificado y refundido en el presente, el decreto número 15 de 21 de abril último emitido por la Comisión Permanente.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los diez y ocho días del mes de julio de mil ochocientos ochenta y siete. -A. ESQUIVEL, Presidente.-A. VENEGAS, Secretario.-MÁXIMO FERNÁNDEZ, Secretario. Palacio Presidencial. -San José, á veintiuno de julio de mil ochocientos ochenta y siete.-Ejecútese.- A. DE JESÚS SOTO.-El Subsecretario encargado del Despacho de Justicia, RAFAEL MACHADO.
