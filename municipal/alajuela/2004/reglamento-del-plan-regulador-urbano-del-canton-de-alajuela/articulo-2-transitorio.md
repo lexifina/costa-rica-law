@@ -1,0 +1,1 @@
+2º—Los anteproyectos que cuentan con un Vº Bº deben obtener el Certificado de Uso de Suelo, en los siguientes 90 días de entrado en vigencia este Reglamento. El mismo tendrá una vigencia de un año natural.

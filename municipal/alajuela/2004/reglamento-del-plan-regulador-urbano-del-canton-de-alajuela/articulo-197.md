@@ -1,0 +1,1 @@
+Artículo 197.—La Municipalidad de Alajuela, conformará una Dirección de Desarrollo y Control Urbano, para dar seguimiento y promoción al Plan Regulador, en la cual unificará los departamentos o direcciones de Urbanismo, Catastro, Control Constructivo y de Gestión Ambiental.

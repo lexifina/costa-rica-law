@@ -1,0 +1,2 @@
+Artículo 59.—Usos condicionales. Los usos condicionales son todas las facilidades como sodas, oficinas, siempre y cuando la Municipalidad en coordinación con la Dirección de Urbanismo lo aprueben, siguiendo los lineamientos del Plan Regulador.
+Los usos actuales que se ubiquen en las áreas aledañas a los ríos y señaladas como parque, se ubicarán como uso no conforme y podrán ser adquiridas cuando la Municipalidad lo requiera.

@@ -1,0 +1,24 @@
+CAPÍTULO III
+Artículo 128.—Subzona de Control Especial de Protección del Aeropuerto (ZPAE). Comprende el área afectada por la Reglamentación del Aeropuerto Internacional Juan Santamaría.
+Artículo 1A.—Objetivo. Crear un área de seguridad alrededor del Aeropuerto Internacional Juan Santamaría que sirva para proteger el funcionamiento adecuado del mismo y evitar que las poblaciones cercanas lo envuelvan, con peligro para ambos usos. La zona de seguridad se establece en los sectores A y B, denominados como conos de aproximación.
+Artículo 2A.—Variable. Para esta zonificación se considera dos variables.
+a. Alturas.
+b. Densidades parcelaria, de población y usos del suelo.
+Artículo 3A.—Zonificación. El área de seguridad se ha dividido en las siguientes zonas.
+1.1 Franja de pista. (Zona 1)
+1.1.1. Definición. Es el área circundante a la pista definida por un rectángulo de 300 metros de lado por 3.132 de lado mayor centrado en los ejes principales de la pista.
+1.1.2. Restricciones. No se permite ningún objeto fijo en dicha franja con excepción de las ayudas visuales requeridas para fines de navegación aérea, en los Segmentos A, B.
+1.1.3. Segmento A (Área de máxima seguridad). Superficie trapezoidal con una base menor de 300 metros y una mayor de 750 metros, con una distancia entre ambas de 1500 metros sobre el eje longitudinal de la pista, en ambas cabeceras.
+1.1.4. Segmento B. Superficie trapezoidal que da continuidad al segmento A por lo que tiene una base menor de 750 metros y una mayor de 990, con una distancia entre ambos de 800 metros sobre el eje longitudinal de la pista, en ambas cabeceras.
+1.1.2 Superficie de transición: (Zonas 2N, 2S). Superficie trapezoidal que se extienden a lo largo del borde de la franja de la pista y parte de la superficie de aproximación, limitadas en su base mayor por una línea paralela al borde de la franja de la pista.
+1.1.3 Superficie de transición norte (Zona ZN). La línea paralela al borde de la franja que constituye la base mayor del área trapezoidal, ubicada a 400 metros al norte del borde de la franja de la pista.
+1.1.4 Superficie de transición sur: (Zona ZS). La línea paralela al borde de la franja que constituye la base mayor del área trapezoidal, ubicada a 500 metros al sur del borde de la pista.
+1.1.5 Superficie Horizontal Interna: (Zona 3). Superficie cuya proyección sobre el uso de suelo, definida por dos semicírculos de 4 km de radio, con un centro a 60 metros de la cabecera de la pista y sobre la aproximación del eje de la pista, unidos por dos líneas. Se debe excluir de esta área la franja de pista, la superficie de aproximación.
+1.1.6 Superficie cónica. (Zona 4). Superficie cuya proyección horizontal esta definida por dos semicírculos de 6 kilómetros de radio con centro a 60 metros de la cabecera y sobre la prolongación del eje de la pista unidos por dos líneas rectas, paralelas al eje longitudinal de la pista. Se deben excluir de esta área la franja de pista, la superficie de transición, la superficie de aproximación y la superficie horizontal interna, en las cuales se aplicarán las respectivas restricciones.
+1.2 Restricciones. Para edificaciones mayores de dos pisos o altura mayor a 6 metros requiere de previo del visto bueno de la Dirección de Aviación Civil.
+Artículo 4A.—Las edificaciones y urbanizaciones existentes se conservan, teniendo acceso a la regularización y titulación de propiedades, excepto aquellos usos considerados molestos y peligrosos para el desempeño del Aeropuerto Internacional, aspecto a definir por Aviación Civil. Se permitirán reparaciones siempre y cuando cumplan con los requerimientos de altura de la Dirección de Aviación Civil.
+Artículo 5A.—Se permitirá la construcción de parques, áreas recreativas, paseos peatonales y vías nuevas siempre y cuando funcionen como conformadores de los centros urbanos existentes, en las áreas de los conos de aproximación.
+Artículo 6A.—Se permitirá la construcción de edificaciones de interés nacional y municipal, en los conos de aproximación del Aeropuerto, siempre y cuando se cuente con la aprobación de Aviación Civil, y sean declarados como de interés nacional o municipal.
+Artículo 7A.—La altura de las edificaciones en las zonas de control del aeropuerto, señaladas por Aviación Civil, serán definidas por Aviación Civil, por tanto todo permiso de edificación en esa área, de una altura mayor a los seis metros, debe contar la aprobación de la Dirección de Aviación Civil.
+Artículo 8A.—El uso de suelo se regirá por la Zonificación establecida por el Plan Regulador aprobado, tal y como se indica en el plano de Zonificación.
+Artículo 9A.—En las Zonas A y B del cono del aeropuerto señaladas por la Dirección de Aviación Civil, se permitirán el uso industrial y comercial , las alturas deberán contar con la aprobación de la Dirección de Aviación Civil. Además, se permitirán las edificaciones construidas en el momento de entrada en vigencia del presente Plan.

@@ -1,0 +1,1 @@
+Artículo 63.—Usos conformes. El uso permitido, es el residencial, en la modalidad de urbanizaciones, conjuntos residenciales y condominios, más los complementarios indicados en la lista del anexo 2 de este reglamento. Además se permiten las áreas recreativas y culturales e institucionales.

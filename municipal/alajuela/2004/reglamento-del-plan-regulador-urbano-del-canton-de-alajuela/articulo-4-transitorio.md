@@ -1,0 +1,1 @@
+4º—En todo proyecto de urbanización o condominio, que se pretenda desarrollar en la minicuenca o área tributaria del alcantarillado pluvial de la cabecera del distrito San José, deberá exigirse al urbanizador construir su propia evacuación de aguas pluviales, con la prohibición de que la misma llegue a constituir una carga hidráulica adicional al alcantarillado existente.

@@ -1,0 +1,1 @@
+Artículo 69.—En lo relativo a nuevas urbanizaciones se aplicarán las disposiciones que se encuentren vigentes en el Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones.

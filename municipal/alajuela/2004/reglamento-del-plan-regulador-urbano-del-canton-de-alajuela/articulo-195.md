@@ -1,0 +1,1 @@
+Artículo 195.—Los proyectos a desarrollarse en las zonas de protección, agropecuaria, zonas aledañas a nacientes, las áreas de topografía del más del 30% de pendiente y semiurbana, deben presentar estudio de impacto ambiental y todos los requerimientos anotados en la leyes Forestal, de Ambiente y de Planificación Urbana.

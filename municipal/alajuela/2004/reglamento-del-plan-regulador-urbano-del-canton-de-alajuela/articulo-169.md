@@ -1,0 +1,3 @@
+TÍTULO XXIII
+Patrimonio histórico y cultural y ambiental
+Artículo 169.—En los casos de demolición la declaratoria o trámite del decreto de que una edificación u obra tiene el carácter de Patrimonio Nacional, en cualquiera de las modalidades establecidas por el Ministerio de Cultura, Juventud y Deportes, implicará una imposibilidad total de demolición. Para cualquier restauración o remodelación, se debe contar con el Vº Bº del Centro de Investigación del Patrimonio del Ministerio de Cultura, Juventud y Deportes previo cualquier permiso municipal. Los procedimientos serán los estipulados en la Ley de Patrimonio Histórico-Arquitectónico Nº 7555 y el artículo 12 de este Reglamento.

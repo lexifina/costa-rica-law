@@ -1,0 +1,1 @@
+Artículo 170.—La Municipalidad velará porque las disposiciones antes mencionadas sean cumplidas dentro de su jurisdicción, en especial, cuando los inmuebles hayan sido declarados bienes patrimoniales, bajo cualquiera de las categorías establecidas.

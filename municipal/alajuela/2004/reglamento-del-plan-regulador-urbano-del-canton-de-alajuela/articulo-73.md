@@ -1,0 +1,4 @@
+TÍTULO XII
+CAPÍTULO I
+Subzona Residencial Media Densidad ( ZRMD)
+Artículo 73.—Propósitos. En esta porción residencial del suelo urbanizado y urbanizable del Cantón, se persigue un uso del suelo menos intenso que en la categoría anterior, con 26 viviendas por hectárea, en soluciones de un nivel. Permitiéndose soluciones tipo multifamiliar de dos niveles, para una densidad máxima en estos casos de 52 viviendas por hectárea. Esta media densidad es permitida únicamente para el área de mayor desarrollo urbano del cantón, entre la autopista Bernardo Soto y l vía primaria propuesta como circunvalación. Para el resto del territorio de cantón la Media Densidad permitida es de 21 viviendas por hectárea en soluciones de un solo nivel. Permitiéndose soluciones tipo multifamiliar de dos niveles. Para una densidad de 42 viviendas por hectárea, manteniendo la cobertura de 21 viviendas en el primer nivel.

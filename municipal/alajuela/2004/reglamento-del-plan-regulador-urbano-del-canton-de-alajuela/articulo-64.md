@@ -1,0 +1,1 @@
+Artículo 64.—Usos no permitidos. En las zonas definidas como residenciales, únicamente se aceptarán estos usos (los residenciales) y los definidos en este reglamento como usos complementarios, quedando excluidos todos los demás. (Ver anexo Nº 2 de este reglamento).

@@ -1,0 +1,1 @@
+Artículo 130.—Propósito. Permitir en el Cantón las actividades de producción industrial no contaminante y ordenarlas en zonas específicas con el fin de proteger los otros usos del suelo. Esta zona funcionará con uso mixto en donde el uso predominante es el industrial, pero se permitirán uso recreativo, turístico, residencial y comercial.

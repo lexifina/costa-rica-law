@@ -1,0 +1,1 @@
+Artículo 115.—Usos conformes. Los usos permitidos son las actividades comerciales, excepto bares, salones de baile y casinos, también se permite los servicios públicos y privados, vivienda unifamiliar y multifamiliar.

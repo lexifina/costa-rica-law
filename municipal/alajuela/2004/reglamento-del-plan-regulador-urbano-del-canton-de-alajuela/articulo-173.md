@@ -1,0 +1,1 @@
+Artículo 173.—La Municipalidad sentará las bases para llevar a cabo un verdadero inventario del Patrimonio Histórico Cultural y Ambiental del Cantón proponiendo cuales edificios y sitios de valor histórico cultural, paisajístico, ambiental y urbanístico deben ser protegidos.

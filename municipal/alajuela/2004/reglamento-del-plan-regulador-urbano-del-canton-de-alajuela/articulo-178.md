@@ -1,0 +1,1 @@
+Artículo 178.—No se permite por ningún motivo la construcción en terrenos de mas del 30% de pendiente, áreas inundables, deslizables, fallas geológicas principales, acuíferos, nacientes y sus áreas de protección, zonas boscosas, área de protección de ríos y quebradas o que presenten otros tipos de riesgo.

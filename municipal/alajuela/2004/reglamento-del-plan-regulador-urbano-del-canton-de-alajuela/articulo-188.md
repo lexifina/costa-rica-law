@@ -1,0 +1,1 @@
+Artículo 188.—Las construcciones permitidas en terrenos afectados por fallas geológicas, deben cumplir todo lo estipulado en el código sísmico y las recomendaciones del código de cimentación, y no deben exceder los dos pisos de altura. Se debe también contar con el visto bueno de la Comisión de Emergencia.

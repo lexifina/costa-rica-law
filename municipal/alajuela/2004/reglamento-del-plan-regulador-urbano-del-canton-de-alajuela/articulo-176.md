@@ -1,0 +1,1 @@
+Artículo 176.—En los antejardines se pueden construir pérgolas, fuentes, bancas, esculturas u otro motivo ornamental, las tapias deben ser transparentes y preferiblemente conformadas con especies vegetales.

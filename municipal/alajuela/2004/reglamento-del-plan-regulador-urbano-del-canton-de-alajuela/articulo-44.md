@@ -1,0 +1,1 @@
+Artículo 44.—Subzona de reserva absoluta por riesgos. Las zonas que están identificadas por la Comisión de Emergencia como de alto riesgo por inundación, deslizamiento y riesgo volcánico, así como los humedales son de Reserva Absoluta. En las cuales no se permitirá ningún tipo de construcción, a no ser las obras que sirvan para mitigar los riesgos.

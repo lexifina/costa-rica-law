@@ -1,0 +1,1 @@
+Artículo 194.—Las servidumbres urbanas o accesos a desarrollos comerciales y residenciales, se permitirán en las zonas de servicios mixtos y zona residencial de alta densidad únicamente. Las servidumbres agrícolas solo se permitirán en la zona agropecuaria.

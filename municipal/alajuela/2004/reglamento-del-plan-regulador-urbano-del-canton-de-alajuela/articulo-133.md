@@ -1,0 +1,1 @@
+Artículo 133.—Estacionamientos. Se exigirá un espacio de 18 metros cuadrados (3 por 6 metros) por cada 150 metros cuadrados de área construida, y un espacio para carga y descarga de 5 por 12 metros, si el área construida sobrepasa los 500 metros cuadrados; aumentándose un espacio por cada 500 metros cuadrados adicionales de área construida.

@@ -1,0 +1,1 @@
+Artículo 150.—Usos conformes. Los usos permitidos son los proyectos turísticos, centros de oficina, centros recreativos, centros deportivos y turísticos, centros de salud, centros de investigaciones, centros culturales, sedes de organismos internacionales y nacionales, centros educativos, mariposarios, zoológicos, actividad agroindustrial y vivienda de muy baja densidad.

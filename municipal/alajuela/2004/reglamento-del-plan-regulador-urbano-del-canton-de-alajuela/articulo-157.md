@@ -1,0 +1,1 @@
+Artículo 157.—Cuando se otorgue el respectivo permiso de demolición, la Municipalidad hará entrega de un rótulo con la leyenda “Permiso de demolición”, el cual deberá colocarse en un lugar visible en el sitio a demoler, por lo menos tres días antes de efectuarse el derribo del edificio y durante el transcurso del mismo.

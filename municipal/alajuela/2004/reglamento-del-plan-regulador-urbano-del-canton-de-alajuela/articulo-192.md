@@ -1,0 +1,1 @@
+Artículo 192.—Las urbanizaciones deben ceder el 10%, del área de la finca a urbanizar, en áreas comunales, parques, parques infantiles en el área comprendida entre la Bernardo Soto y la denominada vía de circunvalación de Alajuela tal y como se indica en el plano de la Subzona Residencial.

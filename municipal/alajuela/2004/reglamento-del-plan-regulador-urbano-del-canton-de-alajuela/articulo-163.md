@@ -1,0 +1,1 @@
+Artículo 163.—Podio y arcadas. En caso de edificaciones de más de cinco pisos de altura, se preferirá el uso de un “podio” que se integre a los edificios adyacentes o base conformada por los pisos bajos.

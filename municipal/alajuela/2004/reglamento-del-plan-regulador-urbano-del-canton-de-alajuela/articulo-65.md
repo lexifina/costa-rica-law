@@ -1,0 +1,1 @@
+Artículo 65.—Usos existentes no conformes. Únicamente se permitirán aquellos que se encontraban funcionando y debidamente establecidos al cobrar vigencia el presente reglamento, con las limitaciones, definidas en el presente Reglamento de Zonificación del Uso del Suelo.

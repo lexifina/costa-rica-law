@@ -1,0 +1,1 @@
+3º—En el caso de la naciente Las Ánimas, ubicada en el sector oeste del centro de población del distrito San José, reducirá su radio de protección a 100 metros de acuerdo con el artículo 33 de la Ley Forestal N° 7575, una vez que entre en operación el pozo de agua potable de Las Ánimas.

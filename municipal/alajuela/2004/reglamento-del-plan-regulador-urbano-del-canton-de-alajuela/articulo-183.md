@@ -1,0 +1,1 @@
+Artículo 183.—El Plan Regulador indica las zonas donde se deben ubicar las instituciones estatales y comunales, aspecto que se debe respetar, cuando estas instituciones se establezcan en los centros poblados, así como convertir estos edificios públicos en hitos urbanos que identifiquen y conformen estos poblados, mediante un diseño adecuado.

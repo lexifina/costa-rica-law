@@ -1,0 +1,1 @@
+Artículo 45.—Subzona de protección por topografía irregular. En el cantón se presenta una importante área con una topografía irregular, que en el presente Plan se pretende reservar en su estado natural en el mayor porcentaje posible, permitiendo una serie de usos que conlleve a la realización de proyectos en lotes de gran tamaño, de baja densidad y de baja cobertura.

@@ -1,0 +1,1 @@
+Artículo 200.—Derogaciones. Se deroga el Reglamento de Zonificación GAM Noroeste y toda la normativa que se oponga o contradiga estos Reglamentos, con excepción del Reglamento Interno de Hacienda Los Reyes.

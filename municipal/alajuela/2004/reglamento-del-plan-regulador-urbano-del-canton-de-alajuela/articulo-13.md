@@ -1,0 +1,2 @@
+Artículo 13.—El Alineamiento y Certificado de Uso del Suelo. Acredita la conformidad de uso a los requerimientos de las zonificación establecido en el Mapa de Uso de Suelo.
+El Certificado indicará el uso y no se interpretará como un permiso definitivo para hacer uso, ocupación, ampliaciones, remodelaciones, construcción o fraccionamiento. El Alineamiento tiene una vigencia de un año y el Certificado de Uso de Suelo mientras esté vigente el Plan Regulador Urbano que le dio origen.

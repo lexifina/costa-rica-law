@@ -1,0 +1,1 @@
+Artículo 24.—Usos conformes. Son todas aquellas actividades o usos del suelo acordes con los requisitos y lineamientos del P.R.U. para cada zona y que pueden ser desarrolladas. En cada una de las zonas existe el uso predominante, permitiéndose otros usos con restricciones establecidas en cada uno de los casos.

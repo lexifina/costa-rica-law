@@ -1,0 +1,1 @@
+Artículo 151.—Usos existentes no conformes. Los usos existentes no conformes son los usos existentes en el presente, que según la zonificación propuesta en la modificación presentada, se contraponen a esta, en estos casos no se permitirán mejoras que no estén acorde con la zonificación propuesta.

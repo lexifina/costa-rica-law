@@ -1,0 +1,1 @@
+Artículo 146.—Usos existentes no conformes. Los usos existentes no conformes son los usos existentes en el presente, que según la zonificación propuesta en la presente modificación, se contraponen a esta, en los cuales no se permitirán mejoras que no estén acorde con la zonificación propuesta.

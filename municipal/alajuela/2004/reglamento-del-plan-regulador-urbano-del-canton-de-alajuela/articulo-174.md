@@ -1,0 +1,1 @@
+Artículo 174.—Para proteger los sitios de valor histórico, cultural y ambiental, la Municipalidad, gestionará la recaudación de los fondos necesarios. Podrá establecer convenios con organismos internacionales, países amigos, fundaciones y con los propietarios de los edificios u obras, motivándolos para que ellos continúen con la preservación de estos sitios.

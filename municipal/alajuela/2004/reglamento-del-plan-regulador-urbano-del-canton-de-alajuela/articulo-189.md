@@ -1,0 +1,1 @@
+Artículo 189.—El estudio de impacto ambiental se solicitará en el caso de conjuntos habitacionales, en proyectos de 100 o más soluciones. En los conjuntos residenciales de menos de 100 soluciones, se requiere el visto bueno de Setena y del Departamento de Gestión Ambiental de la Municipalidad y copia del FEAP aprobado.

@@ -1,0 +1,1 @@
+Artículo 48.—Usos existentes no conformes de la subzona de protección por topografía irregular. Únicamente se permitirán aquellos que se encuentran funcionando y debidamente establecidos al cobrar vigencia el presente Reglamento de zonificación del Uso del Suelo. En uso existente no conforme, solo podrá transformarse en otro compatible o concordante con la Zonificación.

@@ -1,0 +1,1 @@
+Artículo 124.—Usos condicionales. Se permitirán también como usos condicionales restaurantes, sodas y servicios personales, instituciones bancarias e instalaciones recreativas y culturales como cines, teatros y servicios tecnológicos.

@@ -1,0 +1,1 @@
+Artículo 199.—En el área regulada por el presente Plan Regulador, solo se permitirá la segregación de la modalidad de parcela mínima productiva, en la Zona Agropecuaria y la Zona Semiurbana, en lotes mínimo de 7.000 m² y con servidumbres de 10 metros como mínimo de ancho.

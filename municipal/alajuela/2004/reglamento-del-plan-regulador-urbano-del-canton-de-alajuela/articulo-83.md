@@ -1,0 +1,3 @@
+CAPÍTULO II
+Servicios mixtos Centro Urbano Municipal
+Artículo 83.—Propósitos y delimitación espacial. El comercio y los servicios públicos y privados son de rango Municipal, se ubican tal y como aparece delimitado en el Mapa de Zonificación del Uso del Suelo. El propósito es consolidar esta área como el principal centro de comercio y servicios del Municipio. Para ello se propone un programa de renovación, de reestructuración del tránsito, el incremento de su dotación de áreas verdes y espacios abiertos, el mejoramiento de la infraestructura, la conservación y restauración del patrimonio histórico. Dentro del Centro Municipal se encuentra una Zona de Control Especial, delimitada en el Plano de Zonificación y cuyos requisitos especiales deben ser respetados.

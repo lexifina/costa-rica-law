@@ -1,0 +1,4 @@
+CAPÍTULO III
+Servicios mixtos centro urbano especial
+Artículo 88.—Propósitos y delimitación espacial. La construcción de la autopista a Caldera y la radial autopista Caldera, autopista Bernardo Soto provocara un desarrollo urbano relevante en el sector oeste del cantón, para efecto de lograr un desarrollo equilibrado y que esta nueva población sea abastecida de los servicios urbanos requeridos, se propone la creación de un centro urbano especial mixto, sobre el eje radial, posibilitando la integración de este centro con el núcleo urbano de Ciruelas, a tal de conformar un conjunto urbano fuerte en dicha área. Este centro se pretende crear con una serie de instalaciones que sirvan como detonante y polo en el desarrollo del sector.
+El centro se ubica sobre la radial autopista Caldera – autopista Bernardo Soto, en el sector oeste del poblado de Ciruelas.

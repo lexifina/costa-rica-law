@@ -1,0 +1,1 @@
+Artículo 181.—Los elementos arquitectónicos o hitos urbanos ubicados en el cantón y que se constituyen en referentes de los centros urbanos, permanecerán como tales, aunque no cumplan con requerimientos establecidos en este Plan.
