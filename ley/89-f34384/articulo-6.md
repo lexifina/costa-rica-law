@@ -1,0 +1,1 @@
+Art 6°.- Cuando uno de los Magistrados que componen la Sala estuviese impedido accidentalmente, le subrogará en las causas civiles el Fiscal de la Sala y solo en los casos en que también este tengan impedimento legal o esté ocupado ya en subrogación de otro Magistrado, se llamará a uno de los conjueces para completar la Sala.

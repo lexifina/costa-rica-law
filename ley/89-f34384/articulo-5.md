@@ -1,0 +1,1 @@
+Art 5°.- El Magistrado Relator tendrá voto en la decisión en caso de ser llamado como Juez. La Sala de 3° instancia o suplica formará de los magistrados de la Sala que no haya conocido en 2° instancia de su Fiscal y de un Juez más.
