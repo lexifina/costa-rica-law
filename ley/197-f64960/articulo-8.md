@@ -1,0 +1,1 @@
+Artículo 8°-Cuando la pensión la disfruten los hijos o las hermanas del empleado, se considerará ella dividida en tantas partes como beneficiarios haya, con el objeto de que la parte de quien la perdiere, no acrezca a los otros.

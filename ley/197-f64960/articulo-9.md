@@ -1,0 +1,1 @@
+Artículo 9°-No podrán enajenarse ni gravarse ni ser perseguidas por deudas las pensiones que esta ley concede. Se suspenderá el derecho del jubilado mientras perciba sueldo del estado, de sus bancos o de otras instituciones públicas.

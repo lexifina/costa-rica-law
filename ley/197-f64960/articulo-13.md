@@ -1,0 +1,1 @@
+Artículo 13°-Las pensiones que se concedan de acuerdo con la presente ley serán pagadas hasta donde el fondo que la misma establece, lo permita, no quedando a los pensionados reclamo alguno por el tanto que puedan perder en el caso de que por falta de fondos deba hacerse un prorrateo.
