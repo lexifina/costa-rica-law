@@ -10,3 +10,4 @@ De 60001 a 90000 | 324,00 | 2,52
 De 90001 ó más | 679,00 | 5,25
 Tarifa diferenciada: Los servicios exclusivos de carga con aeronaves cuyo peso sea igualo exceda los 90.000 kg de PMD, pagarán el 18% de la tarifa expresada.
 (Así reformado mediante artículo 1° del Decreto Ejecutivo N° 22861 de 4 de febrero de 1994).
+(NOTA DE SINALEVI: Este artículo fue reformado por el numeral 1° del Decreto Ejecutivo N° 24168 de 27 de marzo de 1995, que reformó el decreto N° 22861, no obstante, el Juzgado Contencioso Administrativo y Civil de Hacienda mediante Sentencia N° 312 de las trece horas del 23 de mayo de dos mil uno, declaró nulo el decreto N° 24168, indicando la vigencia del decreto N° 22861. Dicha sentencia fue confirmada por la Sección Segunda del Tribunal Contencioso Administrativo del Segundo Circuito Judicial de San José por sentencia No. 561 de 21 de noviembre de 2003).
