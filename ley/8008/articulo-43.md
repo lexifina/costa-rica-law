@@ -1,0 +1,1 @@
+Artículo 43.—En el caso a que se refiere el Artículo anterior, los demás países miembros suscribirán el capital que deberá restituirse al país denunciante, en la misma proporción en que participen al momento de la denuncia en el capital del Fondo, excluida la parte que deba restituirse. La Asamblea decidirá la oportunidad del pago del capital así suscrito.

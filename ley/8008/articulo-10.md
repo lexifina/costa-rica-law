@@ -1,0 +1,6 @@
+Artículo 10.—El Directorio, a propuesta del Presidente Ejecutivo, acordará:
+a) La tasa de interés, comisiones y otros cargos que deberá cobrar el Fondo por sus operaciones de crédito y garantía, teniendo en cuenta las condiciones de los mercados internacionales.
+b) Las reglas de prelación o de distribución en su caso, que deberán regir si en algún momento los recursos del Fondo fueran insuficientes para atender las demandas de crédito o de garantía de los países miembros. Estas reglas considerarán la magnitud del déficit global de la balanza de pagos del país solicitante en relación con su comercio exterior global y, además, la evolución del comercio del país solicitante con los demás países miembros y su situación o no de país de menor desarrollo económico relativo.
+Podrá determinar, asimismo, normas que conduzcan a los países deudores del Fondo, que estuvieran en condición de hacerlo, a una más rápida cancelación de sus deudas.
+c) Los porcentajes de las importaciones desde los demás países miembros a que se refiere el párrafo iii) del literal a) del artículo 9, teniendo en cuenta la situación o no de país de menor desarrollo económico relativo.
+Los Acuerdos que hubiere adoptado el Directorio sobre estas materias se aplicarán sin excepción a todas las operaciones que se cursen mientras dichos Acuerdos estén en vigor.

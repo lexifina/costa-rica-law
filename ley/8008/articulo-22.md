@@ -1,0 +1,1 @@
+Artículo 22.—El Directorio se reunirá ordinariamente por lo menos dos veces al año y extraordinariamente cuantas veces sea necesario, a pedido de su Presidente o de por lo menos el cuarenta por ciento (40%) de sus miembros.

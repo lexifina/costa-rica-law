@@ -1,0 +1,1 @@
+Artículo 19.—Los Acuerdos de la Asamblea se tomarán con el voto favorable de por lo menos las tres cuartas partes del total de los Representantes que asistan, con excepción de los literales f), g), h) e i) del Artículo 20, para los cuales se requerirá, además, que los votos negativos no superen el veinte por ciento (20%) del total de los votos emitidos.

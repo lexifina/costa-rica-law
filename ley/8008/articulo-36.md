@@ -1,0 +1,1 @@
+Artículo 36.—El Presidente Ejecutivo del Fondo gozará en el territorio del país sede de las mismas inmunidades, privilegios y garantías que corresponden en dicho país a los Embajadores de los países miembros. Los funcionarios internacionales del Fondo gozarán de las inmunidades y privilegios que el país sede otorga a los funcionarios diplomáticos de rango comparable.

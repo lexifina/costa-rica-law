@@ -1,0 +1,1 @@
+Artículo 42.—Si un país miembro denuncia el presente Convenio, su retiro se hará efectivo desde la fecha en que la denuncia se haya comunicado a la Asamblea. Sin embargo, las obligaciones y los derechos que en su caso le correspondan por su participación en el Fondo continuarán vigentes hasta que queden íntegramente satisfechos y cumplidos.

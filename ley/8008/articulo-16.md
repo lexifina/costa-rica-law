@@ -1,0 +1,1 @@
+Artículo 16.—La Asamblea se reunirá ordinariamente una vez al año y extraordinariamente cuantas veces sea necesario, a pedido de su Presidente o de por lo menos el cuarenta por ciento (40%) de sus miembros.

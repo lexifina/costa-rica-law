@@ -1,0 +1,1 @@
+Artículo 7º—Ningún país miembro podrá retirar, enajenar ni entregar en garantía sus aportes de capital al Fondo, mientras no denuncie el presente Convenio y la denuncia haya producido todos sus efectos.
