@@ -1,0 +1,1 @@
+Artículo 13.—Corresponderá al Área de Gestión Administrativa Financiera brindar los servicios de apoyo necesarios para la oportuna ejecución de las funciones sustantivas del CEFOF, así como estandarizar los procedimientos de carácter administrativo financiero.

@@ -1,0 +1,1 @@
+Artículo 14.—Corresponderá al Area de Gestión Tecnológica coordinar las actividades de formación, capacitación, consultoría y asistencia técnica que el CEFOF ofrece a las empresas e instituciones de bienes y servicios, tanto públicas como privadas con el fin de lograr el mejoramiento de la productividad y calidad de los sectores productivos dentro de su ámbito de acción.

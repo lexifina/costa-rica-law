@@ -1,0 +1,1 @@
+Artículo 16.—Existirá una Unidad de Asuntos Jurídicos, el cual será un órgano de apoyo, al cual le corresponderá asesorar jurídicamente al Consejo Directivo, Director Ejecutivo y demás dependencias del CEFOF, para que los actos administrativos internos y externos que se dictaminen se encuentren ajustados al ordenamiento jurídico.
