@@ -1,0 +1,1 @@
+Artículo 2°—Créase la “Comisión Asesora Portuaria Nacional" como un organismo técnico que tendrá como objeto analizar los problemas que se relacionan con los puertos marítimos y fluviales del país y recomendar las soluciones para resolverlos.

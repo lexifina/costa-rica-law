@@ -1,0 +1,1 @@
+Artículo 5°—Los titulares de los organismos públicos antes citados podrá nombrar delegados permanentes para sustituirlos en las sesiones de la Comisión ; los representantes de las Cámaras, y Asociación de Usuarios serán nombrados, removidos por sus propias Juntas Directivas.
