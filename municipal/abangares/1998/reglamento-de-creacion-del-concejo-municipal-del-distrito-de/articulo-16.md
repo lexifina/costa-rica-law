@@ -1,0 +1,1 @@
+Artículo 16.—Los habitantes del distrito de Colorado para votarlo harán únicamente presentando la cédula de identidad y deberán estar inscritos en el padrón electoral del distrito de Colorado, usado en las últimas elecciones nacionales.

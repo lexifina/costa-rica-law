@@ -1,0 +1,1 @@
+Artículo 6°—Los tributos por concepto de la Ley N° 6849 del 18 de setiembre de 1983 y sus reformas, Impuesto al Cemento, se seguirá) distribuyendo de acuerdo a dicha Ley. Cualquier otra ley de impuesto que en el futuro sea aplicable en el distrito de Colorado, se distribuirá conforme el artículo 2 de este Reglamento.

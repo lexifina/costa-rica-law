@@ -1,0 +1,1 @@
+Artículo 9°—Previo a la elección del nuevo Concejo Municipal de Distrito de Colorado, por el Concejo Municipal del Cantón de Abangares se efectuará un inventario de los bienes, activos y pasivos del Concejo Municipal de Distrito anterior.

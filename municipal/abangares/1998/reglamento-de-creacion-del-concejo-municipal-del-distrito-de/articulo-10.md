@@ -1,0 +1,1 @@
+Artículo 10.—De acuerdo al último párrafo del artículo 174 del Código Municipal se emite el siguiente Reglamento que regirá el procedimiento de la consulta popular y de escogencia de los nuevos miembros del Concejo Municipal del Distrito de Colorado, por parte del Concejo Municipal de Abangares.

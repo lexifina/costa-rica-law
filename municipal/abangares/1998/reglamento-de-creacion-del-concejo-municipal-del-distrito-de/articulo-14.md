@@ -1,0 +1,1 @@
+Artículo 14.—La elección se efectuará en cada uno de los Centros Educativos señalados en el artículo 11 del presente reglamento, de 8 a.m. a 4 p.m. del día que decida la Comisión Electoral hacer la convocatoria.

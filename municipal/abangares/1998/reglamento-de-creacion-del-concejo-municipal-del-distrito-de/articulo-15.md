@@ -1,0 +1,1 @@
+Artículo 15.—La inscripción de papeletas se hará en los siete días calendario siguientes a la convocatoria, con el fin de que la Comisión Electoral tenga ocho días para elaborar papeletas y los materiales a usar en la elección

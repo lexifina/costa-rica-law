@@ -1,0 +1,1 @@
+Artículo 17.—La Comisión Electoral se encargará de confeccionar las papeletas y los materiales a utilizar en dicha elección, y deberán estar disponibles al momento de abrir la votación. La Municipalidad del Cantón financiará el costo de los materiales necesarios que se utilicen en esta elección.
