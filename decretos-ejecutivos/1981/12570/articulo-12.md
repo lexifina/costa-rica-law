@@ -1,0 +1,3 @@
+Artículo 12.-El Departamento de Valoración aplicará mediante resolución administrativa cualquier norma, disposición o recomendación que permita la correcta interpretación de la definición del valor que menciona el artículo 1º anterior, de las Notas Interpretativas y de las Notas Explicativas adoptadas por Bruselas en base al Convenio sobre el Valor en Aduanas de las Mercancías.
+Establecerá los procedimientos administrativos y/o las normas para determinar los ajustes necesarios para formar el valor aduanero o precio normal de las mercancías que se valoran.
+Dichos ajustes serán efectuados en los documentos de destinación aduanera al momento del aforo o después del aforo si administrativamente corresponde hacerlo.

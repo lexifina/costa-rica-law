@@ -1,0 +1,2 @@
+Artículo 24.-Normas Generales: Se entiende por "avería" cualquier desmejoramiento o deterioro que sufra una determinada mercancía en su valor y por "merma", cualquier disminución que sufra en su cantidad original.
+Tal como lo señala el CAUCA en su artículo 94, la avería y la merma significarán un descuento en el monto de los derechos aduaneros, para lo cual éstos se aplicarán, tal como fueron establecidos en el Arancel Centroamericano, sobre el nuevo valor fijado o la cantidad mermada, que se determinen en el aforo.

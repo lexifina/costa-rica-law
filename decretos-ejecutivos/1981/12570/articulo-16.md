@@ -1,0 +1,2 @@
+Artículo 16.-Para los efectos aduaneros, denomínase "Representante" a la persona natural o jurídica que tiene a su cargo las ventas o colocación de mercancías de importación en el mercado nacional, mediante el pago de una comisión directa o indirecta, o de otro beneficio que el representado le otorgue.
+"Comisión" es el beneficio pecuniario o de otro orden que el agente o representante del proveedor extranjero obtiene como retribución por la venta o colocación de la mercancía en el país importador.

@@ -1,0 +1,1 @@
+Artículo 25.-En todo lo no previsto en el presente Reglamento, o bien para determinar el alcance de sus normas, se deberán aplicar las Notas Explicativas de la Definición del Valor de Bruselas, cuyo texto con carácter oficial deberá publicar la Dirección General de Aduanas.
