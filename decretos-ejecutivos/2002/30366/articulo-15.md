@@ -1,0 +1,1 @@
+Artículo 15.—El estudiante de duodécimo año que opte por el Proyecto, tendrá derecho a que se le asigne un profesor asesor de la especialidad, para que lo oriente en la formulación del mismo. El proyecto requiere de la aprobación del Departamento Especializado, de no aprobarse, este departamento dará, por escrito, las observaciones pertinentes al profesor asesor .

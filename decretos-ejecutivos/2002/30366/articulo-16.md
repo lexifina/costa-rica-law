@@ -1,0 +1,1 @@
+Artículo 16.—El Proyecto se debe concebir como un proceso integral de desarrollo, de habilidades y destrezas del estudiante, por tanto, incluye acciones claras y precisas de investigación, planeamiento, ejecución y comprobación.

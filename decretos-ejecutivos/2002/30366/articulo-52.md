@@ -1,0 +1,1 @@
+Artículo 52.—El presente reglamento rige a partir de su publicación y deroga el decreto ejecutivo N° 22.609-MEP, del 11 de octubre de 1993 y cualquiera otra disposición que se le oponga o contraríe en sus términos.

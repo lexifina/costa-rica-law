@@ -1,0 +1,1 @@
+Artículo 32.—El estudiante disconforme con la calificación de la prueba escrita comprensiva, podrá presentar recurso de apelación, por escrito, ante la División de Control de Calidad, de acuerdo con las fechas y los procedimientos administrativos establecidos por la mencionada División.

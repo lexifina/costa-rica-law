@@ -1,0 +1,1 @@
+Artículo 48.—Si el estudiante, una vez concluido el curso lectivo de duodécimo año, reprueba asignaturas que no pertenecen al área tecnológica, pero aprueba todos los requisitos para optar por el título de Técnico en el Nivel Medio, se hará acreedor a él. Si desea optar por el Bachillerato, deberá repetir únicamente las asignaturas de la rama académica.

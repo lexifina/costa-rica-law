@@ -1,0 +1,1 @@
+Artículo 27.—Los estudiantes de las instituciones que ofrecen especialidades técnicas, independientemente del plan de estudios que apliquen , Opción 1 u Opción 2, realizarán la Prueba escrita comprensiva, en la primera semana de octubre, la cual estará definida en el Calendario Escolar.

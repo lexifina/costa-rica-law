@@ -1,0 +1,1 @@
+Artículo 21.—Los estudiantes tendrán derecho a revisar el resultado de la evaluación del Proyecto Final , en el término de tres días hábiles posteriores a su término, en una sesión oficial que programe el profesor asesor, el cual debe dar las explicaciones del caso en forma verbal. El estudiante tendrá derecho a solicitar esas explicaciones por escrito.

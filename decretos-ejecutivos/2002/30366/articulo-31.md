@@ -1,0 +1,1 @@
+Artículo 31.—Los resultados de las pruebas escritas comprensivas deberán entregarse a los interesados a más tardar 30 días naturales después de su administración, de acuerdo con los mecanismos establecidos por la División de Control de Calidad.

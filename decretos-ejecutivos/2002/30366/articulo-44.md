@@ -1,0 +1,1 @@
+Artículo 44.—Si por causas físicas, emocionales, económicas o de otra índole, debidamente justificadas, el o la alumna se ve obligado a abandonar la Práctica Profesional o Proyecto Final en forma definitiva, puede continuarla en la segunda quincena del mes de marzo o repetirla totalmente a partir del mes de octubre.

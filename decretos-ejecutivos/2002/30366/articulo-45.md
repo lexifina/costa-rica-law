@@ -1,0 +1,1 @@
+Artículo 45.—En caso justificado, el o la alumna podrá solicitar al Coordinador con la Empresa y al Profesor que le da seguimiento, el traslado a otra empresa para terminar la Práctica Profesional. En tal caso, le serán computadas las horas laboradas en la empresa anterior.
