@@ -1,3 +1,4 @@
-Artículo 31.—Están reñidos con toda norma ética, los anuncios que:
-a) Lleven el fin único y preconcebido de atraer numerosa clientela mediante la aplicación de nuevos sistemas o procedimientos especiales, sobre cuya eficacia aún no se hayan pronunciado las instituciones científicas oficiales.
-b) Sean transmitidos por radio o televisión, altoparlante, pantalla cinematográfica, volantes, afiches o tarjetas que no sean enviadas a destinatario preciso.
+Artículo 31.—Se considera falta grave a la ética:
+a. La presentación en reuniones científicas o la publicación de fotografías, gráficos, material clínicos, datos u otro material, que no sean originales del autor, sin haber obtenido previamente y por escrito el permiso de la rúente original o sin darle el crédito que le corresponde.
+b. El presentar o publicar un trabajo hecho en conjunto con otros profesionales sin incluir sus nombres entre los autores.
+c. El permitir incluir su nombre en un trabajo, sin haber participado en él.

@@ -1,1 +1,1 @@
-Artículo 22.—Todos los MQC están obligados a responder siempre y con la verdad ante cualquier investigación o pregunta de los miembros de la Junta Directiva o del Tribunal de Honor.
+Artículo 22.—El Microbiólogo Químico Clínico cultivará cordiales relaciones con los otros profesionales en Ciencias de la Salud, respetando estrictamente los derechos de cada uno.

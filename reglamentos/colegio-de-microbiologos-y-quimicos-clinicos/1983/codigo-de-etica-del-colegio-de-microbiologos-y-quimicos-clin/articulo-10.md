@@ -1,1 +1,1 @@
-Artículo 10.—El MQC debe atender con el mismo esmero a todos los pacientes, cualquiera que sea su condición, su nacionalidad, raza, religión, situación económica y su reputación, independientemente de los sentimientos que le inspiren.
+Artículo 10.—El Microbiólogo Químico Clínico debe atender con el mismo esmero a todos los pacientes, cualquiera que sea su condición, su nacionalidad, raza, religión, situación económica y su reputación, independientemente de los sentimientos que le inspiren.

@@ -1,1 +1,1 @@
-Artículo 38.—Caso de empate a la hora de dar un fallo, se comunicará asía la Junta Directiva, la cual promoverá revisión del caso.
+Artículo 38.—Toda modificación a este Código deberá ser aprobada en Asamblea General y la modificación publicada en el Diario Oficial.

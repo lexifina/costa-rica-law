@@ -1,1 +1,1 @@
-Artículo 36.—Las sanciones impuestas podrán ser apeladas ante el mismo Tribunal y luego, ante la asamblea general, convocada especialmente para el caso.
+Artículo 36.—En caso de que en el seno del Tribunal de Honor no exista un dictamen d mayoría, de modo que los votos se distribuyan por iguales partes entre distintas posiciones opuestas, los integrantes de dicho Tribunal redactarán dictámenes independientes, uno por cada posición representada, los cuales remitirán a la Junta Directiva para que proceda, conforme a sus facultades de decisión final.

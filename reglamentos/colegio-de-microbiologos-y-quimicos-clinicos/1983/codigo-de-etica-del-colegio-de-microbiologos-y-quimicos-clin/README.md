@@ -13,3 +13,4 @@ Código de Ética del Colegio de Microbiólogos y Químicos Clínicos de Costa R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-03-12 | la propia norma |
+| 2 | 2001-10-11 | Reglamento 43 (2001-10-11) |

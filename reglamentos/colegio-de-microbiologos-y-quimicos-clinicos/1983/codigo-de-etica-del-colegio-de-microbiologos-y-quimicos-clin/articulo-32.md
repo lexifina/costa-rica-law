@@ -1,4 +1,1 @@
-Artículo 32.—Se considera falta a la ética:
-a) La presentación en reuniones científicas o la publicación de fotografías, gráficos, material clínico, datos u otro material, que no sean originales del autor, sin haber obtenido previamente y por escrito el permiso de la fuente original o sin darle el crédito que le corresponde.
-b) El presentar o publicar un trabajo hecho en conjunto con otros profesionales sin incluir sus nombres entre los autores.
-c) El permitir incluir su nombre en un trabajo, sin haber participado en él.
+Artículo 32.—Constituye una violación grave a los principios de la ética profesional y por tanto, una falta grave de este Código de Ética, la participación activa o pasiva de un Microbiólogo Químico Clínico en cualquier forma de tortura. Para el enjuiciamiento de estos casos se utilizarán las disposiciones contenidas en el Articulo 1 de la Declaración de la Organización de las Naciones Unidas sobre la tortura, los principios contenidos en esta misma Declaración y los del Código de Ética de las Naciones Unidas.

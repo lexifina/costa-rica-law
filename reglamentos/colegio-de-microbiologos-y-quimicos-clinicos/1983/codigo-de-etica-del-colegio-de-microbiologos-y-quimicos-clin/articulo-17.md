@@ -1,1 +1,1 @@
-Artículo 17.—Es deber, a nivel particular, no cobrar honorarios al colega, su esposa y sus hijos menores. Será acto generoso y bien visto, no cobrar a los padres y familiares directos del colega.
+Artículo 17.—Es contrario a las reglas de la ética profesional y se considerara por tanto como una falta contraria a este Código, todo comportamiento deliberadamente destinado a sustraer la clientela de otro colega.

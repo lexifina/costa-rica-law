@@ -1,1 +1,1 @@
-Artículo 27.— El MQC que desempeña un cargo público en cualquier institución está obligado, en el desempeño del mismo, a respetar lo establecido en este Código. Las obligaciones con el Estado y sus instituciones no lo eximen de sus deberes para con el Colegio, los colegas y los pacientes.
+Artículo 27.—En ningún caso (salvo en emergencias) el Microbiólogo Químico Clínico debe ejercer su profesión en condiciones que pueden comprometer la calidad de los resultados de los exámenes y por lo tanto de un diagnóstico correcto.

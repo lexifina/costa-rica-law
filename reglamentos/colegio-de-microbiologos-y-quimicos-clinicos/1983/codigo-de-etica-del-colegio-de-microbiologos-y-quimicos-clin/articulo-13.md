@@ -1,1 +1,1 @@
-Artículo 13.—Todo acto profesional que se hace en forma deficiente, al realizar cierto número de exámenes en un tiempo insuficiente, por así cumplir con una norma administrativa, debe considerarse como reñido con la ética.
+Artículo 13.—Todo acto profesional que se realice en forma deficiente u omisa, para así cumplir con una orden puntual o una norma administrativa, se considerara, reñido con la ética profesional.

@@ -1,1 +1,3 @@
-Artículo 30.—El profesional, al ofrecer al público los servicios de su laboratorio, por medio de anuncios en periódicos, revistas u otros medios de comunicación, deberá hacerlo discretamente, limitándose a poner el nombre de los regentes, centros de estudios y títulos o grados y debidamente aceptados por el Colegio, su dirección y número de teléfono.
+Artículo 30.—Están reñidos con toda norma ética, los anuncios que
+a. Lleven el fin único y preconcebido de atraer numerosa clientela mediante la aplicación de nuevos sistemas o procedimientos especiales, sobre cuya eficacia aun no se hayan pronunciado las instituciones científicas oficiales.
+b. Sean transmitidos por radio, televisión, intemet, altoparlante, pantalla cinematográfica, volantes, afiches, incumpliendo el Articulo 29 de este código.

@@ -1,1 +1,1 @@
-Artículo 23.—El MQC cultivará cordiales relaciones con los otros profesionales en Ciencias de la Salud, respetando estrictamente los derechos de cada uno.
+Artículo 23.—El Microbiólogo Químico Clínico no debe delegar en profesionales de otras disciplinas, lo que a el exclusivamente le corresponde por ley.

@@ -1,1 +1,1 @@
-Artículo 2°—El MQC debe abstenerse, incluso fuera del ejercicio de su profesión, de cualquier acto que pueda afectar a esta en su honor y dignidad o que contravenga cualquier artículo de este Código.
+Artículo 2°—El Microbiólogo Químico Clínico debe abstenerse, incluso fuera del ejercicio de su profesión, de cualquier acto o conducta que pueda afectarlo en su honor y dignidad o que contravenga cualquier Artículo de este Código.

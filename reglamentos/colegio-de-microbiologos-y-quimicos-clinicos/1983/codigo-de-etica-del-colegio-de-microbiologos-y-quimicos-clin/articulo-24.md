@@ -1,1 +1,1 @@
-Artículo 24.—El MQC no debe delegar en profesionales de otras disciplinas, lo que a él exclusivamente le corresponde por ley.
+Artículo 24.—Es un deber del Microbiólogo Químico Clínico, con las salvedades debidas a su edad, a su estado de salud, o a su eventual especialización, ayudar a cualquier acción que organicen las autoridades competentes, en caso de desastre, para la protección de la salud donde sea necesario o posible.
