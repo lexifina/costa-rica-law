@@ -1,0 +1,2 @@
+VI
+Para los fines de este contrato en aquellos casos en que los productos de las Compañías en Costa Rica se vendan a Compañías afiliadas para ser por éstas vendidos en los Estados Unidos de América, los precios que serán acreditados a las Compañías serán los precios que las Compañías declaren y que sean aceptables al Bureau of Internal Revenue de ese país para los fines del impuesto sobre la renta de dicho país, de acuerdo con sus disposiciones legales.
