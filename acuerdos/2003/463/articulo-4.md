@@ -1,0 +1,1 @@
+Artículo 4º—En caso de que se determinara que las embarcaciones han sido utilizadas para la captura de otras especies o grupos comerciales distintos a la langosta, el INCOPESCA procederá en forma inmediata a cancelar las respectivas licencias.

@@ -1,0 +1,1 @@
+Artículo 5º—El representante legal de ABUZPA estará obligado a presentar a más tardar cinco días hábiles después de finalizado el mes calendario, los formularios que para estos efectos confeccionará el INCOPESCA y las facturas o constancias de venta de la langosta capturada a bordo de cada una de las embarcaciones citadas anteriormente.

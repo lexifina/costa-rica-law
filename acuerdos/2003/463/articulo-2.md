@@ -1,0 +1,1 @@
+Artículo 2º—Se otorga licencia de pesca comercial para la extracción de la langosta mencionada para las embarcaciones ABUZPA I, matrícula P-8706, ABUZPA II, matrícula P-8666, ABUZPA III, Matrícula 8634, todas propiedad de la Asociación de Buzos de Paquera.
