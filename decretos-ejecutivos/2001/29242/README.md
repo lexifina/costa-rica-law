@@ -18,3 +18,4 @@ La Autoridad Presupuestaria no considerará solicitudes para la Creación de Pla
 | 3 | 2001-08-08 | Decreto Ejecutivo 29733 (2001-08-08) |
 | 4 | 2001-09-24 | Decreto Ejecutivo 29862 (2001-09-24) |
 | 5 | 2001-10-31 | Decreto Ejecutivo 29961 (2001-10-31) |
+| 6 | 2001-11-07 | Decreto Ejecutivo 29979 (2001-11-07) |

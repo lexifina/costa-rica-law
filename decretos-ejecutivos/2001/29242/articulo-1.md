@@ -20,3 +20,4 @@ Artículo 1º—La Autoridad Presupuestaria no considerará solicitudes para la 
 (Mediante Decreto Ejecutivo Nº 29766 de 16 de agosto del 2001, se exeptúa de está disposición a JAPDEVA, en lo que se refiere a la creación de plazas)
 (Mediante Decreto Ejecutivo Nº 29862 de 24 de setiembre del 2001, se exeptúa de está disposición a la Junta de Desarrollo de la Zona Sur de la Provincia de Puntarenas, en lo que se refiere a la creación de plazas)
 (Mediante Decreto Ejecutivo Nº 29961 de 31 de octubre del 2001, se exeptúa de está disposición al ICE, en lo que se refiere a la creación de plazas)
+(Mediante Decreto Ejecutivo Nº 29979 de 7 de noviembre del 2001, se exeptúa de está disposición al Tribunal Registral Administrativo, en lo que se refiere a la creación de plazas)
