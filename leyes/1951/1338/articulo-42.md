@@ -1,1 +1,0 @@
-Artículo 42.-Queda terminantemente prohibido otorgar permisos o derechos de ocupación, disfrute,' uso o simple posesión de las orillas de caminos públicos y vecinales, o ejercer actos que impliquen tenencia en cualquier forma, de esas orillas por los particulares.
