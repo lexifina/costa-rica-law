@@ -1,0 +1,2 @@
+Artículo 26—-Los dueños de construcciones que deben retirarse con arreglo al alineamiento oficial no podrán ejecutar en ellas, obras que tiendan a consolidarse en su totalidad y por lo tanto a perpetualizar su estado actual. Se entenderá obras que tienden a consolidar su estado actual.
+Los cambios de paredes, refuerzos de estructuras, cambio de construcción total o parcial de techos, remodelación de fachadas, apertura de puertas o ventanas o cierre de las mismas o sustitución de unas por otras.

@@ -1,0 +1,1 @@
+Artículo 27—La Municipalidad garantizará la libertad para adoptar la arquitectura o diseño de las tachadas de las construcciones. Sin embargo, podrá hacer objeciones a las mismas a fin de que guarde relación estética con la zona en que se ubiquen; en caso de construcciones en la Zona de Control Especial debe considerarse los requisitos establecidos para esta zona.

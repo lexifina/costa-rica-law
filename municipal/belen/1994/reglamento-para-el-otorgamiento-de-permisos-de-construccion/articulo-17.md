@@ -1,0 +1,1 @@
+Artículo 17—En caso de construcción de pequeñas industrias, talleres, industrias. hoteles y urbanizaciones de más de 50 unidades habitacionales. Deben presentar plano eléctrico y un estudio de impacto ambiental conforme al Reglamento para la Tutela del Medio Ambiente; y demás disposiciones contempladas en este Reglamento para estos fines.

@@ -1,0 +1,1 @@
+Artículo 8°—El propietario y el l ingeniero o arquitecto responsable del diseño de la edificación responderán de los datos que se indiquen en el proyectil o diseño. La Municipalidad será responsable únicamente por los datos que se refieren a alineamientos y niveles.

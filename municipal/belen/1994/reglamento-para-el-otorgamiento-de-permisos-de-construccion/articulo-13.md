@@ -1,0 +1,1 @@
+Artículo 13—Todo edificio que se construya o reconstruya en lo sucesivo frente a la vía pública deberá ajustarse al alineamiento de la Municipalidad de Belén, o del Ministerio de Obras Públicas y Trasportes.
