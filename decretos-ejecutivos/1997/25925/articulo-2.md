@@ -1,0 +1,1 @@
+Artículo 2°—Los criterios de selección establecidos en este decreto, podrán ser ampliados, reducidos o modificados anualmente. El decreto ejecutivo que contenga tales variaciones, deberá publicarse a más tardar en la última semana de enero de cada año. Sin embargo, en el tanto en que la publicación del nuevo decreto no se efectúe, regirán los criterios en vigencia.
