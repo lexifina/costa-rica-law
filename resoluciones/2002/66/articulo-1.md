@@ -16,7 +16,8 @@ Artículo 1°—Aquellos beneficiarios que de acuerdo con la Ley N° 7040 de 25 
 2. El propietario del vehículo debe presentarse cada vez que va a solicitar un permiso de conducir, debiendo portar su cédula de identidad y entregar al funcionario autorizado fotocopia de la misma. 3. Original de la llamada "Tarjeta de circulación del vehículo con una fotocopia, correspondiente al último año.
 4. Cédula de identidad, cédula de residencia o pasaporte , según corresponda, y licencia de conducir de la persona para la que solicita el permiso de conductor, con fotocopia.
 5.Una fotografía actual del conductor (de frente) tamaño pasaporte.
-6. Copia del dictamen médico, emitido por la Dirección Médica del Consejo Nacional de Rehabilitación, que demuestre que el beneficiario no puede o no debe conducir el vehículo.
+6. Copia del dictamen médico, emitido por la Dirección Médica del Centro Nacional de Rehabilitación, que demuestre que el beneficiario no puede o no debe conducir el vehículo.
+(Así reformado por resolución N° 5 de 23 de enero de 2003)
 7. Cuando el permiso se solicite para familiares debe aportar documento en que se demuestre el parentesco (partida de nacimiento, etc.). Si el permiso es para el cónyuge, se debe aportar copia del Acta de Matrimonio. En casos de unión libre, se presentará declaración jurada del beneficiario, autenticada por abogado, dando fe de la relación con su compañero (a).
 8. Si algún documento de los indicados ha sido emitido en idioma distinto al español, deberá acompañarse su traducción oficial. Esta traducción podrá ser hecha por el interesado, quien deberá indicar que es traducción fiel de su original y firmar. La firma del interesado deberá ser autenticada por abogado.
 9. En caso de que el permiso se solicite para un chofer remunerado se debe presentar además de los requisitos indicados en los puntos 1 al 5, lo siguiente :

@@ -14,3 +14,4 @@ Requisitos para el trámite de permisos de conducir vehículos placas LFP
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-25 | la propia norma |
+| 2 | 2003-01-23 | Resolución 5 (2003-01-23) |
