@@ -1,0 +1,36 @@
+6.- Principio de publicidad
+6.1 El principio de publicidad de los procedimientos de
+contratación administrativa tiene las siguientes
+manifestaciones:
+6.1.1. El inicio de todo procedimiento debe darse a conocer
+de conformidad con las reglas que corresponden a su
+naturaleza. De esta forma, en los procedimientos de
+licitación pública, a través de publicación, en los
+procedimientos de licitación por registro, a través
+de la invitación a los proveedores acreditados, salvo
+aquellos casos en que se permite la comunicación por
+publicación, y en la licitación restringida, mediante
+la comunicación respectiva.
+6.1.2. Una vez adoptada la decisión de contratar, toda
+persona tendrá acceso al expediente levantado al
+efecto, sus anexos y estudios complementarios.
+6.1.3. Todo interesado en participar podrá obtener de las
+oficinas correspondientes la información relacionada
+con los recursos presupuestarios que dan sustento al
+concurso.
+6.1.4. Las partes interesadas podrán tener acceso a los
+estudios técnicos de las ofertas elaborados por la
+Administración, salvo en aquellos casos en que esto
+pueda colocar a alguno de los oferentes en situación
+de ventaja. Para hacer valer esta excepción, la
+Administración deberá adoptar un acto debidamente
+motivado.
+6.1.5. Quedan excluidos del acceso de las partes y el
+público en general, los documentos confidenciales de
+los oferentes aportados con la única finalidad de
+acreditar requerimientos particulares de la
+Administración solicitados con el propósito de
+establecer su idoneidad. Para considerar de tal
+naturaleza alguna información suministrada por los
+oferentes, deberá hacerse la indicación
+correspondiente en las condiciones del concurso.

@@ -1,0 +1,26 @@
+49. Alcance y efectos de la oferta
+49.1 La oferta debe cumplir con los requisitos y adjuntar la
+documentación y anexos señalados por el cartel.
+49.2 La sola presentación de la oferta se entenderá como una
+manifestación inequívoca de la voluntad del oferente de
+contratar con pleno sometimiento a las condiciones y
+especificaciones del cartel y a las disposiciones legales y
+reglamentarias pertinentes.
+49.3 Es elegible la oferta que se ajuste a las condiciones y
+especificaciones esenciales del cartel. Unicamente serán
+excluidas del concurso las ofertas contrarias al ordenamiento
+jurídico o que impidan la satisfacción del interés general
+perseguido por el respectivo procedimiento de contratación.
+49.4 Salvo cuando el cartel lo disponga de otra manera, el oferente
+se entiende obligado a cotizar por la totalidad del objeto de
+la licitación. Sin embargo, en el caso de que el cartel se
+refiera a una pluralidad de renglones diversos se permitirá
+presentar oferta respecto a uno o varios de estos, salvo los
+casos de renglones dependientes entre sí. En todo caso, no se
+permitirá la cotización parcial de un renglón. La
+Administración no podrá exigir la participación en la totalidad
+de los renglones cuando no exista una justificación técnica
+para ello.
+49.5 Una vez recibida por la oficina correspondiente, la oferta no
+podrá ser retirada de ésta y se tendrá como propiedad de la
+Administración interesada en el concurso.

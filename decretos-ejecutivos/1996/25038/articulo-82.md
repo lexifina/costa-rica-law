@@ -1,0 +1,17 @@
+82.- Exclusión por ley o instrumento internacional
+82.1 Las contrataciones excluidas de los procedimientos ordinarios
+de contratación por ley especial o por instrumento
+internacional vigente en Costa Rica, se regirán por dichas
+normas y los respectivos reglamentos.
+82.2 Los procedimientos ordinarios de contratación administrativa no
+se aplicarán cuando en los instrumentos de empréstito aprobados
+por la Asamblea Legislativa se establezca la utilización de
+procedimientos de contratación especiales, o se haga remisión a
+cuerpos normativos elaborados por el organismo internacional de
+crédito que suministra los recursos. En estos casos, serán de
+plena aplicación y vigencia los principios fundamentales de la
+contratación administrativa y procederá el ejercicio de los
+recursos de acuerdo con las reglas definidas en la normativa
+nacional. En el caso del Gobierno Central, la excepción
+procedimental indicada no afectará los requerimientos de
+registro y control que establezca la Proveeduría Nacional.

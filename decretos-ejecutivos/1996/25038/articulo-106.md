@@ -1,0 +1,39 @@
+106.- Sanciones a los particulares.
+106.1 Los particulares que durante el curso de los procedimientos de
+contratación Administrativa incurran en las causales previstas
+en los artículos 99 y 100 de la Ley de Contratación
+Administrativa, serán sancionados con apercibimiento e
+inhabilitación, respectivamente.
+106.2 El apercibimiento consiste en una formal amonestación escrita
+dirigida al particular, a efecto de que corrija su conducta,
+cuando fuere posible, sin perjuicio de la ejecución de
+garantías, cuando así procediere y constituye un antecedente
+para la aplicación de la sanción de inhabilitación.
+106.3 La sanción de inhabilitación consiste en el impedimento para
+participar en todo procedimiento de contratación
+administrativa, por un período de uno a cinco años según la
+gravedad de las faltas.
+106.4 La Contraloría General o la Administración interesada, de
+oficio o por denuncia, tomará el acuerdo de apercibimiento o
+de inhabilitación, previa audiencia al o a los presuntos
+infractores por el término de cinco días hábiles para que
+formulen sus alegatos y presenten sus pruebas de descargo. Si
+de dicha audiencia resultare necesario obtener alguna prueba
+por parte de la Administración, producida ésta se dará nueva
+audiencia por tres días hábiles a los interesados,
+transcurridos los cuales se dictará la resolución definitiva.
+El apercibimiento y la inhabilitación deben ser notificados al
+infractor en el lugar señalado en el expediente respectivo y a
+la Contraloría General, cuando es la Administración quien
+dicta el respectivo acuerdo, y a la Administración interesada,
+cuando es la Contraloría General quien la emite.
+106.5 La inhabilitación además será publicada en el Diario Oficial
+para efecto de información a toda la Administración Pública.
+106.6 Cada Administración, la Contraloría General y la Proveeduría
+Nacional en el caso del Gobierno Central, llevarán un registro
+de las sanciones que dicten respectivamente y de las que
+imponga la Administración y la Proveeduría Nacional, en el
+caso de la Contraloría General, y de las que esta imponga y
+que le atañan, en el caso de cada Administración y de la
+Proveeduría Nacional. Este registro será de fácil acceso para
+cualquier interesado.

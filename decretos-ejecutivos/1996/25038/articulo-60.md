@@ -1,0 +1,39 @@
+Sección Cuarta
+La licitación restringida
+60.- Supuestos y procedimiento
+60.1 El procedimiento de licitación restringida será de aplicación
+en los supuestos previstos por el artículo 27 de la Ley de
+Contratación Administrativa, en atención al monto del
+presupuesto ordinario de la Administración interesada en el
+concurso y a la estimación del negocio.
+60.2 Este procedimiento de contratación requiere de la existencia de
+un registro de proveedores, a los cuales la Administración
+podrá cursar invitación a participar en la licitación,
+seleccionando entre ellos por lo menos a cinco quienes por sus
+antecedentes y atestados garanticen el cumplimiento
+satisfactorio de la prestación objeto del contrato.
+60.3 Cuando en el registro respectivo el número de proveedores para
+el objeto que se interesa sea inferior a cinco, la
+Administración dejará constancia expresa de ello en el
+expediente administrativo correspondiente a la contratación e
+invitará a los oferentes acreditados que hubiere.
+60.4 Al despachar la invitación respectiva, la Administración
+incorporará una copia del pliego de condiciones en un
+expediente o registro permanente y de fácil acceso para
+cualquier proveedor eventual interesado en participar en la
+licitación, a efecto de garantizar los principios de igualdad y
+de libre competencia a eventuales oferentes, quienes podrán
+intervenir en el concurso sin que medie la respectiva
+invitación, si se encuentra registrado, caso contrario, si se
+inscribe antes de vencerse el plazo de recepción de ofertas.
+60.5 El plazo para recibir ofertas no podrá ser inferior a tres días
+hábiles y su apertura se regirá por las reglas de la licitación
+pública. La adjudicación o la declaración de deserción del
+concurso deberá producirse dentro del plazo fijado por la
+Administración, y en defecto de este, dentro de los veinte días
+hábiles siguientes a la apertura de ofertas.
+60.6 La Administración aplicará los principios y normas de la
+licitación pública, particularmente en lo que concierne la
+preparación del cartel, los requisitos de la oferta y las
+condiciones de selección y adjudicación, en la medida que sea
+compatible con la naturaleza de la licitación restringida.
