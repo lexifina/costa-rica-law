@@ -1,0 +1,1 @@
+Artículo 12.—El horario en que se desarrollarán estas actividades deberá ser de las 20 horas a las 23 horas (8 a 11 de la noche). Durante actividades festivas podrán autorizarse durante el día, excepto los domingos.

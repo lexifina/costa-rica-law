@@ -1,0 +1,1 @@
+Artículo 13.—En las áreas consideradas residencial – comercial en el Plan de Zonificación del cantón, los niveles de ruido no podrán exceder de los 55 decibeles que será el límite de nivel de sonido para la actividad nocturna y 65 decibeles para el día, según lo estipula el Reglamento para el Control de la Contaminación por Ruido (Decreto 78718-S) de agosto 2000.

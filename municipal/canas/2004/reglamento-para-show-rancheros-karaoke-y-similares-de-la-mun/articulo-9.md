@@ -1,0 +1,1 @@
+Artículo 9º—Se procederá de idéntica forma si el dueño del negocio cuenta con su propio servicio de música ya sea grabada o en vivo. Lo anterior, según el artículo 79 del Código que establece la obligatoriedad de contar con licencia municipal para ejercer cualquier actividad lucrativa en el cantón.

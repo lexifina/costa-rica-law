@@ -1,0 +1,1 @@
+Artículo 8º—La empresa o persona física que venda el servicio sea de Karaoke, show ranchero o similares a los patentados de negocios de este Cantón, deberán contar con licencia municipal al día, según lo establece el artículo 79 del Código Municipal.

@@ -1,0 +1,2 @@
+Artículo 11.—No se dará permiso a dos locales comerciales para que realicen estas actividades en forma simultánea si la distancia que media entre ellos es menor a los 500 metros.
+Se dará prioridad a la solicitud presentada con mayor antigüedad.

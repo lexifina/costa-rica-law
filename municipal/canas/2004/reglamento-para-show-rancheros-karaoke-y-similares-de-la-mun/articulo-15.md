@@ -1,0 +1,1 @@
+Artículo 15.—La administración activa se reserva el derecho de denegar una solicitud cuando haya incumplimiento de cualquier disposición de este reglamento o por situaciones excepcionales como duelo nacional, calamidad pública y otros que afecten los intereses de la comunidad a criterio de la administración activa.

@@ -1,0 +1,1 @@
+Artículo 7º—La realización de estas actividades deberá pagar el impuesto sobre espectáculos públicos ya que se enmarcan en la definición que del hecho generador de la obligación hace el artículo 1º del Reglamento para la aplicación del Impuesto sobre Espectáculos Públicos Nº 27762-H-C, siempre y cuando se cobre la entrada.

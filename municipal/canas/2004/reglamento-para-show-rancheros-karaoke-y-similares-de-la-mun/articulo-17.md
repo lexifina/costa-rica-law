@@ -1,0 +1,1 @@
+Artículo 17.—Los lugares que deseen instalar un karaoke, de forma permanente, deberán de contar con una patente municipal para este tipo de actividad y cumplir con todos los requisitos que para tal efecto establece la ley.
