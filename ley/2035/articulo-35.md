@@ -1,1 +1,1 @@
-Artículo 35.- El Auditor dependerá directamente de la Junta y le podrá presentar, directa y libremente, los asuntos que considere deben ser de su conocimiento. Contra las resoluciones del Auditor cabrá el recurso de apelación ante la Junta. La resolución de ésta será definitiva.
+Artículo 35.- El Auditor dependerá directamente de la Junta Directiva y podrá presentarle, directa y libremente, los asuntos que considere que deban ser de su conocimiento. Contra las resoluciones del Auditor cabrá recurso de apelación ante la Junta, cuya decisión sobre ello será definitiva.

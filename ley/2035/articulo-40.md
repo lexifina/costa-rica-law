@@ -1,1 +1,1 @@
-Artículo 40.- El Consejo estará sujeto a la fiscalización de la Contraloría General de la República, de acuerdo con las disposiciones legales de la misma.
+Artículo 40.- El Consejo publicará en el diario oficial, dentro de los primeros sesenta días hábiles de cada nuevo ejercicio financiero, un balance de su situación económica, que comprenderá el estado del activo, pasivo y patrimonio, con un detallado informe sobre la formación y aplicación de sus fondos.
