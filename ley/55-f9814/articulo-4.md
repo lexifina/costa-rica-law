@@ -1,0 +1,1 @@
+Art. 4. Queda en los términos que expresan los anteriores artículos reformando el Decreto de 22 de febrero de 1839. –Dado en San José, á veintiuno de Mayo de mil ochocientos cuarenta y dos. – Francisco Morazan. – Al Ministro general del Despacho Sr. General José Miguel Saravia.
