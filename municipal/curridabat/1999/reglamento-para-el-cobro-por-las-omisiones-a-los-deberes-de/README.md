@@ -14,3 +14,4 @@ Reglamento para el Cobro por las Omisiones a los Deberes de los Propietarios de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-23 | la propia norma |
+| 2 | 2001-06-28 | Reglamento municipal 63 (2001-06-28) |
