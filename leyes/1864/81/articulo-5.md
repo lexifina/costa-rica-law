@@ -1,0 +1,1 @@
+Art 5° Por enfermedad o licencia del Ajente Fiscal, será llamado o subrogarle para uno u otro negocio urjente de interés Municipal, el individuo que reuniendo las calidades de aquel, nombre la Municipalidad respectiva, sea o no de su propio seno.
