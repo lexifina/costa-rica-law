@@ -1,0 +1,1 @@
+Articulo 2°-La partida fijada en el Presupuesto Nacional para la atención de los tranvías a que se refiere el articulo anterior, pasara a engrosar el Presupuesto del Ministerio de Gobernación y Policía.
