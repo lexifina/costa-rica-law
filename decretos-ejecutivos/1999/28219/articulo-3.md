@@ -1,0 +1,1 @@
+Artículo 3°—Será la Oficina Nacional de Normas y Unidades de Medida la encargada de la actualización permanente de este reglamento técnico, procediendo en su caso a la modificación del presente Decreto previa consulta al Ministerio de Salud y al Ministerio de Agricultura y Ganadería.

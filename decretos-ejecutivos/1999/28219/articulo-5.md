@@ -1,0 +1,1 @@
+Artículo 5°—Será el Ministerio de Agricultura y Ganadería, e Ministerio de Salud y el Ministerio de Economía, Industria y Comercio cada uno en el ámbito de sus competencias, los encargados de velar por el cumplimiento del presente reglamento técnico.

@@ -1,0 +1,1 @@
+Artículo 2°—Los establecimientos que realizan las funciones de lavado, empaque y clasificación deben cumplir con las normas y reglamentos establecidos por la autoridad sanitaria oficial competente y las municipalidades respectivas.
