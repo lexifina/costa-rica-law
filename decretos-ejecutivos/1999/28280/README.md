@@ -14,3 +14,4 @@ Reglamento para el Control y Revisión Técnica de las emisiones de gases contam
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-12-06 | la propia norma |
+| 2 | 2001-03-06 | Decreto Ejecutivo 29391 (2001-03-06) |
