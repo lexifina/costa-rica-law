@@ -1,2 +1,0 @@
-Artículo 8°—Todos los Créditos deberán otorgarse con la correspondiente garantía, de acuerdo con el monto del crédito, la capacidad de pago mostrado, el sector de la actividad de la cooperativa, el nivel de endeudamiento y el grado de riesgo del proyecto a financiar.
-Las garantías podrán ser hipotecas y cédulas hipotecarias, prendas, avales, letras de cambio, pagarés, giros, cuotas de inversión, títulos valores debidamente registrados u otros documentos negociables o cualquier otro que sea aceptable ajuicio de INFOCOOP.

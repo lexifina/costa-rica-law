@@ -1,2 +1,0 @@
-Artículo 38.—En esta modalidad de nuevo financiamiento y/o readecuación de créditos vigentes; el plazo, la forma de pago, la tasa de interés y el período de gracia; se deben ajustar a las condiciones que requiera la cooperativa, para alcanzar su viabilidad financiera. En todo caso, el estudio técnico, debe recomendar y justificar las condiciones propuestas, considerando, en todos los casos, la estabilidad financiera institucional.
-(Así adicionado por acuerdo de Junta Directiva de 27 de noviembre de 2001)

@@ -1,1 +1,0 @@
-Artículo 4°—Las solicitudes de crédito deberán ser resueltas por la Junta Directiva, previo dictamen de la Comisión de Crédito. La Junta Directiva podrá apartarse del criterio técnico, en cuyo caso deberá justificar su resolución, ya sea por razones técnicas o de mera oportunidad.
