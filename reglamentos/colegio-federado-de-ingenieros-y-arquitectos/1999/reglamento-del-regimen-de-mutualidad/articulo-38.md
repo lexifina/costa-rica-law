@@ -1,0 +1,1 @@
+Artículo 38.—La Junta Administradora podrá ordenar las auditorías externas que estime necesarias sobre el Fondo de Mutualidad, como complemento a las labores propias que desarrolla la Auditoría Interna.

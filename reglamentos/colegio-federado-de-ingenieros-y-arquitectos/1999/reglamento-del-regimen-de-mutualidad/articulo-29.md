@@ -1,0 +1,1 @@
+Artículo 29.—Se le otorgarán al Gerente las facultades de apoderado generalísimo en relación con todos los asuntos del Régimen con las limitaciones que se establecen en el artículo 32 de la Ley del CF1A para el Director Ejecutivo.

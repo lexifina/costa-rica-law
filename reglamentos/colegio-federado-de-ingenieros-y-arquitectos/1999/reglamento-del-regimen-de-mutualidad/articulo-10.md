@@ -1,0 +1,1 @@
+Artículo 10.—El Régimen estará sujeto al menos a una auditoría externa anual y a todas aquellas que ordene la Asamblea de Representantes. La Auditoría Interna fiscalizará todas las actividades administrativas y financieras del Régimen.

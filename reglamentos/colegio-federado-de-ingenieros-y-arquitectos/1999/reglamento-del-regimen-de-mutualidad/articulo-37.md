@@ -1,0 +1,1 @@
+Artículo 37.—Al 31 de diciembre de cada año se realizará una liquidación de ingresos y gastos para obtener el balance de situación, estados financieros y los informes o estudios técnicos que la Junta Administradora crea oportuno.

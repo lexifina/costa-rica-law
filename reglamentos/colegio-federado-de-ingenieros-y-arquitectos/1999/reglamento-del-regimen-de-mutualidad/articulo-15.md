@@ -1,0 +1,1 @@
+Artículo 15.—Para conocer casos específicos se realizarán sesiones extraordinarias. Estas sesiones serán convocadas por el Presidente de la Junta Administradora, por tres de sus miembros o por el Gerente del Régimen en cualquier tiempo, vía telefónica.

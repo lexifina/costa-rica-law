@@ -1,0 +1,1 @@
+Artículo 35.—Cuando a un beneficiario se le haya otorgado el beneficio de la mutualidad y se demuestre posteriormente que ha suministrado información falsa con el fin de gozar del mismo, se iniciarán los procedimientos legales correspondientes para obtener el reintegro de dicho dinero. Además se le cobrarán todos los gastos legales y administrativos que correspondan.

@@ -1,0 +1,1 @@
+Artículo 4°—Todos los ingresos correspondientes al Régimen, deberán ser depositados en las cuentas bancarias del Régimen a más tardar tres días hábiles después de su ingreso a caja y administrados de conformidad con lo que establece el artículo 84 (b) del Reglamento Interior General del CFIA.

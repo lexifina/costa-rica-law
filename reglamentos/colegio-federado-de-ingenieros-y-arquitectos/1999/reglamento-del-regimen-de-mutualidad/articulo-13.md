@@ -1,0 +1,1 @@
+Artículo 13.—La Junta Directiva General podrá nombrar a dos de sus miembros para que asistan a las reuniones de la Junta Administradora con derecho a voz y voto, no devengarán dieta, ni si computarán sus ausencias.

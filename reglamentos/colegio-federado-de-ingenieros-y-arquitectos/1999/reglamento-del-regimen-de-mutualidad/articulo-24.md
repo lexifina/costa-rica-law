@@ -1,0 +1,1 @@
+Artículo 24.—Corresponde al Vicepresidente ejercer las funciones del Presidente durante sus ausencias temporales. En ausencia de ambos en una sesión, las funciones del Presidente las ejercerá el Director presente que tenga más tiempo de pertenecer a la Junta Administradora, si hubiera 2 con el mismo tiempo de laborar se escogerá al de mayor edad.

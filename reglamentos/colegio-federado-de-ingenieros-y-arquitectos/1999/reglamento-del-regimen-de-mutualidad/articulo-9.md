@@ -1,0 +1,2 @@
+Artículo 9°—La Junta Directiva General del CFIA encargará la administración del Régimen de Mutualidad a la Junta Administradora y el menoscabo de las potestades que la ley le confiere. La Junta Administradora tendrá a su cargo la toma de decisiones, control y evaluación de resultados de la gestión administrativa.
+Asimismo presentará anualmente para su aprobación por parte de la Junta Directiva General, la definición de políticas y estrategias de manejo del Fondo.

@@ -1,0 +1,1 @@
+Transitorio N° 3.—La Junta Directiva General al efectuar la ratificación de los nuevos miembros de la Junta Asesora, mediante sorteo definirá quienes lo serán por uno, dos o tres años una vez finalizado el período inicial.

@@ -1,0 +1,1 @@
+Artículo 20.—De todos los asuntos tratados y de los acuerdos tomados, deberá quedar constancia clara y precisa en el acta, así como de aquellas opiniones y votos razonados que un Director solicite que queden constando en dicha acta.

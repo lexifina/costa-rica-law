@@ -1,0 +1,1 @@
+Transitorio N° 1.—El plazo establecido en el Artículo 11 inciso (a) de este reglamento se inicia a partir del momento en que se apruebe el mismo, de esta manera todos los directores nombrados actualmente podrían permanecer en sus cargos por un período máximo de 9 años.
