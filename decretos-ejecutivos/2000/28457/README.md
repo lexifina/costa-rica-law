@@ -15,3 +15,4 @@ Reglamento de Evaluación de los Aprendizajes MEP
 | --- | --- | --- |
 | 1 | 2000-02-16 | la propia norma |
 | 2 | 2001-02-02 | Decreto Ejecutivo 29373 (2001-02-02) |
+| 3 | 2004-03-12 | SINALEVI (sin norma nombrada) |
