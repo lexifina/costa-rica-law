@@ -1,4 +1,3 @@
-CAPITULO XI
+CAPÍTULO XI
 De los Fondos del Colegio Federado
-ARTICULO 87.- El año económico del Colegio Federado, será el primero
-de enero al 31 de diciembre de cada año.
+Artículo 87.- El año económico del Colegio Federado, será del primero de enero al 31 de diciembre de cada año.

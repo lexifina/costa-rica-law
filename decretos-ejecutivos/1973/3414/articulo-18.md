@@ -1,6 +1,1 @@
-ARTICULO 18.- En caso de suspensión por falta de pago de las
-contribuciones respectivas, el profesional que desee reingresar deberá
-satisfacer las cuotas atrasadas y la multa de ley y mediante acuerdo de la
-Junta Directiva General. Si el atraso fuere de tres años, el reingreso
-deberá ser acordado por la asamblea de representantes, por no menos de las
-dos terceras partes de los miembros presentes.
+ARTICULO 18.- En caso de suspensión por falta de pago de las contribuciones respectivas, el profesional que desee reingresar deberá satisfacer las cuotas atrasadas y la multa de ley y mediante acuerdo de la Junta Directiva General. Si el atraso fuere de tres años, el reingreso deberá ser acordado por la asamblea de representantes, por no menos de las dos terceras partes de los miembros presentes.

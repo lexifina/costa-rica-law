@@ -1,15 +1,1 @@
-ARTICULO 42.- Cualquier acuerdo de la Junta Directiva General podrá
-ser apelado de conformidad con lo que establece el incido f) del artículo
-23 de la Ley Orgánica. Dicho recurso deberá ser presentado por escrito
-dentro de los tres días hábiles siguientes a la sesión en que se tomó el
-acuerdo recurrido o en su caso, siguientes a la comunicación al interesado
-y deberá ser presentada ante el Director Ejecutivo, quien lo someterá a
-conocimiento de la Junta Directiva General para su admisión. Caso de que
-la Junta Directiva General se negará a darle curso, los interesados podrán
-apelar de hecho ante la asamblea de representantes, presentándole al
-Director Ejecutivo el respectivo recurso por escrito dentro de los tres
-días hábiles siguientes a la comunicación de su rechazo.
-El Director Ejecutivo tendrá la obligación de ponerlo en conocimiento
-de la siguiente asamblea de representantes que se convoque, haciéndolo
-figurar obligadamente en el orden del día de esa reunión y en la
-convocatoria respectiva Dichos recursos no requieren formalidad alguna.
+ARTICULO 42.- Cualquier acuerdo de la Junta Directiva General podrá ser apelado de conformidad con lo que establece el incido f) del artículo 23 de la Ley Orgánica. Dicho recurso deberá ser presentado por escrito dentro de los tres días hábiles siguientes a la sesión en que se tomó el acuerdo recurrido o en su caso, siguientes a la comunicación al interesado y deberá ser presentada ante el Director Ejecutivo, quien lo someterá a conocimiento de la Junta Directiva General para su admisión. Caso de que la Junta Directiva General se negará a darle curso, los interesados podrán apelar de hecho ante la asamblea de representantes, presentándole al Director Ejecutivo el respectivo recurso por escrito dentro de los tres días hábiles siguientes a la comunicación de su rechazo. El Director Ejecutivo tendrá la obligación de ponerlo en conocimiento de la siguiente asamblea de representantes que se convoque, haciéndolo figurar obligadamente en el orden del día de esa reunión y en la convocatoria respectiva Dichos recursos no requieren formalidad alguna.

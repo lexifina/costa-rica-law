@@ -1,6 +1,1 @@
-ARTICULO 30.- Cuando la asamblea se convoque simultáneamente por
-segunda y tercera vez, de conformidad con lo que dispone el artículo 20 de
-la Ley Orgánica, deberá mediar entre la hora de cada convocatoria por lo
-menos treinta minutos. En todo caso, si pasados treinta minutos de la hora
-en que deba darse inicio a la reunión, no hubiere quórum, quedará sin
-efecto la convocatoria.
+ARTICULO 30.- Cuando la asamblea se convoque simultáneamente por segunda y tercera vez, de conformidad con lo que dispone el artículo 20 de la Ley Orgánica, deberá mediar entre la hora de cada convocatoria por lo menos treinta minutos. En todo caso, si pasados treinta minutos de la hora en que deba darse inicio a la reunión, no hubiere quórum, quedará sin efecto la convocatoria.

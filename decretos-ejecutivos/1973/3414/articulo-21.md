@@ -1,26 +1,6 @@
-ARTICULO 21.- Para solicitar el reconocimiento de la especialidad, se
-deberá cumplir con alguno de los siguientes requisitos:
-a) Poseer el grado académico de "maestría" o "doctorado", o un grado
-equivalente otorgado por la Universidad de Costa Rica, o de cualquier
-universidad o institución académica nacional o extranjera, reconocida por
-la Universidad de Costa Rica.
-b) Poseer un "diploma de especialidad académica" de la Universidad de
-Costa Rica o de cualquier universidad o institución académica, nacional o
-extranjera, reconocida por la Universidad de Costa Rica. Además contar con
-mínimo de tres años de práctica profesional en el campo de la
-especialidad, debidamente acreditada por una institución o entidad pública
-o privada competente.
-c) Tener como mínimo 8 años de práctica profesional o docente o una
-combinación de ambas, en un campo de especialidad debidamente aceptado por
-el Colegio Federado. Dicha práctica deberá ser certificada por la
-institución o entidad pública o privada competente a la cual el interesado
-le hubiere brindado sus servicios.
-En caso de que la experiencia la hubiese adquirido en su carácter
-personal ésta tendrá que ser comprobada y verificada debidamente por la
-Comisión de Credenciales, mediante el estudio y evaluación de los trabajos
-efectuados por el petente.
-Cuando se tratare de una experiencia en el campo docente, será tenido
-como requisito equivalente al plazo de que habla el primer párrafo de este
-inciso para su aceptación, la calidad de Catedrático o de Catedrático
-Asociado, conforme al Reglamento de Carrera Docente de la
-Universidad de Costa Rica.
+ARTICULO 21.- Para solicitar el reconocimiento de la especialidad, se deberá cumplir con alguno de los siguientes requisitos:
+a) Poseer el grado académico de "maestría" o "doctorado", o un grado equivalente otorgado por la Universidad de Costa Rica, o de cualquier universidad o institución académica nacional o extranjera, reconocida por la Universidad de Costa Rica.
+b) Poseer un "diploma de especialidad académica" de la Universidad de Costa Rica o de cualquier universidad o institución académica, nacional o extranjera, reconocida por la Universidad de Costa Rica. Además contar con mínimo de tres años de práctica profesional en el campo de la especialidad, debidamente acreditada por una institución o entidad pública o privada competente.
+c) Tener como mínimo 8 años de práctica profesional o docente o una combinación de ambas, en un campo de especialidad debidamente aceptado por el Colegio Federado. Dicha práctica deberá ser certificada por la institución o entidad pública o privada competente a la cual el interesado le hubiere brindado sus servicios.
+En caso de que la experiencia la hubiese adquirido en su carácter personal ésta tendrá que ser comprobada y verificada debidamente por la Comisión de Credenciales, mediante el estudio y evaluación de los trabajos efectuados por el petente.
+Cuando se tratare de una experiencia en el campo docente, será tenido como requisito equivalente al plazo de que habla el primer párrafo de este inciso para su aceptación, la calidad de Catedrático o de Catedrático Asociado, conforme al Reglamento de Carrera Docente de la Universidad de Costa Rica.

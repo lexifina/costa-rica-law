@@ -14,3 +14,4 @@ Reglamento Interior General Colegio Federado Ingenieros y Arquitectos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1973-12-13 | la propia norma |
+| 2 | 1973-12-13 | Decreto Ejecutivo 13072 (1981-10-29) |

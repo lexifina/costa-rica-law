@@ -1,11 +1,3 @@
 CAPITULO IX
 Del Régimen Disciplinario
-ARTICULO 77.- El régimen disciplinario se ejercerá de conformidad con
-lo que dispone el Capítulo XII de la Ley Orgánica. Si sugieren diferencias
-entre dos o más profesionales miembros o asociados del Colegio Federado,
-sin que las mismas hayan dado o den lugar a faltas contra la Etica
-Profesional, pero que causen problemas entre los miembros o rompan la
-armonía que debe imperar entre ellos, el Presidente de la Junta Directiva
-General, personalmente, o por medio de uno o varios delegados, deberá
-imponer sus buenos oficios con el fin de tratar de ponerle fin a esas
-diferencias y armonizar a los profesionales querellantes.
+ARTICULO 77.- El régimen disciplinario se ejercerá de conformidad con lo que dispone el Capítulo XII de la Ley Orgánica. Si sugieren diferencias entre dos o más profesionales miembros o asociados del Colegio Federado, sin que las mismas hayan dado o den lugar a faltas contra la Etica Profesional, pero que causen problemas entre los miembros o rompan la armonía que debe imperar entre ellos, el Presidente de la Junta Directiva General, personalmente, o por medio de uno o varios delegados, deberá imponer sus buenos oficios con el fin de tratar de ponerle fin a esas diferencias y armonizar a los profesionales querellantes.

@@ -1,5 +1,1 @@
-ARTICULO 49.- Los Colegios podrán establecer el calendario de
-asambleas generales ordinarias, en la forma en que lo consideren
-conveniente, pero deberán celebrar una asamblea durante el mes de octubre
-para el nombramiento de los nuevos directores y delegados a la asamblea de
-representantes.
+ARTICULO 49.- Los Colegios podrán establecer el calendario de asambleas generales ordinarias, en la forma en que lo consideren conveniente, pero deberán celebrar una asamblea durante el mes de octubre para el nombramiento de los nuevos directores y delegados a la asamblea de representantes.

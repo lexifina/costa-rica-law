@@ -1,5 +1,1 @@
-ARTICULO 74.- Con el objeto de difundir trabajos de mérito, de que
-sean autores miembros del Colegio Federado, podrá costear parcial o
-totalmente la primera edición de cualquier obra, al cual será propiedad
-del autor. Con ese fin podrá celebrar un concurso anual, de acuerdo con
-las normas que para ese objeto establezca la Junta Directiva General
+ARTICULO 74.- Con el objeto de difundir trabajos de mérito, de que sean autores miembros del Colegio Federado, podrá costear parcial o totalmente la primera edición de cualquier obra, al cual será propiedad del autor. Con ese fin podrá celebrar un concurso anual, de acuerdo con las normas que para ese objeto establezca la Junta Directiva General
