@@ -14,3 +14,4 @@ Establece Comisión de Traspaso de Poderes adscrita al Ministerio de Relaciones 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-23 | la propia norma |
+| 2 | 1998-04-29 | Decreto Ejecutivo 26992 (1998-04-29) |
