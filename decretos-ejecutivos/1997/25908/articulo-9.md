@@ -1,1 +1,0 @@
-Artículo 9°—El Consejo Directivo tendrá un Director Ejecutivo, nombrado por el Poder Ejecutivo, quien fungirá asimismo como Director de Pensiones y estará respaldado por el personal técnico, administrativo y profesional de esa Dirección. Asimismo, podrá contratar los asesores y consultores externos necesarios para el cumplimiento cabal de las funciones.

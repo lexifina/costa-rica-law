@@ -1,1 +1,0 @@
-Articulo 2°— Otorgar el carácter de órgano de máxima desconcentración de la Dirección Nacional de Pensiones, de tal suerte que pueda cumplir con las tareas legales conferidas con autonomía funcional y sujeción jerárquica únicamente en materia administrativa.

@@ -1,1 +1,0 @@
-Artículo 3°— Un Consejo Directivo de Pensiones, con funciones técnicas y administrativas, se encargará de dirigir la Dirección Nacional de Pensiones y cumplir con las funciones que leyes especiales le hayan atribuido al Ministerio de Trabajo y Seguridad Social y a la Dirección Nacional de Pensiones

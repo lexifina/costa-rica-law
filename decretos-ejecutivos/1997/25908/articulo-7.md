@@ -1,1 +1,0 @@
-Artículo 7°—Los miembros del Consejo estarán obligados a separarse del conocimiento de los asuntos sometidos a su consideración por los motivos establecidos en el Capítulo V del Titulo I del Código Procesal Civil.

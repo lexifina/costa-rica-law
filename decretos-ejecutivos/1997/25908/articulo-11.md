@@ -1,1 +1,0 @@
-Artículo 11—Se autoriza a todas las dependencias ministeriales a trasladar recursos al Consejo Directivo de Pensiones, de conformidad con las normas usuales de la gestión administrativa y presupuestaria.
