@@ -1,0 +1,1 @@
+Artículo 4°—Con el fin de elaborar el plan anual de adquisiciones, a partir del 15 de noviembre de cada año, la Unidad de Adquisiciones solicitará a las diferentes unidades información sobre los requerimientos de bienes y servicios específicos necesarios para sus actividades del año siguiente.

@@ -1,0 +1,1 @@
+Artículo 11.—Licitación Restringida y por Registro. Una vez analizadas las ofertas y efectuadas las recomendaciones del caso, la Comisión de Contratación Administrativa elevará su dictamen al conocimiento del Consejo Directivo para el respectivo acuerdo.
