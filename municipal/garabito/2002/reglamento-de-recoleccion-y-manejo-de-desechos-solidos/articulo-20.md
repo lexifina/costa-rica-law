@@ -1,0 +1,1 @@
+Artículo 20.—El transporte de los desechos sólidos voluminosos se hará por cuenta y responsabilidad de cada generador. Si se solicita con una semana de antelación, se podrá transportar por parte de maquinaria municipal, previo pago en la Tesorería Municipal según tarifa vigente en su momento.

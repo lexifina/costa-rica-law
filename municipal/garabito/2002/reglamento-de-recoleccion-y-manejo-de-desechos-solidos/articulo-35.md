@@ -1,0 +1,1 @@
+Artículo 35.—Todo usuario, ya sea residencial, comercial o gobierno, tienen la obligación de separar los desechos que generan como lo son cartón, papel, plástico, vidrio, latas, desechos orgánicos en bolsas plásticas selladas, recipientes plásticos o estañones de metal en buen estado de uso.

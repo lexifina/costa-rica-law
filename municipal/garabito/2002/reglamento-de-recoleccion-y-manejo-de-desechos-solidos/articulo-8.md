@@ -1,0 +1,1 @@
+Artículo 8º—Se establece como promedio de habitantes por unidad habitacional en el cantón de Garabito 3.7 personas (Dato tomado de los resultados generales del censo nacional de población y vivienda del 2000).

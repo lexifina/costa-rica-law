@@ -1,0 +1,1 @@
+Artículo 15.—Se toma como tarifa comercial 4, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura por semana que oscila entre 150 kilogramos y 300 kilogramos. En la tarifa comercial 4 el factor de generación oscila entre 15.1 y 20. Para la tarifa comercial 4 se toma como factor de ponderación 20.

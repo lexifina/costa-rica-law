@@ -1,0 +1,1 @@
+Artículo 14.—Se toma como tarifa comercial 3, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura por semana que oscila entre 90 kilogramos y 150 kilogramos. En la tarifa comercial 3 el factor de generación oscila entre 5.1 y 15. Para la tarifa comercial 3 se toma como factor de ponderación 15.

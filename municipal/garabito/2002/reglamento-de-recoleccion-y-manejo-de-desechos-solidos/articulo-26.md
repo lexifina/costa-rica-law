@@ -1,0 +1,1 @@
+Artículo 26.—Es deber de cada usuario acatar los lineamientos e indicaciones del guarda del relleno de voluminosos, para el adecuado uso y rendimiento del relleno. El incumplimiento a las indicaciones del caso, será acreedor a una multa, conforme al costo de remoción de los desechos dispuestos en otro lugar.

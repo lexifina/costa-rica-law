@@ -1,0 +1,1 @@
+Artículo 36.—Se establecerán días de recolección para lo que tiene que ver con los desechos reciclables como lo son cartón, plástico, vidrio, latas y otros, fuera del horario normal de recolección de basura orgánica.

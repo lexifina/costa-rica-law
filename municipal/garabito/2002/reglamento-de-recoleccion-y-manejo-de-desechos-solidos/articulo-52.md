@@ -1,0 +1,1 @@
+Artículo 52.—Tanto el chofer como los peones deben velar porque no se sobrepase la capacidad de carga del vehículo recolector, y no permitirán transportar basura en la tolva, en trayectos largos o en el viaje hacia el Relleno Sanitario.

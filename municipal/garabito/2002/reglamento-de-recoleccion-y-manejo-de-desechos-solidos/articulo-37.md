@@ -1,0 +1,1 @@
+Artículo 37.—Se estarán realizando campañas de reciclajes en zonas residenciales, comerciales, escuelas, colegios, clínicas, asociaciones comunales, y otros, para ir educando a los usuarios en el manejo de la basura.

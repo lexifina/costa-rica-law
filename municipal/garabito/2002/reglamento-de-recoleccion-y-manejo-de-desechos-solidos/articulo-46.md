@@ -1,0 +1,1 @@
+Artículo 46.—El lavado y limpieza del vehículo será responsabilidad del chofer, sin embargo los peones tienen la obligación de participar activamente en esta tarea, la que debe hacerse diariamente al final de la jornada de trabajo.
