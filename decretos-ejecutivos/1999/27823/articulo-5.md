@@ -1,0 +1,1 @@
+5°-En lo relativo al funcionamiento interno del CONSEJO TECNICO ASESOR EN MINERIA, se observarán las prescripciones de la Ley General de la Administración Pública en lo que atañe a los órganos colegiados.

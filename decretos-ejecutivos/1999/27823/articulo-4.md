@@ -1,0 +1,1 @@
+4°-EI CONSEJO TECNICO ASESOR definirá, una vez constituido, los mecanismos de funcionamiento interno que le permitan, en el menor tiempo posible, realizar los estudios contemplados en los incisos a), b) y d) del artículo 3° de este Decreto Ejecutivo.
