@@ -1,0 +1,1 @@
+Artículo 5° Cuando la gravedad de algún asunto lo exigiere, podrá aumentarse el personal del Consejo de Estado con los ciudadanos que el Presidente Provisorio tenga para a bien llamar para este objeto.
