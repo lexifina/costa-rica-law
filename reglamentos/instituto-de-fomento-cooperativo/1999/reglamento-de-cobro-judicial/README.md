@@ -14,3 +14,4 @@ Reglamento de Cobro Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-12 | la propia norma |
+| 2 | 2002-12-02 | Reglamento 3206 (2002-12-02) |
