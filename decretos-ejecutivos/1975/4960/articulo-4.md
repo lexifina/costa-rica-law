@@ -1,1 +1,1 @@
-Articulo 4°—La Procuraduría General de la República hará inscribir los terrenos del Estado ubicados dentro de esta Reserva en el Registro Público, como finca individualizada del Patrimonio Nacional.
+Articulo 4°—(Así derogado por el artículo 5° del decreto ejecutivo N° 20172 del 29 de octubre de 1990)

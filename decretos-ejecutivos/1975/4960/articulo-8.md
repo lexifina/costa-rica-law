@@ -1,1 +1,1 @@
-Artículo 8°—La administración de la Reserva Forestal que el presente decreto establece estará a cargo de un Comité integrado por tres representantes de la Municipalidad de San Ramón y tres del Centro Regional Universitario del citado cantón.
+Artículo 8°—(Así derogado por el artículo 5° del decreto ejecutivo N° 20172 del 29 de octubre de 1990)

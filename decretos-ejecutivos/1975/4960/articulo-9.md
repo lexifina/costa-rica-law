@@ -1,1 +1,1 @@
-Artículo 9°—El Comité eligirá de su seno un Presidente, un Vicepresidente, un Secretario y un Tesorero, fungiendo el resto de los miembros como vocales. Una vez hecho el nombramiento el Comité lo deberá comunicar al Ministerio de Agricultura y Ganadería, el cual se hará cargo de su instalación.
+Artículo 9°—(Así derogado por el artículo 5° del decreto ejecutivo N° 20172 del 29 de octubre de 1990)

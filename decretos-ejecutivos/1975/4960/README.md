@@ -14,3 +14,4 @@ Establece Reserva Forestal de San Ramón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-07-09 | la propia norma |
+| 2 | 1990-10-29 | Decreto Ejecutivo 20172 (1990-10-29) |

@@ -1,1 +1,1 @@
-Artículo 10.—El Comité establecerá sus procedimientos y normas de Trabajo y llevará a cabo sus actividades de conformidad con lo dispuesto por el artículo 29 de la Ley Forestal N° 4465 de 25 de noviembre de 1969.
+Artículo 10.—(Así derogado por el artículo 5° del decreto ejecutivo N° 20172 del 29 de octubre de 1990)

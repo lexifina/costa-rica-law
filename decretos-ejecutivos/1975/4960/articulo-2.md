@@ -1,1 +1,1 @@
-Artículo 2°—Se declaran inalienables, las reservas nacionales que se encuentren dentro de la anterior delimitación.
+Artículo 2°—(Así derogado por el artículo 5° del decreto ejecutivo N° 20172 del 29 de octubre de 1990)

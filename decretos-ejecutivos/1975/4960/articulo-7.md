@@ -1,2 +1,1 @@
-Artículo 7°—Las fincas inscritas de propiedad particular, así como aquellas amparadas por la posesión decenal establecidas dentro de los límites de la reserva, quedan automáticamente sometidas al Régimen Forestal.
-Las labores que en estas fincas se realicen deben contar con la autorización escrita de la Dirección General Forestal.
+Artículo 7°—(Así derogado por el artículo 5° del decreto ejecutivo N° 20172 del 29 de octubre de 1990)
