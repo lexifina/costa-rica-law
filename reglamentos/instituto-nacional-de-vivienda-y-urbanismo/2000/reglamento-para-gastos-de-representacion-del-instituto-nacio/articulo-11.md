@@ -1,0 +1,1 @@
+Artículo 11.—Para que el pago de gastos de representación proceda a funcionarios distintos a los dispuestos en el Artículo 3° de este Reglamento, la delegación deberá haber sido autorizada de manera expresa y formal con anterioridad a la realización de la atención por el funcionario delegante y además deberá firmar la liquidación que se presente.

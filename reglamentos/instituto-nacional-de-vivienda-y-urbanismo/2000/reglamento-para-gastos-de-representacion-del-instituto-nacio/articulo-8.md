@@ -1,0 +1,1 @@
+Artículo 8°—Los funcionarios expresamente autorizados en el presente reglamento para incurrir en gastos de representación, deberán hacer uso de dichos fondos en apego estricto a lo dispuesto en el Artículo 4° de este Reglamento y siempre dentro de los límites de racionalidad y hasta por la partida presupuestaria asignada para ese concepto.

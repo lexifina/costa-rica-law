@@ -1,0 +1,1 @@
+Artículo 9°—Para cubrir un gastos de representación, el Departamento Financiero podrá emitir un cheque como adelanto, el cual se contabilizará como una "Cuenta a Cobrar a Funcionarios", a nombre del funcionario que tendrá a cargo la atención.

@@ -1,0 +1,1 @@
+Artículo 7°—Los gastos de representación generados en el exterior se regirán por lo que dispone al respecto el Reglamento de Gastos de Viaje y Transportes de la Contraloría General de la República, que se encuentre vigente.

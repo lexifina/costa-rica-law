@@ -1,0 +1,1 @@
+Artículo 6°—Cuando el funcionario al que expresamente este reglamento le otorga la facultad de incurrir en tal orden de gastos, delegue la representación del mismo, excepción hecha del Subgerente quien no está autorizado a delegar la representación, deberá hacer la liquidación por escrito autorizando el pago, además, deberá firmar los justificados respectivos.

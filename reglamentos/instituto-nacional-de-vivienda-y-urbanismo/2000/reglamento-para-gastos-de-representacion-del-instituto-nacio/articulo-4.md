@@ -1,0 +1,1 @@
+Artículo 4°—Están autorizados para incurrir en gastos de representación el Presidente Ejecutivo, el Gerente, el Subgerente y la Junta Directiva, quienes a su vez podrán delegar la representación del acto en otro funcionario, pero no así la autorización del gasto, con excepción hecha del Subgerente quien no puede delegar su actuación.

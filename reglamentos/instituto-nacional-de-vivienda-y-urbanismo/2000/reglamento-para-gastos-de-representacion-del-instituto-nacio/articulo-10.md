@@ -1,0 +1,1 @@
+Artículo 10.—Una vez realizada la actividad, se procede a liquidar la cuenta a cobrar a funcionarios, mediante la presentación de una liquidación en los tres días hábiles posteriores de realizado el evento.

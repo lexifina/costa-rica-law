@@ -1,0 +1,1 @@
+Artículo 2°—Gasto de representación es aquella erogación en que incurren determinados funcionarios con ocasión del ejercicio de su cargo, con el objeto de brindar atención de carácter oficial a personas o instituciones ajenas a la entidad que otorga la atención.
