@@ -1,0 +1,1 @@
+Artículo 7°- A partir de la vigencia del presente decreto, no se recibirán ni autorizarán nuevas solicitudes de hectáreas para acogerse a los beneficios del Certificado de Abono Forestal, en sus diferentes modalidades, con excepción de las mencionadas en el artículo primero de este decreto.
