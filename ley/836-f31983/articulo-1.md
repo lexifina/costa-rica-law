@@ -1,4 +1,6 @@
+(Derogado)
 N° 836
+(Esta norma fue derogada por el artículo 6° de la ley N° 1902 del 9 de julio de 1955, "Creación de un servicio para la obtención de documentos de identidad para los ciudadanos que deban proveerse de ellos y opción y naturalización para elementos de nacionalidad extranjera nacidos en la República y hijos de costarricenses nacidos fuera del país")
 LA JUNTA FUNDADORA DE LA SEGUNDA REPUBLICA
 Considerando:
 1°-Que el articulo 5°, párrafo 3°, de la ley numero 31 del 10 de diciembre de 1934, prohibe que se ocupen gentes de color en los trabajos de producción y explotación de la industria bananera en la Zona del Pacifico.

@@ -1,0 +1,1 @@
+Artículo 3º.- El Registro Civil, por medio de su Sección de Opciones y Naturalizaciones, y de las oficinas que establecerá el Tribunal en los lugares en donde lo estime conveniente, prestarán a los interesados los servicios tendientes a tramitar la Opciones y Naturalizaciones en su caso, así como también los documentos de identificación.
