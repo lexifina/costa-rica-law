@@ -1,1 +1,0 @@
-Transitorio II.- (Art. 65).- La impresión digital se exigirá como requisito esencial de la cédula de identidad desde el momento en que así lo ordene el Tribunal Supremo de Elecciones, una vez instalada en forma la Sección respectiva del Registro.

@@ -1,1 +1,0 @@
-Artículo 24.- No se admitirá en el Registro declaración de paternidad de los hijos nacidos fuera del matrimonio, salvo cuando el padre o la madre, personalmente o por apoderado bastante, hicieren esa declaración y la firmaren.
