@@ -1,0 +1,2 @@
+Transitorio II.- Lo dispuesto en el artículo 102 de esta ley no se aplicará a las personas físicas o jurídicas que estén debidamente autorizadas como representantes de casas extranjeras y registradas a l fecha en el Ministerio de Economía, Industria y Comercio y que tengan actualmente representación de productos farmacéuticos.
+Casa Presidencial.-San José, a los treinta días del mes de octubre de mil novecientos setenta y tres.

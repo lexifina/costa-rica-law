@@ -1,4 +1,2 @@
-Artículo 33.- Los familiares del enfermo mental o del toxicómano,
-sometido a tratamiento podrán requerir atención médico-social de los
-servicios de salud, con sujeción a las normas reglamentarias pertinentes,
-para los miembros del hogar del paciente.
+ARTICULO 33.- Los familiares de la persona con trastornos emocionales severos o con deficiencia intelectual, física y sensorial o los familiares del toxicómano sometido a tratamiento, podrán requerir atención médico- social de los servicios de salud, con sujeción a las normas reglamentarias para los miembros del hogar del paciente.
+(Así reformado por el artículo 74 (actual 87) de la Ley sobre Igualdad de Oportunidades para las Personas con Discapacidad Nº 7600 de 2 de mayo de 1996)

@@ -1,4 +1,4 @@
-Artículo 109.- Se entiende por medicamento deteriorado, para los
+ARTICULO 109.- Se entiende por medicamento deteriorado, para los
 efectos legales y reglamentarios, aquel que por cualquier causa ha
 perdido o disminuido su seguridad, potencia o pureza.
 Se presume de pleno derecho el deterioro, en aquellos medicamentos

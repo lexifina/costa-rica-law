@@ -1,4 +1,4 @@
-Artículo 96.- Todo establecimiento farmacéutico requiere de la
+ARTICULO 96.- Todo establecimiento farmacéutico requiere de la
 regencia de un farmacéutico para su operación, a excepción de los
 botiquines y de los laboratorios farmacéuticos que se dediquen
 exclusivamente a la fabricación de cosméticos que no contengan

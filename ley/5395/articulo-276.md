@@ -1,4 +1,4 @@
-Artículo 276.- Sólo con permiso del Ministerio podrán las personas
+ARTICULO 276.- Sólo con permiso del Ministerio podrán las personas
 naturales o jurídicas hacer drenajes o proceder a la descarga de residuos
 o desechos sólidos o líquidos u otros que puedan contaminar el agua
 superficial, subterránea, o marítima, ciñéndose estrictamente a las

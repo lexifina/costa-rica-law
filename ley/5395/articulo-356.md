@@ -1,4 +1,4 @@
-Artículo 356.- Se declaran medidas especiales, para los efectos
+ARTICULO 356.- Se declaran medidas especiales, para los efectos
 señalados en el artículo anterior, la retención, el retiro del comercio o
 de la circulación, el decomiso, la desnaturalizació y la destrucción de
 bienes materiales, la demolición y desalojo de viviendas y de otras

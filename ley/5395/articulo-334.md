@@ -1,4 +1,4 @@
-Artículo 334.- Toda persona queda obligada a permitir la en entrada
+ARTICULO 334.- Toda persona queda obligada a permitir la en entrada
 de los funcionarios de salud debidamente identificados a su domicilio o
 edificio de su propiedad o cuidado, para verificar si hay animales
 nocivos, o condiciones para su reproducción y persistencia, o para

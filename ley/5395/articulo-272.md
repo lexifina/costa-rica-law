@@ -1,4 +1,4 @@
-Artículo 272.- Las personas o empresas particulares que se ocupen de
+ARTICULO 272.- Las personas o empresas particulares que se ocupen de
 abastecer de agua para la bebida o para usos domésticos a una población
 residencias aisladas, a establecimientos mineros o industriales o a
 cualquier lugar o local destinado a la permanencia transitoria de

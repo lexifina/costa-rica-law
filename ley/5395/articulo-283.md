@@ -1,4 +1,4 @@
-Artículo 283.- Queda prohibida la recuperación de desechos y
+ARTICULO 283.- Queda prohibida la recuperación de desechos y
 residuos sólidos en lugares no aprobados por la autoridad de salud para
 tales efectos.
 Las personas naturales o jurídicas que se ocupen de la

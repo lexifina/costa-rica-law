@@ -1,4 +1,4 @@
-Artículo 241.- Queda prohibido el expendio y suministro de
+ARTICULO 241.- Queda prohibido el expendio y suministro de
 sustancias o productos tóxicos o de sustancias o productos u objetos
 peligrosos u otros declarados como tales por el Ministerio sin cumplir
 estrictamente las disposiciones reglamentarias pertinentes y en especial

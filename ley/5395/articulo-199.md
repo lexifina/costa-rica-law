@@ -1,4 +1,4 @@
-Artículo 199.- Para los efectos legales y reglamentarios se estimará
+ARTICULO 199.- Para los efectos legales y reglamentarios se estimará
 que un alimento es legalmente susceptible de ser destinado y entregado al
 consumo de la población cuando corresponda a la designación, a la
 definición y a las características generales, organolépticas, físicas,

@@ -1,4 +1,1 @@
-Artículo 79.- Podrán ser dedicados a fines de investigación
-científica y estudios anatomopatológicos los cadáveres de las personas
-fallecidas en establecimientos asistenciales que no hayan sido reclamados
-dentro del plazo reglamentario.
+ARTICULO 79.- Podrán ser dedicados a fines de investigación científica y estudios anatomopatológicos los cadáveres de las personas fallecidas en establecimientos asistenciales que no hayan sido reclamados dentro del plazo reglamentario.

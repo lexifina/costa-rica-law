@@ -1,4 +1,4 @@
-Artículo 47.- Se presume de derecho que una persona ejerce
+ARTICULO 47.- Se presume de derecho que una persona ejerce
 ilegalmente las profesiones a que se refiere el artículo 40 cuando sin
 estar incorporado al respectivo colegio o careciendo de la licencia, en
 su caso, tenga en su poder instrumental, equipo o material requerido para

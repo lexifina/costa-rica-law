@@ -1,4 +1,4 @@
-Artículo 214.- La recolección y almacenamiento de los productos
+ARTICULO 214.- La recolección y almacenamiento de los productos
 aludidos en el artículo anterior, deberá ser hecha mediante técnicas y
 equipos sanitarios y adoptando las precauciones necesarias que el
 Ministerio disponga para evitar la contaminación de los productos o

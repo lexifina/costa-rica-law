@@ -1,4 +1,4 @@
-Artículo 263.- Queda prohibida toda acción, práctica u operación que
+ARTICULO 263.- Queda prohibida toda acción, práctica u operación que
 deteriore el medio ambiente natural o que alterando la composición o
 características intrínsecas de sus elementos básicos, especialmente el
 aire, el agua y el suelo, produzcan una disminución de su calidad y

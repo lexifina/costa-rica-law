@@ -1,4 +1,4 @@
-Artículo 302.- Ningún establecimiento industrial podrá funcionar si
+ARTICULO 302.- Ningún establecimiento industrial podrá funcionar si
 constituye un elemento de peligro, insalubridad o incomodidad para la
 vecindad, ya sea por las condiciones de manutención del local en que
 funciona, por la forma o sistemas que emplea en la realización de sus

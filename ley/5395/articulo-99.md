@@ -1,4 +1,4 @@
-Artículo 99.- Los propietarios o administradores de los laboratorios
+ARTICULO 99.- Los propietarios o administradores de los laboratorios
 que se dediquen a la elaboración o manipulación de medicamentos de origen
 biológico o inyectables deberán acreditar, también, que disponen de los
 elementos necesarios para realizar todas las pruebas que aseguren la

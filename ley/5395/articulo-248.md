@@ -1,4 +1,4 @@
-Artículo 248.- Ninguna persona podrá instalar o utilizar aparatos o
+ARTICULO 248.- Ninguna persona podrá instalar o utilizar aparatos o
 equipos destinados a la producción de luz ultravioleta y de radiaciones
 ionizantes o sustancias, naturales o artificialmente radiactivas, en la
 industria o en la investigación industrial o científica no médica sin

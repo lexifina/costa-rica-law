@@ -1,4 +1,4 @@
-Artículo 296.- Todo propietario o administrador de una construcción
+ARTICULO 296.- Todo propietario o administrador de una construcción
 o edificio será responsable de que el inmueble cuente con los medios y
 sistemas para evitar descargas, emisiones o emanaciones que causen o
 contribuyan a la contaminación atmosférica.

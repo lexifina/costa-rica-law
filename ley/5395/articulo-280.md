@@ -1,4 +1,4 @@
-Artículo 280.- El servicio de recolección, acarreo y disposición de
+ARTICULO 280.- El servicio de recolección, acarreo y disposición de
 basuras, así como la limpieza de caños, acequias, alcantarillas, vías y
 parajes públicos estará a cargo de las municipalidades las cuales podrán
 realizarlo por administración o mediante contratos con empresas o

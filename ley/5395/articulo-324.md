@@ -1,4 +1,4 @@
-Artículo 324.- Toda persona natural o jurídica que opere piscinas,
+ARTICULO 324.- Toda persona natural o jurídica que opere piscinas,
 sitios de recreación, similares, bajo techo o al aire libre, baños
 públicos o establecimientos, crenoterápicos, deberá requerir permiso
 previo del Ministerio para su instalación.

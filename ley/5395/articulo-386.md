@@ -1,4 +1,4 @@
-Artículo 386.- Los delitos contra la salud, creados por esta ley o
+ARTICULO 386.- Los delitos contra la salud, creados por esta ley o
 por leyes especiales, serán de conocimiento de los Tribunales Penales
 correspondientes, según las reglas que sobre jurisdicción y competencias
 en materia penal contengan las leyes respectivas.

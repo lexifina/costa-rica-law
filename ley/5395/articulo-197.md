@@ -1,4 +1,4 @@
-Artículo 197.- Se entiende por alimento y por producto alimenticio,
+ARTICULO 197.- Se entiende por alimento y por producto alimenticio,
 para los efectos legales y reglamentarios, toda sustancia o producto
 natural o elaborado, que al ser ingerido por el hombre proporcione al
 organismo los elementos necesarios para su mantenimiento, desarrollo y

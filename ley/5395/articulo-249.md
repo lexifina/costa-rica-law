@@ -1,4 +1,4 @@
-Artículo 249.- Las personas naturales o jurídicas que transporten
+ARTICULO 249.- Las personas naturales o jurídicas que transporten
 sustancias radiactivas en forma principal o incidental a sus actividades,
 deberán realizarlo en envases, embalajes y vehículos apropiados,
 utilizando el símbolo internacional que advierte la presencia de

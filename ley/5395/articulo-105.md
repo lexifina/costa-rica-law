@@ -1,4 +1,4 @@
-Artículo 105.- Los medicamentos pueden ser presentados para su uso,
+ARTICULO 105.- Los medicamentos pueden ser presentados para su uso,
 comercio, distribución y suministro con nombre genérico o con nombre
 registrado.
 Son de nombre genérico aquellos medicamentos puros, presentados en

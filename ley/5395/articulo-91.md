@@ -1,4 +1,4 @@
-Artículo 91.- Para establecer y operar bancos de sangre los
+ARTICULO 91.- Para establecer y operar bancos de sangre los
 interesados deben declararla al inscribirse en el Ministerio, la
 naturaleza y técnica de los procesos que proponen realizar y acompañar
 los antecedentes certificados por el Colegio de Microbiólogos Químicos
