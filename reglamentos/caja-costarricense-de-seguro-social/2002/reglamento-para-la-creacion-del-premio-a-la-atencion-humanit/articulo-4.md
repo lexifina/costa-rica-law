@@ -1,0 +1,1 @@
+Artículo 4º—El premio consistirá en recibir a la persona premiada durante una sesión de la Junta Directiva, en la cual se le dará un reconocimiento simbólico. Se colocará también una placa donde la Junta Directiva de la CCSS determine.

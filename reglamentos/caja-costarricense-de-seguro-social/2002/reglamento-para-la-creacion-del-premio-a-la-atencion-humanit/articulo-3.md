@@ -1,0 +1,1 @@
+Artículo 3º—El propósito de dicha comisión será el rendir una recomendación a la Junta Directiva con el propósito de otorgar el Premio a la Atención Humanitaria para los Trabajadores de la Caja Costarricense de Seguro Social que hayan participado en algún acto extraordinario en la prestación del servicio de salud.

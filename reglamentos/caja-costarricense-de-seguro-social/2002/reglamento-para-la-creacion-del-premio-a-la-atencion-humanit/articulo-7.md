@@ -1,0 +1,1 @@
+Artículo 7º—Se entenderá por acto extraordinario cualquier acción con características de heroicidad hecha por cualquier miembro del personal de la Institución, que haya servido de manera ejemplar y notoria para mejorar de manera extraordinaria la prestación del servicio de salud.

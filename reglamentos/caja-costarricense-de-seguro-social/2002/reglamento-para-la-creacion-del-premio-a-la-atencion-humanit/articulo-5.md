@@ -1,0 +1,1 @@
+Artículo 5º—La comisión analizará toda propuesta que se le haya hecho llegar por escrito o que sus miembros propongan para que se analice y valore todo tipo de acto heroico hecho por cualquier miembro del personal de la Caja Costarricense de Seguro Social durante los once meses anteriores a la fecha de integración de la comisión.
