@@ -14,3 +14,4 @@ Regula la Utilización de Anzuelos Circulares con un Ángulo no mayor a cinco gr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-04-25 | la propia norma |
+| 2 | 2003-10-24 | Acuerdo 439 (2003-10-24) |
