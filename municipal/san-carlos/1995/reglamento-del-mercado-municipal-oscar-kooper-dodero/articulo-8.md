@@ -1,0 +1,1 @@
+Artículo 8°—De toda adjudicación se dejará constancia en un acta que será firmada por el adjudicatario, el administrador y el Ejecutivo Municipal, conteniendo toda la información necesaria sobre el acto ejecutado.

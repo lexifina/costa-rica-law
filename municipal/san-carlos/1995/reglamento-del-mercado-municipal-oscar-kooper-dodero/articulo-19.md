@@ -1,0 +1,1 @@
+Artículo 19.—En caso de daños o reparaciones en el edificio del Mercado, los adjudicatarios están en la obligación de facilitar la entrada al puesto, a los operarios para que realicen las operaciones del caso.

@@ -1,0 +1,2 @@
+Artículo 18.—Queda terminantemente prohibido al adjudicatario introducir mejoras a los puestos, modificar sus instalaciones sin previo permiso escrito del Concejo Municipal y la obtención y pago del permiso de construcción que establece el artículo N° 70 de la Ley de Planificación Urbana.
+Toda mejora que se introduzca pasará a ser propiedad de la Municipalidad. No se permitirá la edificación de segundas plantas.

@@ -1,0 +1,1 @@
+Artículo 12.—Los locales ubicados en la segunda planta y planta baja externa del mercado serán destinados únicamente al comercio u oficinas, no se permitirán en ellos la instalación de cocinas eléctricas, de canfín, gas u otro tipo destinados a preparar alimentos y tampoco se permitirá que esos locales sean utilizados para habitación temporal o permanente.

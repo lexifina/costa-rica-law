@@ -1,0 +1,1 @@
+Artículo 11.—Solamente serán reconocidos como arrendatarios permanentes aquellas personas favorecidas con las adjudicaciones, que hayan firmado el contrato respectivo y que se encuentren al día en el pago del valor del arrendamiento.

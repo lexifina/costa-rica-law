@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE SAN CARLOS
+Artículo 1°—La Municipalidad del Cantón de San Carlos, de conformidad con las atribuciones que le confieren los artículos cuarto, inciso cuatro, artículos sexto y sétimo, inciso uno, del Código Municipal, dicta el presente reglamento de organización y funcionamiento del Mercado Municipal Osear Kooper Dodero, que será administrado por la Municipalidad con sujeción a las siguientes disposiciones:

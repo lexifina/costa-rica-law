@@ -1,0 +1,1 @@
+Artículo 5°—La Municipalidad coordinará y resolverá todos los asuntos pertinentes a través del Ejecutivo Municipal, a cuya jefatura estará adscrita la administración del Mercado Municipal, tomando en cuenta la asociación de arrendatarios del Mercado Municipal para la toma de decisiones.

@@ -1,0 +1,1 @@
+Artículo 15.—Los arrendatarios de puestos permanentes no podrán entregar o dar el puesto por ningún título a otra persona. Excepto los casos de cesiones previamente autorizados con el cumplimiento de los requisitos exigidos.

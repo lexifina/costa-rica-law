@@ -1,0 +1,4 @@
+CAPITULO IV
+Del funcionamiento de los locales
+Artículo 13.—Todo arrendatario podrá ocupar los empleados que estime necesarios para la buena marcha del puesto. Los empleados deberán cumplir con los requisitos establecidos en los incisos b) y c) del artículo 10 de este reglamento y en caso de ser menor de edad, deberá presentar el permiso correspondiente del Patrono Nacional de la Infancia. El arrendatario acompañará junto con su solicitud de registro toda la documentación solicitada a efecto de que la oficina de administración del mercado le provea de un carné, en el que hará constar el nombre del empleado, número de asegurado, clase de puesto que lo acredita, y en él aparecerá su retrato.
+Asimismo al arrendatario se le dará un carné que además de las características anteriores llevará el número y clase del local.

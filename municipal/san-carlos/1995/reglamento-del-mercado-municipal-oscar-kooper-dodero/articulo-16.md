@@ -1,0 +1,1 @@
+Artículo 16.—Ningún arrendatario de puestos permanentes o transitorios podrán vender o expender artículos o mercancías diferentes a aquellas para las cuales les fue adjudicado la o las patentes. La infracción a esta disposición dará lugar a la terminación o cancelación del contrato.
