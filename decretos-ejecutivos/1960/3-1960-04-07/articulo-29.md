@@ -1,0 +1,1 @@
+Artículo 29-Una vez calificada la conveniencia económico-social de la industria, la Comisión Industrial recomendará en el dictamen los beneficios de los artículos 19 o 20 que pueden concederse, así como también los plazos para el disfrute de cada uno de ellos.

@@ -1,0 +1,2 @@
+Artículo 48.-El período de disfrute de los beneficios contractuales que se concedan a industrias establecidas se indicará en el contrato, el cual comenzará a regir a partir de la fecha en que éste se publique debidamente aprobado en el Diario Oficial "La Gaceta".
+Ninguno de los beneficios contractuales se concederá por un período superior a diez años que se contarán a partir de las fechas de iniciación de su disfrute que se consignen en el contrato.

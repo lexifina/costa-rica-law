@@ -1,0 +1,1 @@
+Artículo 20.-Desde la fecha de presentación de una denuncia y hasta tanto no se haya concluido la investigación respectiva, el Ministerio de Economía y Hacienda podrá impedir el desalmacenaje de la mercadería objeto de la denuncia. ,

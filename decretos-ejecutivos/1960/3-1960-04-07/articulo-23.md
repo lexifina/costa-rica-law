@@ -1,0 +1,1 @@
+Artículo 23. -Cuando el Ministerio aplique cualquiera de esas dos medidas a artículos importados a precios de "dumping", ambas se harán efectivas no sólo para futuras importaciones, sino también para la partida o partidas objeto de la denuncia que se encuentren en Aduanas, sin tomar en cuenta la fecha en que hubiesen ingresado al país.

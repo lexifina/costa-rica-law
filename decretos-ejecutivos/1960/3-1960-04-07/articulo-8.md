@@ -1,0 +1,1 @@
+Artículo 8°-El quórum de la Comisión Consultiva estará formado por cinco miembros y sus acuerdos se tomarán por mayoría absoluta de votos. Solamente poc1rán tomarse acuerdos firmes por unanimidad de votos de los presentes.

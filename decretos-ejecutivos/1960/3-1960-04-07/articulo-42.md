@@ -1,0 +1,1 @@
+Artículo 42.-Una vez suscrito el contrato, refrendado por la Contraloría General de la República y publicado en el Diario Oficial "La Gaceta", para efectos de aplicación de 10 que a los diversos organismos corresponda, la Dirección de Industrias con nota les enviará copia a cada uno.

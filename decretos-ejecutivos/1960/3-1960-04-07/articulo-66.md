@@ -1,0 +1,1 @@
+Artículo 66.-La Contaduría Mayor deberá pronunciarse para cada caso dentro de los noventa días siguientes a la fecha de recibo de la documentación mencionada en los artículos 60, 61 y 62 de este Reglamento.

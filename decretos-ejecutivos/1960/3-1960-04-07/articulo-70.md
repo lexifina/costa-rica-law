@@ -1,0 +1,1 @@
+Artículo 70.-Para conceder a industrias mineras dedicadas a la explotación de yacimientos auríferos, las franquicias aduaneras especificadas en los apartes a), b) y c) del artículo 1° de la Ley se aplicarán las disposiciones contenidas en este Reglamento para el otorgamiento de tales beneficios a industrias nuevas o establecidas.

@@ -1,0 +1,1 @@
+Artículo 40. -Con conocimiento del dictamen, para efectos de la Resolución respectiva, el Ministerio de Agricultura e Industrias consultará el parecer del Ministerio de Economía y Hacienda en 10 que le corresponda.

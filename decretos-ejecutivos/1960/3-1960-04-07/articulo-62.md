@@ -1,0 +1,1 @@
+Artículo 62.-La suma a acreditar se calculará sobre la cantidad neta de las materias primas, envases y material de empaque empleados en elaboración del producto y se autorizará únicamente sobre aquellas que hubieren pagado los derechos que señala la Ley N° 1738 de 31 de marzo de 1954 (Arancel de Aduanas) y sus reformas.

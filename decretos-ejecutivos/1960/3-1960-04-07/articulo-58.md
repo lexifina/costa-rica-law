@@ -1,0 +1,1 @@
+Artículo 58.-Todo fabricante o exportador de artículos de producción nacional que se acoja a las ventajas que concede el artículo 18 del Arancel de Aduanas, Ley N° 1738 de 31 de marzo de 1954, reformado por el artículo 48 de la Ley de Protección y Desarrollo Industrial, deberá presentar la correspondiente solicitud para su trámite a la Contaduría Mayor de la República.

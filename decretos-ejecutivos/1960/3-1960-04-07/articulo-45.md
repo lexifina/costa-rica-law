@@ -1,0 +1,1 @@
+Artículo 45 .-Para cada empresa que mediante un contrato disfrute de los beneficios de la Ley, la Dirección de Industrias llevará un expediente con la documentación y correspondencia, y por separado un registro con la anotación clasificada de los beneficios de que va haciendo uso.

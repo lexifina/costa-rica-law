@@ -1,0 +1,8 @@
+Artículo 33.-Las solicitudes de los beneficios que el Poder Ejecutivo puede conceder a industrias nuevas y a industrias establecidas, enumerados en los artículos 19 y 20 de la Ley, deben ser presentadas a la Dirección de Industrias con la siguiente información:
+Nombre o razón social del solicitante;
+Definición de la actividad industrial con indicación de los artículos o servicios que produce o se propone producir y el volumen de la producción de la empresa ;
+Beneficios que solicita y obligaciones que ofrece cumplir;
+Fecha aproximada en que iniciará la instalación o ampliación de la planta y fecha en que se compromete a iniciar la producción, ya se trate de la instalación de una nueva planta o de la ampliación de una planta establecida;
+Indicación del lugar donde se establecerá la planta y cualquiera otra información que estime conveniente.
+La Dirección de Industrias anotará al pie la hora y fecha de recibo y en el término de los tres días siguientes mandará a publicar en el Diario Oficial "La Gaceta" por cuenta del interesado, un aviso concediendo quince días hábiles a partir de la fecha de la publicación para que quienes se consideren lesionados en sus derechos, presenten por escrito su oposición.
+El aviso contendrá: la fecha de recibo de -la solicitud, el nombre del solicitante, clase de industria y objetivos de la petición. Expirado el término de quince días hábiles no se recibirán escritos de oposición. Durante el término señalado para oír oposiciones el solicitante deberá presentar la información de carácter confidencial que se enumera en el "Cuestionario para la Evaluación de Proyectos Industriales" que al efecto suministrará la Dirección de Industrias.

@@ -1,0 +1,1 @@
+Artículo 44.-La Dirección de Industrias, una vez comprobado el derecho de la libre importación de los bienes de que se trate, transcribirá en lo conducente, la solicitud al Ministerio de Economía y Hacienda con la correspondiente recomendación razonada.

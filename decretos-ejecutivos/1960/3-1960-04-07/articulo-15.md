@@ -1,0 +1,1 @@
+Artículo 15. -La persona o entidad que solicita la suspensión de la aplicación de los impuestos que señala el artículo 12, deberá suministrar ante los or~anismos dichos la información necesaria para que comprueben la desaparición de los factores que la originaron.

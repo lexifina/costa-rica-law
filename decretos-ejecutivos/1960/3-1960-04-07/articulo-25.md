@@ -1,0 +1,1 @@
+Artículo 25.-El Ministerio de Relaciones Exteriores prestará, por medio de su Cuerpo Diplomático y Consular, la colaboración necesaria al Ministerio de Economía y Hacienda para obtener los datos que sean necesarios para comprobar la existencia de prácticas de comercio que perjudiquen a la industria nacional. .

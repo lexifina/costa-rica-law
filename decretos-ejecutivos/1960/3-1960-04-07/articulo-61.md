@@ -1,0 +1,3 @@
+Artículo 61.-Cuando se trate de ventas locales a quienes disfrutan de exención de derechos de aduana para la importación de los productos objeto de la venta, se cumplirán los mismos trámites indicados en este Reglamento en lo que sean aplicables y se acompañará además lo siguiente:
+a) Un documento que compruebe que el destinatario de la mercancía de producción nacional disfruta del derecho de libre importación de tales artículos; y
+b) Una copia original de la factura de venta con la declaración jurada del comprador de haberse recibido la mercadería de conformidad con lo consignado en dicho documento.

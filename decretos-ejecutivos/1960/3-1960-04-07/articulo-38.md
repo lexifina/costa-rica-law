@@ -1,0 +1,1 @@
+Artículo 38.-Una vez rendidas las garantías a satisfacción del Ministerio de Agricultura e Industrias, éste lo comunicará a la Comisión Industrial, para que proceda a comunicar a la Dirección de Industrias los estudios que debe realizar.

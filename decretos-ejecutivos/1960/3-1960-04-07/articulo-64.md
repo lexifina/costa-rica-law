@@ -1,0 +1,1 @@
+Artículo 64.-Una vez efectuados los trámites anteriormente señalados y si todo estuviere correcto, la Contaduría Mayor remitirá la solicitud con su informe al Ministerio de Economía y Hacienda para su sanción definitiva. Si ésta fuera favorable, las sumas se acreditarán hechas las deducciones que señala el artículo 18 del Arancel de Aduanas a que se refiere este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 6°-Los miembros de la Comisión Industrial antes de entrar en funciones deberán juramentarse ante el Ministerio de Agricultura e Industrias y actuarán de conformidad con las disposiciones aquí contempladas y las que establezca su Reglamento Interno.

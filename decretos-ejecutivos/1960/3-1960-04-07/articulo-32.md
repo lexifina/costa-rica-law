@@ -1,0 +1,1 @@
+Artículo 32. -La exoneración de los impuestos municipales que se indican en los inciso s f) y g) del artículo 19 de la Ley deberá ser tramitada por los interesados ante la Municipalidad del cantón donde se ubique la industria.

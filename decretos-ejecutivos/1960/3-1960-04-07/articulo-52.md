@@ -1,0 +1,1 @@
+Artículo 52.-Para efectos de preferencia en la concesión de los beneficios que indica el artículo 32 de la Ley, en el caso de Compañías o Sociedades, se considerarán costarricenses aquellas que estuvieren domiciliadas y organizadas de conformidad con la Ley de Sociedades Comerciales del país.

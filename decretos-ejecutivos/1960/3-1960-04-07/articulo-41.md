@@ -1,0 +1,1 @@
+Artículo 41.-De ser favorable la Resolución, la Dirección de Industrias elaborará el proyecto de contrato, el cual para efectos de 10 que dispone el artículo 28 de la Ley será enviado a la Contraloría General de la República.

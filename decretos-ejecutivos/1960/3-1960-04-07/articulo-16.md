@@ -1,0 +1,1 @@
+Artículo 16.-Cuando se solicite protección arancelaria sobre artículos importados similares o sucedáneo s a los de producción nacional, la petición deberáacompañarse con una certificación del Comité tle Normas que indique que el artículo de producción nacional reune los requisitos mínimos exigibles de calidad.
