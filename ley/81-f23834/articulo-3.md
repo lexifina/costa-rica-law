@@ -1,0 +1,1 @@
+Art 3.- Se ha por Magistrado Fiscal para la Corte Superior de Justicia al Ciudadano Licenciado Agustin Gutierrez, y por suplente de aquel Tribunal, al Ciudadano Rafael Moya igualmente electos por la Asamblea.
