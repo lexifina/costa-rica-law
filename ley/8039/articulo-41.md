@@ -1,0 +1,1 @@
+Artículo 41.—Decomiso y destrucción de mercancías en sentencia civil. A petición de parte o de oficio, la autoridad judicial podrá dictar, interlocutoriamente o en sentencia, el decomiso de las mercancías falsificadas o ilegales objeto de la demanda, y su destrucción solo podrá dictarse en sentencia.

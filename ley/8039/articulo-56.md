@@ -1,0 +1,1 @@
+Artículo 56.—Impresión de un número superior de ejemplares de una obra. Será sancionado con prisión de uno a tres años el editor o impresor que reproduzca un número de ejemplares superior al número convenido con el autor de la obra, de modo que pueda resultar perjuicio.

@@ -1,0 +1,1 @@
+Artículo 32.—Recursos contra decisiones del Registro Nacional de Derechos de Autor y Derechos Conexos. Las decisiones del Registro Nacional de Derechos de Autor y Derechos Conexos tendrán recurso de revocatoria ante el órgano que dictó la resolución respectiva y de apelación ante el Tribunal Registral Administrativo.

@@ -1,0 +1,1 @@
+Artículo 4º—Proporcionalidad de la medida. Toda decisión que resuelva la solicitud de adopción de medidas cautelares, deberá considerar tanto los intereses de terceros como la proporcionalidad entre los efectos de la medida y los daños y perjuicios que ella puede provocar.

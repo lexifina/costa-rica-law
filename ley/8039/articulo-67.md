@@ -1,0 +1,1 @@
+Artículo 67.—Reproducción ilícita de modelos o dibujos industriales. Será sancionado con prisión de uno a tres años quien reproduzca modelos o dibujos industriales protegidos y registrados en Costa Rica, sin el consentimiento de su titular, sin la licencia ni la autorización correspondiente, de modo que pueda resultar daño al legítimo titular del derecho.
