@@ -1,0 +1,1 @@
+Artículo 25.—La presentación del comprobante de pago debidamente cancelado debe ser entregado al encargado del Cementerio por lo menos con dos horas de anticipación a la inhumación, a efecto de que el encargado del cementerio determine el sitio exacto y verifique la ausencia de restos.

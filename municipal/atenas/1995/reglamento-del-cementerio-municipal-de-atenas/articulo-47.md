@@ -1,0 +1,1 @@
+Artículo 47.—En caso de daños causados por hechos de la naturaleza, la Municipalidad se compromete a realizar las reparaciones, debiendo notificar al interesado el monto de los daños para que este se presente a verificar y a cancelar el monto de lo reparado.

@@ -1,0 +1,1 @@
+Artículo 46.— La Municipalidad será la responsable de proteger y vigilar las instalaciones del Cementerio, pero no se hará responsable de los daños causados por caso fortuito o por pérdidas, robos o daños causados por terceros.

@@ -1,0 +1,1 @@
+Artículo 42.-Los recipientes, jarrones o macetas que se coloquen sobre las bóvedas deberán estar permanentemente drenados por medios de agujeros. No se permite poner jarrones o flores con agua, que permitan el estancamiento de la misma.

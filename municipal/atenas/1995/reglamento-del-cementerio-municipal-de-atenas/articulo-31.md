@@ -1,0 +1,2 @@
+Artículo 31.—Los parientes señalados en el artículo 20 podrán solicitar la exhumación ordinaria de los restos.
+En ningún momento se procederá a la exhumación ordinaria de oficio, salvo en aquellos casos en que la Junta Administradora compruebe que los propietarios no han cumplido con las obligaciones del Contrato o con las disposiciones de este Reglamento. Para tal efecto, la Junta Administradora lo comunicará al Consejo Municipal para que procedan a rescindir el contrato.

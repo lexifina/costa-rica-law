@@ -1,0 +1,1 @@
+Artículo 7°—Se permite que en el Cementerio se hagan ceremonias religiosas, se pronuncie discursos u oraciones fúnebres alusivos al fallecido o se haga el acompañamiento musical, siempre y cuando no contravenga la ley, la moral o el orden público.

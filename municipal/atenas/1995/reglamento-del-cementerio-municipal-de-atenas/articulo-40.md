@@ -1,0 +1,1 @@
+Artículo 40.—El interesado en la construcción de la bóveda u obra será responsable de todo daño que ocasione . De no cancelar los daños, la Junta Administradora solicitará a la Municipalidad que proceda a cargar a la cuenta del propietario lo adeudado y constituirá gravamen sobre el derecho respectivo.

@@ -1,0 +1,1 @@
+Artículo 39.—La construcción de la obra podrá ocupar todo el espacio del derecho, pero deberán dejar -—— cm. libres por cada costado, en cada caso de ser sencilla y de ———cm. en caso de ser doble o triple.

@@ -1,0 +1,1 @@
+Artículo 11.—El Ejecutivo Municipal y la Junta Administradora del Cementerio, velarán por la correcta aplicación y uso de los servicios eléctricos, drenajes, instalaciones de agua y uso de servidumbres entre las parcelas, imponiendo las medidas que crea conveniente para el mejoramiento de los servicios.

@@ -1,0 +1,1 @@
+Artículo 32.—Toda exhumación se hará en presencia del encargado del cementerio y de dos testigos preferiblemente parientes del fallecido, a quienes se les notificará de la exhumación, con ocho días de anticipación.

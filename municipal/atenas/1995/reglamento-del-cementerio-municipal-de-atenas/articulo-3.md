@@ -1,0 +1,1 @@
+Artículo 3°—El cementerio de Atenas estará a cargo de la Municipalidad de Atenas, y será administrado por una Junta Administradora de nombramiento de la Municipalidad. La Junta Administradora tendrá a cargo la vigilancia, conservación y administración del cementerio y velará en conjunto con la Municipalidad que se cumpla con lo establecido en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 6°— La Municipalidad para sufragar los gastos del mantenimiento, conservación y vigilancia del cementerio percibirá los derechos de sepultura, inhumación, exhumación, mantenimiento, y del arrendamiento de los nichos, así como de cualquier otra tasa que establezca. Las tarifas que fije por estos conceptos serán publicadas en el Diario Oficial " La Gaceta ".

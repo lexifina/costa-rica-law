@@ -1,0 +1,1 @@
+Artículo 61.— La Municipalidad , a través de la Junta Administradora podrá realizar todo tipo de construcciones o mejoras en las instalaciones del cementerio, incluyendo en los derechos ya adquiridos.

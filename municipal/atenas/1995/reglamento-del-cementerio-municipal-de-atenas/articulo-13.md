@@ -1,0 +1,3 @@
+CAPITULO II
+De la adquisición y traspasos de derechos
+Artículo 13.—Para la adquisición de derechos de los lotes, los interesados deberán solicitarlo así a la Municipalidad de Atenas, contando ésta previamente con el Acuerdo de la Junta Administradora del Cementerio. Para tal efecto, la Municipalidad realizará un contrato en las que se consignen las calidades del adquirente, la ubicación y medida del área del derecho adquirido de acuerdo con el guiador, los nombres de al menos dos personas que en orden de prioridad sean designadas por el adquirente como herederos y /o responsables, el valor y la forma de pago de los derechos y cualquiera otra información que sea necesaria a criterio de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 15.—El derecho individual que solicite el adquirente no podrá ser superior a tres parcelas juntas, definidas éstas como espacios de—— metro por——. La persona que adquiera un derecho de tres parcelas se comprometerá a construir en ellos mausoleos subterráneos.

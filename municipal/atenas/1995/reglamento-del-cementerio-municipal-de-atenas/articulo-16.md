@@ -1,0 +1,2 @@
+Artículo 16.—Para la adjudicación de os derechos en la segunda etapa del cementerio, la Municipalidad los asignará siguiendo con el orden de ubicación geográfica del plano regulador, y dicha ubicación se hará efectiva cuando se coloque las lápidas en los lotes.
+La adjudicación de los derechos en la I etapa del cementerio se hará efectiva cuando el interesado inicie la construcción de la bóveda, para tal efecto, éste debe de notificar a la Junta Administradora la fecha de inicio de la misma.

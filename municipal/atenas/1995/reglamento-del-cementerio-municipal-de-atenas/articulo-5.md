@@ -1,0 +1,1 @@
+Artículo 5°—En toda materia que este Reglamento no deje a decisión del Concejo Municipal, será vinculante la decisión del Ejecutivo Municipal. La decisión del Ejecutivo será recurrible ante el Concejo.

@@ -1,0 +1,1 @@
+Artículo 64.—Este reglamento deroga toda disposición que se le oponga, y se complementa con los acuerdos del Consejo Municipal que se tomen respecto a esta materia, particularmente en cuanto a tarifas.

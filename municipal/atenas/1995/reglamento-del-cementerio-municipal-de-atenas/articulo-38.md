@@ -1,0 +1,1 @@
+Artículo 38.—Los propietarios que deseen construir bóvedas deberán solicitar el respectivo permiso y cancelar el pago de derechos de construcción de conformidad con el valor de la obra. No se otorgara permisos de construcción hasta tanto no se aporte constancia de estar al día en el pago de los impuestos municipales.
