@@ -1,0 +1,1 @@
+Transitorio II.—La Gerencia de la División Médica no recomendará ante la Junta Directiva nuevas disponibilidades si no se fundamenta la necesidad real del servicio y la demostración de la existencia de contenido presupuestario necesario para todo el período en ejercicio.

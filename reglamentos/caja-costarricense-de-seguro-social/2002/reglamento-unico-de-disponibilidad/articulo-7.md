@@ -1,0 +1,1 @@
+Artículo 7º—Los directores de hospital no podrán participar en el sistema de disponibilidades. Los jefes de sección, servicio o de clínica, podrán hacerlo, con la aprobación previa, expresa y fundamentada del director del establecimiento y siempre que la necesidad del servicio lo requiera.

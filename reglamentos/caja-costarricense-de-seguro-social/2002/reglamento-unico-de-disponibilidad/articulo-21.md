@@ -1,0 +1,8 @@
+Artículo 21.—Será responsabilidad del director médico, jefe de sección o jefe de servicio según corresponda, ajustarse al siguiente procedimiento, que será obligatorio para el pago de las disponibilidades:
+a) Medios de control: El control se efectuará mediante el correcto llenado del formulario respectivo y la anotación en el expediente del paciente, sometidos éstos a la verificación posterior del director médico o del jefe de sección, el día hábil siguiente. La verificación deberá constar por escrito, se anotará en el registro individual a que se refiere el artículo 12 de este reglamento, y será requisito obligatorio para efectos de pago.
+La atención del caso correspondiente y la pasada de visita, deberá quedar constando en el formulario respectivo que para tal efecto aporta la institución.
+b) Control de Reportes: Las oficinas de recursos humanos no tramitarán el pago de las disponibilidades, en los casos en que el reporte respectivo no llene los requisitos exigidos en este Reglamento.
+c) Requisitos para el pago: En todo caso deberá existir coincidencia comprobada entre la fecha de la disponibilidad y la labor realizada. Los cambios en el rol deben ser autorizados en forma previa y escrita, por el Director del establecimiento respectivo.
+El documento "Control de Atención de Urgencias Médico Quirúrgicas durante Disponibilidad", y los demás formularios que se utilicen al tenor de este Reglamento, deben ser firmados por la jefatura respectiva, y refrendados por el Director del Centro Asistencial.
+DEROGATORIAS
+El presente Reglamento deroga todas las disposiciones, convenios y normas anteriores en materia de disponibilidades para profesionales en ciencias médicas en los establecimientos de la Caja Costarricense de Seguro Social.

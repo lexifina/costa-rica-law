@@ -1,0 +1,5 @@
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 4º de la sesión 7698, celebrada el 24 de ocubre del 2002, acuerda aprobar el siguiente Reglamento Único de Disponibilidad:
+CAPÍTULO I
+De la disponibilidad médica
+Artículo 1º—Se entiende por disponibilidad médica, la labor que realiza un médico especialista fuera de su jornada ordinaria de trabajo, consistente en estar disponible y localizable en un radio no mayor a 15 kms. del centro asistencial donde se va a realizar la disponibilidad. La disponibilidad abarcará la atención de toda emergencia que surja durante el período contratado y todas las demás tareas especificadas en este Reglamento, labores por las que ese médico recibirá una remuneración especial con sujeción a los términos de este Reglamento.
+Se debe entender por emergencias, para efectos de disponibilidad médica, aquellos casos de pacientes que por su estado de salud requieran a juicio o criterio del médico de emergencias que atiende el caso, la presencia de un médico especialista en disponibilidad.

@@ -1,0 +1,1 @@
+Artículo 6º—Los médicos en disfrute de vacaciones, incapacitados o con permisos, con o sin goce de salario, no podrán participar en el sistema de disponibilidad. Estarán exentos de esta prohibición los médicos que tengan permiso con goce de salario, para asistir a eventos declarados de interés institucional o a sesiones de órganos creados por la misma Institución.

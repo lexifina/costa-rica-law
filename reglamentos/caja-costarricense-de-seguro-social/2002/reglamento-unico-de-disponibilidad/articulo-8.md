@@ -1,0 +1,1 @@
+Artículo 8º—El control del trabajo desarrollado en la jornada de disponibilidad corresponderá al Director Médico. Se enviarán reportes trimestrales para su evaluación a la Gerencia de la División Médica. De esas evaluaciones se informará a la Auditoria Interna, Superintendencia General de Servicios de Salud, a las juntas de salud respectivas y a la Junta Directiva de la CCSS.
