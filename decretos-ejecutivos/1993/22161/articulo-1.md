@@ -1,0 +1,10 @@
+No. 22161-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES,
+En uso de las atribuciones que les confieren la Constitución Política en su artículo 140, incisos 3) y 18); la Ley de Creación del Ministerio de Obras Públicas y Transportes, No 4786 de 5 de julio de 1971; la Ley Orgánica del Instituto Costarricense de Puertos del Pacífico, No 1721 de 28 de diciembre de 1953, así reformada por la Ley No 4964 de 21 de marzo de 1972; la Ley No 6542 de 16 de diciembre de 1980, en su artículo 52 y la Ley General de la Administración Pública, No 6227 de 28 de agosto de 1975.
+Considerando:
+1°.— Que de conformidad con su Ley Constitutiva, el Instituto Costarricense de Puertos del Pacífico ( INCOP) tiene las prerrogativas y funciones de autoridad portuaria en los Puertos del Pacífico, debiendo asumir las funciones portuarias que al momento de su creación estuvieran a cargo de otros organismos.
+2°.— Que el Muelle de Quepos actualmente es administrado por una Junta Administrativa hasta tanto el INCOP asuma la operación y administración del mismo, a tenor de lo que dispone la norma número 52 de la Ley No 6542 de 16 de diciembre de 1980.
+3°.—Que el Muelle Pesquero del Carmen de Puntarenas es de reciente construcción y carece de una unidad administradora, por lo que es pertinente que el íINCOP asuma su administración. Por tanto,
+DECRETAN:
+Artículo 1°.—Se traspasa al Instituto Costarricense de Puertos del Pacífico la administración y operación de los Muelles de Quepos y Pesquero del Carmen de Puntarenas, entidad que deberá asumir las funciones de conformidad con las disposiciones legales que la regulan.
