@@ -1,0 +1,3 @@
+TITULO III
+ACERCA DE LA CONFORMACIÓN Y FUNCIONAMIENTO DE LA COMISIÓN AMBIENTAL MUNICIPAL.
+Artículo 5°—Conformación de la Comisión Ambiental Municipal. La Comisión Ambiental Municipal estará conformada por ocho miembros propietarios y sus respectivos suplentes, de acuerdo a la siguiente relación: dos miembros del Concejo Municipal y un representante administrativo, nombrados por el Presidente del Concejo Municipal de acuerdo al artículo 53 de Código Municipal, un representante del Área de Conservación Pacífico Central y cuatro miembros de la Sociedad Civil, nombrados por la Asamblea General Cantonal Ambiental. Artículo

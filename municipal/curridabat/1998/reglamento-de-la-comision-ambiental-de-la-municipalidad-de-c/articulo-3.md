@@ -1,0 +1,1 @@
+Artículo 3.—Sobre la participación Ciudadana. La Comisión Ambiental Municipal promoverá la participación activa de la Sociedad Civil. Para ello, impulsará la creación y funcionamiento de un Consejo Local Ambiental, con el fin de conocer las necesidades de la población en el tema ambiental y canalizarlos a la comisión.

@@ -1,0 +1,1 @@
+Artículo 16.—Lugar para la Asamblea. La Asamblea General Cantonal Ambiental se realizará en el salón de sesiones del Concejo Municipal, o bien en el lugar y hora establecidos al momento de la convocatoria.

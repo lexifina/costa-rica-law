@@ -1,0 +1,1 @@
+Artículo 19.—Legitimidad para participar en la Asamblea. Están legitimadas para participar en la asamblea general Cantonal Ambiental todas aquellas personas que sean habitantes del Cantón o distrito en donde se realiza la Asamblea a través de organizaciones debidamente inscritas ante la Comisión Ambiental.

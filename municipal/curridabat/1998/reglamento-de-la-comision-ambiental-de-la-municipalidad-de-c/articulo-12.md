@@ -1,0 +1,1 @@
+Artículo 12.—Carácter de servicio de los miembros. Los miembros de la Comisión Ambiental Municipal realizarán su trabajo ad honorem, no pudiendo recibir remuneración alguna por el desempeño de sus funciones.
