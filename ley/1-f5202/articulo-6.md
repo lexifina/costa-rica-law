@@ -1,0 +1,1 @@
+Art. 6. Los frutos y efectos de Costa Rica, y de los otros Estados de Centro-América dejarán de pagar el exhorbitante derecho de cuatro reales por quintal, quedando gravados unicamente con un real por bulto, siempre que se depositen en los almacenes del Estado; pero no podràn recibirse en ellos chancaca, azucar y sal.

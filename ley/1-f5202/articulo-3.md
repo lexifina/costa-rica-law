@@ -1,0 +1,1 @@
+Art. 3. Son esentos de este derecho los Buques de arribada obligados de algun riesgo, ó necesidad de hacer aguada y proverse de mantenimientos: los que no descarguen absolutamente nada, y los que solo traigan el objeto de cargar frutos del pais.
