@@ -22,15 +22,21 @@ Estarán sujetas al requisito de encaje mínimo legal el saldo de todos aquellos
 i. Las comisiones de confianza, los fideicomisos y cualquier contrato de administración de cartera constituido por los intermediarios financieros, mediante los que se reciben recursos del público en forma habitual y abierta.
 ii. Los fideicomisos y contratos de administración que emiten algún tipo de pasivo, mediante los cuales los intermediarios obtienen recursos del público, empleando como respaldo el patrimonio del fideicomiso (letras de cambio, hipotecas, prendas, cuentas por cobrar u otros).
 iii. Los mecanismos de administración de carteras de títulos que mantienen los puestos de bolsa, tales como los denominados OPAB, CAV, OMED o similares.
-C. Tasas de encaje
+(*) C. Tasas de encaje
 Las tasas de encaje mínimo legal que aplicarán sobre las operaciones indicadas en el literal anterior son las siguientes:
-1. El 5% sobre el total de los depósitos y obligaciones en moneda nacional, así como de las operaciones de captación de recursos en moneda nacional realizadas mediante fideicomisos o contratos de administración. Dicha tasa se aplicará con la siguiente gradualidad:
-Fecha |
-A partir del: | Tasa
-1° de mayo del 2001 | 9%
-1 ° de setiembre del 2001 | 7%
-1° de febrero del 2002 | 5%”
-(*) (Así reformado el numeral anterior en sesión N° 5070 del 28 de marzo de 2001)
+1. El 10,0% sobre el total de los depósitos y obligaciones en moneda nacional, así como de las operaciones de captación de recursos en moneda nacional realizadas mediante fideicomisos o contratos de administración. Dicha tasa se aplicará con la siguiente gradualidad:
+Fecha | Tasa
+A partir del: |
+16 de enero del 2003 | 6,5%
+16 de febrero del 2003 | 8,0%
+16 de marzo del 2003 | 10,0%
+2. El 10,0% sobre el total de los depósitos y obligaciones en moneda extranjera, así como de las operaciones de captación de recursos en moneda extranjera realizadas mediante fideicomisos o contratos de administración. Dicha tasa se aplicará con la siguiente gradualidad:
+Fecha | Tasa
+A partir del: |
+16 de enero del 2003 | 6,5%
+16 de febrero del 2003 | 8,0%
+16 de marzo del 2003 | 10,0%
+(*) (Así reformado el literal C anterior en sesión N° 5143 del 18 de diciembre de 2002)
 D. Excepciones y deducciones
 (*) 1. Se exceptúan del requerimiento de encaje mínimo legal las operaciones originadas en empréstitos externos, los préstamos otorgados por e! Banco Central de Costa Rica y los recursos recibidos por la banca estatal de entidades financieras privadas en cumplimiento de las condiciones establecidas, para estas últimas, para tener acceso al redescuento o poder captar depósitos en cuenta corriente, según lo estipulado en los artículos 52 de la Ley Orgánica del Banco Central de Costa Rica y 59 de la Ley Orgánica del Sistema Bancario Nacional.
 (*) (Así reformado el numeral anterior en sesión N° 5029 del 15 de marzo de 2000)
@@ -67,10 +73,10 @@ A. Se entenderá por "insuficiencia en el encaje mínimo legal", sea en moneda n
 (Así reformado el literal anterior en sesión N° 5084 del 14 de agosto de 2001)
 B. Cuando se presente una insuficiencia en el encaje mínimo legal, sea en moneda nacional o extranjera, la Superintendencia General de Entidades Financieras y la Superintendencia General de Valores, según sea el caso, enviará una nota de apercibimiento al Gerente de la entidad infractora e informará inmediatamente, por escrito, a la Gerencia y a la Junta Directiva del Banco Central de Costa Rica, según lo dispuesto en el artículo 67 de la Ley Nº 7558. Esta última nota deberá contener toda la información pertinente al período, monto del desencaje y el detalle de la multa total a cobrar y venir acompañada por los atestados técnicos emanados del sistema informatizado encargado de mostrar las deficiencias quincenales en los encajes mínimos legales, así como de cualquier nota de descargo enviada por la entidad financiera desencajada y el respectivo criterio técnico de la Superintendencia competente.
 (Así reformado el literal anterior en sesión N° 5107 del 20 de febrero de 2002)
-(*)C. Conocida la insuficiencia por parte de la Junta Directiva, el Director de la División Servicios Financieros del Banco Central de Costa Rica, o quien éste designe, procederá a debitar la cuenta de reserva de la entidad, (infractora o bien, generar la acción de cobro a dicha entidad en el caso que no tuviese cuenta de reserva por el total de la multa indicada por la Superintendencia correspondiente. Por tanto, la Superintendencia respectiva calculará la multa con base en la suma resultante de aplicar al monto del desencaje en la quincena de la insuficiencia en el encaje, una tasa de interés equivalente a la tasa cobrada en las operaciones de crédito de redescuento, de la siguiente manera:
+C. Conocida la insuficiencia por parte de la Junta Directiva, el Director de la División Servicios Financieros del Banco Central de Costa Rica, o quien éste designe, procederá a debitar la cuenta de reserva de la entidad, (infractora o bien, generar la acción de cobro a dicha entidad en el caso que no tuviese cuenta de reserva por el total de la multa indicada por la Superintendencia correspondiente. Por tanto, la Superintendencia respectiva calculará la multa con base en la suma resultante de aplicar al monto del desencaje en la quincena de la insuficiencia en el encaje, una tasa de interés equivalente a la tasa cobrada en las operaciones de crédito de redescuento, de la siguiente manera:
 i. En caso de desencajes en moneda nacional, la multa resultará de aplicar la tasa de redescuento al monto del desencaje en colones.
 ii. En caso de desencajes en moneda extranjera, la insuficiencia se convierte a su equivalente en moneda nacional, utilizando el tipo de cambio de compra vigente al término del período de insuficiencia de encaje. A dicho monto en moneda nacional, se le aplica la tasa de redescuento vigente durante el período del desencaje y la suma resultante, se convierte a moneda extranjera (al mismo tipo de cambio antes utilizado), para efectos de debitar la cuenta corriente en moneda extranjera que mantiene la entidad desencajada en el Banco Central.
-(*)(Así reformado el literal anterior en sesión N° 5107 del 20 de febrero de 2002)
+(Así reformado el literal anterior en sesión N° 5107 del 20 de febrero de 2002)
 (*) D. En el caso que la deficiencia persistiere dos o más veces dentro de un periodo de tres meses calendario, la respectiva Superintendencia enviará por cada vez la nota de estilo con los anexos previstos en el literal anterior. Una vez que las Superintendencias hayan llevado a cabo el debido proceso e informado a la Junta Directiva del Banco Central de Costa Rica, esta además de ordenar el débito al que se refiere el literal B., procederá por cada uno de esos desencajes a la aplicación de lo que dispone el Artículo 67 de la Ley Orgánica del Banco Central de Costa Rica.
 A las entidades supervisadas por la Superintendencia General de Entidades Financieras, se les prohibirá la realización de nuevas operaciones de crédito e inversiones y las supervisadas por la Superintendencia General de Valores no podrán realizar nuevas operaciones mediante los mecanismos de administración de cartera de títulos como los OPAB, CAV, OMED o similares, conforme la siguiente aplicación:
 i. En caso de que una entidad incurra en un segando desencaje dentro de un periodo de tres meses, se sancionará de conformidad con los siguientes parámetros:

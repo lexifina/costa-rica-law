@@ -1,21 +1,21 @@
 (*)TITULO VI
 Disposiciones sobre la reserva de liquidez
 (*)(Así adicionado este título en sesión N° 4931 del 24 de octubre de 1997)
-(*) A. Deberán mantener una reserva de liquidez sobre la totalidad de sus captaciones de recursos y los aportes de trabajadores o asociados las siguientes entidades:
-1. Las asociaciones solidaristas.
-2. Las cooperativas de ahorro y crédito que realizan operaciones financieras exclusivamente con sus asociados.
-3. Las cooperativas de ahorro y crédito que realizan operaciones con no asociados y cuyo nivel de activos netos al 31 de diciembre de 1995, era inferior a ¢200,0 millones.
-4. Las cooperativas de vivienda que realizan actividades de intermediación al amparo de la Ley del Sistema Financiero para la Vivienda y cuyo nivel de activos netos era al 31 de diciembre de 1995 inferior a ¢ 200,0 millones.
-5. Cualquier otra entidad que realice operaciones de intermediación financiera y que haya sido expresamente eximida del encaje por la Junta Directiva del Banco Central de Costa Rica.
-El porcentaje de reserva de liquidez que deberán mantener las entidades antes mencionadas es el siguiente:
-1. Para las operaciones en moneda nacional aplicará una tasa de reserva de liquidez del 5%, a la cual se ajustarán con la siguiente gradualidad:
-Fecha |
-A partir del: | Tasa
-1° de mayo del 2001 | 9%
-1° de setiembre del 2001 | 7%
-1° de febrero del 2002 | 5%
-2. Para las operaciones en moneda extranjera aplicará una tasa de reserva de liquidez del 5%.
-(*) (Así reformado el literal A anterior en sesión N° 5070 del 28 de marzo de 2001)
+(*) A. Deberán mantener una reserva de liquidez...
+El porcentaje reserva de liquidez que deberán mantener las entidades antes mencionadas es el siguiente:
+1. Para las operaciones en moneda nacional aplicará una tasa de reserva de liquidez del 10%, a la cual se ajustarán con la siguiente gradualidad:
+Fecha | Tasa
+A partir del: |
+16 de enero del 2003 | 6,5%
+16 de febrero del 2003 | 8,0%
+16 de marzo del 2003 | 10,0%
+2. Para las operaciones en moneda extranjera aplicará una tasa de reserva de liquidez del 10%, a la cual se ajustarán con la siguiente gradualidad:
+Fecha | Tasa
+A partir del: |
+16 de enero del 2003 | 6,5%
+16 de febrero del 2003 | 8,0%
+16 de marzo del 2003 | 10,0%
+(*) (Así reformado el literal A anterior en sesión N° 5143 del 18 de diciembre de 2002)
 (*) B. Las cooperativas de ahorro y crédito y las cooperativas de vivienda amparadas a la Ley del Sistema Financiero para la Vivienda, cuyo nivel de activos netos al 31 de diciembre de cada año sea superior a los ¢200.0 millones, serán incorporadas al control del encaje por parte del BCCR y de la SUGEF.
 (*) (Así reformado el literal anterior en sesión N° 5067 del 21 de febrero de 2001)
 (*) C. Las cooperativas de ahorro y crédito cuyos activos netos, al 31 de diciembre de cada sean iguales o superiores a los ¢200.0 millones deberán, para quedar eximidas del requisito de encaje, presentar semestralmente ante la SUGEF los atestados correspondientes de que no han realizado operaciones financieras con no asociados
