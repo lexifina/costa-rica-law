@@ -1,0 +1,1 @@
+Artículo 6°-La escogencia de los miembros del Concejo de Distrito lo hará el Concejo Municipal de entre las temas que al efecto presente el Síndico del Distrito de que se trate y cualquiera de los regidores propietarios.
