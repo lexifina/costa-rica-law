@@ -1,0 +1,1 @@
+Artículo 3º—Procedencia: En los supuestos indicados en los dos artículos que anteceden, se entenderá por Consejo Directivo de Incofer, sus directores integrantes, los gerentes, el Auditor Interno, el Jefe del Departamento Legal y la Secretaria del Consejo. Asimismo, en el caso de invitados asistentes, deberá justificarse la trascendencia de la visita.

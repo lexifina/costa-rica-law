@@ -1,0 +1,1 @@
+Artículo 4º—Verificación de requisitos: Bajo la entera responsabilidad de la Administración quedará la verificación acerca de la procedencia de incurrir en este tipo de gastos y que se presenten los supuestos de procedencia del artículo 1°.
