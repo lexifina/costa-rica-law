@@ -14,3 +14,4 @@ Reglamento para el Cobro del Impuesto a Concesionarios de Canteras y/o Extracci√
 | Versi√≥n | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-19 | la propia norma |
+| 2 | 1996-08-09 | Reglamento municipal 0 (1996-08-09) |
