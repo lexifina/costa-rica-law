@@ -14,3 +14,4 @@ Reglamento sobre Regulación y Control de Propaganda de Bebidas Alcohólicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-09-06 | la propia norma |
+| 2 | 1983-06-16 | Decreto Ejecutivo 14628 (1983-06-16) |

@@ -1,1 +1,2 @@
-Artículo 12.—Habrá un Consejo Asesor de Propaganda integrado representante del Instituto, un representante de la Cámara de Comercio, un presentante de la Asociación Consejo Nacional de la Publicidad y uno de la Asesoría Legal del Ministerio de Salud.
+ARTÍCULO 12.-Habrá un Consejo Asesor de Propaganda integrado Por 3 miembros con especialidad, uno en Psicología, otro en Publicidad y el tercero en Derecho, quienes deben ser necesariamente funcionarios del INSA y serán de libre nombramiento de la Junta Directiva del Instituto. Dichos miembros durarán en sus cargos 2 años, pudiendo ser reelectos, pero cesarán en sus cargos en cualquier tiempo, cuando dejen de ser funcionarios del INSA.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 14628 del 16 de junio de 1983)
