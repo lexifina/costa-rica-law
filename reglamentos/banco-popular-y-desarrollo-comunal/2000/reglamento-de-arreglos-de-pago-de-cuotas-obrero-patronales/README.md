@@ -14,3 +14,4 @@ Reglamento de Arreglos de Pago de Cuotas Obrero Patronales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-05 | la propia norma |
+| 2 | 2000-08-05 | Ley 8 |
