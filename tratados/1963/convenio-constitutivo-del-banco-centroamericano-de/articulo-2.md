@@ -1,4 +1,4 @@
-Artículo 2.- El Banco tendrá por objeto promover la integración económica y el desarrollo económico y social equilibrado de los países centroamericanos. En cumplimiento de este objetivo atenderá programas o proyectos de:
+Artículo 2.-El Banco tendrá por objeto promover la integración económica y el desarrollo económico y social equilibrado de los países fundadores. En cumplimiento de este objetivo, atenderá programas o proyectos de:
 a) Infraestructura que completen los sistemas regionales existentes o que compensen disparidades en sectores básicos que dificulten el desarrollo equilibrado de Centroamérica;
 b) Inversión a largo plazo en industrias de carácter regional o de interés para el mercado centroamericano, que contribuyan a incrementar los bienes disponibles para intercambio centroamericano o para éste y el sector exportador;
 c) Inversión en el sector agropecuario que tengan por objeto el mejoramiento, la ampliación o la sustitución de las explotaciones;
@@ -8,4 +8,8 @@ f) Complementación económica entre los países centroamericanos o que tiendan 
 g) Desarrollo social de los países centroamericanos;
 h) Conservación y protección de los recursos naturales y del medio ambiente; y
 i) Financiamiento de estudios relacionados con los aspectos mencionados en este artículo y de aquellos otros programas o proyectos que autorice la Asamblea de Gobernadores.
+j) Gran significación regional a los cuales dará atención preferente.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 8223 del 7 de marzo del 2002)
+El Banco, teniendo en cuenta su objeto señalado en este artículo, podrá aceptar como beneficiarios a otros países, de conformidad a lo dispuesto en el artículo 4º, literal a) de este Convenio.
+(Así adicionado el párrafo anterior por el artículo 1° de la ley N° 8223 del 7 de marzo del 2002)
 (Así reformado por el artículo 1° de la ley N° 7258 del 9 de octubre de 1991)

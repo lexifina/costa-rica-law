@@ -1,2 +1,2 @@
-Artículo 23.- La consideración primordial que el Banco tendrá en cuenta al nombrar su personal y al determinar sus condiciones de servicio será la necesidad de asegurar el más alto grado de eficiencia, competencia e integridad. También procurará contratar el personal en forma que haya la debida representación geográfica entre los países fundadores.
-(Así reformado por el artículo 1° de la ley N° 7258 del 9 de octubre de 1991)
+Artículo 23.—La consideración primordial que el Banco tendrá en cuenta al nombrar su personal y al determinar sus condiciones de servicio, será la necesidad de asegurar el más alto grado de eficiencia, competencia e integridad. Como un criterio secundario, sin sacrificar los criterios anteriormente expuestos, se procurará contratar el personal en forma tal que haya una representación equilibrada entre los países fundadores.
+(Así reformado por el artículo 1° de la ley N° 8223 del 7 de marzo del 2002)

@@ -1,2 +1,4 @@
-Artículo 44.- La modificación de las resoluciones AG-5/88 y AG-16/88 de la Asamblea de Gobernadores, relativas al orden de alternabilidad por nacionalidad de los cargos de Presidente y Vicepresidente Ejecutivos, solamente podrá hacerse con el voto conforme de la totalida de los países fundadores.
-(Así adicionado por el artículo 2° de la ley N° 7258 del 9 de octubre de 1991)
+Artículo 44.—El socio que faltare al cumplimiento de las obligaciones establecidas en el presente Convenio o a otras obligaciones con el Banco será objeto de las sanciones establecidas en el reglamento que al efecto emita la Asamblea de Gobernadores.
+Cuando la sanción que corresponda sea la suspensión, ésta será decidida por la Asamblea de Gobernadores por mayoría de tres cuartos de la totalidad de los votos de los socios, la cual, a su vez, deberá incluir el voto de, por lo menos, tres estados fundadores.
+En caso de suspensión, y mientras ella dure, el socio afectado no podrá ejercer aquellos de los derechos conferidos por el presente Convenio, que especifique el reglamento a que se refiere este artículo.
+(Así reformado por el artículo 1° de la ley N° 8223 del 7 de marzo del 2002, mediante ese artículo se ordena derogar el original artículo 44 y modificar su numeración de forma tal que el antiguo artículo 45 pasara a ser el 44)

@@ -2,8 +2,10 @@ Artículo 11.- Todas las facultades del Banco residen en la Asamblea de Gobernad
 a) Admitir nuevos miembros y determinar las condiciones de su admisión
 b) Aumentar el capital autorizado;
 c) Determinar las reservas de capital, a propuesta del Director
-d) Elegir al Presidente Ejecutivo y fijar su remuneración, así como removerlo;
-e) Nombrar al Contralor, de entre una terna, y removerlo, todo a propuesta del Directorio; asimismo, fijarle su remuneración;
+d) Elegir al Presidente Ejecutivo, de entre una terna seleccionada con base a concurso, y removerlo, así como fijarle su remuneración. La Asamblea de Gobernadores emitirá las disposiciones pertinentes para reglamentar la elección y la remoción del Presidente Ejecutivo;
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 8223 del 7 de marzo del 2002)
+e) Nombrar al Contralor de entre una terna, seleccionada con base a concurso, y removerlo; asimismo, fijarle su remuneración. La Asamblea de Gobernadores emitirá las disposiciones pertinentes para reglamentar la elección y la remoción del Contralor;
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 8223 del 7 de marzo del 2002)
 f) Fijar la remuneración de los Directores y Directores Suplentes;
 g) Aprobar y modificar el Reglamento de la Organización y Administración del Banco, el de la Asamblea de Gobernadores y el de Elección de Directores;
 h) Designar los auditores externos del Banco para dictaminar los estados financieros anuales que serán presentados a la Asamblea de Gobernadores;
