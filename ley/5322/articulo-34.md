@@ -1,1 +1,0 @@
-Artículo 34.- El modelo de la licencia para conducir, así como las clases de vehículos para los que es válido, se extenderá conforme al Acuerdo Centroamericano sobre Circulación por Carreteras y el Reglamento de la presente ley.

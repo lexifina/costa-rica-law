@@ -1,1 +1,0 @@
-Artículo 41.- El vehículo con el cual se cause un daño, se entenderá gravado a las resultas del mismo. El gravamen así establecido será preferente a cualquier otra garantía, inscrito o no, por la que responda el vehículo.

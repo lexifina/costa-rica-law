@@ -1,1 +1,0 @@
-Artículo 97.- La Corte Suprema de Justicia regulará la distribución de trabajo entre las diferentes Agencia Judiciales de Tránsito. Tanto los Agentes Judiciales como los Delegados de la Guardia de Asistencia Rural, podrán instruir las sumarias de oficio o a gestión de parte interesada. En cada cabecera de provincia deberá haber cuando menos una Agencia de Policía de Tránsito.

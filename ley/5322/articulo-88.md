@@ -1,1 +1,0 @@
-Artículo 88.- De las dieciocho a las seis horas es prohibida la circulación de vehículos sin las luces reglamentarias encendidas. Asimismo a cualquier hora del d¡a, en aquellas ocasiones en que por razones naturales o artificiales se dificulte la visibilidad.

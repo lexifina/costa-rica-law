@@ -1,1 +1,0 @@
-Artículo 51.- Dentro de los límites a que se refiere el artículo anterior, el seguro obligatorio cubrirá la responsabilidad civil proveniente de la lesión o muerte de cualquier persona, como consecuencia directa de la propiedad, mantenimiento, operación o uso de un vehículo o vehículos automotores, dentro del territorio nacional.

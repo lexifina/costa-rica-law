@@ -1,1 +1,0 @@
-Artículo 62.- Cuando por cualquier motivo la póliza esté al descubierto por no pago de la prima o cualquier otra circunstancia, el Instituto Nacional de Seguros dará aviso inmediato a la Dirección General de Tránsito, para que ésta proceda a retirar el vehículo de la Circulación.

@@ -1,5 +1,5 @@
 Nº 3678
-(Nota de Sinalevi: Mediante el artículo 140 de la Ley de Tránsito (1973), N° 5322 del 27 de agosto de 1973, se indica derogar esta norma en lo relativo al personal de la Dirección de Tránsito.)
+(Nota de Sinalevi: Mediante el artículo 140 de la Ley de Tránsito (1973), N° 5322 del 27 de agosto de 1973, se indica derogar esta norma en lo relativo al personal de la Dirección de Tránsito. Posteriormente por el numeral 146 de la Ley de Tránsito (1976), N° 5930 del 13 de setiembre de 1976, se indica derogar esta norma en lo relativo al personal de la Dirección General de Tránsito.)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 DECRETA:
 Artículo 1º- El Director de la Oficina de Planificación, Miembros de la Comandancia en Jefe y Agencia de Seguridad y Escuela Nacional de Policía y los directores generales de los ministerios, no protegidos por el Estatuto de Servicio Civil, que por renuncia debidamente aceptada o destitución sin justa causa, hubieren de hacer dejación de sus funciones dentro del período comprendido entre el día en que el Tribunal Supremo de Elecciones haga declaración definitiva de Elección de Presidente y Vicepresidentes de la República, y el 8 de noviembre siguiente, tendrán derecho de acogerse a las ventajas establecidas en el artículo 579 del Código de Trabajo, con las limitaciones y obligaciones ahí contenidas.

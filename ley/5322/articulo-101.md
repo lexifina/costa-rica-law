@@ -1,1 +1,0 @@
-Artículo 101.- Se establece la imposición de multas fija para determinar infracciones conforme a la escala que este Capítulo señala. Estas multas se harán efectivas por medio del Sistema Bancario Nacional, cuando el infractor acepte el cargo.

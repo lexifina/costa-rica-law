@@ -1,1 +1,0 @@
-Artículo 119.- Si fuere recusado alguno de los integrantes del Tribunal, conocerán de la recusación los otros; si se hiciere a dos, la resolverá el integrante hábil; y si fueren todos, conocerá de ella uno de los Alcaldes Penales de la ciudad de San José.

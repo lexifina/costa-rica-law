@@ -1,2 +1,0 @@
-Artículo 87.- Es prohibido detenerse, estacionarse o circular a mínima velocidad, donde se afecte la seguridad o se obstruya la adecuada circulación o la libre movilización de los otros vehículos.
-Las operaciones de entrada y salida de los pasajeros o carga y descarga, deberán hacerse una vez que los vehículos en cuestión se hayan orillado a su derecha, dejando libres para el tránsito los carriles usuales, bajo pena de incurrir en la sanción correspondiente a la obstrucción de la vía pública.

@@ -1,1 +1,0 @@
-Artículo 6.- El personal del Departamento de Inspección de Tránsito estará sujeto a un régimen disciplinario especial que se establecerá en el Reglamento de esta ley. En cuanto a nombramientos y destituciones, este Reglamento deberá seguir los procedimientos establecidos en la Ley de Servicio Civil.

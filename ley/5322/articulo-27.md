@@ -1,1 +1,0 @@
-Artículo 27.- El permiso de circulación sólo se conferirá a los vehículos que reúnan las condiciones mecánicas de seguridad y demás requisitos que determine esta Ley y sus Reglamentos. Lo anterior será comprobado por la Dirección General de Tránsito mediante examen de revisión general. Este examen se har por lo menos una vez al año por expertos de esa Dirección.

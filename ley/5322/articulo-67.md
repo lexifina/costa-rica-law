@@ -1,1 +1,0 @@
-Artículo 67.- Las prestaciones en especie o en dinero, derivadas del Seguro Obligatorio, y dentro de sus límites, las satisfará el Instituto Nacional de Seguros, haya o no culpa del conductor del vehículo asegurado, salvo el caso de excepción previsto en el artículo 55.
