@@ -1,0 +1,1 @@
+Artículo 43.—La Municipalidad de Paraíso, por medio de sus departamentos y la Comisión de Asuntos Sociales, coordinarán con las demás instituciones involucradas inspecciones cada 6 meses a todos los establecimientos que presentan espectáculos públicos.

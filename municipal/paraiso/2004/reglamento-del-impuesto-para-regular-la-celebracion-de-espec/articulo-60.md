@@ -1,0 +1,1 @@
+Artículo 60.—De las horas límite. Se establece que en ningún caso y sin excepción, ninguna actividad con Karaoke y similar podrá iniciar antes de las 2 p.m. y extenderse mas allá de las 11 p. m., con esta hora como límite deberán cesar completamente todas las actividades de este tipo.

@@ -1,0 +1,1 @@
+Artículo 9º—Los propietarios de los locales autorizados para realizar espectáculos públicos serán responsables del pago de dicho impuesto cuando el organizador del evento no pague la suma correspondiente a este concepto.

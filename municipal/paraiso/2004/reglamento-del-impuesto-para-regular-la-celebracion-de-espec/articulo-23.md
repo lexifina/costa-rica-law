@@ -1,0 +1,1 @@
+Artículo 23.—Eventos ocasionales. En los eventos ocasionales donde se requiera la instalación del buzón recolector, será responsabilidad del inspector o encargado, instalarlo y recogerlo al final de la actividad.

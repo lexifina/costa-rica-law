@@ -1,0 +1,1 @@
+Artículo 63.—De La Contaminación Sónica. La actividad con Karaoke y similar, deberá respetar en todo momento los niveles autorizados de sonido y confinamiento de ruido conforme lo disponen el Art. 293 y 294 de la Ley General de Salud.

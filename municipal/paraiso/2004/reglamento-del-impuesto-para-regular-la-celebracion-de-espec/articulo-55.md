@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+De los karaokes, música en vivo y similares
+Artículo 55.—Definición: denominase Karaoke, aquel sistema amplificado de sonido que emite la música de canciones conocidas con el fin de que una o varias personas puedan poner su voz sobre ella, leyendo sobre grabada en un video clip o sobre imágenes neutras en una pantalla, la letra de las canciones; se denomina Karaoke además, el establecimiento lúdico donde hay uno de estos aparatos para que los clientes puedan
+cantar.

@@ -1,0 +1,1 @@
+Artículo 33.—Al final de cada evento se contarán los boletos y se procederá a realizar un informe donde se indique el número de boletos vendidos, el importe y el monto a pagar por concepto de impuesto de espectáculo público.
