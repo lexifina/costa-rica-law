@@ -1,0 +1,1 @@
+Artículo. 22.-En la ejecución de los procesos técnicos de producción de obras de la ECUC, el COY AO mantendrá su independencia la producción de obras para la Editorial se regulará mediante la firma de una orden de producción por cada obra. Dicha orden de producción debe estar aprobada por el Consejo Editorial.

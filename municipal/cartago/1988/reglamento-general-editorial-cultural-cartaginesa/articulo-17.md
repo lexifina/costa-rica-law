@@ -1,0 +1,1 @@
+Articulo 17.-Cada año la ECUC someterá a conocimiento del Concejo Municipal, a más tardar en e! mes de agosto un "plan anual de trabajo", acompañado de su respectivo presupuesto, a fin de incluir este en el presupuesto municipal, en el monto en que el Concejo apruebe.

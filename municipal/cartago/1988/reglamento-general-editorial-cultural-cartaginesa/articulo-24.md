@@ -1,0 +1,1 @@
+Artículo 24.-El Tesorero organizará los procedimientos administrativos contables de ingresos y gastos, liquidación de las ventas y trámites de cobro y otros que fueran necesarios. Estas funciones y la contabilidad podrían ser encargadas al personal externo. pagando una remuneración con cargo al costo de la obra.

@@ -1,0 +1,1 @@
+Artículo 9°_Los miembros del Consejo percibirán una dieta por la asistencia a cada sesión, hasta un máximo de cuatro sesiones por mes. La dieta será fijada por el Concejo Municipal de Cartago cuando apruebe el presupuesto ordinario enviado por la ECUC.

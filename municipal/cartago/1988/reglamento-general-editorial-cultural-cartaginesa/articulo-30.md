@@ -1,0 +1,1 @@
+Articulo 30,-La ECUC también podrá publicar obras por encargo, de acuerdo con lo que el Consejo Directivo establezca. En este caso los derechos de autor son exclusivos de la ECUC y deben ser inscritos a su nombre.

@@ -1,0 +1,1 @@
+Artículo 23.-La promoción, distribución y venta de libros es una actividad prioritaria de la ECUC, que deberá realizarse de acuerdo con las normas que dicte el Consejo Directivo. Las operaciones serán planificadas por el Consejo Editorial y ejecutadas por el Presidente Ejecutivo, quien contará con el apoyo logístico de la Municipalidad y el COVAO.

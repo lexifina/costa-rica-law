@@ -1,0 +1,1 @@
+Artículo 5°-El Consejo Editorial será juramentado e instalado en sus cargos, por el Concejo Municipal de Cartago, para lo cual todos los miembros deberán estar nombrados en el mes de junio de cada año en que corresponda hacer la respectiva elección.

@@ -1,0 +1,1 @@
+Articulo 20.-El Auditor Municipal será el encargado de auditar anualmente que los dineros recibidos por la ECUC hayan sido correctamente usados e informará al Concejo Municipal y a la Junta Administrativa del Hospicio de Huérfanos de Cartago y COVAO sobre el resultado del mismo.

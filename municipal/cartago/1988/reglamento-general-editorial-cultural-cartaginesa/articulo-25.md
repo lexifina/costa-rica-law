@@ -1,0 +1,1 @@
+Artículo 25.-EI Tesorero recomendará al Consejo, para su aprobación el precio de ventas. consignación y los porcentajes que hay que reconocer en cada obra. El Presidente Ejecutivo buscará los canales de distribución más adecuados.

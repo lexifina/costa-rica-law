@@ -1,0 +1,1 @@
+Articulo 28.-Los autores recibirán como remuneración un porcentaje sobre el total de ventas correspondientes a cada edición. El porcentaje será fijado por el Consejo Directivo. de acuerdo con la práctica usual en el país .

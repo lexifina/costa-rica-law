@@ -1,0 +1,1 @@
+Articulo 32,-Toda publicación requerirá una fórmula firmada por el autor que contendrá las disposiciones de este reglamento que se refieran al asunto y otras normas Que al efecto apruebe el Consejo Editorial.

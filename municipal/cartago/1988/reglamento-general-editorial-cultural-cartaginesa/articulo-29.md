@@ -1,0 +1,1 @@
+Artículo 29.-Para cumplir con lo dicho en el articulo anterior, semestralmente se harán las liquidaciones parciales de las ventas realizadas por los establecimientos autorizados para vender los libros de la ECUC. De la suma recogida se girará al autor lo correspondiente.
