@@ -1,0 +1,1 @@
+Artículo 26.—Autorízase a Comcure para que celebre convenios de cooperación y reciba donaciones de agencias de cooperación internacional y otras organizaciones, nacionales e internacionales. Asimismo, se autoriza para que administre fideicomisos cuyo fin sea dotar de contenido económico los proyectos que ejecute Comcure.

@@ -1,0 +1,1 @@
+Artículo 17.—El comité consultivo designará de su seno a un presidente, quien permanecerá en su cargo un período de dos años y podrá ser reelegido. Se reunirá al menos dos veces al año, convocado por su presidente o cuando el presidente de Comcure lo solicite.
