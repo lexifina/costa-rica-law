@@ -23,3 +23,4 @@ Producto | Factor
 8. Durpanel | 0.11183
 9. Pinturas y especialidades varias (locales, de Centroamérica y Panamá) | 0.111676
 10. Pinturas y especialidades carias (resto del mundo) | 0.102638
+(Nota de Sinalevi: Mediante el artículo 2° de la resolución N° 03/96 del 15 de marzo de 1996, se establece lo siguiente: "... Asimismo quedan sin efecto los factores para cuantificar el crédito fiscal de las mercancías antes dichas que se incorporan en la fabricación de mercancías gravadas o exentas, estipulados en las Resoluciones No 29-95 y 30-95 de fecha 9 de noviembre de 1995, publicadas en "La Gaceta" No 226 del 28 de noviembre de 1995 y No 227 del 29 de noviembre de 1995, respectivamente...")
