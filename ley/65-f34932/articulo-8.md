@@ -1,0 +1,1 @@
+Artículo 8°—La Directiva del Banco Internacional fijará el monto del préstamo, prefiriendo a los que a su juicio sean más urgentes, pero ninguno de ellos excederá de la suma de diez mil colones para cada propietario.

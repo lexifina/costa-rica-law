@@ -1,0 +1,1 @@
+Artículo 9°—El Banco no estará obligado a entregar desde el primer momento la suma total del préstamo sino que lo podrá hacer paulatinamente y conforme progrese la construcción en que se ha de invertir, y previo el informe de un perito de su elección que dirá si el valor de lo construido cubre las sumas entregadas para ese objeto.
