@@ -1,0 +1,1 @@
+Artículo 132.—Cuando estén operando buques con líquidos inflamables, se encontrará activa por lo menos una de las bombas contra incendios y las mangueras lanzadas en cubierta. El resto del equipo estará preparado para actuar en caso de incendio.

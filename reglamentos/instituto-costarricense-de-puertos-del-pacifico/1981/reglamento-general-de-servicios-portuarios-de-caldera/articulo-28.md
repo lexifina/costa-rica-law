@@ -1,0 +1,1 @@
+Artículo 28.—Los capitanes de las naves menores de doscientos cincuenta TRB, deben informar a la Autoridad Portuaria con suficiente anticipación, sobre las maniobras y movimientos que pretenden hacer dentro del puerto.

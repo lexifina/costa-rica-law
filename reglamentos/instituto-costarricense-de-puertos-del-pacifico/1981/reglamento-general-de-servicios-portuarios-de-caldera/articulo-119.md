@@ -1,0 +1,1 @@
+Artículo 119.—Todos los casos de mercancías en tránsito, tal como fue definido en el artículo anterior, deben ser autorizados previamente por el Instituto, de lo contrario no se compromete a aceptarlas.

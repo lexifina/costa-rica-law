@@ -1,0 +1,1 @@
+Artículo 148.—El Instituto entregará al porteador las mercancías debidamente chequeadas y hechas las anotaciones sobre su condición. En ese acto finaliza cualquier responsabilidad del Instituto sobre la carga.

@@ -1,0 +1,1 @@
+Artículo 96.—La cancelación del manifiesto contendrá los resultados de la entrega y recepción de carga y debe prepararse tan pronto concluyan las operaciones. Servirán para este efecto las anotaciones hechas en las libretas de chequeo.

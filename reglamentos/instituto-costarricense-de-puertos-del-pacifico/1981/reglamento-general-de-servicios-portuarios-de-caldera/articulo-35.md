@@ -1,0 +1,1 @@
+Artículo 35.—Los buques que se encuentren trabajando fondeados o atracados no podrán hacer reparaciones al casco por su parte exterior que requieran equipo de soldar, sin obtener el previo permiso del Instituto.

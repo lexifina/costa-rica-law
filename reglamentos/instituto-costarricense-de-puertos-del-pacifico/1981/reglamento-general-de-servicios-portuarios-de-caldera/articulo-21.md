@@ -1,0 +1,2 @@
+Artículo 21.—En caso que el cobro de los servicios prestados sobrepase el depósito, el usuario debe cancelar inmediatamente la diferencia que corresponda; de no hacerlo el Instituto podrá actuar conforme lo indica el artículo 8° de este Reglamento.
+En caso que el saldo de la liquidación sea acreedor, su importe le será devuelto al usuario o permanecerá acreditado para aplicarse a próximos servicios.

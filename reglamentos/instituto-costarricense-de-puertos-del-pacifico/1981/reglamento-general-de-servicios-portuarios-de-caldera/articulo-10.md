@@ -1,0 +1,1 @@
+Artículo 10.—Todo daño causado a las instalaciones y equipos propiedad del Instituto o bajo su administración, causado por embarcaciones o cualquier otro vehículo, será indemnizado por el responsable en el costo real del daño, dejándose constancia del suceso mediante el acta notarial respectiva.

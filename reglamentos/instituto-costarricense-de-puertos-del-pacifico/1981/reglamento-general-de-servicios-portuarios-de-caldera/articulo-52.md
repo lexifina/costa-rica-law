@@ -1,0 +1,1 @@
+Artículo 52.—La Autoridad Portuaria comunicará por escrito con dos horas de anticipación, a la agencia representante y demás funcionarios públicos, la hora en que se realizará la visita. Dicha recepción puede hacerse cualquier día y hora en que labora el puerto.

@@ -1,0 +1,1 @@
+Artículo 60.—A efecto de que el delegado del Ministerio de Seguridad Pública emita la autorización de zarpe de la nave, el Instituto le remitirá una comunicación en la que conste que el barco puede zarpar y que se encuentra solvente con Autoridad Portuaria en cuanto a los servicios prestados.

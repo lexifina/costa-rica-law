@@ -1,0 +1,1 @@
+Artículo 147.—Se entregará carga de importación de lunes a viernes de las 7.00 a las 12,00 y de las 13,00 a las 16,00 horas. Después de estas horas si se desea retirar carga deberá pagarse servicio extraordinario, en cuyo caso deberá hacerse la solicitud a la Autoridad Portuaria antes de las 15,00 horas.

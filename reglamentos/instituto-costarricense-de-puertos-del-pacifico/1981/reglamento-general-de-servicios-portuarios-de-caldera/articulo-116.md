@@ -1,0 +1,1 @@
+Artículo 116.—La mercancía de exportación que no sea embarcada debe retirarse del puerto dentro de cuarenta y ocho horas, después de este plazo se le aplicará al armador, la respectiva tarifa de almacenaje que determine este Reglamento. Esta misma disposición se aplicará a los buques que no lleguen en su fecha de anuncio.

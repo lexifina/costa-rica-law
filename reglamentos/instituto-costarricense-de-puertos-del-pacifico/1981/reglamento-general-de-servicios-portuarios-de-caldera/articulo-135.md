@@ -1,0 +1,1 @@
+Artículo 135.—El personal de a bordo de un buque tanque que opere inflamables debe revisar por lo menos una vez cada turno las amarras; además debe contar con cabos colgados a proa y popa en condiciones adecuadas para el inmediato auxilio de los remolcadores.

@@ -1,0 +1,1 @@
+Artículo 103.—Es obligación del armador procurar que la carga destinada al puerto se encuentre distribuida entre varias escotillas, con el objeto de instalar el mayor número de cuadrillas y lograr altos rendimientos en la operación.

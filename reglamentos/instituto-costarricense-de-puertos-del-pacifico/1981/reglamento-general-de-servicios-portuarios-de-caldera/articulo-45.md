@@ -1,0 +1,1 @@
+Artículo 45.—Las naves que reciban carga para Costa Rica desde puertos ubicados a menos de 48 horas de navegación, podrán adicionar por telex la información requerida directamente al puerto o por intermedio de su agente. Sin embargo en la visita oficial entregarán los manifiestos y demás información que corresponda.

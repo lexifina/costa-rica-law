@@ -1,0 +1,1 @@
+Artículo 23.—Normalmente los gastos de descarga son facturados al agente naviero, sin embargo en los caso? en que estos gastos corren por cuenta del importador según el contrato de netamente, serán cargados al consignatario siempre y cuando acepte por escrito los cargos y proceda conforme al artículo 19 de este Reglamento.

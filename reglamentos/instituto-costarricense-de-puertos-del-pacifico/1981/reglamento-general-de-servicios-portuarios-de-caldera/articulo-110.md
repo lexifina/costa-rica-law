@@ -1,0 +1,1 @@
+Artículo 110.—Un buque en lastre que llegue al puerto para tomar carga de exportación, podrá atracar siempre y cuando se encuentre por lo menos el 50% de su carga en el puerto, debiendo desatracar si no llega el resto de la carga o no se mantiene un ritmo adecuado.

@@ -1,0 +1,1 @@
+Artículo 150.—Cuando el ingreso o recepción indicados en el artículo anterior se extienda por más de un día para una sola partida en razón de la cantidad, se computará el plazo libre del cargo de almacenamiento conforme el volumen diario que ingrese al puerto o que se reciba en bodegas.

@@ -1,0 +1,1 @@
+Artículo 39.—Es obligación del Práctico, antes de proceder al atraque de un barco, cerciorarse de que las máquinas y equipos de descarga estén en buen estado de funcionamiento; si advierte desperfecto no se atracará y perderá su turno.

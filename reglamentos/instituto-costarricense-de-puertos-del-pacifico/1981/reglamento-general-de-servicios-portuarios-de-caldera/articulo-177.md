@@ -1,0 +1,1 @@
+Artículo 177.—Es entendido que el interesado, además de las presentes regulaciones, se somete a las que sobre la materia establece el Código Fiscal y a las disposiciones legales vigentes y que la autorización otorgada no lo exime de responsabilidad alguna.

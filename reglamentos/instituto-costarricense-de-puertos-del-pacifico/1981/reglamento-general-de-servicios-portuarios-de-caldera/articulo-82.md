@@ -1,0 +1,1 @@
+Artículo 82.—Mientras se encuentre atracado, todo buque colocará protectores contra ratas en las amarras. Estos deben colocarse inmediatamente después que se concluya la maniobra de atraque.

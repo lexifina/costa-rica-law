@@ -1,0 +1,1 @@
+Artículo 47.—En los casos de arribo forzoso, el Capitán de la nave podrá ordenar bajo su responsabilidad el desembarco de las personas y la carga que peligren sin la previa autorización del Instituto.

@@ -1,0 +1,2 @@
+Artículo 19.—El interesado, al presentar la solicitud de servicios, deberá depositar el valor estimado de los servicios que se requiere. Este valor se lo comunicará la Sección de Facturación del Departamento de Contabilidad al momento de recibir la solicitud.
+El importe del depósito debe ser pagado en dinero efectivo o cheques certificados, quedando a juicio de la Gerencia General o de la persona que ésta designe, la recepción de cheques contra bancos del Sistema Bancario Nacional, siempre y cuando se trate de usuarios conocidos.

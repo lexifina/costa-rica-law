@@ -1,0 +1,1 @@
+Artículo 50.—Cuando arriben al puerto varias naves a la misma hora y que hayan sido previamente anunciadas y confirmadas tendrán preferencia para iniciar operaciones aquellas cuyo agente haya confirmado primero. En caso de modificaciones en los avisos, regirá para cualquier efecto la última.

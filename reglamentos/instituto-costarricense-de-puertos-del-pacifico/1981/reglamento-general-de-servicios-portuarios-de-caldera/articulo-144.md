@@ -1,0 +1,1 @@
+Artículo 144.—El Instituto podrá como máximo entregar carga de importación simultáneamente a dos vehículos de la misma agencia aduanal en cada bodega. La alteración de esta norma sólo puede ser autorizada por el Guarda Almacén según la disponibilidad de equipos y puertas de salida libres.

@@ -1,0 +1,1 @@
+Artículo 85.—El embarque o desembarque de pasajeros, visitantes y tripulación se hará exclusivamente por cuenta y riesgo del armador y su agente, previo el cumplimiento de las disposiciones legales de migración y otras que correspondan.

@@ -1,0 +1,1 @@
+Artículo 32.—Toda embarcación que arribe al puerto de Caldera o cualquier otro marítimo o fluvial bajo la jurisdicción o administración del Instituto, deberá encontrarse en perfecto estado de flotabilidad y sus máquinas y aparejos deben estar en condiciones óptimas de servicio. A estos efectos portarán los certificados respectivos .

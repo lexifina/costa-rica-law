@@ -1,0 +1,1 @@
+Artículo 65.—Cuando los representantes de un barco soliciten un cambio de lugar de atraque en el muelle o salida a bahía, la agencia de la nave respectiva deberá pagar en su totalidad el costo del movimiento.

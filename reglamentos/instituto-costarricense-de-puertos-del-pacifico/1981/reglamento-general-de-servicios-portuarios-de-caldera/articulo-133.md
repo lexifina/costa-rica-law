@@ -1,0 +1,1 @@
+Artículo 133.—Ningún remolcador o lancha accionada por combustión interna o electricidad puede acercarse a un buque que se encuentre descargando líquidos inflamables, en caso necesario se debe paralizar la operación hasta que dichas embarcaciones se retiren.

@@ -1,0 +1,1 @@
+Artículo 7°—Es prohibido para los usuarios y proveedores ofrecer directa o indirectamente a los empleados y funcionarios del Instituto gratificaciones y/o compensaciones por servicios que en el ejercicio de sus cargos deban suministrar. En caso que éstos las acepten acarrearán las sanciones legales y disciplinarias que correspondan.

@@ -1,0 +1,1 @@
+Artículo 74.—El Capitán, el armador y su agente, serán solidariamente responsables de cualquier daño o perjuicio ocasionado al muelle o a otras instalaciones portuarias debido a impericias, omisiones, incumplimiento de disposiciones del Instituto, etc., o por cualquier otra causa imputable a ellos.

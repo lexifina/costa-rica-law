@@ -1,0 +1,1 @@
+Artículo 176.—El propietario de la embarcación autorizada para operar en el puerto de Caldera, deberá cubrir los costos de las inspecciones que efectúe el INCOP sobre la nave, mediante sus funcionarios técnicos, cuando el Gerente General considere que dicha embarcación debe someterse a una revisión.

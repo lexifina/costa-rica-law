@@ -1,0 +1,2 @@
+Artículo 76.—El Capitán o el Oficial al mando de todo buque, atracado, cuidará que su nave se encuentre lista para desatracar o cambiar de sitio, cuando a juicio del Instituto sea necesario hacerlo. Con tal fin, harán que las máquinas y tripulantes del buque permanezcan listas todo el tiempo que esté atracado.
+El incumplimiento de esta disposición se sancionará en la misma forma que lo son los buques que habiendo terminado sus operaciones no se desatraquen.

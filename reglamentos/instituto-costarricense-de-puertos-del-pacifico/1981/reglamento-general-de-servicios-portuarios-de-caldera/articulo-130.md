@@ -1,0 +1,1 @@
+Artículo 130.—En el embalaje de toda carga clasificada como peligrosa que se manipule en el puerto, deben consignarse los rótulos que indica IMCO y demás información que permita conocer el grado de peligrosidad.

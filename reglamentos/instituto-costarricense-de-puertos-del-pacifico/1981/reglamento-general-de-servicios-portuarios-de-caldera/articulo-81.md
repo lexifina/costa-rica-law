@@ -1,0 +1,1 @@
+Artículo 81.—El Instituto puede ordenar la suspensión de labores y el desatraque de una nave, cuando considere que la forma y condiciones de trabajo perjudican las labores portuarias y la atención de otros buques.

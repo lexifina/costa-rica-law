@@ -1,0 +1,1 @@
+Artículo 109.—Una vez terminadas las operaciones de embarque y dentro de las cuarenta y ocho horas siguientes, el armador o su agente deben presentar al Instituto una copia de cada conocimiento de embarque de todas las cargas de exportación y una copia del sumario de la misma.

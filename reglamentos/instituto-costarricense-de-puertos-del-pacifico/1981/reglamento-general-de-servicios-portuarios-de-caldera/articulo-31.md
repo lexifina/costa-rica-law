@@ -1,0 +1,1 @@
+Artículo 31.—El capitán de la nave debe mostrar a la Autoridad Portuaria los certificados de navegación y demás documentos que comprueben la validez de sus seguros en el momento que le sean requeridos. Si no los tuviera el armador o su agente garantizarán a satisfacción de la Autoridad Portuaria las responsabilidades correspondientes.

@@ -1,0 +1,3 @@
+Artículo 18.—Todo usuario, cualquiera que sea su clase, que necesite los servicios portuarios o en alguna forma utiliza las instalaciones o facilidades del Instituto, deberá requerirlos por escrito.
+Dicha solicitud deberá indicar claramente la identificación del servicio que solicita, bajo un formato de presentación que se entregará de conformidad con el Manual de Normas y Procedimientos del Instituto.
+La solicitud será firmada por el usuario o su representante, previamente acreditado como tal ante la institución, para lo cual ésta llevará un registro de firmas de las personas facultadas por el usuario para contraer las responsabilidades que implica la prestación del servicio.

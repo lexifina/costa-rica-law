@@ -1,0 +1,1 @@
+Artículo 84.—Es prohibido arrojar al mar basuras, cenizas, aceites, desperdicios o materiales similares, desde los buques atracados al muelle o fondeados. En caso de incumplimiento, el Instituto hará la limpieza y los costos serán cobrados al armador o su agente.

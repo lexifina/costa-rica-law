@@ -1,0 +1,1 @@
+Artículo 105.—En el recibo de carga del buque el Instituto no es responsable por el contenido ni por vicios ocultos o daños que la mercancía haya sufrido. Tampoco responderá por averías o pérdidas debido a causa mayor o caso fortuito.

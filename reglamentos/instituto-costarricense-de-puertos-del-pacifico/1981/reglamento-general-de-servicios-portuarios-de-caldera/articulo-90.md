@@ -1,0 +1,1 @@
+Artículo 90.—Las naves que porten explosivos en tránsito, deben poner señales especiales de día y de noche y tomar las precauciones posibles. El Instituto pondrá los guardas de Vigilancia Portuaria que considere necesario en la bodega respectiva por cuenta del armador o su agente.

@@ -1,0 +1,1 @@
+Artículo 115.—El traslado de carga de exportación a otro buque que no sea el indicado originalmente, debe ser autorizado por escrito por el armador a cuyo buque estaba consignada la carga. Los gastos que originen esta circunstancia como el traslado en bodega al apilamiento de carga del buque que la recibirá, serán cargados al embarcador o su agente.

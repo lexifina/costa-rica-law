@@ -1,0 +1,1 @@
+Artículo 100.—Las bodegas del Instituto en el puerto son bodegas de tránsito, por lo tanto las mercancías de importación deben ser trasladadas a recintos fuera del área portuaria lo más rápido posible. Igualmente la carga de exportación debe transportarse al puerto en una fecha cercana al arribo del buque.

@@ -1,0 +1,1 @@
+Artículo 120.—Se considera de tránsito en el puerto la carga que porte el buque con otros destinos, mientras éste se encuentre en la zona portuaria, por lo tanto en cuanto a ella deben observarse las medidas de seguridad y otras que señale este Reglamento.

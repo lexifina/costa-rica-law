@@ -1,0 +1,1 @@
+Artículo 129.—Cuando se desembarquen explosivos y/o inflamables por cualquier medio, deben instalarse en el sitio y en las escalerillas de acceso, los letreros indicativos de peligro que sean menester y los de prohibiciones pertinentes.

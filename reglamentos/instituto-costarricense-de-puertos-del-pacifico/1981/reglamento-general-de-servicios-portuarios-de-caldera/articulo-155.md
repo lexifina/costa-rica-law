@@ -1,0 +1,1 @@
+Artículo 155.—No obstante lo anterior, con veinticuatro horas de anticipación a la llegada del buque el Armador o su agente deben entregar a la Dirección de Operaciones el programa de trabajo específico para preparar la terminal para la recepción o entrega de los contenedores.

@@ -1,0 +1,1 @@
+Artículo 67.—Los buques serán atendidos siguiendo el orden en que sean recibidos por las autoridades, con excepción de los buques que deban cargar ganado en pie, carga refrigerada, productos perecederos o con carga especial para el Gobierno de Costa Rica y sus instituciones, los cuales tendrán preferencia en el atraque.

@@ -1,0 +1,1 @@
+Artículo 123.—Los buques que se encuentren en puerto esperando turno o efectuando operaciones de embarque o desembarque de carga peligrosa o que porten ésta con destino a otros puertos, deben instalar las señales que fijen los reglamentos internacionales o el puerto para estos casos, tanto de día como de noche.

@@ -1,0 +1,1 @@
+Artículo 53.—El representante del armador debe abordar la nave con los funcionarios que fija el artículo 51 de este Reglamento, debiendo prestar su asistencia para facilitar la recepción. Además es el responsable de suministrar al Instituto la documentación que se indica en el artículo 57 de este Reglamento.

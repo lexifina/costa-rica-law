@@ -1,0 +1,2 @@
+Artículo 124.—En el caso de importación de explosivos, además de aparecer consignados en el manifiesto, deben ser objeto de una carta especial del armador o su agente al Instituto que se entregará 48 horas antes del arribo, conteniendo información sobre la clase de explosivo, número de bultos, lugar de estiba y destino.
+El incumplimiento de estos requisitos acarreará la pérdida de todos los derechos y el buque será retirado a la zona de segurid-ad establecida por la Autoridad Portuaria.

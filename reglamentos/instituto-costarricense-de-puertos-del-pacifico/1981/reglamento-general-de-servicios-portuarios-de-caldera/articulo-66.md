@@ -1,0 +1,1 @@
+Artículo 66.—Las naves que requieran transporte, equipo o personal especializado para la operación que van a realizar en puerto y que no se encuentren disponibles, cederán el derecho de atraque a la nave que le siga en turno, siempre que ésta sí pueda realizar las operaciones.

@@ -1,0 +1,1 @@
+Artículo 97.—En el caso de cargas vivas o perecederas, todo tipo de atención a los animales o a la carga para la supervivencia y buen estado son responsabilidad del embarcador o consignatario. Por lo tanto el Instituto no asume responsabilidad de orden civil o penal por esos conceptos.

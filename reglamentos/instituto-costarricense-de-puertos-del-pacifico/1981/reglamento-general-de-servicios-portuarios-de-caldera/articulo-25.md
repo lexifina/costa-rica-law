@@ -1,0 +1,1 @@
+Artículo 25.—Se conoce como rada la zona comprendida entre el borde del muelle, una paralela al mismo a mil metros de distancia y la intersección con esta paralela de la línea centro del rompeolas. La rada, los canales de acceso y la zona de fondeo están reservadas a las maniobras de los buques, no permitiéndose el fondeo permanente sin la autorización de la Autoridad Portuaria.

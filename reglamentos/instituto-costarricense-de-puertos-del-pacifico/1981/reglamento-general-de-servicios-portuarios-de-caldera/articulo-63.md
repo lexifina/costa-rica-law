@@ -1,0 +1,1 @@
+Artículo 63.—Por regla general se asignará atracadero, cuadrillas y equipo a los buques según el orden de llegada al puerto. Este orden podrá ser alterado por el Instituto de acuerdo con la regulación que se menciona más adelante.

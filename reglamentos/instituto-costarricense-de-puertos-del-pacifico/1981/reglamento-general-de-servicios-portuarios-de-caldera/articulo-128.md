@@ -1,0 +1,1 @@
+Artículo 128.—Toda nave que transporte productos inflamables o explosivos, debe contar con equipos fijos y/o manuales contra incendios en buenas condiciones de uso y aplicables al tipo de carga que se trate.

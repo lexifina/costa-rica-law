@@ -1,0 +1,1 @@
+Artículo 127.—El Armador, Capitán y/o representantes del buque que se encuentre descargando inflamables o explosivos debe tomar todas las precauciones y medidas del caso para que sus equipos, máquinas, herramientas, tripulación, etc., no ocasionen la generación de chispas y/o calor que activen las propiedades de la mercancía que se descargue o cargue.

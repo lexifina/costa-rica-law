@@ -1,0 +1,1 @@
+Artículo 114.—El portador de carga de exportación al puerto, se ajustará estrictamente a todas las indicaciones del Instituto respecto a lugar de acceso, tránsito en puerto y zona o lugar de descarga.

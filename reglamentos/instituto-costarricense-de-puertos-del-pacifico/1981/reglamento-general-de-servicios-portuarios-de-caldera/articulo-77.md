@@ -1,0 +1,1 @@
+Artículo 77.—Terminadas las operaciones de carga y descarga, el buque deberá abandonar el puesto de atraque dentro de una hora, después de la cual se cobrará una tarifa de $ 1.200,00 (mil doscientos dólares sin centavos) por hora o fracción que permanezca atracado.

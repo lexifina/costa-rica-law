@@ -1,0 +1,1 @@
+Artículo 159.—La mercancía de los contenedores LCL de importación será descargada en bodega tan pronto se desembarquen del buque y el contenedor será estibado en el patio. Para efectuar la verificación del contenido se entregará a la Terminal tres copias de la lista de empaque respectiva.

@@ -1,0 +1,1 @@
+Artículo 2°—Este Reglamento se emite con el objeto de regular la prestación de los servicios portuarios del Instituto en el Puerto de Caldera, de acuerdo con la facultad que le confiere el artículo 2°, inciso j) de la citada ley y el Decreto Ejecutivo que le concede su administración.

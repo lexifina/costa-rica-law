@@ -1,0 +1,1 @@
+Artículo 78.—Toda embarcación que estando atracada en los muelles, fondeada o en tránsito en la rada, descubra daños en sus máquinas que le impidan la movilización normal, debe ser retirada por el armador o su agente fuera de las aguas del puerto.

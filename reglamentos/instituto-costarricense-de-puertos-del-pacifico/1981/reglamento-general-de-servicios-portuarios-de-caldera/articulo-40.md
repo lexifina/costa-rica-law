@@ -1,0 +1,1 @@
+Artículo 40.—Se entenderá como servicio ordinario de pilotaje y de remolque, la introducción y conducción de las naves dentro de la bahía para su fondeo o atraque, según sea el caso, su posterior atraque cuando haya quedado fondeado, el desatraque y conducción para salir de la bahía, el uso de remolcador para atracar y desatracar.

@@ -1,0 +1,1 @@
+Artículo 107.—Se considerará que en la carga de importación forman una sola consignación, todos aquellos bultos que figuran en un solo conocimiento de embarque, aun cuando sean de diferentes marcas, tipo, contenido, peso o tamaño.
