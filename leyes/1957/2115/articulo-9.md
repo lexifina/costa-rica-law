@@ -1,1 +1,2 @@
-Artículo 9º.- Las Municipalidades con jurisdicción en las zonas declaradas palúdicas proveerán las cabalgaduras requeridas por las cuadrillas de dedetización.
+Artículo 9º.- La Contraloría General de la República no podrá aprobar el presupuesto de ninguna Municipalidad con jurisdicción en las zonas declaradas palúdicas, si en dichos presupuestos no se incluye la correspondiente partida destinada a proveer las cabalgaduras requeridas por los funcionarios y empleados del Servicio Nacional de Erradicación de la Malaria.
+(Así reformado por el artículo 1° de la ley N° 2410 del 28 de julio de 1959)
