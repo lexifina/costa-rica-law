@@ -1,0 +1,2 @@
+Artículo XX.—Finiquitada la notificación con todos los requisitos para la construcción y vencido el plazo para presentar recursos de revocatoria y apelación o conforme con e! resultado, se procederá hecho el pago requerido y previa presentación del recibo correspondiente debidamente cancelado, y fotocopia de la póliza del INS, a extender el permiso correspondiente, el que deberá ser firmado por el Ingeniero Municipal.
+Además se extenderá con un número de permiso de construcción, el cual deberá ser colocado en un lugar visible de la construcción.

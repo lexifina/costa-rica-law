@@ -1,0 +1,1 @@
+Artículo XVIII.—Si la oficina de Ingeniería Municipal encontrare correctos ¡os planos y completa la información, dará la aprobación a dicha solicitud, la cual debe rendirse dentro del plazo estipulado. Una vez aprobado se le notificará al interesado el monto a pagar.

@@ -1,0 +1,1 @@
+Artículo XL.—En la línea de propiedad y a nivel de acera no se permitirá la instalación de portones o puertas que abran hacia la zona de acera, obstruyendo el paso libre en ésta. Asimismo no se permitirá la construcción de gradas en al zona o área de acera.

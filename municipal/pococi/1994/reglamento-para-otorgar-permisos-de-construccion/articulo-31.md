@@ -1,0 +1,1 @@
+Artículo XXXI.—En la línea de propiedad y en el espacio comprendido entre ésta y la línea de construcción, no se podrán construir vallas sólidas con una altura mayor a un metro. Por sobre esa altura se podrá continuar únicamente con elementos que permitan una buena visibilidad tales como rejas, verjas, mallas. Se excluye de esta disposición el caso de los muros de retención.

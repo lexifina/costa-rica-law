@@ -1,0 +1,1 @@
+Artículo XXV.— La Municipalidad garantizará la libertad para adoptar la arquitectura o diseño de las fachadas de las construcciones. Sin embargo, podrá hacer objeciones a la mismas a fin de que guarde relación estética con la zona en que ubiquen, en caso de construcciones en la zona de Control Especial debe considerarse los requisitos establecidos para esta zona.

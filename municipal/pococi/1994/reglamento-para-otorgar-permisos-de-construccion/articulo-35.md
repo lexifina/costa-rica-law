@@ -1,0 +1,1 @@
+Artículo XXXV.—Será obligatorio para todo propietario que solicite permiso para realizar una construcción, remodelación, construir acera, cordón y caño, y entubado pluvial. Obras que deben ser construidas cuando la construcción o remodelación según sea el caso, se encuentren en el cincuenta por ciento del desarrollo.

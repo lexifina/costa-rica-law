@@ -1,0 +1,1 @@
+Artículo XIII.—Todo edificio que se construya o reconstruya en lo sucesivo frente a la vía pública, deberá ajustarse al alineamiento de la Municipalidad de Pococí o del Ministerio de Obras Públicas y Transportes, según corresponda.

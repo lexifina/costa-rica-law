@@ -1,0 +1,1 @@
+Artículo XV.—En los planos deberán estar consignadas las especificaciones mínimas necesarias para la ejecución de la obra, como son la calidad y la resistencia de los materiales, recubrimiento de la armadura y otras, que se estimen convenientes tener al alcance durante el proceso de construcción.

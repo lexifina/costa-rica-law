@@ -1,0 +1,1 @@
+Artículo XXIII.—En los casos en que la Municipalidad lo considere necesario, podrá realizar una recalificación del monto del impuesto de construcción, con base en una inspección realizada una vez concluida la obra.
