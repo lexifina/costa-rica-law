@@ -1,26 +1,181 @@
-ARTICULO 1.- Refórmase integralmente la Ley de Pensiones y
-Jubilaciones del Magisterio Nacional, No. 2248 del 5 de setiembre de l958 y
-sus reformas, para que en lo sucesivo diga de la siguiente manera:
-CAPITULO I
+NOTA: Por tratarse de una reforma integral a la Ley de Pensiones y Jubilaciones del Magisterio Nacional, N° 2248 de 5 de septiembre de 1958,
+el texto vigente (con las afectaciones imputadas a la presente ley) debe consultarse en la Ley N° 2248.
+Ley Nº 7268
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA INTEGRAL A LA LEY DE PENSIONES Y JUBILACIONES
+DEL MAGISTERIO NACIONAL, NÚMERO 2248 DEL 5 DE
+SEPTIEMBRE DE 1958 Y SUS REFORMAS
+Artículo1º.- Refórmase integralmente la Ley de Pensiones y Jubilaciones del Magisterio Nacional, No. 2248 del 5 de setiembre de l958 y sus reformas, para que en lo sucesivo diga de la siguiente manera:
+CAPÍTULO I
 DEL REGIMEN DE PENSIONES Y JUBILACIONES
 De los beneficiarios
-Artículo 1º.- Estarán protegidos por los alcances y beneficios de
-esta Ley las personas que se desempeñen en el Magisterio Nacional,
-específicamente:
-a) Quienes sirvan en cargos docentes, tal y como lo define el
-artículo 54 de la Ley de Carrera Docente, en instituciones
-educativas públicas o privadas de enseñanza preescolar,
-enseñanza general básica, educación diversificada y en las
-universidades estatales.
-b) El personal administrativo del Ministerio de Educación Pública
-y de los centros de educación antes indicados.
-c)(*)Los funcionarios del Instituto Nacional de Aprendizaje, (que
-ejerzan actividades docentes).
-(*)Anulada la frase escrita entre paréntesis por Resolución de la
-Sala Constitucional Nº 3769-96 de las 15:09 horas del 23 de
-julio de 1996.
+Artículo 1º.- Estarán protegidos por los alcances y beneficios de esta Ley las personas que se desempeñen en el Magisterio Nacional, específicamente:
+a) Quienes sirvan en cargos docentes, tal y como lo define el artículo 54 de la Ley de Carrera Docente, en instituciones educativas públicas o privadas de enseñanza preescolar, enseñanza general básica, educación diversificada y en las universidades estatales.
+b) El personal administrativo del Ministerio de Educación Pública y de los centros de educación antes indicados.
+c) (*) Los funcionarios del Instituto Nacional de Aprendizaje, (que ejerzan actividades docentes).
+(*)Anulada la frase escrita entre paréntesis por Resolución de la Sala Constitucional Nº 3769-96 de las 15:09 horas del 23 de julio de 1996.
 ch) Quienes ya gozan de pensión o jubilación al amparo de esta Ley.
-Los beneficios de esta Ley sólo se concederán en el caso de
-que, efectivamente, se hayan pagado las cuotas obreras y patronales
-al Fondo de Pensiones y Jubilaciones del Magisterio Nacional según se
-establece en el artículo 11.
+Los beneficios de esta Ley sólo se concederán en el caso de que, efectivamente, se hayan pagado las cuotas obreras y patronales al Fondo de Pensiones y Jubilaciones del Magisterio Nacional según se establece en el artículo 11.
+De las condiciones y requisitos
+Artículo 2º.- Tendrán derecho a acogerse a la jubilación ordinaria, los servidores que se hallen en cualquiera de los siguientes casos:
+a) Los que hayan servido por treinta años al Magisterio Nacional y hayan cubierto las cuotas que, bajo esta Ley, les corresponda contribuir, al Régimen de Pensiones y Jubilaciones del Magisterio por el mismo período de tiempo.
+b) Los que hayan servido y cotizado veinticinco años al Magisterio, siempre que durante diez años consecutivos o quince alternos lo hayan hecho en la enseñanza especial o con horario alterno o en zonas que no cuenten con servicio y condiciones de salubridad y comodidad, a juicio de una comisión permanente integrada por dos representantes de las organizaciones gremiales del Magisterio, uno del Ministerio de Educación Pública, uno del Ministerio de Salud y un representante del Consejo Nacional de Rectores. Esta comisión hará una calificación de zonas cada dos años. Para los efectos de esta Ley, se entenderá por horario alterno aquél por el cual, un profesor de enseñanza primaria o preescolar tiene a su cargo dos secciones.
+c) Quienes hayan servido consecutivamente o en forma alterna, en las condiciones establecidas en el inciso b) anterior, sin alcanzar los términos indicados, en cuyo caso tendrán derecho, para efectos de cómputo del tiempo señalado en el inciso a), a que se les reconozcan adicionalmente cuatro meses por cada año laborado en dichas condiciones.
+ch) Quienes en el ejercicio de su profesión alcanzaran sesenta años de edad y tuvieran veinte años de servicio efectivo en el Magisterio.
+d) Los sacerdotes que cumplan treinta años de ejercicio eclesiástico y por lo menos veinte años de servicio en el Magisterio Nacional.
+Los años de servicio, a que se refiere este artículo, deberán probarse mediante certificación emitida por la Sección de Expedientes del Departamento de Personal del Ministerio de Educación o por el Departamento de Personal de las universidades y, en el caso de servidores de instituciones privadas, se acreditarán mediante certificación de la Caja Costarricense de Seguro Social. La cotización efectiva al Fondo de Pensiones y Jubilaciones del Magisterio Nacional se acreditará mediante certificación de la Contabilidad Nacional en los casos de servidores públicos y mediante certificación de la Junta de Pensiones en el caso de las instituciones privadas.
+En el cómputo de esos años, se incluirán las licencias por incapacidad concedidas de acuerdo con los artículos l65, l66, l67, l70 y l73 de la Ley de Carrera Docente, No. 4565 del 4 de mayo de l970.
+En ninguna circunstancia, se concederán pensiones ordinarias a funcionarios con menos de veinticinco años de servicio efectivo, excepto los casos contemplados en los incisos ch) y d) anteriores.
+En todo caso, al acogerse a las disposiciones de este artículo, el interesado deberá comprobar que ha servido por lo menos veinte años en la educación nacional y se le reconocerán hasta diez años de servicio en otras dependencias del Estado, siempre y cuando haya cotizado para el Régimen, con sus respectivos aumentos anuales.
+Si en el momento de jubilarse, labora en instituciones que no pertenecen al Magisterio Nacional, se utilizará como base para calcular el monto de su jubilación, el salario actualizado del último puesto que ocupó en el Magisterio.
+Artículo 3º.- La jubilación extraordinaria se otorga a solicitud del interesado, siempre que compruebe hallarse en alguno de los siguientes casos:
+a) Después de quince años de servicio y de haber sido incapacitado total o definitivamente para el ejercicio del cargo a juicio de un Tribunal Médico designado por la Junta Directiva del Colegio de Médicos y Cirujanos, renovable cada dos años. Si el solicitante de la pensión extraordinaria padeciera de alguna enfermedad no comprendida en la especialidad de ninguno de los médicos del Tribunal, éste designará al facultativo o a los facultativos de la especialidad requerida para que dictaminen, a fin de que su informe sirva de elemento básico para sustentar el veredicto final.
+(Anulada la frase: "Después de quince años de servicio..." por Resolución de la Sala Constitucional Nº 5261-95 de las 15:27 horas del 26 de septiembre de 1995.)
+b) Haber servido por un período menor al descrito en el inciso anterior y ser incapacitado permanentemente como consecuencia de un acto de abnegación en que hubiera arriesgado la vida, por interés público o por salvar la de otra persona, independientemente de sus años de servicio. La incapacidad permanente para el desempeño de las funciones se demostrará mediante los dictámenes médicos a que se refiere el inciso a). En estos casos, se otorgará la pensión completa.
+Si para la emisión del respectivo dictamen médico no hubiera unanimidad de pareceres, la Junta de Pensiones y Jubilaciones del Magisterio Nacional enviará los dictámenes individuales en consulta a la Junta Directiva del Colegio de Médicos y Cirujanos, la que, previo examen del solicitante, por ella o por los especialistas que designe, resolverá en definitiva.
+Artículo 4º.- Son deberes y limitaciones de quienes gocen de jubilación extraordinaria los siguientes:
+a) Someterse a examen médico en la fecha que señale la Junta de Pensiones, por lo menos cada dos años y hasta por tres períodos consecutivos, para comprobar que persiste la incapacidad. A quien se negara a observar este requisito en un plazo de dos meses posteriores a la fecha prevista por la Junta, se le suspenderá el disfrute de su pensión hasta que cumpla con éste.
+La Tesorería Nacional, bajo ninguna circunstancia, emitirá el giro que corresponda a una persona que no haya cumplido con esta disposición.
+b) Podrán ejercer labores de docencia, investigación o administrativas en la docencia oficial, en la particular y en las universidades, siempre que ellas no sean remuneradas y la incapacidad que dio origen a la pensión se lo permita.
+c) Incorporarse de nuevo a sus labores, aquel pensionado que se rehabilite de la dolencia que padecía, dentro de los tres períodos consecutivos a que se refiere el inciso a) anterior, en el entendido de que se le seguirá girando la pensión hasta tanto no tenga un puesto docente o administrativo en la enseñanza oficial o particular.
+ch) Tratándose de servidores rehabilitados de acuerdo con el inciso a), los años de retiro por pensión, se tomarán como tiempo servido para efectos de su eventual pensión, en la misma forma en que se computan las licencias por enfermedad.
+Si el servidor rehabilitado se incapacita nuevamente por la misma causa por la cual se le dio la licencia por incapacidad, automáticamente debe acogerse a la pensión.
+Perderá la pensión quien no se reintegre al puesto en el siguiente período a aquel al que fue nombrado.
+Artículo 5º.- Los funcionarios activos del Ministerio de Educación Pública que, por ocupar cargos a tiempo completo en la dirigencia de las organizaciones gremiales, corporativas y sindicales directamente vinculadas con el Magisterio Nacional, hayan disfrutado de licencia sin goce de salario en el ejercicio de esa representación, tendrán derecho a que el tiempo destinado a tal actividad se les reconozca como años de servicio para efectos de pensión únicamente, lo que en ningún caso podrá exceder de diez años.
+Artículo 6º.- Nadie podrá devengar pensión o jubilación mientras desempeñe cargo o empleo remunerado en organismos del Estado o instituciones autónomas y municipales, excepto los miembros del Consejo Superior de Educación, regidores y síndicos municipales, quienes devengan dietas en juntas directivas de instituciones públicas y el personal académico al servicio de los centros de enseñanza superior universitaria estatal. Estos últimos podrán ser recontratados hasta por un máximo de medio tiempo, para programas de postgrado o investigaciones de alto nivel, de conformidad con los procedimientos y requisitos que cada entidad establecerá al efecto.
+Los montos devengados por estos conceptos no se reconocerán para efectos de la pensión. La condición de jubilado o pensionado se suspenderá por el tiempo en que el interesado desempeñe el empleo o cargo, salvo en los casos de excepción indicados.
+Artículo 7º.- Para los efectos de jubilaciones ordinarias o pensiones extraordinarias, el año natural no podrá contarse por más de un año de servicio, con excepción de lo establecido en el inciso c) del artículo 2.
+Al sumar el tiempo de servicio, las fracciones de un año que resulten se contarán por años enteros, si son iguales o mayores a seis meses. No serán tomados en cuenta si fueran en lapsos menores.
+El monto de la jubilación será una suma completa de colones, en la que contará como un colón toda fracción de cincuenta o más céntimos.
+Del monto de la pensión
+Artículo 8º.- El monto del beneficio se determinará de conformidad con las siguientes reglas:
+a) Cuando la jubilación fuera ordinaria, será determinada con base en el promedio de los doce mejores salarios -calculados con una dedicación a tiempo completo y devengados durante los últimos dos años en el servicio del Magisterio Nacional, más el promedio de los sobresueldos devengados en el mismo período y por el mismo concepto.
+El monto del beneficio se calculará de acuerdo con la jornada promedio cumplida en los diez últimos años de servicio.
+Sólo tendrán derecho a la revisión de su jubilación, quienes se reincorporen al servicio efectivo en el Magisterio Nacional durante dos años como mínimo. Se entiende por servicio efectivo aquel desempeñado por el funcionario mientras permanezca en el puesto y labore efectivamente según manda la Ley y no se incapacite más de un quince por ciento (15%) del tiempo de servicio real.
+Al servidor rehabilitado, se le reajustará su pensión en el momento de retiro, de acuerdo con lo estipulado en el párrafo anterior.
+El pago por concepto de dedicación exclusiva se considerará, para todos los efectos de esta Ley, como salario y las constancias sobre los mismos serán extendidas conforme a lo indicado.
+b) Si se tratara de servicios prestados en instituciones particulares educativas, se hará el cálculo a que se refiere el inciso a), tomando como base el sueldo de categoría, reportado a la Caja Costarricense de Seguro Social, de acuerdo con la clasificación de puestos del Servicio Civil.
+c) Cuando la pensión fuera extraordinaria, se determinará como se indica en el inciso a) anterior, pero se dividirá esa suma entre el número de años exigido para la jubilación ordinaria o, según sea el caso, si se ha desempeñado el servicio con horario alterno en la enseñanza especial o en zonas calificadas como incómodas o insalubres y se multiplicará la cantidad así obtenida por el número de años de servicio.
+Artículo 9º.- El tope máximo por pensión o jubilación, dentro del Régimen del Magisterio Nacional, será el salario correspondiente a la clase de puesto de Director General de Educación con treinta aumentos anuales. Sin embargo, todos aquellos funcionarios que, una vez cumplidos los requisitos para obtener una jubilación ordinaria, decidieran mantenerse en sus funciones tendrán opción a mejorar el monto de la misma en un cinco coma seis por ciento (5,6%) por cada año natural de postergación, hasta por un período de siete años, sin que el monto final de la jubilación supere el salario de un catedrático universitario con dedicación exclusiva y treinta anualidades al momento de hacer efectivo su retiro laboral. En este caso, continuarán cotizando para el régimen de Pensiones y Jubilaciones del Magisterio Nacional durante estos años.
+En ningún caso, existirá pensión o jubilación por una suma inferior al monto del salario del puesto de clase mínima actualizado en la Administración Pública.
+Artículo 10.- Al realizarse una revaloración de los puestos protegidos por el Servicio Civil, como consecuencia del aumento en el costo de la vida, la Junta de Pensiones y Jubilaciones del Magisterio Nacional deberá homologar los derechos jubilatorios en el mismo monto y en la misma forma en que se incrementan los sueldos de los referidos servidores activos del Ministerio de Educación Pública.
+Sin excepción alguna, los pensionados y jubilados de las instituciones públicas y privadas reconocidas oficialmente recibirán, únicamente, los aumentos decretados por costo de vida para los servidores protegidos por el Servicio Civil.
+Los derechos jubilatorios que superen el máximo determinado en el artículo 9 de esta Ley, no serán revalorados mientras mantengan esa condición.
+Para pagar el reajuste o los aumentos citados en párrafos anteriores, se destinará la aportación referida al artículo 11 de la presente Ley.
+De la cotización
+Artículo 11.- La cuantía de las jubilaciones se cubrirá en la siguiente forma:
+a) Un treinta y tres punto treinta y tres por ciento (33.33%) a cargo de los servidores activos, jubilados y pensionados cubiertos por el sistema.
+b) Un treinta y tres punto treinta y tres por ciento (33.33%) será cubierto mediante las cuotas patronales.
+c) Un treinta y tres punto treinta y tres por ciento (33.33%) restante lo cubrirá el Estado.
+Artículo 12.- La cuota de cada servidor activo será del siete por ciento (7%) del salario; sin embargo, la Junta de Pensiones y Jubilaciones del Magisterio Nacional podrá aumentar esta cuota hasta un nueve por ciento (9%) del salario, de acuerdo con lo dispuesto por los artículos 11, 24 inciso c) y 26 de esta Ley.
+Los pensionados y jubilados contribuirán al régimen de conformidad con las siguientes disposiciones:
+1.- Quienes perciban montos inferiores a los ¢30.000 estarán exentos de cotizar.
+2.- Los que perciban pensiones o jubilaciones entre los ¢30.000 y los ¢40.000 inclusive, cotizarán con un uno y medio por ciento (1 y 1/2%) de ellas.
+3.- Quienes perciban pensiones o jubilaciones superiores a los ¢40.000 e inferiores a los ¢55.000, cotizarán con un tres por ciento (3%).
+4.- Los que disfruten de pensiones o jubilaciones superiores a los ¢55.000 e inferiores a los ¢72.000, cotizarán con un cinco por ciento (5%).
+5.- Los que disfruten de pensiones o jubilaciones superiores a los ¢72.000, cotizarán de igual forma que los servidores antiguos.
+Quienes perciban pensiones o jubilaciones superiores al tope máximo establecido en el párrafo primero del artículo 9 de esta Ley, aportarán, además del porcentaje indicado en el párrafo inmediato anterior, una contribución especial, con destino específico para el fortalecimiento del Fondo, según la siguiente escala:
+a) Sobre el exceso de este tope y hasta un veinticinco por ciento (25%) adicional a esa suma, cotizarán con un quince por ciento (15%) de ese exceso.
+b) Sobre el exceso del monto máximo de la base de cálculo inmediata anterior y hasta un veinticinco por ciento (25%) adicional a esa suma, cotizarán con un 25% de ese exceso.
+c) Sobre el exceso del monto máximo de la base de cálculo inmediata anterior y hasta un veinticinco por ciento (25%) adicional a esa suma, cotizarán con un treinta y cinco por ciento (35%) de ese exceso.
+ch) Sobre el exceso del monto máximo de la base de cálculo inmediata anterior en adelante, cotizarán con un cuarenta y cinco por ciento (45%) de ese exceso.
+Se exceptúan de la contribución de este aporte excepcional a título de solidaridad, los funcionarios que se acojan al beneficio de postergación contenido en el párrafo segundo del artículo 9 de esta Ley.
+Los servidores activos o pensionados deberán, para efectos de financiar el derecho jubilatorio ordinario, cotizar con trescientas sesenta cuotas. Las pensiones extraordinarias no deberán completar ese número de cuotas.
+Artículo 13.- Las cuotas del Estado, como patrono y como Estado, figurarán en el presupuesto ordinario de cada año. Las cuotas que, como patrono, les correspondan a las instituciones de educación superior estatales, formarán parte de los egresos a los que hace referencia el artículo 85 de la Constitución Política.
+Artículo 14.- Las cuotas de las instituciones particulares, provenientes de las retenciones hechas a los servidores de ellas, así como las cuotas patronales correspondientes, se depositarán mensualmente en la cuenta del Erario Público y se adicionarán a las retenciones hechas a los servidores de las instituciones públicas. La Junta de Pensiones podrá realizar un acuerdo con la Caja Costarricense de Seguro Social para que, al utilizar la estructura de esta Institución, se recauden las cuotas correspondientes de los servidores de las instituciones particulares. Al liquidarse el año fiscal, el remanente de esa suma se depositará en la cuenta de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, para adicionarlo al fondo establecido en el artículo 28 de esta Ley.
+Artículo 15.- Con los fondos previstos para ese efecto, por medio de la Pagaduría Nacional, el Estado pagará todas las pensiones y jubilaciones a que se refiere esta Ley.
+Disposiciones varias
+Artículo 16.- Las pensiones o jubilaciones son vitalicias e inembargables. Igualmente serán inembargables los derechos de sucesión resultantes de ellas, pero su condición de vitalicias, en este caso, deberá ser determinada con base en lo establecido en el artículo 22 de la presente Ley.
+Artículo 17.- La eventual promulgación de una Ley General de Pensiones y Jubilaciones del sector público, deberá respetar los derechos, beneficios y otras concesiones que se adquieren al amparo de esta Ley, según las disposiciones del Convenio Básico de Educación Centroamericana, ratificado por la Ley No. 3726 del 16 de agosto de 1966.
+CAPÍTULO II
+DEL DERECHO DE SUCESIÓN
+Artículo 18.- Cuando falleciera un beneficiario jubilado o con derecho a la jubilación, de conformidad con las disposiciones de la presente Ley, el derecho de sucesión podrá ser aprovechado por las siguientes personas, en el orden que a continuación se indica, sin otro trámite que el de identificación, además de las condiciones que se establecen para los incisos d) y f).
+a) El cónyuge supérstite en concurrencia con los hijos.
+b) Los hijos, solamente.
+c) El cónyuge supérstite en concurrencia con los padres del causante.
+ch) El cónyuge supérstite.
+d) Los hermanos dependientes del fallecido, hasta los veinticinco años de edad, siempre que sean estudiantes solteros o inválidos declarados incapaces para ejercer alguna profesión u oficio, de cualquier edad.
+e) Los padres del fallecido.
+f) Los nietos menores de edad, dependientes del causante, previa comprobación de su dependencia y de la necesidad de los recursos para su sobrevivencia, comprobación que se realizará mediante un estudio socioeconómico realizado por el Departamento de Trabajo Social del Patronato Nacional de la Infancia. El derecho que establece el presente artículo será igual al setenta y cinco por ciento (75%) de la suma que gozaba o hubiera gozado el causante.
+Sin embargo, en ningún caso podrá ser inferior al salario mínimo establecido para la Administración Pública.
+Artículo 19.- Cuando falleciera un servidor cubierto por las disposiciones de esta Ley, sin cumplir con el mínimo requerido para la pensión extraordinaria, sus causahabientes tendrán derecho a una pensión equivalente al setenta y cinco por ciento (75%) del salario total que devengaba en el Magisterio Nacional en el momento del deceso, siempre que este monto no sea inferior al salario mínimo establecido para la Administración Pública.
+Artículo 20.- Cuando hubiera personas con derecho a sucesión y una de ellas perdiera ese derecho, su parte no acrecerá la de los demás.
+Artículo 21.- Sólo se podrán acumular dos derechos de sucesión, completos o en partes, en una misma persona, siempre que la suma por pagar no sobrepase el tope que establece el artículo 9 de la presente Ley.
+Artículo 22.- Los derechos concedidos por los artículos 18 y 19 de esta Ley, se extinguirán:
+a) Para el cónyuge superstite, desde que contrajera nuevas nupcias.
+Para los hijos, hermanos y nietos dependientes, sea cual fuera su sexo, desde que llegaran a la mayoría de edad, salvo en los casos de invalidez, debidamente certificados por la Caja Costarricense de Seguro Social o por el Instituto Nacional de Seguros, mayores al sesenta y seis por ciento (66%) de incapacidad.
+b) En caso de estudiantes, el derecho continuará hasta la edad de veinticinco años, siempre que se trate de la educación formal de enseñanza general básica, de la enseñanza diversificada o de la universitaria y que se compruebe, cada año, la promoción al curso lectivo siguiente y en la respectiva matrícula de éste.
+c) Para los hijos, hermanos y nietos sean cuales fueran su sexo y edad, desde que contrajeran matrimonio.
+ch) En todos los casos previstos por el artículo 18, cuando se compruebe, previo estudio socioeconómico, que la persona beneficiada no requiere de la pensión.
+CAPÍTULO III
+DE LA JUNTA DE PENSIONES
+Artículo 23.- El Régimen de Pensiones y Jubilaciones del Magisterio Nacional será dirigido y administrado por una Junta Directiva, denominada Junta de Pensiones y Jubilaciones del Magisterio Nacional, la que tendrá personalidad jurídica y patrimonio propio y que estará integrada por los siguientes miembros:
+a) Un representante del Ministerio de Educación Pública.
+b) Un representante del Ministerio de Trabajo y Seguridad Social.
+c) Un representante del Ministerio de Hacienda.
+ch) Un representante de la Asociación de Educadores Pensionados (ADEP).
+d) Un representante de la Asociación Nacional de Educadores (ANDE).
+e) Un representante de la Asociación de Profesores de Segunda Enseñanza (APSE).
+f) Un representante de las instituciones de educación superior universitaria estatal, nombrado por el Consejo Nacional de Rectores (CONARE).
+g) Un representante del Sindicato de Trabajadores de la Educación Costarricense (SEC).
+h) Un representante del Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Artes.
+i) Un representante de la Asociación de Funcionarios Universitarios Pensionados (AFUP).
+Estos miembros durarán en sus cargos un período de tres años y no podrán ser reelectos.
+Sin embargo, estos representantes podrán cesar en sus funciones cuando la entidad que representen, así lo determine, por causas debidamente comprobadas que contraríen los fundamentos del sistema jubilatorio del Magisterio o las políticas señaladas por la entidad que representan, para el mantenimiento y permanencia del sistema.
+Artículo 24.- Son atribuciones de la Junta de Pensiones y Jubilaciones del Magisterio Nacional:
+a) Estudiar, conocer y resolver las solicitudes de jubilación y pensión.
+b) Mantener al día un registro de jubilados y pensionados, que deberá ser complementado con un expediente para cada pensionado y jubilado. Este expediente deberá incluir la certificación del Ministerio de Educación Pública, de las universidades y de otras instituciones a que hace mención el artículo 2 de esta Ley.
+c) Adecuar el monto de la deducción individual que deba hacerse a los beneficiarios de este régimen, de conformidad con los límites que establece esta Ley.
+ch) Administrar el fondo indicado en el artículo 28 de esta Ley.
+d) Informar anualmente de sus labores a la Contraloría General de la República y a las instituciones representadas en su seno.
+e) Cobrar las cuotas patronales y obreras de las instituciones privadas y de los entes de educación superior.
+f) Verificar que los patronos cumplan con su obligación de contribuir de acuerdo con lo dispuesto en el artículo 11 de esta Ley; en caso de detectarse faltante o incumplimiento, se procederá como se indica en el artículo 37 de la presente Ley.
+g) Llevar todos los registros contables y financieros que se requieran para la buena marcha del Régimen de Pensiones y Jubilaciones del Magisterio Nacional.
+h) Dictar las normas para el nombramiento del personal de la institución y aprobar todos los reglamentos que se consideren necesarios para su buen funcionamiento.
+i) Aprobar la creación de plazas nuevas y de todos los reglamentos que se consideren necesarios para el buen funcionamiento de la Junta y del Régimen.
+j) Aprobar el presupuesto de operación de la Junta.
+k) Todas las demás que resultaran de la aplicación de esta Ley, de acuerdo con su Reglamento.
+Artículo 25.- Las resoluciones de la Junta, referidas a la consecución de derechos de pensión y jubilación deberán ser conocidas por el Departamento Nacional de Pensiones del Ministerio de Trabajo y Seguridad Social, para su aprobación final. Para estos efectos, dicha dependencia tendrá, como límite máximo, siete días hábiles a partir de la fecha de recibo de la documentación.
+Cualquier reconsideración debe ser presentada ante el Departamento Nacional de Pensiones del Ministerio de Trabajo y Seguridad Social, dentro de los dos meses siguientes a la fecha en la que se notifique formalmente y por escrito al interesado, el acuerdo objeto de reconsideración. El Departamento Nacional de Pensiones tendrá como tiempo límite, para pronunciarse, hasta treinta días hábiles, contados a partir de la fecha de presentación de la reconsideración. Para el caso de apelaciones de pensiones extraordinarias, esta dependencia deberá asesorarse por la Junta Médica de Pensiones, y por el Ministerio de Trabajo y Seguridad Social. Sus miembros no podrán ser los mismos que antes hayan valorado el caso.
+Artículo 26.- Cada dos años la Junta de Pensiones y Jubilaciones deberá elaborar o contratar la elaboración de un estudio actuarial, con la finalidad de conocer la situación financiera del Régimen y realizar los ajustes necesarios para preservarlo. Los resultados de tal estudio deberán ser conocidos por una comisión integrada por delegados de los gremios con representación ante la Junta y el Gobierno y los acuerdos de esta comisión se pasarán al conocimiento de la Junta para que tome las determinaciones pertinentes a partir del 1 de enero del año siguiente.
+Artículo 27.- La Junta de Pensiones y Jubilaciones del Magisterio Nacional establecerá la cuota de participación que corresponda para cumplir con la estructura de financiamiento establecida en el artículo 11 de esta Ley, con base en el estudio actuarial que se realice cada dos años y en las recomendaciones de la comisión establecida en el artículo anterior.
+Artículo 28.- La Junta de Pensiones y Jubilaciones del Magisterio Nacional será responsable de la administración de un Fondo de reserva derivado de la deducción de un cinco por mil (5/1000) de los salarios y pensiones de los beneficiarios del régimen. Este Fondo deberá depositarse en una institución bancaria del Estado.
+Artículo 29.- Los recursos del Fondo que se crea en el artículo 28, se utilizarán únicamente para los siguientes fines:
+1.- Para cubrir las dietas de los miembros de la Junta, los salarios de su personal y en general, sus gastos administrativos. Para este propósito, no podrá destinarse una suma superior a una tercera parte de lo que ingrese al Fondo por concepto de las deducciones a que se refiere el artículo 28.
+2.- Para cubrir las obligaciones de carácter financiero que se deriven de los convenios que la Junta firme con las entidades financieras y sociales del Magisterio Nacional.
+3.- Para realizar préstamos directos a los pensionados a fin de que satisfagan necesidades personales, de acuerdo con lo que al respecto establezcan los reglamentos internos del Régimen.
+4.- Para realizar préstamos directos a los pensionados a fin de que éstos financien actividades de pequeña empresa, de acuerdo con los reglamentos que al respecto emita la Junta.
+5.- Para invertir en valores financieros, que deberán ser de primer orden en cuanto a rendimiento y seguridad.
+Artículo 30.- La Junta de Pensiones y Jubilaciones del Magisterio Nacional reglamentará aquellas condiciones, que considere básicas para el buen funcionamiento del Fondo de reserva establecido en el artículo 28, entre las cuales deberá incluir: plazos de los préstamos, montos máximos de crédito por actividad, tasas mínimas de interés (las que no podrán ser menores al doce por ciento, con excepción de los de la Caja de ANDE), actividades por financiar, aportes a la Caja de Ahorro y Préstamo de la ANDE y todas aquellas que a su parecer sean necesarias para el cumplimiento de sus objetivos.
+Cuando se trate de préstamos a los jubilados y pensionados, la Junta podrá deducir mensualmente del giro de la pensión las amortizaciones respectivas.
+Cuando el estudio actuarial, previsto en el artículo 26, determine que, los aportes de los servidores activos y pensionados, no cubren la cuota señalada en el inciso a) del artículo 11 y que, por lo tanto, se hace necesario aumentarla, los recursos del Fondo se podrán utilizar para financiar parcialmente, hasta un veinticinco por ciento (25%) de sus aportes. El porcentaje que se acuerde financiar será determinado por la Junta.
+Para los fines señalados en este artículo, la aportación del cinco por mil (5/1000) deberá girarse a la Junta. Todos los patronos están obligados a deducir mensualmente estos aportes a sus empleados y girarlos mensualmente a la Junta.
+Artículo 31.- La Junta Directiva del Régimen de Pensiones y Jubilaciones del Magisterio Nacional formulará, regulará y dirigirá las políticas de la entidad, y corresponderá a su Presidente la representación judicial y extrajudicial de la Institución, con facultades de apoderado generalísimo sin límite de suma. Los integrantes de la Junta Directiva serán responsables solidarios por toda aquella actuación dolosa que perjudique los intereses de terceras personas y a la Institución.
+Artículo 32.- La Junta de Pensiones y Jubilaciones del Magisterio Nacional nombrará un Director Ejecutivo, mediante concurso de antecedentes, quien tendrá un período de nombramiento de tres años y podrá ser reelecto. Sus funciones serán las siguientes:
+a) Organizar, coordinar y supervisar, con la colaboración del personal necesario, todas las acciones administrativas que realice la Junta Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional.
+b) Velar por el estricto cumplimiento de las leyes y reglamentos, así como de las disposiciones que tome la Junta Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional.
+c) Velar por el correcto cumplimiento de las actuaciones y disposiciones de carácter administrativo de la Junta de Pensiones y Jubilaciones del Magisterio Nacional.
+ch) Ejercer la autoridad disciplinaria sobre sus subalternos y velar porque los funcionarios cumplan conforme a derecho.
+d) Elaborar el presupuesto de la Junta de Pensiones y Jubilaciones del Magisterio Nacional.
+e) Nombrar a su personal subalterno, de acuerdo con los reglamentos que para ese efecto se aprueben. Dichos nombramientos se harán, en todos los casos, mediante un concurso privado.
+f) Todas aquellas que además le competan de conformidad con los reglamentos respectivos.
+Artículo 33.- La Junta de Pensiones y Jubilaciones del Magisterio Nacional contará con las dependencias que sus directores consideren necesarias para su buen funcionamiento, pero obligatoriamente deberán existir las tres siguientes:
+a) Un Departamento Contable y Financiero.
+b) Un Departamento Actuarial.
+c) Un Departamento de Auditoría Interna.
+Las dos primeras dependerán directamente del Director Ejecutivo; el tercero dependerá únicamente de la Junta Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional.
+Artículo 34.- El pago de las dietas de los miembros de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, así como el de los salarios del personal necesario para su funcionamiento y los gastos correspondientes, se harán con cargo al Fondo que se establece en el artículo 28 de esta Ley, del cual y para esos efectos, no podrá destinarse más del equivalente del tres por mil (3/1000).
+Artículo 35.- La Junta de Pensiones y Jubilaciones del Magisterio Nacional deberá mantener informados a los beneficiarios del sistema, de aquellos actos propios de los organismos y dependencias vinculados al sistema jubilatorio que, de alguna manera, afecten sus derechos e intereses, así como de los ajustes que sufriera su pensión o jubilación.
+Artículo 36.- El Director Ejecutivo de la Junta de Pensiones y Jubilaciones del Magisterio Nacional adoptará las medidas pertinentes y coordinará las acciones del caso, con el propósito de que lo estatuido en el artículo anterior se cumpla a cabalidad.
+La forma y condiciones de las informaciones, los temas sobre los que habrá que actuar y los medios que empleará para las comunicaciones correspondientes, deberán ser objeto de una reglamentación específica que elaborará el Poder Ejecutivo, quien oirá, previamente, a la Junta de Pensiones del Magisterio Nacional, en un plazo de noventa días.
+Artículo 37.- La Junta de Pensiones y Jubilaciones del Magisterio Nacional podrá suministrar la información dicha a sus beneficiarios en forma individual o colectiva, según corresponda, pero deberá actuar, en todo caso, de oficio y a la mayor brevedad.
+Artículo 38.- La Junta de Pensiones y Jubilaciones del Magisterio Nacional podrá exigir a los centros de enseñanza privada toda clase de comprobantes tendientes a verificar la exactitud de los reportes con base en los cuales se ha pagado la correspondiente cuota patronal y personal.
+Igualmente, la Junta de Pensiones podrá proceder al correspondiente cobro judicial, en los casos de error, de atraso o de no pago de las cuotas patronales y personales.
+En este evento, la certificación que expida la Junta sobre el saldo adeudado, tendrá el carácter de título ejecutivo. Será absolutamente obligatoria la cotización tripartita al Fondo de Pensiones y Jubilaciones del Magisterio Nacional. La Junta de Pensiones y Jubilaciones del Magisterio Nacional deberá proceder al cobro judicial inmediato de las cuotas que tengan más de un mes de atraso. En tal caso, la certificación que la Junta expida sobre el saldo adeudado, tendrá el carácter de título ejecutivo. Si permitieran atrasos mayores a los tres meses, sin interponer las acciones legales correspondientes, los miembros de la Junta serán responsables con su peculio de esas cuotas y serán removidos de sus cargos.
+Transitorio I.- Aquellas personas que, en el momento de la entrada en vigencia de esta Ley, reúnan todos los requisitos preceptuados para jubilarse o pensionarse al amparo de la legislación anterior, no se verán afectadas por las disposiciones de esta Ley y conservarán sus derechos adquiridos, siempre y cuando los hagan valer en el plazo de seis meses contados a partir de la entrada en vigencia de la presente Ley. Por no tratarse de derechos adquiridos, esta disposición no se aplica a la cuota que deberán cubrir los pensionados ni a la contribución extraordinaria a las que se refiere el artículo 12 de esta Ley.
+Transitorio II.- Facúltase a la Junta de Pensiones y Jubilaciones del Magisterio Nacional para que, previo acuerdo de su Junta Directiva, fundamentada en los estudios y comprobaciones pertinentes, efectúe los pagos por resolución que pudieran corresponder. La Junta queda facultada igualmente para diseñar la forma de resolución respectiva, la cual ha de hacer expresa referencia a los estudios realizados y comprobaciones efectuadas como medio de verificar la legalidad del pago que autoriza.
+Transitorio III.- La Junta de Pensiones y Jubilaciones del Magisterio Nacional deberá confeccionar, a más tardar en el plazo de un año contado a partir de la fecha de promulgación de esta Ley, un estudio actuarial que determine la factibilidad de realizar un incremento excepcional de las pensiones que no alcancen la base salarial que las originó.
+Además, dicho estudio actuarial contendrá una sección en la que se deberá determinar la factibilidad de que los derechos sucesorios previstos en el artículo 18 de esta Ley, puedan ser incrementados hasta un ochenta y cinco por ciento (85%) máximo, de la suma que gozaba o hubiera gozado el causante. Este estudio y posible incremento sólo se determinará para las pensiones inferiores al monto exento del impuesto sobre la renta.
+Transitorio IV.- A las personas que se hubieran pensionado antes de 1972, ante la imposibilidad material de presentar documentos comprobatorios de los componentes salariales que originaron su pensión y, a efectos de hacer valedero el pronunciamiento C-209-88 del 28 de octubre de l988 de la Procuraduría General de la República, se les aplicará un multiplicador igual al promedio de los salarios de los servidores activos del Ministerio de Educación Pública.
+Transitorio V.- Las personas que al entrar en vigencia esta Ley, sean miembros de la junta directiva de una institución autónoma, podrán continuar en esas funciones, hasta el vencimiento del período y, a la vez, recibir pensión o jubilación de acuerdo con esta Ley, y devengar la correspondiente dieta en la institución autónoma.

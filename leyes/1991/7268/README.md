@@ -1,6 +1,6 @@
 # Reforma Integral a la Ley de Pensiones y Jubilaciones del Magisterio Nacional
 
-Ley N° 7268 del 1991-11-14. SINALEVI, ficha 33768: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=33768&param2=35610&param3=1>.
+Ley N° 7268 del 1991-11-14. SINALEVI, ficha 33768: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=33768&param2=35611&param3=1>.
 
 Publicada en La Gaceta N° 221 del 1991-11-19.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 1995-07-13 | SINALEVI (1 normas) | 1991-11-14 |
+| 2 de 2 | 1995-07-13 | SINALEVI (2 normas) | 1991-11-14 |
