@@ -1,49 +1,14 @@
-Artículo 1º.- Refórmase el artículo 443 del Código Fiscal, ley número
-8 del 31 de octubre de 1885 y sus reformas, cuyo texto será el siguiente:
-"Artículo 443.- Son artículos estancados, el aguardiente, el alcohol y
-toda bebida alcohólica preparada en el país, cualquiera que sea el
-procedimiento usado para obtenerla y el nombre con que se le designe. De
-lo anterior se exceptúan la cerveza, los vinos elaborados mediante
-fermentación natural de frutas cuyo contenido alcohólico no exceda de un
-doce por ciento, y las preparaciones alcohólicas mezcladas con sustancias
-alimenticias como huevos, leche, azúcar y maicena, siempre que estos
-productos estén sometidos a una reglamentación especial.
+N° 6972
+LA ASAMBLEA DE LA REPUBLICA DE COSTA RICA
+DECRETA:
+Artículo 1º.- Refórmase el artículo 443 del Código Fiscal, ley número 8 del 31 de octubre de 1885 y sus reformas, cuyo texto será el siguiente:
+"Artículo 443.- Son artículos estancados, el aguardiente, el alcohol y toda bebida alcohólica preparada en el país, cualquiera que sea el procedimiento usado para obtenerla y el nombre con que se le designe. De lo anterior se exceptúan la cerveza, los vinos elaborados mediante fermentación natural de frutas cuyo contenido alcohólico no exceda de un doce por ciento, y las preparaciones alcohólicas mezcladas con sustancias alimenticias como huevos, leche, azúcar y maicena, siempre que estos productos estén sometidos a una reglamentación especial.
 La elaboración de alcohol estará regulada de la siguiente manera:
-El Ministerio de Industria, Energía y Minas será el organismo
-responsable de emitir las políticas de desarrollo de la actividad
-alcoholera, de conformidad con el siguiente esquema sectorial:
-a) La producción y el uso de alcohol etílico para fines licoreros e
-industriales a la elaboración de rones crudos para el consumo nacional y
-para la exportación, corresponderán a la Fábrica Nacional de Licores, la
-cual regulará esta actividad de acuerdo con la legislación vigente.
-El Ministerio citado podrá autorizar a la Liga Agrícola e Industrial
-de la Caña de Azúcar para que exporte alcohol derivado de caña de azúcar,
-producido por la Central Azucarera Tempisque, S. A., siempre y cuando se
-le garantice a la Fábrica Nacional de licores el abastecimiento necesario
-de melaza calificada para su destilería de alcohol. El precio de esta
-melaza, al productor y al consumidor, será fijado por el Ministerio de
-Economía y Comercio.
-b) El Ministerio de Industria, Energía y Minas podrá autorizar la
-producción de alcohol para fines carburantes a productores privados o
-estatales. Sin embargo, únicamente la Refinadora Costarricense de
-Petróleo, S. A. estará facultada para regular, controlar y comercializar
-este producto por medio de las gasolineras. En el caso de que éstas no
-cuenten con las condiciones necesarias para comercializar este alcohol, el
-Ministerio de Economía y Comercio les exigirá efectuar las modificaciones
-correspondientes. Se autoriza a RECOPE para que financie estas
-modificaciones.
-El Ministerio de Economía y Comercio fijará el precio de este
-alcohol.
-c) El alcohol metílico, propílico, butílico, amílico y otros, excepto
-el etílico, y los polialcoholes, alcoholes de función compleja y similares
-podrán ser producidos y exportados por entidades privadas, siempre y cuando
-no sean producidos por la Fábrica Nacional de Licores.
-ch) El Ministerio de Industria, Energía y Minas regulará el porcentaje
-de mieles y azúcares destinados a la producción de alcohol. A su vez
-garantizará el cumplimiento de las cuotas de azúcar de consumo interno para
-uso alimenticio e industrial, lo mismo que la cuota mínima de alcohol para
-consumo interno y la cuota mínima de mieles necesaria para la ganadería
-nacional.
-Cuando la Central Azucarera Tempisque, S. A. no pueda procesar los
-alcoholes referidos en los incisos a) y b), podrá autorizarse su
-fabricación a productores privados."
+El Ministerio de Industria, Energía y Minas será el organismo responsable de emitir las políticas de desarrollo de la actividad alcoholera, de conformidad con el siguiente esquema sectorial:
+a) La producción y el uso de alcohol etílico para fines licoreros e industriales a la elaboración de rones crudos para el consumo nacional y para la exportación, corresponderán a la Fábrica Nacional de Licores, la cual regulará esta actividad de acuerdo con la legislación vigente.
+El Ministerio citado podrá autorizar a la Liga Agrícola e Industrial de la Caña de Azúcar para que exporte alcohol derivado de caña de azúcar, producido por la Central Azucarera Tempisque, S. A., siempre y cuando se le garantice a la Fábrica Nacional de licores el abastecimiento necesario de melaza calificada para su destilería de alcohol. El precio de esta melaza, al productor y al consumidor, será fijado por el Ministerio de Economía y Comercio.
+b) El Ministerio de Industria, Energía y Minas podrá autorizar la producción de alcohol para fines carburantes a productores privados o estatales. Sin embargo, únicamente la Refinadora Costarricense de Petróleo, S. A. estará facultada para regular, controlar y comercializar este producto por medio de las gasolineras. En el caso de que éstas no cuenten con las condiciones necesarias para comercializar este alcohol, el Ministerio de Economía y Comercio les exigirá efectuar las modificaciones correspondientes. Se autoriza a RECOPE para que financie estas modificaciones.
+El Ministerio de Economía y Comercio fijará el precio de este alcohol.
+c) El alcohol metílico, propílico, butílico, amílico y otros, excepto el etílico, y los polialcoholes, alcoholes de función compleja y similares podrán ser producidos y exportados por entidades privadas, siempre y cuando no sean producidos por la Fábrica Nacional de Licores.
+ch) El Ministerio de Industria, Energía y Minas regulará el porcentaje de mieles y azúcares destinados a la producción de alcohol. A su vez garantizará el cumplimiento de las cuotas de azúcar de consumo interno para uso alimenticio e industrial, lo mismo que la cuota mínima de alcohol para consumo interno y la cuota mínima de mieles necesaria para la ganadería nacional.
+Cuando la Central Azucarera Tempisque, S. A. no pueda procesar los alcoholes referidos en los incisos a) y b), podrá autorizarse su fabricación a productores privados."
