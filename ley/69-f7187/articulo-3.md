@@ -1,0 +1,1 @@
+Art. 3. En todas las Iglesias parroquiales y de los barrios se establecerán por los Señores Curas y Coadjutores ejercicios doctrinales los dias Domingos y de fiesta, con objeto de instruir al pueblo en sus deberes y especialmente á los padres y à las madres en las obligaciones que contraen con Dios y con la sociedad de criar y educar bien á sus hijos.
