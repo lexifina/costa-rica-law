@@ -17,3 +17,4 @@ Reglamento del Estatuto de Servicios de Enfermería
 | 2 | 1990-09-20 | Decreto Ejecutivo 19952 (1990-09-20) |
 | 3 | 1991-01-17 | Decreto Ejecutivo 20200 (1991-01-17) |
 | 4 | 1991-06-27 | Decreto Ejecutivo 20545 (1991-06-27) |
+| 5 | 1993-12-09 | SINALEVI (sin norma nombrada) |

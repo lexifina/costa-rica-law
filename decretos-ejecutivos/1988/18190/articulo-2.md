@@ -30,7 +30,7 @@ Traslado: Paso del servidor de un puesto a otro de la misma categoría.
 Permuta: Cambio de puestos, de la misma clase, que hacen dos servidores por mutuo acuerdo y con el consentimiento de los superiores.
 Oferta: Fórmula con la cual el interesado ofrece sus servicios para un puesto.
 Concurso: Procedimiento de convocar, participar y seleccionar a quienes deseen ocupar un puesto vacante.
-Concurso interno por traslado: Procedimiento de convocar o llamar a quienes ya están nombrados en propiedad o que deseen ocupar un puesto vacante que se encuentre en igual o inferior categoría.
+Concurso interno por traslado: Anulado por resolución de la Sala Constitucional N° 6495-93 de las 10:42 hrs. del 09/12/1993.
 Concurso interno por oposición y atestados: Procedimiento de convocatoria y participación de una o varias personas de un mismo ente empleador, que pretendan ocupar un puesto por ascenso, una vez agotado el procedimiento de concurso interno por traslado.
 Concurso externo: Procedimiento de convocatoria y participación de una o varias personas que pretenden ocupar un puesto, una vez agotado el procedimiento de concurso interno por oposición y atestados.
 Inopia: Situación que se presenta cuando existe ausencia de oferentes en un concurso o para una plaza.
