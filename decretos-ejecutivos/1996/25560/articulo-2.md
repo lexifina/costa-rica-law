@@ -1,0 +1,1 @@
+Artículo 2°-El Ministerio de Agricultura y Ganadería deberá otorgar asistencia técnica al Sector Tabacalero, a efecto que la Junta de Defensa del Tabaco pueda cumplir con los deberes y atribuciones que la Ley N° 2072 establece.
