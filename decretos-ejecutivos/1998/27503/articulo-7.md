@@ -1,0 +1,1 @@
+Artículo 7°—Auditoría interna. La Auditoría Interna del Banco o entidad pública titular del capital social de cada sociedad fiscalizara la labor de las sociedades establecidas y tendrá las atribuciones que le confiere la Ley Orgánica de la Contraloría General de la República.

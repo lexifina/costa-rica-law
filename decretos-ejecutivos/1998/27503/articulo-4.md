@@ -1,0 +1,1 @@
+Artículo 4°—Asamblea de accionistas. La Junta Directiva del Banco o ente público será el órgano supremo de la sociedad y como tal tendrá las atribuciones que el Código de Comercio dispone para la asamblea de accionistas.

@@ -1,0 +1,1 @@
+Artículo 10.—Fiscalización propuesta. Las sociedades deberán someter sus presupuestos a la aprobación de la Contraloría General de la República, de conformidad con lo establecido en la Ley Orgánica de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 11.—Regulación de grupos financieros. En su actividad las sociedades anónimas establecidas al amparo del numeral 55 de la Ley Reguladora del Mercado de Valores, y de conformidad con el presente decreto, están sujetas de conformidad con el Principio de Legalidad a la normativa que regula la actividad del Banco o entidad pública, titular del capital social.
