@@ -15,3 +15,4 @@ Reglamento General de Crédito.
 | --- | --- | --- |
 | 1 | 1982-01-13 | la propia norma |
 | 2 | 1982-06-04 | Reglamento 1348 (1982-06-04) |
+| 3 | 1982-08-16 | Reglamento 1366 (1982-08-16) |
