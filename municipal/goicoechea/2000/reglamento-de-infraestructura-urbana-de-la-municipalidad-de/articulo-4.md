@@ -1,0 +1,23 @@
+Artículo 4°—Rellenos sanitarios. Disposición Final de Desechos sólidos Urbanos (Basura):
+A) Relleno sanitario: Como uso condicional se consigna específicamente "Relleno sanitario Municipal" en las zonas Suburbana, Cautela Urbana, Residencial Baja Densidad y Residencial Media Densidad.
+El propósito de indicarlo es ante imposibilidad de disponer la basura fuera del cantón, (suponiendo que fracasen todas las iniciativas nacionales e intermunicipales al respecto), eventualmente Goicoechea tendrá que disponer la basura que genera en algún lugar dentro de los límites del cantón.
+El relleno sanitario deberá ser diseñado con la mejor técnica al alcance de Costa Rica (que en caso de duda dirimirá finalmente el Colegio Federado de Ingenieros y Arquitectos), aprobado por la Municipalidad y por el INVU como uso condicional que es, y además por el Ministerio de Salud y por la Comisión interinstitucional de Estudios de Impacto Ambiental.
+En el análisis de localización del relleno deberá considerarse opciones de ubicación en un orden preferencial de acuerdo a la densidad de población esperada, a la economía del transporte del vehículo recolector (centralidad), y a la facilidad de disponer de los efluentes ya tratados a un cause natural. También en dicho análisis y estudio deberán considerarse las opciones frente a otras soluciones técnicas del problema de disposición final de los desechos, como son las plantas industriales de tratamiento, el reciclaje parcial o total, o soluciones hoy día inéditas. (Sigue siendo una buena opción el acopiarlos, compactarlos, congelarlos, y enviarlos muy lejos, pero estamos analizando en el supuesto que esto fracase).
+Deberán, simultáneamente al diseño y la aprobación del diseño mismo, indicarse:
+a) Las prácticas cautelatorias para impedir la proliferación de vectores (roedores, insectos, zopilotes) y un sistema de monitoreo de las mismas al cual la Municipalidad se obliga a realizar periódicamente.
+b) Las medidas de mejoramiento y control del vehículo recolector dirigidas a impedir que ocurran desbordes o regueros del contenido en el trayecto.
+c) Las medidas de control de la carretera que conduce al relleno si es ruta nacional, y de control y mejoramiento si es ruta municipal (local o cantonal).
+d) Las medidas de monitoreo y control de contaminación de los cursos de agua, a los cuales descarga el efluente del relleno, ya tratado.
+Cuando el o los rellenos sanitarios estén operando, estos controles y registros deberán quedar impresos en un informe anual que entregará el Alcalde Municipal al Concejo, y que quedará consignado en las actas.
+B) Clasificación y reciclaje: La recolección de basura se hará bajo la clasificación de seis apartados, en bolsas separadas y diferenciadas, a saber:
+1. Plásticos en bolsas de plástico transparentes
+2. Papel en bolsas de papel o de plástico
+3. Vidrios en bolsas de papel o caja de cartón
+4. Latas o desechos de productos enlatados en bolsas plásticas
+5. Productos orgánicos biodegradables en bolsas de plástico transparente
+6. El resto de desechos en bolsas plásticas
+Podrán usarse en lugar de bolsas de papel, otro continente que sea biodegradable. La basura que no esté empacada según esta clasificación no será recolectada. Las bolsas de basura han de depositarse en un lugar accesible al empleado recolector, y a salvo del ataque de los perros (ataque a la basura y ataque al empleado recolector).
+Una vez al año la Municipalidad hará la recolección de desechos de volumen mayor (colchones, muebles, llantas, artefactos, baterías de carro, etc.), conocidos como basura no tradicional. No se incluyen desechos industriales de más de un metro cúbico.
+- Cambios. Los cambios en estas disposiciones de clasificación, que la práctica irá aconsejando, por ser de regulación general los hará la Municipalidad por simple Acuerdo Municipal, pero dando de alguna forma la oportunidad a la comunidad de manifestarse.
+- Reciclaje. El reciclaje de desechos lo harán empresas o personas físicas que se inscriban en la Municipalidad como "receptoras de material reciclable", y serán objeto de los controles ordinarios de la Municipalidad, amén de los que este reglamento establece para las zonas industriales, sin perjuicio de los controles de otros organismos que regulen sobre la materia. El reciclaje de desechos corresponde a un uso industrial.
+- Desechos biodegradables. La disposición final de los desechos biodegradables se hará en el relleno sanitarios municipal o en plantas de tratamiento construidas al efecto (que pueden producir "compost" o no). Puede realizarse en lugares específicos donde se autorizan rellenos sanitarios o en zonas industriales.

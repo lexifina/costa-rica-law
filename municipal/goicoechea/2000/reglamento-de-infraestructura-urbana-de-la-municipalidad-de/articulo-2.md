@@ -1,0 +1,1 @@
+Artículo 2°—Objetivos. Este Reglamento tiene por objeto regular las obras de infraestructura y servicios básicos que se hagan, previendo el aumento de población estimado, por parte de las instituciones autónomas y por parte de la propia municipalidad.
