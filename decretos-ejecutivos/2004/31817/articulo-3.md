@@ -1,0 +1,1 @@
+Artículo 3º—Se deroga el Decreto Ejecutivo Nº 30166-MAG de 19 de noviembre del 2001, publicado en La Gaceta Nº 42 del 28 de febrero del 2002 y el artículo 1º del Decreto Ejecutivo Nº 27763-MAG de 10 de marzo de 1999, publicado en el Alcance Nº 26 a La Gaceta Nº 68 del 9 de abril de 1999.

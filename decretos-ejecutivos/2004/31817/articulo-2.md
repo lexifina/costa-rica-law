@@ -1,0 +1,1 @@
+Artículo 2º—El INTA podrá según los parámetros objetivos y técnicos que sean definidos, aplicar sobre la base del monto del cobro de los servicios establecidos una tarifa preferencial cuando los mismos se brinden a pequeños productores agropecuarios.
