@@ -26,3 +26,9 @@ Maíz blanco y amarillo: | | |
 Saco de 46 kilogramos netos c/u. | 641,05 | 673,10 | 16,40kg
 Maíz amarillo para la fabricación de alimentos para animales: | | A consumidor ₡ |
 Saco de 46 kilogramos netos c/u. | | 641,05 |
+(Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 19802 del 19 de julio de 1990, “Fija los Precios máximos de venta del maíz amarillo para consumo animal”, se indica que se modifica en lo pertinente este decreto ejecutivo. Los precios que se establecen en el decreto ejecutivo 19802 del 19 de julio de 1990 antes mencionado son los siguientes: "Artículo 1° -Fijar los siguientes precios máximos de venta del maíz amarillo para consumo animal, de la siguiente manera:
+De importador a detallista
+Saco de 46 kg netos, ₡ 830,95 c/u.
+De detallista a consumidor
+Saco de 46 kg netos, ₡ 930,65 c/u.
+Por kilogramo ₡ 20,25.")
