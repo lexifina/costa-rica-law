@@ -1,0 +1,1 @@
+Artículo 2°.- De esa suma se destinarán ¢50,000.00 (cincuenta mil colones) en la construcción de un edificio para oficinas municipales en el distrito 1°, San Ignacio; y ¢25,000.00 (veinticinco mil colones) para construir cañerías en cada uno de los distritos segundo y tercero; estas obras se llevarán a cabo con la cooperación del Ministerio de Obras Públicas.
