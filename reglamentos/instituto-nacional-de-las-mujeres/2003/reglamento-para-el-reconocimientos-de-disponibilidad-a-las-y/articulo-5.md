@@ -1,0 +1,1 @@
+Artículo 5º—Para tener derecho a esta compensación económica, el y la funcionaria, deberá suscribir un contrato con la Presidencia Ejecutiva, en donde se especifique: el tipo de disponibilidad a que se obliga, el beneficio económico que recibirá, las condiciones en que prestará el servicio y demás detalles que sean necesarios.

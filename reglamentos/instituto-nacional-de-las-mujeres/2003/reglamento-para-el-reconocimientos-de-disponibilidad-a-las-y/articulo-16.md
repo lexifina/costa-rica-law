@@ -1,0 +1,2 @@
+Artículo 16.—A partir del momento en que el o la funcionaria es notificada/o de su requerimiento para brindar el servicio, contará con un tiempo aproximado de una hora para presentarse en el lugar donde se brindará la atención, lo que se le deberá indicar al momento de ser solicitada/o.
+Solo en casos excepcionales se brindará la atención vía telefónica con previa aprobación de la jefatura inmediata superior.

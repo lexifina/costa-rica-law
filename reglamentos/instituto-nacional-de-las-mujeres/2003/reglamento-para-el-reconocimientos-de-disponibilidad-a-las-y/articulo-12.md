@@ -1,0 +1,1 @@
+Artículo 12.—La Coordinadora del Área de Violencia de Género debe presentar al inicio del semestre, el rol de las personas que asumirán la disponibilidad durante dicho periodo. Asimismo, tiene la responsabilidad de implementar los mecanismos de control del servicio prestado y enviar mensualmente el informe de atención durante la disponibilidad al Área de Recursos Humanos.

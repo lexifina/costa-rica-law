@@ -1,0 +1,1 @@
+Artículo 9º—Los o las funcionarias sujetas/os al régimen de disponibilidad no podrán desempeñar otras labores fuera de la Institución en que labora, cuando estas puedan entrar en incompatibilidad con la disponibilidad.

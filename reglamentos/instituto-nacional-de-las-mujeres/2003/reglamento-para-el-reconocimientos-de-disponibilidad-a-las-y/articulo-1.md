@@ -1,0 +1,2 @@
+INSTITUTO NACIONAL DE LAS MUJERES
+Artículo 1º—Se denominará "Disponibilidad" aquella obligación en que están ciertos funcionarios y funcionarias del INAMU de permanecer expectantes y de atender fuera de la jornada ordinaria, un evento o emergencia que requiere de su participación, sin que cuente para ello la hora ni el día, todo conforme a sus funciones y las necesidades reales, complejas e impostergables que demanda el buen servicio público.

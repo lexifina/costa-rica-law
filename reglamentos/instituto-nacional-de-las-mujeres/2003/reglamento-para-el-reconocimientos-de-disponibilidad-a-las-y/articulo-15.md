@@ -1,0 +1,1 @@
+Artículo 15.—Por causa justificada el o la funcionaria podrá solicitar en forma previa la no disponibilidad al horario previamente acordado, en cuyo caso la jefatura correspondiente determinará la posibilidad de acceder a dicha petición. De ser ésta aceptada el o la funcionaria señalará otro horario similar en que estará disponible.

@@ -1,0 +1,1 @@
+Artículo 8º—El o la funcionaria sujeta/o a disponibilidad, está obligada/o a prestar los servicios que le soliciten de acuerdo con sus funciones, so pena de ser sancionada/o disciplinariamente o con suspensión temporal o total del contrato de disponibilidad, según sea el caso, excepto si puede justificar adecuadamente su ausencia.

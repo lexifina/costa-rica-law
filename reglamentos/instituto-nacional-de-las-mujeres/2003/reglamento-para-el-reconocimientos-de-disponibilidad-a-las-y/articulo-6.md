@@ -1,0 +1,1 @@
+Artículo 6º—En ningún caso esta compensación económica, podrá considerarse como un derecho adquirido permanente, de forma que la Administración podrá rescindir el contrato en cualquier momento, sin responsabilidad para ésta, para lo que deberá justificar adecuadamente su decisión y comunicarla a la funcionaria/o con 30 días naturales de antelación
