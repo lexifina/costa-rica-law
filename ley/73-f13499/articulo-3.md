@@ -1,0 +1,1 @@
+Art. 3. Nadie podrá amontonar leña, madera, piedra ni otros materiales de construcción de alguna otra especie en los caminos públicos, ni dejar allí cosas ni muebles que puedan causar embarazo; y el que lo hiciere al tiempo de ser reconvenido por primera vez, pagará de diez á veinticinco pesos de multa.

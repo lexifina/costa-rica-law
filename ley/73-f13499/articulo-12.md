@@ -1,0 +1,1 @@
+Art. 12. De las determinaciones que dieren los zeladores, inspectores y miembros de la Dirección, podrá apelar la parte que se considere agraviada para ante la misma Dirección, después de exhibir la multa de la primera reconvención, y debiendo interponerse y sustanciarse dicha apelación dentro de treinta días improrrogables.

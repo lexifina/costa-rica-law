@@ -1,0 +1,1 @@
+Art. 9. Al tiempo de fijar el plazo, el funcionario que lo señale, conminará á la persona á quien se dirija, con una multa de diez á cien pesos, ó la pena de diez á sesenta días de trabajos forzados en el presidio urbano.
