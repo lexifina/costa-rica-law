@@ -1,0 +1,1 @@
+Artículo 4º—El Concejo Municipal no concederá este tipo de patentes en ferias escolares, colegios y centros de enseñanza o actividades similares, en eventos deportivos, culturales, religiosos o donde haya reunión de menores de edad y en general en cualquier otra actividad que no califique como fiesta cívica o patronal o ferias.

@@ -1,0 +1,1 @@
+Artículo 10.—El Concejo Municipal conocerá de la solicitud planteada en la sesión ordinaria inmediata siguiente a la fecha de presentación, debiendo pronunciarse sobre la misma en dicha sesión, fijando las condiciones de funcionamiento, las prohibiciones para menores y las demás consideraciones que conforme a derecho o a la moral y las buenas costumbres, sea preciso establecer.

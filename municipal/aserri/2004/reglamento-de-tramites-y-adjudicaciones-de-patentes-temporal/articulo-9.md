@@ -1,0 +1,1 @@
+Artículo 9º—La Secretaría del Concejo no dará curso a las solicitudes que se presenten en contravención de lo dispuesto por el artículo anterior, así como las que se presenten con un plazo menor al indicado en el artículo 7º, de este Reglamento.

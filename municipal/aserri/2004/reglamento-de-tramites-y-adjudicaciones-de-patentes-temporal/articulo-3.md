@@ -1,0 +1,1 @@
+Artículo 3º—Cuando quien fuera a explotar un puesto de licores en tales festejos sea un patentado de licores del mismo distrito, estará en la obligación, por el tiempo que duren tales eventos, de cerrar el otro puesto de licores.
