@@ -9,4 +9,4 @@ a) Dos o más Jefes de Fracción que representen juntos por lo menos a treinta y
 b) No menos de la mitad de los Jefes de Fracción.
 c) Al menos diez diputados de dos o más fracciones.
 3. Para su aprobación, se requerirá el voto favorable de dos terceras partes del total de los miembros.
-(Modificado mediante acuerdo 5020, del 8 de noviembre de 1999)
+(Modificado mediante sesión N° 5020, del 8 de noviembre de 1999)

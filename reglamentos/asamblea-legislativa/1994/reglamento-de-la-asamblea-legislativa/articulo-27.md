@@ -15,4 +15,4 @@ Son atribuciones y deberes del Presidente de la Asamblea o de quien lo sustituya
 11. Llamar al orden al diputado que, al usar la palabra, no se concrete al tema objeto de discusión, se desvíe de él, haga alusiones injuriosas a un compañero, a los Miembros de los Supremos Poderes o a personas extrañas; o al que, de cualquier modo, falte al debido respeto a la Asamblea. Si el diputado insiste en su conducta irregular, le suspenderá inmediatamente el uso de la palabra.
 12. Ordenar que se despeje la barra, cuando por sus signos de aprobación o de improbación -gritos, silvidos, golpes o cualquier otra demostración desordenada- se interrumpa la labor de la Asamblea.
 13. Poner el visto bueno en las listas de servicios que expida la Secretaría para el pago de los emolumentos de los diputados y del personal administrativo y en las órdenes de pago por gastos de oficina, autorizados por la Asamblea.
-(Modificado mediante acuerdo 5020, del 8 de noviembre de 1999)
+(Modificado mediante sesióno 5020, del 8 de noviembre de 1999)
