@@ -1,1 +1,0 @@
-Artículo 92.-Si la iniciativa de las acciones autorizadas en los artículos anteriores hubieran sido tomadas en firme por uno de los ministerios referidos, éste deberá poner en conocimiento de los otros inmediatamente tal hecho acompañando los antecedentes del caso para los fines consiguientes.

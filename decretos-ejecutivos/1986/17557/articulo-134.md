@@ -1,1 +1,0 @@
-Artículo 134.-El Ministerio en conjunto con el Ministerio de Salud podrán restringir o prohibir el uso de un determinado plaguicida, cuando así se requiera por razones de protección a la salud humana. de los anímales y del ambiente.

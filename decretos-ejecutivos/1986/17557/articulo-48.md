@@ -1,1 +1,0 @@
-Artículo 48.-Una vez concedida la renovación de registro y publicada en el Diario Oficial, al solicitante se le extenderá un certificado de renovación, debidamente sellado y con la firma del Jefe del Departamento de Abonos y Plaguicidas.

@@ -1,1 +1,0 @@
-Artículo 136.-Toda persona antes de comprar un plaguicida debe informarse acerca de si el producto es adecuado para el combate de la plaga o enfermedad, sobre su peligrosidad y si la formulación que adquiere es adecuada para el equipo del aplicación que dispone en su trabajo.

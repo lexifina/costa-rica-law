@@ -1,1 +1,0 @@
-Artículo 164.- Toda persona que aplique plaguicidas en invernaderos está obligada a utilizar el equipo de protección de acuerdo con la peligrosidad del producto, así como hacer cumplir el tiempo de espera entre la aplicación y la entrada de personas al área tratada.

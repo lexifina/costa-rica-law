@@ -1,1 +1,0 @@
-Artículo 54.-Los permisos para reempacado o reenvasado emitidos por el Ministerio tendrán vigencia por tres años, prorrogables por períodos iguales, previo cumplimiento de los requisitos establecidos en este Reglamento y de cancelación de los respectivos derechos.

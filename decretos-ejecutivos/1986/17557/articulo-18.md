@@ -1,1 +1,0 @@
-Artículo 18.-Todo envase o empaque que contiene plaguicidas formulado, producto técnico y coadyuvantes, debe presentar un seto de seguridad en la que permita garantizar la identidad y calidad del producto.

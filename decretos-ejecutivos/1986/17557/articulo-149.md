@@ -1,1 +1,0 @@
-Artículo 149.-Toda persona natural o jurídica que mezcle, manipule y aplique plaguicidas de venta restringida, está obligada a tener trabajadores mayores de 18 años. debidamente capacitados para el manejo de dichos productos y debe suministrar el equipo completo de protección personal, de acuerdo con la toxicidad del producto.

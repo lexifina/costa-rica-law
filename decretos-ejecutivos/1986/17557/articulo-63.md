@@ -1,1 +1,0 @@
-Artículo 63.-El personal dedicado a las labores de reempacado y de reenvasado de plaguicidas debe, contar con ropa de trabajo y equipo de protección personal. La descontaminación de la ropa de trabajo diaria y el equipo de protección personal es responsabilidad de cada empresa y debe realizar por medios mecánicos.

@@ -1,1 +1,0 @@
-Artículo 113.-El transporte de plaguicidas sólo podrá realizarse en vehículos que puedan limpiarse y des contaminarse adecuadamente. Además deben tener en un lugar visible, en la parte exterior, un rótulo que indique, el producto o productos que se transporten.

@@ -1,1 +1,0 @@
-Artículo 143. -Se prohíbe la aspersión o espolvoreo de plaguicidas sobre manantiales, estanques, canales u otras fuentes de agua. El uso de plaguicidas en cultivos anegados, sistemas de riego por canal y otros usos particulares se realizará de acuerdo con las normas particulares que dicte el Ministerio en conjunto con el Ministerio de Salud.

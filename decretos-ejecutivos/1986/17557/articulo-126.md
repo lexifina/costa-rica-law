@@ -1,1 +1,0 @@
-Artículo 126.-En caso de que el investigador que le está dando se seguimiento considere que el producto en evaluación no está dando resultado satisfactorio por causas ajenas, come por ejemplo: ausencia de la plaga, pérdida de planta , factores ambientales, etc., el ensayo se dará por acabado y se deberá repetir si el interesado así lo desea.

@@ -1,1 +1,0 @@
-Artículo 181.-Toda persona que utilice plaguicidas es responsable de desechar adecuadamente los envases usados, de acuerdo con lo recomendado en la etiqueta, así como por el almacenamiento provisional de éstos antes de su destrucción.

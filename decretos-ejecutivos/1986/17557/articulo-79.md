@@ -1,1 +1,0 @@
-Artículo 79.-Los plaguicidas de la categoría I establecidos en el presente Reglamento y aquellos otros que se declaren restringidos, sólo podrán ser comercializados y utilizados bajo receta profesional.

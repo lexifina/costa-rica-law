@@ -1,1 +1,0 @@
-Artículo 98.-Todos los plaguicidas deben ser almacenados y transportados en sus envases orígína.es, con sus respectivas etiquetas adheridas. En las operaciones de almacenamiento y transporte de plaguicidas, los trabajadores deben cumplir con las medidas de seguridad e higiene establecidas en la legislación vigente que rige esta materia.

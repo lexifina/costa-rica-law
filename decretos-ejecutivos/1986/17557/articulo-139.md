@@ -1,1 +1,0 @@
-Artículo 139.-Toda persona que aplique plaguicidas debe seleccionar el equipo de aplicación adecuado, de acuerdo con las características físicas y químicas del producto a utilizar y debe calibrarlo previamente utilizando agua o cualquier otro material inerte.

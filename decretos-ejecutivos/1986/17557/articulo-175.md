@@ -1,1 +1,0 @@
-Articulo 175.-El desecho o destrucción de plaguicidas no utilizables se debe realizar de acuerdo con las normas técnicas y cumpliendo las disposiciones específicas que establece el Ministerio de Salud en conjunto con el Ministerio.

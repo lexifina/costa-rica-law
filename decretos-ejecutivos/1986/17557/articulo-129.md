@@ -1,1 +1,0 @@
-Artículo 129.-EI Ministerio no otorgará nuevas autorizaciones para realizar investigaciones si el solicitante no ha cumplido con la presentación del Informe final correspondiente, establecido en el artículo 117, sin causa justificada

@@ -1,1 +1,0 @@
-Artículo 59.-Los locales destinados al reempacado o reenvasado de plaguicidas deben estar ubicados en sitios autorizados por el Ministerio de Salud y deben cumplir con 'los requisitos establecidos por el Ministerio de Trabajo y Seguridad Social, para garantizar las condiciones de seguridad e higiene de los trabajadores.

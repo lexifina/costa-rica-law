@@ -1,3 +1,0 @@
-Artículo 3°-Ninguna persona natural o jurídica podrá importar, exportar, fabricar, formular, almacenar, transportar, reempacar, reenvasar; vender; manipular, mezclar y usar plaguicidas y sus mezclas producto técnico y coadyuvantes; si éstos no están debidamente registrados, según lo establecen las leyes y este Reglamento.
-Serán solidariamente responsable por los daños producidos al ambiente , a los cultivos y a la salud de las personas, el fabricante, el registrante y el distribuidor, cuya responsabilidad sea atribuible al producto.
-(Así adicionado el párrafo anterior por el artículo 4° del decreto ejecutivo N° 22078 del 17 de marzo de 1993)

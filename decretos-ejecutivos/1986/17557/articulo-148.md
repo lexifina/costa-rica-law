@@ -1,1 +1,0 @@
-Artículo 148.-La selección del equipo de aplicación de plaguicidas de venta restringida, debe ser indicado por el profesional que emita la receta profesional y el cumplimiento de dicha disposición es responsabilidad del aplicador

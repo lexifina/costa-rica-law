@@ -1,1 +1,0 @@
-Artículo 41.-El registro de un producto autorizado puede ser modificado a solicitud del registrante. Para tal efecto se debe presentar una solicitud en donde se indique la razón de cambio propuesto y la documentación pertinente.

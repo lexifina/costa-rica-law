@@ -1,1 +1,0 @@
-Artículo 57.-Se prohíbe el reempacado y reenvasado de plaguicidas en recipientes usados o botellas, frascos o recipientes empleados tradicionalmente para cocinar o envasar alimentos, medicamentos específicos.

@@ -1,1 +1,0 @@
-Artículo 131.-Para importar y desalmacenar plaguicidas para uso en fase experimental, se debe contar con el correspondiente permiso especial de importación expedido por el Ministerio, previa presentación del permiso especial de experimental.

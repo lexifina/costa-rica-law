@@ -1,1 +1,0 @@
-Artículo 117.-Una vez cumplidos los requisitos establecidos en el artículo 113, el Ministerio autorizará la solicitud y levantará un asiento de inscripción el libro que para tal efecto llevará y extenderá al solicitante una certificación de la autorización respectiva.

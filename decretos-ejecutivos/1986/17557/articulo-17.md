@@ -1,1 +1,0 @@
-Artículo 17 .-En la solicitud de registro de plaguicidas formulado, producto técnico y coadyuvantes o de renovación, el solicitante debe indicar el material, tipo y tamaño de los envases o empaques que usará en la comercialización del producto y garantizar que el material usado en el envase es resistente a la acción o química del producto contenido.

@@ -1,1 +1,0 @@
-Artículo 61 .-EI reempacado y reenvasado de herbicidas hormonales, no hormonales, insecticidas, fungicidas, coadyuvantes y nutrientes foliares debe realizarse en instalaciones separadas y con maquinaria específica para cada fin.

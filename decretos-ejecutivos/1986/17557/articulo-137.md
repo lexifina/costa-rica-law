@@ -1,2 +1,0 @@
-Artículo 137.-Toda persona que quiera mezclar y aplicar plaguicidas debe leer la etiqueta antes de hacerlo.
-Debe informarse acerca del equipo de protección personal que debe utilizar, conocer las precauciones y antídotos que se requiere en caso de emergencia, así como conocer cuánta cantidad de producto debe mezclar, cómo mezclarlo y las condiciones de compatibilidad con otros productos a utilizar.

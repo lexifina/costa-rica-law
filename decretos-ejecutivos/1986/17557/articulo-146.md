@@ -1,1 +1,0 @@
-Artículo 146.- Todo propietario del área a tratar con plaguicidas que tenga apiarios a su alrededor en un radio menor de tres kilómetros está obligado a cumplir lo establecido en los artículo 7° y 8° de capítulo II del Reglamento sobre Protección de la Industria Apícola Nacional, establecido por Decreto Ejecutivo N° 2485-A-SPPS del 11 de marzo de 1981.

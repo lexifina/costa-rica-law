@@ -1,1 +1,0 @@
-Artículo 58.-Los envases a utilizar en el reempacado o reenvasado de plaguicidas deben ser nuevos. limpios, con buenas condiciones de cierre y adecuados al tipo y la peligrosidad del plaguicida que contienen, de acuerdo el artículo 17 del presente Reglamento.

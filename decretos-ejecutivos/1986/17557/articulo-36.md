@@ -1,2 +1,0 @@
-Artículo 36.-El Ministerio puede autorizar la importación y uso de un plaguicida formulado no registrado por una ún.ca vez, por razones de emergencia para el combate de plagas y enfermedades específicas, siempre y cuando no haya alguna otra alternativa de productos registrados en el país.
-Además se podrán autorizar por una sola vez su Importación y uso, lo, productos que están registrados y que no existen en el país y que el registrante no esté interesado en su comercialización.

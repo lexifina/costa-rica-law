@@ -1,1 +1,0 @@
-Artículo 45.-La solicitud de renovación del registro de un plaguicida formulado, producto técnico y coadyuvantes es válida para sólo un producto y debe ser presentada dentro de los 30 días hábiles antes de la fecha de vencimiento del registro correspondiente .

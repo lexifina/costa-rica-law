@@ -1,1 +1,0 @@
-Artículo 70.-La propaganda sobre plaguicidas que se rea ice por cualquier medio publicitario deben indicar con claridad la finalidad del producto anunciado y debe incluir la siguiente frase: Antes de usar el plaguicida lea cuidadosamente toda la etiqueta.

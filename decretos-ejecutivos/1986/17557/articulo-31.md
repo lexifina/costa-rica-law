@@ -1,1 +1,0 @@
-Artículo 31.-La Comisión podrá estudiar a petición del Ministerio, aquellas solicitudes de registro de productos que no han sido autorizados en el país origen y recomendará al Ministerio 10 que bien corresponda.

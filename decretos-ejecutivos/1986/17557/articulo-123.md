@@ -1,1 +1,0 @@
-Artículo 123.-Los gastos de transporte, de alimentación y hospedaje del funcionario que esté realizando la supervisión, correrán por cuenta del interesado. El profesional encargado de, darle seguimiento fijará el número y fechas tentativas de las visitas al ensayo, el cual no podrá ser menor de 3.

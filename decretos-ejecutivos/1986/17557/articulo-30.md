@@ -1,1 +1,0 @@
-Artículo 30. -La Comisión puede examinar los registros aprobados de plaguicidas formulados, producto técnico y coadyuvantes que considere conveniente y elevará a conocimiento del Ministerio las observaciones pertinentes

@@ -1,1 +1,0 @@
-Artículo 56.-Los plaguicidas deben ser reenvasados y reempacados utilizando equipos diseñados en tal forma que el personal operario no entre en contacto directamente con el plaguicida . Los trabajadores deben utilizar siempre el equipo de protección personal adecuado que brinde el máximo de seguridad.

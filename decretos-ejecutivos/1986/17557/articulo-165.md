@@ -1,1 +1,0 @@
-Artículo 165.-Toda persona que realice fumigaciones debe utilizar el equipo de protección de acuerdo con la peligrosidad del fumigante que se utiliza y debe disponer previamente con los equipos requeridos para realizar los primeros auxilios.
