@@ -13,3 +13,4 @@ De Interés Cultural Entrada de Santos y Desfile de Boyeros en San JoséCuarto d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-24 | la propia norma |
+| 2 | 1999-06-24 | SINALEVI (sin norma nombrada) |
