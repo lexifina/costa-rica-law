@@ -1,0 +1,5 @@
+INSTITUIR COMO TEMA OBLIGATORIO,
+LA PROTECCION DEL AMBIENTE,
+EN LA EDUCACION PRIMARIA Y, EN LA MEDIA
+ARTICULO 1.- Declárase de interés público la Educación para la
+Protección del Ambiente.
