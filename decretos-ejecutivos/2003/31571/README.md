@@ -14,3 +14,4 @@ Reglamento de concurso público para la selección y nombramiento del auditor in
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-13 | la propia norma |
+| 2 | 2004-04-26 | Decreto Ejecutivo 31797 (2004-04-26) |
