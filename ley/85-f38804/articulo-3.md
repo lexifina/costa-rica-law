@@ -1,0 +1,1 @@
+Art. 3. Todos los dias deberàn presentarse los citados reos al Comandante del expresado puerto, bajo cuya estrecha y especial vigilancia se ponen; y cualquiera de ellos que quebrante, de alguna manera el confinamiento, queda por el mismo hecho fuera de la protección de las leyes, y sus bienes responsables.
