@@ -1,0 +1,1 @@
+Artículo 27.—Para los efectos de lo que establece el artículo 4° del decreto número 13960-TSS de 4 de setiembre de 1982, el nombramiento de los miembros integrantes de la Junta Médica Calificadora, regirá desde el 15 de octubre de 1982 y hasta el 15 de octubre de 1987.

@@ -1,0 +1,1 @@
+Artículo 4°—Las entidades mencionadas nombrarán directamente sus representantes mediante comunicación al Ministro de Trabajo y Seguridad Social. El nombramiento de los representantes de los trabajadores será hecho por el Poder Ejecutivo, mediante ternas que serán sometidas a su consideración por medio de las confederaciones de sindicatos obreros legalmente constituidas.

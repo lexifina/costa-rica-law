@@ -1,0 +1,1 @@
+Artículo 24.—En el evento de que para los fines propios de la Junta Médica Calificadora, sea necesario ordenar exámenes complementarios al trabajador que sufrió un riesgo de trabajo o realizar interconsultas con médicos especialistas, estos gastos correrán por cuenta del Instituto Nacional de Seguros.

@@ -1,0 +1,1 @@
+Artículo 11.—Los miembros integrantes de la Junta Médica Calificadora recibirán una dieta de ochocientos colones por cada sesión a que asistan, pero en ningún caso se remunerarán más de ocho sesiones por mes.

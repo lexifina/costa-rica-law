@@ -1,0 +1,1 @@
+Artículo 19.—Una vez practicado el examen físico al recurrente, la Junta Médica Calificadora contará con un plazo no mayor de ocho días para vertir el dictamen médico o pronunciamiento que decida sobre el recurso. Dicho pronunciamiento sólo versará sobre los puntos en discordia expresados por el recurrente.

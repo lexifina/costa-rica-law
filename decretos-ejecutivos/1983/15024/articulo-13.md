@@ -1,0 +1,1 @@
+Artículo 13.—La Junta Médica Calificadora tendrá un presidente, un vicepresidente y un secretario nombrados del seno de sus cinco miembros, por la mayoría absoluta de ellos y durarán en sus cargos un año, pudiendo ser reelectos. La elección de presidente, vicepresidente y secretario se realizará en la primera sesión del mes de enero de cada año.

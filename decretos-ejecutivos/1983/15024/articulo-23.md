@@ -1,0 +1,1 @@
+Articulo 23.—La Caja Costarricense de Seguro Social, el Instituto Nacional de Seguros, el Consejo de Salud Ocupacional y demás instituciones del Estado relacionadas con la salud ocupacional, rehabilitación, materias médicas y hospitalarias, quedan debidamente autorizadas para brindar el apoyo necesario a la Junta Médica Calificadora.

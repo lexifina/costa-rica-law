@@ -1,0 +1,1 @@
+Artículo 20.—Para el desarrollo de las labores administrativas, la Junta Médica Calificadora contará con los recursos económicos, humanos y materiales que le proporcione el Ministerio de Trabajo y Seguridad Social.

@@ -1,0 +1,1 @@
+Artículo 7°—Los miembros integrantes de la Junta Médica Calificadora serán profesionales debidamente incorporados al respectivo colegio profesional universitario: uno de ellos será un ortopedista, otro será fisiatra, otro será un siquiatra y los dos restantes serán especialistas en medicina del trabajo.

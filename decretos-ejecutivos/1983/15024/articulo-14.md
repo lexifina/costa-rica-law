@@ -1,0 +1,1 @@
+Artículo 14.—El presidente de la Junta Médica Calificadora tendrá las facultades y atribuciones inherentes a su cargo como: convocar a sesiones, presidirlas, confeccionar el orden del día, firmar en unión del secretario las actas y documentos y las demás establecidas en el artículo 49 de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 25.—Para efectos de interpretación del presente Reglamento, se atenderá lo dispuesto en la Ley General de la Administración Pública, la Ley sobre Riesgos del Trabajo y sus reglamentos y leyes conexas.

@@ -1,0 +1,1 @@
+Artículo 5°—La escogencia del representante de los trabajadores se hará en forma rotativa y en la primera oportunidad, mediante sorteo, se determinará el orden de precedencia en que el Poder Ejecutivo solicitará las ternas a cada una de las confederaciones de sindicatos obreros legalmente constituidas.

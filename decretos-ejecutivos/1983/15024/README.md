@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 15024
+
+Reglamento de la Junta Médica Calificadora de la Incapacidad para el Trabajo
+
+- Tipo: Decreto Ejecutivo
+- Número: 15024
+- Fecha: 1983-11-16
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 241 del 1983-12-21
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9683&param2=10366&param3=1 (ficha 9683)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1983-12-21 | la propia norma |

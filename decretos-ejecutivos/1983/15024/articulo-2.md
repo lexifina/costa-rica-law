@@ -1,0 +1,1 @@
+Artículo 2°—La Junta Médica Calificadora tendrá como finalidad, calificar las incapacidades del trabajo que provengan por vía de recurso del interesado no conforme con el dictamen médico hecho por el Instituto Nacional de Seguros.
