@@ -1,0 +1,2 @@
+Artículo 1º.- Interprétase el transitorio V de la Ley Orgánica de la Guardia de Asistencia Rural, Nº 4639 de 1º de setiembre de 1970, en el siguiente sentido:
+Aquellos servidores que no llenaron, dentro del plazo de los dos años siguientes a la vigencia de esta ley, el requisito establecido en su artículo 15 inciso d), son interinos. Por tanto, no puede considerárseles como servidores regulares de la Guardia de Asistencia Rural para los efectos del Servicio Civil, aunque haya vencido el plazo estipulado en el transitorio V que se interpreta.
