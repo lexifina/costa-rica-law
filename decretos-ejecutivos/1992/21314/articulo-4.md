@@ -1,0 +1,1 @@
+Artículo cuarto: este canon deberá ser cancelado, para los permisos de uso existentes, en el momento en que deban cancelar el próximo período, y para los nuevos puestos en el momento en que sean autorizados.
