@@ -8,6 +8,6 @@ respectivos formularios, a más tardar un mes antes de la fecha
 establecida. En casos especiales, cuando las empresas hayan sido
 autorizadas por la Dirección General de la Tributación Directa, para
 presentar su declaración del impuesto sobre la renta en fecha posterior a
-la establecida en la ley, estas podrán presentar sus declaraciones juradas
-a la Municipalidad, dentro de los cinco días hábiles siguientes a la fecha
-autorizada por la Dirección General de la Tributación Directa.
+la establecida en la ley, estas podrán presentar sus declaraciones
+juradas a la Municipalidad, dentro de los cinco días hábiles siguientes a
+la fecha autorizada por la Dirección General de la Tributación Directa.
