@@ -1,0 +1,2 @@
+Artículo 45.- En la Dirección General de la Tributación Directa se establecerá el Registro de Contadores Públicos Autorizados, cuyos miembros estarán facultados para emitir el “Certificado para efectos tributarios” a que alude el artículo trasanterior.
+El Poder Ejecutivo, mediante reglamentación emitida al efecto con la participación del Colegio de Contadores Públicos de Costa Rica, establecerá las disposiciones normativas a las cuales debe ajustarse todo el trabajo de detalle relativo a las certificaciones para efectos tributarios.

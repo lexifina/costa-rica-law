@@ -1,0 +1,2 @@
+Artículo 26.- Extranjeros que prestan servicios en el país.
+Tratándose de personas no domiciliadas en el país que obtengan rentas de fuente costarricense, por la prestación de servicios personales de cualquier naturaleza, deberán pagar un impuesto del quince por ciento (15%) sobre el ingreso bruto, sin deducción alguna. El pagador de la renta estará obligado a efectuar la retención correspondiente
