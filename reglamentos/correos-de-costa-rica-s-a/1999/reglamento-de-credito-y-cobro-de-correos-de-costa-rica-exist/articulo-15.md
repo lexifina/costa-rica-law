@@ -1,0 +1,2 @@
+Artículo 15.—El Departamento de Crédito y Cobro realiza la gestión del cobro administrativo, para los casos de obligaciones morosas, para lo cual hará dos intimaciones al cliente con un intervalo de ocho días hábiles entre una y otra, además se aplicará la suma correspondiente a los intereses moratorios respectivos y a los costos directos de la gestión de cobro.
+Una vez que se incurra en mora, se suspende el servicio de crédito en forma inmediata.

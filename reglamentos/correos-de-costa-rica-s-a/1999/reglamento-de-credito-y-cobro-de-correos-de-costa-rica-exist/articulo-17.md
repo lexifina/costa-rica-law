@@ -1,0 +1,1 @@
+Artículo 17.—Para las instituciones del Estado que tengan facturas atrasadas o sin cancelar, se les suspenderá el servicio y se iniciará la gestión de cobro administrativo, en los términos que defina la Empresa, o el cobro judicial cuando proceda.

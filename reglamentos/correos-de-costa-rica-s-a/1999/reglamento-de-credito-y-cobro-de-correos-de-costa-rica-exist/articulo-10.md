@@ -1,0 +1,1 @@
+Artículo 10.—Los Clientes sujetos de crédito deberán previamente firmar un Pagaré por el monto del crédito concedido, lo anterior como Garantía para la prestación del Servicio. El Pagaré deberá contar con una garantía fiduciaria a satisfacción de la Empresa. Igualmente se podrá establecer un monto de depósito de garantía.

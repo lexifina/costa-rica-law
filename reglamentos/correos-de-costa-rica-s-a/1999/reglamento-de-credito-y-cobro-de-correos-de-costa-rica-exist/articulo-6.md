@@ -1,0 +1,1 @@
+Artículo 6.—El Cliente deberá cancelar las facturas de crédito a su nombre, dentro del plazo previamente establecido; transcurrido el mismo sin haberse cancelado la obligación, la Empresa procederá a realizar el cobro correspondiente, el cual incluirá el pago de intereses moratorios.

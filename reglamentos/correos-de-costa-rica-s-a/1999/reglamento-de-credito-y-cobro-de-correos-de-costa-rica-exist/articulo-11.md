@@ -1,0 +1,1 @@
+Artículo 11.—Cuando se trate de Instituciones del Gobierno Central y otros Entes Estatales, éstas deberán suscribir un contrato especial con la Empresa para exonerarlos de la garantía, mencionada en el artículo anterior.

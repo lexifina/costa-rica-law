@@ -1,0 +1,1 @@
+Artículo 20.—El Cliente se obliga a aceptar y acatar todas las disposiciones contempladas en este Reglamento, los manuales de procedimientos y directrices respectivas relacionadas con el otorgamiento del crédito.

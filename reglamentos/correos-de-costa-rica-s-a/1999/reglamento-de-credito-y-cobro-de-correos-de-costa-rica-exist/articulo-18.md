@@ -1,0 +1,1 @@
+Artículo 18.—Las personas físicas o jurídicas podrán recuperar su condición de sujetos de crédito, cuando se den arreglos de pago o readecuaciones debidamente calificadas y aceptadas por la Gerencia General.
