@@ -1,2 +1,0 @@
-Artículo 26.-El Consejo será designado por un período de cuatro años, se reunirá ordinariamente por lo menos dos veces al mes y extraordinariamente cuando sea convocado por el Presidente de la República o el Vicepresidente de la República que lo sustituye; formarán quorum cinco de sus miembros y sus acuerdos se aprobarán por simple mayoría. Los miembros del Consejo desempeñarán sus cargos ad honorem.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 16092 del 12 de marzo de 1985)

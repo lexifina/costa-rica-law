@@ -1,1 +1,0 @@
-Artículo 22.-Las entidades participantes deberán acatar las normas, procedimientos y requisitos que determine la Dirección. Asimismo, deberán observar estrictamente, entre otros, las disposiciones que dicte la Dirección, sobre presentación, ejecución y evaluación de presupuestos, control interno y solicitudes de recursos.

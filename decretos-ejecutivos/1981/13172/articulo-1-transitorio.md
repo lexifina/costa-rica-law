@@ -1,1 +1,0 @@
-Transitorio I.-Hasta tanto no se hagan los estudios pertinentes que sirvan para establecer el Reglamento General que defina los beneficiarios del Fondo, de acuerdo con el artículo 2º de la Ley, será facultad del Ministro estudiar y aprobar los requisitos que las instituciones participantes deberán proponer, para definir los beneficiarios del programa correspondientes.
