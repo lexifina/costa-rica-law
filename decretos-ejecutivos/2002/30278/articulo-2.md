@@ -1,0 +1,1 @@
+Artículo 2º—En cuanto a los funcionarios del Ministerio de Educación Pública, será el jerarca de dicha institución el que determine; en base al artículo 213 del Código de Educación y mediante circular interna, cual o cuales días de los autorizados se les otorgará como asueto a los funcionarios de esa cartera que laboren para ese cantón.
