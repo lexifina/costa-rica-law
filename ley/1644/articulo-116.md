@@ -1,0 +1,1 @@
+Artículo 116.- Los estatutos de las sociedades cooperativas que soliciten la ayuda económica o técnica del Departamento, así como las reformas posteriores de los mismos, deberán ser previamente aprobados por la Junta Directiva del Banco.
