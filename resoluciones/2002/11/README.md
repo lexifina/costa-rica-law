@@ -15,3 +15,4 @@ Dispone la utilización de internet a quienes tengan derecho a crédito por pago
 | --- | --- | --- |
 | 1 | 2002-04-03 | la propia norma |
 | 2 | 2002-08-13 | Resolución 35 (2002-08-13) |
+| 3 | 2003-01-21 | Resolución 2 (2003-01-21) |

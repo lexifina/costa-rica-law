@@ -29,5 +29,5 @@ RESUELVE:
 a) Utilizar Internet para enviar y pagar la declaración respectiva a la Administración Tributaria, conforme a lo previsto por resolución de esta Dirección, No 29/2001, publicada en La Gaceta No 179 del 18 setiembre del 2001, y sus reformas, a efecto de disfrutar del procedimiento de devolución simplificado de oficio por parte de la Administración Tributaria, que se regula en el artículo siguiente. Para tales efectos podrán solicitar el acceso directo al Sitio de Tributación en Línea (SITEL), o contratar el uso del sitio de una empresa autorizada.
 b) Tener la exportación de mercancías como única actividad generadora del crédito en el Impuesto General sobre las Ventas.
 c) Estar registrado en la Administración Tributaria como exportador.
-d) Estar afiliado a la Cámara de Exportadores de Costa Rica.
-(Así Reformado por la Resolución N° 35 del 13 de marzo del 2002.)
+(Así Reformado por la Resolución N° 35 del 13 de agosto del 2002.)
+( El inciso d de este artículo fue derogado por la Resolución N° 2 del 21 de enero del 2003.)
