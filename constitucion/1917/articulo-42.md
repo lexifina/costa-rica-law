@@ -1,1 +1,0 @@
-ARTICULO 42.-No se concederá la nacionalidad a ciudadano ó súbdito de nación con la cual Costa Rica se halle en estado de guerra, ni a los declarados en otros países piratas, traficantes de esclavos, incendiarios, monederos falsos o falsificadores de billetes de banco, del Tesoro u otros documentos de crédito público, asesinos, plagiarios o ladrones.

@@ -1,2 +1,0 @@
-ARTICULO 6º.-Los Senadores y Diputados que componen la actual Asamblea y que formarán el inmediato congreso, y las Municipalidades en ejercicio, durarán en sus puestos hasta el 30 de abril de 1919.
-El Poder Ejecutivo, en la fecha oportuna, convocará a elecciones, de acuerdo con el artículo 52 de la Constitución; y las Cámaras que entonces se elijan, de la misma manera que las Municipalidades, serán renovables por mitad cada tres años en la forma prevenida en la misma Constitución.

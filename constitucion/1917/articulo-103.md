@@ -1,2 +1,0 @@
-ARTICULO 103.-Todos los decretos, acuerdos, resoluciones u órdenes del Presidente, deben ser firmados por el Ministro respectivos y no valdrán ni serán obedecidos sin este requisito. Tan sólo los decretos en que se nombre o remueva a los Ministros, podrán ir firmados únicamente por el Presidente.
-Los ministros no podrán tampoco dictar ningún acuerdo, resolución u orden por sí solos, y serán reos de suplantación si comunicaren algún acto del Presidente sin estar antes firmado por éste en el libro respectivo

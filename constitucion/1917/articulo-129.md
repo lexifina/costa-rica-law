@@ -1,1 +1,0 @@
-ARTICULO 129.-El Congreso en sus sesiones ordinarias observará si la Constitución ha sido violada y si se ha hecho efectiva la responsabilidad en los infractores; y en caso necesario promoverá lo que fuere conducente para el castigo de los culpables.

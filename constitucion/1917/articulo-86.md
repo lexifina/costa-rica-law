@@ -1,2 +1,0 @@
-ARTICULO 86.-Los proyectos de ley que quedaren pendientes al fin de una legislatura en la Cámara, serán tenidos como proyectos nuevos en las inmediatas sesiones ordinarias, si para esta segunda legislatura hubiere habido la renovación de Diputados. En caso contrario, podrá continuarse la tramitación interrumpida.
-Los que a fin de una legislatura quedaren en el Senado, serán tenidos igualmente como proyectos nuevos en el mismo caso de haber habido la renovación de Senadores.
