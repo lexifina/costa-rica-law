@@ -1,0 +1,1 @@
+Artículo 4°-Deróganse los artículos 9°, 10, 11, 12, 13, 14, 15, 16, 17, 18, inciso 7) del artículo 30, inciso 3) del artículo 32 del citado Reglamento de la Junta (decreto N° 589 de 19 de diciembre de 1949).

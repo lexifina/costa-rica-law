@@ -1,0 +1,1 @@
+Artículo 2°-Deróganse los artículos 8°, 9°, 10, 11, 12, 13, 14, 15, 16, 17, 18 y 20 del referido Reglamento General de Patronatos y Juntas Directivas de Protección Social (Decreto N° 27 de 20 de mayo de 1941).
