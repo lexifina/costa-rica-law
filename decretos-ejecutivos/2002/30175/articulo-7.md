@@ -1,0 +1,1 @@
+Artículo 7º—Durante la fase de desarrollo del proyecto, el sistema de transporte y uso de la vialidad, estará a cargo y correrá por cuenta y riesgo del desarrollador, quien sólo por razones de seguridad podrá limitar el acceso a las partes del proyecto que se encuentren en fase de construcción.

@@ -1,0 +1,1 @@
+Artículo 6º—Conforme se desarrollen otros sitios turísticos, se dispondrá de un número limitado de espacios de estacionamiento para quienes lleguen a ellos en vehículos personales impulsados por motores no contaminantes. Cada desarrollo que tenga acceso a una playa tendrá su respectivo estacionamiento techado para el servicio público de transporte.

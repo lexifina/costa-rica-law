@@ -1,0 +1,1 @@
+Artículo 10.—El incumplimiento de las disposiciones de este decreto, así como del plan operativo aprobado por el Instituto Costarricense de Turismo, dará base al inicio de un procedimiento administrativo contra el infractor y a la aplicación de las sanciones de Ley.

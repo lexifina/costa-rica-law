@@ -1,0 +1,2 @@
+Artículo 5º—En el plan operativo el Instituto Costarricense de Turismo deberá velar por que el servicio de transporte permita a los visitantes movilizarse entre el estacionamiento ubicado en la entrada del proyecto y las áreas desarrolladas del mismo donde pretendan disfrutar de la zona pública.
+El servicio deberá cubrir rutas regulares a lo largo de las vías principales de las penínsulas sur y norte, con paradas albergadas que proporcionen acceso a través de senderos peatonales, a la zona pública de las playas cercanas.

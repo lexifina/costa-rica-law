@@ -1,0 +1,1 @@
+Artículo 9º—La vigilancia de la garantía de libre acceso, así como el cumplimiento de las condiciones del presente decreto, será supervisado por el Instituto Costarricense de Turismo, la Municipalidad respectiva y la Procuraduría General de la República, dentro de las competencias que concede la Ley a cada institución.
