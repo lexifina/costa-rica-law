@@ -1,0 +1,2 @@
+Artículo 42.-EI tiempo que se establece para el préstamo de documentos a las oficinas será de 15 días calendario, una vez cumplido este periodo deberá renovarse el préstamo por un periodo igual, si esto no sucede el Archivista está en la obligación de solicitarlos al jefe de la oficina.
+Se exceptúa a la Auditoria Interna y al Asesor Legal del plazo de préstamo por quince días, a la cual se le facilitarán los documentos hasta por un mes calendario, prorrogable por un período igual.

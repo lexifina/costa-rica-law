@@ -1,0 +1,1 @@
+Articulo 20.-EI sistema de clasificación de los documentos que se utilizará en la Municipalidad, estará basado en la estructura orgánica, y podrá ser complementado con el sistema “funcional”, el cual permite crear expedientes según la importancia del asunto.

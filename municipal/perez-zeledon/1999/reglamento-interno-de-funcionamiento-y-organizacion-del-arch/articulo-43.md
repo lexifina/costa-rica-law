@@ -1,0 +1,1 @@
+Artículo 43.-EI funcionario que no realice la devolución de los documentos en el tiempo establecido, o que no los custodie adecuadamente o que contribuya a su extravío o destrucción previo a los avisos de devolución extemporánea, se expone a sanción por parte del Alcalde Municipal, de acuerdo al Reglamento Interno de Trabajo.
