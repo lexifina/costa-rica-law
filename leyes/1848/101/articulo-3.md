@@ -1,0 +1,1 @@
+Art. 3. El cadáver del Coronel Orozco se sepultará en el Cementerio general de esta ciudad, y oportunamente serà exhumado para colocarlo en el lugar que se destine en el nuevo panteon, donde se le levantarà el mausoléo prevenido en el decreto citado de esta fecha.

@@ -1,0 +1,1 @@
+Art. 4. Este decreto se imprimirà, publicara y circularà para su cumplimiento, poniendose oportunamente en conocimiento del Excelentisimo Congreso.-Dado en la ciudad de San José á los treinta dias del mes de marzo de mil ochocientos cuarenta y ocho:-Juan Rafael Mora. Al Ministro de relaciones y gobernacion Señor Don Joaquin Bernardo Calvo.
