@@ -1,8 +1,10 @@
 Artículo 6°—División de Informática
-1. Tres subdirecciones formarán parte de esta división:
-a) Ingeniería de Sistemas
-b) Soporte Técnico
-c) Servicio a Usuarios
+1. Cuatro subdirecciones formarán parte de esta División:
+a) Ingeniería de sistemas
+b) Soporte técnico
+c) Servicio a usuarios
+d) Gestión y control de proyectos
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1 de la Resolución No. 48 de 21 de noviembre del 2002, publicada en La Gaceta No. 45 de 5 de marzo del 2003)
 2. La Subdirección de Ingeniería de Sistemas se encargará de:
 a) Definir las prioridades de ejecución de los proyectos y sistemas que deben elaborarse, conocer y aprobar su alcance y objetivos.
 b) Evaluar, coordinar y ejecutar el desarrollo de nuevos sistemas de información que requiera la Dirección General de Tributación.
@@ -31,3 +33,17 @@ b) Ejecutar los procesos rutinarios de arranque y parada del equipo informático
 c) Ejecutar las medidas para garantizar la debida manipulación de la documentación y los respaldos informáticos.
 d) Atender las incidencias, problemas y sugerencias reportados por los usuarios en cuanto a la operación, manejo y funcionalidad de los sistemas informáticos.
 e) Cualesquiera otras que designe la Dirección General.
+5. La Subdirección de Gestión y Control de Proyectos se encargará de:
+a) Determinar la forma en que las distintas administraciones responden a las necesidades de información y a las expectativas de los posibles beneficiarios mediante la utilización de la tecnología, creando un marco de colaboración entre la División de Informática y las Administraciones Tributarias.
+b) Establecer la definición general de los proyectos relacionados con tecnología de la información, de la Administración Tributaria, como línea base del mismo, donde se recoge el ámbito y objetivos, una análisis de alternativas, legislación relevante, participantes, etc., así como una estimación inicial de esfuerzo y costos y un análisis de riesgos potenciales.
+c) Establecer y planificar los hitos de control y de revisión de la progresión del proyecto.
+d) Planificar en forma detallada la estructura de actividades a realizar, así como la asignación de plazos, fechas, recursos y costos. Además se revisan, analizan y actualizan los factores de riesgo. Esta acitividad puede ser repetitiva a lo largo del proyecto, por ejemplo al principio de cada proceso, si así se determina como marco de trabajo en la actividad de Apertura del Proyecto.
+e) Ejecutar y controlar los Proyectos, donde se debe realizar el seguimiento de los objetivos establecidos y las planificaciones, reflejando la situación del proyecto y generando informes en función de los hitos de control y de revisión que se hayan establecido en la Apertura del Proyecto. Se proponen, se considera necesario, acciones correctivas en la planificación.
+f) Terminar los proyectos, donde se deben dar por concluidos los proyectos, registrando la información que se haya establecido, generando un balance final del proyecto, y procediendo a su finalización y cierre.
+g) Identificar las posibles desviaciones en los estándares aplicados, así como en los requisitos y procedimientos especificados.
+h) Informar de los defectos encontrados.
+i) Comprobar que se han llevado a cabo las medidas correctoras o preventivas necesarias.
+j) Reducir, eliminar y, lo más importante, prevenir las deficiencias de calidad de los productos a obtener.
+k) Alcanzar una razonable confianza en que las prestaciones y servicios esperados por el cliente, o el usuario, quedan satisfechas.
+i) Cualesquiera otras que designe la Dirección General.
+(Así AMPLIADO por el artículo 2 de la Resolución No. 48 de 21 de noviembre del 2002, publicada en La Gaceta No. 45 de 5 de marzo del 2003)
