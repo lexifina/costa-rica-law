@@ -1,2 +1,5 @@
 Artículo 9°—Los trabajos, informes y trámites varios serán realizados por la Sección de Asuntos Indígenas del ITCO. Todo lo que se refiere a la Comisión de Emergencia Nacional en el ITCO será canalizado por la Sección de Asuntos Indígenas de esta Institución.
 La Sección de Asuntos Indígenas tendrá a su cargo la parcelación de las fincas recuperadas.
+Las parcelas así delimitadas serán adjudicadas por la comunidad indígena correspondiente, representada por su Asociación de Desarrollo Integral, a sus nuevos ocupantes indígenas, en forma definitiva, con asesoría y la Dirección de la Sección de Asuntos Indígenas del I.T.CO.
+La escritura de adjudicación llevará la firma del Presidente de Comisión de Emergencia Nacional, del Jefe de la Sección de Asuntos Indígenas del I.T.C.O., así como las firmas del Presidente y de cuatro miembros más de la Junta Directiva de la Asociación de Desarrollo de la Reserva Indígena, que deberán reconocer en el campo los linderos de las parcelas adjudicadas.
+(Así adicionados los dos últimos párrafos mediante el artículo 2° del decreto ejecutivo N° 10035 del 21 de mayo de 1979).
