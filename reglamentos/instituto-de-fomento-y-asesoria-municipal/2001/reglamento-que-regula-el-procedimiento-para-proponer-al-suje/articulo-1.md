@@ -1,0 +1,5 @@
+INSTITUTO DE FOMENTO Y ASESORÍA MUNICIPAL
+La Junta Directiva del Instituto de Fomento y Asesoría Municipal, mediante acuerdo primero, articulo tres de la sesión extraordinaria N° 3l28, celebrada a las 14,00 horas del día 3 de octubre de 2001, resolvió aprobar el siguiente Reglamento;
+REGLAMENTO QUE REGULA EL PROCEDIMIENTO PARA PROPONER AL SUJETO PASIVO LA REGULARIZACIÓN DE SU SITUACIÓN TRIBUTARIA
+El Instituto de Fomento y Asesoría Municipal, en calidad de Administración Tributaria de los impuestos establecidos en el articulo 10 de la Ley 5792 del 09 de diciembre de 1975, y en los artículos 37 y siguientes de la Ley de Licores, conforme con lo dispuesto en los artículos 11, 14, 99 y 144 del Código de Normas y Procedimientos Tributarios, dicta el presente reglamento que regula el procedimiento para proponer a los sujetos pasivos la regularización de su situación tributaria.
+Articulo 1-Para realizar la determinación de oficio regulada en el articulo 124 del Código de Normas y Procedimientos Tributarios, la Administración ejercerá las actuaciones fiscalizadoras o de comprobación necesarias, de conformidad con las potestades atribuidas legal y constitucionalmente.

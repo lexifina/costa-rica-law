@@ -1,0 +1,1 @@
+Artículo 2-Concluidas las actuaciones referidas en el articulo anterior, la Administración Tributaria deberá proponerle al sujeto pasivo, conforme con los resultados derivados de esas actuaciones, la regularización correspondiente.
