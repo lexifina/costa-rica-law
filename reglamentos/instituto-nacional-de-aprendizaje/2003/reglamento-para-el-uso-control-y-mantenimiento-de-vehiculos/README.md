@@ -14,3 +14,4 @@ Reglamento para el Uso, Control y Mantenimiento de Vehículos del Instituto Naci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-25 | la propia norma |
+| 2 | 2005-01-31 | Reglamento 4168 (2005-01-31) |

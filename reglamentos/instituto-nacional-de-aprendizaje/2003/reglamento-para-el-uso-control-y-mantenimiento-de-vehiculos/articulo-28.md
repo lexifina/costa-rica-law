@@ -1,1 +1,4 @@
-Artículo 28.—Alteración de ruta. Cualquier alteración de la ruta programada que se presente en el transcurso de un viaje, será responsabilidad absoluta del funcionario que utilice el servicio. El chofer deberá informar al jefe correspondiente tal situación al finalizar la gira para que actúe según corresponda.
+CAPÍTULO VI
+De los conductores y chóferes de vehículos,
+protección, deberes y responsabilidades
+Artículo 28.—Uso de vehículos. Es prohibido para quien tenga a cargo vehículos, poner en uso las unidades que no estén en condición de ser utilizados, o que no cuenten con la póliza de seguro vigente a la fecha.

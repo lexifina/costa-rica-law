@@ -1,1 +1,1 @@
-Artículo 48.—Cumplimiento de normativa. Es responsabilidad exclusiva de cada chofer o conductor y de la Administración en lo que corresponda a cada uno el cumplimiento de lo establecido en el presente Reglamento, de ahí que si acata órdenes que contravengan dichas disposiciones asumirá las consecuencias que esa acción origine.
+Artículo 48.—Definición de controles internos. La Jefatura de la Unidad de Recursos Materiales definirá las normas y procedimientos de control interno adicionales que estime necesarias tendientes a lograr un adecuado uso de los vehículos del INA.

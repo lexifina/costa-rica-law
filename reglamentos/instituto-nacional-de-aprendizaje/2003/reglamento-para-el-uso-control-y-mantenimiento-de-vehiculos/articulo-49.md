@@ -1,1 +1,1 @@
-Artículo 49.—Divulgación del Reglamento. La Unidad de Recursos Materiales velará por la debida divulgación de este Reglamento entre los funcionarios de la Institución
+Artículo 49.—Cumplimiento de normativa. Es responsabilidad exclusiva de cada chofer o conductor y de la Administración en lo que corresponda a cada uno el cumplimiento de lo establecido en el presente Reglamento, de ahí que si acata órdenes que contravengan dichas disposiciones asumirá las consecuencias que esa acción origine.

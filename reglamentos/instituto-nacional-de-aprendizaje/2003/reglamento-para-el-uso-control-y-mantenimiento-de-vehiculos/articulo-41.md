@@ -1,8 +1,2 @@
-CAPÍTULO VIII
-De los usuarios de los servicios de transporte, deberes y responsabilidades
-Artículo 41.—Deberes de los usuarios. Son deberes de los usuarios de los servicios de transporte que presta la Institución:
-a) Conocer y cumplir las disposiciones establecidas en el presente Reglamento.
-b) Portar el carné que lo identifica como trabajador de este Instituto, mientras viaja en vehículos del INA, salvo el caso de particulares autorizados.
-c) Hacer uso de los servicios de transporte que presta el INA, en situaciones plenamente justificadas y por razón del desempeño de las labores propias de la Institución.
-d) Mantener una posición de respeto para las otras personas que viajan dentro del vehículo y las que se encuentran fuera de él.
-e) Reportar al Encargado de Transportes cualquier irregularidad que observe en el transcurso del servicio, ya fuere en el vehículo o en el cumplimiento del presente Reglamento.
+Artículo 41.—Informe del accidente. El Encargado de Transportes analizará todo accidente de tránsito en que participe un vehículo del INA a su cargo, del cual rendirá un informe con la recomendación respectiva, a la Jefatura de la Unidad de Recursos Materiales con copia a la Auditoria Interna dentro de los tres días hábiles siguientes a la fecha del percance. Si dicha recomendación no es compartida por el chofer o conductor, este tendrá derecho a presentar inconformidades dentro de los tres días hábiles posteriores ante el Subgerente Administrativo de la Institución para hacer valer sus derechos y presentar las pruebas y alegatos que estime convenientes.
+Una vez concluido el procedimiento, el Subgerente Administrativo tomará la resolución correspondiente, todo de conformidad con los artículos 320 y siguientes de la Ley General de la Administración Pública, a efectos de iniciar el procedimiento disciplinario o de cobro administrativo contra el chofer o conductor involucrado.

@@ -1,2 +1,1 @@
-Artículo 51.—Vigencia. Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deroga cualquier otra disposición interna que se le oponga.
-Este Reglamento fue debidamente aprobado por la Junta Directiva en Sesión Nº 4058, celebrada el 2 de junio del 2003.
+Artículo 51.—Sanciones. Las infracciones al presente Reglamento serán sancionadas disciplinariamente de acuerdo con lo establecido en el Reglamento Autónomo de Servicios.

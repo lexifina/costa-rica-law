@@ -1,3 +1,1 @@
-CAPÍTULO VII
-De los accidentes de tránsito en que intervienen vehículos del INA
-Artículo 37.—Acatamiento de instrucciones. Los conductores que debido a la circulación por las vías públicas con vehículos del INA se vean involucrados en un accidente de tránsito, deben seguir las instrucciones incluidas en este Reglamento.
+Artículo 37.—Jornada de los chóferes. Con el fin de dar cumplimiento a lo dispuesto en el artículo 140 del Código de Trabajo, la jornada ordinaria más la extraordinaria de los chóferes no puede ser superior a las doce horas, por lo que esta situación debe ser prevista a la hora de asignar las giras y los acompañantes estarán obligados a respetar esta disposición al regresar.

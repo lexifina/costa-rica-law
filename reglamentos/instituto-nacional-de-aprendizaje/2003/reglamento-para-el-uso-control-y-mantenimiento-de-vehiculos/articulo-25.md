@@ -1,1 +1,1 @@
-Artículo 25.—Excepciones. Durante las ausencias mencionadas en el artículo anterior, solo en casos muy calificados podrán ser utilizados en funciones propias de su cargo y, con autorización del superior jerárquico.
+Artículo 25.—Permanencia de los vehículos. Los vehículos de uso discrecional en ausencias prolongadas del beneficiario del mismo ya sea por vacaciones, permisos, incapacidades, etc., deberán permanecer bajo la custodia de la Institución. Se exceptúan los fines de semana, feriados y otras ausencias que no superen los siete días naturales.

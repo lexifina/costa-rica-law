@@ -1,3 +1,2 @@
-CAPÍTULO X
-Disposiciones finales
-Artículo 45.—Cumplimiento de disposiciones. El encargado de transportes es la persona encargada a nivel institucional de velar porque se cumplan las disposiciones contenidas en este Reglamento y de las políticas dictadas por la Subgerencia Administrativa al respecto.
+Artículo 45.—Declaración del chofer o conductor. El chofer o conductor debe presentarse en los ocho días posteriores al accidente, llevando los nombres y calidades de los testigos, a brindar declaración ante los tribunales de tránsito correspondientes según la zona donde haya ocurrido el accidente así como aportar las pruebas de descargo durante los primeros cinco días. Además debe solicitar copia del expediente (croquis y declaraciones) para ser entregadas al Encargado de Transportes para lo que corresponda.
+Además debe colaborar en los trámites correspondientes con el Instituto Nacional de Seguros, aportar copia del parte de tránsito y del aviso de accidente preparado por el inspector del INS.

@@ -1,1 +1,1 @@
-Artículo 32.—Prohibición intercambio de accesorios. Los conductores de vehículos institucionales no podrán hacer intercambios de accesorios entre las unidades, si no cuentan con la aprobación del Encargado de Transportes.
+Artículo 32.—Cesión de manejo del vehículo. Es absolutamente prohibido a todos los conductores y chóferes ceder la conducción del vehículo a otras personas, salvo caso fortuito por razones muy calificadas, en cuyo caso, una vez finalizada la gira, deberá informar los motivos que lo indujeron a entregar el vehículo.

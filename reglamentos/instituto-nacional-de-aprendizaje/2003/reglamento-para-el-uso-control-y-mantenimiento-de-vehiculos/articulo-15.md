@@ -2,28 +2,24 @@ Artículo 15.—Presentación de solicitud de transportes. Para la prestación d
 a) Ser prenumerada.
 b) Aprobada por el jefe respectivo o por quienes este designe por escrito, lo cual debe ser comprobado con el registro de firmas.
 c) Se debe incluir como mínimo la siguiente información:
-- Fecha de preparación.
-- Nombre de la dependencia solicitante.
-- Detallar el objetivo del viaje a realizar.
-- Lugar o lugares que se visitarán.
-- Nombre de las personas autorizadas para viajar.
-- Fecha y hora estimada de salida.
-- Fecha y hora estimada de regreso.
-- Cualquier observación que se considere necesaria.
-El Encargado de Transportes completará la siguiente información y autorizará con su firma la salida del vehículo:
-- Número de placa del vehículo que prestará el servicio.
-- Fecha y hora de salida del garaje.
-- Kilometraje inicial.
-- Lugar y hora de inicio de la gira.
-- Nombre del funcionario responsable de la gira.
-- Nombre del chofer o conductor asignado.
+o Fecha de preparación.
+o Nombre de la dependencia solicitante
+o Detallar el objetivo del viaje a realizar.
+o Lugar o lugares que se visitarán.
+o Nombre de las personas autorizadas para viajar.
+o Fecha y hora estimada de salida.
+o Fecha y hora estimada de regresos.
+o Cualquier observación que se considere necesaria. El Encargado de Transportes completará la siguiente información y autorizará con su firma la salida del vehículo:
+o Número de placa del vehículo que prestará el servicio.
+o Fecha y hora de salida del garaje.
+o Salida del garaje.
+o Kilometraje inicial. o Lugar y hora de inicio de la gira.
+o Nombre del funcionario responsable de la gira. o Nombre del chofer o conductor asignado.
 Al finalizar la gira, el chofer o conductor del vehículo deberá anotar la siguiente información:
 o Lugar y hora de la conclusión del servicio.
-o Hora entrada al garaje.
-o Kilometraje final de la gira.
+o Hora entrada al garaje. o Kilometraje final de la gira.
 o Firma del chofer o conductor del vehículo.
 o Nivel aproximado del combustible.
-o Cualquier observación que consideren necesaria.
-Al finalizar la gira, el responsable deberá firmar la boleta, dando fe de que el servicio se recibió a conformidad y dando fe de que la hora de inicio y finalización de la gira son las correctas.
-d) La persona que aprueba la solicitud de servicio es la responsable de verificar que el objeto de la gira esté acorde con políticas de sana administración y en apego a la reglamentación vigente.
-e) Al recibir el Encargado de Transportes las boletas, una vez terminada la gira, verificará que se haya incorporado toda la información requerida en forma correcta. De encontrarse alguna incongruencia procederá en forma inmediata a solicitar por escrito a quien corresponda, la aclaración requerida en un plazo máximo de veinticuatro horas.
+o Cualquier observación que consideren necesaria. Al finalizar la gira, el responsable deberá firmar la boleta, dando fe de que el servicio se recibió a conformidad y dando fe de que la hora de inicio y finalización de la gira son las correctas.
+d. La persona que aprueba la solicitud de servicio es la responsable de verificar que el objeto de la gira esté acorde con políticas de sana administración y en apego a la reglamentación vigente.
+e. Al recibir el Encargado de Transportes las boletas, una vez terminada la gira, verificará que se haya incorporado toda la información requerida en forma correcta. De encontrarse alguna incongruencia procederá en forma inmediata a solicitar por escrito a quien corresponda, la aclaración requerida en un plazo máximo de veinticuatro horas.
