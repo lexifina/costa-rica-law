@@ -1,0 +1,1 @@
+Art. 5. Estos, en número de cinco por la menos, se reunirán tres dias antes del de la instalacon de la Asamblea a designar el Diputado que ha de presidir el acto y los correspondientes Secretarios. –Dado en la ciudad de San José, á primero del mes de julio de mil ochocientos cuarenta y seis. –José Maria Alfaro,Al Ministro de relaciones y gobernacion."
