@@ -1,0 +1,6 @@
+Artículo 16.—Trámite del recurso.
+16.1 El recurso deberá presentarse ante la Contraloría General de la República, dentro del primer tercio del plazo para presentar ofertas.
+16.2 Recibido el recurso, la Contraloría General de la República solicitará el criterio de la Administración concedente, que dispondrá de seis días hábiles para responder.
+16.3 La Contraloría General de la República dispondrá de un plazo de treinta días calendario para resolver, contados a partir de la recepción del recurso. Cuando este resulte totalmente improcedente por el fondo o la forma, será rechazado de plano en el momento en que se verifique esa circunstancia. En caso de que la Contraloría disponga la modificación del cartel, esta se ajustará a lo que se dispone en el artículo 14 de este Reglamento.
+16.4 En el caso de no resolverse el recurso dentro del plazo señalado en el punto anterior, la objeción se tendrá por acogida favorablemente, en los términos indicados por el recurrente en el escrito de fundamentación del recurso.
+16.5 Quien habiendo podido recurrir no lo hiciere, o no alegare las violaciones o quebrantos a que tuviere derecho, no podrá utilizar estos argumentos en el recurso de apelación contra el acto de adjudicación.

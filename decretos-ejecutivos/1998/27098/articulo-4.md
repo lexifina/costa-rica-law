@@ -1,0 +1,1 @@
+Artículo 4°—Régimen de nulidades. Las normas y principios consagrados en la Ley General de la Administración Pública respecto de la validez de la actividad administrativa, se aplicarán en toda su extensión a los procedimientos de concesión.

@@ -1,0 +1,9 @@
+Artículo 18.—Forma y presentación de las ofertas.
+18.1 Las ofertas se presentarán en dos sobres sellados; uno para los aspectos técnicos y, el otro, para los económicos, debiendo indicarse en cada uno el nombre del oferente y el número de la licitación.
+18.2 Las ofertas y su información complementaria se presentarán en idioma español. La Administración concédeme podrá contemplar en el cartel, la posibilidad de que se presenten anexos y literatura técnica en otros idiomas e indicará en que casos requerirá de una traducción libre bajo la responsabilidad del oferente.
+18.3 Las ofertas se presentarán en forma personal o por correo certificado. Cuando la oferta se envíe por correo, se tomará en cuenta, para todos los efectos, la fecha y hora de recepción en la Administración concedente.
+18.4 En las ofertas y los documentos que la complementan será de uso obligatorio las unidades y medidas del Sistema Internacional de Unidades, basado en el sistema métrico decimal.
+18.5 Las ofertas deberán estar firmadas por el legítimo representante del oferente.
+18.6 Las ofertas deberán estar acompañadas de una declaración jurada de que al oferente no le alcanza" ninguna de las prohibiciones que se establecen en el artículo 22 de la Ley de la Contratación Administrativa.
+Cuando se trate de personas jurídicas costarricenses, se requerirá además, una declaración con indicación de sus accionistas.
+Corresponderá a la respectiva Administración concedente adoptar las medidas de verificación necesarias para el cumplimiento y respeto del régimen de prohibiciones mencionado. Será absolutamente nula la oferta presentada en contravención de ese régimen de prohibiciones, lo cual acarreará su exclusión inmediata del concurso, sin perjuicio de las consecuencias disciplinarias o administrativas que esto pueda implicar.

@@ -1,0 +1,1 @@
+Artículo 65.—Responsabilidad del concesionario. El concesionario será siempre responsable del cumplimiento cabal, íntegro y oportuno del contrato de concesión, de la correcta ejecución de las obras, de la adecuada prestación de los servicios y del cumplimiento de todas las obligaciones derivadas del contrato.

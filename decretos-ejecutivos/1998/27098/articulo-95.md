@@ -1,0 +1,3 @@
+Artículo 95.—Prohibiciones.
+95.1 Quienes hubieren sido miembros del Consejo, o su Secretario» Técnico, no podrán ser designados como miembros de la Junta de Intervención a que se refiere el artículo 61 de la Ley, durante los tres! años siguientes a la conclusión de sus funciones, cualquiera que sea la causa.
+95.2 Tampoco podrán ser contratados por las empresas oferentes para j i trabajar o asesorar en el procedimiento de las licitaciones de concesión, en cuyos actos preparatorios hayan participado, Asimismo, a las personas físicas o jurídicas que hayan intervenido en la elaboración de los estudios generales, preliminares o de factibilidad. El incumplimiento de esta prohibición por cualquier empresa oferente, implicará su exclusión inmediata del concurso.

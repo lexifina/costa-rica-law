@@ -1,0 +1,1 @@
+Artículo 89.—Personal de la Secretaría. La Secretaría contará con el personal que sea necesario para cumplir sus labores. El nombramiento de ese personal lo efectuará el Consejo y el procedimiento de su contratación se realizará por lo que se estipula en los numerales 85.4 y 85.5 de este Reglamento.

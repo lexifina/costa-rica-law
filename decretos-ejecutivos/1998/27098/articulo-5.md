@@ -1,0 +1,1 @@
+Artículo 5°—Principios aplicables en los procedimientos de concesión. En los procedimientos de concesión, deberán respetarse plenamente los principios de publicidad, eficiencia e igualdad y libre competencia desarrollados en la Ley de la Contratación Administrativa y su Reglamento.

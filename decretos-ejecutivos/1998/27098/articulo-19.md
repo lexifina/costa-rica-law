@@ -1,0 +1,1 @@
+Artículo 19.—Contenido de las ofertas. Atendiendo a la naturaleza del objeto de la concesión, la Administración concedente definirá en el respectivo cartel el contenido que deberán cumplir las ofertas técnica y económica.

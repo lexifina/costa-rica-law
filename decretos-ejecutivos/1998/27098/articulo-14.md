@@ -1,0 +1,8 @@
+Artículo 14.—Modificaciones y aclaraciones.
+14.1 Las proposiciones y observaciones que sobre el texto del cartel presenten los potenciales oferentes, deberán efectuarse por escrito y dentro del plazo fijado por la Administración concedente en el cartel.
+Cuando eso ocurra, la Administración concedente realizará una sesión formal para tratar sobre las versiones finales de los documentos. La convocatoria a esta sesión deberá notificarse por escrito, con un plazo no menor de tres días hábiles, a los potenciales oferentes que hubieren presentado proposiciones y observaciones al cartel; no obstante la sesión será pública y a ella podrán concurrir todos aquellos que tuvieren interés.
+Lo discutido en la sesión no vincula de ningún modo a la Administración concedente, la que siempre tendrá la decisión final sobre los asuntos tratados.
+14.2 Si como consecuencia de la sesión formal a que se refiere el punto anterior se produjeren modificaciones del cartel, estas deberán ser publicadas en "La Gaceta", al menos diez días hábiles antes de la fecha de cierre de recepción de las ofertas.
+Cuando las modificaciones introduzcan una alteración importante en la concepción original del objeto de la concesión, los plazos para recibir ofertas serán ampliados, como mínimo, en treinta días hábiles.
+14.3 En los casos en que se trate de simples aclaraciones pedidas o acordadas de oficio, que no impliquen modificación, es deber de la Administración concedente incorporarlas de inmediato al expediente y darles una adecuada difusión.
+Para los efectos de este Reglamento, se entiende por modificación aquellas que no cambian el objeto de la concesión ni constituyan una variación fundamental en la concepción original de ésta.

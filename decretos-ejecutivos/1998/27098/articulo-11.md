@@ -1,0 +1,1 @@
+Artículo 11.—Precalificación. Cuando la Administración concedente lo estime oportuno, en la decisión inicial, podrá disponer que el proceso de licitación se realice previa etapa de precalificación para evaluar la experiencia técnica, financiera y de disponibilidad de los oferentes

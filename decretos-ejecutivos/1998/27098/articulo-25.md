@@ -1,0 +1,4 @@
+Artículo 25.—Apertura de las ofertas económicas.
+25.1 La apertura de las ofertas económicas se realizará por la Comisión de Apertura a que se refiere el artículo 21.4 de este Reglamento, en la fecha, hora y lugar que señale el cartel. La Comisión dará a conocer el resultado de la evaluación técnica de las ofertas y procederá a abrir, únicamente, los sobres de las ofertas económicas de los licitantes cuyas ofertas técnicas fueron declaras técnicamente aceptables.
+25.2 En el acto de apertura se levantará un acta, en la que se dejará constancia de las ofertas que fueron declaradas técnicamente aceptables, del contenido general de las ofertas económicas y de las observaciones que formulen los oferentes y los miembros de la Comisión de Apertura. Dicha acta deberá ser firmada por los miembros de la Comisión de Apertura y los representantes de los oferentes presentes.
+25.3 El acto de apertura de las ofertas económicas, será público y podrán asistir quienes tengan interés.

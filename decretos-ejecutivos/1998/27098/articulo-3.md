@@ -1,0 +1,5 @@
+Artículo 3°—Régimen jurídico.
+3.1 La relación jurídica que se origine entre la respectiva Administración concedente y el concesionario, se regirá por las normas y principios del ordenamiento jurídico administrativo costarricense.
+3.2 En el ámbito jurisdiccional, los tribunales nacionales serán los únicos competentes para conocer de las situaciones jurídicas derivadas de la relación concesional y dirimir los conflictos que puedan surgir durante la vigencia del contrato. El concesionario está obligado a aceptar expresamente estos principios en su oferta y en el contrato de concesión.
+3.3 El cartel de licitación deberá autorizar la vía del arbitraje como solución alterna a los tribunales de justicia, que se regulará conforme se dispone en la Ley sobre la resolución alterna de conflictos y promoción de la paz social, No 7727 del 4 de diciembre de 1997.
+3.4 No podrá interpretarse ninguna disposición del presente Reglamento en forma alguna que limite las facultades de fiscalización y control que competen a la Administración concedente.

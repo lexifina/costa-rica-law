@@ -1,0 +1,2 @@
+Transitorio II.—Con el propósito de salvaguardar el interés público, se autoriza al Consejo Nacional de Concesiones para designar a un Secretario Técnico interino por el período que dure el proceso de selección y nombramiento del titular, quien ejercerá el cargo con las mismas facultades y responsabilidades que la Ley y el presente Reglamento establecen para aquel.
+Dado en la Presidencia de la República.- San José, a los doce días del mes de junio de mil novecientos noventa y ocho.

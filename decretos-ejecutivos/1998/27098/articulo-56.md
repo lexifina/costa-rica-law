@@ -1,0 +1,3 @@
+Artículo 56.—Verificación de procedimientos.
+56.1 El concesionario está obligado a verificar la legalidad y corrección del procedimiento de concurso seguido para la adjudicación en su favor del contrato de concesión, así como en la ejecución de éste. En virtud de esta obligación, el concesionario no podrá alegar desconocimiento del ordenamiento jurídico aplicable en la especie, para fundamentar gestiones resarcitorias o para eludir. responsabilidades originadas en tales incorrecciones.
+56.2 Dentro de esta obligación, el concesionario deberá comunicar a los respectivos jerarcas administrativos las incorrecciones que detecte, a efecto de salvar su responsabilidad eventual en el caso.

@@ -1,0 +1,1 @@
+Artículo 79.—Otras causas de extinción. En el cartel de la licitación se podrán establecer otras causales de extinción de la concesión, para lo cual deberá señalarse el procedimiento por seguir y las eventuales indemnizaciones al concesionario.

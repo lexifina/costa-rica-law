@@ -1,0 +1,1 @@
+Artículo 40.—Apelación de la readjudicación. El acto de readjudicación también podrá ser recurrido, cuando las causas de la inconformidad hayan surgido del motivo que fundamentó el acto de readjudicación. Al efecto, se seguirán los mismos procedimientos que señala el presente Reglamento para apelar el acto de adjudicación.

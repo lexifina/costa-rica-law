@@ -1,0 +1,4 @@
+Artículo 72.—Trámite de los beneficios tributarios.
+72.1 Las solicitudes que realice el concesionario para acogerse a los beneficios tributarios a que se refiere el artículo 44 de la Ley de Concesión de Obras Públicas con Servicios Públicos, deberán tramitarse ante el órgano correspondiente del Ministerio de Hacienda, previa recomendación que la Administración concedente deberá emitir una vez comprobado que se refieren a los hechos generadores de impuestos relacionados directamente con la concesión otorgada.
+El Ministerio de Hacienda no dará curso a ninguna gestión de exoneración que no esté acompañada de la recomendación de la respectiva Administración concedente.
+72.2 La Administración concedente dispondrá de un plazo de quince días hábiles para verificar que el beneficio que se solicita se ajusta a lo previsto en el cartel de la licitación. Contra lo resuelto por la Administración concedente únicamente cabrá el recurso de revocatoria.

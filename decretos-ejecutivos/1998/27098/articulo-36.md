@@ -1,0 +1,1 @@
+Artículo 36.—Audiencia a las partes. De previo a dictar la resolución final, la Contraloría General de la República concederá a las partes un plazo de tres días hábiles para que formulen conclusiones sobre el fondo del asunto.

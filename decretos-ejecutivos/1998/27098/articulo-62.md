@@ -1,0 +1,1 @@
+Artículo 62.—Construcción por etapas. En el cartel de la licitación deberá establecerse si la construcción se realizará en una o varias etapas, durante el período de vigencia del contrato de concesión, de conformidad con el cumplimiento de los niveles de servicio previamente establecidos, así como los plazos y condiciones a que ellas se sujetarán.

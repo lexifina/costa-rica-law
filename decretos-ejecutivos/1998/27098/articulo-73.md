@@ -1,0 +1,4 @@
+Artículo 73.-Financiamiento por capitalización durante la etapa de construcción.
+73.1 Durante la etapa de construcción, el concesionario está autorizado para financiarse por emisión accionaria, siempre que esta no sobrepase el cuarenta y nueve por ciento del capital de la sociedad efectivamente suscrito y pagado.
+73.2 El concesionario estará obligado a comunicar a la Administración concedente cualquier modificación del capital social, dentro de los ocho días hábiles siguientes a la fecha de modificación, y permanentemente tendrá a disposición de ella y de la Contraloría General de la República, el libro de accionistas al día.
+73.3 El financiamiento mediante la emisión de un porcentaje superior al autorizado en el numeral 71.1 de este Reglamento y la falta de comunicación a la Administración concedente sobre la modificación del capital accionario, se consideran faltas grave y darán lugar a la resolución del contrato de concesión

@@ -1,0 +1,3 @@
+Artículo 37.—Resolución final.
+37.1 La resolución final deberá ser adoptada a más tardar cuarenta días hábiles siguientes al auto inicial de traslado. Mediante resolución razonada, este plazo podrá ampliarse hasta por otros quince días hábiles, en casos muy calificados, originados en la necesidad de recabar prueba pericial especialmente importante para resolver el recurso, y que por la complejidad no pueda ser rendida dentro del plazo normal de resolución.
+37.2 Cuando en el conocimiento de un recurso de apelación la Contraloría General de la República considere que se encuentra en presencia de un vicio causante de nulidad absoluta no alegado en el recurso, lo pondrá en conocimiento de la partes por un plazo prudencial para que manifiesten su posición al respecto.

@@ -1,0 +1,1 @@
+Artículo 20.—Alcances de la presentación de las ofertas. La sola presentación de las ofertas se entenderá como una manifestación inequívoca de la voluntad del oferente de contratar con pleno sometimiento a las condiciones y especificaciones del cartel y a las disposiciones legales y reglamentarias pertinentes.

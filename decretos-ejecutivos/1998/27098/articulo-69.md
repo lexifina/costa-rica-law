@@ -1,0 +1,3 @@
+Artículo 69.—Daños a terceros.
+69.1 Durante el plazo de la concesión, el concesionario está obligado a adoptar todas las medidas que sean razonables para evitar daños a terceros y al personal que trabaja en la construcción de la obra o en la explotación del servicio. Igualmente deberá tornar todas las precauciones para evitar daños a la propiedad de terceros y al ambiente.
+69.2 El concesionario será el único responsable de todo daño, de cualquier naturaleza, que con motivo de la construcción de la obra o la explotación del servicio se ocasione a terceros, al personal de la obra, a la propiedad de terceros o al ambiente, a menos que los daños le sean imputables a la Administración concedente por medidas que ésta le impuso al concesionario.

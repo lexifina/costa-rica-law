@@ -1,0 +1,3 @@
+Artículo 32.—Auto inicial.
+32.1 El auto inicial que admite el trámite del recurso, deberá adoptarse a más tardar al décimo quinto día hábil después de vencido el plazo para apelar. De no dictarse este auto en el plazo indicado, la Contraloría General de la República deberá establecer la . responsabilidad disciplinaria y personal que corresponda al funcionario encargado.
+32.2 En este auto se conferirá a la Administración concedente, a la parte adjudicada y a los demás licitantes cuyas ofertas son impugnadas, un plazo de cinco días hábiles para que se manifiesten sobre los alegatos del apelante.

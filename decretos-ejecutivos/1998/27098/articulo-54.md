@@ -1,0 +1,2 @@
+Artículo 54.—Derecho al equilibrio económico y financiero del contrato. El concesionario tiene derecho a solicitar a la Administración concedente el restablecimiento del equilibrio económico y financiero del contrato de concesión, cuando este haya resultado modificado por razones que no le sean imputables. Para tal fin, el concesionario deberá acompañar su petición con las pruebas en que la sustenta.
+La Administración concedente dispondrá del plazo de un calendario para resolver.

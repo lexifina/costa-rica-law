@@ -1,0 +1,1 @@
+Artículo 60.—Otras obligaciones. Además de prescrito en el artículo anterior, el usuario se encuentra obligado a utilizar la obra o el servicio, respetando las regulaciones establecidas por el concesionario y autorizadas por la Administración concedente.

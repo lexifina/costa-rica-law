@@ -1,0 +1,1 @@
+Artículo 68.—Subcontrataciones. El concesionario podrá subcontratar cualquier tipo de actividad comprendida dentro del contrato de concesión, salvo que estuviera expresamente prohibido en el cartel de la licitación. En todo caso, el concesionario será siempre el responsable ante la Administración concedente por la correcta ejecución del contrato.

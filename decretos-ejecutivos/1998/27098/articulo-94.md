@@ -1,0 +1,1 @@
+Artículo 94.—Comité Asesor. El Consejo podrá nombrar ib Comité Asesor, integrado por al menos dos miembros, con el propósito de que apoye las labores de la Secretaría. Los miembros de este Comité no serán remunerados y deberán ser escogidos de entre personas de reconocida solvencia moral y profesional.
