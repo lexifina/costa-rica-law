@@ -1,0 +1,1 @@
+Art 63.—Los maestros privados están obligados á dar á las autoridades escolares los informes que les pidan sobre los puntos sujetos á la vigilancia oficial, y á llevar los libros escolares exigidos en esta ley.

@@ -1,0 +1,1 @@
+Art. 16.—Se entiende que no cumple con la obligación escolar, y queda sujeto á las penas consiguientes, el padre, tutor ó guardador que no proveyere al alumno de los enseres prescritos por los reglamentos, salvo el caso de suma pobreza.

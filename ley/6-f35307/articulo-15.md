@@ -1,0 +1,1 @@
+Art. 15.—Si el padre, tutor ó guardador diere aviso por escrito de no serle posible obligar al niño á frecuentar la escuela, desde la fecha del aviso se tendrá al niño por vago habitual, y se procederá con él conforme á la ley de 12 de julio de 1867, dedicándolo de preferencia á las escuelas de agricultura, de grumetes, de clases militares y demás que se establezcan.

@@ -1,0 +1,1 @@
+Art. 115.—El Tenedor de Libros puede visitar personalmente ó por delegados, cuando lo crea conveniente, las Tesorerías del distrito, á fin de cerciorarse de la exactitud de los informes recibidos y de dar instrucciones verbales para la más exacta contabilidad.

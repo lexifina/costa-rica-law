@@ -1,0 +1,1 @@
+Art. 67.—En el caso de que el resaltado del examen no fuere satisfactorio y el jurado no hallare plausible la excusa que se presente, queda el padre, tutor ó guardador obligado á enviar sus niños á una escuela pública ó privada del distrito dentro de ocho días del requerimiento, y á dar aviso á la Junta local de educación de la escuela electa.

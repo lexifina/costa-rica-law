@@ -1,0 +1,1 @@
+Art. 144—Con la contestación ó sin ella, en rebeldía, que se pronunciará sobre tablas, se abrirá el asunto á pruebas por quince días, término fatal para producirlas y evacuarlas. Vencido el término, se pronunciará el fallo que corresponda; contra éste se admitirán los recursos legales.

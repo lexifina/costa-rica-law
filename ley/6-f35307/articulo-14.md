@@ -1,0 +1,1 @@
+Art. 14.—Por motivos de la gravedad de los anteriores, pueden las Juntas de Educación conceder exenciones especiales para que los niños no frecuenten las escuelas.—De las acordadas se dará aviso al Inspector provincial de escuelas y al maestro respectivo.—No se acordará ninguna exención sin prueba suficiente de la causal en que se funde.

@@ -1,0 +1,1 @@
+Art. 119.—Llevará el Tesorero cuenta exacta de su administración, pasará cada mes el balance á la Junta y además siempre que se le pida extraordinariamente, y estará sujeto á las visitas de inspección de las Juntas de Educación y del Inspector de Escuelas.

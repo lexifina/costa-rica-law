@@ -1,0 +1,1 @@
+Art. 41.—El Gobernador de la provincia en el cantón central, y los Jefes Políticos en los demás cantones, nombrarán cada año, junto con el Juez de paz y Comisarios municipales, el Juez y Comisarios especiales de escuelas.

@@ -1,0 +1,1 @@
+Art. 133.—Para la aplicación de las penas especificadas en los artículos 120, 121 y 122, es bastante la constancia del hecho firmada por el maestro respectivo; pero se citará al responsable con antelación de 72 horas y señalamiento de día y hora para oír las excusas y defensas que presente.

@@ -1,0 +1,1 @@
+Art. 69.—El padre, tutor ó guardador está obligado, sin esperar requerimiento, á presentar en la escuela pública, para la matrícula expresada en el artículo anterior, á sus hijos ó pupilos dentro de los quince primeros días de cada curso. Los días de retardo se reputarán por faltas de asistencia del alumno para los efectos penales.
