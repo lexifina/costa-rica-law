@@ -1,0 +1,1 @@
+ARTICULO 2°. -Toda embarcación menor, de cualquiera denominación que, después de treinta días de la publicación del presente decreto, se encuentre navegando ¢ fondeada en aguas de la República fuera del Golfo de Nicoya, sin estar matriculada, caer irremisiblemente en comiso.
