@@ -1,0 +1,1 @@
+Artículo 10.-EI contrato al que se refiere el artículo anterior deberá ser confeccionado en original para la Municipalidad de Desamparados dos copias, una para la Dirección de Recursos Humanos (expediente personal) y la otra para el funcionario que se acoge al Régimen.

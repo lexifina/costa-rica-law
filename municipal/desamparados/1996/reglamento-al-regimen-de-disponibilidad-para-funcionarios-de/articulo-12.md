@@ -1,0 +1,1 @@
+Artículo 12.-La Auditoría Interna de la Municipalidad de Desamparados, verificará cuando así lo considere conveniente y necesario y de conformidad con los procedimientos establecidos en este Reglamento, el fiel cumplimiento de todas las disposiciones.

@@ -1,0 +1,1 @@
+Artículo 13.-EI incumplimiento por parte del beneficiario, de lo establecido en el presente Reglamento en cuanto a la disponibilidad a la que se sujeta, se considerará falta grave a la relación laboral y será causal de despido sin responsabilidad patronal, concediendo el debido proceso.

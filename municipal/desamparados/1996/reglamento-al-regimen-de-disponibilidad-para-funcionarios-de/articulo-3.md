@@ -1,0 +1,1 @@
+Artículo 3°-Se entenderá por porcentaje adicional sobre el salario base, la distribución que hará la Municipalidad a los trabajadores que opten por acogerse al Régimen de Disponibilidad, en forma que fija este Reglamento en los artículos siguientes.

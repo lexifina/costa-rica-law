@@ -1,0 +1,1 @@
+Artículo 6°-Para acogerse al Régimen de Disponibilidad, los funcionarios de la Municipalidad de Desamparados, deberán de firmar el contrato respectivo con esta Institución, el cual se insertará con su expediente laboral, así como todos aquellos documentos que por tal motivo se produjeron.
