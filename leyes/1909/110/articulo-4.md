@@ -1,0 +1,1 @@
+Articulo 4°. - La duración de los estudios será de dos años consecutivos, al final de los cuales y tras un examen sobre todas las materias del plan de estudios y prácticas, se extenderá a las alumnas que hubieren sido aprobadas el Certificado de Ama de Casa.
