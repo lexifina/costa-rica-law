@@ -14,3 +14,4 @@ Modificaciones al Reglamento de Proveeduría
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-03 | la propia norma |
+| 2 | 1998-02-03 | Ley 8 |
