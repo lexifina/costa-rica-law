@@ -1,0 +1,1 @@
+Art. 64.-No habrá lugar al pago de crédito no exigible, si el deudor ofrece garantía suficiente en reemplazo de la extinguida, ó si el comprador opta por que se conserve el gravamen, con obligación de satisfacer el crédito á su tiempo.

@@ -1,0 +1,1 @@
+Art. 7°-En el juicio ejecutivo fundado en ejecutoria, se prescindirá de los trámites señalados en los artículos 16 y siguientes del Capítulo II, y, practicado el embargo, se procederá al avalúo y venta de los bienes.

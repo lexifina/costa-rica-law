@@ -1,0 +1,1 @@
+Art. 56.-En los casos en que el tercer poseedor haya adquirido la finca estando ya vencida la obligación, será también requerido para que pague la suma por que responda la finca, dentro de diez días.- Si no lo hiciere, se considerará la finca como si no hubiese salido de poder del deudor, en lo que respecta á los derechos del acreedor hipotecario.

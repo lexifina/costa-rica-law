@@ -1,0 +1,1 @@
+Art. 91.-Si sobre una misma cosa reclamaren derecho para ser pagados preferentemente dos ó más terceros, las pretensiones de todos serán juzgadas al mismo tiempo en la sentencia de que habla el artículo anterior, y en tal caso, el término para dictarla comenzará á correr desde que en la última tercería se hubiere citado para sentencia.

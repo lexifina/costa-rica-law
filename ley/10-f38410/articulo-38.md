@@ -1,0 +1,1 @@
+Art. 38.-Si fueren valores de comercio, con valor corriente en la plaza, se hará su venta por el Corredor Jurado ó agente, ó comerciante que el Juez designe, uniéndose á los autos la cuenta de la negociación, con expresión de haberse hecho ésta al cambio corriente el día de la venta.

@@ -1,0 +1,1 @@
+Art. 52.-Si el rematario no hubiere hecho el depósito del diez por ciento, se procederá, si el re- mate no se hubiere llevado á efecto por su cuasa, á rematar bienes del fiador ó del embargar, valuar y rematario, según el caso, sin más trámites que los precisos para llevar á cabo las diligencias dichas.

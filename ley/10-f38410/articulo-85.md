@@ -1,0 +1,1 @@
+Art. 85.-Si el ejecutante ó el ejecutado no contestaren en los tres días la audiencia de que hablan los dos artículos anteriores, se tendrá por reconocida la procedencia de la tercería sin más trámite.

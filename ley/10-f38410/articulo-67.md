@@ -1,0 +1,1 @@
+Art. 67.-Lo dispuesto en los artículos 59 y siguientes será aplicable al caso en que un acreedor común siga ejecución contra su deudor, y le embargue un inmueble que se halle gravado en favor de acreedores con derecho real en el mismo.
