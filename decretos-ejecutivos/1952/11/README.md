@@ -13,3 +13,4 @@ Norma Oficial de Nomenclatura para Jabones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1952-02-04 | la propia norma |
+| 2 | 1961-05-10 | Decreto Ejecutivo 3 (1961-05-10) |
