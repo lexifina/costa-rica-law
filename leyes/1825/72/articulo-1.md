@@ -1,0 +1,5 @@
+DECRETO LXXIL
+El Gefe Supremo del Estado libre de Costa rica
+Por quanto la Asamblea ha decretado y le Consejo sancionado lo siguiente.
+La Asamblea Constitucional del Estado libre de Costa rica, teniendo presente la importancia de los objetos a que son destinados los fondos de propios y arbitrios en los Pueblos, ha tenido a bien decretar y decreta.
+Art 1°.- Para que los fondos Municipales de la Ciudad de Cartago puedan subvenir a sus precisas atenciones sin gravitar sino suavemente sobre el Pueblo se cobrará de cada tercio de ropa extranjera que se abra para expender en aquella plaza quatro reales, en el de ropa extranjera que se abra para expender en aquellas plaza quatro reales, en el de ropa de tierra dos reales, en el quintal de fierro un real, en id de asero quatro de fierro un real, en el id. De asero quatro reales, en el cajón de sombreros de pelo un peso, en barril o cacao del país dos reales en el id. De Nicaragua un peso, en los molinos corrientes de granos dos reales mesales, en los Trucos y Villares un peso mesal, en el tercio de algodón de Chinandega dos reales, y en el del Perú quatro reales.
