@@ -15,3 +15,4 @@ Reglamento de Organización y Funciones de la Auditoría Interna.
 | --- | --- | --- |
 | 1 | 1997-09-25 | la propia norma |
 | 2 | 2003-04-24 | Reglamento 3277 (2003-04-24) |
+| 3 | 2004-02-12 | Reglamento 3352 (2004-02-12) |

@@ -12,7 +12,8 @@ i) Elaborar un plan anual de trabajo, sobre las intervenciones de auditoría y e
 j) Presentar a la Junta Directiva un informe o memoria anual sobre las actividades de fiscalización realizadas.
 k) Ejecutar con prioridad los estudios o investigaciones que requiera la Junta Directiva, Presidencia Ejecutiva o Dirección Ejecutiva, o que sean solicitados por la Contraloría General de la República.
 l) Conservar debidamente archivados todos los documentos relativos a cada intervención de auditoría o estudio especial.
-ll) Informar trimestralmente a la Junta Directiva, sobre el cumplimiento y ejecución de sus acuerdos.
+ll) Fiscalizar, verificar y evaluar el cumplimiento la validez y suficiencia de los procedimientos de control interno, establecidos por la administración en relación con el seguimiento y cumplimiento de los acuerdos de Junta Directiva, de cuyos resultados se informará a la Junta Directiva.
+(Así reformado en sesión No. 3352 de 12 de febrero de 2004).
 m) Autorizar mediante razón de apertura, los libros de contabilidad y de actas que. legal o reglamentariamente se deban llevar en la Institución.
 n) Actuar con libertad e independencia de criterio en el ejercicio de sus funciones.
 o) Ejercer otras funciones de auditoría inherentes a su competencia, dentro de los lineamientos técnicos dictados por la Contraloría General de la República, que disponga la Jimia Directiva.
