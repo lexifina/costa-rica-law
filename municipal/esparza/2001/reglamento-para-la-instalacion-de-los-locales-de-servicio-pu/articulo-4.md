@@ -1,0 +1,4 @@
+Artículo 4° Requisitos para funcionamiento.
+1) Toda persona física o jurídica que solicite patente para instalar un local de servicio público de INTERNET deberá impedir que la exhibición de pornografía sea visible a personas que se encuentren fuera de las instalaciones del local para lo cual especificará las medidas que tomará en ese sentido.
+2) Toda persona física o jurídica que solicite patente para instalar un local de servicio público de INTERNET debe adecuar la ubicación de los monitores estableciendo espacios diferenciados para personas menores de edad y para personas mayores de 18 años.
+3) El propietario o arrendatario del caía INTERNET debe tomar las medidas necesarias para que los menores de edad no tengan acceso al material pornográfico. Para ello deberá además instalar un software o cualquier otro medio idóneo sobre el servidor principal o cada terminal que tenga la capacidad de impedir el acceso a las páginas Web con exhibición de pornografía.

@@ -1,0 +1,1 @@
+Artículo 2°—Fundamentación jurídica. En cumplimiento con lo establecido en la Ley No 7440, Ley General de Espectáculos Públicos, Materiales Audiovisuales e Impresos, el Código de la Niñez y la Adolescencia Ley N" 7739 y la Ley contra la Explotación Sexual Ley N° 7899, en lo que se refiere a la exhibición de material nocivo para personas menores de edad.
