@@ -14,3 +14,4 @@ Declara Día Nacional del Café.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-07-26 | la propia norma |
+| 2 | 2003-06-16 | Decreto Ejecutivo 31276 (2003-06-16) |
