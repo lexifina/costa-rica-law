@@ -1,0 +1,3 @@
+CAPITULO IX:
+De la elaboración del proyecto
+Artículo 9°-El departamento de ingeniería municipal podrá elaborar el anteproyecto de los planos de lotificación a fin de abaratar los costos. Dicho departamento tendrá bajo su completa vigilancia la ejecución de las obras y que estas sean acordes al proyecto, sea o no finalizado por la Municipalidad. Para la ejecución del proyecto en lo referente a obras de infraestructura, esta Municipalidad podrá eventualmente aceptar la ayuda técnica y asesoría de empresas particular reconocida en el campo de la construcción de urbanización, en dado caso el departamento de ingeniería de la Municipalidad de San Isidro, deberá realizar las recomendaciones pertinentes.

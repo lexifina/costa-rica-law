@@ -1,0 +1,4 @@
+CAPITULO V
+De la devolución de los recursos económicos
+Artículo 5.-En el eventual caso de que algún adjudicatario solicite a la Municipalidad de San Isidro Heredia, se le devuelva los dineros depositados por concepto de cuotas periódicas personales sin que produzca interés de ninguna naturaleza a favor de ese beneficiario o su familia, tomando dichos recursos de los fondos depositados en la Municipalidad para el proyecto de vivienda municipal: De la suma depositada en forma colectiva por bloque o general del proyecto no se le entregará suma alguna, no tendrán derecho a reclamación. Se consideran dichos fondos como públicos.
+El nuevo adjudicatario aportara la suma correspondiente a la devuelta al exbeneficiario, de conformidad a sus posibilidades económicas por concepto de cuota periódica personal.
