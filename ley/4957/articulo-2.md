@@ -7,3 +7,5 @@ profesión durante cinco años por lo menos y con amplia experiencia en la
 materia. Serán nombrados por períodos de cuatro años, en la segunda
 quincena del mes de mayo que corresponda; tomarán posesión el primero de
 junio siguiente y deberán rendir caución por diez mil colones.
+(Reformado tácitamente por la Ley Nº 7333 de 5 de mayo de 1993, artículo
+94)
