@@ -1,0 +1,1 @@
+Artículo 14.—Las cotizaciones recibidas por el Departamento de Proveeduría, que no requieran de refrendos de la Contraloría General de la Republica o el de la Unidad Interna para el refrendo de contrataciones, serán analizadas y adjudicadas en un plazo no mayor de cinco días hábiles.
