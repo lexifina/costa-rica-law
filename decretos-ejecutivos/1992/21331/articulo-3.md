@@ -1,0 +1,1 @@
+Artículo 3°—El CEFOF tendrá como estructura mínima un Consejo directivo y un Director a quien le corresponderá, la representación judicial y extrajudicial en los alcances del artículo 13 de la ley N° 6541 del 19 de noviembre de 1980.
