@@ -200,6 +200,10 @@ de importación o tránsito. |
 Por kilogramo por día | 500,00
 26)Supervisión de Cuarentena Interna para los productos vegetales |
 que se importan al país | 3.350,00
+27 Inspección muestreo y análisis de calidad. |
+Por contenedor | ¢ 25.500,00
+Por tonelada | ¢ 95,00
+(Mediante el artículo 1° del decreto ejecutivo N° 28868 del 4 de agosto de 2000, se adicionó el código de servicio N° 27)
 "Artículo 3°.—Fíjense las tarifas que regirán para los servicios que presta el Ministerio de Agricultura y Ganadería, por Dirección de Salud Animal.
 Código | Descripción | Monto
 1. | Fotocopias | 15,00

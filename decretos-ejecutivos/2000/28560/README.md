@@ -14,3 +14,4 @@ Reforma a la fijación de tarifas de servicios del Ministerio de Agricultura y G
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-04-12 | la propia norma |
+| 2 | 2000-08-04 | Decreto Ejecutivo 28868 (2000-08-04) |
