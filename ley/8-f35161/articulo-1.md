@@ -1,4 +1,6 @@
+(Derogado)
 N°8
+(Esta norma fue derogada por el artículo 15 de la Ley del Plan Vial, N° 2719 del 10 de febrero de 1961)
 EL CONGRESO CONSTlTUCIONAL DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 Artículo 1°-Se establecen a favor de las Municipalidades respectivas los siguientes impuestos sobre el ejercicio de la industria de los rodados de tracción mecánica que no consumen gasolina:

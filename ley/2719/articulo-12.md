@@ -1,0 +1,7 @@
+Artículo 12.- Cada quintal de azúcar que elaboren los ingenios, ya sea de caña de producción propia o ajena, que sea consumido en el territorio nacional, pagará los siguientes impuestos:
+a) ¢ 1.00 a favor del Poder Ejecutivo, el cual se destinará a dar financiación al Plan a que se refiere la presente ley;
+b) ¢ 1.25 a favor de las Municipalidades de los cantones productores de caña, en proporción a la caña entregada a los ingenios, los cuales serán invertidos en la construcción y conservación de obras públicas, preferentemente en caminos de acceso a las zonas cañeras;
+c) ¢ 0.15 a favor de las Cámaras de Pequeños Productores de Caña del Pacífico y del Atlántico, por partes iguales; y
+d) ¢ 0.10 a favor del Poder Ejecutivo para los estudios técnicos de Agricultura de la Industria de la Caña.
+Corresponderá a la Liga de Protección a la Agricultura de la Caña la recaudación de dichos impuestos, para lo cual se le autoriza para deducir, del valor de cada quintal de azúcar, el importe de los mismos. Las sumas que corresponda al Poder Ejecutivo serán enteradas en la Administración General de Rentas. Las que correspondan a los Municipios, serán giradas a las tesorerías de las respectivas Municipalidades; y las correspondientes a las Cámaras enumeradas en el inciso c) anterior, serán enteradas en las tesorerías de éstas.
+La liquidación total de estos impuestos deberá hacerse a más tardar el día 30 de octubre de cada año.
