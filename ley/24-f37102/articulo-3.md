@@ -1,0 +1,1 @@
+3° Del resultado de los dos arvitrios anteriores, se formará un fondo que tendrá por objeto unico la composicion, y apertura de los caminos à los Puertos del Norte y Sur, cruzada de uno á otro, y hasta el Salto.
