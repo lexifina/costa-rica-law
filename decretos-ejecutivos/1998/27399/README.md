@@ -14,3 +14,4 @@ Crea Comisión Interinstitucional de tratamiento y Rehabilitación a Drogodepend
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-11-04 | la propia norma |
+| 2 | 1998-12-01 | Decreto Ejecutivo 27513 (1998-12-01) |
