@@ -1,0 +1,1 @@
+Artículo 10.-Se deben instalar recipientes para depositar los desechos sólidos en el área en donde el público recorre las instalaciones, los que estarán distribuidos por todo el sitio de la feria, turno o similar.

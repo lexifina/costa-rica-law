@@ -1,0 +1,2 @@
+Artículo 3°-En caso de las Asociaciones de Desarrollo Comunal, Juntas de Educación, Patronatos Escolares, Juntas Administrativas, Asociaciones Deportivas, Asociaciones de Vivienda, etc.; deberán contar con cédula jurídica, y adjuntar fotocopia.
+En caso de Comités pro mejoras, Comités de Vivienda, deben estar debidamente adscritos, y en caso de equipos de fútbol, basquet, atletismo, ciclismo, natación, etc.; contar con autorización escrita del Comité Cantonal de Deportes y Recreación.

@@ -1,0 +1,1 @@
+Artículo 9°-No se permitirán nuevas solicitudes a la agrupación que no llene este requisito, ni aquellas agrupaciones a las que la Municipalidad les compruebe que no invirtieron los recursos económicos en el fin para el cual se autorizó la actividad.
