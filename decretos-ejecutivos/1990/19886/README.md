@@ -37,3 +37,4 @@ Reglamento a la Ley Forestal
 | 22 | 1995-09-28 | Decreto Ejecutivo 24740 (1995-09-28) |
 | 23 | 1995-12-18 | Decreto Ejecutivo 24841 (1995-12-18) |
 | 24 | 1997-01-06 | Decreto Ejecutivo 25907 (1997-01-06) |
+| 25 | 1997-04-29 | Decreto Ejecutivo 26131 (1997-04-29) |
