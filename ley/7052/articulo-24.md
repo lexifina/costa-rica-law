@@ -1,8 +1,2 @@
-Artículo 24.- A los miembros de la Junta Directiva le estará
-prohibido estar presentes en las sesiones en que se vayan a resolver
-operaciones que le interesen a las entidades autorizadas en las que ellos
-y sus parientes, hasta el tercer grado de consanguinidad o de afinidad,
-sean socios, directores o gerentes.
-Igual prohibición existirá cuando la Junta Directiva tenga que
-conocer una reclamación o conflicto en que sea parte alguna de las
-entidades autorizadas.
+Artículo 24.—Los miembros de la junta directiva no podrán participar en las sesiones en que vayan a resolverse operaciones que les interesen a las entidades autorizadas, los desarrolladores o las empresas constructoras que operen dentro del Sistema, en los cuales ellos o sus ascendientes o descendientes hasta el tercer grado por consanguinidad o afinidad sean accionistas, socios, miembros de la junta directiva, gerentes o subgerentes. Igual prohibición existirá cuando la junta directiva tenga que conocer una reclamación o un conflicto en que sea parte esa entidad autorizada, desarrolladora o empresa constructora.
+(Así reformado por el artículo único de la Ley No. 8388 de 9 de octubre de 2003).
