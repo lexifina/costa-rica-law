@@ -1,0 +1,1 @@
+Transitorio: Aquellas embarcaciones que se encuentren inscritas ante el Registro Nacional de Buques se les efectuará el arqueo y emisión del respectivo certificado, junto con la inspección técnica para renovación del Certificado de Navegabilidad.

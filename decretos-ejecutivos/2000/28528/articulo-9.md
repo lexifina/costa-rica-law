@@ -1,0 +1,1 @@
+Artículo 9º—Cualquier modificación que sufra el buque y que afecte los datos de arqueo, invalidará el Certificado de Arqueo, por lo que el armador deberá solicitar el rearqueo del mismo, luego del cual se le extenderá otro Certificado. Esta disposición no aplica, si el calado varía por efecto de un cambio de clase.

@@ -1,0 +1,17 @@
+Artículo 3: Definiciones
+a) Espacio cerrado: Todos los espacios limitados por el casco, mamparos y cubiertas y todos aquellos que estén dotados de serretas u otros medios para estibar la carga o provisiones, o con aberturas dotadas de cierres estancos o que tales aberturas pudieran cerrarse.
+b) Arqueo bruto: Es la expresión del tamaño total de un buque, determinada de acuerdo con las disposiciones de este Reglamento.
+c) Tonelaje de registro bruto: Es la expresión del tamaño total del buque determinado de acuerdo con las disposiciones de este Reglamento, dado en toneladas Moorson.
+d) Arqueo neto: Es la expresión de la capacidad utilizable de un buque, determinada de acuerdo con las disposiciones de este Reglamento.
+e) Tonelaje de registro neto: Es la expresión de la capacidad utilizable de un buque, determinado de acuerdo con las disposiciones de este Reglamento, dado en toneladas Moorson.
+f) Espacios excluidos: Se excluirán del volumen de espacios cerrados los espacios que a continuación se definen:
+f.1 Los espacios adyacentes a una abertura extrema de un ancho igual o mayor al 90% de la manga de la cubierta de ese punto. Comprenderá el área situada entre la abertura y una transversal situada a una distancia igual a la mitad de la manga, mientras la anchura no se torne menor al 90% de la manga. Si existiera un espacio completamente abierto por los costados, los espacios adyacentes podrán excluirse siempre y cuando se cumpla con lo especificado en el comienzo de este párrafo y las aberturas laterales sean mayor o igual a la mitad de la manga. Cuando exista una escotilla o casetón debe mediar una separación con el espacio considerado no menor a la mitad de la manga.
+f.2 Todo espacio abierto a la mar o intemperie aunque cuente con techo o cubierta y barandillas o amuradas siempre que exista una separación entre techo y barandilla de 0,75 metros o un tercio de la altura del espacio (el mayor).
+f.3 Todo espacio ubicado frente a aberturas laterales de altura no inferior a 0,75 metros o un tercio de la altura de la construcción (el mayor), quedando limitado el volumen entre la abertura y la mitad de la manga de la zona.
+f.4 Todo espacio expuesto a la intemperie y cuya abertura se extienda de cubierta a cubierta sin ningún dispositivo de cierre, siempre que su ancho interior no sea mayor que el de la entrada y la profundidad no mayor al doble.
+g) Buque Menor: Para la aplicación del presente Reglamento se entenderá por buque menor aquella embarcación que obtenga un arqueo menor a 50 TRB usando el procedimiento descrito en artículo 6.
+h) Eslora: Será el, 96% de la distancia medida en una flotación situada al 85% del puntal de trazado medido desde el canto superior de la quilla.
+i) Manga: Será la manga máxima del buque, medida en el centro del mismo.
+j) Puntal de trazado: Distancia vertical medida al centro desde el canto alto de la quilla hasta la cara inferior de la cubierta superior en el costado. En los buques de madera ó mixtos, esta distancia se medirá desde el alefriz.
+k) Calado de Trazado: Será el calado máximo permitido para los buques nacionales con calado asignado, ó el 75% del puntal de trazado para los demás. Para los buques no nacionales el calado de trazado se tomará como la línea de carga de verano ó la línea de compartimiento más elevada asignada, según corresponda a su clase.
+i) Eslora Total: Es la distancia medida desde el extremo a popa de la roda hasta la cara interior del espejo.
