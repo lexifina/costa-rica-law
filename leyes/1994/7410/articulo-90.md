@@ -1,9 +1,9 @@
-CAPITULO III
-De los requisitos para inscribir a una persona como agente del servicio privado de seguridad
-Artículo 90°—Requisitos
-Solo podrá inscribirse como agente del servicio privado de seguridad, quien cumpla con los siguientes requisitos:
-a) Ser mayor de dieciocho años.
-(Así reformado el inciso anterior de acuerdo con la anulación parcial ordenada por resolución de la Sala Constitucional N°8858 del 15 de diciembre de 1998. )
-b) Haber concluido el tercer ciclo de la Enseñanza General Básica.
-c) Aprobar los exámenes psicológicos que se realizan a los miembros de las fuerzas de policía.
-d) Aprobar el curso básico de instrucción, impartido por la Escuela Nacional de Policía o por cualquier otra autorizada. El costo correrá a cargo de la persona o la empresa que preste el servicio.
+TITULO IV
+Del servicio privado de seguridad
+CAPITULO I
+De la naturaleza
+Artículo 90°—Objeto
+El servicio privado de seguridad tiene por objeto proteger la integridad de las personas contratantes del servicio y de sus bienes y de los que se encuentren en la zona en la cual se preste el servicio, de conformidad con esta Ley y su Reglamento.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 78 al 81 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 81 al 88 actual)
+(Así corrida su numeración por el artículo 3° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 88 al 90 actual)

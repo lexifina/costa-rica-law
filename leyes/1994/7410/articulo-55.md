@@ -1,4 +1,4 @@
-Artículo 55°—Publicidad del concurso de antecedentes
-Todos los ascensos se definirán por concurso de antecedentes, al cual deberá dársele publicidad con la información necesaria, mediante circulares que recibirán todas las dependencias del ministerio respectivo y deberán colocarse en lugares visibles para todos los servidores.
-El incumplimiento de este requisito acarreará la nulidad del concurso de antecedentes. Esta nulidad será declarable, en primera instancia, por el Consejo de Personal y en segunda instancia, por el ministro del ramo.
-El Poder Ejecutivo reglamentará los criterios pertinentes para calificar a los candidatos a los ascensos.
+Artículo 55.- Direcciones y subdirecciones de los cuerpos policiales de la Fuerza Pública
+Todo cuerpo policial deberá contar con un director y un subdirector. Los directores de los cuerpos de policía deberán ostentar, como mínimo, el grado de comisionado de policía. Los subdirectores, por su parte, deberán tener como requisito mínimo el grado de comandante.
+Los funcionarios mencionados en este artículo son de libre nombramiento y remoción por parte del ministro del ramo.
+(Así adicionado por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)

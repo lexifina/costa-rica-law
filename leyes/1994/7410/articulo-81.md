@@ -1,2 +1,4 @@
-Artículo 81°—Registro de agentes privados
-Créase un registro de agentes privados de seguridad, dependiente del Ministerio de Seguridad Pública, para inscribir a las personas físicas o jurídicas dedicadas a prestar este servicio.
+Artículo 81°—Registro de sanciones
+A partir de la amonestación escrita, toda sanción deberá constar en el expediente que, de cada servidor, llevará el departamento de personal.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 71 al 74 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 74 al 81 actual)

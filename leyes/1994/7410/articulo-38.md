@@ -1,3 +1,11 @@
-Artículo 38º—Armas indispensables y el arsenal nacional
-Los distintos cuerpos de policía integrantes de las fuerzas de policía tendrán a su disposición, únicamente, las armas reglamentarias para el buen desempeño de sus funciones.
-El arsenal nacional estará bajo la custodia y la responsabilidad del Presidente de la República, quien podrá delegarlas en el ministro respectivo.
+Artículo 38.- Funciones. Las funciones de la Dirección Policial de Apoyo Legal serán:
+a) Brindar apoyo y asesoramiento legal y policial a la Dirección General de la Fuerza Pública.
+b) Brindar apoyo legal policial a todos los integrantes de las unidades policiales que componen la Fuerza Pública.
+c) Emitir criterios técnicos jurídicos relativos a las actuaciones policiales, cuando sean requeridos o las circunstancias lo ameriten.
+d) Brindar apoyo legal policial en los operativos de rutina y en todos los que planifique el Departamento de Planes y Operaciones cuando así lo requieran.
+e) Emitir las recomendaciones necesarias que aseguren el ejercicio de las garantías constitucionales y el mantenimiento del orden público y la paz social, cuando así lo soliciten las unidades policiales por medio de la Dirección General de la Fuerza Pública.
+f) Emitir dictámenes vinculantes, opiniones consultivas, resoluciones y cualquier otro criterio legal aplicable a la materia y al área policial.
+g) Otorgar el apoyo legal oportuno y razonable, en las causas judiciales incoadas contra los funcionarios policiales, y darles el seguimiento necesario a las resultas del proceso penal.
+h) Asesorar en la tramitación de los recursos de hábeas corpus y de amparo, incoados contra los funcionarios policiales.
+i) Otorgar la capacitación legal y técnica necesaria o requerida por los oficiales policiales.
+(Así adicionado por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)

@@ -1,2 +1,3 @@
-Artículo 85°—Procedimientos
-Las solicitudes de licencia deben dirigirse al órgano competente del Ministerio de Seguridad Pública, que se encargará de controlar este servicio.
+Artículo 85.- Riesgo policial. Créase un incentivo denominado riesgo policial, el cual consiste en un plus salarial equivalente a un dieciocho por ciento (18%) del salario base; corresponderá a todos los funcionarios de los ministerios de Gobernación y Policía, y de Seguridad Pública que desarrollen funciones policiales que impliquen riesgo a su integridad física, independientemente de la ubicación en la estructura administrativa de ese Ministerio.
+El otorgamiento de este incentivo salarial deberá fundamentarse, en cada caso concreto, definiendo las razones por las cuales las funciones del empleado correspondiente encuadran dentro del supuesto de peligrosidad definido.
+(Así adicionado por el artículo 3° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)

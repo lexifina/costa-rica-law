@@ -1,2 +1,5 @@
-Artículo 79°—Competencia del ministro del ramo
-El Estado, por medio del ministro del ramo, emitirá las directrices para la adecuada prestación de este servicio y ejercerá los controles sobre su funcionamiento.
+Artículo 79°—Investigación administrativa e investigación jurisdiccional
+El inicio de la acción penal pública no impide que, simultáneamente, se comience la investigación administrativa, por los mismos hechos y para aplicar el régimen disciplinario.
+La relación de hechos probados que se pronuncien en la sentencia penal vincula a la instancia administrativa, para los efectos disciplinarios y laborales del caso, aunque con anterioridad haya recaído una resolución administrativa favorable al servidor; en este caso deberá oírsele, sumariamente, antes de aplicar las sanciones que correspondan. Lo anterior no impide que, mientras se resuelve el asunto en la vía penal, la administración tome las medidas provisionales que estime necesarias.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 69 al 72 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 72 al 79 actual)
