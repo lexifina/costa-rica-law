@@ -1,0 +1,3 @@
+Artículo 23
+Revisión judicial
+Cada Miembro en cuya legislación nacional existan disposiciones sobre medidas compensatorias mantendrá tribunales o procedimientos judiciales, arbitrales o administrativos destinados, entre otros fines, a la pronta revisión de las medidas administrativas vinculadas a las determinaciones definitivas y a los exámenes de las determinaciones en el sentido del artículo 21. Dichos tribunales o procedimientos serán independientes de las autoridades encargadas de la determinación o examen de que se trate, y darán a todas las partes interesadas que hayan intervenido en el procedimiento administrativo y que estén directa e individualmente afectadas por dicho procedimiento la posibilidad de recurrir a la revisión.
