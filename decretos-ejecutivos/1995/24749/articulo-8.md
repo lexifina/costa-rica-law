@@ -1,0 +1,2 @@
+Artículo VIII.-Bajo la coordinación de las autoridades de la Iglesia Católica y con la colaboración de representantes de las Iglesias Tradicionales, se formarán los comités comunales encargados de proponer a las potenciales beneficiarias y dar seguimiento y apoyo al Programa.
+En cada comunidad se constituirá un sólo Comité Comunal, al cual se adjudicará, dependiendo de su población y situación socio-económica, un número determinado de potenciales beneficiarias a ser recomendadas.

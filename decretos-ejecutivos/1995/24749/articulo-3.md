@@ -1,0 +1,1 @@
+Artículo III.-EI Programa busca mejorar las condiciones de vida de las mujeres jefas de hogar, generando iniciativas de apoyo a los procesos promocionales tendientes a la superación permanente y estable de la mujer y de su familia.

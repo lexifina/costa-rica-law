@@ -1,0 +1,1 @@
+Artículo IV.-Mediante el programa se ejecutarán acciones de formación humana para el desarrollo, que promuevan la transformación de los patrones éticos y culturales que inducen a la discriminación de la mujer jefa de hogar en condiciones de pobreza y contribuyan a la superación de tales condiciones.

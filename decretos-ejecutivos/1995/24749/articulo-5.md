@@ -1,0 +1,1 @@
+Artículo V.-Con recursos del Fondo de Desarrollo Social y Asignaciones Familiares asignados al Instituto Mixto de Ayuda Social para el Programa, se apoyará con incentivos y subsidios económicos el proceso de capacitación de las mujeres jefa de hogar en condición de pobreza.
