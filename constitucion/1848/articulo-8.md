@@ -1,0 +1,1 @@
+Artículo 8º.-El territorio de la República de Costa Rica se dividirá en Provincias. Cada Provincia se compondrá de uno ó mas cantones, y cada cantón se dividirá en distritos parroquiales. La ley arreglará la división territorial, y determinará las autoridades que deban ser nombradas.

@@ -1,0 +1,1 @@
+Artículo 84.-Los Ministros de Estados son responsables de los actos que suscribieren contrarios a la Constitución y a la leyes; por lo cual tienen el deber de dar su dictamen al que ejerce el Poder Ejecutivo en todos los negocios que conciernan a su ministerio.

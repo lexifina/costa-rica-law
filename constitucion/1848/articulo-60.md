@@ -1,0 +1,1 @@
+Artículo 60.-El Congreso en su próxima reunión podrá tomar en consideración nuevamente las objeciones del Ejecutivo; y si volvieren a declararlas todas infundadas por el voto de las tres cuartas partes de la totalidad de sus miembros, se pasará el proyecto al Ejecutivo para su sanción, que no podrá ya rehusar.
