@@ -1,0 +1,3 @@
+Art. 4°-Si dentro del término de un año, contado desde esta fecha, el concesionario no hubiere dado principio á los trabajos que intenta, se tendrá por caduco el privilegio.
+AL PODER EJECUTIVO.
+Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintinueve días del mes de julio de mil ochocientos ochenta y nueve. -MANL. ARAGÓN. -F. AGUILAR B., Secretario. -FÉLIX GONZÁLEZ, Secretario. Palacio Presidencial. -San José, á veintinueve de julio de mil ochocientos ochenta y nueve. Ejecútese.-ASCENSIÓN ESQUIVEL. El Secretario de Estado en el despacho de Fomento, -SANTIAGO DE LA GUARDIA.

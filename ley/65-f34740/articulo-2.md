@@ -1,0 +1,1 @@
+Art. 2°-El señor Ramírez queda en la obligación de enseñar el procedimiento que intenta emplear en la extracción de ambas sustancias, á cualesquiera personas que lo soliciten en los lugares donde tenga establecidos sus trabajos.
