@@ -1,0 +1,3 @@
+Artículo 26.—De la remisión. Los estados financieros del Régimen deberán remitirse a la Superintendencia con periodicidad mensual y deberán contener el nombre y firma del gerente o administrador y del contador.
+Los estados financieros correspondientes al cierre fiscal, además de las firmas señaladas en el párrafo anterior, se acompañarán de una certificación de saldos por parte del auditor interno. Los estados financieros con corte al cierre fiscal de cada año deberán ser dictaminados por auditores externos y remitidos a la Superintendencia.
+La forma y plazos de presentación de los estados financieros señalados en este Artículo serán establecidos mediante acuerdo general por el Superintendente.

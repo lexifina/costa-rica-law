@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones finales
+Artículo 29.—Solución de conflictos. Los conflictos, controversias o diferencias de carácter patrimonial que se produzcan entre los afiliados, los órganos de dirección de los Regímenes y otros terceros involucrados, derivadas de la interpretación de la Ley 7523, la Ley 7983 así como de las leyes específicas que crearon los Regímenes o derivadas de la ejecución o interpretación de los reglamentos internos, pueden resolverse haciendo uso de mecanismos alternos de solución de conflictos recurriendo a entidades que presten el servicio de administración institucional de los mismos, siempre y cuando éstas cuenten con la autorización previa del Ministerio de Justicia o que se trate de entidades autorizadas por ley especial para tal efecto.

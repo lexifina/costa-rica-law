@@ -1,0 +1,1 @@
+Transitorio VI.—De la vigencia de circulares emitidas previamente a este reglamento. Las circulares y acuerdos emitidos al amparo del reglamento por esta norma derogada mantendrán su vigencia hasta que sean sustituidos.

@@ -1,0 +1,3 @@
+SECCIÓN III
+Del control de cumplimiento normativo
+Artículo 19.—Responsabilidad de los Regímenes. Los Regímenes definirán los responsables y la estructura administrativa para el cumplimiento de las funciones establecidas en esta sección. Definirán también los procedimientos, sistemas de seguimiento y alerta temprana necesarios. La responsabilidad no podrá ser recargada en el administrador o en los encargados de las funciones operativas ordinarias. El Superintendente establecerá por disposición general las formalidades de comunicación de responsables, recursos asignados, informes, metodologías de seguimiento y vigilancia del cumplimiento normativo.

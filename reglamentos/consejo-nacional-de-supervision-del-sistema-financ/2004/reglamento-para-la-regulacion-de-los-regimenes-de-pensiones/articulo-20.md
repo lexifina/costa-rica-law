@@ -1,0 +1,1 @@
+Artículo 20.—Requisitos. Los encargados de las funciones establecidas en esta sección deberán conocer la normativa vigente y contar con estudios y experiencia en materia económica, financiera, bursátil o de pensiones.

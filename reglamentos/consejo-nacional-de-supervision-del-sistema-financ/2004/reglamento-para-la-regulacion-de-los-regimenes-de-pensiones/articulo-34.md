@@ -1,0 +1,1 @@
+Artículo 34.—Regulación aplicable a los Regímenes en liquidación. Los Regímenes que se encuentran en proceso de liquidación, continuarán rigiéndose por sus propios reglamentos, debiendo cumplir con los requerimientos de información y cualquier otra disposición específica que realice la Superintendencia.

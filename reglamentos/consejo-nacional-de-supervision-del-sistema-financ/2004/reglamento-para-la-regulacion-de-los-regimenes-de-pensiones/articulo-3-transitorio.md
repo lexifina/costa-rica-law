@@ -1,0 +1,1 @@
+Transitorio III.—Del plazo para constituir los activos de la provisión para pensiones en curso de pago. Los regímenes disponen de un plazo de 1 año para constituir el 100% de los activos que respaldan la provisión de las pensiones en curso de pago determinada actuarialmente.

@@ -1,0 +1,1 @@
+Artículo 8º—De la estructura jerárquica y la organización administrativa de los regímenes. Los regímenes deberán definir una estructura jerárquica en la que se establezca las instancias que lo conforman así como las facultades y responsabilidades de cada una de ellas.

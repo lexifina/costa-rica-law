@@ -1,0 +1,4 @@
+Artículo 14.—Del traslado de los recursos. Los Regímenes de Pensiones Complementarias Especiales de capitalización individual pueden trasladar para su administración, bajo la figura de un contrato colectivo, los activos acumulados y los futuros aportes a una Operadora de Pensiones Complementarias.
+En este caso, además de los requisitos establecidos en el Artículo 13, el Régimen debe firmar un contrato de administración con la Operadora elegida. Este contrato debe ser previamente aprobado por el Superintendente.
+Las cuentas individuales estarán sujetas al régimen de administración, regulación e inversión establecido para las Operadoras de Pensiones.
+La responsabilidad por la gestión seguirá siendo responsabilidad del Órgano de Dirección, así como la administración y cumplimiento de la normativa aplicable a la reserva para pensiones en curso de pago.

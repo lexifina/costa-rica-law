@@ -1,0 +1,1 @@
+Artículo 30.—Aplicación de régimen sancionatorio. La aplicación del régimen sancionatorio, establecido en los artículos 45 y siguientes de la Ley 7523, se realizará mediante el procedimiento administrativo que corresponda siguiendo los principios de la Ley General de la Administración Pública.

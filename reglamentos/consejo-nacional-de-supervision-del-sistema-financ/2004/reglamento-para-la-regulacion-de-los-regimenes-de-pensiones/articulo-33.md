@@ -1,0 +1,1 @@
+Artículo 33.—Documentos provenientes del exterior. Todo documento suministrado a la Superintendencia que haya sido expedido en el extranjero deberá cumplir con el trámite de legalización consular. Los documentos en idioma diferente al español deberán cumplir también con la traducción oficial al español.

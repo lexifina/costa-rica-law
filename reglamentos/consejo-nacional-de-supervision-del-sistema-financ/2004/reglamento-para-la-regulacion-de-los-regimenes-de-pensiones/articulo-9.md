@@ -1,0 +1,2 @@
+Artículo 9º—Del libro de actas electrónico para el Órgano de Dirección. Las políticas y decisiones acordadas por el órgano de dirección se consignarán en un libro de actas electrónico de conformidad con los requisitos que para tal efecto dicte el Superintendente.
+Las actas serán firmadas digitalmente por el Presidente y el Secretario mediante el mecanismo de criptografía asimétrica. Los miembros del órgano de dirección son igualmente responsables de que el contenido de las actas corresponda a lo discutido y aprobado en cada sesión.

@@ -1,0 +1,2 @@
+Transitorio IX.—De la contabilidad de los regímenes individualizados. Aquellos regímenes de pensiones complementarias que se administren por medio de cuentas individuales deberán, a más tardar nueve meses después de la vigencia de este Reglamento, llevar la contabilidad con base en el manual de cuentas vigente para los fondos administrados por las Operadoras de Pensión Complementaria.”
+San José, 13 de abril del 2004.—

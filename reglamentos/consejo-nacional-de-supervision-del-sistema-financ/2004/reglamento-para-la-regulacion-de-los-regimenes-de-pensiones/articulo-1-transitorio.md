@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+Transitorio I.—Modificación a los Reglamentos Internos de Operación. Los órganos de dirección de los Regímenes deberán realizar las modificaciones a sus reglamentos internos para ajustarlos a este Reglamento a más tardar seis meses después de la entrada en vigencia del mismo. Sin embargo, las disposiciones establecidas en este Reglamento tienen vigencia desde su publicación.

@@ -1,0 +1,2 @@
+Artículo 35.—Derogatoria. Deróguense los Capítulos I, II, IV y VI, así como el Transitorio I del “Reglamento para la regulación de los Regímenes de Pensiones Creados por Leyes Especiales y los Regímenes Públicos Sustitutos al Régimen de Invalidez, Vejez y Muerte”, aprobado mediante Artículo 11 del Acta de la Sesión 302-2002, celebrada el 28 de mayo del 2002.
+Las definiciones del artículo 3º mantendrán su vigencia en tanto no sean derogadas las normas de este reglamento que le sean aplicables.

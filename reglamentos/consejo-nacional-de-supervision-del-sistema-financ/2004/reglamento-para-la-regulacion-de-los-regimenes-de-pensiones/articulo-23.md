@@ -1,0 +1,1 @@
+Artículo 23.—Convocatoria a reuniones con la Superintendencia. El Superintendente podrá solicitar reunirse con los encargados de las funciones de control de cumplimiento normativo de los regímenes, ya sea en forma individual o en conjunto cuando lo considere pertinente. La convocatoria se realizará con al menos tres días de anticipación a la fecha de la reunión.

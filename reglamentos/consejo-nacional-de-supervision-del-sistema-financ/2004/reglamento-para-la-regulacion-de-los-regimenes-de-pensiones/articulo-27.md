@@ -1,0 +1,2 @@
+Artículo 27.—De la publicación. Los estados financieros son de carácter público debiendo mantenerse disponibles para su consulta en cualquier momento.
+Los estados financieros auditados deberán publicarse en un medio de comunicación interno en la entidad en que se creó el Fondo. La forma y plazos de publicación de los estados financieros señalados en este Artículo serán establecidos mediante acuerdo general por el Superintendente.
