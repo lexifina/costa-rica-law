@@ -143,6 +143,8 @@ Para la avicultura: las incubadoras, criadoras, máquinas de postura, equipos de
 - Aditivos para nutrición animal.
 - Agujas hipodérmicas de uso pecuario.
 - Agujas de sutura de uso veterinario.
+-Agujas de coser y relingar.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Aisladores para cerca eléctrica de uso pecuario.
 - Alambre (cable) de acero redondo de 4 alambres trenzados de 5 mm de diámetro con identación.
 - Alambre de acero según especificación AISI 1045 de 11,10 mm .
@@ -153,25 +155,55 @@ Para la avicultura: las incubadoras, criadoras, máquinas de postura, equipos de
 - Almohadillas para conchar.
 - Ampollas en pasta para detección de celo.
 - Anemómetro.
+-Anclas y rezones.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
+-Anodos de zinc (collares, láminas, etc.)
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
+-Anzuelos de todo tipo y tamaño.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Aplicador de aretes.
 - Árboles frutales y de reforestación.
 - Arciales de inmovilización.
 - Aretes de identificación.
 - Argollas de nariz.
+-Argollas para bolsa camaronera o sardinera.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Armellas.
 - Artes de pesca para la producción acuícola no deportiva.
+-Aros protectores metálicos o plásticos para reinales.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
+-Aros salvavidas (rellenos de espuma de caucho o de materias plásticas)
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993
 - Avionetas destinadas exclusivamente a la fumigación, atomización y espolvoreo.
 - Bandejas plásticas para el enraizamiento y almacenamiento de esquejes.
 - Barra cardánica exclusiva para implementos agrícolas.
 - Barra porta herramientas para ser acoplada al sistema de enganche de los tractores agrícolas.
 - Barómetros.
 - Barrenadores para acoplar al tractor agrícola.
+-Bering de bronce con forro interno de hule o de baquelita, para eje de propela.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Biberones para terneros.
 - Biológicos para uso agropecuario.
+-Bitas de bronce.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Block de sal mineral.
 - Bombas de agua de 0,75 kW (1hp) o m s para uso de proyectos agropecuarios.
+-Bombas de achique plásticas para uso marino, de 12, 24 y 32 voltios.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
+-Bombas de uso marino de 12, 24 y 32 voltios, para trasegar agua potable de los tanques a la cocina.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
+-Bombas mecánicas de bronce de uso marino, para achique.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
+-Bombillos de 12, 24 y 32 voltios, e intermitentes de 6 voltios, todos de uso marino excepto los automáticos.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Bolsas plásticas para la protección y empaque de banano.
 - Cable tractores para el transporte de fruta.
+-Cable de acero alquitranado y engrasado (7/16 de pulgada en adelante)
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
+-Cable de acero inoxidable para reinales.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
+-Cables para palancas de control para aceleración y marcha.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Calibradores para control y medición de frutas.
 - Canastos para congelación para huevo fértil.
 - Cánulas para tetas.
@@ -183,6 +215,10 @@ Para la avicultura: las incubadoras, criadoras, máquinas de postura, equipos de
 - Cauterizador eléctrico para cuernos.
 - Cartones de huevo. (Artículos alveolares, para envase y transporte de huevos).
 - Ceras antitranspirantes para frutas y vegetales.
+-Chalecos salvavidas (de tejido de nylon, revestido de neopreno)
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
+-Chumaceras de pie o de parche para sostener el eje o el timón.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Clavos para herrar.
 - Clavos de ferrocarril.
 - Coadyuvantes.
@@ -193,10 +229,14 @@ Para la avicultura: las incubadoras, criadoras, máquinas de postura, equipos de
 - Cortadora de cascos.
 - Cortadora de pajillas.
 - Cortineros para granjas avícolas.
+-Cornamusas.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Criadoras para granjas porcinas.
 - Cuchillas para implementos agrícolas, hortícolas o forestales.
 - Cuchillas para injertar.
 - Cuchillos de toda clase para uso agropecuario.
+-Cuerdas plásticas para pesca tipo monofilamento (todo diámetro)
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Chicharras.
 - Chupones para terneros.
 - Chuzos eléctricos.
@@ -223,23 +263,41 @@ Para la avicultura: las incubadoras, criadoras, máquinas de postura, equipos de
 - Equipo para extender tela plástica.
 - Equipo de protección para la aplicación de agroquímicos y sus repuestos.
 - Equipo de enfriamiento de leche, sus accesorios y repuestos.
+-Equipo electrónico de navegación (radar, sonar, ecosondas, radioboyas, navegador por satélite, sus accesorios y repuestos)
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Equipos de diagnóstico microbiológico.
 - Equipos para diagnóstico químico.
+-Estopa para calafate.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Fieltro no manufacturado (filtros) para tubería de riego y avenamiento.
 - Fitohormonas.
 - Fitorreguladores de crecimiento.
 - Fórceps.
 - Fusibles para cercas eléctricas.
+-Flotadores o boyas de plástico o corcho (todo tamaño) para red de pesca o caza marina.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
+-Gacilla de acero inoxidable para línea tiburonera.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Galvanómetros.
 - Gorros plásticos para flores.
 - Grapas para cerca.
 - Grava para filtros.
+-Grilletes galvanizados (toda medida)
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Guantes desechables para obstetricia veterinaria.
+-Guardacabos galvanizado
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Guillotina para tallos.
+-Guía y prensaestopa de timón y propela.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Herbicidas, inhibidores de germinación y reguladores del crecimiento de las plantas.
 - Herraduras.
 - Herramientas para herrar.
 - Hilos para "sarán", (tiras crudas o teñidas para tejidos de uso agrícola).
+-Hilo de nylon para armar y reparar redes de pesca (todo número)
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
+-Hilo trenzado para línea de pesca(todo número)
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Hojas de bisturí¡.
 - Hojas de tijeras podadoras.
 - Hormonas vegetales.
@@ -250,6 +308,8 @@ Para la avicultura: las incubadoras, criadoras, máquinas de postura, equipos de
 - Inhibidores de hongos (para aflotoxinas de maíz).
 - Inmovilizadores para cerdos.
 - Instrumentos para manejo de animales.
+-Instrumentos de navegación (sextantes, brújulas o compases)
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Jaulas para la actividad avícola.
 - Jaulas de parición para cerdos.
 - Jeringas de uso veterinario.
@@ -257,6 +317,8 @@ Para la avicultura: las incubadoras, criadoras, máquinas de postura, equipos de
 - Lápices para marcar aretes.
 - Limas de filo.
 - Limas para cascos y dientes.
+-Luces de navegación, fanales, luces de tope y troleo, lentes de color blanco, verde y rojo)
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Llantas y neumáticos para tractores agrícolas.
 - Llantas agrícolas de flotación tipo (L) para uso en eje delantero del tractor y transporte de productos agrícolas.
 - Mangas inmovilizadoras.
@@ -266,28 +328,46 @@ Para la avicultura: las incubadoras, criadoras, máquinas de postura, equipos de
 - Máquinas eólicas (molinos de viento).
 - Marcadores en pasta para detección de celo.
 - Medidores de humedad del suelo.
+-Mecate de nylon polipropileno de más de 18 mm.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Miel de purga o melaza.
 - Motoazadas.
 - Motosierras.
 - Niveladoras de arrastre para acoplar al sistema de 3 puntos de los tractores agrícolas.
+-Pacas de paño para construir redes, de monofilamento y nylon multifilamento.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Palas frontal y trasera.
 - Paleta para prueba de mastitis.
 - Pasta para descornar.
+-Papel para sonda.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
+-Pastecas de arrastre, sencillas o dobles, de hierro galvanizado o de madera, todo tamaño, fijas y de abrir.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Película plástica (protectores) blanca o negra tratada contra rayos ultravioleta.
 - Penetrógrafos.
 - Penetrómetros.
 - Pigmentantes.
 - Pinzas para cascos.
+-Pintura de cobre para uso marino.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Pipetas para inseminación.
 - Piso de acero para porcicultura (desnudo y recubierto).
 - Pistolas de inseminación.
+-Pistolas de señales y luces de señales con su respectivo estuche.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Plaguicidas.
+-Plomos para asrtes de pesca.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Pluviómetro.
 - Polen para la actividad agropecuaria.
 - Potenciómetros.
 - Preservantes para flores, frutas y ornamentales.
+-Presillas de cobre y aluminio para reinal.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Productos desincrustantes de piedra de leche.
 - Protectores contra ruido para proyectos agrícolas.
+-Propelas de bronce.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Quemadores de azufre.
 - Rastrillos, acordonadores y empacadores o enfardadores.
 - Repuestos para mascarillas de protección y para jeringas.
@@ -296,9 +376,15 @@ Para la avicultura: las incubadoras, criadoras, máquinas de postura, equipos de
 - Rodines y rolas para cable vía.
 - Ruedas fangueadoras.
 - Sacabocados.
+-Sacavueltas galvanizados, bronce, cobre o aluminio.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Secadoras para granos (no eléctricas).
 - Semillas de toda clase y todo tipo de material de reproducción.
 - Serruchos curvos para podar.
+-Señales de humo de emergencia.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
+-Señuelos para pescar calamar.
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Silos de hasta 10 TM para la actividad agropecuaria.
 - Sistemas de levante hidráulico de tractores agrícolas.
 - Sondas uterinas.
@@ -317,6 +403,8 @@ b) Sistema de levante hidráulico trasero o delantero, con enganche de 3 o 2 pun
 c) Toma de fuerza trasera, lateral o delantera para poner en acción distintos implementos.
 d) Barra de tiro para el arrastre de implementos y carretas agrícolas y/o sistema de enganche (fijo o de levante automático) para jalar implementos.
 - Tractores de oruga de aplicación especial, únicamente para proyectos agrícolas.
+-Trallas (mecate con alma de acero)
+(Así adicionado el insumo anterior por el artículo 1° del decreto ejecutivo N° 22788 del 20 de diciembre de 1993)
 - Tubería corrugada para avenamiento.
 - Zanjeadoras rotativas hasta 51 kW.
 - Zetas de metal para transporte de banano.
