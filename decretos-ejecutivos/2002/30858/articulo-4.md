@@ -1,0 +1,1 @@
+Artículo 4º—El diferencial producido por la importación a que se refiere este decreto será distribuido de conformidad con las disposiciones legales aplicables y la reglamentación que dicte el Poder Ejecutivo.
