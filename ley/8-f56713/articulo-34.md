@@ -1,0 +1,2 @@
+Artículo XXXIV
+Los objetos robados que se encuentren en poder del condenado ó prevenido, los instrumentos y útiles de que se hubiese servido para cometer el delito, y cualquier otro elemento de prueba, serán oportunamente enviados ó suministrados, aunque la extradición no pueda verificarse por muerte ó fuga del reo. La restitución que de dichos objetos proceda á favor de tercero deberá hacerse, libre de todo gasto, por el Gobierno reclamante, después de concluido el procedimiento criminal.

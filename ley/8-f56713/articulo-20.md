@@ -1,0 +1,3 @@
+Artículo XX
+Los Gobiernos de Costa Rica y Honduras reconocen el principio de que sólo responderán por los daños y perjuicios causados á los nacionales de una de las Partes contratantes en el territorio de la otra, cuando fueren irrogados por agentes del Gobierno ó por autoridades legítimas del país.
+En tal caso, los perjudicados deben ser atendidos por las autoridades de la República donde lo han sido y obtener de ellas la debida justicia conforme á las mismas leyes á que están sujetos los hijos del país; de modo que los ciudadanos de una de las Repúblicas contratantes no puedan ser de mejor condición que los de la otra.

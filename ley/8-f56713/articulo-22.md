@@ -1,0 +1,3 @@
+Artículo XXII
+Para favorecer el comercio recíproco entre las dos Repúblicas y estrechar más sus intereses y comunicación, se conviene en declarar libres de todo derecho ó Impuesto de , importación los productos naturales y agrícolas y los artefactos nacionales que pasen á venderse de una á otra República, con excepción solamente de los productos ya estancados ó que en lo sucesivo se estancaren en cualquiera de ellas para, ser administrados por cuenta del Estado.
+Los importadores de los referidos productos, para gozar de tal franquicia deberán proveerse de la constancia respectiva, expedida perla primera autoridad política del lugar de donde los mismos artículos procedan, visada por el Cónsul de la nación a que van dirigidos, ó en su defecto por el de una nación amiga.

@@ -1,0 +1,2 @@
+Artículo XXIII
+Los portes de la correspondencia entre los dos Estados, serán los mismos establecidos para la correspondencia interior de cada uno de ellos, sin exigirse nada á título de sobre porte, para la que, debidamente franqueada, proceda de cualquiera de las dos Repúblicas. Los valores de telegramas entre Costa Rica y Honduras no podrán exceder de lo que fije la tarifa de cada República para los telegramas del interior.

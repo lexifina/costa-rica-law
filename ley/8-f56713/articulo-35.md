@@ -1,0 +1,2 @@
+Artículo XXXV
+Les gastos que cause el arresto, transporte y mantenimiento del individuo reclamado y también los de la entrega y traslación de los objetos que, según el artículo anterior, deben restituirse, serán de cuenta de los dos Estados en sus territorios respectivos.—El individuo reclamado será conducido al puerto que indique el Gobierno que ha solicitado la extradición, de cuyo cargo serán los gastos relativos al embarque.

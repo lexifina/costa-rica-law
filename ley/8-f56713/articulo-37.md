@@ -1,0 +1,2 @@
+Artículo XXXVII
+El presente Tratado será perpetuo y siempre obligatorio en lo que se refiere á la paz y amistad y en todos los puntos concernientes á comercio y demás disposiciones; permanecerá en vigor y fuerza por el término de diez años, contados desde el día del canje de las ratificaciones. Sin embargo, si un año antes de expirar el término no se hubiere hecho, por alguna de las Partes, notificación oficial á la otra, de su intención de darlo por terminado, continuará siendo obligatorio para ambas hasta un año después de haberse notificado la expresada intención.

@@ -1,0 +1,3 @@
+Artículo VIII
+Los costarricenses en Honduras y los hondureños en Costa Rica podrán ejercer, con arreglo á las leyes del país en que residan, sus profesiones, inclusive. la del notariado ú oficios, sin más requisitos previos que la presentación del título ó diploma debidamente autenticado, la justificación de la identidad personal, si fuese necesaria, y el pase del Poder Ejecutivo ó de la Facultad correspondiente.
+Asimismo serán válidos en cualquiera de las dos Repúblicas los estudios científicos ó literarios hechos en las Universidades, Escuelas, Facultades é Institutos de secunda enseñanza de la otra, previas las autenticaciones de los documentos justificativos de tales estudios, y la prueba de la identidad personal.

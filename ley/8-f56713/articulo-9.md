@@ -1,0 +1,4 @@
+Artículo IX
+Los documentos é instrumentos públicos ó auténticos, extendidos ú otorgados conforme á las leyes de una ú otra República, valdrán en el país en que el interesado los presente para que tengan sus efectos, y se les dará entera fe si estuvieren debidamente legalizados.
+Los exhortes que para el examen de testigos, notificaciones ú otras diligencias análogas de pura tramitación judicial se expidieren de una de las Repúblicas contratantes á la otra, serán evacuados por la que los reciba, siempre que medie solicitud de autoridad legítima, enviada en forma por conducto de los respectivos Gobiernos, y haya persona encargada que suministre las expensas é informes que el asunto demande.
+Los exhortes relativos á cualesquiera otras diligencias que no fueren de pura tramitación judicial, sólo serán evacuados cuando á ello no se opongan las leyes del país que los reciba, y en tal caso, de absoluta conformidad con lo que las mismas dispongan.
