@@ -1,0 +1,1 @@
+Artículo 2º—Exonerase a la citada Corporación Municipal del pago de toda clase de impuestos y derechos de importación que deba cubrir, proveniente de la adquisición del vehículo que se le autoriza a comprar según el artículo-anterior.
