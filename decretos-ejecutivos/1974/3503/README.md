@@ -15,3 +15,4 @@ Reglamento General Orgánico o Reglamento Interno Colegio Farmacéuticosde Costa
 | --- | --- | --- |
 | 1 | 1974-02-06 | la propia norma |
 | 2 | 1996-07-10 | SINALEVI (sin norma nombrada) |
+| 3 | 2001-10-01 | Decreto Ejecutivo 29900 (2001-10-01) |
