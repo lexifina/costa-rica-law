@@ -1,3 +1,0 @@
-(Derogado)
-(Este decreto fue derogado mediante el artículo 1° del Decreto Ejecutivo N° 11526 del 14 de abril de 1980).
-Artículo 1º.- Créase la Comisión Permanente de Negociaciones Bilaterales, como órgano asesor del Ministerio de Relaciones Exteriores y Culto y de la Oficina de Planificación Nacional y Política Económica, en la negociación, el seguimiento, la evaluación y la orientación de programas, proyectos, y sistemas contemplados por los diferentes tratados o convenios bilaterales suscritos por el Gobierno de Costa Rica en materia de cooperación técnica, económica, cultural y científica, así como de intercambio comercial.
