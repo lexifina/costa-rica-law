@@ -7,4 +7,4 @@ e) Dedicar una semana de cada año, que se llamará Semana del Tránsito, a inte
 f) Sugerir oportunamente las medidas necesarias para el ordenamiento y coordinación del tránsito sobre las vías terrestres internacionales de acuerdo con las prácticas y convenciones continentales que se establezcan y con el desarrollo e importancia de dichas vías.
 g) Someter al Poder Ejecutivo, para su aprobación, a más tardar un año después de la promulgación de esta ley, el Reglamento Interno del Consejo.
 h) Los servicios prestados por los miembros del Consejo son ad-honorem.
-i) Nombrar los miembros integrantes de la Junta de Racionamiento de la Gasolina y removerlos cuando lo considere necesario.
+i) (Derogado por el artículo 17° de Crea oficina de Defensa Económica, N° 206 del 30 de agosto de 1944)
