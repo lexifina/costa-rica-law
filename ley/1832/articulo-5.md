@@ -1,7 +1,7 @@
 CAPITULO III
-Organos
-ARTICULO 5
-Los órganos del Comité serán:
-a) El Consejo;
-b) El Comité Ejecutivo; y
-c) La Administración.
+ORGANOS
+Artículo 5
+Los órganos de la Organización serán:
+a) el Consejo;
+b) el Comité Ejecutivo;
+c) la Administración.
