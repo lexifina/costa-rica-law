@@ -1,1 +1,0 @@
-Artículo 14.-Si no se presentare oposición o fuere desechada la que se interpusiere, y satisfechos los demás requisitos, la DGM recomendará al Ministro que dicte la resolución en que se otorgue la concesión.

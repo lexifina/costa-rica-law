@@ -1,1 +1,0 @@
-Artículo 21.-Dentro del mes siguiente a la inscripción en el Registro de la resolución de otorgamiento de la concesión dictada por el Ministro, el titular deberá pagar por adelantado un canon anual de superficie, conforme con las disposiciones del numeral dos del inciso a) del artículo 51 del Código de Minería.

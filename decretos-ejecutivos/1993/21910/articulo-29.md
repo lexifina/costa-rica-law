@@ -1,1 +1,0 @@
-Artículo 29.-La DGM solicitará al concesionario el nombramiento de un geólogo o ingeniero en minas, debidamente incorporado al colegio profesional respectivo, como responsable de la explotación. La copia del contrato respectivo deberá ser aportada al expediente.

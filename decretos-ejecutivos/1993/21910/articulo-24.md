@@ -1,1 +1,0 @@
-Artículo 24.-Hecha la demarcación del área solicitada y aprobado el plano correspondiente, la DGM hará la inspección en la zona para verificar los mojones, y los gastos serán cubiertos por el concesionario.

@@ -1,1 +1,0 @@
-Artículo 35.-Tratándose de solicitudes de extracción manual, a juicio de la DGM, podrá eximirse al solicitante de cumplir con algunos de los requisitos contemplados en el presente Reglamento, cuando la naturaleza de los trabajos a realizar así lo ameriten, y la condición socioeconómica del solicitante, así lo requiera, previa demostración por parte del solicitante.

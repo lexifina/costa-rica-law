@@ -1,1 +1,0 @@
-Artículo 28.-Si la DGM considera incompleto o incorrecto el informe anual de labores, prevendrá al titular para que mediante anexo cumpla con lo requerido, en un plazo no mayor de un mes. De no cumplirse con lo requerido se procederá de conformidad con el último párrafo del artículo 32 del presente Reglamento.

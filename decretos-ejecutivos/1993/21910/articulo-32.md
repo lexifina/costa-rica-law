@@ -1,9 +1,0 @@
-DE LA CADUCIDAD
-Artículo 32.-La concesión de extracción será cancelada si el titular no cumple con las disposiciones estipuladas en la resolución de otorgamiento y con las obligaciones contenidas en este Reglamento; en especial en los siguientes casos:
-a) Si no se hubiere presentado el informe de las labores realizadas.
-b) Si no se hubiere cancelado los cánones anuales de superficie.
-c) Si no se hubieren cumplido las normas que regulan la contaminación ambiental y la recuperación de los recursos naturales renovables.
-ch) Si no se inician las labores de extracción dentro del plazo que establece la resolución de otorgamiento.
-d) Si no se mantienen las operaciones de extracción en forma regular, o si las mismas se interrumpen por un período mayor de seis meses, sin contar con la respectiva autorización de la DGM.
-e) La caducidad se producirá, igualmente en los casos de incumplimiento de las obligaciones que le impone el Código de Minería y este Reglamento, cuando no estuviere expresamente prevista esta sanción.
-El Registro, después del estudio del caso, mediante notificación dará aviso al interesado y le fijará un plazo de hasta noventa días, para que cumpla con sus obligaciones o se justifique. El plazo comenzará a correr desde el día en que el interesado reciba la notificación. Si el titular de la concesión no se justificare o no cumpliere con lo ordenado dentro del término fijado, la DGM llevará el asunto a conocimiento del Ministro el cual estudiará el caso y podrá sugerir que la DGM conceda un nuevo plazo, que no será mayor de tres meses. Si el Ministro no considerare procedente un nuevo plazo o si hubiere finalizado el concedido, la DGM dictará la resolución de cancelación correspondiente. Esta resolución se publicará en el Diario Oficial "La Gaceta" y una vez firme quedará libre el derecho de extracción respectivo.
