@@ -1,4 +1,0 @@
-Separación del Seguro, Conservación y Recuperación de Derechos
-Artículo 12.-EI asegurado que deje de cotizar a este seguro conservará los derechos adquiridos, por un período equivalente a la cuarta parte del tiempo cubierto por sus cuotas, contándose tal plazo desde la fecha de su última cotización. En ningún caso el período de conservación de derechos será inferior a ocho meses.
-Para los efectos de este artículo únicamente, se considerará como cotizado todo el tiempo que los asegurados disfruten de una renta por invalidez o del subsidio en el Seguro de Enfermedad y Maternidad o por concepto de riesgo profesional, circunstancias cuya prueba estará a cargo del propio interesado.
-Transcurridos los plazos de conservación de derechos, según lo anterior, el asegurado pierde sus derechos y solamente puede recuperarlos conforme lo que al efecto dispone el artículo siguiente.

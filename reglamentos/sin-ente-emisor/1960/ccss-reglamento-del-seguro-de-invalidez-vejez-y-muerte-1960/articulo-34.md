@@ -1,1 +1,0 @@
-Artículo 34.-EI asegurado que solicite beneficios por invalidez debe someterse a los exámenes y controles médicos que designe la Caja. El resultado de estos exámenes debe pasar a conocimiento de la Comisión a que se refiere el artículo anterior a efecto de que ésta, con base en ellos y demás elementos de juicio, determine si el solicitante se encuentra en estado de invalidez.

@@ -1,1 +1,0 @@
-Artículo 36.-EI asegurado pensionado por invalidez está obligado a someterse a los tratamientos de rehabilitación síquica y física, lo mismo que a los de readaptación profesional que la Caja ordene, y su renuencia causará la sanción mencionada en el artículo anterior.

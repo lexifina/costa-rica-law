@@ -1,1 +1,0 @@
-Transitorio II.-A los trabajadores del Estado que en el mes de diciembre de 1946 estuvieren asegurados en el Seguro de Enfermedad, se les reconocerá como acreditadas en el Seguro de Invalidez, Vejez y Muerte, las cuotas pagadas en el Seguro de Enfermedad antes del 1° de enero de 1947, hasta por un plazo máximo de 36 meses.

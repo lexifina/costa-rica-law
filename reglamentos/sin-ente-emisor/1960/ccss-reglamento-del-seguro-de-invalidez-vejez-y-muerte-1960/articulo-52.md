@@ -1,1 +1,0 @@
-Artículo 52.-Los hijos nacidos fuera de matrimonio reconocidos en escritura pública o en virtud de sentencia judicial, tendrán los mismos derechos que los hijos nacidos en matrimonio. En caso de indiscutida posesión notoria de estado, la Directiva podrá acordar el beneficio aunque no exista reconocimiento o sentencia judicial.

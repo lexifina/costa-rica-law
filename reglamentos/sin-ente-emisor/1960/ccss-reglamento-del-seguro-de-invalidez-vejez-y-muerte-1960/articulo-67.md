@@ -1,1 +1,0 @@
-Artículo 67,-Las cotizaciones de los trabajadores del Estado se harán efectivas mediante acuerdo entre la Caja y el Ministerio de Economía y Hacienda. y las del Estado como tal y como patrono, de conformidad con la ley.

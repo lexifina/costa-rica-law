@@ -1,2 +1,0 @@
-Beneficios a favor de Viudas
-Articulo 44.-La viuda del asegurado que fallezca después de haber cotizado con más de treinta y seis cuotas mensuales, cuyo fallecimiento no sea imputable a un riesgo profesional cubierto por el Capítulo II del Título IV del Código de Trabajo, adquiere el derecho a disfrutar de una pensión equivalente al 40 % de la que se encontraba disfrutando el asegurado al momento de su fallecimiento de la que eventualmente pudo haber disfrutado a causa de invalidez o de vejez, en ese mismo momento.
