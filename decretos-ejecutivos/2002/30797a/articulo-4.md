@@ -1,0 +1,4 @@
+ARTÍCULO IV
+Obligaciones respecto a las exportaciones
+1º—Para efectos del Artículo V.4.3 del Tratado, ninguna Parte podrá imponer sanciones a un exportador o productor de una mercancía en su territorio, cuando el exportador o productor proporcione la notificación escrita a que se refiere el Artículo V.4.1 (b) del Tratado, previo al inicio de una investigación por una autoridad de esa Parte con competencia para conducir una investigación penal con relación al Certificado de Origen.
+2º—Para efectos del Artículo V.4.1 (b) del Tratado, cuando la autoridad aduanera de una Parte proporcione a un exportador o productor de una mercancía, una resolución de conformidad con el Artículo V.6.12 del Tratado que indique que la mercancía no es originaria, el exportador o el productor deberá notificar dicha resolución a todas las personas a las que entregó el Certificado de Origen correspondiente a esa mercancía.
