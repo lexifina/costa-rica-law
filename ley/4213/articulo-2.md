@@ -1,0 +1,6 @@
+Condiciones de Pago, Intereses. Apertura de Crédito y Garantía:
+Artículo 2°-EI Ministerio acepta y se compromete a pagar a El Contratista, en dólares americanos, en un Banco de primer orden de la ciudad de Nueva York que se señale de común acuerdo entre las partes, a través de amortizaciones semestrales y en un plazo de siete años contados a partir del año siguiente a la entrega a satisfacción de El Ministerio, de las obras y del equipo:
+a) La suma de $ 2.684.186.29 (dos millones, seiscientos ochenta y cuatro mil ciento ochenta y seis con 29/00 U.S. dólares) como precio por el suministro de equipo y construcción de las obras.
+b) Un interés de 7% anual sobre saldos insoluto de la cantidad a que se refiere el inciso precedente, computable mensualmente conforme avance el desarrollo de las obras y suministro del equipo.
+c) Un cuatro por ciento en la fecha de aprobación de este contrato, sobre el monto total de la financiación. por una sola vez, correspondiente a la apertura del crédito.
+Tanto el capital como los intereses y la comisión de apertura de crédito a que se refiere este artículo, se pagarán a El Contratista libres de cualquier cargo, inclusive impuestos de cualquier clase, presentes o futuros.

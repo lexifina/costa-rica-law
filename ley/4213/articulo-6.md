@@ -1,0 +1,2 @@
+Garantía de Cumplimiento:
+Artículo 6°-Como garantía económica de cumplimiento de lo aquí convenido El Contratista entregará a la Proveeduría Nacional de la República, antes de que el presente Contrato sea enviado para su ratificación a la Asamblea Legislativa, un bono de garantía a satisfacción del Gobierno de Costa Rica por un valor total de U.S. $ 134.209.31 (ciento treinta y cuatro mil doscientos nueve con 31/00 U.S. dólares), igual al cinco por ciento de la estimación del Contrato.
