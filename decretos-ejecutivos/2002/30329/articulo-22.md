@@ -1,0 +1,1 @@
+Artículo 22.—En cada sección se nombrará un tribunal ad-hoc para dirigir el proceso de elección de la Directiva del Consejo de Sección, que se integrará con tres estudiantes. Este tribunal cesará en su función pasada la elección y juramentación de la Directiva.

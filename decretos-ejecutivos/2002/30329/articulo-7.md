@@ -1,0 +1,1 @@
+Artículo 7º—Las sesiones de los órganos del Gobierno Estudiantil deberán efectuarse dentro del horario regular de trabajo del propio centro educativo que será su sede. El quórum para que puedan sesionar válidamente será el de la mayoría absoluta de sus integrantes.

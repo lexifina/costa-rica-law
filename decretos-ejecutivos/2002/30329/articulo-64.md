@@ -1,0 +1,1 @@
+Artículo 64.—Todo estudiante, padre de familia y educador puede consultar al Programa de Gobiernos Estudiantiles del Ministerio de Educación Pública y asesorarse en relación con la aplicación de este Reglamento cuando lo considere pertinente.

@@ -1,0 +1,1 @@
+Artículo 16.—Para su gobierno, el Consejo de Sección elige una directiva por. medio del voto directo, universal y secreto y además promueve otras formas de organización grupal, de acuerdo con sus necesidades, intereses y creatividad.

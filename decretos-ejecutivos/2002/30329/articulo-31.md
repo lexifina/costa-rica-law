@@ -1,0 +1,1 @@
+Artículo 31.—Cada comisión de la Asamblea de Representantes estará conformada por el número de integrantes que designe su directorio y contará como mínimo con un responsable de la coordinación y un responsable de la secretaría.

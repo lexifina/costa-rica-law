@@ -1,0 +1,4 @@
+Artículo 62.—El procedimiento para la pérdida de credenciales es el siguiente:
+a. Para dictaminar la pérdida de credenciales de los representantes de los órganos del Gobierno Estudiantil, el Tribunal Electoral Estudiantil actuará de inmediato, de oficio o a requerimiento de la Dirección del Centro Educativo, de una Directiva de Consejo de Sección, de la Asamblea de Representantes, del Comité Ejecutivo, del Consejo de Profesores, de la Reunión de Docentes o del Asesor Supervisor, con el fin de investigar el caso y emitir la resolución correspondiente.
+b. La resolución del Tribunal será comunicada a la Dirección del Centro Educativo, para que por su medio la de a conocer a quién corresponda.
+c. Cuando la pérdida de credenciales se refiere al Tribunal Electoral Estudiantil, la investigación el análisis del asunto y la resolución respectiva compete al Consejo de Profesores o Reunión de Docentes del Centro Educativo.

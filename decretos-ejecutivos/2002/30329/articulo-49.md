@@ -1,0 +1,1 @@
+Artículo 49.—Tienen derecho a ser electos como integrantes del Tribunal Electoral Estudiantil todos los estudiantes regulares del Centro Educativo que reúnan los requisitos contenidos en el artículo 6º de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 28.—El directorio definitivo de la Asamblea de Representantes será nombrado por medio del voto secreto y directo de todos sus integrantes, puesto por puesto y por simple mayoría, de conformidad con lo dispuesto en el artículo 4º de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 53.—El Tribunal Electoral Estudiantil será juramentado por el Presidente de la Asamblea de Representantes, en presencia del Director del Centro Educativo, del Consejo de Profesores o reunión de Docentes; sus integrantes tomarán posesión de sus cargos inmediatamente.

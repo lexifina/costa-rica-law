@@ -1,0 +1,1 @@
+Artículo 39.—La Dirección del Centro Educativo, con la colaboración obligada del Comité Ejecutivo saliente, el Directorio de la Asamblea de Representantes y el Tribunal Electoral Estudiantil, organizarán el Traspaso de Poderes, que se hará en los diez días hábiles posteriores a la declaración oficial del resultado final de las elecciones.

@@ -1,0 +1,1 @@
+Artículo 59.—El Tribunal Electoral Estudiantil escoge a dos profesores, asesores de una nómina de cinco; confeccionada por la Asamblea de Representantes. Ninguno de los asesores puede ser pariente de los miembros del Tribunal ni de los candidatos al Comité Ejecutivo, tampoco profesor guía de los candidatos.

@@ -1,0 +1,1 @@
+Artículo 65.—Rige a partir de su publicación y deroga el Reglamento de la Comunidad Estudiantil, promulgado mediante el Decreto Ejecutivo Nº 22.092-MEP del 26 de marzo de 1993, publicado en La Gaceta Nº 80 del 28 de abril de 1993.

@@ -1,0 +1,1 @@
+Artículo 11.—La Asamblea Estudiantil, para su gobierno, elegirá un Directorio siguiendo el procedimiento indicado en los artículos del Capítulo VI de este Reglamento y cumplirá las funciones de la Asamblea de Representantes.
