@@ -1,0 +1,1 @@
+Artículo 117°-EI servidor despedido podrá apelar de la decisión del alcalde para ante el correspondiente tribunal de trabajo del circuito judicial a que pertenece la Municipalidad, dentro de un término de ocho días hábiles contados a partir de la notificación del despido.

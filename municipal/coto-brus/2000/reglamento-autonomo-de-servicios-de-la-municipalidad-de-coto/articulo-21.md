@@ -1,0 +1,1 @@
+Artículo 21°.-EI servidor que concurse por oposición y cumpla con lo estipulado en el artículo 116 del Código Municipal, quedará elegible si obtuviere una nota mayor o igual a 70. Mantendrá esta condición por un lapso de un año, contado a partir de la comunicación.

@@ -1,0 +1,1 @@
+Artículo 125°-Contra la resolución final que se dicte cabrá el recurso de revocatoria; el cual deberá interponerse ante la oficina del Alcalde, dentro de los dos meses siguientes al de su notificación y deberá ser resuelto dentro de los ocho días siguientes a su recibo.

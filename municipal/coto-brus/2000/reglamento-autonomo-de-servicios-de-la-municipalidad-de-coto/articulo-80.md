@@ -1,0 +1,1 @@
+Articulo 80°-Durante el período de incapacidad a consecuencia de un riesgo de trabajo, la Municipalidad reconocerá al trabajador afectado la diferencia resultante entre el subsidio pagado por el Instituto Nacional de Seguros hasta completar el 100 por ciento del salario.

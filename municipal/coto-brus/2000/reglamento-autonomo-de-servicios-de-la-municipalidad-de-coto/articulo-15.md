@@ -1,0 +1,1 @@
+Artículo 15.-En todo caso de terminación de la relación de servicios, el interesado deberá plantear en tiempo el correspondiente reclamo para el pago de los derechos adeudados. Caso contrario, la Municipalidad declarará la prescripción legal cuando proceda.

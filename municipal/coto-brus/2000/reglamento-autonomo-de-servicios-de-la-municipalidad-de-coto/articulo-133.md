@@ -1,0 +1,1 @@
+Artículo 133°.-La junta tiene por finalidad y propósito estudiar las situaciones de conflicto de índole laboral, sean de naturaleza individual o colectiva, para buscarles una solución armoniosa. Asimismo, conocer y pronunciarse acerca de las demandas de mejoramiento económico social, en beneficio de los servidores. Los acuerdos de la Junta tendrán carácter recomendatorio.

@@ -1,0 +1,1 @@
+Artículo 18.-Los aspirantes a ocupar un puesto vacante en la Municipalidad, antes de las pruebas de aptitud, deberán comprobar ante la Unidad de Recursos Humanos por medio de documentos válidos que satisfacen todos los requisitos exigidos para llenar el puesto sometido a concurso.

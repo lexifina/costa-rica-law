@@ -1,0 +1,1 @@
+Artículo 114°-En caso de que la eventual responsabilidad administrativa del servidor conduzca a las sanciones de suspensión sin goce de salario o al despido sin responsabilidad patronal, se aplicará lo dispuesto en el artículo 150 del Código Municipal.

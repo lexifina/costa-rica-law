@@ -1,0 +1,1 @@
+Artículo 34°.-EI horario de trabajo para los funcionarios de servicios o empleados no administrativos, será de lunes a viernes de las seis de la mañana a las quince horas, tendrán derecho a quince minutos de descanso en la mañana y a cuarenta y cinco minutos para almorzar.

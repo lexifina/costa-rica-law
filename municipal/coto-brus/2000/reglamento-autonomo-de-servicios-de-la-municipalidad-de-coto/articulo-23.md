@@ -1,0 +1,1 @@
+Artículo 23°.-Podrán participar en los concursos internos, todos los funcionarios en propiedad e interinos y en los concursos externos los particulares y los funcionarios municipales que deseen participar también.

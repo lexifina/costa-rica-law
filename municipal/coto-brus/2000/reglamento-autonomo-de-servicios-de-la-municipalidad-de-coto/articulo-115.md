@@ -1,0 +1,1 @@
+Artículo 115°-EI acto final del procedimiento lo dictará el Alcalde Municipal. Dicha resolución se notificará en forma personal al servidor o en su defecto mediante telegrama o carta certificada dirigida al lugar señalado para notificaciones. Sólo en caso de que no sea posible practicar la notificación, el acto se comunicará mediante publicación en el Diario Oficial.

@@ -1,0 +1,4 @@
+Artículo 58°-Los servidores disfrutarán de la licencia con goce de salario, la cual será autorizada por el Alcalde Municipal, previa comunicación a los jefes respectivos, en los casos siguientes:
+a) Por matrimonio del servidor: Cinco días hábiles, contados a partir del día de la ceremonia, previa constancia extendida por autoridad competente.
+b) Por muerte del cónyuge, el compañero, los hijos, los entenados, los padres (naturales o adoptivos), los hermanos consanguíneos: cinco días hábiles, contados a partir del día del fallecimiento, previa constancia extendida por autoridad competente.
+c) Por nacimiento de hijos ( productos vivos) o adopción legal: tres días hábiles a conveniencia del servidor, contados a partir del nacimiento o de que la cónyuge sea dada de alta por el centro hospitalario donde fue atendida, previa constancia extendida por autoridad competente.

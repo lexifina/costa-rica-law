@@ -1,0 +1,1 @@
+Artículo 39°.- Toda labor que se ejecute fuera de los límites señalados en los artículos 33 y 34 de este Reglamento o durante los días inhábiles, será considerada como extraordinaria y se remunerará en cada caso conforme con lo dispuesto por la ley.

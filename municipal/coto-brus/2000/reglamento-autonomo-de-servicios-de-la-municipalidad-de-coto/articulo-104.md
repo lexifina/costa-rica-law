@@ -1,0 +1,2 @@
+Artículo 104°-La amonestación oral y la escrita podrán ser aplicadas por las Jefaturas de los Trabajadores previo seguimiento del debido proceso. Enviarán copia a la Unidad de Recursos Humanos para que las archive en el expediente de los trabajadores, en atención a lo dispuesto en el artículo 149 del Código Municipal.
+La suspensión y el despido serán acordados por el Alcalde, según el procedimiento indicado en el artículo 106 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 55°-Interrumpe el período de vacaciones que está disfrutando el trabajador, si se incapacita por enfermedad o riesgo del trabajo. En este caso los días dejados de disfrutar se concederán al terminar la incapacidad, trámite que se hará por gestión propia del servidor ante la Unidad de Recursos Humanos.

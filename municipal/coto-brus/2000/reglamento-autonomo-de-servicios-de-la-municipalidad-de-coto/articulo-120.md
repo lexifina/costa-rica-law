@@ -1,0 +1,1 @@
+Artículo 120°-La persona ofendida podrá poner en consideración del Alcalde Municipal su reubicación temporal en cualquier momento del proceso. El Alcalde resolverá en única instancia la procedencia de la reubicación temporal solicitada.

@@ -1,0 +1,4 @@
+Artículo 71°-Los servidores tendrán derecho a una remuneración adicional anual denominada decimotercer mes, correspondiente a la doceava parte del total de salarios ordinarios y extraordinarios devengados entre el 10 de diciembre de un año y el 30 de noviembre del siguiente.
+Esta remuneración se hará efectiva dentro de los primeros quince días hábiles del mes de diciembre de cada año.
+Si un servidor presta servicios durante un tiempo menor al indicado, recibirá el decimotercer mes en proporción al tiempo servido. Que le será pagado en el momento en que se realice la liquidación correspondiente.
+Las incapacidades extendidas por la Caja Costarricense del Seguro Social, o el Instituto Nacional de Seguros, no afectaran el pago del aguinaldo completo, ni los reajustes salariales que efectúe la Municipalidad debido al aumento en el costo de vida.

@@ -1,0 +1,1 @@
+Artículo 93°-Se considera ausencia la inasistencia a un día de trabajo. La falta a una fracción de una jornada, o la omisión de marca a la entrada o salida se computarán como la mitad de una ausencia. Dos mitades de una ausencia, para efectos de sanción, se computarán como una ausencia.

@@ -1,0 +1,1 @@
+Artículo 127°-Una vez finalizado el procedimiento administrativo, quien no esté satisfecho con el resultado final puede presentar la denuncia correspondiente ante los Tribunales de Trabajo, dentro del término de prescripción que señala el título X, Capítulo Único, Sección 1, del Código de Trabajo.
