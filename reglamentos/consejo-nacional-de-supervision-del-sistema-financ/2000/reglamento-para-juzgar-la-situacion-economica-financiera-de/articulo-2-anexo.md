@@ -19,6 +19,8 @@ Cartera total de créditos tomada del informe de clasificación de cartera segú
 Activo productivo de intermediación / Pasivo con costo
 C(130) + C(139) -C(138)-D 20002 + C(120.00) + C(129)-C(128)+C(160.00) +C(169) - C(167.01) - C(168.00)
 C(21101102) + C(21101202)+C(211.03) + C(21199) + C(213.00) + C(215.01) + C(218.01)+ C(221.00) - C(221.99) + C(222.00) + C(231.03) + C(231.04) + C(231.05) + C(231.06) + C (231.07) + C(232.01) + C(232.02) + C(232.03) + C(232.04) + C(232.05) + C(232.06) + C(232.07) + C(232.08) + C(232.09) + C(232.10) + C(232.11) + C(232.99)+ C(233.02) + C(233.03)+ C(233.01) + C(233.04) -
+D (20016) Créditos con garantía de vivienda propia que se encuentran ocupadas o serán ocupadas por el prestatario o su núcleo familiar."
+(Mediante sesión 258 de 16 de octubre del 2001, se modifica el detalle del código 20016)
 D (20017) Obligaciones por cartas de crédito emitidas sin costo financiero -
 D (20018) Obligaciones por otras aceptaciones sin costo financiero.-
 D (20019) Obligaciones por pactos de recompra de títulos sin costo financiero -
