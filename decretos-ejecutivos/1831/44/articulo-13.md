@@ -1,1 +1,0 @@
-Art. 13. Queda en su vigor todo lo que no se oponga al presente reglamento.-AI Consejo Representativo.-Dado en San José á primero de Octubre de mil ochocientos treinta y uno. Sala del Consejo San José Octubre cuatro de mil ochocientos treinta y uno.-Pase aI Poder Ejecutivo.-Por tanto: EJECUTESE. San José Octubre cinco de mil ochocientos treinta y uno.-

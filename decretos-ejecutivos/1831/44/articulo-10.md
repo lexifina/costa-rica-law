@@ -1,1 +1,0 @@
-Art. 10. Todo el aguardiente que necesiten los Mineros para su gasto en el Aguacate, será provisto por cualquiera Asentista á pedimento oficial de la respectiva Diputacion, cuyo documento guiado á continuacion por el mismo Asentista, deberá presentarsele á dicha Diputacion.

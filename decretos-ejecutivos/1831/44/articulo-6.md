@@ -1,1 +1,0 @@
-Art. 6° El que se encontrase con contrabando de aguardiente, á mas de incurrir en las penas establecidas, será obligado a manifestar la persona que lo haya vendido, bajo la pena de un mes de trabajo en obras publicas.

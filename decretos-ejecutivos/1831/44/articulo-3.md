@@ -1,1 +1,0 @@
-Art. 3° A mas de la persecúcion que Ias justicias deben hacer por denuncio ó de oficio contra Ias fábricas cIandestinas, deberán prestar el auxiIio que pidan para el efecto el Administrador, Receptor ó Guardas bajo la multa de uno hasta veinticinco pesos.

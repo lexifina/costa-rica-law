@@ -1,1 +1,0 @@
-Art. 7° En Ios lugares en donde pasare de cuatro asientos, deberán Ios Asentistas poner guardas que zelen el contrabando; y en los demas podrán ponerlos, si lo estimaren conveniente, y si se les averiguase algun fraude en el cumplimiento de su obligacion, sufrirán la pena de un mes de trabajo en obras publicas.

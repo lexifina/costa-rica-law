@@ -1,1 +1,0 @@
-Art. 4° Las multas establecidas para los contrabandistas y fábricas clandestinas, se aplicarán por terceras partes entre el Contador á Receptores subalternos respectivos, los guardas y el denunciante (si lo hubiere) y no habiendolo, se dá la parte que á este debia pertenecer, á Ios Asentistas respectivos, junto con el licor que se aprehenda y el valor de Ia fábrica y utencilios.
