@@ -1,0 +1,1 @@
+Artículo 6° —La Municipalidad por medio del departamento que corresponda entregará a los abogados listas actualizadas de los contribuyentes morosos y del monto de lo adeudado, las cuales se actualizarán cada vez que sea posible y no menos de una vez cada tres meses.
