@@ -1,0 +1,1 @@
+Artículo 19.—Infracciones a la Ley de Tránsito por vías Públicas Terrestres. Las infracciones a la Ley de Tránsito por vías Públicas Terrestres que ameriten ser investigadas a criterio de la Dirección Administrativa, serán remitidas a los miembros del Tribunal para que se inicie el procedimiento respectivo.
