@@ -1,0 +1,1 @@
+ARTICULO 6.- Son miembros afiliados al Colegio de Ingenieros Agrónomos, los graduados en Ciencias Agropecuarias en instituciones parauniversitarias de agricultura, con estudios postsecundarios de no menos de tres años lectivos completos y con título o diploma reconocido por el Consejo Superior de Educación.

@@ -1,0 +1,1 @@
+ARTICULO 26.- El Colegio de Ingenieros Agrónomos, con fundamento en las disposiciones establecidas en la presente Ley, regulará, mediante la vía reglamentaria, todo lo relativo al ejercicio de los diversos profesionales que lo integran.

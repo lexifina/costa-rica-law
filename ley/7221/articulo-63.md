@@ -1,0 +1,1 @@
+ARTICULO 63.- Las instituciones públicas que cuenten entre sus servidores con miembros de este Colegio, están obligadas a deducir de sus salarios el monto de las cuotas ordinarias fijadas por la Asamblea General y, a reintegrarlas, puntualmente, mediante giros de depósitos bancarios a nombre del Colegio, si así lo solicitara el servidor público.

@@ -1,0 +1,1 @@
+ARTICULO 72.- Deróganse las Leyes: Número 3855 del 6 de abril de 1967; Número 5063 del 16 de agosto de 1972; Número 6662 del 18 de setiembre de 1981 y todas aquellas otras disposiciones legales que se opongan a la presente Ley.

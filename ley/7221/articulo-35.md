@@ -1,0 +1,1 @@
+ARTICULO 35.- La Asamblea General, reunida en sesión extraordinaria, únicamente, podrá considerar los asuntos incluidos en el orden del día objeto de la respectiva convocatoria. Sin embargo, podrá conocer otros asuntos, si así se acordara por la unanimidad de los miembros presentes.

@@ -1,0 +1,2 @@
+ARTICULO 16.- Todo cargo en la Administración Pública centralizada y descentralizada, así como en el sector privado, que requiera para su desempeño preparación de nivel universitario o para universitario en Ciencias Agropecuarias, deberá ser ocupado por un miembro de este Colegio, de acuerdo con lo estipulado en esta Ley.
+Se exceptúan de esta disposición todos los cargos relacionados con la profesión médico-veterinaria.

@@ -1,0 +1,2 @@
+ARTICULO 40.- Los miembros de la Junta Directiva durarán en sus funciones por el término de dos años y podrán ser reelectos. Se renovarán parcialmente cada año, según el siguiente procedimiento: un año, se elegirá al presidente, al prosecretario, al primer y tercer vocales. Al año siguiente, serán electos el vicepresidente, el secretario, el tesorero, el segundo y el cuarto vocales.
+El fiscal se elegirá en el año en que corresponda elegir al presidente; durará en sus funciones por dos años y podrá ser reelecto.
