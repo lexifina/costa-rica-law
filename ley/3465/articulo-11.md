@@ -1,0 +1,1 @@
+Artículo 11.- Además del censo de ganado, todos los propietarios de fincas fronterizas quedan obligados a presentar a la Inspección Ganadera, un informe detallado de los animales que tengan, y de los cambios conforme sucedan.

@@ -1,0 +1,2 @@
+Artículo 6º.- El Consejo Nacional de Producción resolverá, dentro del menor plazo posible, la solicitud de exportación y comunicará por escrito el permiso al interesado, al Inspector Ganadero y al Resguardo Fiscal ubicado en el puesto de control de salida de ganado.
+La sola presentación del permiso extendido al productor ante las autoridades fiscales en los puntos de salida del ganado del territorio nacional, autorizará a esas autoridades a permitir la salida de los animales, aunque no haya recibido la comunicación directa del Consejo.
