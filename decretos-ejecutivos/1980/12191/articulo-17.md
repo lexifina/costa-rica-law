@@ -1,0 +1,1 @@
+Artículo 17.—Todo fabricante o importador de alimentos para ganado, deberá contar con los servicios de un regente autorizado por el Colegio de Ingenieros Agrónomos, quien será él encargado de velar porque se apliquen las normas de calidad establecidas en este reglamento.

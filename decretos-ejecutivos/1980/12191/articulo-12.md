@@ -1,0 +1,1 @@
+Artículo 12.—Admitida la solicitud, las muestras se someterán a los análisis establecidos en el artículo anterior, previo pago de los derechos correspondientes, y de acuerdo con los resultados del análisis, si reúne las condiciones mínimas de calidad, se acordará la inscripción solicitada. En caso contrario, la solicitud será rechazada y prohibida su venta.

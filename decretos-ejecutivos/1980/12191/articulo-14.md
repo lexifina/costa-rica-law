@@ -1,0 +1,1 @@
+Artículo 14.—La inscripción a que se refieren los artículos anteriormente señalados, tendrá validez por el término de tres años, debiendo ser renovado por períodos iguales siguiéndose el procedimiento antes descrito.

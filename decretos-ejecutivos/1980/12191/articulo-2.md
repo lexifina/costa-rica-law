@@ -1,0 +1,1 @@
+Artículo 2°—Adoptará las normas que al efecto emita la Oficina Nacional de Normas y Unidades de Medida y establecerá la calidad de los alimentos para ganado y deberá rechazar la inscripción de cualquier alimento que no se ajuste a las normas adoptadas.

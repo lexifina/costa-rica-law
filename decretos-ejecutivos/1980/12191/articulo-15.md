@@ -1,0 +1,1 @@
+Artículo 15.—El Ministerio de Agricultura y Ganadería, autoriza a los fabricantes de alimentos para ganado, la sustitución de un ingrediente por otro si con ello no se alteran las especificaciones nutricionales del producto.

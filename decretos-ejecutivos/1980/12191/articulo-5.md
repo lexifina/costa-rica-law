@@ -1,0 +1,1 @@
+Artículo 5°—Las inscripciones de materias primas y mezclas de alimentos, se harán con base en fórmulas que indiquen la composición química y la lista de los ingredientes, ordenados de mayor a menor, según la proporción en que cada uno de ellos entra en la elaboración del producto y con el respaldo de análisis realizados en un laboratorio reconocido.
