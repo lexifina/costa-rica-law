@@ -1,0 +1,5 @@
+Artículo 22.—Recepción de la obra. La recepción de las obras se realizará conforme a lo siguiente:
+1) El Contratista notificará al encargado del Proyecto, la circunstancia de encontrarse en condiciones de hacer la entrega correspondiente, señalando con la antelación del caso el día y hora hábiles.
+2) El encargado del proyecto estará a cargo de la recepción, tanto provisional como definitiva.
+3) La recepción se hará siguiendo todas y cada una de las estipulaciones previstas en el artículo 67.6 del Reglamento General de Contratación Administrativa.
+4) Se levantará un acta de cada recepción, sea ésta provisional o definitiva. La Unidad de Arquitectura e Ingeniería levantará un registro con las actas originales, suscritas por los asistentes, a fin de documentar en debida forma el cumplimiento de los compromisos contraídos por los contratistas, y remitirá copia al Proceso de Adquisiciones y al Proceso de Contabilidad para que se proceda según corresponda con las garantías y la capitalización del inmueble.
