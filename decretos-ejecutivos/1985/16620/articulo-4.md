@@ -1,0 +1,1 @@
+Artículo 4°—Se elegirá un Vicepresidente, quien en ausencia del Presidente, tendrá las mismas atribuciones y facultades de éste. La elección se realizará por simple mayoría y durará en su cargo un año calendario.

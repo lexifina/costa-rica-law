@@ -1,0 +1,1 @@
+Artículo 27.—Para la realización de sus propósitos el Consejo podrá requerir asesoramiento de las instituciones estatales, de grupos organizados de empleadores y trabajadores y de organizaciones nacionales, internacionales, públicas y privadas.

@@ -1,0 +1,1 @@
+Artículo 38.—Las modificaciones internas y externas al Presupuesto Ordinario del Consejo se regirán por las normas de la Ley de la Administración Financiera de la República y las disposiciones de la Contraloría General de la República.

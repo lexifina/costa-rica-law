@@ -1,0 +1,1 @@
+Artículo 37.—Las modificaciones internas y externas al Presupuesto Ordinario del Consejo, sólo se realizarán previo acuerdo del Órgano Directivo, las cuales deben constar en el acta de la sesión respectiva.

@@ -1,0 +1,2 @@
+Artículo 12.—El ejercicio económico del Consejo corresponderá al período fiscal de la Administración Pública.
+El presupuesto ordinario será aprobado en sesión convocada para tal fin, y elevado a conocimiento del Ministro de Trabajo y Seguridad Social, quien lo someterá a ¡a aprobación de la Contraloría General de la República en forma inmediata. Igual trámite se seguirá en los presupuestos extraordinarios.

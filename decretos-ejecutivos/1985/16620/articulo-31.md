@@ -1,0 +1,1 @@
+Artículo 31.—Los libramientos contra las cuentas corrientes del Consejo de Salud Ocupacional en el Sistema Bancario Nacional, serán firmadas por el Jefe del Departamento Financiero o quien lo sustituya en su ausencia temporal, el presidente y el vicepresidente u otro director alterno, designado por el Órgano Director del Consejo.

@@ -1,0 +1,1 @@
+Artículo 10.—Los miembros del Órgano Directivo podrán hacer constar en el acta su voto contrario al acuerdo tomado y los motivos que lo justifican, quedando en tal caso, exentos de la responsabilidad que pudiera derivarse del acuerdo correspondiente.

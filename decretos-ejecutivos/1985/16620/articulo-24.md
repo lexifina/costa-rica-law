@@ -1,0 +1,1 @@
+Artículo 24.—Los encargados de las secciones tienen la responsabilidad de conducir los asuntos inherentes a sus respectivas unidades y de mantener la buena marcha y el normal desenvolvimiento de las labores del Consejo.

@@ -1,0 +1,1 @@
+Artículo 39.—Anualmente, en el mes de mayo, el Consejo deberá disponer una auditoría externa a cargo de un contador público autorizado, debiendo enviar copia de ésta a la Contraloría General de la República y al Ministro de Trabajo y Seguridad Social.

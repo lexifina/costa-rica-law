@@ -1,0 +1,1 @@
+Artículo 18.—El nombramiento del Director Ejecutivo es por tiempo indefinido, y de acuerdo con los requisitos que establezca el presente Reglamento, pudiendo ser removido por el voto afirmativo de las dos terceras partes del Órgano Directivo.

@@ -1,0 +1,1 @@
+Artículo 15.—En el mes de enero de cada año, el Órgano Directivo conocerá y aprobará el informe anual de las actividades realizadas, el que posteriormente será distribuido a las instituciones del Estado, a la Contraloría General de la República y a las organizaciones de trabajadores y de empleados del país.

@@ -1,0 +1,1 @@
+Artículo 23.—Las funciones de cada servidor estarán fijadas en las especificaciones del nombramiento. Dentro de las mismas condiciones de igualdad de categoría, la Dirección Ejecutiva puede hacerlos cambios de personal que estime convenientes para el buen funcionamiento del Consejo.
