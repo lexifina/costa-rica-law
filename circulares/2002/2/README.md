@@ -13,3 +13,4 @@ Deber de Remitir Informes Sobre Asuntos Ingresados.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-02-06 | la propia norma |
+| 2 | 2003-06-10 | Circular 32 (2003-06-10) |
