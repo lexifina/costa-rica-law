@@ -1,1 +1,0 @@
-Artículo 47.—Las modificaciones externas que hagan los colegios universitarios a los presupuestos deberán contar con la aprobación del Consejo Superior de Educación antes de ser tramitadas a la Contraloría General de la República y deberán ser notificadas al Ministerio de Educación Pública.

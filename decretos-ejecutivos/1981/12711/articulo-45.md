@@ -1,1 +1,0 @@
-Artículo 45.—El funcionario que en nombre de la institución contraiga deudas o compromisos de cualquier naturaleza en contra de las leyes y reglamentos o sin autorización legal, será exclusivamente responsable de sus actos ante los acreedores y se hará acreedor de las sanciones correspondientes.

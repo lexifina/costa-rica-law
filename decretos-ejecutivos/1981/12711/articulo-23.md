@@ -1,1 +1,0 @@
-Artículo 23.—La Dirección Administrativa tendrá a cargo las labores de administración propias de los servicios de Registros; Personal; Financiero; Bienestar Estudiantil; Materiales; Suministros y Transportes; Divulgación y Publicaciones; Biblioteca; Acción Social y otros afines. Cada uno de estos servicios estará a cargo de un jefe.

@@ -1,1 +1,0 @@
-Artículo 16.—Para ser Decano es necesario ser ciudadano costarricense, mayor de treinta años, poseer grado o título universitario no inferior a la Licenciatura, haber laborado como mínimo dos años en una institución de Educación Superior y pertenecer a un colegio profesional universitario.

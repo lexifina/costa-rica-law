@@ -1,1 +1,0 @@
-Artículo 70.—Las instituciones de Educación Superior Parauniversitaria establecerán los procedimientos internos necesarios para el reconocimiento recíproco de estudios en el caso de carreras cortas similares.

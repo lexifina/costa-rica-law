@@ -1,1 +1,0 @@
-Artículo 41.—Los cursos de nivelación tendrán carácter propedéutico, se incluyen con el propósito de que el estudiante se prepare en materias afines a la carrera que seguirá, y no conlleva asignación alguna de créditos.

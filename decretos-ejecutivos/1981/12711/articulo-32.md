@@ -1,1 +1,0 @@
-Artículo 32.—Al cumplir con los requisitos de graduación y satisfacer las condiciones de índole académica y administrativa el estudiante obtendrá el Diplomado con indicación del énfasis correspondiente. Este Diplomado tendrá validez para todos los efectos legales.
