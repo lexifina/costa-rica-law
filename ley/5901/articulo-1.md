@@ -1,0 +1,460 @@
+ARTICULO 1º.- Reformase la Ley de la Administración Financiera de la
+República, Nº 1279 de 2 mayo de 1951 y sus reformas, en sus artículo 6º y
+en sus Títulos V, VI, VII, de la siguiente manera:
+"Artículo 6º.- Todo funcionario, empleado o agente del Gobierno,
+encargado de recibir, custodiar o pagar bienes o valores del Estado o cuyas
+atribuciones permitan o exijan su tenencia será responsable de ellos y de
+cualquier pérdida, daño, abuso, empleo o pago ilegal que sea o sean
+imputables a su dolo, culpa o negligencia; como empleo ilegal se
+considerará, además de otros, el manejo de los bienes o valores en forma
+distinta a la prescrita por las leyes, reglamentos o disposiciones
+superiores; incurrirá en igual responsabilidad quien permita a otra persona
+manejar o usar los bienes públicos en forma indebida. En estos casos
+procederá la destitución del responsable sin perjuicio de la sanción
+judicial correspondiente.
+Cuando la Contraloría General de la República llegare a determinar que
+existe causa de responsabilidad, de conformidad con lo dispuesto en éste o
+los siguientes artículos, ese organismo tendrá plena autoridad para ordenar
+administrativamente la suspensión o destitución, según proceda, así como
+para promover las acciones legales que correspondan, de conformidad con la
+legislación común, planteando al efecto las respectivas denuncias ante el
+Ministerio Público y la Procuraduría General de la República.
+TITULO V
+De la Proveeduría Nacional
+CAPITULO UNICO
+Funciones
+Artículo 88.- La Proveeduría Nacional tiene a su cargo todo lo
+relativo a la tramitación de los contratos regidos por la presente ley, que
+interese celebrar al Poder Ejecutivo. Hasta tanto el Poder Judicial, el
+Poder Legislativo, el Tribunal Supremo de Elecciones y la Contraloría
+General de la República no dispongan de sus propios servicios, la
+Proveeduría Nacional tendrá a su cargo la tramitación de los contratos de
+dichas administraciones.
+El Proveedor Nacional es el Jefe de la Proveeduría Nacional y sus
+nombramiento corresponde al Poder Ejecutivo, ~conforme a esta ley y a las
+normas del régimen de Servicio Civil.
+Para ser Proveedor se requiere:
+a) Ser costarricense por nacimiento, o por naturalización con más de
+diez años de residencia en el país, después de haber obtenido la carta de
+nacionalidad;
+b) Ser ciudadano en ejercicio;
+c) Tener más de treinta años de edad;
+d) Ser Licenciado en Derecho o en Ciencias Económicas, o tener
+preparación equivalente a juicio de la Dirección General de Servicio Civil;
+e) Tener amplia experiencia administrativa, incluyendo el manejo de
+personal;
+f) Ser de reconocida honorabilidad;
+g) Rendir garantía, por su cuenta, a favor del Estado, por la suma de
+cincuenta mil colones (¢ 50,000.00), la cual queda sujeta a la aprobación
+y vigilancia de la Contraloría General de la República.
+El Proveedor es responsable de la organización y buen funcionamiento
+de la Proveeduría Nacional.
+Artículo 89.- Cuando los poderes y organismos del Estado, a que se
+refiere el artículo anterior, tuvieren necesidades que satisfacer mediante
+la celebración de contratos competitivos por el Título VI de esta ley,
+dirigirán solicitud escrita a la Proveeduría Nacional, en la cual darán la
+información pertinente.
+Artículo 90.- La Proveeduría procederá, cuando lo estime conveniente,
+a contratar, conforme a los procedimientos que establece la presente ley,
+bienes y servicios para atender las necesidades de los poderes y organismos
+que de la misma se sirven. La Proveeduría Nacional llevará un control
+estricto de las respectivas existencia. Para facilitar la atención
+oportuna de los requerimientos que en tal concepto se presenten, se
+autoriza al Poder Ejecutivo para constituir en la Proveeduría Nacional, del
+presupuesto anual, un fondo circulante hasta por la suma de ocho millones
+de colones (¢ 8.000,000.00), que se depositará en un banco del Estado y
+contra el cual se podrá girar únicamente con la firma concurrente del
+Proveedor y Tesorero Nacionales, cuando la Administración interesada tenga
+al efecto fondos disponibles.
+Artículo 90 bis.- La Proveeduría Nacional deberá llevar un inventario
+general y permanente de todos los bienes fijos del Estado, tales como
+equipo, maquinaria, mobiliario y similares. No lo llevará de aquellos
+bienes de consumo que presumiblemente han de agotarse rápidamente, ni de
+los bienes raíces cuyo registro corresponde a la Contabilidad Nacional.
+El inventario se llevará por dependencias y con indicación del valor
+original y del valor depreciado.
+Por lo menos una vez al año deberá realizarse una comprobación de esos
+inventarios haciendo constar el resultado en acta que firmarán
+conjuntamente los funcionarios de la Proveeduría y de la dependencia
+oficial correspondiente. Periódicamente deberá pasar resúmenes a la
+Contabilidad Nacional para el cumplimiento de lo dispuesto en el artículo
+75 de esta ley.
+Todas las dependencias de los poderes del Estado llevarán un libro de
+inventarios, en el cual anotarán el detalle de sus bienes fijos y cada fin
+de año enviarán un estado a la Contraloría General de la República y otro a
+la Proveeduría Nacional en las fórmulas especiales destinadas al efecto.
+Asimismo aquellas dependencias que reciban requerimiento de la Proveeduría
+Nacional, enviarán mensualmente un detalle de las entregas y recibos todo
+conforme a la reglamentación que dicte el Poder Ejecutivo con intervención
+de la Contraloría General de la República.
+Artículo 91.- En el caso de que se suprima una dependencia de algunos
+de los poderes u organismos a que se refiere el artículo 88, el superior
+jerárquico correspondiente dará aviso a la Proveeduría Nacional, para
+entregar a ésta, por riguroso inventario, todas sus pertenencias.
+La Proveeduría Nacional dispondrá la venta de esos bienes, conforme
+a los procedimientos que establece la presente ley, o su distribución en
+otras oficinas.
+TITULO VI
+De los Contratos Administrativos
+CAPITULO I
+Disposiciones Generales
+Artículo 92.- Los contratos que las administraciones estatales
+promuevan se ajustarán a los trámites que los artículos siguientes regulan.
+Artículo 93.- Administraciones con un presupuesto ordinario superior
+a los diez millones de colones (¢ 10.000,000.00):
+a) Licitación pública en caso de:
+1) Enajenación o arrendamiento de sus bienes cuyo monto exceda de
+treinta mil colones (¢ 30,000.00), o arrendamiento por cualquier monto,
+cuando sean por tiempo indeterminado;
+2) Adquisición de inmuebles o contratos de obra cuyo monto exceda los
+cien mil colones(¢ 100,000.00);
+3) Suministros y todo otro contrato no contemplado en los dos
+numerales anteriores, por un monto a cincuenta mil colones ......
+(¢ 50,000.00).
+b) Licitación Privada en los casos contemplados anteriormente, cuando
+los montos sean inferiores a los límites indicados;
+c) Directamente en los casos contemplados en el inciso anterior, cuando
+el monto total de la operación sea inferior a diez mil colones (¢
+10,000.00); y
+d) Remate, como procedimiento alterno, a juicio de la administración y
+previa autorización de la Contraloría General de la República, en el caso
+de enajenación o arrendamiento de bienes, sin que la subasta pueda
+aprobarse por suma inferior a la que se le haya fijado como base.
+Artículo 94.- Administraciones con un presupuesto ordinario de un
+millón a diez millones de colones (¢ 1.000,000.00 a ¢ 10.000,000.):
+a) Licitación Pública en caso de:
+1) Enajenación o arrendamiento de sus bienes cuyo monto exceda los
+veinte mil colones (¢ 20,000.00), o arrendamiento por cualquier monto
+cuando sean por tiempo indefinido;
+2) Adquisición de inmuebles o contratos de obra cuyo monto exceda los
+cincuenta mil colones (¢ 50,000.00);
+3) Suministros y todo otro contrato no contemplado en los dos
+numerales anteriores, por un monto superior a veinticinco mil colones
+...... (¢ 25,000.00).
+b) Licitación Privada en los casos contemplados anteriormente, cuando
+los montos sean inferiores a los límites indicados;
+c) Directamente en los casos contemplados en el inciso anterior, cuando
+el monto total de la operación sea inferior a cinco mil colones (¢
+5,000.00); y
+d) Remate como procedimiento alterno, a juicio de la administración y
+previa autorización de la Contraloría General de la República, en el caso
+de enajenación o arrendamiento de bienes, sin que la subasta pueda
+aprobarse por suma inferior a la que se le haya fijado como base.
+Artículo 95.- Administraciones como un presupuesto ordinario inferior
+a un millón de colones (¢ 1.000,000.00):
+a) Licitación Pública en caso de :
+1) Enajenación o arrendamiento de sus bienes cuyo monto exceda de
+diez mil colones (¢ 1,000.00), o arrendamiento por cualquier monto cuando
+sean por tiempo indefinido;
+2) Adquisición de inmuebles o contratos de obra cuyo monto exceda los
+diez mil colones (¢ 10,000.00);
+3) Suministros y todo otro contrato no contemplado en los dos
+numerales anteriores, por un monto superior a diez mil colones (¢
+10,000.00).
+b) Licitación Privada en los casos contemplados anteriormente, cuando
+los montos sean inferiores a los límites indicados;
+c) Directamente en los casos contemplados en el inciso anterior cuando
+el monto total de la operación sea inferior a dos mil quinientos colones
+(¢ 5,500.00); y
+d) Remate como procedimiento alterno a juicio de la administración,
+previa autorización de la Contraloría General de la República, en el caso
+de enajenación o arrendamiento de bienes, sin que la subasta pueda
+aprobarse por suma inferior a la que se le haya fijado como base.
+Artículo 96.- Se establecen excepciones a lo dispuesto en los tres
+artículos que preceden, conforme a las siguientes reglas:
+a) Puede recurrirse, además, a la contratación directa en los siguientes
+casos:
+1) Cuando el negocio constituya la actividad ordinaria del ente
+conforme a la calificación que de la misma haga la Contraloría General de
+la República;
+2) Cuando se determine que sólo una persona puede comprometerse,
+habida cuenta de la naturaleza de la operación o de las circunstancias
+concurrentes;
+3) Cuando la operación requiera seguridades tales que no convenga
+interesar en ella sino a persona o entidad determinada que puedan
+garantizarlas;
+4) Cuando se trate de contrataciones entre entidades o personas de
+Derecho Público;
+5) En otros casos muy calificados, a juicio de la Contraloría General
+de la República;
+6) Respecto de contratos que se celebren con Gobiernos o entidades de
+otros países, o con organismos nacionales o extranjeros de utilidad
+pública o bien social, ajenos al ánimo de lucro; y
+7) Las contrataciones con personas físicas o entidades privadas cuya
+afán exclusivo en el caso concreto, sea de evidente ayuda al Estado o sus
+instituciones, sin lucrar en la operación.
+b) Las contrataciones directas al amparo de las situaciones contempladas
+en los numerales 2) y 3), del inciso anterior, requieren la autorización
+de la Contraloría General de la República cuando el monto de la operación
+exceda de treinta mil colones (¢ 30,000.00), quince mil colones ...... (¢
+15,000.00) o cinco mil colones (¢ 5,000.00) respectivamente, según se
+refiera a las administraciones contempladas en los artículos 93, 94; y
+c) Las contrataciones a que se refiere el inciso precedente, por un
+monto inferior del allí señalado, serán autorizadas internamente por la
+Proveeduría Nacional o por la institución interesada, según corresponda,
+mediante acuerdo debidamente razonado fundando el contrato directo en la
+excepción respectiva de la ley e indicando las justificaciones del caso,
+en tanto excedan los límites regulados por los incisos c) de los artículos
+93, 94 ó 95.
+Artículo 97.- La enajenación de bienes inmuebles de dominio público
+del Estado o de sus instituciones, salvo para el destino que tengan fijado
+por ley, o de los demás bienes cuyo valor sea mayor de un millón de colones
+(¢ 1.000,000.00), requiere, además de ajustarse a los trámites de la
+presente ley u su reglamento, contar con la aprobación previa y expresa de
+la Asamblea Legislativa y con la aprobación posterior de la Contraloría
+General de la República, si la autorización legislativa no fuere
+específica.
+No requiere autorización legislativa sino únicamente aprobación de la
+Contraloría General de la República, la enajenación de los bienes de
+dominio privado del estado o sus instituciones, cuyo valor no exceda del
+millón de colones, o adquiridos por ellos en pago de obligaciones
+tributarias o derecho común, o de bienes para el destino específico
+establecido por la ley, ni los contratos de compraventa entre entes
+públicos. La estimación del precio la hará la oficina especializada de la
+Dirección General de la Tributación Directa, como base para la venta, la
+cual sólo podrá hacerse por suma menor únicamente en caso de más de un
+remate o licitación infructuosos. Se exceptúan de los requisitos de avalúo
+y autorización o aprobación previstos en este artículo, las operaciones que
+constituyan actividad ordinaria de servicio público, de conformidad con el
+artículo 96, inciso a), párrafo 1) de esta ley. La adquisición de
+inmuebles por compra directa no podrá hacerse por un precio mayor al avalúo
+de la Dirección General de la Tributación Directa.
+Artículo 98.- Todo contrato administrativo que implique erogación
+requiere:
+a) La existencia de créditos presupuestarios suficientes para cubrir el
+gasto.
+Respecto de contratos cuya ejecución exceda de un período fiscal, la
+administración queda obligada a obtener la autorización de la Contraloría
+General de la República en los casos en que, con la recomendación de dicha
+entidad, lo requiera el reglamento y, a incluir en el presupuesto o
+presupuestos subsiguientes, según sea el caso, las partidas necesarias
+para la cancelación total de la obligación;
+b) Con el propósito de acelerar la tramitación de los contratos
+administrativos, la Contraloría General de la República puede autorizar la
+publicación de carteles o la tramitación de licitaciones privadas, aun
+antes de que haya entrado en vigencia un presupuesto o su modificación
+siempre y cuando tenga razones fundadas para presumir que oportunamente se
+dispondrá de la partida. En estos casos, el cartel advertirá que la
+adjudicación queda sujeta a la disponibilidad presupuestaria; y
+c) Salvo las situaciones de excepción contempladas en los dos incisos
+precedentes, como primera providencia dentro del procedimiento respectivo,
+deberá hacerse la afectación de la partida o subpartida presupuestaria
+correspondiente por el monto estimado del negocio.
+Artículo 99.- El importe de la venta de bienes promovida por la
+Proveeduría Nacional entrará sin deducciones, al Tesoro Público y el de la
+venta de bienes de las instituciones estatales a sus propios fondos, de
+igual manera.
+Artículo 100.- Los contratos administrativos que no se ajusten a los
+requisitos, condiciones o procedimientos esenciales que establecen las
+presente ley y su reglamento, son absolutamente nulos.
+Esta nulidad es declarable de oficio en vía administrativa, tanto por
+la Administración interesada, como por la Contraloría General de la
+República.
+CAPITULO II
+De los Procedimientos de Contratación
+Artículo 101.- La licitación, como medio idóneo para la contratación
+administrativa, se fundamenta en el doble propósito de lograr las mejores
+condiciones económicas para la Administración Pública y de garantizar la
+igualdad de oportunidad para las personas interesadas en contratar con
+ésta.
+Artículo 102.- El procedimiento de licitación pública se regirá por
+las disposiciones siguientes y por las complementarias que establezca el
+reglamento:
+a) De cartel se publicarán, cuando menos, en el Diario Oficial, las
+condiciones generales y un extracto de las especificaciones técnicas
+suficientes para identificar el objeto que se licita. En este último caso,
+deberá indicarse que el texto o textos que contienen íntegramente esas
+especificaciones quedan, desde esa fecha, a la orden de los interesados, en
+las condiciones que se expresen y la oficina que se señale;
+b) Por razones de discriminación, vicios en el procedimiento o defectos
+formales graves, el cartel o determinadas condiciones o especificaciones
+suyas pueden ser impugnadas ante la Contraloría General de la República,
+por quien se sienta perjudicado, dentro de los plazos y conforme a los
+procedimientos que establezca el reglamento;
+c) Toda oferta y toda gestión posterior a su presentación se hará por
+escrito, en sobre cerrado, antes del vencimiento del término para
+recibirlas;
+d) Las ofertas deben ir respaldadas por una garantía de participación
+cuyo monto, en todo caso, fijará el cartel entre un 1% y un 5% del monto de
+la cotización; que quedar firme la adjudicación, el oferente u oferentes
+favorecidos deberán rendir, conforme lo indique el reglamento, la garantía
+de cumplimiento por el 5% del monto adjudicado. Podrá fijarse un porcentaje
+mayor previa autorización de la Contraloría General de la República;
+e) El factor precio, no obstante su primacía, no será determinante por sí
+solo para la adjudicación. Queda a salvo el derecho de la administración
+para rechazar la totalidad de las ofertas. Salvo que el cartel disponga lo
+contrario, la administración podrá hacer adjudicaciones parciales;
+f) El acto o los actos de adjudicación de la licitación pública podrán
+ser apelados ante la Contraloría General de la República, cuyo fallo agota
+la vía administrativa, de acuerdo con los montos que para este recurso
+establecen este ley y su reglamento.
+La apelación debe interponerse dentro de los tres días hábiles
+siguientes a la publicación en el Diario Oficial de la respectiva
+adjudicación, contando el interesado con dos días adicionales para
+fundamentar el recurso; y
+g) El recurso de apelación se interpondrá en papel sellado de ¢ 1.00 más
+el valor en timbres fiscales o municipales en su caso, según se indica a
+continuación:
+Monto de la Adjudicación recurrida
+Hasta ¢ 100.000 ... ... ... ... ... ... ¢ 100.00
+Más de 100.000 ... ... ... ... ... ... 250.00
+Más de 1.000.000 ... ... ... ... ... ... 500.00
+Más de 10.000.000 ... ... ... ... ... ... 1.000.00
+Todas las demás alegaciones o articulaciones se harán en papel sellado
+de un colón.
+Cuando los autos estén listos para su fallo, la Contraloría General de
+la República dará una audiencia a las partes por tres días.
+Artículo 103.- El procedimiento de licitación privada se regirá por
+las disposiciones siguientes y por las complementarias que establezca el
+reglamento:
+a) La Administración invitará a cotizar, respecto al renglón o renglones
+a que se refiere la contratación que promueve, a un número de oferentes
+que estime representativo de los potenciales conocidos en la especialidad
+de que se trate. Cuando los hubiere ese número no debe ser menor de cinco;
+b) La ofertas, dentro del procedimiento de licitación privada, no podrán
+ser modificadas, dejadas sin efecto, ni retiradas, una vez depositadas en
+la oficina receptora; y
+c) en contra del acuerdo de adjudicación sólo cabe, en la vía
+administrativa, el recurso de revocatoria, el cual se interpondrá ante el
+órgano que lo dictó, dentro de los tres día hábiles siguientes a la
+notificación a los interesados.
+En lo no previsto en el presente artículo y en cuanto sea compatible
+con la naturaleza de licitación privada, se aplicarán las disposiciones de
+los artículos anteriores sobre licitación pública.
+Artículo 104.- El remate, como procedimiento alterno para la
+enajenación o arrendamiento de bienes de la Administración, se regirá por
+lo que al efecto disponga el reglamento.
+Artículo 105.- La contratación de servicios profesionales que no
+constituya relación laboral, debe hacerse mediante concurso de
+antecedentes, de acuerdo con los procedimientos que establezca el
+reglamento de esta ley.
+La adjudicación de estos concursos deberá ser publicada en "La
+Gaceta" y podrá ser apelada, en los mismo términos que puede serlo la de
+las licitaciones públicas.
+Artículo 106.- Todos los documentos y actuaciones relativos al
+trámite de licitación, pública o privada, de concurso de antecedentes y de
+remate, desde el acuerdo inicial hasta el último acto de liquidación se
+conservarán en expedientes individuales, debidamente foliados y ordenados.
+En caso de que se recurra administrativamente de la adjudicación de
+una licitación pública, una vez notificada la administración interesada
+ésta queda obligada de remitir a la Contraloría General de la República,
+dentro de los cinco días hábiles siguientes, el respectivo expediente.
+CAPITULO III
+Prohibiciones
+Artículo 107.- Queda absolutamente prohibido celebrar contratos
+administrativos o participar en los trámites previos a su celebración, de
+manera directa o indirecta, con carácter particular:
+a) A los miembros de los Supremos Poderes de la República y a los
+Viceministros de Estado:
+b) A los Magistrados del Tribunal Supremo de Elecciones;
+c) Al Contralor y al Subcontralor Generales de la República, al Tesorero
+y el Subtesorero Nacionales, al Proveedor y Subproveedor Nacionales;
+d) A los funcionarios o empleados públicos que tengan ingerencia o poder
+de decisión respecto de tales negocios, según determinación que hará la
+Contraloría General de la República;
+e) Al cónyuge y a los hijos, padres, hermanos, suegros, yernos y cuñados
+de los funcionarios o empleados a quienes alcanza la prohibición.
+Sin embargo, esta prohibición no cubre a los parientes arriba indicados
+cuando éstos tuvieren como ocupación habitual, con no menos de un año de
+anticipación al nombramiento o elección del funcionario o empleado a quien
+alcance la prohibición, la actividad objeto del contrato administrativo.
+Para estos efectos, el o los interesados presentarán ante la
+Contraloría General de la República los documentos que demuestren hallarse
+en esa eventualidad y obtendrán de la Contraloría General de la República,
+antes del proceso, la autorización para participar en los trámites previos
+y en contrataciones administrativas;
+f) A las personas jurídicas colectivas en que los parientes indicados en
+los incisos anteriores sean, en forma separada o conjunta, dueño de no
+menos del 25% del capital, o socios colectivos o comanditarios, o
+directores, gerentes, administradores o representantes legales.
+Sin embargo, esta prohibición no cubre a los parientes arriba indicados
+cuando éstos tuvieren como ocupación habitual, con no menos de un año de
+anticipación al nombramiento o elección del funcionario o empleado a quien
+alcance la prohibición, la actividad objeto del contrato administrativo.
+Para estos efectos, el o los interesados presentarán ante la
+Contraloría General de la República los documentos que demuestren hallarse
+en esa eventualidad y obtendrán de la Contraloría General de la República,
+antes del proceso, la autorización para participar en los trámites previos
+y en contrataciones administrativas;
+g) A las personas o firmas que han intervenido en la formulación de las
+especificaciones de una licitación o en la elaboración de los diseños
+respectivos.
+h) A las sociedades anónimas cuyo capital esté representado por acciones
+al portador o que hayan emitido títulos de participación al portador; así
+como a aquellas sociedades cuyas cuotas o acciones pertenezcan a una
+sociedad anónima con acciones o títulos al portador.
+Tratándose de sociedades personales y de capital deben acompañar
+certificación pública de quiénes son los dueños de las cuotas y de las
+acciones al momento de participar en los contratos y trámites a que se
+refiere este artículo.
+Se exceptúan de las anteriores prohibiciones, las operaciones
+realizadas según el trámite de privilegio que prescribe el artículo 96, en
+los casos enumerados por su inciso a), párrafos 1) y 2) o en un evidente
+animus donandi, conforme al reglamento.
+Queda absolutamente prohibida la gestión en favor de un tercero, por
+parte de los funcionarios o parientes a quienes alcanza la prohibición
+atinente a licitaciones o contratos administrativos en general, excepto la
+prestación de servicios profesionales.
+Para demostrar la participación directa o indirecta se admite toda
+clase de prueba.
+La violación de la prohibición que establece este artículo hace
+merecedor al funcionario que en la misma incurra, de las sanciones que al
+efecto establecen la Constitución Política, las leyes y los reglamentos.
+Asimismo, produce la nulidad absoluta del acto o contrato en que haya
+participado en forma directa el funcionario inhibido.
+La Contraloría General de la República dictará las regulaciones a que
+deberán sujetarse las operaciones que, por constituir actividad ordinaria,
+pueden llevar a cabo determinados funcionarios o empleados con la propia
+institución a la que sirven, particularmente de aquellos que tienen
+ingerencia o poderes de decisión sobre tales negocios; y
+Transitorio.- Las disposiciones del inciso h) entrarán en vigencia
+seis meses después de publicada la presente ley.
+CAPITULO IV
+De la Ejecución de los Contratos Administrativos
+Artículo 108.- Por convenir al interés público, o por fuerza mayor,
+puede la administración modificar sus contratos. Dentro de esta atribución
+no está ~comprendida la de modificar contratos para incluir aspectos que
+sean susceptibles de una contratación independiente. Para modificar los
+contratos será preciso, salvo situaciones excepcionales que definirá el
+reglamento, contar con la autorización de la Contraloría General de la
+República, la cual resolverá según la naturaleza de la modificación y las
+ampliaciones de la misma frente a los principios que informan la materia.
+Para los efectos del párrafo anterior, el contratante está obligado
+a aceptar las modificaciones que el Estado le indique, dentro de los
+límites reglamentarios, sin perjuicio de las compensaciones pecuniarias
+que procedan.
+Artículo 109.- Cuando por razones fundadas exclusivamente en la
+conveniencia pública deba ponérsele fin a un contrato, el Estado deberá
+cubrir el pago correspondiente a la parte ejecutada y los gastos razonables
+que para su ejecución total haya efectuado el contratista hasta la fecha de
+la notificación del acuerdo respectivo y aun después de esa fecha en cuanto
+sean absolutamente ineludibles, así como la parte proporcional de la
+utilidad que el contratista hubiere tenido en la ejecución total del
+contrato, reducida equitativamente respecto de la parte no ejecutada.
+Artículo 110.- Cuando deba ponerse fin a un contrato por razones de
+fuerza mayor se aplicarán las disposiciones del artículo 109.
+Articulo 111.- Las compensaciones y liquidación final a que se
+refieren los artículos 108, 109 y 110 deberán ser, en cuanto resultantes
+de un convenio, aprobadas por la Contraloría General de la República, la
+cual podrá introducir las modificaciones que estime procedentes si a
+juicio suyo hubiere exceso o defecto en la estimación; contra su
+resolución no cabe más recurso que el de apelación ante el Tribunal
+Superior Contencioso Administrativo, el cual resolverá en única instancia.
+Para los efectos consiguientes se tendrá como parte a la Contraloría
+General de la República. Sin embargo, el contratista podrá optar por
+abandonar el convenio objetado o modificado por la Contraloría General de
+la República y demandar directamente a la administración ante el Juzgado
+Contencioso Administrativo.
+Artículo 112.- Los derechos y obligaciones del contratante no pueden
+cederse sin el consentimiento previo y expreso de la Administración
+interesada y la aprobación de la Contraloría General de la República.
+Respecto de los contratos que se tramitan a través de la Proveeduría
+Nacional se requiere, además, el visto bueno de ésta.
+La subcontratación será regulada por el reglamento, dentro de límites
+razonables.
+Artículo 113.- La Administración asumirá, a gestión del contratante,
+un porcentaje del daño emergente que éste sufra, cuando el contrato,
+pendiente o en curso de ejecución, no suspendido, se viere severamente
+afectado por medidas de la propia administración contratante, generales o
+de orden económico, que de modo directo incidan en la economía del
+contrato. La Contraloría General deberá
