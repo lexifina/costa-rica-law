@@ -1,0 +1,1 @@
+Artículo 9°—El Consejo Nacional tendrá un presidente, el cual será designado por el Presidente Ejecutivo de la Institución y un secretario elegido por el Consejo entre sus demás integrantes. Este último, durará en su cargo un año y podrá ser reelecto.

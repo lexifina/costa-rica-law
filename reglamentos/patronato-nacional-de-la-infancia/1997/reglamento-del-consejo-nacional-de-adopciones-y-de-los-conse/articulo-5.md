@@ -1,0 +1,1 @@
+Artículo 5°—En lo no previsto en este reglamento, se estará a lo que indique el interés superior y el bienestar integral de los niños, las niñas y los adolescentes, consagrado en la Convención de los Derechos del Niño, la Convención de La Haya en materia de adopción internacional, la Ley Orgánica del Patronato Nacional de la Infancia y demás normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 10.—La Junta Directiva cesará en sus funciones a los miembros del Consejo Nacional y a los de los Consejos Regionales, de oficio, cuando abandonaren sus deberes y dejaren de asistir a tres sesiones consecutivas por causas injustificadas.

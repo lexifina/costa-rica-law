@@ -1,0 +1,1 @@
+Artículo 29.—En casos especiales, a juicio de los consejos regionales, o a solicitud de quien tenga interés legítimo o directo, se podrán oír en audiencia, las personas interesadas y otros funcionarios o profesionales especializados.

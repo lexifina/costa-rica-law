@@ -1,0 +1,1 @@
+Artículo 18.—En aquellas regiones en las que el Patronato no cuente con funcionarios especializados en las áreas técnicas requeridas, la junta directiva solicitará su designación a la institución del Sector Social más cercana a la respectiva oficina del Patronato.

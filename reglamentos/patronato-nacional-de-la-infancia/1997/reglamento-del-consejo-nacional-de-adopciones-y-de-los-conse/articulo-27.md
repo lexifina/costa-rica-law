@@ -1,0 +1,1 @@
+Artículo 27.—Los integrantes de los consejos regionales tendrán derecho a voz y a voto y no podrán representar, ni directa ni indirectamente, a los promoventes de adopción. Se computará como válido, el voto emitido por cada uno de los miembros propietarios de los consejos regionales, y en su defecto, el emitido por los suplentes, en ausencia de los titulares.
