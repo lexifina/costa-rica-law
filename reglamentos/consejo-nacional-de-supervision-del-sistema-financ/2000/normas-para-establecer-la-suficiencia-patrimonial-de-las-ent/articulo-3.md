@@ -1,0 +1,1 @@
+3. La suficiencia patrimonial resulta de la relación entre el patrimonio no redimible y los activos totales ponderados según el grado de riesgo. Se establece para el cálculo de la suficiencia patrimonial el procedimiento que está definido en el documento anexo a esta normativa.

@@ -1,0 +1,1 @@
+9. Para efectos de la calificación global de un supervisado, se regirá por aquella que muestre el mayor riesgo entre lo determinado a través de esta normativa o lo mostrado una vez aplicado el Acuerdo SUGEF 24-00 "Reglamento para Juzgar la Situación Económico-Financiera de las Entidades Fiscalizadas".

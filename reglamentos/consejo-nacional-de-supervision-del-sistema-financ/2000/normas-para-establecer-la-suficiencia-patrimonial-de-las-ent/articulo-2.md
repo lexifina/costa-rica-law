@@ -1,0 +1,1 @@
+2. Definir suficiencia patrimonial de las entidades fiscalizadas por la SUGEF, como el nivel de capital que les permita hacer frente a los riesgos, y a las eventuales pérdidas que de ellos se deriven, durante el desarrollo de sus operaciones.
