@@ -13,3 +13,4 @@ Reforma Reglamentos de Fiscalía CFIA y Fiscalización de Consultoras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-02-16 | la propia norma |
+| 2 | 1996-02-16 | SINALEVI (sin norma nombrada) |
