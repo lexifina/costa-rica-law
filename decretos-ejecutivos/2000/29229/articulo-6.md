@@ -1,0 +1,1 @@
+Artículo 6º—Velar porque los equipos posean con los repuestos necesarios que permitan un buen funcionamiento, así como dar trámite oportuno y eficiente de reparación cuando los mismos se dañen, asegurándose que la institución cuente con el equipo en el menor tiempo posible.

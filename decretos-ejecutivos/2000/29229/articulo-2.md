@@ -1,0 +1,1 @@
+Artículo 2º—El cumplimiento de este Reglamento es de acatamiento obligatorio, a efecto de que los controles y la responsabilidad del usuario permita que la salvaguarda de los equipos se lleve a cabo dentro de la armonía requerida y la mayor eficacia y eficiencia posible.

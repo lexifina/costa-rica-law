@@ -1,0 +1,1 @@
+Artículo 8º—Capacitar al personal del Subproceso en el uso y manejo de los equipos audiovisuales con que se tengan, de manera que el personal se encuentre capacitado de dar soporte técnico al usuario.

@@ -1,0 +1,3 @@
+Artículo 15.—Préstamo de equipo a otras instituciones.
+A- Cuando se requiera el préstamo de equipos por parte de las Direcciones que ejecutan proyectos de Seguridad Vial con fondos del Consejo de Seguridad Vial, éstas deben llenar la solicitud correspondiente a tal efecto.
+B- Cuando el préstamo del equipo se solicite por parte del Ministerio de Obras Públicas y Transportes y/o instituciones del Estado, para períodos de mediano y largo plazo, correspondiendo el primero a 15 días a 3 meses y el segundo de tres meses y 1 día hasta seis meses, el mismo debe realizarse bajo el amparo de un convenio. El cual debe ser aprobado por la Junta Directiva. Para períodos inferiores a los 15 días se tramitará a través de la Dirección Ejecutiva, quien evaluará si presta el equipo.
