@@ -1,0 +1,1 @@
+Art. 4°. – EL recurso de revisión no causa costas: Si se aprobare la tasación. Se condenará al recurrente al pago doble del honorario que al Juez, como tasador corresponde; si se improbare ó modificare la tasación, perderá el Juez el honorario de ley.

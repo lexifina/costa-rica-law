@@ -1,0 +1,1 @@
+Art 6° Los Jueces y Alcaldes conocerán á prevención, del cobro de costas, cualquiera que sea la cuantía de éstas, y salvas las excusas y las causales de recusación que la Ley admite. El lugar del cobro, es aquel en que se hubiere terminado el juicio ó el acto de jurisdicción voluntaria, en que las costas que se cobran fueron causadas.
