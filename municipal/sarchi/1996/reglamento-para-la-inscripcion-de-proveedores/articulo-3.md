@@ -1,0 +1,1 @@
+3°-El Registro tiene por objeto facilitar la conservación de los bienes y servicios necesarios para la Municipalidad, por ello el interesado en registrarse, se deberá inscribir única y exclusivamente en los bienes y servicios que está en capacidad de suministrar de acuerdo con la información que proporcione al efecto.
