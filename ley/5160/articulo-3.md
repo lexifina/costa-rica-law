@@ -1,0 +1,1 @@
+Artículo 3°- El valor de estas propiedades no podrá ser superior al que fije la Dirección General de la Tributación Directa, por medio de su Departamento especializado, con apelación ante el Tribunal Fiscal Administrativo, si así lo plantearen los interesados.

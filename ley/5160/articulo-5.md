@@ -1,0 +1,1 @@
+Artículo 5°_El Poder Ejecutivo pagará el costo de los terrenos que por esta Ley se expropian, con la emisión de bonos que se autoriza por medio del artículo anterior y el saldo se girará a la Junta Administrativa del Teatro Nacional para realizar las mejoras que considere convenientes.
