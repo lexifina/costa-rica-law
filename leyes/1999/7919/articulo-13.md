@@ -1,0 +1,58 @@
+Artículo 13
+Registro y Notificación de Transacciones en Efectivo
+Las instituciones financieras y las que realicen actividades
+financieras, a que se refiere el artículo 10 de este Convenio, deberán
+registrar, en un formulario diseñado por la autoridad competente de cada
+Estado Parte, cada transacción en efectivo en moneda nacional o extranjera
+que supere el monto determinado de conformidad con lo dispuesto por
+aquella. Acerca de cada transacción los formularios deberán contener, por
+lo menos, los siguientes datos:
+a) La identidad, firma y dirección de la persona que físicamente
+realiza la transacción;
+b) La identidad y dirección de la persona en cuyo nombre se realiza
+la transacción;
+c) La identidad y dirección del beneficiario o destinatario de la
+transacción, si la hubiere;
+d) La identidad de las cuentas afectadas por la transacción, si
+existen;
+e) El tipo de transacción de que se trate, tales como depósitos,
+retiro de fondos, cambio de monedas, cobro de cheques, compra de cheques
+certificados o cheques de cajero, órdenes de pago u otros pagos de
+transferencias efectuadas por la institución financiera o mediante ella;
+f) La identidad de la institución financiera donde se realizó la
+transacción;
+g) La fecha, hora y monto de la transacción;
+Ese registro será llevado, en forma precisa y completa, por la
+institución financiera el día en que se realice la transacción y, a partir
+de esa fecha, se conservará durante el término de cinco años.
+Las transacciones múltiples en efectivo, tanto en moneda nacional
+como extranjera, que en conjunto superen determinado monto, serán
+consideradas una transacción única si son realizadas por determinada
+persona o en su beneficio, durante un día o en cualquier otro plazo que
+fije la autoridad competente. Cuando la institución financiera, sus
+empleados, funcionarios o agentes conozcan estas transacciones, deberán
+efectuar el registro en el formulario que determine la autoridad
+competente de cada Estado Parte.
+En las transacciones realizadas por cuenta propia entre las entidades
+de intermediación financiera definidas en el inciso a), del artículo 10 y
+supervisadas por las autoridades bancarias o financieras nacionales, no se
+requerirá el registro en el formulario aludido en este artículo.
+Los registros deberán estar a disposición del tribunal o la autoridad
+competente, conforme al derecho interno de cada Estado Parte, para
+emplearlos en investigaciones y procesos criminales, civiles o
+administrativos, según corresponda, con respecto a delitos de lavado de
+dinero relacionados con el tráfico ilícito de drogas y delitos conexos, o
+a la violación de este Convenio.
+Cuando lo estime oportuno, la autoridad competente podrá establecer
+que las entidades de intermediación financiera y las que realicen
+actividades financieras, a que se refiere el artículo 10 de este Convenio
+le presenten, dentro del plazo que ella fije, el formulario mencionado en
+este artículo. Este documento servirá como prueba o informe oficial y se
+utilizará para los fines señalados en el párrafo anterior.
+Las entidades de intermediación financiera y las que realicen
+actividades financieras, referidas en el párrafo precedente, no podrán
+poner en conocimiento de ninguna persona, salvo un tribunal, autoridad
+competente u otra persona autorizada por las disposiciones legales
+internas de cada Estado Parte, que la información ha sido solicitada o
+proporcionada al tribunal o a la autoridad competente de cada Estado
+Parte.
