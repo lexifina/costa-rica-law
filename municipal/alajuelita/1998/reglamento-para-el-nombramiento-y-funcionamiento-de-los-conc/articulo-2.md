@@ -1,0 +1,1 @@
+Artículo 2°—Los restantes tres miembros de los Concejos de distrito, serán nombrados dentro de los tres meses siguientes a la instalación del Concejo Municipal de Alajuelita, por un periodo de dos unos, podrán ser reelectos y desempeñarán sus cargos gratuitamente.

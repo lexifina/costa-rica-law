@@ -1,0 +1,2 @@
+Artículo 6°—La escogencia de los miembros del Concejo de rito, la hará el Concejo Municipal de Alajuelita, de entre la(s) terna(s) que al efecto presenten los Síndicos del distrito de que se trate, quien las integrará con personas de reconocida trayectoria o interés en la solución de problemas comunales. Rige a partir de su publicación en el Diario Oficial “La Gaceta”
+Alajuelita, 29 de julio de 1998
