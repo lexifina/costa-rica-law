@@ -1,0 +1,1 @@
+Artículo 3°─Solicítase a las Instituciones Autónomas y Municipales del Área, adecuar sus horas de inicio de labores con las estipuladas en el artículo 1° de este decreto, aplicables a la Administración Pública Centralizada.
