@@ -1,1 +1,3 @@
-Artículo 10.—De la supervisión. Corresponderá a la Gerencia de División Financiera, la supervisión del cumplimiento de las directrices emitidas por el Consejo e informar periódicamente sobre el resultado de las evaluaciones realizadas.
+Artículo 10.—De la Supervisión. Corresponderá a la Gerencia de División Financiera la supervisión del cumplimiento de las directrices emitidas por el Consejo e informar periódicamente sobre el resultado de las evaluaciones realizadas.
+La Auditoría efectuará evaluaciones periódicas, de conformidad con el plan de trabajo y al efecto atenderá las normas y procedimientos debidamente establecidos. Además, estará sujeto a los otros organismos que por ley o regulaciones especiales puedan controlar o fiscalizar las conductas de los funcionarios públicos.
+(Así reformado por acuerdo tomado en Sesión N° 7686 de 12 de setiembre del 2002)
