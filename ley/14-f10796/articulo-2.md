@@ -1,0 +1,1 @@
+Art. 2. Las personas que en este arte tuvieren conocimientos, aunque no estén aprobadas, pueden también poner botica y despachar, pagando mensualmente un derecho, que no baje de ocho reales, ni exceda de veinte. Los Jefes Políticos concederán estas licencias por el término fijado en el art. anterior, aplicando el impuesto á los fondos municipales de su respectivo Departamento.

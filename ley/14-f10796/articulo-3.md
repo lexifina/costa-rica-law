@@ -1,0 +1,1 @@
+Art. 3. Cumplidos los dos años, tendrá todo su efecto el capítulo 1° tit. 4° lib 2° del Código Penal; y los farmacéuticos aprobados, que quieran ejercer su arte despachando una botica, obtendrán licencia de la autoridad política local, bajo el impuesto de tres á cinco pesos mensuales, aplicando á los fondos municipales. –Dado en San José,
