@@ -1,0 +1,1 @@
+Articulo 33.—Todo servidor que por motivo de recargo de funciones sustituyere a otros, recibirá como retribución la diferencia resultante entre los salarios base de la plaza que ocupa y la que asume por recargo, manteniendo constante su retribución actual por concepto de anualidades.

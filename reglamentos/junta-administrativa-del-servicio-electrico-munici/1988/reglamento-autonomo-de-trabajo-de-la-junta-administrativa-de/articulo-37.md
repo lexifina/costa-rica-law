@@ -1,0 +1,1 @@
+Articulo 37.—La Junta proveerá de capas impermeables, paraguas y botas de hule a les trabajadores que realicen labores a la intemperie, las cuales se entregarán cada dos años, o antes si se justifica.

@@ -1,0 +1,3 @@
+CAPITULO VI
+De las vacaciones
+Articulo 18.—Los servidores gozarán de vacaciones anuales las cuales serán irrenunciables y obligatorias. Como excepción a lo anterior los servidores que realicen labores que no sean pesadas, insalubres ni peligrosas y que exijan continuidad, por la índole de las necesidades que satisfagan, el servidor podrá consentir a solicitud de la Administración, en continuar prestando sus servicios durante el periodo de vacaciones En tal caso el trabajo realizado se remunerará con el doble del salario que ordinaria o extraordinariamente le corresponda, para ello la Junta proveerá anualmente los recursos necesarios.

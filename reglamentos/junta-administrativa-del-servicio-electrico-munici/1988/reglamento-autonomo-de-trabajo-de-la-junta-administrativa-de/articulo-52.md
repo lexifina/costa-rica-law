@@ -1,0 +1,1 @@
+Articulo 52.—El servidor que marque tarjetas o registros de asistencia que no le correspondan, incurrirá en falta grave a sus obligaciones haciéndose acreedor al despido sin responsabilidad patronal. La misma sanción se le aplicará al servidor al que otros le hayan marcado te tarjeta o registro de asistencia de mutuo acuerdo, salvo prueba en contrario.

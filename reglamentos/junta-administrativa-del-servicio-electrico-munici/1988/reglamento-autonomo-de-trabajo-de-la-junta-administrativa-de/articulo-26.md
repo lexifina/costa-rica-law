@@ -1,0 +1,1 @@
+Articulo 26 —Para el cómputo efectivo del tiempo de trabajo, no se tomará en cuenta las licencias con goce de salario ni el tiempo que el servidor hubiese estado incapacitado para trabajar por razón de enfermedad o accidente de trabajo.

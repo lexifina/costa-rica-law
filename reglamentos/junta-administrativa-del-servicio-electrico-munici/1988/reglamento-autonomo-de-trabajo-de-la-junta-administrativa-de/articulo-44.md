@@ -1,0 +1,1 @@
+Articulo 44.—En los casos de concurso interno, la Oficina de Personal divulgará en forma escrita y en los lugares de mayor afluencia de personal, la categoría, requisitos, salario y toda la información que sobre el puesto resultare de interés; igualmente señalará el plazo para la recepción de ofertas.

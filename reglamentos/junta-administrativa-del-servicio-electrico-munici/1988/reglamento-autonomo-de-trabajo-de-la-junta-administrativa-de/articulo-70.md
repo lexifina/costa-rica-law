@@ -1,0 +1,1 @@
+Articulo 70.—Se considera abandono de trabajo hacer dejación del mismo sin causa justificada dentro de la respectiva jornada. Para efectos de comprobar el abandono no es necesario que el servidor salga del lugar u oficina donde presta sus servicios si no que, bastará que de modo evidente abandone la labor que le ha sido encomendada.

@@ -1,0 +1,1 @@
+Artículo 67.—Las ausencias por enfermedad que no excedan de dos días, sólo se justificarán cuando medie certificado médico extendido por la Caja Costarricense de Seguro Social, por el Instituto Nacional de Seguros o por médico particular; en cualquiera de los casos no devengarán salario.
