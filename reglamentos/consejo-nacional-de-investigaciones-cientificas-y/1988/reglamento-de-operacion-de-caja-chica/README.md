@@ -14,3 +14,4 @@ Reglamento de Operación de Caja Chica
 | --- | --- | --- |
 | 1 | 1988-10-05 | la propia norma |
 | 2 | 1998-08-18 | Reglamento 515 (1998-08-18) |
+| 3 | 2003-12-08 | Reglamento 0 (2003-12-08) |
