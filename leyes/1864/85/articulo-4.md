@@ -1,0 +1,1 @@
+Art 4° El Poder Ejecutivo queda autorizado para encargar a una comisión especial la revisión y reforma del Reglamento General de Hacienda, cuyo nuevo proyecto se preparará para las próximas sesiones ordinarias, cubriéndose del Tesoro Público el gasto que se cause.

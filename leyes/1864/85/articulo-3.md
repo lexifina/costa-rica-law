@@ -1,0 +1,1 @@
+Art 3°. Se señalan cinco mil pesos en gastos extraordinarios administrativos o de utilidad pública, observándose, por lo demás, lo prevenido en el Decreto número 23 de 28 de diciembre de 1863, con la advertencia de que la cuenta se reducirá a indicar los objetos de la inversión.
