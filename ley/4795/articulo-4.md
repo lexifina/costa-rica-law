@@ -1,4 +1,1 @@
-Artículo 4º.- La facultad de pedir, ofrecer, conceder o negar la
-extradición, corresponde al Poder Judicial, pero las decisiones que éste
-tome se pondrán en conocimiento del Estado extranjero por medio del Poder
-Ejecutivo.
+Artículo 4º.- Si dos o más Estados reclamaren a un mismo individuo por razones de distintas infracciones, se dará preferencia al hecho más grave conforme a la ley costarricense; caso de igual gravedad se atenderá a la prioridad de la demanda, pero siempre tendrán preferencia los Estados con los cuales existan convenios de extradición. Si las distintas reclamaciones se hicieren por un mismo hecho, se preferirá la del país donde se cometió éste y en todo caso la del país del que fuera súbdito o ciudadano el reo, sin perjuicio de la regla precedente relativa a convenios.
