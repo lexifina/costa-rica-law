@@ -1,0 +1,1 @@
+Artículo 19.- Los artículos que en razón de leyes o de contratos, ingresaren al país con exención de derechos, si por cualquier motivo fueren traspasados a otra persona o entidad, que no goza de la xención, deberán pagar todos los derechos que les corresponde, calculándose los derechos, con base en los existentes al momento de hacerse el traspaso.

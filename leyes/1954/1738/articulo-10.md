@@ -1,0 +1,1 @@
+Artículo 10.- Las importaciones que se hagan con el beneficio de exención de impuestos aduaneros, deberán pagar los derechos de muellaje de importación que se fijan en tres céntimos de colón por kilo de peso bruto. Los impuestos de muellaje y consular no se cobrarán en los casos en que el contrato o la ley respectiva, expresamente establezcan que debe prescindirse de su cobro.

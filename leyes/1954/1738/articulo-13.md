@@ -1,0 +1,1 @@
+Artículo 13.- El aceite diesel, la gasolina y el kerosene, al ser reexportados pagarán un impuesto de dos céntimos de colón por galón, procediéndose a la devolución de los derechos de importación que se hubieren pagado.

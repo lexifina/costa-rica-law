@@ -1,0 +1,7 @@
+Artículo 30.—La clasificación de accesorios y repuestos se regirá como sigue:
+1) Se entenderá por accesorio, para los efectos de clasificación, la parte de un artículo, máquina, etc., que no constituya un organismo indispensable al funcionamiento de éstos; y por repuesto, la parte u organismo indispensable al funcionamiento de la máquina, aparato, etc.
+2) Los accesorios y repuestos que están mencionados específicamente en la Nomenclatura bajo una partida dada, se clasificarán en esa partida, cualquiera sea su destino.
+3) Los accesorios y repuestos que no pueden clasificarse según la regla anterior, se clasificarán de la siguiente manera:
+a) Los accesorios y repuestos que corresponden a una maquinaria, artefacto o artículos dado se clasificarán bajo la partida correspondiente a la maquinaria, artefacto o artículo a la cual están destinados.
+b) Los accesorios o repuestos que no son para una maquinaria o artefacto determinado pero que pueden servir únicamente para maquinarias o artefactos comprendidos en un grupo específico de la Nomenclatura, se clasificarán dentro de la última partida de dicho grupo.
+c) Los accesorios o repuestos no clasificables, según alguna de las reglas anteriores, por no estar mencionados específicamente ni por ser asignables a una maquinaria o artefacto determinado o a un grupo dado de éstos, se clasificarán según su materia, bajo la partida correspondiente a las manufacturas n. e. p., de dicha materia.

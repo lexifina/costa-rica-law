@@ -1,0 +1,1 @@
+Artículo 20.— Salvo el caso de autorización expresa del Administrador de la Aduana respectiva, queda prohibida la entrada a los almacenes, de quienes no fueren empleados o funcionarios de la Aduana, de las Agencias Aduanales y de los que en razón de sus funciones públicas deben entrar en los almacenes.

@@ -1,0 +1,1 @@
+Transitorio IV.- El señalamiento a que se contrae el artículo anterior, lo hará el Poder Ejecutivo por decreto, previa consulta e informe favorable de la Comisión Arancelaria y por medio del Ministerio de Economía y Hacienda. Mientras la indicada determinación no se haga, regirán para cada mercadería los aforos asignados por la presente ley.

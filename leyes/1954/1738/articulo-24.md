@@ -1,0 +1,1 @@
+Artículo 24.— Si transcurridos noventa días contados desde el ingreso del muestrario no se hubiere gestionado su reembarque, se estimará que se trata de una importación corriente de mercadería y el depósito hecho se considerará como el pago de los derechos.

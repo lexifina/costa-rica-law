@@ -1,0 +1,1 @@
+Artículo 21.— Deberán los funcionarios de Aduana abrir y revisar cuidadosamente todos los bultos, en los despachos de aquellas mercaderías que por su propia naturaleza, sean susceptibles de realizar un contrabando con ellas.

@@ -1,0 +1,4 @@
+Artículo 39.— Con el producto del impuesto ad valórem señalado en este Arancel, el Estado dará una subvención fija a todas las Municipalidades y Concejos de Distrito de la República, mediante la inclusión de las partidas correspondientes en el Presupuesto Nacional, las cuales se calcularán conforme a las siguientes reglas:
+a) Para la Municipalidad de San José, se fijará una suma equivalente al 13.3% del producto de los aforos ad valórem, obtenidos durante los últimos doce meses anteriores al 30 de junio del año en que se prepare el Presupuesto que habrá de contemplar la subvención correspondiente.
+b) Para las Municipalidades y Concejos de Distrito restantes, se incluirá una suma igual al 26.6% del mismo producto a que se refiere el aparte anterior, la cual se distribuirá en proporción a su población oficial, antes del 30 de junio inmediato anterior.
+Para los efectos de esta distribución, los Concejos de Distrito se considerarán como Municipalidades.
