@@ -16,3 +16,4 @@ Reglamento de Contrataciones de RECOPE S.A.
 | 1 | 1996-05-13 | la propia norma |
 | 2 | 1996-07-31 | Reglamento 3089 (1996-07-31) |
 | 3 | 1997-01-15 | Reglamento 3132 (1997-01-15) |
+| 4 | 1997-04-23 | Reglamento 3158 (1997-04-23) |
