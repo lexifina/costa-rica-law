@@ -1,20 +1,4 @@
-Artículo 2º.- Adiciónanse los siguientes artículos a la Ley de
-Pensiones y Jubilaciones del Magisterio Nacional, número 2248 del 5 de
-setiembre de 1958 y sus reformas:
-"Artículo 30.- Habrá un director ejecutivo, designado por la
-Junta mediante concurso de antecedentes. Este funcionario tendrá un
-período de nombramiento de cuatro años y podrá ser reelegido.
-Artículo 31.- El pago de las dietas de los miembros de la Junta,
-así como el pago de los salarios del personal necesario para su
-funcionamiento y los gastos requeridos correspondientes, se harán con
-cargo al fondo que el efecto establece el artículo 20 de esta ley, del
-cual, y a este efecto, sólo deberá destinarse el equivalente al uno por
-mil (1/1000).
-Artículo 32.- Los servidores que tengan derecho a los beneficios
-de esta ley y que hayan servido como funcionarios regulares del
-Ministerio de Educación Pública, de las instituciones de educación
-superior y de escuelas y colegios particulares, que por la naturaleza de
-su funciones no disfrutaron de la previsión establecida en el párrafo
-primero del artículo 176 del Estatuto del Servicio Civil, tendrán derecho
-a que se les sumen, para efectos de pensión , los meses laborados que
-excedan de los nueve meses de cada curso lectivo."
+Artículo 2º.- Adiciónanse los siguientes artículos a la Ley de Pensiones y Jubilaciones del Magisterio Nacional, número 2248 del 5 de setiembre de 1958 y sus reformas:
+"Artículo 30.- Habrá un director ejecutivo, designado por la Junta mediante concurso de antecedentes. Este funcionario tendrá un período de nombramiento de cuatro años y podrá ser reelegido.
+Artículo 31.- El pago de las dietas de los miembros de la Junta, así como el pago de los salarios del personal necesario para su funcionamiento y los gastos requeridos correspondientes, se harán con cargo al fondo que el efecto establece el artículo 20 de esta ley, del cual, y a este efecto, sólo deberá destinarse el equivalente al uno por mil (1/1000).
+Artículo 32.- Los servidores que tengan derecho a los beneficios de esta ley y que hayan servido como funcionarios regulares del Ministerio de Educación Pública, de las instituciones de educación superior y de escuelas y colegios particulares, que por la naturaleza de su funciones no disfrutaron de la previsión establecida en el párrafo primero del artículo 176 del Estatuto del Servicio Civil, tendrán derecho a que se les sumen, para efectos de pensión , los meses laborados que excedan de los nueve meses de cada curso lectivo."

@@ -1,0 +1,1 @@
+Transitorio V.- Las personas que al entrar en vigencia esta Ley, sean miembros de la junta directiva de una institución autónoma, podrán continuar en esas funciones, hasta el vencimiento del período y, a la vez, recibir pensión o jubilación de acuerdo con esta Ley, y devengar la correspondiente dieta en la institución autónoma.
