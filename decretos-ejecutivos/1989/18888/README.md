@@ -13,3 +13,4 @@ Reglamento Oficina Nacional Revisora de Proyectos de Construcción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-03-31 | la propia norma |
+| 2 | 1989-03-31 | SINALEVI (sin norma nombrada) |
