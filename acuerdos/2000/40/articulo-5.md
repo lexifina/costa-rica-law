@@ -1,0 +1,2 @@
+Artículo 5°—Instrucciones sobre el informe sobre la necesidad de ajustes a los estados financieros remitidos en fechas intermedias. El auditor deberá remitir una cédula resumen en la que indique los ajustes detectados durante el proceso de revisión, haciendo mención del efecto sobre los estados financieros y el mes en que se originó el efecto.
+En el Anexo No 3 se presenta el modelo de reporte de los ajustes significativos de auditoría (cédula de resumen de ajustes).
