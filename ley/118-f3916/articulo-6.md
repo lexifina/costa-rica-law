@@ -1,1 +1,0 @@
-Artículo 6°.-Tampoco se tramitará la solicitud de gracia que se haga á favor de un reo ausente ó rebelde. El escrito debe manifestar en que‚ establecimiento penal se halla el reo, ó si no estuviere reducido á prisión, en que‚ lugar se encuentra y á la orden de que‚ autoridad.
