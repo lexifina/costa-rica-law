@@ -1,0 +1,3 @@
+Artículo 2°-La Comisión Coordinadora estará integrada por los siguientes miembros:
+El Ministro de Recursos Naturales Energía y Minas o su representante, el Director de cada una de las siguientes instituciones: Servicio de Parques Nacionales, Dirección General Forestal, Subdirección de Vida Silvestre, Comisión Nacional de Asuntos Indígenas, Fundación de Parques Nacionales y Organización para Estudios Tropicales y el Coordinador General.
+En caso de que el titular no pueda asistir a las reuniones, deberá nombrar un representante quien participará dentro del seno de la Comisión con los mismos derechos y obligaciones.
