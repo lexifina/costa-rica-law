@@ -1,4 +1,4 @@
-Artículo 34. Para el cumplimiento de su cometida, el Director General Financiero, tendrá bajo su responsabilidad a los siguientes departamentos; Contabilidad y Presupuesto, Planillas, Juntas de Educación y Administrativas, Proveeduría, Oficina de Cooperación Internacional para la Educación (OCIE) y la Oficina de Soporte Técnico en Informática.
+Artículo 34.—Para el cumplimiento de su cometido el Director General Financiero tendrá bajo su responsabilidad a los siguientes Departamentos; Contabilidad y Presupuesto, Planillas, Juntas de Educación y Administrativas, Oficina de Cooperación Internacional para la Educación (OCIE) y la Oficina de Soporte Técnico en Informática.
 1. Son funciones del Departamento de Contabilidad y Presupuestos
 a) Administrar el presupuesto, cuya fuente de financiamiento son los recursos del Gobierno Central.
 b) Elevar el control contable del Presupuesto Nacional asignado al Ministerio de Educación Pública.
@@ -49,4 +49,4 @@ c) Verificar los criterios de los registros contables, que permitan verificar la
 ch) Coordinar con el Departamento de Informática de Gestión de la División de Informática del Ministerio de Educación, para verificar criterios en cuanto al tipo de tecnología, desarrollo de programas y otros que deba utilizar los departamentos de la Dirección General Financiaera.
 d) Asesorar a la Dirección General Financiera sobre las necesidades de equipo y "software" para los departamentos a su cargo.
 e) Otras funciones propias de su competencia.
-(Así reformado tácitamente por el artículo 1 del Decreto Ejecutivo N° 23489 de 11 de julio de 1994)
+(Así reformado tácitamente por el artículo 1 del Decreto Ejecutivo N° 23489 de 11 de julio de 1994 y posteriormente reformado tácitamente su párrafo primero por el artículo 1 del decreto ejecutivo N° 28875 de 1 de agosto del 2000)
