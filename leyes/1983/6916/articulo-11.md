@@ -1,0 +1,1 @@
+Artículo 11.- El Instituto Nacional de Seguros designará a uno de sus organismos técnicos para que actúe como Secretaría Ejecutiva del Fondo, y le proveerá los recursos humanos y materiales para que cumpla con esa función.

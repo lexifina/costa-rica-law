@@ -1,0 +1,1 @@
+Artículo 3º.- El Poder Ejecutivo, habiendo oído previamente a los organismos o cámaras representantes de los productores, y de común acuerdo con ellos, dispondrá mediante decreto cuáles actividades agrícolas estarán obligadas a contribuir para el Fondo Nacional de Contingencias Agrícolas. Solamente recibirán los beneficios del Fondo las actividades agrícolas contribuyentes.
