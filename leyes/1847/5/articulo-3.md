@@ -1,0 +1,1 @@
+Art. 3. A las once del mismo dia, el funcionarioeneargado del Poder Ejeentivo, el Presidente de la Corte Suprema de Justicia, el del Senado y Vice-Jefe del Estado, prestaran el própio juramento ánte In Asamblea, à cuyo solemne y augusto acto asistirán todas las autoridades y funcionarios eclesiàsticos, civiles y militares.

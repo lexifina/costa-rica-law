@@ -1,0 +1,1 @@
+Art. 2. A las diez del dia inmediato, el Presidente de la Asamblea recibirá juramento à todos, los Representantes, de guardar y cumplir, y hacer guardar la Constitución; y él lo prestarà en manos del Vice-Presidente conforme al ceremonial acostumbrado.
