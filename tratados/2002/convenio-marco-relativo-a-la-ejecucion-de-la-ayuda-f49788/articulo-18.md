@@ -1,0 +1,1 @@
+Artículo 18.—Origen de los suministros. Los suministros financiados por la Comunidad y necesarios para la ejecución de los contratos de obras, suministros y servicios, deberán ser, excepto exención autorizada por la Comisión, originarios de los Estados admitidos a participar en virtud del artículo 10.

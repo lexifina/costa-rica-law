@@ -1,0 +1,1 @@
+Artículo 20.—Régimen de cambios. El Beneficiario se compromete a aplicar la normativa nacional en materia de cambio sin discriminación, por causa de nacionalidad, entre las personas naturales y jurídicas admitidas a participar en virtud del artículo 10.

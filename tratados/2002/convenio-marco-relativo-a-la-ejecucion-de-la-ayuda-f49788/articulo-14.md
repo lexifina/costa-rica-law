@@ -1,0 +1,4 @@
+Artículo 14.—Contratos de servicios:
+1. Los contratos de servicios serán por regla general elaborados, negociados y celebrados por la Comisión.
+2. La Comisión elaborará -después de una preselección- una lista limitada de candidatos de acuerdo con los criterios que garanticen las calificaciones, la experiencia profesional y la independencia de estos candidatos, teniendo en cuenta al mismo tiempo su disponibilidad para la actividad en cuestión.
+3. Cuando esté previsto explícitamente en el presente Convenio, las tareas definidas en el apartado 1 del presente contrato, serán delegados por la Comisión en favor del Beneficiario. Tal delegación se ejercerá bajo el control de un representante de la Comisión. En este caso, se aplicará el pliego de condiciones generales de los contratos públicos de servicios financiados por la Comunidad Europea.

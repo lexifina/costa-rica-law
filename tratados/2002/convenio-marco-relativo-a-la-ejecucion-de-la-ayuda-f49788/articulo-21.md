@@ -1,0 +1,1 @@
+Artículo 21.—Propiedad intelectual. Si el presente Convenio prevé la financiación de estudios, cuya propiedad intelectual se reconoce a la autoridad contratante, la Comisión se reserva la facultad de utilizar las informaciones contenidas en tales estudios, publicarlos o comunicarlos a terceros, debiendo indicarse la autoría del estudio.

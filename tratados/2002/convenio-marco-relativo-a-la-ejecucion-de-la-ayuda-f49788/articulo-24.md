@@ -1,0 +1,9 @@
+Artículo 24.—Examen de las cuentas:
+1. La Comisión tendrá la facultad de enviar sus propios agentes o mandatarios debidamente habilitados para todas las misiones técnicas, contables y financieras que juzgue necesarias para valorar la ejecución del proyecto.
+2. El Tribunal de Cuentas de las Comunidad Europea, de acuerdo con las tareas que le han sido encomendadas por el Tratado Constitutivo de la Comunidad Europea, tendrá la facultad de realizar una auditoría completa, si fuera necesario in situ, de las cuentas y documentos contables y de todo otro documento relativo a la financiación del proyecto.
+3. Se informará al Beneficiario del envío in situ de los agentes designados por la Comisión o el Tribunal de Cuentas.
+4. A tal efecto, el Beneficiario:
+se compromete a suministrar todos los datos, informaciones y documentos que le sean solicitados y tomar todas las medidas para facilitar el trabajo de las personas encargadas de estas misiones de control;
+- conservará los expedientes y las cuentas necesarias para la identificación de las obras, suministros o servicios financiados en el marco del presente Convenio, así como los comprobantes relativos a los gastos locales, de acuerdo con los mejores procedimientos contables en uso;
+- garantiza que el Tribunal de Cuentas, de conformidad con las tareas que le han sido encomendadas por los Tratados Constitutivos de las Instituciones Europeas, pueda llevar a cabo su intervención "in situ" sobre las cuentas del proyecto;
+- se encargará de que los representantes de la Comisión puedan examinar todos los documentos o partes contables relativos a las acciones financiadas en el marco del presente Convenio y asistirá al Tribunal de Cuentas de las Comunidades Europeas en las operaciones de control relativas a la utilización de la financiación de la Comunidad.

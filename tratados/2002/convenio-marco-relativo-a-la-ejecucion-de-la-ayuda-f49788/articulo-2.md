@@ -1,0 +1,1 @@
+Artículo 2º—Financiación del beneficiario. Cuando la realización del proyecto necesite una contribución financiera del Beneficiario, tal como se estipula en el Convenio, la puesta a disposición de los fondos de financiación de la Comunidad está condicionada al cumplimiento de las obligaciones que correspondan al Beneficiario.
