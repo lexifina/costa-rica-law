@@ -1,0 +1,1 @@
+Artículo 76.—Para que un estudiante pueda obtener el Certificado de Competencia Profesional (C.C.P.) correspondiente al subsector productivo donde ha cursado sus estudios, éste deberá aprobar todos los módulos comprendidos en el Plan de Formación Profesional

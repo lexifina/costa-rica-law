@@ -1,0 +1,1 @@
+Artículo 47.—El valor porcentual de las pruebas sumativas (teóricas y prácticas) de cada módulo se establecerá tomando en cuenta el tiempo empleado en el desarrollo de los aspectos teóricos y prácticos de los objetivos que conforman los módulos.
