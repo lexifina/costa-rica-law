@@ -1,8 +1,8 @@
 articulo-1.md
 articulo-2.md
 articulo-3.md
-articulo-4.md
 articulo-5.md
+articulo-4.md
 articulo-6.md
 articulo-7.md
 articulo-8.md
@@ -197,6 +197,7 @@ articulo-193.md
 articulo-194.md
 articulo-195.md
 articulo-196.md
+articulo-196-bis.md
 articulo-197.md
 articulo-198.md
 articulo-199.md
@@ -218,6 +219,7 @@ articulo-214.md
 articulo-215.md
 articulo-216.md
 articulo-217.md
+articulo-217-bis.md
 articulo-218.md
 articulo-219.md
 articulo-220.md
@@ -230,6 +232,7 @@ articulo-226.md
 articulo-227.md
 articulo-228.md
 articulo-229.md
+articulo-229-bis.md
 articulo-230.md
 articulo-231.md
 articulo-232.md
