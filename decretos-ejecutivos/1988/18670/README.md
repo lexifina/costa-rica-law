@@ -14,3 +14,4 @@ Reglamento a la Ley de Asociaciones
 | --- | --- | --- |
 | 1 | 1988-12-20 | la propia norma |
 | 2 | 1988-12-20 | Decreto Ejecutivo 29496 (2001-04-17) |
+| 3 | 2001-04-17 | SINALEVI (sin norma nombrada) |
