@@ -1,0 +1,1 @@
+Artículo 71.—De la reprobación por conducta. Si un estudiante estuviese aplazado en conducta y, además, tuviese condición de aplazado en tres o más de las otras asignaturas será, en consecuencia, reprobado.

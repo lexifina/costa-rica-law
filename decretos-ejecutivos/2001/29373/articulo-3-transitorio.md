@@ -1,0 +1,1 @@
+Transitorio 3º—En el año 2001 las pruebas nacionales correspondientes a Educación Cívica versarán únicamente sobre los contenidos correspondientes a VI año, IX año y XI año, según corresponda. En el caso de los colegios técnicos los contenidos de Educación Cívica comprenderán, en este año, únicamente la materia correspondiente a XII año.

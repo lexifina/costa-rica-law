@@ -1,0 +1,1 @@
+Transitorio 4º—Durante el año 2001, los estudiantes de colegios nocturnos podrá matricularse tanto en asignaturas que hubiere reprobado en el curso anterior como en aquellas del nivel inmediato siguiente, excepto lo expresamente dispuesto en el último párrafo del artículo 55.
