@@ -1,0 +1,1 @@
+Art 11° Salvo los casos de prórroga y arreglo a satisfacción del Administrador con la aprobación de la Junta Directora, pasados ocho días del plazo, y convenido de pago el deudor por el Administrador dentro de ese término; se pedirá al Juez de Hacienda, la venta en hasta pública de la finca hipotecada.

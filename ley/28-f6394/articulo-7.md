@@ -1,0 +1,6 @@
+Art 7° Para solicitar dinero bajo hipoteca, se observarán los trámites siguientes:
+1° La solicitud se hará por escrito ante el Administrador con la exhibición del título de la propiedad ya inscrita y con la razón del Registro de Hipoteca, de hallarse la finca libre que todo gravamen
+2° El Administrador cada ocho días dará cuenta a la Dirección con el documento o documentos presentados y a este Cuerpo, que el efecto se reunirá, toca resolver si se acepta o no la finca o fincas ofrecidas.
+3° Aceptada por la Dirección del Banco la finca ofrecida en garantía se pasará oficio a los peritos que se les designaren;
+4° Servirán de base a los peritos en el avalúo en lo general, las condiciones favorables o adversos de la propiedad, y en particular los productos inmediatos y probables de la finca en los dos años subsiguientes al justiprecio:
+5° Recibido y tomado en consideración el dictamen de los peritos, el Presidente de la Junta Directiva, pondrá al pie (Es bueno por tanta suma que podrá llegar hasta la mitad de justiprecio) y junto con los demás documentos que formarán el expediente de la materia, será remitido al Administrador para que le sirva de base en las operaciones, custodiándolo en la oficina, hasta que el título deba ver devuelto en virtud de la cancelación de la hipoteca.
