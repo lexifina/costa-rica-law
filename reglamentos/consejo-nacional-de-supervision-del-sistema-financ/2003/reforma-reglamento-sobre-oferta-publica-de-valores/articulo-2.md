@@ -1,0 +1,1 @@
+2) Derogar el Capítulo I. denominado "Desinscripción obligatoria" del Título V. del Reglamento sobre Oferta Pública de Valores y en consecuencia derogar los artículos 93 y 94 del Reglamento y corregir de conformidad la numeración de los Capítulos y artículos siguientes.
