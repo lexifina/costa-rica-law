@@ -1,1 +1,0 @@
-8) Las exposiciones, en todo caso, no podrán durar más de diez minutos, transcurridos éstos, la Presidencia, a solicitud expresa del orador, consultará al Concejo el otorgamiento de una prórroga, la cual no podrá exceder los cinco minutos.
