@@ -1,0 +1,1 @@
+Artículo 2°—Los propietarios de terrenos incluidos en estas áreas no serán afectados en sus labores cotidianas, excepto en cuanto a la tala de árboles y aprovechamiento de los productos forestales, actividades que deberán ser autorizadas de previo por la Dirección General Forestal.
