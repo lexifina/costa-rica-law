@@ -1,0 +1,1 @@
+Artículo 2°—La protección del área será responsabilidad del Departamento de Vida Si’vestre que coordinará a través de la Administración del Refugio, las labores de los guardas ofrecidos por la Asociación Cívica de Nosara.
