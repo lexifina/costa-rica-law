@@ -1,0 +1,1 @@
+Artículo 4°—En la Municipalidad de La Unión existirá una sola Unidad de Auditoria Interna. la cual dependerá orgánicamente del Concejo Municipal. La Unidad de Auditoria Interna desempeñara sus labores con independencia funcional y de criterio, respecto del jerarca y de los demás órganos de administración activa.

@@ -1,0 +1,1 @@
+Articulo 8°— La Auditoria Interna contará con la organización y el personal asistente, el que debe poseer los requisitos profesionales idóneos para el cabal cumplimiento de sus funciones, así como los conocimientos suficientes, sobre las disposiciones legales contenidas en el Régimen Municipal y la Administración Pública.

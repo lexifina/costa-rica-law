@@ -1,0 +1,1 @@
+Articulo 37. Para toda modificación al presente Reglamento, podrá solicitarse criterio a la Unidad de Auditoria Interna, la cual a su vez deberá presentarse a las sesiones que se convoque para su análisis y posteriormente a su aprobación, deberá ser publicado en el Diario Oficial.

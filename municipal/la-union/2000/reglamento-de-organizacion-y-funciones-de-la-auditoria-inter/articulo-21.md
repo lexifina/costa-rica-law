@@ -1,0 +1,1 @@
+Articulo 21.—En cuanto a los requisitos, partes, revisión y remisión de los informes, se aplicara principalmente, lo dispuesto sobre el particular en el "Manual para el ejercicio de la Auditoria Interna en las entidades y órganos sujetos a la fiscalización de la Contraloría General de la República ".

@@ -1,0 +1,1 @@
+Articulo 25. —El Auditor debe confeccionar un acta de la conferencia final, en la cual resumirá los asuntos mas relevantes en ella, fijará los compromisos asumidos. El acta será fumada por lodos los asistentes a dicha conferencia.

@@ -1,0 +1,3 @@
+CAPITULO VI
+Otras disposiciones
+Articulo 34.— La Unidad de Auditoria Interna dispondrá de un programa de seguimiento de las recomendaciones aceptadas por la administración activa, que hayan sido formuladas en sus memorandos u oficios e informes de Auditoria o estudios autorizados, con la finalidad de verificar si esas recomendaciones aceptadas han sido puestas en práctica, para lo cual obtendrá la evidencia necesaria y suficiente para comprobar si se están llevando a la practica o las causas de incumplimiento. En dicho programa también deberá dársele seguimiento a las disposiciones y recomendaciones emitidas por la Contraloría y los Auditores Externos.

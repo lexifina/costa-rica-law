@@ -1,0 +1,1 @@
+Artículo 10.—El Auditor Interno actuará como Jefe del personal a su cargo y en esa condición ejercerá todas las funciones que le son propias en la Administración de Personal, tales como, proponer nombramientos, remociones, sanciones, promociones y concesión de licencias, lodo de acuerdo con el marco jurídico que en materia rige para la Municipalidad de La Unión.

@@ -1,0 +1,1 @@
+Articulo 6°—Cuando se estime necesario la Unidad de Auditoria Interna podrá solicitar ante el Concejo Municipal un subauditor que deberá Henar los mismos requisitos del Auditor Interno según lo estipulado por el Código Municipal.

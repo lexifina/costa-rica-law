@@ -1,0 +1,1 @@
+Articulo 29.—En caso de discrepancia, el Concejo Municipal debe presentar objeciones concretas e invocar las razones en las que se apoya para fundamentar su decisión y aportar soluciones para corregir las diferencias, en aquellos casos en que discrepe de las recomendaciones contenidas en el informe. Esto siempre dentro del plazo de 30 días.

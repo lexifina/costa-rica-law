@@ -1,0 +1,1 @@
+Artículo 30.—En el caso que venza el plazo de 30 días, y el Concejo Municipal no se haya pronunciado. El Auditor debe enviar una nota al Concejo Municipal, comunicándole que se reputan como aceptadas las recomendaciones, solicitándole que ordene su puesta en práctica, e informándole la fecha en que verificara el acuerdo en que ordena lo pertinente.

@@ -1,0 +1,7 @@
+Articulo 12.—Para el cumplimiento de su objetivo, la Unidad de Auditoria Interna tendrá los siguientes deberes:
+a) Practicar Auditorias o estudios especiales de Auditoria en cualquier unidad administrativa u operativas de la Municipalidad u órgano a su jurisdicción institucional en el momento que considere oportuno, con base en su Plan de Auditoria o de acuerdo con las prioridades del caso cuando medie petición del Concejo Municipal o la Contraloría General de la República.
+b) Comunicar por escrito los resultados de cada Auditoria o estudio especial de Auditoria que se lleve a cabo, por medio de memorandos e informes con comentarios, conclusiones y recomendaciones, como medio de brindar la Asesoría pertinente para mejorar la eficiencia y lo eficacia en el sistema de control interno y en la gestión financiera y administrativa de la Municipalidad.
+c) Ejecutar sus funciones con libertad c independencia de criterio respecto a las demás unidades administrativas u operativas.
+d) Preparar un Plan Anual de Auditoria que contempla las Auditorias o estudios especiales por ejecutarse durante el año, el cual deberá remitirse a la Contraloría General de la República antes del 15 de noviembre de cada año.
+e) Preparar y remitir al Concejo Municipal un Informe anual de labores, a fin de que siempre se tenga conocimiento de la actuación de la unidad de auditoria interna, pues se encuentra obligada a rendir cuentas de la labor desplegada en ese periodo.
+f) Otros que le sean asignados atinentes al objeto de sus labores.

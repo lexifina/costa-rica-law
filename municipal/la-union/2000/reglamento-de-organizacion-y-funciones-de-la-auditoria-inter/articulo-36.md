@@ -1,0 +1,1 @@
+Articulo 36. —Corresponde al Auditor Interno la elaboración de un plan anual de capacitación para los funcionarios de la Auditoria Interna , que será sometido a la aprobación del Alcalde Municipal y su trámite y ejecución será competencia de la Alcaldía Municipal.

@@ -1,0 +1,7 @@
+Articulo 14.—Para el acertado cumplimiento de su objeto, deberes y funciones la unidad de Auditoria interna tendrá al menos, las siguientes atribuciones:
+a) Libre acceso, en cualquier momento, a todos los registros, informes, libros, archivos, valores, documentos y unidades administrativas y operativas de la Municipalidad , así como a otras fuentes de información relacionados con su actividad.
+b) Solicitar para su examen, en la forma, condiciones y plazo que estime conveniente, libros, registros, informes, estados financieros y documentos de otro tipo. incluso las actas del Concejo Municipal de esta Corporación y otros documentos para el cabal cumplimiento de sus funciones.
+c) Requerir de cualquier funcionario o empleado del Gobierno local, la cooperación, la asesoría y las facilidades de toda índole, para el satisfactorio desempeño de su labor,
+d) Utilizar, según las circunstancias y su criterio profesional, el tipo, las técnicas y los procedimientos de Auditoria que satisfagan en mejor forma las necesidades de los exámenes y verificaciones que lleve a cabo.
+e) Actuar sin interferencia de las unidas administrativas y operativas de la Municipalidad , en el cumplimiento de sus deberes.
+f) Cualesquiera otras que sean concordantes con el objeto y las funciones que desempeña, de acuerdo con el ordenamiento jurídico, las normas y manuales de control y fiscalización, emitidos por la Contraloría General de la República.
