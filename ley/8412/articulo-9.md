@@ -1,0 +1,1 @@
+Artículo 9º—Miembros honorarios. Serán miembros honorarios del Colegio las personas a quienes la Asamblea General confiera ese título en virtud de sus servicios al país o al Colegio, por votación no menor de las dos terceras partes de los miembros presentes y previa recomendación favorable de la Junta Directiva.

@@ -1,0 +1,2 @@
+Artículo 22.—Ejercicio ilegal de la profesión. Quienes ejerzan la Ingeniería Química o las profesiones afines sin ser miembros activos o eméritos de este Colegio, o sin haber sido autorizados por él para hacerlo, incurrirán en el delito previsto y sancionado por el artículo 315 del Código Penal.
+Los cargos en establecimientos públicos o privados que deban ser desempeñados por un ingeniero químico o profesional afín, solo podrán ser ocupados por un miembro activo del Colegio de Ingenieros Químicos y Profesionales Afines.

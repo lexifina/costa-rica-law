@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Fondo de mutualidad y subsidio del Colegio de Químicos
+Artículo 101.—Fondo de mutualidad y subsidio. Todos los miembros del Colegio de Químicos deberán aportar una cuota para el fondo de mutualidad y subsidio, el cual será administrado por una Junta Administrativa, cuyas características y el fondo en sí se regirán conforme al Reglamento creado para tal fin.
+Se tendrán por inscritos en este fondo todos los profesionales que estuvieron inscritos en el fondo de mutualidad y subsidio del Colegio Federado de Químicos y de Ingenieros Químicos de Costa Rica. No podrán gozar de las ventajas del fondo de mutualidad y subsidio, los miembros que tengan más de seis meses de atraso en el pago de sus cuotas, salvo que este atraso se deba a la misma incapacidad económica, debidamente documentada, que motive el eventual disfrute de las ventajas.

@@ -1,0 +1,1 @@
+Artículo 103.—Fallos del Tribunal de Ética Profesional. Contra el fallo dictado por el Tribunal de Ética Profesional cabrá el recurso de revocatoria, así como el recurso de apelación ante la Junta Directiva, salvo cuando la denuncia sea contra esta o contra alguno de sus miembros, situación en la que el recurso deberá ser conocido y resuelto por la Asamblea General.

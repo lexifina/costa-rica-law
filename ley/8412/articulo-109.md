@@ -1,0 +1,1 @@
+Artículo 109.—Distribución de ingresos y gastos. Cualquier pago que ingrese por esta Oficina deberá distribuirse en partes iguales entre ambos Colegios y liquidarse diariamente. Asimismo, el gasto administrativo de operación de la Oficina será sufragado en partes iguales por ambos colegios.

@@ -1,0 +1,1 @@
+Artículo 59.—Jurisdicción. El Colegio de Químicos tendrá jurisdicción en todo el territorio nacional y la sede estará ubicada en la capital de la República; podrá establecer filiales en cualquier otro lugar que determine la Junta Directiva.

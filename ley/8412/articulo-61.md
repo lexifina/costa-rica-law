@@ -1,0 +1,1 @@
+Artículo 61.—Profesionales del Colegio. El Colegio de Químicos estará formado por los profesionales en Química con el grado de bachillerato, licenciatura o doctorado de las universidades del país, así como por los poseedores de títulos obtenidos en el extranjero, reconocidos como equivalentes a alguno de los grados anteriores de conformidad con las leyes de Costa Rica.

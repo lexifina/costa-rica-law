@@ -1,0 +1,1 @@
+Artículo 87.—Avalúos o peritajes ordenados por dependencias públicas. Los avalúos o peritajes sobre asuntos y materias relacionadas con las áreas encomendadas al Colegio de Químicos y que ordenen las dependencias públicas, solo podrán ser realizados por miembros activos del Colegio de Químicos.

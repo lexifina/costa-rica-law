@@ -1,0 +1,1 @@
+Artículo 94.—Firma y sello de documentos. Los peritajes, dictámenes y cualquier otro tipo de informe realizados por los miembros del Colegio de Químicos, deberán llevar su firma y el sello del Colegio de Químicos.

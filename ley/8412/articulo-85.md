@@ -1,0 +1,1 @@
+Artículo 85.—Jefaturas en establecimientos públicos o privados. Las jefaturas de departamentos de Química, laboratorios de Química, laboratorios de investigación, laboratorios de desarrollo y laboratorios de manufactura de productos químicos, en un establecimiento público o privado, solo podrán ser ocupadas por profesionales incorporados al Colegio de Químicos.

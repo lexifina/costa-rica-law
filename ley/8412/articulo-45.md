@@ -1,0 +1,1 @@
+Artículo 45.—Designación del fiscal. La Asamblea General designará a un fiscal, quien tendrá derecho a voz pero no a voto en las reuniones de la Junta Directiva. El fiscal deberá ser miembro activo o emérito del Colegio y tener como mínimo dos años de haberse incorporado; su nombramiento será por un período de tres años y podrá ser reelegido.

@@ -1,0 +1,1 @@
+Artículo 84.—Cargos en establecimientos públicos o privados. Todo cargo en establecimientos públicos o privados que requiera para su desempeño un químico, solo podrá ser ocupado por un miembro activo de este Colegio.

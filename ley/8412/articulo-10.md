@@ -1,0 +1,1 @@
+Artículo 10.—Miembros ausentes. Serán miembros ausentes del Colegio los miembros activos que se ausenten del país de manera temporal, por un mínimo de seis meses, y lo notifiquen formal y oportunamente al Colegio.

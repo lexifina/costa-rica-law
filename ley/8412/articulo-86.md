@@ -1,0 +1,1 @@
+Artículo 86.—Servicios de Química. Todos los servicios de Química, de carácter público o privado, deberán ser ejecutados, proyectados, calculados, supervisados, dirigidos y, en general, realizados o atendidos, en todas sus etapas, por miembros activos del Colegio de Químicos.

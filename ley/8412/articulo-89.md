@@ -1,0 +1,1 @@
+Artículo 89.—Ejercicio ilegal. Las personas que ejerzan la Química o emitan documentos que expresen con fe pública una verdad en las materias encomendadas al Colegio de Químicos, sin estar debidamente autorizadas por el Colegio, incurrirán en el delito previsto y sancionado por el artículo 315 del Código Penal.
