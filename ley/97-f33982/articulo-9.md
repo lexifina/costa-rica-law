@@ -1,0 +1,1 @@
+Art 9°.- Concluido el examen, se tomará la votación previo el juramento de ley, y si el candidato fuere aprobado, se señalará día para el examen de la segunda terna, que procederá en todo como la primera, menos la disertación más sino lo fuere, se señalara el examen de la segunda terna un año después.
