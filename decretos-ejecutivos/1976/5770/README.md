@@ -14,3 +14,4 @@ Concede a la firma "Laboratorios Dawe's de Centroamérica, Sociedad Anónima" be
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-04-10 | la propia norma |
+| 2 | 1977-03-07 | Decreto Ejecutivo 6843 (1977-03-07) |
