@@ -1,0 +1,1 @@
+Artículo 19.—De la implementación de los acuerdos. Una vez firmada la Carta de Compromiso cada una de las partes, de acuerdo con su normativa, procederá a programar y desarrollar las acciones que permitan obtener en los plazos indicados, los recursos necesarios para desarrollar los proyectos y acciones en los distritos y comunidades.

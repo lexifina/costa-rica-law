@@ -1,0 +1,1 @@
+Artículo 4°—La Dirección del Triángulo de Solidaridad cumplirá con su cometido, sin que en ningún momento se sustituya las decisiones de la administración activa que compete a los distintos jerarcas y sin involucrarse en la ejecución de las acciones y proyectos que se acuerden bajo su marco, ni en el manejo de los fondos correspondientes.

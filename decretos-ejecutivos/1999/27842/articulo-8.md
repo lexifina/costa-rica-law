@@ -1,0 +1,1 @@
+Artículo 8°—Identificación de Sectores y Promoción. Previo a la convocatoria de la Asamblea de Vecinos, la Dirección del Triángulo de Solidaridad identificará y motivará a los principales representantes de las organizaciones comunales, así como a los líderes y vecinos interesados en participar en este proceso.

@@ -1,0 +1,1 @@
+Artículo 14.—De la Validación. Concluido el taller de planificación cada uno de los participantes valorará los posibles compromisos que estaría asumiendo, identificando las prioridades y los mecanismos de ejecución que serán sometidos a la Mesa de Negociación.
