@@ -1,0 +1,1 @@
+Artículo 11.- Los representantes de la Cámara de Industrias, Comercio y los trabajadores, serán escogidos por el Consejo Directivo del INA de una terna presentada a su consideración por cada organización. Durarán en sus cargos dos años y podrán ser reelegidos.
