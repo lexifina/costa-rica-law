@@ -1,1 +1,0 @@
-Artículo 36.-Ninguno puede ser detenido sin un indicio comprobado de haber cometido delito, y sin mandato estricto del juez ó autoridad encargada del orden público, excepto que sea reo declarado, prófugo ó delincuente infraganti; pero en todo caso debe ser puesto a disposición de juez competente dentro del término perentorio de veinticuatro horas.

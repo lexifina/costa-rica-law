@@ -1,1 +1,0 @@
-Artículo 97.-Reconsiderado en consecuencia el proyecto por ambas Cámaras con las observaciones del Poder Ejecutivo, y si no obstante ellas fuere aprobado por dos terceras partes de votos, quedará sancionado y se mandará cumplir como ley de la República; mas si no se aprobare no podrá ser considerado sino hasta lo siguiente legislatura ordinaria.

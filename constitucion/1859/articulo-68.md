@@ -1,1 +1,0 @@
-Artículo 68.-También se reunirá extraordinariamente cuando al efecto sea convocado por el Poder Ejecutivo; pero en estas reuniones solo podrá ocuparse en los negocios que someta a su consideración el mismo Poder Ejecutivo.

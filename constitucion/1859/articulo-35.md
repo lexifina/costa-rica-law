@@ -1,1 +1,0 @@
-Artículo 35.-Nadie está obligado a declarar contra sí mismo en causa criminal, ni contra su consorte, ascendiente, descendientes, u otros parientes dentro de tercer grado de consanguinidad ó segundo de afinidad.
