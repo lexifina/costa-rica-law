@@ -1,0 +1,1 @@
+Artículo 18°.—El encargado deberá efectuar cada fin de mes un arqueo del fondo a su cuidado y un reintegro de los gastos, con el fin de que se registren en contabilidad el mismo mes. Deberá efectuarlo a más tardar el 27 de cada mes.

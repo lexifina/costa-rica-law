@@ -1,0 +1,1 @@
+Artículo 11°—La liquidación de los anticipos de caja chica deben realizarse dentro del tercer día hábil siguiente al retiro del dinero. El incumplimiento de esta disposición será considerada falta grave a la relación de servicio y será sancionada de acuerdo con las disposiciones del Reglamento Autónomo de Servicio y otras normas aplicables al efecto.

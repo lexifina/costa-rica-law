@@ -1,0 +1,1 @@
+Articulo 12°—El funcionario que tenga pendiente una liquidación de un anticipo de dinero, para la adquisición de bienes, servicios o gastos de viaje, no podrá solicitar otro anticipo hasta tanto no liquide el que tiene pendiente. Asimismo podrá exigirse el reintegro total de la suma girada como adelanto.

@@ -1,0 +1,2 @@
+Artículo 24.—Ninguna persona responsable de fondos de caja chica o empleado con funciones de cajero, podrá mantener en las cajas o donde guarde los fondos del CONICIT, documentos, efectivo, cheques que sean propiedad particular o de otras personas, como tampoco deberá suplir dinero de su propiedad para realizar o completar pagos que correspondan a la Institución.
+Aprobado por el Consejo Director en Sesión N°878, artículo 3°, celebrada el día 5 del mes de octubre de 1988.

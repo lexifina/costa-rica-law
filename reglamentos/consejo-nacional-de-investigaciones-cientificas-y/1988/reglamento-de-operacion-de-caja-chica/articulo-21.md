@@ -1,0 +1,1 @@
+Artículo 21.—Los aspectos no contemplados en este Reglamento, se regirán por la Ley de la Administración Financiera de la República, el Reglamento de la Contratación Administrativa u otras leyes conexas.

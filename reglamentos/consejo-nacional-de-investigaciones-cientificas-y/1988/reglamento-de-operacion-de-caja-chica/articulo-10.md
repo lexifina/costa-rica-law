@@ -1,0 +1,1 @@
+Articulo 10°—Las solicitudes de adelanto de dinero para efectuar compras de bienes y servicios se tramitarán con el formulario Vale Provisional de Caja Chica, en el cual se consignará la techa, monto, nombre v firma de la persona que recibe el dinero.

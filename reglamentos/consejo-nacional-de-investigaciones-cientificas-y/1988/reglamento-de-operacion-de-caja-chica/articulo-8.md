@@ -1,0 +1,1 @@
+Artículo 8°—Los reembolsos solicitados a la Dirección de Administración y Finanzas, deberán ser presentados en un estado de cuenta de fondos de caja chica con un detalle de los documentos que lo integran.

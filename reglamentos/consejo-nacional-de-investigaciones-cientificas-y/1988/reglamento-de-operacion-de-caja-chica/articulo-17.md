@@ -1,0 +1,1 @@
+Artículo 17°.—El encargado de caja chica que incumpla cualquiera de las disposiciones de este Reglamento, se hará acreedor a la suspensión temporal o total de la caja chica asignada y a las sanciones estipuladas al efecto en la Ley de la Administración Financiera de la República y al Reglamento Autónomo de Servicio,

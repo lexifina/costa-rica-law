@@ -1,0 +1,1 @@
+Artículo 5°—La asignación de los fondos de la caja chica se hará al funcionario que designe la Dirección de Administración y Finanzas; quien será el responsable del uso correcto de esos fondos ante el Director Administrativo Financiero.
