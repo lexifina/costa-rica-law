@@ -1,4 +1,6 @@
+(Derogado)
 Nº 5834
+(La presente norma fue derogada por el artículo 19 de la Ley de Impuestos Municipales de Golfito, N° 7505 del 9 de mayo de 1995)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 DECRETA:
 Artículo 1º.- Autorízanse los siguientes impuestos a la
