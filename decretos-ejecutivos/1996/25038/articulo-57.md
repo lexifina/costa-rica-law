@@ -7,5 +7,5 @@ las ofertas.
 se haya contemplado la posibilidad en el cartel de efectuar
 adjudicaciones por renglones, y de este modo se satisfaga de
 mejor forma el interés general.
-57.3 El acuerdo de adjudicación serádebidamente motivado y publicado
-en el Diario Oficial.
+57.3 El acuerdo de adjudicación será debidamente motivado y
+publicado en el Diario Oficial.

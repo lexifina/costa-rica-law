@@ -1,30 +1,8 @@
-25.- Levantamiento de la incompatibilidad
-25.1 La incompatibilidad generada por la prohibición dispuesta por
-los incisos d) y e) del artículo 22 de la Ley de Contratación
-Administrativa, será levantada por la Contraloría General
-mediante resolución motivada, cuando las personas allí
-descritas demuestren que se dedican, en forma habitual, a
-desarrollar la actividad potencialmente objeto de una
-contratación administrativa, por lo menos un año antes del
-surgimiento del supuesto de la inhibición.
-25.2 Para tales efectos, los interesados deberán dirigir una
-petición fundamentada a la Contraloría General, aportando los
-elementos probatorios que demuestren tal circunstancia.
-25.3 La Contraloría General estará facultada para efectuar las
-investigaciones que considere pertinentes y a solicitarle al
-interesado que aporte la información complementaria que permita
-constatar la procedencia de la gestión.
-25.4 La Contraloría General deberá resolver la solicitud dentro del
-plazo de quince días hábiles.
-25.5 Los oferentes que se encuentren beneficiados por el
-levantamiento de la incompatibilidad, deberán presentar, en
-cada oferta, copia de la Resolución respectiva de la
-Contraloría General. Si esta resolución consta acreditada como
-antecedentes en el registro de proveedores de la Administración
-respectiva, no será necesaria su presentación en cada
-oportunidad.
-Transitorio: Los levantamientos de incompatibilidad
-efectuados por la Contraloría General con anterioridad al
-primero de mayo de mil novecientos noventa y seis, seguirán
-surtiendo efectos una vez que entre en vigencia la Ley de
-Contratación Administrativa.
+25.-
+Levantamiento de la incompatibilidad
+25.1 La incompatibilidad generada por la prohibición dispuesta por los incisos d) y e) del artículo 22 de la Ley de Contratación Administrativa, será levantada por la Contraloría General mediante resolución motivada, cuando las personas allí descritas demuestren que se dedican, en forma habitual, a desarrollar la actividad potencialmente objeto de una contratación administrativa, por lo menos un año antes del surgimiento del supuesto de la inhibición.
+25.2 Para tales efectos, los interesados deberán dirigir una petición fundamentada a la Contraloría General, aportando los elementos probatorios que demuestren tal circunstancia.
+25.3 La Contraloría General estará facultada para efectuar las investigaciones que considere pertinentes y a solicitarle al interesado que aporte la información complementaria que permita constatar la procedencia de la gestión.
+25.4 La Contraloría General deberá resolver la solicitud dentro del plazo de quince días hábiles.
+25.5 Los oferentes que se encuentren beneficiados por el levantamiento de la incompatibilidad, deberán presentar, en cada oferta, copia de la Resolución respectiva de la Contraloría General. Si esta resolución consta acreditada como antecedentes en el registro de proveedores de la Administración respectiva, no será necesaria su presentación en cada oportunidad.
+Transitorio: Los levantamientos de incompatibilidad efectuados por la Contraloría General con anterioridad al primero de mayo de mil novecientos noventa y seis, seguirán surtiendo efectos una vez que entre en vigencia la Ley de Contratación Administrativa.

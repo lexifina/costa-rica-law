@@ -1,43 +1,12 @@
-69.- Contratación de servicios
-69.1 Procedimientos de contratación de servicios.- Para la
-contratación de servicios técnicos o profesionales, a cargo de
-personas físicas o jurídicas, la Administración deberá seguir
-los procedimientos de licitación pública, licitación por
-registro o licitación restringida, de acuerdo con el monto de
-la respectiva contratación y el volumen del presupuesto
-ordinario de la Administración interesada en el contrato, de
-conformidad con los parámetros que establece la Ley de
-Contratación Administrativa.
-69.2 Naturaleza.- La contratación de servicios técnicos o
-profesionales no originará relación de empleo público entre la
-Administración y el contratista, y deberá remunerarse conforme
-las respectivas tarifas, cuando los servicios se encuentren
-regulados por aranceles obligatorios, salvo si la contratación
-se celebra en los términos del los numerales 69.5 y 69.6, en
-cuyo caso los profesionales o técnicos quedan sujetos a una
-relación de empleo público remunerada con un sueldo fijo.
-69.3 El cartel.- En los diferentes procedimientos de contratación de
-servicios técnicos y profesionales, los respectivos carteles
-indicarán las condiciones generales y las especificaciones
-requeridas y las bases para calificar y comparar las ofertas.
-69.4 Criterios de selección.- Para resolver la adjudicación, el
-precio no constituirá el único factor determinante en la
-comparación de las ofertas, sino las condiciones personales,
-profesionales o empresariales de los participantes. El acto de
-adjudicación debe ser motivado y comunicado por el mismo medio
-empleado para invitar a participar. Estará sujeto a los
-recursos que regula este Reglamento.
-69.5 Las entidades públicas están autorizadas para contratar con
-sueldo fijo, utilizando su régimen ordinario de nombramiento de
-funcionarios, a los profesionales que requieran para formalizar
-las operaciones, los avalúos, los peritajes, la atención de
-diligencias judiciales o administrativas o cualquier otro tipo
-de intervención profesional relacionada con los servicios que
-brindan permanentemente. En estos supuestos no operará el pago
-que rija por concepto de honorarios para la prestación de la
-actividad correspondiente.
-69.6 Traslado de costos. La institución respectiva no podrá
-trasladar el costo de la contratación de aquellos profesionales
-al usuario de los servicios correspondientes, pero sí deberá
-cobrar los demás costos implícitos como los de inscripción de
-documentos y pago de alguna exacción.
+69.-
+Contratación de servicios
+69.1 Procedimientos de contratación de servicios.-
+Para la contratación de servicios técnicos o profesionales, a cargo de personas físicas o jurídicas, la Administración deberá seguir los procedimientos de licitación pública, licitación por registro o licitación restringida, de acuerdo con el monto de la respectiva contratación y el volumen del presupuesto ordinario de la Administración interesada en el contrato, de conformidad con los parámetros que establece la Ley de Contratación Administrativa.
+69.2 Naturaleza.-
+La contratación de servicios técnicos o profesionales no originará relación de empleo público entre la Administración y el contratista, y deberá remunerarse conforme las respectivas tarifas, cuando los servicios se encuentren regulados por aranceles obligatorios, salvo si la contratación se celebra en los términos del los numerales 69.5 y 69.6, en cuyo caso los profesionales o técnicos quedan sujetos a una relación de empleo público remunerada con un sueldo fijo.
+69.3 El cartel.-
+En los diferentes procedimientos de contratación de servicios técnicos y profesionales, los respectivos carteles indicarán las condiciones generales y las especificaciones requeridas y las bases para calificar y comparar las ofertas.
+69.4 Criterios de selección.-
+Para resolver la adjudicación, el precio no constituirá el único factor determinante en la comparación de las ofertas, sino las condiciones personales, profesionales o empresariales de los participantes. El acto de adjudicación debe ser motivado y comunicado por el mismo medio empleado para invitar a participar. Estará sujeto a los recursos que regula este Reglamento.
+69.5 Las entidades públicas están autorizadas para contratar con sueldo fijo, utilizando su régimen ordinario de nombramiento de funcionarios, a los profesionales que requieran para formalizar las operaciones, los avalúos, los peritajes, la atención de diligencias judiciales o administrativas o cualquier otro tipo de intervención profesional relacionada con los servicios que brindan permanentemente. En estos supuestos no operará el pago que rija por concepto de honorarios para la prestación de la actividad correspondiente.
+69.6 Traslado de costos. La institución respectiva no podrá trasladar el costo de la contratación de aquellos profesionales al usuario de los servicios correspondientes, pero sí deberá cobrar los demás costos implícitos como los de inscripción de documentos y pago de alguna exacción.

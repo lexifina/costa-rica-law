@@ -1,22 +1,5 @@
-10.- Disponibilidad presupuestaria
-10.1 En la decisión inicial deberá indicarse expresamente los
-recursos presupuestarios con que se atenderán las obligaciones
-derivadas de la contratación.
-10.2 Cuando una contratación se desarrolle por más de un período
-presupuestario, la Administración se encuentra obligada a
-señalar esta circunstancia en la decisión inicial, y a tomar
-las previsiones necesarias para garantizar en su oportunidad el
-pago de las obligaciones que contraerá. Cuando se incumpliere
-esta obligación, la Administración deberá adoptar las medidas
-que corresponda en contra del funcionario responsable, de
-acuerdo con su régimen disciplinario interno.
-10.3 Excepcionalmente, podrá darse inicio a un procedimiento de
-contratación sin contar con los recursos presupuestarios
-suficientes, si se tiene la seguridad que se contar con ellos
-en el momento de ejecución. En estos casos, la Administración
-solicitará autorización a la Contraloría General, quien
-dispondrá de un plazo de diez días hábiles para pronunciarse
-sobre el particular. En las bases del concurso se advertirá
-expresamente sobre esta circunstancia, y se indicará que la
-adjudicación queda condicionada a la efectiva existencia de los
-recursos presupuestarios.
+10.-
+Disponibilidad presupuestaria
+10.1 En la decisión inicial deberá indicarse expresamente los recursos presupuestarios con que se atenderán las obligaciones derivadas de la contratación.
+10.2 Cuando una contratación se desarrolle por más de un período presupuestario, la Administración se encuentra obligada a señalar esta circunstancia en la decisión inicial, y a tomar las previsiones necesarias para garantizar en su oportunidad el pago de las obligaciones que contraerá. Cuando se incumpliere esta obligación, la Administración deberá adoptar las medidas que corresponda en contra del funcionario responsable, de acuerdo con su régimen disciplinario interno.
+10.3 Excepcionalmente, podrá darse inicio a un procedimiento de contratación sin contar con los recursos presupuestarios suficientes, si se tiene la seguridad que se contar con ellos en el momento de ejecución. En estos casos, la Administración solicitará autorización a la Contraloría General, quien dispondrá de un plazo de diez días hábiles para pronunciarse sobre el particular. En las bases del concurso se advertirá expresamente sobre esta circunstancia, y se indicará que la adjudicación queda condicionada a la efectiva existencia de los recursos presupuestarios.

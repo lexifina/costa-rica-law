@@ -3,7 +3,7 @@ Verificación del cumplimiento del régimen de prohibiciones
 24.- Medidas de verificación
 24.1 La Administración se encuentra obligada a desplegar las medidas
 de verificación necesarias para el cumplimiento y respeto del
-régimen de prohibiciones establecido en el articulo 22 de la
+régimen de prohibiciones establecido en el artículo 22 de la
 Ley de Contratación Administrativa.
 24.2 La Proveeduría Nacional levantará un inventario de la personas
 físicas y jurídicas alcanzadas por el régimen de prohibiciones,

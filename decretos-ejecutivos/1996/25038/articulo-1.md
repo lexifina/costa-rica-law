@@ -10,7 +10,7 @@ Reglamento General
 de Contratación Administrativa
 CAPITULO I
 Cobertura y régimen jurídico
-1. Cobertura
+1.- Cobertura
 1.1 Las presentes disposiciones regulan la actividad de
 contratación administrativa de los siguientes órganos y entes:
 1.1.1. Los Ministerios y órganos adscritos del Gobierno

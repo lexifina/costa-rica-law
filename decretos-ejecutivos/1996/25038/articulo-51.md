@@ -1,20 +1,5 @@
-51.- Vigencia de la oferta
-51.1 Por el solo hecho de su presentación, se entiende que la oferta
-se somete al plazo de vigencia indicado en el cartel, o en
-ausencia de este último, por el plazo previsto para dictar el
-acto de adjudicación.
-51.2 En caso de indicación expresa de una vigencia inferior a la
-establecida, si esta diferencia no es superior a un 20%, la
-Administración prevendrá que se corrija dicha situación dentro
-del término de tres días hábiles. En caso que no se cumpla la
-prevención, se ejecutará la garantía de participación y se
-descalificará la oferta.
-51.3 Si cesare la vigencia de la oferta, la Administración o la
-Contraloría General, según corresponda, tan pronto como
-adviertan tal circunstancia, prevendrán al interesado, aún
-después de dictado el acto de adjudicación, para que dentro del
-término de tres días hábiles manifieste por escrito si mantiene
-los términos de la oferta y por cuanto tiempo. Vencido el
-término de la prevención, sin que esta haya sido atendida, la
-oferta se tendrá por caduca y se ejecutará la garantía de
-participación.
+51.-
+Vigencia de la oferta
+51.1 Por el solo hecho de su presentación, se entiende que la oferta se somete al plazo de vigencia indicado en el cartel, o en ausencia de este último, por el plazo previsto para dictar el acto de adjudicación.
+51.2 En caso de indicación expresa de una vigencia inferior a la establecida, si esta diferencia no es superior a un 20%, la Administración prevendrá que se corrija dicha situación dentro del término de tres días hábiles. En caso que no se cumpla la prevención, se ejecutará la garantía de participación y se descalificará la oferta.
+51.3 Si cesare la vigencia de la oferta, la Administración o la Contraloría General, según corresponda, tan pronto como adviertan tal circunstancia, prevendrán al interesado, aún después de dictado el acto de adjudicación, para que dentro del término de tres días hábiles manifieste por escrito si mantiene los términos de la oferta y por cuanto tiempo. Vencido el término de la prevención, sin que esta haya sido atendida, la oferta se tendrá por caduca y se ejecutará la garantía de participación.

@@ -1,5 +1,5 @@
 56.- Selección y adjudicación
-56.1 Dentro de los cinco días hábiles siguientes al acto de
+(*) 56.1 Dentro de los cinco días hábiles siguientes al acto de
 apertura, la Administración procederá al análisis de los
 aspectos formales de las ofertas, y concederá un plazo de al
 menos cinco días hábiles para que se subsane cualquier defecto
@@ -12,43 +12,47 @@ de oficio o por señalamiento de alguno de los participantes o
 del propio interesado. Luego de esta etapa, la Administración
 conserva su facultad de solicitar de oficio la subsanación de
 defectos no advertidos durante los primeros cinco días hábiles.
-56.1.1 En todo caso, se entenderán como subsanables la
-omisión de los siguientes documentos:
-56.1.1.1 Certificaciones sobre la personería legal de los
-oferentes y la naturaleza y propiedad de las
-acciones.
-56.1.1.2 Certificaciones sobre cualidades, características o
-especificaciones del bien ofrecido, siempre y cuando
-tales circunstancias existieran al momento de
+(*) (INTERPRETADO por resolución interlocutoria de la Sala Constitucional Nº 565-I-98 de las 8:30 horas del 18 de setiembre de 1998, en el sentido que la facultad que se le otorga a la Administración para "solicitar de oficio la subsanación de defectos no advertidos durante los primeros cinco días hábiles" siguientes al acto de apertura de las ofertas, debe entenderse únicamente respecto de los requisitos formales no esenciales).
+56.1.1 En todo caso, se entenderán como subsanables la omisión
+de los siguientes documentos:
+56.1.1.1 Certificaciones sobre la personería legal de
+los oferentes y la naturaleza y propiedad de
+las acciones.
+56.1.1.2 Certificaciones sobre cualidades,
+características o especificaciones del bien
+ofrecido, siempre y cuando tales
+circunstancias existieran al momento de
 presentación de la oferta.
 56.1.1.3 Declaraciones juradas.
 56.1.1.4 Estados financieros,
 56.1.1.5 Documentación técnica complementaria
 56.1.1.6 Copias de la oferta
-56.1.1.7 Cualquier omisión de especies fiscales o timbres, si
-estos fueran exigidas por norma de rango legal.
-56.1.2 Igualmente podrán subsanarse, al menos, los
-siguientes defectos:
-56.1.2.1 El plazo de vigencia de la garantía de participación,
-siempre y cuando no se haya establecido por menos del
-80% del plazo señalado en el cartel.
-56.1.2.2 Cualquier error de la garantía de participación
-relacionado con la identificación del concurso, si
-del documento resulta claro que queda debidamente
+56.1.1.7 Cualquier omisión de especies fiscales o
+timbres, si estos fueran exigidas por norma de
+rango legal.
+56.1.2 Igualmente podrán subsanarse, al menos, los siguientes
+defectos:
+56.1.2.1 ANULADO por Resolución de la Sala
+Constitucional Nº 998-98 de las 11:30
+horas del 16 de febrero de 1998.
+56.1.2.2 Cualquier error de la garantía de
+participación relacionado con la
+identificación del concurso, si del documento
+resulta claro que queda debidamente
 garantizada la Administración.
-56.1.2.3 La vigencia de la oferta, siempre y cuando no se haya
-establecido por menos del 80% del plazo señalado en
-el cartel.
+56.1.2.3 ANULADO por Resolución de la Sala
+Constitucional Nº 998-98 de las 11:30
+horas del 16 de febrero de 1998.
 56.1.2.4 La inclusión de datos en unidades de medida
 diferentes a las del Sistema Internacional de
 medidas.
 56.1.2.5 La presentación de literatura técnica y
 complementaria en idioma diferente al español.
-56.1.3 Si la prevención para subsanar no es atendida en
-tiempo, la Administración procederá a descalificar al
-oferente de que se trate, siempre que la naturaleza
-del defecto lo amerite y a ejecutar, previa
-audiencia, la garantía de participación.
+56.1.3 Si la prevención para subsanar no es atendida en tiempo,
+la Administración procederá a descalificar al oferente
+de que se trate, siempre que la naturaleza del defecto
+lo amerite y a ejecutar, previa audiencia, la garantía
+de participación.
 56.2 Cumplida la anterior etapa, la Administración procederá al
 estudio y valoración de las ofertas en relación con las
 condiciones y especificaciones del cartel y con las normas
@@ -59,25 +63,24 @@ jurídico.
 56.3 Una oferta podrá ser rechazada cuando presente un precio
 inaceptable, por lo cual se entenderá:
 56.3.1. Excesivo en relación con los precios normales de
-mercado o por encima de una justa o razonable
-utilidad;
+mercado o por encima de una justa o razonable utilidad;
 56.3.2 Ruinoso o no remunerativo para el oferente, que dé
-lugar a presumir el incumplimiento por parte de este
-de las obligaciones contractuales por insuficiencia
-de la retribución establecida, previa indagación con
-el oferente con el propósito de averiguar si éste
-satisface las condiciones de participación y es o
-será capaz de cumplir los términos del contrato;
+lugar a presumir el incumplimiento por parte de este de
+las obligaciones contractuales por insuficiencia de la
+retribución establecida, previa indagación con el
+oferente con el propósito de averiguar si éste
+satisface las condiciones de participación y es o será
+capaz de cumplir los términos del contrato;
 56.3.3 Prácticas de comercio desleal u ofertas colusorias, y
 56.3.4 Que exceda la disponibilidad presupuestaria y que la
 Administración no tenga medios para la financiación
 complementaria oportuna;
 56.3.5 Estos supuestos deberán ser comprobados y acreditados
 en el expediente por la Administración, mediante
-estudio calificado. Cuando la Administración
-determine la presencia de los supuestos del numeral
-56.3.3, deberá dar aviso a la Comisión para Promover
-la Competencia.
+estudio calificado. Cuando la Administración determine
+la presencia de los supuestos del numeral 56.3.3,
+deberá dar aviso a la Comisión para Promover la
+Competencia.
 56.4 Luego de establecido cuales ofertas son elegibles legal,
 financiera y técnicamente, la Administración procederá a la
 calificación de estas, de acuerdo con los parámetros

@@ -1,45 +1,9 @@
-16.- Derecho de ejecución de garantías
-16.1 Ejecución de la garantía de participación
-16.1.1 El incumplimiento en que incurra el oferente dará
-lugar a la Administración para disponer en sede
-administrativa la ejecución de la garantía de
-participación, mediante resolución debidamente
-razonada y fundamentada, previa audiencia, por al
-menos tres días hábiles, para que exponga sus
-alegatos y pruebas de descargo.
-16.1.2 El adjudicatario que no comparece dentro del término
-señalado a la formalización del contrato en los
-términos previstos en el cartel u omite rendir la
-garantía de cumplimiento, pierde la garantía de
-participación, a favor de la respectiva
-Administración, previa audiencia por al menos tres
-días hábiles.
+16.-
+Derecho de ejecución de garantías
+16.1 Ejecución de la garantía de participación 16.1.1 El incumplimiento en que incurra el oferente dará lugar a la Administración para disponer en sede administrativa la ejecución de la garantía de participación, mediante resolución debidamente razonada y fundamentada, previa audiencia, por al menos tres días hábiles, para que exponga sus alegatos y pruebas de descargo.
+16.1.2 El adjudicatario que no comparece dentro del término señalado a la formalización del contrato en los términos previstos en el cartel u omite rendir la garantía de cumplimiento, pierde la garantía de participación, a favor de la respectiva Administración, previa audiencia por al menos tres días hábiles.
 16.2 Ejecución de la garantía de cumplimiento
-16.2.1 Cuando el contratista incumpla las obligaciones que
-asume frente a la Administración, ésta ejercerá su
-derecho de ejecutar en sede administrativa la
-respectiva garantía de cumplimiento, mediante
-resolución debidamente razonada y legalmente
-fundamentada. Previamente a la decisión final se dará
-audiencia al interesado para que presente sus
-alegatos y pruebas de descargo, dentro de los cinco
-días hábiles siguientes a la respectiva notificación.
-16.3 La ejecución de las garantías de participación y de
-cumplimiento no excluye el cobro de los daños y perjuicios
-irrogados a la Administración con el incumplimiento del
-oferente o del contratista, ni excluye la aplicación de las
-cláusulas penales expresamente previstas en el contrato, ni las
-retenciones acordadas por las partes, cuando resulte necesario
-para cubrir el monto de los respectivos daños y perjuicios
-16.4 Cuando la ejecución de la garantía de cumplimiento no afecte la
-continuación de la ejecución del contrato, el contratista
-deberá rendir una nueva garantía que respalde el cumplimiento
-de sus obligaciones contractuales durante la vigencia de éste y
-hasta su ejecución total.
-16.5 Prevenido el contratista, con al menos diez días hábiles de
-anticipación, de la necesidad de prorrogar la vigencia de la
-garantía de cumplimiento por vencer, y este no atendiera la
-prevención, la Administración estará facultada para proceder a
-la ejecución un día hábil antes de su vencimiento, si no está
-acreditado en el expediente el debido cumplimiento de la
-prestación objeto del contrato.
+16.2.1 Cuando el contratista incumpla las obligaciones que asume frente a la Administración, ésta ejercerá su derecho de ejecutar en sede administrativa la respectiva garantía de cumplimiento, mediante resolución debidamente razonada y legalmente fundamentada. Previamente a la decisión final se dará audiencia al interesado para que presente sus alegatos y pruebas de descargo, dentro de los cinco días hábiles siguientes a la respectiva notificación.
+16.3 La ejecución de las garantías de participación y de cumplimiento no excluye el cobro de los daños y perjuicios irrogados a la Administración con el incumplimiento del oferente o del contratista, ni excluye la aplicación de las cláusulas penales expresamente previstas en el contrato, ni las retenciones acordadas por las partes, cuando resulte necesario para cubrir el monto de los respectivos daños y perjuicios.
+16.4 Cuando la ejecución de la garantía de cumplimiento no afecte la continuación de la ejecución del contrato, el contratista deberá rendir una nueva garantía que respalde el cumplimiento de sus obligaciones contractuales durante la vigencia de éste y hasta su ejecución total.
+16.5 Prevenido el contratista, con al menos diez días hábiles de anticipación, de la necesidad de prorrogar la vigencia de la garantía de cumplimiento por vencer, y este no atendiera la prevención, la Administración estará facultada para proceder a la ejecución un día hábil antes de su vencimiento, si no está acreditado en el expediente el debido cumplimiento de la prestación objeto del contrato.

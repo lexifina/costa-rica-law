@@ -1,23 +1,7 @@
 CAPITULO II
-Principios generales de los procedimientos de contratación
-administrativa
-4.- Principio de eficiencia
-4.1 En virtud del principio de eficiencia, el fin primordial de los
-procedimientos de contratación administrativa es la selección
-de la oferta más conveniente a la satisfacción del interés
-general.
-4.2 Toda norma procedimental en materia de contratación
-administrativa debe interpretarse en concordancia con el
-principio de eficiencia, de modo que en todo momento se
-favorecerá la conservación de los actos de las partes y se
-procurará facilitar las condiciones para la adopción de la
-decisión final.
-4.3 En todo caso prevalecerá el contenido sobre la forma y no podrá
-deducirse de la voluntad de las partes, salvo evidente prueba
-en contrario, la intención de apartarse de las regulaciones
-normativas y las condiciones fijadas por la Administración en
-el cartel o en el pliego de condiciones.
-4.4 Todo defecto u omisión contenido en las ofertas, podrá ser
-subsanado, en la medida que no implique modificación del
-precio, objeto y condiciones ofrecidos y no se vulneren los
-principios generales desarrollados en este capítulo.
+Principios generales de los procedimientos de contratación administrativa 4.-
+Principio de eficiencia 4.1 En virtud del principio de eficiencia, el fin primordial de los procedimientos de contratación administrativa es la selección de la oferta más conveniente a la satisfacción del interés general.
+4.2 Toda norma procedimental en materia de contratación administrativa debe interpretarse en concordancia con el principio de eficiencia, de modo que en todo momento se favorecerá la conservación de los actos de las partes y se procurará facilitar las condiciones para la adopción de la decisión final.
+4.3 En todo caso prevalecerá el contenido sobre la forma y no podrá deducirse de la voluntad de las partes, salvo evidente prueba en contrario, la intención de apartarse de las regulaciones normativas y las condiciones fijadas por la Administración en el cartel o en el pliego de condiciones.
+(*) 4.4 Todo defecto u omisión contenido en las ofertas, podrá ser subsanado, en la medida que no implique modificación del precio, objeto y condiciones ofrecidos y no se vulneren los principios generales desarrollados en este capítulo.
+(*) (INTERPRETADO por resolución interlocutoria de la Sala Constitucional Nº 565-I-98 de las 8:30 horas del 18 de setiembre de 1998, en el sentido de que, la posibilidad de subsanar vicios formales resulta posible únicamente, en tanto no se refiera a requisitos formales que afecten los contenidos fundamentales o esenciales de la oferta).

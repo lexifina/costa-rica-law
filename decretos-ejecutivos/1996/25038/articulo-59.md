@@ -9,7 +9,7 @@ concurso respectivo, y a la estimación de la negociación.
 existencia de un registro de proveedores, al cual podrá
 ingresar todo interesado en contratar con la Administración,
 siempre que satisfaga los requisitos de solvencia,
-antecedentes, y experiencia. Que cada órgano o ente establezca
+antecedentes, y experiencia, que cada órgano o ente establezca
 mediante regulación interna debidamente publicada en el Diario
 Oficial. En el caso del Gobierno Central, las unidades que
 operen desconcentradamente, deberán consultar el Registro que
@@ -55,17 +55,18 @@ más diarios de circulación nacional.
 cualquier proveedor no registrado, si antes del vencimiento
 del plazo para presentación de ofertas, logra formalizar su
 inscripción.
-59.11 El plazo para recibir ofertas no podrá ser inferior a diez
-días hábiles. La apertura se regirá por las reglas de la
+(*) 59.11 El plazo para recibir ofertas no podrá ser inferior a diez
+días hábiles. la apertura se regirá por las reglas de la
 licitación pública y la adjudicación o declaratoria de
 deserción del concurso deberá producirse dentro del plazo que
-indique el pliego de condiciones, o en ausencia de indicación
+indique el pliego de peticiones, o ausencia de indicación
 expresa, dentro de los treinta días hábiles siguientes a la
 apertura de ofertas. La comunicación de la adjudicación se
 verificará por el mismo medio empleado para invitar a
 participar. Cuando se comunique por notificación, esta deberá
 efectuarse a todos los interesados dentro de los tres días
 hábiles siguientes a la firmeza de la adjudicación.
+(*) (Por resolución de la Sala Constitucional Nº 998-98 de las 11:30 horas del 16 de febrero de 1998 este inciso fue anulado, PERO posteriormente, por resolución interlocutoria Nº 565-I-98 de las 8:30 horas del 18 de setiembre de 1998, se aclara que fue un error declararlo inconstitucional y que el término "firmeza" debe ser entendido de manera tal que no obstaculice ni impida su impugnación de la adjudicación en las licitaciones por registro en la vía administrativa, en aplicación de los artículos 39 y 41 de la Constitución Política y los principios que integran el debido proceso).
 59.12 La Administración aplicará los principios y normas de la
 licitación pública, particularmente en lo que concierne la
 preparación del cartel, los requisitos de la oferta y las
