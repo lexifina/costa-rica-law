@@ -1,0 +1,3 @@
+Artículo 9º—El geólogo que haya sido designado no podrá rehusar la asignación sin que medie causa legal que lo imposibilite en el desempeño del mismo.
+En caso de que ocurra alguna circunstancia que lo imposibilite para el desempeño, o bien, se tenga conocimiento de que el geólogo ha cometido faltas, o existan quejas en su contra, el interesado lo deberá comunicar inmediatamente a la Comisión.
+Cuando se presente alguna de las situaciones apuntadas, la Comisión le dará el derecho de defensa al profesional y resolverá según corresponda. Pero de comprobarse que existe falta o incumplimiento de deberes, dispondrá su desinscripción e informará al Colegio de Geólogos y a quien corresponda y designará al geólogo que lo va a sustituir.

@@ -1,0 +1,1 @@
+Artículo 10.—En caso de que exista controversia entre el geólogo y la organización solicitante sobre los términos del informe presentado, deberá resolver la Comisión en última instancia. Igualmente en caso de que exista una apelación del informe técnico rendido, en cuyo caso deberá ser resuelto por parte de la Comisión.

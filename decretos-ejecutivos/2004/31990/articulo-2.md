@@ -1,0 +1,1 @@
+Artículo 2º—Los geólogos inscritos en el registro mencionado serán los únicos autorizados para ser contratados por las organizaciones que financian los proyectos de interés social, o por los desarrolladores, cuando ellos financien directamente dichos proyectos, para llevar a cabo los estudios y emitir los criterios técnicos que se indican en el artículo 1° del presente decreto.
