@@ -1,0 +1,1 @@
+Artículo 8°-Este decreto se refiere a los puestos amparados o no al Régimen de Servicio Civil, sea los comprendidos en las relaciones de puestos de "Sueldos para Cargos Fijos", "Servicios Especiales" y de "Jornales" de la Ley General de Presupuesto y a todo el sector público en lo referente al pago de horas extra.
