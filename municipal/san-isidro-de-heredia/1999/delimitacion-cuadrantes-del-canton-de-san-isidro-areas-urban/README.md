@@ -14,3 +14,4 @@ Delimitación Cuadrantes del Cantón de San Isidro, Areas Urbanas (Zonas de Crec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-06 | la propia norma |
+| 2 | 2000-02-06 | Ley 8 |
