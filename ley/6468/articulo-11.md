@@ -6,38 +6,35 @@ los gastos comunes a las Uniones y el presupuesto de la Conferencia.
 previsiones de gastos que interesen a varias Uniones.
 b) Este presupuesto se financiará con los recursos siguientes:
 i) las contribuciones de las Uniones, en la inteligencia de que la
-cuantía de la contribución de cada Unión será fijada por la
-Asamblea de la Unión, teniendo en cuenta la medida en que los
-gastos comunes se efectúan en interés de dicha Unión;
+cuantía de la contribución de cada Unión será fijada por la Asamblea de la
+Unión, teniendo en cuenta la medida en que los gastos comunes se efectúan
+en interés de dicha Unión;
 ii) las tasas y sumas debidas por los servicios prestados por la
-Oficina Internacional que no estén en relación directa con una
-de las Uniones o que no se perciban por servicios prestados por
-la Oficina Internacional en el campo de la asistencia
-técnico-jurídica;
+Oficina Internacional que no estén en relación directa con una de las
+Uniones o que no se perciban por servicios prestados por la Oficina
+Internacional en el campo de la asistencia técnico-jurídica;
 iii) el producto de la venta de las publicaciones de la Oficina
-Internacional que no conciernan directamente a una de la
-Uniones, y los derechos correspondientes a esas publicaciones;
-iv) las donaciones, legados y subvenciones de los que se beneficie
-la Organización, con excepción de aquellos a que se hace
-referencia en el párrafo 3) b) iv);
+Internacional que no conciernan directamente a una de la Uniones, y los
+derechos correspondientes a esas publicaciones;
+iv) las donaciones, legados y subvenciones de los que se beneficie la
+Organización, con excepción de aquellos a que se hace referencia en el
+párrafo 3) b) iv);
 v) los alquileres, intereses y otros ingresos diversos de la
 Organización.
 3) a) El Presupuesto de la Conferencia comprenderá las previsiones de los
 gastos ocasionados por las reuniones de la Conferencia y por el programa de
 asistencia técnico-jurídica.
 b) Este presupuesto se financiará con los recursos siguientes:
-i) las contribuciones de los Estados parte en el presente Convenio
-que no sean miembros de una de las Uniones;
+i) las contribuciones de los Estados parte en el presente Convenio que
+no sean miembros de una de las Uniones;
 ii) las sumas puestas a disposición de este presupuesto por las
-Uniones, en la inteligencia de que la cuantía de la suma puesta
-a disposición por cada Unión será fijada por la Asamblea de la
-Unión, y de que cada Unión tendrá facultad de no contribuir a
-este presupuesto;
+Uniones, en la inteligencia de que la cuantía de la suma puesta a
+disposición por cada Unión será fijada por la Asamblea de la Unión, y de
+que cada Unión tendrá facultad de no contribuir a este presupuesto;
 iii) las sumas percibidas por servicios prestados por la Oficina
 Internacional en el campo de la asistencia técnico-jurídica;
-iv) las donaciones, legados y subvenciones de los que se beneficie
-la Organización para los fines a los que se hace referencia en
-al apartado a).
+iv) las donaciones, legados y subvenciones de los que se beneficie la
+Organización para los fines a los que se hace referencia en al apartado a).
 4) a) Con el fin de determinar su cuota de contribución al presupuesto de
 la Conferencia, cada Estado parte en el presente Convenio que no sea
 miembro de alguna de las Uniones quedará incluido en una clase y pagará sus
@@ -93,8 +90,8 @@ presente Convenio que no sea miembro de una Unión y su participación en
 todo aumento serán proporcionales a la contribución de ese Estado
 correspondiente al año en el curso del cual se constituyó el fondo y se
 decidió el aumento. La proporción y las modalidades de pago serán
-determinadas por la Conferencia, a propuesta del Director General y previo
-dictamen del Comité de Coordinación.
+determinadas por la Conferencia, a propuesta del Director General y
+previo dictamen del Comité de Coordinación.
 9) a) El acuerdo de Sede concluido con el Estado en cuyo territorio la
 Organización tenga su residencia preverá que ese Estado conceda anticipos
 si el fondo de operaciones fuere insuficiente. La cuantía de esos anticipos

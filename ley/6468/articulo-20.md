@@ -3,8 +3,8 @@ Cláusulas Finales
 1) a) El presente Convenio será firmado en un solo ejemplar en idioma
 español, francés, inglés y ruso, haciendo igualmente fe cada texto y se
 depositará en poder del Gobierno de Suecia.
-b) El presente Convenio queda abierto a la firma en Estocolmo hasta el
-13 de enero de 1968.
+b) El presente Convenio queda abierto a la firma en Estocolmo hasta
+el 13 de enero de 1968.
 2) El Director General establecerá textos oficiales, después de consultar a
 los gobiernos interesados en los idiomas alemán, italiano y portugués y en
 los otros idiomas que la Conferencia pueda indicar.
