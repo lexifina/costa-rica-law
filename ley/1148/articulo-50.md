@@ -1,2 +1,0 @@
-Derogatoria del Impuesto Cambiario, 10%
-Artículo 50.- Los recargos cambiarios del 10% sobre las importaciones incluídas en la Categoría Preferencial y Primera, quedarán automáticamente derogados en el momento en que queden cancelados los títulos de la Deuda Pública llamados Letras del Tesoro y Cédulas del Sistema Bancario Nacional 2%, 1949 a que se refiere el incico b) del artículo 41 de esta ley. Con ese objeto el Banco Central fijará, con 60 días de anticipación por lo menos, la fecha en que los citados recargos cambiarios dejarán de cobrarse.

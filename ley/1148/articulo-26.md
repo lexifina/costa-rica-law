@@ -1,3 +1,0 @@
-Remesas sobre Capitales Extranjeros Registrados
-Artículo 26.- Las personas que desearen obtener divisas en el mercado oficial para efectuar remesas de intereses, dividendos o amortizaciones sobre capitales extranjeros ingresados al país con posterioridad al 20 de enero de 1933, de acuerdo con el inciso c) del artículo 19, deberán comprobar el registro previo de los capitales de que se trate.
-Las remesas de intereses y dividendos no podrán exceder en conjunto del 10% anual del valor comprobado de la respectiva inversión. El porcentaje máximo de amortización será determinado en cada caso por el Banco y quedará sujeto a las disponibilidades con que en definitiva llegue él a contar para ese objeto.
