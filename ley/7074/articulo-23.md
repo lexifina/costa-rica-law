@@ -1,0 +1,1 @@
+Artículo 23.-Se autoriza al Ministerio de Agricultura y Ganadería, al Ministerio de Salud, o a ambos, para que le donen a la Asociación Caravanas de Buena Voluntad, cedula jurídica Nº 3-101-045105-36, los terrenos en los cuales se hicieron inversiones y construcciones (escuela, salón comunal y otros), en Linda Vista de Río Azul, cantón de La Unión.

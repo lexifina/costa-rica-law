@@ -1,0 +1,1 @@
+Artículo 12.-Cuando en un mismo establecimiento ejerzan actividades lucrativas conjuntamente varias sociedades o personas físicas, el monto del Impuesto lo determinará la suma total del impuesto que corresponda a cada una individualmente.
