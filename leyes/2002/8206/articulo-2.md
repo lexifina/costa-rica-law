@@ -1,0 +1,2 @@
+Artículo 2º—Los fondos que, en virtud de esta Ley, reciba la Fundación Ayúdenos para Ayudar serán controlados y fiscalizados por la Contraloría General de la República, de conformidad con la normativa aplicable. Asimismo, las donaciones y aportaciones que, con base en esta Ley, realicen las instituciones y los órganos no afectarán el normal funcionamiento y cumplimiento de sus fines públicos y requerirán la aprobación previa del Ministerio de Hacienda y de dicha Contraloría.
+Rige a partir de su publicación.
