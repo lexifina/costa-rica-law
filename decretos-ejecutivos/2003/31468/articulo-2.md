@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones públicas deberán brindar todas las facilidades y colaboración para la consecución del objetivo establecido en el artículo anterior, dentro del marco normativo que señala el ordenamiento.
