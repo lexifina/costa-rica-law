@@ -1,0 +1,1 @@
+Transitorio IV.- Dentro de un plazo no mayor de noventa días hábiles, el Consejo Superior de Educación propondrá al Poder Ejecutivo el reglamento correspondiente a esta ley, el cual, necesariamente, debe incluir la estructura administrativa de las instituciones de educación superior parauniversitaria.

@@ -1,6 +1,1 @@
-Artículo 10.- El personal docente, que labore en las instituciones de
-educación superior parauniversitaria, deberá estar debidamente calificado
-para impartir enseñanza superior universitaria. No obstante, en caso de
-inopia de personal calificado, se podrán nombrar personas que, por su
-idoneidad y experiencia, garanticen un buen desempeño en labores
-educativas.
+Artículo 10.- El personal docente, que labore en las instituciones de educación superior parauniversitaria, deberá estar debidamente calificado para impartir enseñanza superior universitaria. No obstante, en caso de inopia de personal calificado, se podrán nombrar personas que, por su idoneidad y experiencia, garanticen un buen desempeño en labores educativas.

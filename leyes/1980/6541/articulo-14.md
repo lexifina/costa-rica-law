@@ -1,4 +1,1 @@
-Artículo 14.- Las instituciones de educación superior
-parauniversitaria podrán llevar el nombre de "colegio universitario",
-siempre y cuando tengan un convenio, para fines docentes, con alguna
-institución de educación superior universitaria.
+Artículo 14.- Las instituciones de educación superior parauniversitaria podrán llevar el nombre de "colegio universitario", siempre y cuando tengan un convenio, para fines docentes, con alguna institución de educación superior universitaria.

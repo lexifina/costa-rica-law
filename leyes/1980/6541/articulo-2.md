@@ -1,7 +1,2 @@
-Artículo 2º.- Se considerarán instituciones de educación superior
-parauniversitaria las reconocidas así por el Consejo Superior de Educación,
-y cuyo objetivo principal sea ofrecer carreras completas, de dos o tres
-años de duración, a personas egresadas de la educación diversificada.
-El nivel de las carreras de educación superior parauniversitaria es
-intermedio, entre la educación diversificada y la educación superior
-universitaria.
+Artículo 2º.- Se considerarán instituciones de educación superior parauniversitaria las reconocidas así por el Consejo Superior de Educación, y cuyo objetivo principal sea ofrecer carreras completas, de dos o tres años de duración, a personas egresadas de la educación diversificada.
+El nivel de las carreras de educación superior parauniversitaria es intermedio, entre la educación diversificada y la educación superior universitaria.
