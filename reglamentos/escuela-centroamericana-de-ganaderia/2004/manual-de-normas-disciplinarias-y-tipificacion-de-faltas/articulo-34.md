@@ -1,0 +1,1 @@
+34.—Los permisos especiales para ausentarse de lecciones prácticas o teóricas deberán ser solicitados por el estudiante al profesor de la materia en que estará ausente, mediante formularios suministrados por la Oficina de Bienestar Estudiantil; los permisos, debidamente autorizados, deberán entregarse luego en la Oficina de Bienestar Estudiantil.

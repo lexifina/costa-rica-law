@@ -1,0 +1,2 @@
+19.—Cualquier daño ocasionado por maltrato o negligencia en el cuarto de habitación o dormitorio deberá ser reportado por el responsable del daño al Decano o Encargado del dormitorio y éste a la Oficina de Bienestar Estudiantil. El costo de reparación será sufragado en su totalidad por el autor, o en su defecto, por los estudiantes asignados al dormitorio.
+Además se sancionará de acuerdo a lo establecido en el capítulo de sanciones.

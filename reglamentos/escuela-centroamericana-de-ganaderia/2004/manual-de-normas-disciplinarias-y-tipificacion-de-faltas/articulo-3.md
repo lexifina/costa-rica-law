@@ -1,0 +1,1 @@
+3º—Clases prácticas. Pantalón largo de mezclilla azul, camiseta o camisa con mangas, zapatos cerrados, calcetines, uso de faja. Deberán acatar las disposiciones de higiene y seguridad requeridas para cada práctica.

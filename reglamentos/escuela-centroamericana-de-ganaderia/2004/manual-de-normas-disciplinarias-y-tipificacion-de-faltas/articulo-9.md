@@ -1,0 +1,1 @@
+9º—El cuarto de habitación comprende un área interna y otra externa. La parte externa es conformada por el pasillo o corredor frente al cuarto y el baño y cinco metros de jardín delantero y posterior.

@@ -1,0 +1,1 @@
+35.—Cada estudiante deberá cumplir con la fecha y hora de ingreso solicitada en el permiso de salida para fin de semana. Los domingos no se permitirá el ingreso de estudiantes, después de las 10:00 p.m., ni antes de las 4 a.m. del lunes. Permisos especiales para después de la hora indicada, deberán ser autorizados por el encargado de Bienestar Estudiantil.

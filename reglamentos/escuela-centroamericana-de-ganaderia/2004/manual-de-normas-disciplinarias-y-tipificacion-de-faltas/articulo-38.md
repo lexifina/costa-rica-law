@@ -1,0 +1,1 @@
+38.—Todos los estudiantes deberán estar en su respectivo cuarto de habitación antes de las 10:00 p.m. sin embargo con previa autorización de la Oficina de Bienestar Estudiantil, se permitirá permanecer hasta las 11: 00 p.m. en las aulas, incluyendo semana de exámenes.

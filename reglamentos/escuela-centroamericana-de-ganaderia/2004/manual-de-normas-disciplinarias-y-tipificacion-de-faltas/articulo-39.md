@@ -1,0 +1,1 @@
+39.—No se permite el ingreso de personas ajenas a la institución en los dormitorios (amigos o familiares), excepto en casos especiales y con previo permiso de la Oficina de Bienestar Estudiantil. Igualmente se prohíbe la entrada de estudiantes varones en las habitaciones asignadas a las mujeres y viceversa.

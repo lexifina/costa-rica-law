@@ -1,0 +1,1 @@
+24.—Los utensilios o alimentos disponibles podrán ser usados exclusivamente en el comedor. De existir la necesidad de utilizarlos fuera del comedor, deberá solicitarse la autorización a la Oficina de Bienestar Estudiantil y retornarlos a la brevedad posible.

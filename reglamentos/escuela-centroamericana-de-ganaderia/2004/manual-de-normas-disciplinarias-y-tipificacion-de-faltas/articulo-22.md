@@ -1,0 +1,1 @@
+22.—Se podrán solicitar alimentos únicamente durante el horario establecido, excepto en casos especiales como giras y prácticas con la debida comunicación al comedor por parte de las Direcciones Administrativa o Académica.

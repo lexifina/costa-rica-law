@@ -1,0 +1,2 @@
+44.—La sanción por la comisión de una falta muy grave para los residentes, será de la pérdida de residencia, para los no residentes la suspensión académica de cinco a diez días hábiles.
+Quien comete una falta muy grave dos veces (la misma o diferente) se sancionará con expulsión. También se sancionará con expulsión quien cometa cualquiera de las faltas codificadas en la sección específica motivos de expulsión.

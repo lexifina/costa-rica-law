@@ -1,0 +1,1 @@
+59.—Manejar o mantener dentro del campus vehículos propiedad del alumno o de otras personas sin la debida autorización, así como estacionar en áreas no autorizadas o no cumplir con otras normas establecidas.
