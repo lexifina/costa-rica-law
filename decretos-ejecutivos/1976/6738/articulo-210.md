@@ -1,1 +1,1 @@
-(Así derogado expresa y totalmente por el Decreto Ejecutivo No. 25880 de 20 de febrero de 1997)
+Artículo 210.-(Así derogado expresa y totalmente por el Decreto Ejecutivo No.26095 de 30 de mayo de 1997)
