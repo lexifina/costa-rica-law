@@ -1,7 +1,10 @@
-Artículo 14.- La Asamblea General deberá reunirse ordinariamente por lo
-menos una vez al año, para elegir los miembros que correspondan a la Junta
-Directiva, conocer de los informes que ésta le presente y resolver los
-demás problemas de su competencia; y extraordinariamente, cuando sea
-convocada por acuerdo de la Junta Directiva, la cual estará obligada a
-hacerlo, si así se lo solicita el número de miembros que fije el
-Reglamento.
+Artículo 14.- Los establecimientos que por su naturaleza requieren
+indispensablemente los servicios de técnicos y profesionales afines,
+químicos o ingenieros químicos extranjeros no incorporados al Colegio
+Federado, deberán requerir una autorización especial de la Junta Directiva
+General para el ejercicio temporal de las funciones de esos profesionales,
+de acuerdo con el artículo 5º, inciso e) de esta ley. Se excluye de tales
+requisitos a las universidades y demás centros de enseñanza superior del
+país, los cuales podrán contratar libremente los servicios de profesionales
+extranjeros, y quienes sólo podrán laborar para tales universidades y
+centros.

@@ -1,6 +1,4 @@
-Artículo 20.-Son obligaciones del Tesorero: Custodiar, bajo su
-responsabilidad, los fondos del Colegio; recaudar las contribuciones que
-se establezcan; refrendar, junto con el Presidente, los cheques expedidos
-por éste; llevar la contabilidad del Colegio en debida forma y presentar
-mensualmente y el día último de cada año, un informe completo de la
-situación financiera y del movimiento habido.
+Artículo 20.- Todo dictamen, avalúo, peritaje, o cualquier otro
+documento que exprese con fe pública una verdad científica en las materias
+encomendadas al Colegio Federado, sólo podrán ser rubricadas por miembros
+activos de éste.

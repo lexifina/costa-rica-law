@@ -1,6 +1,6 @@
-Artículo 12.- Los miembros del Colegio están obligados:
-a) A concurrir a las Asambleas Generales ordinarias y
-extraordinarias.
-b) A desempeñar los cargos y funciones que el Colegio les encomiende.
-c) A pagar las cuotas o contribuciones que les correspondieren según
-la Ley o los Reglamentos respectivos.
+Artículo 12.- Podrán ejercer los derechos que esta ley otorga, quienes
+habiendo cursado sus estudios en el país tengan pendiente su juramentación
+ante la respectiva universidad y quienes habiéndolos cursado en el exterior
+tengan solicitado ante las universidades del país el reconocimiento de sus
+títulos y hasta por un plazo no mayor de seis meses a partir de la
+comprobación ante el Colegio Federado de los extremos anteriores.
