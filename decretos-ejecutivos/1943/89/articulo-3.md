@@ -1,1 +1,0 @@
-Artículo 3°—La persona o firma interesada en usar la “Respuesta Comercial” deberá solicitar previamente, el permiso correspondiente a la Dirección General de Correos, que en el caso de autorizarlo, lo comunicará y asignará el número sucesivo que le corresponda.

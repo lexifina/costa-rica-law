@@ -1,1 +1,0 @@
-Artículo 4°-Las Administraciones de Correos retendrán a la orden de los destinatarios los sobres o tarjetas Respuesta Comercial, para ser entregados previo comprobante expedido por la Auditoría General de Comunicaciones en que conste haberse pagado el valor total de los portes.

@@ -1,1 +1,0 @@
-Artículo 5°-El destinatario deberá cancelar el valor total de los portes correspondientes a las piezas retenidas, a más tardar el 1°, 10 y 20 de cada mes y la Dirección General de Correos podrá cancelar en cualquier momento los permisos que haya concedido.
