@@ -1,0 +1,1 @@
+Artículo 3°.- La administración del Refugio Nacional de Vida Silvestre Dr. Archie Carr corresponde a la Dirección General de Vida Silvestre del Ministerio de Recursos Naturales, Energía y Minas, quien podrá celebrar convenios de cooperación con la Caribbean Conservation Corporation para el manejo y protección de los recursos en el área.

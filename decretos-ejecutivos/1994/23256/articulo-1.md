@@ -1,0 +1,14 @@
+N° 23256-MERINEM
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RECURSOS NATURALES, ENERGÍA Y MINAS
+En uso de las facultades que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política y los artículo 7° y 82 de la Ley de Conservación de la Vida Silvestre N° 7317 del 30 de octubre de 1992.
+Considerando:
+1°- Que es obligación del Estado adoptar medidas que conlleven a la protección y desarrollo sostenido de los recursos naturales del país.
+2°.- Que la playa de Tortuguero es el sitio de mayor importancia en el Hemisferio Occidental para el anidamiento de la tortuga verde (Chelonia mydas), una especie fuertemente amenazada de extinción.
+3°.- Que dicha playa es importante tambien para el desove de otras especies de tortugas como Dermochelys, coriacea, eretmochelys, imbricata y Caretta caretta.
+4°.- Que la playa de anidación entre las coordenadas 283 N y 285 N se encuentra desprotegida y amenazada por el desarrollo urbano turístico.
+5°.- Que el Dr arhie Carr dedicó buena parte de su vida y sus mejores esfuerzos al estudio y protección de la tortuga verde. Por tanto,
+Decretan:
+Artículo 1°.- Créase el Refugio de Vida Silvestre Dr, Archie Carr, de propiedad estatal, ubicado en el Distrito Colorado, Cantón Pococí, Provincia de Limón, Hoja Cartográfica Tortuguero, Escala 1:50.000 del Instituto Geográfico Nacional de Costa Rica, que comprende el área delimitada por los siguientes linderos: Partiendo de un punto de coordenadas geográficas 282 900N y 589 350 E, ubicados por el canal de Lagunas del Tortuguero, el límite inicia con rumbo Noroeste por la margen derecha de dichas Lagunas, hasta Boca del Tortuguero, en el punto de coordenadas 284 950 N y 588 750 E.
+B: A partir de este punto continua con rumbo Sureste por la línea de pleamar hasta el punto de coordenadas 282 900 N y 589 350 E, que corresponde al punto de origen de la presente descripción.”
+(Corregido mediante Fe de Erratas publicada en La Gaceta N° 44 del 4 de marzo del 2015, página N° 64. Anteriormente indicaba: " Créase el Refugio de Vida Silvestre Dr. Archie Carr, de propiedad estatal, ubicado en el Distrito de Colorado, Cantón Pococí, Provincia de Limón; Hoja Cartográfica Tortuguero, Escala 1:50.000 del Instituto Geográfico de Costa Rica, que comprende el área delimitada por los siguientes linderos: Partiendo de un punto de coordenadas geográficas 282900 N y 589350 E, ubicado en el canal de Lagunas del Tortuguero, el límite inicia con rumbo noreste por la margen derecha de dichas lagunas hasta Boba del Tortuguero, en el punto de coordenadas 284950 N y 588750 E. A partir de este punto continua con rumbo Sureste por la línea de pleamar hasta el punto de coordenadas 283000 N y 389575 E; continua con rumbo Suroeste una distancia de 250 m hasta el punto de coordenadas 282900 N y 589350 E, que corresponde al punto de origen de la presente descripción")
