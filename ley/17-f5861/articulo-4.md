@@ -1,0 +1,1 @@
+Art. 4. La Corte Superior de Justicia mandarà redactar en un solo volùmen los aranceles dichos, en todo lo que sea necesario para el Estado, de conformidad con la disposicion anterior: autorizarà la redaccion competentemente; y la comunicarà al Ejecutivo para que se imprima, publique y circule.
