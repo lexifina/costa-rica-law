@@ -1,1 +1,1 @@
-Articulo 9°—Las solicitudes de crédito que según el presente Reglamento no deban ser resueltas por la Comisión, deberán serlo por la Junta Directiva.
+Articulo 9°—(DEROGADO EXPRESAMENTE por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003, publicada en La Gaceta No. 62 de 28 de marzo del 2003.)

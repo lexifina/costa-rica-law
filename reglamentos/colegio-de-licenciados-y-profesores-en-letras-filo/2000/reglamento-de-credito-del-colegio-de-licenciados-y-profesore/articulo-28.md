@@ -1,1 +1,2 @@
-Articulo 28.—Si un solicitante presenta un fiador que tiene un crédito moroso, la solicitud no se tramitara hasta que la situación de morosidad se normalice o hasta que el solicitante cambie de fiador.
+Articulo 28.—Los créditos se cancelarán mediante cuotas fijas mensuales y consecutivas que no podrán ser modificadas, salvo en los casos de renovación. Asimismo quienes hagan pagos anticipados verán notificado el plazo y monto de la obligación, no así el de la cuota que es lo que corresponde.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003, publicada en La Gaceta No. 62 de 28 de marzo del 2003)

@@ -1,1 +1,3 @@
-Artículo 10.—Las solicitudes de crédito presentadas por los miembros de la Comisión Administrativa serán estudiadas y resueltas por la Junta Directiva.
+Artículo 10.—Las solicitudes de crédito originadas a raíz de casos especiales, como desastres naturales declarados por la Comisión Nacional o Regional de Emergencias y los provocados por el ser humano, así como las enfermedades graves donde los recursos de la Caja Costarricense de Seguro Social resulten insuficientes o inoportunos, u otros que a criterio de la Comisión Administrativa de Crédito reflejen condiciones que sobrepasen los límites del presente Reglamento, serán trasladados a la Junta Directiva para que ésta resuelva al respecto.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003, publicada en La Gaceta No. 62 de 28 de marzo del 2003)
+.

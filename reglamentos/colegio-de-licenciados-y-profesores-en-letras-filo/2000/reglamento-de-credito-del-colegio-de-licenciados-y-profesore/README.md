@@ -14,3 +14,4 @@ Reglamento de Crédito del Colegio de Licenciados y Profesores en Letras, Filoso
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-03 | la propia norma |
+| 2 | 2003-02-08 | Reglamento 97 (2003-02-08) |
