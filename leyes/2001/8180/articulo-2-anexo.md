@@ -5,3 +5,4 @@ Relación de Puestos de Sueldos para cargos fijos, para los Centros Educativos d
 (Modificado por los artículo 1 y 2 del Decreto Ejecutivo N° 30425 de 24 de abril del 2002)
 (Así modificado por el artículo 3 del Decreto Ejecutivo N° 30551 del 25 de junio del 2002)
 (Así modificado por el artículo 1 del Decreto Ejecutivo N° 30755 del 1 de octubre del 2002)
+(Así modificado por el artículo 2 del Decreto Ejecutivo N° 30892 del 17 de diciembre del 2002)
