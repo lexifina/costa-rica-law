@@ -1,0 +1,1 @@
+Artículo 16.- La infraestructura de caminos y puentes construida por SENARA para la ejecución, operación y mantenimiento de las obras de riego pasará a formar parte de la red nacional y municipal según corresponda y los entes responsables serán encargados de su manteniendo una vez recibido a satisfacción.

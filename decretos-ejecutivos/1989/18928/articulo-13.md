@@ -1,0 +1,1 @@
+Artículo 13.- Las plazas que deban crearse de acuerdo con el "Plan de Dotación de Personal Incremental aprobado por el BID" serán incorporadas al presupuesto del SENARA una vez que su clasificación, valoración e implementación sean aprobadas por la Autoridad Presupuestaria.

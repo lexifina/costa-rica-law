@@ -1,0 +1,1 @@
+Artículo 18.- El SENARA propondrá al Banco Nacional de Costa Rica el monto necesario a disponer en el año siguiente para crédito de adecuación de tierras así como el estudio técnico-financiero con los términos y condiciones del mismo para aprobación del Banco a más tardar el 30 de agosto del año anterior un plan preliminar y el 1° de noviembre uno definitivo.

@@ -1,0 +1,1 @@
+Artículo 2°.- El presente decreto es complementario del N° 16277-MAG de fecha 24 de abril de 1985 "Reglamento General del SENARA". Caso de existir ambigüedad o duda sobre algún punto del articulado se tomará como vigente el que en esta fecha se promulga.

@@ -1,0 +1,1 @@
+Artículo 24.- El Gobierno de la República trasladará los fondos al Ente Ejecutor mediante el convenio firmado para ese fin ente el Ministerio de Hacienda y el SENARA, el cual debe ser refrendado por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 9°.- El personal asignado por las instituciones participantes en el desarrollo integral conservará todos los derechos y relación laboral con la Institución a que pertenezcan, únicamente dependerá del jefe de distrito en cuanto a régimen disciplinario y dirección de los trabajos.

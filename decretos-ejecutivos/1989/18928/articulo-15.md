@@ -1,0 +1,1 @@
+Artículo 15.- La deuda que contraiga el SENARA por la adquisición de tales terrenos u obras, podrá cancelarse al usuario, de común acuerdo, en este caso constituido en acreedor del SENARA, mediante la suspensión del pago de tarifas o de repago de las nuevas obras hasta la cancelación total de la deuda, la cual no devengará ningún tipo de interés.

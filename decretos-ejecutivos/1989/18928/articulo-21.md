@@ -1,0 +1,1 @@
+Artículo 21.- La Comisión Técnica Regional para la selección de beneficiarios elaborará el Reglamento de Selección para aprobación de la Junta Coordinadora, la cual lo someterá al criterio de la Junta Directiva del IDA y del SENARA. Deberá incluirse un mínimo de 20% de egresados en ciencias agropecuarias.

@@ -1,0 +1,1 @@
+Artículo 7°.- Los miembros de la Junta se reunirán ordinariamente una vez al mes y extraordinariamente cuando sean convocados al efecto por su Presidente o por las tres cuartas partes del total de sus miembros.

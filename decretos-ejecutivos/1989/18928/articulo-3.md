@@ -1,0 +1,1 @@
+Artículo 3°.- El Distrito de Riego Arenal es la unidad regional del SENARA, que será la responsable directa de la ejecución de la segunda etapa del Proyecto Arenal-Tempisque y estará dirigida por un jefe que debe ser un profesional con conocimientos en la materia y que dependerá jerárquicamente de la Gerencia de la Institución.

@@ -1,0 +1,1 @@
+Artículo 11.- Con el objeto de asegurar la producción en el Proyecto de Riego Arenal-Tempisque, el Instituto Costarricense de Electricidad y el Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento, suscribirán un convenio para el suministro del agua.

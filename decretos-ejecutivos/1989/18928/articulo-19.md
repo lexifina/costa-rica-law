@@ -1,0 +1,1 @@
+Artículo 19°.- Durante el período de prueba de los parceleros adjudicatarios en tierras adquiridas por el Estado, el Instituto de Desarrollo Agrario otorgará el aval correspondiente que garantice el crédito.

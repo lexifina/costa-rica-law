@@ -1,0 +1,1 @@
+Artículo 17.- La Junta Directiva del SENARA aprobará el reglamento tarifario y propondrá al Servicio Nacional de Electricidad (SNE) para su aprobación el importe de las tarifas a cobrar a los usuarios dentro de cada distrito o unidad de riego o avenamiento. El SENARA convendrá con el SNE la retribución a este por el control de tarifas.
