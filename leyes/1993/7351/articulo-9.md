@@ -1,0 +1,8 @@
+ARTICULO 9
+1.- Los Estados Partes se prestarán todo el auxilio posible en lo
+que respecta a cualquier procedimiento penal relativo a los delitos
+previstos en el artículo 4, inclusive el suministro de todas las
+pruebas necesarias para el proceso que obren en su poder.
+2.- Los Estados Partes cumplirán las obligaciones que les incumban
+en virtud del párrafo 1 del presente artículo de conformidad con los
+tratados de auxilio judicial mutuo que existan entre ellos.
