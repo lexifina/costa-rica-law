@@ -1,0 +1,3 @@
+Art 4° Los rematarios o comprados pueden retener en su poder el precio del remate por todo el tiempo que les convenga, asegurándose con las hipotecas del terreno rematado, y satisfaciendo adelantados, dentro de los primeros treinta días al principio de cada año, el interés de un diez por ciento anual al Tesoro respectivo.
+Único: Los deudores por el valor de dichos terrenos, que no satisfagan los intereses en el término fijado, incurrirán en la pena de un veinticinco por ciento sobre el total de los mismos intereses; y si aun así no satisficieren su adeudo, dentro de otros
+Treinta días, serán ejecutados por el capital, réditos y pena.
