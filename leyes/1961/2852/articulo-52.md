@@ -1,1 +1,0 @@
-Artículo 52.- Esta ley es de orden público y deroga la Ley N° 117 de 11 de agosto de 1925; la Ley N° 51 de 4 de febrero de 1935; Decreto-Ley N° 329 de 29 de diciembre de 1948; el Decreto-Ley N° 701 de 7 de noviembre de 1949 y todas las demás disposiciones que se le opongan.

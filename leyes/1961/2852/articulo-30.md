@@ -1,1 +1,0 @@
-Artículo 30. -El Ministerio por medio de sus funcionarios autorizados, podrá hacer muestreos de cualquier pesticida o fitohormona vegetal, pudiendo exigir el retiro del mercado de aquellos productos que no llenen los requisitos señalados por esta ley y sus reglamentos.

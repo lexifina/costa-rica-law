@@ -1,1 +1,0 @@
-Artículo 25.-Por medio de las disposiciones cuarentenarias de que habla el artículo anterior, se podrá restringir o prohibir el tránsito en el país de cualquier planta, producto vegetal, material de empaque, material de propagación y todos aquellos materiales que puedan ser portadores o posibles portadores de cualquier plaga o enfermedad.

@@ -1,1 +1,0 @@
-Artículo 9°-El requisito de certificados que se alude en el artículo anterior no será aplicable a los cereales para el consumo, flores cortadas o a cualquier otro material o productos vegetales cuando el Ministerio haya determinado que tales artículos, en casos específicos, no conllevan riesgos de trasmitir plagas o enfermedades que sean de importancia económica.

@@ -1,2 +1,0 @@
-Artículo 28.-Las casas comerciales que importen, distribuyan, fabriquen y/o mezclen pesticidas u hormonas vegetales, deberán contar con los servicios de un ingeniero agrónomo colegiado, como requisito indispensable para poder expender dichos materiales.
-El ingeniero agrónomo regente, será el responsable de que los productos que se expenden se ajusten en todo a las disposiciones de esta ley y de sus reglamentos.
