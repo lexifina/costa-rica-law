@@ -1,0 +1,1 @@
+Artículo 22-La discusión del acta debe contraerse a su forma o redacción y examinar si contiene todo aquello en que se ocupó la Junta en la sesión a que se hace referencia. Aprobada el acta será firmada por el Presidente y por el Secretario o por quienes actúen en su lugar. Unicamente el acta de instalación debe ser firmada por todos los miembros Directores.

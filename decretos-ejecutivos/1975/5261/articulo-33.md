@@ -1,0 +1,1 @@
+Artículo 33. -La Junta de Fomento Avícola podrá establecer programas cooperativos con las Universidades de Costa Rica y Nacional, el Ministerio de Agricultura y Ganadería o con cualquier otra institución nacional o extranjera y en general, procurará coordinar sus actividades con todos aquellos organismo, que puedan contribuir al desarrollo de la industria avícola,

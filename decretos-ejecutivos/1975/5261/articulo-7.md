@@ -1,0 +1,1 @@
+Artículo 7°-No podrán formar parte de la Junta de Fomento Avícola, quienes estén ligados entre sí por parentezco de consanguinidad o por afinidad hasta el segundo grado inclusive con cualquier miembro del Consejo de Gobierno o de los Directores del Consejo Nacional de Producción.

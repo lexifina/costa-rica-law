@@ -1,0 +1,1 @@
+Artículo 26. -La Junta celebrará una sesión ordinaria mensual pagada el primer día miércoles de cada mes; tendrán remuneración únicamente dos sesiones extraordinarias por mes, celebrándose tantas como fueren necesarias. Dos reuniones generales en el año calendario tendrán remuneración y se celebrarán tantas como se considere necesario y sean debidamente convocadas.

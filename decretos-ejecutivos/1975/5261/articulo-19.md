@@ -1,0 +1,1 @@
+Artículo 19.-Están viciados de absoluta nulidad cualquier especie de contratos u operaciones que directa o indirectamente celebran los integrantes de la Junta con algunos de sus parientes hasta el segundo grado de consanguinidad o afinidad todo de conformidad con lo que establezca la Ley de la Administración Financiera de la República.
