@@ -1,0 +1,1 @@
+Art 11° La persona que se sintiere agraviada de la resolución municipal, tiene recurso para ante el Poder Ejecutivo, el cual arrastrará el expediente, y en su vista confirmará o revocará el acuerdo, dictando la providencia que estimare más conforme a las leyes.

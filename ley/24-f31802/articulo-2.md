@@ -1,0 +1,1 @@
+Art 2° Sin embargo las disposiciones precedentes, basta que uno y otros esceptuados hayan nacido en el territorio de la República para que sean costarricenses por nacimiento, cuando habiendo llegado a la edad de veintiún años, se inscriban por su propia voluntad en el registro cívico o por de sus padres antes de haber cumplido esta edad.
