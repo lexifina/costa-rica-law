@@ -1,0 +1,1 @@
+Artículo 26.— Deber de respeto y buen trato. Los funcionarios y funcionarias de la Dirección General de Adaptación Social deben mantener un adecuado trato para con los privados y privadas de libertad y relaciones de estricto respeto.

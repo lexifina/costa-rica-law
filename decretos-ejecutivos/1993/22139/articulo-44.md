@@ -1,0 +1,1 @@
+Artículo 44.— Obligatoriedad de confeccionar el reporte. El reporte debe ser confeccionado por el funcionario o los funcionarios que conozca (n) del hecho, dentro de las cuarenta y ocho horas posteriores al conocimiento de la presunta falta.

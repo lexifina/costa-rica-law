@@ -1,0 +1,1 @@
+Artículo 57.— Plazo de conclusión del procedimiento. El procedimiento deberá concluirse en un plazo máximo de dos meses. Queda a salvo la posibilidad de suspender dicho plazo, a petición de parte o de oficio, cuando se presente fuerza mayor o caso fortuito. En todo caso, la suspensión deberá ser notificada al interesado o interesada.

@@ -1,0 +1,1 @@
+Artículo 16.— Derecho a la integración comunal y familiar. Todo privado o privada de libertad tiene derecho a la interrelación con su familia, recursos sustitutos o de apoyo comunitario sin más limitaciones que las estrictamente necesarias.

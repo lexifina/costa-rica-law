@@ -1,0 +1,1 @@
+Artículo 46.—Remisión y distribución del reporte. El reporte será remitido al Director del ámbito de convivencia o al Director del Centro, quien lo hará llegar al funcionario del Área Jurídica o Área de Convivencia, según corresponda, a efecto de que instruya el procedimiento. En el caso del Nivel en Comunidad el responsable de la Oficina se encargará de instruir el reporte.

@@ -1,0 +1,1 @@
+Artículo 2°.— Deberes de la Administración. Los diferentes órganos administrativos y los funcionarios y funcionarías de la Dirección General de Adaptación Social están en la obligación de velar por el efectivo cumplimiento y aplicación de esta normativa enmarcándola dentro del ordenamiento jurídico y lineamientos institucionales vigentes.

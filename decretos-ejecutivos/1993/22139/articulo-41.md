@@ -1,0 +1,1 @@
+Artículo 41.— Inicio y conclusión. El procedimiento disciplinario se inicia con la confección del reporte y concluye con la resolución del Consejo de Valoración o del Instituto Nacional de Criminología cuando le corresponde la decisión del mismo.

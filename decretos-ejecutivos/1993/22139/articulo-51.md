@@ -1,0 +1,1 @@
+Artículo 51. — Acceso al expediente. Las partes y sus representantes, y cualquier abogado o abogada, previa identificación, tendrá derecho a examinar, leer y copiar piezas del expediente, así como a pedir certificación de las mismas, con las salvedades que indica el Artículo siguiente. El costo de las copias y certificaciones será de cuenta del solicitante.

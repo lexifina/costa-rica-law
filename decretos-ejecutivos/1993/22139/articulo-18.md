@@ -1,0 +1,1 @@
+Artículo 18.— Derecho a la adecuada convivencia. Todo privado o privada de libertad tiene derecho a convivir en un ambiente adecuado para la vida en común, sin más limitaciones que las estrictamente necesarias.

@@ -1,0 +1,1 @@
+Artículo 42.—Deber de denunciar. Cuando los hechos que dan lugar al reporte puedan configurar un ilícito penal, el director del ámbito de convivencia en donde estaba ubicado el privado o privada de libertad o el responsable de la Oficina donde esté adscrito, al momento de la comisión de los hechos deberá interponer la denuncia ante la autoridad Judicial correspondiente.

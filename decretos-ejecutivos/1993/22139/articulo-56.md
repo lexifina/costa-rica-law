@@ -1,0 +1,1 @@
+Artículo 56.— Notificación. La resolución deberá ser notificada íntegramente al privado o privada de libertad, dejando constancia de ello en el expediente y copia del acuerdo con la firma de recibido del privado o privada de libertad.

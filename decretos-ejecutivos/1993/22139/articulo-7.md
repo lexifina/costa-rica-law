@@ -1,0 +1,1 @@
+Artículo 7°.— Derecho de petición. Todo privado o privada de libertad tiene derecho a dirigir peticiones o quejas a las autoridades públicas o instancias privadas internas o extremas al Sistema Penitenciario.

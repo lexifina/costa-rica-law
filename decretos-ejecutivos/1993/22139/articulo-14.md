@@ -1,0 +1,1 @@
+Artículo 14.—Derecho a la visita conyugal. Todo privado o privada de libertad del Nivel Institucional tendrá derecho a recibir visita conyugal de acuerdo con las disposiciones vigentes y las condiciones de cada Centro.
