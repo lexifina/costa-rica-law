@@ -21,3 +21,4 @@ Reglamento para el Sistema de Ahorro y Préstamo del Instituto Nacional de Vivie
 | 6 | 1960-05-05 | Decreto Ejecutivo 6 (1960-05-05) |
 | 7 | 1960-07-06 | Decreto Ejecutivo 9 (1960-07-06) |
 | 8 | 1961-08-21 | Decreto Ejecutivo 6 (1961-08-21) |
+| 9 | 1982-04-26 | Reglamento 3332 (1982-04-26) |
