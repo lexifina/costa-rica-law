@@ -1,0 +1,1 @@
+Artículo 4º—Los integrantes de la Comisión serán nombrados por el titular de cada institución y dependencia, por un período de dos años prorrogables, y ejercerán sus funciones dentro del órgano colegiado en forma ad-honorem.
