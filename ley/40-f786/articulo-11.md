@@ -1,0 +1,1 @@
+Artículo 11.-En caso de extravío de la cédula, el interesado podrá pedir una certificación a la oficina expedidora. Esta certificación será extendida en papel de un colón y timbrada con sello de igual valor.

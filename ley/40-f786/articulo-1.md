@@ -1,0 +1,6 @@
+N° 40
+(Nota de Sinalevi: Se respeta la ortografía y gramática del texto original)
+EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA DECRETA:
+CAPITULO I
+De la Cédula de Identidad
+Artículo 1°-Todo habitante de la República, varón, mayor de edad, o emancipado, debe adquirir y portar la cédula de identidad que por la presente ley se crea. Los costarricenses menores de edad, que en virtud de las leyes puedan ejercer el derecho del sufragio, deberán también proveerse de cédula para ejercerlo. Las mujeres, mayores de edad, que en virtud de las prescripciones del Capítulo II de esta ley estén en la obligación de pagar el impuesto cedular de ingresos, deberán también adquirir y portar cédula de identidad. Las corporaciones o personas jurídicas radicadas en el país que tuvieren un ingreso igual o mayor al señalado en el Capítulo D como mínimo para el impuesto cedular de ingresos, así como todas las personas físicas o morales, sean o no costarricenses, que tengan bienes o empresas o que de cualquiera otra fuente reciban una entrada en dinero o su equivalente originado en el país, que sea igualo mayor al mínimum señalado por el dicho impuesto, aunque residan fuera de la República, deberán también adquirir y portar cédula de identidad, que usarán sus personeros en todas aquellas operaciones en que es obligatorio para las personas morales.

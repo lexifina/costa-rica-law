@@ -1,0 +1,1 @@
+Artículo 13.-El que requerido por la autoridad en ejercicio de sus funciones, se negare a mostrar su cédula de indentidad, incurrirá en las penas que marca el artículo 555 del Código Penal, salvo el caso de extravío y comprobación de que la cédula le había sido expedida.

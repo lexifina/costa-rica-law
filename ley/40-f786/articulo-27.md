@@ -1,0 +1,1 @@
+Artículo 27.-El Poder Ejecutivo emitirá el reglamento necesario para el servicio de la cédula de identidad y para el cobro del impuesto que por esta misma ley se crea. Mientras se cobre este impuesto cedular, no deberá hacerse efectivo el de la renta que está hoy en suspenso por falta de la debida reglamentación.

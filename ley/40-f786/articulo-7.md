@@ -1,0 +1,1 @@
+Artículo 7°-La Tributación Directa y el Registro Público no darán el pase a ningún instrumento público otorgado entre personas que deban pagar el Impuesto Cedular, hasta tanto no se presente el comprobante respectivo en que conste estar pagado dicho impuesto.

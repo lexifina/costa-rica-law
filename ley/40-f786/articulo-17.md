@@ -1,0 +1,1 @@
+Artículo 17.-Las personas que notificadas por primera vez no presenten en la fecha reglamentaria sus declaraciones, incurrirán en una multa de cinco a cincuenta colones; las que a la segunda advertencia no lo verifiquen, serán tasadas de oficio por la Administración, sin lugar a reclamo.

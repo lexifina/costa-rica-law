@@ -1,0 +1,1 @@
+Artículo 19.-La tasación de oficio o de acuerdo con la declaración, no perjudica el derecho del Fisco para reclamar toda diferencia que pudiera haber, en cualquier tiempo que se compruebe el error o la defraudación.
