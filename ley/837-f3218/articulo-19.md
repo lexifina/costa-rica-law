@@ -1,0 +1,1 @@
+Articulo 19. -Las personas que de acuerdo con lo dispuesto en los artículo 16 y 17, hayan hecho una primera declaración, seguirán haciéndola en los años futuros, a menos que cesen completamente en sus actividades, caso en el que deberán dar cumplimiento a lo que preceptúa el articulo 35.

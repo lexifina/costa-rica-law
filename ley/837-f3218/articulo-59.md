@@ -1,0 +1,2 @@
+Articulo 59.-Derógase el capítulo segundo de la ley N° 40 de 14 de noviembre de 1931 y sus reformas, que trata del Impuesto Cedular de Ingresos.
+Derógase asimismo los artículos 1° y 2° de la ley N° 15 de 18 de octubre de 1940, que exime del Impuesto Cedular de Ingresos a las empresas teatrales y establece uno especial, y la ley N° 73 de 18 de diciembre de 1916, que creó el Impuesto sobre la Renta.

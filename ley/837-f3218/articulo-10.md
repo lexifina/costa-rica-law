@@ -1,0 +1,1 @@
+Artículo 10. -La renta líquida proveniente de bienes raíces (número 1 del artículo 5°) se determinará, deduciendo de la renta bruta los gastos necesarios para producirla, incluyendo, cuando se trata de edificaciones, un porcentaje razonable para depreciación que la Oficina de Tributación estimará en cada caso.

@@ -1,0 +1,1 @@
+Artículo 37.-El adquirente de bienes o negocios de cualquier especie es responsable del pago del impuesto sobre la renta que adeude su antecesor por dichos bienes o negocios, salvo que en el documento de traspaso se incluya constancia de la Dirección General de la Tributación de que el vendedor está al día en el pago del impuesto.
