@@ -1,0 +1,2 @@
+Artículo 4º.- Rige a partir de su publicación.
+Transitorio único.- La Dirección General de Educación Física y Deportes deberá comunicar al Ministerio de Hacienda, dentro de los ocho días posteriores a la entrada en vigencia de esta ley, la lista completa de los implementos deportivos correspondientes a las actividades enunciadas, que quedan exentos del pago de impuestos. Ello para que el citado Ministerio de Hacienda tome las medidas pertinentes, a fin de que la exención surta sus efectos lo antes posible.
