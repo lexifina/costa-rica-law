@@ -1,0 +1,3 @@
+"Artículo 3º bis.—El MEIC creará una estructura organizativa funcional especializada en PYMES, denominada Dirección General de Apoyo de la Pequeña y Mediana Empresa (DIGEPYME). Esta Dirección tendrá, como mínimo las siguientes áreas de desarrollo: comercialización; capacitación y asistencia técnica; financiamiento; información; desarrollo sostenible; innovación tecnológica y cooperación internacional.
+La Dirección tendrá entre sus funciones y atribuciones las señaladas en el artículo 3 de la presente Ley, así como las que le asigna la Ley de Fortalecimiento de la Pequeña y Mediana Empresa."
+(Así adicionado por el inciso b) del artículo 30 de la Ley N° 8262 de 2 de mayo del 2002, Ley de Fortalecimiento de las Pequeñas y Medianas Empresas)
