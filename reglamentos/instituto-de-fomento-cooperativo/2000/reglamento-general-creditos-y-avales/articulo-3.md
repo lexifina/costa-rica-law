@@ -1,0 +1,1 @@
+Artículo 3°—La tramitación y estudio de las solicitudes de crédito deberán atender las políticas establecidas por la Junta Directiva, no implica compromiso alguno para el INFOCOOP, que podrá conceder una suma inferior a la solicitada y desechar la propuesta, aún cuando se hubiesen satisfecho todos los requisitos reglamentarios.

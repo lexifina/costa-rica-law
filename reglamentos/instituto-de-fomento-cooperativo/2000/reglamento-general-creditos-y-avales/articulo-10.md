@@ -1,0 +1,1 @@
+Artículo 10.—A fin de promover la integración cooperativa, las Federaciones Uniones, Organismos Auxiliares y la Confederación Nacional serán sujetos de crédito para el INFOCOOP y la concesión de los mismos estará normada por las mismas estipulaciones o regulaciones previstas para las cooperativas de base o individuales, en cuanto les fuere aplicable.

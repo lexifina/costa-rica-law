@@ -1,0 +1,2 @@
+Artículo 25.—Transcurrido el período señalado para el cobro Administrativo estipulado por el Reglamento de Cobro Judicial, de una obligación vencida por la que no hubiere prórroga autorizada, ni se encontrare en proceso de adecuación o novación de deudor, se realizará la acción judicial pertinente.
+La deudora para regularizar su situación deberá suscribir un nuevo contrato de préstamo o firmar addendum. Según sea el caso, que incluirá las nuevas condiciones crediticias previo estudio técnico y dictamen de la Comisión de Crédito.

@@ -1,0 +1,3 @@
+Artículo 12.—
+a) Podrán otorgarle a un mismo organismo cooperativo, préstamos que en conjunto (considerando para este efecto, el saldo de préstamos anteriores más el préstamo que están solicitando, más el saldo de los avales), no excedan del 5% del patrimonio del INFOCOOP, siempre y cuando no sobrepase el 20% del presupuesto anual de colocaciones y el tope por actividad no sobrepase el 20% del patrimonio total.
+b) Estas disposiciones no serán válidas en el caso de recursos que se obtengan para un destino específico que no se pueda considerar como dentro del cumplimiento de sus finalidades generales y que esté contenido en el contrato de acuerdo a la obtención de dichos recursos.
