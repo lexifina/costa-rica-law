@@ -1,0 +1,1 @@
+Art. 2. En consecuencia la expresada Sociedad procederá a organizarse con el número de accionistas que sea posible, y acordando el reglamento que le corresponde, dará principio á sus trabajos dentro de tres meses contados desde esta fecha, para que el camino pueda estar abierto en el término de dos años.
