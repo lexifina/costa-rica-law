@@ -1,4 +1,0 @@
-Artículo 5º—Requisitos para tener acceso a las becas:
-a) Ser costarricense vecino del cantón de Pococí y no disfrutar de ningún, otro auxilio económico para realizar sus estudios, provenga éste de Instituciones públicas o privadas.
-b) Presentar ante la Comisión de becas, a través de los directores de los centros educativos del cantón, del representante legal del menor o directamente la persona interesada en recibir esta ayuda, la solicitud de becas, de acuerdo con los requisitos que en su momento, establezca la Comisión de Becas, los que se harán consignar en el formulario de solicitud. Se deberá consignar en dicho documento, de la forma clara y precisa las calidades y condiciones del solicitante y su petición expresa de obtener la beca, de conformidad con lo que indica el formulario.
-e) Certificación de nacimiento extendida por el Registro Civil. En caso de mayores de edad, estos deberán presentar copia fotostática de la cédula de identidad.

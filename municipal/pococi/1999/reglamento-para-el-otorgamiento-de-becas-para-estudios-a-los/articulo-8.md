@@ -1,1 +1,0 @@
-Artículo 8º—Periodo de duración de las becas. La beca se concederá por el tiempo que el solicitante así lo requiera para tramitar los estudios siempre y cuando cumpla con los requisitos que establece este Reglamento u otro que establezca la Comisión de becas.
