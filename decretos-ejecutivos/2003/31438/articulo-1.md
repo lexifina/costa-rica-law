@@ -1,0 +1,13 @@
+Nº 31438
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley Nº 6227 o Ley General de la Administración Pública de 2 de mayo de 1978, Ley Nº 8131 o Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001, y su Reglamento, así como la Ley N° 6050 del 14 de marzo de 1977.
+Considerando:
+1º—Que la Ley Nº 6050 publicada en La Gaceta Nº 58 del 24 de marzo de 1977, establece que la Fábrica Nacional de Licores (FANAL), es un ente adscrito al Consejo Nacional de Producción, cuyo objetivo primordial es la fabricación y comercialización de licores en el ámbito nacional, procurando darle una mayor importancia a la elaboración de productos de menor contenido alcohólico y de mínima toxicidad y conducirá su propaganda dando preferencia a los productos que elabora.
+2º—Que la Fábrica requiere ejecutar una nueva estrategia de comercialización de productos para el 2004, buscando competir en el mercado local, permitiendo atender aumentos en la demanda no esperados, aprovechar potenciales fuentes de ingresos, aumentar la participación en el mercado y promover el crecimiento de la actividad industrial y comercial.
+3º—Que para implementar y cumplir con las políticas, planes, programas y proyectos para el año 2004, la Fábrica requiere ampliar el límite en ¢668.5 millones, asegurando de esta forma el buen funcionamiento en su operación normal.
+4º—Que mediante el Decreto Ejecutivo N° 31092-H, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, se promulgaron las Directrices Generales de Política Presupuestaria para el año 2004 para los Ministerios, Demás Órganos según Corresponda y Entidades Públicas Cubiertas por el Ámbito de la Autoridad Presupuestaria, las cuales fueron conocidas por el Consejo de Gobierno y1 aprobadas por el Presidente de la República, estableciendo la forma de cálculo y procedimiento para fijar el límite de gasto del período 2004, a FANAL.
+5º—Que mediante oficio Stap-Circular 0485-03 del 22 de abril del 2003, se comunicó a FANAL el límite de gasto fijado para el año 2004.
+6º—Que es necesario modificar el límite fijado, a los efectos de incorporar dichos recursos. Por tanto:
+DECRETAN:
+Artículo 1º—Modifícase a la Fábrica Nacional de Licores el límite de gasto presupuestario para el 2004, establecido en el artículo 1° del Decreto Ejecutivo N° 31092-H, publicado en La Gaceta N° 63 del 31 de marzo del 2003, y comunicado mediante Stap-Circular 0485-03 del 22 de abril del 2003, de manera que el gasto presupuestario no exceda la suma de ¢2,468.9 millones en ese período.
