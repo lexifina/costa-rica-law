@@ -1,0 +1,1 @@
+Artículo 5°—Del pago del excedente de llamadas nacionales. Si el monto del servicio telefónico excediere el indicado en el artículo anterior, el funcionario pagará el excedente de las llamadas realizadas.

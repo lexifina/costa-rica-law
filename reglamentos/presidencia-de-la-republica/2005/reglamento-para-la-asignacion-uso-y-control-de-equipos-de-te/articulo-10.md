@@ -1,0 +1,1 @@
+Artículo 10.—De la devolución del equipo. Si la asignación fuere anulada o revocada, o el funcionario debiere ausentarse de la respectiva entidad por más de 30 días hábiles o fuese despedido, deberá remitir el equipo telefónico y sus accesorios a la Proveeduría del Sistema de Emergencias 9-1-1.

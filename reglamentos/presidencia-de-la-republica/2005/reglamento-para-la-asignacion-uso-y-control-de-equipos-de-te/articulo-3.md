@@ -1,0 +1,1 @@
+Artículo 3°—Del recibo del equipo. Aprobada la asignación, y de previo a su entrega por la Proveeduría de la Institución, el funcionario a quien se le haya hecho la asignación, firmará un recibido conforme, responsabilizándose de los bienes que en él se describan.
