@@ -1,0 +1,2 @@
+Art. 4°- Será suficiente título de propiedad de los terrenos que se adjudiquen con arreglo á esta ley, aun para el efecto de la inscripción, la certificación del expediente dada por el Gobernador.--Los interesados solo pagarán el honorario del agrimensor y los gastos que ocasione la medida conforme á arancel.
+§ único. -La certificación de que se habla en el presente artículo, y el registro del título correspondiente no producen derechos.
