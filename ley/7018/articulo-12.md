@@ -15,8 +15,7 @@ Segundo de Alajuela, que se destinará específicamente para uso de la
 Delegación de la Guardia de Asistencia Rural de ese lugar y para otros usos
 comunales.
 3).-
-a) Vetado.
-Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
+a) VETADO. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
 El Poder Ejecutivo devuelve con la correspondiente sanción constitucional la ley de Presupuesto Ordinario para el Ejercicio Fiscal de 1986, N° 7018, la cual en consecuencia puede ser válidamente ejecutada; pero por razones de inconveniencia devuélvase sin la sanción correspondiente las “Normas Generales” números:
 Artículo 12 incisos 3 a), 40) y 94); Artículo 13 incisos 1), 4), 24), 28), 31) y 46); Artículo 14 incisos 7),11), 12), 16), 42), 43), 44), y 46); Artículo 18, Artículo 19, Artículo 20, Artículo 23, Artículo 24, Artículo 34, Artículo 35, Artículo 36, Artículo 40, Artículo 41, Artículo 42, Artículo 65 y Artículo 67.
 En lo que se refiere al inciso 44 del Artículo 14 el Poder Ejecutivo considera que no es éste el mecanismo más apropiado para lograr las reformas propuestas al Código Penal en sus artículo 333 y 334, que son de gran trascendencia para la institucionalidad del país y el acuerdo equilibrio en el desarrollo de las relaciones laborales.
@@ -135,7 +134,7 @@ quince años a partir de la fecha en que fueron dispuestos; la Corte
 efectuará este reintegro por medio de cuotas anuales que obtendrá del
 porcentaje que le corresponda al Poder Judicial en el Presupuesto Ordinario
 de la República para la atención de sus propias necesidades.
-23.- (*) Autorízase a la Notaría del Estado para que, sin costo alguno,
+23.- Autorízase a la Notaría del Estado para que, sin costo alguno,
 efectúe el traspaso, de la finca situada en los cantones de Montes de Oca
 y Curridabat, distritos de San Rafael y Granadilla Norte, respectivamente,
 a la Asociación Junta Progresista de Barrio Luján, así como los traspasos
@@ -144,8 +143,6 @@ Dicha finca es propiedad de la citada Asociación y se encuentra
 actualmente a nombre del IMAS. Las municipalidades de ambos cantones
 autorizarán, exentas de tasas, la urbanización y construcción de las
 vivie1ndas de los proyectos que ahí se desarrollan.
-(*) (ANULADO este inciso por Resolución de la Sala Constitucional Nº 2157-95
-de las 16:09 horas del 2 de mayo de 1995).
 24.- La Notaría del Estado inscribirá a nombre de la Asociación
 Integral de Desarrollo de la Comunidad de San José de Alajuela, el terreno
 o finca ubicado en ese lugar, que es parque público y que tiene los
@@ -228,7 +225,7 @@ partido de San José, tomo 1885, folio 580, número 181.063, asiento 13
 propiedad de COOPEALIANZA R. L.
 El traspaso lo hará el Instituto Mixto de Ayuda Social, previo pago
 del inmueble a su dueño.
-40.- Vetado. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
+40.- VETADO. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
 El Poder Ejecutivo devuelve con la correspondiente sanción constitucional la ley de Presupuesto Ordinario para el Ejercicio Fiscal de 1986, N° 7018, la cual en consecuencia puede ser válidamente ejecutada; pero por razones de inconveniencia devuélvase sin la sanción correspondiente las “Normas Generales” números:
 Artículo 12 incisos 3 a), 40) y 94); Artículo 13 incisos 1), 4), 24), 28), 31) y 46); Artículo 14 incisos 7),11), 12), 16), 42), 43), 44), y 46); Artículo 18, Artículo 19, Artículo 20, Artículo 23, Artículo 24, Artículo 34, Artículo 35, Artículo 36, Artículo 40, Artículo 41, Artículo 42, Artículo 65 y Artículo 67.
 En lo que se refiere al inciso 44 del Artículo 14 el Poder Ejecutivo considera que no es éste el mecanismo más apropiado para lograr las reformas propuestas al Código Penal en sus artículo 333 y 334, que son de gran trascendencia para la institucionalidad del país y el acuerdo equilibrio en el desarrollo de las relaciones laborales.
@@ -457,13 +454,8 @@ de la legua de Aserrí par que utilice la partida de ¢ 75.000, código
 fecha, en la cancelación de la deuda que tiene con el Banco Popular y de
 Desarrollo Comunal, contraída para la construcción de la primera etapa del
 acueducto.
-81.- (*) Autorízase a la Asociación de Desarrollo del INVU-Cañas,
-para que inscriba a su nombre, exenta de todo tipo de impuestos, tasas,
-derechos y timbres, la finca Nº 172873 de su propiedad, situada en el
-distrito de Desamparados, cantón central de Alajuela, para campos
-deportivos.
-(*) ANULADO por Resolución de la Sala Constitucional No. 1924-98 de las
-18:00 horas del 17 de marzo de 1998.
+81.- ANULADO por Resolución de la Sala Constitucional No. 1924-98 de
+las 18:00 horas del 17 de marzo de 1998.
 82.- La Asociación Integral de Desarrollo de la Comunidad de Barrio San
 José podrá depositar en su cuenta corriente los giros de gobierno números
 850921718 y 850921714, y usar esos recursos en el desarrollo de sus fines.
@@ -503,8 +495,8 @@ lugar denominado la "Y Griega".
 Guanacaste, con asiento en Liberia, para que reciba, procedente del
 exterior, donaciones de equipo médico-quirúrgico e higiénico, exento de
 toda clase de impuestos.
-(*) ANULADO por Resolución de la Sala Constitucional Nº 759-92 de las
-15:00 horas del 17 de marzo de 1992.
+(*) ANULADO por Resolución de la Sala IV Nº 759-92 de las 15:00 horas del
+17 de marzo de 1992.
 90.- Autorízase a la Cooperativa de Ahorro y Crédito de la Comunidad
 de Orotina, R. L., para que adquiera, libre de todo tipo de impuestos un
 vehículo de trabajo para carga de hasta cinco (5) toneladas. Asimismo, se
@@ -529,7 +521,7 @@ de Alemania para que done al Centro de Estudios y Capacitación Cooperativa
 (CENECOOP, R. L.) tres vehículos de su propiedad marca Volkswagen, modelos
 1976 y 1979, este último en mal estado. Su inscripción en el Registro
 estará exenta del pago de todo tipo de derechos.
-94.- Vetado. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
+94.- VETADO. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
 El Poder Ejecutivo devuelve con la correspondiente sanción constitucional la ley de Presupuesto Ordinario para el Ejercicio Fiscal de 1986, N° 7018, la cual en consecuencia puede ser válidamente ejecutada; pero por razones de inconveniencia devuélvase sin la sanción correspondiente las “Normas Generales” números:
 Artículo 12 incisos 3 a), 40) y 94); Artículo 13 incisos 1), 4), 24), 28), 31) y 46); Artículo 14 incisos 7),11), 12), 16), 42), 43), 44), y 46); Artículo 18, Artículo 19, Artículo 20, Artículo 23, Artículo 24, Artículo 34, Artículo 35, Artículo 36, Artículo 40, Artículo 41, Artículo 42, Artículo 65 y Artículo 67.
 En lo que se refiere al inciso 44 del Artículo 14 el Poder Ejecutivo considera que no es éste el mecanismo más apropiado para lograr las reformas propuestas al Código Penal en sus artículo 333 y 334, que son de gran trascendencia para la institucionalidad del país y el acuerdo equilibrio en el desarrollo de las relaciones laborales.
@@ -556,8 +548,8 @@ cooperativa cogestionaria, puestos libres de todo derecho en sus
 respectivos mercados, a efecto de que pueda ofrecer directamente la
 producción hortícola, para evitar o minimizar la acción de los
 intermediarios.
-(*) ANULADO por Resolución de la Sala Constitucional Nº 759-92 de las
-15:00 horas del 17 de marzo de 1992.
+(*) ANULADO por Resolución de la Sala IV Nº 759-92 de las 15:00 horas del
+17 de marzo de 1992.
 4.- De conformidad con el artículo 132 de la Ley de Asociaciones
 Cooperativas, el Banco Nacional de Costa Rica y los demás bancos
 comerciales del Estado, podrán conceder créditos a mediano y largo plazo a

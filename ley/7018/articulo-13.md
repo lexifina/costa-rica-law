@@ -1,6 +1,6 @@
 Artículo 13.- Apruébanse las exoneraciones que a continuación se
 detallan:
-1º.- Vetado. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
+1º.- VETADO. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
 El Poder Ejecutivo devuelve con la correspondiente sanción constitucional la ley de Presupuesto Ordinario para el Ejercicio Fiscal de 1986, N° 7018, la cual en consecuencia puede ser válidamente ejecutada; pero por razones de inconveniencia devuélvase sin la sanción correspondiente las “Normas Generales” números:
 Artículo 12 incisos 3 a), 40) y 94); Artículo 13 incisos 1), 4), 24), 28), 31) y 46); Artículo 14 incisos 7),11), 12), 16), 42), 43), 44), y 46); Artículo 18, Artículo 19, Artículo 20, Artículo 23, Artículo 24, Artículo 34, Artículo 35, Artículo 36, Artículo 40, Artículo 41, Artículo 42, Artículo 65 y Artículo 67.
 En lo que se refiere al inciso 44 del Artículo 14 el Poder Ejecutivo considera que no es éste el mecanismo más apropiado para lograr las reformas propuestas al Código Penal en sus artículo 333 y 334, que son de gran trascendencia para la institucionalidad del país y el acuerdo equilibrio en el desarrollo de las relaciones laborales.
@@ -14,25 +14,13 @@ la compra de instrumentos musicales que sean destinados exclusivamente el
 servicio de esas instituciones educativas. También estará exenta de ese
 impuesto la impresión de discos hecha por grupos estudiantiles y culturales
 que no persiguen fines comerciales.
-4º.- Vetado. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
+4º.- VETADO. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
 El Poder Ejecutivo devuelve con la correspondiente sanción constitucional la ley de Presupuesto Ordinario para el Ejercicio Fiscal de 1986, N° 7018, la cual en consecuencia puede ser válidamente ejecutada; pero por razones de inconveniencia devuélvase sin la sanción correspondiente las “Normas Generales” números:
 Artículo 12 incisos 3 a), 40) y 94); Artículo 13 incisos 1), 4), 24), 28), 31) y 46); Artículo 14 incisos 7),11), 12), 16), 42), 43), 44), y 46); Artículo 18, Artículo 19, Artículo 20, Artículo 23, Artículo 24, Artículo 34, Artículo 35, Artículo 36, Artículo 40, Artículo 41, Artículo 42, Artículo 65 y Artículo 67.
 En lo que se refiere al inciso 44 del Artículo 14 el Poder Ejecutivo considera que no es éste el mecanismo más apropiado para lograr las reformas propuestas al Código Penal en sus artículo 333 y 334, que son de gran trascendencia para la institucionalidad del país y el acuerdo equilibrio en el desarrollo de las relaciones laborales.
 No obstante, el Poder Ejecutivo deja constancia que habida cuenta que tales artículos del Código Penal han producido roces en su aplicación e interpretación; y preocupado de que puedan no estar acordes con las garantías constitucionales básicas de índole social, ni con los Convenios Internacionales de la Organización Internacional del Trabajo, el Poder Ejecutivo, consciente de tal situación, elaborará un proyecto de ley que tome en cuenta los factores que inciden en una adecuada regulación de los problemas que esos artículos pretenden solucionar y lo enviará oportunamente al Poder Legislativo para su trámite ordinario como lo señala la Constitución Política.
-5º.- (*) Los complejos habitacionales de interés social, bajo la
-declaratoria expresa del Instituto Nacional de Vivienda y Urbanismo o del
-Instituto Mixto de Ayuda Social, realizados por cooperativas, sindicatos,
-asociaciones solidaristas, asociaciones de desarrollo comuna, por otras
-organizaciones sin fines de lucro y por aquellas empresas constructoras que
-desarrollen programas de vivienda de interés social gozarán de todos lo
-derechos especiales de los programas y normas especificas de facilidades
-crediticias, de subvenciones, de exoneración de los impuestos de consumo,
-ventas y estabilización económica, exclusivamente durante la etapa de
-construcción de cada uno de los proyectos habitacionales que propulsen en
-cuando a la adquisición de todos los elementos materiales que necesiten
-para desarrollarlos.
-(*) ANULADO por Resolución de la Sala Constitucional Nº 759-92 de las
-15:00 horas del 17 de marzo de 1992.
+5º.- ( ANULADO por Resolución de la Sala Constitucional Nº 759-92 de
+las 15:00 horas del 17 de marzo de 1992 ).
 6º.- Exonérase del pago de todo tipo de impuestos a la Asociación de
 Desarrollo Universitario de Cartago, para la compra de un vehículo de
 pasajeros, y de sus repuestos.
@@ -67,8 +55,8 @@ Pacífico Central para la consecución de sus fines, estarán exentos del
 pago de toda clase de tasas, sobretasas, impuestos, a excepción de un
 arancel máximo del 30% (Ad-Valórem) sobre su valor CIF puerto
 costarricense.
-(*) ANULADO por Resolución de la Sala Constitucional Nº 759-92 de las
-15:00 horas del 17 de marzo de 1992.
+(*) ANULADO por Resolución de la Sala IV Nº 759-92 de las 15:00 horas del
+17 de marzo de 1992.
 12.- Exonérase a la Asociación pro Hospital Nacional de Niños del pago
 de todo tipo de impuestos sobretasas, ventas y otros, para la compra de un
 vehículo que será rifado. Los beneficios económicos que se obtengan serán
@@ -88,8 +76,8 @@ de San José de Alajuela, para la construcción y puesta en uso de los
 gimnasios o salones de multiuso de los liceos; San Rafael de Alajuela,
 Gregorio José Ramírez, Carlos Luis Fallas, y de los comités de deportes
 de San Mateo y Orotina.
-(*) ANULADO por Resolución de la Sala Constitucional Nº 759-92 de las
-15:00 horas del 17 de marzo de 1992.
+(*) ANULADO por Resolución de la Sala IV Nº 759-92 de las 15:00 horas del
+17 de marzo de 1992.
 15.- Exonérase del pago de todo tipo de impuestos, tasas, timbres,
 derechos, a las acciones de desarrollo integral de las comunidades de
 Carrizal, villa Bonita, Rosales de Desamparados y Sabanilla, todos de
@@ -128,8 +116,8 @@ social. Asimismo, se concede igual exoneración para las donaciones de
 los bienes y servicios citados que hagan a la Asociación personas físicas
 o jurídicas, organizaciones sociales, internacionales u organismos
 gubernamentales.
-(*) ANULADO por Resolución de la Sala Constitucional Nº 759-92 de las
-15:00 horas del 17 de marzo de 1992.
+(*) ANULADO por Resolución de la Sala IV Nº 759-92 de las 15:00 horas del
+17 de marzo de 1992.
 21.- Exonérase de toda clase de impuestos, tasas, sobretasas, timbres
 y derechos de aduana el vehículo tipo rural, marca LADA NIVA, 2121, 4 X 4,
 modelo 1985, de 1 570 cc., que adquirirá el Centro de Capacitación para el
@@ -142,7 +130,7 @@ de Desamparados.
 23.- Exonérase de todos los impuestos, tasas y sobretasas, excepto del
 impuesto de ventas, a la Federación de Organizaciones Voluntarias para la
 compra de una máquina fotocopiadora.
-24.- Vetado. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
+24.- VETADO. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
 El Poder Ejecutivo devuelve con la correspondiente sanción constitucional la ley de Presupuesto Ordinario para el Ejercicio Fiscal de 1986, N° 7018, la cual en consecuencia puede ser válidamente ejecutada; pero por razones de inconveniencia devuélvase sin la sanción correspondiente las “Normas Generales” números:
 Artículo 12 incisos 3 a), 40) y 94); Artículo 13 incisos 1), 4), 24), 28), 31) y 46); Artículo 14 incisos 7),11), 12), 16), 42), 43), 44), y 46); Artículo 18, Artículo 19, Artículo 20, Artículo 23, Artículo 24, Artículo 34, Artículo 35, Artículo 36, Artículo 40, Artículo 41, Artículo 42, Artículo 65 y Artículo 67.
 En lo que se refiere al inciso 44 del Artículo 14 el Poder Ejecutivo considera que no es éste el mecanismo más apropiado para lograr las reformas propuestas al Código Penal en sus artículo 333 y 334, que son de gran trascendencia para la institucionalidad del país y el acuerdo equilibrio en el desarrollo de las relaciones laborales.
@@ -154,7 +142,7 @@ Asociación Cáritas Nacional de Costa Rica, cédula jurídica Nº
 3-002-045-59003. Asimismo, se autoriza a todas las instituciones
 autónomas, semiautónomas, a las empresas del Estado y a las municipales,
 para que aporten o donen recursos a favor de Cáritas de Costa Rica.
-(*) ANULADO por Resolución de la Sala Constitucional Nº 759-92 de las 15:00 horas del
+(*) ANULADO por Resolución de la Sala IV Nº 759-92 de las 15:00 horas del
 17 de marzo de 1992.
 26.- Exonérase a la Cooperativa Agrícola Industrial El General, R. L.
 del pago de impuestos arancelarios y demás gravámenes conexos, incluidos
@@ -169,7 +157,7 @@ derechos de aduana a la Asociación Club Rotario de Alajuela para que
 desalmacene de la Aduana Principal un vehículo marca Ford, tipo TELSTAR,
 modelo 1985, motor F-8- 194344; donado por Nacional Automotriz (N.A.S.A.,
 S. A.).
-28.- Vetado. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
+28.- VETADO. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
 El Poder Ejecutivo devuelve con la correspondiente sanción constitucional la ley de Presupuesto Ordinario para el Ejercicio Fiscal de 1986, N° 7018, la cual en consecuencia puede ser válidamente ejecutada; pero por razones de inconveniencia devuélvase sin la sanción correspondiente las “Normas Generales” números:
 Artículo 12 incisos 3 a), 40) y 94); Artículo 13 incisos 1), 4), 24), 28), 31) y 46); Artículo 14 incisos 7),11), 12), 16), 42), 43), 44), y 46); Artículo 18, Artículo 19, Artículo 20, Artículo 23, Artículo 24, Artículo 34, Artículo 35, Artículo 36, Artículo 40, Artículo 41, Artículo 42, Artículo 65 y Artículo 67.
 En lo que se refiere al inciso 44 del Artículo 14 el Poder Ejecutivo considera que no es éste el mecanismo más apropiado para lograr las reformas propuestas al Código Penal en sus artículo 333 y 334, que son de gran trascendencia para la institucionalidad del país y el acuerdo equilibrio en el desarrollo de las relaciones laborales.
@@ -179,7 +167,7 @@ timbres, derechos de aduana y de muellaje a la Asociación de Desarrollo
 Universitario de Cartago, para la compra de un autobús y de sus repuestos.
 30.- Exonérase a la Asociación Nacional de Educadores (ANDE) del pago de
 todo tipo de impuestos, para la adquisición de dos (2) vehículos.
-31.- Vetado. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
+31.- VETADO. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
 El Poder Ejecutivo devuelve con la correspondiente sanción constitucional la ley de Presupuesto Ordinario para el Ejercicio Fiscal de 1986, N° 7018, la cual en consecuencia puede ser válidamente ejecutada; pero por razones de inconveniencia devuélvase sin la sanción correspondiente las “Normas Generales” números:
 Artículo 12 incisos 3 a), 40) y 94); Artículo 13 incisos 1), 4), 24), 28), 31) y 46); Artículo 14 incisos 7),11), 12), 16), 42), 43), 44), y 46); Artículo 18, Artículo 19, Artículo 20, Artículo 23, Artículo 24, Artículo 34, Artículo 35, Artículo 36, Artículo 40, Artículo 41, Artículo 42, Artículo 65 y Artículo 67.
 En lo que se refiere al inciso 44 del Artículo 14 el Poder Ejecutivo considera que no es éste el mecanismo más apropiado para lograr las reformas propuestas al Código Penal en sus artículo 333 y 334, que son de gran trascendencia para la institucionalidad del país y el acuerdo equilibrio en el desarrollo de las relaciones laborales.
@@ -232,8 +220,8 @@ solicitará la aprobación previa del Ministerio de Salud y de la Caja
 Costarricense de Seguro Social. Asimismo, se declara de utilidad pública
 a esta organización. Al respecto deberá publicarse el decreto
 correspondiente.
-(*) ANULADO por Resolución de la Sala Constitucional Nº 759-92 de las
-15:00 horas del 17 de marzo de 1992.
+(*) ANULADO por Resolución de la Sala IV Nº 759-92 de las 15:00 horas del
+17 de marzo de 1992.
 40.- Autorízase a la Escuela de Enseñanza Especial de Grecia para que
 compre o importe, libre de toda clase de impuestos un microbús para el
 traslado de los minusválidos que asistan a dicho centro educativo.
@@ -241,8 +229,8 @@ traslado de los minusválidos que asistan a dicho centro educativo.
 todo tipo de impuesto, tasas, sobretasas, timbres y derechos, para la
 adquisición de equipo, materiales y suministros para el cumplimiento de
 sus funciones.
-(*) ANULADO por Resolución de la Sala Constitucional Nº 759-92 de las
-15:00 horas del 17 de marzo de 1992.
+(*) ANULADO por Resolución de la Sala IV Nº 759-92 de las 15:00 horas del
+17 de marzo de 1992.
 42.- Exonérase del pago de los impuestos de ventas, selectivos de
 consumo sobretasas, muellaje y consular, 10% sobre las exenciones y 3%
 sobre el valor CIF, el vehículo marca Mercedes Benz, jeep de gasolina,
@@ -273,9 +261,9 @@ materiales para la construcción de instalaciones deportivas y
 recreativas.
 Asimismo, para la adquisición de terrenos, los traspasos serán
 hechos por la Notaría de Estado en iguales condiciones a las del Estado.
-(*) ANULADO por Resolución de la Sala Constitucional Nº 759-92 de las
-15:00 horas del 17 de marzo de 1992.
-46.- Vetado. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
+(*) ANULADO por Resolución de la Sala IV Nº 759-92 de las 15:00 horas del
+17 de marzo de 1992.
+46.- VETADO. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
 El Poder Ejecutivo devuelve con la correspondiente sanción constitucional la ley de Presupuesto Ordinario para el Ejercicio Fiscal de 1986, N° 7018, la cual en consecuencia puede ser válidamente ejecutada; pero por razones de inconveniencia devuélvase sin la sanción correspondiente las “Normas Generales” números:
 Artículo 12 incisos 3 a), 40) y 94); Artículo 13 incisos 1), 4), 24), 28), 31) y 46); Artículo 14 incisos 7),11), 12), 16), 42), 43), 44), y 46); Artículo 18, Artículo 19, Artículo 20, Artículo 23, Artículo 24, Artículo 34, Artículo 35, Artículo 36, Artículo 40, Artículo 41, Artículo 42, Artículo 65 y Artículo 67.
 En lo que se refiere al inciso 44 del Artículo 14 el Poder Ejecutivo considera que no es éste el mecanismo más apropiado para lograr las reformas propuestas al Código Penal en sus artículo 333 y 334, que son de gran trascendencia para la institucionalidad del país y el acuerdo equilibrio en el desarrollo de las relaciones laborales.
@@ -287,5 +275,5 @@ tipo de impuestos.
 consumo, sobretasas, muellaje y consular 10% sobre las exenciones y 3%
 sobre el valor CIF los materiales y equipos que se utilicen en la
 producción de alimentos y bebidas bajo el sistema "Tetra Brick".
-(*) ANULADO por Resolución de la Sala Constifucional Nº 759-92 de las
-15:00 horas del 17 de marzo de 1992.
+(*) ANULADO por Resolución de la Sala IV Nº 759-92 de las 15:00 horas del
+17 de marzo de 1992.

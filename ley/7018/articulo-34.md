@@ -1,4 +1,4 @@
-Artículo 34.- Vetado.
+Artículo 34.- VETADO.
 Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
 El Poder Ejecutivo devuelve con la correspondiente sanción constitucional la ley de Presupuesto Ordinario para el Ejercicio Fiscal de 1986, N° 7018, la cual en consecuencia puede ser válidamente ejecutada; pero por razones de inconveniencia devuélvase sin la sanción correspondiente las “Normas Generales” números:
 Artículo 12 incisos 3 a), 40) y 94); Artículo 13 incisos 1), 4), 24), 28), 31) y 46); Artículo 14 incisos 7),11), 12), 16), 42), 43), 44), y 46); Artículo 18, Artículo 19, Artículo 20, Artículo 23, Artículo 24, Artículo 34, Artículo 35, Artículo 36, Artículo 40, Artículo 41, Artículo 42, Artículo 65 y Artículo 67.
