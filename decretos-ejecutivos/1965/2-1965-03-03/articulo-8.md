@@ -11,3 +11,5 @@ Son atribuciones del Consejo:
 4) Conocer de los asuntos disciplinarios que le asigna el presente reglamento;
 5) Integrar las Comisiones Permanentes y Especiales que requiera la marcha de la institución;
 6) Conocer de las gestiones que plantee la Directiva del Gobierno Estudiantil;
+7) Dictar el Reglamento Interno del Colegio, para cuya vigencia necesita de la aprobación del Ministerio de Educación Pública. El Reglamento Interno se hará sin contrariar las normas generales del Reglamento General de Establecimientos Oficiales de Educación Media.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 2425 del 26 de junio de 1972).
