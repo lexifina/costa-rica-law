@@ -1,0 +1,1 @@
+Articulo 8°-De cada una de la cuotas anuales de amortización e interés del que pague el Instituto Nacional de Seguros al respectivo Banco Comercial Estado, de acuerdo con lo previsto en los artículos 3° y 5° de esta ley, el Banco que reciba el pago, reembolsará al Instituto el cincuenta por ciento (50%) del monto de la cuota.

@@ -1,0 +1,1 @@
+Articulo 3°-Los pagarés tendrán un plazo de diez (10) años contados a partir de la fecha de su emisión y devengarán un interés del cuatro por ciento anual. La amortización e intereses se cubrirán mediante una cuota anual fija y consecutiva.
