@@ -1,0 +1,5 @@
+Artículo 9°—No obstante lo anterior la dirección y control, tanto de las gestiones administrativas internas como de las de cobro judicial, estarán a cargo y responsabilidad de la Unidad de Cobros.
+A esta Unidad de Cobros corresponde ejercer de la labor realizada por los abogados, mediante el siguiente procedimiento:
+a. Realizar revisión mensual de los informes que deberán rendir, en este mismo término, los abogados de acuerdo con lo que establece este Reglamento.
+b. Mediante requerimiento escrito de la Unidad encargada del cobro sobre el avance de cada proceso o de alguna gestión en particular, de cualquier cuenta que se encuentre en gestión judicial.
+c. Los funcionarios (as) de la Unidad de Cobros deberán informar, a la jefatura inmediata, de cualquier anomalía o irregularidad observada en el desempeño de la labor profesional de los abogados a cargo de los procesos de cobro judicial. Lo anterior con el propósito de realizar una investigación, señalar omisiones e irregularidades en el cobro de cuentas atrasadas y si fuera el caso suspender al abogado de su gestión hasta que este cumpla con las indicaciones expresas establecidas en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 10.—Las gestiones de cobro administrativo se harán por trimestre, previas notificaciones a los sujetos pasivos de las deudas. Anotadas las gestiones administrativas en la recuperación de las cuentas asas, la Unidad de Cobros entregará a los abogados para el proceso de cobro judicial, la documentación necesaria para que inicien los trámites Judiciales.

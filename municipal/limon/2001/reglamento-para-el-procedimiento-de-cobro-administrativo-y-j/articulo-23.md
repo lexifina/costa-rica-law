@@ -1,0 +1,1 @@
+Artículo 23.—Cuando por causas atribuibles al abogado se produjera pérdida de saldos deudores, la Municipalidad podrá plantear las denuncias que considere necesarias y ante las instancias competentes; así mismo será causa de finalización del contrato sin costo alguno para la Municipalidad.

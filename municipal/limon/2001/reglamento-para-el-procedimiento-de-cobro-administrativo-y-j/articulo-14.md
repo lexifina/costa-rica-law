@@ -1,0 +1,1 @@
+Artículo 14.—La selección de los abogados se tramitará previa comprobación de atestados, legalidad para el ejercicio de la profesión o cumplimiento de los requisitos exigidos en el Cartel de Licitación Pública para la contratación de Profesionales en Derecho. El (los) profesional (es) escogidos deberá (n) firmar un contrato de servicios profesionales con la Municipalidad.

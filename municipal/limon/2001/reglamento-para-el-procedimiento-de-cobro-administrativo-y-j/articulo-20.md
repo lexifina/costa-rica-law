@@ -1,0 +1,6 @@
+Artículo 20.—Para el eficaz cumplimiento de sus deberes profesionales el o los abogados deberán realizar las siguientes gestiones:
+a. Presentación de la demanda de cobro judicial, conteniendo las certificaciones correspondientes, debidamente firmadas por los funcionarios municipales, en un plazo no mayor de tres días hábiles después de expedidas las certificaciones. En caso de no hacerse en este lapso, el abogado, enviará una nota explicativa a la Unidad de Cobros indicando las causas de este atraso.
+La presentación de la demanda debe testimoniarse con los sellos y la fecha del juzgado que recibió la demanda.
+b. Los abogados quedan obligados a exigir a los Tribunales donde se tramitan los casos que se le sellen y firmen las copias de todos los escritos que se presenten, de los cuales deberán entregar copia a la Unidad de Cobro.
+c. Realizar estudios, como mínimo cada dos meses, en los procesos de cobro que estén bajo su dirección y solicitar cuando exista sentencia firme la orden de giro correspondiente. Una vez dictada la sentencia en un plazo no mayor a quince días naturales deberá presentar al Tribunal respectivo la liquidación de costas procesales.
+d. En el escrito inicial de la demanda se señalará la sede para recibir notificaciones, el cual debe ser la sede de la Unidad de Cobros de la Municipalidad.

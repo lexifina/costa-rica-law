@@ -1,0 +1,1 @@
+Artículo 19.—El abogado al tramitar casos de deudas de los contribuyentes municipales invocará, para recuperar las sumas adeudadas, lo dispuesto en el Artículo N° 70 del Código Municipal, para lo que procederá a realizar gravámenes hipotecarios contra los bienes que estén a nombre del sujeto pasivo deudor con la Municipalidad.
