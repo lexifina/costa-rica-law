@@ -1,0 +1,3 @@
+Artículo VIII.—De las transmisiones y propagandas.
+a. Las emisoras que transmitan los partidos en estas instalaciones pagarán una suma negociada con la Junta Administrativa, previa autorización del Concejo Municipal, debiendo cancelarlo en forma adelantada y firmar un contrato con el Alcalde Municipal, indicando en cada caso qué tipo de transmisión se hará y las condiciones de la misma.
+b. En caso de que haya partidos televisados o transmisiones ocasionales, deberán contar con la autorización de la Junta Administrativa, la que cobrará por el derecho de transmisión, debiendo cancelarse en la Tesorería Municipal.

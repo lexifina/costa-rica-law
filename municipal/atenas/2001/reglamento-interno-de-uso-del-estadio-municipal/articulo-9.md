@@ -1,0 +1,1 @@
+Artículo IX.—La Junta Administrativa podrá arrendar dentro de las instalaciones del estadio espacios para anuncios, lo cual será negociado entre la Junta y el interesado, haciendo el pago por adelantado en la Tesorería Municipal y respetando las leyes vigentes de publicidad, con relación a instalaciones deportivas.

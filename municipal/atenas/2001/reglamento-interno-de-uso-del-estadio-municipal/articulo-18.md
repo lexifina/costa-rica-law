@@ -1,0 +1,1 @@
+Artículo XVIII.—Los clubes o instituciones serán responsables de cualquier daño que ocasionen sus jugadores en los camerinos o en otras instalaciones, debiendo realizar las respectivas reparaciones. En caso de que no procedan a realizar las reparaciones, la Junta hará los trabajos debiendo pagar el infractor el costo de la obra, más una multa del 50% del valor de la obra.

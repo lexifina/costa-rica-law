@@ -1,0 +1,1 @@
+Artículo XI.—Disposiciones generales: Tendrán entrada gratuita a las instalaciones deportivas los miembros de las Juntas Administrativas y los Regidores Municipales, dándoseles un carné que los acredite como tales.
