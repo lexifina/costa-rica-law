@@ -1,0 +1,1 @@
+Artículo 6º—El procedimiento para ingresar a observar la tortuga Baula, se regirá bajo el sistema de reservaciones, el cual se describe en la Resolución Administrativa Nº R-SINAC-Nº 52-99, de las ocho horas del siete de octubre, del Sistema Nacional de Áreas de Conservación.

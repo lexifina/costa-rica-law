@@ -1,0 +1,1 @@
+Artículo 10.—En caso de que un grupo de turistas este dentro de la playa y una tortuga no anide, el grupo deberá detenerse y permanecer en el sitio que se le indique, en espera hasta que ingrese otra tortuga y se le asigne.

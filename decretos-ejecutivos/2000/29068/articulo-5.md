@@ -1,0 +1,1 @@
+Artículo 5º—La administración del Refugio, previamente determinara la ubicación de dos casetas, que serán los únicos puntos de entrada a la playa. Por cada caseta podrán entrar únicamente 60 turistas por noche, las cuales se turnaran para la visitación.

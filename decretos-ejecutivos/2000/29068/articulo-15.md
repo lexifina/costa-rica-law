@@ -1,0 +1,1 @@
+Artículo 15.—Cuando lo disponga la administración, los promotores deberán alejar a los turistas y visitantes que están observando a la tortuga hasta unos veinticinco metros, para que los investigadores lleven a cabo su investigación, la que estará debidamente aprobada por la Administración del área silvestre protegida.

@@ -1,0 +1,1 @@
+Artículo 12.—Las personas que se desempeñen como promotores turísticos, deberán guardar en todo momento las normas de decoro, respeto y educación con todas las personas que deseen ingresar a observar alguna etapa del desove. De incumplirse esta disposición se aplicara las disposiciones de Ley.

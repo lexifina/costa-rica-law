@@ -1,0 +1,14 @@
+PODER EJECUTIVO
+DECRETOS
+Nº 29068-MINAE
+EL PRESIDENTE DE LA REPUBLICA
+Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
+En el ejercicio de las facultades que nos confiere el articulo 140, inciso 3) y 18) de la Constitución Política y de conformidad a lo dispuesto en la ley Nº 7317, Ley de conservación de la Vida Silvestre; ley Nº 7575, ley Forestal; ley Nº 7554, ley Orgánica del Ambiente y Ley Nº 7788, Ley de la Biodiversidad,
+Considerando:
+1º—Que el Estado Costarricense por medio del Ministerio del Ambiente y Energía, ha definido políticas de Conservación y Desarrollo Sostenible, fundamentado en la estrategia de Conservación para el desarrollo sostenible de Costa Rica.
+2º—Que es necesario involucrar a las comunidades y sus organizaciones de base en los programas de Conservación y de desarrollo sostenible que ejecuta el Ministerio del Ambiente y Energía, con el fin de que estas internalicen su responsabilidad con la conservación del ambiente, participando en la proposición de iniciativas y realización de gestiones que se consideren beneficiosas para las Áreas de Conservación como unidades socio-ambientales.
+3º—Que la Ley Orgánica del Ambiente ha establecido entre sus objetivos la creación, conservación, administración, desarrollo y vigilancia de las Áreas Silvestres Protegidas, con el fin de Conservar los Ambientes Naturales representativos de las diferentes regiones biogeográficos y de los ecosistemas mas frágiles, para asegurar el equilibrio y la continuidad de los procesos evolutivos y ecológicos. De igual forma promueve la investigación científica, el estudio de los ecosistemas y su equilibrio así como el conocimiento y las tecnologías que permitan el uso sostenible de, los recursos naturales del país y de su conservación.
+4º—Que la cantidad de personas que visitan al área protegida durante la temporada de anidación de la tortuga Baula (Dermochelys coriacea), es de considerable magnitud. Es por este motivo que se hace necesario regular la afluencia de turistas al área protegida.
+5º—Que se han desarrollado estudios científicos que han demostrado la necesidad de tomar medidas estrictas en pro de la conservación de la tortuga Baula, especie que se encuentran en peligro de extinción , pues se has estimado que la población anidante en el Parque Nacional Marino las Baulas y Refugio Nacional de Vida Silvestre Tamarindo, tendera a desaparecer para el año 2005. Por lo tanto,
+Decretan:
+Artículo 1º—Declarar como área destinada a la observación de la tortuga Baula el sector comprendido entre punta ventanas hasta la boca del estero Tamarindo. Para efecto de controlar la afluencia masiva de personas al Refugio Nacional de Vida Silvestre Tamarindo, se declara de acceso restringido dicha área durante la época de desove de la tortuga Baula (Dermochelys coriacea), que comprende el periodo que va desde el primero de octubre hasta el quince de marzo de cada año.

@@ -1,0 +1,1 @@
+Artículo 9º—El tránsito de los grupos visitantes y turistas dentro del Refugio será por la zona húmeda de la playa, formando doble fila. Deberán realizar en perfecto orden, acatando las disposiciones de los funcionarios del MINAE, voluntarios y promotores turísticos. La persona que desacate estas disposiciones será expulsada de la playa por los funcionarios del MINAE.

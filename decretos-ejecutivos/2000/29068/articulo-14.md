@@ -1,0 +1,1 @@
+Artículo 14.—Los grupos de investigadores por tortuga por noche en la playa, no podrán a exceder a tres y sus actividades deberán estar en estricto apego a la investigación aprobada y a las reglas que se emitan para el adecuado manejo la administración del Refugio.

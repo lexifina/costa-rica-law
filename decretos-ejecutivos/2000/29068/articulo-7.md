@@ -1,0 +1,1 @@
+Artículo 7º—Todos los visitantes al Área Silvestre Protegida que deseen observar la tortuga Baula deberán hacerse acompañar por un promotor turístico debidamente autorizados (persona que muestra la riqueza natural del área protegida).

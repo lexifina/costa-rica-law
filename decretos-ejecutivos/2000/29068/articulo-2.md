@@ -1,0 +1,1 @@
+Artículo 2º—En las fechas comprendidas desde el primero de octubre al veinte de del mismo mes y del quince de febrero al quince de marzo del ano siguiente, la visitación se autorizara únicamente para actividades de Educación ambiental con escuelas, colegios y universidades de todo el país.
