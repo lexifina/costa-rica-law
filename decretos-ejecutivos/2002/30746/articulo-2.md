@@ -1,0 +1,1 @@
+Artículo 2º—Las autoridades de las instituciones públicas nacionales involucradas y las instancias del sector agropecuario brindarán la cooperación y apoyo necesario a la implementación y desarrollo de los proyectos anteriormente descritos.
