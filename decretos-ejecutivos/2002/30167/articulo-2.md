@@ -1,0 +1,17 @@
+Artículo 2º—Definiciones. Para efectos de este Reglamento se entiende por:
+1. Traductor: profesional con conocimiento suficiente de la lengua española y una o más lenguas adicionales para trasladar de manera fiel, en forma escrita, los términos de la lengua fuente a la lengua meta. Es una persona de vasta cultura, con los conocimientos necesarios en gramática, vocabulario general, técnico, jurídico, literal o cultural que la facultan para desempeñar su labor.
+2. Traducción: expresión, en una lengua, de lo escrito o expresado en otra.
+3. Intérprete: profesional con conocimiento suficiente del idioma español y de una o más lenguas adicionales para trasladar, oralmente y de manera fiel, los términos de la lengua fuente a la lengua meta. Es una persona de vasta cultura y con los conocimientos necesarios en gramática, vocabulario general, técnico, jurídico, literal o cultural que la facultan para desempeñar su labor.
+4. Interpretación: transposición fiel de los términos de cualquier índole que se hace del idioma español a otra lengua o viceversa; se realiza en forma oral y con fines públicos o privados. La interpretación incluye las técnicas enumeradas a continuación:
+a. Interpretación simultánea: traducción en la que el intérprete sigue el hilo de la exposición con una diferencia de pocos segundos, sin interrumpir al orador.
+b. Interpretación consecutiva: traducción en la que el intérprete toma notas de la alocución del expositor y, después de un lapso prudencial, lo interrumpe y presenta una versión traducida de lo expuesto, total o sumaria.
+c. Interpretación a la vista: lectura en otra lengua de un texto escrito en una lengua diferente.
+d. Interpretación del susurro o el murmullo: interpretación en la que el intérprete susurra o murmura al cliente lo que el orador está diciendo.
+e. Traducción in situ: escritura en una lengua de lo escuchado en otro idioma, es decir, en la cual el traductor sigue el hilo de la exposición con una diferencia de pocos segundos, sin interrumpir al orador.
+5. Lengua fuente: lengua del documento o de la expresión original desde la cual se realiza la traducción o interpretación.
+6. Lengua meta: lengua hacia la cual se traduce o se interpreta un documento.
+7. Traducción oficial: traducción de un documento del idioma español a una lengua extranjera o viceversa, con fe pública y carácter oficial, efectuada por un traductor oficial debidamente nombrado y autorizado por le Ministerio de Relaciones Exteriores y Culto.
+8. Interpretación Oficial: interpretación del idioma español a una lengua extranjera o viceversa, con fe pública y carácter oficial, ejecutada por un intérprete oficial debidamente nombrado y autorizado por el Ministerio de Relaciones Exteriores y Culto.
+9. Traductor o intérprete oficial: profesional dedicado a la traducción e interpretación, debidamente nombrado y autorizado por el Ministerio de Relaciones Exteriores y Culto, para realizar traducciones e interpretaciones con carácter oficial y fe pública.
+10. Traducción e interpretación fiel: traducción e interpretación que es fiel reflejo de documentos o situaciones. Para llevarla a cabo, deben observarse y respetarse la forma del original, así como los signos de puntuación, los modismos y la redacción o entonación para evitar que se atribuya una interpretación o significado distinto del que debe tener.
+11. Cliente: persona física o jurídica o entidad gubernamental que solicita para su uso los servicios de traducción o interpretación.

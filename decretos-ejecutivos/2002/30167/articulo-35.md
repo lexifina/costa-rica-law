@@ -1,0 +1,1 @@
+Artículo 35.—Período de sesión de la Comisión Asesora para el establecimiento de la Tabla de Honorarios. La Comisión se reunirá de manera ordinaria 2 veces por año, a saber: durante la primera quincena del mes de febrero y durante la segunda quincena del mes de julio.

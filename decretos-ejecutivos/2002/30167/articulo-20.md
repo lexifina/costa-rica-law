@@ -1,0 +1,1 @@
+Artículo 20.—Documentos ilegibles. Los Traductores Oficiales no están obligados a recibir documentos ilegibles o que contengan abreviaturas o signos que no sean los de uso común. Sin embargo, si el Traductor Oficial accede a traducir documentos que contengan partes ilegibles, deberá hacer constar la ilegibilidad de éstas en la traducción.

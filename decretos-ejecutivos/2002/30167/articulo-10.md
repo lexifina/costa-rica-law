@@ -1,0 +1,12 @@
+CAPÍTULO III
+Requisitos
+Artículo 10.—Requisitos generales. El aspirante a traductor y/o intérprete oficial deberá cumplir con los siguientes requisitos:
+a) Presentar ante la Asesoría Jurídica del Ministerio de Relaciones Exteriores y Culto solicitud escrita dirigida al(a) Asesor(a) Jurídico(a) en la cual solicita su autorización para la realización de los exámenes que lo acreditan como traductor y/o intérprete oficial, indicando el o los idiomas en los cuales desea realizar las pruebas, así como la aceptación de ajustarse a las disposiciones relativas a esta materia indicadas por la ley, el reglamento y este Ministerio.
+b) Fotocopia por ambos lados de la cédula de identidad o del documento de residencia en el que se compruebe que tiene al menos 5 años de residir en el país.
+c) Declaración Jurada en la cual indica que tiene dominio tanto en la lengua española como en la lengua meta, conocimientos actualizados de ambas y acceso a los recursos informáticos, materiales y herramientas requeridos para el buen desempeño de las labores como traductor y/o intérprete oficial.
+d) Presentar currículum actualizado con fotocopia de títulos, especialmente universitarios o equivalentes, que comprueben capacidad técnica como intérprete y/o traductor en los idiomas en los que solicita realizar las pruebas.
+e) Presentar dos constancias de experiencia laboral en el campo de traducción y/o interpretación o en su defecto dos cartas de recomendación de traducciones que haya realizado en los últimos 2 años.
+f) Dos fotografías tamaño pasaporte de buena calidad.
+g) Aprobar con nota superior o igual a 8.00 (ocho) los exámenes escritos y orales, en ambos sentidos (del idioma extranjero al español y viceversa) que realiza anualmente la Escuela de Lenguas Modernas de la Universidad de Costa Rica o cualquier otra entidad autorizada por el Ministerio de Relaciones Exteriores y Culto para ese efecto, a solicitud de la Asesoría Jurídica de este Ministerio.
+h) Presentar Declaración Jurada en la que se indique que posee al menos 5 años de experiencia continua en la traducción o interpretación profesional en cada uno de los idiomas en que solicita el nombramiento.
+Para las personas que cuentan con títulos académicos que los acreditan como especialistas en el (los) idioma (s) en que solicita el nombramiento, no es necesaria la presentación de la declaración jurada, en su lugar debe presentar los títulos universitarios de bachillerato o licenciatura que lo acreditan como tal.
