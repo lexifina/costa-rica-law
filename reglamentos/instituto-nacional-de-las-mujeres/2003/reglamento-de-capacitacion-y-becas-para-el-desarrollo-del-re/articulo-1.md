@@ -1,0 +1,12 @@
+INSTITUTO NACIONAL DE LAS MUJERES
+Considerando:
+I.—Que el Artículo 25 de la Ley de Creación del Instituto Nacional de las Mujeres establece: "Crease la carrera administrativa del Instituto. Para regularla, la Junta Directiva establecerá, mediante reglamento interno, los procedimientos referentes al ingreso de los empleados al servicio de la Institución, las garantías de estabilidad, los deberes y derechos laborales, la forma de llenar las vacantes, las promociones, las causas de remoción, la escala de sanciones y el trámite para juzgar las acciones."
+II.—Que el Reglamento Interno del Instituto Nacional de las Mujeres en su artículo 53 dice: "Los y las funcionarias del Instituto tendrán derecho a que se les brinde la capacitación que requieran mediante cursos, pasantías, seminarios, becas y otros que promuevan, cuando exista contenido presupuestario para ello, para lo cual deberán hacerse del conocimiento de todas/os, en su oportunidad. El Área de Recursos Humanos del Instituto elaborará el reglamento que contenga las disposiciones relativas a las becas y licencias para asistir a cursos de estudios y formación, en las instituciones educativas a nivel superior del país y fuera de él y otros"
+III.—Que es importante brindar capacitación y promover el desarrollo de los conocimientos y actitudes en los y las funcionarias con el fin de lograr nuevas competencias que garanticen mayor eficiencia.
+IV.—Que es indispensable que el INAMU disponga de un instrumento jurídico que regule y establezca los lineamientos a seguir en cuanto a las actividades de formación integral que se gestionen. Así como los deberes y obligaciones de los funcionarios que las gocen.
+V.—Que para la aprobación de este Reglamento se han cumplido con las disposiciones legales pertinentes. Por tanto:
+Con fundamento en las competencias prescritas en los incisos d) y l) del artículo 8 y lo establecido en el artículo 25 de la Ley del Instituto Nacional de las Mujeres, Nº 7801, la Junta Directiva en sesión ordinaria Nº 43 celebrada el 15 de diciembre de 2003, mediante Acuerdo Nº 3 aprobó el presente Reglamento de Capacitación y Becas para el Desarrollo del Recurso Humano del Instituto Nacional de las Mujeres:
+REGLAMENTO DE CAPACITACIÓN Y BECAS PARA EL DESARROLLO DEL RECURSO HUMANO
+CAPÍTULO I
+Aspectos generales
+Artículo 1º—Todas las funcionarias y funcionarios del INAMU tendrán derecho a capacitación, formación y asignación de becas y obtención de facilidades sin discriminación alguna, salvo lo que se indique en el artículo 31 inciso h) de este Reglamento.

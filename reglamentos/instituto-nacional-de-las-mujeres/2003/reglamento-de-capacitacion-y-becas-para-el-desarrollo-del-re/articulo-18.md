@@ -1,0 +1,1 @@
+Artículo 18.—Las sesiones de la CAD serán privadas, no obstante, esta podrá solicitar la comparecencia de algún funcionario o funcionaria cuando lo estime conveniente. Igualmente, podrá conceder audiencia al funcionario o funcionaria que así lo solicite.

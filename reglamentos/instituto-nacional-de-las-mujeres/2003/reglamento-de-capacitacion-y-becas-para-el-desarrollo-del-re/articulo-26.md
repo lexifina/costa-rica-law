@@ -1,0 +1,1 @@
+Artículo 26.—La CAD en casos de excepción, que considere de importancia para el INAMU, podrá aprobar, en forma extraordinaria, algún concurso siempre y cuando haya habido una divulgación mínima de 48 horas de anticipación de las bases que rigen el concurso.

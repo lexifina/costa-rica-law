@@ -1,0 +1,1 @@
+Artículo 15.—Para garantizar el quórum debe contarse con la presencia de al menos tres integrantes de la Comisión, o sus representantes. Cada integrante de la CAD, tendrá un/a suplente quien la/lo sustituirá en sus ausencias y que será elegida/o de la misma manera que los y las integrantes titulares.

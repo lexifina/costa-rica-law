@@ -1,0 +1,1 @@
+Artículo 28.—Para los estudios de posgrado a tiempo completo y medio tiempo que impliquen un beneficio económico total o parcial, otorgado a la/el funcionaria/o, la CAD podrá extender el plazo de la beca y hasta por un máximo de dos años.

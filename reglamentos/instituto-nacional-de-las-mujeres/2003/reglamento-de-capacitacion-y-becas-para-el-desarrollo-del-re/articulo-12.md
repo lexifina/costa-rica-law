@@ -1,0 +1,1 @@
+Artículo 12.—Los y las integrantes de la CAD, a que se refieren los incisos c) y d), durarán en sus cargos por el periodo de un año, pudiendo ser reelectas o reelectos por un periodo igual. En caso de sustitución por alguna circunstancia, esta será por el resto del periodo.

@@ -1,0 +1,1 @@
+Artículo 22.—Las iniciativas en materia de becas, capacitación y formación del recurso humano podrán partir de la CAD o de las o los funcionarias (os). Todas/os los y las funcionarias tendrán derecho a plantear a la CAD sus iniciativas y motivaciones de capacitación.

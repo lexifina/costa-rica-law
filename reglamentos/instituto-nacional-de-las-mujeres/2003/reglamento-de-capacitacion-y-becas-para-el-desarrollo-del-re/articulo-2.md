@@ -1,0 +1,1 @@
+Artículo 2º—El presente reglamento tiene por objeto regular la adjudicación de becas y otras facilidades para la capacitación y formación de los funcionarios y funcionarias del INAMU, tendientes a lograr un mejor desarrollo del recurso humano, en procura de una prestación más eficiente del servicio que brinda y del logro de los objetivos institucionales.

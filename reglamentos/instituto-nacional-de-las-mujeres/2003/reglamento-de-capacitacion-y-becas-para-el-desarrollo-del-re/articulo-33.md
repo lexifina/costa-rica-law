@@ -1,0 +1,1 @@
+Artículo 33.—El Área de Recursos Humanos llevará un expediente de capacitación para cada persona. En el caso de los y las funcionarias que cuentan con expediente de carrera profesional debe formar parte del mismo.

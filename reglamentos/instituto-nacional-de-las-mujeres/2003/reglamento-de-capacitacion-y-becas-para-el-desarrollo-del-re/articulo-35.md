@@ -1,0 +1,1 @@
+Artículo 35.—El Área de Recursos Humanos será la encargada de recibir, verificar y analizar la información que debe presentar el o la interesada en cada solicitud de beca, rindiendo el informe respectivo a la CAD.

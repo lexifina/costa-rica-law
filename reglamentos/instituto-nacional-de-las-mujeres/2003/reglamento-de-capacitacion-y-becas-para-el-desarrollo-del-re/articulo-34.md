@@ -1,0 +1,1 @@
+Artículo 34.—En el caso de objeción del (la) superior (a) jerárquico (a) para que la funcionaria (o) sea beneficiada (o) con la beca o facilidad, su negativa, debe estar razonada por escrito, ante el Área de Recursos Humanos, pudiendo la o el interesado, recurrir el caso ante la Presidenta Ejecutiva del INAMU, quién decidirá en definitiva la solicitud.

@@ -1,0 +1,1 @@
+Artículo 8º—El financiamiento parcial o total de una beca, que implique la participación de los o las funcionarias del INAMU en actividades de capacitación y desarrollo que se realicen, tanto dentro como fuera del país, serán financiadas siempre y cuando se cuente con contenido presupuestario y las mismas brinden un beneficio a la institución.

@@ -1,0 +1,1 @@
+Artículo 27.—Las becas de estudio formal de pregrado o de grado no podrán extenderse por más de dos años, cuando éstas sean por tiempo completo o medio tiempo o impliquen un beneficio económico total o parcial otorgado a la/el funcionaria/o para que asista.

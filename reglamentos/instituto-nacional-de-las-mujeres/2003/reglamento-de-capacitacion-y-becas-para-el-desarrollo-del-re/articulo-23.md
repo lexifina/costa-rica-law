@@ -1,0 +1,1 @@
+Artículo 23.—El tiempo que la/el funcionaria/o dedique a su capacitación en relación a los programas desarrollados por la CAD, será reconocido y considerado como tiempo de trabajo efectivo para todos los efectos legales que correspondan.
