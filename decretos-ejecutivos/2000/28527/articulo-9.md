@@ -1,0 +1,1 @@
+Artículo 9º—Las sedes de los Consejos: La sede será rotativa. Por acuerdo de sus integrantes, éstos determinarán mediante cronograma, su sede administrativa, el resultado será remitido a la Coordinación General.
