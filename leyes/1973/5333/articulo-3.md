@@ -13,10 +13,10 @@ régimen de reparación de accidentes de trabajo o de enfermedad
 profesionales;
 f) prestaciones en caso de accidentes de trabajo o de enfermedad
 profesional.
-2º.- El presente Convenio será aplicable a los regímenes de seguridad
-social generales y especiales, con inclusión de los concernientes a las
-obligaciones del patrono con respecto a las prestaciones aludidas en el
-apartado f) del párrafo que antecede.
+2º.- El presente Convenio será aplicable a los regímenes de
+seguridad social generales y especiales, con inclusión de los
+concernientes a las obligaciones del patrono con respecto a las
+prestaciones aludidas en el apartado f) del párrafo que antecede.
 3º.- La aplicación del Convenio podrá hacerse por ramas de la
 seguridad social según los capítulos del Título 4 y de acuerdo con el
 procedimiento de ratificación previsto en el artículo 28.

@@ -2,8 +2,8 @@ ARTICULO 22
 1º.- Las autoridades competentes de las Partes Contratantes quedan
 autorizados para adoptar todas las medidas necesarias para la aplicación
 del presente Convenio y obligadas a comunicárselas entre si y a la
-Comisión Administrativa, como también las modificaciones de su legislación
-susceptibles de influir sobre dicha aplicación.
+Comisión Administrativa, como también las modificaciones de su
+legislación susceptibles de influir sobre dicha aplicación.
 2º.- Las autoridades y las Instituciones de las Partes Contratantes
 se prestarán mutuamente sus buenos oficios para la aplicación de este
 Convenio y su Reglamento y procederán como si se tratase de la aplicación

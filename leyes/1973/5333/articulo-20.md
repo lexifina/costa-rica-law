@@ -6,8 +6,8 @@ personas versadas en Seguridad Social.
 2º.- Integrará la Comisión sin derecho a voto, un Representante del
 Secretario General de la Organización de Estados Centroamericanos.
 3º.- Las Partes Contratantes acreditarán sus representantes ante la
-Secretaría General de la Organización de Estados Centroamericanos, la cual
-estará encargada de los funciones de secretaría de la Comisión.
+Secretaría General de la Organización de Estados Centroamericanos, la
+cual estará encargada de los funciones de secretaría de la Comisión.
 4º.- La Comisión se reunirá, a lo menos, una vez cada seis meses, y
 en todo caso cuando la convoque la Secretaría General de la Organización
 de Estados Centroamericanos.
