@@ -1,0 +1,2 @@
+Art 2.- Cuando se haga del último modo, se ocuparán precisamente los reos destinados a obras públicas con la seguridad correspondiente, y sin perjuicio de lo dispuesto en el art´. 7 de la Ley de 23 de Marzo 832.- Al Consejo Representativo.- Dado en San José a los nueve días del mes de mayo de mil ochocientos treinta y tres.
+Por tanto: Ejecutese.- San José mayo veinte de mil ochocientos treinta y tres.
