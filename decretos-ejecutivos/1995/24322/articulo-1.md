@@ -1,4 +1,5 @@
 (Derogado)
+(Este Decreto fue derogado por artículo 111 del Decreto Ejecutivo N° 26771 del 18 de febrero de 1998)
 Nº 24322-J
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE JUSTICIA Y GRACIA
