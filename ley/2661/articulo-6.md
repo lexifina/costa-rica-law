@@ -1,0 +1,3 @@
+Artículo 6º—El sobrante del impuesto que se establece en el artículo 2º, una vez deducidos la amortización e intereses correspondientes de la cuota semestral al Eximbank, se invertirá en su totalidad en la construcción del tramo comprendido entre la ciudad de Heredia y la Autopista El Coco-San José, así como en la continuación de la carretera de El Coco a San Ramón.
+Una vez terminados los tramos de estas carreteras, queda igualmente establecido un impuesto de peaje en estas vías, el cual determinara y reglamentara el Poder Ejecutivo. El sobrante del impuesto se destinara a la conservación de estas carreteras.
+Si sobrare del empréstito alguna suma, se destinara a la construcción de las dos carreteras citadas.
