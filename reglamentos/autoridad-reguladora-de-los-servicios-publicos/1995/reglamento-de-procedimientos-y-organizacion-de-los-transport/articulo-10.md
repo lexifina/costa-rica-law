@@ -1,0 +1,1 @@
+Artículo 10.—Cuando los vehículos de uso administrativo, no estén prestando servicios durante las horas no hábiles y días feriados deberán permanecer en las instalaciones de la Autoridad Reguladora. Se exceptúan los casos en que el vehículo se encuentre de gira.

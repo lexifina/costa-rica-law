@@ -1,0 +1,1 @@
+Artículo 59.—Para la solicitud y control de combustible tanto el encargado del vehículo como el Jefe de gira deberán cumplir con lo indicado en los Artículos 20, 21, 22, 23 y 24 del presente Reglamento.
