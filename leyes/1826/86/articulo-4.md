@@ -1,0 +1,1 @@
+Art 4°.- Todo hombre casado o familia que se avecinde en la nueva población de Matina recibirá de su Municipalidad a mas del solar ante dicho cinco manzana de tierra en propiedad donde quiera establecer sus labores.

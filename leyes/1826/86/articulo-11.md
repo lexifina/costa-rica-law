@@ -1,0 +1,1 @@
+Art 11°.- Quando la Municipalidad jusgue suficientes las obenciones Eclesiasticas que produzcan la nueva población representará y promoverá la creación de Parroquia y provinción del Cura que le debe asistir espiritualmente, y entre tanto el Gefe Político junto con la solicitud de licencia para Oratorio dirigirá sus preses al Gobierno Ecleciastico por la provincion de un Capellan.

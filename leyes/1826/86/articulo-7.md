@@ -1,0 +1,1 @@
+Art 7°.- Qualquiera propietario que en Matina o las montañas desiertas del transito se dedigne a establecer hacienda de ganado de qualquiera especie tiene derecho a que se le dé en propiedad el sitio correspondiente.
