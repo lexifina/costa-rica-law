@@ -1,0 +1,4 @@
+Artículo 4°—El reconocimiento que haga el Banco Nacional de Costa Rica, será en todo caso de acuerdo con su disponibilidad presupuestaria y de la siguiente forma.
+a. Profesionales (Funcionarios del Banco que ocupen puestos en donde se requiera ser licenciado) 55%.
+b. Bachilleres Universitarios que ocupen puestos en donde exija ese requisito 35%.
+Nota: Este porcentaje aplica únicamente para los puestos del Área de Ciencias de la Computación. Es entendido que en aquellos casos, que ajuicio de la Gerencia General, ameriten el reconocimiento del pago de dedicación exclusiva no contemplados en la aprobación de la reforma del presente Reglamento, esa instancia administrativa podrá presentarlos a conocimiento de la Junta Directiva General para que por la vía de excepción, si procede, se resuelva lo correspondiente.

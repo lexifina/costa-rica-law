@@ -1,0 +1,4 @@
+BANCO NACIONAL DE COSTA RICA
+REGLAMENTO AL RÉGIMEN DE DEDICACIÓN EXCLUSIVA DE SERVICIOS PARA LOS PROFESIONALES DEL BANCO NACIONAL DE COSTA RICA
+(NOTA DE SINALEVI: Texto actualizado de acuerdo a la publicación realizada en La Gaceta N° 106 del 02 de junio del 2006)
+Artículo 1º—Se entenderá como Dedicación Exclusiva de Servicios, para efectos del presente Reglamento, la compensación económica, retribuida a los servidores de nivel profesional, previa suscripción de un contrato entre el servidor y el Gerente General, para que obligatoriamente no ejerzan de manera particular ninguna profesión que ostenten, así como las actividades relacionadas con ésta o éstas, sean lucrativas o de otra índole, en las que medie pago o no de remuneración salarial, honorarios, dietas, etc., con las excepciones que se establecen en este Reglamento. Lo anterior, de conformidad con lo estipulado en el artículo 4º de este Reglamento.

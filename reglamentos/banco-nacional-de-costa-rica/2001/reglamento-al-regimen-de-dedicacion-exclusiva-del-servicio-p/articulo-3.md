@@ -1,0 +1,1 @@
+Artículo 3º—Al Gerente General, Subgerente General, y el Auditor General se les reconocerá el pago adicional por Dedicación Exclusiva de servicios (55%), de pleno derecho, por el sólo motivo de ocupar esas posiciones mientras no devenguen un salario integral.

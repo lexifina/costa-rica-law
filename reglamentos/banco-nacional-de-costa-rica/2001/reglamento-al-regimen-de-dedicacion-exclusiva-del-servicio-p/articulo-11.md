@@ -1,0 +1,1 @@
+Artículo 11.—El incumplimiento por parte del beneficiario de lo estipulado en el presente Reglamento en cuanto a la dedicación exclusiva, se considerará como infracción grave a la relación de servicio y por lo tanto, será causal de despido sin responsabilidad patronal, sin perjuicio de la responsabilidad penal y administrativa que pudiera generarse con base en dicho Reglamento.

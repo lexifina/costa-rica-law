@@ -1,0 +1,7 @@
+Artículo 2°—Tendrán derecho al Régimen de Dedicación Exclusiva de servicios aquellos servidores que, en razón de la naturaleza y responsabilidad del puesto que desempeñan, se considere oportuno y necesario otorgarles la compensación por dedicación exclusiva y que reúnan los siguientes requisitos:
+Ser profesional con grado académico de licenciatura como mínimo, y estar incorporado al colegio respectivo, cuando se requiera este requisito para el ejercicio de su profesión. Se exceptúan de esta política los puestos cuyo requisito sea bachillerato, en una carrera de Ciencias de la Computación.
+Ocupar un puesto para el cual se requiera la condición mencionada, en el inciso anterior, según lo establezca el Manual Descriptivo de Puestos. Cuando esta situación no se pueda determinar con facilidad, el Gerente General, resolverá en forma definitiva lo conducente al caso presentado.
+No estar recibiendo compensación por concepto de prohibición del ejercicio profesional o que tengan otros beneficios salariales otorgados por leyes especiales o algún incentivo similar.
+Laborar a tiempo completo en la Institución, cualquiera que sea la naturaleza del contrato de trabajo, conforme a la jornada vigente en el Banco.
+Las funciones desempeñadas por el profesional, deberán ser acordes con el título académico que ostente. Los casos de excepción serán estudiados por el Gerente General para su resolución.
+Suscribir el contrato de Dedicación Exclusiva de servicios con el Banco Nacional de Costa Rica, comprometiéndose a cumplir las cláusulas del presente Reglamento.

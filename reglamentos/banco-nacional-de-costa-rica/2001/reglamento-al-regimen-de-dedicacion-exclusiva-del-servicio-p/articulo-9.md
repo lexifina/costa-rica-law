@@ -1,0 +1,3 @@
+Artículo 9°—Del contrato a que se refiere el inciso e) del Artículo 2, de este Reglamento, se entregará copia al interesado y a la Asociación de Profesionales. Este contrato se suscribirá por un año, prorrogable cada año, en caso de no existir disconformidad entre las partes, por la comprobación de la impericia, (SIC) negligencia, incumplimiento de labores o cualquier otra causa irregular imputable al beneficiario.
+Asimismo, se dará como terminado el beneficio de la Dedicación Exclusiva al funcionario que gozando de este beneficio obtenga una calificación menor de 85% en la evaluación del SEDI, pudiendo solicitar el ingreso al Régimen en el periodo siguiente siempre y cuando su
+evaluación sea al menos de satisfactoria.
