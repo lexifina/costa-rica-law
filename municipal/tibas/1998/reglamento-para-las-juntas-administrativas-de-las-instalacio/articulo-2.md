@@ -1,0 +1,1 @@
+Artículo 2°-Créase una Junta Administrativa para cada una de las instalaciones deportivas municipales de Tibás, donde previamente estaban funcionando, cuyas funciones y atribuciones serán las que en este Reglamento se les asignen, nombradas directamente por el Concejo Municipal.

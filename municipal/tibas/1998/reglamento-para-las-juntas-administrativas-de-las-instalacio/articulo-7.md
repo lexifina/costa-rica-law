@@ -1,0 +1,1 @@
+Artículo 7°-Los miembros de la Junta Administrativa no devengarán dietas, salarios ni honorarios. Para ser miembro de la Junta Administrativa se requiere: ser costarricense, con al menos un año residencia en el Cantón de Tibás.

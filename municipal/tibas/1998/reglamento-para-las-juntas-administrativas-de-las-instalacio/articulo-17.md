@@ -1,0 +1,1 @@
+Artículo 17.-El encargado de las instalaciones requerirá de los usuarios el permiso para ingresar y llenará la hoja de registro correspondiente. Es prohibido ingresar a las instalaciones con bebidas alcohólicas, y cualquier droga enervante, o portando armas o pólvora.

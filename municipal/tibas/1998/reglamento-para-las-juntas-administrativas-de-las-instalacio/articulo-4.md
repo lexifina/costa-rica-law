@@ -1,0 +1,1 @@
+Artículo 4°-A efecto de dar cumplimiento a las actividades Deportivas y demás que deban desarrollarse en las instalaciones de e" materia, las Juntas Administrativas mantendrán estrecha coordinación con el Comité Cantonal de Deportes y Recreación de Tibás, así como con la Municipalidad.

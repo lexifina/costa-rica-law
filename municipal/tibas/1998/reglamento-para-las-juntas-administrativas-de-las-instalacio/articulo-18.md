@@ -1,0 +1,1 @@
+Artículo 18.-Para la asignación del uso de las instalaciones, la Junta Administrativa determinará los días y horas que correspondan a las diferentes disciplinas deportivas, capacitación, sesiones de estudio y reuniones diversas en estricto orden de solicitud. El uso de las instalaciones por grupos de menores tendrán preferencia para los días lunes a viernes en horas de la mañana.

@@ -1,0 +1,1 @@
+Artículo 8°-La Junta Administrativa elegirá de su seno directorio constituido por: Presidente, Vicepresidente, Secretario, Tesorero, Vocal, lo cual será comunicado de inmediato al Concejo Municipal y al Comité Cantonal de Deportes y Recreación.

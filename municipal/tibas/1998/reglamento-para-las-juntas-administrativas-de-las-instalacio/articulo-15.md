@@ -1,0 +1,1 @@
+Artículo 15.-La Junta Administrativa podrá nombrar para el mantenimiento y cuido de las instalaciones el personal requerido o en su defecto contratar con personas jurídicas, todo conforme a la legislación ordinaria.

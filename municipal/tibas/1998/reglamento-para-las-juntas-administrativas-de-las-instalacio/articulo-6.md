@@ -1,0 +1,1 @@
+Artículo 6°-Las personas nombradas para la Junta Administrativa inician su labor a partir de la juramentación ante el Presidente del Concejo o de quien él designe, juramentación de la cual se levantará el acta respectiva. Los miembros de la Junta Administrativa durarán en sus cargos un período de dos años y podrán ser reelectos; no pudiendo ser removidos sin junta causa.

@@ -1,0 +1,2 @@
+Artículo 14.-Las tarifas sobre el alquiler de las instalaciones, o cualquier derecho de explotación, lo determinará la Junta Administrativa.
+Esta queda autorizada para alquilar locales o espacios fijos dentro de las instalaciones del Estadio. Los contratos de arriendo se ajustarán a las recomendaciones de la Auditoría de la Municipalidad y pagarán la correspondiente patente municipal. Anualmente la Junta Administrativa efectuará un estudio de las tarifas vigentes, para reajustarlas.

@@ -1,0 +1,1 @@
+Artículo 13.-La Junta Administrativa regulará sobre el uso de la gramilla y su atención técnica, para su mantenimiento y conservación, así como de las demás instalaciones. Sólo en casos graves se podrán suspender prácticas, partidos o actividades deportivas.

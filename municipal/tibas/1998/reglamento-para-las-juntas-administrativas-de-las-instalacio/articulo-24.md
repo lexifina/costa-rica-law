@@ -1,0 +1,1 @@
+Artículo 24.-Este reglamento regirá a partir de su publicación en el diario oficial "La Gaceta", y deroga el Reglamento denominado: Para el uso y manejo del área con destino a la plaza de la Urbanización Jesús Jiménez de Tibás, ahora llamada Estadio Municipal, aprobado en sesión del treinta y uno de marzo de 1998 y cualquier otro acuerdo o reglamento anterior que se le oponga.

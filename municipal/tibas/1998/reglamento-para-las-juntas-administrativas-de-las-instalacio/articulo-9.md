@@ -1,0 +1,1 @@
+Artículo 9°-La Junta Administrativa sesionará ordinariamente una vez por semana en las instalaciones administrativas, que es su domicilio y extraordinariamente las veces que sean necesarias. Para las sesiones ordinarias se fijará día, hora y lugar permanente. La convocatoria a sesiones extraordinarias debe hacerse con 24 horas de anticipación.

@@ -1,0 +1,1 @@
+Artículo 20.-Toda actividad que requiera permiso de la Municipalidad o de cualquier autoridad estatal, deberá aportar el interesado el permiso respectivo con 3 días hábiles de anterioridad como mínimo.

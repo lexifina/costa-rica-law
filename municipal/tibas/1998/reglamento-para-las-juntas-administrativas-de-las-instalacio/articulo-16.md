@@ -1,0 +1,1 @@
+Artículo 16.-La Junta Administrativa podrá alquilar las instalaciones para actividades conexas y diversas, siempre que no afecte el giro principal de sus actividades. En caso de rechazarse cualquier solicitud, el afectado podrá apelar ante el Concejo Municipal.
