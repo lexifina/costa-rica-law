@@ -1,6 +1,6 @@
 # Ley Orgánica Procuraduría General de la República
 
-Ley N° 3848 del 1967-01-10. SINALEVI, ficha 38558: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38558&param2=40655&param3=1>.
+Ley N° 3848 del 1967-01-10. SINALEVI, ficha 38558: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38558&param2=83836&param3=1>.
 
 Publicada en La Gaceta N° 13 del 1967-01-17.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 5 | 1967-01-27 | Ley 3848 | 1967-01-10 |
+| 2 de 5 | 1972-08-08 | Ley 5028 | 1972-07-21 |
