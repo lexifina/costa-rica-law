@@ -1,0 +1,1 @@
+Art 2° Se autoriza al Poder Ejecutivo para que, en el caso de no realizarse el ferrocarril interoceánico, pueda habilitar el Puerto de “Tivives” o el que fuere más conveniente en el mar Pacifico, emprendiendo al efecto la apertura de un camino a ese Puerto, bien sea de ruedas o bien un ferrocarril si las necesidades o la conveniencia pública lo exigen.
