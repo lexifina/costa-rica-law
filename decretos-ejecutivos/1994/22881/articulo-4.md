@@ -1,0 +1,1 @@
+Artículo 4°—Quedan facultados todos aquellos Ministerios que tienen cuerpos policiales a utilizar directamente en forma exclusiva, los servicios que brinda “El Taller” para la reparación de sus respectivas unidades policiales, lo cual tendrá que hacerse con cargo a sus respectivos presupuestos, de conformidad con la normativa de administración financiera vigente.
