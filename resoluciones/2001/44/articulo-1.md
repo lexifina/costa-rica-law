@@ -24,5 +24,6 @@ Sobre el exceso de 1,000.000 hasta
 Sobre el exceso de 2,000,000, en adelante 0,1%.
 Para los efectos de este artículo, y de conformidad con el numeral noventa (90) del Reglamento General de Gestión, Fiscalización y Recaudación Tributaria no se considerarán de carácter autoliquidativo los pagos parciales o a cuenta que deban hacerse de conformidad con la Ley del Impuesto sobre la Renta, por lo que no procederá la aplicación de la tabla de descuentos sobre dichos pagos. No obstante lo anterior, si podrá aplicarse descuento sobre el monto determinado en la declaración - autoliquidación del impuesto sobre la renta a la que se refieran dichos pagos parciales.
 La Administración Tributaria controlará la aplicación de los porcentajes establecidos en este artículo a través de sus sistemas informáticos, donde se remitan las declaraciones electrónicas.
-Esta tabla podrá ser variada por la Administración Tributaria mediante Resolución General en cuanto a sus porcentajes y tramos de descuento pero deberá otorgarse plazos prudenciales para efectos de que los sistemas para declarar sean variados de conformidad con los nuevos
-porcentajes que se establezcan.
+Esta tabla podrá ser variada por la Administración Tributaria mediante Resolución General en cuanto a sus porcentajes y tramos de descuento pero deberá otorgarse plazos prudenciales para efectos de que los sistemas para declarar sean variados de conformidad con los nuevos porcentajes que se establezcan.
+No se aplicarán los descuentos establecidos en esta resolución a las instituciones públicas del Estado.
+(Así adicionado el párrafo final por resolución N° 14 de 14 de marzo del 2002)
