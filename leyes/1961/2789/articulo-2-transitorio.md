@@ -1,0 +1,1 @@
+Transitorio II.-Una vez instalada la Municipalidad del cantón de San Pablo, la Municipalidad del cantón central de heredia le girará, de inmediato, los fondos pertenecientes a este nuevo cantón que tenga en su poder.
