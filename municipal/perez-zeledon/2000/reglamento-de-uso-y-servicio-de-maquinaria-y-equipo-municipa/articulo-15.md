@@ -1,0 +1,1 @@
+Artículo 15.—Responsable del avance de la obra. Cuando la maquinaria municipal trabaje en las comunidades, las Asociaciones de Desarrollo y los Comités de Caminos deberán nombrar al menos una persona responsable que reciba el trabajo diario y fiscalice el trabajo realizado.

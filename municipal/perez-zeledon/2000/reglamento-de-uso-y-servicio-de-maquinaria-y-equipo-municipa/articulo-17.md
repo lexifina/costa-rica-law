@@ -1,0 +1,1 @@
+Artículo 17.—De los requerimientos a considerar en el Convenio. Para la confección del convenio, la estimación del costo del mismo y el tiempo de duración de cada trabajo, se tomarán en consideración los requerimientos del costo de las Máquinas por hora y la jornada de trabajo de los funcionarios municipales, de acuerdo como se indica en el artículo 18.

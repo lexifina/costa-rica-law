@@ -1,0 +1,1 @@
+Artículo 21.—De los pagos hechos a la Municipalidad. Todos los pagos que las Asociaciones de Desarrollo, comunidades o personas responsables, deban realizar por tarifas o costos de uso de la maquinaria deberán hacerse en las cajas recaudadoras o en la Municipalidad o en la Tesorería Municipal.

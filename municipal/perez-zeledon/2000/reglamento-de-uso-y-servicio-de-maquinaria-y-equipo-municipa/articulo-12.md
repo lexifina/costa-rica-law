@@ -1,0 +1,1 @@
+Artículo 12.—Responsabilidad de la Unidad Técnica. El encargado de costos de la Unidad Técnica, de acuerdo a los reportes diarios de actividad, con base a la programación bisemanal determinará el nivel de cumplimiento de la maquinaria municipal, y entregará un informe a la Comisión de Obras.

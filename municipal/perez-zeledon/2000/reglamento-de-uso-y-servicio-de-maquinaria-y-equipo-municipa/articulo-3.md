@@ -1,0 +1,1 @@
+Artículo 3º—Del aporte comunal. Por su parte las comunidades beneficiadas aportarán el 50% restante del costo total del uso de la maquinaria mediante los fondos que tengan disponibles a través de las Asociaciones de Desarrollo o Comités Vecinales de Caminos respectivos.

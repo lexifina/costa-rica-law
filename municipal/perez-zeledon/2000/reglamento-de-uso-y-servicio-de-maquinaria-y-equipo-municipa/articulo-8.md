@@ -1,0 +1,1 @@
+Artículo 8º—De la Comisión de Obras del Concejo. La Comisión de Obras Municipal, una vez listo el cronograma de trabajo anual de la maquinaria, la asignará a cada distrito por un plazo de quince días, estableciendo un orden de prioridades en aquellos distritos que realicen y reporten el mantenimiento manual, con el fin de conservar las obras realizadas.

@@ -1,0 +1,1 @@
+Artículo 20.—Trabajo durante el invierno. Durante la época lluviosa la Comisión de Obras en coordinación con el Ingeniero de la Unidad Técnica de Conservación Vial, determinará la prórroga de la maquinaria, considerando los días pendientes de trabajo en cada proyecto.

@@ -1,0 +1,1 @@
+Artículo 5.—De la proporción municipal. La Municipalidad de Pérez Zeledón cobrará el 50% del valor por hora trabajada de la maquinaria municipal con base a los costos de operación. Con base en el estudio que describe el artículo anterior denominado "Actualización de costos de posesión y operación de la maquinaria".

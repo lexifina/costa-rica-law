@@ -1,0 +1,1 @@
+Artículo 22.—Prohibición de recibir dineros. Ningún funcionario municipal o persona alguna está autorizada para recibir dinero alguno de las Asociaciones de Desarrollo, de las comunidades, o de cualquier otra persona, por trabajos realizados por la maquinaria municipal, con excepción de lo establecido en el artículo 21.

@@ -1,0 +1,1 @@
+Artículo 24.—Del finiquito del convenio firmado. Una vez realizado el trabajo establecido en el convenido, la Unidad Técnica de Conservación Vial, en coordinación con el fiscal comunal, deberá emitir un informe final de costos reales, para que se realice los respectivos pagos y con ello el finiquito del convenio firmado.
