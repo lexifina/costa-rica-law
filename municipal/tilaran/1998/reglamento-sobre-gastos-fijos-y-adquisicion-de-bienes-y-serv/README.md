@@ -15,3 +15,4 @@ Reglamento sobre Gastos Fijos y Adquisición de Bienes y Servicios de Competenci
 | --- | --- | --- |
 | 1 | 1999-01-26 | la propia norma |
 | 2 | 2000-03-29 | Reglamento municipal 95 (2000-03-29) |
+| 3 | 2001-07-02 | Reglamento municipal 165 (2001-07-02) |
