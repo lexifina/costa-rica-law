@@ -1,0 +1,1 @@
+Art 6.- Los Jefes Políticos luego que reciban las listas y comunicaciones de que hablan los artículos anteriores, dispondrán que por la autoridad compete se haga el cobro; y esta ejecutivamente lo practicará duplicado en pena de la omisión si la hubiese.
