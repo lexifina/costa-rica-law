@@ -1,1 +1,3 @@
-Artículo 7º.- Recibido que fuere el mandamiento por el Director del Registro de la Propiedad, con el acta a que se refieren los artículos quinto y sexto, se ordenará que se proceda, sin más trámites, a la inscripción que interesa y se devolverá el documento a su oficina de origen con indicación de las citas de inscripción respectivas.
+Artículo 7º.- Recibida la prueba y cumplidos los requisitos de esta ley, el funcionario mediante simple auto aprobará las diligencias disponiendo se inscriba en el Registro Público, a nombre del interesado, el inmueble con finca nueva, sin perjuicio de tercero de mejor derecho, en las condiciones establecidas en la presente ley.
+Dicha resolución debe contener la situación del inmueble, su naturaleza, cabida, linderos, gravámenes y la cita de visación del plano por la Oficina de Catastro.
+(Así reformado por el artículo único de la Ley Nº 6244 del 2 de mayo de 1978)
