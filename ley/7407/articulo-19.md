@@ -1,0 +1,1 @@
+Artículo 19°- Los accionistas podrán ser representados, en las asambleas, mediante una carta poder, otorgada a cualquier persona, sea socia o no; por este medio, nadie podrá representar más del veinte por ciento (20%) del capital social.

@@ -1,0 +1,2 @@
+Artículo 17°- El cese de la relación laboral del socio trabajador, por cualquier causa, lo obligará a enajenar sus acciones en la misma forma y condiciones establecidas en el artículo 7.
+Toda acción adquirida por sucesión hereditaria confiere al adquirente, sea heredero o legatario del fallecido, el derecho al valor de las acciones heredadas, las cuales se adjudicarán de acuerdo con el artículo 7 de esta Ley.

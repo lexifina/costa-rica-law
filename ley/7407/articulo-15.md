@@ -1,0 +1,1 @@
+Artículo 15°- Para que surta efectos jurídicos, todo traspaso de acciones deberá inscribirse en el libro de registro de accionistas y en el Registro de Sociedades Anónimas Laborales, creado por esta Ley.
