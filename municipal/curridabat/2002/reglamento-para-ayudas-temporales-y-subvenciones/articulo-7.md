@@ -1,0 +1,1 @@
+Artículo 7º—Las ayudas serán recomendadas en definitiva por la Comisión Permanente de Asuntos Sociales, y aprobadas por la Alcaldía Municipal o el Concejo Municipal, en base al presupuesto disponible, de acuerdo con los límites establecidos para el giro de recursos, conforme al Reglamento de Gastos vigente en la Institución.

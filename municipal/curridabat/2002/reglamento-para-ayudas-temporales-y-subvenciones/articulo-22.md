@@ -1,0 +1,1 @@
+Artículo 22.—El beneficiario de una subvención deberá presentar a la Municipalidad, un informe sobre el uso dado a los recursos transferidos. Esta información será verificada por la Alcaldía Municipal en asocio con la Comisión Permanente de Asuntos Sociales.

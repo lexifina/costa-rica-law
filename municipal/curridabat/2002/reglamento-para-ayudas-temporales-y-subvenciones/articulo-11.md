@@ -1,0 +1,1 @@
+Artículo 11.—Las ayudas a indigentes que concederá la Municipalidad serán preferiblemente en especie, ya se trate de materiales, víveres etc., y en casos verdaderamente necesarios a juicio de la Alcaldía Municipal, en efectivo cuando se trate del pago de servicios y/o alquileres según la recomendación previa, de acuerdo con lo establecido en el Artículo 5 anterior.
