@@ -1,0 +1,1 @@
+Art. 10. Se autoriza á la Direccion de caminos para establecer las garitas y crear los funcionarios que estimare convenientes, á fin de asegurar el cobro de sus rentas, asignandoles las dotaciones ó recompensas competentes.

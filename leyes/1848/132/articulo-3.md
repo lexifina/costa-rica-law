@@ -1,0 +1,1 @@
+Art. 3. Cada uno de los billetes de que habla el artículo anterior tendrá el valor de un real y cuartillo, que es lo que debe satisfacerse de derecho de peage por cada saco de café, sea cual fuere su peso, con tal que no exceda de cinco arrobas; prohibiendose, como se prohibe por el presente artìculo, el envio de bultos que contengan mayor peso.
