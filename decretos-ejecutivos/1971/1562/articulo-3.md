@@ -1,0 +1,1 @@
+Artículo 3°—Se declaran la Casa Histórica, los Corrales de Piedra y 1.000 hectáreas alrededor, como Monumento Histórico Inviolable, en el cual no se permitirá ninguna otra actividad que no sean las de educación e investigación y las propias de administración del parque.
