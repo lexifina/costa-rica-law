@@ -17,3 +17,4 @@ Reglamento de Compensación Económica por Disponibilidad
 | 2 | 1987-01-26 | Reglamento 3651 (1985-08-19) |
 | 3 | 1987-01-26 | Reglamento 3740 (1986-07-21) |
 | 4 | 1996-02-14 | Reglamento 4579 (1996-02-14) |
+| 5 | 2002-07-17 | Reglamento 5197 (2002-07-17) |
