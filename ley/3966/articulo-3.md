@@ -1,0 +1,1 @@
+Artículo 3°.- La Municipalidad deberá informar periódicamente, si así lo desea, o en cualquier momento que lo solicite el Ministerio de Hacienda, sobre la marcha financiera y administrativa de la misma.
