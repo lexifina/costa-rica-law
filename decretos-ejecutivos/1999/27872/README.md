@@ -14,3 +14,4 @@ Creación del Consejo Ministerial del Ministerio de Cultura Juventud y Deportes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-18 | la propia norma |
+| 2 | 1999-06-15 | Decreto Ejecutivo 27979 (1999-06-15) |
