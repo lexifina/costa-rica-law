@@ -1,0 +1,6 @@
+N° 4508
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETAN:
+LEY DE CREACIÓN DEL INSTITUTO
+COSTARRICENSE DE INVESTIGACIÓN Y ENSEÑANZAEN NUTRICIÓN Y SALUD (INCIENSA)
+Artículo 1º.- Créase la Clínica Nacional de Nutrición que tendrá su asiento en la ciudad de Tres Ríos, cantón de la Unión.
