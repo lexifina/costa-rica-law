@@ -1,0 +1,1 @@
+Artículo 94.—Ingreso a villas por persona no autorizada: El miembro de una delegación u organización que desee ingresar a una villa donde no está acreditado, deberá solicitar permiso a la administración de la villa, salvo el caso de aquellas personas que por la naturaleza de sus funciones estén autorizadas.

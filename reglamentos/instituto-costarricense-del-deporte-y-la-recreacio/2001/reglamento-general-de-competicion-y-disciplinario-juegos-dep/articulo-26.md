@@ -1,0 +1,6 @@
+Artículo 26.—Sustitución por lesión en deportes de conjunto:
+a. Deportes de conjunto, para la Etapa Final, después del cierre de inscripciones, en las disciplinas de Baloncesto, Béisbol, Fútbol, Fútbol Salón, y Voleibol, podrán realizar sustituciones en caso de lesión o enfermedad. Presentar nota donde conste que el atleta no
+cumple la idoneidad física y de salud para la practica del deporte, firmada por una autoridad competente con sus respectivos sellos y firmas, siempre y cuando el o la atleta haya estado inscrito en la presente edición, se tomara de la lista de sustitutos que completaron el cupo máximo.
+b. Deportes Individuales, Modalidad de Relevos, Modalidad de Equipos o Modalidad de Dobles, para la Etapa Final, después del cierre de inscripciones, en las disciplinas de Ajedrez, Atletismo.
+Ciclismo de Ruta, Ciclismo de Montaña, Natación, Tenis de Campo, Tenis de Mesa, Triatlón podrá realizarse una sola sustitución en caso de lesión o enfermedad. Presentar nota donde
+conste que el atleta cumple la idoneidad física y de salud para la practica del deporte, firmada por una autoridad competente con sus respectivos sellos y firmas, siempre y cuando el o la atleta haya estado inscrito(a) en la presente edición.

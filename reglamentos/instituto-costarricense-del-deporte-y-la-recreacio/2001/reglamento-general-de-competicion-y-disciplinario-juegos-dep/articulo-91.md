@@ -1,0 +1,1 @@
+Artículo 91.—No uso de villas por delegaciones: Aquellas entidades deportivas que no utilicen los servicios de hospedaje en las villas oficiales, deberán de notificarle a la organización al menos con 22 días de antelación a la inauguración.

@@ -1,0 +1,8 @@
+Artículo 30.—Del cantón sede clasificado para la etapa final:
+a. El Cantón Sede de la Etapa Final, podrá realizar su etapa eliminatoria interna, en todos los deportes que no requieren marca mínima.
+b. Tendrán por clasificados automáticamente a la etapa final, a los atletas y equipos de todas las categorías y ramas en: Ajedrez, Baloncesto, Béisbol, Boxeo, Ciclismo de Ruta, Ciclismo de
+Montaña, Fútbol, Fútbol Salón, Tenis de Campo, Tenis de Mesa, Voleibol.
+c. Deben cumplir con las marcas mínimas establecidas en los Torneos Clasifícatenos Nacionales convocados por la Comisión Técnica en (Atletismo, Natación, Halterofilia, Triathlón).
+d. Transitorio: Recibida la Convocatoria Nacional el Cantón Sede, debe manifestar por escrito en un plazo de treinta días las disciplinas a inscribir, lo anterior, con la finalidad de que el Área Deporte Competitivo del ICODER determine el procedimiento de aquellas disciplinas que por la naturaleza de la sede no sea posible promover, inscribir y desarrollar.
+e. El cierre de inscripciones será el último día que se haya fijado para recibir las planillas de clasificados a la Etapa Final (Primera Quincena del Mes de Noviembre) y torneos clasifícatenos según el calendario general de la Convocatoria Nacional, cumpliendo con los requisitos establecidos en este Reglamento para tales fines.
+f. Si por razones de organización el Consejo Nacional del Deporte y la Recreación autoriza al cantón sede de la etapa final, recurrir a otros cantones circundantes para realizar la etapa final en algún deporte específico, queda facultado el Área Deporte Competitivo del ICODER determinar el procedimiento técnico de eliminatoria y clasificación de los atletas representantes de la sede.

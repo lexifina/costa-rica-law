@@ -1,0 +1,1 @@
+Artículo 81.—Sanción hasta por dos años: La sanción será hasta por dos años, a aquellos participantes que se les compruebe que concierten apuestas en forma ostensible en favor o en contra, antes y durante la competencia, aún estando dentro del público.

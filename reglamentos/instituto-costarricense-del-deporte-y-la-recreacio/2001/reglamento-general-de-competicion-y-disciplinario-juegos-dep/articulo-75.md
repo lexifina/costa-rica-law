@@ -1,0 +1,4 @@
+Artículo 75.—De las notificaciones:
+a) Todas las agrupaciones deportivas que participen en los Juegos Deportivos Nacionales deberán indicar persona, dirección exacta, número de fax para recibir notificaciones, circulares y otros comunicados dentro del perímetro de la sede del respectivo Cantón al cual pertenece administrativamente la agrupación deportiva.
+b) El órgano competente podrá elegir cualquiera de los anteriores medios para llevar a cabo la notificación o comunicación, pero si el número de fax o la dirección indicada fueren imprecisa o no existiera, o el lugar señalado se encuentra cerrado, la resolución o comunicado se tendrá por notificada a las veinticuatro horas de haberse dictado, dejándose constancia de esto en el respectivo expediente.
+c) Es responsabilidad de las agrupaciones deportivas a la cual pertenece el participante hacerle de conocimiento de la resolución dictada.

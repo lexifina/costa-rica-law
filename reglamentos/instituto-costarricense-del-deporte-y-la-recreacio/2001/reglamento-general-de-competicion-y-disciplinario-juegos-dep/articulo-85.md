@@ -1,0 +1,1 @@
+Artículo 85.—Sanción que incluye al equipo: Cuando la sanción sea impuesta a un atleta perteneciente a una disciplina colectiva, la descalificación podrá incluirse para todo el equipo, por lo que se descalificará al equipo de la etapa en donde se cometió la falta.

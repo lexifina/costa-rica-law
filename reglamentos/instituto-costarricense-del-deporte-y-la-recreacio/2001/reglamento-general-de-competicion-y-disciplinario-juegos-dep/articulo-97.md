@@ -1,0 +1,1 @@
+Artículo 97.—Expulsión de las villas: Serán retirados inmediatamente de una villa, aquellos atletas o delegaciones o personal acreditado del Comité Organizador, que infrinjan las normas disciplinarias establecidas en el Reglamento General de Juegos Deportivos Nacionales y se les apliquen las correspondientes sanciones.

@@ -1,0 +1,1 @@
+Artículo 87.—Acatamiento de reglamentos generales: Es obligación de los participantes en la etapa nacional: informarse y acatar todas las disposiciones y normas establecidas en el Reglamento General y Disciplinario de los Juegos Deportivos Nacionales.

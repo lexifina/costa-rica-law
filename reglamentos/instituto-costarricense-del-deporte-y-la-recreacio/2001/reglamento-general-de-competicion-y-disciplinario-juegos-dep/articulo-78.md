@@ -1,0 +1,3 @@
+Artículo 78.—Validez de sanciones de otras agrupaciones deportivas:
+a) Todo participante que haya sido sancionado en el programa de Juegos Deportivos Estudiantiles del Ministerio de Educación o de una Federación Deportiva Nacional, con una suspensión de actividad igual o mayor a un año, no podrá inscribirse y participar en los Juegos Deportivos Nacionales hasta tanto no haya cumplido su sanción.
+b) Bastara para los fines pertinentes que el Tribunal Nacional de Honor o el Área Deporte Competitivo Proceso Juegos Deportivos Nacionales reciba de parte de los mencionados organismos la notificación del caso, la cual se hará efectiva de inmediato.

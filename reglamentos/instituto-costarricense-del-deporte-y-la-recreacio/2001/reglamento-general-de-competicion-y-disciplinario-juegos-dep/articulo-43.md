@@ -1,0 +1,3 @@
+Artículo 43.—Tiempo de espera por otros eventos oficiales:
+a) Cuando una competencia no pudiera efectuarse a la hora programada, porque la instalación está ocupada por otra actividad, el fiscal, el Coordinador Regional del ICODER y los delegados o entrenadores involucrados, concederán hasta sesenta minutos de espera para que ésta finalice e iniciar la propia.
+b) Si aún persiste el problema de la falta de instalación, el fiscal, el Coordinador Regional del ICODER los delegados, y entrenadores presentes levantarán un acta y la enviarán a conocimiento y resolución del órgano responsable de la respectiva etapa.

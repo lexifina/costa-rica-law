@@ -1,0 +1,8 @@
+Artículo 20.—Restricciones de los participantes:
+a. Las respectivas normas generales y específicas por deporte definirán las restricciones de inscripción y participación de atletas.
+b. Las que se indican en la Convocatoria Nacional.
+c. Durante el desarrollo de una edición del proceso de Juegos Deportivos Nacionales, los Entrenadores y Asistentes, podrán inscribirse solamente en un deporte, con una agrupación deportiva
+y con un cantón.
+d. Los atletas Seleccionados Nacionales podrán participar si cumplen las respectivas normas generales y especificas por deporte.
+e. Para garantizar un actuar neutral en el desarrollo del Proceso de Juegos Deportivos Nacionales. Los funcionarios del ICODER que tuvieren previamente asignada una responsabilidad o función en los mismos, no deberán formar parte de ninguna Agrupación Deportiva (como Entrenador, Dirigente, o Administrativo) que se inscriba en los Juegos. En el caso de agrupaciones arbitrales y de Jueces, no podrá ejercer funciones técnicas y administrativas durante las competencias. Se entiende que si el funcionario no se le ha asignado ninguna responsabilidad o función, podrá inscribirse o brindar servicios técnicos a las agrupaciones deportivas y competencias respectivamente sin menoscabo de su jornada ordinaria laboral.
+f. Las Agrupaciones Arbitrales encargadas de dirigir las competencias deberán velar porque sus integrantes no tengan lazos de consanguinidad en primer, segundo y tercer grado, así como nexos técnicos o administrativos con las diferentes representaciones que participan de los Juegos, de comprobarse una situación como la indicada anteriormente, el Juez o Arbitro será separado inmediatamente de los Juegos.

@@ -1,0 +1,7 @@
+Artículo 45.—Contratación jueces y árbitros:
+45.1) Para las Etapas Regionales, Etapa Interregional, y Etapa de Torneos Clasificatorios, el costo de jueces, árbitros y oficiales para dirigir las competencias, será responsabilidad de las Agrupaciones Deportivas y Comités Cantonales de Deporte participantes.
+45.2) Los Jueces, Arbitros y Oficiales, a criterio de los cantones y agrupaciones deportivas, serán contratados por la Comisión Técnica por Deporte, la Comisión Regional, según etapa en proceso, siendo el personal preferiblemente afiliado a las Federaciones y Asociaciones Nacionales, con su respectiva licencia que lo acredite para tal fin.
+45.3) Para la Etapa Final, los gastos de transporte, hospedaje, alimentación y dieta arbitral de los jueces, árbitros, oficiales y auxiliares, serán cubiertos por el Comité Organizador, atendiendo
+recomendación técnica del Área Deporte Competitivo y del Proceso Juegos Deportivos Nacionales.
+45.4) Las Comisiones Técnicas por Deporte determinara las necesidades del personal de arbitraje, para su contratación a las Asociaciones o Federaciones de Representación Nacional.
+45.5) Si la Asociación o Federación de Representación Nacional no responde a dicha solicitud después de diez días hábiles de enviada la nota, la Coordinación del Programa Juegos Deportivos Nacionales, con la Comisión Técnica por Deporte respectiva, procederá al nombramiento del personal necesario e idóneo para la competencia.

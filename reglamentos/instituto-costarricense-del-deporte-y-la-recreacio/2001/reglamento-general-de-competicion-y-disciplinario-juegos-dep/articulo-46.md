@@ -1,0 +1,3 @@
+Artículo 46.—Deportes de conjunto ausentes en la etapa final:
+a. En deportes de conjunto para la Etapa Final, si un Comité Cantonal e Deportes y/o Agrupación Deportiva, clasifica su delegación y retira el equipo, la Comisión Técnica por Deporte, brindara una recomendación al Área Deporte Competitivo, Proceso de Juegos Deportivos Nacionales, para suplir o no la vacante, prevaleciendo el criterio sobre la mejor participación de los equipos eliminados en la etapa anterior.
+Queda facultada la Comisión Técnica por Deporte elevar el caso ante el Tribunal Nacional de Honor para la sanción correspondiente.
