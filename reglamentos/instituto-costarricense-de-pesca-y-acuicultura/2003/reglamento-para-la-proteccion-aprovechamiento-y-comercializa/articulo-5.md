@@ -1,0 +1,1 @@
+Artículo 5º—Sobre la carnada. La comercialización de las aletas de aquellos especímenes cuyos cuerpos por su poco valor comercial hayan sido utilizados como carnada, será permitida si éstos corresponden a un 15,0% de tiburón azul y un 5,0% de tiburón thresher, calculado sobre la base de la cantidad de aleta verde total desembarcada.

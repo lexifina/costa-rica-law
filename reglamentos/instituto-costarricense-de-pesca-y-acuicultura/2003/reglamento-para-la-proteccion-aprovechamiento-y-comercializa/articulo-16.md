@@ -1,0 +1,1 @@
+Artículo 16.—Plazos. El proceso de aprobación de la recomendación de la exportación por parte del INCOPESCA, no podrá ser superior a 16:00 horas hábiles después de presentada la solicitud por parte del exportador en la oficina del Departamento de Mercadeo del INCOPESCA.

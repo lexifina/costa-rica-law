@@ -1,0 +1,4 @@
+Artículo 9º—Las tarifas. Cuando la inspección sea realizada por los inspectores del INCOPESCA, las tarifas que deberá pagar el armador, el Representante Legal o el encargado, serán las definidas por la Institución para estos efectos.
+En aquellos casos en que la inspección sea realizada por un Regente Pesquero designado por el CBCR, las tarifas que deberá pagar el armador, el Representante Legal o el encargado, serán definidas por el CBCR y regirán a partir de la hora indicada por el (la) interesado(a) para el inicio de la descarga y correrán hasta que la labor que deba realizarse y que se detalla en el presente Reglamento haya finalizado.
+La modificación o ajustes de las tarifas antes citadas deberá acordarse igualmente de común acuerdo entre el CBCR y el INCOPESCA.
+Esta tarifa no será nunca inferior a la tarifa mínima por hora profesional que anualmente defina el CBCR para el ejercicio profesional liberal de sus agremiados.
