@@ -1,0 +1,2 @@
+4. PROCEDIMIENTO EXTERNO
+4.1 Certificación. Cada exportación de ADS que una planta de proceso realice bajo el APICD, debe de contar con una certificación emitida por la AN en la cual se debe indicar que el atún en referencia que se está exportando, ha cumplido con todos los requisitos establecidos en el presente reglamento, que le confieren de ADS según el APICU. En cada certificación debe de incluirse la referencia del RSA correspondiente.
