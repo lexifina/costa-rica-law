@@ -1,0 +1,1 @@
+Artículo 93.—USOS CONDICIONALES. De la lista del anexo 1, los numerales 7 al 11, 13, 17 y 20. En caso de vivienda la densidad será igual a lo indicado para uso residencial de media - alta densidad. (Artículo 66). Cumpliendo con los demás requisitos de la zona (artículo 91).

@@ -1,0 +1,1 @@
+Artículo 101.—USOS CONDICIONALES. De la lista del anexo 1 los numerales, 10, 12, 14. 17, 24 y 25. En caso de vivienda la densidad será la de uso residencial de media - media densidad. (Artículo 68). Cumpliendo los demás requisitos descritos en el (Articulo 102).

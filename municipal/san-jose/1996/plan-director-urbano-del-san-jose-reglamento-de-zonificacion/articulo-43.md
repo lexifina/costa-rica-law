@@ -1,0 +1,1 @@
+Artículo 43.—PÓRTICOS. La utilización de pórticos o galerías exteriores integradas a las aceras para uso y disfrute del peatón permitirá aumentar el área de construcción en 2.5 m2, por cada metro cuadrado de pórtico, siempre que el pórtico tenga un mínimo de 3 metros de ancho libres. El incentivo se otorgará permitiendo mayor altura de la edificación.

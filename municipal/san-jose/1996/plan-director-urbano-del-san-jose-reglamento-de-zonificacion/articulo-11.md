@@ -1,0 +1,1 @@
+Artículo 11.—Las modificaciones que se propongan deben basarse en criterios eminentemente técnicos y las disposiciones que contengan deben ser siempre de carácter general y no casuístico. Cuando alguna modificación sea aprobada por el Concejo Municipal sin seguir los procedimientos y criterios indicados, la misma será absolutamente nula.

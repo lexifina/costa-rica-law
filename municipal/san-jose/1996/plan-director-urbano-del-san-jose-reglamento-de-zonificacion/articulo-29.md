@@ -1,0 +1,3 @@
+CAPITULO III
+Disposiciones respecto a los usos no conformes
+Artículo 29.—En un uso o actividad no conforme con la zonificación del P.D.U., estará completamente vedada la posibilidad de construcción, reparación o ampliación, salvo en aquellos casos de reparación o restauración en razón del valor histórico - cultural del inmueble, el cual debe estar legalmente establecido, o cuando se requiera para proteger a la población de una obra ruinosa, condiciones de seguridad del personal en el establecimiento. Esta salvedad también regirá cuando se trate de ampliaciones o reparaciones con el objetivo exclusivo de mejorar las condiciones laborales de los empleados en el establecimiento.

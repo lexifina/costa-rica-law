@@ -1,0 +1,1 @@
+Articulo 224.—La Municipalidad conjuntamente con el Ministerio de Cultura juventud y Deportes sentará las bases para llevar a cabo un verdadero inventario del Patrimonio Histórico Cultural del Cantón proponiendo los edificios y sitios de valor histórico cultural, paisajístico y urbanistico que deben ser protegidos.

@@ -1,0 +1,1 @@
+Articulo 113.—USOS CONDICIONALES. De la lisia del anexo 1 los numerales 7 al 10. 13 . 17. 19. En caso de vivienda la densidad será la indicada para la zona de uso residencial de media-alta densidad. (Artículo 66). Cumplimiento los demás requisitos del articulo 114.

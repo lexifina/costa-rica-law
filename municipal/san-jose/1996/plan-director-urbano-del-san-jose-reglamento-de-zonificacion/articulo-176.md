@@ -1,0 +1,6 @@
+Articulo 176—REQUISITOS
+1) SUPERFICIE MÍNIMA | 330 M2
+2) FRENTE MÍNIMO | 15M
+3) ALTURA MÁXIMA (A =V X C) | Coeficiente (c) = 1.5
+4) COBERTURA MÁXIMA | 85%
+5) RETIROS | Igual al articulo 85

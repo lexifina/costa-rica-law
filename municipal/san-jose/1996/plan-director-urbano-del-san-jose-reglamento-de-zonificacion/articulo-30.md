@@ -1,0 +1,1 @@
+Artículo 30.—En caso de siniestro podrá reconstruirse la edificación con el mismo destino, siempre que los daños no sean estructurales y que no excedan el 50% del valor de la edificación al momento del siniestro.

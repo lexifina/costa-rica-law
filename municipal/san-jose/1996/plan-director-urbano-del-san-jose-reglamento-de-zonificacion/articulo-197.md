@@ -1,0 +1,2 @@
+Artículo 197.—CONDICIONES ESPECIALES. Las mismas condiciones reguladas para la Zona de Control Especial Centro Antiguo, (artículo 166) menos lo relativo a pórtico. Además lo siguiente:
+1) El diseño de los espacios urbanos, de los detalles y del mobiliario se basará principalmente en las características existentes en los alrededores del Parque Bolívar y en las entradas de la antigua Fábrica Nacional de Licores.

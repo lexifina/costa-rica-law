@@ -1,0 +1,5 @@
+Articulo 195—REQUISITOS
+1) SUPERFICIE MÍNIMA | 400 m2
+2) FRENTE MÍNIMO | 15 m
+3) ALTURA MÁXIMA (A = V X C) | Coeficiente C = 1.0
+4) COBERTURA | 75%

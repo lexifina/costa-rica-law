@@ -1,0 +1,1 @@
+Articulo 201.—USOS A FOMENTAR. Vivienda, en pisos superiores, uso mixto de los edificios, tiendas de artesanía, restaurantes, oficinas de servicios profesionales, servicios personales, hoteles, instalaciones culturales y similares.

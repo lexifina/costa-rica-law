@@ -1,0 +1,1 @@
+Artículo 136.—REQUISITOS. Los mismos que corresponden al Centro Nacional, señalados en el artículo 85 de este, reglamento, salvo el referido a la cobertura, que será del 80% en estas zonas. Se exceptúan de estos requisitos los barrios San Bosco-San Francisco. Pitahaya. Amón- Otoya, que están reglamentados en los capítulos de las "Zonas de Control Especial", artículo 157.

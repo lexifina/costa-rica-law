@@ -1,0 +1,1 @@
+Artículo 214.—PODIO Y ARCADAS En caso de edificaciones de mas de cinco pisos de altura, se preferirá el uso de un "podio" que se integre a los edificios adyacentes o base conformada por los pisos bajos.

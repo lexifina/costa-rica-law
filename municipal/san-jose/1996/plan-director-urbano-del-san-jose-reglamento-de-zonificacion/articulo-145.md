@@ -1,0 +1,1 @@
+Artículo 145.—USOS CONDICIONALES. De la lisia del anexo 1, los numerales 4 y 5, 16, 19, 22, 24 y 25. Otros usos comerciales solo podrán ser autorizados como usos condicionales, previo estudio específico.

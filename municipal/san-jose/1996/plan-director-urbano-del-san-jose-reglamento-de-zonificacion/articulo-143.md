@@ -1,0 +1,2 @@
+Artículo 143.—PROPOSITO. Estimular el cambio de la industria existente en estas zonas, hacia una más moderna, compatible con el ambiente urbano y vinculada a los servicios, favorecer el desarrollo de actividades complementarias de comercio y servicios.
+No obstante, las actividades comerciales que se deseen desarrollar en estas zonas, solo podrán autorizarse como usos condicionales. Las personas deberán manifestar por escrito la aceptación de la zona y las molestias ya que el nivel es mayor que en las zonas residenciales.

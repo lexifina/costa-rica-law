@@ -1,0 +1,1 @@
+Articulo 207.—Cuando se otorgue el respectivo permiso de demolición, la Municipalidad hará entrega de un rótulo con la leyenda " PERMISO DE DEMOLICIÓN". el cual deberá colocarse en un lugar visible en el sitio a demoler. por lo menos desde tres días antes de efectuarse el derribo del edificio y durante el transcurso del mismo.

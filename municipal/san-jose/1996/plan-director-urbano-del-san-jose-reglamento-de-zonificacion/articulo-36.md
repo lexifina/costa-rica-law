@@ -1,0 +1,13 @@
+Artículo 36.—RETIROS. Son los espacios abiertos no edificados, comprendidos entre una estructura y los linderos del respectivo predio. Se considera retiro de una edificación a otra, la distancia que separa la estructura de uno con respecto del otro. La distancia que debe haber será la indicada en edificios con ventanas en colindancia, (ver artículo 86). Si el edificio es mayor a 5 pisos, al aplicar el respectivo coeficiente de altura artículo 41 la separación entre edificios no será menor a un tercio (1/3) de la altura, siempre y cuando no haya ventanas en la colindancia con el otro edificio.
+Estos edificios para obtener el V° B° del anteproyecto artículo 12 de este Reglamento deberán contar además con un estudio de:
+a. Impacto vial: estudio de accesos, congestión vehicular, soporte de las vías adyacentes, flujos promedio diario y mensual.
+b. Infraestructura: estudio de la demanda-oferta de la infraestructura existente o una propuesta de interesado en el proyecto para mejorarla.
+c. Capacidad de agua: deberá contar con los tanques de almacenamiento de agua con por lo menos el 40% de consumo diario previsto en caso de siniestro u otra situación.
+Posteriormente a este V° B° el interesado deberá tramitar la licencia definitiva y cancelar el impuesto correspondiente.
+a) RETIRO FRONTAI: Está fijado en el Reglamento de Espacios Públicos, Vialidad y Transporte del P.D.Ü., de acuerdo con las características de cada vía.
+En el caso de aquellas con un derecho de vía entre 7 y 11 metros, el retiro mínimo será de 2 metros, salvo en el Centro Antiguo y Centro Actual descritos en el artículo 38 del Reglamento de Espacios Públicos, Vialidad y Transporte o en aquellos que requieran un retiro mayor, fijado en el Reglamento de Espacios Públicos, Vialidad y Transporte.
+Al menos un tercio del retiro frontal debe conservarse como área verde, artículo 35 de este reglamento. En los lotes consolidados artículo 25° con área menor a 60 m2 se autorizará el uso del área de retiro siempre y cuando se cumplan las normas vigentes de salud: ventilación, soleamiento y cuenten con servicio de cloaca. Para estos casos no rige el requisito de cobertura vigente para la zona.
+b) POSTERIOR. En lotes esquineros podrá tomarse sobre el lado menor o en la esquina interior con una área equivalente.
+Se podrá eliminar el retiro posterior en lotes que enfrenten a tres calles a juicio de la Municipalidad, siempre y cuando el diseño propuesto satisfaga plenamente, las necesidades de aireación e iluminación.
+Esta fijado específicamente para cada zona.
+c) LATERAL. Donde este reglamento no lo indique diferente, no se exigirá.

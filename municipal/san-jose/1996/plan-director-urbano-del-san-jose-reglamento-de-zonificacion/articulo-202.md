@@ -1,0 +1,6 @@
+Articulo 202.—REQUISITOS
+1) SUPERFICIE MÍNIMA | 300m2
+2) FRENTE MÍNIMO | 12m
+3) ALTURA MÁXIMA (A=VXC) | Coeficiente C = 0.75
+4) COBERTURA MÁXIMA | 75%
+5) RETIROS | Igual artículo 85

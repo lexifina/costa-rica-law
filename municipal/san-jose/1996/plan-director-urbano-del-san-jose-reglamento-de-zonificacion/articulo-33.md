@@ -1,0 +1,1 @@
+Artículo 33.—El alineamiento en las vías se determina midiendo desde el centro de las mismas, y es el resultado de la suma del derecho de vía, más retiro frontal cuando exista. Se entiende por derecho de vía el espacio definido para la vía en cuestión e incluye la calzada y las aceras, con sus franjas verdes respectivas.

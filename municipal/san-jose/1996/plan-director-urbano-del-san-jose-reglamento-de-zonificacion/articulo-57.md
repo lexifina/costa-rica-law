@@ -1,0 +1,1 @@
+Artículo 57.—USOS NO CONFORMES. Únicamente se permitirán aquellos que se encontraban funcionando y debidamente establecidos al cobrar vigencia el presente reglamento, con las limitaciones, definidas en el artículo 26 y en el Capítulo III, del Título III del presente Reglamento de Zonificación del Uso del Suelo.

@@ -1,0 +1,6 @@
+Artículo 114—REQUISITOS
+1) SUPERFICIE MÍNIMA | 300 m2
+2) FRENTE MÍNIMO | 12 m
+3) ALTURA' | Coeficiente C= 1.25
+4) COBERTURA | 75%
+5) RETIROS | Igual al artículo 85

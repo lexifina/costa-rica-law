@@ -1,0 +1,1 @@
+Articulo 96.—USOS CONDICIONALES. De la lista del anexo 1 los numerales 8, 10, 12, 14, 17, 18, 19,20. En caso de vivienda la densidad será igual al indicado por la zona de uso residencial de media – alta densidad. (Artículo 66). Cumpliendo con los demás requisitos (Artículo 97).

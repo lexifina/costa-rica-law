@@ -1,0 +1,1 @@
+Artículo 213.—Todo edificio publico o privado que se encuentre alrededor de un espacio abierto, como plaza o parque deberá tomar en cuenta la unidad total del conjunto al ser construido, remodelado, restaurado o pintado.

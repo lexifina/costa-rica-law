@@ -1,0 +1,1 @@
+Artículo 175.—USOS COMPLEMENTARIOS A INCENTIVAR. Se debe fomentar la presencia de oficinas de servicios médicos, farmacias, venta de artículos médicos especializados, albergues económicos para el publico (hospedaje), servicios como baños, orinales y restaurantes.

@@ -1,0 +1,1 @@
+Artículo 134—USOS NO PERMITIDOS : De la lista del anexo 1, contemplados del I al 11 y del 13 al 15, 18, 20 y 23. En relación al uso correspondiente al numeral 20 de la lisia del anexo I, ver lo estipulado en el Reglamento de Espacios Públicos, Vialidad y Transpone del PDU.

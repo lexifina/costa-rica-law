@@ -1,0 +1,1 @@
+Articulo 212.—CONTEXTO. En lodo proyecto de nuevo edificio, de remodelación o restauración se deberán tomar en cuenta las características de los edificios que se encuentran a su alrededor, especialmente las alturas y líneas horizontales predominantes, las proporciones de columnas, puertas y ventanas, lodo ello con el fin de establecer la unidad visual.

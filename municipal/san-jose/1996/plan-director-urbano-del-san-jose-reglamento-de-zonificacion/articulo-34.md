@@ -1,0 +1,1 @@
+Artículo 34.—LINEA DE CONSTRUCCIÓN. Es una línea paralela a la del frente de la propiedad, a una distancia igual a la del retiro frontal. Está determinada por el alineamiento. Este alineamiento debe respetarse en forma subterránea y aérea.

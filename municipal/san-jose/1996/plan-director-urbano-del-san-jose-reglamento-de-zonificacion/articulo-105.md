@@ -1,0 +1,1 @@
+Artículo 105—USOS CONDICIONALES. De la lista del anexo 1, del 7 al 9, 13, 15 y 17. En caso de vivienda la densidad será la indicada para la zona de uso residencial de alta densidad. (Articulo 64). Cumpliendo los requisitos del artículo 106.

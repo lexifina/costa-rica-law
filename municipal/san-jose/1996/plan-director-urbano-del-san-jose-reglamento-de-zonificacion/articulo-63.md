@@ -1,0 +1,3 @@
+CAPITULO II
+Zona residencial alta densidad (ZRAD)
+Artículo 63.—PROPOSITO. Es la parle del suelo urbanizado o urbanizable del Cantón, donde se persigue el uso más intenso del suelo. Esta ubicada como se señala en los Mapas de Uso de Suelo y Densidades Residenciales. El objetivo es lograr un estándar de densidad neta de 150 viviendas por hectárea, mediante la- construcción de conjuntos residenciales multifamiliares principalmente. No obstante el cálculo de la densidad máxima estará sujeto a la capacidad de la infraestructura básica existente en la zona. Para esto se debe presentar un análisis de la infraestructura básica para determinar si las mismas pueden" satisfacer las necesidades.

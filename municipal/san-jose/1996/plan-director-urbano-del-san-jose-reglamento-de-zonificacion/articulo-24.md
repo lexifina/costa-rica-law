@@ -1,0 +1,1 @@
+Artículo 24.—USOS CONFORMES: Son todas aquellas actividades o usos del suelo acordes con los requisitos y lineamientos del P.D.U. para "cada zona y que pueden ser desarrollados, cumpliendo las disposiciones que se establecen en este reglamento.

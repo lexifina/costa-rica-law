@@ -1,0 +1,3 @@
+Artículo 39.—COBERTURA. Se define como la proyección horizontal de una estructura o el área de terreno cubierto por tal estructura.
+No se incluyen en la cobertura los aleros, siempre y cuando estos no excedan un metro.
+La cobertura de construcción está establecida para cada una de las zonas. Se exceptúan los casos indicados en el párrafo a) del artículo 36. Sin embargo la Municipalidad a cambio de la ampliación del derecho de vía, dará incentivos en altura o área de piso mayor. En cuyo caso no se podrá contar con el terreno de ampliación para el cálculo de la cobertura. Pero si el interesado accede a la ampliación vial, la D.D.U. podrá negociar la cobertura en proporción al derecho cedido.

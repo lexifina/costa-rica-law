@@ -1,0 +1,3 @@
+TITULO XV
+Patrimonio histórico y cultural
+Artículo 220.—En los casos de demolición la declaratoria o trámite del decreto de que una edificación u obra tiene el carácter de Patrimonio Nacional, en cualquiera de las modalidades establecidas por el Ministerio de Cultura, Juventud y Deportes, implicará una imposibilidad total de que dicho inmueble pueda ser demolido. Para ser restaurado, o remodelación o su aspecto modificado, por su propietario, los permisos, deben contar con el V° B° del Centro de Investigación del Patrimonio del Ministerio de Cultura, Juventud y Depones para el tramite correspondiente, además de lo estipulado en el artículo 12 de este Reglamento con los procedimientos serán los estipulados en la Ley de Patrimonio Histórico - Arquitectónico N° 7555.

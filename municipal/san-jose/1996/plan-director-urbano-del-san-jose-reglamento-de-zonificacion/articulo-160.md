@@ -1,0 +1,1 @@
+Articulo 160.—INCENTIVO DE ALTURA. En todas las zonas de Control Especial se permitirá corno incentivo, aumentar la altura de las construcciones en 3.5 metros, por cada 5 metros de retiro frontal adicional.

@@ -1,0 +1,3 @@
+CAPITULO IV
+Comercio y servicios, centro local (C.S.C.L)
+Artículo 90.—DELIMITACIÓN ESPACIAL Y PROPÓSITOS. De conformidad con los lineamientos del P.D.U., que persigue un mayor equilibrio en las funciones urbanas, se propone la creación de importantes arcas de comercio y servicios que concentren las actividades de mayor relevancia comercial y de servicios. Para ello se proponen centros locales de servicios, los cuales prestarán servicios a la población inmediata del distrito y zonas circunvecinas. También en esta categoría se encuentra el Centro Local Plaza Mayor, ubicado en Rohrmoser. Su delimitación precisa está en el mapa de Zonificación del Uso del Suelo. Con su respectiva ampliación.

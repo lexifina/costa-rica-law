@@ -1,0 +1,1 @@
+Artículo 225.—Para proteger los sitios de valor Histórico y Cultural la Municipalidad, cooperara para recaudar los fondos necesarios, podrá establecer convenios con Organismos Internacionales, Países Amigos, Fundaciones y con los propietarios de los edificios u obras, motivándolos para que ellos continúen con preservación de estos sitios.

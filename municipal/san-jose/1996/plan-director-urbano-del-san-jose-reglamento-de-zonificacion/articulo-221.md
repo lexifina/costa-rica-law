@@ -1,0 +1,1 @@
+Articulo 221.—La Municipalidad velará porque las disposiciones antes mencionadas sean cumplidas dentro de su jurisdicción, en especial, cuando los inmuebles huyan sido declarados rujo cualquiera de las categorías establecidas para denominar los bienes patrimoniales.
