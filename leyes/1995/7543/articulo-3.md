@@ -1,4 +1,4 @@
-Artículo 3.- Se faculta a la Dirección General de la Tributación Directa para establecer regímenes de tributación simplificada en el impuesto sobre la renta y el impuesto general sobre las ventas.
+Artículo 3°.- Se faculta a la Dirección General de la Tributación Directa para establecer regímenes de tributación simplificada en el impuesto sobre la renta y el impuesto general sobre las ventas.
 Asimismo, se adiciona un nuevo capítulo XXVIII a la Ley del impuesto sobre la renta, No. 7092, del 21 de abril de 1988 y sus reformas. En consecuencia, deberá correrse la numeración de los capítulos siguientes y sus respectivos artículos. El texto del nuevo capítulo dirá:
 "Capítulo XXVIII
 Régimen simplificado
