@@ -1,0 +1,1 @@
+Artículo 8°—El Consejo podrá integrar comités ad-hoc para el estudio de problemas o asuntos de carácter especifico e invitar a sus sesiones a las personas que estime puedan aportar conocimientos en el estudio de los asuntos que son de su competencia.
