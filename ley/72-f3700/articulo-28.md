@@ -1,1 +1,2 @@
-Artículo 28.-En el caso de pertenecer una finca a varios condueños, cada uno de éstos estará obligado solidariamente al pago total de la contribución sobre la propiedad entera, si la poseen en común, o sobre el valor del lote que posea en pago de sus derechos, si existiere división material de hecho.
+Artículo 28.- En el caso de pertenecer una finca a varios condueños, cada uno de éstos pagará por separado el impuesto si es que sus derechos valen más de tres mil colones, o que sumando su valor junto con el de los otros bienes que haya declarado llegue o exceda de esa suma. Pero en ningún caso, un copropietario estará obligado a declarar los derechos que los demás tengan en el inmueble.
+(Así reformado por el artículo 4° de la ley N° 17 del 22 de junio de 1922)
