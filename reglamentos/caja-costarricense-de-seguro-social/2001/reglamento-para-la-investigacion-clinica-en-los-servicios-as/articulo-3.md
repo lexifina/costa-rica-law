@@ -1,1 +1,0 @@
-Artículo 3º. Todo proyecto de investigación con sujetos humanos que se realice con participación de los establecimientos de la CCSS debe someterse a evaluación y aprobación del Comité Etico-Científico (CEC). El proceso de evaluación y aprobación debe anteceder en todos los casos al inicio de la ejecución del estudio.

@@ -1,2 +1,0 @@
-Artículo 4º. Ninguna autoridad de la CCSS podrá autorizar la realización de una investigación con sujetos humanos, si no cuenta con la aprobación del CEC acreditado de la institución.
-Este Reglamento es vinculante para todos los departamentos que dependan estructuralmente de la CCSS, por lo que ningún funcionario puede negarse a su cumplimiento, bajo la prevención de que se aplique por parte del jerarca respectivo, las sanciones que pudieren proceder previa verificación o realización de un Debido Proceso en el que se le garantice al funcionario su Derecho de Defensa.

@@ -1,1 +1,0 @@
-Artículo 42°. El CEC tiene el derecho y la responsabilidad de auditar de la forma que consideren conveniente, sistemáticamente o al azar el proceso y documentación de aquellos estudios que haya aprobado para su ejecución.

@@ -1,1 +1,0 @@
-Artículo 46°. El patrocinador de la investigación pagará la totalidad de los gastos que asume el establecimiento. El cobro de las actividades o servicios generados por la investigación, se ajustará a las tarifas vigentes y en ningún caso podrá ser inferior al costo total (directo e indirecto) que dichos bienes y servicios significan para la CCSS.
