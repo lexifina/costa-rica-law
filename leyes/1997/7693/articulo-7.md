@@ -13,13 +13,13 @@ como para conocer y aprobar los nuevos proyectos que sean sometidos a su
 consideración.
 3.- Esta Comisión trabajará para lograr acuerdos en los siguientes
 asuntos:
-1.- Actividades de cooperación técnica a desarrollar cada
-año por las Misiones Técnicas y sus contrapartes costarricenses,
+1.- Actividades de cooperación técnica a desarrollar cada año
+por las Misiones Técnicas y sus contrapartes costarricenses,
 su contenido, presupuesto, recursos humanos, equipos y
 materiales.
-2.- Los problemas que se presenten durante el desarrollo de
-los proyectos de cooperación técnica y las medidas o soluciones
+2.- Los problemas que se presenten durante el desarrollo de los
+proyectos de cooperación técnica y las medidas o soluciones
 que se deben tomar según las causas.
-3.- Las actividades de cooperación técnica, el avance o
-progreso de los proyectos y los resultados prácticos, así como
-la forma de hacerlos más eficaces.
+3.- Las actividades de cooperación técnica, el avance o progreso
+de los proyectos y los resultados prácticos, así como la
+forma de hacerlos más eficaces.

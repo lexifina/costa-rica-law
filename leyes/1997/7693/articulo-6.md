@@ -1,6 +1,6 @@
 ARTÍCULO 6
-El Gobierno de la República de Costa Rica, en la ejecución de
-los programas de cooperación técnica, se responsabilizará de lo siguiente:
+El Gobierno de la República de Costa Rica, en la ejecución de los
+programas de cooperación técnica, se responsabilizará de lo siguiente:
 1.- Facilitar a las Misiones Técnicas acreditadas bajo este Convenio,
 exoneración de todo tipo de impuestos para la adquisición de los vehículos
 que se utilizarán en labores técnicas que ejecuten en Costa Rica.
