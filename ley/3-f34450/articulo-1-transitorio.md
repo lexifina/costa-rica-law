@@ -1,0 +1,4 @@
+ARTÍCULO TRANSITORIO.
+Para recaudar en el presente año la contribución de caminos, la formación de las listas de contribuyen- tes de cada distrito se hará en la segunda quincena del mes de setiembre y en la primera del mes de octubre se les dará publicidad en el Diario Oficial.
+La publicación de estas listas por bandos, conforme con el inciso 30 del artículo 29 de esta ley, se verificará en los tres domingos siguientes al 15 de octubre.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los treinta y un días del mes de agosto de mil ochocientos ochenta y siete. -AND. SÁENZ, Presidente.-MANUEL MONTEALEGRE, Secretario.-Palacio Presidencial.-San José, á los treinta y un días del mes de agosto de mil ochocientos ochenta y siete.-Ejecútese.-BERNARDO Soto.-El Secretario de Estado en el despacho de Gobernación, CLETO GONZÁLEZ VÍQUEZ.
