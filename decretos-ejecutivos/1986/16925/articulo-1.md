@@ -10,5 +10,6 @@ Considerando:
 5°—Que la mayoría de las familias que habita la zona son muy numerosas dependiendo muchas de ellas para su subsistencia de una limitada comercialización de productos agropecuarios y de autoconsumo, mientras que otras dependen del salario que algunos de los miembros de las familias perciben como jornaleros.
 Por tanto.
 DECRETAN:
-Artículo 1°—Se autoriza al Departamento de Vida Silvestre del Ministerio de Agricultura y Ganadería para que paralelamente a la conclusión del Plan Maestro del Refugio Nacional de Fauna Silvestre Caño Negro, otorgue permisos a las personas de escasos recursos que habitan en el citado Refugio, para que colecten y comercien aquellos peces que queden atrapados en las lagunetas que se forman aisladas del caño principal de la Laguna Caño Negro, por efecto de los cambios estacionales.
-Estas autorizaciones se concederán hasta el 31 de diciembre de 1986.
+Artículo 1°—Se autoriza al Departamento de Vida Silvestre del Ministerio, de Agricultura y Ganadería para que paralelamente a la conclusión del Plan Maestro del Refugio Nacional de Fauna Silvestre Caño Negro, otorgue permisos a las personas de escasos recursos que habitan en el citado refugio, para que colecten y comercien aquellos peces que queden atrapados en las lagunetas que se forman aisladas del caño principal de la Laguna Caño Negro, por efecto de los cambios estacionales.
+Estas autorizaciones se concederán hasta el 31 de diciembre de 1987.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 17488 de 08 de abril de 1987).

@@ -14,3 +14,4 @@ Autoriza al Departamento de Vida Silvestre a otorgar permisos a las personas de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-04-18 | la propia norma |
+| 2 | 1987-04-08 | Decreto Ejecutivo 17488 (1987-04-08) |
