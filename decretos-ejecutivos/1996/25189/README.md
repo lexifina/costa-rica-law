@@ -13,3 +13,4 @@ Directrices Política Salarial y Empleo Autoridad Presupuestaria 1997
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-31 | la propia norma |
+| 2 | 1996-05-31 | Decreto Ejecutivo 26364 (1997-09-17) |
