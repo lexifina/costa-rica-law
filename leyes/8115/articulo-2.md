@@ -1,0 +1,1 @@
+Artículo 2º—En el calendario escolar, el Ministerio de Educación Pública emitirá las directrices necesarias para celebrar el Día de la Abolición del Ejército, con el fin de que los centros educativos destaquen esta efeméride.
