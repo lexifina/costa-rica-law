@@ -1,0 +1,4 @@
+Artículo XI
+Pagos y transferencias
+1.- Excepto en las circunstancias previstas en el artículo XII, ningún Miembro aplicará restricciones a los pagos y transferencias internacionales por transacciones corrientes referentes a compromisos específicos por él contraídos.
+2.- Ninguna disposición del presente Acuerdo afectará a los derechos y obligaciones que corresponden a los miembros del Fondo Monetario Internacional en virtud del Convenio Constitutivo del mismo, incluida la utilización de medidas cambiarias que estén en conformidad con dicho Convenio Constitutivo, con la salvedad de que ningún Miembro impondrá restricciones a las transacciones de capital de manera incompatible con los compromisos específicos por él contraídos con respecto a esas transacciones, excepto al amparo del artículo XII o a solicitud del Fondo.

@@ -1,0 +1,16 @@
+ANEXO SOBRE SERVICIOS DE TRANSPORTE AEREO
+1.- El presente Anexo se aplica a las medidas que afecten al comercio de servicios de transporte aéreo, sean o no regulares, y a los servicios auxiliares. Se confirma que ningún compromiso específico u obligación asumidos en virtud del Acuerdo reducirán o afectarán las obligaciones resultantes para un Miembro de acuerdos bilaterales o multilaterales vigentes en la fecha de entrada en vigor del Acuerdo sobre la OMC.
+2.- El Acuerdo, incluido su procedimiento de solución de diferencias, no será aplicable a las medidas que afecten:
+a) a los derechos de tráfico, sea cual fuere la forma en que se hayan otorgado; o
+b) a los servicios directamente relacionados con el ejercicio de los derechos de tráfico, con la salvedad de lo establecido en el párrafo 3 del presente Anexo.
+3.- El Acuerdo se aplicará a las medidas que afecten:
+a) a los servicios de reparación y mantenimiento de aeronaves;
+b) a la venta y comercialización de los servicios de transporte aéreo;
+c) a los servicios de sistemas de reserva informatizados (SRI).
+4.- Unicamente podrá recurrirse al procedimiento de solución de diferencias del Acuerdo cuando los Miembros de que se trate hayan contraído obligaciones o compromisos específicos y una vez agotados los procedimientos de solución de diferencias previstos en los acuerdos bilaterales y otros acuerdos o convenios multilaterales.
+5.- El Consejo del comercio de Servicios examinará periódicamente, por lo menos cada cinco años, la evolución del sector del transporte aéreo y el funcionamiento del presente Anexo, con miras a considerar la posibilidad de una mayor aplicación del Acuerdo en este sector.
+6.- Definiciones:
+a) Por "servicios de reparación y mantenimiento de aeronaves" se entiende tales actividades cuando se realizan en una aeronave o parte de ella mientras la aeronave está fuera de servicio y no incluyen el llamado mantenimiento de la línea.
+b) Por "venta y comercialización de servicios de transporte aéreo" se entiende las oportunidades del transportista aéreo de que se trate de vender y comercializar libremente sus servicios de transporte aéreo, con inclusión de todos los aspectos de la comercialización, por ejemplo estudio de mercados, publicidad y distribución. Estas actividades no incluyen la fijación de precios de los servicios de transporte aéreo ni las condiciones aplicables.
+c) Por "servicios de sistemas de reserva informatizados (SRI)" se entiende los servicios prestados mediante sistemas informatizados que contienen información acerca de los horarios de los transportistas aéreos, las plazas disponibles, las tarifas y las reglas de tarificación y por medio de los cuales se pueden hacer reservas o expedir billetes.
+d) Por "derechos de tráfico" se entiende el derecho de los servicios regulares y no regulares de operar y/o transportar pasajeros, carga y correo, mediante remuneración o alquiler, desde, hacia, en o sobre el territorio de un Miembro, con inclusión de los puntos que han de cubrirse, las rutas que han de explotarse, los tipos de tráfico que han de realizarse, la capacidad que ha de facilitarse, las tarifas que han de cobrarse y sus condiciones, y los criterios para la designación de líneas aéreas, entre ellos los de número, propiedad y control.

@@ -1,0 +1,5 @@
+Artículo X
+Medidas de salvaguardia urgentes
+1.- Se celebrarán negociaciones multilaterales sobre la cuestión de las medidas de salvaguardia urgentes, basadas en el principio de no discriminación. Los resultados de esas negociaciones se pondrán en efecto en un plazo que no exceda de tres años contados a partir de la fecha de entrada en vigor del Acuerdo sobre la OMC.
+2.- En el período anterior a la puesta en efecto de los resultados de las negociaciones a que se refiere el párrafo 1, todo Miembro podrá, no obstante las disposiciones del párrafo 1 del artículo XXI, notificar al Consejo del Comercio de Servicios su intención de modificar o retirar un compromiso específico transcurrido un año a partir de la fecha de entrada en vigor de ese compromiso, a condición de que dicho Miembro exponga al Consejo razones que justifiquen que dicha modificación o retiro no puede esperar a que transcurra el período de tres años previsto en el párrafo 1 del artículo XXI.
+3.- Las disposiciones del párrafo 2 dejarán de aplicarse transcurridos tres años a partir de la fecha de entrada en vigor del Acuerdo sobre la OMC.

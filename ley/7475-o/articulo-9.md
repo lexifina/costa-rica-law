@@ -1,0 +1,4 @@
+Artículo IX
+Prácticas comerciales
+1.- Los Miembros reconocen que ciertas prácticas comerciales de los proveedores de servicios, aparte de los comprendidos en el artículo VIII, pueden limitar la competencia y, por ende, restringir el comercio de servicios.
+2.- Cada Miembro, a petición de cualquier otro Miembro, entablará consultas con miras a eliminar las prácticas a que se refiere el párrafo 1. El Miembro al que se dirija la petición la examinará cabalmente y con comprensión y prestará su cooperación facilitando la información no confidencial que esté al alcance del público y que guarde relación con el asunto de que se trate. Dicho Miembro facilitará también al Miembro peticionario otras informaciones de que disponga, con sujeción a su legislación nacional y a reserva de la conclusión de un acuerdo satisfactorio sobre la salvaguarda del carácter confidencial de esas informaciones por el Miembro peticionario.

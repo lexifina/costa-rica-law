@@ -1,0 +1,14 @@
+PARTE III
+COMPROMISOS ESPECIFICOS
+Artículo XVI
+Acceso a los mercados
+1.- En lo que respecta al acceso a los mercados a través de los modos de suministro identificados en el artículo I, cada Miembro otorgará a los servicios y a los proveedores de servicios de los demás Miembros un trato no menos favorable que el previsto de conformidad con los términos, limitaciones y condiciones convenidos y especificados en su Lista (8).
+* (8) Si un Miembro contrae un compromiso en materia de acceso a los mercados en relación con el suministro de un servicio por el modo de suministro mencionado en el apartado a) del párrafo 2 del artículo I y si el movimiento transfronterizo de capital forma parte esencial del propio servicio, ese Miembro se compromete al mismo tiempo a permitir dicho movimiento de capital. Si un Miembro contrae un compromiso en materia de acceso a los mercados en relación con elsuministro de un servico por elmodo de suministro mencionado en el apartado c) del párrafo 2 del artículo I, se compromete al mismo tiempo a permitir las correspondientes transferencias de capital a su territorio.
+2.- En los sectores en que se contraigan compromisos de acceso a los mercados, las medidas que ningún Miembro mantendrá ni adoptará, ya sea sobre la base de una subdivisión regional o de la totalidad de su territorio, a menos que en su Lista se especifique lo contrario, se definen del modo siguiente:
+a) limitaciones al número de proveedores de servicios, ya sea en forma de contingentes numéricos, monopolios o proveedores exclusivos de servicios o mediante la exigencia de una prueba de necesidades económicas;
+b) limitaciones al valor total de los activos o transacciones de servicios en forma de contingentes numéricos o mediante la exigencia de una prueba de necesidades económicas;
+c) limitaciones al número total de operaciones de servicios o a la cuantía total de la producción de servicios, expresadas en unidades numéricas designadas, en forma de contingentes o mediante la exigencia de una prueba de necesidades económicas (9);
+* (9) El apartado c) del párrafo 2 no abarca las medidas de un Miembro que limitan los insumos destinados al suministro de servicios
+d) limitaciones al número total de personas físicas que puedan emplearse en un determinado sector de servicios o que un proveedor de servicios pueda emplear y que sean necesarias para el suministro de un servicio específico y estén directamente relacionadas con él, en forma de contingentes numéricos o mediante la exigencia de una prueba de necesidades económicas;
+e) medidas que restrinjan o prescriban los tipos específicos de persona jurídica o de empresa conjunta por medio de los cuales un proveedor de servicios puede suministrar un servicio; y
+f) limitaciones a la participación de capital extranjero expresadas como límite porcentual máximo a la tenencia de acciones por extranjeros o como valor total de las inversiones extranjeras individuales o agregadas.
