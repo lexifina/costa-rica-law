@@ -6,7 +6,7 @@ Solicitud por escrito ante la Coordinación de Tesorería, con una justificació
 Dicha solicitud deberá ser aprobada por el Jefe del Departamento d Proveduría, donde haga constar que no hay existencias en bodega.
 La solicitud se entregará al Coordinador de Presupuesto, el cual verificará la existencia y disponibilidad del contenido presupuestario que permita efectuar el gasto, codificará y dará o no su visto bueno a la solicitud.
 Si la erogación cumple los requisitos respectivos, el Director Administrativo procederá a autorizar con su firma la solicitud
-El Departamento solicitante deberá presentar como mínimo tres cotizaciones cuando el monto sea superior a 10.000.00 (diez mil colones).
+Cuando la solicitud de fondos de caja chica sea una suma superior a cincuenta mil colones, el departamento solicitante deberá presentar como mínimas tres cotizaciones (se varía el monto que originalmente era de diez mil colones). (Así reformado por acuerdo tomado en sesión N° 36 de 14 de agosto del 2002)
 Una vez autorizada la solicitud, el Departamento de Presupuesto entregará al Departamento o sección interesado la solicitud para que procedan a pasar al Departamento de Tesorería.
 El responsable de la caja chica revisará que los puntos anteriores se hayan cumplido y le pondrá el visto bueno (depende de la disponibilidad económica) y procederá a pasarlo a la caja.
 La Coordinación de Tesorería extenderá una nota de exoneración del pago de impuesto de ventas y de consumo a la casa comercial, en la cual se autoriza a la persona que firma el adelanto.
