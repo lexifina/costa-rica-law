@@ -1,0 +1,2 @@
+Artículo 7°—Cada sesión será grabada y se elaborará una acta que contendrá al menos: indicación de la hora, lugar y fecha en que se celebra, miembros presentes y personas invitadas, el orden del día y contenido de los acuerdos. Las actas serán aprobadas en la sesión ordinaria siguiente a la que se celebró, en la cual adquirirán firmeza.
+Las Actas del Consejo, los documentos y los estudios que se refieran a su actividad constituyen documentos públicos.

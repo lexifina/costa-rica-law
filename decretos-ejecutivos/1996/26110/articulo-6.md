@@ -1,0 +1,1 @@
+Artículo 6°—El Consejo se reunirá ordinariamente una vez por mes y la convocatoria la hará el Presidente. El Consejo Nacional se podrá reunir extraordinariamente cuando así se requiera. El quórum para sesionar válidamente será de tres miembros, de los cuales uno deberá ser el Presidente o su suplente. En caso de empate, el Presidente tendrá doble voto.

@@ -1,0 +1,1 @@
+Artículo 5°—Cuando alguno de los modelos de concesión de explotación, ya aprobado y recomendado por el Consejo, deba ser modificado, las reformas o modificaciones, deberán someterse a consulta pública antes de su adopción.

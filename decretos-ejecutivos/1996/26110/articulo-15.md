@@ -1,0 +1,1 @@
+Artículo 15.—El Comité Conjunto velará porque el titular del derecho cumpla tanto con las obligaciones estipuladas en la resolución de otorgamiento como con aquellas adquiridas con la aprobación del estudio del impacto ambiental. En caso de detectar alguna irregularidad, el Comité Conjunto lo pondrá en conocimiento inmediato del MINAE, a efecto que tome las medidas del caso.

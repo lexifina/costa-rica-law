@@ -1,0 +1,1 @@
+Artículo 11.—El Consejo Nacional para la Minería recomendará al Ministerio del Ambiente y Energía el otorgamiento o no de una concesión de explotación minera. Estas recomendaciones quedarán supeditadas a los criterios técnicos de la Dirección de Geología y Minas.

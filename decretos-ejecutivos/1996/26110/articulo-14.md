@@ -1,0 +1,1 @@
+Artículo 14.—Para el mejor desempeño de sus funciones, cada Comité elaborará su propio reglamento de trabajo, siguiendo el modelo que establezca el Consejo Nacional de Minería, de conformidad con el artículo 4 inciso d) de este reglamento.
