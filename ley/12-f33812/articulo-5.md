@@ -1,2 +1,2 @@
-Artículo 5°—El Capital de la Caja será de ¢5.000,000.00 (cinco millones de colones), y estará representado por 50.000 (cincuenta mil) acciones de cien colones cada una.
-(Así reformado por el artículo único de la ley N° 1929 del 22 de setiembre de 1955)
+Artículo 5°—El capital de la Caja será ilimitado, y estará representado por el número de acciones de cien colones (¢ 100.00) cada una, que correspondan a su monto pagado.
+(Así reformado por el artículo 1° de la ley N° 2616 del 12 de agosto de 1960)
