@@ -1,0 +1,38 @@
+BANCO CENTRAL DE COSTA RICA
+El Consejo Nacional de Supervisión del Sistema Financiero, mediante artículo 6, del acta de la sesión 91-99, celebrada el 10 de mayo de 1999, considerando:
+I.—Que mediante artículo 7, numeral I del acta de la sesión 64-99, celebrada el 7 de enero de 1999 el Consejo Nacional de Supervisión del Sistema Financiero aprobó el "Reglamento sobre Oferta Pública de Adquisición".
+II.—Que con posterioridad a su entrada en vigencia se han recibido comentarios de diferentes sectores en los cuales manifiestan su preocupación por el tiempo total que involucra el tramite de oferta pública de adquisición.
+III.—Que la presentación de una oferta pública de adquisición coloca a la empresa afectada en una situación de incertidumbre, durante la cual las facultades de sus órganos de administración se hallan limitadas.
+IV.—Que el Consejo Nacional de Supervisión del Sistema Financiero ha estimado procedente la reducción de los plazos establecidos para la autorización de las ofertas por parte de este Cuerpo Colegiado y de los plazos de comunicación de resoluciones por parte del Superintendente.
+V.—Que los accionistas tienen conocimiento de la existencia de una oferta pública de adquisición desde la publicación de la oferta original, por lo que el Consejo Nacional considera que la reducción del plazo de aceptación, que no comienza a correr sino con la publicación de la oferta final, no perjudica los intereses de los accionistas.
+VI.—Que el Consejo Nacional ha estimado que la existencia de múltiples ofertas competidoras autorizadas, eventualmente bajo las mismas condiciones de objeto y precio, podrían dificultar la toma de decisiones de los accionistas frente a un proceso de oferta pública de adquisición. En razón de lo anterior este Consejo ha estimado conveniente reformar el régimen de ofertas competidoras, de forma tal que únicamente la mejor oferta presentada sea la que finalmente se presente a la consideración de los accionistas.
+VII.- Que la presente reforma fue sometida a consulta de conformidad con lo que establece el artículo 361 de la Ley General de Administración Pública.
+convino en:
+1. Reformar los artículos 12, 14, 15, 16, 17, 18, 22 y 24 del "Reglamento sobre oferta pública de adquisición", de conformidad con el texto que se copia a continuación:
+Artículo 12.—Autorización de la oferta
+El Consejo Nacional de Supervisión del Sistema Financiero deberá adoptar el acuerdo de autorización o denegación de la oferta en un plazo de cinco días hábiles a partir de su remisión por parte del Superintendente.
+Artículo 14.—Ofertas competidoras
+Dentro de los quince días hábiles siguientes a la primera publicación de la oferta podrán presentarse ofertas competidoras. Toda oferta competidora deberá cumplir, al menos, con los siguientes requisitos:
+Deberá tener por objeto al menos la misma cantidad de valores que la oferta original.
+Deberá ofrecer como contraprestación un precio superior al menos en un cinco por ciento al de la oferta original.
+Deberá cumplir, además, con los requisitos establecidos en los artículos 1 a 8 de este Reglamento.
+Estas ofertas estarán sujetas al mismo tramite de admisibilidad dispuesto en el Artículo 9 de este Reglamento.
+Artículo 15.—Ofertas definitivas y oferta final autorizada
+Vencido el plazo a que se refiere el artículo 14 sin que se hubieren presentado ofertas competidoras, el Superintendente General de Valores lo comunicará al oferente, dentro del plazo de tres días hábiles. Dentro de los cinco días hábiles siguientes a esta comunicación el oferente deberá divulgar nuevamente su oferta, la cual se tendrá como la oferta final autorizada, en la misma forma establecida en el artículo 13 de este Reglamento.
+En caso de que se hubieren presentado y admitido para el trámite ofertas competidoras, dentro del plazo de tres días hábiles contados a partir de la comunicación del acuerdo de admisibilidad de la última de las ofertas competidoras admitidas, el Superintendente General de Valores convocará a todos los oferentes admitidos para que dentro del plazo que él señale concurran a la Superintendencia a presentar sus ofertas definitivas. En este sentido podrán mejorar las ofertas originalmente admitidas, para lo cual deberán rendir las garantías adicionales que correspondan de conformidad con lo establecido en el artículo 6.
+El Superintendente elevará al conocimiento del Consejo Nacional de Supervisión las ofertas definitivas presentadas. El Consejo Nacional únicamente autorizará la mejor oferta presentada y únicamente ésta permanecerá vigente. Para estos efectos se considerará mejor oferta aquella que ofrezca el precio mayor entre todas las ofertas finales y se dirija al menos a la misma cantidad de valores ofrecidos en la oferta original. Entre dos ofertas con igual precio, se considerará mejor oferta aquella que se dirija a una mayor cantidad de valores.
+La oferta final autorizada deberá ser divulgada en la misma forma establecida en el artículo 13 de este Reglamento.
+Artículo 16.—Plazo de aceptación
+El plazo para la aceptación de la oferta final autorizada será de quince días hábiles contados a partir de su primera publicación. En el caso de que no se hubieren presentado ofertas competidoras este plazo se contará a partir de la publicación a que se refiere el artículo 15.
+Artículo 17.—Informe del órgano de administración
+El órgano de administración de la sociedad afectada deberá rendir un informe detallado con su opinión sobre la oferta final autorizada. En el informe deberá hacer constar la existencia de cualquier acuerdo entre la sociedad afectada y el oferente o entre éste y los miembros del órgano de administración.
+Dicho informe deberá ser publicado dentro de los cinco días hábiles siguientes a la primera publicación de la oferta final autorizada. No obstante, la falta de esta publicación no invalidará la oferta.
+Artículo 18.—Modificación a las ofertas e irrevocabilidad de la oferta final
+Las ofertas públicas de adquisición únicamente podrán modificarse de acuerdo con lo establecido en el artículo 15 de este Reglamento y permanecerán vigentes hasta tanto no sea autorizada la oferta final.
+La oferta final autorizada será irrevocable salvo en el caso de que no sea aceptada por el porcentaje mínimo de capital al que se hubiera condicionado su eficacia: excepto que el oferente en fase de liquidación renuncie a la condición y adquiera todos los valores ofrecidos.
+Artículo 22.—Comunicación del resultado
+Transcurrido el plazo de aceptación, y en un plazo que no excederá de tres días hábiles, el oferente comunicara a la Superintendencia el número total de valores comprendidos en las declaraciones de aceptación presentadas, y en su caso. la propuesta de liquidación. realizada de conformidad con lo establecido en el artículo siguiente.
+En el plazo máximo de tres días hábiles, la Superintendencia comunicara a las bolsas de valores en las que tales valores estén admitidos a negociación, al oferente y a la sociedad afectada el resultado positivo o negativo de la oferta, según se haya alcanzado o no el número mínimo de títulos señalados en la oferta. Las bolsas de valores comunicarán dicho resultado al día siguiente.
+Artículo 24.—Liquidación de la oferta
+La oferta se liquidará en el mismo plazo previsto para las operaciones bursátiles al contado. Para los efectos de este artículo las operaciones se tendrán por realizadas el día inmediato siguiente a la comunicación de la Superintendencia a que se refiere el artículo anterior. La liquidación se realizara fuera de bolsa, pero por medio de intermediarios autorizados.
+Liquidada la operación, la Superintendencia autorizará el levantamiento de la garantía ofrecida.
