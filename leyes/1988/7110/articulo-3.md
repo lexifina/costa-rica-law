@@ -1,0 +1,1 @@
+Artículo 3°-Se exonera a Technoserve Incorporated de los impuestos y las contribuciones sociales sobre los salarios, las compensaciones y las otras remuneraciones que la institución le pague a su personal extranjero por sus servicios, de conformidad con lo que se establece en el artículo 1°.

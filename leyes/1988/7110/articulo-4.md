@@ -1,0 +1,1 @@
+Artículo 4°-Se liberan de toda clase de tributos, la importación y la exportación de efectos personales que efectúen tres funcionarios extranjeros contratados por Technoserve Incorporated, incluidos un automóvil para cada uno.
