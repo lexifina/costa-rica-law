@@ -1,0 +1,6 @@
+Artículo 2°—Durante el plazo que dure esta afectación, la relación creada entre el Estado y el propietario se regirá por las siguientes condiciones:
+1. La administración del Refugio Privado de Vida Silvestre Cerro Dantas, se ajustará a lo dispuesto por el artículo 82 de la Ley de Conservación de la Vida Silvestre.
+2. Los propietarios de dicho inmueble se comprometen a no desarrollar ninguna actividad que comprometa la existencia de la fauna y flora, y darán toda la colaboración necesaria a investigadores e inspectores de recursos naturales del MINAE y otros, que esporádicamente visiten dicha área en labores oficiales a su cargo.
+3. El inmueble estará sometido a la categoría de Refugio de Vida Silvestre, durante un período de cinco años prorrogables por períodos iguales, para lo cual el propietario deberá de solicitarlo por escrito, con un mes de antelación a la finalización de dicho período.
+4. Las actividades que desarrolle el propietario dentro de este Refugio deberán cumplir con las normas legales, reglamentarias y técnicas que establezca el Área de Conservación Cordillera Volcánica Central.
+5. La vigilancia de este Refugio y el cumplimiento de las disposiciones técnicas que al efecto emita el Área de Conservación Cordillera Volcánica Central, será responsabilidad del propietario del inmueble.
