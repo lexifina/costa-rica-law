@@ -14,3 +14,4 @@ Amplía Emergencia Nacional Zona Sur
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-02-24 | la propia norma |
+| 2 | 1986-02-24 | SINALEVI (sin norma nombrada) |
