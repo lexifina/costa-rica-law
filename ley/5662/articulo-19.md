@@ -7,9 +7,5 @@ servicios a cargo de instituciones del Estado, etc., con el fin de
 atender la administración del fondo de desarrollo social y asignaciones
 familiares. Los gastos de administración que cobre la Caja a la
 Dirección no podrán exceder del costo de los mismos.
-El Banco Central depositará directamente en la Dirección General de
-Desarrollo Social y Asignación Familiar los fondos a que se refiere el
-párrafo primero del artículo 15 de esta ley, sin costo alguno para la
-institución y en el entendido de que ésta no es una renta ordinaria del
-Gobierno sino una renta directa del fondo, que no debe, por tanto
-aparecer en el Presupuesto Ordinario de la República.
+(TEXTO MODIFICADO por Resolución de la Sala Constitucional Nº
+4529-99 de las 14:57 horas del 15 de junio de 1999).
