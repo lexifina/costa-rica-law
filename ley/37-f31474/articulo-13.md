@@ -1,0 +1,2 @@
+ARTICULO 13.
+Si los vapores de la Compañía "Kosmos", en cualquier tiempo & por cualquiera causa, condujesen sacos de correspondencia ó mercaderías más allá de los puertos de destino indicados en alguna de las rutas antes referidas, la República de Costa-Rica concede à la Compañía el derecho de desembarcar dicha correspondencia ó mercaderías en cualquiera de sus puertos habilitados, para reembarcarlas por cualquiera de sus vapores, libres de todo derecho ó contribución establecida ó que en adelante pueda establecerse.
