@@ -11,6 +11,8 @@ e) La Unidad Coordinadora del Plan de Reactivación Económica y Laboral para la
 (Así adicionado el inciso anterior mediante el artículo 13 del decreto ejecutivo N° 27339, publicado en La Gaceta N° 193 del 5 de octubre de 1998).
 f) El Plan de Reactivación Económica y Laboral de la Provincia de Limón podrá ser ampliado a aquellas áreas fundamentales que tengan extrema necesidad y aquellas actividades que tiendan a la solución de las mismas. Siendo en este caso la Unidad Coordinadora del Plan de Reactivación Económica y Laboral la que fije los requisitos de los beneficiarios del citado plan.
 (Así adicionado el inciso anterior mediante el artículo 14 del decreto ejecutivo N° 27339, publicado en La Gaceta N° 193 del 5 de octubre de 1998).
+También podrán ser beneficiarios del incentivo económico por una sola vez los trabajadores administrativos de la Empresas afectadas por los procesos de apertura de los muelles Limón-Moín, que cumplan además con los requisitos de nacionalidad, antigüedad laboral, desplazamiento a partir de octubre de 1995 y situación de desempleo de acuerdo con los listados oficiales ya levantados al efecto.
+(Así adicionado el párrafo anterior mediante el artículo 1° del decreto ejecutivo N° 27822 del 21 de abril de 1999).
 2. Será obligación de JAPDEVA:
 a) Aportar los recursos financieros para el plan, los cuales provendrá de una recalificación a las tarifas, así como otros fondos que provengan del sector público o privado.
 b) Girar los incentivos económicos a los trabajadores de acuerdo alas indicaciones que tanto el Ministerio de Trabajo como el INA, le estén formulando en este sentido.
