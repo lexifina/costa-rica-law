@@ -14,3 +14,4 @@ Reglamento del Fondo de Garantías y Jubilaciones de los Empleados del Consejo N
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-02-12 | la propia norma |
+| 2 | 1987-03-17 | Acuerdo 1308 (1987-03-17) |
