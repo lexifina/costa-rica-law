@@ -1,0 +1,1 @@
+Articulo 2°-Esta Comisión deberá dar un informe recomendando medidas a tomar a corto, mediano y largo plazo. Las medidas a corto plazo deberán ser entregadas en el lapso de un mes y, las de mediano plazo deberán serlo en el lapso de tres meses, contados a partir de la fecha de vigencia del presente decreto.
