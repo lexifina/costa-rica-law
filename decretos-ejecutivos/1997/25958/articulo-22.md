@@ -1,1 +1,0 @@
-Artículo 22.—La Proveeduría deberá preparar el Cartel de la Licitación que se promueve, para lo cual se aserorará con los funcionarios que tengan relación directa con el objeto de la compra. Una vez listo, deberá ser aprobado por el Departamento Legal y por la Dirección Administrativa.

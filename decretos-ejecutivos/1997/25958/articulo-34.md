@@ -1,1 +1,0 @@
-Artículo 34.—Todas las actuaciones y documentos relativos a los diferentes procedimientos de Contratación Administrativa mediante concurso desde los acuerdos iniciales hasta el último acto de liquidación, se conservarán en expedientes individuales, ordenados y serán conservados en el Departamento de Proveeduría.

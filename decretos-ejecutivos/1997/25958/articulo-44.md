@@ -1,1 +1,0 @@
-Artículo 44.—Esta modalidad de contratación se regirá por la reglas de la Licitación Pública en lo concerniente a la preparación del Cartel, los requisitos de la oferta y las condiciones de selección adjudicación.

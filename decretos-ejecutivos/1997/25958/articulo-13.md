@@ -1,1 +1,0 @@
-Artículo 13.—El Departamento de Proveeduría es el responsable del trámite de adquisición de los bienes y servicios que desee contratar la Institución y los demás Departamentos podrán intervenir o participar únicamente a petición expresa de este Departamento.

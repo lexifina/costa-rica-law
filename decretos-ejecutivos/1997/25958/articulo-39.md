@@ -1,1 +1,0 @@
-Artículo 39.—Para todos los efectos la adjudicación quedará firme transcurridos 10 días hábiles posteriores al día en que se publica "La Gaceta" el acuerdo respectivo sin que haya presentado Recurso de Apelación ante la Contraloría General de la República.

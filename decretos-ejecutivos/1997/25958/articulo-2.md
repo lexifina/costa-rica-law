@@ -1,1 +1,0 @@
-Artículo 2°—La Proveeduría es el único Departamento autorizado para efectuar la compra de bienes y servicios que se requieran para el normal funcionamiento de la Institución, así como todo lo relativo a la tramitación de los documentos exigidos por la Ley de Contratación Administrativa y su Reglamento.

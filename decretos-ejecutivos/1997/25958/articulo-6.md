@@ -1,1 +1,0 @@
-Artículo 6°—Los Departamentos determinarán anualmente y suministrarán a la Proveeduría trimestralmente su programa de adquisiciones, donde se indique la cantidad y especificaciones de los bienes y servicios a utilizar, conforme con las necesidades reales y previsibles de la Institución.

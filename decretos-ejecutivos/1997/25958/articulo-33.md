@@ -1,1 +1,0 @@
-Artículo 33.—En el momento de la apertura de las ofertas se levantará un acta en el Libro de Apertura de Ofertas, legalizado por la Contraloría General de la República en el que se dejará constancia del nombre de los concursantes, también de las anomalías observadas durante el concurso.

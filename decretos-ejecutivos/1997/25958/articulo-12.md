@@ -1,1 +1,0 @@
-Artículo 12.—El Departamento de Proveeduría no se hará responsable por bienes o servicios prestados a la Institución, donde no medie de previo la respectiva orden de compra, sustentada mediante su respectivo pedido de compra.

@@ -1,1 +1,0 @@
-Artículo 8°—Una vez que la Proveeduría recibe el pedido, se inicia el procedimiento de compra, solicitando a los proveedores inscritos en el Registro, los artículos que necesite comprar. En el caso en que deba comprarse un artículo y no haya en el registro un proveedor inscrito, podrá utilizar otro que no lo esté.

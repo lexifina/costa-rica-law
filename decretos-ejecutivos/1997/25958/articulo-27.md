@@ -1,1 +1,0 @@
-Artículo 27.—Cualquier modificación a las condiciones o especificaciones del Cartel deberán publicarse por los mismos medios que se cursó la invitación con al menos ocho días hábiles de anticipación al vencimiento del plazo para recibir las ofertas.

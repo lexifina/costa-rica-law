@@ -1,1 +1,0 @@
-Artículo 50.—Las compras de artículos o materiales no existen en la bodega estarán sujetas al trámite de cotización, tomándose en cuenta factores como el precio, la calidad, tiempo de entrega y forma de pago.

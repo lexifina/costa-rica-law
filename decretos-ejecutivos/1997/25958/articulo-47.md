@@ -1,1 +1,0 @@
-Artículo 47.—Esta modalidad de contratación se regirá por las reglas de la Licitación Pública en lo concerniente a la preparación del Cartel, los requisitos de la oferta y las condiciones de selección adjudicación. No es necesaria la publicación en el diario "La Gaceta".

@@ -1,1 +1,0 @@
-Artículo 30.—El manejo y control de las garantías así como la custodia de los valores correspondientes es función del Departamento Financiero. La Proveeduría será la encargada de supervisar la vigilancia de las garantías así como autorizar su devolución una vez analizado el proceso y que se haya cumplido con lo requerido.

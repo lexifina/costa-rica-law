@@ -1,1 +1,0 @@
-Artículo 4°—Es responsabilidad de la Proveeduría la vigilancia y control administrativo de todos los aspectos concernientes a las diferentes contrataciones que se realicen. Debe verificar la existencia de la partida presupuestaria y confeccionar la orden de compra para la realización de la misma.

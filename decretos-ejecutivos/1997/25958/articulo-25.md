@@ -1,1 +1,0 @@
-Artículo 25.—Una vez que la Dirección Administrativa aprueba el Cartel, deberá presentarse al Consejo Nacional de Deportes para su aprobación correspondiente, posterior a ello, deberá ser publicado el aviso en La Gaceta y en al menos dos diarios de circulación nacional.

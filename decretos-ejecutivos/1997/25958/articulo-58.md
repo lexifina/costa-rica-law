@@ -1,1 +1,0 @@
-Articulo 58.—Las requisiciones de materiales se distribuirán de manera que el original quedará en el Almacén de Suministros, una copia se remitirá a la contabilidad para efecto de descargar las partidas y la tercera se devolverá al Departamento solicitante para su control y archivo.

@@ -1,1 +1,0 @@
-Artículo 16.—Después de recibida la Factura original y la correspondiente orden de compra, se le debe adjuntar la entrada a bodega y demás documentos, para posteriormente elaborar un documento de trámite de pago con el visto bueno del jefe del Departamento de Proveeduría para iniciar el procedimiento de pago.
