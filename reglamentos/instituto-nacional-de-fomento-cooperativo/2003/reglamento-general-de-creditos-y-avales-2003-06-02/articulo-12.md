@@ -15,14 +15,15 @@ En todo caso deberá presentar una certificación del saldo de la operación emi
 C) Prendas sobre maquinaria y equipo
 C.1 Prendas propiedad del organismo cooperativo, únicamente en primer grado, hasta un 70% del avalúo de la maquinaria y/o equipo. El avalúo debe ser realizado por un perito autorizado por INFOCOOP, el cual tendrá una vigencia no mayor de 6 meses. Este plazo aplicará para las adecuaciones, readecuaciones, y sustituciones de garantías.
 D) Fiduciaria
-D.1 Fianzas directas: Son aquellos compromisos de pago que se emiten directamente a favor del INFOCOOP y que se expresan a través de documentos tales como: El pagaré y la letra de cambio, tomados al 60% de su saldo. La cual deberá ser avalada por los miembros del Consejo de Administración, para lo cual el organismo cooperativo aportará una certificación emitida por un Contador Público Autorizado, de la capacidad de pago y la posesión de bienes de los avalistas.
-D.2 Pagarés y letras de cambios de asociados de Organismos Cooperativos. Son aquellos documentos que constituyen los asociados a favor del Organismo Cooperativo, los cuales deberán tener las siguientes características:
-1. Estar clasificados como cartera A, según las normas emitidas por la SUGEF.
-Contar como mínimo con un fiador.
-Los plazos de vencimiento no deberán ser menores a 12 meses.
-Se aceptarán pagarés con un saldo mínimo de ¢200.000.
-Estos documentos se recibirán al 60% de su saldo actual.
-Dichos documentos, deberán contar con la dirección exacta del deudor y fiadores. Aportar certificación de un Contador Público Autorizado mediante la cual se acredite la capacidad de pago de fiadores y deudores.
+D.1 Fianzas directas: Son aquellos compromisos de pago que se emiten directamente a favor del INFOCOOP y que se expresan a través de documentos tales como: pagarés y letras de cambio, tomados al 70% de su saldo. La cual deberá ser avalada por los miembros del Consejo de Administración, para lo cual el Organismo Cooperativo aportará una certificación emitida por un Contador Público Autorizado, de la capacidad de pago y la posesión de bienes de los avalistas.
+(Así reformado en sesión N° 3357 del 28 de junio del 2004.)
+D.2 Pagarés y letras de cambios de asociados de Organismos Cooperativos.
+Son aquellos pagarés y letras de cambio que constituyen los asociados a favor del Organismo Cooperativo, los cuales se recibirán como garantía en las siguientes condiciones:
+1. Se aceptarán a un 70% de su saldo actual. Dicho saldo no podrá ser inferior a tres salarios mínimos legales, salvo cuando la Cooperativa por sus características no disponga de garantía por esa cuantía, caso en el cual, previo criterio del Proceso de Operaciones, podrán aceptarse títulos por un monto inferior.
+2. Deberán tener un plazo de vencimiento no inferior a doce meses.
+3. Deben contar al menos con un fiador y/o avalista según corresponda. Se excluyen de este requisito los pagarés o letras de cambio que respalden suscripción de capital social.
+4. En el caso de pagarés o letras de cambio aportados por una Cooperativa de Ahorro y Crédito, deberán estar clasificados como cartera A, según las normas emitidas por la SUGEF. En este caso la Cooperativa deberá presentar una declaración jurada emitida por su representante legal, en la cual haga constar que los títulos aportados al INFOCOOP como garantía, cumplen con este requisito. Para las Cooperativas de otra clase, el Proceso de Operaciones propondrá un procedimiento para valorar la calidad de los títulos ofrecidos en garantía.
+(Así reformado en sesión N°3357 del 28 de junio del 2004.)
 D.3 El INFOCOOP podrá aceptar avales en garantía hasta por un 100% del monto de financiamiento, para lo cual se requerirá un análisis de la situación económica y financiera del avalista o entidad garante. Para estos efectos el Organismo Cooperativo deberá presentar para ser valorado Balance de Situación, Estado de Excedentes y Pérdidas, Acuerdo de Consejo de Administración donde se acuerda realizar el acta así como autorización al Gerente y Flujo de caja del organismo cooperativo, o ente garante, si fuera necesario.
 E) Otros Títulos Valores:
 E.1 El INFOCOOP aceptará documentos negociables en la Bolsa Nacional de Valores, emitidos por el Estado o sus Instituciones, que serán recibidos al 90% del valor facial del documento, siempre y cuando el valor cotizado por el puesto de bolsa aceptado por la Institución, sea igual o superior al valor facial del documento. Cuando el valor de la cotización sea menor al valor facial se tomará como base para aplicar el porcentaje indicado, y en caso de que sea mayor, se tomará el valor facial.
