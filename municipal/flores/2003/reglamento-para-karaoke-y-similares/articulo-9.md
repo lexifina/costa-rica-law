@@ -1,0 +1,1 @@
+Artículo 9º—Toda actividad con karaoke o similares podrá iniciar a las dieciséis horas (4 p. m.) y podrá extenderse hasta las veintitrés horas (11 p. m.) en virtud de que la Corporación debe acatar con sentido restrictivo, resguardando primordialmente el interés público.

@@ -1,0 +1,1 @@
+Artículo 3º—Solo podrán realizar este tipo de actividades sociales en los siguientes establecimientos comerciales: restaurantes, bares, salones de baile, bar-restaurante, salas de fiestas, discotecas y cualquier otro establecimiento que cuente con patente de licores siempre y cuando cumpla con los requisitos aquí estipulados.

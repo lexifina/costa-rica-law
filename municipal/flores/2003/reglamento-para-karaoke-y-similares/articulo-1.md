@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE FLORES
+La Municipalidad de Flores en concordancia con lo que le confiere el Código Municipal en su artículo 4, se permite aprobar el siguiente Reglamento que normará las actividades denominadas karaokes y similares.
+REGLAMENTO PARA KARAOKE Y SIMILARES
+Artículo 1º—El presente Reglamento regula las actividades de karaoke y similares que se realicen dentro del cantón, con fines comerciales y de carácter público. Tiene como objetivo primordial regular la actividad de karaoke y similares que realicen en locales comerciales, que se den dentro del cantón de Flores. Siendo éste de acatamiento obligatorio para todas las actividades con karaoke que se realicen en el cantón, con el objeto de que esta práctica no violente el derecho de descanso que tienen los ciudadanos, además de hacer respetar las leyes que se citan en este reglamento.

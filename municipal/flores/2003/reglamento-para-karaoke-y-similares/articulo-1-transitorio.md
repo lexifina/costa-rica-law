@@ -1,0 +1,3 @@
+Transitorio primero.—Para los establecimientos comerciales que ofrezcan ese tipo de actividades y que cuentan en la actualidad con el respectiva permiso de funcionamiento del Ministerio de Salud, una vez publicado este Reglamento se les concede un plazo de 60 días para que cumplan con esta normativa.
+El Concejo Municipal de Flores mediante acuerdo I de la sesión ordinaria Nº 092 del 2 de setiembre del 2003 y ratificada en sesión ordinaria Nº 095 del 16 de setiembre del 2003, aprobó el Reglamento para Karaokes y Similares para la Municipalidad de Flores. Acuerdo aprobado.
+19 de setiembre del 2003.—

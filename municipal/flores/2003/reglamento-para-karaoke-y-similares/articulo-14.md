@@ -1,0 +1,1 @@
+Artículo 14.—Este Reglamento rige a parir de su publicación en el Diario Oficial La Gaceta y deroga el Reglamento para Karaokes y Similares, aprobado por el Concejo Municipal en la sesión ordinaria Nº 156 del 8 de mayo del 2001.

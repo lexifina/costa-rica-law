@@ -1,0 +1,1 @@
+Artículo 2º—Se denomina karaoke al sistema de sonido amplificado utilizado como forma de diversión donde las personas pueden cantar con acompañamiento de pistas musicales como atractivo del local comercial.
