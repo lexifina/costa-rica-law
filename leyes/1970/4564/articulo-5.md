@@ -1,0 +1,3 @@
+ARTÍCULO 5.- Oficina de tasación
+De lo percibido por concepto del arancel registral, la Junta Administrativa del Registro Nacional destinará las sumas necesarias para la contratación del personal técnico, técnico-registral y profesional requerido para instalar la Oficina de Tasación, la Oficina de Contabilidad, las cajas auxiliares y los respectivos programas de cómputo necesarios para agilizar la recaudación del arancel creado en esta ley, simplificar el servicio al usuario; así como contratar al personal necesario a fin de mejorar los servicios de recepción de documentos y atención al público.
+(Así reformado por el artículo 179 del Código Notarial No.7764 de 17 de abril de 1998)

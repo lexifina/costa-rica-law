@@ -1,0 +1,1 @@
+ARTÍCULO 14.- Los Bancos quedan facultados también para conceder los créditos a que se refiere esta ley, en los términos y condiciones que juzguen convenientes a efecto de asegurar el debido cumplimiento de los propósitos señalados en esta ley.
