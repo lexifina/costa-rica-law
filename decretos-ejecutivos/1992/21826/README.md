@@ -15,3 +15,4 @@ Reglamento Zonaje Funcionarios MIRENEM
 | 1 | 1993-02-04 | la propia norma |
 | 2 | 1993-02-15 | Decreto Ejecutivo 22016 (1993-02-15) |
 | 3 | 1993-05-04 | Decreto Ejecutivo 22192 (1993-05-04) |
+| 4 | 1993-08-23 | Decreto Ejecutivo 22577 (1993-08-23) |
