@@ -14,3 +14,4 @@ Modifica Límite de Gasto Presupuestario y Efectivo para el 2001, del INFOCOOP
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-17 | la propia norma |
+| 2 | 2001-07-18 | Decreto Ejecutivo 29689 (2001-07-18) |

@@ -9,3 +9,4 @@ Considerando:
 4º—Que es necesario ampliar los límites de gasto presupuestario y efectivo al Infocoop, para el año 2001, con el fin que cumpla con los objetivos propuestos. Por tanto,
 Decretan:
 Artículo 1º—Modifícanse para el Infocoop los límites de gasto presupuestario y efectivo para el 2001, establecidos en el Decreto Ejecutivo Nº 28639-H, de manera que el gasto presupuestario y el gasto efectivo no excedan la suma de ¢1.096.2 millones.
+(Así Modificado por Artículo 1 del Decreto Ejecutivo nº 29689 del 18 de julio del 2001)
