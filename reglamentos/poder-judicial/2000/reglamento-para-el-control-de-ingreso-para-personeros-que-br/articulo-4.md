@@ -1,0 +1,1 @@
+4°—La recepción de seguridad llevara un libro de control en el que se indicaran los registros de ingreso y salida de los funcionarios, fuera de horas hábiles, se responsabilizará al Supervisor de Turno, para e! registro respectivo. Una vez terminada la labor, deberá devolver la identificación ante Seguridad.

@@ -1,0 +1,1 @@
+5°—Además del permiso de ingreso que le brindará el Departamento de Seguridad, lodo Funcionarlo que pertenezca a una empresa, deberá portar su carné de identificación o uniforme institucional, mientras se encuentre dentro de las instalaciones judiciales.

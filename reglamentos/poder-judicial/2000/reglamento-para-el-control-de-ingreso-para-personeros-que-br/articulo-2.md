@@ -1,0 +1,1 @@
+2°—El Departamento de Seguridad, llenará el formulario con la identificación de los prestatarios del servicio y las calidades de la empresa a que pertenezcan cuando así se requiera. Registrara vía foto a los autorizados en un archivo digital y les confeccionará un carné, que les permitirá ingresar a las instalaciones con las restricciones que al efecto se establezcan.
