@@ -1,2 +1,3 @@
-Artículo 59—La Comisión sesionará ordinariamente una vez al mes, y extraordinariamente cuando el presidente la convoque.
-Para reunirse en sesión ordinaria no hará falta convocatoria especial. Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito con una antelación mínima de veinticuatro horas, salvo casos de urgencia. A la convocatoria se acompañará copia del orden del día, salvo casos de urgencia.
+Artículo 5°—La Comisión sesionará ordinariamente al menos una vez a la semana y extraordinariamente cuando amerite o el Presidente de la Comisión la convoque.
+En lo concerniente a la actuación de la Comisión deberá considerarse que se rige por el derecho administrativo y en particular por la Ley General de la Administración Pública, cuyo artículo 269 establece el principio de economía, simplicidad, celeridad y eficiencia, para lo cual las autoridades velarán por la responsabilidad de sus subordinados en el acatamiento de este precepto.
+(Así reformado por el artículo 16 del decreto ejecutivo N° 28174 del 12 de octubre de 1999)

@@ -14,3 +14,4 @@ Reglamento de la Comisión Arqueológica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-06-12 | la propia norma |
+| 2 | 1999-10-12 | Decreto Ejecutivo 28174 (1999-10-12) |

@@ -1,1 +1,2 @@
-Artículo 9°—Las sesiones de la Comisión serán siempre privadas pero esta podrá disponer, acordándolo así por unanimidad de sus miembros presentes, que tengan acceso a ellas ciertas personas, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
+Artículo 9°—Las sesiones de la Comisión serán siempre privadas pero por moción aprobada por simple mayoría, podrán invitarse a participar en ellas, con voz pero sin voto, a quienes la Comisión considere pertinente así como a los proponentes de los estudios arqueológicos para la explicación o defensa de la propuesta respectiva.
+(Así reformado por el artículo 16 del decreto ejecutivo N° 28174 del 12 de octubre de 1999)
