@@ -1,5 +1,7 @@
+(Anulada)
 DECRETOS
 N° 25949-MP
+(Anulado este Decreto Ejecutivo mediante resolución de la Sala Constitucional N° 326-98 del 20 de enero de 1998)
 EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE LA PRESIDENCIA
 En uso de las facultades que les confieren los incisos 3), 18) y 20) del artículo 140 de la Constitución Política y artículo 28, párrafo 2, inciso b) de la Ley General de la Administración Pública,
 Considerando:

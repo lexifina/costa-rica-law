@@ -14,3 +14,4 @@ Deroga decreto 25830 (Reforma Reglamento del Juego CREA)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-04-23 | la propia norma |
+| 2 | 1998-01-20 | SINALEVI (sin norma nombrada) |
