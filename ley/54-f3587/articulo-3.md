@@ -1,0 +1,2 @@
+Art 3° Para completar el número de Magistrados que deben componer el Tribunal y por el mismo tiempo, se nombra al Señor Licenciado Don Manuel Arguello, quien se presentará a las doce del día de mañana ante el Presidente de la República a prestar el juramento y tomar posesión de su destino.
+Dado en el Palacio Nacional de San José, a los veintisiete días del mes de noviembre de mil ochocientos setenta y cuatro.
