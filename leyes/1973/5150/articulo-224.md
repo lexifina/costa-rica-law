@@ -1,6 +1,2 @@
-Artículo 224.- El arrendamiento de aeronaves civiles deberá
-efectuarse por escritura pública y se inscribirá en el Registro
-Aeronáutico.
-NOTA: Original 219: corrida su numeración a la actual de
-conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
-1991.-
+Artículo 224.—Los contratos de utilización de aeronaves deberán otorgarse en escritura pública y se inscribirán en el Registro Aeronáutico.
+(Así reformado por el artículo 1° de la ley N° 8419 de 28 de junio de 2004)

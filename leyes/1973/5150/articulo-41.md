@@ -1,10 +1,3 @@
-Artículo 41.- Las aeronaves matriculadas en otro Estado, podrán
-adquirir la nacionalidad y matrícula costarricense, previa cancelación
-del registro extranjero. Sin embargo, cuando el propietario de una
-aeronave extranjera la importe legalmente y solicite su inscripción en el
-Registro Aeronáutico Costarricense, podrá obtener un permiso provisional
-de circulación de treinta días prorrogables hasta un máximo de noventa
-días, a efecto de que cumpla y demuestre haber llenado los requisitos de
-cancelación de matrícula en el país de origen de la aeronave.
-NOTA: Original 36: corrida su numeración a la actual de conformidad
-con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-
+Artículo 41.—Las aeronaves matriculadas en otro estado podrán adquirir la nacionalidad y matrícula costarricenses, previa cancelación del registro extranjero. Sin embargo, cuando el propietario o arrendatario de una aeronave extranjera la importe legalmente y solicite su inscripción en el Registro Aeronáutico Costarricense, podrá obtener un permiso provisional de operación de treinta días, prorrogables hasta un máximo de noventa días, a efecto de que cumpla y demuestre haber llenado los requisitos de cancelación de matrícula en el país de origen de la aeronave.
+A las aeronaves arrendadas por empresas costarricenses que cuenten con un certificado de explotación de servicios aéreos, se les podrá asignar también matrícula y las respectivas marcas distintivas de la nacionalidad costarricense, previa cancelación del registro extranjero, cuando la empresa costarricense asuma el carácter de explotador para prestar servicios aéreos locales o internacionales. Esta inscripción se mantendrá vigente durante el plazo aprobado por la Dirección General de Aviación Civil para el contrato de arrendamiento y deberá contar con la aprobación expresa del propietario de la aeronave. Esta inscripción no implicará transferencia de la propiedad de la aeronave.
+(Así reformado por el artículo 1° de la ley N° 8419 de 28 de junio de 2004)

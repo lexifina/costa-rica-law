@@ -1,11 +1,5 @@
-Artículo 222.- Cuando por falta de equipo, debidamente comprobada,
-una empresa costarricense se vea precisada a arrendar temporalmente una
-aeronave de matrícula extranjera, la Dirección General de Aviación Civil,
-podrá autorizar el empleo de tal aeronave para fines de transporte
-público dentro del país, para lo cual le concederá un permiso provisional
-que se otorgará hasta por un término máximo de seis meses, prorrogable a
-juicio del Consejo Técnico de Aviación Civil, pero siempre en el
-entendido de que la tripulación sea costarricense.
-NOTA: Original 217: corrida su numeración a la actual de
-conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
-1991.-
+Artículo 222.—Las empresas costarricenses que cuenten con un certificado de explotación de servicios aéreos, podrán arrendar, a plazo o con opción de compra, aeronaves de matrícula extranjera sin tripulación. La Dirección General de Aviación Civil aprobará los contratos de arrendamiento de esas aeronaves, por un plazo hasta de cinco años.
+Cuando el plazo del arrendamiento exceda de un año, deberá cancelarse anualmente, a partir del segundo año, un canon del cuatro coma cinco por ciento (4,5%) sobre el precio anual del arrendamiento.
+Por concepto de este canon, en ningún caso se pagará una suma superior a seis mil dólares en moneda de los Estados Unidos de América ($6.000,00) anuales por aeronave. Del pago de dicho canon se exceptúan los contratos de arrendamiento de aeronaves dedicadas a servicios de aviación agrícola, de transporte aéreo internacional y de carga internacional.
+El Consejo Técnico de Aviación Civil recaudará el canon citado, del cual conservará un cincuenta por ciento (50%) para la construcción y el mantenimiento de terminales en los aeropuertos públicos locales de afluencia turística. El restante cincuenta por ciento (50%) lo transferirá al Instituto Costarricense de Turismo, para que sea destinado a financiar sus oficinas regionales de información y promoción turística, preferentemente las de Guanacaste, Puntarenas y Limón.
+(Así reformado por el artículo 1° de la ley N° 8419 de 28 de junio de 2004)

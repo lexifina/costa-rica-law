@@ -1,6 +1,6 @@
 # Ley General de Aviación Civil
 
-Ley N° 5150 del 1973-05-14. SINALEVI, ficha 13332: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=13332&param2=14319&param3=1>.
+Ley N° 5150 del 1973-05-14. SINALEVI, ficha 13332: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=13332&param2=14320&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 8 | 1973-05-14 | Ley 5150 | 1973-05-14 |
 | 2 de 8 | 2000-10-17 | SINALEVI (10 normas) | 1973-05-14 |
 | 3 de 8 | 2000-10-17 | Ley 8 | 2003-02-26 |
+| 4 de 8 | 2004-07-19 | Ley 8419 | 2004-06-28 |
