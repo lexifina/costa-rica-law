@@ -1,0 +1,2 @@
+Artículo 10.
+Todos los conflictos o diferencias que pudieran derivarse en la operación de los servicios del SINPE, se resolverán por la vía arbitral, de conformidad con el Reglamento de Arbitraje del Centro de Conciliación y Arbitraje de la Cámara de Comercio de Costa Rica, de acuerdo con lo establecido por la Ley de Resolución Alterna de Conflictos y Promoción de la Paz Social, a cuyas normas los participantes de los servicios del SINPE se someten en forma incondicional con su incorporación a éstos.

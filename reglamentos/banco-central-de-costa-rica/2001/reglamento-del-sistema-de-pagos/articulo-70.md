@@ -1,0 +1,4 @@
+CAPÍTULO II
+Del Riesgo Operativo
+Artículo 70.
+Los participantes en el SINPE, deberán habilitar al menos dos estaciones para la operación de cada uno de los servicios electrónicos, pudiendo utilizarse las mismas dos estaciones para la operación de todos los servicios. Asimismo, cada usuario nombrado por la entidad deberá estar autorizado en al menos dos de las estaciones conectadas al SINPE para un mismo servicio.

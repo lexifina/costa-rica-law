@@ -1,0 +1,2 @@
+Artículo 26.
+Los débitos o créditos sobre las Cuentas de Reserva que deba realizar el BCCR producto de las operaciones de los cuentacorrentistas de BCCR con esta institución, o cualquier otra afectación sobre estas cuentas originado en los diferentes servicios ofrecidos por el BCCR, quedarán implícitamente autorizados por dichos usuarios, con su incorporación al sistema de Cuentas de Reserva. Cualquier operación de débito o crédito sobre las Cuentas de Reserva deberá ser realizada exclusivamente dentro del horario bancario.

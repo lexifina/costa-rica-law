@@ -1,0 +1,2 @@
+Artículo 65.
+En el caso que los títulos mantenidos en garantía para la liquidación de los servicios de compensación multilateral netos sean inmovilizados en calidad de garantía de un crédito concedido por parte del BCCR, y que dicho crédito no sea cancelado antes de la liquidación del ciclo siguiente del servicio, el participante deberá constituir antes de dicha liquidación, una nueva garantía por este concepto, por un monto igual al requerido en ese momento según este reglamento.

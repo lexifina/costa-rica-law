@@ -1,0 +1,2 @@
+Artículo 13.
+El resultado de la compensación y liquidación de las obligaciones originadas en los servicios ofrecidos por el BCCR a través del SINPE, será por cuenta y riesgo de los participantes. El BCCR no asumirá responsabilidad alguna con respecto al resultado ni al pago definitivo de los instrumentos financieros compensados, ni liquidados.

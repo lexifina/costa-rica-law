@@ -1,0 +1,2 @@
+Artículo 64.
+El contrato de fideicomiso antes citado, debe indicar claramente que las salidas de esta subcuenta sólo podrán ser autorizadas por el BCCR y que en el momento en que éste último otorgue esta facilidad crediticia, los títulos entregados se inmovilizarán por el plazo de vigencia de esta operación y en caso de que se produjera incumplimiento en el pago de la obligación por parte del participante deudor, éste autoriza expresa e irrevocablemente al BCCR a disponer de los títulos dados en garantía para su venta en una Bolsa de Valores.

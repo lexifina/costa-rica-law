@@ -1,0 +1,2 @@
+Artículo 11.
+Las entidades financieras participantes en los servicios del SINPE tendrán la responsabilidad de brindar los medios, que permitan a sus clientes, al menos una vez al mes, obtener la información actualizada correspondiente a los movimientos realizados sobre sus cuentas, producto de la operativa electrónica de los servicios del Sistema de Pagos.

@@ -1,0 +1,2 @@
+Artículo 17.
+La entidad origen será la responsable de los daños causados en el procesamiento de las transacciones enviadas, en caso de que se incurra en un error o dolo por parte de una persona facultada por dicha entidad para actuar en el proceso del ciclo del servicio respectivo o bien que se dé una mala utilización del sistema por un tercero que tuvo acceso a éste por negligencia de dicha entidad.

@@ -1,0 +1,7 @@
+CAPÍTULO III
+Del Ciclo del Servicio
+Artículo 58.
+El ciclo de Liquidación de Servicios Externos se efectuará de conformidad con lo establecido en las siguientes etapas:
+Transmisión Electrónica del Resultado Bilateral Neto: La entidad que brinda el servicio, envía al BCCR, un archivo electrónico con la información de los resultados bilaterales netos, producto de la operativa de pago del servicio particular ofrecido por ésta.
+Liquidación: Posterior al proceso de transmisión electrónica del resultado bilateral neto, el BCCR calcula la posición multilateral neta y procede con la liquidación, lo cual consiste en primera instancia en realizar todos los débitos en la cuenta de reserva de las entidades que presentan una posición deudora y una vez que éstos han sido efectuados, se aplican los créditos respectivos en la cuenta de reserva de las entidades que tienen posición acreedora, de conformidad con los resultados bilaterales netos reportados por la entidad que brinda el servicio.
+Si se presenta una insuficiencia de fondos en la Cuenta de Reserva de alguno de los participantes para cubrir el débito en su contra, se ejecutará la liquidación prescindiendo totalmente del participante en falta, una vez que se haya determinado que la garantía depositada en la Central de Valores por la entidad en falta es insuficiente para que el BCCR pueda otorgarle un crédito que solvente la insuficiencia de fondos.

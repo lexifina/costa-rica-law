@@ -1,0 +1,3 @@
+Artículo 45.
+La información referente a los otros valores se enviará junto con el archivo de los cheques, en registros electrónicos especiales, los cuales deberán apegarse al mismo procedimiento y disposiciones establecidas en el ciclo de cheques.
+Los otros valores recibidos en zonas distintas a la zona central, deberán ser presentados a CLC a más tardar dos días hábiles posteriores a que sean recibidos de parte del cliente, disponiendo las entidades participantes a partir de ese momento de hasta tres días hábiles para su devolución. Una vez concluida la etapa de devoluciones los participantes deberán efectuar la acreditación al cliente del valor de los documentos, en el mismo horario establecido para la acreditación del valor de los cheques a los clientes.
