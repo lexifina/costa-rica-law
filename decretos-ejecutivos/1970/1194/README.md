@@ -15,3 +15,4 @@ Crea Comisiones y Comités Consultivos de Patronos y Trabajadores
 | --- | --- | --- |
 | 1 | 1970-09-15 | la propia norma |
 | 2 | 1970-09-15 | Decreto Ejecutivo 1224 (1970-09-14) |
+| 3 | 1971-12-07 | Decreto Ejecutivo 2098 (1971-12-07) |

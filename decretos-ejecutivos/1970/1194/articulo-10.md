@@ -1,1 +1,3 @@
 Artículo 10.-Tanto los representantes de los patronos como los de los trabajadores, pueden hacerse acompañar por consejeros técnicos, cuyo número no podrá ser mayor que el de cada representación, El representante del Ministerio de Trabajo y Bienestar Social se hará acompañar de tantos funcionar del Ministerio como considere necesario, para asegurar un eficiente servicio información técnica y de secretaría.
+Las Comisiones o Comités Consultivos podrán elegir un Comité de Enlace, de su propio seno, encargado de colaborar con el Ministerio de Trabajo y Bienestar en la ejecución de las recomendaciones que acuerden.
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 2098 del 7 de diciembre de 1971)
