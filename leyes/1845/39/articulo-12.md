@@ -1,0 +1,1 @@
+Art. 12.-En caso de que por autoridad competente se mande detener a alguna persona, aunque lleve pasaporte, es obligación estrecha de las justicias del tránsito proceder a la detención, según los términos del requerimiento o exhorto.

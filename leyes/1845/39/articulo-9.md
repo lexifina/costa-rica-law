@@ -1,0 +1,1 @@
+Art. 9°. -El oficial mayor del despacho de relaciones se formar cargo, y lo mismo harán los Jefes Políticos y Comandantes. Cada uno tendrá un libro en papel común para tomar razón de los pasaportes o boletos que se expidan, indicando en él los nombres de los que salen o entran, número y fecha del pasaporte o boleto.
