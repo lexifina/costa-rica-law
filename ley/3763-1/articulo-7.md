@@ -1,0 +1,2 @@
+ARTICULO 7
+Los Gobiernos Contratantes adoptarán las medidas apropiadas para la protección de las aves migratorias de valor económico o de interés estético o para evitar la extinción que amenace a una especie determinada. Se adoptarán medidas que permitan, hasta donde los respectivos gobiernos lo crean conveniente, utilizar racionalmente las aves migratorias, tanto en el deporte como en la alimentación, el comercio, la industria y para estudios e investigaciones científicos.

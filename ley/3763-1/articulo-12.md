@@ -1,0 +1,6 @@
+ARTICULO 12
+1.- Cualquiera de los Gobiernos Contratantes podrá denunciar la presente Convención en todo momento dando aviso por escrito a la Unión Panamericana. La denuncia tendrá efecto un año después del recibo de la notificación respectiva por la Unión Panamericana. Ninguna denuncia, sin embargo, surtirá efecto sino cinco años después de entrar en vigor la presente Convención.
+2.- Si como resultado de denuncias simultáneas o sucesivas el número de Gobiernos Contratantes se reduce a menos de tres, la Convención dejará de tener efecto desde la fecha en que, de acuerdo a las disposiciones del Párrafo precedente, la última de dichas denuncias tenga efecto.
+3.- La Unión Panamericana notificará a todos los Gobiernos Americanos las denuncias y las fechas en que comiencen a tener efecto.
+4.- Si la Convención dejara de tener vigencia según lo dispuesto en el Párrafo segundo del presente artículo, la Unión Panamericana notificará a todos los Gobiernos Americanos la fecha en que la misma cese en sus efectos.
+En Fe de lo Cual, los infrascritos Plenipotenciarios, después de haber depositado sus Plenos Poderes, que se han encontrado en buena y debida forma, firman y sellan esta Convención en la Unión Panamericana, Washington, D. C. en nombre de sus respectivos Gobiernos, en las fechas indicadas junto a sus firmas.
