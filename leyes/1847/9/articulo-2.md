@@ -1,0 +1,1 @@
+Art. 2. Por consiguiente, la Aduana establecida hoy en Puntarenas, serà trasladada al punto que el Gobierno designe, como mas conveniente á los intereses fiscales y regida por las disposiciones que han de emitirse con analogía a su citada traslacion.
