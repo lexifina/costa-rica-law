@@ -17,7 +17,7 @@ Institución | Límite 2003
 Consejo Técnico de Asistencia Médico Social CTAMS | 1.116.3
 Instituto sobre Alcoholismo y Farmacodependencia IAFA | 945.3
 Junta Administrativa de la Imprenta Nacional | 623.9
-Oficina de Cooperación Internacional de la Salud OCIS | 2.930.0
+Oficina de Cooperación Internacional de la Salud OCIS (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31387 de 24 de setiembre de 2003, publicado en La Gaceta N° 196 de 13 de octubre de 2003.) | 4.042,3
 Patronato de Construcciones, Instalaciones y Adquisición de Bienes | 2.685.5
 Teatro Nacional (Véase el artículo 1° del decreto ejecutivo N° 31179 de 2 de mayo de 2003, el cual modifica el presente límite) | 322.3
 Sistema Nacional de Radio y Televisión SINART | 675.1
