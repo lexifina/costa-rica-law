@@ -1,0 +1,1 @@
+Artículo 66.-Los Tambores Mayores usarán, tanto de diario como de gala, el mismo uniforme que los demás músicos, distinguiéndose: 1°-Por el aro de la gorra, que será de franela encarnada; 2°-·Por las bocamangas de la blusa, que serán también de franela encarnada; y 3°-Por el vivo del pantalón, que será sustituído por una franja encarnada de tres centímetros de ancho

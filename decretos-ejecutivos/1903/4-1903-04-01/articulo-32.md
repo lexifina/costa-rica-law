@@ -1,0 +1,1 @@
+Artículo 32.-Con el uniforme de gala, llevaran, además, una banda de seda roja con borIas del mismo género, con un lazo que caerá junto con las borlas detrás de la cadera izquierda, a corta distancia del sable.

@@ -1,0 +1,1 @@
+Artículo 29.-La espada será de puño dorado con las armas de Costa Rica en relieve entre dos ramas de laurel; la hoja recta, de dieciocho milímetros de ancho en disminución y setenta y ocho centímetros de largo; la vaina tendrá la embocadura y la contera de metal dorado: la primera de noventa y cinco milímetros de longitud y la segunda de ciento quince milímetros.

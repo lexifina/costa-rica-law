@@ -1,0 +1,1 @@
+Artículo 68°.- El Director General de las músicas militares y los Directores usarán el uniforme de oficial de Infantería, con los distintivos del grado a que estén asimilados y llevarán una lira dorada en las esquineras del cuello.

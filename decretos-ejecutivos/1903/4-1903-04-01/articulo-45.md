@@ -1,0 +1,1 @@
+Artículo 45.-Los oficiales usarán también el uniforme descrito para los oficiales de Infantería; pero el distintivo del Cuerpo será representado par una estrella de dos centímetros de diámetro, de cinco puntas, bordada can hilo de plata en las esquineras a cada lado del cuello. El sable será sustituido par un bastón

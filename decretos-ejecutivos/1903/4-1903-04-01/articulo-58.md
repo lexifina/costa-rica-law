@@ -1,0 +1,1 @@
+Artículo 58.-El Jefe de un Estado Mayor de columna o de cualquier tropa que funcione par separado, usará con el uniforme de gala y en campaña, una banda semejante a la descrita en el artículo 52, diferenciándose en el color, que sera azul.

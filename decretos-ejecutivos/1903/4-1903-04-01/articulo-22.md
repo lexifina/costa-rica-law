@@ -1,0 +1,1 @@
+Artículo 22.-EI uniforme de campaña será exactamente igual al de los oficiales superiores del mismo Cuerpo, y como distintivo del grado solo llevara en las bocamangas las dos estrellas descritas para el uniforme de diario.

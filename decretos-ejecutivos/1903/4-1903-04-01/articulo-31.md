@@ -1,0 +1,1 @@
+Artículo 31.-El uniforme de diario, de campaña y de gala para los oficiales del Cuerpo de Estado Mayor, será igual al descrito para los oficiales del Cuerpo de Artillería, pero el distintivo del Cuerpo se indicará con las iniciales E. M., enlazadas y bordadas con hilo dorado, y colocadas en cada esquinera del cuello.

@@ -1,0 +1,1 @@
+Artículo 13.-EI uniforme de gala será semejante al de diario, con las diferencias siguientes: las trencillas negras, de pelo de cabra, que indican el grado, así como las de las hombreras, serán reemplazadas por trencillas de galón dorado del mismo ancho.

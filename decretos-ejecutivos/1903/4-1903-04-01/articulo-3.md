@@ -1,0 +1,1 @@
+Artículo 3°-Para los ejercicios y las maniobras, la tropa usará en la época de los fuertes calores, un cubre nuca, de género delgado, color gris, amarrado al aro del kepis con un cordón de igual color.

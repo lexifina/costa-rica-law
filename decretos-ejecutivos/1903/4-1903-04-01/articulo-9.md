@@ -1,0 +1,1 @@
+Artículo 9°-El sargento primero usará el sable y cinturón que mas adelante se describirán para el oficial inferior de infantería, siempre que no este armado de fusil, en cuyo caso será reemplazado el sable por el correaje correspondiente al fusil.

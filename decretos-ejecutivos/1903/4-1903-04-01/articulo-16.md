@@ -1,0 +1,1 @@
+Artículo 16.-El uniforme de diario y de campaña de la tropa de Artillería será semejante al de la Infantería, pero como distintivo del arma, la blusa llevara en cada esquinera del cuello una granada de color rojo.

@@ -1,0 +1,1 @@
+Artículo 59.-Los oficiales de los Estados Mayores de columna 6 de cualquier tropa que funcione por separado, usarán en campaña una faja semejante a la descrita en el artfculo 53, diferenciándose en el color, que sera azul

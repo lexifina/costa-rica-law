@@ -1,0 +1,1 @@
+Artículo 73.-Los Comandantes de Policía usarán el uniforme del arma a que pertenecen en el Ejército, agregando en el kepis y en las mangas, como distintivo de su empleo, un gaIón plateado, del mismo ancho del que indica el grado.

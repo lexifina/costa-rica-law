@@ -1,0 +1,1 @@
+Artículo 56.-El Jefe de Estado Mayor de una brigada usara, con el uniforme de gala y en campana, una banda semejante a la descrita en el artículo 52, diferenciándose en el color, que será azul y blanco.

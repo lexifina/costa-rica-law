@@ -1,0 +1,1 @@
+Artículo 76.-En los lugares cuya temperatura ardiente lo exija, como en las regiones de Ias costas, el uniforme de franela será sustituido por uniforme de género gris (kaki), con adornos del mismo color exigidos para el de franela.

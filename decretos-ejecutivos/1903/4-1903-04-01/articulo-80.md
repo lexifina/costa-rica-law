@@ -1,0 +1,1 @@
+Artículo 80.-Los milicianos de todos los Cuerpos podrán usar el uniforme reglamentario, con la respectiva autorización del Comandante en Jefe del Ejército, en los ejercicios de instrucción y demás actos que el Comandante en Jefe determine.

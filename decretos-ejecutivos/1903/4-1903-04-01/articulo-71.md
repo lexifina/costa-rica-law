@@ -1,0 +1,1 @@
+Artículo 71-El Sargento usará el uniforme antes descrito para el Inspector, pero el distintivo del grado se indicará, tanto en el kepis como en las bocamangas, por dos galones paralelos, colocados en la misma forma indicada para el Inspector.

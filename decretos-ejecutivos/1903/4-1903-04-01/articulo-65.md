@@ -1,0 +1,1 @@
+Artículo 65.-El uniforne de gala será igual al de diario, con la diferencia siguiente: el barboquejo de charol del kepis será sustituído por uno de galón de oro, de un centímetro de ancho; el vivo colorado· de las hombreras será sustituido por un galón de oro de tres milímetros de ancho.

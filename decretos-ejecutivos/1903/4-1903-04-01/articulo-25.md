@@ -1,0 +1,2 @@
+Artículo 25.-El uniforme de General de División será igual al de General de Brigada, con las diferencias siguientes:
+El número de estrellas será de tres; las bordaduras serán dobles y las de las bocamangas serán de setenta y cinco milímetros de ancho; faja encarnada, con borlas doradas; la orIa interior del sombrero, de pluma blanca; el pantalón de paño blanco, con franjas doradas de cuarenta milímetros de ancho.

@@ -1,0 +1,1 @@
+Artículo 54.-El Jefe de Estado Mayor de una División usará con el traje de gala y en campana, una banda de seda, de color rojo y blanco, de diez centímetros de ancho, terciada en la forma que explica el artículo 52.

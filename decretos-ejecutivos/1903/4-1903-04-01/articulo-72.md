@@ -1,0 +1,1 @@
+Artículo 72.- Todos los policías, inspectores y sargentos llevarán a la altura del pecho del lado derecho una placa de metal blanco, de treinta milímetros de diámetro, en la cual irá grabado el número correspondiente a cada uno y la inscripción siguiente: "PoIida de Orden y Seguridad."

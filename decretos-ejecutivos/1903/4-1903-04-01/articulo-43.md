@@ -1,0 +1,2 @@
+Cuerpo Veterinario
+Artículo 43. -EI uniforme de los oficiales del Cuerpo Veterinario será igual al de la Caballería, con las siguientes diferencias: 1.-, el cuello de la guerrera, el borde de la parte superpuesta del frente, las carteras de las bocamangas, las de los bolsillos del pecho y las de atrás, llevaran un vivo color azul claro; 2°.- las esquineras del cuello serán de color azul claro, sin distintivo de Cuerpo; 3°.-las franjas del pantalón, lo mismo que las del calzón para montar a caballo, serán también de color azul claro.

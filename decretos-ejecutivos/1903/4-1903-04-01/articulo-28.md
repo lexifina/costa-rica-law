@@ -1,0 +1,1 @@
+Artículo 28.-Los Generales de Brigada y de División usarán con el vestido de diario y de campaña, el sable descrito en el artículo 11 de este Reglamento. Con el uniforme de media gala y de gala, la espada descrita en el artículo siguiente:

@@ -1,0 +1,1 @@
+Artículo 63.- El uniforme de los individuos de las músicas militares de la República será de dos clases: de diario y de gala . El primero se usará en el servicio diario, el segundo los domingos y días feriados y en los actos oficiales u otros que por su solemnidad lo requieran, siempre que así se ordene.

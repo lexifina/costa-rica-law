@@ -1,0 +1,1 @@
+Artículo 52.-El Mayor General del Ejercito lIevará, con el uniforrne de gala y en campana, una banda de seda roja, de diez centímetros de ancho, terciada desde el hombro derecho hasta más abajo de la cadera izquierda, la cual banda tendrá en el punto de la juntura una escarapela del mismo color, de ocho centímetros de diámetro.

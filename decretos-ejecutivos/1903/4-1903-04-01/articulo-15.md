@@ -1,0 +1,2 @@
+Artículo 15.-EI de campaña será semejante al de diario, con las diferencias explicadas para los oficiales inferiores.
+El de gala será semejante al de diario, con las diferencias siguientes: I°-Las trencilIas de pelo de cabra que indican el grado en las mangas de la guerrera, y la del contorno de las hombreras, serán sustituidas por galón dorado de relieve, de un centímetro de ancho;2° Los tirantes de cuero charolado del cinturón, por tirantes dorados.

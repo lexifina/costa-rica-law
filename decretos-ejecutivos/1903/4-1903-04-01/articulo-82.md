@@ -1,0 +1,1 @@
+Artículo 82.- Las divisas a que se refieren los artículos 47,48,49 y 50 del presente Reglamento, se usarán en revistas militares, en campaña y en los actos en que los oficiales por su carácter de ayudantes necesiten del distintivo .

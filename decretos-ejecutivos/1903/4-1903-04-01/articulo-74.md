@@ -1,0 +1,1 @@
+Artículo 74.-Para cubrirse de la lluvia, el Cuerpo de PoIicía usará polainas y capas impermeables, y de noche, cuando se esté de faccion, podrá usarse capote de lana, color gris oscuro, cerrado al frente con nueve botones de veinticinco milímetros de diámetro y de metal blanco.

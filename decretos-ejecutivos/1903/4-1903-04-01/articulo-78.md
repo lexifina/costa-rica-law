@@ -1,0 +1,1 @@
+Artfeulo 78.-EI Iuto oficial se marcara con crespon negro, de cinco centímetros de ancho, atado al brazo izquierdo, a quince centímetros de distancia de las hombreras; y el de familia con una escarapela negra, de tres centímetros de ancho, colocada en el mismo brazo, a diez centímetros de distancia de las hombreras.

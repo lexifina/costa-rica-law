@@ -1,0 +1,1 @@
+Artículo 62.-El jefe·de los aprendices de banda IIevará el uniforme de Infantería correspondiente al grado que posea, distinguiéndose por la gorra prusiana, la cual no llevará galones y por la corneta en el cuello de la blusa o guerrera.

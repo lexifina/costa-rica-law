@@ -1,0 +1,1 @@
+Artículo 75.- Los individuos del Cuerpo de PoIicía estarán armados de revolver y un bastón o palo corto de cincuenta centímetros de largo por cuatro de diámetro. Llevarán también el silbato reglamentario.
