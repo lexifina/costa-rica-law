@@ -1,0 +1,1 @@
+Artículo 52.—Vigencia. Este Reglamento de fondos de caja chica ha sido aprobado por la junta directiva en la sesión Nº 3793, del veintiuno de julio del 2003. Rige a partir de su publicación en el Diario Oficial La Gaceta.

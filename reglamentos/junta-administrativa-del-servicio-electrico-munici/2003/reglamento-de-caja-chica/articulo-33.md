@@ -1,0 +1,1 @@
+Artículo 33.—Liquidación sin adquisición. En caso de que no se realice la compra que originó el adelanto, el dinero deberá ser devuelto al fondo, para lo cual se deberá justificar las razones que impidieron la adquisición del bien o servicio.

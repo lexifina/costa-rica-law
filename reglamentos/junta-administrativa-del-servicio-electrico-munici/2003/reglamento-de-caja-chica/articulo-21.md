@@ -1,0 +1,1 @@
+Artículo 21.—De la póliza de fidelidad. Conforme el artículo 13 de la Ley de Administración Financiera y Presupuestos Públicos, Nº 8131, los encargados de los fondos de caja chica, deberán suscribir una póliza de fidelidad, a efecto de garantizar una adecuada seguridad al funcionario y a la institución.

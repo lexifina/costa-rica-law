@@ -1,0 +1,1 @@
+Transitorio II.—A la entrada en vigencia de este Reglamento, los montos existentes en los diferentes fondos de caja chica hasta su reintegro, se regirán por el Reglamento de Caja Chica aprobado por la junta directiva en la sesión Nº 2104, artículo 3º del 18 de junio de 1986 y sus reformas. Contratar Bienes y Servicios.

@@ -1,0 +1,1 @@
+Artículo 34.—Liquidación sin previo adelanto. Solo se liquidaran comprobantes que se hayan cancelado con dinero del adelanto, salvo casos de excepción debidamente justificados y autorizados por la Gerencia, Subgerencia y líderes de UEN. En este caso sólo se pagarán aquellos comprobantes con una antigüedad igual o menor a cuatro días naturales.

@@ -1,0 +1,4 @@
+Artículo 12.—Abonado legitimado a solicitar el reintegro. Todo reintegro que se haga a un abonado, debe hacerse a favor de la persona física o jurídica a nombre de quién JASEC, emitió la factura o recibo por los servicios cobrados. En caso que el abonado, no sea el mismo que canceló el servicio, y si éste requiere la devolución, debe probar ante la UEN de Servicio al Cliente la condición, por alguno de los siguientes medios:
+- Certificación de la Delegación de la Guardia Civil del lugar en que reside o residía el reclamante al momento de la lectura.
+- Autorización debidamente autenticada del abonado o suscriptor, ya sea persona física o jurídica. En caso de persona jurídica, debe presentar una fotocopia de la personería jurídica, actualizada, o
+- Contrato de arrendamiento y fotocopia de la cédula.
