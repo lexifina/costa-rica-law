@@ -1,0 +1,1 @@
+Artículo 6º—Facultades de verificación: La Unidad de Contabilidad de la Municipalidad de Corredores queda facultada para verificar cualquier dato relacionado con el gasto de representación que esté en trámite de pago.
