@@ -1,0 +1,1 @@
+Artículo segundo.- Que es de fundamental importancia el desarrollo de este tipo de actividades, que refuerzan la solidaridad y la cooperación internacional para la investigación científica y el desarrollo tecnológico a nivel Iberoamericano, en la comunidad científica tecnológica y empresarial.
