@@ -1,0 +1,2 @@
+Artículo 4°—Las funciones de la Comisión Presidencial serán las de aprobar antes de presentar las iniciativas a consideración del Presidente de la República, los proyectos que le presente la Comisión Especial y cualesquiera variaciones que se presenten en el Programa de Movilidad Laboral.
+Dado en la Presidencia de la República.—San José, a los tres días del mes de diciembre de mil novecientos noventa.

@@ -1,0 +1,1 @@
+Artículo 2°—La Comisión Especial estará integrada por el Ministro de Trabajo y Seguridad Social, el Ministro de Justicia v Gracia, el Ministro de Planificación y Política Económica, el Ministro de Reforma del Estado y un delegado del Programa de Apoyo a la Toma de Decisiones (ATD), o en su defecto, las personas que ellos designen como sus representantes.
