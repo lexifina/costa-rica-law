@@ -1,0 +1,1 @@
+Artículo 4°— El pago diferido del aumento queda afecto al pago de las cargas sociales, que serán pagadas con su cancelación. Por esta razón queda claro que no constituye una carga social, sino que es parte del aumento general de salarios.

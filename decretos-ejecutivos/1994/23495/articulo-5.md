@@ -1,0 +1,1 @@
+Artículo 5°— Por todo trabajo no cubierto por las disposiciones del artículo primero de este Decreto, todo patrono pagará un salario no menor a Ë 1.030.00 (Mil treinta colones), por jornada ordinaria.
