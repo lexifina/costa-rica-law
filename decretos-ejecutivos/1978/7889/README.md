@@ -16,3 +16,4 @@ Reglamento del Teatro Nacional.
 | 1 | 1978-01-20 | la propia norma |
 | 2 | 1980-05-29 | Decreto Ejecutivo 11542 (1980-05-29) |
 | 3 | 1980-09-18 | Decreto Ejecutivo 11867 (1980-09-18) |
+| 4 | 1982-11-10 | Decreto Ejecutivo 14041 (1982-11-10) |
