@@ -1,0 +1,1 @@
+Artículo 7º.- El Ministerio establecerá la coordinación correspondiente con la Oficina de Planificación Nacional y Política Económica para la preparación, la ejecución y la evaluación de los planes, programas y proyectos de las actividades propias del Ministerio.
