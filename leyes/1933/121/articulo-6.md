@@ -1,0 +1,1 @@
+Artículo 6°.-Los miembros de la Junta Directiva serán moralmente responsables de la administración del Instituto, pesando sobre ellos, por igual razón, cualquier responsabilidad legal, que, conforme a las leyes del país, pueda atribuírseles. Durarán en sus puestos dos años, pudiendo ser reelectos para el periodo inmediato.
