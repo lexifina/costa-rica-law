@@ -1,0 +1,1 @@
+Artículo 5°—Del cómputo del plazo de caducidad.- El cómputo del plazo de caducidad para este tipo de documentos, que se encuentra establecido en el artículo 468, párrafo 2 del Código Civil, será de un (1) año y tres (3) meses, contados a partir de la fecha del asiento de presentación al Diario del Registro Público de la Propiedad Inmueble.

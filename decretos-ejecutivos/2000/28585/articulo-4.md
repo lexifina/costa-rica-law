@@ -1,0 +1,1 @@
+Artículo 4°—Plazo para resolver la calificación.- El plazo con que se cuenta para resolver la calificación de un documento complejo será de tres meses, contados a partir de la fecha del asiento de presentación al Diario del Registro Público de la Propiedad Inmueble.
