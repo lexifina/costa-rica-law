@@ -1,0 +1,1 @@
+Artículo 83.—Embargo de salarios. Cuando el embargo recaiga sobre el salario de los demandados, la aplicación correspondiente a alguna operación en cobro judicial, deberá hacerse siguiendo lo establecido por la resolución que apruebe la liquidación presentada.

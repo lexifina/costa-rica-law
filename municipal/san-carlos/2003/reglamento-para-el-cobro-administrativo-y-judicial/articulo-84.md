@@ -1,0 +1,1 @@
+Artículo 84.—Embargo de cuentas en instituciones financieras. Cuando el embargo recaiga sobre cuentas de los demandados en instituciones financieras, la aplicación correspondiente a alguna operación en cobro judicial, deberá hacerse siguiendo lo establecido por la resolución que apruebe la liquidación presentada.

@@ -1,0 +1,1 @@
+Artículo 29.—Renuncia o separación. Cuando un abogado renuncie o sea separado en sus servicios, los juicios a su cargo no concluidos serán asignados a otro abogado, por el Jefe de la Unidad Administrativa de Cobros, siguiendo el rol de asignaciones. El pago de honorarios en estos casos, se regirá por lo estipulado en este mismo Proyecto.

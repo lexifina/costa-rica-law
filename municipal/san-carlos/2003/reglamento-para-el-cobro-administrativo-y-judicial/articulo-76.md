@@ -1,0 +1,1 @@
+Artículo 76.—Trámite. En caso de incumplimiento se continuará con la tramitación normal del proceso, no siendo posible el otorgamiento de un nuevo arreglo de pago si no media al menos el pago de los gastos, honorarios e intereses para la regulación. Todo arreglo aprobado por persona ajena a las mencionadas en el último párrafo del artículo 75º de este Reglamento, será nulo.

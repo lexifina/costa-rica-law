@@ -1,0 +1,1 @@
+Artículo 26.— Plazo del nombramiento. El nombramiento de los abogados externos será por un plazo de dos años, prorrogables por períodos sucesivos e iguales a juicio de la Municipalidad, cuando a criterio de esta, los servicios prestados hayan resultado satisfactorios.

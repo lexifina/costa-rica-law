@@ -1,0 +1,1 @@
+Artículo 99.—Cobro de intereses. La tasa de interés a aplicar sobre los pagos efectuados por los contribuyentes dentro del término legal establecido será la definida en el artículo 69º del Código Municipal y del artículo 57º del Código de Normas y Procedimientos Tributarios, debidamente aprobada por el Concejo Municipal y publicada en el Diario Oficial La Gaceta.

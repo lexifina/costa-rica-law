@@ -1,0 +1,1 @@
+Artículo 90.—Suspensión de remate. Cuando no se regularice una operación que tiene señalada hora y fecha para remate, este solo podrá ser suspendido por la Alcaldía Municipal mediante resolución debidamente razonada.

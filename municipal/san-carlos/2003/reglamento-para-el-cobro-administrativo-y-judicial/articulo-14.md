@@ -1,0 +1,1 @@
+Artículo 14.—Criterios para aplicación del rol. El rol de asignaciones será de acuerdo con el saldo que presente la operación o deuda en el momento de ser incluida al cobro judicial y se le asignará de acuerdo con la lista alfabética de abogados que lleva la Unidad Administrativa, procurando la igualdad en la distribución de los montos asignados para cobro a cada profesional.

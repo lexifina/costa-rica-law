@@ -1,0 +1,1 @@
+Artículo 20.—Obligaciones del abogado. El abogado director no podrá suspender en forma definitiva el proceso judicial hasta que se lo haya manifestado por escrito, la persona u órgano que autorizó el no seguimiento, lo cual se tramitará por la vía de la Unidad Administrativa conforme a los artículos 75º y siguientes del presente Proyecto.

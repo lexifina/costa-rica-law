@@ -1,0 +1,1 @@
+Artículo 66.—Otras sanciones. Cuando se demuestre lo estipulado en los artículos 38º y 39º, el abogado será separado definitivamente del rol de abogados y enviada nota de tal hecho al Colegio de Abogados de Costa Rica, sin ningún tipo de responsabilidad para la Municipalidad.

@@ -1,0 +1,23 @@
+Artículo 37.—Informe semestral. Los abogados que dirijan procesos judiciales de la Municipalidad, deberán presentar ante la Unidad Administrativa correspondiente un informe semestral que contenga como mínimo lo siguiente:
+- Tipo de juicio.
+- Número de operación.
+- Nombre del deudor y fiadores.
+- Número de expediente judicial.
+- Juzgado o tribunal que lo tramita.
+- Fecha de presentación.
+- Cuantía.
+- Fecha de traslado de la demanda.
+- Fecha de notificaciones, si existen.
+- Razones de no notificación si esto no se ha realizado.
+- Si existen embargos decretados.
+- Si existen embargos practicados.
+- Si hay órdenes de giro pendientes.
+- Hasta qué fecha están aprobadas las liquidaciones de intereses.
+- Si existe señalamiento de remate.
+- Si el remate se celebró, quién se adjudicó el remate y por qué suma.
+- Si se ha aprobado en firme o existe alguna gestión judicial pendiente.
+- Si se han establecido las órdenes de giro del remate del bien.
+- Cualquier otro aspecto de importancia para el caso.
+- Recomendación de la estrategia a seguir en el caso.
+- Firma y sello blanco del abogado director.
+Este informe deberá presentarse en hojas separadas para cada caso asignado, en los primeros cinco días hábiles de los meses de abril y octubre de cada año. La no presentación del informe hará acreedor al abogado a las sanciones establecidas en el Capítulo V de este Proyecto.

@@ -1,0 +1,1 @@
+Artículo 69.—Derecho de defensa. Aún cuando la Municipalidad estime que la prestación de los servicios profesionales del abogado puedan suspenderse en cualquier momento sin responsabilidad de su parte, el abogado tendrá derecho al descargo respectivo como parte del debido proceso.

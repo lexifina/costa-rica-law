@@ -1,0 +1,3 @@
+SECCIÓN II
+Responsabilidades y Prohibiciones
+Artículo 36.—Prohibiciones. Queda prohibido a los abogados directores recibir sumas de dinero de los deudores y/ o fiadores, contra quienes la Municipalidad haya planteado procesos judiciales, para aplicarlos a los créditos, a honorarios o a gastos. Todo pago será realizado por las vías judiciales o administrativas municipales que garanticen el adecuado cumplimiento de las normas que rigen el control de la Hacienda Municipal. Si se demostrare tal situación, el abogado que lo hiciere o lo permitiere, será acreedor a las sanciones establecidas en el Capítulo V de este Proyecto o acusado de apropiación y retención indebida.

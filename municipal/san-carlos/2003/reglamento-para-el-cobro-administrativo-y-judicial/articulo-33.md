@@ -1,0 +1,1 @@
+Artículo 33.—Decisión de adjudicación. La Alcaldía Municipal bajo su propia discreción y responsabilidad administrativa, decidirá si la Municipalidad se adjudica los bienes en el primero, segundo o tercer remate. Lo anterior utilizando la información, parámetros y criterios que estime necesarios y siempre en defensa de los mejores intereses de la institución.

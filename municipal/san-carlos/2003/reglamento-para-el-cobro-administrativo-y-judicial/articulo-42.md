@@ -1,0 +1,1 @@
+Artículo 42.—Deudas Municipales de los abogados. Todo abogado al servicio de la Municipalidad deberá mantener sus deudas personales o de sus representadas directas o indirectas, al día; así como los requisitos relacionados a las mismas. El incumplimiento de lo anterior dará lugar a las sanciones establecida en el Capítulo V del presente Proyecto.

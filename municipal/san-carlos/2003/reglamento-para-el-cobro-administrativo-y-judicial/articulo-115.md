@@ -1,0 +1,1 @@
+Artículo 115.—Modificación por solicitud de adecuación de pagos. El sujeto pasivo podrá efectuar abonos extraordinarios al principal y con base en ello solicitar a la Unidad de Cobros una readecuación de pagos dentro del plazo originalmente estipulado, que será analizado y resuelto por esta en un plazo de diez días hábiles.

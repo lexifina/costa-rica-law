@@ -1,0 +1,1 @@
+Artículo 47.—Pago de honorarios por retiro. En los casos en que la Municipalidad de San Carlos decida el retiro de un abogado que lo solicite voluntariamente, el pago de los honorarios procederá de acuerdo con la normativa vigente; y la reasignación de abogado a cada cobro, lo será en base a los artículos 13º y siguientes del presente Proyecto.

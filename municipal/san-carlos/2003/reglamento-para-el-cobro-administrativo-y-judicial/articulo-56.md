@@ -1,0 +1,1 @@
+Artículo 56.—Bienes inmuebles. En caso de embargo de bienes inmuebles, el abogado director deberá coordinar con el Ejecutor la fecha de la toma de posesión del bien, y estar presente junto con la persona designada como depositario judicial por parte de la Municipalidad, para la verificación del acto.

@@ -1,0 +1,1 @@
+Artículo 110.—Denegatoria de la solicitud y gestión de cobro. En caso de denegar la solicitud, debe comunicársele y prevenir al interesado que debe efectuar el pago dentro de los quince días que estipula el artículo 169º del Código de Normas y Procedimientos Tributarios, conjuntamente con la notificación de la resolución administrativa que deniega la solicitud.
