@@ -1,0 +1,1 @@
+Artículo 72.-La persona ofendida podrá proponer al Órgano Director su posible reubicación temporal en la Municipalidad, en cualquier momento del procedimiento. El Órgano Director recomendará lo atinente al Ejecutivo Municipal, quien en única instancia resolverá.

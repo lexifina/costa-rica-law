@@ -1,0 +1,1 @@
+Artículo 4°_EI presente Reglamento se aplicará únicamente a aquellos funcionarios que dependan directamente del Ejecutivo, no así a los que dependan del Concejo Municipal, pues a éstos se les aplicarán las disposiciones contempladas en el Código Municipal y Leyes Conexas.

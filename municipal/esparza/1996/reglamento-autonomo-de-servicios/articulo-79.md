@@ -1,0 +1,1 @@
+Artículo 79.-La violación de la confidencialidad de todo lo relacionado con los hechos que motivaron la denuncia y de lo acontecido en el procedimiento, por parte de los funcionarios vinculados directa o indirectamente con éste, se sancionará de conformidad con el artículo 42 y concordantes de este Reglamento.

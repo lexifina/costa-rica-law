@@ -1,0 +1,1 @@
+Artículo 37.-Cada tarjeta deberá ser marcada solamente por el trabajador a quien corresponda con cuidado, de manera que quede impresa con claridad, toda vez que las marcas defectuosas, manchadas o confusas, que no se deban a desperfecto del reloj, se tendrán por no hechas para efectos de sanción debiendo el trabajador marcar tanto al inicio como a la terminación de la jornada.

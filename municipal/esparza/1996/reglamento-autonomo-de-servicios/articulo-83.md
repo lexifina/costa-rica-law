@@ -1,0 +1,3 @@
+Artículo 83.-EI presente Reglamento, una vez publicado el proyecto en el Diario Oficial, se someterá a consulta pública por un plazo no menor a diez días hábiles, transcurridos los cuales y no habiendo oposiciones, entrará a regir a partir de su publicación.
+Para efectos de lo dispuesto en el artículo 67 del Código de Trabajo, el presente Reglamento se tendrá expuesto permanentemente por lo menos en dos de los sitios más visibles del centro de trabajo.
+Observación: Aprobado en Sesión Extraordinaria número cero dos, Artículo uno del Capítulo primero, efectuada el veintitrés de mayo de mil novecientos noventa y seis.

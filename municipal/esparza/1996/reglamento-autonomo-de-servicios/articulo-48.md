@@ -1,0 +1,1 @@
+Artículo 48.-Se considerará ausencia la inasistencia a un día completo de trabajo. La falta a una fracción de la jornada se computará como la mitad de una ausencia para efectos de este Reglam~nto. La Municipalidad no estará obligada a pagar el salario correspondiente a las ausencias, excepción hecha de los casos señalados por la ley.

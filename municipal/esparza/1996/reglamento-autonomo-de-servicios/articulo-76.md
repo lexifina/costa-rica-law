@@ -1,0 +1,4 @@
+Artículo 76.-En un plazo de quince días naturales, a partir de la finalización del plazo otorgado en el artículo anterior, el Órgano Director emitirá el informe que trasladará al Ejecutivo Municipal, el cual contendrá lo siguiente:
+Recomendación al jerarca de la posible sanción aplicable, según la gravedad de la falta, que podrá convertirse en amonestación escrita, suspensión sin goce de salario hasta por ocho dias y el despido sin responsabilidad patronal; o bien, no aplicar ninguna sanción al no acreditarse el acoso u hostigamiento.
+El Ejecutivo Municipal deberá resolver en un plazo de tres días.
+La resolución final únicamente tendrá recurso de reconsideración y deberá interponerse dentro del tercer día hábil siguiente a su notificación. El recurso deberá ser resuelto en un término de cinco días hábiles, a partir de su presentación.

@@ -1,0 +1,1 @@
+Artículo 47.-EI despido con responsabilidad patronal, únicamente podrá realizarse por reducción forzosa de servicios, la cual sólo procederá por reorganización de personal o por razones de orden económico.

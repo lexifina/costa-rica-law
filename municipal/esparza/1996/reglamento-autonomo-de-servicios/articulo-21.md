@@ -1,0 +1,1 @@
+Artículo 21.-En el caso de terminación del contrato o relación de trabajo, antes de cumplir el trabajador el período de cincuenta semanas, tendrá derecho como mínimo a un día de vacaciones por cada mes completo de trabajo, que se le deberá pagar en la liquidación correspondiente.

@@ -1,0 +1,1 @@
+Artículo 41.-Las asistencias al Seguro Social, cuando son en horas laborales y el tiempo utilizado para ese fin, se considerarán como licencia con goce de salario, y deberán ser marcadas en el reloj contralor usando la tarjeta correspondiente, además deberá presentar la constancia de asistencia expedida por la Caja Costarricense de Seguro Social.

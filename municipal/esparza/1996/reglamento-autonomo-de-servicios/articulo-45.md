@@ -1,0 +1,4 @@
+Artículo 45.-La suspensión del trabajo se aplicará hasta por quince días sin goce de salario. Para aplicar dicha sanción se debe seguir en lo conducente el procedimiento que se establece en el artículo 154 del Código Municipal. Dicha sanción se aplicará en los siguientes casos:
+a) Cuando el trabajador después de haber sido reprimido por escrito, incurra de nuevo en una falta igual o similar a la que motivo la amonestación.
+b) Cuando el trabajador viole alguna de las prohibiciones establecidas en el artículo 35 de este Reglamento, después de haber sido reprimido por escrito, salvo que la falta diere mérito para una sanción mayor, o estuviere sancionada por otra disposición de este Reglamento, o incumpla con alguna de las obligaciones que establecen los artículos 33 y 34 de este Reglamento.
+c) Cuando el trabajador cometa alguna falta que no dé mérito para el despido, excepto si estuviere sancionada de manera especial por otra disposición de este reglamento.
