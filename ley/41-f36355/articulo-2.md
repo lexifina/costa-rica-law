@@ -1,5 +1,5 @@
 Artículo 2°.-Conforme al séptimo considerando de este decreto, se exceptúan del artículo anterior y se declara la validez legal de:
-a)-La circulación de monedas de plata, cobre y níquel, acuñadas en virtud del decreto N° 41 de 7 de setiembre de 1917;
+a)-(Así derogado este inciso por el artículo 31 de la Ley N° 846 de 18 de marzo de 1947, Ley de la Moneda).
 b )-La circulación de billetes de oro y de plata de (¢ 2-00, ¢ 1-00, ¢ 0-50 y ¢ 0-25, emitidos con arreglo a los decretos N° 3 de 23 de junio de 1917 y N° 6 de 5 de octubre de 1918;
 c)-La emisión e inversión de billetes del Banco Internacional de Costa Rica, autorizada por decreto N° 6 de 5 de octubre de 1918;
 d)-La circulación de billetes permitida por la Secretaría de Hacienda por acuerdos N° 215 de 28 de junio por valor de (¢ 650, 000.00, N° 235 de 10 de julio por valor de ¢ 100,000-00 y N° 255 de 25 de julio por valor de ¢ 1 25,000-00, ambos meses del año de 1919;
