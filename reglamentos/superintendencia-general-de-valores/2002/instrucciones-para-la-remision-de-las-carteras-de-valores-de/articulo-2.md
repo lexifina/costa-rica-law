@@ -1,0 +1,1 @@
+Artículo 2° Periocidad: La información descrita en el artículo 1 deberá ser remitida en forma quincenal, mediante el sistema ingresador diseñado por esta Superintendencia, al día hábil siguiente al cierre de la quincena.
