@@ -2,7 +2,8 @@ Artículo 162
 Escalas graduales
 El ascenso y descenso de grados de la pena, conforme a las reglas anteriores y a las que se expongan en los Libros Segundo y Tercero de este Código, se harán en los cuadros graduales de la pena, y para ello se establecen las siguientes escalas:
 PRIMERA
-ESCALA GRADUAL PARA LA PENA DE PRESIDIO TEMPORAL
+Escala gradual para la pena de presidios
+(Modificada su denominación por el artículo 4° de la ley N° 27 del 17 de noviembre de 1928. Anteriormente decía "ESCALA GRADUAL PARA LA PENA DE PRESIDIO TEMPORAL")
 Grado 10.° | Presidio por tiempo indeterminado.
 Grado 9° | Presidio temporal en su grado sexto
 Grado 8° | Presidio temporal en su grado quinto
@@ -74,8 +75,8 @@ Grado 3° | Arresto en su grado tercero
 Grado 2° | Arresto en su grado segundo
 Grado 1° | Arresto en su grado primero
 SEPTIMA
-ESCALA GRADUAL PARA LA PENA DE INHABILITACIÓN
-ABSOLUTA TEMPORAL
+Escala gradual para la pena de inhabilitación absoluta
+(Modificada su denominación por ela rtículo 4° de la ley N° 27 del 17 de noviembre de 1928. Anteriormente decía "ESCALA GRADUAL PARA LA PENA DE INHABILITACIÓN ABSOLUTA TEMPORAL")
 Grado 10° | Inhabilitación absoluta y perpetua
 Grado 9° | Inhabilitación temporal en su grado sexto
 Grado 8° | Inhabilitación temporal en su grado quinto
@@ -87,8 +88,8 @@ Grado 3° | Inhabilitación Especial temporal en su grado tercero
 Grado 2° | Inhabilitación Especial temporal en su grado segundo
 Grado 1° | Inhabilitación Especial temporal en su grado primero
 OCTAVA
-ESCALA GRADUAL PARA LA PENA DE INHABILITACIÓN
-ESPECIAL TEMPORAL
+Escala gradual para la pena de inhabilitación especial
+(Modificada su denominación por el artículo 4° de la ley N° 27 del 17 de noviembre de 1928. Anteriormente decía "ESCALA GRADUAL PARA LA PENA DE INHABILITACIÓN ESPECIAL TEMPORAL")
 Grado 10° | Inhabilitación especial perpetua
 Grado 9° | Inhabilitación especial temporal en su grado sexto
 Grado 8° | Inhabilitación especial temporal en su grado quinto

@@ -3,7 +3,8 @@ Serán reprimidos con arresto o multa menor en su grado primero:
 Violación de casa ajena
 1.° El que hallándose en morada O casa de comercio ajena o en sus dependencias, no se retirare después de recibir orden de hacerlo, de quien tenga derecho para darla.
 Hurto de uso.
-2.° El que se hiciere culpable de hurto de uso, cuando el hecho recayere sobre cosa cuyo valor no exceda de veinticinco colones.
+2.° El que se hiciere culpable de hurto de uso, cuando el valor de éste no exceda de veinticinco colones.
+(Así reformado el inciso anterior por el artículo 3° de la ley N° 27 del 17 de noviembre de 1928)
 Producción de incomodidad o molestia
 3.° El que incomodare o molestare a alguna persona arrojándole cualquier cosa o sustancia. Si se produjere lesión corporal o daño en las cosas, se aplicarán las puniciones correspondientes.
 Caza pesca en lugar ajeno
