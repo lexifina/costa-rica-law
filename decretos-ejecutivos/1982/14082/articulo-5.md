@@ -593,6 +593,8 @@ Libros
 Cuadernos y pinturas, hechos por pintores nacionales y extranjeros, producidos en el país
 Cajas mortuorias
 Consumo mensual de energía eléctrica que sea igual o inferior a 250 KW/h (cuando el consumo mensual exceda los 250 KW/hel impuesto cuya tarifa es del 5%, se aplicará al total de KW/h consumido
+Formularios para el cumplimiento de las obligaciones tributarias
+(Así adicionada el punto anterior por el artículo 7° del decreto eejcutivo N° 26048 del 28 de abril de 1997)
 Prótesis oculares
 Toda clase de equipos médicos e instrumentos médico-quirúrgicos, requeridos por la Caja Costarricense de Seguro Social para la prestación de sus servicios
 Composiciones musicales
