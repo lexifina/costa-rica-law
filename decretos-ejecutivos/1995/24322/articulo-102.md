@@ -1,0 +1,1 @@
+Artículo 102°- Error de concepto. Se entenderá que se comete error de concepto cuando al expresar, en las inscripciones o en el acto que la autoriza, alguno de los conceptos contenidos en el título, se altere o se varíe su verdadero sentido por una errónea calificación del Registrador.

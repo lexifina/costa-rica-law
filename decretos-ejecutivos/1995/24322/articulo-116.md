@@ -1,0 +1,1 @@
+Artículo 116°- Resolución de la Dirección. Una vez vencidas las audiencias conferidas, la Dirección resolverá sobre el asunto en la forma que legalmente corresponda, en resolución considerada, con indicación de sus fundamentos legales dentro del mes siguiente. Esta resolución se notificará al gestionante, así como a los demás interesados que se hubieren apersonado.

@@ -1,0 +1,1 @@
+Artículo 84°- Informes registrales. A solicitud del interesado el Registro pondrá una copia de la información que en él consta, por los medios técnicos que determine la Dirección o la Subdirección, la cual no tendrá el carácter de certificación.

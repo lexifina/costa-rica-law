@@ -1,0 +1,2 @@
+Artículo 95°- Del Registro de Hipotecas. En este Registro se inscribirá la constitución, modificación y cancelación del derecho de hipoteca. El asiento de inscripción definitiva de la hipoteca contendrá la información más importante, del acto o contrato contenido en el documento que se solicita registrar.
+La cesión de la hipoteca se hará dando la cita de la inscripción hipotecaria practicada a favor del cedente.

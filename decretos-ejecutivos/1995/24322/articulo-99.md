@@ -1,0 +1,1 @@
+Artículo 99°- Del Registro de concesiones de la Zona Marítimo Terrestre. En este Registro se inscribirá todo lo relativo a la concesión de derechos de la Zona Marítimo Terrestre y aquellos que por leyes o decretos se le asignen.

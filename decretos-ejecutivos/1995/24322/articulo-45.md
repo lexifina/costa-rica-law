@@ -1,0 +1,1 @@
+Artículo 45°- Del reparto automático. Una vez que se haya cerrado la entrada de documentos del día y se hayan realizado todas las operaciones correspondientes al Departamento del Diario, se efectuará el reparto automático de los documentos que se presentaron ese día a los registradores respectivos.

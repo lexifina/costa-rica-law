@@ -1,0 +1,1 @@
+Artículo 126°- Del documento otorgado ante dos o más notarios. En caso de que un documento se haya otorgado ante dos o más notarios, deberá presentarse con una boleta de seguridad de las asignadas al notario dueño del protocolo donde se insertó la escritura.

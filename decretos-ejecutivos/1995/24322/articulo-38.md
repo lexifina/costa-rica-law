@@ -1,0 +1,1 @@
+Artículo 38°- Del Departamento de Digitalización y Microfilmación. A este departamento le corresponde realizar la captura de la imagen de los documentos que le asigne la Dirección por medio de las técnicas que se consideren apropiadas para llevar a cabo dicha función. También este Departamento es responsable de que las imágenes capturadas sean de la mejor calidad posible.

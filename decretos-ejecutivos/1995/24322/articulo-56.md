@@ -1,0 +1,2 @@
+Artículo 56°- Acatamiento de los criterios registrales. La Dirección comunicará mediante circular, aquellas calificaciones o resoluciones de ocursos, de diligencias administrativas u otros que considere de importancia para la aplicación de casos similares que se pudieran presentar.
+El contenido de dicha circular será de obligatorio acatamiento para los Registradores en casos análogos, a fin de garantizar un principio de unidad de criterio en la calificación registral.

@@ -1,0 +1,1 @@
+Artículo 72°- Unidad de información. La inscripción de un inmueble se efectuará consignándole a éste un número de matrícula, bajo el cual se indicará toda la información referente a él. Igualmente existirá una unidad de información para las inscripciones que no correspondan a inmuebles y que deben realizarse en este Registro.

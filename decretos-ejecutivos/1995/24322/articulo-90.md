@@ -1,0 +1,1 @@
+Artículo 90°- Diferencia entre la fórmula de la cédula y el asiento. Si del cotejo de la fórmula de la cédula con su respectivo asiento resultaren incongruencias o diferencias, el registrador de cédulas hipotecarias denegará la emisión, hasta tanto se subsanen los errores u omisiones.

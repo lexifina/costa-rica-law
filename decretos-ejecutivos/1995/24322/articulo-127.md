@@ -1,0 +1,1 @@
+Artículo 127°- De la Presentación de varios documentos otorgados por diferentes notarios. Cuando se deban presentar varios documentos autorizados por diferentes notarios, bajo una misma presentación, se adherirá una boleta para cada documento conforme al notario otorgante.

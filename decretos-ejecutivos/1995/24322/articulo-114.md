@@ -1,0 +1,1 @@
+Artículo 114°- De la nota de advertencia. Si la gestión cumple con todos los requisitos, se le dará curso, y se pondrá una nota de advertencia en la inscripción del derecho respectivo, para efectos de publicidad, únicamente. Una vez terminado el proceso se levantará esta nota de advertencia.

@@ -1,0 +1,1 @@
+Artículo 91°- Sustitución de hipoteca común por hipoteca de cédula. La sustitución de una hipoteca común por una de cédula, se hará en la misma escritura en que ésta se constituye, de conformidad con lo dispuesto por el artículo 428 del Código Civil.

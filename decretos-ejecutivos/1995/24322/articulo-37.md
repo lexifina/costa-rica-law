@@ -1,0 +1,1 @@
+Artículo 37°- Del Departamento de Información. El Departamento de Información le corresponde orientar a los usuarios de la Institución. A los funcionarios de este Departamento se les prohíbe la realización de gestiones en el Registro Nacional, pudiendo solamente realizar las que sean autorizadas por orden superior.

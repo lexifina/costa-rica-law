@@ -1,0 +1,1 @@
+Artículo 107°- Efectos de la inscripción de rectificación. La inscripción de la rectificación surtirá efecto a partir de la fecha en que se realice, sin perjuicio del derecho que puedan tener los terceros para reclamar contra la falsedad o nulidad del título a que se refiere la inscripción que contenía el error.

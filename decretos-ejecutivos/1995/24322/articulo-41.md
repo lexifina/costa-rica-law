@@ -1,0 +1,1 @@
+Artículo 41°- Horario de recepción de documentos. El horario de recepción de documento es de las 7,30 horas a las 14,30 horas, el cual podrá ser variado por la Dirección, previa autorización de la Junta Administrativa, a efecto de mejorar el servicio público que se brinda.

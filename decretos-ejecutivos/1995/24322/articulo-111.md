@@ -1,0 +1,1 @@
+Artículo 111°- Forma de realizar la notificación. La notificación se realizará mediante correo certificado en el lugar que las partes señalaron para tal efecto. Podrán utilizarse también otros medios electrónicos, tales como el telefax, siempre y cuando las partes lo señalen expresamente.

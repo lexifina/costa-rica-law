@@ -1,0 +1,1 @@
+Artículo 85°- Cédula de Persona Jurídica. El Registro extenderá un documento oficial en el que consta el número de cédula que identificará a cada persona jurídica de conformidad con lo que señala el Decreto Ejecutivo Nº 18504-J de 29 de setiembre de 1988.

@@ -1,0 +1,1 @@
+Artículo 98°- Del Registro de Asociaciones. En este Registro se inscribirán las asociaciones civiles, con fines artísticos, científicos, deportivos, benéficos, de recreo y cualesquiera otros lícitos que no tengan por único y exclusivo objeto el lucro o ganancia. En el asiento donde se registre constará un resumen de los datos más importantes de su inscripción.

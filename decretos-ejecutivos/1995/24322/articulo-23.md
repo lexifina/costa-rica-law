@@ -1,0 +1,1 @@
+Artículo 23°- Del Personal Subalterno. Es obligación del personal subalterno del Registro cumplir fielmente con las obligaciones propias de sus cargos respectivos, así como las órdenes de sus superiores y prestar en todo caso la colaboración que se les solicite para la buena marcha del Registro, fuera de las contenidas en las leyes y este Reglamento.
