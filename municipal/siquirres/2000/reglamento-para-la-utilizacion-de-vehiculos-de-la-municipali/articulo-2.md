@@ -1,0 +1,1 @@
+Articulo 2°—Los vehículos de la Municipalidad de Siquirres, de uso administrativo, llevarán permanente placas matricula oficial en los lugares donde reglamentariamente deben colocarse y un distintivo visible en sus costados, que los identifique con el nombre de la Municipalidad y la leyenda ("uso oficial").

@@ -1,0 +1,1 @@
+Artículo 14.—Intercambio de combustibles y accesorios. Los conductores de vehículos municipales, de la Municipalidad de Siquirres, no podrán hacer intercambio de accesorios o combustibles de un vehículo a otro.
