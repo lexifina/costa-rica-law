@@ -1,0 +1,1 @@
+Artículo 3°─ El Poder Ejecutivo organizará una Junta de Cultura Física, de carácter docente, con las facultades que crea del caso conferirle. Los miembros de la extinta Junta Nacional de Cultura Física, cuyos poderes han cesado, dará cuenta comprobada de su actuación en la Secretaría de Estado en el Despacho de Gobernación.
