@@ -13,3 +13,4 @@ Reglamento Comité Nacional de Valoración Aduanera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-06-09 | la propia norma |
+| 2 | 1986-06-09 | Decreto Ejecutivo 18606 (1988-10-20) |
