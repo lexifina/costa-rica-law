@@ -1,0 +1,1 @@
+Art. 2° -La dirección de la academia y la instruccion que en ella debe darse, se considerarán como cargos anexos al destino de Inspeetor de Escuelas de la provincia, el cual, à la mayor brevedad posible, presentara en proyecto á la Secretaria de Instruccion Pública, el reglamento interior que deba regir la academia, para lo que el Supremo Gobierno tenga á bien resolver.
