@@ -1,0 +1,1 @@
+Artículo 13.—Cada departamento o sucursal, tabulará la información correspondiente a las ventas efectuadas por cada vendedor, producto o servicio, y obtener así los indicadores que permitan evaluar la gestión de ventas y tomar las acciones correctivas que correspondan.

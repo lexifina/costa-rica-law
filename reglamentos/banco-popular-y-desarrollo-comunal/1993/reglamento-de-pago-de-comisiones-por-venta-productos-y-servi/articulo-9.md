@@ -1,0 +1,1 @@
+Artículo 9º—Los pagos por comisiones a que se refiere este Reglamento, serán únicamente cubiertos a aquellas personas que están debidamente nombradas y autorizados como Ejecutivos de Ventas y Comisionistas que hayan firmado el contrato especial para sus funciones de vendedores.

@@ -1,0 +1,1 @@
+Artículo 6º—Las comisiones o tarifas por la venta de cada producto o servicio bancario del Banco, Popular, se regirán por la "Tabla de Comisiones por Venta de Productos o Servicios Bancarios del Banco Popular".

@@ -1,0 +1,1 @@
+Artículo 15.—El ejecutivo de ventas o comisionista, requerirá de períodos de capacitación y trabajos de revisión de los planes y proyectos de ventas en estos lapsos, no se efectuarán ventas de los productos o servicios de la Institución, por parte de los ejecutivos de venta o comisionista y obviamente, no se percibirán ingresos por concepto de comisión sobre ventas.
