@@ -1,0 +1,1 @@
+Art. 3°-Cuando hubiere ejército en campaña, el Estado Mayor de campaña, se compondrá: del Comandante en Jefe del ejército expedicionario, de u necesarios para el servicio. Mayor General, y de los oficiales ayudantes que sean

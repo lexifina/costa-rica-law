@@ -1,0 +1,1 @@
+Art. 4°-Cada División, Brigada ó Columna tendrá también su Estado Mayor, compuesto del Jefe de ella, del Mayor primer ayudante general, y segundo Jefe de la División, Brigada ó Columna, y de los demás oficiales ayudantes que fueren necesarios.

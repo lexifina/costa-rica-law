@@ -1,0 +1,1 @@
+Art. 5°-También pertenecen al respectivo Estado Mayor, los Auditores de Guerra, los Cirujanos, los Capellanes, los Intendentes, Comisarios ó Habilita- dos, y los jefes y oficiales disponibles que por orden expresa, fueren agregados á alguno de los Estados Mayores.

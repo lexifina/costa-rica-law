@@ -1,0 +1,1 @@
+Art. 6°-Los Estados Mayores de plaza y el Estado Mayor en campaña dependen y reciben sus órdenes directamente del General en Jefe del Ejército de la República, y cuando éste se hallare á la cabeza de las fuerzas expedicionarias, sólo dependerá y las recibirá del Poder Ejecutivo, por órgano del Ministre de la Guerra.
