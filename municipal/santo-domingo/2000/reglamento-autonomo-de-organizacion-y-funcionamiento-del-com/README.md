@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y funcionamiento del Comité Cantonal Depo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-14 | la propia norma |
+| 2 | 2000-09-14 | Ley 8 |
