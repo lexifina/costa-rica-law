@@ -14,3 +14,4 @@ Reorganización Administrativa del Ministerio de Educación.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1967-01-29 | la propia norma |
+| 2 | 1968-01-02 | Decreto Ejecutivo 3 (1968-01-02) |
