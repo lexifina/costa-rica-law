@@ -1,0 +1,1 @@
+Art 5°.- Se concede a estos tutores los derechos de patria potestad en sus huérfanos, hasta que cumplan veintitrés años, en cuya edad quedará emancipados, recibirán los bienes que por herencia o cualquiera otro título les haya correspondido; pero los aumentos que durante la tutela hubiesen tenido, corresponden a los tutores en compensación de su trabajo y servicio.

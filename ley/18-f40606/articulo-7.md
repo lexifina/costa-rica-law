@@ -1,0 +1,2 @@
+Art 7.- Las Justicias harán que sean cumplidas puntualmente estas obligaciones y asi como pueden distribuir los niños, deben también quitarlos al que los tenga, cuando descuide de ellos, les enseñen vicios, o los trate con crueldad. Al Consejo Representativo.- Dado en San José a los ocho días del mes de mayo de mil ochocientos treinta y tres.
+Por tanto Ejecutese: San José Mayo quince de mil ochocientos treinta y tres.
