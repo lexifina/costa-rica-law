@@ -1,0 +1,1 @@
+Artículo 4°-La persona ofendida podrá poner en consideración del Director Ejecutivo su reubicación temporal en la Institución en cualquier momento del proceso. El Director Ejecutivo resolverá en única instancia la procedencia de la reubicación temporal solicitada.

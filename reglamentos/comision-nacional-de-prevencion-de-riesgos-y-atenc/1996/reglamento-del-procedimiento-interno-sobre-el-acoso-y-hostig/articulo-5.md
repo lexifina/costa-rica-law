@@ -1,0 +1,1 @@
+Artículo 5°-En un plazo irrevocable de veinticuatro horas siguientes a la denuncia, el Director Ejecutivo procederá a integrar el Órgano Director, que tendrá bajo su responsabilidad el procedimiento sumario administrativo.

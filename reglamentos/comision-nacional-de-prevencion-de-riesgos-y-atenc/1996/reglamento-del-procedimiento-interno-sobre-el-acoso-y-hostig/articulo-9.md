@@ -1,0 +1,1 @@
+Artículo 9°-En un plazo de quince días naturales, el Órgano Director emitirá el informe que trasladará al Director Ejecutivo con las recomendaciones disciplinarias que considere aplicables, quien lo trasladará a la Presidencia de la Junta Directiva, quien resolverá en definitiva en un plazo de cinco días naturales.
