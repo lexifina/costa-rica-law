@@ -1,0 +1,15 @@
+Artículo 261.-
+1. El procedimiento administrativo deberá concluirse, por acto final,
+dentro de los dos meses posteriores a su iniciación o, en su caso,
+posteriores a la presentación de la demanda o petición del administrado,
+salvo disposición en contrario de esta Ley.
+2. Para tramitar la fase de revisión por recurso ordinario contra el
+acto definitivo habrá el término de un mes contado a partir de la
+presentación del mismo.
+3. Si al cabo de los términos indicados no se ha comunicado una
+resolución expresa, se entenderá rechazado el reclamo o petición del
+administrado en vista del silencio de la Administración, sea para la
+interposición de los recursos administrativos procedentes o de la acción
+contenciosa en su caso, esto último en los términos y con los efectos
+señalados por la Ley Reguladora de la Jurisdicción Contencioso
+Administrativa.

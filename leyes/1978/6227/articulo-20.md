@@ -1,0 +1,4 @@
+Artículo 20.- Los preceptos de esta ley no dejarán de aplicarse por
+falta de reglamentación sino que ésta será suplida, salvo disposición
+expresa en contrario, en la misma forma y orden en que se integra el
+ordenamiento escrito.
