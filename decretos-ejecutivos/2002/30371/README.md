@@ -14,3 +14,4 @@ Modifica el límite de gasto presupuestario y efectivo establecido al Colegio Un
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-15 | la propia norma |
+| 2 | 2002-09-18 | Decreto Ejecutivo 30775 (2002-09-18) |

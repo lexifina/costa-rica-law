@@ -8,3 +8,4 @@ Considerando:
 3º—Que el Decreto Ejecutivo N° 29511-H establece los límites de gasto presupuestario y efectivo del Colegio para el año 2002; los cuales no le permiten cubrir los gastos indicados, por lo que resulta necesario ampliar al Colegio Universitario de Puntarenas el límite de gasto presupuestario y efectivo establecido en el artículo 1° del Decreto Ejecutivo N°29511-H. Por tanto,
 DECRETAN:
 Artículo 1º—Modifícase el artículo 1° del Decreto Ejecutivo N° 29511-H, para fijar en ¢ 417.5 millones el límite de gasto presupuestario y efectivo del Colegio Universitario de Puntarenas para el año 2002.
+(Modificado el límite de gasto presupuestario y efectivo del Colegio Universitario de Puntarenas para el 2002, por el artículo 1 del decreto ejecutivo N° 30775 de 18 de setiembre del 2002)
