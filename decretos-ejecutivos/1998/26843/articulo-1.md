@@ -1,0 +1,36 @@
+No 26843
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE ECONOMÍA, INDUSTRIA Y COMERCIO Y DE TURISMO.
+Con fundamento en las facultades que les confiere los incisos 3 y 18 de la Constitución Política, el artículo 28, inciso 2 b) de la Ley General de la Administración Pública, ley número 1917 del 30 de julio de 1955 y sus reformas y
+Considerando:
+Único.—Que es indispensable la eliminación de requisitos y trámites innecesarios para la obtención de la Declaratoria Turística, agilizando y facilitando su tramitación, con el propósito de incentivar a que más empresas del sector obtengan los beneficios que ésta conlleva y así contar con un registro más completo de la oferta turística del país. Por tanto,
+DECRETAN:
+Artículo 1°—Modifíquense los artículos 2, inciso d), 8, 10, 13 inciso j) 17,18 y 20 del decreto ejecutivo No 25226-MEIC-TUR del 15 de marzo de 1996, Reglamento de Empresas y Actividades Turísticas, para que se lean como sigue: '
+"Artículo 2°—Para la aplicación de este Reglamento debe entenderse por:
+(...) d) "Declaratoria Turística": es el acto mediante el cual la Gerencia del Instituto declara a una empresa o actividad como turística, luego de cumplir con los requisitos técnicos, económicos y legales señalados en este Reglamento y en los manuales respectivos. (...)
+Artículo 8°—La solicitud, deberá acompañarse de los siguientes documentos:
+1.—De tipo legal:
+a) Certificado de carencia de antecedentes penales, del solicitante o de aquellas personas que ostenten la representación legal de la empresa. En casos de que las personas sean extranjeras, se deberá presentar el informe de carencia de antecedentes penales emitido por Interpol o los certificados expedidos en su lugar de procedencia, los cuales deberán contar con la autenticación consular costarricense respectiva y por el Ministerio de Relaciones Exteriores.
+b) Certificación de la personería jurídica de los representantes de la empresa, con indicación de las facultades que ostentan.
+c) Declaración jurada ante notario público, manifestando que el objeto de la empresa o actividad a desarrollar, será exclusivamente turístico y que en caso de dedicarse a otros giros los llevará contable y administrativamente por separado. Asimismo, deberá indicar lugar para recibir notificaciones relacionadas con este trámite así como con cualquier acto o resolución que se dicte en el futuro concerniente a la Declaratoria y Contrato Turístico, comprometiéndose a comunicar cualquier cambio, de lo contrario acepta ser notificado en ese sitio. En caso de proyectos, dicha declaración expresará el plazo dentro del cual se compromete a iniciar operaciones.
+d) Planos catastrados y título de propiedad del inmueble donde se desarrollará o ubica el proyecto o empresa, o contrato de arrendamiento o concesión según sea el caso, lo anterior únicamente para empresas dedicadas al hospedaje turístico.
+e) Para el caso de empresas de transporte acuático de turistas, se deberá presentar certificación del título de propiedad o contrato de arrendamiento del muelle donde operará la empresa. En casos de excepción, debidos a la no existencia en la zona donde operará la empresa de instalaciones adecuadas, podrá autorizarse otro tipo de facilidades o maneras alternas para' el atraque, embarque y desembarque de pasajeros.
+2.—De tipo técnico:
+En caso de empresas de transporte acuático que vayan a desarrollar infraestructura o de hospedaje, gastronomía o centros de diversión que vayan a optar únicamente por la declaratoria turística, deberán aportar un plano arquitectónico. Si se trata de empresas en operación deberán adjuntar un levantamiento arquitectónico de las instalaciones. Los proyectos de transporte acuático que vayan a desarrollar infraestructura y los de hospedaje que van a optar asimismo por el Contrato Turístico deberán presentar planos constructivos.
+3.—De tipo económico:
+a) Las empresas con más de un año de operación y que opten únicamente por la Declaratoria Turística, deberán aportar copia certificada por Contador Público Autorizado de la declaración de la renta ante Tributación Directa.
+b) Los proyectos que vayan a optar únicamente por la Declaratoria Turística deberán presentar una descripción detallada que incluya el número de empleados, nacionalidad y la inversión estimada.
+c) Cuando se opte también por el Contrato Turístico, se deberá presentar un estudio económico que cumpla con las condiciones indicadas en el artículo 6 de la Ley de Incentivos para el Desarrollo Turístico según lo establezca el Instituto.
+Todo documento que se extienda en otro idioma, deberá contar con su respectiva traducción, realizada por notario público costarricense, traductor oficial costarricense o por el Cónsul costarricense respectivo(...)
+Artículo 10.—El estudio de las solicitudes será efectuado por el Departamento Técnico respectivo del Instituto, a quien le corresponderá remitir una recomendación fundamentada a la Gerencia de la Institución, que es el órgano con facultad para resolver en definitiva.
+Los gastos ocasionados en las diligencias a realizar, por los funcionarios del Instituto fuera del perímetro de la ciudad de San José, serán cubiertos por los interesados conforme a las tarifas autorizadas por la Contraloría General de la República. (...)
+Artículo 13.—(...) j) Se deberá mantener la empresa en operación y con la categoría mínima aprobada por el Instituto al otorgar la Declaratoria Turística, de conformidad con los manuales respectivos de clasificación (...)
+Artículo 17.—El procedimiento ordinario para la aplicación de lo dispuesto por el artículo 16, será el previsto en la Ley General de la Administración Pública.
+Concluida la investigación, si la denuncia resultare infundada cerrara el caso comunicándoselo así al denunciante y a la empresa respectiva.
+Si la denuncia resultare fundada, la Gerencia del Instituto tomará la resolución o acción correspondiente de acuerdo con este Reglamento y otras disposiciones normativas conexas.
+Para los efectos de lo dispuesto en este artículo, el Instituto considera como circunstancia atenuante, en los casos de cobro excesivo por error, que la empresa o actividad haya hecho devolución inmediata de la suma cobrada demás. Respecto a las denuncias por cualquier otro daño sufrido por los turistas se considerará también como atenuante, el que la empresa o actividad haya ofrecido al denunciante la reparación del daño junto con las disculpas correspondiente. (...)
+Artículo 18.—Contra las resoluciones señaladas en el artículo anterior, cabrá recurso de apelación ante la Junta Directiva del Instituto, dentro de los tres días siguientes a la fecha de su comunicación. (...)
+Artículo 20.—Para los efectos del artículo 2 de la Ley 7633 denominada Ley Reguladora de Horario de Funcionamiento en Expendios de Bebidas Alcohólicas, se entenderá que:
+a) Sólo los establecimientos declarados turísticos, de acuerdo a este reglamento, podrán optar a las patentes categoría F.
+b) El Instituto dará una aprobación previa al otorgamiento por la Municipalidad de la jurisdicción correspondiente de la patente categoría F.
+c) El Instituto podrá recomendar la cancelación de dicha patente a las Municipalidades respectivas, cuando se infrinjan este Reglamento o las leyes y reglamentos relativos a la moralidad, seguridad y orden público."
