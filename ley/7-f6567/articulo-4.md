@@ -1,0 +1,2 @@
+Art 4° Estos billetes gozarán del privilegio de poderse convertir en letras sobre Londres, cuando el Gobierno tenga a bien girar a noventa días vista y al cinco por ciento de cambio, , y serán además aceptados en pago de tierras baldías, por la base y sin puja.
+Único: Los intereses y privilegios que se conceden a los referidos billetes, cesarán desde el día que, llamamos para su amortización no fueren presentados.
