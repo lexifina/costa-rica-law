@@ -13,3 +13,4 @@ Cobro de las rentas aplicables a la enseñanza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1886-04-01 | la propia norma |
+| 2 | 1887-04-21 | Decreto Ejecutivo 7 (1887-04-21) |

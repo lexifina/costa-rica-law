@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XII
+(Este decreto fue derogado por el artículo 9° Reglamentación al manejo de los fondos escolares, aprobado mediante decreto ejecutivo N° 7 del 21 de abril de 1887)
 Relativo al cobro de las rentas aplicables á la enseñanza
 BERNARDO SOTO,
 PRESIDENTE CONSTITUCIONAL Y GENERAL EN JEFE DEL EJÉRCITO
