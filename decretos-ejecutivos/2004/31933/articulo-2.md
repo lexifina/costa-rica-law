@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Cultura, Juventud y Deportes, promoverá a través del Centro de Investigación y Conservación del Patrimonio Cultural y la Dirección General de Cultura, la realización de certámenes de comidas regionales, así como de otras actividades para la conservación y difusión de la cocina tradicional.
