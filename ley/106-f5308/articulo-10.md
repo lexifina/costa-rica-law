@@ -1,0 +1,1 @@
+Art 10°.- El Juez de Policía concluidos los trabajos rendirá a las Municipalidades cuenta del trabajo y dinero invertido en los reparados o compuestos, siendo su carga el Padrón y datas las justificadas.
