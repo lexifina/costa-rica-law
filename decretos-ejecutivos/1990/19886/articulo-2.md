@@ -48,8 +48,10 @@ También se incluye dentro de la presente definición; las trozas que se encuent
 - Ríos, quebradas o arroyos permanentes: Son aquellos que mantienen caudal de agua todo el año.
 - Tacotal: Formación vegetal constituida por especies herbáceas, leñosas y arbóreas de mayor altura y edad, originadas por el abandono de reas agrícolas o pastos. Generalmente está constituido por especies pionera, de r pido crecimiento y su potencial económico depende de las especies presentes. Tienen los mismos orígenes que el charral y pueden contener árboles dispersos aprovechables de diversos tamaños y especies, que por lo general no sobrepasan los quince metros de altura.
 (Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 20618 del 12 de julio de 1991)
-- Terrenos planos: Para efectos de los estipulado en el artículo 68 de la Ley, se consideran terrenos planos aquellos cuya pendiente sea igual o menos al quince por ciento.
-- Terrenos quebrados: Son aquellos que tienen una pendiente superior al quince por ciento.
+- Terrenos planos: para efectos de lo estipulado en el artículo 68 de la ley, se consideran terrenos planos aquellos cuya pendiente sea igualo menor al treinta por ciento.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 20993 del 15 de noviembre de 1991)
+- Terrenos quebrados: son aquellos que tienen una pendiente superior al treinta por ciento .
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 20993 del 15 de noviembre de 1991)
 - Troza:Para los fines del artículo 103 de la ley, se entiende por troza la parte del árbol escuadrada o no, que mediante transformación se puede convertir en algún producto forestal.
 (Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 20618 del 12 de julio de 1991)
 - Turno de corta: Es el tiempo transcurrido desde que la plantación o regeneración de las especies forestales se establecen hasta su edad de aprovechamiento
