@@ -14,3 +14,4 @@ Plan Regulador de la Municipalidad de Santa Ana
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-04-19 | la propia norma |
+| 2 | 2001-05-29 | Reglamento municipal 179 (2001-05-29) |
