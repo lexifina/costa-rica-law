@@ -1,0 +1,3 @@
+Artículo 5º—Para ejecutar el proceso de titulación en una determinada zona del país, el Departamento de Ordenamiento Agrario, en coordinación con las direcciones y oficinas subregionales, preparará un informe técnico mediante el cual se demuestre la necesidad de la legalización de las posesiones en dicha zona.
+Dicho informe deberá ser sometido a conocimiento y aprobación de la Junta Directiva del Instituto, a través de la Dirección de Formación y Desarrollo de Asentamientos.
+De considerarlo oportuno, la Junta Directiva tomará un acuerdo aprobándolo y a su vez ordenando se proceda con el trámite descrito en los artículos siguientes.

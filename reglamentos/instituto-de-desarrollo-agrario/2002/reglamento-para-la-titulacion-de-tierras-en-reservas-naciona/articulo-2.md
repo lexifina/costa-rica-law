@@ -1,0 +1,1 @@
+Artículo 2º—A los efectos de cumplir con lo indicado en el artículo anterior, el Instituto procurará impedir que permanezcan en suspenso los derechos adquiridos por los poseedores de tierras en Reserva Nacionales, legalizando la tenencia de la tierra mediante el reconocimiento de la posesión y el otorgamiento del respectivo título de propiedad.

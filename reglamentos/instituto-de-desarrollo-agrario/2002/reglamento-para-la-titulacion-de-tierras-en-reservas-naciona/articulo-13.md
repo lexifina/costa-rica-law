@@ -1,0 +1,1 @@
+Artículo 13.—Transcurrido el mes calendario y no habiendo oposición a la solicitud planteada, el Departamento de Ordenamiento Agrario, a través de la Dirección de Formación y Desarrollo de Asentamientos, procederá a remitir a Junta Directiva para que ésta autorice la segregación y traspaso de la propiedad a que hace referencia dicha solicitud.

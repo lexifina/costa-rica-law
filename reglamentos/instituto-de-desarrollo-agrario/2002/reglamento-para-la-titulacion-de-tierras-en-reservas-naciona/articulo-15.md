@@ -1,0 +1,1 @@
+Artículo 15.—El Instituto por medio de las oficinas regionales, podrá de oficio o a petición de parte, hasta en un período de cuatro años posteriores a la fecha de inscripción del título, gestionar la nulidad del mismo, si se demuestra que la información brindada por el solicitante al Instituto es errónea o falsa, o el título fue otorgado en contra de las leyes vigentes.

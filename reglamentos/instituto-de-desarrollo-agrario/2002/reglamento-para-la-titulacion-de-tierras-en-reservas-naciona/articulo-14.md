@@ -1,0 +1,1 @@
+Artículo 14.—De no presentarse oposición por terceros, el dominio de las tierras será inscrito a favor de los solicitantes de las zonas de titulación referidas en los artículos 6 y 7 y aquellas que en el futuro se traspasen al Instituto, para los fines de titulación en la Reserva Nacional, sin perjuicio de terceros de mejor derecho.

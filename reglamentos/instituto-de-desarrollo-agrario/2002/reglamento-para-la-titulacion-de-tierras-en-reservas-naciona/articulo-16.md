@@ -1,0 +1,2 @@
+Artículo 16.—El procedimiento para la nulidad deberá seguir el debido proceso en donde se brinde audiencia a las partes y culminará con la resolución final de Junta Directiva. Dicha resolución no generará responsabilidad para el Instituto y la misma se comunicará mediante exhorto al Registro Público para que cancele el asiento registral respectivo.
+Transcurrido el término de cuatro años, desde la inscripción del título, toda acción administrativa deberá decidirse en juicio declarativo, conforme lo establezcan las leyes que rigen la materia.

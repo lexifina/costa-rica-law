@@ -1,0 +1,1 @@
+Artículo 8º—Para el caso de las zonas de titulación creadas con antelación al presente Reglamento, el Instituto continuará con la legalización de las posesiones en las mismas, de conformidad con lo dispuesto en el presente reglamento, sin necesidad de recurrir a los procesos establecidos en los artículos 5, 6 y 7 anteriores.
