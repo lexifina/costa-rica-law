@@ -1,0 +1,1 @@
+Art 3°.- Se establece un resguardo volante, dependiente de la Aduana del Río Grande, compuesto de un cabo y tres guardas, que cele los caminos y veredas que conduzcan al río de San Carlos y vigile las orillas de este río.

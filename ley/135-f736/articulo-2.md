@@ -1,0 +1,1 @@
+Art 2°.- Cualquier bote o embarcación que se encuentre navegando el rio de San Carlos, será decomisado con todo lo que contenga, sean o no efectos extrangeros, y el dueño o patrón y marineros serán arrestados y puestos a disposición del Juez de Hacienda para los Juzgue conforme a derecho.
