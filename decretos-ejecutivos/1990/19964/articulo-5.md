@@ -1,0 +1,1 @@
+Artículo 5°- Se fija en (¢ 100.000,00 (cien mil colones) por hectárea el monto del Certificado de Abono Forestal para reforestar en el período fiscal número 91l más bienes de capital. Para los anteriores efectos se estará a lo dispuesto en el Reglamento a la Ley Forestal, decreto ejecutivo número 19886-MIRENEM.

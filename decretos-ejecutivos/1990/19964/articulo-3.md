@@ -1,0 +1,1 @@
+Artículo 3°- Se fija la necesidad de reforestación en Costa Rica para 1991 en 25 000 hectáreas, de las cuales 10 000 hectáreas serán financiadas mediante créditos blandos e inversiones privadas y 15 000 hectáreas por medio del Certificado de Abono Forestal.

@@ -1,0 +1,1 @@
+Artículo 4°- Se limita a 15 000 hectáreas el máximo a reforestar con Certificados de Abono Forestal para el período fiscal número 91, siendo prioritaria dicha actividad en todo el territorio nacional.

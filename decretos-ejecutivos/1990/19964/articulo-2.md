@@ -1,0 +1,1 @@
+Artículo 2°- A partir del período fiscal del impuesto sobre la Renta número 91 (1° de octubre de 1990 al 30 de setiembre de 1991, o las fechas que correspondan a cada contribuyente), solo se otorgará como incentivo fiscal el denominado Certificado de Abono Forestal.
