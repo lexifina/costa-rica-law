@@ -1,0 +1,2 @@
+Art. 11.-Quedan derogadas todas las leyes anteriores relativas á contribución para caminos.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los dos días del mes de julio de mil ochocientos ochenta y ocho.-A. ESQUIVEL, Presidente.-ANDRÉS VENEGAS, Secretario.-MANUEL J. JIMÉNEZ, Secretario.-Palacio Presidencial.-San José, á los dos días del mes de julio de mil ochocientos ochenta y ocho.-Ejecútese.

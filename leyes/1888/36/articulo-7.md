@@ -1,0 +1,1 @@
+Art. 7°-Para atender á los gastos que ocurrieren, los Gobernadores en los cantones centrales y los Jefes Políticos en los menores, girarán á cargo del Tesorero municipal, con el Visto Bueno de uno de los miembros de la junta correspondiente.
