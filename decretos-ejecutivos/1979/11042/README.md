@@ -14,3 +14,4 @@ Reglamento para la Autorización de Viajes al Exterior de Funcionarios del Poder
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-01-01 | la propia norma |
+| 2 | 1980-04-08 | Decreto Ejecutivo 11369 (1980-04-08) |

@@ -1,1 +1,3 @@
-Artículo 3°-Se entenderá por viajes al exterior los que realicen los funcionarios en razón del desempeño de sus cargos y los que realicen aquellas personas particulares en misión oficial, debidamente acreditada por Decreto Ejecutivo, financiados o no por la Administración correspondiente, incluyendo las becas de estudio.
+Artículo 3°-Se entenderá por viajes al exterior los que realicen los funcionarios en razón del desempeño de sus cargos y los que realicen aquellas personas particulares en misión oficial, debidamente acreditada por decreto ejecutivo, financiados o no por la Administración correspondiente, incluyendo las becas de estudio.
+No se considerarán viajes al exterior los que deban realizar los funcionarios del Servicio Exterior radicados en un país extranjero, llamados en consulta por el Ministerio de Relaciones Exteriores y Culto, para regresar a dicho país.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 11369 del 8 de abril de 1980).
