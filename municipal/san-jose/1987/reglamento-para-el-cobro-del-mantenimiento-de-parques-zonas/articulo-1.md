@@ -1,0 +1,2 @@
+(NOTA DE SINALEVI: El Concejo Municipal de la Municipalidad de San José, mediante acuerdo N° 11 consignado en el artículo IV de la sesión N° 128 del 9 de mayo del 2000, acordó la aprobación de un nuevo Reglamento de Cobro de la Tasa sobre Mantenimiento de Parques y Zonas Verdes y sus Respectivos Servicios del Cantón Central de San José, publicado en La Gaceta N° 103 del 30 de mayo del 2000, el cual puede consultarse en el Sistema).
+Artículo 1°.-
