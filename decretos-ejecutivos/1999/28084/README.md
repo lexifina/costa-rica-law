@@ -13,3 +13,4 @@ Procedim. Política Salarial Empleo y Clasificación Puestos del 2000Ministerios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-09-14 | la propia norma |
+| 2 | 1999-09-14 | SINALEVI (sin norma nombrada) |
