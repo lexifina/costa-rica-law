@@ -1,0 +1,1 @@
+Artículo IXX.—Las audiencias se solicitarán en la Secretaría de la Municipalidad, ya sea por teléfono o personal, en caso de que el número de ellas excediera para la sesión inmediata, la Secretaria levantará la lista respectiva y la dará a conocer al Concejo, como prioridad para la sesión siguiente de atención al público.

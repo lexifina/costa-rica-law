@@ -1,0 +1,1 @@
+Artículo V.—Cuando la agenda del día, se consigna: "Asuntos del señor Ejecutivo", se le dará el tiempo necesario para que informe al Concejo; por ser el órgano inherente a todos los asuntos de la Municipalidad , pudiéndosele dar hasta una hora en ese capítulo.

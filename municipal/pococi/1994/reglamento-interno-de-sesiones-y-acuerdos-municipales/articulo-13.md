@@ -1,0 +1,1 @@
+Artículo XIII.—Para que las sesiones municipales sean dinámicas, concretas, ajustadas al presente Reglamento, las sesiones administrativas tendrán una duración máxima de tres horas, y las de atención al público cinco horas.

@@ -1,0 +1,1 @@
+Artículo XVII.—En lo referente a la participación del Presidente Municipal en las sesiones, tendrá libre participación en cuanto al tenor del artículo N° 8 de este Reglamento, por el manejo de la sesión.

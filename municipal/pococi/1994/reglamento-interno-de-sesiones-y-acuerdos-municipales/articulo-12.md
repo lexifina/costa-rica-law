@@ -1,0 +1,1 @@
+Artículo XII.—Si en la discusión de cualquier asunto, se presentare una moción en pleno, ésta no será contabilizada a Regidor alguno, manteniendo el Regidor el derecho que le confiere el artículo No 8 de este Reglamento y excluyéndose del articulo N° 7 de este Reglamento.

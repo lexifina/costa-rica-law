@@ -1,0 +1,1 @@
+Artículo XXVII.—La mecánica a seguir en lo referente al artículo No 19 de personas o comités, una vez empadronados, dejarán dirección y motivo para que una Comisión Municipal les visite y proponga la solución. La audiencia se solicitará con quince días de antelación, mientras se realiza la audiencia.

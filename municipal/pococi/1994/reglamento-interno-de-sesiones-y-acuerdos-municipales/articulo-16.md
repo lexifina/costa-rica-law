@@ -1,0 +1,1 @@
+Artículo XVI.—Una vez iniciadas las sesiones municipales y vencidos los quince minutos de reglamento, los Regidores y Síndicos que se presenten posterior a la hora indicada, se tendrán como espectadores y no podrán participar en la misma, en su carácter de Regidores y Síndicos.

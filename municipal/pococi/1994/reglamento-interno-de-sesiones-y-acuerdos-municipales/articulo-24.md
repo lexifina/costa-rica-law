@@ -1,0 +1,1 @@
+Artículo XXIV.—Cuando por emergencia local, regional o nacional, se deba sesionar, la participación de los miembros del Concejo, así como integrantes de Comités de Emergencia y funcionarios de instituciones que participan en la misma, será abierta.

@@ -1,0 +1,1 @@
+Artículo XIV.—La sesión de instalación del Directorio Municipal, cada 1° de mayo, y para efectos de resaltar los acontecimientos de ese día y también para expresión de las fracciones, en las propuestas para Presidente y Vicepresidente, se tendrán tres minutos por fracción para la presentación del candidato respectivo a cada puesto.

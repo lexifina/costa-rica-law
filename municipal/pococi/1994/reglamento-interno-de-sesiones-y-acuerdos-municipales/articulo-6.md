@@ -1,0 +1,1 @@
+Artículo VI.—Una vez instalado el nuevo Concejo Municipal, para un periodo constitucional, gozará el Ejecutivo de una sesión ordinaria, a convenir con el Presidente, para informar al Concejo de todos los asuntos consignados a su cargo, inmediatamente posterior a la aprobación del acta.
