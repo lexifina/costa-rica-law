@@ -1,1 +1,0 @@
-Artículo 14.—El Funcionario o Servidor de esta Municipalidad que incumpla lo preceptuado en este Reglamento, será sometido a un proceso administrativo, de conformidad con las disposiciones legales aplicables, a fin de determinar sus responsabilidades y posibles sanciones.

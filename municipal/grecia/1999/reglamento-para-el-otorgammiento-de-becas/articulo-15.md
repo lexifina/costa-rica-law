@@ -1,3 +1,0 @@
-Artículo 15.—Para obtener y mantener la beca, además de las ya indicadas, son obligaciones de los becados las siguientes:
-a) Servir durante cuarenta horas por año, durante el periodo que sea becado, a la Municipalidad en actividades que el señor Alcalde determinará, y cuyo cumplimiento controlará la Comisión de Becas por los medios que entienda convenientes, y en todo caso dejará constancia en el libro de becados acerca del cumplimiento de este requisito por parte de los becados.
-b) Asistir a las convocatorias que le formule el Concejo Municipal o la Comisión de Becas para tratar cualquier asunto relacionado con su beca, las que le habrán de ser notificadas al menos con tres días de anticipación.
