@@ -1,0 +1,1 @@
+Artículo 2°-Queda prohibida la venta o suministro a menores de edad de productos inhalables que contengan las sustancias reguladas en este Decreto. Las violaciones a esta disposición estarán sujetas a las sanciones que dicten los Tribunales de Justicia con base en el ordenamiento jurídico vigente.

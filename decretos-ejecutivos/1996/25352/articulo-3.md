@@ -1,0 +1,1 @@
+Artículo 3°-Será obligatorio que los productos a los que se refiere este Decreto lleven impreso en sus etiquetas la siguiente leyenda: "PROHIBIDA SU VENTA A MENORES DE EDAD. SU INHALACION PUEDE PRODUCIR EFECTOS NOCIVOS PARA LA SALUO y CAUSAR HABITO Y DEPENDENCIA".

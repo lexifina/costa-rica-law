@@ -1,0 +1,1 @@
+Artículo 7°-El Decreto Ejecutivo 24099-S "Decreto de Registro y Control de Sustancias Tóxicas y Productos Tóxicos y Peligrosos", publicado en "La Gaceta" N° 57 de 21 de marzo de 1995, se aplicará en forma supletoria al presente Decreto.

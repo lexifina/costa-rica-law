@@ -1,0 +1,1 @@
+Artículo 5°-En los establecimientos industriales en los que se utilicen las sustancias reguladas por este Decreto, deberán establecerse condiciones de manipulación y uso que garanticen el cumplimiento de las normas vigentes en materia de salud y seguridad ocupacional.

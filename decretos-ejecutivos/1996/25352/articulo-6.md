@@ -1,0 +1,1 @@
+Artículo 6°-El Ministerio de Salud, a través del Departamento de Registro y Control de Sustancias Tóxicas y Medicina del Trabajo, será el ente competente para velar por la aplicación del presente Decreto.
