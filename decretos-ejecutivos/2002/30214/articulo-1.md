@@ -9,7 +9,7 @@ Considerando:
 4º—Que la AP de conformidad con los artículos 1°, 11, 21, 23, 24 y 25 de la ley Nº 8131, está facultada para formular las directrices generales y específicas de política presupuestaria del Sector Público.
 5º—Que la AP formuló las siguientes directrices y demás regulaciones en acuerdo número 6356, tomado en sesión Nº 03-02, celebrada el 28 de febrero del 2002.
 6º—Que el Consejo de Gobierno conoció las directrices y regulaciones en el artículo 3 de la Sesión Nº 183, celebrada el 5 de marzo del 2002. Por tanto,
-D ECRETAN :
+DECRETAN:
 DIRECTRICES GENERALES DE POLÍTICA PRESUPUESTARIA DEL 2003 PARA LOS MINISTERIOS, DEMÁS ÓRGANOS
 SEGÚN CORRESPONDA Y ENTIDADES PUBLICAS CUBIERTAS POR EL ÁMBITO DE LA AUTORIDADPRESUPUESTARIA
 CAPÍTULO I
@@ -68,7 +68,8 @@ Instituto Costarricense de Investigaciones y Enseñanza en Nutrición y Salud
 (incluye Asignaciones Fam.) 916,9
 Instituto Cost. del Deporte y la Recreación 2.660,5
 (Así modificado por Decreto Ejecutivo N° 31047 de 17 de febrero de 2003)
-Instituto Costarricense de Acued. y Alcantarillado 28.129,2
+Instituto Costarricense de Acueduc. y Alcantarillado 32.129,2
+(Asi modificado por Decreto Ejecutivo N° 31142 de 21 de abril de 2003)
 Instituto Costarricense de Ferrocarriles 1.293,7
 Instituto Costarricense de Pesca 833,4
 Instituto Costarricense de Puertos del Pacífico 4.874,1
@@ -109,7 +110,8 @@ Oficina Nacional de Semillas 136,0
 Patronato de Construcciones, Instalaciones y Adquisición de Bienes 2.685.5
 (Así adicionado por el artículo 1° del Decreto Ejecutivo N° 30824 de 22 de octubre de 2002)
 Patronato Nacional de Ciegos 27,0
-Patronato Nacional de la Infancia 6.115,5
+Patronato Nacional de la Infancia 7.204,67
+(Así mofificado por artículo 1° del Decreto Ejecutivo N° 31136 e 21 de abril de 2003)
 Patronato Nacional de Rehabilitación 153,3
 Programa Ganadero de Salud Animal PROGASA 7,1
 (Así modificado por el artículo 1° del Decreto Ejecutivo N° 31128 de 3 de abril de 2003)

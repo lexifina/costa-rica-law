@@ -38,3 +38,4 @@ Directrices Generales de Política Presupuestaria del 2003 para los ministerios,
 | 23 | 2003-04-07 | Decreto Ejecutivo 31138 (2003-04-07) |
 | 24 | 2003-04-21 | Decreto Ejecutivo 31134 (2003-04-21) |
 | 25 | 2003-04-21 | Decreto Ejecutivo 31136 (2003-04-21) |
+| 26 | 2003-04-21 | Decreto Ejecutivo 31142 (2003-04-21) |
