@@ -14,3 +14,4 @@ Procedimiento para la calificación de la condición de refugiado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-09-29 | la propia norma |
+| 2 | 1985-10-10 | Decreto Ejecutivo 16633 (1985-10-10) |
