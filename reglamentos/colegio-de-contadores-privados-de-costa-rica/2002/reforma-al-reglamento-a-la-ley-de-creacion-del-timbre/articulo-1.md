@@ -1,0 +1,3 @@
+Se aprueba presentación ante Asamblea General a realizarse el día 10 de marzo 2002. Sesión Nº 2889-2002 del 12 de febrero 2002
+Modificación artículo Nº 10 del Reglamento del timbre.
+Artículo 10.—Los fondos que se recauden por concepto de venta del Timbre del Colegio de Contadores Privados de Costa Rica se destinarán de la siguiente forma: a) 30% para el financiamiento de los gastos de la emisión del mismo. b) 40% CECAP. c) 20% para subvencionar la edición de la Revista "El Contador al día". d) 10% para la Comisión de Educación con el propósito de subvencionar seminarios. e) Sobrante del costo al cierre del periodo fiscal se distribuirá en la misma proporción para los puntos b,c,d.
