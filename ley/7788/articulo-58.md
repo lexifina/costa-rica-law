@@ -1,0 +1,23 @@
+ARTÍCULO 58.- Áreas silvestres protegidas
+Las áreas silvestres protegidas son zonas geográficas delimitadas,
+constituidas por terrenos, humedales y porciones de mar. Han sido
+declaradas como tales por representar significado especial por sus
+ecosistemas, la existencia de especies amenazadas, la repercusión en la
+reproducción y otras necesidades y por su significado histórico y
+cultural. Estas áreas estarán dedicadas a conservación y proteger la
+biodiversidad, el suelo, el recurso hídrico, los recursos culturales y los
+servicios de los ecosistemas en general.
+Los objetivos, la clasificación, los requisitos y mecanismos para
+establecer o reducir estas áreas se determinan en la Ley Orgánica del
+Ambiente, No. 7554, de 4 de octubre de 1995. Las prohibiciones que afectan
+a las personas físicas y jurídicas dentro de los parques nacionales y las
+reservas biológicas están determinadas, en la Ley de la Creación del
+Servicio de Parques Nacionales, No. 6084, de 24 de agosto de 1977.
+Durante el proceso de cumplimiento de requisitos para establecer
+áreas silvestres protegidas estatales, los informes técnicos respectivos
+deberán incluir las recomendaciones y justificaciones pertinentes para
+determinar la categoría de manejo más apropiada a que el área propuesta
+debe someterse. En todo caso, el establecimiento de áreas y categorías
+tomará muy en cuenta los derechos previamente adquiridos por las
+poblaciones indígenas o campesinas y otras personas físicas o jurídicas,
+subyacentes o adyacentes a ella.

@@ -1,0 +1,26 @@
+ARTÍCULO 28.- Áreas de Conservación
+El Sistema estará constituido por unidades territoriales denominadas
+Áreas de Conservación bajo la supervisión general del Ministerio del
+Ambiente y Energía, por medio del Consejo Nacional de Áreas de
+Conservación, con competencia en todo el territorio nacional, según se
+trate de áreas silvestres protegidas, áreas con alto grado de fragilidad
+o de áreas privadas de explotación económica.
+Cada área de conservación es una unidad territorial del país,
+delimitada administrativamente, regida por una misma estrategia de
+desarrollo y administración, debidamente coordinada con el resto del
+sector público. En cada uno se interrelacionan actividades tanto privadas
+como estatales en materia de conservación sin menoscabo de las áreas
+protegidas. Las Áreas de Conservación se encargarán de aplicar la
+legislación vigente en materia de recursos naturales, dentro de su
+demarcación geográfica. Deberán ejecutar las políticas, las estrategias y
+los programas aprobados por el Consejo Nacional de Áreas de Conservación,
+en materia de áreas protegidas; asimismo, tendrá a su cargo la aplicación
+de otras leyes que rigen su materia, tales como la Ley de conservación de
+la vida silvestre, No. 7317, de 30 de octubre de 1992, y la Ley Forestal,
+No. 7575, de 13 de febrero de 1996, Ley Orgánica, No. 7554, de 4 de
+octubre de 1995, y la Ley de Creación del Servicio de Parques Nacionales,
+No. 6084, de 24 de agosto de 1977.
+Basado en las recomendaciones del Consejo, el Ministerio del Ambiente
+y Energía definirá la división territorial que técnicamente sea más
+aconsejable para las Áreas de Conservación del país, así como sus
+modificaciones.

@@ -1,0 +1,12 @@
+ARTÍCULO 61.- Protección de las áreas silvestres protegidas
+El Estado debe poner atención prioritaria a la protección y
+consolidación de las áreas silvestres protegidas estatales que se
+encuentran en las Áreas de Conservación. Para estos efectos, el Ministerio
+de Ambiente y Energía en coordinación con el Ministerio de Hacienda,
+deberá incluir en los presupuestos de la República, las transferencias
+respectivas al fideicomiso o los mecanismos financieros de áreas
+protegidas para asegurar, al menos, el personal y los recursos necesarios
+que determine el Sistema Nacional de Áreas de Conservación para la
+operación e integridad de las áreas silvestres protegidas de propiedad
+estatal y la protección permanente de los parques nacionales, las reservas
+biológicas y otras áreas silvestres protegidas propiedad del Estado.
