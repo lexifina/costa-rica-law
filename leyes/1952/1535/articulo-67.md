@@ -1,1 +1,3 @@
-Artículo 67.- El tiempo de validez de una cédula es de diez años a partir de su emisión.
+Artículo 67.-El término de validez de la cédula de identidad es de diez años a partir de la fecha de su emisión; transcurrido ese término se considerará vencida y caduca para todo efecto legal y la inscripción del respectivo ciudadano como elector será cancelada de oficio.
+Sin embargo, en los casos en que los diez años referidos se cumplieren dentro del término de seis meses anteriores a la fecha de una elección, la cédula de identidad y la inscripción del ciudadano respectivo como elector, permanecerán válidas en todos sus efectos hasta el día de la elección inclusive.
+(Así reformado por el artículo 1° de la ley N° 3183 del 27 de agosto de 1963)
