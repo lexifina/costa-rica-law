@@ -1,0 +1,1 @@
+ARTICULO 27.-Cuando el reo quedare conforme con la sentencia apelable fuere absuelto del juicio de toda responsabilidad, es un deber de los Alcaldes constitucionales, bajo pena de prevaricato remitir dentro de tercero día al Juez de 1° instancia dicho el expediente original, para que este reviéndolo dentro de ocho días de recibido, confirme, reforme, revoque la sentencia.

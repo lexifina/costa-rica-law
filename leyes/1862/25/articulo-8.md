@@ -1,0 +1,1 @@
+ARTÍCULO 8°. -Más si el interés de la de la demanda excede de cien pesos, y la sentencia pronunciada por el Juez de 1° instancia en apelación no es conforme de toda conformidad con la del Alcalde que conoció en la primera, tiene lugar el recurso de súplica para ante una de las Salas de la Corte Suprema de Justicia.

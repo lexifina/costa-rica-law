@@ -1,0 +1,1 @@
+ARTÍCULO 36.-Es obligación de las partes en materia civil, poner el papel necesario para la instrucción de los juicios, lo mismo que en materia criminal cuando haya acusador; más en las causas de oficio, los mismos Alcaldes suplirán el papel.

@@ -1,0 +1,1 @@
+ARTÍCULO 35.-En 2° y 3° instancia, se cobrar en materia civil verbal, la mitad de los derechos señalados por el arancel general: iguales derechos se cobrarán en estas instancias en materia criminal verbal, siempre que hubiese lugar ello con arreglo al artículo 1,011, parte 3 del Código general.

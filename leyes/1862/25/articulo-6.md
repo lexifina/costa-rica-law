@@ -1,0 +1,1 @@
+ARTÍCULO 6°. -No apelando ninguna de las partes no compareciendo el apelante ante el Juez de 1° instancia dentro del término del emplazamiento, quedar ejecutoriada la sentencia. En ambos casos se dar al victorioso la ejecutoria para guarda de sus derechos.

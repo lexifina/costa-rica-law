@@ -1,0 +1,1 @@
+ARTÍCULO 17.-Los poderes para representar en juicios verbales, hasta la cantidad dicha de doscientos cincuenta pesos, bastar que sean simples, escritos en papel común y firmados por el otorgante, si supiere, por otro su ruego y dos testigos.

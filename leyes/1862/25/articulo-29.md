@@ -1,0 +1,1 @@
+ARTÍCULO 29.-Tanto en 1° como en 2° y 3°instancia tienen las partes, sus defensores abogados el derecho de escribir por si mismos en el expediente, los interrogatorios y demás pruebas defensas que convengan su derecho.

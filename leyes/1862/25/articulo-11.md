@@ -1,0 +1,1 @@
+ARTÍCULO 11.-Recibido que sea el expediente, el Secretario lo presentar al Presidente de la Sala que corresponda, quien pondrá al pie‚ la siguiente razón: Introducido la oficina tal hora de tal fecha.

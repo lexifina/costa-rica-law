@@ -1,0 +1,1 @@
+ARTICULO 30.-Así en 2° como en 3° instancia, en su caso, se continuar la sustanciación del juicio criminal verbal en el mismo expediente sin dejar desglose; y ejecutoriada que sea la sentencia, se devolver todo lo obrado al Alcalde que conoció en 1° instancia, dejando £nicamente testimonio concertado de la sentencia en un libro formado de papel común que se llevar al efecto.
