@@ -1,0 +1,1 @@
+Artículo 3º—La Secretaría Técnica de la Autoridad Presupuestaria realizará los ajustes necesarios en los límites de gasto corriente efectivo y presupuestario por efecto de la exclusión indicada en el punto anterior.
