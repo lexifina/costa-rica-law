@@ -42,7 +42,8 @@ Consejo de Seguridad Vial 5.983,0
 Consejo Nacional de Concesiones 674,0
 Consejo Nacional de Investigaciones Científicas y T. 344,1
 Consejo Nacional de Producción 8.607,6
-Consejo Nacional de Rehabilitación 666,0
+Consejo Nacional de Rehabilitación 782,3
+(Así modificado por Decreto Ejecutivo N° 31162 de 5 de mayo de 2003)
 Consejo Nacional Persona Adulto Mayor 1.213,0
 Consejo Técnico de Asistencia Médico Social CTAMS 1.116.3
 Consejo Transporte Público 628,5
