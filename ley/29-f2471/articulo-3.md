@@ -1,0 +1,2 @@
+III.
+Riatti se obliga á pagar á los fondos municipales de la comarca de Limón, por todo el tiempo de este contrato, empezando cinco años después de a- probado, la suma de mil pesos anuales; pago que hará por semestres vencidos: asimismo se obliga á pagar, además del interés legal de demora y por vía de multa, un diez por ciento sobre el valor de cada semestre que, pasados treinta días desde su vencimiento, no hubiese satisfecho.
