@@ -1,0 +1,1 @@
+Artículo 17.—Para el buen funcionamiento del Archivo Central, la Municipalidad de Montes de Oca, reforzará anualmente la Partida del Presupuesto General correspondiente al Departamento de Secretaría Municipal.

@@ -1,0 +1,1 @@
+Artículo 13.—La oficina Ejecutiva, el Departamento de Secretaría Municipal y la Sección de Archivo Central, deberán promover exposiciones, conferencias y seminarios con el fin de acercar el Archivo a los ciudadanos y dar a conocer muy especialmente a estudiantes, las raíces y el pasado de su ciudad.

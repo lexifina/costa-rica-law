@@ -1,0 +1,1 @@
+Artículo 11.—Los investigadores del Archivo, estarán obligados a entregar una copia del trabajo realizado, cuando este se considere a juicio del archivista un aporte significativo a cualquier campo de interés público; y ésta formará parte del patrimonio del Archivo Central de la Municipalidad de Montes de Oca.
