@@ -1,0 +1,1 @@
+Artículo 6º—El Alcalde Municipal atenderá y tramitará los asuntos administrativos relativos al uso de los vehículos antes y después de cada servicio y todos los datos necesarios para el adecuado control de los mismos, incluyendo el respectivo registro de repuestos, accesorios y herramientas.
