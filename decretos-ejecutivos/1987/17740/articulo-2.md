@@ -1,0 +1,1 @@
+Artículo 2°.- Los recintos y almacenes de depósito fiscal que han venido operando bajo el control y vigilancia de la Aduana del Pacífico, funcionarán en lo sucesivo bajo la jurisdicción de la denominada "Aduana Nueva", creada por Decreto Ejecutivo N° 17379-H de 13 de enero de 1987.
