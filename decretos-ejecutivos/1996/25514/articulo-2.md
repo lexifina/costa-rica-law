@@ -1,7 +1,7 @@
-Artículo 2°—Podrán ingresar al Régimen las personas físicas que se dediquen a una de las actividades enumeradas en el artículo anterior o que combinen varias de ellas. No procede el ingreso al Régimen, cuando la persona solicitante desarrolle simultáneamente otras actividades no contempladas en él.
+Artículo 2°—Podrán ingresar al Régimen los contribuyentes que se dediquen a una de las actividades enumeradas en el artículo anterior o que combinen varias de ellas. No procede el ingreso al Régimen, cuando el contribuyente solicitante desarrolle simultáneamente otras actividades no contempladas en él.
 Se entenderá por:
 a) Bares, cantinas, tabernas o establecimientos similares: aquellos dedicados exclusivamente al servicio de expendio de bebidas alcohólicas para consumo dentro de los mismos; no podrán ingresar al régimen establecimientos como los indicados, cuando estén combinados con servicios de hoteles, centros sociales y similares.
-b) Comerciantes minoristas: Personas físicas dedicadas a vender a los consumidores finales, mercancías u otros artículos de diferente naturaleza, ya sea en locales especialmente acondicionados para esa actividad o mediante cualquier mecanismo informal.
+b) Comerciantes minoristas: Los contribuyentes dedicados a vender a los consumidores finales, mercancías u otros artículos de diferente naturaleza, ya sea en locales especialmente acondicionados para esa actividad o mediante cualquier mecanismo informal.
 c) Estudios fotográficos: Servicio de "toma" y revelado de fotografías, así como la ampliación, reducción, retoque y arreglo de fotos.
 d) Fabricación artesanal de calzado: Manufactura artesanal, de cualquier tipo de calzado.
 e) Fabricación de muebles y sus accesorios: Manufactura, reforma y reparación de muebles y sus accesorios en cualquier tipo de material.
@@ -11,4 +11,4 @@ h) Floristerías: Elaboración de arreglos, ofrendas florales y similares, a par
 i) Panaderías: Elaboración de pan, pastelería y repostería, de cualquier tipo.
 j) Restaurantes, cafés, sodas y otros establecimientos que vendan comidas, bebidas o ambos: Servicio de expendio de comidas, bebidas o ambos.
 (Así reformado por el artículo 1° del Decreto Ejecutivo N° 26199 del 20 de junio de 1997)
-(La Sala Constitucional mediante resolución N° 4459-02 del 15 de mayo del 2002, anuló este artículo por los efectos producidos durante su vigencia, en cuanto excluyen a las personas jurídicas de la posibilidad de acceder al Régimen de Tributación Simplificada, aún estando estas dentro de los supuestos de ley. Lo anterior a efecto de que la referida anulación se aplique a los casos que estuvieren pendientes, iniciados con la aplicación de ésta norma, en aquello que pueda favorecer a los afectados.)
+(Reformado parcialmente por el artículo 9° del Decreto Ejecutivo N° 29643, del 10 de julio de 2001)
