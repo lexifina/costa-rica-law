@@ -1,14 +1,18 @@
 Artículo 32.- Ningún médico podrá prestarle servicios remunerados al
-Estado en más de dos cargos. La jornada ordinaria de trabajo
-correspondiente a cada médico, podrá completarse en una o en dos
-instituciones en que labore, con la remuneración que corresponda al salario
-mínimo establecido por el Consejo Nacional de Salarios. El término mínimo
-de labor, en cada institución, será de dos horas.
-Esta limitación no rige para las actividades médicas de índole
-docente, siempre que con ello no se sobrepase la jornada ordinaria de
-trabajo, ni para los médicos especialistas, en escaso número en su
-especialidad, que por esta razón deban prestar sus servicios a varias
-instituciones hospitalarias, todo a juicio del Colegio de Médicos y
-Cirujanos y del Ministerio de Salubridad Pública.
-Tampoco tendrá aplicación la presente norma cuando en una localidad
-solamente haya un médico disponible, mientras subsista esa circunstancia.
+Estado en más de dos cargos en instituciones autónomas, estatales o
+semiautónomas. La jornada ordinaria de trabajo en cada puesto será de ocho
+horas y las mínimas de cuatro horas. La remuneración por los servicios
+médicos en dichas instituciones será la que establezca el Estatuto de
+Servicios Médicos, siempre y cuando no exista, en el desempeño de los
+cargos, superposición de horarios. Esa remuneración será fijada para cada
+categría por la Dirección General de Servicio Civil, de acuerdo con el
+Estatuto de Servicio Civil, y la Ley de Salarios de la Administración
+Pública, tomando en cuenta en cada oportunidad el costo de la vida.
+La limitación de servir en más de dos cargos no rige para las
+actividades médicas de índole docente. Salvo lo dispuestos en este
+artículo en cuanto a superposición de horarios, sus disposiciones no se
+aplicarán en casos de inopia de médicos.
+( Así reformado por el artículo 4º de la ley No. 4750 de 26 de abril de
+1971).
+NOTA: Derogado en lo referente a fijación de remuneraciones por servicios
+médicos, por el artículo 24 de la Ley Nº 6836 de 22 de diciembre de 1982.

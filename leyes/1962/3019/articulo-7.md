@@ -24,12 +24,17 @@ país.
 Los requisitos señalados en los apartes c) y d) se comprobarán
 mediante información ad-perpétuam con intervención de la Procuraduría
 General de la República y del Fiscal de Colegio.
-No será aplicable lo dispuesto en el inciso d) de este artículo a los
-médicos especialistas extranjeros que sean contratados por Instituciones
-del Estado para prestar sus servicios en sus especialidades. Estos
-médicos sólo podrán ser contratados cuando no hubiere especialistas
-costarricenses dispuestos a prestar sus servicios en las condiciones
-requeridas por esas Instituciones, y no podrán ejercer la profesión fuera
-de su contrato. En todo caso debe hacerse previamente la revisión de
-atestados y capacitación por el Colegio de Médicos y Cirujanos o por la
-Facultad de Medicina de la Universidad de Costa Rica.
+No será aplicable lo dispuesto en los incisos d), e) y g) de este
+artículo a los médicos extranjeros que sean contratados por instituciones
+del Estado para prestar sus servicios en el país, quienes no podrán ejercer
+la profesión fuera de los contratos, pero una vez terminado el contrato con
+esas instituciones, para obtener su inscripción en el Colegio deberán los
+interesados llenar los requisitos de este artículo.
+Los médicos extranjeros sólo podrán ser contratados cuando no hubiere
+médicos costarricenses dispuestos a prestar sus servicios en las
+condiciones requeridas por esas instituciones. En todo caso, debe hacerse
+previamente la revisión de atestados y capacitación por el Colegio de
+Médicos y Cirujanos o por la Facultad de Medicina de la Universidad de
+Costa Rica.
+( Así reformado por el artículo 3º de la ley No. 4750 de 26 de abril de
+1971 ).

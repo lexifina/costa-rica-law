@@ -1,11 +1,3 @@
-Artículo 13.- La Junta de Gobierno se compondrá de siete miembros,
-que se designarán para el desempeño de los siguientes cargos: Presidente,
-Vicepresidente, Primer Vocal, Segundo Vocal, Fiscal, Tesorero y
-Secretario. Sus miembros durarán en funciones dos años; se renovarán por
-mitades y no podrán ser reelectos para el período inmediato siguiente. Su
-elección se hará de acuerdo con el reglamento respectivo.
-Para ser miembro de la Junta de Gobierno, se requiere estar inscrito
-en el Colegio y ser costarricense de origen o naturalizado. Para ocupar
-el cargo de Presidente, además de ser mayor de treinta años, tener diez
-años cumplidos de haber recibido el diploma de médico y cinco, por lo
-menos, de haberse inscrito en el Colegio.
+Artículo 13.- La Junta de Gobierno se compondrá de siete miembros, que se designarán para el desempeño de los siguientes cargos: Presidente, Vicepresidente, Primer Vocal, Segundo Vocal, Fiscal, Tesorero y Secretario.
+Sus miembros durarán en funciones dos años; se renovarán por mitades y no podrán ser reelectos para el período inmediato siguiente. Su elección se hará de acuerdo con el reglamento respectivo.
+Para ser miembro de la Junta de Gobierno, se requiere estar inscrito en el Colegio y ser costarricense de origen o naturalizado. Para ocupar el cargo de Presidente, además de ser mayor de treinta años, tener diez años cumplidos de haber recibido el diploma de médico y cinco, por lo menos, de haberse inscrito en el Colegio.
