@@ -1,1 +1,3 @@
-Artículo 42.—Urbanizaciones en la Gran Área Metropolitana (GAM): Las urbanizaciones que se realicen en terrenos comprendidos en la Gran Área Metropolitana y que se planifiquen con tanques sépticos, deberán contar con lotes con una cabida mínima de 200 metros cuadrados.
+Artículo 42.—Urbanizaciones en la Gran Área Metropolitana (GAM): Las urbanizaciones que se realicen en terrenos comprendidos en la Gran Área Metropolitana y que se planifiquen con tanques sépticos, deberán contar con lotes con una cabida mínima de 200 m cuadrados.
+Sin embargo, sujeto al resultado de las pruebas de infiltración respectivas, la medida de los lotes podrá reducirse hasta 120 m², siempre que reúnan los demás requisitos contemplados en las leyes y reglamentos vigentes.
+(Así reformado mediante acuerdo de Junta Directiva N° 203-2004, publicado en la Gaceta N° 169 del 30 de agosto del 2004)

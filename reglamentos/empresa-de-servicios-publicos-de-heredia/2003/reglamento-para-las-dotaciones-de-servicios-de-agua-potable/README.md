@@ -14,3 +14,4 @@ Reglamento para las Dotaciones de Servicios de Agua Potable, Alcantarillado Sani
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-01 | la propia norma |
+| 2 | 2004-08-17 | Reglamento 203 (2004-08-17) |
