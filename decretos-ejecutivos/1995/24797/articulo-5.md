@@ -1,2 +1,2 @@
-Artículo 5°—Rige a partir del 1° de febrero de 1996.
-Dado en la Presidencia de la República.—San José, a los seis días del mes de noviembre de mil novecientos noventa y cinco.
+Articulo 5°—Cualquier incumplimiento de las especificaciones en materia de tolerancia que no sea el indicado, únicamente implicará la no clasificación en la categoría establecida y de ninguna manera se interpretara como un motivo para establecer restricción alguna a la comercialización o internamiento al país del producto.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 2° del Decreto Ejecutivo N° 25507 de 18 de setiembre de 1996, publicado en La Gaceta N° 194 de 10 de octubre de 1996.)

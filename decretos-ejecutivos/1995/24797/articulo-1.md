@@ -5,13 +5,14 @@ En el uso de las potestades que les confiere el artículo 140, de la Constituci�
 DECRETAN
 Artículo 1°—Aprobar la siguiente norma:
 NCR 69:1995. Cebolla seca.
-1.—Objetivo y ámbito de aplicación-
-Esta norma tiene por objeto definir las características de calidad de Ha cebolla seca para consumo local, después de su acondicionamiento y empacado, para ser suministradas al consumidor en estado fresco, excluyéndose las destinadas a la transformación industrial.
-2.—Definiciones
-2.1—cebolla seca: es el bulbo de las variedades (cultivares) cultivadas de Allium cepa, convenientemente secado, caracterizado por presentar las cascaras externas secas y quebradizas (que le proporcionan protección) y el follaje seco, sí lo presenta.
-2.2—brotes: crecimientos de la yema en los bulbos posteriores al secado.
-2.3—bulbo curado: es aquel bulbo seco que se ha expuesto a una temperatura elevada durante un corto tiempo, con el fin de ayudar a la formación del color de la cubierta externa.
-2.4—defecto acumulado: suma de todos los defectos de calidad.
+1 Objetivo y ámbito de aplicación
+Este reglamento técnico tiene por objeto definir las características de la cebolla seca para consumo local, tanto nacional como importada, después de su acondicionamiento y empacado para ser suministradas al consumidor.
+2 Definiciones
+2.1 cebolla seca: es el bulbo de las variedades (cultivares), cultivadas de Allium cepa (inciso arancelario 0703.10.00 del Sistema Arancelario Centroamericano) convenientemente secado, caracterizado por presentar las cascaras externas secas y quebradizas (que le proporcionan protección) y el follaje seco, si lo presenta.
+2.2 brotes: crecimientos de la yema en los bulbos posteriores al secado.
+2.3 bulbo curado: es aquel bulbo seco que se ha expuesto a una temperatura elevada durante un corto tiempo, con el fin de ayudar a la formación del color de la cubierta externa.
+2.4 defecto acumulado: suma de todos los defectos de calidad.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 25507 de 18 de setiembre de 1996, publicado en La Gaceta N° 194 de 10 de octubre de 1996.)
 3.—Disposiciones relativas a la calidad
 3.1—Características mínimas. En todas las categorías, sin perjuicio de las disposiciones especiales para cada categoría y las tolerancias admitidas, los bulbos deben ser
 - consistentes;

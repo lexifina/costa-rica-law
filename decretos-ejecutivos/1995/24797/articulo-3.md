@@ -1,1 +1,2 @@
-Artículo 3°—Serán sancionados de acuerdo con las leyes penales quienes incumplan con lo dispuesto en la presente norma.
+Articulo 3°—En el caso de la podredumbre no se permitirá el internamiento al país o la comercialización en el mercado local de cebolla seca en estado de pudrición o que presente indicios de deterioro biológico o fisiológico en ese sentido. Las infracciones a los límites contenidos en los numerales 5.1.1 (daño por insectos) y 5.1.2 (daño por hongo) se admitirán en la medida en que no contravengan lo dispuesto en materia de pudrición.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 2° del Decreto Ejecutivo N° 25507 de 18 de setiembre de 1996, publicado en La Gaceta N° 194 de 10 de octubre de 1996.)

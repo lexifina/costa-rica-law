@@ -1,0 +1,2 @@
+Artículo 6°—Serán sancionados con las leyes penales y especiales sobre la materia quienes incumplan con lo dispuesto en el presente Reglamento. Se faculta a los Ministerios de Salud y de Agricultura y Ganadería, así como a! Consejo Nacional de Producción cada uno en las áreas de su competencia para que ejecuten las acciones necesarias que garanticen el cumplimiento de lo dispuesto en el presente Reglamento.
+(Así ADICIONADO por el artículo 3° del Decreto Ejecutivo N° 25507 de 18 de setiembre de 1996, publicado en La Gaceta N° 194 de 10 de octubre de 1996.)
