@@ -1,0 +1,1 @@
+Artículo 45.-En las instituciones privadas de enseñanza las lecciones de Estudios Sociales de Costa Rica y de Educación Cívica serán impartidas en español por profesores costarricenses y las de Español serán impartidas por profesores cuya lengua sea tal idioma.

@@ -1,0 +1,1 @@
+Artículo 14.-Para impartir la Educación Especial, los establecimientos que lo soliciten deberán contar con las instalaciones, equipos, instrumentos y personal especializados, y acatar las demás básicas que señala el Consejo Superior de Educación respecto al uso de métodos, técnicas pedagógicas y materiales apropiados.

@@ -1,0 +1,1 @@
+Artículo 47.-El Ministerio de Educación Pública revocará en cualquier momento la validez o reconocimiento de estudios a favor de un alumno si comprueba la falsedad e inexactitud en los documentos en que se basó ese reconocimiento comunicándolo así al Consejo Superior de Educación para los efectos del caso.

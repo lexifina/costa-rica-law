@@ -1,0 +1,1 @@
+Artículo 44.-La institución se comprometerá a pagar a los miembros del personal docente y administrativo-docente. por 10 menos los sueldos que corresponden a su grupo y categoría, así como los demás beneficios adicionales que dispongan las leyes para los servidores de las instituciones oficiales.

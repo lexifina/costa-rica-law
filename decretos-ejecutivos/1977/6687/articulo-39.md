@@ -1,0 +1,1 @@
+Artículo 39.-Sólo a las instituciones aquí reguladas les será permitido emplear, en su propaganda, denominación y cualquiera clase de documentos, la expresión “Instituciones de Enseñanza Superior Parauniversitaria".

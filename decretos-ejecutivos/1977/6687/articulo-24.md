@@ -1,0 +1,1 @@
+Artículo 24. -Los establecimientos de las clases "A" y "B" remitirán al concluir el primer mes lectivo una nómina de sus alumnos regulares y otra al finalizar el curso con el respectivo resultado de su promoción.

@@ -1,0 +1,1 @@
+Artículo 27 . -Todas las instituciones a que se refiere este reglamento deberán estar al día con las normas que el Consejo Superior de Educación y el Ministerio de Educación Pública llegaren a establecer, que se notificarán a los interesados por Correo certificado. dentro de los ocho días siguientes a su promulgación.

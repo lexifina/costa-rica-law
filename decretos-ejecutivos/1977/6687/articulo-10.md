@@ -1,0 +1,1 @@
+Artículo 10. -Los establecimientos que se destinen a la Educación Preescolar, deberán desarrollar planes y programas de una duración no menor de un año, para niños de edad que oscile entre los cinco y los seis años.

@@ -1,0 +1,1 @@
+Artículo 8°-Los alumnos de los centros docentes privados tendrán derecho a solicitar y obtener del Director o Secretario respectivo en forma gratuita la certificación de los estudios realizados y de las asignaturas aprobadas, con las calificaciones correspondientes, siempre que estén a derecho con las disposiciones del Reglamento Interno de la Institución.
