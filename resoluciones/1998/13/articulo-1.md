@@ -10,8 +10,9 @@ Considerando:
 RESUELVE:
 Artículo 1°—Subdirección General
 1. La Subdirección General contará con las siguientes gerencias, a cargo de cada una de las cuales se nombrará un gerente:
-a) Planeación y Control de Gestión.
-b) Recursos Humanos y Capacitación.
+a) Recursos Humanos y Capacitación.
+b) Administración y Presupuesto.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1 de la Resolución No. 5 del 4 de enero del 2003, publicada en La Gaceta No. 45 de 5 de marzo del 2003)
 c) Administración y Presupuestos.
 2. Corresponderán a la Gerencia de Planeación y Control de Gestión las funciones de:
 a) Desarrollar, asesorar y hacer propuestas sobre los planes generales y operativos y el sistema de control de gestión de la Dirección General de Tributación.
