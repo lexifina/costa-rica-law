@@ -1,0 +1,3 @@
+CAPÍTULO II
+Disposiciones generales
+Artículo 2º—Es potestad de la Municipalidad, de acuerdo con lo dispuesto en la Ley General de Salud en sus artículos 278, 280, 281 y el Código Municipal en el artículo 74, ejecutar la recolección de los desechos sólidos cantonales, previa separación en la fuente, cobrar las tasas respectivas, y reglamentar todo lo referente a la prestación de este servicio. Es obligación de los munícipes del cantón que generen desechos sólidos y de aquellos usuarios del servicio de la recolección de éstos, separar los desechos sólidos en sus componentes, según lo dispuesto por el artículo 278 de la Ley general de Salud y la normativa que se expone en lo sucesivo.

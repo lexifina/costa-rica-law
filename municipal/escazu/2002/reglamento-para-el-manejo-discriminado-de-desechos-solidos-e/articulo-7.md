@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Manejo discriminado de desechos sólidos en la fuente
+Artículo 7º—En las fuentes de generación de desechos sólidos, la separación y el almacenamiento primario se realizará en al menos los siguientes grupos: desechos biodegradables cotidianos como basura , papel, cartón y sus derivados, desechos aprovechables no biodegradables como vidrio envases plásticos y latas de aluminio y desechos no aprovechables y desechos no cotidianos como desechos de jardín. La Municipalidad, mediante acuerdo del Concejo Municipal, incentivará mediante reconocimientos públicos y reducción en la tasa de recolección de basura, a aquellos generadores de desechos sólidos que realicen la separación completa de los diferentes desechos sólidos aprovechables en la fuente primaria.

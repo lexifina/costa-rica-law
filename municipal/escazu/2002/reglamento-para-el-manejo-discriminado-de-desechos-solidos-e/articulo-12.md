@@ -1,0 +1,1 @@
+Artículo 12.—Las cajas de cartón serán entregadas desarmadas y amarradas en dimensiones que no excedan un metro de longitud de lado. El cartón así embalado, deberá ser entregado por separado del resto de los desechos sólidos aprovechables. No se aceptará cartón que se entregue contaminado con sustancias extrañas a su composición.

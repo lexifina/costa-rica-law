@@ -1,0 +1,1 @@
+Artículo 69.—La persona responsable de la gestión operativa para el manejo discriminado de los desechos sólidos será el Alcalde Municipal, quien podrá delegar esta función en un miembro de la administración municipal. Este último deberá formar parte de la Comisión de Apoyo y Vigilancia nombrada para tal efecto por el Concejo Municipal.
