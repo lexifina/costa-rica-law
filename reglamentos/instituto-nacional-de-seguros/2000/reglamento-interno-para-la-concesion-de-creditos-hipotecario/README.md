@@ -17,3 +17,4 @@ Reglamento Interno para la Concesión de Créditos Hipotecarios del Instituto Na
 | 2 | 2001-04-02 | Reglamento 8439 (2001-04-02) |
 | 3 | 2001-10-29 | Reglamento 8491 (2001-10-29) |
 | 4 | 2001-12-10 | Reglamento 8503 (2001-12-10) |
+| 5 | 2002-12-09 | Reglamento 8582 (2002-12-09) |
