@@ -1,2 +1,0 @@
-Ejecución de órdenes contrarias a la seguridad del Estado
-Artículo 424.-El costarricense que ejecutaré en el país cualesquiera órdenes o disposiciones de un Gobierno extranjero, que afecten la dignidad, Ia independencia o la seguridad de la Nación, será castigado con la pena señalada en el artículo 414, y si el responsable del hecho fuere un extranjero domiciliado en el país que no tuviere el carácter de Agente Diplomático del Gobierno cuyas órdenes o disposiciones cumpla, se aplicará la pena de extrañamiento y multa mayor en su grado sexto.

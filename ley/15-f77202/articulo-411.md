@@ -1,3 +1,0 @@
-Instigación al odio contra una persona o institución
-Artículo 411.-Será reprimido como difamador, con la pena establecida en el artículo 260, el que fijare en lugares públicos o publicare por medio de la prensa, o a sabiendas hiciere circular un escrito, incitando al odio contra determinada persona o institución.
-No se estimará tener ese carácter los escritos que, aunque sean capaces de producir el desprestigio de una institución, se dirijan a la crítica razonada de ella, en relación con los intereses públicos; ni Ios que tratando de los candidatos propuestos al sufragio popular, tengan por objeto discutir Ios méritos suyos, sin valerse de conceptos injuriosos.

@@ -1,1 +1,0 @@
-Artículo 165.-Si tratándose de un tipo de punición enunciada por la ley con tres términos, sean grados penales o penas distintas, que fijan su extensión posible, ocurriere uno de Ios dos casos del artículo anterior, la pena en el primero no se impondrá en su extremo máximo, ni en el segundo, en su extremo mínimo.

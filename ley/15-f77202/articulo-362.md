@@ -1,2 +1,0 @@
-Casos de agravación
-Artículo 362.-Se pronunciará presidio temporal en sus grados primero a terrero, contra el que para procurarse a sí mismo un provecho ilegaI en perjuicio de un asegurador o de un deudor de préstamo a Ia gruesa, incendiare o destruyere una casa asegurada, o una nave asegurada, o cuya carga o flete estén asegurados o sobre el cual se haya verificado un préstamo a la gruesa, si tales hechos no estuvieren reprimidos con pena mayor en otro lugar del presente Código.

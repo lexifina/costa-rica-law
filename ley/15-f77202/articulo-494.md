@@ -1,6 +1,0 @@
-Respecto de las penas de interdicción de Iugar
-Artículo 494.-En cuanto a las penas de interdicción de lugar se observarán las siguientes prescripciones:
-1°.-El quebrantamiento de la pena de extrañamiento será reprimido con el máximum de Ia prisión en su grado primero; el de la pena de confinamiento, con el mínimum de Ia misma punición, y el de la pena de destierro, con arresto o multa menor en cualquiera de sus grados.
-Una vez sufrida la pena del quebrantamiento, continuará cumpliéndose la pena quebrantada de la cual se deducirá la prisión, arresto o mullta sufridos, conforme a la regla del artículo 71.
-2° .-En caso de reincidencia en el quebrantamiento, serán convertidas la primera y la segunda de dichas penas en prisión, y la tercera en arresto o multa por un Iapso o cuantía, igual a Ias dos terceras partes de lo que falte de extrañamiento, confinamiento o destierro establecida la equivalencia según Ia citada regla del artículo 71.
-3°.-EI extranjero que infrinja la expulsión que se le hubiere impuesto en virtud del artículo 3°. de este Código o conforme a la Ley de Extranjería, será de nuevo echado del territorio nacional, después de sufrir por la primera vez prisión en su grado primero, y por las demás veces, prisión en su grado segundo.

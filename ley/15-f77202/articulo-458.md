@@ -1,4 +1,0 @@
-Falso testimonio
-Artículo 458.-Serán reprimidos con prisión en sus grados primero a segundo, el que en hecho propio y en asunto civil fuere convencido de perjurio, y el testigo, perito o intérprete que en lo que debe declarar ante Ia autoridad, afirmare una falsedad, o total o parcialmente negare o callare la verdad en su deposición, dictamen, traducción o interpretación, no obstante la orden de la autoridad de declararla o manifestarla.
-Si el falso testimonio se cometiere en una causa criminal por delito, con perjuicio del inculpado, la prisión se aplicará en cualquiera de sus grados, y si se cometiera en causa por falta, se pronunciará en su grado segundo.
-Estará exento de pena el que habiendo declarado falsamente o con omisión total o parcial de Io que supiere se retracte de su dicho y manifieste la verdad, a tiempo para que ella pueda ser apreciada por el juzgador.

@@ -1,6 +1,0 @@
-Relación entre la acción criminal y la muerte
-Artículo 230.-Para la imputación de homicidio es preciso establecer que la muerte es en efecto consecuencia de la lesión o de la omisión atribuida al delincuente, y así se estimará en Ios casos siguientes:
-1°.-Cuando una lesión produzca la muerte en el acto.
-2°.-Cuando habiéndola producido con posterioridad la lesión sea calificada de necesariamente mortal, y cuando aunque la muerte provenga inmediatamente de una causa distinta, ésta se haya desarrollado como consecuencia natural de la lesión.
-En los casos de los dos incisos anteriores no valdrá alegar contra la imputación, que la muerte ha podido evitarse con auxilios suficientes u oportunos, o que la lesión no habría sido mortal en otra persona, o que lo fue a causa de la constitución física de la víctima o de las circunstancias en que la lesión se produjo.
-No se tendrá por mortal la lesión, aunque muera el que la hubiere recibido, cuando la muerte se deba a una causa preexistente, en cuyo desarrollo no haya influido la lesión, o cuando no teniendo aquella gravedad por sus caracteres, se haya vuelto mortal por una causa posterior e independiente de su particular importancia, como la aplicación de medicamentos nocivos, operaciones quirúrgicas desgraciadas o excesos o imprudencias del paciente o de los que lo asistan.
