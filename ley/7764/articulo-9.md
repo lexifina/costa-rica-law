@@ -1,0 +1,6 @@
+ARTÍCULO 9.- Fondo de garantía.
+Créase el Fondo de garantía de los notarios públicos, el cual será administrado por la Dirección Nacional de Notariado mediante uno de los entes autorizados para manejar fondos de capitalización. Se regirá por la Ley del Régimen Privado de Pensiones Complementarias, No. 7523, de 7 de julio de 1995.
+Este Fondo constituirá una garantía por los daños y perjuicios que los notarios, en el ejercicio de su función, puedan ocasionar a terceros. Cubrirá daños y perjuicios hasta por un máximo de doscientos salarios base, de acuerdo con la definición del artículo 2 de la Ley No. 7337, de 5 de mayo de 1993, y conforme al límite que establezca la Dirección Nacional de Notariado, según las posibilidades económicas del Fondo.
+Es obligación de todos los notarios cotizar para el Fondo de garantía. El monto máximo anual de cotización será equivalente al salario base mensual definido en el artículo 2 de la Ley No. 7337. Previo estudio actuarial, la Dirección determinará dentro de ese máximo la cuota mensual de cotización.
+Cuando el notario cese en sus funciones, podrá retirar lo aportado al Fondo, de conformidad con la Ley No. 7523.
+Cuando un notario incurra en responsabilidad civil, no podrá volver a ejercer hasta que cubra el monto pagado por la dirección.

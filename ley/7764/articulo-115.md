@@ -1,0 +1,4 @@
+ARTÍCULO 115.- Engrose
+El engrose debe hacer constar que se reproduce el instrumento matriz, identificándolo con su número, la página donde se inicia y el tomo del protocolo donde consta; la conformidad de la confrontación con el original; además, si se trata del primer testimonio o de ulterior y en qué momento se expide, así como el lugar, la hora y la fecha, si se extiende con posterioridad a la autorización de la matriz. En la reproducción parcial debe expresarse esta circunstancia.
+Al expedirse el testimonio en virtud de orden judicial o de funcionario autorizado por ley, en el engrose se indicará el tribunal o el funcionario que lo ordena, su nombre y el cargo que desempeña, la fecha de la orden o la hora y la fecha de la resolución respectiva.
+El notario deberá firmar el testimonio e imprimir al lado o al pie su sello.

@@ -1,0 +1,3 @@
+ARTÍCULO 158.- Efectos de las sentencias. Recurso de casación
+Únicamente las sentencias dictadas por órganos jurisdiccionales, en los asuntos referidos en el artículo 138, tendrán autoridad de cosa juzgada material. Si hubiere mediado pretensión resarcitoria, cabrá recurso ante la Sala de Casación que establezca la Corte Suprema de Justicia, cuando la cuantía del asunto lo permita. El recurso se regirá por las disposiciones correspondientes a la tercera instancia rogada en materia laboral.
+En tales casos, la competencia del tribunal de casación se limitará a lo pecuniario, solo podrá revisar lo disciplinario e impondrá, si fuere del caso, la sanción correspondiente cuando la disconformidad radique en la existencia o inexistencia de la falta atribuida al notario.

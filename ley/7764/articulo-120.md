@@ -1,0 +1,5 @@
+ARTÍCULO 120.- Certificaciones de instrumentos públicos
+Las certificaciones de instrumentos públicos deben indicar, al comienzo, el nombre y los apellidos del notario público o del funcionario que las extienda, la condición de notario o el puesto que el funcionario desempeña, el tomo del protocolo y la página donde se asentó o inició el instrumento público, el nombre del notario y la manifestación de que la reproducción es parcial, en su caso. A continuación se copiará el instrumento original, ya sea en forma total o en lo conducente.
+Como conclusión se expresará la conformidad con la escritura original, la adición y la cancelación, cuando se exijan, tanto de las especies fiscales como de los derechos de ley; además, el lugar, la hora y la fecha de expedición. Seguidamente, el notario o el funcionario autorizará el documento con su firma y sello.
+Las certificaciones deben indicar el nombre y los apellidos del solicitante.
+Respecto de errores y notas, se aplicarán las normas anteriores sobre testimonios.

@@ -1,0 +1,2 @@
+ARTÍCULO 56.- Fallecimiento del notario
+De fallecer un notario, se tendrá por concluido el tomo de su protocolo en curso. El albacea de la sucesión, el cónyuge del notario, sus parientes, los administradores de sus bienes o cualquier otra persona que pueda hacerlo, debe devolver el protocolo al Archivo Notarial, el que deberá informar de inmediato al Registro Nacional y la Dirección Nacional de Notariado.

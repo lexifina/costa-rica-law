@@ -1,0 +1,6 @@
+ARTÍCULO 125.- Cotejo
+La parte a quien se oponga un instrumento notarial puede pedir el cotejo con el original. Si no resultare conforme, se estará a lo que indique la matriz. Cuando sea imposible cotejarlo, por daño o desaparición del original, la reproducción hará fe mientras no se demuestre su inexactitud o falsedad.
+Las oficinas encargadas de registrar instrumentos notariales pueden pedir, administrativamente y sin responsabilidad, el cotejo de la reproducción con el original. El Archivo Notarial los cotejará, si el tomo del protocolo se encontrare depositado en esta oficina; en caso contrario, lo efectuará la Dirección Nacional de Notariado.
+Ambas entidades llevarán a cabo la diligencia con citación del notario y las partes cuyas direcciones consten en el testimonio; se les avisará telegráficamente la hora y fecha señaladas para el acto.
+Mientras se realiza el cotejo, el trámite del documento quedará en suspenso y, si se detectare alguna omisión importante o falsedad, la reproducción se tendrá como ineficaz mientras no se dicte resolución judicial en contrario, sin perjuicio de que la parte interesada pueda reponer el documento correcto.
+Los tribunales o las dependencias administrativas que detecten alguna anomalía en la fidelidad y exactitud de las reproducciones, la comunicarán de inmediato al órgano disciplinario correspondiente.

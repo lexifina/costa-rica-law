@@ -1,0 +1,2 @@
+ARTÍCULO 64.- Citación a interesados
+En la reposición de tomos utilizados total o parcialmente, la Dirección Nacional de Notariado, por medio de tres avisos que se publicarán a costa del notario en un diario de circulación nacional, citará a todos los interesados con el fin de que, dentro del mes siguiente a la publicación del último, presenten las reproducciones de los instrumentos públicos en su poder y se apersonen para hacer valer sus derechos.

@@ -1,0 +1,2 @@
+ARTÍCULO 71.- Idioma
+Los documentos notariales deben redactarse en español, salvo los vocablos técnicos expresados en otro idioma, nombres de personas, marcas, sitios o lugares, cuya traducción no proceda, o las expresiones de uso común o que se considere necesario introducir para la correcta comprensión y eficacia del instrumento. En este último caso, deberá indicarse a continuación y entre paréntesis el significado en español.
