@@ -1,0 +1,1 @@
+8°-Para las licitaciones por registro, restringidas y compra directa, podrán participar quienes no se encuentren inscritos, siempre y cuando cumplan con lo dispuesto por el artículo 5° de este reglamento, presentando la solicitud y documentos correspondientes, con tres días hábiles de anticipación, como mínimo, al vencimiento del plazo para recepción de las ofertas.
