@@ -13,3 +13,4 @@ Suprime la Carrera Diplomática Honoraria del Servicio Exterior
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-22 | la propia norma |
+| 2 | 1996-05-22 | SINALEVI (sin norma nombrada) |
