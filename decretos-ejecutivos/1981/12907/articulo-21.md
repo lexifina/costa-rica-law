@@ -1,0 +1,6 @@
+Artículo 21.- La Junta Directiva puede sesionar cuando así lo acuerde, cuando
+sea convocada por el Director Ejecutivo, por el Presidente o a solicitud de dos
+de sus miembros. Habrá quórum con la asistencia de tres miembros como mínimo.
+De cada sesión deberá levantarse un acta que será firmada por el Presidente y
+el
+Secretario General.
