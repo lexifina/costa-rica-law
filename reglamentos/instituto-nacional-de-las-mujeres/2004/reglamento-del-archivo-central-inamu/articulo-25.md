@@ -1,0 +1,1 @@
+Artículo 25.—La conservación y custodia de los documentos de valor permanente y la eliminación de aquellos que lo han perdido, se realizará de acuerdo con la legislación vigente y la normativa concreta que regule la eliminación en el Archivo Central.

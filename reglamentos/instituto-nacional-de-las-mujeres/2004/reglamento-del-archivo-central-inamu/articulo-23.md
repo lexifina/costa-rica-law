@@ -1,0 +1,1 @@
+Artículo 23.—Los archivos deben permanecer cerrados. La llave debe permanecer en un lugar visible y deben tener acceso a ella, tanto la secretaría destacada en la unidad administrativa como un/a funcionaria/o de la misma.

@@ -1,0 +1,1 @@
+Artículo 16.—En caso de que los documentos sean consultados por historiadoras/es o con el fin de elaborar investigaciones importantes, y a juicio de la/el Archivista, ésta/e solicitará una copia del trabajo realizado y pasará a formar parte del patrimonio documental del Archivo Central del Instituto Nacional de las Mujeres.

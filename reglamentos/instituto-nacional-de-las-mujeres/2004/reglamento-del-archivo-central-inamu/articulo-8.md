@@ -1,0 +1,1 @@
+Artículo 8º—La persona encargada del Archivo Central como una de sus funciones debe brindar capacitación a las/os funcionarias/os encargadas/os de los Archivos de Gestión, sobre el proceso de envío de los documentos y la elaboración de las tablas de conservación de los mismos.

@@ -1,0 +1,1 @@
+Artículo 13.—Cualquier ciudadana/o interesada/o en consultar documentos deberá llenar la boleta de préstamo de documentos y además deberá identificarse con su cédula de identidad o carne de estudiante.
