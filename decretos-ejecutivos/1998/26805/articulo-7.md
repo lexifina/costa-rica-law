@@ -1,4 +1,0 @@
-Artículo 7°-Desalmacenajes de Aduana. La obtención del registro de un producto peligroso facultará al registrante para efectuar desalmacenajes sin requerir la previa autorización del Ministerio de Salud, sin embargo, este estará facultado a denegar la importación de un producto cuando se incumpla con lo estipulado en este Reglamento.
-El Ministerio estará obligado a informar a la Dirección General de Aduanas, acerca de los productos que han sido registrados.
-La Dirección General de Aduanas suministrará periódicamente al Ministerio, toda aquella información pertinente con relación a la importación de productos peligrosos.
-Toda persona física o jurídica que importe muestras sin valor comercial de productos peligrosos, podrá desalmacenarlas sin requerir el registro previo, presentando únicamente una declaración jurada en la cual se manifiesta su condición de muestra.

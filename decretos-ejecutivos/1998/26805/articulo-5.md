@@ -1,2 +1,0 @@
-Artículo 5°-Vigencia del registro. La vigencia del registro de productos peligrosos será indefinida, salvo que surjan hechos que denoten un riesgo para la vida y la salud de las personas o el Medio Ambiente, no contemplados a la hora de otorgar el respectivo registro.
-Será obligación de quien solicita y obtiene el registro de un producto peligroso, mantener actualizada la información técnica de ese registro.

@@ -1,4 +1,0 @@
-Artículo 12.-Disposiciones finales. El Ministerio tendrá amplias facultades para regular los aspectos no contemplados en este Reglamento con relación a la importancia, fabricación, manipulación, almacenamiento, venta, distribución, o suministro de productos peligrosos.
-El Ministerio tendrá amplias facultades para eximir al Registrante de la presentación de la información técnica que esté ya disponible en sus bases de datos.
-El Ministerio podrá mediante resolución publicada en "La Gaceta", restringir o prohibir de forma general la importación, uso, introducción, almacenamiento y desecho en el territorio nacional de productos que puedan producir daños a la salud, la vida de las personas y el medio ambiente.
-Todo patrono y establecimiento de salud están en la obligación de reportar la intoxicación con productos químicos según la boleta de vigilancia epidemiológica diseñada por el Ministerio.
