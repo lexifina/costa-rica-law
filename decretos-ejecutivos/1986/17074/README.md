@@ -15,3 +15,4 @@ Crea Oficialía Mayor Ministerio de Educación
 | --- | --- | --- |
 | 1 | 1986-07-02 | la propia norma |
 | 2 | 1993-01-25 | Decreto Ejecutivo 21896 (1993-01-25) |
+| 3 | 1993-01-25 | Ley 8 |
