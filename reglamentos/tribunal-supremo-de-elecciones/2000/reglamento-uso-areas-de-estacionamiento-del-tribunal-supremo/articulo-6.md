@@ -1,0 +1,1 @@
+Artículo 6º—Corresponde al Jefe de la Oficina de Servicios Generales procurar que se dé el óptimo uso a los espacios de estacionamiento, debiendo asignar el lugar correspondiente a quienes autorice y pudiendo, en forma razonada, revocar o suspender los permisos de uso previamente concedidos.

@@ -1,0 +1,1 @@
+Artículo 8º—Para lograr un adecuado control del ingreso de vehículos pertenecientes a funcionarios de la institución a las áreas de estacionamiento, la Oficina de Servicios Generales comunicará a la Oficina de Seguridad y Vigilancia los números de placa de circulación de esos vehículos.

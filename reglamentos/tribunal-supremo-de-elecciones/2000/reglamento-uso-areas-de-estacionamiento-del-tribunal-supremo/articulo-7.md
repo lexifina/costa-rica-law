@@ -1,0 +1,1 @@
+Artículo 7º—El funcionario a quien se le haya revocado su permiso de estacionamiento podrá solicitarlo nuevamente. Sin embargo, a dicha solicitud no se le dará trámite sino hasta tres meses después de la fecha de rige de la revocatoria anterior, cuando lo mismo se haya dispuesto por incumplimiento de esta normativa.

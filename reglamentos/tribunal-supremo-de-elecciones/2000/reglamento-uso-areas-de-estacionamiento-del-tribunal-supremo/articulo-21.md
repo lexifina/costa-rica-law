@@ -1,0 +1,1 @@
+Artículo 21.—Se permitirá el ingreso al estacionamiento de un número mayor de vehículos de visitantes que el previamente destinado, únicamente cuando en los vehículos permanezcan sus respectivos choferes.

@@ -1,0 +1,1 @@
+Artículo 3º—Cuando el Tribunal, por cualquier motivo, requiera hacer uso de las áreas de estacionamiento concedidas, el Jefe de la Oficina de Servicios Generales revocará o suspenderá el permiso de estacionamiento respectivo.
