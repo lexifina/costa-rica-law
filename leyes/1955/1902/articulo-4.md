@@ -1,0 +1,1 @@
+Artículo 4º.- La tramitación de las solicitudes ante las Oficinas citadas en el artículo anterior y las certificaciones indispensables para la misma, no demandarán gasto alguno para los interesados. Las solicitudes serán autenticadas por la autoridad política del domicilio del solicitante o por un abogado.
