@@ -80,3 +80,4 @@ articulo-79.md
 articulo-80.md
 articulo-81.md
 articulo-82.md
+articulo-1-transitorio.md

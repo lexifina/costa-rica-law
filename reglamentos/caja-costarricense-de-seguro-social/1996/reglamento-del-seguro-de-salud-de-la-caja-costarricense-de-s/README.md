@@ -18,3 +18,4 @@ Reglamento del Seguro de Salud de la Caja Costarricense de Seguro Social
 | 3 | 1999-10-08 | Reglamento 7319 (1999-10-08) |
 | 4 | 2001-07-31 | Reglamento 7568 (2001-07-31) |
 | 5 | 2001-10-11 | Reglamento 7588 (2001-10-11) |
+| 6 | 2002-07-24 | Reglamento 7662 (2002-07-24) |
