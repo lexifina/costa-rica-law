@@ -1,0 +1,1 @@
+Artículo 2º—Se mantiene como obligatorio por parte de la Flota Camaronera de Arrastre de Orilla, la utilización e implementación del uso del Dispositivo Excluidor de Tortugas, según las medidas, características y regulaciones existentes en la materia, que se han venido aplicando, antes de la promulgación del Acuerdo AJDIP/300-2004.
