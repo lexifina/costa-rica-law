@@ -1,0 +1,1 @@
+Transitorio I.-La remuneración adicional correspondiente al año 1954 será de un décimo de los salarios ordinarios o de las pensiones recibidas entre el 1° de enero y el 31 de octubre de dicho año, excepto en el caso de los ex-servidores, en que será de un doceavo.

@@ -1,9 +1,10 @@
 # Derecho Aguinaldo Servidores Excluidos Servicio Civil
 
-Ley N° 1719 del 1953-12-10. SINALEVI, ficha 3490: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3490&param2=3695&param3=1>.
+Ley N° 1719 del 1953-12-10. SINALEVI, ficha 3490: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3490&param2=80782&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 1953-12-10 | Ley 1719 | 1953-12-10 |
+| 2 de 2 | 1954-12-15 | Ley 1835 | 1954-12-11 |

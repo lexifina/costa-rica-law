@@ -1,4 +1,1 @@
-Transitorio.- La cuota o sueldo adicional correspondiente al año
-1953, se pagará a los empleados y funcionarios administrativos del Poder
-Legislativo a principios del año 1954, en la fecha que determine el
-Ministerio de Economía y Hacienda.
+Transitorio.- (Derogado por el artículo 5° de la Ley de Pago de Aguinaldo para los Servidores Públicos, N° 1835 del 11 de diciembre de 1954)
