@@ -1,0 +1,1 @@
+10°.-El Guarda á quien se le acredite haber dado maliciosamente lugar a la extracción de Tabaco, perderá todos los sueldos ganados hasta aquella fecha y para asegurar la devolución dará fianza por documentos simple al tiempo de ser admitido al resguardo.

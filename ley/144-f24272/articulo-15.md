@@ -1,0 +1,1 @@
+15°.- Todas las multas se dividirán en tres partes iguales, una para el denunciante, si lo hubiere, otra para los guardas que hicieren la aprehensión y otra para el Fiscal de la renta: este funcionario es obligado a pedir en juicio la aplicación de la pena siendo avisado por el resguardo; cuando no haya denunciante se dividirá a la mitad.
