@@ -1,0 +1,4 @@
+N° 3898
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+Artículo 1°-Exonérase del pago de impuestos de aduana de consumo, municipales y de cualquier otro impuesto, la adquisición de los siguientes materiales que se usarán en la construcción de la Iglesia de Puerto Viejo de Sarapiquí de Heredia: 700 sacos de cemento; 670 planchas de hierro para techo, N° 28; 300 varillas de hierro para construcción, de ¼; 120 varillas de hierro, de ½,, 260 varillas de hierro, de 3/8, 26 varillas de hierro, de 5/8, 80 varillas de hierro, de ¾, 106 platinas de hierro L, de 11/2 x 1; 73 platinas de hierro, de 11/4 x 1 ¼; 9 varillas planas de hierro, de 2 x 3; 18 tubos fluorescentes con sus bases y balastros; 90 metros cuadrados de vidrio y sus respectivas celosías; 60 galones de barniz; 60 galones de pintura vinílica.
