@@ -7,4 +7,4 @@ Considerando:
 2º—Que las actividades que se realizarán durante la citada jornada, se consideran de importancia en materia de salud, toda vez que reunirán a Profesionales de las Ciencias de la Salud, tanto del sector público como del sector privado del país.
 3º—Que los organizadores del evento han solicitado al Ministerio de Salud la declaratoria de interés público y nacional de las actividades citadas. Por tanto:
 DECRETAN:
-Artículo 1º—Se declaran de interés público y nacional, las actividades que llevará a cabo la Asociación de Reumatología de Costa Rica, con motivo de la realización de la Vª Jornada de Reumatología Práctica, que tendrá lugar en nuestro país del 28 al 30 de abril del 2004.
+Artículo 1°—Se declaran de interés público y nacional, las actividades que llevará a cabo la Asociación de Reumatologia de Costa Rica, con motivo de la realización de la VIIIa Jornada de Reumatologia Práctica, que tendrá lugar en nuestro país del 28 al 30 de abril del 2004.

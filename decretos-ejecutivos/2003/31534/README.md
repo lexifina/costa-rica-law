@@ -14,3 +14,4 @@ Declaran de interés público y nacional, las actividades que llevará a cabo la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-12 | la propia norma |
+| 2 | 2004-02-16 | Decreto Ejecutivo 31670 (2004-02-16) |
