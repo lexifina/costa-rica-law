@@ -1,0 +1,1 @@
+Artículo 52.—En aplicación del Artículo Nº 3 del Reglamento General del Colegio, por ninguna razón se podrán utilizar los símbolos de este o parte de ellos (escudo, bandera, himno y búho) para fines electorales.

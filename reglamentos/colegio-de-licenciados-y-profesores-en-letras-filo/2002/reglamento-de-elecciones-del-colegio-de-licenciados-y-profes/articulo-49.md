@@ -1,0 +1,1 @@
+Artículo 49.—En materia de propaganda electoral, los candidatos a los diferentes cargos se deberán ajustar a lo que establece el presente Reglamento y a las disposiciones que en este sentido dicte el Tribunal. Estas le serán comunicadas, por escrito, en la reunión de ratificación de candidatos.

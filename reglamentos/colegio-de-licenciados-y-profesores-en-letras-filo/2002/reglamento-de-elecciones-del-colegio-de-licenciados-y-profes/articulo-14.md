@@ -1,0 +1,1 @@
+Artículo 14.—En Asamblea General Ordinaria o Extraordinaria se llenarán las vacantes de los miembros del Tribunal que se retiren sin concluir su período por renuncia, muerte, incapacidad permanente, aplicación de una sanción reglamentaria o remoción o por tres ausencias injustificadas consecutivas.

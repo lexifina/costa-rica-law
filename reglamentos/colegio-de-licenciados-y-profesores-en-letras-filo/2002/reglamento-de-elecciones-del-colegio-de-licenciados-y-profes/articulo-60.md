@@ -1,0 +1,1 @@
+Artículo 60.—Una vez aprobado este Reglamento de Elecciones por la Asamblea General, la Junta Directiva procederá a su publicación en el diario oficial en un plazo no superior a los treinta días naturales, y él regirá ocho días después de su publicación.

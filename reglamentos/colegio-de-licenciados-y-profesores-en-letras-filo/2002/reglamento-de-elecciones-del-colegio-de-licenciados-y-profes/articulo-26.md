@@ -1,0 +1,1 @@
+Artículo 26.—Se abrirá un período de treinta días naturales para la inscripción de candidatos. Esta etapa terminará sesenta días naturales antes de las votaciones. Los requisitos y los plazos deberán ser comunicados por el Tribunal en un periódico de circulación nacional.

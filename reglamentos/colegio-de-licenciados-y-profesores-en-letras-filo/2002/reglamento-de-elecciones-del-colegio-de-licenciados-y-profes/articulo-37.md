@@ -1,0 +1,1 @@
+Artículo 37.—El Tribunal podrá recibir con anterioridad a la realización de la Asamblea Regional las candidaturas para los distintos cargos que vayan a quedar vacantes, aunque quedará abierta la posibilidad de recibirlas también en el mismo momento de celebrarse la Asamblea.

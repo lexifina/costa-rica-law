@@ -1,0 +1,1 @@
+Artículo 18.—El Tribunal resolverá el recurso de revocatoria en un plazo de ocho días hábiles, mediante una resolución debidamente fundamentada que deberá comunicarse por escrito al recurrente a través del medio que este haya señalado.

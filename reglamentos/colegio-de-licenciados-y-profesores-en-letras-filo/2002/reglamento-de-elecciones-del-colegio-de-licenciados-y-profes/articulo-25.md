@@ -1,0 +1,1 @@
+Artículo 25.—Los miembros de Junta Directiva, por principios éticos, no podrán utilizar las actividades de las Asambleas Regionales para fines de campaña electoral. Asimismo, no participarán en entrega de signos externos cubiertos con fondos del Colegio.

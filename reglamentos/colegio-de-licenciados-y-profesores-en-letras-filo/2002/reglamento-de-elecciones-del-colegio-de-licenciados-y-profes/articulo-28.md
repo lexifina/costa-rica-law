@@ -1,0 +1,1 @@
+Artículo 28.—El orden que ocuparán los candidatos en cada una de las papeletas para los cargos se publicará en el mismo periódico de circulación nacional en el que se hizo la publicación de apertura de inscripción de candidatos; lo anterior en el plazo de ocho días posteriores a la reunión de ratificación de candidatos.

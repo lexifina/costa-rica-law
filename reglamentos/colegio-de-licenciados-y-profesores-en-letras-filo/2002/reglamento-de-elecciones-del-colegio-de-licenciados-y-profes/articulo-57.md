@@ -1,0 +1,1 @@
+Artículo 57.—Los candidatos que desacaten las disposiciones del presente Reglamento o que incurran en falta de diligencia en el cumplimiento de ellas podrán ser sancionados, según el caso, hasta con el retiro de su condición de candidatos. El Tribunal actuará de oficio o ante denuncia escrita.

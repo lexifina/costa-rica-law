@@ -1,0 +1,9 @@
+Artículo 56.—Además, para el logro de los objetivos, los candidatos se sujetarán a las siguientes disposiciones:
+a. No podrán utilizar ningún tipo de pintura, colorantes, tintas, tintes, ocres, tizas, pasteles, marcadores, aerosoles, y otros en ninguna de las superficies de las construcciones del Colegio o de los elementos decorativos, naturales o artificiales que se encuentren en la propiedad, tales como árboles, matas, piedras, rocas, macetas, jardineras y otros.
+b. No podrán pegar signos externos en postes para electricidad, señales de tránsito y otros espacios públicos prohibidos por ley.
+c. La propaganda que el presente Reglamento acepta, dentro de los límites de su autorización, no podrá ser ubicada en el interior de los edificios ni en las propiedades del Colegio, hasta treinta días antes del oficialmente fijado para la apertura de la votación.
+d. La propaganda en forma de mantas, dentro de las limitaciones de tiempo señaladas, podrá ser amarrada en árboles, arbustos, plantas, postes, torres, rejas y barandas en los lugares no prohibidos por el Tribunal, siempre que no dañen ecológicamente el lugar. Cuando corresponda, el Tribunal ordenará el retiro de propaganda mal ubicada.
+e. La propaganda en forma de pancartas, dentro de las limitaciones de tiempo señaladas, podrá ser sostenida por simpatizantes, plantada o colocada en pedestales autosostenidos solamente en los lugares no prohibidos por el Tribunal.
+f. El Tribunal señalará equitativamente espacios donde los candidatos, dentro de las limitaciones de tiempo señaladas, podrán colocar su propaganda impresa.
+g. La distribución de espacios publicitarios se hará por el sistema de rifa.
+h. El Tribunal señalará equitativamente superficies donde los candidatos podrán edificar sus locales de trabajo para el día de las votaciones.

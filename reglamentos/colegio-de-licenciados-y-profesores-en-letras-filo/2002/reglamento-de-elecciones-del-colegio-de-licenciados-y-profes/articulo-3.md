@@ -1,0 +1,1 @@
+Artículo 3º—El Tribunal tendrá a su cargo la organización, administración, ejecución, control y evaluación de los procesos electorales que le corresponden, así como lo relacionado con el transporte de los votantes.

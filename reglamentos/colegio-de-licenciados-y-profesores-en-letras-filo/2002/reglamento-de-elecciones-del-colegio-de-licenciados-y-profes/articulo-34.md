@@ -1,0 +1,1 @@
+Artículo 34.—De existir empate entre dos o más candidatos que impida la declaratoria de un ganador, la Asamblea suspenderá el debate de los asuntos pendientes para dar oportunidad al Tribunal de realizar el proceso electoral correspondiente y resolver la situación con los asambleístas presentes. Se actuará de conformidad con el artículo 19 de la Ley Orgánica del Colegio.

@@ -1,0 +1,1 @@
+Artículo 8º—Sus miembros recibirán estipendios en los montos señalados para las Comisiones Permanentes y viáticos de acuerdo con la tabla establecida por la Contraloría General de la República, cuando, en cumplimiento de sus funciones, deban desplazarse.
