@@ -1,0 +1,2 @@
+Artículo 2º—Para efectos de lo anterior y durante el tiempo en que se mantenga la intervención del PRODAPEN, la Junta aquí nombrada, contará con facultades suficientes para tornar los acuerdos necesarios que permitan la continuidad y marcha del proyecto durante la intervención. La Junta para el cumplimiento cabal de sus labores deberá llevar un libro de Actas, donde consten sus acuerdos, los cuales deberán adoptarse por unanimidad.
+La Junta deberá reunirse regularmente, con el fin de que se permita la consecución y cumplimiento de los fines y objetivos del Proyecto.

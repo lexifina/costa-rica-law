@@ -1,0 +1,1 @@
+Artículo 5º—La Junta Interventora deberá presentar al Despacho Ministerial los informes correspondientes, debiendo presentar el primero de ellos en un plazo perentorio de dos meses calendario a partir del inicio de sus funciones.
