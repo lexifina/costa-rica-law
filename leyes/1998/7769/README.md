@@ -1,0 +1,11 @@
+# Atención a las Mujeres en Condiciones de Pobreza
+
+Ley N° 7769 del 1998-04-24. SINALEVI, ficha 30466: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=30466&param2=32166&param3=1>.
+
+Publicada en La Gaceta N° 96 del 1998-05-20.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 5 | 1998-05-20 | Ley 7769 | 1998-04-24 |
