@@ -1,0 +1,1 @@
+Artículo 17.-Contactos de comunicación.-Cuando el vuelo se haga dentro de las áreas de control de tránsito, la persona que tenga el mando del avión, deberá mantener una continua atención y vigilancia a la frecuencia apropiada del radio y sobre la hora y altura de pasada sobre cada punto de reporte, para dar el informe a la mayor brevedad, a la estación correspondiente.

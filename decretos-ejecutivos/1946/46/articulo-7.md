@@ -1,0 +1,1 @@
+Artículo 7°-Alturas mínimas de seguridad.-Excepto al despegar o aterrizar, el avión debe volar: sobre las ciudades, áreas pobladas; o reuniones que se efectúen al aire libre, a suficiente altura para poder realizar en cualquier momento un aterrizaje de emergencia fuera de los mismos; pero en ningún caso la altura deberá ser menor de mil pies sobre el sueIo.

@@ -1,0 +1,1 @@
+Artículo 9°-Luces.-Durante las horas oscuras, todos los aviones estacionados o que se muevan dentro del Aeropuerto, si se realizan vuelos nocturnos, deberán estar iluminados, salvo que el área de estacionamiento esté señalada con luces de obstrucción.

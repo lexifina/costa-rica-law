@@ -1,0 +1,1 @@
+Artículo 5°-Instrucciones sobre control.-Todo avión operará en las áreas controladas, sectores de aproximación, o en zonas de transito del Aeropuerto, de acuerdo con las instrucciones que la Torre le haya dado.

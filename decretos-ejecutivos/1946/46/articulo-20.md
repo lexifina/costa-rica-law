@@ -1,0 +1,1 @@
+Artículo 20.-Notificación de arribo.-La persona que tenga el mando de un avión, para el cual se requiera un plan de vuelo. está obligada a asegurarse de que se envíe el mensaje de arribo a la Torre inmediatamente después de haber aterrizado.
