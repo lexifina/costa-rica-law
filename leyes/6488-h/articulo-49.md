@@ -1,0 +1,7 @@
+Articulo 49.-Cuota-.parte marítima.
+1. Cada uno de los países cuyos servicios participen en el transporte marítimo de las encomiendas, estará autorizado a reclamar las cuotas-.parte marítimas indicadas en el cuadro que figura en el párrafo 2. Estas cuotas-parte estarán a cargo de la Administración del país de origen, a menos que el presente Acuerdo determine derogaciones a este principio.
+2. Por cada servicio marítimo utilizado, la cuota-parte marítima se calcularé de acuerdo con las indicaciones del cuadro siguiente:
+(NOTA: Por el tipo de formato ver cuadro en la Colección de Leyes y Decretos del año 1980, Semestre II, Tomo I, página 283)
+3. Dado el caso, los escalones de distancia que sirven para determinar el importe de la cuota-parte marítima que se aplicará entre dos países, se calcularán sobre la base de una distancia media ponderada, determinada en función del tonelaje de los despachos transportados entre los puertos respectivos de ambos países.
+4. El transporte marítimo entre dos puertos de un mismo país no podrá dar lugar al cobro de la cuota-parte fijada en el párrafo 2, cuando la Administración de este país cobrare ya, por las mismas encomiendas, la remuneración correspondiente al transporte territorial.
+5. Tratándose de encomiendas-avión, la cuota-parte marítima de las Administraciones o servicios intermediarios, sólo se aplicará en el caso en que la encomienda utilice un transporte marítimo intermediario; el servicio marítimo efectuado por el país de origen o de destino, se considerará a este efecto como servicio intermediario.

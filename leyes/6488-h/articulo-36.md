@@ -1,0 +1,2 @@
+Articulo 36.-Encomiendas que contengan objetos que se tema puedan deteriorarse o corromperse a breve plazo.
+Los objetos incluidos en una encomienda que se tema puedan deteriorarse o corromperse a breve plazo, serán los únicos que podrán venderse inmediatamente, aun en camino, a la ida o a la vuelta, sin previo aviso y sin formalidad judicial, en beneficio de quien tuviere derecho; si, por cualquier causa, la venta fuere imposible, los objetos deteriorados o en descomposición serán destruidos.

@@ -1,0 +1,16 @@
+Artículo 40.-Cese de responsabilidad de las Administraciones Postales.
+1. Las Administraciones Postales dejarán de ser responsables por las encomiendas que hubieran entregado en las condiciones determinadas por su reglamentación interna para los envíos de la misma clase o en las condiciones fijadas en el articulo 11, párrafo 3, del Convenio; la responsabilidad se mantendrá sin embargo:
+a) Cuando se hubiere constatado una expoliación o una avería antes de la entrega o durante la entrega de una encomienda o cuando si la reglamentación interna lo permite, el destinatario o dado el caso el expedidor, si hubiere devolución a origen, formulare reservas al recibir una encomienda expoliada o averiada;
+b) Cuando el destinatario o, en caso de devolución a origen el expedidor, a pesar de haber firmado el recibo regularmente, declarare sin demora a la Administración que le entregó la encomienda, haber constatado un daño y aportare la prueba de que la expoliación o la avería no se produjo después de la entrega.
+2. Las Administraciones Postales no serán responsables:
+1) Por la pérdida, la expoliación o la avería de las encomiendas:
+a) En caso de fuerza mayor. La Administración en cuyo servicio hubiera tenido lugar la pérdida, la expoliación o la avería deberá resolver, según la legislación de su país, si esta pérdida, esta expoliación o esta avería es debida a circunstancias que constituyan un caso de fuerza mayor; éstas serán comunicadas a la Administración del país de origen si esta última lo solicitare. Sin embargo, la responsabilidad subsistirá con respecto a la Administración del país expedidor que hubiera aceptado cubrir los riesgos de fuerza mayor, (articulo 11, párrafo 2);
+b) Cuando la prueba de su responsabilidad no hubiere sido probada de otra manera y no pudieren dar cuenta de las encomiendas debido a la destrucción de los documentos de servicio por un caso de fuerza mayor;
+c) Cuando el daño hubiere sido motivado por culpa o negligencia del expedidor o provenga de la naturaleza del contenido de la encomienda;
+d) Cuando se tratare de encomiendas con declaración fraudulenta de valor superior al valor real del contenido;
+e) Cuando el expedidor no hubiere formulado reclamación alguna en el plazo fijado en el artículo 38, párrafo 2;
+f) Cuando se tratare de encomiendas de prisioneros de guerra e internados;
+2° Por las encomiendas incautadas en virtud de la legislación de.! país de destino.
+3° Por las encomiendas confiscadas o destruidas por la autoridad competente, cuando se tratare de encomiendas cuyo contenido cae dentro de las prohibiciones indicadas en el articulo 19, letra a) puntos 2° 4° a 8° y letra b);
+4° En materia de transporte marítimo o aéreo, cuando ellas hubieren comunicado que no estaban en condiciones de aceptar la responsabilidad de las encomiendas con valor declarado a bordo de los navíos o de los aviones que utilizan; sin embargo, por el tránsito de encomiendas con valor declarado en despachos cerrados asumirán la responsabilidad prevista para las encomiendas del mismo peso sin valor declarado.
+3. Las Administraciones Postales no asumirán responsabilidad alguna por las declaraciones de aduana, cualquiera sea la forma en que éstas fueren formuladas, ni por las resoluciones adoptadas por los servicios de aduana al efectuar la verificación de las encomiendas sujetas a control aduanero.
