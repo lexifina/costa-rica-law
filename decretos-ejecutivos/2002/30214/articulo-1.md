@@ -52,8 +52,10 @@ Dirección General Archivo Nacional 450,1
 Dirección General Aviación Civil 5.309,7
 Editorial Costa Rica 109,6
 Escuela Centroamericana de Ganadería 514,6
-Estaciones Experimentales MAG 143,0
-Fábrica Nacional de Licores 1.636,6
+Estaciones Experimentales MAG 173.0
+(Así modificado por el artículo 1° del Decreto Ejecutivo N° 31128 de 3 de abril de 2003)
+Fábrica Nacional de Licores 1.936,6
+(Así modificado por el artículo 1° del Decreto Ejecutivo N° 31131 de 3 de abril de 2003)
 Fondo de Parques Nacionales 1.762
 (Así modificado por Decreto Ejecutivo N° 31021 de 14 de febrero de 2003)
 Fondo Forestal 76,2
@@ -71,6 +73,13 @@ Instituto Costarricense de Turismo 6.518,6
 (Así modificado por Decreto Ejecutivo N° 31057 de 26 de marzo de 2003)
 Instituto de Desarrollo Agrario 6.447,7
 Instituto de Fomento y Asesoría Municipal 1.125,4
+Instituto Geográfico Nacional 150,0
+Instituto Meteorológico Nacional 272,0
+Instituto Mixto de Ayuda Social 20.426,2
+Instituto Nacional de Estadística y Censos 924,4
+Instituto Nacional de Fomento Cooperativo 1.012,5
+Instituto Nacional de las Mujeres 1062.0
+(Así modificado por el artículo 1° del Decreto Ejecutivo N° 31067 de 20 de febrero de 2003)
 Instituto Geográfico Nacional 150,0
 Instituto Meteorológico Nacional 272,0
 Instituto Mixto de Ayuda Social 20.426,2
@@ -104,7 +113,8 @@ Patronato de Construcciones, Instalaciones y Adquisición de Bienes 2.685.5
 Patronato Nacional de Ciegos 27,0
 Patronato Nacional de la Infancia 6.115,5
 Patronato Nacional de Rehabilitación 153,3
-Programa Ganadero de Salud Animal PROGASA 37,1
+Programa Ganadero de Salud Animal PROGASA 7,1
+(Así modificado por el artículo 1° del Decreto Ejecutivo N° 31128 de 3 de abril de 2003)
 Programa Integral de Mercadeo Agropecuario 1.458,7
 Proyecto Desarrollo Agrícola de Pen. Nicoya 556,4
 Proyecto Pequeños Productores Zona Norte MAG 11,6
