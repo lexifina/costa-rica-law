@@ -1,0 +1,2 @@
+Artículo 39.—Sesiones extraordinarias. La Junta de Salud sesionará extraordinariamente cuantas veces ella decida. La convocatoria a las sesiones extraordinarias la realizará el presidente, tres de sus miembros o el Director del establecimiento de salud. En casos urgentes se puede convocar con veinticuatro horas de anticipación. En la convocatoria se indicará el objeto de la reunión.
+También en las reuniones extraordinarias se deben cumplir las disposiciones indicadas en el párrafo segundo del artículo anterior.

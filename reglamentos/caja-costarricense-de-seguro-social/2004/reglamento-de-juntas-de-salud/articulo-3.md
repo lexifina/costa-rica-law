@@ -1,0 +1,2 @@
+Artículo 3º—Junta de Salud. Concepto. Son entes auxiliares de los hospitales, clínicas y áreas de salud de la Caja, para mejorar la atención de la salud, el desempeño administrativo y financiero, así como la promoción de la participación ciudadana.
+Las Juntas de Salud son entes auxiliares, de los establecimientos de salud en particular y de la Caja en general, para la consecución de los fines constitucionales y legales impuestos a ésta en el campo de la salud. Las Juntas de Salud son instancias de participación social.

@@ -1,0 +1,14 @@
+Artículo 8º—Deberes de las Juntas de Salud. Son deberes de las Juntas de Salud los siguientes:
+a) Brindar colaboración voluntaria, en forma ad honorem, en su establecimiento de salud en particular y en la Caja en forma general, de acuerdo con las necesidades locales y las solicitudes realizadas por la dirección y administración de la unidad respectiva. La Junta de Salud deberá ajustarse, en toda actividad de colaboración, a la normativa jurídica y técnica aplicable, así como a las disposiciones políticas institucionales.
+b) Servir de vínculo de comunicación y coordinación entre el establecimiento y sus representados.
+c) Participar en la divulgación, en coordinación con la Administración, de los derechos y deberes de los usuarios de los servicios de salud públicos y aquellos gestionados por terceros. , colaborar en la adecuada información del usuario sobre la realidad y las políticas de la unidad a la que auxilian, con el fin de lograr un uso oportuno y racional de los servicios.
+d) Participar y apoyar actividades de promoción de la salud, prevención de enfermedades y rehabilitación social con participación social, en coordinación con las autoridades y funcionarios del establecimiento de salud.
+e) Pronunciarse sobre aquellos asuntos que sea consultada, ya sea por parte de órganos internos o externos a la Institución, en el plazo que establezca la solicitud. Su respuesta la emitirá en forma escrita y dejando constancia de la misma en el Libro de Actas.
+f) Vigilar que el desempeño administrativo y financiero esté orientado a la satisfacción efectiva de las necesidades razonables de los usuarios y que cumpla con la normativa y política institucional o con las obligaciones contractuales en los casos de gestión por terceros.
+g) Comunicar a las autoridades u órganos del establecimiento, cualquier anomalía detectada sobre la gestión de los servicios, el desempeño administrativo y financiero o de cualquier otra índole. En caso de que dichas observaciones y sugerencias no tengan respuesta, informarán a las autoridades superiores competentes.
+h) Proponer soluciones a los problemas detectados y colaborar en su implementación, según posibilidades.
+i) Ejercer su gestión dentro del marco legal aplicable a la Institución.
+Las funciones de sus miembros, serán ejercidas por medio de la Junta de Salud como tal, en tanto órgano colegiado, y no serán válidas las actuaciones individuales o a título personal.
+j) Rendir informe anual a sus representados y a las autoridades institucionales competentes, sobre la gestión realizada.
+k) Ajustarse a la normativa jurídica y técnica, así como los lineamientos de política institucional, en materia de donaciones.
+l) Fundamentar sus opiniones y recomendaciones en forma clara y precisa, con los criterios que consideren pertinentes. Cada criterio emitido debe explicar las razones para haberlo adoptado y el beneficio para el servicio y los usuarios que representan.

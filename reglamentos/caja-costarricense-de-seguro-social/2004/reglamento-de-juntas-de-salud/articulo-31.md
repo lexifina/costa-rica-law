@@ -1,0 +1,17 @@
+Artículo 31.—Del Comité Electoral. Toda elección de Juntas de Salud estará bajo la supervisión de un Comité Electoral, el cual estará integrado por dos miembros nombrados por la Junta Directiva, uno en representación de la Institución y otro en representación de la Municipalidad del área de atracción directa del establecimiento de salud. En caso de que alguno de los representantes no se presente a las capacitaciones y asesorías convocadas al efecto, se tramitará su sustitución ante la Junta Directiva, a través de la Asesoría de Desconcentración y Juntas de Salud o quien la Junta Directiva delegue, pudiendo ser el sustituto un representante institucional calificado para dicha función.
+Ninguno de los integrantes del Comité podrá tener relación de consanguinidad o afinidad, hasta el tercer grado, con alguno de los candidatos en el proceso de elección. Tampoco podrán pertenecer en más a un Comité Electoral en forma simultánea.
+Dentro de las funciones que tendrá el Comité Electoral, estarán las siguientes:
+a) Elaborar en los Establecimientos respectivos, los padrones de electores y los registros de las candidaturas que se presenten de conformidad con los requisitos y el calendario establecido. Ubicar esta información en lugares visibles dentro del Establecimiento, durante el período de propaganda y elecciones.
+b) Llevar a cabo la divulgación de las elecciones, conjuntamente con los Facilitadores y en coordinación con Directores y Administradores del Establecimiento de Salud o con las personas que se asignen.
+c) Preparar conjuntamente con los funcionarios designados, el material electoral, necesario durante todo el proceso de elección.
+d) Divulgar la hora, fecha de la apertura y cierre de la inscripción de candidaturas y de las Asambleas de Elección; además estar presentes durante el transcurso de éstas.
+e) Promover y desarrollar una elección que respete los principios de igualdad, publicidad, participación y legalidad.
+f) Iniciar y cerrar las Asambleas de Elección, manteniendo el control general durante el proceso.
+g) Hacer el escrutinio de los votos, levantar, firmar y sellar el Acta de cada Asamblea e informar de inmediato a la Asesoría de Desconcentración y Juntas de Salud o a quien la Junta Directiva delegue, sobre los resultados obtenidos, por los medios y al lugar acordado de antemano.
+h) Velar porque las candidaturas guarden relación con la jurisprudencia del Tribunal Supremo de Elecciones y de la Sala Constitucional, en cuanto a la proporcionalidad de la representación por género.
+i) Resolver en tiempo y forma, los recursos de revocatoria que se hayan presentado contra sus disposiciones y elevar ante la Asesoría de Desconcentración y Juntas de Salud o quien la Junta Directiva delegue, los recursos de apelaciones correspondientes.
+j) Resolver oportunamente las denuncias que se interpongan durante el proceso de elección.
+k) Cualquier otro afín a su competencia.
+Será válido que las personas sean miembros de un Comité Electoral de determinado establecimiento y ser candidato de otro establecimiento distinto.
+Los lineamientos para la asesoría, la capacitación, el acompañamiento y la definición estratégica y logística del proceso de elección estará a cargo de la Asesoría de Desconcentración y Juntas de Salud o a quien la Junta Directiva delegue.
+Para los efectos de los artículos anteriores de este Capítulo, la Caja emitirá el Manual respectivo.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de Aplicación. El presente Reglamento pretende regular el funcionamiento de las Juntas de Salud a nivel nacional, considerando a éstas como organizaciones auxiliares de la atención pública de la salud, siendo que los servicios sean prestados directamente por la Caja Costarricense de Seguro Social o a través del modelo de gestión por terceros.

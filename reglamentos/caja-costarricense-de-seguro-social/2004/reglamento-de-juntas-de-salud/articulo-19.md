@@ -1,0 +1,8 @@
+Artículo 19.—Forma de elección y requisitos de los representantes
+de los Asegurados. Dos de los representantes serán electos mediante votación directa, por los asegurados de la zona de adscripción directa del establecimiento de salud, en asamblea de asegurados que se convocará al efecto, con la debida antelación y comunicación, en las fechas previstas por la Junta Directiva, en la sede del centro de salud. El otro de los representantes será electo, de entre ellos, por los representantes de los asegurados de la Junta de Salud saliente, al menos un mes antes de las elecciones y lo comunicará inmediatamente, por escrito, a la Asesoría de Desconcentración y Juntas de Salud o a quien la Junta Directiva delegue. Si por alguna razón no se diera la elección o no se le comunique a quien proceda en el plazo convenido, durante la Asamblea se eligirán entre los candidatos existentes, los tres puestos dispuestos en la Junta de Salud para este sector.
+Los requisitos para los candidatos y electores que participen de la asamblea de asegurados serán los siguientes:
+a) Presentación de la cédula de identidad.
+b) Carné de asegurado.
+c) Presentación de su orden patronal con validez al menos al mes anterior al de la celebración de la Asamblea respectiva. En caso de pensionados o asegurados familiares, presentación del carné respectivo.
+d) Que tenga la condición de asegurado, independientemente del tipo de seguro que se trate.
+El derecho de voto le asiste a todos los asegurados, es personal y no se permitirá ejercerlo mediante representante, salvo los casos estipulados en el artículo 25 del presente Reglamento.

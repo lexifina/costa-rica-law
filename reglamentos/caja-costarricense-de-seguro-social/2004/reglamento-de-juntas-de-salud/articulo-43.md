@@ -1,0 +1,1 @@
+Artículo 43.—Derogaciones. Este Reglamento deroga el Reglamento de las Juntas de Salud publicado en La Gaceta número 139, del 19 de julio de 1999, así como cualquier otra norma reglamentaria que se oponga a las disposiciones del presente Reglamento.
