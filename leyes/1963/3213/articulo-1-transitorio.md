@@ -1,0 +1,2 @@
+Transitorio.- Las pensiones otorgadas directamente por medio de las leyes que se enuncian en el artículo 1º, o por las que éstas reformaron, de oficio deberán ser aumentadas a doscientos colones (¢ 200.00) mensuales a partir de enero de 1964. En cuanto a los traspasos, el aumento se hará en la proporción indicada por las leyes respectivas y por el artículo 2º de la presente.
+Casa Presidencial.-San José, a los ocho días del mes de octubre de mil novecientos sesenta y tres.
