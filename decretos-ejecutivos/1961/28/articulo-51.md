@@ -1,3 +1,0 @@
-Artículo 51.- Todas las quejas, peticiones, reclamos, sugerencias, etc., nacidas de la relación laboral, deberán ser dirigidas por los servidores al jefe inmediato superior.
-No obstante lo apuntado, cuando el jefe inmediato superior se considere incompetente para resolver algún asunto especial, podrá autorizar al servidor para que éste se dirija al jefe inmediato superior, debiéndose seguir el estricto orden jerárquico.
-También podrá un servidor recurrir a un jefe superior si demuestra que su jefe inmediato no ha cumplido con la obligación de atender su gestión, o si por cualquier motivo se establece conflicto entre el subalterno y el jefe inmediato.

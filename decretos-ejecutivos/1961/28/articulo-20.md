@@ -1,1 +1,0 @@
-Artículo 20.- No obstante lo dispuesto en el artículo anterior, si el servidor que marcó la tarjeta de otro por erros evidente o al que le marcaron la misma, informa el hecho ante quien corresponda, a más tardar en la siguiente fracción de jornada, la falta se estimará como leve únicamente.

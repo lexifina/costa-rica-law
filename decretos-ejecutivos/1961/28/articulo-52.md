@@ -1,1 +1,0 @@
-Artículo 52.- Además de considerare sin efecto todas aquellas gestiones que no se adaptan a los término previstos en el artículo anterior de ese Reglamento, se podrá imponer una sanción en caso de reincidencia y de acuerdo con ña gravedad de la falta, hasta de suspensión del trabajo, cuando el servidor no haya seguido el orden jerárquico.

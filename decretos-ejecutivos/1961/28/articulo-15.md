@@ -1,3 +1,0 @@
-Artículo 15.- Todo trabajo realizado fuera de las jornadas limitadas en los artículo 10 y 11 de este Reglamento, o durante los días no hábiles, será considerado como extraordinario y se remunerará conforme a la ley.
-El trabajo extraordinaria solo podrá autorizarse en situaciones excepcionales, cuando sea indispensable satisfacer exigencias especiales del servicio público. (Artículo 17 Ley de Salarios)
-No se reconocerá, en ningún caso, el trabajo extraordinaria ejecutado sin la autorización previa del Ministro, a solicitud del jefe de la dependencia respectiva. Tampoco se reconocerá como trabajo extraordinaria el tiempo necesario para subsanar los errores imputables sólo al servidor, y que hubiere cometido dentro de la jornada ordinaria.

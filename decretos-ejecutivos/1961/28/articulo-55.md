@@ -1,1 +1,0 @@
-Artículo 55.- A falta de disposiciones en este Reglamento aplicables a un caso determinado, deben tenerse como normas supletorias el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y demás leyes y Reglamentos supletorios o conexos.

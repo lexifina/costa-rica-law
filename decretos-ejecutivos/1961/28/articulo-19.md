@@ -1,2 +1,0 @@
-Artículo 19.- El servidor que intencionalmente marcare tarjeta que no le corresponda, incurrirá en falta grave a sus obligaciones haciéndose acreedor, por la primera vez, a suspensión disciplinaria hasta por ocho días, y en caso de reincidencia, despido sin responsabilidad por parte del Ministerio.
-La misma sanción se le aplicará al servidor que se le compruebe haber consentido que otro le marcara su tarjeta de registro.

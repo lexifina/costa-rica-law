@@ -1,2 +1,0 @@
-Artículo 54.- Cada una de las dependencias a que se refiere el artículo 4° del presente Reglamento, llevará para cada servidor un expediente personal que contenga los documentos relativos a su empleo y constancia de todos aquellos datos que sirvan para ,mantener un historial de sus servicios, lo más exacto posible.
-Se llevará también un prontuario para cada servidor, en el que se anotarán las calificaciones periódicas, las ausencias y llegadas tardías, correcciones disciplinarias, vacaciones y cualesquiera otros datos de acciones de personal que se estimen de importancia.
