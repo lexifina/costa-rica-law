@@ -1,0 +1,3 @@
+Artículo II.- Gastos de la Unión.
+1. Por derogación del artículo 128 se agregará un monto de 100.000 francos suizos al límite de los gastos anuales correspondientes a las actividades de los órganos de la Unión para el año 1975 debido a los gastos inherentes a la entrada en vigor, a partir del 1º de enero de 1975, del nuevo sistema de contabilidad de los cupones respuesta internacionales.
+2. Por derogación del artículo 122, párrafo 1, el Consejo Ejecutivo o en caso de extrema urgencia, el Director General, podrá autorizar que se rebasen los límites fijados para hacer frente a reparaciones importantes e imprevistas del edificio de la Oficina Internacional sin que, no obstante, el monto a rebasar exceda de 65.000 francos suizos por año.
