@@ -1,0 +1,4 @@
+Artículo 34.-El contribuyente o su representante que considere ilegal la resolución que dicte el Jefe de de la Oficina de la Tributación, de acuerdo can el artículo anterior, podrá apelar de dicha resolución, dentro de los cinco días siguientes a su notificación, por carta certificada.
+El recurso se interpondrá ante la Oficina de la Tributación y conocerá de él en alzada cualquiera de las Sala" Civiles.
+Tanto la Tributación como la Sala de Apelaciones, se sujetarán a los preceptos del Código de Procedimientos Civiles en todo cuanto se relacione con la admisión, substanciación y fallo del recurso.
+El Jefe de la Tributación, en representación del Fisco, y los contribuyentes, podrán interponer recurso de casación, el cual se regirá en todo por las reglas que para dicho recurso prescribe el Código de Procedimientos Civiles.

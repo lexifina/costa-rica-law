@@ -1,0 +1,1 @@
+Articulo 58.-El Director General de la Tributación acreditará su personería ante el Juez Civil de Hacienda, con la sola cita de su nombramiento y de la fecha y número de La Gaceta en que hubiera sido publicado.

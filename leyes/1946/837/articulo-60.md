@@ -1,0 +1,1 @@
+Artículo 60.-La aplicación de la presente ley corresponderá a la Dirección General de la Tributación, de conformidad con la N° 121 del 20 de julio de 1945, y será reglamentada por dicha Dirección General, Con aprobación del Poder Ejecutivo.

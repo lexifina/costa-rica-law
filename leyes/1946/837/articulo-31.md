@@ -1,0 +1,2 @@
+Artículo 31.-Si de la revisión practicada por la Oficina de la Tributación resultare como imposición una cantidad menor que la ya pagada, el excedente, previa resolución de la Oficina de la Tributación, será devuelto al contribuyente o abonado a futuros impuestos, si éste lo desea.
+Las devoluciones de impuestos pagados en exceso se ordenarán por el Poder Ejecutivo. Para este efecto, la Oficina de la Tributación comunicará, a la Secretaría de Hacienda las resoluciones que dicte sobre la materia.

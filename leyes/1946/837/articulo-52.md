@@ -1,0 +1,1 @@
+Artículo 52.-EI Director General de la Tributación, o el personero legal que éste designe, deberá iniciar todas las demandas, a más tardar, dentro de los sesenta días siguientes a la fecha en que se hubieren expedido las certificaciones de falta de pago.
