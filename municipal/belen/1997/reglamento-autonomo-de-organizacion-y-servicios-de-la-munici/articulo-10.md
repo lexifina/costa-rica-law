@@ -1,0 +1,1 @@
+Artículo 10. En los casos de ascensos o traslados habrá un período de prueba no menor de dos meses de tal manera que el trabajador ascendido o trasladado podrá ser reintegrado a su anterior ocupación cuando el Patrono estime que no reúne satisfactoriamente las condiciones requeridas para el normal desempeño del empleado en cuestión.

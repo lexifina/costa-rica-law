@@ -1,0 +1,1 @@
+Artículo 93. Cuando así se requiera, para mejor cumplir el compromiso anterior, el Ejecutivo Municipal, a petición razonada de la jefatura correspondiente, dictará resolución para declarar al servidor en disponibilidad.

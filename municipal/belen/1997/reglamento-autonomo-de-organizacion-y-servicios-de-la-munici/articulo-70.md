@@ -1,0 +1,1 @@
+Artículo 70. Para que la Municipalidad de Belén conceda el beneficio de Carrera Profesional, se requiere que la naturaleza del trabajo desempeñado por el beneficiario esté acorde con su título profesional.

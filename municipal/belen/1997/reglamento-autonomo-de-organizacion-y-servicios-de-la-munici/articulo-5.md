@@ -1,0 +1,1 @@
+Artículo 5. El Ejecutivo Municipal y/o el Jefe de la Unidad de Recursos Humanos controlará todo lo correspondiente a nombramientos, procedimientos disciplinarios, sanciones, despidos, cambios de puesto, ascensos.

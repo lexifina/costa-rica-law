@@ -1,0 +1,1 @@
+Artículo 21. Al terminar el contrato de trabajo o relación de servicio, el pago de las vacaciones no disfrutadas se hará con base en el promedio de los salarios ordinarios y extraordinarios devengados por el trabajador durante las cincuenta semanas de trabajo, o durante el tiempo que le otorga derecho proporcional a las mismas.
