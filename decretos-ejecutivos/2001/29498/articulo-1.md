@@ -54,7 +54,7 @@ Canales, del primer
 puente, 400 m al sur
 VIII.—Que atendiendo a lo expuesto, así como a las razones de interés público que inspiran el artículo 15 de la Ley Nº 7471, y al hecho de que el Ministerio de Gobernación Policía y Segundad Pública requiere bienes inmuebles para el cumplimiento de sus fines, con el menor costo posible para el Erario Público, el Poder Ejecutivo debe procurar la dotación de los recursos materiales necesarios, a efecto de solventar tal necesidad. Por tanto,
 Decretan:
-Artículo 1º—Asignar al Ministerio de Gobernación, Policía y Segundad Pública, con el objeto de que cumpla con los fines que le han sido legalmente encomendados, los siguientes bienes inmuebles inventariados y refrendados, que anteriormente pertenecían al disuelto Banco Anglo y que en la actualidad son propiedad en abstracto del Estado:
+Artículo 1º—Asignar al Ministerio de Seguridad Pública, con el objeto de que cumpla con los fines que le han sido legalmente encomendados, los siguientes bienes inmuebles inventariados y refrendados, que anteriormente pertenecían al disuelto Banco Anglo y que en la actualidad son propiedad en abstracto del Estado:
 PROVINCIA DE SAN JOSÉ
 Folio Monto
 Real Cantón Distrito Avalúo ¢
@@ -94,3 +94,4 @@ Cruz Caserío Bernabela
 055064-000 Carrillo Sardinal, Ocotal, Barrio SL018-94 3.084.800,00
 Canales, del primer
 puente, 400 m al sur
+(Reformado parcialmente por el artículo 1° del Decreto N° 30549 del 19 de junio del 2002)

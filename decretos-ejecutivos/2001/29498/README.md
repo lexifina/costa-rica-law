@@ -14,3 +14,4 @@ Asigna al Ministerio de Gobernación, Policía y Seguridad Pública Bienes Inmue
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-12 | la propia norma |
+| 2 | 2002-06-19 | Decreto Ejecutivo 30549 (2002-06-19) |
