@@ -1,0 +1,1 @@
+Artículo 83.-Los torrefactores de café legalmente, inscritos también como exportadores de café, en el Instituto mediante el trámite de contrato podrán adquirir café de la cuota de exportación para ser industrializado y exportado, debiéndose informar a la Dirección Ejecutiva del día y hora de su industrialización.

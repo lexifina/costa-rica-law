@@ -1,0 +1,1 @@
+Artículo 30.-La fijación de cuotas y porcentajes máximos de que hablan los dos artículos anteriores, lo mismo que las modificaciones a los mismos, deberán ser comunicadas por escrito a los beneficiadores, exportadores y torrefactores.

@@ -1,0 +1,2 @@
+Artículo 42.-Además de las liquidaciones provisionales trimestrales ordinarias y pagos correspondientes, los beneficiadores deberán efectuar liquidaciones provisionales extraordinarias y sus respectivos pagos, en el momento en que las ventas efectivas del trimestre en curso, alcancen el cien por ciento de la cifra de ventas reales del trimestre.
+Por ventas efectivas se entenderán aquellas cuyo pago hubiera recibido el beneficiador o fuere legalmente exigible por éste.

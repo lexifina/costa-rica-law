@@ -1,0 +1,1 @@
+Artículo 52.-Para todos los efectos. se considerará la oficina de la firma beneficiadora, como lugar de pago de las liquidaciones provisionales trimestrales o extraordinarias así como de la definitiva.

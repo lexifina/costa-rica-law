@@ -1,0 +1,2 @@
+Artículo 22.-Los beneficiadores, no importa la modalidad o tipo de planta que posean, están obligados a mostrar a los funcionarios de Auditoría del Instituto, los libros de contabilidad y documentos anexos, cuando sea necesario para comprobar la veracidad de cualquiera de los datos suministrados.
+Para estos efectos, los libros de contabilidad deberán contener un detalle o desglose adecuado de todas las partidas contables.

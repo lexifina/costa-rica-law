@@ -1,0 +1,2 @@
+Artículo 131.-Los remates se harán por cada partida de las que integran el catálogo, con sujección al número de orden de las mismas. El martillero dará lectura a las ofertas una por una, solicitando propuestas sobre las mismas.
+Tanto las propuestas como las mejoras presentadas en el acto de remate se anunciarán en voz alta. La adjudicación será ordenada por el martíllero una vez que no haya quién mejore la última oferta. El martillero debe ser Corredor Jurado.

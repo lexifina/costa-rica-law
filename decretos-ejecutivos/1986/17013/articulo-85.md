@@ -1,0 +1,1 @@
+Artículo 85.-Cuando el precio consignado en un contrato por inscribir, sea visiblemente inferior a los precios prevalecientes en el mercado, el Director Ejecutivo deberá someter ese contrato a conocimiento de la Junta Directiva en la sesión inmediata siguiente, para que resuelva si se inscribe o se rechaza la inscripción.

@@ -1,0 +1,1 @@
+Artículo 94.-Los permisos de exportación caducarán un mes después de su expedición, y podrán se revalidados únicamente por quince días adicionales, a solicitud de los interesados. En todo caso, la validez de los permisos de exportación no podrá extenderse más allá del último de setiembre del respectivo año cafetero.

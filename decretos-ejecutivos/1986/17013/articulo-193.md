@@ -1,0 +1,1 @@
+Artículo 193.-La Dirección Ejecutiva del Instituto del Café de Costa Rica está facultada para no dar trámite a las gestiones de los beneficiadores, exportadores y torrefactores que, la su juicio, no hayan cumplido las respectivas obligaciones que establece la ley y el presente Reglamento.

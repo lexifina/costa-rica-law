@@ -1,0 +1,1 @@
+Artículo 53.--Cuando la Junta Directiva del Instituto. acordare modificar los plazos de los artículos 57, 59 y 60 de la ley. en proporción al retraso justificado que se produzca en las exportaciones de café, u otras circunstancias, el acuerdo deberá incluir las nuevas fechas y términos, las cuales se comunicarán por escrito a los interesados.

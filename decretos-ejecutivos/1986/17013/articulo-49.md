@@ -1,0 +1,1 @@
+Artículo 49.-La Junta de Liquidaciones, salvo lo dispuesto por el artículo 60 de la ley, a más tardar el último día del mes de octubre siguiente a la cosecha deberá concluir la revisión de las liquidaciones proforma y los proyectos de liquidación de oficio presentados por el Departamento de Liquidaciones y haber determinado los precios oficiales de liquidación.

@@ -1,0 +1,1 @@
+Artículo 175.-De conformidad con el artículo 38 de la ley el Instituto del Café podrá operar un Almacén General de Depósito para café para lo cual podrá usar los recursos propios o financiarse con el Sistema Bancario Nacional para este efecto.

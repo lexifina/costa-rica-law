@@ -1,0 +1,1 @@
+Artículo 186.-El Instituto del Café de Costa Rica, el Ministerio de Agricultura y Ganadería y el Banco Central de Costa Rica, elaborarán informes para el congreso sobre las materias de sus respectivas competencias, en relación con la actividad cafetera, conforme lo determine en su reglamentación.

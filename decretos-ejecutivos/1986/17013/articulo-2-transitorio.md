@@ -1,0 +1,1 @@
+Transitorio II: Para el ajuste de las garantías que deben rendir los exportadores y torrefactores, según lo establecido por los artículos 57 y 125 de este Reglamento, se concede un plazo improrrogable de un mes calendario a partir de la publicación de este Decreto.

@@ -1,0 +1,1 @@
+Artículo 190.-Se prohíbe la operación de plantas torrefactoras dentro de los beneficios, excepto cuando la planta y el beneficio sean propiedad cooperativa. El Instituto del Café de Costa Rica no tramitará gestiones de las plantas torrefactoras que incumplan esta prohibición.

@@ -1,0 +1,1 @@
+Artículo 88.-La Junta Directiva podrá solicitar al beneficiador, muestras de café de los contratos referidos en los artículos anteriores, para lo cual otorgará como mínimo tres días hábiles, contados a partir del momento de notificada la solicitud. Si el beneficiador in cumple la entrega de muestras, se rechazará el contrato. Contra esta resolución no cabrá recurso alguno.

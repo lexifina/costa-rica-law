@@ -1,0 +1,1 @@
+Artículo 178.-Los balances y estados del Instituto deberán ser firmados por el Director Ejecutivo y el Jefe del Departamento Financiero Contable, siendo solidariamente responsable por la exactitud y corrección de esos documentos.

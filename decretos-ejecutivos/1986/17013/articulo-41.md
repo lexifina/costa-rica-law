@@ -1,0 +1,2 @@
+Artículo 41.-El Instituto mantendrá al día, estudios de precios de insumos, mercancías, servicios y otros aspectos relacionados con los, costos de elaboración del café. Para tal propósito, los beneficiadores están obligados a suministrar conforme lo establece la Ley, la información necesaria y al día para la elaboración de tales estudios.
+El Instituto, informará trimestralmente o con la frecuencia necesaria, a la Junta de Liquidaciones, sobre el resultado de los indicados estudios, para que ésta pueda contar con información suficiente para el cumplimiento de su cometido.

@@ -1,0 +1,1 @@
+Articulo 176.-El Instituto del Café de Costa Rica estará sujeto a la fiscalización de la Contraloría General de la República, de acuerdo con las disposiciones legales de la misma, y de la Dirección General de Hacienda, de acuerdo con las disposiciones de la ley N° 3022 del 27 de agosto de 1962.

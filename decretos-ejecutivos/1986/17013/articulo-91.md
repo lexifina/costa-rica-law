@@ -1,0 +1,1 @@
+Artículo 91.-El precio oficial de venta del café de exportación, será aquél que conste en los contratos inscritos en el registro que al efecto lleve el Instituto del Café, incluyendo la corrección de precio que se hubiere hecho de acuerdo con las disposiciones del artículo 109 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 90.-El precio de los contratos de compraventa de café para la exportación, no podrá estar afectado por intereses, comisión ni descuento alguno originado en financiación o adelantos recibidos por el beneficiador.

@@ -1,0 +1,1 @@
+Artículo 120.-La inscripción da partidas en la Bolsa del Café de Consumo Nacional se hará por orden de presentación, asignándole un número a cada una. Inscrita una partida, la oferta no podrá ser retirada.

@@ -1,0 +1,2 @@
+Artículo 115.-La Junta Directiva expresamente autorizará a las zonas productoras para cada cosecha y en circunstancias muy calificadas, a los cuales se les exima vender café a través de la Bolsa del Café de Consumo Nacional y los lugares en donde dicho café puede ser usado por las plantas torrefactoras.
+El acuerdo deberá publicarse en el Diario Oficial y en dos de los diarios de circulación nacional.

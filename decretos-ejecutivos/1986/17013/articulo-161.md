@@ -1,0 +1,2 @@
+Artículo 161.-La Junta Directiva se reunirá en sesión ordinaria una por semana y extraordinariamente cuando ella así lo acuerde o cada vez sea convocada al efecto por el Director Ejecutivo. por sí o a petición del presidente o de dos de los miembros de la Junta Directiva.
+Los miembros de la Junta Directiva, propietarios y suplentes, devengarán dietas, cuyo monto se determinará en los presupuestos anuales del Instituto

@@ -1,0 +1,1 @@
+Artículo 148.-De conformidad con el artículo 84 de la ley y para efecto de financiar la adquisición de las partidas de café que se pretendan registrar a precios inferiores a los normales, el Instituto de Café mantendrá una reserva permanente para la compra de café de exportación que anualmente y mediante presupuesto aprobará la Junta Directiva del Instituto.

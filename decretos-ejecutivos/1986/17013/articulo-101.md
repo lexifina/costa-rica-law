@@ -1,0 +1,1 @@
+Artículo 101.-Cuando por conveniencia del mercado se necesite efectuar mezclas de varias partidas o mejorar su presentación, el exportador podrá realizarlas haciendo uso de sus propias marcas, bajo la vigilancia del Instituto del Café.

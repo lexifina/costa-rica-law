@@ -1,0 +1,1 @@
+Artículo 56.-Las fórmulas de certificado de prenda que usen los beneficiadores para otorgar crédito a los productores tendrán como no puestas aquellas cláusulas que contravengan las disposiciones de la ley.

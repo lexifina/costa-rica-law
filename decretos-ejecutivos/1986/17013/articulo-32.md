@@ -1,0 +1,1 @@
+Artículo 32.-El café de la cuota de exportación no vendido o no exportado al treinta de setiembre por voluntad de los beneficiadores, deberá ser destinado a consumo nacional, debiendo hacerse la respectiva inscripción en la Bolsa del Café de Consumo Nacional, en el transcurso de, los quince días siguientes a tal fecha.

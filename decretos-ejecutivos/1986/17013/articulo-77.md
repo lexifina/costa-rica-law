@@ -1,0 +1,1 @@
+Artículo 77 .-Los traspasos de contratos entre beneficiadores, deberán comunicarse al Instituto v sólo serán permitidos. cuando a los clientes del beneficio transmitente no perjudique la cesión o el traspaso en la correspondiente determinación de precios de liquidación final a juicio del Director.

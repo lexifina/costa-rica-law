@@ -1,0 +1,1 @@
+Artículo 123.-Para que sea presentado en el transcurso de los ocho días siguientes el Instituto del Café de Costa Rica ordenará a los interesados con café inscrito, la entrega del mismo, para ser tratado e incluido en remate.

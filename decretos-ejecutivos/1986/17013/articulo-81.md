@@ -1,0 +1,1 @@
+Artículo 81.-La anulación de los contratos solamente procederá en el caso de que éstos hayan sido declarados inexistentes por vicio o nulidad relativa no subsanada o nulidad absoluta en su conformación, y la misma deberá anotarse en el respectivo registro de contratos.
