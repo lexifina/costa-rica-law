@@ -1,0 +1,1 @@
+2°—Todos los permisos de construcción aprobados por el Colegio Federado de Ingenieros y Arquitectos de Costa Rica y la Oficina Centralizadora para con fecha anterior a la entrada en vigencia de este Plan Regulador, observarán la Normativa General vigente para entonces.

@@ -1,0 +1,3 @@
+Artículo 36.—Forestación Urbana.
+Para las nuevas urbanizaciones, en el proyecto respectivo por aprobar, deberá contemplarse en forma expresa un plan e inversiones para la arborización con especie ornamentales nativas del cantón, que incluya la disposición de árboles señalando su especie y ubicación. Deberá utilizarse árboles de raíz profunda para el lado de la vía libre de líneas de alumbrado y arbustos de flor para el lado por donde corran las líneas eléctricas y telefónicas. Al recibirse la urbanización los arbolitos correspondientes deberán estar en un 90% en buen estado.
+Para las calles existentes, la Municipalidad desarrollará su propio plan de forestación.

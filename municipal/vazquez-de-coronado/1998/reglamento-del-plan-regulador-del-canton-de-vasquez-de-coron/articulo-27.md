@@ -1,0 +1,2 @@
+Artículo 27.—Requisitos de Forestación en Áreas de Protección.
+Los lotes que. deben cumplir con el Art. 25 de este Reglamento, por contar con cauces o nacientes permanentes y que. sean parte de una misma propiedad, deberán presentar como uno de los requisitos para solicitar permiso de construcción, una constancia de que la porción de terreno en zona de protección está forestada, la cual no será menor al 30% del lote y se hará con especies nativas de la región con constancia emitida por el MINAE.

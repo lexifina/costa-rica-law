@@ -1,0 +1,2 @@
+Artículo 31.—Centros de Tratamiento y Disposición de Desechos Sólidos
+En zonas donde se considere ubicar un Centro de Tratamiento y Disposición de los Desechos Sólidos como uso condicional o permitido, deberá existir un Estudio de Impacto Ambiental avalado por el Ministerio del Ambiente y Energía con base en la Ley Orgánica del Ambiente y su aprobación estará sujeta a la realización de una Audiencia Pública.

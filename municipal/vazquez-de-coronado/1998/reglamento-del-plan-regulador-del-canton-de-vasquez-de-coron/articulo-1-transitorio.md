@@ -1,0 +1,2 @@
+TRANSITORIOS
+1°—Los anteproyectos de urbanizaciones tramitadas en el Departamento de Ingeniería Municipal y con acuerdo del Consejo Municipal antes de la fecha de entrada en vigencia de este Plan Regulador observarán la normativa General vigente para entonces . A partir de esta fecha se dará un plazo de seis meses para la aprobación de estos proyectos, posterior a lo cual todo caso no aprobado tendrá que ajustarse a las disposiciones del Plan Regulador.
