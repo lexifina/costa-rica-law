@@ -14,3 +14,4 @@ Reglamento Interno de la Junta Directiva de la Empresa de Servicios Públicos de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-05 | la propia norma |
+| 2 | 2000-04-10 | Reglamento 2196 (2000-04-10) |
