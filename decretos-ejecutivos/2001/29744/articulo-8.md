@@ -1,0 +1,1 @@
+Artículo 8º—En caso de renuncia, el representante deberá comunicarlo por escrito, al Ministerio de Justicia con al menos quince días de anticipación. La Junta Administrativa de la Fundación solicitará el nombramiento del nuevo representante.
