@@ -1,0 +1,2 @@
+Artículo XV.
+Morenas se obliga á no permitir á bordo de sus vapores el transporte de tropas ó municiones de guerra desde los puertos en los cuales tocan éstos á los Costa Rica ó puertos adyacentes, si tiene motivos para suponer que el material pueda ser usado contra el Gobierno de esta República, ó que se intente guerra ó pillaje, para lo cual bastará cualquiera indicación de este Gobierno ó de sus representantes en aquellos puertos.

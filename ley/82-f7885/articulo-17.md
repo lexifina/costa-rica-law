@@ -1,0 +1,2 @@
+Artículo XVII.
+El Gobierno de Costa Rica puede contratar libremente con cualesquiera otros individuos ó compañías para el establecimiento de nuevas líneas de comunicación entre los puertos á que este contrato se refiere; pero se obliga él mismo á no conceder, por el término de este contrato, mejores condiciones ó mayores ventajas que las aquí estipuladas, á no ser en favor de nuevas líneas de navegación ó embarcaciones que hagan el comercio de cabotaje ó que naveguen con bandera de esta República.
