@@ -1,3 +1,2 @@
-Artículo 117.—La tasa de interés que se aplicará a los préstamos hipotecarios, no podrá ser superior al 6 % anual.
-La cuota de amortización podrá estipularse libremente, pero no podrá ser inferior al 2 % anual, en fondo acumulativo.
-La comisión que cobre el Banco no podrá exceder del 1 % anual.
+Artículo 117.- La tasa de interés que se aplicará a los préstamos hipotecarios, la fijará la Junta Directiva, tomando en consideración la clase de operaciones dentro de la Sección respectiva, y la podrá modificar de acuerdo con las condiciones del momento, pero sin que esa modificación afecte las operaciones constituídas Dicha tasa no podrá exceder en ningún caso del ocho por ciento anual. También fijará la cuota de amortización, que no podrá ser inferior al dos por ciento anual, en fondo acumulativo. Todo ello con aprobación del Banco Central de Costa Rica.
+(Así reformado por el artículo 1° de la ley N° 1487 del 8 de agosto de 1952)
