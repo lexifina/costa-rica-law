@@ -1,0 +1,1 @@
+Artículo 14.-Será ineficaz el traspaso de cualquier objeto arqueológico que se haga sin una autorización debidamente anotada en el Registro del Museo, de conformidad con los preceptos 10 y 11 de esta ley.

@@ -1,0 +1,1 @@
+Artículo 23.-La autorización de que habla el artículo 19 no le será otorgada a particulares sino cuando demuestren satisfactoriamente su idoneidad en materias arqueológicas y, sobre todo, la circunstancia de que sólo les guía propósitos de orden científico.

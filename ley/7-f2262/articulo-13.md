@@ -1,0 +1,1 @@
+Artículo 13.-Es entendido que cuando se trate de objetos arqueológicos de la época pre-colombina comprendidos en el renglón 1º del artículo anterior, en Estado conservará derecho preferente para su adquisición en el evento de que el dueño dispusiera traspasarlos por cualquier título a tercero. La regla 6º de esta ley servirá de pauta para el caso.

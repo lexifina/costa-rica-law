@@ -1,0 +1,1 @@
+Artículo 26.-El Estado en ningún caso responderá de los menoscabos que sufra el propietario del fundo donde se practique la excavación, por causa de ésta. Cualquier cuestión civil que se derive de exploraciones o excavaciones en bienes de terceros habrá de ventilarse en la vía correspondiente sin perjuicio para el Estado.

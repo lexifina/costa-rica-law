@@ -1,0 +1,1 @@
+Artículo 24.-De acuerdo con lo preceptuado por esta ley, todas las especies arqueológicas que sean descubiertas por corporaciones o por individuos, nacionales o extranjeros, serán inscritas en el Museo Nacional en los registros e inventarios que les corresponden.

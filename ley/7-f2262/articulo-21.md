@@ -1,0 +1,1 @@
+Artículo 21.-El Museo Nacional podrá hacerse representar en las expediciones arqueológicas que se autoricen con arreglo a esta ley, así como facilitarle el acceso al campo de exploraciones a los profesores y estudiantes que desearen aprovechar la oportunidad para sus estudios, siempre que cuenten con la licencia expresa del Director del respectivo establecimiento docente.
