@@ -14,3 +14,4 @@ Concede beneficios a "Carlos Luis Odio Limitada" para su planta industrial desti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-04-08 | la propia norma |
+| 2 | 1970-06-10 | Decreto Ejecutivo 1035 (1970-06-10) |
