@@ -1,0 +1,2 @@
+Art. 2°-Con el presente decreto se dará cuenta á la Representación Nacional en la siguiente reunión ordinaria.
+AL PODER EJECUTIVO. Dado en el salón de sesiones del Palacio Nacional, en San José, á los treinta y un días del mes de marzo de mil ochocientos ochenta y cuatro.-A. DE JESÚS SOTO, Presidente.- LEOVIGILDO CASTRO S., Secretario.-Alajuela, á treinta y uno de marzo de mil ochocientos ochenta y cuatro.-Ejecútese.-P. FERNÁNDEZ-El Secretario de Estado en el Despacho de Obras Públicas.-BERNARDO SOTO.
