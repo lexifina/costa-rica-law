@@ -1,0 +1,2 @@
+Debidamente autorizada por la Contraloría General de la República, mediante oficio N° 08760, del 12 de agosto del 2003, la Municipalidad de Grecia, comunica el establecimiento de la tasa mensual de ¢9,94 (nueve colones noventa y cuatro céntimos), por metro lineal de frente, para todas las propiedades del distrito primero o central del cantón, la cual regirá treinta días después de la presente publicación.
+Grecia, 18 de agosto del 2003.—
