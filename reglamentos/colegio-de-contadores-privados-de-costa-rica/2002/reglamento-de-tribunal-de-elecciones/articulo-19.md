@@ -1,0 +1,1 @@
+Artículo 19.—Tendrán derecho al voto aquellos colegiados que se encuentren debidamente inscritos en la asamblea de elección. Dicha inscripción se permite que se realice antes del cierre de la misma. Para realizar la votación el Tribunal tomará las medidas pertinentes para que el colegiado inscrito que se encuentre dentro del recinto pueda ejercer su voto.

@@ -1,0 +1,1 @@
+Artículo 11.—Una vez recibida la solicitud de inscripción, el Tribunal procederá a emitir la resolución correspondiente. Las tendencias tendrán ocho días naturales para corregir las deficiencias señaladas por el Tribunal. Las mismas quedarán inscritas por un período de elecciones y no podrán cambiar su situación una vez aprobada.

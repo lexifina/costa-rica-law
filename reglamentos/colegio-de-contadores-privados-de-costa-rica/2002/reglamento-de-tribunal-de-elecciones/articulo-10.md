@@ -1,0 +1,1 @@
+Artículo 10.—La organización de tendencias, entiéndase por ésta grupos o postulante individuales, será libre para los colegiados. Para inscribir la tendencia los interesados deberán presentar formal solicitud ante el Tribunal, de conformidad con los requisitos que el mismo establezca.

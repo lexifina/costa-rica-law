@@ -1,0 +1,3 @@
+Artículo 31.—La elección de los miembros de junta directiva de los consejos regionales estará a cargo el Tribunal, quedando este facultado para nombrar hasta dos delegados debidamente juramentados por el presidente del Tribunal, cuando ningún miembro del Tribunal pueda asistir; que supervisarán el debido proceso electoral.
+Este Reglamento deroga cualquier disposición anterior que se le oponga y rige a partir de su publicación en el Diario Oficial La Gaceta.
+Aprobado por Junta Directiva en sesión Nº 2939-2002 del 7 de noviembre del 2002. Reformado y aprobado en asamblea general ordinaria Nº 85-2002 del día 8 de diciembre del año 2002.).

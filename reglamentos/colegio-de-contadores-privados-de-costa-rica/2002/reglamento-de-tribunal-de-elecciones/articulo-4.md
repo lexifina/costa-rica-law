@@ -1,0 +1,1 @@
+Artículo 4º—No podrán formar parte del Tribunal, los miembros de la Junta Directiva del Colegio, directores de los órganos con miembros nombrados por asamblea, miembros de comisiones de trabajo y funcionarios del colegio.

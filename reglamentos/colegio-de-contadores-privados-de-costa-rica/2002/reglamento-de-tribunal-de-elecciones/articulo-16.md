@@ -1,0 +1,1 @@
+Artículo 16.—Durante el período preelectoral únicamente el Tribunal estará facultado para autorizar la colocación de propaganda y la realización de actividades proselitistas en las instalaciones del Colegio, en coordinación con la Dirección Ejecutiva.

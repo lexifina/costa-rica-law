@@ -1,0 +1,1 @@
+Artículo 7º—Las ausencias temporales del presidente serán llenadas por el vicepresidente y en ausencia de este por el primer o segundo vocal en su orden y en ausencia de este por el primero y segundo vocal en su orden y en cualquiera de los otros los sustituirán el primer y segundo vocal en su orden.

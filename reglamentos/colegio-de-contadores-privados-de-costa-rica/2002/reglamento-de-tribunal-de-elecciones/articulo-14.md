@@ -1,0 +1,3 @@
+CAPÍTULO III
+Atribuciones del Tribunal
+Artículo 14.—El Tribunal de Elecciones publicará en un diario de circulación nacional con quince días hábiles antes del primer lunes de enero de cada año, la convocatoria para la elección de tendencias por un periodo que iniciará el primer lunes de enero y cerrará el primer lunes de febrero de cada año. El período de proselitismo para las tendencias será del 1er. Lunes de febrero hasta el día de la elección. La inscripción de las tendencias se hará en la sede del Tribunal de Elecciones, en horas de oficina, ante la presencia del fiscal administrativo del Colegio.

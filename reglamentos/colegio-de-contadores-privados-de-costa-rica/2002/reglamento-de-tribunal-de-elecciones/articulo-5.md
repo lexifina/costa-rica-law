@@ -1,0 +1,1 @@
+Artículo 5º—La ausencia inmotivada de uno de los miembros a tres sesiones ordinarias consecutivas o a cinco en el término de cuatro meses, se hará acreedor a la destitución, de lo cual se informará a la Junta Directiva para efectos de lo establecido en el artículo 3º supra.
