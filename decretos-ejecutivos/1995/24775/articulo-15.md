@@ -1,0 +1,4 @@
+Artículo 15: Modifíquese el artículo 42, cuyo texto se leerá así:
+"Artículo 42.- Facturación y timbre fiscal: La Administración Tributaria está autorizada para ordenar con carácter general o especial, el uso de facturas autorizadas o timbres fiscales controlados, a fin de asegurarse una correcta fiscalización y percepción de los impuestos que administra, de acuerdo con lo indicado en el artículo 25 de la Ley.
+La implantación de los indicados dispositivos de control se hará mediante resolución escrita emitida por la Dirección, en la que se indicará el alcance, naturaleza y fecha de vigencia, la resolución deberá ser publicada en "La Gaceta".
+En caso de desaparición o perdida de las facturas, el contribuyente está obligado a informarlo a la Administración Tributaria, dentro de los tres días siguientes a la desaparición o perdida."
