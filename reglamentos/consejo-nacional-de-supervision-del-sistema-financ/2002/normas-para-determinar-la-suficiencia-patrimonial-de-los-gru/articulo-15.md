@@ -1,0 +1,3 @@
+Artículo 15.—La sociedad controladora deberá calcular y remitir al supervisor designado, el cálculo del superávit o déficit patrimonial del grupo o del conglomerado financiero.
+Dicho reporte deberá prepararse con base en los formatos anexos a esta normativa y remitirse trimestralmente, como un reporte adicional, conjuntamente con los estados financieros trimestrales consolidados del grupo o del conglomerado. Deberá estar firmado por el representante legal de la sociedad controladora, el contador y el auditor interno del grupo financiero o del conglomerado financiero.
+Para cada cierre anual, dicho reporte deberá efectuarse además con base en los estados financieros auditados, y remitirse conjuntamente con éstos como un reporte adicional.

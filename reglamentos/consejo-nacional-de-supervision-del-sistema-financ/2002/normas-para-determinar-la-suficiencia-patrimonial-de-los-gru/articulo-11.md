@@ -1,0 +1,1 @@
+Artículo 11.—El déficit individual de cada empresa del grupo o conglomerado financiero se determinará como el exceso del requerimiento mínimo de capital sobre el capital base respectivo, determinados según lo establecido en el Artículo 3 de esta norma.
