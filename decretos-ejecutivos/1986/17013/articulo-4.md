@@ -1,1 +1,0 @@
-Artículo 4°-Para efectos de conversión se entenderá por doble decalitro la medida de capacidad equivalente a veinte litros; y por doble hectolitro la medida de capacidad equivalente a doscientos litros.

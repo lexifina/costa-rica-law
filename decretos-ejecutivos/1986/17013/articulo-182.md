@@ -1,1 +1,0 @@
-Artículo 182.-La Comisión de Peritos Catadores de Café del Instituto se regirá por las disposiciones de un reglamento interno dictado por la Junta Directiva del Instituto para tal efecto y dentro de sus miembros estarán los técnicos en Catación del Instituto.

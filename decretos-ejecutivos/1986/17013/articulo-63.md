@@ -1,1 +1,0 @@
-Artículo 63.Toda negociación con café que se realice entre beneficiadores y exportadores se regirá por las disposiciones del presente Reglamento. También lo serán las operaciones de venta, consignación -u otros actos que realicen directamente las firmas exportadoras en el exterior.

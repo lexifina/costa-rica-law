@@ -1,1 +1,0 @@
-Articulo 19.-El Instituto con base en los datos referidos en el articulo anterior, informará a los bancos, cuando éstos lo soliciten para efectos de financiación, la cantidad de café recibido por cada beneficio.

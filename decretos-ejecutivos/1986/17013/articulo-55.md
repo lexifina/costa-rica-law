@@ -1,1 +1,0 @@
-Artículo 55.-El Instituto del Café prestará especial atención al fomento y asesoría de las cooperativas de productos de café y de asociaciones cooperativas cafetaleras de segundo grado gestionando ante las entidades correspondientes la constitución y facilidades de funcionamiento de estas instituciones.

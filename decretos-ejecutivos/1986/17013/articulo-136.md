@@ -1,1 +1,0 @@
-Articulo 136.-El Jefe del Departamento de la bolsa del Café de Consumo Nacional notificará la venta al beneficiador, productor o dueño del café, mediante el envío de una copia del acta, dentro de las cuarenta y ocho horas siguientes al remate.

@@ -1,2 +1,0 @@
-Artículo 122.-Cuando no hubiere ofertas suficientes para el consumo nacional, el Instituto del Café de Costa Rica podrá solicitar la inscripción de las partidas necesarias, de acuerdo con la fijación de' cuotas que hubiere realizado la Junta Directiva.
-Para los beneficios de las áreas de maduración temprana, el Instituto cuando lo considere oportuno, podrá solicitar que la inscripción de la cuota de caté de consumo nacional se haga con anterioridad.

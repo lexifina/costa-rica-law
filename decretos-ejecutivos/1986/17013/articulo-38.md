@@ -1,6 +1,0 @@
-Artículo 38.-Las entidades cantonales, regionales y en defecto de éstas, las entidades nacionales representativas de productores y beneficiadores de café tendrán derecho a acreditar un fiscal por cada una de ellas, los que tendrán voz, pero no voto, ante la Junta de Liquidaciones. Para ejercer este derecho, dichas entidades, deberán presentar a más tardar cinco días antes del segundo lunes de junio del año en que corresponda nombrar a los integrantes de la Junta de Liquidaciones, ante el Departamento Legal del Instituto del Café de Costa Rica, junto con la respectiva solicitud descrita y atestados idóneos para comprobar lo siguiente:
-a) Existencia legal y personería al día;
-b) Nómina de sus miembros productores o beneficiadores a nivel nacional, cantonal o regional; y
-c) Nombre y calidades de la persona designada.
-Una vez cumplidos los anteriores requisitos, el Departamento Legal, comunicará oportunamente a la Dirección Ejecutiva quien informará a la Junta de Liquidaciones la nómina de fiscales nombrados.
-Los fiscales durarán dos años en sus funciones, contados a partir de la fecha de nombramiento de los miembros de la Junta de Liquidaciones y podrán ser reelectos. En caso de vacantes definitivas, la entidad que efectuó la designación, tendrá derecho a nombrar el respectivo suplente, mediante el procedimiento establecido en este artículo.

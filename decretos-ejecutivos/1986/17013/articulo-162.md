@@ -1,2 +1,0 @@
-Artículo 162.-El quórum de las sesiones se formará con cuatro miembros, el Director Ejecutivo o el Subdirector Ejecutivo y el Auditor o su Subauditor deberán asistir a las sesiones, con voz pero sin voto.
-De las sesiones de Junta Directiva deberán levantarse actas que se pasarán a un libro, para tal efecto legalizado por la Contraloría General dela República, y que será firmada por los miembros que actúen como presidente y secretario en la ocasión en que se aprueben las mismas.

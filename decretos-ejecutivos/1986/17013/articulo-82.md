@@ -1,2 +1,0 @@
-Artículo 82.-Para los efectos de contratos sobre muestra y cuando las partes así lo acordaren, a la hora de inscribir un contrato podrá depositarse en el Instituto del Café una muestra del café a que se refiere el mismo, que será custodiada durante el tiempo que el contrato estipule para su cumplimiento.
-Dichas muestras deben presentarse debidamente empacadas con sus envolturas cerradas y firmadas por el vendedor y comprador respectivos.

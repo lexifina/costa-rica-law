@@ -1,1 +1,0 @@
-Artículo 99.-Las exportaciones de café deben hacerse dentro del respectivo año cafetero salvo que la Junta Directiva, en cumplimiento de obligaciones que determinen los convenios internacionales o de una política de regulación de las ofertas, resuelva lo contrario.

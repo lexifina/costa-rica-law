@@ -1,1 +1,0 @@
-Artículo 27.-Los beneficios secos no podrán almacenar, limpiar, escoger, clasificar o mezclar cafés destinados a consumo nacional, teñidos o identificados por cualquiera de los procedimientos legalmente autorizados, con café asignados a otros destinos.

@@ -1,1 +1,0 @@
-Artículo 134.-Una muestra del café adjudicado será entregada al comprador, en tanto que otra igual quedará depositada durante un mes en la Bolsa del Café de Consumo Nacional, para los fines previstos en el artículo 121 de este Reglamento.

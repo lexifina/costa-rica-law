@@ -1,1 +1,0 @@
-Artículo 177.-El Instituto del Café de Costa Rica publicará en el Diario Oficial dentro de los treinta días siguientes al cierre del respectivo ejercicio financiero, un balance de su situación económica que comprenderá el estado de su activo, pasivo, patrimonio y reservas.

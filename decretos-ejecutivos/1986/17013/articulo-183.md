@@ -1,1 +1,0 @@
-Artículo 183.-Los dictámenes de la Comisión de Peritos de Café, servirán de fundamento a la Junta Directiva o Dirección Ejecutiva, para dirimir lo, conflictos que se presenten, por las razones apuntadas en el artículo 181 de este Reglamento.

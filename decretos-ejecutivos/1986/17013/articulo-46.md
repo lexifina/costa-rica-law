@@ -1,7 +1,0 @@
-Artículo 46.-Cuando los beneficiadores hayan realizado la totalidad de sus ventas u en todo caso, a más tardar, dentro de los diez primeros días del mes de octubre siguiente a la cosecha, salvo lo dispuesto por el artículo 60 de la ley, y con fundamento en el estado de cuentas al treinta de setiembre, deberán presentar al Departamento de Liquidaciones del Instituto, en los formularios preparados al efecto, una declaración de cuentas para la liquidación final, en la que se consignarán los siguientes datos:
-a) Cantidad y monto totales de las ventas de café, realizadas para exportación. excluyendo el café comprado a otros beneficios;
-b) Cantidad de café de la cuota de consumo nacional no vendida y estimación del valor de la misma, determinado en la forma prevista en el inciso 7) del artículo 57 de la ley;
-c) Cantidad y monto totales del café rematado para consumo nacional;
-ch) Cantidad y monto totales del café de la cuota de retención, en el caso de que la hubiere o que se hubiere acordado pago alguno sobre la misma;
-d) Cantidad total de café recibido, desglosando las cantidades de café maduro, de café verde y bellota y el detalle por zonas de recibo, en el caso de que hubíere demarcación de las mismas, y relación obtenida por conversión de café en fruta a café oro; y
-e) Cuando sea procedente, detalle de los gastos de elaboración aceptados por ley, acompañando los respectivos comprobantes o certificación de los mismos extendida por un contador público autorizado.

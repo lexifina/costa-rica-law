@@ -1,2 +1,0 @@
-Artículo 160.-En caso de ausencia o impedimento temporal del presidente será reemplazado por el vicepresidente, quien en tal caso tendrá todas sus atribuciones, facultades y deberes. En caso de ausencia de ambos la Junta Directiva nombrará a uno de sus miembros como presidente ad hoc. En caso ausencia del secretario, la Junta nombrará a uno de sus miembros como secretario ad hoc.
-Los acuerdos se tomarán por mayoría absoluta de los votos presentes, salvo disposición en contrario. En caso de empate, el presidente o quien actúe en lugar, tendrá doble voto.

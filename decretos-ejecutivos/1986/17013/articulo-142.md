@@ -1,1 +1,0 @@
-Artículo 142.-La representación legal del Instituto la ejercerá el Presidente de la Junta Directiva o el Director Ejecutivo. En ausencia o por delegación de éste último la ejercerá el Subdírector Ejecutivo.

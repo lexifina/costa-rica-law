@@ -1,1 +1,0 @@
-Artículo 139.-Además de la pérdida a favor del Instituto del depósito referido en el artículo 137, el adjudicatario de un remate que dejare de cumplir con los términos de la operación, podrá ser suspendido como comprador por un término de treinta a noventa días a juicio de la Junta Directiva, la primera vez, y definitivamente en caso de reincidencia.

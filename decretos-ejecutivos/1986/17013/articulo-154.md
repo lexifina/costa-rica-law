@@ -1,1 +1,0 @@
-Articulo 154.-Los miembros de Ia Junta Directiva serán nombrados por un período de cuatro años, a partir del primero de junio del año correspondiente. Los sectores representados deberán presentar sus ternas al Ministerio de Economía y Comercio durante la primera quincena del mes de mayo inmediato anterior.

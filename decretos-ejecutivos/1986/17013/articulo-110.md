@@ -1,1 +1,0 @@
-Artículo 110.-La certificación del Instituto, por la que resulte que el exportador ha ordenado mayor utilidad que la permitida y hasta el monto percibido de más por el exportador y previo requerimiento formal de pago en la oficina del exportador, tendrá carácter de título ejecutivo a favor del beneficiador, según se estatuye en el artículo 97 de la ley.
