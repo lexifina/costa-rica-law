@@ -1,0 +1,1 @@
+Articulo N° 3.—Si por su monto el premio obtenido requiere convalidación computarizada, deberá haberse electivo en las oficinas centrales de la Junta de Protección Social de San José, Si el premio es mayor o igual a cien mil colones (100.000), requiere convalidación computarizada.

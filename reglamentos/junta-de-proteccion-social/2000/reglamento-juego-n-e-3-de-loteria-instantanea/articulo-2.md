@@ -1,0 +1,1 @@
+Artículo N° 2.—Reglas del juego: Raspe el área de juego. Si una misma cantidad aparece tres (3) veces, gana esa cantidad. Si aparece la palabra "RASPA", participa directamente en el programa de televisión.
