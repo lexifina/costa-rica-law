@@ -1,1 +1,0 @@
-Artícuclo 1°-
