@@ -14,3 +14,4 @@ Reglamento a la Ley Forestal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-23 | la propia norma |
+| 2 | 2000-11-13 | Decreto Ejecutivo 29147 (2000-11-13) |
