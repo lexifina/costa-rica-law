@@ -1,0 +1,15 @@
+ARTÍCULO 69.- Reforma de la Ley No. 7319
+Refórmase el párrafo primero del artículo 11 de la Ley del Defensor
+de los Habitantes de la República, No. 7319, de 17 de noviembre de 1992,
+cuyo texto dirá:
+"Artículo 11.- Órganos especiales. La Defensoría de los
+Habitantes de la República contará con una Defensoría para la
+protección de la persona adulta mayor y con los órganos
+especiales necesarios para el cumplimiento de sus atribuciones
+y competencias. La Defensoría para la protección de la persona
+adulta mayor deberá estar abierta las veinticuatro horas del
+día, todos los días del año, y será la encargada de velar por la
+no discriminación y la exigencia de trato preferencial para las
+personas adultas mayores en las instituciones del Estado y en la
+prestación de los servicios públicos, así como de cualquier otra
+situación o queja relativa a este sector de la población."

@@ -1,6 +1,6 @@
 # Ley de Asociaciones
 
-Ley N° 218 del 1939-08-08. SINALEVI, ficha 32764: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32764&param2=81445&param3=1>.
+Ley N° 218 del 1939-08-08. SINALEVI, ficha 32764: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32764&param2=81446&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 11 | 1970-05-12 | Ley 4583 | 1970-05-04 |
 | 4 de 11 | 1972-11-29 | Ley 5116 | 1972-11-20 |
 | 5 de 11 | 1977-01-13 | Ley 6020 | 1977-01-03 |
+| 6 de 11 | 1999-11-15 | Ley 7935 | 1999-10-25 |
