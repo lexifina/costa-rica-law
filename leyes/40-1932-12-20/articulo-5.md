@@ -1,0 +1,1 @@
+Artículo 5°-Los autores de obras literarias y musicales tienen derecho exclusivo de autorizar: 1°- La adaptación de dichas obras a instrumentos que sirvan para reproducirlas mecánicamente; 2°-La ejecución pública de las mismas obras, por medio de dichos instrumentos.

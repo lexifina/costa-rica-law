@@ -1,0 +1,2 @@
+Artículo 16.-La presente Convención reemplazará entre los Estados contratantes la Convención de Buenos Aires, de 11 de agosto de 1910. Esta quedará en vigor en las relaciones de los Estados que no ratificaren la presente Convención.
+Los Estados signatarios de la presente Convención podrán, al cambiarse las ratificaciones, declarar qué entienden sobre tal o cual punto, permanecer ligados por las disposiciones de las Convenciones anteriores 'que hubieran suscrito.
