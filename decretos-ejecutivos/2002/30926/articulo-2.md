@@ -1,0 +1,1 @@
+Artículo 2º—Se establece como entidad sede del "Programa MOAS" en Costa Rica, la Facultad de Ciencias Sociales, Escuela de Relaciones Internacionales de la Universidad Nacional y se autoriza para que continúe desarrollando el Programa MOEA-CR, en todo sus ámbitos de aplicación y desarrollo.

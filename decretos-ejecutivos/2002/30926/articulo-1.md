@@ -1,0 +1,14 @@
+N° 30926-RE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+En uso de las facultades que les confiere el artículo 140, incisos 3), 12) y 18) y 146 de la Constitución Política.
+Considerando:
+1º—Que en la Resolución de la Asamblea General de la OEA AG/RES. 1761 (XXX-O/00) del 6 de junio del 2000 en Windsor, Canadá, del "Programa Asamblea General Modelo de la OEA" (Aprobada en la cuarta sesión plenaria, celebrada el 6 de junio de 2000), se resuelve:
+a) Instar a los Estados Miembros a que continúen apoyando el programa MOAS.
+b) Instar a los Estados Miembros a que ofrezcan sus países como sede de los períodos de sesiones de la Asamblea General Modelo para Universidades.
+c) Alentar a los Estados Miembros a que efectúen contribuciones voluntarias a la Fundación MOEA-CR, con el fin de ayudar a financiar la infraestructura y el apoyo logístico necesarios para celebrar los períodos de sesiones de la Asamblea General Modelo para Universidades.
+2º—Que el Programa Asamblea General Modelo de la OEA, conocido en sus siglas en Inglés como Programa MOAS, de la Secretaría General de la Organización de los Estados Americanos, tiene por fin promover una mayor conciencia acerca de la Organización de los Estados Americanos entre estudiantes de secundaria y universitarios de los Estados Miembros de la Organización.
+3º—Que es de gran importancia que estudiantes de secundaria y universitarios de nuestro país y de todo el Hemisferio, tengan acceso a este Programa, ya que se trata de un ejercicio de simulación de las deliberaciones de la verdadera Asamblea General de la OEA, que comprende debates generales, negociaciones, formación de grupos de trabajo integrados por países de intereses comunes y trabajos de comisión, que permite una formación y visión integral en este campo de las Relaciones Internacionales, así como la capacidad de tomar decisiones y mantener posturas que influirán en el desarrollo de las políticas e intereses nacionales y de la región.
+4º—Que a través del Programa MOAS, se pretende crear un mayor interés en las funciones, estructura y logros de la OEA, enfatizar sobre los principales problemas económicos, sociales, educativos, políticos y de seguridad que confrontan las Américas, facilitar el entendimiento de los factores que determinan la política exterior de los países miembros de la OEA, realzando las características de la diplomacia intra-regional para la búsqueda de soluciones a problemas regionales; así como analizar el impacto de las políticas globales adoptadas por las principales potencias en asuntos económicos, sociales, políticos, educativos y de seguridad que confronta la región, y discutir sobre los intentos de la región. Por tanto,
+DECRETAN:
+Artículo 1º—Se declara de interés público el "Programa Asamblea General Modelo de la Organización de los Estados Americanos" (Programa MOAS).
