@@ -1,0 +1,2 @@
+Art. 3°-El Poder Ejecutivo calificará los objetos que se introduzcan para dicha empresa y decidirá si están ó nó comprendidos en la presente exención.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los catorce días del mes de enero de mil ochocientos ochenta y seis.-JN. M. CARAZO, Presidente.-JUAN J. ULLOA G., Secretario.-Palacio Presidencial.-San José, á catorce de enero de mil ochocientos ochenta y seis. -Ejecútese.-BERNARDO SOTO.-El Secretario de Estado en el despacho de Hacienda,-MAURO FERNÁNDEZ.
