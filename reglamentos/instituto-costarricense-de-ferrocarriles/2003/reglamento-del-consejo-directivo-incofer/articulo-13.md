@@ -1,0 +1,1 @@
+Artículo 13.—El presente Reglamento puede ser modificado en forma parcial y total por el Consejo Directivo, en reunión extraordinaria citada para dicho evento, para lo cual se deberá elaborar un ante proyecto de revisión, que será discutido y aprobado en votación calificada (cinco votos afirmativos).

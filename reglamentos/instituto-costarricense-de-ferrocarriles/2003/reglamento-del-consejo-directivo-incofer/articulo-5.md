@@ -1,0 +1,1 @@
+Artículo 5º—Los directores no pueden abstenerse de votar los asuntos que conoce el Consejo Directivo, pero podrá razonar su voto y consignarlo así en el acta. Sólo podrán abstenerse de votar la aprobación del acta, cuando por cualquier motivo no estuvieron presentes en la respectiva sesión.

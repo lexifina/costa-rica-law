@@ -1,0 +1,1 @@
+Artículo 9º—Ningún miembro del Consejo Directivo podrá estar presente en una sesión durante el tiempo en que haya de discutirse y votarse algún asunto en que tenga interés directo o indirecto, conforme a la ley.

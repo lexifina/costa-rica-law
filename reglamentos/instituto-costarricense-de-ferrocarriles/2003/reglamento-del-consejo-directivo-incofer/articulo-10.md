@@ -1,0 +1,1 @@
+Artículo 10.—Todos los acuerdos son firmes después de ser aprobada el acta, excepto cuando por cinco de los votos el acuerdo se declare en firme en la misma sesión. Contra los acuerdos firmes no cabe recurso de revisión.
