@@ -1,0 +1,1 @@
+Artículo 14º- El Consejo Nacional de Deportes será el órgano que verifique y defina la plena validez de los torneos o campeonatos mundiales, previamente a la emisión del fallo, a los que se refiere el artículo 1 del presente reglamento, y comunicará lo anterior al encargado del programa de Premios Nacionales del Ministerio de Cultura, Juventud y Deportes.
