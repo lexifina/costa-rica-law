@@ -1,0 +1,1 @@
+Artículo 48.—Los Bancos comerciales domiciliados en el país pueden establecer y mantener Almacenes Generales de Depósito en aquellos lugares en donde no se hayan establecido por iniciativa privada en el curso de los seis primeros meses de vigencia de ésta ley. Los trámites y procedimientos serán los mismos que se han estipulado.

@@ -1,0 +1,2 @@
+Artículo 25.—En caso de pérdida de un certificado de depósito o de un bono de prenda, el Juez competente ordenará su reposición al Almacén que lo expidió, previa comprobación de la propiedad del título y de la efectividad de la pérdida, y mediante el otorgamiento de fianza abonada en favor del Almacén y a satisfacción de éste.
+El título original será destruido y cancelada la garantía por el Almacén, si apareciere posteriormente.

@@ -1,0 +1,4 @@
+Artículo 41.—Los créditos especiales para operaciones contra bonos de prenda, se harán en forma de cuenta corriente y a plazos no mayores de cinco años prorrogables a voluntad de la Junta Directiva y devengarán intereses del uno por ciento anual pagaderos trimestralmente en efectivo.
+Estos créditos serán otorgados únicamente en favor de los Almacenes Generales cuyos edificios, propios o arrendados reúnan los requisitos que exigen esta ley y sus reglamentos, y serán garantizados con hipoteca o prenda a satisfacción de la Directiva del Banco.
+La solicitud respectiva será acompañada de la autorización a que se refiere el artículo 5° de esta ley, y de los planos detallados del edificio firmados por un ingeniero de la Facultad de Ingeniería de la República.
+Se tendrá por vencido y exigible el crédito si los fondos provenientes del mismo se dedican a fines distintos de los autorizados por el artículo 13 de esta ley.

@@ -1,0 +1,1 @@
+Artículo 21.—Cuando se haya emitido un solo bono de prenda en relación con cada certificado de depósito, los requisitos del artículo 17 se llenarán al negociar por primera vez el título sin el certificado correspondiente.

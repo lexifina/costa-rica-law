@@ -1,0 +1,1 @@
+Artículo 4°—Los edificios destinados al almacenaje de las mercaderías que reciban en depósito los Almacenes Generales, serán necesariamente de concreto, hierro u otro material semejante, con pisos de cemento o mosaico, que ofrezcan garantía de seguridad contra incendio, terremoto y deterioro de las mercancías en custodia.

@@ -1,0 +1,2 @@
+Artículo 7°—Si la resolución de la Secretaría de Hacienda y Comercio es contraria a la solicitud, los valores o documentos de crédito público a que se refiere el inciso d) del artículo 5° serán devueltos a la sociedad interesada.
+Si esa resolución fuere favorable, tales valores o documentos serán depositados en el Banco Internacional de Costa, a la orden de la misma Secretaría, en custodia y como garantía de cumplimiento de esta ley y de sus disposiciones complementarias.
