@@ -1,9 +1,10 @@
 # Ley de Creación del Instituto Costarricense de Electricidad (ICE)
 
-Ley N° 449 del 1949-04-08. SINALEVI, ficha 11609: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11609&param2=12461&param3=1>.
+Ley N° 449 del 1949-04-08. SINALEVI, ficha 11609: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11609&param2=12462&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 4 | 1949-04-08 | Ley 449 | 1949-04-08 |
+| 2 de 4 | 1968-09-20 | SINALEVI (8 normas) | 1949-04-08 |

@@ -4,8 +4,8 @@ Artículo 16.- El capital del Instituto estará constituído de la
 manera siguiente:
 a) Por el producto de las rentas nacionales que la ley destine y
 otorgue al Instituto;
-b) Por los derechos que el Estado adquirió de la Municipalidad de San
-José en el Contrato del Tranvía;
+b) Por los derechos que el Estado adquirió de la Municipalidad de
+San José en el Contrato del Tranvía;
 c) Por los recursos hidráulicos de la Nación que hayan sido o que
 sean declarados Reserva Nacional y por las utilidades acumuladas por
 cualquiera de estos conceptos.
