@@ -6,7 +6,7 @@ Artículo único.- De acuerdo con lo dispuesto en el inciso 4) del artículo 121
 Comuníquese al Poder Ejecutivo
 Dado en el Salón de Sesiones de la Asamblea Legislativa.- Palacio Nacional .-San José, a los veintitrés días del mes de noviembre de mil novecientos cincuenta y uno.
 Casa Presidencial.-San José, a los veintinueve días del mes de noviembre de mil novecientos cincuenta y uno.
-CARTERA DE RELACIONES EXTERIORES
+CARTA DE RELACIONES EXTERIORES
 CARTA DE LA ORGANIZACION DE ESTADOS CENTROAMERICANOS
 CARTA DE SAN SALVADOR
 Los gobiernos de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua, inspirados en los más altos ideales centroamericanos, deseosos de alcanzar el más provechoso y fraternal acercamiento entre las Repúblicas de la América Central y seguros de interpretar fielmente el sentimiento de sus respectivos pueblos; y
