@@ -14,3 +14,4 @@ Creación de la Comisión de Desarrollo Turístico de Golfito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-13 | la propia norma |
+| 2 | 2000-04-14 | Decreto Ejecutivo 28616 (2000-04-14) |
