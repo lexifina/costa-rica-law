@@ -1,0 +1,1 @@
+Artículo 17.-Los asuntos que conozca el Comité se decidirán por mayoría simple de sus miembros presentes, salvo en lo que respecta a presupuesto, el que se acordará por mayoría calificada 2/3 de la totalidad de los miembros del comité.

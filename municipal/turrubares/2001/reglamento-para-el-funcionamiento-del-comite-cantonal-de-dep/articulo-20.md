@@ -1,0 +1,1 @@
+Artículo 20.-Los particulares tendrán los recursos de revocatoria para ante el comité y de apelación subsidiaria para ante el Concejo, todo dentro del quinto día hábil contado a partir de la notificación del acuerdo y en memorial razonado. El comité deberá conocer el recurso en la sesión ordinaria siguiente.

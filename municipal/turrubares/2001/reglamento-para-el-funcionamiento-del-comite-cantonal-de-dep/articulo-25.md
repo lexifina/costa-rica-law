@@ -1,0 +1,1 @@
+Artículo 25.-De la subvención recibida por parte de la Municipalidad, el Comité podrá incluir en su Presupuesto anual una partida para la compra de terreno apto para el deporte y la recreación, así como para la construcción de instalaciones deportivas.

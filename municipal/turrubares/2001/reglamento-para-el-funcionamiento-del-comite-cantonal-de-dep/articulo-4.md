@@ -1,0 +1,1 @@
+Artículo 4°-Velará por el cuidado de las instalaciones deportivas de su propiedad, u otorgadas en administración cuando le sea encomendado, para lo que hará las gestiones necesarias, tendientes a la conservación de dichas instalaciones en el mejor estado posible.

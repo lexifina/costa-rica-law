@@ -1,0 +1,1 @@
+Artículo 30.-La Municipalidad podrá girar semestralmente la subvención anual correspondiente según los programas del Comité; siempre y cuando haya cumplido con lo establecido en el artículo 172 último párrafo del Código Municipal.

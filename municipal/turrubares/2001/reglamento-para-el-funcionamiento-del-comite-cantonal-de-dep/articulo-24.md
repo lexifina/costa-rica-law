@@ -1,0 +1,1 @@
+Artículo 24.-Podrá el Comité incluir dentro de su presupuesto, con la aprobación de la Municipalidad, las partidas necesarias, para la adquisición de implementos deportivos siempre que éstos se refieran a fines, programas previamente establecidos.

@@ -1,0 +1,1 @@
+Artículo 22.-Cuando se produzca alguna de las causales del articulo anterior. Se deberá comunicar por escrito al Concejo quien comunicará a la entidad que corresponde fundamentando las razones de la decisión. La Municipalidad hará la reposición inmediata del miembro separado, para lo cual pedirá a la entidad que corresponde el envío de la respectiva tema, si fuere necesario.
