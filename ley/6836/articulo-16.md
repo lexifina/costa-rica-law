@@ -1,6 +1,3 @@
-Artículo 16.- El salario base del odontólogo 1 será de ¢ 8.600, con un
-plus de ¢ 1.300 correspondiente al aumento de enero de 1982. Tendrá un
-incremento anual de un 5.5% sobre el salario base y un incentivo del 1,5%
-por cada hora de consulta externa laborada. Se reconocerá un 11% por
-dedicación hospitalaria o administrativa a los odontólogos que la
-desempeñen.
+Artículo 16.—El salario base del odontólogo 1, con grado académico de Licenciatura o uno superior, será de ocho mil seiscientos colones (¢ 8.600,00), con un plus de mil trescientos colones (¢1.300,00) correspondiente al aumento de enero de 1982. Tendrán un incremento anual de un cinco coma cinco por ciento (5,5%); un incentivo de un uno coma cinco por ciento (1,5%) por cada hora de consulta externa laborada, y un once por ciento (11 %) por dedicación hospitalaria o administrativa, siempre que la desempeñen.
+Las personas profesionales en Nutrición, con grado académico de Licenciatura o uno superior, tendrán un aumento anual de un tres coma cinco por ciento (3,5 %), calculado sobre el salario base.
+(Así reformado mediante el artículo 2° de la Ley N°. 8423 del 7 de octubre del 2004 .)
