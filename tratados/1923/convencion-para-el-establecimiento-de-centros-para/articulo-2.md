@@ -1,0 +1,2 @@
+Artículo II
+Para que todas las Repúblicas Centroamericanas puedan recibir los beneficios de los centros antes dichos, cada una de ellas se compromete a suministrar a los Gobiernos de otras, copias de todas las publicaciones u otros documentos expedidos por los centros referidos. Las Partes Contratantes se obligan, además a permitir a los directores de sus centros o a los expertos que ayuden en la dirección de los mismos, que visiten las otras Repúblicas Centroamericanas para que, de este modo, puedan informar acerca de los resultados prácticos obtenidos en dichos centros.
