@@ -1,1 +1,0 @@
-Artículo 2°-La Cruz Roja Costarricense es una sociedad neutral, con fines puramente humanitarios y sus servicios se extenderán a todos los habitantes del país, nacionales y extranjeros, sean cuales fueren su religión y creencias. Fungirá siempre bajo la jurisdicción de la Dirección General de Asistencia y Protección Social (artículo 5° de la ley N° 48 del 14 de junio de 1940).

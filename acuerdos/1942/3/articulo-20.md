@@ -1,1 +1,0 @@
-Artículo 20.-Las funciones de cada uno de los miembros del Comité Nacional y las obligaciones de los socios, serán fijadas por un Reglamento Interior que también regulará los servicios relativos a la institución.

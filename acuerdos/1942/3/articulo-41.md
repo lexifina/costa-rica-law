@@ -1,1 +1,0 @@
-Artículo 41.-En todo caso la Cruz Roja Costarricense podrá coadyuvar si el Comité Nacional lo dispone, en la recolección de fondos destinados al socorro de las víctimas de grandes calamidades acaecidas en otros países.

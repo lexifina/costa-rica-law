@@ -1,2 +1,0 @@
-Artículo 43.-Estos Estatutos no podrán ser modificados sino en Asamblea General y en virtud de una mayoría de los dos tercios de los votos presentes que aprueben las reformas propuestas, las que para su conocimiento deben ser publicadas con quince días de anticipación a la fecha señalada para la Asamblea.
-(Así suspendidos los efectos del presente artículo por el artículo 3° del decreto ejecutivo N° 16 del 6 de diciembre de 1951 "Autoriza Legalizar al Comité Nacional de la Cruz Roja Costarricense")

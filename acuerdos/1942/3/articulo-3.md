@@ -1,1 +1,0 @@
-Artículo 3°-EI domicilio de la Sociedad estará en la ciudad de San José y su dirección será encomendada a una Directiva Central que fungirá con el nombre de "Comité Nacional de la Cruz Roja Costarricense".

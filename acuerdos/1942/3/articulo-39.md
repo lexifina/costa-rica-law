@@ -1,1 +1,0 @@
-Artículo 39.-El socorro se extenderá por ahora a los habitantes de Costa Rica, pero en casos excepcionales, a juicio del Comité Nacional y si los fondos lo permiten y previa autorización de la Dirección General de Asistencia y Protección Social, podrá extender su acción a otros países.

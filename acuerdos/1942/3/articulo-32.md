@@ -1,4 +1,0 @@
-Artículo 32.- Se establecen las siguientes categorías de socios:
-a) Socios Benefactores, lo serán las personas admitidas a propuesta de alguno de los socios y con la aprobación unánime del Comité Nacional, que se hayan hecho acreedores a tal distinción por actos benéficos notables o por donaciones a la Cruz Roja Costarricense.
-b) Socios Honorarios, lo serán aquellas personas de mérito indiscutible, cuyos nombres aporten a la sociedad honra y provecho. Lo serán asimismo los miembros de otras sociedades similares extranjeras que lo acrediten debidamente. Estos socios honorarios serán nombrados con igual tramitación que los benefactores.
-c) Socios Activos, los que habiendo solicitado su admisión hayan sido aceptados, paguen sus cuotas regulares y participen de las labores e ideales de la Cruz Roja Costarricense.

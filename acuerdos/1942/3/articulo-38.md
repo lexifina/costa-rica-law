@@ -1,1 +1,0 @@
-Artículo 38.-Para otorgar cualquiera de estas recompensas el Comité Nacional deberá reunirse, en pleno extraordinariarnente y dar su aprobación por unanimidad, pudiendo prescindirse del requisito de sesión plena cuando se trate de una solicitud personal del señor Presidente de la República y recomendada por el mismo.

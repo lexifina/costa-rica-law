@@ -1,1 +1,0 @@
-Artículo 7°-EI escudo de la Cruz Roja Costarricense constará de la Cruz Internacional formada por cinco cuadros rojos sobre fondo blanco; en la parte superior llevará en tinta roja la leyenda Cruz Roja Costarricense y en la parte inferior con la misma tinta, el lema neutralidad y caridad.

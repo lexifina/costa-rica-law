@@ -1,1 +1,0 @@
-Artículo 33.-Como la Cruz Roja Costarricense supone en sus socios el exacto cumplimiento de todos los deberes que ella exige, se establecen como penas únicas, la censura impuesta por el Comité Nacional y la separación.

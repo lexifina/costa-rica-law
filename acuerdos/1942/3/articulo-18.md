@@ -1,1 +1,0 @@
-Artículo 18.-·El Presidente de la República, el Secretario de Estado en el Despacho de Salubridad Pública y Protección Social y la Primera Autoridad Eclesiástica, son de hecho Presidentes Honorarios de la Cruz Roja Costarricense.
