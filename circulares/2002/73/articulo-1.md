@@ -1,0 +1,8 @@
+CIRCULAR N° 73-2002
+(Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 140-2026 del 11 de agosto de 2026, publicada en el Boletín Judicial N° 157 del 20 de agosto de 2026)
+Asunto: Deberes que deben cumplir los despachos que conocen materia penal.-
+A TODAS LAS AUTORIDADES JUDICIALES QUE CONOCEN MATERIA PENAL
+SE LES HACE SABER QUE:
+El Consejo Superiores, en sesión N° 35-02, celebrada el 21 de mayo del 2002, artículo LXXX, a solicitud de la Comisión de Asuntos Penales, dispuso recordar a las autoridades jurisdiccionales que tramitan materia penal, su deber de vigilar periódicamente el cumplimiento de las resoluciones provisionales decretadas en su Despacho, tales como la suspensión del proceso a prueba o la conciliación. Asimismo, se recuerda el deber de resolver a la brevedad lo que corresponda cuando se venzan los términos decretados o se incumplan las condiciones fijadas.”
+Se les recuerda su deber de asistir puntualmente a las diligencias judiciales señaladas. En caso contrario, sin que exista justificación legítima, la autoridad que tramite la causa remitirá al Jefe de la Defensa Pública o del Ministerio Público según corresponda, informe de la diligencia que se retrasó o postergó por la tardanza o ausencia del profesional. Asimismo, los Fiscales y defensores comunicarán al Consejo Superior los casos en que tales retrasos ocurran por causas atribuibles a los jueces. Los Jefes respectivos, tomarán las previsiones correspondientes para evitar tales inconvenientes, y en su caso, deberán aplicar el régimen disciplinario, si procede.-
+San José, 26 de junio del 2002.
