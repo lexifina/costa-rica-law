@@ -14,3 +14,4 @@ Establece Comisión Conmemorativa de la Revolución de 1948
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-21 | la propia norma |
+| 2 | 1997-05-22 | Decreto Ejecutivo 26119 (1997-05-22) |
