@@ -1,0 +1,3 @@
+II.—Adicionar un segundo párrafo al Transitorio del "Reglamento sobre opciones de financiamiento en el corto y en el largo plazo para proyectos de vivienda, con recursos del Fondo de Subsidios para la Vivienda del artículo 59 de la Ley del Sistema Financiero Nacional para la Vivienda (erradicación de tugurios y casos de emergencia)", que se leerá como sigue:
+"Los proyectos de vivienda que se eximen de la presente normativa, deberán cumplir con todos los requisitos señalados en el Formulario BANHVI 3-99 y sus anexos, así como con toda la normativa aplicable de conformidad con lo establecido en el Reglamento de Operaciones del Sistema Financiero Nacional para la Vivienda y en el artículo 59 de la Ley Nº 7052 y sus reformas."
+Acuerdo unánime y firme. Publíquese.
