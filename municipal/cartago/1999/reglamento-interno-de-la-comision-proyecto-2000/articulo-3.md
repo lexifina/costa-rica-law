@@ -1,0 +1,1 @@
+Artículo 3°-La Comisión es de carácter transitorio y finalizará en sus funciones cuando así lo determinen las circunstancias por haber cumplido su objeto. Su plan de trabajo estará dividido en cuatro etapas conforme a lo estipulado en la circular AUD-1363.

@@ -1,0 +1,1 @@
+Artículo 9°-Todo lo relativo a la aplicación del Régimen Disciplinario, será de conocimiento de la Alcaldía Municipal, la cual estará sujeta a lo dispuesto en el Reglamento Interno de Trabajo o, en su defecto, a lo establecido en la legislación laboral y conexa que sea aplicable.

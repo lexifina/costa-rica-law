@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE CARTAGO
+La Municipalidad del cantón central de Cartago avisa, que según artículos números treinta y dos y primero (32) y (1°), de las actas números ochenta y uno y ochenta y tres (81) y (83), de sesiones celebradas por el Concejo Municipal los días cinco y diecinueve de julio de mil novecientos noventa y nueve, acordó en forma definitiva el:
+REGLAMENTO INTERNO DE LA COMISION PROYECTO 2000
+Artículo 1°-Se establece este Reglamento Interno, con el objeto de normar las relaciones entre los integrantes de la Comisión Proyecto 2000, en adelante "la Comisión", creada con el fin de determinar y emprender las acciones que sean requeridas a efecto de solventar los problemas que podría provocar el cambio de milenio en la Municipalidad de Cartago, y de conformidad con lo dispuesto en la circular AUD-1363, de la Contraloría General de la República.

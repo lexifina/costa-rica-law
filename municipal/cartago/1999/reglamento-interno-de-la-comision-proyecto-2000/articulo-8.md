@@ -1,0 +1,1 @@
+Artículo 8°-El quórum se formará con la asistencia de las dos terceras partes de los miembros que integran la Comisión. Si quince minutos después de la hora definida en el artículo 4°, no hay quórum, se celebrará sesión extraordinaria a las diez y treinta horas con los miembros presentes.
