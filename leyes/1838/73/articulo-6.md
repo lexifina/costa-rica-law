@@ -1,0 +1,1 @@
+Art. 6. Es una obligación de las Municipalidades el visar las cuentas de propios y arbitrios, Cofradias y fondos pios, y remítirlas con su aprobación al Tribunal por medio del Jefe Político respectivo, con solo la diferencia que las cuentas de Cofradias y fondos propios, deberán visarse con anuencia del Cura Párroco.
