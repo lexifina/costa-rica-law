@@ -1,0 +1,1 @@
+Artículo V.—Se autoriza la apertura de una cuenta corriente por región u oficina local, según convenga al servicio, donde se depositarán mensualmente los recursos financieros destinados a la adquisición de los alimentos.

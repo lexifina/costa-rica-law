@@ -1,0 +1,2 @@
+2. De la ejecución por parte de Presidencia Ejecutiva de gastos de alimentación para la Junta Directiva Institucional
+Artículo VIII.—Procederá el suministro de alimentos a los miembros de la Junta Directiva cuando la sesión requiera de la presencia de sus miembros por un lapso prolongado. También procederá en aquellas situaciones en que la sesión implique algún grado de desgaste fuera de lo ordinario, como cuando se realizan giras a oficinas o albergues.

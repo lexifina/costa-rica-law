@@ -1,0 +1,1 @@
+Artículo VI.—Las cuotas o giros mensuales se establecerán de conformidad con un modelo de costos elaborado por técnicos, en el cual se incluyan variables tales como: precio oficial actual de la canasta básica, zona de ubicación del albergue o centro, composición y número de la población, por grupo de edades, número de personal de atención directa y otras.
