@@ -1,4 +1,0 @@
-Artículo 28.- Prohíbese a los regidores:
-a) Intervenir en la discusión y votación de los asuntos en que tengan ellos interés directo, su cónyuge, o alguno de sus parientes, en la extensión referida en el párrafo 1º del artículo 25 de este Código;
-b) Ligarse a la municipalidad o depender de ella en razón de cargo distinto, comisión, trabajo o contrato que cause obligación de pago o retribución a su favor y, en general percibir dinero o bienes del patrimonio municipal, excepto dietas, viáticos de viaje; y
-c) Intervenir en asuntos y en trabajos o funciones que competen al Ejecutivo Municipal o al Concejo en sí mismo. Se exceptúan de esta prohibición las comisiones especiales que desempeñen uno o varios regidores, en acatamiento de acuerdos del Concejo, siempre que los mismos no les encarguen funciones conforme a este Código sean de exclusiva competencia de los funcionarios municipales.

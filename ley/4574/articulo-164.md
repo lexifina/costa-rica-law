@@ -1,1 +1,0 @@
-Artículo 164.- (ANULADO por Resolución de la Sala Constitucional No. 7346-94 de las 15:45 horas del 14 de diciembre de 1994 y posteriormente derogado por el artículo 64, inciso l), de la Ley de Expropiaciones No.7495 del 3 de mayo de 1995)

@@ -1,2 +1,0 @@
-Artículo 184.- Se autoriza al Estado, a sus instituciones y empresas públicas constituidas como sociedades anónimas, para donar bienes muebles o inmuebles a las municipalidades, con el propósito de dedicarlos exclusivamente a sus fines. La donación deberá contar, en cada caso, con la autorización de la Contraloría General de la República.
-(Así adicionado por Ley Nº 6890 de 14 de setiembre 1983, artículo 2º, corriendo la numeración)

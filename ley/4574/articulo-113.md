@@ -1,1 +1,0 @@
-Artículo 113.- Corresponde a la Contraloría General de la República establecer, por reglamento que se publicará en el Diario Oficial, el sistema de estimación de ingresos a que deberán sujetarse las municipalidades.

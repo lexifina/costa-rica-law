@@ -1,3 +1,0 @@
-CAPÍTULO III
-Crédito
-Artículo 105.- ANULADO por Resolución de la Sala Constitucional No. 5445-99 de las 14:30 horas del 14 de julio de 1999; adicionada por las sentencias números 06218-99, de las 15:21 horas del 10/08/1999, 09811 de las 15: 21 horas 14/12/1999, 07728 de las 14: 45 horas del 30/08/2000 y 8861-00 de las 14:30 horas del 11/10/2000.

@@ -1,1 +1,0 @@
-Artículo 6º.- Mediante el debido concierto con las demás administraciones estatales, podrán las municipalidades asumir conjunta o exclusivamente, las atribuciones sobre la administración de servicios o realizaciones de obras de interés público local, conferidas a esas administraciones.
