@@ -1,0 +1,1 @@
+Articulo 12.— La Oficina de Cobranzas y Rentas deberá rendir informes bimensuales al Jefe Financiero y Alcalde, sobre las gestiones de cobro realizadas, de las cuentas morusas y el estado en que se encuentren las acciones a la fecha.

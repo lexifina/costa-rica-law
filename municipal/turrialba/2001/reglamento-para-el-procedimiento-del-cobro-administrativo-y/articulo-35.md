@@ -1,0 +1,2 @@
+II. De la suspensión y determinación de la acción judicial.
+Artículo 35.—Una vez que el cobro judicial haya sido Iniciado, el proceso sólo podrá darse por suspendido o terminado, cuando se produzca el pago total de ]a suma adeudada a la Municipalidad o se firme un arreglo de pago. previa cancelación de [as costas de juicio, los honorarios del abogado y cualquier otro gasto de cobro generado por el incumplimiento del contribuyente.

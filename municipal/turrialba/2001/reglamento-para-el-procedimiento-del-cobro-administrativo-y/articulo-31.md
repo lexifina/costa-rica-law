@@ -1,0 +1,1 @@
+Articulo 31.—El tiempo máximo que se le concede para el pago de lo atrasado, no excederá de seis meses, contados a partir de la firma del documento respectivo. Los casos de excepción deberán tener el visto bueno del Alcalde Municipal.

@@ -1,0 +1,1 @@
+Artículo 15.—El abogado deberá excusarse de atender la dirección de un Juicio cuando tuviere vincules de parentesco por afinidad o consanguinidad hasta el 3er. grado inclusive, con el demandado, lo cual comunicará por escrito a la Oficina de Cobranzas y Rentas dentro de las cuarenta y ocho horas siguientes a la asignación del caso respectivo.

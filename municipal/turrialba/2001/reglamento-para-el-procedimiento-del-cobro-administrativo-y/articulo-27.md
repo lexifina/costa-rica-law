@@ -1,0 +1,1 @@
+Artículo 27.—Será obligación de cada abogado presentar ante la Administración Municipal una tabla de los honorarios que aplicaron, la primera vez de! momento de su contratación, y posteriormente en los primeros quince días del mes de enero de cada año.

@@ -1,0 +1,1 @@
+Artículo 10.—Agotadas las gestiones administrativas en la recuperación de las cuentas morosas, la Oficina de Cobranzas y Rentas, entregará a los abogados para el trámite de cobro judicial, el expediente administrativo correspondiente, y será el abogado designado el que deberá proceder a obtener la documentación necesaria.
