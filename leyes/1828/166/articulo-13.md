@@ -1,0 +1,1 @@
+ARTÍCULO 13.-Se levantar un escuadrón compuesto de dos compa¤¡as, y cada una de ‚estas, de un Capitán, un Teniente, un Subteniente, un Sargento veterano, cuatro segundos, un clarín, cuatro cabos primeros, cuatro segundos y cincuenta dragones; cuyo nombre ser Escuadrón 1° de dragones de Costa-Rica.

@@ -1,0 +1,1 @@
+ARTÍCULO 25.-Cuando se hallasen en actual servicio, y el Alcalde necesitase del soldado para ventilar algún asunto de los comunes, los reclamar al Comandante local, que deber entregarlo, y si de ello resultare mérito para prisión, se efectuar en su mismo cuartel, según está establecido respecto de todos los soldados a disposición del Alcalde.

@@ -1,0 +1,1 @@
+ARTÍCULO 19.-Todos los ascensos militares ser n por rigurosa escala, y a ellos sólo los militares mismos tienen opción, pudiendo cada uno representar la inobservancia de este artículo en cualesquiera agravio que se les infiera.

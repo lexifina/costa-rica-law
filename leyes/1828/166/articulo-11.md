@@ -1,0 +1,1 @@
+ART 11.-La plana mayor de esta brigada constar de un Comandante con grado de Teniente Coronel,´ el primer Capitán, un Ayudante, un Guarda-almacén y un tambor de órdenes, que ser el de la primera compañía
