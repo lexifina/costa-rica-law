@@ -14,3 +14,4 @@ Reforma al Reglamento de Construcciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-05-03 | la propia norma |
+| 2 | 2001-03-06 | Decreto Ejecutivo 29397 (2001-03-06) |
