@@ -1,0 +1,1 @@
+Art. 20. El Gobernador tiene la superior inspeccion de los suministros que se hagan á los cuerpos militares que se acantonen ó transiten por la Provincia, y cuida de que se les presten los auxilios necesarios.

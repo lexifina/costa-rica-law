@@ -1,0 +1,1 @@
+Art. 24. El Gobernador, en las ante dichas visitas toma las providencias que estuvieren dentro de la esfera de sus atribuciones, y somete à la voluntad del Poder Ejecutivo aquellas para que no se considera autorizado.

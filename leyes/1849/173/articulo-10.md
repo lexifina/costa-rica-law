@@ -1,0 +1,1 @@
+Art. 10. El Gobernador promueve activamente la enseñanza de la educación primaria, fomenta la agricultura, la industria y el comercio, ejecutando todo aquello que esté en la esfera de sus facultades, y proponiendo sobre lo demas los medios que crea conducentes.

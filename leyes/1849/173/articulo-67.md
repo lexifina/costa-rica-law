@@ -1,0 +1,1 @@
+Art. 67. Vela en que los funcionarios públicos al servicio del distrito desempeñen cumplidamente sus oficios: auxilia á la Municipalidad del Canton á que pertenece en el ejercicio de sus funciones; y hace que se cumplan sus acuerdos cuando, conforme à la presente ley, deban llevarse á ejecucion.

@@ -1,0 +1,1 @@
+Art. 38. Estan exentos de ser nombrados Jefes Polὶticos todos los empleados nacionales, civiles y de hacienda, los colectores de rentas nacionales y municipales, los catedráticos ó maestros de colegios, casas de enseñanza y escuelas públicas, los militares veteranos y los eclesiasticos.

@@ -1,0 +1,2 @@
+Art. 4. Las leyes y decretos del Congreso y los decretos y órdenes del poder Ejecutivo se comunican siempre à todas las autoridades de la respectiva Provincia por conducto del Gobernador.
+§. ùnico. Los decretos y órdenes relativos à la parte militar pueden comunicarse directamente ó por la Comandancia general de la Repùblica á los comandantes de armas de las Provincias cuando lo juzgue conveniente el Supremo Poder Ejecutivo.

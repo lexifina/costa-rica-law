@@ -1,0 +1,1 @@
+Art. 62. Los jueces de paz toman posesion de sus destinos, prestando el juramento constitucional ante el Jefe Político, el dia quince de enero de cada año, y el que haya servido este periodo no está obligado à servir otro consecutivo.

@@ -1,0 +1,1 @@
+Art. 41. El Jefe Polὶtico comunica y circula las enunciadas leyes, decretos y òrdenes, asὶ como los actos municipales, à los Jueces de paz de las parroquias del Canton, exije recibo de estas comunicaciones; y no cubre su responsabilidad sinó cuida de que aquellas se cumplan con exactitud.

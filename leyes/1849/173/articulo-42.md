@@ -1,0 +1,1 @@
+Art. 42. El Jefe Polὶtico en lo que concierne á la administracion particular del Canton ejerce las misma atribuciones, y tiene los mismos deberes que se contienen en los artὶculos 5°, 7°, 8°, 10, 11, 12, 15, 16 y 26.

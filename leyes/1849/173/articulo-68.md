@@ -1,0 +1,1 @@
+Art. 68. El juez de Paz promueve activamente los progresos de la enseñanza pública; fomenta la agricultura, la industria y el comercio, ejecutando todo aquello que està en la esfera de sus facultades y proponiendo á las autoridades competentes los medios adecuados para el mismo efecto.

@@ -1,0 +1,1 @@
+Art. 104. Las autoridades provinciales, cantonales y parroquiales obran siempre en sus respectivas funciones como subordinados a las autoridades nacionales de quienes dependen, debiendo obedecer las òrdenes superiores dirigidas su al mejor desempeño de sus deberes y atribuciones.

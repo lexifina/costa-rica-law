@@ -1,0 +1,1 @@
+Art. 53. En los casos de conmocion interior á mano armada, ó de invasion exterior repentina, puede llamar al servicio la milicia del Canton, y tomar provisionalmente las medidas necesarias para repeler el peligro, mientras recibe órdenes del Gobernador de la Provincia à quien debe dar cuenta sin demora.

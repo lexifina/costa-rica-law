@@ -1,0 +1,1 @@
+Art. 49. Cuando el Jefe Polὶtico requiere el auxilio de la fuerza armada que haya dentro del Canton para conservar y restablecer la tranquilidad pública, para la persecucion de los delitos y aprehension de los delincuentes, ó para el cumplimiento de cualquiera otro de sus deberes, dicho auxilio le será impartido por el Jefe militar, ya sea veterano ò de milicia nacional.
