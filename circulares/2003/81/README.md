@@ -13,3 +13,4 @@ Sobre los Recursos que se Obtienen Producto de los Días Multas en Contravencion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-09-09 | la propia norma |
+| 2 | 2003-09-09 | Circular 106 (2003-09-02) |
