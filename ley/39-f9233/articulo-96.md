@@ -1,1 +1,1 @@
-Artículo 96.- Si se tratare de escritura de sociedades, asociaciones, arrendamientos o de otros actos o contratos complicados, se cobrará, además de los honorarios de notario, un cincuenta porciento como honorarios de abogado, no pudiendo ser inferiores estos últimos, en ningún caso, de cien colones.
+Artículo 96.- (Derogado por el artículo 3° de la ley N° 6595 del 6 de agosto de 1981)

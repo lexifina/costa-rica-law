@@ -3,4 +3,6 @@ Artículo 9º.- Los abogados que pertenezcan al Colegio están obligados:
 (Así reformado el inciso anterior por el artículo único de la ley N° 42 del 13 de junio de 1945)
 2º.- A desempeñar los cargos y funciones que se les encomiende; y
 3º.- A pagar las contribuciones que la ley o el Colegio les imponga.
+4º.- Acatar las tarifas de honorarios que dicte el Colegio, debidamente promulgadas de acuerdo con esta ley.
+(Así adicionado el inciso anterior por el artículo 1° aparte a) de la ley N° 6595 del 6 de agosto de 1981)
 El Reglamento del colegio establecerá las sanciones que podrá imponer la Directiva, sin recurso alguno por el incumplimiento de esos deberes, entre los cuales podrá figurar la suspensión del ejercicio de la profesión hasta por treinta días la primera vez y hasta por tres meses las siguientes. Esa suspensión comprende el ejercicio profesional y el desempeño de empleo o funciones públicas. Para los dos últimos casos la suspensión será decretada por quien tenga la facultad de ordenarla con vista del oficio de la Directiva en que le dé cuenta del tiempo que aquélla debe durar. Esta surtirá sus efectos a partir del día siguiente a la publicación del aviso respectivo en el Boletín Judicial.
