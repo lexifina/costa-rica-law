@@ -1,7 +1,8 @@
-ARTÍCULO 108.- La información recopilada por la Unidad de análisis
-financiero será confidencial y de uso exclusivo para las investigaciones
-realizadas por el Centro. Únicamente podrá ser revelada al Ministerio
-Público, los jueces de la República o a organismos policiales, nacionales
-o extranjeros, competentes en esta materia. Los funcionarios que incumplan
-esta disposición estarán sujetos a las sanciones prescritas en el Código
-Penal.
+Artículo 108.—El Consejo Directivo estará integrado por los siguientes miembros:
+a) El ministro o el viceministro de la Presidencia.
+b) El ministro o el viceministro de Seguridad Pública y Gobernación.
+c) El ministro o el viceministro de Educación Pública.
+d) El ministro o el viceministro de Justicia y Gracia.
+e) El ministro de Salud o el director del IAFA.
+f) El director o el subdirector del OIJ.
+g) El fiscal general o el fiscal general adjunto del Estado.

@@ -1,6 +1,3 @@
-CAPÍTULO XXVII
-CENTRO DE INTELIGENCIA CONJUNTO ANTIDROGAS
-ARTÍCULO 96.- Créase el Centro de Inteligencia Conjunto Antidrogas,
-órgano de desconcentración máxima adscrito al Ministerio de la Presidencia
-y dotado de personalidad jurídica instrumental para la administración de
-sus recursos financieros.
+Artículo 96.—Cuando las autoridades policiales decomisen marihuana, cocaína, heroína o cualquier otra droga de las referidas en esta Ley, de inmediato la pondrán a disposición de la autoridad judicial competente, para que el Departamento de Ciencias Forenses del OIJ tome las muestras de cantidad y peso, así como cualquier otra circunstancia útil a la investigación, según su criterio pericial.
+Realizado lo anterior, la autoridad judicial competente podrá ordenar la destrucción de la droga incautada. De no ordenarse la destrucción, la droga deberá entregarse al OIJ para la custodia y posterior destrucción.
+Fenecida definitivamente la causa, la autoridad judicial competente deberá ordenar la destrucción de la muestra testigo de la sustancia analizada.

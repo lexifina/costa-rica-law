@@ -1,6 +1,1 @@
-ARTÍCULO 37.- Los jueces también podrán ordenar que les sea
-entregados cualquier documentación o elemento de prueba que las
-instituciones indicadas en los artículos 14, 15 y 36 tengan en su poder,
-cuando se requiera para una investigación. La resolución que acuerde lo
-anterior deberá fundamentar debidamente la necesidad del informe o el
-aporte del elemento probatorio.
+Artículo 37.—Los precursores y otras sustancias químicas se identificarán con los nombres y la clasificación digital que figuran en la Nomenclatura del Consejo de Cooperación Aduanera (NCCA) y en el Sistema Armonizado de Designación y Codificación de Mercancías S.A. Estos sistemas de clasificación se utilizarán también en los registros estadísticos y en los documentos relacionados con la importación, exportación, el tránsito y trasbordo de datos precursores y sustancias, así como con otras operaciones aduaneras y con el uso en zonas o puertos francos.

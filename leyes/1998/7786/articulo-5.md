@@ -1,6 +1,1 @@
-ARTÍCULO 5.- Las acciones preventivas, dirigidas a evitar el cultivo,
-la producción, la tenencia, el tráfico, el consumo de drogas y de otros
-productos referidos en esta ley, deberán ser coordinadas por el Centro
-Nacional de Prevención contra Drogas. En materia preventiva y asistencial,
-se requerirá consultar técnicamente al Instituto sobre Alcoholismo y
-Farmacodependencia.
+Artículo 5º—Las acciones preventivas dirigidas a evitar el cultivo, la producción, la tenencia, el tráfico y el consumo de drogas y otros productos referidos en esta Ley, deberán ser coordinadas por el Instituto Costarricense sobre Drogas. En materia preventiva y asistencial, se requerirá consultar técnicamente al IAFA.

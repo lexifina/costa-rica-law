@@ -1,14 +1,2 @@
-CAPÍTULO XII
-MEDIDAS PREVENTIVAS Y DISPOSICIONES CAUTELARES
-SOBRE BIENES, PRODUCTOS O INSTRUMENTOS
-ARTÍCULO 35.- Al investigarse un delito de legitimación de capitales
-provenientes del narcotráfico, el Ministerio Público solicitará, al
-tribunal o la autoridad competente, en cualquier momento y sin
-notificación ni audiencia previas, una orden de secuestro, decomiso o
-cualquier otra medida cautelar encaminada a preservar la disponibilidad de
-los bienes, productos o instrumentos relacionados, para el eventual
-comiso.
-Esta disposición incluye la inmovilización de depósitos bajo
-investigación, en instituciones nacionales o extranjeras de las indicadas
-en los artículos 14 y 15, en cumplimiento de las disposiciones legales
-pertinentes.
+Artículo 35.—Al ingresar al país o salir de él, toda persona, nacional o extranjera, estará obligada a presentar y declarar el dinero efectivo que porte, si la cantidad es igual o superior a los diez mil dólares estadounidenses (US$10.000,00) o su equivalente en otra moneda. Asimismo, deberá declarar los títulos valores que porte por un monto igual o superior a los cincuenta mil dólares estadounidenses (US$50.000,00) o su equivalente en otra moneda. Para la declaración, deberá emplear los formularios oficiales elaborados con este fin, los cuales pondrá a su disposición la Dirección General de Aduanas en los puestos migratorios.
+Los funcionarios de la Dirección General de Aduanas estarán obligados a constatar, mediante el pasaporte u otro documento de identificación, la veracidad de los datos personales consignados en el formulario. La manifestación se anotará en la fórmula de declaración jurada y los formularios serán remitidos al Instituto Costarricense sobre Drogas, para el análisis correspondiente.

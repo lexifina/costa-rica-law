@@ -1,8 +1,2 @@
-ARTÍCULO 40.- Los precursores y otras sustancias químicas se
-identificarán con sus nombres y la clasificación digital con que figuran
-en la Nomenclatura del Consejo de Cooperación Aduanera (NCCA) y en el
-Sistema Armonizado de Designación y Codificación de Mercancías S.A. Estos
-sistemas de clasificación se utilizarán también en los registros
-estadísticos y los documentos relacionados con su importación,
-exportación, tránsito, transbordo, con otras operaciones aduaneras, y con
-zonas y puertos francos.
+Artículo 40.—Corresponderá al Instituto Costarricense sobre Drogas y al Ministerio de Hacienda, por medio de la Dirección General de Aduanas, realizar de manera coordinada, el control de la importación, exportación, reexportación y el tránsito internacional de las sustancias referidas en este título.
+Además, la Unidad de Control y Fiscalización de Precursores, del Instituto Costarricense sobre Drogas, dará seguimiento al uso de esas sustancias dentro del territorio nacional. Para estos fines, tanto el Instituto como el Laboratorio de la Dirección General de Aduanas, podrán tomar muestras y someterlas a análisis, independientemente del tipo de transacción u operación que se desarrolle.

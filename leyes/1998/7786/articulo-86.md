@@ -1,5 +1,2 @@
-ARTÍCULO 86.- A la persona física o jurídica a quien se le haya
-cancelado una patente, un permiso, una concesión o una licencia, no podrán
-autorizársele, personalmente ni mediante terceros, sean estos personas
-físicas o jurídicas, permisos, concesiones ni licencias durante los diez
-años posteriores a cancelación.
+Artículo 86.—Si, con ocasión de hechos o ilícitos contemplados en la presente Ley, se inicia una investigación de parte de las autoridades competentes, toda entidad financiera o que sea parte de un grupo financiero, tendrá la obligación de resguardar toda la información, los documentos, valores y dineros que puedan ser utilizados como evidencia o pruebas dentro de la investigación o en un proceso judicial; en cuanto a los dineros o valores que se mantengan depositados o en custodia, deberá proceder a su congelamiento o al depósito en el Banco Central de Costa Rica e informar a las autoridades de las acciones realizadas. Las obligaciones anteriores nacen a partir del momento en que las entidades reciban de las autoridades, un aviso formal de la existencia de una investigación o de un proceso penal judicial, o de que las entidades interpongan la denuncia correspondiente.
+Estas acciones no acarrearán, a las entidades o a los funcionarios que las realicen, responsabilidades administrativas, civiles, penales ni de ninguna otra índole, si se ha actuado de buena fe.

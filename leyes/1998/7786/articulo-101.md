@@ -1,4 +1,1 @@
-ARTÍCULO 101.- Para el desarrollo de sus funciones, el Centro de
-Inteligencia Conjunto Antidrogas podrá abrir una cuenta bancaria especial
-y presentará su presupuesto a la Contraloría General de la República, para
-la aprobación corrrespondiente.
+Artículo 101.—El Instituto no podrá brindar información que atente contra el secreto de las investigaciones referentes a la delincuencia del narcotráfico y legitimación de capitales, ni contra informaciones de carácter privilegiado o que, innecesariamente, puedan lesionar los derechos de la persona.

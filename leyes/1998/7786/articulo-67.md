@@ -1,14 +1,1 @@
-ARTÍCULO 67.- Siempre que no esté más severamente penado, se
-sancionará con prisión de seis meses a tres años e inhabilitación hasta de
-dos años para el ejercicio de la profesión a los regentes farmacéuticos
-cuando:
-a) No lleven debidamente registrado el control de movimientos de los
-estupefacientes y sustancias o productos psicotrópicos a que se refiere
-esta ley.
-b) No exhiban a la autoridad de salud la documentación
-correspondiente para el mejor control del comercio, suministro y uso de
-los estupefacientes y las sustancias o productos psicotrópicos a que se
-refiere esta ley.
-c) Permitan que personal no autorizado mantenga en depósito,
-manipule, despache recetas o prescriba estupefacientes o productos
-psicotrópicos declarados de uso restringido.
+Artículo 67.—Se impondrá pena de prisión de tres a ocho años a quien, directamente o por persona interpuesta, influya en un servidor público o autoridad pública, prevaliéndose del ejercicio de las facultades de su cargo o de cualquier otra situación derivada de su relación personal o jerárquica con él o con otro funcionario o autoridad pública, real o simulada, para obtener licencias, permisos o gestiones administrativas que faciliten la comisión de los delitos establecidos en esta Ley, con el propósito de lograr por ello, directa o indirectamente, un beneficio económico o una ventaja indebida para sí o para otro.

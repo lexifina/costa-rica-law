@@ -1,3 +1,19 @@
-ARTÍCULO 100.- El Centro estará a cargo de un Director, quien será su
-personero ejecutivo y coordinará acciones con cada uno de los miembros
-representantes de las instancias que lo conforman.
+Artículo 100.—El Instituto Costarricense sobre Drogas diseñará el Plan Nacional sobre Drogas y coordinará las políticas de prevención del consumo de drogas, el tratamiento, la rehabilitación y la reinserción de los farmacodependientes, así como las políticas de prevención del delito: uso, tenencia, comercialización y tráfico ilícito de drogas, estupefacientes, psicotrópicos, sustancias inhalables, drogas y fármacos susceptibles de producir dependencia física o síquica, precursores y sustancias químicas controladas, según las convenciones internacionales suscritas y ratificadas por Costa Rica y de acuerdo con cualquier otro instrumento jurídico que se apruebe sobre esta materia y las que se incluyan en los listados oficiales publicados periódicamente en La Gaceta.
+En materia de prevención del consumo, el tratamiento, la rehabilitación y la reinserción, le corresponde al IAFA la coordinación y aprobación de todos los programas públicos y privados orientados a estos fines.
+Para el cumplimiento de la competencia supracitada, el Instituto ejercerá, entre otras, las siguientes funciones:
+a) Proponer, dirigir, impulsar, coordinar y supervisar la actualización y ejecución del Plan Nacional sobre Drogas.
+b) Mantener relaciones con las diferentes administraciones, públicas o privadas, así como con expertos nacionales e internacionales que desarrollen actividades en el ámbito del Plan Nacional sobre Drogas, y prestarles el apoyo técnico necesario.
+c) Diseñar, programar, coordinar y apoyar planes contra lo siguiente:
+1.- El consumo y tráfico ilícito de drogas, con el propósito de realizar una intervención conjunta y efectiva.
+2.- El lavado de dinero producto de la actividad delictiva del narcotráfico y de otros delitos graves.
+3.- El desvío de precursores y químicos esenciales hacia la actividad delictiva del narcotráfico.
+d) Dirigir el sistema de información sobre drogas que recopile, procese, analice y emita informes oficiales sobre todos los datos y las estadísticas nacionales.
+e) Participar en las reuniones de los organismos internacionales correspondientes e intervenir en la aplicación de los acuerdos derivados de ellas; en especial, los relacionados con la prevención de farmacodependencias y la lucha contra el tráfico de drogas y las actividades conexas, ejerciendo la coordinación general entre las instituciones que actúan en tales campos, sin perjuicio de las atribuciones que estas instituciones tengan reconocidas, y de la unidad de representación y actuación del Estado en el exterior, atribuida al Ministerio de Relaciones Exteriores y Culto.
+f) Financiar programas y proyectos y otorgar cualquier otro tipo de asistencia a organismos, públicos y privados, que desarrollen actividades de prevención, en general, y de control y fiscalización de las drogas de uso lícito e ilícito, previa coordinación con las instituciones rectoras involucradas al efecto.
+g) Impulsar la profesionalización y capacitación del personal del Instituto, así como de los funcionarios públicos y privados de los organismos relacionados con el Plan Nacional sobre Drogas.
+h) Apoyar la actividad policial en materia de drogas.
+i) Coordinar y apoyar, de manera constante, los estudios o las investigaciones sobre el consumo y tráfico de drogas, las actividades conexas y la legislación correspondiente, para formular estrategias y recomendaciones, sin perjuicio de las atribuciones del IAFA.
+j) Coordinar y apoyar campañas públicas y privadas para prevenir el consumo y tráfico ilícito de drogas, debidamente aprobadas por las instituciones competentes, involucradas y consultadas al efecto.
+k) Suscribir acuerdos y propiciar convenios de cooperación e intercambio de información en el ámbito de su competencia, con instituciones y organismos nacionales e internacionales afines.
+l) Preparar, anualmente, un informe nacional sobre la situación de la prevención y el control de drogas de uso lícito e ilícito, precursores y actividades conexas en el país.
+m) Todas las funciones que en el futuro se consideren necesarias para el cumplimiento de los objetivos de la Institución.

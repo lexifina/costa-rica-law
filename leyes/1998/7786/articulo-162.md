@@ -1,0 +1,1 @@
+Artículo 162.—Facúltase al Instituto Costarricense sobre Drogas para que otorgue certificaciones, licencias y registros de operadores de precursores y químicos esenciales, mediante el cobro de las tasas previamente fijadas por el Consejo Directivo.

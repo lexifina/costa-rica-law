@@ -1,13 +1,5 @@
-ARTÍCULO 95.- El Centro Nacional de Prevención contra Drogas estará
-dirigido por una Junta Administrativa integrada por los siguientes
-miembros:
-a) El Ministro de Justicia y Gracia.
-b) El Ministro de Salud.
-c) El Ministro de Educación Pública.
-d) El Ministro de Seguridad Pública.
-e) El Director General del Instituto sobre Alcoholismo y
-Farmacodependencia.
-f) El Fiscal General de la República.
-g) El representante del Presidente de la República.
-El Presidente de la República designará entre los miembros al
-representante legal y Presidente de la Junta Administrativa.
+TÍTULO VI
+Destrucción de Plantaciones y Drogas Ilícitas
+CAPÍTULO ÚNICO
+Artículo 95.—Los miembros del Organismo de Investigación Judicial (OIJ) y de la Policía de Control de Drogas, estarán facultados para las investigaciones y la erradicación de las plantaciones de marihuana o de cualquier otra planta a partir de la cual puedan producirse drogas ilícitas, salvo que, supletoriamente, lo realicen las autoridades locales por razones que imposibiliten a las primeras su atención.
+Previo a la destrucción, se tomarán muestras suficientes de las plantas para las respectivas peritaciones, de acuerdo con las recomendaciones emitidas por el Departamento de Ciencias Forenses del OIJ. Se identificarán el predio cultivado por sus linderos y el área aproximada de la plantación. Se anotarán los nombres y demás datos personales del propietario o poseedor del terreno y de las personas halladas en él a la hora de la diligencia. Estos datos y cualquier otro de interés para los fines de la investigación, se harán constar en un acta que se sujetará a las formalidades establecidas en la legislación procesal penal. Una copia del acta de destrucción y los informes policiales serán enviados al Instituto, por el cuerpo policial que realizó la erradicación, para lo que corresponda.

@@ -1,0 +1,1 @@
+Artículo 156.—El director general y el director general adjunto del Instituto Costarricense sobre Drogas estarán sujetos a la obligación establecida en el artículo 4º de la Ley de enriquecimiento ilícito de los servidores públicos.

@@ -1,0 +1,1 @@
+Artículo 125.—Todos los ministerios y las instituciones públicas y privadas, suministrarán, en forma expedita, la información y documentación que les solicite esta Unidad para el cumplimiento de sus fines. Dicha información será estrictamente confidencial.

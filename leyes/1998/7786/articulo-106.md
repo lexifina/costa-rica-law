@@ -1,11 +1,2 @@
-ARTÍCULO 106.- El Centro tendrá una Unidad de análisis financiero que
-podrá solicitar, recopilar y analizar los informes, formularios y reportes
-de transacciones sospechosas provenientes de las instituciones
-financieras, en procura de centralizar y analizar dicha información para
-investigar las actividades de legitimación de capitales. La pondrá en
-conocimiento del Director General del Centro, quien la comunicará al
-Ministerio Público para lo que corresponda.
-También será labor de la Unidad de análisis financiero la ubicación
-y el seguimiento de los bienes de interés económico obtenidos en los
-delitos tipificados por esta ley. Los resultados de dicha labor deberán
-comunicarse al fiscal del Ministerio Público responsable del caso.
+Artículo 106.—Además de los órganos señalados en el artículo anterior, actuarán como órganos asesores del Instituto: la Comisión Asesora de Políticas Preventivas, la Comisión para el Control y Fiscalización de Precursores, la Comisión Asesora de Políticas Represivas y la Comisión Asesora para Prevención y Control de la Legitimación de Capitales. Para todos los efectos, se entenderá que las comisiones realizarán su trabajo ad honórem.
+El Consejo Directivo, de acuerdo con los criterios de oportunidad y conveniencia, podrá crear nuevas comisiones o modificar su integración con los representantes de las entidades o los órganos que considere pertinentes.

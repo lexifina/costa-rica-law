@@ -1,0 +1,6 @@
+SECCIÓN VII
+Unidad de Análisis Financiero
+Artículo 123.—La Unidad de Análisis Financiero solicitará, recopilará y analizará los informes, formularios y reportes de transacciones sospechosas, provenientes de los órganos de supervisión y de las instituciones señaladas en los artículos 14 y 15 de la presente Ley, con la finalidad de centralizar y analizar dicha información para investigar las actividades de legitimación de capitales. Esta investigación será puesta en conocimiento de la Dirección General, que la comunicará al Ministerio Público para lo que corresponda.
+Los organismos y las instituciones del Estado, y especialmente el Ministerio de Hacienda, el Banco Central de Costa Rica, el Registro Público y los organismos públicos de fiscalización, así como las entidades señaladas en los artículos 14 y 15 de la presente Ley, estarán obligados a suministrar la información requerida para las investigaciones de las actividades y los delitos regulados en la presente Ley, a solicitud de esta Unidad con el refrendo de la Dirección General.
+Además, será labor de la Unidad de Análisis Financiero la ubicación y el seguimiento de los bienes de interés económico obtenidos en los delitos tipificados en esta Ley.
+El Ministerio Público ordenará la investigación financiera simultánea o con posterioridad a la investigación por los delitos indicados.

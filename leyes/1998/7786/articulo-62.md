@@ -1,4 +1,3 @@
-ARTÍCULO 62.- Será sancionado con pena de prisión de tres a ocho años
-quien construya o facilite el uso de pistas de aterrizaje o sitios de
-atraque para ser utilizados en el transporte de dinero o bienes
-provenientes del narcotráfico, drogas o sustancias referidas en esta ley.
+Artículo 62.—Se impondrá pena de prisión de tres a diez años e inhabilitación para el ejercicio de las funciones públicas durante el mismo período, al servidor o funcionario público que procure, por cualquier medio, la impunidad o evasión de las personas sujetas a investigación, indiciadas o condenadas por la comisión de alguno de los delitos tipificados en esta Ley.
+La pena será de ocho a veinte años de prisión si los actos mencionados en el párrafo anterior son realizados por un juez o fiscal de la República.
+Si los hechos ocurren por culpa del funcionario o empleado, se le impondrá pena de prisión de seis meses a tres años, en los presupuestos del primer párrafo del presente artículo, y pena de prisión de dos a cinco años cuando se trate de los actos contemplados en el segundo párrafo; en ambos casos, se impondrá inhabilitación para ejercer cargos públicos por el mismo plazo.

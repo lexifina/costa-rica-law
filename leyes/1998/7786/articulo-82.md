@@ -1,14 +1,4 @@
-ARTÍCULO 82.- De ordenarse la medida cautelar mencionada en el
-artículo anterior, los bienes deberán ponerse en depósito judicial, en
-forma inmediata y exclusiva, a la orden del Centro Nacional de Prevención
-contra Drogas. Previo aseguramiento por el valor del bien para garantizar
-un posible resarcimiento por deterioro o destrucción, el Centro deberá
-destinarlos inmediatamente y en forma exclusiva al cumplimiento de los
-fines descritos en la presente ley, salvo casos muy calificados aprobados
-por la Junta Administrativa. Asimismo, podrá administrar los bienes o
-entregarlos en fideicomiso a un banco comercial del Estado, según convenga
-a sus intereses. Si se tratare de bienes inscritos en el Registro
-Nacional, la autoridad que conozca de la causa ordenará inmediatamente la
-anotación respectiva y la comunicará al Centro mencionado. Los beneficios
-de la administración o fideicomiso se utilizarán para la consecución de
-sus fines.
+Artículo 82.—Las personas físicas o jurídicas que desarrollen actividades de las enlistadas en el artículo 36 de esta Ley, estarán sujetas a las siguientes sanciones administrativas:
+a) Suspensión temporal del registro referido en el artículo 42 de la presente Ley, cuando se descubran situaciones irregulares que puedan vincularse con alguno de los delitos tipificados en ella, que ameriten el traslado de la investigación a la policía encargada del control de drogas no autorizadas y actividades conexas.
+b) Cancelación definitiva del registro referido en el citado artículo 42, cuando se compruebe la comisión de alguno de los delitos tipificados en esta Ley, por parte de empleados, funcionarios, directivos, propietarios y otros que hayan actuado en carácter de representantes autorizados de la persona física o jurídica a la que se asignó el registro.
+c) Decomiso administrativo, a favor del Instituto Costarricense sobre Drogas, de los precursores o químicos esenciales que hayan sido importados, comprados localmente, producidos, reciclados, u otros, si no han cumplido los requisitos establecidos en esta y otras leyes y reglamentos que rigen esta materia.

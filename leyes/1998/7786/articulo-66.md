@@ -1,5 +1,2 @@
-ARTÍCULO 66.- Se impondrá pena de prisión de dos a cinco años a
-quien, estando legalmente autorizado, expenda o suministre las sustancias
-controladas a que se refiere esta ley, sin receta médica o excediendo las
-cantidades señaladas en la receta. Además de esta sanción, se le impondrá
-inhabilitación de cuatro a ocho años para ejercer la profesión u oficio.
+Artículo 66.—Se impondrá pena de prisión de uno a seis años a los responsables o empleados de establecimientos abiertos al público que permitan, en el local, la concurrencia de personas para consumir las drogas y los productos regulados en esta Ley.
+Asimismo, podrá ordenarse la cancelación de la licencia, el permiso o la autorización para ejercer la actividad por cuyo desempeño se ha cometido el delito, u ordenarse la clausura temporal o definitiva de la actividad, el establecimiento o la empresa por los cuales se ha cometido el delito.

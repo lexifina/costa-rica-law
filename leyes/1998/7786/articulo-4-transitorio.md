@@ -1,0 +1,2 @@
+Transitorio IV.—Las disposiciones contenidas en la presente Ley sobre la creación y el funcionamiento del Instituto Costarricense sobre Drogas entrarán en vigencia nueve meses después de la publicación de esta Ley. Sin embargo, las nuevas funciones que esta Ley atribuye a la Unidad de Análisis Financiero, serán ejercidas por la actual Unidad de Análisis Financiero del Centro de Inteligencia Conjunto Antidrogas, durante los nueve meses siguientes a la publicación de esta Ley.
+Rige a partir de su publicación.

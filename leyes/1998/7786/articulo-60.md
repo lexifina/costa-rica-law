@@ -1,1 +1,1 @@
-Texto no disponible
+Artículo 60.—Será sancionado con pena de prisión de cuatro a ocho años quien, por cualquier medio, intimide o disuada a otra persona para evitar la denuncia, el testimonio, la investigación, la promoción y el ejercicio de la acción penal o el juzgamiento de las actividades delictivas descritas en esta Ley.

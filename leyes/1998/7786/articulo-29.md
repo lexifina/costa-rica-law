@@ -1,9 +1,1 @@
-ARTÍCULO 29.- Las instituciones financieras deberán designar a los
-funcionarios encargados de vigilar el cumplimiento de los programas y los
-procedimientos internos, incluidos el mantenimiento de registros adecuados
-y la comunicación de transacciones sospechosas. Estos funcionarios
-servirán de enlace con las autoridades competentes. La Gerencia General o
-la administración de la institución financiera respectiva proporcionará
-los canales de comunicación adecuados para facilitar que dichos
-funcionarios cumplan con la labor. Además, supervisará el trabajo de los
-encargados de cumplirla.
+Artículo 29.—El Instituto Costarricense sobre Drogas y los órganos dotados de potestades de fiscalización y supervisión sobre las instituciones sometidas a esta Ley, con prontitud deberán poner en conocimiento del Ministerio Público cualquier información recibida de las instituciones financieras, referente a transacciones o actividades sospechosas que puedan relacionarse con los delitos señalados en esta Ley.

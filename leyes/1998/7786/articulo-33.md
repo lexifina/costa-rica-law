@@ -1,7 +1,5 @@
-ARTÍCULO 33.- Las entidades del sistema financiero nacional
-procurarán suscribir los convenios internacionales de cooperación a su
-alcance, que garanticen la libre transferencia de datos relacionados con
-cuentas abiertas en otros Estados y ligadas en las investigaciones, los
-procesos y las actuaciones referentes a delitos establecidos en esta ley
-o delitos conexos, y en las infracciones de las leyes o los reglamentos
-administrativos financieros.
+CAPÍTULO XI
+Medidas Preventivas y Disposiciones Cautelares
+sobre Bienes, Productos o Instrumentos
+Artículo 33.—Al investigarse un delito de legitimación de capitales, el Ministerio Público solicitará al tribunal o la autoridad competente, en cualquier momento y sin notificación ni audiencia previas, una orden de secuestro, decomiso o cualquier otra medida cautelar encaminada a preservar la disponibilidad de los bienes, productos o instrumentos relacionados, para el eventual comiso.
+Esta disposición incluye la inmovilización de depósitos bajo investigación, en instituciones nacionales o extranjeras de las indicadas en los artículos 14 y 15 de esta Ley, en cumplimiento de las disposiciones legales pertinentes.

@@ -1,6 +1,1 @@
-ARTÍCULO 31.- El Centro de Inteligencia Conjunto Antidrogas y los
-órganos dotados de potestades de fiscalización y supervisión sobre las
-instituciones sometidas a esta ley, deberán poner en conocimiento del
-Ministerio Público, con prontitud, cualquier información recibida de las
-instituciones financieras, referente a transacciones o actividades
-sospechosas que puedan relacionarse con los delitos señalados en esta ley.
+Artículo 31.—Las entidades del sistema financiero nacional procurarán suscribir los convenios internacionales de cooperación a su alcance, que garanticen la libre transferencia de los datos relacionados con cuentas abiertas en otros estados y ligadas a las investigaciones, los procesos y las actuaciones referentes a delitos tipificados en esta Ley o delitos conexos y a las infracciones contra las leyes o los reglamentos administrativos financieros.

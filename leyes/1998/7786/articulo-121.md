@@ -1,0 +1,7 @@
+SECCIÓN VI
+Unidad de Registros y Consultas
+Artículo 121.—La Unidad de Registros y Consultas estructurará y custodiará un registro de información absolutamente confidencial que, por su naturaleza, resulte útil para las investigaciones de las policías y del Ministerio Público.
+Con las salvedades de orden constitucional y legal para cumplir sus cometidos, esta Unidad tendrá acceso a los archivos que contienen el nombre y la dirección de los abonados del Instituto Costarricense de Electricidad, al archivo criminal del Organismo de Investigación Judicial (OIJ), al archivo obrero-patronal de la CCSS y a cualquier fuente o sistema de información, documento, instrumento, cuenta o declaración de todas las instituciones, públicas o privadas.
+La información obtenida se destinará al uso exclusivo de las policías y del Ministerio Público, que la consultarán bajo la supervisión del jefe de esta Unidad, quien anotará el nombre completo del consultante, la hora, la fecha y el motivo de la consulta.
+Con el propósito de mantener actualizado el registro de información, las policías que realicen investigaciones por los delitos de narcotráfico, deberán remitir al Instituto el informe de policía, inmediatamente después de haberlo presentado al Ministerio Público para la respectiva investigación preparatoria.
+La estructura técnica y administrativa de la Unidad de Registros y Consultas se dispondrá reglamentariamente.

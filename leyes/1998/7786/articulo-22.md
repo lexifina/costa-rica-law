@@ -1,4 +1,2 @@
-ARTÍCULO 22.- La institución financiera llevará dicho registro, en
-forma precisa y completa, financiera en la fecha en que se realice la
-transacción y lo conservará durante el término de cinco años a partir de
-la fecha.
+Artículo 22.—A partir de la fecha en que se realice cada transacción, la institución financiera llevará un registro, en forma precisa y completa, de los documentos, las comunicaciones por medios electrónicos y cualesquiera otros medios de prueba que la respalden, y los conservará por un período de cinco años a partir de la finalización de la transacción.
+Dicha información estará a la disposición inmediata del organismo supervisor correspondiente.

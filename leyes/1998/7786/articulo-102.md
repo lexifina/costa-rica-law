@@ -1,4 +1,1 @@
-ARTÍCULO 102.- El Centro se financiará con los recursos que se le
-asignen como transferencia global en el presupuesto nacional y las
-donaciones y los legados de cualquier naturaleza, tanto nacionales como
-internacionales que se le concedan.
+Artículo 102.—Los entes, los órganos o las personas que revistan especial importancia para el cumplimiento de los propósitos del Instituto, estarán obligados a colaborar en la forma en que este lo determine, de acuerdo con los medios técnicos, humanos y materiales disponibles.

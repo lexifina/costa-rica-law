@@ -1,2 +1,3 @@
-ARTÍCULO 99.- El miembro que designe el Presidente de la República
-será el representante legal y el Presidente de la Junta.
+Artículo 99.—El Instituto Costarricense sobre Drogas será el encargado de coordinar, diseñar e implementar las políticas, los planes y las estrategias para la prevención del consumo de drogas, el tratamiento, la rehabilitación y la reinserción de los farmacodependientes, y las políticas, los planes y las estrategias contra el tráfico ilícito de drogas, la legitimación de capitales provenientes de narcotráfico, actividades conexas y delitos graves.
+Este Instituto deberá coordinar con el IAFA, como rector técnico en materia de prevención del consumo y tratamiento, la CCSS, el Ministerio Público y el OIJ, el diseño y la implementación de políticas, planes y estrategias en aspectos de prevención, consumo, tratamiento, rehabilitación y reinserción en materia de drogas.
+El Instituto coordinará con el Ministerio de Salud, el MAG y las corporaciones profesionales correspondientes, la implementación y el diseño de políticas, planes y estrategias relacionadas con el control y la fiscalización de las drogas de uso lícito.
