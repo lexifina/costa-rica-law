@@ -1,0 +1,2 @@
+Artículo 5°.—Si el arrendatario o quien lo sucediere en sus derechos no deseare prorrogar su contrato o si no quisiere pagar la renta fijada por peritos, quedarán las mejoras en beneficio del terreno; y se procederá a un nuevo arrendamiento con otra persona en virtud de licitación y de conformidad con el sistema expuesto.
+En este caso el avalúo que sirva para la licitación lo harán los peritos tomando en cuenta no solo el disfrute del suelo sino el de los edificios
