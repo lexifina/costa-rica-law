@@ -1,0 +1,1 @@
+Artículo 2°-Levántese en consecuencia, la declaratoria de afectaciones vigente en las áreas de las respectivas zonas de Titulación a que se refiere cada decreto de las mencionadas en el artículo 1° que antecede y que conforman el Programa de Titulación masiva de tierras a cargo del Instituto de Tierras y Colonización.
