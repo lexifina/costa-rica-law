@@ -1,0 +1,1 @@
+Artículo 1º—Por acuerdo Nº de la sesión ordinaria Nº del día del mes de de, celebrada por el Consejo de Administración, se acuerda aprobar el presente Reglamento de Caja Recaudadora de la Municipalidad de Naranjo, con el fin exclusivo de recibir ingresos municipales, de acuerdo al Artículo Nº 108 del Código Municipal.

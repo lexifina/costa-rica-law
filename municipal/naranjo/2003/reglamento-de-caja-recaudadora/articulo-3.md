@@ -1,0 +1,1 @@
+Artículo 3º—La Unidad Administrativa o la Plataforma de servicio al Cliente es la oficina encargada de emitir los recibos o comprobantes de ingreso. La impresión se realiza directamente en la caja recaudadora, debe de mantenerse el consecutivo y realizarse en original y una copia.

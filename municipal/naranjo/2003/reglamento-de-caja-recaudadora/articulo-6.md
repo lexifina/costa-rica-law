@@ -1,0 +1,1 @@
+Artículo 6º—El Tesorero o Auxiliar de Tesorería prepara el o los depósitos necesarios para ser enviados al Banco, deben guardarse en la caja fuerte y ser enviados el primer día hábil después del cierre de caja.

@@ -1,0 +1,1 @@
+Artículo 10.—En caso de vacaciones, tiempo de almuerzo, café, permisos, incapacidades del cajero(a), será sustituido por el Tesorero o el Auxiliar de Tesorería. La Caja General se segregará en dos fondos uno general de ¢120.000,00 y otro de ¢40.000,00, el cual manejará la persona que se asigna como sustituta del Cajero General.

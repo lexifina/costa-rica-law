@@ -1,0 +1,2 @@
+Artículo 8º—En el caso de un faltante a la hora de cierre de la Caja Recaudadora, el encargado deberá cubrir ese faltante, en un día hábil después, ya que es responsable directo del faltante en tanto no haya liquidado la retribución ante el Tesorero o Auxiliar de Tesorería.
+En el caso de un sobrante en la recaudación, caso que no debe ocurrir, será depositado al día siguiente a nombre de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 2º—El monto de dinero inicial con que operará la Caja Recaudadora será de ciento sesenta mil colones con 00/100 (¢160.000,00), en moneda nacional el cual podrá ser modificado por el Consejo Municipal según las necesidades presentes y futuras de la Municipalidad de Naranjo, y será exclusivamente para dar vuelto a los contribuyentes.
