@@ -15,3 +15,4 @@ Reglamento de asignación, giro y fiscalización de recursos económicos destina
 | --- | --- | --- |
 | 1 | 2003-05-15 | la propia norma |
 | 2 | 2004-07-08 | Reglamento 0 (2004-07-08) |
+| 3 | 2004-08-25 | Reglamento 384 (2004-08-25) |
