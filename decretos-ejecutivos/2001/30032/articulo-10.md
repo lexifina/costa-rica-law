@@ -1,0 +1,1 @@
+Artículo 10.—El Ministerio de Salud realizará la vigilancia del cumplimiento de las disposiciones establecidas en el presente decreto, tanto para los productos de fabricación nacional como importados, mediante la recolección de muestras en los establecimientos industriales y comerciales que estime conveniente.

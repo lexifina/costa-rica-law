@@ -1,0 +1,1 @@
+Artículo 11.—En caso de establecerse que la sal y los otros productos no cumplen con lo establecido en este decreto se procederá de acuerdo a lo establecido en la Ley General de Salud y la Ley cíe Promoción de la Competencia v Defensa Efectiva del Consumidor sin perjuicio de otras sanciones legales, administrativas o penales.

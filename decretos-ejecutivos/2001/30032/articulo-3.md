@@ -1,0 +1,1 @@
+Artículo 3°—La sal destinada a la industria alimentaria no debe contener flúor; excepto la sal utilizada en la elaboración de consomés condensados y concentrados y los consomés deshidratados; todos los cuales deben contener yodo y flúor en los niveles estipulados en el artículo primero del presente decreto.

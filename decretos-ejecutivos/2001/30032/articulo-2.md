@@ -1,0 +1,1 @@
+Artículo 2°—La sal destinada a la industria alimentaria debe contener los requisitos de yodo establecidos en artículo 1° del presente decreto, salvo en aquellos casos en que se demuestre mediante estudios científicos que este ingrediente afecta significativamente sus procesos productivos o las características organolépticas del producto.
