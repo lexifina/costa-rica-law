@@ -1,0 +1,1 @@
+Artículo 13.- No afectación de la obligación tributaria. La obligación tributaria no se afecta por circunstancias relativas a la validez de los actos o a la naturaleza del objeto perseguido por las partes, ni por los efectos que los hechos o actos gravados tengan en otras ramas del Derecho Positivo costarricense.
