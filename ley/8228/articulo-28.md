@@ -1,0 +1,1 @@
+Artículo 28.—Uso de logos, lema y distintivos. Se impondrá una multa de tres a diez salarios base, de conformidad con lo dispuesto en el Código Penal, Ley Nº 4573, de 4 de mayo de 1970, y sus reformas, a quien, careciendo de autorización del INS use el nombre, la insignia, la imagen, los escudos o los distintivos del Cuerpo de Bomberos.

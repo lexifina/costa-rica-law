@@ -1,0 +1,1 @@
+Artículo 39.—Medios de comunicación. Durante una situación de emergencia, en caso de que el Cuerpo de Bomberos no cuente con el equipo necesario, los medios de comunicación públicos o privados deberán prestar su colaboración en el envío de mensajes como parte del procedimiento para atender la emergencia.

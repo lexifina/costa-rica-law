@@ -1,0 +1,2 @@
+Artículo 38.—Inclusión en actividades académicas. Las universidades públicas y privadas, el Instituto Nacional de Aprendizaje y otras instituciones de educación podrán incluir, en sus actividades académicas, contenidos o prácticas que adiestren, capaciten y formen a los educandos y profesores en la prevención y atención de situaciones específicas de emergencia.
+El Cuerpo de Bomberos podrá colaborar en la elaboración del diseño curricular de los planes de estudio.
