@@ -1,0 +1,1 @@
+Artículo 3°.- El precio de referencia será el precio promedio ponderado por embarque sobre las exportaciones de azúcar realizadas a partir del 1° de enero de 1976, y cuyo derecho de exportación ad valórem creado por Ley 5519 haya sido liquidado en el Banco Central.

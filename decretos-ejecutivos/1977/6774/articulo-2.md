@@ -1,0 +1,1 @@
+Artículo 2°.- La distribución de los fondos a que se refiere la mencionada Norma General N° 54 y sus reformas, se hará conforme a los precios definitivos por embarque sobre la base del monto recaudado en tales embarques por concepto del derecho ad-valórem correspondiente a la exportación de azúcar, creado por la ley N° 5519 de 24 de abril de 1974.

@@ -1,0 +1,1 @@
+Artículo 4°.- El Banco Central de Costa girará a las municipalidades respectivas la suma que les corresponda, con base en la información que para tal efecto deberá suministrar la Liga Agrícola industrial de la Caña de Azúcar, de caña producida por los diferentes cantones del país durante la zafra 1975/1976.
