@@ -1,1 +1,3 @@
-Texto no disponible
+Artículo 24.—Plazo para otorgar las escrituras. Luego de que el Centro de Administración de Crédito asigna un expediente de crédito, el notario contará con cuatro días hábiles, para retirarlo, confeccionar la escritura, efectuar las correcciones necesarias y entregar una copia del testimonio de la escritura que se presentará al Registro Publico, para la revisión respectiva del Banco.
+Para efectos de la revisión indicada en el párrafo anterior, el notario deberá presentar los documentos razonablemente limpios de buena calidad y nitidez, con las cláusulas y condiciones crediticias aprobadas, sin errores u omisiones de carácter sustancial que afecten la validez del negocio o la recuperación del crédito.
+(Así reformado mediante sesión 11177 celebrada el 5 de mayo del 2002)
