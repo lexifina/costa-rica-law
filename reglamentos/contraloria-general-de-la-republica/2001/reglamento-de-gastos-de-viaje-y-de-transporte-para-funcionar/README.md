@@ -15,3 +15,4 @@ Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos
 | --- | --- | --- |
 | 1 | 2001-05-22 | la propia norma |
 | 2 | 2001-11-29 | Reglamento 22 (2001-11-29) |
+| 3 | 2003-08-05 | Reglamento 3 (2003-08-05) |

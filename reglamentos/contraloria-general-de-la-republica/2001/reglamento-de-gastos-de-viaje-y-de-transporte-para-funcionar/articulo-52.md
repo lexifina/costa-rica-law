@@ -1,6 +1,3 @@
-Artículo 51º.- Autorización previa y presentación de facturas. Para el reconocimiento de los gastos de representación ocasionales será indispensable, además de la autorización previa que exige el Artículo 7º, la presentación de las correspondientes facturas, acompañadas de una justificación con el siguiente detalle:
-Cargo y nombre de los funcionarios atendidos y de la entidad a que pertenecen.
-Nombre y firma del funcionario responsable del pago.
-Motivo de la atención.
-Clase o tipo de atención.
-El incumplimiento de este requisito obligará a reintegrar la suma que se hubiere girado como adelanto por ese concepto.
+CAPITULO VI
+DISPOSICIONES FINALES
+Artículo 52º.- Reconocimiento de gastos conexos. Los gastos conexos del evento o actividad a los que el funcionario asistiere podrán ser reconocidos . Para tales efectos se considera gastos conexos, las cuotas de inscripción en el evento, alquiler de equipo didáctico o de apoyo para hacer presentaciones o exposiciones, adquisición o reproducción de material bibliográfico siempre que sea para entregar a la biblioteca del organismo público al que pertenece el servidor y las llamadas telefónicas oficiales a nuestro país cuando en el acuerdo de viaje se haya autorizado al funcionario a hacerlas. Estos gastos se pagarán únicamente contra la presentación de la (s) respectiva (s) factura (s) al momento de hacer la liquidación.

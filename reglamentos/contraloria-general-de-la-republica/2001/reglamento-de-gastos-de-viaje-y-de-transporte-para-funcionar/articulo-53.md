@@ -1,3 +1,6 @@
-CAPITULO VI
-DISPOSICIONES FINALES
-Artículo 52º.- Reconocimiento de gastos conexos. Los gastos conexos del evento o actividad a los que el funcionario asistiere podrán ser reconocidos . Para tales efectos se considera gastos conexos, las cuotas de inscripción en el evento, alquiler de equipo didáctico o de apoyo para hacer presentaciones o exposiciones, adquisición o reproducción de material bibliográfico siempre que sea para entregar a la biblioteca del organismo público al que pertenece el servidor y las llamadas telefónicas oficiales a nuestro país cuando en el acuerdo de viaje se haya autorizado al funcionario a hacerlas. Estos gastos se pagarán únicamente contra la presentación de la (s) respectiva (s) factura (s) al momento de hacer la liquidación.
+Artículo 53º.- Autorizaciones especiales. Las situaciones excepcionales que se presenten, podrán someterse a consideración del Contralor o Subcontralor Generales de la República, con el propósito de que ellos acuerden dar o no autorizaciones especiales sobre cualquier aspecto no contemplado en este Reglamento, si tales situaciones cumplen con los siguientes requisitos:
+a) Que la solicitud se haga previamente a la realización del viaje.
+b) Que la actividad sujeta a autorización no contravenga el orden jurídico vigente.
+c) Que la realización de la actividad sea conveniente al interés público.
+d) Que se trate de una situación que ocurre en forma esporádica o imprevista.
+e) Que la solicitud sea hecha a instancia de la autoridad superior del ente público respectivo.

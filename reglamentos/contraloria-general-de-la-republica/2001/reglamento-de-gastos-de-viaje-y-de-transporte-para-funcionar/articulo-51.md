@@ -1,2 +1,6 @@
-Artículo 50º.- Fijación del monto. Corresponde al órgano superior de cada ente público autorizar y fijar, en el acuerdo de viaje que regula el Artículo 31º, el monto del gasto de representación en los viajes al exterior y establecer el tipo de atención que el funcionario que goce de esa prerrogativa puede brindar a los funcionarios que va a visitar en cumplimiento de su misión. Dicho monto, además de ser razonable, debe guardar relación con la categoría del funcionario que efectúa el gasto y con el evento que lo origina.
-Las sumas giradas por concepto de gastos de representación, están sujetas a las mismas disposiciones del Artículo 46º de este Reglamento.
+Artículo 51º.- Autorización previa y presentación de facturas. Para el reconocimiento de los gastos de representación ocasionales será indispensable, además de la autorización previa que exige el Artículo 7º, la presentación de las correspondientes facturas, acompañadas de una justificación con el siguiente detalle:
+Cargo y nombre de los funcionarios atendidos y de la entidad a que pertenecen.
+Nombre y firma del funcionario responsable del pago.
+Motivo de la atención.
+Clase o tipo de atención.
+El incumplimiento de este requisito obligará a reintegrar la suma que se hubiere girado como adelanto por ese concepto.

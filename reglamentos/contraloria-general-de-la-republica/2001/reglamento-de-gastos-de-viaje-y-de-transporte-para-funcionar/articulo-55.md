@@ -1,1 +1,8 @@
-Artículo 54º.- Derogatorias. Conforme con las previsiones de la Ley No. 3462 del 26 de noviembre de 1964, quedan derogadas todas las regulaciones existentes sobre gastos de viaje, en el sector público, que se opongan a este Reglamento.
+Artículo 55º.- Vigencia. Rige a partir de su publicación.
+Lic. Luis Fernando Vargas Benavides
+CONTRALOR GENERAL DE LA REPUBLICA
+LGRA:mst
+ci: Archivo General
+Autorizaciones y Aprobaciones
+Autorizaciones, Aprobaciones y Certificaciones
+Of. No. DI-AA-1240
