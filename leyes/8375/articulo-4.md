@@ -1,0 +1,1 @@
+Artículo 4º—Corresponderá a la administración activa del Programa Integral de Mercadeo Agropecuario, elaborar los presupuestos necesarios para el correcto funcionamiento de la Red Frigorífica Nacional, así como la contratación del personal adecuado para su manejo, en el entendido de que siempre se velará por la continuidad del servicio público de la Red.

@@ -1,0 +1,1 @@
+Artículo 5º—El Consejo Directivo podrá, por recomendación del gerente general, determinar y aprobar la escala tarifaria por aplicar para el cobro de los servicios de frío y congelamiento, así como otros servicios complementarios brindados por la Red Frigorífica Nacional.
