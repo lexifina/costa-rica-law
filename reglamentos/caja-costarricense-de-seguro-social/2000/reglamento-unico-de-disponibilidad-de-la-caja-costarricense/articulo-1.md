@@ -1,6 +1,5 @@
 CAJA COSTARRICENSE DE SEGURO SOCIAL JUNTA DIRECTIVA
 La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 6° de la sesión 7490 , celebrada el 19 de octubre del 2000, dispuso aprobar el siguiente Reglamento Único de Disponibilidad.
-REGLAMENTO ÚNICO DE DISPONIBILIDAD
 Disponibilidad:
 Se entiende por disponibilidad médica, la labor que realiza un médico fuera de su jornada ordinaria de trabajo, consistente en estar disponible y localizable en un radio no mayor a 15 kilómetros del respectivo establecimiento, para la atención de emergencias y por una remuneración especial. Ante la llamada, el médico queda obligado a trasladarse al establecimiento donde presta la disponibilidad en el menor tiempo posible.
 La disponibilidad se prestará en los días y horas que previamente se señale en cada establecimiento, de acuerdo con la respectiva programación. La Caja, conforme a las necesidades del servicio, decidirá en qué dependencias se establecerá el sistema de disponibilidad. La Caja decidirá en qué especialidades o subespecialidades se establecerán las disponibilidades, de acuerdo con las necesidades y niveles de atención en cada centro asistencial.
