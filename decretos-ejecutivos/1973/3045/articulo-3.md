@@ -1,0 +1,1 @@
+Artículo 3°- Los beneficios que en virtud de este decreto se otorgan a '" Productos Alimenticios Incasa, Limitada", podrán ser modificados o regulado · en virtud de convenios, protocolos, acuerdos o resoluciones de los organismos del Tratado General de Integración Económica Centroamericana .
