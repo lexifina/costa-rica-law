@@ -1,0 +1,4 @@
+Artículo 41.- El impuesto sobre licores, vinos y cualesquiera otras bebidas de fabricación nacional autorizada por la ley, será cobrado mediante el sistema de marbetes, pagados por el productor o fabricante, y luego reintegrados por el patentado municipal en el momento de la compra.
+Su percepción por la Tesorería Nacional y su giro a las Municipalidades será similar y conjuntamente con el impuesto a que se refiere la ley Nº 533 del 25 de julio de 1946 y sus reformas; pero su giro a las Corporaciones Municipales se hará a prorrata de las respectivas poblaciones de cada jurisdicción cantonal.
+(Así adicionado por el artículo 2º de la ley Nº 2940 de 18 de diciembre de 1961)
+(NOTA: Originalmente este artículo llevó el Nº 40 al ser adicionado por la ley Nº 2940. Posteriormente se corrió su numeración a la actual, por ley Nº 4716 de 9 de febrero de 1971, artículo 52).

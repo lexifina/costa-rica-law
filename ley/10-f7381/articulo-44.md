@@ -1,0 +1,2 @@
+Artículo 44.- Todo empleado de comercio que preste sus servicios en las ventas autorizadas por la patente especial nacional de licores, tendrá derecho a una retribución extraordinaria. Además tendrá un día de asueto dentro de la semana, sin deducción alguna de su sueldo o salario.
+(NOTA: Originalmente este artículo llevó el Nº 37, pasando a ser el 43 de acuerdo con la ley Nº 2940 de 18 de diciembre de 1961, art. 2º, y el actual conforme al 52 de la ley Nº 4716 de 9 de febrero de 1971).

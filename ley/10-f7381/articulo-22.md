@@ -1,1 +1,2 @@
-Artículo 22.- En los establecimientos públicos de licores no se permitirán juegos (ni aun los autorizados por la ley) ni espectáculos o diversiones. Se entenderá que el juego, espectáculo o diversión se encuentra en el mismo establecimiento, cuando estuviere en departamento que tenga comunicación con aquél.
+Artículo 22.- En los establecimientos públicos de licores no se permitirán juegos (ni aun los autorizados por la ley) ni espectáculos o diversiones. Se entenderá que el juego, espectáculo o diversión se encuentra en el mismo establecimiento, cuando estuviere en departamento que tenga comunicación con aquél
+(Anulado por Resolución de la Sala Constitucional No. 10000-99 del 21 de diciembre de 1999).
