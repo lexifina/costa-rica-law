@@ -1,0 +1,1 @@
+Artículo 2°—El Departamento de Cobro Administrativo y Judicial contará con personal que requieran las necesidades del servicio; atenderá la organización del cobro de las obligaciones enunciadas en el artículo anterior, y ejercerá inmediata vigilancia sobre el cuerpo de Fiscales Específicos de que se habla el artículo siguiente.
