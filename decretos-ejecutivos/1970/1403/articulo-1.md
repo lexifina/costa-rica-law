@@ -1,0 +1,14 @@
+N° 1403-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTERIO DE HACIENDA
+Considerando
+1°─ Que como parte del plan integral de reorganización hacendaria y fiscal que se emprendió en el país desde principios de marzo de 1969, resulta indispensable trazar los lineamientos generales del programa de trabajo necesario para que las reformas administrativas en trámite, una vez aprobadas, sean implantadas con todo vigor en la Administración Financiera del Estado;
+2°─ Que el crecimiento de las actividades administrativas a cargo del Poder Ejecutivo ha venido expandiéndose de forma acelerada y compleja, haciéndose necesario reestructurar los actuales sistemas para lograr el oportuno suministro de bienes y servicios, agilizar el recaudo de tributos y ordenar las operaciones hacendarias para el mejor aprovechamiento de los recursos humanos, materiales y financieros disponibles, en beneficio del desarrollo del país;
+3°─Que según lo dispone el artículo 140, inciso 8) y 18) de la Constitución Política, son deberes y atribuciones que corresponden conjuntamente al Presidente de la República y al respectivo Ministro de Gobierno: “Vigilar el buen funcionamiento de los servicios y dependencias administrativas” y “Darse el Reglamento que convenga para el régimen interior de sus Despachos y expedir los demás reglamentos y ordenanzas necesarios para la pronta ejecución de las leyes”;
+4°─ Que para dar cumplimiento a lo indicado en los incisos anteriores. Se requiere adecuar la organización administrativa a las necesidades de desarrollo, e institucionalizar los sistemas contables y de control interno , estableciendo funciones, responsabilidades, procedimientos de trabajo, planes de cuentas , aptos para registrar todas las operaciones que se cumplan con fondos, la tributación, el presupuesto, el crédito y el patrimonio públicos;
+5°─Que para lograr los objetivos indicados, se requiere establecer en un programa de acción, los sistemas que hagan posible dictar las normas y precisar los procedimientos para su aplicación; y
+6°─Que para lograr la unificación contable de todo el sector público y en virtud de que el programa de acción a que se ha hecho referencia , afecta sólo a las dependencias del poder central, se estima conveniente instar a las instituciones autónomas del país y a los personeros de otros Poderes del Estado, para que, si lo tienen a bien, designen representantes en la Comisión que por este decreto se crea.
+Por tanto
+En uso de las facultades legales,
+Decretan:
+Artículo 1°─Apruébase el Programa de Trabajo que establece sistemas integrados de Contabilidad Gubernamental, de Control y Procedimientos Administrativos , para ser desarrollados en Ministerios y Dependencias de la Administración Central, conforme el calendario y temas establecidos en los Anexos 1 y 2 del presente decreto.

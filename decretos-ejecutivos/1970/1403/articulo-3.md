@@ -1,0 +1,1 @@
+Artículo 3°─ Dispónese que los Ministerios y Dependencias de la Administración Central , deben integrar grupos de trabajo , dedicados exclusivamente al desarrollo del programa aprobado por este decreto (Anexos 1 y 2). Dichos trabajos deberán ser controlados por la Comisión de Coordinación y asesorados por los expertos de organismos internacionales asignados a este programa.
