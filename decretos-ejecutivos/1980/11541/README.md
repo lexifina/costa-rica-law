@@ -17,3 +17,4 @@ Declara Parque Nacional Palo Verde
 | 2 | 1981-07-02 | Decreto Ejecutivo 12765 (1981-07-02) |
 | 3 | 1990-11-09 | Decreto Ejecutivo 20082 (1990-11-09) |
 | 4 | 1994-12-03 | Decreto Ejecutivo 24426 (1994-12-03) |
+| 5 | 2003-11-18 | Decreto Ejecutivo 31591 (2003-11-18) |
