@@ -16,3 +16,4 @@ Reglamento de Dedicación Exclusiva de la Municipalidad de Escazú
 | 1 | 1998-08-18 | la propia norma |
 | 2 | 1998-11-24 | Reglamento municipal 40 (1998-11-24) |
 | 3 | 1999-01-14 | Reglamento municipal 46 (1999-01-14) |
+| 4 | 2004-05-03 | Reglamento municipal 105 (2004-05-03) |
