@@ -1,1 +1,0 @@
-Artículo 20.—Para facilitar la investigación preliminar de una presunta falta grave cometida por un funcionario, como medida preventiva, éste podrá ser suspendido de sus funciones, con goce de sueldo, durante dicha investigación. Esta suspensión será acordada por el Ministro-Director.

@@ -1,1 +1,0 @@
-Artículo 16.—Cuando un servidor presuntamente hubiera incurrido en un hecho que amerite amonestación verbal o por escrito, el jefe inmediato, oído al funcionario, decidirá sobre su responsabilidad y aplicará la sanción si la considera procedente, o archivará la documentación si considera que loa hechos no constituyen falta disciplinaria.

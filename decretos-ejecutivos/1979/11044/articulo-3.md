@@ -1,1 +1,0 @@
-Artículo 3°—Los servidores de la Oficina están en la obligación de comunicar al jefe inmediato los hechos que merezcan sanciones disciplinarias, conforme al Estatuto de los Servidores del Fondo del Plan Nacional de Desarrollo y al presente Reglamento y de los cuales tengan conocimiento con ocasión del ejercicio de sus cargos.
