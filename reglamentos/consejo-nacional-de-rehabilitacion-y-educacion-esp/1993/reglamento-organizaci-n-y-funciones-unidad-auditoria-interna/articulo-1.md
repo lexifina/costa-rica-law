@@ -1,0 +1,2 @@
+(NOTA DE SINALEVI: El Consejo Nacional de Rehabilitación y Educación Especial, mediante acuerdo JD-1259-07, tomado en la sesión extraordinaria N° 886 del 19 de julio de 2007, acordó la aprobación de un nuevo Reglamento de Organización y Funcionamiento de Auditoría Interna del Consejo Nacional de Rehabilitación y Educación Especial, publicado en La Gaceta N° 5 del 8 de enero de 2008, el cual puede consultarse en el sistema)
+Artículo 1°.-
