@@ -17,3 +17,4 @@ Reglamento General de Créditos y Avales.
 | 2 | 1986-02-13 | Reglamento 1520 (1986-02-13) |
 | 3 | 1986-07-24 | Reglamento 1571 (1986-07-24) |
 | 4 | 1990-02-22 | Reglamento 1937 (1990-02-22) |
+| 5 | 1990-05-17 | Reglamento 1963 (1990-05-17) |
