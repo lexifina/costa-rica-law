@@ -1,0 +1,1 @@
+Art 6°.- En las faltas graves de cualquiera clase bastará para declarar que ha lugar a la formación de causa contra dichos Jueces, el libelo de acusación en papel de partes y forma supraescrita en el artículo 2° de esta ley y que de cualquier modo conste haberlas cometido.
