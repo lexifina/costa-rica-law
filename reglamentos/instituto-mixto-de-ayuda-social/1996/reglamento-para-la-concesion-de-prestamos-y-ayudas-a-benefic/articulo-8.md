@@ -1,0 +1,1 @@
+Artículo 8°-Es competencia de la Comisión de Crédito del Programa Hogares Comunitarios, conocer, aprobar o improbar en primera constancia las solicitudes relativas a préstamos para acondicionamiento de vivienda y/o equipamiento dejando constancia en el acta de las observaciones pertinentes al otorgamiento de los créditos.

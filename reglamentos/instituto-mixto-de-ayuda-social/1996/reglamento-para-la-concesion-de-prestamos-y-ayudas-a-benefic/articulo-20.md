@@ -1,0 +1,1 @@
+Artículo 20.-Para la determinación de subsidios económicos, que no estén respaldados por la firma de un convenio con la asociación o la madre comunitaria, se deberá confeccionar un fallo asistencial en el CAS de la localidad, el cual será enviado a la Dirección General para su aprobación y giro de los fondos conforme se indica en el artículo anterior.

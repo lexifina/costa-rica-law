@@ -1,0 +1,1 @@
+Artículo 26.-La Sección de Inspección y Recaudación del IMAS será la unidad responsable de dar seguimiento a los pagos y la morosidad en que incurran los beneficiarios ante los CAS de la localidad a fin de realizarse requerimientos administrativos con antelación a un eventual cobro judicial.

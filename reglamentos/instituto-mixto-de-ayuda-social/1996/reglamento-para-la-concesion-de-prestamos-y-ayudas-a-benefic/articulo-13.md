@@ -1,0 +1,1 @@
+Artículo 13.-Los préstamos serán aprobados por la Dirección General del Programa hasta un tope máximo que determinará la administración y aprobará el Consejo Directivo del IMAS. Sumas superiores a este tope, deberán contar con la aprobación del Consejo Directivo del IMAS.

@@ -1,0 +1,1 @@
+Artículo 22.-Para los efectos del reconocimiento de estos subsidios, el IMAS establecerá los controles necesarios para determinar la planilla contra la cual se efectuará el giro en favor de las Organizaciones Comunales. La solicitud de pago será presentada por el Departamento Administrativo-Financiero del Programa y aprobada por la Dirección General.

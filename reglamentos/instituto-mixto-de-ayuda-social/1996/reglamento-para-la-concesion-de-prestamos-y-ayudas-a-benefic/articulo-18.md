@@ -1,0 +1,1 @@
+Artículo 18.-EI IMAS en casos muy calificados, y con la debida aprobación de la Dirección General del Programa, podrá otorgar subsidios económicos temporales a los padres de familia o responsables legales de los niños con el fin de que puedan sufragar los gastos mensuales por el servicio que brinda la Madre Comunitaria.

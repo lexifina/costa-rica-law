@@ -1,0 +1,1 @@
+Artículo 10.-En caso de que el crédito sea reprobado por la Comisión, este se remitirá a la Dirección General del Programa con las observaciones pertinentes. Si el beneficiario persiste en la obtención de su crédito este podrá ser remitido a la Comisión de Crédito para su reconsideración.

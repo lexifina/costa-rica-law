@@ -1,0 +1,1 @@
+Artículo 7°-La Dirección de Operaciones establecerá los nexos de coordinación pertinentes para los casos que se requieran préstamos para acondicionamiento y/o mejoramiento de vivienda. Asimismo trasladará a la Comisión de Crédito los documentos necesarios para su revisión, análisis y recomendación.

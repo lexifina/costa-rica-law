@@ -1,0 +1,2 @@
+Artículo 19.-Los dineros por concepto de ayudas o subsidios, temporales o permanentes, serán remitidos a los CAS de la localidad para su distribución conforme los procedimientos institucionales establecidos.
+La solicitud para el giro de dinero será enviada mensualmente a la instancia que corresponda, por el Departamento Administrativo-Financiero del Programa, previa aprobación del Director General del Programa.
