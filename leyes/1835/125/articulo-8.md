@@ -1,0 +1,1 @@
+Art 8.- Los tercenistas así mismo descontarán únicamente la mitad del premio por la venta que hagan, considerada sin el sobreprecio, pues no aumentándoseles el trabajo, tampoco deben cobrarlo del producto de este.
