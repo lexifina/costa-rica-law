@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de pajas de agua a unidades habitacionales ya co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-04-02 | la propia norma |
+| 2 | 2003-04-14 | Reglamento municipal 30 (2003-04-14) |
