@@ -1,7 +1,8 @@
 CAPITULO IV
 De la Secretaría Técnica
 Artículo 16.—La Secretaría Técnica tendrá las siguientes funciones:
-a) Acatar y ejecutar las políticas y directrices que el Consejo Nacional emita.
+a) Acatar y ejecutar las políticas emanadas de la junta directiva y las directrices de la Presidencia Ejecutiva.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 97-0090 del 17 de noviembre de 1997)
 b) Recibir las solicitudes de adopción en los casos que sean de la competencia del consejo nacional.
 c) Apertura y tramitación de los expedientes respectivos.
 d) Evaluación social y psicológica de las familias promoventes de adopción.

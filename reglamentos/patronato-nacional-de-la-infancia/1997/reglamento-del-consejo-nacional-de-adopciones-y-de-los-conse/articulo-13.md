@@ -2,7 +2,8 @@ CAPITULO III
 De las obligaciones y atribuciones
 del Consejo Nacional
 Artículo 13. — El Consejo Nacional es el órgano encargado de:
-a) Formular las directrices que en materia de adopción existen en la legislación, tomando en consideración el interés superior del niño.
+a) Acatar las directrices que en materia de adopción existen en la legislación, tomando en consideración el interés superior del niño.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 97-0090 del 17 de noviembre de 1997)
 b) Desarrollar planes y proyectos dirigidos a fortalecer los programas de adopción.
 c) Promover y ejecutar los convenios bilaterales y multilaterales para el seguimiento de las adopciones realizadas por extranjeros no domiciliados en el país. En ningún caso, el seguimiento brindado podrá ser menor de dos años.
 d) Ejecutar programas y actividades de difusión, concientización y promoción de la adopción.
@@ -14,10 +15,19 @@ i) Resolver sobre la ubicación, con fines de adopción, de las personas menores
 j) Conocer sin ulterior recurso, de las apelaciones que con vista en el interés de la persona menor de edad, se interpongan contra las resoluciones de los consejos regionales.
 k) Dictar la normativa de funcionamiento de los consejos regionales así como revisar periódicamente su quehacer en esta materia.
 l) Rendir los informes y hacer las recomendaciones a la junta directiva, sobre todo lo relacionado con la integración y funcionamiento de los consejos regionales, cuando resulte de interés o así lo solicite este Órgano Directivo,
-m) Dictar los lineamientos de trabajo de la Secretaría Técnica, así como controlar y supervisar su funcionamiento y el de los consejos regionales,
-n) Conformar un Comité de Apoyo, el cual tendrá a su cargo la búsqueda de recursos de adopción, para niños y niñas en circunstancias especiales.
-o) Asignar y supervisar el trabajo del Comité de Apoyo,
-p) Recibir, analizar y aprobar las solicitudes de acreditación de las agencias internacionales de adopción, conforme con los lineamientos establecidos al efecto,
-q) Supervisar periódicamente los centros públicos y privados, donde se encuentren menores de edad en condición de institucionalización, a fin de verificar la situación jurídica y psicosocial de cada uno de los niños (as), y tomar las medidas pertinentes con el fin de salvaguardar el interés superior de los niños,
-r) Otras que por tratarse de la materia de adopción, sean de su competencia,
-s) Cualquier otra que en materia de adopción, le confiera la Junta Directiva de la Entidad .
+m) Coordinar en sus funciones con la Secretaría Técnica, así como controlar y supervisar el funcionamiento de los Consejos Regionales.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 97-0090 del 17 de noviembre de 1997)
+n) Valorar, sin carácter vinculante, las decisiones de la Secretaría Técnica.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 97-0090 del 17 de noviembre de 1997)
+o) Conformar un Comité de Apoyo, el cual tendrá a su cargo la búsqueda de recursos de adopción, para niños y niñas en circunstancias especiales.
+(Así corrida su numeración mediante sesión ordinaria N° 97-0090 del 17 de noviembre de 1997, que lo traspasó del antiguo insico n) al o))
+p) Asignar y supervisar el trabajo del Comité de Apoyo,
+(Así corrida su numeración mediante sesión ordinaria N° 97-0090 del 17 de noviembre de 1997, que lo traspasó del antiguo insico o) al p))
+q) Recibir, analizar y aprobar las solicitudes de acreditación de las agencias internacionales de adopción, conforme con los lineamientos establecidos al efecto,
+(Así corrida su numeración mediante sesión ordinaria N° 97-0090 del 17 de noviembre de 1997, que lo traspasó del antiguo insico p) al q))
+r) supervisar periódicamente, con el apoyo de la Secretaría Técnica, los Centros Públicos y Privados donde se encuentren personas menores de edad en condición de institucionalización, a fin de verificar la situación jurídica y psicosocial de cada uno de los niños (as) con posibilidades de ser adoptados (as), y tomar las medidas pertinentes con el fin de salvaguardar el interés superior de los niños.
+(Así reformado y corrida la numeración del inciso anterior mediante sesión ordinaria N° 97-0090 del 17 de noviembre de 1997, que lo traspasó del antiguo insico q) al r))
+s) Otras que por tratarse de la materia de adopción, sean de su competencia,
+(Así corrida su numeración mediante sesión ordinaria N° 97-0090 del 17 de noviembre de 1997, que lo traspasó del antiguo insico r) al s))
+t) Cualquier otra que en materia de adopción, le confiera la Junta Directiva de la Entidad .
+(Así corrida su numeración mediante sesión ordinaria N° 97-0090 del 17 de noviembre de 1997, que lo traspasó del antiguo insico s) al t))
