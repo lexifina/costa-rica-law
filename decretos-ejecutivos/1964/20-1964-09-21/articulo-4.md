@@ -1,0 +1,2 @@
+Artículo 4°-Para los consiguiente efectos se declara oficial el plano de los terrenos mencionados en el artículo anterior y confeccionados por la Sección de Inventario de Tierras del Departamento de Tierras y Bosques del Instituto de Tierras y Colonización con fecha 30 de mayo de 1967 denominado: “Requerimiento de Tierras para la Colonización de la Reserva Astúa Pirie”.
+(Así adicionado por el artículo único del decreto ejecutivo N° 23 del 19 de setiembre de 1967)
