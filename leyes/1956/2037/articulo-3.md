@@ -1,0 +1,1 @@
+Artículo 3°-El producto del o los préstamos a que se refiere esta ley, se destinará exclusivamente a la concesión de créditos por el Banco Central o por medio de los Bancos Comerciales de la Nación, para la importación de bienes de capital con el fin de incrementar las actividades industriales, agrícolas y ganaderas.
