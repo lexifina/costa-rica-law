@@ -53,7 +53,7 @@ Corcovado | Zona Protectora |
 Tortuguero | La Selva |
 HitoyCerere | Zona Protectora |
 Cabo Blanco | Barbilla |
-90 % | 15% |
+90 % | 85% (*) (*)(Así reformado por el artículo 8 del decreto ejecutivo N° 22119 de 22 de marzo de 1993) |
 Cahuita | Irazú |
 Guayabo | Poás |
 Santa Rosa | |

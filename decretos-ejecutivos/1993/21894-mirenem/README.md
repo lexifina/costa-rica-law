@@ -14,3 +14,4 @@ Reglamento de Incentivo por Regionalización de los Funcionarios del Ministerio 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-03-12 | la propia norma |
+| 2 | 1993-03-22 | Decreto Ejecutivo 22119 (1993-03-22) |
