@@ -1,0 +1,1 @@
+ARTÍCULO 5º.- Todas las instituciones de la Administración Pública, estarán obligadas a prestar la colaboración que les solicite la Comisión, y deberán suministrarle los recursos humanos, materiales, técnicos y financieros necesarios para lograr sus objetivos.
