@@ -1,0 +1,1 @@
+Artículo 14.—Los deberes y atribuciones del Tesorero son custodiar los fondos de la Academia, supervisar la contabilidad y presentar el informe financiero a la Asamblea. Elaborar con el Presidente el proyecto de presupuesto de la Academia para su presentación a la Asamblea General.

@@ -1,0 +1,3 @@
+De los órganos de la academia
+Artículo 6º—La Asamblea General de la Academia es su máximo organismo de gobierno. Está constituida por los Académicos de Número, Académicos Correspondientes y Académicos Eméritos excluyendo los que se encuentren en la categoría de miembros inactivos o los que disfruten del permiso indicado en el artículo quinto.
+Para efectos de quórum serán miembros inactivos aquellos que lo soliciten expresamente y por escrito al Consejo Directivo, o aquellos que sin justificación alguna falten a seis asambleas consecutivas de la Academia, y no formarán parte del quórum reglamentario para sesionar.
