@@ -1,0 +1,1 @@
+Art 3°.- igualmente se concede por el mismo periodo de ocho años a los criadores de Ganado mayor, un sitio por el establecimiento de veinte y cinco reses hasta mil y de mil arriba dos y a los que se posecionasen en los dos primeros años tres caballerías más.
