@@ -14,3 +14,4 @@ Reglamento de Creación del Subsistema de Planificación y Coordinación Regiona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-07-02 | la propia norma |
+| 2 | 1981-04-14 | Decreto Ejecutivo 12531 (1981-04-14) |
