@@ -1,0 +1,1 @@
+Artículo 8°—La solicitud de inscripción o reclasificación en el Régimen deberá hacerse en los formularios que para ese fin suministrará la Administración Tributaria. La reclasificación del Régimen también podrá efectuarse por intervención físcalizadora de la Dirección General de la Tributación Directa.

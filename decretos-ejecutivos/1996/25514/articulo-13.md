@@ -1,0 +1,1 @@
+Artículo 13.—Las personas físicas que ingresen al Régimen no tendrán derecho a la deducción de los créditos familiares previstos por la Ley del Impuesto sobre la Renta. Tampoco podrán rebajar los créditos fiscales que la ley concede a los contribuyentes inscritos en el régimen tradicional del impuesto general sobre las ventas.

@@ -1,0 +1,3 @@
+Artículo 4°—Las personas dedicadas a la actividad de bar, inscritas en el Régimen, calcularán los impuestos correspondientes a cada trimestre de la siguiente manera:
+a) Impuesto sobre la renta: al total de compras del trimestre -sujetas o no al impuesto general sobre las ventas e incluyendo el importe de este tributo- le aplicarán un factor de cero coma cero uno (0,01).
+b) Impuesto general sobre las ventas: al total de compras del trimestre, gravadas con el tributo sobre las ventas o exentas de él -incluyendo el importe de este impuesto-, le aplicarán un factor de cero coma cero cuatro cinco (0,045).
