@@ -13,3 +13,4 @@ Establece Sistema de Calificación de Estaciones de Servicio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-22 | la propia norma |
+| 2 | 1996-04-22 | Decreto Ejecutivo 28624 (2000-05-02) |
