@@ -1,0 +1,1 @@
+Artículo 57.—Es moralmente correcto que el abogado se reúna con los testigos para mejor proveer la defensa de su cliente. No obstante, es inmoral que los induzca a mentir, sesgar sus respuestas o de alguna forma asesorarlos indebidamente para que en su deposición alteren los hechos que presenciaron

@@ -1,0 +1,4 @@
+Artículo 9°—Es deber del abogado dedicarse con diligencia a IOS asuntos de su cliente y poner en defensa todos sus esfuerzos y conocimientos, con estricto apego a las normas jurídicas y morales. El abogado debe ser diligente, respetuoso y puntual en todas sus actuaciones.
+La honestidad y la integridad moral del abogado es extensiva a su conducta social y personal.
+Igualmente debe asistir el abogado a todas las audiencias a que sean citados por las autoridades judiciales o administrativas, en las cuales se requiera la presencia indispensable del abogado para ejercer la defensa técnica de sus clientes.
+De ser el caso que el abogado tenga algún impedimento grave para asistir a la audiencia, deberá hacerlo saber a la autoridad respectiva con suficiente anticipación, de tal forma que la autoridad de que se trate pueda tomar las previsiones del caso, de considerar justificado el impedimento.

@@ -1,0 +1,2 @@
+Artículo 32.—El abogado debe aceptar la decisión del cliente para que intervenga otro abogado; sin embargo, en este caso queda facultado para retirarse del asunto.
+En caso de discrepancia entre quienes intervengan conjuntamente, la decisión corresponde al cliente. Tal decisión debe ser aceptada, salvo que resulte intolerable o impracticable para alguno de ellos, quien podrá solicitar al cliente que lo releve de su intervención, o, en su caso, retirarse de la atención del asunto.

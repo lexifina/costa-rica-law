@@ -1,0 +1,1 @@
+Artículo 17.—Es contrario a la dignidad del abogado fomentar litigios conflictos. Debe esforzarse siempre por recomendar mecanismos de soluciones extrajudiciales, salvo que, signifiquen consecuencias funestas para el cliente.
