@@ -1,3 +1,0 @@
-Artículo 12.-Los arrendatarios anuales de casilleros postales, que no cancelen en el mes de enero el valor del arriendo de su casillero postal, perderán el derecho al mismo y la Dirección Nacional de Comunicaciones procederá a adjudicar el casillero postal que ha quedado vacante a quien le hubiere solicitado, estrictamente en el orden de presentación.
-La correspondencia de quienes pierdan el derecho al casillero postal, se mantendrá durante un mes en lista de correos, luego se enviará a rezago.
-Cada Administración de Comunicaciones deberá llevar un registro de las solicitudes presentadas en estricto orden cronológico, ello para fines de adjudicación de los casilleros postales.

@@ -1,1 +1,0 @@
-Artículo 2°-EI servicio rentado de casilleros postales para el uso del público, sólo podrá establecerlo la Dirección Nacional de Comunicaciones. Las personas o entidades que deseen arrendarlos, deberán hacer las solicitudes ante las oficinas respectivas de Comunicaciones. La adjudicación del casillero la hará el Director Nacional o su representante.

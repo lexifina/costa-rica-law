@@ -1,1 +1,0 @@
-Artículo 10-Los administradores de Comunicaciones no podrán retener durante un tiempo mayor del estipulado en el artículo 3° del presente Reglamento, las sumas colectadas por ello. Si tal hecho sucediera se aplicarán las sanciones establecidas en el Reglamento Autónomo de Trabajo.

@@ -1,1 +1,0 @@
-Artículo 17.-Si una pieza de correspondencia por su volumen no es posible colocarle dentro del casillero postal, el empleado depositará una tarjeta conforme al modelo usado para que su destinatario se presente a retirarla por la ventanilla u oficina de paquetes si este servicio se ha establecido.

@@ -1,1 +1,0 @@
-Artículo 8°-Los precios de derecho, arriendo y demás servicios de casilleros postales serán exclusivamente fijados por la Dirección Nacional de Comunicaciones, con la aprobación respectiva de la Junta Administrativa de la Dirección Nacional de Comunicaciones.
