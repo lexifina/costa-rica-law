@@ -1,0 +1,1 @@
+2°—Derogar los Capítulos XII "De la Dirección General de Contratación Administrativa" y XIII "De la Dirección General de Asuntos Jurídicos" del Reglamento Orgánico de la Contraloría General de la República emitido por resolución de las 8,00 horas del 12 de mayo de 1999, publicado en "La Gaceta" No 103 indicada.
