@@ -1,0 +1,1 @@
+Artículo 18.-Toda entrada a los espectáculos de teatros y cines que se realicen en la ciudad de San José, tendrá que llevar un sobre-impuesto de timbre de diez céntimos. Este impuesto será controlado por la Junta Nacional de la Habitación, la cual venderá los correspondientes timbres a los empresarios de teatros y cines por medio de la Administración Principal de Rentas.

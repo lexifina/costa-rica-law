@@ -1,0 +1,1 @@
+Artículo 20.-El fondo recaudado por la Cooperativa se destinará a garantizar el empréstito o empréstitos sucesivos que hará la Junta Nacional de la Habitación para la construcción de las casas a que se refiere la presente ley.
