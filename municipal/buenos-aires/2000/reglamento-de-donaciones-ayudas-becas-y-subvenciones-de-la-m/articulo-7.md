@@ -1,0 +1,1 @@
+Artículo 7º—En caso de que un acontecimiento de grandes proporciones afecte a varios vecinos del cantón, la Municipalidad de Buenos Aires ayudará a tantos vecinos como lo permitan los recursos establecidos anualmente en su presupuesto ordinario destinado para tales fines.

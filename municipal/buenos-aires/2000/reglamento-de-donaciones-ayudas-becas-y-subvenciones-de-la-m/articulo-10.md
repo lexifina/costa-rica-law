@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad de Buenos Aires otorgará al o los vecinos la ayuda cuando ésta proceda, dentro de un plazo de 15 días hábiles, después de recibida la solicitud ante el Alcalde Municipal.

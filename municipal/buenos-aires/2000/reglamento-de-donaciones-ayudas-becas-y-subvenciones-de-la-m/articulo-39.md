@@ -1,0 +1,1 @@
+Artículo 39.—La Dirección Financiera, después de transcurrido un mes, sin que la persona interesada en la ayuda se apersone a la Municipalidad de Buenos Aires, deberá informar por escrito a la comisión de Becas y Asistencia Social, sobre esa situación, a efecto de que ese dinero sea reasignado a otras ayudas para personas o familias que lo estén realmente necesitando.

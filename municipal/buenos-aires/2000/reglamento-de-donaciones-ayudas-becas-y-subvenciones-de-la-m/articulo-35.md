@@ -1,0 +1,1 @@
+Artículo 35.—En el caso que los estudiantes de educación superior deberán aportar la certificación de notas de todas las materias matriculadas y de las aprobadas semestrales o cuatrimestrales, extendidas por el Departamento de Registro del centro educativo que corresponda.

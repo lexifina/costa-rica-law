@@ -1,0 +1,1 @@
+Artículo 26.—Sobre la recepción de los formularios de solicitud: El plazo improrrogable para la recepción de los formularios de solicitud, con toda la información completa, será durante los primeros quince días del mes de noviembre de cada año y deberá anexarse a la solicitud toda la documentación requerida.

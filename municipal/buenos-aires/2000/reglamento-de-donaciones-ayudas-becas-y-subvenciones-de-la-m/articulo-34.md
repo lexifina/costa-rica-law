@@ -1,0 +1,1 @@
+Artículo 34.—En caso que el estudiante becario sea de institución secundaria o universitaria no haya aprobado alguna materia deberá de justificar razonadamente, con el objeto de ser analizado por Asistencia Social y estudio correspondiente para que continúe gozando del beneficio.

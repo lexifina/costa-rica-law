@@ -1,0 +1,1 @@
+Artículo 6º—La Municipalidad de Buenos Aires debe de disponer de recursos asignados anualmente en su presupuesto ordinario, pues si no cuenta con dichos recursos, la entidad está inhibida para conferir ayudas de esa naturaleza, de acuerdo con la normativa vigente.
