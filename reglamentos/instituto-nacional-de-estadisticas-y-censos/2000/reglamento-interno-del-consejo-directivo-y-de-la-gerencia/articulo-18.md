@@ -1,0 +1,2 @@
+Artículo 18.—Desarrollo de las sesiones. Las sesiones serán dirigidas por el Presidente quien seguirá el orden del día establecido y concederá la palabra en el orden solicitado por los miembros presentes.
+Las propuestas serán analizadas, discutidas y sometidas a votación en el mismo orden en que fueron presentadas, en cuyo caso el Presidente eliminará de la discusión aquellas que no se refieran al tema objeto de la deliberación y las trasladará al capítulo del orden del día que corresponda.

@@ -1,0 +1,1 @@
+Artículo 17.—Lugar, día y hora de su celebración. Salvo que por razones especiales se acuerde lo contrario, las sesiones del Consejo Directivo se celebrarán en el local del INEC, el día y hora señalada en la convocatoria, la cual deberá realizarse con antelación de por lo menos veinticuatro horas.

@@ -1,0 +1,1 @@
+Artículo 26.—Libro de actas. Existirá un libro de actas en el que, una vez firmes las actas respectivas, se transcribirán inmediatamente a fin de que sean firmadas por el Presidente y el Secretario y por aquellos miembros que hubieren hecho constar su voto disidente.

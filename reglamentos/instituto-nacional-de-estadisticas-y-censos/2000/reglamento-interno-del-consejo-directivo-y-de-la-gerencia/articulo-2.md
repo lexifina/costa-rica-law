@@ -1,0 +1,1 @@
+Artículo 2º—Jerarquía y potestades. El Consejo Directivo será el órgano de mayor jerarquía institucional y tendrá las potestades que le atribuye el artículo veintidós de la Ley número siete mil ochocientos treinta y nueve, citada en el apartado anterior.

@@ -1,0 +1,1 @@
+Artículo 4º—Funcionarios Auxiliares. Además de los cinco directores, deberán asistir a las sesiones del Consejo Directivo, el Gerente, el Auditor y el Asesor Jurídico, cuando expresamente se les convoque, quienes tendrán derecho de voz pero no voto.
