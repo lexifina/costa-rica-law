@@ -1,0 +1,1 @@
+Artículo 2°.- Prorrogase hasta el 31 de diciembre de 1951 la vigencia de la ley N°1214 de 18 de octubre de 1950, por medio de la cual se autoriza al Poder Ejecutivo para invertir, por medio del Ministerio de Obra Públicas, el producto de la venta de Bonos del Café hasta por la suma de ¢8.000.000.00 (ocho millones de colones)
