@@ -1,0 +1,1 @@
+Artículo 3°—Para su nombramiento, los Inspectores de Tránsito de la Universidad de Costa Rica, deberán cumplir con los requisitos y condiciones establecidos para todo Inspector de Tránsito, así como aquellos otros que expresamente establezca la Universidad de Costa Rica.

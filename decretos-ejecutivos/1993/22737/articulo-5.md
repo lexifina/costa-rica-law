@@ -1,0 +1,1 @@
+Artículo 5°—Los Inspectores de Tránsito a que se refiere el presente Reglamento, tendrán la autoridad necesaria que confiere la Ley de Tránsito en el Título VI, Capítulo I, artículos 195 a 204 y concordantes.
