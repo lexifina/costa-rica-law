@@ -1,0 +1,1 @@
+Artículo 3°-La Procuraduría General de la República gestionará las diligencias de expropiación hasta su final ante el Juzgado de lo Contencioso y Civil de Hacienda que corresponda, quedando autorizada dicha entidad para dar a la correspondiente autoridad judicial todos los informes necesarios para la tramitación respectiva del juicio.
