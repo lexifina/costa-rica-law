@@ -1,0 +1,1 @@
+Transitorio I.-Se permite el almacenamiento, venta y uso del fungicida arseniato de plomo hasta el 31 de mayo de 1991, a efecto de agotar las existencias del producto en el mercado. Su venta se permitirá solo bajo receta expedida por un miembro del Colegio de Ingenieros Agrónomos.
