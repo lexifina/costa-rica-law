@@ -1,0 +1,1 @@
+Artículo 47.—Definición de controles internos. La Jefatura de la Unidad de Recursos Materiales definirá las normas y procedimientos de control interno adicionales que estime necesarias tendientes a lograr un adecuado uso de los vehículos del INA.

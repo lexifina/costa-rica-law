@@ -1,0 +1,1 @@
+Artículo 31.—Cesión de manejo del vehículo. Es absolutamente prohibido a todos los conductores ceder la conducción del vehículo a otras personas, salvo por razones muy calificadas, en cuyo caso, una vez finalizada la gira, deberá informar los motivos que lo indujeron a entregar el vehículo.

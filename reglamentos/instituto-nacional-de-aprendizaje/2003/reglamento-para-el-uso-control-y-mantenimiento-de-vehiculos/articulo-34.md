@@ -1,0 +1,1 @@
+Artículo 34.—Prohibición de estacionamiento. Los vehículos de la Institución no deberán ser estacionados o parqueados por sus conductores frente a cantinas, tabernas o similares, ni frente a locales cuya fama, riña contra la moral y las buenas costumbres.

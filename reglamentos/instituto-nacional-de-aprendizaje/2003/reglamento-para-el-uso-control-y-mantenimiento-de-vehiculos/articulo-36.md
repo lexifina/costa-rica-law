@@ -1,0 +1,1 @@
+Artículo 36.—Jornada de los choferes. Con el fin de dar cumplimiento a lo dispuesto en el artículo 140 del Código de Trabajo, la jornada ordinaria más la extraordinaria de los choferes no puede ser superior a las doce horas, por lo que esta situación debe ser prevista a la hora de asignar las giras y los acompañantes estarán obligados a respetar esta disposición al regresar.

@@ -1,0 +1,1 @@
+Artículo 26.—Control y mantenimiento de los vehículos de uso discrecional. Tanto la custodia como el control y mantenimiento adecuado de los vehículos de uso discrecional es responsabilidad del funcionario al que se le asignó.

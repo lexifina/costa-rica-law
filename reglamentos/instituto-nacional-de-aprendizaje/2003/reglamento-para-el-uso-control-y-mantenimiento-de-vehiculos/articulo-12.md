@@ -1,0 +1,1 @@
+Artículo 12.—Excepciones. Se exceptúan del control mencionado en el artículo anterior, los vehículos destinados al uso discrecional siendo responsable de su debido uso, custodia, conservación y mantenimiento el funcionario al que le fue asignado el vehículo.

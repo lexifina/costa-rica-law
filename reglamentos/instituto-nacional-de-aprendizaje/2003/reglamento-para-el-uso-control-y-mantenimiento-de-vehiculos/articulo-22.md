@@ -1,0 +1,5 @@
+CAPÍTULO V
+De los vehículos de uso discrecional
+Artículo 22.—Uso de los vehículos. Según lo estipula la Ley de Tránsito, solo se podrá asignar un vehículo de uso discrecional a cada funcionario que tenga derecho a ese beneficio. No se le podrá dar un uso arbitrario en su provecho o el de su familia.
+Cada vehículo solo podrá ser utilizado por el funcionario que tiene derecho en razón del cargo que ostenta, en estricto cumplimiento de las funciones propias del mismo y en ningún caso por otra persona. No podrán usarse para fines contrarios a la ley, la moral y a las buenas costumbres o para usos en lugares que no contribuyan al objeto de la Institución.
+Solo podrán ser conducidos por el funcionario que lo tiene asignado o por un conductor o chofer debidamente autorizado por el INA para conducir sus vehículos.

@@ -1,0 +1,1 @@
+Artículo 19.—Utilización servicios particulares. En casos especiales, cuando existan otras posibilidades que resulte ventajoso realizar un viaje utilizando servicios particulares de transporte de pasajeros y su uso no perjudique la efectividad y oportunidad del trabajo, se hará uso de este.

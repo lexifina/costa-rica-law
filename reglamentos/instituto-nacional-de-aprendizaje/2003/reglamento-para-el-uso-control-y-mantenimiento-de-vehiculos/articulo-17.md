@@ -1,0 +1,2 @@
+Artículo 17.—Atención de solicitudes de transporte. La atención de los servicios de transporte será tramitada en primer lugar de acuerdo con el orden de prioridades establecidas por la Subgerencia Administrativa, luego por la urgencia demostrada y posteriormente siguiendo el orden de presentación.
+Las solicitudes de transporte deberán ser presentadas al Encargado de Transportes, a más tardar el día miércoles de la semana anterior. Las que se presenten posterior a ese día se atenderán dependiendo de la disponibilidad de recursos.

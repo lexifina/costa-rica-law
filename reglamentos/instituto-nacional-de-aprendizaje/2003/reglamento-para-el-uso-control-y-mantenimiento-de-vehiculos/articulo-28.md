@@ -1,0 +1,1 @@
+Artículo 28.—Alteración de ruta. Cualquier alteración de la ruta programada que se presente en el transcurso de un viaje, será responsabilidad absoluta del funcionario que utilice el servicio. El chofer deberá informar al jefe correspondiente tal situación al finalizar la gira para que actúe según corresponda.

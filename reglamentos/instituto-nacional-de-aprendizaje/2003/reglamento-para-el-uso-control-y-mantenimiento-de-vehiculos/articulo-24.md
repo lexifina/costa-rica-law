@@ -1,0 +1,1 @@
+Artículo 24.—Permanencia de los vehículos. Los vehículos de uso discrecional en ausencias prolongadas del beneficiario del mismo ya sea por vacaciones, permisos, incapacidades, etc., deberán permanecer bajo la custodia de la Institución. Se exceptúan los fines de semana, feriados y otras ausencias que no superen los siete días naturales.
