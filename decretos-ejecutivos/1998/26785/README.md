@@ -14,3 +14,4 @@ Declara de utilidad pública para los interese del Estado a la Asociación Teote
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-31 | la propia norma |
+| 2 | 1998-03-31 | Ley 8 |
