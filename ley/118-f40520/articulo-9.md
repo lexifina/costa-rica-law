@@ -1,0 +1,1 @@
+Art 9°.- En la puerta de la iglesia se recibirá y despedirá con honores de patrono laico a las supremas autoridades por la primera eclesiásticas o persona de mayor dignidad, acompañada del Clero presente.
