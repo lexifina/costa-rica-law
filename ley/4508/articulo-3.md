@@ -1,4 +1,6 @@
-Artículo 3º.- La Junta de Protección Social de La Unión tendrá a su
-cargo la administración de la Clínica, pero estará fiscalizada económica
-y técnicamente por la Dirección General de Asistencia Médico-Social del
-Ministerio de Salubridad Pública.
+Artículo 3º.- El Instituto será gobernado por un Consejo Técnico
+integrado por cinco miembros: un Presidente, un Vicepresidente, un
+Secretario y dos Vocales de nombramiento del Poder Ejecutivo y durarán en
+sus cargos dos años pudiendo ser reelectos.
+( Así reformado por el artículo 1º de la Ley Nº 6088 de 7 de octubre
+de 1977).
