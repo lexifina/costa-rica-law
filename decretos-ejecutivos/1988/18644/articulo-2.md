@@ -1,0 +1,1 @@
+Articulo 2°—En los Presupuestos Ordinarios y Extraordinarios de la República , Fiscal y por Programas, para los años 1989, 1990, 1991, 1992 y 1993, se incluirá —como monto del fondo especial para el financiamiento de la Educación Superior Universitaria Estatal— el que para cada uno de esos años resulte de la aplicación del acuerdo de Comisión de Enlace indicado.
