@@ -5,4 +5,5 @@ a) La atención primaria de la salud, entendiendo como tal la asistencia sanitar
 b) La extensión de los beneficios de los servicios de salud a todos los individuos sujetos a la jurisdicción del Estado;
 c) La total inmunización contra las principales enfermedades infecciosas;
 d) La prevención y tratamiento de las enfermedades endémicas, profesionales y de otra índole;
-e) La educación de la población sobre la prevención y tratamiento de los problemas de salud, y f) La satisfacción de las necesidades de salud de los grupos de más alto riesgo y que por sus condiciones de pobreza sean más vulnerables.
+e) La educación de la población sobre la prevención y tratamiento de los problemas de salud, y
+f) La satisfacción de las necesidades de salud de los grupos de más alto riesgo y que por sus condiciones de pobreza sean más vulnerables.

@@ -1,8 +1,7 @@
 Artículo 13
 Derecho a la educación
 1.- Toda persona tiene derecho a la educación.
-2.- Los Estados Partes en el presente Protocolo convienen que la educación deberá orientarse hacia el pleno desarrollo de la personalidad humana y del sentido de su dignidad y deberá fortalecer el respeto por los derechos humanos, el pluralismo ideológico, las libertades fundamentales,
-la justicia y la paz. Convienen, asimismo, en que la educación debe capacitar a todas las personas para participar efectivamente en una sociedad democrática y pluralista, lograr una subsistencia digna, favorecer la comprensión, la tolerancia y la amistad entre todas las naciones y todos los grupos raciales, étnicos o religiosos y promover las actividades en favor del mantenimiento de la paz.
+2.- Los Estados Partes en el presente Protocolo convienen que la educación deberá orientarse hacia el pleno desarrollo de la personalidad humana y del sentido de su dignidad y deberá fortalecer el respeto por los derechos humanos, el pluralismo ideológico, las libertades fundamentales, la justicia y la paz. Convienen, asimismo, en que la educación debe capacitar a todas las personas para participar efectivamente en una sociedad democrática y pluralista, lograr una subsistencia digna, favorecer la comprensión, la tolerancia y la amistad entre todas las naciones y todos los grupos raciales, étnicos o religiosos y promover las actividades en favor del mantenimiento de la paz.
 3.- Los Estados Partes en el presente Protocolo reconocen que, con objeto de lograr el pleno ejercicio del derecho a la educación:
 a) La enseñanza primaria debe ser obligatoria y asequible a todos gratuitamente;
 b) La enseñanza secundaria en sus diferentes formas, incluso la enseñanza secundaria técnica y profesional, debe ser generalizada y hacerse accesible a todos, por cuantos medios sean apropiados, y en particular por la implantación progresiva de la enseñanza gratuita;
