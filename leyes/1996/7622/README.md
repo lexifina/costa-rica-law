@@ -1,6 +1,6 @@
 # Convenio OIT Nº 160: sobre Estadísticas del Trabajo
 
-Ley N° 7622 del 1996-09-05. SINALEVI, ficha 25003: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=25003&param2=26453&param3=1>.
+Ley N° 7622 del 1996-09-05. SINALEVI, ficha 25003: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=25003&param2=26454&param3=1>.
 
 Publicada en La Gaceta N° 185 del 1996-09-27.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 1996-09-27 | Ley 7622 | 1996-09-05 |
+| 2 de 2 | 1996-09-27 | SINALEVI | 1996-09-05 |
