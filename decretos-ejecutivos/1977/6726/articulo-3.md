@@ -1,0 +1,1 @@
+Artículo 3°.- La Comisión estará integrada por el Ministro de Hacienda, el Director Administrativo, el Jefe del Departamento Financiero, ambos del Ministerio de Hacienda o sus representantes, y por el Director General de Aduanas y el Proveedor Nacional.

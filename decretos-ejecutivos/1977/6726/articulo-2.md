@@ -1,0 +1,1 @@
+Artículo 2°.- Créase una comisión que será la encargada de efectuar la distribución gratuita, de los vehículos y demás bienes que hayan sido objeto de remate en las Aduanas del país y respecto de las cuales no haya habido oferentes.
