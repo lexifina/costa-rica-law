@@ -1,0 +1,1 @@
+Artículo 7° No se podrán otorgar licencias para máquinas por más de tres meses renovables a su vencimiento a juicio del Gobernador de Puntarenas. Las fechas de estas licencias se computarán desde las de salida de las embarcaciones del puerto de Puntarenas, hasta las de regreso al mismo.
