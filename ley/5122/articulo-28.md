@@ -1,0 +1,1 @@
+Artículo 28.- Las instituciones del Estado quedan autorizadas por esta ley particular para invertir recursos propios en los valores emitidos por la Corporación, excepto acciones, y recibir los mismos como garantías de participación y cumplimiento en los contratos que suscriban.
