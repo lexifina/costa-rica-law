@@ -1,0 +1,1 @@
+Artículo 3º—Si algún miembro renunciara o fuese removido, se hará el nombramiento del sustituto, por el tiempo que le reste al miembro reemplazado, de acuerdo a lo que establece el artículo número 2º del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 16.—Las decisiones de esta junta tendrán recurso de revocatoria y apelación 5 días hábiles posterior al acuerdo firme de la Junta Administrativa, ante el Concejo Municipal, y este en definitiva decidirá lo que considere pertinente.
