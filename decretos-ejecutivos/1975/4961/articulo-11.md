@@ -1,0 +1,1 @@
+Artículo 11.—La financiación del proyecto se hará con préstamos de instituciones internacionales, con el presupuesto ordinario y con las partidas que para este fin aprueben las instituciones mencionadas en el artículo anterior.
