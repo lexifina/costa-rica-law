@@ -1,0 +1,1 @@
+Artículo I0.-La Casa tendrá plena capacidad para todos los actos y contratos conducentes a sus fines. Serán libres de todo derecho o impuesto fiscal, aun de beneficencia, las adquisiciones que haga por cualquier título.

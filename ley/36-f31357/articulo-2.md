@@ -1,0 +1,1 @@
+Artículo 2°.-Sólo podrán ser admitidas como asiladas en la referida Casa, jóvenes de buena conducta y constitución que no adolezcan de enfermedades contagiosas o incurables, ni de incapacidad moral o intelectual. No se recibirán niñas menores de diez años ni mayores de veinte.

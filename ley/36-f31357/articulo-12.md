@@ -1,0 +1,1 @@
+Artículo I2.-El Poder Ejecutivo tendrá la suprema inspección sobre la Casa de Refugio, hasta poder ordenar su clausura o suspensión si no corresponde a su objeto el instituto, y reglamentar oportunamente este decreto.

@@ -1,0 +1,1 @@
+Artículo 3°.-Tendrán ingreso en la Casa las menores de las condiciones dichas, si carecen de padre o tutor que velen por su educación y honestidad, o si, teniéndolos, no cumplieren ellos con sus deberes a ese respecto, por suma pobreza incuria o falta de idoneidad.
