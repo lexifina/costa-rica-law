@@ -14,3 +14,4 @@ Reglamento General de Crédito.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-06-18 | la propia norma |
+| 2 | 1999-06-08 | Reglamento 3611 (1999-06-08) |
