@@ -1,0 +1,1 @@
+Artículo 9°-Se concede un plazo máximo de dos años después de la vigencia de la presente ley, a las demás municipalidades del país, para que en forma adecuada hagan desaparecer de sus respectivas jurisdicciones, todas las ventas callejeras, estacionarias o ambulantes, exceptuando a los vendedores de lotería.
