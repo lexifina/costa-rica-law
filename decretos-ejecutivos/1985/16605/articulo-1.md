@@ -8,7 +8,8 @@ Reglamento de la Ley de Incentivos para el Desarrollo Turístico
 CAPITULO I
 De las definiciones
 Artículo 1°-Definiciones. Para todos los efectos cuando la ley o este Reglamento utilicen los términos siguientes, deben dárseles las acepciones que a continuación se indican:
-a) Artículos o bienes indispensables. Se refieren a todos los bienes muebles, materiales utilizados en la instalación o el funcionamiento de las actividades mencionadas en el artículo 7°, incisos a)-i, ch)-i y d)-í, de la Ley, incluyendo automotores de carga, cornputadoras y sus avíos, destinados exclusivamente a la operación de la empresa.
+a) Artículos o bienes indispensables: se refiere a todos los bienes, muebles, materiales, equipo y utencilios necesarios para la instalación o el funcionamiento de las actividades mencionadas en el artículo 7° de la Ley, destinados exclusivamente a la operación de la empresa
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 20246 del 30 de enero de 1991)
 b) Avíos. Son los bienes necesarios para el funcionamiento eficiente y confortable de vehículos y naves tales como: Repuestos, accesorios e implementos para las actividades de transporte y excursiones, incluyendo extinguidores, herramientas, equipos de radiocomunicaciones, de seguridad, de comodidad y salvamento: Aire acondicionado y otros a juicio de la Comisión.
 c) Comisión. Se trata de la Comisión Reguladora de Turismo, nombrada por el Presidente de la República, que actúa en representación del Estado.
 d) Contrato turístico. Es el convenio suscrito entre el Instituto Costarricense de Turismo y la empresa respectiva.
