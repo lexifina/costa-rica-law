@@ -14,3 +14,4 @@ Reglamento de Coinversión para el Instituto Nacional de Fomento Cooperativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-19 | la propia norma |
+| 2 | 2003-12-08 | Reglamento 3301 (2003-12-08) |
