@@ -1,2 +1,1 @@
-Artículo 20.-Rige a partir de su publicación.
-Dado en la Casa Presidencial.-San José, a los treinta días del mes de octubre de mil novecientos setenta y uno.
+Artículo 20.- ( Nota: El texto original de este artículo debe ser consultado en el artículo 19°, lo anterior por cuanto el artículo 2° del decreto ejecutivo N° 14702 del 01 de julio del 1983 ordenó correr la numeración de este reglamento quedando el artículo 20 como el numeral 19 actual ).
