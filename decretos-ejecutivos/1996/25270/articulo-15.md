@@ -14,7 +14,7 @@ Realizar visitas a instalaciones de empresas de comercio exterior, así como ofi
 Investigar la comisión de delitos aduaneros e infracciones administrativas y tributarias aduaneras, diligenciar y procurar las pruebas que fundamenten las acciones legales respectivas y recomendar las sanciones que correspondan en sede administrativa.
 Emitir directrices a las dependencias del Servicio, referentes a los criterios de fiscalización que permitan orientar el ejercicio del control y su alcance.
 Dictar las disposiciones administrativas que deberán aplicar los auxiliares y empresas de comercio exterior, con el objeto de garantizar el control y fiscalización.
-Solicitar el apoyo de la Policía Fiscal Aduanera cuando se considere oportuno para el cumplimiento de sus funciones.
+Solicitar el apoyo del Departamento Aduanero de la policía de Control Fiscal cunado se considere oportuno para el cumplimiento de sus funciones.(Así reformado por el artículo 14 del Decreto Ejecutivo N° 25295 de 17 de junio de 1996)
 Comunicar a la autoridad competente, los estudios e investigaciones realizados para determinar las supuestas irregularidades que cometan los funcionarios del Servicio, con el objeto de que se instruyan los expedientes administrativos correspondientes.
 Visitar empresas, auxiliares, centros de producción o recintos donde se realicen operaciones aduaneras, con el fin de constatar el cumplimiento de las disposiciones legales, de conformidad con el Plan Anual Fiscalización.
 Solicitar a las autoridades competentes la orden de allanamiento en los casos que se amerite.

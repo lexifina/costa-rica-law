@@ -14,3 +14,4 @@ Reglamento a la Ley General de Aduanas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-28 | la propia norma |
+| 2 | 1996-06-28 | Decreto Ejecutivo 25295 (1996-06-17) |
