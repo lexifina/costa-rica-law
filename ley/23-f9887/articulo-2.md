@@ -1,0 +1,1 @@
+Artículo 2°. -La cancelación de las hipotecas transmitidas por endoso simple, con anterioridad al establecimiento del nuevo Registro, pueden hacerse por el último endosatario, previo el reconocimiento judicial de los endosos sucesivos, sin necesidad de la inscripción de dichos endosos.
