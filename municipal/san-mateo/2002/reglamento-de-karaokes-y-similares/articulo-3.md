@@ -1,0 +1,3 @@
+Artículo 3º—Toda actividad social con karaoke que se programe en establecimientos comerciales, deberá contar con el correspondiente permiso municipal para su realización, en caso de no tener patente.
+Artículo 4º—Para presentar la solicitud de permiso a que se refiere el artículo anterior, se deberá obtener de previo la autorización del Ministerio de Salud.
+Artículo 5º—Las solicitudes de permiso para la realización de actividades de karaokes, en locales comerciales, deberán presentarse con no menos de seis días de anticipación del acto ante la oficina del Alcalde, para su respectiva aprobación o rechazo de acuerdo a lo que en materia disponen los artículos 80 y 81 del Código Municipal.

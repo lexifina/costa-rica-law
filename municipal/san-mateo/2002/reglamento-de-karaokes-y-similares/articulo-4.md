@@ -1,0 +1,1 @@
+Artículo 6º—En ningún caso la Administración autorizará el desarrollo de actividades con karaokes más allá de las 11,00 p.m. con esta hora como límite deberán cesar completamente todas las actividades de este tipo.

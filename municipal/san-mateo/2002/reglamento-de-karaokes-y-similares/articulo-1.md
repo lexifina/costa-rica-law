@@ -1,0 +1,2 @@
+Artículo 1º—Objetivo. El cantón de San Mateo ha experimentado en los últimos años el crecimiento acelerado de actividades entre las que s destacan las de diversiones en bares, salones y tabernas. Esta situación ha traído consigo una actividad que a pesar de su antigüedad en el medio, es novedoso en el comercio: los denominados "karaokes", instalados en cantinas, restaurantes, salones de baile y otros centros de diversión.
+Este Reglamento busca ordenar todas las actuaciones relacionadas con la actividad y que no ocasione molestias a los vecinos en sus horas de descanso.
