@@ -1,0 +1,1 @@
+Art. 22. Si por la exhaustes del Erario público, se diere orden de suspensión de pagas, no dejarán de cubrirse los gastos de oficinas íntegramente, no de darse la tercera parte á los empleados de puertos y fronteras.

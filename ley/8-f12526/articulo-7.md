@@ -1,0 +1,1 @@
+Art. 7. Siempre que la enfermedad fuere contraída en el servicio público y por causas de él, la asistencia prevenida en el artículo anterior, durará seis meses; y si en este tiempo no restableciese la salud el enfermo, se le concederá su retiro, con arreglo al § 8° sección 1a del Decreto 10 de Diciembre de 1839: en el caso contrario, no pasará de dos meses.
