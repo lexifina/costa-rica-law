@@ -1,1 +1,0 @@
-Artículo 9°-La clasificación incluida en este decreto, no obsta para que, en la formulación de planes, programas y proyectos de desarrollo socioeconómico, por parte de las instituciones y órganos del sector público se consideren. complementariamente al IDS, criterio específico que justifiquen su pertenencia y relevancia.
