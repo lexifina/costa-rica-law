@@ -1,0 +1,1 @@
+Artículo 12.—Reformas al Reglamento. El presente Reglamento podrá ser modificado, adicionado o derogado por el Concejo mediante la aprobación de estas reformas de la mitad más uno de los miembros del Concejo.

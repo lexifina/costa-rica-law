@@ -1,0 +1,1 @@
+Artículo 8º—Nombramiento de una Comisión. En esa misma sección que conoce la solicitud el Concejo, nombrará de entre sus miembros una comisión conformada por tres personas que evaluará y emitirá un dictamen en relación con la solicitud presentada en la siguiente sección.

@@ -1,0 +1,1 @@
+Artículo 10.—Recursos contra la resolución. La resolución del Concejo que deniegue o apruebe la solicitud formulada por la asociación, tendrá los recursos ordinarios que señalan los artículos 154-156 del Código Municipal, lo resuelto en la apelación será definitivo en sede administrativa.

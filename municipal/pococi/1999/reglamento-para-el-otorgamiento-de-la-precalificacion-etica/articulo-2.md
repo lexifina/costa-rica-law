@@ -1,0 +1,1 @@
+Artículo 2º—Del área de influencia. Este Reglamento tendrá vigencia para todas aquellas organizaciones no gubernamentales, que tengan su domicilio establecido y constituido en algún lugar dentro del área de influencia geográfica de la Municipalidad que comprende exclusivamente al cantón de Pococí.

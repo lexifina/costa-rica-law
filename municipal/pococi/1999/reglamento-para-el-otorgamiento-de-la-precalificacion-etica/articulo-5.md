@@ -1,0 +1,1 @@
+Artículo 5º—Perfil del proyecto. Aparte de la solicitud que se describió en el artículo anterior de este Reglamento y de los requisitos que allí se anuncian, la organización deberá presentar un perfil del proyecto que pretende desarrollar y para el cual requiere los recursos que solicita. Este perfil deberá ser presentado escrito a máquina.
