@@ -1,0 +1,1 @@
+Artículo 3°.- Queda igualmente autorizada la Municipalidad para conceder facilidades de pago a los compradores, debiendo en este caso obtener la correspondiente aprobación de la Inspección General de Hacienda Municipal o de la Contraloría General de la República si ya estuviera esa oficina.
