@@ -1,0 +1,1 @@
+Artículo 58.-Los Subcomités Comunales de Deportes y Recreación deberán rendir un informe anual al Comité Comunal de Deportes y Recreación respectivo ello de junio de cada año, con el detalle de las labores realizadas, el trabajo propuesto para el próximo año y el presupuesto.

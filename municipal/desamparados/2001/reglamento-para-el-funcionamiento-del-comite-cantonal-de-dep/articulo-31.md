@@ -1,0 +1,1 @@
+Artículo 31.-Los Comités Comunales se reunirán en forma ordinaria al menos dos veces por mes. Sus reuniones serán públicas, excepto aquellas que por la naturaleza de los asuntos a tratar deban ser privadas.

@@ -1,0 +1,5 @@
+Artículo 21.-Perderán su credencial como miembros del Comité Cantonal aquellos que no asistan a cuatro reuniones sin justificación o a ocho reuniones con o sin causa justificada, ya sean consecutivas o alternas. Además de lo anterior, los miembros del Comité Cantonal podrán ser sustituidos en los siguientes casos:
+21.1 Por violación evidente a las Leyes y Reglamentos que rigen la materia.
+2I.2 Por inhabilitación judicial.
+21.3 Por renuncia irrevocable manifestada por escrito.
+La intención acordada para destituir a un miembro del Comité Cantonal deberá ser notificada al mismo otorgándosele un plazo de cinco días hábiles para que ejerza su defensa, en cumplimiento del debido proceso y luego toda la documentación será trasladada al Concejo Municipal, en un plazo máximo de ocho días naturales, indicando la fecha y número de sesión en que se tomó la decisión, para que resuelva si procede o no la destitución. Una vez tomada la decisión por el Concejo, los miembros restantes podrán enviar una tema al Concejo Municipal recomendando el nombramiento de alguna persona, por medio de acuerdo simple, para reemplazar al destituido.

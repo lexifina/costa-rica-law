@@ -1,0 +1,1 @@
+Artículo 73.-EI Comité Cantonal de Deportes podrá reglamentar los asuntos que estime pertinentes y en todo lo no regulado por este Reglamento se regirá por el Código Municipal, la Ley General de la Administración Pública y demás disposiciones pertinentes según la materia.

@@ -1,0 +1,1 @@
+Artículo 63.-EI quórum para sesionar estará integrado por al menos tres miembros de la Junta Directiva, y todos los acuerdos se tomarán con el voto afirmativo de al menos tres miembros de esa misma junta. De asistir únicamente tres miembros, los acuerdos deben tomarse por unanimidad.

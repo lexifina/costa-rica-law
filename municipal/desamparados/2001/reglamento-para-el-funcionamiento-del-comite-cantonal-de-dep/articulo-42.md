@@ -1,0 +1,1 @@
+Artículo 42.-EI Comité Cantonal podrá tomar acuerdos sobre otros deberes y derechos de los Comités y Subcomités Comunales, siempre que no contravengan lo establecido en este Reglamento ni las Leyes o Decretos vigentes relacionados con el Deporte y la Recreación.

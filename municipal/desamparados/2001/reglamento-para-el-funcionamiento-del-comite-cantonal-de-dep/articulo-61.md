@@ -1,0 +1,3 @@
+Artículo 61.-Las sesiones darán inicio a más tardar quince minutos después de la hora señalada. Después de transcurridos esos quince minutos, la sesión no se podrá realizar, aunque haya quórum, y en el caso de que no se completara el mismo, se hará constar la lista de los miembros ausentes, los cuales, aunque llegaren posteriormente, no tendrán derecho a voz ni voto, de conformidad con el Artículo 21 de este Reglamento.
+Únicamente se podrán resolver los asuntos administrativos siempre que estén presentes al menos dos miembros de la Junta Directiva, debiendo informar a más tardar en la próxima sesión las decisiones que se tomaron
+Ninguna sesión se extenderá mas allá de tres horas.

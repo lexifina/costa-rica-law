@@ -1,0 +1,1 @@
+Artículo 3°-El Comité Cantonal de Deportes tendrá como domicilio legal el distrito Centro del cantón de Desamparados, pudiendo variar su sede en forma temporal si la organización y realización de actividades lo requiere.

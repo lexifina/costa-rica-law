@@ -1,0 +1,1 @@
+Artículo 28.-En la segunda semana del mes de junio de cada año los Comités Comunales someterán a conocimiento del Comité Cantonal su programa anual de actividades, obras e inversión, además del informe de labores y resultado de la gestión realizada el año anterior.

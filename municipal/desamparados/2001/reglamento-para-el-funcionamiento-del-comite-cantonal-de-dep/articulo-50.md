@@ -1,0 +1,1 @@
+Artículo 50.-Las actividades organizadas por el Comité Cantonal o el Comité Comunal estarán exentas del pago de tarifas de alquiler. Las competencias y campeonatos promovidos por Organismos Deportivos Nacionales deberán incluirse en el horario de uso de las instalaciones. Las competencias de carácter aficionado tendrán preferencia sobre las no aficionadas o profesionales.

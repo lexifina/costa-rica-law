@@ -1,0 +1,1 @@
+Artículo 62.- Todo miembro de la Junta Directiva deberá comunicar en forma escrita las razones de su ausencia a las sesiones, a más tardar dentro de las veinticuatro horas posteriores a la fecha de la sesión. En caso contrario su ausencia será considerada como injustificada.

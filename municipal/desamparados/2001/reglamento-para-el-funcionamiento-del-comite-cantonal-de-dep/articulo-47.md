@@ -1,0 +1,1 @@
+Artículo 47.-EI Comité Cantonal debe clasificar las Instalaciones Deportivas y/o Recreativas por categorías, acorde con la infraestructura de cada una y las actividades que en ellas se puedan realizar. Con sustento en este ordenamiento se definirán las tarifas por alquiler de las mismas.

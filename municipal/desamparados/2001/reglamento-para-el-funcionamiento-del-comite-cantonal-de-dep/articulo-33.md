@@ -1,0 +1,1 @@
+Artículo 33.-Cada Comité Comunal deberá llevar un Libro de Actas de las sesiones de Junta Directiva y un Libro de Tesorería, ambos con hojas numeradas y selladas por el Comité Cantonal, los cuales deberán estar a disposición de este último en el momento que los requiera.

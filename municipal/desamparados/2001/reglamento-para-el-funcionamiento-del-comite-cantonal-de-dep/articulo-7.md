@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la organización
+Artículo 7°-El Comité Cantonal y los Órganos que éste designe, serán los encargados de la actividad Deportiva y Recreativa en el cantón de Desamparados. Podrán realizar los planes Municipales y Nacionales que en esta materia dicten la Municipalidad y el ICODER respectivamente. Deberán brindar a estas dependencias toda la colaboración posible en materia de deporte y recreación, especialmente en el cuido y mantenimiento de las instalaciones deportivas. Por su lado, de acuerdo con el Código Municipal, el Municipio brindará al Comité Cantonal toda la colaboración en materia de deportes y recreación, dentro de las políticas nacionales y locales que en este aspecto le corresponde.
