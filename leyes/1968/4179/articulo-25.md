@@ -1,6 +1,1 @@
-Artículo 25.- Durante el tiempo que el Departamento sea asociado o preste ayuda a una cooperatiba, deberá:
-a) Establecer sistemas uniformes de contabilidad y medios adecuados de control a este respecto;
-b) Exigir la presentación de balances, cuentas, estados y así como las actas de las asambleas y del Consejo de Administración, en la forma que el mismo lo determine;
-c) Revisar en cualquier tiempo los libros y documentos, y verificar la existencia en dinero, valores, productos y mercaderías;
-d) Fiscalizar los actos administrativos y la inversión de los fondos suplidos o créditos concedidos; y
-e) Solicitar cualquier informacion adicional o tomar calesquiera otras medidas que juzgue conveniente, con el fin de llevar a cabo una efectiva labor de supervisión sobre los aspectos económicos y financieros de la cooperativa.
+Artículo 25.—Las cooperativas juveniles son las organizadas por estudiantes, niños, adolescentes y jóvenes, con el propósito esencial de proporcionarles una formación cooperativista, y de atender otras necesidades propias de la edad. En las cooperativas escolares y juveniles los menores se considerarán con capacidad legal para todos los actos que ejecuten dentro de la asociación, excepto en las relaciones de la cooperativa con terceros, en cuyo caso aquélla deberá estar representada por personas con plena capacidad legal.

@@ -1,1 +1,1 @@
-Artículo 47.- Las Asociaciones Cooperativas constituídas en la forma que prescribe esta ley, tendrán plena personalidad jurídica.
+Artículo 47.—En sesión que deberá celebrarse después de la elección e nuevos miembros del Consejo de Administración se elegirán un Presiente, un Vicepresidente, un Secretario, los Vocales y las Comisiones de trabajo que establezcan los estatutos.

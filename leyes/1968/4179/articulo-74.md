@@ -1,1 +1,2 @@
-Artículo 74.- Tendrán capacidad para ser asociados y disfrutar de los derechos de una cooperativa, con excepción de ser electos para cargos en los cuales los estatutos establecen cierto mínimo de edad, los menores de uno u otro sexo, que tengan más de quince años.
+Artículo 74.—Los certificados de aportación ganarán el interés que establezca la Asamblea, pero que en ningún momento podrá exceder del que establece el Banco Central de Costa Rica para los bonos bancarios.
+Se pagará únicamente sobre las sumas hechas efectivas por los asociados y sólo podrán cubrirse con cargo a los excedentes obtenidos por la cooperativa.

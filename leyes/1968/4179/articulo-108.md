@@ -1,1 +1,0 @@
-Artículo 108.- La constitución, administración y funcionamiento de las uniones, federaciones y la confederación de cooperativas, se regirán por la presente ley en cuanto fuere aplicable, y por las normas que establezcan sus propios estatutos.

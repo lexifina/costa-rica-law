@@ -1,3 +1,2 @@
-CAPITULO IV
-De la constitución e Inscripciones
-Artículo 46.- El registro, inscripción, control y fiscalización legal de las asociaciones cooperativas, estará a cargo de la Oficina de Cooperativas del Ministerio de Trabajo y Bienestar Social. Asimismo, será atribución de ella, solicitar a la autoridad respectiva, cuando proceda, la suspensión o disolución de las mismas.
+Artículo 46.—Corresponde al Consejo de Administración que será integrado por un número impar no menor de cinco miembros, la dirección superior de las operaciones sociales, mediante el acuerdo de las líneas generales a que debe sujetarse el Gerente en la realización de los mismos, dictar los Reglamentos internos de acuerdo con la ley o con sus estatutos, proponer a la Asamblea reformas a los estatutos de la Asociación y velar porque se cumplan y ejecuten sus resoluciones, y las de la Asamblea de Asociados o de Delegados.
+También podrá conferir al Gerente toda clase de poder, generalísimo, generales, especiales y espacialísimos, para llevar a cabo a su gestión administrativa, así como suspenderlo o removerlo de su cargo.

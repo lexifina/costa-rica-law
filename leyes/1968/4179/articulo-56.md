@@ -1,2 +1,5 @@
-Artículo 56.- Corresponde a la Asamblea la elección del Consejo de Administración, del Gerente y de los Comités que establezcan los estatutos.
-(Nota de Sinalevi: Mediante el artículo 3° de la ley N° 4542 del 16 de marzo de 1970, se interpretó este artículo en el sentido de que: "... la elección debe hacerse por un mínimo de la mitad más uno de los votos presentes...")
+TITULO V
+CAPITULO V
+De los Asociados
+Artículo 56.—Para ser miembro de una cooperativa se requiere poseer los requisitos o condiciones exigidos por los estatutos.
+Podrán ser miembros también las personas jurídicas que no persigan fines de lucro, aunque no reúnan todos los requisitos que indiquen los estatutos.

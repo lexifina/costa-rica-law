@@ -1,2 +1,7 @@
-Artículo 12.- Para efecto de que las cooperativas recuperen con prontitud las sumas de dinero que se les deban, tendrán derecho a cobrarlas por al vía ejecutiva. Con tal fin, las certificaciones que extienda la gerencia de esas asociaciones sobre dichas sumas, tendrán el carácter de título ejecutivo.
-Las retenciones por cuotas de asociación y los abonos a préstamos que haya concedido una cooperativa organizada por trabajadores al servicio del Estado, que la Oficina Técnica Mecanizada deba rebajar de los giros de sueldos respectivos, tendrán prioridad sobre cualquier otro tipo de retención que deba hacérsele al asociado, excepto que se trate de cuotas para la Caja Costarricense del Seguro Social, o pago de pensión alimenticia a que esté obligado.
+Artículo 12.—A ninguna cooperativa le será permitido:
+a) Imponer en sus estatutos condiciones rigurosas para el ingreso de nuevos asociados, que impidan su crecimiento constante, armónico y ordenado. Deberá estimularse por todos los medios el ingreso de nuevos asociados, de manera que su rápido y eficiente desarrollo no se limite por razón del número de éstos o por cualquier otra causa que las convierta en organizaciones cerradas;
+b) Establecer con comerciantes, entidades comerciales, hombres de negocios, o cualquier otra persona extraña a la cooperativa, combinaciones, acuerdos, o celebrar contratos, que hagan participar a éstos directa o indirectamente en los beneficios y franquicias que otorga la presente ley;
+c) Remunerar en forma alguna a cualquier persona por el hecho de proporcionar nuevos asociados o colocar certificados de aportación.
+d) Conceder ventajas o privilegios a los iniciadores, asociados fundadores, directores o administradores, o cualquier otro tipo de privilegio;
+e) Hacer inversiones con fines de especulación o usura; y
+f) Desarrollar actividades para las cuales no esté legalmente autorizada.

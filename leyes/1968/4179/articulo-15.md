@@ -1,1 +1,4 @@
-Artículo 15.- Además de lo que indica el artículo anterior, formarán el patrimonio del Departamento de Cooperativas: Las nuevas aportaciones decapital, reservas patrimoniales que acordare la Junta Directiva y utilidades netas provenientes de las liquidaciones anuales.
+TITULO II
+CAPITULO II
+De su Clasificación
+Artículo 15.—Las cooperativas son: de consumo, de producción, de comercialización, de suministros, de ahorro y crédito, de vivienda, de servicios, escolares, juveniles, de transporte, múltiples, y en general de cualquier finalidad lícita y compatible con los principios y el espíritu de cooperación.

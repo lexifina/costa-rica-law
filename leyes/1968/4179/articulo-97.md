@@ -1,6 +1,4 @@
-CAPITULO IX
-De la Disolución y Liquidación
-Artículo 97.- Las cooperativas podrán acordar su disolución por cualquiera de las siguientes causas:
-a) Por voluntad de las dos terceras partes de sus miembros;
-b) Por haber llenado su objetivo o por haber cumplido sus finalidades; y
-c) Por fusión o incorporación a otra asociación cooperativa.
+TITULO X
+CAPITULO X
+Del Control y Vigilancia
+Artículo 97.—Corresponderá al INFOCOOP, llevar a cabo la más estricta vigilancia sobre las asociaciones cooperativas, con el exclusivo propósito de que éstas funcionen ajustadas a las disposiciones legales. Al efecto, permitirán la inspección y vigilancia que sus funcionarios practiquen en dichas asociaciones para cerciorarse del cumplimiento de esta ley, de sus reglamentos y leyes conexas y darles la información indispensable que con ese objeto soliciten.

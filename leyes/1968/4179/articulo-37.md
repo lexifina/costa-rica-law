@@ -1,1 +1,2 @@
-Artículo 37.- Las cooperativas de mercadeo tienen por objeto: La recolección, centralización, selección, clasificación, preparación e industrialización, empaque y venta mancomunada de artículos naturales, elaborados o de ambos, producidos por sus asociados. Pueden ser agrícolas, industriales o artesanales.
+Artículo 37.—La Asamblea General o la de delegados, según el caso, será la autoridad suprema y sus acuerdos obligan a la cooperativa y a todos sus asociados, presentes y ausentes, siempre que estuvieren de conformidad con esta ley, los estatutos y los reglamentos de la cooperativa.
+Estará integrada por todos los asociados que al momento de su celebración estuvieren en el pleno goce de sus derechos.

@@ -1,1 +1,3 @@
-Artículo 43.- Las cooperativas de servicios múltiples son aquellas que combinan cualesquiera de las formas anteriores. Podrán abarcar objetos y propósitos diversos, a condición de que no sean incompatibles entre sí y que en lo pertinente se cumplan las reglas especiales a que debe sujetarse cada una de las clases de cooperativas.
+Artículo 43.—En la Asamblea, cada asociado tendrá derecho a un voto, cualquiera que sea el número de aportaciones que hubiere hecho, o el monto de las operaciones que tuviere con la cooperativa. La asistencia y votación por medio de un delegado, será permitida siempre que se reúnan estas condiciones :
+a) Que el delegante y el delegado estén en el pleno goce de sus derechos como asociados; y
+b) Que ningún asociado represente más de un delegante. La representación se hará por simple carta que deberá enviar el delegante al Gerente de la Cooperativa, en forma directa.

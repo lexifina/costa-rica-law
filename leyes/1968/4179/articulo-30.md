@@ -1,1 +1,1 @@
-Artículo 30.- Todas las instituciones autónomas, semiautónomas, municipalidades y dependencias del Estado, dentro de sus facultades legales y constitucionales, deberán dar colaboración para el mejor cumplimiento de esta ley, cuando sea requerida por el Departamento de Cooperativas.
+Artículo 30.—Las asociaciones cooperativas constituidas en la forma que prescribe esta ley, tendrán plena personería jurídica.

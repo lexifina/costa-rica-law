@@ -1,1 +1,4 @@
-Artículo 29.- El jefe del Departamento de Cooperativas tendrá a su cargo la administración de esa dependencia, de acuerdo con esta ley, los reglamentos que se dicten y las instrucciones que le imparta el Consejo Directivo. El subjefe actuará bajo la autoridad jerárquica del jefe y lo reemplazará en sus ausencias temporales. Sus funciones serán las que el Consejo Directivo y el jefe le señalen.
+TITULO III
+CAPITULO III
+De la Constitución e Inscripciones
+Artículo 29.—El registro, inscripción y autorización de la personería jurídica de las asociaciones cooperativas, estará a cargo del Ministerio de Trabajo y Seguridad Social. Asimismo, será atribución de él, solicitar ala autoridad respectiva, cuando proceda, la suspensión o 'disolución de las mismas.

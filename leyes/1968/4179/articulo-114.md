@@ -1,1 +1,0 @@
-Artículo 114.- Los Tribunales de Trabajo, salvo los casos expresamente señalados en esta ley, tendrán competencia sobre las acciones que se deriven de ella, de conformidad con lo dispuesto en el Título VII, Capítulo I del Código de Trabajo.
