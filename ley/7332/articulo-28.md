@@ -5,12 +5,12 @@ Solicitud de Conciliación
 ARTICULO 28.-
 1.- Cualquier Estado Contratante o nacional de un Estado Contratante
 que quiera incoar un procedimiento de conciliación, dirigirá, a tal
-efecto, una solicitud escrita al Secretario General quien enviará copia de
-la misma a la otra parte.
+efecto, una solicitud escrita al Secretario General quien enviará copia
+de la misma a la otra parte.
 2.- La solicitud deberá contener los datos referentes al asunto
 objeto de la diferencia, a la identidad de las partes y al consentimiento
-de estas a la conciliación, de conformidad con las reglas de procedimiento
-a seguir para iniciar la conciliación y el arbitraje.
+de estas a la conciliación, de conformidad con las reglas de
+procedimiento a seguir para iniciar la conciliación y el arbitraje.
 3.- El Secretario General registrará la solicitud salvo que, de la
 información contenida en dicha solicitud, encuentre que la diferencia se
 halla manifiestamente fuera de la jurisdicción del Centro. Notificará
