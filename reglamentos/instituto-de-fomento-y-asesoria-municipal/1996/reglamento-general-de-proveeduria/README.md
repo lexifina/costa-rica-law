@@ -16,3 +16,4 @@ Reglamento General de Proveeduría
 | 1 | 1996-09-03 | la propia norma |
 | 2 | 1998-01-14 | Reglamento 2762 (1998-01-14) |
 | 3 | 1998-12-14 | Reglamento 2851 (1998-12-14) |
+| 4 | 2000-01-17 | Reglamento 2956 (2000-01-17) |
