@@ -1,0 +1,1 @@
+Artículo 6°-El Colegio de Cirujanos Dentistas sancionará de acuerdo con lo que disponen los artículos 40 y 41 de su Ley Orgánica, a los profesionales no inscritos en este Registro, que traten de confundir o engañar al público haciéndose llamar "Especialista" o que usando términos alusivos a determinada especialidad se hagan pasar como tales.

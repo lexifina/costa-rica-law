@@ -1,0 +1,5 @@
+Artículo 3°-Será indispensable para la inscripción en el Registro de Especialidades Odontológicas, y para obtener el certificado respectivo, llenar los siguientes requisitos:
+a) Estar incorporado al Colegio de Cirujanos Dentistas de Costa Rica y ser miembro activo.
+b) Presentar la solicitud por escrito, con un timbre odontológico de ¢ 10.00, acompañada por el recibo que compruebe el pago de los respectivos derechos por un valor de doscientos colones (¢ 200.00) ; cantidad que se devolverá en caso de ser denegada la inscripción.
+c) Dictamén favorabIe rendido por una comisión que nombrará la Junta Directiva del Colegio de Cirujanos Dentistas, previa consulta a la Academia de la especialidad de que se trate, si existiere, y ajustado a las normas que establece el artículo 4°.
+d) Adjuntar los atestados de las Universidades o instituciones científicas de reconocido prestigio nacional e internacional, en que conste el tipo de estudios hechos, la práctica efectuada, y la duración de los mismos, debidamente autenticados, para comprobar que se han efectuado los estudios mínimos que para cada especialidad se exigen.

@@ -1,0 +1,1 @@
+Artículo 8°-Si se le solicitare información sobre la práctica especialidades odontológicas en el país, y sobre quienes se dedican a determinada especialidad, la Junta Directiva se referirá a los Cirujanos Dentistas inscritos en el Registro de Especialidades Odontológicas.

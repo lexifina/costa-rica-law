@@ -1,0 +1,1 @@
+Artículo 5° Aprobado por la Junta Directiva del Colegio de Cirujanos Dentistas el dictamen rendido por la Comisión, el solicitante será juramentado en forma oficial y se le inscribirá en el Registro de Especialidades Odontológicas.
