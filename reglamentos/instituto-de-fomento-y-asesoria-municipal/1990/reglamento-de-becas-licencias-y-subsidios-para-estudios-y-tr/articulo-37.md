@@ -1,1 +1,0 @@
-Artículo 37.—Las erogaciones se harán de conformidad con el plan de desembolsos autorizados por el Departamento que aprobó el trabajo, para lo cual será indispensable que previamente se haya suscrito el contrato respectivo ante el Departamento Legal.

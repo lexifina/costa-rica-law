@@ -1,5 +1,0 @@
-Artículo 42.—El favoreciendo con una beca de estudio, entrenamiento o capacitación en general, ya sea financiado por el IFM o aprovechando las facilidades que otorguen gobiernos, instituciones extranjeras y organismos internacionales quedará obligado a servirle al Instituto en el ramo de su especialidad, obligándose el beneficiario a impartir los conocimientos por él adquiridos mediante el trabajo práctico y la enseñanza teórica, a otros servidores públicos, según lo requiera la Institución de conformidad con la tabla siguiente:
-a) Si su licencia para adiestramiento fue sin goce de sueldo, los prestará durante un tiempo igual al de la licencia otorgada para el disfrute de la beca;
-b) Si su licencia fue con goce de sueldo completo, lo prestará durante un tiempo tres veces mayor al de la licencia; y
-c) Si su licencia fue con goce de una parte de su salario, los prestará durante un tiempo proporcional a la parte del sueldo de que gozó en relación con el tiempo durante el cual habría tenido que prestarlos si hubiese gozado de su sueldo completo.
-No obstante, dicha obligación no será por más de tres años.

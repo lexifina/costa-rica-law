@@ -1,3 +1,0 @@
-CAPITULO I
-De las disposiciones generales
-Artículo 1 °—Se establece el presente articulado para normar la adjudicación de becas al personal, así como la concesión de licencias y subsidios para realizar estudios y trabajos de graduación, y la selección de candidatos para participar en todos los cursos y eventos análogos internos, nacionales y en el exterior de interés institucional auspiciados o en que participe el IFAM, a efecto de fomentar su capacitación, asegurar un sistema de participación igualitaria a todos los empleados, y, dotar al Instituto de los mecanismos adecuados para el logro eficaz y eficiente de sus objetivos.

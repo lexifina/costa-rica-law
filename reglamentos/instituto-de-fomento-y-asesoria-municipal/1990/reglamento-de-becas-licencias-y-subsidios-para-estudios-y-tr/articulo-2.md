@@ -1,2 +1,0 @@
-Artículo 2°—El IFAM, por medio del Secretario que designe la Comisión de Becas, gestionará ante los organismos e instituciones correspondientes la participación de sus funcionarios en todo programa de capacitación que se realice en el país o en el extranjero, que tenga relación con las funciones que se desempeñan en la Institución.
-Anualmente se elabora un programa de capacitación del personal que satisfaga los requerimientos operativos de políticas y propósitos del Instituto, el cual deberá ser aprobado por la Junta Directiva.

@@ -1,1 +1,0 @@
-Artículo 49.—El servidor que incumpliere los deberes u obligaciones de cualesquiera de los contratos que establece este Reglamento, por causa evidentemente imputable a el, quedará excluido de los respectivos beneficios reglamentarios hasta por un máximo de cinco años.

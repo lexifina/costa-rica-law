@@ -1,1 +1,0 @@
-Artículo 54.—Para lo no previsto en este Reglamento en cuanto a becas y licencias, se podrá aplicar las disposiciones contempladas en el Reglamento Interior de Trabajo y en el Estatuto de Personal. En caso de discrepancia, prevalecerán estas normas reglamentarias sobre aquellas citadas o cualesquiera otras, las que se entenderán derogadas.

@@ -1,1 +1,0 @@
-Artículo 40.—La confección de los contratos será responsabilidad exclusiva del Departamento Legal, así como los trámites posteriores para garantizar la eficacia del contrato. Cuando hubiere garantía accesoria de cumplimiento, real o fiduciaria, el Departamento Legal hará todas las diligencias del caso para que la Institución quede adecuadamente garantizada.

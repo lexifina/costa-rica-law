@@ -1,1 +1,0 @@
-Artículo 5°—El beneficiario de cualquiera de estos sistemas queda obligado a impartir a otras personas los conocimientos por él adquiridos en coordinación con las Secciones de Personal y Capacitación Municipal.
