@@ -1,0 +1,1 @@
+Artículo 6—La Institución aportará el 5% del salario de cada trabajador y lo acreditará de acuerdo con lo indicado en el artículo 14 inciso c) de la Ley Orgánica del Consejo Nacional de Producción, a cada empleado, según le corresponda. Los fondos solo podrán ser retirados en los casos establecidos en e! artículo 2 de este Reglamento.

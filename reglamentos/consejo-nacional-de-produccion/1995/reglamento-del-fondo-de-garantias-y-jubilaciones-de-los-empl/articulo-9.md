@@ -1,0 +1,1 @@
+Artículo 9—El quórum se formara con cuatro miembros (dos nombrados por la Administración y dos nombrados por el SINCONAPRO) y los acuerdos se tomarán por la mayoría de los presentes. En caso de empate, el presidente hará uso del voto de calidad que faculta la Ley General de Administración Pública en el Artículo 49-3 inciso f.

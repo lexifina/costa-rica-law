@@ -1,0 +1,1 @@
+Artículo 27—Los funcionarios del Consejo relacionados con la aplicación de este Reglamento estarán sujetos a las sanciones disciplinarias que establece la Legislación Laboral sin perjuicio de otra legislación, en caso de falta o incumplimiento de sus obligaciones.

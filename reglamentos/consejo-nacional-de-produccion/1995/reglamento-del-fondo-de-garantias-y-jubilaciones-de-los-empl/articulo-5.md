@@ -1,0 +1,1 @@
+Artículo 5—Dentro de los seis meses siguientes a la terminación de cada periodo anual, el Consejo deberá girar al Fondo de Garantías y Jubilaciones la diferencia del aporte por los excedentes a que se refiere el inciso a) párrafo 2 del artículo 3 de este reglamento.
