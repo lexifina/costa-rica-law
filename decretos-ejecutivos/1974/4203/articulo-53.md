@@ -1,1 +1,3 @@
-Artículo 53° Las aeronaves monomotores podrán utilizarse solamente en VMC y de día y en aquellas rutas y desviaciones de ellas que permitan realizar aterrizaje forzoso en condiciones seguras caso de producirse falla de motor.
+Artículo 53: Las aeronaves monomotores podrán utilizarse solamente en VMC y de día en aquella rutas y desviaciones de ellas que permitan realizar aterrizaje forzoso en condiciones seguras, caso de producirse falta de motor.
+No obstante, cuando la aeronave cuente con el equipo de navegación necesario, de acuerdo a los términos de los artículos 68 y 70 del presente reglamento, la Dirección General de Aviación Civil, previa inspección podrá autorizarse a realizar vuelos nocturnos o en condiciones meteorológicas por instrumentos (IMC).
+(Así reformado por el artículo 1° del decreto ejecutivo N° 7615 del 28 de octubre de 1977)

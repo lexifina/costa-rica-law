@@ -14,3 +14,4 @@ Reglamento de Operaciones para Aeronaves Civiles
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-11-08 | la propia norma |
+| 2 | 1977-10-28 | Decreto Ejecutivo 7615 (1977-10-28) |
