@@ -1,0 +1,1 @@
+Art 4° El Capital efectivo del Banco será por ahora de quinientos mil pesos, dividido en acciones de cien pesos cada una, y podrá aumentarse hasta un millón de pesos, o más a juicio del Poder Ejecutivo. Único, Las acciones esté ya reunida en la caja.

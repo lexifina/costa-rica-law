@@ -1,0 +1,1 @@
+Artículo 10° En el caso de que se instituya o esté instituida por la Ley alguna Caja de ahorros, el Gobierno tendrá el derecho de incorporarla en el Banco. Este servicio será distinto e independientemente de los negocios del Banco, y su organización será el objeto de una ley.

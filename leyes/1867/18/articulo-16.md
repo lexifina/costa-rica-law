@@ -1,0 +1,2 @@
+Art 16° La Administración del Banco, dirigirá al Secretario de Hacienda, cada fin de mes, un estado que manifieste con toda claridad la situación del establecimiento y de sus oficinas sucursales.
+Esta situación será publicada mensualmente por la Gaceta Oficial. Único. El resultado de las operaciones del Banco y el arreglo de los dividendos, serán publicados semestralmente también por La Gaceta Oficial, señalado el día o días en que los accionistas deben ocurrir al Banco por sus dividendos.
