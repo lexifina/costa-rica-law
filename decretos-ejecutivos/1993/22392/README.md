@@ -14,3 +14,4 @@ Crea Consejo Costarricense de Desarrollo Sostenible (El Poder Ejecutivo publicó
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-08-16 | la propia norma |
+| 2 | 1994-09-23 | Decreto Ejecutivo 23671 (1994-09-23) |

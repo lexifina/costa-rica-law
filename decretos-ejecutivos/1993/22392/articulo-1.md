@@ -1,5 +1,7 @@
-(NOTA DE SINALEVI: El Poder Ejecutivo, mediante el decreto ejecutivo N° 23204 del 19 de abril de 1994, acordó la constitución de un nuevo Consejo Costarricense de Desarrollo Sostenible, publicado en La Gaceta N° 87 del 6 de mayo de 1994, el cual puede consultarse en el Sistema).
+(Derogado)
 N° 22392
+(Este decreto fue derogado por el artículo 22 del decreto ejecutivo N° 23671 del 23 de setiembre de 1994 "Constituye Sistema Nacional para el Desarrollo Sostenible "SINADES"".
+(NOTA DE SINALEVI: El Poder Ejecutivo, mediante el decreto ejecutivo N° 23204 del 19 de abril de 1994, acordó la constitución de un nuevo Consejo Costarricense de Desarrollo Sostenible, publicado en La Gaceta N° 87 del 6 de mayo de 1994, el cual puede consultarse en el Sistema).
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE RECURSOS NATURALES, ENERGIA Y MINAS
 Y DE RELACIONES EXTERIORES Y CULTO,
