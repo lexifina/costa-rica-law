@@ -1,9 +1,10 @@
 # Reforma Contrato SNE - CNFL aprobatorio de Segunda Concesión Anexa
 
-Ley N° 627 del 1946-07-24. SINALEVI, ficha 4295: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=4295&param2=4546&param3=1>.
+Ley N° 627 del 1946-07-24. SINALEVI, ficha 4295: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=4295&param2=4547&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 1946-07-24 | Ley 627 | 1946-07-24 |
+| 2 de 2 | 1946-07-24 | SINALEVI | 1946-07-24 |
