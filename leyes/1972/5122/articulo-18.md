@@ -1,1 +1,0 @@
-Artículo 18.- El quórum para las reuniones del Consejo de Administración se formará con cuatro miembros y los acuerdos se tomarán por mayoría de los votos presentes, salvo, disposiciones especiales que demanden mayor número; en caso de empate el Presidente tendrá doble voto.
