@@ -1,1 +1,2 @@
-Artículo 25.—Las parcelas para sepulturas privadas podrán ser concedidas por un tiempo determinado no inferior a cinco años o a perpetuidad, cuando pague los derechos correspondientes, estipulados en el artículo 23; o bien, cuando la parcela sea de 2,50 metros por 1,10 metros, cada quinquenio tendrá un sobrecargo de ^ 37.50.
+Artículo 25.—Las parcelas para sepulturas privadas podrán ser concedidas por un tiempo determinado no inferior a cinco años o a perpetuidad, cuando pague los derechos correspondientes estipulados en el artículo 23, o bien, cuando la parcela sea de 2.5 por 1.10 metros, cada quinquenio tendría un sobrecargo de ¢100.00 el metro cuadrado.
+(Así reformado mediante sesión N° 113 del 19 de julio de 1984).
