@@ -13,6 +13,7 @@ Considerando:
 En uso de las atribuciones conferidas por los artículos 140, incisos 3), 18) y 20) de la Constitución Política, 25, 27 y 28 de la Ley General de la Administración Pública y en ejecución de lo dispuesto por la ley Nº 7407, del 3 de mayo de 1994.
 DECRETAN:
 El siguiente:
+(Reglamento derogado expresamente por el artículo 61 del Decreto Ejecutivo N°26894 de 22 de Enero de 1998)
 REGLAMENTO A LA LEY DE SOCIEDADES ANONIMAS LABORALES
 CAPITULO PRIMERO
 Disposiciones generales

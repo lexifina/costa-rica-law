@@ -13,3 +13,4 @@ Reglamento a la Ley de Sociedades Anónimas Laborales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-05-16 | la propia norma |
+| 2 | 1995-05-16 | Decreto Ejecutivo 26894 (1998-01-22) |
