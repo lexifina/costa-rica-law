@@ -1,0 +1,1 @@
+Art 2.- Que no teniendo efecto la disposición anterior, sean obligados a depositarla en la casa que el Gobierno destine para almacén dentro de otros quince días, pagando dos pesos mensuales por quintal en razón de bodegaje.

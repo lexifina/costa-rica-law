@@ -1,0 +1,1 @@
+Art 3°.- Que, faltándose al cumplimiento de los dos artículos que preceden, caiga en comiso por el mismo hecho la pólvora; y que, bajo la misma pena, estén sugetadas las introducciones ulteriores al cumplimiento del art.2
