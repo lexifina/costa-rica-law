@@ -1,0 +1,1 @@
+8º—Cumplida las formalidades señaladas en los puntos 6 y 7 el tesorero entrega el dinero a quien corresponda, se reserva el original del comprobante y remite la copia al ejecutivo. Una vez hecha la compra, el tesorero solicita a la persona que realizó los justificantes originales cancelados, cuando esto proceda.
