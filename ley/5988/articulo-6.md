@@ -1,1 +1,2 @@
-Artículo 6§.-El Director Ejecutivo deberá ser graduado universitario en Ciencias Sociales y de reconocida preocupación por los problemas de la mujer y de la familia. El Director Ejecutivo ser nombrado de las ternas que presente la Dirección General del Servicio Civil.
+Artículo 6º.- El Poder Ejecutivo emitirá el reglamento de esta ley en un plazo no mayor de tres meses a partir de su vigencia.
+TRANSITORIO ÚNICO: Los funcionarios y empleados de la Dirección General de Mujer y Familia del Ministerio de Cultura, Juventud y Deportes, pasarán al Centro con sus plazas y con pleno reconocimiento de los derechos adquiridos.
