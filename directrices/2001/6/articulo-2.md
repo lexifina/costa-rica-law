@@ -1,0 +1,1 @@
+Segundo: En consecuencia, se le ubicará en el inciso correspondiente del artículo 29 reformado, para determinar el "derecho de auxilio de cesantía" que corresponde con la nueva ley; el cual, sumado con el "derecho adquirido" antes de la reforma, dará el total de "auxilio de cesantía compuesto".

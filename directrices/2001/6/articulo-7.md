@@ -1,0 +1,4 @@
+Séptimo: Cuando la antigüedad laboral fuere igual o mayor a ocho años, para efectos del cálculo y pago de auxilio de cesantía, sólo se tomarán en cuenta los últimos ocho años3. En consecuencia, el "período de transición" estará compuesto por el tiempo laborado antes y después de la reforma, que sea necesario para completar la unidad del año correspondiente.
+1 Esto por cuanto la antigüedad laboral se deriva o es consecuencia de la ''continuidad del contrato; el cual a su vez y salvo casos de excepción contemplados en la ley. se da por la efectiva prestación de servidos.
+2 Por cuanto así se dispone en el inciso c) del artículo 29 del Código de Trabajo antes de la reforma y en el inciso 3) de dicho artículo reformado.
+3 Así se dispone en el inciso 4) del artículo 29 reformado del Código de Trabajo.
