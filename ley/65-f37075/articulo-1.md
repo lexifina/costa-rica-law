@@ -1,0 +1,4 @@
+DECRETO LXV.
+Dispone el modo como debe hacerse la circulacion de las leyes y demas disposiciones Supremas en todo el Estado
+"El Presidente del Estado de Costa Rica Considerando: que el arreglo establecido para la circulacion de las leyes, decretos, órdenes y providencias que se comunican por los respectivos Ministerios á las Autoridades del Estado, no es el mas á propósito en el actual sistema de Gobierno, en cumplimiento de lo prevenido por el art. 99 y por el § 1° art. 110 de la Constitucion, decreta.
+Art. 1° Cada uno de los Ministros del Despacho hará directamente à las Secretarías de los Supremos Poderes, á los Gobernadores Politicos, Vicario eclesiástico, Intendente, Comandante General y Presidentes de la Direccion de estudios y Juntas de Caridad y de Caminos, la circulacion de las leyes, decretos, ordenes y providencias que haya autorizado.

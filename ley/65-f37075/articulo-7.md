@@ -1,0 +1,2 @@
+Art. 7. De conformidad con lo dispuesto por las leyes, se formaran por fin de año, en todas las oficinas públicas del Estado y de los pueblos, inventarios minuciosos de los documentos, expedientes,
+leyes, decretos, órdemes y demas resoluciones que enseres de en cada una existan, y de los útiles y enseres de las mismas oficinas para la debida inteligencia, de cuyos inventarios se dirigirá un ejemplar al Despacho del Gobierno. Los Jefes de oficina en todos los ramos de la administracion pública son responsables por la falta de dichos inventarios y desarreglo de los archivos.
