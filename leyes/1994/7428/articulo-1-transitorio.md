@@ -1,0 +1,2 @@
+Transitorio único. Las disposiciones del artículo 36 entrarán a regir seis meses después de la publicación de esta Ley y serán aplicables en los procesos jurisdiccionales que se inicien a partir de esa misma fecha. Los juicios iniciados en fecha anterior se regirán, en lo conducente, por la legislación anterior y por las disposiciones del artículo 35 de la presente Ley.
+Dado en la Presidencia de la República.-San José, a los siete días del mes de setiembre de mil novecientos noventa y cuatro.

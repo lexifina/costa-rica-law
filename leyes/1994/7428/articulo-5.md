@@ -1,0 +1,15 @@
+ARTICULO 5.- CONTROL SOBRE FONDOS Y ACTIVIDADES PRIVADOS
+Todo otorgamiento de beneficios patrimoniales, gratuito o sin
+contraprestación alguna, y toda liberación de obligaciones, por los
+componentes de la Hacienda Pública, en favor de un sujeto privado, deberán
+darse por ley o de acuerdo con una ley, de conformidad con los principios
+constitucionales, y con fundamento en la presente Ley estarán sujetos a la
+fiscalización facultativa de la Contraloría General de la República.
+Cuando se otorgue el beneficio de una transferencia de fondos del
+sector público al privado, gratuita o sin contraprestación alguna, la
+entidad privada deberá administrarla en una cuenta corriente separada, en
+cualquiera de los bancos estatales; además llevará registros de su empleo,
+independientes de los que corresponden a otros fondos de su propiedad o
+administración. Asimismo, someterá a la aprobación de la Contraloría
+General de la República, el presupuesto correspondiente al beneficio
+concedido.
