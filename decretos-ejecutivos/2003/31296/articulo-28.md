@@ -1,0 +1,1 @@
+Artículo 28.—Los plazos de ejecución de los proyectos serán, como máximo, de veinticuatro meses. Excepcionalmente, la Comisión de Incentivos podrá autorizar plazos mayores que estos, siempre que se justifique rigurosamente de acuerdo con las necesidades del proyecto.

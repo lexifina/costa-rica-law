@@ -1,0 +1,1 @@
+Artículo 29.—El control y seguimiento de los proyectos será realizado por el CONICIT, mediante visitas y presentación de informes periódicos por parte del beneficiario durante la ejecución de los proyectos.

@@ -1,0 +1,1 @@
+Artículo 19.—Una vez trasladadas las ofertas al CONICIT u otro ente técnico, este hará una revisión y verificación de la documentación presentada, con el fin de establecer si existe la necesidad de solicitar aclaraciones sobre la información suministrada.
