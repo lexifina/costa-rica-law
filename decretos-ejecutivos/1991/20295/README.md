@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicio del Ministerio de Justicia y Paz
 | --- | --- | --- |
 | 1 | 1991-04-03 | la propia norma |
 | 2 | 1997-02-20 | Decreto Ejecutivo 25880 (1997-02-20) |
+| 3 | 1997-05-30 | Decreto Ejecutivo 26095 (1997-05-30) |
