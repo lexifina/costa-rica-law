@@ -1,4 +1,1 @@
-Artículo 4º.- El importe correspondiente a gastos de representación,
-así como el pago por concepto de dedicación exclusiva son, el primero,
-salario para el solo y único propósito de cálculo para pensión, y el
-segundo, salario para todos los efectos.
+Artículo 4º.- El importe correspondiente a gastos de representación, así como el pago por concepto de dedicación exclusiva son, el primero, salario para el solo y único propósito de cálculo para pensión, y el segundo, salario para todos los efectos.
