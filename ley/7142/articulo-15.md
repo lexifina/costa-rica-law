@@ -1,5 +1,2 @@
-ARTICULO 15.- El Ministerio de Justicia deberá poner en marcha
-programas adecuados, en coordinación con el Centro de Mujer y Familia, para
-asegurar la protección y la orientación de las víctimas de agresión por
-parte de un familiar consanguíneo o afín y de agresión sexual, así como
-para la prevención del problema.
+Artículo 15.- El Ministerio de Justicia deberá poner en marcha programas adecuados, en coordinación con el Centro de Mujer y Familia(*), para asegurar la protección y la orientación de las víctimas de agresión por parte de un familiar consanguíneo o afín y de agresión sexual, así como para la prevención del problema.
+(*) (Nota: El artículo 26, inciso c), de la ley No.7801 de 30 de abril de 1998 indica que toda referencia al Centro Nacional para el Desarrollo de la Mujer y la Familia se entenderá referida al Instituto Nacional de las Mujeres)
