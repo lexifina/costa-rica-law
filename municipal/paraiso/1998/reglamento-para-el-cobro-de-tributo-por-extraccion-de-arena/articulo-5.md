@@ -1,0 +1,1 @@
+Artículo 5°—El Recaudador Auxiliar de Ríos no podrá otorgar licencias para la extracción de arena, piedra, lastre y sus derivados, por más de 100 metros cúbicos. Cuando sea más de esta cantidad se deben cancelar los impuestos en la Tesorería Municipal, previo otorgamiento de la licencia por parte del Alcalde Municipal.

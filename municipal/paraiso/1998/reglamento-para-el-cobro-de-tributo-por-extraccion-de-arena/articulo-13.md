@@ -1,0 +1,1 @@
+Artículo 13.—Todo concesionario para la explotación de canteras deberá avisar a la Municipalidad, por lo menos con cinco días hábiles, de anticipación, salvo caso fortuito o fuerza mayor, el cese o suspensión de la actividad de explotación, caso contrario se presumirá que la actividad se lleva a cabo ordinariamente.

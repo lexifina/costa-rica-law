@@ -1,0 +1,1 @@
+Artículo 17.—Todas las personas físicas o jurídicas que se dediquen a la explotación de canteras deberán brindar toda la colaboración necesaria a los funcionarios municipales a fin de que puedan llevar a cabo un eficaz control y fiscalización del tributo, ello de conformidad con las normas pertinentes del Código de Normas y Procedimientos Tributarios.

@@ -1,0 +1,1 @@
+Artículo 18.—El empleado municipal que opere el cargador municipal podrá brindar el servicio de cargada a particulares si estos presentan el recibo de cancelación de este servicio y únicamente por los metros cúbicos de material del río que especifique el recibo y tratándose de instituciones públicas deberá de pedir la autorización por escrito del Alcalde Municipal.

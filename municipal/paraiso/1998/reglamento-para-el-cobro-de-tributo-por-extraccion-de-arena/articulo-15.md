@@ -1,0 +1,1 @@
+Artículo 15.—Mientras la DGMH no fije el valor en el mercado de los materiales extraídos de canteras, se tendrá como base para determinar el tributo, el valor señalado en la declaración jurada del concesionario, salvo prueba en contrario por parte de la Municipalidad.

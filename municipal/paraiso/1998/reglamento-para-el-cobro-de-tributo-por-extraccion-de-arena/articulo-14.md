@@ -1,0 +1,1 @@
+Artículo 14.—La Municipalidad podrá en cualquier momento instalar puestos fijos de control y fiscalización del tributo, para lo cual acreditará cuando lo crea conveniente, inspectores que lleven a cabo dicha función. Mientras ello no se lleve a cabo, se aplicará lo dispuesto en el artículo 5° de este reglamento.

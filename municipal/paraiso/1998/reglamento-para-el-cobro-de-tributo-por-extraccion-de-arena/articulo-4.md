@@ -1,0 +1,1 @@
+Artículo 4°—El monto del tributo será de un diez por ciento del valor en el mercado por metro cúbico de arena, piedra, lastre, grava, calizas, etc., extraídas de cualquier clase de cantera. En caso de que no exista acuerdo respecto al valor en el mercado por metro cúbico de dichos materiales, se tendrá como tal el que determine la DGMH.

@@ -1,0 +1,1 @@
+Artículo 19.—El Concejo podrá exonerar de estos impuestos a instituciones autónomas o semiautónomas que así lo soliciten por escrito y mediante un acuerdo municipal, siempre y cuando las obras que se construirán con esos materiales representantes un progreso para el cantón o provincia.

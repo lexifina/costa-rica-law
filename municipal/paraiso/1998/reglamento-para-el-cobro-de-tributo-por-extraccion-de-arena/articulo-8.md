@@ -1,0 +1,1 @@
+Artículo 8°—El Recaudador Auxiliar de Ríos deberá hacer entregas de dinero ante la Tesorería Municipal periódicamente, con el fin de evitar que ande consigo mucho dinero, y máxime considerando lo que le cubre la póliza de fidelidad otorgada por el INS.

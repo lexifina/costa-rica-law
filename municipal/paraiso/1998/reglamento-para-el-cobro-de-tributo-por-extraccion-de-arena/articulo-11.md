@@ -1,0 +1,1 @@
+Artículo 11.—El concesionario que no cancele en tiempo el impuesto a que se refiere el presente reglamento, deberá cancelar a la Municipalidad los intereses y multas establecida en los artículos 69, 70, 71, 72 y 73 del Código Municipal, salvo el caso de no pago en el cual se aplicará lo dispuesto en el artículo anterior.
