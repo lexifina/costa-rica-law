@@ -14,3 +14,4 @@ Reglamento Emergencia Nacional Construcción Caminos Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-08-04 | la propia norma |
+| 2 | 1988-08-04 | SINALEVI (sin norma nombrada) |
