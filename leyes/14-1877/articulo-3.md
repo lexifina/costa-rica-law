@@ -1,0 +1,1 @@
+Art. 3°- Serán de cuenta del mismo Tesoro Nacional los costos de medida de las cincuenta caballerías y todos los que ocurrieren hasta expedir el título en favor del vecindario, excepto los que ocasione la gente que se ocupe en acompañar al Agrimensor en la medida; debiendo la Municipalidad proporcionar los tiradores de cuerda, carrileros, etc., que se ocupen en dicha operacion.

@@ -1,0 +1,1 @@
+Art 5°- Cualquier veciono de la Provincia podrá solicitar uno de dichos lotes ó parte de él, y lo hará suyo en propiedad con la única condición de cerrarlo en firme y cultivarlo en el término de un año.

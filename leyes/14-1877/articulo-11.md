@@ -1,0 +1,1 @@
+Art 11.- Si transcurrido el año el lote ó porción de terreno concedida no estuviese cerrado y cultivado, como ántes se ha expresado, la Municipalidad podrá disponer de él en favor de otra persona, sin obligación de indemnizar al anterior poseedor cualquiera mejora que pueda existir. Dado en el Palacio Nacional, a los ocho días del mes de Junio de mil ochocientos setenta y siete.
