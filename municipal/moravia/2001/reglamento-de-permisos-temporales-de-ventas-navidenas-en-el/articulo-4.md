@@ -1,0 +1,1 @@
+4. Los patentados temporales deberán estar atentos de recoger la basura que produzca su actividad en recipientes adecuados para tal efecto y estar vigilantes de los días en que pase el recolector de basura por el sector.

@@ -1,0 +1,1 @@
+11. La solicitud de permisos temporales se debe presentar ante el Departamento de Patentes, será el Alcalde quién los otorgue y quien informe semanalmente al Concejo Municipal la lista de permisos otorgados.

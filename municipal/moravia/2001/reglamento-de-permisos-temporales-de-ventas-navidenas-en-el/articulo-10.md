@@ -1,0 +1,1 @@
+10. La suma a cancelar en forma adelantada ante la Administración lo será; para la venia de frutas solamente: veinticinco mil colones. Si se incluyeran juguetes, papel de regalo y otros; la suma a cobrar lo es treinta y cinco mil colones. Dicho canon será objeto de revisión anualmente.

@@ -1,0 +1,1 @@
+8. Los puestos que expendan manzanas, uvas, peras y melocotones deberán tener al menos un sifón conteniendo agua, para que se laven las frutas que se expendan y se consuman en forma inmediata. A la vez deberán mantener un rótulo visible que diga "Lave las frutas antes de consumirlas"

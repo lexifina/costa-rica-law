@@ -1,0 +1,1 @@
+3. Los interesados en trabajar en dichos puestos, deberán estar al día con el pago de los tributos municipales, siendo que para los efectos de trámite de permiso temporal deben presentar constancia del Departamento de Rentas y Cobros.

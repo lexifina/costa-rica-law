@@ -1,0 +1,1 @@
+7. El permiso que se otorgue para la venta temporal de lo señalado, no puede ser transmitido a terceros por ninguna figura contractual y deberá ser operado por la persona, que acredite ser titular del permiso.
