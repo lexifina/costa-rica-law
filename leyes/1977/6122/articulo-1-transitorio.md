@@ -1,0 +1,2 @@
+Transitorio único.- Los dueños o encargados de los establecimientos y servicios, a que se refiere la presente ley, que ya estuvieran abiertos al público, gozarán de un plazo de noventa días naturales para ajustar sus actividades, a las disposiciones de la misma, y al solicitar los correspondientes permisos, suministrarán una lista de los objetos o mercaderías que actualmente tienen en su poder.
+Casa Presidencial.-San José, a los diecisiete días del mes de noviembre de mil novecientos setenta y siete.
