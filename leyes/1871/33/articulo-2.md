@@ -1,0 +1,1 @@
+Art 2° En sustitución de esta garantía el Administrador General de correos rendirá una fianza a satisfacción del Ministro de Hacienda, por la suma de diez mil pesos que responderá del buen manejo de los intereses fiscales que tiene a su cargo.
