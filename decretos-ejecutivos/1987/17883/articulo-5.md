@@ -1,0 +1,6 @@
+CAPITULO II
+De la inscripción.
+ARTÍCULO 5°.-Las personas físicas o jurídicas que se encuentren explotando salas de juego o casinos, deben solicitar su inscripción en el registro de contribuyentes del impuesto, dentro de los siguientes quince días a la fecha de entrada en vigencia de este Reglamento, aportando para tales efectos el documento extendido por el organismo competente, mediante el cual se autorizó la explotación del casino o sala de juego.
+Las personas que con posterioridad a la entrada en vigencia de la ley y este Reglamento, deseen explotar salas de juego o casinos, deberán solicitar su inscripción de previo al inicio de sus operaciones.
+Para este efecto es obligatorio aportar el documento extendido por el organismo competente, mediante el cual se autoriza la explotación del casino o sala de juego. El organismo que autoriza deber comunicarlo a la Dirección General de la Tributación Directa.
+La no inscripción o la efectuada fuera de los términos indicados, no libera a estas personas de la obligación de pagar el impuesto respecto a todas las operaciones gravadas que hubieren efectuado, así como el que recae sobre cada mesa de juego autorizada, ni de las sanciones que le fueren aplicables de conformidad con lo dispuesto en el Código de Normas y Procedimientos Tributarios.

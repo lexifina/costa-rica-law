@@ -1,0 +1,1 @@
+ARTÍCULO 8°.-Determinación del impuesto. El impuesto a pagar se determina aplicando separadamente un diez por ciento (10%) sobre los ingresos netos mensuales obtenidos y de cincuenta mil colones (₡ 50.000,00) mensuales por cada una de las mesas de juego autorizadas.

@@ -1,0 +1,1 @@
+ARTÍCULO 9°.-Pago del impuesto. Conjuntamente con la presentación de la declaración jurada, debe pagarse el impuesto en las agencias bancarias autorizadas por el Banco Central, dentro del plazo establecido por ley.
