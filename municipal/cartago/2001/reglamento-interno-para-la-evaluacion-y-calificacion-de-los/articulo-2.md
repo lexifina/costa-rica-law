@@ -1,0 +1,1 @@
+Artículo 2°—Las categorías que se utilizarán para la evaluación anual de los servicios de los trabajadores municipales, serán: regular, bueno, muy bueno y excelente. Las relacionadas categorías equivaldrán respectivamente a los puntajes siguientes: Regularregular: de 70 a 79., Buenobueno: de 80 a 89., mMuybueno:, de 90 a 94, e. Excelente: de 95 a 100.
