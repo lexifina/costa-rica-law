@@ -1,0 +1,1 @@
+Artículo 6°- El Ministerio de Cultura, Juventud y Deportes y la comunidad de las regiones tratarán en la medida de sus posibilidades, de buscar el financiamiento necesario para la realización de festivales Regionales.

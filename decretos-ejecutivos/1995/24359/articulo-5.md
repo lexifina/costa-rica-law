@@ -1,0 +1,1 @@
+Artículo 5°- El Ministerio de Cultura, Juventud y Deportes, a través de la Dirección General de Cultura y la Oficina del festival de las Artes, brindará al comité organizados de Festival en cada región, la asesoría técnica y el apoyo logístico para su realización.

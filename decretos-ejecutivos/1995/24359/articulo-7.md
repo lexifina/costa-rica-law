@@ -1,0 +1,1 @@
+Artículo 7°. Los fondos que se destinen para la realización de los Festivales Regionales, se girará al Teatro popular Melico Salazar-Programa Festival de las Artes, quienes serán los responsables de conformidad con su ley de creación de la realización y coordinación de los Festivales.

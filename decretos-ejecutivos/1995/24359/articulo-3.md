@@ -1,0 +1,1 @@
+Artículo 3°- El Festival se llevará a cabo en cada región, según las fechas que señale el Teatro Popular Melico Salazar-Oficina del Festival de las Artes en coordinación con la Dirección General de Cultura del Ministerio de Cultura, Juventud y Deportes.
