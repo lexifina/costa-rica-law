@@ -1,0 +1,1 @@
+2º—Comisionar y autorizar a la Procuraduría General de la República a efecto de que proceda a desplegar todas las acciones necesarias a fin de desistir el proceso judicial de expropiación y justiprecio relativo al caso dejado sin efecto.

@@ -1,0 +1,1 @@
+3º—El Ministerio de Obras Públicas y Transportes colaborará, en todo lo posible con la Procuraduría General de la República, a efecto de que esta última lleve adelante los cometidos determinados por este medio.
