@@ -1,0 +1,8 @@
+Artículo 5°—De la organización y funcionamiento.
+a) Cuando corresponda a las Comisiones Técnicas atender más de 50 códigos o artículos y realizar en promedio más de 10 concursos por año, ésta deberá definir funciones especificas a algunos o todos sus integrantes. Se designará un responsable de la función de especificación técnica, otro de control de calidad, de la depuración de inventarios y de alguna otra que se considere viable.
+Las decisiones relativas a la evaluación y recomendación de ofertas, serán tomadas por las comisiones técnicas en pleno, cuya fundamentación y firma de todos los participantes quedaran constando en el documento,
+b) Los Grupos Técnicos con más de 30 concursos por año –en promedio- deberán definir un día fijo para reuniones, las que se efectuarán con la periodicidad que éste defina, de tal manera que el personal de los diferentes departamentos de la Dirección de Recursos Materiales pueda consultar dudas.
+c) La Gerencia respectiva nombrará un coordinador de cada Grupo, quién convocará a la primera reunión, en la que se nombrará un secretario y subcoordinador; se fijarán el día, hora y lugar de sesiones.
+d) Las Comisiones Técnicas deberán contar con una agenda de trabajo en cada reunión, la cual será remitida a la Dirección de Recursos Materiales, incluyéndose las decisiones pendientes referentes al trabajo de todos sus departamentos.
+e) De cada sesión, se levantará un acta sobre todo acordado, la que deberá ser firmada por el coordinador y subcordinador.
+f) En el caso de las Comisiones de la Gerencia de División Médica, la Subgerencia Médica de Enlace Institucional realizará una evaluación del trabajo realizado por estas Comisiones, en forma trimestral ó semestral. Las demás serán evaluadas por la Gerencia respectiva.

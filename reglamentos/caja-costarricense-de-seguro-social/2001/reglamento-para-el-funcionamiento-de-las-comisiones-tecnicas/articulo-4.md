@@ -1,0 +1,5 @@
+Articulo 4°—Conformación de las comisiones técnicas.
+A) El número de miembros que integrará cada Comisión dependerá de la complejidad y cantidad de códigos a atender, trámites de compra realizados y dispersión geográfica de sus productos. En todo caso no deberá tener menos de tres miembros. Respetando el quorum de mitad más uno en las sesiones.
+B) Los miembros serán nombrados por Junta Directiva ante la recomendación de la Gerencia respectiva, por períodos de dos afios y podrán ser renovados sus nombramientos, por recomendación de la Gerencia de División respectiva.
+C) Cada Comisión Técnica contará entre sus miembros con un representante regional, cuando como mínimo el 40% de los usuarios de los productos a su cargo se encuentran en zonas rurales (fuera del Gran Área Metropolitana). La dependencia técnica responsable de coordinar el trabajo de las Comisiones Técnicas, deberá definir para cada especialidad los requisitos de las personas que conformarán los mismos.
+Las sesiones de trabajo para emitir las recomendaciones, se efectuarán en estricto apego al quorum reglamentario, es decir, la mitad más uno.
