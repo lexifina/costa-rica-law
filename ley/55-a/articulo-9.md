@@ -1,21 +1,32 @@
-ARTICULO IX. STATUS, INMUNIDADES Y PRIVILEGIOS
-1. Fines de este artículo.- Con objeto de capacitar al Fondo para desempeñar las funciones que se le confían, se le otorgará, en los territorios de los países asociados, el status, las inmunidades y los privilegios que se mencionan en este artículo.
-2. Status del Fondo.- El Fondo tendrá plena personalidad jurídica y, en particular, capacidad para:
-I) hacer contratos;
-II) adquirir y disponer de bienes muebles e inmuebles;
-III) promover juicios.
-3. Inmunidad respecto de proceso judicial.- El Fondo, sus bienes y su activo, cualquiera que sea su ubicación y cualquiera que sea la persona física o moral en cuyo poder se encuentren, gozarán de inmunidad respecto de toda forma de proceso judicial salvo en la medida en que el Fondo renuncie expresamente a ella para los efectos de un juicio o según los términos de un contrato.
-4. Inmunidad respecto de otros actos judiciales.- La propiedad y el activo del Fondo, cualquiera que sea su ubicación y cualquiera que sea la persona física o moral en cuyo poder se encuentren, gozarán de inmunidad respecto de restricción, requisa, confiscación, expropiación o cualquier otra forma de secuestro por actos ejecutivos o legislativos.
-5. Inmunidad de los archivos.- Los archivos del Fondo serán inviolables.
-6. Prohibición de restricciones impuestas al activo.- En la medida necesaria para llevar a cabo las operaciones que prevé este Convenio, la propiedad y activo del Fondo estarán exentos de restricciones, regulaciones, medidas de control y moratoria de cualquier especie.
-7. Privilegio para las comunicaciones.- Los países asociados concederán a las comunicaciones oficiales del Fondo el mismo tratamiento que a las comunicaciones oficiales de los demás asociados.
-8. Inmunidades y privilegios de funcionarios y empleados.- Los gobernadores, directores ejecutivos, suplentes, funcionarios y empleados del Fondo,
-I) gozarán de inmunidad respecto de proceso judicial relativo a actos realizados por ellos en su capacidad oficial, salvo cuando el Fondo renuncie a ella;
-II) cuando no sean nacionales del país asociado, gozarán de las mismas inmunidades respecto de requisitos de inmigración, requisitos de registro de extranjeros y obligaciones de servicio militar, y gozarán de las mismas facilidades respecto de restricciones cambiarias que otorguen los asociados a los representantes, funcionarios y empleados del mismo rango de otros países asociados;
-III) gozarán del mismo tratamiento respecto de facilidades de viaje que los asociados otorguen a los representantes, funcionarios y empleados del mismo rango de otros países asociados.
-9. Inmunidades respecto de impuestos.-a) El Fondo, su activo, su propiedad, sus ingresos y sus operaciones autorizadas por este Convenio, gozarán de inmunidad respecto de toda clase de impuestos y de derechos de aduana. El Fondo gozará asimismo de inmunidad respecto de la responsabilidad por el cobro o el pago de cualquier impuesto o derecho.
-b) No se impondrá impuesto alguno sobre sueldos y emolumentos que el Fondo pague a sus directores ejecutivos, suplentes, funcionarios o empleados que no sean ciudadanos, súbditos o nacionales del país.
-c) No se impondrá impuesto de ninguna clase sobre obligaciones o títulos que el Fondo emita, incluído cualquier dividendo o interés sobre los mismos, cualquiera que sea la persona física o moral en cuyo poder se encuentren,
-I) que discrimine en contra de dicha obligación o título con base única en el origen del mismo; o
-II) si la única base jurisdiccional de dicho impuesto es el lugar o la moneda en que se hayan emitido, sean pagaderos o se paguen, o la ubicación de cualquier oficina o sitio de operaciones que mantenga el Fondo.
-10. Aplicación de este artículo.- Los asociados tomarán las medidas necesarias en su territorio para dar efecto, de acuerdo con sus propias leyes, a los principios establecidos en este artículo e informarán al Fondo detalladamente sobre ellas.
+ARTICULO IX
+Personalidad Jurídica, Inmunidades y Privilegios
+Sección 1.- Objetivos de este artículo
+A fin de que el Fondo pueda cumplir las funciones que le han sido confiadas, le serán otorgados en los territorios de cada país miembro la personalidad jurídica, las inmunidades y los privilegios que este artículo prescribe.
+Sección 2.- Personalidad Jurídica del Fondo.
+El Fondo tendrá plena personalidad jurídica y, en particular capacidad para:
+i) Contratar;
+ii) Adquirir bienes inmuebles y muebles y disponer de los mismos;
+iii) Entablar procedimientos legales.
+Sección 3.- Inmunidad en cuanto a procedimientos judiciales
+El Fondo, sus bienes y su activo, dondequiera que se hallen situados y quienquiera que los tenga en su poder, gozarán de inmunidad en cuanto a toda clase de procedimientos judiciales excepto en la medida en que el Fondo renuncie expresamente a esa inmunidad a los efectos de cualquier procedimiento o en virtud de los términos de cualquier contrato.
+Sección 4.- Inmunidad en cuanto a actos del poder ejecutivo o del legislativo
+Los bienes y el activo del Fondo, dondequiera que se hallen situados y quienquiera que los tenga en su poder, serán inmunes a registro, requisa, confiscación, expropiación o cualquier otra forma de incautación por actos del poder ejecutivo o del legislativo.
+Sección 5.- Inviolabilidad de los archivos
+Los archivos del Fondo serán inviolables.
+Sección 6.- Exenciones de restricciones sobre el activo
+Hasta donde sea necesario para llevar a cabo las actividades previstas en este Convenio, todo los bienes y el activo del Fondo estarán libres de restricciones, regulaciones, medidas de control y moratorias de cualquier naturaleza.
+Sección 7.- Privilegio en cuanto a comunicaciones
+Los países miembros otorgarán a las comunicaciones oficiales del Fondo el mismo tratamiento que a las comunicaciones oficiales de otros países miembros.
+Sección 8.- Inmunidades y privilegios de funcionarios y empleados
+Los gobernadores y directores ejecutivos titulares y suplentes, los miembros de comités, los representantes nombrados conforme a la Sección 3 j) del artículo XII, los asesores de todos los anteriores y los funcionarios y empleados del Fondo:
+i) Gozarán de inmunidad en cuanto a los procedimientos judiciales en relación con los actos realizados por ellos en el desempeño de sus funciones oficiales, excepto cuando el Fondo renuncie a esta inmunidad;
+ii) Disfrutarán de las mismas inmunidades en cuanto a restricciones de inmigración, requisitos de registro de extranjeros y obligaciones respecto al servicio nacional, y de las mismas facilidades respecto a las restricciones cambiarias que otorguen los países miembros a los representantes, funcionarios y empleados de categoría similar de otros países miembros, siempre que no sean nacionales del país miembro que las conceda, y
+iii) Disfrutarán del mismo tratamiento respecto a facilidades de viaje que el que otorguen los países miembros a representantes, funcionarios y empleados de categoría similar de otros países miembros.
+Sección 9.- Inmunidad tributaria
+a) El Fondo, su activo, sus bienes, sus ingresos y sus operaciones y transacciones autorizadas por este Convenio estarán exentos de todo impuesto y de todo derecho aduanero. El Fondo también estará exento de responsabilidad por la recaudación o el pago de cualquier impuesto o tributo.
+b) No se impondrá impuesto alguno sobre los sueldos y emolumentos, o en relación con los mismos, que el Fondo pague en un país miembro a sus directores ejecutivos, suplentes, funcionarios o empleados que no sean ciudadanos, súbditos o nacionales de dicho país.
+c) No se impondrá impuesto de ninguna clase sobre las obligaciones o títulos que el Fondo emita, ni sobre los dividendos o intereses que los mismos devenguen, quienquiera que sea el tenedor;
+i) Si el impuesto constituye una discriminación contra dicha obligación o título únicamente por razón de su origen, o
+ii) Si la única base jurisdiccional de tal impuesto es el lugar o la moneda en que se haya emitido, sean pagaderos o hayan sido pagados, o la ubicación de cualquier oficina o dependencia que el Fondo mantenga.
+Sección 10.- Aplicación de este artículo
+Los países miembros adoptarán dentro de sus propios territorios las medidas necesarias para poner en práctica, en términos de sus propias leyes, los principios establecidos en este artículo, e informarán al Fondo acerca de las medidas específicas que sobre el particular hayan adoptado.
