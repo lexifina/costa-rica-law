@@ -1,2 +1,0 @@
-IX
-Los billetes del Banco Internacional de Costa Rica serán admitidos en todas las oficinas fiscales de la República, con poder liberatorio igual a los demás billetes actualmente en circulación, y su conversión principiará después de trascurrido un año a contar del día en que se firme la paz europea, o antes si así lo dispusiere el Poder Ejecutivo. En esa fecha reglamentará dicho Poder la forma en que deba hacerse la conversión.

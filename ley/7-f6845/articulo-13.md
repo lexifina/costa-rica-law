@@ -1,1 +1,0 @@
-Artículo 13.—El tipo de interés de los préstamos será el mismo de los bonos que se entregan al interesado y será fijado periódicamente por el Consejo, consultando el estado del mercado de dinero, para que el precio en que se puedan negociar no se aparte demasiado del valor nominal.

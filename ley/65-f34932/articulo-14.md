@@ -1,2 +1,0 @@
-Artículo 14.—El capital y los intereses se pagarán en cuotas fijas por mensualidades que representen el uno por ciento sobre el monto total del capital invertido hasta extinguir la obligación en catorce años.
-Durante todo el tiempo que el Banco permita usar del crédito concedido en cuotas parciales, a medida que avancen los trabajos, objeto del préstamo, el deudor pagará intereses únicamente sobre los saldos respectivos.

@@ -1,4 +1,0 @@
-IV
-Las solicitudes de particulares se sujetarán al siguiente trámite: el interesado presentará su petición por escrito, señalando en primer término las razones que tiene para calificar de urgente el préstamo y las dificultades en que lo ha colocado el conflicto europeo, indicando luego la suma que necesita, las condiciones del préstamo y las garantías que ofrece. — La Directiva del Banco, después de considerar que el caso es de los previstos por el presente Decreto, examinará cuidadosamente las garantías ofrecidas y recomendará la operación, si ésta presenta absoluta seguridad.
-Tratándose de préstamos pequeños, la calificación de su bondad puede hacerla el Director solamente. — La Directiva determinará qué debe entenderse por préstamos pequeños para ese efecto.
-(Así reformado por ley N° 25 del 21 de noviembre de 1914)

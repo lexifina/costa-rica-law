@@ -1,1 +1,0 @@
-Artículo 15.—El pago de las cuotas semestrales estipuladas en el contrato de cada préstamo, y compuestas del interés, amortización y comisión, se hará por los deudores en moneda corriente en las oficinas del Banco en las fechas convenidas.

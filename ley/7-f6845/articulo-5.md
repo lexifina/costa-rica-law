@@ -1,1 +1,0 @@
-Artículo 5°.—El Director del Banco y el Sub-Jefe de la Sección Hipotecaria examinarán la solicitud y la harán examinar en la parte que le corresponda, por el abogado de la Institución, y, si el negocio propuesto llena las condiciones legales y reglamentarias, la someterán al Consejo del Banco para que éste resuelva su aprobación o denegación.
