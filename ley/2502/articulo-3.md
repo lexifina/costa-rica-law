@@ -1,0 +1,1 @@
+Artículo 3º.- La Junta Directiva del Banco Central de Costa Rica, designará a las personas que habrán de desempeñar los cargos de Gobernador Propietario y Gobernador Suplente, en representación de Costa Rica, en el Banco Interamericano de Desarrollo.

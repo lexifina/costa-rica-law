@@ -1,0 +1,1 @@
+Artículo 9º.- El Banco Central de Costa Rica tendrá derecho a requerir de las entidades oficiales o privadas con domicilio en el territorio de la República, los datos e informaciones necesarios para sus negociaciones con el Banco Interamericano de Desarrollo.

@@ -1,0 +1,1 @@
+Artículo 7º.- Las garantías requeridas por el Banco Interamericano de Desarrollo para el pago de préstamos, sus intereses y otros cargos, podrán ser otorgadas por el Gobierno de la República o por el Banco Central de Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 8º.- El Banco Central de Costa Rica deberá velar para que se cumplan en el país las obligaciones asumidas con el Banco Interamericano de Desarrollo y tomará al efecto, todas las medidas que le correspondan dentro de su esfera legal de acción.
