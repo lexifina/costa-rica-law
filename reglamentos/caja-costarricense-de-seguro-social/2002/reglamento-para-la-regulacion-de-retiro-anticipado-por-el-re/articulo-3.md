@@ -1,0 +1,1 @@
+Artículo III.—Del retiro anticipado. Se entiende por anticipación de la edad de retiro del Régimen de Invalidez, Vejez y Muerte, la opción que el afiliado tiene de retirarse por vejez a una edad de 57 o más años, pero menor a las establecidas en el artículo 5° del Reglamento de este Régimen, siempre que se cumplan los demás requisitos contenidos en el presente reglamento.

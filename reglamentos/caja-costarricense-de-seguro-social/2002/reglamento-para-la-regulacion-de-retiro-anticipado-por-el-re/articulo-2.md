@@ -1,0 +1,1 @@
+Artículo II.—Objetivo. El presente Reglamento regula lo concerniente a las condiciones y procedimientos que deben observarse en el caso de retiro anticipado del Régimen de Invalidez, Vejez y Muerte, según mandato expreso contenido en el artículo 26 de la Ley de Protección al Trabajador.

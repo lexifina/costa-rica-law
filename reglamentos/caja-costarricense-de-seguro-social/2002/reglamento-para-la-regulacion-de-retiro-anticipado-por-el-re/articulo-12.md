@@ -1,0 +1,2 @@
+Artículo XII.—Ejecución y resolución de conflictos u omisiones. La Dirección Administración de Pensiones deberá diseñar y poner en marcha los procedimientos necesarios para cumplir con lo dispuesto en este Reglamento.
+En casos de conflicto o de omisión, se aplicará lo que indique el Reglamento del Seguro de Invalidez, Vejez y Muerte y supletoriamente, lo que señale la Ley de Protección al Trabajador.

@@ -1,0 +1,1 @@
+Artículo VI.—De las revalorizaciones. Los montos de pensión se revalorizarán de conformidad con los porcentajes que acuerde la Junta Directiva para todas las pensiones del Seguro de Invalidez, Vejez y Muerte.

@@ -1,0 +1,1 @@
+Artículo V.—Fórmula de cálculo de la pensión para el anticipo. El monto de la pensión del asegurado que anticipe el retiro, se calculará utilizando la fórmula vigente en el Reglamento del Seguro de Invalidez, Vejez y Muerte. Esta incluye el derecho al pago del treceavo mes.
