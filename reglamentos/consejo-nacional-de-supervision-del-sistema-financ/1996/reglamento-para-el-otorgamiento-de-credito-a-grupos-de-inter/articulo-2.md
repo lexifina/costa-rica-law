@@ -7,6 +7,6 @@ Entre otras operaciones, pero no limitadas a éstas, deberán considerarse como 
 Quedan excluidos de esta definición los títulos valores emitidos por entidades del Sector Público.
 c) Grupo no Vinculado a una Entidad Financiera: Grupo de interés económico conformado por personas físicas o jurídicas que no mantienen relación por propiedad o gestión con la entidad financiera.
 d) Grupo Vinculado a una Entidad Financiera: Grupo de interés económico en que una o varias de las personas físicas o jurídicas que lo conforman, mantienen relaciones por propiedad o gestión con la entidad financiera.
-e) Propiedad: Concepto que alude al poder de control e interdependencia de derecho o de hecho resultante de determinados vínculos económicos entre la entidad financiera y un grupo de interés económico en forma conjunta o en forma individual con cada uno de sus integrantes.
-f) Gestión: Se refiere a los nexos de responsabilidad (de dirección común) que se establecen entre una entidad financiera y un grupo de interés económico en forma conjunta o en forma individual con cada uno de sus integrantes.
-g) Representante Legal: Aquel que ejerce la representación judicial y extrajudicial de la persona jurídica con facultades de apoderado general o generalísimo, con o sin limitación de suma.
+e) Gestión: Se refiere a los nexos de responsabilidad (de dirección común) que se establecen entre una entidad financiera y un grupo de interés económico en forma conjunta o en forma individual con cada uno de sus integrantes.
+f) Representante Legal: Aquel que ejerce la representación judicial y extrajudicial de la persona jurídica con facultades de apoderado general o generalísimo, con o sin limitación de suma.
+(Así eliminado el literal e) por acuerdo tomado en Sesión N° 142 de 29 de febrero del 2000, y se varía el orden de los literales)
