@@ -1,0 +1,1 @@
+Artículo 15.—Autoridades competentes. Las autoridades competentes, en el momento de verificar los requisitos para otorgar permisos de funcionamiento, realización de actividades, ejercicio del comercio, patentes, aprobación de planos o diseños y otros de similar naturaleza, revisarán si el administrado cumple lo dispuesto en el artículo anterior.

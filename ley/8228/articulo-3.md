@@ -1,0 +1,1 @@
+Artículo 3º—Declaratoria de interés público. Decláranse de interés público las actividades públicas o privadas que busquen prevenir, capacitar, planificar la atención y entrenar a las personas, sobre las situaciones específicas de emergencia.

@@ -1,0 +1,2 @@
+Artículo 7º—Organización. El Cuerpo de Bomberos contará con las dependencias operativas, técnicas y administrativas necesarias para el fiel cumplimiento de sus cometidos públicos, de acuerdo con la organización administrativa que determine el INS.
+El INS deberá vigilar que el Cuerpo de Bomberos cuente con los funcionarios necesarios para cumplir los objetivos propios de su gestión; además, queda autorizado para crear puestos y habilitar las plazas vacantes.
