@@ -13,3 +13,4 @@ Crea Distrito de Salitrillos Sétimo del Cantón de Aserrí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-15 | la propia norma |
+| 2 | 1999-06-15 | SINALEVI (sin norma nombrada) |
