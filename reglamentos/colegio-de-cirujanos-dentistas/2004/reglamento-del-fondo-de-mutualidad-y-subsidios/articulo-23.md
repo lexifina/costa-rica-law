@@ -1,0 +1,1 @@
+Artículo 23.—La junta directiva deberá incluir en su informe anual a la asamblea general ordinaria del colegio, un resumen sobre la situación financiero-actuarial del fondo, acompañado de los respectivos reportes financiero-contables pertinentes, debidamente avalados por una auditoria externa.

@@ -1,0 +1,1 @@
+Artículo 6º—La junta directiva tiene la obligación de contratar la debida auditoria externa del fondo, lo mismo que las evaluaciones actuariales anuales, de acuerdo con lo que establece el artículo 24 de este Reglamento.

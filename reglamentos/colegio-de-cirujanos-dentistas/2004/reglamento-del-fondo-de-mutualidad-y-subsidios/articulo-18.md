@@ -1,0 +1,2 @@
+Artículo 18.—El miembro que incurra en atrasos de más de dos meses podrá perder sus derechos como tal, sin responsabilidad alguna para el Fondo y el Colegio. En este caso, la Junta Directiva actuará conforme se indica en el artículo 35 de la Ley Orgánica del Colegio.
+En caso de suspensión del colegiado y revocatoria de la misma, el interesado deberá pagar las cuotas adeudadas con intereses del 2% mensual, cifra que podrá ser modificada de acuerdo con el último estudio actuarial y previa aprobación de la junta directiva.

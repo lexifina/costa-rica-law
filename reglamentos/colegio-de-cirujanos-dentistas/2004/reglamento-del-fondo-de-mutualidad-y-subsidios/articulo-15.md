@@ -1,0 +1,1 @@
+Artículo 15.—La junta directiva tiene la obligación de girar al fondo la suma especificada en el artículo anterior de la cuota de colegiatura recaudada. Esto deberá hacerse en los primeros cinco días hábiles del mes siguiente a la recaudación.

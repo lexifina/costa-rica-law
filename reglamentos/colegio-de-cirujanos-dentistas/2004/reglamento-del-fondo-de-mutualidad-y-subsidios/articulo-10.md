@@ -1,0 +1,3 @@
+Artículo 10.—Requisitos para acceder a beneficios en caso de muerte. Todo colegiado activo deberá nombrar un beneficiario para el caso de fallecimiento antes de los 65 años de edad, el cual debe estar debidamente anotado en los formularios especiales que para tal efecto suministra el colegio.
+Si el miembro que fallece antes de los 65 años de edad, hubiera omitido hacer dicho nombramiento o el beneficiario hubiere fallecido, el pago correspondiente se hará a los herederos legales o testamentarios.
+El plazo para realizar el reclamo del beneficio por muerte, prescribe un año después de la fecha en que se produjo el fallecimiento del colegiado.

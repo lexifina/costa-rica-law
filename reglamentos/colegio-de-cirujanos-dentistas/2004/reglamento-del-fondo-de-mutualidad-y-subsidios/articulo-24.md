@@ -1,0 +1,1 @@
+Artículo 24.—La junta directiva del colegio queda facultada para contratar anualmente los servicios profesionales externos necesarios para el debido planeamiento y control técnico-actuarial del fondo.

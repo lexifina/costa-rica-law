@@ -1,0 +1,2 @@
+Artículo 16.—El pago de la cuota de colegiatura mensual es obligatorio conforme a la Ley Orgánica para todos lo miembros del Colegio. Cuando un colegiado activo alcance los 65 años de edad, estará exento del pago de las contribuciones al Fondo de Mutualidad y Subsidios.
+En caso de atrasos, se aplicará lo que dispone el artículo 35 de la Ley Orgánica del Colegio de Cirujanos Dentistas de Costa Rica.

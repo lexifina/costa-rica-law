@@ -1,0 +1,1 @@
+Artículo 29.—El presente reglamento deroga el anterior aprobado en asamblea general del colegio el 17 de octubre de 1998, reformado el 15 de mayo del 2003, sin perjuicio de los derechos adquiridos con base en este último y rige a partir de su publicación en el diario Oficial La Gaceta.

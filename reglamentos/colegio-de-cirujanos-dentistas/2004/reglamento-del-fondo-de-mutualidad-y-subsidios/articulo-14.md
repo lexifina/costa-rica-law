@@ -1,0 +1,1 @@
+Artículo 14.—De la cuota de colegiatura se destinará al fondo de Mutualidad y Subsidios, el monto que defina la asamblea general, siempre que no sea inferior al 10% indicado en el artículo 11 de este Reglamento.
