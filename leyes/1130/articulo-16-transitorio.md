@@ -1,2 +1,0 @@
-Sustitución de Nombres
-Artículo 16.—Para los efectos legales correspondientes, en toda clase de leyes, contratos, actos u operaciones, deberá tenerse por sustituidos los nombres de "Departamento Emisor del Banco Nacional de Costa Rica", "Junta de Control de Exportación de Productos" y "Superintendencia de Bancos" por el de Central de Costa Rica"; y el de "Consejo Directivo del Departamento Emisor" v "Consejo Emisor" por el de "Junta Directiva del Banco Central de Costa Rica."

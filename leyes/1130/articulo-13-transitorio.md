@@ -1,2 +1,0 @@
-Traslado de Empleados del Banco Nacional al Banco Central
-Artículo 13.—Se procurará, hasta donde fuere ello posible y compatible con la organización y buen servicio del Banco, que pasen a ser servidores de esa Institución, los actuales empleados del Departamento Emisor y los de otras secciones que tengan relaciones directas con el mismo, los de la Administración General de Rentas y los antiguos empleados de la Superintendencia de Bancos y de la Junta de Control de Exportación de Productos.

@@ -1,2 +1,0 @@
-Reglamentación General de las Regulaciones de Crédito
-Artículo 9°—Igualmente será atribución del Banco Central el reglamentar; de modo general y uniforme las normas y regulaciones a que los bancos nacionales deberán ajustarse en la concesión del crédito, con el propósito de conciliar los deberes de servicio social que deben cumplir en beneficio de la comunidad con la necesidad de asegurar su liquidez y solvencia.
