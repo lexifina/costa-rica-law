@@ -14,3 +14,4 @@ Reglamento de Control Uso y Mantenimiento de Vehículos Oficiales del Consejo de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-07-26 | la propia norma |
+| 2 | 2000-07-26 | Ley 8 |
