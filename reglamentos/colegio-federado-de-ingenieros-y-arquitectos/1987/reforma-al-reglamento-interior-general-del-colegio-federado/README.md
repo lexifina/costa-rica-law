@@ -14,3 +14,4 @@ Reforma al Reglamento Interior General del Colegio Federado de Ingenieros y Arqu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-09-24 | la propia norma |
+| 2 | 1987-09-24 | Ley 8 |
