@@ -1,0 +1,1 @@
+Transitorio Quinto.- A juicio de la Junta Directiva se podrá financiar, con garantía fiduciaria como mínimo, los gastos a los funcionarios que a la fecha de entrada en vigencia de este Reglamento tengan, por concepto de créditos concedidos por el FODEAP, escrituras pendientes de inscribir en el Registro Nacional de la Propiedad.

@@ -1,0 +1,16 @@
+# Reglamento (1998-02-11)
+
+Reglamento de Organización y Funcionamiento del Fondo de Ahorro y Préstamo (El Instituto de Fomento y Asesoría Municipal publicó en La Gaceta N° 141 del 23 de julio del 2007, un nuevo Reglamento de Organización y Funcionamiento del Fondo de Ahorro ...)
+
+- Tipo: Reglamento
+- Número: 2765
+- Fecha: 1998-02-11
+- Ente emisor: Instituto de Fomento y Asesoría Municipal
+- Publicación: La Gaceta N° 73 del 1998-04-16
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=42974&param2=45295&param3=1 (ficha 42974)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1998-04-16 | la propia norma |

@@ -1,0 +1,1 @@
+Transitorio Primero.- La Junta Directiva designará interinamente a todos los miembros de la Comisión por un plazo máximo de seis meses, una vez entre en vigencia este Reglamenta, entretanto se efectúa la primera Asamblea del FODEAP para proponer la terna respectiva. Esta Asamblea podrá ser convocada a nivel institucional para dar a conocer la nueva estructura del Fondo.

@@ -1,0 +1,1 @@
+Artículo 4°- El FODEAP estará administrado por una Comisión de Administración, que incluirá un contador con funciones administrativas suministrado por el IFAM, quien deberá asistir a sesiones de la Comisión Administrativa con derecho a voz y sin voto.
