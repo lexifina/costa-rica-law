@@ -14,3 +14,4 @@ Establece emergencia nacional la construcción, terminación reconstrucción o r
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-09-20 | la propia norma |
+| 2 | 1991-04-18 | Decreto Ejecutivo 20385 (1991-04-18) |
