@@ -1,0 +1,2 @@
+Artículo 12.-Toda solicitud de pensión que se formule de conformidad con esta ley será dirigida a la Secretaría de Hacienda, acompañada con la correspondiente información de pobreza y los documentos justificativos del parentesco y de la edad levantada ante la Junta Consultiva de Pensiones a que se refiere la Ley General de Pensiones de 1935.
+El Poder Ejecutivo acordará o no la pensión por acuerdo que se publicará en el Diario Oficial.

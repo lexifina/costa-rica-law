@@ -1,0 +1,2 @@
+Artículo 11.-La pensión concedida a la viuda y a los hijos se distribuirá por mitades entre aquélla y éstos, y caso de pasar la viuda a nuevas nupcias, se girará únicamente la mitad que corresponde a los hijos.
+No tendrá derecho a pensión, no obstante lo dicho en el artículo primero, la esposa del Director o músico que al fallecimiento de éste estuviere separada de hecho o de derecho de su marido por causas no imputables a éste, en cuyo caso sólo se girará la mitad que corresponde a los huérfanos.
