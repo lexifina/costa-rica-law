@@ -14,3 +14,4 @@ Reglamento Fondo de Garantías y Jubilaciones del Banco Nacional de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-04-24 | la propia norma |
+| 2 | 2005-03-31 | Reglamento 0 (2005-03-31) |
