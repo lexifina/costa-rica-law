@@ -1,0 +1,5 @@
+INSTITUTO DE FOMENTO Y ASESORÍA MUNICIPAL
+La Junta Directiva del Instituto de Fomento y Asesoría Municipal IFAM; comunica para los efectos pertinentes el acuerdo primero, artículo tres de la sesión extraordinaria N° 2579, celebrada por la Junta Directiva a las 13.31) horas del día 12 de marzo en curso, mediante el cual se resolvió reformar el artículo 107 del Reglamento Autónomo de Organización y Servicio del IFAM con el siguiente texto:
+(Corregido mediante Fe de Erratas publicada en La Gaceta N° 96 del 21 de mayo de 1996).
+“El Director Ejecutivo podrá otorgar permiso hasta por un plazo de 6 meses: más de 6 meses y hasta 1 año el Presidente Ejecutivo. Todo permiso será sin goce de sueldo y deberá oírse previamente el criterio de la Dirección al que pertenece el funcionario. Habrá alzada de la decisión del Director Ejecutivo y del Presidente Ejecutivo ante la Junta Directiva. Se podrá solicitar prórroga por una vez la cual será resuelta por la Junta Directiva y ésta no podrá ser mayor de 1 año calendario sumado el permiso original a la prórroga, salvo casos muy calificados a criterio de la misma".
+Moravia. 20 de marzo de 1996.
