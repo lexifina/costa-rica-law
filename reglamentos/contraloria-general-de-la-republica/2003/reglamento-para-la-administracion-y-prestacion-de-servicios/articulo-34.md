@@ -1,0 +1,1 @@
+Artículo 34.—Con ocasión de un accidente, será igualmente responsable el funcionario que sin justa causa y la debida autorización, permitió a otra persona conducir el vehículo que se le asignó, según lo dispone el artículo 238 de la Ley de Tránsito vigente.

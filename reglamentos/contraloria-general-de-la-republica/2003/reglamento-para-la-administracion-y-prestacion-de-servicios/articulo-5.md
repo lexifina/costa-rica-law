@@ -1,0 +1,1 @@
+Artículo 5º—Los vehículos de uso discrecional podrán circular con placa particular y sin estar identificados con el logotipo de la Institución. Cuando no estuvieren en uso, deberán dejarse bajo custodia de la Unidad de Servicios Generales.

@@ -1,0 +1,1 @@
+Artículo 10.—La conducción de los vehículos estará a cargo de los chóferes de la Institución o de otros funcionarios debidamente autorizados por la Unidad de Servicios Generales, con las salvedades propias de los vehículos de uso discrecional señaladas en el artículo 225 de la Ley de Tránsito por Vías Públicas Terrestres.

@@ -1,0 +1,1 @@
+Artículo 31.—En todo caso de accidente de tránsito corresponderá a la División de Asesoría y Gestión Jurídica brindar el apoyo legal suficiente ante las instancias judiciales que correspondan en representación de los intereses de la Contraloría General de la República y ante las cuales tenga la legitimación correspondiente.

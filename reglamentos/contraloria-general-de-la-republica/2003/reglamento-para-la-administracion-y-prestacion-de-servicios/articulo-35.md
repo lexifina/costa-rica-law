@@ -1,0 +1,1 @@
+Artículo 35.—Si en la resolución de la autoridad judicial de tránsito se declara responsable a un tercero, éste deberá indemnizar a la Contraloría General, para lo cual deberán iniciarse los respectivos trámites de cobro.

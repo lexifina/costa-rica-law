@@ -1,0 +1,1 @@
+Artículo 2º—Se consideran vehículos propiedad de la Contraloría todos aquellos que la institución haya adquirido o que le hayan donado y se encuentren inscritos o en trámite de inscripción en el Registro Público de la Propiedad de Vehículos del Registro Nacional.

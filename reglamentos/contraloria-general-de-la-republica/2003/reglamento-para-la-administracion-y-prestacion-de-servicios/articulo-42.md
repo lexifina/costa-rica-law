@@ -1,0 +1,1 @@
+Artículo 42.—La Unidad de Servicios Generales deberá, en un plazo no mayor a seis meses a partir de la vigencia de este Reglamento, elaborar un Manual de Procedimientos para Administración del Servicio de Transportes.

@@ -1,0 +1,1 @@
+Artículo 30.—El Jefe de la Unidad de Servicios Generales procederá a realizar un informe sobre lo acontecido en el accidente de tránsito, el cual será remitido a la Unidad de Recursos Humanos para efecto de determinar las eventuales responsabilidades. Asimismo, deberá iniciar los trámites correspondientes para la reparación del vehículo.

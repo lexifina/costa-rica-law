@@ -1,0 +1,1 @@
+Artículo 8º—Los vehículos estarán bajo el control y responsabilidad de la jefatura de la Unidad de Servicios Generales, con las salvedades propias de los vehículos de uso discrecional señaladas en el artículo 225, párrafo segundo, de la Ley de Tránsito por Vías Públicas Terrestres.
