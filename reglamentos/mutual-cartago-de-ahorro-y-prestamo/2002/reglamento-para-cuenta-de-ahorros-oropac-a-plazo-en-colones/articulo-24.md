@@ -1,0 +1,6 @@
+Artículo 24.—Constitución de la cuenta de ahorros OROPAC colectivo a plazo. La cuenta de ahorros OROPAC colectivo se constituye mediante la aceptación del gestor, en representación del grupo de ahorrantes, de las cláusulas contractuales que contiene este Reglamento, la firma del "Control de Firmas" , de la "Solicitud de Servicios Financieros" y del contrato de ahorro.
+Con la firma del contrato, MUCAP creará en sus registros cuentas individuales para cada uno de los ahorrantes, las cuales se denominaran subcontratos.
+Para que haya representación de un ahorrante por parte del gestor deberá ser autorizado expresamente.
+Cada ahorrante adquiere la condición de asociado de MUCAP cuando tenga derecho por lo menos a un voto en las asambleas generales.
+El ahorrante tendrá derecho a un voto en las asambleas generales de MUCAP, por cada quinientos colones (¢ 500,00) de saldo mínimo que haya tenido en su cuenta de ahorros durante los seis meses anteriores al mes en que se celebre la asamblea, sin poder tener derecho a más de cincuenta votos propios o ejercer la representación de más de cincuenta votos por asamblea, siendo entonces 100 votos la cantidad máxima a que tendrá derecho el ahorrante.
+Las cuentas de ahorros constituidas en MUCAP son de carácter confidencial.

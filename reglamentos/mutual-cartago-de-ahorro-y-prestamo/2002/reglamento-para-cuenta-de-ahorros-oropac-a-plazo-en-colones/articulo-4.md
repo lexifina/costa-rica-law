@@ -1,0 +1,1 @@
+Artículo 4º—Monto mínimo de la apertura. El monto mínimo para la apertura de una cuenta de ahorro OROPAC, será determinado por MUCAP dependiente de la clase de contrato y tipo de plan que se suscriba.

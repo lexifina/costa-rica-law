@@ -1,0 +1,1 @@
+Artículo 27.—Cancelaciones por vencimiento de la cuenta de ahorros OROPAC colectivo. A su vencimiento, MUCAP reintegrará al gestor el saldo acumulado de cada uno de los ahorrantes, que incluye los aportes e intereses capitalizados.

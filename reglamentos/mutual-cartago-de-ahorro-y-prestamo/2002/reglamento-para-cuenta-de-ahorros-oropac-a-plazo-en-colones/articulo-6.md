@@ -1,0 +1,1 @@
+Artículo 6º—Inembargabilidad de saldos en cuenta de ahorro OROPAC. Las cuentas de ahorros OROPAC son inembargables hasta por un monto de seiscientos mil colones (¢ 600.000,00), excepto por obligaciones alimentarias judicialmente impuestas o por cobro de créditos otorgados por MUCAP.

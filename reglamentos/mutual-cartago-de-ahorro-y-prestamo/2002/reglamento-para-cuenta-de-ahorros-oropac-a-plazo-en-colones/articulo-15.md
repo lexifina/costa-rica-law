@@ -1,0 +1,4 @@
+Artículo 15.—El registro de las transacciones en la cuenta de ahorros OROPAC individual. En la libreta de ahorros se indicará el saldo y se registrarán todas las transacciones de depósitos, créditos, acreditación de intereses y débitos únicamente mediante los sistemas informáticos realizados por funcionarios autorizados de la Institución, en las oficinas o agencias de MUCAP.
+La información contable se actualizará cada vez que se realice una transacción en la libreta de ahorros, o que se solicite su actualización presentando la libreta de ahorros.
+Cuando se presenten diferencias entre el saldo impreso en la libreta de ahorros y los registros de MUCAP, privará la información contable indicada en estos últimos, salvo que el ahorrante probare fehacientemente mediante documentos, en el plazo perentorio de un mes, la razón de la diferencia una vez detectada.
+La libreta de ahorros OROPAC individual es un título probatorio del contrato de ahorros.
