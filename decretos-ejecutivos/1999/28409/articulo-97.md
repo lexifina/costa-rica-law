@@ -1,0 +1,1 @@
+Artículo 97.—El Departamento de Recursos Humanos elaborará e impulsará programas de salud ocupacional que cubran a todas las dependencias del Ministerio, de conformidad con el artículo 288 de la Ley sobre Riesgos del Trabajo No 6727 de 24 de marzo de 1982 y sus reformas.

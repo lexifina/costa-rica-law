@@ -1,0 +1,1 @@
+Artículo 74.—El Ministerio deberá proporcionar las facilidades necesarias, con el fin de que todos los trabajadores (as), sin discriminación alguna, puedan capacitarse y superarse en el empleo, en razón del trabajo que realizan.

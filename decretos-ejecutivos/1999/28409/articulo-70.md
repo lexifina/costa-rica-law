@@ -1,0 +1,2 @@
+Artículo 70.—Es deber de las unidades administrativas del Ministerio enviar copia al expediente personal de los funcionarios (as), de aquellas gestiones que dentro de su ámbito de competencia, puedan generar actos jurídicos-administrativos.
+La información y continuidad en el prontuario, así como en el expediente personal, es de carácter confidencial y solo tendrán acceso a ella los funcionarios (as) del Ministerio que lo requieran para labores propias del cargo, el servidor (a) y su representante autorizado (a).

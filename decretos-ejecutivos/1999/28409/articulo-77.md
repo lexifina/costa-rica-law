@@ -1,0 +1,1 @@
+Artículo 77.—Podrán interponer denuncia por hostigamiento sexual las siguientes personas.—funcionarías (os) del MINAE, visitantes de las Áreas de Conservación, familiares de los funcionarios del MINAE, y usuarios de los servicios del Ministerio del Ambiente y Energía.

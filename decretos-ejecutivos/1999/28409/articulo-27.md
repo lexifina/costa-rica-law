@@ -1,0 +1,6 @@
+CAPITULO VII
+De la Jornada y Horario de Trabajo
+Artículo 27—La jornada ordinaria de trabajo de los servidores (as) se desarrollará de lunes a viernes, en jornada continua desde las 8,00 hasta las 16,00 horas. Los funcionarios (as) tendrán derecho a un descanso máximo de cuarenta y cinco minutos comprendidos entre las 11,30 y las 13,00 horas y a diez minutos por la mañana y diez minutos por la tarde. El disfrute de este derecho, será organizado por los (las) responsables de cada unidad administrativa, programa o equipo de trabajo, a fin de preservar los principios de continuidad y eficiencia del servicio público.
+La jornada y el horario de trabajo de los (las) misceláneos, guardas, choferes y cualquier otro puesto que lo justifique, será regulado por el (la) jerarca de la dependencia respectiva.
+En las actividades de trabajo en donde esté presente la jornada acumulativa los servidores (as) estarán obligados a prestar sus servicios en cualquier momento que la jefatura los demande, siempre y cuando se encuentren con rol asignado.
+El Ministerio podrá modificar los horarios establecidos siempre que existan circunstancias especiales que así lo exijan y no se cause perjuicio al servicio público ni a los funcionarios (as).

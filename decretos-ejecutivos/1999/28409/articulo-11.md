@@ -1,0 +1,5 @@
+Articulo 11.—Deber de eficiencia. Todo servidor (a) debe cumplir personal y eficientemente la función que le corresponde en e! Ministerio, en las condiciones de tiempo, forma y lugar que determinen las normas correspondientes, y de acuerdo con las siguientes reglas:
+a) Utilizar el tiempo laboral realizando siempre su mejor esfuerzo, en la forma más creativa y productiva posible, y emplearlo en el desarrollo de las tareas que corresponden al cargo con el esmero, la intensidad y el cuidado apropiados.
+b) Esforzarse por encontrar y utilizar las formas más eficientes de realizar sus fundones, así como para mejorar los sistemas administrativos y de atención de usuarios (as), haciendo llegar sus sugerencias e iniciativas a sus superiores,
+c) Velar por la conservación de los útiles, objetos y además bienes que integran el patrimonio del Estado y que se encuentran asignados a ese funcionarios, así como los de terceros que se pongan bajo su custodia y entregarlos como corresponda.
+d) Hacer uso razonable de los útiles y materiales que se le proporcionen para realizar sus tareas, procurando darle a cada uno el máximo de rendimiento y evitar el desperdicio.

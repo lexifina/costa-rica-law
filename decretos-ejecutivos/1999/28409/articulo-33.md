@@ -1,0 +1,1 @@
+Artículo 33—Corresponderá al (la) responsable de la respectiva dependencia o área, establecer los mecanismos para el control de asistencia. De igual manera estas instancias podrán otorgar, mediante resolución razonada, la exención del registro de marca de asistencia, informando de ello al Departamento de Recursos Humanos.

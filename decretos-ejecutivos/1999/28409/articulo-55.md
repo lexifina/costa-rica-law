@@ -1,0 +1,1 @@
+Artículo 55.—Todo puesto vacante se llenará de conformidad con lo establecido en el Capítulo VI del Estatuto del Servicio Civil, el numeral 20 de su Reglamento y el Reglamento de Concursos Internos del Servicio Civil.

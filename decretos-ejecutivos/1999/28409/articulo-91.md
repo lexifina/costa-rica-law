@@ -1,0 +1,2 @@
+Artículo 91.—En el plazo de quince días hábiles después de la comparencia y evacuada la prueba, el Órgano Director rendirá resolución sobre las conclusiones del trámite administrativo, y recomendará al Despacho de la Ministra (o), la sanción disciplinaria en caso de que se considere probada la falta.
+Contra la resolución que emita el o la Ministra (o) cabrá recurso de revocatoria, y el extraordinario de revisión, dentro del plazo que establece la Ley General de la Administración Pública, el cual estará contando a partir del día siguiente de la notificación de la resolución.

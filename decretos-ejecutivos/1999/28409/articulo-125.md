@@ -1,0 +1,1 @@
+Artículo 125.—Se deroga el actual Reglamento Autónomo de Trabajo del Ministerio del Ambiente y Energía, publicado en “La Gaceta” No 220 del viernes 18 de noviembre de 1988 (Decreto Ejecutivo No 18557-MIRENEM); Decreto Ejecutivo No 25551-MINAE y todas las disposiciones de igual o inferior rango que se le opongan.

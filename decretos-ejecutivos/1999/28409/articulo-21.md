@@ -1,0 +1,1 @@
+Artículo 21.—Deber de denuncia. Es obligación de todo servidor (a) formular la denuncia correspondiente ante la autoridad competente, cuando en el ejercicio de su cargo tenga conocimiento de cualquier irregularidad en perjuicio del Ministerio, del Estado y de los funcionarios (as).

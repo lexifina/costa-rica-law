@@ -1,0 +1,4 @@
+Artículo 81.—En un plazo no mayor a cinco días naturales, después de interpuesta la denuncia, el Despacho de la Ministra (o), procederá a conformar el Órgano Director encargado del trámite respectivo.
+El Órgano Director estará integrado por tres personas.—un abogado (a) del Departamento Legal del Ministerio, un funcionario (a) del Departamento de Recursos Humanos y un funcionario (a) de la Unidad de Enlace de la Oficina de Género y Ambiente.
+Dentro del Órgano Director se eligirá un Presidente (a), y los miembros durarán en sus cargos hasta concluir el procedimiento. Los miembros del Órgano contarán con la autorización correspondiente del Ministro (a) del MINAE para dar prioridad a la recepción, trámite, estudio y resolución de la denuncia de hostigamiento sexual.
+El Órgano podrá disponer del personal técnico y de apoyo que se requiera para resolver adecuadamente las denuncias.

@@ -1,0 +1,1 @@
+Articulo 36.—Los registros de asistencia deben de hacerse con el debido cuidado, de tal manera que no permitan duda alguna. Los registros de asistencia defectuosos, con manchas o confusos, que no se deban a deficiencias del medio en el cual se registran, se tendrán por no hechos,

@@ -1,0 +1,1 @@
+Artículo 50.—El trabajo de los servidores (as) que se encuentran gozando de vacaciones, así como el de aquellos (as) que no asistieren a sus labores por enfermedad o licencia con goce del sueldo, será encomendado al resto del personal sin derecho a remuneración adicional, siempre que fuere compatible con las funciones propias de su cargo.

@@ -1,0 +1,1 @@
+Articulo 12.—Deber de probidad. Todo servidor (a) debe actuar con honradez, en especial cuando haga uso de recursos públicos que le son confiados para el cumplimiento de los fines estatales, o cuando participe en actividades o negocios de la administración que comprometen esos recursos,

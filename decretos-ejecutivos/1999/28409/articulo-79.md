@@ -1,0 +1,1 @@
+Artículo 79.—Las partes en el proceso serán.—la denunciante y el denunciado, ambos tendrán acceso a toda la información que conste en el expediente, también tendrán acceso al expediente sus representantes legales.

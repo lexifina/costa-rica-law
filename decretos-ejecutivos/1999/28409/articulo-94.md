@@ -1,0 +1,2 @@
+Artículo 94.—De conformidad con lo dispuesto en el artículo 75 de la ley No 7476, las sanciones por hostigamiento sexual se aplicarán de conformidad con las reglas de la sana crítica racional. Considerando la gravedad de los hechos, se podrá sancionar de la siguiente forma:
+amonestación escrita, suspensión sin goce de salario hasta por quince días, y despido sin responsabilidad patronal, sin perjuicio de que se acuda a la vía correspondiente cuando las conductas constituyan, también, hechos punibles según lo establecido en el Código Penal.

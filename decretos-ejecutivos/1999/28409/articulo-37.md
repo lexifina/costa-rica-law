@@ -1,0 +1,1 @@
+Articulo 37.—Salvo los casos previstos en este Reglamento, la omisión de registro de asistencia a cualquiera de las horas establecidas, se considerará como ausencia a la respectiva fracción de jornada. Solo en casos muy calificados se justificará la omisión.

@@ -1,0 +1,20 @@
+Articulo 23.—Además de las contempladas en oíros Artículos del présenle Reglamento, los funcionarios (as) que ocupen cargos con autoridad administrativa, técnica o de ambos tipos están obligados a:
+a) Diagnosticar periódicamente en forma objetiva y veraz, las características del desempeño de todos sus colaboradores, tanto en el aspecto técnico como administrativo, y procurar en la medida de sus posibilidades, gestionar la capacitación que requieran para el mejor desempeño de sus labores.
+b) Preparar informes y reportes sobre la marcha de su respectiva unidad, programa o proyecto; y en forma inmediata, sobre cualquier hecho relevante que requiera pronta solución.
+c) Hacer cumplir las normas de disciplina y asistencia de sus colaboradores.
+d) Planificar, orientar y girar a sus colaboradores instrucciones precisas y claras para que las actividades y procesos asignados se desarrollen conforme a las normas de eficiencia y calidad deseadas.
+e) Dictar las disposiciones administrativas y disciplinarias necesarias en beneficio de la buena marcha de la unidad, programa o proyecto bajo su cargo y del equipo de colaboradores, siempre y cuando éstas no riñan con las disposiciones administrativas y disciplinarias de este Reglamento y las establecidas genéricamente para todo el Ministerio por las autoridades superiores.
+f) Planear y programar las acciones estratégicas y operativas pertinentes. Formular los anteproyectos de presupuesto necesarios y trasladarlos a la unidad administrativa correspondiente para SU integración al presupuesto total de! Ministerio y su posterior presentación al Ministerio de Hacienda, previo cumplimiento del debido proceso para estos efectos.
+g) Velar porque los funcionarios (as) bajo ‘su coordinación y supervisión cumplan con las obligaciones señaladas, y que no incurran en las conductas prohibida por el Articulo 106 de este Reglamento,
+h) Ejecutar la calificación y evaluación del desempeño de los colaboradores en forma objetiva y veraz, y enviar en el plazo estipulado los documentos y reportes que al efecto se requieran.
+i) Atender las observaciones, ídeas e inquietudes del equipo de colaboradores y buscar la pronta solución a las gestiones que le formulen, siempre y cuando procedan dentro del ámbito de su actividad y conforme al ordenamiento establecido,
+j) Velar porque las relaciones interpersonales sean cordiales y se desarrollen dentro de los cánones del respeto mutuo, y el ámbito de la Ley de Hostigamiento Sexual en e! empleo y la docencia.
+k) Fomentar en el equipo de colaboradores la equidad de género, con el fin de promocionar si es del caso al personal femenino en puestos tradicionalmente ocupados por los hombres. Lo anterior por supuesto deberá responder a la necesidad de nombrar personas debidamente capacitadas que puedan asegurarle a la Administración la prestación de un servicio eficaz y eficiente.
+I) Crear y mantener una cultura de trabajo, orientada a estimular en sus colaboradores el trabajo en equipo, sustentado en un enfoque de procesos y productos y en una vocación de creatividad y anticipación a los cambios,
+II) Cumplir con todas las responsabilidades que se le confieren y con aquellas contenidas en la Ley General de la Administración Pública.
+m) Velar porque sus subordinados disfruten de sus vacaciones de modo tal que no se produzcan acumulaciones indebidas de éstas.
+n) Brindar especial atención a los servidores (as) en los aspectos propios del desempeño de estos, durante el período de prueba.
+o) Cumplir sus funciones sin sujeción de los limites de la jornada establecida por este Reglamento, cuando fuere necesario, sin que ello genere remuneración adicional.
+p) Elevar a decisión del Ministerio (a) en el término improrrogable de tres días a partir del que tuvo conocimiento, las faltas graves en que incurrieron los servidores (as).
+q) Divulgar por los medios respectivos y hacer cumplir la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia.
+r) Cumplir con todas las demás obligaciones propias de su cargo.

@@ -1,0 +1,1 @@
+Artículo 110—La sanción que corresponda al despido sin responsabilidad para el Ministerio, será recomendada al Ministro (a) por el Departamento Legal del Ministerio, a través del Viceministro (a), una vez que se haya cumplido el procedimiento que se indica en los siguientes artículos.

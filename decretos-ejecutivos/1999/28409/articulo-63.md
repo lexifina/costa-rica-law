@@ -1,0 +1,1 @@
+Artículo 63.—Los funcionarios (as) podrán acogerse al pago por concepto de Dedicación Exclusiva según las resoluciones correspondientes de la Dirección General de Servicio Civil y tendrán derecho al pago de la Carrera Profesional, prohibición, Zonaje, Desarraigo y Regionalización, de conformidad con la normativa vigente.

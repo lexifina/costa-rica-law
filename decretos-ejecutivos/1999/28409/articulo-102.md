@@ -1,0 +1,1 @@
+Artículo 102.—Las Comisiones de Salud Ocupacional, en coordinación con las autoridades superiores y los mandos medios del Ministerio; podrán realizar actividades de formación humanística, intelectual, estética, deportiva y recreativa que permita el desarrollo de actitudes positivas, tanto en el plano laboral como a nivel familiar.

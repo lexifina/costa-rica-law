@@ -1,0 +1,1 @@
+Artículo 41.—La llegada tardía que exceda de cinco minutos contados a partir de la hora de ingreso establecida, acarreará la pérdida de media jornada, salvo que el (la) responsable de la dependencia, programa o equipo de trabajo avale, bajo o su responsabilidad, la justificación del funcionario (a).

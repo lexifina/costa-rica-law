@@ -1,0 +1,1 @@
+Artículo 68.—El expediente de personal deberá contener todos aquellos documentos y datos que sirvan para determinar el historial de la relación de servicios y será deber del funcionario (a) velar por la actualización permanente de su respectivo expediente.

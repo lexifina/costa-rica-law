@@ -1,0 +1,1 @@
+Artículo 62.—La compensación económica por concepto de prohibición del ejercicio particular de la profesión, se regulará conforme con las disposiciones de la ley No 5867 del 15 de diciembre de 1975 y sus reformas y leyes especiales que así lo dispongan.

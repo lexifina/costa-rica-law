@@ -1,0 +1,1 @@
+Artículo 123.—El presente Reglamento entrará en vigencia en la fecha de su publicación en el Diario Oficial. Se expondrá por lo menos en dos de los sitios más visibles de cada dependencia del Ministerio de Ambiente y Energía. El Departamento de Recursos Humanos velará porque todos y cada uno de los funcionarios (as) conozca de este reglamento y sus alcances.

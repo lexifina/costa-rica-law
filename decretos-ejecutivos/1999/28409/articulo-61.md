@@ -1,0 +1,1 @@
+Artículo 61.—Los salarios de los puestos que, por resolución razonada de la Dirección de Servicio Civil (conforme a lo dispuesto en el artículo 4 inciso f del Estatuto de Servicio Civil) sean declarados de confianza, serán fijados con las normas que establezca la Dirección General de Servicio Civil.

@@ -1,0 +1,3 @@
+CAPITULO XI
+De las Ausencias
+Artículo 42.—Se considera ausencia la falta de un día completo de trabajo. La inasistencia a una fracción de la jornada se considera como la mitad de una ausencia. Dos mitades de una ausencia, para los efectos de aplicación de este reglamento, se computarán como una ausencia, la que será sancionada disciplinariamente como corresponda. Podrá también la Administración en caso de que así lo determine no pagar el salario que corresponda a las ausencias injustificadas, salvo en los casos señalados en este reglamento, en el Estatuto de Servicio Civil y su Reglamento, y en el Código de Trabajo.

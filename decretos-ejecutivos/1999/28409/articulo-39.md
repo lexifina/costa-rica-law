@@ -1,0 +1,1 @@
+Artículo 39-—Es responsabilidad del funcionario (a) justificar la irregularidad en su asistencia o cuando utilice más tiempo del previsto para los descansos (almuerzo/refrigerios), a más tardar en la siguiente jornada de trabajo.

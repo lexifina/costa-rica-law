@@ -1,0 +1,1 @@
+Artículo 38.—El funcionario (a) que efectúe un registro de asistencia que no sea el suyo, incurrirá en falta grave; de la misma manera incurrirá aquel (aquella) que consienta o solicite a otra persona que le registre su marca de asistencia.

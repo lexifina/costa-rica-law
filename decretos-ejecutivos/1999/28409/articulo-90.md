@@ -1,0 +1,2 @@
+Artículo 90.—Para la valoración de las pruebas se tomarán en consideración todos los elementos aportados, dentro de los que se contemplarán todos aquellos que se refieren a los hechos que se denuncian. En caso de ser necesario, y a criterio del Órgano Director, este podrá solicitar un examen psicológico, de la persona denunciada (o), los que serán emitidos por reconocidos profesionales en el ramo.
+El Órgano Director no podrá emitir valoración sobre la vida personal del (la) denunciante, ni la del denunciado (a).

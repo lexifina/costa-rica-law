@@ -1,0 +1,2 @@
+Transitorio 1°—Dentro de los dos meses siguientes a la entrada en vigencia de este Reglamento, se procederá a la conformación de la Junta de Relaciones Laborales, debiendo tanto el Ministro como la representación sindical, designar con carácter de urgencia los servidores que les representarán.
+Dado en la Presidencia de la República.—San José, al primer día del mes de diciembre de mil novecientos noventa y nueve.

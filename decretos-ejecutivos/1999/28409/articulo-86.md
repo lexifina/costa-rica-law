@@ -1,0 +1,1 @@
+Artículo 86.—El procedimiento interno administrativo deberá ser llevado a cabo resguardando confidencialidad absoluta de los hechos y sus participantes, y los principios que rigen la actividad administrativa, garantizando ante todo, el debido proceso, celeridad, oficiosidad, verdad real y respeto a la dignidad humana.

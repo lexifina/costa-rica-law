@@ -1,0 +1,1 @@
+Artículo 101.—Deberán adoptarse las medidas necesarias para los trabajadores (as) cuya permanencia no es aconsejable , por razones médicas, en un puesto que entrañe exposición a riesgos de su trabajo, debiéndose en este caso, proceder al traslado del funcionario (a) a un puesto más adecuado.
