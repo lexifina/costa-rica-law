@@ -1,0 +1,1 @@
+Artículo 12.- Cada una de las Unidades y Subáreas contará con un encargado y en aquellos casos en que se determine la necesidad se designará a un colaborador inmediato a éste, los que serán responsables por los resultados de la gestión ante el Superior del Area de Transportes.

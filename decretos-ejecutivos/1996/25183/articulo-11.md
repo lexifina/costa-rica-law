@@ -1,0 +1,1 @@
+Artículo 11.- Existirán un encargado y un colaborador inmediato de éste en el Area de Transportes, los que conjuntamente serán responsables por su gestión ante el señor Ministro de Obras Públicas y Transportes.

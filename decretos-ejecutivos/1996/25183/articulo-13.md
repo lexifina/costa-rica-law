@@ -1,0 +1,1 @@
+Artículo 13.- Todas las Subáreas y Unidades Asesoras se conformarán en equipos de trabajo por procesos, que permitan la flexibilidad y movilización de sus recursos, de conformidad con las necesidades que se presenten.

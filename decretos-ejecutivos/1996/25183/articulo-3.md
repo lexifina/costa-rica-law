@@ -1,0 +1,1 @@
+Artículo 3º.- El producto, resultado del cumplimiento eficiente de la labor del Area de Transportes se define como: "Sistemas y Servicios de Transporte eficientes, seguros y económicos, en términos ambientales y sociales".
