@@ -1,0 +1,1 @@
+Art. 17.-Si durante el presente contrato, la Compañía desease vender los vapores de la línea centroamericana, dará previo aviso al Gobierno de Costa Rica; y si la Compañía ó el comprador ó compradores Guerra y no diesen suficiente garantía de su fiel sumisión á las condiciones de este contrato, á satisfacción del Gobierno, por el mismo hecho se considerará rescindido.

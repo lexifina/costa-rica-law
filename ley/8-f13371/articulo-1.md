@@ -1,0 +1,8 @@
+DECRETO No VIII.
+(de 19 de mayo.)
+Aprueba un contrato con la Ca de vapores de las Malas del Pacífico.
+EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
+En uso de la atribución que le confiere el artículo 73 de la Constitución,
+DECRETA:
+Artículo único.-Apruébase en todas sus partes el contrato celebrado en esta ciudad el día 20 de diciembre de 1886, entre los señores General don A. de Jesús Soto, Secretario de Estado en los despachos de Guerra y Marina, competentemente autorizado por el señor Presidente de la República, y don Fabián Esquivel, Gerente de la Compañía de Agencias de Costa Rica, como Agente de la "Compañía de vapores de las Malas del Pacífico," para la continuación del servicio de vapores en las líneas conocidas y desiguadas con los nombres de "Directa" entre Panamá y San Francisco, "Mejicana" entre Panamá y Acapulco, y "Centroamericana" entre Panamá y Champerico. El contrato en referencia es literalmente como sigue: "A. DE JESÚS SOTO, Secretario de Estado en los despachos de Guerra y Marina, competentemente autorizado por el Benemérito General Presidente de la República, por una parte, y por la otra FABIÁN ESQUIVEL, Gerente de la "Compañía de Agencias de Costa Rica," como Agente de la "Compañía de vapores de las Malas del Pacífico," á nombre y en representación de ésta: han convenido en celebrar el siguiente contrato ad referéndum.
+Art. 1°-La Compañía de vapores de las Malas del Pacífico se obliga á que sus vapores continúen haciendo mensualmente un viaje redondo en la línea conocida y designada como la línea directa, entre Panamá y San Francisco, tocando tanto á la ida como á la vuelta en el puerto de Puntarenas.
