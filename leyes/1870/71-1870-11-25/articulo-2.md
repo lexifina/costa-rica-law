@@ -1,0 +1,1 @@
+Art 2° Esta suma se concederá a los empresarios, al interés de un seis por ciento anual, en cantidad que no excedan de dos mil pesos, por el término de un año afianzado, a satisfacción de una junta distribuidora, el pago del principal e intereses.

@@ -1,0 +1,1 @@
+Art 5° La Junta distribuidora de que habla el art 2° se compondrá de tres personas de nombramiento del Gobierno, y ante ella se harán las solicitudes, y se otorgarán los documentos con la garantía correspondiente. Una vez otorgados donde se custodiarán y cobrarán en su oportunidad.
