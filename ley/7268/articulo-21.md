@@ -1,0 +1,4 @@
+Artículo 21.- Sólo se podrán acumular dos derechos de sucesión,
+completos o en partes, en una misma persona, siempre que la suma por
+pagar no sobrepase el tope que establece el artículo 9 de la presente
+Ley.
