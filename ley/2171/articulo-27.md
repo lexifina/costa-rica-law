@@ -1,1 +1,2 @@
-Artículo 27.- Toda persona ciega, menor de dieciséis años, debe ser enviada a la Escuela de Enseñanza Especial, la que determinará si se admite en la institución de acuerdo con las condiciones físicas y mentales que reúna.
+Artículo 27.- Toda persona ciega tiene derecho y obligación de recibir educación formal o técnica dentro de sus posibilidades, por lo que deberá ser admitida en los diferentes centros educativos del país, de acuerdo con el lugar de su residencia. Tendrá derecho y obligación a que se le otorgue la atención especial que requiere y a que se le brinden las facilidades para lograr su desarrollo.
+(Así reformado por el artículo 1° de la ley N° 7286 del 4 de febrero de 1992)
