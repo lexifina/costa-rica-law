@@ -1,0 +1,2 @@
+Artículo 9º—Plazos de cobertura. Los plazos a los cuales se pacten las operaciones de cobertura no podrán exceder en más de un mes el plazo del activo u obligación cuyo riesgo se pretende cubrir.
+Cuando los plazos de los contratos de cobertura disponibles en los mercados financieros sean menores al plazo del activo u obligación respectiva, se podrá restablecer la cobertura deseada sustituyendo el instrumento por vencer con contratos de posterior vencimiento.

@@ -1,0 +1,1 @@
+Artículo 4º—Supervisión. El uso de derivados financieros para cobertura de tasas de interés por parte de los intermediarios financieros será supervisado por la Superintendencia General de Entidades Financieras, según las funciones que la ley le encomienda y lo consignado en el presente reglamento.

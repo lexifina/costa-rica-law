@@ -1,0 +1,1 @@
+Artículo 6º—Suspensión de autorización para realizar operaciones de cobertura. La Superintendencia General de Entidades Financieras podrá suspender o revocar su autorización si la entidad deja de cumplir cualquier requerimiento o disposición del presente reglamento o no proporcione la información que la Superintendencia solicite.

@@ -1,0 +1,1 @@
+Artículo 8º—Calificaciones de las contrapartes. La Superintendencia General de Entidades Financieras establecerá las calificaciones crediticias mínimas de las contrapartes con las que las entidades financieras autorizadas podrán realizar operaciones en los mercados internacionales no organizados.
