@@ -13,3 +13,4 @@ COLEGIO UNIVERSITARIO RIEGO DESARROLLO TROPICO SECO: Para Pago Zonaje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-11-30 | la propia norma |
+| 2 | 2001-10-26 | Reglamento 9 (2001-10-26) |
