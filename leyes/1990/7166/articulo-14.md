@@ -1,5 +1,5 @@
-ARTICULO 14.- Por todas las actividades lucrativas que seguidamente se
-señalan, comprendidas en la calificación internacional de actividades
+ARTICULO 14.- Por todas las actividades lucrativas que seguidamente
+se señalan, comprendidas en la calificación internacional de actividades
 económicas, los patentados pagarán conforme con lo dispuesto en los
 artículos 3 y 4, con excepción de las señaladas en su artículo 15.
 a) Agricultura, ganadería, silvicultura y pesca.
