@@ -1,5 +1,5 @@
-(NOTA DE SINALEVI: Sobre este tema, La Asamblea Legislativa de Costa Rica, había emitido anteriormente el Contrato Gobierno de CR e IICA sobre creación del CATIE, aprobado mediante ley N° 5201 del 23 de mayo de 1973)
 N° 6873
+(NOTA DE SINALEVI: Sobre este tema, La Asamblea Legislativa de Costa Rica, había emitido anteriormente el Contrato Gobierno de CR e IICA sobre creación del CATIE, aprobado mediante ley N° 5201 del 23 de mayo de 1973)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
 DECRETA:
 Artículo 1º.- Ratifícase el contrato entre el Gobierno de la República y el Instituto Interamericano de Cooperación para la Agricultura, sobre el Centro Agronómico Tropical de Investigación y Enseñanza, suscrito en San José, el 21 de febrero de 1983 y cuyo texto es el siguiente.
