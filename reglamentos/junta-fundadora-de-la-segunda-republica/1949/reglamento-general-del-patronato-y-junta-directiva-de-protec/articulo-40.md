@@ -1,0 +1,1 @@
+Artículo 40.-EI Departamento de Loterías tendrá a su cargo la administración y manejo de las Loterías del Asilo Chapuí y de la Popular del Hospital San Juan de Dios. Al frente de él habrá un Administrador.

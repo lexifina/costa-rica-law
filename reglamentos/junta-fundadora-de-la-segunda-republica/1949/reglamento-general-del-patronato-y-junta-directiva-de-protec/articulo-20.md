@@ -1,0 +1,1 @@
+Artículo 20.- La Directiva estará integrada por un Presidente, un Secretario, cinco Vocales Propietarios, y tres Suplentes, nombrados por el Patronato respectivo, y a falta de éste por el Poder Ejecutivo.

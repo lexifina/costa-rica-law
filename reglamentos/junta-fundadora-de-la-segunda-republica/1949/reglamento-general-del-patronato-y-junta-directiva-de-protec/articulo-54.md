@@ -1,0 +1,1 @@
+Artículo 54.-Las esferas y las fichas que se usen para los sorteos, deberán ser, las primeras, automáticas y que no permitan el paso de más de una sola ficha a la vez; y las segundas, de un mismo peso y de iguales dimensiones.

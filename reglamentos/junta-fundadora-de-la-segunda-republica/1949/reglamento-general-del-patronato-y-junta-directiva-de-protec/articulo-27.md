@@ -1,0 +1,1 @@
+Artículo 27.- La Junta se reunirá por lo menos una vez por semana. Cinco de sus miembros hacen quórum. Los acuerdos se tomarán por la mayoría absoluta de votos. En caso de empate; el voto del Presidente se contará doble.

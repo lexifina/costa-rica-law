@@ -1,0 +1,1 @@
+Artículo 45.-Tanto el Administrador de las Loterías como los Cajeros empleados que tengan a su. cargo el manejo de fondos efectivos, billetes de lotería y otros valores, deberán proveerse de una Póliza de Fidelidad a favor de la Junta , por la suma que la Dirección General de Asistencia considere conveniente. Tales fianzas serán costeadas por la Junta.

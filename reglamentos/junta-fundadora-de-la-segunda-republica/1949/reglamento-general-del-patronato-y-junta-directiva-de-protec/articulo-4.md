@@ -1,0 +1,1 @@
+Artículo 4°-La supervigilancia y orientación técnica y el control económico de la Junta , estarán a cargo de la Dirección General de Asistencia Médico-Social, de conformidad con lo que dispone la ley número 48 de 14 de junio de 1940, la cual podrá hacerse representar ante la Junta , por medio de un delegado, con voz en las deliberaciones, pero sin voto.

@@ -1,0 +1,3 @@
+Artículo 55.-La lista de los números premiados se publicará en el periódico oficial en su primera edición posterior al sorteo y en hojas sueltas el mismo día de verificado con la firma en facsímil del Administrador de Loterías.
+Los premios serán pagados al portador del billete favorecido desde el primer día hábil después del sorteo, por la Administración de Loterías, siempre que los billetes no presenten roturas o alteraciones que hagan dudar de su legitimidad.
+No se detendrá el pago de ningún premio a no ser que la Autoridad Ju dicial así lo ordene. En tal caso, la Administración de Loterías deberá retener la suma correspondiente, a la orden de dicha autoridad, a fin de que los interesados discutan, donde proceda, a quién pertenece la suma depositada.

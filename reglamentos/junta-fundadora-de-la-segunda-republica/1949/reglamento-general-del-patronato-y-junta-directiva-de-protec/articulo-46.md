@@ -1,0 +1,1 @@
+Artículo 46.- La Junta decidirá la forma en que han de hacerse los sorteos informando al Auditor, al Tesorero y al Administrador de las Loterías. Cuando altere el sistema establecido lo avisará treinta días antes en el periódico oficial, y en los diarios comerciales, dando a conocer el nuevo plan adoptado.

@@ -1,0 +1,1 @@
+Artículo 53.-No se practicará ningún sorteo sin que el Inspector Delegado del Poder Ejecutivo, publique constancia de encontrarse depositado en la Tesorería de la Junta el dinero necesario para cubrir los premios. La Tesorería no podrá por ningún motivo emplear esa suma para otros fines.

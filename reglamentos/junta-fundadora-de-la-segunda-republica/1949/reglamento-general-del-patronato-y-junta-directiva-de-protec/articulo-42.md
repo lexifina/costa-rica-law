@@ -1,0 +1,1 @@
+Artículo 42.-EI Administrador será responsable de los billetes de lotería, de los fondos en Caja y de las operaciones que realice en relación con los mismos, hasta tanto no reciba un finiquito de las Oficinas a quienes corresponda, de acuerdo con lo que indiquen las leyes o reglamentos.

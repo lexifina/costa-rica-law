@@ -1,0 +1,2 @@
+Artículo 44.-Es absolutamente prohibido el pago de los premios que no se presenten al cobro dentro de los seis meses siguientes a la fecha de efectuado el sorteo; en tales casos, los premios quedarán a beneficio de la Junta.
+Inmediatamente después de seis meses de verificado un sorteo, se procederá a efectuar su liquidación final; una copia será remitida a la Auditoría de la Junta y otra a la Dirección General de Asistencia para su aprobación.

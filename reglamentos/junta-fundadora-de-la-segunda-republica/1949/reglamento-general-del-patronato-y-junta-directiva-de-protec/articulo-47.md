@@ -1,0 +1,1 @@
+Artículo 47.-La Junta señalará definitivamente la cantidad de billetes que haya de emitirse en cada sorteo, sin que pueda posteriormente variar la emisión del mismo; fijará el valor de cada billete y ordenará su venta por numeración corrida, sin que pueda reservar o reservarse número o billetes.

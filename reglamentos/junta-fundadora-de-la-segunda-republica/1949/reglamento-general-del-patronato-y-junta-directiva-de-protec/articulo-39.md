@@ -1,0 +1,1 @@
+Artículo 39.-EI Tesorero deberá garantizar a la Junta sus responsabilidades en el desempeño de sus funciones, mediante póliza de fidelidad, cuyo monto será fijado por la Dirección General de Asistencia.

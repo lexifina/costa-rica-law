@@ -1,0 +1,1 @@
+Artículo 41.-El tiraje de los billetes de las Loterías se hará, bajo la responsabilidad del Administrador, en imprenta propia que la Junta deberá instalar en un local apropiado. Los números de la emisión correspondiente a cada sorteo, serán habilitados para su venta por e! Tesorero, quien les pondrá la contramarca correspondiente.

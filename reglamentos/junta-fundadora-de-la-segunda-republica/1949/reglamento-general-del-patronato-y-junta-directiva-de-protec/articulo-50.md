@@ -1,0 +1,1 @@
+Artículo 50.-Los sorteos se harán en lugar espacioso y público, para que todo el que lo desee pueda vigilar las operaciones. Cada número premiado se consignará inmediatamente en pizarras que los concurrentes puedan ver con toda claridad.

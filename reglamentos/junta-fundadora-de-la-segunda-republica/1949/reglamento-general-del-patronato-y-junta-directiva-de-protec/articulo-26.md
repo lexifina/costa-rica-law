@@ -1,0 +1,1 @@
+Artículo 26.- La Junta podrá nombrar a un empleado permanente que tenga a su cargo las obligaciones del Secretario establecidas en el artículo 32, incisos 1), 2) y 3), y las que el Delegado Ejecutivo le encomiende.

@@ -1,0 +1,1 @@
+Artículo 16.-En toda reunión ordinaria o extraordinaria del Patronato formará quórum la mitad, más uno de los miembros inscritos que estén al día en el pago de sus cuotas, para lo cual el Tesorero tendrá lista la nómina consiguiente al empezar cada reunión.

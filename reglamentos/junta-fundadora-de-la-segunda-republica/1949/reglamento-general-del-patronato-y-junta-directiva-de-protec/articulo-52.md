@@ -1,0 +1,1 @@
+Artículo 52.-Además del Presidente de la Junta, o del Vocal que él designe como representante, asistirán a los sorteos, el Administrador de las Loterías o un Delegado suyo, y en calidad de Inspectores, uno de los Alcaldes Penales del cantón de San José (llamados por su orden de numeración) y un Delegado del Poder Ejecutivo.
