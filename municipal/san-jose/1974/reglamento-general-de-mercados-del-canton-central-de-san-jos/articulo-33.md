@@ -1,0 +1,13 @@
+Artículo 33.—La Municipalidad de San José, se reserva el derecho de terminar sin lugar a indemnización al adjudicatario de ninguna clase, el contrato celebrado con éste por cualquiera de las causales establecidas en este Reglamento, especialmente:
+a) Por incumplimiento de parte del inquilino de alguna o algunas de las obligaciones que 10 imponga el contrato o este Reglamento:
+b) Por embargo judicial del derecho de arrendamiento, cuando su dueño no obtenga el levantamiento del embargo dentro de un plazo razonable fijado por el Administrador del mercado;
+c) Por remate de las mercaderías o artículos que expendan en el puesto que tenga como consecuencia el cierre del negocio por más de ocho días naturales;
+ch) Por incapacidad económica del inquilino, la cual se presume cuando se adelante juicio de quiebra al inquilino, o se le abra concurso de acreedores, o se le compruebe incumplimiento notorio de sus obligaciones comerciales o mala fe en su negocio;
+d) Por venta de artículos alterados o que tengan un peso menor del que les corresponde de acuerdo con las disposiciones legales vigentes o se haya impuesto al inquilino por estos motivos alguna sanción por las autoridades competentes;
+e) Por cesión del puesto sin el lleno total de los requisitos establecidos en el presente Reglamento, o por darlo en uso a otra persona, o a cualquier título, en todo o en parte, o por el hecho de permitir la administración o manejo del negocio en condiciones, o personas distintas a las autorizadas por este Reglamento;
+f) Por garantizar con el puesto obligaciones a favor de terceros o haber obtenido la adjudicación o cesión para un tercero y tener en consecuencia la condición de inquilino permanente;
+g) Por cierre o clausura del negocio o puesto sin autorización previa de la Administración;
+h) Por establecer especulación o acaparamiento en el puesto o negocio o negarse a vender los artículos o mercaderías al público o esconderlas o guardarlas para crear escasez artificial y propiciar con ello el aumento de los precios;
+i) Por demolición o reforma al mercado: no obstante, los inquilinos que por las razones expuestas en este inciso se vean afectados, conservarán el derecho de prioridad para ocupar nuevamente los locales, cuando el mercado se rehabilite.
+Todo lo anterior desde luego en igualdad de condiciones; y
+j) Cuando el inquilino expenda artículos o mercaderías en mal estado, que constituyan peligro para la salud pública.

@@ -1,0 +1,1 @@
+Artículo 5°—La Municipalidad coordinará y resolverá todos los asuntos pertinentes a través del Departamento de Mercados, a cuya jefatura estarán adscritas las administraciones de cada uno de los mercados.

@@ -1,0 +1,2 @@
+Artículo 7°—Las variaciones en los horarios de los mercados, serán notificadas al público e inquilinos, mediante la insertación de un aviso en uno de los periódicos de mayor circulación en el país.
+No obstante lo anterior, en casos de fuerza mayor, caso fortuito o cuando a juicio de la Municipalidad, la medida sea aconsejable y necesaria, se podrá acordar la no prestación del servicio sin previa notificación a los Interesados.
