@@ -1,2 +1,2 @@
-Artículo 72.- Los fondos de la asociación serán depositados en una cuenta bancaria, bajo la responsabilidad del Presidente, y del Tesorero de la Junta Directiva, y los giros contra esa cuenta deben necesariamente ir firmados por ambos.
-Toda orden de pago debe estar respaldada por un acuerdo firme de la Junta Directiva.
+Artículo 72.—Todos los fondos de las Asociaciones deberán ser canalizados a través de la Tesorería de la Junta Directiva y serán depositados en una cuenta bancaria, bajo la responsabilidad del Presidente y Tesorero de la misma. Los giros contra esta cuenta deben necesariamente ir firmados por ambos y estar respaldados por acuerdo firme de Junta Directiva.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 4393 del 10 de diciembre de 1974)
