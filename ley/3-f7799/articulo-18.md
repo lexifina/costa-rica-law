@@ -1,0 +1,1 @@
+Art 18° Los habilitados serán de libre y exclusivo nombramiento y remoción de la Secretaría de Obras Públicas que les fijará la fianza o garantía que deberán prestar y que no sería inferior al sueldo de un año.

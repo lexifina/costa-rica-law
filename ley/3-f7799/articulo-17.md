@@ -1,0 +1,1 @@
+Art 17° Para la contabilidad de los valores destinados a la Empresa, el Director nombrará y conservados a la Empresa, el Director nombrará y conservará los empleados que consideren necesarios y se hallasen comprendidos en la Tarifa de este Reglamento o acepta los en resoluciones especiales de la Secretaría de Obras Públicas.

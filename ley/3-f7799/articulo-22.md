@@ -1,0 +1,1 @@
+Art 22° Los Conductores de trenes que durante el viaje recauden pasajes, con o sin recargo por falta de tiquetes obtenidos en la respectiva Estación y por fletes de carga introducida en el tránsito, entregarán lo recaudado al Agente general del ramo a la llegada del tren a San José.
