@@ -1,0 +1,1 @@
+Artículo 27° Para efectuar vuelos de carácter visual es necesario informes meteorológicos recientes, o una combinación de ellos y pronóstico, indiquen con claridad que las condiciones meteorológicas a lo largo del trayecto de la ruta son favorables para efectuar el vuelo en esas condiciones.

@@ -1,0 +1,1 @@
+Articulo 76° La instalación del equipo de radio de a bordo será aprobada y supervisada por la DGAC y se efectuará en forma tal que de producirse fallas alguna de las unidades para comunicaciones, navegación o en ambas, dichas fallas no redunden en averías de otras unidades a usar para los mismos fines.

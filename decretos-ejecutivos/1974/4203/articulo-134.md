@@ -1,0 +1,1 @@
+Artículo 134° El manifiesto de peso y balance se hará en el número de copias que el explotador considere conveniente, debiendo entregar el original debidamente firmado al representante local de la DGAC, dentro de una hora posterior a la salida de la aeronave.

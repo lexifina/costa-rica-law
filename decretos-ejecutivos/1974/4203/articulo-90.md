@@ -1,0 +1,1 @@
+Artículo 90° No se permitirá el acceso a la cabina de pilotos a personas que no formen parte de la tripulación, excepto el personal que autorice la DGAC y siempre que medie consentimiento del piloto al mando.

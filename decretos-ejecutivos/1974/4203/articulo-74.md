@@ -1,0 +1,2 @@
+Artículo 74° Las aeronaves destinadas al transporte de personas deben estar adecuadas en forma tal que se permita una evacuación rápida de todos los ocupantes en caso de emergencia que pueda ocurrir durante las maniobras de despegue o el aterrizaje.
+Las condiciones que para ello se requerirán, considerando el tiempo necesario, el número de ocupantes, el señalamiento de las salidas, su accesibilidad y el circuito de alumbrado de emergencia, serán especificado por la DGAC.

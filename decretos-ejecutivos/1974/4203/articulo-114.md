@@ -1,0 +1,1 @@
+Art 114° Durante la duración del vuelo el Despachador proporcionará el piloto cualquier información disponible sobre cambios significativos en las condiciones meteorológicas, NOTAMS y cualesquiera otra que me pudiere afectar la seguridad del vuelo.

@@ -1,0 +1,6 @@
+Art 139° El operador establecerá y mantendrá un programa de instrucción y verificación periódica aprobado por la autoridad competente, que deberá ser cubierto anualmente por cada miembro del personal auxiliar de a bordo, al que se le consigne funciones de emergencia prescritas en el artículo anterior, comprobando que cada miembro de dicho auxiliar:
+a) Sea competente para ejecutar aquellas obligaciones y funciones que se le asignen en caso de una emergencia de vuelo, o de una situación que requiera evacuación de emergencia.
+b) Este adiestrado y sea capaz de usar el equipo de emergencia y salvamento, tales como chalecos salvavidas, balsas salvavidas, deslizadores de evacuación, salidas de emergencia, extintores, portátiles, equipo de oxígeno y botiquines de primeros auxilios.
+c) Cuando preste servicio en aeronaves que vuelen arriba de 3.000 metros, posea conocimiento respecto al efecto de la falta de oxigeno y en el caso de aeronaves con cabina o presión, lo que se refiere a los fenómenos fisiológicos inherentes a una pérdida de presión.
+d) Conozca las asignaciones y funciones de los otros miembros de la tripulación en caso de una emergencia, en cuanto sean necesarios para desempeñar sus propias obligaciones.
+e) Haya sido aprobado en un curso autorizado de primeros auxilios y en su caso, haya tomado el curso de refresco bianual al respecto.

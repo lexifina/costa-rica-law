@@ -1,0 +1,1 @@
+Artículo 34° La tripulación en vuelo comunicará de inmediato a los servicios de Control de Tránsito Aéreo o Estación Aeronáutica de mayor proximidad toda condición peligrosa u obstáculo que se encuentre en la ruta, detallando en su informe con miras a obtener mayor seguridad para otras aeronaves.

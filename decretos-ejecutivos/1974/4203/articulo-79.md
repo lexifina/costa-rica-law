@@ -1,0 +1,1 @@
+Art 79° El operador de aeronaves deberá establecer un sistema de inspección a fin que el mantenimiento reparación general, alteraciones o reparaciones que afecten la aeronavegabilidad sea efectuadas general, conforme lo señala el Manual de Mantenimiento y lo preceptuado por el artículo anterior.

@@ -1,0 +1,2 @@
+Artículo 130°.- Todo operador tiene la obligación de llevar un archivo de todos los elementos relacionados con el mantenimiento de sus aeronaves.
+Cada documento sobre los trabajos ejecutados llevará la firma del mecánico que lo realizó y el número de licencia, así como en su caso la firma y el número de la licencia del inspector que lo revisó, como comprobación de que los trabajos fueron ejecutados con sujeción a las reglas técnicas aplicables.

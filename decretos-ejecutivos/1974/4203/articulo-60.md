@@ -1,0 +1,1 @@
+Artículo 60° El operador incluirá en el Manual de Operaciones de Vuelo la información necesaria para que el piloto al mando de la aeronave determine si puede continuar el vuelo en el caso de que cualquier equipo o instrumento o combinación de éstos deje de funcionar.

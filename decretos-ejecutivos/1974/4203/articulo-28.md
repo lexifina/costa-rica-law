@@ -1,0 +1,3 @@
+Artículo 28° Para la realización de vuelos en esas condiciones deberá indicarse en el plan operacional y en el plan de vuelo por lo menos un aeródromo alterno. No obstante, podrá omitirse este requisito si:
+a) La duración del vuelo y las condiciones meteorológicas prevalecientes sean tales que exista certidumbre razonable de que a la hora prevista de llegada al aeródromo de aterrizaje contemplado y en un periodo de una hora antes y otra después de esa hora, la aproximación y el aterrizaje puedan hacerse en condiciones meteorológicas de vuelo visual.
+b) El aeródromo de aterrizaje previsto esté aislado y no se cuente con aeródromo alterno adecuado.

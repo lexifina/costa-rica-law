@@ -1,0 +1,1 @@
+Artículo 146 No podrán llevar en la aeronave mas explosivos y artículos peligrosos que los necesarios para la operación o navegación salvo que el transporte de tales artículos esté autorizado por la autoridad competente a través de la Dirección General de Aviación Civil y que además esté autorizado por la autoridad respectiva de cada Estado que sobrevolará.

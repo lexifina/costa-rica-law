@@ -1,0 +1,1 @@
+Art 149° El piloto al mando no operará hacia o desde un aeródromo utilizando mínimas meteorológicas inferiores a las establecidas por la autoridad competente, excepto con la aprobación expresa de dicha autoridad.

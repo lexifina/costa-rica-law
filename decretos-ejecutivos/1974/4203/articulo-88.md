@@ -1,0 +1,1 @@
+Artículo 88° En caso de que la navegación necesaria para la seguridad de vuelo no pueda efectuarse en una forma adecuada por los pilotos desde su puesto, en la tripulación de vuelo se incluirá cuando menos un miembro titular con licencia de navegante.

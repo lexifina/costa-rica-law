@@ -1,0 +1,1 @@
+Art 111° Para poder despachar los vuelos en las rutas, un titular con licencia para ello deberá haber efectuado en los doce meses anteriores, cuando menos un viaje en la cabina de mando de una aeronave que incluirá las escalas señaladas para vuelo regular. No podrán actuar como Despachadores de vuelo aun cuando su licencia los faculte, quienes no cumplan con este requisito.

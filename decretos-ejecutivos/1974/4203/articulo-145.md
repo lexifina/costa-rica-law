@@ -1,0 +1,1 @@
+Artículo 145° El piloto al mando tendrá la obligación de notificar a la autoridad competente más próximo y por el medio mas rápido de que disponga cualquier accidente o incidente en relación que ocurra a la aeronave.

@@ -1,0 +1,1 @@
+Artículo 53° Las aeronaves monomotores podrán utilizarse solamente en VMC y de día y en aquellas rutas y desviaciones de ellas que permitan realizar aterrizaje forzoso en condiciones seguras caso de producirse falla de motor.

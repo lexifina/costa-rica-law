@@ -1,0 +1,1 @@
+Artículo 168° El piloto al mano se cerciorará de que las licencias de cada uno de los miembros de la tripulación de vuelo han sido otorgadas o convalidadas por la DGAC de Costa Rica, que están debidamente habilitadas y vigentes y de que los miembros de la tripulación de vuelo mantienen su competencia.

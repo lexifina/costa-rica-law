@@ -1,0 +1,1 @@
+Art 109° Los operadores dispondrán en cada centro de Despacho, de un número suficiente de Despachadores de aeronaves debidamente calificados para asegurar el adecuado control operacional de los vuelos.

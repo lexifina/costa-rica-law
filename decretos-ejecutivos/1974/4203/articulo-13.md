@@ -1,0 +1,1 @@
+Artículo 13° Para uso y guía del personal de operaciones, existirá un Manual elaborado por el operador conforme los detalles, que señala este Reglamento. La información contenida en el manual se revisará periódicamente a fin de mantenerlo actualizado.

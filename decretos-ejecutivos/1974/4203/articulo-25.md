@@ -1,0 +1,1 @@
+Artículo 25° El operador conservará los formularios de preparación del vuelo durante los 6 meses siguientes al día que éste efectué. El plazo señalado no regirá en aquellas situaciones que deba efectuarse investigación en cuyo caso se conservará por tiempo indefinido.

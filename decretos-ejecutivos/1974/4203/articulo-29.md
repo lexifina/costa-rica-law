@@ -1,0 +1,1 @@
+Artículo 29° Un aeródromo no podrá especificarse como alterno en un plan operacional o de vuelo si de la información disponible no se infiere que las condiciones meteorológicas previstas para la hora de llegada son iguales o superiores a las del aeródromo de destino.

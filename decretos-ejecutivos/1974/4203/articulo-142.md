@@ -1,0 +1,1 @@
+Art 142° La Dirección General de Aviación Civil podrá imponer varias de las condiciones aplicables a las aeronaves de transporte público (ver parte II) a las aeronaves privadas de un peso máximo superior a 5.700 Kg y de las aeronaves que pueden transportar más de 10 personas.

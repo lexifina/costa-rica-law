@@ -1,0 +1,1 @@
+Artículo 30° En tratándose de aeródromos en el extranjero, las mínimas para utilización no podrán ser inferiores a las establecidas por la autoridad competente del Estado al cual pertenezca el aeródromo, excepto si media autorización expresa en contrario de quien está legalmente facultado para ello.

@@ -1,0 +1,1 @@
+Artículo 135° Podrá ser codificado o simplificado el manifiesto de peso y balance, así como la lista de pasajeros, cuando el operador establezca una forma expedita y práctica de rendir esta información con previa autorización de la Dirección General de Aviación Civil.

@@ -1,0 +1,1 @@
+Articulo 97° Un copiloto no podrá ser designado por el operador para hacerse cargo de los mandos de vuelo durante las maniobras de aterrizaje o despegue a menos que en los 90 días precedentes hayan prestado servicio como piloto al mando, como copiloto a cargo de los mandos de vuelo, o realizados tres despegues y aterrizajes en el mismo tipo de aeronaves.

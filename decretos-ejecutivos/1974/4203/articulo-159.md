@@ -1,0 +1,3 @@
+CAPITULO V
+De los Instrumentos y Equipo
+Artículo 159° Además de los instrumentos de pilotaje y navegación que se exigen para el otorgamiento del Certificado de Aeronavegabilidad, toda aeronave debe contar con los instrumentos y equipos indicados a continuación. Estos instrumentos y equipos deben ser aprobados o aceptados por la Dirección General de aviación Civil. La lista de estos instrumentos y equipos debe encontrarse en los documentos relacionados y limitaciones de uso. Las fuentes de energía deben ser suficiente para alimentar correctamente el conjunto de los instrumentos y equipos que puedan funcionar simultáneamente.

@@ -1,0 +1,2 @@
+Artículo 57° Una aeronave podrá aterrizar en el aeródromo previsto para ello y en cualquier otro alterno señalado luego de haber salvado con un margen seguro, todos los obstáculos situados en la trayectoria de aproximación con la seguridad de que podrá detenerse, o sea satisfactoria dentro de la distancia disponible de aterrizaje o acuatizaje.
+Deberán siempre considerarse las variaciones previstas en las técnicas de aproximación y aterrizaje si no se han considerado al indicar los datos relativos o performance.

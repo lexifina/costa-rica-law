@@ -1,0 +1,1 @@
+Art 108° El despacho de aeronaves destinadas a transporte público de pasajeros y la vigilancia en el desarrollo de las operaciones la efectuará siempre un Despachador de aeronaves titular de una licencia vigente.

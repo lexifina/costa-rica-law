@@ -1,0 +1,1 @@
+Art 136° Los Administradores de aeródromos o las dependencias autorizadas tienen la obligación de rendir un informe estadístico a la Dirección General de Aviación Civil, contenido los datos proporcionados en los manifiestos correspondientes de las operaciones.

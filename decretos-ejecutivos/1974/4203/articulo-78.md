@@ -1,0 +1,1 @@
+Artículo 78° Todo operador de aeronave indicará a la DGAC la forma en que brindará el adecuado mantenimiento a las aeronaves, lo cual deberá hacerse en una organización con personal técnicamente capacitado a juicio de la DGAC.

@@ -1,0 +1,1 @@
+Art 102° Será obligación de todo operador llevar un registro para la capacitación del piloto indicando claramente la forma en que se le ha impartido la instrucción. Este registro podrá ser exigido por la DGAC cuando se considere oportuno.

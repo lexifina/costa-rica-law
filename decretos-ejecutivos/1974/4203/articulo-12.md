@@ -1,0 +1,1 @@
+Articulo 12° El operador elaborará y mantendrá un método adecuado para la supervisión de operaciones de vuelo. Para su aplicación, el método y referencia requerirá la aprobación previa de la Dirección General de Aviación Civil.

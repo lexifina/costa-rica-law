@@ -1,0 +1,1 @@
+Artículo 131° Todo operador dentro del territorio nacional, en operaciones domésticas o con escalas dentro del mismo, deberá rendir a la Dirección General de Aviación Civil todos los informes que se requieran, básicamente de carácter técnico y estadístico.

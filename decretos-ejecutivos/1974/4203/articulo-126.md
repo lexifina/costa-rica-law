@@ -1,0 +1,1 @@
+Art 126° Las bitácoras y libros de las aeronaves deberán conservarse de manera tal que proporcione un registro completo de las operaciones realizadas, siempre y cuando el avión permanezca inscrito en el registro de matrícula de Costa Rica.

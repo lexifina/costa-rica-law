@@ -1,0 +1,2 @@
+Art 113° El Despachador de aeronaves determinará previamente a la salida, las condiciones operacionales y los requisitos para cada vuelo. Proporcionará al piloto la información meteorológica disponible, información de los aeródromos en la ruta, destino y alternos, NOTAMS y servicios que puedan afectarlos.
+Asimismo, analizará los requerimientos de combustible y las limitaciones de pesos y balances al despegue y aterrizaje. Auxiliará al piloto en la preparación del plan de vuelo.

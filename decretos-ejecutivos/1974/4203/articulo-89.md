@@ -1,0 +1,1 @@
+Artículo 89° No se permitirá a particulares que no formen parte de la tripulación de vuelo, hacer uso de los controles de la aeronave en operación. Se exceptúa el personal técnico con licencia vigente autorizada por la DGAC o por el operador para efectuar exámenes a la tripulación a pruebas a cualquiera de los componentes de la aeronave.

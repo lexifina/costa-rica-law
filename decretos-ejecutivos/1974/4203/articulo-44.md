@@ -1,0 +1,1 @@
+Artículo 44° Aquellos miembros de la tripulación cuya intervención sea necesaria y esencial para la operación de la aeronave en vuelo, utilizarán continuamente el oxigeno respirable cuando imperen las condiciones que señalan los artículos 42 y 43 en que se exige el suministro de oxigeno.

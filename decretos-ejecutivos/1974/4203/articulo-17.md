@@ -1,0 +1,1 @@
+Artículo 17° El operador consignará en el libro de aeronave, así como en el manifiesto de peso y balance la cantidad (volumen o peso) del combustible y aceite a bordo durante cada vuelo. El piloto al mando de la aeronave suscribirá los documentos y el operador los conservará durante un periodo que no podrá ser inferior a 6 meses.

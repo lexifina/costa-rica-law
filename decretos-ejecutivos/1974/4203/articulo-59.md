@@ -1,0 +1,1 @@
+Articulo 59° Las aeronaves en todos sus vuelos estarán equipadas con instrumentos con el fin de que los tripulantes de vuelo puedan verificar la trayectoria de vuelo, ejecutar cualquier maniobra reglamentaria requerida y observar las limitaciones de utilización de la aeronave en las condiciones previstas.

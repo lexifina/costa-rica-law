@@ -1,0 +1,1 @@
+Art 132° En caso de interrupción o suspensión definitiva de los servicios por razones técnicas o económicas, el operador esta obligado a informar a la Dirección General de Aviación Civil con anticipación a la interrupción o a la terminación de los servicios.

@@ -1,0 +1,1 @@
+Artículo 16° Todo operador debe someter a la aprobación de la autoridad competente las altitudes mínimas de seguridad para cada una de las rutas aéreas no establecidas en las que habrá de volar. Las altitudes que indique el operador no serán inferiores a las señaladas en el Reglamento respectivo.

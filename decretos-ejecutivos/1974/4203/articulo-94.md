@@ -1,0 +1,1 @@
+Artículo 94° El adiestramiento para vuelos en el grado que lo estime apropiado la Dirección General de Aviación Civil, podrá impartirse en simuladores de vuelo que la misma Dirección apruebe con este fin.

@@ -1,0 +1,1 @@
+Artículo 47° En el cumplimiento de sus funciones el Despachador de Vuelo está en la obligación de evitar tomar cualquier tipo de medidas incompatibles con los procedimientos establecidos por el Control de Tránsito Aéreo, el Servicio Meteorológico o el Servicio de Comunicaciones.

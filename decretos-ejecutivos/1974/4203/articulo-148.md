@@ -1,0 +1,2 @@
+Artículo 148° Excepto para efectuar vuelos rasantes autorizados, el piloto al mando observará las altitudes mínimas de seguridad establecidas por la autoridad competente para las rutas o lugares sobre los cuales opere la aeronave.
+Las altitudes mínimas establecidas por la Dirección General de Aviación Civil deberán encontrarse en el Manual AIP Centroamericano, de acuerdo al convenio respectivo (COCESNA).

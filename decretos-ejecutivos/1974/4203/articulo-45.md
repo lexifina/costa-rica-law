@@ -1,0 +1,1 @@
+Artículo 45° Todos los miembros de la tripulación de vuelo en aeronaves con cabinas en presión que vuelen a una altitud en la cual la presión atmosférica sea inferior a 376 milibares (25.000) tendrán a su disposición en el puesto en que se encuentren prestando sus servicios una máscara de oxígeno, tipo colocación rápida en condiciones de suministrar oxigeno respirable a voluntad.

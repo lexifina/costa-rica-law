@@ -1,0 +1,2 @@
+Artículo 162° El piloto al mando de una aeronave es responsable de comprobar que la aeronave sea cargada de manera conveniente. Debe prohibir el acceso o hacer salir a cualquier persona o carga que presente un peligro para la salubridad o la seguridad de la aeronave.
+El transporte de las materias peligrosas o infectantes y de los ataúdes debe ser objeto de un permiso especial otorgado por la autoridad competente a través de la Dirección General de Aviación Civil, aunque no se haga por remuneración.

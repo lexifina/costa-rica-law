@@ -1,0 +1,1 @@
+Artículo 11° Las operaciones de las aeronaves, independientemente de las condiciones meteorológicas, deberán adecuarse a las horas que para el uso de la aeródromo o instalaciones que se encuentren señaladas.

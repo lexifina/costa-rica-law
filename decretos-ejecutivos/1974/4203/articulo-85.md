@@ -1,0 +1,1 @@
+Artículo 85° Los formularios de mantenimiento en que consten los trabajos realizados deberán ser conservados por el operador durante un lapso que no podrá ser inferior a 6 meses contados a partir del término del periodo de utilización de la unidad a que se refieren.

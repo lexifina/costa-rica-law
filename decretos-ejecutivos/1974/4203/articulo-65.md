@@ -1,0 +1,1 @@
+Artículo 65° Las aeronaves que efectúen vuelos sobre zonas terrestres que de conformidad con acuerdos regionales de navegación aérea y lo estipulado por la DGAC hayan sido calificadas como poco accesibles, tendrán la obligación de mantener a bordo el equipo especificado por la DGAC.

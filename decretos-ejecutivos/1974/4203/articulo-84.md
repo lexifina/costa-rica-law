@@ -1,0 +1,1 @@
+Artículo 84° Previa iniciación del vuelo, deberá completarse y firmarse por quien se encuentre capacitado para ello conforme a su licenciado extendida, la conformidad de mantenimiento en que se haga constar que el trabajo se ha efectuado según lo señalaban los reglamentos y el manual.

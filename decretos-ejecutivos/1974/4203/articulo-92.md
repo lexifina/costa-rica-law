@@ -1,0 +1,1 @@
+Artículo 92° El operador deberá establecer y mantener un programa de instrucción para tierra y vuelo y lo someterá para su aprobación a la Dirección General de Aviación Civil. Este programa asegurará que cada miembro de la tripulación de vuelo reciba información adecuada para ejecutar las tareas que se asignaren

@@ -1,0 +1,1 @@
+Artículo 96° El operador designará como piloto al mando de aeronave únicamente a aquellos que en los 90 días precedentes a su designación hayan efectuado tres despegues y tres aterrizajes en el mismo tipo de aeronave que se les asigne.

@@ -1,0 +1,1 @@
+Art 116° El operador es el responsable de la preparación y exactitud de la formula de peso y balance antes de cada despegue. La fórmula deberá estar preparada y firmada por el personal de operaciones autorizado que tenga a su cargo las supervisiones de carga en aeronaves

@@ -1,0 +1,1 @@
+Artículo 32° Salvo casos que se califiquen como emergencia, ninguna aeronave proseguirá su aproximación para el aterrizaje si las condiciones meteorológicas son menores a las mínimas de utilización establecidas para el aeródromo al cual se está efectuando la aproximación.

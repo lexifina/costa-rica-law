@@ -1,0 +1,1 @@
+Artículo 105° Todo miembro de la tripulación de vuelo que se encuentre en la obligación de usar lentes y así se especifique en su licencia para poder hacer uso de ella, deberá llevar consigo lentes correctores de repuesto para poder ser usado rápidamente en caso de pérdida o destrucción de los mantenga en uso.

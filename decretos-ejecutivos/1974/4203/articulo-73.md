@@ -1,0 +1,1 @@
+Artículo 73° Todas las aeronaves que deban observar las normas de homologación en lo referente al ruido incluidas en el Anexo 16 del Convenio de Chicago portarán un documento expedido por la autoridad competente según sea la matricula de la aeronave en que conste tal homologación.

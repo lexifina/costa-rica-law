@@ -1,0 +1,1 @@
+Art 115°En caso de perdida de comunicación con la aeronave o cualesquiera otra situación de emergencia el Despachador deberá cumplir con el Reglamento de Búsqueda y Salvamento y con los procedimientos establecidos en el Manual de Operaciones de vuelo y deberá tomar las medidas necesarias a fin de obtener la asistencia en el menor plazo posible.

@@ -1,0 +1,1 @@
+Artículo 33° No se iniciará ni proseguirá ningún vuelo que tenga que realizarse en condiciones de formación de hielo conocidas o previstas salvo que la aeronave se encuentre debidamente equipada para esas condiciones lo cual constarán en el Departamento correspondiente de la DGAC. En caso de que existan condiciones de formación de hielo, deberá difundirse de inmediato.

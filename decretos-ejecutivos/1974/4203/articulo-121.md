@@ -1,0 +1,2 @@
+Art 121 El Manual de Mantenimiento será redactado en español, sin embargo, la Dirección General de Aviación Civil podrá aceptar que contenga tablas y gráficas y dibujos con leyendas redactadas en otro idioma, siempre que lo estime conveniente.
+Deberán someterse a la Dirección General de Aviación Civil dos ejemplares del Manual de Mantenimiento, uno de los cuales será devuelto al operador debidamente registrado.

@@ -1,0 +1,1 @@
+Artículo 52° Las aeronaves se utilizarán únicamente de conformidad con lo estipulado en su certificado de aeronavegabilidad y dentro de las limitaciones de utilización indicadas en el Manuel de Vuelo y Manual de Operaciones elaborados por el operador.

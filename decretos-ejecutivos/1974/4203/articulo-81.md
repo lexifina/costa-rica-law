@@ -1,0 +1,1 @@
+Articulo 81° El operador dictará las medidas necesarias con el objeto de que todo el personal especificado en el mantenimiento que se sigan, especialmente en todos aquellos casos en que se destine a servicio equipo de reciente adquisición en los cuales no se cuenten con amplia experiencia y conocimiento.

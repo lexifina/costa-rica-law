@@ -1,0 +1,1 @@
+Artículo 50° Al concluir el vuelo, el piloto al mando de la aeronave esta en la obligación de reportar al concluir el vuelo todos los defectos que note existente en la aeronave, siendo responsable del registro inmediato de la información en la bitácora de a borda.
