@@ -1,0 +1,1 @@
+Artículo 16.—Efectos del retiro. El retiro voluntario lleva implícita la renuncia al ejercicio de la profesión. Por lo tanto, ninguna persona podrá ejercer la profesión para la cual este Colegio la faculta mientras ostente la condición de retirada, asimismo, el retiro lleva implícita la renuncia a los servicios y beneficios que brinda el Colegio.

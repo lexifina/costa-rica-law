@@ -1,0 +1,3 @@
+Artículo 17.—Reincorporación. En cuanto a la reincorporación se tiene que: a) Quien se haya retirado temporalmente se tendrá automáticamente por reincorporado o reincorporada al vencer el plazo de su retiro, o antes si así lo solicitare por escrito. b) La persona retirada indefinidamente podrá en cualquier momento solicitar su reincorporación.
+Para gestionar la reincorporación al Colegio deberá:
+a) Llenar y entregar la “Boleta de solicitud de reincorporación”. b) Pagar por adelantado el primer mes correspondiente a la fecha de su reincorporación. c) Adjuntar una copia de la cédula de identidad.

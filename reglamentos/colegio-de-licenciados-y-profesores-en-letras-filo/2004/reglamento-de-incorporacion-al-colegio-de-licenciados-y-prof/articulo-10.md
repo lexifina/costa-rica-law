@@ -1,0 +1,1 @@
+Artículo 10.—Comunicado de las resoluciones. La Unidad de Incorporaciones tendrá un plazo de cinco días hábiles, contados a partir del momento de recibir el acuerdo de la Junta Directiva, para comunicar a la persona solicitante, por el medio indicado, el resultado de su solicitud de incorporación, reincorporación, retiro temporal o retiro indefinido.
