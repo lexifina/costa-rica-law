@@ -1,0 +1,1 @@
+Artículo 18.—Semanalmente los inspectores de espectáculos públicos trasladarán a la Sección de Patentes y Espectáculos Públicos los boletos timbres recolectados, asimismo queda obligado el encargado o dueño de permitir y colaborar con la labor de los inspectores en el cometido de sus funciones.

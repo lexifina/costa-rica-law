@@ -1,0 +1,1 @@
+Artículo 5°—Quedan obligadas las personas físicas o jurídicas afectos al impuesto a emitir los boletos de entrada debidamente numerados en secuencias por serie color según su valor y con el nombre comercial que lo identifica. La Municipalidad tratándose de actividades ocasionales podrá permitir el uso de boletos sin el nombre del negocio.

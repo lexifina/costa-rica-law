@@ -1,0 +1,1 @@
+Artículo 8°—En los casos en que el Concejo aprobare la conmutación del presente impuesto los interesados deberán presentarse a la Oficina de Tesorería Municipal y realizar la cancelación respectiva con anterioridad a la fecha de realización del espectáculo o actividad por lo que emitirá dicho Departamento el respectivo recibo.

@@ -1,0 +1,1 @@
+Artículo 14.—Al cliente que vaya hacer ingreso al establecimiento se le proporcionará el boleto-timbre el cual deberá ser depositado en el buzón recolector por el empleado con que cuente el negocio para tal efecto.

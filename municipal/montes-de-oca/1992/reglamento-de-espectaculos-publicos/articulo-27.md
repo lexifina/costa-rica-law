@@ -1,0 +1,1 @@
+Artículo 27.- La Gobernación de la provincia otorgará el permiso previo a la es o actividades que de acuerdo con el artículo 1 ° de la ley N° 6844, requieran los interesados excepto aquellas actividades que por ley corresponde conceder el permiso a la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 13.—En cada establecimiento deberá indicarse en un lugar visible de a boletería el precio de la entrada donde se realizará el espectáculo. En los casos en que se hubiere autorizado la conmutación del presente impuesto se deberá colocar en n lugar visible el recibo del pago de la misma y el respectivo acuerdo municipal.

@@ -1,0 +1,1 @@
+Artículo 11.—Todo buzón en caso de ser dañado en forma tal que no garantice a seguridad deberá ser repuesto en un plazo máximo de veinticuatro horas por el dueño leí establecimiento caso contrario será sancionado conforme con este reglamento.
