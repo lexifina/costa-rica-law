@@ -1,0 +1,2 @@
+Transitorio único.-Los lotes que pertenezcan al Instituto Mixto de Ayuda Social y al Instituto Nacional de Vivienda y Urbanismo, ubicados en la lotificación Paraíso Industrial, S.A., deberán ser traspasados a los actuales ocupantes que califiquen, en los mismos términos establecidos en esta ley.
+Presidencial de la República.-San José, a los tres días del mes de abril de mil novecientos ochenta y siete.
