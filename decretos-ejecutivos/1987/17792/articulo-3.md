@@ -1,0 +1,1 @@
+Articulo 3°-Después de esta presentación ambas compañías continuarán obligadas a someter sus decIaraciones ante las autoridades de Hacienda, en la forma y condiciones establecidas en la cláusula quinta del contrato suscrito entre las mismas partes, aprobado por ley N° 1126 de 31 de diciembre de 1949.
