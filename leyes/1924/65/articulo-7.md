@@ -1,1 +1,0 @@
-Artículo 7°—Solamente gozarán del derecho a este préstamo los propietarios de una o más casas inscritas en su nombre que hayan sido dañadas por los temblores y que a la fecha de la reconstrucción o reparación no valgan más de veinte mil colones incluyendo el valor del terreno; en ningún caso el préstamo podrá pasar de la mitad del valor de los bienes del petente.
