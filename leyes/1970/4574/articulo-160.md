@@ -1,1 +1,2 @@
-Artículo 160.- El Ejecutivo cumplimentará lo acordado por el Concejo por medio de una solicitud de avalúo, acompañada de una transcripción del acuerdo municipal y del respectivo plano, dirijida a la Dirección General de Tributación Directa.
+Artículo 160.- DEROGADO.-
+(Derogado por el artículo 64, inciso l), de la Ley de Expropiaciones No.7495 del 3 de mayo de 1995)

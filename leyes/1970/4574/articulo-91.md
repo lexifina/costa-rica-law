@@ -1,2 +1,2 @@
 Artículo 91.- Las contribuciones urbanas a que se refiere el artículo anterior deberán ser cubiertas dentro del plazo acordado por la municipalidad.
-Las disposiciones de este artículo y las contenidas en los párrafos segundo y tercero anterior, serán aplicables a las contribuciones por construcción de caminos vecinales.
+(Así reformado por el artículo 1º de la ley No. 6890 del 14 de septiembre de 1983).

@@ -1,9 +1,24 @@
-Artículo 76.- Las dietas de los regidores municipales se ajustarán a la siguiente tabla:
-Ingresos ordinarios de la Municipalidad Dietas por sesión
-hasta ¢ 250,000.00 ............ ¢ 50.00
-Más de ¢ 250,000.00 hasta 500,000.00 ............. 60.00
-Más de 500,000.00 hasta 1,000.000.00 ............. 75.00
-Más de 1.000,000.00 hasta 2.500,000.00 ............... 90.00
-Más de 2.500,000.00 hasta 5.000,000.00 ............. 110.00
-Más de 5.000,000.00 hasta 10.000,000.00 ............ 125.00
-Más de 10.000,000,00 ............ 150.00
+Artículo 76.- El monto máximo de las dietas de los regidores municipales, por cada sesión, se ajustará a la siguiente tabla, de acuerdo con el presupuesto ordinario municipal:
+Colones Colones
+Hasta ¢10.000.000 ¢1.000
+De más de ¢10.000.000 hasta ¢20.000.000 ¢1.500
+De más de ¢20.000.000 hasta ¢30.000.000 ¢3.000
+De más de ¢30.000.000 hasta ¢50.000.000 ¢3.250
+De más de ¢50.000.000 hasta ¢100.000.000 ¢3.500
+De más de ¢100.000.000 hasta ¢150.000.000 ¢3.750
+De más de ¢150.000.000 hasta ¢250.000.000 ¢4.000
+De más de ¢250.000.000 hasta ¢500.000.000 ¢4.250
+De ¢500.000.000 en adelante ¢4.500
+El monto máximo de los salarios de los ejecutivos municipales se ajustará, de acuerdo con el presupuesto ordinario municipal, a la siguiente tabla:
+Colones Colones
+Hasta ¢25.000.000 ¢50.000
+De más de ¢25.000.000 hasta ¢50.000.000 ¢65.000
+De más de ¢50.000.000 hasta ¢100.000.000 ¢80.000
+De más de ¢100.000.000 hasta ¢150.000.000 ¢95.000
+De más de ¢150.000.000 hasta ¢250.000.000 ¢110.000
+De más de ¢250.000.000 hasta ¢500.000.000 ¢125.000
+De ¢500.000.000 en adelante ¢140.000
+Las dietas de los regidores y de los síndicos municipales podrán aumentarse en un veinte por ciento (20%) anual, siempre y cuando el presupuesto municipal ordinario correspondiente haya aumentado, en una proporción igual o superior a ese porcentaje, en relación con el año precedente. El salario de los ejecutivos municipales podrá aumentarse en un diez por ciento (10%) anual, cuando se presenten las mismas condiciones establecidas para el aumento de las dietas de los regidores y de los síndicos municipales. No obstante lo anterior, los ejecutivos municipales devengarán un diez por ciento (10%) más del salario máximo pagado por el municipio. La Contraloría General de la República y el Instituto de Fomento y Asesoría Municipal aprobarán los aumentos por estos conceptos.
+De acuerdo con el reglamento que al efecto emita el Concejo, se podrá autorizar el pago de gastos de transporte y, eventualmente, de hospedaje y de alimentación, a los regidores y a los síndicos que, por residir lejos de la sede municipal, deban trasladarse para asistir a las sesiones. El monto por reconocer se determinará con base en las tablas contenidas en el Reglamento de gastos de viaje y de transporte para los funcionarios públicos, emitido por la Contraloría General de la República. Además se creará la partida presupuestaria para darle contenido a este tipo de gastos, que no podrán considerarse viáticos.
+(Así reformado por el artículo 1 de la ley No.7385 de 16 de marzo de 1994)
+(Texto modificado por Resolución de la Sala Constitucional No. 5445-99 de las 14:30 horas del 14 de julio de 1999; adicionada por las sentencias números 06218-99, de las 15:21 horas del 10/08/1999, 09811 de las 15: 21 horas 14/12/1999, 07728 de las 14: 45 horas del 30/08/2000 y 8861-00 de las 14:30 horas del 11/10/2000).

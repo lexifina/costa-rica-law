@@ -1,1 +1,2 @@
-Artículo 13.- Se concede a las municipalidades exención de toda clase de impuestos y cualquier otro beneficio propio de las entidades estatales, con excepción de los impuestos que pague también la misma Administración Central.
+Artículo 13.- Se concede a las municipalidades exención de toda clase de impuestos, contribuciones, tasas y cualquier otro beneficio propio de las entidades estatales, con excepción de los impuestos que pague también la misma Administración Central; sin embargo, las municipalidades quedan exentas del pago del impuesto de ventas.
+(Así reformado por el artículo 1º de la ley Nº 6890 de 14 de septiembre de 1983).

@@ -1,5 +1,2 @@
-Artículo 94.- Por medio de una contribución que se llamará detalle, las municipalidades cobrarán a los propietarios de fincas directamente beneficiadas con caminos vecinales, una cuota anual para el mantenimiento y mejoramiento de éstas vías, pagadera por adelantado.
-La contribución será fijada con sujeción a las siguientes normas:
-a) Una tercera parte del valor de los trabajos se repartirá proporcionalmente a la medida frontal de los fundos colindantes;
-b) Otra tercera parte del valor se distribuirá proporcionalmente a la extensión de las fincas; y
-c) El resto se repartirá en proporción al uso del camino que origine cada inmueble.
+Artículo 94.- DEROGADO
+(Derogado expresamente por el artículo 37 de la Ley de Impuesto sobre Bienes Inmuebles, Nº 7509 de 9 de mayo de 1995 [así reformado por Ley 7729 de 15 de diciembre de 1997])

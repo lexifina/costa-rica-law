@@ -1,1 +1,2 @@
-Artículo 170.- Todos los gastos que se ocasionen para la inscripción del inmueble expropiado en el Registro Público, serán a cargo de la municipalidad.
+Artículo 170.- DEROGADO.-
+(Derogado por el artículo 64, inciso l), de la Ley de Expropiaciones No.7495 del 3 de mayo de 1995)

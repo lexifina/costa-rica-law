@@ -1,3 +1,2 @@
-TÍTULO VIII
-Disposiciones Finales
 Artículo 181.- Se mantienen en vigencia las leyes no derogadas expresamente por este Código que autoricen a las municipalidades a efectuar donaciones en favor de entidades de Derecho Público y las que concedan exoneración de impuestos y contribuciones municipales a estas mismas entidades.
+NOTA: El título VIII -Disposiciones Finales- que comenzaba a partir del presente numeral, fue modificado tácitamente por el artículo 2º de la ley No.6890 del 14 de septiembre de 1983, que lo traspasó inmediatamente después del artículo 184

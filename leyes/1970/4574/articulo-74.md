@@ -1,4 +1,1 @@
-Artículo 74.- La Contraloría General de la República determinará la responsabilidad pecuniaria en que incurran los funcionarios y empleados municipales, en perjuicio de la municipalidad y con motivo de la custodia o administración de los fondos y bienes municipales, siempre que haya evidente culpa o manifiesta violación de ley.
-Previo a decidir, la Contraloría dará audiencia al interesado.
-La resolución será título ejecutivo y la ejecución correspondiente la interpondrá la Contraloría a nombre de la municipalidad respectiva, si ésta no iniciare el cobro judicial dentro del plazo de un mes.
-Los efectos de la resolución de la Contraloría quedarán sin lugar sólo si fuere anulada en la jurisdicción contencioso administrativa, o por sentencia penal firme que la contradiga.
+Artículo 74.- ANULADO por Resolución de la Sala Constitucional No.5445-99 de las 14:30 horas del 14 de julio de 1999; adicionada por las sentencias números 06218-99, de las 15:21 horas del 10/08/1999, 09811 de las 15: 21 horas 14/12/1999, 07728 de las 14: 45 horas del 30/08/2000 y 8861-00 de las 14:30 horas del 11/10/2000.

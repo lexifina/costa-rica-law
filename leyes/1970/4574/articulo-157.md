@@ -1,3 +1,4 @@
 TÍTULO VI
 Expropiaciones
-Artículo 157.- Los bienes inmuebles, sea fincas completas, porciones o derechos que por razón de su ubicación sean precisamente necesarios a juicio de la municipalidad para un servicio de interés público local, podrán ser adquiridos por causa de utilidad pública conforme a las reglas de este Título.
+Artículo 157.- DEROGADO.-
+(Derogado por el artículo 64, inciso l), de la Ley de Expropiaciones No.7495 del 3 de mayo de 1995)

@@ -1,2 +1,3 @@
-Artículo 82.- Las tasas serán pagadas por trimestre vencido y puestas al cobro en un solo recibo. Las patentes se cancelarán por trimestres adelantados.
-El atraso en el pago de cualquier tasa, contribución o impuesto municipal, tendrá un recargo en carácter de multa del 2% por cada mes o fracción, el que no podrá exceder en ningún caso del 24% del monto adecuado.
+Artículo 82.- Las tasas que deben cobrar las municipalidades serán pagas por períodos vencidos y puestas al cobro en un solo recibo. Las patentes se cancelarán por adelantado. A juicio del Concejo, los anteriores cobros serán hechos en forma mensual, bimestrales o trimestral.
+El atraso en el pago de cualquier tributo municipal tendrá un recargo, con carácter de multa, del dos por ciento por cada mes o fracción de mes, el cual no podrá exceder en ningún caso de cincuenta por ciento del monto adeudado. El pago que se efectúe fuera del término indicado obliga al usuario a pagar, conjuntamente con el tributo y la multa que corresponda, intereses calculados al dos por ciento mensual sobre la suma adeudada.
+(Así reformado por el artículo 1º de la ley No. 6890 de 14 de septiembre de 1983 ).

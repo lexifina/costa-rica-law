@@ -1,1 +1,2 @@
-Artículo 162.- Si no hubiere convenio o el propietario no acude al llamado del Ejecutivo, el Concejo podrá acordar la expropiación, razonando el motivo de utilidad pública. Este acuerdo será publicado en el Diario Oficial.
+Artículo 162.- DEROGADO.-
+(Derogado por el artículo 64, inciso l), de la Ley de Expropiaciones No.7495 del 3 de mayo de 1995)

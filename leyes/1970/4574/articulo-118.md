@@ -1,3 +1,3 @@
-Artículo 118.- Los presupuestos ordinarios de las municipalidades deberán someterse a aprobación de la Contraloría General de la República a más tardar el 30 de septiembre de cada año, término que será improrrogable.
+Artículo 118.- Los presupuestos ordinarios de las municipalidades deberán someterse a aprobación de la Contraloría General de la República a más tardar el 30 de setiembre de cada año, término que será improrrogable.
 A todo proyecto de presupuesto ordinario o extraordinario que se remita a la Contraloría se acompañara copia del acta o actas en que se aprobó, en la cual deberá estar transcrito íntegramente el presupuesto, firmada por el Secretario y refrendada por el Ejecutivo.
 Cuando se trate de presupuestos extraordinarios en que se apliquen recursos que no estén reportados en el último informe enviado a la Contraloría, deberá acompañarse certificación del Tesorero Municipal en la que conste que el ingreso se produjo y el monto de lo recaudado.

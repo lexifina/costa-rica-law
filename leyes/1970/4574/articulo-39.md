@@ -1,3 +1,3 @@
-Artículo 39.- El Concejo podrá celebrar las sesiones extraordinarias que fueren necesarias, a la que deberán convocarse regidores propietarios y suplentes y a los síndicos cuando fueren a tratarse asuntos relacionados con el distrito que representen.
-La convocatoria deberá hacerse por lo menos con veinticuatro horas de anticipación y en ella se señalará el objeto de la sesión. Deberá notificarse personalmente o en la casa de habitación del funcionario, pudiéndose hacer por medio de las autoridades del lugar y se dejará en todo caso constancia escrita de la notificación.
-En las sesiones extraordinarias sólo podrán conocerse los asuntos a que se refirió la convocatoria.
+Artículo 39.- El Concejo podrá celebrar las sesiones extraordinarias que fueren necesarias, a las que deberá convocarse a los regidores propietarios, a los suplentes y a los síndicos. La convocatoria deberá hacerse por lo menos con veinticuatro horas de anticipación, con señalamiento del objeto de la sesión, mediante acuerdo municipal o según lo establece el artículo 57.
+En las sesiones extraordinarias sólo podrán conocerse los asuntos incluidos en la convocatoria, además de aquellos que por unanimidad de los presentes se acordare conocer.
+(Así reformado por el artículo 1º de la ley No. 6890 de 14 de septiembre de 1983).
