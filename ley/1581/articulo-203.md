@@ -1,0 +1,1 @@
+Artículo 203.-El Tribunal debe tramitar y resolver los impedimentos, recusaciones y excusas del Actuario. Ningún asunto puede suspenderse por causa de dichos impedimentos o excusas, ni por las recusaciones que se interpongan en contra del Actuario, en cuyo caso la sustanciación correrá a cargo del Presidente.

@@ -1,0 +1,1 @@
+Artículo 180.-Las situaciones no previstas en este título, relativas a deberes y derechos de los servidores, serán resueltas conforme a lo establecido, correspondientemente, en el Título I de este Estatuto.

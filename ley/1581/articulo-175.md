@@ -1,0 +1,1 @@
+Artículo 175.-La justificación de ausencias por enfermedad, deberá hacerse conforme con lo dispuesto por el reglamento de esta ley. Las ausencias y llegadas tardías por otros motivos, deberán ser justificadas conforme con lo que disponga el Reglamento Interno de Trabajo del Ministerio de Educación Pública.

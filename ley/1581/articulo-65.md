@@ -1,0 +1,2 @@
+Artículo 65.-Toda queja o denuncia deberá ser presentada ante el jefe inmediato del servidor denunciado, quien según la gravedad de la misma, la reservará para su conocimiento o la elevará al Director del Departamento de Personal de Ministerio de Educación Pública. Si este funcionario hallare mérito, ordenará la inmediata investigación de cargos, conforme lo previsto en este capítulo.
+En igual forma se procederá cuando, sin mediar queja o denuncia, los hechos llegaren a conocimiento del Director de Personal y éste considerare que procede actuar de oficio.

@@ -1,0 +1,1 @@
+Artículo 75.-Cumplidos los trámites estipulados en los artículos anteriores, el Ministro, salvo que estimare procedente la conmutación prevista en el artículo 62, presentará ante el Tribunal de Servicio Civil, la gestión de despido y el expediente incoado. Dicho Tribunal podrá ordenar, para mejor proveer, las diligencias o pruebas que juzgare indispensables.

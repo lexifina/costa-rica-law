@@ -1,0 +1,2 @@
+Artículo 150.-El Consejo Superior de Educación, podrá reconocer estudios y experiencia no comprendidos en este Capítulo, para que, quienes los posean puedan ser ubicados en los grupos correspondientes del presente escalón.
+En casos muy calificados, el Consejo Superior de Educación podrá, asimismo, reconocer las publicaciones de mérito como factor que permita a sus autores, profesores titulados y autorizados, ascender, dentro de la misma serie, a grupos superiores del escalafón

@@ -1,0 +1,1 @@
+Artículo 193.-El Actuario es un subalterno del Presidente del Tribunal en el orden administrativo y disciplinario; pero goza de independencia funcional y tiene responsabilidad propia. Esta sujeto a los impedimentos, prohibiciones y exigencias que establezcan el Reglamento del Estatuto de Servicio Civil y el Reglamento del Tribunal.

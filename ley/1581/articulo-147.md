@@ -1,0 +1,4 @@
+Artículo 147.-Los profesores autorizados de Enseñanza Superior se clasifican tres grupos, denominados: SAU-3, SAU-2 y SAU-1.
+a) Forman el grupo SAU-3 los doctores, licenciados e ingenieros, todos de nivel universitario, sin los estudios pedagógicos ni la experiencia que se indican en el inciso a) del artículo 146. También las personas comprendidas en el inciso b) del mismo artículo, que hubiesen aprobado los estudios pedagógicos ahí mencionados, pero que no hubiesen cumplido la experiencia que en el mismo texto se exige;
+b) Forman el grupo SAU-2, quienes estén comprendidos en el inciso b) del artículo 146, pero no posean los estudios y la experiencia que en él se indican, ni la experiencia requerida en el inciso c) del mismo artículo; y
+c) Forman el grupo SAU-1, quienes posean título de Profesor de Segunda Enseñanza o de Profesor de Estado.

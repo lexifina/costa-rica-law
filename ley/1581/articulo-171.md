@@ -1,0 +1,2 @@
+Artículo 171.-Las licencias para el aprovechamiento de becas u otras facilidades que otorguen gobiernos o instituciones extranjeras u organismos internacionales, serán otorgadas por el Ministerio del ramo, de acuerdo con la ley Nº 1810 de 5 de octubre de 1954, y las disposiciones de la presente ley.
+Las licencias para que los servidores comprendidos en la Carrera Docente realicen estudios en instituciones educativas del país, se otorgarán con base en el Reglamento de este Estatuto y las normas complementarias que dicte el Ministerio de Educación Pública.

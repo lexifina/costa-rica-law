@@ -1,0 +1,1 @@
+Artículo 149.-Los profesores titulados de Enseñanza Superior y los autorizados de los grupos SAU-3 y SAU-2, que impartan lecciones o realicen trabajos de investigación en un campo ajeno a su especialidad, serán considerados en el grupo SAU-1; por las mismas circunstancias, serán aspirantes, las personas comprendidas en el grupo SAU-1.

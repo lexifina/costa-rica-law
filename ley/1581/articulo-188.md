@@ -1,0 +1,1 @@
+Artículo 188.-El Tribunal celebrará sus reuniones en el local de su asiento, cuando menos dos veces por semana en días distintos, mediante acuerdo o convocatoria que hará su Presidente. El Reglamento Interior fijará días para las votaciones, y establecerá plazos a los miembros del Tribunal para el estudio de los expedientes y para dictar los fallos.

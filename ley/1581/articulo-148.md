@@ -1,0 +1,1 @@
+Artículo 148.-Las personas en los grupos SAU-3 y SAU-2 que llenaren los requisitos de estudios y experiencia exigidos para cada caso, en el artículo 146, podrán concursar para plazas en propiedad y, una vez escogidos de la nómina respectiva, gozarán de los derechos que esta ley confiere a los servidores regulares.

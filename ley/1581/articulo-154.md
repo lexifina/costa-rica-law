@@ -1,0 +1,3 @@
+Artículo 154.-La evaluación y calificación de servicios deberán darse a los funcionarios, regulares o interinos que durante el año escolar realicen trabajos en una misma institución, dirección provincial, oficial o departamento, por espacio de cuatro meses como mínimo, en forma continua o alterna.
+En caso de trabajo menor de 4 meses, el jefe inmediato deberá extender, por triplicado, constancia del tiempo servido, con aprobación de la labor desempeñada por el servidor, bajo los conceptos de Buena o Insuficiente.
+El original lo enviará al Departamento de Personal del Ministerio de Educación Pública y las copias serán; una para el servidor y otra para la respectiva institución u oficina.

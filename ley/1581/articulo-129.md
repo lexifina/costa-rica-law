@@ -1,0 +1,1 @@
+Artículo 129.-Los profesores autorizados de Enseñanza Media que hayan cumplido el mínimo de cinco años de experiencia específica, calificados con nota no inferior a Bueno, podrán concursar para puestos en propiedad y, una vez escogidos de la nómina respectiva, gozarán de los derechos que confiere la presente ley a los servidores regulares.

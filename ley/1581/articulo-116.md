@@ -1,0 +1,1 @@
+Artículo 116.-Los puestos en escuelas primarias para adultos, escuelas laboratorio o de aplicación, serán cubiertos con los profesionales comprendidos en los grupos determinados para la enseñanza primaria, sin perjuicio de los sueldos que para aquellos puestos se establezcan.

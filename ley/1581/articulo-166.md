@@ -1,0 +1,2 @@
+Artículo 166.-Cuando la licencia se conceda al maestro por razón de enfermedad debidamente comprobada, se girará a su favor y por un tiempo no mayor de 6 meses, la mitad del sueldo anterior al disfrute de la licencia. En casos excepcionales puede autorizarse una prórroga de este beneficio hasta por dos trimestres más, si el maestro enfermo demostrare su incapacidad para trabajar, con el testimonio de la Caja Costarricense de Seguro Social.
+(NOTA: Ver observaciones relativas al Decreto Ejecutivo Nº 16635).

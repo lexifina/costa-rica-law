@@ -1,0 +1,2 @@
+Artículo 197.-Corresponde al Tribunal resolver sobre su competencia, de oficio o a solicitud de parte, lo mismo que dictar los autos que decidan sobre defensas previas y excepciones formales del juicio, y practicar las diligencias probatorias que hubiera ordenado para mejor proveer.
+(Nota de Sinalevi: Este tema se regula de conformidad con las disposiciones de los artículos 21 y 22 que regulan el “Procedimiento de Despido“ de la Ley Marco de Empleo Público (LMEP) No. 10159 del 8 de marzo de 2022)

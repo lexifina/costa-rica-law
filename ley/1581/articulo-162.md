@@ -1,0 +1,1 @@
+Artículo 162.-Si la calificación del servidor fuere Insuficiente dos veces consecutivas, o si Inaceptable una vez, previas las advertencias y sanciones del caso, por haber ejercido sus funciones sin la capacidad, dedicación y diligencia mínimas requeridas, tal se considerará falta grave, de conformidad con lo dispuesto en el artículo 43 párrafo segundo de este Estatuto.
