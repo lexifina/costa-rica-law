@@ -1,0 +1,2 @@
+Artículo 2º—Como representante del Ministerio de Trabajo y Seguridad Social, al Doctor William Guevara Barrantes, cédula de identidad número 1-266-725, quien presidirá dicha Junta, en sustitución y por el período restante del Doctor Carlos Domínguez Vargas, cédula de identidad número 1-270-477, quien renunció el 21 de octubre del 2004.
+Como representante de los trabajadores al Doctor Edgar Marín Rogers, cédula de identidad número 1-416-1276. Como representante del Ministerio de Salud, a la Doctora Surá Suárez López, cédula de identidad número 1-1015-972.
