@@ -1,0 +1,1 @@
+Artículo 5º—El Comité podrá administrar cualquier instalación deportiva o recreativa existente en el distrito perteneciente a la Municipalidad, o a cualquier otra institución, que a bien lo tenga en virtud de un convenio. Para ello se formulará y .firmará, en cada caso, un convenio, el cual deberá ser aprobado y ratificado por el Concejo.

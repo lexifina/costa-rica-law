@@ -1,0 +1,1 @@
+Artículo 23.—En la primera sesión de instalación del Comité nombrarán de su seno un presidente, un vicepresidente, un tesorero, un secretario y un vocal y será dirigida por un representante del Concejo.

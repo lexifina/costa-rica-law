@@ -1,0 +1,1 @@
+Artículo 3º—Todo reglamento o manual interno que dicte el Comité, antes de su vigencia deberá ser sometido a consideración y aprobación del Concejo con las modificaciones que este Concejo considere pertinentes. De no suceder así, cualquier disposición reglamentaria que resuelva el Comité no tendrá eficacia ni validez alguna.

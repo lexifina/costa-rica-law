@@ -1,0 +1,1 @@
+Artículo 20.—Para el nombramiento de los dos representantes del Concejo ante el Comité, las y los regidores presentarán los nombres de los candidatos que consideren convenientes en la primera sesión de noviembre y en la sesión siguiente se someterán a votación.

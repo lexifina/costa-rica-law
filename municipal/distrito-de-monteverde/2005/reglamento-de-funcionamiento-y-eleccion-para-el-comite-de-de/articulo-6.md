@@ -1,0 +1,1 @@
+Artículo 6º—Los ingresos financieros que se generen con el usufructo de las instalaciones deberán ser utilizados en el mantenimiento de las mismas, y reflejados e incorporados en el Plan Anual Operativo (PAO), junto con las otras asignaciones monetarias que destine el Concejo.

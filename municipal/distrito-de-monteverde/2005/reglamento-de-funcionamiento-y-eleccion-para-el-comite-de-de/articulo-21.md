@@ -1,0 +1,1 @@
+Artículo 21.—Si a la convocatoria realizada por el Concejo no se hicieran presentes las organizaciones deportivas y recreativas y las otras comunales, el Concejo Municipal queda facultado para establecer cualquier otro procedimiento que garantice la integración del Comité.
