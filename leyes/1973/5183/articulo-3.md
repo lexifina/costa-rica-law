@@ -1,0 +1,5 @@
+Artículo 3º.- Refórmanse los artículos 1º y 10 de la ley para reformar el proceso laboral en negocios de menor cuantía, Nº 3664 del 10 de enero de 1966, reformada por la Nº 4284 del 16 de diciembre de 1968, los cuales se leerán así:
+"Artículo 1º.- Los juicios ordinarios de trabajo cuya cuantía no exceda de tres mil colones (¢ 3,000.00), que se planteen en el cantón central de San José y en los cantones de la provincia de San José, serán de conocimiento de un Tribunal colegiado y se tramitarán y resolverán mediante el procedimiento indicado en la presente ley.
+Cuando lo considere conveniente, la Corte Suprema de Justicia podrá extender este procedimiento a otros cantones y en esos casos será aplicable la presente ley".
+"Artículo 10.- Contra las resoluciones dictadas en esta clase de juicios no se admitirá recurso alguno, salvo el de apelación en el caso de la sentencia a que se refiere el artículo 6º y en los de sentecias dictadas en asuntos cuya cuantía exxceda de mul colones (¢ 1,000.00).
+Las sentencias dictadas por este Tribunal no son consultables".

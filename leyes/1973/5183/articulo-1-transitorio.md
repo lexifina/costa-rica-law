@@ -1,0 +1,1 @@
+Transitorio I.- La Corte Plena hará la distribución de los asuntos entre los dos tribunales y éstos conocerán de los juicios ordinarios cuya cuantía no exceda de tres mil colones que se inicien al entrar en vigencia esta ley. Los que actualmente se tramiten en los Juzgados de Trabajo de San José, continuarán en éstos hasta su fenecimiento.

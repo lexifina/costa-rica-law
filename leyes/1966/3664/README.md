@@ -1,6 +1,6 @@
 # Ley que Regula el Proceso Laboral en Negocios de menor Cuantía
 
-Ley N° 3664 del 1966-01-10. SINALEVI, ficha 68335: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=68335&param2=81513&param3=1>.
+Ley N° 3664 del 1966-01-10. SINALEVI, ficha 68335: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=68335&param2=81515&param3=1>.
 
 Publicada en La Gaceta N° 16 del 1966-01-21.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 5 | 1966-01-31 | Ley 3664 | 1966-01-10 |
 | 2 de 5 | 1968-12-19 | Ley 4284 | 1968-12-16 |
+| 3 de 5 | 1973-07-01 | Ley 5183 | 1973-02-15 |
