@@ -1,0 +1,1 @@
+c) Los futuros proyectos que se desarrollen en estos sectores deberpan considerar regulaciones tendientes a minimizar los efectos que se presenten ante eventuales fenómenos naturales de inundación, erosión o el fenómeno de licuefacción, entre otros.
