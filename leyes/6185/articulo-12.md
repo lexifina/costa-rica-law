@@ -1,0 +1,1 @@
+Artículo 12.-Se autoriza al Ministerio de Gobernación para que de acuerdo con las normas que regulan el establecimiento e instalación de radioemisoras comerciales, se permita el traslado de la emisora que opera en 1 520 Kcs al distrito de Guaicará.

@@ -1,0 +1,3 @@
+Artículo 23.-Se autoriza al Poder Ejecutivo a contratar un préstamo de hasta $10.000.000 (diez millones de dólares) para financiar el proyecto de Reforma Penitenciaria.
+El crédito mencionado deberá tener un plazo mínimo de cinco años incluyendo un período de gracia de por lo menos un año. La tasa de interés no podrá ser superior al 2% sobre la tasa interbancaria de Londres (Libor) para depósitos a seis meses.
+Para el servicio de esta obligación se utilizarán los recursos que el Poder Judicial gira anualmente al Patronato de Construcciones de Adaptación Social de acuerdo al artículo 4º de la ley Nº 4021 reformada por ley Nº 5371 de diciembre de 1975.
