@@ -1,0 +1,9 @@
+# Reforma LOPJ
+
+Ley N° 1964 del 1955-10-21. SINALEVI, ficha 32393: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32393&param2=34174&param3=1>.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 1 | 1955-10-21 | Ley 1964 | 1955-10-21 |
