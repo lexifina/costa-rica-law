@@ -1,0 +1,1 @@
+Artículo XI.—El beneficiario deberá cumplir con el plan de pagos estipulado por la Municipalidad en la escritura otorgada. El beneficiario que incumpla con dicho plan, se le tendrá por vencido el plazo establecido, haciéndose exigible el pago inmediato de la totalidad de la obligación.
