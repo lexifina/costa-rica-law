@@ -1,0 +1,1 @@
+Art 2°.- La Asambleas Electorales a efecto de verificar las elecciones de que hace referencia el artículo lo procedente, se reunirán el día señalado por el art. 38 de la ley de elecciones, n° 38 de diciembre de 1848.
