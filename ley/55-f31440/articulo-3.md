@@ -1,0 +1,1 @@
+Art. 3. Queda asi reformado el artículo 172 seccion 8° del Reglamento de Policía -Dado en el Palacio Nacional, en San José, à los veintitres dias del mes de marzo de mil ochocientos cincuenta y dos Juan Rafael Mora.-El Ministro de Estado en el Despacho de Gobernacion, Joaquin Bernardo Calvo.
