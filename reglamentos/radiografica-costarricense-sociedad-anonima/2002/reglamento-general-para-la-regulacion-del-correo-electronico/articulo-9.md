@@ -1,0 +1,1 @@
+Artículo 8º—Después de que el cliente firme su compromiso de no reincidir en la práctica de correo electrónico masivo o no deseado, RACSA dispondrá de un periodo de dos días hábiles para desbloquear dicha cuenta o dirección IP.
