@@ -48,9 +48,11 @@ CARACTERISTICAS PERSONALES
 Debe observar discreción con respecto a los asuntos que se le encomienden.
 Requiere habilidad para: atender en forma cortés y satisfactoria las relaciones con el público; realizar análisis diversos; redactar informes y otros documentos; resolver situaciones imprevistas; requiere conocimientos instrumentales del idioma inglés, cuando el puesto lo exija. Debe mantener actualizados los conocimientos y técnicas propias del grado profesional que ostente, por cuanto la labor exige de aportes creativos y originales. Buena presentación personal.
 REQUISITOS
-Bachiller universitario en el área de la especialidad del cargo y alguna experiencia en tareas relacionadas con el nivel del puesto.
+Bachiller universitario en el área de la especialidad del cargo.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 19842 del 31 de julio de 1990)
 REQUISITO LEGAL
 Incorporado al Colegio respectivo, en los casos en que dicha entidad lo exija para el ejercicio del correspondiente grado profesional.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 19842 del 31 de julio de 1990)
 PROFESIONAL 2 (G. de E.)
 NATURALEZA DEL TRABAJO
 Ejecución de labores profesionales, científicas y administrativas difíciles, en las cuales debe aplicar los principios teóricos y prácticos de una profesión adquirida en una institución de enseñanza superior.

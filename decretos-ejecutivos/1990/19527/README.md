@@ -14,3 +14,4 @@ Reforma Manual Descriptivo Clases Administración Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-03-15 | la propia norma |
+| 2 | 1990-07-31 | Decreto Ejecutivo 19842 (1990-07-31) |
