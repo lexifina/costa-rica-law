@@ -1,0 +1,1 @@
+Artículo 20.—Subordinación a la Junta Directiva. Se encuentra subordinado a la Junta Directiva y se encarga de ejecutar los acuerdos de Junta Directiva, de establecer las políticas y lineamientos administrativos del ICCC.

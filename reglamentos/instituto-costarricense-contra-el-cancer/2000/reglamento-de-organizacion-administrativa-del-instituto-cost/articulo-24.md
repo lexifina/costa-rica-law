@@ -1,0 +1,1 @@
+Artículo 24.—Comité Director: Promueve y mantiene el apoyo político de las instancias gubernamentales que dan impulso al fortalecimiento del Sistema Oncológico de Costa Rica. En adelante conocido por las siglas CD.

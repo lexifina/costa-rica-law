@@ -1,0 +1,1 @@
+Artículo 8º—Área de Servicios Generales: Se encarga del proceso de adquisición de bienes y servicios para el ICCC incluyendo adquisición, y despacho. También se encarga del mantenimiento de edificio, vigilancia, impresos y consejería.

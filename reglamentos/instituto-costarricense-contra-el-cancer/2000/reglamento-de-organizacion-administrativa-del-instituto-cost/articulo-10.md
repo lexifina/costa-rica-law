@@ -1,0 +1,1 @@
+Artículo 10.—Área de Planeamiento y Desarrollo: Es la encargada de dar seguimiento al cumplimiento de los programas y proyectos y asesora a la Administración General en la definición de los planes y estrategias a seguir para el cumplimiento de las actividades.

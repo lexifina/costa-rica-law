@@ -1,0 +1,1 @@
+Artículo 27.—Del Comité Técnico: Asesora a la Junta Directiva del Instituto Costarricense Contra el Cáncer en los aspectos técnicos de la prevención, diagnóstico, tratamiento y cuidado paliativo en Oncología.

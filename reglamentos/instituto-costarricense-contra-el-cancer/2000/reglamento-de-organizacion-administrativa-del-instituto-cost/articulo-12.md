@@ -1,0 +1,1 @@
+Artículo 12.—Para su Implantación: Para proceder a la implantación de la estructura organizativa se procederá a la elaboración del Manual de Funcionamiento y Organización y el Manual de Actividades Ocupacionales que incluye a cada una de las áreas que conforman el ICCC.
