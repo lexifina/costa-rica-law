@@ -1,12 +1,6 @@
 SECCION II
 De las prohibiciones
-Artículo 104—Prohibiciones
-Prohíbese lo siguiente, a las personas físicas o jurídicas, a los agentes y a los propietarios de las agencias de seguridad privada:
-a) Mantener, en sus empresas, un número de agentes de seguridad que supere el uno por ciento del total de miembros de las fuerzas de policía, calculado según las estimaciones presupuestarias de cada año.
-b) Fundar o inscribir varias empresas encargadas de este servicio.
-c) Irrespetar su ámbito de acción, sin que se le haya autorizado formalmente para abarcar otros sitios o sectores.
-d) Vender, alquilar, ceder o negociar, en cualquier otra forma, el permiso otorgado.
-e) Detener, interrogar, requisar o, de cualquier manera, privar de la libertad a una persona; excepto si se encuentra cometiendo flagrante delito.
+Artículo 104—(Derogado por el artículo 55 de la Ley de Regulación de los Servicios de Seguridad Privados, N° 8395 del 1° de diciembre de 2003)
 (Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 92 al 95 actual)
 (Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 95 al 102 actual)
 (Así corrida su numeración por el artículo 3° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 102 al 104 actual)
