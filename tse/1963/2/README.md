@@ -14,3 +14,4 @@ Reforma Integral Reglamento del Registro del Estado Civil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1963-10-08 | la propia norma |
+| 2 | 1967-08-30 | Decreto TSE 34 (1967-08-30) |
