@@ -128,4 +128,4 @@ Se cobrará un monto igual a los rubros establecidos para la emisión y registro
 Se establece una tarifa equivalente al 25% del valor de la emisión de la licencia original.
 8. Reproducción de certificados de validez de licencias.
 Se establece una tarifa equivalente al 25% de la emisión de la licencia original.
-(Así reformado por el artículo 1° del Decreto Ejecutivo N° 22861 de 04 de febrero de 1994).
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 22861 de 04 de febrero de 1994 , posteriormente mediante el artículo 1° del Decreto Ejecutivo N° 23007 de 07/03/1994, que reforma al N° 22861 se indica que la reforma del inciso h) del artículo 12 rige a partir del 1° de octubre de 1993).
