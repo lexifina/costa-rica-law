@@ -1,0 +1,4 @@
+Art 2° Para las que se designen con el nombre de “rezagadas” por corresponder a una época más remota, se establece un Tribunal de Rezagos compuesto de tres individuos, entre los cuales se contará el Oficial Mayor de la Cámara de Representantes, durante el receso de este alto Cuerpo, según está dispuesto por decreto número 13 de 9 de octubre de 1861; debiendo ser los otros dos nombrados por el Gobierno.
+1° La duración de este Tribunal es temporal, mientras haya “cuentas rezagadas” que visar.
+2° Sus obligaciones son las que determine el capítulo 5° sección 1° del Reglamento de Hacienda de 30 de julio 1858.
+3° En cuanto a la dotación de que han de disfrutar los individuos que nuevamente deban nombrarse, será la misma que asigna al 2° Contador del Tribunal el art 4 de la Tarifa número 8 de 23 de setiembre de 1852.
