@@ -12,7 +12,8 @@ papilomatosis, pseudo-rabia (E. de Aujeszky), paratuberculosis,
 parainfluenza 3, piroplasmosis, rabia - hinotraqueítis bovina,
 septicemia hemorrágica, salmonelosis, tuberculosis, tripanosomiasis,
 tricomoniasis, viruela, vibriosis antrax, diatesis hemorrágica,
-mamilitis herpética bovina.
+mamilitis herpética bovina; encefalopatía espogiforme bovina (EEB).
+(Así reformado por el artículo 4° del Decreto Ejecutivo N° 29285- MAG- S, del 5 de febrero de 2001)
 Equinos: Artritis viral equina, durina, exantema, vesiculoso genital,
 linfangitis epizoótica, muermo, peste equina africana, rhinoneumonitis
 equina, anemia infecciosa equina, adenitis equina, estomatitis
