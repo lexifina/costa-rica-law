@@ -14,3 +14,4 @@ Establece zonas de pesca en las aguas interiores y territoriales, de los mares P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-02-06 | la propia norma |
+| 2 | 1992-11-16 | Decreto Ejecutivo 21761 (1992-11-16) |
