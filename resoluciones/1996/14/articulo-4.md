@@ -1,0 +1,1 @@
+Artículo 4°-La Dirección General de la Tributación Directa, comunicará a las diferentes municipalidades del país los aumentos originados con motivo de la revaluación en el valor de los inrnuebles, sujetos al pago del impuesto sobre bienes inmuebles, para los efectos correspondientes.
