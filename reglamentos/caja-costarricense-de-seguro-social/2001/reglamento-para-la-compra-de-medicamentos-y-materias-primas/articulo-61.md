@@ -1,3 +1,5 @@
 Articulo 61.—La recomendación técnica, previa a la adjudicación, será emitida por la Comisión asignada, dentro de los 10 días hábiles siguientes a la fecha de recibo de la solicitud.
 De acuerdo con los topes que establezca la Junta Directiva de la Caja, la instancia correspondiente adjudicará dentro de los 10 días hábiles posteriores a la recomendación; salvo que se requieran nuevos estudios o criterios, considerando siempre los plazos de vigencia de las ofertas.
 La adjudicación se comunicará a los participantes en el concurso, dentro de los 2 días hábiles siguientes al acto, en concordancia con las disposiciones vigentes, dejándose constancia de la notificación.
+Cuando el concurso responda a una compra urgente del productos y así conste en el expediente no se aceptarán recursos de revocatoria a las decisiones adoptadas de frente al interés público y la atención médico asistencial de los pacientes en riesgo.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 7853 del 29 de abril de 2004)

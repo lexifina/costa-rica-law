@@ -81,3 +81,5 @@ articulo-79.md
 articulo-80.md
 articulo-80-bis.md
 articulo-81.md
+articulo-1-anexo.md
+articulo-2-anexo.md
