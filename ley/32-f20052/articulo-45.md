@@ -1,0 +1,1 @@
+Artº 45.-Quando tenga Dicipulos adelantados, podrá encargarlos de estos oficios, dedicandose en la hora y media de clase al examen del estado de cada uno, enseñanza de los adelantados y correccion de los defectos.

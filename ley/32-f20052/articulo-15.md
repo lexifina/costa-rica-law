@@ -1,0 +1,1 @@
+Artº 15.-Residirá en la Casa todo el tiempo que haya enseñanza, manejará sus llabes principales y zelará mientras esté allí la asistencia de los Maestros, llevando al efecto un libro de fallas que pasará mesal al Tesorero para el descuento de ellas en el pago de los Maestros.

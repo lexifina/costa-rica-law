@@ -1,0 +1,1 @@
+Artº 41.-Desde luego que se entable la escuela en el termino de un mes, habrá el Maestro colocado todos los asientos de sus Dicipulos en dicho orden gerarquico, y fijado en la puerta la lista de ellos, con la nota de benemeritos á los que se distingan por su aplicacion, y virtudes.

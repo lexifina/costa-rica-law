@@ -1,0 +1,1 @@
+Artº 67.-El Rector en los casos que le toca aplicar pena usará de la del sepo sin poder pasar de un dia por primera vez: por segunda pondrá el defecto del niño en conocimiento de su Padre, ó en quien haga sus veces, y por tercera, si huviere peligro de que los demas niños se corrompan como incorregible, se le expelerá avisando á su Padre.

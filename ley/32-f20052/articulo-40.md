@@ -1,0 +1,1 @@
+Artº 40.-En la escuela se usará de los castigos siguientes: por el desaseo, inquietud, ú otros defectos leves se les hincará sin poder pasar de media hora: por los de lecciones, y asistencia se les bajará en el orden gerarquico de los asientos, y si reinsidiesen se les aplicará la palmeta; mas sin pasar el numero de dos palmetásos.

@@ -1,0 +1,1 @@
+Artº 39.-El Maestro en el tiempo en que escriban estos y lean lo otros les dirigirá; en el que estudien les explicará dividiendolos por decurias, según los ramos y adelantamientos de cada uno; y en la media hora ultima tomará las planas.
