@@ -1,0 +1,1 @@
+Artículo 3°-Los beneficios que por este decreto se otorgan a "Crown Cork Centroamericana Sociedad Anónima", podrán ser modificados o regulados por el Ministerio de Economía, Industria y Comercio en virtud de convenios, protocolos, Acuerdos, resoluciones o cualquier otra disposición de los organismos del Tratado General de Integración Económica Centroamericana.
