@@ -21,11 +21,20 @@ funcionarios equivalentes de otras organizaciones internacionales;
 e) En relación con el régimen de cambio se les concederán
 franquicias iguales a las que disfruten los funcionarios de categoría
 equivalente de otros organismos internacionales;
-f) Podrán importar y exportar, libres de derechos, sus muebles y
-efectos personales. A los funcionarios del Consejo se les autorizará la
-internación temporal de sus respectivos vehículos, prorrogables por todo
-el tiempo que permanezcan en el país, en el desempeño de sus puestos
-oficiales.
+f) Podrán importar y exportar siempre que no sean costarricenses o
+extranjeros residentes permanentes en el país, libre de derechos
+arancelarios, Consumo y Ventas, los artículos de consumo y uso personal.
+(Así reformado por el artículo 1º del Protocolo de Modificación a
+este Acuerdo, ley No.5104 del 15 de noviembre de 1972)
+g) Podrán importar o exportar libre de derechos arancelarios,
+Consumo y Ventas, un automóvil para su uso personal al tiempo de su
+llegada al país. Esta franquicia podrá ser usada con intervalos de dos
+años contados a partir de la fecha de otorgada por primera vez. Los
+funcionarios favorecidos con ella podrán vender sus vehículos dentro del
+régimen fijado para los funcionarios diplomáticos acreditados ante el
+Gobierno de Costa Rica.
+(Así adicionado por el artículo 1º del Protocolo de Modificación a
+este Acuerdo, ley No.5104 del 15 de noviembre de 1972)
 Sección Novena.- El Secretario Ejecutivo del Consejo comunicará al
 Gobierno los nombres de los funcionarios y demás miembros del personal
 internacional en Costa Rica a quienes se extiendan los beneficios
