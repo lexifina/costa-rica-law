@@ -1,2 +1,1 @@
-ARTICULO 118.- Vigencia
-Rige a partir de su publicación.
+Artículo 118.- Vigencia. Rige a partir de su publicación.

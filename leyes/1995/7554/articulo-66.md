@@ -1,6 +1,1 @@
-ARTICULO 66.- Responsabilidad del tratamiento de los vertidos
-En cualquier manejo y aprovechamiento de agua susceptibles de
-producir contaminación, la responsabilidad del tratamiento de los vertidos
-corresponderá a quien produzca la contaminación. La autoridad competente
-determinará la tecnología adecuada y establecerá los plazos necesarios
-para aplicarla.
+Artículo 66.- Responsabilidad del tratamiento de los vertidos. En cualquier manejo y aprovechamiento de agua susceptibles de producir contaminación, la responsabilidad del tratamiento de los vertidos corresponderá a quien produzca la contaminación. La autoridad competente determinará la tecnología adecuada y establecerá los plazos necesarios para aplicarla.

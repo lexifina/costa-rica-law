@@ -1,6 +1,1 @@
-ARTICULO 40.- Definición de humedales
-Los humedales son los ecosistemas con dependencia de regímenes
-acuáticos, naturales o artificiales, permanentes o temporales, lénticos o
-lóticos, dulces, salobres o salados, incluyendo las extensiones marinas
-hasta el límite posterior de fanerógamas marinas o arrecifes de coral o,
-en su ausencia, hasta seis metros de profundidad en marea baja.
+Artículo 40.- Definición de humedales. Los humedales son los ecosistemas con dependencia de regímenes acuáticos, naturales o artificiales, permanentes o temporales, lénticos o lóticos, dulces, salobres o salados, incluyendo las extensiones marinas hasta el límite posterior de fanerógamas marinas o arrecifes de coral o, en su ausencia, hasta seis metros de profundidad en marea baja.

@@ -1,1 +1,0 @@
-Transitorio II.- Previa consulta con los organismos representativos del sector productivo, los entes competentes establecerán los plazos prudenciales para controlar y reducir la contaminación; asimismo, promoverán los medios, para que el sector productivo integre ambos procesos dentro de sus actividades.

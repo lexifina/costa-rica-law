@@ -1,5 +1,1 @@
-ARTICULO 83.- Creación de la Secretaría Técnica Nacional Ambiental
-Se crea la Secretaría Técnica Nacional Ambiental, como órgano de
-desconcentración máxima del Ministerio del Ambiente y Energía, cuyo
-propósito fundamental será entre otros armonizar el impacto ambiental con
-los procesos productivos.
+Artículo 83.- Creación de la Secretaría Técnica Nacional Ambiental. Se crea la Secretaría Técnica Nacional Ambiental, como órgano de desconcentración máxima del Ministerio del Ambiente y Energía, cuyo propósito fundamental será entre otros armonizar el impacto ambiental con los procesos productivos.

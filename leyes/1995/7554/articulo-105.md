@@ -1,10 +1,2 @@
-ARTICULO 105.- Requisitos de los miembros del Tribunal
-Para ser miembro del Tribunal Ambiental Administrativo, se requiere
-ser profesional con experiencia en materia ambiental. Un miembro
-propietario y su respectivo suplente, deberán ser abogados.
-Los miembros deben trabajar a tiempo completo y ser personas que, en
-razón de sus antecedentes, títulos profesionales y reconocida competencia
-en la materia, sean garantía de imparcialidad y acierto en el desempeño de
-sus funciones. Anualmente, este Tribunal elegirá de su seno un presidente,
-un vicepresidente y un secretario. El reglamento interno regulará su
-reposición por parte de los suplentes.
+Artículo 105.- Requisitos de los miembros del Tribunal. Para ser miembro del Tribunal Ambiental Administrativo, se requiere ser profesional con experiencia en materia ambiental. Un miembro propietario y su respectivo suplente, deberán ser abogados.
+Los miembros deben trabajar a tiempo completo y ser personas que, en razón de sus antecedentes, títulos profesionales y reconocida competencia en la materia, sean garantía de imparcialidad y acierto en el desempeño de sus funciones. Anualmente, este Tribunal elegirá de su seno un presidente, un vicepresidente y un secretario. El reglamento interno regulará su reposición por parte de los suplentes.

@@ -1,5 +1,1 @@
-ARTICULO 68.- Prevención de la contaminación del suelo
-Es obligación de las personas, físicas o jurídicas, públicas o
-privadas, evitar la contaminación del suelo por acumulación,
-almacenamiento, recolección, transporte o disposición final inadecuada de
-desechos y sustancias tóxicas o peligrosas de cualquier naturaleza.
+Artículo 68.- Prevención de la contaminación del suelo. Es obligación de las personas, físicas o jurídicas, públicas o privadas, evitar la contaminación del suelo por acumulación, almacenamiento, recolección, transporte o disposición final inadecuada de desechos y sustancias tóxicas o peligrosas de cualquier naturaleza.

@@ -1,6 +1,1 @@
-ARTICULO 109.- Asesoramiento al Tribunal
-El Tribunal Ambiental Administrativo tiene la obligación de
-asesorarse por la Secretaría Técnica Nacional Ambiental, cuando el caso
-planteado en la denuncia así lo amerite. También, puede ser asesorado por
-cualquier organismo, nacional e internacional o por personas físicas o
-jurídicas.
+Artículo 109.- Asesoramiento al Tribunal. El Tribunal Ambiental Administrativo tiene la obligación de asesorarse por la Secretaría Técnica Nacional Ambiental, cuando el caso planteado en la denuncia así lo amerite. También, puede ser asesorado por cualquier organismo, nacional e internacional o por personas físicas o jurídicas.

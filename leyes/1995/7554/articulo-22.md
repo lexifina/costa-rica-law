@@ -1,12 +1,2 @@
-ARTICULO 22.- Expediente de la evaluación
-Las personas, físicas o jurídicas, públicas o privadas, tendrán el
-derecho a ser escuchadas por la Secretaría Técnica Nacional Ambiental, en
-cualquier etapa del proceso de evaluación y en la fase operativa de la
-obra o el proyecto. Las observaciones de los interesados serán incluidas
-en el expediente y valoradas para el informe final.
-Dentro de los cinco días hábiles siguientes al recibo de una
-evaluación de impacto ambiental, la Secretaría Técnica Nacional Ambiental
-remitirá un extracto de ella a las municipalidades en cuya jurisdicción se
-realizará la obra, la actividad o el proyecto. Asimismo, le dará profusa
-divulgación, por los medios de comunicación colectiva, a la lista de
-estudios sometidos a su consideración.
+Artículo 22.- Expediente de la evaluación. Las personas, físicas o jurídicas, públicas o privadas, tendrán el derecho a ser escuchadas por la Secretaría Técnica Nacional Ambiental, en cualquier etapa del proceso de evaluación y en la fase operativa de la obra o el proyecto. Las observaciones de los interesados serán incluidas en el expediente y valoradas para el informe final.
+Dentro de los cinco días hábiles siguientes al recibo de una evaluación de impacto ambiental, la Secretaría Técnica Nacional Ambiental remitirá un extracto de ella a las municipalidades en cuya jurisdicción se realizará la obra, la actividad o el proyecto. Asimismo, le dará profusa divulgación, por los medios de comunicación colectiva, a la lista de estudios sometidos a su consideración.

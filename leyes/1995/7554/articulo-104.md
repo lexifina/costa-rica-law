@@ -1,5 +1,1 @@
-ARTICULO 104.- Integración del Tribunal
-El Tribunal Ambiental Administrativo estará integrado por tres
-miembros propietarios y tres suplentes, todos de nombramiento del Consejo
-Nacional Ambiental, por un período de seis años. Serán juramentados por el
-Presidente de este Consejo.
+Artículo 104.- Integración del Tribunal. El Tribunal Ambiental Administrativo estará integrado por tres miembros propietarios y tres suplentes, todos de nombramiento del Consejo Nacional Ambiental, por un período de seis años. Serán juramentados por el Presidente de este Consejo.

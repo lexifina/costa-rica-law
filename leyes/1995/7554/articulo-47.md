@@ -1,5 +1,1 @@
-ARTICULO 47.- Actividades de interés público
-La investigación, la explotación y la comercialización de la
-diversidad biológica deberán reconocerse como actividades de interés
-público. La explotación y la comercialización de la flora y la fauna
-silvestres como bienes de dominio público, serán reguladas por el Estado.
+Artículo 47.- Actividades de interés público. La investigación, la explotación y la comercialización de la diversidad biológica deberán reconocerse como actividades de interés público. La explotación y la comercialización de la flora y la fauna silvestres como bienes de dominio público, serán reguladas por el Estado.

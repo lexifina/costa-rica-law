@@ -1,7 +1,7 @@
 ARTICULO 79.- Integración
 El Consejo Nacional Ambiental estará integrado por:
-a) El Presidente de la República o, en su representación, el Ministro
-de la Presidencia, quien lo presidirá.
+a) El Presidente de la República o, en su representación, el
+Ministro de la Presidencia, quien lo presidirá.
 b) El Ministro de Planificación Nacional y Política Económica.
 c) El Ministro del Ambiente y Energía.
 d) El Ministro de Salud.
