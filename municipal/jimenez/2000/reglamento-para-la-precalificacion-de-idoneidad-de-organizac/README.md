@@ -14,3 +14,4 @@ Reglamento para la Precalificación de Idoneidad de Organizaciones No Gubernamen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-09 | la propia norma |
+| 2 | 2000-09-09 | Ley 8 |
