@@ -5,4 +5,4 @@ Artículo 7º.- Cuando fallezca un funcionario que goce de jubilación o que tuv
 4º.- La viuda;
 5º.- Los hermanos huérfanos del jubilado fallecido, menores de edad, que a la fecha del fallecimiento estuvieren a su cargo; y
 6º.- Los padres.
-El derecho que establece el presente artículo será igual al 75% de lo que gozaba o hubiere gozado el causante.
+El derechos que establece el presente artículo será igual al 75% de lo que gozaba o hubiere gozado el causante.
