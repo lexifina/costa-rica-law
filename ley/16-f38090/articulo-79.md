@@ -1,0 +1,1 @@
+Artículo 79.—Todo oro físico que se traiga al país en pago de exportaciones, deberá venir consignado al Departamento Emisor, el cual pagará su equivalente en colones al tipo de cambio del día, o, previa autorización de la Junta de Control, en divisas.

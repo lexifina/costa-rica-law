@@ -1,0 +1,1 @@
+Artículo 180.—Los fondos que el Banco entregue a los prestatarios y que estén garantizados con prenda de futuras cosechas, de mejoras por hacer o de bienes muebles a cuya adquisición se destina el préstamo, serán inembargables.

@@ -1,0 +1,1 @@
+Artículo 151.—Sin perjuicio de lo dispuesto en el artículo anterior, el Banco se reservará el derecho de efectuar pagos extraordinarios, determinando por sorteo los bonos que han de retirarse. Los bonos sorteados dejarán de devengar intereses desde la fecha señalada para dicha amortización.

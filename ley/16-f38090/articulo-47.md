@@ -1,0 +1,1 @@
+Artículo 47.—Los miembros propietarios y suplentes del Consejo, a excepción del presidente, serán elegidos por un período de dos años. Una vez vencido este plazo, podrán ser reelectos para períodos sucesivos iguales.

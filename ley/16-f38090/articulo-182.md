@@ -1,0 +1,3 @@
+Artículo 182.—Los préstamos se otorgarán en moneda nacional o extranjera.
+Si el préstamo se estipula en una moneda extranjera, el Banco entregará al prestatario la suma que deba recibir, ya sea en letras bancarias o cheques pagaderos a la vista en la moneda respectiva, o bien su equivalente en colones al tipo cíe cambio del día en que se efectúe la entrega del dinero, a opción del Banco.
+El prestatario, a su vez, quedará obligado a hacer todos los pagos, ya sea en letras bancarias o cheques pagaderos a la vista en la respectiva moneda extranjera, o bien en colones al tipo de cambio que rija en la fecha del pago.

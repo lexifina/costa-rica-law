@@ -1,0 +1,1 @@
+Artículo 126.—Los bonos hipotecarios se admitirán como garantía para las operaciones a que se refieren los párrafos segundos de los incisos 1) y 2) del artículo 85 de esta ley, así como para todos los casos en que las leyes exijan fianza.

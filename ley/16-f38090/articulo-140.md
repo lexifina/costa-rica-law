@@ -1,0 +1,1 @@
+Artículo 140.—Ninguna serie podrá emitirse sin previa aprobación de la Junta, por no menos de cuatro votos. La Junta determinará también las operaciones a que se destinará el producto de la emisión. Cada emisión necesitará la autorización por escrito del Superintendente de Bancos.

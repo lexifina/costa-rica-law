@@ -1,0 +1,2 @@
+Artículo 55.—Tres miembros del Consejo, propietarios y suplentes en su caso, formarán quorum. Los acuerdos se tomarán, salvo disposición legal en contrario, por mayoría de votos.
+El miembro del Consejo elegido por los bancos no podrá asistir a las sesiones en que se haya de discutir o votar negocio alguno que se refiera a préstamos, descuentos, u otras operaciones con el banco de que sea director, gerente, personero o empleado, ni en negocio alguno que implique relaciones entre dicho banco y el Departamento Emisor. En tales casos asistirá el suplente respectivo.

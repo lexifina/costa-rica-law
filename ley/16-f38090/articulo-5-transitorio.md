@@ -1,0 +1,1 @@
+Artículo 5°—Con fecha I9 de enero de 1937, la Junta Directiva hará el traspaso de las cuentas del Banco Internacional a los libros de los tres Departamentos del Banco Nacional, distribuyendo el activo y el pasivo entre ellos, de acuerdo con la naturaleza especial de cada una de las cuentas, y de conformidad con las disposiciones especiales de la presente ley.

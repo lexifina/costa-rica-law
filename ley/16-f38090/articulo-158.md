@@ -1,0 +1,3 @@
+Artículo 158.—El capital pagado por concepto de las operaciones a que se refieren los dos artículos anteriores, se destinará al fondo de amortización de las cédulas mencionadas.
+Si después de aplicado este fondo a las amortizaciones ordinarias quedare un remanente, éste será utilizado para efectuar amortizaciones extraordinarias. El saldo que quedare, después de efectuadas las amortizaciones extraordinarias, se destinará al fondo de amortización del trimestre siguiente.
+En caso de que el fondo de amortización de un trimestre no alcanzare a cubrir las amortizaciones ordinarias, el Departamento completará el fondo con una parte correspondiente de sus reservas.

@@ -1,0 +1,1 @@
+Artículo 133.—Los bonos que el Departamento reciba de acuerdo con el artículo anterior, serán amortizados. Si el pago se efectuare en dinero, éste ingresará en el fondo de amortización correspondiente al mismo trimestre.

@@ -1,0 +1,1 @@
+Artículo 125.—El conjunto de las hipotecas de largo plazo constituidas a favor del Banco responderá preferentemente a los bonos en circulación, los cuales estarán además garantizados con el activo general del Banco.

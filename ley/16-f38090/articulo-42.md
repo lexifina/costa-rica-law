@@ -1,0 +1,1 @@
+Artículo 42.—La Junta tendrá a su cargo la administración interna del Departamento Emisor, pero no tendrá intervención en las operaciones de este Departamento, las cuales se regirán por los acuerdos de su Consejo Directivo.

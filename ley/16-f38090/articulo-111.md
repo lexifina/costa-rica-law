@@ -1,0 +1,3 @@
+Artículo 111.—El que solicitare un préstamo, deberá dirigirse por escrito al Departamento, indicando el monto del préstamo, los fines a que lo destinará y el inmueble que ofrece en garantía, y' acompañará los títulos de propiedad o certificación del Registro, y demás documentos que puedan servir para la estimación de su valor, con indicación de los gravámenes que tuviere.
+Toda solicitud de préstamo, después de ser debidamente examinada y establecidas las condiciones referentes al monto del préstamo, su garantía, y la capacidad del deudor para pagar las anualidades, necesitará la aprobación de la Junta en la forma indicada en el artículo 104 de esta ley.
+Una vez aceptada la operación, se procederá al otorgamiento de la escritura y a la emisión de los bonos.

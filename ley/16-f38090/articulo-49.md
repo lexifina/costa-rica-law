@@ -1,0 +1,1 @@
+Artículo 49.-—En caso de que los bancos comerciales no eligieren sus representantes dentro del plazo señalado, la elección será efectuada por la Junta Directiva General del Banco Nacional, y las personas así designadas servirán el cargo por el período legal.

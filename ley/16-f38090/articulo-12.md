@@ -1,0 +1,1 @@
+Artículo 12.—El Presidente y el Vicepresidente de la Junta serán designados por un período de un año, que podrá ser prorrogados por períodos iguales. Serán inamovibles durante el período de su cometido, salvo los casos previstos en el artículo 9° de esta ley.

@@ -1,0 +1,1 @@
+Artículo 160.—El capital pagado mediante la amortización o cancelación de las operaciones a que. se refiere el artículo anterior, será destinado por el Departamento Hipotecario a la concesión de nuevos préstamos hipotecarios.

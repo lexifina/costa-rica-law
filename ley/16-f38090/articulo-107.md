@@ -1,0 +1,1 @@
+Artículo 107.—Los préstamos que otorgue el Departamento Hipotecario deberán ser garantizados con primera hipoteca, y el monto de ellos no podrá ser superior, en ningún caso, a la mitad del valor del inmueble que se da en garantía.

@@ -1,0 +1,1 @@
+Artículo 96. — De las reservas a que se refiere el articulo 22 de esta ley, se destinará a fondo de reserva legal del Departamento hipotecario, la suma de dos millones quinientos mil colones (¢ 2.500,000.00).

@@ -1,0 +1,2 @@
+Artículo 52.—En los casos en que se produjeren vacancias, si se tratare del representante del Estado, la designación del sucesor la deberá hacer el Poder Ejecutivo dentro de quince días después de la fecha del aviso respectivo del Consejo; y si se tratare representante de los bancos, la elección del deberá efectuarse dentro de un mes a contar de la fecha de haberse declarado vacante el cargo respectivo.
+Las personas así designadas servirán el cargo respectivo durante el resto del período legal.

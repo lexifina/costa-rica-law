@@ -1,4 +1,4 @@
-Artículo 17.—El bono de prenda deberá contener, además:
+Artículo 17.—El vale de prenda (*) deberá contener, además:
 a) El nombre de su tomador;
 b) El importe del crédito que representa;
 c) El tipo del interés pactado;
@@ -6,4 +6,5 @@ d) La fecha de vencimiento del crédito, que no podrá posterior a la fecha en q
 e) La firma del tenedor del certificado respectivo que negocie el bono por primera vez;
 f) La firma de los posteriores endosantes del bono, si no los hubiere;
 g) La mención, suscrita por el Almacén, de haberse hecho la anotación correspondiente en, el certificado de depósito y en los registros respectivos.
-El Almacén y el tenedor del certificado de depósito correspondiente responderán de los daños y perjuicios que ocasionen las omisiones o inexactitudes que contengan los bonos de prenda.
+El Almacén y el tenedor del certificado de depósito correspondiente responderán de los daños y perjuicios que ocasionen las omisiones o inexactitudes que contengan los vale de prenda (*).
+(*)(Modificada su denominación por el artículo 199 de la ley N° 16 del 5 de noviembre de 1936, "Ley Orgánica del Banco Nacional de Costa Rica")

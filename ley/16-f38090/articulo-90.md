@@ -1,0 +1,2 @@
+Artículo 90.—El Consejo Directivo fijará, y podrá variar cuando lo estime conveniente, las tasas de redescuento, descuento e interés que el Departamento cobrará sobre las operaciones a que se refiere el artículo 85 de esta ley. Del mismo modo podrá fijar cuando lo estime conveniente, las tasas de descuento e interés que el Departamento Comercial cobrará en sus operaciones.
+Dichas tasas regirán en forma igual para la oficina central y las agencias y sucursales del Banco.

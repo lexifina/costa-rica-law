@@ -1,0 +1,2 @@
+Artículo 53.—Los miembros del Consejo desempeñarán su cometido con absoluta independencia del Poder Ejecutivo, el cual no podrá hacer conocer su criterio en las decisiones del Consejo sino por la voz y el voto de su representante.
+Los miembros del Consejo serán responsables de su gestión en el manejo del Departamento, y pesa sobre ellos cualquier responsabilidad que conforme a las leyes pueda atribuírseles.

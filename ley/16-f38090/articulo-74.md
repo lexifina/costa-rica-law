@@ -1,0 +1,6 @@
+Artículo 74.— La fijación de los tipos de cambio se hará con arreglo a las siguientes disposiciones:
+La Comisión de Cambios se reunirá cada mañana para fijar el tipo de cambio del dólar americano, tomando en cuenta como factores informativos : el volumen de las transacciones en divisas efectuadas por el Banco y los bancos comerciales el día anterior; los precios cobrados y pagados en esas transacciones ; el excedente de compras o de ventas efectuadas por los bancos comerciales; y los informes de la Junta de Control sobre las operaciones de compra, giro, venta y aplicación al pago de cobranzas realizadas o autorizadas.
+Las cotizaciones de las demás monedas extranjeras se fijarán en relación con la del dólar, y sobre la base de los tipos de cambio en Nueva York.
+Se exceptúan las monedas de los países que, a causa de su legislación de divisas o del procedimiento de compensaciones que aplican, no permiten al exportador la libre disposición del producto de sus ventas en el lugar del pago. Estas monedas se cotizarán al tipo de cambio que determine el Consejo tomando en cuenta el valor que tengan en el mercado nacional.
+Si fuere necesario, la Comisión podrá variar los tipos de cambio durante el día.
+Las facultades de la Comisión de Cambios quedan supeditadas a las instrucciones que reciba del Consejo.

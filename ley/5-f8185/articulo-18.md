@@ -1,1 +1,2 @@
-Artículo 18.—Los Almacenes Generales expedirán tantos certificados de depósito y bonos de prenda como solicite el respectivo depositante, si las mercancías o efectos son divisibles; si no lo son únicamente podrán emitir un certificado y un bono con relación a cada depósito.
+Artículo 18.—Los Almacenes Generales expedirán tantos certificados de depósito y vale de prenda (*) como solicite el respectivo depositante, si las mercancías o efectos son divisibles; si no lo son únicamente podrán emitir un certificado y un bono con relación a cada depósito.
+(*)(Modificada su denominación por el artículo 199 de la ley N° 16 del 5 de noviembre de 1936, "Ley Orgánica del Banco Nacional de Costa Rica")

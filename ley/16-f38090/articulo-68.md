@@ -1,0 +1,1 @@
+Artículo 68.—Los billetes que reingresen al Departamento Emisor en virtud de venta de divisas o de oro, o en pago de créditos, quedarán retirados de la circulación, y no podrán volver a ella sino en el caso de que el Departamento haga nuevas operaciones de las especificadas en el artículo anterior.
