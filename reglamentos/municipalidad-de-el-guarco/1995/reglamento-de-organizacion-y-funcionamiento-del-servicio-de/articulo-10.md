@@ -1,0 +1,1 @@
+Artículo 10.—Las tasas municipales por el servido de recolección de basura entrará en vigencia una vez que hayan sido aprobadas, conforme con la ley y publicadas en el Diario Oficial. El servicio de recolección de basura deberán pagarlo los usuarios aunque no demuestren interés en él y de acuerdo al sistema de cobro que tenga la Municipalidad.

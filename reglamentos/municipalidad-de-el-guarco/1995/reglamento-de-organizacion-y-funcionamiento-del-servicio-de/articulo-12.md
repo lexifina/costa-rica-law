@@ -1,0 +1,1 @@
+Artículo 12.—Una vez recibidos los documentos que acrediten los traspasos o ventas de una propiedad la Municipalidad procederá de inmediato a revisar la cuenta por cobrar, hacer el crédito correspondiente y a registrar el nuevo contribuyente.

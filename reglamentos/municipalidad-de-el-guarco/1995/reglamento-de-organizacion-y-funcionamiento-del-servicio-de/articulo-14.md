@@ -1,0 +1,1 @@
+Artículo 14.— La Municipalidad establecerá el Sistema de recolección de basura extraordinaria es decir aquella que por su naturaleza no se pueda recoger en el Vehículo Recolector, para ello la Municipalidad fijará el día de Recolección y el costo se determinará según el volumen.
