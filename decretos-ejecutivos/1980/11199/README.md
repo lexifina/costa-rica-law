@@ -14,3 +14,4 @@ Reglamento para la aplicación de la Norma N° 89, consignada en la Ley de Presu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-03-03 | la propia norma |
+| 2 | 1980-06-06 | Decreto Ejecutivo 11566 (1980-06-06) |
