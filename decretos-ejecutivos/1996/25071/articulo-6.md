@@ -1,3 +1,0 @@
-Artículo 6º.El CONESUP contará con una Secretaria Técnica con las facultades que este Reglamento le señala, cuyo funcionario de mayor rango será el Director Ejecutivo, quien podrá asistir a las sesiones del CONESUP con derecho a voz. Su nombramiento estará a cargo del Poder Ejecutivo por un período de cuatro años a propuesta del mismo CONESUP, pudiendo ser reelecto en forma indefinida, Deberá reunir los requisitos establecidos por la Dirección General de Servicio Civil para esta clase de puesto.
-La Secretaría Técnica contará, además, con el personal profesional y administrativo que se requiera para el mejor cumplimiento de las funciones asignadas al órgano.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 28906 de 24 de agosto de 2000).
