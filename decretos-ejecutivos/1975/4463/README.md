@@ -16,3 +16,4 @@ Fija Tasas Ordinarias Especiales Respuestas de Cartas y TarjetasComerciales y Ot
 | 1 | 1975-01-01 | la propia norma |
 | 2 | 1976-03-04 | Decreto Ejecutivo 5835 (1976-03-04) |
 | 3 | 1976-06-08 | Decreto Ejecutivo 6081 (1976-06-08) |
+| 4 | 1977-07-20 | Decreto Ejecutivo 7255 (1977-07-20) |
