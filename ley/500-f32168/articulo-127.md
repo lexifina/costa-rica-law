@@ -1,0 +1,2 @@
+Artículo 127.-Las reuniones o mitines públicos podrán celebrarse si simultáneamente por diferentes partidos en una misma población, si median entre los diferentes puntos de reunión, más de doscientos metros de distancia.
+Si el lugar en donde se intente celebrar una reunión fuere una plaza o un parque público, el Gobernador de la provincia Jefe Político del cantón, fijara el orden en que los diferentes partidos pueden hacer uso del mismo lugar durante los sucesivos domingos y días de festividad local, por estricta rotación.

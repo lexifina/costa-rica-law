@@ -1,0 +1,5 @@
+Artículo 133.- Ninguno de los actos de propaganda a que se refiere el artículo 126 podrá ser prohibido a no ser que, tratándose de manifestaciones, se haya autorizado antes otro acto público similar a favor de Partido diferente, en el mismo lugar y dentro de las mismas horas, de modo que pudiera dar motive a desordenes públicos.
+Para celebrar manifestaciones o desfiles se necesita autorización del Gobernador de la provincial que este funcionario no podrá negar sino en los casos en que este articulo autoriza la negativa.
+Las solicitudes que se formulen sobre este particular se anotaran sucesivamente, sin dejar blanco, por orden de presentación y con indicación de la hora y fecha en que las recibe, en un libro que llevara la Gobernación para ese solo efecto y se resolverán dentro de 24 horas sin más trámite.
+De la autorización se extenderá constancia al Partido solicitante. A ningún partido se le permitirá hacer en el mismo mes-calendario más de dos manifestaciones en un mismo lugar.
+Las solicitudes se resolverán por orden de su presentación estimando al primero en tiempo como primero en derecho.

@@ -1,0 +1,1 @@
+Artículo 41.- En las listas de sufragantes sean provisionales o definitivas, son prohibidas las raspaduras, borrones, ralladuras, entrerrenglonaduras o enmiendas. Todo error u omisión será salvado por notas puestas al pie de la lista sin dejar espacios en blanco e inmediatamente antes de la firma.

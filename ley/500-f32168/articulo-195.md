@@ -1,0 +1,2 @@
+Articulo195.-Todas las demás de nulidad que fueren presentadas ante un mismo organismo, aun cuando traten cuestiones diferentes, deben acumularse y resolverse en una sola sentencia o pronunciamiento.
+Sin embargo, las que se apoyen en nulidades que, aun de ser ciertas no cambiarían el resultado general de una elección, no acumularan ni se entrara a considerarlas, sino que se las rechazara de plano, sin más trámite.

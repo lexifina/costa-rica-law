@@ -1,0 +1,1 @@
+Artículo 69.- Cuando acepte expresa o tácitamente una candidatura a la presidencia de la Republica quien sea ascendiente, descendiente, hermano, tío o sobrino por consanguinidad o afinidad, padrastro o hijastro, del Director General, este será separado de su puesto.

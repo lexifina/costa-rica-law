@@ -1,0 +1,1 @@
+Artículo 27.- Antes de hacer una inscripción, el Director del Registro está obligado a cerciorarse de que no aparece inscrita ya la persona de que se trata. A este efecto el Director recurrirá al uso de tarjeteros o archivos mecánicos que garanticen tanto la más complete identificación de cada ciudadano inscrito cuanto el rápido cotejo de todas las inscripciones.

@@ -1,0 +1,1 @@
+Artículo 107.- La inscripción de partidos podrá hacerse en cualquier tiempo hasta dos meses antes del día de cada elección. Para efectos de la inscripción, el Presidente del Comité Ejecutivo del Organismo superior del Partido, con la solicitud presentara certificación del acta notarial de constitución un número de adhesión que no baje del 2 por ciento del respectivo electorado.

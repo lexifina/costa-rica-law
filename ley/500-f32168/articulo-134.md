@@ -1,0 +1,1 @@
+Artículo 134. Es prohibida toda forma de propaganda en la cual-valiéndose de las creencias religiosas del pueblo o invocando motivos de religión se excite a la muchedumbre en general o a los ciudadanos en particular a que se adhieran a o se separen de Partidos o candidaturas determinados.

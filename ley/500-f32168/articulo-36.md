@@ -1,0 +1,3 @@
+Artículo 36.- El registro Electoral tendrá preparadas las listas provinciales de electores el primero de Octubre anterior a una elección y deberá enviar al día siguiente a la autoridad política de cada distrito administrativo la que corresponda. En ellas estarán numerados los sufragantes por numeración corrida de uno en adelante. Al pie de cada lista se expresará el número de electores que contiene y se advertirá a los ciudadanos el término dentro del cual se oirán reclamaciones.
+Las autoridades dichas estarán en la obligación de colocar esas listas en lugares bien visibles haciéndolas custodiar.
+Las listas provisionales permanecerán expuestas al público hasta el día diez de noviembre a la elección.

@@ -1,0 +1,1 @@
+Articulo 176.-Durante el día siguiente al día de la respectiva elección, las juntas cantonales se apersonaran ante la Junta Provincial correspondiente y le harán entrega, con la formalidad del inciso o) del artículo 174, de las valijas nacionales que les hubieren sido entregadas por las Juntas Receptoras.

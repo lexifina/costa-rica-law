@@ -1,0 +1,1 @@
+Artículo 35.- Siempre que el Director advirtiere algún error en un asiento, publicará un aviso dando a conocer la rectificación que considera procedente, a fin de que los interesados aleguen lo que convenga a su interés dentro de los ocho días posteriores a la publicación. Vencido el plazo hará o no bajo su responsabilidad la rectificación.

@@ -1,0 +1,1 @@
+Artículo 93.- La falta definitiva de los miembros de los organismos electorales se llenara con un Nuevo nombramiento hecho en igual forma y por el mismo organismo que hizo el nombramiento del sustituido.

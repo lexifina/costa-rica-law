@@ -1,0 +1,2 @@
+Artículo 203.-Para el cumplimiento de la función que le encomienda el artículo anterior, sin necesidad de convocatoria, el congreso se reunirá el 1° de marzo siguiente a la elección y procederá como está mandado en la fracción segunda del artículo 82 de la constitución.
+Los secretarios del congreso deben permanecer en su oficina de las ocho a las diez y de las doce a las dieciséis horas, durante los tres días inmediatos posteriores a la publicación de la declaratoria provisional de elección, a fin de que reciban las demandas que lleguen a plantearse.

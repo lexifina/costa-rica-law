@@ -1,0 +1,1 @@
+Articulo 182.-siempre que se declare nulo un voto se hará constar al dorso de la papeleta esa circunstancia y el fundamento de la declaratoria de nulidad, autorizado dicha nota la firma del Presidente del Organismo escrutor.

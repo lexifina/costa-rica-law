@@ -1,0 +1,1 @@
+Artículo 239.-Esta ley entrara en vigencia el día primero de junio de mil novecientos cuarenta y seis; deroga la numero 15 de 26 de setiembre de 1927 y sus reformas, y deja sin efecto cualquier ley o cualquier otra disposición legal que se le oponga.

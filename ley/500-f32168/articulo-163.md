@@ -1,0 +1,1 @@
+Artículo 163.- El votante no podrá detenerse en el recinto secreto más de un minuto. Pasado este tiempo, el presidente lo hará salir; y si no tuviere listas las papeletas para ser introducidas en la urna, las recogerá y separa con razón firmada que exprese esa circunstancia, sin permitirle que vote.

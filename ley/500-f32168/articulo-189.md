@@ -1,0 +1,1 @@
+Articulo 189.-El cociente y subcociente para la elección de una Asamblea Constituyente, se forma tomando como dividendo la votación total del país; para la elección de Diputados, tomando como tal la votación total de la respectiva provincia y para la elección de Regidores, tomando la votación total del cantón respectivo.

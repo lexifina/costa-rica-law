@@ -1,0 +1,1 @@
+Artículo 110.- Recibida la solicitud de inscripción, el Director del Registro publicará un aviso que exprese en resumen el contenido de la inscripción que se pretende, con prevención, para interesados, de hacer objeciones dentro del término de cinco días a partir del día de la publicación.

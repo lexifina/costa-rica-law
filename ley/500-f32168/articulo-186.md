@@ -1,0 +1,1 @@
+Articulo 186.- inmediatamente después de fijado el total de votos que corresponde a cada Partido, por el procedimiento pertinente a cada caso, se hará la adjudicación de plazas y la declaratoria provisional de elección.

@@ -1,0 +1,1 @@
+Artículo 37.- El Director General bajo ningún pretexto podrá negarse a mostrar libro, expediente o documento alguno de la oficina al ciudadano que lo solicitare. Caso de concurrencia simultanea de fiscales, si por turnos sucesivos de lapso igual.

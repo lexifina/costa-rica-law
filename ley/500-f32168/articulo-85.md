@@ -1,0 +1,3 @@
+Artículo 85.- Las Juntas Receptoras de votos estarán formadas por un elector delegado de cada uno de los Partidos inscritos en escala provincial.
+A tal efecto, en la segunda semana de enero, cada partido, por medio del Presidente del Comité Ejecutivo de la Asamblea de Distrito y en defecto de este por el de la Asamblea de Cantón, comunicara a la respectiva Junta Cantonal, por escrito, el nombre de su delegado a la Junta Receptora.
+La Junta Cantonal respectiva, antes del 20 de enero, haciendo la designación por el partido remiso y acogiendo necesariamente las designaciones que se hubieren hecho, publicara el acuerdo en donde declare integradas las Juntas Receptores de su cantón, siguiendo el orden dicho del artículo 79.

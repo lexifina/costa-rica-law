@@ -1,0 +1,2 @@
+Articulo12-Dentro de los tres días posteriores a la publicación indicada en el parte tercero del artículo anterior, se apersonaran los miembros del Tribunal Nacional ante la Corte Plena, a la hora previamente señalada por esta, a prestar juramento constitucional.
+Inmediatamente después y ante la misma corte, los miembros del Tribunal Nacional Electoral, Designaran de su seno, Presidente y Secretario del Tribunal y fijaran las horas de trabajo y el local donde habrán de reunirse.

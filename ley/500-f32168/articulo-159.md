@@ -1,0 +1,3 @@
+Artículo 159.-Antes de iniciar la votación los miembros de la Junta que estén presentes procederán a revisar el material electoral a fin de que en el blanco respectivo del encabezamiento del padrón-registro, consignen el número de papeletas nacionales y municipales de que se disponga para la votación.
+Se procederá a llenar los blancos restantes del mismo encabezamiento hasta completar el acta en donde se exprese la hora a que se inicia la votación las personas que como miembros de la Junta la inician, la que actúa como Presidente y todos los demás datos que el mismo encabezamiento demande.
+A continuación tomaran todas las medidas necesarias para que los ciudadanos puedan cumplir el deber de votar, y si ya es la hora de apertura, iniciaran la votación.

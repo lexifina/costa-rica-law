@@ -1,0 +1,4 @@
+Artículo 90.- Cada uno de los miembros del Tribunal Nacional Devengara sueldo de mil quinientos colones (₵ 1,500.00) mensuales desde la aceptación del cargo hasta la declaratoria definitiva de la elección. El cargo implica incompatibilidad con cualquier otra función remunerada por el estado y goza de la inmunidad a que se refiere el aparte siguiente.
+El cargo de miembro de las Juntas Electorales, es honorifico y obligatorio.
+Lleva adscrita con la salvedad del artículo 99, inmunidad, según la cual, desde el nombramiento hasta la declaratoria definitiva de elección correspondiente, no puede detenérsele sin orden escrita de Juez competente, orden escrita de Jefe Político o Agente Principal de Policía emanada de sentencia firme o en el caso de ser sorprendido, por la autoridad, en flagrante delito.
+Igual inmunidad protege al elector durante el día de elecciones.

@@ -1,0 +1,1 @@
+Artículo 115.-Si se comprobare en el juicio de impugnación que el número de firmas legitimas no alcanzo al 2% del electorado respectivo, el juez lo comunicara al Registro Electoral para que el Director ordene la cancelación de la inscripción respectiva.

@@ -1,0 +1,2 @@
+Artículo 43.- La remisión a que se refiere el artículo anterior se hará por los medios más expeditos y seguros, procurando el Director del Registro bajo su responsabilidad, que lleguen con la debida oportunidad a su destino, en paquetes sellados y firmados y cerrados de modo que no pueda verse el contenido sin romper el empaque.
+A efecto de que la Junta se reúna para recibir el material y la documentación electoral, el Registro avisara por la vía telegráfica su envío inmediatamente, después de hecho. Si la junta no se reuniere, la entrega se hará a su presidente.

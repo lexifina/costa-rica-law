@@ -1,0 +1,1 @@
+Artículo 168.- Los ciegos, los que no tuvieren pulgar derecho y los impedidos de ambas manos votaran públicamente; a petición de ellos y acatando su voluntad, el presidente de la Junta marcara las papeletas en la columna correspondiente.
