@@ -14,3 +14,4 @@ Disposiciones, Regulación de Actividades Contables en las Dependencias de Corre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-05-14 | la propia norma |
+| 2 | 1970-06-03 | Decreto Ejecutivo 1019 (1970-06-03) |
