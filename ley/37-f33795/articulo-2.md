@@ -1,21 +1,2 @@
-ARTICULO 2º.- Todo extranjero residente en el país por un término de
-seis o más meses debe proveerse de una cédula de residencia, que expedirá
-el Ministerio de Gobernación, por medio de una oficina creada con este
-exclusivo objeto. En esa cédula constarán, principalmente, los datos de
-identificación. Deberá renovarse dentro de los primeros treinta días de
-cada año, aunque podrá renovarse por dos años mediante pago adelantado.
-Por la expedición o renovación de cada cédula de residencia, el
-interesado por cada año, pagará en colones, el equivalente de veinticinco
-dólares en timbres fiscales, al tipo de cambio libre del día. Los
-timbres se cancelarán en el momento de emitirse el respectivo documento,
-no obstante, también podrán cancelarse mediante entero a favor del
-Gobierno.
-Se exceptúan del pago de timbre fiscal los ciudadanos de aquellos
-países con los que se tienen tratados de reciprocidad para el no pago de
-estas tasas.
-Los extranjeros aquí señalados deberán comunicar cada año su
-dirección exacta, o cualquier cambio de ella, a más tardar treinta días
-naturales después de ocurrido el cambio. El incumplimiento de este
-requisito podrá ser motivo para que se cancele la cédula de residencia.
-(Así reformado por el Artículo 45º de Ley Nº 6955 de 24 de febrero
-de 1984)
+Artículo 2º.- Todo extranjero residente en el país por un término mayor de seis meses, debe proveerse de una Cédula de Residencia que expedirá el Ministerio de Seguridad Pública por medio de una Oficina creada con ese exclusivo objeto. En esa cédula constarán principalmente los datos de identificación y debe renovarse dentro de los primeros treinta días de cada año. La extensión y renovación de cada Cédula de Residencia causará derechos por valor de diez colones (¢ 10.00), para los ciudadanos de los demás países de Centro América; de veinticinco colones (¢ 25.00), para los ciudadanos de España o los países Hispanoamericanos; y de cincuenta colones (¢ 50.00), para los ciudadanos de los demás países extranjeros. Estos derechos se cancelarán agregando en dicho documento, el o los timbres fiscales correspondientes. Cada año se publicará en "La Gaceta" una lista de las personas a quienes se haya extendido Cédula de Residencia, con indicación del número del documento y el domicilio del interesado.
+(Así reformado por el artículo 1° de la ley N°1134 del 3 de febrero de 1950)
