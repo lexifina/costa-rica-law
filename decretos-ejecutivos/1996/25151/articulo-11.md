@@ -1,0 +1,1 @@
+Artículo 11.-La actividad que despliega en lo actual el denominado Departamento de Accidentes de la definida como Unidad Asesora de Asuntos Jurídicos, será asumida en adelante por el Área Administrativa de la Institución.

@@ -1,0 +1,1 @@
+Artículo 7°-Las Unidades de Planificación Institucional, Auditoría, Asuntos Jurídicos y Proyección Institucional, contarán cada una, con un responsable y en aquellos casos en que se determine la necesidad, se podrá desIgnar a un colaborador inmediato a éste; en cuyo caso, ambos serán responsables por los resultados de su gestión.

@@ -1,0 +1,1 @@
+Artículo 8°-El Instituto Geográfico Nacional tendrá un responsable y si se determina necesario se podrá designar a un colaborador inmediato; en cuyo caso, ambos serán responsables por los resultados de su gestión.

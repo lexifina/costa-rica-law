@@ -1,0 +1,1 @@
+Artículo 10.-Los ajustes en cuanto a funciones y definición de procesos para los órganos definidos en este Decreto, serán realizados por la Subárea de Sistemas Administrativos e Informáticos del Área Administrativa.
