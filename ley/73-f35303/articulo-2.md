@@ -1,0 +1,1 @@
+Art 2. Se encarga al Administrador de la misma Aduana la exåcta recaudacion de todos los ton [imagen] dos de propios de poblacion de Puntarenas, y tirara por su trabajó el honorario de un seis por ciento deducido de las sumas que colectare.
