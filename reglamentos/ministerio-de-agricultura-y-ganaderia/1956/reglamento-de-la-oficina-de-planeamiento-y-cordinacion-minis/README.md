@@ -14,3 +14,4 @@ Reglamento de la Oficina de Planeamiento y Cordinación Ministerio Agricultura e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1956-05-05 | la propia norma |
+| 2 | 1970-12-22 | Decreto Ejecutivo 1431 (1970-12-22) |
