@@ -1,0 +1,6 @@
+ARTICULO 2
+Los trabajadores y los empleadores, sin ninguna distinción y sin
+autorización previa, tienen el derecho de constituir las organizaciones
+que estimen convenientes, así como el de afiliarse a estas
+organizaciones, con la sola condición de observar los estatutos de las
+mismas.
