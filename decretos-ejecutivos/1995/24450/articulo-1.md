@@ -1,6 +1,8 @@
-Nº 24450-MIRENEM
-EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE RECURSOS NATURALES ENERGÍA Y MINAS,
+Nº 24450-MINAE
+(Así modificada su denominación de MINEREM a MINAE por el artículo 2° del
+Decreto Ejecutivo N° 27938 de 5 de mayo de 1999)
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE RECURSOS NATURALES ENERGIA Y MINAS,
 Considerando:
 1º.- Que el decreto ejecutivo Nº 18557-MIRENEM (Reglamento Autónomo de Trabajo del Ministerio de Recursos Naturales, Energía y Minas), de 7 de octubre de 1988, establece jornadas de trabajo mensuales acumulativas, para los servidores de ese Ministerio.
 2º.- Que los servidores del MIRENEM destacados en las áreas silvestres, por la ubicación geográfica de éstas, deben alejarse no solo de sus familias sino también de los centros de población, enfrentando condiciones de vida que en muchos casos afectan su salud.

@@ -13,3 +13,4 @@ MIRENEM: Reglamento al Incentivo por Desarraigo Familiar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-07-28 | la propia norma |
+| 2 | 1999-05-05 | Decreto Ejecutivo 27938 (1999-05-05) |
