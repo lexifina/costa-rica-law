@@ -1,9 +1,9 @@
-Artículo 9º.- La autorización para la pesca y la caza marítimas,
-podrá otorgarla el Ministerio de Industrias, previo contrato que será
-publicado en La Gaceta, un mes antes de su vigencia para oír objeciones de
-terceros, cuando fuere por un período menor de cinco años. Cuando se
-trate de períodos mayores de cinco años, requieren necesariamente la
-aprobación del Congreso. Los permisionarios no podrán hacer traspaso
-alguno de sus permisos sin previa autorización del Ministerio de
-Industrias y quedarán sujetos en todo a la jurisdicción de los tribunales
-costarricenses.
+Artículo 9º.- La autorización para la pesca y caza marítimas podrá
+extenderla el Ministerio de Agricultura e Industrias por períodos de un
+año, y extenderá para ese efecto una certificación de "Matrícula Anual de
+Embarcaciones", en que se indicará la actividad y sistema de pesca o caza
+marítima autorizadas.
+Los permisionarios en ningún caso podrán traspasar su matrícula a otra
+embarcación.
+( Así reformado por el artículo 1º de la ley No. 426 de 8 de marzo de
+1949).
