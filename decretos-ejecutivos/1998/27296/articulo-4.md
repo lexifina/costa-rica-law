@@ -1,0 +1,2 @@
+Artículo 4°—Suplencia temporal de sus miembros
+Con excepción del Viceministro de Transportes y del Director General del Área de Transportes, los restantes miembros del Consejo podrán ser sustituidos temporalmente por el funcionario de rango jerárquico inmediatamente inferior de su respectivo órgano o dependencia, pero en tal circunstancia su participación como miembro del Consejo deberá comunicarse previamente por escrito a la Presidencia , con las justificaciones del caso.

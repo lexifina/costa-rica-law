@@ -1,0 +1,3 @@
+Artículo 6°—Asistencia a las sesiones
+La asistencia de los integrantes del Consejo Asesor de Transportes a las sesiones ordinarias y extraordinarias que fueren convocadas, será de carácter obligatorio, salvo cuando, conforme a lo establecido en el presente Reglamento, mediaren causas que justificaren su ausencia y sustitución temporal.
+Así mismo, se entenderá de carácter obligatorio la asistencia de otros funcionarios de este Ministerio cuando fueren convocados expresamente para participar en algunas de las sesiones con el fin de brindar la asesoría o soporte técnico que, adicionalmente, fueren necesarios para el debido cumplimiento de los fines y propósitos.
