@@ -1,0 +1,1 @@
+Artículo 9°—La Municipalidad procederá a cerrar los establecimientos o impedirá el ejercicio de las actividades afectas al impuesto, cuando los interesados no hayan obtenido la licencia respectiva, o hayan atrasado el pago de dos o más trimestres. Para tal efecto, la Delegación Cantonal de la Guardia Rural estará obligada a prestar la colaboración que se le solicite.

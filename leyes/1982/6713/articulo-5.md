@@ -1,0 +1,1 @@
+Artículo 5°—Cuando se estime que las características de cualquier actividad lucrativa han variado, ésta podrá ser reubicada, previo el estudio correspondiente, en otra categoría o en nuevo tipo de actividad.
