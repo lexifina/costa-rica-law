@@ -1,1 +1,0 @@
-Artículo 26.-Los Promotores Fiscales son el uno respecto del otro de igual categoría; mas, para distinguirlos, se antepondrá al nombre del cargo el del número que le corresponda según el orden en que a continuación se expresarán sus atribuciones y obligaciones.

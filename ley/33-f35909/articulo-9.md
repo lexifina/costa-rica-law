@@ -1,2 +1,0 @@
-Artículo 9°.-El Jefe del Ministerio Público, los Promotores Fiscales y el Fiscal de Corte están obligados a residir en la capital de la República, y los Agentes Fiscales lo están también a tener su residencia en la ciudad o población que sea asiento del Juzgado o de los Juzgados de primera instancia ante quienes deben ejercer sus funciones. Sólo en los casos señalados en la parte primera del artículo 8° de esta ley, cesa dicha obligación.
-Cuando se infrinja ese precepto, se proceder exactamente como en caso de falta de asistencia al despacho.
