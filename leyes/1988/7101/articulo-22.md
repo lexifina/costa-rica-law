@@ -1,0 +1,11 @@
+Artículo 22.- La solicitud de desalojo que formule el arrendante, para
+uso propio o de sus familiares, deberá hacerse con no menos de cinco meses
+de anticipación al establecimiento de la demanda de desahucio. Deberá
+hacerla judicialmente o por medio de acta notarial; en ambos casos deberá
+aportar testimonio de escritura de declaración jurada sobre el uso que dará
+a la casa cuyo desalojo solicita.
+La solicitud no será procedente cuando la persona, en favor de quien
+se pide el desalojo, haya habitado durante el año anterior en una casa de
+su propiedad, o de su cónyuge, compañero o compañera.
+Para los efectos de este artículo, se entenderá por familiares los
+indicados en el inciso 3) del artículo anterior.

@@ -1,0 +1,11 @@
+Artículo 8º.- En los contratos que regula la presente ley se prohíbe
+el subarriendo. En este aspecto la tolerancia del arrendante no crea
+derechos a favor del arrendatario.
+Cuando el inquilino desocupe la casa en lo personal, no tendrá
+derecho a prestarla o cederla a otra persona, sea ésta pariente o no,
+salvo el núcleo familiar cuando se ausente por cualquier causa la persona
+a quien estaba arrendada.
+En cuanto a locales dedicados al comercio o a la industria,, la
+venta, el traspaso o la cesión del negocio no dará derecho al arrendante
+a pedir la desocupación, si el adquirente del negocio acepta y cumple con
+las obligaciones que su vendedor o cedente tenía con el.

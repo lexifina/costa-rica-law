@@ -1,0 +1,13 @@
+Artículo 12.- En la resolución inicial, que no tendrá recurso alguno,
+el tribunal fijará el precio provisional que deba depositar el inquilino,
+sin perjuicio de que esa resolución sea modificada en la sentencia.
+Si el inquilino no depositare el monto fijado dentro de los ocho días
+naturales siguientes al de la notificación, incurrirá en falta de pago.
+El precio que se fije en la sentencia será retroactivo a la fecha en
+que se interpuso la demanda. Si fuere mayor al que se fijó
+provisionalmente, el tribunal concederá un plazo de un mes al inquilino
+para que pague la totalidad de las diferencias, y si no lo hiciere se
+ordenará su inmediato desalojo por falta de pago. Si fuere menor, las
+diferencias le serán devueltas al inquilino dentro de los quince días
+siguientes a la firmeza de la resolución que lo ordene, o si el inquilino
+lo prefiere, se aplicarán a rentas futuras.
