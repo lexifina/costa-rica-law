@@ -1,1 +1,0 @@
-Artículo 18.- El empleado o funcionario que sea sorprendido en áreas restringidas sin poseer o portar visible el respectivo carné, será retirado inmediatamente de las mismas y se le aplicará la sanción correspondiente de acuerdo con el artículo precedente.

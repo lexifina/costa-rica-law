@@ -1,1 +1,0 @@
-Artículo 21.- La reposición por pérdida o deterioro tendrá un costo del doble valor del carné, la primera vez que se reponga por esos motivos. El costo será de seis veces el valor del carné, la segunda vez que se reponga y de diez veces la tercera más veces que deba reponerse por pérdida o deterioro.

@@ -1,2 +1,0 @@
-Artículo 2°.- Las empresas aéreas concesionaria y dependencias públicas, así como todos los empleadores de personas que presten servicios permanentes dentro del Aeropuerto, estarán obligados a remitir a la Administración una lista detallada de las personas que necesariamente y en razón de su cargo deben ingresar en estas áreas. Debe comunicarse de inmediato a la Administración, la sustitución, o el cese de personal.
-.- DEROGADO por el artículo 24 del Decreto Ejecutivo N° 29456 de 30 de abril del 2001.
