@@ -1,0 +1,1 @@
+Artículo 14.—Formalización del arreglo de pago. La formalización del arreglo de pago se realizará ante la Unidad de Gestión de Cobro, con el visto bueno de la Jefatura, mediante la suscripción del documento idóneo que tendrá dicha Unidad para tales efectos. En casos calificados a criterio de la Municipalidad, se exigirá además un documento ejecutivo que respalde la deuda.

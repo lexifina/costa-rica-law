@@ -1,0 +1,4 @@
+Artículo 13.—Condiciones para otorgar arreglos de pago. El arreglo de pago se otorgará por parte de la Unidad de Cobro, el que debe contar con el visto bueno de la Jefatura para lo cual ésta valorará las siguientes condiciones del sujeto pasivo:
+a. Existencia y verificación de la deuda. La Unidad de Gestión de Cobro se encargará de verificar todos los datos relativos a la deuda sujeta al arreglo de pago.
+b. Interés del sujeto pasivo. El sujeto pasivo debe mostrar voluntad y compromiso para cumplir con el arreglo de pago que proceda.
+De proceder el arreglo de pago, ambas partes pactarán el monto a cancelar mensualmente; el plazo máximo para la cancelación total de la deuda vencida, será de seis meses, excepto en casos debidamente documentados, en los que el plazo máximo no podrá exceder los doce meses, previo análisis y resolución de la Unidad de Gestión de Cobro, contando con el visto bueno de la Alcaldía Municipal.

@@ -1,0 +1,1 @@
+Artículo 18.—Arreglos de pago en caso de deudas por pago atrasado de patentes. No se permite la aplicación de arreglos de pago cuando la deuda del contribuyente se haya originado por el no pago de sus patentes.
