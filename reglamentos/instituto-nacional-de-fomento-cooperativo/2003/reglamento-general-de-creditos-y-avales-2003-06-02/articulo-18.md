@@ -1,0 +1,2 @@
+Artículo 18.—El INFOCOOP no estará obligado a otorgar los montos máximos establecidos en los artículos 15, 16 y 17, cuando así lo estime conveniente de acuerdo al proyecto presentado, las garantías ofrecidas, o la situación administrativa, económica o financiera del organismo cooperativo solicitante.
+Todos los financiamientos a los organismos cooperativos estarán supeditados a que éstas muestren una capacidad de pago total suficiente y a un adecuado proceso de gestión.

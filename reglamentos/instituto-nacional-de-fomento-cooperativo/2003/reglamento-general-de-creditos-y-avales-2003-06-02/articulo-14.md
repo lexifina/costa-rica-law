@@ -1,0 +1,3 @@
+Artículo 14.—Con el propósito de que los organismos cooperativos logren su consolidación económica y social, a criterio del INFOCOOP, se podrá establecer como condición del financiamiento, la capitalización total o parcial de los excedentes a distribuir, durante la vigencia del mismo.
+Esta condición será indispensable cuando el financiamiento sobrepase el máximo del 80% del monto total del proyecto de inversión, el límite de endeudamiento de 10 veces su capital social pagado o ambos extremos.
+En los demás casos se hará la valoración técnica correspondiente, que considere el costo de los recursos de la organización, la estructura de capital y el valor económico agregado de la solicitante.

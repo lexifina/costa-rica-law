@@ -1,0 +1,1 @@
+Artículo 36.—Los organismos cooperativos que empleen recursos del INFOCOOP para financiar a sus asociados podrán cobrar tasas e interés cuyo margen de intermediación con respecto a la tasa cobrada por el INFOCOOP, no sea mayor a 6 puntos.
