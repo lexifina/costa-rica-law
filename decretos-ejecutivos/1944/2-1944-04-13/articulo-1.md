@@ -1,0 +1,1 @@
+(Este Decreto Ejecutivo fue considerado inaplicable mediante resolución de la Corte Suprema de Justicia, de las 14:00 horas del 10 de mayo de 1944, en la cual comparecieron como recurrentes los Srs. Francisco Urbina González y José Francisco Carballo Quirós.)
