@@ -1,1 +1,0 @@
-Artículo 7°.-Para los efectos del artículo anterior, el Banco Internacional de Costa Rica queda autorizado para hacer una emisión de sus billetes corrientes por el monto de los giros que compre; pero estar obligado a retirar de la circulación, cada vez que venda un giro,el valor en billetes que éste representa.
