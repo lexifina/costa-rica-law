@@ -1,0 +1,1 @@
+,. Artículo 4°-La Tesorería Nacional incluirá las partidas anotadas en los artículos 1°, 2° y 3° de la presente ley, en el presupuesto para 1946, tomando los fondos necesarios del producto del remate de bienes de súbditos alemanes.
