@@ -1,0 +1,1 @@
+Artículo 11.—Participación Institucional. La Comisión de Regeneración y Repoblamiento de San José deberá convocar a participar al jerarca respectivo a la toma de decisiones sobre cualquier proyecto que implique la participación directa de algún otro Ministerio, Institución Autónoma o cualquier oficina pública o estatal.

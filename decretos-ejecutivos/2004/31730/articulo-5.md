@@ -1,0 +1,1 @@
+Artículo 5º—Participación. Los ministerios, las instituciones autónomas y cualquier otra institución estatal o pública, podrán participar y conocer de las políticas establecidas en el Programa de Regeneración y Repoblamiento de San José.
