@@ -1,0 +1,1 @@
+Artículo 29.-Existirán nichos de alquiler, como también fosas comunes destinadas para sepultar indigentes en casos de extrema necesidad, cada sepultura será marcada con una losa, cruz u otro distintivo, que llevarán número progresivo y el año que fue hecha la inhumación.

@@ -1,0 +1,1 @@
+Artículo 39.-EI departamento de Rentas y Cobranzas y el encargado del Cementerio, velarán por el respeto y acatamiento de las disposiciones de este Reglamento. Los propietarios de derechos se obligan a cumplirlo y así lo harán en el contrato respectivo.

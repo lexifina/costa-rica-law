@@ -1,0 +1,1 @@
+Artículo 8°-Dado que el cementerio ha sido concebido y diseñado como un jardín, los adquirientes no podrán efectuar ningún tipo de construcción en sus terrenos sin la aprobación del Alcalde; toda construcción y mejora hecha en el cementerio será supervisado por la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 37.-La Municipalidad se reserva el derecho de realizar todo tipo de construcciones, reparaciones y mantenimiento en todas las instalaciones del Cementerio, tanto en su terreno propio como en los derechos ya adquiridos.
