@@ -1,3 +1,1 @@
-CAPÍTULO II
-De la Naturaleza de los medidas tutelares
-Artículo 30.- La amonestación se hará en forma clara y paternal, directamente al menor, y, si fuere necesario, en presencia de las personas que el Juez estime conveniente.
+Artículo 30.- En los casos de delitos contra la vida y delitos sexuales, se aplicarán las medidas contenidas en los incisos c), ch) y d) del artículo 29 de esta Ley.

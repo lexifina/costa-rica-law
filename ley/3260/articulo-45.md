@@ -1,3 +1,2 @@
-CAPÍTULO IV
-De los procedimientos
-Artículo 45.- Las Actuaciones de los Jueces Tutelares se realizarán de oficio, excepto en los casos calificados en la legislación común como delitos o faltas privadas, para proceder en los cuales será necesaria la denuncia del hecho por la persona perjudicada o sus representantes, o por quien tenga derecho a acusar.
+Artículo 45.- Es obligación de los jueces tutelares visitar, por lo menos una vez al mes, los establecimientos de internación de menores de su jurisdicción, con el propósito de verificar su buena marcha y la observancia de las normas legales sobre el trato al menor, la debida aplicación de las medidas y los resultados obtenidos.
+El juez levantará un acta de cada visita, en un libro especial, y le enviará una copia al director del establecimiento del organismo, bajo cuya dirección técnica se encuentre la institución. El incumplimiento de esta obligación se sancionará disciplinariamente.

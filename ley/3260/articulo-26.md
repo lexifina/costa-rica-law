@@ -1,3 +1,3 @@
 CAPÍTULO III
-De la Competencia
-Artículo 26.- Será competente para conocer de las infracciones a que se refiere el artículo 2º de esta ley, el Juez Tutelar en cuyo territorio hubiere ocurrido el hecho.
+De la competencia
+Artículo 26.- El juez tutelar en cuya jurisdicción haya ocurrido el hecho será competente para conocer de las contravenciones y delitos.

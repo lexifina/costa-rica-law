@@ -1,1 +1,1 @@
-Artículo 2º.- Para los efectos del artículo anterior se considerará en estado de peligro social a todo menor de los referidos en el artículo 1º a quien se atribuya una infracción calificada en la legislación común como delito, cuasidelito o falta.
+Artículo 2º.- Para los efectos del artículo anterior, se tomará en cuenta la edad del menor al momento de cometer la infracción.
