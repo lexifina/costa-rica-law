@@ -1,0 +1,1 @@
+Art 17° Cuando los Alcaides entreguen mercaderías en virtud de pólizas generales, no harán nuevos despachos al mismo comerciante o consignatario, mientras no hayan recibido de ellos los pedimentos parciales, los cuales deben exigirse siempre al siguiente día.
