@@ -14,3 +14,4 @@ Estatuto de Personal del Instituto Costarricense de Electricidad.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-02 | la propia norma |
+| 2 | 2004-04-13 | Reglamento 5600 (2004-04-13) |
