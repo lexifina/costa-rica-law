@@ -1,2 +1,0 @@
-Artículo 21.-Reorganizaciones estructurales:
-Para los efectos del inciso c) del articulo anterior, se entenderá por reorganización estructural la creación y supresión de unidades administrativas, así como la transformación de las mismas. La Contraloría General de la República, la Autoridad Presupuestaria y el Departamento de Presupuesto del Ministerio de Hacienda no tramitarán presupuestos ni modificaciones presupuestarias de aquellos entes públicos que contraigan reorganizaciones estructurales no autorizadas por MIDEPLAN.

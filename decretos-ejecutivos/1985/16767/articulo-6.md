@@ -1,2 +1,0 @@
-Artículo 6°-Traslado de funcionarios:
-Por acuerdo del Poder Ejecutivo podrá disponerse del traslado del personal técnico de los ministerios y de los demás entes públicos al Ministerio de Planificación Nacional y Política Económica, para cumplir funciones de apoyo en la elaboración, ejecución y evaluación del plan nacional de desarrollo y las demás funciones técnicas que dicho ministerio realice. Lo establecido en el presente artículo se llevará a cabo de conformidad con las disposiciones del Decreto Ejecutivo N° 16097-PLAN de 8 de marzo de 1985.

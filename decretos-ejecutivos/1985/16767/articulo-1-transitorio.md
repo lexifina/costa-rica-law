@@ -1,2 +1,0 @@
-Transitorio.-Estarán vinculados a MIDEPLAN los programas especiales de Ordenamiento Agrario y Desarrollo Rural Integrado, Unidad Ejecutora del Programa PL-480, Unidad Ejecutora del Proyecto de Desarrollo de de Infraestructura de la Zona Norte y Sistema Integrado de Planificación, Presupuesto y Contabilidad (SIPPCO). Los directores de esos programas especiales, salvo el caso del SIPPCO, dependerán directamente del Ministro.
-Dado en la Presidencia de la República .-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
