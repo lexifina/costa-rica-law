@@ -1,0 +1,1 @@
+Artículo 2°_El Liceo José Joaquín Vargas Calvo recibirá el estímulo del Estado para experimentar las modernas técnicas de educación vocacional, organización de los estudios, evaluación del trabajo escolar y relaciones con la comunidad.
