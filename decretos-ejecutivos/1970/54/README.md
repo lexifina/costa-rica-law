@@ -14,3 +14,4 @@ Concede beneficios a "Industria Cerámica Costarricense Limitada"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-04-11 | la propia norma |
+| 2 | 1970-05-29 | Decreto Ejecutivo 1012 (1970-05-29) |
