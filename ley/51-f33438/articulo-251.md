@@ -1,1 +1,4 @@
-Texto no disponible
+Artículo 251
+En la primera declaración se interrogará al indiciado por su nombre y apellidos paterno y materno, su apodo si lo tuviere, el lugar y fecha de su nacimiento, o la edad aunque sea aproximada, su nacionalidad, domicilio, estado, profesión u oficio, si es hijo legítimo o natural, si sabe leer y escribir y todas aquellas circunstancias, que el Juez crea oportunas y en el mismo acto se le turnará la filiación completa que se agregará al expediente.
+Si estuviere detenido se le preguntará también si sabe o presume la causa de su arresto, quién lo prendió, por orden de quién dónde fue detenido y en qué día y cuando el Tribunal lo creyere necesario, si ha estado procesado, por qué causa y ante qué Tribunal y si ha sido fichado en la Oficina de Investigación.
+(Así reformado por el artículo 2° de la ley N° 16 del 28 de enero de 1939)
