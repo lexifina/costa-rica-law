@@ -14,3 +14,4 @@ Expropia a la firma "S. A. RANCHO LA JARAGUA", bien inmueble ubicado en la provi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-04-27 | la propia norma |
+| 2 | 1994-05-06 | Decreto Ejecutivo 23307 (1994-05-06) |
