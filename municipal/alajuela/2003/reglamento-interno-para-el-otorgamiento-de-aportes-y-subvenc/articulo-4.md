@@ -3,4 +3,4 @@ Solicitud formal dirigida al Alcalde y suscrita por quien funja como representan
 Certificación de personería con no más de un mes de emitida, en la que se acredite la capacidad del firmante para representar a la organización solicitante.
 Copia de la cédula jurídica de la organización y de la cédula de identidad de su representante.
 Copia certificada del acta constitutiva de la organización solicitante, en la que se acrediten sus fines. Se exceptúan de este requisito, los establecimientos de educación pública y las asociaciones de desarrollo comunal.
-Los demás requisitos adicionales a que se refiere la circular contenida en el oficio 1/4299 del 18 de diciembre del 2001, de la Contraloría General de la República.
+(Nota: El párrafo final de este artículo fue derogado en sesión número 13-2004 celebrada el 30 de marzo del 2004).

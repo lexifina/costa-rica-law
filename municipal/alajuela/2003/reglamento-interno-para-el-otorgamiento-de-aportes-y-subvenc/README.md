@@ -14,3 +14,4 @@ Reglamento interno para el otorgamiento de aportes y subvenciones para centros e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-12 | la propia norma |
+| 2 | 2004-03-30 | Reglamento municipal 13 (2004-03-30) |
