@@ -1,0 +1,1 @@
+Artículo 3°—Ámbito de Aplicación: El presente reglamento se aplicará a todos los servidores del INA ligados por una relación de empleo y aquellos que no siendo empleados del INA estén desempeñando, en calidad de servidores públicos, funciones para el INA según lo establece el artículo 111 de Ley General de la Administración Pública.
