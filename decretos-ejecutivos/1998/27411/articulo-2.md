@@ -1,0 +1,1 @@
+Artículo 2°—La administración del Parque Nacional se realizará conforme lo establecido en el artículo 22 de la Ley No 7788, Ley de Biodiversidad, del veintitrés de abril de mil novecientos noventa y ocho.
