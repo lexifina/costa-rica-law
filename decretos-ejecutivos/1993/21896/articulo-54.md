@@ -1,0 +1,1 @@
+Artículo 54.—El Ministro de Educación Pública por intermedio de esta división, ejercerá sus potestades jerárquicas sobre los Directores de las Regiones Educativas, sin que ello signifique abandonar sus potestades jerárquicas.

@@ -1,0 +1,1 @@
+Artículo 72.—Además de la organización prevista en el presente decreto, cada dependencia definirá las secciones o unidades que sus necesidades organizacionales y el servicio público demanden en el plazo máximo de tres meses a partir de la vigencia del presente decreto.

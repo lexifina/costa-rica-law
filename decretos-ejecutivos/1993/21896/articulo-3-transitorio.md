@@ -1,0 +1,1 @@
+Transitorio III: Se mantiene vigente el D.E. N° 20683MEP del 30 de agosto de 1991 que adscribe el Departamento de Educación de Adultos al Despacho de la Viceministra, hasta que no se derogue expresamente.

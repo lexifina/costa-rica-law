@@ -1,0 +1,1 @@
+Artículo 68.—Son funciones de la Sección de Soporte Técnico: brindar el soporte técnico en las áreas de reparación, adecuación y de mantenimiento del software y hardware, tanto de las Oficinas Centrales como de las Regiones Educativas.

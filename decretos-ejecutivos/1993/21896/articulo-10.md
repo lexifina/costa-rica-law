@@ -1,0 +1,1 @@
+Artículo 10.—Además de las atribuciones y funciones que le asigna la Ley General de la Administración Pública, corresponde al Viceministro de Educación hacer que se ejecute la política educativa aprobada por el Consejo Superior de Educación y las disposiciones que establezca el Ministro del ramo.

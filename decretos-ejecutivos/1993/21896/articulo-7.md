@@ -1,0 +1,1 @@
+Artículo 7°--- Las funciones asesoras y ejecutivas se cumplen por medio de los siguientes órganos: Oficialía Mayor, División de Planeamiento y Desarrollo Educativo, División Jurídica, División de Desarrollo Curricular y la División de Operaciones.

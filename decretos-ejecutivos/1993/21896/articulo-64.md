@@ -1,0 +1,2 @@
+Artículo 64.—Dependiendo del despacho del Viceministro funcionará el departamento de Informática y Gestión Educativa, al que le corresponderá implementar, supervisar, coordinar, dirigir y promover investigaciones en el campo de la Informática y gestión educativa.
+Para el cumplimiento de sus funciones este Departamento contará con las lecciones de: Informática Educativa, Informática de Gestión, Procesadora de Datos y a de Soporte Técnico.

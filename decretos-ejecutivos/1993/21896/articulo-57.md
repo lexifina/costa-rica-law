@@ -1,0 +1,1 @@
+Artículo 57.—El Departamento de Inspección de centros educativos privados es el encargado de ejercer la inspección constitucional que el Ministerio de Educación Pública debe ejercer sobre todo centro docente privado, así como otorgarles el reconocimiento oficial cuando así lo soliciten, previa comprobación del cumplimiento de los requisitos establecidos.

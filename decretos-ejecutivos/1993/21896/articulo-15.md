@@ -1,0 +1,1 @@
+Artículo 15.—Son funciones del Departamento de Régimen Disciplinario: velar por la correcta aplicación del régimen disciplinario a los funcionarios docentes, técnicos docentes, administrativos docentes y administrativos del Ministerio, previa instrucción y documentación de los casos, por parte de la Unidad Jurídica Regional.
