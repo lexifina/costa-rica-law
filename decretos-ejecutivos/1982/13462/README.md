@@ -13,3 +13,4 @@ Reglamento Plantas e Industrias Procesadoras Aves para Consumo Humano
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-04-20 | la propia norma |
+| 2 | 1982-04-20 | Decreto Ejecutivo 25766 (1997-01-13) |
