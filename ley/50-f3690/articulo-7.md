@@ -1,0 +1,2 @@
+Art. 7°-Los Gobernadores y todas las demás autoridades de la República prestarán ayuda y eficaz apoyo á las comisiones encargadas de levantar el empadronamiento á que se refiere el presente decreto.
+Dado en el Palacio Presidencial, en San José, á los quince días del mes de julio de mil ochocientos o- chenta y cinco. -BERNARDO SOTO.-El Secretario de Estado en el despacho de la Guerra,-SANTIAGO DE LA GUARDIA.
