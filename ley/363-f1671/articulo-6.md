@@ -1,5 +1,5 @@
 DE LAS ARTES LEGALES Y SU EMPLEO
-Artículo 6º.- Son artes legales y su empleo es permitido:
+ARTICULO 6º.- Son artes legales y su empleo es permitido:
 a) Todos los de cordel;
 b) Todos los fijos de mallas;
 c) Los de cerco de mallas reglamentarias,

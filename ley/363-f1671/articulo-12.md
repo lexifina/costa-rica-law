@@ -1,4 +1,4 @@
-Artículo 12.- Serán consideradas faltas leves:
+ARTICULO 12.- Serán consideradas faltas leves:
 a) Pescar con artes lícitas en lugares prohibidos, pero sin llegar a
 perjudicar a terceros con ese hecho;
 b) Pescar con artes o aparejos sin las correspondientes banderas del
@@ -10,3 +10,8 @@ tierra;
 e) Confeccionar redes, aparejos o instrumentos prohibidos; y
 f) La omisión del permiso del Bolsín de Embarque para el enganche de
 tripulantes.
+g) Abandonar en las playas y riberas, y tirar al agua productos y
+desperdicios de la pesca, a una distancia menor de tres millas de la
+costa.
+(Así adicionado este inciso por el artículo 3º de decreto-ley No.739
+de 4 de octubre de 1949)

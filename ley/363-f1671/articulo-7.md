@@ -1,5 +1,5 @@
 DE LA MALLA DE REDES
-Artículo 7º.- La malla mínima de las redes de cerco será de setenta
+ARTICULO 7º.- La malla mínima de las redes de cerco será de setenta
 milímetros entre nudo y nudo, y se considerará cumplido este requisito
 cuando un calibrador de ciento cuarenta milímetros atraviese la malla
 completa de lado a lado. Las redes de cerco no podrán ser de una longitud
