@@ -24,3 +24,4 @@ Reglamento Interno de Gastos de Viaje del Instituto Costarricense de Turismo (En
 | 9 | 2001-03-07 | Reglamento 0 (2001-03-07) |
 | 10 | 2001-04-02 | Reglamento 5095 (2001-04-02) |
 | 11 | 2001-05-14 | Reglamento 5104 (2001-05-14) |
+| 12 | 2001-07-24 | Reglamento 5122 (2001-07-24) |

@@ -1,1 +1,3 @@
-Artículo 27.—Exactitud del acuerdo de Junta Directiva. Debe de haber total congruencia entre lo aprobado por la Junta Directiva y lo anotado en la liquidación de gastos, incluyendo fechas de permanencia en cada país, rutas de vuelo, etc., cualquier cambio de última hora deberá ser modificado y aprobado por la Junta Directiva.
+Artículo 27.—Exactitud del acuerdo de Junta Directiva y Plazos para presentar los trámites de adelanto de gastos de viaje: Los adelantos de gastos de viaje y transporte para viajar al exterior, deben de presentarse ante las personas que intervengan en su trámite, con un máximo de seis días hábiles de anticipación.
+Cuando las circunstancias lo exijan, en razón de tener que cubrir gastos de reservas de espacios, construcción de stands, alquiler de mobiliario, equipo y otros, el adelanto para efectuar dichos pagos, debe de presentarse con un mínimo de veintidos días hábiles.
+(Así reformado mediante sesión N° 5122 del 24 de julio del 2001).
