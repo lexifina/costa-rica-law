@@ -14,3 +14,4 @@ Designa al Sistema Nacional de Áreas de Conservación del Ministerio del Ambien
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-11 | la propia norma |
+| 2 | 2000-02-16 | Decreto Ejecutivo 28522 (2000-02-16) |
