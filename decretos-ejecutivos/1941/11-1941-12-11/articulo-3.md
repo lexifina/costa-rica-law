@@ -1,0 +1,1 @@
+Artículo 3°—Las oficinas telegráficas y postales, así como las oficinas receptoras de radiogramas y cablegramas, se negarán a dar curso a la correspondencia de todo orden que se dirija a Italia, Alemania o Japón, mientras no haya sido censurada por la Oficina que al efecto se establezca.
