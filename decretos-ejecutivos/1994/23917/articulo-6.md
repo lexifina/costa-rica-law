@@ -1,0 +1,2 @@
+Artículo 6°
+Para ser beneficiarios de los CEB, los solicitantes deberán estar al día en el pago del impuesto establecido por el artículo 23 de la ley N° 4895 de 16 de noviembre de 1971 y sus reformas y del impuesto establecido por la ley N° 5515 de 19 de abril de 1974 si fueren sujetos pasivos del mismo y, por consiguiente, las sumas indicadas por el artículo 7° del decreto ejecutivo N° 16563-MAG de 24 de setiembre de 1985 y sus reformas, el decreto ejecutivo N° 23738-MAG-H-COMEX de 11 de octubre de 1994 y el decreto ejecutivo N° 23609-MAG-H de 15 de julio de 1994.

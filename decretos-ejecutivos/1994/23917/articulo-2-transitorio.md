@@ -1,0 +1,1 @@
+Transitorio II.- Para solicitar la asignación de los CEB para el segundo trimestre de 1995 y por una sola vez, todos los interesados deberán comprobar ante CORBANA que no tienen deudas pendientes con la Caja Costarricense de Seguro Social o que han realizado con ésta arreglos de pago satisfactorios.
