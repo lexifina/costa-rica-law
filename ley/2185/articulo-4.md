@@ -1,0 +1,1 @@
+Artículo 4°-Para los efectos de la Ley de Presupuesto General de la República, el Estado hará figurar esa obligación a favor de la Caja Costarricense de Seguro Social, en la parte relativa al servicio de la Deuda Interna.
