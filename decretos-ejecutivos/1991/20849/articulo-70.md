@@ -1,0 +1,1 @@
+Artículo 70.—Al encontrarse en el disfrute de vacaciones, los servidores acogidos bajo el régimen de dedicación exclusiva, mantendrán las restricciones y obligaciones que establece el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 94.—La ponderación de la experiencia laboral profesional será proporcional a la jornada de trabajo de los puestos que desempeñen los servidores que se acojan al beneficio por carrera profesional.

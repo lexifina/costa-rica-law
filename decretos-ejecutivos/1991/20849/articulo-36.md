@@ -1,0 +1,1 @@
+Artículo 36.—En todos los casos, los servidores deberán notificar lo antes posible o a su superior inmediato verbalmente o por escrito, cualquier causa que les impidiere la asistir a labores. Por ninguna razón, salvo la de fuerza mayor, podrán los servidores justificar su inasistencia después del segundo día.

@@ -1,0 +1,1 @@
+Artículo 65.—Los servidores que disfruten del beneficio de dedicación exclusiva, no podrán continuar gozándolo cuando se produzca reducción de su jornada laboral, salvo y de manera excepcional, cuando se comprometan a dedicarse el resto de su tiempo a labores domésticas, para lo cual suscribirán una adenda al contrato original,

@@ -1,0 +1,1 @@
+Artículo 37.—Se considerará abandono del trabajo el hacer dejación, dentro de la jornada, de las tareas objeto de la relación del servicio. Para efectos de calificar el abandono no es necesario que los servidores salgan del lugar donde desempeña su labor, sino bastará que estos abandonen o descuiden, de manera injustificada, el trabajo que les ha sido encomendado.

@@ -1,0 +1,1 @@
+Artículo 34.—Se considerará ausencia la inasistencia a un día completos labores. La inasistencia a una fracción de la jornada se computará como la mitad de una ausencia. En ambos casos, no se pagará el salario correspondiente.

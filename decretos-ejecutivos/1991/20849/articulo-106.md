@@ -1,0 +1,1 @@
+Artículo 106.—Los servidores que reúnan las condiciones requeridas para obtener beneficios por carrera profesional deberán presentar una solicitud por escrito ante el Departamento de Personal de MIDEPLAN, adjuntando los documentos necesarios para fundamentar y demostrar su petición.

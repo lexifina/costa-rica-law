@@ -1,0 +1,1 @@
+Artículo 118.—Sin perjuicio de las sanciones disciplinarias correspondientes a las llegadas tardías, las ausencias y el abandono del trabajo, estas acarrearán la pérdida del salario correspondiente al tiempo no laborado.

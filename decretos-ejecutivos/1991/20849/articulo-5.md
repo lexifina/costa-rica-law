@@ -1,0 +1,1 @@
+Artículo 5°—El personal de la Dirección será nombrado para prestar sus servicios a esta por tiempo indeterminado y de acuerdo con el procedimiento de selección estipulado en el capítulo IV de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 10.—Sin perjuicio de lo establecido en los artículos precedentes, y atendiendo a la naturaleza del Programa PL-480, los servidores de la Dirección podrán ser cesados en cualquier momento, con responsabilidad patronal y con el pago de los extremos legales correspondientes.

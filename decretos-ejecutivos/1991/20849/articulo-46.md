@@ -1,0 +1,1 @@
+Artículo 46.—Los servidores gozarán, sin interrupción, de sus vacaciones anuales. Sin embargo, estas podrán ser divididas en tres fracciones como máximo, cuando así lo convengan las partes y siempre que se trate de labores de índole especial, que limitan una ausencia prolongada de aquellos y que su presencia se considere necesaria para la buena marcha del trabajo.

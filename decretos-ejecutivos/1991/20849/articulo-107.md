@@ -1,0 +1,1 @@
+Artículo 107.—El Departamento de Personal de MIDEPLAN registrará la fecha de presentación de las solicitudes formuladas y las presentará ante la Comisión de Carrera Profesional para los servicios de la Dirección, a los efectos de su respectiva evaluación.

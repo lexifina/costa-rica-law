@@ -1,0 +1,1 @@
+Artículo 74.—En los casos señalados en el artículo que antecede, al producirse el regreso de los servidores a sus puestos en la Dirección, deberán presentar una declaración jurada de que no han ejercido en forma liberal las profesiones que ostenten ni actividades relacionadas con ellas.

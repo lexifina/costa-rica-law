@@ -1,0 +1,1 @@
+Artículo 67.—Las solicitudes para acogerse al beneficio de dedicación exclusiva deberán presentarse por los interesados ante el Departamento de Personal de MIDEPLAN, acompañado de una copia auténtica de los títulos profesionales y de una certificación de la incorporación al colegio profesional respectivo, cuando proceda.

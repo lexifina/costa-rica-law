@@ -1,0 +1,1 @@
+Artículo 82.—El Departamento de Personal de MIDEPLAN velará por el cumplimiento de las disposiciones establecidas en el presente capítulo. Cuando compruebe incumplimientos de los servidores acogidos al régimen de dedicación exclusiva, deberá proceder a elaborar el informe y a determinar los actos correctivos que correspondan.

@@ -1,0 +1,1 @@
+Artículo 13.—El Departamento de Personal de MIDEPLAN realizará las tareas de clasificación y reasignación de los puestos de los servidores cuando, ello procediere, mediante la aplicación, en lo conducente, de las normas vigentes al respecto en el Régimen de Servicio Civil.

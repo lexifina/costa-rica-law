@@ -1,0 +1,1 @@
+Artículo 11.—El Departamento de Personal de MIDEPLAN llevará un expediente personal de cada servidor de la Dirección, elaborará las acciones de personal correspondientes y llevará a cabo los demás actos de administración de recursos humanos necesarios para dar cumplimiento a lo señalado en el presente Reglamento.

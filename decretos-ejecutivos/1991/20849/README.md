@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 20849
+
+Reglamento Autónomo de Servicio de la Dirección Ejecutora de Proyectos del Ministerio de Planificación Nacional y Política Económica en Ejecución del Programa PL-480.
+
+- Tipo: Decreto Ejecutivo
+- Número: 20849
+- Fecha: 1991-11-14
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 233 del 1991-12-05
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=53688&param2=58628&param3=1 (ficha 53688)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1991-12-05 | la propia norma |

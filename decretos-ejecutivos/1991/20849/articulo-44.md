@@ -1,0 +1,1 @@
+Artículo 44.—El Director aprobará el programa anual de vacaciones de los servidores, procurando asignarles dentro de las quince semanas posteriores al día en que aquellos cumplan las cincuenta semanas de servicio continuo, tratando de que no se altere la buena marcha de las funciones encomendadas y que no sufra menoscabo la efectividad del descanso.

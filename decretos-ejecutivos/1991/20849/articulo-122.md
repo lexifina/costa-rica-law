@@ -1,0 +1,1 @@
+Artículo 122.—Las sanciones disciplinarias aplicadas a los servidores se harán constar en los respectivos expedientes personales que debidamente consecutivos y sellados llevará el Departamento de Personal de MIDEPLAN.

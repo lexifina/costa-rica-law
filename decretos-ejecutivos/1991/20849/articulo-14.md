@@ -1,0 +1,1 @@
+Artículo 14.—La escala salarial aplicable a los servidores de la Dirección será igual a la establecida en la Ley de Salarios de la Administración Pública vigente y comprenderá automáticamente los ajustes que se establecieren en las resoluciones emitidas para el Régimen del Servicio Civil por concepto de revaloraciones y reestructuraciones de clases.

@@ -1,0 +1,1 @@
+Artículo 57.—Los servidores también tendrán derecho al reconocimiento de los años de antigüedad para los efectos contemplados en este Reglamento y en .la ley, así como a disfrutar de los aumentos generales de salarios que se acuerden para el resto de los servidores del Poder Ejecutivo.

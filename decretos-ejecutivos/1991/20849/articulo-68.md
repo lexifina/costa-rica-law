@@ -1,0 +1,1 @@
+Artículo 68.—El Departamento de Personal de MIDEPLAN evaluará el cumplimiento de los requisitos establecidos en este capítulo para acogerse al beneficio de dedicación exclusiva dentro de un plazo máximo de diez días hábiles a partir de la fecha de su presentación. En casos especiales dicho plazo podrá prorrogarse por una sola vez.
