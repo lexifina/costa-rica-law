@@ -1,0 +1,1 @@
+Art. 3. El nombramiento de los vendedores de licor lo harã la Intendencia general de acuerdo con el Gobierno; y la duracion de dichos vendedores será únicamente la de un año que espira el último de diciembre. -Si en el trascurso de ese tiempo los vendedores faltasen â las órdenes y reglamentos del ramo, serán removidos sin perjuicio del castigo à que se hayan hecho acreedores.

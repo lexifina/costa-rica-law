@@ -1,0 +1,1 @@
+Art. 4. El punto o puntos donde deben situarse los puestos de venta de licores del pais lo mismo que de los extrangeros, serán fijados por os Gobernadores de las Provincias en los lugares mas publicos para facilitar el celo y vigilancia de la autoridad.
