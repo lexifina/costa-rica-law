@@ -1,2 +1,0 @@
-Artículo 5°—Sanciones administrativas
-De conformidad con el inciso 16 del Artículo 159 de la Ley Reguladora del Mercado de Valores, serán sancionados con multa de cien veces el salario base definido en la Ley 7737, las personas físicas o jurídicas que incumplan la obligación de realizar operaciones de compraventa, reporto y recompra de valores objeto de oferta pública en bolsa; salvo los casos de excepción establecidos en este Reglamento.
