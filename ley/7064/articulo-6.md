@@ -1,8 +1,13 @@
 CAPITULO II
 De la adecuación de deudas de los productores
 agropecuarios y de saneamiento de la cartera bancaria
-Artículo 6º.- Se autoriza al Ministerio de Hacienda para que emita
-títulos de la deuda pública denominados "Bonos de readecuación del señor
+(NOTA: Sobre la cancelación con el pago del 35% de las deudas de los
+productores incluidos en este apartado, véanse las leyes No.7253 del 13
+de agosto de 1991 y sus reformas, así como la interpretación auténtica
+hecha por los artículos 1 y 2 de la ley No.7305 del 22 de julio de 1992,
+que señalan plazos y procedimientos de cancelación).
+ARTICULO 6º.- Se autoriza al Ministerio de Hacienda para que emita
+títulos de la deuda pública denominados "Bonos de readecuación del sector
 agropecuario", por un monto de hasta cinco mil millones de colones (¢
 5.000.000.000,00), para permitir que se incluyan en el programa de
 adecuación las obligaciones de los deudores agropecuarios que se
