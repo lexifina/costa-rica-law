@@ -1,0 +1,1 @@
+Artículo 2º—Aclarar el último párrafo del transitorio 1º, para que donde dice: "Pago de encomiendas y pasajes dentro del país", se lea correcta y técnicamente de la siguiente forma: "Pago de servicios de correos y encomiendas y transportes dentro del país."

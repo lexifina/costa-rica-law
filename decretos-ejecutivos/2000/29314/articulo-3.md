@@ -1,0 +1,1 @@
+Artículo 3º—Adicionar un segundo párrafo al transitorio 2º del decreto de marras para que se lea así: "Así como aquellos compromisos derivados de la puesta en operación de las nuevas instalaciones de las Capitanías de Puerto de Golfito y Puntarenas y del programa de automatización de los servicios que brindan las Capitanías de Puerto".
