@@ -9,11 +9,12 @@ b) Los ingresos por concepto de multas y comisos que perciba por las
 infracciones a esta ley.
 c) Los ingresos por los servicios que brinde.
 d) Las contribuciones que reciba de otras instituciones públicas.
-e) Los legados, donaciones y, en general, toda clase de bienes o derechos
-que legalmente o por voluntad de particulares le sean proporcionados.
+e) Los legados, donaciones y, en general, toda clase de bienes o
+derechos que legalmente o por voluntad de particulares le sean
+proporcionados.
 f) las contribuciones que reciba de organismos internacionales o de
-gobiernos de otros países, con los que Costa Rica haya suscrito convenios
-de colaboración en el campo de producción de semillas.
+gobiernos de otros países, con los que Costa Rica haya suscrito
+convenios de colaboración en el campo de producción de semillas.
 g) Los aportes que deberán entregar los procesadores de semillas por
-cada cuarenta y seis kilogramos (46 Kg) de semilla distribuida cuyos
-montos serán fijados por la Junta Directiva.
+cada cuarenta y seis kilogramos (46 Kg) de semilla distribuida
+cuyos montos serán fijados por la Junta Directiva.
