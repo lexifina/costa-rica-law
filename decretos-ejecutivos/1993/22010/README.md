@@ -15,3 +15,4 @@ Crea la Dirección Jurídica como el órgano asesor, consultor y resolutorio en 
 | --- | --- | --- |
 | 1 | 1993-04-01 | la propia norma |
 | 2 | 2001-08-28 | Decreto Ejecutivo 29801 (2001-08-28) |
+| 3 | 2004-06-04 | Decreto Ejecutivo 31918 (2004-06-04) |
