@@ -1,0 +1,1 @@
+Artículo 3°-Los beneficios que en virtud de este decreto se otorgan a "Rosago Sociedad Anónima" podrán ser modificados o regulados en virtud de convenios, protocolos o resoluciones de los Organismos del Tratado Integración Económica Centroamericana,
