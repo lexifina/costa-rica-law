@@ -1,0 +1,1 @@
+Art 5°.- Luego que este o qualquiera de los nuevos pobladores hayan cultivado los terrenos que se les conceden podrán dárseles más según la abundancia que haya de baldíos y las ventajas que ofresca la especie de agricultura que emprenderán a juicio de la Asamblea respectiva a quien el Gobierno informará al efecto.
