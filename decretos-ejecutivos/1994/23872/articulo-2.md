@@ -1,1 +1,0 @@
-Artículo Nº 2.- Los miembros de la Comisión Técnica Consultiva de Cambio Climático serán representantes de las instituciones y empresas del Estado, especialmente de organizaciones adscritas al MIRENEM y su designación requerirá de la aprobación del Ministro de Recursos Naturales, Energía y Minas.

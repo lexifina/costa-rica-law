@@ -1,1 +1,0 @@
-Artículo Nº 4.- La CCCC estará integrada por la Coordinación General, la Secretaría Ejecutiva, conformada por una coordinación ejecutiva y una sub-coordinación ejecutiva, así como los coordinadores de los seis grupos de trabajo.
