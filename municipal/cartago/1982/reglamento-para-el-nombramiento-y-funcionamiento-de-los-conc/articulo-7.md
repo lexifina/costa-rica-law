@@ -1,0 +1,1 @@
+Artículo 7° -La municipalidad velará por la integridad y fortalecimiento estructural de los Concejos de Distrito de su jurisdicción, así como por la ejecución de los acuerdos y resoluciones de los mismos.

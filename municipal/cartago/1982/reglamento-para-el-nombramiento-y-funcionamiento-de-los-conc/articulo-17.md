@@ -1,0 +1,1 @@
+Artículo 17.-Las sesiones ordinarias deben efectuarse en el caserío designado por la municipalidad como cabecera del distrito, y en otros caseríos del mismo, pudiendo el Concejo de Distrito celebrar sesiones extraordinarias en otros distritos del mismo cantón para tratar asuntos de interés interdistrital.

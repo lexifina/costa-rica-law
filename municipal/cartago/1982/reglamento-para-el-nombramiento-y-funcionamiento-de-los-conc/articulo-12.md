@@ -1,0 +1,8 @@
+Funciones:
+Artículo 12. -Los Concejos de Distrito tendrán las siguientes funciones:
+a) Servir de órganos de enlace y coordinación entre las comunidades y las municipalidades;
+b) Ser órgano de representación de las comunidades y de colaboración de la municipalidad;
+c) Fiscalizar las obras municipales que se efectúen en el distrito informando al Ejecutivo y al Concejo Municipal sobre las mismas lo que a bien tengan;
+ch) De mutuo acuerdo con las asociaciones de desarrollo, cooperativas, sindicatos y demás organizaciones sociales, cívicas y culturales, elaborar anualmente una lista de las obras públicas de más urgencia en el distrito, para los efectos del artículo 116 del Código Municipal (elaboración del presupuesto ordinario);
+d) Recoger contribuciones o realizar ferias públicas, de conformidad con la Ley N° 4286 Y su reglamento, depositando de inmediato los fondos recaudados a la municipalidad, la que deberá necesariamente dedicarlos a los fines que haya acordado el Concejo de Distrito, en el lapso descrito en el artículo 10 de este reglamento; y
+e) Cualquier otra que les encargue el Concejo Municipal, congruente con su naturaleza y finalidades, por ejemplo: ayudar a establecer el catastro urbano y rural; formar conciencia para el pago del detalle de caminos, así como de otros tributos y patentes; crear una organización contra catástrofes naturales y tomar medidas para garantizar el orden y la seguridad de la comunidad; propiciar la movilización comunal para impulsar el desarrollo de los distritos. Promover seminarios y actividades referidos a programas de salud, cultura, arte, etc,. en sus comunidades, en coordinación con la municipalidad, ministros e instituciones del Estado.

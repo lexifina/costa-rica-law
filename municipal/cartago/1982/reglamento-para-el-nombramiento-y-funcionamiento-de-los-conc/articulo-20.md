@@ -1,0 +1,1 @@
+Artículo 20.-Las sesiones se desarrollarán conforme a la orden del día previamente confeccionada por el presidente, o quien lo sustituya, la cual podrá ser modificada, mediante la presentación de una moción alterando el orden del día.

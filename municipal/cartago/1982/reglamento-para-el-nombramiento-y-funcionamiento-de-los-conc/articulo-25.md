@@ -1,0 +1,2 @@
+Presidencia
+Artículo 25.-EI presidente del Concejo se mantendrá en el cargo mientras ejerza su condición de Síndico del distrito de que se trate. En caso de renuncia o pérdida de credencial por parte del Síndico propietario el vicepresidente pasa a ser el presidente del Concejo de Distrito, debiendo confeccionarse una terna para elegir el miembro faltante y eligiendo el vicepresidente nuevo, enviando por su nombramiento al Concejo Municipal.

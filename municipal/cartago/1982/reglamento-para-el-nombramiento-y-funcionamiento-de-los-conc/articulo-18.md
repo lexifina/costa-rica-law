@@ -1,0 +1,1 @@
+Artículo 18.-El quórum para las sesiones se formará con tres concejales. En caso de ausencia del presidente, lo sustituirá el vicepresidente y en caso de ausencia de este último, presidirá el concejal de mayor edad.
