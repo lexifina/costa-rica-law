@@ -1,0 +1,1 @@
+Artículo 4°-EI título "Genéricos", cubre a las ocupaciones indicadas bajo este título, en todas las actividades, con excepción de aquellas ocupaciones que estén especificadas bajo otros títulos. Los salarios estipulados bajo cada título cubren a los trabajadores del proceso a que se refiere el título respectivo, y no a los trabajadores incluidos bajo el título Genéricos.
