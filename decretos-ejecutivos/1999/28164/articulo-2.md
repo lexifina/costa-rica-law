@@ -1,0 +1,1 @@
+Artículo 2°—El Ministerio de Comercio Exterior (en adelante "COMEX") será el ente encargado de asignar y administrar los contingentes de exportación, de conformidad con las disposiciones de este Reglamento.
