@@ -9,4 +9,4 @@ funcionarios de la FAO que lleguen al país en misiones de interés para
 arreglos necesarios para su expedita atención por parte de las autoridades
 y funcionarios del Gobierno de Costa Rica.
 San José, 5 de diciembre de 1979.
-Artículo 2º.- Rige a partir de su publicación.
+Artículo 2º.-Rige a partir de su publicación.
