@@ -1,0 +1,1 @@
+Artículo 10.—De la supervisión. Corresponderá a la Gerencia de División Financiera, la supervisión del cumplimiento de las directrices emitidas por el Consejo e informar periódicamente sobre el resultado de las evaluaciones realizadas.

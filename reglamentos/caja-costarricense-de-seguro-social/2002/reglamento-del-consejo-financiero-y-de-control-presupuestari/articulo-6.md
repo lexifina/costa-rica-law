@@ -1,0 +1,1 @@
+Artículo 6º—Política Presupuestaria Institucional. Anualmente a más tardar en el mes de abril, el Consejo someterá a consideración de la Junta Directiva la Política Presupuestaria Institucional del año siguiente , sobre los Seguros Sociales y el Régimen no Contributivo. Asimismo, las evaluaciones y ajustes que se requieran durante el ejercicio.

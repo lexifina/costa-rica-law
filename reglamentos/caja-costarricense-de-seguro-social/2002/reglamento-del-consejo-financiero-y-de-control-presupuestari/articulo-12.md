@@ -1,0 +1,2 @@
+Artículo 12.—Recalificación de Ingresos Institucionales. La Dirección Actuarial y de Planificación Económica presentará anualmente en el mes de marzo al Consejo, la estimación de los ingresos de los seguros sociales con el fin de establecer la política presupuestaria institucional. Asimismo, presentará durante el ejercicio en los meses de enero y julio las respectivas recalificaciones de los ingresos institucionales. Acuerdo firme".
+San José, 6 de mayo del 2002.—Emma C. Zúñiga Valverde, Secretaria Junta Directiva.

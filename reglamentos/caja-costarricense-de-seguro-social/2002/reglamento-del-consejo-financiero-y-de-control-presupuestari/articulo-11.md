@@ -1,0 +1,1 @@
+Artículo 11.—Control del gasto institucional. El Consejo deberá establecer la Comisión Técnica de Control del Gasto Institucional, coordinada por el Director de Presupuesto, la cual funcionará como órgano auxiliar y deberá emitir informes de su gestión.

@@ -1,0 +1,1 @@
+Artículo 7º—Directrices sobre ingresos y egresos. En lo referente a las directrices institucionales en materia de ingresos y egresos de los Seguros Sociales, el Consejo aprobará las líneas de acción requeridas para garantizar los ingresos previstos y racionalizar el gasto, de acuerdo con las recomendaciones técnicas pertinentes.

@@ -1,0 +1,1 @@
+Artículo 5º—Principios de la gestión financiera y presupuestaria. La gestión financiera y de presupuesto institucional desde la formulación , ejecución y liquidación se ajustará a los principios y disposiciones generales establecidos en el título II de la Ley de Administración Financiera y Presupuestos Públicos, Ley Nº 8131 del 18 de setiembre del año 2001.
