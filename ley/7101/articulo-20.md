@@ -1,0 +1,21 @@
+Artículo 20.- Si fuere el arrendante quien dispusiere hacer las
+reparaciones, a falta de acuerdo entre los contratantes, cualquiera de
+ellos podrá recurrir al tribunal para que, mediante el proceso sumario que
+establece el Código Procesal Civil, se determine si son o no
+indispensables.
+Si el inquilino manifestare que se aviene a soportar las molestias
+que le ocasionen los trabajos; el arrendante iniciará las reparaciones sin
+desalojarlo y las llevará a cabo sin causarle molestias innecesarias.
+En caso de que las reparaciones sean de tal naturaleza que no
+permitan habitar la caso local, el inquilino deberá desalojarla dentro del
+plazo de un mes, que se contará a partir de la firmeza de la sentencia.
+El inquilino que desalojare la caso o local para que se efectúen
+reparaciones tendrá derecho a prioridad para volver a ocuparlos. Este
+derecho caduca si transcurren quince días sin que se ejerza, plazo de un
+mes, que se contará a partir de la fecha en que el arrendante le comunique
+formalmente que han concluido las reparaciones.
+Concluidas las reparaciones, si el arrendante lo solicita, el tribunal
+resolverá si las obras afectadas justifican o no un aumento en el precio
+del alquiler; en caso afirmativo, en qué cantidad y a partir de qué fecha.
+CAPITULO III
+Desalojo

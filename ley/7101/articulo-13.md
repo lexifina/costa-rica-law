@@ -1,0 +1,16 @@
+Artículo 13.- El pago del alquiler se hará en la forma y en el lugar
+convenidos.
+El inquilino podrá hacer el pago dentro de los ocho días siguientes a
+la fecha estipulada en el contrato.
+El inquilino pagará correctamente si deposita judicialmente el
+alquiler sin necesidad de oferta real de pago. Para que sea válido del
+depósito, deberá hacerse a la orden de la autoridad judicial competente
+del lugar en que esté situado el inmueble, e indicarse en la boleta la
+dirección en que deberá notificarse este primer depósito al arrendante.
+Los depósitos siguientes, para que sean válidos, deberán hacerse a la
+orden de la misma autoridad.
+Si el inquilino se limitare a depositar el monto del alquiler, sin
+promover ante la autoridad competente las correspondientes diligencias de
+consignación de alquileres, a solicitud del consignatario, dicha autoridad
+girará el monto del depósito, sin dilación de trámites, y decretará firme
+el auto en el que se ordene el giro.
