@@ -1,0 +1,1 @@
+Articulo 19.-El Administrador del Banco cumplir, bajo su responsabilidad personal, todas las disposiciones que dicte la Junta Directiva; y en cumplimiento de ellas, hará los préstamos que se soliciten, consultándose las deudas que ocurran y velando en todo el cumplimiento de la ley y la observancia de los Estatutos.

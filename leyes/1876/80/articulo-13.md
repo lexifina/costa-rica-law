@@ -1,0 +1,1 @@
+ARTÍCULO 13.-En caso de hipoteca, es condición implícita del contrato, que, si fuere preciso ejecutar la finca hipotecada, se rematar sin previo valuó de peritos, sirviendo de base la cantidad adeudada. El remate ser público, y se anunciar tres veces en el Boletín Oficial, con quince días de intervalo cada vez.

@@ -1,0 +1,1 @@
+ARTÍCULO 36.-La procuración del Banco la tendrá la persona que la Dirección nombre. -Por su trabajo percibir las correspondientes costas personales que causen los deudores morosos, y además un dos por ciento sobre la cantidad que motive la ejecución, como pena al deudor moroso; a no ser que la Dirección tenga por conveniente hacer otro arreglo particular.

@@ -1,0 +1,1 @@
+ARTICULO 4°. -El objeto del Banco es mejorar la situación económica de la República, por medio del prudente uso del crédito; y la operación principal del Banco es emitir billetes de $ 100 hasta la expresada cantidad de $ 500,000, que devengar n el interés de 12 % al año.

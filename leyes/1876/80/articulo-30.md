@@ -1,0 +1,1 @@
+ARTICULO 30.-Las resoluciones de la Asamblea General se harán por mayoría de votos, y para graduarla se atender al monto del capital suscrito por los votantes. En caso de empate, decidir el Administrador del Banco.
