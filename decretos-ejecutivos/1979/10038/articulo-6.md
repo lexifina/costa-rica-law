@@ -1,0 +1,3 @@
+Artículo 6°—La finca "Tsipiri-Wari" tendrá un estatuto especial de "Bosque Protector" tal como lo define la Ley Forestal, a efecto de conservar indefinidamente el carácter forestal de esta zona.
+No se permite el establecimiento de cultivos, de potreros, ni de viviendas en esta área con excepción a casas forestales.
+El Bosque Protector de Tsipiri-Wari quedará como reserva de madera y de cacería de la región. La cacería será regulada de conformidad con las disposiciones légales existentes, de manera a mantener su potencial de fauna permanente. La vigilancia de toda esta área estará a cargo de los Guardas - Reserva Indígenas del TCO.

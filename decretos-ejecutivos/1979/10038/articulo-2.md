@@ -1,0 +1,1 @@
+Artículo 2°—Se confirma que la parte Sur de la "Hacienda Chirripó constituida de cerros cubiertos de bosque y charrales, queda incluida en la Reserva Indígena y será expropiada conforme a la ley No 6172, y decretos conexos.
