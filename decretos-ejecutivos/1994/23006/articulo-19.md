@@ -1,2 +1,1 @@
-Artículo 19.-Función auxiliar
-La Defensoría de los Derechos Humanos de los Privados y Privadas de Libertad, Niños, Niñas y Adolescentes de la Dirección General de Adaptación Social, será un órgano auxiliar del Defensor de los Habitantes de la República. Deberá remitirle las denuncias que sean de su interés, así como prestar todo tipo de colaboración que esté! en posibilidad de brindar. En caso de recibir denuncias que competan a otros órganos o entidades, deberá remitírselas para lo que corresponda.
+Artículo 19.-(Este artículo fue derogado por el artículo 8° del decreto ejecutivo N° 26965 del 6 de abril de 1998)

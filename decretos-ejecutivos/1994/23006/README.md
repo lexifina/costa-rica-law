@@ -14,3 +14,4 @@ Reglamento del Programa de Protección y Promoción de los Derechos Humanos del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-03-17 | la propia norma |
+| 2 | 1998-04-06 | Decreto Ejecutivo 26965 (1998-04-06) |

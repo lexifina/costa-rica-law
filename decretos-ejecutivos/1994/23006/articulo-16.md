@@ -1,2 +1,1 @@
-Artículo 16.—Especial deber de colaboración
-Todo servidor público o servidora pública, en labores propias de su cargo, deberá, prestar su colaboración a la Defensoría de los Derechos Humanos de los Privados/ Privadas de Libertad, Niños, Niñas y Adolescentes de la Dirección General de, Adaptación Social, cuando esta lo requiera en virtud de sus funciones. Su negativa o negligencia deberá ser comunicada por la Defensoría al órgano competente para lo que corresponda.
+Artículo 16.—(Este artículo fue derogado por el artículo 8° del decreto ejecutivo N° 26965 del 6 de abril de 1998)

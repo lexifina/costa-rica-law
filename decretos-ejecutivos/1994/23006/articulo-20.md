@@ -1,2 +1,1 @@
-Artículo 20.—Función contralora
-La Defensoría de los Derechos Humanos de los Privados y Privadas de Libertad, N iños, Niñas y Adolescentes de la Dirección General de Adaptación Social, trabajará como Contraloría de Servicios, para lo cual se regirá por lo estipulado en el Decreto mero 22511-MIDEPLAN del 17 de setiembre de 1993 y demás normativa que al respecto se promulgue. Tal función estará restringida a la materia de su competencia.
+Artículo 20.—(Este artículo fue derogado por el artículo 8° del decreto ejecutivo N° 26965 del 6 de abril de 1998)
