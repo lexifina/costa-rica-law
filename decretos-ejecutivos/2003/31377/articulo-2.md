@@ -1,0 +1,1 @@
+Artículo 2º—Se corre la numeración del Capítulo XXI del Decreto Ejecutivo Nº 23880. Córrase la numeración del Capítulo XXI del Decreto Ejecutivo Nº 23880, a partir del artículo 175 y hasta el 177, a fin de que en adelante se lean del 194 al 196.
