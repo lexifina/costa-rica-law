@@ -1,0 +1,1 @@
+Artículo 2º—Será el Ministerio de Economía, Industria y Comercio por medio de la Oficina Nacional de Normas y Unidades de Medida, el organismo encargado de velar por el cumplimiento del presente Decreto.

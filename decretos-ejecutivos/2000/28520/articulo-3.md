@@ -1,0 +1,1 @@
+Articulo 3º—A toda persona que haciendo uso de este reglamento, encuentre razón sustentada para pedir su revisión, se le solicita notificarlo a la Oficina Nacional de Normas y Unidades de Medida, sin demora, aportando, de ser posible, la información correspondiente para hacer las investigaciones necesarias y tomar las previsiones del caso.
