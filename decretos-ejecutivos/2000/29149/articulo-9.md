@@ -1,0 +1,1 @@
+Articulo 9-Los Ministerios, entidades del Estado, Municipalidades y Organismos Privados Nacionales o Internacionales, podran proporcionar a la Comision Nacional sobre Incendios Forestales, en la medida de sus posibilidades, el apoyo que esta requiera para el cumplimiento de sus funciones.

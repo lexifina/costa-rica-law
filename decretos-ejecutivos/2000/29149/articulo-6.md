@@ -1,0 +1,4 @@
+Articulo 6-Para el cumplimiento de las funciones, el SINAC y la CONIFOR tendran como pol¡ticas principales las siguientes:
+a. Las acciones que se establezcan para atender la problematica de los incendios forestales y agricolas, se desarrollar n en el contexto de manejo del fuego, al amparo de la estructura nacional y dentro del marco del desarrollo sostenible.
+b. Busca y promueve la participacion y el compromiso de las instituciones y organizaciones, nacionales e internaciones, ademas se reconoce el espacio para la integracion de la sociedad civil por medio del Bombero Forestal.
+c. La toma de decisiones en materia de manejo del fuego se fundamentar en la coordinacion interinstitucional, mediante el conocimiento y la experiencia acumulada con relacion a investigacion, capacitacion, educacion y comunicacion.
