@@ -1,0 +1,1 @@
+Art. 3. Pasado el término señalado, no habrá lugar à reclamo alguno por los perjuicios recibidos en el concepto dicho.-Dado en San José á los dos dias del mes de noviembre de mil ochocientos cuarenta y siete. José Maria Castro.-Al Ministro de hacienda, guerra y marina Señor Don Manuel José Carazo.”
