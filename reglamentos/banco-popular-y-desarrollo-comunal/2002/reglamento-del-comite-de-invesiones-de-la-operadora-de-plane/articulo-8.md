@@ -1,0 +1,1 @@
+Artículo 8º—El Gerente de la Operadora, con la asesoría de Popular Valores, realizará las inversiones de conformidad con los parámetros definidos en el artículo 10 de este reglamento, así como las ventas de valores de acuerdo con las necesidades de flujo de caja que presenten los Fondos diariamente.
