@@ -1,0 +1,1 @@
+Artículo 2º.- Para llevar a cabo esa celebración, el Poder Ejecutivo promoverá actividades en los diversos centros del país, tendientes a dar a conocer los problemas de la ancianidad, el aporte ellos han dado a nuestra sociedad, el proceso de envejecimiento y la necesidad de una toma de responsabilidades frente a la situación en referencia.
