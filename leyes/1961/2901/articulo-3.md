@@ -1,1 +1,0 @@
-Artículo 3°-Se crea el premio "JOAQUIN GARCA MONGE" para honrar a los periodistas costarricenses que divulguen más las obras literarias, científicas y culturales de nuestra nación, tanto como a las mejores críticas dentro del país, como en el extranjero.

@@ -1,1 +1,0 @@
-Artículo 4°-Los premios los otorgará cada año el Ministerio de Educación Pública, mediante el fallo de un Jurado que debe integrar con un delegado de cada una de las siguientes entidades: Universidad de Costa Rica, Academia Costarricense de la Lengua, Asociación de Autores de Obras Literarias, Artísticas y Científicas de Costa Rica y Editorial Costa Rica.
