@@ -1,0 +1,1 @@
+Artículo 8º.- El Consejo remitirá mensualmente a la Secretaría de Seguridad Pública un Estado de Cuentas con todos los detalles pertinentes sobre el movimiento de sus fondos, para ser publicado en el Diario Oficial, debiendo informar una vez al año a dicha Secretaría de las labores realizadas.
