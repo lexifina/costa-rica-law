@@ -1,0 +1,1 @@
+Art. 3. Los dueños de encierros y potreros, las tendrán bien asegurados, para que no salgan los animales á causar daños. De la misma manera, estarán aseguradas todas las posesiones de plantíos ó labores permanentes, y los entremedios que separen unas de otras.
