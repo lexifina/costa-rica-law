@@ -8,4 +8,5 @@ físicas o naturales directamente la pena de multa o la de prisión en que
 efectiva en los bienes de la persona jurídica concerniente, la cual
 responderá por las multas, daños y perjuicios resultantes como por los
 gastos que ocasione el proceso. Para responder de todo eso se decretará
-embargo de bienes de la persona o empresa afectada en cantidad suficiente.
+embargo de bienes de la persona o empresa afectada en cantidad
+suficiente.

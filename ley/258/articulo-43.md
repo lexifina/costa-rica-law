@@ -3,5 +3,7 @@ administrador de la Institución y como tal será el representante judicial
 y extrajudicial de la Institución, pudiendo litigar en nombre de ella o
 dar poder con ese objeto bajo su responsabilidad, así como firmar los
 contratos en que sea parte el Servicio Nacional de Electricidad para
-someterlos a la aprobación de la Junta Eléctrica o darles cualquier otro
-curso indicado por la ley o los reglamentos vigentes.
+someterlos a la aprobación de la Junta Eléctrica (*) o darles cualquier
+otro curso indicado por la ley o los reglamentos vigentes.
+REFORMADO TACITAMENTE por Ley Nº 4537 de 25 de febrero de 1970.
+NOTA: V.O.L.
