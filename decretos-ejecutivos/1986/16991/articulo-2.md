@@ -1,0 +1,1 @@
+Artículo 2º—La Comisión funcionará en coordinación con los órganos de la Corte Suprema de Justicia, Ministerio de Justicia y Gracia y Asamblea Legislativa, encargados de desarrollar programas de sistematización jurídica.
