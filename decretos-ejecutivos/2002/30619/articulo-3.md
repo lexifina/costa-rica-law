@@ -1,0 +1,3 @@
+Artículo 3º—Modifícase el artículo Nº 2 de la Ley Nº 8180 del 6 de diciembre del 2001 "Ley de Presupuesto Ordinario y Extraordinario de la República. Fiscal y por Programas para el Ejercicio Económico del año 2002". en la forma que se indica a continuación:
+En la página PP-109-080 donde dice: 109.136-02.199.01.112.12 OTROS SERVICIOS NO PERSONALES (PARA PAGO A POLICROMÍA POR SERVICIOS DE REPRODUCCIÓN DE DOCUMENTOS. SERVICIOS DE FUMIGACIÓN EDIFICIO. FONTANERÍA Y OTROS).
+Debe decir: 109.136.02.199.01.112.12 OTROS SERVICIOS NO PERSONALES (PARA PAGO POR SERVICIOS DE REPRODUCCIÓN DE DOCUMENTOS. SERVICIOS DE FUMIGACIÓN EDIFICIO. FONTANERÍA Y OTROS).
