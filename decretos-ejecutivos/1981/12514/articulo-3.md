@@ -1,0 +1,1 @@
+Artículo 3°-Su restauración y mantenimiento. correrá por cuenta del Ministerio de Obras Públicas y Transportes, bajo la supervisión del Departamento de Patrimonio Histórico del Ministerio de Cultura, Juventud y Deportes. El inmueble permanecerá siendo un centro educativo para la formación humanística de la juventud costarricense.
