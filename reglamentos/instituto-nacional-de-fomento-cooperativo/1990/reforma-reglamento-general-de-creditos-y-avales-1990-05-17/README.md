@@ -1,0 +1,16 @@
+# Reglamento (1990-05-17)
+
+Reforma Reglamento General de Créditos y Avales.
+
+- Tipo: Reglamento
+- Número: 1963
+- Fecha: 1990-05-17
+- Ente emisor: Instituto Nacional de Fomento Cooperativo
+- Publicación: La Gaceta N° 108 del 1990-06-07
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=50568&param2=54366&param3=1 (ficha 50568)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1990-06-07 | la propia norma |
