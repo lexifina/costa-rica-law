@@ -1,2 +1,0 @@
-Artículo 7º—Obligaciones de los Asegurados. Para acogerse a los servicios que se ofrecen en este Reglamento se requiere que el asegurado directo o familiar cumpla con lo que estipula el artículo 74 del Reglamento del Seguro de Salud: " los asegurados deberán certificar su condición con los documentos que exija la Caja (tarjeta de comprobación de derechos u orden patronal, cédula de identidad o documento de similar rango, carné de asegurado)".
-Así como cumplir con lo establece el artículo 78 en lo referente a las obligaciones y responsabilidades de los asegurados.

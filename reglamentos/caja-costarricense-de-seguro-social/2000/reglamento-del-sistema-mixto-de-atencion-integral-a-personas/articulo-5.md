@@ -1,1 +1,0 @@
-Artículo 5º—Igualdad en las Prestaciones de los servicios. Los servicios de apoyo que brindará la Caja dentro del Sistema Mixto de Atención Integral a las personas deben ser similares a los autorizados para los diferentes servicios en el resto de las unidades prestatarias. No se deberán exceder los costos institucionales.

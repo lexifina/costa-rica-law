@@ -1,3 +1,0 @@
-Artículo 17.—Servicio de Farmacia. El asegurado directo o familiar que accese el Sistema, puede retirar hasta tres medicamentos por consulta, excepto en casos debidamente justificados y la cual deberá ser anotada en el dorso de la receta. Dichos medicamentos deberán estar incluidos en el cuadro básico. Los mismos se pueden prescribir por un plazo no mayor de un mes.
-En caso de existir un mayor número de medicamentos recetados, no justificados y que no forman parte del cuadro básico autorizado o son de uso restringido deberán ser cancelados por el asegurado.
-Para los efectos de prescripción de medicamentos autorizados para especialidades, se respetará la especialidad inscrita por el profesional ante el Colegio de Médicos y Cirujanos de Costa Rica.
