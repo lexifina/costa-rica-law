@@ -1,4 +1,2 @@
-ARTICULO 21.- El monto de la pensión será igual a un treintavo de la
-remuneración mensual de un Diputado, vigente al momento de presentarse la
-solicitud de pensión, multiplicado por el número de años servidos en la
-Administración Pública.
+ARTICULO 21.- DEROGADO.-
+(Derogado por el artículo 5º de la ley No.7605 de 2 de mayo de 1996)

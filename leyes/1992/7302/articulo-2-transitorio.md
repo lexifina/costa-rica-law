@@ -1,0 +1,1 @@
+TRANSITORIO II.- Aquellas personas que, a la entrada en vigencia de esta Ley, reúnan los requisitos para adquirir el derecho a la pensión, preceptuados por cualquiera de los regímenes especiales afectados en esta Ley, conservarán su derecho a pensionarse al amparo de esa normativa especial.

@@ -1,0 +1,1 @@
+TRANSITORIO IV.- Las personas que estén acogidas a la pensión que otorga la Ley No. 1922 del 5 de agosto de 1955 y sus reformas, conservarán sus derechos y el monto de sus pensiones debe ser actualizado de oficio al entrar en vigencia la presente Ley.
