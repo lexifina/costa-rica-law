@@ -1,0 +1,1 @@
+Artículo 9º—Confidencialidad de la información. La información contenida en la declaración jurada presentada por los contribuyentes a la Municipalidad, tendrá carácter confidencial, de acuerdo con el Artículo 117 del Código de Normas y Procedimientos Tributarios.

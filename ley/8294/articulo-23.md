@@ -1,0 +1,1 @@
+Artículo 23.—Licencia municipal en caso de solicitud de exoneración. Cuando existan disposiciones legales proteccionistas que afecten el pago del impuesto o la patente, al interesado le corresponderá solicitar la exención correspondiente. No obstante, en tales casos, se mantendrá la obligación de solicitar la respectiva licencia municipal.

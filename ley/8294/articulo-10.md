@@ -1,0 +1,1 @@
+Artículo 10.—Reglamentación. Autorízase a la Municipalidad de Turrubares para que emita el Reglamento de la presente Ley y para que adopte las medidas administrativas convenientes a efecto de una adecuada fiscalización.
