@@ -14,3 +14,4 @@ Declara Emergencia Nacional al Problema de Refugiados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-03-16 | la propia norma |
+| 2 | 1984-03-16 | SINALEVI (sin norma nombrada) |
