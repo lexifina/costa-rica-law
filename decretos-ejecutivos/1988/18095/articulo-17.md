@@ -1,1 +1,0 @@
-Artículo 17-Para efecto de las liquidaciones a que hacen referencia el artículo anterior, se aplicarán los tributos, sobretasas y tipo de cambio vigente a la fecha en que se determine el incumplimiento por parte de la empresa.

@@ -1,3 +1,0 @@
-Artículo 19.-Los vehículos y la maquinaria automotriz que se hubiera exonerado total o parcialmente al amparo de la ley, sólo podrán ser utilizado por el personal de la empresa en labores directamente relacionadas con el proceso productivo de mercancías no tradicionales que se exporten a terceros mercados. Asimismo, deberán ser rotulados en ambas puertas, o en un lugar visible, sin no las tuvieran, con la frase
-"Al servicio de la Exportación ", y portarán placas de registro especiales con numeración otorgada por el Registro Público de Vehículos.
-El Ministerio de Obras Públicas y Trasportes velan por lo dispuesto en este artículo e informar a la Dirección sobre los casos en que se cumpliese.
