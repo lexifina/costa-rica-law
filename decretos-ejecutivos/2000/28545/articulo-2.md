@@ -1,0 +1,1 @@
+Artículo 2º—Los salarios bases aprobados por la Autoridad Presupuestaria vigentes al 1º de enero de 2000, de los funcionarios que conforman la Serie de Fiscalización Superior solo podrán crecer por ajustes de costo de vida, los cuales se aplicarán en el mismo monto o porcentaje y en el mismo período que se aplica a los salarios de los servidores que integran el Sector Público.

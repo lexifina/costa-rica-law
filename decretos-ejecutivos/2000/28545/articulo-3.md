@@ -1,0 +1,1 @@
+Artículo 3º—La Autoridad Presupuestaria podrá revisar las valoraciones de las series comprendidas en los artículos 1º y 2º anteriores e implementar los ajustes que correspondieran, considerando para ello las pautas provenientes de la política económica y social del Gobierno en aras del bienestar general.
