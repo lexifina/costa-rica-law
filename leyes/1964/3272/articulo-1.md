@@ -1,0 +1,6 @@
+N° 3272
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
+DECRETA:
+Artículo 1º.- Refórmase el artículo 4º de la Ley de Extranjería y Naturalización, Nº 1155 de 29 de abril de 1950, para que se lea, así:
+"Artículo 4º.- La pérdida de la calidad de costarricense no trasciende al cónyuge ni a los hijos, quienes continuarán gozando de la nacionalidad costarricense, mientras no la pierdan de acuerdo con el artículo 16 de la Constitución Política; la adquisición de la calidad de costarricense no trasciende al cónyuge, quien conservará su nacionalidad, a menos que solicite su naturalización de acuerdo con esta ley. La adquisición de la calidad de costarricense por parte del padre o de la madre, trasciende a los hijos menores de edad que estuvieren domiciliados en Costa Rica en el momento de adquirirse la calidad de costarricense y, para ese efecto, en el acta o con posterioridad a ella, y en todo caso antes de la mayoridad de los hijos, deberá hacerse constar ante el Registro Civil los nombres y apellidos de los hijos, el lugar y fecha de nacimiento de los mismos y su domicilio. Cumplida la mayoridad y hasta cumplir veinticinco años de edad, los hijos tendrán derecho de comparecer ante el Registro Civil y renunciar a la nacionalidad costarricense.
+Llegados a esa edad sin que hayan hecho la renuncia referida, continuarán siendo costarricenses naturalizados".
