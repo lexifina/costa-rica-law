@@ -1,0 +1,1 @@
+Artículo 4.- La finalidad esencial de las guarderías infantiles y de los hogares escuela, como complemento del hogar, es la atención integral del niño y de la niña y por tanto, constituyen entes preventivos del abandono, del maltrato y del abuso sexual.
