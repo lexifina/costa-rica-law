@@ -1,1 +1,0 @@
-Artículo 10.- Los recursos de apelación contra las resoluciones que dicten los Alcaldes, cuando la ley conceda el recurso, serán de conocimiento de los Jueces de la respectiva jurisdicción, según la materia; y si se tratare de diligencias de pensión alimenticia, conocerán del recurso los Jueces que tengan a su cargo los asuntos previstos en el Código de Familia.

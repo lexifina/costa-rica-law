@@ -1,5 +1,0 @@
-Artículo 5º.- Los Alcaldes podrán ser de jurisdicción mixta o de una sola materia; y los que tengan jurisdicción en lo penal y pertenezcan a circunscripciones judiciales en que esté aplicándose integralmente el nuevo Código de Procedimientos Penales, conocerán de los siguientes asuntos en esa materia:
-a) De las contravenciones establecidas en el Libro Tercero del Código Penal;
-b) De las faltas de policía y de toda clase de faltas, contravenciones y simples infracciones previstas en leyes especiales, salvo que el conocimiento de algunas de ellas se atribuya a Alcaldías de determinada materia o a otros Tribunales específicos; y
-c) De los demás asuntos que indique la ley, siempre que no se trate de delitos, sin perjuicio de lo dispuesto en el artículo 14 de la presente ley y de que puedan actuar por comisión de otras autoridades.
-En todos estos casos el procedimiento se ajustará a lo que dispone el nuevo Código para el juicio de faltas y contravenciones (artículos 423 a 427), siempre que por leyes especiales no se haya establecido o se establezca otro procedimiento.

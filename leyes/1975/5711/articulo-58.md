@@ -1,1 +1,0 @@
-Artículo 58.- Si por la distribución del trabajo y para el mejor servicio público, la Corte convirtiere una Alcaldía en Juzgado Penal o de Instrucción, los asuntos pendientes en la respectiva oficina pasarán a conocimiento de otra u otras de la misma categoría o de los funcionarios respectivos.

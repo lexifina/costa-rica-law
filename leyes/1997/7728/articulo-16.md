@@ -1,0 +1,2 @@
+ARTÍCULO 16.- Creación de Tribunales
+Créase el Circuito Judicial de Pococí-Siquirres, compuesto por un tribunal colegiado mixto y de juicio; un juzgado civil, de trabajo, de familia y penal juvenil; un juzgado agrario; un juzgado penal en Pococí y otro en Siquirres; los juzgados de menor cuantía y contravencionales de Guápiles, Siquirres y Guácimo; así como los despachos necesarios para el buen servicio público.

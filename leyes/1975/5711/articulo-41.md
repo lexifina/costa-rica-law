@@ -1,1 +1,0 @@
-Artículo 41.- La presentación del recurso ante una Sala Penal, cuando debió serlo ante el tribunal que dictó la resolución recurrida, o ante una Sala y no en otra, no será motivo de inadmisibilidad; y en tales casos será enviado el recurso a la oficina que corresponda, por simple providencia.

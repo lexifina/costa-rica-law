@@ -1,1 +1,0 @@
-Artículo 42.- Los recursos de casación se tramitarán y resolverán conforme a las disposiciones del nuevo Código de Procedimientos Penales o del Código anterior, según sea que el recurso tenga cabida de acuerdo con las reglas de uno u otro Código.

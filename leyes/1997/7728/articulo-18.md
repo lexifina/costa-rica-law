@@ -1,0 +1,2 @@
+ARTÍCULO 18.- Informes psicosociales
+Cuando sea indispensable un estudio sobre las características psicológicas, psiquiátricas y sociales, lo mismo que sobre la educación y antecedentes del imputado, con el fin de resolver alguna cuestión durante la tramitación del proceso, para la determinación de la pena o para resolver algún incidente durante la ejecución de la pena, el tribunal solicitará ese estudio a las autoridades penitenciarias.

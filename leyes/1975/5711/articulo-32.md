@@ -1,4 +1,0 @@
-Artículo 32.- Dentro del territorio de su jurisdicción en que esté aplicándose integralmente el nuevo sistema procesal, los Tribunales Superiores Penales conocerán de los siguientes asuntos:
-a) Del juicio común a que se refiere el Libro Tercero, Título I de ese Código (artículos 349 a 400), siempre que se trate de delitos cuyo conocimiento no corresponda a los jueces penales o a otros tribunales;
-b) De los recursos de apelación y consultas que procedan contra las resoluciones de los Jueces de Instrucción o de las que dicten los Alcaldes cuando actúen en sustitución de éstos, de acuerdo con los artículos 14 y 15 de la presente ley; y
-c) Del incidente previsto en el artículo 403 párrafo segundo del Código de Procedimientos Penales y de los demás asuntos que ese Código u otras leyes les atribuyan o que correspondan a los Tribunales de Juicio o de Apelación.

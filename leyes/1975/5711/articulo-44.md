@@ -1,1 +1,0 @@
-Artículo 44.- Se entenderá que existe jurisprudencia contradictoria cuando las Salas Penales hayan sostenido opuesto criterio sobre un mismo problema de derecho, al resolver uno o más recursos de casación.
