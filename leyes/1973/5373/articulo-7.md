@@ -1,0 +1,1 @@
+Artículo 7º.- Se declara oficial el mapa del nuevo cantón que prepare en su oportunidad el Instituto Geográfico Nacional con base en la descripción del artículo 3º y se autoriza al mismo para la adecuación de los límites en los casos que ofrezcan duda.

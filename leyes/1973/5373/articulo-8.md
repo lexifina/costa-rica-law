@@ -1,0 +1,1 @@
+Artículo 8º.- El Tribunal Supremo de Elecciones, en el plazo máximo de seis meses a partir de la celebración de las elecciones del 3 de febrero de 1974, convocará a elecciones para constituir la primera corporación municipal del cantón.

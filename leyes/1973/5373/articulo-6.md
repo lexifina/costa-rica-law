@@ -1,0 +1,1 @@
+Artículo 6º.- Al desaparecer los distritos 3º, La Cuesta, y 4º, Corredor del cantón del Golfito, se altera la numeración de los restantes distritos, quedando en la siguiente forma: Distrito Primero, Golfito; Distrito Segundo, Puerto Jiménez y Distrito Tercero, Guaycará.
