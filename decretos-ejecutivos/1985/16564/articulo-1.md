@@ -10,21 +10,11 @@ Considerando:
 Por tanto,
 De conformidad con el inciso 3) del artículo 140 de la Constitución Política y las leyes N° 5515 de 19 de abril de 1974 y N° 5565 de 19 de abril de 1975,
 DECRETAN:
-Artículo 1°—Se modifica el artículo 3° del Decreto Ejecutivo N° 4780-H el 26 de abril de 1975, para que en adelante se lea así:
-“Artículo 3°—Para efectos de la recaudación del impuesto mencionado en el artículo I? anterior, se procederá de la siguiente manera:
-I.—A partir del 1° de octubre de 1985 y hasta el 31 de diciembre del mismo año.
-a) Cincuenta y cinco centavos de dólar (de los Estados Unidos de América), se pagarán directamente al Banco Central de Costa Rica; y
-b) Cuarenta y cinco centavos de dólar estarán incorporados dentro del precio mínimo de exportación.
-II.—Durante el año de 1986:
-a) Veintisiete centavos de dólar se pagarán directamente al Banco Central de Costa Rica; y
-b) Setenta y tres centavos de dólar estarán incorporados al precio mínimo de exportación,
-III.—Durante el año de 1987:
-a) Veintidós centavos de dólar se pagarán directamente al Banco Central de Costa Rica; y
-b) Setenta y ocho centavos de dólar estarán incorporados dentro del precio mínimo de exportación.
-IV.—Durante el año de 1988:
-a) Dieciocho centavos de dólar se pagarán directamente al Banco Central ¿e Costa Rica; y
-b) Ochenta y dos centavos de dólar estarán incorporados dentro del precio mínimo de exportación.
-V.—Durante el año de 1989 y en adelante:
-a) Quince centavos de dólar se pagarán directamente al Banco Central de Costa Rica; y
-b) Ochenta y cinco centavos de dólar estarán incorporados dentro del precio mínimo de exportación.
-El impuesto será pagado por las compañías compradoras y/o comercializadoras directamente en el Banco Central de Costa Rica, sin que en forma alguna su pago pueda ser trasladado al productor.”
+“Artículo 1°—Se modifica el artículo 3° del decreto ejecutivo N° 4780-H- del 26 de abril de 1975, para que en adelante se lea así:
+Artículo 3°—Para efectos de la recaudación del impuesto mencionado en el artículo 1° anterior, se procederá de la siguiente:
+a) Para el período que va del 1° de enero al 30 de junio de 1989, cincuenta y dos centavos de dólar se pagarán directamente al Banco Central de Costa Rica y los restantes cuarenta y ocho centavos de dólar estarán incorporados dentro del precio mínimo de exportación.
+b) A partir del 1° de julio de 1989 quince centavos de dólar se pagarán directamente al Banco Central de Costa Rica y los restantes ochenta y cinco centavos de dólar estarán incorporados dentro del precio mínimo de exportación.
+El impuesto será pagado por las compañías compradores y/o comercializadoras directamente en el Banco Central sin que forma alguna su pago pueda ser trasladado al productor
+Como parte de los incentivos a la actividad bananera y por tratarse de una infraestructura absolutamente necesaria para la ejecución del Plan de Fomento Bananero vigente, de lo recaudado por concepto de los cincuenta y dos centavos de dólar, que de acuerdo con el inciso a) deberán pagarse directamente al Banco Central de Costa Rica, el Gobierno destinará treinta y siete centavos de dólar para financiar la construcción del puesto bananero” en el muelle de Moín, provincia de Limón.
+El Ministerio de Hacienda girará a la Asociación Bananera Nacional S. A. (ASBANA), a partir del mes de enero de 1990, los fondos destinados a la construcción del “tercer puesto bananero” de acuerdo con la ejecución de la obra, para que esta, a su vez, los gire a la Junta de Administración Portuaria y de Desarrollo de la Vertiente Atlántica (JAPDEVA) o su empresa constructora.”
+(Así reformado por el artículo 1° del decreto ejecutivo N° 18995 de 8 de mayo de 1989)
