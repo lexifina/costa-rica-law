@@ -1,0 +1,1 @@
+Art 2°.- Que cuando, por efecto de la facultad que tiene el Gobierno de trasladar los empleados, llegase el caso de que disfrutara mejor dotación viene a servir uno que la tenga menor, se dividirá el exeso o difrencia entre los dos.
