@@ -1,2 +1,1 @@
-Artículo 15º.- Podrá acogerse a los beneficios de esta ley, todo aquel que sea jefe de familia, costarricense o extranjero, que carezca de recursos para construir. Tratándose de extranjero deberá tener más de diez años de residir en el país.
-(Así reformado por el artículo único de la ley N° 1284 del 8 de mayo de 1951)
+Artículo 15º.- (Derogado por el artículo 47 de la Ley Orgánica del Instituto Nacional de Vivienda y Urbanismo INVU, N° 1788 del 24 de agosto de 1954, que expresamente dispone: "Artículo 47.-Deróganse expresamente: la ley Nº 148 de 8 de agosto de 1945 que traspasa a la Caja Costarricense de Seguro Social obligaciones y haberes de la Junta Nacional de la Habitación, excepto el inciso 1) del artículo 4º;...")
