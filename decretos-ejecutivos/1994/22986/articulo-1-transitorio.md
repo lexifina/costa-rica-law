@@ -1,0 +1,2 @@
+TRANSITORIO I:
+A los Agentes Aduaneros se les fija como fecha límite para la adecuación de la caución, que deben rendir para el ejercicio de la correduría aduanera, a efectos de garantizar su actuación ante la Aduana La Anexión, el 30 de junio de 1994. En tanto, podrán actuar ante dicha Aduana al amparo de la caución rendida ante la Aduana de Peñas Blancas. El incumplimiento de esta disposición dará lugar para que la Dirección General de Aduanas, aplique la normativa vigente.
