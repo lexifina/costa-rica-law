@@ -1,2 +1,3 @@
-Artículo 42.-Para el cumplimiento de las acciones enunciadas anteriormente el Comité Sectorial Regional contará con la asesoría de SEPSA.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 33 al 42 actual).
+Artículo 42.-El Poder Ejecutivo por medio del Ministerio de Agricultura y Ganadería a través del decreto respectivo establecerá anualmente las tasas que el Colegio de Ingenieros Agrónomos debe cobrar a los establecimientos inscritos en el Registro, para cubrir los gastos de administración del registro y de control de vigilancia de los establecimientos y sus actividades.
+Las tasas deberán ser pagadas a más tardar el día 31 de enero de cada año en las oficinas centrales del Colegio de Ingenieros Agrónomos.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 138 al 147 actual. Posteriormente mediante el inciso 1 del artículo 39 del decreto ejecutivo N° 23780 del 7 de noviembre de 1994, se deroga el anterior artículo 42 debiendo corregirse la numeración, pasando el antiguo 147 al 42 actual).

@@ -1,9 +1,2 @@
-De la Dirección Superior de Operaciones Nacionales
-Artículo 49.-La Dirección Superior de Operaciones Nacionales estará integrada por las siguientes direcciones:
-Dirección de Investigación y Extensión Agrícola.
-Estaciones Experimentales.
-Dirección de Salud y Producción Animal.
-Dirección de Sanidad Vegetal.
-Dirección de Recursos Pesqueros y Acuacultura.
-Dirección de Mercadeo Agropecuario.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 40 al 49 actual).
+Artículo 49-Este reglamento deroga el decreto N° 17671-MAG del 8 de junio de 1987 y todas aquellas otras disposiciones contempladas en otros reglamentos y decretos que se le opongan.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 145 al 154 actual. Posteriormente mediante el inciso 1 del artículo 39 del decreto ejecutivo N° 23780 del 7 de noviembre de 1994, se deroga el anterior artículo 49 debiendo corregirse la numeración, pasando el antiguo 154 al 49 actual).

@@ -1,2 +1,2 @@
-Artículo 45.-EI Ministro Rector del Sector se reunirá con los coordinadores regionales una vez al mes con el propósito de analizar las políticas sectoriales y regionales.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 36 al 45 actual).
+Artículo 45.-Para la ejecución de las actividades antes descritas el Ministerio podrá solicitar y recibir la colaboración de instituciones del sector público y coordinar asistencia técnica y tecnológica con organismos especializados en la materia de carácter internacional.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 141 al 150 actual. Posteriormente mediante el inciso 1 del artículo 39 del decreto ejecutivo N° 23780 del 7 de noviembre de 1994, se deroga el anterior artículo 45 debiendo corregirse la numeración, pasando el antiguo 150 al 45 actual).

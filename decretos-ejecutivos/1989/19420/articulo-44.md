@@ -1,2 +1,2 @@
-Artículo 44.-Para el cumplimiento de sus funciones el coordinador del Sector contará con el apoyo y asesoría de las diferentes instancias regionales de MIDEPLAN.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 35 al 44 actual).
+Artículo 44.-Los grupos organizados de productores serán beneficiarios de la extensión agrícola previa firma de convenios con el Ministerio de Agricultura y Ganadería, para concretar los alcances de la misma.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 140 al 149 actual. Posteriormente mediante el inciso 1 del artículo 39 del decreto ejecutivo N° 23780 del 7 de noviembre de 1994, se deroga el anterior artículo 44 debiendo corregirse la numeración, pasando el antiguo 149 al 44 actual).

@@ -1,3 +1,0 @@
-Artículo 147.-El Poder Ejecutivo por medio del Ministerio de Agricultura y Ganadería a través del decreto respectivo establecerá anualmente las tasas que el Colegio de Ingenieros Agrónomos debe cobrar a los establecimientos inscritos en el Registro, para cubrir los gastos de administración del registro y de control de vigilancia de los establecimientos y sus actividades.
-Las tasas deberán ser pagadas a más tardar el día 31 de enero de cada año en las oficinas centrales del Colegio de Ingenieros Agrónomos.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 138 al 147 actual).

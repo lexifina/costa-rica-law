@@ -1,2 +1,2 @@
-Artículo 38.-EI COTECSA se reunirá ordinariamente por lo menos una vez al mes y extraordinariamente cada vez que sea convocado por súpresidente.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 29 al 38 actual).
+Artículo 38.-Los grupos organizados mencionados en el artículo anterior, para tener derecho a nombrar sus representantes, deberán de previo afiliarse al Centro Agrícola Cantonal y estar al día en el cumplimiento de sus obligaciones para con el Centro.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 134 al 143 actual. Posteriormente mediante el inciso 1 del artículo 39 del decreto ejecutivo N° 23780 del 7 de noviembre de 1994, se deroga el anterior artículo 38 debiendo corregirse la numeración, pasando el antiguo 143 al 38 actual).

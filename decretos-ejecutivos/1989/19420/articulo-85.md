@@ -1,4 +1,0 @@
-Artículo 85.-Esta Dirección cuenta con un nivel directivo constituido por el Director y d Subdirector y una Unidad de Apoyo (Secretaría Técnica). Además dispone de un órgano asesor, el Consejo Superior de la Dirección de Mercadeo Agropecuario constituido por el nivel directivo y los Jefes de Departamento.
-También dispone de un nivel operativo constituido por los Departamentos de Análisis e Información de Mercados, Economía de Mercados y Servicios Técnicos y Administrativos.
-La Secretaría Técnica sume las funciones de la Unidad de Planificación estipuladas en el artículo 93 y en el Departamento de Servicios Técnicos y Administrativos estará ubicada la Unidad Administrativa con las funciones explícitas en el artículo 116.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 76 al 85 actual).

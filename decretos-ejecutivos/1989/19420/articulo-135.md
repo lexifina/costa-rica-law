@@ -1,2 +1,0 @@
-Artículo 135.-Para el cumplimiento de lo establecido en el artículo anterior los Centros Agrícolas Cantonales constituidos o que se constituyan, estarán en la obligación de financiar con el uno por ciento de sus presupuestos anuales ordinarios y extraordinarios, liquidados al final de cada año, a la Confederación de Centros Agrícolas Cantonales.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 126 al 135 actual).

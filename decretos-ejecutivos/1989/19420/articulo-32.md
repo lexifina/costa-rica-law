@@ -1,6 +1,2 @@
-Artículo 32.-La Secretaría dispondrá para el cumplimiento de sus funciones con los siguientes recursos:
-a) Las partidas que deberá asignar en los presupuestos ordinarios y extraordinarios el Ministerio de Agricultura y Ganadería.
-b) Los aportes de los otros entes descentralizados del Sector, aprobados por sus respectivos cuerpos directivos del presupuesto asignado a las actividades o programas de fomento o producción agropecuarios.
-c) Los aportes provenientes de los organismos nacionales e internacionales.
-d) El personal técnico administrativo y de servicios facilitados por las instituciones representadas en el CAN, cuando SEPSA lo solicite por intermedio del Ministro Sectorial.
-(Así adicionado mediante el artículo 1° del decreto ejecutivo N° 21093 del 9 de enero de 1992).
+Artículo 32.-Los presupuestos de los Centros Agrícolas Cantonales afectados al pago del uno por ciento establecido, lo serán a partir de los presupuestos del año 1987.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 128 al 137 actual. Posteriormente mediante el inciso 1 del artículo 39 del decreto ejecutivo N° 23780 del 7 de noviembre de 1994, se deroga el anterior artículo 32 debiendo corregirse la numeración, pasando el antiguo 137 al 32 actual).

@@ -17,3 +17,4 @@ Reglamento a los Capítulos I y III del Título I, Título II, Título III y IV 
 | 2 | 1992-01-09 | Decreto Ejecutivo 21069 (1992-01-09) |
 | 3 | 1992-01-09 | Decreto Ejecutivo 21093 (1992-01-09) |
 | 4 | 1992-12-02 | Decreto Ejecutivo 21824 (1992-12-02) |
+| 5 | 1994-11-07 | Decreto Ejecutivo 23780 (1994-11-07) |

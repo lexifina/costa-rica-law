@@ -1,2 +1,2 @@
-Artículo 39.-Formarán quórum la presencia de cinco de sus miembros y los acuerdos se tomarán por simple mayoría.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 30 al 39 actual).
+Artículo 39.-Cada uno de los miembros integrantes de la Junta Directiva de los Centros Agrícolas Cantonales, tendrán su respectivo suplente.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 135 al 144 actual. Posteriormente mediante el inciso 1 del artículo 39 del decreto ejecutivo N° 23780 del 7 de noviembre de 1994, se deroga el anterior artículo 39 debiendo corregirse la numeración, pasando el antiguo 144 al 39 actual).

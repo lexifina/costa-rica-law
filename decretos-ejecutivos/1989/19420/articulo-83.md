@@ -1,2 +1,0 @@
-Articulo 83.-EI Centro de Investigación en Ciencias del Mar y Limnología (CIMAR) de la Universidad de Costa Rica fungirá como unidad de apoyo científico de la Dirección General de Recursos Pesqueros y Acuacultura del Ministerio de Agricultura y Ganadería para la ejecución de los. proyectos de investigación en el área de la evaluación y aprovechamiento de los recursos vivos del mar.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 74 al 83 actual).

@@ -1,2 +1,0 @@
-Artículo 143.-Los grupos organizados mencionados en el artículo anterior, para tener derecho a nombrar sus representantes, deberán de previo afiliarse al Centro Agrícola Cantonal y estar al día en el cumplimiento de sus obligaciones para con el Centro.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 134 al 143 actual).

@@ -1,2 +1,0 @@
-Artículo 152.-EI Ministerio de Educación Pública en coordinación con el Ministerio de Agricultura y Ganadería deberán promover el establecimiento y desarrollo de centros educativos dedicados a la investigación y capacitación técnica y tecnológica con la finalidad de darle fortalecimiento a las cooperativas juveniles y estudiantiles que trabajan en el sector agropecuario y divulgar al máximo los adelantos tecnológicos del agro.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 143 al 152 actual).

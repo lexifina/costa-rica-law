@@ -1,5 +1,2 @@
-Artículo 36.-El COTECSA estará formado por los siguientes funcionarios:
-a) El Director Ejecutivo de SEPSA quien lo presidirá.
-b) El encargado de las actividades sectoriales del Ministerio de Planificación Nacional y Política Económica, o su representante.
-c) Los jefes de departamentos o unidades de planificación de las instituciones representadas en el CAN o las que integran el Sector.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 27 al 36 actual).
+Artículo 36.-Para la integración de la Junta Directiva de los Centros Agrícolas Cantonales, en aquellos cantones donde existan más de una agencia o sucursales de bancos comerciales del Estado, estos estarán obligados, para que de común acuerdo entre ellos, nombren el representante ante la Junta Directiva del Centro Agrícola Cantonal.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 132 al 141 actual. Posteriormente mediante el inciso 1 del artículo 39 del decreto ejecutivo N° 23780 del 7 de noviembre de 1994, se deroga el anterior artículo 36 debiendo corregirse la numeración, pasando el antiguo 141 al 36 actual).

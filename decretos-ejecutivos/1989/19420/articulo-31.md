@@ -1,9 +1,3 @@
-Artículo 31.-La Unidad Administrativa tendrá las siguientes funciones:
-a) Facilitar y apoyar la labor de la Secretaría, mediante la disponibilidad oportuna y eficiente de equipo, mobiliario, útiles, vehículos y materiales de oficina.
-b) Elaborar en coordinación con la Subdirección y las unidades técnicas, el presupuesto anual de SEPSA.
-c) Ejecutar y controlar el presupuesto. Brindar informes periódicos a la Dirección, Subdirección y Jefaturas Técnicas sobre el estado de ejecución del mismo.
-ch) Tramitar, controlar y dar seguimiento en la forma más eficiente los procedimientos para disposición de transporte, viáticos, nombramientos, ascensos, aumentos, vacaciones, permisos, incapacidades, renuncias, despidos en general todos los trámites atinentes a la administración de los recursos, así como del servicio de comunicaciones con las demás organizaciones del Sector.
-d) Colaborar con la Dirección y Subdirección, en la aplicación de mecanismos de control y evaluación administrativa necesarios para una operación eficiente de la Secretaría.
-e) Promover actividades que favorezcan la integración de los recursos humanos, con el fin de favorecer el desempeño de los funcionarios y lograr una mayor eficiencia de la Secretaría.
-f) Velar porque el ambiente y las condiciones laborales sean óptimas, para lograr mayores rendimientos en el desempeño de los funcionarios.
-(Así adicionado mediante el artículo 1° del decreto ejecutivo N° 21093 del 9 de enero de 1992).
+Artículo 31.-Se entenderá por presupuesto, sujeto al pago del uno por ciento los recursos comprendidos en el artículo 8 de la Ley Constitutiva de los Centros Agrícolas Cantonales, Ley N° 4521 del 26 de diciembre de 1969.
+No estarán afectos al pago mencionado los créditos otorgados a los Centros Agrícolas Cantonales de cualquier clase que estos sean, ni las rentas o retribuciones obtenidas con base en tales créditos.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 127 al 136 actual. Posteriormente mediante el inciso 1 del artículo 39 del decreto ejecutivo N° 23780 del 7 de noviembre de 1994, se deroga el anterior artículo 31 debiendo corregirse la numeración, pasando el antiguo 136 al 31 actual).

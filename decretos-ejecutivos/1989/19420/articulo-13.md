@@ -1,2 +1,2 @@
-Articulo 13.-El Ministro de Agricultura y Ganadería fungirá como Presidente del CAN y podrá convocar a representantes de otras instituciones o programas cuando lo estime necesario de acuerdo con la agenda de la sesión.
+Artículo 13.-El Ministro de Agricultura y Ganadería fungirá como Presidente del CAN y podrá convocar a representantes de otras instituciones o programas cuando lo estime necesario de acuerdo con la agenda de la sesión.
 El Director Ejecutivo de la SEPSA será el Secretario del CAN. con derecho a voz y tendrá como función principal dar el debido seguimiento a los acuerdos tomados por el CAN. por medio de SEPSA.

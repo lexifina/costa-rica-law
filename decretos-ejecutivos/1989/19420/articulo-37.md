@@ -1,6 +1,2 @@
-Artículo 37.-EI COTECSA tendrá como principales funciones:
-a) Asesorar a SEPSA en las labores que se le encomienden.
-b) Dar seguimiento a las recomendaciones y acciones necesarias para lograr la eficaz integración de las políticas y la coordinación de los organismos participantes.
-c) Suministrar a SEPSA la información que le sea solicitada para el desarrollo de sus funciones.
-d) Servir de enlace con las instituciones sectoriales y regionales en la elaboración de estudios y evaluaciones que sean necesarias.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 28 al 37 actual).
+Artículo 37.-En aquellos cantones donde existan grupos organizados de productores agropecuarios, legalmente constituidos, estos podrán designar en conjunto hasta dos representantes para integrar la Junta Directiva del Centro Agrícola Cantonal. En el caso de existir un sólo grupo organizado, podrá designarse un solo representante ante la Junta Directiva del Centro Agrícola.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 133 al 142 actual. Posteriormente mediante el inciso 1 del artículo 39 del decreto ejecutivo N° 23780 del 7 de noviembre de 1994, se deroga el anterior artículo 37 debiendo corregirse la numeración, pasando el antiguo 142 al 37 actual).
