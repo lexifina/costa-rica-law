@@ -13,6 +13,8 @@ V.2.3 Núcleo sanitario y un área techada :
 Estará constituido por una solución combinada de un núcleo sanitario y un área techada, la cual podrá variar entre 20 m2 y 35 m2 con posibilidad de ampliación futura.
 V.2.4 Casa cascarón :
 Solución de vivienda que incluye núcleo sanitario y paredes exteriores; su área podrá variar entre 30 m2 y 55 m2.
+V.2.5 Vivienda terminada con igual área a la indicada en el artículo anterior.
+(Así ampliado por acuerdo de Junta Directiva, en su sesión N° 3833 de 15 de junio de 1987)
 V.3 Aplicación de Normas :
 La aplicación de normas para vivienda progresiva se puede dar a partir de cualquiera de las alternativas antes mencionadas.
 V.4 Densidades máximas y mínimas :

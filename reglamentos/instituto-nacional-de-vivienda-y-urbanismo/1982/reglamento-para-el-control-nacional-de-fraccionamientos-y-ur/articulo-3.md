@@ -142,11 +142,11 @@ La Ley de Planificación Urbana, al obligar a la cesión de áreas públicas, pr
 El propósito de estas normas es el de revalorar dichas áreas y exigir su dotación en relación con las necesidades reales para una población creciente cuyos servicios no son previstos.
 III.3.6.1 Áreas a ceder : El urbanizador o fraccionador cederá gratuitamente para áreas verdes y equipamiento comunal el siguiente porcentaje de área urbanizable:
 (Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
-III.3.6.1.1 Urbanización o fraccionamiento residencial: El criterio a utilizar es el de densidad habitacional debiendo cederse (20) metros cuadrados por lote o 25 m unidad de vivienda. Esta cantidad en porcentaje no podrá ser menor de un 5% ni mayor de un 20% del área urbanizable, salvo en viviendas de interés social en cuyo caso el mínimo será del 10%.
+III.3.6.1.1 Urbanización o fraccionamiento residencial: El criterio a utilizar es el de densidad habitacional debiendo cederse (20) metros cuadrados por lote o 20 m2 unidad de vivienda. Esta cantidad en porcentaje no podrá ser menor de un 5% ni mayor de un 20% del área urbanizable, salvo en viviendas de interés social en cuyo caso el mínimo será del 10%.
 — Comercial 10%
 — Industrial 10%
 — Turismo 15%
-(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3833 de 15 de junio de 1987)
 III.3.6.1.2 Derogado
 (Así derogado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.3.6.1.3 Del porcentaje citado, en los desarrollos industriales, comerciales y en los residenciales de baja densidad (menos de 80 hab./ha), se ubicará necesariamente en el sitio de la urbanización un tercio y podrán negociarse los otros dos tercios con el municipio, para que éste invierta el dinero en la compra de terrenos para uso comunal en otros sitios, todo de acuerdo con el artículo 41 de la Ley de Planificación Urbana.
