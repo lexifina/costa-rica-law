@@ -54,3 +54,4 @@ Directrices Generales de Política Presupuestaria del 2003 para los ministerios,
 | 39 | 2003-07-01 | Decreto Ejecutivo 31283 (2003-07-01) |
 | 40 | 2003-07-01 | Decreto Ejecutivo 31287 (2003-07-01) |
 | 41 | 2003-07-02 | Decreto Ejecutivo 31281 (2003-07-02) |
+| 42 | 2003-07-07 | Decreto Ejecutivo 31290 (2003-07-07) |
