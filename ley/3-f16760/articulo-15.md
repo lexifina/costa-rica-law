@@ -1,3 +1,4 @@
+#
 Artículo 15.- El conocimiento de las causas por juego prohibido será
 de la exclusiva competencia de los Agentes Principales de Policía en las
 capitales de provincia, y de los Jefes Políticos en los cantones menores,
