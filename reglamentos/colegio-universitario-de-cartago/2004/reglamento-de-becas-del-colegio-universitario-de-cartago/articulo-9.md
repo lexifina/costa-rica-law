@@ -1,0 +1,1 @@
+Artículo 9º—La determinación del tipo de Beca a otorgar, su clasificación y monto, estará en función del resultado del estudio académico y del estudio socio - económico realizado por la Comisión de Becas, además de la valoración de las aptitudes y habilidades deportivas o artísticas, esto último al tratarse de Becas Representativas.

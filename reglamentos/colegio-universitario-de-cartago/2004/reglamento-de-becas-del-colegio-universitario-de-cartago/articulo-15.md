@@ -1,0 +1,1 @@
+Artículo 15.—Una vez dictaminada la solicitud y otorgada la beca, el Servicio de Bienestar Estudiantil y Acción Social expedirá una Carta Compromiso que el alumno beneficiario deberá firmar, en la que se indican las condiciones que debe cumplir.

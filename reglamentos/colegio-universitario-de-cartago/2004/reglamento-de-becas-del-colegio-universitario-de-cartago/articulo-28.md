@@ -1,0 +1,1 @@
+Artículo 28.—El becario perderá esta condición cuando cambie de carrera o estudio por la que solicitó la ayuda, abandone sus estudios, los suspenda sin causa justificada o incumpla los compromisos de este Reglamento

@@ -1,0 +1,1 @@
+Artículo 2º—Se otorgarán apoyos financieros en el nivel de Diplomado, con el objetivo de ayudar a los alumnos con dificultades en el pago de la matrícula y que posean un historial académico sobresaliente.
