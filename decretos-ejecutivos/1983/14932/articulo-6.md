@@ -1,0 +1,1 @@
+Artículo 6°.-El Presidente del Consejo se juramentará ante el Presidente de la República y los demás miembros lo harán ante aquel. La fecha de instalación y juramentación la fijará el Presidente del Consejo.
