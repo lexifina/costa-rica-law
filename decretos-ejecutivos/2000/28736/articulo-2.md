@@ -1,0 +1,1 @@
+Artículo 2º—El Estado y sus Instituciones, así como las Municipalidades y demás empresas públicas y privadas podrán brindar, dentro de la medida de sus posibilidades legales y económicas, toda la ayuda y facilidades, para la realización de la actividad indicada
