@@ -1,3 +1,2 @@
-Artículo 188.- Las personas de que habla el artículo 184
-excusadas de servir pueden ser compelidas a aceptarla, cuando cese
-el motivo de la excusa.
+ARTÍCULO 188.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

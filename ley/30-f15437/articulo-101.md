@@ -1,2 +1,2 @@
-Artículo 101.- La impotencia del marido anterior al matrimonio
-no puede ser alegada para impugnar la legitimidad del hijo.
+ARTÍCULO 101.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,5 +1,2 @@
-Artículo 762.- Sin embargo, por absoluta que sea una presunción
-legal, no se opone a la eficacia de la confesión del hecho contrario,
-siempre que se trate de presunciones exclusivamente establecidas por
-un interés privado, y siempre que la confesión sea admisible en la
-materia de la contención.
+ARTÍCULO 762.- DEROGADO.
+(Derogado por el artículo 8º del Código Procesal Civil, ley Nº 7130 de 16 de agosto de 1989.)

@@ -1,11 +1,4 @@
-Artículo 595.- El testador puede disponer libremente de sus
-bienes, con tal que deje asegurados los alimentos de su hijo,
-legítimo o no legítimo, hasta la mayoridad si es menor, y por toda
-la vida si es inválido; y los de sus padres legítimos o madre
-ilegítima y los de su consorte, mientras los necesiten.
-Si el testador omite cumplir esta obligación de alimentos, el
-heredero no recibirá de los bienes sino lo que sobre, después de
-darse al alimentario, previa estimación de peritos, lo bastante a
-asegurar sus alimentos.
-Si los hijos, los padres o el consorte tuvieren, al morir el
-testador, bienes bastantes, no es obligado éste a dejarles alimentos.
+ARTÍCULO 595.- El testador podrá disponer libremente de sus bienes, con tal de que deje asegurados los alimentos de su hijo hasta la mayoría de edad si es menor y por toda la vida si el hijo tiene una discapacidad que le impida valerse por sí mismo; además, deberá asegurar la manutención de sus padres y la de su consorte mientras la necesiten.
+Si el testador omite cumplir con la obligación de proveer alimentos, el heredero solo recibirá de los bienes lo que sobre, después de dar al alimentario, previa estimación de peritos, una cantidad suficiente para asegurar sus alimentos.
+Si los hijos, los padres o el consorte poseen, al morir el testador, bienes suficientes, el testador no estará obligado a dejarles alimentos.
+(Así reformado por el artículo 79 de la Ley de Igualdad de Oportunidades para Personas con Discapacidad No.7600 de 2 de mayo de 1996)

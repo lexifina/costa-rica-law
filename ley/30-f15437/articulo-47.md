@@ -1,10 +1,3 @@
-Artículo 47.- Si la ausencia ha continuado durante veinte años
-después de la desaparición o durante diez años después de la
-declaratoria de ausencia o de las últimas noticias, o si han corrido
-ochenta años desde el nacimiento del ausente, el juez, a instancia
-de parte interesada, declarará la presunción de muerte.
-Hecha esta declaración, se dará la posesión definitiva de los
-bienes, sin necesidad de fianza, a sus herederos presuntivos al
-tiempo de la desaparición o de las últimas noticias y a los demás
-interesados de que habla el artículo 41, quedando cancelada la
-garantía dada para la posesión provisional.
+ARTÍCULO 47.- La fotografía o la imagen de una persona no puede ser publicada, reproducida, expuesta ni vendida en forma alguna si no es con su consentimiento, a menos que la reproducción esté justificada por la notoriedad de aquélla, la función pública que desempeñe, las necesidades de justicia o de policía, o cuando tal reproducción se relacione con hechos, acontecimientos o ceremonias de interés público o que tengan lugar en público. Las imágenes y fotografías con roles estereotipados que refuercen actitudes discriminantes hacia sectores sociales no pueden ser publicadas, reproducidas, expuestas ni vendidas en forma alguna.
+(Así reformado por el artículo 79 de la Ley de Igualdad de Oportunidades para Personas con Discapacidad No.7600 de 2 de mayo de 1996)
+(Así corrida su numeración por el artículo 2° de la Ley Nº 7020 de 6 de enero de 1986, que lo traspasó del antiguo artículo 29 al 47)

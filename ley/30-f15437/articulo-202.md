@@ -1,3 +1,2 @@
-Artículo 202.- Antes de haber recibido los bienes del pupilo por
-inventario, el tutor no podrá tomar parte alguna en la administración
-de dichos bienes.
+ARTÍCULO 202.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

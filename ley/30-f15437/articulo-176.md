@@ -1,4 +1,2 @@
-Artículo 176.- Cuando la persona llamada preferentemente por la
-ley a la tutela, no pudiere ejercerla por ser menor o estar
-incapacitada, conserva su derecho para cuando desaparezca su
-incapacidad.
+ARTÍCULO 176.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

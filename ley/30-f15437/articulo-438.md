@@ -1,4 +1,3 @@
-Artículo 438.- Cuando la venta o administración a que se
-refieren los dos artículos anteriores, se solicite por el dueño de
-cédulas de un orden inferior, lo que se acuerde o resuelva no podrá
-perjudicar en nada a las cédulas de una hipoteca anterior.
+ARTÍCULO 438.- Cuando la venta o administración a que se refieren los dos artículos anteriores, se solicite por el dueño de cédula de un orden inferior, lo que se acuerde o resuelva no podrá perjudicar en nada las cédulas de una hipoteca anterior.
+Si la ejecución se hubiere establecido para el cobro de intereses de cédulas no exigibles, el adquirente recibirá la finca con el gravamen de todas las cédulas de la misma emisión y con el de los cupones de intereses no presentados para su pago. Pero si el producto del remate fuere inferior al monto de la deuda hipotecaria, se depositará para repartirse a prorrata entre todos los coacreedores.
+(Así reformado por Ley Nº 15 de 26 de mayo de 1892, artículo 1º).

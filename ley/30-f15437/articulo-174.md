@@ -1,2 +1,2 @@
-Artículo 174.- A falta de los parientes llamados a la tutela,
-el juez nombrará tutor.
+ARTÍCULO 174.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

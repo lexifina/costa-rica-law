@@ -1,7 +1,2 @@
-CAPITULO III.
-Legitimación de hijos naturales.
-Artículo 115.- Los hijos que pueden ser reconocidos según lo
-dispuesto en el artículo 118 se legitiman por el matrimonio de sus
-padres.
-El matrimonio es el único medio de legitimación, y la produce
-aunque sea declarado nulo, si hubo buena fe al contraerlo.
+ARTÍCULO 115.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

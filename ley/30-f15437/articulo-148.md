@@ -1,4 +1,2 @@
-Artículo 148.- Perderán la patria potestad, y serán declarados
-perpetuamente inhábiles para ejercerla sobre cualquiera de sus hijos,
-el padre o la madre que procure o favorezca la corrupción o
-prostitución de la hija.
+ARTÍCULO 148.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

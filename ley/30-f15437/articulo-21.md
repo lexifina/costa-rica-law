@@ -1,3 +1,2 @@
-Artículo 21.- La ley no reconoce diferencia entre el
-costarricense y el extranjero, en cuanto a la adquisición y goce de
-los derechos civiles.
+ARTÍCULO 21.- Los derechos deberán ejercitarse conforme con las exigencias de la buena fe.
+(Así reformado por Ley Nº 7020 de 6 de enero de 1986, artículo 1º)

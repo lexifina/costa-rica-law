@@ -1,2 +1,2 @@
-Artículo 155.- El emancipado puede regir su persona y bienes,
-como si fuera mayor.
+ARTÍCULO 155.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

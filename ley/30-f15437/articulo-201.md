@@ -1,3 +1,2 @@
-Artículo 201.- Hecho el inventario no se admite al tutor a
-probar contra él, con perjuicio del pupilo ni después de la mayoridad
-de éste.
+ARTÍCULO 201.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,8 +1,2 @@
-TITULO VI.
-De la patria potestad.
-CAPITULO I.
-Disposiciones generales.
-Artículo 129.- Compete a los padres regir a los hijos,
-protegerlos y administrar sus bienes, y representarlos judicial y
-extrajudicialmente, salvo que tengan que litigar en opuesto interés;
-en este caso serán representados por un curador especial.
+ARTÍCULO 129.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

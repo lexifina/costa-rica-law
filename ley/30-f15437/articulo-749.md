@@ -1,4 +1,2 @@
-Artículo 749.- Los asientos, registros y papeles domésticos
-únicamente hacen fe contra el que los ha escrito, pero el que quiera
-aprovecharse de ellos no podrá rechazarlos en la parte que lo
-perjudiquen.
+ARTÍCULO 749.- DEROGADO.
+(Derogado por el artículo 8º del Código Procesal Civil, ley Nº 7130 de 16 de agosto de 1989.)

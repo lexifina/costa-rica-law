@@ -1,3 +1,2 @@
-Artículo 744.- Para los efectos del artículo 742 no se
-considerarán terceros los acreedores de cada uno de los contratantes,
-cuando ejerzan los derechos de su deudor.
+ARTÍCULO 744.- DEROGADO.
+(Derogado por el artículo 8º del Código Procesal Civil, ley Nº 7130 de 16 de agosto de 1989.)

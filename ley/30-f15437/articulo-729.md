@@ -1,3 +1,2 @@
-Artículo 729.- La confesión judicial es indivisible; pero el que
-la hace valer puede combatir, por medio de toda clase de pruebas, las
-declaraciones accesorias que hacen parte de la confesión.
+ARTÍCULO 729.- DEROGADO.
+(Derogado por el artículo 8º de la ley No.7130 de 16 de agosto de 1989)

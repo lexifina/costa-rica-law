@@ -1,10 +1,10 @@
-Artículo 430.- Cada cédula debe ser del valor de cien pesos,
-estar firmada por el Registrador General y por el dueño del inmueble
-hipotecado o por su legítimo representante, y expresar:
-1º.- Los datos necesarios para poder identificar la finca
-hipotecada, que no puede ser más de una.
-2º.- La cantidad total que importa la hipoteca a que la cédula
-se refiere y la que importen las hipotecas para cédulas anteriores,
-si las hubiere.
-3º.- El nombre y apellido de la persona a cuyo favor se extiende
-y la fecha y lugar del pago.
+ARTÍCULO 430- Las cédulas deben emitirse en moneda nacional. Sin embargo, podrá hacerse en moneda extranjera para corresponder por créditos obtenidos en el extranjero, con sociedades o bancos domiciliados fuera del país. En uno u otro caso, deberán ser del valor de un múltiplo de ciento.
+(Texto así modificado por Resolución de la Sala Constitucional Nº 27-95 de las 16:18 horas del 3 de enero de 1995).
+Todas las cédulas deberán estar firmadas por el dueño del inmueble hipotecado, o por su legítimo representante, y por el registrador general, el registrador general asistente, el registrador de cédulas, o cualquier otro registrador especialmente designado por el primero a ese efecto, y expresarán:
+1º- Los datos necesarios para poder identificar las fincas hipotecadas, que no podrá ser más de una.
+2º- La cantidad total que importa la hipoteca a que la cédula se refiere y la que importen las hipotecas para cédulas anteriores, si las hubiere.
+3º- El nombre y apellidos de la persona a cuyo favor se extiende y la fecha y el lugar del pago.
+4º- Si se han pasado más de diez años desde el vencimiento del plazo para el pago, la cédula no surtirá efectos después de esta fecha en perjuicio de terceros, siempre que el Registro no manifieste circunstancias que impliquen gestión cobratoria o reconocimiento del crédito u otra interrupción de la prescripción. El registrador, al inscribir nuevos títulos relativos a la finca respectiva, hará caso omiso de tal gravamen.
+Siempre que un crédito devengue intereses y que estos no hayan de descontarse ni de pagarse en el principal, al vencimiento de la obligación, se agregarán a cada cédula tantos cupones, que sirvan de título al portador para la cobranza de aquellos, como trimestres o semestres -a elección del tenedor- contuviere el plazo.
+Cada cupón expresará el trimestre o semestre respectivo, la cantidad a que montan los intereses del mismo, el número de cada cédula y la inscripción de la finca afectada. La cédula expresará el número de cupones y su respectivo vencimiento.
+(Así reformado por Ley Nº 6965 de 22 de agosto de 1984, artículo 3º).

@@ -1,2 +1,2 @@
-Artículo 26.- Son absolutamente nulos los actos o contratos del
-sordomudo que no sabe leer y escribir.
+ARTÍCULO 26.- La prescripción y todo lo que concierna al modo de cumplir o extinguir las obligaciones que resulten de cualquier acto jurídico o contrato que haya de ejecutarse en Costa Rica, se regirá por las leyes costarricenses, aunque los otorgantes sean extranjeros, y aunque el acto o contrato no se haya ejecutado o celebrado en la República.
+(Así reformado por Ley Nº 7020 de 6 de enero de 1986, artículo 1º)

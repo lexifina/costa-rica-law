@@ -1,3 +1,2 @@
-Artículo 745.- El principio de que los documentos privados no
-hacen fe de su fecha con respecto a terceros no se aplicará a
-documentos que verifiquen convenciones u operaciones comerciales.
+ARTÍCULO 745.- DEROGADO.
+(Derogado por el artículo 8º del Código Procesal Civil, ley Nº 7130 de 16 de agosto de 1989.)

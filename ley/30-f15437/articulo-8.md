@@ -1,8 +1,3 @@
-Artículo 8º.- En cuanto a la forma y solemnidades externas de
-un contrato o de un acto jurídico que debe tener efecto en Costa
-Rica, el otorgante u otorgantes pueden sujetarse a las leyes
-costarricenses o a las del país donde el acto o contrato se ejecute
-o celebre.
-Para los casos en que las leyes de Costa Rica exigieren
-instrumento público, no valdrán las escrituras privadas, cualquiera
-que sea la fuerza de éstas en el país donde se hubieren otorgado.
+ARTÍCULO 8º- Las leyes sólo se derogan por otras posteriores y contra su observancia no puede alegarse desuso ni costumbre o práctica en contrario. La derogatoria tendrá el alcance que expresamente se disponga y se extenderá también a todo aquello que en la ley nueva, sobre la misma materia, sea incompatible con la anterior.
+Por la simple derogatoria de una ley no recobran vigencia las que ésta hubiere derogado.
+(Así reformado por Ley Nº 7020 de 6 de enero de 1986, artículo 1º)

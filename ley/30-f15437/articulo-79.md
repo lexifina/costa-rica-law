@@ -1,4 +1,3 @@
-Artículo 79.- La sociedad conyugal de los matrimonios celebrados
-bajo la legislación anterior se regirá por ella; pero pueden los
-cónyuges alterar o hacer cesar esa sociedad, aun respecto de dotes,
-mediante capitulaciones matrimoniales.
+ARTÍCULO 79.- En cualquier época que se pruebe la muerte del ausente se deferirá su herencia entre los herederos.
+El tenedor de los bienes hereditarios, deberá devolverlos con los frutos establecidos en el artículo 57 salvo que hubiere prescrito la herencia por el transcurso del término ordinario, que se contará desde la declaración de presunción de muerte o desde el fallecimiento del ausente si hubiere ocurrido después de la declaración.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 61 al actual).

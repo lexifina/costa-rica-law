@@ -1,2 +1,2 @@
-Artículo 117.- La legitimación aprovecha aun a los descendientes
-de los hijos muertos al tiempo de la celebración del matrimonio.
+ARTÍCULO 117.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

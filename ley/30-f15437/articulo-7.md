@@ -1,10 +1,2 @@
-Artículo 7º.- Para la interpretación de un contrato y para fijar
-los efectos mediatos o inmediatos que de él resulten, se atenderá a
-las leyes del lugar donde se hubiere celebrado el contrato; pero si
-los contratantes tuvieren una misma nacionalidad, se atenderá a las
-leyes de su país.
-En los testamentos, se atenderá a las leyes del país donde
-tuviere su domicilio el testador.
-Respecto de matrimonios, se atenderá a las leyes del lugar donde
-hubieren convenido en establecerse los cónyuges; y a falta de ese
-convenio, a las del país donde tenga su domicilio el marido.
+ARTÍCULO 7º- Las leyes entrarán en vigor diez días después de su completa y correcta publicación en el diario oficial "La Gaceta", si en ellas no se dispone otra cosa. Sin embargo, si el error o defecto comprendiere sólo alguna a algunas de las normas de una ley, las demás disposiciones de ésta tendrán plena validez, independientemente de la posterior publicación que se haga, siempre que se trate de normas con valor propio que se hubieren aplicado de esa manera.
+(Así reformado por el artículo 1° de la ley N° 7020 de 6 de enero de 1986. Se respeta la ortografía y gramática del texto, tal y como fue publicado)

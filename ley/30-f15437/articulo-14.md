@@ -1,2 +1,2 @@
-Artículo 14.- Si dos o más nacen de un mismo parto, se
-considerarán iguales en los derechos civiles que dependen de la edad.
+ARTÍCULO 14.- Las disposiciones de este Código se aplicarán como supletorias de las materias regidas por otras leyes.
+(Así reformado por Ley Nº 7020 de 6 de enero de 1986, artículo 1º)

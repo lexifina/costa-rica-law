@@ -1,3 +1,2 @@
-Artículo 1004.- Por la ejecución del apremio corporal no se
-suspenden los procedimientos judiciales pendientes, ni se impiden los
-que pueden sobrevenir.
+ARTÍCULO 1004.- DEROGADO.
+(Derogado por el artículo 69, inciso b), de la Ley de Pensiones Alimentarias No.7654 de 19 de diciembre de 1996)

@@ -1,4 +1,2 @@
-Artículo 160.- Mientras se ventila la obligación de dar
-alimentos, según las circunstancias, podrá el juez ordenar que se den
-provisionalmente, sin perjuicio de la restitución si la persona de
-quien se demandan obtiene sentencia absolutoria.
+ARTÍCULO 160.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

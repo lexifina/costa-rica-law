@@ -1,3 +1,2 @@
-Artículo 731.- El Juez no podrá deferir el juramento, sino en
-los casos especiales en que la ley establece que se pase por le dicho
-del demandante.
+ARTÍCULO 731.- DEROGADO.
+(Derogado por el artículo 8º de la ley No.7130 de 16 de agosto de 1989)

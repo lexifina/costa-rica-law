@@ -1,11 +1,2 @@
-LIBRO I
-De las personas.
-TITULO I.
-Existencia y capacidad jurídica de las personas.
-CAPITULO I.
-Existencia de las personas.
-Artículo 13.- La existencia legal de la persona física principia
-al nacer, pero el feto se reputa nacido para todo lo que le
-favorezca, y concebido trescientos días antes de su nacimiento. Sin
-embargo, para que sea capaz de derechos civiles ha de nacer con
-figura humana y vivir por lo menos veinticuatro horas.
+ARTÍCULO 13.- Las leyes penales, las excepciones y las de ámbito temporal no se aplicarán a supuestos, ni en momentos distintos de los comprendidos expresamente en ellas.
+(Así reformado por Ley Nº 7020 de 6 de enero de 1986, artículo 1º)

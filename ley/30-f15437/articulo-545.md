@@ -1,7 +1,4 @@
-Artículo 545.- No pueden ser albaceas:
-1º.- Los que no pueden obligarse.
-2º.- El ciego, el mudo, el que tenga su domicilio fuera de la
-República, el condenado por delito que merezca pena corporal,
-mientras sufra la pena y no sea rehabilitado, y el que haya sido una
-vez condenado o removido por dolo en la administración de cosas
-ajena.
+ARTÍCULO 545.- No podrán ser albaceas:
+1.- Quienes no puedan obligarse.
+2.- Quien tenga domicilio fuera de la República y quien haya sido condenado una vez o haya sido removido por dolo en la administración de cosa ajena.
+(Así reformado por el artículo 79 de la Ley de Igualdad de Oportunidades para Personas con Discapacidad No.7600 de 2 de mayo de 1996)

@@ -1,2 +1,2 @@
-Artículo 1002.- Contra los menores de quince años y los mayores
-de sesenta no puede librarse orden de apremio.
+ARTÍCULO 1002.- DEROGADO.
+(Derogado por el artículo 69, inciso b), de la Ley de Pensiones Alimentarias No.7654 de 19 de diciembre de 1996)

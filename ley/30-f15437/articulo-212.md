@@ -1,6 +1,2 @@
-Artículo 212.- Se abonarán al tutor:
-1º.- Los gastos de rendición de cuentas, que él debe anticipar.
-2º.- Todos los gastos hechos legalmente, aunque no haya
-resultado utilidad al menor, si ésto no ha acontecido por culpa del
-tutor.
-3º.- El valor de sus honorarios.
+ARTÍCULO 212.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,3 +1,2 @@
-Artículo 753.- Los hechos puros y simples pueden ser probados
-por medio de testigos, cualquiera que sea la importancia de la
-cuestión en la cual se trate de establecer su existencia.
+ARTÍCULO 753.- DEROGADO.
+(Derogado por el artículo 8º del Código Procesal Civil, ley Nº 7130 de 16 de agosto de 1989.)

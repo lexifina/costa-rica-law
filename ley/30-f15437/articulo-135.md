@@ -1,2 +1,2 @@
-Artículo 135.- El padre concursado debe caucionar su
-administración conforme a lo establecido por la tutela.
+ARTÍCULO 135.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

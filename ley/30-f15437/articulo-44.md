@@ -1,8 +1,6 @@
-Artículo 44.- Los que a consecuencia de la posesión provisional
-hubieren disfrutado de los bienes del ausente, no estarán obligados
-a devolver sino el quinto de los frutos líquidos percibidos, cuando
-la restitución de los bienes se hiciere antes de quince años después
-de la desaparición o las últimas noticias; y el décimo cuando la
-restitución se hiciere después de este término.
-Pasados veinte años desde la desaparición o desde las últimas
-noticias, sólo están obligados a devolver los bienes.
+TÍTULO II
+DERECHOS DE LA PERSONALIDAD Y NOMBRE DE LAS PERSONAS
+CAPÍTULO I
+Derechos de la personalidad
+ARTÍCULO 44.- Los derechos de la personalidad están fuera del comercio.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 26 al actual).

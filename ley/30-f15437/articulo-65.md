@@ -1,6 +1,2 @@
-Artículo 65.- En caso de peligro de muerte de uno de los
-contrayentes, podrá procederse a la celebración del matrimonio aun
-sin llenarse los requisitos de que hablan los artículos anteriores;
-pero deberán llenarse en seguida; y mientras no se hiciere, ninguno
-de los interesados podrá reclamar los derechos civiles procedentes
-del matrimonio.
+ARTÍCULO 65.- Las personas recluidas en un establecimiento carcelario, correccional o de otra índole tendrán por domicilio el de dicho establecimiento mientras permanezcan en él.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 47 al actual).
