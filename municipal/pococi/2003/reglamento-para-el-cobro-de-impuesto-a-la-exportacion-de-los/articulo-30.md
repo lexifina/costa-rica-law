@@ -1,0 +1,1 @@
+Artículo 30.—Órgano Competente. Corresponde al Departamento de Patentes la tramitación y resolución de todo lo relacionado con la materia de la actividad de explotación de yacimientos de placer y lavaderos, tajos y cauces de dominio público.

@@ -1,0 +1,1 @@
+Artículo 28.—Revisión de las tarifas. Si la Municipalidad comprueba que los datos suministrados son incorrectos, circunstancia que determine una variación en el monto a pagar por el patentado, de inmediato iniciará los trámites de cobro de acuerdo con las estipulaciones del Código de Normas y Procedimientos Tributarios.

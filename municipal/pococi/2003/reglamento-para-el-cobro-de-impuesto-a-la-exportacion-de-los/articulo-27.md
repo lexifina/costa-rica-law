@@ -1,0 +1,1 @@
+Artículo 27.—Excepciones. Las resoluciones del Departamento de Patentes que ordenen la suspensión de la patente por falta de pago, carecerán de recurso y su tramitación no admitirá prueba en contrario, salvo la excepción de pago.

@@ -1,0 +1,2 @@
+Artículo 18.—Plazo para resolver. El Departamento de Patentes deberá resolver la solicitud de licencia dentro de los 30 días hábiles que se contarán a partir del siguiente de haberla presentado en forma. Vencido este término, el particular podrá ejercer su actividad sin perjuicio de lo que en definitiva decida la Municipalidad, por medio de la Sección de Patentes.
+Si el Departamento de Patentes rechazare la solicitud de licencia, la denegatoria deberá hacerla en resolución razonada.

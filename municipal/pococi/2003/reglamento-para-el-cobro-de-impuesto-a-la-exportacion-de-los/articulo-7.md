@@ -1,0 +1,1 @@
+Artículo 7º—Base Imponible. Constituye la base imponible para este impuesto, el valor total a precio de mercado, del material extraído de la cantera, cauce de dominio público, placer o lavadero, sea este material arena, piedra, lastre o cualquier derivado de éstos.

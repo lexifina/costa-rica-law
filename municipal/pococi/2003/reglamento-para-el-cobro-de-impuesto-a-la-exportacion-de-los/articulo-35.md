@@ -1,0 +1,3 @@
+Artículo 35.—De la defraudación. El Departamento de Patentes podrá denunciar ante los Tribunales de Justicia o al Ministerio Público, los casos comprobados de defraudación o perjuicio.
+Derogatoria: El presente Reglamento deroga cualquier otra disposición reglamentaria municipal que se le oponga.
+Rige a partir de la publicación definitiva. Por Unanimidad, se acuerda: Aprobar el Reglamento, para el cobro del impuesto a la explotación de recursos mineros en el Cantón de Pococí y de patentes de explotación de canteras, cauces de dominio público y lavaderos y placeres, Publíquese en el Diario Oficial La Gaceta.
