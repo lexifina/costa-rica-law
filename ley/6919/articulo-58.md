@@ -1,1 +1,0 @@
-Artículo 58.- La venta de productos y servicios que se produzcan en los refugios de fauna silvestre y cotos de caza estatales, será normada por vía reglamentaria y contemplará el funcionamiento de todo el sistema.

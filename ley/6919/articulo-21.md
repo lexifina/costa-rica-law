@@ -1,1 +1,0 @@
-Artículo 21.- Los recursos económicos que se obtengan de las actividades en los refugios nacionales de fauna silvestre se depositarán en el fondo especial del Departamento de Vida Silvestre de la Dirección General Forestal del Ministerio de Agricultura y Ganadería, y sólo podrán ser usados para la protección e investigación de la fauna silvestre.
