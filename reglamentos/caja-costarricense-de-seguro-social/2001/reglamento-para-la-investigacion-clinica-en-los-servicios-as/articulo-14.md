@@ -1,0 +1,2 @@
+Articulo 14° . El sujeto expresará su consentimiento por escrito, y firmando personalmente en presencia de un testigo no vinculado con el estudio y de quién explica y obtiene el consentimiento, quienes a su vez deberán firmar el documento. Posteriormente el investigador principal del estudio también firmará el documento. Todos los firmantes adjuntarán su número de cédula de identidad o de documento de identificación.
+El consentimiento deberá ser ratificado personalmente ante el CEC cuando éste así lo disponga.

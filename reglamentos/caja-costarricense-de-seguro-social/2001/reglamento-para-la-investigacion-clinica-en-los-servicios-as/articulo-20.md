@@ -1,0 +1,1 @@
+Artículo 20º. Los investigadores que soliciten la aprobación de un protocolo estarán obligados al cumplimiento de todos los deberes y responsabilidades establecidos en la reglamentación del Ministerio de Salud.

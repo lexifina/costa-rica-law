@@ -1,0 +1,1 @@
+Articulo 35° . El Comité podrá solicitar a la Junta Directiva la revocatoria del nombramiento de algún miembro por ausencias injustificadas, incumplimiento de sus funciones o por razones operacionales justificadas

@@ -1,0 +1,2 @@
+Articulo 49° . De las publicaciones. Toda publicación deberá proteger la identidad y confidencialidad de los sujetos que participaron en la investigación.
+Cuando se realice una publicación y se mencionen los datos obtenidos en investigaciones realizados en establecimientos de la Caja, se debe mencionar la Institución, el establecimiento en el cual se realizó así como se indicará expresamente que se contó con la aprobación del CEC correspondiente de la CCSS. Dicha disposición será incorporada en el contrato que se suscriba con el promotor.

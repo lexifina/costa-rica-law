@@ -1,0 +1,3 @@
+Artículo 26º. El CEC resolverá dentro de los plazos establecidos en la Ley General de la Administración Pública.
+La aprobación otorgada se elevará al director del establecimiento para su ratificación debidamente motivada. Una vez transcurrido un plazo de cinco días hábiles desde su recepción sin que existiere pronunciamiento del director, su silencio se entenderá como aprobatorio. En caso de negarse su ratificación, se elevará el expediente a la Gerencia Médica para su resolución final.
+Cuando esté de por medio la investigación con productos biológicos o farmacéuticos en dicha fase, el CEC informará de previo a la aprobación del protocolo al Departamento de Farmacoterapia de la Institución

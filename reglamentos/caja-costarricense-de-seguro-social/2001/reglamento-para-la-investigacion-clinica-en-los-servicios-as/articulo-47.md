@@ -1,0 +1,1 @@
+Artículo 47°. Se autoriza a la dirección de cada establecimiento para negociar con el patrocinador de los proyectos de investigación el pago de recursos adicionales a los gastos, lo que deberá hacerse constar expresamente en el Contrato. Estos recursos adicionales serán al menos un 15% del presupuesto del estudio en el establecimiento.

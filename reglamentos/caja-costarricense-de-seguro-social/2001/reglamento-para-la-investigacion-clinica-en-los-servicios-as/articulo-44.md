@@ -1,0 +1,1 @@
+Articulo 44° . La Unidad de Bioética e Investigación como unidad orgánica dependiente de la dirección del CENDEISSS ejecutará las recomendaciones que establezcan la Junta Directiva de la Institución y tomará en cuenta las recomendaciones del COIBI.
