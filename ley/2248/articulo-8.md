@@ -1,0 +1,1 @@
+Artículo 8º.- Cuando un servidor docente o administrativo del Magisterio Nacional muriere antes de cumplirse el tiempo legal para obtener una pensión ordinaria, sus causahabientes recibirán, por una sola vez, el monto de un sueldo por cada cuatro años o fracción que hubiere servido el causante.

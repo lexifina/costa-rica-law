@@ -1,0 +1,1 @@
+Transitorio I.- Dentro de los cinco años siguientes a la fecha en que entre en vigencia esta ley, se realizará un estudio actuarial completo, por el Ministerio de Economía y Hacienda, del que habrán de salir las recomendaciones necesarias para ajustar esta ley a la realidad nacional.
