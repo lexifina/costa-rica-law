@@ -1,0 +1,1 @@
+Artículo 7°—La Municipalidad pondrá a disposición dé los pretendientes de beca, un formulario que habrán de llenar y presentar luego, en el mes de enero de cada año, en la oficina municipal correspondiente, cumpliendo con todos los requisitos especificados en el mismo y adjuntando la totalidad de los documentos que se exijan, quien así no cumpliere no podrá optar beca.

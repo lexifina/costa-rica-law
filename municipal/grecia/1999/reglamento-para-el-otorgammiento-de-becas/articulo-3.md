@@ -1,0 +1,1 @@
+Artículo 3°—Para la valoración y recomendación del otorgamiento de becas, la Comisión tendrá en consideración los factores de rendimiento académico del optante y su condición socioeconómica; y esos mismos elementos serán los que para conceder las becas tomará en cuenta el Concejo Municipal.

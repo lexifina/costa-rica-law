@@ -1,0 +1,1 @@
+Artículo 4°—La Comisión de Becas hará llegar al Concejo, durante el mes de febrero de cada año, la lista de los pretendientes de beca que hubieran resuelto recomendar para que se les conceda ese beneficio; igualmente harán saber de a quienes resolvieron incluir en la lista de espera. Las recomendaciones de la Comisión no son vinculantes para el Concejo.
