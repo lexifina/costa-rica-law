@@ -1,0 +1,1 @@
+Artículo 5°-Toda solicitud para :autorización de viajes al exterior deberá ser presentada al Ministerio de Planificación Nacional y Política Económica con "siete días hábiles" de anticipación a la realización del viaje, utilizando al efecto el formulario a que se refiere el artículo 12 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 8°-La solicitud para autorización de viaje, en el caso de los Vicepresidentes de la República y de los Ministros de Gobierno, deberá ser suscrita por el Presidente de la República; así como la de las personas que lo acompañen en sus viajes.

@@ -1,0 +1,1 @@
+Artículo 6°-Las solicitudes para autorización de viajes al exterior con motivo de becas de estudio o capacitación, deberán presentarse con "quince días hábiles" de anticipación al Ministerio de Planificación Nacional y Política Económica.

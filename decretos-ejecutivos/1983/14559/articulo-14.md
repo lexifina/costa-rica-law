@@ -1,0 +1,1 @@
+Artículo 14.-Independientemente de la responsabilidad administrativa, civil o penal que pudiera incumbirles, los funcionarios públicos que dispongan o que se acojan a egresos para viajes al exterior, en contraposición de lo dispuesto en la Norma General N° 52 y este Reglamento, serán personalmente responsables de dichos gastos.

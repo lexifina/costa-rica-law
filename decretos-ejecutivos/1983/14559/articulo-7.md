@@ -1,0 +1,1 @@
+Artículo 7°-A juicio del Ministerio de Planificación Nacional y Política Económica, y en casos excepcionales de verdadera urgencia, la solicitud de autorización a que se refieren los artículos 5° y 6° del presente Reglamento podrán tramitarse en un plazo menor .
