@@ -9,6 +9,8 @@ a) Para todas las entidades, según corresponda:
 · Otras transferencias al Fondo General de Gobierno.
 · Impuesto sobre la Renta
 · Contribuciones a la Seguridad Social: Caja Costarricense de Seguro Social (CCSS), Instituto Mixto de Ayuda Social (IMAS), Instituto Nacional de Aprendizaje (INA), Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF).
+Reintegros vía transferencia al Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF) de los recursos no gastados en periodos anteriores
+(Así ampliado por el artículo 1 del Decreto Ejecutivo N° 29566 de 28 de mayo del 2001)
 b) Adicionalmente, se excluye para las siguientes:
 Entidad Concepto
 Colegio Universitario para el Riego y el Tarifa de Riego (Canon al SENARA)
