@@ -1,0 +1,2 @@
+Art 3.- Los particulares que lo compraren a tres reales para exportar afianzaran al Gobierno de verificarlo así; y si lo vendiesen en el Estado, incurrirán en la pena de un veinticinco por ciento. –Al Consejo Representativo.- Dado en la ciudad de Alajuela a los nueve días del mes de setiembre de mil ochocientos treinta y cuatro.
+Por tanto: Ejecútese.- Alajuela setiembre diecisiete de mil ochocientos treinta y cuatro.
