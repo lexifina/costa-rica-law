@@ -1,0 +1,10 @@
+ARTÍCULO 2.- Modifícase la Ley No. 7605, Derogación del régimen de los diputados y Modificación a la Ley Orgánica del Poder Judicial, de 2 de mayo de 1996, en la siguiente forma:
+a) Refórmase el artículo 3, cuyo texto dirá:
+"Artículo 3.- En el tanto los ingresos por concepto de cotizaciones estatales, obreras y patronales sean menores que los egresos derivados del pago de los beneficios, se establece como tope máximo la suma resultante de diez veces el salario base más bajo pagado en la Administración Pública, según el índice de salarios emitido por la Dirección General del Servicio Civil. El Ministerio de Hacienda, en coordinación con la Dirección General de Pensiones del Ministerio de Trabajo y Seguridad Social, será el responsable de aplicar el tope máximo aquí fijado a los montos actuales de pensión de todos losregímenes contributivos de pensiones con cargo al presupuesto nacional."
+b) Adiciónase el artículo 3 bis, cuyo texto dirá:
+"Artículo 3 bis.- El tope máximo definido en el artículo 3 sólo podrá ser superado en los siguientes casos de excepción:
+a) Cuando por resolución de la Sala Constitucional corresponda como derecho adquirido el incremento del treinta por ciento (30%) determinado en la Ley No. 7007, de 5 de noviembre de 1985, este se aplicará sobre el tope máximo aquí establecido, cuando sea del caso, y únicamente para los beneficiarios que posean este derecho de acuerdo con los registros de la Dirección Nacional de Pensiones.
+b) En los supuestos en los que se aplique el beneficio de postergación cuando la ley del régimen lo indique así."
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.-San José, a los veintidós días del mes de diciembre de mil novecientos noventa y ocho.
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 019030 del 14 de noviembre de 2018, se acordó interpretar este artículo en el sentido de que no resultan contrarias al principio de irretroactividad, si sus efectos son aplicables únicamente a aquellas personas que hubieran obtenido el derecho a la pensión o jubilación CON POSTERIORIDAD a la entrada en vigencia de la citada ley 7858.)

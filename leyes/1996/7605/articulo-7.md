@@ -1,2 +1,2 @@
-ARTICULO 7.- Vigencia
+ARTÍCULO 7.- Vigencia
 Rige a partir de su publicación.
