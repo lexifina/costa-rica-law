@@ -1,0 +1,1 @@
+Artículo 9°.- Habrá, además, un Consejo de disciplina, compuesto del personal de enseñanza, que se reunirá periódicamente para entender en la disciplina y régimen interior del Establecimiento, y discutir los asuntos que hayan de someterse a la resolución del Consejo superior.

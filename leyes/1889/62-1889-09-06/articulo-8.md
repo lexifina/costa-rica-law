@@ -1,0 +1,1 @@
+Artículo 8°.- Para la marcha y desarrollo del Instituto habrá un Consejo superior compuesto del Director General, de los Directores de Sección, de los profesores y de dos ó más delegados del Ministerio de Instrucción Pública.
