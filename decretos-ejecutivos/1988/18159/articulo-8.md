@@ -1,4 +1,0 @@
-Artículo 8°-Se deberá acompañar la solicitud con los siguientes documentos, en caso de que el solicitante sea una persona jurídica:
-a) Certificación notarial del acta constitutiva de la sociedad y de la personería de los gestionantes, así como certificación de su debida inscripción en el Registro Mercantil;
-b) Certificación actualizada emitida por contador público autorizado incorporado o reconocido por el Colegio de Contadores Públicos de Costa Rica, indicando nombre y calidades de los accionistas, así como el monto y especie del capital social de la empresa;
-c) Certificación de Contador Público Autorizado incorporado o reconocido por el Colegio de Contadores Públicos de Costa Rica, de la capacidad de la empresa para invertir en la actividad un monto mínimo equivalente a cien mil dólares moneda de los Estados Unidos de América (US$ 100.000,00) con el objeto de operar una flotilla propia no inferior a veinte vehículos para arrendamiento.

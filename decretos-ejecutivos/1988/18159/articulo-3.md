@@ -1,1 +1,0 @@
-Artículo 3°.- EI Instituto, la Dirección General y el MEC, verificarán en la materia de su competencia que todas las disposiciones establecidas en la ley, el reglamento y el presente Decreto, se cumplan a cabalidad por las empresas arrendantes y los arrendatarios.

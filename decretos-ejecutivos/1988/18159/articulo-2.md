@@ -1,1 +1,0 @@
-Artículo 2°-Toda empresa arrendante, sea persona física o jurídica, qué desee obtener los beneficios establecidos' en la ley, debe ser declarada previamente de actividad turística, suscribir un contrato turístico y someterse a las regulaciones y prohibiciones que se establece en el presente Decreto, el Ejecutivo N° 9387-MEIC del 8 de enero de 1979. el Reglamento y la Ley.

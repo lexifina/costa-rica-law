@@ -1,1 +1,0 @@
-Artículo 52.-Las empresas arrendantes están obligadas a colaborar con el Instituto o la Dirección General en el desarrollo de programas propios de la competencia de éstos, con un aporte gratuito equivalente a la utilización de un día por año de cada vehículo exonerado, en la oportunidad y bajo los lineamientos que fija la Comisión Reguladora.

@@ -1,1 +1,0 @@
-Artículo 43.-El cobro de tarifas distintas de las establecidas por el Instituto para la operación de las empresas arrendantes se castigará con la cancelación, por incumplimiento, del respectivo contrato turístico, además de la sanción prevista en el artículo 40 anterior e independientemente de las demás sanciones civiles y penales que pueda emprender el Estado.

@@ -1,1 +1,0 @@
-Articulo 14.-El solicitante indicará a su vez, la cantidad de vehículos, sus marcas, número de placas, modelos, años de fabricación y estilos, que ha utilizado o utilizará en la actividad de arrendamiento; cantidad que no podrá ser inferior en ningún caso, a veinte vehículos de su propiedad. En el caso de nuevos no se exigirá el número de placas de registro.

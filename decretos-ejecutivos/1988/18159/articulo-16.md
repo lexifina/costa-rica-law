@@ -1,1 +1,0 @@
-Artículo 16-Contra los acuerdos de la Comisión Reguladora sólo cabrá, en vía administrativa, recurso de revocatoria, el cual podrá interponerse dentro de los tres días siguientes a la fecha de la notificación del acuerdo al interesado.

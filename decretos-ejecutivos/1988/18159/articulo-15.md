@@ -1,1 +1,0 @@
-Artículo 15.-La Comisión Reguladora estudiará y aprobará o rechazará las solicitudes de contrato turístico dentro de un plazo de treinta días, contados a partir de la fecha en que la respectiva solicitud cumpla todos los requisitos establecidos en este Decreto, el reglamento y la ley.

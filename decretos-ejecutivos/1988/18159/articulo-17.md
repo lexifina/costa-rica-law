@@ -1,1 +1,0 @@
-Artículo 17.-Cabrá recurso de revisión contra los acuerdos que adopte la Comisión Reguladora, el cual sólo podrá ser interpuesto por alguno de sus miembros, a más tardar en la siguiente sesión, al discutirse el acta que contiene el acuerdo que se propone revisar. Este recurso se resolverá en la misma sesión.

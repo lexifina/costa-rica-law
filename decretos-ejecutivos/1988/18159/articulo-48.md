@@ -1,3 +1,0 @@
-CAPITULO VII
-Disposiciones finales
-Artículo 48.-El Instituto. el MEC y la Dirección General organizarán Conjuntamente las actividades de fiscalización sobre las empresas arrendante. Los funcionarios de estas instituciones que participen en tales actividades, rendirá un informe con los resultados de sus estudios a la Comisión Reguladora, con copia a sus respectivas instituciones. El Instituto y la Dirección General, por medio de la Comisión Reguladora, organizarán programas periódicos de auditoría con personal especializado de ambas instituciones, para garantizar una correcta operación de las empresas arrendantes.

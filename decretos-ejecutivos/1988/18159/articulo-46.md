@@ -1,1 +1,0 @@
-Artículo 46.-Todlas las sanciones se aplicarán por acuerdo de la Comisión Reguladora, excepto en los casos que, para salvaguardar el interés fiscal, la Dirección General requiera proceder el decomiso preventivo de los vehículos automotores hasta tanto se adopte el acuerdo de la Comisión Reguladora.

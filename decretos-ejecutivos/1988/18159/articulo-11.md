@@ -1,1 +1,0 @@
-Artículo 11.-Las empresas nuevas. por su parte, deben presentar un estudio de factibilidad técnico-económico, elaborado por un profesional en Ciencias Económicas y Sociales debidamente incorporado al Colegio respectivo.

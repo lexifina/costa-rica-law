@@ -1,1 +1,0 @@
-Artículo 21. - El contrato turístico se entenderá automática mente modificado total o parcialmente, sin responsabilidad alguna para el Estado, en la medida que se modifique o derogue total o parcialmente la legislación que lo sustenta. Así se hará constar en el cuerpo de los respectivos contratos turísticos.

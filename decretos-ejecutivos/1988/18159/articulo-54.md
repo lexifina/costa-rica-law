@@ -1,1 +1,0 @@
-Artículo 54.-El presente Decreto Ejecutivo deroga en lo conducente el Decreto Ejecutivo N° 16605-H del 1° de octubre de 1985, dejando sin efecto todas las regulaciones que sobre la actividad de arrendamiento de vehículos a turistas se establecieron en ese instrumento jurídico.

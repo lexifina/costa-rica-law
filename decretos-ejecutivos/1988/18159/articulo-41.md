@@ -1,1 +1,0 @@
-Artículo 41. -La misma sanción estipulada en el artículo anterior se aplicará para los vehículos importados con exoneración, que circulen sin las respectivas placas de registro especiales y las calcomanías de identificación en los parabrisas.

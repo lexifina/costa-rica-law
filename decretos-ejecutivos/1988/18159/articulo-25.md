@@ -1,1 +1,0 @@
-Artículo 25.-La empresa arrendante debe renovar su flotilla de vehículos exonerados dentro de un plazo máximo de tres años, contados a partir de la fecha de inscripción, en el Registro Público, de cada uno de los vehículos que conformen dicha flotilla.

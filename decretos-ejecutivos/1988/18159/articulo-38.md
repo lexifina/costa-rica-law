@@ -1,1 +1,0 @@
-Artículo 38.-La empresa arrendante estará obligada a brindar todo tipo de información a los arrendatarios a efecto de que conozcan, en detalle los alcances de las disposiciones legales y administrativas del presente régimen, que afecten su relación contractual.

@@ -1,1 +1,0 @@
-Artículo 42.-Las empresas arrendantes que en el plazo previsto en el artículo 28 no hayan finiquitado los trámites para el cambio de placas, de particular a especial, también serán sancionadas conforme se dispone en el artículo 40 anterior.

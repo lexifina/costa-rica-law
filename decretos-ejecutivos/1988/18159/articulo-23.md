@@ -1,3 +1,0 @@
-CAPITULO IV
-De los Incentivos y beneficios
-Articulo 23.- Las empresas arrendantes que hayan suscrito un contrato turístico, tendrán derecho al otorgamiento de exoneración de todo tributo y sobretasas para la importación o compra local de vehículos automotores de hasta mil seiscientos centímetros cúbicos (1 600 c.c.), con un margen de tolerancia del cinco por ciento (5%), los que deben ser, en todo caso, vehículos nuevos. También gozarán de exoneración de todo tributo y sobretasas para la importación o compra local de computadoras destinadas al servicio de la empresa, incluyendo las funciones administrativas, contables y toda otra relacionada con la actividad normal de la empresa, a juicio de la Comisión Reguladora.

@@ -1,1 +1,0 @@
-Artículo 49.-Las empresas arrendantes que por razones de distinta índole deseen traspasar o ceder temporal o definitivamente vehículos automotores exonerados de tributos a personas con idénticos o similares derechos de exoneración tributaria, podrán hacerlo previa autorización de la Comisión Reguladora y el cumplimiento de los demás requisitos ante la Dirección General.
