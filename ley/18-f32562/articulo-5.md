@@ -1,0 +1,1 @@
+Art. 5°. – A la cartera de Gracia y Justicia compete lo relativo á la Administración Judicial, codificación de leyes, presidios y cárceles, cumplimientos de condena, rebajas y conmutaciones de penas, y rehabilitación de delincuentes.
