@@ -1,0 +1,1 @@
+3º—Con la finalidad de realizar una prueba de la eficiencia del proceso definido supra, el Consejo Transporte Pûblico designará una cantidad de al menos 100 adjudicatarios, para probar y depurar el sistema de formalización, una vez agotado lo cual, se procederá conforme a lo establecido en el punto anterior.

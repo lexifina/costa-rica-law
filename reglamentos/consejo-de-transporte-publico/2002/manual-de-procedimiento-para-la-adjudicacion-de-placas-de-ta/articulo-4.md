@@ -1,0 +1,1 @@
+4º—Aquellos adjudicatarios que no se presentaren a formalizar su relación con el Consejo Transporte Pûblico, en la fecha indicada en la respectiva convocatoria, deberán esperar hasta la finalización de las formalizaciones para solicitar la redefinición de la cita.
