@@ -1,0 +1,1 @@
+Artículo 3º—El propietario de inmueble descrito en el artículo 1, se compromete a acatar el Plan de Manejo, proteger la biodiversidad y a brindar colaboración a los funcionarios del Ministerio del Ambiente y Energía en las inspecciones que se realicen al inmueble.

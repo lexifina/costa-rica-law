@@ -1,0 +1,12 @@
+Nº 31612-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+Y MINISTRO DEL AMBIENTE Y ENERGÍA
+En el ejercicio de las facultades conferidas por el artículo 140 inciso 3) y 18) y 146 de la Constitución Política y con fundamento en lo dispuesto en los artículos 81 y 87 de la Ley de Conservación de la Vida Silvestre Nº 7317 del 30 de octubre de 1992.
+Considerando:
+1º—Que es tarea del Estado asegurar el desarrollo sostenible de los recursos e incrementar el equilibrio social, ambiental, económico y político nacional.
+2º—Que es necesario garantizar que las actividades que se realicen en un Refugio Privado de Vida Silvestre se desarrollen en total armonía con el ambiente e implementando un desarrollo en forma sostenida. 3º—Que existe la necesidad de fomentar la participación de la sociedad civil en el desarrollo y seguimiento de la protección de la biodiversidad, así como en la conservación de esta. 4º—Que mediante Decreto Ejecutivo Nº 26661-MINAE, publicado en La Gaceta Nº 32, del 16 de febrero de 1998, el Ministerio del Ambiente y Energía, declaró la finca Folio Real número 75821-000 del Partido de Heredia, ubicada en Cerro Dantas, distrito quinto, Vara Blanca, cantón primero, Heredia de la provincia de Heredia, en un área de cincuenta y seis hectáreas 9 560,13 metros cuadrados, Refugio de Vida Silvestre Privado, denominado Refugio de Vida Silvestre Privado Cerro Dantas.
+5º—Que mediante escrito del 29 de noviembre del 2002, el Centro Ecológico Pavo Real S. A., solicita a la Oficina de Heredia de la Subregión Central, la renovación de la categoría de manejo decreta en su inmueble.
+6º—Que se realizaron inspecciones de campo determinando una gran masa boscosa, la cual se mantiene inalterable y en un perfecto estado de conservación.
+7º—Que el Plan de Manejo cumple con los objetivos propuestos y aprobados por el Ministerio del Ambiente y Energía. Por tanto:
+DECRETAN:
+Artículo 1º—Que el inmueble Folio Real Nº 75821-000 del Partido de Heredia, sito en distrito quinto, Vara Blanca, cantón primero, Heredia de la provincia de Heredia, plano catastrado Nº H-10413-1975, área de 56 hectáreas, 9 560,13 metros cuadrados propiedad de Centro Ecológico El Pavo Real, Sociedad Anónima, cédula jurídica 3-101-112109, inscrita en la Sección Mercantil del Registro Público al tomo: seiscientos veintiséis, folio: ciento cincuenta y tres y asiento: doscientos catorce, se prorroga por diez años más, la categoría de manejo de Refugio de Vida Silvestre de Propiedad Privada.
