@@ -1,1 +1,2 @@
-Artículo 2°-Dicho programa funcionará sobre la base de un convenio entre el Instituto de Tecnología Administrativa de Costa Rica y la Universidad Interamericana de Puerto Rico. Se denominará Programa Especialización y Postgrados Universidad Interamericana - ITEA. Comprenderá cursos de especialización y maestría fundamentalmente en el campo de la Economía y la Administración de Negocios.
+Artículo 2°.-La Universidad Interamericana de Puerto Rico desarrollar , prioritariamente, cursos de especialización y maestría en los campos de la economía y la administración de negocios, sin perjuicio, de atender la demanda de especialización y formación en otras áreas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 17871 del 9 de octubre de 1987)

@@ -14,3 +14,4 @@ Autoriza Universidad Interamericana Puerto Rico Programa Especialización y Post
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-09-26 | la propia norma |
+| 2 | 1987-10-09 | Decreto Ejecutivo 17871 (1987-10-09) |
