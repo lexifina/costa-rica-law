@@ -1,3 +1,0 @@
-Artículo 5°.-Cuando un funcionario que disfruta de zonaje, se traslada a prestar sus servicios a un lugar distinto al de su trabajo habitual, se procederá así:
-a) Si en su lugar de trabajo está disfrutando del beneficio de zonaje y se traslada a otro sitio por un lapso no mayor de treinta días, se le aplicará la tarifa de viáticos de acuerdo con el reglamento vigente.
-b) Si este período excediera de treinta días, se le reconocerá la tarifa de zonaje correspondiente a esa nueva zona. En el caso de que en este nuevo lugar no estuviera establecido el pago de zonaje, se le pagarán los viáticos que correspondan.

@@ -1,1 +1,0 @@
-Artículo 10.-Cuando el Ministerio de Hacienda resuelva suspender el pago de zonaje, con fundamento en el artículo 9§ de este reglamento, el funcionario respectivo no podr alegar derechos adquiridos, en virtud de que el zonaje no constituye una prestación invariable y de que el mismo se fundamento en circunstancias especiales que al variar, hacen insubsistente la causa de pago.

@@ -1,1 +1,0 @@
-Transitorio.-El derecho de pago de zonaje tendrá a efecto a partir de la publicación de este reglamento y se hará efectivo en la fecha que el Ministerio de Hacienda lo acuerde, siempre y cuando no transcurra un plazo superior a seis meses, con excepción de aquellos funcionarios que han venido disfrutando con base en el decreto número 11971-H

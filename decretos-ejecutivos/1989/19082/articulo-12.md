@@ -1,1 +1,0 @@
-Artículo 12.-Este reglamento será revisado, actualizado y/o modificado cada doce meses, a partir de su publicación, por el Departamento de Personal conjuntamente con representantes legales del sindicato mayoritario de este Ministerio.
