@@ -1,0 +1,3 @@
+ARTÍCULO 4°.- Reformar los artículos 23 y 24 del Reglamento del Estatuto de Servicio Civil, que en adelante dirán:
+"ARTICULO 23. Los descensos podrán ser efectuados a cualquier clase de puesto siempre que el servidor, a juicio de la Dirección General, reúna los requisitos de la clase a la que se propone y no sea perjudicado, salvo los casos previstos por el artículo 27, inciso f) del Reglamento del Estatuto de Servicio Civil.
+ARTICULO 24. A juicio de la Administración podrá ser aplicable el período de prueba en los ascensos o traslados en que así convenga para garantizar mejor el servicio público. En tales casos, el servidor gozar de licencia de su puesto anterior durante el tiempo que dure dicho periodo de prueba, el cual será aplicable también a su sustituto."
