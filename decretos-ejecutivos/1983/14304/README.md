@@ -13,3 +13,4 @@ Autoriza Colegio Cirujanos Dentistas Remarcar Timbres Odontológicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-03-21 | la propia norma |
+| 2 | 1983-03-21 | SINALEVI (sin norma nombrada) |
