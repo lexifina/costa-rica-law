@@ -14,3 +14,4 @@ Reglamento Orgánico del Centro de Formación de Formadores y del Personal Técn
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-07-03 | la propia norma |
+| 2 | 1994-05-25 | Decreto Ejecutivo 23430 (1994-05-25) |
