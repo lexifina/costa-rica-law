@@ -1,0 +1,6 @@
+CAPÍTULO IX
+Del Tribunal de Honor
+Artículo 32.—Cuando el Presidente del Colegio tuviere informes de que existe entre dos colegiados un conflicto que pudiera originar un incidente personal, ofrecerá inmediatamente su mediación para que la querella sea resuelta por un Tribunal de Honor. También lo hará a solicitud de interesados o extraños para diferencias profesionales graves. Si el enterado de los antecedentes resultare tratarse de un grave asunto de honor, se abstendrá de insistir, a no ser que fuere requerido por alguno de los interesados. Cuando el conflicto fuere entre un miembro del Colegio y un extraño, la mediación será ofrecida sin embargo, a los dos, y sí el miembro del Colegio fuere el ofensor o el que provoca, le será obligatorio someterse al arbitraje, siempre que la otra parte se someta también.
+La resolución del Tribunal será obligatoria cuando ambas partes hayan aceptado la mediación.
+En estos asuntos, el Presidente obrará confidencialmente, y con toda la delicadeza que exigen semejantes casos, pudiendo delegar sus funciones si así lo juzga oportuno.
+Las proposiciones y las respuestas se harán de palabra y se guardarán los antecedentes bajo la fe profesional, sin revelar otra cosa en caso de buen éxito, que el consentimiento para someterse al Tribunal de Honor.

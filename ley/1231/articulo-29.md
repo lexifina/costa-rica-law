@@ -1,0 +1,1 @@
+Artículo 29.—Una vez presentado el dictamen, si hay unanimidad de pareceres en el Comité, o los dictámenes si no hubiere unanimidad, se procederá a citar a la Asamblea General extraordinaria, y se hará saber el motivo de la convocatoria, ordenando la publicación de los dictámenes.

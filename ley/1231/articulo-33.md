@@ -1,0 +1,1 @@
+Artículo 33.—El Tribunal de Honor a que se refiere el artículo anterior será integrado por el Presidente o en su defecto por el Vocal correspondiente y por tres miembros propietarios y dos suplentes, que serán nombrados por la Asamblea General en su primera sesión ordinaria anual. En estos casos el Presidente no tendrá voto.

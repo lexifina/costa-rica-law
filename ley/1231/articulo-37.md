@@ -1,0 +1,1 @@
+Artículo 37.—La deliberación del Tribunal será secreta; pero dará audiencia a las partes cuando el caso lo requiera. La votación será siempre secreta. El fallo del Tribunal se mandará a publicar cuando así se declare expresamente.
