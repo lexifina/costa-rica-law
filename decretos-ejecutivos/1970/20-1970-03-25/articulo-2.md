@@ -1,0 +1,5 @@
+Artículo 2°—De acuerdo con el artículo anterior, las funciones de la Oficina Filatélica serán las siguientes:
+a) Mantener un sistema eficiente de venta al público, ya sea en forma directa o por correspondencia.
+b) Circular periódicamente hojas informativas, redactadas en español y, de ser posible, en otros idiomas, detallando los sellos postales que tiene a la venta, ofreciendo el servicio de nuevas emisiones explicando el sistema de venta por correspondencia y exponiendo cualquier otro dato inherente a su servicio.
+c) Ofrecer, en todas las emisiones, los servicios filatélicos especiales enumerados a continuación: Sobres de Primer Día ilustrados con diseños relacionados con la emisión. Matasellos de Primer Día. Matasellos conmemorativos cuando la emisión lo requiere.
+d) Enviar anticipadamente a los coleccionistas inscritos, a las agrupaciones filatélicas, a la prensa en general y especializada y a los comerciantes del ramo, en todo el mundo, boletines informativos escritos en español y, de ser posible, en otros idiomas, detallando las características completas de cada próxima emisión.
