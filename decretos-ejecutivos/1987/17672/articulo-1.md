@@ -1,0 +1,18 @@
+N° 17672-MAG-H
+EL PRESIDENTE DE LA REPUBLICA
+Y LOS MINISTROS DE AGRICULTURA Y GANADERIA Y DE HACIENDA,
+Con fundamento en el artículo 140, incisos 3) y 18) de la Constitución Política y la ley N° 7064 del 29 de abril de 1987.
+DECRETAN:
+ARTÍCULO 1°.-Adicionase el Decreto Ejecutivo N° 17562-MAG del 19 de mayo de 1987 (reglamento al capítulo 2° de la Ley FODEA de la Adecuación de Deudas de los productores Agropecuarios y Saneamiento de la Cartera Bancaria) corriendo su numeración. La Adición se hace de la siguiente manera;
+"Artículo 29.-Las Adecuaciones contempladas en la Ley para los pequeños y Medianos Productores Agropecuarios, son automáticas por lo que en virtud de lo prescrito en el artículo 8° de dicha ley los bancos traspasarán al Ministerio de Hacienda la Cartera en mora de dichos productores en el estado en que esta se encuentre para efecto del giro de bonos correspondientes a cada uno de ellos, hasta por la suma total de ¢ 5.000.000.000.00. El Ministerio de Hacienda, hará el pago a cada Banco mediante una distribución directamente proporcional a la Cartera Agropecuaria en mora, conforme con la ley y al artículo 19 del reglamento.
+Artículo 30.-Los Bancos se compromete a presentar los listados provisionales de la Cartera traspasada al Ministerio de Hacienda dentro de los ocho días naturales siguientes a la publicación de esta reforma, por medio de la Comisión Interbancaria que prevé el reglamento.
+Artículo 31.-Aquellas personas físicas y jurídicas cuyas operaciones están incluidas en el traspaso automático de Cartera al Ministerio de Hacienda, serán rehabilitados nuevamente como sujetos de crédito por los Bancos Comerciales del Estado en el momento en que documenten la adecuación o readecuación ante el respectivo Banco.
+Para ello se establece como fecha límite el 15 de diciembre de 1987. Se entiende por documentar: el suscribir los documentos de crédito conforme con los términos y condiciones que establece la ley.
+Artículo 32.-Los Bancos tramitarán los documentos de adecuación y readecuación y procederán conforme lo establece la ley. Sobre cada adecuación o readecuación documentada se enviará la correspondiente comunicación al Ministerio de Hacienda.
+Artículo 33.-La Comisión de Coordinación Interbancaria dentro de un plazo máximo convenido con el Ministerio de Hacienda, podrá solicitar a éste el traslado de bonos de un Banco Comercial a otro.
+Artículo 34.-El Ministerio de Hacienda, solicitará a los Bancos los bonos que corresponda en caso de que las operaciones lo fuesen por un total inferior al monto de los bonos entregados, asimismo solicitar la devolución de los bonos de las operaciones no documentadas si se comprueba que no se ejercieron las acciones administrativas correspondientes para tal fin.
+Artículo 35.-Los grandes productores agropecuarios tramitarán sus solicitudes para ser beneficiarios de la ley, conforme con los artículos 14, párrafo 2° y 21 de la ley, y 12 del Reglamento. Estos productores podrán recurrir en caso de inconformidad sobre sus solicitudes conforme con el artículo 17 de la ley y el artículo 22 del reglamento.
+Artículo 36.-Los créditos concedidos con recursos externos a que se refiere el artículo 20 de la ley no están contemplados en los beneficios que ésta establece pero los bancos podrán, en la medida en que los convenios lo permitan, adecuarlos en los siguientes términos:
+a) Hasta 12 a los de plazo, restando los años ya disfrutados.
+b) Igualmente podrán gozar de un período de gracia.
+Estas adecuaciones y las reguladas en el artículo 15 de la ley no formarán parte de la Cartera para el cálculo de la distribución proporcional de bonos."

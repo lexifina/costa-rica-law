@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-Derogase del Decreto Ejecutivo N° 17562 de 29 de mayo de 1987 (Reglamento al capítulo 2° de la Ley FODEA) el párrafo final del artículo 2°, el párrafo final del artículo 3° y el artículo 11.
