@@ -1,0 +1,2 @@
+Artículo 2°—Funcionamiento de las Brigadas Privadas. Las brigadas para extinción de incendios que se formen por Iniciativa privada para la atención de emergencias relacionadas con la prevención y combate de incendios, no requerirán autorización previa del Instituto Nacional de Seguros para su creación, ni serán dependientes o supervisadas por el Cuerpo de Bomberos.
+Dichas brigadas actuarán bajo exclusiva administración y responsabilidad de sus integrantes y su marco jurídico será el propio de la forma organizativa que adopten.
