@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones del Sector Público y las organizaciones privadas darán a conocer ese día a la comunidad nacional los programas y proyectos dedicados a la prevención del abuso contra personas menores de edad y se movilizarán para sensibilizar y educar a la población sobre este grave problema social y la necesidad de su prevención y erradicación.
