@@ -1,14 +1,3 @@
-ARTÍCULO 27.- Nombramiento a cargo de un tercero
-Cuando las partes acuerden que un tercero nombre al tribunal
-arbitral, el nombramiento se hará dentro de los quince días siguientes a
-la solicitud de las partes. Antes del nombramiento, el tercero designado
-deberá informarse sobre la naturaleza de la controversia, para garantizar
-la idoneidad de los árbitros por nombrar.
-También deberá tomar las medidas necesarias para garantizar el
-nombramiento de árbitros independientes e imparciales.
-En caso de que el acuerdo arbitral disponga que un tercero nombre a
-los árbitros y este no lo haga dentro del plazo de quince días contados a
-partir de la fecha en que se le requirió el nombramiento, cualquiera de
-las partes podrá pedir el nombramiento a la Secretaría General de la
-Corte, al Colegio de Abogados o a cualquier entidad autorizada para
-administrar procesos arbitrales.
+ARTÍCULO 27.- Nombramiento a cargo de un tercero. Cuando las partes acuerden que un tercero nombre al tribunal arbitral, el nombramiento se hará dentro de los quince días siguientes a la solicitud de las partes. Antes del nombramiento, el tercero designado deberá informarse sobre la naturaleza de la controversia, para garantizar la idoneidad de los árbitros por nombrar.
+También deberá tomar las medidas necesarias para garantizar el nombramiento de árbitros independientes e imparciales.
+En caso de que el acuerdo arbitral disponga que un tercero nombre a los árbitros y este no lo haga dentro del plazo de quince días contados a partir de la fecha en que se le requirió el nombramiento, cualquiera de las partes podrá pedir el nombramiento a la Secretaría General de la Corte, al Colegio de Abogados o a cualquier entidad autorizada para administrar procesos arbitrales.

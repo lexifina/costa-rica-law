@@ -1,4 +1,2 @@
 Artículo 19°- Plazo para normalizar situaciones. A los establecimientos que están funcionando sin la respectiva licencia municipal o se encuentren con uno o más trimestres de atraso, se les otorgará un plazo de ocho días hábiles para normalizar su situación con la Municipalidad.
 Transcurrido el plazo otorgado al contribuyente, sin que haya normalizado su situación, se procederá a la cancelación de la licencia y al cierre inmediato del establecimiento o a impedir la realización de dicha actividad.
-Transitorio Unico.- Autorízase, por una única vez, a la Municipalidad de Nicoya para que condone intereses, recargos y multas de ley de los impuestos, tasas y servicios, a los contribuyentes que cancelen sus obligaciones en mora dentro de los dos meses calendario posteriores a la publicación de la presente ley.
-Rige a partir de su publicación.

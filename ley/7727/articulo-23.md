@@ -1,14 +1,3 @@
-ARTÍCULO 23.- Condiciones del acuerdo
-El acuerdo arbitral no tendrá formalidad alguna, pero deberá constar
-por escrito, como acuerdo autónomo o parte de un convenio. Para los
-efectos de este artículo, se considera válido el acuerdo arbitral suscrito
-por facsímil, telex o cualquier otro medio de comunicación similar.
-Si las partes así lo hicieren constar expresamente, podrán establecer
-los términos y las condiciones que regirán el arbitraje entre ellas, de
-conformidad con esta ley. En caso de que no se establezcan reglas
-específicas, se entenderá que las partes se someterán a las que escoja el
-tribunal arbitral, con sujeción a la presente ley.
-El acuerdo podrá ser complementado, modificado o revocado por
-convenio entre las partes en cualquier momento. No obstante, en caso de
-que decidan dejar sin efecto un proceso de arbitraje en trámite, deberán
-asumir los costos correspondientes, de conformidad con esta ley.
+ARTÍCULO 23.- Condiciones del acuerdo. El acuerdo arbitral no tendrá formalidad alguna, pero deberá constar por escrito, como acuerdo autónomo o parte de un convenio. Para los efectos de este artículo, se considera válido el acuerdo arbitral suscrito por facsímil, telex o cualquier otro medio de comunicación similar.
+Si las partes así lo hicieren constar expresamente, podrán establecer los términos y las condiciones que regirán el arbitraje entre ellas, de conformidad con esta ley. En caso de que no se establezcan reglas específicas, se entenderá que las partes se someterán a las que escoja el tribunal arbitral, con sujeción a la presente ley.
+El acuerdo podrá ser complementado, modificado o revocado por convenio entre las partes en cualquier momento. No obstante, en caso de que decidan dejar sin efecto un proceso de arbitraje en trámite, deberán asumir los costos correspondientes, de conformidad con esta ley.
