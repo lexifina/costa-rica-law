@@ -1,0 +1,17 @@
+Nº 24182-S
+EL PRIMER VICEPRESIDENTE
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPUBLICA
+Y EL MINISTRO DE SALUD
+En ejercicio de las facultades que les confieren los artículos 140 incisos 3) y 18) de la Constitución Política y 28 de la Ley General de la Administración Pública.
+Considerando:
+1º.- Que el Instituto Costarricense de Acueductos y Alcantarillados, de conformidad con su Ley Constitutiva, tiene como objetivo dirigir, fijar políticas, establecer y aplicar normas, realizar y promover el planeamiento, financiamiento y desarrollo y resolver todo lo relacionado con el suministro de agua potable y resolución y evacuación de aguas negras y residuos industriales líquidos, en todo el territorio nacional.
+2º.- Que mediante Decreto Ejecutivo Nº 6387-G, del 16 de setiembre de 1977, se crean los Comités Administradores de los Acueductos Rurales, con el fin de administrar, operar y conservar en buenas condiciones los acueductos que A y A les entregue.
+3º.- Que de acuerdo con el referido Decreto Ejecutivo, tales sistemas no salen del ámbito de poder de A y A, y este Instituto está en la obligación de brindar asesoría técnica, ejercer mecanismos de control sobre la administración y operación de los sistemas y realizar auditorías.
+4º.- Que A y A, mediante la División de Obras por Administración, con el aporte de la comunidad (mano de obra no especializada y materiales); Fondo de Desarrollo Social de Asignaciones Familiares (Ley 5662), así como de otras fuentes de financiamiento y recursos propios, realiza las obras necesarias las cuales cubren actualmente más de 1000 comunidades rurales, llevando agua potable a más de la tercera parte la población total del país y con proyectos para cubrir al resto de la población rural para el año 2000.
+5º.- Que la Ley Constitutiva de A y A, en su artículo 4, dispone que para la fijación de tarifas se aplicarán criterios de justicia social distributiva, que tomen en cuenta los diferentes estratos sociales y la zona a que pertenecen los usuarios, con el propósito de obtener ingresos tales que le permitan responder a las políticas de desarrollo y cobertura de los servicios.
+6º.- Que de acuerdo con el documento del Ministerio de Planificación Nacional y Política Económica, denominado "Perfil de la pobreza en Costa Rica, 1987-1993 (tendencias - divisiones - estadísticas), la mayor parte de la pobreza en Costa Rica se concentra en las áreas rurales.
+7º.- Que el Gobierno de la República, considera de interés nacional por su impacto en la Salud Pública, el financiamiento de las obras que realizó A y A en las comunidades rurales del país, cuyos sistemas son administrados y operados por los Comités Administradores de Acueductos Rurales supervisados por A y A.
+8º.- Que la Presidencia Ejecutiva del Instituto Costarricense de Acueductos y Alcantarillados, mediante oficio Nº DPE-778-95, solicitó al Ministerio de Salud, emitir el presente Decreto Ejecutivo, el cual es necesario para el mejoramiento de los sistemas de abastecimiento de agua potable en el área rural.
+Por tanto,
+DECRETAN:
+Artículo 1.- Se autoriza al Instituto Costarricense de Acueductos y Alcantarillados para que incluya dentro de sus estructuras tarifarias generales, los fondos suficientes para hacer frente a las obligaciones que asuma, como consecuencia de transferencias, donaciones, préstamos y otras inversiones para poder desarrollar el Programa de Construcción y Mejoras en los sistemas de abastecimiento de agua potable en el área rural.
