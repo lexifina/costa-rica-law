@@ -1,0 +1,1 @@
+Artículo 8º—La Operadora de Pensiones se reserva el derecho de ejercer -en cualquier momento- controles, para asegurarse del cumplimiento efectivo de las instrucciones que hubiere girado a los ejecutivos de ventas y a los promotores.

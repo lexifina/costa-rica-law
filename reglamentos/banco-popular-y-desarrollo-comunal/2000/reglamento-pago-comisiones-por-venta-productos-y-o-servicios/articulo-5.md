@@ -1,0 +1,1 @@
+Artículo 5º—Los ejecutivos de ventas y promotores serán responsables de los daños y perjuicios que se pudieren producir, por actuaciones culposas y/o dolosas, que perjudiquen a la Operadora de Pensiones o a terceros.

@@ -1,0 +1,9 @@
+Artículo 2º—Para los efectos del presente Reglamento, se entiende por:
+Operadora de pensiones: Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal, S. A. Entidad constituida al amparo de lo que dispone el artículo 55 de la Ley Reguladora del Mercado de Valores, S. A.
+Gerencia: El Gerente de la Operadora de Pensiones Complementarias, el Jefe de Comercialización y el Jefe de Administración y Finanzas.
+Reglamento: Reglamento para el Pago de Comisiones por Venta de Productos y/o Servicios de la Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal, Sociedad Anónima.
+Promotor: Persona física contratada por la operadora para la venta de productos y servicios. Para estos efectos, además de la Comisión devengarán un salario base.
+Los promotores no podrán ser funcionarios o empleados del Banco Popular ni de ninguna otra de las sociedades donde el Banco sea propietario de la mayoría del capital social.
+Ejecutivo de ventas: Toda persona física o jurídica, que -bajo cualesquiera de las formas de negociación que contempla el ordenamiento jurídico- en nombre propio y por cuenta de la Operadora de Pensiones, venda los productos y/o servicios que ofrece la Operadora de Pensiones.
+No podrán operar como ejecutivos de ventas los integrantes de la Junta Directiva, ni los empleados del Banco o de las sociedades, donde éste sea propietario de la mayoría del capital social sujetos al régimen de prohibición o dedicación exclusiva, ni en general quien para el ejercicio de esa actividad pueda beneficiarse de su posición en esas entidades.
+Comisiones: Sumas que pagará la Operadora de Pensiones, a todos aquellos ejecutivos de ventas, que vendan los productos y/o servicios que ofrece la misma y que serán canceladas una vez que la SUPEN apruebe la respectiva transacción cuando ello sea necesario.

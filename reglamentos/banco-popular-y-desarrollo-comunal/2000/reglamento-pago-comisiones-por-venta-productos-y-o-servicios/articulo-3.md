@@ -1,0 +1,3 @@
+CAPÍTULO II
+De los ejecutivos de ventas y otros aspectos relacionados con el servicio que prestan
+Artículo 3º—La Gerencia de la Operadora de Pensiones establecerá los tipos de productos y/o servicios que, podrán ser vendidos por parte de los ejecutivos de ventas, que se han señalado supra. La Operadora de Pensiones además, fijará los montos de las comisiones a pagar y la forma de pago de las mismas; todo previo a la verificación y cumplimiento de todos y cada uno de los procedimientos administrativos, contables y financieros del caso y en estricto apego a lo que establezca la "tabla de Comisiones por Venta de Productos y/o Servicios de la Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal, S. A.", que forma parte del presente Reglamento.

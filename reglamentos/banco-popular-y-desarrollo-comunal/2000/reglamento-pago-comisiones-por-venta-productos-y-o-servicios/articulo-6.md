@@ -1,0 +1,1 @@
+Artículo 6º—Los ejecutivos de ventas y promotores, deberán cumplir con las instrucciones que les gire la Operadora de Pensiones, con estricto apego a las disposiciones del presente Reglamento y las disposiciones jurídicas vigentes.

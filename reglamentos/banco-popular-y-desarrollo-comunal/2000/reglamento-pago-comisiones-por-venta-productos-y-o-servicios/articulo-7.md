@@ -1,0 +1,1 @@
+Artículo 7º—La Operadora de Pensiones, capacitará a los ejecutivos de ventas y a los promotores, en relación con los diferentes productos y/o servicios del mismo que vendan, de acuerdo con las instrucciones de la Operadora de Pensiones.
