@@ -12,3 +12,4 @@ Reglamento Ley Patentes Invención Dibujos y Modelos Industriales yModelos de Ut
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-12-12 | la propia norma |
+| 2 | 1983-12-12 | Decreto Ejecutivo 17602 (1987-05-11) |

@@ -1,5 +1,1 @@
-Artículo 40.-Examen de la solicitud. Cuando el Registro previniere
-para que se efectúe alguna corrección o subsane alguna omisión respecto a
-su solicitud, el solicitante deberá cumplir con la prevención dentro del
-plazo de treinta días hábiles. En caso de incumplimiento se procederá a
-efectuar el archivo de la solicitud.
+Artículo 40.-Examen de la solicitud. Cuando el Registro previniere para que se efectúe alguna corrección o subsane alguna omisión respecto a su solicitud, el solicitante deberá cumplir con la prevención dentro del plazo de treinta días hábiles. En caso de incumplimiento se procederá a efectuar el archivo de la solicitud.

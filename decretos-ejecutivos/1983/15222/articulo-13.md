@@ -1,18 +1,5 @@
-Artículo 13.- Unidad de la invención. Para determinar la unidad de
-la invención, se entenderá que existe tal unidad aun cuando la solicitud
-contenga reivindicaciones independientes de distintas categorías, siempre
-que dichas reivindicaciones estén vinculadas y formen parte de Un mismo
-conjunto inventivo o concepción inventiva. Se entenderá que hay unidad de
-la invención en las solicitudes que contengan reivindicaciones
-independientes en las siguientes combinaciones, sin que esta lista sea
-limitativa:
-a) Un producto y un procedimiento para la fabricación de dicho
-producto.
-b) Un procedimiento y un aparato o medio para la puesta en
-práctica de ese procedimiento.
-c) Un producto, un procedimiento para la fabricación de dicho
-producto y un aparato o medio para la puesta en práctica de ese
-procedimiento.
-2. La misma solicitud podrá incluir una o más reivindicaciones
-dependiente por cada reivindicación independiente, siempre que en
-conjunto se cumpla con las condiciones de unidad de la invención.
+Artículo 13.- Unidad de la invención. Para determinar la unidad de la invención, se entenderá que existe tal unidad aun cuando la solicitud contenga reivindicaciones independientes de distintas categorías, siempre que dichas reivindicaciones estén vinculadas y formen parte de Un mismo conjunto inventivo o concepción inventiva. Se entenderá que hay unidad de la invención en las solicitudes que contengan reivindicaciones independientes en las siguientes combinaciones, sin que esta lista sea limitativa:
+a) Un producto y un procedimiento para la fabricación de dicho producto.
+b) Un procedimiento y un aparato o medio para la puesta en práctica de ese procedimiento.
+c) Un producto, un procedimiento para la fabricación de dicho producto y un aparato o medio para la puesta en práctica de ese procedimiento.
+2. La misma solicitud podrá incluir una o más reivindicaciones dependiente por cada reivindicación independiente, siempre que en conjunto se cumpla con las condiciones de unidad de la invención.

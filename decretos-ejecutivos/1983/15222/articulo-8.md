@@ -1,28 +1,7 @@
-Artículo 8º.- Reivindicaciones. Cuando hubiere más de una
-reivindicación, ellas se numerarán consecutivamente.
-2. La definición de la materia que será objeto de protección según
-las reivindicaciones deberá hacerse en función e las características
-técnicas de la invención. Las reivindicaciones no contendrán ejemplos ni
-emplearán términos relativos o imprecisos, salvo que tales términos
-estuvieren definidos con precisión en la prescripción.
-3. Salvo cuando la naturaleza de la invención hiciere conveniente
-una redacción diferente, las reivindicaciones contendrán:
-a) Un preámbulo en el que se indiquen las características técnicas
-de la invención necesarias para su definición, que combinadas
-forman parte del estado de la técnica.
-b) Una parte característica, precedida de las palabras
-"caracterizada en", "caracterizada por", "donde la mejora
-comprende", o cualquier otra expresión análoga, en la que se
-expongan de manera concisa las características técnicas que,
-conjuntamente con las mencionadas en el párrafo a), se desea
-proteger.
-4. Salvo cuando fuere absolutamente necesario, las reivindicaciones
-no deberán fundarse, en lo concerniente a las características técnicas de
-la invención, en referencias a la descripción o a los dibujos. En
-particular, deberán evitarse referencias tales como "según se describe en
-la parte... de la descripción" o "según la ilustración de la figura... de
-los dibujos".
-5. Cuando la solicitud contenga dibujos, las características
-técnicas mencionadas en las reivindicaciones podrán ir seguidas de
-números de referencia a tales características ilustradas en los dibujos.
-Tales números de referencia figurarán entre paréntesis.
+Artículo 8º.- Reivindicaciones. Cuando hubiere más de una reivindicación, ellas se numerarán consecutivamente.
+2. La definición de la materia que será objeto de protección según las reivindicaciones deberá hacerse en función e las características técnicas de la invención. Las reivindicaciones no contendrán ejemplos ni emplearán términos relativos o imprecisos, salvo que tales términos estuvieren definidos con precisión en la prescripción.
+3. Salvo cuando la naturaleza de la invención hiciere conveniente una redacción diferente, las reivindicaciones contendrán:
+a) Un preámbulo en el que se indiquen las características técnicas de la invención necesarias para su definición, que combinadas forman parte del estado de la técnica.
+b) Una parte característica, precedida de las palabras "caracterizada en", "caracterizada por", "donde la mejora comprende", o cualquier otra expresión análoga, en la que se expongan de manera concisa las características técnicas que, conjuntamente con las mencionadas en el párrafo a), se desea proteger.
+4. Salvo cuando fuere absolutamente necesario, las reivindicaciones no deberán fundarse, en lo concerniente a las características técnicas de la invención, en referencias a la descripción o a los dibujos. En particular, deberán evitarse referencias tales como "según se describe en la parte... de la descripción" o "según la ilustración de la figura... de los dibujos".
+5. Cuando la solicitud contenga dibujos, las características técnicas mencionadas en las reivindicaciones podrán ir seguidas de números de referencia a tales características ilustradas en los dibujos. Tales números de referencia figurarán entre paréntesis.

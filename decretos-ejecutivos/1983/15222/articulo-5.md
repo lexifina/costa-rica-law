@@ -28,8 +28,8 @@ deberá aportar el documento probatorio correspondiente.
 6. En la solicitud se indicará casa u oficina en la ciudad donde
 está ubicado el Registro de la Propiedad Industrial, para recibir
 notificaciones.
-( Así adicionado por el artículo 1º del decreto Nº 17602 del 11
-de mayo de 1987).
+(Así modificado por art. 1º, Decreto Ejecutivo Nº 17602 de 11 de
+mayo de 1987)
 7. La solicitud estará acompañada de la descripción del invento, los
 dibujos que correspondieren y un resumen, los cuales se presentarán en
 cinco ejemplares. Asimismo, se acompañará el comprobante de haber pagado

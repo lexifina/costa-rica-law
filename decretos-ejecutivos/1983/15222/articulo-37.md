@@ -1,8 +1,2 @@
-Artículo 37.- Unidad de la solicitud. Cada solicitud se referirá
-solamente a un dibujo o modelo industrial, pero el mismo podrá
-registrarse para ser aplicado distintos objetos o productos incluidos en
-una o más clases de la clasificación.
-2. Se considerarán como un mismo dibujo o modelo industrial aquellos
-que difieran solo en detalles menores y se apliquen a distintos
-componentes o elementos de un juego o conjunto de artículos destinados a
-utilizarse conjuntamente.
+Artículo 37.- Unidad de la solicitud. Cada solicitud se referirá solamente a un dibujo o modelo industrial, pero el mismo podrá registrarse para ser aplicado distintos objetos o productos incluidos en una o más clases de la clasificación.
+2. Se considerarán como un mismo dibujo o modelo industrial aquellos que difieran solo en detalles menores y se apliquen a distintos componentes o elementos de un juego o conjunto de artículos destinados a utilizarse conjuntamente.

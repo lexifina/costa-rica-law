@@ -1,25 +1,6 @@
-Artículo 9º.- Reivindicaciones independientes y reivindicaciones
-dependientes. Una reivindicación será considerada como reivindicación
-independiente cuando defina la materia protegida sin referencia a una
-reivindicación precedente comprendida en la misma solicitud.
-2. Una reivindicación será considerada como reivindicación
-dependiente cuando comprenda o se refiera a alguna reivindicación
-precedente. Cuando la reivindicación dependiente se refiera a dos o más
-reivindicaciones precedentes, será considerada como reivindicación
-dependiente múltiple.
-3. Toda reivindicación dependiente deberá indicar, en su preámbulo,
-el número de la reivindicación que le sirva de base y en su parte
-caracterizante precisará la característica adicional, la variación, la
-modalidad o la alternativa reivindicada.
-4. Una reivindicación dependiente múltiple solo podrá referirse de
-modo alternativo a las reivindicaciones que le sirven de base y no podrá
-servir de base a otra reivindicación dependiente múltiple.
-5. Una reivindicación dependiente se entenderá e interpretará de
-manera que incluya todas las características y las limitaciones
-contenidas en la reivindicación que le sirve de base. Una reivindicación
-dependiente múltiple se entenderá e interpretará de manera que incluya
-todas las características y las limitaciones contenidas en aquella
-reivindicación junto con la cual haya de ser considerada.
-6. Las reivindicaciones dependientes deberán agruparse en la medida
-de lo posible a continuación de las reivindicaciones que les sirvan de
-base.
+Artículo 9º.- Reivindicaciones independientes y reivindicaciones dependientes. Una reivindicación será considerada como reivindicación independiente cuando defina la materia protegida sin referencia a una reivindicación precedente comprendida en la misma solicitud.
+2. Una reivindicación será considerada como reivindicación dependiente cuando comprenda o se refiera a alguna reivindicación precedente. Cuando la reivindicación dependiente se refiera a dos o más reivindicaciones precedentes, será considerada como reivindicación dependiente múltiple.
+3. Toda reivindicación dependiente deberá indicar, en su preámbulo, el número de la reivindicación que le sirva de base y en su parte caracterizante precisará la característica adicional, la variación, la modalidad o la alternativa reivindicada.
+4. Una reivindicación dependiente múltiple solo podrá referirse de modo alternativo a las reivindicaciones que le sirven de base y no podrá servir de base a otra reivindicación dependiente múltiple.
+5. Una reivindicación dependiente se entenderá e interpretará de manera que incluya todas las características y las limitaciones contenidas en la reivindicación que le sirve de base. Una reivindicación dependiente múltiple se entenderá e interpretará de manera que incluya todas las características y las limitaciones contenidas en aquella reivindicación junto con la cual haya de ser considerada.
+6. Las reivindicaciones dependientes deberán agruparse en la medida de lo posible a continuación de las reivindicaciones que les sirvan de base.
