@@ -1,0 +1,1 @@
+Artículo N° 3.—Los usuarios deben tener listas las basuras en sus respectivas bolsas, en horas de la mañana, de no encontrarse las bolsas con basura en el momento que pasa el recolector, no habrá responsabilidad de los empleados municipales, el servicio se inicia a las 6:30 a.m.

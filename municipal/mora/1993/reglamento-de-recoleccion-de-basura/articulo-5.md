@@ -1,0 +1,1 @@
+Artículo N° 5.—El máximo de basura que se recogerá será el equivalente de medio estañen en bolsas, en Residenciales y dos estañones en Industrias, establecimientos comerciales cada vez, equivalente en bolsas.

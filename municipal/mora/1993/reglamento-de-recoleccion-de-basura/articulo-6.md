@@ -1,0 +1,1 @@
+Artículo N° 6. —Para el financiamiento de este servicio se crea una tasa de pago trimestral, vencido que cubrirá como mínimo el costo del servicio, se establecerá con la aprobación de la Contraloría General de la República y aplicando en todo los extremos establecidos el artículo 87 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo N° 8.—Cuando la Municipalidad lo considere oportuno y necesario podrá extender el servicio de nuevos sectores y zonas , mediante la aprobación de acuerdo municipal, por simple mayoría y sin el requisito de reformas al reglamento.

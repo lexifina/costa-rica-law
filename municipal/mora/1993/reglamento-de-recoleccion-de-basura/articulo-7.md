@@ -1,0 +1,1 @@
+Artículo N° 7.—Los vecinos que no estén incluidos dentro del área establecida para la prestación del servicio, podrán negociar en forma directa el servicio, mediante contratación especial o individual con la Municipalidad.
