@@ -1,0 +1,2 @@
+Art. 2°-La introducción de los materiales mencionados deberá hacerse con la previa aprobación de la Secretaría de Hacienda.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los diez y seis días del mes de noviembre de mil ochocientos ochenta y ocho.-AND. SÁENZ, Presidente. -FÉLIX GONZÁLEZ, Secretario.- Palacio Presidencial.-San José, á diez y seis de noviembre de mil ochocientos ochenta Ꭹ ocho.-Ejecútese.-A. DE JESÚS SOTO.- El Ministro de Hacienda, MAURO FERNÁNDEZ.
