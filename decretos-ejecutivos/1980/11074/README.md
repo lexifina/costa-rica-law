@@ -13,3 +13,4 @@ Peso Máximo Carga Manual y Examen de Aptitud Física (Convenio OIT)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-03-20 | la propia norma |
+| 2 | 1981-03-20 | SINALEVI (sin norma nombrada) |
