@@ -1,0 +1,1 @@
+Artículo 2°—Para llevar a cabo la realización del proyecto a que se refiere el préstamo que da origen al presente aval, el IFAM establecerá una unidad con el propósito de desarrollar un Programa Integral de Mercadeo Agropecuario, la cual se denominará PIMA. Dicha unidad tendrá personalidad jurídica y patrimonios propios.
