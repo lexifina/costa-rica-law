@@ -15,3 +15,4 @@ Reglamento para las Operaciones Cambiarias
 | --- | --- | --- |
 | 1 | 1997-10-10 | la propia norma |
 | 2 | 2001-10-03 | Reglamento 5091 (2001-10-03) |
+| 3 | 2003-04-23 | Reglamento 5155 (2003-04-23) |
