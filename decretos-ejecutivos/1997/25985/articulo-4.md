@@ -1,0 +1,1 @@
+Artículo 4. Será el Ministerio de Trabajo y Seguridad Social en coordinación con la Comisión Técnica Asesora de Salud y Seguridad Ocupacional los encargados de velar por el cumplimiento del presente reglamento técnico.
