@@ -1,0 +1,2 @@
+Artículo 65°.-Desobediencia.
+Las resoluciones o las órdenes dictadas por la Comisión para promover la competencia y la Comisión nacional del consumidor, en el ámbito de sus competencias, que no sean observadas ni cumplidas dentro de los plazos correspondientes establecidos por esos órganos, constituyen la comisión del delito previsto en el artículo 295 del Código Penal. En tales circunstancias, los citados órganos deben proceder a testimoniar piezas, con el propósito de sustentar la denuncia ante el Ministerio Público para los fines correspondientes.

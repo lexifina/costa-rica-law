@@ -1,0 +1,2 @@
+Artículo 26°.- Criterios de valoración.
+Para imponer las multas a que se refiere el artículo anterior, la Comisión para promover la competencia debe tomar en cuenta como criterios de valoración: la gravedad de la infracción, la amenaza o el daño causado, los indicios de intencionalidad, la participación del infractor en el mercado, el tamaño del mercado afectado, la duración de la práctica o concentración, la reincidencia del infractor y su capacidad de pago.

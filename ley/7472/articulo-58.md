@@ -1,0 +1,5 @@
+Artículo 58°.- Medidas cautelares.
+Como medida cautelar, la Comisión nacional del consumidor puede ordenar el congelamiento de bienes o la suspensión de servicios, según corresponda, ante el indicio claro de la existencia de mercadería dañada, adulterada, vencida, ofrecida a un precio superior al permitido o acaparada que, de alguna manera, pueda perjudicar gravemente al consumidor o engañarlo.
+Transcurrido el término que se requiere para realizar el estudio técnico en el cual se determine la necesidad de mantener el congelamiento o la suspensión de servicios, debe darse audiencia, por un plazo de tres días, a los particulares afectados con la medida, para que aporten pruebas y aleguen lo que a bien tengan.
+Cumplido ese trámite, la Comisión nacional del consumidor, mediante resolución fundada, debe resolver si procede o no el decomiso de los bienes. En el caso de la suspensión de servicios, en el mismo plazo puede ordenar que esta se mantenga hasta que el asunto no se resuelva finalmente en su sede.
+Cuando medie resolución que ordene el decomiso, las mercaderías decomisadas deben donarse a una institución de beneficencia o destruirse si son peligrosas.
