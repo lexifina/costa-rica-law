@@ -1,0 +1,2 @@
+Artículo 43.—En el caso del inciso a) del artículo anterior, cualquiera de los miembros del Tribunal que por impresión propia o por informes serios tuviere noticias de tales transgresiones, convocará a sus compañeros para que se conozca de oficio el problema. Se levantará una información confidencial con la intervención del infractor y, en su caso, del denunciante y se fallará el caso, a conciencia, a la mayor brevedad posible.
+Si el colegiado resultare absuelto se le entregará copia del fallo y si lo desea, se hará una publicación, a cargo del Colegio, para su satisfacción.

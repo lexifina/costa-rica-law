@@ -1,0 +1,1 @@
+Artículo 6°.—Los colegiados tienen derecho a retirarse temporal o definitivamente del colegio, para ello deberán comunicar por escrito su decisión a la Junta Directiva. El retiro voluntario lleva implícita la renuncia al ejercicio de la profesión.

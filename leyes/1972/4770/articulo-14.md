@@ -1,0 +1,1 @@
+Artículo 14.—La Asamblea General se reunirá ordinariamente una vez al año, en el mes de marzo, para nombrar la Junta Directiva, dictar el Presupuesto, examinar la marcha de la institución en todos los aspectos, y dictar todos los demás acuerdos que considere necesarios para la buena marcha del Colegio.

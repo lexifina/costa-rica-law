@@ -1,0 +1,1 @@
+Artículo 50.—Dentro del mismo término deben emitirse, por el mismo procedimiento el Reglamento General del Colegio, el Reglamento de Mutualidad y Subsidios y cualesquiera otro indispensable para la corporación profesional.
