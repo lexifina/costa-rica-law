@@ -1,1 +1,2 @@
-Artículo 84.—Con el visto bueno del jefe inmediato, el funcionario municipal podrá solicitar un adelanto de sus vacaciones que. en ningún caso, podrá superar el número de días que proporcionalmente corresponda a los meses laborados.
+Artículo 84.—Con el visto bueno del jefe inmediato, el funcionario municipal podrá solicitar un adelanto de sus vacaciones que, en ningún caso, podrá superar el número de días que proporcionalmente corresponda a los meses laborados o podrá solicitar licencia ocasional de excepción, con goce de salario, por días de vacaciones, con base al Código Municipal, artículo 146.
+(Así reformado por acuerdo tomado en la sesión N° 18 de 30 de abril del 2002)
