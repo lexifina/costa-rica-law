@@ -1,0 +1,2 @@
+Art. 32.-Todas las oficinas judiciales estarán abiertas de las ocho á las diez de la mañana y de las once de la mañana las tres de la tarde. El empleado que sin justa causa no asistiere en esas horas á su despacho será apercibido por primera vez, y multado con veinticinco pesos la segunda. Tres faltas de este género ser n tenidas como abandono del empleo y el culpable será castigado entonces con arreglo al Código Penal.
+Están obligados á asistir á su despacho los empleados además de esas horas, todo el tiempo que lo requiera el buen servicio público.

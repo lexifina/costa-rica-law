@@ -1,0 +1,1 @@
+Art. 166.-En el caso de que por ser tres ó más las partes apelantes ó apeladas, usare la mayoría del derecho de recusar sin causa, se entender también que lo usaron las partes que no concurrieron á formar dicha mayoría, por el solo hecho de haber figurado como apelantes ó apeladas.

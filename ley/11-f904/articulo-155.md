@@ -1,0 +1,1 @@
+Art. 155.-Si el delito se hubiere cometido por una ó más personas en dos ó más lugares, ó si no se pudiere averiguar á punto fijo en cuál lugar se cometió, será competente para conocer de él, el Juez de cualquiera de los lugares en que se hubiere cometido ó respecto de los cuales surgiere la duda.

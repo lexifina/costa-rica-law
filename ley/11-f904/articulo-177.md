@@ -1,0 +1,1 @@
+Art. 177.-Los actos practicados por un funcionario que teniendo causa legal de excusa, no se hubiere excusado, no serán nulos por solo ese motivo, salvo lo dispuesto respecto á Magistrados, Jueces ó Asesores en el capítulo de impedimentos; pero si serán nulos los que se practicaren después de presentada la excusa y durante la tramitación de ella.

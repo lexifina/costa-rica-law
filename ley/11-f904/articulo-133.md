@@ -1,0 +1,1 @@
+Art. 133.-Los Jueces no pueden sostener competencia con sus superiores, con cuyas resoluciones tienen que conformarse, pero si con otro Juez o Tribunal que, aunque superior en su clase, no ejerza jurisdicción sobre el Juez que suscite la competencia.

@@ -1,0 +1,1 @@
+Art. 16.-La caución puede consistir en hipoteca, en depósito de efectivo ó valores de comercio, en fianza ú otra garantía bastante. El Secretario de Hacienda calificará á las garantías y mandará á otorgar las escrituras del caso.

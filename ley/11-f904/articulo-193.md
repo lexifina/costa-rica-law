@@ -1,0 +1,2 @@
+Art. 193.-Los Jueces de 1a Instancia están obligados á remitir á la Sala de Apelaciones respectiva, una copia de cada acta de visita de que habla el artículo 191 y los del crimen una copia también de cada acta de las visitas de cárcel de que habla el artículo anterior.
+Es deber de los Jueces de 1a Instancia del crimen remitir cada mes á la Sala de Apelaciones respectiva una lista de las causas criminales pendientes en su Juzgado, con indicación del estado en que se halla cada una y de los motivos de retardo ó paralización que alguna de ellas padezca.

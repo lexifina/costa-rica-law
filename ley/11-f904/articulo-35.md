@@ -1,0 +1,3 @@
+Art. 35.-La Corte Plena podrá conceder á sus miembros licencia hasta por seis meses, con justa causa y sin goce de sueldo, salvo que la licencia se pidiere en razón de enfermedad que impida trabajar, pues en tal caso se otorgará con goce de sueldo.
+Concederá también licencia, sin causa hasta por tres días, sin goce de sueldo y sin perjuicio del buen servicio público, y licencia con goce de sueldo, para separarse del lugar del Tribunal en los días en que no haya obligación de concurrir á la oficina, con tal de que no padezca por ello el servicio público.
+Cuando en el curso de una causa se hubiere decretado suspensión de un funcionario judicial, se le pagará á medio sueldo si fuere absuelto del cargo en definitiva.

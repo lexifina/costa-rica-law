@@ -1,0 +1,1 @@
+Art. 73.-Los Alcaldes deberán remitir cada mes al Juez del crimen respectivo y cada seis meses á la Sala de Apelaciones en lo criminal, una lista de las causas criminales pendientes, con expresión de su estado y de los motivos del retardo á paralización de los procedimientos que en ellas hubiere.
