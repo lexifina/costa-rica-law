@@ -2,7 +2,7 @@ N° 14002
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE ECONOMIA Y COMERCIO
 Considerando:
-1°.- Que la ley N° 6696 obliga al Ministerio de Economía y Comercio a publicar una vez al mes, la lista de precios oficiales y márgenes máximos de utilidad en el Diario Oficial y márgenes máximos de utilidad en el Diario Oficial “La Gaceta”.
+1°.- Que la ley N° 6696 obliga al Ministerio de Economía y Comercio a publicar una vez al mes, la lista de precios oficiales y márgenes máximos de utilidad en el Diario Oficial y márgenes máximos de utilidad en el Diario Oficial "La Gaceta".
 Por tanto,
 En uso de las facultades conferidas por los incisos 3) y 18) del artículo 140 de la Constitución Política y con base en la ley N° 5665 de 28 de febrero de 1975, Ley de Protección al Consumidor.
 Decretan:
@@ -13,20 +13,20 @@ Azúcar | De liga o bodega de los bancos o mayoristas ¢ | De mayorista a detall
 Corriente con 99.5% de polarización mínima | | |
 En sacos de 50kg neto c/u | 715,00 | 740,00 | 16,50 kg
 Refinado con 99.8% de polarización mínima | | |
-Bulto de 12 bolsas de 2.5 kg netos cada uno…………………. | 553,00 | 563,50 | 50,00 bolsa
+Bulto de 12 bolsas de 2.5 kg netos cada uno........ | 553,00 | 563,50 | 50,00 bolsa
 Bulto de 50 kg netos c/u para uso industrial | 890,00 | |
 | PRECIOS MAXIMOS DE VENTA
 | | | Al consumidor kilogramo ¢
 Melaza o miel de purga: | | |
-Puesta en ingenio…… | | | 140
-Puesta en tanques de la comisión de mieles…. | | | 2.00
+Puesta en ingenio.. | | | 140
+Puesta en tanques de la comisión de mieles.. | | | 2.00
 | PRECIOS MAXIMOS DE VENTA
 | De productor a mayorista ¢ | De mayorista a detallista ¢ | De detallista a consumidor ¢
 Café | | |
 Tostado y molido con 12% de azúcar como mínimo: | | |
-Por 1 kilogramo…….. | 34,65 | 35,70 | 40,00
-Por ½ kilogramo……. | 17.33 | 17.85 | 20.00
-Por ¼ kilogramo……. | 8.65 | 8.93 | 10.00
+Por 1 kilogramo.... | 34,65 | 35,70 | 40,00
+Por ½ kilogramo... | 17.33 | 17.85 | 20.00
+Por ¼ kilogramo... | 8.65 | 8.93 | 10.00
 | PRECIOS MAXIMOS DE VENTA
 | De productor a mayorista saco 50 kg ¢ | De mayorista a detallista saco 50kg ¢ | De detallista a consumidor kilo ¢
 Harinas | | |
@@ -41,7 +41,7 @@ Nota: Para los fines de este artículo se consideraran: a) Harinas para panifica
 | | De industrial a detallista ¢ | De detallista a consumidor ¢
 Pan: | | |
 Pan tipo corriente (hasta 3.5% de grasa): | | |
-Kilogramo………………. | | 24.75 | 29.70
+Kilogramo....... | | 24.75 | 29.70
 Nota: Los precios correspondientes a cualquier presentación o peso del pan, deberán ser proporcionado a los señalados anteriormente. La clasificación de panes especiales estará a cargo de la Dirección General de Normas y Unidades de Medida de este Ministerio.
 | | PRECIOS MAXIMOS DE VENTA
 | A mayorista ¢ | De mayorista a detallista ¢ | De detallista a consumidor ¢
@@ -51,16 +51,16 @@ Arroz pilado en sacos de 46 kilos | | |
 Con no más de 40% de grano quebrado | 795,50 | 835.25 | 20.35 Kg
 Con no más de 25% de grano quebrado | 870,40 | 913.90 | 22.25 Kg
 Empacado en bultos de 24 bolsas de 2 kilos netos cada una: | | |
-De 31 a 40% de grano quebrado…………….. | 847.60 | 890.00 | 41.50 bolsa
-De 26 a 30% de grano quebrado…………… | 900.50 | 945.50 | 44.10 bolsa
+De 31 a 40% de grano quebrado....... | 847.60 | 890.00 | 41.50 bolsa
+De 26 a 30% de grano quebrado..... | 900.50 | 945.50 | 44.10 bolsa
 De 21 a 25% de grano quebrado | 926.90 | 973.25 | 45.40 bolsa
 NOTA: Los industriales y distribuidores deberán indicar en la factura, la mezcla correspondiente a la venta que se realice inciso d) artículo 21 de la ley N° 5665. Las bolsas de arroz empacado, tanto para las mezclas que se fijen en este decreto, como las que se regulen por margen de utilidad (de 10 a 0% de grano quebrado), deberán llevar impreso en el empaque el tipo de mezcla, la marca, la empresa empacadora y el peso neto correspondiente, para esto, el Ministerio otorga un plazo no mayor a los 2 meses para que los industriales y empacadores acaten esta disposición y puedan agotar las existencias actuales del empaque.
 | | PRECIOS MAXIMOS DE VENTA
 | A mayorista ¢ | De mayorista a detallista ¢ | De detallista a consumidor ¢
 Frijoles rojos y negros: | | |
-Saco de 46 kg netos de cada uno……………… | 1.136.05 | 1.192.85 | 29.00
+Saco de 46 kg netos de cada uno...... | 1.136.05 | 1.192.85 | 29.00
 Maíz blanco: | | |
-Saco de 46 Kg netos cada uno……………. | 480.00 | 504.00 | 12.25
+Saco de 46 Kg netos cada uno...... | 480.00 | 504.00 | 12.25
 | | PRECIOS MAXIMOS DE VENTA
 | | Precio mínimo de venta del productor al industrial Litro ¢ | Precio máximo de venta del detallista al consumidor Litro ¢
 Leche: | | |
@@ -138,7 +138,7 @@ Fruta de palma, puesta en planta aceitera | | 1.920.00 |
 | | PRECIOS MAXIMOS DE VENTA
 | De productor a mayorista o industrial ¢ | De mayorista a detallista ¢ | De detallista a consumidor ¢
 Margarinas | | |
-Barrita de 125 gramos………. | 4.38 | 4.59 | 5.10
+Barrita de 125 gramos.... | 4.38 | 4.59 | 5.10
 Bulto de 15 kilogramos netos cada uno | 486.45 | |
 VARIOS | | |
 | | PRECIOS MAXIMOS DE VENTA
@@ -161,18 +161,18 @@ UTILES ESCOLARES | | |
 | | PRECIOS MAXIMOS DE VENTA
 | De Productor a mayorista ¢ | De mayorista a detallista ¢ | De detallista a consumidor ¢
 Cuadernos de rayado común engrapados o engomados | | | Unidad
-Caja de 400 cuadernos de 20 hojas c/u | 1.335.00 | 1.468.50 | 4.40
-Caja de 320 cuadernos de 30 hojas c/u | 1.445.95 | 1.590.55 | 5.95
-Caja de 200 cuadernos de 50 hojas c/u | 1.310.60 | 1.441.65 | 8.65
-Caja de 160 cuadernos de 70 hojas c/u | 1.324.40 | 1.465.85 | 10.90
-Cajas de 100 cuadernos de 100 hojas c/u | 1.192.80 | 1.310.10 | 15.70
-Caja de 60 cuadernos de 150 hojas c/u | 1.250.70 | 1.397.75 | 27.95
-Caja de 48 cuadernos de 200 hojas c/u | 1.337.75 | 1.471.50 | 36.75
+Caja de 400 cuadernos de 20 hojas c/u | 1.236.10 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.421.50 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 4.25 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
+Caja de 320 cuadernos de 30 hojas c/u | 1.338.85 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.539.65 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 5.75 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
+Caja de 200 cuadernos de 50 hojas c/u | 1.213.50 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.395.50 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 8.35 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
+Caja de 160 cuadernos de 70 hojas c/u | 1.226.30 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.410. 25 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 10.55 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
+Cajas de 100 cuadernos de 100 hojas c/u | 1.104.45 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.270.10 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 15.25 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
+Caja de 60 cuadernos de 150 hojas c/u | 1.176.55 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.353. 05 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 27.05 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
+Caja de 48 cuadernos de 200 hojas c/u | 1.238. 65 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.424. 45 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 35.60 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
 | | PRECIOS MAXIMOS DE VENTA
 | De productor a mayorista ¢ | De mayorista a detallista ¢ Importador o mayorista | De detallista a consumidor ¢ Detallista Paquete
 Hojas de portafolio en paquetes de 100 hojas cada uno | | |
-Rayado común N° 2R, aja de 80 paquetes | 1.497.60 | 1.647.35 | 24.70
-Rayado común N° 3R, caja de 50 paquetes | 1.431.15 | 1.574.25 | 37.75
+Rayado común N° 2R, caja de 80 paquetes | 1.269. 15 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.459. 50 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 21.90 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
+Rayado común N° 3R, caja de 50 paquetes | 1.212. 85 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.394. 75 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 33.45 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
 | | PRECIOS MAXIMOS DE VENTA
 | | De mayorista o detallista ¢ | De detallista a consumidor ¢
 Lápices de grafito: | | |

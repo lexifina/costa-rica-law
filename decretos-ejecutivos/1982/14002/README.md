@@ -13,3 +13,4 @@ Fija precios de productos de consumo básico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-11-02 | la propia norma |
+| 2 | 1983-01-21 | Decreto Ejecutivo 14234 (1983-01-21) |
