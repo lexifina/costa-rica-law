@@ -1,5 +1,2 @@
-CAPÍTULO III
-Trámite de las Autorizaciones
-Artículo 104.—Trámite de las solicitudes de autorización. La Superintendencia revisará las solicitudes y la información y documentación que debe acompañarlas. Si la solicitud o la documentación presentada estuviere incompleta, la Superintendencia apercibirá por una única vez al solicitante para que en el plazo máximo de diez días hábiles subsane las omisiones detectadas. La prevención suspenderá el plazo de la Administración para resolver. Si el solicitante no cumpliera con la prevención, la solicitud se denegará.
-El Superintendente será competente para conocer y resolver las autorizaciones aquí establecidas. No obstante, podrá delegarlas en el Intendente.
-Con excepción de las solicitudes para la autorización de ofertas públicas de adquisición por exclusión, respecto a las cuales el plazo para resolver será de diez días hábiles, el plazo para resolver las solicitudes a que se refiere el presente Título se regirá por las disposiciones contenidas en la Ley General de Administración Pública.
+Artículo 104.—Sujetos autorizados. Además de los emisores de valores autorizados para oferta pública, en relación con tales valores, los puestos de bolsa podrán realizar oferta pública de valores, siempre y cuando cumplan con los trámites de autorización establecidos en el presente Título.
+(Así MODIFICADA su numeración en las Sesiones Ordinarias No. 376-2003 y 377-2003, celebradas el 17 de junio de 2003, publicadas en La Gaceta No. 125 de 01 de julio de 2003, por las cuales el artículo 106 pasó a ser el 104.)

@@ -1,3 +1,2 @@
-TÍTULO IX
-Disposiciones finales
-Artículo 119.—Publicidad de la información. La información aportada de conformidad con lo establecido en este Reglamento será pública una vez que la emisión se encuentre debidamente inscrita en la Superintendencia General de Valores.
+Artículo 119.—Vigencia. Rige a partir de su publicación. Las normas contenidas en el artículo 49 en relación con los mecanismos de colocación de las emisiones de oferta pública en mercado primario entrarán a regir a partir de la aprobación de este Reglamento, sea a partir del martes 12 de noviembre de 2002.
+(Así MODIFICADA su numeración en las Sesiones Ordinarias No. 376-2003 y 377-2003, celebradas el 17 de junio de 2003, publicadas en La Gaceta No. 125 de 01 de julio de 2003, por las cuales el artículo 121 pasó a ser el 119.)

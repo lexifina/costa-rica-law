@@ -1,2 +1,2 @@
-Artículo 110.—Leyenda básica para valores autorizados. Toda publicidad que se realice sobre cualquier valor autorizado para oferta pública deberá contener la siguiente leyenda básica:
-"La autorización para realizar oferta pública no implica calificación sobre la bondad de la emisión ni sobre la solvencia del emisor."
+Artículo 110.—Publicidad de asesores de inversión. Toda publicidad que realicen los asesores de inversión deberá contener una leyenda de advertencia que indique que la actividad de asesoría de inversión no está sujeta a un régimen de autorización previa por parte de la Superintendencia General de Valores.
+(Así MODIFICADA su numeración en las Sesiones Ordinarias No. 376-2003 y 377-2003, celebradas el 17 de junio de 2003, publicadas en La Gaceta No. 125 de 01 de julio de 2003, por las cuales el artículo 112 pasó a ser el 110.)

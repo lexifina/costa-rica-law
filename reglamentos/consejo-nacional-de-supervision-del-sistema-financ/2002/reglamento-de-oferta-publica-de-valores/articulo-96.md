@@ -1,9 +1,9 @@
-SECCIÓN I
-Valores de deuda
-Artículo 96.—Requisitos de autorización. La autorización de desinscripción estará condicionada a la cancelación o redención por parte del emisor de los valores de deuda en circulación o, en su defecto, a la presentación de una garantía que cubra el principal e intereses.
-Para el trámite de autorización, el emisor deberá presentar la siguiente información:
-a. Solicitud formal de desinscripción con las formalidades que defina el Superintendente, la cual deberá indicar la emisión o emisiones a desinscribir y las razones que motivan la decisión de la desinscripción.
-b. Copia certificada notarialmente del acuerdo de Junta Directiva por el que se decidió la desinscripción de la emisión autorizada.
-c. Plan de redención anticipada o, en su caso, descripción de los mecanismos de protección que se utilizarán para garantizar el pago total y oportuno de los valores en circulación.
-d. Borrador del aviso en el que se comunica la desinscripción de la emisión, de conformidad con el formato que establezca el Superintendente General de Valores.
-En el caso de que los mecanismos propuestos para la redención de los valores se estimen suficientes, la Superintendencia conferirá la autorización condicionada a la presentación dentro del plazo de un mes contado a partir de su comunicación de una copia certificada de los documentos que respaldan la constitución de las garantías aprobadas para el pago de los valores de deuda pendientes de liquidar y de una copia del aviso publicado. Cumplida la condición el emisor quedará exento de las obligaciones de suministro de información periódica.
+Artículo 96.—Obligatoriedad de la presentación de una oferta pública de adquisición por exclusión. En caso de que la Superintendencia estime insuficientes las medidas propuestas por el emisor, podrá condicionar la desinscripción a la realización de una oferta pública de adquisición dirigida a todos los accionistas, que se regirá por las reglas establecidas en este Reglamento para estas ofertas.
+La resolución que ordene la realización de una oferta pública de adquisición deberá especificar los criterios técnicos que la sociedad tomará en cuenta para determinar el precio mínimo de la oferta; para lo cual podrá solicitar la valoración de las acciones a partir de uno, varios o todos los criterios siguientes:
+- valor contable de la sociedad.
+- valor de liquidación de la sociedad.
+- valor de la sociedad como negocio en marcha.
+- precio promedio ponderado de los valores durante el período que indique el Superintendente.
+- si el año anterior se hubiese formulado una Oferta pública de adquisición, la contraprestación ofrecida en esa oportunidad.
+Esta valoración deberá ser realizada por un profesional independiente de la sociedad emisora, de conformidad con las instrucciones que emita el Superintendente.
+(Así MODIFICADA su numeración en las Sesiones Ordinarias No. 376-2003 y 377-2003, celebradas el 17 de junio de 2003, publicadas en La Gaceta No. 125 de 01 de julio de 2003, por las cuales el artículo 98 pasó a ser el 96.)

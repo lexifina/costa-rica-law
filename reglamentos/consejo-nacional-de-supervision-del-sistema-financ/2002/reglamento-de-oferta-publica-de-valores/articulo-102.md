@@ -1,9 +1,6 @@
-Artículo 102.—Requisitos de autorización. La oferta pública de adquisición de valores estará sujeta a la autorización previa del Superintendente. Con tal fin, el oferente deberá presentar una solicitud ante la Superintendencia General de Valores, a la cual adjuntará la siguiente documentación, suscrita por el oferente o su representante legal:
-a. Folleto explicativo de la oferta.
-b. Documento que acredite la constitución de la garantía de la oferta.
-c. Borrador de los anuncios a publicar, de acuerdo con el formato que establezca el Superintendente.
-En el caso de que el oferente sea una persona jurídica:
-a. Certificación notarial del acuerdo de promover la oferta pública de adquisición adoptado por el órgano competente.
-b. Certificación notarial de la constitución y de las posteriores modificaciones estatutarias.
-c. Estados financieros auditados de la sociedad oferente y, en su caso, de su grupo de interés económico, correspondientes, al menos, al último ejercicio económico.
-No será necesaria la presentación de la documentación indicada en los incisos d) a f) anteriores, cuando el oferente sea una empresa emisora inscrita en el Registro Nacional de Valores e Intermediarios de la Superintendencia General de Valores.
+CAPÍTULO II
+Trámite de las Autorizaciones
+Artículo 102.—Trámite de las solicitudes de autorización. La Superintendencia revisará las solicitudes y la información y documentación que debe acompañarlas. Si la solicitud o la documentación presentada estuviere incompleta, la Superintendencia apercibirá por una única vez al solicitante para que en el plazo máximo de diez días hábiles subsane las omisiones detectadas. La prevención suspenderá el plazo de la Administración para resolver. Si el solicitante no cumpliera con la prevención, la solicitud se denegará.
+El Superintendente será competente para conocer y resolver las autorizaciones aquí establecidas. No obstante, podrá delegarlas en el Intendente.
+Con excepción de las solicitudes para la autorización de ofertas públicas de adquisición por exclusión, respecto a las cuales el plazo para resolver será de diez días hábiles, el plazo para resolver las solicitudes a que se refiere el presente Título se regirá por las disposiciones contenidas en la Ley General de Administración Pública.
+(Así MODIFICADA su numeración en las Sesiones Ordinarias No. 376-2003 y 377-2003, celebradas el 17 de junio de 2003, publicadas en La Gaceta No. 125 de 01 de julio de 2003, por las cuales el artículo 104 pasó a ser el 102.)

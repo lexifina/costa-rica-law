@@ -1,3 +1,5 @@
-TÍTULO VII
-Publicidad
-Artículo 109.—Literatura promocional. Cualquier literatura promocional del emisor deberá hacer referencia expresa a la disponibilidad del prospecto. No deberá haber divergencia entre la información contenida en la literatura promocional y la información contenida en el prospecto. Esta literatura promocional no estará sujeta a la aprobación previa de la Superintendencia General de Valores, pero en todo caso el emisor será responsable de su conformidad con la información contenida en el prospecto.
+Artículo 109.—Leyenda para valores extranjeros. Toda publicidad que se refiera a valores colocados en mercado primario en mercados extranjeros y autorizados para oferta pública únicamente para mercado secundario, deberá contener además la siguiente leyenda de advertencia:
+"Por tratarse de valores inscritos en mercado primario en mercados extranjeros, ni el emisor de los valores ni la emisión de que éstos forman parte es objeto de supervisión por la Superintendencia General de Valores, sino únicamente por el órgano regulador de su mercado de origen."
+En los casos en que estos valores únicamente se negocien en los mercados extranjeros, deberá incluirse además la siguiente leyenda:
+"La negociación de esos valores se realizará en mercados extranjeros, bajo las reglas de negociación de esos mercados."
+(Así MODIFICADA su numeración en las Sesiones Ordinarias No. 376-2003 y 377-2003, celebradas el 17 de junio de 2003, publicadas en La Gaceta No. 125 de 01 de julio de 2003, por las cuales el artículo 111 pasó a ser el 109.)

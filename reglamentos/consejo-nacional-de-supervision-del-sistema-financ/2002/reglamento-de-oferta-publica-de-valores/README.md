@@ -14,3 +14,4 @@ Reglamento de Oferta Pública de Valores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-22 | la propia norma |
+| 2 | 2003-06-17 | Reglamento 376 (2003-06-17) |
