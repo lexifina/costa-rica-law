@@ -1,0 +1,1 @@
+Artículo 11 .—Inscripción. El testimonio de constitución deberá relacionar el documento original de reserva, caso contrario sin excepción se tendrá por no operada la reserva de nombre de la entidad. El o los solicitantes cuyos nombres consten en el documento de reserva, deberán necesariamente ser constituyentes en la escritura respectiva.

@@ -1,0 +1,1 @@
+Artículo 9°—Efectos. El nombre reservado no es susceptible de traspaso o cesión parcial o total. Una vez practicada la reserva, por los medios tecnológicos de que disponga este Registro, la oficina no inscribirá acto alguno relacionado con ella. La reserva, salvo el propósito para el cual se creó, no crea ningún otro tipo de derecho registral.

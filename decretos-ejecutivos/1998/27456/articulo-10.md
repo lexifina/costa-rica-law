@@ -1,0 +1,1 @@
+Artículo 10.—Extinción. El derecho de reserva se extingue: Por el vencimiento del plazo por el que fue reservado: con la inscripción, dentro del plazo, de la escritura de constitución de la persona jurídica para la cual se reservó y; por renuncia del titular del derecho en los mismos términos en que lo solicitó.
