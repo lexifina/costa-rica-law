@@ -1,0 +1,1 @@
+Artículo 7°—Una vez que el encargado de la Unidad de Obras reciba las solicitudes respectivas, hará un análisis de las mismas, atendiendo a criterios de prioridad y procederá a su aprobación ordenando la firma del contrato respectivo.

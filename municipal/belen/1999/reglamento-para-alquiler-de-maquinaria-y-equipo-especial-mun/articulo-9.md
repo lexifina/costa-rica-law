@@ -1,0 +1,1 @@
+Artículo 9°—Una vez firmado el contrato respectivo, el arrendatario deberá cancelar en la caja municipal los servicios por alquiler de maquinaria o equipo solicitado. No se podran iniciar los trabajos si previamente no consta el pago respectivo.

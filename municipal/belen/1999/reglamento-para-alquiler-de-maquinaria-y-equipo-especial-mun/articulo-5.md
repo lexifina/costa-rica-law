@@ -1,0 +1,1 @@
+Artículo 5°—En el alquiler de su equipo, la Municipalidad dará preferencia a las organizaciones comunales, o a las asociaciones de desarrollo comunal, las cuales solo aportarán el costo del combustible y las horas extras del personal municipal encargado del manejo del equipo o maquinaria alquilado.

@@ -1,0 +1,1 @@
+Artículo 4°—Para la realización del informe de costos al que se refiere el artículo anterior, la Unidad Administrativa deberá considerar las tarifas que tenga establecidas el Ministerio de Obras Públicas y Transportes para alquiler de equipo o maquinaria de similares características, o en su defecto, el costo por una hora que cobra la empresa privada.
