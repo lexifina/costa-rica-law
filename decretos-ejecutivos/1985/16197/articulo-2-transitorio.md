@@ -1,0 +1,1 @@
+Transitorio II.-A aquellas personas que a la fecha de la publicación de este Reglamento hubiesen presentado solicitud para acogerse a los beneficios de la Ley N° 4812 del 28 de julio de 1971, se aplicará lo aquí previsto únicamente en lo que les beneficie.

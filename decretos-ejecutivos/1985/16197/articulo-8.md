@@ -1,0 +1,1 @@
+Artículo 8°-Las personas amparadas a las categorías de residencia aquí estipuladas no podrán ocuparse en labores remuneradas. No incurren en tal prohibición quienes administren o dirijan sus propias inversiones sin remuneración salarial, ni aquellos que presten sus servicios a solicitud de instituciones oficiales.

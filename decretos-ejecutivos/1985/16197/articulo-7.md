@@ -1,0 +1,1 @@
+Artículo 7°-Para dar trámite a la cancelación o a la solicitud de renuncia a las categorías de pensionado o rentista, el ICT deberá comprobar a través de constancia emitida por la Dirección General de Hacienda; que el interesado se encuentra a derecho con respecto a las obligaciones que se hayan derivado del otorgamiento de las exoneraciones tributarias.

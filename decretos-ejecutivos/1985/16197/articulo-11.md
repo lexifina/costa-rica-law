@@ -1,0 +1,3 @@
+Artículo 11.-Todos los bienes exonerados como menaje de casa, no podrán ser enajenados sin previo pago de los impuestos, antes de transcurridos tres años contados a partir de la fecha de aceptación de la póliza de desalmacenajé.
+La anterior prohibición no surtirá efectos cuando la transferencia se haga en favor de personas físicas o jurídicas que gocen de beneficios fiscales similares siempre y cuando medie autorización de la Dirección General de Hacienda.
+El residente podrá hacer uso de esta franquicia en forma parcial dentro de un período de doce meses contados a partir de la fecha de aceptación de la póliza de la primera importación. En casos muy calificados, de fuerza mayor debidamente comprobada, la Dirección General de Hacienda podrá conceder prórrogas.

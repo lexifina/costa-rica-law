@@ -1,0 +1,1 @@
+Artículo 14.-El vehículo importado al amparo del artículo 4° de la Ley so!o podrá ser usado por el beneficiario, su cónyuge, hijos y demás dependientes todos debidamente acreditados ante el ICT, por otros residentes pensionados o rentistas, o bien, por terceros previamente autorizados por la Dirección General de Hacienda.
