@@ -1,0 +1,1 @@
+Art. 3°-Todos los preceptores de escuelas primarias quedan en la obligación de concurrir puntualmente á las conferencias que sobre instrucción y educación se establecerán en las capitales de provincia y en la comarca de Puntarenas.
