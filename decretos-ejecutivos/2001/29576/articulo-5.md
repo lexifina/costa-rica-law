@@ -1,0 +1,4 @@
+CAPÍTULO III
+Legitimación para negociar
+Artículo 5º—Se encuentran legitimados para negociar y suscribir convenciones colectivas, conforme con esta reglamentación, los sindicatos que demuestren tener la mayor cantidad de afiliados en cada institución, empresa o dependencia de que se trate, de conformidad con lo dispuesto en el artículo 56 del Código de Trabajo.
+Si no hubiera acuerdo entre ellos, para negociar en forma conjunta, la convención colectiva se celebrará con el sindicato que tenga la mayor cantidad de afiliados. No obstante, en el caso de los sindicatos gremiales o de oficio, cuando no hubiere acuerdo de parte de los mismos para negociar en conjunto con otras organizaciones, cada uno podrá solicitar que se celebre una negociación independiente con él, en cuyo caso la convención colectiva solamente podrá cubrir a las personas de ese gremio u oficio.

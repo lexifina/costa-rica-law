@@ -1,0 +1,1 @@
+Artículo 10.—Además de las actas individuales de cada sesión, al final del proceso negociador se levantará un acta de cierre, donde se recogerá el texto completo de las cláusulas que fueron negociadas y donde se indicará cuáles cláusulas del proyecto fueron desechadas o no pudieron negociarse por falta de acuerdo acerca de ellas.
