@@ -13,3 +13,4 @@ Reglamento al artículo 18 del Arancel de Aduanas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1955-07-10 | la propia norma |
+| 2 | 1955-07-10 | Decreto Ejecutivo 6 (1958-09-30) |
