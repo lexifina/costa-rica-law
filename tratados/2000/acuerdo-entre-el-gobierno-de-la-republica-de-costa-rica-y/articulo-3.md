@@ -1,0 +1,4 @@
+Artículo 3
+1°- Cuando la nacionalidad es presumida, con base en los elementos mencionados en el artículo 2, párrafo 2, las autoridades consulares de la Parte contratante requerida extienden en ese momento un salvoconducto que permita el alejamiento de la persona interesada.
+2°- En caso de duda sobre los elementos que fundamentan la presunción de la nacionalidad o en caso de ausencia de estos elementos, las autoridades consulares de la Parte contratante requerida proceden a la audición del interesado, en el plazo de tres días a partir de la solicitud de readmisión. Esta audición es organizada, en el menor plazo, por la Parte contratante actora en acuerdo con la autoridad consular concernida.
+Cuando después de esta audición, queda establecido que la persona interesada es de la nacionalidad de la Parte contratante requerida, el salvoconducto es extendido de inmediato por la autoridad consular.
