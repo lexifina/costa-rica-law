@@ -17,6 +17,11 @@ Artículo 5º—La Comisión Intersectorial para la Inocuidad de Alimentos estar
 - Un representante de la Cámara de Exportadores (CADEXCO).
 - Un representante de la Cámara Costarricense de la Industria Alimentaria (CACIA).
 - Un representante de la Cámara Nacional de Exportadoras de Productos Pesqueros.
-(Así adicionado el último inciso por el artículo 1del Decreto Ejecutivo Nº 30743 de 3 de Octubre de 2002)
+(Así adicionado el aparte anterior por el artículo 1°del Decreto Ejecutivo Nº 30743 de 3 de Octubre de 2002).
+-Un representante del Instituto Costarricense de Pesca y Acuicultura (INCOPESCA).
+- Un representante del Instituto Nacional de Aprendizaje (INA).
+- Un representante del Instituto Costarricense de Investigación Enseñanza en Nutrición y Salud (INCIENSA).
+- Un representante de la Caja Costarricense de Seguro Social (CCSS).
+(Así ampliado por el artículo 1° del Decreto Ejecutivo N° 31160 de 12 de febrero de 2003)
 Serán miembros honorarios de la CIIA, representantes de los siguientes organismos internacionales: Organización de la Naciones Unidas para la Agricultura y la Alimentación (FAO), Organización Panamericana de la Salud-Organización Mundial de la Salud (OPS-OMS), Instituto Interamericano de Cooperación para la Agricultura (IICA), Organismo Internacional Regional de Sanidad Agropecuaria (OIRSA).
 Un representante de cualquier otro organismo o institución que el Consejo Ministerial para la Inocuidad de Alimentos determine y cuyas acciones sean afines a las anteriores.
