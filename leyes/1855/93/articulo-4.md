@@ -1,0 +1,2 @@
+Art 4°.- Para desalmacenar alguna partida de licores extranjeros, sea cual fuere el objeto, se observará lo prevenido para las especies estancadas por el art 24 del cap. 16 de la citada Ordenanza de Aduanas, más si se pidiere el desalmacenaje de los licores para exportarlos, se cumplirá puntualmente con las prevenciones de los artículos 25 y siguientes del referido capítulo.
+Dado en San José, a los diecinueve días del mes de octubre de mil ochocientos cincuenta y cinco.

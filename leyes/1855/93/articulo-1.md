@@ -1,0 +1,5 @@
+DECRETO XCIII
+Sobre la importación y reexportación licores e extranjeros (1)
+“ Juan Rafael Mora, Presidente de la República de Costa Rica, con la mira de esclarecer algunas dudas que se han presentado sobre la verdadera inteligencia de los artículos 2° y 3° del decreto n° 2 de 24 de julio último, y deseando por otra parte favorecer al comercio facilitándose en cuanto sea posible sus operaciones, y concediéndole plazo para satisfacer los derechos impuestos por el decreto citado, decreto:
+Art 1°.- Todos los licores extranjeros que salgan del depósito para ser exportados fuera de la República, pagarán al contado, al tiempo de desalmacenarse, únicamente el impuestos de dos reales por quintal que señala el art. 1 cap 16 de la Ordenanza de Aduanas decretada el 31 de agosto del año próximo pasado.
+(1) Ver la resolución de 28 de enero de 1856 la de 22 de octubre del mismo año, el decreto de 10 de febrero de 1860, las disposiciones contenidas desde el art 23 al 32 del decreto de 31 de diciembre de 1860, y el de 8 de abril de 1861.
