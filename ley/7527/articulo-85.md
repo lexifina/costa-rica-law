@@ -1,5 +1,4 @@
-ARTICULO 85.- Muerte del arrendatario de vivienda.
-En caso de muerte del titular en un arrendamiento para vivienda, las siguientes personas pueden subrogarse en el contrato, de pleno derecho, sin que precise trámite sucesorio, en el orden de prelación que aquí aparecen:
+ARTICULO 85.- Muerte del arrendatario de vivienda. En caso de muerte del titular en un arrendamiento para vivienda, las siguientes personas pueden subrogarse en el contrato, de pleno derecho, sin que precise trámite sucesorio, en el orden de prelación que aquí aparecen:
 a) El cónyuge del arrendatario si convive con él.
 b) La persona que haya convivido con el arrendatario, como compañera o compañero, durante por lo menos los dos años inmediatamente anteriores al tiempo del fallecimiento o, si tienen descendencia común, que conviva con él al ocurrir el deceso.
 c) Los descendientes del arrendatario que, en el momento de su fallecimiento, estén sujetos a su patria potestad o hayan convivido habitualmente con él en la vivienda arrendada.
