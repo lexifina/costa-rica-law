@@ -1,0 +1,1 @@
+Art 2° Se hace así mismo extensiva la recompensa que asigna el párrafo 2° del citado artículo a las viudas e hijos menores de los individuos de la clase de tropa, determinados en el artículo anterior, que fallezcan a consecuencia de herida casual, hallándose en servicio de guarnición y por razón de él, en el mismo término y en igual condiciones que las fijadas en la ley referida.
