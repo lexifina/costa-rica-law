@@ -1,0 +1,1 @@
+Artículo 11.—Cuando se haya otorgado judicialmente la representación legal de una persona menor de edad, se deberá presentar certificación literal de nacimiento emitida por el Registro Civil, en la que se indique al margen el número de resolución judicial en que se otorgó la misma, así como los requisitos establecidos en al artículo 6 de esta resolución.

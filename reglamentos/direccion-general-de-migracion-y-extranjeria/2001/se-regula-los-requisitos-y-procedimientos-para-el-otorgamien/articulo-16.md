@@ -1,0 +1,1 @@
+Articulo 16.—Todo permiso de salida de personas menores de edad, permanente o temporal que se expida, deberá registrarse en un sistema automatizado que al efecto levantará la Dirección General de Migración y Extranjería, que contendrá el nombre del menor, número de expediente físico, tipo de permiso y fecha de expedición.

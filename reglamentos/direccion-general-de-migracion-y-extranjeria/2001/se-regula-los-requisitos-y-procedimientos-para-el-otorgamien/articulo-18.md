@@ -1,0 +1,3 @@
+CAPÍTULO QUINTO
+De la Revocatoria
+Artículo 18.—Uno o ambos padres o los tutores o depositarios judiciales de las personas menores de edad, podrán revocar su autorización con base en la cual se otorgó el permiso de salida, sea éste temporal o permanente, mediante un escrito que se deberá suscribir ante el funcionario de la Dirección General de Migración y Extranjería competente. En caso de que no se gestione personalmente, la firma del interesado deberá ser debidamente autenticada por un profesional en derecho. Además se deberá aportar original y copia de su cédula de identidad, de residencia, o en caso de extranjeros que permanezcan en el país bajo la categoría migratoria de No Residentes, pasaporte vigente.

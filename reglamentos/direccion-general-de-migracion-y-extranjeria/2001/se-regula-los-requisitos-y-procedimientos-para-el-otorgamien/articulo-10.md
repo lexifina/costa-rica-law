@@ -1,0 +1,1 @@
+Artículo 10.—Cuando se trate de un menor cuyo padre lo ha reconocido pero no ejerce la patria potestad, la madre que pretende un permiso de salida del país del menor deberá presentar la certificación de nacimiento literal expedida por el Registro Civil en donde así se indique, además de los requisitos que determina el artículo 6 de la presente resolución.

@@ -1,0 +1,1 @@
+Artículo 15.—Cuando el menor de edad requiera salir del país, el funcionario que realiza el control migratorio deberá revisar que el permiso de salida no haya sido revocado, conforme a lo dispuesto en el capítulo quinto del presente título.

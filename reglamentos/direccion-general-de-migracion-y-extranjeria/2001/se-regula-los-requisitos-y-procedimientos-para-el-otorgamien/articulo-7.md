@@ -1,0 +1,1 @@
+Artículo 7°—Cuando uno de los padres autorice al otro progenitor para que realice los trámites correspondientes al permiso de salida de un menor de edad, su firma en el formulario a que hace referencia el inciso e) del articulo anterior, deberá ser debidamente autenticada por un profesional en derecho.
