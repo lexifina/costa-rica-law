@@ -1,0 +1,4 @@
+Artículo 2º—Modifíquese el artículo 3°, en lo atinente a la Comisión Asesora de Cruceros Turísticos, únicamente en su primer y segundo párrafo, para que se lean de la siguiente forma:
+(...) De la Comisión Asesora de Cruceros Turísticos:
+Créase una Comisión Asesora de Cruceros Turísticos, presidida por el Director Ejecutivo del Consejo Portuario Nacional e integrada por el Ministro de la Cartera de Turismo, el Presidente Ejecutivo de JAPDEVA, el Presidente Ejecutivo de INCOP, un representante de las Agencias Navieras que operan cruceros, un representante de Operadores de Tours y los representantes de cada una de las Cámaras de Turismo que operan en los puertos.
+En el eventual caso de que el Ministro de la Cartera de Turismo, los Presidentes Ejecutivos de JAPDEVA e INCOP, no puedan asistir a las sesiones que se programen, delegarán su participación en sus respectivos representantes, debidamente acreditados ante la Comisión.(...).
