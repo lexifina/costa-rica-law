@@ -1,0 +1,1 @@
+Art. 2°. -Serán de contrabando los licores á que se refiere el presente decreto, que contengan mayor número de grados de fortaleza; y los introductores quedarán sujetos á las penas correspondientes, considerándose tales artículos como de monopolio fiscal.
