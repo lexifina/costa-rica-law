@@ -1,0 +1,2 @@
+Artículo 9º—Presentación de informe de inventario. Dentro de los primeros quince días del mes de enero de cada año, el responsable institucional de bienes del Ministerio o Institución Adscrita remitirá a la Dirección General de Administración de Bienes y Contratación Administrativa el inventario general de los bienes nacionales que se encuentran bajo su administración.
+El informe de inventario debe incluir y coincidir con la información contenida en el sistema informático de administración de bienes.

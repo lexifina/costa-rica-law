@@ -1,0 +1,1 @@
+Artículo 5º—Inscripción de bienes. Las Oficinas de Bienes Institucionales realizarán las gestiones necesarias para inscribir los bienes que por su naturaleza requieran ser inscritos en los respectivos registros públicos existentes.
