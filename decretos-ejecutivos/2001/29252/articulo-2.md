@@ -1,0 +1,1 @@
+Artículo 2º—Se corrige la nomenclatura consignada a la Dirección de Salud Animal, en el Decreto Ejecutivo Nº 26431-MAG, para que se lea correctamente: "De la Dirección de Salud Animal y Producción Pecuaria".
