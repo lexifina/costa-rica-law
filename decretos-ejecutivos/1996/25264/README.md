@@ -13,3 +13,4 @@ Reglamento del Servicio EMS de Correos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-11 | la propia norma |
+| 2 | 1996-07-11 | Decreto Ejecutivo 25578 (1996-10-22) |
