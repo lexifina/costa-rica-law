@@ -1,4 +1,4 @@
-Artículo 11.- Entre los programas de estímulo, el IMAS establecerá
+ARTICULO 11.- Entre los programas de estímulo, el IMAS establecerá
 programas de capacitación laboral en las siguientes ramas educativas:
 a) Educación primaria para adultos;
 b) Educación secundaria para jóvenes y adultos;

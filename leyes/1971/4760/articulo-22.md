@@ -1,3 +1,2 @@
-Artículo 22.- El Consejo Directivo designará cada año un
-Vicepresidente, quien sustituirá a su Presidente durante las ausencias
-temporales.
+ARTICULO 22.- El Consejo Directivo designará cada año un Vicepresidente, quien sustituirá a su Presidente durante las ausencias temporales.
+(NOTA: Véase el artículo 6, párrafo segundo, de la ley No.5507 de 14 de abril de 1974, la cual señala que en las instituciones que allí se indican – incluido el Instituto Mixto de Ayuda Social - las ausencias temporales del Presidente Ejecutivo, serán suplidas por un Vicepresidente, que tendrá las mismas facultades, y serán designados por la Junta Directiva de la respectiva institución)

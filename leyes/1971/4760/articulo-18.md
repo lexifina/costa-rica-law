@@ -1,15 +1,31 @@
 CAPITULO V
 De la Dirección y Administración
-Artículo 18.- La Dirección del IMAS estará a cargo de un Consejo
-directivo integrado por:
-a) El Presidente de la República, o el delegado que éste designe;
-b) EL Ministro de Trabajo y Bienestar Social o su delegado;
-c) El Ministro de Salubridad Pública o su delegado;
-d) El Ministro de Cultura, Juventud y Deportes o su delegado; y
-e) Tres representantes de los empresarios particulares o sus
-respectivos suplentes.
-Los representantes de los empresarios y sus suplentes durarán en sus
-cargos cuatro años y podrán ser reelectos en forma indefinida. Dichos
-representantes serán escogidos por el Consejo de Gobierno, de nombres
-sugeridos por las diferentes Cámaras o Asociaciones de empresarios
-privados del país.
+ARTICULO 18.- La Dirección del IMAS estará a cargo de un Consejo
+Directivo integrado por:
+a) Un Presidente Ejecutivo designado por el Consejo de Gobierno,
+cuya gestión se regirá por las siguientes normas:
+1) Será el funcionario de mayor jerarquía para efectos de
+gobierno de la institución y le corresponderá fundamentalmente
+velar porque las decisiones tomadas por la Junta se ejecuten,
+así como coordinar la acción de la entidad cuya Junta preside,
+con la de las demás instituciones del Estado. Asimismo,
+asumirá las demás funciones que por ley le están reservadas al
+Presidente de la Junta Directiva, así como las otras que le
+asigne la propia Junta;
+2) Será un funcionario de tiempo completo y de dedicación
+exclusiva; consecuentemente, no podrá desempeñar ningún otro
+cargo público, ni ejercer profesiones liberales;
+3) Podrá ser removido libremente por el Consejo de Gobierno, en
+cuyo caso tendrá derecho a la indemnización laboral que le
+corresponda por el tiempo servido en el cargo, de acuerdo con
+las disposiciones de los artículos 28 y 29 del Código de
+Trabajo; y
+b) Seis personas de amplios conocimientos o de reconocida
+experiencia en el campo de actividades de la correspondiente
+institución, o con título profesional reconocido por el Estado,
+de nombramiento del Consejo de Gobierno.
+(Así reformado por el artículo 5º de la Ley Nº 5507 de 19 de abril
+de 1974)
+(NOTA: Complementado por el artículo 3 de la Ley Nº 5507 ibídem,
+que tácitamente lo somete al régimen establecido por el 5º de la Ley Nº
+4646 de 20 de octubre de 1970)

@@ -1,2 +1,2 @@
-Artículo 25.- El auditor dependerá en forma exclusiva del Consejo
-Directivo y deberá poseer el título de Contador Público Autorizado.
+ARTICULO 25.- El auditor dependerá en forma exclusiva del Consejo Directivo y deberá poseer el título de Contador Público Autorizado.
+(NOTA: Véase el artículo 7 de la ley No.4646 de 20 de octubre de 1970, la cual señala que no podrá ser nombrado auditor de las instituciones autónomas o semiautónomas allí mencionadas quien hubiere ocupado un cargo como miembro de la Junta Directiva de la respectiva institución durante todos o parte de los dos años anteriores)

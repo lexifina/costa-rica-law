@@ -1,9 +1,4 @@
-Artículo 23.- La dirección Ejecutiva, estará a cargo de un Director
-Ejecutivo, será el órgano de administración del IMAS y en consecuencia
-corresponderá a dicho Director:
-a) Formular el Plan Nacional de lucha contra la pobreza extrema;
-b) Organizar, coordinar y controlar todo lo relacionado con el IMAS; y
-c) Ejercer la representación legal del Instituto. Su personería se
-probará con la simple publicación de su nombramiento en el Diario
-Oficial y cuando sea necesario con el acta respectiva del Consejo
-Directivo.
+ARTICULO 23.- La Dirección Ejecutiva, estará a cargo de un Director Ejecutivo, será el órgano de administración del IMAS y en consecuencia corresponderá a dicho Director:
+a) Formular el Plan Nacional de lucha contra la pobreza extrema; b) Organizar, coordinar y controlar todo lo relacionado con el IMAS; y
+c) Ejercer la representación legal del Instituto. Su personería se probará con la simple publicación de su nombramiento en el Diario Oficial y cuando sea necesario con el acta respectiva del Consejo Directivo.
+(NOTA: De acuerdo con el artículo 28 del Decreto Ejecutivo N° 26940-MIVAH-MTSS de 28 de abril de 1998, según reforma del Decreto No.34196 de 2 de noviembre de 2007, las competencias señaladas en este artículo para el Director Ejecutivo, estarán a cargo de un Gerente General, término con el cual se le designará en el futuro. Allí mismo se indican los requisitos personales y profesionales que deberán cumplir).
