@@ -1,0 +1,7 @@
+ARTICULO 19
+El Director General de la Oficina Internacional del Trabajo
+comunicará al Secretario General de las Naciones Unidas, a los efectos
+del registro y de conformidad con el artículo 102 de la cArta de las
+naciones Unidas, una información completa sobre todas las ratificaciones,
+declaraciones y actas de denuncia que haya registrado de acuerdo con los
+artículos precedentes.
