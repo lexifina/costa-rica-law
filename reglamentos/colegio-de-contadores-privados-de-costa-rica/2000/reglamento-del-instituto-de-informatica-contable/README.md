@@ -14,3 +14,4 @@ Reglamento del Instituto de Informática Contable
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-30 | la propia norma |
+| 2 | 2001-01-28 | Reglamento 112 (2001-01-28) |
