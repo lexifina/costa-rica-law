@@ -1,0 +1,1 @@
+Art 2° Como Auditores de Guerra conocerán dichos Jueces de todos los asuntos civiles y criminales por delito comunes, que ocurran en las respectivas Provincias o Comarcas correspondientes al fuero de guerra y de todos los demás negocios que las leyes les sometan en este carácter.
