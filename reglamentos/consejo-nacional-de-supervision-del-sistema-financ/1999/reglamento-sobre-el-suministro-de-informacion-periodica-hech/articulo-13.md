@@ -1,0 +1,2 @@
+Artículo 13.—Potestad para comunicar hechos relevantes no comunicados por el emisor o sujeto fiscalizado
+El Superintendente podrá ordenar al emisor o al sujeto fiscalizado la comunicación y divulgación de hechos que la Superintendencia considere relevantes, a pesar de que éste no los haya comunicado como tales. En el caso de que éste se negare a realizar la comunicación y divulgación, la Superintendencia podrá hacerlo directamente por cuenta del sujeto obligado.

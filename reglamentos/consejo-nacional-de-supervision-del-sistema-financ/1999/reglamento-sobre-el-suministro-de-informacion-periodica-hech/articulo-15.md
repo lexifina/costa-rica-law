@@ -1,0 +1,2 @@
+Artículo 15.—Suspensión de negociación de valores para efectos de la comunicación de hechos relevantes
+El Superintendente General de Valores podrá acordar, por resolución motivada, la suspensión de negociación de valores de un emisor, con el fin de que la información relevante se distribuya en forma simétrica y perentoria en el mercado. En tales casos deberá procurar que el plazo de la suspensión sea el estrictamente necesario para el cumplimiento del objetivo señalado.

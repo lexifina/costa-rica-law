@@ -1,0 +1,2 @@
+Artículo 11.—Plazo de comunicación
+Los emisores y sujetos fiscalizados deberán comunicar a la Superintendencia General de Valores los hechos relevantes que los afecten inmediatamente después de que han tenido conocimiento de ellos sin que ese plazo pueda exceder de un día hábil; sin perjuicio de la fiscalización de la Superintendencia a efectos de velar por que dicho plazo no sea utilizado en perjuicio de los inversionistas.
