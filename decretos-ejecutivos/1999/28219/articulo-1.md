@@ -6,12 +6,15 @@ Artículo 1°—Aprobar el siguiente reglamento técnico. RTCR 67:1999. Papa
 1. OBJETIVO Y ÁMBITO DE APLICACIÓN
 Este reglamento técnico tiene por objeto definir las características de calidad de la papa para consumo local tanto nacional como importada, para ser suministradas al consumidor en estado fresco, incluyéndose las destinadas a la transformación industrial.
 2. DEFINICIONES
-2.1 Crecimiento secundario (muñequeo): una alteración fisiológica en el crecimiento normal del tubérculo por efecto de condiciones adversas climáticas de humedad y temperatura agro adversas.
+2.1 Brotación: Se considerarán como tubérculos brotados aquellos que finalizaron el periodo de latencia y presentan algún desarrollo de las yemas y que sus características físico-químicas están en un proceso de alteración.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el Decreto Ejecutivo Nº 31258 del 05 de mayo de 2003, publicado en La Gaceta No. 134 del 14 de julio de 2003.)
 2.2 Empaque al consumidor: empaque que se ofrece al consumidor final, incluido el preempacado y el empacado.
 2.3 Insectos: Se considera Insectos Plaga, los de las especies Epitrix spp (pulguilla de la papa), Agrioles spp (gusanos alambres), Phyllophaga spp (gusanos aradores)
 2.4 Papa: es el tubérculo de las variedades (cultivares) cultivadas de Solanum tuberosum. (inciso arancelario 0701.90.00 del Sistema Arancelario Centroamericano).
 2.5 Papa cele: es la papa cosechada antes de llegar a su estado de madurez fisiológica, se reconoce porque su piel se desprende fácilmente.
-2.6 Costra negra: -Son los tubérculos afectados por el hongo Rizoctonia solani.
+2.6 Costra negra: Son los tubérculos afectados por el hongo Rizoctonia solani.
+2.7 Porcentaje máximo en defectos permitidos: Es el máximo de defectos permitidos en la muestra global, que es la muestra representativa del lote.
+(Así AMPLIADO por el Decreto Ejecutivo Nº 31258 del 05 de mayo de 2003, publicado en La Gaceta Nº 134 del 14 de julio de 2003)
 3. DISPOSICIONES RELATIVAS A LA CALIDAD
 3.1 Factores de calidad
 3.1.1 Brotación. Se admitirán tubérculos con un uno por ciento (1%) de brotación en el total del lote muestreado.
@@ -52,25 +55,26 @@ Grande | Mayor de 100
 5.1 Tolerancias de calidad.
 5.1.1 Primera: La tolerancia máxima permitida para cada factor está definida en la Tabla 1 Limites máximos de defectos. El porcentaje máximo acumulado (suma de tolerancias individuales para cada factor) no debe exceder de un nueve por ciento (9%).
 5.1.2 Segunda: La tolerancia máxima permitida para cada factor está definida en la Tabla 1 Limites máximos de defectos ,. El porcentaje máximo acumulado (suma de tolerancias individuales para cada factor) no debe exceder de un dieciséis por ciento (16%).
-5.1.3 Tercera: La tolerancia máxima permitida para cada factor está definida en la Tabla 1 Límites máximos de defectos. El porcentaje máximo acumulado (suma de tolerancias individuales para cada factor) no debe exceder de un veintidós por ciento (22%).
-TABLA 1. Límites máximos de defectos
+5.1.3 Tercera ...
+Tabla 1. Límites máximos de defectos permitidos
 Defectos | Primera | Segunda | Tercera
-% máximo en número
+% máximo tolerado por defecto por unidad
 Brotación | 1 | 1 | 1
 Rajadura | 2 | 3 | 4
-Mecánico (cortes o heridas) | 2 | 3 | 4
+Mecánico | 2 | 3 | 4
 Enverdecimiento | 1 | 1 | 1
 Crecimiento secundario | 2 | 4 | 5
-Streptomyces scabies (sama) | 2 | 3 | 5
+Streptomyces scabies (sarna) | 2 | 3 | 5
 Spongospora subterránea (roña) | 1 | 2 | 3
-Rhizoctonia solani (costra negra) | 2 | 4 |
-Phthorimaea operculella y Tecia solanivora (polilla) | 1 | 3 | 4
+Rhizoctonia solani (costra negra) | 2 | 4 | 5
+Phthorimaea operculella y Teciasolanivora (polilla) | 1 | 3 | 4
 Insecto | 1 | 3 | 4
 Podredumbre | 1 | 1 | 2
 Corazón hueco, negro o vidriosidad | 1 | 2 | 2
-Cele | 9 | 16 | 22
-PORCENTAJE MÁXIMO ACUMULADO | 9 | 16 | 22
+Cele | 1 | 1 | 1
+Porcentaje máximo en defectos permitidos | 9 | 16 | 22
 NOTA: Los porcentajes están referidos al total del lote muestreado.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el Decreto Ejecutivo Nº31258 del 05 de mayo de 2003, publicado en La Gaceta Nº 134 del 14 de julio de 2003.)
 5.2 Tolerancias del contenido neto para producto preempacado.
 5.2.1 Debe cumplir lo estipulado en el reglamento NCR 148:1993
 Metrología. Contenido neto de preempacados y sus reformas.

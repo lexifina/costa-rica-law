@@ -14,3 +14,4 @@ Reglamento Técnico. RTCR 67:1999. Papa.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-12-15 | la propia norma |
+| 2 | 2003-05-05 | Decreto Ejecutivo 31258 (2003-05-05) |
