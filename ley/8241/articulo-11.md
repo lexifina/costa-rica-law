@@ -1,0 +1,2 @@
+Artículo 11.—Revisión y recalificación. Toda declaración jurada municipal quedará sujeta a ser revisada. Si se comprueba que los datos suministrados son incorrectos, circunstancia que determina una variación en el tributo, se procederá a la recalificación correspondiente.
+Asimismo, la declaración jurada municipal que deberán presentar los patentados ante la Municipalidad, quedará sujeta a las disposiciones especiales comprendidas en el título III, Hechos Ilícitos Tributarios, del Código de Normas y Procedimientos Tributarios, así como en el artículo 311 del Código Penal.
