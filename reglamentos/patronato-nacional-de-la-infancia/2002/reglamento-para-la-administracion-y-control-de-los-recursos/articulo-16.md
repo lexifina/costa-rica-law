@@ -1,0 +1,1 @@
+Artículo 16.—Los viáticos de los miembros de las juntas cantonales serán autorizados por el presidente de la Junta de Protección respectiva y deberán contar con el visto bueno del Coordinador Regional. Para su pago se utilizarán los recursos asignados a los Fondos de Trabajo.

@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Programas o proyectos especiales
+Artículo 21.—Cuando se trate de financiar proyectos a beneficio de la niñez y la adolescencia de diversa índole con recursos del Fondo de la Niñez y la Adolescencia, el Patronato y otras organizaciones ejecutoras, sean estas públicas o privadas, personas jurídicas o naturales, se deberá observar a plenitud las exigencias contenidas en la Ley Nº 7972 del 22 de diciembre de 1999 y particularmente en los artículos 16, 17 y 18, y en el caso específico de que los ejecutores de proyectos sean entidades privadas, estas deberán:
+No tener fines de lucro, tener personería jurídica vigente, haber sido declaradas de bienestar social por el Instituto Mixto de Ayuda Social, calificadas por la Contraloría General de la República previamente como entidades idóneas para administrar fondos públicos, y en todo caso someterse a lo dispuesto por los artículos 5º, 6º y 7º de la Ley Orgánica de la Contraloría General de la República, Nº 7428 del 7 de setiembre de 1994.
+Cuando sea pertinente, los convenios correspondientes deberán contar con el respectivo refrendo contralor, sin el cual toda ejecución es nula.

@@ -1,0 +1,2 @@
+Artículo 11.—Para la ejecución de proyectos donde medie la contratación de servicios técnicos o profesionales con personas físicas o jurídicas se deberá suscribir un documento denominado Detalle de Compromisos entre las Partes para la Realización del Proyecto, donde se especifiquen los productos contratados. En este documento se deberá hacer referencia a la orden de compra y/o a la solicitud de suministros que respalda la contratación.
+El documento en mención deberá ser suscrito por el oferente y por el o la presidenta de la Junta de Protección respectiva.

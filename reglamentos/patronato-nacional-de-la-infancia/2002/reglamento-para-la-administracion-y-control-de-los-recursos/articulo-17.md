@@ -1,0 +1,1 @@
+Artículo 17.—La Junta de Protección u organización de base comunitaria, cada seis meses, deberá presentar a la Junta Directiva un informe de cumplimiento de metas y objetivos de los proyectos en ejecución y un informe final a fin de año. Esto en atención al acuerdo de Junta Directiva 2000-071, artículo 1º, aparte 1.

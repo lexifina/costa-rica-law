@@ -1,0 +1,5 @@
+Artículo 9º—Recibido los documentos, la Proveeduría Institucional tendrá un plazo máximo de ocho (8) días para elaborar la orden de compra, y ocho (8) días hábiles para elaborar la orden de pago y ponerla en trámite ante la Sección de Tesorería.
+La Sección de Control de Presupuesto, codificará la orden de compra en un plazo máximo de tres (3) días hábiles.
+Aprobada la orden de compra, el Área de Prevención y Promoción comunicará a la Junta de Protección u organización de base comunitaria interesada, la autorización de inicio del proyecto.
+Una vez recibida la orden de pago en la Sección de Tesorería, la jefatura de esta sección será responsable de que se confeccione el cheque y se encuentre disponible en un plazo no mayor de 8 días hábiles. La Tesorería notificará al Coordinador del Programa Fondo de la Niñez y la Adolescencia en el momento de que el pago esté disponible para que se avise a la organización interesada.
+En caso de incumplimiento injustificado de estos plazos, se considerará como falta del funcionario a quien se atribuye la responsabilidad.

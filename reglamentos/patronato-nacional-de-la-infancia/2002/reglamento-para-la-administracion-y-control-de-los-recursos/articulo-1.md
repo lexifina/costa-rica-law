@@ -1,0 +1,4 @@
+CAPÍTULO I
+Objeto
+Artículo 1.—El presente Reglamento ordena y sistematiza el mejor uso y control de los recursos provenientes del Fondo para la Niñez y la Adolescencia, en el desarrollo de programas y proyectos en beneficio de la niñez y la adolescencia en los términos de lo dispuesto en el artículo 184 del Código de la Niñez y la Adolescencia, por parte de las Juntas de Protección y de otras organizaciones de base comunitaria que soliciten dichos recursos, así como de proyectos específicos indicados en el Artículo 14 letra c) de la Ley Nº 7972 del 22 de diciembre de 1999, los cuales serán incorporados al Fondo mediante los mecanismos presupuestarios correspondientes.
+Cualquiera que sea el origen de los recursos que constituyen el Fondo, se manejarán en una cuenta especial y no podrán ser utilizados para gastos administrativos ni operativos propios del Patronato.
