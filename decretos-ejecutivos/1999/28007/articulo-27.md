@@ -1,0 +1,1 @@
+Artículo 27.—La omisión de una marca a cualquier hora de entrada y salida, hará presumir la inasistencia a la correspondiente fracción de jornada, con las consecuencias que de acuerdo con el presente Reglamento ello acarrea, excepto si el servidor lo justifica dentro el siguiente día hábil a la fecha en que se dio la omisión y si el jefe inmediato lo acepta.

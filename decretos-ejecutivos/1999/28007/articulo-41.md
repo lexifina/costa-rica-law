@@ -1,0 +1,1 @@
+Artículo 41.—Únicamente se podrán disfrutar vacaciones proporcionales cuando al no cumplir las cincuenta semanas de servicio continuo, deviene la terminación de la relación de servicio, o ante la necesidad de vacaciones colectivas que sean decretadas.

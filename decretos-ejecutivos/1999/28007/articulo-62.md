@@ -1,0 +1,1 @@
+Artículo 62.—La persona ofendida podrá oponer en consideración del Oficial Mayor su reubicación temporal en la institución en cualquier momento del proceso. El Oficial Mayor resolverá en única instancia la procedencia de la reubicación temporal solicitada.

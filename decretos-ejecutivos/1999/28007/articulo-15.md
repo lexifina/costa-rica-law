@@ -1,0 +1,1 @@
+Artículo 15.—La jornada ordinaria de trabajo será continua y acumulativa de lunes a viernes. El horario general de servicio será de las ocho horas a las dieciséis y treinta, con cuarenta y cinco minutos para almorzar. Los jefes dispondrán los turnos y la distribución del personal a su cargo a fin de que durante el descanso se mantenga la continuidad del servicio.

@@ -1,0 +1,1 @@
+Artículo 57.—Los ascensos a puestos del grado inmediato superior dentro de la misma actividad o serie, los podrán recomendar los jefes tomando en cuenta el adecuado desempeño de las funciones de los servidores, su antigüedad y cualesquiera otros factores, y se hará siempre que los aspirantes llenen los requisitos del Manual Descriptivo de Clases.

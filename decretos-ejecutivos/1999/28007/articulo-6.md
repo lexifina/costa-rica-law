@@ -1,0 +1,1 @@
+Artículo 6°—Los servidores destacados que brinden servicios en un programa o un proyecto del Ministerio de Vivienda y Asentamientos Humanos, conservarán las mismas condiciones de trabajo de la institución de procedencia, salvo en cuanto al horario.

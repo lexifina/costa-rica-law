@@ -1,0 +1,2 @@
+Artículo 80.—Las amonestaciones escritas las hará el jefe inmediato en consulta con la Oficina de Recursos Humanos. La suspensión la hará el jefe inmediato en consulta con la Oficina de Recursos Humanos y la Oficialía Mayor.
+El despido sin responsabilidad patronal será recomendado por la Oficialía Mayor, de conformidad con el procedimiento señalado para esos efectos en el Estatuto del Servicio Civil y su Reglamento. Todo lo concerniente al procedimiento lo instruirán la Oficina de Recursos Humanos y el Departamento Legal de la institución.

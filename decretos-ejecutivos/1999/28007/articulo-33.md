@@ -1,0 +1,1 @@
+Artículo 33.—La presentación de la justificación con posterioridad al día señalado y dentro de los ocho días siguientes a su incorporación, dará lugar a la suspensión sin goce de salario hasta por ocho días. La no presentación de la justificación implica ausencia injustificada al trabajo y será sancionada de conformidad con lo que establece el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 28.—El servidor que por dolo, haga una marca ajena, incurrirá en falta grave, excepto, si demuestra que lo hizo por error o aquel a quien le marcaron informa del hecho a la Oficina de Recursos Humanos en la siguiente jornada de trabajo.

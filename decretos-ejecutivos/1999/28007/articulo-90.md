@@ -1,0 +1,1 @@
+Artículo 90.—Derogatorias. Se derogan los Decretos Ejecutivos No 21194-VAH de tres de abril de mil novecientos noventa y dos. No 24886-MP-MIVAH de once de diciembre de mil novecientos noventa y cinco y No 27290-MIVAH-MP.

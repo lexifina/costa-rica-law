@@ -1,0 +1,1 @@
+Artículo 70.—En las instalaciones del Ministerio de Vivienda y Asentamientos Humanos, se contará con un sistema de seguridad institucional, el cual se brindará de lunes a viernes, en el horario comprendido entre las 7,00 a.m. y las 18,00 horas.

@@ -1,0 +1,1 @@
+Artículo 86.—El Ministerio tendrá la obligación de consultar a organizaciones de personas con discapacidad legalmente constituidas, sobre la ejecución de los servicios y acciones relacionadas con la discapacidad.

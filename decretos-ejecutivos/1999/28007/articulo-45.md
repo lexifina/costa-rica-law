@@ -1,0 +1,1 @@
+Artículo 45.—Las vacaciones se deberán gozar sin interrupciones. Estas podrán ser divididas en tres fracciones como máximo, cuando así lo convengan las partes, y siempre que se tratare de labores de índole especial, que no permitan la ausencia prolongada del funcionario (a) y su presencia se considere necesaria para la buena marcha del servicio.

@@ -1,0 +1,1 @@
+Artículo 30.—La Oficina de Recursos Humanos elaborará en los primeros ocho días del mes un reporte de acuerdo con la información que disponga el último día del mes calendario, con base en el cual procederá a aplicar las medidas disciplinarias correspondientes.

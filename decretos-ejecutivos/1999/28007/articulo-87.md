@@ -1,0 +1,1 @@
+Artículo 87.—Se procurará que los servicios brindados a personas con discapacidad y a sus familias sean proporcionados por medio de información veraz, comprensible y accesible en referencia a la discapacidad y los servicios que presten.

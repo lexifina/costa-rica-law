@@ -1,0 +1,1 @@
+Artículo 34.—Se considerará abandono del trabajo el hacer dejación del mismo, sin causa justificada, dentro de la respectiva jornada. Para estos efectos no es necesario que el servidor salga del lugar donde presta sus servicios basta que en forma evidente abandone la labor que le ha sido encomendada.

@@ -1,0 +1,1 @@
+Artículo 5°—Los funcionarios al servicio del Ministerio de Vivienda y Asentamientos Humanos, incluidos o no en el Régimen del Servicio Civil, tendrán derecho a que se les reconozcan las revaloraciones generales, decretadas para los servidores del Poder Ejecutivo.

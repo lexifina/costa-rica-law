@@ -1,0 +1,1 @@
+Artículo 42.—Es obligación de cada jefe de sección, oficina o departamento realizar la programación de vacaciones de sus subalternos, tratando de que no se altere la buena marcha de las funciones encomendadas, ni que sufra menoscabo la efectividad del descanso.
