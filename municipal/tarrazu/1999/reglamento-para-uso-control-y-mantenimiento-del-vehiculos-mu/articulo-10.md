@@ -1,0 +1,1 @@
+Artículo 10.- Tendrán derecho a uso de vehículo discrecional, solamente los funcionarios que expresamente la Ley les conceda el beneficio en su artículo 225 Ley de Transito 733 1, si así lo indica el Alcalde Municipal.

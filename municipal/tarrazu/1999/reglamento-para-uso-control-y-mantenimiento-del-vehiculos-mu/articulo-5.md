@@ -1,0 +1,1 @@
+Artículo 5°-Los vehículos de uso administrativo deberán estar rotulados con la leyenda que identifique y exprese la propiedad municipal y que se ubicará en un lugar visible, preferiblemente que no afecte la pintura del automotor (parte superior de los parabrisas).
