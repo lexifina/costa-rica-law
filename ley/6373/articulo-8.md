@@ -1,0 +1,1 @@
+Artículo 8°.- Todas las actualizaciones, judiciales o administrativas, que deban practicarse con arreglo a esta ley, se harán en papel común y con exención total, para el interesado, de honorarios, derechos, tasas y timbres de cualquier especie.

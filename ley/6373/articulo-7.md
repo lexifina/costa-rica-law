@@ -1,0 +1,1 @@
+Artículo 7°.- Cuando el juez reciba el acta debidamente inscrita, conforme al artículo anterior, mandará a llamar, por los medios que estime convenientes, al interesado en la inscripción, para hacerle entrega personal del documento.

@@ -1,0 +1,1 @@
+Artículo 5°.- Extendida que fuere el acta con el contenido que manda el artículo anterior será enviada por el juez, por vía de mandamiento, al Registro de la propiedad, para que se proceda a la inscripción como finca nueva de la porción indicada en ella.
