@@ -1,0 +1,1 @@
+Artículo 16.-La Junta Directiva se compondrá de cuatro vocales que deben tener la calidad de socios, suscritos, por lo menos, hasta la cantidad de $ 10,000 Estos cargos son gratuitos y honoríficos. Uno de los vocales desempeñar las funciones de secretario de la Junta Directiva.
