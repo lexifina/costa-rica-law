@@ -1,7 +1,0 @@
-INSTITUTO NACIONAL DE FOMENTO COOPERATIVO
-La Junta Directiva del Instituto Nacional de Fomento Cooperativo, en su sesión ordinaria número 3.318, celebrada el 9 de febrero del 2004, mediante acuerdo número 077-2004, dispuso:
-Se acuerda modificar el artículo 4º, inciso 8) del Reglamento de Crédito del INFOCOOP, para que en adelante se lea de la siguiente forma:
-Artículo 4º, inciso 8).—Cuando el financiamiento sea requerido para inversiones de capital, se deberán presentar los estudios de antecedentes técnicos que se consideren necesarios por el proceso de operaciones a fin de emitir criterio sobre el financiamiento solicitado. Dichos antecedentes deberán ser elaborados por profesionales afiliados a su respectivo colegio. En el caso de emprendimientos apoyados por el INFOCOOP, los antecedentes podrán ser elaborados por el Macroproceso de Fomento.
-Asimismo se acuerda adicionar al artículo 8º del Reglamento de Créditos el siguiente párrafo:
-En el caso de emprendimientos de alto impacto nacional, sectorial, regional o para el grupo asociativo; los plazos, montos máximos, tasas de interés forma de reintegro, período de gracia y otras condiciones crediticias serán definidos en función a las proyecciones del flujo de caja, sustentados en los estudios técnicos correspondientes, con independencia de la política de financiamiento vigente, siempre considerando los parámetros que sobre la sostenibilidad financiera del Instituto haya dictado la Junta Directiva del INFOCOOP.
-Acuerdo firme.
