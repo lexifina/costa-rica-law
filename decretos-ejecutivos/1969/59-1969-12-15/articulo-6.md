@@ -1,0 +1,1 @@
+Artículo 6°-Toda infracción a las normas legales vigentes sobre torrefacción de café, ya sea por adulteración o mezcla en el café puro, o por la elaboración de productos a base de café, en que se incumplan las regulaciones aquí autorizadas, será considerada como adulteración de café, y el responsable sancionado de acuerdo con la ley N° 1616 antes citada y la legislación penal.

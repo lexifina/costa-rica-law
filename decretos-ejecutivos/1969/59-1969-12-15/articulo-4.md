@@ -1,0 +1,1 @@
+Artículo 4°-Se autoriza a los industriales torrefactores debidamente registrados, para fabricar otros productos alimenticios con café, para ser usados como infusión, siempre y cuando el café entre en proporción no menor del noventa por ciento como ingrediente, y la materia prima complementaria sea azúcar lavado, de primera calidad, todo sobre la base de café cr udo.

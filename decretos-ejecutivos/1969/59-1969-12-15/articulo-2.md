@@ -1,0 +1,1 @@
+Artículo 2°-La industrialización y la venta comercial de café puro, o de cualesquiera otros productos alimenticios destinados a su empleo como infusión, que contengan café como ingrediente, solamente será permitida a los industriales debidamente registrados y autorizados por la Oficina del Café.
