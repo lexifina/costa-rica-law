@@ -14,3 +14,4 @@ Indices energéticos regulatorios por actividad económica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-13 | la propia norma |
+| 2 | 1999-02-08 | Decreto Ejecutivo 27690 (1999-02-08) |
