@@ -1,0 +1,1 @@
+Art. 4. Librada la patente por el Gobernador, deberá el interesado presentarla á la Contaduría mayor, para que se tome razon en un libro que al efecto ha de llevar este Tribunal, por el órden de Provincias y tesorerias municipales.

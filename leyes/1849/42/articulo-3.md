@@ -1,0 +1,1 @@
+Art. 3. El impuesto por cada trimestre ó el valor de la patente para almacenes, es el de diez pesos: el de la que se libre para tiendas por el mismo término de tres meses cinco pesos; y el de la que se expida para cada puesto venta en las plazas, calles, portales y caminos para igual tiempo, de doce reales.
