@@ -1,0 +1,1 @@
+Artículo 8º—Los archivos del COLOSEVI serán administrados por la persona designada como secretario (a) quien se encuentra comprometido (a) a entregarlos a la persona que asuma el cargo cuando se elija nuevo comité ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 3º—Las políticas y acciones del COLOSEVI se regirán por lo dispuesto en el Decreto Ejecutivo Nº 29390-MOPT-S, suscrito el 6 de marzo del año 2001 y publicado en el Diario Oficial La Gaceta Nº 59 del 23 de marzo del 2001.
