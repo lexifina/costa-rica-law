@@ -1,0 +1,1 @@
+Art. 3° Se destina para el pago de las cantidades designadas, la suma de tres millones ciento setenta y nueve mil ochocientos setenta y tres ($ 3.179,873) á que esciende el presupuesto general de ingresos, en el citado año económico, según el detalle respectivo.
