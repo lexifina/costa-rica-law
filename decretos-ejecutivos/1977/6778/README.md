@@ -14,3 +14,4 @@ Establece la Reserva Nacional de Energía Eléctrica del Arenal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-02-19 | la propia norma |
+| 2 | 1990-10-29 | Decreto Ejecutivo 6934 (1977-04-20) |

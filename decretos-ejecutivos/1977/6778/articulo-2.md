@@ -1,2 +1,1 @@
-Artículo 2°.- La zona comprendida en el artículo primero se denominará “ZONA DE RESERVA NACIONAL DE ENERGÍA ELÉCTRICA DE ARENAL”, de conformidad con el plano que elaborará la Dirección General Forestal.
-El área de la Reserva de Energía Eléctrica de Arenal que se declara en este decreto estará formada por las cuencas superiores de los ríos Chiquito, Caño Negro y Aguas Gatas, afluentes del río Arenal y de la cuenca del río Peñas Blancas, y comprende una extensión aproximada de 35370 hectáreas.
+Artículo 2°- La Reserva Forestal que se declara que este decreto, comprende un área de 18 325 hectáreas. La demarcación que dicha reserva se encuentra en el plano confeccionado por la Dirección General Forestal.

@@ -1,1 +1,1 @@
-Artículo 9°.- Los trabajos de deslinde y vigilancia de la reserva estarán a cargo de la Dirección General Forestal o MAG, y del Instituto Costarricense de Electricidad que establecerán un convenio para efecto.
+Artículo 9°.- El Traslado y reasentamiento de ocupantes de más de uno y menos de diez años de poseer terrenos dentro de esta reserva, conforme a la Ley Forestal, se hará con intervención del Instituto de Tierras y Colonización.
