@@ -1,0 +1,1 @@
+Art. 6. Para vender las enunciadas maderas de tinte, seguira el Intendente informacion sobre el numero de arboles que de clias comprende el terreno denunciado; y los peritos los valoraran sobre la basè de un real por cada árbol.

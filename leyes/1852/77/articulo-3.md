@@ -1,0 +1,1 @@
+Art. 3. No se hará en lo sucesivo venta alguna de las maderas de construccion comprendidas en terrenos baldios; y mientras estos no se enagenen, con título competente, quedarán aquellas à beneficio del comun de los pueblos,
