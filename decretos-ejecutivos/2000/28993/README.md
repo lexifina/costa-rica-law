@@ -14,3 +14,4 @@ Conforma Comité Técnico de Investigación en Biodiversidad y Recursos Cultural
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-24 | la propia norma |
+| 2 | 2005-03-29 | Decreto Ejecutivo 32553 (2005-03-29) |
