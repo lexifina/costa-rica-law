@@ -1,0 +1,1 @@
+Artículo 2°-Se modifica el decreto ejecutivo N° 23235 del 15 de abril de 1994, publicado en "La Gaceta" N" 96 del 19 de mayo de 1994, solamente en cuanto a su categoría de manejo contenida en el artículo primero, estando vigente el resto de los artículos.
