@@ -1,0 +1,1 @@
+Artículo 2°-EI Estado, las instituciones autónomas y semiautónomas, las Municipalidades y demás entidades públicas, están autorizadas a otorgar subvenciones, donaciones o suministrar servicios de cualquier clase, según sus posibilidades jurídicas en favor de dicha Asociación.
