@@ -1,0 +1,1 @@
+Artículo 11.—Mantenimiento y reparación de teléfonos. El usuario será el responsable para atender cualquier requerimiento por concepto de mantenimiento correctivo y preventivo del teléfono (aparato) celular asignado a su persona. Todo gasto devengado por este aspecto será cubierto en su totalidad por el funcionario.

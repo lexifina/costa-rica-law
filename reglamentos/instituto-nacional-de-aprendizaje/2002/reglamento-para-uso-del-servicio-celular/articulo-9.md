@@ -1,0 +1,1 @@
+Artículo 9º—Coordinación con el proveedor de servicios de telefonía celular. La USIT será la única encargada de realizar, entre otros, los trámites de servicios nuevos, traslados, desconexiones temporales o definitivas, programación o reprogramación de líneas o teléfonos celulares, ante el proveedor de servicios de telefonía celular.
