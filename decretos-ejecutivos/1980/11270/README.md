@@ -13,3 +13,4 @@ Autoriza JAPDEVA Establecer Tarifas Portuarias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-03-14 | la propia norma |
+| 2 | 1980-03-14 | SINALEVI (sin norma nombrada) |
