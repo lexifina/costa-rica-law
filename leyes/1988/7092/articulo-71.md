@@ -1,1 +1,4 @@
-Artículo 71.- Interprétase en forma auténtica el artículo 6º de la ley Nº 7088 del 30 de noviembre de 1987, que reformó el párrafo tercero del inciso 2) del artículo 63 de la Ley del Impuesto sobre la Renta , Nº 837 del 20 de noviembre de 1946 y sus reformas, en el sentido de que el incremento del 5% al 8% en las tasas de retención del impuesto sobre la renta, se aplicará únicamente a los títulos valores emitidos a partir de la fecha de entrada en vigencia de la mencionada ley Nº 7088.
+CAPITULO XXIX
+Régimen simplificado
+Artículo 66- Definición. En el impuesto sobre la renta, la Administración Tributaria podrá establecer regímenes de tributación simplificada de acceso voluntario, por grupos o ramas de actividad, cuando con ellos se facilite el control y el cumplimiento voluntario de los contribuyentes que sean personas físicas con actividades lucrativas.
+(Así adicionado por el artículo 3 de la ley N° 7543 del 14 de setiembre de 1995)

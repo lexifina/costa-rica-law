@@ -1,4 +1,2 @@
-CAPITULO XXV
-Régimen de las compañías bananeras
-Artículo 58.- Tributación de las compañías bananeras.
-La presente ley no afectará el régimen establecido para las compañías bananeras a que se refiere el contrato administrativo Nº 9330-HA del 16 de noviembre de 1978, ni a las afectadas por lo dispuesto en el artículo transitorio I de la ley Nº 7032 del 2 de mayo de 1986.
+ARTICULO 58.- Base de la imposición. La base de la imposición será el monto total de las rentas remesadas, acreditadas, transferidas, compensadas o puestas a disposición del beneficiario domiciliado en el exterior.
+(Así modificada su numeración por el artículo 1º de ley No. 7551 de 22 de setiembre de 1995, que la traspasó del antiguo 53 al actual)

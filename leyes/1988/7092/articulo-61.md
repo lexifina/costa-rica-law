@@ -1,9 +1,4 @@
-Artículo 61.- Los contratos de exportación y de producción para la exportación.
-Se crean los contratos de exportación y de producción para la exportación, como los instrumentos para conceder ventajas y beneficios a las empresas exportadoras de productos no tradicionales no amparadas a tratados de libre comercio, y a las empresas productoras contempladas en el párrafo final del artículo anterior, tales como:
-a)Tarifas portuarias especiales.
-b)Simplificación de procedimientos y trámites.
-c)Créditos bancarios con tasas de interés y plazos de pagos preferenciales.
-ch) Las reducciones impositivas contempladas en el artículo 60 de esta ley.
-d)Las depreciaciones aceleradas contempladas en esta ley.
-e)Certificados de abono tributario, los cuales podrán otorgarse hasta por un veinticinco por ciento (25%) del valor FOB de las exportaciones, sobre la base de productos y mercados.
-f)Asistencia técnica y capacitación de personal para las empresas.
+ARTICULO 61.-Casos especiales para tratar utilidades en Costa Rica. En el caso del gravamen sobre las utilidades, dividendos y participaciones sociales, intereses, comisiones, gastos financieros, patentes, regalías, reaseguros, reafianzamientos y primas de seguros de toda clase, a que se refiere el artículo 54 (*) de esta ley, la Administración Tributaria queda facultada para eximir total o parcialmente del impuesto, cuando las personas que deban actuar como agentes de retención o de percepción del impuesto, o los propios interesados, comprueben, a satisfacción de la Administración Tributaria, que los perceptores de tales ingresos no les conceden crédito o deducción alguna en los países en que actúen o residan, por el impuesto pagado en Costa Rica, o cuando el crédito que se les concede sea inferior a dicho impuesto, en cuyo caso solamente se eximirá la parte no reconocida en el exterior.
+(*) (Nota: la ley No. 7551 de 22 de setiembre de 1995 corre la numeración del artículo señalado del antiguo 54 al 59)
+No procederá eximir del gravamen a que se refiere el párrafo anterior, cuando las rentas mencionadas no se graven en el país en que actúen o residan sus perceptores con un impuesto sobre la renta similar al que establece esta ley.
+(Así modificada su numeración por el artículo 1º de ley No. 7551 de 22 de setiembre de 1995, que lo traspasó del antiguo 56 al 61 actual)

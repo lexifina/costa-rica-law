@@ -1,6 +1,3 @@
-TITULO V
-Disposiciones generales
-CAPITULO XXIV
-De la Administración , Fiscalización y Autorización
-Artículo 57.- Administración y fiscalización.
-Corresponde a la Dirección General de la Tributación Directa la administración y fiscalización de los impuestos a que se refiere esta ley.
+ARTICULO 57.- Subrogación de los contribuyentes. Los contribuyentes a que se refiere este título son subrogados en el cumplimiento de todas las obligaciones que establece esta ley, por las personas domiciliadas en el país que efectúen los pagos o créditos correspondientes.
+La obligación de retener y pagar el impuesto a que se refieren los artículos 18 y 19 y el inciso c) del artículo 23 de esta ley, subsiste aun en el caso en que el contribuyente esté ocasionalmente en el país.
+(Así modificada su numeración por el artículo 1º de ley No. 7551 de 22 de setiembre de 1995, que la traspasó del antiguo 52 al actual)

@@ -1,5 +1,37 @@
-CAPITULO XVII
-De las rentas de otras actividades
-Artículo 34.- Rentas de otras actividades.
-Las personas que obtengan ingresos distintos a los contenidos en el título II de esta ley, deberán hacer su declaración anual del impuesto sobre la renta al final de cada período fiscal, sin incluir en ella las sumas gravadas con el impuesto único sobre las rentas del trabajo dependiente.
-Sin embargo, en caso de producirse una pérdida en el período, el monto de ésta podrá acreditarse a las personas para los pagos que deba realizar en períodos fiscales futuros, aun tratándose de los contenidos en el título II de esta ley, conforme con el reglamento que al efecto emita la Administración Tributaria.
+ARTICULO 34.- Una vez calculado el impuesto, los contribuyentes
+tendrán derecho a deducir de él, a título de crédito, los siguientes
+rubros:
+(Así reformado por el artículo 3º, inciso a), de la ley No. 7531 de
+10 de julio de 1995)
+i) Por cada hijo, la suma de ciento cincuenta colones (¢ 150,00)
+mensuales, siempre que:
+-Sea menor de edad.
+-Esté imposibilitado para proveerse su propio sustento, debido a
+incapacidad física o mental.
+-Esté realizando estudios superiores, siempre que no sea mayor de
+veinticinco años.
+En el caso de que ambos cónyuges sean contribuyentes, cada hijo
+sólo podrá ser deducido por uno de ellos.
+ii) Por el cónyuge, la suma de doscientos colones (¢ 200,00)
+mensuales, siempre que no exista separación legal. Si los
+cónyuges estuvieren separados judicialmente, sólo se permitirá
+esta deducción a aquel a cuyo cargo esté la manutención del otro,
+según disposición legal.
+En el caso de que ambos cónyuges sean contribuyentes, este
+crédito sólo podrá ser deducido, en su totalidad, por uno de
+ellos.
+Para tener derecho a los créditos del impuesto establecido en
+este artículo, los contribuyentes tendrán que demostrar a su
+patrono o empleador o al Estado, la existencia de cualesquiera de
+las circunstancias señaladas como requisito para incluir a sus
+hijos o lo relativo al estado civil, según se disponga en el
+Reglamento de esta ley.
+(Así reformado por el artículo 3º, inciso a), de la ley No. 7531
+de 10 de julio de 1995)
+Los contribuyentes que hagan uso de los créditos de impuesto
+establecidos en este artículo, no tendrán derecho a los créditos a que se
+refiere el artículo 15, inciso c).
+(Así adicionado este párrafo por el artículo 109 de la ley de
+presupuesto No. 7097 del 18 de agosto de 1988)
+(Así modificada su numeración por el artículo 1º de ley No. 7551 de
+22 de setiembre de 1995, que la traspasó del antiguo 29 al actual)

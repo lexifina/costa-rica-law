@@ -1,5 +1,3 @@
-CAPITULO XXII
-De los contribuyentes de la renta imponible
-Artículo 51.- Contribuyentes.
-Son contribuyentes de este impuesto, las personas físicas o jurídicas domiciliadas en el exterior que perciban rentas o beneficios de fuente costarricense.
-Sin embargo, son responsables solidarios de las obligaciones establecidas en esta ley, incluso del pago del impuesto, las personas físicas o jurídicas domiciliadas en Costa Rica que efectúen la remesa o acrediten las rentas o beneficios gravados.
+ARTICULO 51.-Libros contables. En el Reglamento de la presente Ley se fijarán los requisitos y las condiciones en cuanto a los libros de contabilidad y otros que deberán llevar los contribuyentes. También, en cuanto a los sistemas especiales que ellos puedan solicitar. Las disposiciones de esta Ley, que afecten la contabilidad de los contribuyentes, tienen el carácter de ajustes a los resultados mostrados por aquella, necesarios para determinar la renta imponible; pero, no son principios de contabilidad a que deban sujetarse. La Administración Tributaria prescribirá los registros que requiera para llevar, en cuentas de memorándum, los ajustes señalados en este párrafo.
+(Así reformado por el artículo 19 de la Ley de Justicia Tributaria No. 7535 de 1º de agosto de 1995)
+(Así modificada su numeración por el artículo 1º de ley No. 7551 de 22 de setiembre de 1995, que la traspasó del antiguo 46 al actual)
