@@ -14,3 +14,4 @@ Reglamento de Karaoke, Discomóviles, Música y similares de la Municipalidad de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-20 | la propia norma |
+| 2 | 2004-11-20 | Reglamento municipal 42 (2004-10-19) |
