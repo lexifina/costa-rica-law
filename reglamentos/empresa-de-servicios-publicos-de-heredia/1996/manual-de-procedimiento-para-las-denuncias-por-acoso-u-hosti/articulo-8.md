@@ -1,0 +1,1 @@
+Artículo 8°-Las partes tendrán derecho a una comparecencia oral y privada con la comisión, en la que se evacuará en todo lo posible la prueba de conformidad con lo que establece el artículo 309 de la Ley General de la Administración Pública.

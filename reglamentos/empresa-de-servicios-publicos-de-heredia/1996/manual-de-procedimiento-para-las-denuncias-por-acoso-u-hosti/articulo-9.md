@@ -1,0 +1,1 @@
+Artículo 9°-La comisión evacuará toda la prueba aportada, realizando todas las diligencias probatorias necesarias para determinar la verdad real de los hechos objeto del trámite y estará en disposición de aceptar prueba testimonial, documental, grabaciones, tanto en video como en audio, así como cualquier otra prueba que considere oportuna.

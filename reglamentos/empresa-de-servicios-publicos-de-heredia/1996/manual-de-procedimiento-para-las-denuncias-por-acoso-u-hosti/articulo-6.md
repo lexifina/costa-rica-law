@@ -1,0 +1,2 @@
+Artículo 6°-En la fase instructiva, la comisión podrá adoptar las medidas cautelares que considere necesarias, hasta tanto se resuelva en forma definitiva el procedimiento. En cualquier fase del proceso, a solicitud del o la denunciante, podrá determinarse su reubicación dentro de la institución.
+El procedimiento ordinario que llevará a cabo la comisión, resguardará la imagen, confidencialidad, y principios que rigen la actividad administrativa.
