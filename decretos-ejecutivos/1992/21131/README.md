@@ -14,3 +14,4 @@ Crea Premio Nacional de Danza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-04-02 | la propia norma |
+| 2 | 1994-07-06 | Decreto Ejecutivo 23554 (1994-07-06) |
