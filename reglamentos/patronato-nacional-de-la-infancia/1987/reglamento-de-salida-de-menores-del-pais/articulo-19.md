@@ -1,0 +1,1 @@
+Artículo 19.—Si la solicitud cumple con todos los requisitos establecidos, el funcionario lo indicará así, en una fórmula, que remitirá al Departamento de Migración para que esta dependencia continúe con los trámites de su competencia.

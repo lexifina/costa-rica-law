@@ -1,0 +1,1 @@
+Artículo 13.—Cuando se trate de menores de nacionalidad extranjera o costarricenses residentes en otro país, que no viajan con sus padres y han permanecido en el país por más de treinta días naturales, constando su situación de turista, podrá ser autorizada su salida sin más trámites.

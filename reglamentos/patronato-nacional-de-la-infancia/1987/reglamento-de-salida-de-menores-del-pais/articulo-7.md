@@ -1,0 +1,6 @@
+Artículo 7°—Para acreditar los datos consignados en la fórmula indicada, se exigirán los siguientes documentos, según el carácter en el que comparezca el solicitante:
+a) Certificado de nacimiento de los menores extendidas por la Oficina del Registro Civil o certificación de un notario en original y copia, devolviéndose el original al interesado.
+En el caso de menores que sean hijos extramatrimioniales será necesario presentar certificación de nacimiento del menor expedida por el Registro Civil o por notario público. Si en este documento consta que fue reconocido por el padre y que éste comparte la patria potestad con la madre, será necesaria la autorización de ambos progenitores.
+b) Los comparecientes que manifiesten ser loa representantes legales del
+menor deberán presentar su cédula de identidad o pasaporte en caso de extranjeros.
+c) Si uno de los padres o ambos hubieren fallecido se comprobará este hecho con la respectiva certificación de defunción y certificación del depósito judicial o administrativo, y en el caso de depositarios en guarda y crianza de los menores que viajan deben presentar certificación del Registro Público de la inscripción de la tutela, con la indicación de que se encuentra vigente.

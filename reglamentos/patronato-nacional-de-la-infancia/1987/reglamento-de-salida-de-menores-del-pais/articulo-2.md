@@ -1,0 +1,1 @@
+Artículo 2°—El presente Reglamento tiene por objeto regular las salidas de menores de edad del país, conforme las atribuciones que le confiere la Ley Orgánica del Patronato, en su artículo 6°, inciso k), en colaboración con el .Departamento de Migración del Ministerio de Gobernación y Policía. 1 Artículo.

@@ -1,0 +1,4 @@
+CAPITULO V
+De los funcionarios competentes
+Artículo 17.—Tienen competencia para autorizar la salida del país de un menor de edad, sin perjuicio del control que corresponde al Centro de Cómputo del Departamento de Migración, los siguientes funcionarios del Patronato: Director Ejecutivo, Jefe de la Asesoría Jurídica, Secretario General, Representantes Legales y Delegados en sus respectivas jurisdicciones. Además de los funcionarios citados, la Junta Directiva del Patronato Nacional de la Infancia tiene la competencia para autorizar, en casos excepcionales, salidas de menores del país, para lo cual deberá contarse con la aprobación mínima de tres Directores.
+Los funcionarios de la Oficina del Patronato quedan autorizados por el presente Reglamento para firmar y enviar las comunicaciones correspondientes al Centro de Cómputo del Departamento de Migración.

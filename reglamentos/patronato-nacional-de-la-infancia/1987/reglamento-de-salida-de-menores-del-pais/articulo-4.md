@@ -1,0 +1,1 @@
+Artículo 4°—Verificado el cumplimiento y legitimidad de los requisitos y documentos lo comunicará de inmediato al Departamento de Migración para 'los efectos de que esa oficina, en cumplimiento de sus atribuciones legales, decida si procede o no la salida de menores del país.

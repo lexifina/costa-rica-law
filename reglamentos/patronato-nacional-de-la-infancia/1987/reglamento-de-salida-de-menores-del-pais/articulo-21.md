@@ -1,0 +1,2 @@
+Artículo 21.—Las copias de la documentación aportadas por los interesados deberán constar en el expediente del menor, devolviéndoles los originales.
+Cuando se trate de certificaciones o documentos redactados en idioma extranjero, deberán venir acompañados de la traducción oficial y debidamente autenticados por el Ministerio de Relaciones Exteriores y Culto de Costa Rica, salvo que el documento venga traducido y autenticado por notario público.

@@ -1,0 +1,1 @@
+Artículo 22.—Toda resolución que deniegue la salida del país de un menor deberá ser motivada con indicación precisa de los requisitos incumplidos o las, medidas de protección del menor que se tuvieron a la vista para el rechazo de la solicitud.

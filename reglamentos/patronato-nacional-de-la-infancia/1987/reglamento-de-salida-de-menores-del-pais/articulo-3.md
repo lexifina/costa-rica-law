@@ -1,0 +1,1 @@
+Artículo 3°—De acuerdo con lo expresado en el número anterior al Patronato no le corresponde el control de la salida de menores de edad del país sino la comprobación de la legitimidad del vínculo o título de los representantes .legales, con sus hijos o pupilos que viajan, exigiendo los documentos señalados en el artículo 7° del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 14.—Si el menor viaja con sus representantes legales, éstos se identificarán personalmente en la Oficina del Patronato con sus respectivos pasaportes en caso de extranjeros y con la cédula de identidad en caso de costarricenses, lo que no será necesario si ambas firmas vienen autenticadas por abogado.
