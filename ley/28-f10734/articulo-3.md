@@ -1,0 +1,1 @@
+Art. 3°—El derecho de timbre será proporcional dentro del límite que se señala. El timbre de menor valor será de cinco centavos, y el de mayor valor, de cincuenta pesos. Queda autorizado el Poder Ejecutivo para que entre estos dos términos, veinte pesos y veinticinco mil pesos, establezcan la proporción de dicho impuesto.
