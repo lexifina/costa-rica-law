@@ -13,3 +13,4 @@ Fija Límites de la Ciudad de San José
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-06-18 | la propia norma |
+| 2 | 1980-06-18 | SINALEVI (sin norma nombrada) |
