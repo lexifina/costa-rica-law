@@ -1,1 +1,2 @@
-Artículo 3°-El Servicio de Parques Nacionales establecerá las prohibiciones y regulaciones que regirán para el Área Recreativa Nacional Cariari, las cuales tendrán como objeto la protección de los recursos naturales de la misma y la seguridad de los visitantes de la misma.
+Artículo 3°-El Instituto Costarricense de Turismo establecerá las prohibiciones y regulaciones que regirán en el Área Recreativa con el propósito de proteger los recursos naturales del área y suministrar adecuada seguridad a los visitantes.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 13176 del 2 de diciembre de 1981)
