@@ -14,3 +14,4 @@ Reforma al Reglamento para el Control Nacional de Fraccionamientos y Urbanizacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-23 | la propia norma |
+| 2 | 2003-05-28 | Reglamento 5281 (2003-05-28) |
