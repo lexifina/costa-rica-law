@@ -5,3 +5,4 @@ ARTICULO 3° : PRESUPUESTO POR PROGRAMAS ASAMBLEA LEGISLATIVA
 (Modificado por el Artículo 1° del Decreto Ejecutivo N° 31665 del 17 de febrero de 2004, publicado La Gaceta N° 51 del 12 de marzo de 2004)
 (Modificado por el Artículo 1° del Decreto Ejecutivo N° 31717 del 04 de marzo de 2004)
 (Modificado por el artículo 1°del Decreto Ejecutivo N° 31761 de 19 de abril de 2004).
+(Modificado por artículo 1° del Decreto Ejecutivo N° 31783 de 27 de abril de 2004).
