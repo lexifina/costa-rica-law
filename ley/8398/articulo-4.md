@@ -9,3 +9,4 @@ ARTICULO 4°: PRESUPUESTO POR PROGRAMAS CONTRALORÍA GENERAL DE LA REPÚBLICA.
 (Así MODIFICADO por el artículo N° 2° del Decreto Ejecutivo N° 32009 del 20 de julio del 2004, publicado en el Alcance N° 35 de la Gaceta N° 153 del 6 de agosto del 2004)
 (Modificado por el artículo 1° del decreto ejecutivo 31936 del 9 de setiembre del 2004, publicado en el Alcance N° 47 de La Gaceta N° 192 del 1° de octubre del 2004)
 (Modificado por el artículo 1° del decreto ejecutivo 31937 del 9 de setiembre del 2004, publicado en el Alcance N° 48 de La Gaceta N° 192 del 1° de octubre del 2004)
+(Modificado por el artículo 1° del Decreto Ejecutivo N° 32046-H del 16 de setiembre del 2004.)
