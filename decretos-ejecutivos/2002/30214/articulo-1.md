@@ -51,10 +51,10 @@ Editorial Costa Rica | 109,6
 Escuela Centroamericana de Ganadería | 514,6
 Estaciones Experimentales MAG (Así modificado por el artículo 1° del decreto ejecutivo N° 31128 de 3 de abril de 2003) | 173.0
 Fábrica Nacional de Licores (Así modificado por el artículo 1° del decreto ejecutivo N° 31131 de 3 de abril de 2003) | 1.936,6
-Fondo de Parques Nacionales (Así modificado por Decreto ejecutivo N° 31021 de 14 de febrero de 2003) | 1.762
-Fondo Forestal | 76,2
+Fondo de Parques Nacionales (Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31224 de 16 de junio de 2003) | 2.076,1
+Fondo Forestal (Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31224 de 16 de junio de 2003) | 120,2
 Fondo Nacional Ambiental | 6,3
-Fondo Vida Silvestre | 11,6
+Fondo Vida Silvestre (Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31224 de 16 de junio de 2003) | 21
 Instituto Costarricense de Investigaciones y Enseñanza en Nutrición y Salud (Incluye Asignaciones Fam.) (Así modificado por el artículo 1° del decreto ejecutivo N°31228 de 03 de junio de 2003) | 965,4
 Instituto Costarricense del Deporte y la Recreación (Así modificado por el artículo 1° del decreto ejecutivo N° 31161 de 6 de mayo de 2003) | ¢ 2.750,5
 Instituto Costarricense de Acueduc. y Alcantarillado (Así modificado por decreto ejecutivo N° 31142 de 21 de abril de 2003) | 32.129,2
