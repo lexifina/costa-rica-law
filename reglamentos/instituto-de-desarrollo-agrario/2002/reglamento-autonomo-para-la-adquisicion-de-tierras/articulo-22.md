@@ -14,3 +14,5 @@ g. Orden a la Dirección Regional para que, a través de la Oficina Subregional 
 h. Orden al Departamento Formación de Asentamientos para que, a través de su Área de Selección de Familias, en coordinación con la Dirección Regional correspondiente, se efectúen los estudios de las personas solicitantes de tierra o poseedoras en precario que podrían ocupar el inmueble adquirido (Estudio de Selección de Familias).
 i. Orden a la Dirección Regional correspondiente, para que formule el estudio de Relación Tierra/Familia.
 j. Que al vendedor le corresponderá pagar los gastos correspondientes de inscripción y traspaso.
+k. Orden a la Dirección Regional correspondiente, para que una vez asentados los adjudicatarios proceda a realizar un diagnóstico y un plan de desarrollo del asentamiento, tomar las medidas presupuestarias para desarrollar obras de infraestructura que faciliten el desarrollo de la finca adquirida, y declararlo como asentamiento prioritario en toda su atención, por el Sector Agropecuario
+(Así ampliado mediante acuerdo N° 1 de Junta Directiva del 9 de agosto del 2004)
