@@ -1,0 +1,1 @@
+Artículo 11.-Las atribuciones que en el presente reglamento se confieren al Comité Administrador, serán ejercidas sin perjuicio de la exclusividad que tienen las instituciones educativas para el uso de sus instalaciones durante el curso lectivo y en las horas destinadas al proceso educativo, periodos en los cuales el Director del establecimiento es la autoridad superior.

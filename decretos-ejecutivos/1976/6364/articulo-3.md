@@ -1,0 +1,1 @@
+Artículo 3°-El Comité Administrador estará integrado por cinco miembros, nombrados por las respectivas Juntas Administrativas, cuando se tratare de instituciones de tercero o cuarto ciclos del sistema educativo, o de las Juntas de Educación cuando se trate de centros de educación preescolar o de primero y segundo ciclos.

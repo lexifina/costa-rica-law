@@ -1,0 +1,1 @@
+Articulo 7°-El Comité se reunirá ordinariamente dos veces al mes y extraordinariamente, cuando los convoque el Presidente por decisión propia o a solicitud de dos miembros. Sus acuerdos se tomarán por mayoría simple de los presentes, debiendo contar con un mínimo de tres miembros para sesionar válidamente.
