@@ -1,0 +1,1 @@
+Art.5.Los que posean más tierras que las de que habla el artículo 2 de este Decreto, quedan en libertad de pagarla por el precio que le dieren los peritos; y de no, pagaran un real por manzana de cultivo, y dos por la de pastos; cuya satisfacción se hará precisamente en todo el mes de Agosto de cada año, quedando obligados al duplo los que no lo verificaren.
