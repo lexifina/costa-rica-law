@@ -1,4 +1,5 @@
 Artículo 38.—Cuando algún abogado tenga que retirarse de su oficina, por cualquier motivo que fuere y por un plazo mayor de cinco días hábiles, deberá informar al Centro de Administración de Crédito correspondiente con tres días de anticipación, el nombre del abogado que asumirá la Dirección de los casos pendientes durante su ausencia, el cual también deberá ser abogado del Banco y no estar en condición de no asignación.
 Los casos asumidos por el abogado sustituto no afectará el rol de asignaciones.
-Si al abogado le correspondiere la asignación de una operación para su cobro judicial durante su ausencia, se le entregará el caso a aquel profesional que continúe en el rol y no se hará reposición alguna.
+Si al abogado le correspondiere la asignación de una operación para su cobro judicial, pero se ausentará por razones de enfermedad, debidamente comprobada, se le entregará el caso a aquel abogado que continúe en el rol y se le repondrá con otro similar al abogado ausente, cuando se incorpore nuevamente al rol y no se hará reposición alguna.
+(Así reformado el párrafo tercero por acuerdo tomado en sesión N° 11020 de 29 de febrero del 2000)
 Si el profesional no envía el aviso de retiro temporal, será sujeto a las sanciones establecidas en el Capítulo VI del presente Reglamento.
