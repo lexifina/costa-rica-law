@@ -13,3 +13,4 @@ Reglamento a la Ley General de Concesión de Obra Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-01-06 | la propia norma |
+| 2 | 1995-01-06 | Decreto Ejecutivo 27098 (1998-06-12) |
