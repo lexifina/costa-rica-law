@@ -14,3 +14,4 @@ Asume el control temporal de las plantaciones agrícolas de la División de Golf
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-08-14 | la propia norma |
+| 2 | 1980-12-12 | Decreto Ejecutivo 12108 (1980-12-12) |

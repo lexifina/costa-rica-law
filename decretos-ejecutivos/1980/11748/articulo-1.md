@@ -13,3 +13,4 @@ Considerando:
 Por tanto,
 DECRETAN:
 Artículo 1º.-Asumir el control temporal de las plantaciones agrícolas de la División de Golfito de la Compañía Bananera de Costa Rica, servicios de muelle y ferrocarriles y todos aquellos que se requieran para asegurar la continuidad en los trabajos y el normal funcionamiento de la agricultura del banano y de la palma africana en la zona Sur del país.
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 12108 del 12 de diciembre de 1980, se indicó lo siguiente: “Poner término al control temporal de la Compañía Bananera de Costa Rica, división de Golfito, dispuesto por decreto número 11748-TSS del 13 de agosto de 1980; lo relativo al procedimiento a seguir para los casos de despido, continuará rigiéndose por las normas previstas en el anexo al citado decreto número 11748-TSS mientras las partes no definan, por convenio, el que estimen adecuado.”)
