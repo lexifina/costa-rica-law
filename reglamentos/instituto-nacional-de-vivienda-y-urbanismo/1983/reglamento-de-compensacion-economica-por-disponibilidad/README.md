@@ -14,3 +14,4 @@ Reglamento de Compensación Económica por Disponibilidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-01-26 | la propia norma |
+| 2 | 1987-01-26 | Reglamento 3651 (1985-08-19) |
