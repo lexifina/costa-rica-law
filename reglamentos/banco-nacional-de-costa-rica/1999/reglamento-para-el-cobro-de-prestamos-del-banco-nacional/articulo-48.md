@@ -4,5 +4,10 @@ b. Cuando los bienes requieran de inscripción en el Registro Público, además 
 Los honorarios y gastos de protocolización se cancelarán de la siguiente manera:
 i. Con la presentación de una copia de la escritura de protocolización se cancelarán los gastos.
 ii. Con la presentación de la escritura debidamente inscrita se procederá al pago de honorarios de abogado.
-En ambos casos el abogado deberá aportar la factura respectiva.
+iii. Con la presentación de una copia de la escritura de protocolización se cancelarán los gastos.
+(Así adicionado por acuerdo tomado en sesión N° 10994 de 24 de agosto de 1999)
+iv. Con la presentación de la escritura debidamente inscrita se procederá al pago de honorarios de abogado por protocolización.
+(Así adicionado por acuerdo tomado en sesión N° 10994 de 24 de agosto de 1999)
+En ambos casos el abogado deberá aportar la factura respectiva, con el detalle de los gastos efectivamente realizados y en caso de haber utilizado "Entero de Gobierno" para el pago de especies fiscales y derechos de registro, se adjuntará una copia del mismo.
 Para todos los efectos el control de la escritura de inscripción de bienes adjudicados al Banco, se realizará de acuerdo con la reglamentación que rige para la labor de notariado externo.
+(Así reformado por acuerdo tomado en sesión N° 10994 de 24 de agosto de 1999)
