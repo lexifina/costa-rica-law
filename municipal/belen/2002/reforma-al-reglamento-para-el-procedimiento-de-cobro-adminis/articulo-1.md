@@ -1,0 +1,3 @@
+REFORMA AL REGLAMENTO PARA EL PROCEDIMIENTO DE COBRO ADMINISTRATIVO, EXTRAJUDICIAL Y JUDICIAL DE LA MUNICIPALIDAD DE BELÉN
+Artículo 1º Modifíquese el artículo 12 para que se lea así:
+"Únicamente procederá el arreglo de pago, cuando el cobro se encuentre en la etapa de cobro administrativo, en cuanto al cobro extrajudicial solo procederá en casos debidamente justificados. Las personas interesadas en un arreglo, deberán presentar solicitud escrita en el formulario diseñado por la Municipalidad para tales efectos. En el caso de personas jurídicas, la solicitud deberá ser firmada por el representante legal o apoderado generalísimo y aportar el número de cédula jurídica".
