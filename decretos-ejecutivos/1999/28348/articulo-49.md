@@ -1,0 +1,1 @@
+Artículo 49.—En tanto las romanas no puedan utilizarse por motivo de la reparación, se suspenderá el recibo de caña en dicha romana. En estos casos, se podrá utilizar otra romana de que disponga el ingenio o cualquiera otra que cumpla las condiciones exigidas por la Ley y el Reglamento.

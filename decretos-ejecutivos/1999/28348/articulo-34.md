@@ -1,0 +1,1 @@
+Artículo 34.—Los citados inspectores y los funcionarios de la Auditoría Interna, tendrá libre acceso a las instalaciones y documentación del ingenio que se relacionen con la producción, almacenamiento y disposición de las mieles finales.

@@ -1,0 +1,1 @@
+Artículo 41.—El Departamento Técnico brindará ayuda a los laboratorios de los ingenios, cuando éstos lo soliciten, en la capacitación del personal en todo lo relativo a la evaluación de la caña por métodos directos.

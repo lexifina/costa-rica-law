@@ -1,0 +1,1 @@
+Artículo 36.—Cada ingenio extenderá una factura original para el cliente, con una copia para la contabilidad del ingenio. No podrá efectuarse ningún egreso de miel sin la correspondiente factura. Las facturas de venta que, por cualquier motivo, se anularan llevarán la razón correspondiente y no podrán ser destruidas.

@@ -1,0 +1,1 @@
+Artículo 32.—Las funciones de inspección de la producción y control del mercadeo de las mieles finales en los ingenios, las ejercerá la Liga de la Caña, por medio del inspector del Departamento Técnico, destacado en el ingenio y, a posteriori y facultativamente por la Auditoría Interna.

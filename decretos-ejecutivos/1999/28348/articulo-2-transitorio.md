@@ -1,0 +1,1 @@
+Transitorio II.—El ingenio al que se le autorice posponer el sistema de toma de muestras a que se refiere el artículo 64 de la Ley, en la zafra 1999-2000, la Junta Directiva señalará, con arreglo a la citada disposición, el sistema sustitutivo para tomar la muestra.

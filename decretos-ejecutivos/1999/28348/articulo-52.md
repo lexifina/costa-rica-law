@@ -1,0 +1,4 @@
+Artículo 52.—Los ingenios tienen la obligación de remitir al Departamento Técnico de la Liga, los informes de la contabilidad azucarera, correspondientes a una semana de operación, dentro de los ocho días calendario siguientes a la conclusión del referido período.
+El Departamento señalará los datos fundamentales que debe contener el citado informe.
+También es obligación de los ingenios, poner a disposición del Departamento Técnico la información adicional que éste estime necesaria.
+Dicho Departamento comunicará de inmediato a la Junta Directiva de la Liga de la Caña, cualquier incumplimiento de parte de los ingenios, en la emisión del referido informe de la contabilidad azucarera o de su negativa a suministrar la demás información que requiere, a efecto de que se proceda a adoptar las medidas pertinentes.

@@ -1,0 +1,1 @@
+Artículo 55.—Las personas seleccionadas fungirán como representantes de la citada asociación ante la administración del ingenio y los funcionarios de la Liga, para todo lo relacionado con el Sistema Directo de Compra de Caña por su Calidad.

@@ -1,0 +1,1 @@
+Artículo 15.—No se permitirán tachaduras o correcciones en los recibos o comprobantes comprendidos en esta sección. En el caso de que deba enmendarse cualquiera de éstos documentos, deberán anularse y extenderse uno nuevo, en el cual se indicará a cual documento sustituye, con señalamiento del número y la fecha correspondiente, previa autorización del inspector de la Liga. *

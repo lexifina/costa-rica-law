@@ -1,0 +1,3 @@
+Artículo 43.—En aplicación del artículo 173 de la Ley, los inspectores nombrados por la Liga, División Corporativa, para velar por el cumplimiento de dicha legislación y sus Reglamentos, tendrán la autoridad necesaria y suficiente para intervenir, investigar y actuar, con el propósito de asegurar el citado cometido.
+Es entendido que dentro de las facultades especificadas anteriormente, queda comprendida la de hacer las investigaciones o averiguaciones que consideren necesarias para determinar si se han cometido o no los actos u omisiones ilícitos a que se refieren los artículos 166, 168 y 174 de la Ley.
+Los inspectores de la Liga deberán tener, como mínimo, el título de Bachiller en Educación Media.
