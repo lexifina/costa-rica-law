@@ -1,0 +1,9 @@
+# VETO.- Pensión a viudas e hijos Guardas Fiscales, Guardias Civiles,etc. mueran accidentalmente en ejercicio sus funciones
+
+Ley N° 4634 del 1970-08-31. SINALEVI, ficha 15403: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=15403&param2=16510&param3=1>.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 1 | 1970-08-31 | Ley 4634 | 1970-08-31 |
