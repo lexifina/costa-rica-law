@@ -1,0 +1,1 @@
+Artículo 2°─La Comisión está integrada por los Ministros de la Presidencia, de Transportes, y de Trabajo y Bienestar Social. Se reunirá ordinariamente al menos una vez por semana. La presencia de dos de sus miembros basta para formar el quorum. Las decisiones se tomarán por simple mayoría.

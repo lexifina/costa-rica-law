@@ -1,0 +1,1 @@
+Artículo 7°─ Para el Cumplimiento de sus atribuciones, la Comisión organizará la oficina de la Comisión de Emergencia Portuaria, bajo la dirección de un Director Ejecutivo, la cual contará con un Oficial Presupuestario y el resto del personal que la Comisión estime necesario nombrar.
