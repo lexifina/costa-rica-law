@@ -14,3 +14,4 @@ Modifica Límite de Gasto Presupuestario al Instituto Nacional de la Mujer, esta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-10 | la propia norma |
+| 2 | 2004-09-07 | Decreto Ejecutivo 31943 (2004-09-07) |
