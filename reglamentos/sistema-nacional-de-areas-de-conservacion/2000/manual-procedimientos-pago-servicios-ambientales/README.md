@@ -14,3 +14,4 @@ Manual Procedimientos Pago Servicios Ambientales.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-21 | la propia norma |
+| 2 | 2000-03-21 | SINALEVI (sin norma nombrada) |
