@@ -1,0 +1,12 @@
+Artículo 20
+Los Estados Partes que tengan dos o más unidades territoriales en las
+que rijan distintos sistemas jurídicos relacionados con cuestiones
+tratadas en la presente Convención podrán declarar, en el momento de la
+firma, ratificación o adhesión, que la Convención se aplicará a todas sus
+unidades territoriales o solamente a una o más de ellas.
+Tales declaraciones podrán ser modificadas en cualquier momento
+mediante declaraciones ulteriores, que especificarán expresamente la o las
+unidades territoriales a las que se aplicará la presente Convención.
+Dichas declaraciones ulteriores se trasmitirán a la Secretaría General de
+la Organización de los Estados Americanos y surtirán efecto treinta días
+después de recibidas.
