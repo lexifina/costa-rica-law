@@ -1,0 +1,4 @@
+DECRETO XLVII
+Dispone que los Alcaldes constitucionales conozcan verbalmente de las demandas que alcancen hasta la cantidad de doscientos cincuenta pesos.
+Considerando: que a consecuencia del progreso de la República o incremento del comercio los contratos se han aumentado considerablemente y en proporción las controversias judiciales: que por tal motivo se debe facilitar a los ciudadanos el acceso a los ciudadanos el acceso a los Tribunales, decreto:
+Art 1°. - La materia del juicio civil verbal la forma todo interés que pase de dos y no exceda de doscientos cincuenta pesos, y de ella conocerán los Alcaldes constitucionales de los pueblos en la misma forma y bajo las mismas reglas prescritas en el capítulo 2°, título 1°, libro 2°, parte 3° del Código general con las reformas y alteraciones que el presente decreto establece.

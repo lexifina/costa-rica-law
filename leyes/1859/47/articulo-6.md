@@ -1,0 +1,1 @@
+Art 6° Mas si el interés de la demanda excede de cien pesos y la sentencia pronunciada por el Juez de 1° Instancia en apelación no es conforme de toda conformidad con la del Alcalde que conoció en la primera, ha lugar el recurso de súplica para ante una de las Salas del Tribunal de Justicia.

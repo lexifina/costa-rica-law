@@ -1,0 +1,1 @@
+Art 3° Las partes, sus Procuradores o Abogados tienen el derecho de escribir en este libro por si mismo los mismo los interrogatorios conforme a los cuales piden confesión a la contraria o declaración a los testigos.
