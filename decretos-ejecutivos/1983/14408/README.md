@@ -14,3 +14,4 @@ Constituye Comisión Asesora para diseñar la Política Nacional de Investigaci�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-04-12 | la propia norma |
+| 2 | 1983-07-06 | Decreto Ejecutivo 14695 (1983-07-06) |

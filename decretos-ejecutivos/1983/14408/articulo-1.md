@@ -7,16 +7,18 @@ Considerando :
 2°-Que el Consejo de Gobierno en sesión ordinaria N° 39 de 24 de noviembre de 1982, acordó la integración de una comisión para diseñar una política nacional de investigación científica y tecnológica.
 Por tanto.
 DECRETAN:
-Artículo 1°-Constitúyase una comisión asesora para diseñar la política nacional de investigación científica y tecnológica, compuesta con las instituciones públicas que se indican:
+Artículo 1°-Constitúyase una Comisión Asesora para que diseñe la política nacional de investigación científica y tecnológica, con la participación de un representante de cada una de las siguientes instituciones públicas:
 a) Ministerio de Planificación Nacional y Política Económica.
-b) Ministerio de Industria, Energía y Minas.
-c) Ministerio de Economía y Comercio.
-d) Ministerio de Educación Pública.
-e) Ministerio de Salud.
-f) Ministerio de Agricultura y Ganadería.
-g) Ministerio de Justicia y Gracia.
-h) Universidad de Costa Rica.
-i) Universidad Nacional.
-j) Universidad Estatal a Distancia.
-k) Instituto Tecnológico de Costa Rica.
-l) Consejo Nacional de Investigaciones Científicas y Tecnológicas.
+b)Ministerio de Industria, Energía y Minas;
+c) Ministerio de Economía y Comercio;
+ch) Ministerio de Educación Pública;
+d) Ministerio de Salud;
+e) Ministerio de Agricultura y Ganadería;
+f) Ministerio de Justicia y Gracia;
+g) Universidad de Costa Rica;
+h) Universidad Nacional;
+i) Universidad Estatal a Distancia;
+j) Instituto Tecnológico de Costa Rica;
+k) Consejo Nacional de Investigaciones Científicas y Tecnológicas; y
+l) Consejo Nacional de Rectores, Oficina de Planificación de la Educación Superior.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 14695 del 6 de julio de 1983).
