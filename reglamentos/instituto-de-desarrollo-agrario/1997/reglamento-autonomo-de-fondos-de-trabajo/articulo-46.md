@@ -1,0 +1,1 @@
+Artículo 46.—Todo reembolso del Fondo de Trabajo, deberá respaldarse con documentos originales que serán revisados en cuanto a su integridad y autenticidad y marcados con un sello de "Cancelado de Fondo de Trabajo", a efecto de que no puedan ser reutilizados posteriormente.

@@ -1,0 +1,1 @@
+Artículo 21.—Será responsabilidad del o la Contadora Regional el mantener el debido control presupuestario, de forma tal que no se gire suma alguna del Fondo destinada a aquellos gastos que no estén contemplados en el presupuestó aprobado para cada región.

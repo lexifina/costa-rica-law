@@ -1,0 +1,1 @@
+Artículo 13.—No se permite pagos hechos con dinero del Fondo de Trabajo, de comprobantes anteriores a 15 días de la emisión del cheque, por lo que los gastos deberán administrarse de conformidad con el presupuesto y el monto del Fondo y no haciendo uso del crédito.

@@ -1,0 +1,1 @@
+Artículo 45.—El fraccionamiento de facturas queda prohibido según lo estipula el artículo 20 del Reglamento de Contratación Administrativa. Las compras de bienes y servicios que superen el monto autorizado, deben tramitarse ya sea por medio de adelanto de fondos u orden de compra.

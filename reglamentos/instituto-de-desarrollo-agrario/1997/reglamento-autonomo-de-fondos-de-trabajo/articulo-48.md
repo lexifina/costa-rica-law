@@ -1,0 +1,1 @@
+Artículo 48.—Cualquier asunto relacionado con la materia no contemplado en el presente reglamento se entenderá regulado por la Ley General de Administración Financiera de la República, la Ley y el Reglamento de Contratación Administrativa, el Reglamento de Viáticos y las Normas de Control establecidas por la Contraloría General de la República.

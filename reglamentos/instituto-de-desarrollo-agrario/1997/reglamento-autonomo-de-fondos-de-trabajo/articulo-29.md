@@ -1,0 +1,2 @@
+Artículo 29.—El Encargado del Fondo de Trabajo deberá solicitar los reintegros con la antelación necesaria para que el dinero no llegue a agotarse. Es aconsejable efectuar un reintegro cuando las cantidades pagadas asciendan como mínimo al 50 por ciento de la suma total del fondo.
+Para el efecto deberá utilizarse el formulario respectivo, además los comprobantes de caja para efectuar reembolsos no deben sobrepasar los quince días desde la fecha de pago o fecha de compra.

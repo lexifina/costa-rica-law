@@ -1,0 +1,1 @@
+Artículo 31.—Vencido el término de liquidación sin que el. funcionario responsable la haya efectuado, el encargado del Fondo o el Jefe Inmediato, deberá comunicarlo al Superior Jerárquico, a la Auditoría y al interesado, para que se tomen las medidas que el caso amerite.

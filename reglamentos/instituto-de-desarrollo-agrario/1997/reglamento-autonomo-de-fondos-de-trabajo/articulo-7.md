@@ -1,0 +1,1 @@
+Artículo 7°—La Contabilidad General registrará los doceavos correspondientes y procederá mensualmente a descargar dicha cuenta, conforme a los reportes contables de Ingresos y Gastos que informe la Dirección Regional, de conformidad con el sistema financiero contable regional.

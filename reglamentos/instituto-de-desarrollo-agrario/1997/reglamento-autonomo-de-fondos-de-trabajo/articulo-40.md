@@ -1,0 +1,1 @@
+Artículo 40.—Los encargados del Fondo de Trabajo están en la obligación de efectuar la retención conforme a lo establecido en la Ley de Justicia Tributaria. Las sumas retenidas deben ser reintegradas en las Oficinas Regionales de Tributación Directa o Centrales, según sea el caso, en los primeros 10 días hábiles de cada mes, con su respectivo detalle.

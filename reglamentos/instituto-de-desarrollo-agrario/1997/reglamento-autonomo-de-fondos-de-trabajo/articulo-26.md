@@ -1,0 +1,1 @@
+Artículo 26.—En caso de ausencias por vacaciones, permisos, renuncias, el superior del funcionario encargado del Fondo de Trabajo, enviará por escrito al Departamento Financiero y a la Auditoría, el nombre del nuevo funcionario designado como encargado. Dicha comunicación deberá estar firmada por quien entrega, por quien recibe y por el Jefe Inmediato.

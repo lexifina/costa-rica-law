@@ -1,0 +1,1 @@
+Artículo 35.—Cualquier faltante de dinero, sin justificación alguna, deberá ser reintegrado en forma inmediata, así mismo en caso de un sobrante deberá reintegrarlo a la Caja General del Instituto, por medio de un ingreso de caja.

@@ -1,0 +1,1 @@
+Artículo 16.—Será responsabilidad del o la contadora regional en donde se lleve el Fondo de Trabajo, preparar los cierres contables basados en los informes originales de las Regionales y enviarlos a la Contabilidad General el día 25 de cada mes, debidamente firmados por el Director Regional.

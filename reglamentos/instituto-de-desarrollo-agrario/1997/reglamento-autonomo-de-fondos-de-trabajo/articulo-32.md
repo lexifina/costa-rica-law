@@ -1,0 +1,1 @@
+Artículo 32.—El Encargado del Fondo de Trabajo, no desembolsará ningún vale al funcionario que tenga vencida la liquidación de otro anterior. Estos vales serán de giro restringido y en casos de suma urgencia o situaciones especiales que autorizará el superior de la unidad donde se cuente con el Fondo de Trabajo.

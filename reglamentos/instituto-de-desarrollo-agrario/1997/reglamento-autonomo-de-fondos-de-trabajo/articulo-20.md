@@ -1,0 +1,1 @@
+Artículo 20.—La Dirección Regional, en los casos en que corresponda deberá implantar y supervisar adecuadamente un sistema de Control Interno que garantice que a un funcionario, no se le gire de nuevo un adelanto de viáticos sin haber liquidado el anterior oportunamente de conformidad con los reglamentos respectivos.

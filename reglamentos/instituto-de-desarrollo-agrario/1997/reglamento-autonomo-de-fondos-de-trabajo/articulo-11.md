@@ -1,0 +1,1 @@
+Artículo 11.—La Cuenta Corriente del Fondo de Trabajo, deberá conciliarse con el estado de cuenta que mensualmente envía el Banco y mantenerse en la Dirección Regional, en un archivo consecutivo de fácil división y consulta.
