@@ -1,0 +1,1 @@
+Artículo 41.—Situación jurídica del fondo. El Fondo tendrá plena personalidad jurídica y, en particular, capacidad para concertar acuerdos internacionales con Estados y organizaciones internacionales, celebrar contratos, adquirir y enajenar bienes muebles e inmuebles e iniciar procedimientos judiciales.

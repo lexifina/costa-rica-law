@@ -1,0 +1,1 @@
+Artículo 43.—Inmunidad de los activos contra otras medidas. Los bienes y demás activos del Fondo, dondequiera que se hallen y quienquiera que los tenga en su poder, no podrán ser objeto de ningún registro, requisa, confiscación, expropiación o cualquier otra forma de injerencia o comiso por decisión del poder ejecutivo o el poder legislativo.

@@ -1,0 +1,6 @@
+CAPÍTULO XII
+Interpretación y arbitraje
+Artículo 52.—Interpretación.
+1. Toda divergencia acerca de la interpretación o aplicación de las disposiciones del presente Convenio que surja entre cualquier Miembro y el Fondo, o entre los propios Miembros, será sometida a la decisión de la Junta Ejecutiva. Dicho Miembro o dichos Miembros tendrán derecho a participar en las deliberaciones de la Junta Ejecutiva durante el examen de esa divergencia, de conformidad con las normas y reglamentos que adopte el Consejo de Gobernadores.
+2. En todos los casos en que la Junta Ejecutiva haya adoptado una decisión de conformidad con el párrafo 1 de este artículo, cualquier Miembro podrá pedir, en un plazo de tres meses a partir de la fecha de la notificación de la decisión, que ésta sea sometida al Consejo de Gobernadores, el cual adoptará una decisión en su próxima reunión por mayoría muy calificada. La decisión del Consejo de Gobernadores será definitiva.
+3. Cuando el Consejo de Gobernadores no haya podido llegar a una decisión con arreglo al párrafo 2 de este artículo, la cuestión será sometida a arbitraje de conformidad con los procedimientos establecidos en el párrafo 2 del artículo 53, siempre que cualquier Miembro lo solicite en un plazo de tres meses después del último día en que se haya examinado la cuestión en el Consejo de Gobernadores.

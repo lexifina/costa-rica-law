@@ -1,0 +1,4 @@
+Artículo 3º—Funciones. Para la consecución de sus objetivos, el Fondo ejercerá las siguientes funciones:
+a) Contribuir, por conducto de su Primera Cuenta y conforme a lo dispuesto en el presente Convenio, a la financiación de reservas de estabilización internacionales y de reservas nacionales coordinadas internacionalmente, todo ello en el marco de convenios internacionales de productos básicos;
+b) Financiar, por conducto de su Segunda Cuenta y conforme a lo dispuesto en el presente Convenio, medidas en el campo de los productos básicos distintas de la constitución de reservas.
+c) Fomentar, por conducto de su Segunda Cuenta, la coordinación y las consultas con respecto a las medidas en el campo de los productos básicos distintas de la constitución de reservas y a su financiación, con miras a proveer un enfoque basado en los productos básicos.

@@ -1,0 +1,5 @@
+Artículo 12.—Suficiencia de las suscripciones de acciones de capital aportado directamente.
+1. Si 18 meses después de la entrada en vigor del presente Convenio las suscripciones de acciones de capital aportado directamente fueren inferiores a la suma especificada en el apartado a del párrafo 1 del artículo 9, el Consejo de Gobernadores examinará lo antes posible si las suscripciones son suficientes.
+2. El Consejo de Gobernadores examinará también, con la periodicidad que estime conveniente, si la parte del capital aportado directamente asignada a la Primera Cuenta es suficiente. El primero de estos exámenes se realizará a más tardar a final del tercer año después de la entrada en vigor del presente Convenio.
+3. Como consecuencia de uno de los exámenes realizados en virtud de lo dispuesto en los párrafos 1 ó 2 de este artículo, el Consejo de Gobernadores podrá tomar la decisión de autorizar la suscripción de las acciones no suscritas o de emitir más acciones de capital aportado directamente en la proporción que decida.
+4. Las decisiones que tome el Consejo de Gobernadores en virtud de este artículo se adoptarán por mayoría muy calificada.

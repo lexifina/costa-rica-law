@@ -1,0 +1,3 @@
+Artículo 49.—Renuncia a inmunidades, exenciones y privilegios.
+1. Las inmunidades, exenciones y privilegios que se establecen en este capítulo se conceden en interés del Fondo. El Fondo podrá en la medida y en las condiciones que determine, renunciar a las inmunidades, exenciones y privilegios establecidos en este capítulo en los casos en que esa renuncia no perjudique los intereses del Fondo.
+2. El Director Gerente tendrá la facultad, delegada en él por el Consejo de Gobernadores, y el deber, de renunciar a la inmunidad de todo miembro del personal o de todo experto que desempeñe misiones para el Fondo en los casos en que la inmunidad entorpecería el curso de la justicia y en que pueda renunciarse a tal inmunidad sin perjudicar los intereses del Fondo.
