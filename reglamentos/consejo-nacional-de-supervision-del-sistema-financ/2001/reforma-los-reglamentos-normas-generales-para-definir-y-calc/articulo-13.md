@@ -1,0 +1,3 @@
+13. Adicionar al Anexo "Nomenclatura de Datos Adicionales que se utilizarán en el detalle de los numeradores denominadores de los indicadore de la calificación global de este Reglamento" del Acuerdo SUGEF 27- 00 "Reglamento para Juzgar la situación económica Financiera de las Asociaciones Mutualistas de Ahorro y Préstamo para la Vivienda", las siguientes variables externas:
+20041 Estimaciones Genéricas, hasta el 1.25% de los activos ponderados por riesgo de la entidad.
+20042 Monto de las estimaciones mínimas para la cartera clasificada en categorías de riesgo B2, C,D y E según el Acuerdo SUGEF- 1-95.
