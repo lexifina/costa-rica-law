@@ -1,0 +1,2 @@
+Artículo 11.—Autorízase al Colegio Universitario de Limón para celebrar convenios con cualquier universidad pública dentro del marco jurídico generado por el Convenio de Articulación y Cooperación de la Educación Superior Estatal de Costa Rica.
+Asimismo, se le autoriza para celebrar convenios con universidades nacionales e internacionales, con el objeto de promover la cooperación con instituciones públicas y privadas, a fin de que pueda cumplir los fines establecidos en esta ley.
