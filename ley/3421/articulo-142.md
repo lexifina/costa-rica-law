@@ -1,1 +1,0 @@
-Artículo 142.- También serán vendidas en pública subasta, por autoridad competente, las mercancías caídas en comiso, conforme a las disposiciones legales en materia de contrabando y defraudación fiscal.

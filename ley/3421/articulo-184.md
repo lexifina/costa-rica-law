@@ -1,2 +1,0 @@
-Artículo 184.- Los países signatarios se comprometen a no conceder a terceros países facilidades aduaneras más amplias que aquellas previstas en el presente Código o sus reglamentos.
-Asimismo se comprometen a renegociar los acuerdos multilaterales o bilaterales vigentes con países no centroamericanos, cuando tales acuerdos ofrezcan o garanticen facilidades aduaneras mayores que las previstas en este Código o sus reglamentos. A este efecto se liberarán del compromiso adquirido dentro del plazo de un año a partir de la fecha de vigencia de ese Código.

@@ -1,1 +1,0 @@
-Artículo 44.- Los vehículos extranjeros que transporten mercancías para el interior del país y que no salgan de éste dentro del plazo fijado por los reglamentos pagarán los derechos aduaneros a que hubiere lugar.

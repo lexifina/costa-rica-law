@@ -1,1 +1,0 @@
-Artículo 124.- Los concesionarios de los almacenes generales responderán ante el Fisco de la custodia y conservación de las mercancías depositadas en sus locales, así como de los derechos aduaneros y demás cargos a que esté afectadas, sin perjuicio de otras responsabilidades que correspondan de conformidad con este Código y demás leyes aplicables.

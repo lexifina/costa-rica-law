@@ -1,2 +1,0 @@
-Artículo 149.- Las infracciones aduaneras comprendidas en el artículo anterior se penarán con una multa en moneda nacional expresada en una unidad monetaria equivalente al dólar de los Estados Unidos de América no menor a cinco ni mayor de cien dólares.
-Las multas señaladas en este artículo serán aplicadas sin perjuicio de las responsabilidades civiles y criminales a que diere lugar el hecho, de conformidad con la correspondiente ley nacional.

@@ -1,1 +1,0 @@
-Artículo 178.- Las reclamaciones sobre casos no previstos en el artículo 167, podrán promoverse de conformidad con las disposiciones legales aplicables en cada país, y contra las resoluciones que se dicten cabrán los recursos que dichas leyes establezcan.

@@ -1,1 +1,0 @@
-Artículo 83.- En la póliza se declara el peso bruto en kilogramos; pero cuando el Convenio Centroamericano sobre Equiparación de Gravámenes a la Importación y sus protocolos, especifiquen otra unidad de medida para la aplicación del impuesto, deberá, además, declararse la cantidad sobre esta base.

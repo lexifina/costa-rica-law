@@ -1,1 +1,0 @@
-Artículo 93.- El Vista revisará la póliza y sus documentos; verificará los datos de aquélla; procederá a clasificar las mercancías de acuerdo con el arancel, efectuará el cálculo de los derechos aduaneros, tasas y demás cargos aplicables, anotará en la póliza los demás resultados de su actuación y la firmará.

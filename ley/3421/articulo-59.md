@@ -1,1 +1,0 @@
-Artículo 59.- El equipaje de los viajeros o de los tribunales de cualquier vehículo que arribe al país, esté o no anotado en los manifiestos deberá ser presentado en la Aduana. Se exceptúan los equipajes de tripulantes o pasajeros que sigan en viaje en el misma vehículo hace el exterior.

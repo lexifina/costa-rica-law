@@ -1,1 +1,0 @@
-Artículo 64.- La recepción de la mercancía se hará con base en el manifiesto y en presencia del portador o de su representante. Si éste no concurriere al acto de la entrega, las anotaciones que haga la autoridad aduanera se considerarán correctas y serán inapelables.

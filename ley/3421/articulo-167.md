@@ -1,1 +1,0 @@
-Artículo 167.- Las reclamaciones contra las actuaciones de las autoridades aduaneras en el proceso de aforo, incluyendo la liquidación de la póliza, o sobre multas e interpretaciones a este Código, se sujetarán a las disposiciones de este Título.

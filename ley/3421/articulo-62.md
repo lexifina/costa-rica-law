@@ -1,3 +1,0 @@
-Artículo 62.- Las mercancías destinadas a una Aduana determinada podrán descargarse en otra Aduana, con autorización previa de la Dirección General de Aduanas, siempre que la protección de dichas mercancías o del vehículo que las transporte lo justifique, se carezca de espacio en la Aduana destinataria, o concurran circunstancias especiales que ameriten esta medida.
-Cuando se solicite que la descarga se haga en una Aduana distinta de la de destino, podrá accederse a ello, y se efectuará por cuenta y riesgo del solicitante.
-Cuando sea la autoridad aduanera la que disponga de oficio la descarga de las mercancías en otra Aduana distinta de la de destino, el Estado responderá por los gastos y riesgos correspondientes, siempre que se pruebe culpa o negligencia de su parte.

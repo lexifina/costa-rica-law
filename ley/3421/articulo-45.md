@@ -1,1 +1,0 @@
-Artículo 45.- En el caso de aeronaves que no se dediquen a servicios aéreos internacionales regulares, la fianza u otra garantía financiera que se pueda exigir por concepto de derechos aduaneros por dichas aeronaves se referirá a lo que dispone el Convenio de Aviación Civil Internacional.

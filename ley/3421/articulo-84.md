@@ -1,1 +1,0 @@
-Artículo 84.- Las normas indicadas en los artículo anteriores se aplicarán a los formularios aduaneros exigidos por los convenios centroamericanos de libre comercio siempre que en éstos no se indique otra cosa.

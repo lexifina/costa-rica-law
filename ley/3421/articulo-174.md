@@ -1,1 +1,0 @@
-Artículo 174.- Si la inconformidad del interesado surgiere después de cancelada la póliza, podrá reclamar directamente ante la Dirección General de Aduanas dentro de los treinta días siguientes a la fecha de su cancelación.

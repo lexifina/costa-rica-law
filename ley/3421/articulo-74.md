@@ -1,1 +1,0 @@
-Artículo 74.- En todos los almacenes o lugares habilitados para el almacenamiento de mercancías bajo la potestad de la Aduana, se practicarán inventarios con la periodicidad que se considere conveniente.
