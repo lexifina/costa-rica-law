@@ -1,0 +1,1 @@
+Artículo 3°-En la zona conocida como La Lechería, dentro del refugio citado, se impulsará la construcción y ejecución de una estación experimental con especies menores, que contribuya a solventar en parte los problemas sociales y económicos en dicha región.

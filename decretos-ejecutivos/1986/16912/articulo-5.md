@@ -1,0 +1,1 @@
+Artículo 5°-Se establece en diez hectáreas el área de la parcela mínimo productiva. Po lo tanto no pueden autorizarse segregaciones cuyas parcelas resultantes sean inferiores a esa unidad mínimo productiva.

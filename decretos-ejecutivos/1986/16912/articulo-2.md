@@ -1,0 +1,1 @@
+Artículo 2°-Todas las construcciones y proyectos turísticos que se pretendan desarrollar dentro del área del refugio, deberán contar con la autorización previa de la Subdirección General de Vida Silvestre de la Dirección General Forestal del Ministerio de Agricultura y Ganadería y demás oficinas gubernamentales involucradas en esta actividad.
