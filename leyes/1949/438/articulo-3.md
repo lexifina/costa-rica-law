@@ -1,0 +1,2 @@
+Sustitución de miembros
+Artículo 3º.- Cuando sea necesario sustituir miembros por alguna de las causales citadas en el Artículo 6º de la ley constitutiva de la Corporación, ésta lo pondrá en conocimiento del Ministerio de Agricultura, a efecto de que el Ministro solicite al organismo correspondiente la reposición del miembro en la misma forma señalada por el artículo 2º ibídem y para la terminación del período respectivo.

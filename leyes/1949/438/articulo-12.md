@@ -1,0 +1,2 @@
+Construcción y conservación de fábricas
+Artículo 12.- La Corporación montará fábricas de abonos orgánicos en las poblaciones que a su juicio dispongan de desechos urbanos y de materiales aprovechables suficientes para una explotación económica y cuidará de la conservación, mejoramiento y ampliación de éstas. Para dicha instalación, la Corporación consultará con el Ministerio de Salubridad Pública y se someterá a las disposiciones legales vigentes en materia de higiene.

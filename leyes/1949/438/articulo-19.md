@@ -1,0 +1,2 @@
+Venta de abonos.-Precios.-Distribución equitativa
+Artículo 19.- La Corporación fijará los precios de venta de los abonos que fabrique según su calidad y costo, de tal manera que no resulten gravosos para los agricultores que los compren ni produzcan ganancias excesivas para la Corporación. Es prohibido vender a cualquier institución o persona a precios más bajos que los fijados a los agricultores. Mientras la producción no llene las necesidades de la demanda, se hará una distribución equitativa de los abonos fabricados.

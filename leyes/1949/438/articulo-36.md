@@ -1,0 +1,2 @@
+Entrega de desechos
+Artículo 36.- Los Municipios, o el organismo oficial que tenga a su cargo la recolección de las basuras y desechos urbanos, entregarán éstos en la propia fábrica de abonos, siempre que no se les cause perjuicio económico, la cual deberá estar ubicada, de acuerdo con el Ministerio de Salubridad Pública, a una distancia prudencial de las respectivas localidades, sin que aquéllos directa o indirectamente puedan cobrarle a la Corporación por el acarreo o por el valor de las basuras y desechos.
