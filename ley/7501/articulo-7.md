@@ -27,3 +27,4 @@ la caja única del Estado y, una vez cumplidos los trámites de ley, serán
 presupuestadas en favor de la Asociación Lucha contra el Cáncer Infantil.
 El concepto de "salario base", usado en esta Ley, es el establecido en el
 artículo 2 de la Ley No. 7337, del 5 de mayo de 1993.
+(NOTA: sobre "salario base", ver Observaciones de la ley)
