@@ -1,0 +1,1 @@
+Artículo 121.—En lo relativo al uso del suelo se deberán respetar los usos compatibles, condicionales e incompatibles señalados para la zona en la cual se asiente el círculo antes mencionado alrededor de los puntos de interés arqueológico o cultural.

@@ -1,0 +1,1 @@
+Artículo 104.—Requisitos. Lo que la Dirección de Ordenamiento Territorial y Urbanismo, en conjunto con el Ministerio de Salud, establezcan con base en el acatamiento de la legislación relativa a manejo de rellenos sanitarios.

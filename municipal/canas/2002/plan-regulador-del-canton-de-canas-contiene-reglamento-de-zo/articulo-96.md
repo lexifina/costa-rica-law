@@ -1,0 +1,1 @@
+Artículo 96.—Delimitación espacial y generalidades. Esta zona está constituida por el conjunto de equipamientos turísticos consolidados en las cercanías de la intersección del río Corobicí con la carretera interamericana.

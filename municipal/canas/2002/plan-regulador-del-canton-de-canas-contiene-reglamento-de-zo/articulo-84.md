@@ -1,0 +1,1 @@
+Artículo 84.—Cuando se desee construir o aprovechar más de un piso en un establecimiento industrial, para desarrollar procesos industriales o de almacenamiento, se exigirá al interesado un estudio que demuestre que la actividad en pisos superiores no implica riesgos para la seguridad de los trabajadores, usuarios y vecinos.

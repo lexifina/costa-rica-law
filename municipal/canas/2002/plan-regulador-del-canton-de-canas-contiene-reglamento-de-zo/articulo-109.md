@@ -1,0 +1,1 @@
+Artículo 109.—Delimitación espacial y generalidades. Las zonas de protección son los espacios rurales que incluyen las zonas de protección a los cauces de ríos, según lo establecido en la Ley Forestal, u otras zonas que con base en los estudios de instituciones competentes, se delimiten en un futuro tales como: sitios de recarga acuífera o manantiales.

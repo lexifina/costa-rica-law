@@ -1,0 +1,5 @@
+CAPÍTULO NOVENO
+Vialidad y transporte
+Zonas de vialidad y transportes
+Artículo 130.—Delimitación espacial y generalidades. La vialidad está constituida por el conjunto de componentes o espacios destinados a la circulación o desplazamiento de vehículos y peatones. Para efectos del Plan de Ordenamiento, ya sea en el medio urbano o rural, el plan distinguirá dos formas de vialidad: vehicular y peatonal.
+El transporte está constituido por el conjunto de componentes destinados al traslado y movilización de personas y mercancías de un sitio a otro. Para efectos del Plan Regulador, ya sea en el medio urbano o rural, este se clasificará en urbano, suburbano, regional y nacional; cada uno de ellos en función de su alcance, colectivo o individual, de acuerdo a la utilización de los medios o unidades de transporte; de carga o de pasajeros, atendiendo al elemento transportado automotor, eléctrico, pedestre, u otro.

@@ -1,0 +1,1 @@
+Artículo 15.—Instrumentación del Plan Regulador. La Dirección de Ordenamiento Territorial y Urbanismo de la Municipalidad deberá definir los instrumentos y procedimientos, sistemas, medios y recursos que permitan llevar a cabo lo establecido en el reglamento, tanto en su formación institucional, como en su operación, seguimiento y posterior actualización.

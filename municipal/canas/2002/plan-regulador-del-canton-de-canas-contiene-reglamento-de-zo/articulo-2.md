@@ -1,0 +1,1 @@
+Artículo 2º—Dentro de los límites de las disposiciones legales y reglamentarias en vigor, los permisos de construcción, de fraccionamiento y urbanización, los permisos de explotación, patentes u otros, y certificados de uso serán expedidos conforme al presente Plan Regulador del Cantón, tal como lo establece la ley.

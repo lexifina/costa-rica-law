@@ -1,0 +1,1 @@
+Artículo 143.—Derogación, modificación, actualización y ampliación del Plan Regulador. Para la derogación, modificación, actualización y ampliación del Plan de Ordenamiento Territorial, en forma total o parcial, será preciso cumplir las disposiciones y procedimientos que señala el artículo 17 de la Ley de Planificación Urbana.

@@ -1,0 +1,1 @@
+Artículo 59.—Delimitación espacial y generalidades. Las zonas de hábitat rural, donde coexisten actividades mixtas residencial-comercial, a nivel rural. Están demarcadas en el Plano de Uso del Suelo y nominadas bajo las siglas HRC.

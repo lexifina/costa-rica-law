@@ -1,0 +1,4 @@
+Artículo 136.—Vías urbanas nacionales terciarias (vías nacionales, interurbanas, intercantonales). Las Vías urbanas nacionales terciarias (vías nacionales, interurbanas, intercantonales) constituyen las arterias colectoras de tránsito para las vías primarias y secundarias, así como de enlace entre los centros de población de segundo orden, es decir, cabeceras de cantones pequeños y distritos urbanos.
+El derecho de vía oscilará entre veinticuatro y treinta metros, dependiendo de su ubicación, como se indica en el Mapa de Zonificación.
+Estas vías tendrán dos o cuatro carriles de tres metros con cincuenta centímetros cada uno. Las aceras tendrán tres metros de ancho como mínimo, quedando el resto del derecho de vía como zona verde. En estas vías la velocidad de diseño oscilará entre treinta y cuarenta kilómetros por hora.
+En estas vías se requiere un retiro de tres metros.

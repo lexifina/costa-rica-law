@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE CAÑAS
+MODIFICACIÓN AL PLAN REGULADOR
+DE CAÑAS, GUANACASTE
+La Municipalidad del cantón de Cañas, en adelante denominada Municipalidad, en ejercicio de las facultades que le otorga la Ley de Planificación Urbana Nº 4240, del quince de noviembre de 1968 y sus modificaciones, en sus artículos: 15, 19 y siguientes y concordantes, Ley del Ambiente, Nº 7554 del 4 de octubre de 1995; así como del Código Municipal, Ley Nº 7794 del treinta de abril de 1998 y con la aprobación de la Dirección de Urbanismo, promulga la presente modificación al Plan Regulador vigente, en adelante denominado Plan Regulador del cantón de Cañas, o con sus siglas P.R., con carácter y alcances de Plan Regulador Cantonal, el cual estará compuesto por los mapas y planos de Uso del Suelo, Densidades Residenciales y Vialidad y Transporte, por esquemas y textos complementarios y por los Reglamentos de Zonificación del Uso del Suelo, y el de Vialidad y Transporte, los cuales regirán a partir de su publicación en el Diario Oficial.
+TÍTULO PRIMERO
+CAPÍTULO PRIMERO
+Disposiciones orientadoras del Plan Regulador
+Artículo 1º—El presente Plan Regulador tiene valor reglamentario de acuerdo a la Ley de Planificación Urbana Nº 4240 del 15 de noviembre de 1968 y sus reformas, mediante Leyes Nº 4574 del 4 de mayo de 1970, 4971 del 29 de abril de 1972, Nº 6575 del 27 de abril de 1981, Nº 6595 del 6 de agosto de 1981, Nº 7015 del 22 de julio de 1985 y Nº 7495 del 3 de mayo de 1995 y sus disposiciones serán de aplicación y acatamiento obligatorio para todas las personas físicas y jurídicas del cantón de Cañas, modificando el Plan vigente.

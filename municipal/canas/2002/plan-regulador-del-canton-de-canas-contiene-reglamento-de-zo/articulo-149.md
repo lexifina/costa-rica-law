@@ -1,0 +1,1 @@
+Artículo 149.—Rige. La presente modificación al Reglamento del Plan Regulador rige a partir de su adopción formal posterior a la audiencia pública convocada al efecto y en la cual se establecerá la fecha a partir de la cual serán exigibles sus regulaciones.

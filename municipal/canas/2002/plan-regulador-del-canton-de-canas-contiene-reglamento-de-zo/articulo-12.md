@@ -1,0 +1,1 @@
+Artículo 12.—Espacios verdes, espacios agrícolas. El desarrollo y establecimiento de espacios verdes está autorizado en todas las zonas, siempre y cuando se respeten las normas de equipamiento e infraestructura así como la legislación ambiental vigente.

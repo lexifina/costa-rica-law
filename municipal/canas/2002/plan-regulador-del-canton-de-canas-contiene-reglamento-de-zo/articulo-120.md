@@ -1,0 +1,1 @@
+Artículo 120.—Propósitos. En estas zonas se asegurará una mejor protección del patrimonio arqueológico-cultural. En esta zona, el perímetro será definido por un "radio de protección de 500 metros de sus alrededores, pudiéndose modificar el perímetro de esta zona tomando en consideración nuevos descubrimientos o pronunciamientos del Museo Nacional.

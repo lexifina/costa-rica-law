@@ -1,0 +1,1 @@
+Artículo 45.—Permisos y normas de presentación de proyectos. Para efectos de cumplir con la Ley Nº 8220, la Municipalidad deberá establecer los procedimientos que los usuarios deberán seguir para el trámite de permisos y la presentación de proyectos.

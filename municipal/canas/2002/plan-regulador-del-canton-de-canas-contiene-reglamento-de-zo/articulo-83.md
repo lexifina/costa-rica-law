@@ -1,0 +1,2 @@
+Artículo 83.—Para garantizar la seguridad y el adecuado funcionamiento de las actividades industriales, las empresas deberán cumplir las medidas de seguridad pertinentes y la ubicación de personal de seguridad que permita la mitigación de un riesgo o emergencia.
+Previamente al otorgamiento de la autorización deberá someterse el anteproyecto y otras disposiciones de los trabajos respectivos, a los órganos de consulta y a otras medidas particulares de publicidad establecidas en el presente Reglamento.

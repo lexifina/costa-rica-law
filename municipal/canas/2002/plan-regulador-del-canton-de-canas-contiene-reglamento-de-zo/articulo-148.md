@@ -1,0 +1,2 @@
+Artículo 148.—Régimen de responsabilidad común. La aplicación de las anteriores medidas administrativas no enerva o excluyen las responsabilidades personales de orden civil y penal que pudiera generarse en contra del infractor.
+Serán acreedores a dichas sanciones tanto los infractores como los funcionarios municipales que toleren o permitan por acción u omisión la violación a las disposiciones del presente Reglamento.

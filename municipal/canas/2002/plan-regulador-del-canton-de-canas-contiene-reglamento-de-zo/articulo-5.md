@@ -1,0 +1,1 @@
+Artículo 5º—Con base en lo estipulado en el artículo 45 de la Constitución Política de la República, artículos 4º y 13 de la Ley Nº 7794 del 30 de abril de 1998, la Municipalidad a partir del Plan de Ordenamiento Territorial puede establecer las disposiciones de interés público para adquirir o controlar el suelo.

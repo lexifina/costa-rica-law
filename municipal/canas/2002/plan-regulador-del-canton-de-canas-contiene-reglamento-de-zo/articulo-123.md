@@ -1,0 +1,1 @@
+Artículo 123.—Propósitos. Se pretende delimitar las áreas dentro de las cuales no se permitirá construcción, con el objetivo de evitar riesgos sobre la salud e infraestructura, utilizando el principio precautorio.

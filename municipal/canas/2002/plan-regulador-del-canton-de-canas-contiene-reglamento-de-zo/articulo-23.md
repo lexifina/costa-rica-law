@@ -1,0 +1,1 @@
+Artículo 23.—Vigencia de las regulaciones generales existentes y nuevas. Las regulaciones establecidas en los reglamentos generales, sobre materias afines existentes a la fecha de entrada en vigencia del presente Reglamento, y que no se opongan a sus normas, mantendrán su vigencia y aplicación.

@@ -1,0 +1,1 @@
+Artículo 37.—Requisitos e indicadores generales de dosificación de usos del suelo. Los requisitos e indicadores generales de dosificación de uso del suelo son las condiciones de aplicación a los usos del suelo urbano, los usos constructivos y los usos de otro tipo de actividades espaciales que afectan el suelo o a las edificaciones.

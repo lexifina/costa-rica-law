@@ -1,0 +1,1 @@
+Artículo 71.—Para garantizar la seguridad y el adecuado funcionamiento de las actividades industriales, las empresas deberán cumplir con la normativa vigente en medidas de seguridad y mitigación de riesgo o emergencias.
