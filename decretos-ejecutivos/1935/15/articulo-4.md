@@ -1,0 +1,1 @@
+Artículo 4°—Al rendir el informe que prescribe el artículo anterior, el Banco Internacional tomará en consideración las condiciones climatéricas del lugar en que ha de operar el Almacén, y los requisitos especiales que exige el almacenaje de los diferentes granos, frutos o mercancías.

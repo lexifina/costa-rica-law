@@ -1,0 +1,1 @@
+Artículo 14.—El Banco hará revisar por un ingeniero civil o arquitecto, de su designación, los planos y presupuestos que se presenten, para saber si se ajustan en un todo a las especificaciones exigidas por la ley y el reglamento y si el presupuesto de costo de la construcción corresponde con las dimensiones, calidad y demás detalles del edificio proyectado.

@@ -1,0 +1,3 @@
+Capítulo IV
+De los préstamos para la construcción de Almacenes
+Artículo 13.—La Junta Directiva del Banco Internacional de Costa Rica tramitará solamente aquellas solicitudes de préstamos para construcción de edificios que se presenten con la autorización de la Secretaría de Hacienda, a que se refiere el artículo 3° de este reglamento, con los planos del proyecto de construcción y los presupuestos detallados del costo de la misma, debidamente firmados unos y otros por un ingeniero civil o arquitecto incorporado en la Facultad de Ingeniería, con el plano del lote donde se construirá el edificio, certificación del Registro de la Propiedad relativa al lote y todos los otros requisitos exigidos por la ley que se reglamenta.

@@ -1,0 +1,1 @@
+Artículo 15.—El Banco podrá exigir los cambios, reducciones en el costo, etc., que en su dictamen aconseje el ingeniero consultor, y si el solicitante no estuviere de acuerdo con ellos, podrá negar el préstamo.

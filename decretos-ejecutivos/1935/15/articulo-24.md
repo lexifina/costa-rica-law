@@ -1,0 +1,1 @@
+Artículo 24.—Las estructuras de cemento armado deberán ser proyectadas, calculadas y ejecutadas en un todo de acuerdo con el reglamento de 20 de julio de 1929, aprobado por la Secretaría de Gobernación en el acuerdo N° 90 de 6 de diciembre del mismo año.

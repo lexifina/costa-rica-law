@@ -1,0 +1,1 @@
+Artículo 22.—La luz natural del edificio y la ventilación serán objeto de detenido estudio de acuerdo con los requisitos de la técnica moderna para conservación de mercaderías y se tomará en cuenta la necesidad de oscurecer algunos departamentos cuando la conservación de las mercaderías lo requiera.

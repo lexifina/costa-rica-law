@@ -1,0 +1,1 @@
+Artículo 7°—Están igualmente obligados a presentarle mensualmente al Banco Internacional un estado demostrativo de sus inversiones al final de cada período, un balance de su activo y su pasivo a la misma fecha, y un informe detallado de las operaciones de préstamo realizadas en el período.
