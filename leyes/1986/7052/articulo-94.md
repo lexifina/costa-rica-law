@@ -1,3 +1,3 @@
-Artículo 94.- Los ahorrantes podrán retirar sus ahorros en cualquier
-momento. Sin embargo, cuando el Banco lo considere conveniente, podrá
-establecer un preaviso de hasta treinta días para el retiro.
+Artículo 94.- DEROGADO.
+(Derogado por el artículo 164 de la Ley Orgánica del Banco Central
+de Costa Rica, Nº 7558 de 3 de noviembre de 1995)

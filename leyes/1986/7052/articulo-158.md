@@ -1,7 +1,8 @@
 Artículo 158.- Previa autorización del Banco, en cada caso, las
-entidades autorizadas estarán facultadas para otorgar financiamiento puente
-o interino para la preparación y ejecución de conjuntos habitacionales, así
-como también para las obras y servicios complementarios.
+entidades autorizadas estarán facultadas para otorgar financiamiento
+puente o interino para la preparación y ejecución de conjuntos
+habitacionales, así como también para las obras y servicios
+complementarios.
 Las entidades autorizadas podrán otorgar este financiamiento,
 individualmente o en conjunto con otras entidades que se interesen. A
 petición de las entidades autorizadas, el Banco podrá, si lo estimare

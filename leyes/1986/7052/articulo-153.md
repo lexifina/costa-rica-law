@@ -1,30 +1,19 @@
-Artículo 153.- En caso de ejecución de créditos otorgados de
-conformidad con la presente ley, el deudor hipotecario estará debidamente
-notificado si se le hace en el lugar que en la escritura de constitución
-señaló como su domicilio.
-En el caso de cambio de domicilio, será obligación del deudor
-comunicarlo a la entidad prestamista por escrito, en cuyo caso el lugar de
-la notificación lo será el domicilio que indicó en último término. En el
-caso de que el notificador informare que el deudor hipotecario no se
-localiza en el lugar que indicó como su domicilio, el deudor podrá se
-notificado por medio de un edicto que se publicará en "La Gaceta" por tres
-veces, en intervalos de ocho días.
-Los acreedores hipotecarios de grado inferior serán notificados
-también en el domicilio que se indique en la respectiva escritura de
-constitución de la hipoteca, si no constare adecuadamente ese domicilio o
-si el notificador informara que en esa dirección no se localiza; o podrán
-ser notificados por edictos que se publicarán en "La Gaceta" por tres
-veces.
-En el caso de que se vendiera la propiedad, el nuevo adquirente
-deberá ser notificado en el domicilio que indicó en la escritura de venta.
-En el caso de que el domicilio que conste no pudiera localizarse, podrá
-ser notificado por edictos en la misma forma indicada para el acreedor
-hipotecario.
-En el caso de anotaciones de embargos sobre fincas con gravamen, a
-favor de algunas de las instituciones indicadas en la presente ley, el
-hecho podrá ser notificado por medio de edictos en la misma forma que se
-ha señalado en los casos anteriores.
-En el caso de remate, para participar en él se deberá depositar el
-cuarenta por ciento (40%) de la base, suma de la cual se aplicará el
-veinte por ciento (20%) para el pago de daños y perjuicios y el veinte por
-ciento (20%) para abono de la obligación.
+Artículo 153.- En el caso de ejecución de créditos otorgados ante el
+Banco o ante las entidades autorizadas, el deudor hipotecario, los
+acreedores hipotecarios de grado inferior, los terceros poseedores o
+demás anotantes, estarán debidamente notificados en el lugar en que
+indique la escritura de constitución del crédito, de adquisición del
+inmueble o en el documento anotado al margen del asiento de propiedad. El
+deudor hipotecario queda en la obligación de comunicar por escrito a los
+entes acreedores, cualquier cambio de domicilio.
+Si no constara domicilio alguno o, si el notificador informara que
+alguna de las partes por notificar no se localiza en el lugar indicado
+como su domicilio, se procederá a comunicarle por medio de un edicto, que
+se publicará en el Boletín Judicial por tres veces.
+El Banco y las entidades autorizadas no están obligados a comprobar
+la personería de sus representantes legales en cada juicio. Bastará con
+que lo hagan por una sola vez y que acrediten, en cada oficina donde se
+litigue, una certificación donde se indique el plazo de vigencia del
+poder con que se actúa.
+( Así reformado por el artículo 1º de la ley No.7208 del 21 de noviembre
+de 1990 ).
