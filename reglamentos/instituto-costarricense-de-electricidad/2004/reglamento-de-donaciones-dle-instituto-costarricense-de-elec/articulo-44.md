@@ -1,1 +1,2 @@
-Artículo 41.—En los casos que corresponda, la entidad beneficiaria será la responsable del trámite y obtención de refrendo y aprobación presupuestaria de la donación por parte de la Contraloría General de la República.
+Artículo 44.—Cuando por su naturaleza la aprobación de una solicitud de donación requiera la elaboración de contratos, y otros documentos legales, será responsabilidad de la Dirección Jurídica Institucional, la elaboración de estos documentos, previa coordinación con la Dirección de Proveeduría, Presidencia Ejecutiva, Gerencia General, Subgerencias respectivas, según corresponda.
+(Así corrida su numeración, en sesión No. 5630 de 23 de agosto de 2004, que lo pasó del artículo N° 40 al N° 44 actual).

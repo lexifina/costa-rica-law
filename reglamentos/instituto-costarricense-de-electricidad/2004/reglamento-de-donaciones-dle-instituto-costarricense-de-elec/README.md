@@ -15,3 +15,4 @@ Reglamento de donaciones dle Instituto Costarricense de Electricidad
 | --- | --- | --- |
 | 1 | 2004-06-03 | la propia norma |
 | 2 | 2004-08-10 | Reglamento 5630 (2004-08-23) |
+| 3 | 2004-08-23 | SINALEVI (sin norma nombrada) |

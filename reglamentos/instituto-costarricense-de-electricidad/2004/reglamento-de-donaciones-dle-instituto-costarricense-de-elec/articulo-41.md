@@ -1,1 +1,4 @@
-Artículo 38.—En donaciones aprobadas con restricciones, la entidad beneficiaria deberá ajustarse al uso, limitaciones y términos que le fueron impuestos por el ICE y señalados en la escritura pública respectiva. En caso de que se varíen el uso o los términos, el ICE a través de su Consejo Directivo, podrá revocar y dejar sin efecto la donación.
+TÍTULO III
+Disposiciones finales
+Artículo 41.—Una vez aprobada por el ICE una donación, el beneficiario queda obligado a permitir las inspecciones y verificaciones que el ICE crea conveniente, con la finalidad de evidenciar el uso y destino para el cual fue otorgado el bien que fue donado.
+(Así corrida su numeración, en sesión No. 5630 de 23 de agosto de 2004, que lo pasó del artículo N° 37 al N° 41 actual).

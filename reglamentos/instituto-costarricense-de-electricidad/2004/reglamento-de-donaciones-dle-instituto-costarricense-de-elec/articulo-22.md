@@ -1,5 +1,2 @@
-TÍTULO II
-De los tipos de donación
-CAPÍTULO I
-De la donación en dinero
-Artículo 19.—Las solicitudes de donación de dinero, que se formulen, además de cumplir con los requisitos señalados en este Reglamento, deberán venir acompañadas de la descripción del presupuesto debidamente detallado, del plan de inversión, la finalidad y el plazo estimado de ejecución del proyecto.
+Artículo 22.—El contenido del contrato de donación, sus especificaciones y la responsabilidad de cada una de las partes, serán definidos en los Contratos Tripartitos para el diseño y construcción de líneas de distribución con financiamiento total o parcial para clientes entre el Cliente, el Contratista y el ICE.
+(Así adicionado en sesión No. 5630 de 10 de agosto de 2004).

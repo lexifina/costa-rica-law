@@ -1,3 +1,2 @@
-TÍTULO III
-Disposiciones finales
-Artículo 37.—Una vez aprobada por el ICE una donación, el beneficiario queda obligado a permitir las inspecciones y verificaciones que el ICE crea conveniente, con la finalidad de evidenciar el uso y destino para el cual fue otorgado el bien que fue donado.
+Artículo 40.—La custodia, clasificación, avalúo y control de los materiales obsoletos y de desecho de toda la institución será competencia de la Dirección Administrativa Logística, en el Almacén Recuperación de Materiales. En el caso de materiales de desecho como el cobre, aluminio y plomo, deben mantenerse cada uno por separado y controlarse por peso. Las llantas, transformadores, envases, baterías y otros objetos cuya forma y uso corresponda a una unidad definida, deben controlarse por unidad.
+(Así corrida su numeración, en sesión No. 5630 de 23 de agosto de 2004, que lo pasó del artículo N° 36 al N° 40 actual).
