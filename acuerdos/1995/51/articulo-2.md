@@ -1,0 +1,1 @@
+Artículo 2°-Se prohibe la pesca en forma comercial con todo tipo de trasmallo chinchorro y red de arrastre en los esteros del país y en la zona interior del río Tempisque a partir de la Isla del Toro.

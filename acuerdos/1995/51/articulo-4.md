@@ -1,0 +1,1 @@
+Artículo 4°-El Instituto Costarricense de Pesca y Acuacultura coordinará realización de estudios técnicos y científicos en las zonas que se protegen, según los artículos anteriores, para poder evaluar los resultados de la medida tomada, así mismo realizará esfuerzos para estudiar otras áreas críticas de pesca.
