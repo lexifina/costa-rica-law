@@ -1,0 +1,1 @@
+ARTÍCULO 9°.-Los movimientos del ahorro y retiro del depósito a la vista deberán ser anotados en documentos independientes, que permanecer n en poder del asociado. Sin embargo, la cooperativa podrá registrar tales movimientos a través de otro sistema idóneo, a juicio del INFOCOOP y con su previa autorización.

@@ -1,0 +1,4 @@
+CAPITULO III
+De los depósitos a plazo
+ARTÍCULO 15.-Los depósitos a plazo son los recursos captados a un plazo fijo determinado que devengan un interés, ambos previamente establecidos y se encuentran representados por un documento denominado "Certificado Cooperativo de Depósito a Plazo". Las cooperativas solo podrán recibir esta clase de depósitos cuando así lo autorice la Asamblea General de Asociados o Delegados, según corresponda, con base en el estudio de planeación financiera que al efecto se le presente y estarán sujetas a la Ley de Asociaciones Cooperativas.
+Las cooperativas autorizadas para recibir depósitos a plazo, deber n mantener un encaje de un 20% de conformidad con lo dispuesto en los artículos 12, 13 y 14 del presente Reglamento. El INFOCOOP podrá variar dicho porcentaje cuando lo estime conveniente.

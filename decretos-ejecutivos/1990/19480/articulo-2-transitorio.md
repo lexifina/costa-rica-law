@@ -1,0 +1,1 @@
+2°.-Las cooperativas cuya relación de endeudamiento supere la cifra establecida en el artículo 5° del presente Reglamento, deber n informarlo al INFOCOOP en los próximos tres meses de la vigencia de este Reglamento, con la programación respectiva sobre la forma y plazos en que se ajustar a la relación de endeudamiento establecido.

@@ -1,0 +1,1 @@
+ARTÍCULO 8°.-Las sumas que reciba el ente cooperativo por concepto de depósitos a la vista, solo podrán ser utilizados en inversiones y préstamos a corto plazo. A tales efectos se entiende que la inversión y el préstamo es a corto plazo cuando no supere un período de un año.

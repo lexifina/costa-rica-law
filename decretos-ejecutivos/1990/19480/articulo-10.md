@@ -1,0 +1,1 @@
+ARTÍCULO 10.-Los entes cooperativos autorizados deberán manejar los fondos provenientes de los depósitos a la vista, en cuentas contables separadas, de modo que facilite la supervisión y el control de los mismos.

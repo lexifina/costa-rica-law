@@ -1,0 +1,1 @@
+3°.-Se concede un término de seis meses a partir de la publicación del presente Reglamento, para que los entes cooperativos presenten ante el INFOCOOP, evidencia del cumplimiento de los requisitos establecidos en el artículo 3§ del presente Reglamento.

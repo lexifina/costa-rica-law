@@ -1,0 +1,1 @@
+ARTÍCULO 12.-Todo ente cooperativo autorizado para recibir depósitos a la vista, deber mantener un encaje mínimo cooperativo del 20%, con respecto de la totalidad de los depósitos a la vista. El INFOCOOP podrá disminuir o aumentar el encaje mínimo cooperativo, de conformidad con las regulaciones que al efecto disponga.

@@ -1,0 +1,1 @@
+ARTÍCULO 11.-Los créditos e inversiones otorgados a los asociados con fondos provenientes a los ahorros a la vista, serán manejados en auxiliares de contabilidad, separados e identificados claramente.
