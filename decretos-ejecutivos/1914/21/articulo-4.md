@@ -1,0 +1,1 @@
+Articulo 4°-La cabida del terreno que se pretenda adquirir en propiedad o en arrendamiento, se probará con el plano levantado por el Ingeniero Topógrafo que haya practicado la medida, y en el cual se determinará con claridad que la faja de terreno inalienable de doscientos metros medidos desde la orilla de la pleamar ordinaria no se comprende en la cabida.

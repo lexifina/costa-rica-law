@@ -1,0 +1,1 @@
+Articulo 6°-La solicitud en que el dueño de construcciones reclame el titulo gratuito de propiedad absoluta en que ha ubicado, expresará el nombre del poblado en que se halla, la superficie ocupada por el edificio, la naturaleza, situación, linderos y el valor aproximado del lote y la edificación.

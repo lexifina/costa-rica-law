@@ -1,0 +1,1 @@
+Articulo 10.-El Promotor Fiscal consignará en autos, dentro del término de Ia publicación del edicto, su informe acerca de la pertinencia de la solicitud o hará los reparos u observaciones que a su juicio conduzcan al mejor resguardo de los intereses nacionales.

@@ -1,0 +1,1 @@
+Artículo 12. - Tratándose de venta al contado, no podrá ordenarse el otorgamiento de la escritura sino con vista del recibo en que conste el entero del precio en la Administración del Tesoro Nacional. Los gastos causados, inclusive los de escritura y accesorios, quedan a cargo del adquirente, comprador o arrendatario, sea a título gratuito u oneroso.
