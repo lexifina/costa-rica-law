@@ -1,0 +1,1 @@
+Artículo 5°—Todos los bancos de sangre deberán realizar obligatoriamente las pruebas correspondientes para hepatitis B, sífilis y virus de inmunodeficiencia humana en la sangre y hemoderivados destinados a uso humano. Ningún producto podrá ser administrado si alguna de estas pruebas resulta positiva.

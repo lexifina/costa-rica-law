@@ -1,0 +1,1 @@
+Artículo 8°—La infracción a las normas procedentes será denunciada a la autoridad judicial competente, a fin de que se establezca la responsabilidad penal prevista en las disposiciones contempladas en la Ley General de Salud, sin perjuicio de cualquier otra disposición legal que fuere aplicable.
