@@ -1,0 +1,2 @@
+Art 3° Los reclamos a que diere lugar la liquidación de las pólizas, deberán ser interpuestos ante el Contador Mayor dentro de los términos señalados por el artículo que precede, y resueltos brevemente y en justicia por aquel empleado; y los que se presentasen, pasados dichos términos, se declararán sin lugar.
+Único: Ningún reclamo debe ser admitido en la Contaduría Mayor por equivocaciones cometidas en el cambio de nombres de las mercaderías que ha sido despachadas de las bodegas con previo registro de Alcalde.

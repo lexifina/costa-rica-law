@@ -1,0 +1,1 @@
+Art 8° Al verificarse el descuento de las órdenes de recibido por derechos de importación, la Administración del Banco Nacional ordenará se ponga, en las que lo fueren juntamente con la nota de cancelación, la leyenda de “con descuento”
