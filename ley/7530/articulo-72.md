@@ -1,11 +1,5 @@
-ARTICULO 72.- Características del permiso.
-Para importar y vender armas permitidas, municiones, explosivos y
-materia prima, se deberá tramitar ante el Departamento, una solicitud de
-permiso que indique las características, la cantidad y su procedencia.
-Las aduanas no autorizarán el desalmacenaje correspondiente, sin este
-permiso.
-Cuando se rebase la cantidad de cien armas, se requerirá la
-autorización del Ministro de Seguridad Pública.
-En el trámite de las citadas autorizaciones, el Departamento deberá
-impedir y evitar toda práctica monopolística y restrictiva de la libertad
-de comercio.
+Artículo 72.—Características del permiso. Para fabricar, almacenar, comerciar, importar, exportar y vender armas permitidas, municiones, explosivos, pólvora y materia prima para elaborar los productos regulados por esta Ley, deberá tramitarse, ante la Dirección de Armamento, una solicitud de permiso que indique las características, la cantidad, la procedencia y el modo de distribución y venta de estos. Las manifestaciones contenidas en dicha solicitud tendrán los efectos de una declaración jurada. Asimismo, deberá adjuntarse copia del permiso específico del Ministerio de Salud.
+Las aduanas no autorizarán el desalmacenaje correspondiente sin ese permiso.
+Para la fabricación, la comercialización y el almacenaje de los productos regulados por esta Ley, deberá contarse con instalaciones físicas que ofrezcan condiciones de seguridad.
+Cuando el número de armas exceda de cien, se requerirá la autorización del Ministerio de Seguridad. En el trámite de las autorizaciones citadas, la Dirección de Armamento deberá evitar toda práctica monopolística y restrictiva de la libertad de comercio. Queda expresamente prohibida la fabricación de armas prohibidas y de material bélico.
+(Así reformado por el artículo 1 de la Ley N° 8201 de 18 de diciembre del 2001)

@@ -1,4 +1,4 @@
-ARTICULO 93.- Comercio ilícito de armas.
-Se impondrá una pena de dos a cinco años de prisión a los
-comerciantes de armas, municiones y explosivos que los adquieran sin
-comprobar su procedencia legal.
+Artículo 93.—Comercio de armas, explosivos y pólvora. Se impondrá una pena de tres a siete años de prisión a quien adquiera, comercie, transporte, almacene y venda cualquiera de los artículos, bienes o sustancias regulados en la presente Ley, sin tener el permiso para realizar este tipo de actividades y/o sin cumplir los requisitos exigidos por la ley. La venta o el suministro, a cualquier título, de pólvora y/o, en general, artículos, bienes o sustancias regulados en la presente Ley, a personas menores de edad y/o a personas declaradas en estado de interdicción, se sancionará con igual pena a la indicada en este artículo.
+Se impondrá una pena de dos a cinco años de prisión a los representantes, apoderados, gerentes o encargados del negocio, cuyo personal realice cualquiera de las acciones tipificadas en este artículo, siempre y cuando se compruebe que tuvieron conocimiento de esas actuaciones y no las detuvieron. Lo anterior no impedirá aplicar otra norma, si se demuestra una participación más directa en la comisión del ilícito.
+Las sanciones antes descritas se aplicarán, siempre que el hecho no se encuentre penado más severamente en otra disposición legal.
+(Así reformado por el artículo 1 de la ley N° 8201 de 18 de diciembre del 2001)
