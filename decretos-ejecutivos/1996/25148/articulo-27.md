@@ -1,10 +1,7 @@
-Artículo 27.- Los contratos de arrendamiento no podrán exceder de tres
-meses. La Comisión podrá autorizar plazos mayores al citado, cuando
-compruebe que existen circunstancias especiales que ameriten tal
-ampliación, previa solicitud escrita de la empresa. Cuando el vehículo se
-arrendare a un mismo turista por el período máximo permitido por este
-Decreto y en caso de existir razones fuera del control de la empresa por
-las cuales el turista se retrasare en la devolución del vehículo, la
-empresa deberá informarlo por escrito de inmediato a la Comisión con
-copia para el expediente del vehículo; si no lo hiciera, podría incurrir
-en falta que amerite la respectiva sanción.
+Artículo 27.—Los contratos de arrendamiento no podrán exceder de tres meses. La Comisión podrá autorizar plazos mayores al citado, cuando compruebe que existen circunstancias especiales que ameriten tal ampliación, previa solicitud escrita de la empresa. Cuando el vehículo se arrendare a un mismo turista por el período máximo permitido por este Decreto y en caso de existir razones fuera del control de la empresa por las cuales el turista se retrasare en la devolución del mismo, la empresa deberá informarlo por escrito de inmediato a la Comisión con copia para el expediente del vehículo; si no lo hiciera, podrá incurrir en falta que amerite la respectiva sanción.
+Con carácter de excepción podrá algún organismo internacional, multilateral o bilateral, un ente estatal o una persona jurídica gestionar el alquiler de vehículos exonerados a empresas arrendantes para el uso de personeros que califican en la definición de turista descrita en el párrafo segundo del inciso m) del artículo 1º del presente Reglamento, en tales casos se deberán cumplir los siguientes requisitos adicionales:
+a) Cuando el alquiler del vehículo sea gestionado por alguna embajada o por algún organismo internacional, multilateral o bilateral y el período de alquiler sea por un período mayor a tres meses, se requerirá la previa recomendación del Ministerio de Relaciones Exteriores y Culto o del Ministerio de la Presidencia.
+b) Cuando el alquiler sea gestionado por algún ente estatal, será necesaria la previa declaratoria de la actividad en que participarán los personeros como de interés público, por parte del Poder Ejecutivo.
+c) Cuando el alquiler sea gestionado por una persona jurídica, deberá especificar en la respectiva orden de compra o de contratación de servicios que el motivo de la misma concuerde con lo que establece el citado inciso m); indicará además el nombre y número de pasaporte o de cédula de la persona que lo utilizará y de las personas que conducirán dicho vehículo.
+Para efectos de los estudios que realiza la Dirección General de Hacienda, se considerará uso distinto del vehículo, cuando se demuestre que la empresa no arrendó el vehículo de conformidad con las regulaciones del inciso m) del artículo 1° de este Reglamento
+(Así reformado por el artículo único del Decreto Ejecutivo Nº 28832 de 19 de junio de 2000)
