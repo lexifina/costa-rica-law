@@ -1,0 +1,1 @@
+Artículo 2º—Rescisión unilateral. RACSA podrá rescindir unilateralmente el servicio sin causa que lo justifique y sin responsabilidad alguna de su parte, para lo cual deberá comunicar al cliente la decisión administrativa con al menos treinta días naturales de anticipación.
