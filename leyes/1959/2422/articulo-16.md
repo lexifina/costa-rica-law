@@ -1,30 +1,41 @@
 Artículo 16.- Esta ley rige a partir del primero de enero de mil
 novecientos sesenta.
-Transitorios
-I.- El servidor regular cuyo sueldo sea menor o igual al mínimo de la
-categoría que le corresponde, devengará ese mínimo a partir del primero de
-enero de mil novecientos sesenta.
-II.- El servidor regular cuyo sueldo actual quede entre el mínimo y el
-máximo de la categoría que le corresponde seguirá devengando el mismo
-sueldo hasta que llegue la oportunidad de merecer el aumento que determine
-la variación correspondiente.
-III.- El servidor regular cuyo sueldo actual sea igual o superior al
-máximo de la categoría que le corresponda, seguirá devengando el mismo
-sueldo mientras ocupe el mismo puesto.
-IV.- Los actuales servidores interinos seguirán devengando el sueldo
-que tengan aunque sea mayor el mínimo de la categoría correspondiente.
-V.- Los aumentos de sueldos de los actuales servidores regulares,
-mientras se mantengan en las clases que ocupan, se podrán conceder en los
-aniversarios que correspondan a la fecha de la vigencia de esta ley, si no
-hubiere dificultad presupuestaria.
-VI.- Tratándose de los funcionarios y empleados judiciales que
-tuvieran a su favor uno o más quinquenios de servicios por antigüedad, se
-les reconocerá el derecho de ser aumentados a partir de la vigencia de
-esta ley, en el porcentaje correspondiente, tomando como base el promedio
-de sueldos devengados en los últimos diez años, cuando las posibilidades
-presupuestarias lo permitan y dentro de las partidas que al efecto se
-fijen en el Presupuesto.
-VII.- Los empleados que actualmente tengan un sueldo superior al
-mínimo, serán incluidos en la categoría correspondiente a ese sueldo que
-devengan, para todos los efectos de los aumentos y ventajas dentro de esa
-categoría.
+ARTICULOS TRANSITORIOS
+I.- El servidor regular cuyo sueldo actual quede entre el mínimo y el
+máximo de la categoría que le corresponde, se ubicará en el paso que iguale
+o supere en forma mínima el salario vigente.
+(Así reformado por el artículo 1º de Ley Nº 6801 de 24 de agosto de
+1982.)
+II.- Los actuales servidores interinos seguirán devengando el sueldo
+que tengan, aunque sea mayor al mínimo de la categoría correspondiente.
+(Así reformado por el artículo 1º de Ley Nº 6801 de 24 de agosto de
+1982.)
+III.- El reconocimiento de los aumentos intermedios o pasos, a los
+servidores regulares, mientras éstos se mantengan en las clases que ocupan,
+se podrá conceder en los aniversarios que correspondan, desde la fecha de
+la vigencia de la ley Nº 2422 de 11 de agosto de 1959.
+(Así reformado por el artículo 1º de Ley Nº 6801 de 24 de agosto de
+1982.)
+IV.- Los servidores que en la actualidad tengan un salario base
+superior al que les resultaría conforme con el nuevo sistema, serán
+incluidos en la categoría correspondiente a la clase del puesto que
+desempeñan y ubicados en forma horizontal dentro de la escala, hasta que
+igualen o superen en mínima parte el sueldo que han venido devengando.
+(Así reformado por el artículo 1º de Ley Nº 6801 de 24 de agosto de
+1982.)
+V.- A los servidores que vayan a completar un quinquenio dentro de
+los doce meses siguientes a la publicación de esta ley, se les reconocerá
+el que habrían obtenido en ese año y quedarán ubicados en el paso
+correspondiente.
+(Así reformado por el artículo 1º de Ley Nº 6801 de 24 de agosto de
+1982.)
+VI.- Para losefectos de las leyes Nº 5867 de 15 de diciembre de 1975
+y Nº 6451 de 1º de agosto de 1980, la Corte mantendrá los sueldos
+actuales, hasta que lo considere conveniente.
+(Así reformado por el artículo 1º de Ley Nº 6801 de 24 de agosto de
+1982.)
+VII.- Se respetarán los derechos adquiridos por los servidores
+judiciales al amparo de las disposiciones legales que han regido hasta la
+fecha, inclusive los bienios y quinquenios anteriores a la presente ley".
+(Así reformado por el artículo 1º de Ley Nº 6801 de 24 de agosto de
+1982.)

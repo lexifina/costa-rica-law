@@ -1,19 +1,10 @@
-Artículo 11.- Los aumentos de sueldos que sean procedentes se
-concederán cada dos años a partir del ingreso, reingreso o ascenso del
-servidor y estarán sujetos a las siguientes normas:
-a) Si el servidor fuere trasladado a un puesto de igual categoría a
-la del que estuviere ocupando, no habrá interrupción alguna en cuanto al
-cómputo de tiempo para el aumento de salarios;
-b) Si el servidor fuere ascendido, comenzará a percibir el mínimo de
-la nueva categoría que le correspondiere, salvo que dicho mínimo sea
-inferior a su sueldo anterior, en cuyo caso comenzará a percibir el sueldo
-intermedio inmediato superior a su sueldo anterior;
-c) Las interrupciones continuas e intermitentes en la prestación de
-servicios, excepto por motivo de vacaciones y de enfermedad con goce de
-sueldo, de acuerdo con la Ley Orgánica del Poder Judicial, suspenderán el
-período de dos años, requeridos para el aumento de sueldo. No se tomarán
-en cuenta para el cómputo respectivo las fracciones de tiempo menores de
-treinta días naturales. Para los efectos dichos se entenderá que
-suspenden la continuidad de servicio las licencias para adiestramiento y
-las licencias para estudios que no sean las indicadas en el artículo 106
-de la Ley Orgánica del Poder Judicial.
+Artículo 11.- Ningún servidor regular devengará un salario inferior al
+mínimo de la respectiva categoría.
+Salvo las sumas que por concepto de zonaje deban reconocerse a
+determinados servidores judiciales, cualesquiera prestaciones o suministros
+adicionales que en algunos casos se concedan, como son los que cubren
+gastos de alojamiento, alimentación, vehículo, traslados, uniformes y demás
+similares, no tendrán el carácter de salario en especie y se otorgarán sólo
+cuando las necesidades del servicio lo requieran indispensablemente.
+(Así reformado por el artículo 1º de Ley Nº 6801 de 24 de agosto de
+1982.)
