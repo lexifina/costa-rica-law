@@ -1,0 +1,1 @@
+Art 2°.- Por la carga se cobrará medio real es razón de arroba, si fuese de efectos que produce el país, y por los extranjeros un real también por cada arroba; pero si aquella fuese de aguardiente se exigirán cuatro reales por cada veinte botellas.
