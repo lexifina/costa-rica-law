@@ -1,0 +1,1 @@
+Art. 2. Los contrabandistas de pólvora serán castigados con todo el rigor de la ley, justificado que sea el hecho, y los resguardos de las rentas del Estado, los perseguiran para que tenga efecto esta disposicion.
