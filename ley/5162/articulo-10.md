@@ -1,6 +1,6 @@
 Artículo 10.- Los beneficios establecidos en este Capítulo no se
-concederán en el caso de las actividades a que se refiere el Capítulo IV
-de esta ley.
+concederán en el caso de las actividades a que se refiere el Capítulo IV de
+esta ley.
 Las personas físicas o jurídicas que cumplan con los requisitos
 establecidos en el inciso b) del artículo 4º de esta ley, recibirán
 devolución u otorgamiento de franquicia de los impuestos de aduana, de

@@ -13,7 +13,7 @@ cancelará la fianza, depósito o garantía. Si al finalizar los respectivos
 períodos la exportación total no se hubiere efectuado, el interesado deberá
 cubrir inmediatamente el monto de los impuestos correspondientes a las
 materias primas, envases, muestras, modelos y otros que no se hubieren
-exportado como ingresaron o como producto terminado en su caso, más el 105
+exportado como ingresaron o como producto terminado en su caso, más el 10%
 del monto de esos impuestos correspondientes a los productos no exportados,
 como multa de incumplimiento, sin perjuicio de cualquier acción
 subsiguiente que pueda emprender el Estado.
