@@ -1,12 +1,4 @@
-ARTICULO 29.- Para los fines del artículo anterior, sólo podrán
-practicar la caza los costarricenses y los extranjeros residentes,
-mayores de dieciocho años, que hayan obtenido la licencia
-correspondiente y cumplan con lo establecido en la presente Ley y en su
-Reglamento. Los extranjeros no residentes, sólo podrán dedicarse a la
-caza de la paloma ala blanca (Zenaida asiática) y de la paloma arrocera
-(Zenaida macroura) en la Provincia de Guanacaste y, únicamente durante
-los días sábados, domingos y feriados por ley, durante la época que
-indique el cuadro de vedas correspondiente. Deberán ajustarse, en todo,
-a lo establecido en la presente Ley y en su Reglamento. Sin embargo,
-esta autorización quedará sujeta al comportamiento poblacional de ambas
-especies en su región zoogeográfica.
+ARTICULO 29.-
+Para los fines del artículo anterior, sólo podrán practicar la caza los costarricenses y los extranjeros residentes, mayores de dieciocho años, que hayan obtenido la licencia correspondiente y cumplan con lo establecido en la presente Ley y en su Reglamento. Los extranjeros no residentes, sólo podrán dedicarse a la caza de la paloma ala blanca (Zenaida asiática) y de la paloma arrocera (Zenaida macroura)
+en la Provincia de Guanacaste y, únicamente durante los días sábados, domingos y feriados por ley, durante la época que indique el cuadro de vedas correspondiente. Deberán ajustarse, en todo, a lo establecido en la presente Ley y en su Reglamento. Sin embargo, esta autorización quedará sujeta al comportamiento poblacional de ambas especies en su región zoogeográfica.
+(NOTA: De acuerdo con la reforma hecha al Transitorio IV de esta ley, mediante el artículo 4º de la Nº 7497 de 2 de mayo de 1995, las disposiciones del presente artículo surtirán efecto 24 meses después de su publicación en el Alcance Nº 20 a "La Gaceta" Nº 110 de 8 de junio de 1995)

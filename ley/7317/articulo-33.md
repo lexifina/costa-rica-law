@@ -1,9 +1,3 @@
-ARTICULO 33.- La Dirección General de Vida Silvestre del
-Ministerio de Recursos Naturales, Energía y Minas, podrá autorizar el
-establecimiento de fincas cinegéticas privadas y reguladas de acuerdo
-con el Reglamento de esta Ley. El propietario de una finca cinegética
-solicitará el permiso respectivo al Poder Ejecutivo, por medio de dicha
-Dirección, siempre y cuando se trate de especies nativas. En estas
-áreas, el propietario o su representante deberá permitir a los
-técnicos, la investigación de la vida silvestre, para lo cual deberá
-dotarlos de albergues seguros.
+ARTICULO 33.-
+La Dirección General de Vida Silvestre del Ministerio de Ambiente y Energía, podrá autorizar el establecimiento de fincas cinegéticas privadas y reguladas de acuerdo con el Reglamento de esta Ley. El propietario de una finca cinegética solicitará el permiso respectivo al Poder Ejecutivo, por medio de dicha Dirección, siempre y cuando se trate de especies nativas. En estas áreas, el propietario o su representante deberá permitir a los técnicos, la investigación de la vida silvestre, para lo cual deberá dotarlos de albergues seguros.
+(Así modificado el nombre del Ministerio por el artículo 116 de la Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)
