@@ -1,0 +1,2 @@
+Artículo 3°-TARIFA BASICA DOMICILIARIA:
+Se obtiene dividiendo los costos generados por el servicio, entre el número de usuarios. Esta tarifa se cobrará por unidad habitacional. Los inmuebles que contengan varias unidades habitacionales como apartamentos, casas de alquiler, oficinas y otros, pagarán tarifa básica por cada unidad habitacional. El medidor de energía eléctrica será la forma de determinar el número de unidades habitacionales que contenga cada inmueble (por cada medidor se considera una unidad habitacional).

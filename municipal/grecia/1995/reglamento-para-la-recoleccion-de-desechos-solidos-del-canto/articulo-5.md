@@ -1,0 +1,1 @@
+Artículo 5°-En el caso de abonados de este servicio como hoteles, industrias o negocios comerciales que se excedieran en la producción de desechos sólidos ordinarios de acuerdo con la tarifa asignada, queda facultada la Municipalidad a través de su Departamento Técnico respectivo para hacer los estudios de pesaje y recomendar al Concejo el incremento de costos y firmas.

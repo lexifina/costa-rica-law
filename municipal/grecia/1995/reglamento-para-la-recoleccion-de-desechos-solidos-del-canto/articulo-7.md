@@ -1,0 +1,1 @@
+Artículo 7°-En el caso de alamedas o caminos intransitables por el camión recolector, por mal estado o por otros motivos bien determinados, los vecinos establecerán un lugar de acopio, para lo cual diseñarán canastas o contenedores que eviten contaminación por dicha acumulación.

@@ -1,0 +1,1 @@
+Artículo 10.-Desechos peligrosos, tales como vidrios, latas, metales, deben estar identificados aparte y no se permite la eliminación conjunta en desechos domésticos y comerciales de sustancias de a peligrosidad.

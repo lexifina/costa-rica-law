@@ -1,0 +1,1 @@
+Artículo 9°-Los recipientes que contengan la basura tales como estañones y otros, no podrán tener el fondo totalmente sellado, para que se permita escurrir líquidos yagua que se podría almacenar, dificultando el manejo de los mismos.
