@@ -13,3 +13,4 @@ Viáticos para Funcionarios de Direcciones Regionales de Educación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-15 | la propia norma |
+| 2 | 1996-04-15 | SINALEVI (sin norma nombrada) |

@@ -1,46 +1,19 @@
 Nº 25040-MEP
+(Nota de SINALEVI: El Ministerio de Educación Pública aprobó el Reglamento a la Limitación Territorial del Gasto de Viaje y Transporte (viáticos) mediante decreto ejecutivo N° 35459 del 27 de julio de 2009)
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE EDUCACION PUBLICA,
 Considerando:
-1º.- Que mediante el decreto ejecutivo Nº 21710-MEP del 11 de
-diciembre de 1992, se realizó el último ajuste al monto por concepto de
-Viático Fijo que se reconoce a los funcionarios regionales que ocupan
-clases de puestos de: Director Regional de Educación, Asesor de Educación
-1 y 2, Asesor Supervisor de Educación y Técnico en Administración
-Educativa 1 y 2.
-2º.- Que el artículo 3º inciso x) del Reglamento del Estatuto de
-Servicio Civil autoriza la reubicación de servidores, incluida la
-reubicación a los puestos indicados en el artículo anterior.
-3º.- Que es preciso adecuar el monto correspondiente al Viático Fijo a
-la realidad económica actual, para el mejor cumplimiento de las funciones
-asignadas a los funcionarios a que se refiere el presente decreto.
-4º.- Que con la asignación de este Viático Fijo se ha procurado dotar
-a los funcionarios regionales de recursos económicos adicionales que
-coadyuven al logro de la eficacia en la prestación de los servicios hacia
-las instituciones del sistema educativo.
-5º.- Que se define este viático como una suma fija mensual que se
-otorga a los funcionarios indicados en el considerando número uno, para
-coadyuvar en la cobertura de los gastos de Transporte, Alimentación y
-Hospedaje fundamentalmente; generados por la propia naturaleza de la
-función que cumplen.
-6º.- Que mediante el decreto ejecutivo Nº 23490-MEP del 29 de julio de
-1994, se establece la organización administrativa de las Direcciones
-Provinciales de Educación.
-7º.- Que la División de Planeamiento y Desarrollo Educativo realizó
-los estudios pertinentes en materia de viático fijo tomando en cuenta los
-indicadores de precios que establece la Dirección General de Estadística
-y Censos del Ministerio de Economía, y determinó la conveniencia de
-ajustar los montos actuales que se percibe por tal concepto, en alguna
-medida a la realidad económica nacional; en virtud de las limitaciones
-presupuestarias imperantes en el Sector Público. Por tanto,
-En ejercicio de las atribuciones constitucionales y con fundamento en
-lo dispuesto en el inciso f) artículo 118 del Código de Educación y los
-anteriores considerandos,
+1º.- Que mediante el decreto ejecutivo Nº 21710-MEP del 11 de diciembre de 1992, se realizó el último ajuste al monto por concepto de Viático Fijo que se reconoce a los funcionarios regionales que ocupan clases de puestos de: Director Regional de Educación, Asesor de Educación 1 y 2, Asesor Supervisor de Educación y Técnico en Administración Educativa 1 y 2
+2º.- Que el artículo 3º inciso x) del Reglamento del Estatuto de Servicio Civil autoriza la reubicación de servidores, incluida la reubicación a los puestos indicados en el artículo anterior.
+3º.- Que es preciso adecuar el monto correspondiente al Viático Fijo a la realidad económica actual, para el mejor cumplimiento de las funciones asignadas a los funcionarios a que se refiere el presente decreto.
+4º.- Que con la asignación de este Viático Fijo se ha procurado dotar a los funcionarios regionales de recursos económicos adicionales que coadyuven al logro de la eficacia en la prestación de los servicios hacia las instituciones del sistema educativo.
+5º.- Que se define este viático como una suma fija mensual que se otorga a los funcionarios indicados en el considerando número uno, para coadyuvar en la cobertura de los gastos de Transporte, Alimentación y Hospedaje fundamentalmente; generados por la propia naturaleza de la función que cumplen.
+6º.- Que mediante el decreto ejecutivo Nº 23490-MEP del 29 de julio de 1994, se establece la organización administrativa de las Direcciones Provinciales de Educación.
+7º.- Que la División de Planeamiento y Desarrollo Educativo realizó los estudios pertinentes en materia de viático fijo tomando en cuenta los indicadores de precios que establece la Dirección General de Estadística y Censos del Ministerio de Economía, y determinó la conveniencia de ajustar los montos actuales que se percibe por tal concepto, en alguna medida a la realidad económica nacional; en virtud de las limitaciones presupuestarias imperantes en el Sector Público. Por tanto,
+En ejercicio de las atribuciones constitucionales y con fundamento en lo dispuesto en el inciso f) artículo 118 del Código de Educación y los anteriores considerandos,
 Decretan:
-Artículo 1º.- Establecer el monto correspondiente al Viático Fijo a
-los funcionarios de las Direcciones Regionales de Educación que ocupan
-los puestos señalados en los considerandos 1 y 2 del presente decreto,
-según el siguiente detalle:
+Artículo 1º.- Establecer el monto correspondiente al Viático Fijo a los funcionarios de las Direcciones Regionales de Educación que ocupan los puestos señalados en los considerandos 1 y 2 del presente decreto, según el siguiente detalle:
+Nota del SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 32678 del 12 de setiembre del 2005, publicado en el Alcance N° 37 a La Gaceta N° 194 del 10 de octubre del 2005, se modifican los montos de viáticos fijo de los Servidores de las Direcciones Regionales de Educación, el cual puede ser consultado en el sistema.
 A) DIRECCION PROVINCIAL DE EDUCACION SAN JOSE
 Dirección Regional Educación San José
 Director Regional de Enseñanza 3 ¢ 4.296
