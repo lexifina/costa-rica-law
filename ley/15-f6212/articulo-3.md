@@ -1,0 +1,1 @@
+Art. 3. La multa del art. 22 del reglamento se reduce desde uno hasta veinticinco pesos que se aplicaràn à los fondos de propios del respectivo Pueblo, dandosele la mitad al denunciante si lo hubiere. La aplicacion de estas multas se harà con arreglo al artículo 19 de la ley Reguladora de 14 del próximo pasado Febrero.

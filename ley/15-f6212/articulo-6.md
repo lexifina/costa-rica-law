@@ -1,0 +1,1 @@
+Art. 6. El conductor de aguardiente que pase por la Garita con el objeto de proveer las taquillas, ó Buques para la exportacion del mismo licor, deberán presentar tornaguia al Contador, dada por la autoridad pública del punto de su destino, bajo la multa de cinco pesos por carga, aplicables al erario pùblico.
