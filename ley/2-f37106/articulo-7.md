@@ -1,0 +1,1 @@
+Art 7° También se procederá, desde luego y con la mayor actividad, por las Autoridades de Policía, a mantener en completo estado de aseo los acueductos, las calles y todo lugar público de las poblaciones, sin permitir en ellas, bajo ningún pretexto, depósitos de basuras, aguas estancadas ni materia alguna corrupta.
