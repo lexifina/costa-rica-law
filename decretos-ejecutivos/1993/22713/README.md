@@ -14,3 +14,4 @@ Fija Salarios Mínimos para 1994
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-01-01 | la propia norma |
+| 2 | 1994-07-19 | Decreto Ejecutivo 23495 (1994-07-19) |
