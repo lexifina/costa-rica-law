@@ -1,4 +1,6 @@
+(Derogado)
 N° 1108
+(La presente norma fue derogada por el artículo único de la ley N° 11 del 14 de mayo de 1948)
 El Congreso Constitucional de la República de Costa Rica
 Decreta:
 Artículo único.—Agréguese un transitorio, y los artículos 1°, 2°, 9° y 12 de la ley número 12 de 13 de octubre de 1944, se leerán así:
