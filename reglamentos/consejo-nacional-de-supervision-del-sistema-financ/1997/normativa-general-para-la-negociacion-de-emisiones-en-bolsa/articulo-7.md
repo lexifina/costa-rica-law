@@ -1,1 +1,0 @@
-7. En el caso de que se trate de emisiones no estandarizadas que se vayan a negociar por primera vez, sean estas de emisores del sector público o privado, le aplicará el plazo de cinco días hábiles bursátiles establecidos en el punto 3 i.) de esta normativa.

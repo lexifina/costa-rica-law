@@ -1,1 +1,0 @@
-6. En el tanto se realizan los ajustes a los sistemas, y el emisor decide optar por colocar su emisión por medio de estos, la bolsa deberá de advertir a dicho emisor la limitación del mismo y que podría impedirle colocar sus títulos a mejores precios.

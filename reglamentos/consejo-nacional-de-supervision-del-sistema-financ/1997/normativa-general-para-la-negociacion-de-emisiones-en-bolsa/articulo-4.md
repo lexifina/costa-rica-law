@@ -1,1 +1,0 @@
-4. Las bolsas contarán con diez días hábiles para presentar la normativa correspondiente a la Comisión Nacional de Valores. Asimismo dispondrán a lo sumo de 30 días hábiles para llevar a cabo los ajustes que sean necesarios en sus sistemas en lo que concierne a la asignación a la mejor oferta realizada y no únicamente a aquella que se ingresó de primero.

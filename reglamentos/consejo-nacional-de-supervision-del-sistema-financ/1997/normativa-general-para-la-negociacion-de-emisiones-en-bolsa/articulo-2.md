@@ -1,1 +1,0 @@
-2. Las bolsas de valores deberán establecer el procedimiento que se seguirá para la negociación en sus recintos de emisiones estandarizadas, que será aplicable tanto para emisiones del sector público como del privado.
