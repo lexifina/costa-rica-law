@@ -1,0 +1,1 @@
+Artículo 3°-El impuesto ad-valórem sobre la producción de café, establecido por Ley N° 1411 de 19 de enero de 1952 es estabilizará en un máximo del 5% para las zonas, afectadas por al emergencia, mientras ésta subsista a juicio del Poder Ejecutivo.
