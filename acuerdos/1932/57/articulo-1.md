@@ -1,4 +1,6 @@
+(Derogado)
 N° 57
+(La presente norma se dejó sin efecto por el artículo 1° del decreto ejecutivo N° 6 del 24 de abril de 1937 “Reorganiza Servicios de Correos, Telégrafos, Teléfonos y Radios Nacionales”)
 San José, 10 de junio de 1932
 EL PRESIDENTE DE LA REPUBLICA ACUERDA :
 Reorganizar el presupuesto de gastos de los departamentos de Correos, Telégrafos y Radios Nacionales, correspondiente al año en curso, que en adelante aparecerán bajo la denominación de Dirección General de Comunicaciones, con arreglo al siguiente detalle:

@@ -13,3 +13,4 @@ Reorganiza Presupuesto de Departamentos de Correos, Telégrafos y Radios Naciona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1932-06-15 | la propia norma |
+| 2 | 1937-04-24 | Decreto Ejecutivo 6 (1937-04-24) |
