@@ -1,2 +1,2 @@
-Artículo 20.-Fábricas de cajas de cartón (cuando se usen almidones de yuca y de maíz (producidos en Costa Rica), por cada caja, ¢ 0,04.
-Fábricas de cajas de cartón (por cada caja producida en el cartón), ¢ 0,06.
+Artículo 20.-Fábricas de cajas de cartón, por cada caja, ¢ 0,06.
+(Así reformado por el artículo 1° de la ley N° 7067 del 29 de julio de 1987)
