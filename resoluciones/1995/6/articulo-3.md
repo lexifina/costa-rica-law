@@ -1,0 +1,1 @@
+Artículo 3°.- La Administración Tributaria queda facultada para variar el porcentaje de utilidad a que se refiere el artículo 1° de est resolución, previa realización de los estudios de auditoría correspondientes.

@@ -1,0 +1,1 @@
+Artículo 4°.- Debido a los ajustes que se requieren para implantar el sistema quí establecido, esta resolución rige para las ventas e importaciones que se realicen a partir del 1° de marzo de mil novecientos noventa y cinco.
