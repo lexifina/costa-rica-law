@@ -1,35 +1,27 @@
-Artículo 16.. Para gestionar el contrato las personas físicas o
-jurídicas deben presentar ante la Comisión, una solicitud escrita firmada
-por el gestionante o representante legal si se tratare de una persona
-jurídica. A esta solicitud debidamente autenticada se le adjuntará entre
-otros los siguientes datos y documentos:
-a) Fotocopia del expediente de declaratoria turística de la empresa,
-certificado por el correspondiente Departamento Técnico del
-Instituto, donde se indique que la empresa ha sido calificada en
-forma definitiva como actividad turística.
-b) Certificación notarial respecto a:
-- Acta constitutiva de la sociedad y de la personería de los
-gestionantes.
-- Composición del capital social (nombre de socios y
-porcentajes de participación).
-- Plazo social.
-- Integración de la Junta Directiva.
-c) Análisis debidamente suscrito por el dueño o representante legal
-respecto a los siguientes aspectos:
-- La contribución en la balanza de pagos.
-- La utilización de materias primas e insumos nacionales.
-- La creación de empleos directos o indirectos.
-- Los efectos en el desarrollo regional.
-- La modernización o diversificación de la oferta turística
-nacional.
-- Los incrementos de la demanda turística interna e
-internacional.
-- Los beneficios que se reflejan en otros sectores.
-d) Otros que la Comisión estime indispensables para el estudio de la
-solicitud del contrato.
-Una vez aprobada la solicitud y previo a que la empresa inicie el
-trámite de la primera exoneración de un bien, deberá presentar un plan de
-compras que incluya un detalle de los bienes a exonerar y sus respectivas
-cantidades, requeridos en las actividades y proyectos objeto del contrato
-turístico. En caso de bienes nuevos o no incluidos en el plan de compras
-original deberá presentar la respectiva ampliación a dicho plan.
+Artículo 16.—Para solicitar el Contrato Turístico las personas físicas o jurídicas deberán haber obtenido la declaratoria turística y presentar al Instituto los siguientes requisitos:
+I -Requisitos Legales:
+1- Solicitud escrita para la obtención del contrato turístico suscrita por el interesado o por el representante legal en caso de ser persona jurídica y con las firmas debidamente autenticadas.
+2- Copia de la resolución que otorga la declaratoria turística.
+3- Certificación de Personería Jurídica, si:
+a) la presentada en el trámite de declaratoria tiene más de tres meses desde su expedición.
+b) han cambiado los personeros de la empresa después del otorgamiento de la declaratoria turística, deberán actualizar la información relacionada con dichos personeros.
+Toda certificación que se presente deberá tener una antigüedad no mayor a tres meses contados a partir de la fecha de expedición de la misma.
+4- Declaración Jurada: esta deberá ser otorgada por el interesado, si es persona física o del representante legal de la entidad, en el caso de personas jurídicas. Dicha declaración notarial deberá contener los siguientes compromisos:
+a) que la empresa tendrá como objeto exclusivo la actividad turística y que en caso de dedicarse a otros giros, los llevará contable y administrativamente por separado.
+b) que se compromete a iniciar operaciones o construcción, dentro de un plazo máximo de seis meses contados a partir de la firma del contrato turístico. Este plazo sólo podrá ser ampliado por la Comisión mediante acto razonado en atención a solicitud debidamente justificada del interesado.
+II- Requisitos Técnicos
+Los proyectos de hospedaje y transporte acuático que vayan a desarrollar infraestructura, deberán presentar planos básicos, según las especificaciones establecidas en este decreto como Anexo 1 "Guía de Requisitos para planos constructivos para empresas que deseen optar por el contrato turístico".
+III- Requisitos Económicos
+Deberá presentar un estudio económico, el cual deberá incluir los siguientes aspectos:
+a) La Contribución en la Balanza de Pagos.
+b) La utilización de materias primas e insumos nacionales.
+c) La creación de empleos directos e indirectos.
+d) Los efectos en el desarrollo regional.
+e) La modernización o diversificación de la oferta turística nacional.
+f) Los incrementos de la demanda turística interna e internacional.
+g) Los beneficios que se reflejan en otros sectores.
+Las especificaciones que debe contener este estudio se detallan en este decreto como Anexo 2 "Guía de Requisitos para confeccionar un estudio Económico" y las especificaciones a cumplir por tipo de actividad se detalla en el Anexo3 "Guía de Requisitos para obtener el Contrato Turístico. Detalle de Requisitos por Actividad"
+Las Guías de Requisitos para Contrato Turístico detalladas en los Anexos 1, 2 y 3 son parte normativa integrante de este Reglamento y su contenido establece la forma completa de cumplir los requisitos específicos establecidos en este reglamento.
+Una vez efectuada la revisión de los documentos, el Instituto deberá especificar por escrito y por única vez la lista de requisitos o documentos pendientes de aportar.
+Firmado el contrato y de previo a que la empresa inicie el trámite de la primera exoneración de un bien, deberá presentar un plan de compras, que incluya un detalle de los bienes a exonerar y sus respectivas cantidades, requeridos en las actividades y proyectos objeto del contrato turístico. En caso de bienes no incluidos en el plan de compras original, deberá presentar la respectiva ampliación a dicho plan para que sea aprobado por la Comisión.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 29215 de 19 de enero del 2001)

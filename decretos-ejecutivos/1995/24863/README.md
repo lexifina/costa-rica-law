@@ -15,3 +15,4 @@ Reglamento Ley de Incentivos para el Desarrollo Turístico
 | --- | --- | --- |
 | 1 | 1996-01-31 | la propia norma |
 | 2 | 1996-01-31 | SINALEVI (sin norma nombrada) |
+| 3 | 2001-01-19 | Decreto Ejecutivo 29215 (2001-01-19) |
