@@ -1,0 +1,1 @@
+Artículo 2º—Agréguese un segundo párrafo al artículo 22 del Reglamento a la Ley de Armas y Explosivos, Decreto Ejecutivo Nº 25120- SP, el cual dirá: "Después de recibir la solicitud de inscripción del arma de fuego, el Departamento tendrá un mes para resolver".

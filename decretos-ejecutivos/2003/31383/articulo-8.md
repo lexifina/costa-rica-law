@@ -1,0 +1,1 @@
+Artículo 8º—Córrase la numeración del Reglamento de la Ley de Armas y Explosivos, Decreto Ejecutivo N° 25120-SP, a partir del artículo 27 actual, pasando éste a ser el artículo 35, y siguiendo los demás la lógica corrección numeral.

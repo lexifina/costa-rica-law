@@ -1,0 +1,2 @@
+Artículo 4º—Agréguese un segundo párrafo al artículo 50 del Reglamento a la Ley de Armas y Explosivos, Decreto Ejecutivo N° 25120- SP -tomando en cuenta la corrección numeral dispuesta en el artículo 8 del presente Reglamento -el cual dirá:
+"Después de recibida la solicitud del permiso de portación de arma de fuego, el Departamento tendrá un mes para resolver. El mismo término regirá en caso de que se solicite a la vez el permiso de portación y de inscripción de arma de fuego."
