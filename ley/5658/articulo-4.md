@@ -1,0 +1,1 @@
+Artículo 4º.- El Poder Ejecutivo deberá enviar a conocimiento de la Asamblea Legislativa el correspondiente presupuesto extraordinario, con el fin de atender la erogación que significará esta ley, durante el ejercicio económico de 1974 y 1975. Para los siguientes años deberá aumentar las partidas afectadas, en el Presupuesto de gastos de la República.
