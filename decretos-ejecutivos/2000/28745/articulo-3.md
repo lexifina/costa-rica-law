@@ -1,0 +1,1 @@
+Artículo 3º—Las tierras a que se refieren el artículo Primero, de este Decreto tiene una cabida de sesenta mil hectáreas y sus linderos serán: norte, Zona Protectora Arenal-Monteverde; sur, Carretera Internacional; este, Río Barranca, Refugio Silvestre Peñas Blancas, Zona Protectora Montes de Oro, Reserva Biológica Alberto Manuel Brenes y oeste, Río Lagarto.
