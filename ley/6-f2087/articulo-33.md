@@ -1,0 +1,1 @@
+Artículo 33.-El cargo de Administrador es incompatible con todo otro empleo público remunerado, y con el Director, Administrador, ó miembro del Consejo de Gobierno de Bancos, cajas de ahorros ó Casas de préstamos.

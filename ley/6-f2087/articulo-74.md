@@ -1,0 +1,1 @@
+Artículo 74.-Rematadas todas las prendas cuya venta se hubiere anunciado, ó no presentándose postor para las que no lo hayan sido, el Administrador dará por concluído el remate y procederá á extender el acta respectiva.

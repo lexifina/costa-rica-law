@@ -1,0 +1,2 @@
+Artículo I8.-A la Asamblea General podrán asistir todos los accionistas, pero sólo tendrán voz y voto los propietarios de 20 acciones ó más y los que además de sus propias acciones representaren otras que en junto alcanzaren á 20.
+La representación que no fuere de padres por sus hijos ó de tutores ó curadores por sus pupilos ó inhábiles, deberá justificarse por carta-poder firmada por el poderdante y dos testigos y presentada al Secretario de la Asamblea, 24 horas antes, por lo menos, de la señalada para la reunión.

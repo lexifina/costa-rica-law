@@ -1,0 +1,1 @@
+Artículo I3.-A solicitud de! interesado podrá extenderse un solo título de varias acciones. En tal caso, el título indicará cuántas acciones representa y qué números corresponden á éstas. El Consejo de Gobierno dispondrá lo conveniente á efecto de que esto no entorpezca la numeración corrida que debe llevar cada serie de acciones.

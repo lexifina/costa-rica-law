@@ -1,0 +1,1 @@
+Artículo 25.-La Asamblea General en las reuniones semestrales ordinarias, podrá tomar las resoluciones que le sugiera el interés del establecimiento, las cuales se llevarán á cabo una vez que las apruebe el Poder Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 79.-Queda absolutamente prohibido al Administrador y á los empleados de su dependencia hacer, por su cuenta particular, préstamos con prenda y comprar las prendas que se rematen en el establecimiento. Esta última prohibición comprende también á los tasadores y pregoneros respecto de las prendas en cuyo justiprecio ó venta intervinieren.

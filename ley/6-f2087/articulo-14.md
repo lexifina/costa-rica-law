@@ -1,0 +1,2 @@
+Artículo I4.-Siempre que por razón de aumento de capital se abriere una nueva suscrición de acciones, el Consejo de Gobierno y el poder Ejecutivo determinarán, en vista del estado de la institución, si deben venderse con premio las nuevas acciones, y el monto de éste. Durante los seis primeros meses de operaciones, no podrá recargarse el precio de las acciones.
+Los premios de que habla este artículo, engrosarán el Fondo de Reservas.

@@ -1,0 +1,1 @@
+Artículo 73.-Asimismo se devolverá al interesado á la presentación de la boleta, el exceso del precio de la venta sobre el monto de su deuda, Con tal objeto el Administrador, por anuncio en el periódico oficial, hará saber á los interesados que existe á favor de ellos un saldo en el establecimiento.
