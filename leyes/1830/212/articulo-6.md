@@ -1,0 +1,1 @@
+Art. 6°-Las Municipalidades nombrarán un individuo de su seno, para que en asociación con el Jefe Político demarquen el sitio de que trata el artículo anterior, y que éste sea capaz de que el edificio tena su separación correspondiente para uno y otro sexo, y para impedirles la comunicación con los que no se hallen contagiados.
