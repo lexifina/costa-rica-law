@@ -1,0 +1,1 @@
+Artículo 31.-Los miembros del Comité de Becas podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen, quedando en tal caso exentos de responsabilidad, que en EU caso, pudiera derivarse de los acuerdos.

@@ -1,0 +1,1 @@
+Artículo 14.-El Departamento de Capacitación elaborará y someterá a conocimiento de la Dirección Superior el programa anual de trabajo. contando para ello con la asesoría del Departamento de Adiestramiento de Personal de la Dirección General de Servicio Civil.

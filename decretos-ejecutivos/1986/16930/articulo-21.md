@@ -1,0 +1,1 @@
+Artículo 21.-El beneficiario de la beca o facilidad deberá notificar al Dep.artamento de Capacitación, el día. hora y ruta de su viaje y a su regreso, rendir informe sobre los resultados obtenidos en el curso.

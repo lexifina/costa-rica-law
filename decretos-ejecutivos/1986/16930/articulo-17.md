@@ -1,0 +1,1 @@
+Artículo 17. -Las becas y otras facilidades de adiestramiento se concederán con base en los méritos de los funcionarios y previo concurso de oposición en que se evaluará la formación académica, la experiencia laboral, la calificación de servicios y cualesquiera otros elementos que a juicio del Comité se estime importantes.

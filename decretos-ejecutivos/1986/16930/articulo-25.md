@@ -1,0 +1,1 @@
+Artículo 25.-La Presidencia del Comité de Becas será rotativa. En la primera sesión del mes de enero de cada año, el Comité por simple mayaría, elegirá al Presidente quien ejercerá el carga por el plazo señalada, excepto que el Comité lo releve de su cargo.

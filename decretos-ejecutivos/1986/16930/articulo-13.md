@@ -1,0 +1,1 @@
+Artículo 13.-Toda acción de capacitación deberá ser sometida a evaluación y seguimiento; los métodos para efectuarlo serán establecidos por el Departamento de Capacitación en coordinación con el Departamento de Adiestramiento de Personal de la Dirección General de Servicio Civil.

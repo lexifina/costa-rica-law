@@ -1,0 +1,1 @@
+Artículo 10.-Una vez aprobado el programa de capacitación, los instructores no podrán variarlo sin la aprobación del Departamento de Capacitación y previa justificación escrita que se hará del conocimiento del Departamento de Adiestramiento de Personal de la Dirección General de Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 29.-De cada sesión del Comité de Becas se levantará un acta Que contendrá la nómina de las personas asistentes así como las circunstancias de lugar y tiempo en Que se ha celebrado, las puntos principales de la deliberación la forma y resultados de la votación, y el contenido de los acuerdos.

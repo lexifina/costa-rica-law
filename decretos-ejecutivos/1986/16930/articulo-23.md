@@ -1,0 +1,1 @@
+Artículo 23.-El Ministerio sólo concederá para el disfrute de la beca o facilidad de adiestramiento permiso por un tiempo igual al indicada en el documento de ofrecimiento de la beca. Si por razones de interés para el Ministerio se requiere prorrogar dicho tiempo, el Comité estudiará el caso y recomendará al Ministro la que a su juicio mejor convenga.

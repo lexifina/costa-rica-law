@@ -1,0 +1,1 @@
+Artículo 20.-Si el funcionario designado no puede disfrutar de la beca o facilidad. deberá comunicarlo al Departamento de Capacitación a más tardar el día siguiente a partir del momento en que tuvo conocimiento del impedimento, y en sustitución pe propondrá a quien ocupó el segunda lugar en el concursa y así sucesivamente.

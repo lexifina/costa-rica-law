@@ -1,0 +1,1 @@
+Artículo 27.-Las sesiones serán siempre privadas pero el Comité de Becas podrá invitar, cuando fuere necesario, a otros funcionarios concediéndoles o no el derecho de participar en las deliberaciones con voz, pera sin vota.

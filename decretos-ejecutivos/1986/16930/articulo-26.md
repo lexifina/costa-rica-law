@@ -1,0 +1,1 @@
+Artículo 26.-El Comité de Becas se reunirá ordinariamente con la frecuencia Que determine su Presidente sin necesidad de convocatoria, a extraordinariamente a solicitud de dos de sus miembros. El quórum para que pueda sesionar válidamente será la simple mayoría de sus componentes.
