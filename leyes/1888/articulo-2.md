@@ -1,0 +1,1 @@
+Artículo 2°.- Se autoriza asimismo a la Municipalidad para que fije los plazos y sistemas de cobro de los impuestos de lastrado, pavimentación y valor de encunetado de que habla el artículo 1° de esta ley, siendo a cargo de la Municipalidad el trabajo de colocación del mismo.
