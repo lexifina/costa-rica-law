@@ -1,0 +1,1 @@
+Artículo 2°.- La indicada operación se efectuará mediante licitación pública y en definitiva el precio que ha de pagarse por el inmueble escogido no excederá del valor que señale el Departamento de Peritos de la Tributación Directa.
