@@ -1,0 +1,1 @@
+Artículo 7º—Prohibición de obstaculizar. Se prohíbe a los funcionarios obstaculizar, dificultar, entorpecer, estorbar, limitar, imposibilitar, coartar, inhibir, cohibir, poner trabas, vedar, negar, por acción u omisión la presentación en tiempo de la liquidación del viaje a aquel funcionario que daba hacerlo, según lo dispuesto en el artículo 3 del presente Reglamento.

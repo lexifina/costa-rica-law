@@ -1,0 +1,1 @@
+Artículo 2º—Las presentes regulaciones serán de aplicación a los funcionarios del Tribunal Supremo de Elecciones y a los sujetos beneficiarios que excepcionalmente puedan obtener viáticos en el interior del país, quienes en lo sucesivo se entenderán comprendidos dentro del término funcionario.

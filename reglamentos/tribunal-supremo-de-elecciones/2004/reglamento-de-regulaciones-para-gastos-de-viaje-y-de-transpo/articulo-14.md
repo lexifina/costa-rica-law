@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 14.—Aplicación supletoria. En lo no previsto en estas regulaciones y atinente a la materia, serán de aplicación supletoria las disposiciones contenidas en el Reglamento Autónomo de Servicios del Tribunal Supremo de Elecciones, la Ley General de la Administración Pública, la Ley de Administración Financiera y Presupuestos Públicos y su Reglamento, Código de Trabajo, Código Civil, Código Procesal Civil, Código Penal, Código Procesal Penal y demás disposiciones normativas así como la jurisprudencia administrativa y judicial que sea de aplicación a la materia referente a viáticos.

@@ -1,0 +1,1 @@
+Artículo 6º—Prohibición de salida a nueva gira a funcionario con liquidación pendiente de presentación. No podrá salir a un nuevo viaje o girarse adelanto alguno al funcionario que tuviere pendiente la presentación de la liquidación del viaje anterior.
