@@ -19,3 +19,4 @@ Reglamento General de los Patronatos y Juntas Directivas de Protección Social
 | 5 | 1968-07-05 | Decreto Ejecutivo 5 (1968-07-05) |
 | 6 | 1970-12-09 | Decreto Ejecutivo 1390 (1970-12-09) |
 | 7 | 1971-02-09 | Decreto Ejecutivo 1482 (1971-02-09) |
+| 8 | 1975-02-17 | Decreto Ejecutivo 4638 (1975-02-17) |
