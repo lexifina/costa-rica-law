@@ -1,0 +1,1 @@
+Art° 2° En estos tres individuos recidirá la administración de todas las rentas del Estado distribuida conforme lo disponga el Gobierno con equidad debiendo por ahora ser á cargo del Tesorero todo lo conserniente al Ministro principal, del Factor lo que toque á Tavacos, Polbora, Salitre y papel Sellado, y del Contador lo que pertenesca al ramo de Alcavalas.
