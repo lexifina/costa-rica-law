@@ -1,0 +1,5 @@
+DECRETO XXXIX
+Previene que el beneficio de esperas solo se concede al deudor, cuyos bienes alcancen a satisfacer sus créditos.
+El Senado y Cámara de Representantes de Costa Rica reunidos en Congreso.
+Para resolver las dudas que se han presentado en los Tribunales, y para evitar la mala interpretación y los abusos cometidos con frecuencia en los juicios de esperas, mientras se emite una ley general sobre el concurso de acreedores en virtud del decreto número 16 de 24 de julio próximo pasado, y de conformidad con el capítulo 4° lib 2° del Código, parte 3°, decretan:
+Art 1° El beneficio de espera de que habla el artículo 500 de la citada parte del Código General, compete solamente a los deudores, cuyos bienes bastan para cubrir todas sus deudas pasivas y que sean capaces de dar a sus acreedores las seguridades que exige la ley (art 1362 y 1363 del Código Civil) No constando su solvencia de la misma lista que deben presentar junto con su solicitud (art 491 y 502 de la parte 3°) ó en su caso, del justiprecio pedido por parte de los acreedores, el Juez no concederá el beneficio de espera.
