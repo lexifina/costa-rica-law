@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del ingreso de documentos al Archivo Central
+Artículo 6º—Los jefes de departamento o encargados de oficina serán los responsables que en su oficina se ordenen o se archiven correctamente los documentos, siguiendo las normas y procedimientos establecidas por el archivo central el cual recibirá debidamente organizados los documentos que le remitan las diferentes direcciones y departamentos; tomando en cuenta la vigencia administrativa establecida en la tabla de plazos de conservación y eliminación de documentos, así mismo serán los responsables de que se envíen correctamente las listas de remisión por triplicado.

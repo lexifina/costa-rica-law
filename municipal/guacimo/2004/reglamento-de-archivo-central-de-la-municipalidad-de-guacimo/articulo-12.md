@@ -1,0 +1,1 @@
+Artículo 12.—Cualquier ciudadano interesado en consultar documentos deberá de hacer una solicitud por escrito indicando claramente el objetivo de la investigación, llenará una boleta de préstamo de documentos. Asimismo, se debe presentar en el acto la cédula de identidad, carné de estudiante o pasaporte que lo acredite.
