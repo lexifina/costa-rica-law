@@ -1,0 +1,1 @@
+Art 8°.- En razón de los servicios que deberán prestar para el movimiento y estación de tropas los habitantes de la Provincia de Moracia y comarca de Puntarenas quedan, por hoy, exentos de esta contribución.
