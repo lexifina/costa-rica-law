@@ -13,3 +13,4 @@ Reglamento de Seguridad en Construcciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-27 | la propia norma |
+| 2 | 1996-06-27 | SINALEVI (sin norma nombrada) |
