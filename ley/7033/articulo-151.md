@@ -1,6 +1,6 @@
-Artículo 151.- Refórmase el artículo 128 de la ley Nº 7015 del 22 de
+ARTICULO 151.- Refórmase el artículo 128 de la ley Nº 7015 del 22 de
 noviembre de 1985, para que diga así:
-"Artículo 128.- Créase el timbre migratorio, cuyo valor será de veinte
+Artículo 128.- Créase el timbre migratorio, cuyo valor será de veinte
 colones, que deberán agregar los extranjeros a toda solicitud que presenten
 a la Dirección General de Migración y Extranjería. La emisión y venta del
 timbre estará a cargo del Banco Central de Costa Rica, el cual depositará lo

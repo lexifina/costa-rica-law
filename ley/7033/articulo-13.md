@@ -1,26 +1,9 @@
-Artículo 13.- Para velar por el estricto cumplimiento de las
-disposiciones de esta ley, de su reglamento y de las resoluciones que las
-autoridades de migración dicten dentro de su competencia, los miembros de
-la Policía Especial de Migración, debidamente identificados, deberán
-practicar los siguientes controles migratorios, para lo cual son hábiles
-las veinticuatro horas del día:
-1) Efectuar inspecciones en hoteles, pensiones, casas de alojamiento,
-casas de huéspedes, moteles y similares, excepción hecha de las
-habitaciones, salvo que haya una orden de allanamiento o que proceda éste
-conforme con la ley.
-2) Investigar la situación migratoria de los trabajadores extranjeros,
-para lo cual podrán ingresar a los centros de trabajo en horas laborales.
-Podrán, además, revisar planillas, cédulas de identidad y de residencia,
-tarjetas de asistencia, medios de pago, según se establezca en el
-reglamento de esta ley.
-3) Visitar sitios de diversión o de espectáculos públicos con el fin
-de controlar la situación migratoria de los extranjeros.
-4) Colaborar en el control de embarque o desembarque de pasajeros en
-cualquier punto o lugar del país, especialmente cuando viajen en algún
-medio de transporte internacional.
-5) Solicitar la identificación de las personas, a fin de determinar
-sus situación migratoria, en caso de extranjeros.
-6) Interrogar y recibir declaración a los presuntos infractores de
-esta ley y detenerlos en cuanto fuere procedente por el tiempo
-estrictamente necesario.
+ARTICULO 13.- Para velar por el estricto cumplimiento de las disposiciones de esta ley, de su reglamento y de las resoluciones que las autoridades de migración dicten dentro de su competencia, los miembros de la Policía Especial de Migración, debidamente identificados, deberán practicar los siguientes controles migratorios, para lo cual son hábiles las veinticuatro horas del día:
+1) Efectuar inspecciones en hoteles, pensiones, casas de alojamiento, casas de huéspedes, moteles y similares, excepción hecha de las habitaciones, salvo que haya una orden de allanamiento o que proceda éste conforme con la ley.
+2) Investigar la situación migratoria de los trabajadores extranjeros, para lo cual podrán ingresar a los centros de trabajo en horas laborales. Podrán, además, revisar planillas, cédulas de identidad y de residencia, tarjetas de asistencia, medios de pago, según se establezca en el reglamento de esta ley.
+3) Visitar sitios de diversión o de espectáculos públicos con el fin de controlar la situación migratoria de los extranjeros.
+4) Colaborar en el control de embarque o desembarque de pasajeros en cualquier punto o lugar del país, especialmente cuando viajen en algún medio de transporte internacional.
+5) Solicitar la identificación de las personas, a fin de determinar sus situación migratoria, en caso de extranjeros.
+(*) 6) Interrogar y recibir declaración a los presuntos infractores de esta ley y detenerlos en cuanto fuere procedente por el tiempo estrictamente necesario.
 7) Los demás que le encomienden esta ley y su reglamento.
+(*) (Por resolución de la Sala Constitucional N° 4673-03 de las 14:48 hrs. del 28/05/20023, se interpretó el inciso 6 de este artículo de la siguiente manera: "Se declara que el artículo 13 inciso 6) es constitucional, siempre y cuando se interprete que la potestad de la Policía Especial de Migración, de interrogar y recibir declaración a los presuntos infractores de la ley, en el caso de la investigación de los delitos previstos en esa normativa, la intervención de las autoridades de migración, se limita a aspectos referentes a la identidad del imputado y no sobre los hechos que se le atribuyen penalmente")

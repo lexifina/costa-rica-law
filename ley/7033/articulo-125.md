@@ -1,4 +1,4 @@
-Artículo 125.- El extranjero cuya expulsión se haya ordenado podrá
+ARTICULO 125.- El extranjero cuya expulsión se haya ordenado podrá
 apelar de ella en el acto de notificación o dentro de las veinticuatro
 horas siguientes a la notificación. Si lo hiciera al ser notificado, la
 autoridad migratoria lo hará constatar en el acta respectiva.

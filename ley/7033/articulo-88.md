@@ -1,4 +1,2 @@
-Artículo 88.- Será sancionado con pena de seis meses a un año de
-prisión, el extranjero deportado que reingresare sin autorización o el
-extranjero que ingresare al país eludiendo el control migratorio por un
-lugar no habilitado.
+ARTICULO 88.- Será sancionado con pena de seis meses a un año de prisión, el extranjero deportado que reingresare sin autorización o el extranjero que ingresare al país eludiendo el control migratorio por un lugar no habilitado.
+(Por resolución de la Sala Constitucional N° 4673-03 de las 14:48 hrs. del 28/05/20023, se interpretó este artículo de la siguiente manera: "Tratándose de investigación de la comisión del delito contemplado en el artículo 88, el plazo de detención máximo, para poner al imputado a disposición del juez competente, es el de veinticuatro horas, de conformidad con lo que dispone el artículo 37 de la Constitución Política")
