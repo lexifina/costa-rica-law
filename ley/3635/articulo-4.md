@@ -1,0 +1,2 @@
+ARTICULO 4
+Cada una de las Altas partes Contratantes estará obligada a otorgar, anualmente, por intermedio de los Institutos Culturales a que se refiere este Convenio, dos becas para estudiantes de cursos superiores o profesionales, costarricenses o chilenos enviados de uno a otro país, para seguir o perfeccionar sus estudios, estableciéndose para tales efectos las facilidades necesarias, de acuerdo con los reglamentos educacionales vigentes.

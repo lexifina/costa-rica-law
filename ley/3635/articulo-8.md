@@ -1,0 +1,2 @@
+ARTICULO 8
+Ambos Gobiernos propiciarán toda clase de facilidades y exonerarán de impuesto a los objetos destinados a las Ferias de Libros, Obras de Arte, exposiciones de carácter técnico, científico o folklórico, costarricenses en Chile y chilenos en Costa Rica, como un medio de intensificar el intercambio de producciones intelectuales. Entre otras iniciativas estimularán especialmente al sistema de exposiciones periódicas del Libro costarricense y chileno, las que se verificarán, alternativamente, en uno y otro país.
