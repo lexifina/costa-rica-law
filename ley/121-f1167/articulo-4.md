@@ -1,0 +1,1 @@
+Artículo 4°.-La Junta Directiva del Instituto adaptará, hasta donde sea posible, las prescripciones establecidas para la industria cafetalera, a la industria del cacao, y tratar de obtener para‚ ésta todas las ventajas que se consigan para el café‚.
