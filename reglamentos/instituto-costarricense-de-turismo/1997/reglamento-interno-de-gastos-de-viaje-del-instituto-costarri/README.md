@@ -17,3 +17,4 @@ Reglamento Interno de Gastos de Viaje del Instituto Costarricense de Turismo (En
 | 2 | 1997-04-28 | Reglamento 4723 (1997-04-28) |
 | 3 | 1997-11-24 | Reglamento 4779 (1997-11-24) |
 | 4 | 1998-01-12 | Reglamento 4791 (1998-01-12) |
+| 5 | 1998-08-25 | Reglamento 4851 (1998-08-25) |

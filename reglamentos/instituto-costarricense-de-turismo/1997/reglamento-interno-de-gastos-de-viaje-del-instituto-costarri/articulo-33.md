@@ -1,2 +1,6 @@
-Artículo 33.—Detalle de lo consumido en facturas por atenciones
-Las facturas por gastos de representación o recepción deben de contener un detalle o desglose de lo consumido emitido por el negocio que brindó el servicio. Además de la información de las personas atendidas, según lo dispone el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.
+Artículo 33.—Informe sobre gasto por atenciones.
+Las facturas o tiquetes de caja por gastos de representación o atención deberán acompañarse de un informe con las siguientes indicaciones:
+Cargo y nombre de los funcionarios atendidos y de la entidad a que pertenecen.
+Nombre y firma del funcionario responsable del pago Motivo de la atención
+Clase o tipo de atención
+(Así reformado por acuerdo tomado en sesión N° 4851 de 25 de agosto de 1998)
