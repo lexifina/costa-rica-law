@@ -1,0 +1,1 @@
+Art. 2°.-Establécense, además, escuelas nocturnas de adultos, para la enseñanza del expresado sistema, en todas las capitales de provincia y de comarca, y en todas las cabeceras de cantón: estas escuelas serán servidas por el Director de la respectiva de varones, y en falta de éste por la persona que nombre el Poder Ejecutivo.
