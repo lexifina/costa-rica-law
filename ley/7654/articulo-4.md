@@ -1,16 +1,4 @@
-ARTICULO 4.- Autoridades competentes
-Para conocer de los procesos mencionados en esta ley, serán
-competentes las alcaldías de pensiones alimentarias; donde no existan y no
-sea recomendable crearlas, serán competentes las que designe la Corte
-Suprema de Justicia.
-Los jueces de familia conocerán, incidentalmente, de las gestiones
-sobre alimentos que se originen en procesos de divorcio, separación
-judicial y nulidad de matrimonio, mediante el trámite de los artículos 17
-y siguientes, de acuerdo con los principios de esta ley.
-Si la sentencia dictada en los procesos referidos en el párrafo
-anterior contuviere condena de alimentos, una vez firme el
-pronunciamiento, el juzgado remitirá, a la Alcaldía de Pensiones
-Alimentarias o a la que le corresponda conocer de estos asuntos en su
-circunscripción territorial, los legajos correspondientes a alimentos,
-acompañados de una certificación de la sentencia para que sean continuados
-en ese despacho.
+Artículo 4.- Autoridades competentes
+Para conocer de los procesos mencionados en esta ley, serán competentes las alcaldías de pensiones alimentarias; donde no existan y no sea recomendable crearlas, serán competentes las que designe la Corte Suprema de Justicia.
+Los jueces de familia conocerán, incidentalmente, de las gestiones sobre alimentos que se originen en procesos de divorcio, separación judicial y nulidad de matrimonio, mediante el trámite de los artículos 17 y siguientes, de acuerdo con los principios de esta ley.
+Si la sentencia dictada en los procesos referidos en el párrafo anterior contuviere condena de alimentos, una vez firme el pronunciamiento, el juzgado remitirá, a la Alcaldía de Pensiones Alimentarias o a la que le corresponda conocer de estos asuntos en su circunscripción territorial, los legajos correspondientes a alimentos, acompañados de una certificación de la sentencia para que sean continuados en ese despacho.

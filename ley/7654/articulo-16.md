@@ -1,5 +1,3 @@
-ARTICULO 16.- Carácter obligatorio del aguinaldo
-Las personas obligadas a pagar una pensión alimentaria, provisional
-o definitiva, deberán cancelar, por concepto de aguinaldo, la suma
-equivalente a una mensualidad, pagadera en los primeros quince días de
-diciembre, sin necesidad de resolución que así lo ordene.
+Artículo 16.- Carácter obligatorio del aguinaldo
+Las personas obligadas a pagar una pensión alimentaria, provisional o definitiva, deberán cancelar, por concepto de aguinaldo, la suma equivalente a una mensualidad, pagadera en los primeros quince días de diciembre, (*) sin necesidad de resolución que así lo ordene.
+(*) (Interpretado por resolución de la Sala Constitucional N° 3903 de las 15:10 hrs. del 21/04/2004, en el siguiente sentido: "En lo relativo a la última parte del pluricitado artículo 16 –que la sentencia transcrita no analiza– estima ahora la Sala que no resulta inconstitucional, en la medida en que el hecho de que no sea exigido un pronunciamiento judicial expreso para tener por exigible el pago de la cuota alimentaria extraordinaria, no debe interpretarse como que dicho pronunciamiento no sea posible e incluso necesario... En otras palabras, que no deba darse la resolución no significa que no pueda darse. Consecuentemente, la frase final de la norma indicada, que literalmente reza "sin necesidad de resolución que así lo ordene", debe entenderse en el sentido de que existirá el deber de pagar el aguinaldo en las fechas previstas, a menos que un pronunciamiento de la autoridad judicial competente determine lo contrario....")
