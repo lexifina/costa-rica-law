@@ -1,0 +1,14 @@
+N° 27131-H-MOPT
+EL PRESIDENTE DE LA REPUBLICA
+Y LOS MINISTROS DE HACIENDA
+Y DE OBRAS PUBLICAS Y TRANSPORTES
+Considerando:
+1°-Que en el inciso a) del artículo 20 de la Ley N° 7798 de 30 de abril de 1998. "Ley de Creación del Consejo Nacional de Vialidad", se establece una contribución especial sobre la distribución nacional o internacional de combustibles y energéticos derivados del petróleo para financiar conjuntamente con otros recursos al Fondo del Consejo Nacional de Vialidad.
+2°-Que en virtud de que la ley N° 7798 establece que se puede gravar la distribución nacional o bien la internacional de combustibles, se considera conveniente excluir de este gravamen las exportaciones de combustibles y los que adquieran en los aeropuertos y puertos, las líneas aéreas que realizan vuelos internacionales y las navieras que prestan el servicio internacional.
+3°-Que el numeral 3, del inciso a) del artículo 20 de la Ley N° 7798, establece que debe fijarse la base imponible del tributo, entre el mayor valor que resulte, del valor de mercado determinado por el reglamento y el de transferencia de mercancías al minorista y el detallista.
+4°-Que mediante el artículo 32 de la "Ley Creación del Consejo Nacional de Vialidad", N° 7798 de 30 de abril de 1998, se dispuso eliminar la asignación específica del gasto de las dos terceras partes del Impuesto Selectivo de Consumo sobre los hidrocarburos, de acuerdo a lo establecido en el artículo 3° del decreto ejecutivo N° 24316-H de 30 de mayo de 1995.
+5°-Que el artículo 12 de la Ley de Consolidación de Impuestos Selectivos de Consumo N° 4961 de 10 de marzo de 1972, faculta al Poder Ejecutivo a establecer las tarifas Ad-valorem aplicables a las mercancías incluidas en los anexos de dicha ley.
+6°-Que el artículo N° 41 de la Lev N° 6955 de 24 de febrero de 1984, autoriza un incremento de cinco puntos porcentuales a las tarifas advalorem aplicables a las mercancías incluidas en los anexos 1 y 2 de la Ley de Consolidación de Impuestos Selectivos de Consumo, N° 4961. Por tanto,
+Con fundamento en las atribuciones que les confieren los incisos 3) y 18) de] artículo 140 de la Constitución Política, la Ley N° 7798 de 30 de abril de 1998, el artículo N° 41 de la Ley N° 6955 de 24 de febrero de 1984 y el artículo 12 de la Ley de Consolidación de Impuestos Selectivos de Consumo N° 4961 de 10 de marzo de 1972 y sus reformas,
+DECRETAN:
+Artículo 1°-Los combustibles y energéticos derivados del petróleo que están afectos a la Contribución Especial del 15%, son: la gasolina regular, gasolina super, diesel, fuel oil, jet-fuel, av-gas, gas licuado de petróleo (gas natural, propano y butanos) y queroseno, excepto las exportaciones de combustibles y los que adquieran en los aeropuertos y puertos, las líneas aéreas que realizan vuelos internacionales y para esos fines y las navieras que prestan el servicio internacional y para esos fines.
