@@ -14,3 +14,4 @@ Reglamento del Premio Nacional Deportivo Claudia Poll
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-17 | la propia norma |
+| 2 | 1998-03-17 | Ley 8 |
