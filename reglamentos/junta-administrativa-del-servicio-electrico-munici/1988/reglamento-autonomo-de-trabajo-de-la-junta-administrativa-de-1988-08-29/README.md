@@ -16,3 +16,4 @@ Reglamento Autónomo de Trabajo de la Junta Administrativa de Servicio Eléctric
 | 1 | 1988-10-30 | la propia norma |
 | 2 | 1990-09-20 | Reglamento 2543 (1990-09-20) |
 | 3 | 1995-01-13 | Reglamento 2960 (1995-01-13) |
+| 4 | 2003-09-08 | Reglamento 3087 (2003-09-08) |

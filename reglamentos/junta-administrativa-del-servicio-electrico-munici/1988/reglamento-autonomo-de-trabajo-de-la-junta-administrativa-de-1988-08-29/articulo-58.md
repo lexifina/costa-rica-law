@@ -1,4 +1,6 @@
 CAPITULO XII
 Del concurso interno y externo
 Articulo 58—Los puestos vacantes o a crear serán llenados de preferencia por medio de selección interna y se tomará en cuenta a los trabajadores de la institución nombrados en propiedad. No obstante lo anterior y dependiendo de las necesidades institucionales se podrá recurrir al concurso externo No podrá exigirse al solicitante de una plaza vacante requisitos que no sean indispensables para el desempeño de la misma.
+En los concursos internos únicamente podrán participar tanto los trabajadores de la institución nombrados en propiedad como los interinos o sustitutos con no menos de seis meses de prestar sus servicios.
 (Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 52 pasó a ser el 58.)
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 3087 de 08 de setiembre de 2003, publicada en La Gaceta N° 206 de 27 de octubre de 2003, la presente reforma se hizo al presente artículo en virtud de que al corre numeración el artículo 52 que hace mención la presente Sesión no tiene relación con los concursos internos, por lo que la reforma se realizó al anterior artículo 52 que ahora es el 58.)
