@@ -1,0 +1,1 @@
+Artículo 8°-La compensación económica establecida por la ley N° 5867, sólo se hará efectiva cuando la persona titular del puesto afectado por la prohibición se encuentre desempeñando las funciones propias de su cargo.

@@ -1,0 +1,1 @@
+Artículo 5°-Los funcionarios cuyo puesto tenga como requisito la condición de profesional, deberán probar tal extremo mediante certificación expedida por el respectivo centro de Enseñanza Superior. Igualmente deberán hacerlo cuando el cargo exija determinado grado académico.

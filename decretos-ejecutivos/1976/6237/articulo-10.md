@@ -1,0 +1,2 @@
+Artículo 10.-Los cambios de situación de los servidores que en alguna forma afecten el monto de la compensación, ocurridos a partir de la vigencia de la ley o después de la publicación de este reglamento, se harán constar en la planilla correspondiente. La Acción de Personal debidamente aprobada servirá de base para efectuar los ajustes correspondientes en el monto de la compensación.
+Dado en la Casa Presidencial.-San José, a los seis días del mes de agosto de mil novecientos setenta y seis.

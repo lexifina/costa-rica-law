@@ -1,0 +1,1 @@
+Artículo 4°-Para la determinación del nivel profesional y el grado académico correspondiente a cada cargo, se estará a lo dispuesto por el Manual Descriptivo de Puestos de la Dirección General de Servicio Civil.

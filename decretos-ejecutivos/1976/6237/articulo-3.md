@@ -1,0 +1,1 @@
+Artículo 3°-Se encuentran afectos a las prohibiciones establecidas en el artículo 113 del Código Tributario, y tienen derecho a la compensación económica establecida por, la ley N° 5867 los funcionarios y empleados de la Administración Tributaria. que se incluyen dentro del anexo de este Reglamento, que es parte del mismo.

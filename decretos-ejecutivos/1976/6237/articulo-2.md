@@ -1,0 +1,1 @@
+Artículo 2°-El Director General de Hacienda, en consulta con el Director General de la Tributación Directa y el Director de Servicio Civil, designará en su oportunidad, aquellos puestos que de acuerdo con las disposiciones de la ley y el reglamento llegaran a estar afectados por las prohibiciones.
