@@ -1,0 +1,1 @@
+Artículo IX.-Los consejos de distrito, recomendarán á los beneficiarios de las becas de acuerdo, con los atestados, dando prioridad a quienes más lo necesiten y hayan demostrado un alto aprovechamiento académico, todo dentro de la disponibilidad del presupuesto. La condición del beneficiario es asignada como máxime por el período lectivo correspondiente.

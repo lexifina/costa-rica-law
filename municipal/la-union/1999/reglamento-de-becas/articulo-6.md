@@ -1,0 +1,1 @@
+Artículo VI-Quince días antes de iniciarse el curso lectivo correspondiente, se le entregará al beneficiario, una tercera parte del monto total asignado, para ayuda de compra de uniformes y útiles. El saldo restante, se entregará en tractos mensuales, hasta completar el monto total de la beca. Dichos tractos se entregarán en la primera semana de cada mes.

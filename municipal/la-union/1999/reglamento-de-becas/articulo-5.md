@@ -1,0 +1,1 @@
+Artículo V.-Corresponderá al Concejo Municipal, fijar el monto. que se entregará a los beneficiarios. Este monto regirá a partir de la fecha acordada por el mismo, pudiendo ser variado, según las posibilidades económicas de la Municipalidad.

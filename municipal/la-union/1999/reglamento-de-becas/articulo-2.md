@@ -1,0 +1,1 @@
+Artículo II.-Los consejos de distrito, serán los encargados de promocionar ante los estudiantes de primaria y secundaria, de su respectivo distrito y de forma abierta, el programa de becas municipales, de tal manera que este no se preste para favoritismos de ninguna índole.

@@ -1,0 +1,1 @@
+Artículo VIII.-Los aspirantes a una beca, deberán llenar la solicitud correspondiente y adjuntar información que solicite el Concejo Municipal, por medio de los consejos de distrito. La sola presentación de la solicitud no lo acredita como beneficiario del programa de becas.

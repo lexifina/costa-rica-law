@@ -1,0 +1,1 @@
+Artículo XIII.-EI solicitante deberá entregar la solicitud con los requisitos, la primera semana del mes de enero, en la Secretaría de esta Municipalidad en horas hábiles o en las oficinas de los Consejos de Distrito.

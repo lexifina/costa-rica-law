@@ -1,0 +1,1 @@
+Artículo III.-Corresponderá a los consejos de distrito, recibir, estudiar y recomendar ante el Concejo Municipal, sobre las solicitudes presentadas y que reúnan los requisitos estipulados, para el efecto, a más tardar en la segunda semana del mes de enero.

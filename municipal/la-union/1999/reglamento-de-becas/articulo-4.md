@@ -1,0 +1,1 @@
+Artículo IV.-Los Consejos de Distrito, comunicarán periódicamente al Concejo Municipal, mediante Informes, las recomendaciones y el cumplimiento de los compromisos adquiridos por los estudiantes favorecidos en este programa.
