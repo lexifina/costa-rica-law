@@ -1,0 +1,1 @@
+TRANSITORIO SEGUNDO: La sede del Consejo Provincial será la Gobernación de la Provincia de Cartago la que deberá prestarle sus instalaciones y la plena colaboración a las instancias provinciales que por este Decreto se crean.

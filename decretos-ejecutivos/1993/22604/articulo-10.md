@@ -1,0 +1,2 @@
+Artículo 10.— La Gobernación de la Provincia proveerá los recursos humanos materiales y financieros, así como las instalaciones, el equipo de oficina y transporte, requeridos para el funcionamiento de la Secretaría Ejecutiva del Consejo Provincial.
+El Ministerio de Planificación Nacional y Política Económica (MIDEPLAN) presentará la asesoría y colaboración necesarias de acuerdo a las disponibilidades presupuestarias y patrimoniales.

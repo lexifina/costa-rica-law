@@ -1,0 +1,1 @@
+Artículo 5.—Las atribuciones y funciones del Consejo Provincial será mismas que el Decreto Ejecutivo No 20432-MIDEPLAN asigna a las Asamblea General de los Consejos Regionales de Desarrollo, el Consejo Provincial reglamentará su funcionamiento interno.
