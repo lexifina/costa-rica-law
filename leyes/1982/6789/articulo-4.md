@@ -54,3 +54,12 @@ que se integre, de conformidad con lo dispuesto en esta ley.
 Transitorio VII.- Los miembros de la Junta Directiva, que se integre
 de acuerdo con lo establecido en la presente ley, cesarán en sus cargos el
 31 de mayo de 1986.
+( Interpretados sus artículos transitorios por el artículo 51 de la ley Nº
+7018 de 20 de diciembre de 1985, en el sentido de que lo que disponen esas
+normas es sin perjuicio de la obligación del Banco Central de Costa Rica de
+vender divisas al tipo de cambio oficial vigente, al momento de la venta, a
+los estudiantes costarricenses que se encontraban, al 10 de diciembre de
+1981 cursando estudios universitarios de enseñanza superior en el exterior,
+obligación que tendrá el Banco Central hasta que el estudiante concluya sus
+estudios, o los interrumpa por más de tres meses, salvo fuerza mayor o caso
+fortuito.)
