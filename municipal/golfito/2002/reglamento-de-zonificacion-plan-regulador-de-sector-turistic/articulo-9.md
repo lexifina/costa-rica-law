@@ -1,0 +1,5 @@
+Artículo N° 9º—Zona de Vialidad Propuesta. (ZV).
+a) Propósito: Zona destinada a mejorar las condiciones de accesibilidad del turista dentro de la Zona Marítimo Terrestre y ordenar el tránsito de vehículos automotores.
+a Localización: Identificada con las siglas ZV, de acuerdo al mapa Nº 17, consiste en la vía de 11 metros de ancho que conecta la carretera pública con la zona pública, ubicada en los extremos de la zona planificada, atrás del mojón 39+40 y el mojón 26 metros, este último se extiende por 60 metros hasta topar con el sendero peatonal comunicando la Zona de Servicios Básicos con la Zona Pública. Además, incluye los parqueos vehiculares los cuales están señalados con una E.
+b) Usos permitidos: Circulación interna de vehículos, bicicletas, caballos, volantas y vehículos automotores de circulación restringida, de acuerdo a lo establecido por la Dirección de Vialidad del MOPT.
+c) Usos condicionales y conflictivos: Cualquier actividad que no esté directamente relacionada con el transporte de los visitantes.
