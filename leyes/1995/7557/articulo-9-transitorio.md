@@ -1,0 +1,1 @@
+TRANSITORIO IX.- Mientras las empresas en la modalidad de tiendas libres de impuestos aludidas en los artículos 134 y 135 de esta ley sean administradas por el Instituto Mixto de Ayuda Social, podrán actuar sin intervención de agente aduanero en el despacho de sus mercancías.
