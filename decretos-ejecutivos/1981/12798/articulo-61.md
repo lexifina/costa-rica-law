@@ -1,0 +1,1 @@
+Artículo 61.-Para la revalidación de los contratos para estudios, al concluirse cada ciclo académico, el interesado deberá demostrar que sus calificaciones lo hacen acreedor a una prórroga de la licencia. Se tomará en cuenta asimismo, la calificación anual de servicios obtenida por el solicitante.

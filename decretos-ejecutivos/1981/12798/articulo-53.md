@@ -1,0 +1,1 @@
+Artículo 53.-En casos muy calificados, los Jefes Departamentales podrán justificar las ausencias hasta por dos días que no sean por incapacidad física del servidor, sin que tal justificación signifique el pago del salario. Las ausencias mayores de dos días requerirán la aprobación del Director General.

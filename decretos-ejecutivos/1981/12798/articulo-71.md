@@ -1,0 +1,1 @@
+Artículo 71.-Este Reglamento no perjudica los derechos jurídicamente adquiridos por los servidores de la Institución. Se presumirá de conocimiento de éstos y será de observancia obligatoria para todos desde el día de su vigencia.

@@ -1,0 +1,6 @@
+Artículo 33.-Además de lo dispuesto en otras disposiciones de este Reglamento, queda absolutamente prohibido a los chóferes de la Dirección General:
+a) Tomar licor durante las horas de trabajo o conducir vehículos en estado alcohólico, o bajo cualquier otra condición análoga, o presentarse a labores bajo estas condiciones;
+b) Conducir a velocidades superiores a las permitidas por las leyes o reglamentos del tránsito, así como incumplir disposiciones que los mismos contemplan;
+c) Usar el vehículo en lugares diferentes al del itinerario que corresponda. Cuando por circunstancias muy calificadas el conductor se vea obligado a salirse de la ruta respectiva, al término de la jornada deberá dar el informe del caso a su superior inmediato;
+d) Ceder la conducción del vehículo a otras personas, salvo razones muy calificadas o de fuerza mayor. El funcionario que incurra en esta falta se hará acreedor a las mismas responsabilidades que acarrea al conductor;
+e) Ocupar o permitir que se use el vehículo en actividades ajenas a servicios de la Institución, así como transportar a funcionarios o particulares que no tengan relación con el servicio que se presta, salvo casos que por la índole del transporte o el propósito del viaje así lo obliguen.

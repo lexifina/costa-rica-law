@@ -1,0 +1,1 @@
+Artículo 5º.-El Consejo de Jefes Departamentales a que se refiere el artículo 5º del Reglamento del Estatuto, tendrá el carácter de organismo consultivo; el Director lo convocará cada vez que lo estime necesario o cuando así lo disponga el citado Reglamento. En el acta respectiva deberán constar las recomendaciones que se acordaren.

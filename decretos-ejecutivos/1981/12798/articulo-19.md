@@ -1,0 +1,1 @@
+Artículo 19.-A los servidores que realizan labores que por su indudable naturaleza, se encuentran excluidos de la limitación de la jornada de trabajo, de acuerdo con las disposiciones legales aplicables, se les podrá exigir una jornada hasta de doce horas diarias, con una hora y media de descanso.

@@ -1,0 +1,1 @@
+Artículo 62.-No obstante lo estipulado en este capítulo, la concesión de licencias para estudios y prórrogas podrá ser denegada cuando así lo justifique la necesidad de servicio, sin responsabilidad para la Dirección General y sin que situaciones similares o sucedidas con anterioridad, puedan considerarse como derechos adquiridos.

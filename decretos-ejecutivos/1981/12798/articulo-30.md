@@ -1,0 +1,21 @@
+CAPITULO IX
+Obligaciones de los servidores
+Artículo 30.-Además de lo dispuesto en la Ley General de la Administración Pública, en el artículo 39 del Estatuto, 50 de su Reglamento y otras disposiciones del presente Reglamento, son obligaciones de los servidores:
+a) Desempeñar su labor con la capacidad, interés y diligencia que sus cargos requieran, a efecto de lograr la mayor eficiencia y eficacia en el servicio que prestan;
+b) Cumplir con la mayor diligencia y buena voluntad las órdenes de sus jefes relativas al servicio y a los deberes del puesto que desempeñan, auxiliando en su trabajo a cualesquiera de los demás empleados cuando su Jefe o quien lo represente lo indique, siempre que estas labores de auxilio sean compatibles con sus aptitudes, estado, condición y cargo que desempeñe;
+c) Atender con igual diligencia, afán de servicio y cortesía, al público que acuda a las dependencias de la Dirección General, así como guardar a sus Jefes, compañeros, subalternos y demás funcionarios públicos, toda la consideración debida, de modo que no se originen quejas justificadas por mal servicio, desatención, maltrato o irrespeto;
+d) Durante las horas de trabajo vestir correctamente, acorde con la jerarquía del cargo y funciones que desempeñe;
+e) Observar dignidad en el desempeño de sus cargos y en la vida social y, en todos su actos guardar conducta conforme con su posición oficial, en resguardo del buen nombre y prestigio de la Institución a la cual sirven;
+f) Guardar la más absoluta reserva sobre los asuntos privados de la Dirección General, así como la debida discreción sobre lo relacionado con su trabajo, cuando así se requiera por la naturaleza de sus labores o en virtud de disposiciones legales o instrucciones especiales, aún después de haber cesado en el cargo. Todo ello, sin perjuicio de la obligación que el servidor tendrá de denunciar ante quien corresponda, los hechos incorrectos o delictuosos que lleguen a su conocimiento;
+g) Responder por los objetos, máquinas y demás útiles de la Dirección General que tengan en uso; velar porque no sufran más deterioro que el de su uso normal, y reponer o pagar aquéllos cuyo deterioro, destrucción o pérdida causaren intencionalmente o se debieran a su negligencia o descuidos manifiestos y absolutamente inexcusables;
+h) Pedir permiso al superior jerárquico inmediato, antes de salir del centro de trabajo por razón de cualquier asunto oficial o personal, y reportar con exactitud el lugar en donde se encontrará;
+i) Presentar al jefe inmediato constancia del tiempo empleado en sus visitas a las instituciones aseguradoras por motivo de tratamiento médico;
+j) Someterse a reconocimiento médico en cualquier momento, para comprobar que no padecen de incapacidad para el cabal desempeño de sus labores o de alguna enfermedad profesional o contagiosa, a solicitud del Director General o de algún organismo oficial de salud pública o seguridad social;
+k) Firmar o anotar sus iniciales en todo trabajo escrito que realicen;
+l) Comunicar al superior jerárquico las sugerencias que estimaren necesarias, con vista de los hechos de que tuvieren conocimiento, para evitar o prevenir daños o perjuicios a los intereses de la Institución, a sus compañeros de trabajo o a las personas que eventualmente se encuentran en las oficinas donde prestan sus servicios;
+m) Informar de inmediato a su superior, asimismo, de cualquier error, deficiencia o irregularidad que notaren en el trabajo o con ocasión de él;
+n) Cumplir estrictamente, cuando sea del caso, con las disposiciones de los Reglamentos respectivos sobre "Gastos de viaje y transporte para funcionarios y empleados del Estado" y sobre "El uso de los vehículos del Poder Ejecutivo";
+ñ) Dar aviso inmediato al Director General de cualquier accidente, daño o deterioro que sufrieren los vehículos al servicio de la Institución aportando toda la información posible de los hechos y circunstancias en que se produjo el accidente;
+o) Prestar su colaboración a las comisiones de seguridad e higiene de trabajo o cualesquiera otras de interés para la salud y bienestar de los servidores de la Dirección General;
+p) Acatar y hacer cumplir en su caso, las medidas que tiendan a prever el acaecimiento de accidentes de trabajo y enfermedades profesionales;
+q) Las demás obligaciones que en forma expresa establece el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 48.-La llegada tardía que exceda de veinte minutos, contados a partir de la hora de ingreso o reingreso y que a juicio del Jefe del Departamento carezca de justificación, acarreará al servidor la pérdida de media jornada, para efectos de sanción y deducción de su salario.

@@ -1,0 +1,1 @@
+Artículo 45.-Las amonestaciones verbales o escritas deberán imponerse dentro de los ocho días posteriores a aquél en que se cometió la falta o en que fue del conocimiento de los superiores, y las suspensiones o despidos podrán acordarse en el transcurso del mes posterior al día en que el Director General tuvo conocimiento de la falta.
