@@ -1,0 +1,1 @@
+Artículo 2°.- La Policía especial de Apoyo, tendrá su sede central en la Capital de la República, sin detrimento de acuerdo con las necesidades de establecer sedes regionales a juicio del Director, previa autorización del señor Viceministro.
