@@ -1,0 +1,1 @@
+Artículo 12.-Serán considerados como miembros vitalicios del Patronato quienes hagan una donación a alguna de las instituciones que la Junta administra, siempre que ésta no sea menor de (¢100.00) cien colones.

@@ -1,0 +1,3 @@
+CAPITULO V
+DEL TESORERO
+Artículo 32.-EI Tesorero será nombrado por el Patronato en los cantones donde exista y en donde no, por la Junta Directiva de Protección Social. Ha de ser mayor de treinta años, de reconocida probidad y competencia mercantil. Durará en sus funciones mientras dure su buen desempeño. En caso de que cometa una falta grave o incurra en alguna incapacidad física o moral, así como en caso de renuncia o muerte, la Junta Directiva podrá reponerlo provisionalmente, mientras la Asamblea hace la nueva elección. Los empleados de la Tesorería serán nombrados por la Junta Directiva de Protección Social de una terna que presentará e Tesorero.

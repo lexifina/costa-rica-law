@@ -1,0 +1,1 @@
+Artículo 5°-Las Juntas no podrán, por ningún concepto, prestar o donar dinero, bienes muebles e inmuebles, ni otorgar a persona o corporación alguna su garantía, ni perdonar el pago de impuestos o contribuciones.

@@ -1,0 +1,1 @@
+Artículo 7°-Se considerará parentesco prohibido, para los efectos de este Reglamento, el que tienen entre sí los miembros ascendientes y descendientes hasta el tercer grado consanguíneo y el segundo de afinidad.

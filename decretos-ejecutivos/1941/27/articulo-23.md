@@ -1,0 +1,1 @@
+Artículo 23.-Los miembros de la Junta Directiva de Protección Social durarán en sus funciones dos años. Podrán ser reelegidos indefinidamente. Tomarán posesión de su cargo dentro de los diez días siguientes a su elección.

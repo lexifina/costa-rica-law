@@ -1,0 +1,1 @@
+Artículo 31.-Los Vocales sustituirán, por orden de su nominación, al Presidente y al Secretario en las faltas temporales o absolutas de éstos, hasta tanto no haya nombramiento de la Junta o Patronato. Desempeñarán las comisiones y prestarán los servicios que les encargue la institución.

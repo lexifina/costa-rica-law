@@ -1,0 +1,1 @@
+Artículo 25.- La Junta Directiva de Protección Social puede disponer que el trabajo material de la Secretaría se encomiende a un empleado con sueldo o bien que se pague una retribución al Secretario por esos servicios.

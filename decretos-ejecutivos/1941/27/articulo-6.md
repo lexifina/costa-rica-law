@@ -1,0 +1,1 @@
+Articulo 6°-Son miembros natos de las Juntas Directivas de Protección Social, con voz y voto, el Presidente de la República , el Obispo Diocesano y el Secretario de Estado en el Despacho de Salubridad Pública y Protección Social.
