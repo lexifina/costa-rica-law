@@ -1,0 +1,1 @@
+Artículo 2°—Objeto. El presente reglamento, tiene como objeto regular la venta de bienes muebles e inmuebles que a INFOCOOP le hayan adjudicado judicialmente o que éste haya aceptado en dación de pago por operaciones de crédito no atendidos oportunamente y conforme a lo dispuesto en el Reglamento de operación para la Administración de bienes.

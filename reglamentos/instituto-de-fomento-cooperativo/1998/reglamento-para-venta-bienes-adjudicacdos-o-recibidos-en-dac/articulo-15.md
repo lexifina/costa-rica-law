@@ -1,0 +1,1 @@
+Artículo 15.—Compete a la Junta Directiva , de conformidad con el Artículo 162 de la Ley de Asociaciones Cooperativas y Creación del INFOCOOP, adjudicar la venta de bienes, para lo cual se deberá presentar el respectivo dictamen de la Comisión de Bienes.

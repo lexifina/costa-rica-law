@@ -1,0 +1,1 @@
+Articulo 16.—Otros procedimientos. La Junta Directiva , por recomendación de la Dirección Ejecutiva puede decidir la venta de Bienes por el Sistema de Licitación Pública o Remate. En cuyo caso el procedimiento seguirá lo establecido en los artículos 44 y 61 del Reglamento General de Contratación Administrativa.

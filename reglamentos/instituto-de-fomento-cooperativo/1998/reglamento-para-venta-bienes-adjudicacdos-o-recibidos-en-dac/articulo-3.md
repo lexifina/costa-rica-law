@@ -1,0 +1,1 @@
+Artículo 3°—Actividad ordinaria. La venta de los bienes considerados en el artículo anterior es actividad ordinaria del Instituto. Por consiguiente, podrán adquirir los bienes a la venta cualquier persona física o jurídica, salvo las excepciones que establece La Ley de Contratación Administrativa en su artículo 22.

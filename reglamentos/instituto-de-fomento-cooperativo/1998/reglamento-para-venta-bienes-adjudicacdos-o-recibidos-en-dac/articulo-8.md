@@ -1,0 +1,1 @@
+Articulo 8°—Orden de prelación. En caso de que entre las organizaciones sociales o instituciones públicas interesadas en la adquisición de uno o varios bienes objeto de venta, se encuentren Entidades Cooperativas debidamente inscritas, estás tendrán prelación sobre los otros oferentes, siempre que su oferta no sea inferior en precio a la de los otros postulantes.

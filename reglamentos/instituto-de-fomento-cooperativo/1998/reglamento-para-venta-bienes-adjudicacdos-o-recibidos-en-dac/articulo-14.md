@@ -1,0 +1,1 @@
+Artículo 14.—Recepción de ofertas. El plazo para la recepción de ofertas, se indicará para cada concurso, el cual no será inferior a 3 días hábiles ni mayor a 15 días hábiles, contados a partir de la fecha de la corresponda. También se indicará la fecha, hora y lugar en que deben presentarse las ofertas.
