@@ -1,0 +1,6 @@
+DECRETO LXXI
+(Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente)
+Establece un impuesto sobre los terrenos de la lengua de la Ciudad de Alajuela.
+“ El Jefe Supremo del Estado Libre de Costa Rica.- por cuanto la Asamblea ha decretado y el Consejo sancionado la resolución siguiente.
+La Asamblea Constitucional del Estado libre de Costa Rica, considerando: que una gran parte de los terrenos de la lengua de la Ciudad de Alajuela se hayan cerrado solo para pastar: que los pobres carecen de terrenos para la agricultura: que teniendo todos igual derecho, unos son los que reportan mayores ventajas: que es de necesidad que todos tengan algún participo por igualdad del modo que sea posible: que esto solo podrá ser gravando aquellos terrenos con una pensión anual de dos reales por manzana para engrosar sus fondos municipales, y con ellos subvenir a sus necesidades: que este ha sido un gravamen impuesto a los terrenos de las leguas de los demás lugares; y finalmente que la misma municipalidad ha solicitado el establecimiento de esta cuota, ha tenido habían decretar y decreta.
+Art 1°. Se graban con un impuesto anual de dos reales por manzana los terrenos de la legua de la ciudad de Alajuela destinados a pastos.
