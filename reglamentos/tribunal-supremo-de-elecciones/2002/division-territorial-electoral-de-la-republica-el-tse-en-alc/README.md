@@ -14,3 +14,4 @@ División Territorial Electoral de la República (El TSE en Alcance N° 29 a La 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-21 | la propia norma |
+| 2 | 2004-08-03 | Decreto TSE 5 (2004-08-03) |
