@@ -1,0 +1,1 @@
+Transitorio 3º—En el plazo de seis meses a partir de la entrada en vigencia de este Reglamento, la Junta Administrativa realizará un estudio sobre el impacto financiero y actuarial del régimen de pensiones por invalidez, con el propósito de analizar su costo e impacto en las reservas y la posibilidad de aumentar el monto de dichas pensiones.

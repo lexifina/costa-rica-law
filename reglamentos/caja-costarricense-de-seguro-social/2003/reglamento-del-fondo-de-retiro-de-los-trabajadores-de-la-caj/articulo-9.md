@@ -1,0 +1,2 @@
+De la devolución de aportes individuales
+Artículo 9º—En caso de que un servidor se separe del sistema de protección adicional, por voluntad propia, mutuo consentimiento, advenimiento del plazo en los contratos a plazo fijo, o por despido con o sin responsabilidad patronal y en caso de muerte tendrá derecho a la devolución de sus aportes, más los intereses acreditados. En caso de muerte del servidor, la devolución de sus aportes más los intereses acumulados, se efectuarán a la persona beneficiaria que indique el funcionario.

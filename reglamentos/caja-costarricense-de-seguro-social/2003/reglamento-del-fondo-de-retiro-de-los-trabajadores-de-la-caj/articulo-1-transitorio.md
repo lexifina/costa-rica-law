@@ -1,0 +1,1 @@
+Transitorio 1º—A partir del 1° de marzo del 2001 el aporte de la caja equivalente al 1.5% del salario del trabajador, se registrará en cuentas contables a nombre de cada trabajador incluyéndose los rendimientos pertinentes. Dichas cuentas constituirán el Fondo de Reserva para Beneficios de Separación.

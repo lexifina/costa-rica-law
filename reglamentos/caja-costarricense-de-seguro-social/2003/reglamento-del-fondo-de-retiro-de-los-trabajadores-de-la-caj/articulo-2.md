@@ -1,0 +1,1 @@
+Artículo 2º—El Fondo de Retiro (FRE), otorgará beneficios complementarios a los que ofrece el Seguro de Invalidez, Vejez y Muerte, mediante un Régimen de Protección Básica de capitalización colectiva, solidario y financiado exclusivamente por la Caja como patrono, y un Régimen de Protección Adicional, voluntario y financiado por los trabajadores.
