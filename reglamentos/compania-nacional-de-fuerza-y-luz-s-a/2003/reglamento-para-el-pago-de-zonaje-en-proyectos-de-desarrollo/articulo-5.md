@@ -1,0 +1,1 @@
+Artículo 5º—El monto por concepto de zonaje variará entre un mínimo de ¢7.072,00 y un máximo de ¢47.152,00, de conformidad con la tabla Nº 1 anexa. Estos montos serán actualizados tomando en cuenta el comportamiento del costo de vida, según los índices del Instituto Nacional de Estadística y Censos (INEC) y circulares periódicas que emita la Contraloría General de la República.

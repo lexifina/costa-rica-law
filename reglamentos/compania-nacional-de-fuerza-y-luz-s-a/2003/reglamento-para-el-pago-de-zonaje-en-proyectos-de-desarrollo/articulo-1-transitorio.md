@@ -1,0 +1,1 @@
+Transitorio único.—Los funcionarios a quienes se les ha venido pagando el zonaje de acuerdo con los porcentajes anteriormente vigentes (entre un 30% y un 60%), seguirán devengándolo de esa forma en tanto se mantenga el funcionario en el mismo proyecto y bajo las mismas condiciones que dieron origen al contrato de zonaje.

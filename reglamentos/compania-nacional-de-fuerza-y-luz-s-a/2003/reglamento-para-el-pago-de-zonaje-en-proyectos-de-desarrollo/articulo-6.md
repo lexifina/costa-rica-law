@@ -1,0 +1,1 @@
+Artículo 6º—En caso de que la Gerencia resolviera suspender el pago del monto acordado por zonaje, por cuanto dejaran de existir los motivos que originaron su otorgamiento, el funcionario que lo disfrutó no podrá alegar derechos adquiridos, ya que el pago se acordará por circunstancias particulares y excepcionales de tiempo y lugar que puedan variar.
