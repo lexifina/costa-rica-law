@@ -1,1 +1,3 @@
-Artículo 15.- Los nombramientos se realizarán mediante votación secreta. En las actas no podrán consignarse manifestaciones, votos salvados o protestas de los miembros del órgano encargado del nombramiento.
+Artículo 15.-La solicitud para obtener la rehabilitación, a que se refiere el artículo anterior, no será atendida antes de tres años contados desde el día en que se decretó la destitución y deberá resolverse en sesión privada y votación secreta, teniendo a la vista el acuerdo de revocatoria del nombramiento, los antecedentes del interesado y demás informaciones que la Corte juzgue conveniente ordenar.
+La rehabilitación sólo podrá acordarse por el voto no menor de las dos terceras partes del total de los Magistrados que integran la Corte Suprema de Justicia. Si la solicitud fuere denegada, no podrá plantearse de nuevo si no después de transcurrido un año.
+(Así reformado por el artículo 1° de la ley N° 6024 del 15 de diciembre de 1976)
