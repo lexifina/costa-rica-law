@@ -14,3 +14,4 @@ Declara Emergencia Nacional Abastecimiento Suministros y EquiposMédico-Quirúrg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-01-16 | la propia norma |
+| 2 | 1990-01-16 | SINALEVI (sin norma nombrada) |
