@@ -1,0 +1,1 @@
+Artículo 2°-Esta declaratoria prohíbe cualquier demolición o remodelación total o parcial del inmueble sin la previa autorización del Departamento de Patrimonio Histórico del Ministerio de Cultura, Juventud y Deportes.

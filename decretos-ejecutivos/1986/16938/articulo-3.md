@@ -1,0 +1,1 @@
+Artículo 3°-Su mantenimiento y restauración correrán por cuenta del Dr CarIos Manuel Gutiérrez Cañas, su propietario y se hará bajo la supervisión y dirección del Departamento de Patrimonio Histórico del Ministerio de Cultura, Juventud y Deportes.
