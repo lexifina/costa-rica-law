@@ -1,5 +1,3 @@
-CAPITULO VIII
-Disposiciones Finales
-Artículo 44.-
-Todo interesado tendrá un plazo de un año, a partir del agotamiento de la vía administrativa, para efectuar el reclamo correspondiente ante los tribunales de justicia, de acuerdo con las normas que, sobre competencia, establece la Ley Orgánica del Poder Judicial.
-En todo lo no dispuesto expresamente en esta Ley, se aplicará en forma supletoria la Ley General de la Administración Pública y, en particular, los principios del procedimiento administrativo, prescritos en el Libro II de esa Ley, en lo referente al Régimen Sancionatorio del Capítulo VII de esa Ley.
+Artículo 44.- Medida precautoria de cierre. La Superintendencia deberá velar porque en el territorio nacional no operen entidades no autorizadas que, de manera habitual y por cualquier título, realicen actividades propias de los entes regulados. Cuando lo autorice la autoridad judicial, dispondrá la clausura de las oficinas en donde se practique esta clase de actividad y para ello podrá requerir el auxilio de la Fuerza Pública.
+La Superintendencia también podrá ordenar a los entes regulados o a cualquier persona física o jurídica, la suspensión de la publicidad u oferta al público, cualquiera que sea el medio por el cual se transmita, cuando sea efectuada por personas no autorizadas o los términos sean falsos o engañosos.
+(Así adicionado mediante el artículo 79 de la ley N° 7983 del 16 de febrero del 2000).

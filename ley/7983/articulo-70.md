@@ -1,0 +1,1 @@
+ARTÍCULO 70.- Convenios de aportación de los patronos al Régimen Voluntario de Pensiones Complementarias. Los patronos que hayan celebrado convenios de aportación según esta ley podrán considerar dichos aportes como gastos deducibles para efectos del cálculo del impuesto sobre la renta de su empresa o negocio.

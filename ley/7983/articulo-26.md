@@ -1,0 +1,1 @@
+ARTÍCULO 26.- Anticipación de la edad de retiro. El afiliado podrá anticipar su edad de retiro del Régimen de Invalidez, Vejez y Muerte, utilizando los recursos acumulados en su cuenta del Régimen Voluntario de Pensiones Complementarias, de conformidad con esta ley y con el reglamento que dicte la Junta Directiva de la CCSS.

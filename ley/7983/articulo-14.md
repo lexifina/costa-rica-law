@@ -1,0 +1,5 @@
+CAPÍTULO II
+Régimen Voluntario de Pensiones Complementarias
+y Ahorro Voluntario
+ARTÍCULO 14.- Aporte de los trabajadores al Régimen Voluntario de Pensiones Complementarias. Los trabajadores afiliados al Régimen Obligatorio de Pensiones Complementarias, en forma individual o por medio de convenios de afiliación colectiva, podrán afiliarse al Régimen Voluntario de Pensiones Complementarias de conformidad con esta ley. Los patronos podrán acordar con uno o más de sus trabajadores, la realización de aportes periódicos o extraordinarios a las respectivas cuentas para pensión complementaria. Los convenios de aportación deberán celebrarse por escrito y con copia a la Superintendencia.
+Los aportes voluntarios o extraordinarios se mantendrán registrados a nombre de cada trabajador, en forma separada de los aportes obligatorios, y serán registrados y controlados por medio del Sistema Centralizado de Recaudación o directamente en las ventanillas de las operadoras o de las personas con las que estas celebren convenios para este efecto, siempre que en este último caso, la persona designada cumpla los requisitos que al efecto establezca el Superintendente.

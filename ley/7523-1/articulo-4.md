@@ -1,2 +1,1 @@
-Artículo 4.- Publicidad
-Las operadoras sólo podrán efectuar publicidad una vez dictada la resolución que autorice su existencia. Toda información que se brinde deberá ser firmada por el representante legal de la operadora que la suministra.
+Artículo 4.- (Derogado mediante el inciso a) del artículo 90 de la ley N° 7983 del 16 de febrero del 2000).

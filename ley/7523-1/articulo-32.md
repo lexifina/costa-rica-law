@@ -1,2 +1,1 @@
-Artículo 32.- Obligaciones de los cotizantes
-Será obligación de los cotizantes recaudar y pagar a la operadora, puntualmente, las cuotas que le deduzcan a sus trabajadores y las que, como cotizantes, se hayan comprometido a contribuir, dentro de los diez primeros días del mes siguiente a aquel en que devengaron las remuneraciones. Este plazo se prorrogará hasta el primer día hábil siguiente, si expira un día inhábil.
+Artículo 32.- (Derogado mediante el inciso a) del artículo 90 de la ley N° 7983 del 16 de febrero del 2000).

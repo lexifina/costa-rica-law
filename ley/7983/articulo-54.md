@@ -1,0 +1,1 @@
+ARTÍCULO 54.- Protección de las cuentas. Las cuentas individuales de los fondos de capitalización laboral y de los fondos de pensiones, administradas por los entes autorizados, excepto las correspondientes al artículo 18 no podrán ser embargadas, cedidas, gravadas, ni enajenadas; tampoco se dispondrá de ellas para fines o propósitos distintos de los establecidos en la ley.

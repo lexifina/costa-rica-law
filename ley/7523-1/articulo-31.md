@@ -1,5 +1,1 @@
-Artículo 31.- Obligaciones del afiliado
-Serán obligaciones del afiliado:
-a) cotizar según lo pactado en el respectivo contrato de afiliación,
-b) proveer a la operadora la información que requiera, en relación con la cuenta que decida mantener con ella y,
-c) designar a los beneficiarios para el caso de muerte.
+Artículo 31.- (Derogado mediante el inciso a) del artículo 90 de la ley N° 7983 del 16 de febrero del 2000).

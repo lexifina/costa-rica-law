@@ -1,4 +1,3 @@
 CAPITULO III
 Inversiones del Fondo
-Artículo 12.- Inversiones
-Los fondos que constituyan las operadoras deberán ser invertidos para el provecho primordial de los afiliados, procurando el necesario equilibrio entre seguridad, incremento de su valor, rendimientos reales, rentabilidad y liquidez.
+Artículo 12.- (Derogado mediante el inciso a) del artículo 90 de la ley N° 7983 del 16 de febrero del 2000).

@@ -1,0 +1,1 @@
+ARTÍCULO 35.- Agentes promotores de las operadoras. Los agentes promotores de las operadoras de pensiones deberán ser registrados ante la Superintendencia de Pensiones. Para obtener el registro, estos (sic) deberán cumplir con los requisitos y aprobar los exámenes que la Superintendencia determine para este efecto.

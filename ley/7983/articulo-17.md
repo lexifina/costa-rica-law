@@ -1,0 +1,1 @@
+ARTÍCULO 17.- Capacidad para contratar. Las personas de más de quince años de edad y menos de dieciocho, a pesar de su condición de menores de edad, podrán celebrar válidamente los contratos previstos en el presente título, de conformidad con el artículo 39 del Código Civil.

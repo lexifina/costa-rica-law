@@ -29,3 +29,4 @@ parte del salario base definido en la Ley No. 7337, de 5 de mayo de 1993.
 Dichas inscripciones estarán exentas del pago del Timbre Agrario creado
 por la Ley No. 5792, de 1 de setiembre de 1975 y sus reformas. Asimismo,
 los honorarios aplicables serán determinados por las partes.
+(Interpretado auténticamente por artículo 82 de la Ley N° 7983 del 16 de febrero del 2000 que indica: "Interprétase Auténticamente el artículo 190 de la Ley Reguladora del Mercado de Valores, N° 7732, de 17 de diciembre de 1997, para que las disposiciones ahí contenidas se apliquen a todos los actos y contratos inscribibles enel Registr Nacional referidos en dicho artículo, independientemente de las razones que los originaron)
