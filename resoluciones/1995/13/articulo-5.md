@@ -1,0 +1,1 @@
+Artículo 5°.- Esta resolución deja sin efecto la N° 004-95-V de las ocho horas, quince minutos del diecisiete de enero de mil novecientos noventa y cinco, publicada en el Diario Oficial “La Gaceta” N° 26 del día 6 de febrero de 1995.

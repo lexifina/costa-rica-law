@@ -1,0 +1,1 @@
+Artículo 4°.- Debido a los ajustes que se requieren para implantar el sistema aquí establecido, esta resolución rige para las ventas e importaciones que realicen a partir del 1° de mazo del mil novecientos noventa y cinco.
