@@ -1,0 +1,4 @@
+Artículo 78.-Los empleados del Colegio y los integrantes del
+Tribunal Electoral para ser candidatos a puestos de Junta Directiva,
+deben renunciar a sus cargos tres meses antes de inscribir su
+candidatura.

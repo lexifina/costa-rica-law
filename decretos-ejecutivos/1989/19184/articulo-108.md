@@ -1,0 +1,3 @@
+Artículo 108.-Las regencias y asesorías permanentes serán reguladas
+por la Ley Orgánica y los Decretos Ejecutivos; además por el Reglamento
+Interno que con este propósito debe promulgar la Asamblea General.

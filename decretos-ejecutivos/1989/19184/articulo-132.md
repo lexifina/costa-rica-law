@@ -1,0 +1,4 @@
+Artículo 132.-Solamente los miembros del Colegio podrán pertenecer a
+las Filiales Regionales. Los Miembros Suspendidos, Retirados o
+Expulsados del Colegio también serán suspendidos retirados o expulsados,
+según corresponda, de la Filial Regional.

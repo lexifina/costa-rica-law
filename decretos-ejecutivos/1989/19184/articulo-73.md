@@ -1,0 +1,6 @@
+Artículo 73.-Durante la sesión ordinaria de la Asamblea General el
+Presidente del Tribunal Electoral dará a conocer el resultado de las
+elecciones para que sean ratificados los nombramientos y tomará juramento
+a los nuevos integrantes de Junta Directiva. Si no es posible realizar
+sesión ordinaria, el Presidente del Tribunal Electoral ratificará los
+nombramientos.

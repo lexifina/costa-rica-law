@@ -1,0 +1,3 @@
+Artículo 130.-Los acuerdos de las Filiales Regionales pueden ser
+apelados ante la Junta Directiva del Colegio, en los treinta días
+naturales, a partir de la fecha en que entre en vigor la medida del caso.

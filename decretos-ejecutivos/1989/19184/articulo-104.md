@@ -1,0 +1,4 @@
+Artículo 104.-Los requisitos que debe cumplir cada categoría de los
+Establecimientos Médico Veterinarios, los servicios que puede brindar y
+sus normas de funcionamiento, serán regulados en el Reglamento Interno
+que con este fin aprobará la Asamblea General.

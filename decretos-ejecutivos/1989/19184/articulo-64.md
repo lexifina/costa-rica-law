@@ -1,0 +1,8 @@
+Artículo 64.-Contra los acuerdos de la Junta Directiva, procede el
+recurso de revocatoria que resolverá la misma Junta Directiva y el de
+apelación en la siguiente sesión de Asamblea General. Ambos recursos
+pueden establecerse separados o conjuntamente, a más tardar en la sesión
+siguiente de la Junta Directiva. Cuando el acuerdo perjudica a un
+miembro, el recurso puede plantearse en los siguientes treinta días
+naturales después de la notificación escrita y con acuse de recibo, que
+se haga al interesado de lo acordado.
