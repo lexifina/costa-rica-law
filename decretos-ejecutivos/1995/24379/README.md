@@ -13,3 +13,4 @@ Exige Sistemas de Tratamiento de Residuos en Actividad Porcina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-06-27 | la propia norma |
+| 2 | 1995-06-27 | Decreto Ejecutivo 25558 (1996-09-30) |
