@@ -1,0 +1,1 @@
+Artículo 2º.-La Comisión Presidencial estará integrada por el Primer Vicepresidente de la República, el Ministro de Hacienda y el Ministro de Planificación Nacional y Política Económica, quien la coordinará.
