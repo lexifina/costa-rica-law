@@ -1,0 +1,4 @@
+Artículo 10
+Aplicación de otras reglas y compromisos específicos
+1.- Cuando un asunto en materia de inversión se rija simultáneamente tanto por este Acuerdo como por cualquier otro acuerdo internacional del que ambas Partes Contratantes sean miembros, nada de este Acuerdo impedirá que cualquier Parte Contratante o cualquiera de sus inversionistas que tengan inversiones o inversiones de sus inversionistas en el territorio de la otra Parte Contratante, tomen las ventajas de las reglas que les sean más favorables a su caso.
+2.- Cuando un asunto en materia de inversión se rija tanto por este Acuerdo y por las leyes y regulaciones de la Parte Contratante receptora de la inversión, o por otras disposiciones contractuales específicas, el trato más favorable será acordado a la inversión de inversionistas de la otra Parte Contratante o a los inversionistas que poseen inversiones en la otra Parte Contratante.

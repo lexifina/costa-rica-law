@@ -1,0 +1,7 @@
+Artículo 3
+Trato nacional y trato de nación más favorecida
+1.- Cada Parte Contratante otorgará, a las inversiones y a las rentas de los inversionistas de la otra Parte Contratante, efectuadas en su territorio un trato justo y equitativo y no menos favorable que aquél otorgado a las inversiones y rentas de sus propios inversionistas o de un tercer Estado, cualquiera que sea más favorable.
+2.- Cada Parte Contratante otorgará en su territorio, a los inversionistas de la otra Parte Contratante, en relación con actividades directamente relacionadas con su inversión, tales como la administración, el mantenimiento, uso, goce o disposición de su inversión, un trato justo y equitativo y no menos favorable que aquél otorgado a inversionistas y de un tercer Estado, cualquiera que sea más favorable.
+3.- El tratamiento concedido en los párrafos 1 y 2 de este artículo, no se extenderá a obligar a una Parte Contratante a conceder a los inversionistas de la otra Parte los beneficios de ningún tratamiento, preferencia o privilegio que pueda ser otorgado por alguna de las Partes Contratantes en virtud de:
+a) cualquier zona de libre comercio, unión aduanera, mercado común, unión económica o monetaria u otros acuerdos internacionales similares que conduzcan a dichas uniones o instituciones o cualquier otra forma de cooperación regional a la cual cualquiera de las Partes Contratantes puedan llegar a ser parte;
+b) cualquier acuerdo o arreglo internacional relacionado total o principalmente a materia tributaria.
