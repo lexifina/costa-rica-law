@@ -51,3 +51,12 @@ Punto último que coincide con el límite del Refugio de Fauna Silvestre Mixto P
 365400N-463100E (47)
 Punto Ubicado en la boca del río Portalón y siguiendo por la línea de costa pasando en línea recta por las bocas de los ríos y por el borde de la Playa Savegre hasta alcanzar la boca del río Naranjo en el punto de coordenadas 369750N- 450400E(48), es decir incluyendo la zona marítimo de ese sector.
 De aquí toma una línea recta hasta llegar al límite actual del Parque Nacional en el punto de coordenadas 369800N-450300E(49), por el que sigue hasta llegar el punto inicial de la presente descripción: 370000 Norte (N) y 450300 Este (E) (1)").
+3. Mediante artículo 1 del decreto ejecutivo N°29475 del 27 de marzo del 2001, se adiciona "al Parque Nacional Manuel Antonio la desembocadura de la quebrada Camaronera, constituida por el área comprendida dentro de la siguiente demarcación, según los mapas básicos del Instituto Geográfico Nacional, escala 1:50.000, Hoja Cartográfica Quepos:
+Partiendo de un punto ubicado sobre el límite actual del Parque, con Coordenadas 371237.075 N y 447200.000 E, continúa por una sucesión de líneas rectas sobre los siguientes vértices:
+371237.075 N 447099.221 E
+371234.857 N 447088.116 E
+371224.219 N 447036.078 E
+371217.509 N 447020.580 E
+371192.735 N 446902.595 E
+371126.423 N 446947.871 E
+Desde este punto se continua por la línea litoral hasta el punto 371000.000 N y 447000.000 E, punto inicial de la actual descripción de linderos").
