@@ -1,0 +1,2 @@
+Artículo 2º—Refórmase el artículo 36 de la Ley Orgánica del Ministerio de Salud, Nº 5412, del 8 de noviembre de 1973, y sus reformas. El texto dirá:
+"Artículo 36.—Corresponde a la OCIS proporcionar apoyo administrativo a los programas que se le encomienden, ajustándose a la política general del Ministerio. Para ello, gozará de independencia tanto económica como administrativa, y de personalidad jurídica instrumental; además, estará exenta del pago de toda clase de impuestos y sujeta a la fiscalización de la Contraloría General de la República."
