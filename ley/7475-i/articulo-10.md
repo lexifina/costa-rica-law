@@ -1,0 +1,2 @@
+Artículo 10
+Toda información que por su naturaleza sea confidencial o que se suministre con carácter de tal a los efectos de la valoración en aduana será considerada como estrictamente confidencial por las autoridades pertinentes, que no la revelarán sin autorización expresa de la persona o del gobierno que haya suministrado dicha información, salvo en la medida en que pueda ser necesario revelarla en el contexto de un procedimiento judicial.

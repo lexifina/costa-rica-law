@@ -1,0 +1,3 @@
+Artículo 9
+1.- En los casos en que sea necesaria la conversión de una moneda para determinar el valor en aduana, el tipo de cambio que se utilizará será el que hayan publicado debidamente las autoridades competentes del país de importación de que se trate, y deberá reflejar con la mayor exactitud posible, para cada período que cubra tal publicación, el valor corriente de dicha moneda en las transacciones comerciales expresado en la moneda del país de importación.
+2.- El tipo de cambio aplicable será el vigente en el momento de la exportación o de la importación, según estipule cada uno de los Miembros.

@@ -1,0 +1,2 @@
+Artículo 13
+Si en el curso de la determinación del valor en aduana de las mercancías importadas resultase necesario demorar la determinación definitiva de ese valor, el importador de las mercancías podrá no obstante retirarlas de la Aduana si, cuando así se le exija, presta una garantía suficiente en forma de fianza, depósito u otro medio apropiado que cubra el pago de los derechos de aduana a que puedan estar sujetas en definitiva las mercancías. Esta posibilidad deberá preverse en la legislación de cada Miembro.
