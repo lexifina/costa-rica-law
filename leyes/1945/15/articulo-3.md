@@ -1,0 +1,2 @@
+Artículo 3º.- Autorízase a la Junta Directiva General del Banco Nacional, como encargada del manejo y administración del Crédito Hipotecario de Costa Rica, para convenir con el Consejo Directivo del Departamento Emisor la cancelación del préstamo vigente del referido Crédito con el Departamento, proveniente de operaciones efectuadas por el Banco Internacional y de la acumulación progresiva de los respectivos intereses.
+Quedan modificadas en lo pertinente las leyes anteriores que pudieren oponerse a la contratación autorizada por este artículo.
