@@ -1,0 +1,1 @@
+Articulo 24.—Este Reglamento rige a partir del día siguiente a su publicación en el Diario Oficial, y deroga cualquier otra disposición interna que se le oponga. El presente Reglamento, fue aprobado por la Junta Directiva de JUDESUR, según el artículo Nº 11, Acuerdo Nº 3 de la Sesión Ordinaria Nº 149-2001, celebrada el 23 de agosto del 2001.

@@ -1,0 +1,1 @@
+Artículo 23.—Garantías. Para garantizar la devolución referida en el artículo 19 de este Reglamento, la Jefatura de Becas podrá garantizar la deuda, por medio de cualquier título ejecutivo idóneo o con garantía fiduciaria suficiente, esto se hará constar en el contrato de estudios.

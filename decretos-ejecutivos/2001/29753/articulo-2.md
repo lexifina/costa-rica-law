@@ -1,0 +1,8 @@
+Artículo 2º—Definiciones.
+A. JUDESUR: La Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas.
+B. Dirección Ejecutiva: La Dirección Ejecutiva de JUDESUR, máximo órgano administrativo de la institución.
+C. Beca: El beneficio económico total o parcial, reembolsable o no reembolsable que se otorgue a estudiantes de escasos recursos con el fin de que alcancen sus objetivos de estudio y formación académica y se conviertan en el fundamento del desarrollo de la Zona Sur.
+D. Becario: El beneficiario de una beca total o parcial por parte de JUDESUR, para efectuar sus estudios dentro del país, en un centro de enseñanza, debidamente acreditado y autorizado por el Ministerio de Educación Pública.
+E. Departamento de Becas: El Departamento de Becas de JUDESUR.
+F. Programa de Becas: Es el instrumento mediante el cual la Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas (JUDESUR) favorecerá la formación académica en el nivel de secundaria, universitaria y parauniversitaria de los estudiantes de escasos recursos económicos.
+G. Beneficiarios del programa: Los estudiantes de escasos recursos que cursen o cursarán estudios secundarios, universitarios o parauniversitarios, residentes en los cinco cantones de la Zona Sur a saber Golfito, Osa Corredores, Coto Brus y Buenos Aires, debidamente comprobado lo anterior mediante la aplicación de la Ficha de Información Social (FIS), y la respectiva inclusión en el Sistema de Información de la Población Objetivo (SIPO). Para tales efectos, JUDESUR deberá establecer los mecanismos de coordinación con el Instituto Mixto de Ayuda Social, para la realización de los estudios socioeconómicos requeridos.
