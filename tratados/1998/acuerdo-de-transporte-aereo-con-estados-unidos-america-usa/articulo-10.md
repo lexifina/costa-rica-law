@@ -1,0 +1,38 @@
+ARTÍCULO 10
+Derechos impuestos a los usuarios
+1.- Los derechos impuestos a los usuarios que establezcan las
+autoridades u organismos impositivos competentes de una Parte a las líneas
+aéreas de la otra Parte serán justos y razonables, no discriminarán con
+parcialidad, y se repartirán equitativamente entre todas las categorías de
+usuarios. En cualquier caso, los derechos impuestos a los usuarios se
+gravarán a todas las líneas aéreas de la otra Parte en términos no menos
+favorables que los más favorables que se establezcan a cualquier otra
+línea aérea en el momento en que se fijen los derechos.
+2.- Los derechos impuestos a los usuarios gravados a las líneas
+aéreas de la otra Parte podrán corresponder, sin excederla, a una parte
+equitativa del costo total que signifique para las autoridades impositivas
+competentes la prestación de los debidos servicios e instalaciones de
+aeropuerto, medio ambiente aeroportuario, navegación aérea y seguridad de
+la aviación, en el aeropuerto y en el sistema aeroportuario. Dicho costo
+total podrá tener en cuenta un rendimiento razonable de los activos,
+descontada la depreciación. Las instalaciones y los servicios por los que
+se establezcan esos derechos se proporcionarán de forma eficaz y
+económica.
+3.- Cada Parte promoverá la celebración de consultas entre las
+autoridades u organismos impositivos competentes en su territorio y las
+líneas aéreas que utilicen los servicios y las instalaciones, y alentará
+a dichas autoridades u organismos y a las líneas aéreas a que intercambien
+la información que resulte necesaria para determinar con precisión si los
+gravámenes están justificados, en vista de los principios enunciados en
+los párrafos 1) y 2) del presente Artículo. Cada Parte alentará a las
+autoridades impositivas competentes a que notifiquen a los usuarios con
+prudente antelación cualquier propuesta de cambios en los derechos
+impuestos a los usuarios, a fin de permitir que los usuarios expresen su
+opinión antes de que se efectúen los cambios.
+4.- En los procedimientos de resolución de controversias con arreglo
+al Artículo 14, no se considerará que una Parte haya contravenido alguna
+disposición del presente Artículo a menos que: A) no emprenda, en un plazo
+prudencial, el examen del gravamen o de la práctica objeto de la queja de
+la otra Parte, o que B) con posterioridad a dicho examen, deje de tomar
+todas las medidas que estén a su alcance para corregir cualquier gravamen
+o práctica que sea incompatible con el presente Artículo.

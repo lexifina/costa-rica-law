@@ -1,0 +1,53 @@
+ARTÍCULO 9
+Derechos aduaneros e impuestos
+1.- Al llegar al territorio de una de las Partes, las aeronaves que
+las líneas aéreas designadas por la otra Parte operan para el transporte
+aéreo internacional, su equipo regular, su equipo de tierra, combustibles,
+lubricantes, artículos técnicos consumibles, piezas de repuesto (motores
+inclusive), suministros para aeronaves (incluidos, entre otros, artículos
+tales como alimentos, bebidas, licores, tabaco y otros productos
+destinados para la venta a los pasajeros o para el consumo de estos en
+cantidad limitada durante el vuelo) y otros artículos que se usen o que
+deban usarse solamente en relación con la operación o servicio de las
+aeronaves dedicadas al transporte aéreo internacional estarán exentos, en
+forma recíproca, de toda restricción de importación, y de todos los
+impuestos sobre la propiedad, sobre el capital o sobre el consumo,
+aranceles de aduanas, y demás derechos o cargos similares (1) impuestos
+por las autoridades nacionales y (2) no basados en el costo de los
+servicios prestados, a condición de que esos equipos y artículos
+permanezcan a bordo de la aeronave.
+2.- Estarán también exentas, en forma recíproca, de los impuestos,
+derechos, gravámenes, tasas y cargos a que se refiere el párrafo 1) de
+este Artículo, con excepción de los cargos que se basen en el costo de los
+servicios prestados:
+A) Los suministros introducidos al territorio de una de las Partes,
+u obtenidos en este, y llevados a bordo, dentro de límites razonables,
+para el uso en las aeronaves de una línea aérea de la otra Parte dedicada
+al transporte aéreo internacional en sus vuelos de salida, aun cuando
+estos suministros vayan a usarse en una porción del viaje que se lleve a
+cabo sobre el territorio de la Parte en que fueron tomados a bordo;
+B) El equipo de tierra y las piezas de repuesto
+(motores inclusive) introducidos al territorio de una de las Partes para
+el servicio, mantenimiento o reparación de una aeronave de una línea aérea
+de la otra Parte que se use en el transporte aéreo internacional;
+C) El combustible, los lubricantes y los artículos técnicos
+consumibles introducidos al territorio de una de las Partes para uso en
+una aeronave de una línea aérea de la otra Parte dedicada al transporte
+aéreo internacional, aun cuando estos artículos se usen en una porción del
+viaje que se lleve a cabo sobre el territorio de la Parte en que fueron
+tomados a bordo;
+D) Los materiales de propaganda y publicidad introducidos al
+territorio de una Parte y llevados a bordo, dentro de límites razonables,
+para uso en los vuelos de salida de las aeronaves de las líneas aéreas de
+la otra Parte que se dediquen al transporte aéreo internacional, aun
+cuando dicho material se vaya a utilizar en una parte del viaje que se
+lleve a cabo sobre el territorio de la Parte en que fueron tomados a
+bordo.
+3.- Puede requerirse que el equipo y los artículos a que se refieren
+los párrafos 1) y 2) de este Artículo se mantengan bajo la supervisión o
+control de las autoridades pertinentes.
+4.- Las exenciones previstas en este Artículo también se concederán
+cuando las líneas aéreas designadas de una Parte contraten con otra línea
+aérea que tenga exenciones similares de la otra Parte, para el préstamo o
+transferencia en el territorio de la otra Parte de los Artículos
+especificados en los párrafos 1) y 2) de este Artículo.
