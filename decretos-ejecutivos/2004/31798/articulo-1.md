@@ -1,0 +1,11 @@
+Nº 31798-MICIT
+EL PRESIDENTE DE LA REPÚBLICA
+EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+En uso de las atribuciones que les confiere los artículos 140 en sus incisos 3) y 18), y 146 de la Constitución Política y con fundamento en la "Ley de Promoción del Desarrollo Científico y Tecnológico" Nº 7169, del 26 de junio de 1990.
+Considerando:
+I.—Que es importante para el desarrollo de nuestro país conocer que servicios en tecnologías de información es una de las áreas de mayor potencial para el futuro cercano, como una forma de participar en el mercado internacional.
+II.—Que las tecnologías de información se han convertido en el vehículo que permite la mejora de los servicios tanto para el sector público como para las organizaciones privadas y la temática del VI Congreso Internacional en Informática y Computación TECCOM 2004 se orienta a cómo estos servicios pueden ser mejores.
+III.—Que se debe contar con servicios de calidad en el área de tecnologías de información por ende se vuelve imperativo para que el país mejore la competitividad del sector privado así como la eficiencia del sector público costarricense lo cual debe traer como consecuencia un mayor estimulo de la inversión en Costa Rica. El congreso tiene como un objetivo promover que los servicios en tecnologías de información estén acordes a los estándares internacionales de calidad.
+IV.—Este Congreso es un medio para contar con la presencia de expositores internacionales de muy alto nivel, los cuales comparten sus experiencias y por lo tanto estimular la búsqueda de mecanismos que impulsen el mejoramiento de los servicios en tecnología de información tanto en empresas públicas como privadas.
+DECRETAN:
+Artículo 1º—Se declara de Interés Nacional el "VI Congreso Internacional en Informática y Computación TECCOM 2004, Enfrentando los Nuevos Retos para el Máximo Aprovechamiento de la Tecnología de la Información", el cual incluye el Seminario Ejecutivo "Logrando la Excelencia en la Gestión del Capital Humano", los cuales se realizarán del 26 al 28 de mayo del presente año, con el fin de abordar el tema de cómo el mejoramiento en distintos aspectos de la tecnología de información, puede convertirse en un elemento de mejoramiento sustancial en la organización.
