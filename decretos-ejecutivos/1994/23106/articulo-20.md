@@ -1,0 +1,1 @@
+Artículo 20.- La Junta de Fomento Avícola promoverá cuando menos dos reuniones generales al año, con los productores, industrializadores y comercializadores, para la discusión y el análisis de todos los asuntos que tengan importancia e interés directo para el sector avícola en general. Se podrán realizar mayor número de reuniones, siempre que haya mérito para ello.

@@ -1,0 +1,1 @@
+Artículo 22.- La Junta celebrará una sesión ordinaria mensual pagada, el primer día martes de cada mes y tendrán remuneración únicamente tres sesiones extraordinarias por mes, celebrándose tantas como fueren necesarias. Dos reuniones generales en el año calendario tendrán remuneración y se celebrarán tantas como se considere necesario y sean debidamente convocadas.

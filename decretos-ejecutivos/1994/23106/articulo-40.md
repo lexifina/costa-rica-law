@@ -1,0 +1,1 @@
+Artículo 40.- La Junta de Fomento Avícola podrá solicitar y obtener información concerniente al sector de las diferentes dependencias públicas, así como formular recomendaciones y acciones específicas en cumplimiento de su Ley y este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 17.- De toda sesión se levantará un acta en un libro debidamente foliado y que llevará el sello oficial de la Junta de Fomento Avícola. Las discusiones de las actas deben contraerse a su forma o redacción y examinarse si contiene todo aquello en que se ocupó la sesión a que la misma se refiere.
+Aprobada el acta será firmada por el Presidente y por el Secretario o por quienes actúen en su lugar. Únicamente el acta de instalación deberá ser firmada por todos los miembros directores.

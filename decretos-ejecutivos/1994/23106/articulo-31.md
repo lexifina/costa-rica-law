@@ -1,0 +1,1 @@
+Artículo 31.- La Junta de Fomento Avícola recomendará las importaciones y exportaciones de productos avícolas y sus derivados, cuando las mismas reúnan los requisitos establecidos y no signifiquen competencia ruinosa o desleal para los productores nacionales.

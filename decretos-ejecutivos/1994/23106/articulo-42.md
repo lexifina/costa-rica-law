@@ -1,0 +1,1 @@
+Artículo 42.- La Junta de Fomento Avícola podrá solicitar la cooperación y coordinación que requiera para el cumplimiento de sus fines a los sectores productivos privados agrupados en Cámaras, Cooperativas y Asociaciones de Productores, Comercializadores o Industriales, así como informar periódicamente sobre asuntos de interés general para el sector avícola.

@@ -1,0 +1,1 @@
+Artículo 19.- La oficina administrativa repartirá entre los miembros directores, a más tardar dos días hábiles antes del día de la sesión respectiva, copias del acta o actas que deberán ser discutidas y aprobadas y de su exactitud se hace responsable.

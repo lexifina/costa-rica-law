@@ -1,0 +1,1 @@
+Artículo 14.- Cuando alguno de los directores tuviese interés, personal en algún asunto en trámite, o lo tuvieren sus socios, empresa o parientes hasta el segundo grado de consanguinidad o segundo de afinidad inclusive, deberá retirarse de la respectiva sesión por el lapso que dure la discusión y resolución del asunto.

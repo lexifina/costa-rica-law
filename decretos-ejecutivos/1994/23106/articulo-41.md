@@ -1,0 +1,1 @@
+Artículo 41.- La Junta de Fomento Avícola podrá establecer programas de cooperación con las Universidades del país o con cualquier otra institución nacional o extranjera y en general, procurará mantener mecanismos de coordinación con todos aquellos organismos que puedan contribuir al desarrollo del sector avícola.

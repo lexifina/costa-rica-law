@@ -1,0 +1,1 @@
+Artículo 8°.- El dejar de ser miembro directivo de la Junta de Fomento Avícola, bien sea por terminación del período o por cualquier otra causa, no exime a las personas que hubieren ocupado el cargo de las responsabilidades legal en que pudieran haber incurrido durante su gestión.

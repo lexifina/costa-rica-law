@@ -1,0 +1,1 @@
+Artículo 13.- Tres miembros directores harán quórum para sesionar válidamente y los acuerdos se tomarán por mayoría absoluta de los votos presentes, salvo los casos en que la Ley exija mayor número de votos.

@@ -1,0 +1,2 @@
+Artículo 30.- La Junta de Fomento Avícola conocerá en la sesión inmediata siguiente y como primer punto del orden del día las solicitudes de recomendación de importación y exportación. Además podrá pedir cualquier información adicional para verificar la exactitud y veracidad de la información proporcionada por el importador o exportador de productos avícolas y sus derivados, en caso que lo considere necesario.
+Toda solicitud deberá ser conocida y aprobada o denegada en un plazo mayor de treinta días calendario.
