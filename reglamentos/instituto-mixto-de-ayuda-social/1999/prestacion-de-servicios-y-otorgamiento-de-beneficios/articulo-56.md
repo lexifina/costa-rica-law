@@ -1,0 +1,1 @@
+Artículo 56.-De los desastres: Se define como desastre al evento que produce la alteración de los componentes físicos, ecológicos, sociales, económicos y culturales que ponen en peligro la vida humana y las pertenencias físicas de los residentes del lugar. Puede ser natural o provocada por el hombre.

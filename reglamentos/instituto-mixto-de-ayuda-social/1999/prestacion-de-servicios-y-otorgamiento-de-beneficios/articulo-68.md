@@ -1,0 +1,1 @@
+Artículo 68.-Del período de atención: El período de atención durará hasta que la Comisión Nacional de Emergencia declare oficialmente la estabilización de la situación. La Presidencia Ejecutiva o la Gerencia de Desarrollo Social comunicará a las Gerencias Regionales el término de la emergencia.

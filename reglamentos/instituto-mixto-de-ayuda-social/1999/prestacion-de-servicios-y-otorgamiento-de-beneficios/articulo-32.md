@@ -1,0 +1,1 @@
+Artículo 32.-Del registro de los proyectos: Todo proyecto tendrá asignado un expediente con número consecutivo, foliado y estará registrado conjuntamente con los beneficiarios en el sistema de información institucional.

@@ -1,0 +1,1 @@
+Artículo 62.-De la responsabilidad de las Gerencias Regionales: Será responsabilidad de las Gerencias Regionales participar y apoyar en la Comisión Local integrada por la Comisión Nacional de Emergencia.

@@ -1,0 +1,1 @@
+Artículo 85.-De la liquidación de los recursos girados a las Unidades Ejecutoras: Los encargados del Equipo Administración y Finanzas, de las Gerencias Regionales serán los responsables de presentar ante el Área de Apoyo y Asesoría Financiera las liquidaciones de la ejecución de los recursos de los programas sociales; a más tardar en los primeros diez días hábiles de cada mes.

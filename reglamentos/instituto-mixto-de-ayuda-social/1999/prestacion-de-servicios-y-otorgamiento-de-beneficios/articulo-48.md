@@ -1,0 +1,1 @@
+Artículo 48.-De la ratificación del carácter de Bienestar Social a las Instituciones de Bienestar Social a las lBS: El Departamento de Instituciones de Bienestar Social será la unidad ejecutora responsable de ratificar el carácter de Bienestar Social a las Asociaciones y Fundaciones, una vez vencida su personería jurídica.

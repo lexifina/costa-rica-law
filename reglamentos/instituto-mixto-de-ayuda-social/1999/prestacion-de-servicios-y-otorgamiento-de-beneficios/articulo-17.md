@@ -1,0 +1,5 @@
+Artículo 17.-De los requisitos para el giro de los recursos para la ejecución de los programas sociales por parte de las Organizaciones No Gubernamentales: Serán requisitos mínimos para el giro de recursos a una Organización No Gubernamental los siguientes:
+a) Suscribir las garantías colaterales que la Comisión determine en las políticas que al respecto recomiende a la Administración para garantizar el cumplimiento de las obligaciones establecidas en el respectivo convenio.
+b) Suscribir un convenio de cooperación con la Institución, en el cual adquiere los derechos y obligaciones que ésta determine a fin de garantizar el correcto uso de los fondos girados.
+c) Comprometerse a no subcontratar servicios, salvo autorización previa y escrita a la Gerencia de Desarrollo Social en muy situaciones calificadas.
+Cualquier otro aspecto específico de acuerdo con el servicio o programa que se trate. La Comisión Acreditadora podrá recomendar la solicitud de más requisitos técnicos a las organizaciones, de conformidad con el tipo de proyectos a desarrollar y la cantidad de recursos a ejecutar.

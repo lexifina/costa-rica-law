@@ -1,0 +1,1 @@
+Artículo 64.-De los informes de la Gerencia Regional: Será responsabilidad de la Gerencia Regional presentar ante la Comisión Institucional, un informe cuantitativo y cualitativo de todo lo acontecido durante la emergencia en un lapso no mayor de diez días hábiles, una vez concluida la emergencia. El mismo responderá al Sistema de Información que opere en la Institución.

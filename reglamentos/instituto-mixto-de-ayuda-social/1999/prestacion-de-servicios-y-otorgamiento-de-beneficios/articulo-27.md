@@ -1,0 +1,3 @@
+CAPÍTULO SEXTO
+De los Servicios
+Artículo 27.-De las características de los servicios: Los programas del IMAS se ejecutarán mediante servicios. Estos serán complementarios y flexibles y se conjugarán para garantizar una atención integral, respondiendo a un proceso de superación de la población en situación de pobreza extrema y pobreza que les permita trascender a mayores niveles de desarrollo según las características socioculturales y físicas de la comunidad a la que pertenecen. Los servicios se traducirán en beneficios que podrán ser múltiples y progresivos según la situación presentada, buscando una solución integral.

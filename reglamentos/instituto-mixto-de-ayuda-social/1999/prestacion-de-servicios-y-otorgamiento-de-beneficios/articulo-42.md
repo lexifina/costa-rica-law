@@ -1,0 +1,1 @@
+Artículo 42.-Del procedimiento de revocatoria del beneficio para una ONG: En el caso de las ONG, el lMAS aplicará el procedimiento ordinario establecido en el artículo 308 de la Ley General de Administración Pública con el fin de determinar la existencia del eventual incumplimiento.

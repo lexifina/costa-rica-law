@@ -1,0 +1,2 @@
+Artículo 50.-De la denegación u oposición para otorgar el carácter de Bienestar Social: El Departamento de Instituciones de Bienestar Social será la unidad ejecutora responsable de denegar el carácter de bienestar social a una Organización No Gubernamental en , cualquier parte del territorio nacional según la modalidad de atención, cuando no se encuentre dentro de los supuestos de la Ley N° 3095 o no haya cumplido los requisitos establecidos al respecto por este Reglamento.
+(Reformado por Acuerdo 073-2000. del artículo 4°, del acta 014-2000. del 16 de febrero de 2000)

@@ -1,0 +1,4 @@
+CAPITULO CUARTO
+De los sujetos del servicio
+Artículo 20.-De la orientación de los programas: Los programas institucionales deberán estar orientados por el Modelo de Intervención Institucional que se haya definido para la atención y búsqueda de solución de los problemas presentados por las personas, familias y grupos ubicados en situación de pobreza extrema y pobreza prioritariamente; quienes deberán tener una participación activa en el desarrollo de los proyectos y actividades realizadas con este propósito, ubicados en situación de pobreza de acuerdo con lo que determine el Método de Línea de Pobreza (LP), el Método Integrado de Pobreza (MIP), o el Método de Puntaje, y según lo consignado en los respectivos Manuales de Procedimientos.
+(Reformado por Acuerdo 073-2000. del artículo 4°, del acta 014-2000. del 16 de febrero de 2000)

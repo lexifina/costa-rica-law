@@ -1,0 +1,1 @@
+Artículo 89.-De la participación de las unidades de apoyo: Todas las dependencias institucionales de apoyo a la labor sustantiva del IMAS, estarán obligadas a contribuir en la eficiencia y eficacia en la prestación de los servicios institucionales.

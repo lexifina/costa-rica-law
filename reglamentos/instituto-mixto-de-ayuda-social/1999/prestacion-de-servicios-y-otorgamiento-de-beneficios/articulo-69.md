@@ -1,0 +1,2 @@
+Artículo 69.-De la transferencia de los recursos: La Gerencia de Desarrollo Social y la Gerencia Administrativa Financiera, autorizarán el traslado de los recursos necesarios a las Gerencias Regionales respectivas, de acuerdo con la valoración de las necesidades presentadas por la Gerencia Regional de conformidad con la legislación vigente.
+(Reformado por Acuerdo 073-2000. del artículo 4°, del acta 014-2000. del 16 de febrero de 2000)

@@ -1,0 +1,2 @@
+Artículo 12.-De las Organizaciones de Base: Son las Organizaciones No Gubernamentales coadyuvantes de proyectos institucionales, por sus fines de desarrollo de la comunidad y de sus integrantes; generalmente están conformadas por miembros de la misma localidad que colaboran con la Institución en la ejecución de distintos proyectos de combate a la pobreza y pobreza extrema.
+(Reformado por Acuerdo 073-2000. del artículo 4°, del acta 014-2000. del 16 de febrero de 2000)
