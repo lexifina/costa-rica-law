@@ -1,0 +1,6 @@
+Artículo 12.- Los funcionarios del MEIC emitirán una hoja de
+calibración firmada y sellada, requisito indispensable para el transporte
+posterior de combustible, en concordancia con las disposiciones de la
+Oficina de Normas y Medidas del MEIC. Copia de dicho documento deberá
+remitir el autorizado a la Dirección, a más tardar treinta días naturales
+después de haber emitido la resolución del otorgamiento.

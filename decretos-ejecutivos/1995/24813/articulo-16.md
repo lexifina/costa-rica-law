@@ -1,0 +1,8 @@
+Artículo 16.- La Dirección entregará al interesado un extracto de la
+autorización para el transporte, el cual regirá por un plazo de dos años,
+renovable en tanto el cisterna cumpla con las disposiciones vigentes
+sobre la materia. El interesado debe publicar por su cuenta en el Diario
+Oficial "La Gaceta" el extracto en referencia, gestión que deberá
+realizar a más tardar en un término de 15 días y aportar copia de la
+publicación a la Dirección. En caso de incumplimiento, se revocará al
+autorización otorgada.

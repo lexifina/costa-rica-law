@@ -1,0 +1,9 @@
+Artículo 25.- El Ministerio del Ambiente y Energía elaborará un
+programa, en coordinación con el Instituto Nacional de Seguros, para que,
+talleres especializados en equipos cisterna, realicen por lo menos una
+vez al año una inspección total de estos equipos, en cuanto a condiciones
+técnicas y mecánicas para el transporte de combustible. El costo de estas
+inspecciones anuales será cubierto por el propietario del equipo a
+revisar. El equipo que no cumpla con los parámetros de seguridad
+requeridos, le será suspendida la autorización al equipo de transporte de
+combustibles que no cumple, hasta que se ponga a derecho.
