@@ -55,8 +55,7 @@ Fondo de Parques Nacionales (Así modificado por Decreto ejecutivo N° 31021 de 
 Fondo Forestal | 76,2
 Fondo Nacional Ambiental | 6,3
 Fondo Vida Silvestre | 11,6
-Instituto Costarricense de Investigaciones y Enseñanza en Nutrición y Salud |
-(incluye Asignaciones Fam.) | 916,9
+Instituto Costarricense de Investigaciones y Enseñanza en Nutrición y Salud (Incluye Asignaciones Fam.) (Así modificado por el artículo 1° del decreto ejecutivo N°31228 de 03 de junio de 2003) | 965,4
 Instituto Costarricense del Deporte y la Recreación (Así modificado por el artículo 1° del decreto ejecutivo N° 31161 de 6 de mayo de 2003) | ¢ 2.750,5
 Instituto Costarricense de Acueduc. y Alcantarillado (Así modificado por decreto ejecutivo N° 31142 de 21 de abril de 2003) | 32.129,2
 Instituto Costarricense de Ferrocarriles | 1.293,7
