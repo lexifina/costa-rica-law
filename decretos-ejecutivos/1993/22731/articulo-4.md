@@ -1,0 +1,1 @@
+Artículo 4°— Mientras el Estado no adquiera los terrenos de particulares ubicados dentro de los límites de este Refugio, sus propietarios y poseedores mantendrán los atributos del dominio de esos inmuebles.
