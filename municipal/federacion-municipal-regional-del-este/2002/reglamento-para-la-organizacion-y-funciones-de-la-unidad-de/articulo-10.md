@@ -1,0 +1,1 @@
+Artículo 10.—El Auditor Interno deberá proponer debidamente justificada a la máxima autoridad de la cual depende, la creación de plazas y servicios que considere Indispensables para el cumplimiento de su plan anual de Auditoría y en general para el buen funcionamiento de su unidad.
