@@ -1,1 +1,1 @@
-ARTICULO 3.- Rige a partir de su publicación.
+Artículo 3.- Rige a partir de su publicación.
