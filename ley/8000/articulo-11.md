@@ -1,0 +1,3 @@
+Artículo 11°- Departamento Ambiental. El Departamento Ambiental del Servicio es la unidad encargada del desarrollo operativo de este, en materia de vigilancia y protección de los recursos marino-costeros. Dependerá directamente de la Dirección General.
+El Servicio contará con profesionales en ciencias ambientales, especializados en manejo de recursos marino-costeros, los cuales deberán contar como mínimo con el grado de bachillerato universitario. Destacará al menos uno para cada estación que opere en las costas del territorio nacional.
+Dicho Departamento será coordinado por uno de los profesionales en ciencias ambientales destacados en las estaciones de guardacostas.
