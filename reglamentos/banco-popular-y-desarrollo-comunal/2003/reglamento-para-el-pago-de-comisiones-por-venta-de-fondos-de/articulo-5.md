@@ -1,0 +1,1 @@
+Artículo 5º—La Gerencia, mediante circular, establecerá el monto de la comisión por pagar por cada tipo de producto que ofrezca Popular SAFI, teniendo siempre como límite máximo los porcentajes contenidos en el esquema de comisiones.
