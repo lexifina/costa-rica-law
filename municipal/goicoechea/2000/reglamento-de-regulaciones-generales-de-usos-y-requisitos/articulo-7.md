@@ -1,0 +1,9 @@
+Articulo 7°—Instalaciones provisorias.
+- Las instalaciones provisorias o instalaciones de faena previas a iniciar una construcción incluyen la construcción de bodegas elementales, despeje de áreas para depósito de materiales de construcción y asignación de campos para depositar arena y piedra.
+- También incluyen la construcción de ademes para zanjas profundas (en mas de 1.50 m de profundidad) y protecciones al peatón que transita por la acera- Todas estas obras habrán de hacerse obedeciendo a las regulaciones de las normas generales vigentes.
+En addéndum a estas normas, este Reglamento establece las siguientes:
+- No podrá batirse concreto en las aceras ni en el pavimento de la vía pública,
+- No debe almacenarse arena y piedra en la vía pública. Sin embargo, hay situaciones en que no hay otra alternativa, y así lo hará constar el inspector, pero con las siguientes restricciones,
+- El almacenamiento de arena, piedra, escombros y desechos en la vía pública no podrá durar más de quince días calendario y deberá cubrirse totalmente con plástico, durante todo ese lapso. El incumplimiento de esta previsión, dado el aviso correspondiente al interesado, significará una multa previamente establecida por la Municipalidad al propietario de ese material y la requisición del material, incluso, el cual podrá ser registrado y utilizado para obras municipales programadas-
+- No podrá invadir mas de un quinto del ancho de la calzada y no podrá ubicarse del todo en la calzada en las curvas o cuando alguna situación especial, a juicio del inspector municipal, ponga en peligro la seguridad de los automovilistas o los peatones.
+- El propietario del inmueble se hará responsable de daños u obstrucciones a las cunetas, tuberías pluviales y desagües que ocasionare por utilizar la vía pública para depósito de materiales de construcción. Asimismo el propietario se hace responsable de la señalización apropiada sobre esos materiales (aviso de peligro).

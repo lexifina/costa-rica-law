@@ -1,0 +1,1 @@
+Articulo 2°—Objetivos. Este Reglamento tiene por objeto normar los requisitos o condiciones generales aplicables a todas o casi todas las zonas que se han establecido en el Plan Regulador, e indicar algunas previsiones especificas para ciertos usos: en razón de Su importancia, peligrosidad, o riesgo.

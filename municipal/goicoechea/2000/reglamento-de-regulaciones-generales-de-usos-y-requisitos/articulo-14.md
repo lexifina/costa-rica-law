@@ -1,0 +1,1 @@
+Artículo 14.—Movimiento de tierras. Los movimientos de tierras para construir urbanizaciones y caminos o habilitar lotes han de hacerse con un proyecto aprobado por SETENA y la Municipalidad (un proyecto de movimiento de tierra debidamente descrito y especificado) y que asegura que no se causaran daños permanentes a las riveras de los ríos, ni problemas en los cursos de agua.
