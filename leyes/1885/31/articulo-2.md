@@ -1,0 +1,3 @@
+Art. 2°-El nombramiento de este funcionario es privativo del Poder Ejecutivo, y sus obligaciones las mismas que señala el decreto número 34 de 18 de diciembre de 1865 y demás leyes de la materia.
+§ único. -Además de las funciones que le corresponden como médico del pueblo, ejercerá, en la mismisma provincia, las de cirujano del ejército.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintidós días del mes de julio de mil ochocientos ochenta y cinco. -JN. M. CARAZO, Presidente.-VICENTE C. SEGREDA, 1er. Secretario.-JUAN J. ULLOA G.,2° Secretario.-Palacio Presidencial. San José, veintidós de julio de mil ochocientos ochenta y cinco. Ejecútese. -BERNARDO SOTO. -El Secretario de Estado en el despacho de Policía,-C. DURÁN.
