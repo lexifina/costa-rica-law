@@ -1,0 +1,8 @@
+Artículo 11
+Medidas fronterizas
+1. Sin perjuicio de los compromisos internacionales relativos a la libre circulación de personas, los Estados Parte reforzarán, en la medida de lo posible, los controles fronterizos que sean necesarios para prevenir y detectar la trata de personas.
+2. Cada Estado Parte adoptará medidas legislativas u otras medidas apropiadas para prevenir, en la medida de lo posible, la utilización de medios de transporte explotados por transportistas comerciales para la comisión de los delitos tipificados con arreglo al artículo 5 del presente Protocolo.
+3. Cuando proceda y sin perjuicio de las convenciones internacionales aplicables se preverá, entre esas medidas, la obligación de los transportistas comerciales, incluidas las empresas de transporte, así como los propietarios o explotadores de cualquier medio de transporte, de cerciorarse de que todos los pasajeros tengan en su poder los documentos de viaje requeridos para entrar en el Estado receptor.
+4. Cada Estado Parte adoptará las medidas necesarias, de conformidad con su derecho interno, para prever sanciones en caso de incumplimiento de la obligación enunciada en el párrafo 3 del presente artículo.
+5. Cada Estado Parte considerará la posibilidad de adoptar medidas que permitan, de conformidad con su derecho interno, denegar la entrada o revocar visados a personas implicadas en la comisión de delitos tipificados con arreglo al presente Protocolo.
+6. Sin perjuicio de lo dispuesto en el artículo 27 de la Convención, los Estados Parte considerarán la posibilidad de reforzar la cooperación entre los organismos de control fronterizo, en particular, entre otras medidas, estableciendo y manteniendo conductos de comunicación directos.
