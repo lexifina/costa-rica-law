@@ -1,0 +1,1 @@
+4º—Se permitirá, cuando sea necesario la utilización de embarcaciones pequeñas, comúnmente conocidas como pangas, las cuales serán utilizadas para el transporte de los buzos y sus equipos de pesca desde y hacia los caladeros de pesca.

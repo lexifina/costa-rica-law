@@ -1,0 +1,1 @@
+7º—Toda persona que se dedique a la captura, transporte o comercio de langosta Panulirus gracilis en el territorio nacional deberá portar un calibrador construido, preferiblemente de metal, que garantice cumplir con al menos una de las medidas mínimas establecidas en el articulo 6º del presente acuerdo.

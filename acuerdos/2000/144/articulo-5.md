@@ -1,0 +1,1 @@
+5º—Se prohíbe la captura de langosta Panulirus gracilis proveniente de aguas jurisdiccionales del Pacífico Costarricense con otro arte que no sea el bichero (hasta tanto no se cuente con un método de pesca alternativo) o la trampa.
