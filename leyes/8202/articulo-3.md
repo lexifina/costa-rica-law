@@ -1,0 +1,1 @@
+Artículo 3º—Unidad Ejecutora. La CCSS deberá operar y mantener, en todo momento durante la implementación del proyecto, una Unidad Coordinadora del Proyecto (UCP) con una estructura, funciones y responsabilidades encabezada por un director ejecutivo, un director financiero y administrativo y un adecuado equipo profesional y administrativo.
