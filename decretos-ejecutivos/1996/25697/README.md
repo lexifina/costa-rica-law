@@ -14,3 +14,4 @@ Traspasa vehículos propiedad del Ministerio de Planificación Nacional y Polít
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-08 | la propia norma |
+| 2 | 1998-03-25 | Decreto Ejecutivo 26915 (1998-03-25) |
