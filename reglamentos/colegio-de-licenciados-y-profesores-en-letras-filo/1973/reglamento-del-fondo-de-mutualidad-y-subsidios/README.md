@@ -14,3 +14,4 @@ Reglamento del Fondo de Mutualidad y Subsidios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-27 | la propia norma |
+| 2 | 2003-02-08 | Reglamento 97 (2003-02-08) |

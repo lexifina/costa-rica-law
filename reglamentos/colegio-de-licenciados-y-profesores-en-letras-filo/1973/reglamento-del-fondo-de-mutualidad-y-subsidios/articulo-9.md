@@ -1,2 +1,2 @@
-Artículo 9°—La Junta Directiva del Colegio, fijara un subsidio para los colegiados que se encuentren en situación de emergencia o calamidad.
-La solicitud deberá ser hecha por escrito y dirigida a la Junta Directiva, junto con todos los medios de prueba que sirvan para demostrar tal situación, los cuales deberán ser tenidos en cuenta por la junta para la aprobación del beneficio.
+Artículo 9°—El colegiado que demuestre haber cumplido 65 años de edad y que tenga al menos quince años de estar colegiado, podrá optar por la entrega del 60% del monto fijado por la Junta Directiva para el caso previsto en el artículo 7, previa solicitud hecha por escrito al Colegio. Para tener derecho a dicho beneficio, el colegiado deberá demostrar que ha estado colegiado en forma ininterrumpida, durante los diez años anteriores a la entrega del beneficio.
+(Así reformado por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003).
