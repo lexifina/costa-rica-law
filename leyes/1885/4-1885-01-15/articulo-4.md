@@ -1,0 +1,2 @@
+Art. 4°-Con el presente decreto se dará cuenta al Congreso Constitucional, en su próxima reunión ordinaria.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los trece días del mes de enero de mil ochocientos ochenta y cinco.-JN. M. CARAZO, Presidente.-VICENTE C. SEGREDA, Secretario.-Puntarenas, catorce de enero de mil ochocientos ochenta y cinco.-Ejecútese.-P. FERNÁNDEZ.-Palacio Nacional.-San José, á quince de enero de mil ochocientos ochenta y cinco.-El Secretario de Estado en el Despacho de Hacienda.-BERNARDO SOTO.
