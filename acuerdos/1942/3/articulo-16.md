@@ -1,0 +1,1 @@
+Artículo 16.-EI Comité Nacional de la Cruz Roja Costarricense quedará integrado así: por un Presidente, dos Vicepresidentes, un Director General, un Subdirector, un Secretario General, un .Prosecretario General, un Tesorero, un Fiscal y cinco Vocales. El segundo Vicepresidente, será el Delegado del Poder Ejecutivo.

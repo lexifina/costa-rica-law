@@ -1,0 +1,1 @@
+Artículo 26.-El Comité Nacional de la Cruz Roja Costarricense, autorizará la fundación de tantos Comités Auxiliares como crea convenientes en los diferentes lugares de la República; esos Comités constarán de un Presidente, un Vicepresidente, un Secretario, un Tesorero, un Fiscal y cuatro Vocales.

@@ -1,0 +1,1 @@
+Artículo 31.-Todo socio una vez admitido, prestará ante el Presidente el juramento de fidelidad a la causa de la Cruz Roja Costarricense y cumplimiento de los Estatutos y Reglamentos; acto continuo le será entregada la tarjeta que lo acredite como tal.

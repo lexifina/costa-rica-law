@@ -1,0 +1,1 @@
+Artículo 36.-Caso de disolución de la Cruz Roja Costarricense los bienes, fondos y enseres pasarán a ser propiedad de las instituciones de Beneficencia existentes, según acuerdo de los socios que quedaren.

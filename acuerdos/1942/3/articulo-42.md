@@ -1,0 +1,1 @@
+Artículo 42.-Se señala el 4 de abril de cada año, Día de la Cruz Roja Costarricense. El Comité Nacional procurará que ese día, aniversario de la fundación, sea solemnizado por la Cruz Roja Costarricense lo mejor posible todos los años.

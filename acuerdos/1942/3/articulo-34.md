@@ -1,0 +1,2 @@
+Artículo 34.-La cuota mínima anual será de (un colón) ¢ 1.00 y debe ser pagada por adelantado. El socio que no haya pagado su cuota durante el primer trimestre, se le considerará retirado de la Cruz Roja Costarricense. Quedan excluidos de la obligación de pagar cuota, los miembros de las Brigadas Sanitarias .mientras presten servicio.
+El socio cuyas cotizaciones no estén al día con el Tesorero de la Sociedad, pierde su derecho para ser elector o elegido.

@@ -1,0 +1,1 @@
+Artículo 13.-Los socios activos benefactores u honorarios que formen parte de una brigada o estén empeñados en un servicio de emergencia se les otorgará, previa la juramentación reglamentaria, una credencial visada por el Director General y la divisa reglamentaria que les dará acceso a los lugares que reclamen su presencia.

@@ -1,0 +1,1 @@
+Artículo 24.-Las renuncias de miembros del Comité Nacional ocurridas durante el transcurso del año, serán consideradas y aceptadas por él y además repuestas sin necesidad de Asamblea mientras se completa el período legal.
