@@ -20,3 +20,4 @@ Reglamento Orgánico de la Junta Protección Social de San José
 | 5 | 1985-12-17 | Decreto Ejecutivo 16828 (1985-12-17) |
 | 6 | 1986-03-31 | Decreto Ejecutivo 16956 (1986-03-31) |
 | 7 | 1992-06-11 | Decreto Ejecutivo 21388 (1992-06-11) |
+| 8 | 1994-06-09 | Decreto Ejecutivo 23412 (1994-06-09) |

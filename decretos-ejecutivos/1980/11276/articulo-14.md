@@ -3,8 +3,8 @@ a) Inspeccionar y fiscalizar la idoneidad y corrección de los procedimientos co
 b) Velar por el cumplimiento de los acuerdos y resoluciones de la Junta Directiva en materia de su competencia;
 c) Controlar y fiscalizar la estricta aplicación y ejecución del presupuesto;
 d) Revisar y refrendar los estados financieros elaborados por el Departamento de Contabilidad;
-e) Asesorar a la Junta Directiva y a la Dirección Ejecutiva(*) en materia económica y financiera; y
+e) Asesorar a la Junta Directiva y a la Gerencia(*) en materia económica y financiera; y
 (Corrida la numeración del inciso anterior por el artículo 1° del decreto ejecutivo N° 16956 del 31 de marzo de 1986, que lo traspaso del antiguo inciso f) al e), lo anterior ya que en dicho decreto se ordena eliminar el original inciso e) y correr la numeración de los restantes incisos)
-(*)(Modificada su denominación por el artículo 2° del decreto ejecutivo N° 16956 del 31 de marzo de 1986)
+(*)(Modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 23412 del 9 de junio de 1994)
 f) Cualquier otra, especial o general que le asigne la Junta Directiva, que sea compatible con sus demás funciones.
-(Corrida la numeración del inciso anterior por el artículo 1° del decreto ejecutivo N° 16956 del 31 de marzo de 1986, que lo traspaso del antiguo inciso g) al f), lo anterior ya que en dicho decreto se ordena eliminar el original inciso e) y correr la numeración de los restantes incisos)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 16956 del 31 de marzo de 1986, que lo traspaso del antiguo inciso g) al f)).

@@ -3,9 +3,9 @@ a) Llevar un registro, con los controles pertinentes, de los adjudicatarios de c
 b) Velar por la correcta realización de los sorteos de la lotería;
 c) Ordenar al Departamento de Imprenta y Litografía la impresión de los billetes de lotería, de acuerdo con las emisiones aprobadas por la Junta Directiva;
 d) Hacer conjuntamente con el Departamento de Contabilidad, las liquidaciones provisionales y definitivas de los sorteos;
-e) Elaborar, conjuntamente con la Dirección Ejecutiva(*), los proyectos de planes de los sorteos de la lotería; y
-(*)(Modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 16956 del 31 de marzo de 1986)
-f) Cualquier otra relacionada con la administración de la lotería o que le encargue, en forma especial o general la Junta Directiva, y la Dirección Ejecutiva(*) , que sea compatible con sus otras funciones.
-(*)(Modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 16956 del 31 de marzo de 1986)
+e) Elaborar, conjuntamente con la Gerencia(*), los proyectos de planes de los sorteos de la lotería; y
+(*)(Modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 23412 del 9 de junio de 1994)
+f) Cualquier otra relacionada con la administración de la lotería o que le encargue, en forma especial o general la Junta Directiva, y la Gerencia(*), que sea compatible con sus otras funciones.
+(*)(Modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 23412 del 9 de junio de 1994)
 g) Recibir, custodiar y expender la lotería emitida, a través de las Cajas del Departamento de Tesorería.
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 13088 del 5 de noviembre de 1981)
