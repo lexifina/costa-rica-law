@@ -1,0 +1,1 @@
+Artículo 2º—Cuando el retiro sea temporal, el profesional deberá indicar el plazo por el cual desea mantener esa condición. Sin embargo, el retiro no se hará efectivo hasta que así sea acordado por la Junta Directiva General. Al vencimiento del plazo indicado por el profesional, el Colegio Federado de Ingenieros y de Arquitectos procederá a habilitarlo en forma automática.

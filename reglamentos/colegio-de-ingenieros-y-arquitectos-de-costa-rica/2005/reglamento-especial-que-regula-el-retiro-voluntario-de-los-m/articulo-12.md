@@ -1,0 +1,2 @@
+Artículo 12.—Contra la decisión de la Junta Directiva General, cabe el recurso de revocatoria, el cual será interpuesto en el plazo de tres días, a partir de la notificación al interesado.
+Resuelto el recurso de revocatoria, cabe el recurso de apelación ante la Asamblea de Representantes, de conformidad con lo que dispone el artículo 23, inciso f) de la Ley Orgánica del Colegio Federado, el cual deberá interponerse en el plazo de tres días, a partir de la comunicación del acuerdo y con las formalidades dispuestas en esa norma.

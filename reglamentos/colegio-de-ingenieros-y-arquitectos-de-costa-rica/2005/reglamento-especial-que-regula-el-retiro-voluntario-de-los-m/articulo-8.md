@@ -1,0 +1,1 @@
+Artículo 8º—Los miembros que se encuentren morosos o inhabilitados por esa razón, podrán solicitar el retiro voluntario, en cualquiera de sus dos formas. Sin embargo, no podrán optar por seguir perteneciendo al Fondo de Mutualidad del Colegio Federado, si no han satisfecho las cuotas de colegiatura adeudadas, conforme lo dispone el artículo 15 de la Ley Orgánica.

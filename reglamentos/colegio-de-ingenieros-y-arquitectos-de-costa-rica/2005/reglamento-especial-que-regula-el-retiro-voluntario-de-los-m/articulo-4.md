@@ -1,0 +1,2 @@
+Artículo 4º—La solicitud para acogerse a la condición de retiro voluntario, temporal o indefinido, será presentada ante la Oficina de Registro del Colegio Federado, en las fórmulas destinadas para ello, acompañándose una declaración jurada del miembro en la que expresamente indique que mientras mantenga esa condición no ejercerá profesionalmente, en forma remunerada o gratuita.
+En la solicitud deberá indicarse un lugar para atender notificaciones dentro del Área Metropolitana o bien un número de fax.
