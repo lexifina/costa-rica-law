@@ -1,2 +1,1 @@
-Artículo 22.—Recursos contra la resolución de fondo
-La resolución de fondo, dictada por el Órgano Instructor, tendrá los recursos que la Ley Orgánica del Poder Judicial admite, los que se ejercerán dentro de los correspondientes términos legales.
+Artículo 22.—Evacuación de otras pruebas. Entre el momento de la comparencia y aquél en que se lleve a cabo la audiencia de recepción de las pruebas, el Órgano Instructor, deberá evacuar o hacer llegar todo tipo de probanzas, excluida la testimonial, admitidas a las partes y las que por iniciativa propia considere fundamentales, para el resultado de la investigación, de conformidad con las facultades que le concede el Artículo 203 de la Ley Orgánica del Poder Judicial.

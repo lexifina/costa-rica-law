@@ -1,3 +1,1 @@
-Artículo 29.—De la vigencia de la política interna
-La presente normativa entrará a regir a partir de su publicación, en el Boletín Judicial, y se hará del conocimiento de todos los servidores judiciales a través de una publicación que estará a cargo del Departamento de Información y Relaciones Públicas."
-San José, 17 de abril de 1996.—
+Artículo 29.—Sanciones para quienes no den trámite a las denuncias. Incurrir en falta de naturaleza laboral, que dará mérito para la aplicación del régimen disciplinario, de conformidad con el Artículo 194 de la Ley Orgánica del Poder Judicial, aquel servidor judicial que, conociendo de una denuncia por hostigamiento sexual, en su condición de Órgano Instructor, no le de el trámite previsto en esta normativa.

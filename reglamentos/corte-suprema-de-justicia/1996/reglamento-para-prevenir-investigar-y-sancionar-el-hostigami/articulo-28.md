@@ -1,4 +1,1 @@
-CAPÍTULO VI
-De las modificaciones y vigencias de la política
-Artículo 28.—De las modificaciones a la política interna
-Las modificaciones serán dispuestas por la Corte Plena, previa consulta al Tribunal de la Inspección Judicial y al Consejo de Personal, y deberán ser objeto de publicidad, a través de los medios pertinentes, para lograr un conocimiento general.
+Artículo 28.—Sanciones para quienes entorpezcan o atrasen injustificadamente la investigación. Incurrirá en falta de naturaleza laboral, que dará mérito para la aplicación del régimen disciplinario, de conformidad con el Artículo 194 de la Ley Orgánica del Poder Judicial, aquel servidor judicial que entorpezca o que atrase, injustificadamente, la investigación, negándose a declarar o brindar información sobre los hechos investigados.

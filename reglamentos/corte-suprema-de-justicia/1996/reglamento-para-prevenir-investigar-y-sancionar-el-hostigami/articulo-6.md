@@ -1,4 +1,3 @@
 CAPÍTULO III
-Política de Prevención
-Artículo 6°—Mecanismos de prevención
-Sin perjuicios de otros mecanismos que se implementen en el futuro, la prevención de las conductas constitutivas de hostigamiento sexual, estará a cargo de la Jefatura del Departamento de Personal, en coordinación con la Escuela Judicial, a través de la realización de charlas y de reuniones periódicas, con los mandos medios y, selectivamente, con el personal de cada despacho judicial y de las dependencias administrativas y policiales de la Institución, para suministrarles información, conocer su punto de vista sobre el tema y canalizar sus inquietudes.
+Política de prevención
+Artículo 6º—Mecanismos de prevención. Sin perjuicios de otros mecanismos que se implementen en el futuro, la prevención de las conductas constitutivas de hostigamiento sexual, estará a cargo de la Jefatura del Departamento de Personal, en coordinación con la Escuela Judicial, a través de la realización de charlas y de reuniones periódicas, con los mandos medios y, selectivamente, con el personal de cada despacho judicial y de las dependencias administrativas y policiales de la Institución, para suministrarles información, conocer su punto de vista sobre el tema y canalizar sus inquietudes.

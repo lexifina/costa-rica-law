@@ -1,2 +1,1 @@
-Artículo 26.—Sanciones para quienes no den trámite a las denuncias
-Incurrir en falta de naturaleza laboral, que dará mérito para la aplicación del régimen disciplinario, de conformidad con el artículo 194 de la Ley Orgánica del Poder Judicial, aquel servidor judicial que, conociendo de una denuncia por hostigamiento sexual, en su condición de Órgano Instructor, no le dé el trámite previsto en esta normativa.
+Artículo 26.—Comunicación de lo resuelto. Una vez firme lo resuelto, se comunicará a las respectivas oficinas del Poder Judicial, así como a la Defensoría de los Habitantes, para lo que corresponda.

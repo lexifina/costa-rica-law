@@ -1,4 +1,11 @@
-Artículo 16.—Traslado de la denuncia y determinación del plazo de investigar
-Una vez que el Órgano Instructor ha recibido la denuncia, dará traslado al denunciado; notificándolo, en forma personal y privada, mediante acta que deberá firmar como constancia de recibido. En este acto se le dará audiencia por el término de cinco días laborales, sobre el contenido de la denuncia y sobre las pruebas ofrecidas por el denunciante, a los efectos de que manifieste, por escrito, su descargo y ofrezca su prueba y, se le prevendrá de señalar lugar para atender términos establecidos por el artículo 201 de la Ley Orgánica del Poder Judicial.
-En la misma regulación en que se ordena el traslado de la denuncia, el Órgano Instructor, prevendrá a las partes que el término de duración de la investigación, no podrá exceder de tres meses y que, para efectos laborales, suspende el plazo de prescripción para el ejercicio de la potestad disciplinaria.
-Además el Órgano Instructor podrá citar a ambas partes a una comparecencia voluntaria, oral y privada dentro del término de los siguientes cinco días hábiles, después de la notificación de la demanda, de conformidad con lo que establece el artículo 8, inciso 4, la cual podrá efectuarse incluso en el momento de la recepción de la prueba.
+Artículo 16.—Medidas cautelares. El Órgano Instructor podrá gestionar ante el Consejo Superior que se ordene, en forma provisional y en cualquier momento, a partir de la presentación de la denuncia, las siguientes medidas cautelares:
+1) La suspensión temporal con goce de salario: Se dispondrá en relación con el denunciado, en los siguientes casos:
+a) Cuando su presencia pueda causar un mayor agravio a la presunta víctima.
+b) Cuando pueda entorpecer la investigación.
+c) Cuando pueda influenciar a los eventuales testigos.
+Dicha suspensión no podrá extenderse más allá de un mes calendario, pero podrá disponerse en forma fraccionada y no acarreará lo perdido de ningún derecho o beneficio.
+2) El traslado del denunciante: Se dispondrá, en relación con el denunciante, en los siguientes casos:
+a) Cuando exista subordinación con el denunciado;
+b) Cuando exista clara presunción de que el hostigamiento continuará;
+c) Cuando el vejamen sufrido por la presunta víctima sea de tal gravedad hacerse a un puesto de igual categoría, respetando todos los derechos y los beneficios del denunciante.
+En cualquier momento y sin necesidad de justificación concreta, ambas medidas podrán ser discrecionalmente revocadas por el Órgano Instructor.

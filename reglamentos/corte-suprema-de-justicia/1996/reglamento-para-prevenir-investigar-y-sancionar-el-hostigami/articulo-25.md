@@ -1,2 +1,1 @@
-Artículo 25.—Sanciones para quienes entorpezcan o atrasen injustificadamente la investigación
-Incurrirá en falta de naturaleza laboral, que dará mérito para la aplicación del régimen disciplinario, de conformidad con el artículo 194 de la Ley Orgánica del Poder Judicial, aquel servidor judicial que entorpezca o que atrase, injustificadamente, la investigación, negándose a declarar o brindar información sobre los hechos investigados.
+Artículo 25.—Recursos contra la resolución de fondo. La resolución de fondo, dictada por el Órgano Instructor, tendrá los recursos que la Ley Orgánica del Poder Judicial admite, los que se ejercerán dentro de los correspondientes términos legales.

@@ -1,2 +1,3 @@
-Artículo 27.—Sanciones para quienes denuncien sin fundamento
-Incurrirá en falta de naturaleza laboral, que dará mérito para aplicación del régimen disciplinario, de conformidad con el artículo 194 de la Ley Orgánica del Poder Judicial; sin perjuicio de otras acciones que personalmente intente el propio denunciado, el servidor judicial que haya denunciado o que haya ratificado una denuncia interpuesta por un compañero o por un superior, cuya falsedad se compruebe en forma evidente y manifiesta.
+CAPÍTULO V
+De las sanciones
+Artículo 27.—Sanciones para los acosadores. El hostigador, cuya falta sea comprobada y atendiendo a la gravedad de la misma, será sancionado de conformidad con las previsiones de los Artículos 25 y 27 de la Ley N° 74765, del 3 de febrero de 1995, en relación con el 81 del Código de Trabajo y las disposiciones pertinentes de la Ley Orgánica del Pode Judicial.

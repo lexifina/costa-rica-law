@@ -1,5 +1,4 @@
-Artículo 13.—Recepción de la denuncia
-La denuncia será recibida por el Órgano Instructor, en forma privada y se consignará por escrito. Necesariamente contendrá:
+Artículo 13.—Recepción de la denuncia. La denuncia será recibida por el Órgano Instructor, en forma privada y se consignará por escrito. Necesariamente contendrá:
 1) Nombre y calidades completas de la presunta víctima y del denunciado o denunciada.
 2) Identificación precisa de la relación laboral e interpersonal entre la presunta víctima y el denunciado o denunciada.
 3) Descripción objetiva de todas aquellas situaciones que se pudieran constituir manifestaciones de acoso sexual, con mención aproximada de fecha y testigos.
@@ -7,4 +6,4 @@ La denuncia será recibida por el Órgano Instructor, en forma privada y se cons
 5) Enumeración de los medios de prueba que sirvan de apoyo a la denuncia.
 6) Señalamiento de lugar para atender notificaciones.
 7) Lugar y fecha de la denuncia.
-8) Firma de denunciante.
+8) Firma del denunciante.

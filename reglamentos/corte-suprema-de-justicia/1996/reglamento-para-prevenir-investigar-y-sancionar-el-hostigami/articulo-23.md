@@ -1,2 +1,1 @@
-Articulo 23.—Comunicación de lo resuelto
-Una vez firme lo resuelto, se comunicará a las respectivas oficinas del Poder Judicial, así como a la Defensoría de los Habitantes, para lo que corresponda.
+Artículo 23.—Término para dictar la resolución de fondo. Una vez concluida la audiencia de recepción de pruebas, el Órgano Instructor, gozará del término previsto en el Artículo 206 de la Ley Orgánica del Poder Judicial, para dictar la resolución de fondo.

@@ -1,2 +1,1 @@
-Artículo 20.—Término para dictar la resolución de fondo
-Una vez concluida la audiencia de recepción de pruebas, el Órgano Instructor, gozará del término previsto en el artículo 206 de la Ley Orgánica del Poder Judicial, para dictar la resolución de fondo.
+Artículo 20.—Audiencia sobre la contestación de la denuncia. Una vez contestada la denuncia, en tiempo y forma, el Órgano Instructor dará audiencia por tres días hábiles, de ella y de las pruebas ofrecidas, al denunciante. Cumplida esa audiencia, procederá a las excepciones previas y propuestas por las partes.

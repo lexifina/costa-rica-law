@@ -1,7 +1,2 @@
-Artículo 21.—Evaluación de las pruebas y elaboración de la resolución de fondo
-El Órgano Instructor, evaluará las pruebas de manera objetiva, con amplitud de criterio, siguiendo al efecto las pautas previstas en el artículo 207 de la Ley Orgánica del Poder Judicial.
-La resolución de fondo, amén de ajustarse a los requisitos señalados en el numeral 208 ídem, contendrá:
-1) La identificación plena de las partes involucradas.
-2) La descripción de la relación laboral e interpersonal existente entre las partes involucradas.
-3) La descripción objetiva de la conducta denunciada y de lo que resultó efectivamente probado.
-4) La descripción objetiva de la conducta como una manifestación de contenido sexual que resulta discriminatoria. Esta resolución se notificará a las partes involucradas, en el lugar señalado para tales efectos, procurando siempre la confidencialidad del caso.
+Artículo 21.—Audiencia de recepción de pruebas. El Órgano Instructor señalará hora y fecha, para recibir en una sola audiencia, la prueba testimonial ofrecida por ambas partes, con mención expresa de los nombres de los testigos admitidos, cuya citación correrá a cargo de los proponentes.
+Cada testigo será recibido en forma separada, con la sola presencia del Órgano Instructor, de ambas partes y de sus abogados. Los testigos serán interrogados por el Órgano Instructor, únicamente en relación con los hechos sobre los que versa la denuncia. Los testigos podrán ser representados por las partes y sus abogados, debiendo velar dicho Órgano porque todo se haga con el mayor respeto y mesura. De sus manifestaciones se levantará un acta que será firmada, al final, por todos los presentes. Si alguno de los testigos propuestos no se hiciere presente a dicha audiencia, se prescindirá de su declaración; salvo que, el Órgano Instructor, lo considere esencial, en cuyo caso se hará un nuevo señalamiento, para dentro de los cinco días laborales siguientes.
