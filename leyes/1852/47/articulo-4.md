@@ -1,0 +1,1 @@
+Art. 4. El presente decreto será sometido á la alta deliberacion del Excelentisimo Congreso en sus próximas sesiones ordinarias. -Dado en San José à los veintiseis dias del mes de enero de mil ochocientos cincuenta y dos. -Juan Rafacl Mora, -El Ministro de Estado en el Despacho de Gobernacion, Joaquin Bernardo Calvo.
