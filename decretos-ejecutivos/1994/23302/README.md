@@ -14,3 +14,4 @@ Regula Formulario Unico para Declaración Aduanera de Importación
 | --- | --- | --- |
 | 1 | 1994-05-30 | la propia norma |
 | 2 | 1996-06-14 | Decreto Ejecutivo 25270 (1996-06-14) |
+| 3 | 1996-06-14 | Ley 8 |
