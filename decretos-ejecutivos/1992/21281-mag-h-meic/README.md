@@ -18,3 +18,4 @@ Reglamento de Exoneración a la Actividad Agropecuaria Fundamentada en el Artíc
 | 3 | 1993-02-24 | Decreto Ejecutivo 22002 (1993-02-24) |
 | 4 | 2000-05-15 | Decreto Ejecutivo 28648 (2000-05-15) |
 | 5 | 2001-08-29 | Decreto Ejecutivo 29902 (2001-08-29) |
+| 6 | 2003-02-24 | Decreto Ejecutivo 31189 (2003-02-24) |
