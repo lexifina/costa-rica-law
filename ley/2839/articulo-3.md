@@ -1,0 +1,1 @@
+Artículo 3° Las viudas, hijos, padres y compañeras de quienes hayan participado y parecido en las luchas armadas, aunque no haya sido al servicio del Gobierno, podrán demandar pensión y demás derechos, siempre que sean costarricenses, llenando los requisitos de la ley N°1922 de 5 de agosto de 1955. Los heridos también podrán acogerse a esta disposición.

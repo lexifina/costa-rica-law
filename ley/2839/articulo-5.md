@@ -1,0 +1,1 @@
+Artículo 5° Al fallecimiento de un indemnizado de guerra, sus derechos se traspasarán a la viuda, o en su defecto a los hijos menores de edad. En caso de matrimonio, defunción o inexistencia de la viuda, la indemnización será aprovechada por los hijos menores de 18 años en el 50% y los restantes derechos en el 100%.
