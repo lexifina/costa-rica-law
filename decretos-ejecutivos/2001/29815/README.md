@@ -14,3 +14,4 @@ Reglamento de Becas-Taller para Proyectos de Desarrollo Artístico-Cultural
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-27 | la propia norma |
+| 2 | 2004-08-27 | Decreto Ejecutivo 32208 (2004-08-27) |
