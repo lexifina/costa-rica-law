@@ -1,0 +1,1 @@
+Artículo 29.—Para los efectos de permisos de construcción, ampliación, remodelación o reconstrucción de edificios o urbanizaciones la Conformidad del uso del suelo solicitado debe obtenerse de previo a cualquier tramitación y no se admitirán planos usados por otros organismos públicos (Ministerio de Salud, Dirección de Urbanismo) si se consta con el certificado de uso del suelo.

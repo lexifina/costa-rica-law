@@ -1,0 +1,1 @@
+Artículo 34.—El suelo programado, es aquella porción del suelo urbanizado o urbanizable del cantón de Desamparados que se tiene reservada a un uso específico, previsto en el Reglamento de Usos del Suelo del cantón de Desamparados, hecho del cual se dejará constancia en el Mapa Oficial de Usos del Suelo y Zonificación.

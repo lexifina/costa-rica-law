@@ -1,0 +1,3 @@
+CAPITULO IV
+Recursos
+Artículo 102.—Toda resolución administrativa firme que dicte la Municipalidad por medio de las correspondientes dependencias, en lo relativo a la aprobación de permisos de demolición, construcción, ampliación o remodelación, así como en lo pertinente a la expedición de licencias de funcionamiento y certificados de usos del suelo, tendrán los recursos que regula el Código Municipal vigente y sus modificaciones, ley Nº 4574, del 4 de mayo de 1970, en su Título VII (Recursos contra los Actos Municipales) los cuales deberán ser interpuestos con las formalidades y plazos que en dicho Código y Título se indican, en las dependencias que señala el mismo Código.

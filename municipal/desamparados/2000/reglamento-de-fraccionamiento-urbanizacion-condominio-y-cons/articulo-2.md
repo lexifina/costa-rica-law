@@ -1,0 +1,1 @@
+Artículo 2º—Solicitud de visado urbano: Gestión previa para todo trámite de permiso de construcción, en el que se disponen los requisitos y disposiciones técnicas mínimas para descarga de aguas pluviales, alineamiento de construcción, fraccionamiento y uso del suelo. El interesado debe cumplir con los requisitos descritos en la fórmula respectiva.

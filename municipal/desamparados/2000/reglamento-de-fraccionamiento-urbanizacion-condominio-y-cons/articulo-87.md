@@ -1,0 +1,1 @@
+Artículo 87.—Presentación de Acta autenticada por abogado con el acuerdo unánime de todos los vecinos propietarios con frente a la alameda, haciendo constar como mínimo: nombre, identificación, firma y dirección.

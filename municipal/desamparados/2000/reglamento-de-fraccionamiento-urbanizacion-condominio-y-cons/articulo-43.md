@@ -1,0 +1,1 @@
+Artículo 43.—Respecto de aquellos planos que se encuentren debidamente catastrados al momento de la promulgación del presente Reglamento de Usos del Suelo del cantón de Desamparados, la Municipalidad otorgará el respectivo visado para los efectos del artículo 33 de la Ley de Planificación Urbana en cualquier momento, siempre y cuando reúnan los requisitos mínimos de zonificación.

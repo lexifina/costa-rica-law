@@ -1,0 +1,1 @@
+Artículo 62.—Permiso de construcción para proyectos de urbanización o condominio residencial: Los proyectos de urbanización o condominio, así como toda división predial o fraccionamiento mayor a 6 (seis) segregaciones o lotes deberán cumplir con los requisitos de permiso de construcción de urbanización o condominio.
