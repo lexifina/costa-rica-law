@@ -1,0 +1,3 @@
+Art. 2°-La exención dicha durará cinco años, y comenzará á surtir sus efectos seis meses después de la promulgación de esta ley.
+No obstante, el Poder Ejecutivo podrá tres meses antes de la expiración de este último término, prorrogarlo hasta por seis meses más, si lo juzgare conveniente.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional en San José, á los veinticinco días del mes de noviembre de mil ochocientos ochenta y siete.-AND. SÁENZ, Presidente. -José Ma SOTO ALFARO, Secretario.-Palacio Presidencial. - San José, á veinticinco de noviembre de mil ocho- cientos ochenta y siete.-Ejecútese.-BERNARDO SOTO.--Por el Ministro de Hacienda, el de Guerra y Marina, A. DE JESÚS SOTO.
