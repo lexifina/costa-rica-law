@@ -1,0 +1,1 @@
+Art. 3°. -En las licencias deberá constar: 1°.-El nombre del lugar ó lugares donde deba establecerse la pesquería de perlas; 2°.-Los nombres del empresario y de la embarcación ó embarcaciones de la empresa.

@@ -1,0 +1,1 @@
+Art. 2°.-Todo empresario de buceo otorgará una fianza ante el Juez de Hacienda Nacional, por valor de mil pesos, y satisfacción de la Secretaría de Hacienda; suma con que ser multado en el caso de que cualquiera de sus dependientes ó empleados, hicieren contrabando, fuera de las dem s penas que por las leyes vigentes están sujetos los contrabandistas.
