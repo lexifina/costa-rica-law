@@ -1,0 +1,2 @@
+Art. 2º. Licencias de servicio. Las licencias por enfermedad, maternidad, lactancia, paternidad, matrimonio, duelo y otras que se confieran a los servidores judiciales por motivos directamente vinculados a su relación de servicio se regirán, en general, por las disposiciones legales y reglamentarias sobre la materia.
+Durante estas licencias de servicio los beneficiarios no podrán desempeñar ninguna actividad, remunerada o no, ajena a la circunstancia que motive la licencia o, desde luego, a los quehaceres puramente personales, de familia o similares.

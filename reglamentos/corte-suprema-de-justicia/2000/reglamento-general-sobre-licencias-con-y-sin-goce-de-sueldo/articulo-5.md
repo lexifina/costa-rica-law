@@ -1,0 +1,1 @@
+Art. 5.- Investigaciones científicas y literarias. Los servidores judiciales pueden realizar investigaciones científicas o literarias fuera de la jornada laboral, por las cuales pueden percibir honorarios, derechos de autor u otras remuneraciones similares.
