@@ -1,0 +1,3 @@
+Artículo 3º.- La Comisión Nacional será competente para dictar las políticas y objetivos generales a los que estarán sometidas las comisiones ministeriales e institucionales.
+Específicamente, con el fin de promover la ética en el servicio y contribuir a la eficiencia en el sector público, corresponderá a las comisiones analizar las causas y efectos de la crisis de valores al interior de las instituciones y con relación a la sociedad, así como determinar las posibles soluciones.
+La Comisión Nacional dirigirá y coordinará las acciones que las comisiones decidan ejecutar. Para ello, establecerá una metodología uniforme de planeamiento que permita dar seguimiento y evaluar periódicamente la eficiencia y eficacia de su gestión.

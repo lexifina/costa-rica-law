@@ -1,0 +1,1 @@
+Artículo 4º.- Se autoriza a los ministerios e instituciones del Poder Central y de la Administración Descentralizada, y se insta a los otros poderes del Estado, a que otorguen a la Comisión la ayuda económica y técnica que, de acuerdo con sus posibilidades, puedan darle.

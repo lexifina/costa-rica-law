@@ -1,0 +1,1 @@
+Artículo 5º.- Se faculta a los ministerios, instituciones del Poder Ejecutivo e instituciones que conforman la Administración Descentralizada, para que en sus comunicados oficiales y avisos publicitarios se incorporen mensajes de la Comisión, tendentes a formar conciencia ciudadana respecto al rescate de valores morales, cívicos y religiosos.

@@ -1,0 +1,2 @@
+Artículo 6º.- Modifíquese el artículo 6 del Decreto Nº 17908-J del 3 de diciembre de 1987, para que en lo sucesivo se lea así:
+“La comisión administrará sus recursos, con la ayuda contable del departamento de Contabilidad del Registro Nacional, dependencia adscrita al Ministerio de Justicia y Gracia. La Contraloría General de la República podrá realizar las investigaciones y prevenciones que considere necesarias para verificar la corrección en el uso de los recursos por parte de la Comisión, así como recomendar los ajustes necesarios”.
