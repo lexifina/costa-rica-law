@@ -1,0 +1,1 @@
+ARTÍCULO 8°.-En un plazo de 90 días a partir de la vigencia de este Decreto, la Dirección General Forestal emitir un reglamento de uso que regular las actividades a desarrollar en esta zona protectora.

@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-Los terrenos que no están respaldados por la posesión decenal o por su correcta inscripción en el Registro Público de la Propiedad no son susceptibles de inscripción ante dicho organismo, mediante información posesoria, y su invasión y ocupación se sancionarán conforme con lo dispuesto en la ley N° 7032 del 7 de mayo de 1986.

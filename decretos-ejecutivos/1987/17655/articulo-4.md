@@ -1,0 +1,1 @@
+ARTÍCULO 4°.-Los terrenos de propiedad particular comprendidos dentro de esta área se declaran de utilidad pública y susceptibles de expropiación, quedando automáticamente sometidos al Régimen Forestal.

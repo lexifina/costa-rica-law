@@ -1,0 +1,1 @@
+ARTÍCULO 6°.-La Dirección General Forestal podrá proponer celebrar contratos o acuerdos cooperativos con instituciones autónomas, asociaciones, fundaciones o cualquier otra persona física o jurídica con propósitos de manejo, desarrollo, protección y administración del área.
