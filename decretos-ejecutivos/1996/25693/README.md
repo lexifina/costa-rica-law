@@ -15,3 +15,4 @@ Declara Disuelta la Junta de Protección Social de Cartago
 | --- | --- | --- |
 | 1 | 1997-01-08 | la propia norma |
 | 2 | 1997-01-08 | Decreto Ejecutivo 25761 (1997-01-08) |
+| 3 | 1998-01-06 | Decreto Ejecutivo 26619 (1998-01-06) |
