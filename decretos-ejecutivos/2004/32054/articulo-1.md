@@ -1,0 +1,14 @@
+Nº 32054-H
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que le confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, los artículos 25 inciso l), 27 inciso l) y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos del 18 de setiembre del 2001 y su Reglamento, Decreto Ejecutivo Nº 30058-H-MP-PLAN del 19 de diciembre del 2001 y Ley Nº 3695, Ley de Creación del Patronato Nacional de Rehabilitación del 22 de junio de 1966.
+Considerando:
+1º—Que el Patronato Nacional de Rehabilitación (PANARE) fue creado mediante Ley Nº 3695, publicada en La Gaceta Nº 144 del 26 de junio de 1966, con el fin de tener a cargo la administración del Hogar de Rehabilitación de Santa Ana, para los niños lisiados por la poliomielitis u otras enfermedades que produzcan secuelas similares.
+2º—Que el PANARE requiere incorporar recursos en su presupuesto, para poder hacer frente a gastos operativos en las áreas de Enfermería, Seguridad y Vigilancia y Medicina General, que actualmente están sin contenido presupuestario.
+3º—Que mediante Decreto Ejecutivo Nº 31092-H y sus reformas, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, la Autoridad Presupuestaria formuló las Directrices de Política Presupuestaria del 2004, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo en el artículo 1º del citado decreto, la forma de cálculo del gasto máximo presupuestario del año 2004, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+4º—Que mediante oficio STAP-CIRCULAR 647-03 del 29 de abril del 2003, se comunicó al PANARE el gasto máximo para el año 2004.
+5º—Que mediante artículo 1º del Decreto Ejecutivo Nº 31835-H, que modifica la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2004, publicado en La Gaceta Nº 120 del 21 de junio del 2004, se hizo una transferencia al Patronato Nacional de Rehabilitación para gastos de operación.
+6º—Que a los efectos de poder hacer frente a sus gastos operativos, la entidad solicitó mediante oficios PNR-1659-04, PNR-1676-04, PNR-1705-04, PNR-1709-04 y PNR-1715-04, la ampliación del gasto máximo presupuestario autorizado para el año 2004. Por tanto:
+DECRETAN:
+Artículo 1º—Modifícase al Patronato Nacional de Rehabilitación el gasto máximo presupuestario para el año 2004, fijado según lo dispuesto en el artículo 1° del Decreto Ejecutivo Nº 31092-H y sus reformas, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, de manera que este no podrá exceder la suma de ¢179.0 millones.
