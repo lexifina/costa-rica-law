@@ -1,0 +1,1 @@
+Artículo 10.—Ninguna persona podrá ingresar al Centro, cuando porte sustancias u objetos no autorizados y que sean detectados de previo al ingreso. Tratándose de sustancias ilícitas, deberá precederse como se señala en el presente Reglamento.
