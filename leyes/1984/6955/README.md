@@ -1,6 +1,6 @@
 # Ley para el Equilibrio Financiero del Sector Público
 
-Ley N° 6955 del 1984-02-24. SINALEVI, ficha 6199: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6199&param2=99539&param3=1>.
+Ley N° 6955 del 1984-02-24. SINALEVI, ficha 6199: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6199&param2=99540&param3=1>.
 
 Publicada en La Gaceta N° 45 del 1984-03-02.
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 8 | 1995-11-13 | SINALEVI (2 normas) | 1984-02-24 |
 | 2 de 8 | 1999-11-15 | SINALEVI (11 normas) | 1984-02-24 |
 | 3 de 8 | 1999-11-15 | SINALEVI | 1984-07-26 |
+| 4 de 8 | 1999-11-15 | Sala Constitucional, resolución 00140 (1993-01-12) | 1993-01-12 |
