@@ -17,3 +17,4 @@ Reglamento sobre Afiliados.
 | 2 | 1996-12-11 | Reglamento 13 (1996-12-11) |
 | 3 | 1997-08-01 | Reglamento 28 (1997-08-01) |
 | 4 | 1997-10-27 | Reglamento 32 (1997-10-27) |
+| 5 | 1999-01-07 | Reglamento 63 (1999-01-07) |
