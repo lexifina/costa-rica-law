@@ -1,0 +1,1 @@
+Artículo 27.-Para fungir como agente patrocinador o intermediario de criptas se requiere como únicos requisitos estar debidamente inscrito en el registro respectivo, firmar el convenio o contrato de comercialización y cumplir como mínimo un plan de ventas mensual, según los intereses y los sectores que fije la Junta como prioritarios.

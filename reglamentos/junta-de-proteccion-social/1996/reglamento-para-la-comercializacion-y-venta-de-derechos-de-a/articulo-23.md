@@ -1,0 +1,1 @@
+Artículo 23.-Para la comercialización de criptas del Cementerio General, la Junta podrá aplicar todas las disposiciones establecidas en este Reglamento a excepción de los planes de venta con comisión.

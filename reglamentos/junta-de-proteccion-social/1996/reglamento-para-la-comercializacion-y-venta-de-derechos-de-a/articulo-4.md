@@ -1,0 +1,2 @@
+Artículo 4°-Se define como actividad ordinaria de la (*) Junta de Protección Social, la provisión de lugares de sepultura y demás servicios relacionados con la inhumación y exhumación de cadáveres a los distintos interesados sean estos personas físicas o jurídicas, cuando estos servicios sean brindados en forma directa por la Junta.
+(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).

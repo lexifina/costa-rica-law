@@ -1,0 +1,1 @@
+Artículo 28.-Los interesados que cumplieren con los requisitos del registro de asociaciones o de potenciales proveedores en la categoría de intermediarios y que no fueren seleccionados por la Administración de Cementerios, para formalizar contratos, tendrán recurso de revocatoria ante la Gerencia y de apelación ante la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 5°-La Junta Directiva será la responsable de emitir las políticas que regirán la comercialización y venta de derechos de arriendo procurando en todo caso, que esta actividad se brinde al costo, como un programa social de la Institución.

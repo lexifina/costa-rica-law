@@ -1,0 +1,1 @@
+Artículo 3°-Que para el logro del objetivo social a que se refiere el artículo segundo de este Reglamento, se hace indispensable la comercialización y venta de derechos de arriendo, dicha actividad deberá hacerse siguiendo las reglas de oferta y demanda que rigen el mercado y acordes a las disposiciones del Derecho Público aplicables.

@@ -1,0 +1,1 @@
+Artículo 14.-Los planes de venta deberán contemplar como mínimo el precio nominal de contado, el plan de crédito, las tasas de interés por saldos y por intereses moratorios, la cuota de mantenimiento que se cobrará y las condiciones básicas del producto que se está ofreciendo, tales como plazo de arrendamiento y compromisos del arrendatario.

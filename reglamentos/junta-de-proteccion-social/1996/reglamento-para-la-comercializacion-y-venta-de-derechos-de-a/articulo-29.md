@@ -1,0 +1,1 @@
+Artículo 29.-La Administración de Cementerios establecerá los parámetros de selección de patrocinadores e intermediarios siguiendo las políticas que al efecto le indique la Junta Directiva, dichos parámetros deberán ser de conocimiento generalizado entre los interesados.

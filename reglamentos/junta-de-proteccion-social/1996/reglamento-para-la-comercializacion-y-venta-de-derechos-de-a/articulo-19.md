@@ -1,0 +1,1 @@
+Artículo 19.-Las ventas por comisión consiste en reconocer al intermediario, un porcentaje de comisión por las ventas que efectúe, dicho porcentaje será establecido unilateralmente por la Junta ya sea por un monto fijo o por escala de ventas, según convenga a los intereses de la Institución.
