@@ -14,3 +14,4 @@ Reglamento del Cementerio Municipal de Mora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-06-09 | la propia norma |
+| 2 | 1989-09-06 | Reglamento municipal 0 (1989-09-06) |
