@@ -13,3 +13,4 @@ Exonera Impuesto sobre Ventas Repuestos para Vehículos Taxis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-09-28 | la propia norma |
+| 2 | 1977-09-28 | SINALEVI (sin norma nombrada) |
