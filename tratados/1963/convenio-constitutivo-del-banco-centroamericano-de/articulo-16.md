@@ -1,0 +1,1 @@
+Artículo 16.- Habrá un Director por cada Estado miembro del Banco elegido por la Asamblea de Gobernadores. Los Directores serán designados por períodos de cinco años y podrán ser reelegidos por períodos sucesivos. Deberán ser ciudadanos de los Estados miembros y personas de reconocida capacidad y amplia experiencia de asuntos económicos, financieros y bancarios.

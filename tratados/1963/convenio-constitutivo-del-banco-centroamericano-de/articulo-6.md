@@ -1,0 +1,1 @@
+Artículo 6º.- Además de su propio capital y reservas, formará parte de los recursos del Banco el producto de empréstitos y créditos obtenidos en los mercados de capital y cualesquiera otros recursos recibidos a cualquier título legal.

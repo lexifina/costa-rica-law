@@ -1,0 +1,1 @@
+Artículo 8º.- El Banco financiará exclusivamente proyectos económicamente sanos y técnicamente viables y se abstendrá de hacer préstamos o de adquirir y responsabilidad alguna por el pago o refinanciamiento de obligaciones anteriores.

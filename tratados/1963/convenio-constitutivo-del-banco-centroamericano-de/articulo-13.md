@@ -1,0 +1,1 @@
+Artículo 13.- La Asamblea de Gobernadores se reunirá ordinariamente cada año. Además, podrá reunirse con carácter extraordinario cuando así lo disponga o la convoque el Directorio. El Directorio deberá convocar la Asamblea cuando así lo solicite un Estado miembro.

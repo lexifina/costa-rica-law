@@ -1,0 +1,3 @@
+Artículo 29.- Los bienes y demás activos del Banco, donde quiera que se hallen y quienquiera los tuviere, gozarán de inmunidad con respecto a comiso, secuestro, embargo, retención, remate, adjudicación o cualquier otra forma de aprehensión o de enajenación forzosa mientras no existiere sentencia firme contra el Banco.
+Los bienes y demás activos del Banco serán considerados como propiedad pública internacional y gozarán de inmunidad con respecto a pesquisa, requisición, confiscación, exportación o cualquier otra forma de aprehensión o enajenación forzosa por acción ejecutiva o legislativa.
+Los bienes y demás activos del Banco estarán exentos de toda clase de restricciones, regulaciones y medidas de control o moratorias, salvo que en este Convenio se disponga otra cosa.

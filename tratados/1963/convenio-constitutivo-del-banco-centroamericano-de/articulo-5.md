@@ -1,0 +1,5 @@
+Artículo 5º.- La participación de los Estados miembros en la capital del Banco estará representada por títulos del capital expendidos a favor de los respectivos Estados. Tales títulos conferirán a sus tenedores iguales derechos y obligaciones, no devengarán intereses ni dividendos y no podrán ser gravados ni enajenados.
+Los beneficios líquidos que el Banco obtenga en el ejercicio de sus operaciones, se llevarán a una reserva de capital.
+Las responsabilidades de los miembros del Banco, como tales, estar limitada al importe de su suscripción de capital.
+Las aportaciones de capital en moneda nacional de cada uno de los Estados miembros gozarán de la garantía de libre convertibilidad al tipo de cambio oficial más favorable al Banco.
+Cada uno de los Estados miembros se compromete a mantener el valor en dólares de los Estados Unidos de América de la parte de capital que haya pagado al Banco. Si se llegara a modificar el tipo oficial de cambio para el exterior de cualquiera de las monedas nacionales, los recursos del Banco en esa moneda deberán ser ajustados en la proporción exacta que se requiera para mantener su valor en dólares de los Estados Unidos de América.

@@ -1,0 +1,3 @@
+Artículo 32.- El personal del Banco, cualquiera que fuere su categoría, gozará de los siguientes privilegios e inmunidades:
+a) Inmunidad respecto a procesos judiciales, administrativos y legislativos, relativos a actos realizados por ellos en su carácter oficial salvo que el Banco renuncie a tal inmunidad.
+b) Cuando no fueren nacionales del país miembro, gozarán de las mismas inmunidades y privilegios respecto de restricciones de inmigración, requisitos de registro de extranjeros y obligaciones de servicio militar, y las demás facilidades respecto a disposiciones cambiarias y de viajes que el país conceda al personal de rango comparable al de otros miembros.

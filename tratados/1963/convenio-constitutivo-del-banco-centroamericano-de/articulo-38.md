@@ -1,0 +1,1 @@
+Artículo 38.- El presente Convenio entrará en vigor a partir del depósito del tercer instrumento de ratificación en la Secretaría General de la Organización de Estados Centroamericanos. Para los Estados centroamericanos que se adhieran a él posteriormente, entrará en vigor desde la fecha de depósito del respectivo instrumento en dicha Secretaría.

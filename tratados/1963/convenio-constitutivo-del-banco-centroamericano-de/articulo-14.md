@@ -1,0 +1,1 @@
+Artículo 14.- El quórum para las reuniones de la Asamblea de Gobernadores será la mitad más uno de la totalidad de los Gobernadores. En cualquier caso, salvo lo prescrito en el Artículo 4, l as decisiones se adoptarán con el voto concurrente de la mitad más uno de la totalidad de los Gobernadores.

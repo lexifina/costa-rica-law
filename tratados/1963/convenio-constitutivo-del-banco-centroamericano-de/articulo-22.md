@@ -1,0 +1,1 @@
+Artículo 22.- El Presidente, los funcionarios y los empleados del Banco, en el desempeño de sus funciones dependerán exclusivamente de éste y no reconocerán ninguna otra autoridad. Los Estados miembros deberán respetar el carácter internacional de dicha obligación.

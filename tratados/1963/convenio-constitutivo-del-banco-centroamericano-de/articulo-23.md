@@ -1,0 +1,1 @@
+Artículo 23.- La consideración primordial que el Banco tendrá en cuenta al nombrar su personal y al determinar sus condiciones de servicios será la necesidad de asegurar el más alto grado de eficiencia, competencia e integridad. También se procurará contratar el personal en forma de que haya la debida representación geográfica.
