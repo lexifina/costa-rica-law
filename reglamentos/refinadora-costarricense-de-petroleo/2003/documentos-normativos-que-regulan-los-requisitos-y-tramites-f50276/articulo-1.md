@@ -1,0 +1,64 @@
+REFINADORA COSTARRICENSE DE PETRÓLEO
+En cumplimiento de la Ley Nº 8220 sobre la Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, publicada en el Alcance Nº 22 de La Gaceta Nº 49 del día 11 de marzo del 2002, Recope publica los documentos normativos que regulan los requisitos y trámites en la prestación de sus servicios.
+LINEAMIENTOS PARA LA SEGURIDAD DE LOS CENTROS DE TRABAJO
+El Departamento de Seguridad y Vigilancia solicita la colaboración para que se giren las instrucciones necesarias a los funcionarios a su cargo, en cuanto a los lineamientos que se practicarán a partir de este día.
+Estos lineamientos ya se comunicaron a los Supervisores de Seguridad de cada Centro de Trabajo (memorando SVI-097-01), y está directamente relacionado con el acontecer laboral de los Oficiales de Seguridad de cada Centro de Trabajo; con el propósito de brindar bienestar y seguridad a todos los trabajadores de Recope, a raíz de una serie de anomalías que se han venido presentando.
+1. Ingreso y salida de clientes externos
+1.1 Si una persona ajena a la empresa solicita comunicarse con un empleado, se debe seguir con los siguientes pasos:
+1.1.1 Consultar el nombre del empleado con el cual desea hablar y en qué departamento labora.
+1.1.2 Consultar el nombre al cliente externo para anunciarlo con el empleado.
+1.1.3 Llamar al compañero (a) de la empresa e indicarle si desea recibir la visita para dejarlo pasar, o por el contrario indicarle al cliente externo que será atendido prontamente por el funcionario en ese mismo sitio.
+1.1.4 Ningún visitante podrá entrar a las instalaciones de la empresa, sin autorización previa del funcionario (a) con quien desee entrevistarse, el cual será responsable del visitante a excepción de los planteles que el visitante debe contar con la autorización del jefe inmediato del funcionario.
+1.1.5 Esta llamada es útil para verificar si el empleado realmente se encuentra en las instalaciones, ya que en ocasiones podría ser un timo del supuesto "cliente externo", para funcionarios que se encuentran en vacaciones o incapacitados, o bien si se puede determinar con esta llamada, si el compañero de Recope se encuentra en alguna reunión que le impida recibir al visitante.
+1.1.6 Solicitar el documento de identificación (cédula de identidad, cédula de residencia o pasaporte) para brindarle a cambio el "Carné de Visitantes".
+1.1.7 Solicitarle además, que se anote en el formulario que para tales efectos posee cada puesto de trabajo, N° 003-087-0000120 denominado "Control de Visitantes y Transportistas".
+1.1.8 Verificar la firma anotada por el cliente externo en el formulario, versus su documento de identificación.
+1.1.9 Revisar los paquetes, maletines, bolsos, portafolios (entre otros) que carguen los clientes externos. Para ello el Oficial de Seguridad también exigirá que se abran "zippers" internos, paquetes y bolsos con dudoso contenido, que contenga esos maletines o bolsos.
+1.1.10 Si algún cliente externo porta un arma (revolver o pistola), se le debe indicar que debe dejarla en custodia. Para ello se seguirá con el siguiente proceso:
+1.1.10.1 Solicitarle el arma y comunicarle que a cambio se le dará un comprobante que contiene un único número de consecutivo (el cual se desprenderá de una fórmula compuesta de dos partes, que oportunamente se le remitirá).
+1.1.10.1.1 Si el arma es un revólver, el cliente externo la descargará llevándose consigo las municiones o tiros.
+1.1.10.1.2 Si el arma es una pistola, el cliente externo debe liberar el magazin y llevarlo consigo.
+1.1.10.2 La otra parte de la fórmula con la misma numeración consecutiva, se debe pegar a un sobre (tipo manila) donde se depositará el arma para su posterior devolución.
+1.1.10.3 El sobre con el arma lo depositará el Oficial de Seguridad en su escritorio y para ello dispondrá de una única llave que mantendrá este funcionario. Si se presentara un cambio de turno, debe comunicarle la existencia del arma (s) al oficial entrante, primero de forma verbal y luego a través de la anotación en la bitácora, por si el cliente (s) aún permanece dentro del edificio.
+1.1.10.4 Cuando el cliente externo sea un motociclista que posea casco de protección de su medio de transporte, éste deberá quitárselo y andarlo consigo, ya por ningún motivo podrá ponérselo dentro de las instalaciones.
+1.1.10.6 Cuando se trate de visitas a Planteles, además de los señalado en los puntos anteriores, se debe exigir el uso de la fórmula interna N° F43-027 denominada "Autorización de Ingreso al Edificio", tal como se indicó en el punto 1.1.7.
+1.1.10.7 Los espacios iniciales de esta fórmula serán llenados por el Oficial de Seguridad. El nombre y la firma de los últimos dos campos del concepto "Aprobado por" será firmada por el jefe inmediato o encargado del Departamento que avaló su ingreso una vez concluida la visita para comprobación del Oficial de Seguridad, quién deberá solicitarla al cliente externo y archivarla para efectos de control interno.
+1.1.10.8 Toda vez que un cliente externo haya terminado su visita, deberá seguirse con la siguiente rutina:
+1.1.10.9 Solicitarle que anote su hora de salida en el formulario mencionado en alguno de los formularios mencionados en el punto 1.1.7.
+1.1.10.10 Revisar nuevamente los paquetes, maletines, bolsos, portafolios (entre otros) con que ingresaron. Para ello el Oficial de Seguridad también exigirá que se abran "zippers" internos, paquetes y bolsos con dudoso contenido, que contengan esos maletines o bolsos.
+1.1.10.11 Si por alguna eventualidad algún cliente externo lleva consigo algún activo o equipo menor, deberá llevar consigo un memorando de autorización del jefe o director de la dependencia visitada, y verificar la legitimidad del documento haciendo una llamada al suscrito de esa nota.
+1.1.10.12 Devolverle el revólver o pistola, únicamente con la presentación de su comprobante (etiqueta con numeración consecutiva).
+1.1.10.13 Devolverle su documento de identificación previa devolución por parte del cliente externo, del carné del visitante (se hace posterior este paso para verificar también el nombre anotado en el sobre de manila, en los casos en que los clientes hayan dejado armas de fuego).
+1.1.10.14 El Oficial de Seguridad debe estar atento, la vigilancia requerida en su radio de acción con respecto a su puesto de trabajo, de tal forma que no se limite a estar solamente ubicado en su escritorio, y pueda con ello visualizar cualquier anomalía o movimientos de personas sospechosas.
+2. Ingreso y salida de clientes internos (funcionarios de recope)
+2.1 Todo funcionario de la empresa debe portar su respectivo carné de identificación en un lugar visible (a excepción de los miembros de la Junta Directiva de Recope).
+2.2 Los empleados de la empresa deben usar el carné todo el tiempo que permanezcan en las instalaciones de Recope.
+2.3 El Oficial de Seguridad estará en la obligación de anotar en la bitácora y comunicar de inmediato su incumplimiento al Supervisor del Departamento de Seguridad de su Centro de Trabajo, toda vez que un funcionario se niegue a portar el carné en un lugar visible.
+2.4 Si se presenta el caso de que un funcionario olvidó el carné en determinado día o lo ha extraviado, el empleado se debe anotar en la bitácora o libro de guardas. Luego, el Oficial de Seguridad verificará la anotación, específicamente lo que respecta a su nombre y hora de ingreso (al término de sus labores el funcionario deberá también anotar su hora de salida).
+2.5 Si el empleado se apersona a un Centro de Trabajo donde el Oficial de Seguridad no lo conoce y presenta las situaciones mencionadas en el punto anterior (olvido o extravío del carné), éste estará en la facultad de solicitarle la cédula de identidad y verificarlo contra la lista de empleados actualizada con que contará su puesto. Además, la hora de ingreso, el motivo de la visita y la persona a la cual se dirige, deberán consultar en la bitácora, así como la hora posterior de su retiro del edificio o plantel.
+2.6 Será un deber del funcionario de Recope, indicarle al Oficial de Seguridad, los objetos, equipo o implementos personales que esté ingresando al edificio y será una obligación de este último anotarlo en la bitácora; esto con el propósito de evitar problemas al momento de sacarlos, ya que en ocasiones pueden haber cambios de turnos de los oficiales.
+2.7 A la hora de la salida se debe revisar a todo empleado los paquetes, maletines, bolsos, portafolios (entre otros). Para ello el Oficial de Seguridad también exigirá que se abran "zippers" internos, paquetes y bolsas con dudoso contenido, que contengan esos maletines o bolsos. Los empleados que salgan del edificio con paquetes, maletines, bolsos, portafolios (entre otros) dentro de sus vehículos, deberán también ser revisados en los puestos de vigilancia de cada Centro de Trabajo.
+2.8 Si por alguna eventualidad se encontrara en las revisiones (de los dos puntos señalados anteriormente) algún activo, éste deberá contar con su respectivo formulario N° 003-087-0420 denominado "Pase para Materiales y Equipos". Si el Oficial de Seguridad encuentra un equipo menor en la respectiva revisión, el empleado deberá poseer una autorización de su superior inmediato. Para ambos casos, si no se cuenta con los documentos mencionados, será motivo suficiente para no permitir la salida de esos bienes y deberá anotarse estas novedades en la bitácora.
+2.9 Los funcionarios (personal administrativo) que se queden laborando más tiempo del horario establecido por la empresa, deberá enviarse al Oficial de Seguridad por parte del Jefe de Departamento, el respectivo permiso de permanencia o entrada en horas no laborales, para que éste proceda a anotarlo en la bitácora. Además, anotará el momento de su salida del edificio o plantel.
+2.10 Queda terminantemente prohibido que los Oficiales de Seguridad guarden carnés de compañeros de Recope en sus escritorios o muebles modulares de trabajo, asimismo tampoco se permitirá la custodia temporal de llaves u objetos personales de ninguna índole.
+2.11 Los Oficiales de Seguridad recordarán a las jefaturas al finalizar las labores, que deben dejar las oficinas debidamente cerradas y las luces y artefactos eléctricos apagados.
+2.12 A los funcionarios de Recope que no pertenecen a los planteles, deberán apagar beppers y celulares antes de ingresar.
+3. Ingreso y salida de contratistas
+3.1 El Oficial de Seguridad estará en la obligación de anotar en la bitácora el nombre y el número de cédula de todo contratista, así como el detalle de los equipos que introducen para su trabajo y al momento de retirarlos.
+3.2 Para ello debe revisar al ingreso y a la salida los paquetes, maletines, bolsos, portafolios, (entre otros) con que cuentan los contratistas, en donde el Oficial de Seguridad también exigirá que se abran "zippers" internos, paquetes y bolsas de dudoso contenido, que contengan esos maletines o bolsos.
+3.3 Si el trabajo a realizar debe desarrollar en horas no hábiles, se solicitará la debida autorización a la Jefatura de la dependencia que supervisa la obra.
+3.4 El contratista deberá contar con su respectivo carné que lo acredite como tal y estar con fecha vigente. Si ingresa con vehículo, colocar en un lugar visible el rótulo de visitante.
+3.5 Los pases de vehículos y carnés de transportistas presentan un período de vencimiento de un mes.
+Siguiendo los lineamientos enviados a cada uno de los supervisores del departamento y recomendaciones hechas por ustedes mismos, adjunto le remito los formularios que se utilizarán a partir de esta fecha al momento que ingrese alguna persona con un arma de fuego, por lo que le solicitamos instruya a los oficiales de seguridad para que este control se lleve de la mejor forma posible.
+El procedimiento a seguir es el siguiente:
+- Se recibe el arma descargada (el cliente se lleva las municiones o el magazín).
+- El cliente llena la boleta (menos la parte sombreada de color que la completa el oficial de seguridad) y solicita cédula de identidad para verificar los datos.
+- Se deja el arma en un sobre manilla cerrado y se le engrapa la parte más grande del formulario
+- Se le entrega al cliente la otra parte (contraseña)
+- Se coloca el sobre cerrado dentro del escritorio
+- Cuando el cliente llega a retirar el arma, se verifica el número de contraseña
+- Se retiene la parte más grande del formulario para registro interno de la Empresa y se le engrapa la contraseña.
+- Se entrega el arma al cliente
+La numeración del formulario correspondiente a su zona es la siguiente: Nº 0351 al Nº 0372 y deberá informar cada mes a este departamento su debida utilización, según boleta adjunta.
+Para cualquier información adicional o duda al respecto, favor comunicarse a este departamento con el señor Norman Rojas o con su servidor.
+(NOTA: Ver Formulario sobre Control de ingreso de armas, en La Gaceta N° 63 de 31 de marzo de 2003)
