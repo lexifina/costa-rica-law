@@ -1,3 +1,2 @@
-Artículo 10º.- Rige a partir de su publicación.
-Dado en la Presidencia de la República.-San José, a los dos días del mes de setiembre de mil novecientos noventa y dos
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 24231 del 24 de abril de 1995, que lo traspaso del antiguo artículo 8 al actual artículo 10)
+Artículo 10.-Serán igualmente objeto de inscripción en este Registro los fideicomisos que se constituyan sobre los derechos de concesión o de cesión parcial de derechos de concesión derivados de tales contratos, así como sus modificaciones, prórrogas y cancelaciones.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 24400 del 12 de mayo de 1995)

@@ -1,0 +1,2 @@
+Artículo 11.-El Registro deberá aplicar, a efecto de inscribir cualquier acto objeto de inscripción en dicho despacho, el Reglamento del Registro Público, la Ley de Inscripción de Documentos Públicos, Código Civil, Código de Comercio, Ley Orgánica del Notariado, Ley de Desarrollo y Ejecución del Proyecto Turístico Golfo Papagayo, Ley sobre la Zona Marítimo Terrestre y su Reglamento, Ley de Propiedad Horizontal, Ley de Aranceles del Registro Público.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 24400 del 12 de mayo de 1995)
