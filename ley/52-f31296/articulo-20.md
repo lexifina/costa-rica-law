@@ -1,1 +1,2 @@
 Artículo 20.—Todas las disposiciones referentes a cambios se considerarán de orden público y cíe aplicación inmediata. El Banco Internacional procederá a integrar la Junta de Cambios a la mayor brevedad a fin de que ésta dicte su reglamento y entre en funciones dentro de los diez días naturales posteriores a la publicación de esta ley.
+(Nota de Sinalevi: Mediante el artículo 12 de la ley N° 57 del 23 de febrero de 1935, "Crea Junta Control de Exportación de Productos", se establece que el presente artículo queda refundido en dicha ley)

@@ -1,1 +1,2 @@
 Artículo 23. — Para disminuir la exportación de oro el Poder Ejecutivo enviará al Congreso, a la mayor brevedad posible, convocándolo extraordinariamente si fuere preciso, un proyecto de ley que grave fuertemente la importación de artículos que se consideren de lujo y la de aquellos que se puedan producir en el país.
+(Nota de Sinalevi: Mediante el artículo 12 de la ley N° 57 del 23 de febrero de 1935, "Crea Junta Control de Exportación de Productos", se establece que el presente artículo queda refundido en dicha ley)
