@@ -1,0 +1,1 @@
+Artículo 4º.- Se destinan a formar parte del Fondo Nacional de Garantías títulos valores propiedad del FODESAF hasta por la suma de cuatro mil millones de colones, de conformidad con la Ley 5662 del 23 de diciembre de 1974.
