@@ -1,0 +1,1 @@
+Art 2.-En el caso de que se oponga a su cumplimiento el mismo procedimiento anunciado por la Interdependencia, y el mismo año, el Gobierno usara de las facultades que le están confiadas por la ley, a efecto de averiguar, y hacer que se castiguen condignamente á los principales autores, y factores de tal atentado.
