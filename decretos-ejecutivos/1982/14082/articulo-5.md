@@ -1,4 +1,5 @@
-Artículo 5º.- Mercancías exentas.- De acuerdo con el artículo 4º anterior y el 9º de la ley, están exentas del pago del impuesto, las ventas de las mercancías siguientes:
+Artículo 5º.-
+Mercancías exentas.- De acuerdo con el artículo 4º anterior y el 9º de la ley, están exentas del pago del impuesto, las ventas de las mercancías siguientes:
 1) Canasta Básica Alimentaria y de Bienes Esenciales para la Educación:
 I) Canasta Básica Alimentaria:
 Aceites y grasas vegetales comestibles, excpto de maní, cacahuate y de olivia.
@@ -27,7 +28,7 @@ Cebolla fresca, no envasada
 Cocos.
 (Así adicionada la mercancía anterior por el artículo 2° del decreto ejecutivo N° 22592 del 4 de octubre de 1993)
 Cuajada, no envasada
-Cubaces, no envasados
+Cubaces , no envasados
 Chorizo, excepto el enlatado
 Dentífricos.
 (Así adicionada la mercancía anterior por el artículo 2° del decreto ejecutivo N° 22592 del 4 de octubre de 1993)
@@ -62,7 +63,8 @@ Natilla fresca.
 Pan de toda clase.
 Panela (dulce de tapa).
 Papel higiénico.
-Pastas alimenticias (macarrones, espaguetti, tallarines, fideos y similares).
+Pastas alimenticias (macarrones, espaguetti, tallarines, fideos y semilares), excepto las rellenas.
+(Así reformada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 22800 del 21 de diciembre de 1993)
 Pastas dentales.
 Paté, excepto enlatado o envasado.
 Pescado y sus partes, fresco, en salmuera, salado o desecado, (no envasado o enlatado).
@@ -102,7 +104,7 @@ Uniformes escolares (solo camisa, blusa, pantalón o falda), a juicio de la Admi
 (Así reformada la mercancía anterior por el artículo 2° del decreto ejecutivo N° 22592 del 4 de octubre de 1993)
 2) Medicamentos: para efectos tributarios, se definen los medicamentos como:
 i) Los productos o sustancias naturales, artificiales o sintéticos y toda mezcla de esos productos o sustancias que se utilicen para diagnóstico, prevención, tratamiento y alivio de las enfermedades o los estados físicos anormales, o de los síntomas de estos, y para el restablecimiento o la modificación de funciones orgánicas en las personas. Los medicamentos exentos serán solo los que se encuentren registrados en el Ministerio de Salud, cuyo Departamento de Drogas, Estupefacientes, Controles y Registros, certificará ese hecho por medio de la autorización de desalmacenaje de las facturas.
-ii) Los que deba adquirir la Caja Costarricense de Seguro Social para la prestación de sus servicios, aún cuando se trate de productos no registrados por el Departamento de Drogas, Estupefacientes, Controles y Registros del Ministerio de Salud. No obstante, su desalmacenaje debe ser autorizado por el citado Departamento.
+ii ) Los que deba adquirir la Caja Costarricense de Seguro Social para la prestación de sus servicios, aún cuando se trate de productos no registrados por el Departamento de Drogas, Estupefacientes, Controles y Registros del Ministerio de Salud. No obstante, su desalmacenaje debe ser autorizado por el citado Departamento.
 (Así reformado el punto anterior por el artículo 2° del decreto ejecutivo N° 22592 del 4 de octubre de 1993)
 iii) Para efectos de la exención sobre medicamentosdebe tomarse en cuenta también, lo estipulado en el artículo 4º de la ley Nº 7293 del 31 de marzo de 1992.
 (Así reformado el punto anterior por el artículo 2° del decreto ejecutivo N° 22592 del 4 de octubre de 1993)
@@ -125,7 +127,7 @@ Suplementos alimenticios (premezclados minerales,
 vitaminas y antibióticos y estimulantes de crecimiento).
 Toxoides
 Vacunas.
-(*)4) Insumos agropecuarios:
+(*) 4) Insumos agropecuarios:
 Insumos agropecuarios
 - Layas, palas, azadas, picos, binaderas, horcas, rastrillos y raederas; hachas, hocinos y herramientas similares con filo; tijeras de podar de cualquier tipo; hoces y guadañas; cuchillos para heno o para paja, cizallas para setos, cuñas y demás herramientas de mano, agrícolas, hortícolas o forestales.
 -Máquinas, aparatos y artefactos agrícolas, hortícolas o silvícolas, para la preparación o el trabajo del suelo o para el cultivo, excepto rodillos para césped o terrenos de deporte.
@@ -424,6 +426,7 @@ Períodicos (diarios)
 (Así adicionada la mercancía anterior por el artículo 2° del decreto ejecutivo N° 22592 del 4 de octubre de 1993)
 Prótesis oculares.
 Toda clase de equipos médicos e instrumentos médico-quirúrgicos, requeridos por la Caja Costarricense de Seguro Social para la prestación de servicios.
-Revistas y otros impresos con un alto contenido de información a juicio del Ministerio de Educación.
+Revistas, diarios y publicaciones períodicase impresos de la partida SAC 4902, y folletos e impresos de la partida SAC 4901.
 (Así adicionada la mercancía anterior por el artículo 2° del decreto ejecutivo N° 22592 del 4 de octubre de 1993)
+(Así reformada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 22800 del 21 de diciembre de 1993)
 (Así reformado por el artículo 3° del decreto ejecutivo N° 21560 del 31 de agosto de 1992)
