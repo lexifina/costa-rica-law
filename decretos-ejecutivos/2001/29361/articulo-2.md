@@ -1,0 +1,5 @@
+Artículo 2º—Para que se modifique el artículo 22 y se lea en adelante como sigue:
+Artículo 22.—El Consejo Consultivo Nacional estará conformado de la siguiente forma:
+a) Por tres representantes del Ministerio de Trabajo y Seguridad Social con pleno derecho a voz y voto: el Viceministro de Trabajo y Seguridad Social, quien lo presidirá; el Director Nacional e Inspector General de Trabajo y un representante de la organización mayoritaria de los funcionarios de la Dirección Nacional de Inspección de Trabajo, si la hubiera, o bien por un representante de los funcionarios libremente elegido por ellos.
+b) Por tres representantes de las organizaciones de patronos y tres de las de los trabajadores, con pleno derecho a voz y a voto. Tales representantes serán escogidos por la Administración de las ternas que remitan para tal efecto las cámaras patronales y las organizaciones sindicales legalmente inscritos.
+c) Por tres Jefes de Oficinas Regionales, quienes tendrán derecho a voz pero no a voto y permanecerán en dichos puestos, de manera rotativa y por períodos de seis meses.

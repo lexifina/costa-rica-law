@@ -1,0 +1,3 @@
+Artículo 4º—Para que se agregue un inciso "f" al artículo 22 que dirá:
+"f) El Consejo Consultivo Nacional podrá realizar sus sesiones bajo la modalidad de consejo ampliado, a discreción de quien los presida. En tales sesiones podrán participar asesores, expertos, representantes de instituciones públicas y privadas, relacionados directa o indirectamente con aspectos socio-laborales que incidan o puedan incidir en la aplicabilidad de las normas de trabajo.
+"En todo caso, quienes no representan formalmente a los sectores que componen el Consejo, tal y como se define en los anteriores incisos del presente artículo, participarán con derecho a voz pero no a voto."
