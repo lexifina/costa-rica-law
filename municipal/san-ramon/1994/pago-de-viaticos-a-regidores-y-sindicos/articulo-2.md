@@ -1,0 +1,1 @@
+Artículo 2°—Los Regidores y Síndicos de la Municipalidad de San Ramón podrán gozar del beneficio del pago de gastos de transporte, hospedaje y alimentación bajo el control de asistencia diaria o cuando sean elegidos para representar a esta corporación en otra parte.

@@ -1,0 +1,1 @@
+Artículo 5°—Los Gastos de viáticos se pagarán mensualmente a los Regidores y Síndicos que lo ameriten bajo la tabla que para tal efecto emite la Contraloría General de la República y los artículos de este reglamento.
