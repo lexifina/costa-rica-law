@@ -1,0 +1,13 @@
+ARTICULO 16
+1.- Todo miembro de la Organización Internacional del Trabajo que
+ratifique el presente Convenio se obliga a aplicarlo en aquellas de sus
+colonias o posesiones o en aquellos de sus protectorados que no se
+gobiernen plenamente por sí mismos, a reserva de:
+a) Que las condiciones locales imposibiliten la aplicación de las
+disposiciones del Convenio.
+b) Que puedan introducirse en el Convenio las modificaciones
+necesarias para su adaptación a las condiciones locales.
+2.- Cada miembro deberá notificar a la Oficina Internacional del
+Trabajo su decisión en lo que concierne a cada una de sus colonias o
+posesiones o a cada uno de sus protectorados que no se gobiernen
+plenamente por sí mismos.
