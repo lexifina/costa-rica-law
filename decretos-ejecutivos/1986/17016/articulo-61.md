@@ -1,1 +1,0 @@
-Artículo 61.—Las actas notariales no indicadas en otra parte, devengarán honorarios de ¢10,00 por millar de la cuantía del acto o contrato a que se refieran; pero si fueren indeterminados o inestimables o no pudiere establecerse esa cuantía, los honorarios no serán inferiores a ¢ 1.000,00.

@@ -1,1 +1,0 @@
-Artículo 46.—Cuando con motivo de la prestación de un servicio, el profesional tuviere que salir de la población donde tuviere su oficina o ejerciere sus actividades, tendrá derecho a que se le reconozcan los gastos y el tiempo adicional en que incurra, los cuales no podrán ser inferiores a ¢1.000,00 por hora.

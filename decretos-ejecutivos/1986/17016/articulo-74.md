@@ -1,2 +1,0 @@
-Artículo 74.—El producto de este aumento ingresará al Colegio de Abogados, como contribución forzosa que los notarios hacen en favor de dicha corporación para su sostenimiento y para formar y acrecentar el fondo de pensiones y jubilaciones que alude el artículo 71.
-Los referidos aumentos se pagarán mediante el Timbre del Colegio de Abogados, agregándolos y cancelándolos en todo testimonio, documento o certificación que se expida.

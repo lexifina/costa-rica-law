@@ -1,2 +1,0 @@
-Artículo 64.—Por constitución, transformación o disolución de sociedades, asociaciones, fundaciones u otras personas jurídicas, los honorarios se cobrarán sobre el capital conforme con el artículo 55, más el recargo por complejidad, sin que puedan ser inferiores a ¢ 8.000,00. La prórroga del plazo devengara honorarios de la mitad del artículo 55.
-La modificación de estatutos y nombramientos, remoción o renuncia de funcionarios, devengará un mínimo de ¢3.000,00. Con este límite inferior al ¡aumento de capital pagará la tarifa que indica el artículo 55 anterior.

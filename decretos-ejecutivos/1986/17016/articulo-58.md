@@ -1,1 +1,0 @@
-Artículo 58.—Los actos o contratos complicados causarán un recargo del 50% de la tarifa respectiva si contuvieren estimación, pues de no tenerla devengarán un mínimo de ¢1.000,00. Si hubiere dudas sobre la complejidad, corresponde a la Junta Directiva del Colegio resolver el asunto.

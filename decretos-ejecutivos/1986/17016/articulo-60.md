@@ -1,1 +1,0 @@
-Artículo 60.—Si por cualquier motivo resultare el valor o estimación del acto, contrato o bienes, superior al indicado por las partes, el notario podrá cobrar la diferencia tanto de honorarios como de derechos, impuestos y demás expensas.

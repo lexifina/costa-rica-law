@@ -1,3 +1,0 @@
-Artículo 76.—Las oficinas a quienes corresponda la inscripción de los documentos sujetos al pago de timbres, no los inscribirán, hasta tanto no satisfaga el pago correspondiente.
-Los documentos no susceptibles de inscripción en dichos registros carecerán de efectos jurídicos mientras no re les agregue y cancele el timbre correspondiente. Cuando no se expida el primer testimonio o certificación, el timbre se agregará y cancelará al margen de la matriz.
-Cuando se expidan varios primeros testimonios se agregará y cancelará en cualquiera de ellos, haciendo constar en cuál se canceló. La cancelación ('el timbre la hará el profesional o en su defecto la oficina que debe recibir los documentos.

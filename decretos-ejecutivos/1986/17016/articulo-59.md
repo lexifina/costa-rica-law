@@ -1,1 +1,0 @@
-Artículo 59.—En caso de que las partes desistieren de otorgar el acto o contrato ya confeccionado en el protocolo, o si no se suscribiere por alguna o varias de ellas, el notario tendrá derecho a cobrar el 25% de los honorarios correspondientes a quien encargó la escritura.

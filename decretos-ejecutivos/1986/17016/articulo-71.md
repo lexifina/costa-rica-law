@@ -1,3 +1,0 @@
-Artículo 71.—Los referidos aumentos de honorarios de abogado, deberán pagarse mediante un timbre que emitirá el Colegio y que se denominará "Timbre del Colegio de Abogados", el cual deberá agregarse y cancelarse en e' escrito inicial o demanda, el escrito de contestación y en todos los actos o contratos de carácter privado.
-La cancelación del timbre la hará el profesional y en su defecto la oficina que debe recibirlos.
-El producto de este aumento ingresará al Colegio de Abogados como contribución forzosa de los profesionales en favor de dicha corporación, para su sostenimiento y para formar un fondo de pensiones y jubilaciones en beneficio de sus miembros.

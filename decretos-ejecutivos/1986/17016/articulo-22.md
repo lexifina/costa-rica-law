@@ -1,1 +1,0 @@
-Artículo 22.—Por la atención de procesos sobre faltas o contravenciones, los honorarios se determinarán tomando en cuenta el número y gravedad de las infracciones, la cantidad de trabajadores involucrados, la complejidad del aso, la recepción de la prueba y otros factores del juicio pero en ningún caso los honorarios podrán ser inferiores a ¢4.000,00.

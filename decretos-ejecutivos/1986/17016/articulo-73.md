@@ -1,1 +1,0 @@
-Artículo 73.—Se aumentan los honorarios de abogado y de notario de conformidad con la tarifa anterior en los documentos carta venta, o escrituras de compra venta de vehículos en atención a la cuantía de la negociación con sujeción al valor asignado por el Ministerio de Hacienda al vehículo y en ausencia de éste, al indicado en el documento.

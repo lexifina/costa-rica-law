@@ -1,1 +1,0 @@
-Artículo 24.—Por confección de reglamentos interiores de trabajo se fija una tarifa mínima de ¢25.000,00. El profesional deberá tomar en cuenta el numero de trabajadores de la empresa, la complejidad del reglamento y el tiempo empleado en él.
