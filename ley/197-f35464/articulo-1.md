@@ -1,0 +1,8 @@
+N° 197
+El Congreso Constitucional de la República de Costa Rica
+Decreta:
+Artículo único: Reformarse el artículo 60 de la ley N° 13 de 10 de enero de 1939 sobre terrenos baldíos, el cual se leerá así:
+“Artículo 60.- Queda a juicio del Poder Ejecutivo dar o no en arrendamiento los terrenos a que se refieren los artículos 6° a 11 de esta ley; pero el Estado se reserva el derecho de rescindir el arrendamiento en cualquier momento, en todo o en parte, con la debida indemnización por los cultivos y mejoras efectuados, si fuere el caso proteger aguas que surtan o puedan surtir poblaciones, de aprovechar fuerzas hidráulicas o por cualquier otra circunstancia que justifique esa acción del Estado.
+De dichos terrenos se exceptúan los comprendidos en la zona de dos mil metros a ambos lados de la Carretera Panamericana y del resto del trazado por construir que tengan robles; en tales terrenos queda prohibido el arrendamiento y cualquier clase de explotación de sus bosques. La zona a que se refiere la prohibición anterior declárese Parque Nacional.
+El Poder Ejecutivo, queda autorizado para expropiación los terrenos de dominio y posesión particulares comprendidos en dicha zona y que posean robledales, a fin de mantener íntegramente el referido Parque Nacional. Asimismo, se le faculta para crear las plazas de Guardabosque que juzgue necesarias para la debida vigilancia y conservación de dicho Parque Nacional, y al efecto se amplía el Presupuesto vigente de la Secretaría de Agricultura en la suma requerida.
+Casa Presidencial.-San José, a los veintinueve días del mes de agosto de mil novecientos cuarenta y cinco.
