@@ -1,0 +1,1 @@
+Artículo 7°—Las autorizaciones para producción y/o exportación de alcohol las otorgará el Ministro del rannot vía resolución administrativa. El plazo máximo de vigencia de la autorización para producir alcohol será de diez años, los cuales podrán ser prorrogados por períodos iguales o menores.

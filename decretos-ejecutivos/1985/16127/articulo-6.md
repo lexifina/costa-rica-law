@@ -1,0 +1,1 @@
+Artículo 6°—Si el dictamen final de la Dirección General de Industrias fuese negativo a los intereses del solicitante, este podrá interponer recurso jerárquico ante el Ministro dentro de un plazo de tres días hábiles, a partir de la notificación de lo resuelto por la Comisión.

@@ -1,0 +1,1 @@
+Artículo 12. — Prohíbese toda acción, práctica u operación que deteriore el ambiente natural, de manera que haga inservible sus elementos básicos; especialmente el aire, el agua y el suelo, para los usos a que están destinados.
