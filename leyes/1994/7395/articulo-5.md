@@ -1,4 +1,2 @@
-ARTICULO 5.- La cuota máxima que se adjudicará a las cooperativas u
-organizaciones sociales será de cien billetes de lotería por sorteo
-multiplicada por el número de asociados. Esta cuota no podrá sobrepasar el
-veinticinco por ciento del total de billetes emitidos.
+ARTICULO 5.- La cuota máxima que se adjudicará a las cooperativas u organizaciones sociales será de cien billetes de lotería por sorteo multiplicada por el número de asociados. Esta cuota no podrá sobrepasar el veinticinco por ciento del total de billetes emitidos.
+(La Sala Constitucional mediante resolución N° 4038 del 15 de julio de 1997, declaró que el presente articulo es constitucional, “…en tanto se interprete y aplique en el sentido de que si bien el limite del veinticinco por ciento allí establecido, lo es para todas las cooperativas, éste no puede afectar en forma alguna, los derechos adquiridos de éstas, ni de sus miembros, en relación con las cuotas de lotería adjudicadas con anterioridad a la primera publicación en el boletín judicial, del aviso que dio cuenta de la interposición de esta acción, esto es, del cinco de abril de mil novecientos noventa y cinco”.)
