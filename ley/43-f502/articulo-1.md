@@ -1,0 +1,4 @@
+N° 43
+EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+Artículo 1°- Interpretando los artículos 48 y 71 de la Ley de Seguros y las disposiciones con ellos conexas, DECLARA que las personas o Compañías que aseguren directamente contra incendio en el extranjero sus bienes sidos en Costa Rica, en cualquiera de las formas de que habla el artículo 71, están, conforme al artículo 48, sujetas a todas las prescripciones de dicha ley. En consecuencia, el aviso a que se refiere el artículo 71 se entiende que debe llenar todos los requisitos del artículo 56, y la Superintendencia de Seguros aplicará a dicho aviso y al seguro correspondiente todas las disposiciones relativas a permiso, inscripción, reducción del seguro, inspección, pago de derechos, etc. Se entiende, pues, que no podrá contratarse directamente en el extranjero ningún seguro contra incendios, sin la previa autorización de la Superintendencia de Seguros.
