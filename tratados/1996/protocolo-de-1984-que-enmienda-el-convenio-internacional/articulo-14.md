@@ -1,0 +1,5 @@
+Artículo 14
+Revisión y enmienda
+1.- La Organización podrá convocar una conferencia con objeto de revisar o enmendar el Convenio de Responsabilidad Civil, 1984.
+2.- La Organización convocará una conferencia de los Estados Contratantes con objeto de revisar o enmendar el Convenio de Responsabilidad Civil, 1984, a petición de no menos de un tercio de los Estados Contratantes.
+(Nota de Sinalevi: Mediante el artículo XII ter de las Disposiciones Transitorias del Convenio Internacional sobre la Responsabilidad Civil Nacida de Daños Debidos a Contaminación por Hidrocarburos, 1992, aprobado mediante Tratado Internacional N° 9673 “Convenio Internacional sobre la Responsabilidad Civil Nacida de Daños Debidos a Contaminación por Hidrocarburos, 1992, los artículo 12 a 18 del Protocolo de 1992 que enmienda el Convenio de Responsabilidad Civil, 1969, constituirán las cláusulas finales del presente Convenio. Las referencias que en el presente Convenio se hagan a los Estados Contratantes se entenderán como referencias a los Estados Contratantes del citado Protocolo.)

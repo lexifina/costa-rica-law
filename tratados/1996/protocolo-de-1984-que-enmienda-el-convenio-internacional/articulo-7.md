@@ -1,0 +1,11 @@
+Artículo 7
+El artículo VII del Convenio de Responsabilidad Civil, 1969, queda enmendado como a continuación se indica:
+1.- Se sustituyen las dos primeras frases del párrafo 2 por el texto siguiente:
+A cada buque se le expedirá un certificado que atestigüe que el seguro o la otra garantía financiera tienen plena vigencia de conformidad con lo dispuesto en el presente Convenio, tras haber establecido la autoridad competente de un Estado Contratante que se ha dado cumplimiento a lo prescrito en el párrafo 1. Por lo que respecta a un buque que esté matriculado en un Estado Contratante, extenderá el certificado o lo refrendará la autoridad competente del Estado de matrícula del buque; por lo que respecta a un buque que no esté matriculado en un Estado Contratante lo podrá expedir o refrendar la autoridad competente de cualquier Estado Contratante.
+2.- Se sustituye el párrafo 4 por el siguiente texto:
+4.- El certificado se llevará a bordo del buque, y se depositará una copia ante las autoridades que tenga a su cargo el registro de matrícula del buque o, si el buque no está matriculado en un Estado Contratante, ante las autoridades que hayan expedido o refrendado el certificado.
+3.- Se sustituye la primera frase del párrafo 7 por el siguiente texto:
+Los certificados expedidos o refrendados con la autoridad conferida por un Estado Contratante de conformidad con el párrafo 2 serán aceptados por los otros Estados Contratantes a los efectos del presente Convenio y serán considerados por los demás Estados Contratantes como dotados de la misma validez que los certificados expedidos o refrendados por ellos incluso si han sido expedidos o refrendados respecto de un buque no matriculado en un Estado Contratante.
+4.- En la segunda frase del párrafo 7, se sustituyen las palabras "con el Estados de matrícula de un buque" por las siguientes palabras: "con el Estado que haya expedido o refrendado el certificado."
+5.- Se sustituye la segunda frase del párrafo 8 por el siguiente texto:
+En tal caso el demandado podrá, aun cuando el propietario no tenga derecho a limitar su responsabilidad de conformidad con el artículo V, párrafo 2, valerse de los límites de responsabilidad que prescribe el artículo V, párrafo 1.

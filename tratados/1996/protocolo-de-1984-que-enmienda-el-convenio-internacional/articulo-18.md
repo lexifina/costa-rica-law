@@ -1,0 +1,6 @@
+Artículo 18
+Idiomas
+El presente Protocolo está redactado en un solo original en los idiomas árabe, chino, español, francés, inglés y ruso, y cada uno de los textos tendrá la misma autenticidad.
+Hecho en Londres el día veinticinco de mayo de mil novecientos ochenta y cuatro.
+En fe de lo cual, los infrascritos, debidamente autorizados por sus respectivos Gobiernos al efecto, firman el presente Protocolo.
+(Nota de Sinalevi: Mediante el artículo XII ter de las Disposiciones Transitorias del Convenio Internacional sobre la Responsabilidad Civil Nacida de Daños Debidos a Contaminación por Hidrocarburos, 1992, aprobado mediante Tratado Internacional N° 9673 “Convenio Internacional sobre la Responsabilidad Civil Nacida de Daños Debidos a Contaminación por Hidrocarburos, 1992, los artículo 12 a 18 del Protocolo de 1992 que enmienda el Convenio de Responsabilidad Civil, 1969, constituirán las cláusulas finales del presente Convenio. Las referencias que en el presente Convenio se hagan a los Estados Contratantes se entenderán como referencias a los Estados Contratantes del citado Protocolo.)

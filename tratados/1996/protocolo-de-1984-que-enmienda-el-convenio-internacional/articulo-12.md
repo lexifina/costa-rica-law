@@ -1,0 +1,13 @@
+CLAUSULAS FINALES
+Artículo 12
+Firma, ratificación, etc.
+1.- El presente Protocolo estará abierto a la firma de todos los Estados en Londres desde el 1 de diciembre de 1984 hasta el 30 de noviembre de 1985.
+2.- A reserva de lo dispuesto en el párrafo 4, todo Estado podrá constituirse en Parte en el presente Protocolo mediante:
+a) Firma o reserva de ratificación, aceptación o aprobación; seguida de ratificación, aceptación o aprobación, o
+b) Adhesión.
+3.- La ratificación, aceptación, aprobación o adhesión se efectuará mediante el depósito del oportuno instrumento oficial ante el Secretario General de la Organización.
+4.- Todo Estado Contratante del Convenio Internacional sobre la constitución de un Fondo Internacional de indemnización de daños debidos a contaminación por hidrocarburos, 1971, en adelante llamado el Convenio del Fondo, 1971, podrá ratificar, aceptar o aprobar el presente Protocolo o adherirse a este, siempre que al mismo tiempo ratifique, acepte o apruebe el Protocolo de 1984 que enmienda ese Convenio o se adhiera al mismo, a menos que denuncie el Convenio del Fondo, 1971, para que la denuncia surta efecto en la fecha en que, respecto de ese Estado, entre en
+vigor el presente Protocolo.
+5.- Un Estado que sea Parte en el presente Protocolo, pero que no sea Parte en el Convenio de Responsabilidad Civil, 1969, estará obligado por lo dispuesto en el Convenio de Responsabilidad Civil, 1969, en su forma enmendada por el presente Protocolo, en relación con los demás Estados Partes en el presente Protocolo, pero no estará obligado por lo dispuesto en el Convenio de Responsabilidad Civil, 1969, respecto de los Estados Partes en dicho Convenio.
+6.- Todo instrumento de ratificación, aceptación, aprobación o adhesión depositado después de la entrada en vigor de una enmienda al Convenio de Responsabilidad Civil, 1969, en su forma enmendada por el presente Protocolo, se considerará aplicable al Convenio en su forma enmendada por el presente Protocolo tal como el Convenio queda modificado por esa enmienda.
+(Nota de Sinalevi: Mediante el artículo XII ter de las Disposiciones Transitorias del Convenio Internacional sobre la Responsabilidad Civil Nacida de Daños Debidos a Contaminación por Hidrocarburos, 1992, aprobado mediante Tratado Internacional N° 9673 “Convenio Internacional sobre la Responsabilidad Civil Nacida de Daños Debidos a Contaminación por Hidrocarburos, 1992, los artículo 12 a 18 del Protocolo de 1992 que enmienda el Convenio de Responsabilidad Civil, 1969, constituirán las cláusulas finales del presente Convenio. Las referencias que en el presente Convenio se hagan a los Estados Contratantes se entenderán como referencias a los Estados Contratantes del citado Protocolo.)
