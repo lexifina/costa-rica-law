@@ -30,3 +30,4 @@ Reglamento a la Ley de Fomento de las Exportaciones
 | 15 | 1986-03-24 | Decreto Ejecutivo 16924 (1986-03-24) |
 | 16 | 1986-05-05 | Decreto Ejecutivo 16993 (1986-05-05) |
 | 17 | 1986-05-05 | Decreto Ejecutivo 16999 (1986-05-05) |
+| 18 | 1986-09-19 | Decreto Ejecutivo 17208 (1986-09-19) |
