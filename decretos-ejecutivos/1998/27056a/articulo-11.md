@@ -1,0 +1,3 @@
+11.—PROCEDIMIENTO PARA LA TOMA DE MUESTRA PARA CONSUMO NACIONAL
+11.1 En el Área que se realice el muestreo, se debe dejar una distancia aproximada entre 1 y 3 metros lineal como borde dependiendo del tamaño del área a muestrear, ya que se considera que en los bordes de la parcela, la aplicación de los agroquímicos puede no ser representativa de la práctica agrícola.
+11.2 Se debe definir la densidad del cultivo y una vez establecida ésta, se procederá a la recolección de las muestras seleccionando el método de muestreo de acuerdo con lo descrito en el Numeral 7, de una forma proporcional a la densidad del cultivo, hasta completar la cantidad recomendada para el cultivo muestreado, de acuerdo con el Numeral 10.
