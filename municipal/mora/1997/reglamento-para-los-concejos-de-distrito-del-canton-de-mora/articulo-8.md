@@ -1,0 +1,1 @@
+Artículo 8°—En el caso de que no haya Síndico Propietario ni Suplente, la Asamblea Distrital constitutiva será presidida por el representante del distrito ante el Concejo, si existieran dos representantes será potestad del Presidente Municipal.

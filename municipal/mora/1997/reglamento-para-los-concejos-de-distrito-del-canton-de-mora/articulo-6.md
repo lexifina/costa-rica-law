@@ -1,0 +1,1 @@
+Artículo 6°—Para nombrar los cuatro miembros restantes, después del Síndico, el Concejo Municipal invitará a los grupos organizados y constituidos legalmente, (asociaciones de desarrollo, juntas de educación, juntas administrativas, etc.) para que presenten dos candidatos cada uno, con voz y voto para formar una Asamblea Distrital constitutiva.

@@ -1,0 +1,1 @@
+Artículo 19.—Los Concejos de Distrito durarán en sus puestos hasta el 30 de abril de 1998. ya que la próxima administración debe nombrar los Concejos de Distrito que durarán en sus puestos dos años, pudiendo ser reelectos.
