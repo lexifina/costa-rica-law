@@ -1,0 +1,1 @@
+Artículo 17.-Los Abogados nombrados no podrán aceptar casos de litigio en contra de la Institución, el no cumplimiento de esta oposición hará que su nombramiento quede revocado automáticamente, como Abogado de la Institución. Facultará a la Municipalidad a suspender la entrega de nuevas operaciones.

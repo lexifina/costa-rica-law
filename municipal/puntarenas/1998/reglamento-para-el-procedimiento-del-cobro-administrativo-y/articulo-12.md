@@ -1,0 +1,1 @@
+Artículo 12.-La Oficina de Cobro administrativo y Judicial deberá rendir informes mensuales al Alcalde, sobre las gestiones realizadas de cobro ge las cuentas morosas y el estado en que se encuentran las acciones de cada gestión, a la fecha.

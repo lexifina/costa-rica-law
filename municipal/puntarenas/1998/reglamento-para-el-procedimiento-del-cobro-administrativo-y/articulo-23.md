@@ -1,0 +1,1 @@
+Artículo 23.-Los Abogados que por alguna razón personal deseen dejar de servir a la Institución, deberán comunicar esa designación con treinta días de antelación a la Administración y enviar la totalidad de los expedientes judiciales que tienen en su poder a la Oficina de Cobro Administrati vo.

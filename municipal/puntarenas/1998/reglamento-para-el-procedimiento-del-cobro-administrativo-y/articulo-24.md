@@ -1,0 +1,1 @@
+Artículo 24.-La Municipalidad podrá realizar los trámites respectivos contra el profesional en Derecho en aquellos casos en que se demuestre negligencia o impericia en la tramitación judicial de las cuentas a cobrar. Ante la Fiscalía del Colegio de Abogados. O si fuera el caso ante los Tribunales de Justicia.
