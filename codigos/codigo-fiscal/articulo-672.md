@@ -1,4 +1,2 @@
-Artículo 672- No podrá recaer el nombramiento de miembro del Tribunal
-de Cuentas, en personas ligadas entre sí con parentesco de
-consanguinidad o afinidad hasta el segundo grado inclusive.
-(Así reformado por ley Nº 13 de 21 de mayo de 1892).
+Artículo 672- No podrá recaer el nombramiento de miembro del Tribunal de Cuentas, en personas ligadas entre sí con parentesco de consanguinidad o afinidad hasta el segundo grado inclusive.
+(Nota de Sinalevi: Véase el artículo 2° de la Ley Nº 13 de 21 de mayo de 1892, el cual ordena derogar este artículo 672, salvo en cuanto prohíbe que el Contador Mayor sea pariente de los otros Contadores del Tribunal de Cuentas, por consanguinidad ó afinidad hasta el segundo grado inclusive.)
