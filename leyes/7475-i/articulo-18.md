@@ -1,0 +1,7 @@
+PARTE II
+ADMINISTRACION DEL ACUERDO, CONSULTAS Y SOLUCION DE DIFERENCIAS (1)
+* (1) El Término "diferencias" se usa en el GATT con el mismo sentido que en otros organismos se atribuye a la palabra "controversias". (Esta nota sólo concierne al texto en español)
+Artículo 18
+Instituciones
+1.- En virtud del presente Acuerdo se establece un Comité de Valoración en Aduana (denominado en el presente Acuerdo el "Comité") compuesto de representantes de cada uno de los Miembros. El Comité elegirá a su Presidente y se reunirá normalmente una vez al año, o cuando lo prevean las disposiciones pertinentes del presente Acuerdo, para dar a los Miembros la oportunidad de consultarse sobre cuestiones relacionadas con la administración del sistema de valoración en aduana por cualquiera de los Miembros en la medida en que esa administración pudiera afectar al funcionamiento del presente Acuerdo o a la consecución de sus objetivos y con el fin de desempeñar las demás funciones que le encomienden los Miembros. Los servicios de secretaría del Comité serán prestados por la Secretaría de la OMC.
+2.- Se establecerá un comité Técnico de Valoración en Aduana (denominado en el presente Acuerdo el "Comité Técnico"), bajo los auspicios del Consejo de Cooperación Aduanera (denominado en el presente Acuerdo "CCA"), que desempeñará las funciones enunciadas en el Anexo II del presente Acuerdo y actuará de conformidad con las normas de procedimiento contenidas en dicho Anexo.
