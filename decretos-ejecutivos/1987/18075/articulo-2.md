@@ -1,0 +1,1 @@
+Artículo 2°—Derógase el Decreto Ejecutivo N° 17489 MAG del 8 de abril de 1987 y téngase por modificado los artículos 10 y 3° de los decretos ejecutivos números 5386-A del 28 de octubre de 1975 y 17390-MAG-S del 15 de diciembre de 1986, respectivamente.
