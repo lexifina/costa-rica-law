@@ -2,5 +2,6 @@ Artículo 28.- El servidor de los cuerpos de policía adscritos a Seguridad Púb
 a) Asistir puntualmente a sus labores.
 b) Respetar las leyes que los rigen.
 c) Acatar las disposiciones de sus superiores, salvo aquellas que lo hagan incurrir en un delito.
-d) Presentarse a laborar con su uniforme completo y su apariencia personal sea decorosa y acorde con la función que desempeña.
+d) Sin distingo de grado, rango o cargo presentarse a laborar con su uniforme completo y su apariencia personal sea decorosa y acorde con la función que desempeña. No se podrá lucir bigote, patillas, ni barba. En cuanto al corte de cabello, éste deberá ser acorde con las normas de higiene y de buena presentación personal exigible a los miembros de los Cuerpos Policiales. Se exceptúa del cumplimiento de estas disposiciones al personal de aquellos Cuerpos Policiales especializados que por la naturaleza misma de la función que realizan en investigaciones detección y prevención de hechos ilícitos se debe proteger en la medida de lo posible su identificación como miembros de los Cuerpos Policiales a fin de proteger su integridad física y el resultado de la investigación previa autorización del superior jerárquico del Cuerpo Policial respectivo.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 26854 del 18 de noviembre de 1997)
 e) Suscribir con anterioridad al disfrute de una licencia de estudios o de adiestramiento, el contrato respectivo.
