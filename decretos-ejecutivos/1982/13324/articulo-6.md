@@ -1,0 +1,1 @@
+Artículo 6°.-El MAG podrá celebrar contratos y acuerdos con organizaciones nacionales e internacionales con el fin de procurar fondos para la protección, estudios científicos e infraestructurales de este Parque Nacional.

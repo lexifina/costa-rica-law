@@ -1,0 +1,1 @@
+Artículo 10.-El Servicio de Parques Nacionales deberá proceder a hacer gestiones, ante los organismos nacionales e internacionales competentes para que el Parque Internacional de la Amistad: Costa Rica-Panamá (Parque Nacional Cordillera de Talamanca) y las áreas silvestres aledañas pasen a formar parte de la red mundial de reservas de la biosfera.

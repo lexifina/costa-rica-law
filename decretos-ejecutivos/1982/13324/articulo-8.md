@@ -1,0 +1,1 @@
+Artículo 8°.-Dentro del Parque, a los ocupantes de terrenos sin inscribir, no amparados por la posesión decenal, pero con derecho de posesión, se les reconocerán únicamente las mejoras correspondientes.
