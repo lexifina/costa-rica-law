@@ -1,0 +1,1 @@
+Art.1°. -Modificase el párrafo 1° del artículo 10° de la ley N° XXIV de 28 de Julio último, como sigue: "Las que comprueben que durante un año por lo menos, después de haber sido inscritas, han estado retiradas en absoluto de la prostitución y dedicados trabajos honestos."
