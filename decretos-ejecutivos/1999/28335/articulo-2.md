@@ -1,0 +1,1 @@
+Artículo 2º—Para el óptimo desarrollo de este Proyecto, se insta atentamente a todas las dependencias del Gobierno, Ministerios e Instituciones afines, para que brinden toda la ayuda necesaria para el mejor desarrollo del mismo.
