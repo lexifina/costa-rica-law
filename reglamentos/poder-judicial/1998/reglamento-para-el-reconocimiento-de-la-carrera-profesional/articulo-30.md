@@ -1,0 +1,1 @@
+Artículo 31.—No percibirán lo correspondiente a horas instructor, docencia o publicaciones, quienes por la naturaleza de su trabajo, tales actividades se configuren como tareas propias del cargo, o bien, quienes reciban ya alguna retribución por éstos conceptos.

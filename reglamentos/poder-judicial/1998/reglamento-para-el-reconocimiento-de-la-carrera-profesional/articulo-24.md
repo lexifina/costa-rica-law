@@ -1,0 +1,1 @@
+Artículo 24.—La obtención de una calificación de servicios inferior a “MUY BUENO” o al criterio cuantitativo equivalente motivará la suspensión del disfrute de la anualidad profesional automática del período inmediato siguiente a la evaluación y de cualquier nuevo reajuste durante dicho período.

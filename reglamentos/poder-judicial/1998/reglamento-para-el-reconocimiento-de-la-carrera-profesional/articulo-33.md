@@ -1,0 +1,1 @@
+Artículo 34.—Los casos no previstos en este reglamento se resolverán conforme a las regulaciones y prácticas establecidas para la Carrera Profesional en el Sector Público, así como por las disposiciones pertinentes de la legislación laboral y social.

@@ -1,0 +1,1 @@
+Artículo 27.—Para ser tomada en cuenta la calificación de servicios de los profesionales deberá realizarse en los plazos establecidos en el reglamento de calificación de servicios y registrada en el Departamento de Personal. Se exceptúan los casos de fuerza mayor y debidamente justificados ante la Jefatura de dicho Departamento.

@@ -1,0 +1,1 @@
+Artículo 30.—El reconocimiento de los puntos asignados para libros y ensayos, si estos han sido escritos por más de un autor, se hará distribuyendo proporcionalmente el número de puntos correspondientes entre coautores, de acuerdo con las disposiciones de este reglamento.
