@@ -1,0 +1,1 @@
+Artículo 6°.-La Junta Nacional de Turismo e Inmigración podrá nombrar Subcomités en cualquier lugar de la República, para los fines que ella persigue, ya sea para dar representación a determinadas actividades o para formar las Juntas de Turismo fuera de la capital.
