@@ -1,0 +1,1 @@
+Artículo X.—La Junta Directiva del Consejo Regional que cuente con la Casa Sede, estará obligada a velar por el correcto uso de sus instalaciones, el mantenimiento y el buen estado de conservación. Para el control del buen funcionamiento de estos, la Junta Directiva del Colegio enviara periódicamente personal calificado para realizar inventarios de los mismos.

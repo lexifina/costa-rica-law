@@ -1,0 +1,1 @@
+Artículo IV.—Compete a la Junta Directiva del Colegio la suscripción y el pago de los Seguros del inmueble, así como los bienes muebles e inmuebles, impuestos territoriales, municipales, tazas con cargo al Fondo Financiero.

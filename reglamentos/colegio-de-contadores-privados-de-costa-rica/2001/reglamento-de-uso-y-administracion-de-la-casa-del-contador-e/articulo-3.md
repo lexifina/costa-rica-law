@@ -1,0 +1,1 @@
+Artículo III.—La utilización de la Casa del Contador será, prioritariamente para uso de las actividades propias de los contadores incorporados al Colegio y pertenecientes al Consejo Regional de la localidad, así como, para las actividades que programe la Junta Directiva del Colegio en coordinación con la Junta Directiva de los Consejos Regionales.

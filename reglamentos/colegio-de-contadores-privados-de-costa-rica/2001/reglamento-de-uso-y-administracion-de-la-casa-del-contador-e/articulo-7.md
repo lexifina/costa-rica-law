@@ -1,0 +1,1 @@
+Artículo VII.—La Junta Directiva del Consejo Regional deberá rendir al Fiscal de la Junta Directiva del Colegio un informe mensual, que detalle ingresos, egresos y actividades realizadas en su sede y mantener en sus archivos la documentación que respalde dichos movimientos y tenerlos a disposición tanto de la Auditoría Interna y Externa y de la Fiscalía.

@@ -1,0 +1,1 @@
+Artículo VI.—Corresponde a la Junta Directiva del Consejo Regional recomendar a la Junta Directiva del Colegio la contratación del personal que requiera, de acuerdo con sus necesidades para la atención, cuidado y mantenimiento de los bienes muebles e inmuebles en administración.

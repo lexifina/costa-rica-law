@@ -1,0 +1,1 @@
+Artículo IX.—De los ingresos que se generen por los diferentes eventos estos deben de ser depositados en una cuenta bancaria, que para tal efecto la Junta Directiva del Colegio abrirá para el control y distribución de los mismos. Delegando la Junta Directiva del Colegio en el Presidente y Tesorero del Consejo Regional el manejo y giro de estos dineros.

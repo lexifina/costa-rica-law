@@ -1,0 +1,1 @@
+Artículo VIII.—En los terrenos adquiridos aparte de lo indicado en el artículo 27 del Reglamento para el funcionamiento de los Consejos Regionales, se podrán construir aulas y cabinas que podrán alquilar para seminarios o eventos particulares.
