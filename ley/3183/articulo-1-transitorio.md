@@ -1,0 +1,2 @@
+Transitorio.- Las cédulas de identidad que no tengan su número en la forma antes dispuesta, quedarán sin ningún valor ni efecto y se tendrán por caducas, seis meses después de la vigencia de esta ley. Esa caducidad implica además la cancelación de la respectiva inscripción electoral.
+Un año después de la vigencia de esta ley el Registro Civil entregará a los partidos políticos inscritos en escala nacional que participaron en la elección de Presidente en las últimas elecciones, copia del Padrón Nacional Electoral en orden alfabético y por distritos electorales.
