@@ -1,0 +1,1 @@
+Artículo 10.—Sanciones aplicables. En materia de sanciones serán aplicables al tributo establecido en la presente Ley, las disposiciones del Código de Normas y Procedimientos Tributarios, Ley Nº 4755, de 3 de mayo de 1971, y sus reformas.

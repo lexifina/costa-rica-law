@@ -1,0 +1,3 @@
+Artículo 1º—Tributo, hecho generador y contribuyente. Créase un tributo único y definitivo por concepto del derecho de salida del territorio costarricense, que será cancelado por todas las personas que salgan del territorio nacional por vía aérea.
+El hecho generador del tributo creado en esta Ley ocurre en el momento en que cualquier persona salga del territorio nacional por vía aérea.
+Para estos efectos, se entenderá por salida del territorio nacional el momento en que las personas pasen los puestos oficiales de la Dirección General de Migración y Extranjería, en cada aeropuerto nacional, con el fin de salir del país por vía aérea.

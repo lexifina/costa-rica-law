@@ -1,3 +1,7 @@
+(Derogado)
+(NOTA: Esta norma ha sido TÁCITAMENTE DEROGADA por la
+Ley N° 8316 de 26 de setiembre del 2002, Ley reguladora de los
+derechos de salida del país)
 ARTICULO 1º.- Se establece un impuesto de cien colones (100,00) por
 cada pasaje aéreo internacional, emitido a título oneroso, que se expida
 tanto en el país como en el exterior, por parte de agencias de viaje o

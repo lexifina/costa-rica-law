@@ -1,0 +1,2 @@
+Transitorio II.—Durante un año a partir de la vigencia de esta Ley, los pasajeros nacionales pagarán, adicionalmente, un impuesto de diecisiete dólares estadounidenses (US$ 17,00) a favor del Gobierno Central; al término de dicho plazo, seguirán pagando únicamente el monto único de veintiséis dólares estadounidenses ($ 26,00).
+Los recursos generados por este incremento deberán dedicarse exclusivamente a obras de infraestructura vial.
