@@ -1,0 +1,1 @@
+Artículo 14. – La solicitud de inscripción como especialistas, acompañada por los atestados a que se refieren los artículos anteriores y por la constancia de entero de derechos correspondientes, deberá ser presentada por el interesado conocimiento de la Junta de Gobierno del Colegio de Médicos y Cirujanos la cual aprobará o improbará la inscripción en el Registro.

@@ -1,0 +1,1 @@
+Artículo 15. –Ningún miembro del Colegio o profesional autorizado para ejercer la Medicina o alguna de sus ramas, podrá anunciar al público la práctica de especialidades médico-quirúrgicas, sin estar registrado como especialista en el Colegio de Médicos y Cirujanos.

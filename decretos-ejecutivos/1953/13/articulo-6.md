@@ -1,0 +1,1 @@
+Artículo 6°-Para realizar la inscripción de las especialidades enumeradas en el artículo 4° se requiere de un tiempo de entrenamiento de cinco años para la primera y de tres años para las demás, siempre que se hayan hecho dos años de práctica de Cirugía General.

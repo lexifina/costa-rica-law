@@ -1,0 +1,1 @@
+Artículo. 18. En caso de que se solicite información sobre la práctica de especialidades la Junta de Gobierno sólo podrá mencionar a los profesionales que figuran inscritos en el Registro de Especialidades.

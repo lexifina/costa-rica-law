@@ -1,0 +1,3 @@
+Artículo 12. – Para realizar la inscripción de los profesionales médicos que se encuentran en el caso del inciso c) del artículo 1°, se requerirán los siguientes:
+a) Presentar la certificación por la que se demuestre la condición de jefe de servicio de un hospital clase A o B o que tiene análoga responsabilidad en otras organizaciones conectadas con la especialidad; y
+b) Presentar constancia de la Institución en donde ha prestado sus servicios por la que se demuestre que la duración de los mismos está acorde con el tiempo de entrenamiento señalado en los artículos 5°,6°,7°,8° y 9° de este Reglamento.
