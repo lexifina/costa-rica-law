@@ -1,0 +1,1 @@
+Art. 4. Los interesados en la introduccion de mercaderias por la via de Sarapiqui, presentarán por triplicado el manifiesto de ellas á la indicada Aduana la cual conservará un ejemplar, y pasando el segundo a la Intendencia general dirigirá el tercero al resguardo de Sarapiqui junto con el permiso de introduccion.

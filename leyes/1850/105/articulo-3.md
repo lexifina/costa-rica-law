@@ -1,0 +1,1 @@
+Art. 3. El Fiscal de hacienda hará siempre las veces de vista, sin que se pueda despachar mercadería alguna, si no es con asistencia de este empleado cuyas faltas, por enfermedad ò licencia, las llenara el Contador de la administracion principal.
