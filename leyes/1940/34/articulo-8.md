@@ -1,1 +1,1 @@
-Artículo 8°.-(Derogado por el artículo único de la ley N° 1030 del 21 de agosto de 1947)
+Artículo 8°.-(Derogado por el artículo único de la ley N° 1030 del 21 de agosto de 1947. Posteriormente por el artículo 13 de la ley N° 2547 del 17 de febrero de 1960, “Establece impuesto sobre el consumo de cigarrillos nacionales y extranjeros elaborados a máquina”, se vuelve a derogar este numeral)

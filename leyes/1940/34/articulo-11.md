@@ -1,1 +1,1 @@
-Artículo 11.-Las Aduanas no darán curso a ningún pedimento de desalmacenaje de cigarrillos, si de conformidad con esta ley no vienen timbrados o si en su defecto no se timbran antes de su salida de la Aduana.
+Artículo 11.- (Derogado por el artículo 13 de la ley N° 2547 del 17 de febrero de 1960, “Establece impuesto sobre el consumo de cigarrillos nacionales y extranjeros elaborados a máquina”)
