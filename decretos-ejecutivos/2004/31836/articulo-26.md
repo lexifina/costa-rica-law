@@ -1,0 +1,1 @@
+Artículo 26.—Respuesta a la proposición. La Administración concedente responderá fundadamente la proposición, para lo cual dispondrá de un plazo máximo e improrrogable de cuatro meses calendario contado a partir de la recepción de la propuesta completa.

@@ -1,0 +1,1 @@
+Artículo 3º—Cobertura. Serán susceptibles de tramitarse por el sistema de iniciativa privada regulado en este Reglamento, todas las obras públicas y las obras públicas con servicios públicos que, de conformidad con la Ley 7762 y sus reformas, puedan ser concesionadas al amparo de la citada Ley y que la Administración concedente considere de interés público que se concesionen.

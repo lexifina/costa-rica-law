@@ -1,0 +1,3 @@
+Artículo 13.—Notificaciones.
+13.1 Las comunicaciones o notificaciones que la Administración concedente realice serán dirigidas al lugar establecido por el proponente para notificaciones, mediante carta certificada, fax o cualquier otro medio que permita dejar constancia de su recepción. El lugar para notificaciones tendrá que estar debidamente localizado dentro del territorio nacional.
+13.2 Toda comunicación por escrito a la Administración concedente, para que sea acreditada, deberá dirigirse al órgano competente de la tramitación de los procedimientos de iniciativa privada, referido en el artículo 5 de este Reglamento.
