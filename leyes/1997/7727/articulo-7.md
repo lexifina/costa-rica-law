@@ -1,0 +1,7 @@
+ARTÍCULO 7.- Asistentes a la audiencia y acuerdo de partes
+Para que se efectúe la audiencia de conciliación judicial, será
+necesario que estén presentes el conciliador, las partes o sus apoderados,
+y sus abogados si las partes solicitan, expresamente, su asistencia.
+Si se produce un acuerdo entre las partes, total o parcial, el juez
+conciliador deberá homologarlo dentro de los tres días siguientes a la
+última audiencia de conciliación.

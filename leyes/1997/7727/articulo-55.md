@@ -1,0 +1,10 @@
+ARTÍCULO 55.- Conclusión de etapa probatoria
+Recibida la prueba y concluidas las audiencias, el tribunal declarará
+concluida la etapa probatoria y conferirá a las partes un término común,
+para que formulen sus conclusiones por escrito o fijará una audiencia para
+que lo hagan oralmente. En ambos casos, el tribunal podrá formular las
+preguntas que estime oportunas o pedir las aclaraciones que considere
+pertinentes.
+Si lo considerare necesario en razón de circunstancias excepcionales,
+el tribunal arbitral podrá decidir, de oficio o a petición de parte, que
+se reabran las audiencias, en cualquier momento antes de dictar el laudo.

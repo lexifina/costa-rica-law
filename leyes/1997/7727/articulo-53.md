@@ -1,0 +1,22 @@
+ARTÍCULO 53.- Nombramiento de peritos
+El tribunal podrá nombrar a uno o más peritos para que le informen,
+por escrito, sobre las materias concretas que determine. El tribunal
+fijará las atribuciones y los honorarios del perito y lo notificará a las
+partes.
+Una vez depositados los honorarios del perito ante el tribunal
+arbitral, las partes suministrarán a aquel toda la información necesaria
+y le presentarán, para su inspección, todos los documentos u objetos
+pertinentes que el perito les solicite. Cualquier diferencia entre una
+parte y el perito, acerca de la pertinencia de la información o
+presentación requeridas, se remitirá a la decisión del tribunal.
+Recibido el dictamen del perito, el tribunal entregará una copia a
+las partes, a quienes ofrecerá la oportunidad de expresar, por escrito, su
+opinión sobre el dictamen. Las partes tendrán el derecho de examinar
+cualquier documento que el perito haya invocado en su dictamen.
+Después de la entrega del dictamen y a solicitud de cualquiera de las
+partes, podrá interrogarse al perito en una audiencia oral, donde las
+partes tendrán la oportunidad de estar presentes y de interrogarlo. En esa
+audiencia, cualquiera de las partes podrá presentar testigos peritos para
+que, bajo juramento, presten declaración sobre los puntos controversiales.
+A dichos procedimientos se les aplicarán las disposiciones del artículo
+50.

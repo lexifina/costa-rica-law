@@ -1,0 +1,13 @@
+ARTÍCULO 40.- Lugar para la celebración del arbitraje
+A falta de acuerdo entre las partes sobre el lugar donde ha de
+celebrarse el arbitraje, este será determinado por el tribunal arbitral,
+tomando en cuenta las circunstancias propias de la controversia y la
+conveniencia de las partes.
+Sin perjuicio de lo establecido en el párrafo anterior y salvo
+acuerdo en contrario el tribunal arbitral podrá reunirse en cualquier sede
+que estime apropiada para celebrar deliberaciones entre sus miembros,
+recibir declaraciones de testigos, peritos o partes, examinar documentos,
+lugares, mercancías u otros bienes o, simplemente, para determinar el
+estado de las cosas. Las partes serán notificadas con suficiente
+antelación, para permitirles asistir a las inspecciones respectivas.
+El laudo se dictará en el lugar del arbitraje.

@@ -1,0 +1,6 @@
+ARTÍCULO 6.- Propuesta de audiencia y designación de jueces
+En cualquier etapa de un proceso judicial, el tribunal puede proponer
+una audiencia de conciliación. El conciliador podrá ser el mismo juez de
+la causa o un juez conciliador. La Corte Suprema de Justicia designará a
+los jueces conciliadores, que requiera el servicio y les determinará las
+facultades y responsabilidades.

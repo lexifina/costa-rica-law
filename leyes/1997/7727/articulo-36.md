@@ -1,0 +1,5 @@
+ARTÍCULO 36.- Sustitución de árbitro presidente
+En caso de sustitución del árbitro presidente con arreglo a las
+normas de la presente sección, se repetirán las audiencias celebradas con
+anterioridad. Si se sustituyere a cualquier otro árbitro, quedará a
+criterio del tribunal si se repiten esas audiencias.
