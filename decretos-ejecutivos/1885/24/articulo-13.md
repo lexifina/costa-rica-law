@@ -1,0 +1,1 @@
+Art. 13.-Se prohibe en absoluto á los socios que no se hallen en actual comisión, á los particulares y á los militares ó cirujanos oficiales, llevar el distintivo de la Sociedad, debiendo las autoridades de la misma poner en conocimiento de las civiles ó militares cualquier infracción del presente artículo.

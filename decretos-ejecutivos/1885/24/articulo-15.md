@@ -1,0 +1,1 @@
+Art. 15.-Ningún socio podrá percibir bajo pretexto alguno, gratificación ni sueldo del Gobierno. Dado en el Palacio Presidencial, á cuatro días del mes de abril de mil ochocientos ochenta y cinco. -BERNARDO Soto.-El Secretario de Estado en el despacho de Beneficencia,-José M. CASTRO.

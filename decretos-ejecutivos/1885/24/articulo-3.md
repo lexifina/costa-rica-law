@@ -1,0 +1,1 @@
+Art. 3°-Los socios· se dividen en activos y benefactores: activos, son los que prestan sus servicios en los hospitales militares, auxiliando á los cirujanos oficiales, y los que desempeñen cualquiera comisión en la ciudad; benefactores, los que sólo pecuniariamente contribuyen al sostenimiento de la sociedad.

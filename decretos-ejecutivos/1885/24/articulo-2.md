@@ -1,0 +1,1 @@
+Art. 2° -Esta sociedad la constituyen los individuos afiliados á ella. sean nacionales ó extranjeros, y sus miembros están exentos del servicio de las armas é independientes en absoluto de la Administración del ejército.
