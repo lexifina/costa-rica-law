@@ -1,0 +1,2 @@
+Transitorio VI.- Las actuales guarderías infantiles del Ministerio de Trabajo y Seguridad Social y cualquier otro centro infantil con servicios similares, pasarán a formar parte del Ministerio de Salud. Con este propósito, se buscará la fusión de los servicios de apoyo que brindan, para que éstos se presten de manera integrada con los centros de educación y nutrición y los centros infantiles de atención integral (CEN-CINAI).
+Presidencia de la República. San José, a los ocho días del mes de marzo de mil novecientos noventa.

@@ -1,0 +1,1 @@
+Transitorio IV.- Una vez que el proyecto de ley "Defensor de los Habitantes de la República", expediente legislativo No. 10.218, sea ley de la República, el personal de la Defensoría General de los Derechos Humanos a que se refiere la presente ley pasará, con todos los derechos adquiridos, a formar parte del "Defensor de los Habitantes de la República".
