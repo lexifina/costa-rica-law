@@ -1,0 +1,1 @@
+Artículo 12.—Existirá una guía de solicitud para los diferentes tipos de proyecto que se presente en el marco de este Fondo. Las guías serán elaboradas por el CONICIT y aprobados por la Comisión. Las modificaciones que se hagan al diseño de la guía no invalidarán las solicitudes presentadas con anterioridad a su introducción.

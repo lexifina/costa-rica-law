@@ -1,0 +1,1 @@
+Artículo 21.—Existirá una guía para la presentación de ofertas para los diferentes tipos de proyecto que se presente en el marco de este Fondo. La guía será elaborados por el CONICIT y aprobada por la Comisión. Las modificaciones que se hagan al diseño de la guía no invalidarán las ofertas presentadas con anterioridad a su introducción.

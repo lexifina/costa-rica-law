@@ -1,0 +1,1 @@
+Artículo 9°—El aporte del Estado a un proyecto consistirá en el otorgamiento de un apoyo financiero no reembolsable basado en una tabla de valoración de acuerdo a sus externalidades. Esta tabla de valoración será elaborada por el CONICIT y aprobada por la Comisión de Incentivos.

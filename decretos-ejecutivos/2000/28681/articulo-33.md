@@ -1,0 +1,1 @@
+Articulo 33.—El control y seguimiento de los proyectos serán realizados por el CONICIT, mediante visitas durante la ejecución de los proyectos y mediante la presentación de informes periódicos por parte del beneficiario.

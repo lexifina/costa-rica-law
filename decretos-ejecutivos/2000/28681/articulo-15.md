@@ -1,0 +1,1 @@
+Artículo 15.—En los casos que como resultado de la revisión preliminar, las solicitudes no se ajusten a la guía correspondiente, el CONICIT devolverá al interesado la solicitud a fin de que sea presentada nuevamente de acuerdo al artículo 13.

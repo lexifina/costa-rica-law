@@ -1,0 +1,1 @@
+Artículo 2°—El objetivo general del Financiamiento es promover la investigación y desarrollo tecnológico, para mejorar capacidad de gestión y competitividad en grupos empresariales en las PYMES costarricenses, a través de la innovación tecnológica como instrumento de desarrollo económico y social de las diferentes regiones del país.

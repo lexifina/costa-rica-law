@@ -1,0 +1,1 @@
+Artículo 17.—El CONICIT remitirá a la Comisión, los proyectos evaluados con los criterios correspondientes, a fin de someterlos a su resolución preliminar. Para tal efecto, se aplicará el artículo 11, 12 y concordantes del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 23.—Una vez remitida la oferta al CONICIT, este hará una revisión preliminar y en un plazo máximo de diez días calendario a partir de su recepción, si se considera necesario, comunicará al interesado la necesidad de ampliar la información.

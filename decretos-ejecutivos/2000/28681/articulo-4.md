@@ -1,0 +1,1 @@
+Artículo 4°—Los recursos del Fondo serán administrados por el Consejo Nacional para Investigaciones Científicas y Tecnológicas, en adelante el CONICIT, de acuerdo con las disposiciones de la ley No 7169 y sus reglamentos y las políticas en ciencia y tecnología que dicte el Ministerio de Ciencia y Tecnología.

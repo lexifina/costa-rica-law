@@ -1,0 +1,1 @@
+Artículo 3°—El Financiamiento es un instrumento de fomento al desarrollo tecnológico nacional que el Estado coloca por medio de la Comisión de Incentivos para la Ciencia y la Tecnología, adscrita al Ministerio de Ciencia y Tecnología, en adelante la Comisión.

@@ -1,0 +1,2 @@
+De los concursos y la presentación de proyectos por parte de la oferta de conocimientos y servicios científicos y tecnológicos
+Artículo 20.—El MICIT, con el apoyo del CONICIT, convocará a las unidades de investigación a presentar sus ofertas para participar mediante concurso en el desarrollo de los proyectos aprobados preliminarmente por la Comisión. No se recibirán ofertas en períodos no contemplados en las respectivas convocatorias.

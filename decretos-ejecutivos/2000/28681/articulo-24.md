@@ -1,0 +1,1 @@
+Artículo 24.—En los casos que como resultado de la revisión preliminar, las ofertas no se ajusten a la guía correspondiente, el CONICIT devolverá al interesado la solicitud a fin de que sea presentada nuevamente de acuerdo al articulo 21.

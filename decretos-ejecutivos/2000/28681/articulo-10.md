@@ -1,0 +1,1 @@
+Artículo 10.—Podrán concursar por los recursos, todas aquellas pequeñas y medianas empresas costarricenses o grupos empresariales que deseen mejorar su competitividad mediante la inversión en investigación y desarrollo tecnológico y que generen un impacto positivo sobre parte del sector, sectorial o multisectorial.

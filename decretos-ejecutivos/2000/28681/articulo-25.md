@@ -1,0 +1,1 @@
+Artículo 25.—Cada oferta será sometida a un proceso de evaluación para el cual el CONICIT podrá asesorarse por evaluadores externos expertos en el área tecnológica respectiva. Para tal efecto el CONICIT elaborará una tabla de honorarios para el pago de servicios de evaluación.

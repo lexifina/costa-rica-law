@@ -1,0 +1,1 @@
+Artículo 32.—Los plazos de ejecución de los proyectos será como máximo de 24 meses. Excepcionalmente, la Comisión podrá autorizar plazos mayores a estos, siempre que se justifique rigurosamente de acuerdo a las necesidades del proyecto.

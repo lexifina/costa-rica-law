@@ -1,0 +1,1 @@
+Artículo 8°—El Financiamiento tiene como meta apoyar los proyectos que contribuyan a mejorar los procesos de innovación y cambio tecnológico que contemplen la participación de agrupaciones empresariales, PYMES y Unidades de Investigación.
