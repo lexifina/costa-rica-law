@@ -1,0 +1,2 @@
+(NOTA DE SINALEVI: La Municipalidad de San José, mediante acuerdo firme N° 29, artículo IV, de la Sesión Ordinaria N° 82, celebrada por la Corporación Municipal del Cantón Central de San José el 1° de diciembre de 1994, acordó la aprobación de un nuevo Reglamento de Organización y Funciones de la Auditoría Interna de la Municipalidad de San José, publicado en La Gaceta N° 232 del 03 de diciembre de 1996, el cual puede consultarse en el Sistema).
+Artículo 1.-
