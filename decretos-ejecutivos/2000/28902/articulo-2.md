@@ -1,0 +1,3 @@
+Artículo 2
+1. Los nacionales de los Estados de ambas Partes Contratantes, portadores de pasaportes diplomáticos, de servicio u oficiales, miembros de las misiones diplomáticas u oficinas consulares con sede en el territorio del Estado de la otra Parte Contratante, pueden ingresar en el territorio de ese Estado y permanecer en él sin visado durante el período que dure su misión.
+2. Este privilegio se refiere también a los familiares de las personas mencionadas en el párrafo anterior, siempre que comparten con ellos el mismo lugar de residencia y sean portadores de pasaportes diplomáticos, de servicio u oficiales.

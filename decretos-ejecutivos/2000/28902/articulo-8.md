@@ -1,0 +1,2 @@
+Artículo 8
+Los nacionales del Estado de una de las Partes Contratantes que extravíen sus documentos de viaje válidos, indicados en el anexo del presente Acuerdo, en el territorio del Estado de la otra Parte Contratante podrán salir del Estado de permanencia con documentos de viaje de sustitución extendidos por la misión diplomática o la oficina consular de su Estado, sin la obligación de tener el visado excepto en el caso señalado en el párrafo segundo del artículo 1 del presente Acuerdo.

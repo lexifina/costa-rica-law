@@ -1,0 +1,2 @@
+Artículo 9
+Cada Parte Contratante puede suspender completa o parcialmente la ejecución del presente Acuerdo, por motivos de orden público, seguridad o protección de la salud excepto el compromiso que resulta del artículo 7 del presente Acuerdo. La interrupción o el restablecimiento de la ejecución de éste Acuerdo será comunicado inmediatamente a la otra Parte contratante por la vía diplomática y entrará en vigor el día de la entrega de esta comunicación a la otra Parte Contratante.
