@@ -1,0 +1,1 @@
+Artículo 3º- Las sentencias firmes dictadas contra el Estado o sus Instituciones por los Tribunales de Trabajo, quedan asimiladas a las sentencias de los Tribunales de lo contencioso-administrativo, para los efectos de los párrafos 2, 3 y 4 del artículo 78 de la Ley Reguladora de la Jurisdicción Contencioso Administrativa.
