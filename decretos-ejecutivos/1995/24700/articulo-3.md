@@ -1,0 +1,2 @@
+Artículo 3°—La atención al público dentro del Parque Nacional Volcán Irazú, se realizará de las 8,00 a.m. a las 3,30 p.m.
+Toda persona que desee ingresar al parque, deberá reportarse al puesto administrativo de este o aquel otro lugar que determine la Administración, procediendo a cancelar los cánones correspondientes. Deberá conservar durante su permanencia en esta área protegida, el tiquete de admisión: el cual podrá solicitarse en cualquier momento por parte de los funcionarios del Servicio de Parques Nacionales.

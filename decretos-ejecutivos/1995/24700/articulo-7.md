@@ -1,0 +1,1 @@
+Artículo 7°—El ingreso para obras de reparación, mantenimiento u otros, de las torres ubicadas dentro del Parque Nacional, podrá realizarse únicamente por personal de las empresas permisionarias, debidamente identificados. Estos deberán reportarse y presentar su identificación cada vez que acudan al Parque Nacional.
