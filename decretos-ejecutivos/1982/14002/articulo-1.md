@@ -23,10 +23,10 @@ Puesta en tanques de la comisión de mieles.. | | | 2.00
 | PRECIOS MAXIMOS DE VENTA
 | De productor a mayorista ¢ | De mayorista a detallista ¢ | De detallista a consumidor ¢
 Café | | |
-Tostado y molido con 12% de azúcar como mínimo: | | |
-Por 1 kilogramo.... | 34,65 | 35,70 | 40,00
-Por ½ kilogramo... | 17.33 | 17.85 | 20.00
-Por ¼ kilogramo... | 8.65 | 8.93 | 10.00
+Tostado y molido con 12% de azúcar como máximo: (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 14566 del 23 de mayo de 1983) | | |
+Por 1 kilogramo.... | 1 41,60 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14566 del 23 de mayo de 1983) | 43, 30 (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 14566 del 23 de mayo de 1983) | 48,00 (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 14566 del 23 de mayo de 1983)
+Por ½ kilogramo... | 20,80 (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 14566 del 23 de mayo de 1983) | 21,50 (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 14566 del 23 de mayo de 1983) | 24,00 (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 14566 del 23 de mayo de 1983)
+Por ¼ kilogramo... | 10.40 (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 14566 del 23 de mayo de 1983) | 10.75 (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 14566 del 23 de mayo de 1983) | 12.00 (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 14566 del 23 de mayo de 1983)
 | PRECIOS MAXIMOS DE VENTA
 | De productor a mayorista saco 50 kg ¢ | De mayorista a detallista saco 50kg ¢ | De detallista a consumidor kilo ¢
 Harinas | | |
