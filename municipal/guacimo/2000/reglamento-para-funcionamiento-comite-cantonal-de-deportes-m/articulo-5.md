@@ -11,3 +11,5 @@ i) Entrenador: Persona con conocimiento técnico en determinado deporte, encarga
 j) Equipo: Conjunto de personas que practican o ejecutan una misma disciplina deportiva avalado por el órgano superior competente.
 k) Arbitro: Persona capacitada con conocimientos técnicos reglamentarios suficientes para dirigir una confrontación deportiva determinada.
 l) Delegado: Representante de los organos establecidos en el presente Reglamento y responsable directo de la función que origino su nombramiento.
+*ll) La creación de un Concejo Asesor integrado por el Presidente de cada Comité de Distrito.
+*(Nota: Este inciso fue adicionado a este artículo, en forma expresa, mediante acuerdo tomado en la Sesión N° 33 de 27 de enero de 2004 y publicado en La Gaceta N° 34 de 18 de febrero de 2004, no obstante, como puede verse, no se trata de ningún concepto).
