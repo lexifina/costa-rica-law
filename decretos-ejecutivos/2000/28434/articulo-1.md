@@ -1,8 +1,8 @@
 PODER EJECUTIVO
 DECRETOS
 Nº 28434-MOPT
-EL PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES,
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES,
 De conformidad con lo dispuesto por los incisos 3), 10) y 18) del artículo 140 de la Constitución Política, el Convenio sobre Aviación Civil Internacional de 1944, aprobado por Costa Rica mediante la Ley Nº 877 del 4 de julio de 1947, el Título primero, Capítulos 1 y 2 de la Ley General de Aviación Civil Nº 5150 del 14 de mayo de 1973 y sus reformas.
 Considerando:
 1º—Que Costa Rica es país signatario del Convenio sobre Aviación Civil Internacional (Chicago, 1944) aprobado en su totalidad por la Asamblea Legislativa de conformidad con lo establecido por la Constitución Política de Costa Rica mediante Ley Nº 877 del 4 de julio de 1947.
@@ -1497,7 +1497,7 @@ a) Todos los aviones con motores de turbina, con una masa máxima certificada de
 b) El sistema de advertencia de proximidad al terreno que se requiere en este párrafo deberá proporcionar automáticamente a la tripulación de vuelo, mediante señales audibles que se podrán complementar con señales visuales, un aviso oportuno y distintivo del régimen de hundimiento, la proximidad al terreno, la pérdida de altitud después del despegue o de ida al aire, o una configuración incorrecta de aterrizaje y desvío por debajo de la trayectoria de planeo.
 Sección OPS.1668 Sistema anticolisión de a bordo (ACAS II) (Véase MEIC OPS 1668)
 a) El operador no operará un avión de turbina que tenga un peso máximo certificado de despegue de más de 15,000 Kg. y ningún avión turbojet, después del 1º de enero del año 2003, a no ser que esté equipado al menos con un sistema anticolisión ACAS II, el cual deberá funcionar de conformidad con las disposiciones pertinentes del Anexo 10, Volumen IV.
-(Así reformado por el artículo 1° del Decreto N° 29934- MOPT del 26 de octubre del 2001)
+(Así reformado por el artículo 1° del Decreto N° 29931- MOPT del 26 de octubre del 2001)
 Sección OPS.1670 Equipos de radar meteorológico de a bordo
 a) El operador no operará:
 1. Un avión presurizado; o
@@ -1739,8 +1739,7 @@ a) El operador no operará un avión con un peso máximo de despegue certificado
 b) Las hachas y "patas de chancho" que se sitúen en el compartimento de pasajeros no deben estar visibles a los mismos.
 Sección OPS.1800 Marcas de zonas de penetración
 El operador garantizará que si existen en un avión áreas designadas del fuselaje adecuadas para penetración por parte de personal de rescate en una emergencia, se marquen según se indica a continuación. Las marcas deben ser de color rojo o amarillo y si fuera necesario se deben perfilar en blanco para contrastar con el fondo. Si las marcas de las esquinas distan más de 2 metros entre sí, se deben insertar líneas intermedias de 9 cm x 3 cm para que las marcas adyacentes no disten más de 2 metros.
-Sección OPS.1800 Marcas de zonas de penetración
-Nota: Por lo extenso del contenido de esta tabla, véase La Gaceta N°50 del 10 de Marzo del 2000, página 31.
+Nota: Por lo extenso del contenido de esta tabla, véase la Gaceta N°50 del 10 de Marzo del 2000, página 31.
 Sección OPS.1805 Medios para la evacuación de emergencia.
 a) El operador no debe operar un avión con alturas de los marcos de las salidas de emergencia pasajeros:
 1. Que estén a más de 1,83 metros (6 pies) desde el suelo, cuando el avión está en tierra y el tren de aterrizaje está extendido; o
@@ -1881,6 +1880,10 @@ a) A los efectos del mantenimiento, del sistema de calidad del operador, que se 
 2. Seguimiento para asegurar que todo el mantenimiento contratado se está llevando a cabo de acuerdo con el contrato; y
 3. Seguimiento del continuo cumplimiento con los requisitos de esta Capítulo.
 b) Cuando el operador esté aprobado de acuerdo con el RAC 145, el sistema de calidad se podrá combinar con el que se requiere en RAC 145.
+Sección OPS.1903 Junta de Revisión de Mantenimiento del Operador
+a) Los explotadores costarricenses de aeronaves de categoría de transporte, deberán tener una Junta de revisión de mantenimiento para dar seguimiento y evaluar el programa de mantenimiento, estableciendo un sistema de análisis y supervisión continua del funcionamiento y eficiencia del programa de mantenimiento, de tal forma que pueda corregir cualquier deficiencia del programa y proponer los cambios y ajustes al mismo.
+b) La Dirección General de Aviación Civil participará regularmente, a través de un representante de Ingeniería y Aeronavegabilidad para atender el proceso de evaluación de la Junta de mantenimiento.
+(Así reformado mediante Decreto Ejecutivo N° 30061 de 7 de diciembre del 2001)
 Sección OPS.1905 Manual de Control de Mantenimiento del Operador (Véase MEI OPS 1905)
 a) El operador proporcionará para uso y orientación del personal de Mantenimiento y el operacional en cuestión, un Manual de Control de Mantenimiento, el cual debe enmendarse según sea necesario para mantener actualizada la información que contiene.
 b) El Operador someterá a aprobación por parte de la DGAC o por parte del estado de matrícula si existe un convenio entre estados que establezca funciones y obligaciones para el mantenimiento (Estados equivalentes), el Manual de Control de Mantenimiento e incorporará en este los textos obligatorios que la DGAC o el estado de matrícula puedan exigir, suministrando copias del mismo a ambos.
@@ -2220,7 +2223,7 @@ a) El operador asegurará que cada miembro de la tripulación de cabina:
 2. Haya superado un examen o valoración médica inicial y se haya encontrado médicamente apto para cumplir con las obligaciones especificadas en el Manual de operaciones. (Véase MAC OPS 1995 a) 2); y 3).
 3. Permanezca médicamente apto para cumplir con las obligaciones que se especifiquen en el Manual de operaciones.
 b) El operador asegurará que cada miembro de la tripulación de cabina sea competente para cumplir con sus obligaciones de acuerdo con los procedimientos que se especifican en el Manual de operaciones.
-Sección OPS.11000 (Jefe de Cabina)
+Sección OPS.11000 Jefe de Cabina
 a) El operador nombrará un miembro de la tripulación de cabina como jefe cuando la tripulación de cabina esté compuesta por más de un miembro.
 b) El miembro jefe de cabina será responsable ante el piloto al mando de la dirección y coordinación del/los procedimientos normales y de emergencia de la cabina especificados en el Manual de operaciones.
 c) Cuando la Sección OPS.1990 requiere que se lleve más de un miembro de la tripulación de cabina, el operador no designará para el puesto de jefe, a no ser que, esa persona tenga como mínimo un año de experiencia como miembro operativo de la tripulación de cabina y haya superado un curso adecuado. Véase MEI OPS 11000 a).
