@@ -1,2 +1,0 @@
-De la Administración de Grandes contribuyentes
-Artículo 20.- Objetivo. Mantener un contacto eficaz, eficiente y económico de los contribuyente y potenciales contribuyente de mayor significación fiscal a fin de comprobar y mejorar el grado de cumplimiento de las obligaciones tributarias, además de cumplir con los lineamientos establecidos por las Subdirecciones de Gestión, Fiscalización, Recaudación e informática.

@@ -1,1 +1,0 @@
-Artículo 2°.- La Dirección General de la Tributación Directa es la dependencia del Ministerio de Hacienda, a cuyo cargo se encuentra la administración y fiscalización de los tributos que por ley le han sido asignados.
