@@ -1,0 +1,1 @@
+Artículo 81.—El Comité Cantonal, deberá comunicar al ICODER los nombramientos de los Comités comunales, las juntas Administradoras de instalaciones y Comités Administradores de instalaciones de instituciones educativas.

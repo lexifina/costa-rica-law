@@ -1,0 +1,1 @@
+Artículo 66.—Los tesoreros de los Comités comunales deberán presentar cuando lo requieran, al Comité Cantonal el libro de tesorería adjuntando las facturas, comprobantes, recibos, entre otros, para su respectivo auditoraje, si éste no es presentado, el Comité Cantonal de Deportes y Recreación de Esparza paralizará cualquier gestión económica de esa entidad.

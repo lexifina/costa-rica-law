@@ -1,0 +1,1 @@
+Artículo 65.—Todos los organismos deberán llevar un libro de tesorería, el cual será suministrado por el Comité Cantonal de Deportes y Recreación. Los talonarios de recibos de dinero, los cuales también suministrará el Comité Cantonal de Deportes y Recreación de Esparza, deberán usarse en todas las gestiones de cobro.

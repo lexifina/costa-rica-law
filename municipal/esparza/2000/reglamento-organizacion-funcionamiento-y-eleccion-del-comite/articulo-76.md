@@ -1,0 +1,2 @@
+Artículo 76.—Las cuotas por alquiler de las instalaciones serán reguladas y aprobadas por el Comité Cantonal. Todos los ingresos que deparen las instalaciones deportivas deben destinarse para la administración y mantenimiento de las mismas.
+Los miembros del Comité Cantonal de Deportes y Recreación y del Concejo Municipal, están exentos del pago de cuotas de ingreso. En cualquier actividad deportiva que realice alguno de sus afiliados ya que estos estarán presentes en funciones de fiscalizar y colaborar en dichas actividades.

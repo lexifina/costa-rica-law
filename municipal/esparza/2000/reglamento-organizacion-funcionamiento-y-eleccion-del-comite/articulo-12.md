@@ -1,0 +1,1 @@
+Artículo 12.—Además de los derechos que la ley señala, el Comité Cantonal ejercerá el control sobre sus órganos y afiliados con el fin de vigilar las políticas a seguir en materia de deportes y recreación de manera tal que le permitan cumplir con su gestión de fomentar, administración y dirigir el deporte con miras a cumplir sus objetivos y propósitos.

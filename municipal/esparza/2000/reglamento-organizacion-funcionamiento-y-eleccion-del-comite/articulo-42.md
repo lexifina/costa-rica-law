@@ -1,0 +1,1 @@
+Artículo 42.—Cuando se produzca alguna de las causales del articulo anterior, por miembros del Comité Cantonal, la Junta Directiva comunicará por escrito al Concejo, fundamentando los hechos. La Municipalidad tomará las acciones administrativas que correspondan a efecto de proceder a tramitar la destitución y nombramiento del nuevo miembro conforme lo señala este Reglamento.

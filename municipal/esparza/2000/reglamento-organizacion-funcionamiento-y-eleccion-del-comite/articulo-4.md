@@ -1,0 +1,1 @@
+Artículo 4°—El domicilio legal del Comité Cantonal de Deportes y recreación, será la Ciudad del Espíritu Santo del Cantón de Esparza, de la provincia de Puntarenas, su sede puede variar temporalmente para actividades especiales.

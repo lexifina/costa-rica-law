@@ -1,0 +1,1 @@
+Artículo 50.—Las actas aprobadas, deberán llevar obligatoriamente las firmas del Presidente y del Secretario del Comité. Serán foliadas y selladas por la Secretaría del Concejo, antes de ser usado el respectivo libro.

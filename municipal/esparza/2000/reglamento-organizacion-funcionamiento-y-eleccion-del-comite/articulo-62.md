@@ -1,0 +1,1 @@
+Artículo 62.—El Comité Cantonal someterá sus presupuestos a conocimiento y aprobación de la Municipalidad de Esparza, sujeto a las disposiciones que dicte la Contraloría General de la República y conforme a los programas que su incluyen en el plan de trabajo anual.

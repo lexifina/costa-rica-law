@@ -1,0 +1,1 @@
+Artículo 9°—Cualquier Organización Deportiva que desee organizar algún torneo dentro del Cantón de Esparza, deberá contar con el visto bueno del Comité Cantonal, quien vigilará que se cumplan por lo menos las mínimas medidas de seguridad, en bien tanto del público, como para el atleta.

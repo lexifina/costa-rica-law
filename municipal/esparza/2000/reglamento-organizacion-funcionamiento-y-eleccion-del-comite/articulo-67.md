@@ -1,0 +1,1 @@
+Artículo 67.—Queda terminantemente prohibido el préstamo personal de dineros provenientes de los ingresos de actividades deportivas o recreativas, so pena de expulsión por incumplimiento de esta disposición, además que se debe reintegrar el dinero por parte de los responsables.

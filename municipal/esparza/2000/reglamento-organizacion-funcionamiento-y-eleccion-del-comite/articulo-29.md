@@ -1,0 +1,1 @@
+Articulo 29.—Son además obligaciones y facultades de los Comités comunales los que determine el Comité Cantonal, que no vayan en contraposición del presente Reglamento o de las leyes y decretos vigentes.

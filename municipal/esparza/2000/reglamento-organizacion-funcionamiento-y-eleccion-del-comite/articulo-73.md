@@ -1,0 +1,1 @@
+Artículo 73.—Todo evento o actividad no deportiva tales como ferias, bingos, fiestas, reuniones, etc. dentro de las instalaciones, se debe obtener el permiso ante la Municipalidad con el respectivo aval del Comité Cantonal; quien podrá concederlo con la garantía de que la instalación quedará en perfectas condiciones después del evento.

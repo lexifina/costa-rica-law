@@ -1,0 +1,1 @@
+Artículo 13.—Los Comités comunales entregarán al Comité Cantonal de Deportes y Recreación de Esparza en la primera semana del mes de junio de cada año los planes de trabajo anual, con su respectivo presupuesto, a la vez deberán presentar un informe de resultados de su gestión del año anterior.
