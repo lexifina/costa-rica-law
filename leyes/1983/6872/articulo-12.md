@@ -1,6 +1,6 @@
-Artículo 12.- Todo servidor público obligado a declarar sus bienes,
-deberá hacerlo ante la Contraloría General de la República dentro de los
-veinte días siguientes a aquél en que asuma el cargo. Para efectos de
+Artículo 12.- Todo servidor público a declarar sus bienes, deberá
+hacerlo ante la Contraloría General de la República dentro de los veinte
+días siguientes a aquél en que asuma el cargo. Para efectos de
 actualización del registro, también deberá presentar, en la segunda
 quincena del mes de mayo, una declaración anual en la fórmula
 correspondiente, en la que consten los bienes adquiridos durante el
