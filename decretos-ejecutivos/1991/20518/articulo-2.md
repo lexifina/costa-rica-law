@@ -1,0 +1,1 @@
+Artículo 2°– Se declara a las playas Carbón y Ventanas, incluyendo una franja de terreno de 75 metros, contada a partir de la zona pública, como zona protectora denominada Las Baulas de Guanacaste. Todos los desarrollos habitacionales y de cualquier otra índole que se hagan en esta zona, deberán contar con la aprobación del Ministerio de Recursos Naturales, Energía y Minas.

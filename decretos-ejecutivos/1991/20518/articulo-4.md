@@ -1,0 +1,1 @@
+Artículo 4°– El Poder Ejecutivo incluirá en el Presupuesto Ordinario de 1992, fondos para adquirir tierras en este parque nacional. Además podrá utilizarse para este fin, los bonos provenientes del inciso 2), artículo 32 de la ley N° 7216 del 19 de diciembre de 1990.

@@ -1,0 +1,1 @@
+Artículo 3°– Dentro de la demarcación del Parque Nacional, regirán las disposiciones y prohibiciones establecidas para los parques nacionales en la ley N° 6084 del 24 de agosto de 1977 y dentro de la demarcación de la zona protectora regirán las disposiciones de la ley N° 7174 del 28 de junio de 1990.
