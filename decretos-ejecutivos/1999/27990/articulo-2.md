@@ -1,0 +1,1 @@
+Artículo 2°-La Compañía Nacional de Teatro contará con un Consejo Asesor integrado por un representante del Ministerio de Cultura, Juventud y Deportes y cuatro miembros de libre nombramiento del Ministro, que durarán en su cargo dos años y podrán ser reelectos. Los nombramientos que se realicen para llenar vacantes lo serán por el resto del período.
