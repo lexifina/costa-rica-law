@@ -1,0 +1,2 @@
+Artículo 4°.-Son absolutamente incompatibles los cargos de Jefe del Ministerio Público, Promotor Fiscal, Fiscal de Corte y Agente Fiscal con todo otro cargo o empleo públicos, excepto el de profesor de alguna escuela o facultad cuando el nombramiento para el mismo no deba hacerlo el Poder Ejecutivo.
+Se tendrá por expresada la voluntad de apartarse del cargo del Ministerio Público por el mero hecho de aceptar otro incompatible.

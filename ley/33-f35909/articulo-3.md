@@ -1,0 +1,1 @@
+Artículo 3°.-Toda solicitud dirigida al Poder Ejecutivo por los funcionarios del Ministerio Público o sus subalternos, para que sea atendida, deber ser elevada por conducto del Jefe del ramo, quien se abstendrá de darle curso si no estuviere en debida forma.

@@ -1,0 +1,1 @@
+Artículo 35.-En los cantones en donde no resida Agente Fiscal y haya Alcaldía, serán Procuradores Fiscales, por Ministerio de la Ley, los Jefes Políticos en los casos en que se necesite la intervención del Ministerio Público, con arreglo a las leyes civiles y de procedimientos.
