@@ -16,3 +16,4 @@ Reglamento para la Formación y Control del Sistema Sorteante de Venta de Bienes
 | 1 | 1988-10-14 | la propia norma |
 | 2 | 1989-10-05 | Decreto Ejecutivo 19257 (1989-10-05) |
 | 3 | 1990-08-13 | Decreto Ejecutivo 19860 (1990-08-13) |
+| 4 | 1995-04-18 | SINALEVI (sin norma nombrada) |
