@@ -1,0 +1,4 @@
+SECCIÓN III
+Del objetivo del Reglamento
+Artículo 4º—Del objeto. El presente Reglamento tiene por objeto establecer las regulaciones del otorgamiento de subsidios para personas con discapacidad en condición de pobreza, abandono y riesgo social, para los programas financiados con fondos del FODESAF y el programa financiado con fondos provenientes de la Ley Nº 7972.
+Estos subsidios serán otorgados, y administrados por el Consejo Nacional de Rehabilitación y Educación Especial, a través de sus propios servicios o de organizaciones no gubernamentales, que funcionarán como canalizadoras de los recursos, con el propósito de contribuir con el mejoramiento de la calidad de vida de las personas con discapacidad y su autonomía personal, así como para proporcionarles oportunidades equiparables de acceso al desarrollo.

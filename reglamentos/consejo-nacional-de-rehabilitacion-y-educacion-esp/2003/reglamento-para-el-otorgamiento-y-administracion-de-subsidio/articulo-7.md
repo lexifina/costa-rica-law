@@ -1,0 +1,3 @@
+SECCIÓN VI
+De los subsidios financiados mediante la Ley Nº 7972
+Artículo 7º—Definición de subsidio. Se entenderá por subsidios los diferentes apoyos económicos que puedan ser otorgados, parcial o totalmente, en relación con el costo del servicio requerido por las personas con discapacidad, mayores de 18 años y menores de 65 años, que presenten condición de abandono o riesgo social. En dichos servicios los subsidios irán dirigidos a cubrir los costos de albergue, atención, tratamiento o rehabilitación. Lo anterior, acorde con el criterio técnico de un funcionario o funcionaria del Consejo, que fundamente los servicios de apoyo requeridos por el usuario, según se estipula en artículo 1º del presente Reglamento.

@@ -1,0 +1,5 @@
+Artículo 13.—Procedimiento para el trámite de ampliación de subsidios otorgados con fondos provenientes de la Ley Nº 7972. Para el trámite de la solicitud de ampliación en el caso del Programa de Servicios de Convivencia Familiar se seguirá el siguiente procedimiento:
+- El funcionario o la funcionaria del Consejo será quien reciba o elabore la solicitud de ampliación y analizará la información y aprobará o no el otorgamiento del subsidio solicitado.
+- En caso de que la solicitud de ampliación del subsidio fuera aprobada, el funcionario del Consejo enviará la solicitud original al Departamento Administrativo, para la reserva presupuestaria y emisión de pago con una copia de la solicitud para archivo.
+- La Coordinación del Programa de Convivencia Familiar supervisará que los funcionarios y las funcionarias responsables anexen al expediente personal del usuario la solicitud de ampliación.
+- Funcionarios y funcionarias, del Servicio de Convivencia Familiar del Consejo verificarán periódicamente el estado de los expedientes y su contenido.
