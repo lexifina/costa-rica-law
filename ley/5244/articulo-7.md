@@ -1,0 +1,1 @@
+Artículo 7º.- Será función específica de la Dirección el adquirir obras de arte para que formen parte del patrimonio público y eventualmente figuren en la colección artística del Museo Nacional. Igualmente, la Dirección tendrá funciones consultivas respecto a las otras instituciones del Estado que se propongan adquirir obras artísticas.

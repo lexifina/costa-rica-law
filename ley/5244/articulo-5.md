@@ -1,0 +1,1 @@
+Artículo 5º.- Las obras que la Dirección premie mediante concursos, festivales y otras actividades, serán publicadas por el Departamento de Publicaciones del Ministerio; y si se tratare de obras teatrales, serán puestas en escena por la Compañía Nacional de Teatro.

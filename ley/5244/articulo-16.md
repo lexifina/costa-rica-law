@@ -1,0 +1,1 @@
+Artículo 16.- Las estaciones radiodifusoras y los canales de televisión estarán obligados a dar a la Dirección General de Artes y Letras, sin costo alguno espacios iguales a los que por disposiciones legales anteriores dan al Ministerio de Educación Pública.

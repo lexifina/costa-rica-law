@@ -1,0 +1,1 @@
+Artículo 3º.- La Dirección podrá organizar presentaciones y giras de espectáculos artísticos, en cooperación con el Ministerio de Cultura, Juventud y Deportes, y convenir con éste que las recaudaciones respectivas queden total y parcialmente a beneficio de la Dirección.
