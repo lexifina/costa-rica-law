@@ -14,3 +14,4 @@ MESCAZU: Junta Administrativa Cementerio San Antonio Escazú
 | --- | --- | --- |
 | 1 | 1986-10-08 | la propia norma |
 | 2 | 2002-04-23 | Reglamento municipal 4 (2002-04-27) |
+| 3 | 2002-04-23 | Ley 8 |
