@@ -1,0 +1,1 @@
+Artículo 4°—La oficina de Patentes determina si la solicitud puede ser formalmente recibida por cumplir con los requisitos legales y reglamentarios. Sin embargo, cuando la determinación fuese negativa, el solicitante podrá recurrir ante el Concejo, de acuerdo con lo dispuesto en el artículo 161 del Código Municipal.

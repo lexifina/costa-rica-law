@@ -1,0 +1,1 @@
+Artículo 7°—Será también requisito la autorización escrita del propietario del local en que se va a ejercer la actividad, la cual deberá venir debidamente autenticada, y en todo caso, acompañada por escritura y/o certificación del Registro Público.

@@ -1,0 +1,1 @@
+Artículo 28.—Compete a la Oficina de Patentes Municipales la tramitación y resolución de todo lo relacionado con la Ley de Impuestos de Patentes Municipales del cantón de Nicoya y con este reglamento, así como velar por el fiel cumplimento de dichas normas y de cualquier otro cuerpo normativo que regule la materia.

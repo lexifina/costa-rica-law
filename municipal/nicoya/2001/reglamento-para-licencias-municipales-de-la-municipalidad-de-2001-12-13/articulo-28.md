@@ -1,0 +1,2 @@
+Artículo 29.—La Municipalidad contará con un cuerpo de inspectores municipales debidamente identificados, quienes realizarán las visitas a aquellos locales que soliciten licencia para actividades comerciales así como de aquellos que se encuentran ya funcionando.
+Este cuerpo de inspectores estará bajo la dirección del Jefe de la Oficina de Patentes Municipales quien fiscalizará el cumplimento debido de sus funciones.
