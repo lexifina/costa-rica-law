@@ -1,0 +1,1 @@
+Articulo 32.—Al vendedor que se le compruebe haber consignado datos falsos en su solicitud con el fin de conseguir en forma fraudulenta su permiso, se le aplicará la sanción consignada en el Inciso c del Articulo 25.

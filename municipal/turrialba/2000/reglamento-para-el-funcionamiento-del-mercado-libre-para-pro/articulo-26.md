@@ -1,0 +1,1 @@
+Articulo 26.—En caso de que a un agroproductor o artesano le sea suspendido su permiso, su espacio no podrá ser ocupado por él ni por persona interpuesta hasta tanto no se obtenga el permiso para participar en la feria nuevamente. La persona que ocupe el espacio, lo hará en forma provisional, mientras dure la sanción y no podrá a decir derecho alguno.
