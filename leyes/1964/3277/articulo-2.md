@@ -1,0 +1,1 @@
+Artículo 2°—Las responsabilidades a que se refiere el párrafo 18 (B) de la Sección II del Contrato que por esta ley se aprueba, serán únicamente las de carácter civil, asumiéndolas el Gobierno de Costa Rica en cuanto sean consecuencia de daños personales o a la propiedad que pudieran producirse con ocasión de aquellas operaciones necesarias a los trabajos de la Carretera.
