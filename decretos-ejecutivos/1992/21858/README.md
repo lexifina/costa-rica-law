@@ -14,3 +14,4 @@ Reglamento para la Evaluación y Aprobación de Productos y/o Subproductos de Or
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-03-11 | la propia norma |
+| 2 | 1998-07-29 | Decreto Ejecutivo 27200 (1998-07-29) |
