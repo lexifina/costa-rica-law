@@ -1,2 +1,2 @@
-Artículo 238
-No son susceptibles de embargo por ningún motivo, ni de venta, cesión o cualquiera otra forma de traspaso, las jubilaciones y pensiones, ni el fondo establecido para cubrirlas.
+Artículo 238.- Se autoriza al Consejo para que, con los ingresos del Fondo de Jubilaciones y Pensiones, realice operaciones de crédito con cooperativas y cajas de ahorro de servidores del Poder Judicial o instituciones bancarias del Estado, que serán destinadas a préstamos para construcción o mejoramiento de vivienda y otros de carácter social respecto a los empleados o funcionarios judiciales, según el reglamento que al efecto debe dictarse por la Corte.
+En todo caso, tales operaciones se podrán realizar siempre y cuando el Fondo reciba intereses iguales o superiores a los que recibiría por inversiones en títulos valores del sector público.

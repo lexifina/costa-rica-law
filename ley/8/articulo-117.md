@@ -1,3 +1,4 @@
-Artículo 117
-Todos los empleados y funcionarios subalternos de la Sala Primera y de la Presidencia de la Corte, lo serán también de la Corte Plena.
-( Así reformado por el artículo 2º de la Ley Nº 6434 de 22 de mayo de 1980 )
+Artículo 117.- En materia penal, las alcaldías conocerán:
+1.- De las contravenciones establecidas en el Código Penal.
+2.- De las faltas de policía y de toda clase de contravenciones y simples infracciones previstas en leyes especiales, con excepción de las de carácter laboral.
+3.- De los demás asuntos que indique la ley.

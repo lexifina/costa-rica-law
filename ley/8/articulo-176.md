@@ -1,2 +1,1 @@
-Artículo 176
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 176.- La responsabilidad disciplinaria de los servidores del Poder Judicial sólo podrá ser acordada por la autoridad competente, mediante el procedimiento establecido en este Título, el que será iniciado de oficio o a instancia de cualquier persona con interés legítimo y dentro de las garantías de defensa y legalidad que consagra el ordenamiento jurídico costarricense.

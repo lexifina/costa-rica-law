@@ -1,4 +1,1 @@
-CAPITULO II
-De las recusaciones
-Artículo 201
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 201.- En todo caso, el denunciado podrá nombrar defensor a su costo, o solicitar se le designe uno conforme a lo dispuesto en el artículo 152. El denunciado y su defensor tendrán libre acceso al expediente.

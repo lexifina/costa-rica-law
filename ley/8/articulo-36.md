@@ -1,2 +1,1 @@
-Artículo 36
-La obligación de residencia cesa por estar el funcionario o empleado gozando de licencia, o en vacaciones, o ausente en servicio.
+Artículo 36.- Los funcionarios judiciales que puedan tener a su orden personas detenidas, deben residir a una distancia no mayor de treinta kilómetros del asiento del tribunal, siempre que entre éste y el lugar de su residencia existan buenos medios de comunicación, de modo que no se afecte el deber de asistencia.

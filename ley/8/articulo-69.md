@@ -1,2 +1,1 @@
-Artículo 69
-( DEROGADO por el artículo 8º de la Ley Nº 6434 de 22 de mayo de 1980 )
+Artículo 69.- El Consejo estará integrado por cinco miembros, cuatro de ellos serán funcionarios del Poder Judicial y un abogado externo, todos de reconocida competencia.

@@ -1,5 +1,1 @@
-TITULO IX
-De los impedimentos, recusaciones y excusas
-CAPITULO I
-Artículo 199
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 199.- Será rechazada de plano toda queja que se refiera exclusivamente a problemas de interpretación de normas jurídicas.

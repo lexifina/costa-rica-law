@@ -1,0 +1,1 @@
+Transitorio XI.- El Director y Subdirector Administrativos, que se desempeñen al momento de entrar en vigencia la presente Ley, pasarán a ocupar los cargos de Director y Subdirector Ejecutivos del Poder Judicial.

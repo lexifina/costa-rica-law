@@ -1,2 +1,1 @@
-Artículo 235
-Los funcionarios y empleados que hubieren servido menos de diez años, no tendrán derecho a jubilación en ningún caso, ni sus parientes a pensión alguna.
+Artículo 235.- Corresponde al Consejo, de oficio o a solicitud de interesado, conceder las jubilaciones o pensiones, vigilar el correcto aprovechamiento de las mismas y modificar o cancelar, en su caso, las otorgadas, para lo cual se le confieren todas las facultades necesarias, sin perjuicio de la fiscalización que corresponda a la jurisdicción común.
