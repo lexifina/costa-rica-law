@@ -1,1 +1,1 @@
-Artículo 2°—Serán sancionados de acuerdo con las leyes penales quienes incumplan con lo dispuesto en la presente Norma.
+Artículo 2º—El costo de los servicios que genere la aplicación del presente Reglamento, de conformidad con la Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor y sus reformas; los deberá cubrir el interesado en la comercialización del producto, a través de los procedimientos definidos.

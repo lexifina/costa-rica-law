@@ -14,3 +14,4 @@ Norma Oficial para Leche Cruda y Leche Higienizada
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-03-27 | la propia norma |
+| 2 | 2004-10-11 | Decreto Ejecutivo 32175 (2004-10-11) |
