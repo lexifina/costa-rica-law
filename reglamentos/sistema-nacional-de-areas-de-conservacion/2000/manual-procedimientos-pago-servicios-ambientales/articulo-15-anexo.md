@@ -1,0 +1,66 @@
+ANEXO 15
+REQUISITOS MINIMOS PARA INFORME DE REGENCIA PARA MANEJO DE BOSQUES (FASE I), INVENTARIOS
+Y CERTIFICADOS DE ORIGEN
+Nº Informe regencia ___________
+Nombre Plan de Manejo: _______________ Expediente Nº __________
+Año de Aprobación: _______________ Nº Cuota Solicitada: __________
+Fecha de visita: ________________ Nº de Contrato de regencia _______
+Regente:________________________________Teléfono:____________
+Nº Colegiado ___________________ Póliza de Fidelidad Nº _________
+Regentado : (persona física, jurídica o organización)
+Cédula de identidad: __________
+Representante: ________________________ Cédula jurídica _________
+Localización del inmueble:
+__________________, __________________, ___________________
+Provincia Cantón Caserío
+2. CUMPLIMIENTO DE RECOMENDACIONES Y LABORES REALIZADAS
+________________________________________________________
+________________________________________________________
+________________________________________________________
+________________________________________________________
+3. OBSERVACIONES SOBRE EL AREA APROVECHADA
+3.1. Area autorizada: ______________(ha)
+3.2. Area intervenida: ______________(ha)
+3.3. Avances de aprovechamiento
+CUADRO 1: ARBOLES Y VOLUMEN AUTORIZADOS Y CORTADOS POR ESPECIES
+3.4. Cantidad de placas y guías retiradas en la Oficina Subregional o guías emitidas por el regente
+________________________________________________________
+________________________________________________________
+________________________________________________________
+________________________________________________________
+3.5. Equipo utilizado en el aprovechamiento y transporte (indicar si es el apropiado)
+________________________________________________________
+________________________________________________________
+________________________________________________________
+________________________________________________________
+3.6. Vías de extracción y patios de acopio (comparar con el plan de manejo)
+________________________________________________________
+________________________________________________________
+________________________________________________________
+________________________________________________________
+3.7. Cubicaje (madera en patio por salir)
+3.9. Impacto del aprovechamiento sobre las Areas de Protección
+________________________________________________________
+________________________________________________________
+________________________________________________________
+________________________________________________________
+3.10. En caso de cierre del aprovechamiento informe si se clausuraron las trochas
+________________________________________________________
+________________________________________________________
+________________________________________________________
+________________________________________________________
+4. AJUSTES PROPUESTOS AL PLAN DE MANEJO
+________________________________________________________
+________________________________________________________
+________________________________________________________
+________________________________________________________
+5. RECOMENDACIONES
+________________________________________________________
+________________________________________________________
+________________________________________________________
+________________________________________________________
+____________________ _________________________
+FIRMA DEL REGENTE FIRMA DEL REGENTADO O REPRESENTANTE LEGAL
+cc. Administración Forestal del Estado
+Colegio de Ingenieros Agrónomos
+Regente

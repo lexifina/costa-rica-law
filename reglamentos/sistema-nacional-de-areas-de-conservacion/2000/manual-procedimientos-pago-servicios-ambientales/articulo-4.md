@@ -1,0 +1,7 @@
+4. DE LAS AREAS MINIMAS Y MAXIMAS
+Las áreas mínimas y máximas a considerar para el pago de servicios ambientales a través de las diferentes modalidades serán las que se detallan a continuación:
+4.1. El área mínima para el pago por servicios ambientales para plantaciones forestales establecidas que no hayan gozado de los recursos provenientes de la deducción del impuesto de la renta o del certificado de abono forestal, o amparados al artículo 87 de la Ley Forestal 7174 y artículo 29 y 30 de la Ley Forestal Nº 7575, y planes de manejo de reforestación que se vayan a ejecutar, es de una hectárea y máximo de trescientas hectáreas por año, por beneficiario por año.
+4.2. Pago de servicios ambientales para el Manejo de Bosques Naturales, mínima dos hectáreas y la máxima de trescientas hectáreas por año, por finca o conjunto de fincas colindantes entre sí o cercanas en un radio de cinco kilómetros, propiedad de un mismo beneficiario.
+4.3. Pago de servicios ambientales para la Protección del Bosque, área mínima dos hectáreas y máxima trescientas hectáreas por año, por finca o conjunto de fincas colindantes entre sí o cercanas en un radio de cinco kilómetros, propiedad de un mismo beneficiario.
+4.4. Para proyectos globales de reforestación y protección, el área máxima por productor por año, será de hasta cincuenta hectáreas.
+4.5. El área máxima para reservas indígenas para cada modalidad del pago de servicios ambientales es de 600 ha.
