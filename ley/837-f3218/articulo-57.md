@@ -1,1 +1,1 @@
-Articulo 57.-El demandado pagará las costas procesales y estará exento de las personales, siempre que pague antes de verificarse el remate.
+Articulo 57.- (Derogado por el artículo 5° de la ley N° 1238 del 29 de noviembre de 1950)
