@@ -15,3 +15,4 @@ Reglamento a la Ley General de Espectáculos Públicos, Materiales Audiovisuales
 | --- | --- | --- |
 | 1 | 1998-05-08 | la propia norma |
 | 2 | 1998-09-28 | Decreto Ejecutivo 27373 (1998-09-28) |
+| 3 | 1998-09-28 | SINALEVI (sin norma nombrada) |
