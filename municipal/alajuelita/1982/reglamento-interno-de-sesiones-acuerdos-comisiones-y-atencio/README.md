@@ -16,3 +16,4 @@ Reglamento Interno de Sesiones, Acuerdos, Comisiones y Atención a Particulares
 | 1 | 1982-07-27 | la propia norma |
 | 2 | 2002-06-11 | Reglamento municipal 6 (2002-06-11) |
 | 3 | 2002-06-11 | Ley 8 |
+| 4 | 2003-06-11 | Reglamento municipal 6 (2003-06-11) |
