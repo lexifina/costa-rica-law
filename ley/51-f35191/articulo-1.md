@@ -1,5 +1,7 @@
-(Nota: se respeta la ortografía y gramática del texto original)
+(Suspendida)
 DECRETO N° LI
+(Mediante ley N° 3 del del 16 de febrero de 1882, se suspenden los efectos de esta ley)
+(Nota: se respeta la ortografía y gramática del texto original)
 Establece el registro civil
 SALVADOR LARA
 DESIGNADO EN EJERCICIO DEL PODER EJECUTIVO DE LA
