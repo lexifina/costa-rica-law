@@ -1,0 +1,1 @@
+Artículo 8°—El costo de esta tasa se determina tomando en consideración el costo de lo invertido por la Municipalidad para su mantenimiento incrementándose en un diez por ciento de utilidad para el desarrollo.

@@ -1,0 +1,1 @@
+Artículo 6°—Se entiende por tasa para los efectos de este Reglamento, aquel tributo cuya obligación tiene como hecho generador, la prestación efectiva o potencial de un servicio publico que brinda la Municipalidad de Limón, individualmente en el contribuyente, cuyo producto no debe tener un destino ajeno al servicio, razón de ser de la obligación.
