@@ -11,4 +11,5 @@ Por tanto:
 Se establece el siguiente Reglamento para el manejo, utilización entrega e inversión de los dineros del Fondo de Garantías y. Jubilaciones de los empleados del Consejo Nacional de Producción.
 CAPITULO I
 Disposiciones Generales
-Artículo 1—Se reglamenta el Fondo de Garantías y Jubilaciones de los Empleados del Consejo Nacional de Producción establecido en e! artículo 14 inciso c) de la Ley orgánica de la Institución N° 6050 de techa 14 de marzo de 1977 y la Convención Colectiva en sus artículos 88, 89 y 90, relativos al Plan Vivienda, según las siguientes disposiciones:
+Artículo 1 —Se reglamenta el Fondo de Garantías y Jubilaciones de los empleados del Concejo Nacional de Producción establecido en el artículo 14, inciso c) de la Ley Orgánica de la Institución N° 6050 de fecha 14 de marzo de 1977 y la Convención colectiva en sus artículos 88,89 y 90. relativo al Plan de Vivienda, creándose con ello el procedimiento de Administración para préstamos del Fondo de Garantías y Jubilaciones y vivienda de los Empleados del Consejo Nacional de Producción, según las siguientes disposiciones:
+(Así reformado y publicado en La Gaceta No. 118 de 21 de junio de 1995).
