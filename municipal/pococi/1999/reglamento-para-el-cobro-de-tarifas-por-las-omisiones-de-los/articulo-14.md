@@ -1,0 +1,1 @@
+Artículo 14.—En la determinación del costo efectivo, la Municipalidad tomará como base el gasto real que tengan la realización de las obras y servicios que señala el artículo 76 del Código Municipal y este Reglamento en el artículo 3.

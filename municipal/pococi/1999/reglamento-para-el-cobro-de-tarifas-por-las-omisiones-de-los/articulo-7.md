@@ -1,0 +1,1 @@
+Artículo 7°—El propietario será el responsable de colocar banderas y letreros durante el día y señales luminosas, claramente visibles durante la noche a una distancia no menor de quince metros de los obstáculos, de forma que prevenga anticipadamente al que transite por la vía.

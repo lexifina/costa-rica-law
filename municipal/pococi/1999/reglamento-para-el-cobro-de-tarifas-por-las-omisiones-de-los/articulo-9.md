@@ -1,0 +1,1 @@
+Artículo 9º—El objeto pasivo para efectos de este reglamento, es toda aquella persona que sea propietaria de un bien inmueble y que esté por tal condición obligada al cumplimiento de los deberes que el Código Municipal contempla en el artículo 75 y que este Reglamento señala en el numeral 2.

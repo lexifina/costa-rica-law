@@ -1,0 +1,1 @@
+Articulo 11.—El costo de esta tarifa se determina tomando en consideración el costo de lo intervenido por la Municipalidad para realizar la obra o el servicio de que se trate, incrementándose en un cincuenta por ciento (50%) por concepto de multa de conformidad con lo establecido en el artículo 76 del Código Municipal, Ley 7794.

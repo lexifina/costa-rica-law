@@ -1,0 +1,1 @@
+Artículo 4º—Queda prohibido romper los caminos públicos para efectuar cualquier tipo de obra, sin autorización escrita de la Municipalidad, previo depósito de dinero efectivo, monto producto de la estimación de la reparación correspondiente, realizada por funcionarios municipales.

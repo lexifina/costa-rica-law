@@ -1,0 +1,1 @@
+Artículo 19.—En la notificación mencionada en el artículo anterior se otorgará un plazo al propietario omiso del bien inmueble de quince días hábiles para cancelar su adeudo con la Municipalidad caso contrario se remitirá al departamento correspondiente para la realización del cobro judicial, para lo cual se aplicarán los artículos 70 y 71 del Código Municipal según Ley Nº 7794.

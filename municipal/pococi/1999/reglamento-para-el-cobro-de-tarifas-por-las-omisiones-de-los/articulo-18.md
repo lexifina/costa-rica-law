@@ -1,0 +1,1 @@
+Artículo 18.—Una vez que el Departamento de Rentas y Cobranzas realiza los cálculos del costo efectivo de la obra más la multa, procederá a notificar al propietario omiso de su adeudo con la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 20.—De conformidad con lo establecido en el artículo 43 Código Municipal, este Reglamento se somete a consulta pública por un plazo de diez días. Los interesados en hacer oposiciones al mismo, deberán dirigir sus planteamientos por escrito en memoria razonada, ante el Despacho del Alcalde Municipal.
