@@ -1,0 +1,1 @@
+Artículo 7°.- Los organismos públicos, a solicitud de la Comisión, deberán facilitar los estudios, datos e información que requieran para el mejor cumplimiento de sus funciones. Asimismo, la Comisión podrá solicitar información sobre el campo de los Recursos Fitogéneticos a organismos privados.
