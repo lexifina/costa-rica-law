@@ -1,0 +1,1 @@
+Artículo 2°—De la solicitud de incorporación: El candidato podrá solicitar el título de abogado e inscribirse como tal en el Colegio, siempre y cuando demuestre haber superado las pruebas, cuya práctica dirigirá la Junta Directiva. Además tendrá que satisfacer los demás requisitos establecidos en la normativa correspondiente.

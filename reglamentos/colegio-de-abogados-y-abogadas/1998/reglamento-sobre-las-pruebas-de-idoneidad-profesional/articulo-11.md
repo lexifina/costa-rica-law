@@ -1,0 +1,1 @@
+Artículo 11.—De los costos de las pruebas: Los gastos que demanden las pruebas, incluyendo las dietas de los miembros de la Comisión y de los Tribunales serán cubiertos mediante la cancelación de canon que se cobrará a los candidatos. Los montos respectivos serán fijados por la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 3°—De las formalidades: Para poder efectuar las pruebas, el candidato presentará una solicitud formal, dentro del período que establezca la Comisión. Esta solicitud se acompañará de la constancia de pago del canon correspondiente y la documentación que indique la Comisión

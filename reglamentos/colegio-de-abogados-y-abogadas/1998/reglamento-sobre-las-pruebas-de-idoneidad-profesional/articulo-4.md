@@ -1,0 +1,1 @@
+Artículo 4°—De la finalidad de las pruebas: Las pruebas permitirán determinar la pericia profesional del candidato, mediante la acreditación del dominio de los conocimientos, las destrezas, las habilidades y las aptitudes mínimas que lo capaciten para el ejercicio profesional, todo esto con el fin de proteger el interés público.

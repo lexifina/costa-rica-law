@@ -1,0 +1,2 @@
+Artículo 9°—De la aprobación de las pruebas: El candidato que obtenga como mínimo un setenta por ciento de la calificación en cada una de las pruebas practicadas, sean estas escritas u orales, recibirá, por parte de la Dirección, un certificado de idoneidad, con base en las correspondientes actas de exámenes.
+Si el candidato no obtiene el porcentaje mínimo establecido en alguna de las pruebas practicadas se entenderá que las reprobó integralmente. En tal supuesto podrá presentarse a cualquier convocatoria posterior.

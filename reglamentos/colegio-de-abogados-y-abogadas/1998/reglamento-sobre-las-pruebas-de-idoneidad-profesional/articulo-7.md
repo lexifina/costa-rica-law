@@ -1,0 +1,2 @@
+Artículo 7°—Del nombramiento de la comisión: La Junta Directiva nombrará a los miembros de la Comisión por un periodo de tres años. Vencido este período, podrán ser reelectos a criterio de ésta.
+La Junta Directiva revocará el nombramiento del miembro de la Comisión al que se le compruebe que ha incurrido en falta grave. Perderá su condición de miembro de la Comisión quien falte, injustificadamente, a tres sesiones consecutivas.

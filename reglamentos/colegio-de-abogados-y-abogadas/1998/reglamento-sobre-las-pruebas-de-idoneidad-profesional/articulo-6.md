@@ -1,0 +1,3 @@
+Artículo 6°—De la integración de la comisión: La Comisión estará integrada por siete miembros activos del Colegio, quienes deben contar con un mínimo de diez años de experiencia profesional.
+Las personas que estén vinculadas empresarialmente o desempeñen cargos de administración en alguna universidad pública o privada no podrán pertenecer a la Comisión. Esta incompatibilidad abarcará, también, a quien tenga vínculo de parentesco por afinidad o consanguinidad hasta tercer grado.
+La Comisión, a su vez, deberá contar con la asesoría de un profesional en ciencias de la educación, con especialidad en evaluación, que orientará en el diseño, los contenidos, la metodología y la administración y ponderación de las pruebas.
