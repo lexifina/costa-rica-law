@@ -1,0 +1,1 @@
+Artículo 2°-El traspaso lo hará la Procuraduría General de la República y su inscripción, en el Registro Público, estará exenta del pago de los correspondientes derechos, de los impuestos nacionales y municipales, y de las tasas y honorarios.
