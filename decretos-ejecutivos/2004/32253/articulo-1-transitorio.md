@@ -1,0 +1,1 @@
+Transitorio I.―El Ministerio de Economía, Industria y Comercio, tendrá un plazo de seis meses a partir de la entrada en vigencia de este reglamento, para la redacción y publicación del Procedimiento para la Verificación y Control de la Calidad de Cementos Hidráulicos.
