@@ -14,3 +14,4 @@ Declara la Conclusión del Procedimiento de Reestructuración del Ministerio de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-04-01 | la propia norma |
+| 2 | 1998-04-01 | Ley 8 |
