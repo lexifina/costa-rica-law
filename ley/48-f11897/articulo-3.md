@@ -1,0 +1,1 @@
+Art. 3° El Contador mayor del Tribunal nombrará por turno a uno de los otros Contadores para que se ocupe exclusivamente de la visacion de las liquidaciones que remitan los Administradores; y el de signado, concluida esta ocupación, continuará despachando los demás quehaceres de la oficina.
