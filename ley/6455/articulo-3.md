@@ -1,0 +1,1 @@
+Artículo 3°-Si dos años después de aprobada esta ley, la planta física, a que se refiere, no ha sido acondicionada adecuadamente y puesta al servicio de la mujer puntarenense, esta propiedad revertirá al Consejo Nacional de Producción.
