@@ -15,3 +15,4 @@ Normas para la Presentación, Remisión y Publicación de los Estados Financiero
 | --- | --- | --- |
 | 1 | 1996-05-10 | la propia norma |
 | 2 | 2002-01-28 | Reglamento 278 (2002-01-28) |
+| 3 | 2003-01-14 | Reglamento 349 (2003-01-14) |
