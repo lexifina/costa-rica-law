@@ -1,0 +1,1 @@
+Art. 3. Los vales billetes nacionales que resulten falsificados, despues de una escrupulosa comparación con las respectivas matrices, serán presentados inmediatamente al juzgado de Hacienda, ante quien el tenedor de ellos es obligado a deelarar de qué persona los haya habido.
