@@ -1,1 +1,1 @@
-Artículo 84.—La Asamblea podrá acordar, por mayoría simple la aprobación de convenios por medio de los que extienda la seguridad social a los asociados, y caso de ser necesario, en igual forma el aumento del porcentaje destinado al fondo de Bienestar Social.
+Artículo 84.-La asamblea podrá acordar, por mayoría simple la aprobación de convenios por medio de los que extienda la seguridad social a los asociados y caso de ser necesario, en igual forma el aumento del porcentaje destinado al fondo de bienestar social.

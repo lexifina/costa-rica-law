@@ -1,0 +1,1 @@
+Artículo 115.- El Gobierno Central, organismos públicos descentralizados, el Sistema Bancario Nacional e instituciones financieras en que tenga participación el Estado, apoyarán con prioridad la constitución y desarrollo de cooperativas de autogestión.

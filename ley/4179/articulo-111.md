@@ -1,0 +1,1 @@
+Artículo 111.- Las cooperativas de autogestión podrán formar uniones, federaciones y una confederación de cooperativas de autogestión. Las características de su constitución y organización se estipularán en el reglamento de la presente ley.

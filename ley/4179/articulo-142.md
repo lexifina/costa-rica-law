@@ -1,0 +1,4 @@
+Artículo 142.- Créase el Fondo Nacional de Cooperativas de Autogestión para financiar las actividades propias del desarrollo de dichas cooperativas.
+Con este fin, el Estado a través del Ministerio de Hacienda y el presupuesto nacional, efectuará transferencia al Instituto Nacional de Fomento Cooperativo en el siguiente ejercicio fiscal a partir de la promulgación de la ley por una suma inicial de 20 millones de colones y 10 millones de colones durante cuatro años sucesivos, al término de los cuales deberá haber aportado la suma total de 60 millones de colones.
+Del Fondo Nacional el Instituto Nacional de Fomento Cooperativo girará al Consejo Nacional de Cooperativas una suma no mayor de 10% de los ingresos anuales, de dicho fondo, para cubrir los gastos administrativos de la Comisión Permanente de Cooperativas de Autogestión en el cumplimiento de sus funciones.
+Los posibles remanentes anuales al liquidar el presupuesto se reintegrarán al Fondo.

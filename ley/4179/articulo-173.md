@@ -1,0 +1,1 @@
+Artículo 173.- El Instituto tendrá un auditor, nombrado por la Junta Directiva por un período de cuatro años, pudiendo ser reelecto. Son aplicadas al auditor las normas sobre nombramiento y remoción establecidas para el director ejecutivo.

@@ -1,1 +1,1 @@
-Artículo 96.—La constitución, administración y funcionamiento de las uniones, federaciones y la confederación de cooperativas, se regirán por la presente ley en cuanto fuere aplicable, y por las normas que establezcan sus propios estatutos.
+Artículo 96.- La constitución, administración y funcionamiento de las uniones, federaciones y las confederaciones de cooperativas se regirán por la presente ley y su reglamento y por las normas que establezcan sus propios estatutos.

@@ -1,0 +1,1 @@
+Artículo 169.- Cuando las circunstancias lo aconsejen la Junta Directiva podrá nombrar un subdirector ejecutivo, quien actuará subordinado al director. En las ausencias temporales de éste, sus deberes y responsabilidades serán asumidas por el subdirector. Son aplicables al subdirector las normas sobre nombramiento y remoción, establecidas para el director ejecutivo.

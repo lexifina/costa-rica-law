@@ -1,1 +1,1 @@
-Artículo 16.—Las cooperativas de consumo tienen por objeto la adquisición, provisión y distribución de cualquier clase de bienes entre sus asociados, en calidad de consumidores, para su auxilio mutuo.
+Artículo 16.- Las cooperativas de consumo tienen por objeto la adquisición, provisión y distribución de cualquier clase de bienes entre sus asociados, en calidad de consumidores, para su auxilio mutuo.
