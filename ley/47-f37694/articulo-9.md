@@ -1,0 +1,1 @@
+Art 9°. Recibida que sea la certificación el secretario la presentará al Presidente de la Sala que corresponda, quien pondrá al pie la siguiente razón: “Introducida en la oficina a tal hora de la tal fecha”.
