@@ -1,0 +1,1 @@
+Artículo 4°.-Cuando el total de las demandas de suscrición excediere de la cantidad ofrecida, el Consejo hará la adjudicación de acciones, tomando como principio el repartir el total entre el mayor número de accionistas.

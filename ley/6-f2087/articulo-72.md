@@ -1,0 +1,1 @@
+Artículo 72.-Cuando varias prendas garanticen un préstamo, si la venta de una sola ó de varias de ellas alcanzare para cubrir la deuda, se suspenderá el remate de las otras, y se devolverán al interesado á la presentación de la boleta.

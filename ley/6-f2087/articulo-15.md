@@ -1,0 +1,1 @@
+Artículo I5.-Cuando de acuerdo con la ley y este Reglamento se remataren acciones de particulares dadas en garantía, se extenderán á favor del rematario nuevos títulos, que llevarán el mismo número de las otras. Estas últimas se cancelarán debidamente, en la forma que disponga el Consejo y se archivarán por el Administrador.

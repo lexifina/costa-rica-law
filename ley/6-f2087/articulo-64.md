@@ -1,0 +1,1 @@
+Artículo 64.-Todo aviso de remate contendrá una descripción de las prendas, sin indicar el nombre del ernpeñante, la fecha y número de la operación de empeño, é indicará la base de remate para cada una de ellas ó que éste se practicará sin sujeción á base por no ser primero.

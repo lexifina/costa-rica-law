@@ -1,0 +1,1 @@
+Artículo 27.-Las faltas de los Consejeros de nombramiento del Poder Ejecutivo, se llenarán con los suplentes que designe la Secretaría de Hacienda. Las de los Consejeros elegidos por la Asamblea, se llenarán con los suplentes respectivos El Presidente cuidará de llamar á éstos, por el orden en que fueron elegidos según el número de votos.

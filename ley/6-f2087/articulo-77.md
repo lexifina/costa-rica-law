@@ -1,0 +1,3 @@
+CAPÍTULO X
+Disposiciones comunes y transitorias
+Artículo 77.-En resguardo de los intereses del Estado y de los generales de la Institución, el Poder Ejecutivo ejercerá la suprema vigilancia del establecimiento, la cual comprende estas facultades: convocar extraordinariamente al Consejo de Gobierno y á la Asamblea General de accionistas y someter á la resolución de ellos las cuestiones que tenga á bien; pedir á la Administración informes referentes á la marcha del establecimiento y estados y balances de los fondos; y en el caso previsto por e! artículo 24 de la ley suspender las operaciones y ordenar las averiguaciones del caso.
