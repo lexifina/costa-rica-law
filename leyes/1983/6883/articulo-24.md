@@ -1,2 +1,1 @@
-Artículo 24.- Rige a partir de su publicación.
-.e
+ARTÍCULO 24.- Rige a partir de su publicación.

@@ -1,4 +1,4 @@
-Artículo 5º.- No podrán venderse ni registrarse las materias primas,
+ARTÍCULO 5º.- No podrán venderse ni registrarse las materias primas,
 premezclas y alimentos para animales cuando:
 a) Se encuentren adulterados. Se considera adulterada una materia
 prima cuando la misma contenga cualquier otro material que
