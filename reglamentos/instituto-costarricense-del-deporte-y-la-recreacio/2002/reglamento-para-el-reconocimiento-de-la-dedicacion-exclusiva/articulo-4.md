@@ -1,0 +1,3 @@
+Artículo 4º—Los trabajadores que se acojan a la dedicación exclusiva solamente podrán ejercer la profesión por lo que están contratados, en las funciones relacionadas con el cargo que desempeñan en el Comité, tal y como lo dispone el artículo 1° de este Reglamento; no obstante se exceptúa de la dedicación exclusiva, los casos siguientes:
+a) El ejercicio de la docencia en establecimientos oficiales de enseñanza superior.
+b) El ejercicio profesional y técnico cuando se trate de sus intereses personales, de los de su cónyuge, ascendientes y descendientes, hasta tercer grado de consanguinidad, suegros, yernos y cuñados; en cuyo caso deberá comunicarlo por escrito al jefe de la dependencia y al Director Ejecutivo, indicando la intención de acogerse a esta excepción.

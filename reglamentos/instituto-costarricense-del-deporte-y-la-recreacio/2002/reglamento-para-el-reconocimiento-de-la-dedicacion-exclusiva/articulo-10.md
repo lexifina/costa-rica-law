@@ -1,0 +1,1 @@
+Artículo 10.—Para acogerse tanto al Régimen de la Dedicación Exclusiva como al de la Disponibilidad, los profesionales y técnicos del Comité Cantonal de San José, que opten por uno u otro de ellos deberán firmar el contrato respectivo con esta Institución, el cual se implantará en su expediente laboral, así como todos aquellos movimientos que por tal motivo se produjeron.

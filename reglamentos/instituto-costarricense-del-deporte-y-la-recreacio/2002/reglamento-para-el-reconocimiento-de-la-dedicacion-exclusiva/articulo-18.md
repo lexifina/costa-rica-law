@@ -1,0 +1,1 @@
+Artículo 18.—El Comité Cantonal de Deportes y Recreación de San José a través de la Dirección Administrativa-Financiera verificará -cuando lo considere necesario y conveniente y de conformidad con los procedimientos que al respecto establezca- el fiel cumplimiento de todas las disposiciones de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 7º—Como excepción a lo dicho en el artículo anterior, podrá acogerse a este Régimen el Director Ejecutivo por la índole de sus funciones y por ser el máximo jerarca administrativo de la Institución.

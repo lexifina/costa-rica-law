@@ -1,0 +1,1 @@
+Artículo 9º—El Comité Cantonal de Deportes y Recreación de San José reconocerá una suma adicional única, de un treinta por ciento (30%) sobre el salario base, a aquellos profesionales y técnicos que reuniendo los requisitos contemplados en el artículo 6° de este Reglamento no se acoja al Régimen de Dedicación Exclusiva si no al de Disponibilidad.

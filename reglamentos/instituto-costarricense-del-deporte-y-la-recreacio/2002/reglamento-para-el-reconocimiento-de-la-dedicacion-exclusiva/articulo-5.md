@@ -1,0 +1,1 @@
+Artículo 5º—Se entenderá por porcentaje adicional sobre el salario base, la retribución que hará el Comité a los trabajadores que son profesionales y técnicos y que opten por acogerse a la figura jurídica de la dedicación exclusiva o de la disponibilidad en la forma que fija este Reglamento en los artículos siguientes.
