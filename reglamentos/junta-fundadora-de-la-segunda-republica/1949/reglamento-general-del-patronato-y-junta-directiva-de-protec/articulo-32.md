@@ -1,5 +1,7 @@
 Artículo 32.-Son atribuciones del Secretario:
-1) Llenar los libros de actas de las sesiones que celebren la Junta y el Patronato.
+1) Llevar los libros de actas de las sesiones que celebre la Junta.
+(Así reformado el inciso anterior por el artículo 3 del decreto ejecutivo N° 6981 del 13 de abril de 1977)
 2) Custodiar y arreglar el archivo de la correspondencia.
-3) Llevar un libro de registro de miembros del Patronato, en el que se anotará la fecha de entrada, salida o defunciones de los mismos.
-4) Dar las certificaciones que se soliciten de los actos de la Junta y del Patronato, y de los documentos y libros puestos bajo su custodia. En estas certificaciones podrá cobrar honorarios de un colón por plana de papel gastado, y usará las especies fiscales que ordene la ley.
+3) (Derogado por el artículo 4° del decreto ejecutivo N° 6981 del 13 de abril de 1977)
+4) Extender las certificaciones que se soliciten de las actas de la Junta y de los documentos y libros puestos bajo su custodia.
+(Así reformado el inciso anterior por el artículo 3 del decreto ejecutivo N° 6981 del 13 de abril de 1977)

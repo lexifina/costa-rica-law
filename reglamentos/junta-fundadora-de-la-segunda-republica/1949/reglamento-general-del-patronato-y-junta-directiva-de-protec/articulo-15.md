@@ -1,1 +1,1 @@
-Artículo 15.-Extraordinariamente podrá reunirse el Patronato siempre que fuere convocado por acuerdo de la Directiva, la cual está obligada a hacer la convocatoria si así lo piden por escrito diez o más miembros. La convocatoria se hará con cinco días de anticipación por lo menos, en la misma forma dispuesta en el artículo que antecede, expresando el objeto de la reunión. En la sesión no se podrá tomar ningún acuerdo sobre asuntos que no hayan sido incluídos en la convocatoria.
+Artículo 15.-(Derogado por el artículo 4° del decreto ejecutivo N° 6981 del 13 de abril de 1977)

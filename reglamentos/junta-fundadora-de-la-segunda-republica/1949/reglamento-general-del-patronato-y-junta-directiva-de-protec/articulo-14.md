@@ -1,3 +1,1 @@
-Artículo 14.-EI Patronato se reunirá extraordinariamente una vez al año. Esta reunión se verificará en el lugar que indique la Junta Directiva, a las dos de la tarde del primer domingo de junio de cada año. La Directiva podrá señalar sin embargo otra hora; pero en ambos casos deberá comunicarlo por medio de un aviso que se publicará en el periódico oficial y en dos de los diarios de mayor circulación, con tres días de anticipación por lo menos.
-Si no hubiere quórum, la Asamblea se tendrá por convocada para media hora después y cualquier número de asistentes hará quórum.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 4 del 8 de abril de 1965)
+Artículo 14.-(Derogado por el artículo 4° del decreto ejecutivo N° 6981 del 13 de abril de 1977)

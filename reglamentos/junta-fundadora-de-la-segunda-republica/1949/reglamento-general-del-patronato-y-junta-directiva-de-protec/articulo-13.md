@@ -1,1 +1,1 @@
-Artículo 13.-Serán considerados miembros vitalicios del Patronato quienes hagan una donación a alguna de las instituciones que la Junta administra, siempre que ésta no sea menor de un mil colones.
+Artículo 13.-(Derogado por el artículo 4° del decreto ejecutivo N° 6981 del 13 de abril de 1977)

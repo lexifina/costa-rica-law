@@ -1,3 +1,3 @@
 CAPITULO II
 Del Patronato
-Artículo 9°-EI Patronato de la Junta lo constituyen la totalidad de los Socios de acuerdo con los artículos siguientes:
+Artículo 9°-(Derogado por el artículo 4° del decreto ejecutivo N° 6981 del 13 de abril de 1977)

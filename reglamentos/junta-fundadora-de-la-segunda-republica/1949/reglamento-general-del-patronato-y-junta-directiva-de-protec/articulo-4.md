@@ -1,2 +1,2 @@
-Artículo 4°.-La dirección técnica y la fiscalización económica de la Junta estará a cargo de la Dirección General de Asistencia Médico-Social de conformidad con las disposiciones de la ley respectiva. La Dirección podrá hacerse representar en ella por medio de un Delegado, con voz en las deliberaciones pero sin voto. La supervigilancia de la Junta estará a cargo de su Patronato.
-(Así reformado acuerdo N° 390 del 8 de abril de 1952)
+Artículo 4°-La jurisdicción y control técnico así como la fiscalización económica de la Junta corresponde al Ministerio de Salud, conforme a su Ley Orgánica.
+(Así reformado por el artículo 3 del decreto ejecutivo N° 6981 del 13 de abril de 1977)

@@ -1,1 +1,1 @@
-Artículo 16.-En toda reunión ordinaria o extraordinaria del Patronato formará quórum la mitad, más uno de los miembros inscritos que estén al día en el pago de sus cuotas, para lo cual el Tesorero tendrá lista la nómina consiguiente al empezar cada reunión.
+Artículo 16.-(Derogado por el artículo 4° del decreto ejecutivo N° 6981 del 13 de abril de 1977)

@@ -5,7 +5,7 @@ Artículo 30.- La Junta será un cuerpo deliberativo, encargado de la orientaci�
 4) Remover libremente a los empleados nombrados por ella, o por los organismos a su cargo, de acuerdo con los reglamentos de cada institución e imponer las sanciones del caso.
 5) Acordar la forma en que se realicen los sorteos de las loterías.
 6) Autorizar en el mes de octubre de cada año, el presupuesto de ingresos y egresos que ha de regir en el año venidero, así como los presupuestos extraordinarios, cuando fuere del caso. Unos y otros serán sometidos a la aprobación del Ministerio de Salubridad Pública, por medio de la Dirección General de Asistencia Médico-Social. Una vez aprobados, les serán remitidos a la Oficina de Presupuesto, para que conforme a ello, vise los pagos que se le presenten.
-7) Convocar para las sesiones del Patronato
+7) (Derogado por el artículo 4° del decreto ejecutivo N° 6981 del 13 de abril de 1977)
 8) Autorizar las operaciones a que se refiere el articulo 21 de este Reglamento.
 9) Dictar los reglamentos internos a que deben sujetarse los organismos y dependencias a su cargo.
 10) Enviar a la Dirección General de Asistencia, dentro de los 8 días siguientes, una minuta de los acuerdos tomados en las sesiones que celebre, autorizada por la firma del Secretario.

@@ -1,3 +1,1 @@
-Artículo 12.-Los miembros del Patronato serán provistos por la Directiva de la Junta de una tarjeta de identidad, la que les servirá para ser admitidos en las sesiones de la Asamblea General, y en los demás actos para los cuales se les convoque.
-Esa tarjeta, que es intransferible, se expedirá anualmente y será extendida únicamente a las personas que por estar al día en el pago de sus cuotas conserven la calidad de miembros del Patronato. Irá firmada por el Secretario de la Junta, por el interesado y tendrá en sitio visible la fecha de su expedición y el número de la cédula de identidad de su dueño.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 4 del 19 de abril de 1960)
+Artículo 12.-(Derogado por el artículo 4° del decreto ejecutivo N° 6981 del 13 de abril de 1977)
