@@ -1,0 +1,1 @@
+Articulo 10.—De las normas supletorias. Lo no previsto en presente Reglamento, se remitirá a las normas públicas que lo tutelan, es decir, a la Ley General de Contratación Administrativa y la Ley General la Administración Pública y sus respectivos reglamentos.

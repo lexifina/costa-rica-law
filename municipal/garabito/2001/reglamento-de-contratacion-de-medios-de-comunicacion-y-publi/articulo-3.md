@@ -1,0 +1,1 @@
+Artículo 3°—Del contenido presupuestario. Toda actividad municipal, o comunal patrocinada por la Municipalidad , deberá, antes de adquirirse cualquier compromiso financiero o económico, contar con el debido contenido presupuestario, para cumplir con los términos de legalidad dispuestos en las normas de contratación administrativa de los entes públicos.

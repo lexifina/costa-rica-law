@@ -1,0 +1,1 @@
+Articulo 8°—Derecho de rescisión unilateral de la Municipalidad. La Municipalidad podrá rescindir unilateralmente sin ninguna responsabilidad, sus relaciones contractuales por causa fortuita, fuerza mayor y por incumplimiento de la otra parte cuando así lo convenga al interés público.

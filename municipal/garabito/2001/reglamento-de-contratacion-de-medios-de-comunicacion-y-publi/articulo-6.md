@@ -1,0 +1,1 @@
+Articulo 6°—Del proceso de contratación. Según la naturaleza de la actividad, así será el proceso de contratación, sujetándose la escogencia de los servicios, a los términos específicos acreditados en la Contraloría General de la República según montos de servicios a contratar.
