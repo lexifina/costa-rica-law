@@ -1,0 +1,1 @@
+Artículo 5°-La Comisión podrá nombrar, para facilitar su realización, comités organizadores de acuerdo al tipo de evento y según la región, cuya integración deberá ser aprobada por el Ministerio de Agricultura y Ganadería.

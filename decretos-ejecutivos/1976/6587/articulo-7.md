@@ -1,0 +1,1 @@
+Artículo 7°-El Ministerio de Agricultura y Ganadería fomentará la celebración de exposiciones zootécnicas mediante aportes económicos, siempre y cuando se establezca la partida correspondiente en la Ley de Presupuesto.
