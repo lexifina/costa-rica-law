@@ -1,0 +1,1 @@
+Artículo 4º—Para que los vehículos ingresen y salgan del área de estacionamiento de que se trate, deberán hacerlo por uno o máximo, dos accesos autorizados, de conformidad con la ley, a la vía pública.
