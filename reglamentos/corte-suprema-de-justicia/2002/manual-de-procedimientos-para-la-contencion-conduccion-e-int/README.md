@@ -13,3 +13,4 @@ Manual de Procedimientos para la Contención, Conducción e Intervenciones Corpo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-05 | la propia norma |
+| 2 | 2004-11-30 | Reglamento 92 (2004-11-30) |
