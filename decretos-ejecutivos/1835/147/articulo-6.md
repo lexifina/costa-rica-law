@@ -1,0 +1,1 @@
+Art. 6. Como por el presente Decreto solo se sustituye el modo de obtener el arrendamiento, queda en lo demás la administración del ramo sugeta á las reglas que señala la ley citada de 29 de Agosto; dándose cuenta á la legislatura con el informe debido en su primera reunion ordinaria. – Dado en San José á los veintiun dias del mes de Diciembre de mil ochocientos treinta y cinco.
