@@ -1,0 +1,1 @@
+Art. 72. La nulidades expresadas en el artìculo anterior afectan individualmente à cada uno de los votos contenidos en el mismo registro, y no porque alguno ó algunos de los votos sean nulos, lo son aquellos que no contienen las mismas ú otras nulidades.

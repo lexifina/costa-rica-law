@@ -1,0 +1,1 @@
+Art. 36. Las Asamblea oiràn cualesquiera reclamaciones que se les dirijan acerca de nulidades de la eleccion de uno ó mas Electores, y las resolverà con vista de los documentos en que se funden tales nulidades y de los informes que ellas pidan para formar un juicio exàcto de los hechos.

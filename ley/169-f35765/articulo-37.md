@@ -1,0 +1,1 @@
+Art. 37. Cuando la Asamblea haga alguna eleccion extraordinaria y falte alguno ó algunos de los miembros del directorio, el Presidente nombrará dos escrutadores entre los electores presentes, para que verifiquen el escrutinio y autorizen con su firma el registro ó acta de la eleccion, en papel del sello 4° 1a clase.

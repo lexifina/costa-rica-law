@@ -1,0 +1,1 @@
+Art. 55. Si del escrutinio resultare que alguno ha reunido en su favor un nùmero de votos igual ó mayor al de dicha pluralidad, se anunciará así por el Presidente, expresando que se le vá à declarar electo.

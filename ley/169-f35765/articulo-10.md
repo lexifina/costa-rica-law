@@ -1,0 +1,1 @@
+Art. 10. Despues de firmada la lista por la Junta, no puede inscribirse en ella à otro, ni borrarse à los inscritos, sinó á virtud de una reclamacion intentada y decidida en los términos que se expresan en los artículoos 12 y 13.

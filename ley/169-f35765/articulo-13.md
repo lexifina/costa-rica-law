@@ -1,0 +1,1 @@
+Art. 13. Para el último dia de febrero la Junta debe haber formado, y el Presidente fijado en cópia, una lista complementaria de todos los sufragantes parroquiales que la junta haya inscrito á virtud de las reclamaciones de que trata el art. 12.
