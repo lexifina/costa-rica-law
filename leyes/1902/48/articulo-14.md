@@ -1,0 +1,1 @@
+Artículo 14. – Autorizase al Poder Ejecutivo para hacer la distribución de las cantidades asignadas para el servicio de los departamentos y oficinas de su dependencia, sin exceder de los montos que se fijan en esta ley para introducir en dichos departamentos y oficinas todas las modificaciones y supresiones que considere convenientes.
