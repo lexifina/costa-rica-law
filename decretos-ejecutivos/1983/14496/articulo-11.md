@@ -1,0 +1,1 @@
+Artículo 11.-La publicación de los resultados obtenidos de las informaciones referentes a las enfermedades de declaración obligatoria, serán responsabilidad del Departamento de Estadística y de la Unidad de Notificaciones e Investigaciones de la División de epidemiología del Ministerio de Salud.

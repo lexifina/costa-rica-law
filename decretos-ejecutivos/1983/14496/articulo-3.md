@@ -1,0 +1,2 @@
+Artículo 3°.-La notificación de las enfermedades de denuncia obligatoria deben hacerse a la Dirección de la Unidad de Notificaciones e Investigaciones de la División de Epidemiología del Ministerio de Salud.
+El envió por correo gozar de franquicia postal cuando se efectúa utilizando los sobres especiales que serán distribuidos, juntamente con las fórmulas de vigilancia epidemiológica, por la Unidad de Notificaciones a los profesionales en Ciencias Médicas y a los directores de establecimientos de salud que lo soliciten.
