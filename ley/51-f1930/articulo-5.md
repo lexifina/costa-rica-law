@@ -1,0 +1,10 @@
+Art. 5. El Director jeneral debe ser Injeniero civil, y reunir conocimientos técnicos en materia de arquitectura; y sus obligaciones son:
+1° Levantar los proyectos, planos, bosquejos, etc. de todas las obras, cuya construcción se emprenda inmediatamente por el Supremo Gobierno, o por las autoridades provinciales, para efectos gubernativos de interés jeneral como cabildos, iglesias, cárceles, es- cuelas, mercados, oficinas públicas, puentes, etc.
+2° Dirigir la ejecución de las mismas obras por sí mismo cuando se verifiquen por cuenta del Gobierno; y por medio de instrucciones, cuando pertenezcan a las Provincias.
+3° Inspeccionar y rever todas las obras y edificios públicos ya mencionados.
+4°. Aprobar los proyectos y planos de las obras de particulares cuando toquen con el interés público 6 sean destinados para el uso de él; con tal que lo prescriba la ley.
+5° Presentar los presupuestos del costo aproxima. do de las obras que el Gobierno intente construir, así como de las reparaciones que demanden los edi. ficios públicos existentes.
+6° Presentar anualmente una relación jeneral y circunstanciada sobre el estado y progreso de todas las obras públicas en curso, con espresion de las cantidades invertidas en ellas.
+7° Recorrer una vez al menos cada mes la carretera nacional desde Cartago á Puntarenas, y dar todas las disposiciones necesarias respecto á los trabajos establecidos en ella; informando al Gobierno de las observaciones que haya hecho y proponiendo las medidas que juzgue conducentes al mejor éxito y eco- momia de dichos trabajos.
+8° Presentar semanalmente á la Tesorería itineraria, para su cubierto, las planillas de gastos hechos en la carretera, con sus correspondientes justificacio- nes; y llevar cuenta y razón exacta de dichos gastos. Esta cuenta será elevada anualmente al Tribunal de cuentas para su revisación; y
+9° Dar pareceres explicados á pedimento de las autoridades, sobre todas las obras públicas de interés jeneral, en lo tocante a la policía de construcción.
