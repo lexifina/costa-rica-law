@@ -15,3 +15,4 @@ Crea Comisión Ejecutiva para el Desarrollo Integral de la Cuenca de Arenal (CED
 | --- | --- | --- |
 | 1 | 1979-07-10 | la propia norma |
 | 2 | 1979-11-22 | Decreto Ejecutivo 10875 (1979-11-22) |
+| 3 | 1979-11-23 | Decreto Ejecutivo 10888 (1979-11-23) |
