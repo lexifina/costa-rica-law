@@ -1,0 +1,3 @@
+Artículo 10.-Se mantiene la indenunciabilidad de los terrenos a los cuales se refieren las leyes N° XXX de 22 de junio de 1888, N° 2 de 9 de mayo de 1908, N° 13 de 31 de octubre de 1910 y N°3 de 29 de octubre de 1914 en la forma que indican esas mismas leyes y las otras que tengan relación con las que se han citado.
+Dado en el Salón de Sesiones del Congreso.-Palacio Nacional.-San José, a los catorce días del mes de octubre de mil novecientos veintiséis.-ARTURO VOLlO, Presidente.-LEÓN CORTES, Primer Secretario. -ENRIQUE FONSECA ZÚÑIGA, Segundo Secretario.
+Casa Presidencial. -San José, a los veintidós días del mes de octubre de mil novecientos veintiséis.- Ejecútese.-RICARDO JIMÉNEZ. El Secretario de Estado en el Despacho de Hacienda y Comercio,- TOMÁS SOLEY GÜELL.

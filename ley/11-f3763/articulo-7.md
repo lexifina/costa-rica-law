@@ -1,0 +1,1 @@
+Artículo 7°-El Jefe de la Oficina de Catastro al devolver al Juzgado de lo Contencioso Administrativo el plano de la medida, informará si estuviere en capacidad de hacerlo si el terreno está en zona indenunciable.

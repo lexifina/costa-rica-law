@@ -1,0 +1,1 @@
+Artículo 5°-Dentro de dos años a partir de la publicación de esta ley, los propietarios a los cuales se refiere el artículo, 552 del Código Fiscal deberán tener sembrados los árboles que están obligados a plantar, bajo pena de quedar sujetos a las sanciones que establece el artículo 553 del mismo Código.
