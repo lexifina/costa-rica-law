@@ -1,2 +1,3 @@
-Artículo 110.-El monto de la CAF se distribuir durante los primeros cinco años en la siguiente forma: un 50% en el primer año, un 20% en el segundo año, un 15% el tercer año, un 10% el cuarto año, y 5% el quinto año. El monto del beneficiario de deducción del impuesto sobre la Renta se distribuir de la siguiente forma: un 60% el primer año, un 15% para el segundo, un 10% tanto en el tercero como para el cuarto, un 5% para el quinto. O bien un 20% para cada año en ambos sistemas.
-(Así reformado por el artículo 27 del decreto ejecutivo N° 20618 del 12 de julio de 1991)
+Artículo 110.-El monto por hectárea del Certificado de Abono Forestal para reforestación (CAF), se distribuirá un 20% para cada año en un plazo de cinco años.
+En la modalidad del Certificado de Abono Forestal por Adelantado (CAFA), se hará de la siguiente forma: un 25% el primero, segundo y tercer año; un 15% en el cuarto año y un 10% en el quinto año."
+(Así reformado por el artículo 1° del decreto ejecutivo N° 24841 del 18 de diciembre de 1995)
