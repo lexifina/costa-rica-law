@@ -1,0 +1,1 @@
+ARTÍCULO 4°-La Asamblea, en sus primeras Sesiones ordinarias, elegir cada a Ïo por mayora de votos nueve Ciudadanos en ejercicio, y hecha la elección, pasar a la Corte Superior de Justicia, una lista de los sujetos nombrados, que serán renovados por mitad en cada periodo anual, saliendo cinco el primer año
