@@ -1,0 +1,1 @@
+Artículo 7º.- Calculados los gastos del desarrollo de este programa durante un período de cuatro años en la suma de $ 204,000.00 por parte de los países signatarios, cada uno de ellos cooperará con una cuota anual de $ 8,500.00. Las contribuciones, se harán por anualidades anticipadas a la Oficina Sanitaria Panamericana.

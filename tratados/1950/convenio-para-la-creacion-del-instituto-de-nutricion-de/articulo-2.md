@@ -1,0 +1,1 @@
+Artículo 2º.-El Instituto se establece como entidad técnica con el propósito de concertar la atención sobre los problemas de la nutrición humana en los países, citados y con el fin de coadyuvar de manera efectiva a su resolución.

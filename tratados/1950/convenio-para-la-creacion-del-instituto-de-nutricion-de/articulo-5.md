@@ -1,0 +1,3 @@
+Artículo 5º.- Para cumplir estos fines, el Instituto preparará sus propios técnicos en clínica, bioquímica, agronomía y educación.
+a) El personal anterior será preparado en virtud de becas otorgadas por la Oficina Sanitaria Panamericana o por su conducto a cada uno de los países, signatarios, una para cada especialidad y propuestos los candidatos conforme a las normas que fije la misma Oficina; y
+b) A fin de garantizar el porvenir profesional de estos técnicos, los Gobiernos signatarios se comprometen a crear, si no existen ya dentro de sus respectivos presupuestos, las plazas correspondientes dentro de la administración general de cada país, con excepción de las de los bioquímicos, y los becarios a su vez se comprometen servir en estos puestos cuatro años.

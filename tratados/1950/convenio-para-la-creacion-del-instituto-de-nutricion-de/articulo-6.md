@@ -1,0 +1,1 @@
+Artículo 6º.- La Oficina Sanitario Panamericana y los Gobiernos signatarios convienen en desarrollar este programa por lo menos cuatro años; un año para la preparación de técnicos y tres años de pleno funcionamiento.
