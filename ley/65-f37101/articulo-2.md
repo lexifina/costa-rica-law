@@ -1,0 +1,4 @@
+Art 2°.- Con el fin de acumular fondos suficientes por medio de suscriciones voluntarias, para la obra proyectada, se establece una Corporación que se llamará “ Junta piadosa de San José”, compuesta de cinco individuos, de los cuales cuatro serán de nombramiento del Gobierno i uno que se servirá nombrar el Venerable Cabildo Eclesiástico de entre sus miembros.
+&1°.- La Junta estará organizada con un Presidente, un Vicepresidente, un Secretario i un Tesorero, que también hará funciones de fiscal del fondo que se crie.
+&2°.- El Presidente i Vicepresidente serán del seno de la Junta. El Secretario i un Tesorero, que también hará funciones de fiscal del fondo que se crie´.
+&3.- Estos nombramientos se harán por mayoría absoluta de votos de la Junta, la primera vez antes el Gobernador de la Provincia de San José, el cual, previas las formalidades de lei, declará instalada dicha junta, dando en seguida aviso al Ministerio de Negocios Eclesiasticos.
