@@ -1,0 +1,1 @@
+Artículo 16.—Toda la información relacionada con la tramitación tarifaria, incluyendo los estudios técnicos que respaldaron la fijación tarifaria, estarán al alcance de los interesados en la dependencia de atención al usuario y será debidamente divulgada por la Municipalidad.

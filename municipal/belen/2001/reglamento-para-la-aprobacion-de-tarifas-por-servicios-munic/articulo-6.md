@@ -1,0 +1,2 @@
+Artículo 6°—Corresponde a la Municipalidad la obligación de realizar inspecciones técnicas de los bienes inmuebles, la maquinaria, equipo, implementos necesarios y cualesquiera otros factores destinados a prestar el servicio público, para verificar su funcionabilidad y disponibilidad.
+El propósito de lo anterior es asegurar a la comunidad la calidad, confiabilidad y continuidad de los servicios, así como la justa distribución de costos para una equitativa fijación de las tarifas del sen icio respectivo.

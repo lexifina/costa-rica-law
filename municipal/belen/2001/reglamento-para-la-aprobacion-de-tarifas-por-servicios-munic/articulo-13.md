@@ -1,0 +1,1 @@
+Artículo 13.—El Alcalde Municipal en coordinación con la Unidad de Administración Tributaria deberá presentar al Concejo Municipal el proyecto tarifario, que será sometido a estudio y aprobación del Concejo.

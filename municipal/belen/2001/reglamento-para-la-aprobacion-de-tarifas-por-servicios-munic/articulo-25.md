@@ -1,0 +1,1 @@
+Artículo 25.—Una vez firme el acuerdo de aprobación del proyecto tarifario, el proyecto tarifario será remitido a la Contraloría para su aprobación. En el momento en que cuente con la aprobación de la Contraloría, se mandara a publicar en el Diario Oficial La Gaceta y entrará a regir treinta días después de la publicación.
