@@ -1,0 +1,1 @@
+ARTÍCULO 24.-En sesión que deber celebrarse después de la elección de nuevos miembros del consejo de administración se elegir n un presidente, un vicepresidente, un secretario, los vocales y las comisiones de trabajo que establezcan los estatutos.

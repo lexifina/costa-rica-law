@@ -1,0 +1,1 @@
+ARTÍCULO 16.-La asamblea general ser la autoridad suprema y sus acuerdos obligan a la cooperativa y a todos sus asociados presentes y ausentes siempre que estuvieren de acuerdo con la ley número 6437, su reglamento y los estatutos. Estar integrada por todos los asociados que al momento de su celebración estuvieren en el pleno goce de sus derechos.

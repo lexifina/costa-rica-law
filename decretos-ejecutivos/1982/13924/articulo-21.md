@@ -1,0 +1,2 @@
+ARTÍCULO 21.-Las asambleas de asociados, ordinaria o extraordinaria, se consideran legalmente constituidas en primera convocatoria, cuando esté presente al menos, la mitad m s uno de sus miembros. Si no se lograre el quórum exigido dentro de la hora posterior a la fijada en la primera convocatoria, la asamblea de asociados podr efectuarse legalmente con la asistencia del 30% de sus integrantes, pero en ningún caso con menos de veinte miembros.
+En caso de no lograrse el quórum en las dos primeras convocatorias deber hacerse una nueva convocatoria para una fecha posterior.

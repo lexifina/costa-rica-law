@@ -1,0 +1,1 @@
+ARTÍCULO 35.-El capital social estará compuesto por las aportaciones ordinarias en dinero efectivo, en bienes muebles o inmuebles, en derechos, en trabajo, en industria, en capacidad profesional o fuerza productiva que hagan los asociados y sus familias y estarán representados en certificados de aportación de igual valor nominal.

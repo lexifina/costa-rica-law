@@ -1,0 +1,1 @@
+ARTÍCULO 17.-Las reuniones de la asamblea podr n ser ordinarias o extraordinarias. La asamblea ordinaria se reunir por lo menos dos veces en el período escolar y extraordinariamente cuando las circunstancias lo requieran.
