@@ -1,0 +1,2 @@
+ARTÍCULO 9°
+En cualquier tiempo, durante la continuación de este contrato, si los intereses del comercio lo requieren habiendo sido los agentes previamente notificados la Compañía hará correr vapores quieren, adicionales, á más de los especificados en el presente contrato, entre los puertos de Panamá y Puntarenas, según lo requieran los negocios; y en consecuencia les serán aplicables los artículos de este contrato, con la excepción de que no se pagará por el Gobierno de Costa-Rica ninguna compensación adicional.

@@ -1,0 +1,2 @@
+ARTÍCULO 2°
+También se obliga la misma Compañía á que sus vapores continúen haciendo un viaje redondo por mes en la línea conocida y designada como la línea mejicana entre Panamá y Acapulco, tocando á la ida y á la vuelta en el puerto de Puntarenas, y en los puertos principales de Centro-América y Méjico. La Compañía, sin embargo, tendrá el derecho de suspender el servicio con los puertos mejicanos; pero en tal aso los dos vapores de la Compañía que recorren la línea directa entre Panamá y San Francisco, harán servicio en el puerto de Puntarenas para desembarcar y recibir

@@ -1,0 +1,2 @@
+ARTÍCULO 18.
+Las diferencias que surgieren entre el Gobierno de Costa-Rica y la Compañía, sobre la inteligencia y cumplimiento de este contrato, serán decididas medio de dos árbitros nombrados uno por cada parte, y en caso de discordia, por un tercero nombrado por aquéllos, y su decisión será final y tendrá la fuerza de sentencia emanada de una Corte de Justicia. - Los árbitros deberán ser precisamente ciudadanos costarricenses.

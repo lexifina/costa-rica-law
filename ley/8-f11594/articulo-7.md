@@ -1,0 +1,2 @@
+ARTÍCULO 7°
+La Compañía se obliga además á conceder seis pasajes anuales, de ida y vuelta, á los Agentes Diplomáticos y comisionados del Gobierno de la República de Costa-Rica, desde el puerto de Puntarenas hasta el de San Francisco de California y puertos intermedios, así como del mismo Puntarenas hasta Panamá, siempre que para el efecto lo notifique el Gobierno á la agencia de la Compañía en Puntarenas.

@@ -1,0 +1,2 @@
+ARTÍCULO 13.
+Si los vapores de la Compañía, en cualquier tiempo ó por cualquiera causa, condujesen sacos de correspondencia ó mercaderías más allá de los puertos de destino indicados en algunas de las rutas antes referidas, la República de Costa-Rica concede á la Compañía el derecho de desembarcar dicha correspondencia ó mercaderías, en cualquiera de sus puertos habilitados, para reembarcarlos por cualquiera de sus vapores, libres de todo derecho ó contribución establecida ó que en lo adelante pueda establecerse.
