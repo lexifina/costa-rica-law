@@ -14,3 +14,4 @@ Reforma Emergencia Nacional Suministro Agua Potable
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-10-24 | la propia norma |
+| 2 | 1984-10-24 | SINALEVI (sin norma nombrada) |
