@@ -1,2 +1,0 @@
-Artículo 14.—Terminación del permiso. La autorización termina en forma normal por las condiciones del artículo 4° de este reglamento.
-El permiso podrá ser revocado, sin responsabilidad para la administración, en caso de que el permisionario incumpla las obligaciones establecidas en este reglamento, dicho procedimiento lo instruirá la Sección de Turismo; y que lo elevará al Consejo de Administración para la revocatoria del permiso.

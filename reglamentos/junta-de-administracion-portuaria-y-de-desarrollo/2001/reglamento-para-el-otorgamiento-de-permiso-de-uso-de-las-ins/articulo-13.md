@@ -1,2 +1,0 @@
-Artículo 13.—De la aprobación de la solicitud. Las solicitudes serán analizadas por la Sección de Turismo de JAPDEVA, que emitirá recomendación para los permisos a la Gerencia Portuaria y posterior aprobación del Consejo de Administración.
-En forma escrita, la Sección de Turismo comunicará el resultado de los trámites a cada uno de los solicitantes del permiso, dentro del plazo de los ocho (8) días siguientes al otorgamiento del mismo.

@@ -1,2 +1,0 @@
-Artículo 4°—Vigencia del permiso: los permisos para utilización de áreas portuarias, tendrán vigencia únicamente durante la temporada de atraque de cruceros en el Complejo Portuario de Limón período en el cual se tramitó.
-En todo caso, dichos permisos deberán ser renovados para la próxima temporada, mediante la presentación de los documentos citados en el artículo 7°, un mes antes del inicio de la temporada correspondiente.

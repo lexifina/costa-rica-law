@@ -1,8 +1,0 @@
-Artículo 3°—Lugar de prestación de los servicios:
-A. Venta de artesanía: sólo estará permitida la venta de artesanía en el área especialmente designada por JAPDEVA para ese fin.
-B. Venta de servicios de transporte: la venta de servicios deberá ofrecerse mediante la instalación de un stand, donde los clientes podrán solicitar el servicio, el cual será ubicado en el área especialmente designado por JAPDEVA.
-Las tarifas serán uniformes, deberán ser colocadas en un lugar visible para los pasajeros, dentro del vehículo y en el stand de ventas.
-C. Venta de servicios turísticos: la venta de servicios turísticos será el ofrecido por los Tours Operadores que tienen contratos establecidos con las Líneas de Cruceros.
-Por los empresarios locales que ingresan al puerto y mediante la instalación de un stand, donde los clientes pueden solicitar el servicio. Las tarifas serán uniformes y deberán ser colocados en lugar visible para los pasajeros en el stand, y que cumplan las regulaciones de la Ley de Tránsito para este tipo de modalidad de servicio.
-Todos los oferentes de servicios de transporte y servicios turísticos deberán permanecer fuera del área portuaria hasta que: a) su servicio sea solicitado por el cliente; b) según programa de tours vendidos les corresponda ingresar; c) cuando regresa a dejar al turista para que aborde el barco. Luego de regresar a formar fila de nuevo.
-D. Número de permisionarios: el número de permisionarios para la venta de artesanía, transporte público y de servicios turísticos serán definidos por la Sección de Turismo de JAPDEVA en coordinación con las Superintendencias de las terminales portuarias, de acuerdo con las necesidades de prestación de los servicios dentro del área portuaria.

@@ -1,2 +1,0 @@
-Artículo 5°—Autoridad encargada: la Sección de Turismo de JAPDEVA recomendará el número de permisos en coordinación con la Superintendencia de las Terminales Portuarias y se encargará de que se cumpla el presente reglamento.
-Dentro de sus funciones, la Sección de Turismo analizará y recomendará a la Gerencia Portuaria de JAPDEVA, el otorgamiento de los permisos de uso de las instalaciones para la venta temporal de artesanía servicios turísticos y transporte de turistas, para la aprobación por parte del Consejo de Administración (art. 17 de la Ley Orgánica de JAPDEVA).
