@@ -1,1 +1,0 @@
-Artículo 3°.- Para ingresar al Colegio deberán llenarse los requisitos que establezcan por vía de reglamento. No puede ser miembro del Colegio quien por sentencia firme estuviere inhabilitado para ejercer cargos públicos.

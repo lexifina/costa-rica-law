@@ -1,1 +1,0 @@
-Artículo 5°.- El Colegio de Ingenieros Agrónomos tendrán personería jurídica y ejercerá sus funciones por medio de Asambleas Generales y de su Junta Directiva. La representación judicial y extrajudicial corresponde a su Presidente con las facultades del artículo 1255 del Código civil.

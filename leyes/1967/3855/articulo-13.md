@@ -1,1 +1,0 @@
-Artículo 13.- La inscripción en el Colegio se mantendrá mientras el profesional satisfaga la cuota mensual que señale la Junta Directiva. Se suspenderá en el ejercicio de la profesión al que faltare al que faltare al pago de seis cutas, con las consecuencias que señala esta ley. La suspensión se levantará con el pago de las cuotas atrasadas.

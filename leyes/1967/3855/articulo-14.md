@@ -1,1 +1,0 @@
-Artículo 14.- Podrán ser suspendidos por la Junta Administrativa, aquellos colegiados que no hubieren cumplido sus obligaciones para con el Fondo de Mutualidad y Subsidios. La suspensión se levantará tan pronto se cubran las obligaciones que le dieron origen.

@@ -1,1 +1,0 @@
-Artículo 39.- El Tribunal se integrará por el Presidente y Secretario de la Junta Directiva y dos miembros del Colegio, sorteados de na lista de diez que elaborará la Junta Directiva. En caso de empate, el Presidente tendrá doble voto. El Secretario deberá levantar las actas respectivas.

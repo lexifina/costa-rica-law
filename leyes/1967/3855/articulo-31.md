@@ -1,1 +1,0 @@
-Artículo 31.- Corresponde a los Vocales sustituir por su orden, a los demás miembros de la Junta Directiva en sus ausencias. Los dos primeros Vocales actuarán, además, como contralores del Fondo de Mutualidad y subsidios.

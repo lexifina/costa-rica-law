@@ -1,2 +1,0 @@
-Artículo 21.- La elección de la Junta Directiva se hará por votación secreta cada cargo. En caso de empate, se repetirá la elección entre los tres candidatos que hayan obtenido mayor número de votos. Si en el segundo escrutinio se repitiere el empate, se tendrá por elegido al de mayor edad, y se hará constar el hecho en el acta respectiva.
-La integración de la Junta Directiva se publicará en el Diario Oficial.

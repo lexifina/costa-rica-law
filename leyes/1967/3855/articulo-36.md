@@ -1,1 +1,0 @@
-Artículo 36.- Estarán exentos de contribuir al Fondo de Mutualidad y subsidios, conservando no obstante todos sus derechos, los colegiados mayores de sesenta años, y, temporalmente, aquéllos a quienes la Junta Administrativa conceda esa gracia.

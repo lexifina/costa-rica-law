@@ -1,1 +1,0 @@
-Artículo 16.- Para que se celebre una Asamblea Extraordinaria, es preciso que la convocatoria se publique por lo menor durante dos días consecutivos en “La Gaceta” y en uno de los periódicos de la capital, debiendo mediar por lo menos cinco días hábiles entre la primera publicación y el día señalad; el aviso indicará el objeto de la convocatoria.

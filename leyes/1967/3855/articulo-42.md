@@ -1,1 +1,0 @@
-Artículo 42.- Las deliberaciones y votaciones del Tribunal de Honor serán secretas. En todo caso deberá darse audiencia a los interesados. El fallo se publicará cuando expresamente lo ordene el Tribunal.

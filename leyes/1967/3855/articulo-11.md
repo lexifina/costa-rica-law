@@ -1,3 +1,0 @@
-Artículo 11.- Solo los miembros de este Colegio pueden ejercer la profesión de ingeniero agrónomo en el país; y ello los capacita legalmente para hacerlo en aquellos ramos que constituyen la preparación básica y en general de la profesión.
-Para el ejercicio de un especialización en ingeniería agronómica, se requiere certificado expedido por el Colegio de Ingenieros Agrónomo, de que el interesado ha aprobado cursos en la materia respectiva, en la Universidad de Costa Rica, o en otras universidades reconocidas por las leyes y por los tratados.
-Quedan a salvo los casos exceptuados por tratados internacionales. Reglamentariamente se establecerá el campo de acción profesional de los colegiados, de acuerdo con su especialización y nivel técnico.
