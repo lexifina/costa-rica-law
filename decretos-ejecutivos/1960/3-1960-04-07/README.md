@@ -15,3 +15,4 @@ Reglamento a la ley N° 2426 Ley de Protección y Desarrollo Industrial
 | --- | --- | --- |
 | 1 | 1960-04-14 | la propia norma |
 | 2 | 1961-04-07 | Decreto Ejecutivo 2 (1961-04-07) |
+| 3 | 1965-10-15 | Decreto Ejecutivo 8 (1965-10-15) |
