@@ -1,0 +1,1 @@
+Artículo 3°—El Concejo no podrá escoger a personas que no vengan en la respectiva terna. En el caso de las asociaciones o de la Unión Cantonal de Desarrollo Comunal, los gobiernos estudiantiles y las juntas administrativas, en el momento de enviar las respectivas ternas deberán acompañarlas de una nota debidamente firmada y sellada donde se haga constar el acuerdo respectivo.

@@ -1,0 +1,1 @@
+Artículo 2°—De las ternas que envíen las asociaciones de desarrollo o en su efecto la Unión Cantonal, las juntas administrativas y los gobiernos estudiantiles de los respectivos colegios del cantón al Concejo, se escogerá a un representante por cada entidad.
