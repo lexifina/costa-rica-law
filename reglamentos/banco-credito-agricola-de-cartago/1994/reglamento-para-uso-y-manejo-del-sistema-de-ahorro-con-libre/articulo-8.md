@@ -1,0 +1,1 @@
+Artículo 8°—En caso de cierre de la cuenta antes de transcurrir 30 días desde la fecha de apertura, el Banco cobrará al cliente la suma establecida por la Junta Directiva , con el objeto de resarcirse de los costos incurridos en la apertura de la cuenta.

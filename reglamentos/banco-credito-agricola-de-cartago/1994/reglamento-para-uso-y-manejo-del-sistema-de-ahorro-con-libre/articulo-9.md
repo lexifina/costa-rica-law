@@ -1,0 +1,1 @@
+Artículo 9°—El cuenta-ahorrante deberá mantener la libreta en buen estado físico evitando roturas, manchas y principalmente alteraciones, borrones y tachaduras de los registros impresos en la libreta.

@@ -1,0 +1,2 @@
+Artículo 14.—Todo depósito constituido por cheques y/o lotería y otros documentos, se considerarán en gestión de cobro, no pudiéndose hacer retiros hasta tanto al Banco no se le haya hecho efectivo esos valores-
+El Banco no asume responsabilidad por demoras o negligencia de terceros que se presenten en el cobro de esos valores y queda autorizado para cargar a la respectiva cuenta cualquier documento que resultare incobrable, así como también incluir los cargos por portes de correo en la devolución de los mismos.
