@@ -1,0 +1,1 @@
+Artículo 3º.- Interprétase en forma auténtica el artículo 56 de la ley de Asociaciones Cooperativas, en el sentido de que la elección debe hacerse por un mínimo de la mitad más uno de los votos presentes.
