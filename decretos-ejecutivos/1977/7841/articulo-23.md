@@ -1,0 +1,1 @@
+Artículo 23.- Las disposiciones de la Ley no se aplicarán a los predios situados en la zona marítimo terrestre adquiridos con anterioridad a su vigencia de conformidad con leyes que lo permitieron expresamente, sin perjuicio de las restricciones que el artículo 25 de la Ley establece para el uso particular de la zona pública que comprendan esos predios.

@@ -1,0 +1,1 @@
+Artículo 60.- Para los efectos del artículo anterior, el interesado presentará la solicitud respectiva ante la municipalidad, la cual deberá enviar copia al ICT o al ITCO según corresponda, dentro de los ocho días naturales siguientes. La municipalidad y la institución correspondiente deberán pronunciarse en un plazo de treinta días naturales.

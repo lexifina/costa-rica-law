@@ -1,0 +1,1 @@
+Artículo 37.- Si como resultado del informe del inspector, o por cualquier otra razón contemplada en la Ley o en el reglamento, el Consejo Municipal tuviere que denegar la solicitud, deberá emitir una resolución razonada que así lo indique y notificar al interesado.

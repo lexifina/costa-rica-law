@@ -1,0 +1,1 @@
+Artículo 28.- Toda solicitud o escrito que se presente deberá acompañarse de las copias que la municipalidad indique. La municipalidad hará constar la razón de recibido en el original y cada copia, consignando los datos de rigor (hora, fecha y nombre del empleado que la reciba) y devolverá una copia al portador.

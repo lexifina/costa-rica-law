@@ -1,0 +1,1 @@
+Artículo 29.- Al hacer gestiones personalmente ante la municipalidad, todo interesado deberá identificarse presentando su cédula o documento de identidad, de cuyo número se dejará constancia al abrir el expediente respectivo.

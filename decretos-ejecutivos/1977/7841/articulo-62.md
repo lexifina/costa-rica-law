@@ -1,0 +1,4 @@
+E. Limitaciones y casos especiales:
+Artículo 62.- No se podrán otorgar concesiones en lotes donde no esté demarcada la zona pública. A tal efecto, cada municipalidad demarcará la zona pública a lo largo del litoral de su jurisdicción y en especial en aquellas áreas de la zona marítimo terrestre en que se contemple la construcción de obras o edificaciones, debiendo contratar los estudios necesarios para este fin con el Instituto Geográfico Nacional.
+Para cubrir el costo de la demarcación, las municipalidades podrán cobrar a los concesionarios cuyos lotes colinden con la zona pública una tasa por metro lineal de frente, la cual se calculará dividiendo el costo de la demarcación entre el número de metros lineales que abarque la misma.
+Quienes tengan arrendamientos con base en leyes anteriores podrán contratar la demarcación de la zona pública directamente con el Instituto Geográfico Nacional y el costo correrá por cuenta del interesado.

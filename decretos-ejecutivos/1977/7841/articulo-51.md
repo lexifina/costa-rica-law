@@ -1,0 +1,1 @@
+Artículo 51.- El canon debe ser cancelado por anualidades adelantadas y regirá a partir de la fecha en que quede firme la resolución que apruebe la solicitud. En caso de mora, el derecho de la municipalidad para hacer efectivas las sumas que se le adeudan prescribirá en el plazo de cinco años, conforme lo establece el artículo 86 del Código Municipal.

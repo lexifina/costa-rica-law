@@ -1,0 +1,2 @@
+Artículo 36.- El inspector deberá presentar un informe sobre la inspección realizada en el que indicará, como mínimo, la siguiente información: localización del terreno y uso que se le va a dar: descripción topográfica; linderos; servidumbres aparentes; medida aproximada del lote si no existiere plano; y cultivos o mejoras existentes.
+Cuando se suscitare un conflicto, el inspector deberá levantar un acta haciendo constar en ella las manifestaciones de las partes.

@@ -1,0 +1,1 @@
+Artículo 76.- Cuando pasen a dominio de la municipalidad las mejoras de un predio sin haberse pagado suma alguna por éstas, la municipalidad podrá dar en concesión el predio con las mejoras siguiendo el procedimiento que establece el artículo 60 de la Ley, cuando se aplique.

@@ -1,0 +1,1 @@
+Artículo 42.- Una vez practicada la comparecencia, la oficina de concesiones o el ejecutivo municipal preparará un proyecto de resolución, pronunciándose sobre si se otorga la concesión en forma total o parcial, o si se deniega la solicitud. Este proyecto deberá elevarse al Concejo Municipal para que decida sobre él, según lo estime conveniente.

@@ -1,0 +1,1 @@
+Artículo 85.- A petición de cualquier interesado, la Oficina de Registro otorgará las copias o certificaciones que se le soliciten sobre los actos o contratos que haya registrado o de los que haya tomado razón.

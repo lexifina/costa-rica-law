@@ -1,0 +1,1 @@
+Artículo 13.- Las concesiones en la zona pública a que se refiere el artículo 21 de la Ley, no podrán otorgarse cuando éstas ocasionen perjuicios en contra de los concesionarios o propietarios de los terrenos colindantes, a cuyo efecto la municipalidad deberá notificarlos previo a cualquier acuerdo de concesión.

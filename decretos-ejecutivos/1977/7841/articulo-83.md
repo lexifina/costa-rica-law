@@ -1,0 +1,1 @@
+Artículo 83.- En el Registro se inscribirán lasa concesiones otorgadas, prorrogas o cesiones de los respectivos contratos, los gravámenes que se constituyan, así como cualquier otro acto o contrato que afecte, límite o modifique los derechos derivados de las concesiones.
