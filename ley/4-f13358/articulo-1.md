@@ -1,0 +1,5 @@
+DECRETO IV
+Aprueba los actos del Poder Ejecutivo, contenidos en la Memoria del Señor Ministro de Relaciones y Gobernacion.
+“Juan Rafael Mora Presidente de la República de Costa Rica. -Por cuanto el Excelentísimo Congreso constitucional ha decretado lo siguiente.
+El Excelentísimo Congreso de la República de Costa Rica, habiendo examinado la Memoria que el Ministro de Relaciones y Gobernación presentó en cumplimiento del artículo 86 de la Costitucion de la República, decreta:
+Artículo único. Se aprueban los actos gubernativos á que se refiere la Memoria presentada en 5 del corriente por el Ministro de Relaciones y Gobernacion.--Dado en el Palacio de los Supremos Poderes en San Josê á los quince dias del mes de mayo de mil ochocientos cincuenta y uno. Francisco M. Oreamuno, Presidente. -Modesto Guevara, Secretario. -Manuel Zamora, Secretario. Por tanto: EJECUTESE. Palacio Nacional. San José mayo diezinueve de mil ochocientos cincuenta y uno.-Juan Rafael Mora. -El Ministro de Estado en el Despacho de Gobernacion. -Joaquin Bernardo Calvo"
