@@ -15,3 +15,4 @@ Reglamento Financiación Crédito Fondo Contingencias Bananeras
 | --- | --- | --- |
 | 1 | 1990-06-04 | la propia norma |
 | 2 | 1993-11-10 | Decreto Ejecutivo 22668 (1993-11-10) |
+| 3 | 2000-02-22 | Decreto Ejecutivo 28594 (2000-02-22) |
