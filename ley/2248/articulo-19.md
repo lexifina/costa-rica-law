@@ -1,2 +1,4 @@
 Artículo 19.- La cuota correspondiente al inciso a) del artículo 17 se formará con el total de las cuotas deducidas mensualmente de los salarios de los servidores oficiales o particulares y de las pensiones y jubilaciones, todo de acuerdo con el tanto por ciento que fijará la Junta de Jubilaciones del Magisterio, de acuerdo con el artículo 18 anterior.
 Si al finalizar el año económico hubiere superávit en la cuota a que se refiere este artículo, dicho superávit entrará a formar parte de los fondos de la Junta de Jubilaciones. Si hubiere déficit, la Junta deberá fijar una cuota extraordinaria que permita cubrirlo en el año siguiente.
+El pago de las dietas de los Miembros de la Junta y del personal necesario, se hará con cargo al Fondo de Pensiones y Jubilaciones formado por las cuotas a que se refiere el artículo 17.
+(Así adicionado el párrafo anterior por el artículo 1° de la ley N° 2320 del 4 de febrero de 1959)
