@@ -1,0 +1,6 @@
+Artículo 32.- El Comité Regional será coordinado por uno de sus miembros, nombrado al efecto por el Poder Ejecutivo del ramo. El coordinador tendrá las siguientes funciones:
+a. Formar parte del Consejo Regional de Desarrollo y en el comité Técnico Intersectorial Regional, respectivamente, así como en cualquier otro foro o situación de emergencia donde se requiera la participación del Sector como tal o en negociaciones con grupos especiales de interés o presión, a menos que el Ministro disponga lo contrario expresamente.
+b. Ofrecer el aporte del Sector, cuando sea posible, ante peticiones o solicitudes concretas del Consejo Regional de Desarrollo.
+c. Coordinar las actividades del Sector en la región.
+ch. Reportar al Ministro Sectorial o la Secretaría Ejecutiva de Planificación Sectorial cualquier anomalía por parte de los otros miembros del Comité Sectorial, a fin de que aquel recomiende las acciones correctivas pertinentes a los respectivos superiores jerárquicos del ente y corregir así tales anomalías.
+d. Enviar al Ministro Sectorial cada dos meses un informe detallado de las actividades del Sector en la región, con copia al Consejo Regional de Desarrollo indicando avance de planes y programas de trabajo, logros, obstáculos, aprovechamiento de recursos, etc.

@@ -1,0 +1,1 @@
+Artículo 20.- Para el cumplimiento de sus funciones, la Secretaría Ejecutiva de Planificación Sectorial estará directamente subordinada al Ministerio de Hacienda en su calidad de Ministro Director Político del Sector y para efectos administrativos estará adscrita al Ministerio de Hacienda.
