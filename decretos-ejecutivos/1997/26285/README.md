@@ -14,3 +14,4 @@ Reglamento del Régimen Devolutivo de Derechos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-09-04 | la propia norma |
+| 2 | 1998-08-26 | Decreto Ejecutivo 27329 (1998-08-26) |
