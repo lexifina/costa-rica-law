@@ -1,0 +1,1 @@
+Art 17 Se deroga el artículo 5° del Decreto Ejecutivo número 3 de 16 de octubre de 1855, y en consecuencia, las medidas de pertenencias en los minerales de cobre, hierro y plomo quedarán sujetas a las prescripciones de las Ordenanzas de minería.
