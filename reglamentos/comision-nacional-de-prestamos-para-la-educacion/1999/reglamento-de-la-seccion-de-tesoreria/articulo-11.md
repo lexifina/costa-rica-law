@@ -1,0 +1,1 @@
+Artículo 11.—El Jefe de Tesorería es responsable de custodiar los títulos valores, dinero, garantías, así como otros documentos, propiedad de CONAPE y de terceros cuando medie alguna relación entre las partes, que se encuentren en la Tesorería de CONAPE y supervisa los títulos valores en custodia de entes externos.

@@ -1,0 +1,1 @@
+Artículo 39.—El Jefe de Tesorería obtiene el respectivo endoso de los títulos de inversión o garantías de créditos que serán renovadas, por parte del Secretario Ejecutivo, para lo cual seguirá el procedimiento correspondiente acordado por la Secretaría Ejecutiva.

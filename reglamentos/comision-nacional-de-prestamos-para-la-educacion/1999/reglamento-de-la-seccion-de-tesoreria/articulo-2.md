@@ -1,0 +1,1 @@
+Artículo 2°—El Jefe de Tesorería, en caso de ausencia, es suplido por el funcionario que designe la Jefatura del Departamento Financiero. El Jefe de Tesorería y el funcionario designado deben efectuar los correspondientes arqueos de efectivo, fórmulas de cheques y garantías de crédito, supervisados por la Jefatura del Departamento Financiero.

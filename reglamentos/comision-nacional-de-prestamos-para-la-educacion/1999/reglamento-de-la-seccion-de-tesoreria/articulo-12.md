@@ -1,0 +1,1 @@
+Artículo 12.—El Jefe de Tesorería delega en el cajero y asistente de tesorería las responsabilidades necesarias para el cumplimiento de las funciones encomendadas en los reglamentos, procedimientos y rutinas.

@@ -1,0 +1,1 @@
+Artículo 50.—El Jefe de Tesorería prepara listados al último día del mes de los Títulos Valores y cupones en custodia externa, o bien en custodia de la Tesorería y los presenta a la Jefatura del Departamento Financiero y a la Auditoría Interna.

@@ -1,0 +1,3 @@
+Artículo 36.—La Tesorería devuelve las garantías sobre préstamos, únicamente contra la presentación del formulario de cancelación emitido por la Sección de Cobro, debidamente firmado y sellado por el Jefe de esta Sección.
+a) La Tesorería devuelve los documentos de valor en custodia directamente al prestatario o a quién él autorice, mediante nota de autorización, la presentación de ambas cédulas de identidad y la firma de recibido en el formulario de cancelación emitido por la Sección de Cobro.
+b) La consulta de los documentos de valor en custodia requiere autorización de la Jefatura del Departamento Financiero o previa solicitud del Asesor Legal y el Auditor Interno, cuando sea de sus intereses en funciones de sus cargos.

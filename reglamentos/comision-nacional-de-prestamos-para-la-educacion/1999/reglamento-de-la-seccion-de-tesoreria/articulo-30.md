@@ -1,0 +1,1 @@
+Artículo 30.—Para efectos de Inversiones Transitorias, el Cajero entrega los cheques emitidos a nombre del Puesto de Bolsa, contra los documentos fehacientes cuando el funcionario del Puesto de Bolsa se identifique correctamente como tal.

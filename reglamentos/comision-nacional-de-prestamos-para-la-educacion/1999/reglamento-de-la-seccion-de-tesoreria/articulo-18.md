@@ -1,0 +1,1 @@
+Artículo 18.—El Asistente de Tesorería debe revisar los depósitos de efectivo diarios que prepara el Cajero y que han sido revisados previamente por el Jefe de Tesorería para enviarlos al Banco correspondiente.

@@ -1,0 +1,1 @@
+Artículo 56.—El Jefe de Tesorería elabora una lista mensual de las garantías en custodia por concepto de licitaciones o concursos de antecedentes, los cuales devolverá o mantendrá en custodia de acuerdo con las instrucciones que reciba de la Jefatura del Departamento Financiero.

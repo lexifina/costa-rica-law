@@ -1,0 +1,1 @@
+Artículo 43.—El Jefe de Tesorería registra y custodia los valores recibidos depositándolos en las cajas de seguridad. Deposita todo el dinero en efectivo y los cheques, que ingresen a la Tesorería en las cuentas bancarias de la Institución, a más tardar el día hábil siguiente, dejando en únicamente el Fondo de Trabajo Diario.

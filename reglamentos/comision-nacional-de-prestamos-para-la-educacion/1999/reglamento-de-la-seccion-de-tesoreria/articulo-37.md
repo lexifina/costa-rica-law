@@ -1,0 +1,1 @@
+Artículo 37.—El Jefe de Tesorería o su Asistente, previa autorización de la Jefatura del Departamento Financiero, realizan los trámites de las renovaciones de las garantías respectivas, conjuntamente con el propietario de la garantía, otorgada con certificados de depósito a plazo de cualquier Banco del país u otras Instituciones Financieras aceptadas por CONAPE.

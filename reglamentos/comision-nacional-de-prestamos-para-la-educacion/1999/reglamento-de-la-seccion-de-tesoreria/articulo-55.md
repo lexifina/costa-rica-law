@@ -1,0 +1,1 @@
+Artículo 55.—El Asistente de la Tesorería imprime la nómina de cheques emitidos para el pago de dietas y salarios, por medio del Sistema de Recursos Humanos de CONAPE y la adjunta a éstos para el respaldo de las firmas giradoras.

@@ -1,0 +1,1 @@
+Artículo 58.—El Asistente de Tesorería realizará diariamente cierres de caja respecto del fondo fijo de trabajo que le fue asignado y serán revisados por el cajero. Adicionalmente, la revisión sobre el fondo de trabajo que le fue asignado a partir de las quince horas, será realizada por el Jefe de Tesorería.

@@ -1,0 +1,1 @@
+Artículo 45.—El Jefe de Tesorería, el asistente y el cajero, o cualquier otro funcionario que ejecute labores en la Tesorería responden personalmente por cualquier faltante que sea imputable a estos por dolo, negligencia o error en los valores custodiados (bonos, certificados, pagarés, contratos, recibos, fondos, etc.).

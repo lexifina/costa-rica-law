@@ -1,0 +1,1 @@
+Artículo 21.—El Jefe de Tesorería comunica de inmediato a la Sección de Cobro, la devolución de los cheques de prestatarios no pagados por el Banco, para que se realice la anulación inmediata de estos pagos. Los cheques devueltos serán entregados a sus respectivos prestatarios una vez que sean canceladas en efectivo las correspondientes cuotas en las oficinas de CONAPE.

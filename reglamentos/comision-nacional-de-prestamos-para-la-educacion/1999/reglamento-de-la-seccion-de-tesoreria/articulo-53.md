@@ -1,0 +1,1 @@
+Artículo 53.—El Jefe de Tesorería emite un reporte mensual del inventario de cupones y consumo de combustibles, ordenado por departamentos, para presentarlo a la Jefatura del Departamento Financiero y al Jefe de la Sección Administrativa.

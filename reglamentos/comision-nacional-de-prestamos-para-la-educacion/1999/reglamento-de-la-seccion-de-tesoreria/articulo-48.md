@@ -1,0 +1,1 @@
+Artículo 48.—El Jefe de Tesorería elabora semanalmente un reporte de flujo de efectivo proyectado a un mes, para entregarlo a la Jefatura del Departamento Financiero, la Secretaría Ejecutiva y Auditoria Interna.

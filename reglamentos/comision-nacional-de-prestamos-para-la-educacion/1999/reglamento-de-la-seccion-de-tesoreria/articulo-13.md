@@ -1,0 +1,1 @@
+Artículo 13.—El Jefe de Tesorería es responsable de realizar los trámites de inversiones en títulos valores a través de los Puestos de Bolsa de Valores autorizados por CONAPE, con la debida autorización de la Jefatura del Departamento Financiero o del Secretario Ejecutivo, de acuerdo con las políticas establecidas por el Comité de Inversiones de CONAPE.

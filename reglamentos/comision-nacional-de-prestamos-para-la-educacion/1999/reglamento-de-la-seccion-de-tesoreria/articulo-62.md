@@ -1,0 +1,1 @@
+Artículo 62.—Se deroga el anterior Reglamento, aprobado por el Consejo Directivo y publicado en el Alcance N° 44 de “La Gaceta” 201, del 24 de octubre de 1995, a partir de la vigencia del presente Reglamento.

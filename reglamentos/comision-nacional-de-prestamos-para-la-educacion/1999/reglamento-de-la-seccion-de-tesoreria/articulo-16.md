@@ -1,0 +1,1 @@
+Artículo 16.—El Asistente de Tesorería debe remitir las copias de los comprobantes de ingreso a la Contabilidad y Auditoría Interna. Corresponderá a la Sección de Cobro suministrar y preparar estos comprobantes de ingreso.
