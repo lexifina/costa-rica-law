@@ -44,3 +44,5 @@ B.2. Personas jurídicas (nacionales o extranjeras):
 · estar al día con sus obligaciones obrero patronales tratándose
 · de empresas costarricenses.
 · Cancelación del canon respectivo.
+La presentación de documentos y firma de las solicitudes correspondientes, anteriormente establecidos, podrán ser realizadas por el titular o propietario de la embarcación o en su defecto, por el capitán de la misma, tanto para personas físicas como jurídicas.
+(Así adicionado el párrafo anterior mediante acuerdo N° 18 del 14 de enero del 2005).

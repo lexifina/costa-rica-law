@@ -14,3 +14,4 @@ Requisitos para otorgra licencias, permisos y carné de pesca, sustitución, ina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-07 | la propia norma |
+| 2 | 2005-01-14 | Acuerdo 18 (2005-01-14) |
