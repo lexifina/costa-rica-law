@@ -1,0 +1,1 @@
+Art. 8. Queda derogada la contribución del Estado para los empleados y funcionarios que no tienen derecho á que se les conceda el retiro, con goce de jubilación ó montepío; pero á los que lo tengan, se les rebajará de sus sueldos el cuatro por ciento.

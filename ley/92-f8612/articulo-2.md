@@ -1,0 +1,1 @@
+Art. 2. El Jefe Supremo, mil y quinientos pesos anuales: el Vice- Jefe cuando sea llamado al Gobierno, id.: el Ministro General, mil pesos: el oficial mayor, quinientos pesos: dos oficiales de pluma, trescientos pesos cada uno, señalándose ochocientos pesos anuales para gastos extraordinarios del Gobierno.
