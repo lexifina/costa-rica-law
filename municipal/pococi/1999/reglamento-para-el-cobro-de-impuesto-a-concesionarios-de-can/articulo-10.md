@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad tiene la facultad en cualquier tiempo de verificar el correcto cumplimiento de las obligaciones tributarias a que se refiere este Reglamento, utilizando para ello lo estipulado en el artículo 103 del Código de Normas y Procedimientos Tributarios.

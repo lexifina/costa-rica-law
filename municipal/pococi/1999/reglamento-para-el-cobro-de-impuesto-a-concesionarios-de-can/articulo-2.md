@@ -1,0 +1,1 @@
+Artículo 2º—Es sujeto activo de este Impuesto la Municipalidad de Pococí, la cual para los efectos de la relación jurídico-tributaria y en su condición de administración tributaria de este impuesto, hará uso de las facultades y prerrogativas que contempla el Código de Normas y Procedimientos Tributarios, Código de Minería, Código Municipal y el presente Reglamento.
