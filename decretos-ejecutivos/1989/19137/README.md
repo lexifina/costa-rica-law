@@ -14,3 +14,4 @@ Reglamento para la Incorporación de los Funcionarios del Ministerio de Relacion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-07-12 | la propia norma |
+| 2 | 1993-06-30 | Decreto Ejecutivo 22506 (1993-06-30) |
