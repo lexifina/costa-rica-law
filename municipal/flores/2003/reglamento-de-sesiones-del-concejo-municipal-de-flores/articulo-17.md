@@ -1,0 +1,1 @@
+Artículo 17.—Las sesiones de Concejo se desarrollarán conforme con la orden del día previamente elaborada y debe darse a conocer al inicio de cada sesión; la cual podrá ser variada mediante acuerdo aprobado por dos terceras partes de los miembros presentes.

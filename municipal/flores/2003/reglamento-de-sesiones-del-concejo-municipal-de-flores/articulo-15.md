@@ -1,0 +1,1 @@
+Artículo 15.—El Regidor(a) propietario(a) que llegare después de transcurridos los quince minutos a partir de la hora señalada para iniciar la sesión, perderá el derecho de devengar la dieta aunque no se hubiere sustituido. Si no hubiere sido sustituido conservará su derecho a voz y a voto.

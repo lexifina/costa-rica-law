@@ -1,0 +1,1 @@
+Artículo 63.—Las comisiones despacharán los asuntos a su cargo con la mayor brevedad posible. El plazo máximo para rendir un dictamen será de diez días naturales, plazo que se contará a partir del día siguiente a aquél que se les asignó el asunto, o bien, en casos especiales el Presidente(a) del Concejo en forma expresa podrá fijar un término menor o mayor.

@@ -1,0 +1,1 @@
+Artículo 52.—Se podrán nombrar las Comisiones Especiales que decida crear el Concejo y el Presidente(a) Municipal se encargará de integrarlas. El período de vigencia dependerá de la función específica que se le asigne, a juicio del Concejo.

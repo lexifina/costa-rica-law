@@ -1,0 +1,1 @@
+Articulo 57.—Una vez designadas las comisiones por el Presidente Municipal, sus miembros, en la sesión de instalación, que deberá celebrarse dentro de los 15 días siguientes, nombrarán de su seno a quienes tengan la función de Presidente(a) y Secretario(a).

@@ -1,0 +1,1 @@
+Artículo 23.—El Consejo recibirá audiencias en la primera y tercera sesión de cada mes, no pudiendo incorporarse en el orden del día más de dos por sesión, salvo que sea por decisión del Concejo. En casos especiales, el Concejo determinará si acepta dar más audiencias o darlas en otras sesiones o aumentar el número de estas para una sesión específica.

@@ -1,0 +1,1 @@
+Artículo 19.—Por iniciativa del Presidente(a) o de los(as) regidores(as) en la sesión, se podrán incluir asuntos de trámite urgente, con votación al menos de dos terceras partes de los miembros del Concejo.

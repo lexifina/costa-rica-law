@@ -1,0 +1,3 @@
+CAPÍTULO V
+De las intervenciones de particulares
+Artículo 66.—Cuando la índole de algún asunto lo amerite, previo acuerdo al respecto, podrá el Concejo invitar a personas particulares para que asistan a las sesiones. Toda persona particular que tenga interés en los asuntos de la Municipalidad, podrá solicitar ser oído por el Concejo, para tal efecto presentará su solicitud de audiencia en forma escrita y con el asunto que expondrá, al menos con 8 días de anticipación. Salvo en aquellos casos que el Presidente(a) del Concejo autorice justificadamente el no cumplir con este requisito, cuando por fuerza mayor o urgencia así lo requiera.

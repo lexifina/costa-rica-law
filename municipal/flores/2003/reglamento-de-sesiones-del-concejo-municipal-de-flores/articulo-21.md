@@ -1,0 +1,1 @@
+Artículo 21.—En el capítulo de regidores, éstos presentarán las Mociones y Proposiciones por escrito y firmadas. El secretario anotará la hora y fecha en que fueron presentados y serán conocidas en estricto orden de presentación, salvo cuando se trate de mociones de orden.

@@ -1,0 +1,1 @@
+Artículo 70.—Cuando concurrieren a sesión uno o varios particulares, a quienes se le haya concedido audiencia, el Presidente(a) hará la presentación de rigor exponiendo los motivos de la presencia y de inmediato les concederá el uso de la palabra por 10 minutos como máximo para que haga(n) la exposición breve y concisa correspondiente.

@@ -1,0 +1,1 @@
+Artículo 55.—Las Comisiones Especiales estarán integradas al menos por tres miembros, dos de los cuales deben ser regidores propietarios o suplentes, pudiendo integrar estas, síndicos, propietarios o suplentes con derecho a voz y voto. Miembros ajenos a este Concejo, podrán participar en calidad de asesores.

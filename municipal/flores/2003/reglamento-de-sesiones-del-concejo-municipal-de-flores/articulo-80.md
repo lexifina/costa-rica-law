@@ -1,0 +1,2 @@
+Artículo 80.—Las comisiones actualmente conformadas no variarán su constitución y se mantendrán vigentes hasta el 8 de mayo del año 2003, cuando se conformarán nuevamente de acuerdo a este reglamento.
+El Concejo Municipal de Flores, mediante acuerdo VIII, de la sesión ordinaria Nº 103 del 28 de octubre del 2003, aprobó el Reglamento de Sesiones del Concejo Municipal de Flores. Acuerdo ratificado en sesión ordinaria Nº 106 del 11 de noviembre del 2003. San Joaquín de Flores, 29 de enero del 2004.—

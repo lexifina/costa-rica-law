@@ -1,0 +1,1 @@
+Artículo 4º—Las sesiones ordinarias del Concejo se celebrarán los días y a la hora acordadas por el Concejo. En caso de coincidir este día con un feriado, la sesión podrá celebrarse el día hábil siguiente a la misma hora.

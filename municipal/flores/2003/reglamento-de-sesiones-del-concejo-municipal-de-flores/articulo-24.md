@@ -1,0 +1,1 @@
+Artículo 24.—De toda sesión del Concejo se levantará un acta en la que se harán constar los acuerdos tomados y las deliberaciones habidas en forma sucinta, salvo el caso de nombramientos o elecciones, en los que se hará constar únicamente el acuerdo tomado. Cuando lo requiera un regidor(a) puede dejar constando también en el acta sus declaraciones específicas.

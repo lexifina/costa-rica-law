@@ -1,0 +1,1 @@
+Artículo 26.—Una vez leída el acta y antes de su aprobación, cualquier regidor(a) podrá plantear revisión de acuerdos, salvo aquellos que hayan sido declarados definitivamente aprobados conforme al Código Municipal. La misma mayoría requerida para dictar el acuerdo, será necesaria para acordar su revisión.

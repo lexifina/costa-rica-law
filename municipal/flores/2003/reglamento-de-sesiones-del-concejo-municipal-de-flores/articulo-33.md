@@ -1,0 +1,1 @@
+Artículo 33.—Toda iniciativa a adoptar, reformar, suspender o derogar las disposiciones reglamentarias, deberá ser presentada o acogida para su trámite por el Alcalde Municipal o alguno de los regidores y enviada a comisión para el estudio y dictamen. En todos los demás casos las mociones deben ser presentadas y/o acogidas por los regidores.

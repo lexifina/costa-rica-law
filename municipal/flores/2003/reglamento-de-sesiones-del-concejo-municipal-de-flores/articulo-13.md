@@ -1,0 +1,1 @@
+Artículo 13.—Transcurridos los 15 minutos exactos sin que se inicie la sesión, el Concejo no podrá sesionar. Si pasado ese lapso no hubiere quórum, debe quedar constancia en el Libro de Actas de los miembros presentes. La sesión que comenzare después de los 15 minutos sería absolutamente nula y los acuerdos también, incluso el acto del presidente(a) de darla por iniciada.

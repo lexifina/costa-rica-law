@@ -1,0 +1,1 @@
+Artículo 51.—En la sesión del Concejo o posterior inmediata a la instalación de sus miembros, el Presidente entrante o reelegido si es el caso, nombrará a los miembros que irán a formar las Comisiones Permanentes, cuya conformación podrá variarse anualmente. Al integrarlas, se procurará que participen en ellas todos los partidos políticos representados en el Concejo.

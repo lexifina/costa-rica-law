@@ -1,0 +1,1 @@
+Artículo 22.—Cuando concurrieran invitados especiales, miembros de los Supremos Poderes, de Instituciones Autónomas o semiautónomas, o representantes de organismos oficiales o extranjeros, se les recibirá en el salón de sesiones a la hora fijada para tal efecto e inmediatamente después del saludo de rigor, se les concederá el uso de la palabra.

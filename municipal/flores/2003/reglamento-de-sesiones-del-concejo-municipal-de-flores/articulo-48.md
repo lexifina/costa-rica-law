@@ -1,0 +1,1 @@
+Artículo 48.—Si el Presidente(a) no impone el orden, el regidor puede presentar la moción de orden, la cual no necesita ser apoyada ni puede ser rebatida ni se somete a votación para que el(la) Presidente(a) la declare con lugar y corregir la falta de acuerdo con las normas reglamentarias del Concejo.

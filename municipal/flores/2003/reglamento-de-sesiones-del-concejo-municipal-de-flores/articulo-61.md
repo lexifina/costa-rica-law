@@ -1,0 +1,1 @@
+Artículo 61.—El quórum requerido para sesionar en todas las comisiones permanentes y especiales será de la mitad más uno de sus miembros y sus acuerdos se tomarán con el carácter de firmes y por simple mayoría.

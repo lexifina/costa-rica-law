@@ -1,0 +1,1 @@
+Artículo 46.—Otro miembro del Concejo puede mocionar en el sentido de que desea modificar la moción propuesta y entonces se discutirá esta nueva moción votando luego la primera y después la segunda moción presentada.

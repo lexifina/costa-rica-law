@@ -1,0 +1,1 @@
+Artículo 30.—Todo acuerdo debe tomarse previo a un proyecto o moción escrita y firmada por el proponente, y dictamen de una comisión del Concejo, y después de considerarse suficientemente discutido el asunto. El dictamen de comisión podrá dispensarse en casos urgentes, por medio de una moción de orden, aprobada por votación calificada de los miembros presentes del Concejo.

@@ -1,0 +1,1 @@
+Artículo 77.—De conformidad con lo establecido en el artículo 43 del Código Municipal, este Reglamento se somete a consulta pública no vinculante por el plazo de diez días, transcurrido el cual se pronunciará sobre el fondo del asunto.

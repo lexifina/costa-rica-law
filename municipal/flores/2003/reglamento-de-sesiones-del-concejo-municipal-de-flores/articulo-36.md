@@ -1,0 +1,1 @@
+Articulo 36.—Excepto en las votaciones nominales, los regidores(as) que voten en forma afirmativa lo harán levantando la mano, en este sentido se entenderá que aquellos regidores(as) que no lo hacen están votando en forma negativa.

@@ -1,0 +1,1 @@
+Artículo 43.—Las mociones o proyectos, deben presentarse por escrito y debidamente firmados por los proponentes, en donde el secretario anotará la fecha y la hora de su presentación, y deben ser conocidas en estricto orden. En caso de que el plenario no pueda conocer todas las mociones, debe mantenerse el mismo orden de presentación en las siguientes sesiones.

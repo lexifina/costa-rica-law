@@ -1,0 +1,1 @@
+Artículo 73.—Si en el uso de la palabra, alguna persona ofende el decoro de los regidores o cualquiera de los presentes, el Presidente le quitará la palabra y definirá lo procedente. Será potestad del Presidente Municipal, denunciar de acuerdo con el artículo 398 del Código Penal, al que interrumpiere, insultare o diere gritos dentro del Salón de Sesiones.

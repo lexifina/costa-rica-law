@@ -1,0 +1,1 @@
+Artículo 67.—Cuando el objeto de la audiencia fuere de competencia del Alcalde(sa), el Presidente(a) ordenará a la Secretaria(o) remitir el memorial presentado a dicho funcionario, quien le dará el trámite correspondiente. La secretaria(o) lo hará del conocimiento de los interesados.

@@ -1,0 +1,1 @@
+Artículo 10.—El quórum para sesionar será la mitad más uno de los miembros con derecho a voto en el Concejo, el cual está integrado en el Concejo Municipal de Flores por cinco regidores y regidoras, quienes deberán encontrarse en su respectiva curul al inicio de la sesión para la deliberación y al efectuarse las votaciones.

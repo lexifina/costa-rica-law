@@ -1,0 +1,1 @@
+Artículo 9º—Las sesiones del Concejo Municipal deberán celebrarse en el local sede de la Municipalidad de Flores. Podrán realizarse sesiones en otros distritos del cantón de Flores cuando las circunstancias ameriten trasladarse a ellos y deben necesariamente tratarse asuntos relacionados con el respectivo distrito siempre y cuando el Concejo así lo acuerde.

@@ -1,0 +1,1 @@
+Artículo 42.—El Alcalde Municipal y los síndicos, con excepción de lo expuesto en el artículo 35 de este reglamento, no están facultados para mocionar y sus iniciativas sólo podrían concretarse en mociones por medio de un regidor.
