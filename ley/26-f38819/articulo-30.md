@@ -1,1 +1,2 @@
-Art. 30.-La primera hoja del protocolo contendrá la razón de entrega, en la que se hará constar el número de folios que contenga el libro y el hecho de hallarse todos en perfecto estado de limpieza. Esta razón la firmarán el Subsecretario de Gobernación y el Notario ó Cartulario, al verificarse la entrega del libro.
+Articulo 30.-La primera hoja del protocolo contendrá la razón de entrega, en la que se hará constar el número de folios que contenga el libro y el hecho de hallarse todos en perfecto estado de limpieza. Esta razón la firmaran el Secretario, o cualquiera de los Prosecretarios de la Corte Suprema de Justicia, y el Notario o Cartulario, al verificarse la entrega del libro.
+(Así reformado por el artículo único de la ley N° 364 del 21 de agosto de 1941).
