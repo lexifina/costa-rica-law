@@ -98,6 +98,9 @@ URBANIZACIONES
 3. Presentar pruebas de laboratorio de calles, aceras, cordón y caños.
 4. Presentar 5 copias de láminas para efectos catastrales.
 5. Entregar las áreas públicas mediante escritura y planos catastrados, según las especificaciones técnicas aprobadas en el trámite del proyecto.
+(El Concejo Municipal de Moravia en sesión ordinaria N° 64 de 21 de julio de 2003, publicada en La Gaceta N° 153 de 11 de agosto de 2003, acuerda la inclusión de un adendum en los requisitos para recepción de urbanizaciones, publicado en La Gaceta Nº 159 del 21 de agosto del 2002, que indica: "solicitud de plano de planta de tratamiento de aguas residuales para todo proyecto urbanístico, residencial y/o de segregación donde no exista red sanitaria interconectada y Plano de planta de tratamiento de aguas residuales para todo proyecto urbanístico, residencial y/o de segregación donde no exista red sanitaria interconectada". )
+Acuerdo definitivamente aprobado.
+Moravia, 22 de julio del 2003.—
 CUADRO Nº 1.7
 6. - PATENTES NUEVAS
 A- Uso del suelo aprobado. Ver cuadros 1, 2 y 10.

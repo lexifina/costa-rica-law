@@ -14,3 +14,4 @@ Establece requisitos y trámites a efectuarse en la Municipalidad de Moravia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-21 | la propia norma |
+| 2 | 2003-07-21 | Reglamento municipal 64 (2003-07-21) |
