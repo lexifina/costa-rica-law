@@ -13,3 +13,4 @@ BCCR SUGEF: Exime a Cooperativas Ahorro y Crédito con Activos Menores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-29 | la propia norma |
+| 2 | 1999-08-16 | Acuerdo 109 (1999-08-16) |
