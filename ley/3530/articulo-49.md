@@ -1,0 +1,1 @@
+Artículo 49.- Los funcionarios en Comisión serán libremente nombrados y removidos por el Poder Ejecutivo y podrán ser llamados a desempeñar sus cargo también ad honórem, siempre que el nombramiento se haga por un plazo no mayor de seis meses.
