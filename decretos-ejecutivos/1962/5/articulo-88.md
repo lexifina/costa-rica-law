@@ -1,0 +1,1 @@
+Artículo 88.—El Consejo Superior procurará el establecimiento de sistemas de becas para mejorar el Servicio de Defensa Social mediante un reglamento adecuado. Ese sistema podrá organizarse directamente o mediante solicitud a otros organismos del Estado que tengan ese régimen, todo de acuerdo con las leyes.

@@ -1,0 +1,1 @@
+Articulo 739.—Es obligatorio para las autoridades a quienes lleguen tales denuncias, investigar y tramitar a la mayor brevedad las causas correspondientes acerca de los hechos relatados por los Inspectores de Defensa Social.

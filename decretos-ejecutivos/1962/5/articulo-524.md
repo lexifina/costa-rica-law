@@ -1,0 +1,1 @@
+Artículo 524.—Únicamente el Consejo de. Disciplina, a su prudente arbitrio, se reservará el derecho de imponer las sanciones por aquellas faltas cuya represión considere que debe ser de su competencia.

@@ -1,0 +1,1 @@
+Artículo 430.—Mensualmente, el Director se reunirá con su personal subalterno, a fin de discutir los planes de mejoramiento del Centro, cuya realización se intenta, y para revisar los que ya tienen en práctica.

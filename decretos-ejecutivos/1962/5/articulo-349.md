@@ -1,0 +1,1 @@
+Artículo 349.—La duración de cualquier visita no podrá exceder de veinte minutos; esta disposición no rige durante los días jueves, viernes y domingos. En cuanto al día domingo la no vigencia de esta disposición se refiere, única y exclusivamente, a la esposa o concubina autorizada. La duración de la visita la, fijará en estos casos, discrecionalmente, la Dirección.

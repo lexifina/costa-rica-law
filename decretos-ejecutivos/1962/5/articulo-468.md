@@ -1,0 +1,1 @@
+Artículo 468.—El Administrador deberá obtener trabajo para los talleres, allegando materiales y contratando obras, conforme a lo dicho en los artículos 144 a 153 de este Reglamento Orgánico, de modo que tales trabajos puedan siempre servir al aprendizaje de los menores.

@@ -1,0 +1,2 @@
+Artículo 412.—Por lo menos tres veces al día una ronda de guardianes, a cargo de un Inspector o Subinspector, organizada por el Supervisor de Disciplina, revisará las puertas de seguridad del establecimiento, las verjas, cerraduras, cerrojos y demás elementos de seguridad.
+Con la mayor frecuencia posible se registrarán las camas, ropas y efectos de los internos, practicándose este registro, en presencia de los interesados.

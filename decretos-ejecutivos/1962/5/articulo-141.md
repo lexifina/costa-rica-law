@@ -1,0 +1,2 @@
+Artículo 141.—El Jefe de la Contabilidad Central presentará los estados que exija la Contraloría General de la República, de los que se entregará copia a la Fiscalía Económica y Auditoría para conocimiento del Consejo.
+También presentará el citado Jefe, al Fiscal Económico, cada mes, los estados de las cuentas indicadas en el artículo 118, así como el balance de las partidas. de presupuesto en cada uno de los renglones correspondientes, con copia para la Contraloría General de la República, la Secretaría General y el Director General.

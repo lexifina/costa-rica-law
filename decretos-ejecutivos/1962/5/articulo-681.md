@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la Sección Penitenciaria
+Artículo 681.—Los cursos de esta Sección comprenderán un ciclo elemental de dos años y uno superior de un año. Pero, a los postulantes que fueren miembros del personal de Defensa Social y no hubieren cursado su primer enseñanza, se les organizará un curso preparatorio de dos años, que comprenderá asignaturas apropiadas para la inteligencia de las materias que se imparten en la Escuela. Los postulantes que demuestren capacidad suficiente en determinada materia, podrán, mediante exámenes, adquirir el crédito suficiente en las mismas a fin de acortar su estada en la preparatoria, que, de tal suerte, podrá reducirse a un año.

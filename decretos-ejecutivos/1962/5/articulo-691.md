@@ -1,0 +1,1 @@
+Articulo 691.—El Servicio Civil y el Consejo Superior preferirán, en igualdad de condiciones, a los graduados en la Escuela Penitenciaria para los nombramientos y ascensos en el Departamento Nacional.

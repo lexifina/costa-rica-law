@@ -1,0 +1,1 @@
+Artículo 267.—En caso de ineficiencia o de indisciplina o porque el miembro del personal sanitario de los centros correccionales no atienda las directrices de la terapia criminológica que se le indiquen para ser aplicadas en cada caso, el Consejo podrá ordenar una investigación y tomar las medidas que estime pertinentes .

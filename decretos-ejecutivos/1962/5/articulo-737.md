@@ -1,0 +1,1 @@
+Artículo 737.—Es obligación primordial de los Inspectores de Defensa Social velar por el fiel cumplimiento de todas las normas legales y reglamentarias atinentes con la moral ambiente y las buenas costumbres como parte de la prevención social que debe realizar aquella Sección.

@@ -1,0 +1,1 @@
+Artículo 153.—La producción de las granjas agrícolas y talleres de los establecimientos, será puesta semanalmente a la orden de la Proveeduría del Consejo Superior, que llevará mensualmente una contabilidad por actividades y por establecimientos, de la que informará mensualmente a la Contabilidad Central, con copia al Fiscal Económico y al Auditor.

@@ -1,0 +1,1 @@
+Artículo 804.—Los Inspectores tendrán libre acceso a todos los teatros y cinematógrafos, para el mejor cumplimiento de su misión, a cuyo efecto serán provistos de una tarjeta especial que deberán mostrar a la entrada del espectáculo si desean hacer uso del derecho que aquí se les confiere.

@@ -1,0 +1,1 @@
+Artículo 69.—Forman el personal administrativo los empleados de oficina que desempeñen funciones de secretariado, contabilidad, archivo, estadística criminológica, biblioteca y demás auxiliares tales como taquígrafos, mecanógrafos, notificadores, porteros, conductores de vehículos y otros similares.

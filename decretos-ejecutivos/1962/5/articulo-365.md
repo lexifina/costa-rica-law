@@ -1,0 +1,1 @@
+Artículo 365.—Al salir liberado, el interno recibirá de la Contabilidad del Centro un detalle completo que abarcará un período mínimo de seis meses, con el saldo que tenga en su cuenta corriente, así como las joyas y valores que haya dejado en depósito al ingresar al establecimiento, de todo lo cual se extenderá recibo con su copia para la- Contabilidad Central.

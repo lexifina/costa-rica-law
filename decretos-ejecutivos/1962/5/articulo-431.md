@@ -1,0 +1,1 @@
+Artículo 431.—El Director deberá estar en contacto frecuente con las autoridades e instituciones que se relacionen con los menores, tanto para recabar su cooperación como para dispensarles la del Centro. Para participar en reuniones o movimientos de otros organismos deberá recabar permiso del Director General.

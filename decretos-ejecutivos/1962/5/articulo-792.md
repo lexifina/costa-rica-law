@@ -1,0 +1,1 @@
+Artículo 792.—El Consejo Superior, además de sus facultades de Tribunal Superior Calificador, actuará como organismo consultivo y de orientación de la Junta de Censura, con cuyos miembros se reunirá una vez cada tres meses o antes si lo creyera necesario. En estas reuniones también se dispondrá la linea a seguir por la Oficina.

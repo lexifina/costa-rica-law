@@ -1,0 +1,1 @@
+Artículo 575.—Mensualmente, el Director de la Colonia informará a la Dirección General, acerca del estado de las lanchas y muelles de la Isla, de los servicios prestados y de cualquiera otra particularidad que no amerite el reporte inmediato que preceptúa el artículo 573.

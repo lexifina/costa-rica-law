@@ -1,0 +1,1 @@
+Artículo 265.—El aseo personal del interno es obligatorio. Los establecimientos deberán proveer al recluso de los elementos indispensables para su higienización. El incumplimiento de las normas de higiene, da motivo para la aplicación de una sanción disciplinaria, según el grado de la falta que se cometa.

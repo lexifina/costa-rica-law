@@ -1,0 +1,1 @@
+Artículo 359.—Cada día de pago, si el interno está prestando servicios es alguna labor remunerada, se acreditará en su cuenta corriente el monto de esos salarios. En esa misma cuenta se acreditarán las entradas que el interno tenga. por cualquier concepto. De ello se llevará minuta en la tarjeta especial que el recluso conservará.

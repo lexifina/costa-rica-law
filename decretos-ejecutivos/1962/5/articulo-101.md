@@ -1,0 +1,1 @@
+Artículo 101.—El abandono injustificado del trabajo por medio día cuando menos será sancionado en la forma siguiente: por la primera vez, amonestación escrita; por la segunda, despido sin responsabilidad patronal. La reincidencia en el abandono se computará dentro del término de dos meses. Se considerará como abandono la llegada tardía que exceda de quince minutos.

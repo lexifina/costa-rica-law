@@ -1,0 +1,1 @@
+Artículo 800.—En materia de espectáculos los Inspectores tendrán a su cargo el fiel cumplimiento de las disposiciones de la Oficina de Censura en el área que el Consejo Superior de Defensa Social les asigne, para lo cual tendrán libre acceso a los espectáculos públicos, únicamente de su jurisdicción conforme al articulo 804.

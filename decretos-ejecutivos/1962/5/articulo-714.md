@@ -1,0 +1,1 @@
+Artículo 714.—El precio de venta por ejemplar lo fijará el Instituto, así como el valor de la suscripción anual. Podrá variar las tarifas cuando las circunstancias lo ameriten. Estas disposiciones deberán ser aprobadas por el Consejo Superior para su validez.

@@ -1,0 +1,1 @@
+Artículo 234.—El trabajo de los internos tiene fundamentalmente un sentido terapéutico y será dirigido y organizado por el Instituto a través de la Dirección General, procurando la industrialización de los centros correccionales de máxima seguridad y a la capacitación agrícola en las colonias de régimen semi-abierto y abierto.

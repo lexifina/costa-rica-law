@@ -1,0 +1,2 @@
+Artículo 371.—Los libros podrán ser leídos en el mismo local de la Biblioteca o entregados durante un tiempo prudencial a quienes .lo solicitaren, mediante recibo.
+Para uno u otro caso, el maestro encargado propondrá al Director del establecimiento las medidas necesarias para la conservación y buen uso de los libros. El recluso responderá con su cuenta corriente de la buena conservación y del extravío de los libros prestados.

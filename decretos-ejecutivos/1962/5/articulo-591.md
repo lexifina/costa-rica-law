@@ -1,0 +1,1 @@
+Artículo 591.—En cuanto a disciplina, visitas, régimen de vida, horarios de trabajo y demás regulaciones, se aplicarán los preceptos establecidos para los correccionales sometidos a régimen semiabierto o cerrado, según el caso, y siempre que no contradigan las disposiciones del presente Titulo.

@@ -1,0 +1,1 @@
+Artículo 777.—La Oficina de Censura pondrá especial cuidado al calificar las llamadas revistas científicas, de carácter sexual o informativo en el ramo de la educación sexual, artística o fotográfica, a fin de permitir la que es realmente artística o científica y eliminar la que se escude bajo ese rubro con el Sin de encubrir literatura pornográfica u obscena.

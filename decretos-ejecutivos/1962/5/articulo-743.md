@@ -1,0 +1,2 @@
+Artículo 743.—El Departamento de Prevención presentará, anualmente, una memoria que se refiera a sus labores, sugestiones, programas, al Consejo Superior de Defensa Social, en la que se referirá, además, a las funciones que le encomiendan los artículos 54 a 59 y cualquier otra atribución, enumeradas en el presente Reglamento Orgánico.
+De esa Memoria pasará copia a la Dirección General y al Instituto.

@@ -1,0 +1,1 @@
+Artículo 139.—De todo producto o enser que salga de las bodegas de un establecimiento, para consumo del mismo, traslado a otro establecimiento, o venta u otro motivo, establecerá el Administrador o el Contador del Centro una factura o guía, según el caso, de la que se pasará copia inmediatamente al Fiscal Económico, al Director General, al Auditor y a la Contabilidad Central.

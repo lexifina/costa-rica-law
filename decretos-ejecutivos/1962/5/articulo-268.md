@@ -1,0 +1,1 @@
+Artículo 268.—El personal técnico destinado al estudio y cuidado psíquico y psicológico de los internos, será nombrado directamente por el Consejo Superior, mediante el Servicio Civil y con intervención del Instituto de quien dependerá en los aspectos administrativos, técnicos y disciplinarios.

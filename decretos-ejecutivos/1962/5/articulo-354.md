@@ -1,0 +1,1 @@
+Artículo 354.—Los días domingos y viernes podrán usarse las celdas conyugales ; esta oportunidad, sin embargo, será concedida única y exclusivamente, a los recluidos de buena conducta que no estén detenidos por faltas de policía.

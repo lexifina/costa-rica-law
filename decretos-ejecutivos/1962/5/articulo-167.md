@@ -1,0 +1,3 @@
+Artículo 167.—Para los efectos del artículo anterior, el precio de venta de los artículos que se expendan en los economatos se calculará sobre su costo neto más los gastos de administración y un diez por ciento adicional, que se considerará compensador de derrames, roturas, deterioro o pérdida que sufra la mercadería adquirida.
+El costo de administración de cada Economato será cuidadosamente determinado por la Sección de Auditoría y servirá de base para la fijación del precio de venta de cada artículo, conforme a lo dicho en el párrafo anterior.
+En concordancia con la Ley de Defensa Económica y con lo estatuido es este Reglamento Orgánico, cada artículo que se ofrezca en estos Economatos deberá marcarse con su correspondiente precio de venta.

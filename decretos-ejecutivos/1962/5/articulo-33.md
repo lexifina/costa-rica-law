@@ -1,0 +1,1 @@
+Artículo 33.—Cuando resulte necesario el dictamen de un especialista, podrá solicitarlo así el informante o disponer el Consejo el examen respectivo, diligencia que llevará a cabo uno de sus miembros o el técnico a la orden del Consejo que éste designe.

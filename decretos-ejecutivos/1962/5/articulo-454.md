@@ -1,0 +1,1 @@
+Artículo 454.—Se establecerán, para los menores, servicios técnicos asistenciales, en materia médica, psiquiátrica, odontológica, y en cuanto a enfermería, psicología, psicometría, servicio social y capellanía, así como cualquiera otro que se estime de necesidad, organizado de acuerdo .con los métodos y procedimientos, que recomiende el Instituto y apruebe el Consejo Superior.,

@@ -1,0 +1,1 @@
+Artículo 780.—En general será sancionado de conformidad con el artículo 94, inciso 10) del Código de Policía al que infringiere las disposiciones de este Título u operare la venta clandestina de las publicaciones aquí prohibidas y así declaradas en resolución firme de la Oficina de Censura.

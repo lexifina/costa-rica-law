@@ -1,0 +1,1 @@
+Artículo 418.—La Dirección decidirá lo anterior previa consulta con el Supervisor de Educación Correccional sobre las películas que se pasen a los reclusos, así como sobre las obras teatrales o demás espectáculos que se les ofrezcan. En caso de discrepancia resolverá el Instituto.

@@ -1,0 +1,1 @@
+Artículo 465.—Para el mejor éxito de la función vocacional, el Centro atenderá al Consejo del departamento especializado del Ministerio de Educación Público, que prestará al Centro el auxilio necesario.

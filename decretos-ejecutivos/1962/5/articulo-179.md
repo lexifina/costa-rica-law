@@ -1,0 +1,1 @@
+Artículo 179.—El Secretario del establecimiento enviará después de cada sesión del Consejo de Disciplina, a la Contabilidad Central del Consejo Superior, con copia al Contador de la institución, la nónima de los reclusos asignados a las labores de cada categoría, así como el detalle de las concesiones de aparcería otorgadas.

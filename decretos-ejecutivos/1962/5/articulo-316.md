@@ -1,0 +1,1 @@
+Articulo 316.—La labor de los miembros del Patronato es absolutamente confidencial y, sólo en casos de absoluta necesidad, podrán revelar los antecedentes penales de la persona que esté gozando de su protección.

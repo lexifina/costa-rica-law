@@ -1,0 +1,1 @@
+Artículo 67.—Forman el personal directivo: el Director General, el Director del Instituto Nacional de Criminología, el Inspector Jefe de Defensa Social, los. Jefes de Departamentos y los de Secciones, y los Directores y Subdirectores de los distintos establecimientos.

@@ -1,0 +1,1 @@
+Artículo 766.—El que diere espectáculos públicos o de televisión o trasmitiere radioteatro sin licencia de la Censura o excediendo o traspasando la que se le haya concedido, será sancionado de conformidad con los artículos 94, inciso 9) ó 147, inciso 3) del Código de Policía, según el caso.

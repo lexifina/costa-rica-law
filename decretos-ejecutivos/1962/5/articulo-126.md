@@ -1,0 +1,2 @@
+Artículo 126.—La Proveeduría de Defensa Social archivará toda la documentación original de cada licitación pública, formando un expediente y anotará los pormenores en el libro registro respectivo.
+Para los efectos del inciso anterior, la Proveeduría de Defensa Social llevará un libro registro de licitaciones públicas, empastado, foliado y legalizado por la Contraloría General de la República, en donde se anotarán, por numeración corrida, todas las licitaciones públicas promulgadas.

@@ -1,0 +1,1 @@
+Artículo 228.—De acuerdo con el mandato constitucional, la enseñanza primaria es obligatoria para los internos analfabetos, así como el completar el ciclo primario para aquellos que ingresen al establecimiento sin haberlo concluido.

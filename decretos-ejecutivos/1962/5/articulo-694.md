@@ -1,0 +1,1 @@
+Artículo 694.—Para ingresar a la Sección de Criminología se requiere .ser abogado o graduado de la Escuela de Servicio Social o ser cuando menos .egresado de la Escuela de Derecho o de la de Servicio Social.

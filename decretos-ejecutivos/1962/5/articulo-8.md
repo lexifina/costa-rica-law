@@ -1,0 +1,1 @@
+Artículo 8°—Las actas y las resoluciones que dicte el Consejo, serán firmadas por el Presidente y el Secretario General o por quienes hicieron sus veces, en la sesión en que queden firmes esos instrumentos.

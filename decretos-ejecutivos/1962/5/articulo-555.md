@@ -1,0 +1,1 @@
+Artículo 555.—Sólo la lancha oficial del Establecimiento, conforme al Capítulo IV de este Titulo, o aquellas expresamente autorizadas por la Dirección General, podrán trasladar visitantes a la Colonia Agrícola Correccional de San Lucas en las oportunidades que previamente se les conceda licencia para ello.

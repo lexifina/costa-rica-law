@@ -1,0 +1,1 @@
+Artículo 363.—En cualquier momento, un interno puede pedir que se le verifique su saldo de cuenta corriente y, con una anticipación adecuada, podrá obtener un detalle de su cuenta corriente, a lo que no podrá negarse la oficina de Contabilidad del establecimiento.

@@ -1,0 +1,2 @@
+Artículo 388.—En los días siguientes al ingreso, se efectuarán todos los exámenes y se llenarán, paulatinamente, todos los requisitos que establece este; Reglamento Orgánico. Los exámenes médicos incluirán exámenes de laboratorio, dental y psíquico, así como pruebas psicológicas. El cuerpo médico pondrá especial atención en los exámenes que practicará sobre enfermedades infecto contagiosas.
+El resultado de estos exámenes se hará constar en las respectivas fichas que se agregarán al expediente personal del reo.

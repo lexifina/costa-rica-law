@@ -1,0 +1,1 @@
+Artículo 322.—El Director del Establecimiento tiene facultad para retener la correspondencia si, a su juicio, puede afectar la buena marcha del proceso de resocialización a que se halla sujeto el interno, o si contiene datos sobre delitos, preparación de fugas o asuntos inmorales.

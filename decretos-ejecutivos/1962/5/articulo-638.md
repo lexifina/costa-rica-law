@@ -1,0 +1,1 @@
+Artículo 638.—La solicitud se dirigirá al Jefe del Registro por escrito, en papel de un colón, conforme al aparte final del artículo 644, y podrán hacerla el propio interesado, su esposa, sus padres, hermanos o hijos, o bien un apoderado especial o general judicial, debiendo señalar casa para oír notificaciones en el centro de la capital y estar autenticada la firma legalmente.

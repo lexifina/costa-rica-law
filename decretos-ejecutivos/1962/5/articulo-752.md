@@ -1,0 +1,1 @@
+Artículo 752.—Es igualmente prohibida la publicación o exhibición, en cualquier forma, de avisos o anuncios para los espectáculos públicos, de radio y televisión que tengan alguna de las anteriores características.

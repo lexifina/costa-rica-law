@@ -1,0 +1,1 @@
+Artículo 362.—Los internos, por ningún motivo pueden tener dinero o fichas en su poder y todas las operaciones las harán a través del organismo correspondiente del establecimiento, mediante anotaciones en su cuenta corriente y en. la tarjeta personal de que se ha hecho mérito.

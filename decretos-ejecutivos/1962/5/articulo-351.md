@@ -1,0 +1,2 @@
+Sección 5a—De las visitas íntimas:
+Artículo 351.—Los Directores permitirán que, en instalaciones adecuadas, los internos reciban privadamente las visitas de sus cónyuges. En ningún caso permitirá visitas privadas de personas que no se presenten provistas de certificado médico vigente, en que garantice que no padecen de enfermedad infecto contagiosa. Los Directores organizarán este tipo de visitas, pero no las negará a las personas casadas, salvo por razones disciplinarias.

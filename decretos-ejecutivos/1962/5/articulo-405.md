@@ -1,0 +1,1 @@
+Artículo 405.—El régimen de los internos destinados a celdas individuales se ajustará, en todo lo posible, a los anteriores requisitos generales, con las modalidades propias de cada caso, según lo determinen el Director o el Instituto.

@@ -1,0 +1,1 @@
+Artículo 657.—La inscripción provisional hecha de acuerdo con el artículo 40 de la Ley de Protección Agrícola, si no ha sido cancelada antes de conformidad con el artículo anterior, caduca de pleno derecho a los cinco años de realizada.

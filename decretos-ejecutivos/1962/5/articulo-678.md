@@ -1,0 +1,1 @@
+Artículo 678.—Los alumnos de la Escuela que sean funcionarios o empleados del Departamento Nacional, no cubrirán matrícula alguna. El Consejo fijará el derecho de matrícula y la cuota mensual que los demás alumnos tengan que pagar.

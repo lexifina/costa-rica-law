@@ -1,0 +1,1 @@
+Artículo 245. —Los derechos de propiedad intelectual de todo invento o producción artística o literaria de un interno, son de su absoluta propiedad y la Secretaría del establecimiento procederá a llenar los .trámites legales para que le sea garantizada, según las leyes de la República.

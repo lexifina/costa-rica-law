@@ -1,0 +1,1 @@
+Artículo 462.—Sin perjuicio de lo dicho en el artículo 442, los maestros vocacionales dedicarán, de acuerdo con la Dirección, una parte de la jornada de trabajo diario a la enseñanza teórica del oficio o arte especialidad de cada uno. para lo cual dividirá en grupos a los aprendices, de acuerdo con sus conocimientos. A este respecto se harán exámenes trimestrales de habilidad.

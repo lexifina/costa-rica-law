@@ -1,0 +1,1 @@
+Artículo 446.—Una vez al mes, por lo menos, los Inspectores se reunirán con el Director del Centro y el Supervisor de Educación, a efecto de revisar la labor cumplida y para que, conjuntamente, elaboren nuevos planes de trabajo, se revisen o modifiquen los vigentes.

@@ -1,0 +1,3 @@
+CAPITULO II
+De la Revista
+Articulo 709.—El Instituto publicará un boletín informativo que contenga artículos sobre los temas señalados en el inciso V del artículo 606. Además reproducirá fotografías de investigaciones hechas en el país o en el extranjero, comentarios sobre bibliografía de revistas y libros y listas de publicaciones relacionadas con la materia, traducciones de artículos importantes y reseñas biográficas catedráticos, publicistas, investigadores y otras personalidades de las ciencias penales y conexas. También publicará el catálogo de la Biblioteca especializada y lista de objetos coleccionados en el Museo. Mantendrá un servicio de canjes c publicaciones de la misma índole, nacionales y extranjeras, a fin de enriquecer fondo de la Biblioteca.

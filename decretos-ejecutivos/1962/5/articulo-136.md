@@ -1,0 +1,1 @@
+Articulo 136.—Las autorizaciones para firmar cheques serán comunicadas á los establecimientos bancarios por la Secretaría General, cada vez que se presente la necesidad de registrar tales firmas, lo cual hará saber el Jefe de la Contabilidad Central, oportunamente, a aquella Secretaría General.

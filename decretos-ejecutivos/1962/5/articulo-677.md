@@ -1,0 +1,3 @@
+Artículo 677.—Los profesores deberán tener título profesional de la materia que están enseñando o, por lo menos, diploma o título expedido por el Instituto, con versación en la asignatura específica que se le encargue.
+Deberán presentar el programa de cada curso que tengan a su cargo, anualmente, a la Dirección, o bien manifestar que seguirán el mismo programa vigente. Deberán elevar a conocimiento de la Dirección la lista de las faltas de asistencia y las infracciones disciplinarias que ocurran durante el año lectivo, de parte de los alumnos. Calificarán, además, las labores escolares de los estudiantes.
+Cuando no pudieran asistir por motivo justificado, deberán avisar con anticipación al Director, por medio de la Secretaría.

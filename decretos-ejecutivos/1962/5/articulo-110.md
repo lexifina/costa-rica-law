@@ -1,0 +1,1 @@
+Artículo. 110.—El funcionario o empleado que hubiere adquirido el derecho a vacaciones y que antes de disfrutar de éstas cesare en su trabajo por cualquier causa, recibirá el importe correspondiente en dinero. Si no hubiere completado las cincuenta semanas correspondientes, tendrá derecho a un día de salario por cada mes completo trabajado, sin cómputo de fracciones.

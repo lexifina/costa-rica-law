@@ -1,0 +1,2 @@
+Artículo 214.—Aunque todos los internos están obligados a dedicarse a las labores que se les señalen, ninguno de ellos podrá ocupar empleo cargo alguno en el centro correccional en que se halle, ni permanecer en las oficinas administrativas sin permiso de la Dirección.
+Sin autorización de la Dirección General no se permitirá dentro de los establecimientos correccionales, la existencia de ningún negocio a cargo de los internos. Los miembros del personal no podrán tener negocio de ninguna naturaleza.

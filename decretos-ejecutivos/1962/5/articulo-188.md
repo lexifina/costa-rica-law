@@ -1,0 +1,1 @@
+Artículo 188.—En todos los casos en que intervenga un menor de edad, se dará participación en los estudios que se hagan para la calificación de su peligrosidad, al Patronato Nacional de la Infancia, que podrá destacar los técnicos que desee para cooperar en la observación y calificación de menores.

@@ -1,0 +1,1 @@
+Artículo 533.—En cuanto sean aplicables, se estará a lo dispuesto reglamentariamente para los centros correccionales de régimen cerrado, pero el Director queda facultado, dentro de los lineamientos generales establecidos por el Consejo Superior, a introducir las modalidades pertinentes a su sistema de readaptación de menores.

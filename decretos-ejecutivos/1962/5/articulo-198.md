@@ -1,0 +1,1 @@
+Artículo 198.—El primer período concluirá por indicación del Instituto, con la resolución que dicte la Dirección General sobre destino del sujeto y fijación del régimen de readaptación general a que deberá someterse, tanto en sus .aspectos disciplinarios como educativos y de trabajo.

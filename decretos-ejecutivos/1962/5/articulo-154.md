@@ -1,0 +1,2 @@
+Artículo 154.—Los Administradores serán, directa y personalmente, responsables de su gestión económica administrativa, y tanto ellos como los Contadores rendirán fianza de fidelidad en la suma que el Consejo Superior de Defensa Social fije a cada cual, de conformidad con las responsabilidades que aparezcan del movimiento económico de cada establecimiento.
+Cuando las necesidades del movimiento económico administrativo, de su establecimiento lo exijan, podrá solicitar al Consejo Superior la colaboración de Auxiliares con conocimiento de Contabilidad.

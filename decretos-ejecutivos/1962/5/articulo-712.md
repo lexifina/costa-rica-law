@@ -1,0 +1,1 @@
+Artículo 712.—Como Administrador, actuará el Bibliotecario del Instituto y tendrá a su cargo la circulación de la Revista, del cobro de suscripciones lista de canjes, así como toda otra labor de la misma índole que le encargue la Dirección. En la función económica se ajustará a lo dicho en el Título IV del Libro Primero.

@@ -1,0 +1,1 @@
+Artículo 410.—Después de las dieciocho horas (seis de la tarde), es absolutamente prohibido que cualquier particular penetre en el establecimiento. El puesto de guardianes de entrada anotará el nombre y la hora a que ingresen los empleados y funcionarios, cuando lo hicieren después de la hora indicada. Igualmente anotará la hora de salida.

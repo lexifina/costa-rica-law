@@ -1,0 +1,1 @@
+Artículo 244.—Cuando a juicio del Instituto sea conveniente permitir que un interno se dedique a una actividad intelectual o artística no lucrativa, se podrá permitir, si esa labor colabora con el tratamiento de resocialización a que el interno .está sujeto.

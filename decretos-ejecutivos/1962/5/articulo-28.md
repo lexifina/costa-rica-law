@@ -1,0 +1,1 @@
+Artículo 28.—Los expedientes que contengan informes sobre las peticiones de gracia, serán devueltos al Ministerio de Gobernación, Policía, Justicia y Gracia, una vez consignado el pronunciamiento respectivo.

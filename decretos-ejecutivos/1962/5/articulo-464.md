@@ -1,0 +1,1 @@
+Artículo 464.—Del mismo modo se organizará, una vez al año, una exposición al público de los mejores trabajos ejecutados por los menores, con obsequios de premios a los que se distingan por su habilidad.

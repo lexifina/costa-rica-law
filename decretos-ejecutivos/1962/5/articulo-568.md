@@ -1,0 +1,2 @@
+Artículo 568.—Es absolutamente prohibido sobrecargar las lanchas del Consejo Superior, tanto con pasajeros como con fletes: al efecto ese Organismo establecerá; previo informe técnico, los límites autorizados para cada una de las lanchas.
+La infracción ;a está disposición, por parte del personal de la Colonia será Sancionada como falta grave conforme a las disposiciones del Código de Trabajo y del Reglamento del Estatuto de Servicio Civil sin perjuicio de las responsabilidades civiles, penales o de otra índole que correspondan al transgresor.

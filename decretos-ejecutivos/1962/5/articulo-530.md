@@ -1,0 +1,1 @@
+Artículo 530.—La Dirección del Centro y los Inspectores cuidarán de que los menores vayan convenientemente vestidos y de que cultiven el aseo personal, de. los dormitorios y de los lugares en donde permanezcan.

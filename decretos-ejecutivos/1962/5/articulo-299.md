@@ -1,0 +1,1 @@
+Artículo 299.—Se informará al interno del fallecimiento y de las enfermedades graves de sus parientes y allegados próximos. El Consejo podrá autorizarlos, cuando las circunstancias lo permitan a juicio del Director del establecimiento y el informe del Instituto sea favorable, para que los visite con las seguridades necesarias, conforme a las reglas de la libertad provisoria.

@@ -1,0 +1,1 @@
+Artículo 684.—Además de los cursos teóricos enunciados en el articulo anterior, el plan de estudios comprenderá una instrucción práctica que podrán quedar a cargo de los funcionarios de los establecimientos.

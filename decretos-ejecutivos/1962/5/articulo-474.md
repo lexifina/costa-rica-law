@@ -1,0 +1,1 @@
+Artículo 474.—El Inspector Jefe y el Auditor de Defensa Social visitarán cuando menos una vez al mes las escuelas y los talleres de estos Centros y fiscalizarán sus labores. Rendirán los informes correspondientes al Director General Fiscal Económico y Consejo Superior.

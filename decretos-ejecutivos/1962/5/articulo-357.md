@@ -1,0 +1,2 @@
+Sección 6a—Del régimen económico de los internas:
+Artículo 357.—Al ingresar un interno a un establecimiento correccional,. entregará en la oficina correspondiente el dinero, joyas o valores que tenga en su poder, extendiéndosele recibo provisional de éstos. Este recibo le será canjeado el día siguiente por una "hoja-resguardo de valores", en que se consignarán en detalle, el dinero dejado en depósito, los valores y las joyas. Esta hoja, será: por triplicado; se entregará copia de la misma al interesado, y otro ejemplar se.,enviará a la Contabilidad Central.

@@ -1,0 +1,1 @@
+Artículo 518.—La Dirección de cada Centro suministrará al Juzgado Tutelar de procedencia del menor, los datos que le pida aquel despacho acerca del interno; de tales comunicaciones enviara, siempre copia al Consejo Superior al Instituto y a la Dirección General.

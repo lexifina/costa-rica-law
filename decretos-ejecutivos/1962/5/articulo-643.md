@@ -1,0 +1,1 @@
+Artículo 643.—Devuelto el expediente, el Jefe del Registro cancelará el asiento si así lo hubiere ordenado el Superior o se archivarán los autos en caso contrario. Siempre que, al cancelarse un asiento se opere una rehabilitación de los derechos políticos a favor del sentenciado, se enviará una nota comunicándolo al Director del Registro Civil.

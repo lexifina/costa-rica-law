@@ -1,0 +1,1 @@
+Artículo 450.—El cuerpo de Inspectores o Maestros Guías auxiliará a la Dirección en la labor eminentemente disciplinaria, reeducativa y de orientación de los menores, según lo establecido en el capitulo que antecede.

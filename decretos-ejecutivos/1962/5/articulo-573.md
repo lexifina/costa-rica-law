@@ -1,0 +1,2 @@
+Artículo 573.—Es deber del Director y del Administrador de la Colonia, y en su defecto del Capitán de la lancha y del Contador, reportar a la Dirección General todas las infracciones que notaren, a este Capitulo o a las disposiciones citadas en el artículo 572, y dará el Director General cuenta inmediata de tales transgresiones al Consejo Superior, para los fines consiguientes.
+De no suministrar aquellos funcionarios el informe aquí ordenado, incurrirán en las mismas responsabilidades del infractor.

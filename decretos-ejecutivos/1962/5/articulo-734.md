@@ -1,0 +1,2 @@
+Artículo 734.—La Sección dicha estará a cargo del Inspector Jefe de Defensa Social, quien deberá ser abogado o graduado en Servicio Social o en Criminología ; en caso de inopia podrá ser nombrado, interinamente o por contrato, un egresado de las correspondientes escuelas profesionales.
+El Inspector Jefe desempeñará las funciones de Jefe de la Oficina de Censura. No obstante, si las necesidades del cargo lo exigieran, podrá ser nombrado un Subjefe, quien colaborará en las funciones del Inspector Jefe y lo suplirá en sus ausencias.

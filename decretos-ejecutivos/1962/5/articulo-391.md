@@ -1,0 +1,1 @@
+Artículo 391.—A las seis en punto de la mañana, los reclusos pasarán al comedor común para tomar su desayuno. Cada uno de ellos ocupará el lugar que tenga señalado y, por ningún motivo y en ningún caso, podrá cambiar el lugar, de su asiento.

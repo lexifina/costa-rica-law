@@ -1,0 +1,1 @@
+Artículo 655.—Un vez firme la resolución que ordena la inscripción de un sospechoso, la autoridad de policía remitirá un resumen auténtico de aquella al Registro de Sospechosos, que comprenderá todos los datos indicados en el artículo 656.

@@ -1,0 +1,1 @@
+Artículo 420.—No se debe admitir, en los Centros, a menores que estén fuera de los límites de edad indicados, salvo autorización especial del Consejo Superior, dada con audiencia e informe del Instituto, cuando no existan lugares adecuados para recluir a los menores que estén en tales casos.

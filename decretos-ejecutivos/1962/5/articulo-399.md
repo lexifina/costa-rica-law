@@ -1,0 +1,2 @@
+Artículo 399.—Los internos no podrán abandonar el comedor al concluir individualmente de tomar sus alimentos, sino que lo harán todos en conjunto y ordenadamente. El encargado del comedor señalará el momento en que los reclusos se levanten de la mesa. Inmediatamente, gozarán de un recreo colectivo.
+El Director podrá organizar servicios de orquesta o banda de los mismos reclusos durante esos tiempos.

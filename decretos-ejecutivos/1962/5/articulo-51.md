@@ -1,0 +1,1 @@
+Artículo 51.—Periódicamente, también, el Director General concederá audiencia, en cada establecimiento, a los internos, con el propósito de oír sus demandas, sugerencias o quejas. Cuando el caso lo ameritare, ordenará a la Inspección levantar información sobre, las irregularidades que le fueren reportadas. De tales audiencias informará al Consejo.

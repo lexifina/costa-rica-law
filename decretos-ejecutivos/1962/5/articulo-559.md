@@ -1,0 +1,2 @@
+Articulo 559.—Es prohibido a los visitantes entregar dinero a los reclusos. Cuando deseen hacerlo, efectuarán el depósito en la Contabilidad o Contaduría del Establecimiento.
+Salvo el caso de visitas conyugales, expresamente autorizadas por la Dirección del Establecimiento, o que se trate de funcionarios en el ejercicio de su misión, absolutamente ningún particular podrá pasar la noche en el Establecimiento.

@@ -1,0 +1,1 @@
+Artículo 756.—Ninguna empresa o entidad podrá presentar, proyectar o transmitir obra alguna de las citadas en el artículo anterior, sin contar previamente con la autorización correspondiente de la Oficina de Censura.

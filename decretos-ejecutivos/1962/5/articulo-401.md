@@ -1,0 +1,1 @@
+Artículo 401.—A las cinco y media de la tarde, será servida la comida para los internos, concluida ésta, no antes de las 18 horas (seis de la tarde), pasarán todos los reclusos a sus respectivos salones de dormitorio.

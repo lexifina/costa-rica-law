@@ -1,0 +1,1 @@
+Artículo 355.—Cuando por razones de disciplina u otras conforme a los artículos 336, 345 y 353 no se conceda el uso de celda conyugal a un interno, la visita de su esposa o concubina autorizada sólo podrá durar el término a que se refiere en primera instancia el artículo 349.

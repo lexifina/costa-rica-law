@@ -1,0 +1,1 @@
+Artículo 611. —El Instituto contará con un psicólogo clínico, versado en el campo penitenciario y criminológico; y, a sus órdenes, un psicómetra. Ambos trabajarán, también, en los servicios de orientación y bienestar del personal.

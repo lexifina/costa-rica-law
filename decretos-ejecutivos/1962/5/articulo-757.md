@@ -1,0 +1,1 @@
+Artículo 757.—Ninguna agencia de publicidad o casa importadora podrá introducir al país películas o cintas magnetofónicas grabadas destinadas a ser transmitidas, de las específicamente prohibidas por la Oficina de Censura.

@@ -1,0 +1,1 @@
+Artículo 463.—Además de lo dispuesto en el artículo anterior, la Dirección del Centro organizará un plan de trabajo que comprenda, entre otras cosas, la práctica de dos exámenes generales al año, sometiendo a los aprendices al veredicto de técnicos en los oficios que se enseñan en el plantel.

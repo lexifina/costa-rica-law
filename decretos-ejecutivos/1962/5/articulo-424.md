@@ -1,0 +1,1 @@
+Artículo 424.—Quedan proscritos los castigos corporales y aflictivos en la persona de los reclusos, así como el uso de armas de cualquier clase, pero el Director del Centro —,actuando como un buen padre de familia—, podrá corregirlos moderadamente, aplicando métodos educativos de acuerdo con la moderna orientación juvenil.

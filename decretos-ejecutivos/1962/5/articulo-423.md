@@ -1,0 +1,1 @@
+Articulo 423.—Ningún menor podrá salir del Centro de Orientación Juvenil, salvo que medie orden judicial o de la Dirección General, sin la autorización expresa del Director o de la persona que lo reemplace en su ausencia.

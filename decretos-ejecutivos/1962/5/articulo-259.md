@@ -1,0 +1,1 @@
+Artículo 259.—Corresponde a la Dirección General de Defensa Social llevar el control del cumplimiento de las condenas, estando facultada además para conceder el beneficio de los descuentos con trabajo cuando así procediere y ordenar la libertad de los reclusos, acerca de cuyos extremos existirá el recurso de apelación que indica el artículo 247 de este Reglamento Orgánico.

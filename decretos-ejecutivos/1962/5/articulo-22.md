@@ -1,0 +1,1 @@
+Artículo 22.—Son aplicables a los miembros del Consejo las disposiciones prohibitivas del artículo 8° de la Ley Orgánica del Poder Judicial. La infracción que se haga de esas disposiciones legales podrá acarrear al transgresor la revocatoria de su nombramiento por parte del Organismo que le confió su representación.

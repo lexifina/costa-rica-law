@@ -1,0 +1,1 @@
+Artículo 597.—Respecto a la producción industrial o agrícola de los centros de reclusión para mujeres adultas, su destino se regulará en la misma forma que el de los demás productos de establecimientos para varones, según se establece en el presente Reglamento Orgánico.

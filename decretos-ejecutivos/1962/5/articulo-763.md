@@ -1,0 +1,1 @@
+Articulo 763.—A petición de la Oficina de Censura, las autoridades de Migración cancelarán la licencia a que se refiere el artículo anterior y acordarán la expulsión del territorio nacional, de cualquier compañía, equipo, grupo, artista o conferencista, que realice actos ilícitos o inmorales o incumpla las normas establecidas en este Reglamento Orgánico.

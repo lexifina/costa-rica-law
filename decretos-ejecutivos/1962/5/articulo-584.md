@@ -1,0 +1,1 @@
+Artículo 584.—De preferencia se enviará a estos establecimientos a los internos originarios de zonas rurales del país y los que, provenientes de zonas urbanas, muestren disposición para las labores agrícolas.

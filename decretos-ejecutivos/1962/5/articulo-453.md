@@ -1,0 +1,1 @@
+Artículo 453.—Son independientes, funcionalmente, los Inspectores de los Maestros, sean vocacionales o educacionales, así como de los celadores; y éstos de los anteriores y viceversa; pero, todos dependerán de la Dirección del Centro. Podrá designarse entre los celadores un Supervisor de Disciplina.

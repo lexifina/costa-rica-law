@@ -1,0 +1,8 @@
+Artículo 94.—El Consejo sancionará a los funcionarios y empleados de Defensa Social cuando:
+1°—Faltaren de palabra o por escrito o por obra a sus superiores en el orden jerárquico;
+2°—Faltaren gravemente a las consideraciones debidas a sus iguales;
+3°—Traspasaren los límites naturales de su autoridad respecto a sus auxiliares y subalternos o a quienes acudan a ellos en asuntos de su cargo y servicios, cualquiera que sea el objeto con que lo hagan;
+4°—Tuvieren ostensibles irregularidades en su conducta moral o vicios que los hicieran desmerecer en el concepto público, con lo que comprometen el decoro de su ministerio;
+5°—Por negligencia, descuido o falta de responsabilidad en el servicio que deben prestar, incurrieren en omisión de las obligaciones de su cargo o puesto, o dieran muestras de ineptitud, con perjuicio de la buena marcha de la Oficina en que se desempeñan, del público o de la institución;
+6°—Por infracción a los deberes del cargo o puesto, cometen desacato a los acuerdos del Consejo que regulen sus funciones o empleo, a los reglamentos respectivos o a las leyes correspondientes; y,
+7°—De cualquier modo faltaren al cumplimiento de sus obligaciones como tales funcionarios o empleados, no guardando la corrección propia del personal de Defensa Social, irrespetando la confianza o el secreto profesional que deben guardar en razón de su cargo o puesto, o cometieren incorrecciones en funciones relacionadas con la contabilidad o manejo de artículos, enseres o cualquier otro objeto, custodia de valores, compra o venta de los mismos, que signifiquen inobservancia de normas obligatorias, perjuicio o intento de perjudicar los intereses del Consejo o de una de las instituciones a cargo de ese Organismo.

@@ -1,0 +1,1 @@
+Artículo 212.—El sancionado con corrección de internamiento en celda unipersonal o de aislamiento colectivo, no quedará exento del trabajo, si hubiere posibilidad de efectuarlo dentro de ella, pero dicho trabajo no se computará para efectos de descuento de pena.

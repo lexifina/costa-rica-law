@@ -1,0 +1,1 @@
+Artículo 402.—Los internos podrán permanecer en la sala de estar hasta las nueve de la noche. A esa hora, los que no lo hubieren hecho antes, se irán a acostar y serán apagadas las luces. Queda terminantemente prohibido perturbar el sueño de los compañeros, bajo pena de sanción disciplinaria.

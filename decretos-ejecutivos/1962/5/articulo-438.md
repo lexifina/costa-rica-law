@@ -1,0 +1,1 @@
+Artículo 438.—Los Inspectores ejercerán una observación sistemática en la conducta de los menores a su cargo y formularán planes coordinados con los trabajadores sociales, con los maestros vocacionales y educacionales, para la reeducación de aquéllos, ya por métodos individuales ya por el sistema de grupo.

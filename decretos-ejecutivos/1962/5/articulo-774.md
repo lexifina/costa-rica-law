@@ -1,0 +1,1 @@
+Artículo 774.—La Oficina de Censura no podrá variar en forma alguna los textos, ni suprimir secciones, ni permitirá que los expendedores lo hagan por su cuenta, en resguardo de la propiedad artística y literaria.

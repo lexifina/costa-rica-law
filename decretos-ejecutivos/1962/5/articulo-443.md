@@ -1,0 +1,1 @@
+Artículo 443.—Para la buena marcha administrativa y técnica de la Institución, los Inspectores están obligados a cumplir fielmente sus contratos, el presente Reglamento Orgánico y los planes de trabajo que menciona el artículo 439.

@@ -1,0 +1,1 @@
+Artículo 34.—A toda solicitud de beneficio de trabajo fuera del establecimiento, o de libertad condicional, se agregará copia del testimonio de la sentencia, desde el inicio de las diligencias así como certificación de antecedentes del Registro Judicial de Delincuentes.

@@ -1,0 +1,3 @@
+Articulo 640.—Presentada la petición en forma y con todos los documentos enumerados, al Jefe del Registro, éste concederá audiencia por el término de cinco días al Procurador Penal, a quien se enviarán los autos, a fin de que informe. Devuelto el expediente con el respectivo dictamen resolverá el Jefe del Registro por auto motivado dentro de los cinco días siguientes.
+La resolución que recaiga será notificada al interesado y al Procurador Penal por medio del notificador del Consejo Superior, para que, si alguno o ambos no estuvieren conformes con lo resuelto, interpongan ocurso ante el Registro, dentro del quinto día, para ante el Consejo Superior.
+Si no fuere recurrida será consultada la resolución con el Consejo Superior.

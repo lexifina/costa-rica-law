@@ -1,0 +1,1 @@
+Articulo 494.—Los demás empleados, tales como los que atienden los servicios de lavandería, cocina, aseo, bodega, portería y cualesquiera otros no indicados específicamente en este Reglamento Orgánico, trabajarán conforme a sus contratos de trabajo y se someterán a las disposiciones comunes aquí establecidas, en cuanto les fueren aplicables.

@@ -1,0 +1,1 @@
+Artículo 375. —Los internos que deseen tener libros de su propiedad lo someterán a consulta previa del Director, quien examinará la obra con el asesoramiento que considere oportuno y en cada caso decidirá si da la autorización o si la niega. Las determinaciones del Director, en este sentido, tendrán apelación para ante el Consejo de Disciplina.

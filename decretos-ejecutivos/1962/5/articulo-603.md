@@ -1,0 +1,2 @@
+Artículo 603.—También podrá remitirse a dichos jóvenes adultos a colonias correccionales semiabiertas o abiertas, si se notare una inclinación hacia las industrias de los talleres o explotaciones agrícolas allí existentes y el Instituto dictamine que no encuentra peligro moral ni social en el traslado, el cual autorizará la Dirección General en cada caso.
+En caso de discrepancia entre el Instituto y la Dirección General, acerca del particular, decidirá en consulta el Consejo Superior.

@@ -1,0 +1,1 @@
+Artículo 174.—Aun cuando el trabajo fuere remunerado, el recluso siempre tendrá derecho al descuento adicional de la pena por trabajo, conforme al Capítulo II del Título III del Libro II de este Reglamento Orgánico. Para estos efectos se tomará en cuenta la obligación de trabajar que para los reclusos establece el artículo 233.

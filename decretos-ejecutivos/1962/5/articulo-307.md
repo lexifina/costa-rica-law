@@ -1,0 +1,1 @@
+Artículo 307.—Los sentenciados que. estén sujetos a un régimen especial, fuera del establecimiento correccional, por estar gozando de una gracia o beneficio, recibirán particular atención de los oficiales de Prueba, a objeto de evitar que vuelvan a delinquir.

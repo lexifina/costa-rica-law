@@ -1,0 +1,1 @@
+Artículo 605.—Serán aplicables, según el caso, las reglas de las instituciones cerradas, las semiabiertas y las abiertas, a esta clase de establecimientos, mitigadas por las normas preceptuadas para los menores de 18 años, cuando esto quepa.

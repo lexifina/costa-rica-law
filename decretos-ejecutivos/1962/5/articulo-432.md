@@ -1,0 +1,1 @@
+Artículo 432.—El Director podrá recomendar a la autoridad judicial competente, previa consulta con el Instituto, los ceses de reclusión de los menores internos, cuando lo estime prudente, de acuerdo con los resultados del tratamiento.

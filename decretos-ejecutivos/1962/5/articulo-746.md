@@ -1,0 +1,2 @@
+Artículo 746.—Para el otorgamiento de la aprobación a que se refiere el artículo 18 de la Ley de Asociaciones, en estos casos, el Ministerio de Gobernación, Policía, Justicia y Gracia consultará, previamente, con el Consejo Superior de Defensa Social acerca de la procedencia o improcedencia de la solicitud.
+Si el Consejo Superior se pronunciara desfavorablemente, el Ministerio denegará la aprobación. En todo caso, el pronunciamiento del Consejo Superior deberá ser razonado.

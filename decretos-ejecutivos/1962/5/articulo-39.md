@@ -1,0 +1,2 @@
+Artículo 39.—Para proceder a la designación de Director General, el Consejo solicitará al Servicio Civil que formule el concurso de oposición respectivo, exigiendo las calificaciones que indica el artículo anterior.
+De la terna que presente el Servicio Civil, el Consejo hará la recomendación que estime pertinente, en forma razonada, al Poder Ejecutivo, para que el Ministerio de Justicia haga la respectiva designación.

@@ -1,0 +1,1 @@
+Artículo 386.—Cuando se nota que dos internos tienen relación que sea contraria a los fines de readaptación buscados, se les separará inmediatamente, ubicándolos en lugares lejanos en los comedores y asignándoles camas en dormitorios distintos.

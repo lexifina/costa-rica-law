@@ -1,0 +1,1 @@
+Artículo 590.—El producto del trabajo realizado fuera de horario sola podrán venderlo los internos a través de la Administración del Establecimiento. El valor de la venta de esos productos se acreditará en la cuenta de ahorro correspondiente del interno, de acuerdo con los requisitos que este Reglamento Orgánico establece.

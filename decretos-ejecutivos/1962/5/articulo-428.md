@@ -1,0 +1,2 @@
+Artículo 428.—Dos veces al año, por lo menos, el Director rendirá un informe al Consejo Superior, detallando una memoria de las labores realizadas y apuntando las necesidades del Establecimiento, sin omitir su criterio sobre la, forma de subsanarlas.
+El Director deberá concurrir a las sesiones del Consejo Superior o del Instituto, siempre que sea requerido para informar sobre aspectos de su gestión.

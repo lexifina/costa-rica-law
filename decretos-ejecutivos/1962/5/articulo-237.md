@@ -1,0 +1,1 @@
+Artículo 237.—En la organización del trabajo se orientará hacia la readaptación del interno, siguiendo criterios pedagógicos y psicotécnicos, procurándose el desarrollo y perfeccionamiento de sus aptitudes laborales, todo a juicio del Instituto y con base en la calificación, diagnóstico, pronóstico y tratamiento del sentenciado.

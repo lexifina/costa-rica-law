@@ -1,0 +1,1 @@
+Artículo 542.—Sólo para la aplicación de sanciones de tipo disciplinario habrá, en las Colonias Agrícolas Penales de régimen semiabierto, celdas de aislamiento individual. Los demás internos permanecerán en pabellones colectivos.

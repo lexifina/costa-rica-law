@@ -1,0 +1,1 @@
+Artículo 478.—El Instituto pondrá especial cuidado en destinar para los Centros de Orientación Vocacional a los trabajadores sociales mejor versados, preferiblemente a graduados con experiencia en asistencia de menores o a egresados o estudiantes de los años superiores de la Escuela de Servicio Social, con aptitud para ello.

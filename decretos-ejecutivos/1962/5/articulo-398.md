@@ -1,0 +1,1 @@
+Artículo 398.—A las once horas concluirán las labores de la mañana. Los internos disfrutarán de un recreo colectivo hasta las once y media, hora en que serán llamados a los comedores para su almuerzo.

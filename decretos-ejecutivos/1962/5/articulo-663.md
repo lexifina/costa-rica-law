@@ -1,0 +1,1 @@
+Artículo 663.—La observación de los antisociales, menores y adultos, se hará en forma separada y, de ser posible, con personal distinto. La técnica en cada uno de los casos, será la aconsejable de conformidad con el tipo de sujeto ea examen.

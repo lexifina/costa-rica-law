@@ -1,0 +1,1 @@
+Artículo 190.—El Consejo podrá destinar, en la ciudad de San José, específicamente como Centro de Observación y de calificación de sentenciados, un establecimiento en que se cumplan esos fines y que será el lugar desde el cual se distribuyan los sujetos que deben sufrir privación de libertad, una vez clasificados.

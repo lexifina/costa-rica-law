@@ -1,0 +1,1 @@
+Artículo 560.—El puesto de guardianes, en el lugar de desembarco, levantará una lista de las personas visitantes, en la que se hará constar: nombre y apellidos, nacionalidad, número de cédula de identidad, oficio y dirección y motivo de su visita. Además recogerá la firma del visitante al margen de esos datos.

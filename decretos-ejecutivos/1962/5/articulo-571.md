@@ -1,0 +1,1 @@
+Artículo 571.—El Consejo Superior procurará, dentro de sus posibilidades económicas, contratar con el Instituto Nacional de Seguros un seguro colectivo para los viajes de visita de pasajeros y para cualquier otro evento o servicio de las embarcaciones, a fin de proteger los riesgos de las personas, semovientes o carga, hasta donde las circunstancias lo permitan.

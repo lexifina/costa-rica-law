@@ -1,0 +1,1 @@
+Artículo 773.—La calificación de las obras a que se refiere este Tituló estará a cargo de la Oficina de Censura, a la cual compete autorizar su venta o vedarlas de modo absoluto si caen dentro de las prohibiciones del artículo 772.

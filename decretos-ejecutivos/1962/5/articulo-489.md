@@ -1,0 +1,1 @@
+Artículo 489.—La enfermera trabajará ocho horas diarias, conformé al horario que le fije la Dirección del Centro, y estará obligada a atender las instrucciones del Médico, del Psiquiatra y del Dentista, así como a dispensar asistencia de primeros auxilios.

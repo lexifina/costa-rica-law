@@ -1,0 +1,1 @@
+Artículo 411.—De las dieciocho horas (seis de la tarde), a las seis de la mañana, todas las llaves de las puertas de seguridad de los pabellones en que se hallen los internos, estarán depositadas en la Dirección del establecimiento.

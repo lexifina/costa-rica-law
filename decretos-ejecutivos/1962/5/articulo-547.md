@@ -1,0 +1,1 @@
+Artículo 547.—A las seis de la mañana, cuando haya Capellán residente, se oficiará la Santa Misa a la que podrán asistir los internos que lo deseen. El Oficio deberá concluir a las seis y media de la mañana, lo más tarde.

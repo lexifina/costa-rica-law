@@ -1,0 +1,1 @@
+Artículo 42.—El Director General formará parte de la Comisión de Planeamiento que ha de estudiar preliminarmente, los proyectos de ley y reglamentos y los programas de acción social del Consejo; y rendirá los demás informes técnicos que le encargue este Organismo, acerca de los asuntos del Departamento.

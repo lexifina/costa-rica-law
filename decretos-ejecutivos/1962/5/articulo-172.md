@@ -1,0 +1,1 @@
+Artículo 172.—La remuneración se otorgará, básicamente, como un estímulo o premio al buen comportamiento comprobado dentro del penal, o méritos demostrados por el interno, a juicio de la Dirección General de Defensa Social, con base en los informes que suministre el Consejo de Disciplina por medio del Director del establecimiento respectivo.

@@ -1,0 +1,1 @@
+Artículo 686.—Los alumnos se someterán a un examen semestral que se realizará a la mitad del curso, o sea en la segunda quincena de junio; y a otro anual, que se realizará en la primera quincena de diciembre.

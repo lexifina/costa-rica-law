@@ -1,0 +1,1 @@
+Articulo 374.—Ni los internos ni los empleados podrán prestar los libros que, se, les entreguen. De la pérdida o deterioro de los mismos, responderá económicamente quien los hubiere pedido a la Biblioteca, conforme lo establece el artículo 371.

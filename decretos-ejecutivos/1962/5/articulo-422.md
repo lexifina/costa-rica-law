@@ -1,0 +1,1 @@
+Artículo 422.—El Director del Centro o, en su defecto, la persona qué legalmente deba sustituirlo, es responsable ante el Consejo Superior por la suerte del Establecimiento, su normal funcionamiento y el mejor éxito de la gestión que le está encomendada.

@@ -1,0 +1,1 @@
+Artículo 335.—El Director concederá permisos de visita por turnos, evitando siempre las aglomeraciones. Las personas en visita no estarán en el mismo lugar de aquellas que estén esperando turno para realizar la suya. Para ese objeto, el Director señalará, en cada caso, día y hora de la visita. El visitante que no acuda a la cita en el día y a la hora señalados, perderá su turno.

@@ -1,0 +1,1 @@
+Artículo 199.—El período de tratamiento podrá ser dividido en fases que importen para el interno la posibilidad de seguir un método gradual adecuado a los fines de su readaptación, trasladándolo de establecimiento y modificando su régimen de trabajo, de estudio y disciplinario, según su progreso, a juicio del Instituto.

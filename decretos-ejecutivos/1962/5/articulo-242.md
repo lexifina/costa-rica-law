@@ -1,0 +1,1 @@
+Artículo 242.—En los establecimientos correccionales de colonias agrícolas, la dirección técnica y la enseñanza propias de esa actividad laboral, estará a cargo de técnicos capacitados supervisados por el Ministerio de Agricultura,. que será el organismo responsable de la dirección técnica de la explotación agrícola de esas colonias penales de tipo semiabierto y abierto.

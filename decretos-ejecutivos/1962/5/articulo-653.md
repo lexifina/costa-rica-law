@@ -1,0 +1,1 @@
+Articulo 653.—Mensualmente el Registro enviará al Ministerio de Agricultura e Industrias, a la Inspección General de Hacienda, y al Cuerpo de Agentes de Investigación, dos nóminas de todos los nuevos sospechosos en libertad, una por orden alfabético de apellidos, con indicación del domicilio del sospechoso y otra en que aparezcan seleccionados por cantones.

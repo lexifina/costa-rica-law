@@ -1,0 +1,1 @@
+Artículo 334.—El Director del Establecimiento fijará, en cada caso, la duración de la visita. Un empleado del centro llamará la atención al visitante en el momento de cumplirse el plazo de visita otorgado.

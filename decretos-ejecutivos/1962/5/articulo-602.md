@@ -1,0 +1,1 @@
+Artículo 602.—Será recomendable el internamiento de jóvenes adultos vagos o maleantes, por un período de reclusión indeterminado, con fines de perfeccionamiento vocacional, en estos institutos para varones, a cuyo fin se les proporcionará la facilidad de una enseñanza media y aún de cursos superiores por correspondencia, si fuere necesario.

@@ -1,0 +1,2 @@
+Artículo 3°—El Consejo Superior de Defensa Social es el Departamento Nacional de Defensa Social que a su vez se dividirá, administrativamente, en. departamentos subdivididos en secciones.
+A la cabeza de cada Departamento habrá un Jefe. A la cabeza de cada Sección estará un Encargado. Cada institución constituirá un Departamento diferente, de carácter específico; contará con su Director y, si fuere necesario, un Subdirector.

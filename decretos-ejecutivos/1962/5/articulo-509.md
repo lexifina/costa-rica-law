@@ -1,0 +1,1 @@
+Artículo 509.—El Servicio de Biblioteca será organizado de modo que, no solamente preste ayuda a la educación del menor, sino lo distraiga en una forma sana, mediante una selección de lecturas que entretengan su imaginación y la oriente hacia sendas susceptibles de desarrollar su personalidad de un modo adecuado a sus gustos y a sus inclinaciones provechosas.

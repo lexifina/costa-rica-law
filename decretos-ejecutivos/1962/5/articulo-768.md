@@ -1,0 +1,1 @@
+Artículo 768.—Los empresarios, gerentes, padres de familia, tutores o encargados que incumplan las disposiciones de este Título relacionado con la entrada de menores de edad a las salas de Espectáculos Públicos, serán sancionados de conformidad con los artículos 26, 27 y 28 del Código de la Infancia.

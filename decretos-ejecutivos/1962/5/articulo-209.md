@@ -1,0 +1,2 @@
+Artículo 209.—Ningún interno será sancionado sin haber sido previamente informado de la falta que se le atribuye. El Director o el Consejo Disciplinario hecha la anterior notificación oirá al interno, en defensa y, comprobada la falta procederá a imponer la sanción.
+Las sanciones disciplinarias impuestas por el Director no tienen ningún recurso y serán aplicadas inmediatamente, haciéndolas constar, en forma razonada, en el expediente correspondiente al interno infractor. Además serán puestas inmediatamente, en conocimiento del Consejo de Disciplina.

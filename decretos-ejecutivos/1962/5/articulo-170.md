@@ -1,0 +1,1 @@
+Artículo 170.—El Contador del establecimiento llevará la contabilidad del respectivo Economato y enviará, mensualmente, un balance del movimiento económico del mismo a la Contabilidad Central, con copia al Fiscal Económico, a la Auditoría y al Director General.

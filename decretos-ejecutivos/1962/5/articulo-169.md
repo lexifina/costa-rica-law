@@ -1,0 +1,2 @@
+Artículo 169.—El abastecimiento de las necesidades en mercaderías de los Economatos, se hará por medio de la Proveeduría del Consejo, hasta completar .la existencia necesaria para servir la población penal conforme el artículo 165.
+No obstante, en casos muy calificados de imperiosa necesidad y urgencia, a juicio del Administrador del centro de reclusión, podrán comprarse los artículos de consumo indispensables de la Caja Chica del Centro, siempre que medie la previa autorización escrita del Fiscal Económico o, en defecto de éste, del Proveedor del Consejo Superior.

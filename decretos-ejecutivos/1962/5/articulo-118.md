@@ -1,0 +1,6 @@
+Artículo 118.—Son obligaciones del Jefe de Contabilidad:
+a) Dirigir, verificar y distribuir el trabajo a sus subordinados, a quienes exigirá el fiel cumplimiento de sus obligaciones tanto técnicas como administrativas y disciplinarias.
+b) Firmar todos los cheques emitidos a nombre del Consejo Superior de Defensa Social y endosará, para depositar en la cuenta corriente del mismo, los que vengan a favor de éste, asumiendo toda la responsabilidad por tales hechos. Para que los cheques que se emitan adquieran plena validez, deberán llevar, también, la firma del Fiscal Económico.
+c) Presentar, por lo menos una vez por semana, un informe sobre saldos, en caja y bancos, al Consejo Superior de Defensa Social, con copia al Fiscal Económico y al Auditor; además un estado mensual de las operaciones en libros, en igual forma.
+d) Remitir al Fiscal Económico, para los días de sesión del Consejo Superior, un balance demostrativo de los egresos habidos durante el periodo, el promedio mensual de gastos según el Presupuesto y los saldos anuales disponibles según el mismo, con copia para el auditor y el Proveedor de Defensa Social.
+e) Suministrar a la Auditoria los informes que esta oficina le solicite y en la fecha que la misma le indique, para la confección del Presupuesto General de Gastos y en cualquier otra circunstancia.

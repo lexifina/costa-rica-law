@@ -1,0 +1,1 @@
+Artículo 538.—En el momento del ingreso el Director señalará el pabellón en que se alojará el nuevo interno, así como el régimen de adaptación, de trabajo y de educación que le será aplicable, de acuerdo con las líneas generales e indicaciones que consten en su respectivo expediente personal e instrucciones del Instituto.

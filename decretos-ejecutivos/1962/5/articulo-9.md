@@ -1,0 +1,1 @@
+Artículo 9°—Es obligación de los miembros titulares del Consejo asistir a las sesiones. El miembro propietario que dejare de concurrir a más de cuatro sesiones consecutivas, sin causa justificada, será considerado como renunciante de su cargo y se pedirá su reposición al organismo que esté representando en el seno del Consejo.

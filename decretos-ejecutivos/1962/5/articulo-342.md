@@ -1,0 +1,1 @@
+Artículo 342.—Los visitantes, previa la entrevista con el interno, podrán .ser sometidos a un registro; negarse al mismo o bien obstaculizarlo en cualquier forma, significará la inmediata cancelación del permiso para la visita.

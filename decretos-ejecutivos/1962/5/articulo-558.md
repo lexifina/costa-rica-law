@@ -1,0 +1,1 @@
+Artículo 558.—Para la organización de encuentros y otros eventos que tengan el carácter de espectáculo, fiestas u otros similares a las que asista público, el Director necesita permiso del Director General, quien ,lo consultará con el Consejo.

@@ -1,0 +1,1 @@
+Artículo 437.—Los Inspectores están obligados a procurar asistencia disciplinaria en los lugares donde el Director considere necesario; y proporcionarán a los menores orientación en sus problemas inmediatos.

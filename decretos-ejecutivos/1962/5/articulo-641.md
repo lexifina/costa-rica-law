@@ -1,0 +1,1 @@
+Artículo 641.—Establecido un ocurso, el Jefe del Registro remitirá inmediatamente el expediente respectivo al Consejo emplazando a las partes para que, dentro de quinto día, se apersonen ante el Superior. Esa providencia se hará saber a las partes mencionadas por medio del notificador de aquel Organismo.

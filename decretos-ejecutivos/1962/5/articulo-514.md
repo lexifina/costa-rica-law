@@ -1,0 +1,1 @@
+Artículo 514.—Estará a cargo de la Unidad Técnica, la vigilancia del progreso o estancamiento de los programas, todo lo cual se reportará a la Unidad Técnica, a fin de buscarle al problema solución ventajosa para el recluso.

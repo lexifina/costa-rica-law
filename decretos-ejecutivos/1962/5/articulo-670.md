@@ -1,0 +1,1 @@
+Artículo 670.—Del mismo modo se establecerá, en el Instituto Correccional de máxima seguridad, una Sección de Observación que servirá de división de cuarentena, con idénticos propósitos, en el que los reclusos permanecerán el tiempo necesario, conforme a lo dispuesto en los artículos 182 y 187 del presente Reglamento Orgánico.

@@ -1,0 +1,1 @@
+Artículo 257.—Si el recluso se evadiere estando detenido preventivamente, no se le podrá tomar en cuenta el beneficio del descuento con trabajo en la sentencia correspondiente, hasta que transcurra el lapso indicado en el inciso b) del artículo 254.

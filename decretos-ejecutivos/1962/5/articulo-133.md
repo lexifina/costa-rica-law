@@ -1,0 +1,3 @@
+CÁPITULO V
+Movimiento Económico
+Artículo 133.—Los giros con cargo a servicios generales, llevarán mención del origen del egreso y no podrán extenderse si no es contra orden de pago firmada por el Jefe de la Contabilidad Central, el Fiscal Económico y el Auditor. Estas órdenes de pago deberán responder a las autorizaciones de compra que lleven la firma del citado Fiscal Económico, del Proveedor y del Director General, más la firma, del Jefe de la Contabilidad dentro de las condiciones del artículo 113 inciso f). Los giros deberá extenderlos la Contabilidad Central a la vista de la orden de pago, sin demora, salvo convenio en contrario o falta de fondos para el pago.

@@ -1,0 +1,1 @@
+Artículo 272.—En los dormitorios comunes sólo se admitirán internos. del mismo grado de clasificación. En cada uno de estos dormitorios comunes, de más de diez internos, deberá haber por lo menos un celador, colocado de manera que pueda mantener una permanente vigilancia en todo el dormitorio.

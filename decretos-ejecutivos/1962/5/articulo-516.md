@@ -1,0 +1,1 @@
+Artículo 516.—El Director, con la colaboración de la Unidad Técnica, organizará un régimen general de Orden y Disciplina, adecuándolo, en cuanto a formación física y moral del menor, a fin de que conserve esas cualidades una vez egresado del plantel. Todos los sistemas, programas y horarios deberán ser aprobados, para su aplicación, por el Consejo Superior.

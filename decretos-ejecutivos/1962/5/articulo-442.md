@@ -1,0 +1,1 @@
+Artículo 442.—Para cumplir lo demandado en al artículo 437, los Inspectores deberán aprovechar todo el tiempo disponible fuera del horario escolar, así como los recreos, tiempos de comida de los menores y otros que se presenten,. en toda oportunidad que sus servicios sean requeridos.

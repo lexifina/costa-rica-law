@@ -1,0 +1,1 @@
+Artículo 152.—La Contabilidad Central estará obligada a enviar un informe semanal de ingresos, por los conceptos anteriores, al Director General, con copia al Fiscal Económico y al Secretario General del Consejo.

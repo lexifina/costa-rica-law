@@ -1,0 +1,1 @@
+Artículo 311.—A los Patronatos de Egresados podrán pertenecer todas las personas de buena voluntad y espíritu de servicio, deseosas de prestar su colaboración, formen o no parte del personal del Departamento Nacional.

@@ -1,0 +1,2 @@
+Artículo 73.—El personal de custodia responderá a las reglas y exigencias de los fines penitenciarios con el objeto de mantener la seguridad de las instituciones en que está llamado a servir, así como cumplir los propósitos diversos que persigue la Defensa Social.
+Este personal debe tener un nivel intelectual suficiente que le permita desempeñar su función eficazmente y aprovechar los cursos de formación y perfeccionamiento que se ofrezcan en el servicio de defensa social.

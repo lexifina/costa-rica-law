@@ -1,0 +1,1 @@
+Artículo 180.—Las decisiones del Consejo de Disciplina, sobre puntos contenidos en el presente Capítulo, tendrán recurso de apelación, dentro de los ocho días subsiguientes a la notificación al interno que éste podrá presentar a la Dirección del establecimiento, para ante la Dirección General de Defensa Social, la que resolverá el caso sin ulterior recurso.

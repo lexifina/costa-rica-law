@@ -1,0 +1,1 @@
+Artículo 2°—A cargo del Consejo Superior de Defensa Social está el coordinar y fomentar la lucha por la prevención de la delincuencia, el control de la criminalidad y el tratamiento efectivo de los elementos criminosos, peligrosos y antisociales, a efecto de readaptarlos útilmente a la comunidad.

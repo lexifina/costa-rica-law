@@ -1,0 +1,1 @@
+Artículo 361.—De acuerdo con la ley y según los saldos que arroje fe cuenta corriente de .cada interno, éstos podrán hacer compras en el Economate. del establecimiento. Diariamente, el Administrador del mismo, pasará a la oficina correspondiente un detalle de los gastos del interno, que se le deducirán de su cuenta corriente, anotándolo en la tarjeta del recluso.

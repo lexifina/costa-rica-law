@@ -1,0 +1,1 @@
+Artículo 93.—El ejercicio de la jurisdicción disciplinaria del Departamento Nacional de Defensa Social corresponde al Consejo, salvo los casos en que los directores de establecimientos. Consejos de Disciplina, jefes de departamentos o encargados de secciones, estén facultados para aplicar determinadas sanciones disciplinarias .

@@ -1,0 +1,1 @@
+Artículo 356.—La supresión de la visita o del privilegio a usar las celdas conyugales, será determinación que tomará el Consejo de Disciplina. E! Director podrá también tomar esas medidas, pero sólo en los casos en que la ejecución de las mismas deba ser inmediata por indisciplina del recluso o por infracción a le que estatuye el artículo 345.

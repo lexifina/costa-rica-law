@@ -1,0 +1,2 @@
+Sección 4a—Rectificación y Cancelación de Asientos:
+Artículo 635.—El Jefe del Registro podrá rectificar por sí, bajo su responsabilidad y previo consentimiento del Sociólogo del Instituto, los errares y omisiones cometidos por la oficina y los que provengan de una repetición de resúmenes. El contenido de éstos, si no ha sido posible corregirlo mediante la devolución que autoriza el artículo 622, sólo podrá certificarse en virtud de oficio auténtico de la autoridad expedidora del resumen.

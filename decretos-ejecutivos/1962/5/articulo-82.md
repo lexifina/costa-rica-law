@@ -1,0 +1,1 @@
+Artículo 82.—Las sanciones por faltas disciplinarias y recompensas o notas de mérito por actos sobresalientes en el servicio contempladas en el Título III del presente Reglamento Orgánico se consignarán en el expediente que, de cada servidor, llevará la Oficina de Personal. Este expediente será siempre consultado en los casos previstos en el artículo 80.

@@ -1,0 +1,2 @@
+Artículo 676.—Cuando el Director lo estime oportuno, se reunirá en forma de Comité Técnico con los Encargados de las secciones y el Secretario, para preparar las labores generales de la Escuela y coordinar el trabajo entre las secciones.
+También se reunirán, trimestralmente, las tres juntas de profesores en forma de Consejo de Profesores, para conocer de los problemas antes indicados o los que el Director, los encargados o los profesores hayan hecho de conocimiento anticipado del Instituto.

@@ -1,0 +1,1 @@
+Artículo 90.—Cuando especialistas penitenciarios de otros países visiten el nuestro, se procurará facilitar el dictado de conferencias o cursillos, o ciclos educativos o mesas redondas, a los que se invitarán a los miembros del servicio de Defensa Social en el mayor grado posible. Cuando menos se procurará que los Jefes de Secciones asistan a tales conferencias.

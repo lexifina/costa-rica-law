@@ -1,0 +1,1 @@
+Artículo 48.—El Director General dictará las resoluciones relativas al destino y régimen que se dará a cada sentenciado, previos los estudios que señala este Reglamento Orgánico y conforme al artículo 192.

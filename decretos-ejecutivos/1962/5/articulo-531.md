@@ -1,0 +1,1 @@
+Articulo 531 .—El Director del Centro es responsable de la seguridad de los menores en su cargo, ante el Consejo Superior, ante sus parientes y frente a los organismos oficiales a quienes se atribuya la protección de dichos internos.

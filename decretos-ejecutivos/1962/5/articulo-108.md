@@ -1,0 +1,1 @@
+Artículo 108.—El miembro del personal que, por dolo o complacencia, marque tarjeta que no le corresponde, incurrirá en falta grave a sus obligaciones, haciéndose acreedor a suspensión o al despido del trabajo, según la gravedad de la falta. Incurrirá en la misma falta el funcionario o empleado a quien se pruebe haber consentido que otro marcara su tarjeta.

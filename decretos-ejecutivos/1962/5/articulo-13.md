@@ -1,0 +1,1 @@
+Artículo 13,—Cuando un miembro suplente esté sustituyendo a un propietario, de conformidad con el artículo 11, y el miembro propietario se presentare, éste podrá seguir participando con voz y voto en las deliberaciones.

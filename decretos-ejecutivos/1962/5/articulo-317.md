@@ -1,0 +1,1 @@
+Artículo 317.—Los patronatos llevarán actas de sus sesiones. De esas actas pasarán copia a la Sección de Prueba y a la Dirección del último establecimiento correccional en que estuvo el interno antes de su liberación.

@@ -1,0 +1,1 @@
+Artículo 135. —Las planillas y los giros serán firmados por el Jefe de la Contabilidad Central, el Fiscal Económico y el Auditor. En defecto de los dos últimos, por quienes los sustituyan conforme al presente Reglamento Orgánico; al Auditor lo sustituirá para estos casos el Secretario General del Consejo.

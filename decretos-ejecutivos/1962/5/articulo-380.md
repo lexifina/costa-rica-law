@@ -1,0 +1,1 @@
+Artículo 380.—En el momento del ingreso, el detenido que se interne depositará en manos del Director o de la persona que se designe, el dinero, joyas y valores que tenga en su poder, de acuerdo con los requisitos establecidos. Si se presenta en horas inhábiles, se le extenderá recibo provisional, que al día siguiente lo será cambiado por los documentos definitivos.

@@ -1,0 +1,1 @@
+Artículo 189.—Mientras no se establezcan centros de orientación juvenil o infantil separados, para mantener la clasificación de los sujetos sometidos a tratamientos de resocialización, los centros ya establecidos destinarán divisiones o pabellones especiales para reunir en cada uno de ellos a los sujetos de distintas clasificaciones.

@@ -1,0 +1,1 @@
+Artículo 610.—Habrá del mismo modo un psiquiatra, con estudios o especialización en materia criminológica, quien también será jefe de los servicios psiquiátricos del ramo médico asistencial, del Consejo Superior.

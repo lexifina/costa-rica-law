@@ -1,0 +1,2 @@
+Artículo 217.—El Consejo de Disciplina deberá reunirse, ordinariamente, una vez por semana; y extraordinariamente, cada vez que lo convoque el Director .del establecimiento.
+El quórum, para cualquier sesión, será de tres de sus integrantes. Además, para que la reunión tenga validez, es preciso que asista el Director o el Subdirector; en ausencia del primero presidirá el Subdirector. Las resoluciones se tomarán por mayoría de votos y, en caso de empate, decidirá el doble voto del miembro que preside.

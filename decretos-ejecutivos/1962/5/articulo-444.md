@@ -1,0 +1,1 @@
+Artículo 444.—La Dirección del Centro organizará un turno de trabajo para los Inspectores, de suerte que, cuando se detenga la actividad regular del Establecimiento por asuetos, días feriados o por algún motivo imprevisto, siempre se cuente con la presencia de uno o dos Inspectores por lo menos.

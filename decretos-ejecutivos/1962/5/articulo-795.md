@@ -1,0 +1,1 @@
+Artículo 795.—La revisión que haga posteriormente el Consejo de una de las indicadas resoluciones no impide la ejecutoriedad de la misma una vez que ésta haya quedado firme conforme al artículo 791 del presente Reglamento Orgánico.

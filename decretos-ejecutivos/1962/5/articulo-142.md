@@ -1,0 +1,1 @@
+Artículo 142.—De todo nombramiento, traslado, permuta de otros movimientos de personal que acuerde el Consejo y la Secretaria General comunique al Director General, enviará esta notificación a la Contabilidad Central, indicando la fecha a partir de la cual empezará a regir lo acordado así como, en su caso, la duración del traslado, licencia, permuta u otro movimiento.

@@ -1,0 +1,1 @@
+Artículo 236.—Será obligación del Consejo proporcionar a los internos trabajo suficiente y adecuado a sus capacidades y aptitudes. Los productos del mismo deberán destinarse a satisfacer necesidades del Departamento Nacional, de conformidad con las reglas establecidas en el Título IV del Libro Primero de este Reglamento Orgánico.

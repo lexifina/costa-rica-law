@@ -1,0 +1,1 @@
+Artículo 581.—En cuanto a disciplina, seguridad y demás medidas de orden, son aplicables a las colonias agrícolas correccionales de régimen semiabierto, las disposiciones establecidas para el régimen correccional cerrado de máxima seguridad.

@@ -1,0 +1,1 @@
+Artículo 205.—Todos los internos quedan obligados a acatar las normas de conducta que, en su propio beneficio y en el colectivo, se dicten para promover la resocialización de los reclusos y lograr una adecuada convivencia entre todos los internos.

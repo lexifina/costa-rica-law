@@ -1,0 +1,1 @@
+Artículo 546. —A las cinco y cuarenta y cinco minutos pasarán al comedor para tomar su desayuno. Cada uno de los internos ocupará el lugar que tenga señalado, v por ningún motivo podrá cambiar el sitio de su asiento.

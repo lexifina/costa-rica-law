@@ -1,0 +1,1 @@
+Artículo 506.—Deberá reunirse cuando menos una vez por semana, en la fecha y hora que al efecto se señale con anticipación. De sus sesiones se llevará resumen en un libro de actas que compilará lo allí acordado. Copia de tales resúmenes serán pasadas al Consejo Superior así como a la Dirección General, una vez aprobados por la misma Unidad.

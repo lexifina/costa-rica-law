@@ -1,0 +1,1 @@
+Artículo 275.—En casos de prescripción médica, se otorgará al interno que lo requiera la dieta que le ha sido expresamente señalada por el facultativo, esto, con preferencia a las demás características de la alimentación general y ordinaria.

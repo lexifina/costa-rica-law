@@ -1,0 +1,1 @@
+Artículo 551.—Los internos dedicados a labores agrícolas, recibirán sus clases de enseñanza clásica y de agricultura técnica en horas de la tarde, según horario que se establecerá entre las dos y las cuatro de la tarde.

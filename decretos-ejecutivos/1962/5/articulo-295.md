@@ -1,0 +1,1 @@
+Artículo 295. —Las visitas a los internos se regirán conforme al reglamento interior de cada establecimiento; pero en ningún caso será permitido el acceso a los centros penitenciarios de personas que pretendan hacer objeto de publicidad escandalosa la vida y los hechos de los internos.

@@ -1,0 +1,1 @@
+Artículo 332.—Durante la visita habrá un servicio de vigilancia que impedirá se entregue a los internos objeto alguno. Todos los objetos que se lleven, serán depositados en la oficina correspondiente del establecimiento, para su entrega. posterior al interno, si ésta procede.

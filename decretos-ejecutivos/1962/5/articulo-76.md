@@ -1,0 +1,1 @@
+Artículo 76.—El Instituto Nacional de Criminología organizará cursos superiores que permitan a los interesados que hayan cumplido su tercera etapa de formación profesional, graduarse en el ramo, según lo establezca el Estatuto de aquella institución, en este Reglamento Orgánico.

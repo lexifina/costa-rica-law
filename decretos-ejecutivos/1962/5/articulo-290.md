@@ -1,0 +1,1 @@
+Artículo 290.—Los estímulos consistirán en otorgar a los internos una mayor amplitud y libertad en los derechos y prerrogativas de que gocen, en cuanto a visitas, correspondencia, auxilios familiares en alimentos, esparcimientos, asistencia a espectáculos, libertad provisoria y otros beneficios.

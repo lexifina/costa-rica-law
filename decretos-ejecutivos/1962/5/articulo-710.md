@@ -1,0 +1,1 @@
+Artículo 710.—La publicación se llamará "Revista Costarricense de Defensa Social"; se editará cuatro veces al año, trimestralmente; y será el órgano de divulgación propio del Consejo Superior de Defensa Social.

@@ -1,0 +1,1 @@
+Artículo 523.—Cada dos meses, por lo menos, en Asamblea General, los reclusos elegirán a los miembros del Comité de Orden, con facultad de reelección, integrando esa directiva de cinco miembros con un número prudencial de suplentes, a juicio del Director.

@@ -1,0 +1,1 @@
+Articulo 352.—En el caso de las compañeras o concubinas, previo informe del Servicio Social Criminológico, se les extenderá el carnet a que se refiere el articulo 343, para lo cual se acompañarán constancia de vecinos, las dos fotografías a que se refiere la misma disposición citada, así como la cédula de identidad.

@@ -1,0 +1,1 @@
+Artículo 579.—Salvo en el caso de alimentos suministrados directamente por sus familiares, por medio de la Administración o adquiridos directamente por los internos, queda prohibido a la Administración entregar alimentos para ser cocidos o preparados en las residencias particulares de los internos que gocen del beneficio indicada en el artículo anterior.

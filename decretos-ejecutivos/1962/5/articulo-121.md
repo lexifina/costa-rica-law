@@ -1,0 +1,1 @@
+Artículo 121.—La Proveeduría de Defensa Social tendrá por funciones primordiales la compra de los bienes y materiales que constituyan las necesidades del Consejo Superior y la venta de los productos de la industria y de las actividades agropecuarias de los centros de reclusión.

@@ -1,0 +1,1 @@
+Artículo 347.—Cuando se trate de visitas especiales al Centro, tales como grupos de estudiantes, entidades de bienestar o filantropía, y otros por el estilo, deberá de contarse con un permiso escrito que se gestionará ante el Director General; en dicha licencia se hará constar la lista e identidad de las personas que efectuarán la visita.

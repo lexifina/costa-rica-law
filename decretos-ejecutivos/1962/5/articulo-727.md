@@ -1,0 +1,1 @@
+Artículo 727.—A las reuniones que celebre la Junta de Profesores para conocer de los asuntos que mencionan los tres artículos anteriores, será citado de, Presidente de la Asociación de Egresados, o la persona que, conforme al artículo 723, designe dicha corporación como su delegado.

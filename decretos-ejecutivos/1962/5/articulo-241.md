@@ -1,0 +1,1 @@
+Artículo 241.—Los centros correccionales tendrán talleres escuelas que se instalarán considerando la mayor demanda de trabajo en. el mercado laboral del país y las necesidades de especialización que existan.

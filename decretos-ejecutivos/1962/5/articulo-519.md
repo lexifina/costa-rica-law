@@ -1,0 +1,1 @@
+Artículo 519.—También facilitará las visitas que tales Jueces efectúen, sin previo aviso, conforme al artículo 337. Existirá un libro especial en el que los funcionarios judiciales anotarán su visita junto con las observaciones que consideren del caso. El Inspector Jefe de Defensa Social debe reportar esas notas al Consejo Superior, para lo que proceda.

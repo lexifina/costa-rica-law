@@ -1,0 +1,1 @@
+Artículo 627.—El Registro levantará mensualmente dos listas completas por orden alfabético, una de los delincuentes primarios que han sido inscritos durante ese mes y otro, de los reincidentes o a quienes se anotaron nuevos Juzgamientos en las tarjetas respectivas, durante el mismo lapso. Copia de estas listas se pasará al Sociólogo.

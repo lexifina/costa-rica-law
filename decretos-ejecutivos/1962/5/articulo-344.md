@@ -1,0 +1,1 @@
+Artículo 344.—La visita diaria, excepto los días domingos, jueves y viernes, no podrán exceder de cincuenta personas. Para ese efecto, la Secretaría llevará un control estricto y no permitirá que la visita, en esos días, sobrepase el número permitido, salvo en los establecimientos abiertos y semiabiertos.

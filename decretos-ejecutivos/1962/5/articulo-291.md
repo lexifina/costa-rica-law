@@ -1,0 +1,1 @@
+Artículo 291.—Tales estímulos se otorgarán a los internos a juicio del Instituto y previo informe del Consejo Disciplinario del establecimiento, atendiendo a su carácter, tendencia, moralidad y demás cualidades personales que permitan formarse un juicio sobre el grado de readaptación y resocialización alcanzado .

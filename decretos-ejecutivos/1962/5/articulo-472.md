@@ -1,0 +1,1 @@
+Artículo 472.—Los materiales necesarios para los trabajos, serán obtenidos de la bodega del Centro, a cargo del Administrador y bajo control del Contador, a quienes se deberá hacer entrega de. los trabajos terminados, todo contra acuse de recibo.

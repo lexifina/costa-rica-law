@@ -1,0 +1,2 @@
+Artículo 50.—El Director General visitará, periódicamente, los departamentos y las secciones, promoviendo reuniones de funcionarios y empleados, a fin de conocer a fondo los problemas de aquellas dependencias, tomar disposiciones para mejorar los servicios y proponer al Consejo programas de acción tendientes al constante mejoramiento de la función que desempeña.
+Para el cumplimiento de sus labores, el Director General podrá contar en cualquier momento que lo requiera, con la colaboración y asesoría de los cuerpos técnicos del Departamento Nacional.

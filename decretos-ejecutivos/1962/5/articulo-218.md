@@ -1,0 +1,3 @@
+Articulo 218.—El Consejo de Disciplina llevará un libro de actas de sus sesiones y acuerdos, los que suscribirán los miembros que concurran a la reunión en que se apruebe el acta respectiva.
+Este libro de actas deberá registrar, en su primer folio, la certificación de autenticidad de la Dirección General de Defensa Social, con la fecha respectiva y la firma del funcionario correspondiente y cada una de sus páginas deberá ser marcada con el sello de la citada Dirección General.
+Una vez firme cada acta, el Secretario del establecimiento pasará copia de la misma a la Dirección General, la Secretaría General del Consejo Superior y a cada uno de los componentes del Consejo Disciplinario.

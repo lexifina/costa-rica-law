@@ -1,0 +1,2 @@
+Artículo 688.—No podrán llevarse asignaturas de carga para el año siguiente, pero se admitirán exámenes para los aplazados en una o dos asignaturas en el mes de enero anterior a la apertura de la matrícula para el curso siguiente.
+Si en esta oportunidad fueren reprobados por segunda vez, quedará cancelada la matrícula de los aplazados, conforme al artículo 680 con las consecuencias señaladas en el artículo 685.

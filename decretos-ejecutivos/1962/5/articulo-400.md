@@ -1,0 +1,1 @@
+Artículo 400.—A la una de la tarde y de acuerdo con. los horarios establecidos individualmente, cada interno irá al lugar de trabajo que le corresponde, según el tratamiento de readaptación a que se halle sometido. La labor de la tarde, durará hasta las dieciséis horas (cuatro de la tarde), momento en que se iniciará un recreo colectivo.

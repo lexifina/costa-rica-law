@@ -1,0 +1,1 @@
+Artículo 404.—Los internos que no reciban clases ni asistan a trabajos podrán permanecer en la Biblioteca dedicados a la lectura, a escribir, o a cualquier otra actividad que expresamente autorice la Dirección.

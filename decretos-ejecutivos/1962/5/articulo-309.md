@@ -1,0 +1,1 @@
+Artículo 309.—El Presidente del Patronato de Egresados será el Director del Centro Correccional, en que el interno se halle. El Secretario nato lo será el Secretario del establecimiento y el Vicepresidente, el Capellán del mismo.

@@ -1,0 +1,1 @@
+Artículo 482.—Las personas que desempeñen cargos en los servicios a que se refieren los artículos 261 a 270 estarán sometidos al Director del Centro durante e! servicio que presten al plantel, aun cuando en sus funciones gozarán de prudente independencia.

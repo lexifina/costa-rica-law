@@ -1,0 +1,1 @@
+Artículo 187.—En todos los casos y durante la época de observación y calificación de peligrosidad, los sentenciados permanecerán aislados y sujetos al régimen disciplinario que determinen los funcionarios encargados de hacer la clasificación del sujeto.

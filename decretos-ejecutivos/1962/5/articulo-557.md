@@ -1,0 +1,1 @@
+Artículo 557.—Los visitantes sólo podrán recorrer las instalaciones del Establecimiento expresamente autorizadas por la Dirección y sólo podrán entrar en contacto con los internos, durante las horas que la misma Dirección determine.

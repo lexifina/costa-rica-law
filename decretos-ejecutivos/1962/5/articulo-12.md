@@ -1,0 +1,1 @@
+Artículo 12.—Tampoco devengarán dieta los miembros que se retiren antes de haber transcurrido dos horas desde la fecha señalada para la sesión, a menos que, por no haber asuntos que tratar o tener que asistir a algún acto determinado, el Presidente o quien haga sus veces, haya levantado la sesión antes o lo haya autorizado para asistir a aquel acto.

@@ -1,0 +1,1 @@
+Artículo 78.—El Consejo integrará un Comité de Orientación del Personal que se compondrá del Secretario General, del Director General, del Inspector Jefe de Defensa Social, del Director del Instituto y del Psicólogo del mismo.

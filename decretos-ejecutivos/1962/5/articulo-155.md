@@ -1,0 +1,3 @@
+CAPITULO VII
+De los Ahorros de los Internos
+Articulo 155.—El Contador de cada centro penal o de orientación, tendrá igualmente a su cargo la percepción de los ahorros de los internos para lo cual llevará una contabilidad definida conforme a las normas que señale el Consejo Superior de Defensa Social por intermedio de su Sección de Contabilidad Central. Además, llevará un tarjetero, con una tarjeta para cada recluso en la que irá anotado minuciosamente el estado constante de ingresos y egresos de cada uno, que deberá coincidir en un todo con la cuenta correspondiente que llevará el organismo contable del Consejo.

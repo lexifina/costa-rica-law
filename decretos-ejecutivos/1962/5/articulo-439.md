@@ -1,0 +1,1 @@
+Artículo 439.—Estará a cargo de estos servidores la formulación y desarrollo de planes de trabajo periódicos en su especialidad, pero sujetos a la aprobación de la Dirección, la que los consultará con el Supervisor de Educación.

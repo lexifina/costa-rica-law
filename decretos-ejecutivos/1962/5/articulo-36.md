@@ -1,0 +1,1 @@
+Artículo 36.—El Secretario General podrá extender certificaciones o copias de documentos cuando el Consejo lo autorice para ello, a costa del interesado, conforme a lo establecido en los artículos 79 y 1055 del Código de Procedimientos Civiles y 250, inciso 9) y 273, inciso 21) del Código Fiscal.

@@ -1,0 +1,1 @@
+Artículo 421.—Tampoco deben ser recluidos en tales Centros, a menores inadaptados a que se refiere el artículo 131 del Código Civil, salvo en casos excepcionales, siempre con licencia del citado Consejo, y cuando puedan ser mantenidos debidamente separados de aquellos menores a que se refiere el artículo 420.

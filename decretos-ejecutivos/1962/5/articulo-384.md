@@ -1,0 +1,1 @@
+Artículo 384.—De hallarse en condiciones de salud que permitan incorporarle a la vida general del establecimiento, según determinación del Instituto, se le asignará su labor tan pronto como sea posible, así como el régimen educativo provisional a que será sometido. En todo caso se procurará que el nuevo interno esté ocioso el menor tiempo que sea posible.

@@ -1,0 +1,1 @@
+Artículo 168.—Queda prohibido, dentro de los centros de Defensa Social, el funcionamiento de Economatos y negocios similares, pertenecientes al personal de ese centro o a elementos de la población penal del mismo. Será aplicable a los Economatos lo dicho en el artículo 164.

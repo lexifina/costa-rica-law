@@ -1,0 +1,1 @@
+Artículo 696.—Los alumnos que se hubieren matriculado en la Sección Penitenciaria no necesitarán llenar la fórmula ni demás requisitos del artículo 679, excepto la presentación de la fotografía y certificado del Registro de Antecedentes Penales.

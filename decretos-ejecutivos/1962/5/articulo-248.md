@@ -1,0 +1,1 @@
+Artículo 248.—Los reclusos sentenciados tendrán derecho a un descuento adicional de la pena de prisión cuando trabajaren dentro o fuera del establecimiento, a razón de un día abonable por cada tres días de trabajo.

@@ -1,0 +1,1 @@
+Artículo 77.—Debe dedicarse el mayor cuidado a los nombramientos para funciones superiores en la administración de Defensa Social; sólo podrán ser consideradas aptas, para tales cargos, las personas que posean una formación apropiada y hayan adquirido conocimientos y experiencia suficientes.

@@ -1,0 +1,1 @@
+Artículo 340.—Los días domingos y jueves sólo podrán ingresar al establecimiento los padres, esposas y parientes cercanos del recluso siempre y cuando hayan cumplido con los requisitos establecidos en este Reglamento Orgánico. Estos dos días son invariables y fuera de ellos no se concederá visita a las personas antes indicadas.

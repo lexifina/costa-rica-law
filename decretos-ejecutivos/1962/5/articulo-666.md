@@ -1,0 +1,1 @@
+Artículo 666.—A todo informe agregará el Instituto su propio diagnóstico criminológico y una prognosis o recomendación de tratamiento; o, en su caso, formulará las conclusiones que se pueden derivar del estudio realizado de acuerdo con los fines para los cuales se ha llevado a cabo la observación solicitada.

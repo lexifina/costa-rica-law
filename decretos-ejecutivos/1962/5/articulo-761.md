@@ -1,0 +1,1 @@
+Articulo 761.—Las empresas tienen obligación de exhibir en forma no-;toria, a la entrada de los espectáculos, la calificación hecha por la Oficina de Censura. Además están en la obligación de exhibir en la misma forma cualquier aviso o disposición general de la Oficina de Censura cuando ésta así lo solicite.

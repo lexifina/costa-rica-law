@@ -1,0 +1,1 @@
+Artículo 278.—Los internos que lo deseen, podrán ser facultados para recibir alimentación especial de sus familiares. En ningún caso, con excepción de la prescripción médica, en el propio establecimiento se establecerán diferencias en la alimentación.

@@ -1,0 +1,1 @@
+Artículo 282.—En los establecimientos correccionales deberá estimularse a los internos para la práctica de los deportes, preferentemente en equipo, debiendo proveérseles en la medida que sea posible, de útiles y campos deportivos apropiados.

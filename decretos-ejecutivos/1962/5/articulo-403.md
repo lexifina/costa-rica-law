@@ -1,0 +1,1 @@
+Artículo 403.—De las seis de la mañana a las 18 horas (seis de la tarde), los dormitorios permanecerán cerrados. Si algún interno, por cualquier motivo, necesitare salir del dormitorio durante las horas indicadas, solicitará. permiso al respectivo celador.

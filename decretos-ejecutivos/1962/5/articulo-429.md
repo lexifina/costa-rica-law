@@ -1,0 +1,1 @@
+Artículo 429.—El Director deberá promover fiestas y celebraciones de orden cultural, a fin de que esas actividades influyan ventajosamente en la formación espiritual de los jóvenes internos. De estas actividades dará cuenta a la Dirección General y al Consejo Superior.

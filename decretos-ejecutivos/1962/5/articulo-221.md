@@ -1,0 +1,1 @@
+Articulo 221.—En los aspectos técnicos educativos y en cuanto a la relación laboral, los maestros de materias clásicas y de teoría vocacional, dependerán del Ministerio de Educación Pública, que los nombrará libremente.

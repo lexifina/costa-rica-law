@@ -1,0 +1,1 @@
+Articulo 230.—A los internos mayores de 60 años y a quienes carezcan de capacidad mental mínima que sea necesaria para estar sujetos al régimen educativo general que se establezca en forma ordinaria, se les someterá a un tipo de educación adecuado a sus circunstancias e, incluso, se les podrá eximir del régimen educativo, previo dictamen del Instituto y aprobación del Consejo.

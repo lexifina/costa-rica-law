@@ -1,0 +1,1 @@
+Artículo 540.—Durante el día y de acuerdo con el horario de labores que se establece, los internos gozarán de una libertad vigilada, pudiendo trasladarse libremente a los lugares de la Isla que, expresamente, autorice el Director.

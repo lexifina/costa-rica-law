@@ -1,0 +1,1 @@
+Artículo 273.—Todos los locales destinados para la habitación y el trabajo de los internos, deberán estar dotados adecuadamente de luz y de ventilación. Las instalaciones sanitarias se conservarán siempre en condiciones higiénicas.

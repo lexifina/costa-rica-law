@@ -1,0 +1,2 @@
+Artículo 213.—Los internos que sufran corrección en celdas de aislamiento, serán visitados por el médico y el psicólogo, quienes recomendarán, en casos necesarios, las modificaciones, atenuaciones o suspensión que se hagan aconsejables en la aplicación de la medida disciplinaria.
+A todo interno sometido a aislamiento se le proporcionará material de lectura adecuada en los ratos no destinados a la labor que debe hacer o a los sistemas curativos o de readaptación a que se halle sujeto.

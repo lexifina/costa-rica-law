@@ -1,0 +1,1 @@
+Artículo 586.—Los internos solteros, o que no tengan familiares o que, dentro del régimen de resocialización a que se hallen sujetos, no 'sea aconsejable la unión con su familia, vivirán en pabellones colectivos.

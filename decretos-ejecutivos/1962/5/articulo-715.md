@@ -1,0 +1,1 @@
+Artículo 715.—El material de canjes, suscripciones de cortesía y demás que reciba la Revista, será de propiedad exclusiva de la Biblioteca del Consejo, por lo que no podrá ser vendido ni cambiado, salvo autorización especial del Consejo Superior, en el caso de repetición de ejemplares.

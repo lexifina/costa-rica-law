@@ -1,0 +1,1 @@
+Artículo 623.—Cuando una sentencia contenga condenatoria para varios penados, sea en calidad de autores o de cómplices, se enviará un resumen separado para cada uno y en el Registro se hará asimismo la separación de tarjetas consiguiente.

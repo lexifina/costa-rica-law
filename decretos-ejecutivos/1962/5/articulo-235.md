@@ -1,0 +1,1 @@
+Artículo 235.—En ningún caso podrá ser el trabajo que se realice en los centros correccionales, objeto de concesión a particulares. Tampoco podrá supeditarse el lucro que se obtenga con el trabajo, al interés educativo y terapéutico de la resocialización de los internos.

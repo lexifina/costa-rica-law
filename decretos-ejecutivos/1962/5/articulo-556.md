@@ -1,0 +1,3 @@
+Artículo 556.—Al desembarcar en la Isla, tanto los guardianes como los visitantes y el personal administrativo del Establecimiento, serán detenidamente requisados.
+Todos los objetos, que a juicio de la Dirección, no deban entrar al Establecimiento, quedarán en depósito en el puesto de guardianes de desembarco, para ser devueltos a los visitantes, en el momento de su salida.
+Todas las bebidas alcohólicas o embriagantes, las armas, las cuchillas y las drogas estupefacientes, serán confiscadas por los guardianes. Cuando la portación de los objetos constituyan delito o falta, los responsables serán detenidos y puestos inmediatamente a la orden de autoridad competente.

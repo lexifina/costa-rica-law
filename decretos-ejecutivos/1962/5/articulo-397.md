@@ -1,0 +1,1 @@
+Artículo 397.—Al cese del trabajo, tanto en la mañana como en la tarde el interno entregará al maestro de taller o de escuela las herramientas o útiles que haya utilizado en su labor conforme a la tarjeta respectiva. Efectuada la entrega, el maestro lo comunicará al guardián de turno, para que éste proceda a requisar a los internos que abandonen la sala de trabajo.

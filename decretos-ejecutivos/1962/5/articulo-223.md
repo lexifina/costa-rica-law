@@ -1,0 +1,1 @@
+Artículo 223.—En el aspecto disciplinario, los maestros quedan sujetos a las normas administrativas generales que fijan el presente Reglamento Orgánico V a las disposiciones internas del Centro de readaptación en que laboren.

@@ -1,0 +1,2 @@
+Artículo 718.—El Museo se formará con los objetos relacionados con la criminalidad nacional en sus diversas épocas y comprenderá documentos, armas. instrumentos de castigo o de sujeción de los delincuentes, objetos que sirvan para cometer delitos y cualesquiera otros por el estilo.
+También podrá coleccionar el Museo las piezas que le sean enviadas del extranjero, por instituciones similares, así como fotografías o reproducciones de piezas de la misma índole que se obtengan de los objetos existentes en otros libares.

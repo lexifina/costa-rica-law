@@ -1,0 +1,1 @@
+Artículo 81.—El Consejo Superior proporcionará la defensa de letrados a los empleados y funcionarios que, en el ejercicio de su cargo, hayan incurrido durante actos de cumplimiento en hechos de defensa legítima que los sometan a la acción de los Tribunales.

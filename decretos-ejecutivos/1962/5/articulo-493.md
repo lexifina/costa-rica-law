@@ -1,0 +1,2 @@
+Artículo 493.—En caso de fugas de menores, la Dirección investigará sumariamente la forma en que esos eventos se han llevado a cabo, a fin de determinar la responsabilidad, caso de haber descuido, negligencia o malicia de alguno de los celadores. El mismo procedimiento se seguirá en cuanto hubiere indicios atribuibles a otros empleados del Establecimiento.
+Toda fuga será reportada, inmediatamente, así como el resultado de dicha información, a la autoridad judicial de quien dependa el menor, con copia para el Inspector Jefe, el Director General y el Consejo Superior.

@@ -1,0 +1,1 @@
+Artículo 705.—Al finalizar el tercer año, los alumnos no bachilleres recibirán el diploma de "Técnico Criminalístico". Los estudiantes bachilleres recibirán el título de "Licenciado en Criminalística", con la aprobación del Instituto del Consejo, conforme al articulo 10 de la Ley de Defensa Social.

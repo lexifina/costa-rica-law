@@ -1,0 +1,1 @@
+Artículo 461.—Los maestros vocacionales, como los demás empleados, estarán supeditados a la autoridad del Director del Centro. Pero en tratándose de los trabajos que se efectúen y su contratación, aprovechamiento de materiales, maquinaria, equipos, instrumentos y mobiliario en general, dependerán del Administrador del Centro.

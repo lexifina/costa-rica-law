@@ -1,0 +1,1 @@
+Artículo 383.—El interno permanecerá en celda individual o de no haberlas disponibles, en celda colectiva de no más de tres personas, durante todo el tiempo que se considere necesario para su observación, entrevistas de servicio social, calificación y práctica de los exámenes médicos, psiquiátricos y psicológicos que sean necesarios.

@@ -1,0 +1,1 @@
+Artículo 238.—El trabajo de los internos deberá realizarse, en lo posible, dentro de condiciones similares a aquellas que se aplican normalmente en la República. En cuanto al salario, se estará a lo dicho en los artículos 171 a 180, mientras no varíen las posibilidades económicas del Departamento Nacional de Defensa Social.

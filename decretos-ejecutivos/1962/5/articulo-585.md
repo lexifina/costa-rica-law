@@ -1,0 +1,1 @@
+Artículo 585.—Los internos podrán vivir en estos establecimientos en unión de sus familiares, siempre que, de los estudios sociales, familiares y ambientales realizados, se desprenda que tal presencia es beneficiosa para la resocialización del interno.

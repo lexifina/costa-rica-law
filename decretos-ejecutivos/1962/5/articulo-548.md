@@ -1,0 +1,1 @@
+Artículo 548.—Los internos que hayan terminado de desayunar, podrán abandonar el comedor y permanecer en recreo hasta las seis y media de la mañana, hora a la que todos se dirigirán a sus respectivas labores, de acuerdo con el destino que se les haya señalado, según su aptitud y al régimen que estén sujetos.

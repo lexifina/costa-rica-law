@@ -1,0 +1,1 @@
+Artículo 191.—Se procurará mantener a los simples indiciados sin ningún contacto con los sentenciados, preferentemente en los establecimientos de régimen cerrado. Asimismo a los delincuentes políticos se les destinarán divisiones especiales.

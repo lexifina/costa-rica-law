@@ -1,0 +1,1 @@
+Artículo 497.—En cuanto al horario de labores se aplicará, en términos generales, lo dispuesto en este Reglamento Orgánico, pero el Director podrá introducir las modificaciones que juzgue pertinentes, para el mejor servicio.

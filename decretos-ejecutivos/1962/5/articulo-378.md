@@ -1,0 +1,1 @@
+Artículo 378.—De presentarse en el centro correccional alguna persona que diga haber cometido un delito, el Director o quien lo sustituya dispondrá su admisión provisional, destinándole a un lugar aislado, sin relación posible con ningún recluso. Inmediatamente comunicará el hecho al Juez que hubiere de conocer del caso, ateniéndose a lo que éste resuelva.

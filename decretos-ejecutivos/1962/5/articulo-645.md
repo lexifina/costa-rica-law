@@ -1,0 +1,3 @@
+Sección 5a —Disposiciones Generales:
+Artículo 645.—Todo acuerdo o decreto que el Ministerio de Gracia dicte concediendo amnistía, indulto o rehabilitación, deberá ser anotado por el Registro, dentro de los tres días siguientes a la fecha en que se publique en "La Gaceta" Oficial, para que esta oficina anote tales acuerdos al margen de los asientos correspondientes y los incluya en las posteriores certificaciones.
+El Consejo Superior de Defensa Social comunicará al Registro el otorgamiento de beneficio de libertad condicional o la revocatoria de la misma, así como la retención adicional a que se refiere el artículo 103 del Código Penal, para los efectos del artículo 637.

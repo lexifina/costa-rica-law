@@ -1,0 +1,1 @@
+Artículo 470.—Ningún menor podrá cambiar de taller sin previo dictamen de su asistente social y autorización de la Dirección, lo cual deberá ser in' formado al Instituto para la ratificación del traslado. En todo caso, los menores no estarán menos de un mes en el taller donde se les va a permutar.

@@ -1,0 +1,1 @@
+Artículo 387.—Si el ingresado adoleciere de alguna enfermedad que así lo requiera, a juicio del médico del establecimiento, pasará a la enfermería y en ella permanecerá hasta su restablecimiento. En la enfermería, se iniciará el período de observación y calificación.

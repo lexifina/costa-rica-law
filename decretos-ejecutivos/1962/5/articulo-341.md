@@ -1,0 +1,1 @@
+Artículo 341.-—Al correccional no podrán ingresar como visitantes menores de quince años; no obstante, en casos muy calificados el Consejo de Disciplina podrá autorizar la visita de los menores mencionados.

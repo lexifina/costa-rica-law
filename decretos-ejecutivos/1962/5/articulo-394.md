@@ -1,0 +1,1 @@
+Artículo 394.—Sólo podrán permanecer en los talleres y demás lugares, de trabajo los reclusos autorizados. Para el debido control, a la puerta de cada taller habrá una relación en la que figure el nombre completo de los internos que trabajen en el respectivo lugar. En la escuela, el maestro pasará lista de los. asistentes y habrá listas similares en la puerta de las aulas.

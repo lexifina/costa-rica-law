@@ -1,0 +1,1 @@
+Artículo 131.—Los ingresos del Departamento Nacional, serán depositados en la cuenta bancaria que abrirá el Consejo en el o los establecimientos bancarios que estime pertinente. Los depósitos deben ser firmados por el Jefe de la Contabilidad o, en su defecto, por el Auditor o el Fiscal Económico. Se dará cuenta denlos mismos al Fiscal Económico, inmediatamente.

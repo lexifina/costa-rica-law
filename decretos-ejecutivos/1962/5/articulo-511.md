@@ -1,0 +1,1 @@
+Artículo 511.—La práctica de artes se realizará de idéntico modo. Se tratará especialmente de integrar grupos de orfeones, orquestas y conjuntos de fanfarria o banda. Asimismo prácticas de dibujo, pintura, elementos de dibujo lineal y otras manifestaciones artísticas, según las disposiciones de los menores.

@@ -1,0 +1,1 @@
+Artículo 376.—El Bibliotecario del Instituto revisará, periódicamente, las bibliotecas de los establecimientos, impartiendo las instrucciones necesarias y fiscalizando el funcionamiento de las mismas. De todo ello formulará reportes el Instituto con copia al Director General y, en lo conducente, al Director del respectivo Centro,

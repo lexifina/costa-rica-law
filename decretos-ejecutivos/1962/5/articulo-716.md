@@ -1,0 +1,1 @@
+Artículo 716.—Las publicaciones que editen el Consejo Superior y el Instituto y las memorias que se reciban del Ministerio de Justicia, en las que vayan incluidas las del Consejo Superior y sus dependencias, serán distribuidas, para efectos de divulgación y de canje, a través del Instituto por la Administración de la Revista.

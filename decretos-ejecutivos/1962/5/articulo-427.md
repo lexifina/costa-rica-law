@@ -1,0 +1,1 @@
+Artículo 427.—Se designará a un Subdirector, quien sustituirá al Director en sus ausencias y, además, colaborará con él en la buena marcha del establecimiento. Deberá reunir las mismas condiciones exigidas en el artículo anterior.

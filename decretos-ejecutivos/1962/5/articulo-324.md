@@ -1,0 +1,1 @@
+Artículo 324.—La correspondencia dirigida a la Corte Suprema de Justicia, al Ministerio de Justicia, al Departamento Nacional o a las autoridades judiciales, no será censurada ni retenida por la Dirección del establecimiento y para ella. existirá un buzón especial en cada centro.

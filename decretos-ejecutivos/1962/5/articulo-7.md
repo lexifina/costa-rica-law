@@ -1,0 +1,1 @@
+Artículo 7°—El quórum para todas las sesiones será de cinco asistentes. Las resoluciones serán tomadas por simple mayoría. En caso de empate decidirá el voto doble de quien presida, salvo que se disponga dejar el asunto para la próxima inmediata sesión.

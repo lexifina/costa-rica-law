@@ -1,0 +1,1 @@
+Artículo 348.—Los permisos de ingreso a un Centro pueden gestionarse también por correo, pero sólo cuando se trate de personas que vivan fuera del asiento del establecimiento. En estos casos la comunicación oficial autorizando la visita debe ser presentada en la puerta del establecimiento el día y hora que allí se indique, conjuntamente con la cédula de identidad.

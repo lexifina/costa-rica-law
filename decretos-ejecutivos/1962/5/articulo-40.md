@@ -1,0 +1,1 @@
+Artículo 40.—Como ejecutor de los acuerdos del Consejo, el Director General velará por el cumplimiento de los pronunciamientos de ese organismo. Deberá, además, tomar todas las providencias necesarias para el buen funcionamiento del Departamento Nacional.

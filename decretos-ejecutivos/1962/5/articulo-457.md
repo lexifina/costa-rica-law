@@ -1,0 +1,1 @@
+Artículo 457.—La selección de los maestros la hará el Servicio Civil en forma cuidadosa y tomando las medidas convenientes para conseguir personas que tengan capacidad psico-pedagógica que les permita contribuir eficazmente a la orientación y readaptación de los niños que estén a su cuidado.

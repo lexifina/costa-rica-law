@@ -1,0 +1,1 @@
+Artículo 417.—La Dirección estimulará la formación de cuadros deportivos, artísticos y de labor cultural y social entre los internos, con el propósito de despertar entre, ellos la solidaridad y de estimularlos en su conducta.

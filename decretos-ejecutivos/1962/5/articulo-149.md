@@ -1,0 +1,1 @@
+Artículo 149.—Los Directores de los centros de defensa social, así como los jefes de talleres y los de agricultura, podrán apelar, ante el Director General: de Defensa Social de las medidas o disposiciones que tome el Administrador, pero, entre tanto no se resuelva el caso en alzada, estarán obligados a atender sus disposiciones .

@@ -1,0 +1,1 @@
+Artículo 255.—Cuando el recluso fugado sé presentare en forma voluntaria, se le podrá abonar el cincuenta por ciento del descuento con trabajo que tenía a la fecha de su fuga y tomar éste en cuenta nuevamente a partir del día de su presentación.

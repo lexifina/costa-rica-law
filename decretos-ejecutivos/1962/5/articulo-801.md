@@ -1,0 +1,1 @@
+Artículo 801.—Es deber de los Inspectores, denunciar por escrita a la Oficina de Censura cualquier infracción que se produzca al presente Título II de este Reglamento Orgánico. Y mantener informada a la Oficina de sus actuaciones, por medio de reportes que deberán presentar en períodos fijos por la mencionada Oficina.

@@ -1,0 +1,1 @@
+Articulo 707.—Asimismo colaborará, por medio del Servicio Social y sus expertos y profesores de las Escuelas a su cargo, al mejoramiento de nivel cultural de los reclusos, en asocio de los maestros de enseñanza y vocacional así como en la organización de las bibliotecas de los establecimientos correccionales.

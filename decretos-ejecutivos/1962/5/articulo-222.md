@@ -1,0 +1,1 @@
+Artículo 222.—El Consejo Superior de Defensa Social, en caso de incapacidad de un maestro o de faltas graves, podrá ordenar que se le levante una' información cuyo resultado pondrá en conocimiento del Ministerio de Educación Pública para que éste, con vista de esa información, proceda a destituirlo o trasladarlo del establecimiento, según lo estime conveniente.

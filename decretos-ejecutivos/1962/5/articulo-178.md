@@ -1,0 +1,1 @@
+Artículo 178.—El informe sobre jornales lo suministrará, quincenalmente, el Contador del Establecimiento, con el refrendo del Director y el Administrador del mismo, a la Contabilidad Central del Consejo Superior, para la confección de las respectivas planillas.

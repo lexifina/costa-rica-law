@@ -1,0 +1,1 @@
+Artículo 601.—Cuando la categoría del interno lo permita, no habrá inconveniente en que, previo dictamen del Instituto, la Dirección General autorice la permanencia conjunta de reclusas rematadas, enmendables con personas sujetas a medidas de seguridad en vías de resocialización.

@@ -1,0 +1,1 @@
+Artículo 484.—Las cuestiones que surjan tocantes a estos servidores, serán resueltas, hasta donde sea posible, por la Dirección del Centro o, en caso de duda, por el Consejo Disciplinario. Si tales conductos no fueren suficientes o eficaces, resolverá el Director General.

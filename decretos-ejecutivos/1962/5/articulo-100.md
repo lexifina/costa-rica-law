@@ -1,0 +1,1 @@
+Artículo 100.—La justificación de las ausencias y llegadas tardías se pondrá en conocimiento del superior inmediato, por escrito; existirá la facultad, para dicho superior, de comprobar la justificación.

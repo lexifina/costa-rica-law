@@ -1,0 +1,1 @@
+Artículo 682.—Al terminar el curso preparatorio el alumno aprobado recibirá un certificado de aptitud para ingresar a la Escuela Penitenciaria. Las asignaturas sobre las cuales versarán esos cursos serán principalmente: Elementos de Matemáticas, Lengua Materna, Estudios Sociales y Ciencias.

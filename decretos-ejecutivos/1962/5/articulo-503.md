@@ -1,0 +1,2 @@
+Artículo 503.—El Servicio Social, de consuno con la Dirección del Centro, mantendrá un sistema progresivo de educación vigilada, a cuyo efecto recabará informe de los maestros sobre progreso o inadaptación de los menores recomendaciones y demás observaciones importantes.
+Asimismo, los oficiales de Prueba de dicho Servicio Social tendrán a su cargo llevar a cabo un tratamiento post-liberatorio, a fin de orientar al menor debidamente al reintegrarse a la colectividad, y de prevenir un posible comportamiento antisocial.

@@ -1,0 +1,2 @@
+Artículo 27.—Las resoluciones sobre el beneficio que permita a los internos trabajar fuera del establecimiento, a cargo de una institución o corporación pública, se ejecutarán desde que fueren aprobadas y su aplicación quedará a cargo de la Dirección General de Defensa Social, en asocio de la Sección de Servicio Social.
+Cuando el beneficio fuere resuelto, se comunicará así al interesado, pasando copia a la institución solicitante y a la Dirección General.

@@ -1,0 +1,1 @@
+Artículo 507.—El Consejo Técnico establecerá cuáles son las personas a quienes se permitirá al menor que escriba; y también quiénes son las personas autorizadas para visitar al menor así como el control a que deben sujetarse tales actividades y sanciones por infracción a sus disposiciones. Supletoriamente se aplicará lo dicho en los artículos 321 a 325 en cuanto quepa.

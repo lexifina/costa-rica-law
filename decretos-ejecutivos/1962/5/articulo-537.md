@@ -1,0 +1,1 @@
+Artículo 537.—Los valores y demás pertenencias del interno, se pondrán a la orden del Director del Establecimiento, según lo dispuesto en los artículos correspondientes dé esté Reglamento Orgánico. Se notificará a la Contabilidad Central, a la Auditoría y a la Contabilidad de la Colonia, para, los efectos del peculio y haberes del recluso.

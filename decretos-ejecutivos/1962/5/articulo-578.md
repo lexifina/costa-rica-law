@@ -1,0 +1,1 @@
+Articulo 578.—Como estímulo, dentro del proceso de resocialización, la Dirección podrá autorizar a los internos a vivir en casas separadas e individuales. Los internos que disfruten de este beneficio, tendrán que asistir a los sitios en que existan servicios comunes, tales como comedores, Biblioteca, etc.

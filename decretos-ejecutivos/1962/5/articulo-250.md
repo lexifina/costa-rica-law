@@ -1,0 +1,1 @@
+Artículo 250.—Los indiciados podrán acogerse, a este beneficio, en cuyo caso se les abonará el descuento obtenido si sobre ellos recayere sentencia; si fueren absueltos, no podrá acreditarse el descuento obtenido a otro proceso.

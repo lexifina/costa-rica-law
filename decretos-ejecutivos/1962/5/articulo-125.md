@@ -1,0 +1,1 @@
+Artículo 125.—La Proveeduría de Defensa Social enviará copia de las ofertas a la Contraloría General de la República y al Consejo Superior de Defensa Social y, al publicarse en "La Gaceta" la adjudicación acordada por el Consejo, guardará los tres días de espera que indica el artículo 100, inciso h) de la Ley de la Administración Financiera de la República.

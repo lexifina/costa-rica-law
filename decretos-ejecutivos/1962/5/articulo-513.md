@@ -1,0 +1,1 @@
+Artículo 513.—Dentro del plan vocacional se buscará la realización de fines prácticos que permitan al menor atender su sustento, constituyendo una defensa para su vida, una vez egresado del establecimiento.

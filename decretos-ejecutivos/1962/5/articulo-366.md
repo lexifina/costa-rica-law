@@ -1,0 +1,1 @@
+Artículo 366.—Cuando la "hoja resguardo de valores" en poder del interno se extraviare, éste lo notificará así por escrito a la Secretaría del Establecimiento. Si la hoja no apareciere, se extenderá para él un duplicado con una contraseña en la que se señalará claramente que se trata de un duplicado por extravío.

@@ -1,0 +1,1 @@
+Artículo 496.—Toda falla en el régimen, que no esté en poder del Director o del personal remediarlo, debe ser reportada, inmediatamente, a la Dirección General, para que ésta tome las medidas pertinentes o lo ponga en conocimiento del Consejo Superior, al que, de cualquier modo, el Director pasará copia de ese informe.

@@ -1,0 +1,1 @@
+Artículo 262.—Cada establecimiento correccional contará con las instalaciones necesarias para servicios médicos clínicos, hospitalarios y farmacéuticos. El Ministerio de Salubridad Pública procurará establecer en esas instalaciones una "Unidad Sanitaria", de las características y condiciones propias del establecimiento.

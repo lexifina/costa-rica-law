@@ -1,0 +1,1 @@
+Artículo 637.—Cuando la cancelación se hiciera de acuerdo con el artículo 96 citado, debe mediar orden escrita del Tribunal o autoridad respectiva, que se agregará al reverso del propio resumen; y, se basa en los artículos 143 y 144 dichos, debe ajustarse la presentación a los requisitos y trámites que indican los. artículos siguientes.

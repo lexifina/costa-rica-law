@@ -1,0 +1,1 @@
+Artículo 337.—Los directores de los establecimientos, facilitarán en todo lo posible las visitas que realicen los miembros del Poder Judicial y funcionarios indicados en el artículo 319, en cumplimiento de sus obligaciones legales.

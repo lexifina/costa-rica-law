@@ -1,0 +1,1 @@
+Artículo 329.—Aquellos que se hallen en la enfermería, imposibilitados para asistir al lugar destinado para las visitas, podrán recibir a sus padres, cónyuge, hijos o hermanos, en dichas dependencias, siempre que el Médico del establecimiento lo permita y esté disfrutando de un privilegio.

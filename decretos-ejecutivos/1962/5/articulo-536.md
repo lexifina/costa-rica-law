@@ -1,0 +1,1 @@
+Artículo 536.—Al ser trasladado el interno a un Centro de esta naturaleza se remitirá el expediente personal correspondiente a la Colonia, al que se agregará la resolución motivada que autorizó el traslado a dicho Centro.

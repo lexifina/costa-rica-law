@@ -1,0 +1,3 @@
+Sección 2a —Del Secretario:
+Artículo 433.—El Secretario es el colaborador inmediato del Director, a quien reemplazará, cuando no pudiere hacerlo el Subdirector, en sus ausencias, momentáneamente o por encargo que le haga el Consejo Superior, en caso de permiso o vacaciones. También podrá sustituir en estos últimos casos y en la misma forma, al Subdirector. Tendrá a su cargo la redacción y preparación de la correspondencia que firmará el Director y la que él mismo suscriba; el archivo, el tarjetero, las actas del Consejo de Disciplina y demás actividades puramente administrativas del Establecimiento que el Director le encomiende.
+Debe ser, de preferencia, graduado o cuando menos egresado de Servicio de Social o de Pedagogía.

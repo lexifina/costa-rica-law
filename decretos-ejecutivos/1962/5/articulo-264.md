@@ -1,0 +1,1 @@
+Artículo 264.—Las condiciones higiénicas del régimen correccional se ajustarán a los principios de la medicina preventiva, teniendo como finalidad la conservación y el mejoramiento de la salud física y mental del interno.

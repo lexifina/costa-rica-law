@@ -1,0 +1,1 @@
+Artículo 41.—En cumplimiento de las funciones de asesoramiento técnico el Director General deberá emitir dictamen en todos los casos en que la ley o los reglamentos lo exijan o se lo ordene el Consejo; además, informará siempre en las solicitudes de beneficio para los reclusos que determine la ley, tales como cese de reclusión de menores, libertad condicional y demás similares.

@@ -1,0 +1,1 @@
+Artículo 466.—Semanalmente, los maestros vocacionales rendirán un informe sumario de sus labores, en cuatro tantos, para la Dirección del Centro, el Administrador, el Supervisor de Educación y el Departamento de Educación Vocacional que indica el artículo 465.

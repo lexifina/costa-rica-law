@@ -1,0 +1,2 @@
+Artículo 759.—En las tandas o funciones en que se exhiban películas autorizadas por la Censura sin especial prohibición para menores, sólo se podrán proyectar anuncios o escenas de otras películas que hayan sido aprobadas por la Censura en las mismas condiciones. En las tandas o funciones en que exhiban
+-películas típicamente para niños, sólo se podrán proyectar revistas de la misma índole y no se permitirá proyectar anuncios o escenas de otras películas.

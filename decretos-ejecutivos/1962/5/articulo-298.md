@@ -1,0 +1,1 @@
+Artículo 298.—En caso de fallecimiento del interno, de enfermedad o accidentes graves o en otra circunstancia que lo amerite, el Director informará inmediatamente a quienes corresponda tener conocimiento de tales hechos de acuerdo con el estudio social del interno, así como al Director General y al Instituto.

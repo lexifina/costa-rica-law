@@ -1,0 +1,1 @@
+Artículo 251.—Los Directores de los establecimientos suministrarán a la Dirección General de Defensa Social, en forma de certificación, los informes sobre trabajo y conducta de los reclusos; siempre que aquella dependencia lo solicite.

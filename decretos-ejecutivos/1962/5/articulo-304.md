@@ -1,0 +1,1 @@
+Artículo 304.—Corresponde al Departamento de Servicio Social y su Sección de Prueba del Instituto, prestar su asistencia a los internos en los correccionales de régimen cerrado, de régimen semiabierto y de régimen abierto, pero, en este último caso, tiene que tratarse de mayores de edad, hombres o mujeres.

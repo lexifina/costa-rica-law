@@ -1,0 +1,1 @@
+Artículo 364.—De acuerdo con los porcentajes que fije la ley, la Contabilidad del establecimiento puede entregar dinero de propiedad del interno, a la persona que ésta indique en forma escrita, previa autorización del Director del Centro.

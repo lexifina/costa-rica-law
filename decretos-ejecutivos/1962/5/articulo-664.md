@@ -1,0 +1,1 @@
+Artículo 664.—De cada sujeto que se disponga examinar se levantará un expediente, de conformidad con el modelo adoptado por el Instituto, que servirá para llenar una ficha sintética. Los datos de la ficha o sumarización deben corresponder a los informes que consten en el expediente que, de cada elemento examinado, llevará debidamente numerado y ordenado, el Instituto.

@@ -1,0 +1,1 @@
+Articulo 532.—El Director del Centro podrá establecer las prohibiciones que juzgue convenientes, a fin de proteger la salud moral de los jóvenes, pero con sujeción a las leyes, a este Reglamento Orgánico y a las órdenes superiores jerárquicas.
