@@ -1,0 +1,1 @@
+6°.- Cualquier alteración o cualquier indicio de intento de alterar la cantidad fijada por la Dirección General de Correos, dará resultado que se considere cancelada la autorización para el uso de la máquina, automáticamente.”

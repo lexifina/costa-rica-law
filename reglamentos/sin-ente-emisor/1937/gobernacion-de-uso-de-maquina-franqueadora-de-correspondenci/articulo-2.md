@@ -1,0 +1,1 @@
+2°.- La Dirección General de Correos adoptará el mecanismo de la máquina a la cantidad depositada previamente para franquear, con las seguridades del caso para que no se pueda abrir sin su intervención.
