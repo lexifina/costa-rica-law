@@ -1,0 +1,3 @@
+Artículo 38.—Liquidación de obligaciones: segunda cuenta.
+1. Las obligaciones contraídas por el Fondo en relación con las operaciones de la Segunda Cuenta se liquidarán utilizando los recursos de esa cuenta, de conformidad con lo dispuesto en el párrafo 4 del artículo 18.
+2. Todos los activos restantes de la Segunda Cuenta se distribuirán primero entre los Miembros, hasta el valor de sus suscripciones de acciones de capital aportado directamente asignadas a esa cuenta de conformidad con lo dispuesto en el párrafo 3 del artículo 10, y después entre los contribuyentes a esa cuenta en proporción a la parte que corresponda a cada uno de ellos de la cantidad total aportada de conformidad con lo dispuesto en el artículo 13.

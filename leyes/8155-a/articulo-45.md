@@ -1,0 +1,1 @@
+Artículo 45.—Exención de restricciones sobre los activos. En la medida que sea necesaria para realizar las operaciones previstas en el presente Convenio y con sujeción a las disposiciones del mismo, todos los bienes y activos del Fondo estarán exentos de toda clase de restricciones, regulaciones, medidas de control o moratorias.

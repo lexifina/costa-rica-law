@@ -1,0 +1,9 @@
+Artículo 25.—Comité consultivo.
+1.
+a) El Consejo de Gobernadores, teniendo en cuenta la necesidad de que la Segunda Cuenta empiece a funcionar lo antes posible, establecerá cuanto antes, conforme a las normas y reglamentos que adopte, un Comité Consultivo para facilitar las operaciones de la Segunda Cuenta.
+b) En la composición del Comité Consultivo se tendrán debidamente en cuenta la necesidad de una distribución geográfica amplia y equitativa, la necesidad de que sus miembros sean expertos en cuestiones de desarrollo de productos básicos y la conveniencia de asegurar una amplia representación de intereses, en particular de los contribuyentes voluntarios.
+2. Las funciones del Comité Consultivo serán las siguientes:
+a) Asesorar a la Junta Ejecutiva sobre los aspectos técnicos y económicos de los programas de medidas que los organismos internacionales de productos básicos propongan al Fondo para su financiación o cofinanciación a través de la Segunda Cuenta y sobre la prioridad relativa que deba atribuirse a estas propuestas;
+b) Asesorar, a petición de la Junta Ejecutiva, sobre aspectos específicos relacionados con la evaluación de proyectos concretos que estén en examen con miras a su financiación a través de la Segunda Cuenta;
+c) Asesorar a la Junta Ejecutiva sobre las directrices y criterios que deban aplicarse para determinar la prioridad relativa de cada una de las medidas comprendidas en las operaciones de la Segunda Cuenta, elaborar procedimientos de evaluación, conceder préstamos y donaciones, y realizar operaciones de cofinanciación con otras instituciones financieras internacionales y con otras entidades;
+d) Formular observaciones sobre los informes que presente el Director Gerente acerca de la supervisión, ejecución y evaluación de los proyectos que se financien con cargo a la Segunda Cuenta.

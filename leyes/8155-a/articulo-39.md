@@ -1,0 +1,3 @@
+Artículo 39.—Liquidación de obligaciones: otros activos del fondo.
+1. Todos los otros activos se realizarán en el momento o en los momentos que decida el Consejo de Gobernadores, teniendo en cuenta las recomendaciones de la Junta Ejecutiva y de conformidad con los procedimientos que ésta determine por mayoría calificada.
+2. Los ingresos que produzca la venta de esos activos se utilizarán para liquidar a prorrata las obligaciones a que se hace referencia en el párrafo 3 del artículo 37 y el párrafo 1 del artículo 38. Todos los activos restantes se distribuirán primero sobre la base y en el orden especificado en el párrafo 4 del artículo 37 y después entre los Miembros en proporción a las acciones de capital aportado directamente que haya suscrito cada uno de ellos.

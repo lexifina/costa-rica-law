@@ -1,0 +1,1 @@
+Artículo 27.—Ubicación de la sede. La sede del Fondo estará situada en el lugar que decida el Consejo de Gobernadores por mayoría calificada, de ser posible en su primera reunión anual. Por decisión del Consejo de Gobernadores, el Fondo podrá establecer otras oficinas, según sea necesario, en el territorio de cualquier Miembro.
