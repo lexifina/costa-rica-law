@@ -19,7 +19,7 @@ libre comercio.
 3º- Que es necesario actualizar estas regulaciones, en relación con
 las que se venían aplicando con base en la Ley de Fomento de las
 Exportaciones y su Reglamento. Por tanto,
-Decretan:
+DECRETAN:
 Artículo 1º.- Para efectos de los incentivos a la exportación
 regulados en el capítulo XXVII de la Ley del Impuesto sobre la Renta, se
 entenderá por "exportaciones no tradicionales" las exportaciones de
