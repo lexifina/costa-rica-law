@@ -1,0 +1,2 @@
+Artículo 49.- Las listas de electores, sean provisionales o definitivas, no surtirán efecto legal alguno si contienen rasaduras, entrerrenglonaduras o enmiendas, salvo que el error, omisión o defecto está salvado por nota puesta al pie de la lista sin dejar espacio en blanco e inmediatamente antes de la firma.
+Los borrones o rayaduras no invalidarán las listas si no impiden la clara y correcta lectura de éstas, aún cuando no estuvieren salvados por notas.

@@ -1,0 +1,1 @@
+Artículo 13.- En todos los casos anteriores, cuando hubiere menores o inhábiles interesados, se citará al respectivo representante o, en su defecto, al Patronato Nacional de la Infancia si se tratare de un menor y a la Procuraduría General de la República, si de un inhábil, para que se apersonen en su nombre.

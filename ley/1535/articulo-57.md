@@ -1,0 +1,1 @@
+Artículo 57.- El Director del Registro hará publicar mensualmente nóminas de todas las inclusiones, exclusiones y traslados firmes, con la cita respectiva de los distritos electorales. Tales publicaciones se harán diariamente desde el días de la convocatoria a elecciones hasta el día en que cese todo movimiento en las listas o nóminas para dichas elecciones.

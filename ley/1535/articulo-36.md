@@ -1,0 +1,1 @@
+Artículo 36.- Las listas electorales se forman con todas las inscripciones practicadas y con las nuevas inclusiones, exclusiones, traslados y rectificaciones que se efectúen mediante resolución firme del Director del Registro Civil o del respectivo Oficial Mayor, en su caso.
