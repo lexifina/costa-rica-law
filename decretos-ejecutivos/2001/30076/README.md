@@ -14,3 +14,4 @@ Modifica el límite de gasto presupuestario y efectivo para el 2002, del Teatro 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-01 | la propia norma |
+| 2 | 2002-08-06 | Decreto Ejecutivo 30659 (2002-08-06) |

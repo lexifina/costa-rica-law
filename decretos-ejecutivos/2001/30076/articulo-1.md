@@ -13,3 +13,4 @@ Considerando:
 5º—Que por lo anterior, resulta necesario modificar el límite de gasto presupuestario y efectivo fijado al Teatro Popular Melico Salazar en el decreto citado, para asumir los gastos relacionados con el Festival Internacional de las Artes 2002. Por tanto,
 Decretan:
 Artículo 1º—Modificase el límite de gasto presupuestario y efectivo del año 2002 establecido para el Teatro Popular Melico Salazar, en el artículo 1° del Decreto Ejecutivo Nº 29511-H, fijándolo en ¢533.3 millones, para asumir los gastos relacionados con el VIII Festival Internacional de las Artes, San José 2002.
+(Mediante Decreto Ejecutivo N° 30659 de 6 de agsoto del 2002, se modifica el límite de gasto presupuestario y efectivo al Teatro Popular Melico Salazar)
