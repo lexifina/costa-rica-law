@@ -1,0 +1,1 @@
+Artículo 27.—Las resoluciones de la Municipalidad que ordenen la ucidad de la licencia por falta de pago, no tendrá recurso alguno y su tramitación no admitirá prueba en contrario, salvo la excepción de pago. Las demás resoluciones se regirán por lo que dispone el artículo 179 del Código Municipal.

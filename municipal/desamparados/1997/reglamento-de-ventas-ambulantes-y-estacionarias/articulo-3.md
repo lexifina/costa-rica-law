@@ -1,0 +1,1 @@
+Artículo 3°—La Licencia deberá ser solicitada por escrito en papel sellado de un colón con cien colones en timbres municipales, acompañada del estudio socioeconómico de las instituciones que indica la ley.

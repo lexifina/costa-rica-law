@@ -1,0 +1,2 @@
+2° En el caso de los vendedores estacionarios los lugares serán indicados por sorteo y en el de los vendedores ambulantes la Municipalidad fijará la ruta. Para ambos se fijará día y hora para el sorteo o adjudicación en su caso, con participación de todos los solicitantes que hayan calificado al momento, conforme a un plano elaborado para tal fin. Acuerdo N° 2, Sesión N° 450, del 4 de diciembre de 1997.
+Desamparados, 18 de febrero de 1998.
