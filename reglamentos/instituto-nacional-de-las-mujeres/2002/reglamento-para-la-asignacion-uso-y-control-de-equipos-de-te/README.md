@@ -15,3 +15,4 @@ Reglamento para la asignación, uso y control de equipos de telefonía celular y
 | --- | --- | --- |
 | 1 | 2002-11-29 | la propia norma |
 | 2 | 2003-02-27 | Reglamento 8 (2003-02-27) |
+| 3 | 2004-09-28 | Reglamento 4 (2004-09-28) |
