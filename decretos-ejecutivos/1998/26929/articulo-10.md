@@ -1,0 +1,1 @@
+Artículo 10.—Horario. El horario de servicios al publico se brindará según las necesidades de la época y requerimientos de los visitantes, conforme a los recursos de la Administración. El Comité podrá solicitar a la Administración modificaciones en el inicio y finalización de la jornada.
