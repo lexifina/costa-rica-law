@@ -14,3 +14,4 @@ Establece funciones del Consejo Nacional Ambiental. Reforma Sistema Nacional par
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-30 | la propia norma |
+| 2 | 1998-03-25 | Decreto Ejecutivo 26814 (1998-03-25) |
