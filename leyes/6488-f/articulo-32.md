@@ -1,0 +1,9 @@
+Artículo 32.- Envíos no distribuibles. Devolución al país de origen.
+1. Se considerarán como envíos no distribuibles los que, por cualquier motivo, no hubieren podido ser entregados al destinatario.
+2. Los envíos no distribuibles se devolverán sin demora al país de origen.
+3. El plazo de conservación de los envíos que estén a disposición de los destinatarios o dirigidos a Lista de Correos será establecido por la reglamentación de la administración de destino. Sin embargo, por regla general este plazo no podrá exceder de un mes, salvo casos especiales en que la administración de destino juzgue necesario prolongarlo a dos meses como máximo. La devolución al país de origen efectuará dentro de un plazo más reducido si el expedidor lo hubiere solicitado por medio de una anotación consignada en el sobrescrito en una lengua conocida en el país de destino.
+4. Las tarjetas postales sin dirección del expedidor no se devolverán. Sin embargo, las tarjetas postales certificadas siempre deberán devolverse.
+5. La devolución a origen de los impresos no distribuibles no es obligatoria, salvo si el expedidor lo hubiere solicitado por medio de una anotación consignada en el envío en una lengua conocida en el país de destino. Los impresos certificados y los libros se devolverán en todos las casos.
+6. En caso de devolución al país de origen por vía aérea, se aplicarán los artículos 69 del Convenio y 183 del Reglamento.
+7. Los envíos de correspondencia no distribuibles devueltos al país de origen serán entregados a los expedidores en las condiciones fijadas en el artículo 31, párrafo 5º. Estos envíos no darán lugar al cobro de ningún suplemento de tasa, salvo las excepciones previstas en el Reglamento.
+No obstante, las administraciones que cobren una tasa de devolución en su servicio interno estarán autorizadas a cobrar esta misma tasa por los envíos de correspondencia del régimen internacional que les sean devueltos.

@@ -1,0 +1,2 @@
+Artículo 12.- Liquidaciones de cuentas.
+Las liquidaciones entre las Administraciones postales, de cuentas internacionales provenientes de tráfico postal, podrán ser consideradas como transacciones corrientes y se efectuarán conforme a las obligaciones internacionales corrientes de los Países miembros interesados cuando existan acuerdos al respecto. Cuando no hubiere acuerdos de este tipo, las liquidaciones de cuentas se efectuarán conforme a las disposiciones del Reglamento.

@@ -1,0 +1,8 @@
+CAPITULO III
+Responsabilidad
+Artículo 44.- Principio y extensión de la responsabilidad de las administraciones postales.
+1. Las administraciones postales sólo responderán por la pérdida de los envíos certificados. Su responsabilidad quedará comprometida tanto por los envíos transportados al descubierto como por los que se encaminen en despachos cerrados.
+2. Las administraciones podrán admitir que la expoliación total o la avería total del contenido de los envíos certificados sea asimilada a la pérdida, siempre que el embalaje haya sido reconocido suficiente para garantizar eficazmente el contenido contra los riesgos accidentales de expoliación o de avería y que aquellas irregularidades hayan sido constatadas antes de que el destinatario, o el expedidor en caso de devolución a origen, tome posición del envío.
+3. En caso de pérdida de un envío certificado, el expedidor tendrá derecho a una indemnización cuyo monto se fija en 40 francos por envío; este monto podrá elevarse a 200 francos por cada una de las sacas especiales que contengan los impresos citados en el artículo 19, párrafo 11.
+4. El expedidor tendrá la facultad de renunciar a ese derecho a favor del destinatario. El expedidor o el destinatario podrán autorizar a una tercera persona a recibir la indemnización si la legislación interna lo permite.
+5. Por derogación del párrafo 3º, cuando las administraciones hicieren uso de la facultad prevista en el párrafo 2º, el destinatario tendrá derecho a la indemnización, después de habérsele entregado un envío totalmente expoliado o averiado. Podrá renunciar a sus derechos a favor del expedidor.

@@ -1,0 +1,2 @@
+Artículo 2º.- Inobservancia de la libertad de tránsito.
+Cuando un País miembro no observare las disposiciones del artículo 1 de la Constitución y del artículo 1 del Convenio relativas a la libertad de tránsito, las Administraciones postales de los demás Países miembros tendrán derecho a suprimir el servicio postal con ese país. Ellas deberán dar aviso previo de esta medida, por telegrama, a las Administraciones interesadas y comunicar el hecho a la Oficina Internacional.
