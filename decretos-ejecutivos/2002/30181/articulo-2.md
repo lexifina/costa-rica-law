@@ -1,0 +1,1 @@
+Artículo 2º—Se faculta a las instituciones y empresas del Estado para que, en la medida de sus posibilidades, brinden facilidades y cooperación a la Comisión indicada, en orden de preparar el evento que se llevará a cabo el 8 de mayo con motivo del Traspaso del Mando Presidencial.
