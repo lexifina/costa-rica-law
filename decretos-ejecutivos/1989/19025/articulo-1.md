@@ -1,0 +1,23 @@
+Nº 19025-P
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE LA PRESIDENCIA,
+Con fundamento en lo dispuesto en el artículo 140, incisos 3) y 18) de la Constitución Política de Costa Rica, y en el Estatuto de Servicio Civil, ley Nº 1581 de 30 de mayo de 1953 y sus reformas.
+Considerando:
+1º.- Que es necesario modificar el Reglamento del Estatuto de Servicio Civil y el Reglamento Autónomo de Trabajo de la Dirección General de Servicio Civil, a fin de que sus disposiciones permitan adecuar la estructura administrativa a la realidad institucional.
+2º.- Que la Dirección General de Servicio Civil en oficio DG-269-89 y luego del estudio correspondiente, ha solicitado al Poder Ejecutivo algunas reformas a los cuerpos legales citados en el numeral anterior.
+Por tanto,
+DECRETAN:
+Artículo 1º.- Refórmase el artículo 4º del Reglamento del Estatuto de Servicio Civil, decreto ejecutivo Nº 21 de 14 de diciembre de 1954 y sus reformas, para que diga así:
+"Artículo 4º.- El Director General tendrá las siguientes atribuciones y deberes:
+a) Actuará en debida coordinación con el Presidente de la República -de quien depende directamente- y con los Ministros de Gobierno y deberá ajustarse en lo que respecta a la administración de personal del Poder Ejecutivo, a los dictados del Estatuto, del presente reglamento y demás leyes conexas y complementarias.
+b) Cumplirá con las funciones que el artículo 13 del Estatuto le encomienda expresamente, organizando a ese efecto la Dirección General con los departamentos y personal técnico que sean indispensables. La Dirección General, para el desempeño de su cometido tendrá los departamentos con las funciones que determine el Reglamento Autónomo de Servicio de la dependencia.
+c) Dirigirá y supervisará toda actividad técnica y administrativa de la Dirección General.
+d) Prestará a las dependencias del Poder Ejecutivo la asistencia técnica en materia de personal que le sea solicitada, a fin de obtener la mayor eficiencia en la administración pública y la mejor aplicación del régimen de Servicio Civil. A este propósito y con el objeto de seguir un criterio uniforme en la aplicación del Régimen de Servicio Civil, las
+consultas de las dependencias públicas y relacionadas con la administración de personal y la aplicación de la ley y de este reglamento, se formalizarán ante la Dirección General, de conformidad con el artículo 13, inciso g) del Estatuto.
+e) Dictará las normas y procedimientos que se requieren para la promoción e implantación de un sistema moderno de administración de personal, así como para la debida coordinación en cuanto a condiciones de trabajo de las diferentes dependencias públicas. A este respecto, la Dirección General estará facultada para solicitar a los Ministerios y dependencias públicas la revisión de sus Reglamentos Autónomos de Servicio y para sugerir en cualquier tiempo la adición de reglas y normas, la modificación de las existentes o su supresión.
+f) Prepara las descripciones de las distintas clases de puestos, las cuales se usarán en la definición y asignación de los mismos pero no se considerarán restrictivas ni prescriptivas de los deberes o requisitos de ningún puestos.
+g) Con base en el Manual Descriptivo de Clases y en la Ley de Salarios de la Administración Pública, asignará los puestos a las clases y a los grados existentes o que se creen en lo futuro.
+h) Recomendará al Poder Ejecutivo, previa investigación y estudio de la aplicación del Estatuto, las reformas a la ley y a los reglamentos de esta, que la experiencia y la técnica aconsejan.
+i) Vigilará por el cumplimiento de las disposiciones del Estatuto y del presente reglamento, en resguardo de la eficiencia de la Administración Pública y de los intereses del Estado. A este efecto el Director General tomará las providencias que fueren del caso y, cuando compruebe irregularidades en las dependencias públicas que comprometen dichos propósitos, deberá ponerlo en conocimiento de los funcionarios que estime pertinentes, con las recomendaciones que considere oportunas. Para el mejor cumplimiento del cometido encomendado, todas las instituciones comprendidas dentro del Régimen de Servicio Civil prestarán a la Dirección General la colaboración necesaria y suministrarán los documentos y datos que esta requiere para sus investigaciones.
+La negativa a suministrar los documentos y datos solicitados, hará incurrir a los servidores responsables en desobediencia, sin perjuicio de la aplicación de las sanciones disciplinarias que procedan.
+j) Cooperará con el Tribunal, prestándole la asistencia técnica que este considere necesaria, y el concurso administrativo posible, para el mejor cumplimiento de sus tareas."
