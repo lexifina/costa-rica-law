@@ -1,0 +1,10 @@
+Nº 29791-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las facultades que les conceden los incisos 3) y 18) del artículo 140 de la Constitución Política y los artículos 19 y 33 de la Ley Nº 8114 del 4 de julio de 2001, Ley de Simplificación y Eficiencia Tributaria, y
+Considerando:
+1º—Que por modificación efectuada al inciso b) del artículo 6 de la Ley del Impuesto sobre la Renta, N° 7092 de 21 de abril de 1988 y sus reformas, mediante el artículo 19 inciso a) de la Ley de Simplificación y Eficiencia Tributaria, se eliminó la posibilidad de deducir la depreciación de la reevaluación de activos.
+2º—Que es necesario adicionar las modificaciones reglamentarias efectuadas mediante el Decreto Ejecutivo N° 29643-H de 10 de julio de 2001, publicado en La Gaceta N° 138 de 18 de julio de 2001, con el objeto de agregar la correspondiente modificación al párrafo primero del punto 2.2 del Anexo N° 1 al Reglamento de la Ley del Impuesto sobre la Renta, "Base sobre la cual se calcula la depreciación", con el fin de reflejar exactamente, el efecto de la reforma legal practicada según se indica en el considerando anterior.
+3º—Que la Administración Tributaria, de conformidad con la autorización contenida en el Transitorio VI de la Ley N° 8114 del 4 de julio de 2001, Ley de Simplificación y Eficiencia Tributaria, emitió la Resolución N° 22-01 de las ocho horas del 31 de julio de 2001, en cuyo artículo 5 se establece que la depreciación por reevaluación de activos procederá por la proporción de días del período 2001 en que estuvo vigente la norma que permitía esa deducción, según sea que el contribuyente se ajuste al período fiscal ordinario o goce de un período fiscal especial, razón por la cual, las modificaciones reglamentarias respectivas, deben regir en igual forma. Por tanto,
+Decretan:
+Artículo 1º—Elimínese la frase "o el revaluado" del párrafo primero del punto 2.2 del anexo N° 1 (de la depreciación, el agotamiento y amortizaciones) al Reglamento de la Ley del Impuesto sobre la Renta, Decreto Ejecutivo N° 18445-H de 9 de setiembre de 1988 y sus reformas.
