@@ -29,30 +29,26 @@ Hasta 14,00 m 3,50 m 11,00 m2 2,70 m 8,00 m2
 En el caso de alturas mayores de catorce metros (14,00 m), la dimensión mínima del patio deberá ser de un cuarto (1/4) de la altura total del parámetro
 de muros.
 VI. 3.8. Retiros mínimos: Salvo que el Plan Regulador lo indique de manera distinta o porque los retiros no sea exigibles por tratarse de obras que estén expresamente exentas de ellos, se exigirán los siguientes retiros mínimos:
-VI.3.8.1. Retiro frontal (antejardín): Dos metros (2,00 m). VI. 3.8.2. Retiro posterior (patio): Tres metros (3,00 m). Estos patios pueden sustituirse por un espacio abierto interior si las paredes de la vivienda en la colindancia posterior son de material incombustible. Para viviendas de un piso y siempre que se contemple la construcción de la tapia, esta dimensión puede reducirse hasta un metro y medio (1,50 m). Si la edificación es de dos pisos o más, se aumentará el retiro posterior un metro por piso, pudiendo construirse los pisos en forma escalonada.
+VI.3.8.1. Retiro frontal (antejardín): Dos metros (2,00 m).
+VI. 3.8.2. Retiro posterior (patio): Tres metros (3,00 m). Estos patios pueden sustituirse por un espacio abierto interior si las paredes de la vivienda en la colindancia posterior son de material incombustible. Para viviendas de un piso y siempre que se contemple la construcción de la tapia, esta dimensión puede reducirse hasta un metro y medio (1,50 m). Si la edificación es de dos pisos o más, se aumentará el retiro posterior un metro por piso, pudiendo construirse los pisos en forma escalonada.
 VI. 3.8.3. Retido lateral: No se exigirá cuando el material de la pared en la respectiva colindancia sea incombustible y no tenga ventana o linternilla. En caso contrario se exigirá:
 — Uno y medio metros (1,50 m) para unidades habitacionales de un piso.
 — Tres metros (3,00 m) para las de dos pisos.
 — Por cada piso adicional deberá agregarse un metro (1,00 m) de retiro lateral.
 Artículo VI. 4.—Si no hubiere colector de aguas negras en funcionamiento, el número máximo de viviendas que se podrá construir en un lote estará sujeto al área libre requerida para ubicar el sistema de drenaje en la longitud y área que resulten de la prueba de infiltración, la cual deberá realizarse de conformidad con el instructivo que al respecto tiene el A y A En todo caso el área resultante no podrá ser inferior a seis metros cuadrados por persona. Para definir el número de habitantes por vivienda se considerarán dos personas por dormitorio. En caso de existir duda sobre el uso indicado para un aposento se presumirá que éste puede tener carácter de dormitorio a los efectos del cálculo del área de drenaje.
 (Reformado mediante sesión ordinaria N° 3822, celebrada el 4 de mayo de 1987)
-URBANIZACIÓN TRADICIONAL CONJUNTO HABITACIONAL
-________________________________ __________________________________
-Área Tributaria en m2 Área Tributaria en m2
-Número de
-dormitorios Sin cloaca Con cloaca Sin cloaca Con cloaca
-3 150 96 120 60
-2 125 80 105 45
-1 120 65 90 30
 Artículo VI. 5.—Iluminación y ventilación naturales. Las piezas habitables, las cocinas y los baños deberán tener iluminación y ventilación por medio de ventanas, linternillas o tragaluces abiertos directamente a patios o al espacio público. Esta norma se exigirá también en escaleras, vestíbulos y pasillos de uso público, en caso de edificios de tres o más viviendas.
 Artículo VI. 6.—Iluminación artificial. En cada pieza deberá diseñarse iluminación con la intensidad luminosa que fija el Código Eléctrico Nacional.
 En pasillos y escaleras que den salida a más de diez viviendas, deberá contarse con iluminación de emergencia.
 Artículo VI.7.—Espacio comunes de circulación. Todas las viviendas de un edificio multifamiliar deberán tener acceso a pasillos o corredores que conduzcan directamente a las puertas de salida o a las escaleras.
-El ancho de pasillos o corredores no será menor de un metro, veinte centímetros (1,20 m); los barandales deberán tener cuando menos, noventa centímetros de altura (0,90 m).
+El ancho de pasillos o corredores no será menor de un metro, veinte centímetros (1,20 m); los barandales deberán tener cuando menos, noventa centímetros de altura (0,90 m)
 Artículo VI. 8.—Paredes comunes. Los tabiques que separen unos apartamientos de otros, o que separen los apartamientos de los pasillos comunes, o de secciones destinadas a otros usos, deberán ser de material con coeficiente retardatorio al fuego de un mínimo de una hora, hasta la altura de la cubierta de techo.
 Artículo VI. 9.—Escaleras de uso común.
 VI. 9.1. Los edificios de más de un piso tendrán escaleras que comuniquen todos los niveles, aunque se disponga de ascensores.
-VI.9.2. Cada escalera podrá servir a veinte viviendas, como máximo, en cada piso. VI. 9.3. Las escaleras interiores tendrán una anchura mínima libre de noventa centímetros (0,90 m) y de un metro, veinte centímetros (1,20 m) las de servicio general. VI.9.4. La huella no será menor de veintiséis centímetros (0,26 m), ni la contrahuella mayor de dieciocho centímetros (0,18 m) debiendo construirse con materiales retardatorios al fuego un mínimo de una hora; también deben proteger se con barandales de una altura mínima de noventa centímetros (0,90 m).
+VI.9.2. Cada escalera podrá servir a veinte viviendas, como máximo, en cada piso.
+VI. 9.3. Las escaleras interiores tendrán una anchura mínima libre de noventa centímetros (0,90 m) y de un metro, veinte centímetros (1,20 m) las de servicio general.
+VI.9.4. La huella no será menor de veintiocho centímetros (0,28 m), ni la contrahuella mayor de dieciocho centímetros (0,18 m) debiendo construirse con materiales retardatorios al fuego un mínimo de una hora; también deben proteger se con barandales de una altura mínima de noventa centímetros (0,90 m).
+(Reformado mediante sesión ordinaria N° 28, celebrada el 28 de octubre de 1987)
 Artículo VI. 10.—Escaleras y salidas de emergencia. Todos los edificios multifamillares con pisos a más de ocho metros medidos sobre el nivel de la acera, deberán contar con escalera de emergencia que desemboque a espacio público, con arreglo a las normas del artículo IV. 26.
 Las diferencias de niveles de piso en las salidas de emergencia deberán ser salvadas por rampa.
 Artículo VI. 11.—Instalaciones de agua. Todos los edificios destinados a vivienda estarán provistos de instalaciones de agua potable que tengan capacidad suficiente para abastecer ciento cincuenta (150 1) litros por habitante, por día.
