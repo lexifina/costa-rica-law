@@ -1,0 +1,1 @@
+Artículo 11.—El formulario de liquidación de jornada extraordinaria deberá presentarse de la siguiente forma: completar los datos que deben ser coherentes con la boleta de solicitud, firma de la funcionaria o del funcionario, y de la persona que autoriza. El formulario de solicitud debe adjuntarse a la liquidación.

@@ -1,0 +1,1 @@
+Artículo 10.—La boleta de solicitud de jornada extraordinaria deberá presentarse en forma ordenada, sin tachadura ni borrones, con todos los datos solicitados, de lo contrario no se tramitará dicha solicitud.

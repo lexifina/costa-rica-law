@@ -1,0 +1,1 @@
+Artículo 25.—La omisión de autorización por parte de la Jefatura inmediata no afectará a la funcionaria o al funcionario que hubieren laborado de buena fe y podrá dar lugar a responsabilidad civil y administrativa a la persona que autoriza cuando incurra en tal omisión, conforme a la Ley General de la Administración Pública.

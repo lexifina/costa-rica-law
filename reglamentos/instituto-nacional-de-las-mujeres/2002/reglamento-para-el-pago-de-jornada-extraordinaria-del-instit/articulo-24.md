@@ -1,0 +1,1 @@
+Artículo 24.—No se reconocerá como jornada extraordinaria aquella que no hubiese sido autorizada, de acuerdo con las condiciones anteriores, así como el tiempo que la funcionaria o el funcionario ocupe en subsanar los errores imputables a ella o a él, cometidos durante la jornada ordinaria.

@@ -1,0 +1,1 @@
+Artículo 17.—El pago de jornada extraordinaria se inicia con la solicitud de reserva presupuestaria por parte de la persona que autoriza ante la contabilidad, la cual estampará el sello correspondiente en la boleta de solicitud.

@@ -1,0 +1,1 @@
+Artículo 12.—La Unidad de Recursos Humanos considerará como verdadera toda la información suministrada tanto en la boleta de autorización como en la de liquidación, verificará la información y/o realizará las investigaciones que considere oportunas y necesarias.
