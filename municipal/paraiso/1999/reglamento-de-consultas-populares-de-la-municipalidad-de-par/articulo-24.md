@@ -1,0 +1,1 @@
+Artículo 24.-Requisito de destitución. Para destituir al alcalde municipal se requiere dos tercios del total de votos emitidos en el plebiscito, y que esos dos tercios no sean inferiores al (se debe establecer el porcentaje) de electores inscritos en el cantón.

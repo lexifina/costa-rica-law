@@ -1,0 +1,1 @@
+Artículo 4°-Comisión Coordinadora de la Consulta Popular. El Concejo Municipal nombrará una comisión conformada por regidores y síndicos, para que se encarguen de la organización y dirección de la consulta, a la cual deberá proveer los recursos necesarios suficientes para el cumplimiento de su cometido.

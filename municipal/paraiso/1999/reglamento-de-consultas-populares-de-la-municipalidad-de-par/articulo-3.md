@@ -1,0 +1,3 @@
+Artículo 3°-Acuerdo de Convocatoria. El Concejo Municipal es el órgano competente para convocar a plebiscitos, referendos y cabildos a escala cantonal. Para ello deberá dictar un acuerdo de convocatoria, que deberá comunicar al Tribunal Supremo de Elecciones y que contendrá lo siguiente:
+La fecha en que se realizará la consulta. no será a menos de tres meses de haber sido publicada la convocatoria en los casos de plebiscito y referendos y de un mes en el caso de cabildo.
+Definición clara y detallada del asunto que será objeto de consulta. Indicación de la previsión presupuestaria pertinente para la realización de la consulta popular.

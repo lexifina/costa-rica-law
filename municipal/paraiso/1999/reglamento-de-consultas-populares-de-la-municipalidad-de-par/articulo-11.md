@@ -1,0 +1,2 @@
+Artículo 11.-Convocatoria Formal. La convocatoria formal deberá ser publicada en un mínimo de dos diarios de circulación nacional.
+Dicha convocatoria contendrá una explicación del asunto que se someterá a consulta, la formulación de la pregunta que ha de ser contestada y la eficacia de la decisión ciudadana según lo estipulado en el artículo 7.

@@ -1,0 +1,1 @@
+Artículo 25.-Reposición del alcalde propietario. Si el resultado de la consulta fuere la destitución del Alcalde, el Concejo Municipal lo comunicará al Tribunal Supremo de Elecciones, el cual repondrá al alcalde por el resto del periodo, según el artículo 14 del Código Municipal.

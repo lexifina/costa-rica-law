@@ -1,0 +1,3 @@
+Artículo 8°-Asesores y Delegados del Tribunal Supremo de Elecciones. El Concejo Municipal pedirá asesoría al Tribunal Supremo de Elecciones para la preparación y realización de las consultas. Para tales efectos:
+El Tribunal Supremo de Elecciones asignará al menos un funcionario que asesorará a la Municipalidad en la preparación y realización de la consulta popular. Dicho funcionario velará por el cumplimiento de los requisitos formales establecidos en el reglamento y en la legislación vigente.
+Sin perjuicio de lo anterior el Tribunal podrá asignar cuantos funcionarios estime pertinente para supervisar el proceso, así como a miembros del Cuerpo Nacional de Delegados que colaboren con la realización de la consulta.

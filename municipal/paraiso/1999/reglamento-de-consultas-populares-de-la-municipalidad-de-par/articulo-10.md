@@ -1,0 +1,1 @@
+Artículo 10.-Ubicación de los recintos de votación. Con la asesoría de los funcionarios que el Tribunal Supremo de Elecciones asigne, el Concejo deberá definir dentro del mes inmediato siguiente a la convocatoria formal a consulta los lugares que serán utilizados como centro de votación, procurando que los ciudadanos no tengan que recorrer largas distancias para emitir el voto.
