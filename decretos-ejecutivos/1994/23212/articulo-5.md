@@ -1,0 +1,1 @@
+Artículo 5°—Se utilizará el modelo de Red denominado "Semicentralizado" consistente en una unidad centralizada, que se alimentará de la información suministrada por las unidades integrantes de la Red y estas a su vez ofrecen los servicios de información.

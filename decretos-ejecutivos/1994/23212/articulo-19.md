@@ -1,0 +1,1 @@
+Artículo 19.—Pueden integrar la Red aquellas unidades de información que generen, adquieran, procesan y ofrezcan servicios de información al Sector Agropecuario y que se comprometan a compartir sus recursos y servicios dentro de los acuerdos establecidos.

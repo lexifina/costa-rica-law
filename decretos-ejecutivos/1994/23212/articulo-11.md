@@ -1,0 +1,1 @@
+Artículo 11.—La máxima autoridad de la Red estará constituida por una Asamblea integrada por los responsables de las unidades de información del Sector Agropecuario Nacional que participan activamente en el desarrollo de ésta.

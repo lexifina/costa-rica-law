@@ -1,0 +1,1 @@
+Artículo 7°—Las unidades de información integrantes de la Red deberán enviar especialmente las referencias de la información que su institución genere, para ser ingresada a la base de datos central y a la vez podrán recibir la información de otras unidades participantes contenidas en esta base, o según sus intereses.

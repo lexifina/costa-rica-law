@@ -1,0 +1,1 @@
+Artículo 9°—La información generada por las diferentes instituciones del Sector Agropecuario, representadas en las regiones del país, debe ser identificada y controlada por aquellas unidades de información que se encuentran ubicadas en las regiones.

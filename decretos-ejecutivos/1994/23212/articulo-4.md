@@ -1,0 +1,1 @@
+Artículo 4°—La red será de carácter nacional en cuanto a control y proceso de información y de carácter internacional en lo concerniente a divulgación y a servicios. Se vinculará con sistemas de información a nivel nacional, regional y mundial y permitirá a los usuarios tener acceso a base de datos nacionales e internacionales.
