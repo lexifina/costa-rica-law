@@ -1,0 +1,1 @@
+6º—Autorizar a la Procuraduría General de la República, para que solicite al respectivo Juzgado Mandamiento de desafectación de la anotación del inmueble inscrito en el Registro Público de la Propiedad al tomo 1.195, folio 121, asiento 1, número 95089 del Partido de Alajuela, por las razones expuestas en la parte considerativa del presente Decreto.
