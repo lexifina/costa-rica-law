@@ -1,0 +1,1 @@
+ARTICULO 29.- El seguro no cubre las enfermedades orgánicas, salvo que estas sean consecuencia directa de un accidente o del ejercicio de una profesión; pero si puede contratarse un seguro especial contra enfermedades de cualquier clase que sean.

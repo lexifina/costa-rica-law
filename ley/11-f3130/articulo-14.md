@@ -1,0 +1,1 @@
+ARTICULO 14.- Se podrá asegurar de nuevo una cosa ya asegurada por su valor integro, en todo o en parte, bajo condición expresa de que el beneficiario no podrá hacer valer sus derechos contra los aseguradores, sino en cuanto no pueda indemnizarse del primer seguro.

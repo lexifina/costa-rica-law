@@ -1,0 +1,3 @@
+ARTICULO 39.- En la ejecución, si resultare por las pruebas, dudosa la inocencia del asegurado, en lo que respecta a la causa del incendio, podrá el Juez según la gravedad de la duda, negarse a obligar al pago al asegurador.
+Contra el avalúo de los daños dado por los peritos no cabe oposición en el juicio ejecutivo.
+La exoneración de responsabilidad, por parte del asegurador, que se declare en juicio civil, por haber duda grave acerca de la inocencia del asegurado, no influye en el juicio criminal respectivo; ni la absolución que en este se haga a favor del asegurado, tendrá valor en lo civil.

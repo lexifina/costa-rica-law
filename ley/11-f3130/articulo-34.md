@@ -1,0 +1,1 @@
+ARTICULO 34.- En caso de incendio de un edificio, la pérdida se valuar por la comparación del valor del edificio antes del siniestro con lo que quedare inmediatamente después; y la indemnización se pagar en dinero, salvo lo convenido en la póliza respectiva.

@@ -1,0 +1,1 @@
+ARTICULO 53.- No podrá celebrarse en la República ningún contrato de seguro contra incendio sin que la Superintendencia del ramo haya dado el correspondiente permiso escrito, previos la inspección e informe del respectivo interventor. El contrato que se otorgue sin la aprobación dicha, no podrá ser inscrito ni surtir efectos civiles.
