@@ -1,1 +1,0 @@
-Artículo 2.- El impuesto de patentes será fijado por la Municipalidad de acuerdo con lo establecido en esta Ley y en el Reglamento que para ese efecto dictará el Poder Ejecutivo. Se autoriza a la Municipalidad para que adopte las medidas administrativas necesarias, según lo establezca dicho Reglamento, a fin de ejercer una adecuada fiscalización de los alcances de esta Ley.
