@@ -15,3 +15,4 @@ Reforma Reglamento del Consejo Nacional de Salarios
 | --- | --- | --- |
 | 1 | 1982-08-10 | la propia norma |
 | 2 | 1983-01-27 | Decreto Ejecutivo 14317 (1983-01-27) |
+| 3 | 1983-04-07 | Decreto Ejecutivo 14426 (1983-04-07) |
