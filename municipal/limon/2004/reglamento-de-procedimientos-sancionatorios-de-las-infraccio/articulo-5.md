@@ -1,0 +1,1 @@
+Artículo 5º—Director de comparecencias. El titular de la Oficina de patentes presidirá la comparecencia, dirigirá los debates y dictará la resolución correspondiente, dentro de los cinco días siguientes a dicho acto.

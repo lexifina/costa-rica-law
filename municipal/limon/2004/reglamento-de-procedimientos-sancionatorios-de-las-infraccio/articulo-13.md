@@ -1,0 +1,2 @@
+Artículo 13.—De conformidad con el artículo 43 del Código Municipal, Ley 7794 de 30 de abril de 1998, y al no haberse recibido observaciones ni oposiciones a la primera publicación realizada el 16-10-03, La Gaceta Nº 199 durante el tiempo estipulado, se procede a publicar en forma definitiva el presente reglamento para su aplicación y cumplimiento de conformidad a la Ley citada.
+Rige a partir de su publicación en el periódico oficial La Gaceta.

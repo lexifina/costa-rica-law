@@ -1,0 +1,1 @@
+Artículo 10.—Sanciones. Cuando así se determine, la Administración municipal aplicará las sanciones de suspensión de patente, cierre de negocios o multa según lo establece el artículo 81 bis del Código Municipal.
