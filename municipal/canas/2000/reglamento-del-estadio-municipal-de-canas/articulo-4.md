@@ -1,0 +1,1 @@
+Articulo 4°—Si algún miembro renunciara o fuese removido, se hará el nombramiento del sustituto, por el tiempo que le quedaba al miembro reemplazado, dicho nombramiento lo hará la entidad que nombró el miembro que se va a sustituir.
