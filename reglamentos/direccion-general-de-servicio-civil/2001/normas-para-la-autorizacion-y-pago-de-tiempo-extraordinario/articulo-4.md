@@ -1,0 +1,1 @@
+Artículo 4°—La autorización de jornada extraordinaria que otorgue la Comisión de Recursos Humanos rige a partir de la fecha en que la respectiva solicitud se reciba en la Secretaría de la Comisión, con excepción de los casos autorizados según artículo anterior, cuya fecha de vigencia será la que determine la Comisión.

@@ -1,0 +1,1 @@
+Artículo 6°—Toda solicitud deberá consignar, para su estudio y aprobación por parte de la Comisión de Recursos Humanos, la autorización respectiva del jerarca legalmente facultado para actuar en representación de la institución (Ministro, Viceministro, Oficial Mayor, Gerente General o Director Ejecutivo).

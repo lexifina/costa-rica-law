@@ -1,0 +1,2 @@
+Artículo 20.—La Comisión de Recursos Humanos podrá realizar auditorías sobre la aplicación de las autorizaciones emitidas. Sus recomendaciones serán de acatamiento obligatorio, siendo la Administración responsable por la aplicación de las mismas.
+San José, 13 de diciembre del 2001.—Lic. Odette Fonseca León, Representante del Ministerio de Planificación Nacional y Política Económica.—Lic. Rodolfo Guie Jiménez, Representante del Ministerio de Hacienda.—Lic. Guillermo Lee Ching, Director General de Servicio Civil y Presidente de la Comisión de Recursos Humanos.

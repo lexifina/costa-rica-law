@@ -1,0 +1,1 @@
+Artículo 11.—Como la jomada laboral máxima permitida es de doce horas, para los servidores que ejercen labores de seguridad y vigilancia en jomada nocturna de 6 horas y que por razones especiales, debidamente justificadas, deben laborar turnos de doce horas, se autoriza un máximo de 6 horas extraordinarias por jomada.

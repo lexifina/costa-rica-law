@@ -1,0 +1,1 @@
+Artículo 19.—La autorización y pago de jornada extraordinaria a los servidores que perciben compensación económica por "disponibilidad" es improcedente. En toda solicitud de autorización de jornada extraordinaria debe indicarse si se percibe o no tal sobresueldo.

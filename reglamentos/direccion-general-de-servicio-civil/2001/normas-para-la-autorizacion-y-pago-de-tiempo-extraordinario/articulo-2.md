@@ -1,0 +1,1 @@
+Artículo 2°—Las instituciones, organismos y dependencias del sector público centralizado deben solicitar en forma previa a la Comisión de Recursos Humanos, autorización para que en ellas se trabaje tiempo extraordinario. La jomada extraordinaria no puede prestarse si no se cuenta con la citada autorización.
