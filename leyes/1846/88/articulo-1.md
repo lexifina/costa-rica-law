@@ -1,0 +1,5 @@
+DECRETO LXXXVIII
+Adiciona el n° 2 de 8 de junio ultimo, que monopolizo la venta de licores extranjeros. (1)
+(1) Ver la orden n° 167 de 10 de abril de 1850, y el decreto n° 18 de 11 de julio de 1830 que derogó el n° 2° de 8 de julio anterior por el cual se estancaron los licores extranjeros.
+"El Jefe Supremo Provisorio del Estado libre de Costa Rica. En vista del decreto n° 2 de 8 de julio último, y considerando necesario adicionarlo para su mejor inteligencia y cumplimiento, decreta.
+Art.1°. -Las compras de aguardiente extranjero a los actuales tenedores que lo haya habido después de haber pasado por distintos dueños se arreglarán al último precio que hubiese costado; pero los tenedores son obligados a probar ante el Intendente este y los costos que hayan hecho además, por medio de una certificación que dar un Juez de la declaración jurada que den el tenedor y el vendedor con citación del Fiscal de hacienda, confesando el precio a que han comprado y vendido. En la misma certificación debe constar el flete pagado, en caso de que el actual tenedor haya comprado en alguno de los puertos.
