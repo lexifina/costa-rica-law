@@ -1,8 +1,3 @@
-ARTÍCULO 20.- La finca filial queda afecta, como garantía, en forma
-preferente y desde su origen, por el incumplimiento de las obligaciones
-pecuniarias que el propietario llegue a tener con el condominio.
-Las cuotas correspondientes a los gastos comunes, adeudadas por los
-propietarios, así como las multas e intereses que generen, constituyen un
-gravamen hipotecario sobre la finca filial solo precedido por el gravamen
-referido al impuesto sobre bienes inmuebles.
-(TEXTO MODIFICADO por Resolución de la Sala Constitucional No.7156-00 de las 14:57 horas del 16 de agosto de 2000.)
+Artículo 20.—La finca filial quedará afecta, como garantía, en forma preferente y desde su origen, por el incumplimiento de las obligaciones pecuniarias que el propietario llegue a tener con el condominio.
+Las cuotas correspondientes a los gastos comunes adeudadas por los propietarios, así como las multas y los intereses que generen, constituirán un gravamen hipotecario sobre la finca filial, solo precedido por el gravamen referente al impuesto sobre bienes inmuebles. Un contador público autorizado expedirá la certificación de las sumas que los propietarios adeuden por estos conceptos; esta certificación constituirá título ejecutivo hipotecario.
+(Así reformado por el artículo 1 de la Ley N° 8278 de 2 de mayo del 2002)
