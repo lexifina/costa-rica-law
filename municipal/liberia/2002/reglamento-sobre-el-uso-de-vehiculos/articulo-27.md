@@ -1,0 +1,1 @@
+Artículo 27.—Ningún conductor de la Municipalidad está autorizado para efectuar arreglos extrajudiciales en casos de accidentes con vehículos del Concejo Municipal, únicamente debe indicarle al particular que se apersone o se comunique con el encargado de transportes de la Municipalidad quien será la persona autorizada para efectuar las gestiones correspondientes.

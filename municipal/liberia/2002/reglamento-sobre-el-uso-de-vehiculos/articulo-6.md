@@ -1,0 +1,1 @@
+Artículo 6º—El encargado de transportes; será responsable por el buen uso y por el cumplimiento de las leyes de tránsito y conexas, reglamentos y disposiciones que sobre el uso y transportes, establezcan tanto el Concejo Municipal como otras autoridades competentes, así como lo relacionado con el mantenimiento y refacción de los vehículo propiedad de la Municipalidad de Liberia.
