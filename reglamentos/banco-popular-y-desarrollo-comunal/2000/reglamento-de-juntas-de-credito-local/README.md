@@ -14,3 +14,4 @@ Reglamento de Juntas de Crédito Local
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-25 | la propia norma |
+| 2 | 2002-07-09 | Reglamento 4023 (2002-07-09) |
