@@ -1,0 +1,1 @@
+Artículo 122.—Los vehículos de emergencia debidamente autorizados gozarán de preferencia de vía en toda ocasión, siempre que se identifiquen por señales visibles y sonoras características y cumplan con las disposiciones contenidas en la ley y en este Reglamento.

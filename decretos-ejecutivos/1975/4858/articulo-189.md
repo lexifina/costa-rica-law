@@ -1,0 +1,1 @@
+Artículo 189.—Se autoriza a la Corte Suprema de Justicia para que cuando lo estime oportuno, extienda a otros circuitos judiciales lo dispuesto en el presente capítulo en lo referente al procedimiento oral y público.

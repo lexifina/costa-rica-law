@@ -1,0 +1,1 @@
+Artículo 44.—Dada la naturaleza de los servicios y la seguridad que permanentemente deben reunir, se efectuará como mínimo semestralmente la revisión general de todas las unidades que se usen en el transporte colectivo por retribución.

@@ -1,0 +1,1 @@
+Artículo 192.—La firma del parte por el infractor o, en su caso, la constancia puesta por el Inspector de Tránsito, de que no quiso firmar o no pudo hacerlo por impedimento físico, es el medio probatorio de la citación de aquél para ante el Tribunal correspondiente.

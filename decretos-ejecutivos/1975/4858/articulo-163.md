@@ -1,0 +1,1 @@
+Artículo 163.—La información así levantada debe enviarse de inmediato a la Dirección, donde tendrá el valor de "Parte Oficial". Estas disposiciones comprenden tanto a los Inspectores de Tránsito como a cualquiera otra autoridad.

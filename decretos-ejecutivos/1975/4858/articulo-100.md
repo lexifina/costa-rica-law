@@ -1,0 +1,1 @@
+Artículo 100.—Los peatones deberán transitar sobre las aceras de las vías públicas y por las zonas destinadas para tal objeto, evitando interrumpir u obstruir la corriente de tránsito en cualquier forma.

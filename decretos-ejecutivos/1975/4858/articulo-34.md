@@ -1,0 +1,9 @@
+Artículo 34.—En virtud de nota o mandamiento expedido por autoridad judicial competente, pueden anotarse al margen del respectivo asiento en el Registro :
+a) La demanda sobre propiedad o modificación de derechos reales sobre vehículos inscritos;
+b) La demanda sobre cancelación o rectificación de inscripción o anotación en el Registro; y
+c) El decreto de embargo sobre vehículos inscritos, cuyos efectos caducarán sin necesidad de declaratoria si dentro de los tres meses siguientes a la fecha en que se practique no se presentare el acto de traba de embargo para su anotación.
+Las autoridades judiciales podrán auxiliarse de las autoridades de tránsito para la práctica de embargos sobre vehículos. En tal caso solicitarán a la Inspección de Tránsito la detención del vehículo de que se trate. Una vez practicada la detención, la Inspección lo comunicará de inmediato a la autoridad judicial que la haya solicitado, para que se trabe el embargo dentro de los tres días siguientes a aquel en que reciba la comunicación. De no trabarse el embargo dentro del plazo dicho, el vehículo podrá ser devuelto a su propietario y no podrá ser detenido de nuevo para ese efecto.
+Para la traba del embargo del vehículo detenido en jurisdicción distinta a la de la autoridad solicitante, podrá comisionarse de oficio y mediante telegrama a la autoridad del lugar de detención, siempre y cuando el interesado hubiere depositado los honorarios de juez ejecutor;
+d) El embargo practicado y la adjudicación en remate; y
+e) El gravamen legal o judicialmente decretado con motivo de accidente de tránsito o por infracción a la Ley de la materia o a este Reglamento.
+La anotación de embargo practicado caduca de pleno derecho, para terceros, a los cuatro años de practicada y el Registrador, al inscribir nuevos títulos o al certificar el asiento respectivo, hará caso omiso de ella.

@@ -1,0 +1,1 @@
+Artículo 90.—El Instituto pagará las indemnizaciones respectivas, dentro de los límites del seguro directamente a las víctimas o, en caso de muerte, a los causahabientes con derecho a ser alimentados por el occiso, dentro del orden de prioridad señalado en el artículo 85 del Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 127.—En los casos en que se permita dar vuelta en redondo (vuelta en U) deberá llegarse hasta el punto extremo más próximo, tomando el lado izquierdo de la corriente de circulación, haciendo la señal correspondiente y girando en derredor del eje del cruce en donde se efectúa el movimiento.

@@ -1,0 +1,1 @@
+Artículo 148.—Es obligatorio prevenir por medio de señales adecuadas en el día y en la noche, la existencia en las vías públicas de algún obstáculo, excavación o material que signifique un peligro para la circulación de vehículos y peatones.

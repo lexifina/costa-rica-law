@@ -1,0 +1,1 @@
+Artículo 85.—Cuando por cualquier circunstancia un vehículo no tenga póliza de Seguro Obligatorio y el Instituto Nacional de Seguros se entere de este hecho, dará aviso inmediato a la Dirección General de Tránsito y Transporte Automotor, que tendrá la obligación de retirarlo de la circulación a la mayor brevedad possible.

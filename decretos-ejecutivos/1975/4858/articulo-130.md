@@ -1,0 +1,1 @@
+Artículo 130.—Los vehículos no podrán ser estacionados fuera de los lugares señalados al efecto, ni a menos de diez metros de las esquinas en donde no se encuentre marcada la limitación correspondiente. Queda prohibido el estacionamiento en más de una fila en los sitios en donde así lo considere necesario la Dirección.

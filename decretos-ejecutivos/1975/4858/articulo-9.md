@@ -1,0 +1,2 @@
+Artículo 9°—Corresponde al Ministerio de Seguridad Pública a través de la Dirección General de la Guardia Civil, hacer más efectiva la acción que lleve a cabo el Ministerio de Obras Públicas y Transportes, conjuntamente con las demás dependencias del Estado.
+El Ministerio de Gobernación por intermedio de la Guardia de Asistencia Rural estará obligado a colaborar en el cumplimiento de las disposiciones de este Reglamento.

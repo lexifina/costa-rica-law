@@ -1,0 +1,1 @@
+Artículo 199.—Cuando un vehículo ingrese a la Dirección en Depósito por motivo de accidentes o por cualquier otra causa legal, el derecho de su propietario para reclamar al Estado su devolución o su correspondiente valor, prescribe en el término de un año a partir de la fecha de la resolución del caso, salvo que hubiere proceso pendiente.

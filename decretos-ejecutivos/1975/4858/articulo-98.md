@@ -1,0 +1,1 @@
+Artículo 98.—Las entidades públicas, en especial las de Segundad y Hacienda, deberán brindar dentro de su especialidad, la colaboración necesaria para garantizar eficiencia en la administración del seguro a que se refiere esta ley.

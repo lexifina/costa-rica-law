@@ -1,0 +1,3 @@
+CAPITULO VI
+De la Responsabilidad Civil
+Artículo 63.—El conductor de un vehículo será responsable de los daños y perjuicios que se deriven de un accidente que le fuere imputable por dolo, falta, negligencia o imprudencia debidamente comprobadas y por sentencia judicial firme. El dueño del vehículo que permitiere que lo conduzca un persona sin licencia para ello y conforme a la clasificación de este Reglamento, será solidariamente responsable con el conductor, en cualquier accidente en que fuere encontrado responsable. Igualmente lo serán todos aquellos que lo exploten en actividades industriales o comerciales.

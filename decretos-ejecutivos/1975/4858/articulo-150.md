@@ -1,0 +1,1 @@
+Artículo 150.—Solo podrán usarse las aceras para el tránsito de peatones, quedando por tanto prohibido usarlas para puestos comerciales, para depositar, medir, extender o comprar artículos interrumpiendo el paso, o para efectuar trabajos o depositar aparatos mecánicos de talleres y, en general, para fines distintos de los de circulación que a dichas aceras corresponden.

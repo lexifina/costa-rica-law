@@ -1,0 +1,1 @@
+Artículo 166.—La Corte Suprema de Justicia regulará la distribución de Trabajo entre las diferentes Agencias Judiciales de Tránsito. Tanto los Agentes Judiciales como los Delegados de la Guardia de Asistencia Rural, podrán instruir las sumarias de oficio o a gestión de parte interesada. En cada cabecera de provincia deberá haber cuando menos una Agencia de Policía de Tránsito.

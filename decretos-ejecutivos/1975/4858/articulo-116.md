@@ -1,0 +1,1 @@
+Artículo 116. — Es obligatorio acatar las instrucciones de cualquier dispositivo oficial de control de tránsito, que haya sido instalado y funcione de acuerdo con las disposiciones de la ley y de este ordenamiento. Quien contraviniere esta disposición será penado con multa de ciento cincuenta colones por la autoridad competente.

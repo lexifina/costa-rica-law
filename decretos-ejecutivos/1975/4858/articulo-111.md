@@ -1,0 +1,2 @@
+Artículo 111.—La Dirección hará fijar en las esquinas de las calles o lugares necesarios y en la forma que lo estime conveniente, señales que indiquen el sentido de la dirección en que se permite circular a los vehículos. Estas señales tendrán el color y modelo apropiados para la finalidad propuesta.
+En las calles, avenidas, paseos o calzadas donde la circulación de vehículos se considera con "preferencia de paso", las señales indicadoras de dirección a que se refiere este artículo tendrán una coloración especial.

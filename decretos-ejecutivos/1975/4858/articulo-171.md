@@ -1,0 +1,1 @@
+Artículo 171.—Si en el momento de emitir la boleta, el presunto infractor no se encontrare presente, se dejará adherida al vehículo de la infracción, pero será necesario hacer nueva notificación por los medios comunes, una vez que se inicie el trámite por la autoridad judicial.

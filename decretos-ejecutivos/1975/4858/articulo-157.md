@@ -1,0 +1,1 @@
+Artículo 157.—De las dieciocho a las seis horas es prohibida la circulación de vehículos sin las luces reglamentarias encendidas. Asimismo a cualquier hora del día, en aquellas ocasiones en que por razones naturales o artificiales se dificulte la visibilidad.

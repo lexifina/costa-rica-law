@@ -1,0 +1,1 @@
+Artículo 203.—Los detenidos por las razones a que se refiere el inciso b) del artículo anterior, que no aceptaren el cargo, serán sometidos a los exámenes clínicos necesarios, los cuales se practicarán por el Organismo Médico Forense.

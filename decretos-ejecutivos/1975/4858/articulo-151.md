@@ -1,0 +1,1 @@
+Artículo 151.—Los límites de velocidad para la circulación de vehículos serán fijados por la Dirección, de acuerdo con el tipo de las unidades y las condiciones de las vías. Esos límites se indicarán mediante avisos convenientes ubicados en las vías públicas.

@@ -1,0 +1,1 @@
+Artículo 26.—El Certificado de Propiedad tendrá el modelo y características que determine la Dirección y contendrá, cuanto menos, las características básicas del vehículo, nombre y calidades del propietario y cualquier otro extremo que considere procedente la Dirección.

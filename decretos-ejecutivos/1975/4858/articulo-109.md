@@ -1,0 +1,1 @@
+Artículo 109.—Cuando se controla el tránsito por medio de inspectores o funcionarios facultados al efecto, se observarán las disposiciones y señales que determine la Inspección de Tránsito de la Dirección General cíe Tránsito y Transporte Automotor.

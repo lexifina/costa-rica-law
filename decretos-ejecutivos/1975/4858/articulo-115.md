@@ -1,0 +1,2 @@
+Artículo 115.—Por medio de una franja con pintura de color Amarillo la Dirección señalará sobre la orilla exterior de las aceras, los lugares donde el estacionamiento estará prohibido o sujeto a horarios especiales.
+Igualmente, mediante el señalamiento adecuado se indicarán los lugares en donde los vehículos de transporte remunerado de personas podrán efectuar paradas para recoger y bajar pasajeros.

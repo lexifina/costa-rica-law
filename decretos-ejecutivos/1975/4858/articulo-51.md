@@ -1,0 +1,1 @@
+Articulo 51.—El otorgamiento de placas con matrícula especial para el uso del Cuerpo Diplomático (CD), Cuerpo Consular (CC) y Misiones Internacionales (MI) se regirá por lo dispuesto en el Decreto Ejecutivo N° 34 de 7 de agosto de 1967 y sus reformas.

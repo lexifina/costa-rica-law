@@ -1,0 +1,1 @@
+Artículo 136.—Al pasar cruces de ferrocarril los conductores de toda clase de vehículos deberán detener completamente su marcha y no reanudarla en cuanto no tengan la seguridad de que tienen paso libre sin ningún peligro.

@@ -1,0 +1,1 @@
+Artículo 69.—La Dirección General de Tránsito y Transporte Automotor inmovilizará cualquier vehículo automotor que circule sin Seguro Obligatorio, y solo permitirá que reanude su circulación una vez se le compruebe la existencia y vigencia del citado seguro, así como el pago de la multa respectiva.

@@ -1,0 +1,1 @@
+Artículo 71.—El Seguro Obligatorio cubrirá exclusivamente —dentro de sus límites— la lesión o muerte de cualquier persona, como consecuencia directa de la propiedad, manteniendo, operación o uso de uno o más vehículos automotores dentro del país.

@@ -1,0 +1,1 @@
+Artículo 60.—La licencia para aprendices podrá ser expedida como "permiso para aprender a conducir", con las formalidades que estime adecuadas la Dirección, de conformidad con el Reglamento para la Enseñanza del Manejo de Vehículos Automotores.

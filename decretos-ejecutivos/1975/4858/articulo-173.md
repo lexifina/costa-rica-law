@@ -1,0 +1,2 @@
+Artículo 173.—Salvo que la pena haya sido descontada, mediante arresto, si el pago total de la multa no ha sido satisfecha dentro del plazo de ocho días hábiles a partir de la firmeza de la sentencia que la imponga, se inscribirá en los registros como gravamen sobre el vehículo respectivo.
+El gravamen impedirá la renovación de la licencia de conductor y del derecho de circulación del vehículo mientras el monto total de la multa no sea cancelado.

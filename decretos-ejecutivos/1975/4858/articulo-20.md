@@ -1,0 +1,1 @@
+Artículo 20. — Autoridades de la Dirección y el personal del Ministerio de Obras Públicas y Transportes, relacionados con las funciones a cargo de la citada Oficina, estarán obligados a prestar su colaboración en todo lo de su competencia para el eficaz cumplimiento de su cometido.

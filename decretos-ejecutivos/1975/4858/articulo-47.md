@@ -1,0 +1,1 @@
+Artículo 47.—Los vehículos automotores de dos ruedas y las bicicletas, deberán contar con bocina, espejo lateral retrovisor colocado en el lado izquierdo del manubrio, sistema de frenos, luz delantera, alta y media para los primeros y luz roja posterior que sirva a su vez para iluminar el número de matrícula.

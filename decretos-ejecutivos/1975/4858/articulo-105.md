@@ -1,0 +1,1 @@
+Artículo 105.—Es prohibido emplear un vehículo para fines distintos de los manifestados en su permiso de circulación, o en una forma que contraríe su naturaleza, o hacerlo circular por vías no autorizadas por la Dirección. El incumplimiento de esta disposición se penará por los tribunales competentes con multa de ciento cincuenta colones.

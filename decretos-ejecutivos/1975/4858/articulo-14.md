@@ -1,0 +1,15 @@
+Artículo 14.—Las contravenciones a este Reglamento o a sus disposiciones complementarias en que incurran los servidores de la Inspección, serán sancionadas con las siguientes medidas disciplinarias:
+a) Suspensión sin goce de sueldo; y
+b) Despido.
+Corresponde a los jefes respectivos sancionar a sus subalternos, cuando se hagan acreedores de una amonestación, debiendo enviar copia de la misma al Departamento de Personal.
+Los jefes están obligados a reportar al Departamento de Personal, las faltas cometidas por sus subalternos, cuando las mismas ameriten amonestación escrita, suspensión o despido. Dicho reporte deberá efectuarse al día siguiente en que se conocieron los hechos correspondientes.
+Se aplicará suspensión del trabajo, sin goce de salario y hasta por 30 días, una vez oídos el interesado y las personas que aquél indique, en todos aquellos casos en que se cometa una falta de las aquí señaladas, o de relativa gravedad contra los deberes impuestos en el contrato de trabajo. La imposición de tal sanción, y valoración de la gravedad estará a cargo del Jefe del Departamento, quien para tales efectos podrá levantar las investigaciones que considere necesarias, ordenar pruebas y recibir otras propuestas.
+El despido se aplicará sin responsabilidad para el Ministerio, cuando la conducta del trabajador pueda conceptuarse enmarcada dentro de lo prescrito por el artículo 81 del Código de Trabajo o por el presente ordenamiento.
+Las llegadas tardías injustificadas computables dentro de un mismo mes calendario, se sancionarán en la forma siguiente:
+Por tres, suspensión hasta por ocho días; por seis suspensión hasta por quince días. Las llegadas tardías cuyo número exceda de seis se tendrá como causal de despido justificado.
+Las sanciones se aplicarán en el mes siguiente, con excepción de aquellos casos en que el despido se configure antes de concluir el mes de que se trate, caso en el cual se podrá separar justificadamente al trabajador de inmediato.
+Las ausencias injustificadas, computables dentro de un mismo mes calendario, darán lugar a las siguientes sanciones:
+Por una ausencia o dos medias ausencias alternativas suspensión por ocho días; por tres medias ausencias suspensión de 15 días, por dos consecutivas o más de dos alternas despido.
+Las sanciones se aplicarán en el mes siguiente con la salvedad enunciada anteriormente. Para todos los efectos disciplinarios, la reincidencia en las faltas previstas en este Reglamento se computarán trimestralmente a partir de la fecha en que se sancionaron.
+Las faltas cometidas en contra de lo preceptuado en los incisos b), e), f), i), j), 11) y r) del artículo 11 y en los incisos g), h), n) y q) del artículo 12 de este Reglamento serán sancionadas con suspensión sin goce de salario hasta por treinta días, a juicio del Jefe del Departamento. La violación a los incisos b), c), d), j), k), ñ), o) y p) del artículo 12 serán causales de despido.
+Los restantes serán a juicio del Jefe de la Inspección, tomándose en consideración la conducta del servicio y la reincidencia.

@@ -1,0 +1,1 @@
+Artículo 107.—Para los fines de ordenamiento de la circulación de vehículos y peatones, se empleará el color rojo como señal de "Alto" o de peligro; el verde como señal de "Adelante" o paso libre y el amarillo como señal de prevención.

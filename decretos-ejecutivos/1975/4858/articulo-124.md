@@ -1,0 +1,1 @@
+Artículo 124.—En las zonas de alta velocidad así como en las curvas bocacalles o cruces, queda prohibido adelantar a otro vehículo que marche a la velocidad máxima permitida en esos lugares. En una misma maniobra de rebase, queda prohibido sobrepasar más de un vehículo.

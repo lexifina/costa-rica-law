@@ -1,0 +1,1 @@
+Artículo 67.—Para efectos de responsabilidad civil todos los vehículos oficiales, diplomáticos o de misiones internacionales y sus conductores estarán sujetos a la ley, su Reglamento y disposiciones conexas, todo sin perjuicio de los tratados y convenios internacionales debidamente aprobados por la Asamblea Legislativa.

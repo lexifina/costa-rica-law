@@ -1,0 +1,1 @@
+Artículo 121.—Los vehículos que transiten en los centros urbanos o en las intersecciones donde no haya señalamiento, deberán ceder el paso al vehículo que desemboca a su derecha. En las carreteras tendrán prioridad los que circulen por la vía más ancha o la principal.

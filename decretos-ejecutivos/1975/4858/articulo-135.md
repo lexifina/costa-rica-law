@@ -1,0 +1,1 @@
+Artículo 135.—En los cruces de dos o más arterias con preferencia de paso y que carezcan de semáforos o de otro señalamiento, los conductores de vehículos disminuirán su velocidad de acuerdo con las necesidades de circulación de los mismos.

@@ -1,0 +1,1 @@
+Artículo 74.— la correspondiente indemnización resultare mayor que los límites del Seguro obligatorio, la víctima o sus causahabientes tendrán derecho a cobrar la diferencia faltante a quien o quienes por ley deban satisfacerla.

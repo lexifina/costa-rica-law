@@ -1,0 +1,1 @@
+Artículo 191.—El gravamen a que se refiere el artículo anterior, mientras la multa no sea satisfecha o no descuente el infractor,/ arresto, impide la renovación de las licencias de conductor y de circulación del vehículo, inscripción de gravamen prendario o de traspaso a un tercero, según lo dispuesto en los artículos.

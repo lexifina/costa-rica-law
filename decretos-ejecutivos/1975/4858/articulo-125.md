@@ -1,0 +1,1 @@
+Artículo 125.—Para cambiar la dirección en las esquinas y lugares en que la circulación se haga en un solo sentido, deberá disminuirse la velocidad de los vehículos, tomando el extremo correspondiente al lado hacia donde se vayan a dirigir y haciendo la señal respectiva, con el sistema de señales propias del carro.

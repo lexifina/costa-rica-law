@@ -1,0 +1,1 @@
+Artículo 102.—Los peatones que no se encuentren en el pleno uso de sus facultades o de sus movimientos y los niños de corta edad, deberán ser conducidos por personas aptas al cruzar las vías públicas. Los ciudadanos carentes totalmente de la vista podrán usar silbatos con el objeto de que las autoridades de policía o de tránsito les ayuden a atravesar las calles.

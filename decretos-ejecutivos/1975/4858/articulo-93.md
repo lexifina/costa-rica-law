@@ -1,0 +1,1 @@
+Artículo 93.—Cuando el conductor de un vehículo o su propietario resulte obligado legalmente a pagar una indemnización mayor del límite del Seguro Obligatorio, se rebajarán del respectivo monto las prestaciones cubiertas por el Instituto Nacional de Seguros en virtud de dicho Seguro.

@@ -1,0 +1,2 @@
+Artículo 172.—Realizada la comparecencia a que se refiere el artículo 171, si el indiciado acepta el cargo, el fallo será dictado en el mismo acto; si lo rechaza, deberá ofrecer y le será recibida prueba de descargo a la mayor brevedad, de todo lo cual se levantará sumaria y la sentencia será dictada en un término no mayor a 30 días.
+Si el indiciado que hubiere recibido el parte no compareciere dentro del término antes señalado, sin causa justificada, será declarada su rebeldía y el fallo será dictado de inmediato.

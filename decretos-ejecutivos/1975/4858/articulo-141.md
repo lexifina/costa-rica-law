@@ -1,0 +1,1 @@
+Artículo 141.—Cuando algún vehículo sufra desperfecto en la vía pública, deberá detenerse en el lado derecho lo más cerca posible del cordón de caño, tratando de no entorpecer la circulación. Queda prohibido el estacionamiento de un vehículo por más de 4 horas en las carreteras y caminos y de 30 minutos en las calles urbanas, a causa de reparación o de algún desperfecto.

@@ -1,0 +1,1 @@
+Artículo 142.—En los espaldones o en las orillas de las vías públicas, solo podrán efectuarse reparaciones de emergencia o de carácter provisional para descongestionar la vía. Los talleres que se dediquen a la reparación de vehículos, bajo ningún concepto podrán repararlos o estacionarlos en los derechos de vía con ese objeto.

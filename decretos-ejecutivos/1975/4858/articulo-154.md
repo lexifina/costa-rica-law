@@ -1,0 +1,1 @@
+Artículo 154.—En las motocicletas podrán viajar solo las personas que acupen asientos especialmente acondicionados para el objeto a juicio de la Dirección. Esta hará constar en el permiso de circulación respectivo el número de personas que pueden viajar en esta clase de vehículos.

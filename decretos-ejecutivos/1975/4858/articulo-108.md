@@ -1,0 +1,1 @@
+Artículo 108.—Los conductores de vehículos y los peatones atenderán las señales hechas por los Inspectores de Tránsito o personas facultadas para ello, así como las señales de semáforos eléctricas, las inscripciones pintadas sobre el piso y las contenidas en rótulos.

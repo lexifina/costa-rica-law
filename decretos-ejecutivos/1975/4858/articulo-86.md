@@ -1,0 +1,1 @@
+Artículo 86.—En caso de venta de vehículo afecto al Seguro Obligatorio, el respectivo registro no inscribirá el traspaso, a menos que se le compruebe que la póliza ha sido transferida al nuevo propietario o que éste ha tomado y pagado un nuevo seguro. La transferencia referida podrá ser mediante endoso en el recibo-póliza del anterior a favor del nuevo propietario.

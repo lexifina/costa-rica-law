@@ -1,0 +1,1 @@
+Artículo 77.—El Seguro Obligatorio para Vehículos Automotores será administrado por el Instituto Nacional de Seguros, el cual tendrá facultad para calcular y establecer las respectivas tarifas de acuerdo con su propia experiencia y procedimientos usuales. El Instituto no obstante, al calcular las tarifas, procurará que resulten lo menos onerosas para los Asegurados.

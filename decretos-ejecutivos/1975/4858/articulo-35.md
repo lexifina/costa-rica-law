@@ -1,0 +1,2 @@
+Artículo 35.—Los gravámenes prendarios sobre vehículos se inscribirán únicamente en el Registro Público de la Propiedad de Vehículos para lo cual se consideran vigentes las disposiciones del Código de Comercio referentes a Prendas y donde ese Código se refiere al Registro Central, debe entenderse el Registro Público de la Propiedad de Vehículos.
+Todo gravamen prendario anotado o inscrito no surtirá efectos en perjuicio de terceros después de cuatro años de su vencimiento y el Registro hará caso omiso del mismo al inscribir nuevos asientos o certificar los mismos.

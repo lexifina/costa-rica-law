@@ -1,0 +1,1 @@
+Artículo 53.—Las placas o distintivos no podrán traspasarse o usarse en vehículo alguno diferente de aquel cuyas características se encuentran consignadas en el Registro Público de la Propiedad de Vehículos y para el cual fueron autorizadas. No podrán usarse placas o distintivos oficiales sin que medie autorización para ello.

@@ -1,0 +1,1 @@
+Artículo 126.—Para cambiar de dirección en cruces de circulación en doble sentido, se observará lo dispuesto en el artículo anterior, con la salvedad de que el extremo que se tome deberá quedar comprendido dentro de la parte de la vía que corresponda al sentido en que se circula, limitada por el eje imaginario o señalado del cruce de que se trate.

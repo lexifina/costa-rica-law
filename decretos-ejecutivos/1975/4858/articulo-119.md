@@ -1,0 +1,2 @@
+Artículo 119.—Cuando por no haber acera los peatones deban transitar por las carreteras, lo harán por el lado izquierdo del espaldón según la dirección de su marcha. Se prohibe el tránsito de peatones por las calzadas de las vías.
+En las poblaciones, los peatones deben transitar únicamente por las aceras y cruzar las calles en las esquinas o por las zonas de seguridad o de paso debidamente marcadas. La infracción a esta disposición se sancionará por los tribunales con multa de veinte a trescientos sesenta colones.

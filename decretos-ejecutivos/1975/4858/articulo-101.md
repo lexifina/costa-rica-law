@@ -1,0 +1,1 @@
+Artículo 101.—Los peatones deberán cruzar las vías públicas en las esquinas de las calles o en las zonas especiales de paso, perpendicularmente a las aceras y atendiendo a las indicaciones de tránsito.

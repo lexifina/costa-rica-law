@@ -1,0 +1,3 @@
+Artículo 79.—-El Instituto emitirá las pólizas mediante documentos que a la vez tendrán carácter de recibo (recibo-póliza), con vigencia de un año a partir del día 1° de octubre y hasta el día 30 de setiembre del año siguiente, excepto para los vehículos de turistas, personas en tránsito y cualesquier otros residentes temporales, en cuyos casos la vigencia del seguro corresponderá al tiempo de su permanencia en el país.
+La renovación anual de placas o marchamos será iniciada por la Dirección General de Tránsito y Transporte Automotor el día 1° de octubre.
+Respecto de vehículos que reciban las placas de circulación en el curso de la anualidad del seguro, el recibo-póliza se emitirá con vigencia igual al tiempo que falte para el vencimiento de esa anualidad.

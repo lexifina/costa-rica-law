@@ -1,0 +1,1 @@
+Artículo 168.—Las acciones por resarcimiento de daños y perjuicios ocasionados por los vehículos que circulen en las vías públicas pueden ser establecidas por el perjudicado o su representante ante la autoridad competente del lugar donde el daño se haya producido.

@@ -1,0 +1,1 @@
+Transitorio I.—Aquellas personas que al entrar en vigencia el presente Reglamento no hubieren aún cumplido la edad requerida para conducir vehículos que no sean bicicletas, pero que obtuvieron licencia con las anteriores disposiciones cíe tránsito, podrán renovarlas ajustándose a lo que sobre el particular establece el presente ordenamiento, con excepción de lo relativo a edad.

@@ -1,0 +1,1 @@
+Artículo 159.—Los vehículos de tracción humana y de tracción animal estarán sujetos al cumplimiento de las disposiciones del presente capítulo que les fueren aplicables. Cederán siempre el paso a los vehículos automotores y entre sí al vehículo más rápido. Es prohibida su circulación en las vías de tránsito rápido.

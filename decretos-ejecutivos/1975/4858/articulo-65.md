@@ -1,0 +1,1 @@
+Artículo 65.—Durante cualquier etapa del proceso en que constare que las indemnizaciones de tipo civil han sido debidamente cubiertas se ordenará levantar el gravamen anotado en el Registro Público de la Propiedad de Vehículos.

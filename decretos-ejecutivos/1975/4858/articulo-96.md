@@ -1,0 +1,1 @@
+Artículo 96.—En los casos que corresponda al Instituto amparar un accidente y sin perjuicio de los primeros auxilios, deberá solicitársele previamente la autorización necesaria para el otorgamiento de cualquier atención médica y hospitalaria.

@@ -1,0 +1,1 @@
+Artículo 147.—Es obligación de los conductores disminuir la velocidad de sus vehículos o detenerlos, dando preferencia en el paso al peatón que haya iniciado su marcha para cruzar en todos aquellos lugares de paso autorizados que no se encuentren protegidos por un Inspector de Tránsito o por semáforo.

@@ -1,0 +1,1 @@
+Artículo 128.—Cuando el conductor de un vehículo detenga la marcha, deberá hacerlo del lado derecho, lo más cerca posible de la acera, efectuando las señales necesarias para evitar accidentes o detenciones innecesarias a la corriente de tránsito.

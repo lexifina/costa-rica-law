@@ -1,0 +1,1 @@
+Artículo 117.—Es prohibido alterar, dañar en cualquier forma o dar un uso no autorizado a los dispositivos oficiales de control de tránsito. A quien se le comprobare una infracción a este artículo será sancionado por la autoridad respectiva con multa de veinte a trescientos sesenta colones.

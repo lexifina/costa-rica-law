@@ -1,0 +1,1 @@
+Artículo 43.—Los microbuses y otras modalidades de vehículos que se destinen al transporte colectivo por retribución, o a servicios especiales de turismo y transporte de escolares o trabajadores, además de satisfacer los requisitos enumerados, deberán estar identificados. Los autobuses que se dediquen al transporte internacional de pasajeros deberán contar con servicio sanitario.

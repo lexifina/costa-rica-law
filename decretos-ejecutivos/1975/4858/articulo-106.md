@@ -1,0 +1,1 @@
+Artículo 106.—La Dirección General podrá expedir permisos para transporte de trabajadores en actividades agropecuarias, bajo la responsabilidad exclusiva del solicitante y siempre que se cumpla con los requisitos de seguridad que la Dirección indique.

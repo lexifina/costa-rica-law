@@ -1,0 +1,2 @@
+Transitorio II.—En aquellos lugares en que la Dirección tenga establecido o en un futuro establezca el servicio de renovación de licencia en forma permanente y el Ministerio de Hacienda no cuente con una Oficina Recaudadora de Impuestos y Derechos de Tránsito, la Dirección podrá confeccionar los correspondientes enteros hasta tanto el Ministerio de Hacienda no establezca una Oficina con el personal necesario para esos fines.
+Dado en la Casa Presidencial.—San José, a los diecinueve días del mes mayo de mil novecientos setenta y cinco.
