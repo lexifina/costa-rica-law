@@ -1,6 +1,1 @@
-ARTICULO 21.- Para aquellos casos contemplados en el artículo
-anterior, la Municipalidad establecerá cuál de las categorías existentes en
-el artículo siguiente debe aplicarse en cada caso, para lo cual combinará,
-en forma ponderada, varios elementos, entre otros: tipo de actividad,
-ubicación del local, condiciones de éste y cualquier otra característica
-que permita una justa aplicación del impuesto.
+ARTICULO 21.- Para aquellos casos contemplados en el artículo anterior, la Municipalidad establecerá cuál de las categorías existentes en el artículo siguiente debe aplicarse en cada caso, para lo cual combinará, en forma ponderada, varios elementos, entre otros: tipo de actividad, ubicación del local, condiciones de éste y cualquier otra característica que permita una justa aplicación del impuesto.
