@@ -3,7 +3,11 @@ Los indicados acuerdos generales no perjudicarán a los contratos ya suscritos, 
 Las condiciones que regulen la los contratos de ahorro y préstamo serán las mismas cuando las viviendas a construir sean para uso propio o para alquiler.
 Sin perjuicio de los topes de aplicación para cada unidad de vivienda, no habrá limitación alguna para la suscripción de contratos, en cuanto a la cantidad que cada persona desea suscribir.
 Se toman las siguientes disposiciones generales:
-1a—Se señala como monto máximo de cada contrato la suma de doscientos cincuenta mil colones y se permite la suscripción sin límite de números de contratos por persona; se permite asimismo la aplicación sin límite de contratos por persona física o jurídica, pero se establece un límite de un millón de colones por unidad habitacional.
+1a—Se señala como monto máximo a cada contrato, la suma de quinientos mil colones y cien mil colones como monto mínimo; se permite la suscripción sin límite de número de contratos por persona física o jurídica, pero se establece la aplicación de los siguientes topes por unidad habitacional:
+a) Tres millones de colones para compra de terreno y construcción, construcción en terreno propio, ampliación y reparación. Compra de casa nueva, compra de casa por primera vez o única casa, (aunque no sea nueva), siempre y cuando el suscritor sea una persona física.
+b) Un millón quinientos mil colones para compra de lote. cancelación de hipotecas y compra de casa no necesariamente nueva. Se considerará vivienda nueva aquella que no tenga más de seis meses de construida o no haya sido habitada".
+Asimismo se acuerda establecer un tope máximo de ¢ 200.000,00 y un monto máximo por contrato de ¢ 50.000,00 para operación del Sistema de Ahorro y Préstamo Especial para Adjudicatarios.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 18 de 17 de setiembre de 1987, publicada en la Colección de Leyes y Decretos 1987, II Semestre, Tomo II, página 98.)
 2a—DEROGADO por el Acuerdo N° 3829 de 01 de junio de 1987, publicado en la Colección de Leyes y Decretos de 1987, II Semestre, Tomo II, página 2.
 3a—Es facultativo para el Instituto autorizar el cambio de contratos, en su período de ahorro, de planes largos a planes cortos hasta por el monto suscrito, condicionado a que:
 a) La fecha de madurez del contrato no sea menor a la mitad del período de ahorro del plan -corto al que se hace el cambio.

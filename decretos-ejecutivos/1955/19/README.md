@@ -26,3 +26,4 @@ Reglamento para el Sistema de Ahorro y Préstamo del Instituto Nacional de Vivie
 | 11 | 1984-03-26 | Reglamento 3517 (1984-03-26) |
 | 12 | 1984-10-29 | Reglamento 3573 (1984-10-29) |
 | 13 | 1987-06-01 | Reglamento 3829 (1987-06-01) |
+| 14 | 1987-09-17 | Reglamento 18 (1987-09-17) |
