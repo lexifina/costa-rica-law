@@ -1,0 +1,1 @@
+Artículo 26.—El tránsito de autobuses será restringido en el Centro Antiguo en un radio de aproximadamente quinientos metros, transitando estos por las denominadas calles anchas, avenidas 10 y 9 y calles 9 y 12.

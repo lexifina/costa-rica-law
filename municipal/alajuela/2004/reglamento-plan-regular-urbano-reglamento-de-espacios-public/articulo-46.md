@@ -1,0 +1,1 @@
+Artículo 46.—Canoas y bajantes. No se permitirá caída libre de aguas pluviales sobre la vía pública, debiendo disponerse para tal efecto los bajantes pluviales desde techos, balcones, voladizos y cualquier otro saliente. (Artículo III.17 del Reglamento de Construcciones del INVU).

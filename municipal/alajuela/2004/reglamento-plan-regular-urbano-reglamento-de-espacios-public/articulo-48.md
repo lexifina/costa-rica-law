@@ -1,0 +1,1 @@
+Artículo 48.—Los elementos salientes en construcciones. Los elementos arquitectónicos, que estén integrados al perfil de la fachada (columna, viga, guarniciones, banquinas, cornisas, así como rejas y bajantes), podrán salir de la línea de construcción hasta 10 cm.
