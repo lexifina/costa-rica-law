@@ -15,3 +15,4 @@ Reglamento del Mercado Municipal
 | --- | --- | --- |
 | 1 | 1984-07-11 | la propia norma |
 | 2 | 1999-02-02 | Reglamento municipal 45 (1999-02-02) |
+| 3 | 1999-02-02 | Ley 8 |
