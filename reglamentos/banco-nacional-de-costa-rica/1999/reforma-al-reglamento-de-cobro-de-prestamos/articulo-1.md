@@ -1,0 +1,11 @@
+El Banco Nacional de Costa Rica, comunica modificaciones realizadas al Reglamento de Cobro de Préstamos, aprobadas en la sesión Nº 10.994, artículo 19, del 24 de agosto de 1999, que dice:
+Artículo 45.—Los honorarios que perciba un abogado por sus servicios profesionales, se depositarán en su cuenta corriente indicada al Banco, en el momento que los obligados de la operación, los cancele en el Centro de Administración de Crédito respectivo, o cuando adquiera firmeza el remate de los bienes, independientemente si el Banco se adjudica los bienes o no.
+Artículo 48.—Cuando el Banco resultare adjudicatario de bienes, dentro de un cobro judicial, la cancelación de honorarios procederá de la siguiente manera:
+a) Cuando los bienes no sean inscribibles en el Registro Público, con la presentación de una copia del acta de adjudicación y una nota del abogado, indicando que ésta se encuentra firme, se procederá a la cancelación de los honorarios respectivos.
+b) Cuando los bienes requieran de inscripción en el Registro Público, además de lo anterior el abogado podrá realizar los trámites de inscripción de estos bienes, procediendo inmediatamente a la protocolización de piezas respectiva.
+Los honorarios y gastos de protocolización se cancelarán de la siguiente manera:
+iii. Con la presentación de una copia de la escritura de protocolización se cancelarán los gastos.
+iv. Con la presentación de la escritura debidamente inscrita se procederá al pago de honorarios de abogado por protocolización.
+En ambos casos el abogado deberá aportar la factura respectiva, con el detalle de los gastos efectivamente realizados y en caso de haber utilizado "Entero de Gobierno" para el pago de especies fiscales y derechos de registro, se adjuntará una copia del mismo.
+Artículo 96.—La protocolización de piezas por bienes adjudicados a favor del Banco, en pago de obligaciones estará a cargo de profesionales que el Banco designe. Corresponderá a la Gerencia General, Directores Regionales o a los Directores Regionales de Crédito designar el notario respectivo para dicha labor, sin perjuicio que la lleve a cabo el propio abogado director del proceso de cobro judicial respectivo.
+El resto del articulado del Reglamento de Cobro de Préstamos permanece invariable.
