@@ -1,0 +1,12 @@
+6. Programas de medición.
+6.1. Programas de medición.
+Para la evaluación de la calidad del voltaje de suministro, las empresas distribuidoras deben ejecutar programas de medición y registro, tanto de las variaciones de voltaje de corta duración como de los niveles de la tensión de servicio, brindada a los abonados o usuarios finales en el punto de enlace, los cuales deberán de desarrollarse siguiendo, como mínimo, con lo indicado en los numerales 5.1, 5.2, 5.3 y 5.4 de la presente norma o afines que emitiera la Autoridad Reguladora.
+6.2. Muestreo estadístico.
+Durante los primeros 12 meses, después de la puesta en vigencia de esta norma, los programas de medición, se efectuarán siguiendo un criterio aleatorio (geográfico y topológico), en el cual la Autoridad Reguladora señalará a cada empresa en particular un programa de mediciones anual, a ejecutar en su área de concesión.
+Posteriormente a los doce meses indicados anteriormente, los programas de medición se planearán siguiendo criterios estadísticos de carácter estrictamente topológico, tomando en cuenta la vinculación usuario-red, contenida en la norma técnica “Calidad de la Continuidad del Suministro Eléctrico” (AR-NTCSE).
+6.3. Informes de los programas de medición.
+Para cada servicio eléctrico estudiado, las empresas distribuidoras deben efectuar un informe técnico, que contemple los aspectos estipulados en los numerales 5.5 y 5.6 de esta norma, como también, el análisis de resultados correspondiente. Asimismo, para cada servicio en el que se encuentren condiciones en el voltaje de suministro, fuera de los límites establecidos en esta norma, deberán de indicarse las medidas correctivas a realizar con el fin de solventarlas con la celeridad que el caso amerite.
+6.4. Estudios de evaluación por parte de la Autoridad Reguladora.
+La Autoridad Reguladora efectuará directamente por su cuenta o mediante contratación de terceros, estudios evaluativos de las condiciones de voltaje brindado por las empresas distribuidoras en sus áreas de concesión. También, si lo considerase pertinente podrá hacer uso de equipo y personal técnico de las empresas reguladas, para efectos de auditoraje de los estudios de voltaje efectuados por ellas.
+6.5. Vinculación Abonado - Red.
+Para lo relativo a los estudios y estadísticas contempladas en este apartado, las empresas considerarán además lo relativo a la vinculación usuario-red, indicada en la norma técnica “Calidad de la Continuidad del Suministro Eléctrico” (AR-NTCSE)
