@@ -1,1 +1,0 @@
-Artículo 21.-No se tomará en cuenta la condena ante para el aumento de pena previsto en el articulo precedente, cuando hayan transcurrido entre la comisión de una y otra infracción diez años, si el hecho imputado en la sentencia anterior hubiere sido un delito, o tres años, si hubiere sido un cuasidelito o una falta.

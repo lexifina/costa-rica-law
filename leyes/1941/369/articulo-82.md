@@ -1,2 +1,0 @@
-Artículo 82.-La sentencia en que se declare la calumnia, si el ofendido lo pidiere, se publicará por una vez, a costa del calumniante, en el periódico que aquél indique.
-Cuando la calumnia se hubiere divulgado por medio de la prensa, están obligados el editor o editores del periódico o periódicos en que se hubiere hecho la publicación a insertar la sentencia gratuitamente, y si dejaren de cumplir esa obligación, incurrirán en multa de treinta a ciento veinte colones.

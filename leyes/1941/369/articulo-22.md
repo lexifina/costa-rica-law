@@ -1,1 +1,0 @@
-Articulo 22.-Cuando hubiere noticia o sospecha de que el procesado ha cometido con anterioridad algún hecho punible, las autoridades de policía pedirán al Registro Judicial de Delincuentes certificación de los juzgamientos anteriores, si lo creyeren necesario.

@@ -1,1 +1,0 @@
-Artículo 118.- Incurrirá en multa de dos a cien colones, el anunciare o prometiere en avisos o circulares, la curación de enfermedades a terminó fijo o por medios, secretos o anunciados como infalibles.

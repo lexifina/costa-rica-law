@@ -1,5 +1,6 @@
 (Derogado)
 N° 23
+(Esta ley fue derogada por el artículo 416 del Cóigo Penal, ley N° 4573 del 4 de mayo de 1970)
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA
 DECRETA:
 La siguiente

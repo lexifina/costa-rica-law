@@ -1,1 +1,0 @@
-Artículo 172.-Se impondrá multa de dos a ciento veinte colones, al que quebrantare las leyes o los reglamentos relativos a la higiene o sanidad, pública o doméstica, si la acción o la omisión no están expresamente penadas en este Código, en la Ley sobre Protección de la Salud Pública o en cualquiera otra ley especial.

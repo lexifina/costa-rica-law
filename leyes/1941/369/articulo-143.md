@@ -1,1 +1,0 @@
-Artículo 143.-Será castigado con multa de dos a noventa colones, el que públicamente o con un fin ilícito, llevare insignias o distintivos de un cargo que no tenga, o se fingiere revestido de una función, cargo o autoridad públicos, o autorizado para ejercerlos.

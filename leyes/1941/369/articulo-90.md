@@ -1,1 +1,0 @@
-Artículo 90.-El que de obra causare intencionalmente a otro un ultraje que, en opinión común del pueblo donde se ejecute, se juzgue afrentoso, será reprimido con arresto de cuatro a sesenta días o multa de ocho a ciento veinte colones.

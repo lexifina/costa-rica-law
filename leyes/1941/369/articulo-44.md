@@ -1,1 +1,0 @@
-Artículo 44.-Siempre que hubiere de hacerse estimación de tiempo, se observará la siguiente regla: el día constará de veinticuatro horas, e! mes de treinta días y e! año de doce meses, y el día comenzado se tendrá por terminado.

@@ -1,1 +1,0 @@
-Artículo 120.-Se le impondrá multa de dos a sesenta colones, al comerciante que tuviere pesas o medidas falsas, aunque con ellas no hubiere defraudado, o usare pesas o medidas exactas, pero no contrastadas, o diferentes de las autorizadas por la ley.

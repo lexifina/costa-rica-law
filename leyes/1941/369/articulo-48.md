@@ -1,1 +1,0 @@
-Artículo 48.- Trascurrido el período de prueba sin que el reo fuere condenado de nuevo, la condena se tendrá por extinguida, en cuanto a sus efectos penales, mediante resolución de la autoridad sentenciadora, y el fallo no será certificado en lo sucesivo por el Registro Judicial de Delincuentes.

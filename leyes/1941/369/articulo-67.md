@@ -1,1 +1,0 @@
-Artículo 67.-Se sancionará con arresto de uno a veinte días multa de dos a cuarenta colones, al que incomodare o molestare a otra persona arrojándole cualquier objeto o sustancia, sin causarle daño alguno.

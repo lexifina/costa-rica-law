@@ -1,1 +1,0 @@
-Artículo 125.-Los que arrojaren a una propiedad ajena piedras, materiales u objetos de cualquier clase aptos para causar daño, o apedrearen árboles frutales, jardines o sembrados ajenos, incurrirán en multa de dos a treinta colones, salvo que al hecho corresponda mayor sanción por el caño producido.

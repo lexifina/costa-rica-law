@@ -1,1 +1,0 @@
-Artículo 117.- El que con objeto de lucrar, interpretare sueños, hiciere pronósticos o adivinaciones o de cualquier otro modo explotare la ignorancia o la credulidad, sufrirá arresto de uno a treinta días o multa de dos a sesenta colones.

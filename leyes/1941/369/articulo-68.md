@@ -1,1 +1,0 @@
-Artículo 68.--El que hubiere participado en una riña o pelea por el solo hecho de la participación, será penado con arresto de uno a treinta días o multa de dos a sesenta colones, salvo que se hubiese limitado a rechazar un ataque o a separar a los que reñían.

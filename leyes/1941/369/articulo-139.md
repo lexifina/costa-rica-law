@@ -1,6 +1,0 @@
-Articulo 139.-Serán reprimidos con arresto de uno a cuarenta días o multa de dos a ochenta colones, o con ambas penas:
-1.-El que no prestare a la autoridad el auxilio que ésta reclame en casos de terremoto, incendio, inundación, naufragio u otra calamidad o desgracia, pudiendo hacerla sin grave detrimento propio, o no suministrare la información que se le pida o la diere falsa.
-2.-El que habiendo sido legalmente citado como testigo, se abstuviere de comparecer o se negare a prestar la declaración correspondiente.
-3.-El médico, cirujano, farmacéutico u obstétrica que, llamado en clase de perito en un proceso criminal, se, negare a practicar el reconocimiento y dar el informe requeridos por la autoridad judicial.
-4.-EI perito o intérprete que habiendo aceptado el cargo en materia judicial, sin justa causa, se negare a cumplirlo o retardare hacerla con perjuicio para alguna de las partes del negocio.
-5.-El que requerido o interrogado por la autoridad en el ejercicio de sus funciones, se negare a presentar su cédula de nacionalidad, ciudadanía o identidad o su constancia de votación, o rehusare dar su nombre, profesión, estado, nacionalidad, lugar de su nacimiento, domicilio y demás datos de filiación, o los diere falsos.
