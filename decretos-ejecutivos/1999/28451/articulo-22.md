@@ -1,1 +1,0 @@
-Artículo 22.—Las empresas que pretendan instalarse fuera de parque deberán cumplir el monto de inversión mínima inicial en activos fijos requerido por la ley 7210 y sus reformas, conforme a los criterios establecidos en el Capítulo II de este Reglamento.

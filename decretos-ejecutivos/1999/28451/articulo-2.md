@@ -1,1 +1,0 @@
-Artículo 2º—La aplicación e interpretación de este Reglamento debe buscar un equilibrio entre la agilidad y eficiencia en el funcionamiento del régimen de zonas francas y la adecuada fiscalización y control del correcto uso de los beneficios fiscales otorgados.

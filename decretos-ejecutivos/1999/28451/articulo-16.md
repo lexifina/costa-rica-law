@@ -1,1 +1,0 @@
-Artículo 16.—Desde la presentación de la solicitud inicial y luego de dictada la resolución final por el Poder Ejecutivo, PROCOMER deberá mantener los expedientes relativos a las solicitudes del régimen de zona franca, debidamente ordenados y foliados.

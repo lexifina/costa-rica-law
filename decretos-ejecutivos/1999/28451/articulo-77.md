@@ -1,1 +1,0 @@
-Artículo 77.—Adicionalmente a lo dispuesto en el artículo anterior, los beneficiarios, por medio del Instituto Mixto de Ayuda Social, pueden donar materias primas, bienes terminados, bienes semielaborados, desperdicios y bienes de capital a instituciones de beneficencia, centros de educación e instituciones del Estado mediante el procedimiento que aquí se establece.

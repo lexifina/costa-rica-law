@@ -1,2 +1,0 @@
-Artículo 58.—El plazo autorizado para la subcontratación será fijado por PROCOMER de acuerdo con las necesidades del interesado y podrá prorrogarse si PROCOMER estima que las razones que motivaron la autorización se mantienen.
-Cuando la subcontratación sea con personas ubicadas dentro del territorio aduanero nacional, el plazo máximo de la autorización es de seis meses, salvo casos excepcionales, debidamente justificados, que autorice PROCOMER.

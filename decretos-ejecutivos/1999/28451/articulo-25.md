@@ -1,1 +1,0 @@
-Artículo 25.—PROCOMER sólo autorizará que las importaciones y exportaciones se realicen directamente desde las plantas satélites en casos especiales debidamente justificados, como caso fortuito o fuerza mayor. En estos casos, la empresa beneficiaria debe cumplir con los mecanismos de control adicionales que establezca la Ley General de Aduanas y su Reglamento.

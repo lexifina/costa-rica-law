@@ -1,4 +1,0 @@
-Artículo 29.—Verificado lo anterior, PROCOMER debe remitir un informe al Ministro de Comercio Exterior, para que el Poder Ejecutivo resuelva lo pertinente sobre la renuncia presentada.
-A partir de la notificación de la aceptación de la solicitud de renuncia al interesado por parte de PROCOMER, se suspenderán a la empresa correspondiente todos los beneficios del régimen y el mismo día se comunicará a la aduana de jurisdicción y a la Dirección General de Aduanas para los efectos correspondientes. Sólo se permitirán aquellos trámites que sean indispensables para el pago de tributos de los bienes adquiridos al amparo del régimen o su reexportación.
-En el acto de aceptación de la solicitud de renuncia por parte de PROCOMER se dispondrá la eliminación de los cargos por derechos del uso del régimen.
-Una vez comunicado el acto de aceptación de la renuncia, se devolverá al interesado el depósito de garantía, previo rebajo de cualesquiera sumas pendientes de pago a PROCOMER.

@@ -1,1 +1,0 @@
-Artículo 62.—Si la empresa beneficiaria subcontratante no presenta los informes a que hace referencia el artículo anterior o no ha cumplido con los términos en que fue autorizada la subcontratación, PROCOMER podrá revocar la autorización e informará al Ministerio de Comercio de Exterior para el inicio del procedimiento sancionatorio correspondiente.

@@ -1,1 +1,0 @@
-Artículo 48.—Para el trasiego de mercancías provenientes del territorio aduanero nacional, deberá utilizarse la factura comercial y la orden de compra o bien el documento equivalente a la orden de compra en caso de compras menores, de acuerdo con lo estipulado en el artículo 47 del presente Reglamento.

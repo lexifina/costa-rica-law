@@ -1,1 +1,0 @@
-Artículo 53.—Adicionalmente al uso de la declaración aduanera, las ventas al territorio aduanero nacional deberán ser reportadas a PROCOMER en el formulario o archivo electrónico establecido al efecto, de previo a su realización. PROCOMER remitirá copia a la aduana de control, para efectos del control de la salida de las mercancías.

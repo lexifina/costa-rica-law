@@ -1,1 +1,0 @@
-Artículo 64.—Para cualquier trasiego de materias y mercancías que involucre un trámite aduanero, se exigirá la Declaración Aduanera de Zona Franca, excepto para las donaciones y compras locales gravadas o exentas.
