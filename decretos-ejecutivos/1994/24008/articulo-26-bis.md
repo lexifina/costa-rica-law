@@ -1,0 +1,2 @@
+Artículo 26 bis).-Para la inscripción de laboratorios farmacéuticos y de medicamentos inscritos en alguno de los países u organizaciones regionales incluidos en la lista a que hace referencia en artículo 22 bis). bastará con que el interesado cumpla con los requisitos establecidos en el artículo 25 del Reglamento, exceptuando lo solicitado en el inciso b) y se acompañe la solicitud con documento idóneo mediante el que se certifique la inscripción correspondiente.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 27202 del 3° de agosto de 1998)

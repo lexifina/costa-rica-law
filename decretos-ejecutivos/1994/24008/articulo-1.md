@@ -52,6 +52,8 @@ MINISTERIO: Ministerio de Salud.
 MINISTRO: Ministro de Salud.
 MUESTRAS MEDICAS: Las unidades o ejemplares de un medicamento que se facilitan gratuitamente a profesionales en ciencias médicas para su promoción.
 NORMAS FARMACOLOGICAS: Son el conjunto de reglas farmacológicas oficialmente establecidas por el Consejo, siguiendo criterios técnicos señalados por el Departamento, que rigen la inscripción de productos y que deben ser adecuadamente divulgados.
+Países con registros reconocidos: El listado de países elaborado por el Consejo Técnico de Inscripciones, que cuentan con registros de medicamentos de una idoneidad tal que son reconocidos en Costa Rica mediante el procedimiento expedito que se establece en este Reglamento."
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 27202 del 3° de agosto de 1998)
 PRODUCTO: Entiéndanse los medicamentos y cosméticos.
 PRODUCTO NUEVO: Nuevas combinaciones fijas de sustancias que ya están en el mercado, o cualquier medicamento anteriormente registrado, ofrecido en el mercado, siempre que sus indicaciones de uso o modo de administración hayan sido cambiadas; o bien un mismo producto con una marca de fábrica, pero con diferentes marcas de comercio.
 REGLAMENTO: El presente reglamento de inscripción y propaganda de medicamentos y cosméticos.

@@ -1,2 +1,2 @@
-Artículo 58.- Sólo será permitida la propaganda o promoción al público de medicamentos de venta libre.
-(Mediante resolución de la Sala Constitucional, N° 5393 del 5 de setiembre de 1997, se anuló del párrafo anterior el párrafo que indica: “declarados como tales en el Decreto N° 23163-S, del 21 de marzo de 1994 y sus reformas, presentando previamente los textos de la propaganda al Departamento para su autorización.)
+Artículo 58.-La propaganda o promoción al público de medicamentos declarados de venta libre no requiere de autorización previa por parte del Ministerio de Salud, y estará sujeta a la fiscalización a posteriori. La propaganda o promoción de los demás medicamentos estará sujeta a la aprobación previa del Ministerio de Salud.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 27202 del 3° de agosto de 1998)

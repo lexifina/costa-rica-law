@@ -16,3 +16,4 @@ Reglamento para Inscripción de Propaganda de Medicamentos y Cosméticos
 | 1 | 1995-02-22 | la propia norma |
 | 2 | 1995-05-08 | Decreto Ejecutivo 24287 (1995-05-08) |
 | 3 | 1997-09-05 | SINALEVI (sin norma nombrada) |
+| 4 | 1998-08-03 | Decreto Ejecutivo 27202 (1998-08-03) |

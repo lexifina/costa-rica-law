@@ -5,7 +5,8 @@ a) Estar registrados y vigentes:
 - El laboratorio fabricante
 - La droguería.
 - El medicamento a importar.
-b) Cumplir el requisito establecido en el numeral 3 del inciso b) del Transitorio I de este Reglamento, y que la droguería se encuentre autorizada por el laboratorio fabricante para importar, comercializar o distribuir sus productos en el país.
+b) Tratándose de productos farmacéuticos que requieren almacenamiento entre 2° C y 8° C, tales como vacunas, biológicos y otros, la droguería requerirá de la autorización del fabricante para poder autorizar el desalmacenaje.
+(Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N° 27202 del 3° de agosto de 1998)
 c) Presentación de la siguiente información:
 - Original y copia de la factura firmada por el regente, en que se consigne:
 1. Número y fecha.
