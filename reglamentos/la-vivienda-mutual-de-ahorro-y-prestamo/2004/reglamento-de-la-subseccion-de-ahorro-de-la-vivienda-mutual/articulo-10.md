@@ -1,0 +1,1 @@
+Artículo 10.—Monto mínimo por depósito. El monto mínimo a depositar será de ¢500,00 sí se trata de cuentas en colones o $1,00 si se trata de cuentas en dólares, monto que podrá ser modificado por la Administración de La Vivienda.

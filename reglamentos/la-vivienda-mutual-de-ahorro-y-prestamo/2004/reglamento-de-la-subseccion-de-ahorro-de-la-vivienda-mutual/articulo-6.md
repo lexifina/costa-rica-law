@@ -1,0 +1,5 @@
+Artículo 6º—Retiros. Legitimación. Podrán hacer retiros los titulares de las cuentas, y las personas mayores de edad, plenamente identificadas, autorizadas y registradas como tales ante La Vivienda o "tercer autorizado", este último en tanto no realice el cierre total de la cuenta, no se haya revocado su autorización y no haya fallecido el titular.
+En las cuentas mancomunadas se requiere la firma de al menos dos personas registradas para tal fin en La Vivienda.
+En todos los casos se requiere la presentación de la boleta de retiro debidamente firmada.
+La autorización para que terceras personas hagan retiros de las cuentas de ahorros se regirá por las normas que dicte la administración de La Vivienda, en todos los casos se requiere de documento de identificación, presentación de la libreta y la boleta de retiro firmada por el titular o tercer autorizado.
+La Vivienda se reserva el derecho de aceptación del documento de identificación y el propietario la releva de toda responsabilidad por la actuación del "tercer autorizado".

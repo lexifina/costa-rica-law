@@ -1,0 +1,5 @@
+Artículo 5º—Retiro. Generalidades. Los ahorrantes podrán retirar sus ahorros en cualquier momento, sin embargo, cuando el Banco Hipotecario de la Vivienda lo considere conveniente, podrá establecer un preaviso de hasta treinta días para el retiro.
+Se debe presentar la libreta de ahorros y su cédula de identidad, o cualquier otro documento que lo identifique a satisfacción de La Vivienda.
+Es responsabilidad exclusiva del ahorrante velar por el buen uso de su libreta de ahorros, relevando de dicha obligación a La Vivienda.
+Si la propiedad o derecho de los depósitos realizados a la cuenta de ahorros fuera disputada judicialmente, La Vivienda podrá suspender el pago de los mismos hasta tanto este no sea solicitado mediante orden judicial.
+Las fracciones de dólar pueden ser canceladas en colones.

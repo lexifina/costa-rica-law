@@ -1,0 +1,1 @@
+Artículo 4º—Cuentas de discapacitados. Las personas discapacitadas pueden abrir cuentas de ahorros actuando a través de su representante legal debidamente acreditado, y las personas analfabetas requieren de la presencia de dos testigos ante los cuales se les deberá leer el reglamento y estampar su huella digital, de todo lo cual se debe dejar constancia en la tarjeta.

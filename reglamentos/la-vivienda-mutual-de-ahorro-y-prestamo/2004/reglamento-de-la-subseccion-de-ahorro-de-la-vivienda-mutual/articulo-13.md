@@ -1,0 +1,2 @@
+Artículo 13.—Extravío de la libreta. Ante pérdida o extravío de la libreta, el ahorrante deberá notificarlo por escrito a La Vivienda de inmediato, para que proceda al bloqueo de la cuenta, y reposición de la libreta.
+Sin embargo, el asociado se responsabiliza ante La Vivienda por los perjuicios que puedan derivarse del extravío de su libreta, exonerándola de toda responsabilidad por el mal uso que de la misma puedan hacer terceras personas, se le cargará además $1,00 por la reposición.

@@ -1,0 +1,1 @@
+Artículo 12.—Garantía. El Banco Hipotecario de la Vivienda garantiza la devolución de los saldos efectivos en todas las cuentas de ahorro en colones y recibidas por La Vivienda. Como respaldo, el BANHVI tendrá la garantía ilimitada y subsidiaria del Estado.
