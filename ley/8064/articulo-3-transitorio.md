@@ -1,0 +1,2 @@
+TRANSITORIO III.- Los recursos obtenidos mediante la colocación de los bonos a que refiere el artículo 3 de esta Ley, serán entregados a los productores de café, sesenta días después del ingreso de dichos dineros al FONECAFE. El giro de los recursos obtenidos por medio de la colocación de los bonos, se realizará conforme al promedio de entregas de las cosechas 98-99 y 99-2000. Cuando se registren entregas de café solamente en la cosecha 99-2000, el volumen entregado en ella servirá de base para el cálculo.
+Rige a partir de su publicación.

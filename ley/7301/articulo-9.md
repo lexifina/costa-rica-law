@@ -1,16 +1,4 @@
-ARTÍCULO 9.- Todo atraso en la cancelación de las contribuciones a
-favor del Fondo será responsabilidad exclusiva de la firma beneficiadora
-y le acarreará el pago adicional de intereses, equivalente a la tasa
-pasiva a seis meses que el Banco Nacional de Costa Rica aplique a sus
-operaciones en dólares, más un diez por ciento (10%). Si el atraso
-excediere treinta días, el Fondo lo informará al Instituto del Café de
-Costa Rica, el cual procederá a suspender la inscripción de los contratos
-de compraventa de café que suscriba la firma beneficiadora. Además, el
-Fondo podrá ejercer las acciones dispuestas en el párrafo siguiente.
-Ante el atraso en el pago de la contribución, con base en esta ley,
-los registros contables y los documentos de exportación de que se
-disponga, el Fondo podrá certificar el saldo debido y los intereses
-moratorios, documento que constituirá título ejecutivo contra la firma
-deudora. El Fondo queda facultado para incoar la acción ejecutiva
-correspondiente, a la cual solo podrán oponerse las excepciones de pago o
-prescripción, atendiendo siempre el debido proceso.
+Artículo 9.- Todo atraso en el pago de la contribución cafetalera será responsabilidad exclusiva de la firma beneficiadora y acarreará el pago de intereses. Se pagará, por concepto de intereses, el importe equivalente a la tasa pasiva a seis meses en dólares estadounidenses, vigente en el Banco Nacional de Costa Rica, más diez puntos.
+Si el atraso en el pago de la contribución excede de treinta días, FONECAFE solicitará al Instituto del Café de Costa Rica que proceda a suspender la inscripción de los contratos de compraventa de café suscritos por la firma beneficiadora. Constatado el tiempo de atraso, el Instituto del Café de Costa Rica procederá a realizar la suspensión dentro de los diez días naturales siguientes a la solicitud que formule FONECAFE.
+Paralelamente, FONECAFE podrá incoar el proceso ejecutivo contra la firma deudora; para ello, se fundamentará en los registros contables y los documentos de exportación de que disponga, los cuales constituyen título ejecutivo.
+(Modificado Tácitamente por Ley N° 8064 que reformó el artículo 9 de la Ley Nº 7770 del 24 de abril de 1998, que a su vez reforma en forma Integral la presente norma)
