@@ -1,0 +1,13 @@
+Nº 31779-SP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SEGURIDAD PÚBLICA
+En uso de las facultades que les confiere el artículo 140, incisos 3), 8) y 18) y 146) de la Constitución Política; artículos 56 y 57, inciso b) de la Ley General de Policía Nº 7410, reformada por la Ley de Fortalecimiento de la Policía Civilista Nº 8096, publicada en el Alcance Nº 24 a La Gaceta Nº 59 del 23 de marzo de 2001, artículos 25, inciso 1) y 28, inciso 2) acápites a) y b) de la Ley General de la Administración Pública Nº 6227 del 2 de mayo de 1978; y Decreto Ejecutivo Nº 30381-SP del 2 de mayo del 2002 "Reglamento sobre Grados Policiales y Sistema de Ascensos de los Servidores de la Fuerza Pública, publicado en el Alcance Nº 37 a La Gaceta Nº 89 del 10 de mayo del 2002.
+Considerando:
+1º—Que dentro del proceso de modernización y profesionalización de las fuerzas de policía, se promulgó la Ley de Fortalecimiento de la Policía Civilista, Nº 8096, estableciéndose un sistema de ingreso a las nuevas escalas jerárquicas, el cual fue reglamentado por el Decreto Ejecutivo Nº 30381-SP, "Reglamento sobre Grados Policiales y Sistema de Ascensos de los Servidores de la Fuerza Pública".
+2º—Que el artículo 57 inciso b) de la Ley General de Policía Nº 7410 y su reforma, establece el ingreso a la escala de oficiales ejecutivos, tanto para los miembros de la escala básica como para personas ajenas a la institución policial, que cuenten con el bachillerato de educación secundaria y hayan aprobado (o convalidado) el curso de oficiales ejecutivos; no obstante se requiere de una debida regulación con la finalidad de establecer mecanismos apropiados, claros y congruentes, que satisfagan la necesidad de personal que demanda el proceso de modernización; profesionalización policial, específicamente con el grado de Capitán de Policía, por lo que se estima conveniente que personas que reúnen los requisitos establecidos, puedan obtener dicho grado e ingresar a escala de oficiales ejecutivos. Por tanto,
+DECRETAN:
+Reforma al Decreto Ejecutivo Nº 30381-SP
+Reglamentos sobre Grados Policiales y Sistema de
+Ascensos de los Servidores de la Fuerza Pública
+Artículo 1º—Refórmese el artículo 12 del Capítulo 3 "Escalas jerárquicas del Estatuto Policial y requisitos" del Decreto Ejecutivo Nº 30381-SP del 2 de mayo del 2002, para que en adelante se lea de la siguiente manera:
+"Artículo 12.—Escala de Oficiales Ejecutivos: La escala de oficiales ejecutivos se conformará con aquellas personas que ostentan el grado policial de subintendente, intendente o capitán de policía, debidamente registrado ante la Dirección de Recursos Humanos".
