@@ -1,6 +1,6 @@
-Artículo 1º.- Autorízase la ratificación del Acuerdo entre el Gobierno
-de Costa Rica y la Organización de las Naciones Unidas para la Agricultura
-y la Alimentación (FAO), para la designación de un representante de FAO en
+Artículo 1º.- Autorízase la ratificación del Acuerdo entre el Gobierno de
+Costa Rica y la Organización de las Naciones Unidas para la Agricultura y
+la Alimentación (FAO), para la designación de un representante de FAO en
 Costa Rica y el establecimiento de una oficina de esa organización en Costa
 Rica.
 Su texto es el siguiente:
