@@ -13,3 +13,4 @@ RTCR 326:1997.Requisitos Fitosanitarios Importación Material VegetalPropagativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-27 | la propia norma |
+| 2 | 2000-10-30 | Ley 7 |
