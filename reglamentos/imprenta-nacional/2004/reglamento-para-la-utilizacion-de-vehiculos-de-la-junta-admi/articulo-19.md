@@ -1,0 +1,1 @@
+Artículo 19.—Prohibiciones de arreglo extrajudicial. Queda prohibido al conductor efectuar arreglos extrajudiciales en casos de accidentes con vehículos de la Junta Administrativa. Deben indicar al particular que se apersone o comunique con el funcionario responsable de la función de transportes para efectuar las gestiones correspondientes.

@@ -1,0 +1,1 @@
+Artículo 22.—Reparaciones antes de la sentencia. La Imprenta Nacional reparará por su cuenta cualquier daño en los vehículos antes de que se determine quién o quiénes son los responsables, sin embargo, una vez sentadas las responsabilidades del caso iniciará los cobros contra quien corresponda.

@@ -1,0 +1,1 @@
+Artículo 21.—Los talleres para realizar reparaciones resultantes de los daños ocasionados en los vehículos por culpa de conductores, serán seleccionados por la Proveeduría Institucional, pero la factura será pagada por el conductor.

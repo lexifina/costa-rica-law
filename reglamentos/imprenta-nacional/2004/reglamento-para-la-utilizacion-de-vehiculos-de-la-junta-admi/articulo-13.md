@@ -1,0 +1,2 @@
+Artículo 13.—Conducción de vehículos. La conducción de vehículos de la Junta Administrativa quedará autorizada con la sola portación de la Orden de Transportes debidamente firmada por las personas autorizadas en este Reglamento.
+Cuando se trate de vehículos asignados según los términos del artículo 9º, servirá como autorización, el acuerdo o resolución emitida por la Junta Administrativa o la Dirección Ejecutiva, documento que deberá portar obligatoriamente el conductor.

@@ -1,0 +1,1 @@
+Artículo 12.—Custodia de los vehículos. Los vehículos deben estacionarse al final de la jornada laboral, en las instalaciones de la Imprenta Nacional, sin embargo, en caso de que sea necesario estacionarlos en lugares distintos, debe contarse con la autorización razonada de la Dirección Ejecutiva.
