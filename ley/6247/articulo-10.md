@@ -1,0 +1,1 @@
+Artículo 10.- El precio del ganado en pie y de la carne para exportación se establecerá por libre negociación de las partes interesadas, tomando en cuenta en estas negociaciones el efecto de la cuota que debe reservarse para el consumo interno.
