@@ -1,0 +1,1 @@
+Artículo 5.- La Oficina Liquidadora tendrá personería suficiente para actuar en nombre del Estado, en ejecución de esta ley, y su representación legal estará a cargo de la Procuraduría General de la República, a la cual se le remitirá copia de todas las resoluciones que dicte la oficina.

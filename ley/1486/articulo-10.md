@@ -1,0 +1,1 @@
+Artículo 10.- La Oficina creada por esta ley durará en funciones hasta el 30 de junio de 1953, fecha en que deberán estar liquidados los asuntos pendientes, con excepción de los que estuvieren tramitando en los tribunales de justicia, los cuales serán atendidos a partir de esa fecha, por la Procuraduría General de la República.
