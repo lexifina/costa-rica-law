@@ -1,6 +1,6 @@
 # Constitución Política (1917)
 
-Constitución Política  del 1917-06-08. SINALEVI, ficha 35313: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35313&param2=145527&param3=1>.
+Constitución Política  del 1917-06-08. SINALEVI, ficha 35313: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35313&param2=145528&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 4 | 1917-06-08 | Constitución Política (1917) | 1917-06-08 |
 | 2 de 4 | 1919-09-03 | Ley 1 | 1919-09-03 |
+| 3 de 4 | 1919-10-29 | Ley 4 | 1919-10-29 |
