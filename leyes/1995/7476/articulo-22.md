@@ -1,4 +1,1 @@
-ARTICULO 22.- Comparecencia de las partes.
-Cumplido el plazo para contestar la demanda, el juez convocará a
-las partes a una comparecencia de conciliación y de pruebas, según se
-establece en los artículos 474 a 489 del Código de Trabajo.
+ARTICULO 22.- Comparecencia de las partes. Cumplido el plazo para contestar la demanda, el juez convocará a las partes a una comparecencia de conciliación y de pruebas, según se establece en los artículos 474 a 489 del Código de Trabajo.
