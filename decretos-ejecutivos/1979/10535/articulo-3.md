@@ -32,5 +32,24 @@ Línea | Rumbo | Distancia | Estación | Coordenadas
 26-27 | N 55°32' W | 619 | 27 | 260,680 | 381,820
 27-28 | N 17°43' E | 756 | 28 | 261,400 | 382,050
 28-1 | N 66°02' E | 492 | 1 | 261.600 | 382.500
-Aclárase que entre los puntos 11 y 28 el Refugio limita con la margen izquierda del río Tempisque, aunque por razones de orden técnico, el lindero queda
-indicado mediante rectas. En el mismo están incluidas las islas Saíno y Pájaros de dicho río.
+Aclárase que entre los puntos 11 y 28 el Refugio limita con la margen izquierda del río Tempisque, aunque por razones de orden técnico, el lindero queda indicado mediante rectas. En el mismo están incluidas las islas Saíno y Pájaros de dicho río.
+(NOTA DEL SINALEVI: mediante el artículo 1 del decreto ejecutivo N°12586 del 24 de abril de 1981, se amplía "el Refugio de Fauna Silvestre Dr. Rafael Lucas Rodríguez Caballero, creado por Decreto Ejecutivo número 10535 del 17 de setiembre de 1979, con los terrenos comprendidos dentro de los siguientes linderos, según la hoja cartográfica número 3147 III, Tempisque, del Instituto Geográfico Nacional, definidos por las coordenadas que se indican a continuación:
+| N | E
+| |
+Lote N° 1: | |
+| 264.000 | 390.670
+| 263.700 | 391.000
+| 264.000 | 391.470
+| 264.900 | 390.900
+Lote N° 2: | |
+| 261.600 | 382.500
+| 261.600 | 385.000
+| 263.000 | 386.200
+| 262.200 | 387.250
+| 262.200 | 389.250
+| 264.400 | 388.200
+| 265.000 | 388.800
+| 268.600 | 387.000
+| 268.600 | 385.700
+| 267.500 | 385.000
+A partir de este punto, el Refugio limita con la margen izquierda del cauce occidental del río Tempisque, aguas abajo hasta terminar nuevamente en el punto con las coordenadas 261.600 N y 382.500 E").
