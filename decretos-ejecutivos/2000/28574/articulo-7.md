@@ -1,0 +1,1 @@
+Artículo 7º—Los servicios sujetos de contrataciones administrativas deberán basarse en las estrategias y planes aprobados en primera instancia por la Dirección del Area de Conservación y en forma definitiva por la Dirección del Sistema Nacional de Areas de Conservación.

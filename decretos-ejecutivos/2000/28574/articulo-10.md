@@ -1,0 +1,1 @@
+Artículo 10.—Las tarifas a establecer para cada servicio contratado que así lo requiera, se aplicará la metodología de disponibilidad de pago. Para lo cual se establecerá un procedimiento, donde cada oferente propondrá la tarifa a pagar por cada visitante o usuario del servicio, según corresponda.

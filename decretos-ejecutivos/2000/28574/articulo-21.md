@@ -1,0 +1,1 @@
+Artículo 21.—La Administración podrá realizar intervenciones o auditorías externas por lo menos una vez al año, por áreas directamente a cargo de la Administración, así como inspecciones directas, encuestas o cualquier otro mecanismo dirigido a asegurar la buena calidad del servicio. De acuerdo con lo contemplado en el capítulo VI de este Reglamento.

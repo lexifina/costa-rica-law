@@ -1,0 +1,1 @@
+Artículo 56.—El Inspector General y el Contralor de Servicios deberán aplicar dos veces al año, una encuesta de percepción de los servicios concesionados, dirigida tanto a los funcionarios como a los visitantes. Sus resultados deben ser analizados por el Comité Técnico del Area de Conservación y dar recomendaciones sobre los mismos.

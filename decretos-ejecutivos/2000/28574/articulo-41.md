@@ -1,0 +1,6 @@
+Artículo 41.—En cuanto al servicio de las tiendas de la naturaleza, deberán cumplir con los siguientes requisitos:
+a) Deberán vender productos de primera calidad, nuevos y en perfecto estado y sólo podrá vender productos tales y como: artesanías, libros, folletos y souvenirs de Costa Rica, productos relativos a la conservación del medio ambiente y de los recursos naturales y aquellas otras que autorice el Comité Técnico del Area de Conservación.
+b) Los productos que se exhiban deberán estar debidamente clasificados y ordenados, los estantes de exhibición estar limpios y deberán armonizar con el tipo de productos que ofrece la tienda y con la distribución local. El local y sus productos deberán ser exhibidos siempre en forma elegante y armónica a la vista del público.
+c) Los precios que se cobren por los productos, deberán estar visibles al cliente y ser razonables. En ningún momento se podrá especular con ningún producto.
+d) Se deberá mantener el local en perfecto estado de limpieza, lo cual deberá hacerse en forma diaria y antes de abrir el local al público.
+e) No se podrán vender productos elaborados total o parcialmente con elementos de especies en peligro de extinción o amenazadas, según se indica en el Reglamento de la Ley de Vida Silvestre.

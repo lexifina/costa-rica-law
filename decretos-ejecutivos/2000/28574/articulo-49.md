@@ -1,0 +1,1 @@
+Artículo 49.—El Comité Nacional de Contrataciones estará conformado por siete miembros: los coordinadores de Areas Silvestres Protegidas, Mercadeo y Financiamiento, dos Directores de las Areas de Conservación, un abogado y el Director General. El Director General nombrará y acreditará los miembros de dicho Comité.

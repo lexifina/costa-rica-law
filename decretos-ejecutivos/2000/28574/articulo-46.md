@@ -1,0 +1,1 @@
+Artículo 46.—Los mecanismos de control indicados en el punto inmediato anterior, tendrán como función primordial controlar la calidad de los servicios, brindar asesoramiento oportuno para el mejoramiento de los servicios e informar sobre cualquier hecho anómalo que afecte los servicios que se brinden.

@@ -1,0 +1,1 @@
+Artículo 23.—El adjudicatario deberá brindar un servicio de primera calidad, en forma permanente y continua durante todos los días del año, en el horario de visitación establecido. El servicio deberá cumplir con los fines establecidos en este Reglamento y las disposiciones establecidas en el contrato entre el adjudicatario y el Ministerio.

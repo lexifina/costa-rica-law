@@ -1,0 +1,2 @@
+Artículo 54.—Corresponderá al Inspector General revisar el Libro de Sugerencias y Quejas, analizando lo que el visitante indique y estableciendo cuando proceda, las recomendaciones del caso para el adjudicatario.
+Lo que se indique en dicho libro, no necesariamente es de acatamiento obligatorio. Sus recomendaciones serán vinculantes, únicamente cuando previo estudio del Inspector General se compruebe la necesidad de implementarlas.

@@ -1,0 +1,1 @@
+Artículo 12.—El adjudicatario deberá brindar un informe bimensual a la Dirección del Area, sobre los ingresos que se depositen en el fondo establecido. Lo anterior a fin de que la Dirección del Area determine aquellos programas que requieren de financiamiento.

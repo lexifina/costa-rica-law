@@ -1,0 +1,1 @@
+Artículo 20.—Previo a la entrega del servicio al particular, se deberá elaborar una memoria técnica del estado en el cual se entrega espacio o infraestructura, sistemas de ejecución de los contratos, condiciones para la empresa.

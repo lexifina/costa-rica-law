@@ -1,0 +1,1 @@
+Artículo 47.—El Director del Área de Conservación nombrará al Administrador del Área Silvestre Protegida, como Inspector General y el Comité Técnico de cada Área de Conservación nombrará a alguno de sus miembros como Contralor de Servicios de todas las contrataciones otorgadas por el Área de Conservación.
