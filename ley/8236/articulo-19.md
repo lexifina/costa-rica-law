@@ -1,0 +1,1 @@
+Artículo 19.—Suspensión de la patente. La licencia o patente municipal sólo podrá suspenderse por la falta del pago de dos o más trimestres o cuando se compruebe que el patentado ha infringido los incisos 1), 2) y 3) del artículo 398 del Código Penal.

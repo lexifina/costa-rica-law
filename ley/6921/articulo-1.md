@@ -1,4 +1,6 @@
 Ley Nº 6921
+La presente norma ha sido DEROGADA EN SU TOTALIDAD por el artículo 24 de la Ley N° 8236
+de 02 de abril de 2002, Ley de Impuestos Municipales del Cantón de Alajuela.
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 Decreta:
 CAPÍTULO I
