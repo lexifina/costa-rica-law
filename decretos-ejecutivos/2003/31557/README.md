@@ -14,3 +14,4 @@ Autoriza Importación como Desabasto de Arroz en Granza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-19 | la propia norma |
+| 2 | 2004-05-17 | Decreto Ejecutivo 31883 (2004-05-17) |
