@@ -1,2 +1,9 @@
-Artículo 8º.-Cuando falleciere un servidor cubierto por las disposiciones de esta ley, antes o después de cumplir el mínimo requerido para la jubilación extraordinaria, sus causahabientes tendrán derecho a la pensión sucesoria completa.
-(Así reformado por el artículo 1° de la ley N° 7028 del 23 de abril de 1986)
+Del monto de la pensión
+Artículo 8º.- El monto del beneficio se determinará de conformidad con las siguientes reglas:
+a) Cuando la jubilación fuera ordinaria, será determinada con base en el promedio de los doce mejores salarios -calculados con una dedicación a tiempo completo y devengados durante los últimos dos años en el servicio del Magisterio Nacional, más el promedio de los sobresueldos devengados en el mismo período y por el mismo concepto.
+El monto del beneficio se calculará de acuerdo con la jornada promedio cumplida en los diez últimos años de servicio.
+Sólo tendrán derecho a la revisión de su jubilación, quienes se reincorporen al servicio efectivo en el Magisterio Nacional durante dos años como mínimo. Se entiende por servicio efectivo aquel desempeñado por el funcionario mientras permanezca en el puesto y labore efectivamente según manda la Ley y no se incapacite más de un quince por ciento (15%) del tiempo de servicio real.
+Al servidor rehabilitado, se le reajustará su pensión en el momento de retiro, de acuerdo con lo estipulado en el párrafo anterior.
+El pago por concepto de dedicación exclusiva se considerará, para todos los efectos de esta Ley, como salario y las constancias sobre los mismos serán extendidas conforme a lo indicado.
+b) Si se tratara de servicios prestados en instituciones particulares educativas, se hará el cálculo a que se refiere el inciso a), tomando como base el sueldo de categoría, reportado a la Caja Costarricense de Seguro Social, de acuerdo con la clasificación de puestos del Servicio Civil.
+c) Cuando la pensión fuera extraordinaria, se determinará como se indica en el inciso a) anterior, pero se dividirá esa suma entre el número de años exigido para la jubilación ordinaria o, según sea el caso, si se ha desempeñado el servicio con horario alterno en la enseñanza especial o en zonas calificadas como incómodas o insalubres y se multiplicará la cantidad así obtenida por el número de años de servicio.
