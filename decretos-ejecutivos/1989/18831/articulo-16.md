@@ -1,4 +1,4 @@
-Artículo 16.- Para el cumplimiento de sus deberes, la Unidad de
+ARTICULO 16.- Para el cumplimiento de sus deberes, la Unidad de
 Auditoría Interna tendrá las siguientes funciones:
 a) Realizar auditorías o estudios especiales, de acuerdo con las
 normas técnicas de auditoría y otras disposiciones dictadas por la

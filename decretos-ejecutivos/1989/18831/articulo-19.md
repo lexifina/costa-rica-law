@@ -1,4 +1,4 @@
-Artículo 19.- El Auditor Interno deberá formular y mantener
+ARTICULO 19.- El Auditor Interno deberá formular y mantener
 actualizado y en uso, de su unidad, un Manual de Procedimientos de
 Auditoría; con el objetivo de que cuente con un instrumento que defina
 las características y procedimientos de auditoría, cuente e con un

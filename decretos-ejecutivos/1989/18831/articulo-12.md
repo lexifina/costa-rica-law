@@ -1,4 +1,4 @@
-Artículo 12.- El Auditor Interno deberá proponer debidamente
+ARTICULO 12.- El Auditor Interno deberá proponer debidamente
 justificada a la máxima autoridad de la cual depende, la creación de
 plazas y servicios que considere indispensables para el cumplimiento de
 su plan anual de auditoría y en general para el buen funcionamiento de su

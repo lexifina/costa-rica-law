@@ -1,4 +1,4 @@
-Artículo 6º.- El nombramiento del Auditor y Subauditor Internos será
+ARTICULO 6º.- El nombramiento del Auditor y Subauditor Internos será
 por tiempo indefinido y lo hará la máxima autoridad del Ministerio. El
 Auditor Interno dependerá y responderá directamente por su gestión ante
 esa autoridad, solo podrá ser removido del cargo por justa causa,

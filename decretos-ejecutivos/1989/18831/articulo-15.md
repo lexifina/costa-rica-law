@@ -1,4 +1,4 @@
-Artículo 15.- Para el cumplimiento de su objetivo, la Unidad de
+ARTICULO 15.- Para el cumplimiento de su objetivo, la Unidad de
 Auditoría Interna tendrá los siguientes deberes:
 a) Practicar auditorías o estudios especiales de auditoría en
 cualesquier unidades administrativas u operativas del Ministerio de

@@ -1,4 +1,4 @@
-Artículo 25.- El texto de los informes de auditoría o estudio
+ARTICULO 25.- El texto de los informes de auditoría o estudio
 especial de auditoría constará, como principal división, de los cuatro
 siguientes capítulos: Introducción, comentarios, conclusiones y
 recomendaciones, que se subdividirán en secciones de acuerdo con las

@@ -1,4 +1,4 @@
-Artículo 27.- Será de exclusiva responsabilidad administrativa el
+ARTICULO 27.- Será de exclusiva responsabilidad administrativa el
 establecer, mantener y perfeccionar las recomendaciones de los informes
 de auditoría. Si la persona responsable encuentra motivos que
 imposibilitan la ejecución de las medidas indicadas en las

@@ -1,6 +1,6 @@
-Artículo 17.- Para el acertado cumplimiento de su objetivo, deberes
-y funciones la Unidad de Auditoría Interna tendrá, al menos, las
-siguientes atribuciones:
+ARTICULO 17.- Para el acertado cumplimiento de su objetivo, deberes
+y funciones la Auditoría Interna tendrá, al menos, las siguientes
+atribuciones:
 a) Libre acceso, en cualquier momento, a todos los registros,
 informes, libros, archivos, valores, documentos y unidades
 administrativas y operativas del Ministerio de Relaciones Exteriores y
@@ -26,3 +26,5 @@ operativas del Ministerio de Relaciones Exteriores y Culto, en el
 cumplimiento de sus deberes.
 e) Cualesquiera otras que sean concordantes con el objetivo y las
 funciones que desempeña.
+(Así modificado el nombre de la Auditoría por el artículo 2º del
+Decreto Ejecutivo No.19136 de 10 de agosto de 1989)

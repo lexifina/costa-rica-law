@@ -13,3 +13,4 @@ Reglamento de Organización Auditoría Interna del Ministerio RelacionesExterior
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-03-07 | la propia norma |
+| 2 | 1989-03-07 | Decreto Ejecutivo 19136 (1989-08-10) |

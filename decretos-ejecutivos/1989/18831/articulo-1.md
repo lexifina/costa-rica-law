@@ -15,10 +15,12 @@ República, la fiscalización superior de la Hacienda Pública, la cual
 llevará a cabo de acuerdo con las diferentes técnicas que tiene a su
 disposición, entre ellas la auditoría externa. Sin embargo, en
 particular, el Ministerio de Relaciones Exteriores y Culto está
-organizando una Unidad de Auditoría Interna para efectuar las auditorías
-o estudios especiales de auditoría que se estime pertinente realizar en
-el cumplimiento de su objeto y otras a solicitud de la autoridad
-superior, en cualquier departamento o dependencia del Ministerio.
+organizando una Auditoría Interna para efectuar las auditorías o estudios
+especiales de auditoría que se estime pertinente realizar en el
+cumplimiento de su objeto y otras a solicitud de la autoridad superior,
+en cualquier departamento o dependencia del Ministerio.
+(Así modificado el nombre de la Auditoría por el artículo 2º del
+Decreto Ejecutivo No.19136 de 10 de agosto de 1989)
 c) Que el Ministerio de Relaciones Exteriores y Culto, cuyo
 crecimiento y desarrollo de futuros planes de gran magnitud por su
 modernización, considera necesario contar con los servicios de una
@@ -28,12 +30,16 @@ naturaleza.
 Por tanto,
 DECRETAN:
 Reglamento de Organización y Funciones
-Unidad de Auditoría Interna
+Auditoría Interna
 Ministerio de Relaciones Exteriores y Culto
+(Así modificado el nombre de la Auditoría por el artículo 2º del
+Decreto Ejecutivo No.19136 de 10 de agosto de 1989)
 CAPITULO I
 Disposiciones generales
-Artículo 1º.- La Unidad de Auditoría Interna del Ministerio de
-Relaciones Exteriores y Culto es un órgano auxiliar del máximo nivel de
-autoridad, constituye parte integral y vital del sistema de control
-interno; cuya función principal es la comprobación del cumplimiento, la
-suficiencia y la validez de dicho sistema.
+ARTICULO 1º.- La Auditoría Interna del Ministerio de Relaciones
+Exteriores y Culto es un órgano auxiliar del máximo nivel de autoridad,
+constituye parte integral y vital del sistema de control interno; cuya
+función principal es la comprobación del cumplimiento, la suficiencia y
+la validez de dicho sistema.
+(Así modificado el nombre de la Auditoría por el artículo 2º del
+Decreto Ejecutivo No.19136 de 10 de agosto de 1989)

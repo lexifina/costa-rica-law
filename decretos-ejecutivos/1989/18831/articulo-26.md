@@ -1,4 +1,4 @@
-Artículo 26.- Los hallazgos obtenidos en el transcurso de la
+ARTICULO 26.- Los hallazgos obtenidos en el transcurso de la
 auditoría o estudio especial, excepto aquellos casos que, por su
 gravedad, la Auditoría Interna estime pertinente que sean puestos a
 conocimiento directo de la máxima autoridad del Ministerio, serán

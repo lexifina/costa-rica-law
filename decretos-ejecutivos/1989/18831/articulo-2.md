@@ -1,4 +1,4 @@
-Artículo 2º.- La labor de auditoría interna es la actividad de
+ARTICULO 2º.- La labor de auditoría interna es la actividad de
 evaluar en forma oportuna, independiente y posterior, dentro de la
 organización, las operaciones contables, financieras, administrativas y
 de otra naturaleza, como base para prestar un servicio constructivo y de

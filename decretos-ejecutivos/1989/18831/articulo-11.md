@@ -1,4 +1,4 @@
-Artículo 11.- El Auditor Interno actuará como jefe del personal de
+ARTICULO 11.- El Auditor Interno actuará como jefe del personal de
 su Unidad y en esa condición ejercerá las funciones que le son propias en
 la administración de personal, tales como: remociones, sanciones,
 promociones y concesión de licencias, todo de acuerdo con el marco
