@@ -1,1 +1,3 @@
-Artículo 11 .-El producto líquido del monopolio se destinará: un 25 % al fondo acumulativo de reserva, y el 75% a mantener el servicio que demande la construcción de caminos, como recurso supletorio de la renta de la Tributación Directa y de las cantidades asignadas para ese fin en el Presupuesto. Si una ley posterior facultase un empréstito con ese fin, dicho 75 % se destinará al servicio de intereses y amortización, siempre en el mismo carácter supletorio. El remanente que pudiese resultar, engrosará el fondo acumulativo del Banco hasta tanto que alguna ley no determine su destino.
+Artículo 11.- DEROGADO
+(Derogado por el artículo 10 de la Ley Nº 5932 de 27 de setiembre de
+1976).

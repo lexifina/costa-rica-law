@@ -1,3 +1,6 @@
-Artículo 23.-Está facultada para:
-1°. - Reasegurar prudencialmente en el país o en el extranjero, los riesgos que adquiera y para efectuar coaseguros de los asegurados nacionales en compañías extranjeras.
-2°.-Caucionar o vender, en el exterior, valores y títulos de su cartera.
+Artículo 23.- El Instituto está facultado para: 1) Asegurar y
+reasegurar prudencialmente, tanto en el país como en el exterior; y 2)
+Vender o gravar, en el interior o en el exterior, valores y títulos de su
+Cartera.
+(Así reformado por el artículo 2 de la Ley Nº 5279 de 27 de julio de
+1973).

@@ -1,1 +1,7 @@
-Artículo 2°.-Las Compañías, Sociedades o Agencias de seguros sobre la vida contra incendios y en general contra riesgos de todo género actualmente establecidas en el país, podrán continuar funcionando con carácter provisorio hasta tanto el Poder Ejecutivo de cr ete para cada clase de seguros, la fecha en que comenzará a hacerse efectivo el monopolio, lo cual deberá verificarse, a más tardar, dentro del año siguiente a la publicación de esta ley.
+Artículo 2º.-Las Compañías, Sociedades o Agencias de seguros sobre
+la vida, contra incendios y en general contra riesgos de todo género,
+actualmente establecidas en el país, podrán continuar funcionando con
+carácter provisorio hasta tanto el Poder Ejecutivo decrete para cada
+clase de seguros, la fecha en que comenzará a hacerse efectivo el
+monopolio, lo cual deberá verificarse, a más tardar, dentro del año
+siguiente a la publicación de esta ley.
