@@ -1,0 +1,1 @@
+Artículo 29.—Prohibición. Queda prohibido disponer de los dineros retenidos al contratista por concepto de cualquiera de las cauciones que se indican en esta Sección, los cuales deben mantenerse en una cuenta de pasivos individualizados.

@@ -1,0 +1,1 @@
+Artículo 35.—Comunicación. El Director será el encargado de comunicar los actos de adjudicación o resoluciones, de conformidad con los términos del cartel y las normas y procedimientos del BCIE. La comunicación deberá efectuarse por los mismos medios utilizados para invitar.

@@ -1,0 +1,1 @@
+Artículo 41.—Estimación del contrato. Todo contrato administrativo que se formalice documentalmente deberá ser objeto de estimación para efectos fiscales de conformidad con el artículo 31 de la Ley de Contratación Administrativa y artículo 31 de su Reglamento.

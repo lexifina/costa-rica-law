@@ -1,0 +1,3 @@
+SECCIÓN QUINTA
+Estudio y Evaluación de las ofertas
+Artículo 32.—Subsanaciones y ¡aclaraciones a las ofertas. Dentro del plazo previsto por et Reglamento General de Contratación Administrativa, COSACA solicitará por escrito a los oferentes que subsanen cualquier defecto formal de carácter relevante, de sus ofertas o en cualquier información o documento trascendente omitido, en tanto impliquen o signifique en manera alguna modificación o alteración de las condiciones establecidas o varíen tas ofertas económicas. Todo lo anterior, de conformidad con lo que establece la Ley y el Reglamento General de Contratación Administrativa.

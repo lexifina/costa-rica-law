@@ -1,0 +1,1 @@
+Artículo 15.—Aclaraciones. Cuando se trate de simples aclaraciones a los términos y condiciones del cartel, pedidas o acordadas de oficio, el Órgano competente las incorporará de inmediato al expediente y las hará de conocimiento de todos los participantes, indicando asimismo la inquietud planteada y la respuesta de la Administración.

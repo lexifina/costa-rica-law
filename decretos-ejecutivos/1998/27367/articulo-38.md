@@ -1,0 +1,1 @@
+Artículo 38.—Recurso de revocatoria. Cuando en razón del monto no proceda el recurso de apelación, podrá solicitarse la revocatoria del acto de adjudicación ante el Órgano que dictó el acto, en los términos y condiciones señalados en la Ley General de Contratación Administrativa y su Reglamento.

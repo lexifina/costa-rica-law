@@ -1,0 +1,1 @@
+Artículo 25.—Forma de rendir las garantías. Las garantías, tanto de participación como de cumplimiento, se rendirán independientemente para cada negocio, bajo cualquiera de las modalidades que establecen los artículos 37.2 y 37.3 del Reglamento General de Contratación Administrativa.

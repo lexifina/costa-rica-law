@@ -1,0 +1,1 @@
+Articulo 21.—Cláusulas invariables: El oferente con la sola presentación de la oferta, queda sometido y comprometido con las cláusulas del cartel, sin necesidad de declaratoria suya sobre el particular.

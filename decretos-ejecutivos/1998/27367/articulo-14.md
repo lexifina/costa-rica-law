@@ -1,0 +1,1 @@
+Artículo 14.—Modificaciones al cartel y prórrogas. Las modificaciones a las condiciones y especificaciones del pliego de bases, y prórrogas para recepción de ofertas, deben ser publicadas por los mismos medios utilizados para cursar la invitación.

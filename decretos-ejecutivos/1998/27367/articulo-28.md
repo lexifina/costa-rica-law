@@ -1,0 +1,2 @@
+Artículo 28.—De la cláusula penal y de las bonificaciones. La cláusula penal por ejecución tardía u otros aspectos o intereses que sea necesario proteger, podrá figurar en todo cartel o pliego de bases, en que se crea conveniente, establecerla, y se fijará tomando en consideración el monto del contrato, las modalidades de ejecución, el plazo convenido para su ejecución o entrega total, así como las consecuencias de su posible incumplimiento.
+Igualmente podrá contemplar el cartel el pago de una bonificación al contratista por la terminación anticipada del contrato.
