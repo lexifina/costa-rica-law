@@ -16,3 +16,4 @@ Reglamento del Registro del Estado Civil
 | 2 | 1917-09-19 | Decreto Ejecutivo 13 (1917-09-19) |
 | 3 | 1925-04-20 | Decreto Ejecutivo 17 (1925-04-20) |
 | 4 | 1939-02-15 | Decreto Ejecutivo 14 (1939-02-15) |
+| 5 | 1942-08-18 | Decreto Ejecutivo 37 (1942-08-18) |
