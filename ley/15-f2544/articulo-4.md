@@ -1,0 +1,1 @@
+Artículo 4° Facultase al Poder Ejecutivo para que, sobre la base que marcan los artículos anteriores, establezca el impuesto a que ellos se refieren, por peso o por medida, como mejor convengan a los intereses nacionales.
