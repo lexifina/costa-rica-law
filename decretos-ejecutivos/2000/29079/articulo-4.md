@@ -1,0 +1,1 @@
+Artículo 4°-La CONAFODUAL deberá reconocer y estimular a las empresas que participen junto a los entes formadores, en la formación de recurso humano de origen técnico, mediante la prestación de las instalaciones y servicios profesionales de los monitores y maestros taller de su empresa.
