@@ -14,3 +14,4 @@ Ordena a Refinadora Costarricense de Petróleo y otras instituciones descentrali
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-01-27 | la propia norma |
+| 2 | 1998-01-27 | Ley 8 |
