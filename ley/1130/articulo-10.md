@@ -1,0 +1,2 @@
+Junta Directiva
+Artículo 10.—El órgano superior del Banco Central será una Junta Directiva, que tendrá a su cargo la dirección suprema de la institución y la determinación de la política monetaria, cambiaría y crediticia de la Nación, de acuerdo con las facultades conferidas y las obligaciones impuestas por la ley a la Junta Directiva del Banco Nacional de Costa Rica en cuanto al Departamento Emisor, al Consejo Directivo del Departamento Emisor, a la Junta de Control de Exportación de Productos y a la Superintendencia de Bancos.

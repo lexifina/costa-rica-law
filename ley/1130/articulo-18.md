@@ -1,0 +1,2 @@
+Autonomía en el Gobierno y Administración del Banco
+Artículo 18.—El Poder Ejecutivo no tendrá intervención directa ni indirecta en el gobierno ni en la administración del Banco. Los miembros de la Junta desempeñarán su cometido con absoluta independencia del Poder Ejecutivo, y serán, por lo tanto, los únicos responsables de su gestión. Sin perjuicio las otras sanciones que les correspondan, responderán personalmente con sus bienes de las pérdidas que se irroguen al Banco por la autorización de operaciones prohibidas por la ley.
