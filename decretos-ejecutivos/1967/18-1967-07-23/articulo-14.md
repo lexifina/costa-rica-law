@@ -1,8 +1,0 @@
-CAPITULO III
-De la Inscripción
-Artículo 14-Inscripción.
-Las personas mencionadas en el artículo 12, párrafo primero, de este Reglamento, que al entrar en vigencia la ley, se encuentren en las condiciones previstas en dicho artículo, deben solicitar a la Dirección su inscripción en el Registro, dentro de los quince (15) días siguientes a la publicación de este Reglamento en el "Diario Oficial".
-Quienes en el futuro lleguen a reunir las condiciones aludidas deben solicitar dicha inscripción dentro de los quince (15) días siguientes a la fecha de cierre del período fiscal correspondiente al impuesto sobre la renta, en el cual se hubieran cumplido aquellas condiciones.
-No obstante lo dispuesto en el párrafo precedente, siempre que una persona demuestre, a satisfacción de la Dirección que reune los requisitos exigidos por la ley y por este Reglamento para ser inscrita en el Registro, aquélla debe inscribirla de inmediato, si con ello se logra una mejor administración y fiscalización del impuesto.
-La falta de solicitud de inscripción, o el haber hecho la solicitud fuera de término, no libera a las personas afectadas de la obligación de pagar el impuesto con respecto a todas las operaciones gravadas que hubiesen realizado desde el momento en que debieron inscribirse, ni del cumplimiento de las demás obligaciones que les correspondiesen, como si fuesen responsables. Todo ello sin perjuicio de que se les apliquen las sanciones que prevé la ley, en las mismas condiciones -que a los responsables.
-No obstante, las personas naturales y jurídicas que se dediquen exclusivamente a la exportación de mercancías y pueden solicitar su inscripción en el Registro, independientemente de los montos de ventas fijados en el artículo 12 de este reglamento.

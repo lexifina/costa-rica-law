@@ -1,6 +1,0 @@
-Artículo 8° -Mercancías producidas o tomadas de las existencias para uso o consumo personal; y ventas a socios, parientes, etc.
-Se entiende que existe uso o consumo personal de las mercancías producidas o adquiridas por el responsable --en los términos del artículo 10, inciso a), de la ley- cuando él las destine a una finalidad distinta de la venta.
-Además, a falta de prueba en contrario, los faltantes de mercancías en los inventario s se pueden considerar que han sido destinados a uso o consumo personal.
-En tales casos la obligación de pagar el impuesto nace en el momento en que tiene lugar el uso o consumo de las mercancías o se determinen los faltantes en los inventarios.
-El gravamen debe ser liquidado en el mes en que se produzca el uso o consumo personal. Para ello debe ser tenido en cuenta el precio de venta en plaza de las mercancías utilizadas, determinado sobre la base de las operaciones que el responsable realice, a título oneroso, que en ningún caso podrá ser inferior al costo de aquéllas más la ganancia usual en sus operaciones con terceros.
-Igual criterio se debe seguir para liquidar el impuesto sobre las ventas de mercancías o la prestación de servicios efectuadas a administradores, gerentes, miembros del consejo de administración, socios o fiscales de sociedades, cónyuges y parientes hasta el tercer grado por consanguinidad o afinidad.

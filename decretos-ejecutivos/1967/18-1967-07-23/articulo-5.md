@@ -1,3 +1,0 @@
-Artículo 5°-Mercancías devueltas.
-Las mercancías cuya venta esté gravada que sean devueltas dentro del término de treinta (30) días de efectuada la transacción, no se deben considerar como usadas, si se prueba a la Dirección que el impuesto respectivo ha sido reintegrado al adquirente, cuando el mismo haya sido incluido en el precio de venta. En estos casos el responsable debe liquidar el impuesto correspondiente sobre la próxima venta que de las mismas haga.
-Si la devolución de las mercancías se produce después del término señalado en este artículo, el gravamen sobre la venta respectiva debe considerarse como definitivo y las mercancías como usadas.

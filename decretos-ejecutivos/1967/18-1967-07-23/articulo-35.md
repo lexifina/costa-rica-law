@@ -1,3 +1,0 @@
-Artículo 35. -Oficinas recaudadoras. El pago del impuesto se debe efectuar en el Banco Central de Costa Rica, sus sucursales, agencias o corresponsalías, o en las Oficinas de Hacienda que determine la Dirección.
-El Banco Central de Costa Rica y las Oficinas de Hacienda que determine la Dirección contraen obligación solidaria, junto con el responsable, por el cómputo del recargo por pago fuera de término a que se refiere el artículo 18, párrafo segundo de la ley,
-El Banco Central de Costa Rica o las Oficinas de Hacienda, en su caso, deben remitir a la Dirección, a más tardar dentro de los quince (15) días siguientes a la cancelación de los pagos, una relación de los mismos, junto con la respectiva copia de cada uno de los enteros.

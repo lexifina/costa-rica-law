@@ -1,1 +1,0 @@
-Artículo 51. -Mercancías importadas en tránsito. Las normas de los impuestos establecidos por la ley se aplican sobre las mercancías que a la fecha de vigencia de este Reglamento se encuentren en las Aduanas de la República.

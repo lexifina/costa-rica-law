@@ -1,3 +1,0 @@
-Artículo 39.-Nómina de responsables. La Dirección debe confeccionar nómina de los responsables, actualizándola periódicamente, y remitirla a cada uno de ellos, a fin de facilitar el control de las operaciones que efectúen entre sí.
-Dicha nómina también debe ser remitida a las Aduanas de la República, para contribuir al mejor control sobre las importaciones. A su vez dichas Aduanas deben suministrar a la Dirección toda la información que ésta les solicite relativa a las importaciones, bajo pena de las sanciones que pudieran corresponderles.
-La Dirección debe publicar en el "Diario Oficial" los retiros de la nómina de responsables, indicando la fecha a partir de la cual han perdido su condición de tal.

@@ -1,3 +1,0 @@
-Artículo 10.-MercancÍas incorporadas en la producción de bienes o servicios exentos.
-A los efectos de lo dispuesto en el artículo 10, inciso c), de la ley, los responsables que incorporen mercancías cuya venta esté gravada, en la producción de bienes o servicios exentos, deben liquidar el impuesto sobre el valor de las mismas. Quedan comprendidas dentro del término mercancías incorporadas, los envases, las cajas, embalajes, y en general las bolsas que formen parte constitutiva o integrante del producto obtenido.
-En el caso en que tales mercancías incorporadas sean producidas por el propio responsable, la base imponible de las mismas está constituida por el costo más la ganancia usual que el responsable obtenga en sus operaciones con terceros.

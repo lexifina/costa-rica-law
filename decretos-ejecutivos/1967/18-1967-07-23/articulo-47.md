@@ -1,2 +1,0 @@
-Artículo 47.-Impuesto sobre existencias de mercancías gravadas. Las existencias de mercancías gravadas a que se refiere el transitorio 1 de la ley, deben ser valuadas, a fin de calcular el impuesto, a su precio de venta.
-Los obligados por este gravamen tienen derecho a computar un crédito contra su impuesto, por los de consumo creados por la ley N° 3282, de 21 de abril de 1964, que hubieren efectivamente pagado sobre tales existencias de mercancías. Este crédito solo puede utilizarlo el obligado para compensar el gravamen creado por el Transitorio 1 de la ley.

@@ -1,3 +1,0 @@
-Artículo 11. -Permuta.
-A los efectos de lo dispuesto por el artículo 17, párrafo primero, de la ley, se debe liquidar el impuesto cuando solo una de las partes en la operación de permuta fuere responsable, y con referencia a las mercancías entregadas o servicios prestados por el responsable.
-Se entiende como mayor valor de venta en plaza de las mercancías o servicios permutados, el que dicho responsable obtenga por ellos en sus operaciones en dinero. En todo caso, el valor computable para calcular el impuesto no puede ser inferior al costo de las mercancías o servicios gravados más la ganancia usual en sus operaciones con terceros.

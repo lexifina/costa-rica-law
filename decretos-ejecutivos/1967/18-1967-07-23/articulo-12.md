@@ -1,9 +1,0 @@
-CAPITULO II
-De los Responsables
-Artículo 12. -Responsables.
-A los efectos del artículo 4° de la ley, revisten la condición de responsables las personas naturales y jurídicas -sean comerciantes, industriales, importadores o intermediarios en general, e incluidas las entidades y empresas mencionadas en el artículo 10, párrafo primero, de la Iey, inscritas en el Registro por haber alcanzado sus ventas anuales de mercancías y el valor de los servicios prestados, las siguientes sumas:
-1) Trescientos mil colones ( ¢300,000.00) cuando más del cincuenta por ciento del total de sus operaciones corresponda a ventas de mercancías.
-2) Ciento ochenta mil colones (¢ 180,000.00) cuando el cincuenta por ciento, o más, del total de sus operaciones corresponda a prestación de servicios.
-A fin de determinar si se ha alcanzado uno u otro de los importes indicados en los numerales precedentes, se debe computar el total de las ventas brutas de mercancías y el valor total de las prestaciones de servicios correspondiente al último período fiscal para el impuesto sobre la renta, con prescindencia de que se trate de operaciones gravadas o no. En el caso en que el período fiscal fuere inferior a doce meses, se debe tomar la proporción correspondiente.
-Cuando personas naturales y jurídicas no estén obligadas a presentar declaraciones para el impuesto sobre la renta, y sus ventas anuales de mercancías y servicios prestados alcancen los montos a que se refiere este artículo, deben inscribirse en el Registro.
-La Dirección queda facultada para aplicar, con carácter general, respecto de cada actividad económica, montos de ventas anuales de mercancías o de servicios distintos de los establecidos en este artículo, para asumir la condición de responsables, cuando con ello se logre una mejor administración y fiscalización del impuesto.

@@ -1,2 +1,0 @@
-Artículo 23. -Productos veterinarios.
-Se consideran como productos veterinarios los siguientes: sueros; semen congelado para inseminación artificial; vacunas; bacterinas; toxoides y antitoxinas; opoterápicos; antígeno para diagnósticos (tuberculina, johnina, brucela, salmonela); antibiótico s sulfonados; nitrofuranos; anestésicos; artículos farmacéuticos terapéuticos; parasiticidas, externos e internos; suplementos alimenticios (premezclados minerales, vitaminas, antibióticos) .
