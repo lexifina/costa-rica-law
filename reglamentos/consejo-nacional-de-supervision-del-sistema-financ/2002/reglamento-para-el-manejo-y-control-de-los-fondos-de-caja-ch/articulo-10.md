@@ -1,1 +1,0 @@
-Artículo 10.—El encargado de CCHG deberá estar atento de presentar la respectiva solicitud de reintegro una vez que el monto del fondo de la CCHG llegue a lo sumo a un 50% del monto autorizado, con el fin de evitar atrasos en las compras requeridas por la SUGEF.

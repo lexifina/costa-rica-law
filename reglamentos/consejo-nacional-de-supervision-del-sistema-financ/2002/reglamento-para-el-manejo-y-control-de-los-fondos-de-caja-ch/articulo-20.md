@@ -1,1 +1,0 @@
-Artículo 20.—En la caja de caudales no se debe mantener ningún tipo de documento, dinero o cheque que no esté directamente relacionado con el fondo destinado a la CCHG. En caso de insuficiencia de recursos de caja chica para cubrir alguna compra, ni el encargado de dichos fondos ni ningún otro funcionario podrá aportar dinero de su propiedad para completarlo.

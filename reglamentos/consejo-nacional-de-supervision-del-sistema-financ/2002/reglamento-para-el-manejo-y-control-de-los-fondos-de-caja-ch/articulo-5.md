@@ -1,1 +1,0 @@
-Artículo 5º—Para ser pertinentes, los desembolsos deberán corresponder a la adquisición de bienes o servicios con cargo a las partidas presupuestarias de servicios no personales, y materiales y suministros.

@@ -1,1 +1,0 @@
-Artículo 2º—La caja chica general (CCHG) constituye un fondo de efectivo y cada vez que se necesite restituirlo parcial o totalmente se hará la respectiva solicitud de reintegro al Banco Central de Costa Rica.

@@ -1,1 +1,0 @@
-Artículo 12.—Toda factura que se presente para reintegro o liquidación debe presentar la firma de autorización correspondiente (visto bueno). El encargado de la CCHG reintegrará o entregará el dinero al funcionario cuando esté debida y previamente autorizado mediante el vale o la factura con la firma respectiva.

@@ -1,2 +1,0 @@
-Artículo 13.—El encargado de la CCHG y su superior inmediato deberán rendir garantía de póliza de fidelidad a favor de la Institución, por la suma de 200 mil colones, ajustable anualmente, según el índice de precios al consumidor para el año anterior que corresponda. La póliza cubre por el desempeño de sus funciones, de conformidad con el Artículo N° 13 de la Ley de Administración Financiera de la República y Presupuestos Públicos N° 8131.
-(Así reformado mediante sesión N° 281 de 11 de febrero del 2002)

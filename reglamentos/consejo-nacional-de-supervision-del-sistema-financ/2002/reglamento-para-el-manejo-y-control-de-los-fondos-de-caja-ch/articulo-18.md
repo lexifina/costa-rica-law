@@ -1,1 +1,0 @@
-Artículo 18.—Los anticipos o retiros de fondos con cargo a la caja chica deben liquidarse a más tardar dos días hábiles después. Mientras un funcionario tenga un vale pendiente de liquidación, no podrá tramitársele otro.

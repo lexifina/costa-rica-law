@@ -1,2 +1,0 @@
-Artículo 24.—De conformidad con lo establecido en el artículo 37 de la Ley de Contratación Administrativa Nº 7494, queda prohibido el fraccionamiento de la adquisición de bienes y servicios, con el propósito de variar el procedimiento de contratación.
-No se desembolsarán fondos cuando el encargado de la CCHG determine que existe fraccionamiento en las compras de bienes y servicios. Será responsabilidad de los funcionarios indicados en el artículo 6º de este Reglamento, evitar que se presente esta posibilidad.
