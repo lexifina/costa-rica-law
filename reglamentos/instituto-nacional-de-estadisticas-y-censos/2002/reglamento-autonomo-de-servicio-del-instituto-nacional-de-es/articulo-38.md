@@ -1,0 +1,20 @@
+CAPÍTULO XI
+De las licencias
+Artículo 38.—Los funcionarios podrán disfrutar de licencia ocasional, de conformidad con los requisitos y formalidades que establece el presente Reglamento, según los siguientes casos y condiciones:
+A. Licencias con goce de salario: Los Coordinadores podrán conceder una semana en casos de matrimonio de los funcionarios, el fallecimiento de alguno de sus padres, hijos, cónyuge, muerte de hermanos; tres meses calendario para la servidora que adopte un menor; en el caso de nacimiento o adopción de un menor, se concederán dos semanas al padre; y a tres días naturales en caso de traslado de domicilio de los funcionarios. A los efectos anteriores, los funcionarios deberán aportar copias de actas de matrimonio, certificaciones de defunción o de nacimiento, certificados de reconocimiento o de adopción, declaraciones juradas sobre patria potestad y certificaciones de la autoridad de policía sobre cambio de domicilio, respectivamente.
+B. Licencias sin goce de salario: El INEC podrá otorgar a los servidores licencia sin goce de salario, para atender asuntos personales, de la siguiente forma:
+1. Hasta una semana, otorgado por el Coordinador respectivo;
+2. Hasta un mes, autorizado por la Unidad de Recursos Humanos; y
+3. Por más de un mes, autorizado por el Gerente.
+En todos los casos, la autorización y comprobantes deberán ser remitidos a la Unidad de Recursos Humanos, para su valoración y control respectivo.
+C. Licencias para estudios. El INEC podrá otorgar licencias para estudios a sus servidores con o sin goce de salario para que asistan a cursos de estudio en las instituciones de enseñanza superior del país, cuando no se cause evidente perjuicio al servicio público y lo permitan las condiciones técnicas y administrativas, así como las exigencias del trabajo, en cada dependencia. A estos efectos, las licencias para estudio se regirán por las siguientes normas:
+1. Que los estudios capaciten al servidor para el mejor desempeño de su cargo o para optar por la carrera administrativa;
+2. Que el comportamiento y la conducta del servidor justifiquen y den motivo, para esperar de él un buen aprovechamiento del estudio; y
+3. Que el número de horas por semana que requiera la licencia, no sobrepase de ocho.
+Si la licencia para estudio se otorga con goce de salario, el servidor deberá suscribir un contrato con el INEC y quedará obligado a prestar sus servicios hasta por el término de tres años, en el ramo de su especialidad una vez completados sus estudios, en la proporción de un año por cada año lectivo, en que hubiere disfrutado de licencia de media jornada diaria con goce de sueldo. Si la licencia fuere por menos de media jornada diaria, el compromiso será proporcionalmente menor, sin que exceda al máximo señalado. A este efecto, el contrato que deberá suscribirse determinará la garantía que proceda.
+D. Licencias para capacitación: De acuerdo con lo que señala la Ley de Licencias para Adiestramiento de Servidores Públicos y su reglamento, el INEC está facultado para aprovechar las becas u otras facilidades que otorguen gobiernos, instituciones y organismos nacionales o extranjeros, para la capacitación de su personal.
+Si la licencia se concede con goce parcial o total de salario, el funcionario deberá suscribir un contrato con el INEC y sujetarse a las disposiciones, tanto de dicho contrato, como a las de la citada ley y su reglamento. Lo anterior no regirá cuando la licencia, para tales fines, sea sin goce de salario.
+E. Licencias para docencia: Será permitido que los funcionarios realicen labores docentes en instituciones de nivel superior, durante el horario del INEC, siempre y cuando no se sobrepase las seis horas semanales y bajo las siguientes condiciones:
+a. Que las labores del puesto puedan ser desempeñadas efectivamente a un lapso menor a la jornada ordinaria, diaria o semanal. A esos efectos deberá aportarse una solicitud avalada por el superior jerárquico.
+b. Que el contrato se extienda por escrito entre el INEC y el funcionario.
+c. Que el servidor devengue solo el sueldo proporcional correspondiente al tiempo efectivo de trabajo.

@@ -1,0 +1,1 @@
+Artículo 65.—El criterio que emita la Comisión de Relaciones Laborales se elevará a la Unidad de Recursos Humanos con carácter de recomendación, resguardando la imagen, confidencialidad y los principios que rigen la actividad administrativa y el debido proceso, en aras de hallar la mejor solución a los problemas que le compete resolver.

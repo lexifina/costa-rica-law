@@ -1,0 +1,2 @@
+Artículo 13.—Por regla general el período de prueba sólo se aplicará en los casos de iniciación de nombramiento, pero a juicio del Coordinador respectivo podrá exigirse en caso de ascenso o traslado, en que convenga para garantizar mejor el servicio público.
+El Coordinador podrá solicitar libremente el despido del funcionario durante el período de prueba, pero deberá informar a la Unidad de Recursos Humanos acerca de los motivos que tuvo para hacerlo.

@@ -1,0 +1,1 @@
+Artículo 22.—No se reconocerá el tiempo extraordinario laborado sin el visto bueno del Coordinador de Área o Unidad respectivo, y que además se cuente con la autorización de la Comisión de Horas Extras del INEC, en el entendido de que la jornada extraordinaria es de naturaleza excepcional, por lo que no se puede autorizar jornada extraordinaria permanente.

@@ -1,0 +1,1 @@
+Artículo 79.—La Unidad de Recursos Humanos será responsable directo, de implementar los rebajos de salario producto de las llegadas tardías, las ausencias, el abandono de trabajo, o las suspensiones de trabajo sin goce de salario de los servidores, de acuerdo con los reportes que de tales faltas, deban hacer los Coordinadores.

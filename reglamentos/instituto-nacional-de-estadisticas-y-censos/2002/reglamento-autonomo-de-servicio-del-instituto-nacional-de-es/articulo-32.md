@@ -1,0 +1,1 @@
+Artículo 32.—La llegada tardía que exceda de quince minutos, contados a partir de la hora de ingreso estipulada y que carezca de justificación, se tomará como ausencia de media jornada y por consiguiente, injustificada.

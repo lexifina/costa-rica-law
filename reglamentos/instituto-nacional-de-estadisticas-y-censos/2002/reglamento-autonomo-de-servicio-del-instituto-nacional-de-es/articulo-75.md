@@ -1,0 +1,1 @@
+Artículo 75.—Las medidas disciplinarias que se indican en el presente Capítulo, deberán imponerse dentro del mes siguiente, a aquel en que cometió la falta o que fue de conocimiento de la Unidad de Recursos Humanos.

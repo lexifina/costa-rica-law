@@ -1,0 +1,1 @@
+Artículo 11.—Al ocurrir una vacante o un permiso en una Área o Unidad, se podrá llevar a cabo el procedimiento de selección, salvo que el Gerente o el correspondiente Coordinador decidan no llenarla por considerarlo conveniente y compatible con el buen servicio público.

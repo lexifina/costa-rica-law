@@ -1,0 +1,3 @@
+Artículo 51.—El funcionario afectado por acoso u hostigamiento sexual podrá plantear la respectiva denuncia, sea en forma verbal o escrita, ante la Coordinación de la Unidad de Recursos Humanos.
+De lo manifestado, se levantará un acta mediante la cual dará inicio el procedimiento, que al menos contendrá: nombre del denunciante y sus calidades, nombre del funcionario denunciado, indicación de las manifestaciones de acoso sexual, firma del denunciante y de quien recibe la denuncia.
+Dicha denuncia será trasladada, en forma inmediata, a la Comisión de Relaciones Laborales, quien se encargará de realizar la investigación que el caso requiera.

@@ -1,0 +1,1 @@
+Artículo 41.—Las servidoras interinas, solo podrán acogerse al subsidio por maternidad, en los términos anteriormente indicados, cuando hubieren completado, no menos de seis meses de trabajo ininterrumpido inmediatos anteriores, al disfrute del subsidio.

@@ -1,0 +1,1 @@
+Artículo 43.—El servidor que permaneciere enfermo por un tiempo mayor de tres meses, y que hubiere disfrutado de la totalidad del subsidio a que tuviere derecho, conforme lo señalado en este Reglamento, podrá, a juicio del Gerente, ser separado de su puesto, mediante el pago del importe del preaviso y auxilio de cesantía correspondientes.

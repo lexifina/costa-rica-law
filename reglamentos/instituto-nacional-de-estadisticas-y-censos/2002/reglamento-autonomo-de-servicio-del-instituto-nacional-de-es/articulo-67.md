@@ -1,0 +1,1 @@
+Artículo 67.—En lo que respecta a la organización interna de la Comisión de Relaciones Laborales, se regirá por lo dispuesto en el Capítulo Tercero "De los Órganos Colegiados", del Título Segundo de la Ley General de la Administración Pública.

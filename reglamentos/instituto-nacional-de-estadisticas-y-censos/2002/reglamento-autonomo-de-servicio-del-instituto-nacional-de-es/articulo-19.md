@@ -1,0 +1,2 @@
+Artículo 19.—La jornada ordinaria de trabajo para los servidores, será acumulativa y continua, de lunes a viernes. Se inicia a las ocho horas y concluye a las dieciséis horas. Dentro de esta jornada, los servidores disfrutarán de cuarenta y cinco minutos para almorzar, y de quince minutos en la mañana y quince minutos en la tarde, para tomar un refrigerio.
+Los Coordinadores serán responsables directos de la forma en que el respectivo personal, haga uso de dichos descansos.

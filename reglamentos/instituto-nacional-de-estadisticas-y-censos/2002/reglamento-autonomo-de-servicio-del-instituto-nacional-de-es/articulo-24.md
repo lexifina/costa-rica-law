@@ -1,0 +1,5 @@
+CAPÍTULO IX
+Del Registro de Asistencia, Ausencias, Llegadas Tardías y Omisiones
+Artículo 24.—El registro de asistencia de los servidores se llevará mediante tarjeta individual donde exista reloj marcador, acta de registro donde no haya reloj marcador, o por la supervisión directa del Coordinador correspondiente, cuando el servidor se encuentre exonerado del registro de asistencia.
+A juicio del Gerente y de los Coordinadores, quedan excluidos de la obligación de registrar su asistencia, únicamente los servidores a quienes les corresponda habitualmente ejercer su trabajo fuera de la oficina, o cuando por la naturaleza de las funciones deba trasladarse constantemente a otras instituciones para el desarrollo efectivo de sus labores, y que así lo hubieran demostrado.
+A solicitud del Gerente o del respectivo Coordinador, o cuando ocurra algún cambio en las condiciones del trabajo, la Unidad de Recursos Humanos podrá revocar las autorizaciones concedidas, sin que por ello el servidor pueda alegar perjuicio alguno o incluso derecho adquirido.

@@ -1,0 +1,1 @@
+Artículo 73.—Se considerarán faltas de alguna gravedad la violación de las disposiciones de los artículos 15, literales d., e., f., g., h., i., j., k., l., y del 17, literales b., c., d., e., f., g., h., del presente Reglamento.

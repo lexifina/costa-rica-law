@@ -1,0 +1,1 @@
+Artículo 20.—El INEC podrá establecer horarios diferentes para servidores que realicen funciones en el campo, quedando bajo la responsabilidad del Coordinador respectivo, así como determinar el tiempo en que éstas deben realizarse, previo acuerdo con la Unidad de Recursos Humanos.

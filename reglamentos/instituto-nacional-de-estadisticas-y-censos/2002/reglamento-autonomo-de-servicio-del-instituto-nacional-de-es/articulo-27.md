@@ -1,0 +1,1 @@
+Artículo 27.—Es potestad de la Unidad de Recursos Humanos, previo estudio de la situación, determinar y efectuar el rebajo salarial para un servidor que presente ausencias, llegadas tardías u omisiones.

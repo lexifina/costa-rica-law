@@ -1,0 +1,1 @@
+Artículo 62.—Los servidores podrán realizar actividades de formación humanística, intelectual, estética, deportiva y recreativa, que les permita el desarrollo de sus aptitudes y la integración de grupos, para un saludable y adecuado estado físico y mental.
