@@ -1,0 +1,1 @@
+Articulo 3°-Para lograr la explotación citada, la Corporación de Abonos Orgánicos procederá a levantar pIanos y montar las fábricas de abonos orgánicos utilizando los desechos urbanos en las poblaciones que dispongan de materiales propios suficientes.
