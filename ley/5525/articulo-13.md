@@ -4,5 +4,5 @@ cargo las tareas de programación de actividades de sus respectivas
 instituciones, de acuerdo con lo estipulado en el artículo 2º de esta ley
 y según los reglamentos que al efecto emitan dichas instituciones con la
 aprobación, en lo que se refiere a unidad de organización y orientación
-del Sistema Nacional de Planificación, de la Oficina de Planificación
+del Sistema Nacional de Planificación, del Ministerio de Planificación
 Nacional y Política Económica.

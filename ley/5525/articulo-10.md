@@ -1,20 +1,5 @@
-Artículo 10.- Ningún ministerio u organismo autónomo o semiautónomo
-podrá iniciar trámites para obtener créditos en el exterior sin la previa
-aprobación de la Oficina de Planificación Nacional y Política Económica.
-La aprobación final de los proyectos de inversión de los organismos
-públicos, cuando estos proyectos incluyan total o parcialmente
-financiamiento externo o requieren aval del Estado para su financiación,
-será otorgada por la Oficina de Planificación Nacional y Política
-Económica, en cuanto a su prioridad dentro del Plan Nacional de Desarrollo.
-Este último trámite de aprobación conjunta se seguirá también en el caso de
-los proyectos de inversión del sector privado que necesiten el aval o
-garantía del Estado para su gestión financiera. La prioridad de cada
-proyecto se establecerá tomando en cuenta, entre otras cosas, los objetivos
-del Plan Nacional de Desarrollo, todo sin perjuicio de lo que establece el
-inciso 15 del artículo 121 de la constitución Política.
-Para asegurar el cumplimiento de la política general de financiamiento
-externo, de la Oficina de Planificación Nacional y Política Económica
-participará en las negociaciones de crédito para el señor público.
-En lo referente a los bancos del Sistema Bancario Nacional, se
-mantienen vigentes las normas establecidas en las leyes del Banco Central
-de Costa Rica y del Sistema Bancario Nacional.
+Artículo 10.- Ningún ministerio u organismo autónomo o semiautónomo podrá iniciar trámites para obtener créditos en el exterior sin la previa aprobación del Ministerio de Planificación Nacional y Política Económica.
+La aprobación final de los proyectos de inversión de los organismos públicos, cuando estos proyectos incluyan total o parcialmente financiamiento externo o requieren aval del Estado para su financiación, será otorgada por el Ministerio de Planificación Nacional y Política Económica, en cuanto a su prioridad dentro del Plan Nacional de Desarrollo. Este último trámite de aprobación conjunta se seguirá también en el caso de los proyectos de inversión del sector privado que necesiten el aval o garantía del Estado para su gestión financiera. Laprioridad de cada proyecto se establecerá tomando en cuenta, entre otras cosas, los objetivos del Plan Nacional de Desarrollo, todo sin perjuicio de lo que establece el inciso 15 del artículo 121 de la Constitución Política.
+Para asegurar el cumplimiento de la política general de financiamiento externo, el Ministerio de Planificación Nacional y Política Económica participará en las negociaciones de crédito para el sector público. En lo referente a los bancos del Sistema Bancario Nacional, se mantienen vigentes las normas establecidas en las leyes del Banco Central de Costa Rica y del Sistema Bancario Nacional.
+(Reformado en forma parcial, por Ley N° 7010 de 25 de octubre de 1985, artículo 7°).
+(Interpretado por Resolución de la Sala Constitucional No. 5445-99 de las 14:30 horas del 14 de julio de 1999, en el sentido de que es inconstitucional la aplicación de esta normas a las municipalidades, ya que estas no están sujetas al control político y económico del Poder Ejecutivo. Esta sentencia fue adicionada por las sentencias números 06218-99, de las 15:21 horas del 10/08/1999, 09811 de las 15: 21 horas 14/12/1999, 07728 de las 14: 45 horas del 30/08/2000 y 8861-00 de las 14:30 horas del 11/10/2000)
