@@ -1,0 +1,1 @@
+Artículo 39.- La representación legal de la Oficina la ejercerá el director ejecutivo, quien tendrá la representación judicial con las facultades que determine la Junta Directiva, de conformidad con las disposiciones del Código Civil.

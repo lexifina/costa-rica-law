@@ -1,0 +1,1 @@
+Artículo 23.- La Oficina, a fin de determinar la veracidad de las informaciones a que alude el artículo anterior, podrá realizar las investigaciones que estime pertinente. Para ello sus funcionarios tendrán acceso a la documentación de los beneficiadores.

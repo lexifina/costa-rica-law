@@ -1,0 +1,1 @@
+Artículo 40.- La Oficina deberá adoptar las disposiciones administrativas necesarias y reclutar al personal indispensable para el buen desarrollo de sus funciones, de conformidad con lo dispuesto por el transitorio I.

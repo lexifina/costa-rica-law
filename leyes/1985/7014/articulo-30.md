@@ -1,0 +1,1 @@
+Artículo 30.- Con la cantidad total del arroz beneficiado, el beneficiador estará obligado a cubrir las cuotas distributivas de la cosecha que para el caso determine la Oficina, con las diferentes calidades que se establezcan.

@@ -1,0 +1,1 @@
+Artículo 43.- Cuando el productor o el beneficiador cometiere cualquier falta relacionada con su actividad, la Junta Directiva estará facultada para excluirlo de sus registros, en forma temporal o total, sin perjuicio de la aplicación de las otras sanciones que le correspondan.

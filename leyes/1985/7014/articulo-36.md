@@ -1,0 +1,1 @@
+Artículo 36.- Los créditos que se otorguen para la financiación de cosechas de arroz, según el monto que la Oficina haya establecido en el registro de productores, deberán ser anotados en dicho registro, con el propósito de organizarlos y de darles respaldo.

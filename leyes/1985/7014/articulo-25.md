@@ -1,0 +1,1 @@
+Artículo 25.- Los beneficiadores estarán obligados a enviar copia de las facturas de ventas y de todos los demás comprobantes de la cosecha anual a la Oficina, de acuerdo con lo que disponga el reglamento respectivo. La Oficina determinará el año arrocero para las respectivas zonas productoras, de conformidad con criterios técnicos.

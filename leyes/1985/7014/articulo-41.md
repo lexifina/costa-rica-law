@@ -1,0 +1,1 @@
+Artículo 41.- Los miembros de la Junta Directiva de la Oficina serán, administrativa, civil y penalmente responsables por su gestión. Quedan exentos de estas responsabilidades únicamente quienes hubieren salvado su voto en el acta correspondiente.
