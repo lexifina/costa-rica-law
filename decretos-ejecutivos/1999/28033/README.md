@@ -14,3 +14,4 @@ Autoriza Aumento General de Salarios para los Servidores Públicos correspondien
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-30 | la propia norma |
+| 2 | 1999-08-12 | Decreto Ejecutivo 28066 (1999-08-12) |

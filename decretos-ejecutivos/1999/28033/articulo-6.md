@@ -1,1 +1,2 @@
-Artículo 6°—La Autoridad Presupuestaria, según su proceder administrativo y técnico, hará extensivas a las instituciones que corresponda, las resoluciones que respecto de las disposiciones del presente decreto, emita la Dirección General de Servicio Civil. Así mismo autorizara el aumento establecido en este Decreto, para las instituciones bajo su ámbito "no Homologadas".
+Artículo 6°—La Autoridad Presupuestaria autorizará el aumento establecido en este Decreto, para las instituciones bajo su ámbito.
+(Así reformado por el artículo 9 del Decreto Ejecutivo Nº 28066 del 12 de agosto de 1999)
