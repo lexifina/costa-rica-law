@@ -1,0 +1,1 @@
+Art 2°.- El que no tuviese bienes con que pagar la multa, sufrirá destierro doble, gratificándose con la mitad de aquella al denunciante si lo hubiese, cuyo nombre se reservará, y con el valor de la arma denunciada a costa del tesoro público cuando el tenedor de ella no pudiese pagar la multa dicha
