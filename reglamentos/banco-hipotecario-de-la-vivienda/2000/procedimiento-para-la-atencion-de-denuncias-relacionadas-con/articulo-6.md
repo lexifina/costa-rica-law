@@ -1,0 +1,1 @@
+6º—Las consultas sobre el no pago del respectivo bono de vivienda por parte de la Entidad Autorizada deben ser atendidas estrictamente por la misma entidad. Si la Entidad Autorizada no atiende a satisfacción del beneficiario, se debe seguir el procedimiento formal indicado en los incisos anteriores.

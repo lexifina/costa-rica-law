@@ -1,0 +1,1 @@
+3º—Si transcurrido ese plazo, la entidad autorizada no ha resuelto o bien el denunciante no ha quedado satisfecho con lo actuado por la entidad; éste podrá presentar la denuncia ante el BANHVI, aportando copia de las notas explicativas o de descargo emitidas por la entidad autorizada.

@@ -1,0 +1,1 @@
+4º—La denuncia ante el BANHVI deberá presentarse en original, firmada por la persona o personas denunciantes con sus respectivos números de identificación, dirección, teléfono y lugar para notificaciones.
