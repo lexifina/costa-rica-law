@@ -1,9 +1,5 @@
-ARTICULO 64.- El Poder Ejecutivo fijará el plazo durante el cual debe
-regir la convención, que no excederá de cinco años ni bajará de uno.
-Dicho plazo se prorrogará automáticamente, en cada ocasión, durante un
-período igual al fijado, si ninguna de las partes expresa en memorial
-dirigido al Ministerio de Trabajo y de Seguridad Social, con un mes de
-anticipación al respectivo vencimiento, su voluntad de dar por terminada la
-convención.
-( El nombre del Ministerio fue así reformado por la Ley No. 5089
-de 18 de octubre de 1972 )
+ARTICULO 64.-
+El Poder Ejecutivo fijará el plazo durante el cual debe regir la convención, que no excederá de cinco años ni bajará de uno.
+Dicho plazo se prorrogará automáticamente, en cada ocasión, durante un período igual al fijado, si ninguna de las partes expresa en memorial dirigido al Ministerio de Trabajo y de Seguridad Social, con un mes de anticipación al respectivo vencimiento, su voluntad de dar por terminada la convención.
+(El nombre del Ministerio fue así reformado por la Ley No. 5089 de 18 de octubre de 1972)
+(Interpretado por la Sala Constitucional en el sentido que: "a) son inconstitucionales las convenciones colectivas reguladas por los artículos 54 y siguientes del Código de Trabajo que se celebran en el sector público, cuando se trata de personal regido por la relación de empleo de naturaleza pública (relación estatutaria); b) no son inconstitucionales las convenciones colectivas que se celebran en el sector público, cuando las celebran obreros, trabajadores, funcionarios o empleados del sector público, cuyas relaciones laborales se regulan por el Derecho común; c) igualmente son compatibles con el Derecho de la Constitución, los instrumentos colectivos que se han negociado y se han venido prorrogando o modificando, en aplicación de la política general sobre convenciones colectivas en el Sector Público, salvo que se trate de negociaciones con personal en relación de empleo de naturaleza pública, en cuyo caso esos instrumentos resultan inconstitucionales; d) corresponde a la administración y a los jueces que conocen en los juicios laborales, en su caso, de la aplicación de las convenciones colectivas, determinar si los trabajadores involucrados, dada la naturaleza de las funciones que cumplen o cumplían, están regulados por el Derecho público o el común, a los efectos de definir si pueden o no ser sujetos activos en la aplicación de las convenciones colectivas". Resolución 4453-00 de las 14:56 horas del 24/05/2000, publicado en el Boletín Judicial N°124 del 28/06/2000.)

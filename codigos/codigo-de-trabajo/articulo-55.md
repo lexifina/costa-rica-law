@@ -1,14 +1,6 @@
-ARTICULO 55.- Las estipulaciones de la convención colectiva tienen fuerza
-de ley para:
-a) Las partes que la han suscrito, justificando su personería de
-acuerdo con lo dispuesto por el artículo 51;
-b) Todas las personas que en el momento de entrar en vigor trabajen
-en la empresa, empresas o centro de producción a que el pacto se
-refiera, en lo que aquéllas resulten favorecidas y aun cuando no
-sean miembros del sindicato o sindicatos de trabajadores que lo
-hubieren celebrado, y
-c) Los que concierten en lo futuro contratos individuales o colectivos
-dentro de la misma empresa, empresas o centro de producción
-afectados por el pacto, en el concepto de que dichos contratos no
-podrán celebrarse en condiciones menos favorables para los
-trabajadores que las contenidas en la convención colectiva.
+ARTICULO 55.-
+Las estipulaciones de la convención colectiva tienen fuerza de ley para:
+Las partes que la han suscrito, justificando su personería de acuerdo con lo dispuesto por el artículo 51;
+Todas las personas que en el momento de entrar en vigor trabajen en la empresa, empresas o centro de producción a que el pacto se refiera, en lo que aquéllas resulten favorecidas y aun cuando no sean miembros del sindicato o sindicatos de trabajadores que lo hubieren celebrado, y
+Los que concierten en lo futuro contratos individuales o colectivos dentro de la misma empresa, empresas o centro de producción afectados por el pacto, en el concepto de que dichos contratos no podrán celebrarse en condiciones menos favorables para los trabajadores que las contenidas en la convención colectiva.
+(Interpretado por la Sala Constitucional en el sentido que: "a) son inconstitucionales las convenciones colectivas reguladas por los artículos 54 y siguientes del Código de Trabajo que se celebran en el sector público, cuando se trata de personal regido por la relación de empleo de naturaleza pública (relación estatutaria); b) no son inconstitucionales las convenciones colectivas que se celebran en el sector público, cuando las celebran obreros, trabajadores, funcionarios o empleados del sector público, cuyas relaciones laborales se regulan por el Derecho común; c) igualmente son compatibles con el Derecho de la Constitución, los instrumentos colectivos que se han negociado y se han venido prorrogando o modificando, en aplicación de la política general sobre convenciones colectivas en el Sector Público, salvo que se trate de negociaciones con personal en relación de empleo de naturaleza pública, en cuyo caso esos instrumentos resultan inconstitucionales; d) corresponde a la administración y a los jueces que conocen en los juicios laborales, en su caso, de la aplicación de las convenciones colectivas, determinar si los trabajadores involucrados, dada la naturaleza de las funciones que cumplen o cumplían, están regulados por el Derecho público o el común, a los efectos de definir si pueden o no ser sujetos activos en la aplicación de las convenciones colectivas". Resolución 4453-00 de las 14:56 horas del 24/05/2000, publicado en el Boletín Judicial N°124 del 28/06/2000.)

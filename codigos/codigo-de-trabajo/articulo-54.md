@@ -1,19 +1,11 @@
 CAPITULO TERCERO
 De las convenciones colectivas de trabajo
 SECCION I
-Disposiciones generales y de las convenciones
-colectivas enempresa o en centro
-de producción determinado:
-ARTICULO 54.- Convención colectiva es la que se celebra entre uno o varios
-sindicatos de trabajadores y uno o varios patronos, o uno o varios
-sindicatos de patronos, con el objeto de reglamentar las condiciones en que
-el trabajo deba prestarse y las demás materias relativas a éste.
-La convención colectiva tiene carácter de ley profesional y a sus
-normas deben adaptarse todos los contratos individuales o colectivos
-existentes o que luego se realicen en las empresas, industrias o regiones
-que afecte.
-En toda convención colectiva deben entenderse incluidas, por lo menos,
-todas las normas relativas a las garantías sindicales establecidas en los
-convenios de la Organización Internacional del Trabajo (OIT), ratificados
-por nuestro país.
-( Así reformado por Ley Nº 6771 de 5 de julio de 1982, art.1º ).
+Disposiciones generales y de las convenciones colectivas en empresa o en centro
+de producción determinado
+ARTICULO 54.-
+Convención colectiva es la que se celebra entre uno o varios sindicatos de trabajadores y uno o varios patronos, o uno o varios sindicatos de patronos, con el objeto de reglamentar las condiciones en que el trabajo deba prestarse y las demás materias relativas a éste.
+La convención colectiva tiene carácter de ley profesional y a sus normas deben adaptarse todos los contratos individuales o colectivos existentes o que luego se realicen en las empresas, industrias o regiones que afecte.
+En toda convención colectiva deben entenderse incluidas, por lo menos, todas las normas relativas a las garantías sindicales establecidas en los convenios de la Organización Internacional del Trabajo (OIT), ratificados por nuestro país.
+(Así reformado por el artículo 1° de la ley Nº 6771 de 5 de julio de 1982)
+(Interpretado por la Sala Constitucional en el sentido que: "a) son inconstitucionales las convenciones colectivas reguladas por los artículos 54 y siguientes del Código de Trabajo que se celebran en el sector público, cuando se trata de personal regido por la relación de empleo de naturaleza pública (relación estatutaria); b) no son inconstitucionales las convenciones colectivas que se celebran en el sector público, cuando las celebran obreros, trabajadores, funcionarios o empleados del sector público, cuyas relaciones laborales se regulan por el Derecho común; c) igualmente son compatibles con el Derecho de la Constitución, los instrumentos colectivos que se han negociado y se han venido prorrogando o modificando, en aplicación de la política general sobre convenciones colectivas en el Sector Público, salvo que se trate de negociaciones con personal en relación de empleo de naturaleza pública, en cuyo caso esos instrumentos resultan inconstitucionales; d) corresponde a la administración y a los jueces que conocen en los juicios laborales, en su caso, de la aplicación de las convenciones colectivas, determinar si los trabajadores involucrados, dada la naturaleza de las funciones que cumplen o cumplían, están regulados por el Derecho público o el común, a los efectos de definir si pueden o no ser sujetos activos en la aplicación de las convenciones colectivas". Resolución 4453-00 de las 14:56 horas del 24/05/2000, publicado en el Boletín Judicial N°124 del 28/06/2000.)
