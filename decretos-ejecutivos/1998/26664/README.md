@@ -14,3 +14,4 @@ Reglamento del Sistema Nacional para la Atención y Prevención de la Violencia 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-19 | la propia norma |
+| 2 | 1999-03-06 | Decreto Ejecutivo 27706 (1999-03-06) |
