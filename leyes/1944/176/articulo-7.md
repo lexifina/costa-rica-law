@@ -1,6 +1,6 @@
-Artículo 7º.- Tratándose de certificaciones que no sean de
-escrituras públicas, que expida el Archivo Judicial por orden de los
-Tribunales Civiles, o a solicitud de particulares, se pagará Timbre
-Forense de un colón por su primera plana o fracción y de cincuenta
-céntimos por cada una o fracción de las restantes. Los Timbres serán
-cancelados con el sello de esa oficina.
+Artículo 7º.- Toda certificación expedida por las dependencias de
+los Poderes Ejecutivo y Judicial, Tribunal Supremo de Elecciones,
+instituciones autónomas y los notarios, pagarán Timbre Forense por valor
+de un colón, salvo los casos contemplados en leyes especiales.
+(Así reformado por el artículo 10 de la Ley Nº 3245 de 3 de diciembre de
+1963).
