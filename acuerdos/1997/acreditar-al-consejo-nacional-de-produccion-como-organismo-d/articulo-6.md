@@ -1,0 +1,1 @@
+Artículo 6°—El Organismo aceptará las gestiones que el E.NA lleve a cabo para verificar el cumplimiento de las eventuales desviaciones observadas y comunicadas formalmente durante el proceso de acreditación en los plazos establecidos.

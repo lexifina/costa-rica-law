@@ -1,0 +1,1 @@
+Artículo 11.—La vigencia del presente acuerdo será de dieciocho meses a partir de su publicación y podrá ser prorrogable, la cual estará sometida a evaluaciones de seguimiento para su debido cumplimiento.

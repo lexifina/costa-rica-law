@@ -1,0 +1,1 @@
+Artículo 4°—El Organismo Certificador operará de acuerdo con los procedimientos sometidos a la evaluación durante el proceso de acreditación, informando al ENA, de los cambios que se introduzcan en ellos respecto a los primeros.

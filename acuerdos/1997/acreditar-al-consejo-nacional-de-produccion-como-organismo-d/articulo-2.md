@@ -1,0 +1,1 @@
+Artículo 2°—Autorizar a Germán Hernández Córdoba, con cédula de identidad número 1-448-702, Ingeniero Agrónomo, Director de la Dirección General de Calidad Agrícola, como responsable de la certificación del Consejo Nacional de Producción para los productos frescos indicados en el artículo anterior.
