@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE MORAVIA
+El Concejo Municipal de Moravia en sesión ordinaria setenta y nueve del seis de setiembre de 1999, acuerda aprobar el Reglamento de la Dedicación Exclusiva para la Municipalidad de Moravia, que regirá a partir del 10 de enero del año 2000, se aprobó el siguiente reglamento:
+REGLAMENTO DE DEDICACION EXCLUSIVA
+Introducción: El presente reglamento de Dedicación Exclusiva tiene como fin de dotar a la Municipalidad de Moravia de una normativa actual y conveniente para regular el incentivo conocido como régimen de dedicación exclusiva que se reconoce en otras Instituciones Públicas.
+Este reglamento recoge las principales normas que se están aplicando actualmente tanto en el Régimen del Servicio Civil como en la Secretaria Técnica de la Autoridad Presupuestaria, la Contraloría General de la República y los criterios que al respecto ha emitido la Procuraduría General de la República. Adicionalmente contiene otras disposiciones compatibles con el Régimen que esperamos lo hagan más ágil y ajustable a las necesidades municipales actuales.
+CAPITULO I
+De las definiciones
+Artículo 1°-Se entenderá por dedicación exclusiva para efectos del presente reglamento, aqueIla obligación que adquiere el profesional en forma voluntaria y por vía contractual, permanente o durante el periodo que se contrate con la Municipalidad de Moravia de no ejercer en forma particular la profesión por la cual esta contratado, con las excepciones que enseguida se dirán.
+Este régimen incluye la dedicación del profesional a su trabajo con la Municipalidad de Moravia, en razón de tal Régimen la Municipalidad se compromete a retribuir al profesional que se acoja a este, el porcentaje adicional sobre el salario !'ase contemplado en los artículos siguientes:
+a) El ejercicio de la docencia en establecimientos de enseñanza oficiales y privados.
+b) El ejercicio profesional, siempre y cuando se trate de sus intereses económicos por medio, cuando se trate de sus intereses personales, de los cónyuges, ascendientes, descendientes hasta tercer grado de consanguinidad, suegros y cuñados, en cuyo caso deberá comunicarlo por escrito al jefe de la Dependencia y al Alcalde Municipal, la intención para acogerse a esta excepción.

@@ -1,0 +1,2 @@
+Artículo 5°-corresponde al Alcalde Municipal como máximo Jerarca de la Institución determinar la clase de puestos desempeñados por profesionales que reúnan los requisitos contenidos en este Reglamento que pueden acogerse en forma voluntaria al régimen de Dedicación Exclusiva caso ante el cual conocerá las solicitudes que le planteen los profesionales de la Municipalidad de Moravia y se procederá a la firma del respectivo contrato.
+Para tales efectos el Alcalde Municipal podía solicitar los servicios de la Dirección de Recursos Humanos.

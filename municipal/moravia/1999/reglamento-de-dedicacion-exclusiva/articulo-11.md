@@ -1,0 +1,1 @@
+Artículo 11.-La Municipalidad de Moravia a través de la Auditoria Interna verificará cuando lo considere necesario y conveniente y de conformidad con los procedimientos que al respecto establece el fiel cumplimiento de todas las disposiciones de este reglamento.
