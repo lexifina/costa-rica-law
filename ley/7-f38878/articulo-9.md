@@ -1,0 +1,1 @@
+ARTÍCULO 9°. -Esta oficina se compondrá de un Contador Jefe de la misma y de un Contador escribiente: ambos serán nombrados por el Poder Ejecutivo, gozar n del sueldo que este tenga bien asignarles, y afianzarán su responsabilidad conforme a la ley.

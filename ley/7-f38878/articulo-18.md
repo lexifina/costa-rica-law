@@ -1,0 +1,1 @@
+ARTÍCULO 18.-Cuando, verificado el pago de dichos intereses, quede algún sobrante en los fondos que administra la Contaduría del Crédito Público, se destinar este la amortización de los principales que forman dicha deuda, debiendo dar la preferencia aquellos que devengan mayor interés.
