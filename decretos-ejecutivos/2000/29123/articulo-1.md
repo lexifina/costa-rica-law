@@ -7,3 +7,5 @@ Considerando:
 4-Que a los efectos de cumplir con las metas propuestas, es necesario ampliarle a JAPDEVA los l¡mites de gasto presupuestario y efectivo para el año 2001.
 Por tanto, Decretan:
 Articulo 1-Modificanse para la Junta de Administracion Portuaria y de Desarrollo Econ¢mico de la Vertiente Atl ntica, los limites de gasto presupuestario y efectivo del 2001, establecidos en el Decreto Ejecutivo N° 28639-H, de manera que el gasto presupuestario y el gasto efectivo total de la Junta no podr n exceder la suma de ½13,236.3 millones, en ese periodo.
+(Modificado el límite de gasto presupuestario efectivo de JAPDEVA, por el artículo 1 del
+Decreto Ejecutivo N° 29370 de 26 de febrero del 2001)

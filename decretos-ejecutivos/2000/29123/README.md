@@ -14,3 +14,4 @@ Modifica límite de Gasto Presupuestario y efectivo del 2001, para Junta Adminis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-12-08 | la propia norma |
+| 2 | 2001-02-26 | Decreto Ejecutivo 29370 (2001-02-26) |
