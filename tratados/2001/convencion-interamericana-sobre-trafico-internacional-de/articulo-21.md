@@ -1,0 +1,4 @@
+Artículo 21
+En los procedimientos previstos en el presente capítulo, la autoridad competente podrá ordenar que el particular o la organización responsable del tráfico internacional de menores pague los gastos y las costas de la localización y restitución, en tanto dicho particular u organización haya sido parte de ese procedimiento.
+Los titulares de la acción o, en su caso, la autoridad competente podrán entablar acción civil para obtener el resarcimiento de las costas, incluidos los honorarios profesionales y los gastos de localización y restitución del menor, a menos que estos hubiesen sido fijados en un procedimiento penal o un procedimiento de restitución conforme a lo previsto en esta Convención.
+La autoridad competente o cualquier persona lesionada podrá entablar acción civil por daños y perjuicios contra los particulares o las organizaciones responsables del tráfico internacional del menor.

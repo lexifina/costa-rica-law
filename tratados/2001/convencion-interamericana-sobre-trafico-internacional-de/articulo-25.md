@@ -1,0 +1,3 @@
+Artículo 25
+Los Estados que tengan dos o más unidades territoriales en las que se apliquen sistemas jurídicos diferentes en cuestiones tratadas en la presente Convención podrán declarar, en el momento de la firma, ratificación o adhesión, que la Convención se aplicará a todas sus unidades territoriales o solamente a una o más de ellas.
+Tales declaraciones podrán ser modificadas mediante declaraciones ulteriores, que especificarán expresamente la o las unidades territoriales a las que se aplicará la presente Convención. Dichas declaraciones ulteriores se transmitirán a la Secretaría General de la Organización de los Estados Americanos y surtirán efecto noventa días después de recibidas.

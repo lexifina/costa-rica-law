@@ -1,0 +1,3 @@
+Artículo 16
+Las autoridades competentes de un Estado Parte que constaten en el territorio sometido a su jurisdicción la presencia de una víctima de tráfico internacional de menores deberán adoptar las medidas inmediatas que sean necesarias para su protección, incluso aquellas de carácter preventivo que impidan el traslado indebido del menor a otro Estado.
+Estas medidas serán comunicadas por medio de las Autoridades Centrales a las autoridades competentes del Estado de la anterior residencia habitual del menor. Las autoridades intervinientes adoptarán cuantas medidas sean necesarias para que los titulares de la acción de localización y restitución del menor estén informados de las medidas adoptadas.

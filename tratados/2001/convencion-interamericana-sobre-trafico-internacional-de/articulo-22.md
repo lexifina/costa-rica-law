@@ -1,0 +1,2 @@
+Artículo 22
+Los Estados Parte adoptarán las medidas que sean necesarias para lograr la gratuidad de los procedimientos de restitución del menor conforme a su derecho interno e informarán a las personas legítimamente interesadas en la restitución del menor de las defensorías de oficio, beneficios de pobreza e instancias de asistencia jurídica gratuita a que pudieran tener derecho, conforme a las leyes y los reglamentos de los Estados Parte respectivos.

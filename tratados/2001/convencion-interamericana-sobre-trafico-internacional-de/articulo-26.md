@@ -1,0 +1,2 @@
+Artículo 26
+Los Estados Parte podrán declarar, al momento de la firma, ratificación o adhesión a la presente Convención o con posterioridad, que no se podrá oponer en juicio civil en ese Estado Parte excepción o defensa alguna que tienda a demostrar la inexistencia del delito o irresponsabilidad de una persona, cuando exista sentencia condenatoria ejecutoriada por este delito, pronunciada en otro Estado Parte.
