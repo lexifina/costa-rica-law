@@ -1,4 +1,6 @@
+(Derogado)
 N° 21826
+(Este decreto ejecutivo fue derogado por el artículo 14 del Reglamento Zonaje para Funcionarios Ministerio de Ambiente y Energía, aprobado mediante decreto ejecutivo N° 26032 del 3 de marzo de 1997)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE RECURSOS NATURALES, ENERGÍA Y MINAS
 En uso de las facultades conferidas en los inciso 18) del artículo 50 de la Constitución Política y el artículo 82 de la Ley General de la Administración Pública,
