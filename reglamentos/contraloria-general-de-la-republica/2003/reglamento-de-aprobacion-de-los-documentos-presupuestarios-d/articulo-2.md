@@ -1,0 +1,1 @@
+Artículo 2º—Cumplimiento de los requisitos legales y técnicos. Todos los presupuestos de los órganos, unidades ejecutoras, fondos, programas y cuentas deberán cumplir con los requisitos legales y técnicos establecidos al efecto por la Contraloría General de la República.

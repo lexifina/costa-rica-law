@@ -1,0 +1,5 @@
+Artículo 6º—Responsabilidad del superior jerarca y de los titulares subordinados.
+1. El superior jerarca y los titulares subordinados de los órganos, unidades ejecutoras, fondos, programas y cuentas-descritos en el artículo 3.4 anterior, deberán cumplir con lo señalado en este Reglamento, con las disposiciones de las "Guías para la revisión de los documentos presupuestarios" y cualquier otra norma técnica emitida por la Contraloría General de la República en materia presupuestaria.
+2. De no ajustarse los presupuestos a dichas normas jurídicas y técnicas, no podrán ser aprobados por la instancia correspondiente conforme a la normativa de cada órgano, unidad ejecutora, fondo, programa o cuenta.
+3. En caso de que el superior jerarca impruebe el presupuesto se deberá aplicar lo dispuesto en el párrafo segundo del artículo 18 de la Ley Orgánica de la Contraloría General de la República.
+4. Si los jerarcas o titulares subordinados no atendieran lo señalado en este artículo, incurrirán en responsabilidad personal.

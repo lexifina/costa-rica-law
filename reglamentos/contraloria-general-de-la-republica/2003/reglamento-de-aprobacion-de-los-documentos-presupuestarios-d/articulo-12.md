@@ -1,0 +1,1 @@
+Artículo 12.—Régimen sancionatorio. Los funcionarios que incumplan con las normas descritas en el artículo 6 de este Reglamento, estarán sujetos al régimen de responsabilidad de la Ley de Administración Financiera de la República y Presupuestos Públicos, según el inciso o) de su artículo 110, sin perjuicio de la aplicación de otras normas.

@@ -1,0 +1,1 @@
+Artículo 9º—Órganos, unidades ejecutoras, fondos, programas y cuentas que nunca han remitido el plan-presupuesto para aprobación. Los órganos, unidades ejecutoras, fondos, programas y cuentas que se creen luego de publicado este Reglamento deberán ajustarse a sus disposiciones con el objetivo de determinar el trámite de aprobación presupuestaria a seguir.
