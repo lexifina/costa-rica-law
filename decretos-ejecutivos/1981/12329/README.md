@@ -13,3 +13,4 @@ Reglamento Investigaciones Servicio Parques Nacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-03-06 | la propia norma |
+| 2 | 1981-03-06 | SINALEVI (sin norma nombrada) |
