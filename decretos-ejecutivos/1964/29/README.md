@@ -15,3 +15,4 @@ Reglamento General del Instituto Nacional de Seguros.
 | --- | --- | --- |
 | 1 | 1964-07-03 | la propia norma |
 | 2 | 1965-10-30 | Decreto Ejecutivo 81 (1965-10-30) |
+| 3 | 1965-11-17 | Decreto Ejecutivo 86 (1965-11-17) |
