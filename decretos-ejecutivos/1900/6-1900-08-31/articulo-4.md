@@ -1,0 +1,1 @@
+Articulo 4° Mientras se completa el personal de empleados en la Casa de Moneda las pastas de oro que se rescaten una vez fundidas y con anotación de sus respectivos ensayos y de su peso, se podrán a la orden de la Secretaría de Hacienda ara su debida exportación por cuenta del Fisco.

@@ -1,0 +1,1 @@
+Artículo 5° El Director de la Casa de Moneda, al propio tiempo que expida el giro a favor del interesado en pago de las pastas de oro presentadas al rescate, comunicará por nota a la Secretaría de Hacienda el resultado de la operación, especificando el peso y fineza del metal, el nombre del interesado y la fecha, valor número del giro expedido en pago.
