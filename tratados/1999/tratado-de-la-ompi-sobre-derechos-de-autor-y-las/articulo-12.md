@@ -1,0 +1,34 @@
+ARTÍCULO 12
+Obligaciones relativas a la información
+sobre la gestión de derechos
+1.- Las Partes Contratantes proporcionarán recursos jurídicos
+efectivos contra cualquier persona que, con conocimiento de causa, realice
+cualquiera de los siguientes actos sabiendo o, con respecto a recursos
+civiles, teniendo motivos razonables para saber que induce, permite,
+facilita u oculta una infracción de cualquiera de los derechos previstos
+en el presente Tratado o en el Convenio de Berna:
+i) suprima o altere sin autorización cualquier información
+electrónica sobre la gestión de derechos;
+ii) distribuya, importe para su distribución, emita, o comunique al
+público, sin autorización, ejemplares de obras sabiendo que la información
+electrónica sobre la gestión de derechos ha sido suprimida o alterada sin
+autorización.
+2.- A los fines del presente Artículo, se entenderá por "información
+sobre la gestión de derechos" la información que identifica a la obra, al
+autor de la obra, al titular de cualquier derecho sobre la obra, o
+información sobre los términos y condiciones de utilización de las obras,
+y todo número o código que represente tal información, cuando cualquiera
+de estos elementos de información estén adjuntos a un ejemplar de una obra
+o figuren en relación con la comunicación al público de una obra. (10)
+(10) (Declaración concertada respecto del Artículo 12:
+Queda entendido que la referencia a "una infracción de
+cualquiera de los derechos previstos en el presente Tratado o en
+el Convenio de Berna" incluye tanto los derechos exclusivos como
+los derechos de remuneración. Igualmente queda entendido que
+las Partes Contratantes no se basarán en el presente Artículo
+para establecer o aplicar sistemas de gestión de derechos que
+tuvieran el efecto de imponer formalidades que no estuvieran
+permitidas en virtud del Convenio de Berna o del presente
+Tratado, y que prohíban el libre movimiento de mercancías o
+impidan el ejercicio de derechos en virtud del presente
+Tratado.)
