@@ -1,1 +1,2 @@
-Artículo 60.- Cuando hubiere necesidad de intérpretes, se consignará en la escritura quién de los interesados no comprende el idioma español, cuál es el idioma que habla, si el Notario comprende este idioma, y el nombre, apellido y generales de los intérpretes.
+Artículo 60.- En los casos del artículo anterior, se consignará en la escritura quién de los interesados no comprende el español, cuál es el idioma que habla, si el Notario comprende ese idioma, en qué idioma o idiomas fue leída la escritura por el intérprete, o por el Notario en su caso, y el nombre, apellidos y generales del intérprete cuando interviniere.
+(Así reformado por el artículo 1° de la ley N° 1513 del 21 de octubre de 1952)
