@@ -1,2 +1,1 @@
-Artículo 267.—De conformidad con lo estipulado en el artículo 31 e) de la Ley, el adjudicatario deberá rendir garantía de cumplimiento a efecto de asegurar la correcta ejecución del contrato y la protección del ambiente y de los recursos naturales.
-El porcentaje del monto de la garantía de cumplimiento que corresponde a la protección del ambiente y los recursos naturales, será recomendado por la CONEIA en acuerdo con la DGH y será definido en el cartel de licitación.
+Artículo 267.—(Derogado por el artículo 7 del Reglamento para la realización de Estudios de Impacto Ambiental para los Contratos de Exploración y Explotación de Hidrocarburos, aprobado mediante decreto ejecutivo N° 26750 del 27 de febrero de 1998)

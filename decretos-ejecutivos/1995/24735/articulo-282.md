@@ -1,6 +1,1 @@
-Artículo 282.— Se considerará como casos de accidentes ambientales, los siguientes:
-a) Fugas de aceites, disposición impropia de desechos.
-b) Incumplimiento de las normas o procedimientos ambientales previamente aprobados.
-c) Cortes o remociones no autorizadas de vegetación.
-d) Pérdida de Biota.
-e) Contaminación o deterioro de los recursos naturales.
+Artículo 282.— (Derogado por el artículo 7 del Reglamento para la realización de Estudios de Impacto Ambiental para los Contratos de Exploración y Explotación de Hidrocarburos, aprobado mediante decreto ejecutivo N° 26750 del 27 de febrero de 1998)

@@ -1,1 +1,1 @@
-Artículo 283.—Se deberá definir un procedimiento adecuado, en el campo, que facilite la aplicación a tiempo de las medidas correctivas.
+Artículo 283.—(Derogado por el artículo 7 del Reglamento para la realización de Estudios de Impacto Ambiental para los Contratos de Exploración y Explotación de Hidrocarburos, aprobado mediante decreto ejecutivo N° 26750 del 27 de febrero de 1998)

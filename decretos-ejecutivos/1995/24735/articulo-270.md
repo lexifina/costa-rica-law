@@ -1,1 +1,1 @@
-Artículo 270.—Para las áreas contratadas mixtas con bloques tanto marinos como terrestres, el contratista deberá presentar 2 informes de EIA, uno para los bloques terrestres y otro para los bloques marinos, por separado.
+Artículo 270.—(Derogado por el artículo 7 del Reglamento para la realización de Estudios de Impacto Ambiental para los Contratos de Exploración y Explotación de Hidrocarburos, aprobado mediante decreto ejecutivo N° 26750 del 27 de febrero de 1998)

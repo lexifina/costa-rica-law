@@ -14,3 +14,4 @@ Reglamento a la Ley de Hidrocarburos.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-12-04 | la propia norma |
+| 2 | 1998-02-27 | Decreto Ejecutivo 26750 (1998-02-27) |

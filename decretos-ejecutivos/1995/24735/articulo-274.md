@@ -1,2 +1,1 @@
-De los lugares arqueológicos y edificios
-Artículo 274.—En la operación sísmica se deberá evitar los lugares arqueológicos para prevenir el impacto negativo.
+Artículo 274.— (Derogado por el artículo 7 del Reglamento para la realización de Estudios de Impacto Ambiental para los Contratos de Exploración y Explotación de Hidrocarburos, aprobado mediante decreto ejecutivo N° 26750 del 27 de febrero de 1998)

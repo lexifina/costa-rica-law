@@ -1,1 +1,1 @@
-Artículo 276.—Todo hallazgo arqueológico, deberá ser reportarlo inmediatamente al MIRENEM y no se esperará a efectuar ninguna actividad, hasta tanto no se reciban instrucciones de este Ministerio.
+Artículo 276.—(Derogado por el artículo 7 del Reglamento para la realización de Estudios de Impacto Ambiental para los Contratos de Exploración y Explotación de Hidrocarburos, aprobado mediante decreto ejecutivo N° 26750 del 27 de febrero de 1998)

@@ -1,1 +1,1 @@
-Artículo 279.—Todos los hidrocarburos que no puedan ser rehusados deberán ser quemados en una fosa de quema recubierta adecuadamente (si es necesario, se mezclarán con basura doméstica para asegurarse que ocurra una combustión completa).
+Artículo 279.—(Derogado por el artículo 7 del Reglamento para la realización de Estudios de Impacto Ambiental para los Contratos de Exploración y Explotación de Hidrocarburos, aprobado mediante decreto ejecutivo N° 26750 del 27 de febrero de 1998)

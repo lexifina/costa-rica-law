@@ -1,1 +1,1 @@
-Artículo 275.—El personal será informado antes de iniciar la operación, sobre el significado de la región, lo que constituye un sitio arqueológico, cómo reconocer uno y el procedimiento adecuado para reportar un posible sitio arqueológico.
+Artículo 275.—(Derogado por el artículo 7 del Reglamento para la realización de Estudios de Impacto Ambiental para los Contratos de Exploración y Explotación de Hidrocarburos, aprobado mediante decreto ejecutivo N° 26750 del 27 de febrero de 1998)

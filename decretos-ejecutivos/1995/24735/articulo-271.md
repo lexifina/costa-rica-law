@@ -1,1 +1,1 @@
-Artículo 271.—El contratista tiene la obligación de presentar a la DGH, el plan de contingencia anual para derrames de petróleo y emergencias.
+Artículo 271.—(Derogado por el artículo 7 del Reglamento para la realización de Estudios de Impacto Ambiental para los Contratos de Exploración y Explotación de Hidrocarburos, aprobado mediante decreto ejecutivo N° 26750 del 27 de febrero de 1998)

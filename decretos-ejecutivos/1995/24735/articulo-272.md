@@ -1,3 +1,1 @@
-Del monitoreo del impacto ambiental
-Artículo 272.—El contratista efectuará verificaciones regulares para la prevención del impacto y tomará medidas de control de acuerdo con lo estipulado por el EIA y aprobado por la CONEIA.
-Cuando sea necesario, se iniciarán medidas adicionales o alternativas para reducir impactos no previstos.
+Artículo 272.—(Derogado por el artículo 7 del Reglamento para la realización de Estudios de Impacto Ambiental para los Contratos de Exploración y Explotación de Hidrocarburos, aprobado mediante decreto ejecutivo N° 26750 del 27 de febrero de 1998)
