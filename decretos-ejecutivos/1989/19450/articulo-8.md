@@ -1,0 +1,1 @@
+Artículo 8°—Los permisos autorizados pare la comercialización de peces ornamentales podrán ser cancelados administrativamente, cuando se mantengan inactivos en la actividad sin justificación válida, a criterio, del Centro Regional de Pesca correspondiente.

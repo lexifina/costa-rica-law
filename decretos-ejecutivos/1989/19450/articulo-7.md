@@ -1,0 +1,1 @@
+Artículo 7°—Se autoriza únicamente la captura y comercialización de invertebrados cuando a criterio de la Dirección General de Recursos Pesqueros y Acuacultura no constituyan peligro desde el punto de vista técnico para las poblaciones de la zona.
