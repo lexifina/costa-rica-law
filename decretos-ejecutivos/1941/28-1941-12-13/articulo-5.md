@@ -1,1 +1,0 @@
-Artículo 5° — Los miembros de la Junta durarán tres años en el ejercicio de sus funciones, salvo el caso contemplado en el artículo 6° de este Reglamento. Una vez terminado su período pueden ser reelectos si así lo consintieren y hubieren dado prueba de cumplimiento en el desempeño de su cargo.

@@ -1,1 +1,0 @@
-Artículo 3° — El cargo de miembro de la Junta es honorífico, e incompatible con el de Profesor de la Escuela Normal o de cualquier otro Colegio Oficial. Quien lo desempeñe, estará exento servicio militar y de policía mientras dure en sus funciones, salvo el caso de guerra exterior.
