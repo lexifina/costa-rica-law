@@ -1,0 +1,4 @@
+Artículo 2°─ Para los efectos del presente decreto son obligaciones de los servidores del Poder Ejecutivo:
+a) Llenar cuidadosamente los cuestionarios que recibirán para los fines de la expresada encuesta, firmarlos y devolverlos a sus jefes inmediatos, con toda la información requerida, dentro de los seis días hábiles siguientes a su recibo;
+b) Los funcionarios encargados al efecto deberán recibir los mencionados cuestionarios, revisar que la información suministrada se ajuste a las indicaciones correspondientes, y velar porque lleguen en forma segura y rápida al Oficial Mayor del respectivo Ministerio; y
+c) Los Oficiales Mayores de los Ministerios actuarán como funcionarios de enlace entre éstos y la Dirección General de Servicio Civil y cuidarán de la aplicación del presente decreto en cuanto a los servidores de sus respectivos Ministerios se refiere.
