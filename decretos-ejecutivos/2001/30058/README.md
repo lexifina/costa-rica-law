@@ -14,3 +14,4 @@ Reglamento de la Ley de Administración Financiera de la República y Presupuest
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-09 | la propia norma |
+| 2 | 2002-07-01 | Decreto Ejecutivo 30662 (2002-07-01) |
