@@ -1,0 +1,1 @@
+Artículo 40.-Los nichos sobre la superficie del suelo cuya construcción fue anterior a la fecha en que entró en vigencia la Ley sobre Protección de la Salud Pública (12 de marzo de 1925), pueden continuar siendo ocupados para inhumaciones mientras se conserven en buen estado y no muestren exteriormente exudaciones de los productos acuosos de la descomposición cadavérica.

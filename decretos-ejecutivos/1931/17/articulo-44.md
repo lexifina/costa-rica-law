@@ -1,0 +1,1 @@
+Artículo 44-Cuando una sepultura de familia amenace ruina por negligencia o por muerte de los que a ella tengan derecho, la Junta Administrativa puede ordenar la demolición de los monumentos ruinosos. Los materiales provenientes de la demolición serán de propiedad de la Junta, la que los empleará en trabajos del mismo cementerio.

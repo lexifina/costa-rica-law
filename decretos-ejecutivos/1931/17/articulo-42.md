@@ -1,0 +1,1 @@
+Artículo 42.-No se permitirá hacer ampliaciones ni reparaciones sustanciales en los nichos a que se refiere el artículo anterior. Las reformas tendientes a disminuir el número de nichos pueden ser permitidas, o no, a juicio de la Junta Administrativa.

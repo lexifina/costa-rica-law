@@ -1,0 +1,1 @@
+Artículo 14.-La sala de autopsias debe llenar todos los requisitos que se piden en el artículo anterior para la cámara mortuoria y, además, debe estar provista de abundante servicio de agua. En el lugar mejor iluminado de la sala habrá una mesa cubierta con una plancha de mármol, vidrio o metal, en la cual se harán las autopsias.
