@@ -13,3 +13,4 @@ BCCR: Generales de Crédito y Tasas Interés Ref Numeral 3 B Cap. VI
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-01-25 | la propia norma |
+| 2 | 1993-01-13 | Ley 8 |
