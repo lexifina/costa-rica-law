@@ -1,0 +1,1 @@
+Art. 5°.-En casos de impedimento del Gobernador ó del Jefe Político, conocerá el Presidente Municipal; en vez de un individuo de la Municipalidad, un suplente; de un Agente de Policía, otro Agente de Policía del mismo ramo, y en los lugares donde no lo hubiere, el Regidor que sea £último en el orden numérico.

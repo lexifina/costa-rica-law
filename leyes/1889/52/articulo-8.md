@@ -1,0 +1,1 @@
+Art. 8°.-Los actos practicados por un funcionario que teniendo causa legal de excusa, no se hubiere excusado, no ser n nulos por solo ese motivo; pero si lo ser n los que se practicaren después de presentada la excusa y durante la tramitación de ella.
