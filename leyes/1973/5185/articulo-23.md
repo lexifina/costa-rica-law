@@ -1,0 +1,1 @@
+Artículo 23.—El INFOCOOP tendrá una Comisión de Crédito que será presidida por el Director Ejecutivo, estará integrada por los funcionarios que determine el Reglamento y a la cual corresponde estudiar y dictaminar sobre las solicitudes de préstamo presentadas por cualquier asociación cooperativa, sobre los empréstitos y sobre las emisiones de bonos del INFOCOOP.

@@ -1,0 +1,1 @@
+Artículo 22.—El Director Ejecutivo no podrá nombrar para que formen parte del personal del INFOCOOP, a quienes fueren cónyuges o estuvieren ligados con los miembros de la Junta Directiva, con él, con el Subdirector o el Auditor, por parentesco de consanguinidad hasta el tercer grado inclusive o de afinidad hasta el segundo grado, también inclusive.
