@@ -1,3 +1,4 @@
+(Derogado)
 LEY Nº 7032
 La presente norma ha sido ANULADA TOTALMENTE por resolución de la Sala Constitucional,
 Nº 546-1990 de las 14:30 horas del 22 de mayo de 1990.
