@@ -1,0 +1,16 @@
+N° 6802-MEIC
+EL PRESIDENTE DE LA REPUBLIC
+Y EL MINISTRO DE ECONOMIA, INDUSTRIA Y COMERCIO
+Resultando:
+1°.- Que el señor José Antonio Zúñiga Meoño, conocido como Rigoberto Zúñiga Meoño, mayor, casado, vecino de Cartago, cédula de identidad número 3-104-874, en escrito presentado el 10 de setiembre de 1976, solicita clasificación y equiparación de acuerdo con el Convenio Centroamericano de Incentivos Fiscales al desarrollo Industrial para la manufactura de bloques, adoquines, baldosas, piedras y arena. La equiparación la solicita en los mismos beneficios y plazos concedidos a la firma de actividad industrial similar “Canteras, Sociedad Anónima”, establecida en la República de Nicaragua.
+2°.- Que la solicitud se tramitó de acuerdo con las disposiciones del Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial y la Comisión Asesora Nacional del Ministro de Economía, Industria y Comercio en Sesión N° 55/76 celebrada el 1° de octubre de 1976, acordó recomendar al señor Ministro de Economía, Industria y Comercio clasificar a la empresa petente en el Grupo “A” Existente, definido en los artículo 5° y 7° del citado Convenio y en consecuencia que se le concedan los beneficios estipulados en los artículos 9° y 12 del mismo instrumento.
+Considerando:
+1°. –Que la Contraloría General de la República según nota N° 3063-L-76 del 24 de diciembre de 1976, ha manifestado su conformidad con los beneficios estipulados en este decreto.
+2°.- Que el señor José Antonio Zúñiga Meoño, en representación de Antonio Zúñiga Meoño, conocido como Rigoberto Zúñiga Meoño, , en representación de la firma “Manufacturera de Mantas y Sacos, Limitada”, aceptó en todos sus términos el presente decreto mediante escritura pública, otorgada a las 11:00 horas del 26 de enero de 1977, ante el notario Oscar Ortega Moya.
+3°.- Que se ha cumplido con lo prescrito en el Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial.
+Por tanto,
+Decretan:
+Artículo 1°.- Clasificar en el Grupo “A” Existente, definido en los artículo 5° y 7° del Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial, la planta industrial de la firma del señor José Antonio Zúñiga Meoño, conocido como Rigoberto Zúñiga Meoño, para su planta industrial, destinada a la fabricación de bloques, adoquines, baldosas, piedras y arena y concederle de acuerdo con la clasificación otorgada, los siguientes beneficios por el plazo que se indican:
+a) Exención total de impuestos arancelarios sobre la importación de maquinaria y equipo de planta. Este beneficio lo disfrutará por clasificación durante seis años contados a partir de la fecha en que la empresa realice la primera importación de cualquiera de estos bienes.
+b) Exención del monto que le corresponda por concepto de Impuesto sobre la Renta por aquella parte de las utilidades que la empresa reinvierta en maquinaria y equipo de planta. Este beneficio lo disfrutará por clasificación sujeto a las condiciones del artículo 9° del Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial.
+Es entendido que las franquicias aduaneras sobre importaciones las disfrutará el empresario sujeto a las disposiciones del Artículo IX del Tratado General de Integración Económica Centroamericana, así como a las disposiciones reglamentarias correspondientes a su aplicación.

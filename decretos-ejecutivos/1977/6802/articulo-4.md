@@ -1,0 +1,1 @@
+Artículo 4°.- Los beneficios que se conceden por este Decreto no podrán transferirse total ni parcialmente a terceras personas, sin la previa aprobación del Ministerio de economía, Industria y Comercio. Tampoco podrán transferirse n cambiar de destino sin esa aprobación total ni parcialmente, los bienes importados con franquicia al amparo de este Decreto.
