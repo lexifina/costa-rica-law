@@ -1,0 +1,3 @@
+Artículo 3º—Modifícase el artículo 2º de la Ley Nº 8180 del 6 de diciembre del 2001 "Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2002", en la forma que se indica a continuación:
+En la página PP-104-014 donde dice: 550 01 215 10 OTRAS CONSTR.,ADICION. Y MEJ. (PARA CAMBIO DE CIELO RASO E INSTALACIONES ELECTRICAS DE LA CASA PRESIDENCIAL, PARA LA ENTREGA DE LA CASA PRESIDENCIAL. A EJECUTAR EN SU TOTALIDAD EN EL PRIMER CUATRIMESTRE DEL AÑO 2002).
+Debe decir: 550 01 215 10 OTRAS CONSTR., ADICION. Y MEJ. (PARA CAMBIO DE CIELO RASO E INSTALACIONES ELECTRICAS DE LA CASA PRESIDENCIAL).
