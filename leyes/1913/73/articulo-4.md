@@ -1,0 +1,2 @@
+Artículo 4.- La prueba de tales circunstancias se hará en información levantada a instancia del interesado ante el alcalde de su domicilio, y con citación e intervención de la autoridad política del lugar. La comprobación de la edad es rigurosa y la asistencia a la guerra debe acreditarse con testigos idóneos.
+La solicitud así documentada debe dirigirse al Secretario de Estado en el Despacho de Guerra, y la prueba toda es de la exclusiva y crítica apreciación del Poder Ejecutivo, el cuál otorgara o denegará la pensión prudencialmente.
