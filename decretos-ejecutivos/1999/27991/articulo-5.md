@@ -1,1 +1,0 @@
-Artículo 5°.- El personal de la Compañía estará integrado por el Director, los maestros de danza, los bailarines, un asistente técnico, un administrador y el personal administrativo y técnico necesarios para el buen funcionamiento del programa.
