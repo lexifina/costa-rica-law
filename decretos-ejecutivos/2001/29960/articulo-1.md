@@ -1,0 +1,14 @@
+Nº 29960
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE GOBERNACIÓN Y POLICÍA, Y SEGURIDAD PÚBLICA
+Con fundamento en los incisos 3) y 18) del artículo 140, de la Constitución Política y las leyes 5251 de fecha 11 de Julio de 1973 y sus reformas, la Ley Indígena 6172 de 29 de noviembre de 1977, Ley 7316 de 12 de octubre de 1992, Convenio 169 de la O.I.T.
+Considerando:
+1º—Que la Reserva Indígena Guaymí de Abrojo Montezuma, en su delimitación establecida por Decreto 12115-G de La Gaceta 6 del 9 de enero de 1981 no incluyó dentro de su delimitación el territorio conocido como "Bajo Los Indios" y "Montezuma", territorios de tradición indígena.
+2º—Que la comunidad indígena apela al Poder Ejecutivo para que los territorios conocidos como "Bajo Los Indios" y "Montezuma" sea incluido dentro de los límites de la Reserva de Abrojo Montezuma, amparado al artículo 14 del Convenio 169 de la O.I.T.
+3º—Que los sectores de "Bajo los Indios" y "Montezuma" comprenden un territorio histórico, patrimonio cultural para la etnia Guaymí de la Reserva Indígena de Abrojo Montezuma.
+4º—Que la Reserva Indígena Guaymí de Abrojo Montezuma fue reducida en superficie mediante el Decreto 12115-G de La Gaceta 6 de 9 de enero de 1981, lo que contradice las disposiciones de ley.
+5º—Que la comunidad indígena Guaymí de Abrojo Montezuma solicitó a la Comisión Nacional de Asuntos Indígenas CONAI, efectuar los estudios pertinentes y ésta ya los realizó, con la recomendación de que se incluya a su vez el sector suroeste del Cerro Corredor a efecto de brindar protección a la riqueza ecológica en concordancia con la conservación de los recursos naturales de la zona.
+6º—Que en el Decreto 8514 Alcance 93 a La Gaceta 105 de 2 de junio de 1978, artículo 3, se establece la Reserva Indígena Abrojo Montezuma como un anexo de la Reserva Indígena Guaymí de Conteburica y que el Decreto 12115-G de La Gaceta 6 de 9 de enero de 1981, en su artículo 1 señala: "Establécese la Reserva Indígena Guaymí de Abrojo Montezuma", lo que dejó confusión de si la reserva de Abrojo Montezuma se tiene como anexa a la Reserva Indígena de Conteburica o si se constituye en una reserva independiente, lo cual se debe aclarar.
+7º—Que la Reserva Indígena de Abrojo Montezuma en términos geográficos queda muy distante de la reserva Indígena de Conteburica y aquella contado con su respectiva Asociación de Desarrollo Integral Indígena legalmente constituida por mucho años, por lo que no existe razón alguna para que ésta constituya un anexo de la reserva de Conteburica y es necesario definir entonces su independencia. Por lo tanto,
+DECRETAN:
+Artículo 1º—Modifíquese el artículo 3 del Decreto 8514-G de 2 de mayo de 1978, publicado en el Alcance 93 a La Gaceta 105 de 2 de junio de 1978, para que en adelante se lea así:
+Se establece la Reserva Indígena de Abrojo de Montezuma como reserva Indígena independiente de cualquier otra reserva, dejando de ser anexo de la Reserva Indígena Guaymí de Conteburica.
