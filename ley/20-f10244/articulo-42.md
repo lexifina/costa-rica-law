@@ -1,0 +1,1 @@
+ARTICULO 42.-Si por circunstancias especiales que puedan ocurrir en casos determinados, hubiese imposibilidad de reunir el Jurado para que conozca de una o varias causas, se terminar n por los Jueces ordinarios conforme a los procedimientos comunes.

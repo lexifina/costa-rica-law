@@ -1,0 +1,1 @@
+ARTICULO 28.-Redactado y firmado del veredicto, y devuelto por el Juez, sin objeción, se abrir n las puertas, y a presencia de las partes y demás concurrentes, poniéndose en pie‚ el Jurado, el Secretario lo leer en voz alta, e incontinente, entregar el proceso al Juez del Crimen, dándose por terminada la audiencia.

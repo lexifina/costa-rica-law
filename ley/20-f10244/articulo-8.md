@@ -1,0 +1,1 @@
+Artículo 8°. -El indiciado o los indiciados podrán, desde el principio, tomar conocimiento de la causa para que presenten las pruebas que tengan a su favor, aun durante la instrucción, y preparen su defensa.

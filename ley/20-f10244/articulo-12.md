@@ -1,0 +1,1 @@
+Artículo 12°. -No se admitir a los Jurados que no hayan sido recusados, más excusa que la de parentesco de consanguinidad hasta el tercer grado, o el de afinidad hasta el segundo, con el reo o el acusador, o al marido en causa de su consorte.
