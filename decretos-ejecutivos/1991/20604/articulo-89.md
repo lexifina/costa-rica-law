@@ -1,0 +1,1 @@
+ARTICULO 89.- El jurado calificador nombrado para otorgar el premio según el artículo 62 de la ley N° 7169, emitirá su recomendación al Consejo Director del CONICIT en la primera semana de julio. La decisión será dada a conocer en la última semana del mismo mes. Este premio podrá ser declarado desierto por el CONICIT y su fallo ser inapelable.

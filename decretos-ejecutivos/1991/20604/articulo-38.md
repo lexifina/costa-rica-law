@@ -1,0 +1,2 @@
+ARTICULO 38.- Para optar a la Categoría IV: "Director de Investigaciones" se requiere tener un doctorado y una experiencia mínima como investigador independiente de al menos diez años. Debe contar con un mínimo de quince publicaciones científicas como autor principal, de las cuales al menos cinco deben haberse publicado en revistas extranjeras o internacionales de prestigio.
+Deberá asimismo dedicar parte de su tiempo a la formación de investigadores. Cuatro años de investigación en universidades internacionales u ocho años a nivel nacional sustituirán el requisito de grado.

@@ -1,0 +1,1 @@
+ARTICULO 87.- Se consideran materiales bibliográficos de interés científico y tecnológico, los libros y las publicaciones periódicas que traten temas de ciencia y tecnología todo a criterio del Jurado Calificador.

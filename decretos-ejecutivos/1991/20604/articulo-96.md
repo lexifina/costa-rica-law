@@ -1,0 +1,1 @@
+ARTICULO 96.- La postulación se hará mediante una comunicación escrita en que se describirán los materiales bibliográficos producidos por la empresa editorial, que ameriten el reconocimiento por su aporte destacado a la difusión del conocimiento científico y tecnológico. La fecha límite de recepción de las postulaciones será definida en la convocatoria.

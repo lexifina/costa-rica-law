@@ -1,0 +1,1 @@
+ARTICULO 41.- La compensación económica complementará los ingresos del investigador según su categoría y no tomará en cuenta las anualidades u otras ventajas que el investigador tenga en la institución o empresa para que la trabaje.

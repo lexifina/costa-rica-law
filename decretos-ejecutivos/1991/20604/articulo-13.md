@@ -1,0 +1,4 @@
+CAPITULO IV
+Contrato de Incentivos para la Promoción y el Desarrollo de la Ciencia y la Tecnología
+ARTICULO 13.- El contrato de incentivos para la promoción y el desarrollo de la Ciencia y la Tecnología, en adelante denominado el Contrato, es El instrumento jurídico que suscriben las personas físicas o jurídicas nacionales o internacionales, productoras de bienes y servicios, públicas o privadas, con el Ministro de Ciencia y Tecnología por un período máximo de cinco años, prorrogables en casos calificados y que contiene un conjunto de derechos, obligaciones y potestades que rigen las relaciones entre ambas partes.
+Quedan excluidos de este contrato los incentivos del Régimen del Investigador, los que darán lugar a la suscripción de un contrato con el Consejo Nacional para Investigaciones Científicas y Tecnológicas (CONICIT), conforme con el artículo 44 de la ley N§ 7169 y los artículos 14 a 16 de este reglamento.

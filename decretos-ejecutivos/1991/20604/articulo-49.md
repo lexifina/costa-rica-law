@@ -1,0 +1,1 @@
+ARTICULO 49.- El CONICIT mantendrá un control individualizado de los beneficios que al amparo de los incisos b) y c) del artículo 26 de este reglamento sean solicitados, recomendados y finalmente aprobados por el Ministerio de Hacienda.

@@ -1,0 +1,1 @@
+ARTICULO 130.- La mercancía que ingrese a nuestro territorio en forma temporal tendrá como procedimiento aplicable, el establecido en el Régimen de Admisión Temporal; tanto en este caso como en los anteriores la Aduana estará obligada a darle un trámite preferencia, rápido y eficiente.

@@ -1,0 +1,1 @@
+ARTICULO 80.- Nombrado por el Consejo Director del CONICIT, el jurado se reunirá en forma ordinaria por lo menos bimestralmente y de manera extraordinaria cuando lo convoque su presidente. En la primera reunión que celebre, nombrará de su propio seno y por simple mayoría de votos a un Secretario de Actas. El quórum para sesionar será la mitad más uno de los miembros nombrados.

@@ -1,0 +1,1 @@
+ARTICULO 88.- La convocatoria para el premio será hecha por el Consejo Nacional para Investigaciones Científicas y Tecnológicas (CONICIT), bienalmente, en el mes de abril y deberá publicarse al menos una vez en un medio de comunicación masivo al alcance nacional. Los trabajos sometidos al concurso deber n haberse publicado en los dos años previos a esta convocatoria.

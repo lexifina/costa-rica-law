@@ -1,0 +1,1 @@
+ARTICULO 86.- Se entiende por empresa editora o afín aquella persona jurídica debidamente registrada en la Agencia Nacional de ISBN (Numeración Normalizada Internacional del Libro o Standard Book Number) en Costa Rica y que tenga un código editorial asignado por la misma, según lo establece el decreto ejecutivo N° 14977-C.

@@ -1,0 +1,3 @@
+CAPITULO III
+Incentivos para el fortalecimiento de las unidades y centros de investigación y extensión
+ARTICULO 105.- El CONICIT con fundamento en el artículo 66 de la ley N° 7169, apoyará financieramente con los recursos que establece dicha ley, de su propia presupuestación o de la cooperación internacional, los programas y proyectos de investigación, así como el mejoramiento de la infraestructura y el equipo destinado a investigación científica y tecnológica, dentro de los lineamientos del Programa Nacional de Ciencia y Tecnología. Para tales efectos, y con base en el artículo 41 de la ley N° 7169, recomendará los montos anuales al Ministro de Ciencia y Tecnología.

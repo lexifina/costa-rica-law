@@ -1,0 +1,1 @@
+ARTICULO 114.- Toda solicitud para acogerse a los beneficios citados en el artículo anterior deberá presentarse en el formulario que para tal efecto dispone la Secretaría del Sistema Nacional de Ciencia y Tecnología.

@@ -1,0 +1,1 @@
+ARTICULO 70.- En el marco del presente reglamento se entiende la divulgación de la ciencia y la tecnología como los procesos y mecanismos de comunicación que buscan involucrar al ciudadano en el desarrollo científico y tecnológico de la nación de manera consciente y crítica.

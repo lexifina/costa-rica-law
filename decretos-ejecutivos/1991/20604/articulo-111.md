@@ -1,0 +1,1 @@
+ARTICULO 111.- Los bienes comprados en el mercado local y que sean susceptibles de exoneración de acuerdo con este reglamento tienen que ser parte integrante de un proyecto de investigación científica y tecnológica.

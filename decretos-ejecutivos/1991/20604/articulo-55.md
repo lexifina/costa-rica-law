@@ -1,0 +1,1 @@
+ARTICULO 55.- Los aspirantes a las categorías "Investigador" y "Director de Investigaciones", deberán demostrar que su labor de investigación no ha sido interrumpida en los dos años anteriores a su solicitud.

@@ -1,0 +1,1 @@
+ARTICULO 74.- Son requisitos de las personas físicas que se postulen o sean postuladas para el premio, ser costarricenses por nacimiento o naturalización y mayores de edad. Las personas jurídicas deberán ser nacionales.

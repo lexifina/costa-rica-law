@@ -1,0 +1,1 @@
+ARTICULO 6°.- El quórum para la realización de las sesiones de la Comisión será de la mitad, más uno de los miembros acreditados. Los acuerdos se tomarán por mayoría simple, decidiendo en caso de empate el Presidente con doble voto.

@@ -1,0 +1,1 @@
+ARTICULO 120.- Las personas físicas o jurídicas, las entidades científicas o las empresas de base tecnológica (EBT) que se hayan acogido a los incentivos fiscales del artículo 111 deberán declarar anualmente que no variaron el uso del objeto exonerado a efecto de cumplir con lo establecido en la ley N° 7169.

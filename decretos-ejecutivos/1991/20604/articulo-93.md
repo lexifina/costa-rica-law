@@ -1,0 +1,1 @@
+ARTICULO 93.- Para la integración del Jurado, las instituciones en el representadas deberán comunicar el nombre de sus representantes, cuando el CONICIT lo solicite. Si transcurrido el plazo de un mes no se hubiere recibido el nombre de alguno o algunos de los representantes, el CONICIT integrará el jurado según criterio de su Consejo Directivo.

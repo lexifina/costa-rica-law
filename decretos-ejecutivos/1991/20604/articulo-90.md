@@ -1,0 +1,1 @@
+ARTICULO 90.- El premio constará de un certificado de reconocimiento y la Entrega por parte del CONICIT de ¢ 150.000,00 (ciento cincuenta mil colones). El Consejo Director del CONICIT podrá revisar y ajustar este monto cuando lo estime conveniente, en consulta con el Ministro de Ciencia y Tecnología, con base en el artículo 41 de la ley N° 71669.

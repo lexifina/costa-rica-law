@@ -1,0 +1,1 @@
+ARTICULO 125.- Las mercancías tendrán un proceso ágil de recepción en la Aduana mediante anotación en los manifiestos de carga y guía aérea, en los cuales se consignarán las condiciones en que fueron recibidas.

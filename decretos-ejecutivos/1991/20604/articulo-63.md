@@ -1,0 +1,1 @@
+ARTICULO 63.- Los beneficiarios del R‚gimen de Promoción deberán hacer el debido reconocimiento a esta condición en todas las publicaciones científicas que hicieren el reconocimiento será hecho en la forma expresamente indicada por el Rector del Sistema Nacional de Ciencia y Tecnología, en consulta con el CONICIT.

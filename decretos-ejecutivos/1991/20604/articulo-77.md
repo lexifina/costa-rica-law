@@ -1,0 +1,1 @@
+ARTICULO 77.- El premio constará de un certificado de reconocimiento y la suma de ¢ 150.000,00 (ciento cincuenta mil colones). El consejo Director del CONICIT revisará y podrá ajustar este monto cuando lo estime conveniente, en consulta con el Ministro de Ciencia y Tecnología, con fundamento en las disposiciones del artículo 41 de la ley N° 7169.

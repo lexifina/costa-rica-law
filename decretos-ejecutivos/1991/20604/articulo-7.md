@@ -1,0 +1,1 @@
+ARTICULO 7°.- Los Miembros de la Comisión serán juramentados por el Ministro Rector del Sistema Nacional de Ciencia y Tecnología. La Comisión de Incentivos sesionará ordinariamente una vez por mes y en forma extraordinaria cuando expresamente sea convocada por su Presidente o por la mayoría absoluta de los miembros acreditados.

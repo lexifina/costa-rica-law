@@ -1,0 +1,4 @@
+ARTICULO 71.- Para efectos del presente Capítulo, se consideran como actividades de divulgación científica y tecnológica, las siguientes:
+a) De carácter permanente. Aquellas que se realicen en jardines zoológicos y botánicos; museos de ciencias naturales, de ciencia, de industria, de tecnología, de descubrimientos, planetarios, reservas naturales, bibliotecas, industrias y laboratorios que pueden ser visitados por el público.
+b) De carácter periódico u ocasional. Exposiciones itinerantes y temporales; ciclos de conferencias, programas de radio, televisión, producción audiovisual y material impreso (que no estén contemplados en las categorías del periodismo en ciencia y tecnología), ferias, festivales y clubes científicos juveniles.
+c) Todas aquellas que califiquen como actividades de divulgación científica y tecnológica a criterio del jurado.

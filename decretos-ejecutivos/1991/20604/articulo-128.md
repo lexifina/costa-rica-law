@@ -1,0 +1,1 @@
+ARTICULO 128.- Las mercancías que ingresen en forma definitiva al territorio nacional, serán desalmacenadas mediante aforo provisional y contarán los interesados con un plazo de 30 días posteriores a la fecha del aforo provisional para su finiquito.

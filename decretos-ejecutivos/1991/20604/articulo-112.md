@@ -1,0 +1,1 @@
+ARTICULO 112.- El régimen de admisión temporal del Ministerio de Hacienda será aplicable a aquellos materiales o equipos de acuerdo con el listado que actualizará la Comisión de Incentivos periódicamente.

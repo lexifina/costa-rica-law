@@ -1,0 +1,1 @@
+ARTICULO 127.- La inspección y aforo inmediato de la mercancía para su desalmacenaje, será responsabilidad exclusiva de los funcionarios de aduana, destacados para este trámite, de conformidad con lo que establece la legislación vigente.

@@ -1,0 +1,1 @@
+ARTICULO 54.- En caso de comprobarse que la información suministrada no corresponde con la realidad, el CONICIT podrá desestimar la solicitud o excluir al investigador del R‚gimen, aún cuando ya sea un beneficiario.

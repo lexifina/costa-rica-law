@@ -1,0 +1,1 @@
+ARTICULO 44.- Competerá exclusivamente al Consejo Director del CONICIT la aprobación de las solicitudes para acogerse a la compensación económica definiendo la categoría en que se ubicará al investigador.

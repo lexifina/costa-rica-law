@@ -1,0 +1,1 @@
+ARTICULO 129.- El finiquito que indica el artículo 128, se realizará mediante la presentación de la nota de exoneración de impuestos trámite que se realizará ante el Ministerio de Hacienda en la Oficina de Exenciones; a ese efecto será necesario aportar el acuerdo de la Comisión Nacional de Incentivos.

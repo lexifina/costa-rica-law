@@ -1,0 +1,2 @@
+ARTICULO 42.- Los interesados podrán solicitar la compensación económica en cualquier momento, pero se hará efectiva a partir de enero de cada año.
+Para la renovación de los beneficios será necesario que el interesado la solicite por lo menos dos meses antes de iniciarse el nuevo período. Este mismo plazo regirá las solicitudes de los beneficiarios para ser promovidos a una categoría superior, aportando las justificaciones pertinentes.

@@ -1,0 +1,1 @@
+ARTICULO 5°.- En caso de que un miembro de la Comisión de Incentivos renuncie o ausentarse por un plazo indeterminado, el Presidente de esta solicitará al ente representado, para que dentro de un plazo de ocho días hábiles realice el nuevo nombramiento. Si no cumplieren con esta disposición el Presidente de la Comisión de Incentivos procederá a nombrar un sustituto.

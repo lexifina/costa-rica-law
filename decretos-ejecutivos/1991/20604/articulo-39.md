@@ -1,0 +1,1 @@
+ARTICULO 39.- El Director de Investigación en el campo tecnológico deberá haber realizado publicaciones, innovaciones, invenciones y haber dirigido una unidad de investigación científica o de desarrollo tecnológico por tres años.

@@ -1,0 +1,1 @@
+ARTICULO 43.- Podrán acogerse a la compensación económica los investigadores costarricenses que se desempeñen en entes u órganos de investigación y desarrollo en ciencia y tecnología ubicados en instituciones de educación superior, instituciones y empresas públicas y empresas privadas cuyo capital sea mayoritariamente costarricense.

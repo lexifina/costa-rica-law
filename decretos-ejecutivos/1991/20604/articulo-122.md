@@ -1,0 +1,1 @@
+ARTICULO 122.- Toda mercancía que ingrese a nuestro territorio bajo el amparo del artículo 71 de la ley N° 7169, obligará a los funcionarios aduaneros calificados para estos efectos a exigir al porteador la preferencia en la entrega de manifiestos de cargo y guías aéreas, con el fin de que esta mercancía se descargue en la forma más pronta y segura.

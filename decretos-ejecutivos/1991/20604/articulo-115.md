@@ -1,0 +1,1 @@
+ARTICULO 115.- Competerá exclusivamente al Consejo Director del CONICIT el aprobar o improbar las solicitudes de financiamiento citadas en el inciso d) del artículo 92 y los artículos 100 y 101 del presente reglamento.

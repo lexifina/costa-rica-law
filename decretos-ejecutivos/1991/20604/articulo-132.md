@@ -1,0 +1,1 @@
+ARTICULO 132.- El Ministerio de Hacienda tendrá un plazo de tres meses a partir de la fecha de publicación de este reglamento para entrenar personal y adecuar un espacio físico apropiado en las aduanas para los fines del artículo 71 de la ley N° 7169.

@@ -1,0 +1,2 @@
+ARTICULO 109.- Las personas físicas o jurídicas que se acojan a los Incentivos fiscales de este reglamento, firmarán un contrato de incentivo con el Ministro de Ciencia y Tecnología por un período máximo de cinco años.
+Cuando a juicio del Rector del Sistema Nacional de Ciencia y Tecnología, justifique y en consulta con la Comisión de Incentivos, de acuerdo con la presentación de la respectiva solicitud, se podrán otorgar prórrogas hasta por un máximo de cinco años.

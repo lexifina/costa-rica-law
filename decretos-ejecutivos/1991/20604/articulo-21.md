@@ -1,0 +1,1 @@
+ARTICULO 21.- El CONICIT en consulta con el Ministro de Ciencia y Tecnología, definirá anualmente, los sistemas de administración a utilizar para aumentar los recursos del "Fondo de Incentivos", así como otros mecanismos según lo permita el Ordenamiento Jurídico vigente, tales como fideicomisos e inversiones.

@@ -1,0 +1,1 @@
+ARTICULO 107.- Para solicitar los incentivos fiscales y beneficios que este reglamento, las personas físicas o jurídicas, las empresas, las entidades científicas privadas o las empresas de base tecnológica (EBT) deberán previamente estar incorporadas al Registro Científico y Tecnológico.

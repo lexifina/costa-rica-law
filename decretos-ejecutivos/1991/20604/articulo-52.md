@@ -1,0 +1,1 @@
+ARTICULO 52.- Los proyectos de investigación a que hace mención el artículo 65 de la ley N° 7169 deberán enmarcarse en las áreas prioritarias definidas por el Programa Nacional de Ciencia y Tecnología, además deberán responder a un claro interés nacional y satisfacer los criterios de calidad y mérito científico lo cual será dictaminado por el CONICIT.

@@ -1,0 +1,2 @@
+ARTICULO 36.- Para optar a la Categoría II: "Investigador Asistente" se requiere tener como mínimo las condiciones establecidas en el artículo anterior, pero debe tener por lo menos tres años de experiencia en investigación y al menos tres publicaciones científicas como autor o coautor en revistas de prestigio nacional, internacional o extranjeras.
+En ausencia de publicaciones, el investigador deberá haber generado en el campo técnico, al menos dos soluciones tecnológicas a problemas del proceso productivo de reconocido interés.

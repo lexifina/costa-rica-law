@@ -1,0 +1,1 @@
+ARTICULO 79.- Para la integración del jurado, las instituciones en él representadas deberán enviar los nombres de los representantes en el mes de setiembre del período correspondiente. En el caso de que los mismos no se envíen en el plazo establecido, el CONICIT queda facultado para nombrar dicho jurado.

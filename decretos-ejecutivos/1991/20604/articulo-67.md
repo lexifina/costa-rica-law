@@ -1,0 +1,1 @@
+ARTICULO 67.- Los investigadores que se hayan acogido al beneficio del artículo 26, inciso c), deberán declarar anualmente que únicamente utilizaron el objeto exonerado en investigación, a efecto de cumplir con lo establecido en el artículo 50 de la ley N° 7169.
