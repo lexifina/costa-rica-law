@@ -14,3 +14,4 @@ Reglamento para Inscripción de Propaganda de Medicamentos y Cosméticos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-02-22 | la propia norma |
+| 2 | 1995-05-08 | Decreto Ejecutivo 24287 (1995-05-08) |
