@@ -1,7 +1,6 @@
-Artículo 34—Las Direcciones Regionales contarán con los siguientes equipos:
-- Equipo de Extensión Agropecuaria
-- Equipo de Investigación Agropecuaria
-- Equipo de Servicio Fitosanitario del Estado
-(Modificado por el artículo 52 del Decreto Ejecutivo N° 30111, del 14 de enero del 2002)
-- Equipo de Salud Animal
-- Agencias de Servicios Agropecuarios
+Artículo 34.—Las Direcciones Regionales contarán con los siguientes equipos:
+—Equipo de Extensión Agropecuaria
+—Equipo de Servicios de Protección Fitosanitaria
+—Equipo de Salud Animal
+—Agencias de Servicios Agropecuarios
+(Así reformado por el artículo 48 del decreto ejecutivo N° 31857 de 19 de mayo de 2004)

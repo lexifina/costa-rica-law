@@ -18,3 +18,4 @@ Reglamento a la Ley Orgánica del Ministerio de Agricultura y Ganadería
 | 3 | 2000-08-12 | Decreto Ejecutivo 28861 (2000-08-12) |
 | 4 | 2001-01-11 | Decreto Ejecutivo 29252 (2001-01-11) |
 | 5 | 2002-01-14 | Decreto Ejecutivo 30111 (2002-01-14) |
+| 6 | 2004-05-19 | Decreto Ejecutivo 31857 (2004-05-19) |

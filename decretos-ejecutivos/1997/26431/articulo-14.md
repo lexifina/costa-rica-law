@@ -26,3 +26,4 @@ modificación de registro de moléculas para el control de plagas.
 24. Dar solución a problemas en el área de fitoprotección por medio de diagnóstico clínico, capacitación y asesorías.
 25. Producir semilla genética y de fundación de cultivos estratégicos en respuesta a lo propuesto anualmente por la Oficina Nacional de Semillas con el fin de satisfacer la demanda nacional.
 26. Cualquier otra función que las autoridades superiores, leyes y reglamentos le asignen.
+NOTA: Mediante el artículo 49 del decreto ejecutivo N° 31857 del 19 de mayo de 2004, se indica que las funciones y competencias que se establecían a la Dirección Nacional de Investigaciones Agropecuarias del Ministerio de Agricultura y Ganadería, serán ejecutadas y corresponderán al Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria -INTA- comprendiendo dentro de éstas las correspondientes a la administración y funcionamiento de las Estaciones y Campos Experimentales.

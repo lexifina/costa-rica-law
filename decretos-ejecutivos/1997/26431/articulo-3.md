@@ -59,26 +59,25 @@ El Centro de Capacitación y Comunicación para el Desarrollo tendrá las siguie
 13. Establecer canales de comunicación y coordinación que permitan retroalimentar los métodos y técnicas para la formación de pequeños y medianos agricultores.
 14. Preparar campañas regionales y nacionales para promover procesos de reconversión productiva y fortalecimiento de la organización de los productores y productoras.
 15. Preparar presupuestos anuales para la operación del Centro de Capacitación y Comunicación para el Desarrollo.
-16. Cualquier otra función que las autoridades superiores leyes y L reglamentos le asignen.
+16. Cualquier otra función que las autoridades superiores leyes y reglamentos le asignen.
 - Coordinación Agropecuaria
 La Coordinación Agropecuaria tendrá las siguientes funciones:
-1. Promover y coordinar procesos de investigación, extensión y fomento tendientes a provocar cambios de actitud progresivos y permanentes en los pequeños productores y productoras, sus familias y organizaciones, orientados hacia la solución de sus problemas productivos y ambientales, acordes a sus condiciones agroecológicas y socioeconómicas y sistemas productivos, que provoquen un mejoramiento continuo del nivel de vida de la población rural y urbana, en equilibrio con el medio ambiente.
+1. Promover y coordinar procesos de extensión y fomento tendientes a provocar cambios de actitud progresivos y permanentes en los pequeños productores y productoras, sus familias y organizaciones, orientados hacia la solución de sus problemas productivos y ambientales, acordes a sus condiciones agroecológicas y socioeconómicas y sistemas productivos, que provoquen un mejoramiento continuo del nivel de vida de la población rural y urbana, en equilibrio con el medio ambiente.
 2. Coordinar acciones para mantener y mejorar los servicios de protección fito y zoosanitaria, para lo cual ejercerá el control y fiscalización de productos e insumos de uso agropecuario, con el fin de preservar la producción y la salud pública.
 3. Apoyar al Ministro Rector del Sector Agropecuario en la ejecución de las políticas y lineamientos dictados para el desarrollo del sector, promoviendo el incremento en los niveles de competitividad y sostenibilidad en las actividades agropecuarias.
-4. Asesorar a las autoridades ministeriales en la toma de decisiones tendientes al fortalecimiento técnico y la integración operativa de la Institución, para alcanzar los mayores niveles de eficiencia y dar respuesta en mayor grado a los demandas de pequeños y medianos productores y productoras, bajo un enfoque de género, especialmente en materia relativa a protección, investigación y extensión agropecuaria.
-5. Coordinar con organismos nacionales e internacionales el manejo de información técnica en el campo de la investigación, extensión, protección agropecuaria y transferencia de tecnología.
-6. Promover, la planificación, coordinación, seguimiento y evaluación de las acciones de las Direcciones correspondientes, a efecto de maximizar el uso de los recursos y lograr mayor impacto en el desarrollo del sector agropecuario.
-7. Definir y ejecutar normas y procedimientos para la supervisión y establecimiento de mecanismos de organización de la información primaria generada en investigaciones, protección, extensión, estudios especiales y consultorías agropecuarias.
-8. Promover mecanismos de generación y transferencia tecnológica de la actividad agropecuaria en armonía con la naturaleza, asegurando orientaciones hacia la conservación y manejo integral de los recursos naturales para que la producción agropecuaria sea sostenible.
-9. Coordinar la protección del patrimonio agropecuario nacional, mediante el estricto control y cumplimiento de las leyes establecidas para tal efecto.
-10. Proponer y generar políticas, instrumentos legales y normas administrativas para orientar y regular las actividades del servicio de extensión, investigaciones y protección agropecuaria.
-11. Coordinar, orientar, dar seguimiento y evaluar todos las acciones y proyectos que se ejecuten a nivel regional o nacional en el área agropecuaria.
-12. Velar porque las políticas de la Institución respondan a los lineamientos y políticas del Sistema Nacional de Investigación y Transferencia Tecnológica (SNITTA).
-13. Orientar y velar por una mayor integración entre los componentes de investigación y extensión a efecto de que ambos respondan a las necesidades del pequeño productor.
-14. Facilitar los procesos de desarrollo rural conforme a los lineamientos del Despacho Ministerial.
-15. Contribuir en la promoción y desarrollo de procesos de capacitación y educación no formal y formal tendientes a provocar cambios en la conducta productiva y en las actitudes de los pequeños productores y productoras en sus familias y organizaciones orientados hacia la eficiencia productiva, capacidad de gestión autogestionaria y fortalecimiento de las capacidades organizativas.
-16. Promover y asesorar en métodos, técnicas e instrumentos que integren la labor de las diferentes instancias a nivel regional.
-17. Cualquier otra función que las autoridades superiores, leyes y reglamentos le asignen.
+4. Asesorar a las autoridades ministeriales en la toma de decisiones tendientes al fortalecimiento técnico y la integración operativa de la Institución, para alcanzar los mayores niveles de eficiencia y dar respuesta en mayor grado a los demandas de pequeños y medianos productores y productoras, bajo un enfoque de género, especialmente en materia relativa a protección y extensión agropecuaria.
+5. Coordinar con organismos nacionales e internacionales el manejo de información técnica en el campo de la extensión y protección agropecuaria.
+6. Promover la planificación, coordinación, seguimiento y evaluación de las acciones de las Direcciones correspondientes, a efecto de maximizar el uso de los recursos y lograr mayor impacto en el desarrollo del sector agropecuario.
+7. Definir y ejecutar normas y procedimientos para la supervisión y establecimiento de mecanismos de organización de la información primaria generada en protección, extensión, estudios especiales y consultorías agropecuarias.
+8. Coordinar la protección del patrimonio agropecuario nacional, mediante el estricto control y cumplimiento de las leyes establecidas para tal efecto.
+9. Proponer y generar políticas, instrumentos legales y normas administrativas para orientar y regular las actividades del servicio de extensión y protección agropecuaria.
+10. Coordinar, orientar, dar seguimiento y evaluar todas las acciones y proyectos que se ejecuten a nivel regional o nacional en el área agropecuaria.
+11. Velar porque las políticas de la Institución respondan a los lineamientos y políticas del Sistema Nacional de Investigación y Transferencia Tecnológica (SNITTA).
+12. Facilitar los procesos de desarrollo rural conforme a los lineamientos del Despacho Ministerial.
+13. Contribuir en la promoción y desarrollo de procesos de capacitación y educación no formal y formal tendientes a provocar cambios en la conducta productiva y en las actitudes de los pequeños productores y productoras en sus familias y organizaciones orientados hacia la eficiencia productiva, capacidad de gestión autogestionaria y fortalecimiento de las capacidades organizativas.
+14. Promover y asesorar en métodos, técnicas e instrumentos que integren la labor de las diferentes instancias a nivel regional.
+15. Cualquier otra función que las autoridades superiores, leyes y reglamentos le asignen.
+(Así reformado por el artículo 50 del decreto ejecutivo N° 31857 de 19 de mayo de 2004)
 - La Oficialía Mayor que será el órgano de enlace político administrativo de la Institución, tendrá las siguientes funciones:
 1.—Coordinar con otras instituciones del más alto nivel la puesta en práctica de las políticas agropecuarias sectoriales:
 a) Dentro del Sector:

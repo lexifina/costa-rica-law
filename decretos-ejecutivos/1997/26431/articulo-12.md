@@ -1,4 +1,4 @@
-DE LA DIRECCIÓN DE INVESTIGACIONES AGROPECUARIAS
+DE LA DIRECCIÓN DE INVESTIGACIONES AGROPECUARIAS*
 Artículo 12—La Dirección de Investigaciones Agropecuarias tendrá las siguientes funciones:
 1. Implementar una Política de investigación, acorde con la Política científica y tecnológica nacional y las necesidades de los agricultores y agricultoras y su familia.
 2. Proponer los lineamientos de Política, instrumentos legales y normas técnicas y administrativas para orientar y regular las actividades de investigación.
@@ -29,3 +29,4 @@ Artículo 12—La Dirección de Investigaciones Agropecuarias tendrá las siguie
 27. Participar activamente, a través de cada una de sus instancias, en los comités técnicos del SNITTA.
 28. Promover la innovación tecnológica para la competitividad y la sostenibilidad principalmente de pequeños productores y productoras.
 29. Cualquier otra que las autoridades superiores, leyes y reglamentos le asignen.
+*NOTA: Mediante el artículo 50 del decreto ejecutivo N° 31857 del 19 de mayo de 2004, se establece que: "Para todos los efectos formales, operativos y administrativos, se suprime de la estructura orgánica del Ministerio de Agricultura y Ganadería, la Dirección Nacional de Investigaciones Agropecuarias, y el artículo 49 del mismo decreto indica que las funciones y competencias que se establecían a la Dirección Nacional de Investigaciones Agropecuarias del Ministerio de Agricultura y Ganadería, serán ejecutadas y corresponderán al Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria -INTA- comprendiendo dentro de éstas las correspondientes a la administración y funcionamiento de las Estaciones y Campos Experimentales.
