@@ -1,0 +1,1 @@
+Art. 5. Gozarán del premio de un dlez por ciento de descuento sobre el principal todos los compradores de dichas tierras que hagan la indemnización al contado de un seis por ciento los que: lo hicieren dentro de un año: de un cuatro por ciento los que dentro de dos; y de un dos los que dentro de tres.
