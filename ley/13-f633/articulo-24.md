@@ -1,0 +1,1 @@
+Artículo 24.—Si se comprobare que el solicitante ha faltado maliciosamente a la verdad en su declaración jurada, o ha infringido los compromisos contraídos según el artículo anterior, además de incurrir en las responsabilidades legales consiguientes y en la pérdida de los derechos al lote, será penado con la multa de doscientos cincuenta a quinientos colones.

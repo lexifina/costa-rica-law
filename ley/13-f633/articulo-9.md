@@ -1,0 +1,1 @@
+Artículo 9°—Tampoco pueden ser enajenados los terrenos situados en una zona de dos mil metros alrededor de los bordes de los volcanes Irazú y Poás y de la laguna vecina de éste último, así como los situados en una zona de dos kilómetros de ancho a uno y otro lado de la cima de la montaña del volcán Barba, desde el Cerro Zurquí hasta el de Concordia.

@@ -1,0 +1,3 @@
+Artículo 73.—Quedan derogados los artículos 508 a 553 del Código Fiscal, así como el artículo 1° de la ley N° 11 de 22 de octubre de 1926, que modificó algunos de ellos. Se derogan asimismo las leyes N° 60 de 13 de agosto de 1914, N° 85 de 24 de agosto de 1915, N° 82 de 5 de abril de mil novecientos veintitrés, N° 29 de 3 de diciembre de 1934 y los artículos 3° y 4° de la ley N° 23 de 16 de diciembre de 1935. Quedan también derogadas o reformadas en la parte correspondiente, las leyes dictadas anteriormente que traten de las mismas materias que la presente, en todo aquello que ésta se le oponga o las contradiga.
+Esta ley entrará en vigencia el día de su publicación.
+Casa Presidencial. — San José, a los diez días de enero de mil novecientos treinta y nueve.

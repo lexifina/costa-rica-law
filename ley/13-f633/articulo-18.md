@@ -1,0 +1,1 @@
+Artículo 18.—Si de la remedida de tierras, apropiadas legalmente con anterioridad a esta ley resultare que el interesado posee una extensión menor que aquélla a que le da derecho su título, podrá pedir que se le reponga el terreno que le falta, sin pagar su valor, en los baldíos limítrofes, si los hubiere, o en los situados en otros lugares, de calidades y condiciones semejantes.
