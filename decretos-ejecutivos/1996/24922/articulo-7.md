@@ -1,1 +1,2 @@
-Artículo 7º- Para la venta del Juego Crea, se autorizará a las personas que la Fundación designe, las cuales deberán portar en lugar visible, el respectivo carné de autorización.
+Artículo 7º- El Juego Crea podrá ser vendido y distribuido por personas físicas y organizaciones sociales sin fines de lucro, legalmente constituidas e inscritas, pudiendo usar para tal fin máquinas electrónicas. Las autorizaciones respectivas serán otorgadas por la Junta Directiva de la Fundación.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 25830 de 13 de febrero de 1997).
