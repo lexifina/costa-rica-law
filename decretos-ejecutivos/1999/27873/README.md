@@ -13,3 +13,4 @@ Declara Interés Cultural Festival Madre Fértil Tierra NuestraDel 1º al 5 de j
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-18 | la propia norma |
+| 2 | 1999-05-18 | SINALEVI (sin norma nombrada) |
