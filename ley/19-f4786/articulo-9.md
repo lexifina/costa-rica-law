@@ -1,0 +1,1 @@
+Art 9° La venta debe hacerse en los días de trabajo, de las seis de la mañana a las nueve de la noche; y en los feriados, de las diez de la mañana a las doce. Cualquier falta en esta parte será castigada con arreglo a las leyes de la materia.
