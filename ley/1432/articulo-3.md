@@ -1,0 +1,1 @@
+Artículo 3º.- Deróganse el decreto Nº 34 de 21 de julio de 1891, que señalaba un bodegaje especial en las aduanas de Limón y Puntarenas; el artículo 5º del decreto Nº 12 de 16 de junio de 1894, que varió los términos del bodegaje indicados en el Código Fiscal, y cualquiera otra ley contradictoria con las disposiciones de ésta.
