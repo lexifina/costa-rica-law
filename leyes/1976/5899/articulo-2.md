@@ -1,1 +1,1 @@
-Artículo 2º.- Los respectivos registros públicos no procederán a inscribir ninguna razón social, comercia o marca de fábrica que no se ajuste a las disposiciones del párrafo primero del artículo 1º de esta ley.
+Artículo 2º.- ANULADO por Resolución de la Sala Constitucional Nº 4848-96 de las 15:15 horas del 17 de septiembre de 1996.
