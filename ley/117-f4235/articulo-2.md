@@ -1,0 +1,1 @@
+Art. 2. Comprobada legalmente la pérdida à muerte de la bestia reclamada en servicio del Gobierno, la autoridad política inscribirà al dueño de ella en el registro que llevarà al intento y anotará su valor, calculado por peritos juramentados.
