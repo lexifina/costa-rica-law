@@ -1,0 +1,1 @@
+Artículo 5°—Corresponderá a la Dirección General de Hacienda o en su caso a dependencia del Ministerio de Hacienda en que esta delegue, autorizar las exoneraciones de impuestos para las importaciones que se realicen, previo cumplimiento de disposiciones que la legislación vigente establece y de conformidad con las normas de este reglamento.

@@ -1,0 +1,2 @@
+Artículo 8°—La Dirección General de Hacienda o su representante, procederá a autorizar las solicitudes recomendadas, previa comprobación de que los beneficiarios demuestren la solvencia tributaria a que se refiere el artículo 48, inciso ch) de la susodicha ley.
+Los originales de dichas solicitudes se remitirán a la aduana respectiva mediante oficio o bien mediante el procedimiento que la administración considere más conveniente.

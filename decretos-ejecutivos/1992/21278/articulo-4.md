@@ -1,0 +1,1 @@
+Artículo 4°—Se entiende por beneficiarios, únicamente aquellas personas físicas o jurídicas dedicadas a la actividad pesquera, artesanal, semi-industrial e industrial, que cuenten con la respectiva licencia de pesca vigente al momento del otorgamiento de la exoneración.

@@ -1,0 +1,1 @@
+Artículo 9°—En lo que respecta a la importación de combustible exento de impuestos, se aplicará el procedimiento establecido en el artículo 8”, inciso g) del decreto ejecutivo N” 18686-H-MIRENEM-MAG del 23 de abril de 1990 y sus reformas.
