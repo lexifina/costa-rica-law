@@ -1,0 +1,5 @@
+Artículo 46.- La Comisión elegirá un Presidente y un Secretario.
+Este último será el encargado de la correspondencia, de la redacción de
+las actas y del archivo de los expedientes de Servicio de los
+funcionarios y de cualesquiera otros documentos necesarios a los fines
+de la Comisión.
