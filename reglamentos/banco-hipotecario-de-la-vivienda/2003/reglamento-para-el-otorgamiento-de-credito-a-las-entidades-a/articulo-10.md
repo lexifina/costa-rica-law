@@ -1,0 +1,1 @@
+Artículo 10.—Disposiciones aplicables: La Dirección FONAVI y la Gerencia General del BANHVI llevarán a cabo sus funciones de acuerdo con lo establecido en la Ley del Sistema Financiero Nacional para la Vivienda, sus reglamentos, las presentes normas, las demás disposiciones legales aplicables y los principios bancarios y financieros relacionados con la aprobación de créditos.

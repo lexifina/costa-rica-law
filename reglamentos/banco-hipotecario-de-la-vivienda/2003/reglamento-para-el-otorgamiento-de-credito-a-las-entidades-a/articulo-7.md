@@ -1,0 +1,3 @@
+SECCIÓN III
+Aprobación de las solicitudes de crédito
+Artículo 7º—Dictamen técnico de la Dirección FONAVI. La Dirección FONAVI remitirá a la Gerencia General el dictamen técnico derivado del análisis de la solicitud de crédito, con la recomendación correspondiente en torno a la aprobación o no del financiamiento y la calificación otorgada a la Entidad solicitante con base en lo establecido en el Acuerdo SUGEF 1-95. El dictamen técnico de la Dirección FONAVI deberá remitirse a la Gerencia General adjunto al expediente de crédito correspondiente. La Dirección FONAVI contará con un plazo máximo de quince días hábiles para emitir sus dictámenes contados a partir de la fecha en que sea suministrada la última información por parte de la Entidad solicitante.
