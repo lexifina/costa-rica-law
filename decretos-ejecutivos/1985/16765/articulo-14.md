@@ -1,2 +1,2 @@
-ARTICULO 14.- Las patentes otorgadas por el Colegio son intransferibles. Las patentes para operar botiquines solo podrán otorgarse a personas físicas en forma temporal, por lo que el Colegio podrá cancelarlas sin responsabilidad alguna, cuando se compruebe que se ha infringido la ley, el presente reglamento o cuando se instale una farmacia en la misma localidad.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 18961 del 27 de abril de 1989)
+ARTICULO 14. Anulado.
+(Anulado mediante resolución de la Sala Constitucional N° 6830 del 24 de diciembre de 1993).

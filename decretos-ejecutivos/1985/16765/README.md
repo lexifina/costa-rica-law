@@ -20,3 +20,4 @@ Reglamento de Establecimientos Farmacéuticos Privados
 | 5 | 1989-04-27 | Decreto Ejecutivo 18961 (1989-04-27) |
 | 6 | 1989-06-26 | Decreto Ejecutivo 19069 (1989-06-26) |
 | 7 | 1991-06-25 | SINALEVI (sin norma nombrada) |
+| 8 | 1993-12-24 | SINALEVI (sin norma nombrada) |
