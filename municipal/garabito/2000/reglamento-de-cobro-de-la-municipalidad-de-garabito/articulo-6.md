@@ -1,0 +1,1 @@
+Artículo 6°-Definición de cobro judicial. Por cobro judicial se el entender aquellas gestiones que se realicen en el ámbito judicial con el objetivo de recuperar las cuentas atrasadas mayores de seis meses.

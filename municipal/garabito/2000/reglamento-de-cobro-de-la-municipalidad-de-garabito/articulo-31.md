@@ -1,0 +1,1 @@
+Artículo 31.-Los arreglos de pago para sumas superiores a los diez mil colones y hasta cincuenta mil colones se les dará tres meses para cancelar esas deudas. Superiores a cincuenta mil y un colones se podrá autorizar hasta diez meses para la atención de la deuda. La Municipalidad determinará el monto por concepto de gastos administrativos que deberá cancelar el moroso.

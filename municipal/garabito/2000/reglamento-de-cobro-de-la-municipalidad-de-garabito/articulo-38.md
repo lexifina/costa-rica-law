@@ -1,0 +1,1 @@
+Artículo 38.-Los tributos municipales prescribirán en cinco años y los funcionarios que los dejen prescribir responderán por su pago personalmente, según lo establece el Artículo 73 del Código Municipal. Así mimo cada funcionario será responsable del Departamento en que labora, de conformidad con el artículo 147 del Código Municipal.
