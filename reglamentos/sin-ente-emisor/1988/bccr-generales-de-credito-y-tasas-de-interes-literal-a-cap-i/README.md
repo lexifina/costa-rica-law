@@ -13,3 +13,4 @@ BCCR: Generales de Crédito y Tasas de Interés. Literal A Cap.II
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-01-09 | la propia norma |
+| 2 | 1993-01-13 | Ley 8 |
