@@ -14,15 +14,21 @@ Para la constitución y ubicación de las Direcciones Regionales se han consider
 Las Direcciones Regionales de Obras Públicas, para la atención directa de los cantones se agrupan así:
 La Dirección Regional I- a los cantones de: San José, Tibás, Moravia, Vázquez de Coronado, Goicoechea, Montes de 0ca, Curridabat, Desamparados, Aserrí, Alajuelita, Escazú, Mora, Puriscal!, Acosta, Tarrazú, Dota, León Cortes, Turrubares y Santa Ana.
 La Dirección Regional II- a los cantones de: Cartago, Oreamuno, Paraíso, El Guarco, La Unión, Alvarado, Turrialba, Jiménez.
-La Dirección Regional III- a los cantones de: Alajuela, Grecia, Valverde Vega, Naranjo, Palmares, San Ramón, San Mateo, Orotina, Atenas, Poás y Alfaro Ruiz.
-La Dirección Regional IV- los cantones de San Carlos y Los Chiles.
+La Dirección Regional III- a los cantones de: Alajuela, Grecia, Valverde Vega, Naranjo, Palmares, San Ramón, Atenas, Poás y Alfaro Ruiz.
+(Así reformado mediante artículo 2 del Decreto 32044 del 22 de julio del 2004, publicado en la gaceta N° 200 del 13 de octubre del 2004)
+La Dirección Regional IV- (Eliminada)
+(Eliminada mediante artículo 2 del Decreto 32044 del 22 de julio del 2004).
 La Dirección Regional V- a los cantones de: Heredia, Barva, Santo Domingo, Santa Bárbara, San Rafael, San Isidro, Belén. Flores, San Pablo y Sarapiquí.
-La Dirección Regional VI- a los cantones de: Liberia, Santa Cruz, La Cruz y Carrillo.
-La Dirección Regional VII- a los cantones de: Bagaces, Cañas, Tilarán , Abangares, Úpala y Guatuso.
+Dirección Regional VI- (Eliminada)
+(Eliminada mediante artículo 2 del Decreto 32044 del 22 de julio del 2004).
+Dirección Regional VII- (Eliminada)
+(Eliminada mediante artículo 2 del Decreto 32044 del 22 de julio del 2004).
 La Dirección Regional VIII- a los cantones de: Limón, Matina Talamanca.
 La Dirección Regional IX- a los cantones de: Guácimo, Pococi, Siquirres.
 La Dirección Regional X- a los cantones de: Pérez Zeledón, Buenos Aires.
 La Dirección Regional XI- a los cantones de: Corredores, Golfito, Osa y Coto Brus.
-La Dirección Regional XII- a los cantones de: Puntarenas, Montes de Oro, Garabito, Esparza, Parrita y Aguirre.
+Dirección Regional XII- (Eliminada)
+(Eliminada mediante artículo 2 del Decreto 32044 del 22 de julio del 2004).
 La Dirección Regional XIII- a los cantones de: Nicoya, Nandayure y Hojancha.
+(La Dirección Regional XIII fue eliminada tácitamente por el artículo 3 del Decreto Ejecutivo N° 32044 de 22 de julio de 2004).
 (Así reformado por el artículo 1° del Decreto Ejecutivo N° 28814 de 25 de julio de 2000).
