@@ -14,3 +14,4 @@ Reglamento de la Dirección General de la Policía de Tránsito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-01-30 | la propia norma |
+| 2 | 1980-01-30 | SINALEVI (sin norma nombrada) |
