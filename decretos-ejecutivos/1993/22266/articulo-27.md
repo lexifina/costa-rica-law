@@ -1,6 +1,6 @@
 Artículo 27.- Citación de funcionarios
 El Defensor de los Habitantes de la República podrá citar a los
-funcionarios públicos para que conparezcan personalmente a referirse
+funcionarios públicos para que comparezcan personalmente a referirse
 sobre cualquier cuestión de interes para la investigación de asuntos
 sometidos a su conocimiento. También están obligadas a comparecer
 aquellas personas que participen en la explotación de concesiones o en la

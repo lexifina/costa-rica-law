@@ -12,7 +12,7 @@ regulará lo relacionado con la valoración, la remuneración y la
 clasificación de puestos de la institución.
 El personal profesional remunerado de la institución tendrá las
 mismas prohibiciones e incompatibilidades que el Defensor de los
-Habitantes de la República y el Defensor Adjunto. Se exceptuan los casos
+Habitantes de la República y el Defensor Adjunto. Se exceptúan los casos
 indicados en el artículo 19 de este Reglamento y el ejercicio de cargos
 ad-honorem en instituciones u organizaciones sin fines de lucro, todo a
 juicio del Defensor de los Habitantes de la República.

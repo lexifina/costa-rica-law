@@ -13,3 +13,4 @@ Reglamento del Defensor de los Habitantes de la República
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-07-16 | la propia norma |
+| 2 | 1993-07-16 | SINALEVI (sin norma nombrada) |

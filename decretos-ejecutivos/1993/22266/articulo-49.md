@@ -1,4 +1,4 @@
-Artículo 49.- Notificacón y solicitud de informe
+Artículo 49.- Notificación y solicitud de informe
 El Defensor de los Habitantes de la República notificará el acto
 que admite la queja reclamo o denuncia a la dependencia que corresponda,
 para que el jefe de la misma y el funcionario denunciado, remitan

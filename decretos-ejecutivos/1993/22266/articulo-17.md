@@ -13,7 +13,7 @@ Habitantes de la República podrá comparecer ante la Asamblea Legislativa
 a defender sus actuaciones. Concluida la discusión del mismo, la cual se
 realizará conforme a las disposiciones del Reglamento de Orden, Dirección
 y Disciplina de la Asamblea Legislativa, el informe será sometido a
-votación. si este es desfavorable a la actuación del Defensor de los
+votación. Si este es desfavorable a la actuación del Defensor de los
 Habitantes de la República, y es aprobado, el plenario podrá declarar por
 mayoría absoluta de los diputados presentes, la vacante del cargo.
 Para investigar la negligencia notoria o las violaciones graves al

@@ -1,4 +1,5 @@
-Artículo 58.- Negativa a colaborar
+Artícu
+lo 58.- Negativa a colaborar
 El Defensor de los Habitantes de la República actuará de
 conformidad con lo que dispone el artículo 26 de la Ley Nº 7319 ante la
 negativa de un funcionario público o de sus superiores de contestar o

@@ -29,7 +29,7 @@ del sector público o el funcionamiento de los servicios públicos, y
 que no constituye una resolución del Tribunal Supremo de Elecciones
 en materia electoral.
 El Defensor de los Habitantes de la República podrá rechazar
-aquellas quejas, reclamos o denuncias en la sque advierta mala fe,
+aquellas quejas, reclamos o denuncias en la que advierta mala fe,
 carencia de fundamento o inexistencia de pretensión.
 También podrá rechazarlas por el fondo, en cualquier momento
 incluso desde su presentación, cuando considere que existen elementos de
