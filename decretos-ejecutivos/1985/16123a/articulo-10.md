@@ -1,14 +1,15 @@
-Artículo 10.-A la Oficina de Proveeduría y Servicios Generales le corresponde:
-1) Tramitar las licitaciones públicas, las licitaciones privadas, las contrataciones directas y los concursos de antecedentes, para la adquisición de bienes y servicios requeridos. '
+Artículo 10.-Al (*) Departamento de Proveeduría y Servicios Generales le corresponde:
+(*) (Modificada su denominación por el artículo 2° del decreto ejecutivo N° 19419 del 31 de octubre de 1989).
+1) Tramitar las licitaciones públicas, las licitaciones privadas, las contrataciones directas y los concursos de antecedentes, para la adquisición de bienes y servicios requeridos.
 2) Atender la entrega de materiales y suministros a todas las unidades de la Contraloría.
 3) Velar porque se cumplan eficientemente las labores de conserjería a su cuidado.
-4) Velar porque el edificio que ocupa la Contraloría, sus instalaciones, equipo de Transporte, equipo y mobiliario de oficina y demás equipos y enseres se mantengan siempre en buenas condiciones.
+4) Velar porque el edificio que ocupa la Contraloría, sus instalaciones, equipo de Transporte, equipo y mobiliario de (*) Departamento y demás equipos y enseres se mantengan siempre en buenas condiciones.
+(*) (Modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 19419 del 31 de octubre de 1989).
 5) Coordinar los servicios de transporte que se realiza con los vehículos propios a efecto de que se aprovechen eficientemente olas unidades y el personal destinado a ese fin.
 6) Llevar un inventario permanente de activos fijos.
 7) Velar porque todos los activos fijos estén debidamente identificados con placas u otro medio efectivo de control.
 8) Llevar un inventario permanente de las existencias en Proveeduría.
-9) Prestar servicios de fotocopiado, polígrafo, compaginación, litografía y
-encuadernación a todas las unidades administrativas de la Contraloría.
+9) Prestar servicios de fotocopiado, polígrafo, compaginación, litografía y encuadernación a todas las unidades administrativas de la Contraloría.
 10) Atender el funcionamiento de la biblioteca, para lo cual contará con la colaboración de un Consejo de Directores.
 11) Recibir, numerar, registrar y distribuir la correspondencia y documentos que procedan de otras entidades o personas.
 12)Recibir, registrar y expedir con la brevedad del caso, la correspondencia oficial que remite la Contraloría.

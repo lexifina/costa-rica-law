@@ -1,0 +1,3 @@
+Artículo 52.-La unidad competente para resolver un asunto, deberá coordinar con las demás unidades de la Contraloría que tengan alguna injerencia en el asunto, aunque sea indirecta, antes de dictar la decisión final, a efecto de que haya coherencia en todas las decisiones de fiscalización.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 19419 del 31 de octubre de 1989 que lo traspaso del antiguo artículo 50 al 51 actual)
+(Así corrida su numeración por el artículo 4° del decreto ejecutivo N° 19419 del 31 de octubre de 1989 que lo traspaso del antiguo artículo 51 al 52 actual)

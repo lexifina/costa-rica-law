@@ -15,3 +15,4 @@ Reglamento Orgánico de la Contraloría General de la República
 | --- | --- | --- |
 | 1 | 1985-04-30 | la propia norma |
 | 2 | 1988-03-16 | Decreto Ejecutivo 18058 (1988-03-16) |
+| 3 | 1989-10-31 | Decreto Ejecutivo 19419 (1989-10-31) |

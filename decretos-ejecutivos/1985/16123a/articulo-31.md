@@ -1,4 +1,5 @@
-Artículo 31.-Al Departamento de Licitaciones fundamentalmente le corresponde:
+Artículo 31.-A la (*)Dirección General de Licitaciones fundamentalmente le corresponde:
+(*) (Modificada su denominación por el artículo 2° del decreto ejecutivo N° 19419 del 31 de octubre de 1989).
 1) Tramitar y resolver todas aquellas apelaciones, relacionadas con las contrataciones administrativas, que Se presenten a la Contraloría General al amparo de la Ley de la Administración Financiera de la República y del Reglamento de la Contratación Administrativa.
 2) Conocer de oficio en vía administrativa, de nulidades absolutas que se observen en actos o procedimientos administrativos relativos a la materia de contratación administrativa.
 3) Calificar la no aplicación de normas del Reglamento de la Contratación Administrativa a contrataciones regidas por regímenes de empréstitos, en situaciones incongruentes.
@@ -10,6 +11,9 @@ Artículo 31.-Al Departamento de Licitaciones fundamentalmente le corresponde:
 9) Hacer las recomendaciones y prevenciones que se consideren convenientes, relativas a los carteles de licitación y concursos de antecedentes; así como sus complementos, que hayan sido publicados o distribuidos.
 10) Promover por los medios que estime adecuados, la divulgación de la doctrina y normas legales que regulen la contratación administrativa.
 11) Conocer de las consultas que por escrito hagan los funcionarios públicos o particulares, en relación con los procedimientos de contratación administrativa o con los principios doctrinarios que informan esa actividad.
-12) Tramitar y resolver las solicitudes de contratación directa que formulen a la Contraloría General los entes públicos, así como las solicitudes para la realización de licitaciones privadas, en casos muy calificados, a juicio del departamento.
-13) Asesorar a los superiores y a los demás departamentos y oficinas en materia de contratación administrativa.
-14) Efectuar todas aquellas otras funciones, propias del Departamento, que le deleguen los contralores, y las que le asigne a la Contraloría el ordenamiento jurídico en materia de contratación administrativa.
+12) Tramitar y resolver las solicitudes de contratación directa que formulen a la Contraloría General los entes públicos, así como las solicitudes para la realización de licitaciones privadas, en casos muy calificados, a juicio de la (*) Dirección General.
+(*)(Modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 19419 del 31 de octubre de 1989).
+13) Asesorar a los superiores y a las demás(*) Direcciones Generales y (*) Departamentos en materia de contratación administrativa.
+(*) (Modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 19419 del 31 de octubre de 1989).
+14) Efectuar todas aquellas otras funciones, propias del (*) Dirección General, que le deleguen los contralores, y las que le asigne a la Contraloría el ordenamiento jurídico en materia de contratación administrativa.
+(*) (Modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 19419 del 31 de octubre de 1989).

@@ -1,1 +1,3 @@
-Artículo 50.-La unidad competente para resolver un asunto, deberá coordinar con las demás unidades de la Contraloría que tengan alguna injerencia en el asunto, aunque sea indirecta, antes de dictar la decisión final, a efecto de que haya coherencia en todas las decisiones de fiscalización.
+Artículo 50.-Los criterios expresados por los departamentos de la Contraloría, solo se considerarán oficiales cuando hayan sido emitidos por escrito.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 19419 del 31 de octubre de 1989 que lo traspaso del antiguo artículo 48 al 49 actual)
+(Así corrida su numeración por el artículo 4° del decreto ejecutivo N° 19419 del 31 de octubre de 1989 que lo traspaso del antiguo artículo 49 al 50 actual)

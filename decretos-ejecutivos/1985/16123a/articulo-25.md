@@ -1,4 +1,5 @@
-Artículo 25.-Al Departamento de Estudios Económicos le corresponde:
+Artículo 25.-A la (*) Dirección General de Estudios Económicos le corresponde:
+(*) (Modificada la denominación por el artículo 2° del decreto ejecutivo N° 19419 del 31 de octubre de 1989).
 1) Realizar estudios y preparar los informes respectivos sobre la efectividad fiscal de los ingresos corrientes del Gobierno Central y de otros impuestos nacionales.
 2) Fiscalizar las emisiones de bonos y demás títulos valores que den origen a obligaciones para el Estado.
 3) Dictaminar sobre los aspectos financieros de los contratos de empréstitos que deban ser refrendados por la Contraloría General, así como de los documentos de garantía que se suscriban.
@@ -7,4 +8,5 @@ Artículo 25.-Al Departamento de Estudios Económicos le corresponde:
 6) Rendir informe sobre la capacidad económica de un ente público, en los casos que la ley lo establezca.
 7) Estudiar y tramitar, para su aprobación las tasas por servicios y las tasas de valorización o contribuciones, que requieran de la aprobación de la Contraloría General.
 8) Realizar los estudios necesarios para establecer o modificar las tarifas y disposiciones normativas que contempla el Reglamento de Gastos de Viaje y de Transporte para funcionarios y empleados del Estado.
-9) Efectuar todas aquellas otras funciones, propias del Departamento, que le correspondan a la Contraloría General de conformidad con las leyes.
+9) Efectuar todas aquellas otras funciones, propias de la (*) Dirección General, que le correspondan a la Contraloría General de conformidad con las leyes.
+(*)(Modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 19419 del 31 de octubre de 1989).

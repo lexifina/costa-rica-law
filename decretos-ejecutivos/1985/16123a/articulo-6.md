@@ -1,4 +1,4 @@
-Artículo 6°-A la Oficina de Personal le corresponde:
+Artículo 6°-Al (*) Departamento de Personal le corresponde:
 1) Asesorar a los contralores en la formulación de políticas y emisión de normas, relacionadas con la materia de administración de personal.
 2) Perfeccionar y mantener actualizado el Manual de Clasificación de Puestos.
 3) Diseñar, perfeccionar y aplicar los métodos de selección de personal.
@@ -17,3 +17,4 @@ Artículo 6°-A la Oficina de Personal le corresponde:
 16) Ejercer el control relacionado con el derecho y disfrute de vacaciones del personal.
 17) Extender las certificaciones que soliciten los funcionarios y ex funcionarios, en materia de personal.
 18) Realizar todas aquellas otras funciones, propias de la unidad, que le sean asignadas por sus superiores.
+(*) (Modificada su denominación por el artículo 2° del decreto ejecutivo N° 19419 del 31 de octubre de 1989).

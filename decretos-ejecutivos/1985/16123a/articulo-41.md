@@ -1,1 +1,3 @@
-Articulo 41.-Caso contrario, instruido el expediente .se pondrá en cono: cimiento del o de los interesados, con el objeto de que aleguen lo que deban alegar y aporten prueba de descargo, lo cual deberán hacer dentro del plazo que se les señale que no será menor de tres días ni mayor de diez.
+Artículo 41.-Se citará a quien deba comparecer.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 19419 del 31 de octubre de 1989 que lo traspaso del antiguo artículo 39 al 40 actual)
+(Así corrida su numeración por el artículo 4° del decreto ejecutivo N° 19419 del 31 de octubre de 1989 que lo traspaso del antiguo artículo 40 al 41 actual)

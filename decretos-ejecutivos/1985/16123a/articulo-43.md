@@ -1,1 +1,3 @@
-Artículo 43.-De conformidad con lo resuelto se determinará si proceden sanciones administrativas o si el caso debe elevarse a conocimiento del Ministerio Público.
+Articulo 43.-Caso contrario, instruido el expediente .se pondrá en cono: cimiento del o de los interesados, con el objeto de que aleguen lo que deban alegar y aporten prueba de descargo, lo cual deberán hacer dentro del plazo que se les señale que no será menor de tres días ni mayor de diez.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 19419 del 31 de octubre de 1989 que lo traspaso del antiguo artículo 41 al 42 actual)
+(Así corrida su numeración por el artículo 4° del decreto ejecutivo N° 19419 del 31 de octubre de 1989 que lo traspaso del antiguo artículo 42 al 43 actual)
