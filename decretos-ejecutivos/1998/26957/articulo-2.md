@@ -1,0 +1,1 @@
+Artículo 2°—Se autoriza a las instituciones centralizadas y descentralizadas estatales, así como las empresas del Estado para que en la medida de sus posibilidades puedan brindar las facilidades materiales, económicas y de cooperación necesaria en la realización de estos eventos.
