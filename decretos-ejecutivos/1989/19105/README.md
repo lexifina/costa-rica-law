@@ -13,3 +13,4 @@ Reglamento Subsidio Tasas Interés Ganaderos Programa IncrementosProductores Act
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-08-04 | la propia norma |
+| 2 | 1989-08-04 | SINALEVI (sin norma nombrada) |
