@@ -1,0 +1,1 @@
+Artículo 2°.-Autorízase al Poder Ejecutivo a contratar total o parcialmente por la vía de licitación, la construcción de obras a que se refiere el Contrato anterior o a realizarlas por administración directa, a discreción del mismo, con base en las partidas que para esas obras se incluyan en el Presupuesto Extraordinario del Préstamo a que se refiere esta ley.

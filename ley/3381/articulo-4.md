@@ -1,0 +1,1 @@
+Artículo 4°.- Autorizase al Poder Ejecutivo para pagar con los fondos del préstamo a que se refiere el Contrato aprobado, los servicios de consulta y supervisión necesarios para realizar dichos proyectos.
