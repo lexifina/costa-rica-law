@@ -1,0 +1,1 @@
+Artículo 6°-Las escrituras de los lotes adjudicados serán tramitadas sin costo fiscal alguno para los beneficiarios, por lo cual queda exento dicho trámite del pago de impuestos nacionales y municipales, así como de tasas, timbres y todo tipo de derechos.
