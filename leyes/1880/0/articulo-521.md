@@ -10,7 +10,7 @@ Sufrirá la pena de arresto en su prado mínimo ó multa de uno á treinta pesos
 8°—El que tomare parte en cencerradas ú otras reuniones ofensivas a alguna persona, no estando comprendido en el número 2 del artículo 519.
 9°—El que se bañare quebrantando las realas de decencía ó seguridad establecidas por la autoridad.
 10°—El que riñere en público sin armas, salvo el caso de justa defensa propia ó de un tercero.
-11°—El que injuriare á otro levemente de obra o de palabra, no siendo por escrito y con publicidad.
+11°—(Derogado por ley N° 33 del 12 de julio de 1910)
 12°—El que dentro de las poblaciones y en contravención á los reglamentos disparare armas de fuego, cohetes, petardos ú otros proyectiles.
 13°—El que corriere carruajes ó caballerías dentro de una población, no siendo en los rasos previstos en el número 6 del artículo 519.
 14°—El que infringiere los reglamentos ó disposiciones relativos á carruajes públicos ó de particulares*
