@@ -1,0 +1,1 @@
+Artículo 14.—Las sesiones ordinarias deben efectuarse en el caserío designado corno cabecera del distrito, en el local que indique el Concejo Municipal, pudiendo el Consejo de Distrito celebrar sesiones extraordinarias en otros caseríos o distritos del mismo cantón o cantones aledaños, para tratar asuntos de interés común.
