@@ -1,0 +1,4 @@
+N° 2702
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
+Decreta:
+Artículo 1°- Se autoriza a la Junta de Protección Social de Puriscal, para comprar al señor Salvador Jiménez Fernández, cédula N° 102.534, vecino de Puriscal, libre de gravámenes hipotecarios y por la suma de sesenta mil colones, un lote de terreno situado en Santiago de Puriscal, que mide 10.482,71 metros cuadrados o sean 14.998,96 varas cuadradas. Linda: Norte, resto de la finca madre y en parte Juan Mesén Madrigal; Sur, con propiedad de Mario Ruiz Barahona, Sucesión Rosalía Vargas y Salvador Jiménez; Este, resto finca madre; y Oeste, calle pública en medio a Junquillo, propiedades de: Clara Jiménez Aguilar y sucesión Rosalía Vargas Porras. El lote descrito es parte de la finca del partido de San José, tomo 1147, folio 426, número 86.547, asiento primero.
