@@ -1,0 +1,10 @@
+N° 3183
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+Artículo 1º.- Refórmanse los artículos 65 y 67 de la Ley Orgánica del Registro Civil, los cuales se leerán así:
+"Artículo 65.- La cédula de identidad llevará las firmas, o facsímiles por medio de la máquina protectora de firmas "protectograph signe", del Director del Registro y de uno de los Oficiales Mayores; y además la de la persona a favor de quien se expide, lo mismo que la fotografía de ésta, marcada con el sello del Registro. Si el interesado no pudiere firmar, por impedimento físico, el Director lo hará constar.
+Las autoridades o encargados de entregar cédulas llevarán un registro en el que firmará la persona que retire la cédula y si no supiere o no pudiere, lo hará tora persona a ruego, debiendo el titular de la cédula imprimir su huella digital (cualquier dedo de una de sus manos).
+La cédula contendrá los siguientes datos: número, nombre y apellidos del dueño de la cédula, sexo, nombres y apellidos del padre y de la madre, estado civil, domicilio, profesión u oficio, edad, si sabe leer, escribir o al menos firmar, lugar y fecha de nacimiento, y fecha de expedición.
+El número de la cédula compondrá de tres partes correspondientes a la inscripción del nacimiento de la persona, así: la primera al número del Partido; la segunda al del Tomo; y la tercera a las cuatro últimas cifras del asiento, cuando las tuviere; pero en esta última parte podrán no consignarse los ceros a la izquierda.
+Artículo 67.-El término de validez de la cédula de identidad es de diez años a partir de la fecha de su emisión; transcurrido ese término se considerará vencida y caduca para todo efecto legal y la inscripción del respectivo ciudadano como elector será cancelada de oficio.
+Sin embargo, en los casos en que los diez años referidos se cumplieren dentro del término de seis meses anteriores a la fecha de una elección, la cédula de identidad y la inscripción del ciudadano respectivo como elector, permanecerán válidas en todos sus efectos hasta el día de la elección inclusive".
