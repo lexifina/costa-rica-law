@@ -1,14 +1,10 @@
-Artículo 3º.- El Ministerio Público será citado desde la primera
-resolución que se dictare en el expediente; y una vez concluída la
-información se le dará audiencia por ocho días sobre su resultado. Esta
-audiencia no podrá ser renunciada y el funcionario respectivo debe
-pronunciarse categóricamente sobre el punto. Cuando en el lugar de
-residencia del Juez no hubiere Agente Fiscal, la información se tramitará
-con el Jefe Político como Representante del Ministerio Público.
-El Representante del Ministerio Público podrá oponerse a la
-titulación de una finca que contenga una área de bosques mayor al
-cincuenta por ciento (50%) de al cultivada, si no se comprueba con
-documento público la debida adquisición, o cuando abrigue la duda de que
-el terreno que se trata de inscribir forma parte de los baldíos nacionales
-y se ha entrado a poseer en virtud de la Ley de Cabezas de Familia u otra
-similar sobre colonización interna.
+ARTÍCULO 3º.- Cuando en el plano presentado apareciere que el
+inmueble se encuentra atravesado por caminos públicos se inscribirá
+formando dos o más fincas, las cuales deberán ser descritas por aparte
+conforme al artículo 1º. Igualmente, el dueño de dos o más fincas
+situadas en el mismo cantón, podrá inscribirlas promomoviendo una sola
+información posesoria.
+En todos los casos, las afirmaciones del titulante tendrán carácter
+de declaración jurada, y cualquier falsedad le hará incurrir en las penas
+del perjurio, si no incurriere en delito de mayor gravedad, a juicio de
+la autoridad penal.

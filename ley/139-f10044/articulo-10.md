@@ -1,16 +1,3 @@
-Artículo 10.- Cualquier error que sea necesario rectificar en un
-título posesorio inscrito, se tramitará en el mismo expediente original;
-y si éste no apareciere, se acompañará al escrito en que se pida la
-rectificación una certificación del Registro Público del asiento
-respectivo.
-Se examinará de nuevo a los testigos que declararon antes o a otros
-si aquéllos no pudieren ser habidos, a fin de que atestigüen sobre la
-identidad de la finca. Respecto a los testigos nuevos, se exigirán las
-mismas condiciones de vecindad y propiedad que a los anteriores. Toda
-rectificación se hará con citación y audiencia del Ministerio Público y de
-las partes interesadas en los mismos términos expresados en el artículo
-4º.
-Los títulos que en adelante se levanten, no podrán ser rectificados
-en cuanto a cabida del terreno por ningún motivo, salvo que se tratare de
-enmendar un error de cálculo de plano, resultante de sus mismos detalles
-de medida.
+ARTÍCULO 10.- Concluida la información, el Juez dará audiencia sobre el resultado de la misma, por el término de ocho días, a la Procuraduría General de la República, por medio de su representante, en el respectivo circuito judicial. Transcurrido aquél sin que hubiere contestación o presentada ésta, siendo satisfactoria y no habiendo oposición oportuna o en caso de que sea declarada infundada por resolución firme, el juez aprobará la información por auto que contenga la descripción del inmueble y mandará practicar, en el Registro Público de la Propiedad, la inscripción solicitada, sin perjuicio de tercero de mejor derecho, por medio de la correspondiente certificación de la resolución, una vez que esté firme.
+La resolución que apruebe o impruebe la información y las que tuvieren ese recurso, según el Código de Procedimientos Civiles, tendrán apelación para ante el Tribunal que corresponda.
+(Así reformado por el artículo 1º de la ley No. 5813 de 4 de noviembre de 1975)

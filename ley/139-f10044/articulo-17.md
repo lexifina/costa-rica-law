@@ -1,2 +1,1 @@
-Artículo 17.- Derógase la ley Nº 11 de 6 de enero de 1939, y la Nº
-358 de 24 de agosto de 1940 que reformó la anterior.
+ARTÍCULO 17.- En cualquier tiempo en que, no habiendo transcurrido todavía los tres años a que se refiere el artículo anterior, se demostrare que el título posesorio se ha levantado contra las leyes vigentes, podrá el Juez decretar en el expediente original, y mediante los trámites de los incidentes, la nulidad absoluta del título y de su respectiva inscripción en el Registro, y librará la ejecutoria correspondiente para que esa Oficina cancele el asiento. Transcurrido el término de tres años de la inscripción del título, toda acción deberá decidirse en juicio declarativo.
