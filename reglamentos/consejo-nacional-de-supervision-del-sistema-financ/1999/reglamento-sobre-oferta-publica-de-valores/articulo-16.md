@@ -1,1 +1,0 @@
-Artículo 16.—Plan anual de emisiones. Los emisores de valores podrán presentar para su autorización conjunta por parte del Consejo Nacional de Supervisión del Sistema Financiero, un plan comprensivo de todas las emisiones cuyo plazo de suscripción se abrirá durante los doce meses siguientes a su autorización.

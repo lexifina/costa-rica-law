@@ -1,1 +1,0 @@
-Artículo 25.—Información sobre el precio, la tasa efectiva y el monto captado. Los emisores deberán remitir diariamente a la Superintendencia y a la bolsa de valores, por los medios y en las condiciones que defina el Superintendente, el precio de colocación de las distintas emisiones activas del día hábil anterior, la tasa efectiva de colocación y el monto colocado en ventanilla.

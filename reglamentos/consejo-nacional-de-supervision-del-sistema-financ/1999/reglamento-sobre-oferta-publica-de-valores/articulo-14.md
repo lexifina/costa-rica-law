@@ -1,4 +1,0 @@
-SECCION IV
-Sujetos autorizados para realizar oferta pública de valores
-Artículo 14.—Sujetos autorizados. De conformidad con lo dispuesto en el artículo 2 de la Ley Reguladora del Mercado de Valores, únicamente podrán realizar oferta pública de valores los emisores de valores y los puestos de bolsa, ambos en relación con valores autorizados para hacer oferta pública, las sociedades administradoras de fondos de inversión en relación con las participaciones de los fondos que administren y las operadoras de pensiones en relación con las participaciones de los fondos de pensión que administren.
-Se consideran como únicas excepciones a lo dispuesto en el párrafo anterior las entidades sujetas a la fiscalización de la Superintendencia General de Entidades Financieras en relación con los valores individuales de deuda que emitan y el Estado e instituciones públicas no bancarias, de conformidad con lo dispuesto en el artículo 10 de la Ley Reguladora del Mercado de Valores.

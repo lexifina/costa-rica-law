@@ -1,1 +1,0 @@
-Artículo 8º—Derechos de participación de fideicomisos. Se presumirá, salvo prueba en contrario, que constituyen valores los certificados que otorguen a sus tenedores derechos de participación en un patrimonio fideicometido, con exclusión de los fideicomisos testamentarios o de garantía.
