@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones tanto del sector público, como las empresas privadas, podrán cooperar con los fines del Consejo Latinoamericano de Electrificación Rural (CLER), conforme con sus atribuciones y competencias, con apego a la normativa vigente.
