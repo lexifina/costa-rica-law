@@ -1,0 +1,1 @@
+ARTÍCULO 2°- Se derogan el inciso ch) del artículo 24, y los artículos 69 y 70 del Reglamento de la Ley del Impuesto sobre la Renta. Asimismo, se deroga el artículo 1° del Decreto N° 20620-H, publicado en "La Gaceta" N° 160 del 26 de agosto de 1991.
