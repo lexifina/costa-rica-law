@@ -1,0 +1,1 @@
+Artículo 30.—Los acuerdos de Junta Directiva se tomarán a base de iniciativa o mociones, escritas o verbales, presentadas por los miembros proponentes, al menos con tres días de antelación, salvo casos de urgencia.

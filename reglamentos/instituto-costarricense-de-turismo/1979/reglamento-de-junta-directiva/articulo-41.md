@@ -1,0 +1,1 @@
+Artículo 41.—El Presidente Ejecutivo en la primera Sesión Ordinaria anual, designará las comisiones que integrarán los miembros de la Junta Directiva, para el estudio y dictamen de los asuntos que por acuerdo se les encomiende.

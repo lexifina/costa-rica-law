@@ -1,0 +1,1 @@
+Artículo 35.—Los acuerdos tomados por la Junta quedarán firmes al aprobarse la respectiva, en la siguiente sesión ordinaria o al haberse declarado así por cinco votos, de conformidad con el requisito establecido al efecto.

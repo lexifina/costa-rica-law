@@ -1,0 +1,1 @@
+Artículo 26.—Los días de sesiones ordinarias serán fijados por la propia Junta, mediante acuerdo específico. La convocatora para sesiones extraordinarias, en ausencia de ambos: del Presidente y Vicepresidente, podrán hacerla dos directores. Para reunirse en sesión ordinaria no hace falta convocatoria especial.

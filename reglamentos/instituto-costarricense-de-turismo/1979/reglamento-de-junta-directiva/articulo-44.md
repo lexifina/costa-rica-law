@@ -1,0 +1,1 @@
+Artículo 44.—Las disposiciones de este reglamento sólo podrán ser derogadas, modificadas o ampliadas, por votación de dos tercios de la totalidad de los miembros de la Junta Directiva del ICT^ es decir, por cinco votos.

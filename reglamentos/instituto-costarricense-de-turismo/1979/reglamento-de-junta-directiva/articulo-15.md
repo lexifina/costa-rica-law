@@ -1,0 +1,1 @@
+Artículo 15.—El Auditor General del ICT es un funcionario de confianza cuyo nombramiento, régimen disciplinario y remoción corresponde a la Junta Directiva, de acuerdo con la ley. Asistirá a las sesiones con voz, pero sin voto.

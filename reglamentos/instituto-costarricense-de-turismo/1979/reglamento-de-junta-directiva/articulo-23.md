@@ -1,0 +1,1 @@
+Artículo 23.—Al Director que no asistiera a una sesión, únicamente se le reconocerá dieta si la ausencia se debiere a enfermedad debidamente comprobada o comisión acordada por la misma Junta, acorde con las funciones y cometidos del ICT.

@@ -1,0 +1,1 @@
+Artículo 39.—Cualquier funcionario o empleado del ICT está obligado a asistir a las sesiones de la Junta Directiva, cuando fuere citado por la Junta o el Presidente, con el propósito de verter criterio técnico sobre algún asunto o simplemente brindar mayor información.

@@ -1,0 +1,1 @@
+Artículo 31.—Las propuestas que no se refieren al tema objeto de deliberación serán eliminadas de la discusión. Las enmiendas a las propuestas, deben ser transmitidas a quien preside antes de ser puestas a debate.

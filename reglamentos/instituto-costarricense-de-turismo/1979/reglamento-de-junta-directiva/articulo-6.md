@@ -1,0 +1,2 @@
+Artículo 6°—Las funciones y atribuciones del Presidente Ejecutivo, por su naturaleza política, son excluyentes de las funciones y atribuciones que por su carácter administrativo ejerce el Gerente.
+La competencia, en las respectivas materias, es exclusiva y por lo tanto cada cual debe abstenerse de conocer y resolver cualquier asunto previsto en este Reglamento para el otro. Queda a salvo lo dispuesto en casos de ausencia y las competencias compartidas.
