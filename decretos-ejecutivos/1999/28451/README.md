@@ -15,3 +15,4 @@ Reglamento a la Ley de Régimen de Zonas Francas.
 | --- | --- | --- |
 | 1 | 2000-02-22 | la propia norma |
 | 2 | 2000-09-19 | Decreto Ejecutivo 28995 (2000-09-19) |
+| 3 | 2001-01-31 | Decreto Ejecutivo 29292 (2001-01-31) |
