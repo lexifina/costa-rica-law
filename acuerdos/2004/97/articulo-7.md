@@ -1,0 +1,1 @@
+Artículo 7º—Periodicidad del Informe Trimestral. La Sociedad deberá remitir a los inversionistas un Informe Trimestral en papel membretado con una periodicidad trimestral dentro del plazo de diez días hábiles posteriores al cierre del 31 de marzo, 30 de junio, 30 de setiembre y 31 de diciembre de cada año.

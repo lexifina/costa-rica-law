@@ -1,0 +1,1 @@
+Artículo 4º—Periodicidad del Estado de Cuenta. La Sociedad deberá remitir a los inversionistas un estado de cuenta en papel membretado con una periodicidad mensual dentro del plazo de diez días hábiles posteriores al cierre de cada mes.
