@@ -1,0 +1,2 @@
+Art. 3°-Los contraventores á esta disposición incurrirán en la multa de veinticinco arrobas de pólvora que, además de la aquí permitida, pesos por cada se encuentre en sus casas ó establecimientos dentro de poblado, sin perjuicio de la responsabilidad que les resulte por los daños que se ocasionen en cualquiera eventualidad siniestra.
+Dado en el Palacio Presidencial, en San José, á los quince días del mes de marzo de mil ochocientos ochenta y cuatro. -P. FERNÁNDEZ. -El Secretario de Estado en el Despacho de Policía. BERNARDO SOTO.
