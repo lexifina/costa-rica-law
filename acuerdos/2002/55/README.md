@@ -14,3 +14,4 @@ Requisitos para la Inscripción de Metodologías de Valoración de Carteras y Te
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-12 | la propia norma |
+| 2 | 2003-06-12 | Acuerdo 56 (2002-03-08) |
