@@ -25,3 +25,4 @@ Reglamento del Registro del Estado Civil
 | 11 | 1963-12-09 | Decreto TSE 3 (1963-12-09) |
 | 12 | 1964-02-13 | Decreto TSE 1 (1964-02-13) |
 | 13 | 1967-08-30 | Decreto TSE 34 (1967-08-30) |
+| 14 | 1968-03-25 | Decreto TSE 1 (1968-03-25) |
