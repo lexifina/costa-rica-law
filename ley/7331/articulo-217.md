@@ -1,7 +1,7 @@
-ARTICULO 217.- De las sumas recaudadas por el concepto de
-multas por infracciones, que señala el inciso d) del artículo 10
-de la Ley No. 6324, el Consejo de Seguridad Vial realizará,
-semestralmente, las siguientes transferencias:
+ARTÍCULO 217.- De las sumas recaudadas por el concepto de multas por
+infracciones, que señala el inciso d) del artículo 10 de la Ley No. 6324,
+el Consejo de Seguridad Vial realizará, semestralmente, las siguientes
+transferencias:
 a) Un diez por ciento (10%) al Poder Judicial, con el fin de
 financiar la creación y el funcionamiento de las alcaldías de
 tránsito y la nueva sección del Organismo de Investigación
@@ -17,8 +17,7 @@ Costarricense, suma que será distribuida, equitativamente, entre
 los diferentes comités auxiliares del país y solo será utilizada
 para la compra y la mejora de sus equipos fijos o rodantes, así
 como para la adquisición de combustibles para sus unidades.
-Los entes y asociaciones que reciban las anteriores
-transferencias, anualmente presentarán un informe de liquidación
-presupuestaria de esos fondos, ante la Contraloría General de la
-República, ente que fiscalizará su correcto uso, de acuerdo con
-la presente Ley.
+Los entes y asociaciones que reciban las anteriores transferencias,
+anualmente presentarán un informe de liquidación presupuestaria de esos
+fondos, ante la Contraloría General de la República, ente que fiscalizará
+su correcto uso, de acuerdo con la presente Ley.
