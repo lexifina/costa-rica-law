@@ -1,0 +1,1 @@
+Artículo 80°- El zonaje se considerará como un sobresueldo: tendrán derecho a zonaje los servidores trasladados temporalmente por Acción de Personal a laborar en un lugar distante de su residencia. El zonaje se regulará por el reglamento que al respecto establezca el Poder Ejecutivo.

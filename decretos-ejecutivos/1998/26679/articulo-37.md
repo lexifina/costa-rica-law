@@ -1,0 +1,1 @@
+Artículo 37°- Las marcas en las tarjetas de asistencia deberán hacerse con el debido cuidado, de manera que queden impresas con claridad, las marcas defectuosas, manchadas, confusas o alteradas, que no se deban a deficiencias en el reloj, marcador, previa comprobación de su responsabilidad, serán atribuidas al funcionario y se considerará como falta grave.

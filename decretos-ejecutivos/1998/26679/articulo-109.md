@@ -1,0 +1,1 @@
+Artículo 109°- Toda sanción o corrección disciplinaria deberá hacerse constar en el expediente que la Unidad de Recursos Humanos llevará para cada uno de los empleados del Ministerio, con la salvedad de la sanción oral.

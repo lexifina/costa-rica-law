@@ -1,0 +1,1 @@
+Artículo 20°- Se establece como derecho de los trabajadores la carrera administrativa debiendo preferirse, en igualdad de condiciones y requisitos en cada plaza vacante, a los servidores regulares más antiguos del Ministerio que por su capacidad y responsabilidad resulten idóneos para el cargo ajuicio de la Dirección General de Servicio Civil.
