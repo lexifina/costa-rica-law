@@ -1,0 +1,7 @@
+Artículo 5°—Área de Protección. (AP)
+a. Propósitos: Zonas dedicadas a la protección y conservación de áreas que por su condición topográfica se definen como inestables, humedales o de vocación forestal. Incluye los humedales bajo la administración del MINAE.
+b. Localización: De acuerdo al mapa N° 21, anexo N° 6, corresponde a las zonas identificadas con las siglas AP, ubicadas en los siguientes sectores: de fuerte pendiente cercano a la carretera costanera frente a los mojones N° 1 y No 41 y del N° 75 + 14 al N° 85; terrenos de fuertes pendientes frente a los mojones No 46 al 58 y sector norte de la carretera costanera entre mojones No 68 al N° 77, los humedales ubicados entre los mojones 58 al 53, del 64 al 67 + 30 m aproximadamente, del 67A al 74 y del 75 al 83, debidamente identificados en la lámina No 23, Ubicación del Humedal.
+c. Usos permitidos: Protección y conservación, sendero peatonal, reforestación y manejo paisajístico, obras de infraestructura estrictamente necesarias para comunicar zonas en el sector entre mojones 47 y 58.
+d. Usos condicionales: Señalización.
+e. Usos conflictivos: Cualquiera que no sea de protección, conservación y recreación sin obras de infraestructura (a excepción del sector indicado anteriormente).
+f. Administración: Las zonas de humedales quedarán bajo la administración del MINAE, conforme al artículo 73 de la ley 6043, el resto quedará bajo administración de la Municipalidad de Osa quien la otorgará en concesión al ocupante para los fines de protección y conservación.

@@ -1,0 +1,7 @@
+Artículo 15.- Observaciones generales
+a. En general, salvo que no exista otra alternativa, no se permitirá la descarga en la playa de aguas pluviales canalizadas o entubadas. Si esto fuera inevitable, deberá presentarse un proyecto detallado que asegure que no habrá erosión en la playa, ni existe riesgo de que la descarga pluvial se obstruya. Las construcciones existentes que violan estas disposiciones deberán modificarse en este sentido.
+b. Los drenajes pluviales, en general, podrán conducirse hacia las quebradas, siempre y cuando se mitigue e! impacto de las aguas a las quebradas y de estas al océano.
+c. Ningún pozo privado de agua potable podrá construirse a una distancia menor de 50 metros de los subdrenajes de tanques sépticos. Debe solicitarse al Ministerio de Salud que analice la potabilidad del agua que se extrae de los pozos existentes.
+d. En la línea de frente de la construcción, no se podrán construir vallas sólidas con una altura mayor de un metro. Por sobre esta altura, se podrá colocar únicamente verjas con elementos que permitan una buena visibilidad tales como rejas, mallas, etc. Se establece un porcentaje de permeabilidad del 80%. Se excluye de esta disposición el caso de los muros de retención.
+e. Ninguna vía pública permitirá el acceso de vehículos motorizados a la playa.
+f. Aquellos lotes que tengan colindancias con ríos, quebradas, cárcavas o escorrentías permanentes, deberán de presentar el alineamiento de los mismos dado por la Dirección de Urbanismo del INVU antes de iniciar cualquier construcción.
