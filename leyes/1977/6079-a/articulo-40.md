@@ -1,19 +1,5 @@
 ARTICULO 40
 Cláusula de Aplicación Territorial
-1.-Todo Estado podrá, en el momento de la firma, de la ratificación o
-de la adhesión, declarar que esta Convención se hará extensiva a la
-totalidad o a parte de los territorios de cuyas relaciones internacionales
-sea responsable. Tal declaración surtirá efecto a partir del momento en
-que la convención entre en vigor para el Estado interesado.
-2.-En cualquier momento de la firma, de la ratificación o de la
-adhesión, declarar que esta Convención se hará extensiva a la totalidad o
-a parte de los territorios de cuyas relaciones internacionales sea
-responsable. Tal declaración surtirá efecto a partir del momento en que
-la Convención entre en vigor para el Estado interesado.
-3.-Con respecto a los territorios a los que no se haya hecho extensiva
-la presente Convención en el momento de la firma, de la ratificación o de la
-adhesión, cada Estado interesado examinará la posibilidad de adoptar, a la
-mayor brevedad posible, las medidas necesarias para hacer extensiva la
-aplicación de esta Convención a tales territorios, a reserva del
-consentimiento de los gobiernos de tales territorios, cuando sea necesario
-por razones constitucionales.
+1.-Todo Estado podrá, en el momento de la firma, de la ratificación o de la adhesión, declarar que esta Convención se hará extensiva a la totalidad o a parte de los territorios de cuyas relaciones internacionales sea responsable. Tal declaración surtirá efecto a partir del momento en que la convención entre en vigor para el Estado interesado.
+2.-En cualquier momento de la firma, de la ratificación o de la adhesión, declarar que esta Convención se hará extensiva a la totalidad o a parte de los territorios de cuyas relaciones internacionales sea responsable. Tal declaración surtirá efecto a partir del momento en que la Convención entre en vigor para el Estado interesado.
+3.-Con respecto a los territorios a los que no se haya hecho extensiva la presente Convención en el momento de la firma, de la ratificación o de la adhesión, cada Estado interesado examinará la posibilidad de adoptar, a la mayor brevedad posible, las medidas necesarias para hacer extensiva la aplicación de esta Convención a tales territorios, a reserva del consentimiento de los gobiernos de tales territorios, cuando sea necesario por razones constitucionales.

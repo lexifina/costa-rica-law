@@ -1,10 +1,4 @@
 ARTICULO 42
 Reservas
-1. En el momento de la firma, de la ratificación o de la adhesión,
-todo Estado podrá formular reservas con respecto a artículos de la
-Convención que no sean los artículos 1, 3, 4, 16 (1), 33 y 36 a 46
-inclusive.
-2. Todo Estado que haya formulado alguna reserva con arreglo al
-párrafo 1 del presente artículo podrá, en cualquier momento, retirarla
-mediante comunicación al efecto dirigida al Secretario General de las
-Naciones Unidas.
+1. En el momento de la firma, de la ratificación o de la adhesión, todo Estado podrá formular reservas con respecto a artículos de la Convención que no sean los artículos 1, 3, 4, 16 (1), 33 y 36 a 46 inclusive.
+2. Todo Estado que haya formulado alguna reserva con arreglo al párrafo 1 del presente artículo podrá, en cualquier momento, retirarla mediante comunicación al efecto dirigida al Secretario General de las Naciones Unidas.
