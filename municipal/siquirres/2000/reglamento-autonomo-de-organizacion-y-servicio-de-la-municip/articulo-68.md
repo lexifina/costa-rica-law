@@ -1,0 +1,1 @@
+Artículo 68.—La Municipalidad deberá acatar las disposiciones que en materia de salud ocupacional establece la Convención, especialmente en cuanto al suministro de implementos, herramientas y equipo de protección a los trabajadores.

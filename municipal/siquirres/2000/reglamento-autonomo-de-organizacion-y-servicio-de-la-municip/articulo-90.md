@@ -1,0 +1,2 @@
+Artículo 90.—La jornada ordinaria de trabajo de los servidores municipales, se desarrollará conforme lo establece el Artículo 27 Convencional. No obstante, la municipalidad, podrá establecer jornadas ordinarias inferiores a estas por razones de salud, ocupación, u horarios de trabajo distintos a los allí señalados.
+En cuanto a la jornada y horario de trabajo de los conserjes, guardas, chóferes y cualquier otro puesto que lo justifique, será regulado por la Oficina de Personal, en conjunto con el jefe de la dependencia respectiva.

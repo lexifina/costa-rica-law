@@ -1,0 +1,3 @@
+Artículo 143.—En todo caso la acción disciplinaria prescribirá:
+a. Si dentro del mes siguiente a la fecha en que se tuvo conocimiento de los hechos, estos no se denuncian por escrito ante la Oficina de Personal.
+b. Si la instrucción del procedimiento disciplinario se paraliza totalmente por un mes. Si dicha paralización obedece a la inercia de la Junta de Relaciones Labores, sus miembros incurrirán en responsabilidad administrativa, que será sancionada disciplinariamente conforme al artículo 149 y 150 del Código Municipal, sin perjuicio de la responsabilidad civil o penal que pudiera acarrear su conducta.

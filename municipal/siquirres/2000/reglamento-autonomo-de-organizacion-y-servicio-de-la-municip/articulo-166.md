@@ -1,0 +1,1 @@
+Artículo 166.—En defecto de disposiciones propias de este Reglamento deberán tenerse como supletorias las contenidas en el Código Municipal, Código de Trabajo y demás leyes, decretos y reglamentos conexos en la materia que estén en vigencia. Asimismo el Manual Descriptivo de Puestos de la Municipalidad.

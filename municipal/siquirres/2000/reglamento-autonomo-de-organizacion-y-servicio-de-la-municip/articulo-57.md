@@ -1,0 +1,3 @@
+CAPÍTULO XIV
+De las licencias
+Artículo 57.—El Alcalde Municipal, según lo establecido en el artículo 145 del Código Municipal, podrá otorgar permisos sin goce de salario hasta por seis meses prorrogables, a los funcionaros que sí lo soliciten. Esta solicitud deberá hacerse por escrito, al menos con 8 días de anticipación ante el jefe inmediato del solicitante quien la remitirá dentro de los dos días siguientes a su recibo con su criterio a la Oficina de Personal, para el respectivo trámite. Los asuntos de carácter urgente, podrán gestionarse verbalmente y deberán resolverse del mismo modo, en forma inmediata.

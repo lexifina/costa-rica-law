@@ -1,0 +1,1 @@
+Artículo 71.—Para los casos protegidos por la C.C.S.S. o por el I.N.S., la Municipalidad reconocerá el subsidio necesario para completar el sueldo completo devengado por el servidor, conforme a su antigüedad y en la forma prevista en el artículo siguiente:
