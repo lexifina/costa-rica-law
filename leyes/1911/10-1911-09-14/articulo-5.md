@@ -1,0 +1,2 @@
+Articulo 5° Por el valor de cada casa, el interesado dará a la Compañía hipoteca del terreno y de la construcción; y el Estado, además, entregará a la Compañía bonos del Tesoro, por igual suma, los cuales devengarán el seis por ciento de intereses y se pagarán con una amortización de dos por ciento al año.
+Ningún interesado podrá construir más de una casa y el valor de ésta no excederá de £ 1,000. Exceptúese al Estado y a los Municipios, que pueden construir conforme a sus necesidades.

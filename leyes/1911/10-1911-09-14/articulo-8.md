@@ -1,0 +1,1 @@
+Artículo 8° La Compañía dará comienzo a sus operaciones dentro de los cuatro meses siguientes a la fecha en que se perfeccione su contrato. Se entenderá desde luego por iniciado el negocio, si la Compañía tuviere materiales de construcción situados en el país a lo menos de un valor de cinco mil libras.
