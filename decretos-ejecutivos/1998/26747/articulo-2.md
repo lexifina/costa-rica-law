@@ -1,0 +1,1 @@
+Artículo 2°- Cada uno de los Programas Nacionales Sectoriales estarán a cargo de un profesional denominado Gerente, quien coordinará las políticas y medidas emanadas del nivel rector hacia los niveles de ejecución.
