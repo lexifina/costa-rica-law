@@ -16,4 +16,5 @@ Considerando:
 6º—Mediante oficio STAP-CIRCULAR 0485-03 del 23 de abril del 2003, se comunicó al C.N.C. el límite de gasto fijado para el año 2004.
 7º—Que es necesario modificar el límite fijado, a los efectos de incorporar dichos recursos. Por tanto:
 DECRETAN:
-Artículo 1º—Modificase al Consejo Nacional de Concesiones el límite de gasto para el año 2004, establecido en el artículo 1° del Decreto Ejecutivo Nº 31092 H, publicado en La Gaceta N° 63 del 31 de marzo del 2003, y comunicado en el STAP-CIRCULAR 0485-03 del 22 de abril del 2003, de manera que el gasto presupuestario no exceda la suma de ¢1.191.4 millones en ese período.
+Artículo 1º—Modificase al Consejo Nacional de Concesiones el límite de gasto para el año 2004, establecido en el artículo 1° del Decreto Ejecutivo Nº 31092 H, publicado en La Gaceta N° 63 del 31 de marzo del 2003, y comunicado en el STAP-CIRCULAR 0485-03 del 22 de abril del 2003, de manera que el gasto presupuestario no exceda la suma de ¢1.377.9 millones en ese período.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31766 del 1° de abril de 2004)

@@ -14,3 +14,4 @@ Modifica Límite de Gasto Presupuestario al Consejo Nacional de Concesiones, est
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-22 | la propia norma |
+| 2 | 2004-04-01 | Decreto Ejecutivo 31766 (2004-04-01) |
