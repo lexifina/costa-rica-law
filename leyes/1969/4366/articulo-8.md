@@ -9,8 +9,9 @@ La provincia de Heredia comprende los cantones de Heredia, Barba, Santo Domingo,
 (*) (Mediante el artículo 1° de la ley N° 4671 del 18 de noviembre de 1970, se creó el Cantón de Sarapiquí.)
 La provincia de Guanacaste comprende los cantones de Liberia, Nicoya, Santa Cruz, Bagaces, Carrrillo, Cañas, Abangares, Tilarán, Nandayure, La Cruz, Hojancha(*).
 (*) (Mediante el artículo 1° de la ley N° 4887 del 2 de noviembre de 1971, se creó el Cantón de Hojancha.)
-La Provincia de Puntarenas comprende los cantones de Puntarenas, Esparta, Buenos Aires, Montes de Oro, Osa, Aguirre, Golfito, Coto Brus, Parrita(*), Corredores(**).
+La Provincia de Puntarenas comprende los cantones de Puntarenas, Esparta, Buenos Aires, Montes de Oro, Osa, Aguirre, Golfito, Coto Brus, Parrita(*), Corredores(**), Garabito(***).
 (*) (Mediante el artículo 1° de la ley N° 4787 del 5 de julio de 1971, se creó el Cantón de Parrita.)
 (**) (Mediante el artículo 1° de la ley N° 5373 del 19 de octubre de 1973, se creó el cantón de Corredores.)
+(***) (Mediante el artículo 1° de la ley N° 6512 del 1° de noviembre de 1980, se creó el Cantón de Garabito.)
 La provincia de Limón comprende los cantones de Limón, Pococí, Siquirres, Talamanca, Matina, Guácimo(*).
 (*) (Mediante el artículo 1° de la ley N° 4753 del 3 de mayo de 1971, se creó el Cantón de Guácimo.)
