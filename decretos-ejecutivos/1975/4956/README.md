@@ -15,3 +15,4 @@ Supremacía del MOPT en Materia de Transportes
 | --- | --- | --- |
 | 1 | 1975-06-27 | la propia norma |
 | 2 | 1975-06-27 | SINALEVI (sin norma nombrada) |
+| 3 | 1975-06-27 | Ley 8 |
