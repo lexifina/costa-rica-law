@@ -14,3 +14,4 @@ Reglamento Orgánico de la Junta de Protección Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-05 | la propia norma |
+| 2 | 2003-09-25 | Decreto Ejecutivo 31530 (2003-09-25) |

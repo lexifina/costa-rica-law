@@ -5,7 +5,8 @@ c) Nombrar a tos Directores de Área y a los Jefes de Departamento, para lo cual
 d) Ejecutar los acuerdos tomados por la Junta Directiva que directamente corresponden a la Gerencia e informar sobre el resultado de la gestión. Asimismo, velará por el cumplimiento de los demás acuerdos tomados por la Junta Directiva e informará sobre el resultado de sus gestiones.
 e) Revisar y aprobar en forma preliminar los planes de loterías preparados por la Dirección de Producción y Ventas y someterlos a conocimiento de la Junta Directiva, para su aprobación final.
 f) Suscribir las campañas publicitarias propuestas por el Departamento de Mercadeo, o la Dirección de Producción y Ventas y someterlas al conocimiento de la Junta Directiva, para su aprobación final.
-g) Presidir el Consejo Administrativo de la institución, que deberá reunirse al menos una vez por mes. Este estará conformado por el Gerente, Sub-Gerente, Directores de Área, Jefes de los Departamentos de Informática, Planificación, Asesoría Legal y Acción Social.
+g) Presidir el Consejo Administrativo de la Institución, que deberá reunirse al menos una vez por mes. Estará conformado por el Gerente, Subgerentes, Directores de Área, Jefe de los Departamento de Informática, Planificación, Asesoría Legal y Acción Social.
+(REFORMADO parcialmente por el artículo 1° del Decreto Ejecutivo N° 31530 del 29 de setiembre de 2003, publicado en La Gaceta N° 244 de 18 de diciembre de 2003.)
 h) Ejercer la representación administrativa, judicial y extrajudicial de la institución, con carácter de apoderado general.
 i) Supervisar los sorteos de loterías Nacional, Popular, Instantánea y cualquier otro que en el futuro se establezca, así como los Programas de Televisión y otros medios.
 j) Proponer a la Junta Directiva las normas generales y las políticas de la Institución y cuidar de su debido cumplimiento.
