@@ -1,0 +1,1 @@
+Artículo 2°.- Los Ministerios, Instituciones Autónomas y Empresas Estatales, cuando necesiten cambiar sus vehículos o aumentar la flotilla correspondiente, tendrán que hacerlo prioritariamente por vehículos eléctricos, de lo contrario deberán contar con la aprobación de la Unidad de Transporte Eléctrico, creada mediante decreto ejecutivo N° 25473 MOPT-MINAE.
