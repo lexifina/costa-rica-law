@@ -1,0 +1,1 @@
+Articulo 64: El piloto al mando de la aeronave, así como el copiloto, debern rendir en forma separada un Informe Preliminar del Accidente o Incidente, dentro de las 48 horas posteriores al acaecimiento de los hechos.

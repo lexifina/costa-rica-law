@@ -1,0 +1,7 @@
+Articulo 15:- Toda aéronave y Helicóptero deberá abastecerse de la cantidad de combustible y aceite suficiente que permita cuando menos la ejecución de las maniobras que se des cr iben según el tipo de vuelo, y deberá ajustarse a las siguientes disposiciones.
+a. Bajo las reglas de vuelo visual la cantidad permitira volar hasta el aeródromo de destino y un excedente de cuarenta y cinco minutos más a potencia de cr ucero.
+b. Para las operaciones de vuelo instrumental, la cantidad debe cubrir una de las alternativas siguientes:
+i. volar hasta el aeródromo de destino, de este ultimo al alterno, y un periódo de cuarenta y cinco minutos a potencia de cr ucero.
+ii. Volar hasta el aerodromo alterno pasando por un punto previamente determinado, y sumado cuarenta y cinco minutos más a potencia de cr ucero. En este caso las cantidades no podrán ser menores que las exigidas para volar hasta aerodromo de destino y al aerodromo alterno, sumando cuarenta y cinco minutos, mas el porcentaje del quince por ciento que se empleara a niveles de cr ucero.
+iii. Volar al aerodromo de destino, mas un lapso minimo de dos horas siempre y cuando la cantidad de combustible requerida no sea inferior a lo especificado en los puntos anteriores.
+c. A falta de aerodromo alterno adecuado, el combustible requerido deber a ser el necesario para volar al aerodromo de destino proyectado, mas un periodo igual de cuarenta y cinco minutos, sumando además un quince por ciento del tiempo de vuelo que se proyecta emplear en niveles de cr ucero.

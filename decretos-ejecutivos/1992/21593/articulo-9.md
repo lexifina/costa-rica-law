@@ -1,0 +1,1 @@
+ARTICULO 9: Es obligación del piloto informar Departamento de Operaciones y este a su vez a las autoridades encargadas de las deficiencias de las instalaciones y servicios de los aerodromos que encontrara en el transcurso de sus operaciones.

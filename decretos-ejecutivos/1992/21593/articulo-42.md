@@ -1,0 +1,1 @@
+ARTICULO 42: Las aéronaves en todos sus vuelos deben estar equipadas con los instrumentos necesarios para que los tripulantes de vuelo puedan verificar su trayectoria, ejecutar cualquier maniobra reglamentaria ejecutar cualquier maniobra reglamentaria requerida y observar las limitaciones de operación en las condiciones previstas.

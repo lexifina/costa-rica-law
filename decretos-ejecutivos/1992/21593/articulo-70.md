@@ -1,0 +1,1 @@
+Articulo 70: En los casos de emergencia en que exista peligro para la seguridad de la personas y se necesiten tomar medidas de seguridad urgentes ,el piloto al mando debe notificar lo ocurrido en forma inmediata al jefe de operaciones por cualquier medio de comunicación disponible y posteriormente en forma es cr ita.

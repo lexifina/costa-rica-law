@@ -1,0 +1,1 @@
+Articulo 31: Se podrá ser miembro de una tripulación de vuelo como piloto al mando siempre y cuando haya efectuado en dicha aéronave por lo menos tres despegues y tres aterrizajes con parada total en los últimos noventa dias. La anterior disposición será aplicable a los copilotos cuando la aeronave le requiera.

@@ -1,0 +1,1 @@
+Articulo 51:- Es obligatorio portar en la aeronave o helicóptero el manual de operación de vuelo que contiene la información y especificaciones del fabricante o en su caso de la autoridad aeronáutica del país de diseño.

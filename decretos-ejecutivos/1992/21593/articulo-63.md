@@ -1,0 +1,1 @@
+Articulo 63: Cuando ocurra un accidente o incidente a una aeronave o helicóptero de policia, deber a el piloto al mando, o el copiloto, en su defecto, el Departamento de operaciones, convocar a la comisión de Accidentes e Incidentes, a efecto de que realicé una investigación, y recomiende a la Dirección General lo procedente.

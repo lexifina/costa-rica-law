@@ -1,0 +1,1 @@
+ARTICULO 18. Las aéronaves se operaran de conformidad con lo indicado en el Certificado de Aeronavegabilidad, y dentro de las limitaciones de utilización establecidas en el Manual de Vuelo de la aéronave, y en Manual de Operaciones, este ultimo elaborado por el Departamento de Operaciones Aeronauticas.

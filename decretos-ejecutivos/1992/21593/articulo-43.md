@@ -1,0 +1,1 @@
+ARTICULO 43: El departamento de operaciones incluira en el manual de operaciones de vuelo la información necesaria para que el piloto al mando determine si puede continuar el vuelo en el caso cualquier equipo o instrumento o combinación de estos deje de funcionar.

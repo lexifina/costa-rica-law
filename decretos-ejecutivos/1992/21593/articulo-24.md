@@ -1,0 +1,1 @@
+Articulo 24:- La Dirección General del Servicio de Vigilancia Aérea preparara programas de adiestramiento y cursos de repaso periódicos para los despachadores de vuelo haciendo enfasis en los procedimientos de emergencia establecidos.

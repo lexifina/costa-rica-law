@@ -1,0 +1,1 @@
+Articulo 26:- Siempre que la aéronave o helicópetro cuente con un espacio para la permanencia de un mecanico, técnico de a bordo o auxiliar de cabina éste será incluido dentro de la tripulación de vuelo.

@@ -1,0 +1,1 @@
+Articulo 34: El piloto al mando esta en la obligación notificar a la mayor brevedad posible al Departamento Operaciones o a una autoridad aeronaútica competente estación o aerodromo de mayor proximidad, todo accidente incidente que le ocurriera.

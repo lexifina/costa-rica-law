@@ -1,0 +1,1 @@
+Articulo 47:- El equipo de radionavegación deberá estar funcionando en forma tal que en caso de falla de uno de sus elementos, el equipo restante sea suficiente para permitir que la aeronave navegue .

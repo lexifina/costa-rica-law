@@ -1,0 +1,1 @@
+Articulo 68: Ocurrido un Accidente o Incidente, y mientras se realiza la investigación correspondiente, se procedera suspender la Habilitación del piloto al mando de la aéronave accidentada, pudiendo continuar operando otras aeronaves diferentes al tipo de aeronave accidentada o incidentada.

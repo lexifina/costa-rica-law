@@ -1,0 +1,1 @@
+Articulo 4:- Los integrantes de las tripulaciones deberán de tener el debido conocimiento de la leyes, reglamentos y procedimientos aplicables, asimismo de los aeródromos, servicios e instalaciones de los mismos que se usarán

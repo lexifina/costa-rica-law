@@ -1,0 +1,1 @@
+Artículo 73:- Los mecanicos de aviones y helicópteros de Policía que no hayan cumplido con el requisito de instrucción básica deberán cumplir con el mismo dentro del plazo de seis mese a partir de la publicación del presente reglamento.

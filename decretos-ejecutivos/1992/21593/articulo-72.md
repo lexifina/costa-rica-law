@@ -1,0 +1,1 @@
+Articulo 72:- Los mecanicos de las aéronaves y helicópteros de policía deben cumplir con el curso de instrucción básica, tener aprobado como mínimo el tercer año de educación diversificada y cumplir con los requisitos establecidos para las habilitaciones.

@@ -1,0 +1,1 @@
+Articulo 6:- Cuando se transporte pasajeros no se permitirá llevar articulas que por su naturaleza representen peligro para la navegación aérea, operación, seguridad del personal o pasajeros a bordo, salvo que dichos productos sean absolutamente indispensables o necesarios para la operación, según el cr iterio del jefe de operaciones.

@@ -1,0 +1,1 @@
+Articulo 55:- Para otorgamiento de habilitaciones al personal de mecánicos de aviación se consideraran sus conocimientos, experiencia , capacidad y capacitación, la cual será valorada por la Dirección General del Servicio de Vigilancia Aérea acorde con lo que establece el reglamento de aeronavegabilidad y el Manual de Operaciones.

@@ -1,0 +1,3 @@
+Articulo 13:- Para la realización de un vuelo instrumental, deberá indicarse en el plan de Vuelo Operacional y en el Plan de Vuelo por lo menos un aeródromo alterno. No obstante, se podrá omitir este requisito en los siguientes casos:
+a: Si la duración del vuelo y las condiciones metereológicas prevalecientes permitan predecir con certeza que la aproximación al aeropuerto de destino podrá hacerse en condiciones visuales. Esta predicción debe abarcar una hora antes y una hora después de la hora estimada para el arribo.
+b: Cuando no se cuente con un aerodromo alterno adecuado. Las condiciones meteorológicas de aproximación del aeródromo alterno deben ser iguales o superiores a las del aeródromo de destino.

@@ -1,0 +1,1 @@
+Articulo 35: Al concluir el vuelo el piloto al mando de la aeronave está en la obligación de reportar todos los defectos que note en la aéronave, siendo responsable del registro inmediato de la información en la bitácora de abordo.

@@ -1,0 +1,1 @@
+Articulo 3:_ La Dirección del Servicio de Vigilancia Aérea dotará a los integrantes de tripulaciones de las Aeronaves y Helicópetros de Policia de los recursos e información necesaria para la realización de vuelos dentro y fuera del país.

@@ -1,0 +1,1 @@
+Articulo 54:- Para el otorgamiento de habilitaciones a los pilotos y copilotos se requerirá la aprobaciópn de exámenes teóricos y prácticos realizados ante un instructor calificado y cumplir con los requisitos estipulados en el Manual de Operaciones y cualquier otro que determine la Dirección General del Servicio de Vigilancia Aérea.

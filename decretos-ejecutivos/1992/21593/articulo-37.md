@@ -1,0 +1,1 @@
+Articulo 37: El piloto al mando y el despachador conjuntamente con el jefe de operaciones seran responsables de toda acción tomada respecto al planeamiento, desviación, demora y autorizaciónes otorgadas.

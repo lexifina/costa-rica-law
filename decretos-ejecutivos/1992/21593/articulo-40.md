@@ -1,0 +1,6 @@
+ARTICULO 40: El Departamento de Operaciones establecerá y mantendrá un programa de instrucción y verificación periódica aprobado por la Dirección, que deber a ser cubierto anualmente por cada miembro del personal auxiliar de abordo al que se le asigne funciones de emergencia; comprobando que cada mienbro de dicho personal auxiliar cumple con los siguientes requisitos:
+a-Sea competente para ejecutar aquellas obligaciones funciones que se asignen en una emergencia de vuelo o de una situación que requiere evacuación de emergencia.
+b-Este capacitado para utilizar el equipo de emergencia y salvamento, tales como chalecos salvavidas, balsas tales como salvavidas, evacuación, salidas de emergencia, extintores portátiles, equipo de deslizadores de evacuación, salidas de emergencia, extintores portátiles, equipo de oxígeno y botiquín de primeros auxilios.
+c- cuando preste servicio en aeronaves que vuelen por encima de tres mil metros posea conocimientos respecto al efecto de la falta de oxígeno y en caso de aeronaves con cabina de presión, lo que se refiere a fenómenos fisiológicos inherentes a una pérdida de presión.
+d-Conozca las asignaciones y funciones de los otros miembros de la tripulación en caso de una emergencia para poder las desempeñar.
+e-Haya aprobado un curso de primeros auxilios y de actualización.

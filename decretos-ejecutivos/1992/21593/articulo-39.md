@@ -1,0 +1,1 @@
+Articulo 39: El número mínimo del personal auxiliar de aborbo sera establecido por el departamento de operaciones tomando en cuenta las recomendaciones del fabricante y las emitidas por la Direccion General Servicio de Vigilancia Aerea, con el fin de efectuar una evacuación segura y expedita de la aeronave.

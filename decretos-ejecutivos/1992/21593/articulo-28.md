@@ -1,0 +1,1 @@
+Articulo 28: No se permitirá el acceso a la cabina de pilotos a pesonas que no formen parte de la tripulación excepto el personal que sea autorizado por la Dirección y siempre que medie concentimiento del piloto al mando.

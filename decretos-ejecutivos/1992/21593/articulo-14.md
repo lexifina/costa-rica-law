@@ -1,0 +1,1 @@
+Articulo 14:- Ninguna aéronave proseguirá su aproximación para aterrizaje si las condiciones meteorológicas son menores a las mínimas establecidas para el aerodromo al cual se aproxima, se exceptuán los casos de emergencia.
