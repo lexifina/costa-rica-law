@@ -1,1 +1,0 @@
-Artículo 18.-Las embarcaciones de los Resguardos atenderán al trasporte de mercaderías y pasajeros en aquellos lugares en que la iniciativa particular no haya previsto, pero esto, supeditado a las exigencias de los deberes que directamente les incumben. La Secretaría de Hacienda fijará en su caso las tarifas que deben regular esos trasportes.
