@@ -1,0 +1,1 @@
+Art 5. Tan luego como el Gobernador de Puntarenas tenga noticia oficial de quienes sean las personas que el Gobierno haya nombrado para vocales y suplentes de la Junta de caridad, la comunicará á los nombrados, y señalará el dia en que debe instalarse la indicada junta, en cuya primera sesion acordará el reglamento por el cual ella debe regirse en lo sucesivo.

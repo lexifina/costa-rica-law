@@ -1,0 +1,1 @@
+Art 2. Para la fábrica del edificio se señalan 1° el producto íntegro del ramo de patentes de licores extrangeros en Puntarenas, mientras dure la obra: 2° las donaciones que haga el comercio y vecindario de aquel puerto.
