@@ -1,0 +1,5 @@
+Artículo 3º—Los aspirantes a inscribirse en el Registro Oficial de Certificadores de Uso Conforme del Suelo, deberán cumplir con los siguientes requisitos:
+a) Estar debidamente incorporados al Colegio de Ingenieros Agrónomos de Costa Rica y en ejercicio vigente de la profesión.
+b) Poseer grado mínimo de Bachiller en Ingeniería Agronómica con énfasis en Fitotecnia o Generalista o grado mínimo de Bachiller en Ciencias Forestales. Además podrán ser aspirantes otros profesionales miembros del Colegio de Ingenieros Agrónomos con postgrado o especialización en materia de suelos o conservación de suelos. Todos deberán demostrar experiencia práctica mínima de un año en estudios para planificación y desarrollo del uso de la tierra.
+Los miembros del Colegio de Ingenieros Agrónomos con grado mínimo de Bachiller en Ciencias Forestales, podrán fungir como Certificadores de Uso Conforme del Suelo, en tierras en las que se desarrollarán proyectos forestales.
+c) Cursar y aprobar el Curso de Certificadores de Uso Conforme del Suelo, impartido por el Colegio de Ingenieros Agrónomos y el MAG-INTA.

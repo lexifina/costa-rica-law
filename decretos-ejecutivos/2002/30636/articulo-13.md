@@ -1,0 +1,1 @@
+Artículo 13.—El Departamento de Suelos y Evaluación de Tierras del MAG-INTA, de común acuerdo con el Colegio de Ingeniero Agrónomos de Costa Rica, revisará periódicamente el contenido del Curso de Certificadores de Uso Conforme del Suelo, para adecuarlo según lo ameriten las circunstancias.

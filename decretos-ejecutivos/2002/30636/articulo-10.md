@@ -1,0 +1,1 @@
+Artículo 10.—La relación entre el Colegio de Ingenieros Agrónomos de Costa Rica y los Certificadores de Uso Conforme del Suelo, así como entre ellos, la Administración del Estado y las empresas regentadas, se regirá por lo estipulado en la Ley Orgánica del Colegio de Ingenieros Agrónomos Nº 7221 del 6 de abril de 1991 y su Reglamento.

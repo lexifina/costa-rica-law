@@ -1,0 +1,1 @@
+Artículo 4º—El Colegio de Ingenieros Agrónomos emitirá en cada curso, dos tipos de certificados: a) Uno de Asistencia al Curso para quienes hayan asistido al menos al 80% del curso y b) Uno de Aprobación del Curso para quienes hayan satisfecho los requisitos de aprobación del curso.

@@ -1,0 +1,1 @@
+Artículo 11.—Para realizar su labor fiscalizadora sobre los Certificadores de Uso Conforme del Suelo, el Colegio de Ingenieros Agrónomos de Costa Rica podrá establecer las cuotas correspondientes, las cuales deberá pagar el interesado debidamente inscrito en el Registro Oficial de Certificadores.

@@ -1,0 +1,1 @@
+Artículo 12.—Las tarifas de honorarios por la labor de los Certificadores de Uso Conforme del Suelo, se regirán de acuerdo con el valor mínimo de la hora profesional para la prestación de servicios privados en ciencias agropecuarias y forestales.

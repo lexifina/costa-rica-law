@@ -1,0 +1,10 @@
+Nº 30636-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERIA
+Con fundamento en lo dispuesto en los artículos 140, incisos 3) y 18), y 146 de la Constitución Política, la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública, la Ley Nº 7064 del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería, la Ley Nº 7779 del 30 de abril de 1998, Ley de Uso, Manejo y Conservación de Suelos y la Ley Nº 8149 del 5 de noviembre del 2001, Ley de Creación del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria.
+Considerando:
+1º—Que mediante Ley Nº 7779 del 30 de abril de 1998, se emitió la Ley de Uso, Manejo y Conservación de Suelos, la cual se encuentra debidamente reglamentada y establece como función del Ministerio de Agricultura y Ganadería, el llevar un Registro de las personas físicas o jurídicas de carácter privado dedicadas a realizar proyectos para el mejor uso, manejo y conservación de suelos, así como acreditar y autorizar a los profesionales respectivos como Certificadores de Uso Conforme del Suelo.
+2º—Que la implementación del Registro indicado, permitirá la participación de profesionales de libre ejercicio y de reconocida capacidad en el campo de la Edafología, en el cumplimiento de los fines dispuestos por la Ley Nº 7779, en beneficio de la eficiencia y eficacia de las gestiones que deben ser cumplidas por los interesados y la atención de los objetivos de naturaleza pública, bajo la supervisión y control de la Administración.
+3º—Que mediante Ley Nº 8149 del 5 de noviembre del 2001, se creó el Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA), como un órgano de desconcentración máxima del MAG, el cual asumirá en su momento las funciones de la Dirección de Investigaciones Agropecuarias. Por tanto,
+Decretan:
+Artículo 1º—Créase el Registro Oficial de Certificadores de Uso Conforme del Suelo, con sede en el Departamento de Suelos y Evaluación de Tierras de la Dirección de Investigaciones Agropecuarias del Ministerio de Agricultura y Ganadería (MAG-INTA).

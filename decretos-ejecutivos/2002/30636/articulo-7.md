@@ -1,0 +1,1 @@
+Artículo 7º—Los postulantes que no aprobaren el curso tendrán derecho a realizar un examen extraordinario, cuya fecha definirá el Comité Evaluador. En caso de reprobar el examen extraordinario, el postulante interesado en fungir como Certificador de Uso Conforme del Suelo deberá repetir el curso.

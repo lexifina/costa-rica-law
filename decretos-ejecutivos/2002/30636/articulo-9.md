@@ -1,0 +1,1 @@
+Artículo 9º—Los gastos administrativos para la inscripción en el Registro de Certificadores de Uso Conforme del Suelo se fijan inicialmente en la suma de diez mil colones y serán depositados por el interesado en la Cuenta Estaciones Experimentales del MAG, Programa 4, Actividad 2, Nº 20239-0 del Banco Nacional de Costa Rica.
