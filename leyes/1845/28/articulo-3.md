@@ -1,0 +1,1 @@
+Art. 3. Se les autoriza igualmente para mediar é interponer los respetos de Costa Rica en las desavenencias que hayan ó puedan suscitarse entre los demas Estados, á fin de restablecer entre ellos la paz y buenas relaciones que deben haber entre pueblos hermanos.

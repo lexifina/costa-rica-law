@@ -1,0 +1,1 @@
+Art. 2 Se les autoriza plenamente para entrar en conferencias con los Representantes de los otros Estados, acordar é iniciar cualesquiera arreglos ó planes que juzguen acertados, á fin de establecer la unión ó constituir un Gobierno comun, reservándose Costa Rica la aceptación y ratificación de tales planes y arreglos.
