@@ -1,0 +1,1 @@
+Art 5°.- Del mismo impuesto de ocho reales por cada marca, tomarán los Gobernadores dos reales en recompensa de su trabajo de estampar las marcas y la razón conveniente y en sacar las copias que prescribe la ley.
