@@ -1,2 +1,0 @@
-Artículo 3º—Los miembros del Tribunal durarán en sus cargos dos años y sus nombramientos se harán en el siguiente orden: en el año impar el presidente el secretario y un vocal, por su orden; el siguiente año el vicepresidente y el otro vocal. Podrán ser reelegidos.
-Los suplentes serán elegidos por un año y sus funciones a excepción de ocupar un puesto titular por las causas enumeradas en el artículo dos, serán exclusivamente el día de las elecciones, y trabajarán conjuntamente con el Tribunal , todos podrán ser reelegidos.

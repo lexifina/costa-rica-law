@@ -1,1 +1,0 @@
-Artículo 10.—Para la elección a distancia de miembros de Junta Directiva de los Consejos Regionales, el Consejo nombrará, de su seno, a dos representantes, que coordinarán y supervisarán el proceso eleccionario.
