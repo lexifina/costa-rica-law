@@ -1,19 +1,20 @@
-Artículo 119.—De las especies que se dirán, únicamente se permitirá la exportación de los productos forestales comprendidos del número 9) al 29), ambos inclusive, del artículo 115.
+Artículo 119.-De las especies que se dirá, únicamente se permitirá la exportación de los productos forestales comprendidos del número 9) al 29), ambos inclusive, del artículo 115.
 Nombre común | Nombre científico | Familia
-Ron ron | Astronium graveolems | ANACARDIACEAE
-Probado | Bsilcxylum excelsum Cedrela fisilis | STERCULIACEAE MELIACEAE
-Cocobola | Dalbergia retusa | FABACEAE
-Olla de mono | Lecythia costarricense | LECYTHIDACEAE
-Magnolia | Magnolia poasana | MAGNOLIACEAE
-Tempisque | Mastichodendrum capiri var tempisque | SAPOTACEAE
-Manú | Minguartía guanensis | OLACACEAE
-Bálsamo | Myroxilum balsamun | FABACEAE
-Níspero chicle | Manilkara acharas Acras zapata | SAPOTACEAE
-Nazareno | Peltogyne purpurea | FABACEAE
-Cristóbal | Platymiscium pinnatum | FABACEAE
-Surá | Terminalia lúcida | COMBRETACEAE
-Guayabón negro | Terminalia bucidoides | COMBRETACEAE
-Roble | Quercus copeeyensis | FABACEAE
-Cedro amargo | Cedrela mexicana | MELIACEAE
-Laurel | Bombacopsis quinatum | BOMBACACEAE".
-(Así reformado por el artículo 1° del decreto ejecutivo N° 13907 del 5 de octubre de 1982)
+Ron Ron | Astronium graveolens | Anacardiaceae
+Probado | Basiloxylon excelsum | Sterculiaceae
+Cocobola | Dalbergia retusa | Fabaceae
+Olla de mono | Lecythis costarricense | Lecythidaceae
+Magnolia | Magnolia poasana | Magnoliaceae
+Tempisque | Mastichodendrum capirivar tempisque | Sapotaceae
+Manú | Minquartia quianensis | Olacaceae
+Bálsamo | Myroxilum balsamun | Fabaceae
+Nispero chicle | Manikara achras | Sapotaceae
+Nazareno | Peltogyne purpurea | Fabaceae
+Cristóbal | Platymiscium pinnatum | Fabaceae
+Surá | Terminalia lucida | Combretaceae
+Guayabán negro | Terminalia bucioides | Combretaceae
+Roble | Quercus sp | Fabaceae
+Cedro amargo | Cedrela mexicana | Meliaceae
+Laurel | Cordia alliodora | Boraginaceae
+Pochote | Bombacopsis quinatum | Bombacaceae."
+(Así reformado por el artículo 1° del decreto ejecutivo N° 14671 del 11 de julio de 1983)
