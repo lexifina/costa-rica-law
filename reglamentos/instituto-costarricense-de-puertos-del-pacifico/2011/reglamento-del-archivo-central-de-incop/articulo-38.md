@@ -1,0 +1,1 @@
+Artículo 38.—El encargado del archivo Institucional de acuerdo con la directriz anteriormente mencionada deberá establecer las políticas y los procedimientos institucionales para la creación, organización, utilización y conservación de los documentos en cualquier soporte, y estas son de acatamiento obligatorio para todos los funcionarios del INCOP.

@@ -1,0 +1,1 @@
+Artículo 18.—Los usuarios particulares o internos deberán hacer silencio en el local de consulta, no rayar los documentos, no ingerir alimentos o bebidas. Asimismo, se prohíbe fumar en cualquiera de las áreas del Archivo Central. Además, queda terminantemente prohibida la permanencia de personas ajenas a ese recinto.

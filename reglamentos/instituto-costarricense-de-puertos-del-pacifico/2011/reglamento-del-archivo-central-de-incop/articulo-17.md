@@ -1,0 +1,2 @@
+Artículo 17.—Cualquier ciudadano interesado en consultar documentos deberá hacer la solicitud por escrito indicando con toda claridad el objetivo de su investigación, llenará la boleta de Préstamo de Documentos y, además, deberá identificarse con su cédula de identidad, pasaporte o carné de estudiante, según sea el caso.
+Los usuarios externos no podrán sacar los documentos del edificio del Archivo Central, el estudio y revisión de los documentos solicitados lo efectuarán en el local de consulta destinada para los usuarios.

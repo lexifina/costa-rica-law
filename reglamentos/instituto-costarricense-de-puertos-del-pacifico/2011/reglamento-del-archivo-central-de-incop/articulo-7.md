@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del edificio e instalaciones
+Artículo 7º—El local del Archivo Central deberá reunir las condiciones necesarias que garanticen la conservación óptima de los documentos, tomando en cuenta el grado de humedad relativa del aire, temperatura, luz e insectos. Además deberá contar con las medidas técnicas para la extinción y prevención de incendios y robos. No obstante, la Dirección Administrativa Financiera en coordinación con el Encargado del archivo central, establecerán un plan de mantenimiento y de necesidades del mismo, a fin de asegurar el resguardo y cuido de la documentación y medios electrónicos existentes en el local o locales definidos para este fin.

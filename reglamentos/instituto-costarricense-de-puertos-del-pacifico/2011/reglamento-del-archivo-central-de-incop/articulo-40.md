@@ -1,0 +1,1 @@
+Artículo 40.—El encargado del archivo institucional deberá realizar un informe a la Gerencia General acerca de las necesidades existentes, a fin de poder contar con el espacio físico necesario, con las condiciones ambientales idóneas y mobiliario necesario para la preservación de los documentos en soporte electrónico.

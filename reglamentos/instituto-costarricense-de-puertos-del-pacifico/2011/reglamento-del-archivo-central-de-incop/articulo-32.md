@@ -1,0 +1,1 @@
+Artículo 32.—Los funcionarios indicados en artículo anterior podrán delegar en otros, siempre y cuando cuenten con las mismas condiciones profesionales. Entre ellos se elegirá un Presidente y un Secretario, electos por mayoría absoluta y durarán un año en el cargo pudiendo ser reelectos. El Comité implantará las normas de trabajo y fecha de reuniones.
