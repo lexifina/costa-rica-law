@@ -13,3 +13,4 @@ Ejecuta Decisión Nº 10 Comisión Adm. Tratado Libre Comercio con MéxicoSobre 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-18 | la propia norma |
+| 2 | 1999-05-18 | SINALEVI (sin norma nombrada) |
