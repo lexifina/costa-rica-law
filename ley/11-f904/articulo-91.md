@@ -1,0 +1,1 @@
+Art. 91.-Las faltas accidentales de los Secretarios en determinado negocio, por recusación, impedimento excusa ú otro motivo, y las temporales, serán suplidas por el Prosecretario, y en defecto de éste, por dos testigos de asistencia que deberán reunir las condiciones exigidas en el Código Civil para serlo en los instrumentos públicos.

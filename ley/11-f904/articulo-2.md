@@ -1,0 +1,1 @@
+Art. 2°. -El Poder Judicial es independiente de toda otra autoridad en el ejercicio de sus funciones y las resoluciones que dicte en los negocios, sometidos no le imponen otra responsabilidad que la que expresamente determine la ley.

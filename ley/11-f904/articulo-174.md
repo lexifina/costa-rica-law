@@ -1,0 +1,2 @@
+Art. 174.-Los Arbitros y los Arbitradores no nombrados por las partes mismas ó sus mandatarios, pueden ser recusados por las mismas causas y en los mismos términos que los demás Jueces.
+A los nombrados por la parte contraria, únicamente se les puede recusar por causa que produzca impedimento conforme al artículo 159, y á los que una parte hubiere nombrado por sí mismo de acuerdo con la contraria, sólo podrá recusarlos dicha parte por justa causa que haya sobrevenido después del nombramiento ó que el recusante ignorase al hacer éste.

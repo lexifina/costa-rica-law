@@ -1,0 +1,1 @@
+Art. 168.-Los motivos de recusación á que se refieren los primeros diez números del artículo anterior, son también bastantes para recusar á los que hayan de intervenir en el juicio como Secretarios ó Notificadores.

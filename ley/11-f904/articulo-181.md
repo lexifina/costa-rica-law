@@ -1,0 +1,1 @@
+Art. 181.-Lo dicho en los artículos anteriores es aplicable los testigos, peritos ó cualesquiera otros que como partes ó representándolas, faltaren en las vistas ú otros actos judiciales, de palabra, de obra ó por escrito, á la consideración, respeto, y obediencia debidos los Tribunales, cuando los hechos no constituyan delito.

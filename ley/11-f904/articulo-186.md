@@ -1,0 +1,1 @@
+Art. 186.-Las correcciones de los abogados y procuradores se impondrán siempre por el Juzgado ó Tribunal donde se siguieren los autos que dieren lugar á ellas, ó en los que se hubieren propasado en la defensa oral.

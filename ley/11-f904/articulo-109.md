@@ -1,0 +1,1 @@
+Art. 109.-Los Jueces ejecutores en el desempeño de su comisión deberán actuar asistidos de dos testigos, observar las disposiciones legales que reglamenten el caso y obrar dentro de los límites que les señale el mandamiento en que se les confiere la comisión.

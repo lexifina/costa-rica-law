@@ -1,0 +1,1 @@
+Art. 107.-Los Tribunales y Juzgados nombrarán defensor de oficio á los menores, viudas, personas desvalidas ó reos que no tuvieren quien los represente y defienda en los negocios judiciales en que fueren interesados.

@@ -1,0 +1,4 @@
+Art. 115.-El Juez con jurisdicción para conocer de un negocio la tiene también para conocer de de sus tercerías y demás incidentes, salvo que en un juicio de menor cuantía viniere una reconvención, compensación, tercería ú otro incidente que deba tramitarse en juicio de mayor cuantía, pues en tal caso deberán pasar tanto el juicio principal, como el incidental al conocimiento del Juez superior, quien los tramitará conforme la cuantía de cada uno.
+Sin embargo, no será motivo para inhibición del Juez de menor cuantía:
+1°.-La compensación que se oponga de una deuda de más de doscientos cincuenta pesos, si el crédito fuere reconocido por el deudor.
+2°.-La compensación y reconvención sobre créditos de más de doscientos cincuenta pesos, si el acreedor limitare su demanda á esa cantidad renunciando el exceso.

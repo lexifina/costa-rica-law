@@ -1,0 +1,5 @@
+CAPITULO II.
+Visitas de los Juzgados y Cárceles.
+Art. 191.-Los Jueces de 1a Instoncia civil están obligados á visitar una vez al año y cada vez que lo mande el superior, las Alcaldías de su respectiva jurisdicción. En esta visita se informarán del modo como los Alcaldes ejercen sus funciones, examinando los expedientes, archivo, mobiliario, inquiriendo cualesquiera otros datos sobre el particular por cuantos medios están á su alcance. Del resultado de la visita el Juez levantará una acta detallada de lo conducente en un libro que habrá en la Alcaldía al efecto, y en ella hará las prevenciones oportunas.Si hubiere varios Jueces las visitas se harán por el que determine la Sala 1a de Apelaciones.
+Si de la visita resultare que se ha cometido por el Alcalde alguna falta la corregirá, según su gravedad, con una de las penas que fija el artículo 190, y si un delito mandará levantar la respectiva sumaria.
+De las providencias del Juez visitador que imponga alguna pena correctiva, puede alzarse el visitado para ante las Salas de Apelaciones, en lo criminal; y se suspenderá el cumplimiento de la corrección si fuere multa ó suspensión.

@@ -1,0 +1,1 @@
+Art. 148.-Para dictar providencias preventivas, además del Juez competente para el negocio principal, lo es también, en caso de urgencia, el del lugar donde se hallare el demandado ó la cosa que deba ser asegurada.

@@ -1,0 +1,1 @@
+Art. 160.-Es nula cualquiera resolución que se dictare, fuera de las relativas á la inhibición ó separación, por un Juez impedido ó por un Tribunal cuya formación concurra un Magistrado con impedimento, ó conforme al dictamen de un Asesor que legalmente no pueda serlo.

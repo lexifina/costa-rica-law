@@ -1,0 +1,1 @@
+Art. 102.-Para el cumplimiento de lo ordenado en el artículo anterior, deberán los funcionarios respectivos formar á fin de cada año un inventario por duplicado de los expedientes fenecidos dos años antes, los cuales remitirán al Archivo Nacional y recogerán á recibo en uno de los ejemplares del inventario.

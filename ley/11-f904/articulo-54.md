@@ -1,0 +1,1 @@
+Art. 54.-Para que haya Corte Plena bastará la concurrencia de las dos terceras partes de sus miembros, si se tratare de asuntos administrativos. En los demás casos deberán concurrir todos sus miembros; si alguno no asistiere por impedimento ó por cualquiera otra causa, deberá ser repuesto por un Conjuez.
