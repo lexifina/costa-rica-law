@@ -13,3 +13,4 @@ Disposiciones Prórroga Contratos Concesionarios Transporte RemuneradoPersonas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-07-08 | la propia norma |
+| 2 | 1976-07-08 | SINALEVI (sin norma nombrada) |

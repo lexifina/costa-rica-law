@@ -10,7 +10,7 @@ personas en vehículos automotres y con el propósito de no causarles
 perjuicio a los concesionarios interesados en gestionar la prórroga
 correspondiente,
 DECRETAN:
-Artículo único.- Los concesaionrios del transporte remunerado de
+Artículo único.- Los concesionarios del transporte remunerado de
 personas que llegaren a tener caducos sus derechos y que deban gestionar
 la prórroga que señala la ley Nº 5523 al 15 de mayo de 1974 lo podrán
 hacer válidamente dentro de los treinta días siguientes a la publicación
