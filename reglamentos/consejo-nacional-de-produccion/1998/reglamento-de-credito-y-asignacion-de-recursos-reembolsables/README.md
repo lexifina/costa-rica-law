@@ -16,3 +16,4 @@ Reglamento de Crédito y Asignación de Recursos Reembolsables y No Reembolsable
 | 1 | 1998-10-05 | la propia norma |
 | 2 | 1999-04-07 | Reglamento 2078 (1999-04-07) |
 | 3 | 2003-07-02 | Reglamento 2462 (2003-07-02) |
+| 4 | 2004-01-20 | Reglamento 2497 (2004-01-21) |
