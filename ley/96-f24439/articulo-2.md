@@ -1,0 +1,1 @@
+Art 2°.- Que igualmente manifieste a aquellas Autoridades la disposición de Costa rica a admitir tales juzgados con tal que la segunda Instancia competa a la Corte Superior del Estado, en cuyo caso la última o tercera podrá ser a la Suprema Corte conforme al art° 196 de la Constitución Federal.

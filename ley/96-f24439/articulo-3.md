@@ -1,0 +1,3 @@
+Art 3°.- Que entre tanto el mismo Congreso no resuelva, no de posesión ni permita que el Estado exersa jurisdicción alguna el Ciudadano Benito Benabent solicitando del Presidente de la República la revocación de su nombramiento y el que se digne mirar este Decreto no como un acto subversivo, sino como un estrecho deber de los Representantes de Costa rica, en consequencia del sistema adoptado y del conocimiento que se tiene del referido Benabent.
+Al Consejo Representativo= Dado en San José a los treinta días del mes de mayo de mil ochocientos veinte y seis.
+Por tanto: EXECUTESE San José junio tres de mil ochocientos veinte y seis.
