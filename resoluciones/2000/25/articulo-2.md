@@ -1,0 +1,1 @@
+Artículo 2°—Se deja sin efecto la resolución N° 18 de las ocho horas del día doce de julio del dos mil, publicada en La Gaceta 144 del veintisiete de setiembre del dos mil, que actualizó el impuesto especifico a dieciséis colones con ochenta céntimos (₡16,80), para los meses de agosto, setiembre y octubre del dos mil.
