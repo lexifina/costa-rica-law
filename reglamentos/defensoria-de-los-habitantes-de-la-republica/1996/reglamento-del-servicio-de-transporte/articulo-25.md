@@ -1,0 +1,3 @@
+CAPITULO V
+Descentralización de la administración de vehículos
+Artículo 25.-El Director Administrativo será el encargado de centralizar o descentralizar la administración de vehículos de la institución. Esto se hará cuando se requiera utilizar los vehículos en forma exclusiva en programas o actividades específicas. Para ese efecto tomará en cuenta factores geográficos, la naturaleza de los servicios, costos de asignación y otros que considere pertinentes. Cuando se haya cumplido con la actividad o disminuido el requerimiento del vehículo, podrá ser centralizada la administración de este en el Departamento de Proveeduría y Servicios Generales.

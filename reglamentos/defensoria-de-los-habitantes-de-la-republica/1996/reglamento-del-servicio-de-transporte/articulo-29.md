@@ -1,0 +1,1 @@
+Artículo 29.-Ninguna oficina podrá alegar derechos sobre la asignación indefinida de determinado vehículo. Los casos de convenios o contratos especiales indicarán expresamente el periodo en que se requerirá de la asignación del vehículo.

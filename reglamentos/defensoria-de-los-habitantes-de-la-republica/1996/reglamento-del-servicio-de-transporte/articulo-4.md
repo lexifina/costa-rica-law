@@ -1,0 +1,1 @@
+Artículo 4°-Queda prohibido consumir o portar bebidas alcohólicas o cualquier tipo de drogas sicotrópicas en los vehículos de la institución. Aquellos que así lo hagan, se sancionarán conforme lo establecido en este Reglamento, sin perjuicio de otra normativa que se deba aplicar al respecto.

@@ -1,0 +1,1 @@
+Artículo 9°-Estarán regidos por este reglamento todos los vehículos propiedad de la institución o al servicio de sus dependencias. Todos deben llevar rótulos visibles en los costados de la carrocería que indiquen claramente el nombre de la institución.

@@ -1,0 +1,1 @@
+Artículo 52.-Semanalmente el encargado de la unidad móvil o su asistente deberá calcular el rendimiento del vehículo en términos de gasto de combustible, o sea kilómetros recorridos por litro de combustible gastado. Este cálculo deberá anotarlo en la bitácora mencionada en el artículo 50 de este Reglamento.

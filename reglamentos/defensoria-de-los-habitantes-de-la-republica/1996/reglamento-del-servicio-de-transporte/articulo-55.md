@@ -1,0 +1,1 @@
+Artículo 55.-Solamente se autorizará el uso del vehículo durante los fines de semana cuando se trate de cumplir con actividades incluidas dentro del programa de trabajo y estén debidamente autorizados por el Coordinador del Proyecto, quien lo comunicará por escrito a la unidad móvil respectiva con anticipación a su salida.

@@ -1,0 +1,1 @@
+Artículo 21.-Los conductores no podrán ceder en ningún momento la conducción del vehículo a persona alguna, excepto que tenga autorización expresa del Departamento de Proveeduría y Servicios Generales. En caso de fuerza mayor, deberá explicar por escrito al jefe del Departamento de Proveeduría y Servicios Generales las razones que lo indujeron a hacerlo.

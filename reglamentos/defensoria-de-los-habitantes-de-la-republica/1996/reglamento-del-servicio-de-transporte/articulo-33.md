@@ -1,0 +1,1 @@
+Artículo 33.-El jefe del Departamento de Proveeduría y Servicios Generales estará en la obligación de controlar que toda persona que conduzca un vehículo de la institución porte el respectivo carné. El guarda de la Defensoría de los Habitantes solicitará el carné antes de permitir la salida del vehículo.

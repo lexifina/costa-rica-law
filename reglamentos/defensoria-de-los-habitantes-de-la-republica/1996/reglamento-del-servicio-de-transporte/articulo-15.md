@@ -1,0 +1,15 @@
+Artículo 15.-Todas aquellas personas que estén autorizadas para conducir vehículos de la Defensoría de los Habitantes tendrán las siguientes responsabilidades:
+a) Portar y mantener al día su licencia de conductor, así como el carné interno.
+b) Informar al Departamento de Proveeduría y Servicios Generales sobre la renovación de su licencia de conductor.
+c) Conservar, custodiar y brindar mantenimiento a los vehículos que se le asignen para cumplir su trabajo, debiendo justificar de inmediato cualquier daño o avería que se presente.
+d) Tener buen comportamiento, honestidad, moralidad, sensatez, seguridad y disposición de colaborar durante la realización del servicio.
+e) Sujetarse estrictamente al destino descrito en la solicitud de servicio, salvo caso de fuerza mayor que amerite algún cambio de trayectoria, el cual debe ser justificado al regreso del servicio.
+f) Informar de inmediato y por escrito al Departamento de Proveeduría y Servicios Generales cualquier desperfecto o daño que se observe en el vehículo a su cuidado o que le fue asignado, en especial cuando requieran los servicios de un mecánico. El incumplimiento de esta disposición hará incurrir al conductor en responsabilidad por la agravación de los daños y perjuicios que su omisión cause, debiendo pagar los costos que correspondan.
+g) Mantener en el mejor estado de limpieza y conservación el vehículo que se le asigne o cualquier otro que sea pertinente a criterio del Departamento de Proveeduría y Servicios Generales.
+h) Portar y custodiar las herramientas, repuestos y accesorios. Cuando por descuido o negligencia estos desaparezcan del vehículo, el costo de reposición se deducirá de su salario, sin perjuicio de otras sanciones que correspondan.
+i) Informar de inmediato al Departamento de Proveeduría y Servicios Generales, a las Autoridades de Tránsito y al Instituto Nacional de Seguros, cualquier accidente, colisión, robo o siniestro que sufra el vehículo y realizar las gestiones que correspondan ante las autoridades de tránsito, judiciales y del Instituto Nacional de Seguros.
+j) Comunicar por escrito, al superior inmediato, cualquier irregularidad que se presente en el cumplimiento de su función.
+k) Vigilar que el vehículo o vehículos a su cargo cumplan el plan de mantenimiento preventivo e informar de inmediato en forma escrita al Departamento de Proveeduría y Servicios Generales la necesidad de adelantar la fecha de mantenimiento preventivo cuando así se requiera.
+l) Someterse a exámenes médicos que evidencien, en cualquier momento, la capacidad de conducir vehículos en el desempeño de su trabajo.
+m) Revisar el vehículo antes de cada salida o el día anterior de ser posible, para asegurar que las llantas (presión y estado), herramientas, combustible, agua, aceite, frenos y el vehículo en general, estén en condiciones adecuadas para realizar la gira. Deberá informar de inmediato cualquier aspecto que pueda ocasionarle problemas en el servicio.
+n) Los funcionarios que ostenten el cargo de chofer deberán colaborar con los usuarios para subir, bajar o acomodar materiales y/o equipos y velar por la seguridad de lo que se transporta en el vehículo.

@@ -1,0 +1,1 @@
+Artículo 3°-Todas las disposiciones que responsabilizan de la administración y control de vehículos al Jefe del Departamento de Proveeduría y Servicios Generales se aplicarán a los directores, jefes o encargados que tienen asignados vehículos automotores en forma descentralizada.

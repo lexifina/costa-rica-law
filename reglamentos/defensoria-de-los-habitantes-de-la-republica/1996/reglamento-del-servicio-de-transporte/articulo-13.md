@@ -1,0 +1,2 @@
+Artículo 13.-EI Departamento de Proveeduría y Servicios Generales, establecerá los mecanismos para asegurar que los servicios se presten conforme a las políticas y normas vigentes en la materia. Tendrá la potestad de suspender temporalmente los servicios de transporte, de cualquier naturaleza, a aquellas dependencias que incumplan las disposiciones de este Reglamento.
+La Dirección Administrativa resolverá cualquier asunto en materia de transporte no contemplado en este Reglamento.

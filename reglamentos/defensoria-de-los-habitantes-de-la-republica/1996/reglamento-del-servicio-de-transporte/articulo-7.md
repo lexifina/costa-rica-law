@@ -1,0 +1,1 @@
+Artículo 7°-Ninguna persona que conduzca vehículos de la institución podrá estacionarios cerca de lugares que, por su condición de centros de diversión u otra característica, puedan perjudicar la imagen de la Defensoría de los Habitantes.

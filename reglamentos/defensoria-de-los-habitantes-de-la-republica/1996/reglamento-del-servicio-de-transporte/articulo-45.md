@@ -1,0 +1,1 @@
+Artículo 45.-La Dirección Administrativa podrá, cuando lo considere oportuno y como acto preventivo para proteger los intereses que la Defensoría de los Habitantes de la República, suspender o anular el permiso para conducir vehículos de la institución.

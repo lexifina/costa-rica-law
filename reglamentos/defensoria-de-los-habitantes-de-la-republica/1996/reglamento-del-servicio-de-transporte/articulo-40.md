@@ -1,0 +1,1 @@
+Artículo 40.-Cuando un vehículo haya sido adquirido para una función específica y ésta finalice, la Dirección Administrativa debe analizar la conveniencia de mantener o eliminar del servicio el vehículo en cuestión.

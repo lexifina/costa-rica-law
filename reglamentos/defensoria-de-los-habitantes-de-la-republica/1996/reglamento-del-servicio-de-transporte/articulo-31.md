@@ -1,0 +1,1 @@
+Artículo 31.-Se prohíbe extender permiso para conducir vehículos de la institución a aquellos funcionarios que no tengan licencia emitida por la Dirección General de Transporte Automotor del Ministerio de Obras Públicas y Transportes o que tal licencia se encuentre vencida.

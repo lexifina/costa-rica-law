@@ -1,0 +1,1 @@
+Artículo 37.-EI jefe del Departamento de Proveeduría y Servicios Generales será el responsable de determinar cuáles vehículos deben ser eliminados del servicio porque sus condiciones mecánicas implican un riesgo para la seguridad de los usuarios, o que sufran un daño mecánico irreparable previo informe técnico (peritazgo).

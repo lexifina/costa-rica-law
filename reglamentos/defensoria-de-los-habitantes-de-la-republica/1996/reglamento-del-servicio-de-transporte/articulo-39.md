@@ -1,0 +1,1 @@
+Artículo 39.-EI Departamento de Proveeduría y Servicios Generales podrá conservar aquellas piezas o conjunto de piezas que puedan emplearse como repuestos. En los demás casos procederá a venderlos o permutarlos de acuerdo con la Ley de Administración Financiera.

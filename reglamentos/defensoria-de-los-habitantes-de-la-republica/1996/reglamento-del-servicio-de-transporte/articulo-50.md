@@ -1,0 +1,1 @@
+Artículo 50.-EI Promotor de Defensa o por delegación de éste, el Asistente de Defensa, deberá llevar una bitácora de ruedo en donde se anoten los kilómetros recorridos entre las comunidades visitadas, así como el kilometraje por desplazamientos en las comunidades visitadas.

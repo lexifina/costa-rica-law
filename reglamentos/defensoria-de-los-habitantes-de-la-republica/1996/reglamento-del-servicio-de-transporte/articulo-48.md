@@ -1,0 +1,1 @@
+Artículo 48.-Será responsabilidad del Promotor, como encargado de la unidad móvil, el mantenimiento preventivo de esta. Esto implica que deberá cumplir fielmente el programa de mantenimiento preventivo de la unidad que se le entregue, ya sea por parte de la Coordinación del Proyecto o del Departamento de Proveeduría y Servicios Generales.

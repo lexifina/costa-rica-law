@@ -1,0 +1,1 @@
+Artículo 51.-EI funcionario de las unidades móviles a quien le corresponda, en un momento determinado, llevar el vehículo para que le abastezcan de combustible deberá llenar la tarjeta de control que existe para ese fin. Igual responsabilidad le recae cuando se le cambie aceites al vehículo.
