@@ -1,2 +1,0 @@
-Articulo 21.—El bien que no se adjudique en el primer remate. será rematado 30 días después por segunda vez con un descuento del 10% de la base del primer remate, y si en esta ocasión tampoco fuere adjudicado, se procederá a su venta directa con un descuento del 20% de la base del primer remate.
-Transcurrido un mes desde la oferta de venta directa sin que hubiere comprador el bien será vendido sin base.

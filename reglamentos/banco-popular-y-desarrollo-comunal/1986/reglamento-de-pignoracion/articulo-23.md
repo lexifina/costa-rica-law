@@ -1,1 +1,0 @@
-Artículo 23.—Cualquier excedente obtenido en el remate de un bien respecto a la deuda pertenece al deudor. Tales saldos se publicarán en el Diario Oficial, con la única cita al número de contrato de préstamo, para que los interesados se presenten a hacer sus retiros. Para estos efectos se seguirá el plazo de prescripción mercantil.

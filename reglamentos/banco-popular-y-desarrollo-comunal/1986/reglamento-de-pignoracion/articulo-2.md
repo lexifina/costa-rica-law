@@ -1,1 +1,0 @@
-Articulo 2°—Los préstamos sobre bienes se harán hasta por las sumas aprobadas por la Junta Directiva Nacional para esta línea y deberán ser reembolsados al Banco en cuota" periódicas que comprenderán un mínimo de amortización del 2% del monto principal, intereses y otros gastos cuando éstos existan.

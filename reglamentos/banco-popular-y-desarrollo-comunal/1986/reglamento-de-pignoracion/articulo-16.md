@@ -1,1 +1,0 @@
-Artículo 16.—Todos los bienes deberán cubrir los gastos administrativos en que incurriere el Departamento de Pignoración por el anuncio y ejecución de los remates respectivos y serán cobrados según porcentaje que fije la Junta Directiva Nacional.

@@ -1,2 +1,0 @@
-Artículo 15.—Los remate serán presididos por el jefe del Departamento o su sustituto, con la colaboración del personal que se considere necesario.
-Se utilizarán los servicios de un Corredor Jurado quien tendrá a cargo el remate de las prendas debiendo informar al Jefe del Departamento el nombre de las personas a quienes se adjudiquen. A este remates deberán asistir un funcionario de la Auditoria del Banco en calidad de fiscalizador.

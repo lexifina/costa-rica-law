@@ -1,1 +1,0 @@
-Artículo 22.—En los remates todo deudor tiene derecho a recuperar sus bienes antes de ser Adjudicado a un tercero. Para la eficiencia de este derecho es preciso que el deudor o el portador del contrato de préstamo, pague la suma correspondiente previo anuncio del Corredor Jurado.
