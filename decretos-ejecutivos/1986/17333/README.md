@@ -14,3 +14,4 @@ Reglamento Comisión Calificadora de Servicio Exterior.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-12-12 | la propia norma |
+| 2 | 1990-08-17 | Decreto Ejecutivo 19901 (1990-08-17) |

@@ -8,7 +8,7 @@ Artículo 1°.
 1.—La Comisión Calificadora, estará integrada por:
 a) Tres funcionarios del Ministerio de Relaciones Exteriores y Culto;
 b) Un representante de la Dirección General de Servicio Civil;
-c) Un representante de las instituciones de enseñanza superior en las que se imparten carteras afines con la carrera diplomática; y
+c) (Así derogado este inciso mediante el artículo 1° del decreto ejecutivo N° 19901 del 17 de agosto de 1990).
 d) Un miembro de cada uno de los dos par idos políticos que tenga mayor representación en la Asamblea Legislativa de la República.
 2.—El Director General del Servicio Civil, someterá .a la consideración del Ministro de Relaciones Exteriores y Culto, el nombre de la persona que representará a esa Dirección en la Comisión.
-3.-El representante de las instituciones de enseñanza superior y los representantes de los partidos políticos serán escogidos de ternas que someterán dichas entidades a la consideración del Ministro.
+3.- (Así derogado este inciso mediante el artículo 1° del decreto ejecutivo N° 19901 del 17 de agosto de 1990).
