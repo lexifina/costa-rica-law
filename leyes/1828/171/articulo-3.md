@@ -1,0 +1,9 @@
+CAPITULO 3°.
+Del Ensayador.
+24.- Es de la inmediata obligación y solicitud del Ensayador, no sólo las funciones que le competen como tal, sino también las del Fiel de moneda e Inspector de las operaciones de fundación y demás mecánica de la amonedación.
+25.- Se destinar una oficina separada para este Ministro, y en ella sus forjas, hornillas, escaparate y lo demás concerniente su empleo, todo lo cual se ha de costear de cuenta de la casa, como también los gastos de muflas, cápelas, carbón, aguas fuertes y demás ingredientes.
+26.- El Ensayador, a m s de intervenir en el rescate de los metales, debe asistir disponer y ligar las crazadas con el Fundidor, firmando en el libro la razón de ellas, ver y frecuentar las fundiciones, hallarse presente los actos de rendición, reconocer las afinaciones del oro y plata, el modo con que se trabaja y beneficio que se les d con todo lo demás que se ofrece.
+La aligación debe hacerse en términos que nunca haga bajar la moneda de oro de la ley de veintiún quilates, y la de plata de la del diez dineros veinte granos.
+27.- Debiendo ejercer las funciones del Fiel de moneda es de su deber recibir por inventario las oficinas ‚ instrumentos que se ocupen para la labor, como son: molinos, volantes, hileras, blanqueación, cortes, tórculos, cuadrados de acuñar, muñecas, con todo lo demás que corresponde este empleo.
+28.- Es de su obligación la labor de los metales que se le entreguen en barras ¢ rieles, ensayados hasta devolverlos en moneda acuñada y corriente, debiendo cuidar con escrupulosidad que salga ajustada completamente su respectivo peso de círculo cabal, bien acordonada, blanqueada y acuñada y en todo sentido perfectamente acabada.
+29.- Para la seguridad de la casa, m quinas, utensilios ‚ intereses que la correspondan deber residir día y noche en ella, adonde se trasladar con su familia.

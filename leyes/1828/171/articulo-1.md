@@ -1,0 +1,20 @@
+DECRETO 171.
+El Jefe del Estado libre de Costa Rica.
+Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
+La Asamblea Constitucional del Estado libre de Costa-Rica, para dar el lleno al decreto de siete de octubre del presente año, ha tenido a bien decretar y decreta el REGLAMENTO PROVISIONAL para la Casa de Moneda del Estado.
+CAPITULO 1°
+Disposiciones generales.
+1°.-El Intendente general del Estado ejercer en la Casa de Moneda del mismo las funciones de Superintendente en lo gubernativo, económico, directivo y providencial, conforme a las leyes vigentes.
+2°.-El Superintendente velar porque en la casa no se acuñe oro y plata, sino por cuenta del Gobierno, y que el rescate se verifique bajo el preciso concepto de la ley del Estado de diez y nueve de setiembre último.
+3°.-Es igualmente de su cuidado que la moneda que se acuñe tenga la ley, peso, tipo y valor prevenidos en decreto de la Asamblea Nacional Constituyente de diez y nueve de marzo de ochocientos veinticuatro.
+4°.-También es de su cuidado que para el pago, recibo, ensaye, remache, aligación y fundación de los metales, se observen todas las reglas y formalidades establecidas por las leyes de la materia en cuanto puedan ajustarse por falta de los elementos necesarios a aquellos objetos.
+5°.-El Superintendente, previo aviso del Ensayador y Tesorero, asistir a la entrega de metales que se haga al Fundidor, y pesándose a su presencia se formar cargo, firmando la partida en libro del Contador.
+6°.-La fundación y aligación del oro y plata ser n intervenidas por el Ensayador, teniendo además la inspección en todo hasta sallar.
+7°.-La entrega que el Fundidor haga de los metales al Fiel de moneda, se ejecutar pesándose a su presencia y formándose este cargo en el libro respectivo, firmando ambos la partida.
+8°.-Hecho cargo de los metales, el Fiel dispondrá tirarlos por los molinos, cortar las monedas, acordonarlas y blanquearlas, en cuyo estado el Juez de balanza acudir por s¡ a la oficina del Fiel a reconocer las monedas, pesándolas una a una, tanto en el oro, como en la plata, y sólo con la aprobación del Juez de balanza, se proceder a la acuñación.
+9°.-Es de obligación del Juez de balanza formar cuenta que exprese la cantidad y tamaño de las monedas para guardarlas, debiéndose cortar las reprobadas por m s feble o fuerte que el permitido para que se vuelvan a fundir.
+10.- Aprobadas las monedas con su cordón, el Fiel las hará acuñar, teniendo especial cuidado de que no salga ninguna imperfecta, y concluida la operación, separada la perfecta de la imperfecta que hará cortar, dar aviso al Superintendente para que, en concurso de ‚este, y los demás Ministros, sea reconocida ensayándose cualquiera de ellas por el Ensayador, y pesándose una a una por el Juez de balanza, debiendo apartar la que no tenga o exceda del peso que la ley señala. Acabada de pesar y cortar, el Tesorero se hará cargo en un libro rubricado por el Superintendente y firmada la partida por todos, que ser data del Fiel, se custodiar la moneda y libro en una arca de tres llaves; que estar n a cargo del Superintendente, Tesorero y Fiel, debiendo haber otro libro en esta arca, rubricada para sentar las datas que comprobadas se verificasen.
+11.- Concluida la rendición y hechos los cargos en especie de moneda, al Tesorero, que son descargos del Fiel, se pondrá razón por separado por todos con expresión de fecha y cantidad, declarando el feble que produjo; y esta certificación se archivar en la oficina general de la casa.
+12.- Por ningún motivo ni pretexto podrá hacerse cambio alguno de moneda, sea de la calidad que fuese, por la que existe en el Tesoro de la casa, para evitar todo abuso o inconveniente.
+13.- La ligación y religación del oro y la plata deber practicarse bajo las reglas establecidas, y ser del cuidado del Ensayador y Fundidor que en esta parte no haya la m s mínima alteración, para que la moneda salga con la ley que está prevenida.
+14.- Las ausencias o enfermedades del Superintendente ser n sustituidas por el Ministro que llama la ley la sustitución del Intendente general en semejantes casos.
