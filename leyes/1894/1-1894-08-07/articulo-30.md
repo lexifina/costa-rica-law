@@ -1,0 +1,1 @@
+Art 30° El nombramiento de los Directores Médicos que en virtud de esta ley hacen el Poder Ejecutivo y las Municipales, lo mismo que la Dirección e Inspección general de todo lo concerniente a este ramo de policía de higiene en la parte científica, corresponderá a la Facultad Médica de Costa Rica tan luego como ésta se organice.

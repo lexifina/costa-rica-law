@@ -1,0 +1,1 @@
+Art 22° Los fondos municipales respectivos reconocerán en favor del hospital que corresponda, el valor de las estancias, por la asistencia de las enfermas, de acuerdo con lo convenido con las juntas de gobierno de los mismos.

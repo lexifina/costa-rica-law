@@ -1,0 +1,1 @@
+Art 23° La asistencia médica de estas enfermas estará a cargo del Director Médico del lugar o del facultativo encargado del hospital, según se convenga. La enfermedad que pueda hacerlo, tiene derecho a recibir la asistencia privada que en el hospital se dé en departamento separado a los pacientes que pagan por este servicio.

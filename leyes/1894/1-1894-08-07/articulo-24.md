@@ -1,0 +1,1 @@
+Art 24° Cuando obedeciendo a los prescrito en el artículo 28 haya mujeres enfermas en la Casa de Reclusión el Médico Director está en la obligación de visitarlas allí y de mandarles del hospitales correspondientes las medicinas necesarias.

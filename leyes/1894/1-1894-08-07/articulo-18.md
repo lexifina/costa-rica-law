@@ -1,0 +1,1 @@
+Art 18° Con las prostitutas menores de dieciséis años se procederá conforme al artículo 5° de la ley sobre vagancia, pero si estuvieren afectadas de enfermedad venéreas, serán forzadas a someterse previamente, al aislamiento y régimen curativo del Hospital.

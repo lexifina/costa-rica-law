@@ -1,0 +1,1 @@
+Art 15° Las prostitutas pueden ser reconocidas por cualquier Médico de su elección; pero los certificados de sanidad que éstos expidieren no tendrán valor alguno legal mientras no sean -Directores respectivos, quienes tomarán razón de ellos y los cambiaran por las boletas oficiales de sanidad.

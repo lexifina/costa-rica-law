@@ -1,0 +1,2 @@
+Art 28° La mujer que escandalizarse en el lugar destinado a los reconocimientos o en el hospital en que haya sido detenida, será castigada de acuerdo con el Médico Director quien podrá ponerla a media dieta por uno o más días o a pan y agua en días alternos o encerrada en un local destinado al efecto, de uno a diez días.
+Cuando estos castigos no sean bastantes para corregirla, será puesta a la orden del Agente Principal de Policía para que éste ordene su arresto en la Casa de Reclusión desde uno hasta tres meses, según el caso.
