@@ -1,0 +1,2 @@
+Art. 27.-Las insignias de Sargento Mayor consistirán en dos galones de doce milímetros de ancho, uno de plata y otro de oro en la teresiana, y otros dos semejantes en la manga, y dos estrellas, una de plata y otra de oro, de ocho puntas y de diez y ocho milímetros de radio, colocadas paralelamente á los bordes de la manga, en la parte media y de la cara superior de la cartera y dentro del ángulo del galón.
+El galón blanco se pondrá siempre sobre el galón dorado, y la estrella blanca en último lugar, contando desde el lado correspondiente del ángulo formado por el galón.

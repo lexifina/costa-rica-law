@@ -1,0 +1,1 @@
+Art. 31.-El General de Brigada tendrá por insignias: un entorchado de plata de veinticinco milímetros en la teresiana y otro de cuarenta y cinco milímetros en la manga, y faja azul, de seda, con borlas de plata.

@@ -1,0 +1,1 @@
+Art. 25.-Un Teniente tendrá dos galones en la teresiana y dos en las mangas, en igual forma que el anterior, con dos estrellas en la manga, colocadas paralelamente, á treinta milímetros de distancia una de otra y del galón.

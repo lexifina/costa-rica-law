@@ -1,0 +1,1 @@
+Art. 32.-El General de División llevará un entorchado de oro en la teresiana y otro en la manga, de iguales dimensiones que los anteriores, hombrera y botones de oro, y faja roja, de seda, con borlas de oro.
