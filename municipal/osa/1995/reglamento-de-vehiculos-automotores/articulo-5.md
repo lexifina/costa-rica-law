@@ -1,0 +1,1 @@
+Artículo 5°—Todos los vehículos de la Municipalidad deben estar cubiertos por una póliza de seguro contra todo riesgo; correspondiendo al Ejecutivo en coordinación con la Tesorería , el oportuno y permanente cumplimiento de esta disposición.

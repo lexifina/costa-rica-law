@@ -1,0 +1,1 @@
+Artículo 4°—El Ejecutivo Municipal velará por el cumplimiento de las disposiciones en los aspectos reglamentarios y presupuestarios que regulan el uso de los vehículos de municipalidad, debiendo someter al Concejo los cambios que considere procedentes.

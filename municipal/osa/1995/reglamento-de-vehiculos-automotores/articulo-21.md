@@ -1,0 +1,6 @@
+Artículo 21.—Es obligación del Ejecutivo Municipal, ejercer controles internos adecuados para el buen uso de los vehículos.
+Entre esos procedimientos, debe contemplarse:
+La Oficina de Personal llevará un "Registro General de Conductores", en el que se mantenga en forma actualizada la lista de las personas autorizadas para la conducción de vehículos, tanto de chóferes propiamente dichos, como de aquellos que hayan sido autorizados expresamente para ello.
+El registro contendrá los siguientes datos:
+Nombre, apellidos y demás calidades del conductor, número de licencia, fecha en que fue expedida y fecha de vencimiento, récord de los accidentes que tuviere con los vehículos de la Municipalidad y la Disolución judicial que puso término al proceso, la cual servirá para futuras decisiones administrativas en cuanto a la posibilidad de seguir conduciendo vehículos de la Corporación.
+También debe incluirse el número de la resolución que lo autorizó conducir vehículos cuando no se trate de chóferes de planta. Se anotaran en dicha tarjeta, las sanciones a que fuere sometido el conductor en casos de pérdida de herramientas, accesorios o repuestos de los vehículos que le hayan sido imputados por manejo en estado de ebriedad u otras sustancias enervantes, etc.
