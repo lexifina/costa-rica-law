@@ -27,3 +27,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 12 | 1985-11-08 | Decreto Ejecutivo 16701 (1985-11-08) |
 | 13 | 1985-11-12 | Decreto Ejecutivo 16729 (1985-11-12) |
 | 14 | 1989-02-23 | Decreto Ejecutivo 18899 (1989-02-23) |
+| 15 | 1989-09-11 | SINALEVI (sin norma nombrada) |

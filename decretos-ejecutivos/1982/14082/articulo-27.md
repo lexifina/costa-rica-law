@@ -3,4 +3,6 @@ a) A los declarantes productores de mercancías exentas, sobre las materias prim
 b) A los declarantes exportadores, sobre las materias primas, insumos, maquinaria y equipo, que utilicen directamente en la producción;
 c) A los contribuyentes, sobre la maquinaria de alto valor que utilicen directamente en el proceso productivo; y
 ch) A los contribuyentes que también fabriquen mercancías exentas o para la exportación, se les podrán otorgar todos los beneficios incluidos en los incisos anteriores, excepto el referido a los insumos, en los que la orden especial se limitará a autorizar el no pago del impuesto proporcionalmente con base en la relación que surja entre el monto de las exportaciones y el total de ventas.
+d) A contribuyentes, fabricantes o comerciantes, que efectúen más del cincuenta por ciento (50%) del total de sus ventas a instituciones del estado o a empresas que gocen de la exención del impuesto sobre las ventas.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 19217 del 11 de setiembre de 1989)
 Las disposiciones anteriores rigen también para las empresas nuevas o en formación siempre que presenten estudios de factibilidad y cumplan con otros requisitos, a juicio de la Administración Tributaria.
