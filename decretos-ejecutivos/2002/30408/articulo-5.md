@@ -1,3 +1,0 @@
-Artículo 5º—Administración del Cargo por Uso de Áreas Comunes.
-(I) Las líneas aéreas recaudadoras deberán establecer y mantener un sistema de control para responder por la correcta recaudación del Cargo por Uso de Áreas Comunes.
-(II) Los ingresos por el Cargo por Uso de Áreas Comunes deben considerarse como fondos comprometidos a la orden del CETAC e independientes de los fondos propios de las líneas aéreas recaudadoras, quienes, para estos efectos, actuarán como recaudadoras del CETAC. Los ingresos por el Cargo por Uso de Áreas Comunes se consideran como fondos de terceros a ser fideicometidos en posesión temporal de las aerolíneas, en su condición de agentes recaudadoras para el CETAC.

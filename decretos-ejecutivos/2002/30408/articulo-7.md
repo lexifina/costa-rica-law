@@ -1,7 +1,0 @@
-Artículo 7º—Administración y Fiscalización del Cargo por Uso de Áreas Comunes.
-a) Cada línea aérea recaudadora del Cargo por Uso de Áreas Comunes, deberá presentar Reportes Quincenales al CETAC y a quien este designe, suministrando un informe de los fondos depositados.
-a. Los Reportes Quincenales deberán estipular el nombre de la línea aérea recaudadora; el período correspondiente; la cantidad de pasajeros abordados en vuelos internacionales desde el AIJS durante dicho período por día y número de vuelo; y el monto a pagar al CETAC.
-b. El Reporte Quincenal debe presentarse en el mismo momento en que se depositen los fondos al Fideicomiso AIJS, como soporte de pago.
-b) Fiscalización Gubernamental.
-a. El CETAC o quien éste delegue, podrán auditar y o revisar, en forma periódica, el sistema de control, la veracidad de los reportes y el correcto monto cancelado por las líneas aéreas recaudadoras de los ingresos del Cargo por Uso de Áreas Comunes limitando el alcance de sus Auditorias, a asegurar que las líneas aéreas recaudadoras cumplan con los requisitos de este Decreto y la Legislación correspondiente.
-b. Las líneas aéreas deberán permitir a los representantes del CETAC o de cualquier otra agencia autorizada por éste, a tener acceso a cualquiera de sus libros, documentos, papeles relacionados estrictamente con la recaudación, control y remisión del Cargo por Uso de Áreas Comunes".
