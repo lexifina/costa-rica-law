@@ -1,0 +1,6 @@
+Artículo 3°-Trámite de la denuncia.
+La instrucción del caso será sustanciada por el Asesor Legal y la Dirección Administrativa conforme a las disposiciones legales vigentes.
+La resolución del asunto corresponderá a la Dirección Administrativa y a la Asesoría Legal, debiendo comunicarse el acto final en mes siguiente a la conclusión de la instrucción. En el evento de que la denuncia se dirija contra un servidor de la Dirección Administrativa, la resolución será acordada por el Ejecutivo,
+Todos los funcionarios vinculados directa o indirectamente con el procedimiento de investigación estarán obligados a guardar la más absoluta y estricta confidencialidad, bajo apercibimiento de que en caso de incumplimiento serán sancionados, a título de culpa grave en su relación de empleo, por la infracción de este deber.
+Los documentos, proyectos de resolución y resoluciones vinculados con este tipo de procedimiento serán trasladados personalmente por el notificador encargado al efecto.
+En caso de que el afectado no adjunte prueba idónea para sustentar los hechos denunciados, la Asesoría Legal prevendrá al denunciante su presentación en el plazo de los cinco días siguientes. En caso de no aportarse, o bien, de resultar impertinente, recomendará en forma razonada el archivo del caso ante la Dirección Administrativa.

@@ -1,0 +1,1 @@
+Artículo 2°-De toda denuncia y de conformidad con el artículo 7 de la Ley contra el Hostigamiento Sexual en el empleo y la Docencia, N° 7476, se correrá la información a la Defensoría de los Habitantes.
