@@ -1,1 +1,1 @@
-Artículo 43.-Rige a partir de su publicación.
+Artículo 43-(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

@@ -1,2 +1,1 @@
-Artículo 15.-La Contraloría General podrá ordenar a la autoridad correspondiente la suspensión inmediata del funcionario denunciado hasta por tres meses en el ejercicio del cargo, a efecto de facilitar la investigación. La suspensión del cargo interrumpe la relación de servicio y el pago de la remuneración respectiva.
-La orden de suspensión emitida por la Contraloría General releva al respectivo superior jerárquico de toda responsabilidad por este acto.
+Artículo 15.--(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

@@ -1,3 +1,1 @@
-Artículo 39.-En todo caso de remoción del auditor jefe de la Auditoría Interna en el Sector Público y en las empresas estatales estructuradas como sociedades anónimas y en las subsidiarias de estas, se requiere la aprobación de la Contraloría General de la República.
-El acuerdo de remoción deberá ser emitido por el órgano competente, con apego a las normas y procedimientos del régimen jurídico que rija para la correspondiente relación de servicio.
-Dicho acuerdo la documentación relacionada y el expediente personal del auditor deberá remitirse a la Contraloría General para que esta previa la información que estime pertinente, resuelva lo que proceda.
+Artículo 39.-(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

@@ -1,1 +1,1 @@
-Artículo 12.-Los funcionarios y ex funcionarios públicos objeto de investigación en una sumaria administrativa, están obligados a rendir declaración bajo juramento, con las garantías señaladas en los artículos 36 de la Constitución Política y 276 del Código de Procedimientos Penales.
+Artículo 12.--(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

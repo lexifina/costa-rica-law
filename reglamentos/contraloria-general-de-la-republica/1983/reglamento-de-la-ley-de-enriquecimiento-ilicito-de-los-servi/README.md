@@ -15,3 +15,4 @@ Reglamento de la Ley de Enriquecimiento Ilícito de los Servidores Públicos
 | --- | --- | --- |
 | 1 | 1983-10-20 | la propia norma |
 | 2 | 1989-01-03 | Reglamento 0 (1989-01-03) |
+| 3 | 1993-06-22 | SINALEVI (sin norma nombrada) |

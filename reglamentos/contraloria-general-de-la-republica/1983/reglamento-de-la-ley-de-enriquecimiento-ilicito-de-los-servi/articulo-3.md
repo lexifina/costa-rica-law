@@ -1,1 +1,1 @@
-Artículo 3°-Es competencia exclusiva de la Contraloría General de la República levantar sumaria administrativa secreta, en averiguación de los hechos que la ley N° 6872 tipifica como enriquecimiento ilícito.
+Artículo 3°-(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

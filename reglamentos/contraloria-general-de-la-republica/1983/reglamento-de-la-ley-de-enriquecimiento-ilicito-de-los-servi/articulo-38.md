@@ -1,1 +1,1 @@
-Artículo 38.-La falta de cumplimiento oportuno de la obligación de informar a que se refiere el artículo 36 hará incurrir al auditor jefe de la Auditoria Interna, o en defecto de este, al Jefe de Personal, en falta grave sancionable de conformidad con el régimen disciplinario interno correspondiente.
+Artículo 38.-(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

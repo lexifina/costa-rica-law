@@ -1,1 +1,1 @@
-Artículo 37.-La información a que se refiere el artículo anterior deberá consignar al menos, nombre y dos apellidos del funcionario, número de su cédula de identidad, domicilio, dirección, fecha en que asumió el cargo o cesó sus funciones, nombre del cargo, autoridad que hizo el nombramiento, número del acuerdo respectivo y demás información pertinente.
+Artículo 37.-(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

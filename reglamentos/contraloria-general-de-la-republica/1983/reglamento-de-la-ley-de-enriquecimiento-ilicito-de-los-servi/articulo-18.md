@@ -1,1 +1,1 @@
-Artículo 18.-Para rendir la declaración jurada de bienes, los servidores obligados a ello deberán proveerse de la fórmula respectiva en las oficinas de la Contraloría General de la República.
+Artículo 18.-(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

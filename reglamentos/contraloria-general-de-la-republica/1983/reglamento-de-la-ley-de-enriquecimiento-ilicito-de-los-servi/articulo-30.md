@@ -1,1 +1,1 @@
-Artículo 30.-La Contraloría General de la República podrá en cualquier momento pedir cuentas de sus bienes, o del incremento o utilidad de los mismos a los servidores públicos obligados o no a rendir declaración jurada de bienes, quienes deberán aportar la información y documentación solicitada, dentro del término que la Contraloría les fije; todo sin perjuicio de levantar la información sumaria administrativa, cuando lo estime procedente.
+Artículo 30.-(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

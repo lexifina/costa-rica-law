@@ -1,1 +1,1 @@
-Artículo 24.-Igual procedimiento seguirá la Contraloría General en los casos de servidores omisos en la presentación de la declaración anual de bienes a que se refiere el artículo 22, si después del término de quince días que por vía de prevención le fije la Contraloría, el servidor incumpliere con la presentación respectiva.
+Artículo 24.-(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

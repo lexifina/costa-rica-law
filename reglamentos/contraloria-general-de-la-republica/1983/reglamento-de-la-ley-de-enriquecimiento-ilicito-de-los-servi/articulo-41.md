@@ -1,2 +1,1 @@
-Artículo 41. -La Contraloría General de la República podrá permutar los auditores jefes de la Auditoría Interna de los diferentes entes públicos por el tiempo que ella misma fije, o los podrá sustituir por un plazo limitado para asignarlos a trabajos de investigación dentro de la propia Contraloría General o en otro lugar.
-La entidad o dependencia donde pase a prestar sus servicios el auditor, asume durante este mismo lapso la potestad disciplinaria sobre este.
+Artículo 41.-(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

@@ -1,2 +1,1 @@
-Artículo 5°-La Contraloría General de la República tiene competencia para disponer la permuta del auditor jefe de la Auditoría Interna de los diferentes entes públicos y para sustituirlos por un plazo limitado con la finalidad de asignarlos a trabajos de investigación dentro de la propia Contraloría o en otro lugar.
-Para que sea efectiva la destitución del jefe de la Auditoría Interna en el Sector Público y en las empresas estatales organizadas como sociedades anónimas, se requiere la aprobación de la Contraloría General.
+Artículo 5°-(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

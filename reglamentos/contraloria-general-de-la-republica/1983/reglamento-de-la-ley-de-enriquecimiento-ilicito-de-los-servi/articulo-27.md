@@ -1,1 +1,1 @@
-Artículo 27. -La falta de cumplimiento de la obligación referida en el artículo anterior, dará fundamento a la Contraloría General para investigar mediante sumaria secreta los cambios en el patrimonio del ex servidor. En caso de advertir irregularidades que puedan constituir enriquecimiento ilícito, lo pondrá en conocimiento del Ministerio Público.
+Artículo 27. -(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

@@ -1,1 +1,1 @@
-Artículo 4°-Corresponde a la Contraloría General de la República llevar el registro de la declaración jurada de bienes de los servidores públicos obligados a, según lo indica este Reglamento y denunciar ante quien corresponda la omisión en que aquellos incurran, para los efectos que procedan.
+Artículo 4°-(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

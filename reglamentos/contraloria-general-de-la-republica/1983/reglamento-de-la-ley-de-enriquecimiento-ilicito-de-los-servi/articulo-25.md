@@ -1,1 +1,1 @@
-Artículo 25.-Cuando el funcionario omiso fuere alguno de los miembros de los Supremos Poderes, la Contraloría General de la República lo comunicará a la Asamblea Legislativa, para que esta tome la resolución que proceda, conforme con la Constitución Política y la legislación vigente.
+Artículo 25.-(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

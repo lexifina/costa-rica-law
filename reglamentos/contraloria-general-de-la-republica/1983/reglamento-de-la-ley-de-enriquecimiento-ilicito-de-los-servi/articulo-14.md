@@ -1,1 +1,1 @@
-Artículo 14.-Para el ofrecimiento y la evacuación de las pruebas de descargo, la Contraloría General fijará prudencialmente los respectivos términos.
+Artículo 14.--(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)

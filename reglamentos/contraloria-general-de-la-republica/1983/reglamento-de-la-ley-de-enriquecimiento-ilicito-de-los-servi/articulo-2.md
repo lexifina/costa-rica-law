@@ -1,1 +1,1 @@
-Artículo 2°-Toda persona está obligada, sin incurrir por ello en responsabilidad, a instar en forma confidencial la iniciación de la sumaria administrativa, ante la Contraloría General de la República, o bien podrá denunciar, ajustándose a las prescripciones de este Reglamento, los hechos que a su juicio constituyan el delito de enriquecimiento ilícito.
+Artículo 2°--(Anulado mediante resolución de la Sala Constitucional N° 2934 del 22 de junio de 1993)
