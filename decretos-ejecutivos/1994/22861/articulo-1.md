@@ -52,7 +52,10 @@ Artículo 8°—EI derecho de estacionamiento se aplicará a aquellas aeronaves 
 En caso de los servicios cargueros se podrá descontar tres horas para efecto de !a operación de carga y descarga y en el caso de servicios de pasajeros, se descontaron 90 minutos para la operación de abordaje y desabordaje.
 La tarifa se aplicará por cada hora o fracción mayor de 30 minutos a razón de 13,00 por cada tonelada métrica de PMD cuando se trate de servicios locales y US $ ), 10 cuando se trate de servicios internacionales.
 Las operaciones de servicios regulares realizadas entre las 18:00 y las 6:00 horas que deban pernoctar en la terminal aérea se le aplicará una reducción de un 50% con especto a la tarifa establecida.
-Artículo 10°.—A los pasajeros de vuelos internacionales se les cobrará la suma ¢ 800,00 por el uso de las instalaciones y servicios de los Aeropuertos internacionales mediante el Comprobante de Pago Unificado (CPU).
+Artículo 10.-Por el uso de las instalaciones y servicios de Aeropuertos Internacionales, a los pasajeros de vuelos internacionales se les cobrará por medio del Comprobante de Pago Unificado (CPU), lo siguiente:
+Nacionales $ 6.00
+No Nacionales $ 15.00.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 24088 de 24 de febrero de 1995).
 Artículo 11°.—Los derechos de seguridad, se cobrarán a toda empresa de transporte aéreo que opere en los aeropuertos internacionales. El derecho se establece como contraprestación a los servicios de inspección de pasajeros y equipaje, así como los de vigilancia en la terminal siendo su monto el siguiente:
 a. Pasajeros en vuelos internacionales: 11,00 por pasajero
 b. Pasajeros en vuelos locales: 11,00 por pasajero
