@@ -1,0 +1,1 @@
+Art. 2°-Suspéndese el procedimiento contra los reos don Francisco Saborío y don Jerónimo Chacón, quedando libres de toda responsabilidad por los cargos que pudieran resultarles, como consecuencia de su delito.
