@@ -14,3 +14,4 @@ Reglamento General de Habilitación de Establecimientos de Salud y Afines
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-18 | la propia norma |
+| 2 | 2004-09-09 | Decreto Ejecutivo 32161 (2004-09-09) |
