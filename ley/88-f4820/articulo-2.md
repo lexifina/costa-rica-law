@@ -1,0 +1,1 @@
+Art. 2° El que abandonare la empresa despues de haber recibido en el todo parte el premio de que habla el g. 3° del articulo anterior, es obligado á devolverlo al tesoro público y perderá el derecho que tenga al terreno y plantacion, lo que se adjudicara al primer denunciante.
