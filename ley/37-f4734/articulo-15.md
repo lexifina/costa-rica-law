@@ -1,1 +1,0 @@
-Artículo 15.-La prima a que se refiere el artículo 5° comprendida en las cuotas de pago, está destinada al servicio de una póliza de seguro temporal decreciente sobre la vida de los adquirentes de las casas y a favor de la Junta a fin de garantizar a la familia la exoneración del saldo de la deuda en caso de muerte del deudor.

@@ -1,1 +1,0 @@
-Artículo 2°.-Ratificase asimismo, como propiedad de la Junta, la asignación de un millón de colones (¢ 1.000,000.00), destinado por el acuerdo citado en el artículo anterior, a la construcción de casas para personas de reducidos recursos económicos.
