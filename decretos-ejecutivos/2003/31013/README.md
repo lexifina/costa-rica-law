@@ -14,3 +14,4 @@ Establece moratoria y suspensión general del cobro y pago dedeudas que se tenga
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-02-28 | la propia norma |
+| 2 | 2003-06-04 | Decreto Ejecutivo 31358 (2003-06-04) |

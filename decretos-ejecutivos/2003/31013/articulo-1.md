@@ -2,6 +2,7 @@ Nº 31013-MAG-MP
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE AGRICULTURA Y GANADERÍA
 Y EL MINISTRO DE LA PRESIDENCIA
+(Así AMPLIADO EXPRESAMENTE por el Decreto Ejecutivo N°31358-MAG-MP del 04 de junio de 2003, publicado en La Gaceta N° 181 del 22 de setiembre de 2003)
 En ejercicio de las facultades establecidas en los artículos 140, incisos 3), 8), 18) y 20) y 146 de la Constitución Política, los artículos 25, 27.1, 28.2.b de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública, la Ley Nº 7742 de 19 de diciembre de 1997, Ley de Creación del Programa de Reconversión Productiva del Sector Agropecuario y la Ley Nº 6735 del 29 de marzo de 1982, Ley del Instituto de Desarrollo Agrario.
 Considerando:
 1º—Que mediante Decretos Ejecutivos Nos. 30456-MP de 10 de mayo del 2002 y 30866-MP de 2 de diciembre del 2002, se declaró estado de emergencia la situación provocada por los fenómenos climatológicos que afectaron en forma específica la Vertiente del Caribe y la Zona Norte del país, que provocó lluvias intensas, fuertes crecimientos del caudal de los ríos, una alta saturación de los suelos, serios daños a los bienes, afectación de infraestructura, comunicaciones y la agricultura.
