@@ -1,2 +1,0 @@
-Artículo 9°- Verificación del cumplimiento con las medidas sanitarias.
-La veracidad de lo establecido en las declaraciones de registro se realizará mediante verificación en el mercado, para lo cual se realizará el muestreo respectivo, de acuerdo con el artículo 42 de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor de los artículos 238, 350, 352, siguientes y concordantes de la Ley General de Salud, y las normas de muestreo nacionales y del CODEX ALIMENTARIUS que correspondan.
