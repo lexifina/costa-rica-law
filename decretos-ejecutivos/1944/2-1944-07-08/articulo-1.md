@@ -1,0 +1,1 @@
+(Este Decreto Ejecutivo fue considerado inaplicable mediante resolución de la Corte Suprema de Justicia de las 11:00 horas del 10 de enero de 1948, correspondiente al expediente N° 0446-1947, en el cual compareció como recurrente el Sr.Celso Gamboa Rodríguez, como apoderado judicial de Hans Niehaus Ahrens.)
