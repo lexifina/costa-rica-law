@@ -1,0 +1,1 @@
+Artículo 18.—El Jurado inmediatamente después de emitido el fallo lo remitirá a la Junta Directiva del INAMU, quien dará a conocer la adjudicación mediante publicación en el Diario Oficial y otros medios de comunicación durante el mes de marzo de cada año.

@@ -1,0 +1,1 @@
+Artículo 10.—El INAMU solicitará en la primera quincena de junio de cada año a las entidades antes indicadas en el artículo anterior, la designación de 1 persona representante propietaria y 1 suplente, que formarán parte del jurado encargado de otorgar el Premio.

@@ -1,0 +1,1 @@
+Artículo 17.—El jurado emitirá el fallo en la primera quincena del mes de febrero de cada año y para la designación de las personas ganadoras se hará mediante votación secreta, por mayoría simple. Si posterior a tres votaciones no se alcanzan los votos requeridos para esta mayoría, el Premio se declarará desierto.

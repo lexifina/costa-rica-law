@@ -1,0 +1,5 @@
+Artículo 4º—El premio se otorgará al mejor programa o series de programas periodísticos de radio y televisión y a artículos o series de artículos publicados en periódicos o revistas, con cobertura nacional, regional e internacional, que sean producidos, emitidos o publicados en Costa Rica, pudiendo otorgarse en cualquiera de las siguientes categorías:
+a) Producción televisiva, pudiendo participar en las modalidades de: reportaje, documental, entrevista, docudrama, crónica, telerevista, opinión y semblanza.
+b) Producción radiofónica, pudiendo participar en las modalidades de: radiorevista, reportaje, entrevista, crónica, documental, charla ilustrada, opinión.
+c) Producción escrita en las modalidades de: reportaje, crónica, entrevista, opinión, testimonio, semblanza, caricatura.
+Para efectos de la valoración y calificación de las producciones por parte del Jurado Calificador, las personas aspirantes al premio deberán demostrar que sus trabajos han sido difundidos o dados a conocer durante el año calendario inmediato anterior al cierre de la recepción de las solicitudes.

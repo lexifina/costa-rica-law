@@ -1,0 +1,1 @@
+Artículo 19.—La entrega del Premio Ángela Acuña Braun y las menciones honoríficas que determine el jurado se harán en la Ceremonia Entrega de los Premios Nacionales de Cultura, en mayo o abril de cada año, según determine el Ministerio de Cultura, Juventud y Deportes, principal organizador de este evento.
