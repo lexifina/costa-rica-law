@@ -28,7 +28,8 @@ Centro Nacional de Drogas 560,4
 Centro Univ. Para el Desarrollo del Trópico Seco 154,8
 Colegio de San Luis Gonzaga 97,4
 Colegio Universitario de Alajuela 917,7
-Colegio Universitario de Cartago 660,4
+Colegio Universitario de Cartago ¢722.7 millones.
+( Así modificado por el Decreto Ejecutivo N° 31012 del 04 de febrero del 2003).
 Colegio Universitario de Puntarenas ¢446.2
 Comisión de Energía Atómica 33,0
 Comisión Nacional de Asuntos Indígenas 153,7
