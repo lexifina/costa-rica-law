@@ -14,3 +14,4 @@ Reforma el inciso b) del artículo 43 del Reglamento a la Ley de Promoción de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-30 | la propia norma |
+| 2 | 2002-07-30 | Decreto Ejecutivo 30369 (2002-04-30) |
