@@ -1,0 +1,1 @@
+Art°. 36. —Los asientos de ascensos de oficiales superiores y de generales, expresarán las condiciones que sean necesarias del artículo 57 de Ley dicha, y las circunstancias especiales que consigne la respectiva hoja de servicio.

@@ -1,0 +1,2 @@
+Art°. 42. —En el registro de domicilios se anotarán todas las variaciones de domicilio ó de residencia, de oficiales inferiores, clases y soldados; pero teniendo presente lo dispuesto por el artículo 167 de la Ley de Organización General del Ejército.
+Los cambios de domicilio que haga cualquier miembro del Cuerpo Militar, deben avisarlo por escrito al registrador miliar de su primitivo vecindario.

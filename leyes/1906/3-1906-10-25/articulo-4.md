@@ -1,0 +1,1 @@
+Art°.4°. —Se inscribirán en el Registro Militar, las filiaciones, las bajas, las exenciones, los ascensos, la organización y demás hechos que ocurran en el Ejército y que sirvan para determinar su situación militar, hoja de servicios de su personal y demás incidentes de valor apreciable de que debe tomarse nota.

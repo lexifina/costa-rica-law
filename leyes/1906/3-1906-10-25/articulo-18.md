@@ -1,0 +1,1 @@
+Art°. 18°. Agotadas las hojas destinadas en un libro a una combinación, se abrirá a ésta, nueva separación en el mismo libro, hubiere lugar, y si no en el siguiente. Al pie del último folio de los agotados se pondrá razón del tomo y folio á donde pasa la combinación, y en éste, tomo y folio de donde viene.

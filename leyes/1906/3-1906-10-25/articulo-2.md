@@ -1,0 +1,1 @@
+Art°. 2°. —El Registro Central que tendrá su oficina en la capital de la República, será servido por un Registrador General y por los demás empleados que fueren necesarios; y los demás Registros por los registradores que la ley determina y los auxiliares indispensables que serán también nombrados por el mismo Departamento, dentro del personal militar.
