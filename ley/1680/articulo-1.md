@@ -6,6 +6,9 @@ anexos, para la protección del Derecho de Autor, sobre las obras
 literarias, científicas y artísticas, suscritos en Ginebra, Suiza, el 6 de
 setiembre de 1952, que se contiene en el Decreto Ejecutivo Nº 12 de 9 de
 julio de 1953.
+(NOTA: Reformada en lo conducente por la Convención
+Universal sobre Derecho de Autor de París, 1971 -
+Ley No.5682 de 5 de mayo de 1975)
 CONVENCIÓN DE GINEBRA PARA LA PROTECCIÓN DEL DERECHO DE AUTOR
 SOBRE LAS OBRAS LITERARIAS, CIENTÍFICAS Y ARTÍSTICAS,
 Y SUS TRES PROTOCOLOS ADICIONALES,
