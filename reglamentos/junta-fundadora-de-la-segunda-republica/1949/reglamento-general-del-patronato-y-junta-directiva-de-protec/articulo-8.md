@@ -1,1 +1,0 @@
-Artículo 8°-Los organismos dependientes de la Junta tendrán su organización propia de acuerdo con las leyes o los reglamentos que los rijan o las disposiciones que dicte la Junta , pero quedan sujetos, en lo administrativo, al Delegado Ejecutivo.

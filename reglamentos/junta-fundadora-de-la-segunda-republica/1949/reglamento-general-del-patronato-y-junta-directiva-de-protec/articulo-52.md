@@ -1,2 +1,0 @@
-Artículo 52.-Los sorteos se efectuarán en un lugar que ofrezca acceso fácil al público a fin de que quien lo desee pueda vigilar las operaciones. Los aparatos mecánicos o los sistemas que se usen para efectuar los sorteos deberán ser reconocidos como de absoluta confianza para garantizar que únicamente el azar determina los números y sus correspondientes premios.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 13 del 18 de setiembre de 1965).

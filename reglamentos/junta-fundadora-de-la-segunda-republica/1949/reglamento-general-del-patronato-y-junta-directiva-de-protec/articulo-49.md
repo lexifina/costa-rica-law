@@ -1,2 +1,0 @@
-Articulo 49.-La Junta podrá adelantar o posponer la fecha y hora de cualquier sorteo, cuando razones especiales lo justifiquen, dando a conocer al público su disposición por los medios que se considere mas adecuados. En caso de anticipar el sorteo, comenzará a avisarlo ocho días por lo menos antes de la fecha señalada en los billetes para el sorteo, y en caso de posponerlo, el aviso puede ser hasta la víspera de esa fecha.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 12 del 13 de agosto de 1962)

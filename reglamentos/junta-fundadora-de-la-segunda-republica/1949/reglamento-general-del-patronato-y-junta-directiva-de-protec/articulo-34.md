@@ -1,1 +1,0 @@
-Artículo 34.-EI Delegado deberá garantizar a la Junta , las responsabilidades en que pudiere incurrir en el ejercicio de sus funciones. Dicha garantía, para su validez, deberá ser calificada y aprobada por la Dirección General de Asistencia.

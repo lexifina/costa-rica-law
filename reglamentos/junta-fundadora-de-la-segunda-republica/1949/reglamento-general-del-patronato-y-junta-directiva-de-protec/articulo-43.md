@@ -1,3 +1,0 @@
-Artículo 43.-Los billetes de lotería se imprimirán, numerarán y marcarán con las claves respectivas, en papel de seguridad, bajo la responsabilidad inmediata del Jefe del Taller propio de la Junta, quien deberá tomar todas las precauciones que considere convenientes, además de las que le sean ordenadas por sus superiores, para la mayor garantía contra sustracciones y falsificaciones.
-El Jefe del Departamento de Loterías y todo el personal que en alguna forma intervenga en el manejo de billetes deberá proveerse de una póliza de fidelidad que pagará la Junta.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 12 del 13 de agosto de 1962)

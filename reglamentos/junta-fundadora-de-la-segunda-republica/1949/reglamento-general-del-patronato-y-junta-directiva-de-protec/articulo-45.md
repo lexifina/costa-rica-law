@@ -1,2 +1,0 @@
-Artículo 45.-AI Tesorero corresponde la revisión final y la contramarca que los billetes impresos deberán llevar al ser recibidos por este funcionario para ponerlos a la venta, debiendo entregar constancia escrita firmada y sellada al Jefe del Taller par los billetes que reciba cada vez. Capias de ese documento serán entregadas: al Jefe del Departamento de Loterías, al Auditor y al Jefe de la Contabilidad.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 12 del 13 de agosto de 1962)
