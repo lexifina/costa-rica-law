@@ -1,0 +1,1 @@
+Artículo 6º.- Esta ley rige desde su publicación y reforma en lo conducente el artículo 4º del Capítulo II de la ley Nº 837 de 20 de diciembre de 1946 y sus reformas, así como cualquier otra disposición que se oponga a lo aquí dispuesto.

@@ -1,0 +1,1 @@
+Transitorio II.- Los Bancos del Estado, con excepción del Banco Central de Costa Rica, entregarán al Gobierno de la República una contribución equivalente al 35% de sus utilidades netas, resultantes de la liquidación de sus ganancias y pérdidas al 30 de junio del presente año.

@@ -1,0 +1,9 @@
+Artículo 3º.- El artículo 12 de la ley Nº 1644 del 26 de setiembre de 1953 (Ley Orgánica del Sistema Bancario Nacional), reformado por al ley Nº 2796 de 10 de agosto de 1961, se leerá así:
+"Artículo 12.- Las utilidades netas de los Bancos del Estado, con excepción del Banco Central, se distribuirán de la siguiente manera:
+1) La suma necesaria para pagar el Impuesto sobre la Renta que les corresponda, la que se estimará sobre las utilidades netas de cada Banco, determinadas conforme lo indica el artículo 10 de la presente ley;
+2) Una suma equivalente al 10% del total de los sueldos de los empleados del respectivo Banco, para el mantenimiento del Fondo de Garantías y Jubilaciones de dichos empleados y que pertenecerá a éstos en la proporción correspondiente a sus sueldos, debiendo serle entregada, bajo las condiciones que el Reglamento de Jubilaciones determine, si dejaren el servicio antes de haber alcanzado el derecho a una pensión invalidez.
+Ese aporte de los Bancos será único, para toda clase de beneficios sociales, pudiendo establecerse en el Reglamento de cada Institución las sumas adicionales con que los empleados deberán contribuir para el fortalecimiento del Fondo, a fin de que ellos puedan obtener una pensión adecuada, de acuerdo con su sueldo, edad y tiempo de servicio.
+El sistema que así se crea se considera complementario del establecido por la Caja Costarricense de Seguro Social y sin perjuicio de las obligaciones de sus beneficios para la Caja.
+Se declaran inembargables las sumas que se devuelvan a los empleados que dejaren el servicio, antes de haber alcanzado el derecho una pensión de invalidez.
+En las Juntas Administrativas del Fondo de Garantía y Jubilaciones de cada Banco, se le dará representación a los empleados bancarios, quienes elegirán a dos de sus miembros; y
+3) El remanente, para incrementar las reservas contempladas en los artículos 9º y 10 de esta ley (ley Nº 1644 de 26 de setiembre de 1953)".
