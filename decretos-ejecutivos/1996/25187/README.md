@@ -13,3 +13,4 @@ Aprueba Calidad de Agua para Laboratorios de Prueba
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-17 | la propia norma |
+| 2 | 1996-06-17 | SINALEVI (sin norma nombrada) |
