@@ -1,0 +1,1 @@
+Articulo transitorio: El Poder Ejecutivo hará las gestiones necesarias, a efecto de que pueda formular un proyecto de contrato con los bancos emisores nacionales sobre la base de la emisión única, y que someterá tan pronto como lo sea posible al conocimiento del Poder Legislativo.
