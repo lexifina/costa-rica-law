@@ -1,0 +1,2 @@
+Art. 5°-El Juez ó Alcalde que dejare de cumplir cualquiera de las disposiciones contenidas en el presente decreto, será, tan pronto como la falta notare, separado definitivamente de su destino, sin perjuicio de su juzgamiento por las demás responsabilidades en que hubiere incurrido con relación al depósito.
+Dado en el Palacio Presidencial, en San José, á veintitrés de octubre de mil ochocientos setenta y nueve. –T. GUARDIA. –El Secretario de Estado en el Despacho de Justicia. –José María Castro.
