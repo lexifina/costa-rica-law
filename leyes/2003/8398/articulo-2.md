@@ -33,3 +33,4 @@ ARTÍCULO 2°: EGRESOS ORDINARIOS EXTRAORDINARIOS PARA 2004.
 (Modificado por el artículo 1° del decreto ejecutivo N° 32114 del 26 de octubre del 2004)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32119 del 8 de noviembre del 20004)
 (Modificado por el artículo 2° del decreto ejecutivo N° 32119 del 8 de noviembre del 2004)
+(Modificado por el artículo 1° del decreto ejecutivo N° 32126 del 24 de noviembre del 2004)
