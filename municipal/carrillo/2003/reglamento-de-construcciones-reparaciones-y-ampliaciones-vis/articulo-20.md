@@ -1,0 +1,4 @@
+CAPÍTULO III
+DE LAS SANCIONES POR VIOLACIÓN A LA NORMATIVA
+ESTABLECIDA EN MATERIA DE CONSTRUCCIONES
+Artículo 20.—En los casos en que los propietarios de una obra, sus representantes o encargados, infrinjan la normativa correspondiente al proceso de construcción establecida en la Ley y Reglamento de Construcciones, el presente Reglamento u otra normativa específica, la Municipalidad podrá imponer sanciones, respetando de previo, el trámite del debido proceso y el cumplimiento y verificación de la audiencia previa o notificación del interesado, la determinación de la conducta cuestionada, las pruebas que obran en favor de la Municipalidad y la eventual sanción a imponer, otorgando un plazo prudencial para que el particular ejerza su derecho de defensa, salvo en los casos de violación evidente de las disposiciones legales vigentes en materia de construcción, con apego a lo indicado en la Ley de Construcciones y el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 46.—Que el Concejo Municipal creará en un plazo de 3 a 6 meses, un Manual de Procedimiento de Inspecciones y Clausura de Obras y Aspectos Legales de Tramitación, que sirvan de base para el debido proceso; una vez publicado en La Gaceta y estando vigente, será normativa integrada al presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 27.—El Ingeniero Municipal, con el apoyo y colaboración de los respectivos inspectores de construcciones, elaborará un programa mensual de inspecciones, en donde establecerá las estrategias, cronograma de actividades y plazo de ejecución de las inspecciones indicadas en los artículos anteriores, de todo lo cual remitirá copia a la Alcaldía Municipal.

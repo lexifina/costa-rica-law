@@ -1,0 +1,4 @@
+Artículo 21.—Las sanciones que se establecen en este Reglamento de conformidad con lo indicado en el artículo 89 de la Ley de Construcciones, serán las siguientes:
+a) La imposición de una multa, la cual se verificará con arreglo a las disposiciones establecidas en la Ley de Construcciones y su Reglamento.
+b) La clausura de la obra, en los casos en que por disposición de la Ley o el Reglamento corresponda, o en los casos en que aún siendo prevenido el interesado o infractor, no corrigió en el plazo indicado en la notificación, las sugerencias u observaciones realizadas por la Municipalidad o en los casos en que exista violación evidente de la normativa respectiva, con arreglo al procedimiento que se establece en este Reglamento.
+c) La desocupación o destrucción de la obra, cuando legalmente corresponda por violación de normativa específica, que convierta la trasgresión de la ley en insalvable, según sea pertinente y con arreglo a lo señalado en este Reglamento.
