@@ -1,4 +1,4 @@
-ARTICULO XIII
+ARTICULO 13
 Todas las personas interesadas:
 a) Deberán ser apropiada (*) y suficientemente informadas acerca de los
 riesgos profesionales que pueden originarse en el lugar de trabajo debido a
