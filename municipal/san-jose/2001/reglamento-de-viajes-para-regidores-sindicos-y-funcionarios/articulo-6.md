@@ -1,0 +1,1 @@
+Articulo 6°—los regidores, síndicos y funcionarios que incumplan lo dispuesto en el articulo anterior, no podrán integrar una nueva delegación municipal hasta tanto no cumplan con lo dispuesto en ese, articulado.

@@ -1,0 +1,1 @@
+Articulo 7°—Los regidores, síndicos y funcionarios deberán entregar la liquidación de sus viáticos y gastos de representación, conforme lo establece el reglamento correspondiente de la Contraloría General de la República.

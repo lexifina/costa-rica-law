@@ -1,0 +1,1 @@
+Artículo 8°— Los regidores, síndicos y funcionarios que conforme a los estudios de contabilidad deban reintegrar dineros, o no hubiesen presentado las liquidaciones conforme ordena el reglamento, no podrán integrar otra delegación municipal para actividades internacionales y nacionales, en las cuales deba girárseles dineros por estos conceptos.

@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE SAN JOSÉ
+Artículo 1°—Los viajes en los cuales deban participar regidores, síndicos y/o funcionarios de la Municipalidad de San José. en representación de la misma, en otros países deberán ser tramitados en forma exclusiva por la Comisión Ordinaria de Protocolo y Cooperación Internacional del Concejo Municipal, previo requerimiento que le hará la Presidencia Municipal, una vez que la invitación ha sido leída en el capitulo de correspondencia en el Plenario Municipal.

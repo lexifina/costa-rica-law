@@ -1,0 +1,1 @@
+Artículo 2°—Los miembros de dicha Comisión mediante dictamen escrito y no mediante moción, razonarán sus fundamentos de oportunidad, beneficio y costo para designar a una u otra persona a participar en determinado evento. Igualmente deberá determinarse el lugar y objetivo del viaje.
