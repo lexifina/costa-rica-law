@@ -1,1 +1,0 @@
-Artículo 5°.- Constituyen los bienes del Taller Nacional de Teatro, la subvención que anualmente le otorga el estado coma las donaciones que reciba, y el producto que logre por la venta de sus servicios.
