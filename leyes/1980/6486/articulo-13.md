@@ -27,9 +27,10 @@ Trabajo de dichas declaraciones;
 5) El Secretario General de las Naciones Unidas transmitirá dos
 ejemplares certificados del presente Convenio a todos los Estados a que se
 refiere el Artículo 9º, párrafo 1).
-Artículo 2º.- A más tardar noventa días después de la vigencia de esta
-adhesión de Costa Rica al Convenio para la protección de los productores de
-fonogramas contra la reproducción no autorizada de fonogramas, el Poder
-Ejecutivo enviará a la Asamblea Legislativa un proyecto de ley que regule
-todo lo relacionado con la producción de fonogramas en el país.
+Artículo 2º.- A más tardar noventa días después de la vigencia de
+esta adhesión de Costa Rica al Convenio para la protección de los
+productores de fonogramas contra la reproducción no autorizada de
+fonogramas, el Poder Ejecutivo enviará a la Asamblea Legislativa un
+proyecto de ley que regule todo lo relacionado con la producción de
+fonogramas en el país.
 Artículo 3º.- Rige a partir de su publicación.
