@@ -1,0 +1,2 @@
+Articulo 20. —Adecuaciones Curriculares Significativas:
+En los casos que alguna persona requiera de adecuaciones curriculares significativas, éstas deben ser elaboradas y aprobadas por quien se encarga del Proceso de Planeamiento y Evaluación del Núcleo de Formación tecnológica que curres pende, con base en las propuestas del personal instructor. Estas deberán quedar descritas en el expediente de cada participante, y ser comunicadas al padre, madre de familia o responsables en casos de menores de edad y debe contar con la aprobación de las personas en formación.
