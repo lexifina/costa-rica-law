@@ -66,9 +66,9 @@ Todos los tipos de caseinatos. | “Caseinatos”.
 Manteca, de cacao obtenida por presión o extracción o refinada. | “ Manteca de cacao”.
 Todas las frutas confitadas, sin exceder del 10% del peso del alimento. | “Frutas confitadas”.
 4.2.2.2 No obstante lo estipulado en la disposición 4.2.2.1, deberán declararse siempre por sus nombres específicos la grasa de cerdo, la manteca y la grasa de bovino.
-4.2.2.3 Cuando se trate de aditivos alimentarios pertenecientes a las distintas clases y que figuran en la lista de aditivos alimentarios cuyo uso se permite en los alimentos en generala deberán emplearse los siguientes nombres genéricos junto con el nombre específico o el número de identificación aceptado en la legislación nacional.
+*4.2.2.3 Cuando se trate de aditivos alimentarios pertenecientes a las distintas clases y que figuran en la lista de aditivos alimentarios cuyo uso se permite en los alimentos en general, podrán emplearse el número de identificación aceptado en la legislación nacional y los siguientes nombres genéricos junto con el nombre específico.
 Acentuador del sabor
-Ácido
+Acido
 Agente antiglutinante
 Antiglutinante
 Antiespumante
@@ -90,6 +90,7 @@ Sustancia conservadora
 Sustancia de retención del color
 Sustancia para el tratamiento de harinas
 Sustancia para el glaseado
+*(Así reformado mediante el artículo 1° del decreto ejecutivo N° 26829 del 9 de marzo de 1998).
 4.2.2.4 Podrán emplearse los siguientes títulos genéricos cuando se trate de aditivos alimentarios que pertenezcan a las respectivas clases y que figuren en las listas de aditivos alimentarios nacionales o del Codex Alimentarius cuyo uso en los alimentos ha sido autorizado:
 Aroma(s)y aromatizante (s)
 Almidón(es) modificado (s)
@@ -104,23 +105,23 @@ i) en volumen, para los alimentos líquidos;
 ii) en peso, para los alimentos sólidos;
 iii) en peso, para los alimentos semisólidos o viscosos.
 4.3.3 Además de la declaración del contenido neto, en los alimentos envasados en un medio líquido deberá indicarse en unidades del Sistema Internacional el peso escurrido del alimento. A efectos de este requisito, por medio líquido se entiende agua, soluciones acuosas de azúcar o sal, jugos (zumos) de frutas y hortalizas en frutas y hortalizas en conserva únicamente, o vinagre, solos o mezclados.
-4.4 Nombre y dirección. Deberá indicarse el nombre y la dirección del fabricante, envasador, distribuidor, importador, exportador o vendedor del alimento.
+4.4 Nombre y dirección. Debe identificarse el nombre y la dirección del fabricante, envasador, distribuidor, importador, exportador o vendedor del alimento. Para los productos importados debe indicarse el nombre y la dirección del importador o distribuidor del alimento.
+(Así reformado el párrafo anterior mediante el artículo 1° del decreto ejecutivo N° 26829 del 9 de marzo de 1998).
 4.5 País de origen.
 4.5.1 Deberá indicarse el país de origen.
 4.5.2 Cuando un alimento se someta en un segundo país a una elaboración que cambie su naturaleza, el país en el que se efectúe la elaboración deberá considerarse como país de origen para los fines del etiquetado.
 4.6 Identificación del lote. Cada envase deberá llevar grabada o marcada de cualquier otro modo, pero de forma indeleble, una indicación en clave o en lenguaje claro, que permita identificar el lote. Puede usarse la fecha de vencimiento como identificación del lote.
 4.7 Marcado de la fecha e instrucciones para la conservación.
-4.7.1 Si no está determinado de oirá manera en una Norma Individual Nacional o del Codex Alimentarius, regirá el siguiente marcado de la fecha:
+4.7.1 Si no está determinado de otra manera en un reglamento técnico nacional o del Codex Alimentarius, se usará preferentemente el siguiente marcado de la fecha.
+(Así reformado el párrafo anterior mediante el artículo 1° del decreto ejecutivo N° 26829 del 9 de marzo de 1998).
 i) Se declarará la “fecha de duración mínima”
 ii) Esta constará por lo menos de:
 · el día y el mes para los productos que tengan una duración mínima no superior a tres meses;
 · el mes y el año para productos que tengan una duración mínima de más de tres meses. Si el mes es diciembre, bastará indicar el año.
 iii) La fecha deberá declararse con las palabras:
-·
 · “Consumir preferentemente antes del “ cuando se indica el día
 · “Consumir preferentemente antes del final de...” en los demás. casos.
 iv) Las palabras prescritas en el apartado (iii) deberán ir acompañadas de:
-·
 · la fecha misma; o
 · una referencia al lugar donde aparece la fecha.
 v) El día, mes y año deberán declararse en orden numérico no codificado, con la salvedad de que podrá indicarse el mes con letras.
@@ -177,7 +178,7 @@ A. 1.3 La persona que comercialice el alimento deberá poder justificar las decl
 A.2 DEFINICIÓN
 A efectos de estas directrices, por declaración de propiedades se entiende cualquier representación que afirme, sugiera o implique que un alimento tiene calidades especiales por su origen, propiedades nutritivas, naturaleza, elaboración, composición u otra calidad cualquiera.
 A.3 DECLARACIONES DE PROPIEDADES QUE DEBEN PROHIBIRSE
-Se prohiben las siguientes declaraciones de propiedades:
+Se prohíben las siguientes declaraciones de propiedades:
 A.3.1 Declaraciones de propiedades que afirmen que un alimento determinado constituye una fuente adecuada de todos los nutrientes esenciales, excepto en el caso de productos bien definidos, para los cuales existe una norma del nacional o del Codex que regula las declaraciones admisibles, o en caso de que las autoridades competentes hayan aceptado que el producto es una fuente adecuada de todos los nutrientes esenciales.
 A.3.2 Declaraciones que impliquen que una alimentación equilibrada con alimentos ordinarios no pueden suministrar cantidades suficientes de todos los nutrientes.
 A.3.3 Declaraciones de propiedades que no pueden comprobarse.
