@@ -1,4 +1,5 @@
 No 8351
+Establece Reserva Biológica Hitoy-Cerere
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERA
 De conformidad con lo dispuesto en los artículos 2°, inciso b) y 22) de la Ley Forestal, No 4465 de 25 de noviembre de 1969, lo establecido por la ley N° 6084 de 24 de agosto de 1977, y
@@ -34,3 +35,10 @@ COORDENADAS
 178 | 450 | 640 | 600 | 178 | 900 | 629 | 900
 De este punto hasta el punto de origen de la presente descripción en coordenadas N 180 550 y E 629 925.
 Área de la Reserva: 9 044 Ha. 5 938 m2.
+(NOTA DEL SINALEVI: mediante decreto ejecutivo N° 13390 del 26 de febrero de 1982, se incluye en la Reserva Biológica de Hitoy "la finca llamada "Parcela Barrera", situada en la hoja Estrella IGN 1/50.000, 3545 II, y se localiza por los puntos cuyas coordenadas son las siguientes: Se inicia en la unión de la quebrada Barrera y el río Cerere, en coordenadas N 184 575, E 643 200, continúa aguas arriba por la quebrada Barrera hasta un punto N 184 600, E 643 540, continuando su delimitación por las siguientes vértices:
+N 184 200 | E 644 200 |
+N 183 700 | E 644 300 |
+N 183 750 | E 643 400 |
+N 183 650 | E 642 400 | en el río Cerere.
+Continúa aguas abajo por éste, hasta el punto inicial de la presente descripción en N 184 575, E 643 200.
+Área aproximada: 110 hectáreas". Asimismo ver el artículo 3 del decreto ejecutivo citado anteriormente).
