@@ -24,3 +24,4 @@ Fijación de tarifas de los servicios del Ministerio de Agricultura y Ganadería
 | 9 | 2003-02-19 | Decreto Ejecutivo 31039 (2003-02-19) |
 | 10 | 2003-04-03 | Decreto Ejecutivo 31147 (2003-04-03) |
 | 11 | 2003-04-03 | Decreto Ejecutivo 31148 (2003-04-03) |
+| 12 | 2004-02-27 | Decreto Ejecutivo 31817 (2004-02-27) |
