@@ -1,1 +1,4 @@
-Articulo 80.—En casos muy calificados, los jefes de oficina, departamento y dirección, podrán justificar las ausencias hasta por dos días que no sean por la capacidad del servidor quien no debe ganar el salario correspondiente a los unas no trabajados, las ausencias mayores requerirán de la aprobación del administrador. según lo dispone el inciso b), del articulo 84 del presente reglamento.
+CAPITULO XV
+De las llegadas tardías y ausencias
+Articulo 80—El trabajador deberá presentarse al lugar de trabajo que si le haya asignado u la hora indicada para el inicio de su jornada La ausencia de marca en la tarjeta de asistencia o cualquier otro sistema de control legalmente establecido se considerará como una ausencia, salvo prueba en contrario.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 74 pasó a ser el 80.)

@@ -1,2 +1,4 @@
-Articulo 62.—Las marcas en lis tarjetas de asistencia, deberán hacerse con el debido cuidado y solamente por el servidor a quien corresponda, de manera que queden impresas con claridad toda vez que las marcas defectuosas, contusas o manchadas que no se deban a desperfecto del reloj se tendrán como no hechos
-Salvo prueba en contrario o en los casos previstos por este reglamento, la omisión de una marca en la tarjeta, hará presumir la inexistencia de la misma y se considerará como abandono de labores al inicio o al final de la jornada.
+CAPITULO XIII
+De la promoción interna, traslados y permutas
+Articulo 62 —Los ascensos a grado inmediato superior dentro de la misma actividad o serie, los podrán recomendar los jefes tomando en cuenta el adecuado desempeño de las funciones de los servidores, su antigüedad y cualquiera otros factores, y se hará siempre que los aspirantes llenen los requisitos establecidos en el manual descriptivo de puestos, para cada clase que va a ser promovido y cuando exista una plaza vacante.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 56 pasó a ser el 62.)

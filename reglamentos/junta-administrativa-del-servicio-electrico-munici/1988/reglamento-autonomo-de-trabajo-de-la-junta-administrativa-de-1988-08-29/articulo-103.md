@@ -1,0 +1,5 @@
+CAPITULO XIX
+De las peticiones y reclamos
+Articulo 103 —Los servidores deberán ser atendidos en sus sugerencias y en general en todo aquello que estimule su iniciativa personal su eficiencia y el mejoramiento de las condiciones de trabajo. Todas las quejas, peticiones, reclamos y sugerencias en general, originadas con ocasión de la relación laboral deberán ser dirigidas por escrito al jefe inmediato superior quien resolverá en la misma forma, lo procedente dentro de los cinco días hábiles siguientes. Los asuntos urgentes o cuando su menor importancia así lo ameriten, se podrán gestionar verbalmente y deberán resolverse de la misma forma y de inmediato.
+Si el jefe requerido se considera incompetente para resolver la gestión planteada, el servidor podrá recurrir al superior según la escala jerárquica establecida, cuya culminación será la Junta Administrativa Se autoriza al funcionario a seguir el procedimiento anterior cuando el jefe inmediato no tomare ninguna decisión.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 97 pasó a ser el 103.)

@@ -1,5 +1,3 @@
-Articulo 78.—La ausencia injustificada al trabajo al final de un mismo mes calendario, se sancionará de la siguiente manera:
-a) Por una ausencia, suspensión hasta por dos días.
-b) Por una ausencia y media consecutiva o alternas o dos ausencias alternas. suspensión hasta por ocho días.
-c) Por dos ausencias consecutivas y/o más de dos ausencias alternas, despido sin responsabilidad patronal.
-La información requerida para estas sanciones será la que se indica en el articulo 66 del presente reglamento.
+Articulo 78 —Las amonestaciones orales y escritas las hará el jefe inmediato en consulta con la oficina de personal La suspensión la hará el jefe inmediato en consulta con las oficinas del personal y la administración. El despido sin responsabilidad patronal será recomendado por el administrador ante la Junta Directiva. la cual decidirá Previo a la suspensión de servicios sin responsabilidad patronal, se seguirá el procedimiento establecido sobre este particular en la Ley General de la Administración Pública. Código de Trabajo, leyes conexas y Reglamentos Todo lo concerniente al procedimiento establecido en la citada ley instruirá a la oficina de personal de la institución.
+De acuerdo con la gravedad de los hechos íDiputados al servidor, la institución podrá separarlo sin goce de salario en ejercicio de sus funciones, por un periodo no mayor de quince días hábiles En el evento de que no se demuestre las falta del funcionario, deberán pagársele los .salarios que ha dejado de percibir.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 72 pasó a ser el 78.)

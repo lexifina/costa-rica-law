@@ -1,17 +1,17 @@
-Articulo 17 —Disponibilidad.
-a) El profesional o técnico que sea asignado a un trabajo en el que se requiera estar en la condición de disponibilidad. tendrá derecho a que se le pague un sobresueldo por concepto de disponibilidad, siempre que en el ejercicio de sus funciones deba emplear tiempo adicional a su jornada ordinaria de trabajo.
-b) No podrá pagar sobresueldo por concepto de disponibilidad al profesional que tenga menos de un año de trabajar específicamente en la profesión o técnica correspondiente Podrá existir excepción con lo dispuesto anteriormente. en los casos de profesionales que teniendo más de dos años de haberse recibido a su vez tengan conocimientos y experiencias requeridas para atender el trabajo que se relaciona con la disponibilidad, todo a juicio de los respectivos jefes de departamento.
-c) En casos especiales no contemplados en la definición del concepto "disponibilidad". en forma total o parcial, al profesional o técnico que aún no trabajando en labores de mantenimiento u operación, tenga necesariamente que estar disponible, siempre que se den todas las demás circunstancias previstas en este articulo.
-ch) El profesional o técnico que adquiera el compromiso formal de realizar los trabajos que originan y justifican el pago de sobresueldo por disponibilidad, está obligado durante ese período de disponibilidad a cumplir con las siguientes normas:
-1) Proporcionar a su jefe y a las dependencias y personas que lo puedan necesitar, el número de teléfono y dirección de su domicilio habitual y el o los lugares en donde pueda ser localizado fácilmente cuando no se
-encuentren en su domicilio.
-2) Estar en condiciones y capacidad de acudir a realizar su trabajo en el día. hora y lugar en que se le necesite.
-3) Abstenerse de participar en cualquier actividad remunerada o no, fuera de la JASEC. que le impida cumplir con las obligaciones contraidas en su condición de profesional o técnico en disponibilidad, incluyendo entre ellas el ejercicio de actividades docentes en cualquier centro educativo.
-d) Para que a un profesional o técnico se !e pueda pagar disponibilidad deberá existir acuerdo formal de la Junta, la que resolverá a solicitud del respectivo jefe de departamento ante quien deberá probar el jefe inmediato del trabajador que está asignado a trabajos que justifican el mencionado pago. asimismo que está en capacidad de asumir la responsabilidad correspondiente y que. en general -r cumple con todas las disposiciones aquí contempladas.
-e) La solicitud que el jefe de departamento haga para que se pague sobresueldo por disponibilidad a un profesional o técnico, deberá ser acompañada de todos los documentos e información necesarios para justificar el pago, incluyendo el señalamiento del periodo para el que se solicita el mismo o bien si es por tiempo no fácil de proveer La solicitud y los documentos deberán enviarse a la Oficina de Personal, el que con su opinión los remitirá a la Junta para su resolución.
-f) En el caso de que la Junta resolviera suspender el pago de una suma acordada por concepto de disponibilidad. por cuanto dejaron de existir los motivos que originaron su concesión, el profesional o técnico que la recibió no podrá alegar derechos adquiridos, dado que el pago se acuerda con motivo de circunstancias particulares y excepcionales de tiempo y de lugar que puedan variar.
-g) Cuando dejen de subsistir los motivos que originaron el pago de sobresueldo por disponibilidad, el jefe inmediato lo comunicará a la Oficina de Personal para que se hagan los cambios necesarios en el salario del profesional o técnico que lo está recibiendo.
-h) El acuerdo formal de !a Junta que concede una suma por concepto de disponibilidad será objeto de una cláusula especial en el respectivo contrato escrito de trabajo En la cláusula deberá consignarse que el trabajador acepta las normas establecidas en este capitulo y que también se responsabiliza a devolver o autorizar a que se le deduzcan de su salario en una proporción no mayor del cinco por ciento (5%) del total del mismo, las sumas de dinero que por cualquier circunstancia recibiere por disponibilidad sin que legal o reglamentariamente le hubieren correspondido.
-i) El profesional o técnico a quien formalmente de acuerdo con este articulo se haya concedido el pago de sobresueldo por disponibilidad, por tal concepto una suma igual a la que ya reciben otros trabajadores en las mismas condiciones de disponibilidad Si no hay otros trabajadores de la misma clasificación que reciban este sobresueldo, la fijación del monto la hará la junta de acuerdo con el trabajador guardando en este caso la relación con el monto que se pague a otros trabajadores de distinta clasificación.
-j) El sobresueldo por disponibilidad no se pagará cuando el trabajador no esté desempeñando las funciones que originaron ese pago. excepción hecha de las vacaciones e incapacidad por enfermedad o accidente.
-k) El trabajado que reciba sobresueldo por disponibilidad no tendrá derecho a que se le | agüen sobresueldos por otros conceptos como desplazamiento, zonaje, etc.
+Artículo 17: El empleado que se retire de la Institución tendrá derecho a recibir un porcentaje de la cesantía laboral que le corresponda, de acuerdo con la siguiente tabla:
+Años continuos de servicio | Porcentaje de retiro
+10 hasta menos de 11 | 25%
+11 hasta menos de 12 | 30%
+12 hasta menos de 13 | 35%
+13 hasta menos de 14 | 40%
+14 hasta menos de 15 | 45%
+15 hasta menos de 16 | 50%
+16 hasta menos de 17 | 60%
+17 hasta menos de 18 | 70%
+18 hasta menos de 19 | 80%
+19 hasta menos de 20 | 90%
+20 y más | 100%
+De lo dispuesto en este artículo se exceptúan las funcionarías casadas cuyo estado les impida realizar sus tareas en forma normal y los que se retiren de la Junta con motivo de pensión para quienes se establecerá un reglamento especial, también se excluyen quienes incumplan con la Junta sus compromisos de trabajo, becas y/o hayan incurrido en causal de despido.
+Se establece que la indemnización por cesantía será de hasta veinte salarios mensuales, entendiendo por salario mensual el promedio de los pagos mensuales de los últimos seis meses.
+En caso de muerte de un trabajador activo y permanente de la Junta, cualquiera que sea su antigüedad tendrá derecho al 75% más del tiempo laborado hasta por un máximo de veinte años.
+(Así ADICIONADO por la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995.)

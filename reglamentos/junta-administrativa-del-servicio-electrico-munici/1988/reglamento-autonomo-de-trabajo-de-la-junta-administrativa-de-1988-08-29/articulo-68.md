@@ -1,6 +1,3 @@
-Articulo 68—Se establecen las siguientes medidas disciplinarias:
-a) Amonestación oral.
-b) Amonestación escrita.
-c) Suspensión del trabajo sin goce de salario por ocho días.
-d) Despido sin responsabilidad patronal.
-Las anteriores sanciones se aplicarán atendiendo a la gravedad de la falta y se dejará constancia de ella en el expediente del servidor, junto con los documentos respectivos.
+Articulo 68.—Las marcas en lis tarjetas de asistencia, deberán hacerse con el debido cuidado y solamente por el servidor a quien corresponda, de manera que queden impresas con claridad toda vez que las marcas defectuosas, contusas o manchadas que no se deban a desperfecto del reloj se tendrán como no hechos
+Salvo prueba en contrario o en los casos previstos por este reglamento, la omisión de una marca en la tarjeta, hará presumir la inexistencia de la misma y se considerará como abandono de labores al inicio o al final de la jornada.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 62 pasó a ser el 68.)

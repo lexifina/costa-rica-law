@@ -1,1 +1,4 @@
-Articulo 75 —Se considerará llegada tardía la presentación al lugar de trabajo en horas de la mañana, de la tarde o de la noche, después de cinco minutos de la hora señalada para el comienzo de las labores, todo lo anterior en concordancia con lo que al respecto establece el presente reglamento El trabajador que se presente con un tiempo mayor a lo estipulado, en el presente articulo deberá justificarlo ante su jefe inmediato, la reincidencia de esta falta en el mismo mes calendario se considerará como falta grave.
+Articulo 75 —La amonestación oral se aplicará en los siguientes casos:
+a) Cuando el servidor cometa alguna falta leve u las obligaciones que le impone su relación de servicio
+b) En casos expresamente previstos por este reglamento.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 69 pasó a ser el 75.)

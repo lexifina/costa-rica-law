@@ -1,3 +1,2 @@
-CAPITULO XIV
-Del registro de asistencia
-Articulo 60.—El registro de asistencia y otras disposiciones disciplinarias se llevarán por medio de tarjetas individuales que cada servidor deberá marcar personalmente mediante reloj u otro sistema similar Queda excluidos de marcar el administrador, subadministrador, Auditor interno y empleados de confianza.
+Articulo 60.—En los casos de concurso interno, la oficina de personal divulgará en forma escrita y en los lugares de mayor afluencia de personal, la categoría, requisitos, salario y toda la información que sobre el puesto resultare de interés, igualmente señalará el plazo para la recepción.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 54 pasó a ser el 60.)

@@ -1,1 +1,3 @@
-Articulo 40.—Todo trabajador por cada cinco años de trabajo efectivo tendrá derecho a que se le reconozca un 5% sobre su salario pase.
+Articulo 40—Se podrá conceder licencia con goce de salario siempre y cuando los permisos no excedan de un mes por año. al servidor, miembro de juntas directivas de organizaciones nacionales o de segundo grado, de carácter cooperativo, solidarista. sindical, operando debidamente autorizado por y dentro de la institución, para que se dediquen a actividades propias de su organización.
+Este hecho queda limitado a una persona por organización y se hará efectivo por disposición de la administración general, a solicitud escrita de la entidad respectiva y previa notificación a la oficina de personal y a la jefatura inmediata.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 34 pasó a ser el 40.)

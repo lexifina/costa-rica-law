@@ -1,5 +1,4 @@
-Articulo 19 —Todos los servidores disfrutarán de vacaciones anuales en la siguiente proporción:
-a) De. los primeros cinco periodos de labor continua: 15 días hábiles
-b) Del sexto al noveno periodo anual de trabajo continuo: 2 días hábiles
-c) Del décimo periodo anual de trabajo continuo en adelante: 30 días.
-Para estos efectos se computará el tiempo servido en otras instituciones o dependencias estatales, de conformidad con lo establecido en el articulo 13 del presente Reglamento.
+Articulo 19—Todo servidor que reciba su pago del renglón de salarios fijos tendrá derecho a que se le reconozcan para efectos de aumentos anuales, el tiempo de servicio prestado en otras entidades y dependencias del sector público.
+La Junta Directiva de la institución será quien determine y apruebe en cada caso dicho reconocimiento, cuyo trámite lo realizará la Oficina de Personal a solicitud del interesado, aplicando el decreto No 18181-A del 14 de junio de 1988, publicado en "La Gaceta" N° 120 del 23 de junio de 1988.
+Este reconocimiento será efectivo a partir del mes inmediato siguiente de su comprobación y aprobación y se hará efectivo .su pago cuando se cuente con el contenido económico necesario.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 13 pasó a ser el 19.)

@@ -1,3 +1,3 @@
-CAPITULO XI
-Junta Relaciones Laborales
-Articulo 41.—La Junta de Relaciones Laborales será la encargada de velar per el fiel cumplimiento y correcta aplicación del presente Reglamento Autónomo de Trabajo
+Articulo 41 —Se procederá a la reducción forzosa de servicios solo en situaciones de falta de fondos o bien para conseguir un servicio público eficiente.
+Permanecerán en su puesto aquellos funcionarios que, hayan demostrado su capacidad y eficiencia, asimismo se tendrá en cuenta para los fines anteriores, la calidad, antigüedad y carácter, la conducta, las aptitudes y demás condiciones que resulten en la calificación de los servicios.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 35 pasó a ser el 41.)

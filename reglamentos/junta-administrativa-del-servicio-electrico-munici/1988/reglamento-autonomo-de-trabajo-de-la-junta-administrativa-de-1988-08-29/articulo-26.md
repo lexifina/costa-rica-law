@@ -1,1 +1,2 @@
-Articulo 26 —Para el cómputo efectivo del tiempo de trabajo, no se tomará en cuenta las licencias con goce de salario ni el tiempo que el servidor hubiese estado incapacitado para trabajar por razón de enfermedad o accidente de trabajo.
+Articulo 26 —El derecho a la vacación anual se tiene cuando el servidor haya prestado sus servicios durante cincuenta semanas de labor continua, sin embargo si por cualquier causa el servidor no hubiere completado dicho plazo tendrá opción a disfrutar vacaciones proporcionales en el tanto que corresponda, por cada mes trabajado a criterio de su inmediato superior.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 20 pasó a ser el 26.)

@@ -1,1 +1,4 @@
-Articulo 33 —Todo servidor que por motivo de recargo de funciones sustituyere a otros. recibirá como retribución !a diferencia resultante entre los salarios base de la plaza que ocupa y la que asume por recargo, manteniendo constante su retribución actual por concepto de anualidades.
+CAPITULO VII
+Del descanso semanal y días feriados
+Articulo 33.—Los servidores de la Junta disfrutarán de un día de descanso después de cada semana, o de cada seis días de trabajo continuo, no obstante lo anterior y a fin de preservar los principios fundamentales del servicio público tales descansos podrán ser otorgados en forma acumulativa mensual.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 27 pasó a ser el 33.)

@@ -1,1 +1,2 @@
-Articulo 65—Las llegadas tardías injustificadas que excedan de quince minutos impedirán al trabajador laborar en la jornada correspondiente y serán sancionadas como ausencias injustificadas
+Articulo 65—Para los empleados y funcionarios que estén sujetos a trabajar en caso do emergencia y para evitar perjuicios al interés público y a !os activos de la Junta, así como reparar daños por fuerza mayor caso fortuito, tendrán derecho a rotación y hasta por un año como otros empleados y funcionarios de la Junta manteniendo su salario.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 59 pasó a ser el 65.)

@@ -1,1 +1,2 @@
-Articulo 85 —Los permisos concedidos por la Junta, de conformidad con lo dispuesto en el presente reglamento, no interrumpen la continuidad del servicio. y por lo tanto el beneficiario que los disfruta conserva plenamente todos los derechos establecidos en las leyes y reglamentos aplicables
+Articulo 85.—Las ausencias por enfermedad que no excedan de dos días, sólo se justificarán cuando medie certificado médico extendido por la Caja Costarricense de Seguro Social, por el Instituto Nacional de Seguros o por médico particular, en cualquiera de los casos no devengarán salario.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 79 pasó a ser el 85.)

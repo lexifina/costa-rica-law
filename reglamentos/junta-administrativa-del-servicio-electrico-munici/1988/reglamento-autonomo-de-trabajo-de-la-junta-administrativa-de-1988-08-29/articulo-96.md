@@ -1,1 +1,2 @@
-Artículo 96.—La Junta proveerá en forma gratuita los elementos de seguridad necesarios para el cumplimiento de los acuerdos tomados por el Comité de Salud Ocupacional tales elementos y herramientas serán siempre propiedad de la JASEC y ésta los proveerá dentro de un plazo máximo de un mes.
+Articulo 96—Los servidores que se acojan a la licencia con goce de anteriormente para estudios deben suscribir un contrato de conformidad con los término establecidos en el reglamento de becas y en el presente instrumento legal.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 90 pasó a ser el 96.)

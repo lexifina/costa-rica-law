@@ -1,1 +1,4 @@
-Artículo 24—Sin perjuicio del derecho que asiste a los servidores en forma ininterrumpida sus vacaciones, los jefes de común acuerdo con éstos, podrán convenir en fraccionarlas en dos periodos, siempre que no se perjudique la continuidad y eficiencia del servicio.
+CAPITULO VI
+De las vacaciones
+Articulo 24 - Los servidores gozarán de vacaciones anuales las cuales serán irrenunciables y obligatorias Como excepción con lo anterior los servidores que realicen labores que no sean pesadas, insalubres ni peligrosas y que exijan continuidad, por la índole de las necesidades que satisfagan, el servidor podrá consentir a solicitud de la administración, en continuar prestando sus servicios durante el periodo de vacaciones En tal caso el trabajo realizado se remunera con el doble del salario que ordinaria o extraordinariamente Ir corresponda, para ello la Junta proveerá anualmente los recursos necesarios.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 18 pasó a ser el 24.)

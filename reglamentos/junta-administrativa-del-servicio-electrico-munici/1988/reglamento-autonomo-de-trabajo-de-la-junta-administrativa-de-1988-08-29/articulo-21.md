@@ -1,5 +1,14 @@
-Articulo 21 —Las vacaciones anuales se interrumpen únicamente en los siguientes casos:
-a) Por accidente comprobado
-b) Por enfermedad comprobada
-c) Por razones imperiosas del servicio que brinda la dependencia donde el servidor labora, debidamente fundadas y comprobadas
-d) Por lo dispuesto por este reglamento en lo relativo a licencias con goce de salario
+CAPITULO V
+Del zonaje, desplazamiento y disponibilidad
+Articulo 21 —Zonaje
+a) El pago de zonaje se aprobará cuando el reclutamiento y la selección de personal profesional y técnico se haga difícil —o que exista peligro de su evasión si ya está trabajando— por razón del monto de los salarios básicos fijado para los correspondientes puestos, según el sistema de clasificación v valoración de puestos, y siempre que entre otras circunstancias se den las siguientes:
+1) Que el trabajador permanezca durante los días hábiles de trabajo. en el mismo lugar o circunscripción territorial en donde presta sus servicios
+2) Que la circunscripción territorial en donde se encuentra ubicado el lugar de trabajo no proporcione, en relación con el lugar de su residencia habitual iguales o mejores condiciones de habitación, facilidades de
+educación y atención médica para el trabajador y su familia.
+3) Que se dé alguna otra circunstancia de tipo excepcional, no corriente en la generalidad de los lugares de trabajo en la gran mayoría de los trabajadores y que no esté incluida en los apartes anteriores
+b) El zonaje que se pague a los profesionales en ingeniería que se regirá en todo lo que sea aplicable por las disposiciones aquí contempladas estará sujeta a que el ingeniero deberá prestar servicios en labores de supervisión en obras especificas de construcción o de montaje de maquinaria y equipo El monto de zonaje será acordado solamente por disposición formal de la Junta y su pago tendrá efecto a partir de la fecha en que la misma lo apruebe y por todo el tiempo que se mantengan las condiciones que motivaron su concesión El zonaje dejará de pagarse durante los periodos mayores de una semana en los que el trabajador este disfrutando de permiso con o sin goce de sueldo, y cuando esté ausente de la circunscripción territorial respectiva, en funciones de la Junta o en actividades propias.
+El trabajador a quien de acuerdo con este capitulo deba pagársele zonaje y preste sus servicios en lugares o proyectos en donde cuente con instalaciones y facilidades para alojamiento y alimentación, tendrá derecho a hacer uso de esas instalaciones y facilidades.
+c) En el caso de que la Junta resolviera suspender el pago de una suma acordada por concepto do zonaje, por cuanto dejaron de existir los motivos que originaron su concesión, el trabajador que la disfrutó no podrá alegar derechos adquiridos, ya que el pago se acuerda con motivo de circunstancias particulares y excepcionales de tiempo y de lugar que puedan variar.
+ch) La concesión de una suma por concepto de zonaje o La suspensión de la misma. serán tramitadas únicamente por medio de "Acción de Personal"
+No se producirá ninguna modificación en el salario del trabajador si no se cumple con lo dispuesto en este párrafo El acuerdo formal de La Junta que concede una suma por concepto de zonaje será objeto de una cláusula especial en el respectivo contrato escrito de trabajo. En la cláusula deberá consignarse que el trabajador acepta las normas establecidas en este capitulo, especialmente si fuere del suspender el zonaje según lo establecido anteriormente y que también se responsabiliza a devolver, o autorizar a que se deduzcan de su salario en una proporción no mayor del cinco por ciento (5%) del total del mismo, las sumas de dinero que por cualquier circunstancia recibiera por zonaje sin que legal o reglamentariamente le hubieren correspondido.
+(Así MODIFICADA su numeración en la Sesión N° 2960 de 13 de enero de 1995, publicada en La Gaceta N° 67 de 04 de abril de 1995, por el cuál el artículo 15 pasó a ser el 21.)
