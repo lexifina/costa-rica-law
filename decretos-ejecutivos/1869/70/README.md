@@ -13,3 +13,4 @@ Reglamento de la Instrucción Primaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1869-11-10 | la propia norma |
+| 2 | 1870-06-23 | Decreto Ejecutivo 30 (1870-06-23) |

@@ -1,7 +1,7 @@
-(Nota: Mediante el Decreto Ejecutivo N° XXX del 23 de junio de 1870, declara vijente este decreto dictado por el ex-Presidente Licenciado Señor Jesús Jiménez).
 DECRETO LXX.
-Reglamento da la Instruccion Primaria.
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente a mediados del siglo XIX)
+(Nota de Sinalevi: Mediante Decreto Ejecutivo N° XXX del 23 de junio de 1870, declara vijente este decreto dictado por el ex-Presidente Licenciado Señor Jesús Jiménez).
+Reglamento da la Instruccion Primaria.
 CAPITULO I
 De las Autoridades provinciales y locales.
 Art. 1° Las Autoridades provinciales y municipales, bajo su mas estrecha responsabilidad, deberán:
