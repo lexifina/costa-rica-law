@@ -1,0 +1,1 @@
+Artículo 18.—Por acuerdo del Concejo se puede llamar a cualquier funcionario a una sesión para que explique alguna situación o actuación; sin que por ello deba recibir remuneración alguna. El funcionario está obligado a responder personalmente y no por medio de otras personas. La negativa a presentarse o responder ías preguntas se considera falta grave y será sancionada como tal.

@@ -1,0 +1,1 @@
+Artículo 3°—Las sesiones del Concejo se celebrarán en el local de Palacio Municipal. Las sesiones extraordinarias podrán celebrarse en otro lugares dentro del cantón cuando la índole de los asuntos a tratar así lo requieran.

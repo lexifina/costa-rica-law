@@ -1,0 +1,1 @@
+Artículo 4°—Las sesiones ordinarias se realizarán los primero; cuatro miércoles de cada mes. La hora de inicio de las sesiones será a la: 17,00 horas y conforme a lo indicado en el artículo 38 del Código Municipal.
