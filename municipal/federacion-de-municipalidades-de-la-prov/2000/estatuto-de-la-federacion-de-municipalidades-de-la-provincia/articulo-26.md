@@ -5,5 +5,5 @@ a) Los aportes que hagan las Municipalidades de conformidad con la Ley No 4176 d
 b) Los bienes inmuebles o muebles que les traspasen las Municipalidades conforme a la Ley.
 c) Las subvenciones que acuerde en su favor el Estado a través de los presupuestos ordinarios y extraordinarios de la República.
 d) Las donaciones, herencias, legados y cualquier tipo de ingresos eventuales que se acordaren a su favor.
-e) Las actividades de la Federación estarán fiscalizadas por la Contraloría General de la República.
+e) DEROGADO, en Asamblea General Ordinaria del 29 de junio de 2002. No obstante, dicha derogación se refiere al inciso e) del artículo 25, en realidad corresponde al 26, debido que, al adicionarse, en una reforma anterior, un artículo 6°, se corrió la numeración de los artículos siguientes):
 (Así corrida su numeración en Asamblea General Extraordinaria del 4 de agosto de 2001, que al adicionar un artículo 6°, lo pasó del antiguo 25 a ser el artículo 26).

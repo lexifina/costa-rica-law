@@ -1,0 +1,2 @@
+Artículo 26. Bis.- Las actividades de la Federación estarán fiscalizadas por la Constraloría General de la República.
+(Así adicionado en Asamblea General Ordinaria del 29 de junio de 2002. No obstante dicha adición se refiere al artículo 25 Bis, en realidad corresponde al 26 Bis, ya que el inciso e) que pasó a ser Artículo 26 bis, pertenecía al artículo 25, cuya numeración se corrió a 26, al adicionarse mediante reforma anterior, un artículo 6° a este reglamento).
