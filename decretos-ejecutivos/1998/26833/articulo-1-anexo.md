@@ -84,8 +84,14 @@ CAPITULO 11:
 1101-1103 - Un cambio a la partida 1101 a 1103 desde cualquier otro
 capítulo
 1104.11- - Un cambio a la subpartida 1104.11 a 1104.12 desde
-1104.12 cualquier otra subpartida
-1104.19- - Un cambio a la subpartida 1104.19a 1104.30 desde
+1104.12 - Un cambio a la subpartida 1104.12 desde cualquier otra subpartida
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+1104.19.10 - Un cambio al inciso 1104.19.10 desde cualquier otra subpartida
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+1104.19.90 - Un cambio al inciso 1104.19.90 desde cualquier otro capítulo
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+1104.22-1104.30 - Un cambio a la subpartida 1104.22 a 1104.30 desde cualquier otro capítulo.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 1104.30 cualquier otro capítulo
 1105 - Un cambio a la partida 1105 desde cualquier otro capítulo,
 excepto de la partida 0701 ó de la subpartida 0710.10 y
@@ -105,7 +111,8 @@ capítulo, excepto de la partida 0714
 CAPITULO 12:
 1201-1214 - Un cambio a la partida 1201 a 1214 desde cualquier otro capítulo
 CAPITULO 13:
-1301-1302 - Un cambio a la partida 1301 a 1302 desde cualquier otro capítulo
+1301 -1302 - Un cambio a la partida 1301 a 1302 desde cualquier otro capítulo, excepto de concentrados de paja de adormidera de la subpartida 2939.11
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 CAPITULO 14:
 1401-1404 - Un cambio a la partida 1401 a 1404 desde cualquier otro
 capítulo
@@ -139,7 +146,15 @@ capítulo, excepto de la subpartida 1207.10
 1513.29a/
 1514.10 - Un cambio a la subpartida 1514.10 desde cualquier otro
 capítulo
+1514.11 - Un cambio a la subpartida 1514.11 desde cualquier otro capítulo.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+1514-19 - Un cambio a la subpartida 1514.19 desde cualquier otro capítulo.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 1514.90a/
+1514.91 - Un cambio a la subpartida 1514.91 desde cualquier otro capítulo.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+1514.99 - Un cambio a la subpartida 1514.99 desde cualquier otro capítulo.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 1515.11 - Un cambio a la subpartida 1515.11 desde cualquier otro
 capítulo
 1515.19a/
@@ -149,8 +164,8 @@ capítulo
 1515.30- - Un cambio a la subpartida 1515.30 a 1515.40 desde
 1515.40 cualquier otro capítulo
 1515.50a/
-1515.60 - Un cambio a la subpartida 1515.60 desde cualquier otro
-capítulo
+1515-60 - Suprimida
+(Derogada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 1515.90a/
 1516a/
 1517.10a/
@@ -188,21 +203,23 @@ CAPITULO 19:
 1901.102 - Un cambio a la subpartida 1901.10 desde cualquier otro
 capítulo, excepto de la partida 0402.
 1901.20a/
-1901.20 Un cambio a la subpartida 1901.20 desde cualquier otro capítulo, excepto de la partida 101 y de la subpartida 1103.11 y 1103.21
-(Así aprobada e incluida mediante artículo 1 del decreto ejecutivo N° 27613 de 12 de enero del 2002)
+1901-20 - Un cambio a la subpartida 1901.20 desde cualquier otro capítulo, excepto de la partida 1101 y de la subpartida 1103.11 y del inciso 1103.20.10.
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 1901.90 - Un cambio a la subpartida 1901.90 desde cualquier otra
 partida, excepto de la partida 0402
 1902a/
-1902 Un cambio a la partida 1902 desde cualquier otro capítulo, excepto de la partida 1101 y de la subpartida 1103.11 y 1103.21.
-(Así aprobada e incluida mediante artículo 1 del decreto ejecutivo N° 27613 de 12 de enero del 2002)
+1902 - Un cambio a la partida 1902 desde cualquier otro capítulo, excepto de la partida 1101 y de la subpartida 1103.11 y del inciso 1103.20.10.
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 1903 - Un cambio a la partida 1903 desde cualquier otra partida
 1904.10 - Un cambio a la subpartida 1904.10 desde cualquier otra
 partida
+1904.30-1904.90 - Un cambio a la subpartida 1904.30 a 1904.90 desde cualquier otra partida, excepto de la partida 1006
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 1904.90 - Un cambio a la subpartida 1904.90 desde cualquier otra
 partida, excepto de la partida 1006
 1905a/
-1905 Un cambio a la partida 1905 desde cualquier otro capítulo, excepto de la partida 1101 y de la subpartida 1103.11 y 1103.21.
-(Así aprobada e incluida mediante artículo 1 del decreto ejecutivo N° 27613 de 12 de enero del 2002)
+1905 - Un cambio a la partida 1905 desde cualquier otro capítulo, excepto de la partida 1101, de la subpartida 1103.11 y del inciso 1103.20.10.
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 (Eliminada la llamada b/ de la subpartida 1901.10, por el artículo 1 del decreto ejecutivo N° 27613 de 12 de enero de 1999)
 CAPITULO 20:
 2001 - Un cambio a la partida 2001 desde cualquier otro capítulo,
@@ -314,10 +331,24 @@ SECCIÓN VI
 PRODUCTOS DE LAS INDUSTRIAS QUÍMICAS O DE LAS INDUSTRIAS CONEXAS
 (Del Capítulo 28 al 38)
 CAPITULO 28:
-2801.10- - Un cambio a la subpartida 2801.10 a 2851.00 desde
+2801.10-2841.90 - Un cambio a la subpartida 2801.10 a 2841.90 desde cualquier otra subpartida.
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+2842.10 - Un cambio a la subpartida 2842.10 desde cualquier otra subpartida, permitiéndose la utilización de aluminosilicatos de constitución química no definida, no originarios, de esta misma subpartida.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+2842.90 - Un cambio a la subpartida 2842.90 desde cualquier otra subpartida.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+2843.10-2851.00 Un cambio a la subpartida 2843.10 a 2851.00 desde cualquier otra subpartida.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 2851.00 cualquier otra subpartida
 CAPITULO 29:
-2901.10- - Un cambio a la subpartida 2901.10 a 2942.00 desde
+2901.10-2938.90 - Un cambio a la subpartida 2901.10 a 2938.90 desde cualquier otra subpartida.
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+2939.11 - Un cambio a la subpartida 2939.11 desde cualquier otra subpartida. Exclusivamente para el concentrado de paja de adormidera, el cambio será desde cualquier otro capítulo, excepto de la subpartida 1302.11.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+293919-2939.99 - Un cambio a la subpartida 2939.19 a 2939.99 desde cualquier otra subpartida.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+2940.00-2942.00 - Un cambio a la subpartida 2940.00 a 2942.00 desde cualquier otra subpartida.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 2942.00 cualquier otra subpartida
 CAPITULO 30:
 3001-3003 - Un cambio a la partida 3001 a 3003 desde cualquier otra
@@ -329,8 +360,12 @@ excepto de la partida 3003
 3006.40 cualquier otra partida
 3006.50 - Un cambio a la subpartida 3006.50 desde cualquier otra
 subpartida, siempre que todos los componentes sean originarios de la región
+3006.70 - Un cambio a la subpartida 3006.70 desde cualquier otra subpartida.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 3006.60 - Un cambio a la subpartida 3006.60 desde cualquier otra
 partida
+3006.80 - Un cambio a la subpartida 3006.80 desde cualquier otro capítulo, excepto del capítulo 38.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 CAPITULO 31:
 3101 - Un cambio a la partida 3101 desde cualquier otro capítulo
 3102.10- - Un cambio a la subpartida 3102.10 a 3102.29 desde
@@ -377,6 +412,10 @@ CAPITULO 33:
 partida, fuera del grupo
 CAPITULO 34:
 3401 - Un cambio a la partida 3401 desde cualquier otra partida
+3401.11-3401.20 - Un cambio a la partida 3401.11 a 3401.20 desde cualquier otra partida.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+3401.30 - Un cambio a la subpartida 3401.30 desde cualquier otra subpartida, excepto de la partida 3402.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 3402.11- - Un cambio a la subpartida 3402.11 a 3402.19 desde
 3402.19 cualquier otra subpartida
 3402.20 - Un cambio a la subpartida 3402.20 desde cualquier otra
@@ -451,6 +490,8 @@ partida
 4011 - Un cambio a la partida 4011 desde cualquier otra partida,
 excepto de la partida 4001 y de la subpartida 8708.70
 4012.10 - Un cambio a la subpartida 4012.10 desde cualquier otra partida, excepto de la subpartida 4012.20 y 8708.70
+4012.11-4012.19 - Un cambio a la subpartida 4012.11 a 4012.19 desde cualquier otra partida, excepto de la subpartida 4012.20 y 8708.70.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 4012.20 - Un cambio a la subpartida 4012.20 desde cualquier otra partida, excepto de la subpartida 8708.70
 4012.90 - Un cambio a la subpartida 4012.90 desde cualquier otra partida
 4013-4016 - Un cambio a la partida 4013 a 4016 desde cualquier otra
@@ -462,9 +503,13 @@ PIELES, CUEROS. PELETERÍA Y MANUFACTURAS DE ESTAS MATERIAS; ARTÍCULOS DE GUARN
 CAPITULO 41:
 4101-4103 - Un cambio a la partida 4101 a 4103 desde cualquier otro
 capítulo
+4104-4106 - Un cambio a la partida 4104 a 4106 desde cualquier otra partida, permitiéndose la utilización de cueros al "wet blue", no originarios
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 4104-4107 - Un cambio a la partida 4104 a 4107 desde cualquier otra
 partida, incluido el cambio de cueros o pieles "wet blue", a
 cueros preparados
+4107-4113 - Un cambio a la partida 4107 a 4113 desde cualquier otra partida.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 4108-4109 - Un cambio a la partida 4108 a 4109 desde cualquier otra
 partida
 4110 - Un cambio a la partida 4110 desde cualquier otra partida
@@ -480,7 +525,13 @@ SECCIÓN IX
 MADERA, CARBÓN VEGETAL Y MANUFACTURAS DE MADERA: CORCHO Y MANUFACTURAS DE CORCHO; MANUFACTURAS DE ESPARTERÍA O DE CESTERÍA.
 (Del Capítulo 44 al 46)
 CAPITULO 44:
+4401-4407 - Un cambio a la partida 4401 a 4407 desde cualquier otra partida.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 4401-4421 - Un cambio a la partida 4401 a 4421 desde cualquier otra partida
+4408 - Un cambio a la partida 4408 desde cualquier otra partida, permitiéndose para hojas para chapado obtenidas por corte de madera laminada, un cambio dentro de esta partida.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+4409-4421 - Un cambio a la partida 4409 a 4421 desde cualquier otra partida.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 CAPITULO 45:
 4501 - Un cambio a la partida 4501 desde cualquier otro capítulo
 4502 - Un cambio a la partida 4502 desde cualquier otra partida
@@ -500,11 +551,16 @@ partida
 CAPITULO 48:
 4801-4805 - Un cambio a la partida 4801 a 4805 desde cualquier otro
 capítulo
+4802 - Un cambio a la partida 4802 desde cualquier otro capítulo, permitiéndose el cambio interno en esta partida para los papeles y cartones en tiras o bobinas (rollos) de anchura inferior o igual a 150 mm o en hojas cuadradas o rectangulares en las que un lado sea inferior o igual a 360 mm y el otro sea inferior o igual a 150 mm.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+4803-4805 - Un cambio a la partida 4803 a 4805 desde cualquier otro capítulo.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 4806 – 4809 Un cambio a la partida 4806 a 4809 desde cualquier otra partida.
 (Así reformada por el artículo 1 del decreto ejecutivo N° 27613 de 12 de enero de 1999)
-4810 – 4811 Un cambio a la partida 4810 a 4811 desde cualquier otra partida.
-El proceso de laminado o estratificado incluso con otras materias confiere origen
-(Así reformada por el artículo 1 del decreto ejecutivo N° 27613 de 12 de enero de 1999)
+4810 - Un cambio a la partida 4810 desde cualquier otra partida, permitiéndose el cambio interno en esta partida para los papeles y cartones en tiras o bobinas (rollos) de anchura inferior o igual a 150 mm o en hojas cuadradas o rectangulares en las que un lado sea inferior o igual a 360 mm y el otro sea inferior o igual a 150 mm. El proceso de laminado o estratificado incluso con otras materias confiere origen.
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+4811 - Un cambio a la partida 4811 desde cualquier otra partida, permitiéndose el cambio interno en esta partida para los papeles y cartones en tiras o bobinas (rollos) de anchura inferior o igual a 150 mm o en hojas cuadradas o rectangulares en las que un lado sea inferior o igual a 360 mm y el otro sea inferior o igual a 150 mm. El proceso de laminado o estratificado incluso con otras materias confiere origen.
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 4812 - Un cambio a la partida 4812 desde cualquier otra partida
 4813-4815 - Un cambio a la partida 4813 a 4815 desde cualquier otra
 partida
@@ -513,6 +569,8 @@ partida
 4817 - Un cambio a la partida 4817 desde cualquier otra partida
 4818.10- - Un cambio a la subpartida 4818.10 a 4818.20 desde
 4818.20 cualquier otra partida, excepto de la partida 4803
+4823 - Un cambio a la partida 4823 desde cualquier otra partida
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 4818.30- - Un cambio a la subpartida 4818.30 a 4818.90 desde
 4818.90 cualquier otra partida
 4819.10- - Un cambio a la subpartida 4819.10 a 4819.60 desde
@@ -620,7 +678,8 @@ partida, fuera del grupo.
 5908-5911 - Un cambio a la partida 5908 a 5911 desde cualquier otra
 partida.
 CAPITULO 60:
-6001-6002 a/
+6001 - 6006 a/ * partida.
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 CAPITULO 61:
 6101-6117 a/
 6101-6114 a/
@@ -679,7 +738,14 @@ capitulo.
 6812.10 - Un cambio a la subpartida 6812.10 desde cualquier otra
 partida.
 6812.20- - Un cambio a la subpartida 6812.20 a 6812.90 desde
-6812.90 cualquier otra subpartida.
+6812.50-6812.70 - Un cambio a la subpartida 6812.50 a 6812.70 desde cualquier otra subpartida.
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+6812.90.10 - Un cambio al inciso 6812.90.10 desde cualquier otra partida.
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+6812.90.20 - Un cambio al inciso 6812.90.20 a 6812.90.90 desde
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
+6812.90.90 cualquier otro inciso.
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 6813 - Un cambio a la partida 6813 desde cualquier otra partida.
 6814-6815 - Un cambio a la partida 6814 a 6815 desde cualquier otro
 capítulo.
@@ -854,8 +920,12 @@ CAPITULO 81:
 8102.99 cualquier otra subpartida.
 8103.10- - Un cambio a la subpartida 8103.10 a 8103.90 desde
 8103.90 cualquier otra subpartida.
+8103.20-8103.90 - Un cambio al inciso 68103.20 - 8103.90 desde cualquier otra subpartida.
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 8104.11- - Un cambio a la subpartida 8104.11 a 8104.90 desde
 8104.90 cualquier otra subpartida.
+8105.20-8112.99 - Un cambio a la subpartida 8105.20 a 8112.99 desde cualquier otra subpartida.
+(Así modificada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 8105.10- - Un cambio a la subpartida 8105.10 a 8112.99 desde
 8112.99 cualquier otra subpartida.
 8113 - Un cambio a la partida 8113 desde cualquier otra partida.
@@ -1141,8 +1211,8 @@ cualquier otra subpartida.
 8507.10- - Un cambio a la subpartida 8507.10 a 8507.80 desde
 8507.80 cualquier otra subpartida.
 8507.90 - Un cambio a la subpartida 8507.90 desde cualquier otra partida.
-8508.10- - Un cambio a la subpartida 8508.10 a 8508.80 desde
-8508.80 cualquier otra subpartida.
+8508.10-8508.80 - Suprimida
+(Derogada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 8508.90 - Un cambio a la subpartida 8508.90 desde cualquier otra partida.
 8509.10- - Un cambio a la subpartida 8509.10 a 8509.80 desde
 8509.80 cualquier otra subpartida.
@@ -1280,6 +1350,8 @@ CAPITULO 90:
 9008.10- - Un cambio a la subpartida 9008.10 a 9008.40 desde
 9008.40 cualquier otra subpartida.
 9008.90 - Un cambio a la subpartida 9008.90 desde cualquier otra partida.
+9009.91-9009.99 - Un cambio a la subpartida 9009.91 a 9009.99 desde cualquier otra partida
+(Así adicionada por el artículo 1 del decreto ejecutivo N° 30703 de 5 de setiembre del 2002)
 9009.11 - - Un cambio a la subpartida 9009.11 a 9009.30 desde
 9009.30 cualquier otra subpartida.
 9009.90 - Un cambio a la subpartida 9009.90 desde cualquier otra partida.
