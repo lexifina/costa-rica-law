@@ -1,0 +1,4 @@
+ARTÍCULO 8
+Los Estados Partes garantizarán a toda persona que denuncie haber sido sometida a tortura en el ámbito de su jurisdicción el derecho a que el caso sea examinado imparcialmente.
+Así mismo, cuando exista denuncia o razón fundada para creer que se ha cometido un acto de tortura en el ámbito de su jurisdicción, los Estados Partes garantizarán que sus respectivas autoridades procederán de oficio y de inmediato a realizar una investigación sobre el caso y a iniciar, cuando corresponda, el respectivo proceso penal.
+Una vez agotado el ordenamiento jurídico interno del respectivo Estado y los recursos que este prevé, el caso podrá ser sometido a instancias internacionales cuya competencia haya sido aceptada por ese Estado.
