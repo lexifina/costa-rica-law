@@ -1,0 +1,2 @@
+Diferencias de Criterio:
+Artículo 10.-Cualquier diferencia de criterio que provoque la ejecución del Contrato, sin posibilidad de arreglo entre El Contratista y el Ingeniero que El Ministerio designe como su representante, deberá ser sometida a conocimiento del Superior Administrativo por vía de recurso. Si no es aceptado el criterio de El Contratista, éste podrá acudir a la vía Contencioso Administrativa, la cual fallará la controversia en forma definitiva.

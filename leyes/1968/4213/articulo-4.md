@@ -1,0 +1,2 @@
+Servicio de la Deuda:
+Artículo 4°-El Ministerio se compromete a que el Ministerio de Hacienda, a través de la Tesorería Nacional, dé orden irrevocable al Banco Central de Costa Rica, como Cajero del Estado, para que haga el pago del principal e intereses de los pagarés a que se refiere el artículo 2°, en las fechas de sus respectivos vencimientos. El Banco Central de Costa Rica, por su parte, se compromete a cumplir las instrucciones que en virtud de este Contrato reciba de la Tesorería Nacional.

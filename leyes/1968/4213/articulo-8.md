@@ -1,0 +1,1 @@
+Artículo 8°-El Contratista acepta y se compromete a construir con techo apropiado, la faja transportadora que se instale en el muelle. Esta deberá ser capaz de transportar la carga, desde el interior de los vagones del ferrocarril hasta los sitios de almacenamiento en las bodegas de los barcos.
