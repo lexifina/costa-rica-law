@@ -1,0 +1,2 @@
+Artículo XI
+Las Partes contratantes se comprometen á recabar las ratificaciones de esta Convención de sus respectivos Congresos, dentro de seis meses, á contar de esta fecha, aunque para ello deba hacerse convocatoria extraordinaria de aquellos Altos Cuerpos, y el canje subsiguiente se verificará dentro del mes siguiente á la fecha de la última de las ratificaciones indicadas, en San José de Costa Rica ó en Managua.

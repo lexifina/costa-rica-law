@@ -1,0 +1,2 @@
+Artículo VI
+Las Partes contratantes convienen en que el plazo fijado para la conclusión del amojonamiento no es perentorio, y portante será válido lo que después de su vencimiento se hiciere, bien por haber sido aquel plazo insuficiente para la práctica de todas las operaciones, ó bien por haber convenido los Comisionados de Costa Rica y Nicaragua entre sí y de acuerdo con el Ingeniero norteamericano, en suspender temporalmente las obras y no bastar para concluirlas el plazo que quede del fijado.

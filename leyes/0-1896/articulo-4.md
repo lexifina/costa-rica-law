@@ -1,0 +1,2 @@
+Artículo IV
+Verificado el nombramiento del Ingeniero norteamericano, y dentro de los tres meses siguientes á la fecha de ese nombramiento, se procederá á la demarcación y amojonamiento de la línea fronteriza, lo cual deberá estar terminado dentro de los veinte meses siguientes á la fecha de inauguración de los trabajos. Las Comisiones de las Partes contratantes se reunirán en San Juan del Norte, dentro de los términos fijados al efecto, é iniciarán sus trabajos en el extremo de la línea divisoria que, según el Tratado y Laudo antes referidos, parte de la costa atlántica.
