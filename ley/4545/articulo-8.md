@@ -1,7 +1,0 @@
-Artículo 8°-El titulante necesariamente deberá aportar:
-a) Su cédula de identidad o de residencia;
-b) Un plano que determine la situación y medida superficial de la finca; nombre y apellidos de los colindantes; área cultivada, con mención de los cultivos y de los bosques, en su caso; la medida lineal de los linderos y las superficies ocupadas por precaristas, si los hubiere. El plano deberá indicar los linderos naturales y las secciones cercadas, expresando en qué consisten aquéllos y de qué clase de cercas se trata;
-c) Certificación del Registro de la Propiedad, que indique si el titulante ha inscrito otras propiedades a su nombre por medio de informaciones posesorias y en caso afirmativo, la descripción detallada de los respectivos inmuebles, a efecto de determinar si existe colindancia, continuidad o unidad entre ellos;
-d) Constancia de la Tributación Directa que indique si la finca está registrada en el Departamento Territorial y el valor en que está estimada;
-e) El nombre, apellidos, cualidades y domicilio de tres testigos vecinos del lugar, a quienes les conste el tiempo de posesión y los actos que la comprueben. Cuando la medida de la finca no excediera de treinta hectáreas, este extremo podrá comprobarse mediante la manifestación por escrito de tres testigos, cuyas firmas deberán ser autenticadas;
-f) Tratándose de fincas urbanas mayores de una hectárea, o de fincas rurales mayores de cien hectáreas, es necesario aportar el documento público que exige el artículo 2° de esta ley.
