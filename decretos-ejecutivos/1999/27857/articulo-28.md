@@ -1,0 +1,1 @@
+Artículo 28.—Los recursos que genere el cobro de las tarifas establecidas en el presente decreto ejecutivo, deberán ser usados en la protección y desarrollo de las áreas silvestres protegidas, bajo la administración del Sistema Nacional de Áreas de Conservación.

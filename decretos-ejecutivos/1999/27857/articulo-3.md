@@ -1,0 +1,1 @@
+Artículo 3°—Por derecho de ingreso a las áreas silvestres protegidas bajo la administración del Sistema Nacional de Áreas de Conservación, los visitantes nacionales y residentes que se encuentren cursando la educación secundaria, pagarán por el concepto de ingreso la suma de ¢200,00 (doscientos colones), por día por cada sector público en cada área.
