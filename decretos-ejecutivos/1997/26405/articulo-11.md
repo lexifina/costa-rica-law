@@ -1,0 +1,1 @@
+Artículo 11.—El reconocimiento Bandera Ecológica, tiene una vigencia de un año; no obstante la Comisión podrá retirar el galardón, si una vez recibido la empresa o institución, infringe las disposiciones que la hicieron acreedor de ese reconocimiento.
