@@ -1,1 +1,0 @@
-Artículo 7°—Las Escuelas de aviación y centros de instrucción análogos deberán incluir dentro de sus programas de estudios las recomendaciones que en la materia y en cuanto a primeros auxilios para accidentes aeronáuticos, dicte la Comisión.

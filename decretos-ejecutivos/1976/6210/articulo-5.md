@@ -1,1 +1,0 @@
-Artículo 5°—Será función fundamental de la Comisión, la organización, dirección, proyección y actualización permanente del Archivo Médico Aeronáutico, el cual recopilará las fichas médicas de todo el personal aeronáutico nacional, técnico y auxiliar.

@@ -1,3 +1,0 @@
-Artículo 2°—La Comisión estará integrada por cuatro profesionales en medicina, debidamente incorporados al Colegio de Médicos y Cirujanos de Costa Rica, los cuales serán necesariamente especialistas en Medicina Forense, Neurología, Oftalmología y el médico de la Dirección General de Aviación Civil, quien fungirá como su Presidente.
-La designación de los médicos integrantes de la Comisión, con excepción del primero que será hecha directamente por la Corte Suprema de Justicia, será atribución exclusiva del Consejo Técnico de Aviación Civil, el cual elegirá en base a las ternas que al efecto le remita el referido Colegio Profesional y durarán en sus cargos dos años.
-Así reformado por el artículo 1° del decreto ejecutivo N° 7057 del 3 de junio de 1977)

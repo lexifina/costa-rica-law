@@ -1,1 +1,0 @@
-Artículo 8°—La Comisión rendirá un informe anual al Consejo sobre aquellos accidentes o incidentes aéreos cuya causa determinada sea atribuible a factor humano, incluyendo las recomendaciones que estime pertinentes.
