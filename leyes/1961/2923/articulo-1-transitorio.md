@@ -1,0 +1,2 @@
+Transitorio.-Las pensiones y los reajustes de éstas, otorgados desde el 1° de enero de 1955 hasta el 31 de diciembre de 1961, deberán calcularse de oficio por la Junta de Pensiones y Jubilaciones del Magisterio Nacional, de acuerdo con la ley N° 2248 de 5 de septiembre de 1958, y el pago de estos reajustes se hará con cargo a la renta producida por Ley N° 2597 de 28 de julio de 1960, sea el impuesto de tres céntimos cargado a cada galón de gasolina que se importe.
+Casa Presidencial.-San José, a los cuatro días del mes de diciembre de mil novecientos sesenta y uno.
