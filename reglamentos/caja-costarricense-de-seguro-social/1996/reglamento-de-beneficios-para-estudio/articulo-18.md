@@ -1,1 +1,0 @@
-Artículo 18.—Todo beneficiario que tenga deudas a favor de la Institución, en forma simultánea a la formalización del beneficio deberá autorizar a la Caja para que de su beca o auxilio se le practiquen las deducciones correspondientes para atender dichas obligaciones.

@@ -1,1 +1,0 @@
-Artículo 20.—Además de las obligaciones que impone este reglamento a los interesados, se podrán establecer otras en el contrato que se determine en el momento que se firme el beneficio, atendiendo a la modalidad del estudio que se va a realizar y a los intereses de la Institución en cada caso.

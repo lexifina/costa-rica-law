@@ -1,1 +1,0 @@
-Artículo 12.—Para los efectos de las disposiciones legales y reglamentarias se reconoce al empleado el tiempo de estudios como tiempo de trabajo en la Institución. El beneficio de permiso con goce de salario por un período mayor a un mes, será considerado como beca, por lo que queda sujeto a las disposiciones de este reglamento.
