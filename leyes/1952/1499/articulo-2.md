@@ -1,2 +1,0 @@
-Artículo 2°.- Se adiciona el artículo 2° de las Disposiciones Transitorias de la ley N°1277 de 24 de abril de 1951, con el siguiente párrafo:
-“El Consejo Superior de Tránsito concederá también permisos provisionales de explotación de líneas a los empresarios que actualmente realizan por medios de garajes o de automóviles de servicio público, el transporte remunerado de personas en forma regular y permanente, mientras se verifica la licitación general conforme a esta ley.”
