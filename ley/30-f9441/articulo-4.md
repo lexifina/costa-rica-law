@@ -1,0 +1,1 @@
+Art 4° Cumpliendo el concesionario con las obligaciones que se le imponen en los dos precedentes artículos, el término del privilegio comenzará a correr de esta fecha en seis meses, pero debe justificar ante el Gobierno Supremo, que en este tiempo ha plantado la morera, introducido y preparado el gusano de seda.
