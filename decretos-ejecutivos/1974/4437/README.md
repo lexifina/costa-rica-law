@@ -14,3 +14,4 @@ Crea Comisión de Enlace entre las Instituciones de Educación Superior, los Pod
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-01-11 | la propia norma |
+| 2 | 1980-07-02 | Decreto Ejecutivo 11644 (1980-07-02) |
