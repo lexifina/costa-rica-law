@@ -1,0 +1,1 @@
+Artículo 2º—El Comité Cantonal de Deportes y Recreación, es un Organismo adscrito a la Municipalidad de Tilarán con personalidad jurídica únicamente para el cumplimiento de los fines de la ley y sus reglamentos, para ello la Secretaría Municipal extenderá la acreditación correspondiente conforme al artículo 64 del Código Municipal.

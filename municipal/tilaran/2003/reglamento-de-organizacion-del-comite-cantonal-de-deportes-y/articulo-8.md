@@ -1,0 +1,1 @@
+Artículo 8º—No podrá formar parte del Comité Cantonal de conformidad con el artículo 167 del Código Municipal. Los Concejales, Alcaldes, Auditor, Contador, cónyuges o parientes en línea directa o colateral hasta tercer grado. Igual prohibición regirá para los comités de distrito.

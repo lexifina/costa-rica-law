@@ -1,0 +1,1 @@
+Artículo 58.—Las instalaciones deportivas, gimnasios, plazas, estadios, piscinas y otras que hayan sido construidas con fondos públicos o por dependencias gubernamentales, deberán ponerse al servicio de las comunidades del cantón.

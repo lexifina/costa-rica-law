@@ -1,0 +1,1 @@
+Artículo 32.—El quórum se formará con la mitad más uno de los miembros del Comité. Los acuerdos se tomarán por simple mayoría, excepto que reglamentariamente se requiere mayoría calificada. En caso de empate, en segunda votación el voto del Presidente será doble.

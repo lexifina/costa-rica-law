@@ -1,0 +1,1 @@
+Artículo 30.—Podrán sesionar extraordinariamente cuando sean convocados por su presidente o por al menos tres de sus miembros con 24,00 horas de anticipación. Sus sesiones serán públicas así como sus votaciones, salvo que se apruebe que sean secretas, según el caso.

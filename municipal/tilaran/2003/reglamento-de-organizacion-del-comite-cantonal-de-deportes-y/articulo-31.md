@@ -1,0 +1,2 @@
+Artículo 31.—El Quórum se formará con la mitad más uno de los miembros del comité que estén en el desempeño de sus funciones siempre y cuando estos no sean menos de tres.
+Las sesiones deberán iniciarse a más tardar quince minutos después de la hora señalada para que sean válidas. Si no hubiere quórum se hará constar así en el acta y las cuestiones administrativas se podrán resolver con los presentes, pero quien presidió la reunión deberá informar de lo tratado en la siguiente sesión.

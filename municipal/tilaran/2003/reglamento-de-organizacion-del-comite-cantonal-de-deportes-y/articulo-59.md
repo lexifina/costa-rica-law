@@ -1,0 +1,1 @@
+Artículo 59.—Toda construcción de nuevas instalaciones deportivas deberá hacerse de común acuerdo con el comité cantonal de deportes; salvo que se construya por el Concejo Municipal conforme al artículo 170 del Código Municipal.

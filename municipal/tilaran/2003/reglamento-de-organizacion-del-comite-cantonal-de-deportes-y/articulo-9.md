@@ -1,0 +1,1 @@
+Artículo 9º—Los comités distritales deberán entregar un plan del trabajo anual con el respectivo presupuesto al comité cantonal y este a su vez hará el plan general del cantón y lo remitirá al Concejo Municipal.

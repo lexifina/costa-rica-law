@@ -1,0 +1,1 @@
+Artículo 43.—Las actas aprobadas serán firmadas por el presidente y el secretario, en la sesión siguiente. Las hojas del libro de actas serán foliadas y selladas por el respectivo organismo superior que lo autoriza.

@@ -1,0 +1,2 @@
+Transitorio I.—La construcción del polideportivo seguirá siendo atendida por el Concejo Municipal y la Alcaldía mediante la comisión que al efecto está nombrada en coordinación con el Comité Cantonal de Deportes y Recreación de Tilarán.
+Este reglamento fue aprobado por el Concejo Municipal de Tilarán, en sesión extraordinaria N° 28, Art. 1, celebrada el día 1° de marzo del 2003 y se rige a partir de su publicación en el Diario Oficial La Gaceta.

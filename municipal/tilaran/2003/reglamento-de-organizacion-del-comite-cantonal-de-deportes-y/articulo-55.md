@@ -1,0 +1,1 @@
+Artículo 55.—El comité cantonal, los comités distritales y las juntas administradoras podrán fijar tarifas para el uso de las instalaciones, conforme al costo del uso, las cuales serán gratuitas para las ligas menores.
