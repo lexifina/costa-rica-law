@@ -1,1 +1,3 @@
-Artículo 12. ---- Con la información aprobada por el Juez se presentará el peticionario ante el Registro Civil, sea personalmente o por medio de apoderado especialísimo, recabando la naturalización. El escrito respectivo deberá ser autenticado conforme a la ley. En las provincias de Guanacaste, Puntarenas el poder especialísimo podrá otorgarse ante un Juez o Alcalde, en la forma indicada en el artículo 1053 del Código de Procedimientos Civiles.
+Artículo 12.- La solicitud de naturalización, con los requisitos que indica el artículo anterior, deberá ser presentada y firmada por el solicitante o por su apoderado especialísimo, a la Sección de Opciones y Naturalizaciones del Registro Civil o a alguna de las Oficinas Regionales.
+El escrito respectivo deberá ir autenticado conforme a la ley.
+(Así reformado por el artículo 1º de la ley Nº 4072 de 18 de enero de 1968).
