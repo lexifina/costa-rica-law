@@ -1,0 +1,2 @@
+Art 6°.- Practicado el reconocimiento prevenido en el artículo anterior es obligación de la Junta contratar con uno de los Agrimensores aprobados la medida de las partes ocupadas y aun de las abiertas en el terreno que se destine para la venta.
+Único. La Junta nombrará los medidores y testigos que seas hombres mayores de edad, de buena conducta y que sepan leer y escribir a quienes recibirá juramento el Alcalde de Atenas.
