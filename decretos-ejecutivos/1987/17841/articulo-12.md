@@ -1,1 +1,0 @@
-Artículo 12.—Habilitación de otras rutas. En casos de urgencia o emergencia la Dirección podrá habilitar nuevas rutas sean entre las aduanas o referentes a las contempladas en el presente decreto. La resolución regirá a partir de su publicación en el Diario Oficial.

@@ -1,1 +1,0 @@
-Artículo 4°—Obligación de cumplir los tiempos. Todo vehículo de carga que, en virtud de contrato de transporte verbal o escrito, traslade mercancías extranjeras deben, obligatoriamente cumplir con los tiempos que se detallan en el artículo siguiente.

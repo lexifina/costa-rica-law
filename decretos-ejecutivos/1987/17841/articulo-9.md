@@ -1,1 +1,0 @@
-Artículo 9°— Responsabilidad de las aduanas y puestos. Ninguna aduana de llegada o puesto podrá autorizar trámite u operación, si los documentos de tránsito presentan irregularidades o no cumple con todos los requisitos que tendrá que contener a la llegada del vehículo. En estos casos se procederá según el artículo 7° en lo conducente.

@@ -1,1 +1,0 @@
-Artículo 13.—Norma complementaria. En lo no previsto por el presente decreto, actuará como legislación complementaria el Reglamento al Código Aduanero Uniforme Centroamericano y legislación aduanera conexa.

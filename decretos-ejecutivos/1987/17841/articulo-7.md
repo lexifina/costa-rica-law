@@ -1,3 +1,0 @@
-Artículo 7°—Procedimiento. Existentes los presupuestos del artículo anterior, se seguirá el siguiente procedimiento:
-a) Cualquier autoridad administrativa que proceda a la detención, ordenará de inmediato el traslado de la mercancía existente, a la aduana más cercana. El DITA, iniciará las investigaciones pertinentes, tomará las medidas correspondientes y dará un informe a la Dirección. El DITA no estará supeditado a los horarios normales de la Administración, sino que actuará con plena competencia las 24 horas.
-b) La Dirección ejercerá sus facultades para hacer efectivo el cobro de los impuestos y formulará si es del caso la denuncia por defraudación fiscal o contrabando ante los tribunales competentes, si es del caso.

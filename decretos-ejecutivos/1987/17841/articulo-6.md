@@ -1,1 +1,0 @@
-Artículo 6°— Incumplimiento. En el evento que los vehículos no cumplan con los tiempos o no transitan por las rutas, será base suficiente para que las autoridades administrativas procedan a la detención del porteador y la orden de comiso del vehículo y la mercancía.
