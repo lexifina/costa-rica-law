@@ -10,3 +10,4 @@ Considerando:
 5°—Que por lo anterior, resulta necesario modificar el límite de gasto presupuestario fijado para el INAMU, en el decreto citado. Por tanto,
 decretan:
 Artículo 1°—Modifícase al Instituto Nacional de las Mujeres, los límites de gasto presupuestario y efectivo para el 2002, establecidos en el Decreto Ejecutivo No 29511-H, de manera que el gasto presupuestario y el gasto efectivo no excedan la suma de 845.1 millones.
+(Modificado el límite de gasto presupuestario y efectivo del 2002, para el Instituto Nacional de las Mujeres, por el artículo 1 del Decreto Ejecutivo N° 30578 de 18 de junio del 2002)

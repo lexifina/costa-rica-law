@@ -14,3 +14,4 @@ Modifica el Límite de Gasto Presupuestario y Efectivo para el 2002 del Institut
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-01 | la propia norma |
+| 2 | 2002-06-18 | Decreto Ejecutivo 30578 (2002-06-18) |
