@@ -16,3 +16,4 @@ Reglamento para Ceremonial Diplomático del Ministerio de Relaciones Exteriores
 | 2 | 1952-10-08 | Decreto Ejecutivo 6 (1952-10-08) |
 | 3 | 1953-11-03 | Decreto Ejecutivo 16 (1953-11-03) |
 | 4 | 1959-03-13 | Decreto Ejecutivo 3 (1959-03-13) |
+| 5 | 1962-06-22 | Decreto Ejecutivo 5 (1962-06-22) |

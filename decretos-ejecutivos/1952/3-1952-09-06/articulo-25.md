@@ -1,1 +1,2 @@
 Artículo 25.-Las fiestas de carácter exclusivamente social, deportivo o artístico a que el señor Presidente haya expresado el deseo de asistir, comenzarán a la hora fijada, aun cuando él no haya llegado.
+(Así derogado por el artículo 5° del decreto ejecutivo N° 5 del 22 de junio de 1962)
