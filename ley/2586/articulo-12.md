@@ -1,0 +1,1 @@
+Artículo 12.- No estará sujeta al pago de impuestos en razón de traspaso, la maquinaria, que no sea para transporte de pasajeros, que debiendo inscribirse en el Registro de Vehículos, se dedique por su naturaleza a trabajos agrícolas.
