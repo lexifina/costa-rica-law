@@ -1,0 +1,5 @@
+6.7.5. Artículo 5º—Zona de Protección de Acantilados y Pendientes Pronunciadas (ZPA y PP).
+a.- Propósitos. Protección y conservación de áreas inestables, por motivos de seguridad. Permitir la recreación pasiva al aire libre, o bien, en pequeños refugios.
+b.- Ubicación. La Zona de estudio, se caracteriza por el hecho de que los acantilados se sobrepasan la zona pública por lo tanto es necesario extender la zona de protección debido a las pronunciadas pendientes existentes. Se ubica el sector entre los mojones 66 y 52.
+c.- Concesiones. No se darán concesiones a lo largo de esta franja.
+d.- Usos permitidos. Al igual que en la Zona Pública se podrá realizar una arborización selectiva que elimine plantas punzantes o irritantes y podrán ser sustituidas por plantas y árboles que den sombra, como aceitunos y otros árboles perennifolios típicos de ladera de bosque seco. En caso de considerarse necesario la construcción de senderos y miradores. Los mismos deberán contar con el permiso del ICT y la municipalidad respectiva, para lo cual en cada caso particular el ICT establecerá los requisitos que considere necesarios.
