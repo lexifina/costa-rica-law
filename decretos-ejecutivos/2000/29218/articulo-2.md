@@ -1,0 +1,1 @@
+Artíulo 2°-Se declara que la lucha contra dicha plaga es de combate particular obligatorio y todas las medidas fitosanitarias que dicte el Poder Ejecutivo a través del Servicio Fitosanitario del Estado son de orden público y de obligatorio cumplimiento.

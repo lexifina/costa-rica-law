@@ -1,0 +1,1 @@
+Artículo 5°-Como efecto inmediato de la detección de la plaga, la plantación afectada quedar de inmediato cuarentenada. Para efectos de detección y control de la broca, los funcionarios del Servicio Fitosanitario tendrán libre acceso a las plantaciones cafetaleras.

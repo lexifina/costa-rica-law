@@ -1,0 +1,1 @@
+Artículo 4°-Los propietarios de las plantaciones de café afectadas por la broca deberán ejecutar todas las medidas sanitarias que se les ordene por parte del Servicio Fitosanitario del Estado. En caso contrario se proceder conforme a lo dispuesto en el artículo 15 de la Ley de Protección Fitosanitaria del Estado.

@@ -1,0 +1,1 @@
+Artículo 3°-Todo productor, beneficiario, o sujeto público o privado, involucrado directa o indirectamente en la producción cafetalera, que tenga conocimiento de la plaga deber denunciarlo al Servicio Fitosanitario del Estado.
