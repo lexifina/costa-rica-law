@@ -1,2 +1,0 @@
-Artículo 20º. De la licencia por adopción.
-La licencia por maternidad en caso de adopción de un menor; podrá otorgarse hasta por 90 días contados a partir del momento en que la asegurada demuestre haber recibido el menor, en calidad de madre, de acuerdo con los términos de la ley de adopción. En estos casos, cuando el niño por su edad esté en período de amamantamiento, previo dictamen médico de que existe lactancia efectiva, deberá extenderse el respectivo permiso de lactancia en las mismas condiciones que la madre biológica.

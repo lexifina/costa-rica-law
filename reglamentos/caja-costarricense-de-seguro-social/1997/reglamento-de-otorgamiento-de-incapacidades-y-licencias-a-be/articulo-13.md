@@ -1,2 +1,0 @@
-Artículo 13º.- De la atención de emergencias por riesgos del trabajo y accidentes de tránsito.
-Cuando los médicos de la Institución identifiquen la etiología de un caso como atribuible a riesgo de trabajo o accidente de tránsito, se otorgará la atención de emergencia requerida y si fuere necesario, hasta tres días de incapacidad, emitiendo de inmediato la referencia a los servicios médicos del Instituto Nacional de Seguros (INS). Corresponde a la oficina de Incapacidades o de Validación de Derechos, tramitar el cobro que pudiere proceder contra él INS

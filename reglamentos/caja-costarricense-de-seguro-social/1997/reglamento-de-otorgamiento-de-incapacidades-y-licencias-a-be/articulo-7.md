@@ -1,3 +1,0 @@
-Artículo 7º.- De las incapacidades en el servicio de urgencias.
-En los servicios de urgencias donde no se tenga a mano el expediente de salud, la anotación de la incapacidad debe consignarse en la hoja de atención de urgencias. En todo caso, la incapacidad se otorgará hasta por 3 días. En caso necesario, el asegurado podrá presentarse a la clínica de adscripción o servicio especializado, donde será valorado y de requerirlo- se le ampliará el período de incapacidad.
-Se exceptúan de esta disposición los casos de ortopedia, respecto de los cuales se actuará conforme a la normativa técnica que dictará el titular de la Dirección de cada centro médico.

@@ -1,2 +1,0 @@
-Artículo 4º.- Formulario de incapacidad.
-Las incapacidades por enfermedad y las licencias por maternidad, podrán ser extendidas sólo por los profesionales expresamente autorizados para ello, en el formulario "LIBRETA DE INCAPACIDADES", el cual será suministrado por la Dirección Médica de cada centro. La custodia y control de existencias de tales formularios están regidos por las disposiciones incluidas en el Manual de Instrucciones para el trámite de Incapacidades.

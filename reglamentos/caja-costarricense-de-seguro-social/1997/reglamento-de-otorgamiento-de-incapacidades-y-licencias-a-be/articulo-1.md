@@ -1,6 +1,0 @@
-CAJA COSTARRICENSE DEL SEGURO SOCIAL
-La Junta Directiva de la Caja Costarricense del Seguro Social, en el artículo 36º de la Sesión Número 7143, celebrada el 22 de julio de 1997, aprobó el siguiente Reglamento para el Otorgamiento de Incapacidades y Licencias a los Beneficiarios del Seguro de Salud:
-"REGLAMENTO PARA EL OTORGAMIENTO DE INCAPACIDADES Y LICENCIAS A LOS BENEFICIARIOS DEL SEGURO DE SALUD"
-Artículo 1º.- Del objeto
-El acto de otorgar una incapacidad por enfermedad o licencia por maternidad, además de su significado como parte del tratamiento médico o de una especial protección social a favor de las madres, tiene implicaciones de orden legal, financiero, social y moral, tanto en lo que se refiere a la estabilidad y garantías laborales del trabajador, como en lo que se refiere a la productividad de las empresas.
-Este reglamento regula el otorgamiento, registro y control de las incapacidades por enfermedad y de las licencias por maternidad, en los servicios médicos de la Caja Costarricense de Seguro Social, extendidas por los profesionales en ciencias médicas facultados legalmente para extenderlas, y tiene por propósito hacer congruente y equitativo este proceso con la realidad del país, así como evitar los potenciales abusos que pongan en entredicho los valores morales de la sociedad.

@@ -1,4 +1,0 @@
-Artículo 5º.- Del otorgamiento de incapacidades por terceros.
-La Caja podrá atender recomendaciones de incapacidad a un trabajador asegurado, formuladas por un médico consultado privadamente o en el sistema de Medicina Mixta. En lo que respecta al sistema Médico de Empresa, se actuará de acuerdo con lo que establece el artículo 17º de este Reglamento.
-Para la homologación de tales recomendaciones, el interesado presentará los documentos, personalmente o por medio de un tercero, a la Dirección Médica de su clínica de adscripción, en un plazo de dos días a partir de la fecha en que fue formulada la recomendación, para que, previo el análisis de rigor, la recomendación se admita, modifique o deniegue.
-Si la gestión se hiciere pasados estos dos días, el caso deberá ser resuelto de acuerdo con lo indicado en el artículo 11º de este Reglamento.
