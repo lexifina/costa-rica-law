@@ -1,5 +1,0 @@
-Artículo 28.- La Junta de Pensiones y Jubilaciones del Magisterio
-Nacional será responsable de la administración de un Fondo de reserva
-derivado de la deducción de un cinco por mil (5/1000) de los salarios
-y pensiones de los beneficiarios del régimen. Este Fondo deberá
-depositarse en una institución bancaria del Estado.

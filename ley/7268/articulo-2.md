@@ -1,13 +1,2 @@
-ARTICULO 2.- Se derogan las siguientes leyes y sus reformas: Ley No.
-1650 del 29 de setiembre de l953; Ley No. 3808 del 22 de noviembre de
-l966; el artículo 40 de la Ley No. 4945 del 24 de diciembre de l97l; la
-Ley No. 6799 del 2 de setiembre de l982; el Transitorio I de la Ley No.
-6997 del 27 de agosto de 1985; el artículo 4 y el Transitorio I de la Ley
-No. 7028 del 23 de abril de l986; el inciso 32 del artículo 19 y el
-artículo 81 de la Ley No. 7097 del 18 de agosto de l988; el artículo 16
-de la Ley No. 7108 del 8 de noviembre de l988.
-Quedan deroga0das, en cuanto se opongan a la presente Ley, todas las
-disposiciones que sobre pensiones del Magisterio Nacional contiene la Ley
-Constitutiva de la Caja Costarricense de Seguro Social, No. 17 del 22 de
-octubre de l943, el Código de Educación y las demás leyes que regulan esa
-materia, así como la Ley No. l903 del 13 de julio de l955.
+Artículo 2º.- Se derogan las siguientes leyes y sus reformas: Ley No. 1650 del 29 de setiembre de l953; Ley No. 3808 del 22 de noviembre de l966; el artículo 40 de la Ley No. 4945 del 24 de diciembre de l97l; la Ley No. 6799 del 2 de septiembre de l982; el Transitorio I de la Ley No. 6997 del 27 de agosto de 1985; el artículo 4 y el Transitorio I de la Ley No. 7028 del 23 de abril de l986; el inciso 32 del artículo 19 y el artículo 81 de la Ley No. 7097 del 18 de agosto de l988; el artículo 16 de la Ley No. 7108 del 8 de noviembre de l988.
+Quedan derogadas, en cuanto se opongan a la presente Ley, todas las disposiciones que sobre pensiones del Magisterio Nacional contiene la Ley Constitutiva de la Caja Costarricense de Seguro Social, No. 17 del 22 de octubre de l943, el Código de Educación y las demás leyes que regulan esa materia, así como la Ley No. l903 del 13 de julio de l955.
