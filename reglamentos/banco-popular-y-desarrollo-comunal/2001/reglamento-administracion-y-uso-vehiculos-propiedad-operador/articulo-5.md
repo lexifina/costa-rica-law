@@ -1,0 +1,1 @@
+Artículo 5°—Los vehículos administrativos serán utilizados únicamente en actividades propias del funcionamiento de la Operadora, por lo que solo en situaciones excepcionales, a juicio de la Gerencia, y previa suscripción del respectivo convenio, podrán facilitarse vehículos de uso administrativo a instituciones públicas.
