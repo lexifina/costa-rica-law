@@ -1,0 +1,3 @@
+Artículo 3º bis.—Como complemento y apoyo del mecanismo propuesto por esta Ley, se autoriza al Instituto del Café de Costa Rica para que cubra de su patrimonio los gastos de estructuración y operación del Fideicomiso cafetalero.
+Además, se autoriza al ICAFE para que constituya una unidad técnica con el único fin de operar como fiduciario de la titularización y realizar las actividades indicadas en esta Ley y su Reglamento. Dicha unidad tendrá las características jurídicas y operativas que determine al efecto la Junta Directiva de esa Institución.
+(Así adicionado por el artículo 4 de la ley N° 8332 de 7 de noviembre del 2002)
