@@ -1,0 +1,1 @@
+Artículo 19.—Los demás elementos de la ejecución de los contratos se regirán por las disposiciones de los capítulos IV "Derechos y Obligaciones de las partes" y VI "Procedimientos de Contratación" del Reglamento General de la Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 9°—Cuando así se disponga, las cotizaciones serán recibidas por el Departamento de Proveeduría en sobre cerrado, En caso contrarío se aceptara su remisión por cualquier otro medio, de forma tal que ingresen en el momento indicado.

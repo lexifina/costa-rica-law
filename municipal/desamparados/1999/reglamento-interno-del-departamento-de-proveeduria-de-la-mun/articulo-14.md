@@ -1,0 +1,1 @@
+Artículo 14.—Una vez analizadas las ofertas y efectuadas las recomendaciones pertinentes, la Comisión de Contratación Administrativa elevará su dictamen al Alcalde quién lo someterá a consideración del Concejo Municipal, transcrito el acuerdo de ésta última instancia, retomará al Departamento de Proveeduría el procedimiento de contratación para lo que corresponda.
