@@ -1,0 +1,1 @@
+Artículo 3°.—El depositante de artículos de abasto o de mercancías en los Almacenes Generales de Depósito, al entregarlos tendrá derecho a exigir en piezas separadas un «Conocimiento de Depósito» y un warrant anexo.

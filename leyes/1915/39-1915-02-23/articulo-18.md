@@ -1,0 +1,1 @@
+Artículo 18.—La venta a que se refiere el artículo anterior se hará en el Almacén sin necesidad de decreto judicial. La administración una vez recibida la petición respectiva y comprobado que el protesto es legal, mandará proceder por medio del Corredor urado a la subasta pública, anunciándola con diez días de anticipación.
