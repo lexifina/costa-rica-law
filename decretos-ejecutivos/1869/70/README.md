@@ -14,3 +14,4 @@ Reglamento de la Instrucción Primaria
 | --- | --- | --- |
 | 1 | 1869-11-10 | la propia norma |
 | 2 | 1870-06-23 | Decreto Ejecutivo 30 (1870-06-23) |
+| 3 | 1877-04-20 | Acuerdo 13 (1877-04-20) |
