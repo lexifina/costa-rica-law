@@ -1,0 +1,1 @@
+Artículo 16.-El Banco podrá en cualquier momento ordenar una inspección de los ganados que le han sido dados en garantía y vigilar el cumplimiento por parte del deudor de las obligaciones que le impone esta ley, pudiendo contar para ese fin, con el auxilio de los resguardos y las demás autoridades del país.

@@ -1,0 +1,1 @@
+Artículo 5°.-La Directiva del Banco nombrar un comité especial compuesto de tres expertos, asesores ganaderos, encargados de examinar y recomendar en su caso, las solicitudes de préstamo. Para la concesión de estos créditos el Banco preferir a aquellos solicitantes que destinen el préstamo a la mejora y aumento de la cría.

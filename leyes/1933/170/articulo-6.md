@@ -1,0 +1,1 @@
+Artículo 6°.-En todo lo que implique procedimientos de constitución, registro y ejecución de la prenda, regir n las reglas instituidas por ley de 13 de setiembre de 1915, en todo aquello que no esté previsto o en contradicción con la presente ley.

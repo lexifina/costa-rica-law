@@ -1,0 +1,1 @@
+Artículo 3°.-El monto de cada prpestamo no podrá exceder del cincuenta por ciento del valor del ganado que se ofrezca en prenda, siempre que los semovientes tengan un año de edad y no pasen de nueve años. El interés del dinero en esta clase de prenda, ser del seis por ciento, más el uno por ciento de comisión al año.

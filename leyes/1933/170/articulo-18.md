@@ -1,0 +1,2 @@
+Artículo 18.-En regiones lejanas como la provincia del Guanacaste, el Banco nombrar un delegado con residencia determinada, para la vigilancia de las operaciones que esta ley autoriza, encargado de recoger y suministrar al Banco, todos los datos indispensables para la calificación del negocio y de mantener un control constante sobre las condiciones de las prendas constituidas.
+Cuando el volumen de los negocios así lo requiera, el Banco nombrar en dichas regiones el número de delegados que sea necesario.

@@ -1,0 +1,1 @@
+Artículo 13.-El ganado pignorado no podrá ser trasportado sin permiso del Banco fuera del cantón en donde se constituyó y registró la prenda. En caso de falta, quedar vencido el plazo para toda la deuda.
