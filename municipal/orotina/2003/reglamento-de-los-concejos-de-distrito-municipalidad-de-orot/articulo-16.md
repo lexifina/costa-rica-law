@@ -1,0 +1,1 @@
+Artículo 16.—Los acuerdos serán tomados por mayoría simple de votos de los miembros presentes y se tendrán por firmes, si hubiere empate se someterá de nuevo a votación y si persistiera el empate se tendrá por desechado el asunto.
