@@ -1,0 +1,1 @@
+ARTÍCULO 29.-Los dos artículos de la sección 2° de este reglamento, se cumplir n puntualmente por los contratistas en quienes se remate la proveduria de licores, bajo la pena de cien pesos de multa por cada vez que se infrinjan, sin perjuicio de las demás penas que impone el reglamento de policía a los contraventores de sus disposiciones.

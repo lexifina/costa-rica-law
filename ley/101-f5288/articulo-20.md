@@ -1,0 +1,1 @@
+ARTÍCULO 20.-Si el rematario o contratista dejare alguna vez de dar el aguardiente necesario para el abasto, y por su culpa sufriere la renta algún menoscabo, se calculará la cantidad a que ascienda este, comparado con los productos del mes anterior, y se le exigirá en el acto su reposición en dinero efectivo.

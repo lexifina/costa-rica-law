@@ -1,0 +1,1 @@
+ARTÍCULO 4°. -En uno de dichos almacenes, y en el que presente más comodidad, se establecerá la oficina de destilación, compuesta, por ahora, de seis alambiques nuevos y de capacidad regular, los cuales se contratarán por la intendencia general a precios equitativos con las personas que actualmente los tengan.
