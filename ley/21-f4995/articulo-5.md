@@ -1,0 +1,1 @@
+Art. 5. Se imprimiràn junto con el/presente decreto las adiciones à la tarifa de aforos. —Dado en San José á veinticuatro de Agosto de mil ochocientos cuarenta.—Braulio Carrillo.—Al Secretario General del Despaaho."
