@@ -14,3 +14,4 @@ Reglamento del Mercado Municipal.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-02-27 | la propia norma |
+| 2 | 1994-02-16 | Reglamento municipal 176 (1994-02-16) |
