@@ -14,4 +14,6 @@ Artículo 6°-No forman parte de la renta bruta:
 (Así adicionado el inciso anterior por el artículo 2° de la ley N° 6450 del 15 de julio de 1980)
 8) El aguinaldo o decimotercer mes, en el tanto en que no exceda de la doceava parte de los salarios devengados en el año o la proporción correspondiente al lapso menor que se hubiese trabajado.
 (Así adicionado el inciso anterior por el artículo 2° de la ley N° 6450 del 15 de julio de 1980)
+9) En las revaluaciones de activos fijos, tratándose de activos fijos depreciables, el valor de la revaluación no podrá exceder de aquel registrado para los efectos de impuesto territorial. La revaluación será considerada para efectos de establecer las cuotas de las correspondientes depreciaciones.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 6952 del 29 de febrero de 1984)
 (Así reformado por el artículo 1° de la ley N° 1789 del 18 de setiembre de 1954)
