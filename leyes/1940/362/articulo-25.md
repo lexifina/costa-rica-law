@@ -1,9 +1,2 @@
-ARTÖCULO 25.-Los estatutos y reglamentos de la Universidad
-ser n
-sometidos para su homologaci¢n y publicaci¢n en el Diario Oficial,
-a la
-Secretar¡a de Educaci¢n P£blica.
-Los presupuestos de la Instituci¢n ser n igualmente remitidos
-al Centro de Control y a la Secretar¡a dicha.
-Los giros por sueldos o gastos de cualquier especie ser n
-necesariamente refrendados, para su pago, por el Centro de Control.
+Artículo 25.- Los estatutos y reglamentos de la Universidad serán sometidos para su homologación y publicación en el Diario Oficial, a la Secretaría de Educación Pública. Los presupuestos de la Institución serán igualmente remitidos al Centro de Control y a la Secretaría dicha.
+Los giros por sueldos o gastos de cualquier especie serán necesariamente refrendados, para su pago, por el Centro de Control.

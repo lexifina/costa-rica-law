@@ -1,0 +1,1 @@
+Artículo 3º.- Los actuales Directores, Secretarios y Profesores de las Escuelas de Derecho y de Farmacia, permanecerán en el ejercicio de sus cargos mientras no venza el período que indica el artículo 24, en cuanto a los primeros; y los profesores, mientras no se presente el caso previsto en el artículo 15.
