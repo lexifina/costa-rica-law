@@ -1,0 +1,1 @@
+Artículo 20.—La Contraloría fijará el período y forma de pago de a su personal, con arreglo a los métodos más económicos y eficientes que procedan, y lo dispuesto en el ordenamiento jurídico en esta materia.

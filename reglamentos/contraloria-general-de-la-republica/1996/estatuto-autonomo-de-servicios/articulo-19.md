@@ -1,0 +1,1 @@
+Artículo 19.—De la remuneración total deben hacerse las deducciones obligadas por la ley y cualesquiera otras autorizadas por el funcionario, según la disponibilidad del sistema de pagos vigente en la Institución.

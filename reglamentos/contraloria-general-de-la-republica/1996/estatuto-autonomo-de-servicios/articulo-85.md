@@ -1,0 +1,1 @@
+Artículo 84.—El incumplimiento de las obligaciones y prohibiciones contenidas en el presente capítulo, se sancionará de conformidad con la gravedad de la falta, según lo establecido en el capítulo de sanciones.

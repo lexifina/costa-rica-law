@@ -1,0 +1,1 @@
+Artículo 6°—El Contralor General podrá delegar en el Subcontralor o en la Unidad de Recursos Humanos aquellas funciones que considere pertinentes de la administración de recursos humanos de la Contraloría.

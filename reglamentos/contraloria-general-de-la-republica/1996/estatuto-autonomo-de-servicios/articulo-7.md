@@ -1,0 +1,1 @@
+Artículo 7°—Todo lo concerniente a la administración de recursos humanos, a la implementación de los procesos para llevar a cabo las políticas y normativas de administración de personal, asesoría y orientación sobre esa área. será responsabilidad de la Unidad de Recursos Humanos.

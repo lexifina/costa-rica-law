@@ -1,0 +1,1 @@
+Artículo 58.—Previa consulta al Departamento de Recursos Humanos, el Director General podrá autorizar la acumulación -- vacaciones. En el caso de los Directores Generales, la autorización debe ser otorgada por el Contralor General. De dichas acumulaciones quedará constancia en el expediente personal del servidor.

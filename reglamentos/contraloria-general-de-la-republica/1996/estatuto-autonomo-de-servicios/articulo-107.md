@@ -1,0 +1,1 @@
+Artículo 106.—El Contralor General decidirá la integración del órgano director del procedimiento cuando éste sea ordinario. En los demás casos, el procedimiento será llevado a cabo por la Unidad de Recursos Humanos.

@@ -1,0 +1,1 @@
+Artículo 24.—Los movimientos de personal, complementos o salariales a que pudieren hacerse acreedores los servidores de la Contraloría, tendrán vigencia, cuando sean procedentes, a partir del reclamo o del acuerdo administrativo respectivo y se harán efectivos conforme las fechas y trámites vigentes en ese momento.

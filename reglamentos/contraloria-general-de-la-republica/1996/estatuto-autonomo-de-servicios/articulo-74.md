@@ -1,0 +1,2 @@
+Artículo 74.—El otorgamiento de una licencia para estudios con goce de salario, cuando el servidor, por razones de trabajo, no pueda reponer el tiempo o cuando a juicio de la jefatura respectiva sea inconveniente la reposición planteada, queda sujeto a un estudio técnico dirigido al Contralor General y a la posterior elaboración de un contrato. ambos preparados por la Dirección General del Centro de Capacitación.
+Dicho contrato debe garantizar entre otros aspectos la reposición del tiempo posteriormente al término de la licencia.

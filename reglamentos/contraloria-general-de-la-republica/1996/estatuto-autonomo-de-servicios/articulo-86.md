@@ -1,0 +1,3 @@
+Artículo 85.—De conformidad con lo establecido en la Ley No. 7501. publicada en "La Gaceta" N° 110 del 8 de junio de 1995. Esta prohibido fumar dentro del recinto de la Institución.
+Las jefaturas velarán por la fiel observancia de la presente disposición entre sus subalternos. Todo servidor deberá reportar a la Unidad Interna de Seguridad los casos de público en tal condición, con el fin de que esa unidad controle la situación.
+Los funcionarios también tendrán la obligación de informar a sus jefes inmediatos cuando observen que no se está cumpliendo con dicha disposición.

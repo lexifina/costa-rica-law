@@ -1,0 +1,1 @@
+Artículo 69.—Los Jerarcas de la Institución en situaciones especiales previo informe de la Unidad de Recursos Humanos, podrán conceder licencias sin goce de salario por plazos diferentes a los indicados y sin sujeción a la antigüedad prevista en el artículo precedente.

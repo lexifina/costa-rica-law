@@ -1,0 +1,1 @@
+Artículo 12.—Los nombramientos que se deriven de lo establecido en el Artículo 11 precedente, serán recomendados al Contralor General por los Directores Generales con fundamento en la información que al efecto proporcione el Departamento de Recursos Humanos, junio con los resultados del respectivo concurso. Los nombramientos deberán ser autorizados por el Contralor General.

@@ -1,0 +1,1 @@
+Artículo 8°—La Unidad de Recursos Humanos llevara, por ' medios idóneos que correspondan, un expediente personal de cada servidor, el que contendrá la documentación sobre el historial del servidor exclusivamente en lo atinente a la relación de servicio.

@@ -1,0 +1,1 @@
+Artículo 59.—Los servidores disfrutaran en forma continua de al menos una tercera parte del periodo de vacaciones que le corresponde, y las jefaturas deberán informar a la Unidad de Recursos Humanos utilizando el Programa Anual de Vacaciones, las fechas en que cada servidor disfrutara en el año siguiente de esa parte continua de vacaciones.

@@ -1,0 +1,1 @@
+Artículo 79.—Los contratos con o sin goce de salario para cursar estudios académicos, cuando el interés institucional lo requiera, serán preparados por la Dirección General del Centro de Capacitación y controlados en sus alcances por la Unidad de Recursos Humanos.

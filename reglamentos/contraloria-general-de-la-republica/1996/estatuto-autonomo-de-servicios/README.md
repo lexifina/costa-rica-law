@@ -1,0 +1,16 @@
+# Reglamento (1996-05-03)
+
+Estatuto Autónomo de Servicios
+
+- Tipo: Reglamento
+- Número: 4
+- Fecha: 1996-05-03
+- Ente emisor: Contraloría General de la República
+- Publicación: La Gaceta N° 94 del 1996-05-17, Alcance 28
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=49144&param2=52498&param3=1 (ficha 49144)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1996-05-17 | la propia norma |

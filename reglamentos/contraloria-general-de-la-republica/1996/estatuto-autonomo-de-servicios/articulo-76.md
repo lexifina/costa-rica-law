@@ -1,0 +1,1 @@
+Artículo 76.—Las licencias para estudio concedidas de acuerdo con lo estipulado en este Estatuto, lo serán por el tiempo necesario para asistir a clases. El servidor deberá presentarse a su trabajo durante los períodos o los días en que no tenga lecciones ni obligaciones adicionales que no pueda diferir relacionadas con sus estudios.

@@ -1,0 +1,1 @@
+Artículo 52.—Las ausencias injustificadas mayores a un día que tengan los servidores. deberán ser comunicadas al Departamento de Recursos Humanos por el superior jerárquico correspondiente, aún cuando el funcionario no esté obligado a registrar su asistencia.

@@ -1,0 +1,1 @@
+Artículo 82.—Los Directores Generales deberán aplicar las sanciones que por concepto de disciplina y asistencia se deriven de los informes que prepare la Unidad de Recursos Humanos y lo dispuesto en el presente Estatuto.

@@ -1,0 +1,1 @@
+Artículo 72.—Las licencias con o sin goce de sueldo hasta por dos días podrán ser concedidas, previo a su disfrute, por el superior del servidor interesado y serán comunicadas de inmediato a la Unidad de Recursos Humanos para los efectos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 49.—Las justificaciones de las ausencias deben remitirse a la Unidad de Recursos Humanos, con el correspondiente visto bueno del superior respectivo, dentro del cuarto día hábil posterior a la reintegración del servidor a su trabajo, con arreglo a lo dispuesto en el Artículo 44 de este Estatuto.

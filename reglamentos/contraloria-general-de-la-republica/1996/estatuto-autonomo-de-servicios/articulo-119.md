@@ -1,0 +1,6 @@
+CAPITULO XVI
+De la seguridad e higiene del trabajo
+Artículo 118.—La Contraloría General propiciará y adoptara las medidas necesarias para proteger eficazmente la vida. la salud, la integridad corporal y la moralidad de sus servidores, y mantener en estado adecuado lo relativo a:
+a) Edificaciones, instalaciones, equipo y condiciones ambientales, así como proveer los instrumentos necesarios para realizar su trabajo.
+b) Las actividades y procesos de trabajo.
+c) El suministro, uso y mantenimiento de protección personal; y el promover la capacitación de su personal en materia de higiene y seguridad ocupacional.

@@ -1,0 +1,1 @@
+Artículo 51.—El servidor deberá notificar a su superior inmediato la causa de su ausencia al trabajo en el mismo día en que esta ocurra. Sólo en casos de fuerza mayor, u otras circunstancias análogas debidamente comprobadas que lo justifiquen, podrá notificar hasta el momento en que desaparezcan las causas que le impidieron hacerlo oportunamente.

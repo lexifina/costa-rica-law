@@ -1,0 +1,1 @@
+Artículo 23.—La Contraloría reconocerá a los funcionarios las revaloraciones salariales a sus cargos por incrementos en el costo de la vida, o las que se deriven de estudios técnicos solicitados a la Unidad de Recursos Humanos y autorizados por el Contralor, el cual se hará efectivo reconocimiento en que exista el contenido presupuestario correspondiente.

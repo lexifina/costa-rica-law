@@ -1,0 +1,1 @@
+Artículo 2°—Para los efectos de este Estatuto se entenderá como empleador a la Contraloría General de la República representada por el Contralor y Subcontralor Generales, quienes son, respectivamente el Jefe y Subjefe de la Institución.

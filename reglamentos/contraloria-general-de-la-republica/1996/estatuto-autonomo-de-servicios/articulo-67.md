@@ -1,0 +1,1 @@
+Artículo 67.—Cuando un servidor se encuentre disfrutando de una licencia y ocurran hechos que motivan la concesión de otra, se dejará sin efecto la primera licencia y empezara a regir la segunda; salvo que de la segunda licencia se derive una cantidad menor de días a disfrutar por el beneficiario en cuyo caso permanecería vigente la primera.

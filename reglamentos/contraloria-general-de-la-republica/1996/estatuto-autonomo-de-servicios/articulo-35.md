@@ -1,0 +1,1 @@
+Artículo 35.—Cuando así lo demande la naturaleza del servicio, el horario de trabajo y los períodos de descanso diferentes a los indicados en el Artículo 34, serán definidos y regulados por la Dirección General respectiva, de acuerdo con los tiempos establecidos y la legislación vigente.

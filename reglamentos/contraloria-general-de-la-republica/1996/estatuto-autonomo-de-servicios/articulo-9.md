@@ -1,0 +1,1 @@
+Artículo 9°—La Unidad de Recursos Humanos dispondrá de mecanismos de comunicación adecuados hacia el personal. En lo que concierne a las pizarras informativas de los distintos pisos de la Institución, esta Unidad podrá autorizar la ubicación en éstas de todo comunicado que se desee hacer por este medio.

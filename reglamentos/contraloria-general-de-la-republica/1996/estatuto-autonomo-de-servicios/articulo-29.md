@@ -1,0 +1,1 @@
+Artículo 29.—En los casos de ascensos, traslados y permutas, el servidor ocupará el nuevo puesto en forma interina por tres meses y deberá ser evaluado su desempeño por la jefatura inmediata. Dentro de ese lapso conservará la propiedad en la plaza de la cual proviene.

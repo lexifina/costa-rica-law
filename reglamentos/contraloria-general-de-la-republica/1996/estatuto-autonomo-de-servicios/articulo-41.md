@@ -1,0 +1,1 @@
+Artículo 41.—Los servidores podrán ausentarse de su lugar de trabajo en situaciones especiales, si cuentan previamente con la autorización de su jefe inmediato. En los casos en que deba mediar el registro de la entrada o salida y ésta se omita, deberá tramitarse la correspondiente boleta de justificación.

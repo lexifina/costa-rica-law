@@ -1,0 +1,1 @@
+Artículo 114.—La persona ofendida podrá poner en consideración del Contralor o Subcontralor Generales su reubicación temporal en cualquier momento del proceso. El Contralor General resolverá en única instancia la procedencia de la reubicación temporal solicitada.

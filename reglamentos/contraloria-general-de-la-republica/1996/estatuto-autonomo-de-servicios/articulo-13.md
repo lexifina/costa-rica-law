@@ -1,0 +1,1 @@
+Artículo 13.—En las relaciones de servicio por tiempo indeterminado los nombramientos son por un período de prueba de seis meses. En este período todo nombramiento es interino, y cualquiera de las partes puede dar por terminada la relación sin responsabilidad.

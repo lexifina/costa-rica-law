@@ -1,0 +1,1 @@
+Artículo 17.—La Contraloría General, para todos los efectos reconocerá a sus funcionarios años de servicio laborados en otras instituciones del Sector Público, con el fin de conceder los aumentos que correspondan a esos años de servicio.

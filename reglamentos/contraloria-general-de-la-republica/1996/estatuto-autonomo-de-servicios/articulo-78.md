@@ -1,0 +1,1 @@
+Artículo 78.—La Dirección General del Centro de Capacitación preparará el Reglamento y modificaciones posteriores que autorizará el Contralor General, el cual regulará lo atinente a la capacitación de los funcionarios de la Contraloría General.

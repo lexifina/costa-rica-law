@@ -1,0 +1,1 @@
+Artículo 37.—El Contralor General podrá modificar transitoriamente los horarios establecidos en este Reglamento, siempre que circunstancias especiales así lo justifiquen. El cambio deberá ser comunicado a los funcionarios oportunamente.

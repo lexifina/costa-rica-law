@@ -1,0 +1,1 @@
+Artículo 88.—La amonestación escrita y la verbal que surjan como producto del control de asistencia y puntualidad serán aplicadas por el Director General del respectivo servidor, previo seguimiento del debido proceso.

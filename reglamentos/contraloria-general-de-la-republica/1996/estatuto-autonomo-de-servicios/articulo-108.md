@@ -1,0 +1,1 @@
+Artículo 107.—El órgano director es el responsable de la correcta sustanciación del procedimiento. Deberá velar porque se haga llegar al mismo toda la evidencia pertinente para asegurar la obtención de la verdad real de los hechos con celeridad y eficiencia, todo ello con el correlativo respeto a los derechos de las partes.

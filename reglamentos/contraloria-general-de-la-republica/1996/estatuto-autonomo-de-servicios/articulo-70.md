@@ -1,0 +1,1 @@
+Artículo 70.—En caso de que un funcionario se encuentre disfrutando de una licencia sin goce de sueldo y decida renunciar al puesto, deberá efectuar el preaviso correspondiente, según los términos establecidos en el Código de Trabajo. En caso de regresar al trabajo antes finalizar el permiso, entonces deberá comunicarlo con un mes de antelación a su reincorporamiento.

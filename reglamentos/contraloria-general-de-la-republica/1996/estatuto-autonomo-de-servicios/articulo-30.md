@@ -1,0 +1,1 @@
+Artículo 30.—Cuando los servidores ocupen cargos de la misma categoría, las jefaturas podrán proponer las permutas entre funcionarios, o los mismos funcionarios podrán proponerlo por escrito a los respectivos jefes, con el fin de contar con la anuencia de éstos y efectuarse el correspondiente trámite ante la Unidad de Recursos Humanos.
