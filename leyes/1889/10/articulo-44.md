@@ -1,0 +1,1 @@
+Artículo 44.-Los sueldos de profesores y empleados, los gastos generales y extraordinarios y la adquisición de libros y material científico de las Escuelas, se harán con cargo á los intereses del capital destinado por la ley á la enseñanza superior.

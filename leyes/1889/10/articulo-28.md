@@ -1,0 +1,1 @@
+Artículo 28.-Los profesores de cada Escuela se reunirán bajo la presidencia del Director para discutir asuntos especiales de la Escuela y trasmitir al Consejo ó al Ministerio de Instrucción Pública, por el intermedio del Presidente del Consejo, el resultado de sus deliberaciones.

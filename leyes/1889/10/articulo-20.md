@@ -1,0 +1,1 @@
+Artículo 20.-Cuando no hubiere Sociedad ó Academia legalmente constituída que designe los miembros que deben formar parte del Consejo, el Ministro de Instrucción Pública agregará un miembro más á los dos que indica el artículo anterior.

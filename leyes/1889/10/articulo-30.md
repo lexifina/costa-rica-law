@@ -1,0 +1,1 @@
+Artículo 30. – Son estudiantes los que, provistos de un certificado de madurez de la División Superior de un certificado de madurez de la División Superior de los Colegios nacionales ó de otros documentos juzgados como equivalente por el Consejo, se matriculen en cualquiera de las Escuelas.
