@@ -1,5 +1,5 @@
 ARTICULO 23.- Modifícanse las leyes que a continuación se citan:
-1.(Anulado por resolución de la Sala Constitucional, N° 1336 del 23 de octubre de 1990.)
+1. (Anulado por resolución de la Sala Constitucional, N° 1336 del 23 de octubre de 1990.)
 2. Refórmanse los artículos 11 y 21 de la Ley de Creación de la Editorial Costa Rica, Nº 2366 del 10 de junio de 1959 y sus reformas, para que digan de la siguiente manera:
 "Artículo 11.- El Consejo Directivo estará integrado por siete miembros propietarios. De ellos, tres los nombrará la Asamblea de Autores a que se refiere esta ley, uno la Universidad de Costa Rica, uno la Universidad Nacional y dos el Poder Ejecutivo por medio del Ministerio de Cultura, Juventud y Deportes. No habrá directores suplentes. Bastará con que queden nombrados cuatro de los miembros para que el Consejo Directivo se instale y tenga personería suficiente mientras su integración se completa."
 "Artículo 21.- El Gerente será nombrado por el Consejo Directivo, sin sujeción a plazo, y podrá ser removido en cualquier momento por acuerdo de la mayoría absoluta del Consejo. Sus deberes y atribuciones se fijarán en el reglamento que al efecto emitirá el Consejo Directivo."
@@ -67,9 +67,9 @@ Agrégase un párrafo final al artículo 28 de la citada ley, que dirá de la si
 "Los lotes enmontados, sucios y en malas condiciones, por metro cuadrado, 15.00.)
 28. Vetado: Las razones del veto pueden ser consultadas al final del artículo 37 de esta ley.
 29. Para la correcta interpretación de un artículo que concede exenciones tributarias y para aplicar la ley del impuesto sobre los refrescos gaseosos de acuerdo con el espíritu con que fue creado, se legisla sobre las materias que se indican:
-Modifícase el párrfo segundo del inciso a) del artículo 60, de la Ley del Impuesto sobre la Renta, Nº 7092 del 21 de abril de 1988, a fin de que, en su primera parte, hasta el punto y seguido diga:
-a) Esta utilidad en ningún caso podrá ser mayor a la suma resultante de aplicar la proporción de las ventas de exportación citadas, sobre el valor de las ventas totales, a las utilidades del exportador.
-b) Cuando en la comercialización de refrescos gaseosos y bebidas carbonatadas se utilice el sistema de envase desechable, las tasas establecidas en el artículo 6º de la ley Nº 5792 reformada por la Nº 6735, se rebajarán en un cincuenta por ciento (50%), siempre que este envase desechable forme parte del costo para determinar la base imponible.
+Modifícase el párrafo segundo del inciso a) del artículo 60, de la Ley del Impuesto sobre la Renta, Nº 7092 del 21 de abril de 1988, a fin de que, en su primera parte, hasta el punto y seguido diga:
+a) Esta utilidad en ningún caso podrá ser mayor a la suma resultante de aplicar la proporción de las ventas de exprtación citadas, sobre el valor de las ventas totales, a las utilidades del exportador.
+b) (Anulado por resolución de la Sala Constitucional N° 4885 del 22 de mayo de 2002)
 30. Adiciónase el siguiente párrafo al inciso 10) del artículo 16 de la Ley de Modificación al Presupuesto Nacional para 1988, Nº 7097 del 18 de agosto de 1988:
 "La propiedad por donar posee las siguientes citas del Registro de la Propiedad; partido de San José, tomo 2799, folio 581, asiento 1, finca Nº 282724, área de cuatro mil doscientos metros cuadrados (4200 m2).
 La escritura será formalizada ante la Notaría del Estado, exenta de todo tipo de derechos, tiembres, impuestos y pago de honorarios de abogado."
