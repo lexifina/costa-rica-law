@@ -1,0 +1,2 @@
+ARTICULO 8
+La protección de las especies mencionadas en el Anexo de esta Convención es de urgencia e importancia especial. Las especies allí incluidas serán protegidas tanto como sea posible y solo las autoridades competentes del país podrán autorizar la caza, matanza, captura o recolección de ejemplares de dichas especies. Estos permisos podrán concederse solamente en circunstancias especiales cuando sean necesarios para la realización de estudios científicos o cuando sean indispensables en la administración de la región en que dicho animal o planta se encuentre.

@@ -1,0 +1,4 @@
+ARTICULO 3
+Los Gobiernos Contratantes convienen en que los límites de los parques nacionales no serán alterados ni enajenada parte alguna de ellos sino por acción de la autoridad legislativa competente. Las riquezas existentes en ellos no se explotarán con fines comerciales.
+Los Gobiernos Contratantes convienen en prohibir la caza, la matanza y la captura de especímenes de la fauna y la destrucción y recolección de ejemplares de la flora en los parques nacionales, excepto cuando se haga por las autoridades del parque o por orden o bajo la vigilancia de las mismas o para investigaciones científicas debidamente autorizadas.
+Los Gobiernos Contratantes convienen además en proveer los parques nacionales de las facilidades para el solaz y la educación del público, de acuerdo con los fines que persigue esta Convención.
