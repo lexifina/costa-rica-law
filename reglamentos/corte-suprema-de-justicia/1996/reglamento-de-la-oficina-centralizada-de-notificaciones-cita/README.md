@@ -13,3 +13,4 @@ Reglamento de la Oficina Centralizada de Notificaciones, Citaciones y Otras Comu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-11-11 | la propia norma |
+| 2 | 1998-04-27 | Reglamento 12 (1998-04-27) |
