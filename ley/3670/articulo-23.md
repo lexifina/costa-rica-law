@@ -1,1 +1,0 @@
-Artículo 23.- La renuncia expresa o tácita al uso y goce de las cosas comunes, no releva al condueño de sus obligaciones en cuanto a la conservación o reconstrucción de dichos bienes, ni de ninguna de las obligaciones derivadas del condominio.

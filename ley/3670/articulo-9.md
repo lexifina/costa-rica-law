@@ -1,1 +1,0 @@
-Artículo 9º.- En la escritura a que se refiere el párrafo final del artículo anterior se incluirá el Reglamento de Condominio y Administración o Reglamento Interno, a que se refiere el Capítulo V de esta ley.

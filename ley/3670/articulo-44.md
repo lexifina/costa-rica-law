@@ -1,1 +1,0 @@
-Artículo 44.- Si no hubiere Administrador, o éste estuviere incapacitado o no actuare, cualquiera de los propietarios podrá ejecutar por sí solo los actos impostergables de conservación y administración, y tendrá derecho a repetir de los demás propietarios el pago proporcional de los gastos hechos, mediante la justificación pertinente.

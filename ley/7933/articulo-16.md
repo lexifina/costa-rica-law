@@ -1,0 +1,7 @@
+ARTÍCULO 16.- Cada propietario podrá efectuar obras y reparaciones en
+el interior de su finca filial; pero le estará prohibida toda innovación
+o modificación que afecte la estructura, las paredes maestras u otros
+elementos esenciales del condominio. En cuanto a los servicios comunes y
+las instalaciones generales, los propietarios deberán abstenerse de todo
+acto, aun en el interior de su propiedad, que impida o haga menos eficaz
+la operación o el aprovechamiento.
