@@ -1,0 +1,1 @@
+ARTÍCULO 1°.-Declárese de interés arquitectónico el inmueble conocido como iglesia de San Francisco de Guadalupe, y propiedad de las Temporalidades de la Arquidiócesis de San José, ubicado en el cantón VIII, distrito 2°, de la provincia de San José.
