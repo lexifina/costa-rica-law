@@ -1,0 +1,4 @@
+CAPÍTULO III
+Del objeto contractual y de los servicios a contratar
+Articulo 5°—Del Objeto contractual. El objeto del contrato de servicios que aquí se regula consiste en dar en administración la operación y manejo de la actividad relacionada con la explotación comercial de uno o más de los puestos o lleudas libres de derechos que el IMAS tenga instalados o que decida instalar en puertos, fronteras y aeropuertos internacionales, a una tercera persona, de acreditada honorabilidad, capacidad y experiencia en negocios de igual o similar naturaleza.
+Asimismo, el contrato podrá incluir la construcción, remodelación y mantenimiento según se trate, de las instilaciones físicas donde operen puestos libres existentes o por construir; y de todas las obras necesarias para brindar los servicios de venta en los puestos libres de derechos en puertos, fronteras y aeropuertos internacionales.

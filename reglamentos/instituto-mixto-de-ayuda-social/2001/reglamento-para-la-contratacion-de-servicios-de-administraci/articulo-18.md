@@ -1,0 +1,1 @@
+Articulo 18. —De la contraparte institucional. Para ejercer funciones de coordinación y control en la fase de ejecución del contrato, fungirá como contraparte institucional la dependencia que designe la Gerencia General del IMAS.

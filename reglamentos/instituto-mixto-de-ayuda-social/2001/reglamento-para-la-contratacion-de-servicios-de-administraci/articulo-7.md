@@ -1,0 +1,1 @@
+Articulo 7°—De la contratación de espacios publicitarios. El IMAS definirá en cada cartel de licitación, los términos bajo los cuales se alquilaran, en el arca interior de la respectiva I leuda, espacios para colocar mensajes publicitarios (transparencias y otros).

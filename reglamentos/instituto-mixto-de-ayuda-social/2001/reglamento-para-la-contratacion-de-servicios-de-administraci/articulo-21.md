@@ -1,0 +1,1 @@
+Articulo 21.—Del plazo de los contratos. El plazo de los contratos de servicios de administración se fijara, en cada caso en el cartel de la licitación, no pudiendo ser menor a cinco años ni mayor de diez. Estos contratos podrán prorrogarse, por una única vez, hasta por un plazo igual al originalmente pactado.

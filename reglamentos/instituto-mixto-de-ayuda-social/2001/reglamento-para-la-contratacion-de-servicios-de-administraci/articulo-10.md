@@ -1,0 +1,4 @@
+CAPITULO IV
+De los potenciales proveedores y de la selección de los contratistas
+Artículo 10.—Requisitos mínimos que debe cumplir todo oferente. Para ser proveedor de servicios de administración en Tiendas Libres de Derechos del IMAS se requiere, aparte de demostrar idoneidad (solidez financiera) y capacidad para prestar estos servicios, acreditar su buen nombre e incuestionada reputación, a cuyo efecto lodo oferente deberá aportar con su plica una declaración jurada de que ni el ni sus socios, se encuentra sujetos actualmente a pena de inhabilitación especial o condenados por delitos económicos, por defraudación fiscal o los relacionados con el narcotráfico, tanto en Costa Rica como en cualquier otro país.
+Además, el oferente debe aportar a titulo de referencias bancarias, al menos tres cartas de bancos de reconocido prestigio internacional.

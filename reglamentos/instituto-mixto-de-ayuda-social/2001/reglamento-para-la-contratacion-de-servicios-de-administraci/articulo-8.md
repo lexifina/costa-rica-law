@@ -1,0 +1,2 @@
+Artículo 8°—Limitaciones. El contrato de servicios de administración no implica traspaso alguno de los derechos ni de los bienes del IMAS a favor del administrador.
+De ningún modo, las actividades que se trasladan al administrador podrán incluir la titularidad del derecho de adquirir mercancía libre de impuestos, dada la naturaleza jurídica de dicha atribución legal otorgada al Instituto Mixto de Ayuda Social, en forma exclusiva.

@@ -1,0 +1,1 @@
+Artículo 33.—Del arbitraje. Para resolver conflictos de orden patrimonial que puedan .surgir en la Fase de ejecución del contrato de servicios de administración, las partes podrán, de conformidad con lo establecido en la Lev sobre la Resolución Alternativa de Conflictos y Promoción de la Paz Social , N° 7727 del 14 de enero de 1998.

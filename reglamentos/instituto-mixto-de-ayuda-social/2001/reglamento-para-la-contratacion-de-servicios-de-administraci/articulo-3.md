@@ -1,0 +1,3 @@
+CAPÍTULO II
+Requisitos previos y estimación del negocio
+Artículo 3°—Del inicio de los procedimientos. Una vez establecida y verificada mediante el correspondiente estudio técnico- la necesidad de contratar servicios con terceras personas, para la administración de una o más tiendas Libres de Derechos, y luego de comprobar que se ha cumplido con todos los requisitos establecidos en la ley al electo, la Gerencia General del IMAS dará la orden para une se inicien los trámites del procedimiento de licitación publica correspondiente. De inmediato, se debe abrir el expediente administrativo del caso, asentando la orden de inicio girada a la Proveeduría institucional.
