@@ -1,0 +1,3 @@
+Artículo 12.—Para el derecho exclusivo de ingreso y disfrute de las instalaciones del Club del Contador, el visitante deberá identificarse con el respectivo carné y acatar las disposiciones reglamentarias y administrativas vigentes para esos efectos.
+El personal de vigilancia perforará el carné vencido o cuyo deterioro haga dudar de su legitimidad y correcta identificación.
+En cuanto a los colegiados, éstos podrán ingresar con un número máximo de diez invitados por día, quienes deberán cancelar la suma estipulada a la entrada del Club. Para el ingreso de más de diez invitados, el invitado deberá solicitar permiso a la Gerencia General.

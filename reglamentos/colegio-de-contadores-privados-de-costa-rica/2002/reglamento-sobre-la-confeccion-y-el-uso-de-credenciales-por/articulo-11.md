@@ -1,0 +1,2 @@
+Artículo 11.—Toda persona portadora de un carné del Colegio ha de responder personalmente por el uso indebido o irregular que se haga de éste.
+En caso de corroborarse una situación indebida, la Junta Directiva dispondrá, según amerite la circunstancia, la aplicación de sanciones disciplinarias al colegiado, según la faculten la Ley y el Código de Moral Profesional. En el caso de los no colegiados, se requisará el carné de identificación de modo temporal o definitivo, sin perjuicio de las prescripciones penales que correspondan.
