@@ -1,0 +1,4 @@
+Art. 2°-Las disposiciones y procedimientos establecidos por la ley 37 de 22 de noviembre de 1865, se hacen extensivas á la visación y fenecimiento de las cuentas á que se refiere el artículo anterior.
+Art. 2°-Queda en tales términos modificada la segunda parte del artículo 23 de las Ordenanzas Municipales de 24 de julio de 1867.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintisiete días del mes de julio de mil ochocientos ochenta y cinco. -JN. M. CARAZO, Presidente. -VI- CENTE C. SEGREDA, 1er. Secretario. -JUAN J.ULLOA G., 2: Secretario.-Palacio Presidencial.-San José, veintisiete de julio de mil ochocientos ochenta y cinco.- Ejecútese.-BERNARDO SOTO.-El Secretario de Estado en el despacho de Gobernación, C. DURÁN.
+(Nota de Sinalevi: En la publicación de esta norma, se consignó dos veces el artículo N° 2)
