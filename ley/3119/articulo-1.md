@@ -1,0 +1,2 @@
+Artículo 1.-
+(El apartado N° 25 de la Ley N° 3080 del 14 de diciembre de 1962, reformado por el artículo 6° de la Ley N° 3101 del 23 de marzo de 1963, adicionado mediante esta ley, fue considerado inconstitucional mediante resolución de la Corte Suprema de Justicia de las 10:00 horas del 10 de setiembre de 1963, correspondiente al expediente N° 0319-1963, en el cual compareció como recurrente el Sr. Guillermo Padilla Castro, como Presidente de la Asociación Sindical de Profesores y Funcionarios Universitarios.)
