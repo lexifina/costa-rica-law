@@ -1,0 +1,1 @@
+Artículo 19.- La Oficina de Planificación Nacional y Política Económica dispondrá de un plazo de 15 días hábiles contados a partir de la recepción de los documentos, para dictaminar sobre las modificaciones al Presupuesto del Programa de Inversiones.

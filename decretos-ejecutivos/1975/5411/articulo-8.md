@@ -1,0 +1,3 @@
+CAPITULO IV
+De la Oficina de Planificación Nacional y Política Económica
+Artículo 8°-En el Sistema Nacional de Inversiones Públicas, corresponde a la Oficina de Planificación Nacional y Política Económica, promover y coordinar, a nivel nacional, la labor relativa a proyectos de Inversión Pública; centralizar la información relacionada, definir y controlar las metodologías para la preparación, y evaluación económica y social de los proyectos, asesorar a los organismos del Sector Público en la elaboración y control de los planes de Inversión Pública, participar en la administración de los fondos de preinversión y colaborar en la elaboración de la política de financiamiento de inversiones.
