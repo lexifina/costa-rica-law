@@ -1,0 +1,2 @@
+Artículo 89.-En el caso contemplado en el inciso a) del artículo 85; las calificaciones que el estudiante obtenga en las pruebas que señale el Consejo se computarán para efecto de promoción como calificación en el trimestre o trimestres dejados de cursar. En las otras asignaturas o actividades que no sean objeto de examen, la calificación respectiva a aquellas obtenidas en el trimestre que curse se repetirá como calificación del trimestre o trimestres que faltaren.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 1926 del 12 de agosto de 1971).

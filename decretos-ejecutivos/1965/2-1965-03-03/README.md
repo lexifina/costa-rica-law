@@ -23,3 +23,4 @@ Reglamento General Establecimientos Oficiales de Educación Media
 | 8 | 1970-03-20 | Decreto Ejecutivo 29 (1970-03-20) |
 | 9 | 1970-08-08 | Acuerdo 24 (1970-08-08) |
 | 10 | 1970-09-21 | Decreto Ejecutivo 1286 (1970-09-21) |
+| 11 | 1971-08-12 | Decreto Ejecutivo 1926 (1971-08-12) |

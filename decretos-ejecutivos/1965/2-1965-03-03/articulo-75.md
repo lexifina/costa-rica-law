@@ -1,12 +1,4 @@
-CAPITULO XI
-Disposiciones Generales
-(*)Articulo 75.- La promoción de los alumnos de quinto año se regirá de acuerdo con lo dispuesto en el Reglamento respectivo. (Decreto Ejecutivo N° 6 del 16 de noviembre de 1955, reformado por los Decretos Ejecutivos N° 4 de 3 de diciembre de 1956 y N° 4 de 11 de febrero de 1964)".
-(*)(Este artículo fue derogado en lo correspondiente por el artículo transitorio 1° del decreto ejecutivo N° 9 del 20 de febrero de 1968).
-DECRETAN:
-Artículo 1°-Disponer la vigencia del anterior acuerdo del Consejo Superior de Educación para todos sus efectos.
-Artículo 2°-Rige a partir de su publicación.
-Dado en la Casa Presidencial. -San José, a los tres días del mes de marzo de mil novecientos sesenta y cinco.
-FRANCISCO J. ORLICH
-El Ministro de Educación Pública,
-ISMAEL ANTONIO V ARGAS BONILLA.
-La Gaceta N° 54 de 7 de marzo
+(*)CAPITULO XI
+De las matrículas provisionales
+(*)Artículo 75.-Podrán solicitar matrícula provisional, para asistir a colegios oficiales o particulares, al iniciarse el curso lectivo, únicamente los estudiantes procedentes de instituciones educativas extranjeras y que carezcan de la documentación de rigor, o bien, que se halle ésta en estudio del Consejo Superior de Educación.
+(*)(Así adicionado por el artículo 1° del decreto ejecutivo N° 1926 del 12 de agosto de 1971).
