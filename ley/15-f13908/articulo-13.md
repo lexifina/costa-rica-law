@@ -1,0 +1,1 @@
+ART. 13.-Cuando la defraudación del derecho de timbre no apareciere claramente del mismo documento, sólo ser n responsables los contratantes ó autores del fraude; y las demás personas que se refieren los dos artículos anteriores, sólo tendrán la responsabilidad que en ellos se establece, si se les prueba que sabían ó conocían dicha defraudación.

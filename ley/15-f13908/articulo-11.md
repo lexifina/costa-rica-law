@@ -1,0 +1,1 @@
+ART. 11.-El derecho de timbre lo pagará el que ello se hubiere obligado en el contrato; pero el tenedor ó portador del documento es responsable de la falta de timbre, salvo que ésta sea en instrumento público, en cuyo caso el cartulario es el primer responsable.
