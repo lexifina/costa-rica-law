@@ -1,6 +1,6 @@
 ARTÍCULO 2
-La cooperación técnica, en materia de este Convenio se llevará
-a cabo mediante:
+La cooperación técnica, en materia de este Convenio se llevará a
+cabo mediante:
 1.- El intercambio de expertos y asesores en los diversos campos y
 actividades conexas.
 2.- El intercambio de conocimientos de las diferentes especialidades,
