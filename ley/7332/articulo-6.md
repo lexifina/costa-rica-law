@@ -14,8 +14,8 @@ e) fijar las condiciones del desempeño de las funciones del
 Secretario General y de los Secretarios Generales Adjuntos;
 f) adoptar el presupuesto anual de ingresos y gastos del Centro; g)
 aprobar el informe anual de actividades del Centro.
-Para la aprobación de lo dispuesto en los incisos (a), (b), (c) y (f)
-se requerirá una mayoría de dos tercios de los miembros del Consejo
+Para la aprobación de lo dispuesto en los incisos (a), (b), (c) y
+(f) se requerirá una mayoría de dos tercios de los miembros del Consejo
 Administrativo.
 2.- El Consejo Administrativo podrá nombrar las Comisiones que
 considere necesarias.

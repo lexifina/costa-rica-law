@@ -7,5 +7,5 @@ en este Convenio. Las partes lo acatarán y cumplirán en todos sus
 términos, salvo en la medida en que se suspenda su ejecución, de acuerdo
 con lo establecido en las correspondientes cláusulas de este Convenio.
 2.- A los fines previstos en esta Sección, el término "laudo"
-incluirá cualquier decisión que aclare, revise o anule el laudo, según los
-Artículos 50, 51 ó 52.
+incluirá cualquier decisión que aclare, revise o anule el laudo, según
+los Artículos 50, 51 ó 52.
