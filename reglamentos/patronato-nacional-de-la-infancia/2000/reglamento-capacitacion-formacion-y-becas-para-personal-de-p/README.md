@@ -14,3 +14,4 @@ Reglamento Capacitación Formación y Becas para Personal de PANI.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-09 | la propia norma |
+| 2 | 2000-08-07 | Reglamento 64 (2000-08-07) |
