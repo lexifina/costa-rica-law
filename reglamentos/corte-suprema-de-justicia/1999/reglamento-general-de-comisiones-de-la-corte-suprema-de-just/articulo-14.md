@@ -1,0 +1,2 @@
+Artículo 14°.- Salvo que la ley disponga otra cosa y en las Comisiones Interinstitucionales, la Corte hará la designación del Coordinador o Presidente de cada Comisión, entre los Magistrados Titulares a propuesta de esta, por un período de dos años y podrán ser reelectos.
+En sus ausencias temporales será reemplazado en sus funciones por el Magistrado Titular a quien le corresponda, siguiendo el orden de precedencia establecido en la Ley Orgánica del Poder Judicial.

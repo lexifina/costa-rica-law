@@ -1,0 +1,1 @@
+Artículo 20°.- Las Comisiones podrán solicitar la presencia o la participación de Magistrados que no las integren, así como autorizar o requerir las de funcionarios o expertos, judiciales o no, salvo para las deliberaciones y votaciones, que serán normalmente privadas.

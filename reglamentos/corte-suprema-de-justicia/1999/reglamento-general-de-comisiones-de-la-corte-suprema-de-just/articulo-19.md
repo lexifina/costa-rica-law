@@ -1,0 +1,2 @@
+Artículo 19°.- Los dictámenes, informes y recomendaciones de las Comisiones tendrán un carácter meramente consultivo y no serán vinculantes para la Corte, pero ésta deberá fundamentar sus decisiones cuando se separe de ellos.
+Cuando por disposición expresa de la Ley o de la Corte Plena se atribuyan a una Comisión competencia o potestades propias, se entenderán, en todo caso, reservadas a la propia Corte las de avocar el conocimiento de cualquier asunto o de revocar, reformar y sustituir lo resuelto por la Comisión.

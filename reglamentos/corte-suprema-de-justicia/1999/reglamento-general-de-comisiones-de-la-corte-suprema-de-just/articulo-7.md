@@ -1,0 +1,2 @@
+Artículo 7°.- Independientemente del rol de rotación mencionado en el artículo trasanterior, el Presidente de la Corte es miembro ex officio de todas las Comisiones, sin excluir al Magistrado de su misma Sala, y cuando participe en sus sesiones las presidirá.
+El Suplente llamado a reemplazar al Presidente, en su Sala, conforme a la Ley Orgánica del Poder Judicial, integrará las Comisiones y participará de la rotación de la Sala correspondiente, como si fuera un Titular.

@@ -1,0 +1,3 @@
+Artículo 8°.- Las Comisiones Especializadas, sean Superiores o Mixtas, estarán integradas por lo menos por tres Magistrados, dos de ellos propuestos por la Sala o Salas afines a la materia en cuestión, y el tercero escogido por la Corte entre las restantes.
+Las Comisiones Especiales serán integradas libremente por la Corte, sin sujeción a número, pero en todos los casos procurando mantener un equilibrio en la participación de los Magistrados y de sus Salas respectivas; este último criterio se aplicará en el caso de todas las Comisiones.
+En las Comisiones Interinstitucionales, la escogencia de los representantes del Poder Judicial se hará por la Corte Plena siguiendo en lo posible los criterios anteriores, en lo que fueren aplicables.

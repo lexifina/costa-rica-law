@@ -1,0 +1,1 @@
+Artículo 18°.- Las sesiones serán grabadas cuando la propia Comisión lo disponga debiendo levantarse un acta comprensiva de lo acontecido en ellas la cual deberá ser aprobada por la Comisión y firmada por el Presidente o Coordinador. Para tales efectos, la Dirección Ejecutiva de la Corte deberá suministrar los medios humanos y materiales necesarios.

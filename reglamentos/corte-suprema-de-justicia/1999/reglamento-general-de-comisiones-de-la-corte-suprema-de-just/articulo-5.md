@@ -1,0 +1,3 @@
+Artículo 5°.- Las Comisiones Generales, sean Superiores o Mixtas, estarán integradas por cuatro Magistrados, uno por cada Sala, propuestas por éstas a la Corte Plena, mediante un riguroso procedimiento de rotación en cada rango de las Comisiones, tanto Principales como Ordinarias.
+La Presidencia de una Sala a opción de su titular podrá contarse como un turno de Comisión Principal para efecto de rotación.
+Los miembros restantes de las Comisiones Mixtas serán designados libremente, por la Corte Plena, salvo cuando se trate de Miembros del Consejo Superior, los cuales serán propuestos por el propio Consejo.

@@ -1,0 +1,3 @@
+Artículo 6°.- Se exceptúan de lo dispuesto en el artículo anterior:
+El Consejo Consultivo: que estará integrado por el Presidente y Vicepresidente de la Corte y los Presidentes de las Salas, ex officio;
+Las Comisiones en que la Ley imponga directamente una composición diferente, así como las que por su naturaleza deban ser paritarias con otras entidades o categorías de personas, pero siempre se procurará mantener el orden de rotación establecido y la participación de Magistrados de todas las Salas. Si esto último no fuere posible, los Magistrados de las Salas excluidas se designarán como Suplentes, en el orden que la propia Corte disponga.

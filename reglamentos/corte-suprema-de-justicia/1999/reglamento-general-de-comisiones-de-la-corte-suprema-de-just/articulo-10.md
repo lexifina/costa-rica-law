@@ -1,0 +1,3 @@
+Artículo 10°.- Salvo en el caso del Consejo Consultivo, el período de nombramiento de los Magistrados integrantes de las Comisiones será de dos años, con una sola reelección inmediata.
+Será también de dos años, con una sola reelección inmediata, el período de los demás miembros de las Comisiones Mixtas, salvo el de aquellos que lo sean por razón de su cargo específico.
+Cada año vencerá el período de dos de los Magistrados y, en su caso, de dos de los restantes integrantes de cada Comisión. En todos los casos, las renovaciones ordinarias se harán durante el mes de mayo y regirán a partir del 1° de junio respectivo.

@@ -1,0 +1,1 @@
+Artículo 4°.- Asimismo, las Comisiones Generales y Especializadas, sean Superiores o Mixtas, se clasifican según su importancia institucional, en Principales, en los términos del Anexo de este Reglamento, y Ordinarias, las demás, salvo que la Corte Plena disponga lo contrario.
