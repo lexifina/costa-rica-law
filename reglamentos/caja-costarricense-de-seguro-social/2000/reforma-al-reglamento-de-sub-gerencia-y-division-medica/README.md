@@ -14,3 +14,4 @@ Reforma al Reglamento de Sub Gerencia y División Médica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-19 | la propia norma |
+| 2 | 2000-06-19 | Ley 8 |
