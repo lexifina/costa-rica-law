@@ -1,0 +1,1 @@
+Art. 2°-En consecuencia, las municipalidades de cada una de las provincias del interior, procederán desde luego á la elección por mayoría relativa de votos, de un Consejero por cada provincia, correspondiendo otro á la del Guanacaste y comarca de Puntarenas, conjuntamente.
