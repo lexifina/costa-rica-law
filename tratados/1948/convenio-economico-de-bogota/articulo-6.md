@@ -1,0 +1,1 @@
+Artículo 6°-La medida y el carácter de la cooperación económica estarán condicionados para cada país participante por sus recursos, por los términos de propias leyes y por los compromisos contraídos mediante convenios internacionales.

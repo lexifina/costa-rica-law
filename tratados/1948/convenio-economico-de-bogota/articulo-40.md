@@ -1,0 +1,3 @@
+CAPITULO XIII
+Ratificación, Vigencia y Reformas
+Artículo 40.-El presente Convenio Económico de Bogotá queda abierto a la firma de los Estados Americanos, y será ratificado de conformidad con sus respectivos procedimientos constitucionales. El instrumento "original, cuyos textos en español, inglés, portugués y francés son igualmente auténticos, sera depositado en la Unión Panamericana, la cual enviará copias certificadas a los gobiernos para los fines de su ratificación. Los instrumentos de ratificación serán depositados en la Unión Panamericana y esta notificará dicho depósito a los gobiernos signatarios. Tal notificación valdrá como canje de ratificaciones.

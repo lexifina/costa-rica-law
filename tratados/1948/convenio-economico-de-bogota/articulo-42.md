@@ -1,0 +1,1 @@
+Artículo 42.-El presente Convenio será registrado en la Secretaría de las Naciones Unidas, por conducto de la Unión Panamericana, al ser de depositadas las ratificaciones de los dos tercios de los Estados signatarios.

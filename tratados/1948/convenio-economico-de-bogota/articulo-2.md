@@ -1,0 +1,1 @@
+Artículo 2°-Los propósitos de la cooperación a que se refiere este Convenio y los principios que la inspiran, son los que marcan la Carta de las Naciones Unidas, la Carta Económica de las Américas y la Carta de la Organización de los Estados Americanos.

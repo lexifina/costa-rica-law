@@ -1,0 +1,1 @@
+Artículo 4°.-Los Estados están de acuerdo en que deben estimularse los convenios bilaterales o multilaterales que, conforme con lo dispuesto en este Convenio, contribuyen a su bienestar económico y a su seguridad común.

@@ -1,0 +1,1 @@
+Artículo 13 . -En el ejercicio de sus funciones podrá el Consejo solicitar de los respectivos Gobiernos los elementos de juicio que necesite. Los Gobiernos podrán negar las informaciones que consideren de carácter reservado. El Consejo solo podrá ejercer sus funciones dentro del territorio de un país, si recibe Ia autorización del mismo

@@ -1,0 +1,1 @@
+Artículo I5.-Los Estados, al determinar el presupuesto de la Unión Panamericana, tendrán en cuenta las cantidades necesarias para cubrir los mayores gastos del Consejo y de su Cuerpo Técnico, con el fin de que puedan desempeñar !as funciones descritas en el artículo 10.

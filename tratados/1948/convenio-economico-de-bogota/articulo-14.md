@@ -1,0 +1,1 @@
+Artículo 14.-Los Estados Miembros podrao solicitar estudios especiales del Consejo Interamericano Económico y Social, el cual determinara si los estudios que se Ie solicitan son de su competencia y podrá también indicar si es más apropiado que las peticiones respectivas se dirijan, en todo o en parte, a otras instituciones nacionales o internacionales o a entidades privadas.

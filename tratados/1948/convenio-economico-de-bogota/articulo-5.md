@@ -1,0 +1,3 @@
+Artículo 5°-Los Estados reiteran que el uso productivo de sus recursos humanos y materiales, interesa y beneficia a todos los países; y que;
+El desarrollo económico en general, incluida la explotación de los recursos naturales, la diversificación de las economías y el perfeccionamiento tecnológico, mejorará las posibilidades de empleo, aumentará la productividad y la remuneración de la mano de obra, incrementará la demanda de mercancías y servicios, contribuirá a equilibrar las economías, expansionará . El comercio internacional y elevara el nivel de los ingresos reales; y
+La sana industrialización, en particular de aquellos Estados que no han logrado aprovechar plenamente sus recursos naturales, es indispensable para alcanzar los fines indicados en el inciso anterior.

@@ -1,0 +1,1 @@
+Artículo 34.-Los Estados acuerdan estimular la reducción de los costos de transportes por todos los medios posibles mediante la mejora de condiciones portuarias, las disposiciones que afectan el manejo de los puertos y de los barcos, los requisitos de aduana y rebaja de derechos y gastos y gravámenes portuarios que restrinjan indebidamente el comercio marítimo interamericano.

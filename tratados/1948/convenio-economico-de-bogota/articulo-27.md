@@ -1,0 +1,2 @@
+Artículo 27.-Cada Estado, para estimular las inversiones privadas hechas con fines de fomento económico, procurará, dentro del marco sus propias instituciones, liberalizar sus leyes de tributación para reducir progresivamente y aún eliminar la doble tributación, en lo que se refiere a las rentas procedentes del extranjero y evitar tributaciones discriminatorias indebidamente gravosas, sin crear, sin embargo, vías internacionales de evasón fiscal.
+Los Estados procurarán también concertar rápidamente convenios evitar la doble tributación.

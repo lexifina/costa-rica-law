@@ -1,0 +1,5 @@
+CAPITULOX
+Viajes Interamericanos
+Artículo 37.-Los Estados decIaran que el desarrollo de los viajes interamericanos, incIuyendo eI turismo, constituye un factor importante de fomento económico general que contribuye a la expansión del comercio, facilitar la cooperación técnica y aumentar la armonía económica. Por lo tanto, se comprometen a dar aliento a las medidas nacionales e internacionales para reducir las restricciones a los viajeros no inmigrantes de los Estados, sin discriminación entre los visitantes por razón del objeto de su visita, ya sea este de placer, salud, negocios o educación.
+Los Estados consideran que uno de los medios más eficaces de fomentar los viajes interamericanos es reducir los precios de los pasajes.
+(Nota del Sinalevi: En relación a este numeral la Delegación de Argentina al suscribir este Convenio hace la siguiente reserva: “…Argentina aclara que su reserva al artículo 37 se refiere exclusivamente a la última parte del mismo; referente a que no se harán discriminaciones por razones de salud. Entiende que resulta obvio la necesidad de sujetarse en esta a las disposiciones de carácter sanitario vigentes en cada país…”)

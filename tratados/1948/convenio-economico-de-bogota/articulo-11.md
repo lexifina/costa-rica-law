@@ -1,0 +1,2 @@
+Artículo 11.-Para cumplir las funciones que Ie señale el artículo 10, el Consejo organizará un Cuerpo Técnico de carácter permanente. La dirección de este Cuerpo estará a cargo de un Jefe Técnico, quien en los asuntos de su competencia participará con derecho a voz en las deliberaciones del Consejo, y será el ejecutor de sus decisiones.
+El Consejo refundirá los organismos interamericanos existentes encargados de funciones similares y utilizará los servicios de la Unión Panamericana.

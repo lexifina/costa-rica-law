@@ -1,0 +1,1 @@
+Artículo 26.-Los Estados declarán su intención de promover las inversiones sanas fomentando, en lo posible y de acuerdo con las leyes cada país, el establecimiento de principios uniformes de contabilidad de empresas así como de normas sobre los informes que puedan o deban ser utilizados por los inversionistas particulares.

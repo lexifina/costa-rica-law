@@ -1,0 +1,1 @@
+Artículo 7°-Los Estados Americanos reconocen su interés común en el mantenimiento de condiciones económicas favorables al desarrollo de una economía mundial equilibrada y expansiva; y a un alto nivel del comercio internacional, en tal forma que contribuya al fortalecimiento económico y al progreso de cada Estado
