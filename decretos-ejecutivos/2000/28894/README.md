@@ -13,3 +13,4 @@ Ajusta Impuesto sobre Pasajes Internacionales (Timbre Museo Nacional)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-06 | la propia norma |
+| 2 | 2002-07-31 | Decreto Ejecutivo 30631 (2002-07-31) |
