@@ -1,0 +1,2 @@
+Artículo 50°—Nombramiento originado en fraude
+A petición del Departamento de Personal o del Consejo de Personal, el ministro del ramo podrá ordenar la destitución inmediata del servidor, cuando se compruebe que su nombramiento fue producto de un fraude o de cualquier otro error material grave. El servidor destituido será notificado y oído, dentro de los tres días siguientes, para que exponga las alegaciones que estime pertinentes.

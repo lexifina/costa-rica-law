@@ -1,0 +1,3 @@
+Artículo 68°—Procedimiento en investigación disciplinaria
+El departamento legal del ministerio respectivo se encargará de investigar preliminarmente toda acusación que implique la suspensión temporal o el despido del servidor amparado por este Estatuto.
+Preparado el informe correspondiente, el departamento citado recomendará alguna medida y trasladará el asunto al Consejo de Personal para que lo resuelva en primera instancia. El afectado por una medida disciplinaria de este tipo tendrá derecho a recurrir al ministro del ramo, dentro de los tres días siguientes al de la notificación. Si no se apela, el asunto se remitirá al ministro quien resolverá definitivamente y dará por agotada la vía administrativa.

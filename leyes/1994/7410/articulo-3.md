@@ -1,0 +1,2 @@
+Artículo 3.—Subordinación al poder civil
+Las fuerzas encargadas de la seguridad pública tendrán carácter eminentemente policial y estarán subordinadas al poder civil. El armamento y la organización de estas fuerzas serán los propios y adecuados para el buen desempeño de la función policial. Sus miembros deberán abstenerse de deliberar o manifestar proclamas al margen de la autoridad civil de la cual dependen.
