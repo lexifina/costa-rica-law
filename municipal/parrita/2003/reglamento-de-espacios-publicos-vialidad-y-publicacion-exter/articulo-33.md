@@ -1,0 +1,1 @@
+Artículo 33.—Transitorio: Este Reglamento regirá a partir de su publicación para todo rótulo nuevo. Los rótulos existentes deberán ponerse a derecho o ajustarse al reglamento en un plazo o período de dos meses, comprendido entre el 1° de enero del 2004 al 1° de marzo del 2004. Aprobado mediante acuerdo Nº 3, de la Sesión Ordinaria Nº 1777-2003, del quince de setiembre del 2003.

@@ -1,0 +1,1 @@
+Artículo 31.—Rótulos en sitios y edificaciones de valor patrimonial con uso comercial: No podrán alterar la estructura del inmueble, no podrán ser luminosos, no podrán obstaculizar detalles arquitectónicos y no podrán adosarse perpendicular al inmueble.

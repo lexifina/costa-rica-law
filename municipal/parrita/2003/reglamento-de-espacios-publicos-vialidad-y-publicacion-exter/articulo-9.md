@@ -1,0 +1,1 @@
+Artículo 9º—Barreras de seguridad: Para la instalación de postes u otros obstáculos para impedir la entrada de vehículos a la acera, parques o jardines, se solicita el permiso al Departamento de Construcciones de la Municipalidad previa inspección y alineamiento. En este caso debe preverse un paso a través del obstáculo de 1.0 metro mínimo para las sillas de ruedas.
