@@ -1,0 +1,1 @@
+Artículo 11.—Los representantes del sector privado serán escogidos de ternas que enviarán los organismos a nivel nacional que operan en los campos de producción de leche, de producción de carne y de producción industrial.

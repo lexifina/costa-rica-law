@@ -1,0 +1,1 @@
+Artículo 27.—Los acuerdos del Consejo Directivo podrán reveerse una sola vez a solicitud de cualquiera de sus miembros. El recurso de revisión deberá ser planteado a más tardar al discutirse el acta de la sesión respectiva y deberá resolverse en la misma sesión, a menos que por tratarse de un asunto que el Presidente juzgue urgente, prefieren conocerlo en sesión extraordinaria.

@@ -1,0 +1,2 @@
+Artículo 51.—La Escuela de acuerdo con el inciso d) del artículo 6° de la ley N° 4401 de 1° de setiembre de 1969, constituirá su patrimonio con los legados, donativos y en general toda clase de bienes o derechos que legalmente o por voluntad de las personas físicas y jurídicas le asignen.
+Entre ellos fincas, edificios, instalaciones, equipos, semovientes y otros bienes inmuebles y muebles, según los inventarios existentes.

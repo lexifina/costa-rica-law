@@ -1,0 +1,1 @@
+Artículo 52.—Los planes de estudio estarán basados preferentemente en lo que sea posible, en concordancia con las particulares condiciones de Centro-américa y de conformidad con las necesidades pecuarias de la región.

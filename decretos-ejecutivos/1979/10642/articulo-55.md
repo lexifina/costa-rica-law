@@ -1,0 +1,2 @@
+Artículo 55.—El Consejo Directivo, a propuesta de uno de sus miembros o del Director podrá proponer la introducción de cambios al presente reglamento, para adecuarlo a la orientación que se imparta a la Escuela dentro de los propósitos de elevarla a institución de nivel centroamericano o bien por razones que lo estimen necesario.
+Además y por vía reglamentaria también, agrupará en un cuerpo coherente las actividades y funciones docentes de la Escuela con fundamento en la legislación sobre la materia y los acuerdos del Consejo Directivo.

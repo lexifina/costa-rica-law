@@ -1,0 +1,3 @@
+Artículo 19.—El Consejo Directivo se reunirá en sesión ordinaria una vez al mes, en el lugar, día y hora que él determine; en sesión extraordinaria, cuando sea convocada por su Presidente, ya sea por determinación propia o cuando así se lo soliciten por lo menos tres de sus miembros o el Director de la Escuela.
+El quórum lo forman la mitad más uno del total de los miembros del Consejo Directivo y los acuerdos se toman por mayoría absoluta de los votos presentes, salvo casos en que la ley o los reglamentos exijan mayor número de votos.
+Tendrán derecho a asistir con voz pero sin voto los representantes ejecutivos de la Escuela, salvo que el Consejo Directivo disponga lo contrario.

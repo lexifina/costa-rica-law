@@ -1,0 +1,1 @@
+Artículo 49.—El Director presentará al Consejo Directivo, con la anticipación mínima de quince días de la fecha de la reunión preestablecida, el estado general de la situación financiera de la Escuela y el estado de cuentas correspondientes, a la fecha de presentación del documento.

@@ -1,0 +1,3 @@
+II PROPÓSITOS Y FUNCIONES
+Artículo 5°—Los propósitos de la Escuela son los de realizar, promover y estimular la investigación, la enseñanza y extensión pecuaria a los niveles técnicos (Técnico en Producción Animal) y a nivel de cursos de extensión a las comunidades (certificado), en todas aquellas materias pecuarias y afines que abarcando aspectos científicos, técnicos, económicos y sociales contribuyan al desarrollo y bienestar de la región centroamericana.
+Por lo tanto formará técnicos idóneos, de sólida preparación teórico práctica y fomentará por medio de cursos cortos la enseñanza comunitaria.
