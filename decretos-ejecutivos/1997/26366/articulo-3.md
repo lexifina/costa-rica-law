@@ -1,0 +1,1 @@
+Artículo 3°.- Durante el período de publicación del decreto y la fijación del nuevo límite de gasto por parte de la Autoridad Presupuestaria el Instituto de Desarrollo Agrario se regirá por el límite de gasto establecido en el decreto ejecutivo N° 25191-H, y sus reformas.
