@@ -1,6 +1,6 @@
-Artículo 4 bis.- Tratándose de Laboratorios Fabricantes Extranjeros, los interesados deberán presentar:
-a) Una solicitud formal y un poder extendido por el Laboratorio, que autorice al gestionante para el acto.
-b) Un certificado sanitario extendido por las autoridades sanitarias competentes del país de origen del laboratorio, donde se indique que el establecimiento recibe inspecciones frecuentes y se encuentra conforme a las normas de buenas prácticas de manufactura de ese país.
-La inscripción del laboratorio tendrá una vigencia de dos años. Una vez vencido dicho plazo, la inscripción quedará automáticamente renovada, previa presentación por parte del interesado del certificado sanitario vigente por el nuevo período. Si al vencimiento del plazo, el interesado no renueva la inscripción del laboratorio, la inscripción de sus productos quedará suspendida automáticamente.
+Artículo 4 bis.—Tratándose de Laboratorios Fabricantes Extranjeros, los interesados deberán presentar:
+a) Solicitud formal y un poder extendido por el Laboratorio, que autorice al gestionante para el acto.
+b) Certificado sanitario extendido por las autoridades sanitarias del país de origen del laboratorio, donde se indique que el establecimiento recibe inspecciones frecuentes y se encuentra conforme a las normas de buenas prácticas de manufactura en ese país.
+La inscripción del laboratorio tendrá una vigencia de cinco años. Una vez vencido dicho plazo, la inscripción quedará automáticamente renovada, previa presentación por parte del interesado del certificado sanitario vigente por el nuevo período. Si al vencimiento de plazo el interesado no renueva la inscripción del laboratorio, la inscripción de sus productos quedará suspendida automáticamente.
 Dichos productos no podrán importarse ni fabricarse en el país. Los registros vigentes de los productos suspendidos, serán reactivados una vez que el interesado renueve la inscripción del Laboratorio.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 24028 del 16 de enero de 1995)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 27201 del 3 de agosto de 1998)
