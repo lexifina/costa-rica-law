@@ -1,0 +1,3 @@
+Artículo 22.—Autorízase a la administración tributaria municipal para que proceda a sancionar a los contribuyentes que evadan o no paguen este impuesto, de acuerdo con el título III del Código de Normas y Procedimientos Tributarios, vigente en la actualidad.
+Los funcionarios municipales designados para el trámite de este impuesto, quedan investidos de fe pública para hacer constar, bajo su estricta responsabilidad, la diligencia de notificación, cuando el contribuyente o su representante se niegue a recibirla. Para ello, el Concejo deberá tomar un acuerdo e investir con esta autoridad a los funcionarios municipales específicamente.
+(Así adicionado por el artículo 2 de la Ley N° 8287 de 4 de julio del 2002)
