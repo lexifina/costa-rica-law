@@ -1,0 +1,1 @@
+Artículo 2°-Correspondera al Centro de Elaboración de Material Didáctico, diseñar y Construir prototipos y organizar su producción en serie del Material Didáctico de acuerdo con las necesidades fijadas por el Departamento de Curriculum del Ministerio de Educación Pública con el cual deberá coordinar todas sus actividades.
