@@ -1,0 +1,1 @@
+Artículo 9º—Validez. La Asesoría Legal someterá a refrendo de la Contraloría General de la República, cuando así corresponda, los contratos o convenios con sujetos privados que reciban beneficios patrimoniales, de conformidad con el Reglamento sobre el refrendo de las contrataciones de la Administración Pública, publicado en La Gaceta Nº 28 del 9 de febrero de 2000.

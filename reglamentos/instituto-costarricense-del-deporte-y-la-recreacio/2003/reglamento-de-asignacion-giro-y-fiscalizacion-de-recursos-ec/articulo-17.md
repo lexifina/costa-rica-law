@@ -1,0 +1,1 @@
+Artículo 17.—El Área de Deporte Competitivo verificará el cumplimiento de este reglamento para lo cual está autorizada a ejercer actividades de control tendientes a comprobar que los fondos se ejecutan o ejecutaron de acuerdo con la finalidad para la cual se otorgaron.

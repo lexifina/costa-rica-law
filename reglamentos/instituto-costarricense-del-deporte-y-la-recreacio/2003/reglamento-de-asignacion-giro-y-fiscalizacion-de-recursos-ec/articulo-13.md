@@ -1,0 +1,1 @@
+Artículo 13.—Los informes se referirán tanto a la ejecución del presupuesto del programa o proyecto como al logro de los objetivos planteados en el respectivo plan de trabajo y aportarán documentos originales que amparen el uso de la transferencia así como aprobación de la Junta Directiva mediante transcripción de acuerdo.

@@ -1,0 +1,1 @@
+Artículo 21.—El Área de Deporte Competitivo deberá emitir un criterio favorable o desfavorable sobre los informes requeridos en el presente capítulo, criterio que será resultado del estudio del cumplimiento de los aspectos jurídicos-presupuestarios y técnicos establecidos en el presente reglamento.

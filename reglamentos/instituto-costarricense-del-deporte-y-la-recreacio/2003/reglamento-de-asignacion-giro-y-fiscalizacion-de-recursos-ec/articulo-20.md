@@ -1,0 +1,1 @@
+Artículo 20.—El Área de Deporte Competitivo conjuntamente con el Área Administrativa-Financiera verificará que los sujetos privados agreguen al principal y con el mismo destino, los intereses que genere la inversión de los fondos transferidos por el ICODER.

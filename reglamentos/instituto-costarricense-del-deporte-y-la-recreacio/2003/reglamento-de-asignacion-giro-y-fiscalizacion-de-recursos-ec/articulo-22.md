@@ -1,0 +1,1 @@
+Artículo 22.—El resultado del estudio del Área de Deporte Competitivo se emitirá sin perjuicio de otros medios de control señalados por otras leyes y reglamentos, sin perjuicio de la fiscalización superior que corresponde a la Contraloría, de conformidad con el ordenamiento jurídico y sin perjuicio de la fiscalización que realice posteriormente la Auditoría Interna del ICODER.

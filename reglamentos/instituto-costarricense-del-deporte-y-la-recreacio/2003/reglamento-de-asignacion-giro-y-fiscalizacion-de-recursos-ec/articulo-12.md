@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la fiscalización de los fondos
+Artículo 12.—El sujeto privado posibilitará el control externo que garantice la salvaguarda de los recursos, la exactitud y veracidad de la información financiera y administrativa, por lo que el sujeto privado deberá presentar ante el Área de Deporte Competitivo un informe anual sobre el uso de los fondos a más tardar el 31 de enero de cada año, independientemente del período contable utilizado, sin detrimento de que en cualquier momento se puedan solicitar informes que garanticen oportunamente el uso correcto de los fondos girados al sujeto privado.

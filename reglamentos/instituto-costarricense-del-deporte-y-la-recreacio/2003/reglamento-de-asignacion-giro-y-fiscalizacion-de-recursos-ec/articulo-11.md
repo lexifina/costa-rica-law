@@ -1,0 +1,1 @@
+Artículo II.—El Área de Deporte Competitivo bajo ninguna circunstancia podrá autorizar un nuevo aporte al sujeto privado que tenga pendiente de liquidar un aporte anterior o no que no haya presentado las justificaciones debidas que el ICODER aceptará según su criterio.

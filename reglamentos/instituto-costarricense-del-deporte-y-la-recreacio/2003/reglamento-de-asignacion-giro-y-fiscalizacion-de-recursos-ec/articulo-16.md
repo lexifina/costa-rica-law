@@ -1,0 +1,1 @@
+Artículo 16.—El Área de Deporte Competitivo deberá suspender o revocar las transferencias, cuando compruebe que los sujetos privados se han apartado de los fines previstos, así como aplicar las sanciones previstas en el marco jurídico.

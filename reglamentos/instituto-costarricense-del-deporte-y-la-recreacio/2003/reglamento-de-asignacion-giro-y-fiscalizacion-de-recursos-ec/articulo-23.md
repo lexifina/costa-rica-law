@@ -1,0 +1,1 @@
+Artículo 23.—El beneficiario del aporte queda obligado a devolver al ICODER, dentro de los treinta días naturales siguientes a la fecha de la notificación del resultado de la revisión aquellas sumas no justificadas o cuya justificación no haya sido aceptada.
