@@ -1,0 +1,1 @@
+Artículo 14.—Los recursos para el pago de las dietas, salarios y adquisición de todo tipo de bienes y realización de actividades de apoyo para el óptimo funcionamiento del Consejo, la Secretaría Técnica y sus Comisiones, deberán contemplarse en un programa propio dentro del presupuesto general del Ministerio de Trabajo y Seguridad Social.

@@ -1,0 +1,7 @@
+Artículo 12.—El Consejo Superior de Trabajo, contará con los servicios de una Secretaría Técnica, coordinada por un Director Ejecutivo, de nombramiento del Ministro de Trabajo. Esta secretaría contará con el personal de apoyo que se considere necesarios y tendrá las siguientes funciones:
+a) Encargarse de que se elaboren los estudios e informaciones necesarias para el conocimiento de los asuntos de carácter económico-social.
+b) Llevar a cabo el registro de las sesiones y de las actas correspondientes.
+c) Efectuar la tramitación administrativa de los acuerdos del Consejo y de las relaciones de este organismo con las dependencias del Ministerio de Trabajo y con las instituciones de la Administración Pública.
+d) Implementar los acuerdos del Consejo y servir de apoyo a las acciones que en él se definan.
+e) Elaborar y someter al conocimiento del Consejo, un plan de trabajo que contemple las actividades que sean necesarias para que en cada sector se discuta e informe sobre los tópicos a ser tratados en el proceso de concertación. Estas actividades deben ser diseñadas de manera que permitan a los trabajadores y empresarios una adecuada comprensión de cada uno de los temas y hacia la elaboración y discusión de las propuestas existentes sobre los mismos, y deben de producir insumos para el trabajo de las Comisiones que se creen y para el propio Consejo.
+f) Cualquier otra función que el Consejo Superior o el Ministro de Trabajo y Seguridad Social acuerden encomendarle.

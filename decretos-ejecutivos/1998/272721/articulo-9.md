@@ -1,0 +1,1 @@
+Artículo 9°—Los acuerdos del Consejo se tomarán por consenso, debiendo necesariamente incluir representantes de cada sector. En el caso de no llegarse al acuerdo del tema en discusión se conocerá en la sesión inmediata siguiente, en cuyo caso, si persiste el desacuerdo, el asunto será archivado. Los acuerdos aprobados serán de acatamiento obligatorio para las partes.
