@@ -1,0 +1,2 @@
+ARTICULO 68.- Nulidad del reajuste.
+En los arrendamientos para vivienda es nulo de pleno derecho todo convenio en el cual se establezcan reajustes a la renta superiores a los mencionados en el artículo anterior, sean fijos o porcentuales, periódicos o únicos, y no importa quien sea el obligado, el tipo de documento donde aparezca la obligación, la forma de la obligación y el lugar de pago, en tanto se pruebe la conexidad entre el precio del arrendamiento y la obligación que se contrae.

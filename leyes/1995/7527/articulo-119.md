@@ -1,0 +1,2 @@
+ARTICULO 119.- Daños y perjuicios.
+Cuando, con fundamento en un interés legítimo, se reclame alguna indemnización por daños y perjuicios, deberá resarcirse íntegramente la lesión patrimonial causada o la que necesariamente deba causarse, como consecuencia directa e inmediata de la infracción de la norma o de la violación del derecho subjetivo, con arreglo a los principios de la equidad y la sana crítica. En esta materia, serán de aplicación las reglas del Código Civil.

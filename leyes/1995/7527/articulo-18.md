@@ -1,0 +1,3 @@
+ARTICULO 18.- Fecha cierta.
+Las autoridades judiciales en materia civil del lugar donde se encuentra el inmueble arrendado, sin perjuicio de las otras formas autorizadas por ley, procederán a poner fecha cierta en todo contrato, nota o documento relacionado con los arrendamientos regidos por esta ley.
+La actuación judicial se realizará a solicitud verbal de cualquier persona, sin resolución ni trámite alguno y sin causar derechos ni pagar especies fiscales o timbres. Bastará que la autoridad judicial exprese una razón breve en el libro de entradas de juicios, o de la manera que señale la Corte Plena.

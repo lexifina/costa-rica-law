@@ -1,0 +1,3 @@
+ARTICULO 86.- Nulidad de matrimonio, divorcio o separación judicial.
+En los casos de nulidad de matrimonio, divorcio o separación judicial, a menos que haya otro acuerdo entre el arrendador y los cónyuges, el Juez que tramita el proceso determinará cuál de ellos continuará con todos los derechos y obligaciones del contrato de arrendamiento.
+En caso de subrogación, el interesado deberá notificar la decisión judicial recaída al arrendador, dentro de los treinta días siguientes a la firmeza de la sentencia, acompañando certificación de la resolución judicial. La falta de notificación facultará al arrendador para invocar la resolución del contrato.

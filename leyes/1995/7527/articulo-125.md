@@ -1,0 +1,4 @@
+ARTICULO 125.- Reconocimiento judicial e inventario.
+En todo proceso arrendaticio, hasta la entrega del bien al arrendador o al arrendatario, cualquiera de las partes puede solicitar la realización de un reconocimiento judicial e inventario de bienes, a efecto de comprobar su estado de conservación, las mejoras o reparaciones efectuadas, los daños y desperfectos existentes, o si el uso de la cosa cumple o no cumple con el destino convenido o con cualquier otra de las obligaciones del contrato o constituye un goce abusivo del bien.
+El Tribunal podrá ordenar esa diligencia como prueba anticipada, a solicitud del actor y sin previa notificación al demandado.
+El Tribunal podrá requerir el empleo de la Fuerza Pública para cumplir con la diligencia, con todas las facultades legales para su ejecución.

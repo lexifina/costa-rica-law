@@ -1,0 +1,1 @@
+TRANSITORIO V.- La Dirección General de Estadística y Censos deberá efectuar la primera publicación del índice oficial de precios al consumidor, dentro de los diez meses siguientes a la publicación de esta ley.

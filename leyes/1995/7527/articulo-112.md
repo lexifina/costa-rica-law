@@ -1,0 +1,3 @@
+ARTICULO 112.- Reglamento del régimen de promoción.
+Las disposiciones de los artículos 90 inciso b), 107, 108, 109, 110 y 111 de esta ley no entrarán en vigencia hasta tanto el Poder Ejecutivo no dicte el reglamento para la promoción de edificaciones destinadas a arrendamiento de viviendas de carácter social.
+El Poder Ejecutivo podrá decretar la aplicación temporal de este régimen de promoción, o bien, poner en vigencia estas normas sólo para un determinado sector de viviendas, disponer su aplicación para todo el territorio nacional o para determinada división territorial, u otorgar exoneraciones impositivas diferentes, pero generales para un sector, parciales o totales, según la conveniencia nacional.
