@@ -1,0 +1,2 @@
+8. Modificar el apartado "MANEJO" del anexo 1 de los acuerdos SUGEF 24-00 y SUGEF 27-00 citados, de manera que en ambos Acuerdos el elemento sea evaluado solo con los indicadores de (Activo Productivo de Intermediación / Pasivo con costo) y (Gastos de administración / Utilidad operacional bruta) y cada uno de ellos represente el 50% de la calificación del elemento, según el texto siguiente:
+(Consultar cuadro en Gaceta N° 15 de 22 de enero de 2003)

@@ -1,0 +1,1 @@
+9. Eliminar la fila correspondiente a morosidad ampliada, del anexo 2 de los acuerdos SUGEF 24-00 y SUGEF 27-00 citados. Asimismo, y dado que ya perdió vigencia el objetivo para el cual fueron creados, se eliminan los transitorios 1 y 3 del acuerdo SUGEF 24-00, así como el transitorio 1 del Acuerdo SUGEF 27-00.
