@@ -3,8 +3,8 @@ El Despacho contará con el personal profesional necesario, el cual se encargar�
 a) Planeamiento de la gestión institucional.
 b) Control de la gestión institucional.
 c) Revisión técnica de informes finales y resoluciones que se emitan en el ejercicio de la competencia institucional.
-d) Asesoría jurídica y elaboración e interposición de acciones y recursos jurisdiccionales y administrativos.
-e) Elaboración y revisión de los reglamentos y normas internas de la institución.
+d) Derogado. (Así derogado mediante acuerdo de Junta Directiva N° 280 de 8 de diciembre de 1997)
+e) Coordinar la elaboración y revisión de los reglamentos y demás normas internas de la institución. (Así reformado mediante acuerdo de Junta Directiva N° 280 de 8 de diciembre de 1997)
 f) Seguimiento de la Agenda Legislativa y preparación de dictámenes sobre proyectos de ley.
 g) Elaboración del Informe Anual y de los Informes Especiales cuando proceda.
 h) Coordinación de las relaciones interinstitucionales e internacionales y de los programas de cooperación internacional.

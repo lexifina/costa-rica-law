@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización de la Defensoría de los Habitantes de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-02-21 | la propia norma |
+| 2 | 1997-12-08 | Reglamento 280 (1997-12-08) |
