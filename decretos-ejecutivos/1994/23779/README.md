@@ -14,3 +14,4 @@ Declara Emergencia Nacional la situación de daños y destrozos materiales ocurr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-11-08 | la propia norma |
+| 2 | 1994-11-29 | Decreto Ejecutivo 23844 (1994-11-29) |
