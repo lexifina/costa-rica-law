@@ -1,0 +1,1 @@
+Artículo 3°-La cédula es un documento que contiene el nombre y apellidos del interesado, su fotografía, su edad, estado, nacionalidad, profesión u oficio, filiación y expresión del período durante el cual es válida. Llevará también la firma del portador, si sabe firmar, y la de la autoridad que la expida junto con el sello de la oficina y un timbre de cincuenta céntimos.
