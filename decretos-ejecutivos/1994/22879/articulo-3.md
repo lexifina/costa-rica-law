@@ -1,0 +1,1 @@
+Artículo 3°—En una franja de 100 m alrededor del Humedal se aplicarán las disposiciones que rigen para las zonas protectoras, de conformidad con lo que establece el artículo 68 de la Ley Forestal N° 7174.
