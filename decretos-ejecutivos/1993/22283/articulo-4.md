@@ -1,0 +1,2 @@
+Artículo cuarto--- Comité Sismológico Nacional.
+El Comité Sismológico Nacional es la instancia técnico científica cuyo propósito es instrumentar los procedimientos operativos del Sistema Nacional Sismológico Integrado. Estará formado por un miembro titular de cada una de las instituciones integrantes del SISNI y un suplente. El representante del Ministerio de Ciencia y Tecnología será el coordinador.
