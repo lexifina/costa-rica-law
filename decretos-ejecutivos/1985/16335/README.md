@@ -14,3 +14,4 @@ Reglamento de Clasificación General y Terminología de Sustancias Peligrosas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-07-03 | la propia norma |
+| 2 | 1992-06-22 | Decreto Ejecutivo 21406 (1992-06-22) |

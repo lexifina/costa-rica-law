@@ -1,4 +1,6 @@
+(Derogado)
 N° 16335-S
+(Este decreto ejecutivo fue derogado por el artículo 48 del Reglamento Registro Control Sustancias Tóxicas y Sustancias Peligrosas, aprobado mediante decreto ejecutivo N° 21406 del 22 de junio de 1992)
 EL VICEPRESIDENTE
 EN EJERCICIO DE LA PRESIDENCIA DE LA RE PUBLICA
 y EL MINISTRO DE SALUD,
