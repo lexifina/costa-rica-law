@@ -1,0 +1,1 @@
+Artículo 13.—La oficina encargada del cobro deberá rendir informes trimestrales al Alcalde Municipal con copia al Concejo, sobre el estado de las cuentas morosas y sobre las acciones individuales de cada gestión a esa fecha.

@@ -1,0 +1,1 @@
+Artículo 9º—No obstante lo anterior, la Dirección y el control, tanto de las acciones administrativas internas, como de las gestiones de cobro judicial estarán a cargo de la oficina municipal encargada del cobro.
