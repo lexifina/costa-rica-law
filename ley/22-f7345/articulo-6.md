@@ -1,0 +1,1 @@
+ARTÍCULO 6°.-La falta de los Jurados impedidos se suplir con específicos, y al efecto la Corte los deber sacar por suerte entre los Ciudadanos del Estado, para lo cual se le autoriza; hechando en el cántaro dos terceras partes más de los que se hubiesen menester, como para uno tres, para dos seis etc.

@@ -1,0 +1,1 @@
+ARTÍCULO 9.-No se garantizan bajo la libertad de la escritura, la injuria, la difamación y libelo cuando ofenden la conducta privada revelan graves defectos de los hombres en general, y de los funcionarios, corporaciones y autoridades, cuando tal conducta defectos privados no se relacionan ni influyen ni pueden influir suficientemente en su conducta oficial.

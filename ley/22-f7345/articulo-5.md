@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-El acusador podrá recusar los individuos del Jurado por enemistad capital ¢ grave, por ser pariente con el acusado, como se indicó en el art 1°, por la amistad muy estrecha acreditada con hechos evidentes con el acusado, lo que comprobado con juramento ante la Corte deben tenerse por recusados.

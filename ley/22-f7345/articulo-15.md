@@ -1,0 +1,3 @@
+ARTÍCULO 15.-Los individuos del Jurado ganar n un peso diario por el tiempo que funjan.-Al Consejo Representativo.-Dado en la ciudad de Heredia los nueve dias del mes de Agosto de mil ochocientos treinta y siete.-J.Julian Blanco, Presidente.-Felix Sancho, D. Secretario.-Rafael Ramirez, D. pro-Secretario.-Casa del Consejo. Heredia Agosot dieziocho de mil ochocientos treinta y siete.-Pase al Poder Ejecutivo.-Juan Mora, Presidente.-Jos‚ M. Echavarria, Secretario.- Por tanto: EJECUTESE. San Jos‚ Agosto diecinueve de mil ochocientos treinta y siete.-Manuel Aguilar.- Al Ministro General del Despacho".
+-----------------------------------
+(1) Reformado por el t¡tulo 6§ de la ley de 4 de Noviembre de 1845
