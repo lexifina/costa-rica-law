@@ -1,0 +1,2 @@
+ARTÍCULO UNDECIMO
+Los subsidios españoles no estarán sujetos en Costa Rica, ni los ciudadanos de esta República en España al servicio del ejército ó armada, ó al de la milicia nacional. Estarán igualmente exentos de toda carga ó contribución extraordinarias ó préstamo forzoso y en los impuestos ordinarios que satisfagan por razón de su iudustria, comercio ó propiedades, serán tratados como los súbditos ó ciudadanos de la Nación más favorecida.

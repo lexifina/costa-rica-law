@@ -1,0 +1,2 @@
+ARTÍCULO DECIMOCUARTO
+Su Majestad Católica y la República de Costa Rica podrán enviarse recíprocamente diplomáticos, y establecer Cónsules en los puntos que los permitan las leyes y acreditados y reconocidos que sean tales Agentes diplomáticos ó consulares por el Gobierno cerca del cual residan, ó en cuyo territorio desempeñen su encargo, disfrutarán de las franquicias, privilegios e inmunidades de que se hallen en posesión los de igual clase de la Nación más favorecida, y desempeñaran en los mismos términos todas las funciones propias del cargo.

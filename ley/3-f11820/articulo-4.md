@@ -1,0 +1,2 @@
+ARTÍCULO CUARTO
+Su Majestad Católica y la República de Costa Rica convienen en que los súbditos y ciudadanos respectivos de ambas Naciones conserven expeditos y libres sus derechos para reclamar y obtener justicia y plena satisfacción, por las deudas bona fide contraídas entre sí, como también que no se les ponga por parte de la Autoridad pública ningún obstáculo en los derechos que puedan alegar por razón de matrimonio, herencia por testamento ó abintestato, o cualquiera otro de los títulos de adquisición reconocidos por las leyes del país en que haya lugar á reclamación.

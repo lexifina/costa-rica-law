@@ -1,0 +1,2 @@
+ARTÍCULO DÉCIMO
+Los súbditos de su Majestad Católica en Costa Rica y los ciudadanos de la República de Costa Rica en España podrán ejercer libremente sus oficios y profesiones, poseer, comprar y vender por mayor y menor toda especie de bienes y propiedades muebles é inmuebles, estraer del país sus valores íntegramente, disponer de ellos en vida ó por muerte y suceder en los mismos por testamento ó ab intestato, todo con arreglo á las leyes del país y en los mismos términos y bajo de iguales condiciones y adeudos que usan ó usaren los de la Nación más favorecida.
