@@ -16,3 +16,4 @@ Reglamento de los riesgos de enfermerdad y maternidad
 | 1 | 1952-04-01 | la propia norma |
 | 2 | 1970-02-12 | Reglamento 4080 (1970-02-12) |
 | 3 | 1971-03-16 | Reglamento 4254 (1971-03-16) |
+| 4 | 1973-09-12 | Reglamento 4689 (1973-09-12) |
