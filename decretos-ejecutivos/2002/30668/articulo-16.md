@@ -1,0 +1,1 @@
+Artículo 16.—La Corporación establecerá las acciones penales que correspondan cuando el recaudador del canon lo retenga ilegítimamente y haya transcurrido el plazo otorgado para girar dichas sumas. Tales acciones serán independientes de las acciones judiciales en vía civil.

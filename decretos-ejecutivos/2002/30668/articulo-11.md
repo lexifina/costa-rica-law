@@ -1,0 +1,1 @@
+Artículo 11.—La Corporación Ganadera deberá comunicar a las plantas y mataderos, el monto de impuesto correspondiente según lo dispuesto en la ley y el tipo de cambio de compra del dólar, vigente para el pago respectivo, lo cual deberá informar por cualquier medio idóneo escrito, el lunes de cada semana y contra éste se cobrará, retendrá y depositarán los montos correspondientes.
