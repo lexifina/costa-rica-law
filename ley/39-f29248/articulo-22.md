@@ -1,0 +1,1 @@
+Artículo 22.—La Administración Pública será en todo caso responsable de la identidad y conservación de los efectos depositados en los Almacenes Generales de Depósito, en los mismos términos que prescriben las leyes para el depósito mercantil (artículo 93 y siguientes del Código de Comercio).

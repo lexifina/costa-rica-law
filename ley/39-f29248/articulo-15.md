@@ -1,0 +1,2 @@
+Artículo 15. — El portador del conocimiento de depósito, separado del warrant, podrá retirar los efectos depositados antes del vencimiento y pago del crédito garantizado por el warrant, consignando en la Dirección del Almacén General el importe del capital e intereses del crédito, calculados hasta el día del vencimiento.
+La cantidad depositada se entregará al portador del warrant contra entrega de éste.

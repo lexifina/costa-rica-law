@@ -1,0 +1,1 @@
+Artículo 13.—Los artículos o mercaderías depositados en los Almacenes Generales, después de transcrito el primer endoso de conocimiento de depósito o del warrant, no podrán secuestrarse, embargarse, ser dados en prenda ni obligados en cualquier otra forma, excepto en los casos de pérdida comprobada del conocimiento de depósito o warrant.
