@@ -2,12 +2,12 @@ Artículo 4º.- Obligaciones del Ministerio y la Caja:
 a) Aceptar a la Fundación como una entidad privada, no lucrativa,
 cuyo único propósito en la República de Costa Rica es ayudar al
 desarrollo y la expansión de los servicios de salud, y responder a la
-necesidad de aumentar el número de personal calificado que
-presta sus servicios en este campo.
-b) Cuando sea apropiado, gestionar ante quien corresponda los títulos
-o diplomas de profesores visitantes al cuerpo docente de la Fundación, así
-los profesionales de la Fundación puedan desenvolverse dentro de las
-instituciones a las cuales se les asigne.
+necesidad de aumentar el número de personal calificado que presta sus
+servicios en este campo.
+b) Cuando sea apropiado, gestionar ante quien corresponda los
+títulos o diplomas de profesores visitantes al cuerpo docente de la
+Fundación, así los profesionales de la Fundación puedan desenvolverse
+dentro de las instituciones a las cuales se les asigne.
 c) Las personas en adiestramiento estarán bajo la responsabilidad
 financiera de las organizaciones respectivas o instituciones
 costarricenses; el Ministerio y la Caja darán seguridad, dentro de sus
@@ -33,8 +33,8 @@ f) Gestionar ante el Ministerio de Hacienda, la concesión de
 licencias para que los bienes (e. g. vehículo, menaje de casa, efectos
 personales, etc.) de los funcionarios de la Fundación entren al país con
 permiso de importación temporal; en el entendido que dichos bienes no
-podrán ser vendidos, o pignorados sin que antes los propietarios no cubran
-todos los impuestos que la ley señale.
+podrán ser vendidos, o pignorados sin que antes los propietarios no
+cubran todos los impuestos que la ley señale.
 Asimismo gestionará ante el Ministerio de Hacienda que los
 vehículos suministrados, medicinas y otros equipos o materiales que la
 Fundación destine al programa, entren al país bajo el amparo de
