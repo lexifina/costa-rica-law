@@ -1,0 +1,2 @@
+Artículo 5°—Los propietarios de terrenos donde se identifiquen una o más de las especies vedadas y que no hallan recibido retribución por parte del Estado, podrán comercializarlas única y exclusivamente como especies en conservación en la Bolsa de Productos Agropecuarios. La Bolsa reglamentará el sistema a seguir para la negociación.
+La base de negociación será el precio oficial determinado y publicado por la Administración Forestal del Estado, el año inmediato anterior.

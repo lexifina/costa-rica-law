@@ -1,0 +1,1 @@
+Artículo 9°—La Administración Forestal del Estado, por medio de la Contraloría Ambiental, reforzará las labores de control y supervisión en los aprovechamientos forestales, en especial en aquellos donde halla sido realizada una negociación de árboles en pie, cuyo objetivo sea su conservación y protección para fines reproductivos y de distribución.

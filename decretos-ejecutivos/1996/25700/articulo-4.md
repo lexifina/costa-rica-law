@@ -1,0 +1,1 @@
+Artículo 4°—La veda será revisada en enero y julio de cada año y podrá, previa certificación, ser prorrogada o revocada por la Administración Forestal del Estado por medio de resolución, cuando se, determine la existencia de suficientes individuos por especie de tal manera que se pueda permitir su aprovechamiento sostenible.

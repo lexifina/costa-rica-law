@@ -1,0 +1,2 @@
+Artículo 8°-Las partes que negocien árboles en pie para conservarlos en favor de su reproducción y distribución, independientemente de los derechos que le otorga el presente reglamento, adquieren la obligación de velar por ellos.
+Durante los tres años siguientes a la negociación, la Bolsa de Productos Agropecuarios efectuará labores de supervisión en los inmuebles respectivos. La supervisión será financiada por las partes, de acuerdo a las condiciones que la Bolsa fije para este efecto en cada negociación.

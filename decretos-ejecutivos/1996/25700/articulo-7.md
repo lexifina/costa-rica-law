@@ -1,0 +1,1 @@
+Artículo 7°—Realizada la negociación de árboles en pie de las especies vedadas, la Bolsa de Productos Agropecuarios emitirá una certificación a la Administración Forestal del Estado, dando cuenta de la situación y sobre todo, de las condiciones de dicha negociación, para lo que competa.

@@ -1,0 +1,2 @@
+Artículo 2°—Los profesionales forestales que realicen planes de manejo e inventarios en terrenos de propiedad privada, quedan obligados a incluir en los mismos, los individuos de las especies contenidas en el artículo anterior que sean identificados en dichos predios. Deben incluirse todos los individuos sin importar su edad, porte o tamaño.
+La Administración Forestal de Estado llevará un registro con el fin de monitorear su población.

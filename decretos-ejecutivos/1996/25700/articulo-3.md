@@ -1,0 +1,1 @@
+Artículo 3°—Las personas físicas y jurídicas de terrenos donde se ubiquen individuos de las especies vedadas, sin que se encuentren realizando un plan de manejo o inventario, están en la obligación de reportar a la Administración Forestal del Estado, la población identificada.

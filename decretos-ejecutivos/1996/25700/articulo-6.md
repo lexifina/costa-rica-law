@@ -1,0 +1,2 @@
+Artículo 6°—Personas físicas o jurídicas de cualquier índole, interesadas en realizar inversiones en favor de la conservación de las especies contenidas en el artículo 1° de este decreto ejecutivo, podrán adquirirlos a través de la Bolsa de Productos Agropecuarios por intermedio de los puestos de Bolsa, cada vez que se oferten.
+Con la negociación adquieren el derecho de ubicar rótulos alusivos en las fincas donde los hallan adquirido. De igual manera podrán utilizar un logo autorizado por el MINAE, en sus mensajes de promoción.
