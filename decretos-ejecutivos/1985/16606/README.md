@@ -14,3 +14,4 @@ Declara Interés Nacional la "XXV Conferencia Mundial de la Federación Internac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-10-17 | la propia norma |
+| 2 | 1985-11-11 | Decreto Ejecutivo 16745 (1985-11-11) |
