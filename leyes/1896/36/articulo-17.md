@@ -1,0 +1,11 @@
+Artículo 17.- Antes de iniciarse los procedimientos de expropiación
+de que hablan los artículos 5º y siguientes y en cualquier tiempo durante
+la tramitación de las diligencias administrativas á que este capítulo se
+refiere, podrá el Poder Ejecutivo disponer que se practiquen los
+reconocimientos, medidas y demás estudios necesarios en el inmueble que
+se intente expropiar, y el dueño de éste está obligado á permitir que se
+practiquen, sin obstáculos, tales estudios en su propiedad, una vez que
+hayan pasado veinticuatro horas desde que la autoridad política local,
+por orden del Ministerio de Gobernación, le haya hecho el requerimiento
+consiguiente. Los daños que con tales trabajos se ocasionen serán
+debidamente indemnizados al propietario.

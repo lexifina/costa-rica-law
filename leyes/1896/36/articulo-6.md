@@ -1,0 +1,12 @@
+Artículo 6º.- Si se tratare de expropiaciones para servicios de
+carácter local, la autoridad ó corporación respectiva se dirigirá por
+nota al Ministerio, indicando la obra ó necesidad en cuestión, y la
+propiedad que á su juicio fuere indispensable ocupar. Copia de esa nota
+pasará el Ministerio al interesado y le concederá al mismo tiempo el
+término indicado en el artículo anterior para los efectos que en él se
+expresan.
+Las notas de que este artículo y el anterior hablan, contendrán la
+descripción del inmueble por su naturaleza, cabida, situación, linderos é
+inscripción. Si la expropiación hubiere de ser de parte de un inmueble,
+se describirán en igual forma, tanto la porción que deba ocuparse como la
+restante.
