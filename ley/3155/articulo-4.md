@@ -1,1 +1,1 @@
-Articulo 4°-Las labores de construcción que realice el Ministerio de Transportes, se harán preferentemente por el sistema de contratos por licitación, procurando contratar con el mayor número de personas o de empresas nacionales dedicadas a la construcción.
+Artículo 4º.- El Ministerio constituirá, de manera permanente, la autoridad oficial única en todo lo relativo a los objetivos nacionales, entendiéndose que su autoridad se extiende a las actividades de cualquier orden que tengan relación o sean consecuencia de ellas.

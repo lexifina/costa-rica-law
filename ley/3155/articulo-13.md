@@ -1,0 +1,1 @@
+Artículo 13.- Modifícase igualmente la Ley General de Aviación Civil Nº 762 de 18 de octubre de 1949 en el sentido de que, donde se diga Ministerio de Gobernación, se lea Ministerio de Obras Públicas y Transportes".

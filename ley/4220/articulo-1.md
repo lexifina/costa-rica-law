@@ -1,4 +1,6 @@
+(Derogado)
 N° 4220
+(Esta norma fue derogada por el artículo 2° de la ley N° 4786 del 5 de julio de 1971)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 ARTÍCULO 1°- Refórmanse los artículos 2° , inciso b) y 3° de la Ley de Creación del Ministerio de Transportes, N° 3155 de 5 de agosto de 1963, la cual en lo sucesivo se leerá así:

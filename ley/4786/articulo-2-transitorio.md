@@ -1,0 +1,1 @@
+Transitorio II.- Las labores de construcción y reparación de edificios escolares que esté ejecutando o que se haya comprometido a ejecutar la Dirección de Arquitectura Escolar y de Construcciones, antes de promulgarse esta ley, serán terminadas por el Ministerio de Obras Públicas y Transportes.
