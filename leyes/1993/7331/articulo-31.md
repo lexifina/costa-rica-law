@@ -1,7 +1,7 @@
 SECCION V
 Requisitos mínimos para la
 circulación de los vehículos
-ARTÍCULO 31.- Todo vehículo automotor, sus remolques y
+ARTÍCULO 31(*).- Todo vehículo automotor, sus remolques y
 semirremolques, de propiedad privada o de entidades públicas, deben
 cumplir, obligatoriamente, con los siguientes requisitos mínimos
 referentes a los dispositivos y a las medidas de seguridad:
@@ -130,9 +130,10 @@ pasajero indique la señal de parada.
 5.- Los vehículos de transporte público de personas de modalidad
 taxi deben portar y utilizar un taxímetro. La tarifa por
 cobrar será calculada y autorizada por la Comisión Técnica de
-Transportes, mediante estudios técnicos previos.*
-* Nota de SINALEVI : Según el Dictámen N° 037 de 25 de febrero del 2000, este numeral del inciso q se encientra
-derogado tácitamente por el artículo 57 de la Ley 7969 de 22 de diciembre de 1999.
+Transportes, mediante estudios técnicos previos.(*)
+(* Nota de SINALEVI : Según el Dictámen N° 037 de 25 de febrero del 2000, este numeral del inciso q se encuentra
+derogado tácitamente por el artículo 57 de la Ley 7969 de 22 de diciembre de 1999, en lo referente a la Comisión
+Técnica de Transportes, que ha sido sustitutida por el Consejo de Transporte Público) .
 6.- Los propietarios de los vehículos para transporte público de
 personas (autobuses, busetas y microbuses) deberán ubicar la
 salida del tubo de escape de esos vehículos según el
