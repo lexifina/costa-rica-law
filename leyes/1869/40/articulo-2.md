@@ -1,0 +1,2 @@
+Art 2° El Registro de la propiedad estará a carga de cuatro oficiales así: un oficial se encargará de los dos libros de Occidente, y los otros tres oficiales se encargarán de llevar cada uno de los libros correspondientes al partido de Oriente.
+1° Los oficiales no procederán a verificarse el registro sin previo examen y orden del Anotador General, y son responsables por cualquiera descuido, falta o defecto en el registro que se les encomiende.

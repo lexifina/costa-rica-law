@@ -1,0 +1,1 @@
+Art 5° En cualquiera de los dos casos determinados en los artículos anteriores y llenados los requisitos que quedan especificados, el Registrador deberá proceder a verificar el asiento y registro devolviendo al interesado el título en la forma legal, junto con la certificación del acta.
