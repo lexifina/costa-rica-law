@@ -1,0 +1,3 @@
+Artículo 111.- Anulado. (Sala Constitucional mediante resolución Nº 3491-94 del 12 de julio de 1994, anuló este artículo, cuyo texto disponía textualmente: “Modificase el inciso a) del artículo 46 de la ley Nº 1917 del 30 de junio de 1955, para que diga:
+"Artículo 46.-...
+a) Un impuesto del 8% del valor de los pasajes vendidos en Costa Rica, para cualquier clase de viajes internacionales, y de los vendidos en el exterior que se originen en Costa Rica.")

@@ -1,0 +1,3 @@
+Artículo 110.- Los servidores públicos que desempeñen cargos en propiedad en la Administración Pública, tendrán derecho a percibir, además de su salario, la pensión que les correspondiere en razón del fallecimiento de su cónyuge, mientras permanezcan viudos.
+La presente norma reforma, en lo conducente, tanto el artículo 15 de la Ley General de Pensiones, Nº 14 del 2 de diciembre de 1935, como el artículo 49 de la Ley de la Administración Financiera de la República, Nº 1279 del 2 de mayo de 1951, así como cualquiera otra disposición que se le oponga.
+(Anulado por resolución de la Sala Constitucional N° 2004-08012 de las 16:22 hrs. del 21/07/2004.)
