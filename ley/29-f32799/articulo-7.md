@@ -1,0 +1,1 @@
+Artículo 7- Las autorizaciones para poseer baldíos, expedidas conforme al artículo 18 de la ley N 137 de 2 de octubre de 1924, podrán hacerse efectivas, siempre que se hubieren llenado los requisitos por ella exigidos.
