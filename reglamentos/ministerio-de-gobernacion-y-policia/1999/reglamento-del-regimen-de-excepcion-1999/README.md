@@ -14,3 +14,4 @@ Reglamento del Régimen de Excepción 1999
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-09-14 | la propia norma |
+| 2 | 2000-05-03 | Reglamento 0 (2000-05-03) |
