@@ -1,0 +1,2 @@
+ARTICULO VI
+Para la vigilancia de la aplicación del presente Tratado así como para resolver dificultades eventuales podrá constituirse una Comisión Mixta de representantes de los Gobiernos de las Partes Contratantes. Esta Comisión estará además facultada para someter a los Gobiernos de las Partes Contratantes proposiciones para el fomento del intercambio de mercaderías y, especialmente, para tomar todas las medidas adecuadas que pudiesen resultar necesarias en el caso de que Una de las Partes Contratantes modificase esencialmente su régimen de comercio exterior.
