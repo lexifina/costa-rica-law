@@ -1,0 +1,1 @@
+Artículo 5°.-El IDA de conformidad con lo establecido en el artículo 12 de la ley N° 6900 de 25 de octubre de 1983, traspasará al Servicio de Parques Naciona.es los terrenos de su propiedad comprendidos dentro de esta demarcación.
