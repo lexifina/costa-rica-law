@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante Resolución Nº 06-04 de 2 de abril del 2004, publicada en La Gaceta Nº 79 de 23 de abril del 2004.
