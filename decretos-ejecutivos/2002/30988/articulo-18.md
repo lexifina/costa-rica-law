@@ -1,1 +1,0 @@
-Artículo 18.—En caso de expulsión, la misma será decretada por el Director del Sistema Nacional de Área s de Conservación, previo informe correspondiente del Director del Área de Conservación o del Administrador del Área Silvestre Protegida.

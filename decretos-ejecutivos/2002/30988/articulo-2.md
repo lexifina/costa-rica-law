@@ -1,1 +1,0 @@
-Artículo 2º—Existirá dentro de la Dirección del SINAC un Coordinador, responsable de la Ejecución del Programa y será el enlace con las Organizaciones o Instituciones dedicadas a esta actividad, quien vigilará el correcto cumplimiento y aplicación del presente reglamento.

@@ -1,1 +1,0 @@
-Artículo 4º—Sus integrantes serán personas de probada solvencia moral y de reconocida honradez, disciplina y compromiso con la causa conservacionista y ambientalista y con los principios de desarrollo sostenible. Prestarán sus servicios ad-honoren, motivados (as) por el único interés de coadyuvar en la protección y manejo de los recursos existentes en las áreas silvestres.

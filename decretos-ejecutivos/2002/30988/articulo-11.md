@@ -1,3 +1,0 @@
-CAPÍTULO III
-De las organizaciones
-Artículo 11.—Toda organización nacional o internacional que pretenda realizar acciones, actividades o proyectos relacionados con voluntariado en la Áreas Silvestres Protegidas bajo la administración del Estado, deberá ser previamente autorizada por el SINAC, y desarrollarán sus acciones bajo el principio de igualdad de condiciones. Por lo tanto, ninguna organización o institución podrá desarrollar sus acciones o utilizar los logos, nombres u otras identificaciones del MINAE o SINAC si no cuenta con convenido firmado con el MINAE y refrendado por la Contraloría General de la República.

@@ -1,1 +1,0 @@
-Artículo 14.—Asimismo deberán de responder por el daño, pérdida, o extravío que ocasionen a dichos bienes. En caso de reposición se contará de previo con un avalúo emitido por la oficina de Patrimonio del Ministerio.
