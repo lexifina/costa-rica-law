@@ -14,3 +14,4 @@ Modifica límite de Gasto Presupuestario y Efectivo del Instituto de Fomento y A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-01 | la propia norma |
+| 2 | 2002-01-01 | Decreto Ejecutivo 29990 (2001-11-08) |
