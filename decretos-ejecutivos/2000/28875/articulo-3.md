@@ -1,0 +1,1 @@
+Artículo 3º—Deróguese el apartado 4 del artículo 34 del Reglamento sobre la Organización Administrativa de las Oficinas Centrales del Ministerio de Educación Pública, D.E. Nº 22612-MEP del 13 de octubre de 1993, reformado por el D.E. Nº 23489-MEP del 11 de julio de 1994.
