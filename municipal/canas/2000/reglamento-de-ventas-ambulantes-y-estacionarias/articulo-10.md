@@ -1,0 +1,1 @@
+Artículo 10.—No podrán ubicarse puestos obstruyendo ventanas en las puertas o portones, de instituciones dedicadas a la salud; a la educación; en el cementerio; en esquinas en donde converjan las zonas de seguridad peatonal; frente a Monumentos Nacionales; en la línea de ascenso en la parada de Buses.

@@ -1,0 +1,1 @@
+Artículo 20.—La Municipalidad se reserva el derecho de reubicar los puestos cuando las condiciones de tránsito o peatonal así lo ameriten; la construcción de obras nuevas lo requieren y cualquier otra causa a juicio de la Municipalidad.

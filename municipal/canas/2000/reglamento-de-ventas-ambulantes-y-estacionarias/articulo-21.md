@@ -1,0 +1,1 @@
+Artículo 21.—El departamento de patentes municipales elaborará y enviará a los inspectores de rentas las listas actualizadas de las personas a las que se les ha otorgado la licencia de vendedor ambulante y estacionario para que fiscalicen si están a derecho.

@@ -1,0 +1,2 @@
+Artículo 24.—El costo de la licencia de vendedores ambulantes será el equivalente al salario diario de una servidora doméstica y los ajustes se aplicarán en forma automática que así lo establezca el Ministerio de Trabajo.
+La forma de pago de este impuesto será trimestralmente y el atraso en los pagos generará multas e intereses moratorios que se cancelarán con base al artículo 57 y 76 del Código de Normas y Procedimientos Tributarios.

@@ -1,0 +1,1 @@
+Artículo 17.—Queda terminantemente prohibido la cesión, alteración, donación, venta o cualquier forma de traspaso de los puestos estacionarios o sus licencias, al que se le comprobare tal negociación se le cancelará la licencia.

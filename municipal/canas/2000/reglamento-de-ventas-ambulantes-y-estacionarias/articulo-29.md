@@ -1,0 +1,1 @@
+Artículo 29.—Para efectos de garantizar una buena salud la Municipalidad mediante sus inspectores velará porque los productos se presenten limpios y en ningún caso podrán estar en contacto directo con el suelo.

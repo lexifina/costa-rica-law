@@ -1,0 +1,1 @@
+Artículo 8º—Las ventas ambulantes y estacionarias funcionarán en vías publicas. Quedan a salvo las prohibiciones establecidas por otras leyes y aquellos lugares que atenten contra la seguridad del peatón y tránsito de vehículos.
