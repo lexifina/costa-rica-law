@@ -13,3 +13,4 @@ Reglamento Venta Semovientes Estaciones Experimentales y DependenciasMAG
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-08-04 | la propia norma |
+| 2 | 2003-03-19 | Decreto Ejecutivo 31102 (2003-03-19) |

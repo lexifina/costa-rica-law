@@ -1,8 +1,2 @@
-ARTÖCULO 7§.-El m¡nimo de ofertas que se recibir n para la
-venta de
-semovientes (animales comerciales y desechos) ser de tres (3).
-En el
-caso de recibirse menos de tres ofertas el Comit‚ de Venta deber
-fundamentar su resoluci¢n a efecto de hacer la adjudicaci¢n,
-siempre que
-el monto de la venta no supere los ½ 450.000.00.
+Artículo 7º—El mínimo de ofertas que se recibirán para la venta de semovientes (animales comerciales y desechos) será de tres (3). En caso de recibirse menos de tres ofertas el Comité de Venta deberá fundamentar su resolución, a efecto de realizar la adjudicación, siempre que el monto de la venta no supere el límite fijado para la contratación directa.
+(Así reformado por artículo 1° del Decreto Ejecutivo N° 31102 de 19 de marzo de 2003).
