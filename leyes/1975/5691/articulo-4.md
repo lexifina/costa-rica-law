@@ -1,0 +1,9 @@
+Artículo 4º.- Las instituciones autónomas, semiautónomas y demás, a
+que se refiere el artículo 1º de esta ley, deberán someter el reglamento
+respectivo a la Contraloría General de la República, la que, si lo
+considera conveniente, lo aprobará y ordenará su publicación en el Diario
+Oficial, en caso contrario lo devolverá a la oficina de origen, con las
+observaciones del caso, la que a su vez gozará de un plazo improrrogable
+de treinta días para hacer las modificaciones y someterlo nuevamente a
+conocimiento de la Contraloría General de la República, so pena de
+incurrir en la penalidad que se establece en el artículo 5º de esta ley.
