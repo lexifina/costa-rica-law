@@ -1,0 +1,1 @@
+Artículo 19.—Los títulos Tasa Básica que se entreguen a los partidos políticos, tendrán un plazo máximo de dos años, y empiezan a generar intereses a partir del momento en que el Tribunal Supremo de Elecciones haga la declaratoria de elección de diputados. Los intereses y las amortizaciones de los títulos se pagarán por trimestres.

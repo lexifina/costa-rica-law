@@ -1,0 +1,1 @@
+Artículo 4°—Para efectos del reconocimiento de los gastos por concepto de propaganda que efectúen los partidos políticos en la prensa, radio y televisión, ésta deberá ajustarse a los límites de espacio y tiempo definidos en el inciso f) del artículo 85 del Código Electoral.
