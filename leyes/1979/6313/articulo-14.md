@@ -1,4 +1,2 @@
-Artículo 14.- Depositado el monto del avalúo fijado en vía
-administrativa por el ICE, que sirve de base a la expropiación, el Juez de
-oficio autorizará al expropiante a entrar en posesión del inmueble, sin
-perjuicio de continuar el trámite de las diligencias instauradas.
+Artículo 14.- Depositado el monto del avalúo fijado en vía administrativa por el ICE, que sirve de base a la expropiación, el Juez de oficio autorizará al expropiante a entrar en posesión del inmueble, sin perjuicio de continuar el trámite de las diligencias instauradas.
+(La Sala Constitucional mediante resolución N° 4266-93 de las 15:48 horas del 1º de agosto de 1993, declaró con lugar la acción de inconstitucionalidad tramitada en contra de este artículo, "en el sentido de que le da potestad a dicha Institución de poder entrar en posesión del inmueble expropiado, con el solo depósito del avalúo administrativo, sin que antes exprese el administrado su conformidad, expresamente o mediante el retiro del monto correspondiente.").
