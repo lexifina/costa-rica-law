@@ -1,0 +1,1 @@
+Artículo 13.—Se otorgara un reconocimiento especial a los tres mejores casos de investigación a nivel nacional, según las circunstancias establecidas en el articulo 10 inciso c), de estas disposiciones.

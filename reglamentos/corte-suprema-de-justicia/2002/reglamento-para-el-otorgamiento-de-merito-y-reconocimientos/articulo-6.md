@@ -1,0 +1,2 @@
+Artículo 6°—Las decisiones de la Comisión Evaluadora se tomarán por simple mayoría de los votos presentes. Cuando en una votación se produjere un empate, se votara nuevamente el asunto. Si el empate persistiere, se convocara a una nueva reunión para decidirlo y si éste aún persiste el voto del presidente decidirá la votación.
+Las decisiones de la Comisión Evaluadora quedarán en firme inmediatamente y no tendrán recurso alguno.

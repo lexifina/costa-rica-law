@@ -1,0 +1,1 @@
+Artículo 5°—La convocatoria a sesiones será dispuesta en forma directa por la presidencia de la Comisión Evaluadora, la cual recaerá en el Presidente de la Comisión de Enlace Corte Suprema de Justicia - Organismo de Investigación Judicial, quien dispondrá las sesiones a realizar, las fechas y el lugar en que se celebrarán.

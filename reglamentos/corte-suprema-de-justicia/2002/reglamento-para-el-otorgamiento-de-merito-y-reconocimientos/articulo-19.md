@@ -1,0 +1,1 @@
+Artículo 19.—Cuando una dependencia tenga menos de diez servidores, los mismos se consideraran, para efectos del otorgamiento de distinciones de mérito y reconocimientos a que aluden los artículos 7 y 8 de este reglamento, como parte del personal destacado en la dependencia superior inmediata.

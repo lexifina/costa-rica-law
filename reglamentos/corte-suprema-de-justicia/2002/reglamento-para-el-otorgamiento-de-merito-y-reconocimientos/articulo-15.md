@@ -1,0 +1,1 @@
+Artículo 15.—Dentro de los primeros quince días del mes de octubre de cada año. los Jefes de Oficina deberán presentar ante la Comisión Evaluadora una Tema con los nombres de los servidores que consideren merecedores a una distinción de mérito o reconocimiento, exponiendo de manera detallada las circunstancias que fundamentan cada propuesta.

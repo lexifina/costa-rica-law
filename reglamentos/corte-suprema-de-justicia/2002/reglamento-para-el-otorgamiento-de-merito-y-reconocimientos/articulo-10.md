@@ -1,0 +1,5 @@
+Artículo 10.—Los parámetros a considerar por parte de la Comisión Evaluadora para el otorgamiento de los reconocimientos señalados en el artículo anterior, serán los siguientes:
+a) Por eficiencia en el servicio se reconocerán aquellas dependencias que hayan obtenido los mayores porcentajes en la tramitación y resolución de casos, considerando los recursos humanos y materiales con que cuentan, sin dejar de lado los aspectos de calidad.
+b) Por el desarrollo de proyectos se reconocerán las dependencias que hubieren elaborado e implementado de manera eficiente proyectos de importancia para la institución.
+c) Por el esclarecimiento de hechos de relevancia se reconocerán las dependencias que a través de un esmerado y eficiente análisis, trabajo de inteligencia, investigación o estudio, hubieren apenado los elementos necesarios para esclarecer casos criminales de complejidad e importancia.
+d) Para reconocer cualquier otra actividad se considerara la realización de hechos, la prestación de servicios, la proyección a la comunidad, los aportes a la institución, el cumplimiento de planes y objetivos, así como toda acción de destacado mérito o importancia.

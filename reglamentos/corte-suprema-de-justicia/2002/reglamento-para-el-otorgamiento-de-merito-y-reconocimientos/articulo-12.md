@@ -1,0 +1,1 @@
+Artículo 12.—A las tres mejores dependencias a nivel nacional se les otorgará un reconocimiento especial, de primer lugar, segundo lugar y tercer lugar, considerando las circunstancias señaladas en los artículos 9 y 10 del presente reglamento.

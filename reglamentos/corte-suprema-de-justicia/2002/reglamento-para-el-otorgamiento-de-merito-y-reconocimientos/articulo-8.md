@@ -1,0 +1,5 @@
+Artículo 8°—Los parámetros a considerar por parte de la Comisión Evaluadora para el otorgamiento de las distinciones y reconocimientos señalados en el artículo anterior, serán los siguientes:
+a) Por años de servicio se distinguirá a aquellos servidores que hubieren laborado en la Institución veinte, treinta o más años en forma continua y eficiente.
+b) Por acciones meritorias se distinguirán aquellos servidores que, en el cumplimiento de sus deberes, hubieren puesto en peligro su propia vida en resguardo de la integridad física de sus compañeros.
+c) Por el fiel y notable desempeño en las funciones se distinguirá a los servidores de cada oficina que obtengan resultados satisfactorios en las diligencias que practiquen, dada la conducta, inteligencia y responsabilidad observada en sus actuaciones.
+d) Por los aportes profesionales, culturales o de otra índole, se distinguirá a quienes hubieren contribuido al prestigio de la Institución, realizando investigaciones o labores que signifiquen un mejoramiento para el Organismo de Investigación Judicial.

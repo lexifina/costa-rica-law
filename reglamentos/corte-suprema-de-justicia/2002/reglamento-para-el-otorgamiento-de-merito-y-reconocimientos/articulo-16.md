@@ -1,0 +1,1 @@
+Artículo 16.—Las proposiciones efectuadas por los Jefes de Oficina no serán vinculantes para la Comisión Evaluadora, la cual tendrá entera libertad para valorar la procedencia de otorgar las distinciones o reconocimientos a los servidores propuestos.

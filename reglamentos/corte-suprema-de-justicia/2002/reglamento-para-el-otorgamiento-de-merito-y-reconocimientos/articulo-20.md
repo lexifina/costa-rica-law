@@ -1,0 +1,1 @@
+Artículo 20.—Corresponderá a la Dirección General del Organismo de Investigación Judicial ordenar todos los años. con la debida antelación, la confección de las distinciones y reconocimientos señalados en el Artículo 2° de este reglamento, en base a la nómina aprobada por la Comisión Evaluadora.

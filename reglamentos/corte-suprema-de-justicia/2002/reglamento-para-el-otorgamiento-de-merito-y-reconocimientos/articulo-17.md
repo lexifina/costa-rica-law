@@ -1,0 +1,1 @@
+Artículo 17.—A más tardar el quince de noviembre de cada año, la Comisión Evaluadora tendrá la nómina de las personas y dependencias que resulten seleccionadas, estableciendo expresamente la distinción o reconocimiento que le será concedida a cada cual de acuerdo con sus méritos.

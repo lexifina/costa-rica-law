@@ -1,0 +1,1 @@
+Artículo 11.—A los tres servidores más destacados de la Institución a nivel nacional se les otorgará, por su orden. Estrella de oro, plata y bronce, considerando las circunstancias señaladas en los artículos 7 y 8 del presente reglamento. Estas Estrellas tendrán el carácter de máxima distinción.
