@@ -1,1 +1,0 @@
-Artículo 4°.- El reconocimiento de pago de zonaje se hará mediante acción de personal (P-21) por el Departamento de Personal del MIRENEM la cual requerirá para su validez la aprobación de la Dirección General del Servicio Civil.
