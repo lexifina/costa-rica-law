@@ -16,3 +16,4 @@ Reforma División Regional del Territorio de Costa Rica, para los efectos de inv
 | 1 | 1979-10-24 | la propia norma |
 | 2 | 1985-02-15 | Decreto Ejecutivo 16068 (1985-02-15) |
 | 3 | 1986-10-23 | Decreto Ejecutivo 17299 (1986-10-23) |
+| 4 | 1988-07-20 | Decreto Ejecutivo 18423 (1988-07-20) |
