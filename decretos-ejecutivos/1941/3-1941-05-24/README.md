@@ -13,3 +13,4 @@ Reglamento para la Policía Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1941-05-24 | la propia norma |
+| 2 | 1944-05-19 | Decreto Ejecutivo 2 (1944-05-19) |
