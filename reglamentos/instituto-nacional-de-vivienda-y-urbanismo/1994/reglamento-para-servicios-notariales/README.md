@@ -14,3 +14,4 @@ Reglamento para Servicios Notariales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-01-30 | la propia norma |
+| 2 | 2000-01-26 | Reglamento 4954 (2000-01-26) |

@@ -1,9 +1,10 @@
 CAPITULO III
 De la distribución y control de servicios notariales
-Artículo 13.—Con el propósito de que exista una distribución equitativa y funcional en la asignación de escrituras públicas, se encarga a la Comisión integrada para estos efectos y con el apoyo administrativo de la Unidad de Control de Escrituras, el control y la distribución de las mismas. Este Departamento estará coordinado, para efectos de distribución de escrituras a formalizar, y del seguimiento de los asuntos que debe atender, por una Comisión de Notariado integrada por cinco servidores de la Institución, a saber:
-1 Representante del Presidente Ejecutivo
-1 Representante de la Gerencia
-1 Representante de los Señores Notarios Internos
-1 Representante del Área de Crédito y
-El Jefe de la Unidad de Control de Escrituras;
-Dentro de los cuales, necesariamente, debe haber un Abogado quien presidirá la Comisión; representantes que serán de nombramiento del Presidente Ejecutivo.
+Artículo 13.—Con el propósito de que exista una distribución equitativa y funcional en la asignación de escrituras, se encarga a la Comisión integrada para los efectos y con el apoyo administrativo de las áreas respectivas, el control y la distribución de las mismas. La comisión denominada de notariado estará integrada por los siguientes servidores:
+1 Representante de la Presidencia Ejecutiva.
+1 Representante de la Gerencia General.
+1 Representante del área de Ahorro y Préstamo.
+1 Representante del área de Vivienda de Interés Social.
+1 Representante de los señores notarios internos en el tanto se disponga de dicho sistema en el Instituto.
+Dentro de los cuales, necesariamente deberá haber un abogado que presidirá la Comisión, la integración de la misma estará a cargo de la Presidencia Ejecutiva.
+(Así reformado mediante la sesión N° 4954, celebrada el 26 de enero del 2000)
