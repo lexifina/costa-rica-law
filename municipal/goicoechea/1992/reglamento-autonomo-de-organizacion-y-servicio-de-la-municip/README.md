@@ -15,3 +15,4 @@ Reglamento Autónomo de Organización y Servicio de la Municipalidad de Goicoech
 | --- | --- | --- |
 | 1 | 1993-02-05 | la propia norma |
 | 2 | 1993-07-21 | Reglamento municipal 57 (1993-07-21) |
+| 3 | 1994-10-03 | Reglamento municipal 85 (1994-10-03) |
