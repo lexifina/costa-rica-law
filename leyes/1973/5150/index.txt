@@ -316,3 +316,4 @@ articulo-314.md
 articulo-315.md
 articulo-316.md
 articulo-317.md
+articulo-1-transitorio.md
