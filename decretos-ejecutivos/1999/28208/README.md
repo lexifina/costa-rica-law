@@ -14,3 +14,4 @@ Reglamento Regulador de la Gestión de los Fiscales Específicos para el Cobro J
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-16 | la propia norma |
+| 2 | 2000-09-27 | Decreto Ejecutivo 29045 (2000-09-27) |
