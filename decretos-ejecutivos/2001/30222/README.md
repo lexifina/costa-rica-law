@@ -14,3 +14,4 @@ Reglamento sobre Emisión de Contaminantes Atmosféricos Provenientes de Caldera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-26 | la propia norma |
+| 2 | 2003-03-12 | Decreto Ejecutivo 31515 (2003-03-12) |

@@ -42,3 +42,18 @@ Nuevas 300 300 -
 (*) De acuerdo al Decreto Ejecutivo No. 26789-MTSS, Reglamento de Calderas, La Gaceta Nº 65 del 2 de abril de 1998.
 C.2) Utilización de combustibles fósiles sólidos en calderas.
 Carbón mineral y otros: 860 mg/Nm3 para todos los tamaños de calderas.
+Para efectos de comparación con los valores máximos de emisión establecidos, los resultados de las emisiones muestreadas y analizadas deberán reportarse en base seca y estar referidos a un cinco por ciento (5 %) de oxígeno, utilizando las siguientes fórmulas:
+Fórmula para transformar las emisiones de base húmeda a base seca.
+(NOTA: Ver Fórmula en página 6 de La Gaceta No- 239 de 11 de diciembre de 2003).
+Donde:
+EBS = Emisión en base seca.
+EBH = Emisión en base húmeda.
+% H2O = Contenido de humedad de los gases.
+Fórmula para corregir las emisiones de los gases en base seca al porcentaje de oxígeno de referencia.
+(NOTA: Ver Fórmula en página 6 de La Gaceta No- 239 de 11 de diciembre de 2003).
+Donde:
+Er = Emisión calculada al valor de referencia.
+Em = Emisión medida en base seca.
+Or = Nivel de referencia para el O2, (5 %).
+Om = Valor medido para el O2."
+(Así AMPLIADO, por Decreto Ejecutivo N° 31515 de 12 de marzo de 2003, publicado en La Gaceta No. 239 de 11 de diciembre de 2003).
