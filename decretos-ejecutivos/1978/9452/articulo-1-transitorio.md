@@ -1,0 +1,3 @@
+TRANSITORIOS
+1°-Lo establecido por el presente Reglamento no afectará el derecho de los servidores que al amparo del Reglamento para el pago de Sobresueldo de Zona, Decreto Ejecutivo N° 16 del 23 de diciembre de 1943 y sus reformas estuvieren disfrutando de un sobresueldo mayor al que se establece mediante la actual reglamentación.
+Este derecho lo mantendrá mientras sigan laborando en la misma Institución educativa en que lo hubieren consolidado, si se tratare de docentes propiamente dichos o directores de instituciones educativas o, en el mismo puesto y con la misma jurisdicción territorial, si se tratare de otros servidores Administrativo Docentes.

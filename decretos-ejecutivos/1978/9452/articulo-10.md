@@ -1,0 +1,1 @@
+Artículo 10.-Cuando el servidor sea objeto de movimiento de personal en cualquiera de sus formas, el pago de sobresueldo de zonaje, quedará sujeto a las nuevas circunstancias en que habrá de prestar servicios, sin que en ninguna forma pueda alegar perjuicio económico.

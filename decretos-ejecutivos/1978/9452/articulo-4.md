@@ -1,0 +1,1 @@
+Artículo 4°-Los servidores docentes, técnico-docentes, administrativo-docentes y propiamente administrativos, tendrán derecho, de conformidad con el artículo 1°, al pago de zonaje con la sola prestación del servicio en los centros de enseñanza, o en las zonas o instituciones calificadas al efecto.

@@ -1,0 +1,1 @@
+Artículo 12.-El presente Reglamento rige a partir del primero de marzo de mil novecientos setenta y nueve y deroga el Decreto Ejecutivo N° 2095 los treinta días del mes de diciembre de mil novecientos setenta y uno. sus reformas así como toda otra disposición que se le oponga o contrarie en sus términos.

@@ -1,0 +1,2 @@
+Artículo 3°-EI porcentaje que se le asigne a cada Centro Educativo, se calculará tomando en consideración, entre otros factores, la insalubridad, vías de comunicación, transporte, alimentación, etc. de manera que el ciento por ciento corresponda a la suma de ¢ 800.00 (ochocientos colones), suma máxima que se podrá percibir por este concepto.
+Sin embargo, en ningún caso, el zonaje podrá ser inferior a ¢ 80.00 (ochenta colones).

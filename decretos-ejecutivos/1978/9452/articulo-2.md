@@ -1,0 +1,1 @@
+Artículo 2°-La calificación de zonas a que se refiere el artículo anterior, deberá aparecer incluida en la publicación bienal que, sobre zonajes, hará el Ministerio de Educación Pública. Junto a cada institución educativa se fijará el porcentaje que, por concepto de zona, deberán percibir los servidores.

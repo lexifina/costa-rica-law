@@ -1,0 +1,1 @@
+Artículo 7°- .No obstante lo establecido en el artículo anterior, a los educadores cuyo salario se calcula de acuerdo al número de lecciones que imparten, el sobresueldo podrá reconocérseles proporcionalmente en las distintas instituciones que laboren, de acuerdo con lo que se dispone en el artículo 5°.

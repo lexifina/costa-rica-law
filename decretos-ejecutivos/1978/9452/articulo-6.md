@@ -1,0 +1,1 @@
+Artículo 6°-Cuando un servidor docente preste sus servicios en dos o más instituciones calificadas para el pago de zonaje, éste sólo le será reconocido en aquélla cuyo monto sea mayor, si se tratare de instituciones con porcentajes distintos, o en cualquiera de ellas, si fuere el mismo.
