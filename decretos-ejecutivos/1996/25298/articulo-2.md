@@ -1,0 +1,1 @@
+Artículo 2°-El Ministerio del Ambiente y Energía establecerá un Registro al que podrán inscribirse las personas físicas o jurídicas que deseen ser acreditadas como auditores para realizar labores de inspección y evaluación de los productos, procesos y servicios que se detallan en el artículo 3 de este Reglamento.

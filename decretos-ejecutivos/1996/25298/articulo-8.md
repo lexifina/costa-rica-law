@@ -1,0 +1,1 @@
+Artículo 8°-Los auditores deberán mantener actualizados los datos proporcionados según el artículo 4, debiendo comunicar al Ministerio cualquier modificación en un plazo no mayor de quince días hábiles de haberse dado el hecho.
