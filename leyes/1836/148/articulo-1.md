@@ -1,0 +1,6 @@
+AÑO DE 1836
+DECRETO CXLVIII
+Declara en paz a los pueblos rebelados, y restablece el orden Constitucional
+“ El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto el Consejo Representativo ha decretado lo siguiente:
+El Consejo Representativo del Estado libre de Costa Rica, considerando: que con motivo de la revolución experimentado en el Estado en parte del mes de Setiembre y todo Octubre último, el Gobierno arreglándose al art.35 de la ley Nacional de 17 de noviembre de 832, lo ha regido militarmente: con presencia de que ya la revolución, como la exitación a ella, según informe del Poder Ejecutivo ha cesado, y de que en tal caso no estando reunida la Asamblea, al Consejo corresponde restituirlo al goze de sus derechos y garantías, ha tenido a bien decretar y decreta.
+Art único: Se declaran en paz a los pueblos rebelados contra las Autoridades Supremas, y en consecuencia inmediatamente se restablecerá en ellos el orden Constitucional, y todos sus habitantes en el acto volverán al pleno goze de los derechos y garantías declaradas en la Constitución y las leyes.- Pase al Poder Ejecutivo para su cumplimiento, publicación y circulación.- Dado en la ciudad de Heredia a los ocho días del mes de Enero de mil ochocientos treinta y seis.
