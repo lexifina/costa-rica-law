@@ -1,0 +1,2 @@
+Artículo 17.
+Ningún banco privado podrá iniciar operaciones mientras no tenga su capital totalmente suscrito y pagado en efectivo en colones, que como comprobación deberá ser depositado en el Banco Central de Costa Rica, para ser retirado después conforme la Institución de que se trate efectúe sus colocaciones e inversiones; o haga los pagos correspondientes a los gastos de organización e instalación.
