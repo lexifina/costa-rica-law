@@ -1,0 +1,1 @@
+Articulo 9°-Se autoriza a las instituciones y empresas del Estado así como a las municipalidades para que suministren y provean al Ministerio de Obras Públicas y Transportes del equipo e insumos necesarios para cumplir con el objetivo de interés público y nacional; de arreglar y preparar la red de caminos vecinales del país.
