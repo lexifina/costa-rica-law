@@ -1,5 +1,10 @@
 CAPITULO II
 De las exenciones
-Artículo 4°-Sin embargo, cuando los porcentajes que quedan indicados, produzcan en conjunto una suma anual mayor de un millón de colones, el excedente sobre esa suma pasará a formar parte de las rentas nacionales y la Caja Costarricense de Seguro Social sólo tendrá derecho a reclamar el millón de colones indicado. La liquidación se hará anualmente.
-En cumplimiento de esta disposición el Presupuesto General de la Nacional incluirá a partir de 1953, una subvención fija para la Caja Costarricense del Seguro Social, Departamento de la Habitación, de un millón de colones (¢1.000,000.00).
-(Así reformado por el artículo 2° de la ley N° 1444 del 29 de mayo de 1952)
+Artículo 4°-N o pagarán el impuesto:
+a) El Fisco, las Municipalidades de la República, los Bancos del Estado, la Caja Costarricense de Seguro Social, las Juntas de Educación y las Temporalidades de la Iglesia Católica; ni las demás instituciones que por ley especial gocen de este privilegio;
+b) Las sociedades e instituciones que tengan por fin la beneficencia pública o la difusión de la cultura, en forma gratuita, siempre que el Poder Ejecutivo a través del Ministerio de Economía y Hacienda, las reconozca como tales para los efectos de esta exención;
+c) Los Representantes Diplomáticos y Consulares de naciones extranjeras, respecto de sus rentas oficiales u otras procedentes del país que los acredita, todo a condición de reciprocidad;
+d) Las rentas de bonos que gocen de esta exención, por disposición especial de la ley que autoriza su emisión;
+e) Las Cámaras de comercio, agricultura, industrias, cafetaleros y ganaderos y demás asociaciones de carácter gremial, así como los sindicatos legalmente registrados, siempre que unas y otros no realicen actividades de carácter lucrativo; y
+f) Los colegios y asociaciones de profesionales, así como las asociaciones organizadas o que se organicen con finalidades exclusivamente benéficas o culturales.
+(Así reformado por el artículo 1° de la ley N° 1789 del 18 de setiembre de 1954)
