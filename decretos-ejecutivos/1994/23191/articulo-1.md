@@ -1,6 +1,9 @@
 (Suspendida)
 N° 23191-S
-(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 23833 del 18 de noviembre de 1994, se acordó prorrogar por dos meses más la suspensión de la vigencia de este decreto ejecutivo)
+(Esta decreto fue derogado por el artículo 64 del “Reglamento para Inscripción de
+Propaganda de Medicamentos y Cosméticos“ aprobado mediante
+decreto ejecutivo N° 24008 del 22 de diciembre de 1994)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N°23833 del 18 de noviembre de 1994, se prorroga por dos meses más la suspensión de la vigencia del Decreto Ejecutivo Nº 23191-S del 26 de abril de 1994 "Reglamento sobre Inscripción y Propaganda de Medicamentos, Cosméticos y Productos Sanitarios"
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE SALUD
 En uso de las facultades que confiere el artículo 140 de la Constitución Política y artículos 1° y 2° de la Ley General de Salud.

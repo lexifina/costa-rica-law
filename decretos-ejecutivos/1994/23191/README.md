@@ -16,3 +16,4 @@ Reglamento Inscripción y Propaganda Medicamentos Cosméticos y Productos Sanita
 | 1 | 1994-05-06 | la propia norma |
 | 2 | 1994-07-12 | Decreto Ejecutivo 23527 (1994-07-12) |
 | 3 | 1994-11-18 | Decreto Ejecutivo 23833 (1994-11-18) |
+| 4 | 1994-12-22 | Decreto Ejecutivo 24008 (1994-12-22) |
