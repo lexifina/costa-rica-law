@@ -14,3 +14,4 @@ Retira de conocimiento de la Asamblea Legislativa Proyectos de Ley
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-27 | la propia norma |
+| 2 | 2001-08-27 | Ley 8 |
