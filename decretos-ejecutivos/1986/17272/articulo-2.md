@@ -1,0 +1,1 @@
+Artículo 2°- Se prohíbe el empleo de redes de arrastre en aguas territoriales del mar Atlántico, durante el período comprendido entre el primer día del mes de octubre y el último día del mes de enero de cada año.
