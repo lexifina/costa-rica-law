@@ -1,0 +1,1 @@
+Artículo 2°-La Dirección General de Adaptación Social se compromete a mantener la seguridad para cumplir con la ejecución de la pena y aportar el personal técnico y de seguridad necesarios para esa finalidad.
