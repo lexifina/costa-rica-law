@@ -1,1 +1,0 @@
-Artículo 5°-Para realizar las inscripciones de las especialidades enumeradas en el artículo 3° se requiere un tiempo de entrenamiento de cinco años para la primera y de dos años para las demás, siempre que se hayan practicado tres años de Medicina Interna.

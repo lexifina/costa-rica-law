@@ -1,2 +1,0 @@
-Artículo 8°-Se requerirán tres años de entrenamiento para la inscripción de las siguientes especialidades u otras que a juicio del Colegio deban contemplarse en el futuro:
-1° Anestesiología. 2° Ginecología. 3° Otorrinolaringología. 4° Oftalmología. 5° Ortopedia. 6°. Neuropsiquiatría. 7°. Dermatología. 8° Radiología. Roentgel Radioiumterapia. 9° Urología. 10 Anatomía Patológica. 11 Obstetricia. 12 Neurocirugía. 13 Venereología. 14. Medicina Legal. 15. Medicina del Trabajo. 16. Higiene Pública. 17 Hematología.

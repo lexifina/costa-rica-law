@@ -1,1 +1,0 @@
-Artículo 17. –La Junta General y la Junta de Gobierno del Colegio, tomarán en cuenta el Registro de Especialidades cada vez que se trate de nombrar representantes del Colegio a Congresos o Conferencias de especialidades médica, de nombrar comisiones para estudios especializados de Medicina y Cirugía en que sea aconsejable la participación de médicos especialistas.
