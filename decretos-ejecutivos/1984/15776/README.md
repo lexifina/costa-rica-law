@@ -13,3 +13,4 @@ Reforma Reglamento Privado de Correduría de Bienes Raíces
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-11-07 | la propia norma |
+| 2 | 1993-09-14 | SINALEVI (sin norma nombrada) |

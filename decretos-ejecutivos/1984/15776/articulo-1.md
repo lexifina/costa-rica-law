@@ -1,6 +1,8 @@
+(Anulada)
 N§ 15776-MEC
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE ECONOMIA Y COMERCIO,
+(Anulado mediante Resolución de la Sala Constitucional N° 4577, de las 15:30 horas del 14/09/1993.)
 Considerando:
 1§.-Que el art¡culo 12 del Decreto Ejecutivo N§ 5597-MEIC de
 17 de
