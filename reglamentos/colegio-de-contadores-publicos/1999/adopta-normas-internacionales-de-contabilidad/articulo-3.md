@@ -1,0 +1,1 @@
+Tercero. Dejar en estudio, la parte del Compendio de las Normas Internacionales de Contabilidad denominado "Marco Conceptual", el cual deberá estar aprobado por el Colegio a más tardar el 31 de marzo del 2000.

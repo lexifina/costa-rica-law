@@ -1,0 +1,1 @@
+Segundo. Dejar en estudio las Normas Internacionales de Contabilidad Números 12 "Impuesto a la Renta", y 39, "Instrumentos Financieros: Reconocimiento y Medición", por lo que cualquier referencia de estas dos normas en las aprobadas, no se considera de aplicación en Costa Rica, hasta tanto las mismas no sean aprobadas por el Colegio.

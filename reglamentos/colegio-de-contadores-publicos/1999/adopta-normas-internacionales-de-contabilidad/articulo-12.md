@@ -1,0 +1,1 @@
+Décimo segundo. El Colegio de Contadores Públicos realizará una amplia divulgación de las normas adoptadas mediante la presente resolución, por medio de seminarios, charlas, publicaciones, reuniones con personeros de las universidades públicas y privadas que impartan la carrera de la Contaduría Pública y de los entes públicos y privados interesados.

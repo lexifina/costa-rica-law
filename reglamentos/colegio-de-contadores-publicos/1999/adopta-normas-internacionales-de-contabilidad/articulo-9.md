@@ -1,0 +1,1 @@
+Noveno. El Colegio de Contadores Públicos, como parte de sus obligaciones, continuará dictando normas o resoluciones sobre esta materia, orientado por el principio indicado en el considerando primero de la presente resolución.
