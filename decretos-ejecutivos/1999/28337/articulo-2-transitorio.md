@@ -1,0 +1,1 @@
+Transitorio II.—Conforme lo dispone el numeral 22 del presente Decreto, las busetas y microbuses que operan en las distintas rutas del Área Metropolitana de San José, debidamente inscritas y registradas, seguirán prestando servicio en la etapa de transición, en tanto son sustituidas por autobuses urbanos de características ya definidas.

@@ -1,0 +1,1 @@
+Transitorio III.—La Ruta N° 127, descrita como San José- Ciudad Colón - San José, seguirá operando bajo las mismas condiciones en que lo viene haciendo hasta que la Sala Constitucional resuelva en definitiva la Acción de Inconstitucionalidad que se tramita bajo el expediente N° 99-002709-007-CO.
