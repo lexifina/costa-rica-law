@@ -1,0 +1,1 @@
+ARTÍCULO 24.-El timbre cuya cancelación contenga enmienda o raspadura de cualquier género, se reputar como no existente y, en consecuencia, el documento o libro serán considerados como faltos de timbre.

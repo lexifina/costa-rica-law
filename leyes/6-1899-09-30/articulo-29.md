@@ -1,0 +1,1 @@
+ARTÍCULO 29.-Los que hubieren intervenido en un negocio como contratantes y los que por cualquier acto posterior hayan sido dueños alguna vez del documento, son fiadores mancomunados entre sí del cartulario o tenedor por la responsabilidad proveniente de la falta de timbre.
