@@ -1,0 +1,5 @@
+Artículo 2
+1. La autoridad competente de cada país marítimo deberá adoptar las medidas necesarias para que los accidentes del trabajo se notifiquen y estudien en forma apropiada, así como para asegurar la compilación y análisis de estadísticas detalladas de tales accidentes.
+2. Todos los accidentes del trabajo deberán notificarse, y las estadísticas no deberán limitarse a los accidentes mortales o a los accidentes que afectan al propio buque.
+3. Las estadísticas habrán de registrar el número, naturaleza, causas y efectos de los accidentes del trabajo, indicándose claramente en qué parte del buque -por ejemplo: puente, máquinas o locales de servicios generales- y en qué lugar -por ejemplo, en el mar o en el puerto- ocurre el accidente.
+4. La autoridad competente habrá de proceder a una investigación de las causas y circunstancias de los accidentes del trabajo mortales o que hubieren producido lesiones graves a la gente de mar, así como de otros accidentes que determine la legislación nacional.

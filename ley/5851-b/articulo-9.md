@@ -1,0 +1,3 @@
+Artículo 9
+1. La autoridad competente habrá de fomentar y, en la medida en que sea apropiado en virtud de las condiciones nacionales, garantizar la inclusión de instrucción en materia de prevención de accidentes y protección de la salud en el trabajo en los programas de las instituciones de formación profesional para todas las categorías y clases de gente de mar; esta instrucción deberá formar parte de la enseñanza profesional.
+2. Asimismo deberán adoptarse todas las medidas apropiadas y viables para informar a la gente de mar acerca de riesgos particulares, por ejemplo, mediante avisos oficiales que contengan las correspondientes instrucciones.
