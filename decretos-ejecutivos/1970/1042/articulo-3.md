@@ -1,0 +1,2 @@
+Artículo 3°- Auméntanse las subpartidas de sueldos para cargos fijos de los diferentes programas de los Ministerios con el propósito de reconocer los aumentos anuales, correspondientes al año 1970, a los servidores públicos amparados al Régimen de Servicio Civil.
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 40 a La Gaceta N° 133 del 17 de junio de 1970.)

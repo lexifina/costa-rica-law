@@ -1,0 +1,2 @@
+Artículo 5°- Sólo los aumentos anuales para 1970 se reconocerán con base en la categoría de los puestos incluyendo la revaloración total. Estos aumentos se harán efectivos desde la fecha en que los servidores cumplan años de servicio, con efecto retroactivo hasta el 1° de enero del año en curso.
+Los aumentos anuales acumulados al 31 de diciembre de 1969 se continuará reconociéndolos con base en la categoría de los puestos anterior a la renovación general citada.
