@@ -1,0 +1,1 @@
+Artículo 7º—El cuenta ahorrante. Podrán ser cuenta ahorrantes de Cuenta de Ahorros Escolar niños escolares con edades entre los 6 a 12 años, que se encuentren matriculados en una institución de educación pública o privada, quienes actuarán por medio de un adulto representante.

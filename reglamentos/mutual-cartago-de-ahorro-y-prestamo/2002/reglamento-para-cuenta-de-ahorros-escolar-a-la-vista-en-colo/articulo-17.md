@@ -1,0 +1,5 @@
+Artículo 17.—Comunicación de la tasa de interés. MUCAP comunicará a todos los cuenta ahorrantes la tasa de interés vigente y las sucesivas variaciones para cada uno de los contratos de ahorro a través de pizarras informativas en un lugar visible en todas las Agencias de MUCAP. Artículo 18.—Servicios complementarios. La Cuenta de Ahorro Escolar MUCAP permite al ahorrante, utilizar los siguientes servicios complementarios: a. Transferencia de fondos de la Cuenta de Ahorro Escolar MUCAP a otra cuenta de ahorros o Cuenta Empresarial, o a cuentas de otras entidades financieras cancelando la tarifa respectiva.
+b. Deducción de servicios públicos de luz, agua, teléfono, tasas o servicios con las empresas e instituciones que mantengan este sistema de cobro por medio de MUCAP.
+c. Débitos y Créditos Directos a través del SINPE.
+d. Depósitos de intereses de títulos valor emitidos por MUCAP.
+Para la utilización de estos servicios, el representante legal del cuenta ahorrante deberá llenar una solicitud y cumplir con las condiciones de operación y saldo mínimo en su cuenta que se indiquen.
