@@ -1,0 +1,1 @@
+Artículo 2° De esta cantidad se dedicarán veinte mil pesos como auxilio para la construcción de los edificios escolares de la ciudad de Liberia, capital de la provincia, y el resto de diez mil pesos con igual para los cantones menores de la misma.
