@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones del Sector Público podrán contribuir con recursos económicos a la realización del Encuentro, así como apoyar la participación de sus funcionarias y funcionarios, todo en la medida de sus posibilidades y dentro de los límites legales correspondientes.
