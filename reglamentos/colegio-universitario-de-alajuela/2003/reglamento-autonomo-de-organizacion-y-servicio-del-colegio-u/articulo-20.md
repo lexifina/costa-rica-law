@@ -1,0 +1,1 @@
+Artículo 20.—La Unidad de Recursos Humanos mantendrá un registro de elegibles inscritos para las diferentes clases de puestos, integrado por quienes resulten elegibles en los concursos que promueva el CUNA al efecto.

@@ -1,0 +1,1 @@
+Artículo 28.—Las plazas vacantes deberán ser llenadas atendiendo lo señalado en este reglamento. Podrán ser ocupadas en forma interina por la persona designada para ello, mientras se realiza el concurso correspondiente. En estos casos el Decano podrá nombrar hasta por un periodo de seis meses.

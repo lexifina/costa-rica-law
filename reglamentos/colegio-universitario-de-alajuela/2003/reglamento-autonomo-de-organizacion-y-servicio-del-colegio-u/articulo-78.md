@@ -1,0 +1,1 @@
+Artículo 78.—En el caso de los servidores nombrados a plazo definido o fijo, interinos o por inopia el disfrute de sus vacaciones o eventual liquidación se regulará a razón de un día por cada mes laborado hasta un máximo de 11 días.

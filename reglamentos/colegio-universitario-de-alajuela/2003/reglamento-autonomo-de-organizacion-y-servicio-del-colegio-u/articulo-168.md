@@ -1,0 +1,2 @@
+Artículo 168.—En resguardo de los derechos del servidor el procedimiento disciplinario deberá efectuarse con celeridad y eficiencia.
+Procurará la administración por todos los medios, precisar los hechos en su configuración real, que le permita emitir una resolución ajustada a derecho. El servidor que por culpa, dolo, o negligencia ocasionare el retardo injustificado del procedimiento incurrirá en responsabilidad patronal.

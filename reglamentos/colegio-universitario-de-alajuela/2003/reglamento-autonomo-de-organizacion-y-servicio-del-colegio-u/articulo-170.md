@@ -1,0 +1,1 @@
+Artículo 170.—En caso de integración del ordenamiento jurídico por laguna del presente capítulo se aplicarán en forma supletoria las disposiciones de la Ley General de la Administración Pública y demás normas del ordenamiento jurídico administrativo.

@@ -1,0 +1,4 @@
+Artículo 11.—Los servidores del CUNA cumplirán con los siguientes principios éticos:
+a) Orientar el ejercicio de la función pública a la satisfacción del bien común, que es su fin último y esencial. Para ello, el servicio que se preste, tenderá al mantenimiento y aplicación de los valores de seguridad, justicia, solidaridad, paz, libertad y democracia.
+b) La lealtad, la eficiencia, la probidad y la responsabilidad, son valores fundamentales del ejercicio de la función pública. Los deberes y prohibiciones que deben acatar los funcionarios se fundamentan en esos valores y en los principios reguladores del servicio público.
+c) El funcionario es un servidor de los administrados que con él se relacionen en virtud de la prestación de servicio y de la función que desempeñe, lo cual debe atender de una manera integral, con aplicación plena de conocimientos, aptitudes y valores.

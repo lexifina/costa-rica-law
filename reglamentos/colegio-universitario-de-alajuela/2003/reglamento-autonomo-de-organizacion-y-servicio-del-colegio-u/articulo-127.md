@@ -1,0 +1,1 @@
+Artículo 127.—No obstante lo anterior, las ausencias deberán justificarse por escrito, a más tardar dentro de la jornada laboral siguiente a la fecha de ocurrida según sea el caso. La Dirección correspondiente determinará si la ausencia es justificada o no.

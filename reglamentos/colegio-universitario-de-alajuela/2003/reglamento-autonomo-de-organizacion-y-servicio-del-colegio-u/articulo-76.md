@@ -1,0 +1,1 @@
+Artículo 76.—Todos los días del año son hábiles para el servicio, salvo los feriados señalados en el artículo 148 del Código de Trabajo y aquellos que el Poder Ejecutivo o el Consejo Directivo declaren de asueto. Sin embargo, podrá trabajarse en tales días, siempre y cuando ello sea posible a tenor de lo establecido en el artículo 51 del cuerpo legal supracitado.

@@ -1,0 +1,1 @@
+Artículo 98.—El subsidio por riesgo o enfermedad profesional será pagado al servidor de acuerdo a lo dispuesto por la Ley sobre Riesgos de Trabajo y sus reformas, así como por lo indicado en el artículo 83 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 7º—La aplicación de este Reglamento corresponde al Decano y a la Unidad de Recursos Humanos, quienes tendrán a su cargo en forma coordinada todo lo concerniente a nombramientos, despidos, cambios de puestos, ascensos, vacaciones, permisos o licencias, mediante las respectivas acciones de personal. La interpretación auténtica del mismo corresponde al Consejo Directivo.

@@ -1,0 +1,1 @@
+Artículo 45.—El mismo procedimiento se aplicará para el caso de las reclasificaciones, con la salvedad que estas regirán a partir de la fecha en que sean aprobadas por el Decano, previo estudio técnico de la Unidad de Recursos Humanos.

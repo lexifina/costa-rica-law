@@ -1,0 +1,1 @@
+Artículo 73.—Se reconocerá un 15% sobre el sueldo base, a los servidores que atiendan funciones administrativas en la coordinación o dirección de carreras, con base en la resolución C-45-84 de la Dirección General de Servicio Civil, durante el tiempo que ejerzan dicha función.

@@ -1,0 +1,10 @@
+Artículo 83.—Cuando un servidor sea declarado incapacitado para trabajar, por enfermedad o riesgo profesional, gozará de subsidio en proporción al tiempo servido, de acuerdo con las siguientes regulaciones:
+1) Durante los primeros tres meses de servicios, se reconocerá el subsidio hasta por 1 mes.
+2) Después de tres meses de servicios y hasta un año el subsidio será hasta por tres meses.
+3) Durante el segundo año de servicio, el subsidio será hasta por cinco meses.
+4) Durante el tercer año de servicio, el subsidio será hasta por seis meses.
+5) Durante el cuarto año de servicio, el subsidio será hasta por nueve meses.
+6) Durante el quinto año de servicio, el subsidio será hasta por nueve meses.
+7) Después de cinco años de servicio, el subsidio será hasta doce meses.
+El monto de subsidio será de un ochenta por ciento del monto del salario ordinario que esté devengando el trabajador durante los primeros treinta días de su incapacidad. En ese periodo la Institución como patrono, reconocerá durante los tres primeros días un subsidio de un 80%, a partir del cuarto día y hasta el número treinta el subsidio patronal será de un 20% cuando la incapacidad sea emitida por la Caja Costarricense de Seguro Social; y la diferencia para completar el 80% del subsidio que otorgue el Instituto Nacional de Seguros cuando sea éste el órgano que incapacite.
+El subsidio será de un ciento por ciento de su salario ordinario durante el periodo de incapacidad que exceda de treinta días naturales, por un máximo de doce meses. Durante el periodo que exceda de treinta días naturales, la institución como patrono otorgará un subsidio de un 40% cuando el órgano que incapacite sea la Caja Costarricense del Seguro Social, y pagará la diferencia del subsidio para completar ese 100% de lo que le otorgue el Instituto Nacional de Seguros cuando sea éste el órgano que incapacite. Por ninguna razón, y en ningún caso de incapacidad otorgada, el monto del subsidio que pagaren los órganos aseguradores sumados a lo que le corresponde cancelar a la Institución como patrono, podrá exceder el 100% del salario total del servidor.

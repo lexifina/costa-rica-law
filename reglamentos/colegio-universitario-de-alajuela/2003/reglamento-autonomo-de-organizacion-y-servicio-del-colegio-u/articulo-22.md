@@ -1,0 +1,1 @@
+Artículo 22.—La selección de personal se hará por medio de pruebas de idoneidad, de atestados o de ambos. Únicamente se admitirán aspirantes que reúnan los requisitos para ser nombrados en el puesto que se trate. Para la selección del personal, se requerirá el asesoramiento técnico de la dependencia donde existan puestos vacantes, cuyos jefes están en la obligación de brindarlo.
