@@ -1,0 +1,5 @@
+Artículo 2º—Abreviaturas y definiciones. Para efectos del presente Reglamento se entiende por:
+- JAPDEVA: Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica
+- Junta de Relaciones Laborales: Órgano Director del Procedimiento creado por la Convención Colectiva encargado de substanciar los procedimientos disciplinarios contra aquellos funcionarios cubiertos por dicha Convención.
+- Procedimiento administrativo: Es aquel procedimiento que instaurará el Consejo de Administración para investigar las infracciones al reglamento de gastos de viaje y de transporte para funcionarios públicos de JAPDEVA que no se encuentran cubiertos por la Convención Colectiva. Este procedimiento se verificará conforme las reglas del Título Segundo de la Ley General de la Administración Pública.
+- Funcionario público: Es todo aquel depositario de autoridad conforme el artículo 11 de la Constitución Política y 111 de la Ley General de la Administración Pública. Para los efectos de este reglamento, este término abarca tanto a los funcionarios regulares como los de confianza.

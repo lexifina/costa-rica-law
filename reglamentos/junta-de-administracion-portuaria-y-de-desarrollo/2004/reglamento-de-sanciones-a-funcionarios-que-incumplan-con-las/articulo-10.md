@@ -1,0 +1,1 @@
+Artículo 10.—Pasaporte de servicio. Todo funcionario - sin exclusión - al que se le autorice un viaje, deberá tramitar la obtención del pasaporte de servicio correspondiente. Quien realice una gira y no cumpla con esta obligación, podrá imponérsele una sanción de dos a cinco días hábiles de suspensión sin goce de salario.

@@ -1,0 +1,2 @@
+Artículo 11.—Presentación de informes. Se establece como obligación del funcionario que dentro del término de siete días hábiles posteriores a su incorporación al trabajo presente ante el Consejo de Administración un informe sobre los resultados y beneficios obtenidos en su participación en el evento al cual asistió.
+A quien no lo presente, podrá imponérsele una sanción de hasta ocho días hábiles de suspensión sin goce de salario.

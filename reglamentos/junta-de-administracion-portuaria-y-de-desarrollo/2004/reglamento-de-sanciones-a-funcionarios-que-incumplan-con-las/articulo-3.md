@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. Este Reglamento se aplicará exclusivamente para la imposición de sanciones a los funcionarios de la Institución que infrinjan las disposiciones del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.

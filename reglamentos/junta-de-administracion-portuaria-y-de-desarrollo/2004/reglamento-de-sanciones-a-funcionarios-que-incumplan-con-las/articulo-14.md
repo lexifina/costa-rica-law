@@ -1,0 +1,2 @@
+Artículo 14.—Sanciones a miembros del Consejo de Administración. Las faltas que contempla este reglamento con sanción de suspensión sin goce de salario, para el caso de los miembros del Consejo de Administración, corresponderá únicamente al equivalente al número de días que dejará de percibir por concepto de dietas. Por su investidura, no podrá suspendérsele la posibilidad de asistir a sesiones ordinarias o extraordinarias.
+La potestad disciplinaria en estos casos, corresponderá al Consejo de Gobierno.
