@@ -14,3 +14,4 @@ Autoriza al Poder Ejecutivo para qu por Decreto elaborado por el Ministerio de H
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-26 | la propia norma |
+| 2 | 2002-03-05 | Decreto Ejecutivo 30217 (2002-03-05) |
