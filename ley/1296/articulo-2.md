@@ -1,0 +1,1 @@
+Artículo 2°.- Todo pago que por servicios de transporte y pasajeros tenga que hacer el Gobierno a la Northern Railway Company, se aplicará exclusivamente al pago de amortizaciones de la operación en referencia.
