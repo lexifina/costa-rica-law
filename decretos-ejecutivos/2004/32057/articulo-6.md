@@ -1,0 +1,3 @@
+Artículo 6º—De los asesores: En cualquier momento que lo considere conveniente, el Consejo podrá nombrar comités de expertos ad hoc con funciones de asesoría.
+Cada miembro del Consejo, por su propia cuenta podrá contar con un asesor para las reuniones del Consejo o de subcomisiones. Los asesores no tendrán voz ni voto, salvo en las subcomisiones donde tendrán voz. En las sesiones del Consejo, los asesores canalizarán sus aportes a través del Directivo.
+En cualquier momento que la Comisión lo considere oportuno, podrá convocar a las sesiones a invitados especiales para analizar temas complejos o aspectos específicos de su quehacer.
