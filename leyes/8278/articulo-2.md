@@ -1,0 +1,4 @@
+Artículo 2º—Adiciónase a la Ley reguladora de la propiedad en condominio, N° 7933, de 28 de octubre de 1999, el artículo 32 bis, cuyo texto dirá:
+"Artículo 32 bis.—Para la administración de los condominios deberá contarse con un libro de actas de la Asamblea, un libro de actas de la Junta Directiva, en el cual consten los acuerdos de ese órgano, y un libro de caja, en el que el administrador consignará, diariamente, tanto los egresos por concepto de gastos comunes como los ingresos provenientes del pago de los propietarios o los originados por cualquier otro concepto.
+La legalización de los libros citados, su reposición por pérdida o deterioro, así como cualquier trámite relativo a estos, estará a cargo de la Sección de Propiedad en Condominio del Registro Público de la Propiedad."
+Rige a partir de su publicación.
