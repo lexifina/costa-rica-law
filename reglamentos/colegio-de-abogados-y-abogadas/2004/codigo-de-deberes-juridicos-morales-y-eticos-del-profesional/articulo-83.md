@@ -1,0 +1,8 @@
+Artículo 83.—Son faltas graves:
+a) La infracción a las disposiciones contenidas en los artículos 14, 15, 17, 20, 21, 22, 29, 35, 38, 39, 43, 46, 47, 48, 49, 51, 52, 53, 54, 56, 58, 62, 63, 65, 67, 68, 69, 71.
+b) La autenticación de una firma falsa, no puesta en su presencia, o la autenticación de un documento en blanco. De comprobarse la falsedad de la firma autenticada o que la autenticación se hizo a sabiendas de la falsedad, se podrá agravar la sanción a imponer.
+c) Falsificar en todo o en parte un documento privado.
+d) El cobro excesivo de honorarios. En este caso, podrá la Junta Directiva imponer al abogado o abogada el extremo mínimo de la sanción establecida para las faltas graves y prevenirle que devuelva el exceso de honorarios cobrado, bajo apercibimiento de que en caso de incumplimiento se incrementará la sanción impuesta, pudiendo llegarse hasta el extremo máximo de la sanción establecida para las faltas graves.
+e) Recibir determinado monto o documentos por trabajo contratado y no realizarlo en todo o en parte. En este caso, la Junta Directiva podrá imponer al abogado o abogada el extremo mínimo de la sanción establecida para las faltas graves y prevenirle que devuelva la suma y/o documentos que estime pertinente, bajo apercibimiento de que en caso de incumplimiento se incrementará la sanción impuesta, pudiendo llegarse hasta el extremo máximo de la sanción establecida para las faltas graves.
+f) Cuando en el supuesto del artículo 56, el abogado o la abogada no devuelvan del todo los documentos, expedientes o valores.
+g) Haber incurrido en falta leve dos o más veces.

@@ -1,0 +1,1 @@
+Artículo 55.—Los abogados y las abogadas deberán devolver a quien en derecho corresponda, dentro del término fijado al efecto, los documentos, expedientes o valores que les sean entregados por las autoridades judiciales o administrativas en razón de su ejercicio profesional.

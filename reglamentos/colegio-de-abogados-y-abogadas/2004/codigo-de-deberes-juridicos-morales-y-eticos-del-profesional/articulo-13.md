@@ -1,0 +1,1 @@
+Artículo 13.—Quienes ejercen la profesión del derecho deberán analizar cuidadosamente un caso antes de aceptar su dirección profesional y rechazar el que requiera un conocimiento especial que no posean.

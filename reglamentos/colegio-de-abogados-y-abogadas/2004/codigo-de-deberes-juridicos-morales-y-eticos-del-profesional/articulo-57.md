@@ -1,0 +1,1 @@
+Artículo 57.—El abogado y la abogada no deberán entorpecer la tramitación de los procesos o procedimientos, debiendo más bien contribuir a su celeridad. Deberán abstenerse de utilizar recursos o medios que, aunque legales, constituyan un perjuicio al desarrollo de los mismos, así como llevar a cabo gestiones puramente dilatorias.

@@ -1,0 +1,1 @@
+Artículo 25.—Quienes ejercen la profesión del derecho deberán escribir en forma legible su nombre y apellidos debajo de su firma al suscribir pedimentos o escritos con ocasión de su ejercicio profesional. La firma que utilicen deberán ser siempre la registrada en el Colegio y podrá utilizarse por razón de conveniencia un sello que contenga esta información.

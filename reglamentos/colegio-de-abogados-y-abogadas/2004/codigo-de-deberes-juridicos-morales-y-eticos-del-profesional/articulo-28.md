@@ -1,0 +1,1 @@
+Artículo 28.—Quienes ejercen la profesión del derecho deberán realizar su actividad principal en un lugar digno, determinado y conocido. Deberán abstenerse de ejercer su profesión en lugares u oficinas públicas o sitios inadecuados.

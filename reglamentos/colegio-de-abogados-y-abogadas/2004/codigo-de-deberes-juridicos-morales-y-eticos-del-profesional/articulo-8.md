@@ -1,0 +1,1 @@
+Artículo 8º—El abogado y la abogada han de defender las libertades civiles y políticas que aseguren el respeto de la dignidad humana y el bienestar general, y reprochar toda acción que atente contra estos principios, de conformidad con las disposiciones legales vigentes.

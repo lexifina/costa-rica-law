@@ -1,0 +1,1 @@
+Artículo 14º—Es deber del abogado y la abogada dedicarse con diligencia y puntualidad a los asuntos de su cliente y poner en su defensa todos sus esfuerzos y conocimientos con estricto apego a las normas jurídicas, morales y éticas.

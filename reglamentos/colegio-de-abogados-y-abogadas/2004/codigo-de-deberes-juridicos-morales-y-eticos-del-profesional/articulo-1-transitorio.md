@@ -1,0 +1,1 @@
+Transitorio I.—Para los efectos del artículo 75 del presente Código, mientras no haya iniciado labores el Centro de Justicia Alternativa del Colegio de Abogados, la conciliación se intentará el día y hora señalados por la Fiscalía para la celebración de la comparecencia oral y privada.

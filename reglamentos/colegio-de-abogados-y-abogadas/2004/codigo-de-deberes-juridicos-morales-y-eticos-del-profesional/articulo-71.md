@@ -1,0 +1,1 @@
+Artículo 71.—Es contrario a la moral y la ética que el abogado o abogada induzca a los testigos, peritos y demás intervinientes en un asunto, a mentir, sesgar sus respuestas o de alguna forma asesorarlos para alterar la realidad.

@@ -1,0 +1,1 @@
+Artículo 73.—El abogado y la abogada deberán mantener actualizados sus datos de especialización y localización. Los cambios a este respecto deberán ser comunicados al Colegio dentro del mes siguiente.

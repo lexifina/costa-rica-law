@@ -1,0 +1,1 @@
+Artículo 51.—Será responsable disciplinariamente el abogado y la abogada de todas las sumas recibidas por cualquier medio, tanto por él o ella, por su personal de apoyo, como de las depositadas en su oficina.

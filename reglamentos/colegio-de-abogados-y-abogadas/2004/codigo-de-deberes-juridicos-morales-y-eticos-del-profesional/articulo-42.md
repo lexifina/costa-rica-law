@@ -1,0 +1,2 @@
+Artículo 42.—La obligación del secreto profesional cede a las necesidades de la defensa del abogado y la abogada cuando es acusado (a), en cuyo caso revelarán lo indispensable. También podrán revelar la información necesaria a efecto de medir la complejidad del asunto para el ejercicio del derecho de cobro de sus honorarios.
+Excepcionalmente, el abogado y la abogada podrán revelar el secreto profesional para evitar la eventual condena de un inocente.

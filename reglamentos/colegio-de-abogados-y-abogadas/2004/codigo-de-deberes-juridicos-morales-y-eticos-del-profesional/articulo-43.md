@@ -1,0 +1,1 @@
+Artículo 43.—Si un cliente comunica a su abogado o abogada la intención de cometer un ilícito, esta confidencia no es materia de secreto profesional, por lo cual, agotados los medios de disuasión, deberán hacer las revelaciones necesarias para prevenirlo.

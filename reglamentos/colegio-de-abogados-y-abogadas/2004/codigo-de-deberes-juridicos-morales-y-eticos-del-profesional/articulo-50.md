@@ -1,0 +1,1 @@
+Artículo 50.—El abogado y la abogada deberán siempre extender el recibo correspondiente por las sumas recibidas con ocasión de su ejercicio profesional, debiendo especificar claramente el concepto por el que se reciben.

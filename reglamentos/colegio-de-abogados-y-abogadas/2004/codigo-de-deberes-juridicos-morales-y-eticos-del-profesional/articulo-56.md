@@ -1,0 +1,1 @@
+Artículo 56.—Los abogados y las abogadas serán responsables disciplinariamente en caso de que por su descuido o imprudencia resulten dañados o extraviados los documentos, expedientes o valores que reciban para su estudio o para la práctica de alguna diligencia.

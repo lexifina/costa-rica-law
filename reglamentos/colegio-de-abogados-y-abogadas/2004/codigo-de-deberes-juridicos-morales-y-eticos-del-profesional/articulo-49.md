@@ -1,0 +1,1 @@
+Artículo 49.—No está obligado el abogado ni la abogada a afrontar los gastos del proceso, por lo que podrán solicitarlos por adelantado pero con sujeción al reembolso de la diferencia entre lo recibido y lo utilizado. Deberán llevar un detalle minucioso de los gastos a fin de comprobar en cualquier momento el uso dado.

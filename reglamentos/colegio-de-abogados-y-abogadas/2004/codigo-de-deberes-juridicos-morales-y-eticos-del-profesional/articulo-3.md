@@ -1,0 +1,1 @@
+Artículo 3º—Como universitarios preparados y disciplinados, cultivadores de su inteligencia, tienen la obligación de actuar en el plano social, político y religioso, sin más limitaciones que las impuestas por el ordenamiento jurídico, el prestigio de su profesión y su propia conciencia moral y ética.

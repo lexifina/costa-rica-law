@@ -1,0 +1,1 @@
+Artículo 23.—Quienes ejercen la profesión del derecho deberán respetar las disposiciones normativas y obligaciones asumidas que establezcan incompatibilidades y prohibiciones en el ejercicio profesional. Deberán abstenerse de desempeñar por sí mismos o por persona interpuesta, cargos u ocupaciones incompatibles con la normativa y obligaciones citadas.

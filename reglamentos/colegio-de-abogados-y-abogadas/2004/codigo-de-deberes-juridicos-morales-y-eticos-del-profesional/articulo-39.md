@@ -1,0 +1,1 @@
+Artículo 39.—Quienes ejercen la profesión del derecho emplearán al servicio del cliente todo su saber, celo y diligencia. Podrán consultar con otros profesionales, pero la responsabilidad en la dirección del asunto es suya.

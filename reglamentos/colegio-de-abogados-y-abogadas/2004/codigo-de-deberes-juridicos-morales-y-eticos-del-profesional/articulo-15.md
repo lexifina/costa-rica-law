@@ -1,0 +1,1 @@
+Artículo 15.—El abogado y la abogada deberán ser respetuosos en todas sus actuaciones, absteniéndose de utilizar términos despectivos, irrespetuosos o peyorativos, ya sea en forma escrita o verbal. Si la conducta se diera con ocasión del trámite jurisdiccional de un caso, deberá estarse a lo dispuesto en la Ley Orgánica del Poder Judicial.

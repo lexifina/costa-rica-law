@@ -1,0 +1,1 @@
+Artículo 62.—Cuando un abogado o abogada haya cesado labores en la judicatura, o en alguna institución pública estatal o no estatal, no deberá patrocinar en asuntos que hubiese conocido en su carácter de funcionario (a). Durante el plazo de un año no podrá patrocinar asuntos que deben ser resueltos en la oficina u órgano donde laboró.

@@ -1,0 +1,1 @@
+Artículo 68.—No deberán el abogado ni la abogada cobrar menos honorarios de los establecidos en el decreto respectivo y demás normativa aplicable, sin perjuicio de las excepciones en la disminución del cobro allí establecidas.

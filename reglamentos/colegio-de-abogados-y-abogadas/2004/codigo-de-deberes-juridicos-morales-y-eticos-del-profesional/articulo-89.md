@@ -1,0 +1,1 @@
+Artículo 89.—Se deroga el Código de Moral Profesional del Abogado aprobado en sesión de Junta Directiva número 38-2001 del 19 de noviembre del año 2001 y publicado en el Diario Oficial La Gaceta del 14 de diciembre del año dos mil uno y sus reformas.

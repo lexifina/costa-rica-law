@@ -1,0 +1,1 @@
+Artículo 29.—El abogado y la abogada deberán procurarse su clientela por medios dignos. No deberán recurrir a terceras personas, remuneradas o no, para obtener asuntos, ni procurarse trabajo profesional mediante descuentos u otras ventajas que concedan al cliente o a terceras personas.

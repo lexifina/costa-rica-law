@@ -1,0 +1,3 @@
+CAPÍTULO III
+Deberes con la sociedad y el ordenamiento jurídico
+Artículo 21.—Es contrario a la Ética y Moral Profesional del abogado y la abogada toda actuación que facilite indebidamente la obtención de beneficios académicos, ya sea enseñando materias jurídicas para las que no están capacitados, impartiendo un número de materias tan diversas que hagan dudar de su seriedad docente, facilitando trámites indebidos para obtener créditos académicos de cualquier naturaleza, incluyendo datos falsos en documentos que otorgan beneficios académicos, o que en cualquier forma propicien el facilismo académico de modo que genere la concesión de títulos a personas que no están ética o académicamente preparadas.

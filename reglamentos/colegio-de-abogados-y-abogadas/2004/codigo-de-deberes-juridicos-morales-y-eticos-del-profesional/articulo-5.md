@@ -1,0 +1,1 @@
+Artículo 5º—Por su formación profesional, deberán cumplir en mayor medida con el ordenamiento jurídico, procurarán el mejoramiento constante de la legislación y las condiciones para el ejercicio de la profesión, y favorecerán la sanción o reforma de leyes o reglamentos que supongan beneficio para la colectividad.

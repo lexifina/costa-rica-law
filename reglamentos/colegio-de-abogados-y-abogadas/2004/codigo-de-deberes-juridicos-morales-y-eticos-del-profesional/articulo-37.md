@@ -1,0 +1,1 @@
+Artículo 37.—Quienes ejercen la profesión del derecho son libres de aceptar o rechazar asuntos en que se solicite su intervención, sin necesidad de expresar los motivos de su determinación, salvo en caso de nombramiento de oficio, en que deben justificar su decisión. No deberán aceptar asuntos en que hayan de sostener tesis contrarias a sus convicciones.

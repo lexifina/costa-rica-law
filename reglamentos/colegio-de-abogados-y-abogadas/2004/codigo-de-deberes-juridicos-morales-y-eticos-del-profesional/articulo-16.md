@@ -1,0 +1,3 @@
+Artículo 16.—Quienes ejercen la profesión del derecho deberán asistir a todas las audiencias donde sean citados por las autoridades judiciales o administrativas en los asuntos en que intervengan profesionalmente.
+Si existiera algún impedimento grave para asistir a la audiencia, deberán hacerlo saber tanto a la autoridad u órgano respectivo como a su patrocinado dentro del plazo de tres días a partir de la notificación, de tal forma que se puedan tomar las previsiones del caso.
+No podrá el abogado ni la abogada renunciar a la dirección legal de un asunto si con ocasión de su trámite ya se le ha notificado el señalamiento para una audiencia.

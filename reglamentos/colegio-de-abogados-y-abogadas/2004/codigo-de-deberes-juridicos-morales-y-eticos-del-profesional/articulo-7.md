@@ -1,0 +1,1 @@
+Artículo 7º—El abogado y la abogada procurarán situar sus relaciones profesionales y personales en un marco de seriedad, justicia, amabilidad, honorabilidad, tolerancia, comprensión, cortesía y discreción.

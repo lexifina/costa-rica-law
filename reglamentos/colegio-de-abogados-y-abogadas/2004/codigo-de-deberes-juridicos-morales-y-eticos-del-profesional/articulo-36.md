@@ -1,0 +1,1 @@
+Artículo 36.—Quienes ejerzan la profesión del derecho no deberán valerse de una impostura o error para beneficiar a su cliente. Deberá el abogado y la abogada combatir las imposturas o errores de su cliente; si este insiste en su posición, quedarán facultados para abandonar la dirección del asunto, pero deberán hacerlo de forma que no perjudique a su patrocinado.

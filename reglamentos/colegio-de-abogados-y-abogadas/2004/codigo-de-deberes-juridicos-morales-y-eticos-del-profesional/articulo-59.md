@@ -1,0 +1,1 @@
+Artículo 59.—El abogado y la abogada no deberán ejercer influencia de ninguna clase sobre Jueces o autoridades, ni utilizar vinculaciones políticas, de amistad o de otra índole, en su beneficio, en el de su cliente o en el de terceros.

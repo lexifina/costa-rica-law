@@ -1,0 +1,1 @@
+Artículo 26.—Cuando un colegiado o colegiada opte por un puesto o nombramiento para el cual se requiera ser abogado o abogada, la información que brinde deberá ser veraz y actualizada y abstenerse de presentar atestados que induzcan a error.

@@ -1,0 +1,1 @@
+Artículo 6º—Es derecho y deber del abogado y la abogada combatir por todos los medios lícitos la conducta censurable de los jueces y colegas y denunciarlas a las autoridades competentes. Ante estas acciones, deberán evitar las actitudes pasivas que podrían hacerles sospechosos de complicidad, así como abstenerse de toda vejación y actuación escandalosa.

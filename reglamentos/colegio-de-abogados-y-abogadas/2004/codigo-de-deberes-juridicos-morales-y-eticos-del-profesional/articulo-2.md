@@ -1,0 +1,1 @@
+Artículo 2º—El abogado y la abogada, como ciudadanos y como profesionales, deberán cumplir con los preceptos institucionales del Colegio de Abogados, debiendo tener la satisfacción jurídica, ética y moral del servicio prestado.
