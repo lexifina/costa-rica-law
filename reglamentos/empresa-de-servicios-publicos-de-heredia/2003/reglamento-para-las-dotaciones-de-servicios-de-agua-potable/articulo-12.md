@@ -1,0 +1,1 @@
+Artículo 12.—Servicios paralelos: La ESPH S. A. tendrá como paralelos aquellos servicios con interdependencia, por lo que cuando se brinda financiamiento para la red del acueducto se estudiará la viabilidad de incluir el de alcantarillado sanitario. Igualmente con respecto a las extensiones de la red de energía eléctrica con relación al de alumbrado público.

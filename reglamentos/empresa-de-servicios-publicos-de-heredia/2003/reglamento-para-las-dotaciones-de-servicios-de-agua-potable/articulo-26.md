@@ -1,0 +1,1 @@
+Artículo 26.—Liquidación: Cuando la liquidación mostrare una diferencia en el costo efectivo de la obra, se requerirá al interesado el pago del saldo insoluto, bajo la prevención de hacer efectiva la garantía, de ser necesario; y de existir un remanente éste será reembolsado a su dueño.

@@ -1,0 +1,4 @@
+Artículo 67.—Caducidades: Las dotaciones de servicio que se otorguen de acuerdo con el presente reglamento, caducarán en el plazo de seis meses si el propietario no realizare cualquiera de las acciones que se enumeran seguidamente:
+a) Iniciación y desarrollo del proyecto respectivo.
+b) La renovación en su caso de las garantías de ejecución o de "calidad y buen funcionamiento", de obras de infraestructura por el plazo requerido para el cumplimiento de tales obligaciones. En el mismo plazo, caducará igualmente las solicitudes de dotación cuyo trámite permanezca paralizado por acciones u omisiones atribuibles exclusivamente a la parte interesada, así como las contempladas en otras disposiciones del Reglamento.
+Las caducidades serán dictadas por la Gerencia, previo informe de la Comisión de Urbanizaciones.

@@ -1,0 +1,1 @@
+Artículo 23.—Control de pagos: Cada vez que el Departamento Comercial reciba pagos por conceptos de abonos o cancelación en contratos de financiamientos de obras, lo comunicará a la Dirección respectiva, así como a la contabilidad, con el objeto de lograr una buena coordinación y mantener un registro actualizado de la operación correspondiente.

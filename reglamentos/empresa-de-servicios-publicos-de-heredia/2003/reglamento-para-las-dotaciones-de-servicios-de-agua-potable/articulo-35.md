@@ -1,0 +1,1 @@
+Artículo 35.—Terreno de ubicación Planta de Tratamiento: El terreno dedicado a una planta de tratamiento de aguas residuales deberá poseer retiros mínimos de veinte metros hacia cualquiera de sus lados y un área mínima de quinientos metros cuadrados, esto con la intención de resguardar la salud de los peatones que transiten cerca de este tipo de instalaciones.

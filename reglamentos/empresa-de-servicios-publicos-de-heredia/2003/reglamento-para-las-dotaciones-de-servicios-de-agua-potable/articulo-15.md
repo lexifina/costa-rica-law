@@ -1,0 +1,1 @@
+Artículo 15.—Atención de solicitudes, de extensión y modificación de líneas: Cada Dirección, atenderá las solicitudes de extensión de servicios o modificaciones cronológicamente, para cualquier particular y proyectos de extensiones temporales de conformidad con las normas previstas en este Reglamento. Igualmente se encargará de la ejecución de las obras y de recibirlas.

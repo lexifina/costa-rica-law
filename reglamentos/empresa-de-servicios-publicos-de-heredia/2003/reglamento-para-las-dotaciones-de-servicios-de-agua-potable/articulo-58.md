@@ -1,0 +1,1 @@
+Artículo 58.—Registro Solicitudes: A fin de proteger las expectativas de derecho de los interesados, la Administración deberá llevar un registro cronológico de presentación de las solicitudes, cuyo orden deberá ser respetado por aquella a la hora de tramitarlas y resolverlas.

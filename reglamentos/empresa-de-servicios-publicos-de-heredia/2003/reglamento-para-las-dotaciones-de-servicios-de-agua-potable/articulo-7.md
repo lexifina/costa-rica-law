@@ -1,0 +1,1 @@
+Artículo 7º—Reserva de Prioridad: Sin perjuicio de lo dispuesto en los artículos anteriores, la Empresa, por razones técnicas o estratégicas, concederá prioridad de dotación de servicios, a aquellos proyectos habitacionales para los cuales se gestionen conjuntamente la prestación de los servicios de agua potable, alcantarillado sanitario, energía eléctrica y alumbrado público.

@@ -1,0 +1,1 @@
+Artículo 57.—Informe Terminación Obra: La Dirección respectiva, informará al Departamento de Contabilidad la fecha de terminación de la obra con el objeto de que se determine su costo real. Una vez concluida la obra, se procederá a hacer la correspondiente liquidación, confrontando el presupuesto original contra el costo real de la obra ejecutada.

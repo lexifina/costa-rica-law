@@ -1,0 +1,1 @@
+Artículo 29.—Aprobación de planos y diseños: Los sistemas de acueductos y alcantarillados sanitarios estarán regulados por los diseños, planos y especificaciones técnicas previamente aprobadas por la Unidad de Acueductos y Alcantarillados.

@@ -1,0 +1,1 @@
+Artículo 39.—Traspaso Automático de Activos: Todos los activos del sistema de alcantarillado sanitario, se considerarán automáticamente traspasados a la Empresa sin costo alguno, en el acto mismo de la aprobación del proyecto.

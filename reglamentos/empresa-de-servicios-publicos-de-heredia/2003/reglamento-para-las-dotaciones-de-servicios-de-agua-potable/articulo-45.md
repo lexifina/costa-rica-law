@@ -1,0 +1,1 @@
+Artículo 45.—Otorgamiento de Servicios: En los sectores en donde sólo se presta el servicio de energía eléctrica, la Dirección correspondiente queda facultada para otorgar los servicios, siempre y cuando las obras de infraestructura necesarias se hayan construido en su totalidad por parte del propietario.

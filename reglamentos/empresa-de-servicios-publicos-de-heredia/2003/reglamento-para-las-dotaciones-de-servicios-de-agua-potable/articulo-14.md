@@ -1,0 +1,1 @@
+Artículo 14.—Estimación de las obras: El valor de toda extensión de la red eléctrica, agua potable y alcantarillado sanitario, se determinará conforme a los estudios elaborados por la Dirección respectiva, según sea el servicio y el costo de tal estudio será cubierto por el gestionante.

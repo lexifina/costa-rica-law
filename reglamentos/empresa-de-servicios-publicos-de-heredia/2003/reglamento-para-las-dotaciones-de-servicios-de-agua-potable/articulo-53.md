@@ -1,0 +1,1 @@
+Artículo 53.—Notificación Avalúo: Una vez realizados los estudios y elaborado el presupuesto respectivo, la Dirección notificará al interesado por escrito el valor y demás detalles de la inspección, en un plazo no mayor de cinco días hábiles.

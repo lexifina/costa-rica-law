@@ -1,0 +1,1 @@
+Artículo 66.—Servicios Clandestinos: En caso de iniciar actividades en el terreno sin haber solicitado y cancelado los servicios provisionales, la Empresa procederá a desconectar los servicios del Proyecto y a liquidar el monto del consumo de los servicios provisionales en su caso, sin perjuicio de las acciones judiciales que correspondan.

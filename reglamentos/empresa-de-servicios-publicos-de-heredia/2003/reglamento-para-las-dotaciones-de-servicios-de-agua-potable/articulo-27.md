@@ -1,0 +1,3 @@
+CAPÍTULO II
+Artículo Único - Garantías
+Artículo 27.—Garantías: El monto de la garantía dependerá de la naturaleza y magnitud de las obras que queda obligado a ejecutar el solicitante. Dichas garantías podrán consistir en: Dinero efectivo, garantías reales a satisfacción de la Empresa, certificados de depósito a plazo y bonos de garantía extendidos por las instituciones del Sistema Bancario Nacional o por el Instituto Nacional de Seguros. Lo anterior, sin perjuicio de las restantes obligaciones y requisitos exigidos por otras autoridades competentes, como condición para el otorgamiento de sus respectivos permisos.

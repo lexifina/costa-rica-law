@@ -1,0 +1,1 @@
+Artículo 9º—Áreas de Servicio: Cada servicio que preste la ESPH S. A. es independiente, por lo que las aprobaciones de extensiones y su respectivo financiamiento en su caso, en una de las áreas de servicio, no necesariamente, será de igual forma para las otras áreas de servicio.

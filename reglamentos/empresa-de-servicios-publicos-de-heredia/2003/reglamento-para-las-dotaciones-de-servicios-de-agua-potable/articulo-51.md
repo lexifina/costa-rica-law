@@ -1,0 +1,1 @@
+Artículo 51.—Confección Presupuesto: El o los interesados que soliciten la construcción y financiación de las obras a que se refieren los artículos que anteceden y que no cuenten con el presupuesto respectivo, deberán cancelar previamente, por concepto de elaboración de estudios y presupuestos de la obra, una cuota mínima no reembolsable de treinta mil colones (¢ 30.000,00).
