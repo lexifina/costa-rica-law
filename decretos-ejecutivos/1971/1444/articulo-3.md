@@ -1,0 +1,1 @@
+Artículo 3°.- Los costos de los programas serán examinados por la Comisión coordinadora y sometidos a la Junta Directiva de la Caja Costarricense de Seguro Social y al ministerio de Salubridad Pública, para su aprobación.

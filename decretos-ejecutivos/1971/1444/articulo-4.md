@@ -1,0 +1,1 @@
+Artículo 4°.- Los aportes económicos por gastos en estos programas deberán fijarse de mutuo acuerdo y ser aprobados por la Junta Directiva de la Caja Costarricense de Seguro Social y por el Ministerio de Salubridad pública.

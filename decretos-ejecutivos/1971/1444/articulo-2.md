@@ -1,0 +1,1 @@
+Artículo 2°.- La Comisión Coordinadora estará encargada de coordinar actividades para evitar duplicación de instalaciones y alcanzar una mejor utilización de los recursos disponibles. Tendrá bajo su responsabilidad la planificación de programas en medicina preventiva de naturaleza distinta a la que corresponda a las enfermedades infecciosas y protección materno infantil.
