@@ -1,0 +1,2 @@
+Artículo 136.—El servidor afectado por acoso u hostigamiento sexual podrá plantear denuncia escrita ante el Ministro. En un plazo no mayor de cinco días hábiles posteriores a la denuncia, el Ministro procederá a integrar el Órgano Director que tendrá bajo su responsabilidad el Procedimiento Interno Administrativo. Sin embargo si la denuncia contuviera motivos totalmente infundados, el Ministro podrá declararla inadmisible mediante resolución razonada.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 24710 del 29 de septiembre de 1995)
