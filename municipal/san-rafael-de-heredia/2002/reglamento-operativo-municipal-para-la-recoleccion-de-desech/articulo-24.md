@@ -1,0 +1,1 @@
+Artículo XXIV.—La canasta metálica tendrá un rótulo de advertencia con la siguiente leyenda: PROHIBIDO EXTRAER BASURAS, SOLO PERSONAL AUTORIZADO. Artículo 283, Ley General de Salud. Cada canasta indicará el número de abonado a la que pertenece.

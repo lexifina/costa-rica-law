@@ -1,0 +1,1 @@
+Artículo XIV.—En caso de no contar con un sitio especial para esperar al siguiente día de la recolección y debido a las características putrescibles o peligrosas de los desechos, el usuario deberá movilizar sus desechos hasta un centro de recolección habilitado por la Municipalidad en un sitio debidamente acondicionado.

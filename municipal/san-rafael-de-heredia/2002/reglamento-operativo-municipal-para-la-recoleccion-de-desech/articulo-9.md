@@ -1,0 +1,1 @@
+Artículo IX.—Para el correcto cierre de los empaques se utilizarán cierres metálicos (estrangulamiento del cuello del empaque) asegurando de manera que no se aflojen o resbalen. En su defecto, se puede utilizar nudos.

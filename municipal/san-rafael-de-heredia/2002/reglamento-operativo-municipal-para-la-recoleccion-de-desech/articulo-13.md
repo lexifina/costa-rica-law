@@ -1,0 +1,1 @@
+Artículo XIII.—Si por razones inherentes al usuario, sus desechos no pudieron ser recolectados, éste deberá retirarlos de la vía pública y depositarlos en un sitio seguro, que no los exponga a la acción de roedores u otra amenaza que pueda dañar los empaques, con el fin de esperar el siguiente día de recolección.
