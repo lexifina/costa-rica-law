@@ -1,0 +1,1 @@
+ARTÍCULO 4.- Para este propósito, la Universidad estimulará la formación de una conciencia creativa, crítica y objetiva en los miembros de la comunidad costarricense, que permita a los sectores populares participar eficazmente en los diversos procesos de la actividad nacional.

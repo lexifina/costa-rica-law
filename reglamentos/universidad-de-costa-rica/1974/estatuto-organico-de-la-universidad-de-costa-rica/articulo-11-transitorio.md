@@ -1,0 +1,1 @@
+Transitorio 11.- Una vez aprobado este Estatuto el Consejo Universitario, mediante sorteo, conocerá cuáles son los cuatro miembros indicados en los incisos a) y c) del artículo 24 que durarán cuatro años en sus funciones y cuáles son los tres miembros que durarán tres años. Quienes los sustituyan ejercerán el cargo por un período completo.

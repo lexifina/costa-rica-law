@@ -1,0 +1,1 @@
+ARTÍCULO 172.- La FEUCR y cada una de las asociaciones deben someter anualmente sus estados y actuaciones financieras a la Contraloría de la Universidad, la cual ejercerá el auditoraje cuando lo considere necesario.

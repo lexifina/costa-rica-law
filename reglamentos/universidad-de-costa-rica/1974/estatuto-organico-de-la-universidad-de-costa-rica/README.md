@@ -1,0 +1,16 @@
+# Reglamento (1974-03-15)
+
+Estatuto Orgánico de la Universidad de Costa Rica
+
+- Tipo: Reglamento
+- Número: 0
+- Fecha: 1974-03-15
+- Ente emisor: Universidad de Costa Rica
+- Publicación: La Gaceta N° 56 del 1974-03-22
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=55665&param2=60990&param3=1 (ficha 55665)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1974-03-22 | la propia norma |

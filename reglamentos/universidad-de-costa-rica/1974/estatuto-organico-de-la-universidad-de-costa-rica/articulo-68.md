@@ -1,0 +1,1 @@
+ARTÍCULO 68.- La asistencia a las reuniones de los Consejos Coordinadores de Áreas es obligatoria para todos sus miembros. El reglamento correspondiente contemplará las disposiciones relativas al incumplimiento de esta obligación.

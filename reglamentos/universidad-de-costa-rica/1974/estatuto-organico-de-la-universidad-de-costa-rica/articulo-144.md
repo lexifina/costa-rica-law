@@ -1,0 +1,3 @@
+ARTÍCULO 144.- En casos de jubilación, renuncia, muerte, incapacidad permanente o separación de funciones de algún miembro del Consejo Universitario electo por votación universitaria, el Tribunal convocará a la Asamblea, por propia iniciativa o a instancias del Consejo Universitario, dentro de los quince días de producida la vacante, para sustituir por el resto del período al miembro faltante.
+Quien resultare electo, tendrá derecho a postularse a reelección una sola vez consecutiva, siempre que hubiere desempeñado el cargo un máximo de doce meses58.
+58 Modificación aprobada en la Asamblea Colegiada Representativa No. 105 del 2 de diciembre de 1998 y publicada en la Gaceta Oficial No. 103 del 28 de mayo de 1999.

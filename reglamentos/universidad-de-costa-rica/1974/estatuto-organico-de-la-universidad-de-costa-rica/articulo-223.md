@@ -1,0 +1,1 @@
+ARTÍCULO 223.- El plazo para interponer los recursos de revocatoria y de apelación será de cinco días hábiles que se contarán a partir del momento en que se comunique la decisión correspondiente al interesado.

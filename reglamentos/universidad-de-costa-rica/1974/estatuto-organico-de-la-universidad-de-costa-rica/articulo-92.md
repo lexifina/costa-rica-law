@@ -1,0 +1,1 @@
+ARTÍCULO 92.- Para suplir las ausencias temporales del Decano y mientras duren éstas, la Asamblea de Facultad nombrará a un Vicedecano por un período de dos años con posibilidad de reelección inmediata. Deberá reunir los mismos requisitos que se exigen para ser Decano. Se podrán levantar los requisitos, de conformidad con lo dispuesto en el artículo 91 de este Estatuto.

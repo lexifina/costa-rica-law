@@ -1,0 +1,1 @@
+ARTÍCULO 89.- Los Decanos, en línea jerárquica inmediata, estarán en relación directa con el Vicerrector de Docencia. Mantendrán, asimismo, la conexión necesaria con los otros Vicerrectores, para el desarrollo de las actividades que éstos supervisan y coordinan.

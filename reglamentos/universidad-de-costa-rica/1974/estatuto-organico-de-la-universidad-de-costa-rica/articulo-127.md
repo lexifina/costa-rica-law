@@ -1,0 +1,2 @@
+ARTÍCULO 127.- Los Directores son los funcionarios que dirigen las Unidades Académicas de la Investigación. En línea jerárquica estarán bajo la autoridad de la instancia que determine su estructura. Deberán tener jornada de tiempo completo en la Institución, excepto en aquellos casos en los cuales el reglamento respectivo lo establezca.
+Modificación aprobada en la Asamblea Colegida Representativa No. 114 del 31 de octubre de 2001 y 12 de noviembre de 2001 y publicada en la Gaceta Oficial No. 17 del 24 de enero de 2002.

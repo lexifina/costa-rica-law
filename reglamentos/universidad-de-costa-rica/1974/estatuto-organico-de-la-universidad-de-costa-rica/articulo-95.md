@@ -1,0 +1,1 @@
+ARTÍCULO 95.- Los Asistentes Administrativos de Facultad son los colaboradores inmediatos del Decano; serán nombrados por él y permanecerán en sus cargos durante el período en que éste ejerza el decanato. Podrán ser removidos por el Decano, previo informe al Consejo Asesor de Facultad, o a solicitud de éste.

@@ -1,0 +1,1 @@
+ARTÍCULO 142- Las votaciones para elegir a las autoridades de las unidades académicas serán supervisadas siempre por Delegados del Tribunal Electoral Universitario. Conjuntamente con quien preside el acto, realizarán el escrutinio y declararán el resultado de la elección.

@@ -1,0 +1,1 @@
+ARTÍCULO 187.- Como regímenes especiales de enseñanza, la Universidad puede permitir la aprobación de cursos por suficiencia o por tutoría. Los detalles de estos regímenes los señalan los reglamentos correspondientes.

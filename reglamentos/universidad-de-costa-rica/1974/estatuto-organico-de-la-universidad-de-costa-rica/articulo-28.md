@@ -1,0 +1,1 @@
+ARTÍCULO 28.- Los miembros del Consejo Universitario, cuando sean profesores, ejercerán sólo funciones académicas en la unidad respectiva siempre que éstas no interfieran con sus labores como miembros del Consejo Universitario.

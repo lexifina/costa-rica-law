@@ -1,0 +1,1 @@
+ARTÍCULO 21.- El Presidente de la Asamblea podrá limitar el número y duración de las intervenciones de los miembros de la Asamblea pero, si así lo hiciere, deberá dar igual oportunidad a los representantes de las distintas tesis.

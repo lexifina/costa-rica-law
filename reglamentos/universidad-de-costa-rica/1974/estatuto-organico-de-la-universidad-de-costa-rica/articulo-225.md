@@ -1,0 +1,1 @@
+ARTÍCULO 225.- Quien dicte la resolución que se apela tiene la obligación de tramitar la apelación ante el superior inmediato dentro de los cinco días hábiles siguientes, e incluirá cualquier observación que a su juicio invalide la apelación por cuestiones de tiempo o forma, además de los documentos correspondientes.

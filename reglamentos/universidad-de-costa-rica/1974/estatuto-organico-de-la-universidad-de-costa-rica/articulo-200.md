@@ -1,0 +1,1 @@
+ARTÍCULO 200.- La aprobación formal de cada plan de estudios le corresponde al Vicerrector de Docencia, previa consulta a las unidades académicas que pudieran resultar afectadas y dentro de las previsiones presupuestarias acordadas por el Consejo Universitario.

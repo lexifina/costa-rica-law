@@ -1,0 +1,1 @@
+ARTÍCULO 215.- La Vicerrectoría de Administración mantendrá al día la lista de leyes vigentes que producen ingresos a la Universidad de Costa Rica. Todos los ingresos de la Universidad, cualquiera que fuere su origen, deberán centralizarse en un fondo único. Las inversiones o disposiciones de fondos deberán realizarse en estricta conformidad con el presupuesto.

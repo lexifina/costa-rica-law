@@ -1,0 +1,1 @@
+ARTÍCULO 67.- Los demás Consejos Coordinadores se reunirán cuando los convoque uno de los Coordinadores de Área o uno de los Vicerrectores. Estarán presididos por el Vicerrector, en caso de que éste lo convoque, o por el miembro que el Consejo designe en el momento de la reunión.

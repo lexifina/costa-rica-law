@@ -1,0 +1,1 @@
+ARTÍCULO 43.- El Consejo de Rectoría es el órgano asesor del Rector compuesto por éste y los Vicerrectores. El Rector podrá convocar también, cuando lo estime conveniente, al representante estudiantil designado por la Federación de Estudiantes de la Universidad de Costa Rica para ese propósito.

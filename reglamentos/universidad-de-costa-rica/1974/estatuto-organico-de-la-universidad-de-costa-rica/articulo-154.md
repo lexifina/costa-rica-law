@@ -1,0 +1,1 @@
+ARTÍCULO 154.- Los acuerdos del Congreso se comunicarán al Consejo Universitario y éste pondrá en ejecución los que considere aplicables conforme a sus atribuciones y los que no, tendrá que hacerlos de conocimiento de la Asamblea Colegiada Representativa con el justificativo del caso para que ésta decida lo que corresponda, dentro de los seis meses siguientes.

@@ -1,0 +1,1 @@
+ARTÍCULO 63.- Competerá al Consejo Asesor de la Vicerrectoría de Docencia, además de sus funciones propias, conocer en alzada de los acuerdos tomados por las Asambleas de Facultades, de Escuelas, de Sedes Regionales y de los tomadas por los Consejos Asesores de Facultad.

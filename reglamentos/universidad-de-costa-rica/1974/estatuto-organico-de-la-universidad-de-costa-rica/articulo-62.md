@@ -1,0 +1,2 @@
+ARTÍCULO 6225.- El Consejo Asesor de la Vicerrectoría de Vida Estudiantil estará integrado por el Vicerrector de Vida Estudiantil, quien preside, por los Jefes de las Oficinas Administrativas que la conforman, de las Sedes Regionales, designado por el Consejo de Área de Sedes, y un representante estudiantil designado por la Federación de Estudiantes de la Universidad de Costa Rica.
+25Modificación aprobada en la Asamblea Colegiada Representativa No. 112 del 04 de abril de 2001 y publicada en la Gaceta Oficial No. 138 del 18 de julio de 2001.

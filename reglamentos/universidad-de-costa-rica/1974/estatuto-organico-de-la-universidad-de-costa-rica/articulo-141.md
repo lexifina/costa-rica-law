@@ -1,0 +1,1 @@
+ARTÍCULO 141.- El Tribunal Electoral supervisará y mantendrá bajo su jurisdicción y al día, la integración de los padrones electorales universitarios y decidirá en las divergencias que se susciten respecto a los procesos electorales, salvo los estudiantiles. Elaborará el Reglamento de Elecciones que deberá ser aprobado por el Consejo Universitario.

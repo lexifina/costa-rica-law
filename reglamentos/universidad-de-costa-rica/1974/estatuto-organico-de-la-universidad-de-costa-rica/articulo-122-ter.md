@@ -1,0 +1,1 @@
+ARTÍCULO 122 C.- El Consejo del Sistema se reunirá por lo menos una vez al mes, y extraordinariamente cuando sea convocado por el Vicerrector de Investigación o a petición de tres de sus miembros. El Vicerrector de Investigación presidirá las sesiones y en su ausencia lo sustituirá el Vicerrector de Docencia.

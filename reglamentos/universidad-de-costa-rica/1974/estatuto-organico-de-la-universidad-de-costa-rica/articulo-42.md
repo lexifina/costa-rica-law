@@ -1,0 +1,1 @@
+ARTÍCULO 42.- El Rector designará un secretario de la Rectoría con las atribuciones que él mismo le señale y con el carácter de empleado de confianza. Este funcionario cesará en su cargo al terminar el Rector su período, pero no habrá impedimento para designarlo de nuevo.

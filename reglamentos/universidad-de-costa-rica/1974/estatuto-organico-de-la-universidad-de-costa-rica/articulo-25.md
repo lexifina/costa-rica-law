@@ -1,0 +1,3 @@
+ARTÍCULO 25.- Los miembros del Consejo Universitario a que se refieren los incisos a) y b) del artículo anterior, se elegirán por períodos de cuatro años, sin derecho a reelección inmediata, salvo el caso contemplado en el artículo 144 de este Estatuto. Su renovación se hará nombrando tres o cuatro miembros, según corresponda. Deberán dedicar al menos medio tiempo al ejercicio de sus funciones8. 8Modificación aprobada en la Asamblea Colegiada Representativa No. 105 del 2 de diciembre de 1998.
+El miembro del Consejo Universitario al que se refiere el inciso e) del artículo anterior se elegirá por un plazo de dos años renovable una sola vez9.
+9Ver Transitorio 11.

@@ -1,0 +1,1 @@
+ARTÍCULO 176.- En la Universidad de Costa Rica existirán las siguientes clases de profesores: Instructor, Profesor Adjunto, Profesor Asociado y Catedrático. Existirán además: Retirado, Emérito, Interino, Ad-honorem, Invitado y Visitante.

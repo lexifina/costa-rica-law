@@ -1,0 +1,1 @@
+ARTÍCULO 199.- Los planes de estudio interdisciplinario se ejecutarán por medio de un Consejo de Carrera, integrado por profesores miembros de las diversas unidades académicas que participan en dichos planes, quienes elegirán a su Coordinador.

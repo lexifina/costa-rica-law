@@ -1,0 +1,3 @@
+Transitorio 18.- Para su ubicación definitiva, la Asamblea de Escuela de Ciencias de la Computación e Informática propondrá a la Asamblea Colegiada Representativa, el Área y la Facultad más afines con sus objetivos y funciones al cumplir esta Escuela sus dos años de existencia.
+Mientras tanto, en línea jerárquica, el Director estará bajo la autoridad de los Vicerrectores en sus respectivos campos de acción.
+(Se acoge recomendación de la Asamblea de la Escuela de Ciencias de la Computación e Informática para que esta Escuela pase a formar parte del Área de Ingeniería y de la Facultad de Ingeniería. Asamblea Colegiada Representativa No. 31 del 22 de junio de 1984, modificación al artículo 80 inciso d) ).

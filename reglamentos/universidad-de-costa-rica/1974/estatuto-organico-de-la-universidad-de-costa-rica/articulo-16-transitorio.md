@@ -1,0 +1,1 @@
+Transitorio 16.- El Consejo Universitario determinará el momento en que se nombren los Coordinadores de Área, según lo dispuesto en el artículo 76 de este Estatuto. Mientras tanto, lo serán los Decanos de las Facultades que integran el Área y los Directores de Sedes Regionales nombrados en forma rotativa por el Vicerrector de Docencia. Atenderán las funciones por un año.

@@ -1,0 +1,1 @@
+ARTÍCULO 191.- La Universidad organizará, de acuerdo con sus posibilidades, cursos preparatorios para los estudiantes que, por insuficiencia de conocimientos, no hubieren sido admitidos en los primeros cursos de las unidades académicas donde solicitaron ingreso.

@@ -1,0 +1,1 @@
+Transitorio 14.- Al nombrar el primer Tribunal, el Consejo Universitario decidirá a la suerte el período de cada uno de sus miembros, de manera que la mitad sea sustituida al terminar el tercer año de su ejercicio.

@@ -1,0 +1,1 @@
+ARTÍCULO 138.- El Tribunal se reunirá, por lo menos, una vez al mes y extraordinariamente cuando sea convocado por el Presidente, por propia iniciativa o a instancia de tres de sus miembros. El quórum para las sesiones se hará con cuatro de sus miembros.

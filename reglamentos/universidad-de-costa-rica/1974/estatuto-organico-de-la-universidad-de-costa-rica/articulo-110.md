@@ -1,0 +1,4 @@
+ARTÍCULO 110.- Corresponde al Consejo de Sedes Regionales coordinar las actividades de las sedes regionales y proponer al Consejo Universitario las políticas pertinentes en materia de regionalización, emanadas de las respectivas asambleas de sedes.
+Integran el Consejo de Sedes Regionales: los directores de las sedes y una representación estudiantil no mayor al 25% del total de los profesores miembros de ese Consejo. Este Consejo nombrará un coordinador de entre los Directores, quien desempeñará sus funciones por dos años y no podrá ser reelecto en forma sucesiva.
+El representante de las Sedes Regionales ante el Consejo Universitario es miembro ex-oficio del Consejo de Sedes, con voz pero sin voto.
+Este Consejo está equiparado a un Consejo de Área para los otros efectos que señale este Estatuto.

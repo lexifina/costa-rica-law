@@ -1,0 +1,7 @@
+CAPÍTULO V
+Reformas al Estatuto
+ARTÍCULO 23670.- La iniciativa en materia de reformas al Estatuto Orgánico corresponde a los miembros del Consejo Universitario y a la Asamblea Colegiada Representativa. Los anteproyectos de reforma provenientes de otras fuentes sólo podrán ser acogidos, para su trámite, por un miembro de dicho Consejo.
+En ambos casos la Comisión respectiva del Consejo Universitario hará un estudio preliminar del anteproyecto. La propuesta de la Comisión se publicará en la Gaceta Universitaria y en el Semanario Universidad, con el propósito de consultar el criterio de la comunidad universitaria, durante un periodo de treinta días hábiles, a partir de la fecha de la última publicación. El Director del Consejo Universitario comunicará la propuesta a los directores de las unidades académicas, quienes deberán consultarla con las respectivas asambleas dentro del plazo establecido.
+La Comisión respectiva procederá a elaborar el o los dictámenes.
+El o los dictámenes se analizarán en el seno del Consejo Universitario. El que se apruebe se publicará en el Semanario Universidad con al menos tres semanas de antelación a la fecha del primer debate y deberá ser aprobado en dos sesiones ordinarias del Consejo Universitario y al menos por dos tercios de los miembros presentes, para su posterior decisión en la Asamblea Colegiada Representativa.
+70 Modificación aprobada en la Asamblea Colegiada Representativa No. 112 del 04 de abril de 2001 y publicada en la Gaceta Oficial No. 138 del 18 de julio de 2001.

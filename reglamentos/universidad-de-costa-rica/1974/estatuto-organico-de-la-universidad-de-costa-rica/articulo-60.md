@@ -1,0 +1,1 @@
+ARTÍCULO 60.- El Consejo Asesor de la Vicerrectoría de Acción Social estará formado por el Vicerrector de Acción Social, quien lo preside, por los coordinadores de Área y el Vicerrector de Investigación o su delegado.

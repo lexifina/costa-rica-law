@@ -1,0 +1,2 @@
+ARTÍCULO 34.- El quórum para las sesiones del Consejo Universitario será de seis miembros. Las resoluciones se tomarán por mayoría de los votos presentes, en votación nominal, excepto para aquellos casos en que se estableciere una mayoría especial o estuviere dispuesto o se acordare votación en secreto. En caso de empate, el Director decidirá, aun cuando la votación fuere secreta.15
+15 Concordancia aprobada en sesión 4774, artículo 06 del 12 de febrero de 2003. Publicada en Gaceta Universitaria 02-2003 del 04 de marzo de 2003.

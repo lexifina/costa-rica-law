@@ -1,0 +1,1 @@
+ARTÍCULO 84 bis.- Si la Facultad no adoptase la modalidad de Asambleas Plebiscitaria y Representativa su Asamblea tendrá como atribuciones las contenidas en los artículos 82 y 82 bis de este Estatuto.

@@ -1,0 +1,2 @@
+ARTÍCULO 32.- El Consejo Universitario elegirá un Director de entre sus miembros, quien durará en sus funciones un año y no podrá ser reelecto en forma inmediata. Podrán aspirar a este cargo los miembros del Consejo a los cuales se refieren los incisos a) y b) del artículo 24.14
+14Concordancia aprobada en sesión 4774, artículo 06 del 12 de febrero de 2003. Publicada en Gaceta Universitaria 02-2003 del 04 de marzo de 2003.

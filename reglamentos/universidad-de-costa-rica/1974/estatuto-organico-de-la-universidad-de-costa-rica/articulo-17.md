@@ -1,0 +1,1 @@
+ARTÍCULO 17.- La Asamblea Plebiscitaria ejercerá sus funciones en las fechas señaladas por el Reglamento de Elecciones Universitarias en el caso del inciso a) del artículo 15 de este Estatuto, o mediante convocatoria especial extraordinaria que hará el Consejo Universitario, o la Asamblea Colegiada Representativa, en los casos de los incisos b) y c) ibidem.

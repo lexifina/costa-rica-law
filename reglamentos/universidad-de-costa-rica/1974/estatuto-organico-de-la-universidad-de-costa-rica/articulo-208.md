@@ -1,0 +1,1 @@
+ARTÍCULO 208.- La Universidad celebra dos actos de graduación durante el año académico, en las fechas que señale el Calendario Universitario y de acuerdo con las normas que dicte el Consejo Universitario.

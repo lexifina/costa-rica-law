@@ -1,0 +1,1 @@
+ARTÍCULO 3.- El propósito de la Universidad de Costa Rica es obtener las transformaciones que la sociedad necesita para el logro del bien común, mediante una política dirigida a la consecución de una verdadera justicia social, del desarrollo integral, de la libertad plena y de la total independencia de nuestro pueblo.

@@ -1,0 +1,1 @@
+ARTÍCULO 61.- El Consejo Asesor de la Vicerrectoría de Administración estará integrado por el Vicerrector de Administración, quien lo preside y por los jefes de las Oficinas de Administración Financiera, Personal, Publicaciones, Servicios Generales y Suministros.

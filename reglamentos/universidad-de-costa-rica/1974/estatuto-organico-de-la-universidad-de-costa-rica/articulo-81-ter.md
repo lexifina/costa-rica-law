@@ -1,0 +1,1 @@
+ARTÍCULO 81 ter.- Si la Asamblea de una unidad subdividida en Asambleas Representativas y Plebiscitarias de acuerdo con el artículo 81 bis, reduce posteriormente su número a menos de cincuenta miembros no estudiantes, quien la preside comunicará su disolución al Tribunal Electoral Universitario en un término no mayor de dos meses.

@@ -1,0 +1,1 @@
+Transitorio 10.- Forman parte también de la Asamblea Universitaria, aquellos profesores en servicio que hubieren sido nombrados con anterioridad al 10 de mayo de 1966, lo mismo que los profesores honorarios.

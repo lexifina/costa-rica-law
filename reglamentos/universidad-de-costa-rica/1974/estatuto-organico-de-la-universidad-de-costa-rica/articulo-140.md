@@ -1,0 +1,1 @@
+ARTÍCULO 140.- Las decisiones del Tribunal deberán ser razonadas, se adoptarán por el voto de la mayoría de sus componentes y serán obligatorias e inapelables. Contra ellas no existirá recurso interno alguno, salvo los de adición o aclaración.

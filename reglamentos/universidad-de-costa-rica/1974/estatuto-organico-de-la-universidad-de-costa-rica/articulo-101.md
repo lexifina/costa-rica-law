@@ -1,0 +1,1 @@
+ARTÍCULO 101.- La asistencia a las sesiones de la Asamblea de Escuela es obligatoria para todos sus miembros. El reglamento correspondiente contemplará las disposiciones relativas al incumplimiento de esta obligación.

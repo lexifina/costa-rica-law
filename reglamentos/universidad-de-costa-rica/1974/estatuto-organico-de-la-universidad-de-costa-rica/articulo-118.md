@@ -1,0 +1,1 @@
+ARTÍCULO 118.- Los acuerdos que tome el Consejo del Sistema de Educación General en relación con los programas de estudio, tendrán carácter determinativo y únicamente podrán ser apelados ante el Consejo Universitario.

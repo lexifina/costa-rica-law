@@ -1,0 +1,2 @@
+ARTÍCULO 76.- Cada Área tendrá un Coordinador que será un funcionario de tiempo completo, con rango de Catedrático o de Profesor Asociado, nombrado por el Vicerrector de Docencia. A ese efecto, cada una de las Facultades que componen el Área presentará un candidato. El Vicerrector no podrá escoger al candidato de una misma Facultad para un período sucesivo inmediato. Durará en su cargo cuatro años28.
+28 Ver Transitorio 16.

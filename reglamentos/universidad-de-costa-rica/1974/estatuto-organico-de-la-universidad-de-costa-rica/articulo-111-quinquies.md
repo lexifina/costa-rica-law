@@ -1,0 +1,1 @@
+ARTÍCULO 111 quinquies.- Si la Sede Regional no adoptase las modalidades de Asamblea Plebiscitaria y Asamblea Representativa, su asamblea tendrá las atribuciones contenidas en los artículos 111 bis y 111 ter.

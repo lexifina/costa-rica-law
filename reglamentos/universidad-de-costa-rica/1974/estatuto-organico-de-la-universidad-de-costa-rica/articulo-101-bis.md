@@ -1,0 +1,1 @@
+ARTÍCULO 101 bis.- Si la Escuela no adoptase la modalidad de Asambleas Plebiscitaria y Representativa su Asamblea tendrá como atribuciones las contenidas en los artículos 99 y 99 bis de este Estatuto.

@@ -1,0 +1,1 @@
+ARTÍCULO 190.- La política de admisión a las unidades académicas debe ser aprobada por el Vicerrector de Docencia, quien eliminará cualquier medida arbitraria que limite el cupo en la matrícula de un curso o el acceso a una carrera. En aquellas asignaturas o planes de estudio en que existan limitaciones de matrícula, fijará el orden de prioridades que deba seguirse.

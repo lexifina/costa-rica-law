@@ -1,0 +1,1 @@
+ARTÍCULO 179.- Los reglamentos correspondientes regularán en detalle las diversas clases de profesores, y sus derechos, obligaciones, nombramientos, ingresos al régimen académico, régimen disciplinario, despidos y las actividades que les sean propias.

@@ -1,0 +1,1 @@
+ARTÍCULO 174.- Las asociaciones que carezcan de estatutos o de reglamentos inscritos no tienen derecho a hacerse representar. Cualquier actuación contraria a lo dispuesto en los Estatutos inscritos será absolutamente nula.

@@ -1,0 +1,1 @@
+ARTÍCULO 202.- La calificación del alumno en una asignatura es el resultado de la evaluación de su trabajo durante el transcurso del período lectivo y de la nota del examen final del curso, cuando éste exista. El reglamento correspondiente regula en detalle la forma de evaluar el curso y debe hacerse del conocimiento de los estudiantes.

@@ -1,0 +1,1 @@
+Transitorio 5.- Quienes ocupan actualmente cargos de: Rector, Decano, Director de Sede Regional o de Escuela, continuarán en sus puestos hasta el término por el que fueron electos y podrán ser reelegidos por un período consecutivo más.

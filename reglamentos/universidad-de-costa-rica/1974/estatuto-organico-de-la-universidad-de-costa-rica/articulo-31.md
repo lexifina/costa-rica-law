@@ -1,0 +1,1 @@
+ARTÍCULO 31.- El Consejo se reunirá al menos dos veces por semana y extraordinariamente cuando lo convoque su Director, por propia iniciativa, a solicitud del Rector o de tres de sus miembros. La asistencia a las sesiones es obligatoria.

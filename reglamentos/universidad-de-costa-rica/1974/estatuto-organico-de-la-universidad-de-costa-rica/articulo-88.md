@@ -1,0 +1,1 @@
+ARTÍCULO 88.- Los Decanos son los funcionarios que dirigen y representan a las Facultades; constituyen el medio obligado de comunicación de los Directores de Escuela con los Coordinadores de Área y con los Vicerrectores.

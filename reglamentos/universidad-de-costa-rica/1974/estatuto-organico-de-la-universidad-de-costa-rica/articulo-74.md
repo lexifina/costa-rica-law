@@ -1,0 +1,1 @@
+ARTÍCULO 74.- Las sesiones del Consejo de Área se celebrarán una vez al mes y, extraordinariamente, cuando las convoque el Coordinador de Área por iniciativa propia, o a solicitud de por lo menos tres de sus miembros.

@@ -1,0 +1,1 @@
+ARTÍCULO 195.- Se procurará incluir en todas las etapas de los planes de estudio, actividades organizadas y coordinadas por el Vicerrector de Acción Social y cursos aprobados por el Consejo del Sistema de Educación General.

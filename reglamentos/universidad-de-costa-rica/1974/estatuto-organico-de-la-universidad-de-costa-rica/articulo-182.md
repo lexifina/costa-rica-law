@@ -1,0 +1,2 @@
+ARTÍCULO 182.- Los estudiantes costarricenses tendrán prioridad en la matrícula cuando se fije cupo.
+Se exceptúa de los efectos de esa disposición a los extranjeros con tres años por lo menos de residencia en el país y a las personas cubiertas por los tratados o convenios internacionales, siempre que existan documentos probatorios de trato recíproco o similar. Así también se exceptúan de los efectos de esta disposición a las personas amparadas por el derecho de asilo y la cortesía internacional.

@@ -1,0 +1,1 @@
+Transitorio 6.- Quienes ocupan actualmente cargos de: Decano, Director de Sede Regional, de Escuela o Departamento, si fuesen reelegidos, podrán mantener las mismas condiciones de jornada que tenían en la fecha de promulgación del presente Estatuto.

@@ -1,0 +1,1 @@
+ARTÍCULO 2.- La Universidad de Costa Rica goza de independencia para el desempeño de sus funciones y de plena capacidad jurídica para adquirir derechos y contraer obligaciones, así como para darse su organización y gobierno propios. Su régimen decisorio es democrático y por consiguiente en ella las decisiones personales y colectivas se realizan con absoluta libertad.

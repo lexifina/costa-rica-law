@@ -1,0 +1,3 @@
+V. Títulos y Grados Académicos
+ARTÍCULO 205.- La Universidad confiere títulos con los siguientes grados o niveles académicos: Bachillerato Universitario, Licenciatura, Maestría y Doctorado Académico, estos dos últimos como culminación de estudios de posgrado. El grado o nivel académico se refiere a la extensión y la intensidad de los estudios realizados. El título se refiere al área del conocimiento, carrera o campo profesional en el cual se otorga el grado académico y designa el área de acción del graduado. La Universidad consignará en los diplomas tanto el grado o nivel académico como el título.
+Los estudios de posgrado que conduzcan a una especialización profesional se certificarán con el título de Especialista en el campo correspondiente.

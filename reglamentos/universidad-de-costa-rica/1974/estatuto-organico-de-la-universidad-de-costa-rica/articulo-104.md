@@ -1,0 +1,1 @@
+ARTÍCULO 104.- Para suplir las ausencias temporales del Director y mientras duren éstas, la Asamblea de Escuela nombrará a un Subdirector por un período de dos años con posibilidad de reelección inmediata. Debe reunir los mismos requisitos que se exigen para ser Director; se podrán levantar los requisitos de conformidad con lo dispuesto en el artículo 91 de este Estatuto.

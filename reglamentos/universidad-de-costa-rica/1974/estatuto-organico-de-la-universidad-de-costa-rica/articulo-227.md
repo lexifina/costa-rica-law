@@ -1,0 +1,1 @@
+ARTÍCULO 227.- Todo recurso deberá interponerse por escrito ante el organismo o autoridad que haya dictado la resolución de que se trate. Quien lo presente, tendrá derecho a que se consigne la fecha en que ha interpuesto su recurso en la copia de su escrito.

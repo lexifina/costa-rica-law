@@ -1,0 +1,1 @@
+ARTÍCULO 235.- La Universidad de Costa Rica mantiene como régimen de ayuda complementaria, un sistema de Ahorro y Préstamo al cuidado de una Junta nombrada por el Consejo Universitario conforme a la ley No. 4273 del 6 de diciembre de 1968.

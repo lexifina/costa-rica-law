@@ -1,0 +1,1 @@
+ARTÍCULO 169.- La Federación de Estudiantes de la Universidad de Costa Rica (FEUCR), es el órgano de gobierno estudiantil que se rige por sus propios estatutos y reglamentos inscritos en la Vicerrectoría de Vida Estudiantil.

@@ -1,0 +1,1 @@
+ARTÍCULO 207.- Los grados y títulos que confiere la Universidad son válidos para el ejercicio de las profesiones cuya competencia acreditan, con los derechos que señalen las Leyes Orgánicas de los Colegios Profesionales Universitarios.
