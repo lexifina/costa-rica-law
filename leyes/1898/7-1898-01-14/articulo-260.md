@@ -1,0 +1,1 @@
+Art 260° En todos los casos en que se promueva competencia, mientras ésta no se resuelva quedará el procedimiento en suspenso, sin perjuicio de que las autoridades que lo hubiesen incoado continúen practicando las diligencias que sean necesarias para la comprobación del delito, y sus circunstancias, así como todas las demás que se consideren de reconocida urgencia.

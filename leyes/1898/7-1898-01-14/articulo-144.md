@@ -1,0 +1,1 @@
+144° La conspiración para el delito de traición se castigará con las penas inmediatamente inferiores a las señaladas al mismo en los respectivos casos y la proporción para efectuarla será castigada con la de cinco a diez años de presidio.

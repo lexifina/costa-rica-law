@@ -1,0 +1,1 @@
+Art 122° Toda pena que se imponga por delito, llevará consigo la pérdida de los efectos que de él provengan y de los instrumentos con que se hubiesen ejecutado, debiendo inutilizarse estos sin no son de uso ilícito, ingresar a los Almacenes de Guerra si lo son, o devolverse a su dueño, si siéndolo, pertenecen a un tercero irresponsable.

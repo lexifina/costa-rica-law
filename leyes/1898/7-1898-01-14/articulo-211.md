@@ -1,0 +1,1 @@
+Art 211° El militar que con males supuestos o cualquiera otro pretexto se excuse de cumplir sus deberes o no se conforme con el supuesto o servicio a que fuere destinado, sufrirá en Campaña, la pena de reclusión en celda a presidio.

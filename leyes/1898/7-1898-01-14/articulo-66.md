@@ -1,0 +1,2 @@
+Art 66° El nombramiento de Juez Instructor se hará para cada causa por la autoridad judicial militar que ejerza la jurisdicción o por las autoridades o Jefes Militares que den la orden se proceder o de prevenir la formación del procedimiento, según sus atribuciones respectivas, y recaerá siempre sus atribuciones respectivas y recaerá siempre en Oficial que dependa de la autoridad o Jefe que lo nombre.
+Para las causas de que deba conocer el Consejo de Guerra ordinario, será nombrado Juez Instructor un Comandante Mayor o el Jefe detalle.

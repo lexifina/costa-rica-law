@@ -1,0 +1,1 @@
+Art 386° En la diligencia que se extienda sobre la entrada y registro en el edificio o lugar cerrado, se expresarán los nombres de las personas que intervengan, los incidentes que ocurran, la relación de lo registrado por el orden que se lleve a efecto, los resultados obtenidos y la hora en que se principia y acaba.

@@ -1,0 +1,1 @@
+Art 48° Recibidas todas las declaraciones en sesión permanente del Consejo, se suspenderá ésta por cuatro horas, para que en dos de ellas, el Fiscal formule su conclusión, dejando dos horas el defensor para formar su alegato en vista de las pruebas y de la conclusión fiscal, todo lo cual se franqueará.

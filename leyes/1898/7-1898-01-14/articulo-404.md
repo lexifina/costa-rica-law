@@ -1,0 +1,2 @@
+Art 404° Si los peritos estuvieren discordes, el juez instructor recabará el nombramiento de otro.
+Las operaciones periciales se repetirán con intervención del nuevamente nombrado, ejecutándose además todas las que se estimen convenientes, pero si no fuese posible repetirlas ni practicar otras útiles, se limitará la intervención del tercer perito a deliberar con los otros sobre el reconocimiento hecho por ellos y a formular la opinión que todo hubiere formado.

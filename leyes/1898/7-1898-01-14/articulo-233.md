@@ -1,0 +1,1 @@
+Art 233° En tiempo de guerra, o en territorio declarado en tal estando, los plazos señalados en los artículos anteriores podrán ser reducidos por el Gobierno y en las órdenes generales del comandante en Jefe del Ejército.

@@ -1,0 +1,1 @@
+Art 131° Cuando para aplicar la pena correspondiente, con arreglo a este Código, hubiese que bajar de la prisión militar se considerará el hecho como falta grave, imponiéndose pena correccional en la extensión que el Tribunal estime justa.

@@ -1,0 +1,1 @@
+Art 382° El Juez Instructor practicará por sí mismo el registro a no ser que tenga solo por objeto la aprehensión de alguna persona, en cuyo caso podrá cometer la diligencia a un agente de la fuerza pública.

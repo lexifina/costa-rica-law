@@ -1,0 +1,1 @@
+Art 246° El oficial que cometa faltas de embriaguez, de asistir a juegos prohibidos o de contraer deudas sin necesidad justificada, sufrirá por primera vez pena correccional hasta de quince días de arresto, y por la segunda, hasta un mes.

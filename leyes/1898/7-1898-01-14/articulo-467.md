@@ -1,0 +1,1 @@
+Art 467° Terminados los alegatos el Presidente declarará cerrado el debate, hará conducir al reo a su prisión y que se retiren todos los concurrentes, o pasarán los Vocales a otra pieza, si la hubiere, y se constituirá el otra pieza, si la hubiere, y se constituirá el Consejo en sesión secreta para deliberar sobre los hechos que resulten probados, según su conciencia.

@@ -1,0 +1,1 @@
+Art 109° Para la calificación y penal del delito consumado, frustrado y tentativa de delito, así como en lo concerniente a la calidad y responsabilidades de autores, cómplices y encubridores, se observarán los preceptos del Código Penal ordinario.

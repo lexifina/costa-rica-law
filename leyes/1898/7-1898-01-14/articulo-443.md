@@ -1,0 +1,1 @@
+Art 443° El defensor se limitará en su contestación a aceptar o combatir los puntos de hecho o de derecho contenidos en la acusación Fiscal, exponiendo después las razones que conduzcan a demostrar la inocencia de su defendido o atenuar su responsabilidad, pero contrayéndose siempre al objeto del procedimiento.

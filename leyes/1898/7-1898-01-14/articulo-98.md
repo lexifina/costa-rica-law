@@ -1,0 +1,1 @@
+Art 98° Todo Superior militar debe hacer uso de su autoridad, respecto a las faltas de disciplinas que se cometan en su presencia, aun cuando el culpable no este bajo sus órdenes ni pertenezca al mismo Cuerpo.

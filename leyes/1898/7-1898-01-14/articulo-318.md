@@ -1,0 +1,1 @@
+Art 318° El grupo o rueda que se forme para el reconocimiento se compondrá a lo menos de seis personas siempre que sea una sola la que haya de ser objeto del acto, pero a ser posible, se aumentará tres más por cada una de las que deban ser reconocidas.

@@ -1,0 +1,1 @@
+Art 268° La recusación de las personas contra quienes pueda promoverse, y el motivo en que se funde se pondrá inmediatamente en conocimiento de la persona recusada, a fin de que si tuviere por verdadero el motivo alegado, que no hubiere conocido antes, pueda inhibirse o pedir su sustitución, según los casos, en conformidad a lo establecido en el artículo 262.

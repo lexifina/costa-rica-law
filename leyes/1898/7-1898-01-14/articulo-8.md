@@ -1,0 +1,1 @@
+Art 8°.- La Jurisdicción de Guerra conoce también de las faltas cometidas por los militares en ejercicio de sus funciones que afecten inmediatamente al desempeño de las mismas, así comandante en Jefe del Ejercito y demás autoridades militares, y de aquellas en que incurran los Abogados en el desempeño de sus cargos como defensores ante los Tribunales de Guerra.

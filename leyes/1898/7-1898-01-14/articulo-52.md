@@ -1,0 +1,1 @@
+Art 52° Los individuos de la Marina, de los Cuerpos de Policía de Orden y Seguridad, de los Resguardos de Hacienda, de las Músicas Militares y Bandas y de todos los demás Cuerpos sometidos a la jurisdicción de Guerra, se considerarán equiparados a los Ejercito por razón de sus empleos y condiciones, en cuanto al señalamiento del Tribunal que haya de juzgarles.

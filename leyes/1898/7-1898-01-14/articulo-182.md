@@ -1,0 +1,1 @@
+Art 182° Las penas señaladas en los artículos anteriores de este Capítulo serán igualmente aplicables en los respectivos casos, a los milicianos, por los actos de insubordinación que comentan durante el servicio de instrucción a que están obligados.

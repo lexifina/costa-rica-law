@@ -1,0 +1,1 @@
+Art 85° Las correcciones impuestas disciplinariamente a los funcionarios que intervengan en el ejercicio de la jurisdicción de Guerra, no serán obstáculo para que se instruya expediente gubernativo, cuando por la gravedad del hecho pueda proceder la separación del servicio.

@@ -1,0 +1,1 @@
+Art 401° Cuando los peritos tengan necesidad de destruir o alterar las sustancias u objetos que analicen, procurará el Juez Instructor conservar parte de ellos, para proceder, en caso necesario a un nuevo análisis.

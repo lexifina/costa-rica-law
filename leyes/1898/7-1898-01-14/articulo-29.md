@@ -1,0 +1,1 @@
+Art 29° Si la División o Brigada o Cuerpo de tropa fuesen sólo prevenidos o de ocupación, los Generales o Comandantes de las mismas tendrán, en las fuerzas de su mando, igual jurisdicción que los Comandantes de provincia.

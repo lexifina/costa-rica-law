@@ -1,0 +1,2 @@
+Art 275° El Juez Instructor se entenderá directamente con la respectiva Comandancia de provincia o de comarca, y por su conducto remitirá los suplicatorios, exhortos, interrogatorios, edictos y comunicaciones que deban tener cumplimiento fuera de la circunscripción jurisdiccional.
+En el territorio comprendido en la jurisdicción podrá el juez Instructor reclamar por sí los auxilios necesarios de las autoridades y funcionarios militares, y civiles, entendiéndose con ellos en la forma prevenida en el párrafo anterior.

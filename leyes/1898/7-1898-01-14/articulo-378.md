@@ -1,0 +1,2 @@
+Art 378° Para el registro de naves de naves de guerra extranjeras o de edificios a la habitación u oficina de los representantes de las naciones extranjeras acreditadas ante el Gobierno de la República, el Juez Instructor pedirá su venida al respectivo representante, por medio de un oficio en el cual le rogará que conteste dentro de veinticuatro horas.
+Si el Representante Diplomático negare su venida, o sino contestare dentro del término indicado el Juez Instructor se abstendrá del registro, sin perjuicio de tomar las medidas de vigilancia que fueren convenientes.

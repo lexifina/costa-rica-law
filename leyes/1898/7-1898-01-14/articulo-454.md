@@ -1,0 +1,9 @@
+Art 454° El Presidente del Consejo tiene las atribuciones siguientes:
+1° Hacer guardar el orden por los concurrentes, cuidando de que ninguno entre armado al local de la reunión del Consejo, y que estén descubiertos, con respecto y en silencio.
+Todo acto de aprobación o improbación todo desorden durante la sesión, será motivo para hacer despejar la barra, y para castigar a los responsables con tres días de arresto en el Cuartel, que impondrá el Presidente en el acto.
+2° En caso de que el tumulto o desorden tome un carácter mas serio, requerirá la Guardia, hará aprehender a los culpables y levantará allí mismo el sumario, para consignarlo con el a la autoridad que deba juzgarlo.
+3° Hacer comparecer a los testigos compeliéndose con multas hasta de cincuenta pesos, o con arresto hasta de quince días, a que concurra a la audiencia. En caso de muerte o ausencia comprobada de un testigo, podrá hacer abonar su dicho si fuere esencial, por la declaración de dos personas que lo hayan conocido y puedan dar razón de su veracidad.
+4° Arrestar en el acto al testigo que se contradiga notoriamente o que declare falsamente comprobando el hecho para someterlo a juicio.
+5° Hacer por si mismo, o por medio del Auditor de Guerra, el interrogatorio de los testigos, con sólo ánimo de descubrir la verdad y de ningún modo para hacerlos contradecir o para confundirlos o intimarlos;
+6° Dirigir el debate y llamar al orden al Fiscal, al defensor y al reo en los casos en que se excedan con palabras ofensivas o amenazas contra los miembros del Consejo o contra cualquiera otra persona. Si de las palabras o amenazas se pasare a vías de hecho, dispondrá lo conveniente para el arresto del culpable y para su castigo.
+7° Hará retirar de las audiencias al reo, cuando éste se propase o de señal de no poder se contener, o de estar fuera de sus sentidos o cuando su presencia sea causa de clamores o desórdenes tumultuosos.

@@ -1,0 +1,2 @@
+Art 333° Los Ministros Diplomáticos y los Encargados de Negocios, serán invitados a prestar declaración por escrito. Si se negarán a declarar, la autoridad judicial militar dará cuenta de la negativa a la Secretaría de la Guerra.
+Cuando haya de verificarse el examen de testigos fuera del lugar del juicio, al exhorto o despacho que para ello, se dirija se acompañará los interrogatorios que hayan presentado las partes.

@@ -1,0 +1,1 @@
+Art 176° El militar que ponga mano en arma ofensiva o ejecute actos o demostraciones, con tendencias a ofender de obra a un Superior, incurrirá en la pena inmediatamente inferior a la señalada en el artículo anterior, según los casos.

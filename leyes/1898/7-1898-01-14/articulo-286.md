@@ -1,0 +1,1 @@
+Art 286° Cuando el encargado de hacer la citación o emplazamiento no encontrare en su domicilio a la persona que deba ser citada, entregará la papeleta o dará aviso al pariente, o criados mayores de catorce años que hallare en dicho domicilio

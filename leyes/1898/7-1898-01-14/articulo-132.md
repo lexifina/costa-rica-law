@@ -1,0 +1,5 @@
+Art 132° Para aplicar las penas señaladas en este Código, según los casos, se observarán las reglas siguientes:
+1° Se considerarán actos o asuntos del servicio todos los que tengan relación con los deberes que impone al militar su permanencia en el Ejercito.
+2° Se entenderá que las tropas están al frente del enemigo cuando hallándose dentro del territorio declarado en estado de guerra o en operaciones Campaña, exista notoriamente en el mismo o en sus aguas marítimas jurisdiccionales, cualquiera fuerza o armada enemiga.
+3° Se considerará a las tropas al frente de rebeldes o sediciosos siempre que haya dentro o a la vista de la localidad, campamentos o posición que aquellas ocupen, cualquier grupo o fuerza armada en actitud rebelde o sediciosa, aun cuando no hubiese precedido declaración formal del estado de guerra.
+4° Se reputa que las tropas se hallan en Campaña, cuando residan u operen en las Plazas o territorios declarados en estado de guerra, aunque no parezca ostensiblemente ningún enemigo armado, así como siempre que por precaución u otras razones de Estado ordenen las autoridades militares que las tropas practiquen el servicio como Campaña.

@@ -1,0 +1,1 @@
+Art 101° El Superior que recibiere un parte de un inferior de haber impuesto alguna pena, puede según las circunstancias revocarla, atenuarla, confirmarla o reagravada dentro de los límites de su propia competencia.

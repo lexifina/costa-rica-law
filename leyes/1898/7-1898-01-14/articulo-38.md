@@ -1,0 +1,3 @@
+Art 38° Si en la capital de la República no hubiese número suficiente de Generales a Oficiales superiores en servicio activo para formar el Consejo, en servicio activo para formar el Consejo, se llamará a servir esos puestos a los de las provincias o comarcas.
+En el caso de que ni en la capital, ni en las provincias o comarcas.
+En el caso de que ni en la capital, ni en las provincias o comarcas hubiere el número suficiente de Generales u Oficiales superiores en servicio activo para formar el Consejo, se llamará a pensionados o milicianos, para quienes será obligatorio ese servicio debiendo dárseles de alta al efecto.

@@ -1,0 +1,1 @@
+Art 54° Para el nombramiento de Presidente y Vocales de los Consejos de Guerra, se llevará en los Estados Mayores del Ejercito y en las Comandancias de provincia o comarca, lista de los individuos pertenecientes, a las diversas clases llamadas a prestar dicho servicio, designado por orden de antigüedad los que fueren necesarios en cada caso.

@@ -1,0 +1,1 @@
+Art 373° Cuando el edificio o lugar fuese de los comprendidos en el número 2° del artículo 369, el aviso se dará a la persona que se halle al frente del establecimiento de reunión o recreo, o a quien haga sus veces, si aquél estuviese ausente.

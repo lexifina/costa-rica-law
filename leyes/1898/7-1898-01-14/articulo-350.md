@@ -1,0 +1,3 @@
+Art 350° En la primera declaración se le interrogará por su nombre y apellidos paterno y materno, apodo, edad, nacionalidad, vecindad, estado, empleo, profesión, oficio o modo de vivir, si sabe leer y escribir, si fue procesado anteriormente por delito, ante qué Tribunal que pena le fue impuesta, y si conoce el motivo por que se le procesa, haciéndolo, por que delito, ante que el motivo por que se le procesa, haciéndoselo saber en caso negativo.
+Cuando pertenezca a las clases de tropa, se le preguntará además por el Regimiento, Cuerpo, Compañía, Batería o Escuadrón en que esté colocado, quien le prendió por qué causa, es qué día, hora y sitio.
+El Juez Instructor cuidará de consignar también las señas personales del reo, a fin de poder identificarle en cualquier tiempo.

@@ -1,0 +1,1 @@
+Art 10° Para la aplicación de las disposiciones contenidas en este Capitulo se considerará, en su oportunidad como individuos del Ejercito, a los de los Cuerpos de la Armada, cuando presten servicios de Guarnición o de Plaza o formen parte de los Ejércitos de operaciones en Campaña.

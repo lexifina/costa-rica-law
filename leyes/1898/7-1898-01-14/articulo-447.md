@@ -1,0 +1,1 @@
+Art 447° El Juez Instructor tan luego como reciba la orden, notificará al procesado los nombres del Presidente, Vocales y Auditor, a los efectos del artículo 264 de este Código hará las citaciones necesarias para la practica de la prueba ante el Consejo, y la propio tiempo citará al Fiscal y al defensor su asistencia al acto.

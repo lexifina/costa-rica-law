@@ -1,0 +1,1 @@
+Art 384° Deberán evitarse en los registros las inspecciones inútiles, procurando no perjudicar ni importunar al interesado más de lo necesario, y adoptándose todo género de precauciones para no comprometer su reputación, ni hacer públicos sus secretos sino interesan a la instrucción de las actuaciones.

@@ -1,0 +1,1 @@
+Art 412° Los militares de todas clases y los empleados y dependencias del ramo de guerra en servicio activo, sufrirán la detención que hubiere en la localidad y en su defecto en prisiones civiles con separación de los demás presos o detenidos aunque los procese jurisdicción extraña.

@@ -1,0 +1,1 @@
+Art 39 El Consejo de Guerra de Oficiales generales conocerá de las causas contra Oficiales en actual servicio o que gocen del fuero militar, conforme a la ley, y contra los Oficiales milicianos, si se tratare de los delitos de rebelión o sedición.

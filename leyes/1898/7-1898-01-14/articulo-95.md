@@ -1,0 +1,1 @@
+Art 95° El Comandante en Jefe, los Jefes de Estados Mayores, los Generales y Coroneles, así como los Inspectores del Ejercito pueden imponer, sin restricción todas las penas correccionales establecidas en este Código.

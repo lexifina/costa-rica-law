@@ -1,0 +1,2 @@
+Disposición generales
+Art 40° Los delitos de traición, sedición, insubordinación, cobardía u otros de mayor o igual gravedad, podrán jugarse en Campaña por Consejos de Guerra verbales, siempre que a juicio del General o Comandante en Jefe, sea preciso tal procedimiento para contener los excesos de la tropa o para restablecer prontamente o corregir la moral del Ejercito, con medios extraordinarios de energía.

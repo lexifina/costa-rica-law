@@ -1,0 +1,1 @@
+Art 439° Cuando los actos de prueba a que tiene derecho de asistir el defensor se verifiquen fuera del punto en que se siguen las actuaciones, se requerirá al procesado por si quiere nombrar persona que le represente en donde aquéllas, hayan de tener lugar. Si no lo designe, se procederá sin asistencia de representante.

@@ -1,0 +1,1 @@
+Art 179 Fuera de los casos comprendidos en el artículo anterior, el militar que ofenda a un Superior en empleo o mando, de palabra, por escrito o en otra forma equivalente incurrirá en la pena de prisión militar, si fuere Oficial, y en correccional, si el ofendido fuere de las clases de tropa.

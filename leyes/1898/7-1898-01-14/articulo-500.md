@@ -1,0 +1,1 @@
+Art 500° La Corte Superior Marcial puede invalidar de oficio las sentencias consultadas o apeladas, cuando aparezca de manifiesto en ellas alguna de las causales o vicios que dan lugar al recurso extraordinario de nulidad.

@@ -1,0 +1,1 @@
+Art 445° La orden para la celebración del Consejo de Guerra se insertará en la General, y contendrá el nombre del acusado, el día, hora y sitio en que haya de tener lugar el acto y los nombres de los miembros del Tribunal, con expresión de los empleos de cada uno.

@@ -1,0 +1,1 @@
+Art 494° Con el suplicatorio o comunicación que haya que expedirse según lo dispuesto en el artículo anterior, se remitirá testimonio literal de la providencia de extradición en que consignen sus fundamentos, y sólo en relación de aquellas diligencias con que se justifique que la extradición proceda con arreglo al número correspondiente del artículo 492.

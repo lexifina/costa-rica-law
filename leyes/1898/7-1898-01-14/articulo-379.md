@@ -1,0 +1,1 @@
+Art 379° En los buques mercantes extranjeros no sé podrá entrar sin autorización de su Capitán, o si este la negase, sin la del Cónsul de su Nación. A falta de una y otra, se observarán las formalidades prescritas en el artículo anterior.

@@ -1,0 +1,3 @@
+Disposiciones comunes a los dos Secciones anteriores.
+Art 183° Se considera reo de insulto a Superior o desobediencia al que cometa cualquiera de los delitos previstos en los artículos anteriores, aun cuando el Superior no lleve la divisa de su empleo, sino se prueba que el inferior le desconoció al insultarlo o desobedecerlo.
+Si los delitos de insubordinación comprendidos en las dos Secciones de este Capítulo, se cometen en acto o con ocasión de servicios esencialmente profesionales, por individuos que disfrutan consideración militar o pertenezcan a cuerpos auxiliares del Ejercito, se impondrá pena correccional, cuando no se cause la muerte o lesiones graves al Superior.

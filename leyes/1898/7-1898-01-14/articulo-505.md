@@ -1,0 +1,1 @@
+Art 505° Al militar a quien se imponga la pena de inhabilitación perpetua para el servicio, se le recogerán sus despachos, títulos y nombramientos, los que serán para su cancelación y archivo a la Secretaría de la Guerra.

@@ -1,0 +1,1 @@
+Art 74° Los defensores que no fuesen militares en servicio activo, quedarán sometidos a la jurisdicción de Guerra sólo por las faltas que cometan en el desempeño de su cargo o con ocasión del mismo, debiendo aplicárseles los preceptos de este Código, referentes a correcciones disciplinarias.

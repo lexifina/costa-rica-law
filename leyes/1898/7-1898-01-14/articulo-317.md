@@ -1,0 +1,1 @@
+Art 317° Si fuesen varios los que tengan que reconocer a una misma persona, el acto se verificará separadamente con cada uno de ellos, sin que uno y otros puedan comunicar entre si hasta la terminación de la diligencia.

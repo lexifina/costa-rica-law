@@ -1,0 +1,1 @@
+Art 2° Todos los que intervengan en el ejercicio de la jurisdicción de Guerra serán responsables del delito o falta en que incurran por infracción de las leyes o disposiciones aplicables en cada caso.

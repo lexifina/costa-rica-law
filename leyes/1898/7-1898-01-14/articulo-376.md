@@ -1,0 +1,1 @@
+Art 376° Si trascurrido el tiempo prudencial necesario no hubiese el juez instructor obtenido el consentimiento oportuno, podrá penetrar en el domicilio y hacer el reconocimiento en la forma prevenida en el párrafo último del artículo 374.

@@ -1,0 +1,1 @@
+Art 3° La responsabilidad a que se refiere el artículo anterior sólo podrá exigirse en vía disciplinaria, según el caso, o en procedimiento seguido de oficio por acuerdo de la autoridad superior respectiva o autoridad jurisdicción militar.

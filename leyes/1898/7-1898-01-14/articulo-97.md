@@ -1,0 +1,1 @@
+Art 97° La competencia penal determinada en el presente capítulo se concreta exclusivamente a la pena correccional. En ningún caso la pena puede exceder del maximúm fijado por la ley. Los militares condenados a alguna pena correccional están obligados a resarcir los daños y perjuicios que hayan causado.

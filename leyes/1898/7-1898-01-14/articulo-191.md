@@ -1,0 +1,1 @@
+Art 191° Incurrirá en la pena de reclusión en celda o de prisión militar, el militar que no se halle en una alarma, campo de batalla u otra cualquiera función de armas con la debida prontitud, sin justificación de causa legítima que lo haya impedido.

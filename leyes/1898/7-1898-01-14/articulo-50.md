@@ -1,0 +1,1 @@
+Art 50° La sentencia de un Consejo de Guerra verbal puede ser reformada por el General o Comandante en Jefe, o mandarla ejecutar bajo su responsabilidad. Dicha sentencia no podrá ser regrabada, y en ambos casos sedará cuenta con los documentos al Poder Ejecutivo.

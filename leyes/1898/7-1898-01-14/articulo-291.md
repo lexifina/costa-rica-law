@@ -1,0 +1,2 @@
+Art 291° El suplicatorio o exhorto que se envié a la autoridad de territorio distinto del jurisdiccional en que siga la causa, se extenderá a nombre de la autoridad militar de quien dependa el que lo expida.
+La Comandancia en Jefe y la Corte Superior Marcial pueden expedirlos directamente, sin limitación alguna, a los jueces o tribunales de otras jurisdicciones en toda la extensión del territorio nacional.

@@ -1,0 +1,1 @@
+Art 450° En el lugar de la celebración del Consejo se hallarán a la disposición de este, un ejemplar del presente Código y los instrumentos del delito que sean manuales y que conduzcan al mejor conocimiento del hecho.

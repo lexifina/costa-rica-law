@@ -1,0 +1,1 @@
+Art 305° Cuando el delito sea contra la honestidad, hará constar la edad y estado civil de la persona ofendida, las relaciones que mediarán entre ésta y el culpable, los antecedentes morales de ambos, las circunstancias precedentes morales de ambos, las circunstancias precedentes o simultáneas del delito y los resultados del mismo.
