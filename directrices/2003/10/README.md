@@ -14,3 +14,4 @@ Instruye a la Dirección Nacional e Inspección General de Trabajo para que Atie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-09-29 | la propia norma |
+| 2 | 2005-03-30 | Directriz 37 (2005-03-30) |
