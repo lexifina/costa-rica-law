@@ -1,1 +1,0 @@
-Artículo 9°—La coordinación de cada sistema sectorial de informática estará bajo la dirección y responsabilidad de un Consejo Sectorial de Informática, el cual estará constituido por los coordinadores de informática de las instituciones y organismos que lo integren.

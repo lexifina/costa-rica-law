@@ -1,1 +1,0 @@
-Artículo 7°—La coordinación de cada unidad de informática, estará bajo la responsabilidad de un Coordinador de Informática, cuyo nombramiento será dado por el Ministro, la Junta Directiva o Consejo de Administración según sea el caso.
