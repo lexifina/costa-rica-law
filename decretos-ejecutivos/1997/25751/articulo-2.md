@@ -177,15 +177,16 @@ Metas
 3.1 Brindar capacitación y asistencia técnica a 44 funcionarios de las organizaciones intermediarias.
 3.2. Seleccionar dos empresas Consultoras para la capacitación.
 4.1. Realizar diez charlas y cinco actividades varias que promuevan y divulguen el Programa.
-PROGRAMA 717-00
+(*)PROGRAMA 717-00
 PROGRAMA NACIONAL DE "'.POYO A LA MICRO
 y PEQUEÑA EMPRESA (PRONAMYPE)
 UNIDAD EJECUTORA:
 DIRECCION NACIONAL DE APOYO A LA MICRO Y PEQLEÑA EMPRESA-DESAF
 Registro Contable: 115.717-00
 GO | IP | FF | CE | CF | CONCEPTO | MONTO ¢
-7 | | 03 | 241 | | Transferencias de Capital | 50.000.000.00
-702 | | | | 24 | Aport. a otras pers. e Inst. Priv. Estos recursos serán depositados en la cuenta Fideicomiso de PRONMYPE según convenio entre MTSS Y Bancoop de fecha 07-09-95 y refrendado por la Contraloría General de la República el 02-10-95 Estos recursos se utilizarán exclusivamente en el Programa Nacional de Apoyo a la Micro y Pequeña Empresa). | 50.000.000.00
+4 | | | | | Desembolsos financieros | 50.000.000.00
+490 | 03 | 235 | | 24 | Otros desembolsos financieros Estos recursos serán depositados en la cuenta Fideicomiso de PRONMYPE según convenio entre MTSS Y Bancoop de fecha 07-09-95 y refrendado por la Contraloría General de la República el 02-10-95 Estos recursos se utilizarán exclusivamente en el Programa Nacional de Apoyo a la Micro y Pequeña Empresa). | 50.000.000.00
 | | | | | TOTAL AUMENTO DEL PROGRAMA 717-00 | 50.000.000.00
 | | | | | TOTAL AUMENTO DEL TITULO 115 MINISTERIO DE TRABAJO Y SEGURIDAD SOCIAL | 650.000.000.00
 | | | | | TOTAL AUMENTO | 1.933.365.523.00
+(*) (Así reformado por decreto ejecutivo N° 25851 de 04 de febrero de 1997)
