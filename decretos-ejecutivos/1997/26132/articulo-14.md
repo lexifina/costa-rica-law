@@ -1,0 +1,1 @@
+Artículo 14.-Cada mes, la instancia administrativa responsable de la custodia de los bienes del Instituto Mixto de Ayuda Social y de la Proveeduría Nacional elaborarán un cuadro con el nombre del beneficiado, ubicación por provincia y bienes donados, con el fin de verificar que las mercancías en referencia se estén distribuyendo en forma equitativa.

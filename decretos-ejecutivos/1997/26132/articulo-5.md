@@ -1,0 +1,1 @@
+Artículo 5°-Dentro de los quince días siguientes a aquel en que fue recibida la comunicación mencionada en los artículos 1° y 2° de este Reglamento, el Instituto Mixto de Ayuda Social trasladará a sus bodegas los bienes que posteriormente serán donados o rematados y deberá garantizar su custodia y buen estado de conservación.

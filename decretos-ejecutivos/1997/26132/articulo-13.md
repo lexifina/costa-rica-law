@@ -1,0 +1,1 @@
+Artículo 13.-La institución beneficiada con la donación deberá informar, según corresponda, al Instituto Mixto de Ayuda Social o a la Proveeduría Nacional en un plazo no mayor de treinta días contados a partir del acto de entrega, del beneficio obtenido al rifar o vender los bienes donados, cuando éstos hayan sido solicitados para ese fin.

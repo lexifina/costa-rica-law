@@ -1,0 +1,1 @@
+Artículo 7°-Tanto el Instituto Mixto de Ayuda Social como la Proveeduría Nacional podrán publicar un aviso en el Diario Oficial "La Gaceta" y en uno de los periódicos nacionales de mayor circulación, en el que se indicarán los bienes en situación de ser donados.

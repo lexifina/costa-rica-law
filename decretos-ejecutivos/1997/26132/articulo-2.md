@@ -1,0 +1,1 @@
+Artículo 2°-Dentro de los quince días posteriores al vencimiento del plazo estipulado en el artículo 4 de la Ley No. 6106, el Organismo de Investigación Judicial comunicará al Instituto Mixto de Ayuda Social la nómina de mercancías en situación de ser donadas y las pondrá a su disposición en el lugar en que se encuentren.

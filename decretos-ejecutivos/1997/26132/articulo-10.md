@@ -1,0 +1,1 @@
+Artículo 10.-EI acuerdo de aprobación o denegatoria de toda solicitud de donación será notificada expresamente al interesado. Si transcurrido un mes contado a partir de la fecha de notificación de la aprobación, no se hiciere efectivo el retiro, se procederá a otorgar el bien a otra institución que lo hubiere solicitado.

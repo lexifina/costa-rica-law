@@ -1,0 +1,1 @@
+Artículo 16.-La Corte Suprema de Justicia, por intermedio de la Proveeduría Judicial, coordinará con el Instituto Mixto de Ayuda Social las donaciones de mercaderías, vehículos y objetos a los que se refiere el inciso a) del artículo 1 de la Ley 6106 de 7 de noviembre de 1977 y sus reformas.
