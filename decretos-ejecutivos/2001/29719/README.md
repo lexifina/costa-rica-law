@@ -14,3 +14,4 @@ Reglamento para los Estudios de Estabilidad de Medicamentos requeridos para el R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-22 | la propia norma |
+| 2 | 2003-01-08 | Decreto Ejecutivo 30966 (2003-01-08) |
