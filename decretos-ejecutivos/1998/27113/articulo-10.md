@@ -9,3 +9,5 @@ e) Emitir disposiciones sobre el funcionamiento interno del sistema.
 f) Vigilar por el cumplimiento de las acciones de los componentes del sistema.
 g) Proponer programas de inversión en el área técnico-profesional, con enfoque sistémico.
 h) Contribuir a la formulación del Programa Nacional de Educación Técnica y participar en su ejecución.
+i) Aprobar el presupuesto del programa que elabore el Director General el que deberá ser presentado ante el Consejo por su Presidente.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 29425 del 22 de marzo de 2001)

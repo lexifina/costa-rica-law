@@ -16,4 +16,5 @@ Que debido a la relativa independencia y falta de coordinación entre las instit
 DECRETAN:
 CAPÍTULO I
 De la creación del sistema
-Artículo 1°—Créase el Sistema Integrado Nacional de Educación Técnica para la Competitividad, en adelante conocido como el sistema y abreviado como SINETEC.
+Artículo 1°—Créase el Sistema Integrado Nacional de Educación Técnica para la Competitividad, en adelante conocido como el sistema y abreviado como SINETEC, como un órgano de desconcentración máxima del Ministerio de Educación Pública.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 29425 del 22 de marzo de 2001)

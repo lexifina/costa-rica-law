@@ -14,3 +14,4 @@ Sistema Integrado Nacional de Educación Técnica para la Competitividad (SINETE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-07-13 | la propia norma |
+| 2 | 2001-03-22 | Decreto Ejecutivo 29425 (2001-03-22) |
