@@ -1,0 +1,21 @@
+Artículo 5º—La Comisión Intersectorial para la Inocuidad de Alimentos estará integrada por:
+- Un representante de la Dirección de Registros y Controles del Ministerio de Salud (MS).
+- Un representante de la Secretaría de la Política Nacional de Alimentación y Nutrición (SEPAN), del Ministerio de Salud.
+- Un representante del Servicio de Protección Fitosanitaria del Estado (MAG).
+- Un representante de la Dirección de Salud Animal (MAG).
+- Un representante del Ministerio de Comercio Exterior (COMEX).
+- Un representante de la Promotora de Comercio Exterior (PROCOMER).
+- Un representante del Ministerio de Educación Pública (MEP).
+- Un representante de la Oficina Nacional de Normas y Unidades de Medida del Ministerio de Economía, Industria y Comercio (ONNUM-MEIC).
+- Un representante del Consejo Nacional de Producción (CNP).
+- Un representante del Programa Integral de Mercadeo Agropecuario (PIMA).
+- Un representante del Centro Nacional de Ciencia y Tecnología de Alimentos (Convenio UCR-MICIT-MAG).
+- Un representante del Centro de Investigaciones Agronómicas de la Universidad de Costa Rica (CIA).
+- Un representante de la Federación Nacional de Asociaciones de Consumidores (FENASCO).
+- Un representante del Centro de Formación de Formadores (CEFOF).
+- Un representante de la Cámara Nacional de Agricultura y Agroindustria (CNAA).
+- Un representante de la Cámara de Exportadores (CADEXCO).
+- Un representante de la Cámara Costarricense de la Industria Alimentaria (CACIA).
+- Serán miembros honorarios de la CIIA, representantes de los siguientes organismos internacionales: Organización de la Naciones Unidas para la Agricultura y la Alimentación (FAO), Organización Panamericana de la Salud-Organización Mundial de la Salud (OPS-OMS), Instituto Interamericano de Cooperación para la Agricultura
+(IICA), Organismo Internacional Regional de Sanidad Agropecuaria (OIRSA).
+- Un representante de cualquier otro organismo o institución que el Consejo Ministerial para la Inocuidad de Alimentos determine y cuyas acciones sean afines a las anteriores.

@@ -1,0 +1,1 @@
+Artículo 2º—El Consejo Ministerial para la Inocuidad de Alimentos estará integrado por el Ministro de Salud y el Ministro de Agricultura y Ganadería, y actuará como un Organismo Técnico Consultivo del Poder Ejecutivo en los aspectos relacionados con la definición de políticas de inocuidad de alimentos. Será presidido por el Ministro de Salud.

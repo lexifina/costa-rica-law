@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión Intersectorial para la Inocuidad de los Alimentos, propondrá en la sesión de instalación, uno de sus miembros como Coordinador. El Coordinador ocupará su cargo por un período de un año, pudiendo ser reelecto las veces que fuere. No obstante, el Coordinador podrá ser removido, en cualquier momento, si así lo dispusiese el CMIA.
