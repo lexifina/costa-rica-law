@@ -1,1 +1,2 @@
-Artículo 6º—Se establece que en ningún caso la administración autorizará el desarrollo de actividades de Karaoke, más allá de las 10,00 p. m., con esta hora como límite deberá cesar completamente todas las actividades de este tipo, en virtud de que la Municipalidad de Tilarán, debe procurar el reguardo del interés público.
+"El desarrollo de actividades de karaokes se podrán realizar hasta las 12 medianoche, con esta hora como límite deberá cesar completamente todas las actividades de ese tipo, en virtud de que la Municipalidad de Tilarán, debe procurar el resguardo de interés público."
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Ordinaria No. 48 celebradas el 02 de abril de 2003, publicada en La Gaceta No. 134 de 14 de julio de 2003.)
