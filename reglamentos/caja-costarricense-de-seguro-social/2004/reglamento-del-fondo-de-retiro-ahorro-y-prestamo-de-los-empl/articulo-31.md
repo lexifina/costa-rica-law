@@ -1,0 +1,1 @@
+Artículo 31.—En los casos de saldos de préstamo de los afiliados que se retiren del servicio de la Caja para acogerse a una pensión, se aplicará la liquidación prevista en el Artículo 11 de este Reglamento. Los saldos insolutos se liquidarán con el beneficio que otorga el FRAP.

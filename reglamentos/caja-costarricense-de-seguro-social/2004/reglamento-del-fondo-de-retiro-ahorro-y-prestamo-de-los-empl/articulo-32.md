@@ -1,0 +1,1 @@
+Artículo 32.—En todos los casos de liquidación, no cubiertos por los beneficios del FRAP, cuando exista saldo pendiente del préstamo ordinario y/o extraordinario deberán cancelarse en cuotas quincenales o mensuales en un plazo no mayor a los tres años y a la misma tasa de interés pactado en el crédito.
