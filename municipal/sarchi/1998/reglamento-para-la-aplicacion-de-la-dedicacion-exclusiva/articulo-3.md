@@ -1,0 +1,2 @@
+Articulo 3°—La municipalidad podrá otorgar la compensación económica definida en el párrafo siguiente, a aquellos servidores cuya naturaleza del campo requieran un grado académico profesional.
+Para tales efectos se otorgarán porcentajes sobre el salario base de un 30% para los que poseen grado académico de Diplomados, un 35% para los que poseen el grado de Bachilleres y un 55% para los que poseen el grado de Licenciatura u otro superior.

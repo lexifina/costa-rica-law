@@ -1,0 +1,5 @@
+Artículo 15.—Habrá incumplimiento por parte del servidor cuando realice acciones contrarias a lo estipulado en el presente Reglamento o contrato, lo cual acarreará las siguientes sanciones:
+a) La rescisión inmediata del contrato y reintegro a la municipalidad de las sumas otorgadas por concepto de la dedicación exclusiva, cuando se incumpla lo establecido en el articulo 08 de este Reglamento. En este caso, el servidor no podrá firmar un nuevo contrato con la administración por un periodo de dos años a partir de la fecha de dicha suspensión.
+b) Amonestación por escrito para el servidor que se acoge a las excepciones que se indican en el artículo 12, inciso © y no cumpla con el procedimiento que para ello se establece.
+c) Suspención por ocho días en caso de que incurra por segunda vez en la falta señalada en el inciso anterior.
+d) El despido se aplicará, sin responsabilidad para la Municipalidad, al servidor que haga incurrir en error a la administración en la recepción indebida de los requisitos señalados en el artículo 04, inciso (a) y cuando por segunda ve/,, infrinja lo estipulado en el artículo 08, por considerarse faltas graves,

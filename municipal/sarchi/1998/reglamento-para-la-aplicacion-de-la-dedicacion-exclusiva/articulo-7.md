@@ -1,0 +1,1 @@
+Artículo 7°—El Alcalde Municipal deberá aprobar el contrato en un pía/o no mayor de un mes a partir de la fecha de presentación. En caso contrario, el referido contrato será devuelto argumentando las razones por las cuales se rechaza.

@@ -1,0 +1,1 @@
+Artículo 2°—La dedicación exclusiva es el ejercicio profesional del servidor únicamente para la Municipalidad, por lo que no podrá ejercer de manera particular (remunerada o ad honoren) la profesión que sirve como requisito para desempeñar el puesto que ostenta, ni actividades relacionadas con esta, con las excepciones que se señalan en este Reglamento.

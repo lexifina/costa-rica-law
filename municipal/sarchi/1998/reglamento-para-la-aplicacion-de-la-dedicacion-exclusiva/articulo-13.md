@@ -1,0 +1,1 @@
+Artículo 13.—Pueden acogerse excepcionalmente al beneficio de la dedicación exclusiva o mantenerlo, aquellos servidores a quienes se les permita laborar media jornada siempre que firmen una declaración jurada en la que conste, que el resto de] tiempo lo dedicará a labores domésticas propias, comunicándolo por escrito a la Oficina de Personal o en su defecto al Alcalde Municipal.
