@@ -1,0 +1,3 @@
+Artículo 6º—
+1.- Los Estados Partes se prestarán toda la asistencia posible en relación con cualquier investigación, proceso penal o procedimiento de extradición que se inicie con respecto a los delitos a que se refiere el párrafo 1 del artículo 3º, en particular asistencia para la obtención de todas las pruebas necesarias para esos procedimientos que obren en su poder.
+2.- Los Estados Partes cumplirán las obligaciones que les incumban en virtud del párrafo 1 del presente artículo de conformidad con los tratados u otros acuerdos de asistencia judicial reciproca que existan entre ellos. En ausencia de esos tratados o acuerdos, los Estados Partes se prestaran dicha asistencia de conformidad con su legislación.

@@ -1,0 +1,3 @@
+Artículo 15.—
+1.- Todo Estado Parte podrá denunciar el presente Protocolo en cualquier momento notificándolo por escrito al Secretario General de las Naciones Unidas, quien informara de ello a los demás Estados Partes en la Convención y a todos los Estados que hayan firmado la Convención. La denuncia surtirá efecto un año después de la fecha en que la notificación haya sido recibida por el Secretario General de las Naciones Unidas.
+2.- Esa denuncia no eximirá al Estado Parte de las obligaciones que le incumban en virtud del presente Protocolo respecto de todo delito que se haya cometido antes de la fecha en que aquella surta efecto. La denuncia tampoco obstara en modo alguno para que el Comité prosiga el examen de cualquier asunto iniciado antes de esa fecha.
