@@ -1,0 +1,1 @@
+Transitorio único.—Las causas iniciadas en los tribunales penales ordinarios a la fecha de entrada en vigencia de esta Ley, que se encuentran en los procedimientos preparativo e intermedio, seguirán siendo conocidas por la Jurisdicción Penal Ordinaria.
