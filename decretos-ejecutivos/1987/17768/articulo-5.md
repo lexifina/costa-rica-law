@@ -1,0 +1,1 @@
+Artículo 5°.- Igualmente conservar , dicho Departamento, colecciones debidamente empastadas de "La Gaceta" y el "Boletín Judicial" para el mejor cumplimiento de las competencias de la Procuraduría General de la República.

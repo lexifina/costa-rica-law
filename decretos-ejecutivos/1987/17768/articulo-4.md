@@ -1,0 +1,1 @@
+Artículo 4°.- Queda facultado el Departamento de Legislación para canjear, con instituciones nacionales o extranjeras, ejemplares de las obras a que se refiere el presente Reglamento, por otras de igual naturaleza que se considere conveniente.
