@@ -1,0 +1,1 @@
+Artículo 2º.- La solicitud para su otorgamiento deberá dirigirse a la Oficina de Pensiones y Jubilaciones del Ministerio de Trabajo y Bienestar Social, con demostración de la calidad que se invoca y de la identificación. La resolución que se dicte deberá publicarse en el Diario Oficial.
