@@ -1,0 +1,1 @@
+Artículo 10.-Transcurrido el plazo anterior y en los próximos tres días hábiles, el órgano director hará comparecer a las partes, recibiendo en el acto de la prueba testimonial, los demás medios de prueba y los alegatos respectivos.

@@ -1,0 +1,3 @@
+Artículo 6°-En el plazo de tres días hábiles siguientes a la denuncia el Ejecutivo Municipal procederá a la instalación del órgano director del procedimiento administrativo y disciplinario.
+El órgano estará conformado por tres personas: una persona del Concejo Municipal, una de la Administración y un miembro nombrado por la Junta de Relaciones Laborales. En estas sesiones deberá contarse con la presencia del asesor legal de la municipalidad, quien tendrá voz pero no voto.
+En dicho órgano necesariamente debe existir participación de sexo femenino, al menos en el nombramiento de uno de sus miembros.

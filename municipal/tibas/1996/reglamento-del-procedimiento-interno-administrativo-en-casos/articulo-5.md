@@ -1,0 +1,1 @@
+Artículo 5°-En caso de que la persona ofendida considere necesario su reubicación temporal en otra instancia de la institución, podrá solicitarla al Ejecutivo Municipal, en cualquier momento del proceso, quien decidirá en única instancia.

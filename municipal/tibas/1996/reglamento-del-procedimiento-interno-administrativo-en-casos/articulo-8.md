@@ -1,0 +1,1 @@
+Artículo 8°-El órgano dará oportunidad a la persona denunciante, por el término de tres días hábiles, luego de la presentación de la denuncia, para que amplíe o aclare los términos de la denuncia así como para ofrecer la prueba que considere pertinente.

@@ -1,0 +1,1 @@
+Artículo 7°-En el procedimiento se garantizará el debido proceso y se guardará total confidencialidad en el trámite del mismo. Cualquier infidencia de un miembro del órgano director del procedimiento será considerado como falta grave de acuerdo al Reglamento Interno de Trabajo de la Municipalidad y del Código Municipal.
