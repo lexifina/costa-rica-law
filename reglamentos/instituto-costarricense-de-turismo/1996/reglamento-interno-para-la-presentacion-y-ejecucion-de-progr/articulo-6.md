@@ -1,0 +1,1 @@
+Artículo 6°-La Unidad Coordinadora realizará un análisis técnico, de mercado y financiero de las propuestas, a fin de determinar la o las mejores que satisfagan los objetivos y las políticas de promoción que han sido fijados por el Instituto.

@@ -1,0 +1,1 @@
+Artículo 15.-La Unidad Coordinadora será la encargada de verificar el cumplimiento de los objetivos de los programas conjuntos que se desarrollen bajo los mecanismos de control y seguimiento que considere necesario y deberá informar a la Gerencia semestralmente sobre el resultado y avance de los mismos, para someterlo a conocimiento de la Junta Directiva.
