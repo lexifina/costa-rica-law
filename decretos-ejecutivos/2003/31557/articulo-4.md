@@ -1,0 +1,1 @@
+Artículo 4º—El diferencial producido por la importación a que se refiere este Decreto, será incorporado al Fondo de Nivelación al Productor y distribuido por la Corporación Arrocera Nacional para la cosecha 2003-2004, de conformidad con las regulaciones legales vigentes y las disposiciones que sean emitidas por el Poder Ejecutivo.
