@@ -1,0 +1,1 @@
+ARTÍCULO 1°.-Créase una Unidad Ejecutiva para la Coordinación y Administración del Proyecto Ciudad Colón-Orotina de acuerdo con el artículo 11 de la ley número 7123 de 22 de diciembre de 1985, adscrita a la División de Obras Públicas y Transportes.
