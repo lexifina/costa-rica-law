@@ -14,3 +14,4 @@ Concede beneficios a Canco (Costa Rica) S. A. planta industrial destinada a la m
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-03-19 | la propia norma |
+| 2 | 1970-06-10 | Decreto Ejecutivo 1034 (1970-06-10) |
