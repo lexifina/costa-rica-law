@@ -1,4 +1,5 @@
 N° 1
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 4 del 4 de marzo de 1927, se indicó que se adscribe a la Subsecretaría de Higiene y Salud Públicas, las funciones que hasta ahora han estado encomendadas a la Secretaría de Beneficencia.)
 JULIO ACOSTA GARCIA
 PRESIDENTE CONSTITUCIONAL DE LA
 REPÚBLICA DE COSTA RICA

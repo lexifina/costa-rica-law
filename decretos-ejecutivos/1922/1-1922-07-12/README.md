@@ -13,3 +13,4 @@ Crea Subsecretaría de Estado en Despacho de Policía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1922-07-12 | la propia norma |
+| 2 | 1927-03-04 | Decreto Ejecutivo 4 (1927-03-04) |
