@@ -13,3 +13,4 @@ Modifica las Normas para la Valoración de Mercancías ImportadasAveriadas y/o U
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-10-17 | la propia norma |
+| 2 | 1990-10-17 | SINALEVI (sin norma nombrada) |
