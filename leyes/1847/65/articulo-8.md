@@ -1,0 +1,1 @@
+Art. 8. El presente decreto se imprimirá, circulará y publicará para su cumplimiento. - Dado en la ciudad de San José, á los veintiún días del mes de octubre de mil ochocientos cuarenta y siete. -José Maria Castro. -Al Ministro de relaciones y gobernacion, Sr. Don Joaquin Bernardo Calvo.
