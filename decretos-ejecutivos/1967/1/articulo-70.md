@@ -1,0 +1,1 @@
+Artículo 70.—Si existiesen posibilidades de desprendimiento de gases o vapores en cantidades tales que afecten gravemente la salud o pusieren en peligro la vida del personal, deberán adoptarse dispositivos de alarma que indiquen la aparición del peligro, para que los trabajadores abandonen de inmediato sus labores. Con tal objeto se entrenará debidamente al personal.

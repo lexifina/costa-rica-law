@@ -1,0 +1,2 @@
+Artículo 95.—Cuando los trabajadores presten sus servicios en lugares alejados de sus viviendas y pernocten temporalmente en ellos, deberá proveérseles de dormitorios adecuados, que los protejan de los cambios atmosféricos.
+Estos podrán ser construidos, totalmente o en parte, de madera, paja, caña u otros materiales y estar provistos de techo, ventanas y puertas adecuadas. Las cercanías de estos dormitorios deberán estar siempre limpias y libres de inmundicias de cualquier especie. Cerca de los mismos deberán construirse letrinas apropiadas.

@@ -1,0 +1,2 @@
+De los pisos y paredes
+Artículo 15.—Los pisos deberán ser de material resistente, parejos v no resbaladizos, fáciles de asear; con declives y desagües apropiados, caso de que el método de limpieza sea el lavado y los cuales deberán mantenerse en buen estado de conservación. En las inmediaciones de hornos, hogares y, en general, toda clase de fuegos, el piso. en un radio razonable, deberá ser adecuado, de material aislante del calor y. cuando fuere necesario, no conductor de cambios térmicos.

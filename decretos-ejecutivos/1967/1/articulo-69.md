@@ -1,0 +1,1 @@
+Artículo 69.—Los trabajadores, cuando fuere necesario, contarán con el equipo de protección personal de conformidad con las reglamentaciones especiales existentes, o que se llegaren a dictar en la materia.

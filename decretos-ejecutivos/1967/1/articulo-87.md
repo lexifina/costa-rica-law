@@ -1,0 +1,4 @@
+Artículo 87.—Todo local para inodoros o letrinas y mingitorios o urinarios en su caso, deberán llenar los siguientes requisitos:
+a) .Los tabiques que separan las cabinas, deben dejar por lo menos un espacio libre de treinta centímetros de altura desde el suelo, con el objeto de permitir el lavado de los pisos;
+b) Los pisos y paredes deben ser continuos, lisos e impermeables, y unos y otros de materiales que permitan el lavado con líquidos desinfectantes. El lavado deberá hacerse siempre que sea preciso y por lo menos una vez al día; y
+c) La desinfección, desodorización, supresión de emanaciones, ventilación, luz y desniveles de pisos deben reunir buenas condiciones, y cuando se disponga de alcantarillado, a éste deben estar unidos los inodoros, letrinas, mingitorios o urinarios o en su defecto a fosas sépticas u otra clase de tratamiento adecuado.

@@ -1,0 +1,1 @@
+Artículo 5°—Queda absolutamente prohibido a los patronos poner o mantener en funcionamiento maquinaria que no esté debidamente protegida en los puntos de transmisión de energía, en las partes móviles v en los puntos de operación que ofrezcan peligro, así como mantener en uso herramientas en mal estado.

@@ -1,0 +1,1 @@
+Artículo 67.—En cuanto a los límites permisibles de sustancias nocivas en los locales de trabajo donde deban ser manufacturadas, manipuladas o empleadas, se estará a lo establecido por la Organización Internacional del Trabajo.

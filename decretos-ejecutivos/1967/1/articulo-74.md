@@ -1,0 +1,2 @@
+Del envasado, transporte y manipulación de materias peligrosas o insalubres
+Artículo 74.—El envasado, transporte, trasiego o manipulación de productos corrosivos, calientes o en general peligrosos, deberá hacerse por medio de dispositivos apropiados, que ofrezcan garantías de seguridad, de manera tal. Que el trabajador no entre en contacto con ellos o sus vapores, ni resulte alcanzado por salpicaduras de los mismos y. se emplearán, si fuere necesario, anteojos, guantes, equipos especiales y, en su caso, máscaras respiratorias.

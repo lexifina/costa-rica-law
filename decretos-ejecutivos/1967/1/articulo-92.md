@@ -1,0 +1,1 @@
+Artículo 92.—Los locales destinados al aseo personal deberán estar separados de los talleres, situados convenientemente para los empleados que hayan de utilizarlos y mantenerse siempre en perfecto estado de conservación y limpieza.

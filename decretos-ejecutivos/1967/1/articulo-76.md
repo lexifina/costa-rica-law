@@ -1,0 +1,1 @@
+Artículo 76.—Toda materia peligrosa envasada, cualquiera que sea la clase de envase, deberá llevar en su exterior un letrero resistente en que se leerán claramente la palabra "Peligro", el nombre del producto envasado y las indicaciones necesarias para su transporte y manipulación. Iguales medidas de protección deberán tomarse cuando se trate de materias insalubres.

@@ -1,0 +1,1 @@
+Artículo 86.—Se dispondrá por lo menos de un inodoro por cada veinte trabajadores, y de uno por cada quince trabajadoras, cuando el total de trabajadores sea menor de cien; cuando exceda de este monto deberá instalarse un inodoro adicional por cada veinticinco trabajadores más; y existirá por lo menos un mingitorio o urinario por cada veinte trabajadores.

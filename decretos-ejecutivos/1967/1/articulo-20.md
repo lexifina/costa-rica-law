@@ -1,0 +1,3 @@
+De las trampas, aberturas y zanjas
+Artículo 20.—Las trampas, pozos y aberturas en general, que existan en el suelo, deberán estar cerrados o tapados siempre que lo permita la índole del trabajo. Si ésta no lo permitiera, aquéllos deberán estar provistos de sólidas barandillas y de rodapiés adecuados que los cerquen de la manera más eficaz. supliéndose la insuficiencia de protección cuando el trabajo lo exija, con señales indicadoras de peligro, colocadas en sus inmediaciones, en los lugares más visibles.
+En las aberturas o zanjas deberán colocarse tablones o pasarelas sólidos. de suficiente anchura y provistos de barandillas y rodapiés adecuados.

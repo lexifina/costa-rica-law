@@ -1,0 +1,4 @@
+De la ventilación
+Artículo 21.—En los locales, cerrados, el aire deberá renovarse de acuerdo con el número de trabajadores, la naturaleza de la industria o trabajo y con las causas generales o particulares que contribuyan, en cada caso, a viciar el ambiente o hacerlo incómodo.
+El aire de los centros de trabajo deberá mantenerse en condiciones que no resulte nocivo para la salud del personal. Cuando se requiera, se instalará un dispositivo que advierta al personal la presencia o el desprendimiento de cantidades peligrosas de sustancias tóxicas.
+La renovación del aire podrá hacerse mediante ventilación natural o artificial, debiendo tenerse en cuenta la velocidad, forma de entrada, cantidad por hora y persona y condiciones de pureza, temperatura y humedad, con el objeto de que no resulte molesta o perjudicial para la salud de los trabajadores

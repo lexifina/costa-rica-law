@@ -1,0 +1,2 @@
+Artículo 42.—Las fajas deberán estar debidamente protegidas hasta la altura de dos metros sobre el suelo, protección que será parcial o total de acuerdo con la posición y demás características de las mismas y con el grado de peligro a que pueda estar expuesto el personal. Aquellas fajas que estén fuera del alcance de los trabajadores, deberán estar igualmente protegidas, a efecto de evitar que su caída pueda producir accidentes.
+Las uniones o empalme de las fajas deberán hacerse de manera segura y en forma que no expongan al peligro.

@@ -1,0 +1,1 @@
+Artículo 35.—Queda terminantemente prohibido fumar o introducir fósforos, encendedores o cualquier objeto susceptible de provocar fuego libre en los locales de trabajo en que haya peligro de explosión o incendio. Esta medida de seguridad deberá ser recordada mediante leyendas suficientemente visibles.

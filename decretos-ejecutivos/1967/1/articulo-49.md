@@ -1,0 +1,1 @@
+Artículo 49.—La persona responsable del mantenimiento y funcionamiento de la maquinaria, no permitirá que trabajador o persona alguna, sin la debida autorización, remueva ninguna cobertura o artefacto de protección.

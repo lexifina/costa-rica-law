@@ -1,0 +1,3 @@
+De los pasillos
+Artículo 17.—Los corredores o galerías que sirvan de unión entre dos locales. escaleras u otras partes de los edificios y los pasillos interiores, tanto los principales que conduzcan a las puertas de salida como los de otro orden, deberán tener la anchura adecuada de acuerdo con el número de trabajadores que deban circular por ellos, considerando incluso el desalojo de emergencia
+La separación entre máquinas, instalaciones y puestos de trabajo deberá ser suficiente para que el trabajador pueda realizar su trabajo sin incomodidad y para que quede a cubierto de posibles accidentes por falta de espacio, a juicio del Consejo, previo informe de la Oficina.

@@ -1,0 +1,2 @@
+Artículo 26.—Cuando el trabajo sea continuo, deberán elegirse, para realizar la limpieza, las horas en que se encuentre presente en los locales el menor número de trabajadores, extremándose, en tal caso, las medidas y precauciones para evitar los efectos desagradables o nocivos de la operación.
+Cúmel o las operaciones de limpieza del suelo, paredes, techo o instalaciones, ofrezcan peligro para la salud de los trabajadores encargados de realizarla, deberá proveérseles del equipo protector adecuado.

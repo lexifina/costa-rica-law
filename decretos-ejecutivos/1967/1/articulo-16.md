@@ -1,0 +1,2 @@
+Artículo 16.—Deberá procurarse que toda la superficie de trabajo o piso de los diferentes departamentos esté al mismo nivel. De no ser así. se utilizarán únicamente rampas de pendientes no mayor de quince grados para salvar las diferencias de nivel en la misma planta.
+Las paredes y pisos deberán ser de fácil limpieza, encontrarse en buen estado de conservación, reparándose tan pronto como se produzcan grietas, agujeros o cualquier otra clase de desperfectos.

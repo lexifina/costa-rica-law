@@ -1,0 +1,2 @@
+De los generadores y transformadores
+Articulo 52.—Los generadores y transformadores eléctricos situados en los lugares de trabajo, deberán sujetarse a las medidas de protección para motores de toda clase señalados en el articulo 38 del presente Reglamento. Las medidas de seguridad contenidas en este Reglamento, igualmente se aplicarán a los centros productores, transformadores o distribuidores de energía eléctrica, de acuerdo con las exigencias de cada uno de ellos.

@@ -1,0 +1,1 @@
+Artículo 91.—El equipo de aseo deberá estar provisto a costa del patrono de jabón, toallas (a menos que se disponga de secadores de manos por aire caliente), cepillos y otros materiales necesarios. Los de uso exclusivo y personal de cada trabajador, deberán guardarse en locales apropiados, suministrados por el patrono.

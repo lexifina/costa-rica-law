@@ -1,0 +1,1 @@
+Artículo 50.—Todos los trabajadores encargados del manejo de motores, transmisiones y máquinas en general y sobre todo aquellas que, por la índole de sus labores, estén expuestos a mayores riesgos, deberán llevar el equipo de protección personal que les suministrará, en todo caso, el patrono, de acuerdo con las disposiciones especiales existentes sobre la materia.

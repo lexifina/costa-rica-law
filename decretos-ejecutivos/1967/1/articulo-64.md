@@ -1,0 +1,1 @@
+Artículo 64.—Deberán adoptarse las medidas necesarias para evitar el peligro debido a la electricidad estática, cualquiera que sea su origen y el lugar en que pueda producirse. Deberá precederse análogamente con respecto a la electricidad atmosférica.

@@ -1,0 +1,1 @@
+Artículo 34.—Las operaciones peligrosas, o aquellas que conjuntamente con otras ofrecieren peligro, deberán efectuarse en locales separados, salvo necesidades ineludibles de fabricación a juicio de la Oficina, caso en el cual podrá realizarse dentro de un mismo local con el menor número posible de trabajadores y tomando las precauciones necesarias.

@@ -1,0 +1,1 @@
+Artículo 84.—En los centros de trabajo en que se realicen labores interrumpidas por períodos de descanso más o menos largos, deberán instalarse asiente para uso de todos los trabajadores durante dichos períodos.

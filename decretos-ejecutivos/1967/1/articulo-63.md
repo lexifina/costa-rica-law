@@ -1,0 +1,1 @@
+Artículo 63.—Las extensiones para lámparas, herramientas o aparatos movidos por electricidad, lo mismo que las conexiones, estarán protegidas por una cubierta de caucho duro y, si fuere necesario, tendrán una protección adicional metálica flexible. Además, deberán ser conservadas en buenas condiciones, especialmente en lo que se refiere a aislamiento, enchufes y demás accesorios.

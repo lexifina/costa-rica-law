@@ -1,0 +1,1 @@
+Artículo 48.—Será obligación de los patronos o de sus representantes, instalar coberturas adecuadas en todo sitio en que fueran requeridas. Si por motivo de operaciones especiales hubiere que remover una cobertura, luego de haberse terminado el trabajo que diere motivo a tal remoción, aquella deberá ser restituida a su lugar inmediatamente.

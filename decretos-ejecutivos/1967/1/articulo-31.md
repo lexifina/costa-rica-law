@@ -1,0 +1,1 @@
+Artículo 31.—Únicamente podrán realizarse trabajos que requieran el empleo de maquinarias o cualesquiera otros instrumentos que puedan dar lugar a la producción de chispas, cuando los mismos se encuentren debidamente protegidos a juicio del Consejo.

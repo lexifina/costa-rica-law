@@ -1,0 +1,1 @@
+Artículo 47.—Los trabajos especiales de reparación y mantenimiento, hasta donde sea posible por su propia naturaleza, deberán efectuarse cuando las máquinas hayan parado y el operario encargado de esta labor, esté absolutamente seguro de contar con las medidas de seguridad pertinentes.

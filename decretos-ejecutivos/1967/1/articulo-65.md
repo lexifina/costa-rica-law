@@ -1,0 +1,3 @@
+CAPITULO V
+De las sustancias peligrosas
+Artículo 65.—Los centros de trabajo donde se desprenda polvo, gases o vapores fácilmente inflamables, incómodos o nocivos para la salud, deberán reunir las condiciones máximas de seguridad e higiene, tales como ventilación, iluminación, temperatura y grado de humedad. Los pisos, paredes y techos, así como las instalaciones necesarias que lleguen a establecerse, deberán ser de materiales no atacables por los agentes indicados y susceptibles de ser sometidos a la limpieza y lavados convenientes. En los centros de trabajo, estos locales deberán aislarse, con el objeto de evitar riesgos a la salud y seguridad de los trabajadores entregados a otras labores.

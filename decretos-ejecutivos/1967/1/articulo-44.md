@@ -1,0 +1,2 @@
+Artículo 44.—Deberán emplearse portafajas o dispositivos análogos para que las fajas desmontadas descansen sobre ellos, no permitiéndose que lo hagan sobre los árboles y sobre las unidades rotativas, aun cuando se trate de transmisiones., animadas de movimiento muy lento.
+Durante la marcha queda prohibido maniobrar toda clase de fajas o correas, salvo cuando las maniobras se realicen mediante montafajas u otros dispositivos mecánicos análogos que alejen todo riesgo de accidente.

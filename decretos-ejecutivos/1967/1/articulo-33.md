@@ -1,0 +1,1 @@
+Artículo 33.—Los productos o materias peligrosas deberán mantenerse en depósitos incombustibles fuera de los locales de trabajo y en lugares convenientemente aislados; se tendrán en el taller solo las cantidades necesarias para mantener la continuidad del trabajo, no se permitirá el almacenamiento conjunto de materias que, al reaccionar entre sí, puedan dar lugar a grave peligro.

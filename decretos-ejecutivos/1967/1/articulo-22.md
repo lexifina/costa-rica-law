@@ -1,0 +1,3 @@
+De la temperatura y humedad
+Artículo 22.—La temperatura y el grado de humedad del ambiente en los centros de trabajo cerrados, deberán ser mantenidos, siempre que lo permita la índole de la industria, entre límites tales que no resulten desagradables o perjudiciales para la salud. Su determinación estará a cargo del Consejo, el cual deberá observar las normas que sobre el particular señale la Organización Internacional del Trabajo.
+Cuando en ellos existan focos de calor o elementos que ejerzan influencia sobre la temperatura ambiente o la humedad, deberá procurarse eliminar o reducir en lo posible tal acción por los procedimientos más adecuados, protegiendo en debida forma a los trabajadores que laboren en ellos o en sus proximidades.

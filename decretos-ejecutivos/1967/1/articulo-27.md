@@ -1,0 +1,2 @@
+Artículo 27.—Las operaciones de limpieza deberán realizarse con el mayor esmero en las inmediaciones de los lugares ocupados por máquinas, aparatos o dispositivos que, por el movimiento de que están animados, por las operaciones que en ellos tengan lugar o por cualesquiera otras causas, ofrezcan mayor riesgo.
+Deberá cuidarse, especialmente, que el pavimento no esté encharcado ' que se mantenga limpio de aceite, grasas u otros cuerpos que lo hagan resbaladizo.

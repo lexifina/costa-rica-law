@@ -1,0 +1,1 @@
+Artículo 62.—Toda conexión de enchufe deberá tener su correspondiente conexión a tierra, por medio de un tercer terminal. Los circuitos deberán tener fusibles en relación con la carga. Los conmutadores deberán ser de seguridad o tipo cerrado.

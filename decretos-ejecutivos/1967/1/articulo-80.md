@@ -1,0 +1,1 @@
+Artículo 80.—Además de las normas contenidas en el presente capítulo, las industrias que ofrezcan mayor peligro de incendio o explosión estarán reguladas por reglamentos especiales conforme lo estime conveniente el Consejo.

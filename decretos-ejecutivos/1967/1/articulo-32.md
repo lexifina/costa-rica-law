@@ -1,0 +1,1 @@
+Artículo 32.—Los materiales, como trapos y algodones entre otros, impregnados de aceite, grasa o sustancias fácilmente inflamables, así como los residuos de materiales o productos peligrosos, deberán depositarse en recipientes incombustibles provistos de cierre hermético y distribuidos adecuadamente en el local de trabajo.

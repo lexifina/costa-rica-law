@@ -1,0 +1,1 @@
+Artículo 40.—Las unidades móviles, piezas salientes y demás partes de los motores, transmisiones y máquinas que ofrezcan peligro para los trabajares, deberán estar provistas de coberturas adecuadas o de cualquier otra protección conveniente que evite condiciones de peligro para los mismos.

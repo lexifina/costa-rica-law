@@ -1,0 +1,1 @@
+Artículo 88.—Pueden colocarse puestos de mingitorios o urinarios por el sistema de canales, cuando reúnan las condiciones de higiene indispensables para el aseo de los mismos. El ancho de tales mingitorios o urinarios no será menor de sesenta centímetros. Cuando se encuentren fuera de los edificios, Deberán estar protegidos de la vista por medio de un tabique.

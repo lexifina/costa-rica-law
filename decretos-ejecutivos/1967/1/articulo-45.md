@@ -1,0 +1,1 @@
+Artículo 45.—Los útiles, así como las máquinas que por su naturaleza cortante o lacerante ofrezcan peligro a los trabajadores, ya sea por la velocidad de que están animadas o por cualquier otra causa, deberán estar debidamente protegidas mediante el uso de dispositivos que eviten, en lo posible, la producción de accidentes.

@@ -1,0 +1,2 @@
+De las puertas y escaleras
+Artículo 18.—Los locales de trabajo deberán tener el número necesario de puertas. Aquellas que se abran hacia una escalera lo serán directamente al descanso de la misma. Deberán existir en número suficiente escaleras que sirvan de comunicación entre las distintas plantas del edificio, con las debidas garantías de solidez, estabilidad, claridad v seguridad. El número y anchura de puertas y escaleras deberán permitir la evacuación total del personal, en el tiempo mínimo y de manera segura en caso de emergencia.

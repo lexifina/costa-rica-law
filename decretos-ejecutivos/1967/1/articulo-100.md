@@ -1,0 +1,1 @@
+Artículo 100.—Cuando así lo exija la importancia del centro de trabajo o peligrosidad de la labor que en éstos se realiza, deberá disponerse de una enfermería, atendida por personal competente, para prestar los primeros auxilios los trabajadores víctimas de accidentes de cualquier clase.
