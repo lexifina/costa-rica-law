@@ -1,0 +1,1 @@
+Artículo 46.—Formalización de traslado de fondos. La entidad participante deberá notificar formalmente a la Tesorería Nacional la fecha oficial de su incorporación a la Caja Única, así como el monto inicial depositado.
