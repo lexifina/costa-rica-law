@@ -1,17 +1,24 @@
-Artículo 51.- Las resoluciones, actos y disposiciones particulares y
-especiales que dicten y tomen las autoridades de salud, deberán ser
-notificadas a las partes interesadas que hubieren hecho señalamiento para
-ese efecto. Las notificaciones se harán mediante entrega de copia
-autorizada de lo resuelto pudiendo hacerse su envío a través de carta
-certificada o telegrama en caso de que el señalamiento sea de dirección
-postal.
-Si se tratare de la primera notificación que haya de producirse en el
-expediente administrativo de ser posible se hará personalmente; en su
-defecto, se practicará en el domicilio de la parte interesada o en su
-oficina o empresa. Si se tratare de una persona jurídica, la notificación
-se hará en su principal establecimiento, con persona encargada. Los
-defectos de notificación no podrán ser alegados para solicitar su nulidad
-ni para atrasar, ni impedir la ejecución de lo resuelto; igualmente, no
-habrá lugar a solicitar nulidades, cuando los interesados se mostraren
-conocedores, en cualquier forma, de los actos, resoluciones y
-disposiciones de que se trate.
+Artículo 52.- Las resoluciones y disposiciones a que se refiere el
+artículo anterior, excepto las que fueren tomadas por el propio Ministro,
+tendrá recurso de revocatoria y apelación subsidiaria para ante el
+Titular de la Cartera, dentro de los cinco días hábiles siguientes a la
+notificación y los recursos se tramitarán con arreglo a lo siguiente:
+a) El memorial se presentará en papel sellado de un colón, en la
+oficina que dictó la resolución o disposición recurrida y
+contendrá las razones que justifiquen el recurso; la firma del
+petente será autenticada por un abogado, a menos que la
+presentación la haga personalmente el firmante.
+b) La revocatoria deberá ser resuelta en el curso de los tres días
+hábiles siguientes al de la presentación; si no fuere resuelta,
+se entenderá denegado el recurso y se procederá conforme se
+indica en los incisos siguientes.
+c) Si se denegare el recurso de revocatoria, el memorial junto con
+el expediente respectivo y los demás antecedentes del caso, serán
+enviados inmediatamente al Despacho del Ministro.
+ch) El Ministro, al reconocer la apelación, podrá revocar, confirmar
+o modificar el acto apelado y su resolución no requerirá
+formalidades especiales.
+Sin embargo, si fuere necesario a su juicio, se hará resolución
+razonada que se publicará en el Diario Oficial.
+d) En todo caso, lo resuelto por el Ministro se notificará a las
+partes que hubieren indicado lugar u oficina con ese objeto.

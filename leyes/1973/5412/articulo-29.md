@@ -1,4 +1,1 @@
-Artículo 29.- Corresponderá a la División de Servicios Médicos y
-Farmacia recomendar las normas técnicas, orientar y revisar los programas
-referentes a las prestaciones de salud que se otorgan y evaluar su
-ejecución.
+Artículo 29.- (Derogado por el artículo 4 de la Ley No. 7927 de 12 de octubre de 1999).

@@ -1,5 +1,6 @@
-Artículo 23.- Los fondos que recibe el Instituto serán depositados
-inmediatamente en uno de los Bancos Nacionales, en cuenta corriente
-propia. Los cheques que se giren contra dicha cuenta, deberán llevar
-necesariamente para su miembros de la Junta por períodos de dos años
-pudiendo ser reelectos. validez las firmas del Presidente y Tesorero.
+Artículo 23.- El financiamiento del Instituto se incluirá en el
+Presupuesto Nacional de la República, sin perjuicio de cualquier otro
+tipo de ingreso que se capte. Estos fondos serán administrados,
+separadamente, en una cuenta corriente bancaria propia, sujetos a la
+fiscalización de la Contraloría General de la República.
+( Así reformado por el artículo 3 de Ley 7233 de 8 de mayo de 1991).

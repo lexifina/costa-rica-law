@@ -6,5 +6,5 @@ que el valor de la operación no sea mayor de diez mil colones. Cuando la
 operación exceda de ese valor, será necesaria la autorización de la
 Asamblea Legislativa. También se requiere esta misma autorización,
 cualquiera que se el valor de la respectiva operación, cuando se trate de
-hacer donaciones, préstamos, otorgamientos de garantía en favor de
-otras corporaciones similares o de la condonación de impuestos.
+hacer donaciones, préstamos, otorgamientos de garantía en favor de otras
+corporaciones similares o de la condonación de impuestos.
