@@ -1,0 +1,3 @@
+Artículo 98: Son contribuyentes del Impuesto a las Ventas y el Impuesto General Forestal, todas aquellas personas físicas o jurídicas que realicen el hecho generador, que se describe así: Ventas habituales de madera en troza por parte de propietario o propietarias de centros de industrialización primaria de madera. Se mantienen por habituales las ventas constantes como actividad principal y predominantes de la empresa, que se ejecutan en forma pública.
+Asimismo, serán contribuyentes de dichos impuestos los importadores de maderas, conforme con lo dispuesto por la Ley Nº 6826 vigente.
+El impuesto general forestal en la Industria deberá ser cobrado para todos los casos diez días después de la publicación del presente reglamento en el Diario Oficial La Gaceta.

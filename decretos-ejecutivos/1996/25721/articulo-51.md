@@ -1,0 +1,1 @@
+Artículo 51: Las A.C. anualmente a solicitud del interesado emitirán las certificaciones necesarias a fin de que los beneficiarios o beneficiarias puedan aplicar la exoneración del pago de impuestos de activos, para el impuesto de tierras incultas, para la exención del impuesto de bienes inmuebles y pago del impuesto de la renta sobre el producto de la cosecha cuando corresponda.

@@ -1,0 +1,1 @@
+Artículo 24: El monto de la póliza de fidelidad establecida en el artículo 21 de la ley, será de quinientos mil colones (C500.000,00). El monto se ajustará anualmente de acuerdo al índice de precios al por mayor.

@@ -1,0 +1,1 @@
+Artículo 99: De conformidad con los artículos 25 y 32 de la Ley, se autoriza al Registro Público a anotar al margen de los inmuebles afectados, además de las prendas sobre árboles en pie, los contratos de venta a futuro de la madera cuya cantidad deberá consignarse, señalar la especie y demás condiciones y términos convenidos por las partes.

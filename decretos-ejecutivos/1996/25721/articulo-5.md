@@ -1,0 +1,3 @@
+Artículo 5o: A las Asambleas a que hace referencia el artículo anterior solamente se permitirá el ingreso de una persona por organización.
+Llegada la hora el representante del MINAE, iniciará la sesión, pasará lista de los presentes y los asistentes propondrán y elegirán, el o los representantes, los cuales serán electos con la simple mayoría de los presentes, y cualquier incidencia será resuelta por la mesa en el mismo lugar del evento. De todo lo acontecido se elaborará un acta notarial.
+En caso de empate, se realizará una segunda elección, de continuar el empate el asunto será resuelto mediante una moneda.

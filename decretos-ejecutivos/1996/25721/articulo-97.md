@@ -1,0 +1,1 @@
+Artículo 97: Para los efectos de la Regencia Forestal, esta continuará funcionando conforme las disposiciones del Reglamento de Regencias Forestales del Colegio, Decreto Nº 22084-MIRENEM y sus reformas, hasta que se publique un nuevo reglamento de Regencias Forestales.

@@ -1,0 +1,3 @@
+CAPITULO DECIMO SEGUNDO
+Del Pago de Servicios Ambientales
+Artículo 60: La Refinadora Costarricense de Petróleo, RECOPE, deberá certificar trimestralmente a la A.F.E. el monto recaudado por concepto del impuesto selectivo de consumo a los combustibles. De acuerdo con esta certificación, el MINAE presupuestará ante el Ministerio de Hacienda la estimación de la recaudación del impuesto selectivo de consumo a los hidrocarburos para su inclusión en los presupuestos ordinarios y extraordinarios de la República, según corresponda. El Ministerio de Hacienda, una vez aprobados los presupuestos deberá realizar los desembolsos de estos recursos por trimestre vencido al FONAFIFO

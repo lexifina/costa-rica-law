@@ -1,0 +1,1 @@
+Artículo 101: La A.F.E. colaborará y capacitará a las Municipalidades y Consejos Regionales Ambientales que no cuenten con los recursos humanos y financieros para hacer frente a las obligaciones establecidas en la Ley y el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 19: La solución de conflictos de carácter técnico que se originen de la aplicación del presente capítulo, será resuelto por el Director del SINAC con la asesoría de la C.N.C.F. o el órgano que esta delegue.

@@ -1,0 +1,1 @@
+Artículo 62.—Corresponderá a la A.FE. efectuar los estudios del caso, para determinar las áreas prioritarias a involucrar por A.C., el monto a pagar por hectárea y el número máximo de hectáreas de bosques y plantaciones forestales, que podrán acogerse al pago de los servicios ambientales del año siguiente a más tardar el 1° de octubre de cada año.

@@ -1,0 +1,1 @@
+Artículo 43: Los profesionales firmantes de los estudios técnicos que se requieran para optar al incentivo, serán los únicos responsables de la veracidad de la información que en los documentos por ellos firmados se consigna, así como de los métodos y procedimientos en ellos recomendados para cada bosque.

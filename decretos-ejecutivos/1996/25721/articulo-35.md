@@ -1,0 +1,2 @@
+Artículo 35.— La AFE fijará las políticas para velar por la protección y conservación de todos los bosques y terrenos forestales. A efecto de coadyuvar en la aplicación de la legislación que rige la materia, se nombrarán inspectores ad-honorem, los cuales se regirán por el Reglamento de los Comités de Vigilancia de los Recursos Naturales, COVIRENA
+(Así reformado por Artículo 35 del Decreto Ejecutivo N° 26923 del 1° de abril de 1998)

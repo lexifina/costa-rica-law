@@ -1,0 +1,1 @@
+Artículo 64: El FONAFIFO, de los recursos que reciba por lo que establece el artículo 69 de la Ley, y por el pago de otros servicios ambientales, podrá disponer de un porcentaje que no podrá ser mayor del cinco por ciento del monto anual otorgado para hacer frente a los gastos que incurra en la ejecución de este pago.

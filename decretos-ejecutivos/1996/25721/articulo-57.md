@@ -1,0 +1,1 @@
+Artículo 57: El FONAFIFO iniciará sus labores una vez estén nombrados todos los representantes que componen la Junta Directiva, la cual tendrá una sesión inaugural convocada por el representante del MINAE.

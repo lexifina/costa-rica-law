@@ -1,0 +1,1 @@
+Artículo 41.—Concluido el trámite del desembolso, el FONAFIFO vuelve al A.C., copia del contrato firmado, para la custodia e inicio del programa de control y seguimiento, a fin de verificar la información aportada por los beneficiario o beneficiarías.

@@ -1,0 +1,1 @@
+Artículo 102: Los sistemas de Certificado de Abono Forestal para reforestación, o el Certificado de Conservación de Bosque y el pago de servicios ambientales, serán indexados anualmente. Para ello se tomará como elemento mínimo de ajuste el Indice de Precios al Por Mayor del Banco Central de Costa Rica.

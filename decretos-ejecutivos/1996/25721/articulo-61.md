@@ -1,0 +1,1 @@
+Artículo 61.—De conformidad con lo establecido en el artículo 69 de la Ley, corresponderá al Fondo Nacional de Financiamiento Forestal' (FONAFIFO), la ejecución del programa de compensación de los servicios ambientales de mitigación de emisiones de gases con efecto invernadero y protección y desarrollo de la biodiversidad.

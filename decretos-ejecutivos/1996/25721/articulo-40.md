@@ -1,0 +1,1 @@
+Artículo 40: Una vez aprobada la solicitud y elaborado el contrato, la A.F.E. emitirá una resolución de aprobación, remitiendo ambos al FONAFIFO para que se emita el correspondiente certificado, para lo cual contará con un plazo máximo de treinta días.

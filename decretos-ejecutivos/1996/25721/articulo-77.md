@@ -1,0 +1,1 @@
+Artículo 77: La documentación para el transporte de madera será entregada y depositada en la industria donde se transformará. Esta deberá adjuntarse a la factura que formalice la transacción del bien y servirá como respaldo a la misma. El incumplimiento a lo anterior aplicará la sanción establecida en el artículo 63 de la ley Forestal y la correspondiente en la Ley Tributaria.

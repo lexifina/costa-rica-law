@@ -1,0 +1,1 @@
+Artículo 36: Para los efectos del artículo 19 inciso a), c) y d) de la ley se deberá llenar un cuestionario de preselección ante la A.F.E., para determinar si se requiere o no la evaluación del Impacto Ambiental, salvo que el área a cambiar de uso sea menor a 2 hectáreas. Para los efectos del inciso b, siempre se requerirá de una evaluación de Impacto Ambiental.

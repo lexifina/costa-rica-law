@@ -1,0 +1,1 @@
+Artículo 52: Las propiedades incluidas en el Régimen Forestal conforme la ley Nº 4465 y sus reformas continuarán gozando de este incentivo, de acuerdo con los contratos forestales vigentes, vencido este deberán presentar una nueva solicitud a fin de actualizar dicho registro.

@@ -1,0 +1,1 @@
+Artículo 15: En caso de no acogerse al sistema de certificación, el petente deberá cumplir con el procedimiento, que se inicia con la presentación en la Oficina Sub-Regional del A.C. correspondiente de una solicitud para la aprobación del plan de manejo, firmada por el petente y cumpliendo con los requisitos establecidos en el capítulo décimo sexto de este Reglamento.

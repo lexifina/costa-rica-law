@@ -1,0 +1,1 @@
+Artículo 12.—Para efectos del artículo 15 de la Ley, cualquier venta, permuta u otro tipo de enajenación por parte del Estado, Entes Públicos menores y las Municipalidades deberán contar de previo con un visto bueno de la A.F.E.

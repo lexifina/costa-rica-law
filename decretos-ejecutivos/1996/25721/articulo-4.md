@@ -1,0 +1,6 @@
+CAPITULO TERCERO
+De la Oficina Nacional Forestal y de los
+Consejos Regionales Ambientales
+Artículo 4º: El MINAE realizará una convocatoria a Asambleas para designar los representantes, que según el artículo 8 de la Ley integrarán la O.N.F.
+Esta convocatoria se hará con treinta días de anticipación mediante edicto publicado al efecto en el Diario Oficial La Gaceta. Para asistir a las Asambleas de los diferentes subsectores, las organizaciones deberán acreditarse ante el órgano que convoca durante la primera mitad del plazo establecido en este artículo, vencido el plazo no se aceptarán nuevas acreditaciones.
+Dentro de la documentación a aportar, deberá presentarse solicitud formal, adjuntando la certificación notarial o registral sobre su existencia y personería, será requisito indispensable por esta única vez para poder participar haber sido inscrita y estar activa antes de la publicación de la ley 7575 y deberá incluir un detalle sobre la actividad de sus asociados y en qué porcentaje integra cada subsector forestal, de acuerdo al artículo 8 de la Ley, esta información deberá presentarse mediante declaración jurada ante notario público. Verificados los requisitos el MINAE comunicará a cada quien si otorga o no la acreditación y en cual subsector para asistir a la Asamblea.

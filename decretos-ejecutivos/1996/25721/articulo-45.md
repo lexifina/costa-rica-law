@@ -1,0 +1,1 @@
+Artículo 45: Para cumplir con lo previsto en el artículo 22, párrafo 5, el FONAFIFO deducirá de los C.C.B. un monto equivalente al 5% y los depositará en la cuenta del Fondo Forestal directamente en cada A.C., en proporción al área de los proyectos ejecutados en cada A.C. El FONAFIFO hará la entrega mediante cortes mensuales del total acumulado.

@@ -1,0 +1,1 @@
+Artículo 71: Los recursos que actualmente se encuentran en el Fondo Forestal, en cuentas específicas seguirán abiertas y se utilizarán para cubrir los costos de operación de la A.F.E., hasta que el nuevo sistema esté operando.

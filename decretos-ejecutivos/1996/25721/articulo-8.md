@@ -1,0 +1,2 @@
+Artículo 8º: Una vez nombrada la totalidad de la Junta Directiva, esta deberá reunirse en una sesión de instalación con un plazo no mayor de ocho días posteriores a la fecha de la última asamblea, en la cual se elegirán entre sí y por simple mayoría los cargos en la Junta Directiva, dichos nombramientos regirán por un período de tres años.
+Estos nombramientos serán publicados en el Diario Oficial La Gaceta e inscritos en el Registro Nacional, Sección Personas.

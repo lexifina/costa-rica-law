@@ -1,0 +1,1 @@
+Artículo 66: De conformidad con lo establecido en los Decretos Ejecutivos Nº 25066-MINAE y 25067-MINAE, publicados en La Gaceta Nº 76 del 22 de abril de 1996, corresponderá a la O.C.I.C, gestionar ante organizaciones públicas o privadas a nivel internacional, el pago de servicio ambiental de mitigación de emisiones de gases con efecto invernadero.

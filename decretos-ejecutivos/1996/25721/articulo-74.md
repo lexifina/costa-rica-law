@@ -1,0 +1,1 @@
+Artículo 74: Recibida la solicitud, el A.C. correspondiente le pondrá fecha y hora y asignará un responsable de la misma, el cual tendrá un plazo de veinte días naturales para inscribir la industria y emitir la constancia de inscripción, la cual será por tiempo indefinido.

@@ -1,0 +1,1 @@
+Artículo 18: Para garantizar la calidad de los datos presentados en el Plan de Manejo, el error de muestreo máximo permisible en el Inventario Forestal será de un 20% con respecto al área basal. La C.N.C.F. podrá sugerir a la A.F.E., según cuente con el conocimiento necesario, modificaciones respecto al error de muestreo permisible.

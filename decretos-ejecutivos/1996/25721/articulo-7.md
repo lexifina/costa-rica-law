@@ -1,0 +1,1 @@
+Artículo 7º: Los representantes de cada subsector, lo son en virtud de sus cargos y no a título personal, por tal razón en caso de perder esa representatividad, deberán ser sustituidos por su sucesor en el respectivo subsector que representan.

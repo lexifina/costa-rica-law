@@ -1,0 +1,6 @@
+CAPITULO UNDÉCIMO
+Del Fondo Nacional de Financiamiento Forestal
+Artículo 54.—- El Fondo Nacional de Financiamiento Forestal es un órgano de desconcentración máxima dentro de la estructura organizativa de la AFE. Dicho Fondo tendrá una Junta Directiva, cuyo presidente tendrá facultades de apoderado generalísimo sin límite de suma para emitir y comprometer al fondo en todo upo de negocios jurídicos lícitos necesarios para el cumplimiento de los objetivos establecidos.
+La Junta Directiva emitirá los reglamentos de crédito, las condiciones para la regulación de las tasas de interés, los plazos máximos, los requisitos y cualquier otros necesarios para cumplir con sus funciones en el fomento de la actividad forestal según lo faculta la ley.
+Dentro del seno de la Junta Directiva y por periodos de dos años se nombrarán Presidente, Secretario, Tesorero y dos vocales. La Presidencia por el primer periodo corresponderá al representante del MINAE. En los periodos sucesivos será determinado por los miembros de la Junta Directiva. Asimismo, cada uno de los miembros de la Junta Directiva podrá tener un suplente que será nombrado por el órgano competente respectivo, el mismo no podrá participar en las sesiones cuando esté presente el titular.
+(Así reformado por Artículo 2° del Decreto Ejecutivo 26429 del 15 de octubre de 1997)

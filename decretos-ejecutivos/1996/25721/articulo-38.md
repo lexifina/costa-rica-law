@@ -1,0 +1,1 @@
+Artículo 38.—El Poder Ejecutivo mediante Decreto Ejecutivo establecerá las áreas prioritarias a incentivar en cada Área de Conservación, así como la cantidad de hectáreas disponible, el monto por hectárea y el plazo máximo para la presentación de las solicitudes, a más tardar el 1° de octubre de cada año.

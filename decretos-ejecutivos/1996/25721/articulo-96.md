@@ -1,0 +1,1 @@
+Artículo 96: Las personas que habiendo cumplido los requisitos completos no se les concedieron los certificados de abono forestal en todo o en parte, en el período 1995-1996, tendrán prioridad sobre cualquier otra persona de los recursos disponibles con la publicación de la ley.

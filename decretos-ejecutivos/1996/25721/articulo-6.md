@@ -1,0 +1,2 @@
+Artículo 6º: Para los períodos posteriores, las convocatorias se harán con base en estas mismas reglas, no obstante el responsable de la convocatoria de las asambleas, lo será el Presidente de la Junta Directiva de la O.N.F.
+Para la elección del representante de los grupos ecologistas, solamente podrán participar las federaciones, confederaciones, cámaras u otras organizaciones que agrupen a su vez organizaciones.
