@@ -14,3 +14,4 @@ Reglamento para la emisión de los bonos deuda interna 8% 1980, segunda emisión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-08-01 | la propia norma |
+| 2 | 1981-10-15 | Decreto Ejecutivo 13034 (1981-10-15) |
