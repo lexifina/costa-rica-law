@@ -1,0 +1,2 @@
+Transitorio.—El personal técnico y administrativo que trabaja en la Secretaría Ejecutiva Sectorial de Educación y Recursos Humanos, conservará sin solución de continuidad, todos sus derechos laborales, privilegios por años de servicio y los demás derechos de que han venido gozando.
+Dado en la Presidencia de la República.. —San José, a los ocho días del mes de marzo de mil novecientos ochenta y tres.

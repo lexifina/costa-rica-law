@@ -1,0 +1,1 @@
+Articulo 15.—El Comité Técnico Sectorial estará integrado por el Director de la Secretaria Ejecutiva , quien lo presidirá y por los jefes de departamento o unidades de planificación de las instituciones y de los programas que integran el Sector de Educación y Recursos Humanos.
