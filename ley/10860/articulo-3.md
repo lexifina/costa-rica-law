@@ -1,0 +1,9 @@
+ARTÍCULO 3- Se reforman los incisos a) y g) del artículo 143 de la Ley 9078, Ley de Tránsito por Vías Públicas Te rrestres y Seguridad Vial, del 4 de octubre de 2012. Los textos son los siguientes:
+Articulo 143- Multa categoría A. Se impondrá una multa de doscientos ochenta mil colones (<lt280,000), sin perjuicio de las sanciones conexas, a quien incurra en alguna de las siguientes conductas:
+a) A quien conduzca con la presencia de alcohol en el organismo por encima de los limites permitidos o bajo los efectos de drogas ilícitas o sus metabolitos psicoactivos.
+En caso de encontrarse presencia de alcohol en el organismo, en la prueba de medición, se aplicarán las siguientes condiciones de concentración de presencia de alcohol en sangre o aire espirado:
+i) Superior a cero coma cincuenta gramos (0,50 g) por cada litro de sangre y hasta cero coma setenta y cinco gramos (0,75 g) para cada litro de sangre, o superior a cero coma veinticinco miligramos (0,25 mg) y hasta cero coma treinta y ocho miligramos (0,38 mg) en aire espirado; en ambos supuestos para cualquier tipo de conductor.
+ii) Superior a cero coma veinte gramos (0,20 g) hasta cero coma cincuenta gramos (0,50 g) de alcohol por cada litro de sangre, o superior a cero coma diez miligramos (O, 1 O mg) hasta cero coma veinticinco miligramos (0,25 mg) por cada litro de sangre en aire espirado; en ambos supuestos para conductores profesionales y para aquellos conductores con licencia de conducir emitida por primera vez dentro de un plazo menor de tres años.
+( ... )
+g) A la persona conductora que se niegue a acatar el requerimiento del articulo 208 de esta ley de someterse a los procedimientos indicados en dicha norma, de detección de alcohol por encima de los limites permitidos o de drogas ilícitas o sus metabolitos psicoactivos en la conducción vehicular.
+( ... ).

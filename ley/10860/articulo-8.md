@@ -1,0 +1,9 @@
+ARTÍCULO 8- Reformas de otras leyes
+Se adicionan dos párrafos finales al inciso e) del artículo 9 de la Ley 6324, Ley de Administración Vial, del 24 de mayo de 1979. Los textos son los siguientes:
+Artículo 9- El Consejo tendrá las siguientes atribuciones:
+( ... )
+e) Administrar el Fondo de Seguridad Vial y asignar las sumas necesarias para los programas, proyectos, tareas, operaciones, apoyo logístico y todo lo relacionado con el fortalecimiento de la seguridad vial y la disminución de la contaminación ambiental que requieran las direcciones de Ingeniería de Tránsito, Educación Vial, la Policía de Tránsito y el propio Cosevi .
+Con los recursos del fondo, se financiará, con especial prioridad, la compra y mantenimiento de los equipos para pruebas de detección de drogas ilícitas o sus metabolitos psicoactivos, alcohosensores, dispositivos de control de velocidad y de competencias de velocidad no autorizadas, y de todo dispositivo destinado a resguardar la seguridad vial del país. Asimismo, este fondo deberá usarse para adquirir los suministros, insumos y certificaciones para la implementación de aquellos.
+Los procesos de contratación administrativa para las adquisiciones las realizará el Consejo de Seguridad Vial, a solicitud y apoyado con los requerimientos técnicos y logísticos de la Dirección General de Policía de Tránsito, de conformidad con la normativa vigente, quien deberá consultar el criterio técnico para tal fin y en lo pertinente al Instituto de Alcoholismo y Farmacodependencia, al Ministerio de Salud y al Laboratorio Costarricense de Metrología.
+Los equipos y pruebas para la detección de drogas ilícitas o sus metabolitos psicoactivos en el organismo de los conductores deberán detectar psicoactividad manifiesta de la sustancia o molécula utilizada, conforme a parámetros internacionales de sensibilidad y validación al valor de corte, de acuerdo con la droga ilícita o sus metabolitos psicoactivos en análisis.
+( ... ).

@@ -1,0 +1,5 @@
+ARTÍCULO 2- Se reforma el penúltimo párrafo del artículo 83 de la Ley 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, del 4 de octubre de 2012. El texto es el siguiente:
+Artículo 83- Permiso temporal de aprendizaje
+( ... )
+La persona aprendiz con permiso temporal debe estar asistida por un acompañante o instructor que posea una licencia de conductor del mismo tipo o superior a la que aspira, la cual deberá encontrarse vigente y haberse obtenido al menos con cinco años de antelación. Ni la persona aprendiz ni el instructor o acompañante podrán encontrarse con presencia de alcohol en el organismo ni bajo los efectos de drogas ilícitas o sus metabolitos psicoactivos, en ambos casos determinado por aplicación de los procedimientos establecidos para tal fin, de conformidad con las normas que regulan la materia, al hacer uso de este permiso. En el caso de las escuelas de manejo, los instructores deberán cumplir lo establecido en la Ley 8709, Regulación de las Escuelas de Manejo, del 3 de febrero de 2009.
+( ... ).
