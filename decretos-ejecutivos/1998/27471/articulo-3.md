@@ -1,0 +1,1 @@
+Artículo 3°—La Administración del Refugio Nacional de Vida Silvestre categoría Mixto Carate, le corresponde al Director del Sistema Nacional de Áreas de Conservación, quién la ejercerá a través del Área de Conservación Osa, del Ministerio del Ambiente y Energía, quien determinará los procedimientos a seguir para este objetivo.
