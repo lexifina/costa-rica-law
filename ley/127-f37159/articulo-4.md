@@ -1,0 +1,1 @@
+Artículo 4°-Para ser miembro de la Junta se requieren las mismas calidades que para ser Regidor Municipal, conforme lo dispone el artículo 7° de la Ley de Organización Municipal del 9 de noviembre de 1909.
