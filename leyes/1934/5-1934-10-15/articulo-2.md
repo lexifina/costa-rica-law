@@ -1,0 +1,1 @@
+Artículo 2°—Sólo podrán establecer y mantener Almacenes Generales de Depósito las sociedades organizadas con ese único objeto, y, en el caso que contempla el artículo 48, los Bancos legalmente establecidos en la República.

@@ -1,0 +1,2 @@
+Artículo 46.—Los Almacenes Generales estarán obligados a mantener una póliza de seguro de incendio sobre las mercaderías o efectos recibidos en depósito, y cobrarán a los interesados la parte proporcional que les corresponda en el pago del servicio.
+También estarán obligados a mantener debidamente equipada una cámara de fumigación para la inmunización de los cereales susceptibles de ser atacados por insectos, antes de su almacenamiento.

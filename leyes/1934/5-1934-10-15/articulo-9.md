@@ -1,0 +1,1 @@
+Artículo 9°.— Ningún Almacén de Depósito podrá iniciar sus operaciones con el público antes de que haya sido pagado por lo menos el cincuenta por ciento del capital que indica el artículo 3° de esta ley.

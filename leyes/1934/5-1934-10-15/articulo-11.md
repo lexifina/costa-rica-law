@@ -1,0 +1,1 @@
+Artículo 11.—El plazo máximo del depósito será de seis meses para las mercancías o productos susceptibles de deterioro o alteración por el trascurso del tiempo, y de un año, prorrogable a otro más por acuerdo de las partes, para los bienes que no se encuentran en aquella condición.
