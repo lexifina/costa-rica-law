@@ -1,0 +1,1 @@
+Artículo 19.—Contra las resoluciones emitidas por la Comisión, el particular podrá interponer, en forma y tiempo, los recursos ordinarios y extraordinarios dispuestos en la Ley General de la Administración Pública (LGAP).

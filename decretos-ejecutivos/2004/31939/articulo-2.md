@@ -1,0 +1,13 @@
+Artículo 2°—Para los fines y objetivos de este Reglamento, se establecen las siguientes definiciones:
+1. Actividad agropecuaria: Comprende todos aquellos procesos destinados a producir, cosechar, extraer, conservar, almacenar, empacar productos agropecuarios a nivel de unidad productiva. Comprende la actividad agrícola, la avícola, la apícola, la pecuaria, la porcicultura (suina), la acuícola, floricultura, entre otras, incluyendo la silvicultura.
+2. Comisión: Comisión Técnica de Exoneración de Insumos Agropecuarios, creada por el artículo 12° del presente decreto.
+3. Convenio: Acuerdo suscrito entre una persona física o jurídica con los Ministros de Agricultura y Ganadería y el de Hacienda, para obtener una exención que se puede otorgar de conformidad con el artículo 5º de la Ley Reguladora de todas las Exoneraciones vigentes, su derogatoria y sus excepciones a la maquinaria, equipo, e insumos para la actividad agropecuaria, así como, a las mercancías que requiera la actividad pesquera, que no se encuentren contemplados en los artículos 4º y 5º del presente reglamento.
+4. Exoneración Objetiva: se refiere a que el beneficio está orientado a las mercancías propiamente dichas y no al importador, sea éste persona física o jurídica.
+5. Exoneración Subjetiva: se refiere a que el beneficio está orientado a una persona física o jurídica.
+6. Exoneración Tipo Ordinario (o concreta): es aquella en que deben detallarse todas las características de los bienes a exonerar, tales como cantidad, peso y valor aduanero; los cuales deben corresponder a las especificaciones que se indican en los documentos de importación y desalmacenaje.
+7. Exoneración Tipo Genérico: es aquella que tendrá un plazo de vigencia definido, y en la que no se especifican cantidades, valor aduanero, peso y los demás datos que puedan limitar la cantidad del bien a importar durante el plazo de vigencia de la exención.
+8. Industrialización: Desarrollo de la industria. Entendiendo a industria como, el conjunto de operaciones materiales ejecutadas para la obtención, transformación de uno o varios productos naturales.
+9. Insumos: Bienes utilizados para la producción de otros bienes.
+10. Materia Prima: Son todos los bienes básicos o elementales utilizados para un proceso de posterior transformación física o química para la obtención de un producto terminado.
+11. Secretaría: Secretaría Técnica de la Comisión Técnica de Exoneración de Insumos Agropecuarios, creada por el artículo 22 del presente decreto.
+12. Unidad Productiva: Finca o parcela o zona de producción, almacén y establecimiento donde se llevan a cabo actividades de producción, proceso y almacenamiento de productos agropecuarios.

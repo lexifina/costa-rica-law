@@ -1,0 +1,1 @@
+Artículo 24.—La Comisión tendrá una Secretaría. Las funciones de dicha secretaría las ejercerá el Servicio Fitosanitario del Estado, creado por el artículo 4° de la Ley de Protección Fitosanitaria del Ministerio de Agricultura y Ganadería, cuyos funcionarios no percibirán emolumento adicional algunos por integrar dicha Secretaría.

@@ -1,0 +1,2 @@
+Artículo 22.—Las actas de las sesiones de la Comisión, serán aprobadas en la sesión siguiente, y serán firmadas por el Presidente y el Secretario. Los acuerdos declarados en firme, quedarán firmes en la misma sesión en que fueron acordados y serán ejecutados por la Secretaría, tal como fueren acordados.
+Asímismo, cualquier miembro de la Comisión podrá solicitar revisión de los acuerdos adoptados en la sesión anterior, dicha solicitud deberá hacerse efectiva al momento de lectura y discusión del acta de la sesión anterior.

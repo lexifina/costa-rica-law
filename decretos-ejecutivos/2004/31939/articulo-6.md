@@ -1,0 +1,1 @@
+Artículo 6º—Las ampliaciones a las listas señaladas en los artículos 4° y 5°, serán autorizados mediante resolución formal firmada por los Ministros de Hacienda, de Agricultura y Ganadería y Economía, Industria y Comercio, y debidamente publicada en el diario oficial, previa recomendación de la Comisión.
