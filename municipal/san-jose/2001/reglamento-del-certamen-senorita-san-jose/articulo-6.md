@@ -1,0 +1,1 @@
+Artículo 6°—La candidata que haya aportado datos falsos en la boleta de inscripción o documentación anexa será descalificada automáticamente por la Subcomisión de Reinado en el momento que sea demostrada la anomalía.

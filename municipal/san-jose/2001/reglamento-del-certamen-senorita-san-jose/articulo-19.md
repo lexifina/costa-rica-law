@@ -1,0 +1,1 @@
+Artículo 19.—La señorita electa Tica Linda y sus dos Damas''de Compañía deben asistir a todas las actividades a las que sean convocadas oficialmente por la Comisión de Festejos Populares, esto en la duración de los mismos, una vez concluidos los Festejos, la convocatoria la realizará la Municipalidad de San José.

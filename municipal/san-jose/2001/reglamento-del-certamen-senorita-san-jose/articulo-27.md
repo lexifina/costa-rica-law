@@ -1,0 +1,1 @@
+Artículo 27.—En caso de que la señorita Tica Linda o sus Damas de Compañía incumplan con sus compromisos oficiales durante el periodo para el que fueron electas, la Comisión de Festejos Populares o el Honorable Consejo Municipal del Cantón Central de San José se reservan el derecho de retirar los premios que recibieron o exigirles la indemnización monetaria correspondiente.

@@ -1,0 +1,1 @@
+Artículo 17.—Queda igualmente prohibido para las finalistas promocionar en forma individual, pública o privadamente productos, casas comerciales, aun cuando fuesen patrocinadores del evento hasta que éste finalice.

@@ -1,0 +1,1 @@
+Artículo 15.—En cada eliminatoria se nombrarán tres suplentes de las finalistas, mismas que las sustituirán en caso de enfermedad o incumplimiento de deberes conforme el orden de puntaje que hayan obtenido.

@@ -1,0 +1,1 @@
+Artículo 13.—Las relaciones entre las candidatas, miembros de la Subcomisión del Jurado y el personal de Apoyo deben desarrollarse dentro de un marco de absoluto respeto y cordialidad. Caso contrario, será motivo de descalificación tanto para la participante como para el Miembro del Jurado o de la Subcomisión.
