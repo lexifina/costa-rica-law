@@ -1,0 +1,4 @@
+Artículo 21.- Para las aeronaves del Estado; rigen todas las normas
+de la presente ley y sus reglamentos, sin embargo, cuando se trate de
+asuntos relacionados con la seguridad nacional, pueden apartarse de estos
+preceptos, comunicándolo a quien corresponda para la debida coordinación.
