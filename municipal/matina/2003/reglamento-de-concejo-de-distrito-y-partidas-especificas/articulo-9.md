@@ -1,0 +1,3 @@
+CAPÍTULO III
+Organización interna
+Artículo 9°—La jurisdicción territorial del Concejo de Distrito, es el distrito y las reuniones ordinarias se efectuarán en el centro de distrito, en el Salón Comunal, sin perjuicio de realizar reuniones y actividades en cualquier otra dirección, previo acuerdo y conocimiento de los miembros integrantes y de la Municipalidad. El Concejo de Distrito podrá efectuar las sesiones extraordinarias que requiera, siendo para ello posible que las traslade cuando se requiera sesionar en alguna de las comunidades dentro del mismo distrito, en cuyo caso dará aviso al Concejo Municipal.

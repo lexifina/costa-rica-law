@@ -1,0 +1,1 @@
+Artículo 22.—El o la Presidente(a) Vicepresidente (a) del Concejo de Distrito, se mantendrá en el cargo, mientras ejerza su condición de Concejil del Distrito de que se trate, o hasta cuando este decida. Cuando haya renuncia de alguno de los miembros del Directorio, se deberá de efectuar un nuevo proceso de nombramiento.
