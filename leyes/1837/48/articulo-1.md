@@ -1,0 +1,4 @@
+DECRETO XLVIII.
+Restablece en su fuerza y vigor la ley de 20 de Mayo de 831 sobre composición de caminos. (1)
+"El Vice Jefe del Estado libre de Costa Rica en ejercicio del Poder Ejecutivo.-Por cuanto la Asamblea ha decretado y el Consejo sancionando lo siguiente. La Asamblea Constitucional del Estado libre de Costa Rica, convencida de que los fondos de policía serán mejor administrados ‚ invertidos bajo el orden y arreglo establecidos en la Ley de 20 de Mayo de 831, que por las disposiciones posteriores que la innovaron, y siendo palpable la justicia con que los Pueblos demandan la retribución de las cantidades que han satisfecho al Director General para los gastos en la composicion de los caminos,decreta.
+ARTICULO 1°-Se declara en toda su fuerza y vigor la Ley de 20 de Mayo de 831 que sistemaba la composicion de los caminos.
