@@ -1,0 +1,1 @@
+Art. 51.-La suficiencia de los alumnos de fin de curso se clasificará en igual forma que la expuesta en los artículos 41, 42 y 44, para los exámenes de ingreso, teniendo en cuenta que para encontrar la nota definitiva se ha de dividir la suma de las notas obtenidas por el número de asignaturas.

@@ -1,0 +1,1 @@
+Art. 43.-Si entre los aspirantes á becas resultaren dos ó más aprobados con una misma nota final, será preferido el que comprobare, con títulos académicos, mayores conocimientos, y en caso de no tener ninguno tales títulos, ó de tenerlos iguales, el de menor edad.

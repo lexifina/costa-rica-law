@@ -1,0 +1,1 @@
+Art. 58.-Los Subtenientes y Tenientes graduados en la Escuela Militar no gozarán de sueldo entre tanto no sean destinados por la Comandancia en Jefe á alguna de las plazas de la República; pero tendrán derecho preferente para ocupar los puestos que hubiere vacantes en las guarniciones, debiendo observarse en la provisión de ellos riguroso orden de antigüedad.

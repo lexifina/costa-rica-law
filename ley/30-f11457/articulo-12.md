@@ -1,0 +1,1 @@
+Art. 12. – Además de las facultades que les corresponden como miembros del personal docente, serán considerados en la Escuela como Tenientes Coroneles en servicio activo, con goce de las prerrogativas correspondientes y uso de la jurisdicción que este reglamento se les señala.

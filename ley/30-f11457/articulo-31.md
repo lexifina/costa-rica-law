@@ -1,0 +1,1 @@
+Art. 31.--En caso de que por ineptitud de los presentados ó por otro motivo, no se llenare el número de becas correspondiente á una provincia, se hará nueva convocatoria para proveer las plazas vacantes, y si aun quedaren alguna ó algunas, se rellenarlas en el año siguiente, ó antes, servarán para si el Poder Ejecutivo lo tuviere á bien.

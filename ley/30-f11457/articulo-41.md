@@ -1,0 +1,1 @@
+Art. 41.-El resultado de los exámenes en cada materia se expresará con un número comprendido entre 1 y 21, correspondiendo desde 1 hasta 7 á la nota de DESAPROBADO; de 8 á 16 la de BUENO, y 17 á 20 la de MUY BUENO. El número 21 se usará para significar la calificación de SOBRESALIENTE.
