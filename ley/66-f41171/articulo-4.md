@@ -1,0 +1,1 @@
+Art 4°.- El Capitulante recibirá sus terrenos cerca de las Colonias a donde mejor le agrade sin perjuicio de las propiedades particulares o de los pueblos: más entro de dos años contados desde el primero de Enero próximo futuro es obligado a poner en cada una de las Colonias las quince familias a lo menos, que exige la Ley.
