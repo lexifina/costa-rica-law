@@ -1,0 +1,1 @@
+3° Para gozarla debe el reo presentarse al juez de la causa en el término de veinte días para los presentes y de tres meses para los ausentes , implorandola con certificado de la Autoridad respectiva, de haver presentado aquel juramento, y de no constar su reincidencia es semejante desordenes.
