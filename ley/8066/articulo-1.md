@@ -1,0 +1,7 @@
+8066
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DEROGACIÓN DE LA LEY REGULADORA DE LAS RELACIONES
+ENTRE PRODUCTORES E INDUSTRIALES DEL TABACO,
+Nº 2072, Y SUS REFORMAS
+ARTÍCULO 1.- Derógase la Ley reguladora de las relaciones entre productores e industriales del tabaco, Nº 2072, de 15 de noviembre de 1956, y sus reformas.
