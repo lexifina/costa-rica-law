@@ -1,0 +1,1 @@
+Art. 3°. -Tan luego el "jurado de acusación" reciba la causa, procederá á nombrar de entre sus miembros el Presidente y el Secretario, y concluido el estudio de la instrucción, pondrá un acta en la que brevemente se narrar la instalación y al pie de ella, la contestación de cada uno de los miembros del jurado; todo firmado por éstos.

@@ -1,0 +1,1 @@
+Art. 11.-Corresponde al jurado la calificación de las circunstancias destruyentes que consignan las leyes penales, y á los tribunales comunes la de las atenuantes y agravantes, lo mismo que la calificación de autores, cómplices y encubridores, naturaleza y accidentes del delito, etc.
