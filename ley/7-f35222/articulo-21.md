@@ -1,0 +1,1 @@
+Articulo 21.-La infracción de cualquiera de las disposiciones contenidas en los artículos 17, 18 y 20 serán castigadas con las penas que establece el articulo 501 del Código Penal vigente o las similares de cualquier nuevo Código Penal que llegue a promulgarse.

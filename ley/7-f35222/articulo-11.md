@@ -1,0 +1,1 @@
+Articulo 11-Es obligación del Secretario de la Junta de Educación, trascribir al Tesorero todo acuerdo tomado por la misma para ordenar o autorizar cualquier pago a cargo de los fondos escolares; en la transcripción debe citarse el número del acuerdo y la fecha de la sesión.

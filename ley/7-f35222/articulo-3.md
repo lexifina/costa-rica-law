@@ -1,0 +1,1 @@
+Articulo 3°-La prestación y la cancelación de la garantía fiduciaria se harán ante el respectivo Inspector de Escuelas. Para estos actos las Juntas darán su representación al Presidente de la del distrito en que tiene asiento la Tesorería Cantonal Escolar.

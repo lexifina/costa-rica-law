@@ -1,0 +1,1 @@
+Artículo 23.-Las Juntas de Educación quedan autorizadas para subvencionar a los Jefes Políticos y Agentes Principales de Policía que sean acreedores a ello, con una suma mensual no mayor del diez por ciento sobre las multas impuestas.
