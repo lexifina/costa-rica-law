@@ -1,0 +1,1 @@
+Artículo 33.—Estos representantes legales, deberán gestionar la apertura de una cuenta bancaria a nombre del beneficiario en cualesquiera de los bancos estatales, exclusiva para depositar los recursos provenientes de las partidas específicas.

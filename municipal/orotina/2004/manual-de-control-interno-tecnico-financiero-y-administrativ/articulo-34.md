@@ -1,0 +1,1 @@
+Artículo 34.—Los representantes legales de estas entidades deberán velar por la correspondencia de la cuenta bancaria asignada en la agencia bancaria y la oficina de depósito automático del respectivo banco.

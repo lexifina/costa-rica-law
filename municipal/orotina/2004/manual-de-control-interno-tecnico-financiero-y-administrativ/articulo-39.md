@@ -1,0 +1,1 @@
+Artículo 39.—La Tesorería Nacional determinará la ruta bancaria y definirá los montos totales a girar para cada emisión, con base en la programación financiera del gasto que se lleve a cabo en esta dependencia.

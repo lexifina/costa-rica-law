@@ -1,0 +1,1 @@
+Artículo 12.—Los Concejos Distritales Ampliados acordarán la hora y el día del mes de mayo de sus sesiones y deberán efectuar como mínimo dentro del mes señalado en tal artículo - una sesión ordinaria semanal.

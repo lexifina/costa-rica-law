@@ -1,0 +1,1 @@
+Artículo 21.—En caso de que las Municipalidades sean proponentes de proyectos, también deberán de nombrar un representante ante el Concejo de Distrito con el fin de que integre el Concejo de Distrito Ampliado.

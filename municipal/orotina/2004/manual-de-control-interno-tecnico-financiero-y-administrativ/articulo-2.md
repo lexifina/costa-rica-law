@@ -1,0 +1,3 @@
+Artículo 2º—Solamente los Concejos de Distrito pueden canalizar los proyectos a financiar con partidas específicas. Pero además puede darse los siguientes casos:
+a) Si la Municipalidad de Orotina desea financiar proyectos con esos fondos, deben presentarlos ante uno de sus Concejos de Distrito antes del último día de abril.
+b) También canalizándolo a través de un Concejo de Distrito, las Asociaciones de Desarrollo u otras entidades privadas con personería jurídica cuyo fin es promover el desarrollo comunal local, regional o nacional pueden hacerlo, si antes DEMUESTRAN IDONEIDAD PARA MANEJAR FONDOS PÚBLICOS.

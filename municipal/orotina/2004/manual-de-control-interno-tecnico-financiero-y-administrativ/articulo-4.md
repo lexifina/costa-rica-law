@@ -1,0 +1,3 @@
+Artículo 4º—Para efectos de otorgar la referida precalificación, la Municipalidad de Orotina debe garantizarse a través de un estudio de la Comisión designada para recomendar idoneidad y acuerdo unánime del Concejo Municipal, al menos lo siguiente:
+a) Idoneidad ética y moral de los personeros de las ONGS para administrar fondos públicos, considerando, entre otros, criterios tales como reconocida solvencia moral, honorabilidad y antecedentes en el manejo de este tipo de fondos.
+b) Aptitud técnica de las ONGS para el desarrollo de programas, proyectos y obras, tomando en cuenta, al menos, criterios como conocimientos, capacidad y experiencia en su ejecución. (La municipalidad tiene un Reglamento de Precalificación para brindar idoneidad).
