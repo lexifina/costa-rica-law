@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Gobernación, Policía y Seguridad Pública deberá llevar a cabo dentro de los seis meses siguientes a la vigencia de este Decreto, los trámites pertinentes ante la Notaría del Estado, a efecto de que se proceda a la confección de las respectivas escrituras públicas de propiedad a favor del Estado y de uso a favor de ese Ministerio.
