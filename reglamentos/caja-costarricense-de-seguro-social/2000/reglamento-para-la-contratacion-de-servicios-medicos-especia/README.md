@@ -14,3 +14,4 @@ Reglamento para la contratación de servicios medicos especializados por medio d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-29 | la propia norma |
+| 2 | 2001-05-24 | Reglamento 7550 (2001-05-24) |
