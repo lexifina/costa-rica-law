@@ -1,5 +1,5 @@
-ARTICULO 3.- El Instituto Costarricense de Electricidad podrá
-invitar, en calidad de observadores, a las empresas estatales, privadas
-y municipales de generación, transmisión y distribución eléctrica del
-país, a las reuniones conjuntas del Consejo de Electrificación de
-América Central (CEAC), al tenor del Artículo 16 del Convenio.
+ARTICULO 3
+Los Estados Miembros están representados en el CEAC por medio del
+organismo público que en cada país tenga atribuida por su ley local,
+competencia específica para generar, transmitir o distribuir la energía
+eléctrica.
