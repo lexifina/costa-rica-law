@@ -1,0 +1,1 @@
+Artículo 7º.- El Jefe del Registro sólo podrá rectificar el contenido de los resúmenes en virtud de oficio auténtico de la autoridad que los expidió. Pero está facultado para corregir por si, bajo su responsabilidad, los errores u omisiones de simple forma que el Registro hubiere cometido y los que provengan de repetición de resúmenes.

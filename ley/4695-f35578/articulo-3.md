@@ -1,0 +1,1 @@
+Artículo 3º.- El Registro se dividirá en tantas secciones como provincias haya y tendrá un índice general para facilitar su examen. También contará con una sección donde se inscribirán los fallos dictados en los juicios tutelares de menores, para efectos exclusivamente estadísticos y de información social.

@@ -1,0 +1,1 @@
+Artículo 12.- En casos urgentes, pueden las autoridades judiciales pedir por telégrafo el envío de una certificación. El Registro contestará telegráficamente que no existen juzgamientos, si no los hubiere, o remitirá por correo la certificación de los mismos, cuando corresponda.

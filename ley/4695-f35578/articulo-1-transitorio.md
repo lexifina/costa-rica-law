@@ -1,0 +1,1 @@
+Transitorio I.- Los empleados del Registro que al 31 de diciembre de 1970 aparezcan con nombramientos en propiedad, de hecho quedarán adscritos al Poder Judicial con los mismos deberes y derechos que la Ley Orgánica de ese Poder les señale, conservando, a la vez todos sus derechos laborales.

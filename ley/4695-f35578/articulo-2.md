@@ -1,0 +1,1 @@
+Artículo 2º.- El Registro tendrá como función esencial la de comprobar los antecedentes penales de las personas y debe prestar colaboración a los organismos que la ley determine, para fines criminológicos o estadísticos.
