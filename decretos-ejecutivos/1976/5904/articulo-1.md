@@ -17,7 +17,7 @@ Por tanto,
 DECRETAN:
 Artículo 1°-Establécese las Reservas Indígenas de Chirripó, Estrella, Guatuso, Guaymi y Talamanca, que comprenden los territorios ubicados dentro de las demarcaciones explicadas a continuación:
 RESERVA INDÍGENA DE CHIRRIPÓ
-La Reserva Indígena de Chirripó, se encuentra en las hojas del Instituto Geográfico Nacional, Barbilla 3545-IV, Río Banano 3545-I, Matama 3544-IV, Chirripó 3545-III, Pejibaye 3445-II y Cuerici 3444-I, escala 1 : 50.000.
+La Reserva Indígena de Chirripó, se encuentra en las hojas del Instituto Geográfico Nacional, Barbilla 3545-IV, Río Banano 3545-I, Matama 3544-IV, Chirripó 3545-III, Pejibaye 3445-II y Cuerici 3444-I, escala 1:50.000.
 La Reserva se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
 S 78 41 E | 4 335 m. | 217 600 | 610 900
 | | 216 750 | 615 150
@@ -104,6 +104,19 @@ Este último punto, es el inicio de la presente descripción.
 Además, la Reserva de Chirripó incluirá, como anexo administrativo, la "Reserva Indígena de Nimari-Bukeri"."*(**), su delimitación exacta será efectuada por el ITCO, en coordinación con la CONAI.
 (Así reformado los linderos de la Reserva Indígena de Chirripó anterior por el artículo 2° del decreto ejecutivo N° 6036 del 26 de mayo de 1976)
 (**) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 7267 del 9 de agosto de 1976. Anteriormente se indicaba: "Reserva Indígena de Río Peje de Pacuare")
+(*) Finca "Chirripó-Corina" (finca 4 Chirripó), situada en la hoja del Instituto Geográfico Nacional, Barbilla 3545 IV y localizada por los puntos cuyos rumbos, distancias y coordenadas son:
+Partiendo de un punto en el río Chirripó, coordenadas N 220 900, E 613 350, se sigue con un rumbo S 14° Q2' E y una distancia de 206,16 metros al río Zent en coordenadas N 220 700, E 613 400, se continúa aguas abajo por el río Zent hasta un punto en coordenadas N 216 700, E 615 200. De este punto se sigue con los siguientes rumbos, distancias y coordenadas:
+N 78 26 W | 4 491.10 | 217 600 | 610 800
+N 84 55 W | 4 517.74 | 218 000 | 606 300
+N 05 43 E | 502.49 | 218 500 | 606 350
+W Franco | 700.00 | 218 500 | 605 650
+N 07 08 E | 806.23 | 219 300 | 605 750
+N 88 22 E | 1 750.71 | 219 350 | 607 500
+S 34 05 E | 1 026.22 | 218 500 | 608 075
+E Franco | 3 675.00 | 218 500 | 611 750
+De este punto se sigue aguas abajo por el río Chirripó hasta el punto de origen de la presente descripción en coordenadas N 220 900, E 613 350.
+Área de la Reserva: 1 155 Ha. 6 875 m2.
+(*) (Mediante el artículo 5° del decreto ejecutivo N° 7268 del 9 de agosto de 1977, se agregó a la Reserva Indígena de Chirripó la Finca "Chirripó-Corina" (finca 4 Chirripó), antes mencionada. Asimismo por el artículo 6° del decreto ejecutivo N° 7268 del 9 de agosto de 1977, la finca "Chirripó-Corina" son parte integrante de la Reserva Indígena de Chirripó, serán inscritas en el Registro de la Propiedad a nombre de la Comunidad Cabécar de Chirripó, pero como finca; distintas (fincas 3 y 4 Chirripó).)
 RESERVA INDÍGENA DE GUAYMI DE COTO BRUS
 La Reserva Indígena de Guaymi de Coto Brus se encuentra en las hojas del Instituto Geográfico Nacional escala 1: 50.000, Coto Brus 3542-1 y Piedras Blancas 3542-II.
 La Reserva se localiza por los puntos, cuyos rumbos, distancias y coordenadas son: Vértice Anguciana N 307 230 y E 556 662.
@@ -290,6 +303,17 @@ De aquí hasta el punto inicial de la presente descripción de coordenadas N 394
 Además, la Reserva de Talamanca incluirá, como anexo administrativo, la "Reserva Indígena de Cocles", correspondiente a parte de las fincas 1.089 y 1.050 del ITCO.
 Su delimitación exacta será efectuada por el ITCO, en coordinación con la CONAI.
 (Así reformado los linderos de la Reserva Indígena de Talamanca anterior por el artículo 4° del decreto ejecutivo N° 6036 del 26 de mayo de 1976)
+RESERVA INDÍGENA DE CHASE
+Partiendo de un punto en el río Sixaola, coordenadas N 393 850 E 586 450, se continúa con los siguientes rumbos, distancias y coordenadas:
+N 37 18 W | 1 320.04 | 394 900 | 585 650
+N 32 44 E | 2 496.50 | 397 000 | 587 000
+S 12 41 W | 2 050.00 | 395 000 | 586 550
+S 49 54 E | 620.99 | 394 600 | 587 025
+S 21 10 E | 761.40 | 393 890 | 587 300
+De este punto se sigue aguas arriba por el río Sixaola hasta el punto de origen de la presente descripción en coordenadas N 393 850, E 586 450.
+Área de la Reserva: 190 Ha. 3 750 m2.
+(Así adicionada la Reserva Indígena de Chase (o finca 4 Talamanca) anterior, los terrenos situados en la hoja cartográfica 36 44 IV Amubri, a la Reserva Indígena de Talamanca, por el artículo 2° del decreto ejecutivo N° 7268 del 9 de agosto de 1977)
+(Mediante el artículo 3° del decreto ejecutivo N° 7268 del 9 de agosto de 1977, se estableció que la Reserva Indígena "Chase", son parte integrante de la Reserva Indígena de Talamanca, se inscribirán en el Registro de la Propiedad a nombre de la misma comunidad indígena de Talamanca, pero como fincas distintas (fincas 3 y 4 Talamanca).)
 RESERVA INDÍGENA DE TELIRE
 La Reserva Indígena de Telire, se encuentra en las hojas del Instituto Geográfico Nacional, Telire 3544-1, y Matama 3544-IV, escala 1: 50.000.
 Se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
@@ -379,3 +403,40 @@ N 42 48 E | 735.93 | 400 240 | 601 950
 De este punto, por la orilla de la playa, al punto de origen de la presente descripción en coordenadas N 399 325, E 604 150.
 Área de la Reserva: 3 538 Ha. 0 750 m2.
 (Así adicionada la Reserva Indígena De Cocles anterior por el artículo 3° del decreto ejecutivo N° 7267 del 9 de agosto de 1977. Posteriormente mediante el numeral 6° del decreto ejecutivo antes indicado, se estableció que la Reserva Indígena de Cocles es parte integrante de la Reserva Indígena de Talamanca y sus representantes serán integrados a la administración de dicha Reserva; la Reserva será inscrita en el Registro de la Propiedad a nombre de la misma comunidad indígena de Talamanca, pero como finca distinta (finca 2 Talamanca).)
+RESERVA INDÍGENA DE SIBUJU NORTE
+Esta Reserva se encuentra en las hojas del Instituto Geográfico Nacional Amubri 36 44 IV y Telire 3544 I, y localizada por los puntos cuyos rumbos, distancias y coordenadas son:
+Partiendo de un punto situado en uno de los brazos del río Moín, coordenadas N 396 850, E 571 600, se sigue aguas abajo por dicho brazo hasta el río Moín, en coordenadas N 397 550, E 571 650, se continúa por el río Moín, aguas abajo, hasta un punto de coordenadas N 398 960, E 575 200. A partir de este punto se sigue con los siguientes rumbos, distancias y coordenadas:
+S 82 17 E | 1 564.16 | 398 750 | 576 750
+N 81 37 E | 2 400.65 | 399 100 | 579 125
+N 13 13 E | 1 027.24 | 400 100 | 579 360
+N 73 06 E | 2 837.58 | 400 925 | 582 075
+S 27 13 W | 1 967.87 | 399 175 | 581 175
+S 49 58 E | 489.74 | '398 860 | 581 550
+S 31 35 W | 716.05 | 398 250 | 581 175
+S 64 11 W | 860.96 | 397 875 | 580 400
+S 50 54 W | 515.39 | 397 550 | 580 000
+S 38 00 W | 812.16 | 396 910 | 579 500
+S 70 01 W | 1 463.09 | 396 410 | 578 125
+S 38 17 W | 363.11 | 396 125 | 577 900
+S 75 41 W | 505.69 | 396 000 | 577 410
+N 44 37 W | 1 580.42 | 397 125 | 576 300
+S 73 26 W | 2 191.03 | 396 500 | 574 200
+S 53 08 W | 750.00 | 396 050 | 573 600
+S 75 13 W | 1 215.21 | 395 740 | 572 425
+N71 50 W | 1 026.17 | 396 060 | 571 450
+De este punto al punto de origen de la presente descripción en coordenadas N 396 850, E 571 600.
+Área de la Reserva: 2 194 Ha. 9 750 m".
+(Así adicionada la Reserva Indígena de Sibuju-Norte" (finca 3, Talamanca) anterior por el artículo 1° del decreto ejecutivo N° 7268 del 9 de agosto de 1977)
+(Mediante el artículo 3° del decreto ejecutivo N° 7268 del 9 de agosto de 1977, se estableció que la Reserva Indígena "Sibuju Norte", son parte integrante de la Reserva Indígena de Talamanca, se inscribirán en el Registro de la Propiedad a nombre de la misma comunidad indígena de Talamanca, pero como fincas distintas (fincas 3 y 4 Talamanca))
+RESERVA INDÍGENA DE ALTO-PACUARE
+Partiendo de la unión del río Pacuare con la quebrada Súrtuba, en coordenadas N191 750, E 590 100, se sigue aguas arriba por el río Pacuare, hasta la de éste con el río Chuguarí, en coordenadas N187 075, E 587 325. De este se continúa con los siguientes rumbos, distancias y coordenadas:
+S 40 49 W | 726.72 | 186 525 | 586 850
+S 53 26 W | 965.01 | 185 950 | 586 075
+N 63 10 W | 2 325.54 | 187 000 | 584 000
+N 31 10 W | 1 256.23 | 188 075 | 583 350
+N 35 06 E | 1 130.54 | 189 000 | 584 000
+E Franco | 4 000.00 | 189 000 | 588 000
+N 24 47 E | 2 863.56 | 191 600 | 589 200
+A partir de este punto se sigue aguas abajo por la quebrada Súrtuba hasta el punto de origen de la presente descripción en coordenadas N 191 750, E 590 100,
+Área de la Reserva: 1 336 Ha. 7 562 m2.
+(Así adicionada la reserva Indígena Alto-Pacuare anterior por el artículo 4° del decreto ejecutivo N° 7268 del 9 de agosto de 1977. Asimismo, indica dicho numeral 4° que la Reserva Indígena la zona de "Alto Pacuare" (finca Chirripó), comprende los terrenos situados en la hoja cartográfica del Instituto Geográfico Nacional, Pejibaye 3445 II y localizados por los puntos cuyos rumbos, distancias y coordenadas, descritos anteriormente. Asimismo, por el artículo 6° del decreto ejecutivo N° 7268 del 9 de agosto de 1977, la finca " finca "Alto-Pacuare", son parte integrante de la Reserva Indígena de Chirripó, serán inscritas en el Registro de la Propiedad a nombre de la Comunidad Cabécar de Chirripó, pero como finca; distintas (fincas 3 y 4 Chirripó).)
