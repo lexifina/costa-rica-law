@@ -1,0 +1,15 @@
+Nº 30061-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+Con fundamento en lo dispuesto por el artículo 140 incisos 3) y 18) de la Constitución Política, anexo 2 al Convenio sobre Aviación Civil Internacional, aprobado por Ley Nº 877 del 4 de julio de 1947 y la Ley General de Aviación Civil Nº 5150 del 14 de mayo de 1973 y sus reformas.
+Considerando:
+1º—Que Costa Rica es país signatario del Convenio sobre Aviación Civil Internacional (Chicago 1944) aprobado en su totalidad por la Asamblea Legislativa de conformidad con lo establecido por la Constitución política de Costa Rica mediante Ley Nº 877 del 4 de julio de 1947.
+2º—Que el CapÍtulo VI, artículo 37 de dicho Convenio, relativo a la "Adopción de Normas y Procedimientos", establece que cada Estado Contratante se compromete a colaborar, a fin de lograr al más alto grado de uniformidad posible en las reglamentaciones, normas, procedimientos y organización relativos a las aeronaves, personal, aerovías y servicios auxiliares, en todas las cuestiones en que tal uniformidad facilite y mejore la navegación aérea.
+3º—De sus finalidades y propósitos. Que de conformidad con lo establecido por la Ley de Creación del Ministerio de Obras Públicas y Transportes, Nº 4786 del 5 de julio de 1971 y sus reformas, corresponde a este Ministerio darse la organización interna que más se adecué al cumplimiento.
+4º—Que de acuerdo con lo prescrito por la Ley General de Aviación Civil, Nº 5150 del 14 de mayo de 1973 y sus reformas, el Consejo Técnico de Aviación Civil y la Dirección General de Aviación Civil, adscritos al Ministerio de Obras Públicas y Transportes, constituyen los órganos competentes en todo lo referente a la regulación y control de la aviación civil dentro del territorio de la República.
+5º—Que el grado de especialización de las funciones que requiere la navegación aérea demanda el fortalecimiento de la regulación relativa al vuelo y maniobras de aeronaves, así como su mantenimiento.
+6º—Que la normativa aeronáutica es cambiante, conforme a los avances de la tecnología en la aviación y por ende debe estar en constante revisión para los ajustes respectivos que garanticen la seguridad operacional. Por tanto,
+Decretan:
+Artículo 1º—Se acuerda adicionar en el Capítulo XI del RAC-OPS, Parte 1, la Sección OPS 1903 denominada "Junta de Revisión de Mantenimiento del Operador", del Decreto Nº 28434-MOPT que dirá:
+a) Los explotadores costarricenses de aeronaves de categoría de transporte, deberán tener una Junta de revisión de mantenimiento para dar seguimiento y evaluar el programa de mantenimiento, estableciendo un sistema de análisis y supervisión continua del funcionamiento y eficiencia del programa de mantenimiento, de tal forma que pueda corregir cualquier deficiencia del programa y proponer los cambios y ajustes al mismo.
+b) La Dirección General de Aviación Civil participará regularmente, a través de un representante de Ingeniería y Aeronavegabilidad para atender el proceso de evaluación de la Junta de mantenimiento.
