@@ -1,0 +1,6 @@
+Artículo 3º.- Sesiones.
+El Consejo sesionará los días martes de cada semana, a la hora que dicho organismo disponga hacerlo regularmente. Si dicho día resultare feriado, la sesión se efectuará cualquier otro que previamente se haya acordado.
+Extraordinariamente se reunirá el Consejo cuando así lo hubiere acordado, o cuando lo soliciten por escrito, al Presidente o al Secretario, tres de sus miembros por lo menos. En este caso la convocatoria se hará con un mínimo de veinticuatro horas de anticipación.
+Los miembros propietarios y suplentes del Consejo están obligados a asistir a todas las sesiones de éste. Los suplentes solamente tendrán el derecho de participar en las deliberaciones, salvo en el caso en que actúen en sustitución del propietario respectivo, en cuyo evento tendrán además el derecho de voto.
+No podrán celebrarse más de una sesión remunerada por día. Las sesiones remuneradas serán por un máximo de seis en el mes, no más de una semanal ordinaria y no más de dos extraordinarias en un mes, sin que puedan exceder las sesiones extraordinarias de doce en el año calendario.
+Para que las sesiones sean remuneradas, su duración no podrá ser menor de una hora y treinta minutos, excepto en el caso de audiencias.

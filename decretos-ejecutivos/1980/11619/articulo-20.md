@@ -1,0 +1,1 @@
+Artículo 20.- La Secretaría comisionará de oficio al Ministro de Trabajo y Seguridad Social, y a la agrupación que representan, las ausencias injustificadas a sesiones ordinarias y extraordinarias en que incurran sus miembros.
