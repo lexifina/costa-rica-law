@@ -1,12 +1,3 @@
-ARTICULO 102.- Será sancionado con multa de diez mil colones
-(¢10.000) a cuarenta mil colones (¢40.000), convertible en pena de
-prisión de dos a ocho meses y con el comiso del equipo o material
-correspondiente, quien pesque en aguas continentales -ríos, riachuelos y
-quebradas hasta su desembocadura, lagos, lagunas y embalses-, de
-propiedad nacional, empleando explosivos, arbaletas, atarrayas,
-chinchorros, líneas múltiples, trasmallo o cualquier otro método que
-ponga en peligro la continuidad de las especies. En caso de que se
-efectúe la pesca, en aguas continentales, empleando venenos, cal o
-plaguicidas será sancionado con una multa de cincuenta mil colones
-(¢50.000) a cien mil colones (¢100.000), convertible en pena de prisión
-de uno a dos años y con el comiso del equipo y material correspondientes.
+ARTICULO 102.- Será sancionado con multa de treinta y un mil novecientos cuarenta y cuatro colones netos (¢31.944,00) a ciento veintiséis mil ciento setenta y nueve colones netos (¢126.179,00), *(convertible en pena de prisión de dos a ocho meses) y con el comiso del equipo o material correspondiente, quien pesque en aguas continentales -ríos, riachuelos y quebradas hasta su desembocadura, lagos, lagunas y embalses-, de propiedad nacional, empleando explosivos, arbaletas, atarrayas, chinchorros, líneas múltiples, trasmallo o cualquier otro método que ponga en peligro la continuidad de las especies. En caso de que se efectúe la pesca, en aguas continentales, empleando venenos, cal o plaguicidas será sancionado con una multa de ciento cincuenta y ocho mil ciento veintitrés colones netos (¢158.123,00) a trescientos dieciséis mil trescientos setenta y nueve colones (¢316.379,00), *(convertible en pena de prisión de uno a dos años) y con el comiso del equipo y material correspondientes. *(Por resolución de la Sala Constitucional N° 6307 de las 10:34 hrs. del 3 de julio del 2003, se anulan de este artículo las frases: "...convertible en pena de prisión de dos a ocho meses..."
+y "...convertible en pena de prisión de uno a dos años...").
+(Así actualizados los montos por el artículo 1° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
