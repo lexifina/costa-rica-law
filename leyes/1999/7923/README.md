@@ -1,6 +1,6 @@
 # Municipalidad de Alvarado Dona Lote a Escuela Encarnación Gamboa
 
-Ley N° 7923 del 1999-10-12. SINALEVI, ficha 29957: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=29957&param2=31649&param3=1>.
+Ley N° 7923 del 1999-10-12. SINALEVI, ficha 29957: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=29957&param2=31650&param3=1>.
 
 Publicada en La Gaceta N° 207 del 1999-10-26.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 1999-10-26 | Ley 7923 | 1999-10-12 |
+| 2 de 2 | 1999-10-26 | SINALEVI | 1999-10-12 |
