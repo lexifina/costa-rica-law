@@ -1,1 +1,0 @@
-Artículo 5º.- La Contraloría General de la República deberá aprobar y fiscalizar la ejecución de los presupuestos de la Asociación Cruz Roja Costarricense, en el caso de aquellos programas financiados por fondos públicos, provenientes o no de impuestos específicos.

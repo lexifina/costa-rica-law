@@ -1,1 +1,0 @@
-Artículo 2º.- El Poder Ejecutivo reglamentará la forma de recaudación del impuesto creado en el artículo anterior, en un plazo no mayor de tres meses, para que éste se ajuste a los sistemas de recaudación establecidos en la actualidad, para impuestos similares.
