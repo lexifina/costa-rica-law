@@ -1,0 +1,2 @@
+Artículo 11.—Las mociones de orden tendrán el privilegio de ser presentadas en forma oral. El o la Presidente les dará trámite inmediatamente después de que termine quien está haciendo uso de la palabra. El proponente deberá motivarla.
+Sin discusión, deberá someterse a votación. Entre otras, se considerarán mociones de orden: dar por agotada la discusión, referirse al tema en discusión cuando se considere que hay desvió, que se levante la sesión, recesos.

@@ -1,0 +1,1 @@
+Artículo 16.—El Presidente concederá la palabra en el orden en que la soliciten los regidores y síndicos, sean estos propietarios o suplentes, quienes lo harán levantando la mano El Presidente podrá pedir a los regidores que se concreten al tema de debate y de hacer caso omiso podrá retirarles el uso de la palabra.
