@@ -1,0 +1,1 @@
+Artículo 2°.- Los barcos de bandera extranjera quedan autorizados a realizar actividades de pesca marítima con fines comerciales, dentro de las ciento ochenta y ocho millas del mar patrimonial costarricense, contadas a partir de donde terminan las doce millas del mar territorial, siempre y cuando cuenten con el respectivo permiso y que estén debidamente registrados.

@@ -1,0 +1,1 @@
+Artículo 4°.- Tanto los ciudadanos como las embarcaciones extranjeras, podrán ser autorizadas para efectuar actividades de pesca deportiva dentro de las doce millas del mar territorial costarricense, siempre que obtengan el correspondiente permiso.

@@ -1,0 +1,1 @@
+Artículo 3°.- El permiso de pesca comercial para barcos de bandera extranjera únicamente se solicitará y serán válidos para hacerse efectivos en uno de los mares patrimoniales costarricenses, ya sea para el Océano Pacífico o el Mar Caribe.
