@@ -1,57 +1,33 @@
 CAPITULO II
 Del contrato turístico
-Artículo 7º.- Será requisito general indispensable, que las personas
-físicas o jurídicas interesadas en la obtención de los incentivos de la
-Ley, hayan sido previamente calificadas como actividad turística en forma
-definitiva por la Junta Directiva del Instituto, de acuerdo con las
-regulaciones vigentes. Sin esta calificación no se podrá dar trámite a
-ninguna solicitud de contrato turístico.
-En caso de que a la empresa con contrato turístico le fuera cancelada
-la declaratoria turística por la Junta Directiva del Instituto, se
-procederá a iniciar el trámite de cancelación del respectivo contrato. Lo
-anterior deberá comunicarse de inmediato a la Secretaría.
-La calificación de actividad turística no compromete al Instituto ni a
-la Comisión al otorgamiento de un contrato turístico y sus incentivos, ya
-que estos se evaluarán y aprobarán con base en los requisitos
-establecidos por la Ley, este reglamento y la Comisión.
-Para gestionar el contrato las personas físicas o jurídicas deben
-presentar ante la Comisión, una solicitud escrita firmada por el
-gestionante o representante legal si se tratare de una persona jurídica.
-A esta solicitud debidamente autenticada se le adjuntará entre otros los
-siguientes datos y documentos:
-a)Fotocopia del expediente de declaratoria turística de la empresa,
-certificado por el correspondiente Departamento Técnico del
-Instituto, donde se indique que la empresa ha sido calificada en
-forma definitiva como actividad turística.
-b)Certificación notarial respecto a:
-- Acta constitutiva de la sociedad y personería jurídica.
-- Composición del capital social (nombre de socios y
-porcentajes de participación).
-- Plazo social.
-- Integración de la Junta Directiva.
-En caso de persona física, se deberá acompañar a la solicitud la
-certificación de la cuenta cedular del gestionante y la
-certificación indicada en el inciso c) de este artículo.
-c)Certificación de contador público autorizado respecto a la capacidad
-de la empresa para invertir en la actividad un monto mínimo que
-garantice la operación de una flotilla propia no inferior a veinte
-vehículos.
-d)Curriculum Vitae de los principales administradores y cuatro cartas
-de recomendación emitidas preferentemente por gerentes de hoteles,
-compañías aéreas y agencias de viajes, la Asociación Costarricense de
-Autorrentistas o por empresas de prestigio, que acrediten a los
-citados administradores como personas con experiencia y conocimiento
-en el ramo.
-e)Certificación de que el nombre comercial del solicitante está
-inscrito en la oficina competente del Registro Nacional.
-f)Análisis debidamente suscrito por el dueño o representante legal
-respecto a los siguientes aspectos:
-- La contribución en la balanza de pagos.
-- La utilización de materias primas e insumos nacionales.
-- La creación de empleos directos o indirectos.
-- Los efectos en el desarrollo regional.
-- La modernización o diversificación de la oferta turística nacional.
-- Los incrementos de la demanda turística interna e internacional.
-- Los beneficios que se reflejan en otros sectores.
-g)Otros que la Comisión estime indispensables para el estudio de la
-solicitud del contrato.
+Artículo 7º—Para solicitar el Contrato Turístico las personas físicas o jurídicas deberán haber obtenido la declaratoria turística y presentar al Instituto los siguientes requisitos:
+1) Solicitud escrita para la obtención del contrato turístico suscrita por el interesado o por el representante legal en caso de ser persona jurídica y con las firmas debidamente autenticadas.
+2) Copia de la resolución que otorga la declaratoria turística.
+3) Certificación de Personería Jurídica, si:
+a) la presentada en el trámite de declaratoria tiene más de tres meses desde su expedición.
+b) han cambiado los personeros de la empresa después del otorgamiento de la declaratoria turística, deberán actualizar la información relacionada con dichos personeros.
+Toda certificación que se presente deberá tener una antigüedad no mayor a tres meses contados a partir de la fecha de expedición de la misma.
+4) Certificación de Contador Público Autorizado sobre la composición de su capital social según libros contables, la cual debe indicar:
+a) monto total del capital social, el número de acciones y el porcentaje de participación de los socios
+b) la capacidad de la empresa para invertir en la actividad un monto mínimo que garantice la operación de una flotilla propia no inferior a veinte vehículos nuevos.
+Toda certificación que se presente deberá tener una antigüedad no mayor a tres meses contados a partir de la fecha de expedición de la misma;
+5) Declaración Jurada: esta deberá ser otorgada por el interesado, si es persona física o del representante legal de la entidad, en el caso de personas jurídicas. Dicha declaración notarial deberá contener los siguientes compromisos:
+a) que la empresa tendrá como objeto exclusivo la actividad de arrendamiento de vehículos a nacionales y extranjeros, y que en caso de dedicarse a otros giros, los llevará contable y administrativamente por separado.
+b) que se iniciará operaciones, dentro de un plazo máximo de seis meses contados a partir de la firma del contrato turístico.
+Este plazo sólo podrá ser ampliado por la Comisión mediante acto razonado en atención a solicitud debidamente justificada del interesado.
+c) que la empresa renovará los vehículos exonerados, dentro de un plazo máximo de tres años, contados a partir de la fecha de la inscripción en el Registro Público.
+Para estos efectos no se computarán los plazos que la Administración tarde en resolver las respectivas peticiones de los beneficiarios de las exenciones.
+Requisitos Técnicos: El solicitante indicará la cantidad y descripción detallada de los vehículos y estilos que utilizará en la actividad de arrendamiento, cantidad que no podrá ser inferior en ningún caso a veinte vehículos de su propiedad.
+Requisitos Económicos: Deberá presentar un estudio económico, el cual deberá incluir los siguientes aspectos:
+a- Contribución en la Balanza de Pagos.
+b- La utilización de materias primas e insumos nacionales.
+c- La creación de empleos directos e indirectos.
+d- Los efectos en el desarrollo regional.
+e- La modernización o diversificación de la oferta turística nacional.
+f- Los incrementos de la demanda turística interna e internacional.
+g- Los beneficios que se reflejan en otros sectores.
+Las especificaciones que debe contener este estudio se detallan en este decreto como Anexo 2 "Guía de Requisitos para confeccionar un estudio Económico".
+Las Guías de Requisitos para Contrato Turístico detalladas en los Anexos 2 y 3 son parte normativa integrante de este Reglamento y su contenido establece la forma completa de cumplir los requisitos específicos establecidos en este reglamento.
+Una vez efectuada la revisión de los documentos, el Instituto deberá especificar por escrito y por única vez la lista de requisitos o documentos pendientes de aportar.
+Firmado el contrato y de previo a que la empresa inicie el trámite de la primera exoneración de un bien, deberá presentar un plan de compras, que incluya un detalle de los bienes a exonerar y sus respectivas cantidades, requeridos en las actividades y proyectos objeto del contrato turístico. En caso de bienes no incluidos en el plan de compras original, deberá presentar la respectiva ampliación a dicho plan para que sea aprobado por la Comisión."
+(Así reformado por el artículo 2 del Decreto Ejecutivo N° 29215 de 19 de enero del 2001)
