@@ -19,3 +19,4 @@ Reglamento para el Cobro de Préstamos del Banco Nacional
 | 4 | 1999-10-12 | Reglamento 11002 (1999-10-12) |
 | 5 | 2000-02-29 | Reglamento 11020 (2000-02-29) |
 | 6 | 2000-08-08 | Reglamento 11046 (2000-08-08) |
+| 7 | 2002-11-05 | Reglamento 11177 (2002-11-05) |
