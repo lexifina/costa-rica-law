@@ -1,0 +1,1 @@
+Artículo 33.- Los servidores a que se refiere el artículo anterior podrán disfrutar del día libre por cada tres meses consecutivos de trabajo, cuando su jefatura inmediata, previa comprobación de que no han tenido ausencias no llegadas tardías, así lo comunique al Departamento de Recursos Humanos.

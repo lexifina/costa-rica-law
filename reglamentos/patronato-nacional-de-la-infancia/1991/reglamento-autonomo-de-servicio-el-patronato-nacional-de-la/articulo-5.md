@@ -1,0 +1,1 @@
+Artículo 5°.- Es servidor interino el que se nombra para sustituir a un servidor regular, ausente por motivo de riesgo profesional, enfermedad, licencia o cualquier otra causa que suspenda la relación de servicio.

@@ -1,0 +1,1 @@
+Artículo 21.- Queda prohibido acumular vacaciones; sin embargo, podrán acumularse hasta por un período, cuando el servidor desempeña labores técnicas, de dirección, de confianza u otras que dificulten su reemplazo.
