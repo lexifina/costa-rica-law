@@ -1,0 +1,1 @@
+Artículo 32.—En aquellos casos en que el usuario debe reponer el material, éstos deberán tener el mismo título y autor del que se perdió. En caso de no poder localizar el material en las librerías deberá informarlo al encargado de la selección y adquisición de materiales, quien le indicará el trámite por seguir según las normas establecidas.

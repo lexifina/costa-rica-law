@@ -1,0 +1,6 @@
+Artículo 22.—Se podrán realizar exposiciones, conferencias y otras actividades afines al interés institucional en áreas destinadas al efecto, de acuerdo con lo establecido en los siguientes incisos:
+a) Estas áreas podrán ser utilizadas tanto por grupos internos como externos a la institución, siempre y cuando medie solicitud de algún funcionario o grupo organizado de la institución, indicando el periodo por el cual serán utilizadas. En todo caso tendrán prioridad las solicitudes de las dependencias institucionales que obedezcan a programas previamente establecidos.
+b) Las instalaciones podrán ser utilizadas únicamente durante las horas hábiles de trabajo de la Biblioteca, salvo casos de excepción, autorizados previamente por el encargado de la Biblioteca.
+c) Las actividades deberán ser de índole artística, cultural o de divulgación científico-tecnológica y en general, deben propiciar el enriquecimiento cultural y social de la institución y de la comunidad.
+d) No se prestarán las áreas para actividades que tengan fines lucrativos.
+e) La Biblioteca no se responsabilizará por ningún material que forme parte de las exposiciones organizadas por otros Departamentos o grupos externos a la institución.

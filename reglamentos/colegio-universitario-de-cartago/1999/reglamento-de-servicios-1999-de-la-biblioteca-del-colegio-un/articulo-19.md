@@ -1,0 +1,1 @@
+Artículo 19.—Al usuario de servicio de préstamo interbibliotecario que no se presentare a utilizar el material solicitado en los días posteriores a la fecha fijada, se le suspenderán estos servicios por un periodo de un mes.

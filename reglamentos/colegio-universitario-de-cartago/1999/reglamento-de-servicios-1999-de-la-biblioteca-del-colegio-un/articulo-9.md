@@ -1,0 +1,1 @@
+Artículo 9º—Las publicaciones periódicas y seriadas solo se prestan para ser consultadas en las salas de la Biblioteca, salvo aquellos casos en que la Sección de Revistas o Dirección autorice lo contrario.

@@ -1,0 +1,1 @@
+Artículo 10.—El material de referencia se prestará únicamente para ser consultado dentro del Centro, salvo aquellos casos muy calificados en que la Sección de Consultas y Referencias, o el encargado de la Biblioteca autoricen lo contrario.

@@ -1,0 +1,1 @@
+Artículo 8º—El material de reserva se podrá prestar hasta por 3 horas durante el día. A partir de las 4 p.m. podrá ser prestado a domicilio para ser devuelto a más tardar a las 10 a. m. del siguiente día hábil.

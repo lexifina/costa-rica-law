@@ -1,0 +1,1 @@
+Artículo 23.—Los cubículos de estudio para grupos serán prestados únicamente a los estudiantes de Colegio Universitario de Cartago, por periodos máximos de 3 horas por día, renovables si hay disponibilidad. En ellos se permitirá únicamente la realización de actividades académicas. No podrán utilizarse radios, ni grabadoras dentro de la Biblioteca.

@@ -1,0 +1,1 @@
+Artículo 7º—La responsabilidad por la devolución a tiempo y en perfecto estado de conservación de los materiales solicitados para el desempeño de las labores del departamento, recaerá sobre el funcionario que firmó la boleta de préstamo.

@@ -1,0 +1,1 @@
+Artículo 17.—Los libros o materiales que se le facilitan a la Biblioteca de préstamo interbibliotecario solo pueden ser consultados dentro del Centro de Documentación, previa presentación de la boleta de préstamo.

@@ -1,0 +1,1 @@
+Artículo 6º—La Biblioteca podrá prestar otros servicios relacionados con sus funciones o prescindir temporalmente de algunos de ellos según la disponibilidad, previa autorización del Departamento de Bienestar Estudiantil.

@@ -1,0 +1,1 @@
+Artículo 12.—El personal encargado de dar el servicio de préstamo y devolución definirá el periodo de préstamo tomando en cuenta los artículos anteriores, así como la demanda del material, limitaciones de la biblioteca y otras circunstancias particulares de los usuarios debidamente justificados.

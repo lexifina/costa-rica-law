@@ -1,0 +1,1 @@
+Artículo 14.—Los usuarios podrán solicitar renovación del préstamo, para lo cual deberán presentar la boleta de préstamo y el libro u otro material. Se procederá a renovar el préstamo por un periodo igual, siempre y cuando el título o el material no haya sido solicitado por otro usuario.

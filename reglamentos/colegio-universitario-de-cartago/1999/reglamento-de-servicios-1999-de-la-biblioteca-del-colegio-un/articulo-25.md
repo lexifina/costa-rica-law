@@ -1,0 +1,1 @@
+Artículo 25.—En caso de que los usuarios estén ausentes de un cubículo o de las mesas de lectura y estas tengan únicamente las pertenencias de los estudiantes, los funcionarios de la Biblioteca, podrán recoger dichos bienes sin ninguna responsabilidad para ellos, siempre que se haya dado un plazo de al menos 15 minutos de espera.
