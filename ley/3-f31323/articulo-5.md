@@ -1,0 +1,5 @@
+Artículo 5.-El Poder Ejecutivo podrá aprovechar para carreteras, caminos y cuales quiera otras obras públicas, el trabajo de todo preso, enjuiciado o sentenciado, cualquiera que haya sido su delito.-Sin embargo, no será destinados a trabajar fuera del establecimientos penal:
+1.-Los condenados por delito cometido por medio de la prensa, cuyas expresiones calumniosas o injuriosas hayan tenido por objeto defender un interés público actual o hacer relatos de sucesos públicos en que ha intervenido el ofendido o hayan sido publicadas contra autoridades o funcionarios públicos en su carácter de tales, a menos que soliciten el trabajo por escrito; en todo caso gozarán también de esa exención los editores responsables del periódico, folleto o libro;
+2.-Los presos enjuiciados contra quienes no se haya pronunciado aún condenatoria firme, a menos que soliciten el trabajo por medio de escrito dirigido al Alcaide o Jefe del establecimiento penal;
+3.-Los menores de dieciocho años, que no sean reincidentes, aunque soliciten el trabajo; y
+4.-Los reos de asesinato o parricidio.

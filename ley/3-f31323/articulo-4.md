@@ -1,0 +1,1 @@
+Artículo 4.-El trabajo ha de ser apropiado a las condiciones personales del individuo; no se impone como vejamen sino que se exige como necesidad de un buen régimen de higiene física y moral.-El trabajo obligatorio no podrá exceder de ocho horas diarias ni será exigible en días domingos o feriados por ley.
