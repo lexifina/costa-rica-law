@@ -1,0 +1,1 @@
+Artículo 13.—Aquellos casos que no puedan ser resueltos por la Comisión Calificadora, dada su naturaleza, serán elevados para su. resolución definitiva al Ministro de Economía y Comercio o a solicitud por considerar que existe producción regional del representante del Ministerio de Economía y Comercio.

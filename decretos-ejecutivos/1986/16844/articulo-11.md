@@ -1,0 +1,1 @@
+Artículo 11.—La Subdirección de Investigaciones del Ministerio de Agricultura y Ganadería, fungirá como Secretaría Técnica de la Comisión, la cual contará con el respaldo de todas las dependencias del Ministerio de Agricultura y Ganadería.

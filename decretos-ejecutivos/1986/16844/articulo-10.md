@@ -1,0 +1,1 @@
+Artículo 10.—La Comisión sesionará en el local del Ministerio de Agricultura y Ganadería una vez por semana en forma ordinaria, y extraordinariamente cuando sea convocada por su Presidente o a solicitud de por lo menos dos de sus miembros; en un plazo no menor de 24 horas.

@@ -1,0 +1,1 @@
+Artículo 6°—A partir de la vigencia de la ley, el Ministerio de Economía y Comercio deberá revisar periódicamente los márgenes de utilidad que sobre maquinaria agrícola, repuestos y agroquímicos están cobrando las casas importadoras y distribuidoras de estos bienes.
