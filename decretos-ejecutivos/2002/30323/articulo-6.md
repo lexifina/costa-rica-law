@@ -1,9 +1,0 @@
-Artículo 6º—Corresponde a la Dirección del IDIECO ejercer la administración general del Instituto y cumplir con las siguientes funciones:
-a. Proponer al Consejo Técnico el proyecto de políticas en materia de construcción, mantenimiento y rehabilitación de la infraestructura de los centros educativos público, así como las que corresponde a equipamiento y mobiliario escolares de éstos.
-b. Dirigir y ejecutar las políticas definidas por el Consejo Superior de Educación en materia de construcción, mantenimiento y rehabilitación de la infraestructura de los centros educativos públicos así como las que corresponde a equipamiento y mobiliario escolares de éstos
-c. Proponer al Consejo Técnico el Plan Operativo Anual del IDIECO.
-d. Planificar, organizar, coordinar, controlar y evaluar el trabajo técnico que corresponde al IDIECO en cumplimiento de los programas y proyectos que se le asignen.
-e. Coordinar los procesos de transferencia de recursos del Ministerio de Educación a las Juntas de Educación y Juntas Administrativas para que estas asuman – con su asesoría y apoyo técnicos – las tareas correspondientes a la construcción y mantenimiento de la infraestructura escolar.
-f. Garantizar – por parte del IDIECO y de cualesquiera otras instancias técnicas del Ministerio de Educación – la asesoría y el apoyo técnicos permanentes a las Juntas de Educación y Administrativas en materia de licitaciones, contratación, administración, supervisión técnica, uso de los recursos y evaluación de los procesos de construcción o mantenimiento de infraestructura.
-g. Promover procesos de cooperación internacional tanto de financiamiento de proyectos como de asistencia técnica en materia de construcción y mantenimiento de infraestructura educativa, así como de equipamiento y mobiliario escolar.
-h. Otras que expresamente le señale el Consejo Superior de Educación o el Ministro.
