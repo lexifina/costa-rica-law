@@ -18,3 +18,4 @@ Reforma Integración de Junta de Desarrollo Portuario de Golfito
 | 3 | 2000-02-24 | Decreto Ejecutivo 28553 (2000-02-24) |
 | 4 | 2001-07-23 | Decreto Ejecutivo 29759 (2001-07-23) |
 | 5 | 2002-07-01 | Decreto Ejecutivo 30567 (2002-07-01) |
+| 6 | 2002-09-10 | Decreto Ejecutivo 30744 (2002-09-10) |

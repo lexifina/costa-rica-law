@@ -1,6 +1,8 @@
+(Derogado)
 N° 27294 MOPT
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES
+(NOTA: Esta norma ha sido DEROGADA EN SU TOTALIDAD por el artículo 3 del decreto ejecutivo N° 30744 del 10 de setiembre del 2002)
 En el ejercicio de las facultades conferidas por el articulo 140, incisos 3) y 18) de la Constitución Política; asimismo, la Ley de Creación del Ministerio de Obras Públicas y Transportes N° 4786, del 5 de julio de 1971 y sus múltiples reformas, artículos 1, 2 y 3, siguientes y concordantes; artículos 11 y 27 de la Ley General de la Administración Pública N° 6227 y el artículo 48 de la Ley N° 7040, del 25 de abril de 1986.
 Considerando:
 1°—Que de conformidad con lo establecido en el artículo 48 de la Ley N° 7040, del 25 de abril de 1986, es una competencia material exclusiva del Ministerio de Obras Públicas y Transportes, la designación explícita de los funcionarios públicos y de las personas que conformarán e integrarán la Junta de Desarrollo Portuaria del Cantón de Golfito, nombre actualmente atribuido por el Decreto Ejecutivo N° 25231-MOPT del 13 de mayo de 1996, con el propósito de que en forma directa, coordinada y eficiente administren los ingresos provenientes del Muelle de Golfito.
