@@ -18,3 +18,4 @@ Reglamento de Contratación de Abogados Externos para el Cobro Judicial y Servic
 | 3 | 1999-03-29 | Reglamento 3588 (1999-03-29) |
 | 4 | 2000-03-02 | Reglamento 3588 (2000-03-02) |
 | 5 | 2000-03-02 | Reglamento 3640 (2000-03-02) |
+| 6 | 2000-11-14 | Reglamento 3778 (2000-11-14) |
