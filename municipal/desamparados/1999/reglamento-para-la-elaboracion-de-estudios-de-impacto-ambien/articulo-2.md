@@ -1,0 +1,1 @@
+Artículo 2°-Todos los proyectos de urbanización que se propongan ejecutar dentro de los límites del cantón de Desamparados, deberán cumplir con el requisito de presentar y aprobar un Estudio de Impacto Ambiental (ESlA), de conformidad con la Ley Orgánica del Ambiente, la Ley de Planificación Urbana y el Código Municipal.
