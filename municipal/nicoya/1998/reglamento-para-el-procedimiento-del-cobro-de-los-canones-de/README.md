@@ -14,3 +14,4 @@ Reglamento para el Procedimiento del Cobro de los Cánones de la Zona Marítima 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-05 | la propia norma |
+| 2 | 1998-02-05 | Ley 8 |
