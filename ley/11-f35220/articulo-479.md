@@ -1,0 +1,3 @@
+Artículo 479
+Coresponsabilidad de comerciante
+Se estimará como autor del delito de hurto al comerciante o mercader que para revenderlos o para otro fin de negocio, compre o por cualquier título reciba animales, carnes, plantas, productos naturales o fabriles de toda especie y en general objetos nuevos o usados, completos o incompletos, cuando por la notoria mala conducta del vendedor o trasmitente, como vago, vicioso o habituado al hurto, o por ser menor de quince años, o por el modo clandestino de la trasmisión o por la exigüidad del precio, quepa estimar racionalmente que el comerciante o mercader debió pensar que las cosas habían sido hurtadas o robadas.

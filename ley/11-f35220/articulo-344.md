@@ -1,0 +1,5 @@
+Artículo 344
+Abuso de un empleado de correos y telégrafos
+Se impondrá prisión en su grado primero e inhabilitación especial temporal en cualquiera de sus grados, al empleado de correos que, abusando de su puesto, se apodere de una carta, de un pliego o de otra pieza de correspondencia, o se imponga de su contenido, o a sabiendas los entregue o comunique a persona distinta del destinatario, o los .suprima, altere u oculte.
+Iguales puniciones se infligirán al empleado de telégrafos que, abusando de su puesto, se apodere de un telegrama para impedir su expedición, o lo suprimiere, o lo ocultare, o de propósito cambiare su texto, o lo divulgare o a sabiendas lo entregare a persona distinta del destinatario.
+Cuando en uno u otro caso el perjuicio recaiga sobre los intereses públicos, sin constituir delito de mayor gravedad en otras reglas previsto, y cuando recayendo sobre intereses individuales, fuere de notable consideración, a juicio del tribunal, el daño causado o posible, la prisión se aplicará en sus grados segundo a tercero, y la inhabilitación, en sus grados cuarto a sexto.
