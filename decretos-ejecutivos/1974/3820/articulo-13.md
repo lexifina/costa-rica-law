@@ -1,1 +1,0 @@
-Artículo 13.-Demanda de Servicios de otros Talleres. Los Ministerios o Dependencias que no cuenten con taller propio podrán solicitar los servicios de otros talleres del Poder Ejecutivo o contratar los mismos con talleres particulares.

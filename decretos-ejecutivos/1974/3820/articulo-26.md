@@ -1,1 +1,0 @@
-Artículo 26.-Venta de Vehículos por parte del Poder Ejecutivo. Queda facultado el Poder Ejecutivo para proceder a la venta de vehículos que estima innecesarios o que demanden una atención onerosa a costa del Estado en subasta pública, conforme a las regulaciones que rigen la materia.

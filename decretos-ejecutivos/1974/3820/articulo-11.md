@@ -1,1 +1,0 @@
-Artículo 11-Norrmas Internas de Mantenimiento. La Sección' de Transporte o la Unidad encargada del control de servicio de transportes de cada Ministerio o Dependencia, deberá establecer las normas de mantenimiento preventivo de los vehículos y. velar por su cumplimiento.

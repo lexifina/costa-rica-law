@@ -1,1 +1,0 @@
-Artículo 10.-Vehículos en Oficinas Regionales. Los vehículos asignados a las Oficinas Regionales de los Ministerios, estarán bajo la responsabilidad del Jefe de la misma quien se encargará del estricto acatamiento del presente Reglamento. debiendo cumplir con lo que al respecto establecen los artículos 7° y 8° anteriores.

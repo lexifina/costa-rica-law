@@ -1,1 +1,0 @@
-Artículo 2°-Vehículos del Poder Ejecutivo. Son vehículos propiedad del Poder Ejecutivo: a) Los adquiridos por este Poder para su servicio con cargo a las partidas del Presupuesto de la República; b) Los que fueren transferidos de instituciones estatales o donados por personas físicas o jurídicas, u organismos nacionales o extranjeros.
