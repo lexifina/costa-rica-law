@@ -19,3 +19,4 @@ Reglamento de la Educación Superior Parauniversitaria
 | 4 | 1984-03-14 | Decreto Ejecutivo 15309 (1984-03-14) |
 | 5 | 1989-12-01 | Decreto Ejecutivo 19459 (1989-12-01) |
 | 6 | 1991-01-04 | Decreto Ejecutivo 20108 (1991-01-04) |
+| 7 | 1998-11-02 | Decreto Ejecutivo 27439 (1998-11-02) |
