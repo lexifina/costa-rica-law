@@ -199,11 +199,8 @@ Registro Contable: 110-172-00
 TOTAL REBAJA DEL PRO-
 GRAMA: 172-00 1.779.490,00
 TOTAL REBAJA DEL TÍTULO: 110 1.779.490,00
-TÍTULO: 112
-Ministerio de Obras Públicas y Transportes
-PROGRAMA: 326-00
-ADMINISTRACIÓN SUPERIOR
-Registro Contable: 112-326-00
+Título 112, Ministerio de Obras Públicas y Transportes, Programa 331-01 TRANSPORTE TERRESTRE, Registro Contable: 112-331-01.
+(Modificado por el artículo 4 del Decreto Ejecutivo No. 31200 de 16 de mayo de 2003, publicado en La Gaceta No. 112 de 12 de junio de 2003.)
 1 SERVICIOS NO PERSONALES 1.128.311,00
 174 01 112 10 MANTEN. Y REPAR. MAQUIN. Y EQ 128.311,00
 199 01 112 10 OTROS SERVICIOS NO PERSONALES

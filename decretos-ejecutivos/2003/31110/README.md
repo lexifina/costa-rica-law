@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-04-04 | la propia norma |
+| 2 | 2003-05-16 | Decreto Ejecutivo 31200 (2003-05-16) |
