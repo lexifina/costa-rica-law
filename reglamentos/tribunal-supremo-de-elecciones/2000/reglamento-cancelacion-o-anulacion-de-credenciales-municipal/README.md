@@ -15,3 +15,4 @@ Reglamento Cancelación o Anulación de Credenciales Municipales.
 | --- | --- | --- |
 | 1 | 2000-01-28 | la propia norma |
 | 2 | 2000-01-28 | Ley 7 |
+| 3 | 2003-05-15 | Decreto TSE 3 (2003-05-15) |
