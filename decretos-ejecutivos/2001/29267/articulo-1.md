@@ -1969,9 +1969,11 @@ Leyes y decretos de creación y modificaciones:
 -Decreto Ejecutivo 13 de 19 de febrero de 1970 (división distrital de este cantón).
 -Ley 4626 de 3 de agosto de 1970 (fija a la población Bribrí cabecera de este cantón en vez de Bratsi).
 -Decreto Ejecutivo 1943-G de 15 de setiembre de 1971 (modifica el limite entre los distritos Bratsi y Cahuita).
+NOTA DE SINALEVI: Mediante Decreto Ejecutivo N° 31772 de 14 de abril de 2004, se crea el distrito Telire, cuarto del cantón Talamanca, segregado del distrito Bratsi.
 Distritos:
-704 01 BRATSI: Bribri. Ciudad: 09°37'35" LAT. N./ 82°51'14" LONG. O. ALTITUD: 32m.
-Poblados: Alto Urén, Alto Lari, Amubri, Bambú, Boca Urén, Bris, Cachabri, Coroma, Croriña, Chase, Dururpe, Fields, Gavilán, Guachalava, Katsi, Kivut, Kichuguecha, Mojoncito, Ourut, Purisquí, Purita, Rancho Grande, Rangalle, San José Cabécar, Sepeque, Shewab, Shiroles, Sibujú, Sipurio, Soky, Sorókicha, Sukut, Surayo, Suretka, Telire, Turubokicha, Uatsi, Urén.
+704 01 BRATSI*: Bribri. Ciudad: 09°37'35" LAT. N./ 82°51'14" LONG. O. ALTITUD: 32m.
+Poblados: Alto Urén, Alto Lari, Amubri, Bambú, Boca Urén, Bris, Cachabri, Coroma, Croriña, Chase, Dururpe, Fields, Gavilán, Guachalava, Katsi, Kivut, Kichuguecha, Mojoncito, Ourut, Purisquí, Purita, Rancho Grande, Rangalle, San José Cabécar, Sepeque, Shewab, Shiroles, Sibujú, Sipurio, Soky, Sorókicha, Sukut, Surayo, Suretka, Telire*, Turubokicha, Uatsi, Urén.
+*(Mediante Decreto Ejecutivo N°31772 de 14 de abril de 2004, se crea el distrito Telire, cuarto del cantón Talamanca, segregado del distrito Bratsi, el cual tendrá a la villa Amubri como cabecera, contando con los siguientes poblados: Alto Urén, Alto Lari, Bambú, Boca Urén, Bris, Cachabri, Coroma, Croriña, Dururpe, Fields, Gavilán, Guachalava, Katsi, Kivut, Kichuguecha, Mojoncito, Ourut, Purisquí, Purita, Rancho Grande, Rangalle, San José Cabécar, Sepeque, Shewab, Sibujú, Sipurio, Soky, Sorókicha, Sukut, Surayo, Telire, Turubokicha, Urén.
 704 02 SIXAOLA: Villa: 09°30'10" LAT. N./ 82°36'55" LONG. O. ALTITUD: 10 m.
 Poblados: Ania, Boca Sixaola, Catarina, Celia, Cocles, Daytonia, Gandoca, Manzanillo, Margarita, Mata de Limón, Mile Creek, Noventa y Seis, Olivia (parte), Palma, Paraíso, Punta Cocles, Punta Mona, Punta Uva, San Miguel, San Miguelito, Virginia, Zavala.
 704 03 CAHUITA: Villa: 09°44'22" LAT. N./ 82°50'32" LONG. O. ALTITUD: 4 m.
