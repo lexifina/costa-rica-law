@@ -1,0 +1,1 @@
+Artículo 8°—Ninguna institución pública dentro del ámbito indicado en el artículo 1° anterior, podrá exceder en monto ni vigencia el límite de aumento general definido en los artículos 1° y 5° del presente decreto; ni el límite de bono otorgado conforme al artículo 4° anterior.

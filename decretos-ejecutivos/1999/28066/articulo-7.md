@@ -1,0 +1,1 @@
+Artículo 7°—Ninguna institución pública dentro del ámbito indicado en el artículo 1º anterior, podrá exceder en monto ni vigencia el límite de aumento general definido en el presente decreto; ni el límite de bono otorgado conforme al artículo 4º anterior.

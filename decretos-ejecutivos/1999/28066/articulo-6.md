@@ -1,0 +1,1 @@
+Artículo 6°—El incremento de salarios dispuesto en el artículo 1º del presente decreto, tendrá vigencia a partir del 1º de setiembre de 1999, corresponde al aumento general para el segundo semestre del año en curso.

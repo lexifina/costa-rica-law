@@ -1,0 +1,1 @@
+Artículo 2°—El incremento indicado en el artículo precedente, se aplicará sobre el salario base de las clases de puestos de los servidores del Gobierno Central, según la determinación que para cada una de éstas realice la Dirección General de Servicio Civil, conforme al proceder técnico y jurídico de aplicación.
