@@ -1,0 +1,1 @@
+Artículo III.—Los maestros que por leyes especiales estén disfrutando de alguna pensión de retiro, podrán acogerse—si lo desearen—a las disposiciones de la presente ley, haciendo la manifestación del caso, por escrito, a la Secretaría de Instrucción Pública.

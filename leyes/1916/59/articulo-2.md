@@ -1,0 +1,1 @@
+Artículo II.—Los profesores de segunda enseñanza gozarán de las ventajas de lo dispuesto por esta ley, si contribuyen con el uno por ciento mensual de su sueldo a la creación del Fondo de Pensiones; pero éstas no se le empezarán a pagar antes del año de 1926.
