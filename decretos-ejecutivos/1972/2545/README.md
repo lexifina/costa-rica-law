@@ -17,3 +17,4 @@ Reglamento para el trámite y resolución de solicitudes de los Residentes Pensi
 | 2 | 1975-10-28 | Decreto Ejecutivo 5361 (1975-10-28) |
 | 3 | 1976-11-24 | Decreto Ejecutivo 6593 (1976-11-24) |
 | 4 | 1977-01-25 | Decreto Ejecutivo 6743 (1977-01-25) |
+| 5 | 1980-10-30 | Decreto Ejecutivo 11981 (1980-10-30) |
