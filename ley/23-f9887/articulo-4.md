@@ -1,0 +1,1 @@
+Artículo 4°. -El Registrador calificar bajo su responsabilidad la legalidad de los títulos en cuya virtud se solicite la inscripción, y la capacidad de las personas que en ellos interviniesen, por lo que resulte de los mismos títulos.

@@ -1,0 +1,1 @@
+Artículo 3°. -La cancelación de las hipotecas convencionales, anteriores al 1° de Setiembre de 1867, podrá también obtenerse por los mismos trámites que para las legales consignadas en el titulo 13 de la misma ley.
