@@ -8,7 +8,8 @@ v. Fecha en la cual se va a iniciar la actividad, o en su defecto, desde que fec
 vi. Nombre del propietario del inmueble.
 vii. Indicar el domicilio social de la gestionaste en caso de ser persona jurídica o el domicilio de la persona física.
 viii. Lugar para atender notificaciones dentro del perímetro administrativo respectivo o número de fax.
-ix. El documento deberá contener las siguientes especies fiscales; ¢100,00 fiscales; ¢1,00 Parques Nacionales, ¢10,00 municipales; y ¢5,00 Archivo Nacional.
+ix. El documento deberá contener las siguientes especies fiscales : c 100,00 fiscales, c 1,00 parques nacionales, c1000 municipales, y c 5,00 archivo nacional.
+(Así reformado el inciso ix) por el artículo único de la reforma reglamentaria aprobado en Sesión N° 183 del 4 de setiembre del 2001)
 x. El documento deberá de ir debidamente firmado por el interesado o por el representante legal, en su caso, firma que deberá estar autenticada por un abogado.
 b) Personas físicas; deberán presentar copia certificada de la cédula de identidad del interesado.
 c) Personas Jurídicas; deberán presentar:

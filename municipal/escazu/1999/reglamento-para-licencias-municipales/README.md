@@ -14,3 +14,4 @@ Reglamento para Licencias Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-31 | la propia norma |
+| 2 | 2001-09-04 | Reglamento municipal 183 (2001-09-04) |

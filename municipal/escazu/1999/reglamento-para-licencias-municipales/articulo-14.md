@@ -8,7 +8,8 @@ iii. Nombre y calidades de la persona responsable de velar por el orden y la bue
 iv. Indicación de las fechas durante las cuales se llevará a cabo la actividad y eventos a explotar.
 v. Indicación de todas las actividades que se llevarán a cabo, tales como bingos, juegos, ventas de comida, carruseles, etc.
 vi. Indicación de los lugares que se utilizarán como áreas de parqueo, o su referencia a parqueos utilizables por los clientes.
-vii. El documento deberá contener las siguientes especies fiscales; ¢100,00 fiscales, ¢1,00 Parques Nacionales, ¢10,00 municipales y ¢5,00 Archivo Nacional.
+vii. El documento deberá contener las siguientes especies fiscales: c100,00 fiscales, c 1,00 parques nacionales , c 1000,00 municipales, c 5,00 archivo nacional.
+(Así reformado el inciso vii) por el artículo único de la reforma reglamentaria aprobada en sesión N° 183 del 4 de setiembre del 2001)
 b) Si se fuera a expender licor, deberá presentarse adjunto a la solicitud la patente temporal para la venta de licores.
 c) Si fueren a operar carruseles, deberán aportar copia certificada de la póliza del Instituto Nacional de Seguros.
 d) Permiso sanitario de funcionamiento, de ser requerido por el tipo de actividad, según Decreto Ejecutivo Nº 27569-S.
