@@ -1,0 +1,1 @@
+Artículo 2º—La Junta Directiva es el órgano de mayor jerarquía Institucional y tendrá las facultades que al efecto disponen los Artículos 5 y 11 de la Ley Constitutiva de AyA Nº 2726 del 14 de abril de 1961 y sus reformas, además de las establecidas en el Artículo 49 de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 19.—Cada acuerdo deberá de indicar número de la sesión, fecha, artículo, inciso y número de acuerdo adoptado y deberá de ser firmado por el Secretario de la Junta Directiva, previo refrendo de conformidad por parte de la Presidencia Ejecutiva o el Gerente.

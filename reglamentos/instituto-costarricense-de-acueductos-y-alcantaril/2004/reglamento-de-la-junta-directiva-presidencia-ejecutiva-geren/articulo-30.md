@@ -1,0 +1,3 @@
+CAPÍTULO V
+Facultades y deberes del vicepresidente
+Artículo 30.—El Vicepresidente será nombrado por la Junta Directiva en el mes de junio de cada año por una vigencia de un año, pudiendo ser reelecto, y sustituirá en sus funciones, al Presidente Ejecutivo durante sus ausencias temporales en la Junta Directiva, conforme lo dispone el Artículo 11 del Reglamento de la Ley Presidencias Ejecutivas. Cuando las ausencias del Presidente Ejecutivo se prolonguen por más de un mes, el hecho deberá ser puesto en conocimiento del Consejo de Gobierno a efectos de que decida si designa un Presidente Ejecutivo interino hasta por el período de ausencia del titular.

@@ -1,0 +1,1 @@
+Artículo 25.—El Archivo institucional de AyA, custodiará todos los libros de actas de la Junta Directiva, y los documentos soporte de cada acta debidamente referenciados, utilizando al efecto la mejor tecnología disponible para evitar su deterioro, y una vez bajo su custodia, le corresponderá suministrar copias certificadas de las actas, acuerdos o documentos.

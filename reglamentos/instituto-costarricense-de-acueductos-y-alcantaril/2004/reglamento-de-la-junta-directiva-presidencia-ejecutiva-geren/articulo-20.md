@@ -1,0 +1,2 @@
+Artículo 20.—De cada sesión se levantará un acta que contendrá la indicación de las personas asistentes, el lugar, hora y fecha de la sesión, el orden del día, y las discusiones sobre cada uno de los asuntos tratados, con indicación inicial del interventor así como el texto del contenido de los acuerdos adoptados, con indicación del nombre del Director que presentó la moción o comentario.
+Los nombres de los directores que aprobaron el acuerdo o en su caso, el nombre del director, con indicación de las razones que motivan el voto disidente.

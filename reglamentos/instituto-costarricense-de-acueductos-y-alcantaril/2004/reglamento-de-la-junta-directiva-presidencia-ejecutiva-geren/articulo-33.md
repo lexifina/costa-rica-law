@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De la organización de apoyo a la junta directiva
+Artículo 33.—Para las actividades de la Junta Directiva, se establece la siguiente organización: Una Secretaría General, una Asesoría Legal. La Secretaría de la Junta Directiva estará conformada por un Secretario (a) General, un subsecretario, dos oficinistas para trascripción de actas, acuerdos, seguimiento, control, y cualquier otra actividad; una recepcionista; una anfitriona; y un misceláneo - notificador de acuerdos, funciones que se determinarán en el Manual de Funciones. Deberá además, presentar a consideración de la Junta Directiva su presupuesto, planes y programas de mejora continua y modernización. Deberá asignársele un centro gestor.

@@ -1,0 +1,8 @@
+Artículo 41.—La Administración, someterá a decisión de la Presidencia Ejecutiva, para que cuando corresponda, lo eleve a consideración y decisión de la Junta Directiva. En especial en lo siguiente:
+1) El Plan de Organización Interna y funcional, así los programas de trabajo de la organización técnica y administrativa de la institución, a fin de implementar, establecer y garantizar la eficiente ejecución de las políticas y en ejercicio de las funciones superiores de Gobierno, que se ostenta.
+2) El Estudio de Cargas de Trabajo; Estudios Integrales; el Plan de escalafón y manual de puestos, que elabore la Gerencia, a fin de someterlo a la consideración aprobación de la Junta Directiva.
+3) La creación de nuevas plazas y designación del personal y su remoción que al efecto someta a su consideración la Gerencia o subgerencia.
+4) Los proyectos de la Gerencia.
+5) Recomendar el nombramiento o remoción de los Directores Generales del AyA.
+6) Autorizar conjuntamente con la Presidencia Ejecutiva, los valores mobiliarios que emita el AyA, una vez aprobados por la Junta Directiva y los entes externos que al efecto dispone la Ley de la Administración Financiera y presupuestos públicos.
+7) Autorizar conjuntamente con la Presidencia Ejecutiva la Memoria Anual que contenga la rendición de cuentas y evaluación de resultados, y someterla a consideración de la Junta, que deberá contener la enunciación en el cumplimiento del Plan Operativo Anual de AyA y la correspondencia con el presupuesto aprobado y el Plan Nacional de Desarrollo. Señalando la memoria anual de actividades realizadas, los balances generales y el Plan Operativo Anual por actividad y presupuesto, estableciendo las prioridades institucionales para el futuro.

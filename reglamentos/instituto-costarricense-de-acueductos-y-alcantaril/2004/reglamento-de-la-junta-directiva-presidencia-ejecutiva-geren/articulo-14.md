@@ -1,0 +1,1 @@
+Artículo 14.—Los Miembros de la Junta Directiva, se reunirán ordinariamente una vez por semana y extraordinariamente cada vez que sean convocados por el Presidente Ejecutivo, o por tres Directores. El lugar de las sesiones será la sede central, salvo que por acuerdo se establezca cualquier otro sitio en el territorio nacional o fuera de él.
