@@ -1,0 +1,1 @@
+Artículo 4°—Cuando por alguna causa no pueda darse trámite a alguna compra, se le informará al Departamento solicitante dentro del término de 5 días hábiles a partir del recibo del pedido, las causas que motivaron la no tramitación de lo solicitado.

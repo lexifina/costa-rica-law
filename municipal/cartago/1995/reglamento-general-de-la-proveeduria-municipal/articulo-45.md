@@ -1,0 +1,1 @@
+Artículo 45.—En los casos de activos que por su estado tengan que ser desechados, la Proveeduría y Contabilidad harán los trámites necesarios para retirar de los registros dichos activos e informar a la Auditoria.

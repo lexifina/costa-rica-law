@@ -1,0 +1,1 @@
+Artículo 41.—Cuando haya extravío de activos deberá de reportarse inmediatamente y en forma escrita por parte de la persona a la cual se le asignaron los bienes a la Proveeduría y Contabilidad de la Municipalidad.

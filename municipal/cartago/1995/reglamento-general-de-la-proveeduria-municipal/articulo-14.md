@@ -1,0 +1,1 @@
+Artículo 14.- Para garantizar que los servicios que adquiere la Municipalidad sean los más óptimos, se procurará cuando así lo determine el Departamento de Proveeduría conjuntamente con la Dirección Ejecutiva , elaborar el contrato que ampare los servicios adquiridos.

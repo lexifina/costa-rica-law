@@ -1,0 +1,1 @@
+Artículo 31.- Para la adquisición de activos la Proveeduría lo hará en base a lo establecido en la Ley de Administración Financiera de la República y lo estipulado en este Reglamento para la compra de bienes y servicios.

@@ -1,0 +1,1 @@
+Artículo 38.—Ningún funcionario al cual le han sido asignados activos, podrá disponer de ellos y trasladarlos a otros departamentos sin la correspondiente autorización del Departamentos de Proveeduría.

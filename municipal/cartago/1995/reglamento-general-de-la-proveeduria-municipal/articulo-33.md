@@ -1,0 +1,1 @@
+Artículo 33.—El formulario "Entrega de Activos" deberá ser firmado como recibido conforme por parte del Jefe del Departamento, al cual se le asigna el activo y lo hace a partir de este momento, responsable del bien ante fa Institución.

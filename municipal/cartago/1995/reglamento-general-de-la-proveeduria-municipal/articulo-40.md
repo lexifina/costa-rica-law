@@ -1,0 +1,1 @@
+Artículo 40.—De existir diferencias entre el inventario físico y los registros de activos, la persona responsable de los mismos deberá de dar las aclaraciones del caso y justificar de esta manera el faltante encontrado de activos.

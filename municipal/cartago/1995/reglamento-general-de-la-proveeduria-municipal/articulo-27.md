@@ -1,0 +1,1 @@
+Artículo 27.—Toda requisición de materiales se deberá de hacer llenando el formulario "SALIDA DE MATERIALES" y el cual será firmado por el jefe del Departamento solicitante, debiendo indicar en el mismo: cantidad, tipo de material a retirar y lugar donde va a ser utilizado.

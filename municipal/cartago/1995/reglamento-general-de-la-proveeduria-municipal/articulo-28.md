@@ -1,0 +1,1 @@
+Artículo 28.—Cuando un departamento requiera hacer la salida de artículos de trabajo o repuestos de maquinaria, la bodega municipal le dará trámite una vez que haya recibido los artículos a ser sustituidos y en consecuencia sacados de uso.

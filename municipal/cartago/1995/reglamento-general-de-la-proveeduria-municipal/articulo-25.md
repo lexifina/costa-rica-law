@@ -1,0 +1,1 @@
+Artículo 25.—La persona encargada de bodega que le corresponda recibir la mercadería deberá de tener el cuidado de que ésta venga acompañada de la respectiva factura, la cual se hará llegar previo a los registros que se deben llenar, a la Tesorería Municipal para el trámite de pago.

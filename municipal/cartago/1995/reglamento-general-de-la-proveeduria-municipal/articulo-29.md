@@ -1,0 +1,1 @@
+Artículo 29.—Para mantener un mejor control de existencia, así como un adecuado uso de los materiales y suministros que adquiere la Municipalidad , se dispondrá únicamente de la bodega municipal para el resguardo y control de las existencias.

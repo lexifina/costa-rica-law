@@ -1,0 +1,1 @@
+Artículo 44.—Cuando un funcionario no haya reportado la pérdida de un activo y al momento del inventario físico se determine tal faltante, se procederá de oficio al cobro del mismo, según su valor de mercado e iniciar la investigación al respecto.
