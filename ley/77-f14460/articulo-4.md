@@ -1,0 +1,1 @@
+Art. 4. Las credenciales de los Diputados serán dirigidas al Senado; y este hará las correspondientes calificaciones y acordará el juramento que deben prestar los Diputados y el orden de su recepción.
