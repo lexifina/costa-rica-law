@@ -1,0 +1,1 @@
+ARTÍCULO 4°-.-Si algún Jurado fuese el mismo acusador ¢ agraviado por el escrito, fuese pariente del acusador del modo que se dijo en el artículo 1°, y no se escusare por sí, deber el Tribunal de la Corte separarlo.

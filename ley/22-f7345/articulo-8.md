@@ -1,0 +1,1 @@
+ARTÍCULO 8°.-Los impresores para salvar su responsabilidad deben exigir que los que firman los escritos que se han de publicar por la prensa están conforme al espíritu de la ley Federal de 17 de Maye de 1832.
