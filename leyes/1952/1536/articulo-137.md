@@ -1,3 +1,7 @@
 Orden en que se Hacen las Declaratorias por Cociente y Subcociente
 Artículo 137.- En los casos de elección por cociente y subcociente, a cada partido que haya concurrido a la votación se le declarará electo en el orden de su colocación en la papeleta, por el electorado de que se trate, tantos candidatos como cocientes haya logrado. Primero se hará la declaratoria de elección del partido que mayor número de votos obtuvo en el circuito electoral de que se trate, continuándola en el orden decreciente de los mismos.
 Si en el tiempo transcurrido entre la inscripción de una papeleta de Diputados o de Munícipes y la declaratoria definitiva de elección, ocurriere el fallecimiento de alguno de los candidatos, su lugar se tendrá como vacante y será llenado ascendiendo automáticamente a los otros candidatos de la misma papeleta que estuvieren colocados en puestos inferiores al del candidato fallecido.
+Cuando se produjere una vacante definitiva luego de hecha la declaratoria, sea antes o después de la juramentación del Diputado, el Tribunal procederá a llenarla llamando a ejercer el cargo, por el resto del período constitucional, al ciudadano que en la misma papeleta, ocupó el lugar inmediato inferior al último que resultó electo.
+(Así adicionado el párrafo anterior por el artículo 2° de la ley N° 3508 del 31 de mayo de 1965)
+Caso de que esa persona no pudiere ocupar la vacante, se llamará por orden descendente, a quienes aparezcan en la misma papeleta.
+(Así adicionado el párrafo anterior por el artículo 2° de la ley N° 3508 del 31 de mayo de 1965)
