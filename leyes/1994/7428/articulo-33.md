@@ -1,7 +1,1 @@
-ARTICULO 33.- IMPUGNACION DE LOS ACTOS
-Los actos definitivos que dicte la Contraloría General de la
-República estarán sujetos al régimen común de impugnación de los actos
-administrativos, contenido en la Ley General de la Administración Pública
-y en la Ley Reguladora de la Jurisdicción Contencioso Administrativa,
-cuando se considere que lesionan derechos subjetivos o intereses legítimos
-o que impiden su nacimiento.
+Artículo 33.- Impugnación de los actos. Los actos definitivos que dicte la Contraloría General de la República estarán sujetos al régimen común de impugnación de los actos administrativos, contenido en la Ley General de la Administración Pública y en la Ley Reguladora de la Jurisdicción Contencioso Administrativa, cuando se considere que lesionan derechos subjetivos o intereses legítimos o que impiden su nacimiento.

@@ -1,11 +1,2 @@
-ARTICULO 76.- REINTEGRO POR DAÑO ECONOMICO
-Cuando haya un daño contra los fondos de los sujetos pasivos,
-proveniente de una ilegalidad flagrante y manifiesta, cometida por sus
-servidores, que sea líquido o liquidable fácilmente con vista de
-documentos, la Contraloría General de la República podrá dictar resolución
-razonada que declare la consiguiente responsabilidad y su monto
-pecuniario, previa formación de expediente, con oportunidad suficiente de
-audiencia y defensa en favor del servidor.
-La certificación de tal resolución será título ejecutivo contra el
-responsable, con el cual el sujeto pasivo afectado deberá iniciar, de
-inmediato, el cobro judicial correspondiente.
+Artículo 76.- Reintegro por daño económico. Cuando haya un daño contra los fondos de los sujetos pasivos, proveniente de una ilegalidad flagrante y manifiesta, cometida por sus servidores, que sea líquido o liquidable fácilmente con vista de documentos, la Contraloría General de la República podrá dictar resolución razonada que declare la consiguiente responsabilidad y su monto pecuniario, previa formación de expediente, con oportunidad suficiente de audiencia y defensa en favor del servidor.
+La certificación de tal resolución será título ejecutivo contra el responsable, con el cual el sujeto pasivo afectado deberá iniciar, de inmediato, el cobro judicial correspondiente.

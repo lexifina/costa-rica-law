@@ -1,8 +1,2 @@
-ARTICULO 47.- ESTABILIDAD DEL PERSONAL
-Los servidores de la Contraloría General sólo podrán ser removidos
-por justa causa, por supresión de plaza, debidamente justificadas por
-escrito en el expediente respectivo. En los últimos dos casos procede el
-pago de prestaciones legales, pero no en el caso de remoción por justa
-causa.
-Cuando la remoción sea por justa causa, deberá darse garantía de
-audiencia y defensa suficientes en favor del servidor.
+Artículo 47.- Estabilidad del personal. Los servidores de la Contraloría General sólo podrán ser removidos por justa causa, por supresión de plaza, debidamente justificadas por escrito en el expediente respectivo. En los últimos dos casos procede el pago de prestaciones legales, pero no en el caso de remoción por justa causa.
+Cuando la remoción sea por justa causa, deberá darse garantía de audiencia y defensa suficientes en favor del servidor.

@@ -1,5 +1,1 @@
-ARTICULO 44.- DEL CONSEJO CONSULTIVO
-La Contraloría General de la República contará con un Consejo
-Consultivo integrado por funcionarios de alto nivel de la misma
-institución, el cual asesorará al Contralor y al Subcontralor respecto de
-sus políticas.
+Artículo 44.- Del Consejo Consultivo. La Contraloría General de la República contará con un Consejo Consultivo integrado por funcionarios de alto nivel de la misma institución, el cual asesorará al Contralor y al Subcontralor respecto de sus políticas.

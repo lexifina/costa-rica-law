@@ -1,17 +1,4 @@
-ARTICULO 12.- ORGANO RECTOR DEL ORDENAMIENTO
-La Contraloría General de la República es el órgano rector del
-ordenamiento de control y fiscalización superiores, contemplado en esta
-Ley.
-Las disposiciones, normas, políticas y directrices que ella dicte,
-dentro del ámbito de su competencia, son de acatamiento obligatorio y
-prevalecerán sobre cualesquiera otras disposiciones de los sujetos pasivos
-que se le opongan.
-La Contraloría General de la República dictará, también, las
-instrucciones y órdenes dirigidas a los sujetos pasivos, que resulten
-necesarias para el cabal ejercicio de sus funciones de control y
-fiscalización.
-La Contraloría General de la República tendrá, también, la facultad
-de determinar entre los entes, órganos o personas sujetas a su control,
-cuáles deberán darle obligada colaboración, así como el marco y la
-oportunidad, dentro de los cuales se realizará esta y el conjunto
-razonable de medios técnicos, humanos y materiales que deberán emplear.
+Artículo 12.- Órgano rector del Ordenamiento. La Contraloría General de la República es el órgano rector del ordenamiento de control y fiscalización superiores, contemplado en esta Ley.
+Las disposiciones, normas, políticas y directrices que ella dicte, dentro del ámbito de su competencia, son de acatamiento obligatorio y prevalecerán sobre cualesquiera otras disposiciones de los sujetos pasivos que se le opongan.
+La Contraloría General de la República dictará, también, las instrucciones y órdenes dirigidas a los sujetos pasivos, que resulten necesarias para el cabal ejercicio de sus funciones de control y fiscalización.
+La Contraloría General de la República tendrá, también, la facultad de determinar entre los entes, órganos o personas sujetas a su control, cuáles deberán darle obligada colaboración, así como el marco y la oportunidad, dentro de los cuales se realizará esta y el conjunto razonable de medios técnicos, humanos y materiales que deberán emplear.

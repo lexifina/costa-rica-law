@@ -1,13 +1,1 @@
-ARTICULO 77.- PROCEDIMIENTOS APLICABLES
-En todos los casos en que, de acuerdo con la ley, deba darse
-oportunidad suficiente de audiencia y defensa en favor del afectado, lo
-mismo que en los casos en los cuales una resolución final de la
-Contraloría General de la República cause o pueda causar lesión grave a un
-derecho o a un interés legítimo, se observará cumplidamente la garantía
-del debido proceso, de conformidad con los principios contenidos en el
-Libro II de la Ley General de la Administración Pública y los
-procedimientos que, por la vía reglamentaria, establezca la Contraloría,
-sin perjuicio de lo establecido en la Ley de la Administración Financiera
-de la República y en su Reglamento, en materia de contratación
-administrativa, en cuyo caso se aplicarán los procedimientos ahí
-estipulados.
+Artículo 77.- Procedimientos aplicables. En todos los casos en que, de acuerdo con la ley, deba darse oportunidad suficiente de audiencia y defensa en favor del afectado, lo mismo que en los casos en los cuales una resolución final de la Contraloría General de la República cause o pueda causar lesión grave a un derecho o a un interés legítimo, se observará cumplidamente la garantía del debido proceso, de conformidad con los principios contenidos en el Libro II de la Ley General de la Administración Pública y los procedimientos que, por la vía reglamentaria, establezca la Contraloría, sin perjuicio de lo establecido en la Ley de la Administración Financiera de la República y en su Reglamento, en materia de contratación administrativa, en cuyo caso se aplicarán los procedimientos ahí estipulados.

@@ -1,4 +1,1 @@
-ARTICULO 41.- GARANTIA
-El Contralor y el Subcontralor inmediatamente después de nombrados
-deberán rendir una garantía en favor de la Hacienda Pública equivalente a
-la más alta que determine la reglamentación respectiva.
+Artículo 41.- Garantía. El Contralor y el Subcontralor inmediatamente después de nombrados deberán rendir una garantía en favor de la Hacienda Pública equivalente a la más alta que determine la reglamentación respectiva.
