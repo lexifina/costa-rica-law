@@ -1,0 +1,2 @@
+Artículo 2º—Sustitúyase, para la Junta de Protección Social de San José, lo establecido en el inciso b) del artículo 2º del Decreto antes citado, por lo siguiente:
+"Los rubros de pago de premios y costo de lotería instantánea, así como aquellas transferencias corrientes producto de las utilidades de la Lotería Tradicional, tiempos e instantánea, del impuesto sobre el pago de premio y de la distribución de premios prescritos y productos financieros".
