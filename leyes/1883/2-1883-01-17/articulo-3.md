@@ -1,0 +1,2 @@
+Art. 3° -Los nuevos denuncios sobre tierras baldías, para el efecto de su adjudicación, serán admitidos sin lugar á puja, siempre que se pague el precio de ellas, al contado, con cédulas al portador.
+Dado en el Palacio Presidencial, en San José, á diez y siete de enero de mil ochocientos ochenta y tres. -PROSPERO FERNÁNDEZ. -El Secretario de Estado en el Despacho de Hacienda y Comercio. --BERNARDO SOTO.
