@@ -1,0 +1,1 @@
+Art. 41.—En los puertos del Norte no se exigirán derechos de tonelada y anclaje sino es hasta el resultado que tenga la apertura de la bahía de Moín, y dado este caso y de estar franco el muelle, se cobrará en conformidad de lo dispuesto en el artículo 39.

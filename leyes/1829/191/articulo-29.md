@@ -1,0 +1,1 @@
+Art. 29.—Practicado lo prevenido en el artículo anterior, ya sea en el todo ó en parte del número de piezas ó bultos, si el interesado ó consignatario quisiese poner en camino el todo ó parte de sus efectos, se le despacharán guías dejando satisfecho el real de piso, ó asegurando éste de que pondrá partida que firmará con su segundo en el libro que al efecto debe llevar.

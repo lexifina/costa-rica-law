@@ -1,0 +1,1 @@
+Art. 50.—La opción ó derecho de escala en los funcionarios de la Tesorería y dirección de siembras, será la que establece el artículo 7° de esta ley, y en el nombramiento de ministros y subalternos de estas oficinas, se guardará el mismo orden que previene el citado artículo y el que le sigue.

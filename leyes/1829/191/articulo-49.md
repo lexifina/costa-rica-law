@@ -1,0 +1,1 @@
+Art. 49.—Las dos plazas de Guardas voluntes y las de los dos fijos en la Garita del río Grande establecidas en la Tesorería, quedan agregadas á la Dirección de siembras, y todos cuatro con la, dotación de doscientos pesos anuales.

@@ -1,0 +1,1 @@
+Art. 2° — Será á cargo de esta Administración la recaudación de todos los caudales que produzcan los ramos de alcabala de la federación, y la de los que produzca la alcabala interior, arreglándose en todo á las disposiciones y leyes de la materia.

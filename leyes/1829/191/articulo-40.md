@@ -1,0 +1,1 @@
+Art. 40.—Para averiguar el número de toneladas legítimo de cada buque, se recurrirá á la patente de su navegación y en caso que se dude del número de éstas, el capitán debe practicar las diligencias conducentes á la exacta averiguación.
