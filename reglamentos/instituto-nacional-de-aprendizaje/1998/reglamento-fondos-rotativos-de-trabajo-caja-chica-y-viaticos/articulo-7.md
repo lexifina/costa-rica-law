@@ -1,0 +1,7 @@
+Artículo 7°—Montos de los fondos de caja chica.
+a. El gasto global de la Institución por Caja Chica no excederá el 5% del gasto efectivo del presupuesto institucional vigente, estimado por la Unidad de Recursos Financieros.
+b. El monto de cada Caja Chica lo establecerá la Unidad de Recursos Financieros, de acuerdo con el comportamiento del gasto real efectivo de cada unidad Organizacional.
+c. Los recursos necesarios para la operación de la Caja Chica serán suplidos por el Fondo de Trabajo correspondiente, ante quien se harán los reintegros respectivos.
+d. La Unidad de Recursos Financieros contara con una Caja Chica autorizada por la Subgerencia Administrativa.
+e. En caso de la adquisición de suministros y servicios, el monto para cada adelanto mediante Caja Chica no podrá exceder la suma aprobada por la Dirección General de la Tributación Directa para la exención de retención del Impuesto sobre la Renta. Para la adquisición de equipo, mobiliario y herramientas, el monto que se autorice no podrá exceder del 50% de la suma indicada.
+f. La suma máxima a autorizar por concepto de viáticos, será el equivalente de una semana hábil de viáticos totales con base en la tarifa diaria más alta establecida en el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos emitido por la Contraloría General de la República. De necesitarse un monto mayor deberá utilizarse el Fondo de Trabajo.

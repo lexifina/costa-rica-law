@@ -1,0 +1,2 @@
+Artículo 12.—Aval presupuestario.
+Antes de hacerse efectivo, todo Vale de Caja Chica o solicitud de compra de bienes o servicios deberá tener el aval del Proceso de Presupuestario de la Unidad de Recursos Financieros o del Proceso Financiero Contable de la Unidad Regional o del Encargado de la Gestión Administrativa del Núcleo de Formación y Servicios Tecnológicos, según corresponda, con el fin de garantizar la existencia de con! presupuestario. De no cumplirse con este requisito previo el gasto que se origine no será cancelado.

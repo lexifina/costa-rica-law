@@ -1,0 +1,2 @@
+Artículo 11.—Autorización.
+Las solicitudes de compra o Vales de Caja Chica deberán ser firmadas por el Encargado de la unidad Organizacional o en su defecto por alguno de los dos funcionarios por él autorizados para tal fin. Para efectos de validez, dicha firma deberá ser confrontada con el registro de firmas que custodian la Unidad de Recursos Financieros, los procesos contables de las Unidades Regionales o los Procesos de Gestión Administrativa de los Núcleos de Formación y Servicios Tecnológicos, según corresponda.

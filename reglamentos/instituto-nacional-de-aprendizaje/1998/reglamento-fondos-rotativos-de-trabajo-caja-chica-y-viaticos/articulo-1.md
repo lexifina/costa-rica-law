@@ -1,0 +1,6 @@
+INSTITUTO NACIONAL DE APRENDIZAJE
+REGLAMENTO DE FONDOS ROTATIVOS DE TRABAJO Y DE CAJA CHICA
+CAPITULO I
+Disposiciones generales
+Artículo 1°—Ámbito de aplicación.
+El presente Reglamento regula la creación y funcionamiento de los Fondos Rotativos de Trabajo y de Caja Chica existentes y los que en el futuro se establezcan en la Institución.

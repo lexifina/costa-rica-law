@@ -1,0 +1,2 @@
+Artículo 16.—Imposibilidad de nuevos adelantos.
+No se girara adelanto alguno al funcionario que tuviese pendiente la liquidación de un adelanto anterior, salvo los casos indicados en el artículo 8°. Tampoco se girara adelanto cuando la solicitud de desembolso no reúna los requisitos establecidos en los artículos 10, 11 y 12 del presente Reglamento. La responsabilidad sobre el incumplimiento de este artículo recaerá en dicho funcionario y en el Encargado del Fondo respectivo
