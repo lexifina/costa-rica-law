@@ -1,0 +1,2 @@
+Artículo 3º—Las situaciones especiales por las que el funcionario debe desempeñar sus labores fuera de las oficinas centrales de la Institución, deben ser plenamente razonadas y justificadas, y quedar expresamente acreditadas en un documento que suscribirá el jefe inmediato del subalterno que recibirá el pago, con la autorización del Director Ejecutivo de la Junta Administrativa de la Imprenta Nacional.
+El Director Ejecutivo deberá rendir un informe sobre lo actuado ante la Junta Administrativa de la Imprenta Nacional.
