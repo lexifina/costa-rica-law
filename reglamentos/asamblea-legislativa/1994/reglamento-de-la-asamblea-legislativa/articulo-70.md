@@ -1,0 +1,2 @@
+ARTICULO 70.- Permuta de los miembros de las Comisiones
+Los miembros de las Comisiones Permanentes durarán en sus funciones un año, pero tendrán el derecho de permuta durante el mes de mayo con diputados de otras comisiones de las señaladas en el artículo 65, previo aviso a la Presidencia de la Asamblea, para que dicte el acuerdo correspondiente. Se exceptúan de este derecho de permuta, los Presidentes de las Comisiones.

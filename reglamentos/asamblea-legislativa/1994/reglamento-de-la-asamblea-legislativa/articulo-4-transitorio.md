@@ -1,0 +1,2 @@
+TRANSITORIO Para el trámite de la liquidación de los presupuestos del año 1990, y para los demás fines establecidos en el artículo 194,el Presidente integrará la Comisión Permanente Especial para el Control del Ingreso y Gasto Públicos el mismo día en que se apruebe la presente reforma.
+La Comisión contará con quince días naturales para rendir su informe sobre la liquidación, y el Plenario lo discutirá de acuerdo con los plazos y los procedimientos establecidos en el artículo 194.

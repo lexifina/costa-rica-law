@@ -1,0 +1,2 @@
+ARTICULO 68.- Instalación
+Las comisiones deberán instalarse ante el Presidente de la Asamblea, a más tardar tres días después de su designación. En esa oportunidad nombrarán, de su seno, mediante votación secreta, un Presidente y un Secretario. Si ocurriere una vacante de la Secretaría de una Comisión, en virtud de permuta o de cualquier otra causa permanente, se designará un nuevo Secretario mediante votación secreta. Deberá levantarse un acta especial de la respectiva instalación.

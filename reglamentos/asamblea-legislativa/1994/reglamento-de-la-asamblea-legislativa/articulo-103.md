@@ -1,0 +1,2 @@
+ARTICULO 103.- Votación secreta
+En la votación secreta, los diputados emitirán sus votos por medio de bolas blancas y negras; las primeras indicarán el voto afirmativo y las segundas, el negativo. Cada diputado escogerá y depositará una bola en la urna correspondiente, de la cual la Secretaría extraerá todas las bolas depositadas, para verificar si su número corresponde con el de los diputados votantes. El Directorio efectuará el escrutinio y la Secretaría anunciará el resultado a la Asamblea.

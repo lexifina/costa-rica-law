@@ -1,0 +1,2 @@
+ARTICULO 109.- Razonamiento para la votación nominal
+En la votación nominal, el diputado que lo desee puede razonar su voto por escrito o verbalmente, limitándose al fondo del asunto, sin examinar las incidencias habidas en la discusión ni hacer refutaciones o réplicas. En el razonamiento verbal de su voto, no podrá hacer uso de la palabra por más de diez minutos. Los plazos otorgados para el razonamiento del voto no podrán cederse, total ni parcialmente.

@@ -1,0 +1,2 @@
+ARTICULO 126.- Consultas constitucionales obligatorias
+Cuando en el seno de una comisión se discuta un proyecto o se apruebe una moción que, de acuerdo con los artículos 88, 97, 167 y 190 de la Constitución Política, deban ser consultados la consulta respectiva la efectuará el Presidente. Las consultas de las comisiones se considerarán como hechas por la propia Asamblea y, en lo pertinente, se aplicará lo dispuesto en el artículo 157 de este Reglamento.

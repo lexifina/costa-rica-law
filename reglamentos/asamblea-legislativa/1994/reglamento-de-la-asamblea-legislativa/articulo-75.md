@@ -1,0 +1,2 @@
+ARTICULO 75.- Publicidad de las sesiones. Las sesiones de las comisiones serán públicas. (*)No obstante, sus respectivos Presidentes podrán declararlas privadas si lo estimaren necesario.
+(*) (Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 13444 del 7 de junio de 2023, se interpretó la frase anterior que tal resolución debe ser fundada, en casos excepcionales y de las cuales se levantará un acta que será de conocimiento público.)

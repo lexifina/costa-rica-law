@@ -1,0 +1,4 @@
+ARTICULO 55.- Permuta
+1. Los diputados miembros de una Comisión Legislativa Plena tendrán derecho de permutar, durante el mes de mayo, con los diputados de las otras, siempre y cuando no se altere la proporcionalidad de las Comisiones.
+2. Para que sea eficaz la permuta, el Jefe de Fracción respectivo dará aviso al Presidente de la Asamblea para que lo informe al Plenario. Si no hubiere objeción en el Plenario, se tendrá por autorizada la permuta. Si existiese objeción, la permuta se pondrá a votación sin más trámite. Para referirse a ésta, el o los diputados que la apoyen podrán hacer uso de la palabra, individual o colectivamente, por un plazo que no exceda de los cinco minutos. Se conferirá igual plazo a quienes la objeten.
+3. El informe del Presidente al Plenario y la votación se conocerán en el Capítulo de Régimen Interno.

@@ -1,0 +1,2 @@
+ARTICULO 114.- Informe a los diputados sobre los proyectos presentados
+El Presidente de la Asamblea informará a los diputados, por escrito o por cualquier otro medio idóneo, sobre los proyectos de ley que hayan sido presentados, indicando su naturaleza y la comisión a la que corresponde su conocimiento. Cuando el Presidente lo juzgue pertinente, se distribuirán, además, copias literales de los proyectos presentados. De la misma forma, dará cuenta de las mociones presentas en relación con la ampliación del plazo a que se refiere el artículo 119 de este Reglamento.

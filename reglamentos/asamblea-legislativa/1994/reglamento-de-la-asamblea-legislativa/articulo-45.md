@@ -1,0 +1,2 @@
+ARTICULO 45.- Derecho a tomar asiento en el Plenario
+Sólo tienen derecho a tomar ocasionalmente asiento en el recinto de la Asamblea, el Presidente y los Vicepresidentes de la República, los ministros de Gobierno, los magistrados de la Corte Suprema de Justicia y los representantes diplomáticos y de la Iglesia. También tendrán el mismo derecho los Viceministros cuando representen a los ministros de Gobierno.

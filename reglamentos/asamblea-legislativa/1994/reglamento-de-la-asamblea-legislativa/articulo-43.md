@@ -1,0 +1,2 @@
+ARTICULO 43.- Fórmula para la apertura de sesiones ordinarias y extraordinarias
+Según el período correspondiente, el Presidente expresará: "La Asamblea Legislativa abre las sesiones ordinarias del (segundo, tercer o cuarto) período de la presente legislatura". Cuando se inicien las sesiones extraordinarias, la fórmula para la apertura será la siguiente: "La Asamblea Legislativa abre las sesiones extraordinarias para las que ha sido convocada".

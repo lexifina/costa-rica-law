@@ -1,0 +1,4 @@
+ARTICULO 50.- Actas
+Al menos una hora antes de la señalada para iniciar cada sesión, la Secretaría deberá poner a disposición de los diputados -mediante copia impresa o por cualquier otro medio idóneo- copia fiel del acta correspondiente. Abierta la sesión, se someterá a debate esta acta, la cual quedará aprobada. Si fuere objetada por la Secretaría o si los diputados hicieren objeciones justas, se tendrá por aprobada y se firmará, pero con la reserva de consignar, en el acta de la sesión siguiente, las omisiones o errores que se hubieren notado en ella.
+En el caso de que por cualquier razón, las copias del acta no estuvieren listas en la oportunidad debida, deberá leerse la original.
+La discusión del acta debe contraerse a su forma o redacción; a examinar si contiene todo y sólo aquello en que se ocupó la Asamblea en la sesión a que se refiere.

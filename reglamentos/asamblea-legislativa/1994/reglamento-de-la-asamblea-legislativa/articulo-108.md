@@ -1,0 +1,2 @@
+ARTICULO 108.- Interrupciones
+El diputado podrá conceder interrupciones. Sin embargo, por la vía de la interrupción, quien la solicita, no podrá, a su vez, concederla a otro diputado. En el caso de que se abuse de la interrupción concedida, el Presidente le retirará la palabra al diputado que concedió tal interrupción. Estas reglas se aplicarán, tanto en lo previsto por este artículo, como en lo que dispone el número 135.

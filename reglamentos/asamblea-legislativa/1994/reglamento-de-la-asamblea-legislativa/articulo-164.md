@@ -1,0 +1,5 @@
+ARTICULO 164. Discusión general y votación. Remisión a la Comisión de Redacción
+1. Después de votadas todas las mociones de fondo, se procederá a la discusión general del asunto. Durante ésta, podrá darse lectura a cualquier documento que tenga relación con el proyecto, si así lo acordare la Comisión, mediante moción de orden aprobada al menos por trece diputados.
+2. Si existiere un solo dictamen y fuere rechazado o se improbaren todos los que hubiere, el proyecto será archivado.
+3. Aprobado el proyecto en primer debate, la Secretaría de la Comisión lo remitirá a la Comisión de Redacción para que lo revise y ésta deberá devolverlo antes de que dé inicio el trámite de segundo debate. El texto será distribuido a todos los diputados que conforman la Asamblea Legislativa, antes del segundo debate.
+4. En proyectos muy extensos y complicados, el Presidente de la Comisión Legislativa Plena podrá fijarle un plazo prudencial e improrrogable a la Comisión de Redacción, para que remita el texto revisado. En estos casos, el Presidente de la Comisión Legislativa Plena suspenderá el inicio del segundo debate.

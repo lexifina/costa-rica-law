@@ -1,0 +1,2 @@
+ARTICULO 81.- Trámite del Informe de las Comisiones
+El Presidente de la Comisión entregará al Director Ejecutivo un informe con un solo proyecto de ley para debatir, cuando la opinión de todos sus miembros fuere uniforme. Si un grupo de diputados o alguno de ellos disintiere, dará por separado un informe, con su proyecto. En este caso, la Asamblea discutirá primero el proyecto de ley sometido por la mayoría y únicamente si éste fuere rechazado, se someterán a discusión el informe o los informes de minoría, en orden decreciente, según el número de diputados que los suscriban.

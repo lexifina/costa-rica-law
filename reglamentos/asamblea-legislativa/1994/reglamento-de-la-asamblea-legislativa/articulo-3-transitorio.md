@@ -1,0 +1,3 @@
+TRANSITORIO
+En un plazo de 90 días, el Directorio Legislativo adoptará las medidas administrativas necesarias, con el fin de que todos los diputados y las diputadas tengan en sus oficinas el equipo técnico requerido para implementar cualquier nuevo medio de comunicación oficial de los asuntos que el Directorio disponga con base en esta reforma.
+Todo sin perjuicio de que los diputados y diputadas que al aprobarse esta reforma cuenten ya con las facilidades materiales requeridas, puedan solicitar y obtener de inmediato al acceso a los medios informáticos de los que hoy dispone la Asamblea, en reemplazo de la comunicación escrita tradicional. En el plazo dicho, todos los interesados deberán tener acceso, como mínimo, al sistema de comunicación por red que hoy existe.
