@@ -1,0 +1,1 @@
+Artículo 2°.- Modifícase el decreto ejecutivo N° 21427-H y sus reformas, para que donde dice Administración Regional o Administraciones Regionales, se lea “Administración Regional Tributaria o Administraciones Regionales Tributarias”:
