@@ -1,0 +1,1 @@
+Art. 5. Los poseedores de baldios, cultivados desde diez manzanas hasta una caballeria, gozarán del derecho de moderada composicion, siempre que dentro de seis años contados desde la publicacion de esta ley, se presenten ante la autoridad respectiva solicitando el beneficio y prueben haber poseido por cinco afios continuados el terreno euya propiedad solicitan.
