@@ -13,3 +13,4 @@ Norma NCR 238:1994 Plaguicidas a Base Cobre y Pentacloronitrobenceno
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-05 | la propia norma |
+| 2 | 1996-07-05 | Decreto Ejecutivo 27033 (1998-01-05) |
