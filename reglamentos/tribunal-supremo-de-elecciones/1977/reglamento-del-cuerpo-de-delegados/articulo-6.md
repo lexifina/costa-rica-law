@@ -1,0 +1,1 @@
+Articulo 6°—Además del Jefe del Cuerpo de Delegados, el Tribunal Supremo de Elecciones designará de entre sus miembros un Delegado Primero y un Delegado Segundo, quienes entrarán a sustituir al Delegado Jefe en sus ausencias temporales o accidentales, por su orden y respectivamente.

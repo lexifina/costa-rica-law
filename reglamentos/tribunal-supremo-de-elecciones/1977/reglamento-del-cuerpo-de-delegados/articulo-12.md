@@ -1,0 +1,1 @@
+Artículo 12.—Si un Delegado, con posterioridad a la aceptación del cargo, desea renunciar o retirarse del mismo, cualesquiera que fueren los motivos, deberá comunicar por escrito esa circunstancia al Tribunal Supremo de Elecciones y hacer devolución del carné e insignia.
