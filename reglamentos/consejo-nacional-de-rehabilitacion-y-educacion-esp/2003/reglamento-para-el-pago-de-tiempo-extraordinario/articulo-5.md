@@ -1,0 +1,2 @@
+Artículo 5º—El trámite de pago de jornada extraordinaria, deberá realizarse sin excepción, ante Recursos Humanos en el transcurso de los primeros cinco días hábiles de cada mes, mediante la presentación de la boleta de solicitud y autorización de horas extras, que posteriormente se tramitará a Contabilidad para que realice el pago correspondiente durante la primera quincena.
+En caso de fuerza mayor el pago podrá hacerse efectivo antes que finalice la segunda quincena.

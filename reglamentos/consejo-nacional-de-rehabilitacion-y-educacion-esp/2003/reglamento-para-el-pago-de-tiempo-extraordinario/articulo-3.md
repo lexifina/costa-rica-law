@@ -1,0 +1,1 @@
+Artículo 3º—Únicamente se reconocerá el pago de la jornada extraordinaria a aquellos puestos a los que se les haya sido autorizado mediante directriz de la Dirección Ejecutiva y que cuenten con la respectiva autorización en la boleta de solicitud establecida al efecto.

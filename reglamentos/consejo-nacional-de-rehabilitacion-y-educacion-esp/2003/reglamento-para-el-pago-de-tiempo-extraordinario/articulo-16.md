@@ -1,0 +1,2 @@
+Artículo 16.—Recursos Humanos procederá a revisar las boletas de solicitudes y autorizaciones de tiempo extraordinario, elaborar los formularios de liquidación y remitirlos a Contabilidad para el pago correspondiente.
+En caso de que se encuentren incongruencias u omisiones en la información de la boleta de solicitud y autorización, la misma será devuelta al equipo correspondiente para su revisión y corrección.

@@ -1,0 +1,1 @@
+Artículo 7º—La boleta de solicitud y su autorización de jornada extraordinaria deberá presentarse en forma ordenada, sin tachaduras ni borrones, con todos los datos solicitados, de lo contrario no se tramitará dicha solicitud.
