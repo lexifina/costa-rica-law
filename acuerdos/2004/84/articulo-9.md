@@ -1,0 +1,8 @@
+9. Participaciones significativas y transacciones con partes relacionadas
+Participaciones significativas
+Identificar los accionistas que posean participaciones significativas de la empresa. Para estos efectos se fija la participación significativa en un porcentaje igual o superior al 10% para emisores de acciones y de 15% para emisores de deuda. Para el cálculo de este porcentaje se tomarán en cuenta tanto las acciones que posea la persona en forma directa así como las que posea su grupo de interés económico, de conformidad con la definición de grupo de interés económico contenida en los artículos 2, 3 y 4 del Reglamento para el otorgamiento de crédito a grupos de interés económico, aprobado por el Consejo Directivo de la Superintendencia General de Entidades Financieras en la sesión 20-96 del 16 de julio de 1996, mediante artículo 6º.
+Transacciones con partes relacionadas
+Brindar información sobre las transacciones comerciales de la empresa con su grupo de interés económico que tengan un efecto material para ella.
+Describir cualquier negocio o contrato, durante el último año fiscal, en que el emisor o la entidad controladora sean parte, y en la que cualquiera de sus partes relacionadas, tenga interés, directo o indirecto, con indicación de la naturaleza del interés y su monto.
+Participaciones de asesores y consejeros
+Indicar si cualquiera de los expertos o asesores y en caso de personas jurídicas, alguno de sus socios o accionistas, que han prestado servicios al emisor respecto de la solicitud de registro de valores objeto de oferta pública son a su vez, accionistas, directores o gerentes del emisor y el nombre de dicha persona y la naturaleza de su relación con el emisor.
