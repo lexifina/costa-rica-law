@@ -1,0 +1,1 @@
+Artículo 31.- Conocerá definitivamente, en grado de apelación, de los delitos perpetrados contra la libertad de la provincia y la forma del Gobierno y también sobre los delitos que por ser de menos momento no traen aparejada pena córporis aflictiva y cuando ésta no es grave.

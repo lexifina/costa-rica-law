@@ -1,0 +1,1 @@
+Artículo 11.- Para obtener cualquier empleo, a más de lo dispuesto en los artículos 8º y 9º, debe el que lo obtenga tener cinco años de residencia, adicto decididamente a la libertad de la provincia y jurar la observancia de este Estatuto, lo que ejecutarán los pueblos.

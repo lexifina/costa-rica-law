@@ -1,0 +1,1 @@
+Artículo 49.- En los civiles, la sentencia confirmatoria dada por la Diputación será ejecutada; más si fuese revocada y la apelación tuviere lugar en ambos efectos, afianzará la parte contra quien se pida, y si en uno solo, la recipiente.

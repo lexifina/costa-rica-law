@@ -1,0 +1,1 @@
+Artículo 39.- Cada individuo gozará el honorario de un peso diario. Los gastos de secretario, amanuense, edificio para el despacho, portes de correo y demás de oficina serán cubiertos por la hacienda pública.

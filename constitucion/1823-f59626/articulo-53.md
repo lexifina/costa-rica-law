@@ -1,0 +1,2 @@
+Artículo 53.- Será obedecida y cumplida, puntual y fielmente, toda orden o providencia dictada por la Diputación, una vez que vaya firmada por sus tres vocales o por dos de aquéllos y el jefe político a quien se había citado al efecto, en cuyo caso se formarán de la providencia dos ejemplares que originalmente se custodiarán, uno en la secretaría de la Diputación, que anotará este incidente en sus actas, y otro en la del mando político.
+San José, 17 de mazo de 1823.
