@@ -1,0 +1,2 @@
+Art. 8° En todos los juicios y demas actos del ramo de Justicia, cualquiera que sea su naturaleza, la denominacion de las personas se hará por el nombre y apellido paterno y materno de cada uno, siempre que no haya inconveniente para ello. La falta de alguno de los dos apellidos se suplirá con cualquiera otro más inmediato de su ascendencia materna.
+Dado en el Palacio Nacional, en San José, á los cuatro dias del mes de febrero de mil ochocientos setenta y ocho. T. GUARDIA.-El Secretario de Estado en el Despacho de Justicia,-José Ma Castro.
