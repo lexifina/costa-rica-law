@@ -1,0 +1,1 @@
+ARTICULO 2°- Quedan refundidos en esta ley los siguientes decretos: N° 8 de 21 de mayo de 1886, N° 36 de 31 de diciembre de 1887, N° 6 de 28 de diciembre de 1892, N° 9 de 26 de noviembre de 1909, N° 80 de 12 de octubre de 1892, N° 26 de 18 de junio de 1915 y N° 61 de 20 de junio de 1932.
