@@ -1,0 +1,1 @@
+Artículo 11°-Aquellos empleados que sean separados de sus funciones por incumplimiento de su deber o mala conducta, perderán todo derecho a lo estipulado en esta ley; pero si su separación obedece a motivos puramente políticos y no están en el caso de obtener pensión, tendrán derecho a que se les devuelva lo contribuido por ellos según el inciso c) del artículo anterior.
