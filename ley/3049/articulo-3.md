@@ -1,0 +1,1 @@
+Artículo 3°-El Ministerio de Economía y Hacienda resolverá de inmediato las solicitudes de condonación que presenten los interesados a que se refiere esta ley, y dictará resolución acogiendo o desechando las solicitudes.
