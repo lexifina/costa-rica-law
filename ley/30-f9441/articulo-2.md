@@ -1,0 +1,1 @@
+Art 2° El Sr. Gamet queda obligado a enseñar a cuantos lo soliciten, el cultivo de la morera, la educación del gusano de seda y los medios más adecuados para obtener un buen resultado en esta nueva industria.
