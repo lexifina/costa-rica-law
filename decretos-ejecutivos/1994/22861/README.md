@@ -18,3 +18,4 @@ Reforma Régimen Tarifario para la Prestación de Servicios y Facilidades Aeropo
 | 3 | 1995-02-24 | Decreto Ejecutivo 24088 (1995-02-24) |
 | 4 | 1995-03-27 | Decreto Ejecutivo 24144 (1995-03-27) |
 | 5 | 1995-03-27 | Decreto Ejecutivo 24168 (1995-03-27) |
+| 6 | 1995-04-21 | Decreto Ejecutivo 24203 (1995-04-21) |

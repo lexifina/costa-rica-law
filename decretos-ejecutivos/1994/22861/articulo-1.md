@@ -52,11 +52,11 @@ Artículo 8°—EI derecho de estacionamiento se aplicará a aquellas aeronaves 
 En caso de los servicios cargueros se podrá descontar tres horas para efecto de !a operación de carga y descarga y en el caso de servicios de pasajeros, se descontaron 90 minutos para la operación de abordaje y desabordaje.
 La tarifa se aplicará por cada hora o fracción mayor de 30 minutos a razón de 13,00 por cada tonelada métrica de PMD cuando se trate de servicios locales y US $ ), 10 cuando se trate de servicios internacionales.
 Las operaciones de servicios regulares realizadas entre las 18:00 y las 6:00 horas que deban pernoctar en la terminal aérea se le aplicará una reducción de un 50% con especto a la tarifa establecida.
-Artículo 10: Por el uso de las instalaciones y servicios de los Aeropuertos Internacionales, a los pasajeros de vuelos internacionales se les cobrará a través del Comprobante de Pago Unificada (CPU),lo siguiente:
-Nacionales $ 6,00
-No nacionales $ 15,00
-El Banco Central de Costa Rica se encargará de realizar los ajustes correspondientes para la distribución de dichos montos.
-(Así reformado por el artículo 1° del Decreto Ejecutivo N° 24144 de 27 de marzo de 1995).
+Artículo 10.*-Por el uso de las instalaciones y servicios de Aeropuertos Internacionales, a los pasajeros de vuelos internacionales se les cobrará lo siguiente:
+Nacionales y extranjeros miembros de delegaciones culturales y deportivas que viajen en representación del país, con la aprobación del Ministerio de Cultura, Juventud y Deportes $ 6,00.
+Extranjeros $ 15,00.
+Dicho cobro se realizará una vez que el Banco Central de Costa Rica tenga a disposición los timbres correspondientes.
+*(Así reformado por el artículo 1° del Decreto Ejecutivo N° 24203 de 21 de abril de 1995).
 Artículo 11°.—Los derechos de seguridad, se cobrarán a toda empresa de transporte aéreo que opere en los aeropuertos internacionales. El derecho se establece como contraprestación a los servicios de inspección de pasajeros y equipaje, así como los de vigilancia en la terminal siendo su monto el siguiente:
 a. Pasajeros en vuelos internacionales: 11,00 por pasajero
 b. Pasajeros en vuelos locales: 11,00 por pasajero
