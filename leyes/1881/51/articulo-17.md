@@ -1,1 +1,0 @@
-Art. 17.-En las Agencias Diplomáticas ó Consulares el mismo Agente certificará, en el caso del artículo anterior, tanto la copia como la diligencia de cotejo, dando cuanta del hecho la Secretaría de Relaciones Exteriores.
