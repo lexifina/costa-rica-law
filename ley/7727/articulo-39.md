@@ -1,0 +1,29 @@
+SECCIÓN IV
+PROCEDIMIENTO ARBITRAL
+ARTÍCULO 39.- Libre elección del procedimiento
+Con sujeción a lo dispuesto en la presente ley, las partes podrán
+escoger libremente el procedimiento que regulará el proceso arbitral,
+siempre que ese procedimiento respete los principios del debido proceso,
+el derecho de defensa y el de contradicción. Mediante resolución fundada
+y en cualquier etapa del proceso, el tribunal podrá modificar o ajustar
+las normas sobre el procedimiento que hayan seleccionado las partes y que
+no se ajusten a los principios indicados, con el objeto de propiciar un
+equilibrio procesal entre las partes y la búsqueda de la verdad real.
+A falta de acuerdo, el tribunal arbitral, con sujeción a la presente
+ley, deberá dirigir el arbitraje guiado por los principios de
+contradicción, oralidad, concentración e informalidad. También podrá
+adoptar reglas o procedimientos existentes sobre arbitraje, utilizadas por
+entidades dedicadas a la administración de procesos arbitrales, tanto
+nacionales como internacionales, así como leyes o reglas modelo,
+publicadas por entidades u organismos nacionales e internacionales.
+De oficio o a petición de partes y durante cualquier etapa del
+procedimiento, el tribunal celebrará las audiencias necesarias para
+recibir y evaluar cualquier tipo de prueba o presentar alegatos orales. A
+falta de tal petición, el tribunal arbitral decidirá si han de celebrarse
+audiencias o si las actuaciones se substanciarán únicamente sobre la base
+de documentos y demás pruebas existentes.
+Todos los escritos, documentos o informaciones que una parte
+suministre al tribunal arbitral deberá comunicarlos, simultáneamente a la
+otra parte.
+Las normas procesales de la legislación costarricense integrarán, en
+lo que resulte compatible, el procedimiento arbitral.

@@ -1,0 +1,5 @@
+ARTÍCULO 35.- Sustitución de árbitro por otras causas
+En caso de muerte, incapacidad o renuncia de un árbitro o impedimento
+sobreviniente durante el proceso arbitral, se nombrará o elegirá a un
+árbitro sustituto de conformidad con el procedimiento aplicable al
+nombramiento o la elección del árbitro sustituido.
