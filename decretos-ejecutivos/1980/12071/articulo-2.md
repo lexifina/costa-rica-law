@@ -1,0 +1,1 @@
+Artículo 2°─ Por todo trabajo no cubierto por las disposiciones del artículo 1° de este decreto, todo patrono pagará un salario no menor de ₡ 49,65 (cuarenta y nueve colones, sesenta y cinco céntimos) por jornada ordinaria.
