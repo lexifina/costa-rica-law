@@ -1,0 +1,2 @@
+Artículo 2°.- Adiciones de el aparte b) del inciso V) artículo 16 del reglamento citado en el artículo 1° para que en lo sucesivo se le da de la siguiente manera:
+“b) Pensiones alimenticias impuestas por resolución judicial, En el tanto que señalan los incisos 6) y 7) del artículo 13 de la Ley del Impuesto sobre la Renta. Las sumas pagadas por el concepto dicho, a cónyuges legalmente separados o cuyo divorcio se haya decretado, se te deducibles proporción con el que se convive”.
