@@ -1,0 +1,1 @@
+Artículo 2º—Modificase el gasto presupuestario para el período 2003, establecido en el Decreto Ejecutivo Nº 30214-H y sus reformas, publicado en La Gaceta Nº 54, del 18 de marzo del 2002, fijándolo en ¢4.948.27 millones, producto de la adición de nuevas exclusiones al gasto presupuestario.
