@@ -1,0 +1,1 @@
+Artículo 11-La Secretaría Técnica de la Autoridad Presupuestaria podrá autorizar las solicitudes para ocupar plazas con funciones y rangos diferentes a las establecidas en el correspondiente Manual Descriptivo de Puestos, solamente en aquellos casos cuyo período sea menor o igual a un año.

@@ -1,0 +1,1 @@
+Artículo 10.-Para la autorización de plazas vacantes se procederá de acuerdo con lo establecido en la ley N° 6955 (publicada el 3 de marzo de 1984) y modificada por el artículo N° 13 de la ley N° 6999.

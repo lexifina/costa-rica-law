@@ -1,0 +1,1 @@
+Artículo 18.-EI pago por los aumentos que se produzcan como consecuencia de las aprobaciones de reasignaciones, estudios integrales, revaloraciones de puestos, suplencias, homologaciones, etc., quedará sujeto al contenido presupuestario.

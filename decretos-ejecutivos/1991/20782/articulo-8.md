@@ -1,0 +1,1 @@
+Artículo 8°-EI reconocimiento de extremos salariales como: carrera profesional, prohibición y dedicación exclusiva, deberán hacerse de acuerdo con lo que establecen las disposiciones legales y reglamentarias vigentes.

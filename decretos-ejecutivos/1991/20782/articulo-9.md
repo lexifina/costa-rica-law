@@ -1,0 +1,1 @@
+Artículo 9°-EI número total de puestos ocupados para cargos fijos, jornales fijos y servicios especiales del Sector Público durante el ejercicio presupuestario 1992, no podrá ser mayor al existente en diciembre de 1991.

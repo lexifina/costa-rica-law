@@ -1,0 +1,1 @@
+Artículo 16.-Las empresas e instituciones públicas podrán recurrir a lo dispuesto por la Autoridad Presupuestaria y/o la Secretaría Técnica de la Autoridad Presupuestaria en materia de clasificación y valoración de puestos, en los plazos establecidos en la Ley General de la Administración Pública.

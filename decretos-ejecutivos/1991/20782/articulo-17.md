@@ -1,0 +1,1 @@
+Artículo 17 .-Para las reasignaciones, ascensos, sustituciones, recargo de funciones y cualquier otro movimiento de personal, la persona debe cumplir con los requisitos académicos y legales que exige el correspondiente Manual Descriptivo de Puestos.

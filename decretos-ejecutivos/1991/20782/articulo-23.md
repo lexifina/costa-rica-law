@@ -1,0 +1,1 @@
+Artículo 23.-Los lineamientos aquí establecidos son de carácter vinculante, excepto cuando hay normas en contrario establecidas en el Estatuto del Servicio Civil y su Reglamento. El apartarse de los mismos acarreará la aplicación de las sanciones establecidas en el Reglamento de la Ley de la Autoridad Presupuestaria.

@@ -1,0 +1,1 @@
+Artículo 20.-La Comisión de Recursos Humanos de la Dirección General de Servicio Civil, estudiará y resolverá lo relacionado con las horas extraordinarias laboradas por los servidores públicos, de acuerdo con lo que establece el decreto ejecutivo N° 15333-H publicado el 30 de marzo de 1984.
