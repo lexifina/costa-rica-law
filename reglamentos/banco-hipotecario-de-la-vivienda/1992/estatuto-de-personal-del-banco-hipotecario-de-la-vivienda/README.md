@@ -14,3 +14,4 @@ Estatuto de Personal del Banco Hipotecario de la Vivienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-11-12 | la propia norma |
+| 2 | 1995-08-08 | Reglamento 66 (1995-08-08) |
