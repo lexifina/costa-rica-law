@@ -1,1 +1,1 @@
-6°-Mientras no entre en vigencia la nueva Constitución, corresponde al Tribunal de Sanciones Inmediatas el conocimiento de las causas por delitos a que este decreto se refiere, el cual deberá darles preferencia en su tramitación, a fin de acortar en lo posible la detención provisional de los indiciados.
+6°-(Derogado por el artículo 1° de la ley N° 458 del 13 de abril de 1949, "El conocimiento de las causas a que se refiere el decreto N° 105 de 17 de julio de 1948, corresponderá a los tribunales comunes")
