@@ -13,3 +13,4 @@ Confección y Duplicado de Placas Metálicas Debe Cancelarse con Timbres
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-03-06 | la propia norma |
+| 2 | 1997-03-06 | SINALEVI (sin norma nombrada) |
