@@ -1,0 +1,1 @@
+Artículo 2° — La materia tratada en este Reglamento se fundamenta en lo dispuesto por la Ley General de Salud, Artículo 36, Capítulo VII, Sección II "De los Cementerios, Inhumaciones y Exhumaciones de Cadáveres" Artículos 327 al 330; Reglamento General de Cementerios, Decreto Ejecutivo N° 22183-S del 6 de mayo de 1993, Decreto N° 704 del 7 de setiembre de 1949.

@@ -1,0 +1,1 @@
+Artículo 45.—La Municipalidad se reserve el derecho de realizar todo tipo de construcciones, reparaciones y mantenimiento en codas las instalaciones del cementerio, tanto en su terreno propio, como en los derechos ya adquiridos. El traspaso de derechos se hará con tales limitaciones.

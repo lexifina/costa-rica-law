@@ -1,0 +1,1 @@
+Artículo 9°— La Municipalidad para atender los gastos que demanda el cumplimiento de sus obligaciones queda facultada, para percibir los derechos de sepultura, inhumación, exhumación, mantenimiento y el producto del pago de los lotes de acuerdo con las tarifas que se fijen las cuales deberán ser publicadas en el diario oficial.

@@ -1,0 +1,1 @@
+Artículo 47.—El Ejecutivo Municipal y el Administrador del Cementerio, tienen la autoridad para hacer respetar y acatar las disposiciones de este Reglamento. Los propietarios de derechos se obligan a cumplirlo y así lo harán constar en el contrato respectivo.

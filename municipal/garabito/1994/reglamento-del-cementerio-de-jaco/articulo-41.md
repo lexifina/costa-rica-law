@@ -1,0 +1,1 @@
+Artículo 41.—En caso de los derechos funerarios cuyos propietarios incumplan las obligaciones de este reglamento o del contrato, facultará a la Municipalidad para efectuar exhumaciones ordinarias de oficio, y dar por disuelto el contrato.

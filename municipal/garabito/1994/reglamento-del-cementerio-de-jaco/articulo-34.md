@@ -1,0 +1,1 @@
+Artículo 34.—Existirá un sector del cementerio para sepultar indigentes en casos de extrema necesidad, cada sepultura será marcada con una losa, cruz u otro distintivo que llevarán número progresivo y el año que fue hecha la inhumación.

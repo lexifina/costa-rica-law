@@ -1,0 +1,1 @@
+Artículo 24.—La Municipalidad se compromete a proteger y vigilar las instalaciones del cementerio. No obstante, no será responsable por pérdidas, robos o daños causados por terceros o cases fortuitos.

@@ -1,0 +1,2 @@
+Artículo 17.—Los adquirientes de derechos sobre lotes podrán traspasarlos, a terceras personas cuando no hayan sido usados, o cuando habiéndose usado, se hubieran exhumado todos los restos que ellos contengan.
+Si no estuvieren completamente desocupados, solo podrán ser adquiridos por ascendientes, descendientes, cónyuge, hermanos, tíos o sobrinos del adquiriente, o por los cuñados, tíos políticos, sobrinos y yernos o por quienes tengan iguales nexos personas sepultadas en Los mismos sitios.

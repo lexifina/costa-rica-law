@@ -1,0 +1,1 @@
+Artículo 30.—EI administrador del cementerio queda obligado a facilitar las inspecciones de las autoridades administrativas y sanitarias a fin de fiscalizar la buena marcha de la política mortoaria que establece la Ley General de Salud.

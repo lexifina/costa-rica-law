@@ -1,0 +1,1 @@
+Artículo 33.—En caso de que el lote no esté apto para su utilización. La Municipalidad garantiza previo pago, la designación de otro sitio dentro del mismo cementerio para realizar cualquier inhumación, no obstante, deberá notificarse esta situación al respectivo propietario o representante en el momento en que éste presenta la autorización de inhumación.

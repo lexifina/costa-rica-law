@@ -1,0 +1,1 @@
+Artículo 7°—El Ejecutivo Municipal y el Administrador del cementerio, velarán por la correcta aplicación y uso de los servicios eléctricos, drenajes, instalaciones de agua y uso de servidumbres entre las parcelas, imponiendo las medidas que crea conveniente para el mejoramiento de Los servicios.

@@ -1,0 +1,1 @@
+Artículo 44.—La Municipalidad y la administración se reservarán el derecho de admisión al Cementerio de cualquier persona que a su juicio pudiera poner en peligro la tranquilidad y el orden que deben reinar en este Lugar.

@@ -1,0 +1,1 @@
+Artículo 15.—El contrato entre la Municipalidad y el adquiriente se dará cuando lote este totalmente cancelado, sin embargo, este podrá haber uso del mismo una vez efectuado el pago de la prima correspondiente.
