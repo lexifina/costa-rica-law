@@ -1,0 +1,12 @@
+Nº 30265-MTSS
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las potestades que les confieren los incisos 3), 18) y 20) del artículo 140, en concordancia con los artículos 25, 27 y 28 inciso 2) acápite b) de la Ley General de la Administración Pública y en ejecución de lo dispuesto en el Decreto Ley 832 del 04 de noviembre de 1949 y sus reformas.
+Considerando:
+1º—Que los miembros directores del Consejo Nacional de Salarios son nombrados con rige a partir del 1° de enero del mismo año en que se realizan las elecciones presidenciales; y, por tanto, en que se renueva el Poder Ejecutivo. Es decir, dicho nombramiento se da por parte del Poder Ejecutivo que cesa en sus funciones el 8 de mayo inmediato siguiente.
+2º—Que lo anterior hace que, con alguna frecuencia, el Poder Ejecutivo, a cargo de las funciones administrativas del Estado, se vea en la necesidad de sustituir a los representantes del Estado ante el Consejo Nacional de Salarios, por cuanto éstos no se identifican con los criterios y programas del gobierno de turno, en lo que tiene que ver con materia tan delicada y con tanta incidencia en la economía nacional, como es la fijación de salarios mínimos.
+3º—Que, aunque el artículo 8° del Decreto Ley N° 832, de 04 de noviembre de 1949, denominada "Ley de Salarios Mínimos y Creación del Consejo Nacional de Salarios" permite la destitución de dichos representantes por pérdida de confianza, la Contraloría General de la República ha interpretado que esto sólo se puede dar por causas objetivas, previa aplicación de un debido proceso y motivación del Decreto respectivo (véase oficio 2027, FOE-GU-109, del 26 de febrero del 2002); pues, según el ente contralor, el acto de remoción puro y simple "genera un evidente perjuicio a la Hacienda Pública y puede calificarse como arbitrario, y en tal medida proclive a una desviación de poder." En virtud de lo cual recomendó realizar la reforma legal y reglamentaria correspondientes (idem). Por tanto,
+Decretan:
+Artículo 1º—Se modifica el artículo 9 del Reglamento del Consejo Nacional de Salarios (Decreto N° 25619-MTSS, del 16 de setiembre de 1996 y sus reformas); el cual se leerá así:
+"Artículo 9º—La duración, así como la eventual remoción de los miembros del Consejo, se realizará de conformidad con lo dispuesto en el artículo 8 del Decreto Ley.
+Tratándose de los representantes del Estado, la remoción sólo se dará previa realización del debido proceso y mediante la debida motivación del Decreto de destitución."
