@@ -1,0 +1,9 @@
+INSTITUTO DE DESARROLLO AGRARIO
+COMUNICACIÓN DE ACUERDOS DE LA JUNTA DIRECTIVA
+A fin de que se sirva proceder a su ejecución, me permito comunicarle el acuerdo tomado por la Junta Directiva en el artículo No XIV, de la sesión No 90-01, celebrada el 3 de diciembre del 2001:
+Artículo décimo cuarto.—Se somete a consideración de los señores directores el oficio PE-2054-2001, suscrito por la Presidencia Ejecutiva, con fecha 3 de diciembre del año 2001, relacionado con nota DAJ-981-01, referente a criterio sobre el pago de zonaje de los funcionarios de la institución, respecto a las directrices emitidas por la Contraloría General de la República.
+Analizado dicho caso y de conformidad con lo ordenado por la Contraloría General de la República, se acuerda:
+a) Modificar el artículo 12 del Reglamento Interino de Zonaje, como se indica a continuación, para que una vez que el mismo entre en vigencia con posterioridad a su publicación, se inicie el procedimiento administrativo de reducción del monto por concepto de zonaje, debiendo cumplirse dentro de cada procedimiento con los derechos constitucionales de derecho de defensa y del debido proceso, a efectos de no causar indefensión:
+Artículo 12.—El pago de zonaje será porcentual, tomando en consideración medios y riesgos de transporte, clima, salubridad, condiciones y costo local de vida, posibilidades de educación y atención médica para el servidor y su familia, de manera que el ciento por ciento, corresponde a la suma máxima que la Contraloría General de la República fije, para el pago de zonaje a los servidores públicos.
+El cálculo porcentual se fijará por cantones y distritos. El monto correspondiente a cada porcentaje, se determinará después de que la Contraloría General de la República fije la variación en el monto
+total y éste será variado de oficio por parte del Área de Recursos Humanos y empezará a regir cuando exista el contenido presupuestario.
