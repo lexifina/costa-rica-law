@@ -1,1 +1,0 @@
-Artículo 25.-El Instituto Costarricense de Acueductos y Alcantarillados conocerá para su aprobación las cuotas familiares que se establezcan para los acueductos en zonas rurales, conforme a los principios de su ley constitutiva y reglamentos.

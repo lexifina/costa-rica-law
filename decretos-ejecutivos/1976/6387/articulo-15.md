@@ -1,1 +1,0 @@
-Artículo 15.—Cualquier vecino podrá asistir a las sesiones, salvo cuando el Comité acordare sesionar en privado. El Presidente podrá dar la palabra a los vecinos cuando lo considere conveniente y para referirse únicamente a los asuntos que se están tratando.
