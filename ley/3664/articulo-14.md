@@ -1,0 +1,1 @@
+Artículo 14.-Los conflictos de jurisdicción y competencia, serán resueltos por el Tribunal. Si lo fueren por razón de la materia y alguna de las partes se manifestare inconforme, se consultará la resolución a la Sala de Casación.

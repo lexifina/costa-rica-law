@@ -1,0 +1,1 @@
+Artículo 13.-Si fuere recusado alguno de los integrantes del Tribunal, conocerán de la recusación los otros; si se hiciere a dos, la resolverá el integrante hábil; y si fueren recusados todos, conocerá de ella uno de los Jueces de Trabajo en la ciudad de San José.

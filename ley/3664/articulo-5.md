@@ -1,2 +1,1 @@
-Artículo 5º.-En las oportunidades en que las partes deban aducir hechos de importancia para el juicio, también deberán ofrecer y, si ello es posible y pertinente, presentar la prueba correspondiente a esos hechos.
-El Tribunal, en todo caso, podrá limitarla o prescindir de la que considere innecesaria.
+Artículo 5º.- En las demás oportunidades en que las partes puedan aducir hechos de importancia para el juicio, también deberán ofrecer, y si ello fuere posible y pertinente, presentar la prueba que corresponde a esos hechos. El Tribunal o el instructor, en los incidentes que les toque resolver, podrán limitarla o prescindir de la que consideren innecesaria.
