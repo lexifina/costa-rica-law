@@ -1,1 +1,2 @@
-Artículo 127.- Las resoluciones y actuaciones del actuario serán firmadas por él y por el secretario de la oficina, o por quienes puedan sustituir a éste de acuerdo con esta Ley Orgánica.
+Artículo 127.- Los jueces tramitadores deben reunir los mismos requisitos del juez, de acuerdo con la categoría que corresponda en el despacho de que se trate.
+(Así reformado por el artículo 4° de la Ley N° 7728 de 15 de diciembre de 1997).

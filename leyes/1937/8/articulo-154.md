@@ -1,2 +1,3 @@
-Artículo 154.- La fijación de honorarios se hará en sentencia, o en el momento en que el imputado decida prescindir de los servicios del defensor público.
-Los fondos provenientes de honorarios se depositarán en una cuenta bancaria especial y se emplearán en la adquisición de bienes y servicios para mejorar el Departamento de Defensores Públicos.
+Artículo 154.- La fijación de honorarios se hará en sentencia o en el momento en que el imputado decida prescindir de los servicios del defensor público.
+Los fondos provenientes de honorarios se depositarán en una cuenta bancaria especial y se emplearán para adquirir bienes y servicios tendientes a mejorar la Defensa Pública.
+(Así reformado por el artículo 6° de la Ley N° 7728 de 15 de diciembre de 1997).

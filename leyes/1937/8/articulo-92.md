@@ -1,9 +1,8 @@
 TITULO IV
-DE LOS TRIBUNALES SUPERIORES, JUZGADOS Y ALCALDIAS
+(*) DE LOS TRIBUNALES COLEGIADOS Y JUZGADOS
 CAPITULO I
-DE LOS TRIBUNALES SUPERIORES
-Artículo 92.- Habrá Tribunales Superiores de Casación, Superiores Civiles, Penales, de lo Contencioso-administrativo y Civil de Hacienda, de Familia, de Trabajo, Agrarios y los demás que determine la ley.
-Para ser Juez Superior de Casación se requiere:
-1.- Ser costarricense en ejercicio de sus derechos ciudadanos.
-2.- Tener, al menos, 35 años de edad.
-3.- Poseer el título de abogado legalmente reconocido en Costa Rica y haber ejercido la profesión durante diez años, salvo en los casos en que se trate de funcionarios judiciales con práctica jurisdiccional no menor de cinco años. Estos jueces devengarán un salario mayor que los demás jueces superiores.
+(*)DE LOS TRIBUNALES COLEGIADOS
+(*) (Así modificada su denominación por el artículo 4° de la Ley N° 7728 de 15 de diciembre de 1997).
+Artículo 92.- Existirán tribunales colegiados de casación, civiles, penales de juicio, de lo contencioso-administrativo y civil de hacienda, de familia, de trabajo, agrarios, penales juveniles, así como otros que determine la ley.
+Los tribunales podrán ser mixtos, cuando lo justifique el número de asuntos que deban conocer.
+(Así reformado por el artículo 4° de la Ley N° 7728 de 15 de diciembre de 1997).
