@@ -1,0 +1,1 @@
+II. Que por Artículo IV del acta de la Sesión Ordinaria número 2816-94 celebrada el 9 de mayo de 1994 y ratificada el 16 del mismo mes, este Organismo Regulador conoció del Informe del Departamento Técnico y aprobó la propuesta para incrementar en el 9% las tarifas eléctricas de la Empresa de Servicios Públicos de Heredia vigentes al mes de mayo de 1994.
