@@ -1,0 +1,1 @@
+Artículo 9º.- El Ministerio de Agricultura y Ganadería dará asistencia técnica, en cuanto a especies a plantar, épocas de plantación, distancias, fertilizantes y otras prácticas silviculturales. Asimismo colaborará con las municipalidades, centros agrícolas y todas aquellas entidades que deseen participar en este programa.
