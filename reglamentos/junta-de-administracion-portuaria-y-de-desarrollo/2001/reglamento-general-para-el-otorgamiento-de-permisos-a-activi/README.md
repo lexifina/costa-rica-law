@@ -14,3 +14,4 @@ Reglamento General para el Otorgamiento de Permisos a Actividades Privadas a des
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-19 | la propia norma |
+| 2 | 2003-01-16 | Reglamento 2 (2003-01-16) |
