@@ -1,0 +1,1 @@
+Artículo 6º—Los sujetos interesados en la publicidad deberán dar un aporte económico en carácter de donación al Comité Cantonal. La donación podrá ser en dinero líquido o en especie. El monto que se pretende donar será convenido por el Comité.

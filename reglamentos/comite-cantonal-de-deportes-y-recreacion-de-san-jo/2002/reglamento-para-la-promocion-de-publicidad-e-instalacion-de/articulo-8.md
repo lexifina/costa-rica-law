@@ -1,0 +1,1 @@
+Artículo 8º—Para cada convenio específico se deberá contar con la aprobación de la Junta Directiva, previa consulta a la asesoría legal del Comité, la cual en todo caso confeccionará el convenio de donación a cambio de publicidad.

@@ -1,0 +1,1 @@
+Artículo 5º—Las actividades realizadas por el Comité podrán contar con el patrocinio de los sujetos estipulados en el artículo segundo y en ese sentido se les dará publicidad a cambio de su colaboración.
