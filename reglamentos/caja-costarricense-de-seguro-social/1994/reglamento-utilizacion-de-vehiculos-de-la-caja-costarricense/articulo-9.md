@@ -1,0 +1,1 @@
+Artículo 9°—Las unidades con vehículo asignado, informarán mensualmente a la Asesoría de Transportes lo indicado en el instructivo, con excepción de los accidentes de tránsito, cuya información deberá remitirse en forma inmediata.
