@@ -1,0 +1,1 @@
+Artículo 2º—Sólo tendrán derecho a dieta los miembros de la Junta Administrativa que asistan a las sesiones respectivas. Cuando el suplente asista como propietario se le pagará la cuota que le corresponde al titular.

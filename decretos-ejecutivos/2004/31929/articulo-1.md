@@ -1,0 +1,11 @@
+Nº 31929
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA Y GRACIA
+Con fundamento en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, 28 de la Ley General de la Administración Pública y la Ley de Creación del Registro Nacional, N° 5695 de 28 de mayo de 1975, reformada por leyes N° 5950 de 27 de octubre de 1976 y 6934 de 28 de noviembre de 1983.
+Considerando:
+1º—Que el artículo 60 de la Ley N° 7138 del 24 de noviembre de 1989 estableció el sistema de remuneración de los miembros de las Instituciones Autónomas y Semiautónomas, indicando que serán incrementadas anualmente de conformidad con el índice de inflación que determine el Banco Central de Costa Rica.
+2º—Que los criterios establecidos en el artículo 60 de la ley antes citada, los ha utilizado el Poder Ejecutivo para determinar el monto que por concepto de dietas deben devengar los miembros de la Junta Administrativa del Registro Nacional, asimismo dicho artículo establece que las dietas se devengarán por cada sesión a la que asistan los directores.
+3º—Que el artículo 5 de la ley de Creación del Registro Nacional N° 5695 de 28 de mayo de 1975 y sus reformas, regula la remuneración para las sesiones ordinarias y no así para las sesiones extraordinarias.
+4º—Que en razón de lo anterior y con el fin de limitar el pago de las sesiones extraordinarias por parte los miembros de la Junta Administrativa, en procura de un buen uso de los fondos públicos de la Institución, se hace necesario la presente regulación. Por tanto:
+DECRETAN:
+Artículo 1º—Los miembros de la Junta Administrativa del Registro Nacional serán remunerados mediante dietas que devengarán por cada sesión a la cual asistan, el número de sesiones remuneradas no podrá exceder de cuatro ordinarias y una extraordinaria al mes y el monto de cada una será de ¢20.704,30 (veinte mil setecientos cuatro colones con treinta céntimos) para los miembros propietarios y de ¢12.423,00 (doce mil cuatrocientos veintitrés colones exactos) para los miembros suplentes, monto que de conformidad con el artículo 60 de la Ley N° 7138 del 24 de noviembre de 1989 indicado en el considerando primero de este decreto, se incrementará anualmente de acuerdo con el índice de inflación que determine el Banco Central de Costa Rica
