@@ -1,0 +1,1 @@
+2.—Ámbito de aplicación. Los presentes Lineamientos serán aplicables a los entes y órganos públicos cuyos presupuestos son de aprobación de la Contraloría General de la República, excepto para las instituciones del sector municipal, universidades y bancos públicos, para los que se girarán lineamientos específicos.

@@ -1,0 +1,2 @@
+8.—Designación de responsables. Al jerarca le corresponde establecer las responsabilidades de las unidades y funcionarios que intervienen en la fase de formulación presupuestaria, quienes deben actuar de manera coordinada e integrada.
+En el caso de la unidad de planificación, esta deberá considerar, entre otras, las normas que establezca Mideplan para garantizar que funcionen como parte integrante del Sistema Nacional de Planificación.
