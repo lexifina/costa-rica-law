@@ -1,0 +1,3 @@
+Artículo 3°—Toda persona física o jurídica de carácter privado, que expenda, produzca, importe o tenga en representación artículos como reactivos, equipo e instrumentos para laboratorio clínico, deberá contar con un M.O.C. regente.
+De acuerdo con la magnitud y la naturaleza de estos establecimientos, la Junta Directiva del Colegio estipulará el horario mínimo de regencia, el cual no podrá ser inferior a 2,00 horas diarias ( 1/4 de tiempo).
+El regente será el principal responsable, ante el Colegio, por la aplicación de las normas que regulan este tipo de actividad, en especial el artículo 31 del Decreto No 17661-S ("La Gaceta" No 158 del 19 de agosto de 1987) y el Decreto N° I7761-S ("La Gaceta" No 197 del 15 de octubre de 1987).
