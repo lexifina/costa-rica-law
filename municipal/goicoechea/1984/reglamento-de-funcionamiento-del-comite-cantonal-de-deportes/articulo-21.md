@@ -1,0 +1,1 @@
+Articulo 21.—Luego de haber quedado en firme una decisión de destitución, el Comité solicitará a la Municipalidad la reposición inmediata del miembro separado, para lo cual pedirá a la Institución que corresponda el envío de la respectiva terna.

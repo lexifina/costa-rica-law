@@ -1,0 +1,1 @@
+Articulo 15.—Las sesiones del Comité Cantonal de Deportes y Recreación serán convocadas por el Presidente de la Junta Directiva y deberá reunirse por lo menos una vez a la semana. Asimismo cualquier iniciativa debe ser presentada por escrito a modo de moción y debidamente firmada por dos de los miembros.

@@ -1,0 +1,1 @@
+Articulo 8°—El Comité funcionará como un ente colegiado, con personalidad jurídica únicamente para el cumplimiento de los fines que establecen la ley y el presente reglamento. En la primera sesión elegirán su junta directiva y establecerán el día y hora de sesiones.

@@ -1,0 +1,1 @@
+Artículo 18.—El Comité podrá sesionar en cualquier lugar del cantón de Goicoechea, siempre y cuando así lo decida el Comité por simple mayoría de votos o convocatoria o extraordinaria de acuerdo con lo establecido en el artículo 99, inciso q), con la anuencia de la Municipalidad.

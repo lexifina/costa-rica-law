@@ -1,0 +1,1 @@
+Artículo 33.—El Comité podrá autorizar a la Junta Directiva el manejo de una caja chica hasta por la suma del 10% de la subvención municipal mensual contra facturas, los demás pagos deberán hacerse por medio de cheques, dichos pagos deberán ser aprobados en sesión anterior por mayoría simple del Comité y elaborados en esa sesión misma.
