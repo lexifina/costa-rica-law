@@ -1,0 +1,1 @@
+Art. 39. En todo lo concerniente à la seguridad del Canton, y a su régimen político y económico, están subordinados al Jefe Político los funcionarios públicos con esclusion de los exceptuados en el artὶculo 3° de esta ley y de aquellos de los Cantones capitales de Provincia de quienes depende el mismo Jefe Polὶtico.

@@ -1,0 +1,1 @@
+Art. 22. Los Comandantes de armas en las Provincias ponen á disposicion del Gobernador la fuerza armada que éste necesitare para restablecer la tranquilidad, para la seguridad de las personas y bienes y derechos de los habitantes, para la persecucion de los delitos y para la ejecucion de las leyes y órdenes, cuando fueren desobedecidas.

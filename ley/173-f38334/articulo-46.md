@@ -1,0 +1,1 @@
+Art. 46. El Jefe Político tiene facultad de suspender los acuerdos municipales cuando sean contrarios à la Constiticion ó à alguna ley, ó porque no estén dentro de las facultades de la misma Municipalidad; pero dando cuenta sin demora al Gobernador de la Provincia para que éste le comunique la resolucion, que deberá cumplir.

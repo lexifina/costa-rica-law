@@ -1,0 +1,1 @@
+Art. 99. Ocho dias ántes de emprenderse la reparacion de los caminos, puentes y calzadas que el Jefe Polὶtico haya determinado, los jueces de paz fijan la lista particular de los que en aquella vez deben prestar el servicio personal, haciendolos tambien citar personalmente.

@@ -1,0 +1,1 @@
+Art. 50. El Jefe Político visita, á lo menos una vez en el año, las parroquias del Canton, y dá cuenta la Gobernador de la Provincia, de las observaciones que hiciere. Las parroquias de Térraba y Boruca podrá visitarlas su Jefe Político por medio de otra persona inteligente y respetable.

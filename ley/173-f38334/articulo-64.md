@@ -1,0 +1,1 @@
+Art. 64. El juez de paz, en lo relativo á la administracion particular de la ciudad, villa ò distrito parroquial, tanto con respecto al servicio nacional, como al local y à los funcionarios inferiores que haya en el pueblo, ejerce las mismas atribuciones y tiene los mismos deberes que se contienen en los artículos 15, 16, 39, 41, 47, 48, 49, 53, 54 y 57.

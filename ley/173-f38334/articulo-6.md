@@ -1,0 +1,1 @@
+Art. 6. El Gobernador comunica à los Jefes polὶticos de los Cantones, y á los demas funcionarios à quienes corresponda, todas las leyes del Congreso y los decretos y òrdenes del poder Ejecutivo: exije recibo de estas comunicaciones; y no cubre su responsabilidad sinó cuida eficazmente de su mas exácto cumplimiento.

@@ -1,0 +1,1 @@
+Art. 23. El Gobernador visita anualmente la Provincia para informarse por sí mismo del cumplimiento de las leyes, de la conducta de los funcionarios, del estado de la polὶcia, de las escuelas y de los establecimientos públicos; y por último de la marcha que lleven los negocios en los diferentes ramos de la pública administracion.

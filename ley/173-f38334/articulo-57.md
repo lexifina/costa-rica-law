@@ -1,0 +1,1 @@
+Art. 57. El Jefe Polὶtico averigua activamente qué bienes ó capitales hay en el Canton, destinados para la educacion ó para cualquiera objeto de beneficencia pública, á fin de que se aseguren y se les dé su debida aplicacion.

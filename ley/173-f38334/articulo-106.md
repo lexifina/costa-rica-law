@@ -1,0 +1,1 @@
+Art. 106. Cuando los mismos caminos ó comunicaciones son nacionales, ó interesan á dos ó mas Provincias, ó à los pueblos de ellas, son de cargo de cada Provincia las mismas obras en la parte correspondiente à su territorio. Mas el Poder Ejecutivo puede reservarse en todo ò en parte el derecho de mandar hacer dichas obras.

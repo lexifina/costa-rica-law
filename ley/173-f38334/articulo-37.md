@@ -1,0 +1,1 @@
+Art. 37. El Jefe Polὶtico toma posesion de su destino, despues de haber prestado el juramento constitucional ante el Gobernador, el dia 1° de enero de cada año; y el que haya servido este periòdo no está obligado à servir otro consecutivo.

@@ -1,0 +1,1 @@
+Art. 11. El Gobernador zela la buena dirección, recaudacion é inversión de los bienes y rentas nacionales municipales y de cualquiera otras, sean cunales fuere sus denominaciones, inclusive las de los establecimientos públicos, como colegios, hospitales, cofradías, cárceles, puentes y caminos.

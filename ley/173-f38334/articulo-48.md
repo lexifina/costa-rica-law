@@ -1,0 +1,1 @@
+Art. 48. El Jefe Político no ejerce funciones judiciales ni llama autos pendientes, pero respecto de los juzgados del Canton tiene las facultades prevenidas en los artículos 17 y 18, dando en su caso los correspondientes avisos al Gobernador ó á otras autoridades competentes.

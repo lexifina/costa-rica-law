@@ -1,0 +1,1 @@
+Art. 76. Estos Comisarios son nombrados anualmente por el Jefe Político del Canton, están bajo la dependencia inmediata del mismo, y debe observarse respecto de ellos lo dispuesto en los artὶculos 60, 62 y 63; y son amovibles á voluntad del Jefe Polὶtico, ó á solicitud de los Jueces de Paz.

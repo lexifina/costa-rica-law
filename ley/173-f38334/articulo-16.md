@@ -1,0 +1,1 @@
+Art. 16. El Gobernador aprehende ó dispone que se aprehendan, dentro de la Provincia, los delincuentes de territorio distinto, ó dependientes de otra autoridad, á requerimiento de la que sea competente, para ponerlos á su disposicion.

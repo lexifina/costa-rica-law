@@ -1,0 +1,1 @@
+Art. 71. Ejecuta los embargos, prisiones y apremios que le prevengan los tribunales superiores y jueces del Canton y cumple con los deberes que las leyes de la administracion Judiciaria señalan à los Alcaldes de Cuartel.

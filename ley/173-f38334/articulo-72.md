@@ -1,0 +1,1 @@
+Art. 72. Visita, por lo menos cada seis meses, el distrito parroquial, y recorre todas las semanas los barrios de la respectiva poblacion, las entradas pùblicas y los trabajos públicos que se ejecuten, à fin de tomar las providencias de policía que estime necesarias, velar sobre dichos trabajos, y notar y corregir los abusos de sus agentes.

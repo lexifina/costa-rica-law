@@ -1,0 +1,1 @@
+Art. 107. Los funcionarios pùblicos de una Provincia, solo deben entrar en comunicaciones oficiales con los de las otras Provincias, cuando tengan necesidad de ello, para desempeñar cualquiera atribucion de aquellas que les están expresamente de signadas por la ley, ó para cumplir las órdenes del Poder Ejecutivo.

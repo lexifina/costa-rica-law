@@ -1,0 +1,1 @@
+Art. 82. Los municipales y suplentes serán elegidos á pluralidad absoluta de votos, por la Asamblea Electoral del respectivo Canton el quince de diciembre, debiendo concurrir como decisivo el voto del Jefe Polὶtico, en caso de empate en la eleccion.

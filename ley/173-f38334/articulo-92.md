@@ -1,0 +1,1 @@
+Art. 92. No se extraerá cantidad alguna de las rentas municipales sinò para los gastos prevenidos por la ley ó por órden del Gobierno ó por un decreto de la Municipalidad y en virtud de una òrden firmada por el Gobernador de la Provincia ó por el Jefe Polὶtico del Canton.
