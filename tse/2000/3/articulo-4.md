@@ -1,0 +1,1 @@
+Articulo 4°-- El Tribunal rechazara de plano la denuncia por parcialidad o participación política cuando de los elementos de juicio que obraren en su poder se desprende que aquella es manifiestamente improcedente.
