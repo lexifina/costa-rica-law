@@ -1,0 +1,1 @@
+Artículo 13.—A más tardar en la última semana de noviembre de cada año, la Administración del CNREE informará a los empleados sobre el monto de la prima que deberán suscribir, cifra que se deducirá de la primera planilla del mes de diciembre anterior al año cubierto por las garantías.

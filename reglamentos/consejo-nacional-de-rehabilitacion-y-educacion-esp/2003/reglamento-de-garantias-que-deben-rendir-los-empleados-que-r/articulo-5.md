@@ -1,0 +1,1 @@
+Artículo 5º—Las garantías que deben rendir los empleados a quienes el CNREE se las requiera, deben hacerlo por medio de pólizas de fidelidad que suscriban con el Instituto Nacional de Seguros, ya sean colectivas o individuales a favor del Consejo, de acuerdo con los montos fijados por el CNREE, según el procedimiento establecido en este Reglamento.
