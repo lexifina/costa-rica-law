@@ -1,0 +1,3 @@
+ARTICULO XL
+Arreglos especiales
+Los Miembros y Miembros Asociados se reservan el derecho para ellos mismos, para las agencias de explotación particulares reconocidas por ellos y para otras agencias debidamente autorizadas para ello, de hacer arreglos especiales sobre asuntos de telecomunicaciones que no interesen los Miembros y Miembros Asociados en general. Sin embargo, estos arreglos no deben estar en contradicción con los términos de este Convenio ni con los Reglamentos que lo acompañan, en cuanto toca a la interferencia perjudicial que su funcionamiento pudiera causar a los servicios de radiocomunicaciones de otros países.

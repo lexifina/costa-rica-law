@@ -1,0 +1,5 @@
+ARTICULO XLIV
+Interferencias perjudiciales
+1º—Todas las estaciones, cualquiera que sea su objeto, deben ser establecidas y explotadas de tal manera que no resulten interferencias perjudiciales para las radioemisiones y comunicaciones de otros Miembros o Miembros Asociados o de agencias de explotación particulares reconocidas, o de otras agencias de explotación debidamente autorizadas que efectúan servicios de radiocomunicaciones y que trabajan de acuerdo con las disposiciones reglamentarias de las radiocomunicaciones.
+2º—Cada Miembro o Miembro Asociado se compromete a obligar las agencias de explotación particulares que reconoce y la demás agencias de explotación debidamente autorizadas para este fin, a que observen las disposiciones del párrafo anterior.
+3º—Además, los Miembros y Miembros Asociados reconocen la conveniencia de tomar todas las medidas prácticas para evitar el funcionamiento de aparatos e instalaciones eléctricas de toda naturaleza que causen interferencias perjudiciales en los servicios de radioemisiones o comunicaciones mencionados en el párrafo 1° de este artículo.

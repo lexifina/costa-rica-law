@@ -1,0 +1,11 @@
+ARTICULO VI
+Junta Internacional de Registro de Frecuencias
+1º—Las obligaciones esenciales de la Junta Internacional de Registro de Frecuencias serán:
+a) Efectuar un registro ordenado de las asignaciones de frecuencias otorgadas por diferentes países de modo a establecer, de acuerdo con la manera de pro-ceder especificada en los Reglamentos de la Radio, la fecha, el objeto y las características técnicas de cada una de esas asignaciones, con el fin de asegurar el reconocimiento oficial internacional de las mismas ;
+b) Dar consejos a los Miembros y Miembros Asociados, teniendo en mira la operación del número máximo practicable de canales radiotelefónicos en aquellas porciones del espectro en que pueden ocurrir interferencias molestas.
+2º—La Junta Internacional de Registro de Frecuencias se compondrá de miembros independientes, todos ciudadanos de diferentes países miembros de la Unión. Cada conferencia administrativa ordinaria de radiocomunicación determinará el número de sus miembros y la manera de elegirlos, teniendo en mira el asegurar una selección equilibrada de los Miembros de las varias partes del mundo.
+3º—Los Miembros de la Junta serán electos por cada una de las Conferencias Administrativas de Radiocomunicaciones, de conformidad con el modo de proceder establecido por dicha conferencia.
+4º—Las disposiciones relativas al trabajo de la Junta están definidas en los Reglamentos de las Radiocomunicaciones.
+5º— (1) Los Miembros de la Junta desempeñarán su cometido, no como representantes de sus respectivos países, o de una región determinada, sino en calidad de guardianes de un fideicomiso público internacional.
+(2) Ningún Miembro de la Junta deberá solicitar o recibir instrucciones relacionadas con el ejercicio de sus funciones de Gobierno alguno, de Miembro alguno del mismo ni de ninguna organización o persona pública o particular. Además, cada uno de los Miembros y Miembros Asociados debe respetar el carácter internacional de la Junta y de las obligaciones de sus Miembros y deberá abstenerse de todo intento de influenciar cualquiera de ellos en el ejercicio de sus funciones.
+(3) Ningún Miembro de la Junta o de su personal deberá participar en forma alguna o tener el menor interés pecuniario, de cualquier manera que sea en ningún ramo de la telecomunicación, fuera del trabajo de la Junta.

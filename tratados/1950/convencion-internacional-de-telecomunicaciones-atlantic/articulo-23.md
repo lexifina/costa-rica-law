@@ -1,0 +1,3 @@
+ARTICULO XXIII
+Abrogación de Convenios y Reglamentos anteriores
+Este Convenio y los Reglamentos que lo acompañan abrogarán y reemplazaran, entre los Gobiernos contratantes, las Convenciones Internacionales de Paris, relativas a los Telégrafos (1865), de Viena (1868), de Roma (1872), de San Petersburgo (1875) y los Reglamentos que acompañan las mismas y también las Convenciones Internacionales de Radiotelegrafia de Berlín (1906), de Londres (1912), y de Washington (1927) y los Reglamentos que los acompañan, así corno el Convenio Internacional de Telecomunicaciones de Madrid (1932), los Reglamentos de Radiocomunicaciones y los Reglamentos Adicionales de Telecomunicaciones de El Cairo (1938.)
