@@ -1,0 +1,1 @@
+Art 6° En cada telegrama que se trasmita deberá constar en abreviados términos, la fecha y la hora en que fue entregada la cédula para su trasmisión y en los términos y en los telegramas que se reciban, constará igualmente la hora en que fueron recibidos en las oficinas respectivas.
