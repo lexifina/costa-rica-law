@@ -1,0 +1,1 @@
+Art 7°.- Se respeta la salvaguardia dada por el Jefe de operaciones a José Angel Soto y Anselmo Gonzalez, siempre que dentro de nueve días hayan cumplido religiosamente con la condición de entregar todas las armas de su mando y elementos de guerra quedando después del destino que ocupan en el Ejercicio del Estado.
