@@ -14,3 +14,4 @@ Creación del Programa de Seguridad Turística
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-26 | la propia norma |
+| 2 | 1998-03-26 | Ley 8 |
