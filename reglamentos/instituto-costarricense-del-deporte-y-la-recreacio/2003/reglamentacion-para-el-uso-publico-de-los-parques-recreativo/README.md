@@ -14,3 +14,4 @@ Reglamentación para el Uso Público de los Parques Recreativos.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-09-29 | la propia norma |
+| 2 | 2004-09-28 | Reglamento 0 (2004-09-28) |
