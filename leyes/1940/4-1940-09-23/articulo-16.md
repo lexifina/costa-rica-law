@@ -1,0 +1,2 @@
+Artículo 16.-Cuando se hiciere una revaloración total de puestos protegidos por el Régimen de Servicio Civil, motivada por el aumento en el costo de la vida, o se acordaren aumentos de sueldos, por la misma razón, los derechos jubilatorios o de pensión del ramo de Comunicaciones deberán mejorarse, en el mismo porcentaje del incremento de sueldos.
+(Así adicionado por el artículo 1° de la ley N° 6317 del 17 de abril de 1979)
