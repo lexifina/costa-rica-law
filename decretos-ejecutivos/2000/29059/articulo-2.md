@@ -1,0 +1,1 @@
+Artículo 2°—Deróguese el inciso 6 del artículo 54 y deróguense los artículos 16 del Decreto Ejecutivo N° 7841-P del 16 de diciembre de 1977 y sus reformas, Reglamento a la Ley de la Zona Marítimo Terrestre.
