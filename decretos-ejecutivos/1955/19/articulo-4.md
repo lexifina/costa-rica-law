@@ -20,9 +20,7 @@ II. f) Si el suscriptor desea financiar una solución de mayor costo con aplicac
 Más de ¢ 2.500.000,00, hasta ¢ 5.000.000,00 al 15% de interés anual fijo (ii).
 Para los efectos de esta disposición general se considerará casa nueva aquella que no haya sido habitada desde su construcción a la fecha de otorgamiento del préstamo y que no haya sido objeto de inscripción como tal en el Registro Público.
 g.— ¢ 5.000.000,00, para liberación de gravámenes hipotecarios parciales o totales. Ref. así sesión No 4153 del 17 de octubre de 1991.
-2.—Se señala como monto máximo de cada contrato del Sistema Especial para Adjudicatarios y Prestatarios del INVU, la suma de quinientos mil colones y cien mil colones como monto mínimo se establece un tope de solución de ¢ 500.000,00 así:
-a) Hasta ¢ 300.000,00, al 9% de interés anual fijo.
-b) Más de ¢ 300.000,00 hasta ¢ 500.000,00 al 15 % de interés anual fijo (ii).
+2.—DEROGADO por la Sesión N° 4491 de 15 de marzo de 1995, publicada en La Gaceta N° 65 de 31 de marzo de 1995.
 3.—Elevar el tope de anticipo por empleado del INVU, a ¢ 5.000.000,00, el anticipo podrá ser de doce meses máximo, siempre que el empleado deposite las cuotas de ahorro fallantes, manteniéndose las demás condiciones vigentes, así:
 a) Hasta ¢ 2.000.000,00, al 9 % de interés anual fijo.
 b) Más de ¢ 2.000.000,00 hasta ¢ 5.000.000,00 al 15 % de interés anual fijo (ii).
