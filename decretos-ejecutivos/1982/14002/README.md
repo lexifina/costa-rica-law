@@ -19,3 +19,4 @@ Fija precios de productos de consumo básico
 | 5 | 1983-05-23 | Decreto Ejecutivo 14566 (1983-05-23) |
 | 6 | 1983-08-18 | Decreto Ejecutivo 14772 (1983-08-18) |
 | 7 | 1983-12-02 | SINALEVI (sin norma nombrada) |
+| 8 | 1986-05-05 | SINALEVI (sin norma nombrada) |

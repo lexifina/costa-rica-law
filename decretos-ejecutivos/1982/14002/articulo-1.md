@@ -1,4 +1,5 @@
 N° 14002
+(Nota de Sinalevi. Sobre este tema de regulación de precios, véase el artículo 5 de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, N° 7472 del 20 de diciembre de 1994, sobre las condiciones que debe cumplir la Administración Pública para ello, como medida excepcional y temporal.”)
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE ECONOMIA Y COMERCIO
 Considerando:
@@ -105,10 +106,10 @@ Lata de 460 gramos netos cada una | 60.60 | 63.65 | 70.00
 | | De carnicero a consumidor
 | | Kilogramo ¢
 Carne de res: | | |
-Hígado | | 45.00 |
+Hígado | | Importador o Mayorista Detallista 5% 15% (Así reformado los montos anteriores por el artículo 1 del decreto ejecutivo N° 16994 del 5 de mayo de 1986) |
 Asadura (corazón, bazo, pulmón) | | 27.25 |
 Mondongo | | 19.00 |
-Lengua | | 40.30 |
+Lengua | | Importador o Mayorista Detallista 5% 15% (Así reformado los montos anteriores por el artículo 1 del decreto ejecutivo N° 16994 del 5 de mayo de 1986) |
 Posta de ratón | | 70.00 |
 Posta de pecho, alipego, tapa de costilla | | 70.00 |
 Posta quititeña | | 75.00 |
@@ -162,6 +163,7 @@ VARIOS | |
 Jabón | |
 Jabón en barra de 45% a 55% de ácidos grasos, caja de 12.5 Kg netos c/u | 307.45 322.80 | 14.85
 De 30% a 44% de ácidos grasos, caja de 12.5 kilogramos netos cada una | 286.75 301.10 | 13.85
+Importador o Mayorista Detallista Jabones en barra 15% 5% (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 16994 del 5 de mayo de 1986, se indica reformar el producto "jabones en barra", al no coincidir dicha modificación se transcribió la misma) | |
 | | Barra 500 g
 | PRECIOS MAXIMOS DE VENTA
 | A jabonería o industrial Kilogramo ¢
@@ -170,9 +172,10 @@ Con máximo de 65% de humedad | 3.85
 Blanqueado con un máximo de 40% de humedad | 17.00
 | A jabonería
 Aceite de coquito | 33.40
-Sebo de res: |
+(*)Sebo de res: |
 | Al industrial
-Sebo de res | 20.00
+(*)Sebo de res | 20.00
+Importador o Mayorista Detallista Sebo de res 5% único (*) (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 16994 del 5 de mayo de 1986, se indica reformar el producto "sebo de res", al no coincidir dicha modificación se transcribió la misma) |
 UTILES ESCOLARES | |
 | PRECIOS MAXIMOS DE VENTA
 | De Productor a mayorista ¢ De mayorista a detallista ¢ | De detallista a consumidor ¢
