@@ -1,0 +1,1 @@
+Art. 3. Este Decreto se pondrá en conocimiento de la Cámara de Senadores cuando se instale y se imprimirá, circulará y publicará para su cumplimiento. –Dado en la ciudad de San José á los cuatro días del mes de Octubre de mil ochocientos cuarenta y cuatro. –José María Alfaro. –Al Ministro de Hacienda y Guerra encargado del Despacho de Relaciones y Gobernación.”

@@ -1,0 +1,1 @@
+Art. 2. las poblaciones por donde pase el camino general de un Puerto á otro, son obligadas á auxiliar proporcionalmente con sus fondos los trabajos que en aquel se impendan y toquen en el interior de las mismas.
