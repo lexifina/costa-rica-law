@@ -1,0 +1,1 @@
+Art 3°.- El dueño de hacienda o su mandador que, en la expresada Provincia o en cualquiera otra de la República, encuentre en su terreno a alguno con fusil, tiene facultad de quitar este y presentarlo a la Autoridad más inmediata para que disponga de él.
