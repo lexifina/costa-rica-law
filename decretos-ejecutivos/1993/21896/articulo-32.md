@@ -8,3 +8,4 @@ d) Analizar y valorar las pruebas recavadas durante la fase de instrucción y pr
 e) Capacitar en materia de régimen disciplinario a quienes funjan en el nivel regional como instructores.
 f) Otras que expresamente se le asignen o se deriven de la naturaleza de sus funciones.
 (Así reformado tácitamente por el artículo 1 ddel Decreto Ejecutivo N° 23489 de 11 de julio de 1994)
+(DEROGADO TACITAMENTE por el artículo 4 del Decreto Ejecutivo N° 30303 de 17 de abril del 2002)
