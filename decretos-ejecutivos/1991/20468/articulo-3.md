@@ -1,0 +1,1 @@
+Artículo 3°—Para efectos de la división territorial del país, la Reserva Indígena de Nairi-Awari es un caserío, constituido por los poblados de Awari, Jameycari, Nairi Tawa. Nairi y Barbilla (toloc tsacu).

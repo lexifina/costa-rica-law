@@ -1,0 +1,1 @@
+Artículo 2°—La Dirección Nacional de Desarrollo de la Comunidad (DINADECO), promocionará en un plazo no mayor de nueve meses, la creación de la Asociación de Desarrollo Integral de la Reserva Indígena Cabécar de Nairi-Awari.
