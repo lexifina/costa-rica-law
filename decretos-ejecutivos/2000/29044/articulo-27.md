@@ -1,0 +1,1 @@
+Artículo 27.—El Programa Nacional de Empleo contará con el apoyo técnico de las Oficinas Cantonales, Provinciales, y Regionales que el Ministerio de Trabajo y Seguridad Social tiene a nivel nacional, para efectos de fortalecer los procesos de seguimiento y control de los proyectos.

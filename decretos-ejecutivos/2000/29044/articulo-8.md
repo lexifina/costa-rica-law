@@ -1,0 +1,1 @@
+Artículo 8º—Las organizaciones comunales y personas jurídicas sin fines de lucro, firmarán un convenio con el Ministerio de Trabajo y Seguridad Social, donde se destacarán sus obligaciones y responsabilidades en cuanto a la ejecución, control y fiscalización del financiamiento otorgado a cada trabajador.

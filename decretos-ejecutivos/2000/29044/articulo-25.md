@@ -1,0 +1,1 @@
+Artículo 25.—En caso de comprobarse que un (a) beneficiario(a) ha falseado su información personal y laboral, será excluido inmediatamente del proyecto y se dará informe de lo acontecido a las autoridades judiciales correspondientes.

@@ -1,0 +1,1 @@
+Artículo 18.—Únicamente la persona que aparezca registrada como beneficiario o beneficiaria del programa podrá recibir el subsidio emitido a su nombre, con lo cual será controlado(a) por el sistema que establezca el Ministerio de Trabajo y Seguridad Social.

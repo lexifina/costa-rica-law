@@ -1,0 +1,9 @@
+Artículo 2º—Los objetivos generales del PRONAE son los siguientes:
+a) Promover la capacitación de personas trabajadoras desocupadas y subempleadas, con el fin de aumentar sus posibilidades de integración al mercado laboral, confiriendo prioridad en la formación de los recursos humanos en zonas de menor desarrollo relativo.
+b) Favorecer el desarrollo de proyectos socioproductivos que se conviertan en alternativas de generación de empleo permanente.
+c) Fomentar la capacitación para el empleo en empresas, asentadas en zonas de menor desarrollo relativo, según los alcances de las reformas inciso k) del artículo 20 e inciso a) del artículo 21 de la Ley de Régimen de Zonas Francas, Nº 7210 de 23 de noviembre de 1990, modificados por Ley Nº 7467 de 13 de diciembre de 1994.
+d) Apoyar y desarrollar aquellas iniciativas de generación de empleo que incorporen entre sus objetivos la conservación del medio ambiente y el desarrollo sostenible.
+e) Cooperar en el desarrollo de alternativas de empleo temporal y permanente para grupos que presentan problemas específicos de empleo, tales como: mujeres jefes de familia, jóvenes en riesgo social, movilizados forzosos, ex funcionarios públicos, adulto mayor. Destacando a la vez, el cumplimiento de los alcances de la Ley 7600- Igualdad de oportunidades para las personas con discapacidad, de fecha 29 de mayo de 1996 y su Reglamento.
+f) Brindar empleo temporal a personas desocupadas o subempleadas de bajas calificaciones, en la ejecución de obras de infraestructura comunal o de interés social.
+g) Promover la formación ocupacional mediante prácticas supervisadas, en experiencias con alto contenido formativo.
+h) Fomentar, la aplicación de género (hombres y mujeres), en una proporción equilibrada, con el propósito de promover la igualdad de oportunidades en los diferentes proyectos sujetos de atención.

@@ -1,0 +1,1 @@
+Artículo 15.—Los proyectos serán financiados por un máximo de tres meses, sin embargo podrá prorrogarse la ayuda dependiendo de la naturaleza del proyecto y siempre y cuando exista el criterio técnico de una institución u organización reconocida.

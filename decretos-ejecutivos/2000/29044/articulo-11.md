@@ -1,0 +1,1 @@
+Artículo 11.—No podrán ser beneficiarias del programa aquellas personas que posean ingresos económicos estables iguales o superiores al salario mínimo de su categoría ocupacional. Ni aquellas personas que estén incorporados a un régimen de pago de carácter gubernamental.

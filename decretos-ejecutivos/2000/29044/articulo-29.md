@@ -1,0 +1,1 @@
+Artículo 29.—La Dirección Nacional de Empleo, presentará al Ministro de Trabajo y Seguridad Social, informes trimestrales y anuales de cobertura geográfica, tipos de proyectos, costos de los mismos y beneficiarios.

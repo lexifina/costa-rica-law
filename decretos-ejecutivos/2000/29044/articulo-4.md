@@ -1,0 +1,9 @@
+Artículo 4º—Para los fines de este Reglamento se entiende por:
+a) Proyecto: una serie de tareas y actividades organizadas y ejecutadas en un periodo determinado, con el objetivo de producir un bien o servicio, orientado a contribuir y/o satisfacer necesidades de grupos humanos, en pro del mejoramiento de sus condiciones de vida. Se destacan dentro de éstos, los proyectos socioproductivos, de capacitación, de edificación de infraestructura básica, y para el desarrollo sostenible y conservación del medio ambiente.
+b) Desocupado(a) involuntario(a): Toda persona mayor de quince años que se encuentra sin empleo, ya sea porque lo busca por primera vez, porque lo ha perdido.
+c) Subempleo: Situación en que se encuentran las personas que laboran menos de 47 horas por semana y aquellas que aún laborando dicha cantidad de tiempo no obtienen un ingreso mensual equivalente al salario minimun minimorum de su clase ocupacional.
+d) Subsidio laboral: Asignación de dinero, girado a trabajadores y trabajadoras desempleados (as) y subempleados (as) que ejecutan un proyecto en alguna de las modalidades establecidas por este reglamento.
+e) Beneficiario: Toda aquella persona que cumpla con los requisitos que establece este Reglamento y que participe directamente en la ejecución de un proyecto en cualquiera de las modalidades establecidas
+f) Grupos con problemas específicos de empleo: Son aquellas personas que, como resultado de su condición social enfrentan problemas para incorporarse a un puesto de trabajo o a una actividad productiva por cuenta propia, tales como: madres adolescentes, jóvenes en riesgo social, adultos mayores, personas con discapacidad.
+g) Unidad Técnica: Unidad de Generación de Empleo, responsable del análisis y valoración de los proyectos.
+h) Unidad Financiera: Departamento Financiero del Ministerio de Trabajo y Seguridad Social, responsables del trámite de planilla y control financiero.

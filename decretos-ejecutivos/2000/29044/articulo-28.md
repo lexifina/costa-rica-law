@@ -1,0 +1,1 @@
+Artículo 28.—Caso de comprobarse anomalías en el manejo de los pagos, se elevará la denuncia respectiva ante los órganos superiores para su resolución definitiva y se suspenderá en forma inmediata el desembolso de los mismos.

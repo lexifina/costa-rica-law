@@ -1,0 +1,1 @@
+Artículo 22.—El Departamento Financiero del Ministerio de Trabajo y Seguridad Social, será el encargado de llevar el registro contable, de los saldos y recursos financieros disponibles. Establecer la coordinación tanto con el Ministerio de Hacienda como con el Banco Popular y de Desarrollo Comunal a efecto de llevar control sobre los pagos realizados, no retirados o cancelados.
