@@ -1,2 +1,1 @@
-Artículo 97.-Para toda clase de contratos y compras mayores de cinco mil colones (¢5,00.00), deberá procederse a licitación pública con mayor o menor plazo, según la importancia y naturaleza de la obra o de la compra.
-Los contratos o compras que se celebren sin esa formalidad serán absolutamente nulos.
+Artículo 97.- (Derogado por el artículo 295 del decreto ejecutivo N° 7576 del 23 de setiembre de 1977. Posteriormente por el artículo 111 de la Ley de Contratación Administrativa, N° 7494 del 2 de mayo de 1995, se vuelve a derogar este numeral.)
