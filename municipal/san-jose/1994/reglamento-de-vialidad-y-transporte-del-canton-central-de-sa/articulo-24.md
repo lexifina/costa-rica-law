@@ -1,0 +1,1 @@
+Artículo 24.—RETIRO. Será de dos metros, los cuales se contarán una vez que se haya establecido el derecho de vía correspondiente, excepto en las vías de la parte central de San José. donde no se exigirá el retiro (ver Artículo 40 de este Reglamento).

@@ -1,0 +1,1 @@
+Artículo 41.—En la zona del Centro Actual, el derecho de vía será de 14 m, y no se exigirá el retiro de la línea de construcción. Se exceptúan las vías de la red principal, descritos en el título II de este Reglamento.

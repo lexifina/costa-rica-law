@@ -1,0 +1,1 @@
+Artículo 35.—PROHIBICIONES. A lo largo de todo el circuito se restringen las paradas de todo tipo de vehículos, así como las entradas y salidas a parquees públicos nuevos y virajes izquierdos con exclusión de la intersección de estas vías con aquellas, que forman parte de la red principal. (Ver artículo 15).

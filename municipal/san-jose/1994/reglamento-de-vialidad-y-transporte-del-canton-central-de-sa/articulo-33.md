@@ -1,0 +1,1 @@
+Artículo 33.—LOCALIZACION ESPACIAL. Son los tramos de las avenidas: séptima y novena, octava y décima, y de las calles: diez y doce y novena y onceava, tal y como se indica en el Mapa de Vialidad y Transporte del P.D.U.

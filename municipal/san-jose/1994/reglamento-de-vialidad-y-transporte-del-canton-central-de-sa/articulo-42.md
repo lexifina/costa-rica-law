@@ -1,0 +1,1 @@
+Artículo 42. En la zona del Centro Futuro, el derecho de vía será de 14 m y se exigirá el retiro de la línea de construcción, de dos metros mínimo que servirán como antejardín. Se exceptúan las vías de la red principal, identificadas en el plano de Vialidad y reglamentadas por este Reglamento.
