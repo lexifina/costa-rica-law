@@ -1,0 +1,3 @@
+Art 2°.- Igualmente se renovarán los dos Consejeros Propietarios, y un Suplente que designa la Tabla del número 2° y fueron sorteados conforme al art° 66 de la misma Ley Fundamental, haciéndose su reposición por escrutinios de todas las electorales del Estado que deben remitirse antes del primero de Marzo próximo a la Secretaria de la Asamblea para en sus primeras Sesiones practique lo correspondiente en virtud de los artículos 37 y 38 de la Constitución.
+Comuniquese al Gobierno para su execución, publicación, y circulación= Dado en San José a los veinte y nueve días del mes de Diciembre de mil ochocientos veinte y seis.
+Por tanto: EXECUTESE. San José, Enerno dos de mil ochocientos veinte y siete.
