@@ -32,3 +32,4 @@ GPO-311 | Carbón, coque y briquetas | 27.01 27.02 27.03
 GPO-999 | Valores, incluyendo el oro para dentistas de la partida 541-09-06 | 71.07-A 72.01 B 71.07 26.01S | 71.07B 72.01C 71.00 B 72.01C
 | | |
 La identificación de acuerdo a la NAB de los productos de la lista anterior, se presenta únicamente con fines de conversión en tanto dicha nomenclatura no sea adaptada oficialmente por el Gobierno de la República.
+(NOTA: Mediante el artículo 1° del decreto ejecutivo N° 9510 del 30 de enero de 1979, se excluye de esta lista la siguiente mercancía: 031-03-01 Langosta, carne de langosta, colas de langosta. NAB 03-03)
