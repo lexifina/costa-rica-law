@@ -12,40 +12,19 @@ Considerando:
 7º—Que se hace necesario modificar el presupuesto de los ministerios, con el propósito de ajustarlo a sus necesidades presentes, para el mejor cumplimiento de sus objetivos y metas, así como para posibilitar su ejecución, sin que la modificación implique cambios en la programación presupuestaria. Por tanto,
 Decretan:
 Artículo 1º—Modifícase el artículo 2º de la Ley Nº 8341 del 9 de diciembre del 2002, "Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2003", en la forma que se indica a continuación
-REBAJAR:
-TÍTULO: 117
-MINISTERIO DE CULTURA, JUVENTUD Y DEPORTES
-PROGRAMA: 755-00
-INFORMACIÓN Y COMUNICACIÓN
-Registro Contable: 117-755-00
-CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
-G-O FF C-E CF I-P Concepto Monto ¢
-2 MATERIALES Y SUMINISTROS 20.000.000
-234 01 112 28 IMPRESOS Y OTROS
-(PARA EL PAGO DE
-SUSCRIPCIONES DE LAS
-HEMEROTECAS DE TODO
-EL PAÍS) 20.000.000
-Total Rebaja del Programa: 755-00 20.000.000
-Total Rebaja del Título: 117 20.000.000
-Total Rebajar 20.000.000
-AUMENTAR:
-TÍTULO: 117
-MINISTERIO DE CULTURA, JUVENTUD Y DEPORTES
-PROGRAMA: 755-00
-INFORMACIÓN Y COMUNICACIÓN
-Registro Contable: 117-755-00
-CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
-G-O FF C-E CF I-P Concepto Monto ¢
-2 MATERIALES Y SUMINISTROS 20.000.000
-234 01 112 28 IMPRESOS Y OTROS
-(PARA LA ADQUISICIÓN DE
-COLECCIONES BIBLIOGRÁFICAS
-Y DOCUMENTALES DEL SISTEMA
-NACIONAL DE BIBLIOTECAS Y DE
-SUSCRIPCIONES DE LAS
-HEMEROTECAS DE TODO EL PAÍS) 20.000.000
-Total Aumento del Programa: 755-00 20.000.000
-Total Aumento del Título: 117 20.000.000
-Total Aumentar 20.000.000
-(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N°31261 de 24 de junio de 2003, publicado en La Gaceta No. 137 de 17 de julio de 2003.)
+Donde dice:
+LISTA DE OBRAS DEL PROGRAMA: 329-00
+Lista de Obras Código Descripción
+OBRAS POR CONTRATO
+004 COLEGIO AMBIENTAL EL ROBLE SAN ANTONIO DE
+ALAJUELA
+005 ESC. JUAN MORA FERNÁNDEZ SANTA BÁRBARA DE
+HEREDIA
+Debe decir:
+LISTA DE OBRAS DEL PROGRAMA: 329-00
+OBRAS POR CONTRATO
+030 COLEGIO AMBIENTAL EL ROBLE SAN ANTONIO DE
+ALAJUELA
+031 ESC. JUAN MORA FERNÁNDEZ SANTA BÁRBARA DE
+HEREDIA
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 4° del Decreto Ejecutivo N°31304 de 16 de julio de 2003, publicado en La Gaceta No. 155 de 13 de agosto de 2003.)
