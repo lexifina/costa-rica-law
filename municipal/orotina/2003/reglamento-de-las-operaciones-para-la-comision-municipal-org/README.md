@@ -14,3 +14,4 @@ Reglamento de las operaciones para la Comisión Municipal Organizadora de la Fer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-04 | la propia norma |
+| 2 | 2004-02-07 | Reglamento municipal 149 (2004-02-07) |

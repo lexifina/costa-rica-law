@@ -7,7 +7,9 @@ e. Detalle de los recursos recibidos por la Comisión según reporte del Tesorer
 f. Detalle de todas las donaciones en dinero efectivo, materiales y servicios que reciba la comisión.
 g. Detalle de todos los gastos, previamente autorizados por la Comisión.
 h. Detalle de los contratos (Formulario Nº 2), suscritos entre el Presidente de la Comisión y los contratistas de orquestas, iluminación, mascaradas, juegos de pólvora, juegos de azar, juegos electromecánicos y otros; asimismo con los adjudicatarios de exclusividades para ventas de licores, refrescos, comidas, etc.
-i. Detalle de los activos que quedaron al finalizar la Feria Nacional de las Frutas, autorización para su remate, fijación de bases y lugar, fecha y hora para el evento.
-j. Detalle de la forma en que se desarrolló el remate de activos sobrantes y personas a quienes se les adjudicó, con indicación del monto total de dinero recaudado por este concepto.
+i. Detalle de los activos que quedaron al finalizar la Feria Nacional de las Frutas.
+j. Recomendaciones del uso que se le deben dar a los activos que quedaron al finalizar la Feria Nacional de las Frutas.
+(REFORMADO mediante Sesión Extraordinaria N°149 del 7 de febrero de 2004.)
 k. Correspondencia enviada y recibida.
-l. Detalle de la liquidación de ingresos y egresos de la Comisión, una vez finalizada la Feria Nacional de las Frutas. ll. Cualquier otra información no contenida en incisos anteriores, que se considere de importancia.
+l. Detalle de la liquidación de ingresos y egresos de la Comisión, una vez finalizada la Feria Nacional de las Frutas.
+ll. Cualquier otra información no contenida en incisos anteriores, que se considere de importancia.
