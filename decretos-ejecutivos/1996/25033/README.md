@@ -13,3 +13,4 @@ Interés Cultural Kike de Heredia y su Grupo en Festival Calle Ocho 96
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-01 | la propia norma |
+| 2 | 1996-04-01 | SINALEVI (sin norma nombrada) |
