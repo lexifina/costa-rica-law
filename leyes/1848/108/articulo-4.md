@@ -1,0 +1,1 @@
+Art. 4. Celebrado el remate de todas las ventas del partido del Guanacaste, el Intendente dispondrá que se haga reconocimiento de los licores que tenga existentes el actual proveedor; y el Estado le pagarà el valor de los que resulten al mismo precio que los dà el proveedor del partido de Alajuela.

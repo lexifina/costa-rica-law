@@ -1,0 +1,1 @@
+Art. 2. La base para las posturas de las ventas del Guanacaste y Bagaces serà la de veinte pesos mensuales para la primera: de quince para la segunda; y para las de los demas pueblos la de diez pesos mensuales.
