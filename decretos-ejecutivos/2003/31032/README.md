@@ -14,3 +14,4 @@ Reforma del Reglamento al Incentivo por Desarraigo Familiar para los funcionario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-14 | la propia norma |
+| 2 | 2003-03-19 | Decreto Ejecutivo 31125 (2003-03-19) |
