@@ -1,0 +1,1 @@
+Art. 10.-Bajo Ia más estrecha responsabilidad del Jefe Político Superior y Municipalidades, deberán éstas y aquél, nombrar los vocunadores establecidos en el articulo anterior y velar sobre su exacto desempeño.
