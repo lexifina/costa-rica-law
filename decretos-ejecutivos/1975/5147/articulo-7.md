@@ -1,7 +1,9 @@
 Artículo 7°-Las funciones del Consejo Agropecuario Nacional, son las siguientes :
 a) Asesorar al Poder Ejecutivo y a las demás instituciones interesadas en el desarrollo agropecuario en la fijación de políticas y objetivos y en la coordinación de programas y actividades;
-b) Determinar los lineamientos de la política agropecuaria nacional en concordancia con la política nacional de desarrollo;
-c) Aprobar, improbar o modificar las propuestas de políticas, los estudios, programas y proyectos presentados por la Oficina de Planificación Sectorial Agropecuaria;
+b) Formular los lineamientos de la política agropecuaria nacional en concordancia con la política nacional de desarrollo.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 5889 del 17 de marzo de 1976).
+c) Aprobar, improbar o modificar las propuestas de los estudios, programas y proyectos presentados por la Oficina de Planificación Sectorial Agropecuaria.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 5889 del 17 de marzo de 1976).
 d) Aprobar las normas y procedimientos de coordinación, programación y evaluación necesarias para la ejecución de los programas interinstitucionales ;
 e) Nombrar, cuando sean necesarios, grupos de trabajo o comisiones de alto nivel para el estudio de problemas específicos;
 f) Aprobar el proyecto de presupuesto para el Sistema de Planificación Sectorial y trazar las normas para su adecuada administración;

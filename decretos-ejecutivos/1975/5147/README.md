@@ -14,3 +14,4 @@ Constitución del Sistema de Planificación Sectorial Agropecuaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-08-28 | la propia norma |
+| 2 | 1976-03-17 | Decreto Ejecutivo 5889 (1976-03-17) |
