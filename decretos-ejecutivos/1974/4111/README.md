@@ -14,3 +14,4 @@ Reglamento Ley del Timbre del Colegio de Periodistas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-09-19 | la propia norma |
+| 2 | 1974-12-10 | Decreto Ejecutivo 4382 (1974-12-10) |

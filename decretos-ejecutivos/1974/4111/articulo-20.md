@@ -1,1 +1,2 @@
-Artículo 20.—Los gastos que se ocasionen con la licitación para la confección de los timbres, los pagará el Colegio de Periodistas de Costa Rica del producto del timbre. .
+Artículo 20.—De acuerdo con los preceptos de la ley respectiva, corresponde al Banco Central de Costa Rica tramitar las licitaciones para la confección de los timbres definitivos del Colegio de Periodistas. Los gastos. que se ocasionen por este concepto, los cargará el Banco Central a la cuenta del Colegio de Periodistas
+(Así reformado por el artículo único del Decreto Ejecutivo N° 4382 del 10 de diciembre de 1974)

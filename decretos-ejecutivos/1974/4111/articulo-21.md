@@ -1,1 +1,2 @@
-Artículo 21.—El Banco Central como recaudador, retendrá el cuarenta por ciento del producto del timbre hasta la cancelación total de los gastos que se ocasionen con su confección. El restante sesenta por ciento será depositado de inmediato en la cuenta bancaria especial del Colegio de Periodistas de Costa Rica, exclusiva para el depósito de las rentas obtenidas con el producto del timbre.
+Artículo 21.—El Banco Central de Costa Rica, en su calidad de recaudador, depositará periódicamente el producto de la venta del timbre en una cuenta corriente bancaria a nombre del Colegio de Periodistas.
+(Así reformado por el artículo único del Decreto Ejecutivo N° 4382 del 10 de diciembre de 1974)
