@@ -1,0 +1,2 @@
+Artículo 12.—Este Reglamento incluye el Formulario de Solicitud de Incorporación anexo.
+Se reforma el acuerdo 227-2002 de la sesión ordinaria 13-2002 del 29 de abril del 2002. Se aprueba la Solicitud de Incorporación, su actualización conjuntamente con el instructivo, los formatos de carta de experiencia profesional para empresas, para despachos, la carta de recomendación extendida por CPA. Acordado en firme, dada en San José, sesión extraordinaria N° 01-03 del 3 de mayo de 2003, acuerdo número 02- 03. Publiquese.

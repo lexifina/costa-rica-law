@@ -1,0 +1,1 @@
+Articulo 2°—Las solicitudes de incorporación deberán presentarse en las oficinas centrales del Colegio, en el horario establecido y en fórmula original mecanografiada, manualmente en mayúscula de imprenta o bien hacerse todo en computadora, completamente llenada y debidamente suscrita por el solicitante.
