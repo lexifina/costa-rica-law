@@ -14,3 +14,4 @@ Reglamento de Criterios de Selección de Sujetos, Mercancías y Operaciones Adua
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-01 | la propia norma |
+| 2 | 1999-03-01 | Ley 8 |
