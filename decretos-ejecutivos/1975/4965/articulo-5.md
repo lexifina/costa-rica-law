@@ -1,1 +1,1 @@
-Artículo 5°—La Dirección General Forestal se encargará de los trabajos de deslinde, vigilancia y estudios tendientes al aprovechamiento de los recursos naturales.
+ARTÍCULO 5°.-Queda prohibido todo fraccionamiento o parcelación cuyas parcelas resultantes sean menores de 10 hectáreas. Igualmente, no se permitirán vías de acceso permanentes o servidumbres con un ancho superior a los 7 metros.

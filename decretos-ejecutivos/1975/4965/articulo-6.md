@@ -1,1 +1,1 @@
-Artículo 6°—El aprovechamiento de cualquiera de los recursos naturales de la reserva sólo será permitido bajo normas técnicas que la Dirección General Forestal, aprobará en su oportunidad y según la zonificación que para tal efecto se establezca.
+ARTÍCULO 6°.-Este decreto rige a partir de su publicación.

@@ -1,1 +1,1 @@
-Artículo 3°—La Reserva Forestal que se declara en este decreto comprende un área de 13 700 hectáreas de las cuales 2 500 hectáreas se encuentran bajo la custodia de la Municipalidad de San Carlos, según la ley N° 4052 del 19 de enero de 1968. La demarcación de dicha reserva se encuentra en el plano confeccionado por la Dirección General Forestal.
+ARTÍCULO 3°.-Las instituciones que colaborarán en la administración de esta Zona Protectora destinarán las partidas necesarias en su presupuesto para asegurar el manejo y protección del área.

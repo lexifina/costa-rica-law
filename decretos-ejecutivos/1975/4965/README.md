@@ -15,3 +15,4 @@ Establece Reserva Forestal Juan Castro Blanco
 | --- | --- | --- |
 | 1 | 1975-07-09 | la propia norma |
 | 2 | 1975-10-28 | Decreto Ejecutivo 5387 (1975-10-28) |
+| 3 | 1988-09-12 | Decreto Ejecutivo 18763 (1988-09-12) |

@@ -1,1 +1,1 @@
-Artículo 4°—La Procuraduría General de la República, hará inscribir los terrenos del Estado de esta reserva en el Registro Público, como finca individualizada del Patrimonio Nacional.
+ARTICULO 4°.-Dentro de los limites del área descrito sólo se podrán realizar aquellas actividades, autorizadas por la Dirección General Forestal.
