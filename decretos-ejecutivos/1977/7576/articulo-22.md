@@ -1,5 +1,3 @@
-Artículo 22.- La contratación de obra pública no podrá promoverse
-conjuntamente con la elaboración de los planos o especificaciones,
-debiendo ser éstos en cuanto necesarios, suministrados de previo por la
-Administración, quien los obtendrá de sus propios servicios o por los
-medios legales establecidos.
+Artículo 22.- La contratación de obra pública no podrá promoverse conjuntamente con la elaboración de los planos o especificaciones, debiendo ser éstos, en cuanto necesarios, suministrados de previo por la Administración, quien los obtendrá de sus propios servicios o por los medios legales establecidos. Sin embargo, bajo circunstancias muy calificadas, podrá la Contraloría General autorizar concursos en los que se licite la concepción completa de la obra junto con la respectiva cotización; o bien, variantes o alternativas respecto a las especificaciones o planos suministrados por la Administración. En estos casos el cartel establecerá claramente tal modalidad a la vez que dejará constancia de estar autorizada por el órgano contralor.
+Asimismo requerirán autorización de la Contraloría General de la República, los suministros bajo la modalidad "llave en mano" que impliquen adquisición de tecnología.
+(Así reformado por el artículo 1º del Decreto Ejecutivo Nº 14475 de 20 de abril de 1983).

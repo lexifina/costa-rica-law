@@ -1,7 +1,1 @@
-Artículo 51.- Cuando la Administración, para el pago de bienes que
-requiera, ofrezca en el cartel la entrega de otros bienes de su
-propiedad, el oferente deberá cotizar atribuyendo un precio líquido tanto
-al bien que propone en venta como a aquél o a aquellos que recibiría en
-pago. Es facultativo para la Administración entregar al adjudicatario los
-bienes ofrecidos para el pago, o cubrir el precio atribuido a los mismos,
-en dinero.
+Artículo 51.- Cuando la Administración, para el pago de bienes que requiera, ofrezca en el cartel la entrega de otros bienes de su propiedad, el oferente deberá cotizar atribuyendo un precio líquido tanto al bien que propone en venta como a aquél o a aquellos que recibiría en pago. Es facultativo para la Administración entregar al adjudicatario los bienes ofrecidos para el pago, o cubrir el precio atribuido a los mismos, en dinero.

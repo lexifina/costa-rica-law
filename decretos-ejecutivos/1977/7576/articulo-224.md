@@ -1,3 +1,2 @@
-Artículo 224.- Podrán formalizarse en simple documento los demás
-contratos administrativos cuando ello resulte necesario para lograr una
-cabal comprensión o desarrollo de sus alcances y disposiciones.
+Artículo 224.- Los demás contratos administrativos deberán formalizarse en simple documento, salvo aquellos que por su origen, naturaleza o cuantía, no requieran del trámite de refrendo ante el Organo Contralor o la aprobación por un órgano del sujeto pasivo, según determinación que al efecto hará la Contraloría General de la República, conforme con lo dispuesto por el artículo 20 de su Ley Orgánica, Nº 7428 de 7 de setiembre de 1994.
+(Así reformado por el artículo 2º del Decreto Nº 23997 de 23 de enero de 1995).

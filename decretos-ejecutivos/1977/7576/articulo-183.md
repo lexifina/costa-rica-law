@@ -1,6 +1,1 @@
-Artículo 183.- En todo lo no previsto en este Capítulo se aplicará
-lo dispuesto en el Título III, en cuanto pertinente, teniendo presente
-que en este procedimiento el precio cede en importancia a los aspectos
-básicos del concurso y que sea cual fuere el monto de la adjudicación a
-partir de los límites del artículo 198, el recurso a interponer en contra
-de la misma es sólo el de apelación ante la Contraloría General.
+Artículo 183.- En todo lo no previsto en este Capítulo se aplicará lo dispuesto en el Título III, en cuanto pertinente, teniendo presente que en este procedimiento el precio cede en importancia a los aspectos básicos del concurso y que sea cual fuere el monto de la adjudicación a partir de los límites del artículo 198, el recurso a interponer en contra de la misma es sólo el de apelación ante la Contraloría General.

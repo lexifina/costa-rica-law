@@ -1,5 +1,1 @@
-Artículo 282.- Si el día de vencimiento de un término o plazo no
-fuere hábil ni habilitado, se entenderá prorrogado al día hábil inmediato
-siguiente, a la misma hora establecida, o, de no haber sido ésta
-señalada, hasta el término de las horas ordinarias de oficina de la
-respectiva entidad o dependencia.
+Artículo 282.- Si el día de vencimiento de un término o plazo no fuere hábil ni habilitado, se entenderá prorrogado al día hábil inmediato siguiente, a la misma hora establecida, o, de no haber sido ésta señalada, hasta el término de las horas ordinarias de oficina de la respectiva entidad o dependencia.

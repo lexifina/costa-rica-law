@@ -14,3 +14,4 @@ Reglamento de la Contratación Administrativa (Parcialmente Derogado) (NOTA: Ver
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-12-27 | la propia norma |
+| 2 | 1977-12-27 | SINALEVI (sin norma nombrada) |

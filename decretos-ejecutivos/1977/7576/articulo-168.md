@@ -1,5 +1,1 @@
-Artículo 168.- Los plazos para recibir ofertas se fijarán
-prudencialmente, conforme a la importancia y complejidad del negocio de
-tres a diez días para servicios o entregas de plaza y entre cinco y
-veinte días para contratos de obra, compra de bienes para importación u
-otros.
+Artículo 168.- Los plazos para recibir ofertas se fijarán prudencialmente, conforme a la importancia y complejidad del negocio de tres a diez días para servicios o entregas de plaza y entre cinco y veinte días para contratos de obra, compra de bienes para importación u otros.

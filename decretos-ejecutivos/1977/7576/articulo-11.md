@@ -1,4 +1,1 @@
-Artículo 11.- Respecto a las contrataciones de objeto continuado,
-sucesivo o periódico, los pagos a que se obligue la Administración se
-harán por período vencido, resultando nula cualquier estipulación en
-contrario.
+Artículo 11.- Respecto a las contrataciones de objeto continuado, sucesivo o periódico, los pagos a que se obligue la Administración se harán por período vencido, resultando nula cualquier estipulación en contrario.

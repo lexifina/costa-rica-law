@@ -1,6 +1,1 @@
-Artículo 216.- En todo caso de contratación directa puesta por la
-ley o autorizada por la Contraloría General, en razón de urgencia o de
-otras causas que no impidan la competencia, la Administración, en la
-medida en que ello sea factible conforme a las circunstancias, deberá
-efectuar consultas de precios o negociar en la forma que le resulte más
-beneficiosa.
+Artículo 216.- En todo caso de contratación directa puesta por la ley o autorizada por la Contraloría General, en razón de urgencia o de otras causas que no impidan la competencia, la Administración, en la medida en que ello sea factible conforme a las circunstancias, deberá efectuar consultas de precios o negociar en la forma que le resulte más beneficiosa.

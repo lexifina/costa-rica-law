@@ -1,9 +1,1 @@
-Artículo 172.-Respecto a la venta o arrendamiento de bienes a
-particulares en que de acuerdo con el monto estimado del negocio proceda
-la licitación privada, ésta se tramitará con la siguiente particularidad:
-invitando a cotizar a un número de interesados potenciales conocidos, no
-menos de cinco cuando los hubiere y simultáneamente se publicará un aviso
-en uno de los diarios de circulación nacional, informando del negocio que
-se promueve. El plazo concedido tanto en la invitación como en la
-publicación del aviso para presentar ofertas, no será inferior en ningún
-caso a cinco días hábiles.
+Artículo 172.-Respecto a la venta o arrendamiento de bienes a particulares en que de acuerdo con el monto estimado del negocio proceda la licitación privada, ésta se tramitará con la siguiente particularidad: invitando a cotizar a un número de interesados potenciales conocidos, no menos de cinco cuando los hubiere y simultáneamente se publicará un aviso en uno de los diarios de circulación nacional, informando del negocio que se promueve. El plazo concedido tanto en la invitación como en la publicación del aviso para presentar ofertas, no será inferior en ningún caso a cinco días hábiles.

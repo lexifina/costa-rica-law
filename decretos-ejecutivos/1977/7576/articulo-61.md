@@ -1,19 +1,5 @@
-Artículo 61.- Las garantías, tanto de participación como de
-cumplimiento, se rendirán, independientemente para cada negocio,
-mediante: depósito de bono de garantía del Instituto Nacional de Seguros
-o de uno de los bancos de la Nación; bonos del Estado o de sus
-instituciones; cheque certificado o de gerencia de un banco de la Nación;
-dinero efectivo mediante depósito de un banco también nacional,
-acompañando la boleta respectiva o, depósito directo en la administración
-interesada, de no existir en el lugar sucursal o agencia bancaria que
-preste ese servicio.
-La garantía podrá ser extendida, además, por otro banco o
-institución garante; en este puesto, deberá contar con el aval de un
-banco de la Nación.
-Si la cotización se hace en moneda extranjera, el importe de la
-garantía se calculará al tipo de cambio oficial de venta vigente al
-cierre del día anterior al de la apertura de las ofertas. Los bonos se
-recibirán por su valor nominal.
-El Estado no reconocerá intereses por las garantías depositadas a su
-favor; los que devenguen los títulos depositados en garantía, hasta el
-momento en que se ejecuten, pertenecen a su dueño o depositante.
+Artículo 61.- Las garantías, tanto de participación como de cumplimiento, se rendirán independientemente para cada negocio, mediante depósito de bono de garantía del Instituto Nacional de Seguros o de uno de los bancos del Sistema Bancario Nacional, bonos del Estado o de sus instituciones, cheque certificado o de gerencia de un banco del Sistema Bancario Nacional, certificados de depósito a plazo extendidos por el Sistema Bancario Nacional, dinero en efectivo, mediante depósito a la orden de un banco del mismo Sistema, presentando la boleta respectiva, depósito directo con la oferta o en la administración interesada de no facilitarse tal servicio bancario.
+Las garantías podrán además ser extendidas por otro banco o institución garante, cuando cuenten con el aval de un banco del Sistema Bancario Nacional o del Instituto Nacional de Seguros.
+Si la cotización se hace en moneda extranjera, la garantía de participación podrá ofrecerse en la misma moneda extranjera o bien en colones, según el tipo de cambio interbancario vigente al cierre del día anterior al de la apertura de las ofertas. Si se tratare de garantía de cumplimiento se tasará al tipo de cambio interbancario vigente al día de la adjudicación. Los bonos se recibirán por su valor de mercado y deberán acompañarse de una estimación de la Bolsa Nacional de Valores.
+No se reconocerán intereses por las garantías mantenidas en depósito por la administración licitante; sin embargo, los que devenguen los títulos hasta el momento en que se ejecuten, pertenecen a su legítimo dueño o a su depositante.
+(Así reformado por el artículo 1º de los Decretos Ejecutivos Nº 16411 de 10 de julio de 1985 y 16833 de 16 de enero de 1986).

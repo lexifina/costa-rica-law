@@ -1,4 +1,1 @@
-Artículo 88.- Salvo disposición en contrario del cartel, toda oferta
-de bienes, servicios u obras que se dirija a la Administración, deberá
-señalar por aparte los impuestos que la afectan; caso de omitirlos se
-presumen incluidos en el precio cotizado.
+Artículo 88.- Salvo disposición en contrario del cartel, toda oferta de bienes, servicios u obras que se dirija a la Administración, deberá señalar por aparte los impuestos que la afectan; caso de omitirlos se presumen incluidos en el precio cotizado.

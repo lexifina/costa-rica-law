@@ -1,9 +1,1 @@
-Artículo 208.- Los salvamentos, los artículos en desuso y los de
-desecho, cuyo valor en libros o según peritaje, no exceda de ¢ 1.000,00
-por unidad, podrán ser donados por las entidades públicas a otras
-entidades también públicas, a cooperativas o a organismos de bien social
-o de interés comunal. Bienes de la misma naturaleza de mayor precio,
-hasta ¢ 10.000,00 podrán ser vendidos a esas mismas entidades u
-organizaciones por la mitad de su valor. Respecto a negocios entre entes
-públicos, en casos no contemplados por el párrafo anterior, se estará a
-lo dispuesto por el artículo 202 del presente decreto.
+Artículo 208.- Los salvamentos, los artículos en desuso y los de desecho, cuyo valor en libros o según peritaje, no exceda de ¢ 1.000,00 por unidad, podrán ser donados por las entidades públicas a otras entidades también públicas, a cooperativas o a organismos de bien social o de interés comunal. Bienes de la misma naturaleza de mayor precio, hasta ¢ 10.000,00 podrán ser vendidos a esas mismas entidades u organizaciones por la mitad de su valor. Respecto a negocios entre entes públicos, en casos no contemplados por el párrafo anterior, se estará a lo dispuesto por el artículo 202 del presente decreto.

@@ -1,7 +1,1 @@
-Artículo 274.- La participación del servidor público inhibido
-conforme a lo dispuesto en el Título X del presente Reglamento en
-procedimientos de contratación o en contratos administrativos o la
-aceptación de dádivas o beneficios prohibidos conforme a lo dispuesto por
-los artículos 259, inciso d) y 260, inciso i), le hace pasible, sin
-perjuicio de las responsabilidades legales que le alcancen, de las
-sanciones a que se refiere el artículo precedente.
+Artículo 274.- La participación del servidor público inhibido conforme a lo dispuesto en el Título X del presente Reglamento en procedimientos de contratación o en contratos administrativos o la aceptación de dádivas o beneficios prohibidos conforme a lo dispuesto por los artículos 259, inciso d) y 260, inciso i), le hace pasible, sin perjuicio de las responsabilidades legales que le alcancen, de las sanciones a que se refiere el artículo precedente.

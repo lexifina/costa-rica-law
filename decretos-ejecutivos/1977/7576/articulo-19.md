@@ -1,5 +1,1 @@
-Artículo 19.- Cuando la estimación cuidadosamente efectuada por la
-Administración determine que el procedimiento a seguir es de licitación
-privada y dicha estimación sea ligeramente superada por las propuestas,
-de tal manera que el valor exceda los límites del procedimiento adoptado,
-ello no obstará para tener éste como correcto.
+Artículo 19.- Cuando la estimación cuidadosamente efectuada por la Administración determine que el procedimiento a seguir es de licitación privada y dicha estimación sea ligeramente superada por las propuestas, de tal manera que el valor exceda los límites del procedimiento adoptado, ello no obstará para tener éste como correcto.

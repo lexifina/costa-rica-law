@@ -1,7 +1,1 @@
-Artículo 14.- Respecto a los bienes adquiridos por la
-Administración, exentos de impuestos, deberá ésta, al ofrecerlos en venta
-por los medios legales establecidos, especificar, bajo su
-responsabilidad, si se entregarán libres de impuestos (cuando por la ley
-o por decisión de los órganos competentes ello proceda), o con la
-obligación del comprador de cubrir tales derechos previamente a la
-formalización del traspaso.
+Artículo 14.- Respecto a los bienes adquiridos por la Administración, exentos de impuestos, deberá ésta, al ofrecerlos en venta por los medios legales establecidos, especificar, bajo su responsabilidad, si se entregarán libres de impuestos (cuando por la ley o por decisión de los órganos competentes ello proceda), o con la obligación del comprador de cubrir tales derechos previamente a la formalización del traspaso.

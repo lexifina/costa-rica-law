@@ -1,5 +1,5 @@
-Artículo 84.- La propuesta debe establecer de manera inequívoca el
-término de su vigencia, no inferior a lo ordenado por el cartel y en
-ningún caso menor que la suma del plazo originalmente establecido para la
-apertura de las ofertas ( o de lo que falte para su vencimiento) más el
-de la adjudicación conforme a lo dispuesto en los artículos 45 y 120.
+Artículo 84.- La propuesta deberá establecer el término de vigencia, que no podrá ser inferior a lo ordenado por el cartel.
+A falta de indicación expresa en la oferta del término de su vigencia, se entenderá que la misma, por su sola presentación, se mantendrá vigente por el plazo mínimo exigido por el cartel o, en ausencia de éste, por el plazo previsto para dictar el acto de adjudicación, conforme con lo dispuesto por el artículo 120 de este Reglamento.
+En todo caso, si se produjere el decaimiento de la vigencia de la oferta, la Administración o la Contraloría General, según corresponda, tan pronto como adviertan tal circunstancia y siempre que no exista otro incumplimiento que determine su exclusión, prevendrán al interesado, aun después de dictado el acto de adjudicación, para que dentro del término de tres días hábiles manifieste por escrito si mantiene los términos de la oferta y por cuanto tiempo.
+Vencido el término de la prevención, sin que ésta haya sido atendida, la oferta se tendrá por caduca.
+(Así reformado por el artículo 2º del Decreto Nº 23997 de 23 de enero de 1995).

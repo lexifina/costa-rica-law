@@ -1,8 +1,1 @@
-Artículo 203.- Constituye sexta excepción a los procedimientos de
-concurso, la contratación directa con gobiernos o entidades de otros
-países o con organismos nacionales o extranjeros de utilidad pública o
-bien social, ajenos al espíritu de lucro. Para celebrar la contratación
-en forma directa con ellos la Administración tomará en cuenta que el
-precio o estimación de la contraprestación a cargo del ente público, no
-exceda los límites de lo razonable según los precios que rijan
-operaciones similares ya sea en el mercado nacional o internacional.
+Artículo 203.- Constituye sexta excepción a los procedimientos de concurso, la contratación directa con gobiernos o entidades de otros países o con organismos nacionales o extranjeros de utilidad pública o bien social, ajenos al espíritu de lucro. Para celebrar la contratación en forma directa con ellos la Administración tomará en cuenta que el precio o estimación de la contraprestación a cargo del ente público, no exceda los límites de lo razonable según los precios que rijan operaciones similares ya sea en el mercado nacional o internacional.

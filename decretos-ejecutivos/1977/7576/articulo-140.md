@@ -1,5 +1,1 @@
-Artículo 140.- En el caso de que se publique por parte de la
-Administración interesada una enmienda al aviso de adjudicación, que
-afecte aspectos esenciales, se abrirá un nuevo plazo para recurrir, sin
-perjuicio de continuar, en cuanto procedentes, los trámites de los
-recursos interpuestos.
+Artículo 140.- En el caso de que se publique por parte de la Administración interesada una enmienda al aviso de adjudicación, que afecte aspectos esenciales, se abrirá un nuevo plazo para recurrir, sin perjuicio de continuar, en cuanto procedentes, los trámites de los recursos interpuestos.

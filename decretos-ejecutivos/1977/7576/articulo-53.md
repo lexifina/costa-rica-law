@@ -1,4 +1,1 @@
-Artículo 53.- La Proveeduría Nacional será la responsable de la
-redacción final de los carteles elaborados para las licitaciones
-públicas, privadas o concursos de antecedentes de los Poderes y
-Organismos que de la misma se sirven.
+Artículo 53.- La Proveeduría Nacional será la responsable de la redacción final de los carteles elaborados para las licitaciones públicas, privadas o concursos de antecedentes de los Poderes y Organismos que de la misma se sirven.

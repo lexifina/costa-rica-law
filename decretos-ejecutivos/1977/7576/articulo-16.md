@@ -1,6 +1,2 @@
-Artículo 16.- La estimación del negocio para los efectos de
-determinar el procedimiento aplicable, se hará en cada caso, tomando en
-consideración tanto el importe del principal, como también aquellos
-cargos que necesariamente deban cubrirse al contratista, conforme a los
-términos del concurso, tales como impuestos, tasas, fletes, seguros,
-comisiones, etc.
+Artículo 16.- La determinación del procedimiento a seguir se hará con base en una estimación del negocio actualizada al momento de disponer la invitación a participar. Para estos efectos, deberá tomarse en consideración tanto el importe del principal como todas las formas de remuneración que deban cubrirse al contratista, incluyendo primas, derechos, comisiones, intereses, impuestos, tasas, fletes o seguros. Cuando las bases del concurso contengan cláusulas que permitan la cotización de bienes o servicios opcionales o alternativos, la base para la estimación será el valor total de la compra máxima permitida, incluyendo las posibles compras optativas.
+(Así reformado por el artículo 2º del Decreto Nº 23997 de 1º de enero de 1995).

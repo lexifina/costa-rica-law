@@ -1,8 +1,2 @@
-Artículo 17.- En las contrataciones de objeto continuo, sucesivo o
-periódico (dar o tomar bienes en arrendamiento, suministros y servicios
-repetidos, etc.), celebradas o reputadas por tiempo indefinido, se
-estimará el monto del contrato, para los efectos del artículo precedente,
-según el importe de los pagos a efectuar durante dos años. Igual
-estimación se hará respecto a contratos para la satisfacción de servicios
-permanentes, por períodos menores de dos años cuando se establezcan o
-existan prórrogas facultativas que puedan superar dicho límite.
+| Artículo 17.- En las contrataciones de objeto continuo, sucesivo o periódico, con o sin opción de compra, celebradas o reputadas por tiempo indefinido, se estimará el monto del contrato, para los efectos del artículo precedente, según el importe de los pagos a efectuar durante cuatro años. Igual estimación se hará respecto de contratos para la satisfacción de servicios permanentes, por períodos menores a cuatro años, cuando se establezcan o existan prórrogas facultativas que puedan superar dicho límite. En caso de duda sobre si el plazo es indeterminado o no, se aplicará el método de cálculo dispuesto por este artículo.
+(Así reformado por el artículo 2º del Decreto Nº 23997 de 1º de enero de 1995).

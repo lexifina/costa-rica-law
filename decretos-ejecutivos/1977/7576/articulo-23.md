@@ -1,8 +1,2 @@
-Artículo 23.- La venta de bonos u otros títulos negociables
-obtenidos a modo de subvención, en pago de obligaciones o para inversión,
-se hará a través de licitación pública o privada, según corresponda en
-razón de su monto o mediante remate o a través de la Bolsa de Valores.
-Quedan a salvo la venta de bonos emitidos por el propio ente interesado
-que se considerará actividad ordinaria para los fines correspondientes y
-la venta o retroventa por el valor facial de los bonos, que podrá también
-efectuarse en forma directa.
+Artículo 23.- La venta de bonos u otros títulos negociables obtenidos a modo de subvención, en pago de obligaciones o para inversión, se hará a través de licitación pública o privada, según corresponda en razón de su monto o mediante remate o a través de la Bolsa de Valores.
+Quedan a salvo la venta de bonos emitidos por el propio ente interesado que se considerará actividad ordinaria para los fines correspondientes y la venta o retroventa por el valor facial de los bonos, que podrá también efectuarse en forma directa.

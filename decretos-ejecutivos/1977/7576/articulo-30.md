@@ -1,16 +1,2 @@
-Artículo 30.- Los contratos son particulares que dos o más entes
-públicos realicen en su interés común, dentro o fuera de programas
-cooperativos, serán tramitados por uno solo de ellos, a cuyo cargo se
-depositarán los fondos correspondientes al otro u otros, con carácter de
-fideicomiso. Si parte o la totalidad del contrato fuere a crédito, los
-fondos se depositarán en su oportunidad a favor de aquél para la indicada
-finalidad. Dichos convenios, que se formalizarán por escrito, requieren
-de las autorizaciones internas y externas que procedan. En lo demás se
-estará a los trámites y requisitos ordinarios.
-Respecto a los programas cooperativos los entes públicos partícipes
-se asegurarán de que los contratos conexos que deban celebrar para el fin
-previsto (compra de parcelas para edificar o para desarrollar actividades
-industriales, agrícolas u otras; compras de equipos, materiales de
-construcción, etc.) se tramiten oportunamente con ajuste a las
-disposiciones de este Reglamento y de cualquier otra norma que los
-afecte.
+Artículo 30.- Los contratos son particulares que dos o más entes públicos realicen en su interés común, dentro o fuera de programas cooperativos, serán tramitados por uno solo de ellos, a cuyo cargo se depositarán los fondos correspondientes al otro u otros, con carácter de fideicomiso. Si parte o la totalidad del contrato fuere a crédito, los fondos se depositarán en su oportunidad a favor de aquél para la indicada finalidad. Dichos convenios, que se formalizarán por escrito, requieren de las autorizaciones internas y externas que procedan. En lo demás se estará a los trámites y requisitos ordinarios.
+Respecto a los programas cooperativos los entes públicos partícipes se asegurarán de que los contratos conexos que deban celebrar para el fin previsto (compra de parcelas para edificar o para desarrollar actividades industriales, agrícolas u otras; compras de equipos, materiales de construcción, etc.) se tramiten oportunamente con ajuste a las disposiciones de este Reglamento y de cualquier otra norma que los afecte.

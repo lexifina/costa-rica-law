@@ -1,17 +1,3 @@
-Artículo 213.- Salvo en los casos regulados por los artículos 198,
-199, 202, 203 y 204 de este Reglamento, será preciso requerir la
-autorización de la Contraloría General para todo tipo de contratación
-directa cuyo monto exceda, respecto a los tres grupos que regula el
-artículo 24, por su orden, de los siguientes límites: ¢ 30.000,00, ¢
-15.000,00 y ¢ 5.000,00. En cuanto a la enajenación de bienes inmuebles al
-amparo de la excepción prevista en el artículo 202, precisarán las
-autorizaciones dispuestas en el artículo 25.
-Las contrataciones directas por montos inferiores a los indicados
-pero superiores, por su orden, según el grupo, a ¢ 10.000,00, ¢ 5.000,00
-y ¢ 3.750,00, serán autorizadas y justificadas por la Proveeduría
-Nacional o por el propio ente contratante, según corresponda, con
-fundamento en las excepciones al procedimiento de concurso que regula
-este capítulo, dejando en el expediente la información respectiva.
-La correspondiente solicitud de autorización deberá dirigirse al
-organismo respectivo antes de adquirir cualquier tipo de compromiso en
-firme en el negocio que interesa.
+Artículo 213.- Salvo en los casos regulados por los artículos 198, 199, 202, 203 y 204 de este Reglamento, será preciso requerir la autorización de la Contraloría General para todo tipo de contratación directa cuyo monto exceda, respecto a los tres grupos que regula el artículo 24, por su orden, de los siguientes límites: ¢ 30.000,00, ¢ 15.000,00 y ¢ 5.000,00. En cuanto a la enajenación de bienes inmuebles al amparo de la excepción prevista en el artículo 202, precisarán las autorizaciones dispuestas en el artículo 25.
+Las contrataciones directas por montos inferiores a los indicados pero superiores, por su orden, según el grupo, a ¢ 10.000,00, ¢ 5.000,00 y ¢ 3.750,00, serán autorizadas y justificadas por la Proveeduría Nacional o por el propio ente contratante, según corresponda, con fundamento en las excepciones al procedimiento de concurso que regula este capítulo, dejando en el expediente la información respectiva.
+La correspondiente solicitud de autorización deberá dirigirse al organismo respectivo antes de adquirir cualquier tipo de compromiso en firme en el negocio que interesa.

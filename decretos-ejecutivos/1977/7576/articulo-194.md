@@ -1,8 +1,1 @@
-Artículo 194.- El derecho de uso de instalaciones o de lugares
-públicos para ser explotados por un particular con fines propagandísticos
-u otros, acordes con el ordenamiento jurídico, será conferido,
-igualmente, mediante licitación pública, por un período que no exceda de
-cinco años. Su revocación en cualquier momento por razones de interés
-público no acarrea a la Administración responsabilidad alguna, salvo la
-obligación de repetir cualquier suma recibida como adelanto del tiempo
-acordado al contratista.
+Artículo 194.- El derecho de uso de instalaciones o de lugares públicos para ser explotados por un particular con fines propagandísticos u otros, acordes con el ordenamiento jurídico, será conferido, igualmente, mediante licitación pública, por un período que no exceda de cinco años. Su revocación en cualquier momento por razones de interés público no acarrea a la Administración responsabilidad alguna, salvo la obligación de repetir cualquier suma recibida como adelanto del tiempo acordado al contratista.

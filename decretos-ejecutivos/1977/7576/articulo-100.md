@@ -1,9 +1,2 @@
-Artículo 100.- Las propuestas para suministros de equipo o
-maquinaria, en las que el oferente de la parte principal, o su
-distribuidor o representante en el país se obliguen a prestar el servicio
-de instalación, repuestos o mantenimiento, en cuanto requeridos por el
-cartel, deberán manifestar quién es el obligado respecto a cada extremo.
-A tales efectos, les son aplicables las prohibiciones del Capítulo Unico
-del Título X del presente Reglamento. De otro modo, deberán acreditar la
-existencia de pactos o convenios con terceras personas o empresas que
-puedan y se comprometan a brindarlos.
+Artículo 100.- Las propuestas para suministros de equipo o maquinaria, en las que el oferente de la parte principal, o su distribuidor o representante en el país se obliguen a prestar el servicio de instalación, repuestos o mantenimiento, en cuanto requeridos por el cartel, deberán manifestar quién es el obligado respecto a cada extremo.
+A tales efectos, les son aplicables las prohibiciones del Capítulo Único del Título X del presente Reglamento. De otro modo, deberán acreditar la existencia de pactos o convenios con terceras personas o empresas que puedan y se comprometan a brindarlos.

@@ -1,10 +1,3 @@
-Artículo 92.- La oferta deberá presentarse acompañada de sus anexos,
-de la garantía de participación y de las muestras requeridas, unos y
-otros complementos debidamente incorporados a la misma, o, en defecto, de
-resultar imposible o impráctica esa incorporación, claramente
-identificados con membretes, sellos o firma responsable del participante
-o indicación del número de la licitación a que se refieren (una sola
-firma, sello o identificación será suficiente para cada folleto o pieza
-impresa). De haber sido depositados previamente a la sumisión de la
-oferta, deberá acompañarse a ésta el recibo de la Oficina o Institución
-correspondiente, todo de acuerdo con lo que disponga el cartel.
+Artículo 92.- La oferta deberá acompañarse de sus anexos, de la garantía de participación y de las muestras requeridas, unos y otros complementos debidamente incorporados a la misma, o en su defecto de resultar imposible o impráctica esa incorporación, claramente identificados con membretes, sellos o firma responsable del participante o indicación del número de la licitación a que refiere (una sola firma, sello o identificación será suficiente para cada folleto o pieza impresa). De haber sido depositados previamente a la sumisión de la oferta deberá acompañarse a ésta el recibo de la oficina o institución correspondiente, todo de acuerdo con lo que disponga el cartel.
+Podrá la administración dispensar en el cartel la presentación de muestras respecto de artículos que haya adquirido en los últimos doce meses.
+(Así reformado por el artículo 1º de los Decretos Ejecutivos Nº 16411 de 10 de julio de 1985 y 16833 de 16 de enero de 1986).

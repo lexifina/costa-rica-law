@@ -1,5 +1,1 @@
-Artículo 277.- Cuando los funcionarios incursos en violación legal
-sean miembros de los Supremos Poderes del Estado, o de nombramiento del
-Consejo de Gobierno, la Contraloría General pondrá el hecho en
-conocimiento de la Asamblea Legislativa para lo que tenga a bien
-disponer.
+Artículo 277.- Cuando los funcionarios incursos en violación legal sean miembros de los Supremos Poderes del Estado, o de nombramiento del Consejo de Gobierno, la Contraloría General pondrá el hecho en conocimiento de la Asamblea Legislativa para lo que tenga a bien disponer.

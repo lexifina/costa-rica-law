@@ -1,4 +1,2 @@
-Artículo 103.- Las ofertas serán presentadas en sobre cerrado, con
-una leyenda en su exterior que indique, aparte de la dirección de la
-oficina que las recibe, el número y el nombre del objeto de la licitación
-pública a que se refiere.
+Artículo 103.- Las ofertas serán presentadas por escrito. Cuando la oferta se envíe por correo, se tomará en cuenta, para todos los efectos, la fecha de recepción.
+(Así reformado por el artículo 2º del Decreto Nº 23997 de 23 de enero de 1995).

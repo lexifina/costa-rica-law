@@ -1,5 +1,2 @@
-Artículo 104.- Las ofertas podrán ser presentadas directamente por
-el interesado, por un propio o dirigidas por correo certificado; en este
-último caso, sin embargo, su arribo al acto de apertura deberá ser
-oportuno, privando la fecha de recepción y no la de remisión para tales
-efectos.
+Artículo 104.- El cartel podrá contemplar la utilización de télex, telegrama, facsímil u otros medios electrónicos de transmisión de datos para la presentación de ofertas, previendo en el cartel un plazo de confirmación por escrito, cumpliendo en ambos casos con el suministro de la información solicitada en las condiciones del concurso. Se entenderá como medio electrónico de transmisión de datos, aquél a través del cual el receptor puede producir una copia impresa de la oferta en el lugar de destino de la transmisión. En ningún caso se aceptará la presentación de ofertas por la vía telefónica.
+(Así reformado por el artículo 2º del Decreto Nº 23997 de 23 de enero de 1995).

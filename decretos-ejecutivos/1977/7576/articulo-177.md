@@ -1,7 +1,1 @@
-Artículo 177.- Cuando no existan aranceles legales obligatorios para
-la remuneración de tales servicios los honorarios deberán cotizarse en
-sobre cerrado, independiente de la propuesta de antecedentes. Los sobres
-de honorarios no serán abiertos sino una vez establecido el orden de
-excelencia de las ofertas de antecedentes en acto formal convocado al
-efecto con señalamiento de la fecha respectiva, previa notificación a las
-firmas participantes.
+Artículo 177.- Cuando no existan aranceles legales obligatorios para la remuneración de tales servicios los honorarios deberán cotizarse en sobre cerrado, independiente de la propuesta de antecedentes. Los sobres de honorarios no serán abiertos sino una vez establecido el orden de excelencia de las ofertas de antecedentes en acto formal convocado al efecto con señalamiento de la fecha respectiva, previa notificación a las firmas participantes.

@@ -1,6 +1,1 @@
-Artículo 97.- Cuando el oferente concurra a través de apoderado o de
-representante de casas extranjeras, así debe hacerse constar, de manera
-que quede claramente establecida la identidad de la casa o persona que
-propone y la del agente a través de quien lo hace, con las citas de
-inscripción o de licencia respectivas, o el aporte de certificaciones o
-copias requeridas.
+Artículo 97.- Cuando el oferente concurra a través de apoderado o de representante de casas extranjeras, así debe hacerse constar, de manera que quede claramente establecida la identidad de la casa o persona que propone y la del agente a través de quien lo hace, con las citas de inscripción o de licencia respectivas, o el aporte de certificaciones o copias requeridas.

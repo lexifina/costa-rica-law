@@ -1,4 +1,2 @@
-Artículo 99.- El participante extranjero se entiende sometido a las
-leyes y a los Tribunales de Costa Rica, en todo lo concerniente a los
-trámites y ejecución del contrato, debiendo manifestarlo así en su
-propuesta.
+Artículo 99.- El participante extranjero se entiende sometido a las leyes y tribunales de Costa Rica, en todo lo concerniente a los trámites y ejecución del contrato, por el solo hecho de presentar su oferta a concurso y sin necesidad de manifestación expresa de su parte. Quedan a salvo exigencias en contrario del Código de Comercio y de cualquier otra norma de similar naturaleza.
+(Así reformado por el artículo 1º del Decreto Ejecutivo Nº 16411 de 10 de julio de 1985).

@@ -1,4 +1,1 @@
-Artículo 289.- Independientemente de los procedimientos establecidos
-en este Reglamento, la Contraloría podrá denegar autorizaciones o
-ratificación de actuaciones administrativas que a su juicio resulten
-altamente lesivas al interés público.
+Artículo 289.- Independientemente de los procedimientos establecidos en este Reglamento, la Contraloría podrá denegar autorizaciones o ratificación de actuaciones administrativas que a su juicio resulten altamente lesivas al interés público.

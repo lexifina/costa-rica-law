@@ -1,7 +1,1 @@
-Artículo 87.- Los precios que contenga la oferta deben ser firmes y
-definitivos e invariables, sin sujeción a condición alguna no autorizada
-por el cartel. Sin embargo, resulta admisible el establecimiento de
-descuentos, respecto a los precios unitarios cotizados, en razón del
-número progresivo de unidades o de renglones que se llegaren a adjudicar,
-dentro de los límites del pliego: así como fórmulas precisas de revisión
-de precios, conforme a lo dispuesto por el artículo 49.
+Artículo 87.- Los precios que contenga la oferta deben ser firmes y definitivos e invariables, sin sujeción a condición alguna no autorizada por el cartel. Sin embargo, resulta admisible el establecimiento de descuentos, respecto a los precios unitarios cotizados, en razón del número progresivo de unidades o de renglones que se llegaren a adjudicar, dentro de los límites del pliego: así como fórmulas precisas de revisión de precios, conforme a lo dispuesto por el artículo 49.

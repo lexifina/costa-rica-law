@@ -1,10 +1,1 @@
-Artículo 229.- La fiscalización será ejercida a través del órgano a
-quien la Administración haya encargado esa función y tendrá por objeto
-tomar oportunamente las providencias necesarias, para obligar al
-contratista al estricto cumplimiento de las condiciones, especificaciones
-y plazos establecidos; o, para proceder a la ejecución de las garantías
-correspondientes y a la resolución del contrato, cuando estas medidas se
-estimen pertinentes, tanto como para impartir instrucciones respecto a
-técnicas y oportunidad de tareas, o sustituciones que se impongan en
-cuanto a materiales o planillas, fundamentalmente en tratándose de
-contratos de obra.
+Artículo 229.- La fiscalización será ejercida a través del órgano a quien la Administración haya encargado esa función y tendrá por objeto tomar oportunamente las providencias necesarias, para obligar al contratista al estricto cumplimiento de las condiciones, especificaciones y plazos establecidos; o, para proceder a la ejecución de las garantías correspondientes y a la resolución del contrato, cuando estas medidas se estimen pertinentes, tanto como para impartir instrucciones respecto a técnicas y oportunidad de tareas, o sustituciones que se impongan en cuanto a materiales o planillas, fundamentalmente en tratándose de contratos de obra.

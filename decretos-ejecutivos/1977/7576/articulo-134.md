@@ -1,13 +1,3 @@
-Artículo 134.- Para determinar cuál de los dos indicados recursos es
-el que se debe interponer, se tomará en consideración el monto adjudicado
-respecto al renglón o a cada uno de los renglones cuya escogencia se
-pretende impugnar: Si el monto de cada uno de los correspondientes
-renglones alcanza los límites que hacen exigible, en cuanto al ente
-público interesado, la licitación pública, el recurso a interponer será
-el de apelación ante la Contraloría General; si no alcanza dichos
-límites, procederá el recurso de revocatoria ante la Administración que
-promovió el concurso. No obstante deberán sumarse, para los indicados
-efectos, los montos adjudicados de dos o más renglones, cuando fueren uno
-accesorios de los otros, o cuando no pueda concebirse su adjudicación
-repartida en diferentes interesados, por razones de orden técnico o
-jurídico.
+Artículo 134.- Para determinar cuál de los dos indicados recursos es el que se debe interponer, se tomará en consideración el monto adjudicado respecto al renglón o a cada uno de los renglones cuya escogencia se pretende impugnar: Si el monto de cada uno de los correspondientes renglones alcanza los límites que hacen exigible, en cuanto al ente público interesado, la licitación pública, el recurso a interponer será el de apelación ante la Contraloría General; si no alcanza dichos límites, procederá el recurso de revocatoria ante la Administración que promovió el concurso. No obstante deberán sumarse, para los indicados efectos, los montos adjudicados de dos o más renglones, cuando fueren uno accesorios de los otros, o cuando no pueda concebirse su adjudicación repartida en diferentes interesados, por razones de orden técnico o jurídico.
+Si el monto adjudicado se encuentra consignado en una moneda extranjera, su conversión a colones para determinar cuál de los recursos es el procedente, se hará utilizando el tipo de cambio interbancario de venta del dólar de los Estados Unidos de América con respecto al colón, que se encuentra vigente el día en que se publique en el Diario Oficial el respectivo aviso de adjudicación.
+(Párrafo final adicionado por el artículo 2º del Decreto Ejecutivo Nº 20909 de 20 de octubre de 1991).

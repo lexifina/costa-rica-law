@@ -1,12 +1,1 @@
-Artículo 290.- La Contraloría General vigilará el cumplimiento por
-parte de contratistas y funcionarios, de las disposiciones relativas a la
-contratación administrativa y conexas reguladas por la Ley de la
-Administración Financiera de la República y por el presente Reglamento;
-poniendo especial atención al ejercicio honesto y responsable de sus
-derechos y de sus atribuciones en la participación que tengan en los
-procedimientos establecidos y, no autorizará el pago de obligaciones
-contraídas con prescindencia de los trámites establecidos, salvo cuando
-mediando absoluta buena fe y no tratándose de vicios que entrañen nulidad
-absoluta, circunstancias excepcionales excusen, a su juicio, la omisión,
-en cuyo caso se procederá conforme a las reservas y limitaciones en el
-pago que establece el artículo 272.
+Artículo 290.- La Contraloría General vigilará el cumplimiento por parte de contratistas y funcionarios, de las disposiciones relativas a la contratación administrativa y conexas reguladas por la Ley de la Administración Financiera de la República y por el presente Reglamento; poniendo especial atención al ejercicio honesto y responsable de sus derechos y de sus atribuciones en la participación que tengan en los procedimientos establecidos y, no autorizará el pago de obligaciones contraídas con prescindencia de los trámites establecidos, salvo cuando mediando absoluta buena fe y no tratándose de vicios que entrañen nulidad absoluta, circunstancias excepcionales excusen, a su juicio, la omisión, en cuyo caso se procederá conforme a las reservas y limitaciones en el pago que establece el artículo 272.

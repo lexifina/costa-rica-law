@@ -1,6 +1,1 @@
-Artículo 114.- Cuando se solicite o así lo considere la
-Administración, se tomará nota de las observaciones que los concursantes
-o sus apoderados y los representantes de casas extranjeras participantes,
-hagan en relación con el contenido de las piezas que se examinen, sin que
-sea procedente resolver en el acto mismo las preguntas, objeciones y
-reclamaciones que dirijan.
+Artículo 114.- Cuando se solicite o así lo considere la Administración, se tomará nota de las observaciones que los concursantes o sus apoderados y los representantes de casas extranjeras participantes, hagan en relación con el contenido de las piezas que se examinen, sin que sea procedente resolver en el acto mismo las preguntas, objeciones y reclamaciones que dirijan.

@@ -1,4 +1,1 @@
-Artículo 212.- La Contraloría General podrá, bajo circunstancias muy
-calificadas, considerar la posibilidad de autorizar la contratación
-directa respecto a otros negocios o situaciones no contempladas en los
-artículos precedentes.
+Artículo 212.- La Contraloría General podrá, bajo circunstancias muy calificadas, considerar la posibilidad de autorizar la contratación directa respecto a otros negocios o situaciones no contempladas en los artículos precedentes.

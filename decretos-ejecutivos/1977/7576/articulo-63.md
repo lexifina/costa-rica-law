@@ -1,18 +1,5 @@
-Artículo 63.- Las garantías serán devueltas, salvo disposición en
-contrario del pliego de condiciones, de la siguiente manera:
-a) La de participación, dentro de los ocho días siguientes a la
-firmeza en vía administrativa del acto adjudicatorio.
-b) La de cumplimiento, dentro de los diez días siguientes a la
-fecha en que la Administración licitante tenga por definitivamente
-ejecutado el contrato a satisfacción.
-Sin embargo, la garantía de participación no se devolverá al
-adjudicatario, en tanto éste no rinda la garantía de cumplimiento y
-satisfaga las demás formalidades conducentes a asegurar el contrato
-dentro del plazo que a tal efecto haya dispuesto el cartel. En el
-silencio del cartel, el adjudicatario se entiende obligado a asegurar el
-contrato dentro de los 15 días hábiles posteriores a la firmeza del acto
-adjudicatorio.
-En vez de la sustitución de la garantía de participación por la
-garantía de cumplimiento, el adjudicatario podrá disponer completar el
-monto de ésta rindiendo una garantía adicional, sin perjuicio de la
-vigencia requerida.
+Artículo 63.- Las garantías serán devueltas, salvo disposición en contrario del pliego de condiciones, de la siguiente manera:
+a) La de participación, dentro de los ocho días siguientes a la firmeza en vía administrativa del acto adjudicatorio.
+b) La de cumplimiento, dentro de los diez días siguiente a la fecha en que la administración licitante tenga por definitivamente ejecutado el contrato a satisfacción. Queda prohibida la devolución parcial de la garantía de cumplimiento. Sin embargo, la garantía de participación no se devolverá al adjudicatario, en tanto éste no rinda la garantía de cumplimiento y satisfaga las demás formalidades conducentes a segurar el contrato dentro del plazo que a tal efecto haya dispuesto el cartel. En el silencio del cartel, el adjudicatario se entiende obligado a asegurar el contrato dentro de los 15 días hábiles posteriores a la firmeza del acto adjudicatorio.
+En vez de la sustitución de la garantía de participación por la garantía de cumplimiento, el adjudicatario podrá disponer completar el monto de ésta rindiendo una garantía adicional, sin perjuicio de la vigencia requerida.
+(Así reformado por el artículo 1º de los Decretos Ejecutivos Nº 16411 de 10 de julio de 1985 y 16833 de 16 de enero de 1986).

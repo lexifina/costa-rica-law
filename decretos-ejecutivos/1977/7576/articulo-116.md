@@ -1,5 +1,1 @@
-Artículo 116.- Finalmente, se calzará el acta con la firma de los
-funcionarios responsables de la Administración interesada y con la firma,
-seguida del número del documento de identificación, de los asistentes al
-acto que quisieren hacerlo. Quienes hubieren hecho observaciones para que
-consten en el acta, estarán en el deber de suscribirla.
+Artículo 116.- Finalmente, se calzará el acta con la firma de los funcionarios responsables de la Administración interesada y con la firma, seguida del número del documento de identificación, de los asistentes al acto que quisieren hacerlo. Quienes hubieren hecho observaciones para que consten en el acta, estarán en el deber de suscribirla.

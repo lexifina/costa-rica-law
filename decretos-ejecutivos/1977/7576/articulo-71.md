@@ -1,4 +1,1 @@
-Artículo 71.- La Administración no podrá perseguir al contratista
-por daños y perjuicios debidos a la ejecución tardía del contrato cuando
-se hubiere fijado cláusula penal en garantía de tal extremo, rigiendo, en
-consecuencia, sólo esta sanción.
+Artículo 71.- La Administración no podrá perseguir al contratista por daños y perjuicios debidos a la ejecución tardía del contrato cuando se hubiere fijado cláusula penal en garantía de tal extremo, rigiendo, en consecuencia, sólo esta sanción.

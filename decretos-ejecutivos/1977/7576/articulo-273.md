@@ -1,12 +1,3 @@
 CAPITULO SEGUNDO
 Sanciones a Servidores Públicos
-Artículo 273.- La Contraloría General procederá a formular las
-advertencias que estime pertinentes o a gestionar la suspensión o
-destitución del servidor público que incurra en irregularidades atinentes
-a la contratación administrativa, o que mediante dolo o inexcusable
-negligencia haya causado daño a la Administración o a las personas que
-contratan o suelen contratar con ésta, o puesto en peligro los intereses
-públicos. Los superiores jerárquicos quedan en la obligación de aplicar
-las sanciones administrativas así demandadas por el Organo Contralor,
-bajo pena de quedar involucrados en la falta, con las consecuencias
-legales correspondientes.
+Artículo 273.- La Contraloría General procederá a formular las advertencias que estime pertinentes o a gestionar la suspensión o destitución del servidor público que incurra en irregularidades atinentes a la contratación administrativa, o que mediante dolo o inexcusable negligencia haya causado daño a la Administración o a las personas que contratan o suelen contratar con ésta, o puesto en peligro los intereses públicos. Los superiores jerárquicos quedan en la obligación de aplicar las sanciones administrativas así demandadas por el Organo Contralor, bajo pena de quedar involucrados en la falta, con las consecuencias legales correspondientes.

@@ -1,11 +1,1 @@
-Artículo 205.- Como octava excepción a los procedimientos de
-concurso, se autoriza la contratación directa por razones de urgencia
-apremiante, entendida como tal aquélla imperiosa en razón de los
-intereses graves que envuelve y de especial manera la que se relaciona
-con situaciones de emergencia nacional o local, en donde la necesidad de
-contratación no ha podido ser prevista o financiada con la anticipación
-necesaria para seguir los trámites normales de contratación
-administrativa. Tal estado de emergencia puede la Contraloría General
-advertido y admitirlo a los indicados efectos, sin necesidad de
-declaratoria oficial por parte de la Asamblea Legislativa o del Poder
-Ejecutivo.
+Artículo 205.- Como octava excepción a los procedimientos de concurso, se autoriza la contratación directa por razones de urgencia apremiante, entendida como tal aquélla imperiosa en razón de los intereses graves que envuelve y de especial manera la que se relaciona con situaciones de emergencia nacional o local, en donde la necesidad de contratación no ha podido ser prevista o financiada con la anticipación necesaria para seguir los trámites normales de contratación administrativa. Tal estado de emergencia puede la Contraloría General advertido y admitirlo a los indicados efectos, sin necesidad de declaratoria oficial por parte de la Asamblea Legislativa o del Poder Ejecutivo.

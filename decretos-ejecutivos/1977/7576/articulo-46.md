@@ -1,19 +1,6 @@
-Artículo 46.- La modificación a las condiciones o especificaciones
-del cartel deberá publicarse igualmente en "La Gaceta"; sin embargo, el
-plazo mínimo entre la fecha de tal publicación y la de vencimiento para
-recibir ofertas queda fijado en quince días hábiles.
-Por modificaciones se entienden para esos efectos aquéllas que no
-cambien el objeto del negocio ni constituyan una variación fundamental en
-la concepción original de éste. Cuando mediante publicación posterior se
-sustituya dicho objeto o se introduzca una alteración importante en la
-concepción original del mismo, los plazos para recibir ofertas serán
-ampliados como mínimo en el número de días que disponen los incisos a),
-b) y c) del artículo anterior, según corresponda de acuerdo con la
-materia del negocio.
-Las prórrogas al plazo para recibir ofertas, así como también las
-modificaciones que se dispongan, para que sean procedentes, deben estar
-publicadas en "La Gaceta" a más tardar el día anterior al que previamente
-se hubiere señalado como límite para la presentación de aquéllas.
-Tanto las aclaraciones como las interpretaciones que se hagan al
-texto del cartel, constituyen parte de éste y deben ajustarse a las
-reglas anteriores.
+Artículo 46.- Las modificaciones a las condiciones o especificaciones del cartel deberán anunciarse en el Diario Oficial, con al menos ocho días hábiles de anticipación al vencimiento del plazo para recibir ofertas.
+Por modificaciones se entienden para estos efectos aquéllas que no cambien el objeto del negocio ni constituyan una variación fundamental en la concepción original de éste. Cuando mediante publicación posterior se sustituya dicho objeto o se introduzca una alteración importante en la concepción original del mismo, los plazos para recibir ofertas serán ampliados como mínimo en el número de días que disponen los incisos a) y b) del artículo anterior, según corresponda de acuerdo con la naturaleza del negocio.
+Las prórrogas al plazo para recibir ofertas deben estar publicadas en "La Gaceta" a más tardar el día anterior al que previamente se hubiere señalado como límite para la presentación de aquéllas.
+En los concursos con precalificación, la publicación podrá ser sustituida por la notificación directa a cada uno de los oferentes precalificados, salvo en el caso de la comunicación del acto de adjudicación.
+Tanto las aclaraciones como las interpretaciones que se hagan al texto del cartel constituyen parte de éste y deben ajustarse a las reglas anteriores, salvo que se trate de aclaraciones o interpretaciones irrelevantes, en cuyo caso bastará con que se comuniquen por escrito al solicitante y se incorporen al expediente. En este último caso, queda a juicio de la Administración anunciarlas en el Diario Oficial.
+(Así reformado por el artículo 2º del Decreto Nº 23997 de 1º de enero de 1995).

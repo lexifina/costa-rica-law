@@ -1,13 +1,4 @@
-Artículo 56.- La garantía de participación será determinada por la
-Administración interesada entre un 1% y un 5% del monto de la cotización,
-debiendo fijar el porcentaje en el respectivo cartel. En su fijación se
-tendrá presente, por una parte la necesidad de una amplia concurrencia, a
-cuyo efecto no se llevará a límites elevados cuando ello no fuere
-necesario y, por otra parte, la necesidad también de garantizar la
-seriedad de los oferentes, en cuanto su eventual negativa de formalizar o
-ejecutar el contrato o rendir la garantía de cumplimiento pudieran
-entrañar perjuicios a la Administración, por lo cual tampoco se bajará a
-niveles insuficientes.
-En el caso de cotización con alternativas de un mismo oferente la
-garantía de participación se calculará sobre la base del mayor valor
-opuesto.
+Artículo 56.- La garantía de participación será determinada por la Administración interesada entre un 1% y un 5% del monto de la cotización, debiendo fijar el porcentaje en el respectivo cartel. En su fijación se tendrá presente, por una parte la necesidad de una amplia concurrencia, a cuyo efecto no se llevará a límites elevados cuando ello no fuere necesario y, por otra parte, la necesidad también de garantizar la seriedad de los oferentes, en cuanto su eventual negativa de formalizar o ejecutar el contrato o rendir la garantía de cumplimiento pudieran entrañar perjuicios a la Administración, por lo cual tampoco se bajará a niveles insuficientes.
+En casos especiales en contratos de suministros a juicio de la Administración, cuando una licitación sea susceptible de adjudicación parcial, se pueden considerar ofertas cuyas garantías de participación hayan sido presentadas en monto inferior al que corresponda, siempre que cubra el monto a adjudicar.
+En el caso de cotización con alternativas de un mismo oferente, la garantía de participación se calculará sobre la base del mayor valor propuesto.
+(Así reformado por el artículo 1º de los Decretos Ejecutivos Nº 16411 de 10 de julio de 1985 y 16833 de 16 de enero de 1986).

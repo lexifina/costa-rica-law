@@ -1,13 +1,1 @@
-Artículo 122.- Al estudiar las propuestas, tanto para su admisión
-como para efectos de adjudicación, la Administración podrá solicitar a
-los oferentes las aclaraciones que estime pertinentes en relación con
-aspectos fundamentales de las mismas, las cuales se integrarán a las
-correspondientes ofertas en cuanto no impliquen en manera alguna
-modificación o alteración de las condiciones establecidas. Las
-aclaraciones que de propia iniciativa presenten a la Administración los
-participantes después de abiertas las ofertas, podrán igualmente ser
-tomadas en consideración, siempre bajo el mismo supuesto de que no las
-modifiquen o alteren. Las ventajas o mejoras sometidas por los
-interesados posteriormente a la apertura, obligarán a quien las formule,
-más no serán tomadas en cuenta en la comparación o ponderación de las
-propuestas sino que sólo surtirán efecto una vez firme la adjudicación.
+Artículo 122.- Al estudiar las propuestas, tanto para su admisión como para efectos de adjudicación, la Administración podrá solicitar a los oferentes las aclaraciones que estime pertinentes en relación con aspectos fundamentales de las mismas, las cuales se integrarán a las correspondientes ofertas en cuanto no impliquen en manera alguna modificación o alteración de las condiciones establecidas. Las aclaraciones que de propia iniciativa presenten a la Administración los participantes después de abiertas las ofertas, podrán igualmente ser tomadas en consideración, siempre bajo el mismo supuesto de que no las modifiquen o alteren. Las ventajas o mejoras sometidas por los interesados posteriormente a la apertura, obligarán a quien las formule, más no serán tomadas en cuenta en la comparación o ponderación de las propuestas sino que sólo surtirán efecto una vez firme la adjudicación.

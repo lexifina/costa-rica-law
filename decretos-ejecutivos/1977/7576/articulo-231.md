@@ -1,13 +1,3 @@
-Artículo 231.- Si el contrato en curso de ejecución se resuelve por
-culpa del contratista, la Administración podrá hacer efectiva la garantía
-de cumplimiento rendida, o bien exigir al contratista o al garante la
-provisión de nuevo contratista aceptable a quien cederá el contrato en
-las mismas condiciones originalmente pactadas, indemnizando
-prudencialmente a la Administración por la demora y perjuicios causados.
-Si ésta optare por ejecutar la garantía, podrá proseguir el contrato
-por administración, o, según corresponda, por los procedimientos de
-selección establecidos, o por contratación directa, de conformidad con la
-ley.
-Igual opción que la establecida en el párrafo anterior tendrá la
-Administración en el caso de rescisión o resolución del contrato no
-imputable al contratista.
+Artículo 231.- Si el contrato en curso de ejecución se resuelve por culpa del contratista, la Administración podrá hacer efectiva la garantía de cumplimiento rendida, o bien exigir al contratista o al garante la provisión de nuevo contratista aceptable a quien cederá el contrato en las mismas condiciones originalmente pactadas, indemnizando prudencialmente a la Administración por la demora y perjuicios causados.
+Si ésta optare por ejecutar la garantía, podrá proseguir el contrato por administración, o, según corresponda, por los procedimientos de selección establecidos, o por contratación directa, de conformidad con la ley.
+Igual opción que la establecida en el párrafo anterior tendrá la Administración en el caso de rescisión o resolución del contrato no imputable al contratista.

@@ -1,17 +1,2 @@
-Artículo 250.- Cuando las partes llegaren a un arreglo sobre daños y
-perjuicios o compensaciones al amparo de lo dispuesto por los artículos
-233, inciso b), 238 y 239, dicho convenio deberá contar con la aprobación
-de la Contraloría General, excepto en cuanto a las compensaciones
-reguladas por el decreto número 4428-MEIC de 14 de diciembre de 1974, que
-podrán ser objeto de control posterior por parte de dicho ente. Los
-convenios que requieran la aprobación de la Contraloría General, serán
-susceptibles de las modificaciones que ésta estime procedentes si a su
-juicio hubiere exceso o defecto en la estimación; contra su resolución no
-cabe más recurso que el de apelación ante el Tribunal Superior
-Contencioso Administrativo, el cual resolverá en única instancia
-teniéndose a la Contraloría General como parte para los efectos
-consiguientes.
-El contratista podrá optar por abandonar lo convenido, objetado o
-modificado y demandar directamente a la Administración ante el Juzgado
-Contencioso Administrativo, teniendo siempre a la Contraloría General
-como coadyuvante.
+Artículo 250.- Cuando las partes llegaren a un arreglo sobre daños y perjuicios o compensaciones al amparo de lo dispuesto por los artículos 233, inciso b), 238 y 239, dicho convenio deberá contar con la aprobación de la Contraloría General, excepto en cuanto a las compensaciones reguladas por el decreto número 4428-MEIC de 14 de diciembre de 1974, que podrán ser objeto de control posterior por parte de dicho ente. Los convenios que requieran la aprobación de la Contraloría General, serán susceptibles de las modificaciones que ésta estime procedentes si a su juicio hubiere exceso o defecto en la estimación; contra su resolución no cabe más recurso que el de apelación ante el Tribunal Superior Contencioso Administrativo, el cual resolverá en única instancia teniéndose a la Contraloría General como parte para los efectos consiguientes.
+El contratista podrá optar por abandonar lo convenido, objetado o modificado y demandar directamente a la Administración ante el Juzgado Contencioso Administrativo, teniendo siempre a la Contraloría General como coadyuvante.

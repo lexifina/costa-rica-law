@@ -1,5 +1,1 @@
-Artículo 255.- Queda prohibida en forma absoluta, la gestión en
-favor de un tercero por parte de los funcionarios y parientes de estos
-inhibidos para participar en contratos administrativos y en los
-procedimientos conducentes a su adjudicación. Queda a salvo la prestación
-de servicios profesionales, conforme a la ley.
+Artículo 255.- Queda prohibida en forma absoluta, la gestión en favor de un tercero por parte de los funcionarios y parientes de estos inhibidos para participar en contratos administrativos y en los procedimientos conducentes a su adjudicación. Queda a salvo la prestación de servicios profesionales, conforme a la ley.

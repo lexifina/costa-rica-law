@@ -1,6 +1,1 @@
-Artículo 167.- El pliego de condiciones del concurso privado, a
-diferencia del de la licitación pública, no tiene recurso de objeción o
-impugnación; cualquier queja sobre el particular se interpondrá
-directamente ante la Administración interesada o, según su importancia,
-posteriormente a través del recurso de revocatoria del acto de
-adjudicación.
+Artículo 167.- El pliego de condiciones del concurso privado, a diferencia del de la licitación pública, no tiene recurso de objeción o impugnación; cualquier queja sobre el particular se interpondrá directamente ante la Administración interesada o, según su importancia, posteriormente a través del recurso de revocatoria del acto de adjudicación.

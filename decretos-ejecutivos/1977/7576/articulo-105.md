@@ -1,7 +1,1 @@
-Artículo 105.- Una vez depositado el sobre que contiene la oferta,
-la misma no podrá ser retirada de la oficina receptora, entendiéndose que
-pertenece a la Administración promotora del concurso. Podrá ser
-modificada o dejada sin efecto mediante nota ulterior presentada en sobre
-cerrado antes del momento de apertura que satisfaga los demás requisitos
-formales pertinentes y que se refiera de manera clara a la oferta que
-enmienda.
+Artículo 105.- Una vez depositado el sobre que contiene la oferta, la misma no podrá ser retirada de la oficina receptora, entendiéndose que pertenece a la Administración promotora del concurso. Podrá ser modificada o dejada sin efecto mediante nota ulterior presentada en sobre cerrado antes del momento de apertura que satisfaga los demás requisitos formales pertinentes y que se refiera de manera clara a la oferta que enmienda.

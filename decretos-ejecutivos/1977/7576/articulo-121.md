@@ -1,23 +1,5 @@
-Artículo 121.- El acuerdo respectivo lo emitirá la Administración
-una vez que se hayan dado los siguientes pasos:
-1) El estudio de las ofertas en relación con las condiciones y
-especificaciones del cartel y con las normas jurídicas reguladoras de la
-materia, a efecto de declarar admitidas aquéllas que se ajusten a las
-mismas y de declarar fuera de concurso las que incumplan aspectos
-esenciales de las condiciones generales o bien requisitos de orden
-técnico del pliego así como las que violen normas jurídicas.
-Para ello la Administración podrá asesorarse con funcionarios o
-entidades oficiales o con técnicos o empresas particulares de competencia
-y seriedad reconocidas que no tengan interés alguno en el negocio.
-Dicho estudio comprenderá el examen de muestras, garantías,
-antecedentes, atestados, prospectos, etc., aparte del clausulado
-propiamente dicho de las ofertas en cuidadosa confrontación con las
-condiciones y especificaciones del cartel.
-2) El estudio de las ofertas admitidas al concurso, a efecto de
-establecer cuál o cuáles resultan más ventajosas para la Administración.
-Tal ventaja estará determinada no necesariamente por el factor
-primordial, que constituye el precio, sino que será posible establecerla
-en la conjugación de éste con la calidad, servicio, experiencia,
-características, condiciones, historial y demás elementos de juicio
-relevantes en el caso, que concurran en la oferta y en la persona del
-oferente.
+Artículo 121.- El acuerdo de adjudicación lo adoptará la autoridad competente una vez que se hayan cumplido los siguientes aspectos:
+a) Una vez finalizado el acto de apertura la Administración procederá sin demora al análisis de los aspectos formales de las ofertas, y concederá un plazo de cinco días hábiles para que se subsane cualquier defecto formal trascendente que advierta, de oficio o por señalamiento de alguno de los participantes o del propio interesado, siempre que con ello no se modifiquen o alteren las condiciones establecidas en la oferta. Si la prevención para subsanar no es atendida en tiempo, la Administración procederá a descalificar al oferente de que se trate, siempre que la naturaleza del defecto lo amerite.
+b) Asimismo, la Administración procederá al estudio y valoración de las ofertas en relación con las condiciones y especificaciones del cartel y con las normas reguladoras de la materia y declarará fuera del concurso las que incumplan aspectos esenciales de las bases de la licitación o sean sustancialmente disconformes con el ordenamiento jurídico.
+c) Posteriormente, la Administración procederá a la comparación de las ofertas, a efecto de establecer cuál o cuáles resultan más ventajosas. Tal ventaja no estará necesariamente determinada por el precio, que será un factor primordial, sino que se establecerá a partir de la conjugación del precio con la calidad, el servicio, la experiencia, características, condiciones, historial y demás elementos de juicio establecidos con precisión en el cartel.
+(Así reformado por el artículo 2º del Decreto Nº 23997 de 23 de enero de 1995).

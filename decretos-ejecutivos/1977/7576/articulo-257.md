@@ -1,5 +1,1 @@
-Artículo 257.- Las prohibiciones contempladas en el presente
-capítulo cesarán tres meses después de que desaparezca el impedimento
-respectivo, salvo la contemplada en el inciso b) del artículo 254, que
-cesa en el momento mismo en que se haga la inscripción en el Registro de
-la transformación de la sociedad.
+Artículo 257.- Las prohibiciones contempladas en el presente capítulo cesarán tres meses después de que desaparezca el impedimento respectivo, salvo la contemplada en el inciso b) del artículo 254, que cesa en el momento mismo en que se haga la inscripción en el Registro de la transformación de la sociedad.

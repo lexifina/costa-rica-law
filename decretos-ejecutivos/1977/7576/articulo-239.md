@@ -1,10 +1,4 @@
-Artículo 239.- Cuando el contrato pendiente de iniciarse o en curso
-de ejecución mas no interrumpido ni suspendido, se vea severamente
-afectado por medidas de la propia Administración contratante, generales o
-de orden económico que incidan directamente en la economía del mismo,
-aquélla asumirá hasta un 80% del daño emergente. Igual conducta se
-seguirá respecto al impacto de la economía del contrato de fenómenos
-económicos u otros, imprevisibles, que trastornen seriamente los
-presupuestos financieros del negocio, bajo los supuestos dichos. Los
-convenios respectivos serán autorizados por la Contraloría General
-conforme al artículo 250.
+Artículo 239.- Cuando el contrato, pendiente de iniciarse o en curso de ejecución, mas no interrumpido ni suspendido, se vea severamente afectado por medidas de la propia Administración contratante, generales o de orden económico que inciden directamente en la economía del mismo, aquélla asumirá el 100% del daño emergente y hasta el 50% de la utilidad prevista.
+Igual conducta se seguirá respecto al impacto en la economía del contrato de fenómenos económicos y otros, imprevisibles, que trastornen seriamente los presupuestos financieros del negocio bajo las condiciones dichas. A tales efectos las cotizaciones originalmente presentadas deberán contener el desglose de los rubros correspondientes, incluyendo la utilidad estimada.
+Los convenios respectivos requieren aprobación de la Contraloría General y estarán precedidos de estudios económicos sólidos, realizados por economistas o contadores públicos incorporados al respectivo colegio, en donde se evidencien las pérdidas sufridas. Mas de existir incumplimientos legales, negligencia u otras irregularidades que ilegitimen al contratista para tal beneficio, la Administración denegará el reconocimiento de los reajustes que se pretendan.
+(Así reformado por el Decreto Ejecutivo Nº 13019 de 2 de octubre de 1981).

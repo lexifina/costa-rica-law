@@ -1,6 +1,1 @@
-Artículo 144.- El acto de adjudicación de una licitación pública se
-tendrá por firme en vía administrativa, desde el momento en que vence el
-plazo que señala el artículo 138, sin que se haya presentado apelación
-ante la Contraloría General, o bien cuando interpuesto el recurso éste
-sea rechazado de plano, o declarado sin lugar con la correspondiente
-confirmación del acto adjudicatorio.
+Artículo 144.- El acto de adjudicación de una licitación pública se tendrá por firme en vía administrativa, desde el momento en que vence el plazo que señala el artículo 138, sin que se haya presentado apelación ante la Contraloría General, o bien cuando interpuesto el recurso éste sea rechazado de plano, o declarado sin lugar con la correspondiente confirmación del acto adjudicatorio.

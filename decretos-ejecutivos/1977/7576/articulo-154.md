@@ -1,6 +1,1 @@
-Artículo 154.- Lo resuelto por la Contraloría General será
-notificado directamente a los integrados que al efecto hubieren señalado
-casa u oficina en el Cantón Central de San José. En los demás casos, se
-notificará preferentemente mediante correo certificado o, mediante
-publicación de la parte dispositiva, a través del Diario Oficial cuando
-hubiere dificultad en precisar la dirección de la persona interesada.
+Artículo 154.- Lo resuelto por la Contraloría General será notificado directamente a los integrados que al efecto hubieren señalado casa u oficina en el Cantón Central de San José. En los demás casos, se notificará preferentemente mediante correo certificado o, mediante publicación de la parte dispositiva, a través del Diario Oficial cuando hubiere dificultad en precisar la dirección de la persona interesada.

@@ -1,9 +1,7 @@
-Artículo 62.- Las garantías de participación y de cumplimiento,
-salvo disposición en contrario del cartel, deberán tener una vigencia
-original de acuerdo con las siguientes reglas:
-a) La garantía de participación: un plazo mínimo de sesenta días a
-partir de la fecha máxima establecida para la adjudicación.
-b) La garantía de cumplimiento: un mínimo de sesenta días
-adicionales a la fecha probable de recepción definitiva del objeto del
-contrato, conforme a lo dispuesto en el inciso d) del artículo 247 del
-presente Reglamento.
+Artículo 62.- Las garantías de participación y de cumplimiento, salvo disposición en contrario del cartel, deberán tener una vigencia original de acuerdo con las siguientes reglas:
+a) La garantía de participación, un plazo mínimo de sesenta días naturales a partir de la fecha máxima establecida para dictar el acto de adjudicación; y
+b) La garantía de cumplimiento, un mínimo de sesenta días naturales adicionales a la fecha probable de recepción definitiva del objeto del contrato, conforme con lo dispuesto en el inciso d) del artículo 247 del presente Reglamento.
+En los casos en los que el oferente omita indicar el plazo de vigencia de su garantía de participación, rendida mediante cheque certificado o de gerencia, certificado de depósito a plazo o dinero en efectivo, ella se entenderá vigente por el plazo mínimo exigido por el cartel o, en ausencia de éste, por un término de sesenta días naturales contados a partir de la fecha máxima establecida para dictar el acto de adjudicación, de conformidad con lo dispuesto por el artículo 120 del presente Reglamento.
+En todo caso, si se produjere decaimiento de la vigencia de la garantía de participación, la Administración o la Contraloría General, según corresponda, tan pronto como adviertan tal circunstancia y siempre que no exista otro incumplimiento que determine la exclusión de la oferta, prevendrán al interesado, aún después de dictado el acto de adjudicación, para que dentro del término de tres días hábiles proceda a su restablecimiento.
+Vencido el término de la prevención, sin que ésta haya sido atendida, la garantía se tendrá por caduca.
+(Así reformado por el artículo 2º del Decreto Nº 23997 de 23 de enero de 1995).

@@ -1,5 +1,1 @@
-Artículo 123.- Para facilitar el estudio comparativo de las oferta,
-cuando fueren varios los participantes, el órgano competente
-confeccionará un cuadro de ajuste a las especificaciones del cartel y de
-sus características más importantes, el cual formará parte del expediente
-respectivo.
+Artículo 123.- Para facilitar el estudio comparativo de las oferta, cuando fueren varios los participantes, el órgano competente confeccionará un cuadro de ajuste a las especificaciones del cartel y de sus características más importantes, el cual formará parte del expediente respectivo.

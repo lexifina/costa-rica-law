@@ -1,7 +1,1 @@
-Artículo 128.- Para la adjudicación de una venta de bonos, recibidos
-con carácter de subvención o en pago de obligaciones, se tomarán en
-cuenta las cotizaciones que rijan en la Bolsa de Valores o, en su
-defecto, la información sobre cotizaciones en plaza, recogida del Banco
-Central o de medios bursátiles. En ningún caso se podrán vender dichos
-títulos por un monto que baje en más de un 3% de los niveles de venta
-comprobados en la forma expuesta.
+Artículo 128.- Para la adjudicación de una venta de bonos, recibidos con carácter de subvención o en pago de obligaciones, se tomarán en cuenta las cotizaciones que rijan en la Bolsa de Valores o, en su defecto, la información sobre cotizaciones en plaza, recogida del Banco Central o de medios bursátiles. En ningún caso se podrán vender dichos títulos por un monto que baje en más de un 3% de los niveles de venta comprobados en la forma expuesta.

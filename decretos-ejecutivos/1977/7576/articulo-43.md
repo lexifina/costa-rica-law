@@ -1,5 +1,1 @@
-Artículo 43.- Igualmente podrá publicarse avisos relativos a la
-licitación que se promueve, en diferentes órganos de publicidad del país
-y, aun extranjeros en cuanto interese. En tales casos el aviso deberá
-corresponder al objeto del cartel y referirse al Diario Oficial en el que
-aparece la publicación del pliego de condiciones.
+Artículo 43.- Igualmente podrá publicarse avisos relativos a la licitación que se promueve, en diferentes órganos de publicidad del país y, aun extranjeros en cuanto interese. En tales casos el aviso deberá corresponder al objeto del cartel y referirse al Diario Oficial en el que aparece la publicación del pliego de condiciones.

@@ -1,17 +1,1 @@
-Artículo 219.- Los entes administrativos que, en razón de
-circunstancias especiales se interesen en ello, podrán establecer tarifas
-o compensaciones económicas fijas para el pago de ciertas obras o
-servicios o por el suministro o arrendamiento de determinados bienes a
-fin de contratar, sobre esas bases, en forma abierta y equitativa con los
-contratistas o proveedores idóneos que manifiesten formalmente su interés
-luego de un llamado por la prensa. Entre otros, pueden entrar en esta
-autorización, el transporte de cargas determinadas; el servicio de
-tractor o maquinaria similar; determinados servicios de taxi; la
-construcción de viviendas sobre especificaciones y planos establecidos;
-el suministro de traviesas para ferrocarriles; el suministro de pupitres
-u otros muebles sobre modelo específico, etc. En este procedimiento, las
-tarifas o precios que se establezcan, tanto como sus modificaciones,
-deberán ser aprobados por la Contraloría General; y tales compensaciones
-económicas, se fijarán, según corresponda, por kilómetro/tonelada, por
-hora/horómetro, por kilómetro/persona, precio alzado, por unidad,
-etcétera.
+Artículo 219.- Los entes administrativos que, en razón de circunstancias especiales se interesen en ello, podrán establecer tarifas o compensaciones económicas fijas para el pago de ciertas obras o servicios o por el suministro o arrendamiento de determinados bienes a fin de contratar, sobre esas bases, en forma abierta y equitativa con los contratistas o proveedores idóneos que manifiesten formalmente su interés luego de un llamado por la prensa. Entre otros, pueden entrar en esta autorización, el transporte de cargas determinadas; el servicio de tractor o maquinaria similar; determinados servicios de taxi; la construcción de viviendas sobre especificaciones y planos establecidos; el suministro de traviesas para ferrocarriles; el suministro de pupitres u otros muebles sobre modelo específico, etc. En este procedimiento, las tarifas o precios que se establezcan, tanto como sus modificaciones, deberán ser aprobados por la Contraloría General; y tales compensaciones económicas, se fijarán, según corresponda, por kilómetro/tonelada, por hora/horómetro, por kilómetro/persona, precio alzado, por unidad, etcétera.

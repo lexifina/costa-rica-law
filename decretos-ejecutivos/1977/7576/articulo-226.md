@@ -1,10 +1,3 @@
-Artículo 226.- Las especies fiscales a cancelar respecto a los
-contratos administrativos, conforme a lo dispuesto en los artículos 240 y
-siguientes del Código Fiscal, se agregarán al documento en que se
-formalicen, de previo a su ejecución, salvo en cuanto a operaciones
-inscribirles en el Registro Público, en que corresponderá a éste
-determinar la forma, lugar y oportunidad de esa cancelación.
+Artículo 226.- Las especies fiscales a cancelar respecto a los contratos administrativos, conforme a lo dispuesto en los artículos 240 y siguientes del Código Fiscal, se agregarán al documento en que se formalicen, de previo a su ejecución, salvo en cuanto a operaciones inscribirles en el Registro Público, en que corresponderá a éste determinar la forma, lugar y oportunidad de esa cancelación.
 Todo contrato deberá ser objeto de estimación para efectos fiscales.
-Los contratos de cuantía inestimable o sea de un valor que no pueda
-ser determinado ni estimado al momento de su otorgamiento, se regirán por
-las disposiciones del artículo 273, inciso 1), del Código Fiscal.
+Los contratos de cuantía inestimable o sea de un valor que no pueda ser determinado ni estimado al momento de su otorgamiento, se regirán por las disposiciones del artículo 273, inciso 1), del Código Fiscal.

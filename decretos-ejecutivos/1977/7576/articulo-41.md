@@ -1,10 +1,4 @@
-Artículo 41.- Respecto a medidas, límites, plazos, tolerancia,
-porcentajes, etc. el cartel no podrá imponer restricciones que no sean
-técnicamente indispensables si con ello limita las posibilidades de
-concurrencia a eventuales participantes. Se usará en relación con esos
-aspectos la mayor amplitud que permita la clase de negocio de que se
-trate, en lo posible utilizándolos como punto de referencia. Asimismo,
-respecto a tipos conocidos de materiales, artefactos, o equipos, cuando
-se caracterizaren total o parcialmente mediante nomenclatura, simbología,
-signos distintivos no universales, o marca, ello se hará a manera de
-referencia; y aun cuando tal aclaración se omitiere, así se entenderá.
+Artículo 41.- El cartel no podrá imponer restricciones ni exigir el cumplimiento de requisitos que no sean técnicamente indispensables, si con ello limita las posibilidades de concurrencia a eventuales participantes.
+Las medidas, límites, plazos, tolerancia, porcentajes u otras disposiciones de similar naturaleza que deba contener el cartel, se establecerán con la mayor amplitud que permita la clase de negocio de que se trate, en lo posible utilizándolos como punto de referencia.
+Asimismo, respecto de los tipos conocidos de materiales, artefactos, o equipos cuando únicamente puedan ser caracterizados total o parcialmente mediante nomenclatura, simbología, signos distintivos no universales, o marca, ello se hará a manera de referencia; y aún cuando tal aclaración se omitiere, así se entenderá.
+(Así reformado por el artículo 2º del Decreto Nº 23997 de 1º de enero de 1995).

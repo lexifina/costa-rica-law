@@ -1,4 +1,2 @@
-Artículo 98.- En el caso de intervención de distribuidores
-exclusivos o autorizados para ofrecer en nombre del principal, o en el de
-representantes de casas extranjeras, será necesaria la presentación de
-las cotizaciones o precios de catálogo recibidas del principal.
+Artículo 98.- En el caso de intervención a nombre y por cuenta propia de distribuidores exclusivos, será necesaria la presentación a precios de catálogos o proformas recibidas del fabricante o exportador, según corresponda. Cuando se trata de intervención de representantes de casas extranjeras, éste se concretará a someter la oferta proveniente del principal. Todo sin perjuicio del sometimiento de ofertas conjuntas.
+(Así reformado por el artículo 1º del Decreto Ejecutivo Nº 16411 de 10 de julio de 1985).

@@ -1,11 +1,1 @@
-Artículo 204.- Como séptima excepción a los procedimientos de
-concurso, se permite la contratación directa con personas físicas o
-entidades privadas cuyo afán exclusivo sea en el caso concreto una
-evidente y tangible ayuda al Estado o a sus Instituciones, obviamente sin
-lucrar en la operación. Se entiende que se está en los supuestos
-anteriores, cuando el precio fijado por el particular a la Administración
-Pública resulte sustancialmente inferior a su valor real, normalmente
-menor en un tercio o más. El valor real será determinado por la Dirección
-General de la Tributación Directa en tratándose de la compra de
-inmuebles, o bien, según el peritaje ordenado por la propia
-Administración respecto a otro tipo de compras de bienes o servicios.
+Artículo 204.- Como séptima excepción a los procedimientos de concurso, se permite la contratación directa con personas físicas o entidades privadas cuyo afán exclusivo sea en el caso concreto una evidente y tangible ayuda al Estado o a sus Instituciones, obviamente sin lucrar en la operación. Se entiende que se está en los supuestos anteriores, cuando el precio fijado por el particular a la Administración Pública resulte sustancialmente inferior a su valor real, normalmente menor en un tercio o más. El valor real será determinado por la Dirección General de la Tributación Directa en tratándose de la compra de inmuebles, o bien, según el peritaje ordenado por la propia Administración respecto a otro tipo de compras de bienes o servicios.

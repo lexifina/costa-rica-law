@@ -1,5 +1,1 @@
-Artículo 164.- La Administración procurará invitar a la licitación
-privada que promueva a todos los interesados que figuren en la lista
-registro; sin embargo, cuando su número fuere tan crecido que ello
-resulte impráctico, tratará de dar oportunidades en futuras
-contrataciones a otros grupos de personas inscritas.
+Artículo 164.- La Administración procurará invitar a la licitación privada que promueva a todos los interesados que figuren en la lista registro; sin embargo, cuando su número fuere tan crecido que ello resulte impráctico, tratará de dar oportunidades en futuras contrataciones a otros grupos de personas inscritas.
