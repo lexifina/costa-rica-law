@@ -1,0 +1,7 @@
+CAPÍTULO II
+De la conformación del Registro de Elegibles
+Artículo 5°—Del procedimiento para conformar el Registro. E procedimiento de conformación del Registro de Elegibles que servirá de base para los procedimientos de excepción para contratar bienes y servicios, se tramitará de la siguiente forma:
+5.1. La dependencia interesada coordinará con la Dirección de Proveeduría del ICE, la apertura de un concurso para la creación de un Registro de Elegibles. La Proveeduría publicará en dos diarios de circulación nacional y en el Diario Oficial La Gaceta, la fecha, hora y lugar para la recepción de atestados para conformar el Registro de Elegibles de cada procedimiento en particular.
+5.2. Los interesados en formar parte de ese Registro podrán presentar sus atestados de inscripción en cualquier momento durante el año.
+5.3. En la invitación para conformar el respectivo Registro de Elegibles se indicará la actividad para la cual se requiere la apertura de dicho registro y el lugar en el cual se podrá retirar el Pliego para la presentación de atestados. Este Pliego de atestados contendrá los requisitos que deberán cumplir los oferentes para formar parte del Registro de Elegibles, además de estar inscritos en el Registro de Proveedores.
+5.4. Los oferentes ya inscritos en el Registro de Elegibles del ICE, no están obligados a inscribirse de nuevo en el mismo, pero sí están obligados a actualizar la información, así como a completarla para que cumpla con los requisitos indicados en el Artículo 2, k).

@@ -1,0 +1,1 @@
+Artículo 3°—Principios que regirán los procedimientos de excepción. Los procedimientos de excepción se regirán por lo principios establecidos en la Ley de Contratación Administrativa, en su Reglamento General y en el ordenamiento jurídico costarricense.
