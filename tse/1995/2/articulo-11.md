@@ -1,0 +1,1 @@
+Artículo 11.—Los investigadores del Archivo, estarán obligados a entregar una copia del trabajo realizado, cuando éste se considere a juicio del archivista un aporte significativo a cualquier campo de interés público; y ésta formará parte del patrimonio del Archivo Central del Tribunal Supremo de Elecciones.

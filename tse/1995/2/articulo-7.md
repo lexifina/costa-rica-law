@@ -1,0 +1,1 @@
+Artículo 7°—El proceso de ingreso de la documentación al Archivo Central del Tribunal Supremo de Elecciones, se llevará a cabo mediante una lista de remisión especificando con exactitud el contenido de la misma.

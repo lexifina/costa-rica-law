@@ -1,0 +1,1 @@
+Artículo 10.—Cualquier ciudadano interesado en consultar documentos deberá hacer su solicitud por escrito ante él Secretario del Tribunal Supremo de Elecciones, indicando con toda claridad el objetivo de su investigación.

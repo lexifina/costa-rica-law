@@ -1,0 +1,1 @@
+Artículo 14.— La conservación y la custodia de los documentos de valor permanente y la eliminación de aquellos que lo han perdido, se realizará de acuerdo con lo dispuesto en la Ley del Sistema Nacional de Archivos N° 7202 de 24 de octubre de 1990 y su Reglamento. En todo caso deberá autorizarse previamente por el Tribunal Supremo de Elecciones.
