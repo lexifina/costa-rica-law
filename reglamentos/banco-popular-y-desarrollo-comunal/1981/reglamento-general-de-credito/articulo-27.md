@@ -1,0 +1,2 @@
+Articulo 27.—Obligaciones de los Deudores
+Todo deudor queda obligado a mantener al día los impuestos, pólizas y de- más obligaciones que afecten a los bienes dados en garantía. Igualmente deberá comprometerse a permitir la inspección de los mismos a los funcionarios que designe el Banco, mientras el préstamo no haya sido cancelado en su totalidad, debiendo mantenerlos en buen estaco de uso y conservación. El deudor no podrá gravar, vender, traspasar o alquilar los bienes sin previa autorización del Banco, so pena de que éste pueda tener por vencida la operación.

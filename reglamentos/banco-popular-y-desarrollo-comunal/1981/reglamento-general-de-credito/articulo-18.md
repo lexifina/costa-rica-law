@@ -1,0 +1,2 @@
+Artículo 18.—Capacidad de Pago del Solicitante
+Para efectos de determinar la capacidad de pago, se establece que las cuotas no deberán sobrepasar el 40% del ingreso mensual del solicitante, excepto que se trate de: a) Préstamos para vivienda y para solucionar emergencia de carácter social en cuyo caso podrá elevarse hasta un 40% del ingreso familiar; b) Préstamos para trabajo, en cuyo caso se aplicará lo que establece el articulo 24 de este reglamento.

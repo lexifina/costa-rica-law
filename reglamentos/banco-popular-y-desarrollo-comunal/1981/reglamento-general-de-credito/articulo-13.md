@@ -1,0 +1,2 @@
+Artículo 13.—Caducidad de los Préstamos
+Transcurridos dos meses de notificada la aprobación del préstamo sin que el interesado haya comparecido a formalizarlo, se tendrá por caduco, a menos que las razones que hayan impedido la formalización sean atribuidas al Banco o ajenas a la voluntad del interesado a juicio del Banco, siempre y cuando estas últimas sean advertidas al Banco ocho días hábiles después de producidas.

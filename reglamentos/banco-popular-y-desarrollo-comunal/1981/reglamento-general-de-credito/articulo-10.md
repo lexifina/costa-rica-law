@@ -1,0 +1,3 @@
+Articulo 10.—Registro de Deudores y Fiadores
+A efectos de determinar el grado de endeudamiento, se llevará un registro de todos lo- fiadores del Banco y una clasificación por el cumplimiento de las obligaciones que éstos tengan o hayan tenido. La responsabilidad para las fianzas se establecerá una vez fijadas las responsabilidades de las otras garantías.
+Para efectos de novación de deudor, calificarán aquellas personas que reúnan requisitos para ser sujetos de crédito de este Banco, dentro de las líneas correspondientes, todo a criterio del nivel resolutivo. Además el Banco se reserva el derecho de denegar una solicitud de novación de deudor cuando a su juicio existan fines abiertamente lucrativo o especulativos en la transferencia.

@@ -1,0 +1,2 @@
+Artículo 14.—Cancelación de Préstamos Anteriores
+En cada línea de crédito no se otorgará más de un préstamo, a menos que con el nuevo se cancele el anterior. En todos los casos será necesario que el crédito anterior haya sido amortizado por lo menos en un 25% en tiempo y monto .excepto en las líneas de trabajo y vivienda, que se rigen por normas especiales, o en los casos en que la Junta Directiva lo estime pertinente, lo cual podrá delegar en la Comisión de Crédito.
