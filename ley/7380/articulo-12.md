@@ -1,1 +1,0 @@
-Artículo 12.—El Consejo Nacional de Guarderías Infantiles y Hogares Escuela será el órgano encargado de fiscalizar, por medio de la Dirección Nacional de Seguridad Social, supervisar y coordinar, el funcionamiento de todas las guarderías infantiles y de los hogares escuela, públicos, privados o mixtos.

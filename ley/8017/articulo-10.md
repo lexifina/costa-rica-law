@@ -1,0 +1,1 @@
+Artículo 10.—Quórum y votaciones. El Consejo sesionará válidamente con la presencia de cinco miembros. Las decisiones se tomarán por mayoría simple de los presentes. Los miembros del Consejo de Atención Integral no devengarán dieta alguna.

@@ -1,0 +1,1 @@
+Artículo 19.—Acreditación. La Secretaría Ejecutiva contará con un sistema de evaluación de los niveles de calidad por encima de los requisitos mínimos, con el propósito de incentivar el mejoramiento en la calidad de la atención.

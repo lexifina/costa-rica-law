@@ -1,0 +1,1 @@
+Artículo 18.—Planta Física. El edificio o lugar donde opere cualquier modalidad de atención integral, deberá contar con la aprobación que el Consejo exija para esos efectos, de acuerdo con los criterios definidos en los reglamentos correspondientes.
