@@ -1,0 +1,1 @@
+Artículo 6º—Corresponderá al MINAE y de esta manera instruir al FONAFIFO para que defina los criterios para priorizar el pago de los servicios ambientales en las áreas donde por el riesgo a que se generan impactos negativos en el ambiente y la biodiversidad deban de dedicarse a la protección del suelo y de los recursos hídricos.

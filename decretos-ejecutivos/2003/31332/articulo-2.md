@@ -1,0 +1,1 @@
+Artículo 2º—Para efectos administrativos, las solicitudes presentadas a la fecha de publicación del presente Decreto Ejecutivo, mantendrán el mismo orden de presentación, para su atención después de la restricción.
