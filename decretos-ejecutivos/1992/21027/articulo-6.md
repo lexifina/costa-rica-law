@@ -1,0 +1,2 @@
+Artículo 6°.- El nombramiento de los representantes de las Instituciones que conforman la Comisión, a excepción de los representantes de! Ministerio de Salud, tendrá una vigencia de dos años a partir de la presente publicación.
+Este nombramiento debe de ser comunicado treinta días hábiles antes de la finalización del período respectivo. Si dicha comunicación no se efectuara en el plazo estipulado, el miembro de esa Institución continuará en su cargo hasta que se decida lo contrario.

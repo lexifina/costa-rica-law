@@ -1,0 +1,1 @@
+Artículo 7°.- Si un representante de las instituciones tuviera en un año dos ausencias injustificadas, en forma consecutiva, o cuatro ausencias injustificadas alternas, se le solicitará a las Instituciones respectivas la designación de un nuevo representante.
