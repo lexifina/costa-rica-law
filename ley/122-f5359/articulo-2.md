@@ -1,0 +1,1 @@
+Art 2°.- En cada uno de ellos se dirá una misa solemne de gracias al TODO PODEROSO, y ésta se tendrá por carga de curato; a más de esto habrá función de plaza, teatro, u otra diversión pública, la que será costeado por los Propios respectivos, invirtiéndose en esto la cantidad que designe el Reglamento de Municipalidades que habrá de darse.
