@@ -1,0 +1,4 @@
+ARTÍCULO 1°.-Refórmese el artículo 24 del Reglamento Sobre Higiene Industrial, emitido mediante decreto ejecutivo N° 11492-SPP de 22 de abril de 1980, para que en lo sucesivo se lea así:
+"Artículo 24.-Toda persona física o jurídica que desee instalar una industria deber n obtener la correspondiente autorización tanto para su instalación como para su posterior funcionamiento, así como para modificar en cualquier forma la actividad original que les fue aprobada.
+El permiso sanitario de funcionamiento que se extienda a un establecimiento industrial para su debida operación, tendrá una vigencia de una año, a su vencimiento el o los interesados deber n gestionar su renovación ante la autoridad de salud correspondiente."
+(NOTA DE SINALEVI: El artículo N° 75 del decreto ejecutivo N° 34728 del 28 de mayo de 2008, reformará este numeral a partir del 09 de octubre de 2008, por lo que la respectiva modificación será introducida a partir de la fecha indicada.)
