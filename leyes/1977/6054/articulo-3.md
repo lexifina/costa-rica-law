@@ -1,2 +1,2 @@
-Artículo 3º.- El Ministerio de Economía y Comercio tendrá a su cargo la formulación, el fomento, la coordinación y la supervisión de la ejecución de las políticas industriales, comerciales y de integración, del turismo, de minería y de hidrocarburos.
-(Modificada la denominación del Ministerio, que pasó de Ministerio de Economía, Industria y Comercio a Ministerio de Economía y Comercio, por el artículo 7 de la Ley N° 6218 de 14 de setiembre de 1982, Ley de Restructuración del Poder Ejecutivo)
+Artículo 3º.- El Ministerio de Economía, Industria y Comercio tendrá a su cargo la formulación, el fomento, la coordinación y la supervisión de la ejecución de las políticas industriales, comerciales y de integración, del turismo, de minería y de hidrocarburos.
+(TACITAMENTE REFORMADO por La Ley Nº 7152 de 5 de junio de 1990, artículos 14 y 15, al restablecer su competencia sobre el sector industria, y crear nuevamente el MEIC).
