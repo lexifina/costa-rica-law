@@ -1,0 +1,1 @@
+Artículo 34.-Los plazos para recibir ofertas se fijarán, según la complejidad e importancia del negocio de tres a diez días para servicios o entregas de plazo, entre cinco y veinte días para contratos de obra, compra de bienes, para importación u otros (artículo 168 del Reglamento de la Contratación Administrativa).

@@ -1,0 +1,1 @@
+Articulo 11.-La Proveeduría hará del conocimiento de los proveedores externos, la necesidad de presentar toda factura pendiente de cancelación, a más tardar el último día laboral del mes de diciembre de cada año.

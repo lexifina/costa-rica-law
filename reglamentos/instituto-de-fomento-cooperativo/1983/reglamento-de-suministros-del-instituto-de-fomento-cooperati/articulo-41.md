@@ -1,0 +1,1 @@
+Artículo 41.-El acto de adjudicación o declaratoria desierta será notificado en forma escrita por la Proveeduría a los concursantes, dentro de los quince días hábiles siguientes de tomado el acuerdo (artículo 170 del Reglamento de la Contratación Administrativa).

@@ -1,0 +1,1 @@
+Artículo 5°-Es responsabilidad de la Proveeduría la vigilancia y control administrativo de todos los aspectos concernientes a las diferentes contrataciones que se realizan, incluyendo la verificación de la existencia de la partida presupuestaria y el mantenimiento de registros y expedientes propios.

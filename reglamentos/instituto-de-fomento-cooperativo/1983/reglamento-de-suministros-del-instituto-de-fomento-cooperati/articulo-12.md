@@ -1,0 +1,1 @@
+Articulo 12.-La reincidencia comprobada en errores de trámite para la compra de bienes y contratación de servicios, dará base para que la Auditoria solicite a la Dirección Ejecutiva ordenar una investigación de estas anomalías para sentar las responsabilidades que correspondan y aplicar las sanciones del caso.

@@ -1,0 +1,1 @@
+Artículo 39.-La Proveeduría con la colaboración del jefe del departamento interesado, procederá a estudiar detenidamente las ofertas y confeccionará para la Dirección Ejecutiva la recomendación que proceda.

@@ -1,0 +1,3 @@
+CAPITULO CUARTO
+De las responsabilidades inherentes a los funcionarios encargados de trámites de contratación administrativa
+Artículo 9°-Ningún empleado del INFOCCOP será relevado de responsabilidad por haber procedido contra la Ley de la Administración Financiera o las disposiciones reglamentarias en lo relativo a trámites que le corresponda cumplir en el proceso de la Contratación Administrativa. Cualquier anomalía debe ser objetada por escrito ante su superior jerárquico, con copia a la Dirección Ejecutiva y al Auditor según lo determina el artículo 8° de la Ley de la Administración Financiera.

@@ -1,0 +1,1 @@
+Artículo 56.-EI manejo y control de las garantías estará a cargo de la Proveeduría, pero la custodia de los valores corresponde a la Tesorería. La contabilidad llevará las cuentas de orden que permitan el control e información adecuados.

@@ -1,0 +1,1 @@
+Artículo 35.-La apertura de ofertas se realizará en la Proveeduría el día y a la hora señaladas, en presencia de los interesados que tengan a bien asistir y de un(a) representante de la Auditoría y de la Asesoría Legal, pudiendo asistir otros funcionarios de las dependencias interesadas.

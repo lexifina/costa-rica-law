@@ -1,0 +1,1 @@
+Artículo 37.-La garantía de participación será determinada entre un 1% Y un 5% del monto de la cotización, debiendo fijar el porcentaje el respectivo cartel y se rendirá en los términos que enuncia los artículos 61, 62 y 63 del Reglamento de la Contratación Administrativa.

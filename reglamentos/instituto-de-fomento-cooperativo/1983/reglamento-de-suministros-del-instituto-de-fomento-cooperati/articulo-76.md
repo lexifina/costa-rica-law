@@ -1,0 +1,1 @@
+Articulo 76.-En todo lo demás, incluyendo el recurso de apelación al acto de adjudicación, se actuará en cuanto sea pertinente, conforme con los procedimientos ordinarios aplicables a la licitación pública. Lo no previsto se regirá por el título quinto del Reglamento de la Contratación Administrativa.

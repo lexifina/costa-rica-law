@@ -1,0 +1,1 @@
+Articulo 49.-En el cartel de licitación o pliego de cotizaciones se incor. porarán todas las normas jurídicas vigentes aplicables al procedimiento según se determinan en el capítulo tercero, artículos 36 al 41 del Reglamento para la Contratación Administrativa.

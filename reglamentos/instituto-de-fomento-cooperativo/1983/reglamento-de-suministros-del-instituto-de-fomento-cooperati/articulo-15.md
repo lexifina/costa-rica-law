@@ -1,0 +1,1 @@
+Artículo I5.-El Departamento de Finanzas, verificará si existe contenido económico para respaldar la orden de compra y en caso afirmativo procederá a codificarla y firmarla, para posteriormente enviarla a la Auditoria para su refrendo. Si no hubiere contenido económico, deberá devolverla a la Proveeduría.

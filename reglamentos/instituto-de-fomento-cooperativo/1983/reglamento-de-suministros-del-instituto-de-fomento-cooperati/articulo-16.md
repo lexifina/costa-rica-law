@@ -1,0 +1,1 @@
+Artículo 16.-Previo a la formulación de un cartel para licitación privada, pública o concurso de antecedentes, el Departamento de Finanzas determinará la existencia de la partida presupuestaria y hará las reservas del caso, siendo requisito indispensable para que la Proveeduría continúe con los trámites respectivos.

@@ -1,0 +1,2 @@
+Artículo 60.-Las ofertas, enmiendas, piezas o documentos conexo s que no se hayan recibido en la Proveeduría antes de la hora señalada no podrán entrar en concurso.
+Recibida formalmente una oferta, no podrá ser retirada. Si el oferente desease dejarla sin efectos o introducirle alguna modificación, ésta podrá hacerse antes de su apertura siempre y cuando sea en beneficio de la Institución. Deberá hacerse por escrito, en sobre cerrado que se entregará a la Proveeduría y en el que se indicará la hora y fecha de recibo.

@@ -1,0 +1,1 @@
+Artículo 2°-La Proveeduría es la única dependencia del INFOCOOP autorizada para efectuar la compra de bienes y servicios que la Institución requiera para el cumplimiento de sus funciones con las excepciones que indica el artículo 8°. También se encargará de las ventas de bienes que la Institución acordare efectuar, según el trámite previsto en el capítulo decimotercero.

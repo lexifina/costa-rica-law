@@ -1,0 +1,1 @@
+|Artículo 57.-Las ofertas y la literatura que se acompañe deben ser presentadas en idioma español. Si la literatura fuere en otros idiomas porque el cartel lo permite, se acompañará la traducción al español.

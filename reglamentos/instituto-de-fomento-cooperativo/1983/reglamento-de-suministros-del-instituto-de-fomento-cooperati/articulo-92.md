@@ -1,0 +1,1 @@
+Artículo 92.-Para retirar útiles o materiales de la existencia en Proveeduría la unidad solicitante deberá presentar una "requisición" cumpliendo con lo estipulado en el artículo 79 del presente reglamento. Si se entrega cualquier material contraviniendo el presente reglamento, el funcionario de la Proveeduría que así lo haga será responsable del valor de la entrega.

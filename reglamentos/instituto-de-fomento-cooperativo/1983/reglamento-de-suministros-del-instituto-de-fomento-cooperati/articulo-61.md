@@ -1,0 +1,1 @@
+Artículo 61.-En el momento de conocer las ofertas se levantará un acta en el libro de licitaciones, legalizado por la Contraloría en el que se dejará constancia del nombre de los concursantes, el monto de las cotizaciones y las observaciones o aclaraciones, bien sea que la Institución las solicite o presenten los oferentes

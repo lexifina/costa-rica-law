@@ -1,0 +1,1 @@
+Artículo 43.-La Junta Directiva resolverá lo que corresponda, a más tardar dentro de los diez días hábiles posteriores a la presentación del recurso y comunicado el fallo al recurrente y al adjudicatario en el caso de ser declarado con lugar, dentro de los tres días siguientes (artículo 17 del Reglamento de la Contratación Administrativa).

@@ -1,0 +1,1 @@
+Artículo 66.-Toda adjudicación se hará a la persona física o jurídica que aparece en la oferta correspondiente. Ningún contrato pedido u orden de compra podrá ser traspasado a terceros sin el consentimiento previo del INFOCOOP.

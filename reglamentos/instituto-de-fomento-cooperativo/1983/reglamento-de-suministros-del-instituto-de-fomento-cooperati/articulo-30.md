@@ -1,0 +1,1 @@
+Artículo 30.-La adquisición de inmuebles por compra directa, no podrá hacerse por un precio mayor al avalúo que al efecto establezca la Dirección General de la Tributación Directa (artículo 97 de la Ley de la Administración Financiera).

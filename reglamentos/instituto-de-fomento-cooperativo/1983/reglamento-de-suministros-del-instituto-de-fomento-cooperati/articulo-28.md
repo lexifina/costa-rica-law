@@ -1,0 +1,1 @@
+Artículo 28.-Las compras de artículos o materiales para mantener en existencia en la bodega de Proveeduría estarán sujetas al trámite de cotización, tomándose en cuenta preferentemente calidad, precio y tiempo de entrega, debiendo invitarse a participar a no menos de tres oferentes en el tanto que sea posible.

@@ -1,0 +1,1 @@
+Articulo 83.-Los artículos en desuso y los de desecho cuyo valor en libros o según peritaje. no excedan el límite fijado por el artículo 208 del Reglamento de Contratación Administrativa, podrán ser donados por el INFOCOOP a otros entes públicos, a cooperativas, a organismos de bien social o de interés comunal.

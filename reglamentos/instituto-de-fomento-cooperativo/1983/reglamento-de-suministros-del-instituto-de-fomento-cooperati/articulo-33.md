@@ -1,0 +1,1 @@
+Artículo 33.-La invitación para participar en una licitación privada deberá cursarse como mínimo a cinco oferentes señalando las especificaciones y condiciones del concurso (artículos 164 y 165 del Reglamento de la Contratación Administrativa.

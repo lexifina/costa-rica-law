@@ -1,0 +1,2 @@
+Artículo 84.-Bienes de la misma naturaleza de mayor precio unitario, hasta el límite que fija el articulo 208 del Reglamento para la Contratación Administrativa, podrán ser vendidos a esas mismas entidades u organizaciones por la mitad de su valor.
+Cuando la negociación exceda al límite que determina el artículo 213 del Reglamento de Contratación, debe obtenerse de previa la autorización de la Contraloría General de la República.

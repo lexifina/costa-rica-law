@@ -1,0 +1,1 @@
+Artículo 24.-Periódicamente, la Auditoria procederá a efectuar una re. visión total o por muestreo, según lo determine el Auditor, de las justificantes que amparan los cheques emitidos, para comprobar que se ajusten en todo, a las disposiciones reglamentarias.

@@ -1,0 +1,1 @@
+Artículo 65.-La resolución adjudicatoria deberá constar en el libro de actas, con las referencias necesarias para la identificación del concurso y se publicará en "La Gaceta" a la mayor brevedad posible.

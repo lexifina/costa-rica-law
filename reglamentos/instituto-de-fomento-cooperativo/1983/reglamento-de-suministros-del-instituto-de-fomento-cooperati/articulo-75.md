@@ -1,0 +1,1 @@
+Artículo 75.-A juicio de la Administración y según la naturaleza del concurso. se podrán exigir garantías de participación y cumplimiento dentro de los límites y regulaciones que señalan los artículos 54 y 55 de este Reglamento.
