@@ -1,0 +1,1 @@
+2º—Ámbito de aplicación. Los presentes Lineamientos serán aplicables al Ministerio de Hacienda como órgano rector del Sistema de Administración Financiera del Sector Público, en lo referente a la formulación presupuestaria de las instituciones del sector público excepto las universidades, bancos, instituciones del sector municipal y la Caja Costarricense de Seguro Social.

@@ -1,0 +1,6 @@
+3º—Establecimiento de mecanismos de verificación. Al
+Ministerio de Hacienda le corresponde establecer los mecanismos idóneos para verificar que las instituciones cumplan con lo siguiente:
+3.1 Unidad responsable. Designen formalmente la unidad que tendrá a su cargo el proceso presupuestario.
+3.2 Asignación de recursos. Asignen los recursos humanos, materiales, tecnológicos y otros necesarios y suficientes para que las unidades encargadas del proceso presupuestario institucional cumplan su gestión.
+3.3 Cuestionamiento periódico de las premisas básicas que orientan la formulación presupuestaria. Analicen y cuestionen periódicamente las premisas básicas que orientan la formulación presupuestaria, a fin de determinar su validez ante los cambios ambientales internos y externos, atender los requerimientos de los planes de mediano y largo plazo y satisfacer las necesidades que dieron origen a los objetivos y fines para los que fue creada cada institución.
+3.4. Cumplimiento del bloque de legalidad. Atiendan en el proceso de formulación presupuestaria, el bloque de legalidad que comprende entre otras cosas, las políticas, lineamientos y directrices establecidas por los órganos competentes, el marco de la programación macroeconómica, los planes de mediano y largo plazo y el Plan Nacional de Desarrollo y sus principios.

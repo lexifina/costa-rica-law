@@ -1,0 +1,1 @@
+4º—Acciones para el cumplimiento de sus competencias como rector. Al Ministerio de Hacienda le corresponde establecer las acciones necesarias para el cabal cumplimiento de sus competencias de órgano rector del Sistema de Administración Financiera del Sector Público.
