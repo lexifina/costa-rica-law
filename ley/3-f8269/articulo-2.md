@@ -1,0 +1,1 @@
+Art. 2°-Los dueños de tabaco procedente de siembras anteriores, pueden venderlo libremente hasta el día último de diciembre del corriente año; y desde esa fecha queda prohibida la venta de tabaco que no proceda de los almacenes nacionales.

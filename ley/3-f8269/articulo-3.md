@@ -1,0 +1,1 @@
+Art. 3°-Todo el que posea cualquiera cantidad de tabaco que no proceda de los almacenes nacionales, debe presentarla, dentro de los primeros quince días del mes de enero de mil ochocientos ochenta y cinco, á la Administración de Tabacos más inmediata, para exportarlo, en el caso de que no le convenga venderlo al Supremo Gobierno por su justo precio.
