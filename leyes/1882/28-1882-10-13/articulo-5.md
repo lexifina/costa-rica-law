@@ -1,0 +1,2 @@
+Art.5°—El Poder Ejecutivo reglamentará la ejecución del presente decreto.
+AL PODER EJECUTIVO.—Dado en el Salón de Sesiones.—Palacio Nacional, en San José, á trece de octubre de mil ochocientos ochenta y dos.—Víctor Guardia, Presidente.—Jesús Solano, Secretario.-Manuel Sandoval, Secretario.—Palacio Presidencial.—San José, octubre trece de mil ochocientos ochenta y dos.—Ejecútese.—P. FERÁNDEZ.—El Secretario de Estado en el Despacho de Hacienda.—BERNARDO SOTO.

@@ -1,0 +1,1 @@
+Art. 4°—La defraudación del impuesto de timbre, será castigada con multa que no bajará del diez por ciento sobre el valor total de la transacción ó contrato, y que será pagada por el tenedor del respectivo documento.
