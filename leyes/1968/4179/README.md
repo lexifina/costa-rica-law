@@ -1,6 +1,6 @@
 # Ley de Asociaciones Cooperativas
 
-Ley N° 4179 del 1968-08-22. SINALEVI, ficha 32655: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32655&param2=85365&param3=1>.
+Ley N° 4179 del 1968-08-22. SINALEVI, ficha 32655: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32655&param2=85370&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -22,3 +22,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 14 de 25 | 1987-01-07 | Ley 7053 | 1986-12-09 |
 | 15 de 25 | 1987-08-25 | Ley 7083 | 1987-08-25 |
 | 16 de 25 | 1993-02-23 | Sala Constitucional, resolución 998-93 (1993-02-23) | 1993-02-23 |
+| 17 de 25 | 1994-05-24 | Ley 7391 | 1994-04-27 |

@@ -1,2 +1,1 @@
-Artículo 75.- La asamblea general de las cooperativas, conla aprobación del INFOCOOP, podrá emitir cuotas de inversión para destinar su producto al cumplimiento de objetivos determinados, tales como la adquisición de bienes o el otorgamiento de préstamos a los asociados, cuando éstos procedan.
-Estas cuotas serán representadas por certificados nominativos e intransferibles, con base en las normas que para este fin establezca el INFOCOOP.
+Artículo 75.- (Derogado por el artículo 46 de "Regulación de Intermediación Financiera de Organizaciones Cooperativas", aprobada mediante ley N° 7391 del 27 de abril de 1994)
