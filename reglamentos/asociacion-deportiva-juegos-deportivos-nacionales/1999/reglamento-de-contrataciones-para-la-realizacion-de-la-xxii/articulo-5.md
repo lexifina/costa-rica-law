@@ -1,0 +1,1 @@
+Artículo 5°-0rgano competente. Es competencia de la Administración, llevar a cabo en forma exclusiva los procedimientos de contratación que garanticen el desarrollo de la actividad, fines y cometidos de la asociación, así como dictar los procedimientos y controles que correspondan.

@@ -1,0 +1,1 @@
+Artículo 10.-Disponibilidad Presupuestaria. Toda solicitud de materiales o servicios sefialada en el artículo anterior, debe encontrarse contemplado en el respectivo presupuesto y contar con el refrendo presupuestario otorgado por el Oficial de Presupuesto de la asociación.

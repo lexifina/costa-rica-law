@@ -1,0 +1,1 @@
+Artículo 30.-Utilización de medios telemáticos de comunicación. Para la notificación de los actos que desarrollen el procedimiento de contratación, podrá la Asociación y los órganos que participen en sus diferentes etapas, utilizar el facsímil o cualquier otro medio telemático de comunicación.

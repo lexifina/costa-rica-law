@@ -1,0 +1,2 @@
+Artículo 7°-Principio de igualdad y libre concurrencia. Dentro del procedimiento se presentará absoluta observancia al principio de igualdad entre los participantes, sin que puedan coartarse en forma alguna la libre competencia por vía reglamentaria ni disposición organizativa.
+No podrá establecerse en las condiciones del concurso, regulaciones que coloquen en situaciones de desventaja o desigualdad a los potenciales participantes, salvo las regulaciones o especificaciones técnicas propias del servicio o bien por adquirir.

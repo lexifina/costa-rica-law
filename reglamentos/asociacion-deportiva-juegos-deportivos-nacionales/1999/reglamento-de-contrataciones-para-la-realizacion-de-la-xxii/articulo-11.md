@@ -1,0 +1,2 @@
+Artículo 11.-Requisitos técnicos de la contratación. La confección de los requerimientos técnicos que deben ser satisfechos mediante el . objeto contractual será competencia exclusiva de la instancia, comisión, , departamento o programa solicitante.
+Tratándose de contratos de obra, será competencia de la instancia, comisión, Departamento de Infraestructura, programa o del órgano que designe la junta directiva elaborar las condiciones técnicas, de conformidad con lo dispuesto en la legislación costarricense que rige la materia.

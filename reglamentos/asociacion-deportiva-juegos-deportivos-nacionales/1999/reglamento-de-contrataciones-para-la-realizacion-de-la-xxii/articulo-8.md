@@ -1,0 +1,2 @@
+Artículo 8°-Principio de publicidad. Los procedimientos de contratación se realizarán en estricto apego al principio de publicidad, mismo que se garantizará con observancia de lo dispuesto en el artículo 6.1.2, 6.1.3, 6.1.4 y 6.1.5 del Reglamento General de Contratación Administrativa.
+El inicio de todo procedimiento se dará de conformidad con el presupuesto aprobado por la Contraloría General de la República a la Asociación.

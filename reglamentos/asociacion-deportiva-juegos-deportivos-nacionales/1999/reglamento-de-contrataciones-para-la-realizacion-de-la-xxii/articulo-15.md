@@ -1,0 +1,2 @@
+Artículo 15.-Deber de Actualizar. El proveedor comercial se encuentra en la obligación de notificar a la Proveeduría de la Asociación en forma inmediata, cualquier variación que se diera en la información enviada al Registro.
+En los concursos por invitación si el número de proveedores inscritos fuera menor de cinco, se dejará constancia en el expediente en que corre la contratación, sin perjuicio de que la Asociación pueda mediante publicación en un diario de circulación nacional invitar a participar a otros proveedores.

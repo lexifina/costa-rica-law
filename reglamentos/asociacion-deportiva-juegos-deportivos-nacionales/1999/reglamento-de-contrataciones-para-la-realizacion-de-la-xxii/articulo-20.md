@@ -1,0 +1,1 @@
+Artículo 20.-Acuerdo de Adjudicación. Corresponderá al funcionario u órgano competente, la emisión debidamente razonada del acto adjudicatorio o declaratoria de desierto del concurso según corresponda, reservándose el derecho la Asociación de adjudicar total o parcialmente la obra ofertada.

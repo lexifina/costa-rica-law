@@ -1,0 +1,1 @@
+Artículo 17.-Establecimiento de condiciones mínimas para participar en los procedimientos de contratación. Las condiciones mínimas para participar dentro de los procedimientos de contratación serán las establecidas en el cartel o la invitación respectiva.
