@@ -15,3 +15,4 @@ Reglamento para la contratación de servicios medicos especializados por medio d
 | --- | --- | --- |
 | 1 | 2000-03-29 | la propia norma |
 | 2 | 2001-05-24 | Reglamento 7550 (2001-05-24) |
+| 3 | 2001-06-14 | Reglamento 7556 (2001-06-14) |
