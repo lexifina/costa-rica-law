@@ -1,0 +1,1 @@
+Art 3° Los oficiales de Cartago, Heredia y Alajuela gozarán de la dotación mensual de veinticinco pesos los de San José y Puntarenas de la de treinta pesos, el superintendente de sesenta pesos el meritorio de ocho pesos, y los guardas de quienes pesos. Todos estos empleados dependen inmediatamente de la oficina de correos respectiva, como dependen estas de la Dirección General.
