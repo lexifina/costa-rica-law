@@ -1,0 +1,2 @@
+Art. 2° -El Presidente de la República llamarà de los siete individuos mensionados, al que estime conveniente que le sustituya en cualquiera ocasión; y faltando tal llamamiento, le sucederán por el orden en que los referidos siete individuos están mencionados.
+Dado en el Palacio Presidencial, en San José, á veintitrés de abril de mil ochocientos ochenta y uno. –T. GUARDIA -Por el Honorable Señor Secretario de Gobernación, el de Relaciones Exteriores. –José Ma CASTRO.
