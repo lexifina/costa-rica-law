@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el ejercicio económico 2003.
 
-Ley N° 8341 del 2002-12-09. SINALEVI, ficha 49821: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=49821&param2=53336&param3=1>.
+Ley N° 8341 del 2002-12-09. SINALEVI, ficha 49821: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=49821&param2=53337&param3=1>.
 
 Publicada en La Gaceta N° 251 del 2002-12-30.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 71 | 2003-01-20 | Decreto Ejecutivo 30942 (2003-01-14) | 2003-01-14 |
 | 4 de 71 | 2003-01-20 | Decreto Ejecutivo 31004 (2003-01-30) | 2003-01-30 |
 | 5 de 71 | 2003-03-05 | Decreto Ejecutivo 31017 (2003-02-12) | 2003-02-12 |
+| 6 de 71 | 2003-03-05 | Decreto Ejecutivo 31007 (2003-02-20) | 2003-02-20 |
