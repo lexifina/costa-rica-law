@@ -1,0 +1,2 @@
+Art. 11. El Intendente general hará cumplir las providencias anteriores, y proveerá de las cerraduras de que habla el art. 4° y de los libros que debe llevar cada uno de los guardas vigilantes (1).
+(1) Vease la nota 1° pájina anterior. -Dado en la ciudad de San José y los veintiun días del mes de junio de mil ochocientos cuarenta y ocho. José Maria Castro. -Al Ministro de hacienda y guerra Señor Don Manuel José Carazo.

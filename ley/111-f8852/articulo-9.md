@@ -1,0 +1,1 @@
+Art. 9. Cuando el contrabando aprehendido sea de alguno de los articulos estancados, la administracion respectiva con órden de la intendencia general pagará al resguardo su valor al precio de por mayor, y ademas le dará la mitad de la multa que debe satisfacer el contrabandista.
