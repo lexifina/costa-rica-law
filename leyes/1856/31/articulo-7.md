@@ -1,0 +1,3 @@
+Art 7°.- La Constitución y las leyes determinan todas las condiciones que deben adornar a los Ministros Jueces del Tribunal Supremo de Justicia, pero nunca podrá ser Magistrado el que no tenga una reputación sin tacha y cuya probidad no sea bien conocida, ni el que carezca de los conocimientos posibles en el derecho patrio, mientras que la República no haya el competente número de todas las plazas del Tribunal Supremo de Justicia.
+Dado en San José, a los diecisiete días del mes de octubre de mil ochocientos cincuenta y seis.
+Por tanto: Ejecútese.- San José, octubre diezsiete de mil ochocientos cincuenta y seis.

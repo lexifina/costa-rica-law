@@ -1,0 +1,1 @@
+Art 6°.- Del mismo modo pueden ser electos Ministros Jueces del Tribunal Superior de Justicia, Los Letrados que posean un capital en bienes conocidos por el valor de tres mil pesos o dar fianza y presentar en hipoteca una finca que asegure en su favor aquella cantidad.
