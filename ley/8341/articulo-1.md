@@ -1,6 +1,6 @@
 ARTÍCULO 1: DETALLE DE CALCULO DE LOS INGRESOS ORDINARIOS Y EXTRAORDINARIOS, TANTO INTERNOS COMO EXTERNOS PARA EL EJERCICIO ECONÓMICO DEL 2003
 (NOTA: Por lo extenso de su contenido ver Alcance N° 93 a la Gaceta N° 251 de 30 de diciembre del 2002)
-(El artículo 2° del Decreto Ejecutivo N° 31079 de 12 de marzo de 2003 modifica esta ley en la forma que se indica a continuación:
+(El artículo 2° del decreto ejecutivo N° 31079 de 12 de marzo de 2003, el cual modifica esta ley en la forma que se indica a continuación:
 "En la página PP-109-030,
 Donde dice:
 910 01 112 12 GASTOS CONFIDENCIALES
@@ -14,4 +14,5 @@ DE VENTAS DE MERCANCÍAS Y SERVICIOS QUE OPERAN EN
 HORAS HÁBILES E INHÁBILES EN QUE ACTÚA LA
 ADMINISTRACIÓN TRIBUTARIA, ASÍ COMO REUNIR LAS PRUEBAS
 REQUERIDAS PARA CONFORMAR LOS EXPEDIENTES RELATIVOS
-A LAS INFRACCIONES TRIBUTARIAS Y DELITOS TRIBUTARIOS)."
+A LAS INFRACCIONES TRIBUTARIAS Y DELITOS TRIBUTARIOS.").
+(Véase el artículo 1° del decreto ejecutivo N° 31174 de 21 de abril de 2003, el cual modifica el presente numeral)
