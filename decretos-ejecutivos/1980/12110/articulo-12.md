@@ -1,0 +1,1 @@
+Artículo 12.—El funcionario propietario deberá dar preferencia a las necesidades del Poder Judicial y cuando éstas indiquen que en una misma gira deben transportarse otros servidores, siempre que no excedan en número el cupo autorizado del vehículo, el propietario deberá transportarlos bajo los términos del contrato.

@@ -1,0 +1,1 @@
+Artículo 18.—Cuando se determine que en la ejecución del contrato se incurre en violación de las disposiciones reglamentarias, el funcionario responsable podrá ser corregido disciplinariamente por la Inspección Judicial o la Corte, según corresponda.

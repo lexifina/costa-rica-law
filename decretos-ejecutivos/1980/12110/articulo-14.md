@@ -1,0 +1,1 @@
+Artículo 14.—Corresponde a la Auditoría General efectuar el control contable pertinente y el registro de los reportes y pagos, para lo cual se utilizarán los formularios y tarjetas que se confeccionen al efecto.

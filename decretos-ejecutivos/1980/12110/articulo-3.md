@@ -1,0 +1,1 @@
+Artículo 3°—El funcionario que requiera ingresar al sistema, deberá en cada caso obtener previamente la aquiescencia del superior inmediato y la autorización de la Dirección Administrativa, quien resolverá en última instancia.

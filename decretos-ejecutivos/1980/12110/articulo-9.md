@@ -1,0 +1,1 @@
+Artículo 9°—Existirá un formulario que contendrá, entre otras cosas, el nombre del funcionario, la oficina en que sirve, el número de placas del vehículo, el número de kilómetros que marca el odómetro al momento de iniciarse la gira —en los casos que se solicite expresamente—, los lugares que serán visitados y el motivo u objeto de la gira.

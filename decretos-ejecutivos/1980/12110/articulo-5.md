@@ -1,0 +1,1 @@
+Artículo 5°—Igualmente será indispensable que el vehículo esté amparado por la póliza del Instituto Nacional de Seguros, cuya cobertura “A” responda por lesiones o muerte con indemnizaciones no inferiores a ¢150-000,00 y ... ¢ 300.000,00 respectivamente y cobertura “C” que responda por daños a la propiedad de terceros por la suma no inferior a ¢ 25.000,00.

@@ -1,0 +1,1 @@
+Artículo 6°—Por virtud de la relación contractual, el propietario asumirá responsabilidades civiles y penales que se pudieren derivar de la ejecución del contrato; en consecuencia, el Poder Judicial queda totalmente relevado de las mismas, en cuanto afecten a terceros.
