@@ -1,0 +1,1 @@
+Artículo 20.—Para el procedimiento de dar de baja a un activo, se procederá a levantar un acta inmediatamente que suceda o se descubra el hecho que motiva la solicitud; la misma deberá ser firmada por los funcionarios que intervienen en la diligencia.

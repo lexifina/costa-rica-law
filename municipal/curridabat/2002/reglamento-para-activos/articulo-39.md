@@ -1,0 +1,1 @@
+Artículo 39.—Depreciación sobre mejoras: Cuando se lleva a cabo mejoras en bienes depreciables, la depreciación se debe calcular por separado al activo; alternativamente, el declarante puede depreciar el nuevo valor en términos de la nueva vida útil que lo adicione, como consecuencia de las mejoras introducidas. Esa nueva vida útil deberá manifestarse en los registros.

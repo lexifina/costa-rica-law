@@ -1,0 +1,1 @@
+Artículo 17.—Corresponde al Departamento de Contabilidad, levantar los inventarios de bienes, identificarlos de acuerdo con su naturaleza y características (modelo, marca, número de motor, serial, valor, tipo y sexo, edad y raza en caso de semovientes y tomo, folio, asiento y número de finca o folio real en caso de inmuebles).

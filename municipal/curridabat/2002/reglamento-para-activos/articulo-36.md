@@ -1,0 +1,1 @@
+Artículo 36.—La depreciación representa el valor acumulado de las depreciaciones liquidadas a los activos fijos, por desgaste que sufran con el uso, agotamiento y obsolescencia. La depreciación se calculará sobre el 90% del costo o avalúo, el 10% restante se considera como valor salvante.

@@ -1,0 +1,1 @@
+Artículo 16.—El Departamento de Contabilidad registrará las operaciones con base en los documentos fuentes de información que reciban, procedentes de la Proveeduría Municipal, para lo anterior se mantendrá un auxiliar y/o un sistema de registro.

@@ -1,0 +1,1 @@
+Artículo 43.—Cuando el activo sea trasladado a otro departamento en calidad de préstamo el responsable deberá hacer una nota al Departamento de Contabilidad informando que el activo estará bajo la responsabilidad de otro departamento por tiempo limitado.

@@ -1,0 +1,1 @@
+Artículo 12.—A la llegada de los bienes a la Municipalidad de Curridabat el funcionario responsable de la Proveeduría, procederá a verificar con la factura respectiva o con la orden de compra o pedido, para comprobar si se expidió por iguales elementos, cantidades y valores.

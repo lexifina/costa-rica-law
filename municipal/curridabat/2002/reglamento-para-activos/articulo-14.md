@@ -1,0 +1,1 @@
+Artículo 14.—Una vez que se halla cumplido con los artículos anteriores de este capítulo, el Departamento de Proveeduría procederá a elaborar el informe de inclusión y remitirlo al Departamento de Contabilidad, la cual le dará trámite para que queden debidamente codificados e incorporados al inventario permanente y con su número de activo.

@@ -1,0 +1,1 @@
+Artículo 27.—Es obligación del Departamento de Contabilidad verificar la existencia de los bienes inventariados a cargo de las distintas dependencias de la Administración Municipal y exigir el cumplimiento de las normas del presente reglamento.

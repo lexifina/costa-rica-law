@@ -1,0 +1,1 @@
+Artículo 38.—Para efectos de calcular la depreciación de los bienes muebles e inmuebles al servicio de la Municipalidad de Curridabat, se tomará como referencia la Ley del Impuesto sobre la Renta y su Reglamento, en el cual se muestra el bien, porcentaje anual y años de vida útil.
