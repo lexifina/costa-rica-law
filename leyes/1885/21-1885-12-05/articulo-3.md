@@ -1,0 +1,2 @@
+Art. 3°--Queda reformado el acuerdo n° LXIII de 21 de julio de 1882, en cuanto se oponga á la presente ley.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los cinco días del mes de diciembre de mil ochocientos ochenta y cinco.-JN. M. CARAZO, Presidente.-JUAN J. U- LLOA G., Secretario.-Palacio Presidencial. San Jo- sé, á cinco de diciembre de mil ochocientos ochenta y cinco. -Ejecútese.-BERNARDO SOTO.-El Secretario de Estado en el despacho de Justicia,-ASCENSIÓN ESQUIVEL.
