@@ -18,3 +18,5 @@ c)Recibir asesoramiento para el uso de herramientas informáticas suministradas 
 d)Recibir oportunamente, para su conocimiento y opinión, los proyectos de disposiciones generales elaborados por la SUGEF para aplicar en las entidades autorizadas.
 e)Recibir de la SUGEF, de manera oportuna, la normativa que emita en relación a las entidades supervisadas, así como el asesoramiento necesario.
 f)Recibir copia de todos los informes y comunicaciones que la SUGEF remita a las entidades autorizadas del Sistema Financiero Nacional para la Vivienda.
+g. EI BANHVI, en su calidad de supervisor auxiliar de la SUGEF, podría subcontratar los servicios profesionales que requiera para el desempeño de sus labores, una vez cumplidas las disposiciones legales y reglamentarias que Ie son aplicables en relación con este tipo de contrataciones.
+(Así adicionado el inciso anterior en sesión N° 73 del 21 de octubre de 1997)

@@ -14,3 +14,4 @@ Reglamento para la supervisión auxiliar por parte del Banco Hipotecario de la V
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-28 | la propia norma |
+| 2 | 1997-10-21 | Reglamento 73 (1997-10-21) |
