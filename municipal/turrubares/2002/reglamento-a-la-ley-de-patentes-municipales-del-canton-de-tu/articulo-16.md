@@ -1,0 +1,1 @@
+Artículo 16.—Cancelación de la licencia. La licencia se suspenderá por falta de pago de dos trimestres, o por condiciones insalubres e inapropiadas que afecten la moral y las buenas y sanas costumbres de los ciudadanos.

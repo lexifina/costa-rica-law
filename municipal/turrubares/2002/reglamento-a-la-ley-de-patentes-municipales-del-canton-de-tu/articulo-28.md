@@ -1,0 +1,2 @@
+Artículo 28.—Efectos del traspaso o traslado de licencia. Ningún
+traslado o traspaso de licencia municipal, afectará los intereses municipales, hasta tanto no sea aceptado por el Concejo Municipal, aceptación que se dará si el adquiriente es persona hábil para explotar el establecimiento, si el nuevo local reúne los requisitos exigidos y, si ambas partes están al día en el pago de tasas, contribuciones o impuestos municipales. Además dicha solicitud de traspaso deberá ser autenticada por un abogado.

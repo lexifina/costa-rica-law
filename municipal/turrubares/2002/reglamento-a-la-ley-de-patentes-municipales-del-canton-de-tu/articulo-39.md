@@ -1,0 +1,1 @@
+Artículo 39.—Denuncias ante los órganos jurisdiccionales. El Concejo procederá a denunciar ante los órganos jurisdiccionales competentes en los casos contemplados en los artículos 24 y 34 de este reglamento.

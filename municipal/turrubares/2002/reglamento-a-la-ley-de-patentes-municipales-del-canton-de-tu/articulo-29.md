@@ -1,0 +1,2 @@
+CAPÍTULO VII
+Artículo 29.—Permisos de funcionamiento. Las actividades que requieran permisos de funcionamiento del Ministerio de Salud, Ministerio de Cultura Juventud y Deportes, Ministerio de Trabajo, Ministerio del Ambiente y Energía, Ministerio de Obras Públicas y Transportes, y cualquier otro que leyes y reglamentos especiales exijan, deberán aportarlos en el momento de la presentación de la solicitud de licencia.

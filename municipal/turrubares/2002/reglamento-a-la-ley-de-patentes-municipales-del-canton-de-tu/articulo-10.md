@@ -1,0 +1,1 @@
+Artículo 10.—Excepción a la aplicación. La licencia de venta de licores al menudeo, se regulará por ley especial, salvo aquellas disposiciones de tipo administrativo que sean aplicables, en cuanto a la solicitud, traspaso, traslado y cancelación de las mismas.

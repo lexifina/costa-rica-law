@@ -1,0 +1,5 @@
+Artículo 8º—Determinación del impuesto. El impuesto de patentes se determina:
+1. Mediante declaración jurada municipal del contribuyente artículo 7º Ley Nº 8294, salvo cuando la Ley de Impuestos Municipales del Cantón de Turrubares determine un procedimiento diferente para fijar el monto del impuesto de patentes.
+2. Mediante imposición directa de la Municipalidad según se establece el artículo 11 de la Ley Nº 8294.
+Se establece como factor determinante de la imposición, los ingresos brutos anuales que perciban los afectos al impuesto, durante el período fiscal anterior al año que se grava; los ingresos brutos no incluyen lo recaudado por concepto del impuesto sobre las ventas; en el caso de los establecimientos financieros y de correduría de bienes muebles e inmuebles, se consideran ingresos brutos los percibidos en razón de comisiones e intereses.
+Se aplicará, para determinar la suma que el contribuyente debe cancelar, el uno por ciento (1%) sobre los ingresos brutos. Esta suma dividida entre cuatro determinará el impuesto trimestral por pagar.
