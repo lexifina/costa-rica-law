@@ -1,1 +1,2 @@
-Artículo 4º—Del tope máximo de operación: La línea de crédito de bienestar familiar es complementaria y no sustitutiva de las actividades principales de cada Mutual. La concentración máxima que cada Mutual podrá tener en estos créditos será de un 20% (veinte por ciento) sobre el saldo total de su cartera permanente de créditos hipotecarios comunes.
+Artículo 4º—Del tope máximo de operación: La línea de crédito de bienestar familiar es complementaria y no sustitutiva de las actividades principales de cada Mutual. La concentración máxima que cada Mutual podrá tener en estos créditos será de un 20% (veinte por ciento) sobre el saldo total de su cartera permanente de créditos hipotecarios .
+(Así reformado mediante sesión 76-2004 del 16 de diciembre del 2004)
