@@ -1,0 +1,1 @@
+Artículo 32.—Cierre de establecimiento que afecta habitaciones. Si la orden de cierre afecta a un local que sirve de habitación, la misma se ejecutará de tal forma que suspenda el funcionamiento del negocio, sin impedir la entrada o salida de la habitación.

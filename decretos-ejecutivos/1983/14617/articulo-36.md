@@ -1,0 +1,1 @@
+Artículo 36.—Cierre de todos los negocios de un inscrito. Cuando el contribuyente moroso tuviere varios establecimientos, la orden se dictará contra todos ellos. En este caso, las notificaciones se harán al dueño o en su defecto, a cada uno de los gerentes o administradores de los distintos negocios.

@@ -1,0 +1,3 @@
+Artículo 14.—Transferencia de dominio a título gratuito o pagos en especie.
+En los casos de transmisiones de dominio a título gratuito de mercancías gravadas o en las de ventas de mercancías gravadas cuyo precio se pague total o parcialmente en especie, el impuesto se determina sobre el precio de contado que el contribuyente aplique en sus ventas regulares.
+El impuesto recaerá también sobre los faltantes de mercancías gravadas producidas por el contribuyente y sobre las que éste tome para su uso o consumo personal; en ambos casos, la base imponible será el precio de contado de tales mercancías.

@@ -1,0 +1,2 @@
+Artículo 21.—Oficinas recaudadoras. Conjuntamente con la presentación de la declaración jurada, el impuesto debe pagarse en el Banco Central de Costa Rica o en cualquiera de las agencias autorizadas por éste, dentro del plazo establecido en el artículo 19 de este Reglamento.
+Las declaraciones en que no exista impuesto a pagar, serán presentadas en las citadas agencias recaudadoras, en las oficinas centrales y regionales de la Dirección General de la Tributación Directa o remitidas a ésta por correo certificado.

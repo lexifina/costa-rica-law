@@ -1,0 +1,1 @@
+Artículo 37.—No responsabilidad del daño con ocasión del cierre. No incurren en responsabilidad, ni el Estado ni los ejecutores, por los perjuicios económicos que se ocasione al contribuyente moroso, como resultado del cierre de su establecimiento.

@@ -1,0 +1,1 @@
+Artículo 27.—Simulación y suplantación del contribuyente. La persona que actúe como contribuyente inscrito, sin tener esa condición o que suplante a otro contribuyente, comete el delito que sanciona el artículo 218 del Código Penal. Si tales actos dieren origen a una disminución del impuesto, se le aplicara la sanción por defraudación fiscal.

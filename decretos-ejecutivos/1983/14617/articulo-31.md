@@ -1,0 +1,1 @@
+Artículo 31.—Suspensión de la ejecución de cierre. En el mismo acto de efectuar el cierre del negocio, podrá suspenderse su ejecución, si el interesado o cualquiera que lo represente en ese momento, muestra los recibos del impuesto adeudado, debidamente cancelados. En este caso, se hará constar en el acta respectiva, el motivo de la no ejecución

@@ -1,0 +1,1 @@
+Artículo 39.— Derogatoria. Derógase el Decreto Ejecutivo N° 2240-H de once de marzo de mil novecientos setenta y dos (Reglamento de la Ley de Consolidación de Impuestos Selectivos de Consumo) y cualquier otra disposición que se le oponga.
