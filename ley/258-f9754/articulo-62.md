@@ -1,9 +1,9 @@
-Artículo 62.- Incurrirá en responsabilidad criminal cualquier persona
-o empresa autorizada para suministrar energía eléctrica:
+Artículo 62.- Incurrirá en responsabilidad criminal cualquier
+persona o empresa autorizada para suministrar energía eléctrica:
 1º.- Cuando suministre dicha energía para un servicio especial sin
 que se haya fijado la tarifa respectiva o sin que los precios, tarifas o
 condiciones de venta o distribución estén consignados en la concesión o
-contrato vigente o sin la previa autorización de la Junta Eléctrica
+contrato vigente o sin la previa autorización de la Junta Eléctrica (*)
 2º.- Cuando exija por un servicio precio más alto que el
 correspondiente de acuerdo con la tarifa legalmente aprobada o autorizada
 o que consienta el contrato o la concesión vigentes; o que exija precios
@@ -14,3 +14,5 @@ para romper la uniformidad de la tarifa.
 reglamentación. El responsable o responsables del delito que define este
 artículo serán penados con multa de quinientos a mil colones. Cuando no
 se suministre el voltaje de que habla el artículo 18, salvo fuerza mayor.
+(*) REFORMADO TACITAMENTE por Ley Nº 4537 de 25 de febrero de 1970.
+NOTA: V.O.L.

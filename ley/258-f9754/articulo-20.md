@@ -1,5 +1,5 @@
-Artículo 20.- Por las interrupciones que aun por causas imprevistas o
-de fuerza mayor ocurriere en los servicios de energía eléctrica que se
+Artículo 20.- Por las interrupciones que aun por causas imprevistas
+o de fuerza mayor ocurrieren en los servicios de energía eléctrica que se
 suministran al público no se cobrará a los abonados afectados el valor
 correspondiente a los servicios que se les hubiere dejado de suministrar,
 en el período que cubra la cuenta respectiva, cuando la suma de la

@@ -1,7 +1,7 @@
-Artículo 45.- A más de ser miembro de la Junta, corresponde al
-Subdirector hacer las veces del Director en todas las vacantes temporales
-de éste y asimismo autorizar personalmente, por medio de empleados idóneos,
-las actas y resoluciones que se dicten, certificando los cómputos de votos,
-si fuere necesaio en las sesiones. Certificará con autorización de la
-Junta y a solicitud de tercero, las actas, acuerdos y resoluciones que se
-pidan.
+Artículo 45.- De nombramiento de la Junta y bajo las órdenes
+inmediatas del Director, se acreditará en las oficinas del Servicio
+Nacional de Electricidad un Secretario, de preferencia abogado, que
+atenderá bajo su responsabilidad todo lo relacionado con los aspectos
+administrativos de la Institución, correspondiéndole certificar las
+actas, acuerdos y resoluciones que se le soliciten.
+( Así reformado por Ley Nº 50 de 7 de junio de 1948, artículo único )

@@ -7,3 +7,6 @@ reglamentación y las resoluciones del Servicio Nacional de Electricidad
 ordenen o dispongan respecto a los aprovechamientos de aguas, utilización
 de fuerzas hidráulicas y generación, trasmisión, transformación y
 distribución de energía eléctrica.
+NOTA: En relación con la cita "Resguardos de Hacienda", "Agentes de
+Policía" y "Policías de Orden y Seguridad" ver la Ley General de Policía
+Nº 7410 de 26 de mayo de 1994.
