@@ -1,7 +1,3 @@
-ARTÖCULO 15
-Programas de capacitaci¢n
-El contratista prepar programas pr cticos para la
-capacitaci¢n del personal de la Autoridad y de los Estados en
-desarrollo, incluida su participaci¢n en todas las actividades en
-la Zona previstas en el contrato, de conformidad con el p rrafo 2
-del art¡culo 144.
+Artículo 15
+Programas de capacitación
+El contratista prepara programas prácticos para la capacitación del personal de la Autoridad y de los Estados en desarrollo, incluida su participación en todas las actividades en la Zona previstas en el contrato, de conformidad con el párrafo 2 del artículo 144.
