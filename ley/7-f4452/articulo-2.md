@@ -1,0 +1,2 @@
+Art. 2°-Los contraventores à este decreto, sufrirán la mita de la pena señalada á los destiladores de aguardiente clandestino; observándose los mismos procedimientos en la tramitación de los juicios.
+Dado en el Palacio Presidencial, en San José, á los tres días del mes de julio de mil ochocientos setenta y nueve. -T. GUARDIA. -El Secretario de Estado en el Despacho de Hacienda y Comercio, SALVADOR LARA
