@@ -1,0 +1,3 @@
+Artículo 3º.- La oficina será una dependencia del Instituto Nacional de Vivienda y Urbanismo, y estará bajo su responsabilidad en los aspectos administrativos, debiendo facilitar la planta física y el 50% por ciento de los gastos administrativos.
+El Poder Ejecutivo, mediante convenio con esta Institución, sufragará el 50% por ciento de los gastos de operación.
+El Jefe de la Oficina deberá ser Ingeniero Civil o Arquitecto debidamente incorporado al Colegio Federado de Ingenieros y Arquitectos. Será nombrado por el Instituto Nacional de Vivienda y Urbanismo por un período de cuatro años reelegibles, al igual que todo el personal que laborará en esa oficina.
