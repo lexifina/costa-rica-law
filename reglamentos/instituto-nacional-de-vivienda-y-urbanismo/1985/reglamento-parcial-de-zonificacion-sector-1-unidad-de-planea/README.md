@@ -14,3 +14,4 @@ Reglamento Parcial de Zonificación (Sector 1, Unidad de Planeamiento 1, San Jos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-10-01 | la propia norma |
+| 2 | 1994-10-18 | Reglamento municipal 64 (1994-10-18) |
