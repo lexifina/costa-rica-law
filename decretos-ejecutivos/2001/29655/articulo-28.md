@@ -1,0 +1,1 @@
+Artículo 28.—Garantía de cumplimiento. Cuando se considere necesario y en tanto haya sido previsto en las bases del procedimiento de contratación directa, se podrá exigir al contratista que rinda una garantía de cumplimiento, a cuyo efecto se deberá estar a lo dispuesto en el artículo 14 del presente Reglamento.

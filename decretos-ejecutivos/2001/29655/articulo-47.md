@@ -1,0 +1,5 @@
+Artículo 47.—Derecho de fiscalización.
+47.1 El contratista se encuentra obligado a ofrecer al CICAD las facilidades necesarias para el ejercicio de la fiscalización.
+47.2 Para el efectivo ejercicio del derecho de fiscalización, el CICAD designará un órgano que asumirá la obligación de tomar oportunamente las providencias necesarias para que el contratista se ajuste al estricto cumplimiento de las condiciones, especificaciones y plazos establecidos en el contrato y demás obligaciones implícitas en éste.
+47.3 Corresponde a dicho órgano verificar el cumplimiento del objeto de la contratación, advertir, a quien corresponda de acuerdo con el régimen interno, la conveniencia de introducir modificaciones o señalar correcciones en la ejecución, recomendar la ejecución de las garantías o bien la rescisión o resolución del contrato cuando advierta fundamento para ello.
+47.4 La ausencia de fiscalización por parte del CICAD, no exime al contratista de cumplir a cabalidad con sus deberes, ni de la responsabilidad que de ello se derive.

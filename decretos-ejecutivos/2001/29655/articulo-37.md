@@ -1,0 +1,1 @@
+Artículo 37.—Audiencia final. De previo al dictado de la resolución final, en los casos cuyo conocimiento corresponda a la Junta Administrativa, se concederá a las partes un plazo de tres días hábiles para que, en lo que proceda, ejerzan su derecho a la defensa y formulen conclusiones sobre el fondo del asunto.

@@ -1,0 +1,17 @@
+CAPÍTULO IX
+De la Organización Interna del CICAD
+Artículo 59.—De los trámites internos.
+59.1 Para todo requerimiento de contratación de bienes y servicios cuyo monto se ajuste a lo establecido por el presente reglamento, se debe utilizar la fórmula "Solicitud de Materiales y/o Servicios", detallándose con claridad la información que en ella se indica, especialmente en lo relacionado con las especificaciones de lo requerido, la justificación de la contratación preceptuado por el presente reglamento y/o a las normativas indicadas y la información presupuestaría y conteniendo al menos la siguiente información:
+a) El nombre de la unidad solicitante;
+b) Descripción detallada de lo requerido y su destino;
+c) Cantidad;
+d) Precio aproximado;
+e) Especificaciones técnicas indicar la existencia con que cuenta el almacén de proveeduría, excepto la solicitudes por servicios;
+f) Verificar que el artículo solicitado está incluido en el programa de adquisiciones;
+g) Firma del responsable del Área correspondiente; y
+h) Firma del Director Ejecutivo o del Subdirector en ausencia de éste.
+59.2 Las contrataciones hasta por ¢1.000.000,00 (un millón de colones) la Proveeduría podrá invitar vía teléfono o fax, correo electrónico y otros, para lo cual deberá dejar constancia en el expediente respectivo el detalle de las empresas o personas invitadas, así como del resultado de verificación de precios, nombre del funcionario emisor y receptor de la invitación, características del bien o servicio cotizado, fecha y hora en que se realizó la invitación entre otros.
+59.3 Contrataciones mayores de ¢1.000.000,00 (un millón de colones) y hasta ¢3.500.000,00 (tres millones quinientos mil colones), la Proveeduría deberá invitar siempre por escrito.
+59.4 Las reparaciones de mobiliario, equipo de oficina y reparaciones mecánicas de vehículos, cuyo monto se ajuste al límite máximo para utilizar este procedimiento, sea ¢3.500.000,00 (tres millones quinientos mil colones), podrán contratarse directamente, con sujeción al rol establecido en el Registro de Proveedores, prescindiendo de la obtención de otras cotizaciones, en razón de la naturaleza del servicio requerido, para lo cual la Proveeduría deberá dar un trato igualitario a todos los proveedores inscritos para estos servicios y verificar la razonabilidad del precio. Además, deberá implementar un control para verificar la efectividad del servicio brindado, para lo cual coordinará lo pertinente con el órgano o funcionario requirente, y en caso de que se compruebe un mal servicio por parte del proveedor, deberá iniciarse el procedimiento de resolución respectivo, así como para la exclusión del proveedor del Registro de Proveedores.
+59.5 Las contrataciones por concepto de publicaciones, patrocinio de programas y de cuñas, avisos y comerciales, cuyo monto se ajuste al límite autorizado para utilizar este procedimiento, podrán contratarse directamente con el proveedor que la Dirección Ejecutiva considere que reúne las características óptimas para la promoción de la imagen del instituto, una vez determinada la razonabilidad del precio cotizado, para lo cual la Proveeduría en coordinación con el Departamento Financiero de la Unidad Administrativa deberá realizar el estudio correspondiente, acorde al Plan Institucional de Comunicación Divulgación Interna.
+La Proveeduría no tramitará ninguno de estos requerimientos, que no cuente de previo con el estudio de mercadeo supra indicado.

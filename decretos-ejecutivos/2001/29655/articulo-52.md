@@ -1,0 +1,1 @@
+Artículo 52.—Derecho al equilibrio económico del contrato. Por los medios que se establezcan en el cartel o mediante la formula matemática que proponga el oferente, se garantiza el derecho al mantenimiento del equilibrio económico del contrato.

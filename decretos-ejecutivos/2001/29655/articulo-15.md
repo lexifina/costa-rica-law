@@ -1,0 +1,22 @@
+Artículo 15.—Disposiciones comunes aplicables a ambas garantías.
+15.1 Cuando se presenten ofertas conjuntas, cada uno de los oferentes deberá garantizar su participación o ejecución según la estimación del componente que le corresponda, o bien rendir una sola garantía ejecutable indistintamente del oferente que incumpla.
+15.2 Las garantías se rendirán independientemente para cada negocio, mediante:
+15.2.1 Depósito de bono de garantía de instituciones aseguradoras reconocidas en el país, o de uno de los bancos del Sistema Bancario Nacional.
+15.2.2 Certificados de depósito a plazo.
+15.2.3 Bonos del Estado o de sus instituciones.
+15.2.4 Cheques certificados o de gerencia de un banco del Sistema Bancario Nacional.
+15.2.5 Dinero en efectivo mediante depósito a la orden de la institución en un banco del mismo sistema o mediante depósito ante la misma institución.
+15.3 Las garantías podrán también ser extendidas por bancos internacionales de primer orden, según el reconocimiento que hace el Banco Central de Costa Rica, cuando cuenten con un corresponsal autorizado en el país, siempre y cuando sean emitidas de acuerdo con la legislación costarricense y sean ejecutables en caso de ser necesario.
+15.4 Las garantías deberán rendirse en la moneda en que se cotiza, o en su equivalente en moneda nacional al día anterior de la presentación de la oferta. La institución podrá exigir a los oferentes o contratista ajustar los montos de las garantías cuando ocurran variaciones en los tipos de cambio que desmejoren la cobertura que se persigue con dichos instrumentos. En caso de negativa a efectuar dichos ajustes se podrá proceder a la ejecución de la garantía.
+15.5 Los bonos y certificados se recibirán por su valor de mercado y deberán acompañarse de una estimación efectuada por un operador de alguna de las bolsas de valores legalmente autorizadas. Se exceptúan de la obligación de presentar esta estimación, los certificados de depósito a plazo emitidos por los bancos estatales y cuyo vencimiento ocurra como máximo dentro del mes siguiente a la fecha de vencimiento que como mínimo establece el cartel para la garantía respectiva.
+15.6 No se reconocerán intereses por las garantías mantenidas en depósito por la institución, sin embargo, los que devenguen los títulos hasta el momento en que se ejecuten, pertenecen a su legítimo dueño o a su depositante. Queda terminantemente prohibido usar o disponer de cualquier forma de las garantías o fondos retenidos para otro fin que no sea el previsto.
+15.7 Las garantías deberán tener una vigencia original de acuerdo con las siguientes reglas:
+15.7.1 La garantía de participación, hasta por un plazo mínimo de un mes contado a partir de la fecha máxima establecida para dictar el acto de adjudicación.
+15.7.2 La garantía de cumplimiento, hasta por un plazo mínimo de dos meses adicionales a la fecha probable de recepción definitiva del objeto del contrato.
+15.8 En los casos en los que el oferente omita indicar el plazo de vigencia de su garantía de participación, rendida mediante cheque certificado o de gerencia, certificado de depósito a plazo o dinero en efectivo, ella se entenderá vigente por el plazo mínimo de dos meses contados a partir de la fecha máxima establecida para dictar el acto de adjudicación.
+15.9 Si cesare la vigencia de la garantía de participación, la institución, tan pronto como advierta tal circunstancia y siempre que no exista otro incumplimiento trascendente que determine la exclusión de la oferta, prevendrá al interesado, aún después de dictado el acto de adjudicación, para que dentro del término de tres días hábiles proceda a su restablecimiento.
+15.10 Las garantías serán devueltas de la siguiente manera:
+15.10.1 La de participación, a pedido del interesado, dentro de los ocho días hábiles siguientes a la firmeza en vía administrativa del acto de adjudicación. En el caso en que haya sido descalificada una oferta, el interesado podrá retirar la garantía desde el momento en que se constate dicha circunstancia.
+15.10.2 La de cumplimiento, dentro de los veinte días hábiles siguientes a la fecha en que la institución tenga por definitivamente ejecutado el contrato a satisfacción.
+15.11 La garantía de participación no se devolverá al adjudicatario, en tanto este no rinda la garantía de cumplimiento.
+15.12 En caso de silencio del cartel o pliego de condiciones, el adjudicatario se entiende obligado a asegurar el contrato dentro de los diez días hábiles posteriores a la firmeza del acto de adjudicación.

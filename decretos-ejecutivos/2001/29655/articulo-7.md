@@ -1,0 +1,5 @@
+Artículo 7º—Principio de eficiencia.
+7.1 En virtud del principio de eficiencia, se reconoce que el fin primordial de los procedimientos de contratación administrativa es la selección de la oferta más conveniente para la satisfacción del interés general.
+7.2 Toda norma procedimental del presente Reglamento, debe interpretarse en concordancia con el principio de eficiencia, de modo que en todo momento se procurará facilitar las condiciones para la adopción de la decisión final y se favorecerá la conservación de los actos.
+7.3 En todo caso prevalecerá el contenido sobre la forma y no podrá deducirse de la voluntad de las partes, salvo evidente prueba en contrario, la intención de apartarse de las presentes regulaciones normativas y las condiciones fijadas por el CICAD en cada contrato a tramitar.
+Todo defecto u omisión contenido en las ofertas, podrá ser subsanado, en la medida que no implique modificación del precio, objeto y condiciones ofrecidos y no vulnere los principios generales desarrollados en este capítulo, particularmente el de igualdad en la participación.

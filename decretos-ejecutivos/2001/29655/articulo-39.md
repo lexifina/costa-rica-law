@@ -1,0 +1,5 @@
+Artículo 39.—Efectos de la resolución.
+39.1 Contra la resolución del órgano competente que declare sin lugar el recurso de revocatoria o reposición, cabrá recurso de apelación ante la Junta Administrativa, el cual se debe interponer, debidamente fundamentado, dentro de los tres días hábiles siguientes al de su notificación.
+39.2 La resolución que declare sin lugar el recurso de apelación tendrá como consecuencia la firmeza del acto de adjudicación y el agotamiento de la vía administrativa.
+39.3 Cuando la resolución declare con lugar el recurso, parcial o totalmente, se procederá a valorar la eventual readjudicación, la que se deberá disponer en caso de existir ofertas elegibles y convenientes a los intereses del CICAD.
+Dentro de los tres (3) días hábiles siguientes a la notificación del fallo con que se da por agotada la vía administrativa, el interesado podrá impugnar ante el Tribunal Superior Contencioso Administrativo, por medio del proceso especial regulado en los artículos 89 y 90 de la Ley Reguladora de lo Contencioso Administrativo.

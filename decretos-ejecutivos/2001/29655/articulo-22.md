@@ -1,0 +1,7 @@
+Artículo 22.—Del Registro de Proveedores del CICAD.
+22.1 El Registro de Proveedores constituye el instrumento a través del cual la Administración determinará de previo, quienes son sus potenciales proveedores en los procedimientos de licitación restringida y contratación directa que decida llevar a cabo.
+22.2 Al Registro de Proveedores del CICAD podrá solicitar su ingreso todo interesado en contratar con la institución, a cuyo efecto deberá aportar la información y documentos que le serán requeridos.
+22.3 Serán admitidos como potenciales proveedores e inscritos como tales en el respectivo Registro, los interesados que cumplan satisfactoriamente con los requisitos de solvencia, antecedentes y experiencia que el CICAD considere pertinente establecer y exigir, como medida necesaria para resguardar los niveles de seguridad que deben imperar en sus actividades.
+22.4 A efecto de mantener actualizados dichos registros, la Administración invitará mediante publicación en el Diario Oficial y dos diarios de circulación nacional, al menos una vez al año. a que todos los interesados en integrarlo gestionen su ingreso.
+22.5 El Registro podrá mantenerse en medios electrónicos y de contarse con un sistema confiable, el CICAD podrá utilizarlo para enviar las invitaciones correspondientes, recibir ofertas, aclaraciones u otras comunicaciones oficiales.
+El CICAD debe elaborar y publicar el Reglamento del Registro de Proveedores de la institución.

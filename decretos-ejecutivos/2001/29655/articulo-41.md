@@ -1,0 +1,1 @@
+Artículo 41.—Perfeccionamiento del Contrato. Se tendrá por perfeccionada la relación contractual entre el CICAD y el contratista cuando el acto de adjudicación adquiera firmeza y, en los casos que se exija la constitución de garantía de cumplimiento, ésta sea válidamente otorgada.
