@@ -1,0 +1,1 @@
+Artículo 2°─ La Dirección General Forestal otorgará el permiso si previamente, mediante inspección, se constate que el solicitante es dueño del bosque o plantación donde se piensa extraer los árboles.

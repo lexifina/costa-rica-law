@@ -1,0 +1,1 @@
+Artículo 3°─ En el permiso que se extienda y que será firmado por el Director General Forestal, deberá especificarse propietario de la finca, su situación, certificación de propiedad, clase de árbol a extraer y número.
