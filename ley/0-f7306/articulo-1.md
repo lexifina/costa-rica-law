@@ -1,6 +1,8 @@
 CÓDIGO PENAL
 DE LA REPÚBLICA DE
 COSTA RICA
+(Nota de Sinalevi: Mediante Ley N° 15 del 30 de noviembre de 1918, se aprobó un nuevo Código Penal)
+(Nota de Sinalevi: De conformidad con el artículo 8° de la ley N° 4 del 24 de julio de 1917, "Establece penas contra los infractores de las leyes y reglamentos sobre abastos", se establece que queda modificado las disposiciones del presente Código, respecto de los hechos previstos en la ley antes referida)
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente)
 EMITIDO POR EL
 GRAN CONSEJO NACIONAL
