@@ -1,0 +1,2 @@
+Artículo 54.—Los integrantes de los Comités se reunirán en sesión ordinaria, el día, hora y con la frecuencia acordados en la sesión inaugural.
+Por motivos especiales y el criterio de la mayoría podrá variarse la fecha y horas de las sesiones, extraordinariamente se reunirán cuando sean convocados por el Presidente conjuntamente por tres miembros, la convocatoria deberá hacerse con 24 horas de anticipación por lo menos y señalándose el objeto de la sesión. En sesiones extraordinarias sólo se conocerá lo incluido en la convocatoria.

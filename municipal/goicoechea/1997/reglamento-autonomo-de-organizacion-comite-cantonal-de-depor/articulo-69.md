@@ -1,0 +1,1 @@
+Artículo 69.—El proyecto de acta de cada sesión deberá entregarse a los miembros del Comité Cantonal o Comités Distritales según se trate. a más tardar veinticuatro horas antes de la sesión en que serán discutidas y aprobadas.

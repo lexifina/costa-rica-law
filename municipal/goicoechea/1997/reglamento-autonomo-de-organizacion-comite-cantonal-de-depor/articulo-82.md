@@ -1,0 +1,1 @@
+Artículo 82.—Cada trimestre los tesoreros de las Comisiones Distritales y Distritos Deportivos deberán presentar ante el Comité Cantonal el libro de tesorería adjuntando las facturas, comprobantes y recibos correspondientes para su respectivo auditoraje. si este no se presentare, el Comité Cantonal paralizará cualquier gestión económica.

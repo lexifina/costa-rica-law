@@ -1,0 +1,1 @@
+Artículo 53.—En la primera sesión mediante votación secreta, se designaran los cargos de Presidente. Vicepresidente. Secretario de actas y correspondencia. Tesorero y Vocales 1 y 2, Fiscal. Quienes desempeñarán el cargo de forma ad honorem por un período de dos años, pudiendo ser reelectos.

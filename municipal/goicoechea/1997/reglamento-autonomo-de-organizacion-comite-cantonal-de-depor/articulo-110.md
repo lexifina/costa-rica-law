@@ -1,0 +1,1 @@
+Artículo 110.—Se elaborará los reglamentos correspondientes para las Juntas Administradoras y Comisiones Distritales, las cuales deben ser aprobadas por el Comité de Deportes y Municipalidad de Goicoechea.

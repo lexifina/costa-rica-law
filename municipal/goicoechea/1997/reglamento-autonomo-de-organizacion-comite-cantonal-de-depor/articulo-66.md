@@ -1,0 +1,1 @@
+Artículo 66.—De los tipos de votación: Habrá dos tipos de votación: nominal y secreta. Es nominal la votación cuando cada uno de los miembros de la Junta Directiva expresa en forma oral su voto, es secreta aquella votación que se haga mediante el uso de papeletas o por cualquier otro medio a juicio del organismo.

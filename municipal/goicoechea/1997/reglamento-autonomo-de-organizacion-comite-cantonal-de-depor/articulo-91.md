@@ -1,0 +1,1 @@
+Artículo 91.—El Comité Cantonal, Junta Administradora o Comisiones Distritales podrán autorizar la colocación de rótulos en las instalaciones deportivas siempre y cuando lo permita la normatividad aplicable al caso. estableciendo una cuota por este derecho.

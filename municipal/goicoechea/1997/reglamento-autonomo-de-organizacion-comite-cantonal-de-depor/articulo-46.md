@@ -1,0 +1,1 @@
+Artículo 46.—Está prohibido a las Comisiones Distritales y Distritos Deportivos hacer uso de los dineros o fondos del mismo para dar obsequios a equipos o personas, pagar facturas por concepto de fiestas o regalías que no sean de equipos de las ligas menores.

@@ -1,0 +1,1 @@
+Artículo 30.—Las Comisiones Distritales y Distritos Deportivos los conformará una Junta Directiva compuesta por siete miembros, presidente. vicepresidente, secretario, tesorero, dos vocales y un fiscal.

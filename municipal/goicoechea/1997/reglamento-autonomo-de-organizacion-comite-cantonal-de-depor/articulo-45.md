@@ -1,0 +1,1 @@
+Artículo 45.—Para la satisfacción de sus necesidades las Comisiones Distritales y Distritos Deportivos deben organizar actividades para recaudar fondos, pudiendo solicitar para ellos la colaboración de la empresa privada y de las instituciones públicas, así como el aporte del Comité Cantonal de Deportes.

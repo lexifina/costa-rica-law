@@ -1,0 +1,1 @@
+Artículo 62.—De las resoluciones: Las resoluciones que tome el Comité Cantonal en las sesiones se denominarán: acuerdo y fallos. Son fallos todos aquellos que resuelvan sobre cualquier controversia que se presente, son acuerdos todos los demás.

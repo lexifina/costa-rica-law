@@ -1,0 +1,1 @@
+Artículo 106.—El Comité Gamonal de Deportes y Recreación llevara registros contables, los que estarán sujetos a la fiscalización mensual de la Municipalidad y de la Contraloría General de la República cada cuatro meses.
