@@ -1,0 +1,14 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+En sesión ordinaria de Junta Directiva Nº 5317, artículo 2, inciso II, celebrada el día 3 de agosto del 2004:
+SE ACUERDA:
+a) Acoger la recomendación del Consejo Director del Polo Turístico Golfo de Papagayo, dada mediante acuerdo tomado en la sesión
+ordinaria Nº 23-2004, artículo 5, inciso c), numeral 1, celebrada el 3 de agosto del 2004, así como el criterio legal dado mediante oficio DL-685-2004 y aprobar la Adición a Directrices del Plan Maestro General del Proyecto Turístico Golfo de Papagayo:
+“En sesión ordinaria de Junta Directiva Nº 5317, artículo 2, inciso II, celebrada el 3 de agosto del 2004, se acordó aprobar la siguiente reforma al Reglamento del Plan Maestro General del Proyecto Turístico Golfo de Papagayo con el siguiente texto:
+Considerando:
+1. Que el Reglamento al Plan Maestro del Proyecto Turístico Golfo de Papagayo fue aprobado por la Junta Directiva en su sesión Nº 4572, artículo 2, inciso VIII, de 10 de julio de 1995 y publicado en el Diario Oficial La Gaceta Nº 140 de 24 de julio de 1995.
+2. Que el Consejo Director del Polo Turístico Golfo de Papagayo en su sesión Nº 23-2004, artículo 5, inciso c), del 3 de agosto del 2004, ha determinado indispensable que para promover los objetivos perseguidos en el Plan Maestro General, es conveniente establecer un principio general orientador por el cual se estipule un procedimiento uniforme en el que los titulares de las concesiones otorgadas en el área que lo consideren necesarios para el desarrollo de su proyecto turístico, adopten las regulaciones que permitan la creación de organizaciones administradoras de servicios a cargo de la administración, operación y mantenimiento de la infraestructura de las concesiones, así como los reglamentos internos con que vayan a operar.
+3. Que la Junta Directiva igualmente considera apropiado modificar el actual Reglamento al Plan Maestro General del Proyecto Turístico Golfo de Papagayo, mediante la reforma a su artículo 3º, con un nuevo inciso que incorpore ese nuevo principio general orientador del Plan Maestro. Por lo tanto, ACUERDA:
+Artículo 1º—Reformar el artículo 3º del Reglamento del Plan Maestro General del Proyecto Turístico Golfo de Papagayo para incorporar el siguiente inciso l).
+Artículo 3º—Se establecen los siguientes principios orientadores del desarrollo del Proyecto:
+a) (…)
+l) Los titulares de las concesiones dentro del Polo Turístico Golfo de Papagayo podrán adoptar estipulaciones previa aprobación del ICT, para regular la dirección, operación y mantenimiento de su concesión como una comunidad planificada, en las cuales se constituya organizaciones maestras administradoras de los servicios generales comunales y de las áreas comunes, así como regulaciones operativas obligatorias para los miembros de esa comunidad”.
