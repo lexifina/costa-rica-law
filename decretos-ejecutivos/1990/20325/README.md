@@ -13,3 +13,4 @@ Reglamento de la Defensoría General de los Derechos Humanos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-04-10 | la propia norma |
+| 2 | 1994-02-23 | Decreto Ejecutivo 23006 (1994-02-23) |
