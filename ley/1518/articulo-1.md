@@ -1,0 +1,4 @@
+N°1518
+DECRETA:
+Artículo 1°.- Autorízase a la Municipalidad del cantón central de San José para comprar al señor Gonzalo Castro Carazo, adjudicatario de la respectiva liquidación pública, un terreno destinado a ubicar el Crematorio de basuras de la ciudad capital, sitio en la parte sur del distrito de Mata Redonda, en la intersección de la calle Alajuelita y el Río María Aguilar.
+El inmueble está inscrito en el Registro Público, Partido San José, al tomo 1290, folio 439, N°108.00, asiento primero; mide; según plano de la Ingeniería Municipal, tres hectáreas, sesenta áreas, treinta y ocho centiáreas, sesenta y dos decímetros y veintidós centímetros cuadrados, teniendo esta colindancia: Norte, calle pública al Golf Club; Sur, en parte calle pública, en otra parte el río María Aguilar, y en dos pequeñas partes con propiedad de la Sucesión de Mercedes Suárez, Este, la mencionada Sucesión; Oeste, calle pública del Golf Club en parte, y en parte con el río María Aguilar.
