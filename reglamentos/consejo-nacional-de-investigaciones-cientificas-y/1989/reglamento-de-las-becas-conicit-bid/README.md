@@ -13,3 +13,4 @@ Reglamento de las Becas CONICIT-BID
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-11-21 | la propia norma |
+| 2 | 1994-07-29 | Reglamento 0 (1994-07-29) |
