@@ -13,3 +13,4 @@ Declara Patrimonio Histórico Iglesia de Santa AnaUbicada en el Cantón de Santa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-18 | la propia norma |
+| 2 | 1999-02-18 | SINALEVI (sin norma nombrada) |
