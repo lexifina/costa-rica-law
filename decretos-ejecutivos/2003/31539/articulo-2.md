@@ -1,0 +1,26 @@
+Artículo 2º—Modifícase la Relación de Puestos de Cargos Fijos y Servicios Especiales contenida en el Artículo Nº 7, incisos a) y b) de la Ley Nº 8341 o Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2003, publicada en el Alcance Nº 93 a La Gaceta Nº 251 de 30 de diciembre de 2002, en la forma que se indica a continuación:
+REBAJAR:
+000 RELACIÓN DE PUESTOS DE CARGOS FIJOS PARA EL AÑO 2003
+117 - MINISTERIO DE CULTURA, JUVENTUD Y DEPORTES
+Cuota Cuota
+Código Clase Detalle de los puestos mensual anual
+117.749 ACTIVIDADES CENTRALES
+180 FINANCIAR RESOLUCIONES
+DE REASIG. ASIGNACIONES
+Y REAJUSTES SALARIALES
+EMITIDAS POR LA D.G.S.C.
+Y LA AUTORIDAD PRESUP.
+COMO PRODUCTO DE
+ESTUDIOS INDIVIDUALES
+DE PUESTOS ASI COMO POR
+REESTRUCTURACIONES
+INSTITUCIONALES. (A
+DISTRIBUIR POR DECRETO
+EJECUT.) 1.070.000
+TOTAL REBAJAR SUELDOS
+PROGRAMA: 749
+ACTIVIDADES CENTRALES 1.070.000
+TOTAL REBAJAR SUELDOS
+TITULO: 117 MINIST. DE
+CULT. JUVENT. Y DEP. 1.070.000
+TOTAL REBAJAR SUELDOS 1.070.000
