@@ -1,0 +1,1 @@
+Art 24°.- El cargo de Defensor Público es incompatible con cualquier otro empleo, y quien lo ejerce está imposibilitado para toda otra actividad relacionada con su profesión, inclusive la del notario.

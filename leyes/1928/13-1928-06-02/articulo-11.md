@@ -1,0 +1,1 @@
+Art 11°.- A partir de la fecha en las personas indicadas en el artículo 1° de esta ley, tengan defensor particular apersonado, cesaran las funciones del Defensor Público, e igual cosa ocurrirá cuando tratándose de reos mayores de edad, éstos manifiesten que desean defenderse por si misma.

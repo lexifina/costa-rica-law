@@ -1,0 +1,1 @@
+Art 23°.- Cuando un Defensor Público se ha separado del conocimiento de una causa, será reemplazado por otro de la misma jurisdicción si lo hubiere. Si no lo hay, el Tribunal, el Juez o Alcalde que conoce del asunto, nombrará un defensor de oficio de acuerdo con el artículo 10, y lo impondrá detalladamente de todo lo actuado en el proceso.

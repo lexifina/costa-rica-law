@@ -1,0 +1,2 @@
+Art 18°.- Si el reo estuviere confeso, y si no hubiere eximentes ni atenuantes que probar, el Defensor Público podrá pedir, dentro de los ocho días siguientes a la fecha en que quede firme el auto de enjuiciamiento, y siempre que su defendido esté de acuerdo con ella que se prescinda de los trámites del plenario y se cite a las partes para sentencia.
+Si hubiere acusador particular o actor civil, se dará audiencia para tres días acerca de esa solicitud, y si no hubiere oposición dentro de ese término, se accederá a lo pedido.

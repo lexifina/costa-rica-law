@@ -1,0 +1,1 @@
+Art 13°.- Los Defensores Públicos llevarán nota cuidadosa del número de asuntos en que intervengan y del movimiento habido en los procesos en que como tales actúen, debiendo rendir informe trimestral a la Corte Suprema de Justicia acerca del trabajo que hubieren ejecutado.

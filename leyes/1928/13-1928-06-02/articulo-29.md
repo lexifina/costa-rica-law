@@ -1,0 +1,1 @@
+Art 29.- Quedan derogados los artículos ciento siete y ciento ocho (107 y 108) de la Ley Orgánica de Tribunales, y todas las disposiciones legislativas que se opongan a la presente ley, inclusive las que contiene el Código de Procedimiento Penales.
