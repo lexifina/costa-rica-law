@@ -1,0 +1,1 @@
+Art. 8. Las que fueren libres 6 rehusadas por los poseedores, se sacarán a pública subasta mas en el segundo caso, el rematario es obligado a pagar por justa tasacion de peritos al poseedor, las mejoras industriales del terreno, independientemente del valor de éste al tesoro municipal.

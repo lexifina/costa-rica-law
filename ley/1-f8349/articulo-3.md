@@ -1,0 +1,1 @@
+Art. 3. Acompañarán al Agrimensor dos testigos y dos tiradores de cuerda nombrados por la Municipalidad respectiva, cuyo Presidente ha de recibirles juramento de proceder y cumplir bien y fielmente en su encargo, y á su tiempo las declaraciones de que, como del informe del Agrimensor, ha de resultar la calificacion del terreno.
