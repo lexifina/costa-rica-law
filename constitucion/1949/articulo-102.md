@@ -1,39 +1,13 @@
-ARTÍCULO 102.- El Tribunal Supremo de Elecciones tiene las siguientes
-funciones:
+ARTÍCULO 102.- El Tribunal Supremo de Elecciones tiene las siguientes funciones:
 1) Convocar a elecciones populares;
-2) Nombrar los miembros de las Juntas Electorales, de acuerdo con la
-ley;
-3) Interpretar en forma exclusiva y obligatoria las disposiciones
-constitucionales y legales referentes a la materia electoral;
-4) Conocer en alzada de las resoluciones apelables que dicte el
-Registro Civil y las Juntas Electorales;
-5) Investigar por sí o por medio de delegados, y pronunciarse con
-respecto a toda denuncia formulada por los partidos sobre parcialidad
-política de los servidores del Estado en el ejercicio de sus cargos, o
-sobre actividades políticas de funcionarios a quienes les esté prohibido
-ejercerlas. La declaratoria de culpabilidad que pronuncie el Tribunal será
-causa obligatoria de destitución e incapacitará al culpable para ejercer
-cargos públicos por un período no menor de dos años, sin perjuicio de las
-responsabilidades penales que pudieren exigírsele. No obstante, si la
-investigación practicada contiene cargos contra el Presidente de la
-República, Ministros de Gobierno, Ministros Diplomáticos, Contralor y
-Subcontralor Generales de la República, o Magistrados de la Corte Suprema
-de Justicia, el Tribunal se concretará a dar cuenta a la Asamblea
-Legislativa del resultado de la investigación;
-6) Dictar, con respecto a la fuerza pública, las medidas pertinentes
-para que los procesos electorales se desarrollen en condiciones de
-garantías y libertad irrestrictas. En caso de que esté decretado el
-reclutamiento militar, podrá igualmente el Tribunal dictar las medidas
-adecuadas para que no se estorbe el proceso electoral, a fin de que todos
-los ciudadanos pueda emitir libremente su voto. Estas medidas las hará
-cumplir el Tribunal por sí o por medio de los delegados que designe;
-7) Efectuar el escrutinio definitivo de los sufragios emitidos en las
-elecciones de Presidente y Vicepresidentes de la República, Diputados a la
-Asamblea Legislativa, miembros de las Municipalidades y Representantes a
-Asambleas Constituyentes;
-8) Hacer la declaratoria definitiva de la elección de Presidente y
-Vicepresidentes de la República, dentro de los treinta días siguientes a
-la fecha de la votación, y en el plazo que la ley determine, la de los
-otros funcionarios citados en el inciso anterior.
-9) Las otras funciones que le encomiende esta Constitución o las
-leyes.
+2) Nombrar los miembros de las Juntas Electorales, de acuerdo con la ley;
+3) Interpretar en forma exclusiva y obligatoria las disposiciones constitucionales y legales referentes a la materia electoral;
+4) Conocer en alzada de las resoluciones apelables que dicte el Registro Civil y las Juntas Electorales;
+5) Investigar por sí o por medio de delegados, y pronunciarse con respecto a toda denuncia formulada por los partidos sobre parcialidad política de los servidores del Estado en el ejercicio de sus cargos, o sobre actividades políticas de funcionarios a quienes les esté prohibido ejercerlas. La declaratoria de culpabilidad que pronuncie el Tribunal será causa obligatoria de destitución e incapacitará al culpable para ejercer cargos públicos por un período no menor de dos años, sin perjuicio de las responsabilidades penales que pudieren exigírsele. No obstante, si la investigación practicada contiene cargos contra el Presidente de la República, Ministros de Gobierno, Ministros Diplomáticos, Contralor y Subcontralor Generales de la República, o Magistrados de la Corte Suprema de Justicia, el Tribunal se concretará a dar cuenta a la Asamblea Legislativa del resultado de la investigación;
+6) Dictar, con respecto a la fuerza pública, las medidas pertinentes para que los procesos electorales se desarrollen en condiciones de garantías y libertad irrestrictas. En caso de que esté decretado el reclutamiento militar, podrá igualmente el Tribunal dictar las medidas adecuadas para que no se estorbe el proceso electoral, a fin de que todos los ciudadanos pueda emitir libremente su voto. Estas medidas las hará cumplir el Tribunal por sí o por medio de los delegados que designe;
+7) Efectuar el escrutinio definitivo de los sufragios emitidos en las elecciones de Presidente y Vicepresidentes de la República, Diputados a la Asamblea Legislativa, miembros de las Municipalidades y Representantes a Asambleas Constituyentes;
+8) Hacer la declaratoria definitiva de la elección de Presidente y Vicepresidentes de la República, dentro de los treinta días siguientes a la fecha de la votación, y en el plazo que la ley determine, la de los otros funcionarios citados en el inciso anterior.
+9) Organizar, dirigir, fiscalizar, escrutar y declarar los resultados de los procesos de referéndum. No podrá convocarse a más de un referéndum al año; tampoco durante los seis meses anteriores ni posteriores a la elección presidencial. Los resultados serán vinculantes para el Estado si participa, al menos, el treinta por ciento (30%) de los ciudadanos inscritos en el padrón electoral, para la legislación ordinaria, y el cuarenta por ciento (40%) como mínimo, para las reformas parciales de la Constitución y los asuntos que requieran aprobación legislativa por mayoría calificada.
+(Así adicionado el inciso anterior por el artículo 2° aparte a) de la ley N° 8281 de 28 de mayo del 2002)
+10) Las otras funciones que le encomiende esta Constitución o las leyes.
+(Corrida la numeración del inciso anterior por el artículo 2° aparte a) de la ley N° 8281 de 28 de mayo del 2002, que lo traspaso del inciso 9 al 10 actual)
