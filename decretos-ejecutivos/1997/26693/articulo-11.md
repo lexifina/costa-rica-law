@@ -1,0 +1,1 @@
+Artículo 11.—Los investigadores que realicen trabajos con información del Archivo, estarán obligados a entregar una copia del trabajo realizado para incorporarlo, sí así se considera conveniente, al patrimonio del Archivo Central del Ministerio de Agricultura y Ganadería.

@@ -1,0 +1,1 @@
+Artículo 10.—Cualquier ciudadano interesado en consultar documentos deberá hacer una solicitud por escrito indicando claramente las razones del estudio, la cual deberá incluir el visto bueno del Director respectivo o su similar.
