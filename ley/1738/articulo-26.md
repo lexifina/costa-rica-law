@@ -1,0 +1,1 @@
+Artículo 26.— La joyería y artículos manufacturados de oro y de plata, que como muestras traigan los agentes viajeros, no podrán ser desalmacenados para posterior reembarque. Su exhibición debe hacerse en la misma Aduana, con permiso previo y bajo la vigilancia del Administrador.

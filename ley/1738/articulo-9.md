@@ -1,0 +1,1 @@
+Artículo 9º.- Las mercaderías que por contratos o leyes especiales ingresen al país libres de derechos de importación, pagarán un impuesto consular conforme lo indica la ley Nº 4 de 29 de setiembre de 1930. El cálculo del impuesto consular se hará con base en los aforos que indica este Arancel.

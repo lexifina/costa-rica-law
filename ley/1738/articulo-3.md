@@ -1,0 +1,1 @@
+Artículo 3º.- Los artículos o mercaderías no especificados, en cuya composición entraren diferentes materias, pagarán el derecho correspondiente a la materia predominante y en igualdad de condiciones, el derecho que le corresponda a la de mayor aforo, salvo disposición expresa en contrario.

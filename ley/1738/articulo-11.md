@@ -1,0 +1,1 @@
+Artículo 11.- Si por razón de contratos o leyes especiales, o por cualquier otro motivo, se realizaren desalmacenajes libres de derechos aduaneros, la Administración de la Aduana respectiva, cuando fuere posible, ordenará distinguir dicha mercadería con una marca o cualquier otra indicación, que demuestre que el artículo de que se trata, se desalmacenó libre de derechos.

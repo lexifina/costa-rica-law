@@ -1,0 +1,1 @@
+Artículo 32.- Los instrumentos científicos como termómetros, barómetros, etc., que estén adheridos a otros artefactos, como estatuas, figuras, relojes, etc., pagarán con las partidas a que estos últimos corresponda. Esto mismo se observará con todos los demás objetos cuyo derecho sea menor que el del artefacto o artículo a que están adheridos.

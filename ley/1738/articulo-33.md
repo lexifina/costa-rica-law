@@ -1,0 +1,1 @@
+Artículo 33.- Las mercaderías con rótulos o inscripciones sobre ellas o en sus envases y empaque, que les atribuyan calidad superior y que puedan influir en el aumento del precio de venta, pagarán por la clase indicada en el rótulo o en la inscripción.

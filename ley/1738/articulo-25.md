@@ -1,0 +1,1 @@
+Artículo 25.- Al realizarse el reembarque de la mercadería, se devolverán al agente o a su representante los derechos depositados, cuando no hubiere ningún faltante de artículos, deduciendo del depósito por todo derecho la cantidad de cincuenta céntimos de colón por kilo de peso bruto. En el pedimento o póliza de reembarque se especificará el cargo de este impuesto.

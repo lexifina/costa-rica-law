@@ -1,0 +1,1 @@
+Transitorio VI.- Hasta tanto la producción nacional no pueda satisfacer las exigencias del consumo nacional, tanto en cantidad como en calidad, se mantendrá en ¢ 0.85 y 2% Ad Val. el aforo señalado en la partida Nº 022-02-01-1.

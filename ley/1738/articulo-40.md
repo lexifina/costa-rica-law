@@ -1,0 +1,1 @@
+Artículo 40.- Durante el tiempo que las Municipalidades y Concejos de Distrito estén recibiendo esta subvención, no podrán gravar las importaciones directa ni indirectamente, creando impuestos, patentes o tasas a las mismas.
