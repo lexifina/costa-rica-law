@@ -6,6 +6,8 @@ Aprobar el siguiente
 Reglamento General del Instituto Nacional de Seguros
 CAPITULO I
 Disposiciones Generales
-Artículo 1°—El Instituto Nacional de Seguros, que conforme a la Constitución Política es una Institución Autónoma del Estado, se administrará superiormente por su Junta Directiva, un Gerente y un Subgerente. Estos últimos tendrán, en forma indistinta, la representación judicial y extrajudicial del Instituto con las facultades que a los Apoderados Generalísimos señala el artículo 1253 del Código Civil limitadas a la cantidad de cien mil colones, salvo en cuanto a la emisión de pólizas y pago de obligaciones provenientes de las mismas, lo cual se regirá por las disposiciones que dicte la Junta Directiva.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 81 de 30 de octubre de 1965, publicado en La Gaceta N° 250 de 04 de noviembre de 1965.)
-Los Directores, el Gerente y el Subgerente no podrán desempeñar en el Instituto otras funciones o empleos remunerados que los que corresponda a sus respectivos cargos.
+Artículo 1°—El Instituto Nacional de Seguros, estará administrado por una Junta Directiva, un Gerente y un Subgerente. Estos últimos tendrán en forma indistinta la representación judicial y extrajudicial del Instituto con las facultades que a los apoderados generalísimos señala el articulo 1253 del Código Civil, limitadas a la cantidad de quinientos mil colones, salvo en cuanto a la emisión de pólizas y pago de obligaciones provenientes de las mismas, lo cual se regirá por las disposiciones que dicte la Junta Directiva.
+El Gerente podrá sustituir parcialmente sus poderes, y revocar sustituciones.
+La sustitución será de las facultades y en los funcionarios del Instituto que indique previamente la Junta Directiva.
+Ejecutada una sustitución parcial o revocada una sustitución, el hecho deberá ser puesto en conocimiento de la Junta Directiva. Si esta no aprobare la revocación, la responsabilidad en que pudiera incurrir el sustituto no alcanzará al Gerente ni al Subgerente".
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 32 de 11 de julio de 1969, publicado en La Gaceta N° 219 de 27 de setiembre de 1969.)
