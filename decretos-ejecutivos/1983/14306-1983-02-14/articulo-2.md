@@ -1,0 +1,36 @@
+ARTÖCULO 2§.-La emisi¢n de estos bonos estar compuesta por
+los siguientes
+valores:
+80 Bonos de ½ 20.000.000,00, Nos. 1/80 ... ... ... ... ...
+... ½ 1.600.000.000,00
+80 Bonos de 10.000.000,00, Nos. 1/80 ... ... ... ... ...
+... 800.000.000,00
+80 Bonos de 5.000.000,00, Nos. 1/80 ... ... ... ... ...
+... 400.000.000,00
+320 Bonos de 2.000.000,00, Nos. 1/320... ... ... ... ...
+... 640.000.000,00
+400 Bonos de 1.000.000,00, Nos. 1/400... ... ... ... ...
+... 400.000.000,00
+80 Bonos de 500.000,00, Nos. 1/80 ... ... ... ... ...
+... 40.000.000,00
+80 Bonos de 100.000,00, Nos. 1/80 ... ... ... ... ...
+... 8.000.000,00
+80 Bonos de 10.000,00, Nos. 1/80 ... ... ... ... ...
+... 800.000,00
+60 Bonos de 5.000,00, Nos. 1/60 ... ... ... ... ...
+... 300.000,00
+63 Bonos de 1.000,00, Nos. 1/63 ... ... ... ... ...
+... 63.000,00
+------------------
+TOTAL ...
+... ½ 3.889.163.000,00
+==================
+Estos bonos ir n fechados 1§ de abril de 19833, tendr n una
+cuota fija
+trimestral de 2,516071% para atender la amortizaci¢n e inter‚s
+y su plazo ser
+de veinte a¤os. Devengar n un inter‚s del 8% anula, pagadero por
+trimestre
+vencido y para atender la amortizaci¢n e inter‚s se incluir en
+el Presupuesto
+Ordinario de la Rep£blica la suma anual de ½ 391.416.409,56.
