@@ -1,0 +1,1 @@
+Art. 4. Los impuestos de bodegaje, municipal, y peaje, se continuarán cobrando conforme à lo dispuesto en los articulos 16, 17 y 18 del arancel de 9 de junio de 1846, cuya ley regirá en cuanto no se oponga à la presente.

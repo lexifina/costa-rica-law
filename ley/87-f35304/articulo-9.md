@@ -1,0 +1,1 @@
+Art. 9. El comerciante que, durante los seis primeros meses, quiera que el todo de sus efectos sea aforado por la tarifa referida de 10 de junio, será atendido por los Administradores.--Dado en la ciudad de San José, á los veintitres dias del mes de diciembre de mil ochocientos cuarenta y siete. -José Marja Castro. -Al Ministro de hacienda y guerra, Señor Don Manuel José Carazo,
