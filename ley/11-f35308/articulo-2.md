@@ -1,0 +1,2 @@
+Art. 2°-Nómbrase para desempeñar la primera de dichas Secretarías, al Señor Doctor Don José M. Castro; para la segunda, al Señor Licenciado Don Mauro Fernández; y para la tercera y cuarta, interinamente, al Señor Don Santiago de la Guardia.
+Dado en el Palacio Presidencial, en San José, á los catorce días del mes de marzo de mil ochocientos ochenta y cinco. -BERNARDO SOTO. -El Secretario de Estado en el despacho de lo interior. -SANTIAGO DE LA GUARDIA.
