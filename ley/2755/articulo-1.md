@@ -1,0 +1,6 @@
+N° 2755
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+ARTICULO 1º.- El propietario de uno o más derechos indivisos, ya lo sean en una o en varias fincas inscritas en el Registro Público, que estén localizadas de hecho en el terreno formando un solo lote, y que hayan sido poseídos por el término no menor de un año, en forma quieta, pública, pacífica y como dueño, podrá solicitar su inscripción como finca independiente mediante el otorgamiento de una escritura pública previos los trámites que esta ley establece.
+Se presume que el condueño ha poseído por un término no menor de un año en la forma indicada en este artículo, cuando a la fecha de su solicitud haya transcurrido un año o más desde que adquirió el derecho o derechos que trata de localizar. Si no ha transcurrido ese término, deberá probar, ante el Juez que conozca de la información a que se refiere el artículo 2º de esta ley, con la declaración de dos testigos vecinos del cantón donde esté ubicada la respectiva parcela, que ésta ha estado localizada y poseída por no menos de un año, en la forma dicha, por el condueño, y los anteriores dueños del derecho o derechos que se trata de localizar.
+(Así adicionado el párrafo anterior por el artículo 2º de la ley No.2779 de 12 de julio de 1961).

@@ -1,0 +1,1 @@
+ARTICULO 4º.- Cuando se trate de localizar derechos en que sea propietario o colindante el Estado, las diligencias se tramitarán ante el Juez Civil de Hacienda con la intervención de la Procuraduría General de la República.
