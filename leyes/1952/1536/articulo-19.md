@@ -8,4 +8,5 @@ c) Interpretar en forma exclusiva y obligatoria las disposiciones constitucional
 d) Comunicar a los elegidos la declaratoria de elección;
 e) Nombrar, revocar o suspender a sus propios funcionarios y empleados y a los de sus dependencias;
 f) Colaborar en los proyectos de leyes que interesen al sufragio y dictar su Reglamento y los de cualquier organismo que esté bajo su dependencia.
-g) El cargo de miembro del Tribunal Supremo de Elecciones es incompatible con cualquier otra función remunerada por el Estado o sus Instituciones.
+g) El cargo de miembro del Tribunal Supremo de Elecciones es incompatible con cualquier otra función remunerada por el Estado o sus Instituciones, excepto la de Catedrático de la Universidad de Costa Rica, de la Universidad Nacional o del Instituto Tecnológico de Costa Rica.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 5379 del 24 de octubre de 1973)
