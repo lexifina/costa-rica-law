@@ -1,0 +1,7 @@
+N° 38
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE EDUCACION PUBLICA,
+Con base en los incisos 3) Y 18) del artículo 140 de la Constitución Política, considerando la iniciativa presentada por la Junta Administrativa del Colegio San Luiz Gonzaga tendiente a modificar el artículo 4° del Reglamento de la Junta Administrativa del Colegio San Luis Gonzaga, ya que la actual disposición establece incompatibilidad entre el cargo de miembro director de la Junta y el de profesor de cualquier colegio, lo que imposibilita a muy distinguidos profesores para formar parte de la Junta Administrativa del Colegio San Luis Gonzaga, si bien esta prohibición está justificada en el punto a evitar que los profesores del mismo Colegio puedan ser Directores de la Junta, pues de no establecerse así se daría el peligroso contrasentido de admitir la existencia de una Junta Administrativa formada por miembros que son al mismo tiempo sus administrados, no es menos cierto que ese contrasentido se elimina si la incompatibilidad aludida se establece entre el cargo de Director y el de Profesor del mismo Colegio, únicamente,
+DECRETAN:
+Artículo 1°-Modificar la redacción del artículo 4° del Reglamento de la Junta Administrativa del Colegio San Luis Gonzaga, para que se lea así:
+"El cargo de miembro de la Junta es honorífico e incompatible con el de profesor del mismo Colegio, así como con el de Regidor Municipal".
