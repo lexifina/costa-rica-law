@@ -1,0 +1,1 @@
+Artículo 3º.-El trámite que aquí se establece, mantendrá la exención de pago de todo tipo de derechos, tiembres e impuestos relativos a la inscripción, debiendo depositarse las placas que a la fecha utilizaron, para la asignación de la correspondiente placa oficial.

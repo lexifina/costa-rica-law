@@ -1,0 +1,1 @@
+Artículo 2º.-El Ministerio de Obras Públicas y Transportes deberá presentar al Registro Público de Vehículos, la documentación relacionada de cada uno de los automotores a efecto de que el Registro proceda a su debida inscripción. Los documentos que en tal circunstancia se presenten constituyen en todo caso elementos suficientes para la debida inscripción.

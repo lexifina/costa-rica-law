@@ -1,0 +1,1 @@
+Artículo 4º.-Dado que la pretendida inscripción se considera prioritaria, para su tramitación se hará uso de procedimientos extraordinarios y eficientes que garanticen la rápida culminación de la debida inscripción.
