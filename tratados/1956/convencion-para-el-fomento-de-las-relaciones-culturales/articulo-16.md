@@ -1,0 +1,3 @@
+Artículo 16
+La presente Convención regirá indefinitivamente, pero podrá ser denunciada por cualquiera de los Estados signatarios mediante aviso anticipado de un año, transcurrido el cual cesará en sus efectos para el denunciante, quedando en vigor entre los demás Estados signatarios. La denuncia será comunicada a la Unión Panamericana y ésta informará al respecto a los demás Estados signatarios.
+En fe de lo cual, los plenipotenciarios infrascritos, presentados sus plenos poderes que han sido hallados en buena y debida forma, firman la presente Convención, en nombre de sus respectivos gobiernos, en la ciudad de Caracas, el día veintiocho de marzo de mil novecientos cincuenta y cuatro.

@@ -1,0 +1,5 @@
+Artículo 4
+Las becas a que se refiere el artículo 1 se concederán después que los gobiernos interesados canjeen las listas en la forma siguiente:
+Cada gobierno enviará a cada uno de los otros gobiernos, por lo menos 6 meses antes de que empiece el año escolar en el país que recibirá 'al becario, a menos que se acuerde de manera distinta por los gobiernos interesados, una nómina de personas de las indicadas en el artículo 1, junto con las informaciones respectivas que el gobierno que concede las becas considere necesarias. La nómina deberá contener un número suficiente de nombres que permita al país que concede las becas escoger entre los candidatos. Este último anunciará al gobierno postulante, por lo menos 3 meses antes de que empiece su año escolar, la concesión de las becas y los nombres de los favorecidos.
+Los candidatos no podrán figurar más de dos veces en las nóminas.
+Las becas serán concedidas por un año, pero podrán ser prorrogadas a dos años, y en casos excepcionales, a tres. Ningún gobierno estará obligado a considerar la nómina de candidatos de cualquier otro gobierno si no ha sido presentada dentro del plazo indicado.

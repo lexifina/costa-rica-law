@@ -1,0 +1,2 @@
+Artículo 2
+Cada beca incluirá. por intermedio del órgano que se considere apropiado, derechos de matrícula en la institución de enseñanza superior designada por el país que concede la beca, así como textos, material de trabajo, más una mensualidad para cubrir alojamiento, manutención, y otros gastos adicionales indispensables. Los gastos de ida al lugar de la institución designada y los de regreso al país de origen, más una cantidad para gastos ocasionales durante el viaje, serán sufragados por el favorecido o por el gobierno que lo haya postulado.
