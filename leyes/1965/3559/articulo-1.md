@@ -1,4 +1,5 @@
 N° 3559
+(Los efectos de la presente Ley fueron prorrogados por un plazo de cinco años mediante el artículo 10 de la ley N° 4365 del 11 de agosto de 1969 "Creación de la Oficina Filatélica de Costa Rica")
 LA ASAMBLEA DE LA REPUBLICA DE COSTA RICA,
 Decreta:
 Artículo 1°- Toda pieza que circule por correo, cuyo remitente goce de franquicia, deberá llevar agregado un sello postal especial por valor de diez céntimos (¢0.10), que se denominará “Sello Pro Plan Postal y Social”.
