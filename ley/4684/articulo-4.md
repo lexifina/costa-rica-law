@@ -1,1 +1,0 @@
-Artículo 4° Cuando se produzca la cancelación de una representación, agencia o distribución, la casa representada deberá, además, comprar la existencia de sus productos a su representante o distribuidor a precio de costo en su depósito.
