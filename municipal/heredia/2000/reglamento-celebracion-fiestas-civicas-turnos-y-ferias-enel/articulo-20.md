@@ -1,0 +1,1 @@
+Artículo 20.—Se debe enviar copia del acuerdo del Concejo Municipal de aprobación de cualquier actividad de las referidas en este Reglamento a la Auditoria Municipal , para que ésta pueda dar seguimiento al articulo anterior, (presentación de informe económico)

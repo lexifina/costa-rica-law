@@ -1,0 +1,1 @@
+Artículo 9°— En el caso de efectuarse bailes, además de lo indicado en el artículo 2, aportar el aval del Teatro Nacional y autorización extendida por la Asociación de Compositores y Autores Musicales de Costa Rica (ACAM).

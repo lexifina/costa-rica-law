@@ -1,0 +1,2 @@
+Artículo 14.— Si la solicitud de patente temporal es autorizada por el Concejo Municipal, el interesado pagará en la tesorería de la Corporación la suma de cinco mil colones por concepto del permiso, este valor se aumentará automáticamente cada primero de enero de cada ano de conformidad con el porcentaje del aumento de salario establecido para, dicha fecha al salario base definido por el articulo 2 de la ley 7337.
+Asimismo, los establecimientos de licor, deberán instalarse en el perímetro de las fiestas que se encuentren menos poblados.

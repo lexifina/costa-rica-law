@@ -1,0 +1,1 @@
+Artículo 5°—La secretaría del Concejo no dará curso a las solicitudes que se presenten en contravención de lo dispuesto por lo anterior, así como las que se presenten con un plazo que este por debajo al mínimo establecido en el artículo 2, de este reglamento.

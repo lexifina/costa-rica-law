@@ -1,0 +1,1 @@
+Artículo 23.— La Municipalidad de Heredia podrá suspender o cancelar en cualquier momento sin responsabilidad de ningún tipo, la Patente Temporal de Licores, cuando en el lugar autorizado o sus alrededores se produzcan escándalos alteraciones al orden público, o cuando se violen las disposiciones de este Reglamento y de la Ley de Licores.

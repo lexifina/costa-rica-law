@@ -1,0 +1,1 @@
+Articulo 18.—Los organizadores del evento deberán poner a disposición de los chinameros un baño y dos servicios sanitarios; y a disposición del público los servicios sanitarios cumpliendo con las disposiciones emanadas del Ministerio de Salud para este tipo de servicios.

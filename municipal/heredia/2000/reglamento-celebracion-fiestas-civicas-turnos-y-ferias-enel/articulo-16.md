@@ -1,0 +1,1 @@
+Articulo 16.—En cualquier momento la Municipalidad podrán prohibir la explotación de cualquier establecimiento, si recibiere quejas fundamentadas de los vecinos por actos que atenten contra la moral pública y las buenas costumbres; por exceso de ruido o por irrespeto de los horarios establecidos en el articulo anterior.
