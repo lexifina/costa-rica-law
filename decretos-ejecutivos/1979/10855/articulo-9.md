@@ -1,0 +1,1 @@
+Artículo 9°-Los bancos del Sistema Bancario Nacional informarán diariamente al Banco Central, sobre el movimiento bancario de cada una de las instituciones del sector público no financiero a que se refiere este decreto, y depositarán esas sumas de dinero en una cuenta especial en el Banco Central que se denominará "Fondo de Compensación Financiera".

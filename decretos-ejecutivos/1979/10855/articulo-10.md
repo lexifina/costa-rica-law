@@ -1,0 +1,1 @@
+Artículo 10.-Se exceptúan de lo dispuesto en los artículos 6°, 7°, 8° Y 9° del presente decreto, los recursos que la Administración Central maneja a través del Presupuesto Nacional y que en consecuencia están a cargo de la Tesorería Nacional.
