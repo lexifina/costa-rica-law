@@ -1,1 +1,3 @@
-Artículo 3°*Deberá obtener un informe pericial sobre el valor de las propiedades, a fin de fijar el precio de la venta, sin cuyo requisito esta última no podrá verificarse.
+Artículo 3°-Deberá obtener un informe pericial sobre el valor de las propiedades, a fin de fijar el precio de la venta, sin cuyo requisito esta última no podrá verificarse.
+El informe pericial será vertido por el Tribunal de Avalúos de la Tributación Directa y la venta no podrá hacerse por un precio inferior al que señale el dictamen en cada caso. Podrán venderse lotes a plazo, siempre que los interesados cancelen inicialmente el veinticinco por ciento del valor fijado a la parcela que adquieren y que cubran el resto en un período no mayor de cinco años, por medio de cuotas proporcionales, en garantía de cuyo pago deberán otorgar hipoteca de primer grado en favor del Estado.
+(Así adicionado el párrafo anterior por el artículo 4° de la ley N° 1193 del 1° de agosto de 1950.)
