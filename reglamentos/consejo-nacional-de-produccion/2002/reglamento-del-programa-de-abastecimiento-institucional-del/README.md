@@ -15,3 +15,4 @@ Reglamento del Programa de Abastecimiento Institucional del Consejo Nacional de 
 | --- | --- | --- |
 | 1 | 2002-04-25 | la propia norma |
 | 2 | 2003-10-22 | Reglamento 2485 (2003-10-22) |
+| 3 | 2003-12-10 | Reglamento 2493 (2003-12-10) |
