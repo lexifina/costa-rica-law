@@ -15,3 +15,4 @@ Reglamento para otorgamiento de créditos para compra de vehículos y microcompu
 | --- | --- | --- |
 | 1 | 1998-08-11 | la propia norma |
 | 2 | 2001-05-16 | Reglamento 7546 (2001-05-16) |
+| 3 | 2001-05-16 | Ley 8 |
