@@ -1,0 +1,1 @@
+Artículo 26.—El Tribunal podrá modificar los horarios establecidos en esté reglamento, siempre que circunstancias especiales así lo justifiquen y no se perjudique al servicio público ni a los servidores.

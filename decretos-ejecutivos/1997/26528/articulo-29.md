@@ -1,0 +1,1 @@
+Artículo 29.—La ejecución de los trabajos se realizará en el edificio que ocupe el Tribunal. Cuando así lo exijan las circunstancias, el patrono podrá ordenar a sus empleados la ejecución de trabajos en cualquier lugar de la República.

@@ -1,0 +1,1 @@
+Artículo 2°—Este Reglamento será de observancia obligatoria para todos los empleados y el patrono se reserva el derecho de adicionarlo o modificarlo, con sujeción, en cada caso, a las disposiciones legales aplicables.

@@ -1,0 +1,1 @@
+Artículo 74.—En un plazo improrrogable de veinticuatro horas siguientes a la denuncia el miembro Presidente integrará el Órgano Director que tendrá bajo su responsabilidad el procedimiento sumario administrativo.

@@ -1,0 +1,1 @@
+Artículo 54.—La concesión de licencias para estudios, podrá ser denegada cuando así lo justifiquen las necesidades del servicio, sin responsabilidad para el Tribunal y sin que por ello se puedan alegar derechos adquiridos por concesiones similares anteriores.

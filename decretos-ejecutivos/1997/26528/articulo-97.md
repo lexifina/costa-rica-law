@@ -1,0 +1,1 @@
+Artículo 97.—Los Servidores amparados al Régimen de Servicio Civil solo podrán ser removidos de sus puestos si incurren en las causales de despido que determine el Código de Trabajo, el Estatuto de Servicio Civil y demás normativas que corresponda.

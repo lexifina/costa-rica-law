@@ -1,0 +1,1 @@
+Artículo 52.—Únicamente se podrán disfrutar vacaciones proporcionales cuando al no cumplir las cincuenta semanas de servicio continuo, deviene la terminación de la relación de servicio, ante vacaciones colectivas que deba dar el Tribunal, o en casos excepcionales.

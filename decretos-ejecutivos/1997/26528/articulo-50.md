@@ -1,0 +1,1 @@
+Artículo 50.—Para efectos de aplicar la escala de vacaciones que contemplan los artículos mencionados en el numeral anterior, se considerará el tiempo servido en otros poderes e instituciones del Estado.
