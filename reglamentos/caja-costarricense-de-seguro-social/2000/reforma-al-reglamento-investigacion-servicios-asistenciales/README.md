@@ -14,3 +14,4 @@ Reforma al Reglamento Investigación Servicios Asistenciales CCSS
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-01 | la propia norma |
+| 2 | 2000-09-01 | Ley 8 |
