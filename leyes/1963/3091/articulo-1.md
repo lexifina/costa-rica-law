@@ -1,23 +1,27 @@
+Ley Orgánica de la Junta de Administración Portuaria
+y de Desarrollo Económico de la Vertiente Atlántica
+NOTA:
+El texto de esta Ley fue reproducido íntegramente
+por Ley Nº 5337 de 27 de agosto de 1973; la Ley
+Nº 7001 de 19 de setiembre de 1985 la modificó
+"en lo conducente".
+TITULO I
+CONSTITUCION Y NATURALEZA
+Fines: Personería, Domicilio y Duración
 Artículo 1º.- Créase la Junta de Administración Portuaria y de
-Desarrollo Económico de la Vertiente Atlántica, como ente autónomo
-del Estado que se encargará de construir y administrar la
-canalización del Norte del Atlántico de Costa Rica, así como de
-administrar las tierras y bienes que esta misma ley adelante le
-otorgará. Su fin principal es el desarrollo económico, rápido y
-eficiente de la Vertiente Atlántica de Costa Rica.
-La Junta Administrativa asumirá la construcción y
-administración de todos los sistemas portuarios del Atlántico y
-ejercerá vigilancia directa con el objeto de que se cumplan los
-contratos que el Estado tenga con terceros en materia de servicio
-portuario. Con ese fin podrá cobrar derechos por servicio y por
-patentes de pesca y arrendar, vender o explotar tierras, con el
-propósito de promover los fines para los que se crea. También
-controlará el fiel cumplimiento de los contratos que tenga el
-Estado por servicios del Ferrocarril y muelles.
-Cuando se trate de venta, arrendamiento o adjudicación de
-tierras, deberá consultar previamente el criterio del Instituto de
-Tierras y Colonización, criterio del que no podrá apartarse la
-Junta si no es con el voto unánime de su Junta Directiva.
-Las facultades y trámites para expropiación de tierras por
-parte de la Junta, según iguales a los establecidos por ley para el
-Instituto de Tierras y Colonización.
+Desarrollo Económico de la Vertiente Atlántica, en adelante denominada
+JAPDEVA, como ente autónomo del Estado, con carácter de empresa de
+utilidad pública, que asumirá las prerrogativas y funciones de Autoridad
+Portuaria; se encargará de construir, administrar, conservar y operar el
+puerto actual de Limón y su extensión a Cieneguita, así como otros
+puertos marítimos y fluviales de la Vertiente Atlántica, con la salvedad
+de los que operen al amparo del inciso h) del artículo 6º de esta ley.
+Se encargará asimismo de administrar la canalización del Atlántico y las
+tierras y bienes que esta misma ley le otorga. Administrará las empresas
+de transporte ferroviario del Estado que presten servicios de y hacia los
+puertos de la Vertiente Atlántica que específicamente contemple el Poder
+Ejecutivo en los planes nacionales de desarrollo.
+NOTA: La administración de los ferrocarriles del Estado fue
+transferida al Instituto Costarricense de Ferrocarriles (INCOFER) por su
+Ley Orgánica Nº7001 de 19 de setiembre de 1985 (en especial por sus
+artículos 1 a 4, 36 y 45).

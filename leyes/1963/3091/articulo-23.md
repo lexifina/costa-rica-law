@@ -1,7 +1,7 @@
-Artículo 23.- Todos los terrenos del Estado situados en el
-área habilitada por la canalización, comprendidos en una área de
-diez kilómetros desde el mar hacia el interior paralela a la costa,
-y una faja de tres kilómetros de ancho paralela a ambos lados de
-los ríos y canales que administre la Junta, quedarán bajo su
-propiedad, excepto las áreas adjudicadas por leyes anteriores al
-Instituto Costarricense de Turismo.
+Artículo 23.- Las administraciones dependerán de la Presidencia
+Ejecutiva y funcionarán entre sí con absoluta independencia técnica,
+administrativa y de control, con las limitaciones que establece la
+presente ley. Por lo tanto, cada administración llevará su propia
+contabilidad y presentará balances por separado, lo mismo que su cuenta
+de ganancias y pérdidas. La institución, como un todo, deberá presentar
+balances y estados de ganancias y pérdidas consolidadas.
