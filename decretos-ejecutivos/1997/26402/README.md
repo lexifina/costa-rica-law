@@ -15,3 +15,4 @@ Reglamento General Sistema Presupuestario de la Administración Central
 | --- | --- | --- |
 | 1 | 1997-10-28 | la propia norma |
 | 2 | 2000-06-30 | Decreto Ejecutivo 28760 (2000-06-30) |
+| 3 | 2001-08-21 | Decreto Ejecutivo 29763 (2001-08-21) |
