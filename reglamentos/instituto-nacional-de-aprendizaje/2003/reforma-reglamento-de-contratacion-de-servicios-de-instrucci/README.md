@@ -14,3 +14,4 @@ Reforma Reglamento de Contratación de Servicios de Instrucción Técnica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-03 | la propia norma |
+| 2 | 2003-12-08 | Reglamento 4092 (2003-12-08) |
