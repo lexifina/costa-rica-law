@@ -1,1 +1,1 @@
-Artículo 13.- (Derogado por el artículo 3° de la ley N° 6024 del 15 de diciembre de 1976)
+Artículo 13.- (Derogado por el artículo 3° de la ley N° 6024 del 15 de diciembre de 1976. Posteriormente mediante resolución de la Sala Constitucional Nº 4425-94 del 19 de agosto de 1994, se anuló el numeral 13 de la norma N° 7333 del 5 de mayo de 1933, que reformó integralmente la presente ley)
