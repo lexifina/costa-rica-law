@@ -14,3 +14,4 @@ Concede asueto a los empleados públicos del cantón León Cortes de la Provinci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-25 | la propia norma |
+| 2 | 2004-12-07 | SINALEVI (sin norma nombrada) |

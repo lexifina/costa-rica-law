@@ -1,0 +1,1 @@
+Artículo 3 BIS º-Conceder asueto a los empleados públicos del cantón de El Guarro de la provincia de Cartago, el día 8 de diciembre del 2003, con las salvedades que establecen las leyes especiales, con motivo de la celebración de los festejos cívicos de dicho cantón.

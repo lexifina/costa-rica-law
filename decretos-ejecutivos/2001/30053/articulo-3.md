@@ -1,1 +1,2 @@
-Artículo 3°—En relación a los funcionarios de la Dirección General de Aduanas, será el jerarca del Ministerio de Hacienda, el que determine con base en el artículo 14) párrafo segundo de la Ley General de Aduanas y mediante circular interna, si el día señalado se les otorgará como asueto a los funcionarios de esa Dirección que laboren en ese cantón.
+Artículo 3º-Conceder asueto a los empleados públicos del cantón de El Guarro de la provincia de Cartago, el día 8 de diciembre del 2003, con las salvedades que establecen las leyes especiales, con motivo de la celebración de los festejos cívicos de dicho cantón.
+(NOTA DE CONCORDANCIA)
