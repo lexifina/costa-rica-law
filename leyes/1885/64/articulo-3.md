@@ -1,0 +1,1 @@
+Art. 3°.-Señálase el sobresueldo de diez pesos al mes para los maestros de capitales de provincia y de comarca, por el recargo expresado, y el de ocho pesos al mes para los maestros de cabecera de cantón.
