@@ -1,2 +1,2 @@
-Artículo 24.- ReImportación de mercancías gravadas. La ReImportación de mercancías gravadas de producción nacional, que se realice antes de tres años de haber sido legalmente exportadas, no está sujeta al pago del impuesto, si los contribuyentes comprueban ante la aduana respectiva que se trata de las mismas mercancías anteriormente exportadas. En este caso la Aduana est obligada a informar a la Dirección General de la Tributación Directa las reimportaciones de mercancías nacionales practicadas sin el cobro de los impuestos.
-(Así reformado por el artículo 8 del Decreto Ejecutivo N° 21561 de 28 de agosto de 1992)
+Artículo 24.—DEROGADO por el artículo 7 del decreto Ejecutivo N° 21561 de 28 de agosto de 1992.
+(Modificada su numeración por el artículo 11 del Decreto ejecutivo N° 29643 de 10 de julio del 2001, que lo pasó del 23 al 24)

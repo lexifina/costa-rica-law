@@ -1,2 +1,16 @@
-Artículo 18.—Crédito de impuesto sobre mercancías incorporadas en la producción de artículos gravados. Para efecto de lo establecido en el artículo 14 de la ley, los contribuyentes tienen derecho a rebajar del impuesto que se determine conforme se indica en el artículo 19 de este Reglamento, el tributo pagado sobre las materias primas, artículos intermedios y otros insumos, que incorporen en la producción de artículos gravados con este impuesto. La deducción se efectuará siguiendo el procedimiento establecido en el artículo 19 antes citado.
-Cuando el fabricante adquiera mercancías gravadas de personas no contribuyentes, podrá determinar el crédito de impuesto, aplicando el porcentaje sobre el monto de tales compras, determinado por la Dirección, a solicitud del contribuyente.
+CAPITULO VI
+De la liquidación y pago del impuesto
+Artículo 18.—Liquidación en factura. Los fabricantes que sean contribuyentes, obligatoriamente emitirán facturas por todas las ventas de mercancías gravadas que efectúen.
+Las facturas se emitirán, como mínimo, en duplicado, con numeración impresa y en orden consecutivo; el original se entregará al comprador, debiendo conservar el vendedor una copia en su poder para examen por parte de la Dirección, cuando ésta lo estime conveniente. La factura deberá contener por lo menos la siguiente información:
+a) Nombre del propietario o la razón o denominación de la empresa.
+b) Fecha de la venta.
+c) Número de la factura.
+ch) Nombre completo del comprador.
+d) Especificación de los artículos vendidos y el precio de venta de cada uno de ellos.
+e) Descuentos concedidos con especificación de su naturaleza y su monto.
+f) Precio neto de la venta.
+g) Indicación por separado del monto del impuesto de consumo.
+h) Monto del impuesto general sobre las ventas en los casos en que corresponda.
+i) Valor total en colones de la factura.
+La Dirección queda facultada para establecer los controles que estime pertinentes sobre la facturación a que están obligados los contribuyentes, a fin de asegurar una correcta percepción del tributo.
+(Modificada su numeración por el artículo 11 del Decreto ejecutivo N° 29643 de 10 de julio del 2001, que lo pasó del 17 al 18)
