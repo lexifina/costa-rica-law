@@ -1,0 +1,2 @@
+Artículo 10.—De la Impugnación y Prueba: presentada o no la impugnación a que se refiere el artículo anterior, por el sujeto pasivo en su condición de contribuyente o responsable, se procederá a valorar la prueba que conste en el expediente a efecto de determinar la sanción que corresponda o en su caso el archivo del expediente.
+Cuando de los hechos y pruebas se tenga por demostrada(s) la(s) causal (es), el infractor se hará acreedor al cierre de negocio(s) por cinco días naturales. Dicha sanción se establecerá mediante resolución motivada de la Administración Tributaria.

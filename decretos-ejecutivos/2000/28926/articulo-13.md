@@ -1,0 +1,1 @@
+Artículo 13.—Notificación: la notificación de la resolución que impone la sanción de cierre, se hará de conformidad con lo establecido en el artículo 137 del Código de Normas y Procedimientos Tributarios, con aplicación supletoria de la Ley General de la Administración Pública, la Ley de Notificaciones, Citaciones y Otras Comunicaciones Judiciales y el Código Procesal Civil.

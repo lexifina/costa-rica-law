@@ -1,0 +1,1 @@
+Artículo 14.—Recursos: contra la resolución a que se refiere el artículo anterior, podrá interponerse los recursos de revocatoria y apelación para ante el Tribunal Fiscal Administrativo, dentro del plazo común de tres días hábiles, contados a partir de la notificación.

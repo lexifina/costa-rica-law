@@ -1,0 +1,1 @@
+Artículo 20.—Orden de reapertura del negocio: la orden de reapertura del negocio procederá únicamente cuando se ha cumplido el plazo de la sanción, la que será girada por el Gerente de la Administración Tributaria correspondiente.

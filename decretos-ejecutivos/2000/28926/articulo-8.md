@@ -1,0 +1,1 @@
+Artículo 8º—Registro de sanciones por no emisión de facturas: La Administración Tributaria estará obligada a llevar un registro actualizado de los contribuyentes o sujetos pasivos, sancionados por la infracción tipificada en el artículo 85 del Código de Normas y Procedimientos Tributarios, con indicación de la fecha de la resolución que estableció la sanción.

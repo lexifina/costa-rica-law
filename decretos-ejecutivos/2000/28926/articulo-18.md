@@ -1,0 +1,2 @@
+Artículo 18.—Resguardo de cosas perecederas y animales vivos: si en el establecimiento que se va a cerrar, se encuentran mercancías de fácil descomposición, se solicitará al dueño, gerente o administrador, que las coloque en un lugar apropiado, para que no se dañen o deterioren. En caso de negativa, la pérdida será atribuible al propietario del negocio.
+Si se encuentran animales vivos dentro del local, serán puestos a disposición del interesado.

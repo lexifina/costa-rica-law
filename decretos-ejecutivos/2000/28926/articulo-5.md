@@ -1,0 +1,3 @@
+Artículo 5º—Reincidencia: Para que ésta se configure se requiere:
+a. Que exista resolución firme de la Administración Tributaria o del Tribunal Fiscal Administrativo, por la sanción que establece el artículo 85 del Código de Normas y Procedimientos Tributarios. Se entenderá por resolución firme el acto que haya agotado la vía administrativa.
+Que las causales enunciadas en los incisos a) y b) del artículo 3 de este reglamento, sean cometidas por el sujeto pasivo, dentro del plazo de prescripción que establece el Código de Normas y Procedimientos Tributarios. Nada impide que la causal sea diferente a la que dio lugar a la sanción impuesta, siempre que se trate de alguna de las establecidas en los incisos a) y b) del artículo 3 de este reglamento.
