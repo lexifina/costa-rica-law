@@ -1,3 +1,5 @@
+(Derogado)
+(DEROGADO por el Nuevo Reglamento de Servicios Notariales del Banco Nacional de Costa Rica, aprobado en sesión N° 11033 de 23 de mayo del 2000)
 REGLAMENTO PARA SERVICIOS NOTARIALES
 CAPITULO I
 Disposiciones Generales

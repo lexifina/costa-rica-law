@@ -14,3 +14,4 @@ Reglamento para Servicios Notariales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-03-22 | la propia norma |
+| 2 | 2000-05-23 | Reglamento 11033 (2000-05-23) |
