@@ -1,0 +1,1 @@
+Transitorio I.—En el plazo de 60 días, a partir de la fecha de publicación de este decreto, todas las dependencias del Sector Público informarán al Consejo Consultivo, acerca de todos sus programas y proyectos de cooperación internacional en elaboración o en ejecución, con el objetivo de proceder al ordenamiento y sistematización de la cooperación internacional del país.

@@ -1,0 +1,1 @@
+Artículo 7°—Los viceministros serán los responsables de coordinar con el Consejo Consultivo de Cooperación Internacional las acciones propias del ámbito de la cooperación internacional relativas a su institución.

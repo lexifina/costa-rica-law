@@ -1,0 +1,1 @@
+Artículo 8°—Los ministerios de Relaciones Exteriores y Culto y de Planificación Nacional y Política Económica procuraran proporcionar los bienes y servicios necesarios para la realización de las actividades encomendadas al Consejo.

@@ -1,0 +1,1 @@
+Artículo 6°—El Consejo Consultivo de Cooperación Internacional sesionará ordinariamente una vez al mes, y extraordinariamente cuando así se requiera. En lo no previsto, actuará en conformidad con las disposiciones contenidas en el Capitulo Tercero del Título Segundo del Libro Primero de la Ley General de la Administración Pública, en todo aquello que resulten compatibles.
