@@ -9,7 +9,8 @@ d) Procurar la integración del sistema educativo del país—legislación, plan
 e) Disponer lo conducente a efecto de establecer normas adecuadas en relación con los textos de estudio, libros de consulta, material de enseñanza y mobiliario escolar. Para este efecto nombrará comisiones de profesores o de maestros, o bien de instituciones docentes;
 f) Promover la publicación y efectuar la compra de libros de autores nacionales, previo estudio de comisiones especiales;
 g) Resolver la equivalencia de estudios y títulos de estudiantes y de profesionales extranjeros que deseen estudiar o ejercer la docencia en establecimientos nacionales, excepto cuando los títulos hayan sido expedidos por entidades de tipo universitario, previo el informe de los Directores Generales de Educación Pública;
-h) Establecer normas para la inspección de la enseñanza privada y autorizar la creación y funcionamiento de establecimientos particulares de enseñanza pública;
+*h) Establecer normas para la inspección de la enseñanza privada y autorizar la creación y funcionamiento de establecimientos particulares de enseñanza pública;
 i) Formular los planes para la formación docente en los institutos del Estado, y para el perfeccionamiento y el estímulo del Personal Docente;
 j) Elaborar su proyecto de presupuesto anual de gastos; y
 k) Conocer de cualquier otro asunto que le someta el Ministro de Educación o, por lo menos, tres de sus miembros.
+* (Por Resolución de la Sala Constitucional N° 3550 de las 16:00 hrs de 24 de noviembre de 1992 se anula por inconstitucional éste inciso)
