@@ -176,16 +176,17 @@ Rayado común N° 3R, caja de 50 paquetes | 1.212. 85 (Así reformado el punto a
 | | PRECIOS MAXIMOS DE VENTA
 | | De mayorista o detallista ¢ | De detallista a consumidor ¢
 Lápices de grafito: | | |
-Mongol Nos 1, 2, 3 y F | | 75.80 | 7.60 unidad
-Microtomic | | 134.15 | 13.40 unidad
+Mongol Nos 1, 2, 3 y F | | 64.50 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983) | 6.45 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983)
+Microtomic | | 114.10 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983) | 11.40 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983)
 Lápices de color | | |
-Cheek | | 101.40 doc | 10.15 unidad
-Colorbrite | | 109.75 doc | 13.40 unidad
-Colorama, caja de 12 colores | | 1.500.75 doc | 150.05 caja
-Colorama, caja de 24 colores | | 3.001.50 doc | 300.15 caja
+Cheek | | 86.25 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983) | 8.60 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983)
+Colorbrite | | 93.95 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983) | 9.35 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983)
+Colorama, caja de 12 colores | | 1.276.55 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983) | 127.65 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983)
+Colorama, caja de 24 colores | | 2.553.20 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983) | 255.30 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983)
 Boligrafos | | |
-Kilométrico de Paper Mate | | 123.65 doc | 12.35 unidad
-Bic M-25 | | 64.80 doc | 6.50 unidad
+Kilométrico de Paper Mate | | 105.15 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983) | 10.50 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983)
+Bic M-25 | | 55.15 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983) | 5.50 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983)
+Bic-M-39 (Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983) | | 62.70 (Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983) | 6.25 (Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 14409 del 23 de marzo de 1983)
 | | PRECIOS MAXIMOS DE VENTA
 | | Al consumidor ¢
 Sorgo | | 506.85 saco de 46 kilos
