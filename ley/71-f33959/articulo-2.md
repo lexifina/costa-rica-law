@@ -1,1 +1,0 @@
-Art. 2°.— Los Tambores Mayores usarán el mismo uniforme, distinguiéndose por un aro encarnado de 25 milímetros de ancho en la gorra; las bocamangas de la blusa encarnadas y pantalón con franja de paño rojo de 30 milímetros de anchura.
