@@ -1,0 +1,14 @@
+II.—Recepción de ampliaciones de denuncias
+Es importante señalar, que esta será recibida únicamente al denunciante o alguna persona autorizada por este, para lo cual deberá presentar el documento original firmado por el denunciante y autenticado por un abogado.
+Este tipo de denuncias se dan cuando un usuario presentó la denuncia por algún delito y luego decide agregar o eliminar datos, tales como la marca, serie o modelo de los artículos o del bien sustraído, por lo que se le da el beneficio de regresar a la Oficina de Recepción de Denuncias y presentar la ampliación con los datos que haya podido recabar, con el fin de agilizar la investigación del caso por la Sección correspondiente del 0IJ.
+PASO
+1 | Usuario | Se presenta a la recepción de la Oficina Recepción de Denuncias e indica que va a realizar una ampliación.
+2 | Auxiliar Administrativo 1 ó 2 (recepcionista)(1)de la ORD | Entrega al usuario una ficha con un número consecutivo a la cual le anota al dorso la hora en que se presentó y le indica que espere en la sala de recepción o bien si el encargado esta desocupado procede a pasarlo para ser atendido.
+3 | Auxiliar Administrativo 1 ó 2 (digitador)(4) de la ORD | Recibe al denunciante, le solicita el número de cédula con el fin de buscar en el Sistema de Información Policial (TEAM-UP) la denuncia correspondiente y procede a realizar la ampliación de la misma. Una vez terminada la ampliación procede a imprimir el documento y lo pasa al usuario para su revisión y firma.
+4 | Usuario | Revisa la ampliación de denuncia, la firma y la entrega al Auxiliar Administrativo 1 ó 2.
+5 | Auxiliar Administrativo 1 ó 2 (digitador) de la ORD | Trastada la denuncia ampliada al Fiscal para su revisión y firma.
+6 | Fiscal Auxiliar de la ORD | Procede a revisar la ampliación de la denuncia, la firma y la devuelve al Auxiliar Administrativo 1 ó 2.
+7 | Auxiliar Administrativo 1 ó 2 (digitador) de la ORD | Imprime dos copias de la ampliación de la denuncia y procede a entregar una al denunciante, la otra junto con el original y la ficha de ingreso la traslada a la casetilla de la Sección correspondiente, que para tales efectos tiene la oficina, con el fin de que se distribuya.
+8 | Auxiliar de Servicios Generales de la ORD | Retira los documentos de la casetilla y procede a incluir en el libro de conocimiento, cada denuncia por delito para su entrega a los Auxiliares de Servicios Generales de cada Sección del OIJ, una vez que se presentan.(7)
+9 | Auxiliares de Servicios Generales de las Secciones del 0IJ | Se presenta a la Oficina de Recepción de Denuncias a retirar las mismas chequeando en el libro de conocimiento los números de estas contra los originales y proceden a firmar como recibido conforme.
+(7) Los cuales se presentan diariamente a la Oficina de Recepción de Denuncias a las 8:00 a.m. y luego a las 3:30 p.m.
