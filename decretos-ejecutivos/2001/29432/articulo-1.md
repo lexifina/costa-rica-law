@@ -12,4 +12,5 @@ Considerando:
 4º—Que mediante el Decreto Ejecutivo Nº 28639-H, publicado en La Gaceta Nº 101 del 26 de mayo del 2001, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2001, las cuales fueron conocidas por el Consejo de Gobierno y debidamente aprobadas por el Presidente de la República, estableciendo los límites de gasto presupuestario y de gasto efectivo del presente año, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
 5º—Que mediante el Decreto Ejecutivo Nº 29334-H, publicado en el Alcance Nº 21 a La Gaceta Nº 45 del 5 de marzo del 2001, se estableció el nuevo límite presupuestario y de gasto efectivo del 2001, para el ICODER, el cual se hace necesario modificar. Por tanto,
 Decretan:
-Artículo 1º—Modifícase el límite presupuestario y de gasto efectivo para el año 2001, establecido para el Instituto Costarricense del Deporte y la Recreación, en el artículo 1º del Decreto Ejecutivo Nº 29334-H, fijándolo en ¢1.431.5 millones.
+Artículo 1º—Modifícase el límite presupuestario y de gasto efectivo para el año 2001, establecido para el Instituto Costarricense del Deporte y la Recreación, en el artículo 1º del Decreto Ejecutivo Nº 29334-H, fijándolo en ¢1.511,5 millones.
+(Modificado límite de gasto presupuestario y efectivo, mediante Decreto Ejecutivo N° 29552 de 14 de mayo del 2001)

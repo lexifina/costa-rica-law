@@ -14,3 +14,4 @@ Modifica Gasto Presupuestario y Efectivo para el año 2001, del Instituto Costar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-04 | la propia norma |
+| 2 | 2001-05-14 | Decreto Ejecutivo 29552 (2001-05-14) |
