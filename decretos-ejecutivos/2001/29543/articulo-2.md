@@ -1,0 +1,1 @@
+Artículo 2º—Designar al señor Juan Diego Arce Barrantes, mayor, casado una vez, Administrador de Empresas, vecino de Candelaria de Naranjo, Alajuela, portador de la cédula de identidad número dos-tres tres cuatro-cuatro dos cinco, como representante del Ministro de Gobernación y Policía, y Seguridad Pública ante el Consejo Nacional de Desarrollo Comunal.
