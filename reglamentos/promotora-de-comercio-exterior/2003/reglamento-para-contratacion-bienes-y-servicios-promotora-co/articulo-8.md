@@ -1,0 +1,1 @@
+Artículo 8º—Clases de procedimientos. Los procedimientos de contratación establecidos en el presente Reglamento son: Licitación Pública, Licitación Privada, Contratación General, Remate, Subasta a la Baja, Contratación Directa y cualquier otra modalidad de contratación que satisfaga la necesidad de PROCOMER previamente aprobada por la Junta.

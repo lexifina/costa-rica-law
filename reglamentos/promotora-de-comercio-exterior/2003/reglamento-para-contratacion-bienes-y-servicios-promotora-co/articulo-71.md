@@ -1,0 +1,4 @@
+Artículo 71.—Efectos de la resolución. La resolución que declare sin lugar el recurso de revocatoria o apelación tendrá como consecuencia la firmeza del acto de adjudicación.
+Cuando la resolución declare con lugar el recurso parcial o totalmente se anulará el acto impugnado en el tanto correspondiente, y en el caso de existir ofertas elegibles y convenientes a los intereses de PROCOMER, se proceda a la adopción de una nueva decisión de readjudicación, o en su caso a declarar desierta la contratación.
+La resolución final dictada por PROCOMER, se deberá ordenar la devolución al recurrente del porcentaje señalado en el artículo anterior.
+La resolución final deberá ser notificada a las partes dentro de los cinco días hábiles siguientes, prorrogables por un mismo período por parte de la Comisión Administrativa o la Junta Directiva según corresponda.

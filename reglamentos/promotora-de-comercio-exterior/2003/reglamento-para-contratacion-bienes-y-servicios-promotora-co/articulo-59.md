@@ -1,0 +1,9 @@
+CAPÍTULO VIII
+Subasta a la baja
+Artículo 59.—Este procedimiento podrá ser utilizado cuando se requiera adquirir bienes, cuya cuantía no supere los quince millones de colones. En la tramitación de este procedimiento se observarán las siguientes reglas:
+a) Se cursará invitación al menos a tres de los proveedores que distribuyan el bien, en donde se les avisará que se trata de un procedimiento de subasta a la baja. La invitación deberá contener los requisitos esenciales que deben cumplir los oferentes, tales como característica del bien, cantidades, condiciones de entrega, etc.; así como cualquier otra información relevante para la debida ejecución de este procedimiento.
+b) Una vez que la administración revisa las ofertas presentadas, procederá a excluir aquellas que no cumplen con las condiciones mínimas solicitadas.
+c) Posteriormente invitará a los oferentes que sí cumplieron con las condiciones esenciales, a participar en una diligencia para recibir, verbalmente o por medios electrónicos las cotizaciones. Las cotizaciones así formuladas podrán ser mejoradas en el mismo acto o en el plazo designado por PROCOMER. Esta diligencia será dirigida por el Jefe del Departamento de Servicios Generales y Compras.
+d) Se adjudicará la compra al proveedor que ofrezca el precio más bajo.
+e) Inmediatamente después de que fue aprobada la postura más baja, el proveedor procederá a depositar, si así fue exigido en la invitación, una garantía de cumplimiento que oscilará entre un 1% y un 10% del valor total de su oferta.
+f) De la diligencia se levantará un acta, en la que se consignarán las incidencias relevantes del acto, las observaciones realizadas por las personas participantes, los datos del adjudicatario y la mención correspondiente al depósito de la garantía de participación, en caso de ser necesario. El acta será suscrita por el Jefe del Departamento de Servicios Generales y Compras.

@@ -1,0 +1,3 @@
+Artículo 7º—Disponibilidad presupuestaria. Para iniciar el procedimiento de contratación, la Gerencia solicitante deberá contar con los recursos presupuestarios necesarios para cumplir la erogación respectiva.
+Para atender una necesidad calificada se podrá iniciar el procedimiento de contratación sin contar con los recursos presupuestarios suficientes, previa aprobación de la Gerencia General, si se tiene la seguridad de que se contará con ellos en el momento de la adjudicación.
+En aquellos casos en que la ejecución del contrato se realice en varios períodos presupuestarios, el solicitante de la contratación deberá realizar las gestiones pertinentes ante la Gerencia Administrativa Financiera para asegurar la existencia de contenido presupuestario.

@@ -1,0 +1,1 @@
+Artículo 43.—Modificaciones y aclaraciones al Cartel. Las modificaciones o aclaraciones al Cartel deberán hacerse del conocimiento de los interesados a través del mismo medio de comunicación que PROCOMER utilizó para realizar la invitación.

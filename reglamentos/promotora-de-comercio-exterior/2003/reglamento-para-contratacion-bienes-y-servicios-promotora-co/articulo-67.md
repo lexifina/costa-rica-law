@@ -1,0 +1,1 @@
+Artículo 67.—Legitimación y plazos para interponer el recurso. Estará legitimado para recurrir quien haya presentado oferta y sea sujeto de adjudicación, y deberá interponer el recurso de revocatoria o apelación, cuando corresponda, dentro del plazo de dos días hábiles siguientes a la notificación de la adjudicación.

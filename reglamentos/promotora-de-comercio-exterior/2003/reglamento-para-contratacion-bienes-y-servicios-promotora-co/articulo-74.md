@@ -1,0 +1,1 @@
+Artículo 74.—De la recomendación. Atendiendo al procedimiento adoptado, la recomendación de la aplicación de una sanción corresponderá a la Gerencia Administrativa – Financiera y/o la Gerencia o Departamento que tramitó la contratación, el cual deberá garantizar el debido proceso al Contratista.

@@ -1,0 +1,1 @@
+Artículo 78.—Derogatorias. El presente Reglamento deja sin efecto el Reglamento para la Contratación de Bienes y Servicios de la Promotora del Comercio Exterior de Costa Rica aprobado en sesión número 26-97 celebrada el día 7 de octubre de 1997 y sus reformas y cualquier norma o procedimiento que se le oponga.

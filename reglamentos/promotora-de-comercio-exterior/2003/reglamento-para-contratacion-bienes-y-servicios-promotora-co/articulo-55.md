@@ -1,0 +1,6 @@
+CAPÍTULO VI
+Licitación privada y contratación general
+Artículo 55.—Licitación Privada. Para las compras y contrataciones iguales o superiores a quince millones de colones e inferiores a treinta millones de colones, el Departamento de Servicios Generales y Compras invitará a cotizar a un mínimo de cinco proveedores inscritos en el Registro correspondiente. Si el número de proveedores inscritos para una determinada prestación es superior a diez, la Administración podrá invitar a participar en el concurso mediante publicación en al menos un diario de circulación nacional.
+Cuando el número de proveedores inscritos para una determinada prestación sea inferior a cinco, se deberá invitar a participar en el concurso por medio de una publicación en al menos un diario de circulación nacional.
+Podrá participar en el concurso cualquier proveedor no registrado siempre y cuando cumpla con los requisitos y condiciones exigidos en el cartel o pliego de condiciones.
+Cuando se haya adoptado el procedimiento de Licitación Privada con fundamento en la estimación preliminar de la misma, y una vez hecho el análisis y la oferta ganadora supera en no más de un diez por ciento sobre el monto límite para la aplicación de este procedimiento no se invalidará la contratación si se dispone de recursos presupuestarios suficientes para asumir la erogación.

@@ -1,0 +1,1 @@
+Artículo 66.—Recurso de apelación. Cabrá recurso de apelación ante la Junta Directiva contra el acto de adjudicación cuando el monto de la adjudicación impugnada supere los veinticinco millones de colones.

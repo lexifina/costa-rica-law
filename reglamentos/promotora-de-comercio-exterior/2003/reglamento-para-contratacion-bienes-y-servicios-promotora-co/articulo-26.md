@@ -1,0 +1,1 @@
+Artículo 26.—Reajuste de precios. Con el fin de mantener el equilibrio económico del contrato, el Contratista o PROCOMER cuando así corresponda, estarán autorizados para solicitar el reajuste de precios de contratos en ejecución.

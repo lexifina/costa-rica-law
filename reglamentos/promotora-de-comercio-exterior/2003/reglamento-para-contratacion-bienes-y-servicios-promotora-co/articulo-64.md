@@ -1,0 +1,6 @@
+CAPÍTULO XI
+De los recursos
+Artículo 64.—Recurso de objeción al cartel o pliego de condiciones. Contra el cartel de la licitación pública o el pliego de condiciones de la licitación privada podrá interponerse recurso de objeción ante la Gerencia General de PROCOMER dentro del primer tercio del plazo para presentar ofertas.
+Podrá interponer el recurso de objeción al cartel o pliego de condiciones de la licitación publica o privada, cualquier potencial oferente del bien, servicio u obra requerido. Cuando la objeción la formule un representante deberá acreditar dicha condición.
+En el escrito de objeción deberá argumentarse al menos sucintamente, la legitimación, con indicación de la relación entre la actividad del potencial oferente y el objeto del concurso. El objetante deberá indicar las infracciones precisas que le imputa al cartel o las especificaciones técnicas, con señalamiento de las violaciones de los principios fundamentales de la contratación administrativa o de las reglas del procedimiento que corresponda.
+El recurso de objeción al cartel o pliego de condiciones deberá resolverse dentro de los diez días hábiles siguientes a su presentación. Si no se resuelve dentro de este plazo se tendrá como acogido favorablemente.

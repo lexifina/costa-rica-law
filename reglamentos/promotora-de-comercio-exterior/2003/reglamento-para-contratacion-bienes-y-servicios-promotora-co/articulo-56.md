@@ -1,0 +1,4 @@
+Artículo 56.—Contratación general: En los siguientes supuestos procede la contratación general:
+a) Compras y contrataciones superiores a dos mil dólares e inferiores a quince millones de colones
+b) Contratación de servicios profesionales, técnicos, consultorías relacionadas con la actividad de PROCOMER.
+En los supuestos de contratación general, el Departamento de Servicios Generales y Compras o la Gerencia o Departamento que desee tramitar la contratación, invitará a cotizar a un mínimo de tres proveedores del Registro de Proveedores, sin perjuicio de que se cotice además a otros proveedores no inscritos. En caso de no existir proveedor inscrito, la administración podrá buscarlo por otros medios y facultativamente dependiendo del objeto a contratar, se podrá realizar invitación a través de algún medio de comunicación nacional.

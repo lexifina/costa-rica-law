@@ -1,0 +1,1 @@
+Artículo 29.—Límites de la cesión. Los derechos y las obligaciones del contratista no podrán ser objeto de cesión, salvo autorización previa y expresa de PROCOMER. No se considerará cesión, la disposición que haga el contratista sobre la forma y destino del pago.
