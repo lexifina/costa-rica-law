@@ -14,3 +14,4 @@ Modifica límite de gasto presupuestario para el Consejo nacional para investiga
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-12 | la propia norma |
+| 2 | 2004-03-15 | Decreto Ejecutivo 31739 (2004-03-15) |

@@ -10,3 +10,4 @@ Considerando:
 6º—Que es necesario modificar el límite fijado, a los efectos de incorporar dichos recursos. Por tanto:
 DECRETAN:
 Artículo 1º—Modificase al Consejo Nacional para Investigaciones Científicas y Tecnológicas el límite de gasto presupuestario para el 2004, establecido en el artículo 1° del Decreto Ejecutivo Nº 31092-H, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, y comunicado mediante STAP-CIRCULAR 0485-03 del 23 de abril del 2003, de manera que el gasto presupuestario no exceda la suma de ¢ 862,7 millones en ese período.
+(NOTA: Mediante Decreto Ejecutivo N° 31739 de 15 de marzo de 2004, se modifica al Consejo Nacional para Investigaciones Científicas y Tecnológicas el límite de gasto presupuestario para el 2004, establecido en este artículo, de manera que no exceda la suma de ¢892.7 millones en ese período)
