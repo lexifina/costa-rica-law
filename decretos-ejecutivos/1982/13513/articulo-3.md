@@ -1,0 +1,3 @@
+ARTICULO 3°.- Modifcase el artculo 4° del Decreto Ejecutivo N° 11217 de 25 de febrero de 1980, para que se le adicionen los siguientes incisos:
+"j) Condohotel: En un tipo de establecimiento hotelero en que la propiedad del inmueble est acogida a la Ley de Propiedad Horizontal, N° 3670 de 22 de marzo 1966, y en que la explotación hotelera esá garantizada mediante un contrato de administración con una empresa operadora hotelera que asume las funciones correspondientes a los administradores según la ley y las que se derivan del carácter hotelero de la operación.
+k) Botel: Establecimiento hotelero que se ubica en una instalación flotante o sobre un buque de pasajeros que se inmoviliza permanente o transitoriamente para cumplir estas funciones".
