@@ -12,3 +12,4 @@ MALAJUELA: Interior de Trabajo de la Municipalidad de Alajuela
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1952-07-22 | la propia norma |
+| 2 | 1997-06-23 | Reglamento municipal 54 (1997-06-23) |
