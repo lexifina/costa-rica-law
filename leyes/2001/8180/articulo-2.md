@@ -30,3 +30,4 @@ Artículo 2: Apruébanse los siguientes egresos ordinarios y extraordinarios par
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30800 de 16 de octubre del 2002)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30816 de 31 de octubre del 2002)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30814 de 14 de octubre del 2002)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 30829 de 7 de noviembre del 2002)
