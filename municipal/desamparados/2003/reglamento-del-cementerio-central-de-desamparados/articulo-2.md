@@ -1,0 +1,1 @@
+Artículo 2º—La materia regulada en este reglamento se fundamenta en lo dispuesto por la Ley General de Salud Nº 5395, artículos 36 y 327 al 330 y el Reglamento General de Cementerios, Decreto Ejecutivo Nº 22183-S del 6 de mayo de 1993.

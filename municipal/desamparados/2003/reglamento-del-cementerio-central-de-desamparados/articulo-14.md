@@ -1,0 +1,1 @@
+Artículo 14.—Cuando el pago no sea de contado, el adquirente deberá firmar un pagaré a favor de la Municipalidad con las condiciones de la compra y la garantía de uno o más fiadores, según sea el monto, de conformidad con lo que al efecto establece el Código de Comercio y en las condiciones financieras establecidas por la Municipalidad.

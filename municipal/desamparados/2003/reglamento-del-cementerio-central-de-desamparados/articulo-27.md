@@ -1,0 +1,1 @@
+Artículo 27.—La Municipalidad comunicará al arrendatario con un mes de anticipación, el vencimiento de su contrato de arrendamiento. El arrendatario tendrá además un plazo de 8 días naturales posteriores al vencimiento de los cinco años, para desocuparlo habiendo mediado o no apercibimiento.

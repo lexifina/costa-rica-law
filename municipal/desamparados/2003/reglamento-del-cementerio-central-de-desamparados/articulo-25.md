@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De los nichos municipales de alquiler
+Artículo 25.—La Municipalidad dispondrá la construcción de nichos municipales comunes en sitios estratégicos del cementerio para darlos en arriendo por un período de 5 años, no renovable, únicamente a personas vecinas del distrito centro del cantón de Desamparados. Tendrán acceso a los mismos cualquier interesado que no tenga derechos en el cementerio y aquellos que posean un derecho, pero que en ese momento esté ocupado. Los nichos municipales que se encuentran alquilados al momento de entrar en vigencia el presente reglamento, mantendrán los cuerpos inhumados hasta que completen los 5 años, contados desde el momento en fueron enterrados.

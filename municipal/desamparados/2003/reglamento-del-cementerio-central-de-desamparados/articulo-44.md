@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De las exhumaciones
+Artículo 44.—En concordancia con la normativa respectiva, las exhumaciones se consideran de dos tipos: ordinarias y extraordinarias. Las primeras son las que se efectúan después de cinco años de inhumados los restos, mediante autorización del Ministerio de Salud para ser trasladados al osario o para ser incinerados, en caso de nichos de alquiler la Administración hará la exhumación en presencia de dos testigos y se elaborará el acta correspondiente; y las segundas se realizarán cuando los cadáveres sean desenterrados por orden de la autoridad judicial para investigaciones de interés de la justicia o con permiso de la División de Epidemiología del Ministerio de Salud para ser trasladados a otras sepulturas o para ser incinerados.

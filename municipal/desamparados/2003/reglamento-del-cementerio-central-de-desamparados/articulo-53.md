@@ -1,0 +1,1 @@
+Artículo 53.—La Administración queda obligada a facilitar las inspecciones a las autoridades administrativas y sanitarias, a fin de fiscalizar la aplicación correcta de lo establecido por la Ley General de Salud y el Reglamento General de Cementerios, en esta materia.
