@@ -14,3 +14,4 @@ Reglamento para la Contratación de Bienes y Servicios de la Promotora de Comerc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-11-27 | la propia norma |
+| 2 | 1998-02-03 | Reglamento 34 (1998-02-03) |
