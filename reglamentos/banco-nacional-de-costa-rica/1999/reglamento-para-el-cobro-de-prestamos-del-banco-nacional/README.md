@@ -16,3 +16,4 @@ Reglamento para el Cobro de Préstamos del Banco Nacional
 | 1 | 1999-06-24 | la propia norma |
 | 2 | 1999-08-24 | Reglamento 10994 (1999-08-24) |
 | 3 | 1999-09-14 | Reglamento 10997 (1999-09-14) |
+| 4 | 1999-10-12 | Reglamento 11002 (1999-10-12) |
