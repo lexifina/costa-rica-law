@@ -15,3 +15,4 @@ Reglamento para Registro de Oferentes y Procedimientos de Compra de Productos Qu
 | --- | --- | --- |
 | 1 | 1984-09-15 | la propia norma |
 | 2 | 1986-08-28 | Reglamento 6049 (1986-08-28) |
+| 3 | 1997-10-21 | Reglamento 7169 (1997-10-21) |
