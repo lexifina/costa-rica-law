@@ -1,0 +1,1 @@
+Articulo 24.- En ningún caso, una misma empresa podrá disfrutar por más de una vez de los beneficios de la presente ley o de sus reformas, para el mismo tipo de bienes en una rama de actividad específica.

@@ -1,0 +1,1 @@
+Artículo 43.- Los importadores que gozaban de exenciones tributarias a la importación mediante normas derogadas por esta Ley, que hayan embarcado mercancías con destino a Costa Rica en la fecha anterior a la de publicación de la presente Ley, tendrán derecho a la exención para la importación de esas mercancías.

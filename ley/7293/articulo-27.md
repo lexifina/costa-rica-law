@@ -1,0 +1,3 @@
+Artículo 27.- Modifícase el segundo párrafo del artículo 10 de la Ley General sobre las Ventas para que, en lo sucesivo, diga:
+"Artículo 10.-
+... Desde el 1 de enero de 1992, la tarifa se disminuirá para que sea de un doce por ciento (12%); a partir del 1 de enero de 1993, se disminuirá para que sea de un once por ciento (11%) y a partir del 1 de enero de 1994, se reducirá a un diez por ciento (10%). El consumo de energía eléctrica queda gravado y se le aplicarán las tarifas arriba mencionadas, con excepción del consumo de energía eléctrica residencial, cuya tarifa será permanentemente de un cinco por ciento (5%)'."

@@ -1,0 +1,2 @@
+Artículo 38.- Del procedimiento para resolver la ineficacia de la exención.
+En virtud de lo anterior, cuando por razón de incumplimiento imputable al beneficiario, se deba resolver la ineficacia sobreviniente de los actos administrativos declaratorios del derecho a la exención, la Dirección General de Hacienda, como órgano superior de la Administración Tributaria o el órgano administrativo en el que esta delegue estas funciones, deberá impulsar y seguir el procedimiento administrativo ordinario establecido en los siguientes artículos.
