@@ -1,0 +1,1 @@
+Artículo 15.—Los fondos que el Estado o sus instituciones asignen para la celebración de esta efeméride, deberán ser depositados en la cuenta Nº 38939-5 de la Academia de Geografía e Historia de Costa Rica, cuenta especial de la Comisión Nacional de Conmemoraciones Históricas, según Ley Nº 5118, del 28 de noviembre de 1972.

@@ -1,0 +1,1 @@
+Artículo 16.—En lo no previsto en el presente Decreto Ejecutivo, sobre el funcionamiento de la Comisión, se aplica supletoriamente las disposiciones generales de la Ley General de la Administración Pública, en cuanto al funcionamiento de los órganos colegiados.
