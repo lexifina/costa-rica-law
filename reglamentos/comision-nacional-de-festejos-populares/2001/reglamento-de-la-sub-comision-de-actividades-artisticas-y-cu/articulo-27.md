@@ -1,0 +1,1 @@
+27.—El jurado, calificará los siguientes aspectos en cada categoría letra, melodía y armonía, arreglo musical, presentación y dominio pleno de coros (para grupos). La sumatoria de los grupos sería de 50 puntos para solistas y de 60 puntos para los grupos, los cuales se convertirán en la máxima puntuación obtenida.

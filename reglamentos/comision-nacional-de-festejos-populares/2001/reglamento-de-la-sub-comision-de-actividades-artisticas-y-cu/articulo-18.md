@@ -1,0 +1,1 @@
+18.—Toda interpretación de canción original que el jurado considere plagio de otra canción se descalificará automáticamente, argumentándose los motivos de la descalificación. Esto rige en cualquiera de las fases de las eliminatorias o finales.

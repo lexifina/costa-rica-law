@@ -1,0 +1,1 @@
+29.—No podrá participar el ganador del primer lugar del año anterior (los segundos y terceros lugares, si podrán participar con la salvedad de que deben participar con un tema distinto al año anterior.)

@@ -1,0 +1,1 @@
+10.—Cada solista o grupo participante deberá proveerse de los instrumentos musicales necesarios para su acompañamiento y el transporte de los mismos. La Subcomisión organizadora no se hará responsable por el deterioro y/o pérdida de los mismos.

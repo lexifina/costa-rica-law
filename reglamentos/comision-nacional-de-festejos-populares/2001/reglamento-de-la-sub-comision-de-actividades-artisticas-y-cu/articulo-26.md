@@ -1,0 +1,1 @@
+26.—Se impedirá la participación de miembros del jurado que presenten indicios de haber ingerido licor o drogas. Además, no se brindará atención a los miembros del jurado, con cualquier clase de bebidas etílicas, cerveza u otra bebida afín.

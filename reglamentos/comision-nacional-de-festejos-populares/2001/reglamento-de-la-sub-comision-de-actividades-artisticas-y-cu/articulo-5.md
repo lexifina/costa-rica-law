@@ -1,0 +1,1 @@
+5°—Al momento de inscripción los solistas deben de cancelar la suma de 02.500 colones; los grupos pagarán 03.500, en la categoría infantil será de 02.000, para niños de 8 y 12 años (solista infantil), traer copia de certificado de nacimiento.

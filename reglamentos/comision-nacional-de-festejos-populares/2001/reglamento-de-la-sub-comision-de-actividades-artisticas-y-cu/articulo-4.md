@@ -1,0 +1,2 @@
+4°—Los participantes en la categoría solista, pueden hacerse acompañar por otro participante (ya sea solista o de algún grupo), pero cantando únicamente el solista. No se permiten coros. En la categoría de grupos no se permite la participación de un integrante de un grupo o solista en otro grupo.
+Para ambos casos si clasifican a la final, no se permite el cambio de acompañantes o integrantes de grupo.
