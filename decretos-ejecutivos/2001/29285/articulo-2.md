@@ -1,0 +1,1 @@
+Artículo 2º—Los establecimientos que almacenen, depositen y procesen materias primas y alimentos que contengan materias primas provenientes de rumiantes; deberán garantizar que no hay contaminación cruzada en los procesos de elaboración, manipulación y almacenamiento.

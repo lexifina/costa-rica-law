@@ -1,0 +1,1 @@
+Artículo 4º—Modifíquese el artículo 5 del Reglamento de Defensa Sanitaria Animal que es Decreto Ejecutivo número 14584-MAG del 16 de Mayo de 1983, incluyendo dentro del listado de enfermedades de declaración obligatoria en bovinos, la encefalopatía espongiforme bovina (EEB).

@@ -1,0 +1,1 @@
+Artículo 3º—Las materias primas, premezclas, mezclas y alimentos que contengan las materias específicas indicadas en el artículo uno de este decreto y de todas aquellas provenientes de rumiantes, que a juicio de las autoridades competentes consideren de riesgo, deberán indicar en la etiqueta "precaución: no utilizar en rumiantes".
