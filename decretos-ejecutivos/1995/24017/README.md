@@ -13,3 +13,4 @@ Reglamento Sobre Centros Docentes Privados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-02-27 | la propia norma |
+| 2 | 1995-02-27 | SINALEVI (sin norma nombrada) |

@@ -1,135 +1,17 @@
 Nº 24017-MEP
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE EDUCACION PUBLICA
-En ejercicio de sus atribuciones constitucionales y legales, con
-fundamento en lo dispuesto en los artículos 79 y 80 de la Constitución
-Política, los artículos 26 de la Declaración Universal de los Derechos
-Humanos, 13 del Pacto Internacional de Derechos Económicos, Sociales y
-Culturales; los principios, fines y objetivos establecidos para la
-educación costarricense en la Ley Fundamental de Educación, número 2160
-del 5 de setiembre de 1957, las disposiciones del Código de Educación
-relativas a las Escuelas y Colegios Particulares y las contenidas en los
-artículos 1, 4 y 18 inciso b) de la Ley Orgánica del Ministerio de
-Educación Pública, número 3481 del 13 de enero de 1965 y,
-Considerando:
-I.- Que la Sala Constitucional de la Corte Suprema de Justicia,
-mediante su voto número 3550-92 de las dieciséis horas del 24 de
-noviembre de 1992, declaró con lugar las acciones de inconstitucionalidad
-interpuestas por la Asociación Nacional de Educación Católica (ANADEC) y
-la Asociación de Centros Educativos Privados (ACEP) y, en consecuencia,
-anuló varias disposiciones reglamentarias, así como el artículo 34 y el
-inciso h) del artículo 4 de la Ley Fundamental de Educación, Nº 2160 del
-5 de setiembre de 1957, dejando establecido que "mientras no se
-promulguen otras normas legales y reglamentarias, acordes con lo
-dispuesto y considerado en esta sentencia, la inspección de los
-establecimientos privados de enseñanza se hará por el Poder Ejecutivo, de
-conformidad con los principios consagrados en los artículos 79, 80 y 28
-de la Constitución Política y las normas legales aplicables." (Apartado
-a), in fine, de la parte resolutiva del voto referido).
-II.- Que al encontrarse garantizada en nuestra Constitución Política
-y en el Derecho Internacional vigente la libertad de enseñanza en nuestro
-país, como un Derecho Fundamental, la Sala Constitucional consideró: "El
-hecho de que la enseñanza sea, precisamente, un "derecho de libertad"
-implica, entre otras cosas: a) Que se trata, por su naturaleza, por su
-ubicación y contenido constitucionales y por su posición en el Derecho de
-los Derechos Humanos -tanto interno como internacional-, de un verdadero
-"derecho fundamental", por ende derivado de la "intrínseca dignidad del
-ser humano" -en la expresa definición de la Declaración Universal-, no de
-la voluntad del Estado ni de ninguna autoridad política o social, los
-cuales tienen el deber -y solamente el deber, no el derecho ni la opción-
-de reconocerlo como tal derecho fundamental, a favor de todo ser humano,
-en condiciones de igualdad y sin discriminación alguna; de respetarlo
-ellos mismos, sin violarlo, ni manipularlo, ni escamotearlo por medios
-directos o indirectos, desnudos o encubiertos; y de garantizarlo frente a
-todo y frente a todos, poniendo a su disposición los mecanismos jurídicos
-y las condiciones materiales necesarios para que esté al alcance de todos
-y por todos pueda ser gozado efectivamente; b) Que, por ser precisamente
-un derecho humano fundamental, quien lo actúe lo hace a nombre propio, en
-ejercicio de una actividad de la que es titular y no de una concesión o
-permiso del poder público, el cual puede, a lo sumo y siempre que lo haga
-por los órganos competentes y mediante el ejercicio de simples poderes de
-tutela, "inspeccionarlo", valga decir, vigilar su ejercicio para
-garantizar, precisa y únicamente, el equilibrio armónico entre la
-libertad de educación del que la ofrece -educador- y la libertad de
-educación del que la recibe -educando-, así como fiscalizar su
-cumplimiento; c) Que el mismo equilibrio armónico entre la libertad del
-educador y del educando faculta y obliga al Estado, dentro de rigurosos
-límites de razonabilidad y proporcionalidad, a exigir a los
-establecimientos privados de enseñanza requisitos y garantías mínimos de
-curriculum y excelencia académica, de ponderación y estabilidad en sus
-matrículas y cobros a los estudiantes, de una normal permanencia de éstos
-en los cursos y a lo largo de su carrera estudiantil, del respeto debido
-a sus derechos fundamentales, en general, y de otras condiciones
-igualmente necesarias para que el derecho a educarse no se vea truncado o
-gravemente amenazado; pero; eso sí, sin imponerles a los primeros fines
-ni contenidos rígidos ni invadir el campo razonable de su autonomía
-administrativa, económica, ideológica, académica y docente -recuérdese
-que no hay autonomía mayor, que la de la libertad-; d) Que por ser, a su
-vez, una "libertad" - un "derecho de libertad"- le convienen las
-condiciones, atributos, efectos y garantías de la libertad en general, la
-cual, entendida como ausencia de coacción arbitraria, es uno de los
-derechos humanos fundamentales -o más fundamentales-, como que se asienta
-en la base misma de todo el sistema democrático constitucional-. Ello
-significa, desde el punto de vista jurídico, que existen actos de los
-particulares que el Estado no puede suprimir, alterar, restringir ni
-controlar, aún mediante o con fundamento en una ley. Estos actos son, en
-primer lugar, los aludidos por la Constitución como "Acciones privadas
-que no dañen la moral o el orden público, o que no perjudiquen a
-tercero."
-III.- Que, por otra parte, la actual Administración, en su Política
-Educativa hacia el Siglo XXI, entre otras declaraciones ha hecho la
-siguiente: "La Política Educativa, amparada al Marco Jurídico vigente,
-propicia la búsqueda y concreción de un costarricense del siglo XXI que,
-consciente de las implicaciones éticas del desarrollo, sea PERSONA con
-rica vida espiritual, digna, libre y justa; CIUDADANO formado para el
-ejercicio participativo de la democracia, con identidad nacional,
-integrado al mundo, capaz de discernir y competir, autorrealizado y capaz
-de buscar su felicidad; PRODUCTOR para si mismo y para el país desde el
-punto de vista de su condición de trabajador, lo que comporta el
-incremento de sus habilidades, el aprendizaje de destrezas y la búsqueda
-del conocimiento; SOLIDARIO por experimentar como propias las necesidades
-de los demás y, en consecuencia, con aptitud para buscar formas de
-cooperación y concertación entre sectores, velar por la calidad de vida
-de todos los ciudadanos y de las futuras generaciones, a partir de un
-desarrollo sustentable, ecológico y socialmente y CAPAZ DE COMUNICARSE
-CON EL MUNDO DE MANERA INTELIGENTE de tal manera que, a partir de la
-valoración de lo que lo identifica como costarricense, tome las
-decisiones que lo relacionen con otras culturas desde un punto de vista
-de pensador independiente, flexible y crítico, teniendo por guía los
-derechos y los deberes humanos.", de tal suerte que, las acciones que
-desarrolle la iniciativa privada en la formación de las nuevas
-generaciones y de la sociedad costarricense, no deben entenderse en
-contraposición a la que desarrolla el sector público, sino como rutas
-libremente escogidas que conducen a un mismo destino, comprendiendo que,
-como lo dice nuestra Sala Constitucional: "...educarse y educar es un
-derecho fundamental de todo ser humano, y un derecho precisamente "de
-libertad", esto es, de autonomía o autodeterminación, que un Estado
-democrático debe estimular y, a lo sumo, complementar, así como, en todo
-caso, respetar y garantizar "en libertad", es decir, en la diversidad
-cuantitativa y cualitativa, de medios y fines, que es propia de la
-libertad. La uniformidad, la univocidad, la eficiencia, el mismo orden y
-la misma paz, son más posibles o más fácilmente alcanzables en el
-totalitarismo y la dictadura que en la democracia y en la libertad; en
-éstas, no sólo reina lo contrario: la diversidad, la discusión, una
-cierta dosis de ineficiencia, de desorden y de conflicto, sino que todo
-es precisamente lo que las hace más humanas, más justas, incluso más
-hermosas y dignas de vivir. (Voto 3550-92).
-IV.- Que el Proyecto de Reglamento de Centros Docentes Privados, a
-lo largo de varios meses, ha sido objeto de consulta con las
-organizaciones representativas de las instituciones privadas de
-enseñanza: Asociación de Centros Educativos Privados, Asociación Nacional
-de Educación Católica, Asociación de Instituciones Privadas de Enseñanza
-Comercial, Asociación de Academias Privadas de Enseñanza Diversificada y
-Abierta, procedimiento en cuya virtud se alcanzó consenso sobre la
-naturaleza y alcances de las disposiciones reglamentarias en él
-contenidas. Por tanto,
+En ejercicio de sus atribuciones constitucionales y legales, con fundamento en lo dispuesto en los artículos 79 y 80 de la Constitución Política, los artículos 26 de la Declaración Universal de los Derechos Humanos, 13 del Pacto Internacional de Derechos Económicos, Sociales y Culturales; los principios, fines y objetivos establecidos para la educación costarricense en la Ley Fundamental de Educación, número 2160 del 5 de setiembre de 1957, las disposiciones del Código de Educación relativas a las Escuelas y Colegios Particulares y las contenidas en los artículos 1, 4 y 18 inciso b) de la Ley Orgánica del Ministerio de Educación Pública, número 3481 del 13 de enero de 1965 y, Considerando:
+I.- Que la Sala Constitucional de la Corte Suprema de Justicia, mediante su voto número 3550-92 de las dieciséis horas del 24 de noviembre de 1992, declaró con lugar las acciones de inconstitucionalidad interpuestas por la Asociación Nacional de Educación Católica (ANADEC) y la Asociación de Centros Educativos Privados (ACEP) y, en consecuencia, anuló varias disposiciones reglamentarias, así como el artículo 34 y el inciso h) del artículo 4 de la Ley Fundamental de Educación, Nº 2160 del 5 de setiembre de 1957, dejando establecido que "mientras no se
+promulguen otras normas legales y reglamentarias, acordes con lo dispuesto y considerado en esta sentencia, la inspección de los establecimientos privados de enseñanza se hará por el Poder Ejecutivo, de conformidad con los principios consagrados en los artículos 79, 80 y 28 de la Constitución Política y las normas legales aplicables." (Apartado a), in fine, de la parte resolutiva del voto referido).
+II.- Que al encontrarse garantizada en nuestra Constitución Política y en el Derecho Internacional vigente la libertad de enseñanza en nuestro país, como un Derecho Fundamental, la Sala Constitucional consideró: "El hecho de que la enseñanza sea, precisamente, un "derecho de libertad" implica, entre otras cosas: a) Que se trata, por su naturaleza, por su ubicación y contenido constitucionales y por su posición en el Derecho de los Derechos Humanos -tanto interno como internacional-, de un verdadero "derecho fundamental", por ende derivado de la "intrínseca dignidad del ser humano" -en la expresa definición de la Declaración Universal-, no de la voluntad del Estado ni de ninguna autoridad política o social, los cuales tienen el deber -y solamente el deber, no el derecho ni la opción- de reconocerlo como tal derecho fundamental, a favor de todo ser humano, en condiciones de igualdad y sin discriminación alguna; de respetarlo ellos mismos, sin violarlo, ni manipularlo, ni escamotearlo por medios directos o indirectos, desnudos o encubiertos; y de garantizarlo frente a todo y frente a todos, poniendo a su disposición los mecanismos jurídicos y las condiciones materiales necesarios para que esté al alcance de todos y por todos pueda ser gozado efectivamente; b) Que, por ser precisamente un derecho humano fundamental, quien lo actúe lo hace a nombre propio, en ejercicio de una actividad de la que es titular y no de una concesión o permiso del poder público, el cual puede, a lo sumo y siempre que lo haga
+por los órganos competentes y mediante el ejercicio de simples poderes de tutela, "inspeccionarlo", valga decir, vigilar su ejercicio para garantizar, precisa y únicamente, el equilibrio armónico entre la libertad de educación del que la ofrece -educador- y la libertad de educación del que la recibe -educando-, así como fiscalizar su cumplimiento; c) Que el mismo equilibrio armónico entre la libertad del educador y del educando faculta y obliga al Estado, dentro de rigurosos límites de razonabilidad y proporcionalidad, a exigir a los establecimientos privados de enseñanza requisitos y garantías mínimos de curriculum y excelencia académica, de ponderación y estabilidad en sus matrículas y cobros a los estudiantes, de una normal permanencia de éstos en los cursos y a lo largo de su carrera estudiantil, del respeto debido a sus derechos fundamentales, en general, y de otras condiciones igualmente necesarias para que el derecho a educarse no se vea truncado o gravemente amenazado; pero; eso sí, sin imponerles a los primeros fines ni contenidos rígidos ni invadir el campo razonable de su autonomía administrativa, económica, ideológica, académica y docente –recuérdese que no hay autonomía mayor, que la de la libertad-; d) Que por ser, a su vez, una "libertad" - un "derecho de libertad"- le convienen las condiciones, atributos, efectos y garantías de la libertad en general, la cual, entendida como ausencia de coacción arbitraria, es uno de los derechos humanos fundamentales -o más fundamentales-, como que se asienta en la base misma de todo el sistema democrático constitucional-. Ello significa, desde el punto de vista jurídico, que existen actos de los particulares que el Estado no puede suprimir, alterar, restringir ni controlar, aún mediante o con fundamento en una ley. Estos actos son, en primer lugar, los aludidos por la Constitución como "Acciones privadas que no dañen la moral o el orden público, o que no perjudiquen a tercero."
+III.- Que, por otra parte, la actual Administración, en su Política Educativa hacia el Siglo XXI, entre otras declaraciones ha hecho la siguiente: "La Política Educativa, amparada al Marco Jurídico vigente, propicia la búsqueda y concreción de un costarricense del siglo XXI que, consciente de las implicaciones éticas del desarrollo, sea PERSONA con rica vida espiritual, digna, libre y justa; CIUDADANO formado para el ejercicio participativo de la democracia, con identidad nacional, integrado al mundo, capaz de discernir y competir, autorrealizado y capaz de buscar su felicidad; PRODUCTOR para si mismo y para el país desde el punto de vista de su condición de trabajador, lo que comporta el incremento de sus habilidades, el aprendizaje de destrezas y la búsqueda del conocimiento; SOLIDARIO por experimentar como propias las necesidades de los demás y, en consecuencia, con aptitud para buscar formas de cooperación y concertación entre sectores, velar por la calidad de vida de todos los ciudadanos y de las futuras generaciones, a partir de un desarrollo sustentable, ecológico y socialmente y CAPAZ DE COMUNICARSE CON EL MUNDO DE MANERA INTELIGENTE de tal manera que, a partir de la
+valoración de lo que lo identifica como costarricense, tome las decisiones que lo relacionen con otras culturas desde un punto de vista de pensador independiente, flexible y crítico, teniendo por guía los derechos y los deberes humanos.", de tal suerte que, las acciones que desarrolle la iniciativa privada en la formación de las nuevas generaciones y de la sociedad costarricense, no deben entenderse en contraposición a la que desarrolla el sector público, sino como rutas libremente escogidas que conducen a un mismo destino, comprendiendo que, como lo dice nuestra Sala Constitucional: "...educarse y educar es un derecho fundamental de todo ser humano, y un derecho precisamente "de libertad", esto es, de autonomía o autodeterminación, que un Estado democrático debe estimular y, a lo sumo, complementar, así como, en todo caso, respetar y garantizar "en libertad", es decir, en la diversidad cuantitativa y cualitativa, de medios y fines, que es propia de la libertad. La uniformidad, la univocidad, la eficiencia, el mismo orden y la misma paz, son más posibles o más fácilmente alcanzables en el totalitarismo y la dictadura que en la democracia y en la libertad; en éstas, no sólo reina lo contrario: la diversidad, la discusión, una cierta dosis de ineficiencia, de desorden y de conflicto, sino que todo es precisamente lo que las hace más humanas, más justas, incluso más hermosas y dignas de vivir. (Voto 3550-92).
+IV.- Que el Proyecto de Reglamento de Centros Docentes Privados, a lo largo de varios meses, ha sido objeto de consulta con las organizaciones representativas de las instituciones privadas de enseñanza: Asociación de Centros Educativos Privados, Asociación Nacional de Educación Católica, Asociación de Instituciones Privadas de Enseñanza Comercial, Asociación de Academias Privadas de Enseñanza Diversificada y Abierta, procedimiento en cuya virtud se alcanzó consenso sobre la naturaleza y alcances de las disposiciones reglamentarias en él contenidas.
+Por tanto,
 DECRETAN:
 El siguiente:
-Reglamento sobre Centros Docentes Privados
-Disposiciones generales
+Reglamento sobre Centros Docentes Privados Disposiciones generales
 Artículo 1º.- El presente reglamento tiene por objeto:
-a) Establecer los procedimientos en cuya virtud se oficializan,
-equiparan, certifican y acreditan los estudios realizados en
-los centros docentes privados,
-b) Normar el ejercicio de la inspección que ordena el artículo 79
-de la Constitución Política.
+a) Establecer los procedimientos en cuya virtud se oficializan, equiparan, certifican y acreditan los estudios realizados en los centros docentes privados, b) Normar el ejercicio de la inspección que ordena el artículo 79 de la Constitución Política.

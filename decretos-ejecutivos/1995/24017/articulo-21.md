@@ -1,7 +1,1 @@
-Artículo 21.- Sin perjuicio de la naturaleza jurídica del centro
-docente privado, las relaciones entre éste y cada padre de familia, con
-motivo de la educación de sus hijos menores, o con éstos cuando fueren
-mayores de edad, será de carácter contractual. El respectivo contrato
-deberá contener, al menos las cláusulas relativas a derechos de
-matrícula, mensualidades por los servicios educativos, formas y
-procedimientos para el incremento de tales extremos.
+Artículo 21.- Sin perjuicio de la naturaleza jurídica del centro docente privado, las relaciones entre éste y cada padre de familia, con motivo de la educación de sus hijos menores, o con éstos cuando fueren mayores de edad, será de carácter contractual. El respectivo contrato deberá contener, al menos las cláusulas relativas a derechos de matrícula, mensualidades por los servicios educativos, formas y procedimientos para el incremento de tales extremos.

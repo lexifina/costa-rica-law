@@ -1,4 +1,1 @@
-Artículo 23.- En ningún caso el centro docente podrá retener
-información relativa al avance escolar del estudiante o documentos de
-acreditación, como medio para obtener el pago de las obligaciones
-económicas de los padres de familia para con la institución.
+Artículo 23.- En ningún caso el centro docente podrá retener información relativa al avance escolar del estudiante o documentos de acreditación, como medio para obtener el pago de las obligaciones económicas de los padres de familia para con la institución.

@@ -1,8 +1,2 @@
 Disposiciones finales
-Artículo 24.- Los centros docentes privados deberán informar a los
-estudiantes y a los padres de familia, a más tardar al inicio de cada
-período escolar, las normas relativas a los procedimientos de evaluación,
-promoción, orden y disciplina que regirán el proceso de enseñanza y de
-aprendizaje. Cuando los criterios de promoción no coincidan con los que
-se utilizan en el sistema estatal, deberán establecer la fórmula y
-procedimientos de conversión correspondiente.
+Artículo 24.- Los centros docentes privados deberán informar a los estudiantes y a los padres de familia, a más tardar al inicio de cada período escolar, las normas relativas a los procedimientos de evaluación, promoción, orden y disciplina que regirán el proceso de enseñanza y de aprendizaje. Cuando los criterios de promoción no coincidan con los que se utilizan en el sistema estatal, deberán establecer la fórmula y procedimientos de conversión correspondiente.
