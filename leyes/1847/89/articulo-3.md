@@ -1,0 +1,1 @@
+ARTÍCULO 3°. -En las demás poblaciones del Estado seguirán encargados del despacho de correos los Receptores, excepto en los puertos donde desempeñarán las mismas funciones los empleados militares y fiscales que designe el Gobierno-En el de San Juan de Nicaragua se nombrará un agente particular con la dotación que convenga.

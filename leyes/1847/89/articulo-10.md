@@ -1,0 +1,1 @@
+ARTÍCULO 10.-Las facturas o cartas cuentas se harán con expresión de los nombres de las personas a quien vaya dirigida cada carta, su peso y valor del porte; pero en la carrera de San Juan se expresar además su destino y persona que las entrega, conforme a los modelos adjuntos.

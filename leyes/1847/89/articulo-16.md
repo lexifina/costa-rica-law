@@ -1,0 +1,1 @@
+ARTÍCULO 16.-Las cartas o impresos que por equivocación se dirijan de otras estafetas, se remitirán a su respectivo destino, anotando en la partida de data que produzcan, el lugar de su procedencia, estafeta a que se remiten y valor que les corresponde.
