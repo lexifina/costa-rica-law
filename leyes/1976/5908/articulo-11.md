@@ -1,0 +1,1 @@
+Artículo 11.—Este contrato, los que ha suscrito el Ministerio de Obras Públicas y Transportes para estudios de suelos, diseños y supervisión de construcción en el Puerto de Limón y los que se formalicen con fondos del préstamo que por esta ley se aprueba, están exentos de toda clase de impuestos y derechos.

@@ -1,0 +1,1 @@
+Artículo 5°—Se autoriza al Poder Ejecutivo para que por medio de Decreto, proceda a aumentar o rebajar los ingresos y gastos aquí autorizados, a fin de ajustarlos a las fluctuaciones que en el mercado de valores sufra el marco alemán.

@@ -1,0 +1,1 @@
+Artículo 9°—Declárase de utilidad e interés públicos, la zona portuaria comprendida dentro de los límites que, al efecto, determinará el Ministerio de Obras Públicas y Transportes, por intermedio del Instituto Geográfico Nacional.
