@@ -10,3 +10,4 @@ Considerando:
 5º—Que por lo anterior, resulta necesario modificar el límite de gasto presupuestario fijado para el INAMU, en el decreto citado. Por tanto,
 Decretan:
 Artículo 1º—Modifícase al Instituto Nacional de las Mujeres, los límites de gasto presupuestario y efectivo para el 2001, establecidos en el Decreto Ejecutivo Nº 28639-H, de manera que el gasto presupuestario y el gasto efectivo no excedan la suma de ¢669.2 millones.
+(Así Modificado por Decreto Ejecutivo 29671 de 29 de Junio del 2001)

@@ -14,3 +14,4 @@ Modifica límite de gasto presupuestario y efectivo para el 2001 del Instituto N
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-14 | la propia norma |
+| 2 | 2001-07-11 | Decreto Ejecutivo 29671 (2001-07-11) |
