@@ -11,7 +11,8 @@ i) Designación, por parte del Afiliado, de los beneficiarios para el caso de su
 j) Forma y momentos de las comunicaciones de la información que deba suministrarse al Afiliado, y a las que se refieren al Reglamento de la Ley.
 k) Indicar que el Afiliado deberá informar a la Operadora sobre cualquier cambio en la información consignada en el contrato.
 l) Nombre de la Operadora de procedencia, cuando se trate de traslados.
-m) Nombre, número de cédula o parentesco y domicilio de los beneficiarios.
+m) Nombre, número de cédula y domicilio de los beneficiarios.
+(Así reformado mediante la sesión N° 94-99, celebrada el tres de junio de mil novecientos noventa y nueve)
 n) Número de contrato, lugar y fecha de suscripción, y firma de los contratantes.
 o) En el caso de planes autorizados en moneda extranjera, estipular que la prestación de beneficios se dará en la misma moneda de denominación del Fondo.
 Cuando se trate de la afiliación a planes autorizados en moneda extranjera, el contrato deberá incorporar la siguiente cláusula: "En caso de que se suscite un cambio extraordinario en el mercado cambiario, calificado como tal por la Superintendencia de Pensiones, o que se diera un giro en la política, que puedan impedir al Afiliado seguir cumpliendo sus compromisos de aporte por el monto y la moneda pactada, el Afiliado podrá tener las siguientes opciones:
