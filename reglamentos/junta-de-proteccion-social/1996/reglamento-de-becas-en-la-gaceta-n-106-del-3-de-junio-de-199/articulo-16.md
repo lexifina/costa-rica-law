@@ -1,2 +1,2 @@
-Artículo 16.—El becario deberá llenar fidedignamente y a máquina el formulario denominado “Reporte de materias aprobadas” al finalizar cada ciclo lectivo (bimestre, trimestre, cuatrimestre, semestre, etc.). Esto será requisito indispensable para autorizar el trámite del próximo cheque por beca.
-(Así reformado mediante sesión de Junta Directiva, del 21 de noviembre de 1996, artículo III), inciso 16) del Acta N° 83-96)
+Artículo 16.—El becario deberá llenar fidedignamente y a máquina el formulario denominado “Reporte de materias aprobadas”, al finalizar cada ciclo lectivo (bimestre, trimestre, cuatrimestre, semestre, etc.), acompañado de la certificación oficial por la autoridad administrativa del centro académico donde cursa los estudios. Esto será requisito indispensable para autorizar el trámite del próximo cheque por beca.
+(Así reformado mediante sesión del 27 de noviembre de 1997, artículo II), inciso 8) del Acta N° 49-97)
