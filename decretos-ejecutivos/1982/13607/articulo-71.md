@@ -1,1 +1,2 @@
-ARTICULO 71.- Si la propiedad horizontal está constituida como la trata el artículo 68 de este reglamento, se deberá aportar al Catastro Nacional el plano del diseño de sitio aprobado por el Ministerio de Salud y la municipalidad respectiva de la unidad así constituida; debiendo indicarse además de los edificios, las áreas comunes tales como pasillos, calles, estacionamientos, zonas verdes u otros.
+ARTÍCULO 71.—Para modificar el área registral de una finca filial, el cambio debe ser aprobado en Asamblea de Condóminos y consignarse así en el libro de actas, indicando el número del plano catastrado en que se fundamenta dicho cambio.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 29397 del 6 de marzo de 2001)

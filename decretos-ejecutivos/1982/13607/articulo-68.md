@@ -1,1 +1,2 @@
-ARTICULO 68.- Si la propiedad sometida al régimen de propiedad horizontal se refiere a varios edificios, sus accesorios y alrededores entendidos éstos como una unidad; el plano de la parcela o predio a registrar deberá indicar un diseño de sitio del condominio con su respectivo nombre oficial, a una escala adecuada, donde se muestre la parcela o predio, que se representa en el plano, debiéndose además, referenciar el levantamiento con sus accesos hasta la calle o camino público, si no tiene acceso directo.
+ARTÍCULO 68.—Los datos contenidos en el plano de agrimensura son insertados en él bajo la fe pública y responsabilidad que le asiste a los profesionales de la agrimensura.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 29397 del 6 de marzo de 2001)

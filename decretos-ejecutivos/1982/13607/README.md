@@ -14,3 +14,4 @@ Reglamento a la Ley del Catastro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-06-25 | la propia norma |
+| 2 | 2001-03-06 | Decreto Ejecutivo 29397 (2001-03-06) |
