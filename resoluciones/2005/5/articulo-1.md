@@ -1,0 +1,10 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+AVISO
+Nº 005-SC.—San José, 4 de marzo del 2005
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-064-2005, se modifica el artículo 2° de la resolución DG-003-2005, del 12 de enero del 2005, referido a la valoración de las clases institucionales específicas de la Dirección General de Migración y Extranjería.
+DG-065-2005, se modifica el anexo del artículo 2° de su homóloga la DG-221-2004, publicada en La Gaceta N° 182 el 17 de setiembre del 2004, en lo conducente al aparte: Atinencia Académica, de la Especialidad Meteorología.
+DG-066-2005, se modifica el artículo 2° de su homóloga la DG-021-2005 de fecha 18 de enero del 2005 correspondiente a la valoración de las clases del Manual del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA) y modifica el artículo 3° de la resolución DG-021-2005 de fecha 18 de enero del 2005 en lo correspondiente a la valoración de la clase Médico Veterinario del Manual del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA).
+DG-067-2005, se modifica el artículo 1° de la Resolución DG-112-98 del 4 de agosto de 1998, mediante la cual se aprobó el Manual Institucional de Clases de la Dirección General de Aviación Civil para que, se incluya en el apartado ubicación de la clase Profesional de Apoyo 1 niveles A y B, la Unidad de Aeropuerto y sus dependencias.
+DG-068-2005, se modifica el anexo del artículo 2° de la Resolución DG-221-2004 del 3 de setiembre del 2004, mediante la cual se aprobó el Manual Descriptivo de Especialidades del Régimen de Servicio Civil, con sus respectivas atinencias académicas, para que se incluya como atinencia académica, la Maestría en Administración con base en una Licenciatura en Ingeniería Industrial, en la especialidad Administración, Subespecialidad Generalista.
+DG-069-2005, se deroga la resolución DG-047-2005 mediante la cual se aprobó las clases de puesto y la valoración para el Instituto Costarricense sobre Drogas.
