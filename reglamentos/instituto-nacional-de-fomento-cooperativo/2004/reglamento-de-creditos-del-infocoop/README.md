@@ -14,3 +14,4 @@ Reglamento de Créditos del INFOCOOP
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-17 | la propia norma |
+| 2 | 2004-11-01 | Reglamento 3392 (2004-11-01) |
