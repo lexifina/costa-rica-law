@@ -1,0 +1,3 @@
+CAPITULO IV
+De la fiscalización
+Articulo 17.—Verificación in situ: La Unidad de Administración Municipal tiene la facultad, en cualquier tiempo, de verificar el correcto cumplimiento de las obligaciones tributarias a que se refiere este reglamento, utilizando para ello cualquier medio y procedimiento legalmente establecido, según lo estipulado en el Código de Normas y Procedimientos tributarios. Los funcionarios municipales responsables de la efectiva recaudación del impuesto coordinarán con las autoridades de Policía Administrativa, a fin de obtener la colaboración de esta en la aplicación de este reglamento.

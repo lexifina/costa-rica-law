@@ -1,0 +1,1 @@
+Articulo 29.—Derogatoria: El presente regiamente deroga cualquiera oirá disposición municipal que se le oponga. Toda modificación total o parcial de este reglamento deberá ser publicada en el Diario Oficial para su eficacia.

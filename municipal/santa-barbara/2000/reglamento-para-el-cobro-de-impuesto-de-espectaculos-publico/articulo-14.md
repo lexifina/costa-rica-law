@@ -1,0 +1,1 @@
+Articulo 14.—Pago del tributo: El impuesto deberá ser cancelado únicamente en la Tesorería Municipal. Los espectáculos públicos permanentes deberán cancelar el impuesto el último día hábil del mes que se trate, en tanto que los espectáculos públicos ocasionales, deberán cancelar el impuesto, dentro de los diez días hábiles posteriores, a la realización del evento.

@@ -1,0 +1,1 @@
+Articulo 28.— Distribución: El ingreso recaudado por el impuesto de espectáculos públicos será destinado para obras, servicios y cualquier otra necesidad que la Municipalidad de Santa Bárbara deba resolver dentro de su jurisdicción y competencia.

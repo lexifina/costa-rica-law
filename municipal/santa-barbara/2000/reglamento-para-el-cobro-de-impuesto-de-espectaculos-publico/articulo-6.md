@@ -1,0 +1,1 @@
+Artículo 6°—Tarifa: La municipalidad del cantón de Santa Bárbara, cobrará un impuesto del cinco por ciento (5%), sobre la base imponible definida en el articulo anterior, a todos los espectáculos públicos y de diversión no gratuitos, señalados en el articulo 3° de este reglamento.
