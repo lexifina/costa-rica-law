@@ -1,0 +1,1 @@
+Artículo 5°—Que el Ministerio de Relaciones Exteriores y Culto, es el único órgano facultado para contestar las denuncias y presentar los informes en materia de Derechos Humanos, ante las diferentes instancias nacionales e internacionales del Sistema Universal de los Derechos Humanos. Ninguna dependencia del Estado estará facultada para realizar esas gestiones directamente.
