@@ -1,4 +1,6 @@
-ARTICULO 11.- Cuando en un mismo establecimiento dedicado a
-actividades lucrativas, ejerzan actividades conjuntamente varias
-sociedades o personas físicas, el monto del impuesto lo determinará la
-suma total del impuesto que corresponda a cada uno individualmente.
+ARTICULO 11.- Aunque, en un mismo establecimiento dedicado a
+actividades lucrativas, varias sociedades o personas físicas ejerzan
+conjuntamente actividades, el monto del impuesto se determinará
+individualmente para cada persona.
+(Así reformado por el artículo 6 de ley No.7548 del 21 de setiembre
+de 1995)
