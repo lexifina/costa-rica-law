@@ -1,0 +1,1 @@
+Articulo 18.—Los tiquetes, boletos o entradas deben presentarse ante la Unidad de Adm. Tributaria en el momento que se tramite el permiso para la actividad que se indica en el articulo 7° Para su control, serán sellados, autorizados y entregados contra la presentación del recibo de cancelación del impuesto respectivo.

@@ -1,0 +1,1 @@
+Articulo 3°—El pago de impuesto de espectáculo público es la obligación tributaria que debe cumplir luda persona Física 11 Jurídica que ejerce este tipo de actividades lucrativas en el cantón, con previa licencia municipal.

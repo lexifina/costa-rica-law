@@ -1,0 +1,1 @@
+Articulo 30. Por la celebración de actividades con Karaoke se deberá pagar el impuesto sobre espectáculos públicos cuando aquellas se enmarquen en la definición que del hecho generador de la obligación hace referencia este Reglamento.

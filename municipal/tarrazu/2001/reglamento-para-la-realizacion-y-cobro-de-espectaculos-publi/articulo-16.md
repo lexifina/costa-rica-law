@@ -1,0 +1,1 @@
+Articulo 16.—En caso de diversiones con sistemas mecánicos que solo se opera con fichas, éstas pagarán el valor del impuesto por el procedimiento de cobro por adelantado y se hará el ajuste respectivo en caso de ser necesario.

@@ -1,0 +1,1 @@
+Articulo 6° —Una vez otorgado el permiso por parte de la Unidad de Administración Tributaria, el Inspector deberá confeccionar el permiso con un mínimo de tres días de anticipación a la realización del evento.

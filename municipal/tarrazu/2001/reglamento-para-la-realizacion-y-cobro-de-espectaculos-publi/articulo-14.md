@@ -1,0 +1,1 @@
+Artículo 14.—Los inspectores municipales deberán presentarse a realizar las inspecciones en los locales en donde se realicen las actividades o espectáculos públicos, debidamente identificados por medio de un carné emitido por la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 19.—Cuando exista morosidad en el pago de este impuesto por parte de un patentado o grupo organizado, no se le tramitará ninguna solicitud, basta tanto no haya cancelado el impuesto adeudado, con sus multas e intereses calculados al día del pago.

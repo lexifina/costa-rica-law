@@ -1,0 +1,2 @@
+Artículo 10.- En cuanto a los horarios de celebración de los espectáculos públicos, la solicitud deberá indicar las horas de inicio y conclusión requerida para el permiso, caso contrario la misma será rechazada.
+En el caso de actividades relacionadas con la venta de licor, se deberá ajustar la actividad a la Ley de Horarios para el Expendió de Licores y su Reglamento, en cuanto a las categorías allí establecidas.

@@ -1,0 +1,1 @@
+Articulo 13.—El inspector municipal efectúe labores de fiscalización de algunas actividades, deberá remitir copia del informe al departamento de patentes ( Unidad de Adm. Tributaria) y al Depto. De Contabilidad para su control y cobro.

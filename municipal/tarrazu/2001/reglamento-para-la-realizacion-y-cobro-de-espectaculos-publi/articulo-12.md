@@ -1,0 +1,1 @@
+Articulo 12. —Quien venda bebidas alcohólicas incumpliendo las disposiciones de la ley de Licores, la Ley de Funcionamiento de Expendio de Bebidas Alcohólicas y sus reglamentos, será sancionado de conformidad con esta normativa.

@@ -1,0 +1,1 @@
+Articulo 26. —En ningún caso la Municipalidad autorizará el desarrollo de actividades con "Karaokes" más allá de las 12,00 medianoche, con esta hora como limite deberán cesar completamente todas las actividades de este tipo. Para cumplir con esta disposición se contará con la colaboración de la Guardia de Asistencia Rural, si lucra necesario.
