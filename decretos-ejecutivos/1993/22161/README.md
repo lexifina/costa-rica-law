@@ -14,3 +14,4 @@ Traspasa al Instituto Costarricense de Puertos del Pacífico la administración 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-05-19 | la propia norma |
+| 2 | 1995-02-21 | Decreto Ejecutivo 24061 (1995-02-21) |
