@@ -1,1 +1,1 @@
-Artículo 13.—La Asamblea designará tres colegiados para que realicen el escrutinio de los votos para los cargos de los miembros del Tribunal.
+Artículo 13. (DEROGADO por la Asamblea General Extraordinaria XCVIII, del 06 de diciembre del 2003.)

@@ -1,2 +1,3 @@
-Artículo 10.—Si un miembro del Tribunal no termina su período o es suspendido, será sustituido por el suplente que corresponda, hasta la próxima Asamblea. En caso de ser necesarios más suplentes se llamará al candidato que en la última Asamblea General obtuvo el mayor número de votos sin ser elegido.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003, publicada en La Gaceta No. 62 de 28 de marzo del 2003)
+Artículo 10.—El miembro del Tribunal que no termine su período, será sustituido por el vocal uno y éste por el vocal dos, el suplente respectivo suplirá el puesto del vocal hasta la próxima asamblea general ordinaria. El miembro del Tribunal que sea suspendido o se ausente por incapacidad u otra circunstancia, con conocimiento previo del Tribunal, será sustituido por el tiempo que dure la ausencia, en el orden anteriormente descrito.
+En caso de ser necesario más suplentes, se llamará al candidato que obtuvo el mayor número de votos sin ser elegido, en la última Asamblea General.
+(Así reformado por la Asamblea General Extraordinaria XCVIII, del 06 de diciembre del 2003.)
