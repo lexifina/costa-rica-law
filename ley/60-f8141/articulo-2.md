@@ -1,0 +1,1 @@
+Art 2°.- Son Majistrados suplentes por esta Provincia i la de Moracia los Señores D. Ramón Castro i D. Manuel Antonio Bonilla; i por la de Cartago los señores Dr Fernando Estreber i D. Manuel Jiménez.
