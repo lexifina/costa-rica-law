@@ -15,3 +15,4 @@ Reglamento de establecimientos privados de enseñanza
 | --- | --- | --- |
 | 1 | 1957-02-01 | la propia norma |
 | 2 | 1958-02-15 | Decreto Ejecutivo 2 (1958-02-15) |
+| 3 | 1992-11-24 | SINALEVI (sin norma nombrada) |

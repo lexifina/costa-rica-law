@@ -1,6 +1,6 @@
-(Derogado)
+(Anulada)
 N° 2
-(Este decreto ejecutivo fue derogado por el artículo 16 del Reglamento de establecimientos privados de enseñanza, aprobado mediante decreto ejecutivo N° 2 del 15 de febrero de 1958)
+(Este decreto ejecutivo fue derogado por el artículo 16 del Reglamento de establecimientos privados de enseñanza, aprobado mediante decreto ejecutivo N° 2 del 15 de febrero de 1958. Posteriormente mediante resolución de la Sala Constitucional N° 3550 del 24 de noviembre de 192, se anulo este decreto ejecutivo)
 EL PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA
 A propuesta del Consejo Superior de Educación,
 El siguiente
