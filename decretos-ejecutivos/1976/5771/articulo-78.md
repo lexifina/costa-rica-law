@@ -1,3 +1,4 @@
 CAPÍTULO XVIII
 Abandono de Trabajo
 Artículo 78.—Se considerará abandono de trabajo, el hacer dejación, sin causa justificada y sin permiso del jefe inmediato, dentro de la jornada, de la labor objeto de contrato. Para efectos de calificar el abandono de trabajo no es necesario que el empleado salga del lugar donde presta sus servicios, sino que bastará que de modo evidente deje de realizar la labor confiada.
+(Este artículo había sido reformado por el artículo 1° del decreto N° 10137 del 30 de mayo de 1979. Dicha modificación fue suspendida por decreto ejecutivo N° 10230 del 5 de mayo de 1979. Nótese que la fecha de la norma que suspende es anterior a la del decreto afectado. Por tanto, el texto vigente de este artículo es anterior a la modificación realizada por el artículo 1° del decreto N° 10137 del 30 de mayo de 1979.)

@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicios del Ministerio de Educación Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-04-21 | la propia norma |
+| 2 | 1979-05-30 | Decreto Ejecutivo 10137 (1979-05-30) |
