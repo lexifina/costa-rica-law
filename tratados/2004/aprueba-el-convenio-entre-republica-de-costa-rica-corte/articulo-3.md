@@ -1,0 +1,1 @@
+Artículo 3º—Autorización. Autorízase al Estado costarricense para que done la suma de cien mil dólares (US$100.000,00) a la Corte Permanente de Arbitraje, para la instalación y operación de dicha Sede Regional.

@@ -1,0 +1,1 @@
+Artículo 4º—Cláusula interpretativa del artículo 2. El Gobierno de Costa Rica entiende, en relación con el artículo 2 del presente Convenio, que la Sede Regional de la Corte Permanente de Arbitraje ostenta, en la forma y las condiciones establecidas en este Convenio, la personalidad jurídica necesaria para cumplir los objetivos dispuestos.
