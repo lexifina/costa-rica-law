@@ -13,3 +13,4 @@ Plan Regional Desarrollo Urbano Gran Area Metropolitana (GAM) por INVU
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-05-18 | la propia norma |
+| 2 | 1997-02-12 | Decreto Ejecutivo 25902 (1997-02-12) |
