@@ -1,0 +1,1 @@
+Artículo 13.-La colocación de Bonos de Gobierno podrá efectuarse a través de la Bolsa Nacional de Valores S. A., en cuyo caso las comisiones derivadas de dicha colocación se pagarán con cargo a los recursos que anualmente se autorizan en la Ley de Presupuesto Nacional, para el servicio de la deuda pública.

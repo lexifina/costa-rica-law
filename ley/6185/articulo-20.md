@@ -1,0 +1,1 @@
+Artículo 20.-El Instituto Costarricense de Electricidad construirá las obras de electrificación incluidas en presupuestos ordinarios o extraordinarios y que el Ministerio de Hacienda les haya girado en bonos.

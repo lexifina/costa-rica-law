@@ -1,0 +1,2 @@
+Artículo 8º.-El Poder Ejecutivo deberá pagar con prioridad las diferencias salariales que se originen en la resolución del Servicio Civil Nº C-90-77.
+Asimismo se le autoriza a usar los remanentes de sueldos que se produzcan en los diferentes ministerios, para que por medio de decreto de la Oficina de Planificación Nacional y Política Económica, efectúe los cambios necesarios en la Relación de Puestos de la Administración Pública, a fin de cumplir lo dispuesto en el párrafo anterior.

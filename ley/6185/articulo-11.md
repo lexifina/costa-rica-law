@@ -1,0 +1,1 @@
+Artículo 11.-Modifícase la Norma General Quincuagesimocuarta del Presupuesto de 1976, ley Nº 5875 de 27 de diciembre de 1975, para que el 10% destinado a Plaza de Deportes del Barrio Jiménez de Grecia se destine a gastos varios de la Asociación de Desarrollo Específico Pro-Mejoras del Barrio Jiménez de Grecia.
