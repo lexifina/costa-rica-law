@@ -1,0 +1,2 @@
+Artículo 7º.- Autorízase al Ministerio de Economía y Hacienda, para que girando contra los fondos producidos por los remates, o aplicando dinero en Caja de la Oficina Administradora de la Propiedad Intervenida, cubra los montos de los gravámenes que deban serlo y pesen sobre los bienes intervenidos y de las indemnizaciones acordadas por resoluciones firmes, a cargo de las personas intervenidas que señala el artículo 1º.
+En tales casos el Estado subrogará en los derechos de los respectivos acreedores.
