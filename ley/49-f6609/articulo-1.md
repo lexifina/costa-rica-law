@@ -1,0 +1,9 @@
+DECRETO XLIX
+Designa los individuos que deben componer el Tribunal
+para conocer en la causa contra el ex Presidente
+de la C. S. de Justicia
+“El Vice-Gefe del Estado libre de Costa-Rica en ejercicio del Supremo Poder Ejecutivo.-Por cuanto el Consejo Representativo ha decretado lo siguiente.
+El Consejo Representativo del Estado libre de Costa-Rica:-Por cuanto con presencia de los decretos emitidos por la Asamblea del Estado en 19 de Junio y 2 de Julio del año de 1830, declarando el primero haber lugar à formación de causa contra el ex Presidente de la Corte Superior de Justicia Lic. Braulio Carrillo, y el segundo contra los individuos de la misma, comprendidos en las quejas de la Ciudadana Concepcion Palacios: enterado del dictámen de la Comision de la Legislatura á quien se pasó el reclamo del expresado Carrillo para que se nombre el Tribunal que ha de conocer de su causa; y arreglado al art. 95 de la Constitucion del Estado, ha tenido à bien decretar y decreta.
+1° Nòmbrase el Tribunal que ha de conocer de las causas contra el expresidente de la Corte Superior de Justicia é individuos de la misma, el cual será compuesto de los Diputados Suplentes CC. Presbítero José Ana Ulloa, Manuel Fernandez y José Francisco Fonseca.
+2. Los individuos nombrados comparecerán en esta ciudad el dia veinticuatro del mes de Abril próximo entrante, y se presentaràn en la Sala de este Cuerpo à las nueve de la mañana à prestar el juramento de estilo.
+3. El presente decreto se comunicará al Supremo Gobierno para los fines que sean consiguientes.-Dado en San Josè à veintidós dias del mes de Marzo de mil ochocientos treinta y dos.-Feliz de Bonilla, Presidente.-Josè Anselmo Sancho, Secretario.-Por tanto: Ejecutese. San José Marzo veintitres de mil ochocientos treinta y dos.-José Rafael de Gallegos.-Al C. Joaquin Bernardo Calvo.”
