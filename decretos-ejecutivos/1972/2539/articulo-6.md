@@ -1,0 +1,1 @@
+Artículo 6°—Cualquier miembro de la Comisión podrá solicitar la revisión de un acuerdo que se hubiere tomado en la sesión anterior, con excepción de los acuerdos firmes. La revisión se resolverá en la misma sesión en que sea planteada.

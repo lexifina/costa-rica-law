@@ -1,0 +1,1 @@
+Artículo 12.—Las decisiones de la Comisión se tomarán por mayoría absoluta de votos presentes en cada sesión. En caso de empate se decidirá en la sesión siguiente, y de repetirse dicho empate, el Presidente decidirá con doble voto. Se comunicarán por escrito al Ministro de Relaciones Exteriores.

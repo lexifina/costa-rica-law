@@ -1,0 +1,1 @@
+Artículo 2°—Una vez integrada la Comisión mediante los acuerdos respectivos, ésta procederá a designar de su seno por el período legal un Presidente y un Secretario. El cargo de Secretario deberá ser desempeñado por uno de los funcionarios de la Cancillería de tiempo completo, designado por el Ministerio de Relaciones Exteriores dentro de la Comisión.

@@ -1,0 +1,1 @@
+Artículo 5°—El Secretario, o en su ausencia, la persona que designe la Comisión, levantará un Acta de cada sesión, la cual será leída, enmendada, improbada o aprobada en definitiva, según el caso, en la sesión siguiente, salvo los acuerdos firmes. El Acta consignará los votos salvados. Deberá ser firmada por el Presidente y el Secretario en la sesión en que es leída.
