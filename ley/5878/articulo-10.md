@@ -1,0 +1,12 @@
+ARTICULO DECIMO
+Facilidades para la prestación de la Asistencia del PNUD
+1.-El Gobierno adoptará todas las medidas necesarias para que el PNUD, sus Organismos de Ejecución, sus expertos y demás personas que presten servicios por cuenta de ellos, estén exentos de los reglamentos u otras disposiciones legales que puedan entorpecer las operaciones que se realicen en virtud del presente Acuerdo, y les dará las demás facilidades que sean necesarias para la rápida y eficiente realización de la asistencia del PNUD. En particular, les concederá los derechos y facilidades siguientes:
+(a) aprobación rápida de los expertos y de otras personas que presten servicios por cuenta del PNUD o de un Organismo de Ejecución;
+(b) Expedición rápida y gratuita de los visados, permisos o autorizaciones necesarias;
+(c) Acceso a los lugares de ejecución de los proyectos y todos los derechos de paso necesarios;
+(d) Derecho de circular libremente dentro del país, y de entrar en él o salir del mismo, en la medida necesaria para la adecuada realización de la asistencia el PNUD;
+(e) El tipo de cambio legal más favorable;
+(f) Todas las autorizaciones necesarias para la importación de equipo, materiales y suministros, así como para su exportación ulterior;
+(g) Todas las autorizaciones necesarias para la importación de bienes de uso o de consumo personal, pertenecientes a los funcionarios del PNUD o a sus Organismos de Ejecución o a otras personas que presten servicios por cuenta de ellos, y para la ulterior exportación de tales bienes; y
+(h) Rápido paso por las aduanas de los artículos mencionados en los incisos (f) y (g) supra.
+2.-Dado que la asistencia prevista en el presente Acuerdo se presta en beneficio del Gobierno y el pueblo de Costa Rica, el Gobierno cargará con el riesgo de las operaciones que se ejecuten en virtud del presente Acuerdo. El Gobierno deberá responder de toda reclamación que sea presentada por terceros contra el PNUD o contra un Organismo de Ejecución, contra el personal de cualquiera de ellos o contra otras personas que presten servicios por su cuenta, y las exonerará de cualquier reclamación o responsabilidad resultante de las operaciones realizadas en virtud del presente Acuerdo. Esta disposición no se aplicará cuando las Partes y el Organismo de Ejecución convengan en que tal reclamación o responsabilidad se ha debido a negligencia grave o a una falta intencional de dichas personas
