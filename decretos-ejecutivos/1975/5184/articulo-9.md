@@ -1,0 +1,1 @@
+Artículo 9°—Depósito de las contribuciones. Las contribuciones serán depositadas por los entes descentralizados, en cuotas mensuales iguales, en una cuenta corriente que al efecto se constituirá en uno de los bancos del Estado, a nombre de la Oficina de Planificación Nacional y Política Económica.

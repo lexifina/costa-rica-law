@@ -1,0 +1,2 @@
+Artículo 11.—Ejecución presupuestaria y contabilidad. El manejo del Fondo estará a cargo del Ministro de Planificación quien, para efectos de ejecución presupuestaria, asignará las funciones pertinentes al Director Administrativo de la Oficina de Planificación Nacional.
+La Contabilidad del Fondo, se llevará de acuerdo con las normas convenidas entre la Oficina de Planificación y la Contraloría General de la República.

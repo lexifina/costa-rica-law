@@ -1,0 +1,2 @@
+Artículo 12.—Presupuesto del fondo. Para el manejo del Fondo, la Oficina de Planificación, preparará un presupuesto anual bajo la modalidad de presupuesto por programas y actividades, el cual someterá al Consejo de Coordinación interinstitucional a más tardar el 1° de octubre de cada año y a la Contraloría General de la República a más tardar el 1° de noviembre siguiente.
+El presupuesto en referencia regirá para el período comprendido entre el 1° de enero y el 31 de diciembre de cada año.

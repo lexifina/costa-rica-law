@@ -1,0 +1,1 @@
+Artículo 10.—Firmas autorizadas para girar. Los cheques que se emiten contra la mencionada cuenta corriente deberán llevar dos firmas: la del Ministro de Planificación y Política Económica o la del Director Adjunto de la Oficina de Planificación v la del Director Administrativo o la del Jefe de la Sección Financiero-Contable de la OFIPLAN.

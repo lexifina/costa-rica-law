@@ -1,0 +1,1 @@
+Artículo 8°—Exenciones. Cuando el total de la base de cálculo del uno por ciento sea superior a los ingresos corrientes (déficit en cuenta corriente), la respectiva entidad descentralizada quedará exenta de la contribución.

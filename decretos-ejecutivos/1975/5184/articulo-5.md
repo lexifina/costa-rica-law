@@ -1,0 +1,1 @@
+Artículo 5°—Erogaciones por concepto de distribución de utilidades. Las erogaciones que se hagan por concepto de distribución de utilidades deberán incluirse entre los gastos totales del esquema de cuentas descrito en el artículo 4°, excepto aquéllas que no signifiquen disminución del patrimonio, tales como las reservas patrimoniales.
