@@ -56,3 +56,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 41 | 2002-05-02 | Decreto Ejecutivo 30389 (2002-05-02) |
 | 42 | 2003-01-10 | Decreto Ejecutivo 31018 (2003-01-10) |
 | 43 | 2003-02-14 | Decreto Ejecutivo 31064 (2003-02-14) |
+| 44 | 2003-02-20 | Decreto Ejecutivo 31101 (2003-02-20) |

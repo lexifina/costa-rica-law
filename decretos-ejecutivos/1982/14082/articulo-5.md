@@ -283,8 +283,8 @@ Reglas escolares de medición hasta 30 cm.
 (Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Bolígrafos desechables (que no se les puede remover o cambiar el depósito de tinta)
 (Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
-Lápices de mina negra del inciso arancelario 96091010
-(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+Lápices de mina negra del inciso arancelario 960910.
+(Así reformada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 31101 del 20 de febrero de 2003)
 Lápices de colores para dibujar
 Crayones
 Tajador (sacapuntas de bolsillo)
