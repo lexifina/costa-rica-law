@@ -1,0 +1,1 @@
+ARTÍCULO 6º-Este reglamento será aplicable, en lo que fuere pertinente, a los procedimientos administrativos sancionatorios contenidos en leyes especiales, y en los que la Procuraduría General de la República sea tenida como parte.

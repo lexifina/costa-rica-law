@@ -1,0 +1,2 @@
+ARTÍCULO 7º-Los funcionarios públicos de las distintas dependencias del Sector Público, conforme lo señala el artículo 27 de la Ley Orgánica de la Procuraduría General de la República, estarán en la obligación de proporcionarle a la representación estatal todo el soporte técnico, material y humano que ésta requiera, para el fiel cumplimiento de las atribuciones por este reglamento conferidas. Dado en la Presidencia de la República.
+Dado en la Presidencia de la República.—San José, a los treinta días del mes noviembre de mil novecientos noventa y ocho.

@@ -1,0 +1,1 @@
+ARTÍCULO 4º-En los delitos contra la hacienda pública, la conciliación u otra medida alternativa procederá únicamente para las obligaciones accesorias, recargos y multas, previa resolución de la Administración Tributaria, de acuerdo con lo dispuesto por el artículo 50 del Código de Normas y Procedimientos Tributarios. En igual sentido se procederá en materia aduanera.
