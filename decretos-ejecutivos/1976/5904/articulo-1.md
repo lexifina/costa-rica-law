@@ -382,7 +382,7 @@ De este punto, al punto de origen de la presente descripción, vértice Angucian
 (Así reformado por el artículo 2° del decreto ejecutivo N° 12232 del 26 de enero de 1981)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 12232 del 26 de enero de 1981, se acordó modificar los linderos de la Reserva Indígena Guaymí de Coto Brus, a fin de incluir en ella al grupo indígena de Paraíso y excluir los Altos del Cerro Paraguas)
 (Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 12232 del 26 de enero de 1981, se indicó qie la Reserva Indígena Guaymí de Coto Brus, en referencia a la División Político - Administrativa, tendrá en adelante calidad de "Barrio" del cantón de Coto Brus)
-RESERVA INDÍGENA GUAYMÍ DE CONTEBURICA(*)
+RESERVA INDÍGENA GUAYMÍ DE CONTE-BURICA(*)
 (Mediante el artículo 1° del decreto ejecutivo N° 8514 del 2 de mayo de 1978, se indicó que la Reserva Indígena de Burica se llamará en adelante: "Reserva Indígena Guaymí de Conteburica". Posteriormente por el artículo 1° del decreto ejecutivo N° 13545 del 26 de abril de 1982, se indicó que la a Reserva Indígena de Burica se llamará en adelante: "Reserva Indígena Guaymí de Conteburica".)
 La Reserva Indígena Guaymí de Conte-Burica se localiza en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Pavón 3541-11, Río Caña Blanca 3540-1, Puerto Armuelles 3640-IV.
 La Reserva se delimita por los puntos cuyas coordenadas se dan a continuación:
@@ -643,10 +643,19 @@ De aquí hasta el punto inicial de la presente descripción de coordenadas N 394
 Además, la Reserva de Talamanca incluirá, como anexo administrativo, la "Reserva Indígena de Cocles", correspondiente a parte de las fincas 1.089 y 1.050 del ITCO.
 Su delimitación exacta será efectuada por el ITCO, en coordinación con la CONAI.
 (Así reformado los linderos de la Reserva Indígena de Talamanca anterior por el artículo 4° del decreto ejecutivo N° 6036 del 26 de mayo de 1976)
+(*)El límite oeste de la Reserva Indígena Talamanca es en adelante la línea definida por las siguientes coordenadas:
+360 000 N | 553 000 E
+387 050 N | 554 400 E
+386 900 N | 555 650 E
+387 200 N | 556 200 E
+388 725 N | 557 600
+De allí una recta a la naciente del río Cavei, y sigue el río Cavei hasta encontrar el límite de una reserva definido por el decreto N° 6036-G, de 12 de junio de 1976.
+(*) (Así adicionado los límites oestes de la Reserva Indígena Talamanca por el artículo 2° del decreto ejecutivo N° 13591 del 6 de mayo de 1982)
 (Nota de Sinalevi: Mediante el artículo 4° del decreto ejecutivo N° 13572 del 30 de abril de 1982, se acordó dividir la Reserva Indígena de Talamanca, decretada y delimitada por el decreto N° 6036-G, "La Gaceta" N° 114, de 15 de junio de 1976, en dos reservas distintas, con los nombres oficiales de:
 1. Reserva Indígena Cabécar de Talamanca (Talamanca Oeste).
 2. Reserva Indígena Bribrí de Talamanca (Talamanca Este).")
 (Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 13572 del 30 de abril de 1982, se indicó que la Reserva Indígena Cabécar de Talamanca incluye los caseríos y poblados de: San José Cabécar, Coén, Xcuy, Mojoncito, Cabey, Jamey, Gavilán, Canta y Sibuju y la Reserva Indígena Bribrí de Talamanca incluye los caseríos y poblados de Alto Urén, Alto Lari, Coroma, Sepecue, Amubri, Katsi, Boca Urén, Sheuab-Yorkin, Shiroles, Suretka, Bambú-Bratsi, Chase, Watsi y Cocles.)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 13591 del 6 de mayo de 1982, se acordó excluyir de la Reserva Indígena de Talamanca los terrenos ocupados por no indígenas y situados en la zona de los ríos Bitey y Duruy, y de la cabecera norte de Watsi así como los terrenos del sureste de la Reserva de Cocles; el límite exacto de los terrenos segregados será presentado por la Sección de Asuntos Indígenas del IDA, para el trámite correspondiente ante el Poder Ejecutivo.)
 RESERVA INDÍGENA DE CHASE
 Partiendo de un punto en el río Sixaola, coordenadas N 393 850 E 586 450, se continúa con los siguientes rumbos, distancias y coordenadas:
 N 37 18 W | 1 320.04 | 394 900 | 585 650
