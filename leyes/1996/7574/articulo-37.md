@@ -2,8 +2,8 @@ ARTICULO 37
 Controversias y reclamaciones
 1.- Toda controversia relativa a la interpretación o aplicación de
 este Convenio que no se resuelva mediante negociaciones será sometida al
-Consejo para su decisión, a petición de cualquier Miembro que sea parte de
-la controversia.
+Consejo para su decisión, a petición de cualquier Miembro que sea parte
+de la controversia.
 2.- En todos los casos en que una controversia haya sido remitida al
 Consejo en virtud de lo dispuesto en el ordinal 1 del presente artículo,
 una mayoría de los Miembros, o Miembros que tengan por lo menos un tercio
@@ -22,8 +22,9 @@ anteriormente, designadas por los Miembros importadores; y
 iii) un presidente elegido por unanimidad por las cuatro personas
 designadas en virtud de los subnumerales i) y ii), o, en caso de
 desacuerdo, por el Presidente del Consejo.
-b) Podrán ser designados para integrar el grupo consultivo ciudadanos
-de los países cuyos Gobiernos sean Partes Contratantes de este Convenio.
+b) Podrán ser designados para integrar el grupo consultivo
+ciudadanos de los países cuyos Gobiernos sean Partes Contratantes de este
+Convenio.
 c) Las personas designadas para formar el grupo consultivo actuarán
 a título personal y sin sujeción a instrucciones de ningún Gobierno.
 d) Los gastos del grupo consultivo serán costeados por la
@@ -46,10 +47,10 @@ de la infracción.
 incumplido las obligaciones que le impone este Convenio, podrá sin
 perjuicio de las medidas coercitivas previstas en otros artículos de este
 Convenio, privar a dicho Miembro por mayoría distribuida de dos tercios,
-de su derecho de voto en el Consejo y de su derecho a que se depositen sus
-votos en la Junta Ejecutiva hasta que cumpla sus obligaciones, o decidir
-excluir de la Organización a dicho Miembro en virtud de lo dispuesto en el
-artículo 45.
+de su derecho de voto en el Consejo y de su derecho a que se depositen
+sus votos en la Junta Ejecutiva hasta que cumpla sus obligaciones, o
+decidir excluir de la Organización a dicho Miembro en virtud de lo
+dispuesto en el artículo 45.
 9.- Todo Miembro podrá solicitar la opinión previa de la Junta
-Ejecutiva acerca de cualquier asunto objeto de controversia o reclamación,
-antes de que dicho asunto se trate en el Consejo.
+Ejecutiva acerca de cualquier asunto objeto de controversia o
+reclamación, antes de que dicho asunto se trate en el Consejo.

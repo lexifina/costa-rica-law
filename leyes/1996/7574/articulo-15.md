@@ -9,13 +9,14 @@ dos tercios, se aplicará el siguiente procedimiento:
 a) si no se logra una mayoría distribuida de dos tercios debido al
 voto negativo de tres o menos Miembros exportadores o de tres o menos
 Miembros importadores, la propuesta volverá a ponerse a votación en un
-plazo de 48 horas, si el Consejo así lo decide por mayoría de los Miembros
-presentes y por mayoría simple distribuida;
+plazo de 48 horas, si el Consejo así lo decide por mayoría de los
+Miembros presentes y por mayoría simple distribuida;
 b) si en la segunda votación no se logra tampoco una mayoría
-distribuida de dos tercios debido al voto negativo de dos o menos Miembros
-exportadores o de dos o menos Miembros importadores la propuesta volverá
-a ponerse a votación en un plazo de 24 horas, si el Consejo así lo decide
-por mayoría de los Miembros presentes y por mayoría simple distribuida;
+distribuida de dos tercios debido al voto negativo de dos o menos
+Miembros exportadores o de dos o menos Miembros importadores la propuesta
+volverá a ponerse a votación en un plazo de 24 horas, si el Consejo así
+lo decide por mayoría de los Miembros presentes y por mayoría simple
+distribuida;
 c) si no se logra una mayoría distribuida de dos tercios en la
 tercera votación debida al voto negativo de un Miembro exportador o
 importador, se considerará aprobada la propuesta; y

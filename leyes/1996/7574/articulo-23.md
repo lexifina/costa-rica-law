@@ -11,7 +11,7 @@ haya abonado dicha contribución. Sin embargo, a menos que el Consejo lo
 decida por mayoría distribuida de dos tercios, no se privará a dicho
 Miembro de ninguno de sus demás derechos ni se le eximirá de ninguna de
 las obligaciones que le impone este Convenio.
-3.- Ningún Miembro cuyos derechos de voto hayan sido suspendidos, sea
-en virtud de las disposiciones del ordinal 2 del presente artículo o en
-virtud de las disposiciones del artículo 37 quedará relevado por ello del
-pago de su contribución.
+3.- Ningún Miembro cuyos derechos de voto hayan sido suspendidos,
+sea en virtud de las disposiciones del ordinal 2 del presente artículo o
+en virtud de las disposiciones del artículo 37 quedará relevado por ello
+del pago de su contribución.

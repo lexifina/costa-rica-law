@@ -30,5 +30,5 @@ más de 499 votos en total.
 votos, los Miembros que hubieren votado o traspasado sus votos a favor de
 dicho Miembro electo se pondrán de acuerdo para que uno o varios le
 retiren sus votos y los traspasen o redistribuyan a favor de otro Miembro
-electo, de manera que ninguno de ellos reciba más de los 499 votos fijados
-como máximo.
+electo, de manera que ninguno de ellos reciba más de los 499 votos
+fijados como máximo.

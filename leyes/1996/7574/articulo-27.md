@@ -20,11 +20,12 @@ produzcan, elaboren o comercialicen el café. Los Miembros proporcionarán
 la información solicitada en la forma más detallada y precisa que sea
 posible.
 3.- El Consejo establecerá un sistema de precios indicativos, en el
-que se estipulará la publicación de un precio indicativo compuesto diario.
+que se estipulará la publicación de un precio indicativo compuesto
+diario.
 4.- Si un Miembro dejare de suministrar, o tuviere dificultades para
 suministrar, dentro de un plazo razonable, datos estadísticos u otra
 información que necesite el Consejo para el buen funcionamiento de la
 Organización, el Consejo podrá exigirle que exponga las razones de la
-falta de cumplimiento. Si se comprobare que necesita asistencia técnica en
-la cuestión, el Consejo podrá adoptar cualquier medida que se requiera al
-respecto.
+falta de cumplimiento. Si se comprobare que necesita asistencia técnica
+en la cuestión, el Consejo podrá adoptar cualquier medida que se requiera
+al respecto.
