@@ -1,0 +1,1 @@
+Art 2°.- Estando invadidas por la Langosta todas las haciendas de Pavas, Mataredonda, Uruca y Lagunilla, se obliga bajo la misma pena a los dueños de dichas haciendas a tener arado y revuelto el terreno con rastrillo, en el término de treinta días desde esta fecha.

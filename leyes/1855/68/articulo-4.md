@@ -1,0 +1,2 @@
+Art 4°.- A los treinta días de la publicación del referido decreto, se trasladarán los Gobernadores de las Provincias respectivas a los terrenos enunciados y practicarán el reconocimiento que corresponde; y aplicado a los infractores las penas a que hayan dado lugar, les harán cumplir con su obligación y darán inmediatamente cuenta al Ministerio del Interior.
+Dado en los treinta y un días del mes de mayo de mil ochocientos cincuenta y cinco.
