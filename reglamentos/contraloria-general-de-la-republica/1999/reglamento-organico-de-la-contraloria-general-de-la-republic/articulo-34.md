@@ -9,3 +9,4 @@ Artículo 34.—Al Departamento Financiero le corresponde:
 8) Preparar y rendir al Contralor y Subcontralor, toda clase de informes sobre las operaciones financieras de la Contraloría.
 9) Elaborar y presentar a los contralores el anteproyecto de presupuesto de la Contraloría, previa consulta a los directores de Dirección y jefes de departamento, sobre las necesidades de cada unidad.
 10) Realizar todas aquellas otras funciones, propias de la unidad, que le sean asignadas por sus superiores.
+(DEROGADO por el artículo 2º emitido por Resolución de la Contraloría General de la República del 17 de febrero del 2000)

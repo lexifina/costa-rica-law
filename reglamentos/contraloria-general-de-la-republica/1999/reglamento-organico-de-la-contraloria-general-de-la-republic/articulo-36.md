@@ -8,3 +8,4 @@ Artículo 36.—Al Departamento de Servicios Generales le corresponde:
 7) Recibir, numerar, registrar y distribuir la correspondencia y documentos que procedan de otras entidades o personas.
 8) Recibir, registrar y expedir, con la brevedad del caso, la correspondencia oficial que remite la Contraloría.
 9) Llevar y custodiar el Archivo Central.
+(DEROGADO por el artículo 2º emitido por Resolución de la Contraloría General de la República del 17 de febrero del 2000)

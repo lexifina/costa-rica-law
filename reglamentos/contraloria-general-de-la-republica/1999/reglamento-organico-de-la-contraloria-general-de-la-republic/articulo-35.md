@@ -3,3 +3,4 @@ Artículo 35.—Al Departamento de Proveeduría le corresponde:
 2) Atender la entrega de materiales y suministros a todas las unidades de la Contraloría.
 3) Llevar un inventario permanente de las existencias en Proveeduría.
 4) Cumplir todas aquellas otras funciones, propias de la unidad, que le sean asignadas por sus superiores.
+(DEROGADO por el artículo 2º emitido por Resolución de la Contraloría General de la República del 17 de febrero del 2000)
