@@ -14,3 +14,4 @@ Concede autorización genérica y permanente en favor de los miembros de las Mis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-08-20 | la propia norma |
+| 2 | 1995-06-19 | Resolución 26 (1995-06-19) |
