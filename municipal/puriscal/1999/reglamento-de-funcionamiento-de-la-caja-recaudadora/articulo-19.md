@@ -1,0 +1,2 @@
+Artículo 19.-El cajero(a) debe atender en forma eficiente y en primera instancia el público contribuyente sin que exista demora alguna, salvo que la fila de interesados en cancelar así lo demande.
+Para no entorpecer esta labor y para que él o la encargada de la caja permanezca dentro de su oficina el Tesorero recogerá todos los días después de las 9,30 horas, la documentación correspondiente al día anterior.

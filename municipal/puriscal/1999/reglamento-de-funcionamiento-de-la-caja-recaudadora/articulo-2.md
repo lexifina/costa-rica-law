@@ -1,0 +1,2 @@
+FUNCIONAMIENTO
+Artículo 2°-El monto de dinero con que operará la caja recaudadora será de un 0,05 % de los ingresos corrientes reales de la Municipalidad y será establecido por la administración mediante resolución del Alcalde (sa) Municipal. Los recursos del fondo se utilizarán exclusivamente para el cambio por los pagos de los contribuyentes. En el momento que el Alcalde (sa) Municipal lo estime conveniente, podrá efectuar arqueos en la caja recaudadora, junto con el Contador Municipal.

@@ -1,0 +1,1 @@
+Artículo 13.-AI finalizar el día, el(la) cajero(a) realiza el cierre de caja, recibe listado de recibos emitidos por parte del departamento respectivo y concilia los datos y totales, revisa si todos los comprobantes emitidos fueron cancelados, prepara y firma el depósito con lo que ha quedado después de los depósitos parciales efectuados durante el día.

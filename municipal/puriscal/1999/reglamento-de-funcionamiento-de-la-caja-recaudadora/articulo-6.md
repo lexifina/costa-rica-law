@@ -1,0 +1,1 @@
+Artículo 6°-Cuando haya un faltante a la hora del cierre de la caja recaudador, el encargado deberá cubrirlo durante el transcurso del día hábil siguiente a la ocunencia del faltante ya que es responsable del mismo. En caso de un sobrante en la recaudación, caso que no debe ocurrir, será depositado al día siguiente a nombre de la institución.

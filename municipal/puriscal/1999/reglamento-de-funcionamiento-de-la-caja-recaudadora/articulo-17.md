@@ -1,0 +1,1 @@
+Artículo 17.-En los periodos de poca anuencia de contribuyentes durante el día el(la) cajero(a) realizará las labores de oficina (gestión de cobro), siempre que estas se realicen dentro del cubículo de la caja.

@@ -1,0 +1,1 @@
+Artículo 20.-Cualquier enmienda de estas normas internas establecidas en la Municipalidad, podrá efectuarse mediante acuerdo del Concejo. El presente reglamento deroga el aprobado en sesión 853 del 19 de agosto de 1992 y sus reformas.

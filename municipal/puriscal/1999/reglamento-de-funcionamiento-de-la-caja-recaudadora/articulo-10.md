@@ -1,0 +1,1 @@
+Artículo 10.-A la caja recaudadora ingresará únicamente dinero efectivo, salvo cheque por el monto completo que se adeuda a nombre de la Municipalidad de Puriscal. A todo recibo cancelado con cheque debe consignársele la leyenda "la validez de este documento queda sujeta a que el cheque tenga fondos".

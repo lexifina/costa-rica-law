@@ -1,0 +1,1 @@
+Artículo 11.-La oficina que emite los comprobantes de ingreso atenderá a todos los usuarios que en el momento del cierre de las oficinas se encuentren dentro de esta esperando cancelar los tributos municipales y, el (la) cajero(a) debe conceder el tiempo necesario para hacer recibir el ingreso.
