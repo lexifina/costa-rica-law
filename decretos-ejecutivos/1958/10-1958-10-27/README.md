@@ -14,3 +14,4 @@ Reglamento para el Comercio y la Torrefacción de Café destinado al Consumo Int
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1959-01-01 | la propia norma |
+| 2 | 1964-12-12 | Decreto Ejecutivo 69 (1964-12-12) |
