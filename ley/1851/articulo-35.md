@@ -1,1 +1,0 @@
-Artículo 35.- Queda terminantemente prohibido otorgar permisos o derechos de ocupación, disfrute, uso o simple posesión de las orillas de caminos públicos o ejercer actos que impliquen en cualquier forma tenencia de los mismos por parte de los particulares.

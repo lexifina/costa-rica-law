@@ -1,1 +1,0 @@
-Artículo 8º.- Como Encargado Cantonal de Caminos no podrá ser nombrado quien tenga parentesco, por consanguinidad o afinidad dentro del tercer grado inclusive, con cualquiera de los miembros de la Junta Cantonal respectiva.

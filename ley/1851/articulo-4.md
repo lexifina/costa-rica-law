@@ -1,1 +1,0 @@
-Artículo 4º.- El ancho de las carreteras y de los caminos vecinales será el que indiquen los Departamento Técnicos del Ministerio de Obras Públicas, sin que pueda ser menor de veinte metros para las primeras y de catorce metros para los segundos.
