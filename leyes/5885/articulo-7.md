@@ -1,0 +1,2 @@
+ARTICULO SÉTIMO
+El Tratado Interamericano de Asistencia Recíproca con el presente Protocolo de Reformas quedan abiertos a la firma de los Estados Miembros de la Organización de los Estados Americanos que no sean Partes en el Tratado Interamericano de Asistencia Recíproca y serán ratificados de conformidad con sus respectivos procedimientos constitucionales. Los instrumentos de ratificación serán depositados en la Secretaría General, y ésta notificará cada depósito a los Estados Partes del Tratado.
