@@ -1,0 +1,1 @@
+Artículo 3°.-El Ministerio de Educación Pública por medio de la Asesoría Nacional de Educación Cívica, se encargará de confeccionar y distribuir en las instituciones públicas el documento de conmemoraciones históricas, que servirá de base para preparar la información que se dará al público.

@@ -1,0 +1,1 @@
+Artículo 4°.-La Asesoría Nacional de Educación Cívica, procederá a enriquecer año con año la información sobre conmemoraciones históricas que debe presentarse en los carteles que se exhiban en las instituciones públicas.

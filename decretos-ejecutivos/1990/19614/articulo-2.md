@@ -1,0 +1,1 @@
+Artículo 2°.-El cartel debe informar en primera línea, la fecha del día, seguidamente las citas de los principales sucesos históricos acaecidos o efemérides que se deban conmemorar ese día o en días cercanos.
