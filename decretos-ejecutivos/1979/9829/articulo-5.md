@@ -1,0 +1,1 @@
+Artículo 5°-La Comisión se reunirá por lo menos 2 veces al mes, podrá ser convocada en cualquier fecha cuando tres de sus miembros o el Presidente lo estimen necesario. Cuatro de sus miembros formarán quórum.
