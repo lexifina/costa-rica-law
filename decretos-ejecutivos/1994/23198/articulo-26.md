@@ -1,1 +1,0 @@
-Artículo 26°-Los Traductores Oficiales tienen la obligación de mantenerse en comunicación con la Dirección Jurídica, a fin de estar al día con sus expedientes y acoger las disposiciones que a su régimen jurídico se refieren.

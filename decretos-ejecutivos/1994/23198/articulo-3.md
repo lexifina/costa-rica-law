@@ -1,1 +1,0 @@
-Artículo 3°-El Traductor e Intérprete Oficial como funcionario público que es y acreedor de fe pública que le ha sido conferida mediante el acuerdo ejecutivo de nombramiento, deberá guardar el secreto profesional con respecto a todos los actos que realice en el ejercicio de su profesión.

@@ -1,1 +1,0 @@
-Artículo 20°-El sello del Traductor Oficial deberá llevar una leyenda con la siguiente información: Traductor Oficial, nombre del traductor e idioma. Puede incluir además el número de acuerdo, publicación, número de "La Gaceta", ciudad, país. El Traductor Oficial, deberá tener un sello para cada uno de los idiomas en que esté autorizado

@@ -1,1 +1,0 @@
-Artículo 25°-Cualquier irregularidad que se manifieste en el informe, o la falta de su presentación, podrá hacer al Traductor e Intérprete Oficial acreedor a las medidas disciplinarias a las que se refiere el capítulo VIII.

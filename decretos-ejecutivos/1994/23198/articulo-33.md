@@ -1,1 +1,0 @@
-Artículo 33°-El apercibimiento puede ser oral o escrito, según se trate de fltas leves o graves. Si un Traductor o Intérprete Oficial acumula tres apercibimientos por escrito, esto implicará la cancelación de la categoría de Traductor e Intérprete Oficial en forma inmediata y así constará mediante Acuerdo Ejecutivo debidamente publicado en "La Gaceta".

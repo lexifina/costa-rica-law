@@ -1,1 +1,0 @@
-Artículo 35°-Dependiendo de la dimensión de los efectos de la falta grave en que incurra el Traductor e Intérprete Oficial, la Dirección Asesoría Jurídica podrá sin necesidad de apercibimiento, proceder a la cancelación inmediata de la categoría de Traductor Oficial, dejando manifestación clara y motivada en el expediente de los hechos y considerandos respectivos.

@@ -1,1 +1,0 @@
-Artículo 31°-La Dirección Jurídica designará a uno de sus funcionarios para coordinar los servicios de traducción e interpretación y custodiar los registros y archivos en el desempeño de sus actividades.

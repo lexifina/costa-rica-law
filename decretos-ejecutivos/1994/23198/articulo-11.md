@@ -1,1 +1,0 @@
-Artículo 11°-El Ministerio de Relaciones Exteriores y Culto, mantendrá a disposición del público un ejemplar del arancel de tarifas. El Traductor e Intérprete Oficial que cobre sumas superiores o inferiores a las fijadas en el arancel, se hará acreedor a las medidas disciplinarias que correspondan, de conformidad con lo dispuesto en el capítulo respectivo de este reglamento.

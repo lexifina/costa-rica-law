@@ -1,1 +1,0 @@
-Artículo 30°-La Dirección Jurídica deberá celebrar periódicamente reuniones con los Traductores e Intérpretes Oficiales y con el propósito de examinar los problemas que enfrenten en sus actividades, las posibilidades de elevar la calidad de los servicios y todos los otros asuntos que revistan en las relaciones con los Traductores e Intérpretes Oficiales y sus funciones.

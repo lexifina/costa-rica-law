@@ -1,1 +1,0 @@
-Artículo 10°-Cuando el Traductor Oficial actúe en su calidad de traductor libre, no estará obligado a sujetarse a los montos estipulados en el decreto de tarifas, previo acuerdo con el cliente en cuanto al precio y las condiciones de su servicio. En este caso no deberá hacer uso de su sello o cualquier distintivo de su calidad oficial.
