@@ -1,2 +1,2 @@
-Artículo 37.—La Asamblea General o la de delegados, según el caso, será la autoridad suprema y sus acuerdos obligan a la cooperativa y a todos sus asociados, presentes y ausentes, siempre que estuvieren de conformidad con esta ley, los estatutos y los reglamentos de la cooperativa.
+Artículo 37.- La asamblea general o la de delegados, según el caso, será la autoridad suprema y sus acuerdos obligan a la cooperativa y a todos sus asociados, presentes y ausentes, siempre que estuvieren de conformidad con esta ley, los estatutos y los reglamentos de la cooperativa.
 Estará integrada por todos los asociados que al momento de su celebración estuvieren en el pleno goce de sus derechos.

@@ -1,0 +1,1 @@
+Artículo 177.- El personal del INFOCOOP deberá ser integrado a base de idoneidad comprobada y la promoción dentro de las categorías respectivas deberá hacerse tomando en cuenta los méritos del servidor y su identificación con los fines del Instituto.

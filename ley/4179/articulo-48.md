@@ -1,1 +1,1 @@
-Artículo 48.—Los estatutos de cada cooperativa establecerán el quórum necesario para que el Consejo de Administración sesione válidamente, el cual, en ningún caso podrá ser inferior a la mayoría absoluta de sus miembros. También establecerán los estatutos la forma de tomar los acuerdos.
+Artículo 48.- Los estatutos de cada cooperativa establecerán el quórum necesario para que el consejo de administración sesione válidamente, el cual, en ningún caso podrá ser inferior a la mayoría absoluta de sus miembros. También establecerán los estatutos la forma de tomar los acuerdos.

@@ -1,0 +1,1 @@
+Artículo 133.- Los Tribunales de Trabajo, salvo los casos expresamente señalados en esta ley, tendrán competencia sobre las acciones que se deriven de ella, de conformidad con lo dispuesto en el título VII, del capítulo I del Código de Trabajo.

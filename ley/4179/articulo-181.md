@@ -1,0 +1,1 @@
+Artículo 181.- Independientemente de los servicios crediticios que con sus recursos iniciales el INFOCOOP pueda brindarles a las cooperativas del país, el Sistema Bancario Nacional continuará apoyando financieramente a las cooperativas que sí lo requieran, para el desenvolvimiento normal de sus actividades económico-sociales.

@@ -1,1 +1,1 @@
-Artículo 5°—Los asociados de una cooperativa tienen el deber de realizar sus transacciones y operaciones con la misma; en caso de que no 10 hicieran, sin razón que lo justifique, sufrirán las sanciones previstas en la presente ley y en los estatutos de la cooperativa.
+Artículo 5º.- Los asociados de una cooperativa tienen el deber de realizar sus transacciones y operaciones con la misma; en caso de que no lo hicieran, sin razón que lo justifique, sufrirán las sanciones previstas en la presente ley y en los estatutos de la cooperativa.

@@ -1,0 +1,1 @@
+Artículo106.- El consejo de administración será electo por la asamblea general y sus miembros estarán en sus cargos por un período de dos años, pudiendo ser reelectos consecutivamente por una sola vez.

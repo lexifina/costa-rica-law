@@ -1,0 +1,1 @@
+Artículo 149.- El aporte inicial que haga el Fondo para constituir empresas cooperativas de autogestión, será reembolsado por las mismas empresas cooperativas en un plazo que será convenido en cada caso, teniendo en cuenta la rentabilidad estimada para la cooperativa según el estudio de factibilidad elaborado para obtener el financiamiento de la misma.

@@ -1,0 +1,1 @@
+Artículo 117.- Las oportunidades de inversión que surjan como consecuencia de la existencia de actividades económicas reservadas al Estado, podrán desarrollarse, preferentemente por cooperativas de autogestión o de cogestión entre el Estado y los trabajadores.

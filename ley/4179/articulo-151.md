@@ -1,0 +1,2 @@
+Artículo 151.- La Comisión Permanente de Cooperativas de Autogestión por propia iniciativa, o a solicitud de las empresas cooperativas podrá reajustar los plazos y tasas de interés convenidos al momento de conceder los aportes iniciales, si el comportamiento de las empresas o los factores externos ameritan que se realice el reajuste.
+En tal caso la comisión de crédito y la empresa cooperativa de que se trate suscribirán un nuevo contrato.
