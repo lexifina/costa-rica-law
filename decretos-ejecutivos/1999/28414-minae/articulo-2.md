@@ -1,0 +1,1 @@
+Articulo 2°-Para todos los efectos Ie corresponde al Sistema Nacional de Áreas de Conservación (SINAC), del Ministerio de Ambiente y Energía, determinar, definir y aprobar el uso adecuado tanto del nombre como de la imagen de Toño Pizote.
