@@ -1,0 +1,1 @@
+ARTÍCULO 2°. -En consecuencia, son libres los actuales censatarios y las personas que los representan para traspasar los principales de capellanías de cualquiera naturaleza que sean y de que se hayan hecho cargo, previas las formalidades de la ley, y los réditos de dichos principales se invertir n en los objetos de su fundación, y en los demás que la ley señala.
