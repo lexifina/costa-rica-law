@@ -27,3 +27,4 @@ Artículo 2°: Aprúebase los siguientes Egresos Ordinarios y Extraordinarios pa
 (Modificado por el artículo 2 del Decreto Ejecutivo N° 29920 de 19 de octubre del 2001)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29919 de 23 de octubre del 2001)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29933 de 23 de octubre del 2001)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29981 de 15 de noviembre del 2001)
