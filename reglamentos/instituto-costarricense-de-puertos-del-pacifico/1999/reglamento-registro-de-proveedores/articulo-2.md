@@ -1,0 +1,1 @@
+Artículo 2°-El Registro de Proveedores del INCOP, será el mecanismo idóneo para incluir la información de las personas físicas y jurídicas que deseen participar en los procesos de contratación administrativa que se lleven a cabo en la Institución, con el fin de adquirir sus bienes y servicios.

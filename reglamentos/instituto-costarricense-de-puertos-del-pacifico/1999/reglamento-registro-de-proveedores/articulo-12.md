@@ -1,0 +1,1 @@
+Artículo 12.-Si no fuera necesario solicitar información adicional, la gestión quedará resuelta dentro de los ocho días hábiles siguientes a la presentación de la solicitud, y así se le notificará al solicitante.

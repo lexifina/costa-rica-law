@@ -1,0 +1,1 @@
+Artículo 11.-Cuando un proveedor requiera de un término mayor para cumplir con la prevención, deberá comunicarlo dentro de los primeros dos días a la Actividad de Proveeduría misma que analizará los fundamentos de la solicitud y resolverá lo pertinente.
