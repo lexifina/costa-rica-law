@@ -1,4 +1,2 @@
-Artículo 9º.- La remuneración de los servicios médicos amparados por
-el Estatuto de Servicios Médicos, será la que le asigne a cada categoría
-la Dirección General de Servicio Civil, de acuerdo con el Estatuto de
-Servicio Civil y la Ley de Salarios de la Administración Pública.
+Artículo 9º.- DEROGADO.
+(DEROGADO por la Ley Nº 6836 de 22 de diciembre de 1982, artículo 24)

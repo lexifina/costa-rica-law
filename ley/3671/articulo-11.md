@@ -1,17 +1,7 @@
-Artículo 11.- Refórmase el artículo 32 de la Ley Orgánica del Colegio
-de Médicos y Cirujanos Nº 3019 de 9 de agosto de 1962, que en lo sucesivo
-se leerá así:
-"Artículo 32.- Ningún médico podrá prestarle servicios remunerados
-al Estado en más de dos cargos. La jornada ordinaria de trabajo
-correspondiente a cada médico podrá completarse en una o en dos
-instituciones, con la remuneración que establezca el Estatuto de Servicios
-Médicos, siempre y cuando no exista, en el desempeño de sus funciones,
-superposición de horarios. El período mínimo de labor, en cada
-institución, será de cuatro horas. La jornada máxima de trabajo
-individual en las instituciones estatales y en las instituciones
-autónomas y semiautónomas estatales será, para cada médico, no mayor de 8
-horas diarias. Esta última limitación no rige para las actividades
-médicas de índole docente.
-Salvo lo dispuesto en este artículo en cuanto a superposición de
-horarios, sus disposiciones no se aplicarán en casos de inopia de médicos
-especializados."
+Artículo 11.- Refórmanse los artículos 4º, 5º, 7º, 11, 12 y 15 de la
+Ley de Salarios de la Administración Pública (Nº 2166 de 9 de octubre de
+1957) y adiciónase la misma con un artículo transitorio más, a fin de que
+se lean así:
+... ... ... ...
+( NOTA: Corrida su numeración por el artículo 1º de la Ley Nº 4956 de 22
+de febrero de 1972; anteriormente era el artículo 10).
