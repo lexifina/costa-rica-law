@@ -4,5 +4,6 @@ Articulo 14.—No obstante su condición de Apoderado Generalísimo, el Gerente 
 3) Efectuar cualquier nuevo contrato de reaseguro, o cambios fundamentales en las condiciones de los vigentes, salvo los reaseguros facultativos que se contratarán según las necesidades de cada caso y tomando en cuenta las normas que al efecto rigen.
 4) Comunicar a los interesados el agotamiento de la vía administrativa.
 5) Pagar cualquier indemnización por la suma que al efecto establezca la Junta Directiva.
-6) La concesión de préstamos a clientes o particulares, salvo los préstamos con efectivo que contemplan las pólizas de seguro de vida cuyo manejo queda a cargo de la sección respectiva.
+6) La concesión de préstamos hipotecarios por sumas mayores las que determine la Junta Directiva. Quedan a salvo los préstamos en dinero efectivo que se otorguen de conformidad con las condiciones de las Pólizas de Vida, los cuales estarán a cargo de la Sección respectiva.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE el inciso 6) del presente artículo por el artículo 1 ° del Decreto Ejecutivo N° 17 de 02 de noviembre de 1966, publicado en La Gaceta N° 271 de 30 de noviembre 1966.)
 En todo lo demás no contemplado específicamente, el Gerente tendrá facultad para decidir en forma final y con responsabilidad absoluta, de acuerdo con la Ley y los reglamentos del Instituto.
