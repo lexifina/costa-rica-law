@@ -1,0 +1,1 @@
+Artículo 70.-EI presupuesto del Comité Cantonal y sus distintos órganos, debe elaborarse reflejando los planes propuestos y programas que se ejecutarán en el periodo que este cubre; los gastos presupuestarios no pueden exceder los ingresos estimados.

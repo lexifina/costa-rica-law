@@ -1,0 +1,1 @@
+Artículo 41.-Está prohibido al Comité Comunal de Deportes hacer uso de los dineros o fondos del mismo, para dar obsequios a equipos o personas, pagar facturas por concepto de fiestas o regalías que no sean para la promoción de equipos de ligas menores.

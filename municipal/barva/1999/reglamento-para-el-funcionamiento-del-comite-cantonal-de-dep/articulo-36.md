@@ -1,0 +1,1 @@
+Artículo 36.-Los Comités Comunales de Deportes deberán rendir un informe semestral de labores y de resultados obtenidos ante el Comité Cantonal, a más tardar treinta días después de cerrado el semestre.

@@ -1,0 +1,1 @@
+Artículo 48.- Todo miembro deberá comunicar en forma escrita, cuando proceda, las razones de su inasistencia a las sesiones a más tardar dentro de las veinticuatro horas siguientes a su ausencia en la Oficina del Comité Cantonal; caso contrario, será catalogada la inasistencia como injustificada y sancionable.
