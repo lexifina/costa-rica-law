@@ -14,3 +14,4 @@ Reforma Comisión Ecológica para la Aplicación y Promoción de un Nuevo Orden 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-09-12 | la propia norma |
+| 2 | 1994-05-02 | Decreto Ejecutivo 23280 (1994-05-02) |

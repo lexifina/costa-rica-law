@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto ejecutivo fue derogado por el artículo 4° del decreto ejecutivo N° 23280 del 2 de mayo de 1994)
 N° 19954
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO,
