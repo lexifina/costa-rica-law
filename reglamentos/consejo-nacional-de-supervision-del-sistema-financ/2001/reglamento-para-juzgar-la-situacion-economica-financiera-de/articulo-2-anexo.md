@@ -159,7 +159,7 @@ CODIGO | DETALLE
 20007 | Cartera tipo A y B tomada del informe de clasificación de la cartera según SUGEF-1-95
 20014 | Número de empleados
 20015 | Total de cartera tomada del informe de clasificación de la cartera según SUGEF-1-95
-20016 | Créditos específicos para la actividad de vivienda con garantía hipotecaria
+20016 | Créditos con garantía de vivienda propia que se encuentran ocupadas o serán ocupadas por el prestatario o su núcleo familiar. (Así reformado mediante sesión ordinaria N° 258 celebrada el 16 de octubre de 2001.)
 20017 | Obligaciones por cartas de crédito emitidas sin costo financiero
 20018 | Obligaciones por otras aceptaciones sin costo financiero
 20019 | Obligaciones por pactos de recompra de títulos sin costo financiero
