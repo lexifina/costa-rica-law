@@ -3,15 +3,15 @@ patentados pagarán el impuesto según el criterio que se indica sobre cada
 una de ellas:
 A) COMERCIO DE BIENES INMUEBLES: Pagarán por cada trimestre sobre
 comisiones percibidas en el año anterior, tres colones con cincuenta
-céntimos (¢3,50) por cada mil colones (¢1.000) trimestrales. Mínimo un mil
-seiscientos colones (¢1.600,00) trimestrales.
+céntimos (¢3,50) por cada mil colones (¢1.000) trimestrales. Mínimo un
+mil seiscientos colones (¢1.600,00) trimestrales.
 B) MAQUINAS DE JUEGOS: Futbolines, por cada máquina, ochocientos
 colones (¢800,00) trimestrales.
 C) BILLARES Y "POOLES": Por cada mesa, ochocientos colones (¢800,00)
 trimestrales.
-CH) SALONES DE DIVERSION: Que explotan juegos de habilidad, diversión,
-aleatorios o ambos permitidos por Ley (máquinas manuales, eléctricas o
-electrónicas).
+CH) SALONES DE DIVERSION: Que explotan juegos de habilidad,
+diversión, aleatorios o ambos permitidos por Ley (máquinas manuales,
+eléctricas o electrónicas).
 CATEGORIA POR TRIMESTRE
 1 ¢ 16.000,00 (más de 10 máquinas)
 2 ¢ 8.000,00 (de 5 a 9 máquinas)
