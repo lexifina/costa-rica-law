@@ -14,3 +14,4 @@ Crea Zona Protectora Bosque Nacional Diriá (Actualmente "Refugio Nacional de vi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-04-06 | la propia norma |
+| 2 | 1993-11-19 | Decreto Ejecutivo 22731 (1993-11-19) |

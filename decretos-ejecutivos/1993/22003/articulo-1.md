@@ -8,4 +8,5 @@ Considerando:
 3”—Que según estudios realizados por el Ministerio de Recursos Naturales, Energía y Minas con los bonos emitidos a este efecto, es posible adquirir aproximadamente mil hectáreas de terrenos de particulares existentes en esa zona.
 4°—Que mediante Decreto Ejecutivo número 21221-MIRENEM, publicado en “La Gaceta” número 88 del 8 de mayo de 1992, se modificó el artículo primero del Decreto Ejecutivo número 20517-MIRENEM, en lo que respecta al Sector A.
 DECRETAN:
-Artículo 1°—Téngase por modificado y adicionado el Decreto Ejecutivo número 21221-MIRENEM en lo correspondiente, para que en lo sucesivo sea considerado como una Zona Protectora.
+Artículo 1°—Téngase por modificado y adicionado el Decreto Ejecutivo número 21221-MIRENEM en lo correspondiente, para que en lo sucesivo sea considerado como una *Zona Protectora.
+(*NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 22731 del 19 de noviembre de 1993, se cambia la categoría de manejo del Bosque Nacional Diriá, para que en adelante sea considerado como "Refugio Nacional de Vida Silvestre Bosque Nacional Diriá, en la clase de propiedad mixta")
