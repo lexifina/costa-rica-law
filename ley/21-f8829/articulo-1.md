@@ -1,0 +1,9 @@
+PODER LEGISLATIVO
+N° 21- EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA
+Autorízase al Poder Ejecutivo:
+1°-Para que formalice el cuadrante de la población de Tilarán, dejando los lotes necesarios para edificios públicos, plaza, etc., y ordene la adjudicación del resto en remates con la base de un céntimo por metro cuadrado, dando la preferencia á los que ya tengan construcciones.
+2°-Para que done á cada colono de Tilarán que sea costarricense y cabeza de familia y se encuentre en las condiciones del artículo 15 de la ley de 17 de noviembre de 1909, hasta cincuenta hectáreas de terreno, si es posible, unidas á lo que ya haya cultivado y si no adjudicándole el sobrante en otro lugar; al colono mayor de diez y ocho años que tenga cultivos y que no sea cabeza de familia, se le donarán hasta veinticinco hectáreas, y al que no esté incluido en ninguno de los casos anteriores y tenga cultivos, se le donará lo que tenga cultivado, siempre que no exceda de cincuenta hectáreas. .
+3°-Para que indemnice á la Municipalidad de las Cañas ó á particulares en su caso, el precio del terreno que se ocupe para la ejecución de esta ley, sea pagándoles en efectivo, sea permitiéndoles reponer en baldíos de la República situados en aquella jurisdicción ó en otra forma, que conviniere á los intereses del Estado.
+4°.-Para que por medio de funcionarios con delegación especial, que se constituirán en la Colonia, se practique allí el remate de solares del cuadrante, y previa medida é información sumaria, se otorguen las correspondientes escrituras de propiedad de los lotes que se donan.
+AL PODER EJECUTIVO
+Dado en el Salón de Sesiones del Congreso. - Palacio Nacional. - San José, á los veintiún días del mes de junio de mil novecientos doce. - EZEQUIEL GUTIÉRREZ, - Diputado Presidente.-D. Acosta-Diputado Primer Secretario.-RAF. RODRÍGUEZ,-Diputado Segundo Secretario. - San José, 24 de junio de 1912.
