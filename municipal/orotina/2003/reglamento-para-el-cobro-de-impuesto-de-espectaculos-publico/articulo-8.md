@@ -11,3 +11,5 @@ g. Certificación de la Cruz Roja Costarricense constatando que esa entidad cubr
 h. Plan Operativo de Seguridad, aprobado por el Ministerio de Seguridad Pública.
 i. Sistema de seguridad para coordinar entre la seguridad privada y pública.
 Tratándose de espectáculos o diversiones permanentes, los requisitos exigidos serán los enumerados en los incisos a), d), e) y f), siendo obligación del contribuyente remitir la información indicada semestralmente. El incumplimiento de estos requisitos facultará a la Municipalidad para rechazar la solicitud o, en su caso, para revocar la autorización otorgada.
+Las actividades gratuitas en lugares comerciales, solicitar un permiso con cinco días de anticipación, el cual deberá cancelar y ser tasado por la Oficina de patentes.
+(AMPLIADO mediante Sesión Ordinaria N° 150 de 10 de febrero de 2004, publicada en La Gaceta N° 39 de 25 de febrero de 2004.)
