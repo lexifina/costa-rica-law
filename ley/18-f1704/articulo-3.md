@@ -1,0 +1,1 @@
+Artículo.3°-El café que se exporte o venda en contravención con las regulaciones que se establezcan al efecto en cumplimiento de esta ley, pagará un impuesto de cinco dólares ($ 5.00) moneda americana, por quintal de cuarenta y seis kilogramos y ello además, hará perder al exportador los beneficios que concede la ley N° 115 de 6 de julio del presente año.
