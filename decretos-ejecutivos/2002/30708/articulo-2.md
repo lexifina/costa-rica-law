@@ -1,0 +1,1 @@
+Artículo 2º—Los bivalvos de las especies conocidas como Ostión Vaca (Spondylus calcifer,) Concha Perla (Pinctada mazatlanica) y Barba de Hacha (Pinna rugosa) continúan vedadas por la peligrosidad que representa el consumo para el ser humano.
