@@ -1,0 +1,1 @@
+Artículo 14.- Las escrituras y otras operaciones necesarias para ejecutar y dar cumplimiento a esta ley, estarán exentas del pago de todo tipo de impuestos -directos o indirectos-, de derechos de registro y de timbres, y se formalizarán ante la Notaría del Estado.
