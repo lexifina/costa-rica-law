@@ -1,1 +1,0 @@
-ARTICULO 142 De la entrega de las pruebas recurridas al tribunal competente Vencido el término señalado en el artículo 140, presentada o no la argumentación por escrito, el Educador Administrador de la Prueba remitir o entregar , según corresponda, las pruebas recurridas a alguno de los integrantes del Tribunal para su estudio y resolución.

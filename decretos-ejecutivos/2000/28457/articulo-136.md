@@ -1,1 +1,0 @@
-ARTICULO 136 Bachillerato de excelencia El título de Bachiller en Enseñanza Media se har acompañar de la mención de BACHILLER CON EXCELENCIA, cuando el postulante hubiere obtenido una calificación igual o superior a noventa en cada una de los exámenes de bachillerato.

@@ -1,1 +1,0 @@
-ARTICULO 23 De los componentes de la calificación La nota de los estudiantes en cada asignatura y para cada período, excepto el caso de la conducta, se obtendrá sumando la calificación de los siguientes componentes: a) Trabajo cotidiano b) Trabajo extra clase c) Pruebas d) Concepto y e) Asistencia

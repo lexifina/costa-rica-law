@@ -1,1 +1,0 @@
-ARTICULO 122 De la promoción del postulante en las pruebas nacionales de conclusión de la Educación General Básica Se proceder a declarar aprobado en cada una de las asignaturas comprendidas en las pruebas nacionales de conclusión de la Educación General Básica a quien, según el criterio señalado en el artículo 121, obtuviese una calificación final de 65 o más.

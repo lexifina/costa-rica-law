@@ -1,1 +1,0 @@
-ARTICULO 12 De los nombramientos por inopia en el Comité de Evaluación En caso de inopia, el director del centro educativo podr nombrar a aquellos docentes que muestren mayor interés por la evaluación aunque no satisfagan todos los requisitos del artículo anterior

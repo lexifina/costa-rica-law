@@ -1,1 +1,0 @@
-ARTICULO 2 Del reconocimiento del derecho a la educación El sistema educativo costarricense reconoce al estudiante la titularidad del derecho a la educación desde su ingreso al sistema y todos los derechos inherentes a la persona, según el orden jurídico nacional e internacional vigente en el país.

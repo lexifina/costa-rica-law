@@ -1,1 +1,0 @@
-ARTICULO 114 De la promoción del postulante en las pruebas nacionales de conclusión de II ciclo Se proceder a declarar aprobado en cada una de las asignaturas señaladas en el artículo 110, incluidas en las pruebas nacionales de conclusión de II Ciclo a quien, según el criterio señalado en el artículo 113, obtuviese una calificación final de 65 o más.

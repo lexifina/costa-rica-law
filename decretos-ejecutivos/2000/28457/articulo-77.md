@@ -1,1 +1,0 @@
-ARTICULO 77 De la consideración de la comisión de faltas en la calificación de la conducta En la calificación de la conducta se debe considerar, necesariamente, la comisión por parte del estudiante de faltas muy leves, leves, graves, muy graves y gravísimas, según lo que se señala en el artículo 78 de este reglamento.

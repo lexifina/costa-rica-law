@@ -1,1 +1,0 @@
-ARTICULO 151 Del envío de los instrumentos de medición a los padres de familia o encargados Los instrumentos de medición debidamente calificados deben ser remitidos a los padres de familia o encargados con los estudiantes, para su conocimiento y firma. El docente controlar el cabal cumplimiento de esta función de los padres o encargados.
