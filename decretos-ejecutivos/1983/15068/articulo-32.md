@@ -1,0 +1,1 @@
+Artículo 32.—Los carnés emitidos al personal de la Dirección de Aviación Civil y funcionarios de Gobierno (verde y celeste) serán otorgados por el tiempo en que labore en el Aeropuerto para instituciones de Gobierno.

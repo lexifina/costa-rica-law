@@ -1,0 +1,1 @@
+Artículo 33.—Los carnés emitidos al personal que labora para Propietarios de Aeronaves, Talleres, Líneas Aéreas y Certificados de Explotación serán otorgados por cinco años. Anualmente cada propietario deberá presentarlo a la Administración para su renovación.

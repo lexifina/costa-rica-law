@@ -1,0 +1,1 @@
+Artículo 17.—El acceso al área de hangares y talleres después de las 7,00 p.m. será restringido. Solo podrá ingresar a ella los portadores de carné blanco, verde y celeste con acompañantes debidamente identificados.

@@ -1,0 +1,1 @@
+Artículo 4°—Quienes tengan a su cargo labores de vigilancia y seguridad del Aeropuerto, se encuentran facultados para proceder directamente o a gestión de la Administración, al retiro de cualquier persona que no porte carné de identificación o el permiso escrito temporal que otorga la Administración para casos especiales.

@@ -1,0 +1,1 @@
+Artículo 29.—La emisión de carnés de identificación a los funcionarios y empleados de Gobierno será gratuita. La reposición por pérdida o deterioro implicará el pago de la suma que fije la Dirección General de Aviación conforme a los cargos de confección.

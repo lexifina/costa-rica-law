@@ -1,0 +1,1 @@
+Artículo 9°—Los propietarios de hangares, aviones, pilotos, pilotos propietarios, certificados de explotación, escuelas de aviación, gerentes y subgerentes de líneas aéreas portarán un carné, que les dará derecho a transitar las 24 horas en las instalaciones. Dicho carné deberá mostrársele a las autoridades cuando estos lo requieran.

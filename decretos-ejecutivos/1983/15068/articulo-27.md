@@ -1,0 +1,1 @@
+Artículo 27.—Todo extranjero que permanezca en el país por un tiempo mayor de ocho días, deberá tramitar ante la Administración un carné provisional para transitar libremente en las áreas restringidas. El interesado deberá cubrir su costo de acuerdo a lo especificado en el Apéndice Tarifario.

@@ -1,0 +1,1 @@
+Artículo 14.—Las personas que deseen ingresar a las áreas restringidas no podrán ingresar a estas si no portan el carné. Por ninguna razón se les concederá permiso provisional, excepto a los extranjeros que justifiquen su solicitud.

@@ -1,0 +1,1 @@
+Artículo 39.—Los Propietarios de Hangares, Talleres u otro que por razones de trabajo deban transitar por las áreas restringidas en su vehículo deberán portar una identificación especial en su automóvil que para tal fin suministrará la Administración.

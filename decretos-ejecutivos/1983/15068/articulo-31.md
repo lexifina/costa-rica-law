@@ -1,0 +1,1 @@
+Artículo 31.—La Administración mantendrá un registro actualizado de los propietarios enunciados en el artículo 30 lo que le permitirá controlar el cambio de propiedad de cualquier inmueble o concesión.

@@ -1,0 +1,1 @@
+Artículo 16.—El área donde se encuentra ubicado los hangares y talleres mecánicos será de libre acceso, previa identificación con el guarda del portón durante las horas de trabajo (5,00 a.m. a 7,00 p.m.).

@@ -1,0 +1,1 @@
+Artículo 10.—El propietario, jefe u otro, que desee permanecer laborando en las instalaciones pasadas las 7,00 p.m., deberá comunicárselo al guarda de turno, el cual será responsable de constatar que solo dicho personal ocupe las instalaciones.
