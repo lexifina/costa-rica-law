@@ -13,3 +13,4 @@ Procedimiento Política Presupuestaria Ministerios y Entidades PúblicasCubierta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-19 | la propia norma |
+| 2 | 1999-08-19 | Decreto Ejecutivo 28506 (2000-02-25) |
