@@ -21,3 +21,4 @@ Establece Comisión Asesora Nacional de los Incentivos Fiscales al Desarrollo In
 | 6 | 1972-04-07 | Decreto Ejecutivo 2292 (1972-04-07) |
 | 7 | 1973-07-26 | Decreto Ejecutivo 3101 (1973-07-26) |
 | 8 | 1974-06-11 | Decreto Ejecutivo 3880 (1974-06-11) |
+| 9 | 1974-08-04 | Decreto Ejecutivo 4198 (1974-08-04) |
