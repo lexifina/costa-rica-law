@@ -1,0 +1,1 @@
+Art. 14.-Si verificado el examen correspondiente, resultare que las mercaderías han satisfecho los correspondientes derechos de Aduana, el Administrador ordenará que los bultos sean recibidos y despachados en la forma establecida para las demás mercaderías. y expedirá aviso especial al jefe del depósito en Carrillo, para que permita el desalmacenaje libre de dichas mercaderías.

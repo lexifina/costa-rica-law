@@ -1,0 +1,2 @@
+Art. 10.-El Alcaide respectivo sentará en un libro destinado especialmente á ese objeto. la partida de embarque, con el número del carro, los pormenores especificados en el artículo 8°, agregando el contenido de los bultos según manifiesto por mayor, el nombre y fecha del arribo del buque en que hubieren sido introducidos, y el de la persona ó empleado á quien se remitan á Carrillo.
+Esta partida será firmada por los empleados que hayan intervenido en el despacho.

@@ -1,0 +1,1 @@
+Art. 24.-El jefe del depósito procederá al despacho de las mercaderías, pesando previamente los bultos y marchamando los que por descuido no lo es tuvieren ó tuviesen roto el marchamo y asentando el resultado del peso en los pedimentos originales. Un ejemplar de estos pedimentos será remitido des de luego á la Aduana General de registro.
