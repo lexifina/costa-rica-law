@@ -17,3 +17,4 @@ Reglamento General Establecimientos Oficiales de Educación Media
 | 2 | 1965-09-22 | Decreto Ejecutivo 7 (1965-09-22) |
 | 3 | 1966-06-10 | Decreto Ejecutivo 2 (1966-06-10) |
 | 4 | 1968-02-20 | Decreto Ejecutivo 9 (1968-02-20) |
+| 5 | 1969-03-20 | Decreto Ejecutivo 11 (1969-03-20) |

@@ -1,9 +1,14 @@
 d) Evaluación
-Artículo 58.-La labor de los alumnos será evaluada a lo largo del curso lectivo por los profesores de las respectivas asignaturas y actividades; sé concederá importancia especial a los siguientes aspectos de su conducta individual, dentro de la comunidad, del colegio y del grupo:
-1) Espíritu de cooperación en las labores de grupo;
-2) Sentido de responsabilidad;
-3) Veracidad y honradez en la realización de sus labores escolares;
-4) Esfuerzo en el cumplimiento de sus deberes;
-5) Espíritu de iniciativa, perseverancia y capacidad de realización;
-6) Respeto y cortesía en sus relaciones con profesores, compañeros y extraños;
-7) Interés en el estudio de la asignatura y en el desarrollo de la materia; demostrado con la puntualidad en la asistencia, la participación en clase, la realización de trabajos en ella y fuera de ella y otros semejantes.
+Artículo 58.-EI aprovechamiento del alumno en cada asignatura será evaluado mediante pruebas escritas o de otra índole.
+Se entiende por prueba aquel ejercicio o trabajo que el profesor administra o encarga a sus alumnos, con el fin de evaluar el proceso enseñanza-aprendizaje en cuanto a la asignatura que imparte.
+Los profesores entregarán a la Secretaría del colegio la calificación trimestral. Los alumnos serán calificados en la última semana de mayo, de agosto y de noviembre. La calificación trimestral en cada asignatura será el promedio de tres pruebas y de la nota de aplicación que dará el profesor, para lo cual debe considerar los siguientes aspectos: esfuerzo, interés, colaboración, estudio y trabajo en clase. Al menos dos de las pruebas deben ser escritas. Para efecto del cálculo del promedio trimestral cada una de las notas obtenidas de las pruebas y la nota de aplicación, tendrán un valor del 25 por ciento. En casos especiales, por considerarse que hay error o indebida apreciación, cabe reclamo, por escrito, dentro de los ocho días siguientes a la entrega de notas, ante el Comité de Evaluación, que deberá oir de inmediato el criterio' del profesor objeto del reclamo.
+Exceptúanse de estas normas las "actividades de grupo" y "formación democrática", de "biblioteca" y de "orientación", las cuales serán objeto de apreciación literal, así: muy bueno, bueno, regular y deficiente. En dichas actividades no habrá reprobación, promoción ni aplazamiento.
+Toda prueba escrita o de otra índole, debe ser oportuna y técnicamente preparada, incluyendo en ella diversos tipos de preguntas o realizaciones debidamente balanceadas en cuanto a su dificultad y el valor que cada pregunta tenga.
+Cada prueba comprenderá la materia esencial enseñada por el profesor en el respectivo período.
+Es obligación del profesor indicar el tiempo probable de la prueba, sin que sobrepase 80 minutos, Asimismo, entregar o mostrar a los alumnos las pruebas una vez corregidas y calificadas, a más tardar 10 días después de su administración.
+Cuando el profesor o el Comité de Evaluación comprueben que un ejercicio no tiene validez porque no discrimina, se procederá a su anulación y fijará nueva fecha para su realización.
+El profesor deberá entregar a la secretaría del Liceo al finalizar cada trimestre las calificaciones parciales obtenidas por el alumno y su respectivo promedio trimestral. Para el cumplimiento de esta disposición el liceo proveerá las fórmulas correspondientes.
+El alumno que curse el quinto año será calificado por cada uno de sus profesores en las respectivas asignaturas, en la segunda semana de mayo y de agosto y en la última de octubre.
+Se establece la "prueba escrita anual", que puede ser complementada con realizaciones de otra índole cuando las características de la asignatura lo justifiquen. Para este efecto todo profesor deberá practicar la prueba a los alumnos cuya nota del último trimestre o cuyo promedio anual sea inferior a 6, antes de comunicar la calificación a la Secretaría. En esta prueba se incluirán los contenidos fundamentales enseñados durante el curso lectivo. Se dará al alumno la lista de tales contenidos y las referencias bibliográficas con no menos de 6 días hábiles antes de la prueba. Si al calificarla el alumno obtiene nota de 6 o superior, el profesor pondrá al alumno en el último trimestre la calificación que necesite para ser aprobado, antes de comunicar la calificación a la Secretaría ,
+(Así reformado por el artículo 2° del decreto ejecutivo N° 11 del 20 de marzo de 1969).
+I
