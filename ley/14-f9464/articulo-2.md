@@ -1,0 +1,1 @@
+Art 2°.- Concurrirán precisamente á esta Catedra seis jóvenes de esta Ciudad: seis del Partido de Cartago y el Paraíso: cuatro del Partido de Heredia: cuatro del de Alajuela; y cuatro del de Nicoya; pudiendo además asistir a ella los supernumericos que quieran.
