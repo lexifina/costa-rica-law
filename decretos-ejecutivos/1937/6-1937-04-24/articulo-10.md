@@ -1,1 +1,0 @@
-Artículo 10.-Los empleados que manejen fondos en las dependencias de Correos, Telégrafos y Radios Nacionales, deben cubrir su responsabilidad con una Póliza de Fidelidad cuya cuantía fijará la Secretaría de Gobernación con el criterio aceptado en las otras oficinas públicas.

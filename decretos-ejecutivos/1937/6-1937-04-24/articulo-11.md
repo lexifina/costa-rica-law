@@ -1,1 +1,0 @@
-Artículo 11.-La Dirección General de Correos en cumplimiento del artículo 334 del Código Fiscal y al igual las Direcciones de Telégrafos y de Radios Nacionales, procederán a redactar un nuevo Reglamento Interior, con el propósito de control, disciplina y economía que informa al Poder Ejecutivo.

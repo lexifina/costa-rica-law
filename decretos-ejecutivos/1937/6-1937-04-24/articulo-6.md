@@ -1,1 +1,0 @@
-Artículo 6°-Organízase una Auditoría General y Oficina de Reclamos a cargo de un Auditor General y del personal que requiera el desempeño eficiente de esas funciones, que controlará los cuatro departamentos a que se refiere este decreto: Correos, Telégrafos, Teléfonos y Radios Nacionales. Esta Auditoría dependerá también directamente de la Secretaría de Gobernación.

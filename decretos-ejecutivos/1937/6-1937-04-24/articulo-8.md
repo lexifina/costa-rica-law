@@ -1,7 +1,0 @@
-Artículo 8°-Bajo la responsabilidad del Auditor se cumplirán los siguientes requisitos en la nueva organización de la Auditoría General:
-a) Abrir una cuenta a cada nación y colonia que mantenga relaciones postales con Costa Rica, por cada uno de los conceptos que amerite el tráfico postal;
-b) Remesar trimestralmente al exterior los estados de cuentas y cuidar que se proceda en la misma forma con respecto a la oficina postal costarricense;
-c) Entregar a la Contabilidad Nacional, trimestralmente, cuando menos, estados detallados y documentados de todas las cuentas al cuidado de la Auditoría General;
-d) Constatar la corrección y exactitud de los giros que recibe Costa Rica por sus servicios postales externos y remesarlos con su visto bueno escrito sobre el mismo giro y con endoso al Secretario de Estado en el Despacho de Hacienda que firmará el Director General de Correos;
-e) Abrir un Libro de Conocimientos para las entregas a la Contabilidad Nacional de las remesas a que se refieren los incisos c) y d ) y verificar tales remesas bajo conocimiento que deberá firmar necesariamente la Contabilidad Nacional, cuando se trate de cuentas, y el propio Secretario de Estado en el Despacho de Hacienda, cuando se haga entrega de valores endosados a él; y
-f) Llevar una estadística comparativa de los ingresos y egresos, que se publicará trimestralmente en La Gaceta Oficial con cualquier otra referencia que explique debidamente el movimiento de la oficina.
