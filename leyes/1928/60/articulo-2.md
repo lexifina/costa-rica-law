@@ -1,0 +1,1 @@
+Artículo 2°- Cuando el crimen o delito motivo de la extradición se ha cometido, o atentado o frustrado fuera del Estado que hace la demanda, podrá dársele curso a ésta, sólo cuando la legislación del Estado requerido autorice el enjuiciamiento de tales infracciones, cuando se cometan fuera de su jurisdicción.

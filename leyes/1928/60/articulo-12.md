@@ -1,0 +1,1 @@
+Artículo 12.-El Estado reclamante no entregará sin el consentimiento del Estado requerido a un tercer Estado que lo reclame, el prófugo cuya extradición ha obtenido, salvo los casos previstos en el precedente artículo.

@@ -1,0 +1,1 @@
+Artículo 8°.-Cuando la persona reclamada se hallare procesada o condenada por el Estado requerido, la entrega, cuando a esto procediere, no se efectuará sino cuando el reclamado sea absuelto o indultado o haya cumplido la condena o cuando de algún modo queda terminado el juicio.

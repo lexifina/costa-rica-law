@@ -1,0 +1,1 @@
+Artículo 20.-Si la pena señalada al delito que se imputa al delincuente fuere la de muerte, el Estado de refugio, para conceder la extradición, podrá exigir la seguridad, dada por la vía diplomática, de que dicha pena, siempre que su legislación no la consigne, será conmutada por la inmediata inferior.

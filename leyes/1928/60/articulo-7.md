@@ -1,0 +1,1 @@
+Artículo 7°.-La solicitud de extradición deberá hacerse precisamente por la vía diplomática. También será solicitada, a falta de funcionarios diplomáticos, por los Cónsules, o directamente de Gobierno a Gobierno.
