@@ -1,6 +1,6 @@
-ARTICULO 13.- Aquellas personas físicas o jurídicas cuya actividad
-esté distribuida en uno o más cantones, aparte del Cantón de Pococí y
-que, por tal motivo, estén sujetas al pago de patentes en esos cantones,
+ARTICULO 13.- Aquellas personas físicas o jurídicas cuya actividad esté
+distribuida en uno o más cantones, aparte del Cantón de Pococí y que,
+por tal motivo, estén sujetas al pago de patentes en esos cantones,
 deberán determinar y demostrar con la documentación pertinente, la
 proporción del volumen de sus negocios generada en el Cantón de Pococí
 para efectos del pago del impuesto. En lo referente a la documentación

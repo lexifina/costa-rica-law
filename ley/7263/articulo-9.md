@@ -6,8 +6,8 @@ es incorrecto, la Municipalidad hará la recalificación correspondiente.
 Asimismo, cuando la Dirección General de la Tributación Directa hiciera
 alguna recalificación en el impuesto sobre la renta, deberá comunicarlo
 de oficio a esa Municipalidad para lo que corresponda. La certificación
-de la Contaduría Municipal, donde se indica la diferencia adeudada por el
-patentado en virtud de la recalificación, servirá de título ejecutivo
+de la Contaduría Municipal, donde se indica la diferencia adeudada por
+el patentado en virtud de la recalificación, servirá de título ejecutivo
 para efectos de su cobro.
 Queda, a salvo, el derecho del contribuyente para impugnar la
 recalificación hecha por la oficina correspondiente, conforme a las
