@@ -1,0 +1,2 @@
+ARTICULO 3
+El gobierno francés prestara su cooperación en el plano pedagógico, suministrando parte del material didáctico necesario (como ciertos manuales, aparatos, laboratorios) y poniendo gratuitamente a la disposición de la Asociación Franco-costarricense de enseñanza cierto número de profesores destinados tanto a la enseñanza en lengua francesa (lengua francesa y disciplinas literarias y científicas), como a la orientación pedagógica del Liceo.
