@@ -6,8 +6,7 @@ Internacional del Trabajo, cuyos textos auténticados en castellano
 literalmente dicen:
 CONFERENCIA INTERNACIONAL DEL TRABAJO
 Convenio 112
-CONVENIO RELATIVO A LA EDAD MINIMA DE ADMISION
-AL TRABAJO DE LOS PESCADORES
+CONVENIO RELATIVO A LA EDAD MINIMA DE ADMISION AL TRABAJO DE LOS PESCADORES
 La Conferencia General de la Organización Internacional del Trabajo:
 Convocada en Ginebra por el Consejo de Administración de la Oficina
 Internacional del trabajo, y congregada en dicha ciudad el 3 de junio
@@ -120,8 +119,7 @@ Artículo 12
 Las versiones inglesa y francesa del texto de este Convenio son
 igualmente auténticas.
 Convenio 113
-CONVENIO RELATIVO AL EXAMEN MEDICO
-DE LOS PESCADORES
+CONVENIO RELATIVO AL EXAMEN MEDICO DE LOS PESCADORES
 La Conferencia General de la Oragnización Internacional del Trabajo;
 Convocada en Ginebra por el Consejo de Administración de la Oficina
 Internacional del Trabajo, y congregada en dicha ciudad el 3 de junio
@@ -247,8 +245,7 @@ Artículo 13
 Las versiones inglesa y francesa del texto de este Convenio son
 igualmente auténticas.
 Convenio 114
-CONVENIO RELATIVO AL CONTRATO DE ENROLAMIENTO
-DE LOS PESCADORES
+CONVENIO RELATIVO AL CONTRATO DE ENROLAMIENTO DE LOS PESCADORES
 La Conferencia General de la Organización Internacional del Trabajo:
 Convoca en Ginebra por el Consejo de Administración de la Oficina
 Internacional del Trabajo, y congregada en dicha ciudad del 3 de junio
@@ -438,4 +435,11 @@ de acuerdo con los artículos precendentes.
 Artículo 18
 Cada vez que lo estime necesario, el Consejo de Administración de
 la Oficina Internacional del Trabajo presentará a la Conferencia una
-memoria sobre la aplicación del Convenio y considerar
+memoria sobre la aplicación del Convenio y considerar la conveniencia de incluir en el orden del día de la Conferencia la cuestión de su revisión total o parcial.
+Artículo 19
+1. En caso de que la Conferencia adopte un nuevo convenio que implique una revisión total o parcial del presente, y a menos que el nuevo convenio contenga disposiciones en contrario:
+a) la ratificación, por un Miembro, del nuevo convenio revisor implicará, ipso jure, la denuncia inmediata de este Convenio, no obstante las disposiciones contenidas en el artículo 15, siempre que el nuevo convenio revisor haya entrado en vigor;
+b) a partir de la fecha en que entre en vigor el nuevo convenio revisor, el presente Convenio cesará de estar abierto a la ratificación por los Miembros.
+2. Este Convenio continuará en vigor en todo caso, en su forma y contenido actuales, para los Miembros que lo hayan ratificado y no ratifiquen el convenio revisor.
+Artículo 20
+Las versiones inglesa y francesa del texto de este Convenio son igualmente auténticas.
