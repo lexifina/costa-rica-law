@@ -1,0 +1,1 @@
+Artículo 2°.- La entrega de los valores que autoriza el artículo anterior, es de conformidad con lo que establece el artículo 5° del decreto precitado, y en tal virtud, el Patronato Nacional Antituberculoso deberá invertir dichos valores en la construcción del Hospital Antituberculoso.
