@@ -1,0 +1,2 @@
+Artículo 2°—Deber de conservar la documentación. El Instituto Costarricense de Electricidad deberá conservar copia (fotocopia) de la factura de compra o comprobante, del pasaporte bonificado o de la declaración aduanera, según sea el caso.
+Los distribuidores externos deberán suministrar al ICE, en razón de lo anterior, la copia de la factura o comprobante, del pasaporte bonificado o de la declaración aduanera, requerida a los adquirentes de las líneas de teléfonos celulares por los servicios celulares activados por ellos.

@@ -1,0 +1,1 @@
+Artículo 7°—Sanciones. El incumplimiento de suministrar la información en los términos antes señalados, dará base para que la Administración Tributaria inicie el procedimiento para aplicar las sanciones que correspondan de acuerdo con el Código de Normas y Procedimientos Tributarios.

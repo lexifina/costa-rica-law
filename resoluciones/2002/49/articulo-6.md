@@ -1,0 +1,1 @@
+Artículo 6°—Lugar y plazo. Que la información deberá suministrarla el Instituto Costarricense de Electricidad a la Administración Tributaria, en la Subdirección de la División de Gestión, dentro de los tres meses siguientes a la publicación de la presente resolución y continuar con su presentación cada seis meses.
