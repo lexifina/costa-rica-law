@@ -1,0 +1,1 @@
+Artículo 23- Cuando por alguna circunstancia, se origine un cambio del responsable de caja chica, deberá designarse un nuevo administrador, quien la recibirá mediante un arqueo del responsable anterior, bajo la supervisión y aprobación del Oficial Presupuestal.

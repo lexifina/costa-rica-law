@@ -1,0 +1,1 @@
+Artículo 4°- El Señor Ministro determinará el número y monto de las cajas chicas auxiliares con base en estudio de necesidades que realizará el Oficial Presupuestal o el funcionario que haga las vece de éste, además deberá informar formalmente a la Tesorería Nacional, la apertura, cierre o incremento de los montos de las cajas chicas auxiliares.

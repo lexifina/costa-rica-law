@@ -1,0 +1,1 @@
+Artículo 10- Para la compra de bienes y servicios, deberá confeccionarse una solicitud dirigida al responsable de la Unidad Financiera encargada de la administración de la caja chica auxiliar, el proveedor certificará la no existencia en bodega de los bienes solicitados.

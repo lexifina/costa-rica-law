@@ -1,0 +1,1 @@
+Artículo 27- Toda infracción a las disposiciones contenidas en este reglamento podrá ser motivo suficiente para la suspensión temporal de la correspondiente caja chica auxiliar, previo estudio de la Oficialía Presupuestal, sin perjuicio de lo que dispone los artículo 6° y7° de la Ley de la Administración Financiera.

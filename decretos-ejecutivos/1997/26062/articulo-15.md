@@ -1,0 +1,1 @@
+Artículo 15- Los cheques girados por medio de cuenta corriente de una caja chica auxiliar, deberán ir firmadas por el Oficial Presupuestal y la máxima autoridad de la unidad autorizada o en quien delegue.

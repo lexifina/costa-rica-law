@@ -1,0 +1,1 @@
+Artículo 22- Cualquier faltante que se produzca al momento de practicarse el arqueo, deberá ser cubierto, por el responsable del fondo, en caso de sobrante, deberá ser depositado en la Caja Única del Estado, mediante entero a favor del Gobierno.

@@ -1,0 +1,1 @@
+Artículo 2°- Se autorizan fondos de cajas chicas auxiliares, cuyos fondos deberán ser usados única y exclusivamente en la adquisición de bienes y servicios tan indispensables y de verdadera urgencia que se justifique si pago fuera de los trámites ordinarios establecidos para los gastos de gobierno central.

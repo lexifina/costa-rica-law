@@ -1,0 +1,1 @@
+Artículo 25- Para efectos de control interno la Oficialía Presupuestal y la Auditoría Interna practicarán en forma sorpresiva arqueos a las cajas chicas que se establezcan en este Ministerio al amparo del presente Reglamento.

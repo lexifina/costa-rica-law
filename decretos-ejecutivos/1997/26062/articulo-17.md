@@ -1,0 +1,1 @@
+Artículo 17- Las solicitudes de adelantos de dinero para efectuar compras de bienes y servicios, en efectivo, se tramitarán con el formulario de vale provisional de las cajas chicas auxiliares, en el cual se consigne la fecha, el monto, el nombre y la firma de la persona que recibe el dinero.

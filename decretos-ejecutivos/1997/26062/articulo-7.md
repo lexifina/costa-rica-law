@@ -1,0 +1,1 @@
+Artículo 7°- Todo pago por medio de caja chica auxiliar debe contar con su correspondiente contenido presupuestario y corresponde al Departamento Financiero autorizar el gasto respectivo, previo estudio de la solicitud presentada por el interesado.
