@@ -1,0 +1,15 @@
+ACUERDO SOBRE NORMAS DE ORIGEN
+Los Miembros, Observando que los Ministros acordaron el 20 de setiembre de 1986 que la Ronda Uruguay de Negociaciones Comerciales Multilaterales tendría por finalidad "aportar una mayor liberalización y expansión del comercio mundial", "potenciar la función del GATT" e "incrementar la capacidad de respuesta del sistema del GATT ante los cambios del entorno económico internacional";
+Deseando promover la realización de los objetivos del GATT de 1994; Reconociendo que el establecimiento y la aplicación de normas de origen claras y previsibles facilitan las corrientes de comercio internacional;
+Deseando asegurar que las normas de origen no creen por sí mismas obstáculos innecesarios al comercio;
+Deseando asegurar que las normas de origen no anulen ni menoscaben los derechos que confiere a los Miembros el GATT de 1994; Reconociendo la conveniencia de dotar de transparencia a las leyes, reglamentos y prácticas relativos a las normas de origen;
+Deseando asegurar que las normas de origen se elaboren y apliquen de manera imparcial, transparente, previsible, coherente y que no tenga efectos en el comercio; Reconociendo la existencia de un mecanismo consultivo y de procedimientos para la solución rápida, eficaz y equitativa de las diferencias que puedan surgir en el marco del presente acuerdo;
+Deseando armonizar y clarificar las normas de origen;
+Convienen en lo siguiente:
+PARTE I
+DEFINICIONES Y AMBITO DE APLICACION
+Artículo 1
+Normas de origen
+1.- A los efectos de las Partes I a IV del presente Acuerdo, se entenderá por normas de origen las leyes, reglamentos y decisiones administrativas de aplicación general aplicados por un Miembro para determinar el país de origen de los productos siempre que tales normas de origen no estén relacionadas con regímenes de comercio contractuales o autónomos conducentes al otorgamiento de preferencias arancelarias que sobrepasen la aplicación del párrafo 1 del artículo I del GATT de 1994.
+2.- Las normas de origen a que se refiere el párrafo 1 comprenderán todas las normas de origen utilizadas en instrumentos de política comercial no preferenciales, tales como en la aplicación: del trato de nación mas favorecida en virtud de los artículos I, II, III, XI y XIII del GATT de 1994; de los derechos antidumping y de los derechos compensatorios establecidos al amparo del artículo VI del GATT de 1994; de las medidas de salvaguardia establecidas al amparo del artículo XIX del GATT de 1994; de las prescripciones en materia de marcas de origen previstas en el artículo IX del GATT de 1994; y de cualesquiera restricciones cuantitativas o contingentes arancelarios discriminatorios. Comprenderán también las normas de origen utilizadas para las compras del sector público y las estadísticas comerciales (1).
+* (1) Queda entendido que esta disposición es sin perjuicio de las determinaciones formuladas a efectos de definir las expresiones "producción nacional" o "productos similares de la producción nacional" u otras análogas cuando sean aplicables.
