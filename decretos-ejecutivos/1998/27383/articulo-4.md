@@ -1,0 +1,1 @@
+Artículo 4°—La Comisión queda facultada para solicitar y obtener de las oficinas y dependencias públicas, tanto centralizadas como descentralizadas, la información y colaboración que requiera para el logro de sus objetivos.

@@ -1,0 +1,1 @@
+Artículo 2°—La Comisión velara porque se ofrezcan los Servicios Médicos y Psicológicos necesarios a los trabajadores afectados por el DBCP y sus familias. Estos servicios incluirán la realización de estudios de la población afectada y sus familias, para un adecuado acercamiento al problema y sus consecuencias.
