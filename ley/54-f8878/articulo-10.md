@@ -1,0 +1,1 @@
+Art 10°.- Todos los transeúntes por esta ruta están obligados a cuidar de que sus caballerías o bueyes no causes ningún deterioro, y a reparar al instante el que causaren, procurando que los demás cumplan con estas órdenes, acusando ante la autoridad competente a los que las quebrantasen.

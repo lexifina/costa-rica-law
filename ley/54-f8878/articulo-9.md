@@ -1,0 +1,1 @@
+Art 9°.- Los que hicieren excavaciones para destruir los hormigueros en el camino, solicitarán el permiso de los Superintendentes, tomando las medidas oportunas para impedir cualquier desgracia de día o de noche y recompondrá inmediatamente y a su costa lo que hayan tenido que descomponer.
