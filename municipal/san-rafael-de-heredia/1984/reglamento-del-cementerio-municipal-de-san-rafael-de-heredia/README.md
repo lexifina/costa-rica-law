@@ -14,3 +14,4 @@ Reglamento del Cementerio Municipal de San Rafael de Heredia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-10-31 | la propia norma |
+| 2 | 1990-07-16 | Reglamento municipal 24 (1990-07-16) |

@@ -1,2 +1,2 @@
-De la reparación, cuidado y conservación de las bóvedas particulares
-Artículo 39.-Todo propietario de derecho en el Cementerio Municipal está en la obligación de mantener en buen estado de conservación y presentación la bóveda de su propiedad.
+Artículo 39.- Los jarrones, macetas y otros recipientes que se coloquen sobre las bóvedas deberán estar permanentemente drenados por medio de agujeros conforme lo dispone el Decreto N° 20 de 8 de noviembre de 1938.
+(Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 36 al 39 actual).

@@ -1,1 +1,2 @@
-Artículo 40.-Los trabajos de reparación se podrán llevar a cabo con la sola notificación a la Administración Municipal, siempre que no constituya modificación estructural de la bóveda.
+Articulo 40. -La Municipalidad no se responsabiliza por ningún accidente que suceda al realizarse trabajos de cualquier clase en las bóvedas particulares.
+(Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 37 al 40 actual).

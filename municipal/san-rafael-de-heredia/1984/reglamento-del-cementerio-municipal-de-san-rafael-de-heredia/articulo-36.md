@@ -1,1 +1,2 @@
-Artículo 36.- Los jarrones, macetas y otros recipientes que se coloquen sobre las bóvedas deberán estar permanentemente drenados por medio de agujeros conforme lo dispone el Decreto N° 20 de 8 de noviembre de 1938.
+Artículo 36.-Cualquier daño o deterioro ocasionado por la construcción de una bóveda será reparado de inmediato por el interesado. En caso contrario el costo de la reparación será cargado a su cuenta con la Municipalidad y constituirá gravamen sobre el derecho respectivo.
+(Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 33 al 36 actual).

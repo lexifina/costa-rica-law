@@ -1,2 +1,2 @@
-Artículo 21.-Los traspasos permitidos de acuerdo con el decreto antes mencionado, se harán ante la Administración mediante testimonio de escritura pública ejecutoria de sentencia judicial. En caso de existencia de restos en el derecho, el documento deberá hacer constar el vinculo familiar respectivo entre los contratantes.
-Todo traspaso que no llene este requisito será nulo.
+Artículo 21.-Las exhumaciones ordinarias por interés de particulares sólo se podrán efectuar dentro de la jornada ordinaria de los empleados del cementerio y quedarán sujetas al pago de los derechos oportunamente fijados por el Concejo.
+(Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 18 al 21 actual).

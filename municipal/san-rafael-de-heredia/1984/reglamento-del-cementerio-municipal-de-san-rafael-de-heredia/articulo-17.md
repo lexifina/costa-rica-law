@@ -1,1 +1,2 @@
-Artículo 17.-No podrán ser trasladados los restos momificados que se hallaren en bóvedas particulares o nichos de alquiler.
+Artículo 17.-Para todos los efectos de exhumación, se considerarán como interesados con derechos ante la Administración, los parientes indicados en el articulo 1° del Decreto N° 704 del 7 de setiembre de 1949, pero en casos de conflicto con el propietario de la bóveda que contuviere los restos, sus derechos deberán definirse por mandamiento judicial.
+(Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 14 al 17 actual).

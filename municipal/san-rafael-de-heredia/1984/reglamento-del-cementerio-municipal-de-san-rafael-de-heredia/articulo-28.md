@@ -1,1 +1,2 @@
-Artículo 28.-La Municipalidad se reserva el derecho de suspender en forma indefinida cuando lo crea oportuno la venta de parcelas en el cementerio.
+Artículo 28.-Los derechos solo se adjudicarán en orden de ubicación geográfica, según lo disponga la Administración y de acuerdo con el plano regulador aprobado por el Concejo; y se hará efectiva su ubicación solo en el momento en que el interesado diere inicio a la construcción.
+(Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 25 al 28 actual).

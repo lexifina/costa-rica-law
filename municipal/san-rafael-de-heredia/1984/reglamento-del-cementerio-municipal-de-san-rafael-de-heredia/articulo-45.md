@@ -1,1 +1,3 @@
-Artículo 45.-Vencido el periodo de arrendamiento la Municipalidad quedará facultada para exhumar y trasladar al osario general los restos contenidos en el respectivo nicho.
+Del alquiler de nichos municipales
+Artículo 45.-Los nichos de propiedad municipal se arrendarán en adelante por periodos de cinco años.
+(Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 42 al 45 actual).

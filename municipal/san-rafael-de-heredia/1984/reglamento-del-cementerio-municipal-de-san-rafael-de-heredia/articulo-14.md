@@ -1,1 +1,3 @@
-Artículo 14.-Para todos los efectos de exhumación, se considerarán como interesados con derechos ante la Administración, los parientes indicados en el articulo 19 del Decreto N9 704 del 7 de setiembre de 1949, pero en casos de conflicto con el propietario de la bóveda que contuviere los restos, sus derechos deberán definirse por mandamiento judicial
+De las exhumaciones
+Artículo 14. -Las exhumaciones extraordinarias se realizarán por orden judicial. Las ordinarias mediante autorización del Ministerio de Salud para trasladar los restos a otra sepultura o para ser incinerados.
+(Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 11 al 14 actual).

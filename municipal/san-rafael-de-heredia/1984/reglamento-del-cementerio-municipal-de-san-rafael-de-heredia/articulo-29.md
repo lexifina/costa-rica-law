@@ -1,2 +1,2 @@
-De las construcciones
-Artículo 29.-En ninguna parcela se permitirá la construcción de más de un nicho subterráneo y uno sobre la superficie. Por encima de los nichos superficiales, solo se permitirá la construcción de osarios, cuyo diseño deberá ser previamente aprobado por la ingeniería municipal. Las bóvedas solo podrán ser de diseño sencillo en forma de prisma rectangular y con una altura máxima sobre el suelo de 70 cm.
+Artículo 29.-Todo propietario de derecho se compromete en el acto mismo de adquisición al pago de la cuota anual de mantenimiento, la cual será fijada y periódicamente revisada por el Concejo conforme ,lo dispuesto por el articulo 87 del Código Municipal. La omisión en el pago de esta cuota constituirá gravamen sobre el derecho respectivo según lo dispuesto por el articulo 83 del mismo Código.
+(Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 26 al 29 actual).

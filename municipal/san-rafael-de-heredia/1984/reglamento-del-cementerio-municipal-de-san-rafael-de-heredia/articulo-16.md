@@ -1,1 +1,2 @@
-Artículo 16.-A partir del momento en que los restos de una persona han salido del Cementerio Municipal la Municipalidad salva su responsabilidad, la cual será asumida por el solicitante y el propietario de la bóveda que firmarán el acta correspondiente.
+Artículo 16.-Se consideran exhumaciones ordinarias por interés de la Administración Municipal, las que tienen lugar en nichos de alquiler, vencido el plazo de arrendamiento.
+(Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 13 al 16 actual).
