@@ -1,14 +1,5 @@
 SECCION III
 INFRACCIONES TRIBUTARIAS ADUANERAS
-ARTICULO 242.- Infracción tributaria aduanera
-Constituirá infracción tributaria aduanera y será sancionada con una
-multa de tres veces el monto de los tributos evadidos, toda acción u
-omisión que signifique una vulneración del régimen jurídico aduanero que
-cause perjuicio fiscal mayor de cien pesos centroamericanos y no
-constituya delito o infracción administrativa sancionable con suspensión
-del auxiliar de la función pública aduanera.
-En los casos comprendidos en los artículos 211, 212, 214, y 215, en
-que el valor aduanero de las mercancías no supere los cinco mil pesos
-centroamericanos o su equivalente en moneda nacional, serán considerados
-infracción tributaria aduanera y se aplicará una sanción de tres veces el
-monto de los tributos evadidos.
+Artículo 242.—Infracción tributaria aduanera. (Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 11079 del 22 de julio de 2015, se anuló el párrafo primero de este artículo según la reforma realizada por ley N° 8373 del 18 de agosto de 2003. Dicho párrafo disponía lo siguiente: “Constituirá infracción tributaria aduanera y será sancionada con una multa equivalente al valor aduanero de las mercancías, toda acción u omisión que signifique una vulneración del régimen jurídico aduanero que cause un perjuicio fiscal superior a cien pesos centroamericanos y no constituya delito ni infracción administrativa sancionable con suspensión del auxiliar de la función pública aduanera”.)
+Los casos comprendidos en los artículos 211 y 214 de esta Ley, en los cuales el valor aduanero de las mercancías no supere los cinco mil pesos centroamericanos, o su equivalente en moneda nacional, serán considerados infracción tributaria aduanera y se les aplicará una multa equivalente al valor aduanero de las mercancías.
+(Así reformado por el artículo 1° de la Ley N° 8373 de 18 de agosto de 2003).

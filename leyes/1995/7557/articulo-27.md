@@ -1,14 +1,4 @@
 ARTICULO 27.- Recepción de pruebas en el extranjero
-En casos calificados y previamente autorizados por el Director
-General de Aduanas, los funcionarios competentes del Servicio Nacional de
-Aduanas, en el ejercicio de funciones de verificación, fiscalización y
-control, podrán realizar visitas a instalaciones de productores,
-exportadores y otras personas, así como a oficinas, públicas o privadas,
-localizadas en territorio extranjero, con el fin de recibir testimonio y
-recabar información y documentación, respetando las normas internacionales
-contenidas en los tratados internacionales de los cuales Costa Rica forme
-parte. Los funcionarios designados, que gocen de fe pública, levantarán
-las actas correspondientes y certificarán la información y documentación,
-con el propósito de que se incorporen como prueba admisible en cualquier
-procedimiento administrativo o judicial, sin requisito o formalidad
-ulterior.
+En casos calificados y previamente autorizados por el Director General de Aduanas, los funcionarios competentes del Servicio Nacional de Aduanas, en el ejercicio de funciones de verificación, fiscalización y control, podrán realizar visitas a instalaciones de productores, exportadores y otras personas, así como a oficinas, públicas o privadas, localizadas en territorio extranjero, con el fin de recibir testimonio y recabar información y documentación, respetando las normas internacionales contenidas en los tratados internacionales de los cuales Costa Rica forme parte. Los funcionarios designados, que gocen de fe pública, levantarán las actas correspondientes y certificarán la información y documentación, con el propósito de que se incorporen como prueba admisible en cualquier procedimiento administrativo o judicial, sin requisito o formalidad ulterior.
+La Dirección General de Aduanas queda habilitada para contactar, desde Costa Rica y por cualquier medio tecnológico, a proveedores o exportadores extranjeros, con el fin de recabar pruebas, tales como facturas proforma, precios de venta, promedios, valores FOB y CIF, descuentos aplicables y cualesquiera otras que den como resultado la certeza del precio respectivo de la mercancía en el mercado internacional.
+(Así adicionado el párrafo anterior por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

@@ -1,5 +1,2 @@
-ARTICULO 137.- Pequeños envíos de carácter familiar
-Las importaciones no comerciales, consistentes en pequeños envíos de
-carácter familiar, destinadas a consumo por el destinatario o su familia
-no estarán sujetas al pago de tributos, siempre que no superen un valor
-aduanero equivalente en moneda nacional a veinte pesos centroamericanos.
+Artículo 137.—Pequeños envíos sin carácter comercial. Se consideran pequeños envíos sin carácter comercial, las mercancías remitidas del exterior para uso o consumo del destinatario o de su familia. La importación de dichas mercancías estará exenta del pago de derechos, impuestos y demás cargos, siempre que su valor total en aduana no exceda de quinientos pesos centroamericanos.
+(Así reformado por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

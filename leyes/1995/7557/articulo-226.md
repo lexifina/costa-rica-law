@@ -1,10 +1,4 @@
 ARTICULO 226.- Responsabilidad de las personas jurídicas
-Cuando se incurra en un delito por incumplimiento de obligaciones
-aduaneras de personas jurídicas, responderán del delito y,
-consiguientemente, se les aplicarán las penas respectivas a los
-representantes legales, gerentes o administradores responsables del
-cumplimiento de tales obligaciones; asimismo, a los socios de sociedades
-de personas o a los directores de sociedades anónimas según corresponda,
-cuando hayan adoptado las decisiones que impliquen la comisión del delito.
-Cada uno de los indicados antes, será sancionado de acuerdo con su propia
-responsabilidad personal.
+Cuando se incurra en un delito por incumplimiento de obligaciones aduaneras de personas jurídicas, responderán del delito y, consiguientemente, se les aplicarán las penas respectivas a los representantes legales, gerentes o administradores responsables del cumplimiento de tales obligaciones; asimismo, a los socios de sociedades de personas o a los directores de sociedades anónimas según corresponda, cuando hayan adoptado las decisiones que impliquen la comisión del delito. Cada uno de los indicados antes, será sancionado de acuerdo con su propia responsabilidad personal.
+En cualquiera de los delitos contemplados en este título, para establecer la verdad real de la relación tributaria aduanera, el Servicio Nacional de Aduanas, el Ministerio de Hacienda o la autoridad jurisdiccional competente, ante la presencia de fraude aduanero, podrán prescindir de las formas jurídicas que adopte un determinado agente económico nacional o transnacional, individual o bajo el crimen organizado, cuando no corresponda a la realidad de los hechos investigados. El sujeto físico y jurídico que sea en realidad el promovente de la falta tributaria deberá responder, administrativa, civil y penalmente, cuando así proceda.
+(Así adicionado el párrafo anterior por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

@@ -1,17 +1,4 @@
-ARTICULO 145.- Estacionamientos transitorios
-La Dirección General de Aduanas podrá autorizar a título precario y,
-en circunstancias excepcionales, ante la insuficiencia de infraestructura
-pública o de depósitos aduaneros, la operación de estacionamientos
-transitorios, permitiendo a los transportistas aduaneros la permanencia de
-vehículos, unidades de transporte y sus cargas hasta por un plazo máximo
-de ocho días hábiles para su destinación, siempre que permanezcan bajo
-precinto aduanero.
-Las empresas que operen estacionamientos transitorios tendrán la
-condición de auxiliares de la función pública aduanera y deberán cumplir
-con los requisitos y obligaciones indicados en los artículos 29 y 30 de
-esta ley y con las condiciones técnicas relativas a la seguridad,
-vigilancia, infraestructura e iluminación establecidas reglamen-
-tariamente. Asimismo, deberán contar con un sistema informático de
-registro de ingreso, permanencia y salida de los vehículos y las unidades
-de transporte. También rendirán garantía global establecida por la
-Dirección General de Aduanas de acuerdo con el volumen de sus operaciones.
+Artículo 145.—Estacionamientos transitorios. En circunstancias excepcionales, la Dirección General de Aduanas podrá autorizar, a título precario, la operación de estacionamientos transitorios, permitiendo a los transportistas aduaneros la permanencia de los vehículos, las unidades de transporte y sus cargas, hasta por un plazo máximo de ocho días hábiles, para su destinación hacia un régimen aduanero de importación, siempre que permanezcan bajo precinto aduanero.
+Las unidades de transporte vacías y las unidades de transporte y sus mercancías destinadas hacia un régimen aduanero de exportación o en libre circulación, no tendrán límite de permanencia, siempre y cuando se encuentren debidamente identificadas y ubicadas, según las disposiciones que establezca para tales efectos el Reglamento de esta Ley.
+La mercancía que no haya sido destinada a tránsito a traslado a depósito aduanero dentro del plazo máximo de ocho días hábiles, se mantendrá en custodia del estacionamiento transitorio hasta cumplir el plazo indicado en el inciso a) del artículo 56 de esta Ley.
+(Así reformado por el artículo 1° de la Ley No. 8373 de 18 de agosto de 2003).

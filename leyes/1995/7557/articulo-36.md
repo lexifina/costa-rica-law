@@ -1,5 +1,2 @@
-ARTICULO 36.- Solidaridad
-Los agentes aduaneros serán solidariamente responsables por el pago
-de las obligaciones tributarias aduaneras derivadas de las operaciones
-aduaneras en las cuales intervengan y por el pago de las diferencias,
-intereses, multas y demás recargos correspondientes.
+Artículo 36.—Solidaridad. Ante el Fisco, el agente aduanero será solidariamente responsable con el declarante, por el pago de las obligaciones tributarias aduaneras derivadas de los trámites, los regímenes o las operaciones en que intervenga, así como por el pago de las diferencias, los intereses, las multas, los recargos y los ajustes correspondientes.
+(Así reformado por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

@@ -1,13 +1,7 @@
 ARTICULO 225.- Sanciones accesorias
-Además de las penas privativas de libertad y multa correspondientes,
-en los delitos contemplados en este Título, se aplicarán las siguientes
-sanciones:
-a) La inhabilitación especial por un plazo hasta de diez años, para
-desempeñarse como funcionario público o como auxiliar de la
-función pública aduanera.
-b) Cuando el hecho delictivo se haya cometido utilizando una empresa
-o una persona jurídica por parte de sus personeros,
-administradores o gerentes, el Juez Penal podrá imponer a la
-empresa, además de las penas previstas en los artículos
-anteriores, una multa de tres hasta cinco veces el monto de lo
-defraudado.
+Además de las penas privativas de libertad y multa correspondientes, en los delitos contemplados en este Título, se aplicarán las siguientes sanciones:
+a) Cuando un empleado público o un auxiliar de la función pública cometa, en perjuicio de la Hacienda Pública, uno o varios de los delitos descritos en los artículos 211, 214, 216 y 216 bis de esta Ley, se le impondrá, además de las penas establecidas para cada delito, la inhabilitación especial de uno a diez años para desempeñarse como funcionario público o como auxiliar de la función pública, o para disfrutar de incentivos aduaneros o beneficios económicos aduaneros.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
+b) Cuando el hecho delictivo se haya cometido utilizando a una persona jurídica o lo hayan cometido personeros, administradores, gerentes o empleados de ella, además de las penas que sean impuestas a cada uno por su participación en los hechos punibles, se impondrá, en la vía correspondiente, una sanción administrativa consistente en multa de tres a cinco veces el monto del valor aduanero de las mercancías, para el caso del contrabando, o en el monto de los tributos dejados de percibir, para el caso de la defraudación fiscal aduanera. Asimismo, la autoridad competente podrá disponer que la empresa no disfrute de incentivos aduaneros ni de beneficios económicos aduaneros por un plazo de uno a diez años.
+Si el hecho es cometido por los accionistas, personeros, administradores, gerentes o apoderados que ejercen la representación legal de la persona jurídica, o bien por uno de sus empleados, y aquellos consienten su actuar por acción u omisión en forma dolosa, sin que medie caso fortuito ni fuerza mayor, la autoridad judicial le impondrá a la persona jurídica una sanción de inhabilitación para el ejercicio de la actividad auxiliar aduanera, por un plazo de uno a diez años. Las personas jurídicas responderán solidariamente por las acciones u omisiones que sus representantes realicen en el cumplimiento de sus funciones.
+(Así reformado el inciso b) anterior por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

@@ -2,36 +2,11 @@ CAPITULO III
 LA DECLARACION ADUANERA
 SECCION I
 GENERALIDADES
-ARTICULO 86.- La declaración aduanera
-Las mercancías internadas o dispuestas para su salida del territorio
-aduanero, cualquiera que sea el régimen al que se sometan, serán
-declaradas conforme a los procedimientos, requisitos de esta ley, sus
-reglamentos y mediante los formatos autorizados por la Dirección General
-de Aduanas.
-Con la declaración se expresa libre y voluntariamente el régimen, al
-cual van a ser sometidas las mercancías y se aceptan las obligaciones que
-el régimen impone.
-La declaración aduanera efectuada por un agente aduanero se entenderá
-realizada bajo la fe de juramento. El agente aduanero será responsable de
-suministrar la información y los datos necesarios para determinar la
-obligación tributaria aduanera, especialmente respecto a la descripción de
-la mercancía, su clasificación arancelaria, cantidad, tributos aplicables,
-cumplimiento de las regulaciones arancelarias y no arancelarias que rigen
-para las mercancías, de conformidad con lo previsto en esta ley, otras
-leyes y disposiciones aplicables.
-Asimismo, el agente aduanero deberá consignar, bajo la fe de
-juramento, nombre, dirección exacta del domicilio y cédula de identidad
-del consignatario y del importador o consignante y exportador, en su caso;
-si se trata de personas jurídicas dará fe de su existencia, de la
-dirección exacta del domicilio de sus oficinas principales y de su cédula
-jurídica. Para los efectos anteriores, el agente aduanero deberá tomar
-todas las previsiones necesarias para efectuar correctamente la
-declaración aduanera, inclusive la revisión física de las mercancías.
-Si se exige un certificado o declaración en materia de valoración
-aduanera u origen de las mercancías, la responsabilidad del agente
-aduanero se limitará a transcribir fielmente la información respectiva que
-deba consignar en la declaración aduanera, sin perjuicio de su obligación
-de conservar los documentos que la respalden.
-La declaración aduanera deberá establecer la cuantía de la obligación
-tributaria aduanera y el pago anticipado de los tributos en los casos y
-las condiciones que se fijen por vía de reglamento.
+Artículo 86.—Declaración aduanera. Las mercancías internadas o dispuestas para su salida del territorio aduanero, cualquiera que sea el régimen al cual se sometan, serán declaradas conforme a los procedimientos y requisitos de esta Ley y sus Reglamentos, mediante los formatos autorizados por la Dirección General de Aduanas.
+Con la declaración se expresa, libre y voluntariamente, el régimen al cual serán sometidas las mercancías; además, se aceptan las obligaciones que el régimen impone.
+Para todos los efectos legales, la declaración aduanera efectuada por un agente aduanero se entenderá realizada bajo la fe del juramento. El agente aduanero será responsable de suministrar la información y los datos necesarios para determinar la obligación tributaria aduanera, especialmente respecto de la descripción de la mercancía, su clasificación arancelaria, el valor aduanero de las mercancías, la cantidad, los tributos aplicables y el cumplimiento de las regulaciones arancelarias y no arancelarias que rigen para las mercancías, según lo previsto en esta Ley, en otras leyes y en las disposiciones aplicables.
+Asimismo, el agente aduanero deberá consignar, bajo fe de juramento, el nombre, la dirección exacta del domicilio y la cédula de identidad del consignatario, del importador o consignante y del exportador, en su caso. Si se trata de personas jurídicas, dará fe de su existencia, de la dirección exacta del domicilio de sus oficinas principales y de su cédula jurídica. Para los efectos anteriores, el agente aduanero deberá tomar todas las previsiones necesarias, a fin de realizar correctamente la declaración aduanera, incluso la revisión física de las mercancías.
+En todos los casos, la declaración aduanera deberá venir acompañada por el original de la factura comercial, un certificado de origen de las mercancías emitido por la autoridad competente al efecto, cuando sea procedente, (y una copia de la declaración oficial aduanera del país exportador, que incluya el valor real de la mercancía, el número y monto de la factura, el número del contenedor, el peso bruto y neto, y el nombre del importador.)*
+La declaración aduanera deberá fijar la cuantía de la obligación tributaria aduanera y el pago anticipado de los tributos, en los casos y las condiciones que se dispongan vía reglamento.
+(Así reformado por artículo 1° de la Ley No. 8373 de 18 de agosto de 2003).
+*(La frase destacada entre paréntesis fue anulada mediante resolución de la Sala Constitucional N° 1571-08 del 30 de enero del 2008.)

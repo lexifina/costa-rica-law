@@ -1,7 +1,2 @@
-ARTICULO 220.- Incumplimiento de deberes de terceros
-Será reprimido con prisión de uno a tres años quien, incumpliendo las
-obligaciones impuestas por la legislación tributaria y aduanera, niegue,
-oculte o brinde, de manera incompleta o falsa, información de
-trascendencia tributaria o aduanera, sobre hechos o actuaciones de
-terceros, que le constan por mantener relaciones económicas y financieras
-con ellos.
+Artículo 220.—Incumplimiento de deberes de terceros. Será reprimido con prisión de tres a cinco años quien, incumpliendo las obligaciones impuestas por la legislación tributaria y aduanera, niegue u oculte información de trascendencia tributaria o aduanera, sobre hechos o actuaciones de terceros, que le consten por mantener relaciones económicas y financieras con ellos, o quien la brinde incompleta o falsa.
+(Así reformado por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

@@ -1,12 +1,4 @@
-ARTICULO 246.- Registro de importadores
-Los importadores habituales deberán registrarse ante el Organo
-nacional de valoración y verificación aduanera, donde se les asignará un
-número de registro. En el registro de importadores, se consignarán, por lo
-menos, el nombre, la dirección, el número de cédula jurídica -si se trata
-de personas jurídicas-, el número de la cédula de identidad, el pasaporte
-o cualquier otra identificación -si se trata de una persona física-, las
-personerías jurídicas y los registros mercantiles correspondientes.
-Los importadores están obligados a suministrar a la autoridad
-aduanera las listas de precios, los catálogos de las mercancías
-importadas, toda información y documentos que permitan establecer los
-valores aduaneros correctos.
+Artículo 246.—Registro de importadores. Los importadores habituales deberán registrarse ante el órgano Nacional de Valoración y Verificación Aduanera, donde se les asignará un número de registro. En el registro de importadores se consignarán, por lo menos, los siguientes datos: el nombre, la dirección, el número de cédula jurídica -si se trata de personas jurídicas-, el número de la cédula de identidad, el de pasaporte o cualquier otra identificación -si se trata de una persona física-, así como las personerías jurídicas y los registros mercantiles correspondientes.
+Deberán registrarse por cada uno de ellos, las modalidades de importación realizadas; por tanto, se llevará un control separado de los internamientos definitivos y de los efectuados en tránsito o redestino.
+Los importadores estarán obligados a suministrar a la autoridad aduanera las listas de precios y los catálogos de las mercancías importadas, así como toda la información y los documentos que permitan establecer los valores aduaneros correctos.
+(Así reformado por el artículo 1° de la Ley N° 8373 de 18 de agosto de 2003).

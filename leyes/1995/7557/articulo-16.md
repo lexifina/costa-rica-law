@@ -1,14 +1,6 @@
 CAPITULO III
 DEL PERSONAL ADUANERO
-ARTICULO 16.- Personal aduanero
-El personal aduanero está obligado a conocer y aplicar la legislación
-atinente a la actividad aduanera. En el desempeño de sus cargos, los
-funcionarios aduaneros serán personalmente responsables ante el fisco por
-las sumas que deje de percibir por acciones u omisiones dolosas o por
-culpa grave, sin perjuicio de las responsabilidades de carácter
-administrativo y penal en que incurran. La responsabilidad civil prescribe
-en el término de cuatro años contados a partir del momento en que se
-cometió el delito.
-Constituirá falta grave de servicio, sancionable conforme al régimen
-disciplinario, el retraso injustificado en los procedimientos en los
-cuales intervengan los funcionarios aduaneros.
+Artículo 16.—Personal aduanero. El personal aduanero deberá conocer y aplicar la legislación atinente a la actividad aduanera. En el desempeño de los cargos, los funcionarios aduaneros serán personalmente responsables ante el Fisco por las sumas que este deje de percibir debido a acciones u omisiones dolosas o por culpa grave, sin perjuicio de las responsabilidades de carácter administrativo y penal en que incurran. Igualmente, serán responsables por no efectuar los controles respectivos de las mercancías objeto de comercio exterior, de conformidad con el artículo 93 de esta Ley, los que se establezcan por vía reglamentaria o los que estipule la Dirección General. La responsabilidad civil prescribirá en el término de cuatro años, contados a partir del momento en que se cometa el delito.
+Constituirán falta grave de servicio, sancionable conforme al régimen disciplinario, el retraso injustificado en los procedimientos en los cuales intervengan los funcionarios aduaneros, así como el recibir obsequios de mercancías de cualquier clase que se encuentren a bordo de los vehículos o las unidades de transporte que ingresen al territorio aduanero nacional o se hallen bajo control aduanero.
+Durante la sustanciación del procedimiento administrativo tendiente al despido por actuaciones irregulares de los servidores del Servicio Nacional de Aduanas, que puedan producir perjuicio económico al Fisco, el director general de Aduanas deberá solicitar al Ministro de Hacienda la suspensión provisional de labores, con goce de salario; lo anterior mientras dure el procedimiento de gestión de despido, para lograr el éxito de la investigación que se realiza y salvaguardar las relaciones de servicio, documentación e información. El Ministro de Hacienda deberá comunicar a la Dirección General de Servicio Civil, la decisión acordada.
+(Así reformado por artículo 1° de la ley N° 8373 de 18 de febrero de 2003)

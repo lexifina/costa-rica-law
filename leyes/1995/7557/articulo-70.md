@@ -1,12 +1,4 @@
 ARTICULO 70.- Título ejecutivo
-La certificación que expida la Dirección General de Aduanas por la
-parte insoluta de una obligación tributaria aduanera, sus intereses,
-multas, y otros recargos, tiene carácter de título ejecutivo suficiente
-para iniciar el cobro judicial.
-El Director o Subdirector General de Aduanas podrán ejercer
-directamente la acción de cobro y decretar las medidas cautelares. Podrán,
-asimismo, sin perjuicio de lo dispuesto en la siguiente sección, decretar
-y practicar embargo administrativo sobre toda clase de bienes y mercancías
-del sujeto pasivo de la obligación tributaria aduanera, según los términos
-y procedimientos fijados en el Código de Normas y Procedimientos
-Tributarios para la Oficina de Cobros Judiciales.
+La certificación que expida la Dirección General de Aduanas por la parte insoluta de una obligación tributaria aduanera, sus intereses, multas, y otros recargos, tiene carácter de título ejecutivo suficiente para iniciar el cobro judicial.
+El director o subdirector de Aduanas podrá ejercer directamente la acción de cobro y decretar medidas cautelares, según lo establecido al efecto en el Código de Normas y Procedimientos Tributarios. Asimismo, sin perjuicio de lo dispuesto en la siguiente sección, podrá decretar y practicar embargo administrativo sobre toda clase de bienes y mercancías del sujeto pasivo de la obligación tributaria aduanera, según los términos y procedimientos fijados en el Código citado, para la Oficina de Cobros Judiciales.
+(Así reformado el párrafo anterior por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

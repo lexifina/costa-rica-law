@@ -1,6 +1,2 @@
-ARTICULO 201.- Fase probatoria
-De ser necesario para mejor resolver o a solicitud del recurrente o
-de parte interesada, la Dirección General de Aduanas otorgará un plazo de
-quince días hábiles para presentar pruebas. La Dirección General de
-Aduanas podrá prorrogar este plazo, mediante resolución motivada, de
-oficio, a solicitud del recurrente o de parte interesada.
+Artículo 201.—Fase probatoria. El Tribunal Aduanero Nacional podrá ordenar prueba para mejor proveer. El recurrente podrá proponer prueba, pero el Tribunal rechazará aquella que sea impertinente o superabundante. Se concederá un plazo de quince días hábiles para presentar las pruebas. Mediante resolución motivada, el Tribunal podrá prorrogar este plazo por uno igual y sucesivo, a solicitud del recurrente, lo cual deberá ser solicitado antes del vencimiento del plazo inicial.
+(Así reformado por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

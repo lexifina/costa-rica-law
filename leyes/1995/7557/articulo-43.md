@@ -1,8 +1,2 @@
-ARTICULO 43.- Responsabilidad
-Los transportistas aduaneros son responsables de cumplir con las
-obligaciones resultantes de la recepción, la salida y el transporte aéreo,
-marítimo o terrestre de las mercancías, a fin de asegurar que lleguen al
-destino autorizado o salgan de él intactas, sin modificar su naturaleza o
-su embalaje, conforme a las disposiciones de la Dirección General de
-Aduanas y las demás autoridades reguladoras del tránsito y la seguridad
-pública.
+Artículo 43.—Responsabilidad. Los transportistas aduaneros serán responsables de cumplir las obligaciones resultantes de la recepción, la salida y el transporte aéreo, marítimo o terrestre de las unidades de transporte y/o mercancías, según corresponda al medio de transporte utilizado, a fin de asegurar que lleguen al destino autorizado o salgan de él intactas, sin modificar su naturaleza ni su embalaje, hasta la entrega efectiva y la debida recepción por parte del auxiliar autorizado, según las disposiciones de la Dirección General de Aduanas y las demás autoridades reguladoras del tránsito y la seguridad pública.
+(Así reformado por artículo 1° de la Ley No. 8373 de 18 de agosto de 2003
