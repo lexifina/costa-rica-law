@@ -1,0 +1,1 @@
+6- En caso de atraso en el pago por más de dos meses de la tarifa de agua, la Municipalidad podrá solicitar ante Acueductos y Alcantarillados, el retiro del servicio o paja y cancelará lo adeudado con el depósito.
