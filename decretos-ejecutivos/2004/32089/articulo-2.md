@@ -1,0 +1,1 @@
+Artículo 2º—El programa de bono para la educación se transformará en el Programa de Beca Inicial para la Educación, cuya ejecución corresponderá al Fondo Nacional de Becas (FONABE) del Ministerio de Educación Pública, como órgano técnico especializado en materia de otorgamiento de becas y asistencia socioeconómica de la población estudiantil costarricense.
