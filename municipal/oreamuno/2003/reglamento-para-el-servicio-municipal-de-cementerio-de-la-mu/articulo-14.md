@@ -1,0 +1,1 @@
+Artículo 10.—Del color de la cubierta de los nichos. Los nichos independientemente del material utilizado para cubrirlos, el color que debe utilizarse debe ser blanco. En caso que desee utilizarse otro color, deberá obtenerse autorización de la Junta Administradora.

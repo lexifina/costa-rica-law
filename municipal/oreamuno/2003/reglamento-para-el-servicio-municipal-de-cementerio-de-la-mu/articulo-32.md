@@ -1,0 +1,2 @@
+Artículo 28.—Del traslado de los restos en el mismo cementerio o a otro cementerio. Para los casos de traslado de los restos dentro del mismo cementerio se requerirá la autorización de la Junta Administradora, la cual procederá a autoriza el traslado previo presentación de los certificados de arrendamiento de las bóvedas y pago de las tasas correspondientes.
+En el caso de traslados a otros cementerios se requerirá además la autorización del cementerio que ha reservado el espacio para dicho fin.

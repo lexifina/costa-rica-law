@@ -1,0 +1,9 @@
+Artículo 15.—De los derechos del arrendatario. Se establecen las siguientes disposiciones:
+a) Los adjudicatarios de cualquier parcela en los cementerios deberán suscribir el respectivo contrato de arrendamiento previo a entrar en posesión de la misma, y correrán por su cuenta los gastos de honorarios y especies fiscales respectivos.
+b) Ser mayor de edad. (debe aportar fotocopia de la cédula)
+c) Debe ser vecino del cantón.
+d) Estar al día en el pago de los tributos municipales.
+e) Todo derecho podrá ser traspasado o vendido a otra persona o núcleo familiar del distrito correspondiente, previa autorización de la Junta. Para tal efecto deberá presentar la solicitud y un timbre municipal de cien colones, firmado por las partes y autenticado por un abogado.
+f) Si los datos proporcionados por la persona adquiriente de un derecho resulten falsos, las juntas administradoras lo comunicarán de inmediato, y darán por anulado el contrato respectivo con la consiguiente pérdida del monto pagado por parte de la persona a cuyo nombre solicitó el derecho.
+g) Son transmisibles los derechos entre miembros de una misma familia, pero el propietario de un derecho podrá designar como beneficiario a sus herederos al formalizar el contrato correspondiente. Con el respectivo certificado de defunción del propietario, los herederos podrán solicitar el traspaso del derecho.
+h) El comprador o arrendatario de un derecho es la única persona que puede otorgar permiso para uso de la bóveda, salvo que el poseedor haya designado a una o varias personas con esa finalidad. Cuando el poseedor de un derecho hubiera fallecido sin haber autorizado expresamente a una o varias personas para otorgar los permisos, el cónyuge o sus familiares quedan facultados para extender los permisos respectivos, a través de nota dirigida a la Junta.

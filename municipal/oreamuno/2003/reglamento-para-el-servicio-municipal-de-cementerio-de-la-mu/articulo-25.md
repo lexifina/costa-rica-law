@@ -1,0 +1,1 @@
+Artículo 21.—Del horario de la inhumación. Las inhumaciones se celebrarán dentro del horario de las siete y treinta horas a las diecisiete horas. Fuera de dicha hora no se autorizará inhumación alguna, salvo orden de autoridad competente que señale la urgencia de la misma. El pago por concepto de inhumación dependerá si es ordinaria, vespertina o dominical.

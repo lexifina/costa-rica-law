@@ -1,0 +1,1 @@
+Artículo 23.—De la presentación del comprobante de pago. En las situaciones ordinarias, el interesado presentará el comprobante de pago cancelado al encargado del cementerio por lo menos con dos horas de anticipación, a efecto de que este determine el sitio correspondiente y verifique la ausencia de restos.

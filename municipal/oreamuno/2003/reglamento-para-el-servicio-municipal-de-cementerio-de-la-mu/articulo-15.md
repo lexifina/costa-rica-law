@@ -1,0 +1,1 @@
+Artículo 11.—De las especificaciones técnicas de los cementerios. Todos lo cementerios que se ubiquen en el Cantón de Oreamuno tendrán las especificaciones técnicas que establece el Reglamento General de Cementerios y el Reglamento de Construcciones.

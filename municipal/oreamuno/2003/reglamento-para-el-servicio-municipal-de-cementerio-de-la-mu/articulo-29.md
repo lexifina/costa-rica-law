@@ -1,0 +1,1 @@
+Artículo 25.—De la disposición de los restos y cadáveres en las exhumaciones ordinarias y extraordinarias. Para los efectos de la disposición y manejo de los restos y cadáveres, se aplicará lo establecido en los artículos 30 a 36 del Reglamento General de Cementerios.

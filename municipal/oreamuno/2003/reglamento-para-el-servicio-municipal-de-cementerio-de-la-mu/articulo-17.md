@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la adquisición y los traspasos de derechos
+Artículo 13.—De la naturaleza del contrato de arrendamiento del servicio de los lotes de cementerio y del mantenimiento. La Municipalidad de Oreamuno establece el sistema de arrendamiento para el servicio de alquiler de los lotes de cementerio. Dicho contrato por su naturaleza especial estará regulado por el presente reglamento y por el Reglamento General de Cementerios. Por lo cual no se permitirán las construcciones de fosas en los lotes alquilados que no guarden las estipulaciones, dimensiones y demás requisitos legales y reglamentarios.
