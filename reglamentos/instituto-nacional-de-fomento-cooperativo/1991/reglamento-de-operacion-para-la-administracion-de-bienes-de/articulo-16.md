@@ -1,10 +1,1 @@
-DE LOS REGISTROS Y CONTROLES
-Artículo 16.—Por cada depósito que asuma el INFOCOOP deberá abrirse un expediente el cual contendrá:
-a) Actas de inspecciones oculares, de embargos y de posesión si el abogado director lo hubiese solicitado.
-b) Avalúos preparados por los peritos.
-c) Informes sobre inspecciones realizadas por los empleados.
-d) Edictos publicados en “La Gaceta” sobre remates.
-e) Copia da acta de remate, la adjudicación y la liquidación.
-f) Copias de comprobantes y documentos sobre erogaciones por mantenimiento del bien, traslados, viáticos y kilometrajes, pagos de guardas para vigilancia, etc.
-g) Toda correspondencia y demás documentación posterior.
-Tales expedientes se mantendrán obligatoriamente en los archivos de la Administración de Bienes y solo en casos muy calificados podrán ser retirados de los mismos para lo cual deberá quedar constancia al respecto con el visto bueno de la Jefatura.
+Artículo 16.—Cuando la venta de los bienes no es posible en forma inmediata y el INFOCOOP no cuente con espacio físico adecuado para su almacenamiento y custodia, la administración Superior queda facultada para autorizar el arrendamiento de las bodegas necesarias para su almacenamiento sin sujetarse a los procedimientos establecidos en el artículo 73 del Reglamento de Contratación Administrativa, por un plazo no mayor a tres meses; lapso durante el cual deberá si la necesidad persiste iniciar y finiquitar el procedimiento legal para el arrendamiento de bienes inmuebles, del citado reglamento.

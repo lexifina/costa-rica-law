@@ -14,3 +14,4 @@ Reglamento de Operación para la Administración de Bienes de la Naturaleza de s
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-07-03 | la propia norma |
+| 2 | 1998-12-16 | Reglamento 2807 (1998-12-16) |

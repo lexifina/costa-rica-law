@@ -1,5 +1,1 @@
-Artículo 27.—Al día siguiente hábil la Administración de Bienes presentará a conocimiento de la Dirección Ejecutiva y del Departamento de Control de Créditos un análisis de los gastos incurridos en los bienes con las recomendaciones pertinentes.
-Tales informes deberán contener lo siguiente:
-a) Monto total de gastos y naturaleza de los mismos y su necesidad.
-b) Valor actualizado del bien.
-c) Recomendaciones.
+Artículo 27.—Todo gasto que genere la Sección de Administración de Bienes en la atención de bienes en depósito se cargará a la operación del cliente demandado. Una copia de los comprobantes junto con los justificantes correspondientes quedará archivada en el expediente del caso, debiendo enviar una copia al Abogado Director del juicio, al día siguiente hábil, si la operación se encuentra en Cobro Judicial, a fin de que incluya ese gasto en la liquidación.

@@ -1,1 +1,1 @@
-Artículo 21.—Una vez que el bien se encuentre inscrito a nombre del INFOCOOP, el abogado debe remitir el documento de inscripción respectivo al Departamento de Control de Créditos, debiendo este último informar lo anterior a las instancias pertinentes.
+Artículo 21.—Los bienes se mantendrán bajo el Sistema de Inventario permanente. Por lo menos dos veces al año. La Administración de Bienes y el Departamento de Finanzas realizarán un inventario físico de dichos bienes.
