@@ -1,1 +1,0 @@
-Artículo 19.-El documento de viaje especial que aquí se indica, será diseñado e impreso, extendido y custodiado por la Dirección General de Migración y Extranjería y tendrá las formalidades que por vía reglamentaria se establezcan. Dicho documento se expedirá de conformidad con los procedimientos que al efecto señale tal Reglamento.

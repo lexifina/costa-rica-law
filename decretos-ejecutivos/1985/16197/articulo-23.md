@@ -1,1 +1,0 @@
-Artículo 23.-El interesado podrá tramitar personalmente su solicitud o patrocinado por un abogado ante el ICT, o bien a través de un agente consular debiendo sujetarse a los requisitos y procedimientos aquí establecidos. Dicho profesional será el director responsable de la gestión y su oficina se tendrá como domicilio legal para todo efecto.

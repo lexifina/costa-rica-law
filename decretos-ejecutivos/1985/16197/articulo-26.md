@@ -1,1 +1,0 @@
-Artículo 26.-La falsedad comprobada en los documentos o informes suministrados para el otorgamiento de los beneficios que la Ley N° 4812 y este Reglamento confieren, ocasionará el rechazo de la solicitud o la cancelación del beneficio si ya se hubiese otorgado sin perjuicio de las sanciones que correspondan.

@@ -1,1 +1,0 @@
-Artículo 5°-Las personas amparadas a las categorías de residencia aquí establecidas, podrán solicitar la categoría de residente dependiente a favor de su cónyuge hijos solteros menores de dieciocho años o de aquellos mayores incapaces que dependan económicamente de él. Asimismo para aquellos que cursan estudios superiores cuyo límite de edad se establece en 25 años.

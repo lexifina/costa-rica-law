@@ -1,1 +1,0 @@
-Transitorio l.-Las disposiciones previstas en este Reglamento serán aplicables a quienes ya estuvieren acogidos a los beneficios de la Ley N° 4812 y su reglamentación anterior, únicamente en cuanto les beneficie. En ese sentido, acogerse a los beneficios que indique este Reglamento siempre y cuando no hayan hecho uso de aquellos a que se refiere el Reglamento anterior.

@@ -1,1 +1,0 @@
-Artículo 21.-El Departamento de Pensionados y Rentistas, conjuntamente con los Ministerios y Dependencias indicadas en este Reglamento, centralizarán en una sola oficina la atención de los residentes y recibirán para su trámite los documentos correspondientes para la obtención de los beneficios de Ley.

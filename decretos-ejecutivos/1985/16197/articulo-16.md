@@ -1,1 +1,0 @@
-Artículo 16.-En caso de fallecimiento del beneficiario, los derechos le serán adjudicados a cualquiera de sus dependientes que demuestre mejor derecho de conformidad con la legislación costarricense, y que cumpla además con los requisitos legales y reglamentarios.
