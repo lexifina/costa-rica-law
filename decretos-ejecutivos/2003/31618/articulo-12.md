@@ -1,0 +1,1 @@
+Artículo 12.—De la firma del convenio. Confeccionado el Convenio lo firmarán el Director Administrativo Financiero y el funcionario(a) responsable. El aparato y los accesorios se entregan posteriormente a la formalización del convenio.

@@ -1,0 +1,1 @@
+Artículo 14.—Uso del teléfono celular en vacaciones o incapacidad. Se prohíbe el uso del teléfono celular propiedad del MIVAH, cuando el funcionario(a) se encuentre en vacaciones o incapacitado(a), y se superen los cinco días hábiles. Para este efecto se pondrá el teléfono y sus accesorios en custodia del Departamento de Proveeduría Institucional.

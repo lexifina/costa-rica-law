@@ -1,0 +1,1 @@
+Artículo 21.—Del cobro del excedente. Si el consumo reportado por el ICE excede el tope establecido por el artículo 10 del presente Reglamento, la Oficialía Presupuestal informará al funcionario(a) responsable, y lo comunicará al Departamento de Recursos Humanos para que realice la deducción automática por medio de planilla.
