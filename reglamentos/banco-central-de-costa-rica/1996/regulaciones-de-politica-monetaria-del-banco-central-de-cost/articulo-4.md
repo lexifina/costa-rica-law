@@ -5,7 +5,8 @@ Operaciones de Mercado Abierto
 A. El Banco Central de Costa Rica, podrá realizar operaciones de mercado abierto mediante captaciones o emisión de títulos propios. También, podrá realizar operaciones de mercado abierto en el mercado secundario de valores, mediante la compra o venta de instrumentos financieros de primera clase, de absoluta seguridad y liquidez y de transacción normal y corriente en el mercado. Para ello podrá comprar y vender títulos propios o de entidades fiscalizadas por la Superintendencia General de Entidades Financieras, en este último caso, que no se encuentren en situaciones de inestabilidad o irregularidad financiera según el reglamento dictado para esos efectos. Asimismo, podrá efectuar ventas de títulos de Gobierno.
 B. Las operaciones de mercado abierto podrán realizarse en moneda nacional o en moneda extranjera.
 C. Las operaciones de mercado abierto podrán ser transacciones a la vista o a plazo. Asimismo, podrán realizarse mediante ventanilla, subastas o, cuando se requiera de una intervención más rápida, el Banco Central de Costa Rica podrá efectuar negociaciones directas.
-D. Las tasas de interés de las operaciones de mercado abierto serán determinadas por la Junta Directiva del Banco Central de Costa Rica.
+D. Las tasas de interés de las operaciones de mercado abierto serán determinadas por la Junta Directiva del BCCR. El Departamento Monetario someterá mensualmente a consideración de ese Directorio, las estimaciones de la tasa de interés para 180 días plazo, según los determinantes de esta para que sirva a las autoridades para la fijación de las tasas de referencia para los títulos del BCCR.
+(Así reformado el literal anterior en sesión N° 5063 del 10 de enero de 2001)
 E. Los títulos valores negociados por medio de operaciones de mercado abierto podrán ser vendidos o comprados a un valor diferente del facial, esto es con premio o con descuento, siempre cuando el rendimiento de la operación se ajuste a los límites que en materia de tasas de interés dicte la Junta Directiva del Banco Central de Costa Rica.
 3°—Subastas
 A. Las ofertas se harán por medio de los puestos de bolsa autorizados y de las entidades supervisadas por la Superintendencia General de Entidades Financieras (SUGEF).
@@ -39,4 +40,4 @@ c. Garantía de la operación
 El valor de mercado de los títulos constituidos en garantía no podrá ser inferior al 105% del valor de la recompra. El valor de mercado se basará en la cotización, que en el momento de la operación tengan esos títulos en las bolsas de valores.”
 5. La parte operativa de la participación del BCCR en este mercado estará a cargo del Área de Negociación de Divisas y Mercado Abierto de la División Financiera, bajo los lineamientos dados por la Junta Directiva de la Institución.
 El Departamento Monetario de la División Económica presentará, ante la comisión mencionada en el literal C de esta sección, informes semanales acerca de la situación de liquidez de la economía y hará las recomendaciones técnicas del caso.
-(*)(Así sustituido el título IV anterior en sesión N° 5009 del 6 de octubre de 1999)
+(*) (Este Título fue sustituido en sesión N° 5009 del 6 de octubre de 1999)
