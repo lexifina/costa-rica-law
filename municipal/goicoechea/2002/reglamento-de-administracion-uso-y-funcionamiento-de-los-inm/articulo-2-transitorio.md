@@ -1,0 +1,1 @@
+Transitorio 2º—Convocar a reunión a Representantes Municipales, Comité Local de Emergencias, Comisión Nacional de Emergencias y a todas las Asociaciones, comités o grupos de vecinos que administres edificios, instalaciones deportivas o cualquier inmueble propiedad de la Municipalidad, para hacer de su conocimiento el presente Reglamento y la ejecución del mismo.

@@ -1,0 +1,1 @@
+Artículo 2°.—Toda construcción, obra o mejora existente o que en el futuro se realice sobre terrenos propiedad de la Municipalidad, pasará a formar parte de éste y se tendrá como parte del tesoro municipal y por tanto propiedad de la Municipalidad de Goicoechea.

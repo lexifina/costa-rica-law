@@ -1,0 +1,1 @@
+Artículo 4°.—Por su naturaleza, los inmuebles propiedad de la Municipalidad y las edificaciones que sobre éllos se construyen, no podrán destinarse a fines que atenten contra la moral y las buenas costumbres, además se prohíbe de forma absoluta la venta de licor en esos inmuebles.

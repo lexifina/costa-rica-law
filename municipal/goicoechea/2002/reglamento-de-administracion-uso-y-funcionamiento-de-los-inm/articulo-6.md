@@ -1,0 +1,6 @@
+CAPITULO II
+Artículo 6º—Las asociaciones, comités de vecinos organizados u otras asociaciones de carácter comunal interesadas en la administración y mantenimiento de las instalaciones municipales, así lo indicarán a la Municipalidad. Para ello deberán cumplir con los siguientes requisitos:
+a. Certificación actualizada y vigente de su personería, de la composición de su junta directiva y de la cédula jurídica, así como certificación notarial de que sus libros de actas, libro de asociados y el de asambleas se encuentran actualizados y al día.
+b. Certificación extendida por contador público autorizado de que los libros de diario, mayor e inventario y balances se encuentran actualizados y al día.
+c. En aquellos casos de asociaciones que por su naturaleza y fines, deben inscribirse ante otras instancias gubernamentales, además del Registro de Asociaciones, aportarán entonces los interesados, certificaciones extendidas por las Instituciones competentes de que se encuentra esa asociación debidamente inscrita, vigente y autorizada para su funcionamiento.
+d. Deberán presentar un proyecto de administración y uso del inmueble, el cual detallará de forma pormenorizada el financiamiento del que disponen, el uso que pretende darse al bien público, los planes de mantenimiento y mejoras del mismo.

@@ -1,0 +1,1 @@
+Transitorio 1º—La Dirección de Ingeniería en conjunto con el Departamento de Censo y Catastro levantará un censo de todos los inmuebles pertenecientes a la Municipalidad, indicando las instalaciones o edificaciones, que en ellas existan, así como su estado.
