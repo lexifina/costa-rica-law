@@ -1,0 +1,1 @@
+Art. 6°-Todo propietario (a), para la construcción de aceras frente a su propiedad, debe solicitar la línea y niveles correspondientes a la Municipalidad, la cual debe dársela en un termino no mayor de 15 días hábiles posteriores al recibo de la solicitud.

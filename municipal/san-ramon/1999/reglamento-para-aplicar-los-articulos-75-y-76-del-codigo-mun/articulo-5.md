@@ -1,0 +1,1 @@
+Art. 5°-Todo propietario (a) para la construcción de cercas, tapias o muros frente a su propiedad, debe solicitar la línea correspondiente a la Municipalidad, la cual debe dársela en un término no mayor de 15 días hábiles posteriores al recibo de la solicitud.

@@ -1,0 +1,1 @@
+Art. 2°-Para realizar-los trabajos, que los propietarios notificados no realicen; las Municipalidades podrán recurrir a sus trabajadores, a cuadrillas o empleados ocasionales y a organizaciones comunales.
