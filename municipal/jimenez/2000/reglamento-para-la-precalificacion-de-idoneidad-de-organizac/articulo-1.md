@@ -1,0 +1,7 @@
+REGLAMENTOS
+MUNICIPALIDADES
+MUNICIPALIDAD DE JIMÉNEZ
+REGLAMENTO PARA LA PRECALIFICACIÓN DE IDONEIDAD DE ORGANIZACIONES NO GUBERNAMENTALES PARA LA ADMINISTRACIÓN DE FONDOS PÚBLICOS PROVENIENTES DE PARTIDAS ESPECÍFICAS CON CARGO AL PRESUPUESTO NACIONAL
+La Municipalidad de Jiménez, en sesión ordinaria número 387, celebrada el día miércoles 19 de abril del año en curso, acordó por unanimidad transcurrido el plazo para consulta pública respecto al Proyecto de Reglamento para la Precalificación de Idoneidad de Organizaciones no Gubernamentales para la Administración de Fondos Públicos Provenientes de Partidas Específicas con cargo al Presupuesto Nacional, el cual fue publicado en La Gaceta Nº 59 del día jueves 23 de marzo del 2000, el Concejo Municipal de Jiménez acuerda por unanimidad, aprobar el presente Reglamento para la Precalificación de Idoneidad de Organizaciones no Gubernamentales pra la Administración de Fondos Públicos Provenientes de Partidas Específicas con Cargo al Presupuesto Nacional.
+Disposiciones generales
+Artículo 1º—De conformidad con lo dispuesto en los artículos 2 y 4 inciso j) de la Ley Nº 7755 "Control de las Partidas Específicas con cargo al Presupuesto Nacional", del 23 de febrero de 1998, las entidades beneficiarias o ejecutoras de los proyectos o programas financiados con dichas partidas específicas, deberán obtener de la Contraloría General de la República la calificación de idoneidad para administrar fondos públicos.
