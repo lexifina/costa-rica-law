@@ -1,0 +1,1 @@
+Articulo 6°—Es sujeto pasivo para los electos de este Reglamento, toda aquella persona que sea propiciarán de un inmueble, quien por tal condición esta obligada al pago de la tasa que cobra la Municipalidad por mantenimiento de parques y zonas verdes, en cada uno de los tres distritos del cantón.

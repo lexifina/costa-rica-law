@@ -1,0 +1,1 @@
+Articulo 9°—El costo de esta tasa se determina tomando en consideración el costo efectivo de lo invertido por la Municipalidad, más un diez por ciento de utilidad para su desarrollo, tal y como lo establece el articulo 74 del Código Municipal vigente.

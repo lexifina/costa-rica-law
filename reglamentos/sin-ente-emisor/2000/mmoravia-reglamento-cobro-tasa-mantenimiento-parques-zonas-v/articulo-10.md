@@ -1,0 +1,1 @@
+Artículo 10.—EI diez por ciento de utilidad para el desarrollo, en que se incrementa las tasas señaladas en el artículo anterior, se destinará para impulsar la creación de nuevos parques para la remodelación de tus existentes en el distrito correspondiente y para la incorporación de una red o sistemas de parques en esta jurisdicción que permita planificar su mantenimiento.

@@ -1,0 +1,1 @@
+Articulo 13.—En la determinación del cosió efectivo, la Municipalidad tomará como base el gasto real o electivo que por la actividad de mantenimiento de parques, zonas verdes y sus respectivos servicios se demuestre con base en los costos reales, en que haya incurrido la Municipalidad.

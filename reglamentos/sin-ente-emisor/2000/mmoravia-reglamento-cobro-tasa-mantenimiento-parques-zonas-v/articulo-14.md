@@ -1,0 +1,1 @@
+Artículo 14. —La fijación y las recalificaciones anuales que la Municipalidad haga de esta tasa, se hará por medio de acuerdo que se emane del Consejo Municipal, el cual para su entrada en vigencia deberá publicarse en el Diario Oficial La Gaceta de conformidad con lo establecido en los artículos 68 y 74 del Código Municipal vigente.
