@@ -1,0 +1,1 @@
+Artículo 30.-En caso de que el contribuyente moroso incumpliere el compromiso adquirido de arreglo de pago, la Municipalidad procederá a reversar el mismo y a aplicar los procedimientos establecidos por la Contraloría General de la República, e iniciar el cobro judicial.

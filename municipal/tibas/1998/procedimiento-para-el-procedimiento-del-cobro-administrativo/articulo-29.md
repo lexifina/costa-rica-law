@@ -1,0 +1,1 @@
+Artículo 29.-EI tiempo máximo que se le concede para el pago de lo atrasado, no excederá el número de trimestres adeudados, contados a partir de la firma del documento respectivo. Los casos de excepción deberán tener el visto bueno del Alcalde Municipal.

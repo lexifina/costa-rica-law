@@ -1,0 +1,1 @@
+Artículo 21.-Para efectos de determinar si los juicios se encuentran al día, la Sección de Cobros revisará periódicamente, con personal calificado el número de expedientes y registros que considere necesarios, de operaciones entregadas a cada abogado, tomando como base la documentación en poder de esa Sección.

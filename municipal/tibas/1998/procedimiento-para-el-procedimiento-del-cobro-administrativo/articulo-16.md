@@ -1,0 +1,1 @@
+Artículo 16.-Es prohibido hacer cualquier tipo de arreglo con el deudor, recibir pagos o abonos a la deuda. Los honorarios profesionales los cobrará el abogado en su despacho, salvo cuando se trate de la condonación de honorarios, caso en el que deberá remitir una nota del abogado a la Sección de Cobros, donde justifique esa circunstancia.

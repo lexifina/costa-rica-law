@@ -1,0 +1,1 @@
+Artículo 15.-EI abogado deberá excusarse de atender la dirección de un juicio cuando tuviere vínculos de parentesco o de amistad con el demandado, lo cual comunicará por escrito a la Sección de Cobros, dentro de las cuarenta y ocho horas siguientes a la asignación del caso respectivo.

@@ -1,0 +1,4 @@
+CAPITULO III
+De los abogados
+Artículo 13.- El nombramiento de los abogados externos, sin sujeción laboral para el cobro judicial lo hará el Alcalde, por medio del concurso para la contratación de servicios profesionales, de conformidad con lo establecido en los artículos: 64 de la Ley de Contratación Administrativa y 69 de su Reglamento, artículos siguientes y concordantes, y previa selección que hará una Comisión especial integrada por el Alcalde, quien la coordinará, un Regidor propietario de cada fracción y el encargado de la Sección de Cobros.
+Corresponderá a la Sección de Cobros, cuando lo amerite, solicitar el nombramiento de nuevos abogados para que presten sus servicios profesionales a la Municipalidad en el campo del cobro judicial, para lo cual se utilizará el mismo procedimiento de concurso aquí determinado .

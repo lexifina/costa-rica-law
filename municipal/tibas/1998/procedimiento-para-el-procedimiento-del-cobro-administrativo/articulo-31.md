@@ -1,0 +1,1 @@
+Artículo 31.-Los arreglos de pago procederán únicamente cuando se trate de deudas superiores a los cuatro trimestres. Los arreglos de pago de las cuentas inferiores a este período, cuando se justifiquen debidamente por la Sección de Cobros, podrán ser autorizados, como única excepción, por el Alcalde de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 22.-Los abogados que por alguna razón personal deseen dejar de servir a la Municipalidad, deberán comunicar esa decisión con treinta días naturales de antelación al Alcalde de la Municipalidad y devolver, dentro de ese plazo, la totalidad de los expedientes de deudores que se han asignado, a la Sección de Cobros, con un detalle del estado en que se encuentra cada uno.

@@ -1,0 +1,1 @@
+Artículo 8°-La dirección y control tanto de las acciones administrativas, como el traslado a abogados externos para las gestiones de cobro judicial y la asignación de esos casos a los abogados externos, estarán a cargo de la Sección de Cobros.
