@@ -65,7 +65,7 @@ Instituto Costarricense de Pesca | 833,4
 Instituto Costarricense de Puertos del Pacífico | 4.874,1
 Instituto Costarricense de Turismo (Así modificado por decreto ejecutivo N° 31057 de 26 de marzo de 2003) | 6.518,6
 Instituto Costarricense sobre Drogas (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 609.7
-Instituto de Desarrollo Agrario (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31290 de 07 de julio de 2003, publicado en La Gaceta N° 146 de 31 de julio de 2003.) | 7.147,7
+Instituto de Desarrollo Agrario (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31309 de 29 de julio de 2003, publicado en La Gaceta N° 156 de 14 de agosto de 2003.) | 7.424.7
 Instituto de Fomento y Asesoría Municipal (Así modificado por el artículo 1° del decreto ejecutivo N° 31129 de 3 de abril de 2003) | ¢1.573.8
 Instituto Geográfico Nacional | 150,0
 Instituto Meteorológico Nacional | 272,0
