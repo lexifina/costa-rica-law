@@ -1,0 +1,2 @@
+Artículo 10. — El valor de los inmuebles se determinará por uno o más peritos nombrados por el Banco a costa del propietario.
+El Banco podrá aceptar como suficiente comprobante del valor de los inmuebles el último por que se hubiere adquirido en remate judicial o en adjudicación de mortuoria en los tres años que anteceden al contrato, o el valor que se les hubiere dado para el pago de la contribución territorial cuando ésta se estableciere.

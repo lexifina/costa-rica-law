@@ -1,0 +1,1 @@
+Artículo 26. — Siendo el Banco Internanacional un instituto oficial de carácter transitorio, cuando dicho Banco desaparezca, el Poder Ejecutivo designará un Banco, establecimiento u oficina que continúe, en representación del Estado, la emisión y servicio de bonos hipotecarios.
