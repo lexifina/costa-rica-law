@@ -1,0 +1,1 @@
+Art 4.- Podrán así mismo admitir los denuncios de las minas que se descubran en sus respectivos departamentos, en las que harán las visitas demarcadas en el reglamento de la materia, mientras con arreglo á este, se formalice la Diputación correspondiente.
