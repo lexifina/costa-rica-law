@@ -1,0 +1,2 @@
+Artículo 15.-Cada organización deportiva y recreativa del cantón, y cada organización comunal, podrá postular tantos candidatos como lo tenga a bien, los cuales deberán registrarse en el Tribunal Electoral a más tardar, dos días antes de la Asamblea respectiva.
+Una vez finalizado el período concedido para las postulaciones, el Tribunal Electoral levantará dos listas, una de los postulantes de las asociaciones deportivas y recreativas del cantón, y otra de las organizaciones comunales restantes. Ambas listas se harán visibles en cada unas de las asambleas respectivas.

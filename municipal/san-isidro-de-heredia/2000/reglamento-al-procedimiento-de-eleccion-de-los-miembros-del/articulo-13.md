@@ -1,0 +1,3 @@
+SECCION TERCERA
+De la Elección de los Miembros de Nombramiento de las Organizaciones Deportivas y Recreativas y organizaciones comunales.
+Artículo 13.-La convocatoria a la Asamblea para elegir los dos representantes de las organizaciones deportivas y recreativas el cantón, y el representante de las demás organizaciones comunales, a la Junta Directiva del Comité de Deportes y Recreación del cantón de San Isidro de Heredia, la formulará el e Tribunal Electoral, quince días calendario antes de su realización. Estas Asambleas se realizarán en la primera el quincena del mes de noviembre de cada dos años, ambas Asambleas deben realizarse en días distintos.

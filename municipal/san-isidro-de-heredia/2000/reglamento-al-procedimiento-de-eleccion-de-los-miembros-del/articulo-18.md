@@ -1,0 +1,1 @@
+Artículo 18.-El Presidente del Tribunal, en cada una de las Asambleas, presentará la nómina de postulantes; acto seguido ordenará la realización de la votación con los delegados presentes, la cual será secreta.

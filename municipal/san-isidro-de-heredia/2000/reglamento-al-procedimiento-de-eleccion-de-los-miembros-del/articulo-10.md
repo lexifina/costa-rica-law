@@ -1,0 +1,2 @@
+Artículo 10.-Todo postulante deberá declarar bajo fe de juramento que no lo alcanza la prohibición establecida en le artículo 167 del Código Municipal, y de los artículos 4° y 9° inciso d) del presente reglamento.
+En el caso de los postulantes de los incisos e) y f) del artículo 9o de este reglamento deben presentar además, la respectiva certificación de la organización que representen en la cual se acredite la condición requerida por tales incisos.

@@ -1,0 +1,1 @@
+Artículo 4°-No podrán formar parte del Comité Cantonal de Deportes y Recreación del cantón de San Isidro de Heredia: los Concejales, el Alcalde, los Alcaldes Suplentes, el Tesorero, el Auditor y el Contador, así como sus respectivos cónyuges o parientes en línea directa o colateral hasta tercer grado inclusive.

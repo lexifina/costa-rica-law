@@ -1,0 +1,6 @@
+TRANSITORIO UNICO
+Artículo único. Para la elección por realizarse de los miembros del Comité Cantonal de Deportes y Recreación del cantón de San Isidro de Heredia, para el período 2000-2002, por única vez, le corresponderá realizarla al Concejo Municipal bajo las siguientes condiciones:
+a) Las Organizaciones Deportivas y Recreativas del cantón definidas en el artículo 5° del presente reglamento, y las demás Organizaciones Comunales definidas en el artículo 6° del presente reglamento, deberán presentar sus postulantes a más tardar dentro de los 8 días calendario posteriores a la publicación y vigencia del presente reglamento, ante la Oficina de la Secretaría Municipal, con los requisitos establecidos en los artículos 9° y 10 del presente reglamento.
+b) La elección de los dos representantes de las Organizaciones Deportivas y Recreativas del cantón, así como del representante de las demás Organizaciones Comunales, lo resolverá por esta única ves, el Concejo Municipal por mayoría simple de los Regidores Propietarios en votación secreta.
+c) La elección de los representantes del Concejo Municipal se regirá por lo establecido en los artículos 11 y 12 del presente reglamento.
+Rige a partir de su publicación en el Diario Oficial "La Gaceta". San Isidro de Heredia, 17 de febrero del 2000.

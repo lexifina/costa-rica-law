@@ -1,0 +1,1 @@
+Artículo 5°-Se entenderá por Organizaciones Deportivas y Recreativas del cantón, aquellas organizaciones que se encuentran debidamente inscritas ante el Registro de Asociaciones Deportivas del Instituto del Deporte y la Recreación y/o en el Registro Público, con cédula y personería jurídicas al día, cuya sede o radio de acción sea el Cantón de San Isidro de Heredia.
