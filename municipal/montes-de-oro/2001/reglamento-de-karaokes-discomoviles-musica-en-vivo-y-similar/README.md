@@ -14,3 +14,4 @@ Reglamento de Karaokes, Discomóviles, Música en Vivo y Similares.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-10 | la propia norma |
+| 2 | 2003-10-03 | Reglamento municipal 40 (2003-10-03) |
