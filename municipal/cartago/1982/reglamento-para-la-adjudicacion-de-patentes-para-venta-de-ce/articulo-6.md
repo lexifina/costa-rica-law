@@ -1,0 +1,1 @@
+Artículo 6°-El no cumplimiento de la cláusula anterior, se tendrá como una renuncia tácita a la patente de cerveza, pudiendo el Ejecutivo, por medio del Departamento de Rentas, ordenar el cierre del establecimiento que haya incurrido en dicha infracción.

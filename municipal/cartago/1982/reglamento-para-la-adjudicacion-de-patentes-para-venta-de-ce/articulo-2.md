@@ -1,0 +1,1 @@
+Artículo 2°-Para que los establecimientos que cuenten sólo con patente de licores extranjeros puedan vender cerveza de fabricación nacional, créase la patente especial para la venta de cerveza, según lo contemplado en el artículo 3° de la Ley General sobre Venta de Licores, N° 10 del 7 de octubre de 1936 y sus reformas.

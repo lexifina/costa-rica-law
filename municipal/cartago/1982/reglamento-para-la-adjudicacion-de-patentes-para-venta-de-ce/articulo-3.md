@@ -1,0 +1,1 @@
+Artículo 3°-El valor de la patente de cerveza será la suma de ¢15.000,00 (quince mil colones), suma que se pagará por una sola vez, más una cuota trimestral igual a la que se paga por la patente de licores extranjeros. La patente de cerveza deberá renovarse cada dos años, junto con la patente de licores sin ningún recargo adicional.
