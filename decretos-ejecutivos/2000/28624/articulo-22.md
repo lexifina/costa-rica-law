@@ -1,0 +1,3 @@
+Segunda Etapa
+De la Recomendación
+Artículo 22°- Cumplidos los requisitos de la primera etapa, la DGTCC prevendrá al solicitante que deberá presentar los requisitos de la segunda etapa (artículo 9) dentro de los treinta días posteriores a la notificación del mismo. Aprobados los mismos, se emitirá una resolución de recomendación al MINAE para que se emita el permiso de construcción e instalación en caso de estación de servicio, de almacenamiento en caso de cliente directo, o de distribuidores sin punto fijo de venta. Recibida la recomendación, el Ministro cuenta con treinta días para emitir el permiso, en caso de que se acoja la recomendación y se enviará copia a la Autoridad Reguladora de los Servicios Públicos.

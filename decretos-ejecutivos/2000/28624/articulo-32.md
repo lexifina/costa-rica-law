@@ -1,0 +1,2 @@
+Edificaciones
+Artículo 32°- El titular de la autorización de funcionamiento es el responsable que las edificaciones (oficinas, áreas de servicio, bodegas, servicios sanitarios), estén en buen estado, higiene, limpieza y pintura, y cumplan con todas las normas y reglamentos dictados por los organismos competentes, respecto a condiciones de seguridad y funcionamiento, instalaciones sanitarias, ventilación, iluminación, materiales de construcción y dimensiones mínimas para oficinas, locales de trabajo, bodegas, servicios sanitarios y ornato.

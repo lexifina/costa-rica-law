@@ -1,0 +1,2 @@
+Prevención y Extinción de Incendios
+Artículo 35°- Todo establecimiento donde se manejen derivados de los hidrocarburos, asfaltos, gas y naftas, debe contar con los elementos de prevención y extinción de incendios, en perfecto estado de funcionamiento según lo establecido en los Decretos Ejecutivos Nos. 25985-MEIC-MTSS "Reglamento Técnico RTCR 227:1997. Procedimiento para el mantenimiento y recarga de los extintores portátiles" y 25986-MEIC-MTSS".

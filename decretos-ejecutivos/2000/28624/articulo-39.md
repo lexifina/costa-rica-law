@@ -1,0 +1,2 @@
+Pistas
+Artículo 39°- Las pistas de las estaciones de servicio deben estar libres de obstáculos o de construcción fija o provisional, salvo las islas destinadas a los surtidores, en las que únicamente se instalará el o los surtidores de combustible, el suministro de agua y aire para los vehículos, la caja auxiliar recaudadora de efectivo o tarjeta de crédito, rótulos luminosos de prevención e información, maceteras decorativas, y un estante o urna de exhibición de productos para el uso inmediato en los vehículos.

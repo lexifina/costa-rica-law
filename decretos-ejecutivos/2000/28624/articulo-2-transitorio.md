@@ -1,0 +1,1 @@
+Transitorio II.—Las solicitudes que se encuentran en trámite al publicarse este Reglamento se podrán acoger a la nueva normativa, en caso contrario se regirán con las disposiciones anteriores vigentes.

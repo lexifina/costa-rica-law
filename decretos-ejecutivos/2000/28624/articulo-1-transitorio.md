@@ -1,0 +1,2 @@
+Disposiciones Transitorias
+Transitorio I.—Los actuales distribuidores que a la fecha de entrada en vigencia del presente decreto tengan suscrito un contrato de compra venta de combustibles con RECOPE tendrán un plazo de seis meses para inscribirse en el Registro que se indica en el artículo 16 y obtener la respectiva autorización de funcionamiento del MINAE. Vencido el anterior plazo, RECOPE no venderá productos a quien no acredite su número de registro ante la DGTCC.

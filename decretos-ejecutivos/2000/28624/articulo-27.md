@@ -1,0 +1,2 @@
+Pruebas de Hermeticidad y Fichas Técnicas de Tanques y Tuberías
+Artículo 27°- En cualquier tipo de tanques se deben realizar las pruebas de hermeticidad a los tanques y tuberías y presentar a la DGTCC las fichas técnicas individuales emitidas por el fabricante de los tanques y tuberías certificadas por un profesional competente en la materia previas a emitir la recomendación que se indica en el artículo 28.

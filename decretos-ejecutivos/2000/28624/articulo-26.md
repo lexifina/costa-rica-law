@@ -1,0 +1,2 @@
+Informe de Inspección
+Artículo 26°- Si de la inspección realizada se comprueba que las obras se ajustan a las especificaciones técnicas, el funcionario que la realice emitirá el acto de aprobación para que las obras continúen. De encontrarse problemas o incumplimientos con las especificaciones técnicas, se emitirá un informe en un plazo no mayor de diez días hábiles, del cual se le dará traslado al interesado, para que hiciere las correcciones pertinentes si fuere del caso, mismas que se verificarán en la inspección siguiente.

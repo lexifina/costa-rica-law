@@ -1,0 +1,4 @@
+Derrames y Recolección de Grasas y Aceites
+Artículo 37°- Los derrames provocados por la descarga en la estación de servicio o en los tanques de almacenamiento y los que se produzcan durante el suministro de combustible a vehículos automotores deberán ser eliminados antes de encender el motor y de poner en marcha el vehículo, debiendo ser cubiertos con arena fina y seca, materiales absorbentes sintéticos o aplicación de químicos espumantes, para posteriormente ser depositada en un lugar debidamente ventilado y aislado del área de carga y suministro. En ningún caso se deben depositar dichos desechos en vías públicas o lugares no autorizados.
+La recolección de grasas y aceites se sujetara a las Normas de Vertido y Reutilización de Aguas Residuales (Decreto Ejecutivo Nº 26042-S-MINAE).
+No se permitirá el recibo de combustible cuando el sistema de recepción (válvula, manguera y acople) no sea hermético y produzca derrames.

@@ -1,0 +1,2 @@
+Vigencia de la Autorización de Construcción para Estaciones de Servicio
+Artículo 23°- Se establece un plazo de un año como vigencia del permiso de construcción. contado desde el momento de la notificación que se indica en el artículo anterior. Si pasado este plazo no se ha iniciado la construcción, deberá solicitarse un resello de los planos, por una única vez y dentro del término de un mes, para lo cual deberán presentarse de nuevo los requisitos del artículo 8 que se encuentren vencidos, caso contrario se procederá al archivo definitivo del expediente.
