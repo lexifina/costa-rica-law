@@ -13,3 +13,4 @@ Reglamento de la Junta Administrativa del Colegio San Luis Gonzaga Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1946-04-15 | la propia norma |
+| 2 | 1948-08-05 | Decreto Ejecutivo 2 (1948-08-05) |
