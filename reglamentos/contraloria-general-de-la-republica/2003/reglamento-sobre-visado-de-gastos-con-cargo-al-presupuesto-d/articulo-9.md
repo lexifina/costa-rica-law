@@ -1,0 +1,1 @@
+Artículo 9º-Emisión de Normativa. La normativa relacionada con el proceso de visado que emita el Ministerio de Hacienda en el ejercicio de sus competencias como órgano rector del Sistema de Administración Financiera, deberá observar las directrices, lineamientos e instructivos emitidos por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 17.-Derogatorias. Se deroga cualquier otra disposición emitida por la Contraloría General de la República referida al proceso de visado de gastos con cargo a los fondos del Estado que se oponga a la presente normativa.

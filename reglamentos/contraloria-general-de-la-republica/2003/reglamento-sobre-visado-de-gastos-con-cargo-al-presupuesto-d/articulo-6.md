@@ -1,0 +1,3 @@
+Artículo 6º-Emisión de directrices, lineamientos e instructivos para el proceso de visado.
+1. La Contraloría General de la República emitirá y actualizará las directrices, lineamientos e instructivos del proceso de visado, los cuales serán considerados por los rectores del Sistema y Subsistemas de la Administración Financiera en la emisión de la normativa de su competencia.
+2. Las disposiciones señaladas por la Contraloría General de la República en las directrices, lineamientos e instructivos son de acatamiento obligatorio, constituyen un mínimo aplicable por parte de la Administración Activa y no la eximen de la implantación oportuna de otros mecanismos de control no contemplados que considere necesarios.

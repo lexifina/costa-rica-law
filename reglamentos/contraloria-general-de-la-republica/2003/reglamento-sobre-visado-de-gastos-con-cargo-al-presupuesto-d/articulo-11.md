@@ -1,0 +1,3 @@
+Artículo 11.-Designación de responsables de la verificación del bloque de legalidad en el proceso de visado.
+1. La Administración Activa deberá designar, de conformidad con la normativa vigente, a los funcionarios responsables de la verificación del bloque de legalidad en el proceso de visado en cada uno de los órganos comprendidos dentro del ámbito de aplicación de este Reglamento.
+2. Los nombres de las personas designadas por la Administración Activa como funcionarios responsables, así como los cambios posteriores, deberán comunicarse a la Contraloría General de la República, a más tardar cinco días hábiles después de que la Administración asuma el respectivo acuerdo.
