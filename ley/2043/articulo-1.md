@@ -1,0 +1,84 @@
+Nº 2043
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
+DECRETA:
+Articulo 1º —Se aprueba el Contrato-Ley, suscrito entre el Poder Ejecutivo y la Etablissments Emile Degremont, de Francia, que dice así:
+Contrato para la Construcción Total de la Cañería de Guadalupe de Goicoechea
+Entre nosotros, Jorge Rossi Chavarría, Ministro de Economía y Hacienda con el recargo del Despacho de Obras Públicas, por una parte, y por otra Etablissments Emile Degremont—Sociedad domiciliada en Rusil Malmaison, Francia—, representada para este acto por el Ingeniero Gilbert Degremont, vecino de Paris, Francia, hemos convenido en celebrar el siguiente contrato:
+1) Objeto del Contrato:
+El Adjudicatario se compromete a construir totalmente para el Ministerio, la Cañería de Guadalupe de Goicoechea con las especificaciones, indicaciones y planos diseñados por los Ministerios de Obras Públicas y Salubridad Pública y los que a ella corresponda hacer, que serán de la aprobación de este Ministerio, en conformidad con las condiciones que se establecen en el presente contrato con base en la licitación Nº 5238 de la Proveeduría Nacional, publicada en "La Gaceta" del 22 de diciembre de 1955, que le fue adjudicada por resolución de las 7.15 horas del día 8 de mayo de este año, publicada en "La Gaceta" Nº 102 de 9 de mayo de 1956.
+En lo que sigue, las palabras "Ministerio" y "Gobierno" se refieren a Ministerio de Obras Publicas y Gobierno de Costa Rica, respectivamente, y "Adjudicatario" a la firma Etablissments Emile Degremont.
+Forma de Pago:
+El precio a pagar se establece así:
+Oferta……………… …………$1.414,000.00
+Aparato medidor de agua………….1, 950.00
+Mando semi-automático……………13,390.00
+Conexiones según cartel de
+Licitación…………………………..56,085.00
+$1.485,425.00
+Menos……………………………..1,300.00
+Por dosador en forma de solución
+GRAN TOTAL………………………………. ¢8.414,988.75 $1.484,125.00
+El total de las sumas debidas por el Gobierno al Adjudicatario serán pagadas en dólares de los Estados Unidos. El monto de $ 61,728.40 debido, dentro de los quince días del contrato previsto por el presente artículo será depositado en la cuenta corriente abierta por el Adjudicatario en el Banco de la Societé Genérale- 60 Wall Street, New York 5, N.Y.
+Los pagos se efectuarán a los vencimientos siguientes :
+Al firmar el contrato | $ 61,728.40
+El quince de enero de 1957 ... | 86,684.10
+El quince de enero de 1958 ... | 148,412. 50
+El quince de enero de 1959 ... | 296,825.00
+El quince de enero de 1960 ... | 222,618.75
+El quince de enero de 1961 | 222,618.75
+El quince de enero de 1962 ... | 222,618.75
+El quince de enero de 1963 ... | 222,618.75
+Los vencimientos de pago, con la excepción del primer pago, estarán representados por pagares suscritos por el Gobierno a la orden del Adjudicatario y deberán tener según la Ley de Costa Rica el carácter de efectos comerciales libremente descontables por simple endoso.
+El vencimiento del quince de enero de 1957 dará lugar a la emisión de pagares de $ 10,000.00 cada uno y un pagare de $ 6,684.10.
+El vencimiento del quince de enero de 1958 dará lugar a la emisión de 14 pagares de $ 10,000.00 cada uno y un pagare de $ 8,412.50.
+El vencimiento del quince de enero de 1959 dará lugar a la emisión de 29 pagares de $ 10,000.00 cada uno y un pagare de $ 6,825.00.
+Los vencimientos del quince de enero de 1960, 1961, 1962 y 1963 dará lugar cada uno a la emisión de 22 pagares de $ 10,000.00 y un pagare de $ 2,618.75.
+Los pagares indicados, por un monto total de $ 1.422,396.60, deberán ser enviados por el Gobierno, dentro de los treinta días siguientes a la aprobación de este contrato por la Asamblea Legislativa de la Republica de Costa Rica, al Banco de la Societé Genérale, 60 Wall Street, New York, que actuará como Banco Fideicomisario, acompañados de una carta con instrucciones precisas e irrevocables para la entrega de los pagares al adjudicatario en pago de sus envíos de materiales o trabajos ejecutados, contra la presentación por el Adjudicatario, según el caso, de los siguientes documentos:
+a) Por el despacho de materiales o equipos:
+1) Facturas comerciales debidamente juramentadas y firmadas:
+2) Juego completo de conocimiento de embarque;
+3) Póliza de Seguro contra todo riesgo; y
+4) Lista de empaque.
+b) Por trabajos de Ingeniería Civil y de colocación de la Red de Distribución: Cuenta mensual de trabajos ejecutados aprobada por el Ministerio.
+A este efecto al Adjudicatario someterá a la aprobación del Ministerio, el día 10 de cada mes, un informe detallado de los trabajos efectuados durante el curso del mes anterior con su respectivo valor.
+Del valor de cada factura por materiales o equipo y de cada cuenta aprobada por trabajos ejecutados, y hasta la extinción del pago inicial anticipado por $ 61,728.40, deberá rebajarse el 10% para determinar el saldo neto de cada partida a favor del Adjudicatario.
+El Banco Fideicomisario entregará al Adjudicatario un total en pagares lo más aproximado al importe neto a su favor de cada factura o cuenta aprobada, que en ningún caso podrá ser superior a este. Cualquier saldo a favor del Adjudicatario no cubierto por una entrega de pagares le será acreditado en cuenta por el Banco Fideicomisario para agregarlo al importe de los documentos que presente para la siguiente entrega de pagares.
+Cada entrega de pagares al Adjudicatario implica para el Gobierno la obligación irrevocable de pagar dichos pagares a la fecha de su vencimiento, cualesquiera sean las discrepancias que pudieran surgir entre las dos partes durante la ejecución del presente contrato. En efecto la buena ejecución de las obligaciones suscritas por el Adjudicatario está respaldada por la garantía estipulada en el articulo 3º más adelante y toda falta del Adjudicatario en el cumplimiento de sus obligaciones no puede ser sancionada por el Gobierno sino actuando sobre la garantía antes mencionada con exclusión de toda retención sobre el monto de los pagares a la fecha del vencimiento, pues estos constituyen compromisos irrevocables de pago.
+2) Garantía:
+La firma Adjudicataria rendirá a través de uno de los Bancos del país una garantía bancaria par la suma que el Gobierno de Costa Rica le adelante al firmarse el contrato, v otra por la suma de $ 86,684.10, al recibir dicho pago el 15 de enero de 1957. La mitad de estas garantías podrá ser retirada cuando el Ministerio reciba provisionalmente las instalaciones y la otra mitad a la recepción definitiva de las obras, según la norma de recibo que se establece más adelante (artículo 12).
+4) Vigencia del Contrato y Plazo de Entrega:
+Los trabajos se iniciaran a mas tardar 15 días después de la fecha de vigencia de la Ley que apruebe el presente contrato, pero después de haber recibido el pago inicial y el depósito de los pagares establecidos en el artículo 2º, caso de que este pago y depósito de pagares se atrasen en más de 15 días, el tiempo de vigencia de este contrato comenzará a contarse a partir del día que se haga el depósito. La obra deberá quedar debidamente terminada 18 (dieciocho) meses después de iniciados los trabajos y únicamente se ampliara el plazo por causas aceptadas por el Ministerio; una vez comenzada la obra, no habrá solución de continuidad.
+5) Responsabilidad por Daños:
+Cualquier daño que se produjere en las personas o en las cosas con motivo de la ejecución de los trabajos, correrá por cuenta del Adjudicatario. El Adjudicatario y no el Ministerio será responsable de los riesgos profesionales de los trabajadores empleados en la obra, para lo cual queda obligada a asegurar el personal y comunicar al Ministerio la obtención de la póliza y el número de ella. Corresponde asimismo al Adjudicatario el pago de la cuota patronal del Seguro Social y asumir las prestaciones y obligaciones del Código de Trabajo actualmente en vigencia y las que en el futuro se establezcan. Para todos los efectos el Adjudicatario asume en forma amplia y general las obligaciones del patrono. Asimismo el Adjudicatario se obliga a hacer todas sus reclamaciones por la vía ordinaria sin recurrir a la vía diplomática.
+6) Ejecución:
+El Adjudicatario acepta de hecho y de derecho íntegramente todas y cada una de las condiciones de la licitación, quedando obligado a ajustarse en un todo a los planos, detalles y especificaciones técnicas que formaron las bases de la licitación. Se compromete a acatar las indicaciones que reciba del Ingeniero Inspector o de los Ingenieros Inspectores, quienes resolverán cualquier duda en la interpretación de los planos. Las objeciones que se hagan serán por escrito.
+7) Control de los Trabajos:
+Los Ministerios de Obras Públicas y Salubridad Pública nombraran uno o más Inspectores que tendrán como función la de aprobar o improbar la calidad de los materiales y el trabajo realizado, decidir cualquier duda en la interpretación de los planos y especificaciones y vigilar por que el trabajo se desarrolle como se indica; una vez aprobado el trabajo podrán ordenar modificaciones; si consideran que hubo error de su parte. Están autorizados para inspeccionar libremente los trabajos y los materiales en su calidad y almacenamiento. Si encontraran que el trabajo está mal hecho o los materiales no responden a lo estipulado, podrán paralizar los trabajos hasta tanto no se arregle la situación que motivo la protesta. Cualquier trabajo que quede con defectos, debido a los materiales, a descuido o deficiencia en la mano de obra, deberá ser repuesto inmediatamente. El hecho de que los Inspectores no hayan comprobado la mala calidad de los materiales antes de ser usados no releva al Adjudicatario de la obligación de reponerlos. Cualquier parte de la estructura que no esté de acuerdo con los planos elaborados para la obra será considerada como trabajo defectuoso también. Las objeciones de los Inspectores se harán por escrito. Una vez corregidos los defectos apuntados por los Inspectores el Adjudicatario lo notificara por escrito al Ministerio y si dentro de los 15 días siguientes a esta notificación el Ministerio no hace objeción a los arreglos, estos se consideraran como debidamente corregidos.
+8) Recepción de los Equipos y Materiales en las Fábricas:
+Con quince días de anticipación a cada despacho de materiales y/o equipos, el Adjudicatario notificara al Ministerio para que este, si lo estima conveniente, efectúe una recepción de conformidad en fabrica, extendiendo el certificado correspondiente al Adjudicatario para su presentación al Banco Fideicomisario. De no efectuarse tal recepción dentro de los quince días de haber sido notificado el Ministerio, los documentos de expedición reemplazaran el certificado de recibido conforme en fábrica. De todas maneras, el recibo de los materiales y/o equipos en fabrica no disminuye la responsabilidad del Adjudicatario de entregar tanto los materiales coma el equipo en perfecto estado de funcionamiento como lo especifica el artículo 11 de este contrato.
+9) Casos de Fuerza Mayor:
+Queda convenido entre las dos partes contratantes que se consideran como casos de fuerza mayor : el incendio, la huelga, los "lock-out", las inundaciones, los motines, el sabotaje, los disturbios civiles y las acciones de un Gobierno cualquiera, sin excepción, de orden económico, técnico o monetario, afectando la fabricación, la expedición, la exportación, la importación de todo equipo, material o materiales directa o indirectamente a la ejecución de las obras objeto del presente contrato y toda otra causa generalmente reconocida; la enumeración que procede no es limitativa sino simplemente indicativa.
+En caso de que intervenga un caso de fuerza mayor que impida al Adjudicatario o a sus subcontratistas de continuar normalmente la ejecución de los aprovisionamientos o trabajos, el Adjudicatario informará inmediatamente al Ministerio por escrito. Si el Ministerio no presenta objeciones escritas durante el mes que sigue a la fecha del aviso del Adjudicatario, se considerara que acepta el caso de fuerza mayor. Toda discusión eventual que pueda surgir a propósito de la apreciación de un caso de fuerza mayor no expresamente mencionado en la lista indicativa anterior, será sometida a la jurisdicción de árbitros conforme a los términos del artículo 10 más adelante.
+10) Arbitraje:
+Todos los litigios o dudas que puedan ocurrir durante la ejecución del presente contrato y que no puedan ser resueltas amigablemente, se someterán al procedimiento del arbitraje.
+El comité de arbitraje será constituido por tres árbitros, dos de los cuales serán designados para cada una de las partes respectivamente y el tercero por los dos árbitros de las partes.
+El tercer árbitro será de oficio el Presidente y en caso de que los dos árbitros de las partes no puedan ponerse de acuerdo sobre la designación del tercer árbitro, este ultimo será designado por la Agenda Suiza de la Cámara de Comercio Internacional de Berna a petición de una de las partes contratantes.
+Si una de las partes contratantes avisa a la otra de la existencia de un litigio de una duda y designa para su reglamento un árbitro, la otra parte dispondrá de un mes de plazo para designar su propio arbitro; si no, este segundo arbitro será designado, a solicitud de la primera parte, por la Agencia Suiza de la Cámara Internacional de Comercio de Berna. Los árbitros decidirán "ex aequo et bono" a la mayoría de votos y la decisión compromete las dos partes en último caso.
+El mandato de los árbitros durara el tiempo necesario para llegar a una decisión. Los árbitros tomaran una decisión lo antes posible y a mas tardar tres meses después de su designación. La decisión será ejecutoria para toda jurisdicción competente.
+Los árbitros incluirán en su decisión un veredicto en cuanto a las obligaciones de las partes en lo que se refiere al costa del arbitraje.
+11) Recepción Provisional y Definitiva de las Instalaciones - Periodo de Pruebas:
+Una vez realizados el montaje de la estación y la colocación de los elementos de la red de distribución, el Adjudicatario procederá a las pruebas de funcionamiento y a la puesta en servicio. En cuanto no mas las instalaciones funcionen de manera satisfactoria y que los resultados garantizados sean obtenidos, el Ministerio entregara al Adjudicatario un certificado de recepción provisional de las instalaciones. Este ultimo dirigirá a este efecto al Ministerio una petición escrita y si dentro del término de un mes que sigue a la fecha de esta petición escrita, el Ministerio no entregara el certificado en cuestión, sin someter al Adjudicatario las razones por las cuales rehúsa dicho certificado, las instalaciones serán consideradas coma entregadas al Ministerio en estado de funcionamiento y la recepción provisional se considerara como adquirida desde la fecha de la notificación escrita del Adjudicatario. El Ministerio acordará desembargo de la mitad de la garantía prevista en el artículo 3º anterior.
+El Adjudicatario garantiza el buen funcionamiento de las instalaciones durante un periodo de prueba de seis meses después de la fecha de recepción provisional. Se compromete en consecuencia a reemplazar por su cuenta todo equipo o material de mala calidad que presente vicio de construcción o de fabricación, a exclusión de todo lo debido a desgaste normal. La responsabilidad del Adjudicatario se limitará al reemplazo de las piezas reconocidas como defectuosas.
+Durante el período de pruebas, el Ministerio está en la obligación de hacer funcionar las instalaciones en forma conveniente, y de no efectuar ninguna modificación sin el consentimiento del Adjudicatario. A la expiración del periodo de pruebas, el Ministerio entregara al Adjudicatario un certificado de recepción definitiva de las instalaciones.
+12). Derechos de Aduana - Impuestos y Tasas de Costa Rica:
+Queda convenido que el Adjudicatario no pagara ningún derecho de aduana sobre las importaciones a Costa Rica de los equipos o materiales, ninguna tasa ni impuesto directo o indirecto a excepción de las tasas sobre los salarios del personal que utilizara en la ejecución de los trabajos.
+En consecuencia, todos los derechos de aduana, impuestos o contribución que el Adjudicatario fuese obligado a pagar en Costa Rica, le serán inmediatamente devueltos por el Gobierno
+13) Elección de Domicilio:
+El Ministerio elige como domicilio en Francia la Sede de la Legación de Costa Rica en Paris.
+El Adjudicatario elige su domicilio en Costa Rica en las oficinas de don Rodrigo Gómez Cordero, Apartado 1889, San José, Costa Rica.
+Los escritos entregados en las direcciones mencionadas se considerarán como debidamente recibidos par cada una de las partes.
+Aprobamos y firmamos en el Ministerio de Obras Públicas a los días del mes de julio de mil novecientos cincuenta y seis.
+Apruébese el anterior contrato:
+JOSE FIGUERES. —El Ministro de Economía y Hacienda, con el re-cargo del Despacho de Obras Públicas, —Jorge Rossi.
+Contratista
+Vº Bº, Contralor General de la Republica.
