@@ -1,0 +1,6 @@
+DECRETO XLVI.
+El Poder Ejecutivo reglamenta el ramo de correos.(1)
+(1) Refundido en el nuevo Reglamento de Hacienda de 31 de Julio de 1858.
+"El Jefe Supremo Provisorio del Estado de Costa Rica.
+Considerando que en gran parte de las alteraciones introducidas en lo respectivo a Correos por el Reglamento de Hacienda decretado en 10 de diciembre de 1839, son en extremo perjudiciales al público y al erario, como orijinadas de la mira de aislar al Estado y de dificultar las comunicaciones con el exterior: que otras lo son igualmente a los particulares por la falta de previsión con que fueron dictadas prescribiendo la destrucción inmediata de las correspondencias que no se sacasen con prontitud de las Estafetas, y el decomiso y subasta de las encomiendas en iguales casos: que tanto el buen servicio público, como la armonía que es conveniente observar en los otros Estados de Centro América, demandan un pronto remedio en aquellos males, conciliándolo de manera que tan útil establecimiento corresponda a su objeto sin detrimento del erario; ha tenido a bien decretar y decreta:
+Art. 1°. -La renta de Correos continuar bajo las órdenes de la Administración Principal en la parte económica sin perjuicio de la inspección y autoridad que compete al ministerio de gobernación.

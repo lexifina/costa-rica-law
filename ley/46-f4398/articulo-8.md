@@ -1,0 +1,1 @@
+Art. 8°.-Las cartas, o impresos que por equivocación dirijan de otras Estafetas, se remitir n a su respectivo destino anotando en la partida de data que produzcan, el lugar de su procedencia, Estafeta a que se remiten, e igualmente su valor.
