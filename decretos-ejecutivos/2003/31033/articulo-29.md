@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la amnistía tributaria
+Artículo 29.—Amnistía tributaria. Conforme al artículo 9 de la Ley de Contingencia Fiscal, los sujetos pasivos de impuestos administrados por la Dirección General de Tributación, podrán cancelar, a partir del 27 de diciembre de 2002 y hasta el 30 de abril de 2003, con exoneración total de intereses y sanciones, las deudas que se detallan en dicho artículo, correspondientes a obligaciones tributarias devengadas antes del 30 de setiembre del 2002, y/o cuya declaración de autoliquidación, cuando así corresponda, debió haber sido presentada también en fecha anterior al 30 de setiembre del 2002. (Ver anexo).

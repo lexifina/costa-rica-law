@@ -1,0 +1,5 @@
+Artículo 23.—De la forma de aplicar el impuesto en el caso del instrumento financiero conocido como "cero cupón". El impuesto debe aplicarse sobre el rendimiento generado durante el período de vigencia de la Ley, según se indica:
+a) Emisiones captadas con anterioridad a la vigencia de la Ley.
+Al momento del reintegro del capital, se debe retener el cero coma ocho por ciento (0,8%) sobre el rendimiento por descuento pactado, atribuible al plazo de vigencia de la Ley, rendimiento que se calculará conforme a las fórmulas financieras usuales aplicadas por el sector financiero.
+b) Emisiones captadas durante la vigencia de la Ley.
+Al momento de realizar la captación, sobre el valor presente del descuento calculado conforme a las fórmulas financieras usuales aplicadas por el sector financiero, deberá aplicarse el cero coma ocho por ciento (0,8%), en adición al ocho por ciento (8%) del impuesto ordinario, de ser procedente. Para estos efectos, si el plazo de vencimiento de la emisión, es superior al de la vigencia de la Ley, deberán practicarse los ajustes correspondientes en las fórmulas financieras aplicables, a fin de no exceder los límites fijados por la Ley.

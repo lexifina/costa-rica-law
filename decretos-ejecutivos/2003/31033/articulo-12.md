@@ -1,0 +1,1 @@
+Artículo 12.—Autoliquidación, declaración y pago del impuesto selectivo de consumo a los cigarrillos. Este impuesto se autoliquidará, declarará y pagará, mediante el formulario D-106, en la forma acostumbrada, aplicando un cien por ciento (100%) a título del tributo durante el período de vigencia de la Ley.

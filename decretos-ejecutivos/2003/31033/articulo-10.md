@@ -1,0 +1,6 @@
+SECCIÓN III
+Del impuesto a las empresas de enlace
+de llamadas de apuestas electrónicas
+Artículo 10.—De la administración, fiscalización y cobro de este impuesto. Todo lo concerniente a este tributo, estará a cargo del Ministerio de Economía, Industria y Comercio, de conformidad con las normas reglamentarias que al efecto se emitan.
+Sin perjuicio de lo antes indicado, para efectos de integrar el registro de contribuyentes de este tributo, a que se refiere el último párrafo del artículo 18 de la Ley, el órgano competente del Ministerio de Economía Industria y Comercio enviará mensualmente a la Dirección General de Tributación, dentro de los primeros 5 días hábiles, un informe actualizado de las empresas inscritas en el Registro correspondiente, durante el mes inmediato anterior, que incluya la información básica de éstas, así como el monto y fecha de cancelación del canon correspondiente.
+La Dirección General de Tributación será el órgano responsable de aplicar, de conformidad con lo dispuesto en el Código de Normas y Procedimientos Tributarios, las eventuales sanciones que se deriven por el incumplimiento de lo dispuesto en el artículo 18 de la Ley y su respectivo Reglamento, Decreto Ejecutivo N° 30972-H-MEIC de 24 de enero del 2003, publicado en el Alcance N° 10 a La Gaceta N° 27 de 7 de febrero del 2003.

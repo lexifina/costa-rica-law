@@ -1,0 +1,1 @@
+Artículo 22.—De la aplicabilidad del impuesto a los rendimientos provenientes de operaciones financieras pactadas con anterioridad a la vigencia de la Ley. Los impuestos extraordinarios sobre los rendimientos del mercado financiero, deben ser aplicados indistintamente de la fecha en que se hayan pactado las operaciones financieras (captaciones) que los generan.

@@ -1,0 +1,1 @@
+Artículo 34.—De la aprobación o habilitación de formularios. La Dirección General de Tributación aprobará o habilitará los formularios para la aplicación de los impuestos administrados por esa Dependencia mediante resolución general.

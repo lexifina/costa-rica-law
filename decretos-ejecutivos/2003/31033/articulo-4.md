@@ -1,0 +1,1 @@
+Artículo 4º—De la presentación de los estados financieros. Los estados de situación a que se refiere el citado artículo 15 de la Ley, deberán ser presentados únicamente a requerimiento de la Administración Tributaria, por lo que no deberán adjuntarse a la declaración del impuesto.

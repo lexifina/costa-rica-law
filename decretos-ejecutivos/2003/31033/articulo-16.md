@@ -1,0 +1,1 @@
+Artículo 16.—Aplicación supletoria de la Ley del Impuesto sobre la Renta y su Reglamento. Para lo no previsto en el presente Decreto, en relación con este impuesto, serán de aplicación supletoria las disposiciones contenidas en la Ley N° 7092 de 21 de abril de 1988 y sus reformas, así como su Reglamento, Decreto Ejecutivo N° 18445-H del 9 de setiembre de 1988 y sus reformas.
