@@ -1,0 +1,1 @@
+Artículo 2º—La administración del Refugio aquí declarado le corresponde al Ministerio del Ambiente y Energía, y en él regirán las disposiciones establecidas para esta categoría de área silvestre protegida en la legislación Nacional.
