@@ -1,0 +1,2 @@
+Artículo 13.—El arrendatario que dentro de los primeros meses contados desde la celebración del contrato no hubiere cerrado en debida forma el lote que le haya sido adjudicado y que no hubiere emprendido el cultivo del mismo, perderá su derecho además de pagar una multa de veinte colones ((20-00) cuya garantía será la fianza de que habla el artículo 89 de esta ley. Queda la Municipalidad en el derecho de arrendar el lote así recobrado a quien reuniendo los requisitos aquí establecidos, lo solicite.
+(Así adicionado por el artículo 1° de la ley N° 9 del 23 de octubre de 1918)
