@@ -1,0 +1,3 @@
+ANEXO 2
+Relación de Puestos de Sueldos para cargos fijos, para los Centros Educativos del Ministerio de Educación Pública, por Programas y Direcciones Regionales de Enseñanza, para el Ejercicio Económico del 2002 (...)
+(Por lo extenso de su contenido, véase el Alcance No.89 a La Gaceta No.249 de 28 de diciembre del 2001)
