@@ -1,0 +1,2 @@
+XVIII.
+Los deudores tienen el derecho de liberarse por pago anticipado de parte ó del todo de su deuda. Los reembolsos anticipados se harán, á elección del deudor, sea en dinero, ó en obligaciones hipotecarias á la par, cualquiera que sea su cambio corriente. El reembolso anticipado, sea que tenga lugar de la manera prescrita en el presente artículo, ó á consecuencia de falta de pago, da lugar á una indemnización de 2% sobre la suma reembolsada.

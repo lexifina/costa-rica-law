@@ -1,0 +1,5 @@
+XXIV.
+Los Estatutos del Banco han de ser aprobados por el Poder Ejecutivo.
+El Presente contrato queda exento del derecho de timbre.
+En fe de todo lo anterior, firman este contrato en la ciudad de San José, en el Palacio Nacional, á los treinta días del mes de mayo de mil ochocientos ochenta y siete. -MAURO FERNÁNDEZ. TEODOSIO CASTRO. Palacio Presidencial, San José, junio tres de mil ochocientos ochenta y siete. Aprobado.-SOTO. El Secretario de Estado en el despacho de Hacienda y Comercio, FERNÁNDEZ.-Es conforme.-Palacio Nacional.- San José, 7 de junio de 1887.-(L. S.)-FERNÁNDEZ.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintisiete días del mes de julio de mil ochocientos ochenta y siete.-A. ESQUIVEL, Presidente.-MAXIMO FERNÁN DEZ, Secretario.-MANUEL J. JIMÉNEZ, Prosecretario. Palacio Presidencial.-San José, á veintisiete de julio de mil ochocientos ochenta y siete.-Ejecútese. A. DE JESÚS SOTO.-El Secretario de Estado en el despacho de Hacienda y Comercio, MAURO FERNÁNDEZ.

@@ -1,0 +1,2 @@
+XIX.
+En caso de que los bienes hipotecados no se vendan por falta de comprador, ó cuando tales bienes no produzcan lo bastante para cancelar totalmente la denda, el Banco puede ampliar la ejecución en otros bienes del deudor. En este caso se procederá, previo embargo y sin más trámites, al avalúo y venta de tales bienes, según la ley citada de 19 de mayo de 1885, ó de la que se halle en vigor si la prefiere el Banco.

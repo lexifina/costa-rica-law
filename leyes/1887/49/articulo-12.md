@@ -1,0 +1,2 @@
+XII.
+Las expresadas obligaciones hipotecarias producen el interés de 8% anual, y se amortizan á su vencimiento las que son á plazo fijo, y las que deben sortearse por anualidades, hasta donde alcance la cantidad destinada á tal objeto, una vez cubiertos los intereses de las cédulas en circulación. El valor de las obligaciones sorteadas ó vencidas, los intereses devengados sobre las mismas, y la prima que les corresponda, sólo deberán pagarse al portador de ellas. Dichas obligaciones serán canceladas y destruidas con todas las formalidades que prevengan los Estatutos.
