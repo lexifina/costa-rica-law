@@ -1,0 +1,3 @@
+Artículo XVII.—De la garantía, inembargabilidad y exención de impuestos: Las cuentas de ahorro contractual hasta por un monto de ¢600.000,00 (seiscientos mil colones exactos), son inembargables, salvo en los casos de obligaciones alimenticias judicialmente impuestas y de cobros por créditos otorgados por la Mutual (Artículo 95 de la Ley 7052 y sus reformas).
+El Banco Hipotecario de la Vivienda podrá variar este límite cuando lo estime conveniente para el mejor éxito del sistema. Dichas cuentas tienen carácter confidencial.
+Los depósitos realizados en la Cuenta Multiahorros y sus respectivos intereses están exentos del pago de toda clase de impuestos conforme a la Ley del Sistema Financiero Nacional para la Vivienda.

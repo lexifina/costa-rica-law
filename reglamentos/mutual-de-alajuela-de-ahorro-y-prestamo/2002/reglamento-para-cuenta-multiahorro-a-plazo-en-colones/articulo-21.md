@@ -1,0 +1,2 @@
+Artículo XXI.—Vigencia y derogatoria. Este reglamento podrá ser modificado total o parcialmente en cualquier momento y conforme a la Ley y Reglamentos del Sistema Financiero Nacional para la Vivienda. Las presentes normas rigen a partir de su publicación en el Diario Oficial y derogan cualquier otro reglamento o disposición aprobado por la Mutual que se le oponga.
+Aprobado en sesión extraordinaria 62-02, artículo II, celebrada el día 17 de diciembre del 2002.

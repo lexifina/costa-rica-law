@@ -1,0 +1,1 @@
+Artículo XI: Prórroga del Contrato: En caso de que el cliente al finalizar el plazo del contrato decida renovarlo por un plazo mayor, se ajustará la tasa de interés por la sumatoria de ambos plazos, de ahí en adelante.

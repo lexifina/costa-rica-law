@@ -1,0 +1,1 @@
+Artículo VI: Monto mínimo de la apertura: El monto mínimo para la apertura de las Cuentas Multiahorros será por la suma pactada en el primer depósito, en ningún caso podrá ser menor a ¢ 3.000 (tres mil colones).
