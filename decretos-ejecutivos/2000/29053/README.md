@@ -14,3 +14,4 @@ Reglamento de Becas del Consejo de Seguridad Vial.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-08 | la propia norma |
+| 2 | 2003-05-20 | Decreto Ejecutivo 31197 (2003-05-20) |
