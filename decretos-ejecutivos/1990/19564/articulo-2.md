@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-La asociación es la responsable de Registrar los animales de la Raza de Caballo Costarricense de Paso, así como de aquellas especies y razas de ganado que el Ministerio de Agricultura y Ganadería, por medio de la Dirección General de Salud y Producción Pecuaria, le autorice.

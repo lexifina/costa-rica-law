@@ -1,0 +1,1 @@
+ARTÍCULO 25.-Es responsabilidad del vendedor acompañar con toda solicitud de traspaso, la constancia de registro, la fórmula firmada por él o por persona autorizada, y cualquier información que se considere necesaria para la aprobación del mismo.

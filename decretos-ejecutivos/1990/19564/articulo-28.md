@@ -1,0 +1,1 @@
+ARTÍCULO 28.-En toda solicitud de inscripción, traspaso, certificado de servicio de semental, de muerte o cualquier otra certificación, información o constancia, que se presente al registro, el firmante asume la responsabilidad legal respecto a la veracidad de los datos suministrados en dichos documentos.

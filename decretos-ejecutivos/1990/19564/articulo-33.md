@@ -1,0 +1,1 @@
+ARTÍCULO 33.-Todo lo concerniente al Registro, la interpretación de este Reglamento, y lo no estipulado en él, será resuelto por el Comité‚ mediante un simple acuerdo y sus resoluciones deber n ser notificadas a los usuarios, previa autorización del MAG.

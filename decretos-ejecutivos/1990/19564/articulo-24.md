@@ -1,0 +1,1 @@
+ARTÍCULO 24.-El Registro aprobar e inscribir todos los traspasos de propiedad de animales que presenten sus propietarios, siempre que se acompañe toda la documentación necesaria, y la constancia de registro.

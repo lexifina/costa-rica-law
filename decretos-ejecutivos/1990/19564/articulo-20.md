@@ -1,0 +1,1 @@
+ARTÍCULO 20.-En el caso a que se refiere el artículo anterior cuando fueren animales que están en dichos artículo correspondiente o factura de compra de semen con los datos pedidos en dicho artículo, y en caso de omitir esa obligación, tendrá la sanción que estipula el artículo 31 de este Reglamento.

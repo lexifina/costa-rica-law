@@ -1,0 +1,4 @@
+CAPITULO III
+Requisitos y procedimientos de registro
+ARTÍCULO 10°.-A solicitud de los interesados podrán inscribirse los nombres de sus fincas, haciendas o hatos.
+Estas denominaciones inscritas, podrán única y exclusivamente ser usadas por la persona que las hubiere inscrito y podrán formar parte del nombre de los animales nacidos en estas hatos, fincas o haciendas. Asimismo deber n inscribirse letras, abreviaturas u otros signos que se usar n exclusivamente para la identificación de los animales conforme con la legislación vigente. Ningún animal ser inscrito en los asientos de los Registros con el mismo nombre de otro ya registrado o cuya solicitud de inscripción hubiese sido presentada con anterioridad. Asimismo, no podrán ser registrados los nombres muy similares, permitiéndose no obstante, la repetición parcial del nombre de los animales en casos de consanguinidad directa, paterna o materna y distinguiéndose estos por sus números e iniciales de hato o finca.

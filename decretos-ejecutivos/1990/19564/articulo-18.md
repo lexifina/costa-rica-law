@@ -1,0 +1,1 @@
+ARTÍCULO 18.-En el caso de apelación por parte del criador afectado por rechazo que se realiza sobre alguno de sus animales, el Comité‚ dispondrá de treinta días hábiles a partir de recibida la apelación para resolver sobre la misma, en caso contrario el semoviente se dará por aceptado, que extrajo los embriones y del que realizó su trasplante. Los anteriores deberán acompañarse.

@@ -1,0 +1,1 @@
+ARTÍCULO 14.-El dueño de la reproductora ser el responsable de los hatos que se incluyan en la solicitud de registro o en cualquier otro documento exigido por el mismo, y se hará acreedor a las sanciones que establece este Reglamento en el caso de alteración o falsedad de los datos incluidos en los mismos.

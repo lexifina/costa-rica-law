@@ -1,0 +1,1 @@
+ARTÍCULO 21.-Toda solicitud de registro deber estar acompañada por el certificado de servicio del semental correspondiente o factura de compra de semen o de embrión salvo que concurra en el solicitante, ser el dueño del reproductor, la reproducción y la cría.
