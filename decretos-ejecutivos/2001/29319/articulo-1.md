@@ -11,3 +11,4 @@ Considerando:
 6º—Que por lo anterior, resulta necesario modificar el límite de gasto fijado a dicho ente en el Decreto citado. Por tanto,
 Decretan:
 Artículo 1º—Modifícase el límite presupuestario y de gasto efectivo establecido en el artículo 1° del Decreto Ejecutivo N° 28639-H al Fondo de Parques Nacionales, fijándolo en ¢1.455.5 millones.
+(Así modificado el límite presupuestario y de gasto efectivo del 2001, para el Fondo de Parques Nacionales, por el artículo 1 del Decreto Ejecutivo N° 29953 de 1 de noviembre del 2001)

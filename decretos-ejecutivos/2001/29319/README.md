@@ -14,3 +14,4 @@ Modifica límite gasto presupuestario y efectivo al Fondo de Parques Nacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-27 | la propia norma |
+| 2 | 2001-11-01 | Decreto Ejecutivo 29953 (2001-11-01) |
