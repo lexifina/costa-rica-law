@@ -15,3 +15,4 @@ Reglamento para la operación de entidades comercializadoras de seguros
 | --- | --- | --- |
 | 1 | 1996-02-01 | la propia norma |
 | 2 | 1997-11-17 | Reglamento 8157 (1997-11-17) |
+| 3 | 1998-06-01 | Reglamento 8189 (1998-06-01) |
