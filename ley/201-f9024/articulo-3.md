@@ -1,0 +1,1 @@
+3°.- De los productos de las rentas ó fondos correspondientes al convento de San Francisco de la ciudad de Cartago, se formará una sola masa, la que á juicio de la Jefatura Política Superior, se distribuirá por ahora en dotar escuelas de primeras letras en los pueblos que por sí mismo no las puedan tener.
