@@ -2,7 +2,8 @@ TITULO II
 PROTOCOLOS
 CAPITULO I
 Disposiciones Generales
-Artículo 29.-Los protocolos serán libros de cien hojas de papel sellado de la décima clase, numerados de uno a cien. El proveedor de especies fiscales proveerá tales libros a los Notarios, mediante el pago correspondiente.
+Artículo 29.- Los protocolos serán libros de cien hojas de papel de oficio numerados de uno a cien. El proveedor de especies fiscales suministrará tales libros a los notarios, mediante el pago correspondiente.
+(Así reformado el párrafo anterior por el artículo 49 de la ley N° 6955 del 24 de febrero de 1984 “Ley para el Equilibrio Financiero del Sector Público”)
 Habrá protocolos encuadernados y protocolos de hojas sueltas. Los protocolos de hojas sueltas estarán sujetos a las siguientes prescripciones:
 a) Las hojas llevarán impresa la palabra Protocolo y la numeración de uno a cien a que se refiere el párrafo primero de esteartículo. Además llevarán impresa la serie y numeración adecuada, semejante al sistema establecido para la emisión y control del papel sellado en general. Las hojas sueltas de un protocolo no encuadernado, siempre que no sean la totalidad del mismo, sujetas a la reposición, podrán ser hojas corrientes de papel sellado de la décima clase;
 b) Serán sellados por la Secretaría de la Corte Suprema de Justicia al ponerles la razón inicial correspondiente y llevarán indicación de pertenecer al Notario que se indique. La Corte Suprema de Justicia podrá tomar cualesquiera otras medidas para la identificación de los protocolos de cada Notario, y para garantizar la autenticidad de las hojas;
