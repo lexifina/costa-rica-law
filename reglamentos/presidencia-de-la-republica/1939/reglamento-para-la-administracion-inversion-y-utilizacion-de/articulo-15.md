@@ -1,0 +1,1 @@
+Artículo 15.—La contabilidad deberá llevarse de acuerdo con las prescripciones legales del país y en la forma que determine la técnica, y consistirá de tantos libros principales auxiliares, registros y archivos, como sea necesario para determinar exactamente y en cualquier tiempo la situación financiera del Fondo y el estado individual de cada uno de los empleados interesados.

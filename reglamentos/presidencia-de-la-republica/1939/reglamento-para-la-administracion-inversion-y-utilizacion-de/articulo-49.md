@@ -1,0 +1,1 @@
+Artículo 49.—Las pruebas de que habla el artículo anterior no serán exigidas después de que el pensionado haya alcanzado la edad da 60 años. De esta edad en adelante la pensión de invalidez es de carácter vitalicio.

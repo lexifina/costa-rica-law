@@ -1,0 +1,1 @@
+Artículo 44.—Quedan excluídos del plan de pensiones por invalidez los funcionarios y empleados que tengan más de 55 años de edad (50 años las mujeres) al tiempo de entrar en vigencia el plan o al ingresar al servicio del Banco

@@ -1,0 +1,1 @@
+Artículo 33.—Cualquier miembro del Fondo podrá, con acuerdo de la Junta Administrativa, adelantar de uno a diez años, o retardar de uno a cinco la fecha de la jubilación, recibiendo, como es natural, una pensión reducida en el primer caso y aumentada en el segundo.

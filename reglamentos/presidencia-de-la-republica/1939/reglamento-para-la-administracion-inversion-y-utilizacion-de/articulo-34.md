@@ -1,0 +1,1 @@
+Artículo 34.—En caso de morir un miembro del Fondo antes de ser jubilado, sus herederos tendrán derecho a recibir la totalidad del fondo a su haber, deducción hecha de cualesquiera sumas que por préstamos vigentes o por cualesquiera otros conceptos fuera en deber al Fondo.

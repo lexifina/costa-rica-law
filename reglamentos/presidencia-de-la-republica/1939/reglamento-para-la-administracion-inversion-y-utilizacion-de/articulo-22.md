@@ -1,0 +1,2 @@
+Artículo 22.—Para los efectos de lo dispuesto en los artículos anteriores, así como también de todo problema técnico derivado de la constitución, organización y operación del Fondo, la Junta Administrativa estará facultada para contratar los servicios de un Actuario de reconocida competencia, cuyos servicios serán sufragados por el Banco.
+El Actuario procederá como consejero técnico de la Junta, cuando ésta considere conveniente asesorarse de él, y sus recomendaciones y estudios deberán constar por escrito.

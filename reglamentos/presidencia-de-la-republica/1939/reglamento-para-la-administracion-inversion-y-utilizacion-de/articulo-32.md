@@ -1,0 +1,2 @@
+Artículo 32.—El miembro que vaya a jubilarse deberá escoger uno cualquiera de los tres planes de pensión que se le ofrece, y manifestarlo por escrito a la Junta Administrativa dentro del mes anterior a su jubilación, acompañando documento probatorio de su edad y también, en el caso de pensión de supervivencia, de la persona que vaya a beneficiarse con la pensión conjunta.
+Una vez escogido el plan de pensión no podrá variarse por ningún motivo.

@@ -1,0 +1,1 @@
+Artículo 43.—El miembro debe gozar de buena salud al entrar en vigencia este Reglamento o al ingresar al servicio del Banco en caso de empleados nuevos, y al efecto hará una declaración en tal sentido ante la Junta Administrativa.

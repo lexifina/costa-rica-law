@@ -1,0 +1,1 @@
+Artículo 19.—Los intereses que se obtengan de la inversión de los haberes del Fondo especificados en el artículo anterior serán prorrateados entre ellos de acuerdo con la fórmula matemática I=i/2 (2A+X).

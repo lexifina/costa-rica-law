@@ -1,0 +1,1 @@
+Artículo 47.—La pensión por invalidez se pagará de un fondo constituído por las cuotas que se deducirán anualmente del haber de cada funcionario y empleado en servicio activo. Estas deducciones cesarán al cumplir 60 años de edad, cesando también a esa edad el beneficio de invalidez. Las deducciones hechas por concepto de prima de invalidez no serán reembolsables en ningún caso.

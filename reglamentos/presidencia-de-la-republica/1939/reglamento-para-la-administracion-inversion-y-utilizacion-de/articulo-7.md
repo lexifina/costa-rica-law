@@ -1,0 +1,1 @@
+Artículo 7°—Desempeñará las funciones de Presidente de la Junta Administrativa del Fondo el Gerente General o el Sub-Gerente que temporalmente lo supla. Y las de Secretario y de Tesorero aquellos miembros de la Junta Administrativa que ésta designe anualmente.

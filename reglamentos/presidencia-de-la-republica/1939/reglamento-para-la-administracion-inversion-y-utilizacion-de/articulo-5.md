@@ -1,0 +1,3 @@
+Administración del Fondo
+Artículo 5°—La administración interna del Fondo estará a cargo—bajo la supervigilancia de la Junta Directiva General del Banco—, de una Junta Administrativa compuesta por el Gerente General del Banco o uno de los Subgerentes, por dos delegados de la Junta Directiva General, designados por ella anualmente junto con sus respectivos suplentes, y por dos delegados del cuerpo de empleados del Banco, elegidos anualmente por ellos, junto con sus respectivos suplentes.
+La representación legal, judicial y extrajudicial, la tendrán el Gerente General o en su defecto los Sub-Gerentes del Banco, considerándose para ese efecto el Fondo como una dependencia del mismo Banco.

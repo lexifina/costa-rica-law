@@ -1,0 +1,1 @@
+Artículo 50.—Las cuotas a deducir por concepto de beneficio de invalidez serán calculadas de acuerdo con la edad y el sueldo de cada funcionario y empleado al ingresar como miembros del Fondo. Tales cuotas serán ajustadas en igual forma al obtener cualquiera de ellos un aumento de sueldo. Las cuotas, de las mujeres serán el 150 % de las cotizadas para los hombres

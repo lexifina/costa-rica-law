@@ -1,0 +1,4 @@
+Artículo 18.—La contabilidad del Fondo deberá llevarse en forma que determine con claridad y exactitud la situación de las siguientes tres cuentas separadas:
+a) Fondo de acumulación de los haberes de los funcionarios y empleados que sean miembros del Fondo en el servicio activo del Banco, debidamente individualizados.
+b) Fondo de acumulación de las cuotas para pensión de invalidez, al cual se debitará la parte de los pagos a cuenta de invalidez que corresponda a este fondo.
+c) Fondo para pensiones de los empleados jubilados por edad avanzada e invalidez, al cual se traspasará el que exista al haber del miembro que se jubile, sea por edad avanzada, sea por invalidez. Si un miembro inválido se recupera y vuelve al servicio activo del Banco el saldo de la reserva correspondiente a la parte de la pensión que se adquirió con su fondo será traspasado nuevamente al fondo indicado en el inciso a) de este artículo.

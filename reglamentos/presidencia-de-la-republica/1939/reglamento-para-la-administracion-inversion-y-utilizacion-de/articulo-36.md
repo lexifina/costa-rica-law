@@ -1,0 +1,1 @@
+Artículo 36.—Para los efectos de este plan de jubilaciones cada miembro del Fondo deberá designar a su beneficiario. La designación o cambio de un beneficiario no será válida si no está debidamente registrada por la Junta Administrativa,

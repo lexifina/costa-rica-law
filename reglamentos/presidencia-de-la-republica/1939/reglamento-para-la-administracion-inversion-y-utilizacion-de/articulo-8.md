@@ -1,0 +1,1 @@
+Artículo 8°—La Junta Administrativa sesionará con cuatro de sus miembros, por lo menos, y sus acuerdos se tomarán por mayoría de los votos presentes. En caso de empate repetido por segunda vez, decidirá el Presidente en funciones, cuyo voto en tal caso se contará por dos.

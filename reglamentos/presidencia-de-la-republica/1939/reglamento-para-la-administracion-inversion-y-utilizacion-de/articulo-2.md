@@ -1,0 +1,1 @@
+Artículo 2°—Para los efectos resultantes de la constitución del Fondo y del sistema de garantías y jubilaciones a él inherentes, se considerará que su vigencia comenzó el día primero de enero de mil novecientos treinta y siete.

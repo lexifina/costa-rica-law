@@ -1,0 +1,1 @@
+Artículo 9°—El cargo de miembro de esta Junta Administrativa será honorífico, y por él no devengará nadie sueldo ni remuneración de ninguna especie. En casos de vacancia se elegirá reemplazante, por quien corresponda, únicamente por el tiempo que falte para terminar el período anual correspondiente.

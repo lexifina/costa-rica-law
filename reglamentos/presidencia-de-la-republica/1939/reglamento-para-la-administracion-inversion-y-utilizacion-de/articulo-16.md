@@ -1,0 +1,1 @@
+Artículo 16.—Semestralmente se practicará balance general de todas las cuentas del Fondo, de tal manera que muestre con toda claridad la situación del activo y pasivo, cuentas generales y particulares, y todo lo necesario para analizar la situación financiera del Fondo.

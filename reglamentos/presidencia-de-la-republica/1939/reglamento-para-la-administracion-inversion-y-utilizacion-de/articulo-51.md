@@ -1,0 +1,1 @@
+Artículo 51.—El pago de los beneficios de invalidez será diferido hasta que el fondo correspondiente haya alcanzado por lo menos la suma de diez mil colones, pero en ningún caso los beneficios que hayan vencido tendrán retroactividad.

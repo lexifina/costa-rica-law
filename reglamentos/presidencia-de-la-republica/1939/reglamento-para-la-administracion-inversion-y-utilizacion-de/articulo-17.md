@@ -1,0 +1,1 @@
+Artículo 17.—Se entregará a cada empleado una libreta numerada, personal e intransferible, con las indicaciones necesarias para individualizarlo, en la cual cada uno llevará el estado de su cuenta, anotado semestralmente por quien llevare la contabilidad del Fondo.

@@ -1,0 +1,1 @@
+Artículo 13.—La contabilidad del Fondo será llevada por empleados del Banco designados por el Gerente General, y de acuerdo con las disposiciones de la Junta Administrativa bajo la supervigilancia de la Auditoría e independientemente de la contabilidad general del Banco.

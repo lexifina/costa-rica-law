@@ -1,0 +1,1 @@
+Artículo 11.—La Junta Administrativa, con el voto uniforme de cuatro de sus miembros, por lo menos, podrá dictar los acuerdos que fueren necesarios para el mejor servicio de administración, inversión y utilización del Fondo, e igualmente podrá modificarlos, y derogarlos, siempre por acuerdo de no menos de cuatro de sus miembros.
