@@ -1,7 +1,9 @@
+(Derogado)
 Nº 28369-H-MICIT-MAG
 EL PRESIDENTE DE LA REPUBLICA Y LOS MINISTROS
 DE HACIENDA, CIENCIA Y TECNOLOGIA Y DE
 AGRICULTURA Y GANADERIA
+(DEROGADO, por el artículo 1° del Decreto Ejecutivo N° 29187 de 03 de noviembre de 2000).
 En ejercicio de las atribuciones establecidas en los incisos 3) y 18) de la Constitución Política, la Ley Nº 6106 del 7 de noviembre de 1977, Ley de Donaciones, la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública, la Ley Nº 7064 del 29 de abril de 1987, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería y la Ley Nº 7169 del 26 de junio de 1990, Ley de Promoción del Desarrollo Científico y Tecnológico.
 Considerando:
 1º—Que es deber del gobierno el cuidar y velar por el adecuado uso de los recursos que tenga el Estado costarricense.
