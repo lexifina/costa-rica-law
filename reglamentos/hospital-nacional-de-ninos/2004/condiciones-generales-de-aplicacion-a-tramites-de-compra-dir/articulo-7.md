@@ -1,0 +1,1 @@
+7º.—Brindar declaración jurada. Requisitos Legales (Artículo Nº 22 de la Ley de Contratación Administrativa y el Artículo Nº 6 de la Ley 3173). Deben contener las declaraciones juradas dispuestas en el Artículo 53.1 del Reglamento General de Contratación Administrativa. Con base en el artículo 85 de la Ley de Protección al Trabajador Nº 7983.

@@ -1,0 +1,4 @@
+ADMISIBILIDAD DE LA OFERTA.
+20. —Las ofertas admisibles son aquellas que cumplan legal, técnica y administrativamente.
+— Se advierte a los proveedores que la Institución se reserva el derecho de realizar adjudicaciones parciales por ítem, de conformidad con lo dispuesto en el último párrafo del Artículo 57.2 del Reglamento General de Contratación Administrativa, cuando sea factible la división de la compra. Sin embargo, al tenor de lo dispuesto por el artículo 49.4 del Reglamento, el proveedor está obligado a cotizar por la totalidad de las unidades solicitadas en el cartel por cada ítem.
+— En caso de existir dos o más ofertas que cumplan técnica, legal y administrativamente y que ofrezcan el mismo precio, la administración se reserva el derecho de adjudicar lo que corresponde a cada una por partes iguales.

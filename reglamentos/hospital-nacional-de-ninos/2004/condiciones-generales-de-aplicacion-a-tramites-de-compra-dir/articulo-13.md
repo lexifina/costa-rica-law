@@ -1,0 +1,1 @@
+13. —La oferta deberá ser entregada en la Secretaría del Departamento Recursos Materiales antes del día y la hora señalada en el Cartel para recepción de ofertas, en caso de recibirse después de la fecha y hora indicada en el cartel, la oferta es recibida pero adquiere carácter de extemporaneidad.

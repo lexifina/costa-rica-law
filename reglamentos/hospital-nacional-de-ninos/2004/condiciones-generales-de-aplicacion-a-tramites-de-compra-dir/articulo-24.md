@@ -1,0 +1,1 @@
+24. —Se comunica a los proveedores que deban rendir el depósito de garantías (participación o cumplimiento) mediante cheques certificados o de gerencia, depósito a plazo o en efectivo; se sirvan llenar el formulario que se adjuntará en cada cartel "Información complementaria sobre el recibo de garantías de partición y cumplimiento".

@@ -1,0 +1,1 @@
+22. —El depósito debe hacerse efectivo posterior a los 5 días hábiles contados a partir de la notificación de solicitud del depósito respectivo. (al sexto día) (Art. 35.1 R.G.C.A.), de no cumplirse con este periodo se procederá a la aplicación del Art. 32.2 del R.G.C.A. (insubsistencia).

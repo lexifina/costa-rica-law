@@ -1,0 +1,8 @@
+25. —La entrega de la Orden de Compra o Contrato se les notificará por escrito una vez que la misma se encuentra debidamente autorizada y refrendada por quien corresponda, una vez adquirido firmeza el acto de adjudicación respectivo.
+Para aquellos trámites que requieran de contrato para refrendo en la Dirección Jurídica de la Institución el Reglamento sobre refrendos de contratos para el sector público por parte de la Contraloría General de la República, Voto 5947-98 de la Sala Constitucional, indica que para que las contrataciones sean válidas, deben tener la autorización expresa de la Contraloría General de la República o de la Dirección Jurídica CCSS, según corresponda, para efectos de validez, así mismo y con fundamento en el Artículo 184 de la Constitución Política, si los contratos no son refrendados o aprobados por los entes anteriormente señalados no cobran validez.
+IMPORTANTE
+Según Oficio Nº 19876, del 03-09-91 de la Gerencia de División Médica, toda mercadería debe ser tramitada en facturas timbradas con el respectivo sello de Tributación Directa.
+El Hospital Nacional de Niños (CCSS) está exento del Impuesto General sobre Ventas y del Impuesto Selectivo de Consumo, con base en la Ley Nº 7293 del 31 de marzo de 1992.
+El presente procedimiento de Contratación se regirá por lo dispuesto en el Artículo 79.4 del Reglamento General de Contratación Administrativa.
+Los oferentes deben indicar el precio total que cotizan, si incluyen o no los impuestos. Si los incluyen deben indicarlo por separado, ya que el monto total de su oferta se analizará sin incluir los impuestos.
+San José, 16 de junio del 2004.—
