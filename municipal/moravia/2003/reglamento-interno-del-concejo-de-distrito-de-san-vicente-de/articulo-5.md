@@ -1,0 +1,1 @@
+Artículo 5º—El miembro suplente que sustituya a un propietario tendrá derecho a permanecer durante toda 1a sesión como miembro del Concejo de Distrito con voz y voto, siempre que la sustitución se hubiere efectuado después de los quince minutos a que se refiere el artículo dos y el propietario no se hubiese presentado.

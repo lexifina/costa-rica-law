@@ -1,0 +1,1 @@
+Artículo 15.—El secretario(a) del Concejo de Distrito llevará el control del tiempo en el uso de la palabra y cuando se haya vencido se lo hará saber al Presidente, quien sonando el timbre o campanilla; le indicará al exponente que el tiempo ha llegado a su fin.

@@ -1,0 +1,1 @@
+Articulo 12.—Todo miembro propietario o suplente en propiedad, presentará sus mociones y proposiciones por escrito. Se presentarán en forma clara y precisa, indicando el objetivo, fines y fundamentos de la misma.

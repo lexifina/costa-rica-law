@@ -1,0 +1,1 @@
+Artículo 20.—Presentada una moción de orden, se concederá el uso de la palabra en primer término al proponente y luego a los miembros que así lo soliciten, sin que pueda excederse de cinco minutos cada intervención.

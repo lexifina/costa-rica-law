@@ -1,0 +1,1 @@
+Artículo 21.—Al dar por discutido un asunto el Presidente del Concejo de Distrito, dará un término prudencial para recibir la votación correspondiente, procurando que esta se realice cuando todos los miembros estén ocupando sus lugares.

@@ -1,0 +1,1 @@
+Artículo 4º—El miembro propietario que llegare después de transcurridos quince minutos contados a partir de la hora señalada para iniciar la sesión, perderá el derecho de intervenir, aunque no se hubiere efectuado su sustitución, sin embargo, puede permanecer presente en la sesión, como ciudadano y sin derecho a voz ni voto.

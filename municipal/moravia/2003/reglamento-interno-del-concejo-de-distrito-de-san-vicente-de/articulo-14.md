@@ -1,0 +1,1 @@
+Artículo 14.—Todos los miembros del Concejo de Distrito tienen derecho al uso de la palabra, pero si se apartan del tema en discusión, repite o no hay aporte nuevo, el presidente podrá suspender el derecho a continuar con el uso de la palabra. Para solicitar el uso de la palabra bastará con levantar la mano en forma visible.

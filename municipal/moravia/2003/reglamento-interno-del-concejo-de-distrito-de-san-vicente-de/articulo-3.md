@@ -1,0 +1,1 @@
+Artículo 3º—Si en curso de una sesión se rompiera el quórum, el Presidente instará a los miembros que se hubieren retirado sin permiso, para que ocupen de nuevo sus lugares. Transcurridos diez minutos sin que se pueda restablecer el quórum, se levantará la sesión.

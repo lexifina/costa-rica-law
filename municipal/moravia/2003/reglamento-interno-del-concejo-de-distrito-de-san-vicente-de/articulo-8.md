@@ -1,0 +1,1 @@
+Artículo 8º—Antes de aprobar el acta, cualquier miembro propietario podrá plantear solicitud de revisión de acuerdos, salvo aquellos que hayan sido aprobados definitivamente conforme al Código Municipal. Para la admisión de la moción que plantea el recurso de revisión, debe contarse con la mayoría mínima que se requirió para tomar el acuerdo objeto del recurso.

@@ -1,0 +1,1 @@
+Artículo 11.—En sesión podrán incluirse asuntos de trámite urgente por iniciativa del Presidente o por solicitud de uno o más miembros, si el Concejo de Distrito así lo acuerda por simple mayoría mediante la presentación de una moción de orden.

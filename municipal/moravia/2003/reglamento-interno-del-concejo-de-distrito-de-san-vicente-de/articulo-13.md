@@ -1,0 +1,1 @@
+Artículo 13.—Los miembros suplentes pueden presentar una moción, siempre y cuando sea acogida para su trámite por un miembro propietario. Igual se hará con toda iniciativa tendiente a adoptar, reformar, suspender o derogar disposiciones reglamentarias.
