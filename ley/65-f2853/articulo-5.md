@@ -1,1 +1,0 @@
-Artículo 5º- Los distritos que formen una sola población, se considerarán como un solo distrito para los efectos de esta ley. Cuando varios distritos administrativos formen una sola electoral, los mismos electores harán los nombramientos de los varios síndicos.
