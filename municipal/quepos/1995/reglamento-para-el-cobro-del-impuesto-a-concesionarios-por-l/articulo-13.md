@@ -1,0 +1,2 @@
+Artículo 13.—Contra la resolución definitiva adoptada por el Concejo Municipal el contribuyente en el plazo de treinta días hábiles contados a partir del día hábil siguiente de efectuada en forma de notificación, podrá imponer la acción impugnación correspondiente ante el Tribunal al que se refiere el artículo diez de este reglamento.
+Transcurrido dicho plazo sin que hubiera interpuesto la acción de impugnación la Municipalidad podrá imponer la acción ejecutiva a que se refiere el artículo once de este reglamento.

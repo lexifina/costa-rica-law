@@ -1,0 +1,2 @@
+Artículo 14.—De conformidad con el artículo 47 del Código Municipal, por efectuar a terceros se somete a consulta pública el presente reglamento por el plazo de diez días hábiles contados a partir del día siguiente de la presente publicación, transcurridos los cuales, sin que existe oposición se publicará nuevamente y se regirá a partir de su publicación-
+El Concejo Acuerda: Aprobar, el Reglamento de Cobro de Explotación de Canteras en todos sus extremos. 5 votos. Definitivamente aprobado.

@@ -1,0 +1,1 @@
+Artículo 2°—Es sujeto activo de este impuesto, la Municipalidad de Aguirre, la cual para los efectos de la relación jurídica tributaria hará uso de las facultades y prerrogativas que completa el Código de Normas y Procedimientos Tributarios de este impuesto.
