@@ -1,0 +1,1 @@
+Art. 6°-Para las penas de contrabando en el ramo de tabacos, quedan en toda su fuerza las leyes que estaban vigentes al emitirse el decreto no 12 de 26 de abril de 1882, que estableció el libre cultivo del tabaco.

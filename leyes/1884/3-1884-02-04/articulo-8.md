@@ -1,0 +1,2 @@
+Art. 8°-El presente decreto se someterá al conocimiento de la Representación Nacional en la próxima legislatura ordinaria.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintinueve días del mes de enero de mil ochocientos o- chenta y cuatro.-A. DE JESÚS SOTO, Presidente.- LEOVIGILDO CASTRO S., Secretario.-Liberia, febrero cuatro de mil ochocientos ochenta y cuatro.-Ejecútese.-P. FERNÁNDEZ.-El Secretario de Estado en el Despacho de Hacienda.-BERNARDO SOTO.
