@@ -1,0 +1,1 @@
+Artículo 47.—Suministro de formularios. El Archivo definirá y comunicará a la Proveeduría, el criterio que regirá la distribución de los formularios del expediente, de acuerdo con el uso autorizado de éstos en el establecimiento respectivo.

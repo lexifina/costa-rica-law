@@ -1,0 +1,1 @@
+Artículo 52.—Unidad de Conservación. Todo Archivo deberá contar con una Unidad de Conservación, responsable de la depuración y conservación de los expedientes y demás documentos derivados de los procesos de atención de pacientes.

@@ -1,0 +1,1 @@
+Artículo 46.—Métodos de archivo e identificación. El Archivo utilizará como método para el archivado del expediente, el sistema dígito terminal o bien aquel que llegare a oficializar la Caja por medio de la Gerencia de División Médica.

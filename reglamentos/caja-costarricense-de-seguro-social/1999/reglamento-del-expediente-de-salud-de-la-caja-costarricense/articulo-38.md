@@ -1,0 +1,1 @@
+Artículo 38°.—Llenado de formularios. El personal de REDES, y en ausencia de éste, el que se designe, será responsable por los formularios del expediente que les corresponda llenar no contengan errores no omisiones; por tanto, anotará su nombre y registrará su firma al final de cada uno de ellos.

@@ -1,0 +1,1 @@
+Artículo 34.—Agregado de documentos. Corresponderá al personal de Enfermería, velar porque los reportes de exámenes y otros documentos que le sean entregados, mientras tenga a su cargo el expediente respectivo, se anexen correctamente a éste. Para ello el personal del Archivo brindará la asesoría necesaria.

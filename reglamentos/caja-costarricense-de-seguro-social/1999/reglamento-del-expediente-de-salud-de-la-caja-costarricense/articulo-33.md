@@ -1,0 +1,1 @@
+Artículo 33.—Uso específico del expediente. El expediente no se podrá utilizar para fines distintos al consignado en la solicitud de préstamo, ni cambiar el destino sin previa autorización del responsable del Archivo. Tampoco podrán solicitarse expedientes para fines ajenos a los de competencia del solicitante.

@@ -1,0 +1,1 @@
+Artículo 57.—Destrucción de expedientes y documentos. Toda destrucción de expedientes o documentos relacionados con la atención de los pacientes en cualquier establecimiento, independientemente del medio utilizado, debe ser autorizada expresamente por la Comisión Institucional de Selección y Eliminación de Documentos, en tanto no se dicte norma expresa.

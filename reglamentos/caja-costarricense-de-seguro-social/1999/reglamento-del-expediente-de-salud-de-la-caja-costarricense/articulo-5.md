@@ -1,0 +1,1 @@
+Artículo 5°—Registros y Estadísticas de la Salud (REDES). Es la dependencia especializada, responsable del sistema de información de los servicios de salud del establecimiento, a cuyo cargo está, enter otros: administrar los registros de salud, brindar apoyo directo a la atención y elaborar las estadísticas de salud.

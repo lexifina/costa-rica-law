@@ -1,0 +1,1 @@
+Artículo 54.—Fidelidad. A la Unidad de Conservación le corresponderá comprobar la fidelidad y la calidad de la imagen de los documentos conservados mediante sistemas microfotográficos, magnéticos u otros, antes de recomendar la destrucción de los originales.

@@ -1,0 +1,1 @@
+Artículo 19.—Confidencialidad. El contenido del expediente es confidencial y queda obligado a respetar esa condición todo aquél que por cualquier circunstancia tenga acceso a éste. La violación a esta disposición se considerará falta grave para todos los efectos legales, disciplinarios y administrativos, sin perjuicio de las demás responsabilidades que de ello se deriven.

@@ -1,0 +1,1 @@
+Artículo 31.—Personal de REDES. El personal del Servicio de REDES (Admisión, Afiliación, Archivo, Atención Ambulatoria y Estadística), bajo ninguna circunstancia podrá excusarse de cumplir con todos los trámites de préstamo de expedientes que establezca el Archivo.

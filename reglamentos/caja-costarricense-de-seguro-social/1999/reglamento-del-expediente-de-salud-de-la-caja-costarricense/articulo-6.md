@@ -1,0 +1,1 @@
+Artículo 6°.—Archivo. es la dependencia de REDES, responsable del manejo, control, custodia y conservación de los expedientes y demás documentos de salud derivados de la atención de los pacientes, que el establecimiento mantiene en forma centralizada.

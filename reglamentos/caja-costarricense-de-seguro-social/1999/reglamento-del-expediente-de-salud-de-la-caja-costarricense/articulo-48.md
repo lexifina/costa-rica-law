@@ -1,0 +1,1 @@
+Artículo 48.—Uso de la guía de reemplazo. Todo expediente extraído de su anaquel, deberá ser sustituido por la correspondiente "guía de reemplazo", en la cual se indicará como mínimo: la fecha del préstamo, el responsable y su destino.

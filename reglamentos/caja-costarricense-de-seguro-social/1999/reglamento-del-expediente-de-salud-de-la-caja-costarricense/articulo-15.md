@@ -1,0 +1,1 @@
+Artículo 15.—Modificaciones y correcciones. La sustitución de carpetas, la corrección y modificación del número o de datos de identificación en los expedientes, es responsabilidad exclusiva del personal autorizado de REDES.

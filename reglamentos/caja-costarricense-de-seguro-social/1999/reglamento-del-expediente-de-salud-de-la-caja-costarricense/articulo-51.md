@@ -1,0 +1,1 @@
+Artículo 51.—Archivo Pasivo. Todo Archivo debe contar con un área adecuada, destinada a la custodia organizada de los expedientes pasivos, producto de la depuración a que se refiere el Artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 29.—Restricción de préstamo. Por ningún motivo el personal del Archivo o dependencia alguna, entregará expedientes directamente al paciente o a persona no autorizada por la Dirección Médica del establecimiento.

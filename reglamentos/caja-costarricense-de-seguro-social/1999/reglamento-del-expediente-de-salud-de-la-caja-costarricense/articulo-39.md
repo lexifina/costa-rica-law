@@ -1,0 +1,1 @@
+Artículo 39.—Internamiento. El personal de Admisión debe asegurarse de que todo paciente que se hospitalice, lo haga junto con su expediente, excepto que su condición de salud lo impida, en cuyo caso coordinará inmediatamente su envío al salón respectivo.

@@ -1,0 +1,1 @@
+Artículo 16.—Propiedad del expediente. En su materialidad, el expediente es propiedad de la Caja y nadie podrá mutilarlo, desecharlo, incinerarlo, sustraerlo o de cualquier forma, enajenarlo, sin la autorización expresa de la Comisión Institucional de Selección y Eliminación de Documentos.

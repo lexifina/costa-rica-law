@@ -1,0 +1,1 @@
+Artículo 14.—Ordenamiento del expediente. Los formularios del expediente, correspondientes a cada área de atención, deberán mantenerse permanentemente ordenados, conforme a los lineamientos establecidos por la Caja a través de la Gerencia de División Médica.

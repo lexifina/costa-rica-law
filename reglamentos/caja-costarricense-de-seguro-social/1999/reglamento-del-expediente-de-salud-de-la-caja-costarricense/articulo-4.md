@@ -1,0 +1,1 @@
+Artículo 4°.—Establecimientos de salud. Estructura física desde la cual la Caja Costarricense de Seguro Social provee en forma directa o por medio de terceros, servicios de atención en salud a la población.

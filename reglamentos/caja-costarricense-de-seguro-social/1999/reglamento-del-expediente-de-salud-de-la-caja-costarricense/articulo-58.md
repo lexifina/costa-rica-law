@@ -1,0 +1,6 @@
+Artículo 58.—Supervisión. La Supervisión en REDES será responsable por la verificación de la correcta aplicación del presente Reglamento en los establecimientos de la circunscripción geográfica a su cargo; así como de informar a su superior inmediato sobre los casos en los cuales no se cumpla con lo aquí dispuesto.
+Código Penal, Artículo 203. Será reprimido con prisión de un mes a un año, o de treinta a cien días multa, el que teniendo noticias por razón de su estado, oficio, empleo, profesión o arte, de un secreto cuya divulgación puede causar daño, lo revelare sin justa causa.
+Código Penal, Artículo 337. Será reprimido con prisión de dos a tres años, el funcionario público que divulgare hechos, actuaciones o documentos, que por ley deben quedar secretos.
+Departamento Legal de la CCSS, (Mayo 2 de 1988) "..... la información de un expediente clínico sólo puede ser facilitada a su dueño, o a alguien debidamente autorizado por él; y en su defecto, a una autoridad judicial....."
+Código de Familia, Artículo 144. "..... cuando sea necesario una hospitalización o intervención quirúrgica decisiva e indispensable para guardar la salud o la vida del menor queda autorizada la decisión facultativa pertinente aún contra el criterio de los padres."
+San José, 14 de setiembre de 1999.

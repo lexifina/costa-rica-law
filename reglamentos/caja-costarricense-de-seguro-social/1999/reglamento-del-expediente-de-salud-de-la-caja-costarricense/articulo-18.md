@@ -1,0 +1,1 @@
+Artículo 18.—Inclusión de documentos. Todo reporte relacionado con el paciente, que se genere en los servicios auxiliares de diagnóstico y tratamiento u otros, deben ser remitidos al Archivo mediante lista de control, para efectos de su inclusión al expediente respectivo.

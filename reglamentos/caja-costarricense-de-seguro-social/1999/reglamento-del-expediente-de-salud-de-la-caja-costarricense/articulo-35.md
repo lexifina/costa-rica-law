@@ -1,0 +1,1 @@
+Artículo 35°.—Salida exigida de pacientes. El personal de Enfermería será responsable porque todo paciente internado que abandone el hospital sin autorización médica ( salida exigida), firme la correspondiente exoneración de responsabilidad en su expediente.

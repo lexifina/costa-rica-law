@@ -1,0 +1,1 @@
+Artículo 56.—Reactivación de expedientes. La reactivación de expedientes conservados en imágenes, medios magnéticos u otros, se realizará conforme a las disposiciones establecidas por la Dirección Médica del establecimiento.

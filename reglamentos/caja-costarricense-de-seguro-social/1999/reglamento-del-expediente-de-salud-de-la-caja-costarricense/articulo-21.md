@@ -1,0 +1,1 @@
+Artículo 21.—Custodia por el usuario. Todo usuario es responsable directo de la custodia e integridad del expediente durante el tiempo que lo tenga a su disposición y no podrá prestarlo a un tercero, sin la autorización expresa del responsable del Archivo, debiendo regresarlo a éste, inmediatamente después de concluida su utilización.

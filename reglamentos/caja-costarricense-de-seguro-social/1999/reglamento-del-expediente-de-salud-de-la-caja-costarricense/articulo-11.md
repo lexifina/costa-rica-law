@@ -1,0 +1,1 @@
+Artículo 11.—Responsabilidad. El Director del establecimiento será responsable por el cumplimiento de lo aquí dispuesto y delegará en la Jefatura de REDES, la aplicación de este Reglamento en lo atinente a su función.

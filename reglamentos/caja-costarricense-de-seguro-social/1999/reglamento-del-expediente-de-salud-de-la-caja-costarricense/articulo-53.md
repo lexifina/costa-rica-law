@@ -1,0 +1,1 @@
+Artículo 53.—Conservación de documentos. La Dirección Médica del establecimiento será responsable por la definición de los medios a utilizar para la conservación de los expedientes en el respectivo establecimiento, así como del contenido del expediente que se deberá conservar. A tal efecto deberá considerar, entre otros aspectos, el costo, el beneficio y la normativa vigente.

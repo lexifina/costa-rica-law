@@ -1,0 +1,1 @@
+Artículo 30.—Traslado a otro establecimiento. El traslado de expedientes a otro establecimiento de la Caja, deberá ser autorizado por la Dirección Médica, la cual además valorará la conveniencia de trasladar el original o copia de éste. En todo caso, el Archivo conservará constancia de ello.

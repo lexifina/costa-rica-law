@@ -1,0 +1,2 @@
+Artículo 40°.—Consentimiento informado. Todo paciente que se vaya a someter a algún procedimiento médico, odontológico o quirúrquico, para el cual sea requisito la firma del documento de "consentimiento informado", deberá hacerlo de previo, con manifestación expresa de su anuencia o rechazo. A tal efecto el profesional responsable de la atención, deberá asegurarse de brindarle la información requerida y de que esté firme el documento citado.
+(Así reformado en sesión N° 7376 del 7 de octubre de 1999)

@@ -1,0 +1,1 @@
+Artículo 45.—Control interno. El responsable del Archivo deberá velar porque todo expediente se conserve en óptimas condiciones, que esté archivado al día, que se aplique correctamente los controles de préstamo y se respete los plazos de préstamo autorizados.

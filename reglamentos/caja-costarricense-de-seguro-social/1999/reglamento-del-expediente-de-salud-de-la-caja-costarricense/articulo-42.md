@@ -1,0 +1,1 @@
+Artículo 42.—Restricción de ingreso. Es prohibido para toda persona ajena al Archivo, el ingreso al área de custodia de los expedientes. Se exceptúa de esta prohibición al personal de REDES expresamente autorizado por motivos de caso fortuito o fuerza mayor. En consecuencia, nadie, excepto estos funcionarios están autorizados para tomar expedientes de los anaqueles.
