@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones del sector público y las organizaciones privadas darán a conocer ese día a la comunidad nacional los programas y proyectos dedicados al fortalecimiento de los principios constitucionales y se movilizarán para sensibilizar a la población sobre este tema, motivándola para que se sigan respetando y cumpliendo dichos principios.
