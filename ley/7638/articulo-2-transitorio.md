@@ -1,0 +1,1 @@
+TRANSITORIO II.- A partir de la entrada en vigencia de esta ley, la Promotora del Comercio Exterior de Costa Rica dispondrá de un plazo de tres meses, para formalizar y documentar el traspaso, a su favor, de los activos, pasivos y patrimonio del Centro para la Promoción de las Exportaciones y de las Inversiones y de la Corporación de la Zona Franca de Exportación.

@@ -1,0 +1,1 @@
+TRANSITORIO I.- Los nombramientos de los primeros miembros de la Junta Directiva de la Promotora del Comercio Exterior de Costa Rica mencionados en el inciso b) del artículo 10 regirán hasta el 8 de mayo de 1998. A partir de esta fecha, los siguientes nombramientos regirán por el mismo período constitucional del Presidente de la República.
