@@ -14,3 +14,4 @@ Autoriza Gestiones MAG y CNP Servicio Pequeños y Medianos ProductoresPara prest
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-19 | la propia norma |
+| 2 | 1999-05-19 | Ley 8 |
