@@ -1,0 +1,1 @@
+Artículo 2°-Serán objetivos de esta Comisión: a) Coordinar y promover el desarrollo de acciones relacionadas con el uso adecuado de la información sobre el valor nutritivo de los alimentos. b) Brindar asesoría técnica actualizada a entidades públicas y privadas, en esta materia.
