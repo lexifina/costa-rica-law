@@ -1,0 +1,1 @@
+Art. 21.-Para merecer el certificado de madurez debe el candidato haber obtenido por lo menos el promedio general de 3 ½ . Sin embargo, no se concederá el certificado á los candidatos que hayan obtenido en dos asignaturas una nota mayor de 5 ó un cero en otra cualquiera.

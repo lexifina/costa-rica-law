@@ -1,0 +1,1 @@
+Art. 11.-Cada maestro que forme parte del jurado, preparará con quince días de anticipación las preguntas para el examen escrito y oral. Las preguntas definitivas serán elegidas por el jurado la víspera del examen.

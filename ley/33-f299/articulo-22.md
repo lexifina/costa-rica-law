@@ -1,0 +1,1 @@
+Art. 22.-A los candidatos que no hayan sido aprobados en el primer examen se les podrá dispensar en las pruebas subsiguientes del examen de aquellas materias en que hubiesen obtenido la primera vez por lo menos la calificación de 4.
