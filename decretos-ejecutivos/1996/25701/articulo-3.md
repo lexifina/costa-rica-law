@@ -1,0 +1,1 @@
+Artículo 3°-En caso de que los propietarios tomen la decisión de cambiar el destino del refugio deberán notificar al Ministerio del Ambiente y Energía con al menos seis meses de anticipación. antes de que venza el plazo mínimo de cinco años por el cual se somete voluntariamente a este régimen las propiedades descritas.
