@@ -14,7 +14,7 @@ NAUCA | | NAB
 045-09-03 | Sorgo | 10.07
 121-01-00 | Tabaco en rama sin elaborar, incluso los desperdicios | 24.01
 211-01-00 | Pieles y cueros sin curtir incluso desperdicios de cueros curtidos | 41.01
-011-01-00 | Carnes de ganado vacuno, fresca, refrigerada o congelada | 02.01
+011-01-00 | (*) Carnes de ganado vacuno, fresca, refrigerada o congelada (*) (Mediante el artículo 1° del decreto ejecutivo N° 16993 del 5 de mayo de 1986, se excluya de la lista de productos tradicionales, la carne de ganado vacuno, fresca, refrigerada o congelada, partida NAUCA II 02010200) | 02.01
 031-03-01-51 | Camarones (vivos o muertos) frescos, refrigerados o congelados | 03.03
 031-01-01 (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 8055 del 28 de febrero de 1978) | Atún y sus partes (no enlatado), fresco, congelado y refrigerado | 03.01
 GPO-242 | Madera en troza s o simplemente escuadrada. | 44.03
