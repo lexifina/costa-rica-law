@@ -1,0 +1,1 @@
+Art 3°.- En caso de excusa o impedimento de uno de los jueces para conocer en algún negocio, corridos los trámites de derecho, el otro será llamado a subrogarle. Si ambos resultasen impedidos, se observará para el reemplazo lo dispuesto por las leyes.
