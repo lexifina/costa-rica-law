@@ -74,6 +74,7 @@ Queso blanco tipo duro, semiduro y cremoso, no envasado ……………………
 Reglas milimetradas............................................. (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 861-09-03
 Sal común , mineral y yodada…………………… | 272-05-02
 Sacapuntas de bolsillo (tajadores)......................... | 699-17-04
+Salchichón, chorizos, mortadelas, corrientes, no envasadas ni enlatadas (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14326 del 23 de diciembre de 1982) | 013-01-00
 Sorgo sin moler, no envasado………………….. | 045-09-03
 Tiza en barritas para escribir y dibujar.................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 899-17-05
 Tortillas de maíz…………………………………... | 048-09-04
