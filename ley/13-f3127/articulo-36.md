@@ -1,5 +1,5 @@
-Artículo 36.- Cuando el Presidente del Colegio tuviere informe de que existe entre dos abogados un conflicto que pudiere originar un incidente personal, ofrecerá inmediatamente su mediación a ambos para que la querella sea resuelta por un Tribunal de Honor. También lo hará a solicitud personal de interesados o extraños para diferencias profesionales graves.
-Si enterado de los antecedentes resultare tratarse de un grave asunto de honra, se abstendrá de insistir a no ser que fuere requerido por alguno de los interesados.
-Es obligatorio para el que infirió el agravio o provocó el conflicto someterse al trámite del Tribunal de Honor si la otra parte acepta la mediación. Cuando el conflicto fuere entre un abogado y uno que no lo sea, la mediación será ofrecida sin embargo a los dos; y si el abogado fuere el ofensor o el provocador, le será obligatorio someterse al arbitraje, siempre que la otra parte se someta también.
-En estos asuntos el Presidente obrará confidencialmente y con toda la delicadeza exigida en casos tales, pudiendo delegar sus funciones si lo juzga oportuno.
-Las proposiciones y las respuestas se harán de palabra y se guardarán los antecedentes bajo fe profesional, sin revelar otra cosa, en caso de buen éxito, que el consentimiento para someterse al Tribunal de Honor.
+CAPITULO IX
+Del Comité Consultivo y del Tribunal de Honor
+(Corrida la numeración del capítulo anterior por el artículo 3° de la ley N° 7333 del 5 de mayo de 1993, "Reforma Integral a la Ley Orgánica del Poder Judicial", que lo traspaso del capítulo VIII al capítulo IX)
+Artículo 36.- Cuando alguno de los Poderes de la Nación, particulares o corporaciones, solicite la opinión del Colegio acerca de alguna cuestión o controversia jurídica, se pasará previamente el asunto al estudio del Comité Consultivo.
+(Corrida su numeración por el artículo 3° de la ley N° 7333 del 5 de mayo de 1993, "Reforma Integral a la Ley Orgánica del Poder Judicial", que lo traspaso del artículo 30 al 36)

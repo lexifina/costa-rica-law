@@ -1,3 +1,2 @@
-CAPITULO IX
-Disposiciones Generales
-Artículo 40.- Las resoluciones de las Juntas Generales en materia de su competencia, conforme a la presente ley, tendrán fuerza de sentencia ejecutoria sin recurso de ninguna clase.
+Artículo 40.- Una vez presentado el dictamen, si hay unanimidad de pareceres en el Comité, o los dictámenes cuando hubiere criterios distintos, se procederá a citar a Junta General extraordinaria y se hará saber el motivo de la convocatoria, ordenando la publicación de los dictámenes.
+(Corrida su numeración por el artículo 3° de la ley N° 7333 del 5 de mayo de 1993, "Reforma Integral a la Ley Orgánica del Poder Judicial", que lo traspaso del artículo 34 al 40)
