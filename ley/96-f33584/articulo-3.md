@@ -1,0 +1,1 @@
+ARTÍCULO 3°. -Todas las autoridades de los Departamentos y las locales son obligadas estrechamente a proveer de los recursos que necesite el Gobierno para sostener el ejercito protector de la ley; y los pueblos deben proporcionar inmediatamente a sus mandatarios las provisiones que se les pidan cualesquiera que sean.
