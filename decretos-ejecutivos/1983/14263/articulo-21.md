@@ -1,0 +1,1 @@
+Artículo 21.-La Comisión Gerencial nombrará por mayoría absoluta de los miembros presentes en el momento de la votación, a un Coordinador por un año, y éste actuará como interlocutor de la Comisión cuando ello sea conveniente.

@@ -1,0 +1,1 @@
+Artículo 27.-Para el cumplimiento de sus funciones SEPSA estará subordinada al Ministro de Agricultura y Ganadería en su calidad de director político del Sector y para efectos administrativos estará adscrita al Ministerio de Agricultura y Ganadería.

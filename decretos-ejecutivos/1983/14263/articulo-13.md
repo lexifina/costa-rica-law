@@ -1,0 +1,1 @@
+Artículo 13.-El total conjunto de Presidentes de Juntas Directivas de todos los sectores, podrán ser convocados para fines de coordinación intersectorial o valoración de directrices presidenciales, según el artículo 26 de la Ley General de la Administración Pública, como Conseja de Coordinación Interinstitucional de que habla el artículo 19 de la Ley de Planificación Nacional.

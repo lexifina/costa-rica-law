@@ -1,0 +1,1 @@
+Artículo 47.-La elaboración, evaluación, control y seguimiento del Plan Anual Operativo del Sector Agropecuario estará a cargo de SEPSA con base en las directrices dadas por el Ministro Sectorial, el Plan Nacional de Desarrollo, MIDEPLAN y los Planes Anuales de las Instituciones, programas Y actividades que integran el Sector.

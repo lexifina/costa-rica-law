@@ -1,0 +1,1 @@
+Artículo 18.-La Comisión Consultiva se reunirá una vez al mes y el Director de la Secretaría Ejecutiva de Planificación Sectorial Agropecuaria y de Recursos Naturales Renovables será también su secretario. Pudiendo reunirse ésta simultáneamente con el CAN, a juicio del Ministro de Agricultura y Ganadería.

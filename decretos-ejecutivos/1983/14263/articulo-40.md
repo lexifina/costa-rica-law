@@ -1,0 +1,1 @@
+Artículo 40.-SEPSA como coordinador de la Red de Información Agropecuaria deberá recomendar las políticas sobre normas metodológicas y procedimientos mejorados para el manejo de la información y coordinar los programas de información de los organismos nacionales para su integración en sistemas nacionales e internacionales.

@@ -1,0 +1,2 @@
+Artículo 49.-Corresponderá a las Unidades de Planificación Institucionales conjuntamente con el resto de la organización, formular y evaluar el PAO Institucional.
+Para tal efecto se realizará una evaluación semestral del Plan para su ajuste correspondiente, debiéndose enviar una copia del informe a SEPSA para conformar el informe semestral sobre el estado de avance del PAO Sectorial que deberá presentar a conocimiento del Ministro Sectorial.
