@@ -1,0 +1,1 @@
+Artículo 24.—Los funcionarios responsables de la efectiva recaudación del impuesto, coordinarán con la Guardia de Asistencia Rural, a fin de obtener la colaboración de éstos en la aplicación de este Reglamento.

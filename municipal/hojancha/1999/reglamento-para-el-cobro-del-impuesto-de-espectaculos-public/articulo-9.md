@@ -1,0 +1,1 @@
+Artículo 9°—Las personas señaladas en el artículo anterior deberán a su vez adjuntar constancia de la institución beneficiaria; en caso de Comités o Asociaciones sin personería jurídica, deberán haberse juramentado ante el Concejo Municipal o Alcalde, en la que indique que el producto íntegro de la recaudación se destinará a fines benéficos.

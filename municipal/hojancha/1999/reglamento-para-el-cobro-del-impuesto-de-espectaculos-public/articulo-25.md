@@ -1,0 +1,1 @@
+Artículo 25.—Los informes sobre las personas físicas o jurídicas que se hagan acreedoras a la sanción del artículo 21, serán presentados por los inspectores de Espectáculos Públicos o la Guardia de Asistencia Rural, y canalizados por el Departamento Legal u Oficina correspondiente municipal.

@@ -1,0 +1,3 @@
+CAPITULO III
+De la Declaración Jurada
+Artículo 10.—Para los efectos del cobro fijado en el artículo 4 del presente Reglamento, se establece para festejos cívicos y patronales, turnos, ferias, que cada propietario de juegos mecánicos, electrónicos, carruseles, ruedas giratorias, etc., presentará una declaración jurada con anticipación a la realización de la actividad o espectáculo, a esta Municipalidad, indicando la estimación aproximada sobre el futuro ingreso bruto, debiendo depositar en las arcas municipales el 60% del posible impuesto a recaudar según declaración jurada, la cual deberá ser liquidada a la conclusión de las actividades y sujeta a revisión previa del Inspector de Rentas así como del Alcalde Municipal.
