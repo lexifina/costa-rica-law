@@ -1,0 +1,1 @@
+Artículo 7º—Comisión Técnica: El Consejo contará con una Comisión Técnica, para lo cual cada institución miembro, designará a un representante responsable en la materia. El Consejo designará una instancia coordinadora de la Comisión Técnica.
