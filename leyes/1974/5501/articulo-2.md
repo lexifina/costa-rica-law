@@ -1,1 +1,0 @@
-Artículo 2º.- Tomando en cuenta los elementos que inciden en el costo señalado en el artículo 1º, el Estado y sus instituciones ajustarán las variaciones que ocurran en los montos adjudicados en compra de servicios y suministros de origen local de la industria de la construcción.
