@@ -1,0 +1,2 @@
+Artículo 7°—Solicitud de compra.
+Para la compra de bienes y servicios por medio de la Caja Chica, deberá confeccionarse una solicitud (según anexo 2) dirigida al Oficial Presupuesta!, la cual requiere la firma de aprobación del Jefe del Departamento solicitante y del Jefe de Servicios Generales y Proveeduría, haciendo constar que no hay existencia en bodega. La autorización del gasto debe ser avalada por el Director General o su designado.

@@ -1,0 +1,2 @@
+Artículo 5°—Funcionario responsable.
+Las cajas chicas estarán bajo la responsabilidad de un encargado designado por el Departamento Financiero, quien será responsable por la custodia y correcta administración del fondo. En caso de cambio del funcionario responsable, el Departamento Financiero designará a otro funcionario, trasladando las Cajas Chicas mediante arqueo del fondo, en presencia de ambos funcionarios.

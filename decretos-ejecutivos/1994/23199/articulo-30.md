@@ -1,0 +1,2 @@
+Artículo 30—Formulario y emisión.
+Los cheques se emitirán en formularios prenumerados y en orden consecutivo con sus respectivas copias, tendrán firmas mancomunadas y se usará la máquina protectora de cheques para su emisión. Los cheques girados por medio de la cuenta comente de una caja chica, deberán ir firmados por un representante del Departamento Financiero y por el jerarca de la Institución o su designado.

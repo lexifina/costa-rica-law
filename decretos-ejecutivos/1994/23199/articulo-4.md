@@ -1,0 +1,2 @@
+Artículo 4°_Cajas chicas auxiliares y especiales temporales.
+Las Cajas Chicas Auxiliares y Especiales Temporales del Ministerio estarán constituidas por sumas fijas reembolsables y funcionarán por medio de cuentas comentes. El monto de la cajas chicas seta asignado por el señor Ministro en coordinación con el Oficial Presupuesta! de acuerdo con las necesidades reales y con base en los cantidades totales asignadas dentro de tos rubros presupuestados.
