@@ -1,1 +1,0 @@
-Artículo 17.- El personal administrativo estará integrado por los funcionarios citados en el artículo 135 de la Ley Orgánica del Poder Judicial y por los agentes tutelares necesarios. Para el nombramiento del personal administrativo, se preferirá, en igualdad de condiciones, a quienes acrediten experiencia o estudios en la materia.

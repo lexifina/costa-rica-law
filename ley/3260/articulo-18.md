@@ -1,1 +1,0 @@
-Artículo 18.- Además de las funciones que le confiere la ley, el Secretario tendrá el cargo de jefe del personal y responderá por la administración de la oficina ante el juez. En materia administrativa, los jefes de departamentos también responderán ante el juez.

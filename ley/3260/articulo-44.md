@@ -1,1 +1,0 @@
-Artículo 44.- El juez podrá modificar, suspender o dar por terminada la aplicación de las medidas, de oficio o a iniciativa de alguna de las personas indicadas en el artículo 68 de esta Ley o del director del plantel en donde el menor se encuentre depositado. La resolución respectiva se ajustará a lo establecido en el artículo 69 de la presente Ley.

@@ -1,1 +1,0 @@
-Artículo 64.- La edad del menor se acreditará mediante certificación o constancia de la inscripción de su nacimiento en el Registro Civil o, en su defecto, por la partida de bautizmo. La falta de estos documentos se suplirá con el reconocimiento médico que se estime pertinente, el cual se enviará al Registro Civil, para su anotación en la sección correspondiente.

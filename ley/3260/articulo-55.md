@@ -1,1 +1,0 @@
-Artículo 55.- El juez, después de la primera entrevista, decidirá si el menor puede ser entregado, definitiva o provisionalmente, a sus padres o representantes o si debe ser depositado en otro hogar apto para el caso, o internado en el establecimiento destinado para ese efecto.

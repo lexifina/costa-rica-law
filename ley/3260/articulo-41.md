@@ -1,2 +1,0 @@
-Artículo 41.- Las medidas, se le aplicarán al menor, tomando en cuenta siempre, el diagnóstico sobre su personalidad, sus posibilidades de rehabilitación y la naturaleza y gravedad de los hechos que se le atribuyan. Este diagnóstico deberá elaborarse en un plazo de diez días.
-Cuando se trate de menores con limitaciones físicas o mentales, se procurará que la medida de internación se cumpla en establecimientos especializados, que permitan remediar su condición.

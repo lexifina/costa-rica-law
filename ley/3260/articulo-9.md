@@ -1,1 +1,0 @@
-Artículo 9º.- La aprehensión y la conducción de los menores que deban remitirse a los juzgados tutelares, pueden efectuarlas agentes, inspectores tutelares debidamente identificados u otras autoridades de policía; siempre y cuando se respete y se tenga en cuenta la condición del menor.

@@ -1,2 +1,0 @@
-Artículo 53.- Los escritos dirigidos a los tribunales de menores, para que sean atendibles, deberán ser firmados y presentados por el gestionante. La presentación personal no será indispensable si la firma del petente está autenticada por un abogado.
-Si el peticionario no sabe escribir o si está físicamente imposibilitado para hacerlo, eso se hará constar en el escrito y a su ruego firmará otra persona. La presentación se ajustará a lo estipulado en el párrafo anterior.

@@ -1,1 +1,0 @@
-Artículo 12.- Los jueces tutelares de menores enviarán, mensual y trimestralmente, los respectivos informes para efectos estadísticos a la Sección de Estadística del Departamento de Planificación del Poder Judicial.

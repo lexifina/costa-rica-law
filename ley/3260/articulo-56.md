@@ -1,1 +1,0 @@
-Artículo 56.- El menor será entregado a sus padres o a sus representantes en forma definitiva, cuando el hecho únicamente amerite amonestación, y la capacidad de su familia para impartirle disciplina y educación al menor sea satisfactoria, a juicio del juez.

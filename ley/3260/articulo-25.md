@@ -1,1 +1,0 @@
-Artículo 25.- En todo el aspecto técnico y de investigación criminológica y criminalística, el Departamento Clínico y de Trabajo Social coordinará labores con la Dirección General de Adaptación Social.

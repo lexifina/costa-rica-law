@@ -1,2 +1,0 @@
-Artículo 39.- El director del establecimiento donde se deposite al menor, a partir de su ingreso enviará al juez, un informe semestral sobre su situación, con las recomendaciones del caso.
-La internación deberá suspenderse, en forma inmediata, cuando al variar las circunstancias, por las que se acordó, estas resulten beneficiosas para el menor, a quien podrá aplicársele otra medida tutelar menos gravosa.

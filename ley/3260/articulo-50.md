@@ -1,1 +1,0 @@
-Artículo 50.- Todas las diligencias que se practiquen con el menor se desarrollarán en una forma tendiente a inspirarle confianza y, en ningún caso, las entrevistas que se realicen con él revestirán ni el carácter ni la forma de una indagatoria.
