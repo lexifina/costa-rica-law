@@ -1,0 +1,1 @@
+Artículo 9°─ Esta emisión de “Bonos Deuda Interna 8%, 1979 (Primera Emisión) por ₡1.500.000.000,00 es parte del monto autorizado en el artículo 2° de la ley N° 6305 del 18 de diciembre de 1978. El resto de ₡455.650.000,00 se emitirá en “Bonos Deuda Interna 8%, 1979 (Segunda Emisión)”.
