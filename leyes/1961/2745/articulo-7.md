@@ -1,0 +1,1 @@
+Articulo 7° — Las disposiciones del artículo VIII del Convenio de Fundación de la Asociación Internacional de Fomento, tendrán fuerza de ley en lodo el territorio de la República desde la fecha de inauguración de la citada Asociación .

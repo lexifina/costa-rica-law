@@ -1,0 +1,1 @@
+Artículo 5° — Las garantías requeridas por la Asociación Internacional Fomento para el pago de préstamos, sus intereses y otros cargos, podrán ser Porgadas por el Gobierno de la República o por el Banco Central de Costa Rica.

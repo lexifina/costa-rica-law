@@ -1,0 +1,2 @@
+Articulo 4°— Se autoriza al Banco Central de Costa Rica para hacer la suscripción inicial que le corresponda a nuestro país en la Asociación Internacional de Fomento v efectuar el pago de conformidad con el Convenio.
+Este pago lo hará el Banco Central de Costa Rica con fondos propias y por consiguiente lo mantendrá como un activo suyo, aunque la suscripción aparezca a nombre del Gobierno de la República.
