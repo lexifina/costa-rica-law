@@ -1,2 +1,8 @@
-Artículo 164.— A falla de disposiciones en el presente Reglamento, aplicables a un caso determinado, deberán tenerse como norma supletorias la Ley General de Administración Pública, el Código de Trabajo y los Convenios Internacionales suscritos y ratificados en materia laboral, demás leyes y reglamentos afines, que se hayan emitido o se emitan en el futuro con el objeto de regular económicamente y socialmente las relaciones obrero patronales, así como las circunstancias que emitan los representantes patronales para normar la prestación de servicios, siempre y cuando no contravengan las disposiciones de este Reglamento.
-(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 171 al 164 actual).
+De las manifestaciones del hostigamiento sexual
+Artículo 164.—Serán tipificadas como manifestaciones del acoso sexual las siguientes:
+1° a) Promesa, implícita o explícita de un (rato preferencial, respecto de la situación actual o futura, de empleo o de estudio de quien la reciba.
+b) Amenazas explícitas o implícitas, físicas o morales, de daños o castigos referidos a la situación, actual o futura, de empleo o de estudio de quien las reciba.
+c) Exigencia de una conducta cuya sujetación o rechazo sea, en forma explícita, condición para el empleo o estudio.
+2° Uso de palabras de naturaleza sexual, escritas u orales, que resulten hostiles, humillantes y ofensivas para quien las reciba.
+3° Acercamiento corporales y otras conductas físicas de naturaleza sexual, indeseados y ofensivos para quien los reciba.
+(Así adicionado mediante sesión N° 2557 del 18 de diciembre de 1995).

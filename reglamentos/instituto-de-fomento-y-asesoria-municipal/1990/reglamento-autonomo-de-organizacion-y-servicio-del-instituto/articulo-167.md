@@ -1,3 +1,5 @@
-Artículo 167.— El presente Reglamento rige a partir de su publicación.
-(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 174 al 167 actual).
-Aprobado por la Junta Directiva mediante acuerdo quinto de la sesión ordinaria 1991 celebrada el siete de mayo de mil novecientos noventa. Se le introdujeron modificaciones por acuerdo cuarto de la sesión extraordinaria 2350, celebrada el día seis de diciembre de mil novecientos noventa y tres.
+Artículo 167.—Las denuncias por acoso u hostigamiento sexual serán conocidas por una comisión que será el Órgano Director del procedimiento y que estará integrada de la siguiente forma:
+- El jefe de la Sección de Recursos Humanos, quien la presidirá.
+- Dos Funcionarios de reconocida solvencia moral.
+En todos los casos, el Órgano Director deberá conformarse con al menos una servidora.
+(Así adicionado mediante sesión N° 2557 del 18 de diciembre de 1995).
