@@ -1,0 +1,2 @@
+Artículo 35.-Los grandes productores agropecuarios tramitarán sus solicitudes para ser beneficiarios de la ley, conforme con los artículos 14, párrafo 2° y 21 de la ley, y 12 del Reglamento. Estos productores podrán recurrir en caso de inconformidad sobre sus solicitudes conforme con el artículo 17 de la ley y el artículo 22 del reglamento.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 17672 del 20 de julio de 1987)

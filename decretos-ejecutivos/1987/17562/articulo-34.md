@@ -1,0 +1,2 @@
+Artículo 34.-El Ministerio de Hacienda, solicitará a los Bancos los bonos que corresponda en caso de que las operaciones lo fuesen por un total inferior al monto de los bonos entregados, asimismo solicitar la devolución de los bonos de las operaciones no documentadas si se comprueba que no se ejercieron las acciones administrativas correspondientes para tal fin.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 17672 del 20 de julio de 1987)

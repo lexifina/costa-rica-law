@@ -14,3 +14,4 @@ Reglamento al capítulo segundo de la Ley FODEA de la adecuación de deudas de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-06-08 | la propia norma |
+| 2 | 1987-07-20 | Decreto Ejecutivo 17672 (1987-07-20) |

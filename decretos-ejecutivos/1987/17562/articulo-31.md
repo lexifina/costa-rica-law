@@ -1,0 +1,3 @@
+Artículo 31.-Aquellas personas físicas y jurídicas cuyas operaciones están incluidas en el traspaso automático de Cartera al Ministerio de Hacienda, serán rehabilitados nuevamente como sujetos de crédito por los Bancos Comerciales del Estado en el momento en que documenten la adecuación o readecuación ante el respectivo Banco.
+Para ello se establece como fecha límite el 15 de diciembre de 1987. Se entiende por documentar: el suscribir los documentos de crédito conforme con los términos y condiciones que establece la ley.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 17672 del 20 de julio de 1987)

@@ -1,2 +1,2 @@
-Artículo 29.-Rige a partir de su publicación.
-Dado en la Presidencia de la República. -San José, a los veintinueve días del mes de mayo de mil novecientos ochenta y siete.
+Artículo 29.-Las Adecuaciones contempladas en la Ley para los pequeños y Medianos Productores Agropecuarios, son automáticas por lo que en virtud de lo prescrito en el artículo 8° de dicha ley los bancos traspasarán al Ministerio de Hacienda la Cartera en mora de dichos productores en el estado en que esta se encuentre para efecto del giro de bonos correspondientes a cada uno de ellos, hasta por la suma total de ¢ 5.000.000.000.00. El Ministerio de Hacienda, hará el pago a cada Banco mediante una distribución directamente proporcional a la Cartera Agropecuaria en mora, conforme con la ley y al artículo 19 del reglamento.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 17672 del 20 de julio de 1987)

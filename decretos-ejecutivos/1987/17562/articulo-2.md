@@ -3,4 +3,4 @@ Para ubicar a los productores en las categorías que se establecen en el artícu
 a) Las deudas en conjunto, serán las que el deudor tenga conforme con el inciso a) del artículo 11 de este Reglamento;
 b) El ingreso bruto anual será el que obtenga o perciba el productor de la actividad agropecuaria;
 c) El patrimonio agropecuario estará integrado por los bienes muebles e inmuebles destinados a la actividad agropecuaria, en cualquiera de los caso señalados en el artículo 2° de la ley, de manera que los bienes formen parte de la unidad productiva agropecuaria.
-Para los fines legales correspondientes, y con el propósito de que los bancos puedan clasificar o ubicar a los productores en una de las 3 categorías previstas en la ley, éstos deberán presentar a las dependencias bancarias la respectiva solicitud de adecuación o readecuación, con los requisitos señalados en este Reglamento, excepto que por manifestación expresa declaren ser grandes productores agropecuarios.
+(Derogado el párrafo mediante artículo 2° del decreto ejecutivo N° 17672 del 20 de julio de 1987)
