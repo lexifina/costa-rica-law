@@ -14,3 +14,4 @@ Reglamento de Préstamo para Reparaciones y Mejoras del Instituto Nacional de Vi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1955-01-19 | la propia norma |
+| 2 | 1959-03-05 | Decreto Ejecutivo 1 (1959-03-05) |
