@@ -1,2 +1,4 @@
 Artículo 23.—Además de las circunstancias generales a toda inscripción y de los requisitos particulares a la inscripción de nacimientos establecidos en los artículos 47 y 51 de la Ley Orgánica del Tribunal Supremo de Elecciones y Registro Civil en el acta o asiento de inscripción de nacimiento se especificará el nombre, apellidos, edad y domicilio de la persona que hace la declaración.
+Los Registradores Auxiliares al recibir la declaración de un nacimiento, consignarán un nombre simple o compuesto de dos nombres, conforme a lo que indique la persona que haga la declaración. En el caso de que el Registrador Auxiliar consigne tres o más nombres, el Registro hará la inscripción tomando en cuenta sólo los dos primeros.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 16 del 14 de agosto de 1970)
 (Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 4 del 1° de setiembre de 1969)
