@@ -1,0 +1,1 @@
+Artículo 48.—La Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, deberá aprobar los Planes Reguladores para la Prevención de Riesgos Inminentes de Emergencia para cada cantón del país. La Junta Directiva además, deberá tomar las medidas necesarias para velar por su debido cumplimiento.

@@ -1,0 +1,1 @@
+Artículo 39.—Dicho Comité será integrado por cinco miembros propuestos por la Presidencia de la Comisión, los cuales podrán ser sustituidos por la Junta Directiva a instancia de la Presidencia de la Comisión, y deberá reunirse por lo menos una vez mensualmente ó cuantas veces sea necesario según el caso, para revisar el estado de las inversiones y el rendimiento de las mismas.

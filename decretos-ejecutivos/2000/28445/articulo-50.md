@@ -1,0 +1,5 @@
+CAPITULO IV
+Prevención presupuestal para prevenir situaciones de riesgo inminente de emergencia y
+atención de emergencias por parte de las instituciones estatales
+Artículo 50.—Anualmente y previo a la presentación de los presupuestos anuales por parte de los organismos de la Administración central y descentralizada y los gobiernos locales, la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, por intermedio de su Presidencia, comunicará a las entidades y organismos referidos la obligación legal de incluir una partida presupuestaria destinada a prevenir situaciones de riesgo inminente de emergencia y atención de emergencias. La Presidencia de la Comisión, por intermedio de funcionarios especializados, podrá asesorar a cada organismo o institución en la determinación de las necesidades presupuestarias con dicho propósito.
+De la totalidad de estos fondos las instituciones podrán destinar, porcentajes iguales para la prevención de situaciones de riesgo inminente de emergencia y para la atención de emergencias.

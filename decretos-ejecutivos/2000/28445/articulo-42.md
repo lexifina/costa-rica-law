@@ -1,0 +1,1 @@
+Artículo 42.—En aquellos casos en los que la Comisión no encuentre un uso específico a los bienes donados podrá subastarlos, y los recursos que se obtengan de la subasta se deberán depositar en el Fondo Nacional de Emergencias.

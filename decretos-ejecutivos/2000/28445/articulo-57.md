@@ -1,0 +1,3 @@
+CAPITULO VI
+Contratación administrativa
+Artículo 57.—De acuerdo a lo estipulado en la Ley de Contratación Administrativa, la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias contará con Proveeduría propia a través de la cual se tramitarán, bajo los procedimientos ordinarios establecidos en el ordenamiento jurídico, todas las contrataciones de bienes y servicios mediante un manual de contratación creado para tal efecto y que deberá ser aprobado por la Junta Directiva. Dicho manual de contratación, deberá estar concluido a más tardar noventa días contados a partir de la publicación del presente Reglamento.

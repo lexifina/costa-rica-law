@@ -1,0 +1,1 @@
+Artículo 58.—Toda contratación de bienes y servicios que realice la Comisión deberá apegarse en un todo a los procedimientos establecidos en la Ley de Contratación Administrativa y su Reglamento, con las excepciones que permite la aplicación del régimen de excepción cuando el mismo proceda, según lo dispuesto en el artículo 8 de la Ley Nacional de Emergencia.

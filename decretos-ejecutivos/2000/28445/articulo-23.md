@@ -1,0 +1,6 @@
+CAPITULO II
+La Junta Directiva
+Artículo 23.—De conformidad con lo establecido en el artículo 15 de la Ley Nacional de Emergencia y lo señalado en este artículo, al comienzo de cada período presidencial, el Presidente de la República y el Ministro de la Presidencia nombrarán a los miembros de la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias. La Junta Directiva estará integrada por nueve personas: un Presidente que será el máximo jerarca de la institución y ocho miembros designados en forma discrecional por el Poder Ejecutivo, buscando la representación de las siguientes áreas: salud, obras públicas, vivienda, asistencia social, ambiente, seguridad y la Cruz Roja Costarricense.
+Ocurrida una vacante, el Poder Ejecutivo en el menor plazo posible y no mayor de quince días hábiles, procederá a llenarla designando el sustituto.
+El hecho de que ocurra una vacante y el sustituto no haya sido nombrado no impedirá a la Junta Directiva sesionar, siempre y cuando haya un número suficiente de miembros para completar el quórum.
+Los miembros de la Junta Directiva serán nombrados por períodos de cuatro años o fracción, contados a partir del ocho de mayo del inicio del período presidencial y podrán ser reelectos.

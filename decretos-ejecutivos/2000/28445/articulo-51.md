@@ -1,0 +1,5 @@
+CAPITULO V
+Unidades Ejecutoras y Contraloría de Unidades Ejecutoras
+Artículo 51.—Se define como Unidades Ejecutoras a los entes nombrados mediante acuerdo de la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias para la ejecución de uno ó varios proyectos de rehabilitación y/o reconstrucción necesarios para la atención de una emergencia declarada mediante decreto ejecutivo de acuerdo con el Plan de Inversión presentado, el cual debe ajustarse en un todo al Plan Regulador de la Emergencia específica.
+Podrán ser Unidades Ejecutoras los Ministerios, los organismos o empresas públicas, u otros organismos de interés público a condición de que cuenten con una adecuada organización administrativa que garantice el debido cumplimiento de las metas propuestas, la óptima satisfacción de las necesidades y el adecuado control en el manejo y uso de los recursos disponibles.
+Para los efectos correspondientes, la Junta Directiva de la Comisión, dictará el reglamento que norme y regule el funcionamiento de las Unidades Ejecutoras.

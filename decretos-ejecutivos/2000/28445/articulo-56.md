@@ -1,0 +1,1 @@
+Artículo 56.—En cualquier tipo de proyecto, independientemente del plazo de duración, las Unidades Ejecutoras deberán presentar a la Contraloría de Unidades Ejecutoras de la Comisión, un informe final detallado de cumplimiento, que incluya los logros obtenidos y el costo total del proyecto y los respectivos finiquitos.

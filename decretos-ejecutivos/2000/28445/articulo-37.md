@@ -1,0 +1,1 @@
+Artículo 37.—El Fondo Nacional de Emergencia estará bajo la supervisión de la Contraloría General de la República y el control y fiscalización inmediata de la Auditoría Interna de la Comisión, lo que tendrá las competencias y potestades que le asigna la Ley Orgánica de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 32.—La Junta Directiva de la Comisión nombrará un Subauditor, de conformidad con la legislación vigente, que sustituirá al Auditor en sus ausencias. Su nombramiento y remoción estará sujeto a las mismas condiciones del Auditor.

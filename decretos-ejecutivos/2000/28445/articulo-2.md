@@ -1,0 +1,1 @@
+Artículo 2º—La Comisión Nacional de Prevención de Riesgos y Atención de Emergencias es un órgano con desconcentración máxima adscrito a la Presidencia de la República. El ejercicio de sus competencias estará regido por lo que dispone el artículo 83 y siguientes de la Ley General de la Administración Pública.
