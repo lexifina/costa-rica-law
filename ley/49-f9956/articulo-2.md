@@ -1,0 +1,2 @@
+Art. 2° - La presente ley surtirá efecto seis meses despues de su promulgacion. respecto de los artículos cuyo aforo se aumenta; inmediatamente en cuanto, á los demás.
+Al Poder Ejecutivo, -Dado en el Salon dè Sesiones Palacio Nacional. San José Diciembre trece de mil ochocientas setenta y siete.--Bruno Carranza, presidente. J. Solano, Secretario. - Palacio Nacional San José, á diez y siete de Diciembre de mil ochocientos setenta y siete. Ejecútese. T. Guardia. El Secretario de Estado en el Despacho de Hacienda y Comercio, Salvador Lara.
