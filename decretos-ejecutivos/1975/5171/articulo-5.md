@@ -1,0 +1,1 @@
+Artículo 5°-La Oficina de Planificación Nacional y Política Económica, asignará, dentro del Presupuesto del Fondo del Plan Nacional de Desarrollo, las partidas que requiera el Consejo Nacional de Pequeña Industria y Artesanía, para los servicios de secretariado técnico y demás necesidades derivadas de sus funciones.

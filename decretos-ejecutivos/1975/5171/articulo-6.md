@@ -1,0 +1,1 @@
+Artículo 6°-El Consejo establecerá sus propios procedimientos y normas de trabajo y realizará sus actividades de acuerdo con un programa que someterá a la Oficina de Planificación Nacional y Política Económica. El Consejo, presentará sus propuestas e informes de trabajo al Presidente de la República, por medio de la Oficina de Planificación Nacional y Política Económica.
