@@ -1,0 +1,9 @@
+# Municipalidad de Santo Domingo Destina Suma Matadero Municipal
+
+Ley N° 205 del 1941-08-08. SINALEVI, ficha 4439: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=4439&param2=4696&param3=1>.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 1 | 1941-08-08 | Ley 205 | 1941-08-08 |
