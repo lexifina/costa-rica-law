@@ -1,0 +1,2 @@
+ARTÍCULO 2- Interpretación
+Las cuestiones relativas a las materias que se rigen por la presente ley que no estén expresamente resueltas en ella, se dirimirán de conformidad con los principios generales en que se basa esta ley, sean: la equivalencia funcional, la neutralidad tecnológica, la inalterabilidad del derecho preexistente, la buena fe, accesibilidad, usabilidad, seguridad tecnológica e interoperabilidad.

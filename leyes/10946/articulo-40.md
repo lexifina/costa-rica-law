@@ -1,0 +1,16 @@
+CAPÍTULO VI
+Obligaciones de Diligencia debida Aplicables a los
+Prestadores de Servicios de Alojamiento de Datos, Incluidas las Plataformas en Línea
+ARTÍCULO 40- Mecanismos de notificación y acción
+1. Los prestadores de servicios de alojamiento de datos establecerán mecanismos que permitan que cualquier persona física o jurídica, pública o privada, con suficiente derecho legítimo cuando sea necesario, les notifique la presencia en su servicio de elementos de información concretos que esa persona física o entidad considere contenidos violatorios de los términos y condiciones.
+2. Los mecanismos mencionados en el punto uno (1) anterior serán tales que faciliten el envío de avisos suficientemente precisos y adecuadamente fundamentados. Con ese fin, los prestadores adoptarán las medidas necesarias para habilitar y facilitar el envío de avisos válidos que contengan todos los elementos siguientes:
+a) Una explicación detallada de los motivos por los que una persona física o entidad considera que la información en cuestión es contenido violatorio.
+b) En la medida de lo posible, pruebas que respalden la alegación.
+c) Una indicación clara de la localización electrónica de esa información, en particular la(s) URL exacta(s) o, en su caso, información adicional que permita detectar el contenido violatorio.
+d) El nombre y una dirección de correo electrónico de la persona física o entidad que envíe el aviso.
+e) Una declaración que confirme que la persona física o entidad que envíe el aviso está convencida de buena fe de que la información y las alegaciones que dicho aviso contiene son precisas y completas.
+3. Una vez recibido el aviso, los proveedores evaluarán discrecionalmente si procede tomar alguna acción respecto del contenido denunciado, siguiendo en todo momento sus propios términos y condiciones. Lo anterior sin perjuicio de que una autoridad judicial ordene tomar una acción determinada respecto de ese contenido denunciado, en los términos regulados en esta ley, en cuyo caso los proveedores deberán acatar la orden judicial.
+4. La información que haya sido objeto de un aviso permanecerá accesible mientras siga pendiente la evaluación por parte del proveedor, sin perjuicio del derecho de los prestadores de servicios de alojamiento de datos a aplicar sus términos y condiciones.
+5. Cuando el aviso contenga el nombre y la dirección de correo electrónico de la persona física o entidad que lo envíe, el prestador de servicios de alojamiento enviará de inmediato un acuse de recibo del aviso a dicha persona física o entidad.
+6. Salvo en casos de reportes abusivos, el prestador también notificará a esa persona física o entidad, sin dilaciones indebidas, su decisión al respecto de la información a que se refiera el aviso e incluirá información sobre las vías y formas en que la persona podrá recurrir o apelar esa decisión.
+7. Cualquier decisión tomada respecto del contenido denunciado, incluso aquella que implique no tomar ninguna acción contra el contenido o el destinatario proveedor de este, deberá ser motivada. Si la decisión implica tomar algún tipo de acción o restricción de las descritas en el artículo siguiente, dicha decisión debe será ser motivada en la forma establecida en dicho artículo.

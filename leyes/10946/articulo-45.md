@@ -1,0 +1,4 @@
+ARTÍCULO 45- Obligación de informar a los consumidores y las autoridades sobre los productos y servicios ilícitos
+1. Cuando un prestador de servicios de una plataforma en línea de comercio electrónico o mercado en línea sea notificado directa y debidamente por una autoridad judicial competente para solicitar el retiro de productos, que un producto o servicio debe ser retirado o suspendido, deberá:
+a) Retirar rápidamente el producto o servicio de su interfaz, y sea razonablemente operativa y tecnológicamente posible.
+b) Cuando se cuente con los detalles de contacto del destinatario de sus servicios y pueda identificarlo sin necesidad de realizar esfuerzos desproporcionados, y sea operativa y tecnológicamente posible, informará a los destinatarios del servicio que hayan comprado dicho producto o servicio sobre la situación, junto con las sugerencias que determine la autoridad competente.

@@ -1,0 +1,3 @@
+ARTÍCULO 11- Regla general de protección
+A los consumidores que participen en el comercio electrónico o sean destinatarios de servicios de la sociedad de la información, se les otorgará una protección transparente y eficaz que no sea inferior al nivel de protección que se otorga en otras formas de comercio no electrónicas.
+Toda plataforma digital que posibilite el comercio electrónico debe cumplir con la información relevante para la toma de una decisión de consumo informada, respetar la normativa en materia de protección de datos personales y sin menoscabo a los derechos que posee el consumidor en general.

@@ -1,0 +1,8 @@
+ARTÍCULO 31- Servicios de copia temporal de datos (memoria caché)
+1. Cuando se preste un servicio de la sociedad de la información consistente en transmitir por una red de telecomunicaciones información facilitada por un destinatario del servicio, el prestador del servicio no podrá ser considerado responsable del almacenamiento automático, provisional y temporal de esta información, realizado con la única finalidad de hacer más eficaz o segura la transmisión ulterior de la información a otros destinatarios del servicio, a petición de estos, a condición de que:
+a) El prestador de servicios no modifique la información.
+b) El prestador de servicios cumpla las condiciones de acceso a la información.
+c) El prestador de servicios cumpla las normas relativas a la actualización de la información, especificadas de una manera ampliamente reconocida y utilizada por el sector.
+d) El prestador de servicios no interfiera en la utilización lícita de tecnología, ampliamente reconocida y utilizada por el sector, con el fin de obtener datos sobre la utilización de la información.
+e) El prestador de servicios actúe con prontitud para retirar la información que haya almacenado, o inhabilitar el acceso a la misma, en cuanto tenga conocimiento efectivo del hecho de que la información contenida en la fuente inicial de la transmisión ha sido retirada de la red, de que se ha inhabilitado el acceso a dicha información o de que una autoridad judicial o administrativa ha ordenado retirarla o impedir que se acceda a ella.
+2. El presente artículo no afectará a la posibilidad de que una autoridad judicial o administrativa competente exija al prestador de servicios que ponga fin a una infracción.

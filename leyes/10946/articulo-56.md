@@ -1,0 +1,2 @@
+ARTÍCULO 56- Prescripción
+Las infracciones graves prescribirán a los tres años, y las leves a los dos años, contados a partir de que se cometa la infracción, salvo que se trate de hechos continuados, en cuyo caso el plazo comenzará a computarse a partir del cese de los hechos. Cualquier solicitud de información relativa a una posible infracción, así como el inicio formal del procedimiento sancionatorio, interrumpen la prescripción. La ejecución de las sanciones impuestas prescribirá a los tres años.

@@ -1,0 +1,2 @@
+ARTÍCULO 42- Exclusión de pymes
+Este capítulo no se aplicará a las empresas registradas como micro, pequeñas y medianas empresas (pymes) ante el Ministerio de Economía, Industria y Comercio (MEIC), por el plazo y en el tiempo en que se mantengan registradas en dicho registro. Tampoco aplicará al pequeño industrial, en los términos del artículo 2 de la Ley 7472, Promoción de la Competencia y Defensa Efectiva del Consumidor, del 20 de diciembre de 1994, y su reglamento.
