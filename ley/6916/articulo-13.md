@@ -1,0 +1,1 @@
+Articulo 13.- El incumplimiento en los pagos, así como la morosidad, de acuerdo con lo que establezca el reglamento que se dictará, hará incurrir al infractor en multas y sanciones similares a las señaladas en el Código Tributario.

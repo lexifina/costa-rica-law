@@ -1,0 +1,1 @@
+Artículo 5º.- El Poder Ejecutivo dispondrá mediante decreto la forma en que se recaudarán los aportes de los productores, para lo cual indicará las entidades, organismos públicos, empresas privadas y personas físicas que actuarán en calidad de agentes recaudadores.
