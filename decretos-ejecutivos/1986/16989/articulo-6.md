@@ -1,0 +1,1 @@
+Articulo 6°-A mas tardar el treinta y uno de octubre de cada año, el Servicio Nacional de Electricidad someterá a la aprobación de la Contraloría General de la República el presupuesto de la institución para el año siguiente.

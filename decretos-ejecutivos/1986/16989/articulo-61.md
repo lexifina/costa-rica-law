@@ -1,0 +1,1 @@
+Artículo 61.-Si alguna de las partes en ejecución de un contrato quisiere obtener un pronunciamiento en primera instancia del Jefe del Departamento Técnico, éste esta facultado para hacerlo y su resolución tendrá el recurso de alzada ante la Junta del Servicio Nacional de Electricidad.

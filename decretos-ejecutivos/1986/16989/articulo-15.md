@@ -1,0 +1,14 @@
+CAPÍTULO CUARTO
+Del Departamento Técnico
+Articulo 15.-Estará bajo el cuidado de un Subdirector el cual deberá ser ingeniero civil o eléctrico que a su vez será el Jefe del Departamento Técnico del Servicio Nacional de Electricidad y tendrá las siguientes funciones:
+a) El control previa o posterior de todos los contadores que instalen en el país las empresas reguladas por este Instituto; la prueba o verificación periódica de los mismos o cuando se trate de reclamos de o contra las empresas.
+b) La inspección de las instalaciones eléctricas, cumpliendo al respecto los reglamentos existentes sobre la materia o los que dictaren, y a falta de estos, observando los principies generales de la técnica.
+c) La atención del público en general en cuanto a reclamos contra las empresas reguladas por el Servicio Nacional de Electricidad, consultas sobre tarifas y otros extremos de los contratos y concesiones existentes.
+d) Velar por el fiel cumplimiento de las disposiciones dictadas por Ia Junta en lo que respecta a constitución, traspaso y traslado de servicios eléctricos.
+e) Autorizar la conexión de servicios provisionales o temporales.
+f) Intervenir en las controversias que se susciten entre las empresas y los abonados, aplicando, cuando fuere del caso las sanciones determinadas en los contratos, para lo cual dictara la resolución en las diligencias creadas al efecto. Si el caso es apelado, enviara el expediente original a la Junta quien resolverá en alzada, dando por agotada la vía administrativa.
+g) Elaborará los proyectos de tarifas y sus modificaciones, para el suministro de servicios que prestan las empresas reguladas por esta Institución de conformidad con las normas técnicas que rigen la materia. Para el cumplimiento de esta función podrá recabar la información que estime necesario del Departamento de Estudios Económico Financieros y de la Oficina de Planificación. Así como elaborar los proyectos de márgenes de utilidad que deben tener las empresas que comercialicen derivados de petróleo.
+h) Ejercer el control, vigilancia e inspección de todas las plantas generadoras de energía eléctrica, debiendo visitarlas periódicamente e informar a la Junta acerca de las medidas que deben tomarse para la buena marcha de las empresas.
+i) Intervendrá en todos los asuntos que le compete, conforme con la ley y supervisara especialmente lo relacionado con la colocación de postes, transformadores, anclas e instalaciones de las empresas reguladas que prestan servicios eléctricos.
+j) Las demás que le confiere la ley, los reglamentos y los que la Junta le asigne.
+k) Para el buen desempeño de las funciones que le concierne, y las que le encomiende la Junta, tendrá a su cargo las oficinas de: Tarifas, Control Eléctrico y Control Telefónico, con las respectivas unidades que la Junta considere convenientes para el buen manejo de la Institución.

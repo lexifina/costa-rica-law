@@ -1,0 +1,1 @@
+Articulo 19. -Las concesiones y derechos para el aprovechamiento de las aguas en el desarrollo de fuerzas, así como la producción, transmisión, transformación y distribución de fuerzas eléctricas de cualquier fuente de energía y que estén comprendidas en la ley N° 258 mencionada, solo pueden obtenerse condicionalmente y por tiempo limitado, el que no excederá de veinticinco años.

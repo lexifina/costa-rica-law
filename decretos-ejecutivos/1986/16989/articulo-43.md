@@ -1,0 +1,3 @@
+Artículo 43. -La concesión es transmisible por convenio, o en virtud de sucesión.
+En el primer caso necesita la aprobación del Servicio Nacional de Electricidad, el cual podrá negarla si la instalación no estuviere en servicio, o si en su concepto el nuevo adquirente no satisface todas las exigencias de la concesión, o si el traspaso debilitare la competencia y se prestare a constituir un monopolio.
+En el segundo caso debe notificarse al Servicio Nacional de Electricidad el nombre de la persona o personas que adquieren la concesión y asumen las obligaciones de la misma, en representación del causante, acompañando la prueba del caso.

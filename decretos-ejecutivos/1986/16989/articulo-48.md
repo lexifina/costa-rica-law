@@ -1,0 +1,1 @@
+Artículo 48.-La concesión se extingue por las causas que se determinan en los artículos 20, 21 y 44 de este Reglamento, en cuyo caso el concesionario deberá restablecer las cosas a su estado primitivo, si las obras obstruyeren el libre curso del agua productora de la fuerza.

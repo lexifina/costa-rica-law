@@ -1,0 +1,1 @@
+Artículo 29.-A la solicitud deben acompañarse planos y descripciones que justifiquen el plan que se va a llevar a cabo, con indicación precisa de los puntos de captación y devolución de las aguas en su caso, a fin de poder apreciar que el proyecto se base en estudios serios que justifiquen una explotación racional.

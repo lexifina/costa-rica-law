@@ -1,0 +1,1 @@
+Articulo 24.-La utilización parcial en un periodo de tres años consecutivos será motivo para declarar la caducidad de los derechos sobre los volúmenes que no se hayan aprovechado, si es imputable al concesionario el motivo por el que no se utilicen las aguas.

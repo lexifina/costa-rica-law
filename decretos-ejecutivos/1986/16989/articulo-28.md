@@ -1,0 +1,7 @@
+Artículo 28.-El escrito en que se pida una concesión nueva expresará:
+a) Nombres y apellidos del solicitante, calidades, vecindario y cédula de identidad. Si la solicitud se presentare por representantes de menores, incapacitados, personas jurídicas o mediante representante o mandatario, deberá acompañarle el documento que acredite esas representaciones.
+b) Certificación del Registro Nacional en que consten la inscripción de la finca sobre la que se pretende el aprovechamiento, con indicación de la naturaleza, situación, cabida y linderos. Si el terreno no estuviere inscrito, se acompañará el título que ampare la propiedad, posesión o certificación de la Tributación Directa; y si existiere título, se hará referencia en la solicitud a la situación, naturaleza, cabida y linderos del inmueble.
+c) EI nombre de la corriente, río, caño o canal, o bien la fuente productora de energía eléctrica si no es el agua, así como el nombre del lugar, distrito o localidad, en donde se intenta instalar la explotación.
+d) La cantidad de agua expresada en litros por segundo y su caída total en metros; que se quiera utilizar, caso de que esa sea la fuente de energía eléctrica.
+e) Potencia teórica que se pretende aprovechar cuando se trate de una fuerza hidráulica y potencia eléctrica, expresada en kilovatios, si se trata de fuerza eléctrica.
+f) Plaza que se desee para emprender los trabajos y termino requerido para que la planta comience a funcionar.

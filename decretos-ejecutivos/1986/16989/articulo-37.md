@@ -1,0 +1,1 @@
+Artículo 37. -Si hubiere solicitudes de Concejos Municipales y de particulares para obtener la concesión, se dará preferencia a las primeras en igualdad de circunstancias, pero siempre se preferirá la solicitud que ofrezca mayores ventajas para el país, especialmente para el cantón interesado, y que asegure la instalación más perfecta.

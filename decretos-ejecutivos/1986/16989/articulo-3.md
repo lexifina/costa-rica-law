@@ -1,0 +1,1 @@
+Articulo 3°-EI Servicio Nacional de Electricidad tendrá su domicilio en la ciudad de San José, su jurisdicción abarca todo el territorio de la República y será regido por un cuerpo directivo denominado Junta del Servicio Nacional de Electricidad.

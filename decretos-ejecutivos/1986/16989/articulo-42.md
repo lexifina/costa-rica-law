@@ -1,0 +1,1 @@
+Artículo 42.-El concesionario no podrá arrojar al agua materias perjudiciales a la salud o que causen daños de cualquier naturaleza si no es de acuerdo con las reglas que el Ministerio de Salud dicte sobre el particular.

@@ -1,0 +1,1 @@
+Artículo 59.-La Junta. resolverá en alzada el reclamo dentro del mismo expediente en una de las siguientes sesiones y lo resuelto por esta que será notificado a las partes, dará por agotada la vía administrativa, dejando a salvo a las partes para recurrir a los Tribunales. Mientras estos no se pronuncien en la vía declarativa, lo resuelto por la Junta deberá ejecutarse.

@@ -1,0 +1,1 @@
+Artículo 34.-Pasado el término probatorio, el Servicio Nacional de Electricidad resolverá la oposición, tomando en cuenta las pruebas aportadas, o en su caso podrá resolverla al momento de dictar la resolución de otorgamiento o denegatoria de la concesión, según lo estime conveniente.

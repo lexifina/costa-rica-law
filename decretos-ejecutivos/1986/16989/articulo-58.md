@@ -1,0 +1,1 @@
+Artículo 58.-Evacuadas las pruebas o no evacuadas por culpa del interesado, el Departamento Técnico dictará la correspondiente resolución la cual tendrá recurso de revocatoria ante este Departamento y de apelación ante la Junta del Servicio Nacional de Electricidad, los cuales deben interponerse dentro del tercer día, siguiente a la respectiva notificación.

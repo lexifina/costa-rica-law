@@ -1,0 +1,4 @@
+Artículo 44.-Las concesiones otorgadas por el Servicio Nacional de Electricidad pagaran los cánones, derechos o tasas, en forma adelantada según los periodos establecidos por el Servicio Nacional de Electricidad.
+Si no fuere pagado el canon, derecho o tasa durante el periodo establecido, podrá hacerlo en el siguiente con un 25% de recargo, y en el tercero, con el 50% de recargo.
+Si transcurrieren tres periodos sin que hubieren hecho los pagos totales, con las multas respectivas, caducara la concesión de fuerza hidráulica o eléctrica.
+En casos muy especiales y cuando el atraso se debe a circunstancias en que el obligado no tuviere culpa, la Junta del Servicio Nacional de Electricidad podrá eximir de la multa; y aún conceder plazos para el pago del principal adeudado, previa solicitud del interesado.

@@ -1,0 +1,1 @@
+Articulo 9°-Toda sesión se hará en las oficinas del Servicio Nacional de Electricidad, salvo que para casos especiales se acuerde lo contrario. La Junta señalará el día y la hora de las sesiones ordinarias, el Director, o quien haga sus veces, presidirá las sesiones.

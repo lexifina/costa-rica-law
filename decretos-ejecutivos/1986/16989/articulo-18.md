@@ -1,0 +1,1 @@
+Articulo 18.-Continuarán en vigencia, por el término y en las condiciones en que hayan sido adquiridas, las concesiones otorgadas con anterioridad a la ley N° 258 de 18 de agosto de 1941, pero quedan sujetas en todo a la vigencia y control del Servicio Nacional de Electricidad.

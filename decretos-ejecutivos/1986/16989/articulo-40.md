@@ -1,0 +1,4 @@
+Artículo 40.-Si el que solicita la concesión no obtiene en virtud de convenio con los interesados, los derechos de terceros, que indispensablemente deben adquirirse para la ejecución de las obras, las autoridad competente puede acordar la expropiación para la instalación, modificación o ensanche de instalaciones hidráulicas productoras de energía eléctrica.
+La expropiación se llevará a cabo por los procedimientos comunes. Son susceptibles de expropiación todos los derechos necesarios para la empresa, tales como los de propiedad, posesión o servidumbre, siempre que estos no reporten a su dueño ninguna utilidad o cuando el provecho que de ellos se deriva no guarda relación con su valor.
+La expropiación puede acordarse cuando la empresa tiene un carácter de utilidad general o en el caso de no haber interés privado de importancia para mantener los derechos existentes.
+Todo gasto procedente de la expropiación será a cargo del concesionario.

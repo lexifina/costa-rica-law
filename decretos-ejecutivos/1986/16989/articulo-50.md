@@ -1,0 +1,1 @@
+Artículo 50.-En cuanto a lo que no esté expresamente previsto en este Reglamento y en la ley N° 258 de 18 de agosto de 1941, se estará a lo dispuesto en la ley N° 276 de 27 de agosto de 1942, tanto en los puntos sustanciales, como en los reglamentarios.

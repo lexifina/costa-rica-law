@@ -1,0 +1,1 @@
+Articulo 12. -El Servicio Nacional de Electricidad contará con tres departamentos denominados: Departamento de Aguas, Departamento de Estudios Económico-Financieros y Departamento Técnico, con las funciones que se determinen en los capítulos siguientes y las que la Junta les asigne.

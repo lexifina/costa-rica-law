@@ -1,0 +1,1 @@
+Artículo 46.-La persona que renuncie al uso de la concesión y que restablezca las cosas a su estado primitivo, deja desde el fin del trimestre en que hace tal manifestación, de estar obligada al pago del canon.

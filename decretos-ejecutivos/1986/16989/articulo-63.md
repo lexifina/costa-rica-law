@@ -1,0 +1,1 @@
+Artículo 63.-También se admitirán gestiones presentadas por un apoderado general o generalísimo y aún por uno especial pudiéndose constituir el mandato en la forma que previene el articulo 1053 del mismo Código.

@@ -1,0 +1,1 @@
+Artículo 35.-Si no hubiere motivos pare denegarla el Servicio Nacional de Electricidad puede otorgar la concesión, dejando a salvo los derechos del opositor, para que ejercite su acción en la vía y forma correspondientes.

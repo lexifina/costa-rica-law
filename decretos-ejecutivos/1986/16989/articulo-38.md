@@ -1,0 +1,2 @@
+Artículo 38.-Será motivo para que el Servicio Nacional de Electricidad rechace de oficio la solicitud por falta de cumplimiento de cualquiera de las disposiciones de la ley y de este Reglamento, dentro de los plazos fijados para tal efecto.
+No se dará la concesión si la instalación proyectada es contraria al interés general, si su ejecución ha de ocasionar perjuicios al público, o causa daños a los intereses de terceros, que no guarden proporción con las ventajas que se deriven de dicha obra.

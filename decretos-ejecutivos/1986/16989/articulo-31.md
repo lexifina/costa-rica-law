@@ -1,0 +1,2 @@
+Artículo 31.-Si los proyectos presentados no se ajustan a las prescripciones anteriores, o son deficientes o contienen errores técnicos, el Servicio Nacional de Electricidad concederá por una sola vez, un plazo que como máximo, será de tres meses, para que el interesado corrija los proyectos o presente otros nuevos.
+Si el solicitante no hiciera las rectificaciones en el plazo concedido, la solicitud se tendrá por no presentada.

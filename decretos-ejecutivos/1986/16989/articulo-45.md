@@ -1,0 +1,1 @@
+Artículo 45.-Los concesionarios deben ajustarse para la construcción, utilización o explotación de sus instalaciones, a la reglamentación que para la protección y seguridad del público, dicte el Servicio Nacional de Electricidad.

@@ -1,0 +1,1 @@
+Articulo 4°-Las resoluciones y acuerdos que dicte el Servicio Nacional de Electricidad en asuntos que por ley o sus reglamentos sean de su incumbencia, pone fin a la vía administrativa y contra ellos solo podrá reclamarse ante los Tribunales de Justicia.

@@ -1,0 +1,1 @@
+Articulo 5°-Los fondos que por cualquier motivo ingresen al Servicio Nacional de Electricidad, serán depositados en el Banco Nacional de Costa Rica. Contra las cuentas corrientes que se mantengan solo podrán girar los funcionarios que expresamente a ese efecto autorice el Director del Servicio Nacional de Electricidad.

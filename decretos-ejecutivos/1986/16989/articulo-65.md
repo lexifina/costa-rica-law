@@ -1,0 +1,1 @@
+Artículo 65.-A todo escrito de oposición o queja se acompañarán tantas copias literales del mismo en papel común, cuantas sean las personas que han solicitado la concesión o hayan sido aludidas en la queja. No se tramitara ninguna oposición si no viniere acompañada de sus respectivas copias.

@@ -1,0 +1,1 @@
+Articulo 10.-En las sesiones ordinarias se seguirá el orden previamente acordado por la Junta. Sin embargo, cuando la urgencia del caso lo requiera, podrá alterarse el orden del día, mediante moción debidamente aprobada.

@@ -1,0 +1,1 @@
+Artículo 60.-Tanto el Jefe del Departamento Técnico como la Junta podrán ordenar que se reciban pruebas para mejor proveer, con o sin la intervención de partes, en caso de que a juicio fueren necesarias esas pruebas para comprobar algunos de los extremos de la litis.
