@@ -13,3 +13,4 @@ Reglamento Empresas Estatales Estructuradas Sociedades Mercantiles
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-02-06 | la propia norma |
+| 2 | 1978-02-06 | SINALEVI (sin norma nombrada) |
