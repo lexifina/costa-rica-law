@@ -1,0 +1,1 @@
+Artículo 23.-Los actuales ocupantes de la zona de doscientos metros a lo largo de la costa atlántica a que se refiere el artículo 62 de la Ley Gel1eral de Terrenos Baldíos, podrán conservar su posesión hasta tanto el Estado no les exija la devolución de las parcelas respectivas, pero dichos ocupantes no podrán en este caso reclamar daño o perjuicio al Estado.
