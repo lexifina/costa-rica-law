@@ -1,0 +1,1 @@
+Artículo 4º—Propietario manifiesta deseo de cumplir requisitos: Si ante la clausura de su construcción, el propietario manifiesta la intención formal y verídica de cumplir con lo solicitado, se procederá de la misma forma que se indica en punto Nº 2.

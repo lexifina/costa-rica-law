@@ -1,0 +1,1 @@
+Artículo 5º—Sellos son ignorados y construcción continúa: En este caso, el Inspector Municipal o el Ingeniero Municipal informarán esta situación a la Alcaldía, acompañando el expediente del caso, para efectos de establecer la procedencia de una acción judicial por lo ocurrido.
