@@ -1,0 +1,1 @@
+Artículo 4°-Será el Ministerio de Ecónoma, Industria y Comercio por medio de la Oficina Nacional de Normas y Unidades de Medida el organismo señalado para dictaminar cualquier asunto relacionado con una etiqueta.
