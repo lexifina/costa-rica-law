@@ -1,2 +1,2 @@
-Artículo 6°—La Comisión Rectora realizará sus funciones de conformidad con los procedimientos establecidos al efecto en el artículo 49 de la Ley General de la Administración Pública.
-(Así reformado por Decreto Ejecutivo N° 30983 del 13-01-2003)
+Artículo 6°—La Unidad Ejecutora Técnica realizará sus funciones de conformidad con los procedimientos establecidos al efecto en el artículo Nº 49 de la Ley General de la Administración Pública.
+(Así reformado por artículo 1° del Decreto Ejecutivo N° 31123 de 3 de marzo de 2003).
