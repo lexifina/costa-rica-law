@@ -1,5 +1,0 @@
-Artículo 49.- La constancia dada por el Secretario del
-Colegio con el visto bueno del Presidente, de que cualquiera de
-los ingenieros debe pagar una determinada cantidad por
-contribución, multa o alcance de cuentas en fondos que haya
-administrado, tendrá fuerza ejecutiva ante los Tribunales.
