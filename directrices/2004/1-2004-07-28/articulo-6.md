@@ -1,0 +1,1 @@
+Artículo 6º—La información requerida deberá ser presentada a más tardar los días 15 de abril, 15 de julio y 15 de octubre correspondiente al trimestre inmediato anterior y en la primera semana del mes de febrero, lo correspondiente al cierre definitivo del período inmediato anterior.
