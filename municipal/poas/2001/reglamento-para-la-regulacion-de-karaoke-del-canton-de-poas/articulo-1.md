@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE POAS
+(NOTA DE SINALEVI: La Municipalidad de Poás mediante sesión N° 8 de 20 de junio de 2006, aprobó el “Reglamento de Patentes”, el cual en su artículo 105 indica”...Toda solicitud de licencia municipal nueva que haya sido presentada antes de la publicación en La Gaceta, y definitiva entrada en vigencia de este Reglamento será tramitada de acuerdo con las normas vigentes en el “Reglamento para el Otorgamiento de Patentes de la Municipalidad de Poás y Reglamento para la Regulación de Karaokes del Cantón de Poás”, que hasta ahora ha regulado lo relativo al otorgamiento de licencias (patentes) municipales. Una vez resueltas y comunicadas todas aquellas solicitudes a los contribuyentes estos reglamentos quedan derogados")
+La suscrita secretaria municipal, certifica que el concejo municipal del cantón de Poás, en sesión ordinaria No 178 en su articulo No 12 celebrada el día 20 de setiembre del 2001. acordó: aprobar el Reglamento para la Regulación de Karaoke presentado por el señor Alcalde Municipal, se acuerda darle su aprobación para su correspondiente publicación en el Diario Oficial La Gaceta. Acuerdo Unánime
+REGLAMENTO PARA LA REGULACIÓN DE KARAOKE
+DEL CANTÓN DE POÁS
+Artículo 1°—Objetivo: Reglamentar el uso de los Karaokes en el Cantón de Poás.
