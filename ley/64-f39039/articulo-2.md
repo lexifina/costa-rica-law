@@ -1,0 +1,1 @@
+Art. 2°-Derógase igualmente el decreto número 78 de la misma fecha, y vuelva el edificio de la Universidad á la propiedad de dicha institución para que preste los servicios á que lo destinaron sus fundadores y el citado decreto de 3 de Mayo de 1843.
