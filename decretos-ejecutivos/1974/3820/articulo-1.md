@@ -1,4 +1,5 @@
 N° 3820-P
+(Este decreto ejecutivo fue derogado por el artículo 31 del Reglamento para la utilización de vehículos del Estado, aprobado mediante decreto ejecutivo N° 19135 del 15 de julio de 1989)
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE LA PRESIDENCIA,
 El siguiente
