@@ -1,1 +1,0 @@
-Artículo II.-Se establece el Programa de Formación Integral Para Mujeres Jefas de Hogar, "ASIGNACION FAMILIAR TEMPORAL", en beneficio de las mujeres jefas de hogar en condición de pobreza, el cual se regirá por las disposiciones jurídicas vigentes y por las siguientes normas:
