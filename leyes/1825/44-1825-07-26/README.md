@@ -1,0 +1,9 @@
+# Caja Pública del Estado Pagará Dietas de Diputados
+
+Ley N° 44 del 1825-07-26. SINALEVI, ficha 24268: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=24268&param2=25678&param3=1>.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 2 | 1825-07-26 | Ley 44 | 1825-07-26 |
