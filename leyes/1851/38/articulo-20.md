@@ -1,0 +1,1 @@
+Art., 20. El presente-decreto: se pondrá en conocimiento del Excelentísimo Congreso en sus primeras sesiones ordinarias.-Dado en fel Palacio Nacional, en San José, á los veintisiete dias del mes de octubre de mil ochocientos cincuenta y uno,-Juan, Rafael Mora.- El Ministro de Estado en el Despacho de Gobernacion, Joaquin Bernardo Calvo."

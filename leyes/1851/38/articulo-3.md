@@ -1,0 +1,1 @@
+Art. 3. No obstante lo prevenido en el artículo anterior, la compañia principiará su empresa por abrir à la brevedad posible un camino bueno para mulas, el cual deberá estar concluido dentro del término de dieziocho meses, contados desde el referido 1° de enero de 1852;

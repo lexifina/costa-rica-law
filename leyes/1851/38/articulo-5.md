@@ -1,0 +1,1 @@
+Art. 5. Esta comision directora será regida por un Reglamento que se formará previamente por otra comision del seno de la scciedad, y aprobado por esta. Corresponde tambien a la comision directora, arreglar la subdivicion de las acciones, señalar los plazos en que estas deben colectarse para ocurrir a los gastos oportunamente y determinar todo lo demas concerniente a la empresa.
