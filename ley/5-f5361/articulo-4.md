@@ -1,0 +1,1 @@
+Art. 4°. Los Jueces de Primera Instancia quedan en la obligación de pasar á la Secretaría de Hacienda una lista detallada, especificando en ella nombres, fechas, cantidades y concursos de que provienen.

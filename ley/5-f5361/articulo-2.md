@@ -1,0 +1,1 @@
+Art. 2. Se de los fondos, a que concede á los tenedores de los fondos a que se refiere el artículo anterior, el plazo improrrogable de quince días, contados desde la publicación de este Decreto, para que verifiquen el entero en el Tesoro Nacional.
