@@ -1,0 +1,1 @@
+Artículo 4°-El contrato bilateral a suscribir entre RECOPE y el MOPT deberá estar formalizado dentro de un plazo improrrogable de quince días hábiles y la participación del MOPT deberá comenzar a partir de la aprobación del contrato por parte de la Contraloría General de la República.
