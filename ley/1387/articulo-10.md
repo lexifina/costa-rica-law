@@ -1,4 +1,4 @@
-Artículo 10.- Al reincidente por primera vez en infracciones
+ARTICULO 10.- Al reincidente por primera vez en infracciones
 previstas en esta ley, se le aplicará la pena respectiva en el extremo
 mayor, y al reincidente por dos o más veces se le aplicará la pena
 agravada en un tercio.
