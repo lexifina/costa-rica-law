@@ -17,8 +17,9 @@ D) Declarar de APTITUD TURISTICA el sector costero de Punta San José y Las Cale
 292.400 N - 494.600 E
 294.300 N - 497.000 E
 según hoja cartográfica Sierpe 3442 II, a escala 1:50.000 del I.G.N.
-E) Declarar de APTITUD TURISTICA el sector costero de Puerto Jiménez, sita en el distrito Jiménez, cantón Golfito, provincia de Puntarenas, ubicado entre las coordenadas Lambert, Costa Rica Sur:
+(*) E) Declarar de APTITUD TURISTICA el sector costero de Puerto Jiménez, sita en el distrito Jiménez, cantón Golfito, provincia de Puntarenas, ubicado entre las coordenadas Lambert, Costa Rica Sur:
 277.350 N - 540.000 E
 277.750 N - 539.350 E
 según hoja cartográfica Golfo Dulce 3541 IV a escala 1:50.000 del I.G.N.
+(*) (Mediante sesión N° 4902 del 8 de marzo de 1999, "Declara Aptitud Turística Sector Costero Puerto Jiménez Golfito Desde Puerto Jiménez hasta Boca del Río Platanares", se dispuso derogar toda aquella declaratoria que se haya practicado en años anteriores para el sector de Puerto Jiménez)
 Lic. Ana Catalina Brenes Loaiza, Jefa Departamento de Concesiones.-

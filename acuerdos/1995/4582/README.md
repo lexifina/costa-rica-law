@@ -14,3 +14,4 @@ Declara Aptitud no Turística los sectores costeros de Punta Mostradores a Punta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-09-12 | la propia norma |
+| 2 | 1999-03-08 | Acuerdo 0 (1999-03-08) |
