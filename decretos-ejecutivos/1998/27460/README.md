@@ -14,3 +14,4 @@ Integra Junta Médica Calificadora de la Incapacidad para el Trabajo, que rige d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-01 | la propia norma |
+| 2 | 1999-09-09 | Decreto Ejecutivo 28141 (1999-09-09) |

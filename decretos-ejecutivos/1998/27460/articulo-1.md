@@ -1,4 +1,6 @@
 N° 27460
+(Nota de Sinalevi Sobre este tema el Poder Ejecutivo había emitido anteriormente el Integra Junta Médica Calificadora de las Incapacidades del Trabajo, para el periodo del 16 de octubre de 1997 al 15 de octubre del 2002. Decreto Ejecutivo N° 26719 del 12 de marzo de 1998.)
+(Nota de Sinalevi: el Poder Ejecutivo aprobó un nuevo Nombra miembros de Junta Médica Calificadora de las Incapacidades para el Trabajo. Decreto Ejecutivo N° 30912 del 13 de diciembre de 2002.)
 EL PRESIDENTE DE LA REPÚBLICA EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL,
 En el uso de las atribuciones que les confiere lo incisos 3, 18 y 20 del artículo 140 de la Constitución Política, y de conformidad con lo dispuesto en el artículo 28, párrafo segundo, inciso b) de la Ley General de la Administración Pública y los artículos 262 y 263 del Código de Trabajo.
 Resultando:
@@ -8,3 +10,4 @@ Resultando:
 4°—Que por la especial naturaleza de las funciones de la Junta Médica Calificadora de la Incapacidad para el Trabajo, aunado a que a la fecha no ha sido resuelta la situación legal de los miembros de esta, resulta necesario poner a derecho su funcionamiento.
 Decretan:
 Artículo 1°—Deróguese el decreto N° 26719-MTSS del nueve de enero de 1998.
+(NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 28141 del 9 de setiembre de 1999, se indica modificar el monto asignado al pago de dietas de los miembros de la Junta Médica Calificadora de la Incapacidad para el Trabajo, establecido en este artículo, y el artículo 2° dispone "que durante el periodo que va del 1° de setiembre al 31 de diciembre de 1998, el monto por dieta por sesión, asignado a los miembros de la Junta Médica Calificadora para la Incapacidad para el Trabajo será de ¢10.208,00 (diez mil doscientos ocho colones sin céntimos). A partir de enero de 1999, el monto correspondiente a la referida dieta ascenderá a ¢12.618,00 (doce mil seiscientos dieciocho colones sin céntimos").
