@@ -1,4 +1,4 @@
-ARTICULO 52.- Reubicación de Poblaciones.
+ARTÍCULO 52.- Reubicación de Poblaciones.
 Cuando para realizar una obra de utilidad o interés público sea
 necesario trasladar poblaciones, el Poder Ejecutivo o la administración
 expropiadora coordinará la reubicación respectiva.

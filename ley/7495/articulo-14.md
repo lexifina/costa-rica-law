@@ -1,4 +1,4 @@
-ARTICULO 14.- Servidumbre constituida.
+ARTÍCULO 14.- Servidumbre constituida.
 EL establecimiento de una servidumbre en favor de la Administración,
 se comunicará a las instituciones que, por ley o reglamento, otorgan
 permisos de construcción o reconstrucción, para que los concedan sólo si

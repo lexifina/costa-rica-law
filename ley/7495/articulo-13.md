@@ -1,4 +1,4 @@
-ARTICULO 13.- Afectación de derechos y servidumbres.
+ARTÍCULO 13.- Afectación de derechos y servidumbres.
 Las disposiciones de esta Ley serán aplicables para constituir
 servidumbres y para todo tipo de afectación de bienes y derechos. Cuando,
 por el tipo de afectación, se le limite sustancialmente la disponibilidad

@@ -1,4 +1,4 @@
-ARTICULO 16.- Restitución.
+ARTÍCULO 16.- Restitución.
 Transcuridos diez años desde la expropiación, el expropiador
 devolverá, a los dueños originales o a los causahabientes que lo soliciten
 por escrito, las propiedades o las partes sobrantes que no se hayan

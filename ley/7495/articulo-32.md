@@ -1,4 +1,4 @@
-ARTICULO 32.- Nombramiento de un representante legal.
+ARTÍCULO 32.- Nombramiento de un representante legal.
 Cuando el bien o el derecho expropiado pertenezca a una entidad que
 carezca de representante legítimo o a una persona que haya fallecido, y
 aún no se haya iniciado el juicio sucesorio, el Juez procederá conforme a

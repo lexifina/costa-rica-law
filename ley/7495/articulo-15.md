@@ -1,4 +1,4 @@
-ARTICULO 15.- Arrendamiento o venta del bien expropiado.
+ARTÍCULO 15.- Arrendamiento o venta del bien expropiado.
 El expropiador podrá dar en arrendamiento la totalidad del bien
 expropiado o parte de él que no necesite de inmediato; además, podrá dar
 en venta cosechas o bienes accesorios que no vayan a utilizarse en la obra
