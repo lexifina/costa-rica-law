@@ -10,9 +10,10 @@ Considerando:
 5º.-Que dicha organización deberá respetar y aprovechar planamente las atribuciones y experiencias de los diversos ministerios involucrados, así como garantizar la coordinación de las autoridades del Gobierno con el Alto Comisionado de las Naciones Unidas para los Refugiados y con otros organismos o agencias nacionales o internacionales.
 Por tanto,
 DECRETAN:
-Artículo 1º.-Créase el Consejo Nacional para los refugiados, adscrito en forma directa y exclusiva a la Presidencia de la República. Su integración será la siguiente:
-a) El Presidente de la República, quien lo presidirá.
-b) El Vicepresidente de la República que el primero designe.
-c) El Ministro de la Presidencia.
-ch) El Viceministro de la Presidencia.
-d) Un coordinador, de nombramiento exclusivo del Presidente de la República, quien desempeñará su función ad honorem.
+Artículo 1º.-Créase el Consejo Nacional para los Refugiados, adscrito a la Presidencia de la República.
+Su integración será la siguiente:
+a) Un Ministro designado por el Presidente de la República, en su representación, quien lo presidirá. Además, velará para que los órganos y dependencias del Estado observen en lo que les corresponda las políticas que dicte el Consejo.
+b) El Vicepresidente de la República.
+c) Un representante del señor Arzobispo de San José.
+Los integrantes de este Consejo no devengarán suma alguna por concepto de dietas. La Dirección General Adjunta asegurará los servicios de secretaria técnica del Consejo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 17076 del 30 de mayo de 1986)

@@ -14,3 +14,4 @@ Crea Consejo Nacional para Refugiados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-09-01 | la propia norma |
+| 2 | 1986-05-30 | Decreto Ejecutivo 17076 (1986-05-30) |
