@@ -1,0 +1,46 @@
+ARTICULO 2
+De los Costarricenses
+1º.- Son Costarricenses todos los habitantes del Estado, nacidos ó
+naturalizados en él. Se adquiere la naturaleza, por residir cinco
+años dentro de sus límites, por obtener carta de tal, por
+matrimoniarse con hija del país, ó por adquirir en él bienes
+raíces. Sin embargo, las personas que se introduzcan al
+territorio del Estado, cualquiera que sea su naturaleza y
+procedencia, y el objeto que traigan, estarán sujetas a sus leyes,
+Juzgados y Tribunales, desde que pisen el suelo Costarricense.
+2º.- Todos los Costarricenses son iguales ante la ley: pero las
+virtudes cívicas, las ciencias, y los grandes servicios al Estado,
+los diferencian entre sí. Tienen derecho: 1º. para procurarse su
+bienestar por algún medio honesto, y disponer libremente de sus
+bienes, en objetos que no sean contrarios a la ley: 2º para que su
+propiedad no sea tomada, aun para usos públicos, sin que
+previamente se justifique necesidad ó motivo de provecho común; y
+en este caso, se les indemnice su valor, según el juicio de
+peritos, nombrados uno por el propietario y otro por la autoridad:
+3º para defender su vida, reputación y fortuna, y para expresar
+sus pensamientos de palabra ó por escrito, siendo responsables por
+el abuso de esta libertad, en uno y otro caso: 4. para pedir,
+también de palabra ó por escrito, y representar sus derechos ante
+las autoridades: 5º para reunirse pacíficamente, con objeto de
+algún placer honesto: 6º para tener en su casa las armas que no
+prohíba la ley, para su propia defensa y la del Estado; pudiendo
+llevar consigo las que les permita la misma ley, y en los caso que
+ella exprese: 7º para que sus casas no sean registradas, ni sus
+personas detenidas, presas ni castigadas, sino en nombre, con las
+formas, y según las disposiciones de la ley: 8º para que en toda
+especie de procedimientos, se les oiga por sí, ó por defensor ó
+personero; y en los criminales se les informe de la causa de
+ellos, no se les impida probar su inocencia, ni se les compela con
+tormentos a declarar contra sí mismos: 9º para que no se les
+juzgue por ley dada después del hecho, ó retroactiva: 10º para que
+no se les imponga confiscación total de bienes por pena ni infamia
+trascendental a sus familias.
+3º.- Son obligados los Costarricenses: 1º a defender el Estado, su
+Soberanía e independencia, y la integridad de su territorio: 2º a
+contribuir en proporción a sus haberes, para los gastos de la
+administración pública; y a servir en ella los oficios, ó cargos
+que se les confieran: 3º a respetarse y servirse mutuamente, a no
+dañarse a si mismo ni a la sociedad, y a respetar y a obedecer las
+leyes, y a las autoridades constituidas por ellas: 4º a procurarse
+con su trabajo la subsistencia personal, y la de sus familias: 5º
+a enseñar oficio, y buenas costumbres a sus hijos.
