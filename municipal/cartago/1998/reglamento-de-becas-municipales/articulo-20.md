@@ -1,1 +1,0 @@
-Artículo 20.-Los solicitantes deberán entregar con el formulario dos fotografías tamaño pasaporte, las cuales serán utilizadas por la Comisión para colocar en el carné que se les dará una vez aprobada la beca por parte del Concejo Municipal y la otra quedará en el respectivo expediente.

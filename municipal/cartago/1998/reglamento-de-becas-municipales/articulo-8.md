@@ -1,1 +1,0 @@
-Artículo N° 8°-El Alcalde Municipal deberá incluir en el Presupuesto Anual Ordinario así como en los extraordinarios la recomendación que realizará la Comisión de Educación, previa aprobación del Concejo Municipal, la suma necesaria para dar cumplimiento al programa de Becas Municipales.

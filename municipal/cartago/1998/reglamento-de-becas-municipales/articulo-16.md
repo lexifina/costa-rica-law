@@ -1,1 +1,0 @@
-Artículo 16.-La Secretaría Municipal será la responsable de notificar una vez aprobado por el Consejo Municipal a cada uno de los beneficiarios de la adjudicación por parte de la Municipalidad de la beca, mediante telegrama o cualquier otro medio que se considere apto.
