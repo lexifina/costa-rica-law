@@ -1,0 +1,2 @@
+PROCEDIMIENTO PARA SU NOMBRAMIENTO
+Artículo 25.—Los Concejos de Distrito, estarán integrados por cinco miembros vecinos del distrito, con una residencia como mínimo de dos años y de los cuales uno, será necesariamente el Síndico de la circunscripción, quien presidirá las reuniones del Concejo y deberán reunir los mismos requisitos para los regidores, que establece el artículo 23 del Código Municipal, y desempeñarán sus cargos gratuitamente.

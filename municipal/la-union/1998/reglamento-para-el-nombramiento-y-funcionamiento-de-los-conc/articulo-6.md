@@ -1,0 +1,1 @@
+Artículo 6° — La Municipalidad creará una comisión para atender en forma exclusiva los asuntos que les remita los Concejos de Distrito. Esta Comisión será integrada en la forma y términos que establece el Código Municipal.
