@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión para establecer la política de negociación deberá fijarse una serie de objetivos o tareas (ver artículo 8) que son las que la van a llevar a tener un proceso de negociación transparente y que apunte al logro de las metas de la Institución.

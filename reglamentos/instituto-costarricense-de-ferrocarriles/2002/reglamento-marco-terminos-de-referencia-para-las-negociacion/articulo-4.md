@@ -1,0 +1,1 @@
+Artículo 4º—La Unidad de Supervisión y Apoyo estará a cargo de evaluar, analizar y generar las recomendaciones que considere pertinentes durante el proceso de negociación, las mismas deben de realizarse por escrito y deben de estar debidamente respaldadas con la documentación correspondiente.

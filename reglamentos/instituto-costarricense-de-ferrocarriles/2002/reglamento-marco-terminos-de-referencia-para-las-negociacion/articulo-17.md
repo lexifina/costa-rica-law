@@ -1,0 +1,1 @@
+Artículo 17.—La Comisión negociadora contará con el apoyo del personal de supervisión y apoyo conformada por las Jefaturas de Auditoría, Contabilidad, Recursos Humanos, Tesorería General y Presupuesto.
