@@ -1,3 +1,4 @@
 Artículo 5.- Conformación
-El Organo Director del Proceso estará conformado por tres miembros propietarios que se sortearán cada vez, de modo que siempre exista un representante de la Gerencia General, un representante de la División de Recursos Humanos y un abogado de la División de Asuntos Jurídicos. Estará adscrito a la División de Recursos Humanos.
+El Organo Director del Proceso podrá estar conformado por uno o por tres miembros, según la complejidad del asunto, a criterio de la Comisión Preliminar. Sus integrantes se escogerán por sorteo del personal que al efecto designe la Gerencia General, previa recomendación del Proceso de Desarrollo Humano.
 Serán motivos de abstención de los miembros designados, los mismo de impedimento y recusación que se establecen en los artículos 49 y siguientes del Código Procesal Civil. En caso de presentarse alguno de los supuestos previstos en dicha normativa, se procederá a nombrar sustitutos, utilizando el sistema de sorteo antes referido.
+Así reformado el párrafo primero de este artículo, por Acuerdo de la Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal, tomado en Sesión No. 3735.

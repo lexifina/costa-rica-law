@@ -1,3 +1,2 @@
 Artículo 6.- Lista de elegibles
-Será responsabilidad de la División de Recursos Humanos, mantener en lista un mínimo de tres grupos de personas, que en su debido momento integrarán el Organo Director del Proceso, para que tramiten en su estricto orden de presentación, las diversas investigaciones que se requieran.
-Dichos grupos estarán conformados por un representante de cada una de las tres Areas dichas, con base en la designación que previamente hará el Superior Jerárquico de cada una de ellas, debiendo éstos además, nombrar un suplente para las ausencias temporales de los miembros designados.
+Derogado por Acuerdo de la Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal, tomado en Sesión No. 3735.

@@ -13,3 +13,4 @@ Reglamento del Procedimiento disciplinario del Banco Popular y de Desarrollo Com
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-12-14 | la propia norma |
+| 2 | 2000-07-20 | Reglamento 3735 (2000-07-20) |
