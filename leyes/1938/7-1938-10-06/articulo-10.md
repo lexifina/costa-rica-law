@@ -1,0 +1,1 @@
+Artículo 10.-El Museo Nacional levantará un inventario de las colecciones registradas, al tenor del artículo 7º, incluyendo: a) descripción sucinta de las especies enumeradas; b) documentos gráficos o fotográficos de identificación; y c) dimensión y peso de cada objeto.

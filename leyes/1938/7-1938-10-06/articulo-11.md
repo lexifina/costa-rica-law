@@ -1,0 +1,1 @@
+Artículo 11.-Es obligatorio el dar cuenta al Museo Nacional de todo hallazgo así de cualquier adquisición de objetos arqueológicos o traspaso de éstos, para su anotación en el Registro y demás efectos de la presente ley.

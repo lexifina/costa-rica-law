@@ -1,0 +1,1 @@
+Artículo 17.-Siempre que se descubran monumentos, ruinas, inscripciones en rocas o cualquier otra cosa de interés arqueológico, en terrenos públicos o particulares, habrá de dársele cuenta a las autoridades locales para que tomen las medidas precautorias que estimen convenientes, mientras se le notifica a la Dirección del Museo Nacional para lo que haya lugar.

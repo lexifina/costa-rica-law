@@ -1,0 +1,1 @@
+Artículo 8º.-Al mismo tiempo,el Museo abrirá otro Registro para inscribir todos los objetos arqueológicos de propiedad particular que haya en el país, con especificación de su naturaleza científica, artística o histórica y del nombre y domicilio del propietario.
