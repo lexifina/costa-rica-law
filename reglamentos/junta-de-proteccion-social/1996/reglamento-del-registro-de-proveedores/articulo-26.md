@@ -1,0 +1,1 @@
+Artículo 26.-Cuando al proveedor se le aplique una sanción de suspensión o exclusión para contratar con la Administración, con apego a las regulaciones que sobre la materia contenga el ordenamiento jurídico, tal circunstancia se hará constar en el Registro de Proveedores.

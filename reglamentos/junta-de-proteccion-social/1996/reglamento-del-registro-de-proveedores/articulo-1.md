@@ -1,0 +1,3 @@
+JUNTA DE PROTECCION SOCIAL DE SAN JOSE
+REGLAMENTO DEL REGISTRO DE PROVEEDORES
+Artículo 1°-La Junta de Protección Social de San José por medio del Departamento de Proveeduría y de conformidad con el artículo 108 de la Ley de Contratación Administrativa, será la encargada de mantener un Registro de Proveedores. Este será un instrumento básico para las contrataciones de bienes y servicios, que incorpora las personas físicas y jurídicas que deseen contratar con la Institución, de tal manera que quienes participen en el proceso de contratación administrativa de la Institución estén registrados y evaluados en forma integral en cuanto a su historial, capacidad técnica y jurídica.

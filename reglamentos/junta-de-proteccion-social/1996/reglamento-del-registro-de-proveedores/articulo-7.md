@@ -1,0 +1,1 @@
+Artículo 7°-EI Registro de Proveedores tiene por objeto lograr la mayor participación de oferentes en los diferentes tipos de contratación que promueve la Institución, por ello los interesados se deberán inscribir única y exclusivamente en los bienes y/o servicios que está en capacidad de ofrecer. .

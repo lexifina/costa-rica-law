@@ -1,0 +1,1 @@
+Artículo 11.-Todos los documentos que presente el proveedor deben ser firmados por quien ostente la representación legal de la empresa, según lo demuestren las certificaciones que adjunta a la solicitud.

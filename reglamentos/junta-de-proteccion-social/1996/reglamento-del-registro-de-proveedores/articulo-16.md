@@ -1,0 +1,1 @@
+Artículo 16.-EI sistema computadorizado que se utilice deberá permitir la actualización de datos generales, bienes y servicios que ofrece y antecedentes del proveedor, con sus respectivas consultas y reportes. Este sistema incluye todos los bienes y servicios descritos en el Manual

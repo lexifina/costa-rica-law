@@ -1,0 +1,2 @@
+De los antecedentes del proveedor
+Artículo 28.-Este registro es un historial del proveedor en el que se incluirán los siguientes aspectos: datos de Resoluciones Sancionatorias (y fecha de resolución, nombre del proveedor, fecha de notificación, fecha de vencimiento, extracto del fondo de la resolución), referencia de documentos, resultado de estudios de la Administración basados en inspecciones a la planta física y/o procesos de producción del proveedor, y todo otro aspecto o dato que por su interés administrativo se considere importante incorporar al registro.

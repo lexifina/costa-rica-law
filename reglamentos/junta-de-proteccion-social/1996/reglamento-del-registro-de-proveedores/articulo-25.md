@@ -1,0 +1,1 @@
+Artículo 25.-Existirá la facultad de exclusión unilateral de la Administración, cuando las circunstancias lo ameriten, previa comunicación al Proveedor, quien en caso de inconformidad, podrá recurrir la actuación por medio de los recursos ordinarios que establece la ley.

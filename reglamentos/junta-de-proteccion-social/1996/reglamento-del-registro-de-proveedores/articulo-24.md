@@ -1,0 +1,1 @@
+Artículo 24.-La Administración estará obligada a mantener integrado en forma indefinida en el Registro de Proveedores, a todas aquellas personas físicas o jurídicas que han sido incluidas con sujeción a los procedimientos preestablecidos. salvo que por situaciones que se dirán ameriten su exclusión.

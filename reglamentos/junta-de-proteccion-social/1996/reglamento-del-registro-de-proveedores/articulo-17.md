@@ -1,0 +1,2 @@
+Clasificación de Artículos.
+Artículo 17.-EI Manual de Clasificación de Artículos es e instrumento oficial que contiene una descripción básica de los bienes y servicios que interesan a la Institución contratar, para el cumplimiento y protección de los intereses colectivos que le han sido asignados. El Departamento de Proveeduría estará en la obligación de sujetarse a su utilización y a la necesaria codificación de sus pedidos o requerimientos de compra conforme a este catálogo.

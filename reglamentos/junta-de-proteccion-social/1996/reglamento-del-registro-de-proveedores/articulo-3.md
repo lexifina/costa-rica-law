@@ -1,0 +1,1 @@
+Artículo 3°-El Departamento de Proveeduría será el responsable de organizar y mantener actualizado el Registro de Proveedores, en cuanto a requisitos, características de los proveedores, descripción detallada de los bienes y/o servicios que ofrece cada proveedor para una adecuada toma de decisiones.

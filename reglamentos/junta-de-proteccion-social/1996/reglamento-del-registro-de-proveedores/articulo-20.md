@@ -1,0 +1,2 @@
+De la inclusión
+Artículo 20.-Una vez recibida la solicitud de los interesados para integrar el Registro de Proveedores, el Departamento de Proveeduría procederá sin demora a verificar el cumplimiento de los requisitos y en caso de existir un incumplimiento o defecto, procederá a conceder un plazo máximo de 5 días hábiles para que se subsane. Si la prevención no es atendida en tiempo, la solicitud se tendrá rechazada sin más trámite.

@@ -1,0 +1,1 @@
+Artículo 14.-Si un proveedor no está registrado, para participar en los procedimientos ordinarios (licitación por registro, licitación restringida) que promueva la Institución, el proveedor deberá inscribirse presentando los documentos, antes del vencimiento del plazo para recibir ofertas.

@@ -1,0 +1,2 @@
+De las sanciones y exclusiones
+Artículo 22.-Cuando el proveedor inscrito se invite a participar en algún concurso que promueva la Institución, en caso de no mostrar interés, deberá presentar una justificación (puede hacerse vía fax) ante el Departamento de Proveeduría en un plazo no mayor de 15 días, si en tres oportunidades que se le invita a participar el proveedor no presenta la justificación oportunamente, será excluido automáticamente del Registro de Proveedores.

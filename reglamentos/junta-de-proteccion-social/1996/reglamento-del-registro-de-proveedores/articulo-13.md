@@ -1,0 +1,1 @@
+Artículo 13.-Las personas físicas y jurídicas que se inscriban se obligan a informar oportunamente cualquier cambio que ocurra en la empresa ya sea en los productos registrados o cambios en poderes otorgados.
