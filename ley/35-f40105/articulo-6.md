@@ -1,0 +1,1 @@
+Art 6.- También se recibirá el Tabaco conocido con el nombre de 3ª pagándolo al cosechero á ocho reales arroba, y vendiéndolo en tercena separada a uno y medio reales libra; siendo el honorario de este tercenista un seis por ciento como lo demás.

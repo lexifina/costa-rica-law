@@ -1,0 +1,1 @@
+Art 2°.- Para la primer habilitación y compra de cueros, tomará lo que haya en áreas públicas del Estado en clase de depósito o de cualquiera otro modo en calidad de empréstito y los productos de las tercenas para proporcionar a la Factoría la cantidad necesaria para la segunda, y pago de la cosecha.
