@@ -1,0 +1,1 @@
+Artículo 2º—Fundamento Legal. Ley Constitutiva de la Caja Costarricense de Seguro Social y Ley Reguladora del Mercado de Valores. Asimismo la constitución del Comité de Riesgo para los Fondos Institucionales se da mediante acuerdo de Junta Directiva, en el artículo 29º de la sesión Nº 7835, celebrada el 19 de febrero de 2004.

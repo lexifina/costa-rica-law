@@ -1,0 +1,1 @@
+Artículo 8º—La Unidad de Administración Integral de Riesgos. El Comité Integral de Riesgos se apoyará en una unidad especializada en riesgos cuyo objeto será identificar, medir, monitorear e informar a dicho comité y a los órganos y funcionarios a que se refiere el literal c) del Artículo anterior, los riesgos cuantificables que enfrente los Fondos Institucionales.
