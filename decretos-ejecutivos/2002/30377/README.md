@@ -14,3 +14,4 @@ Modifica el límite de gasto presupuestario del Museo Nacional de Costa Rica est
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-15 | la propia norma |
+| 2 | 2002-06-17 | Decreto Ejecutivo 30550 (2002-06-17) |
