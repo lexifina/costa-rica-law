@@ -1,0 +1,1 @@
+Artículo 4°-Autorízase a la Procuraduría General de la República para segregar del inmueble citado el lote que se traspasará, y a hacer el traspaso a que se refiere la presente ley, el cual, junto con la inscripción del inmueble en el Registro Público, estarán exentos del pago de toda clase de tributos y honorarios.
