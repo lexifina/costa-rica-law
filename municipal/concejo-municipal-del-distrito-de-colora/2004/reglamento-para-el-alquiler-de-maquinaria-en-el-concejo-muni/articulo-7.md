@@ -1,0 +1,1 @@
+Artículo VII.—Los operarios deben colaborar con el control del tiempo cuando realizan trabajos en el que la maquinaria está alquilada y deben pasar el resumen del tiempo controlado al señor intendente con el fin de que se inicie la gestión de cobro correspondiente.

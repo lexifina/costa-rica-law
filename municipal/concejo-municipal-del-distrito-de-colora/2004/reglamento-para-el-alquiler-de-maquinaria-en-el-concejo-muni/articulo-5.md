@@ -1,0 +1,1 @@
+Artículo V.—Para poder iniciar los contratos debe existir un contrato formal entre las partes y una cancelación del 50 por ciento del valor del contrato por parte del interesado en el servicio de la maquinaria.
