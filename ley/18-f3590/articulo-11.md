@@ -1,0 +1,1 @@
+Art 11° El Banco emitirá billetes y el monto del valor de ellos en circulación, será representado por el dinero que haya en la caja y por los valores que en la misma existan de fácil realización. Único: Las proporciones entre los valores en caja y los billetes en circulación serán fijados por los Estatutos.
