@@ -1,0 +1,4 @@
+Artículo IV
+Salvo estipulación en contrario, el tribunal se compondrá de tres miembros. Cada Parte nombrará un árbitro, y ambas se entenderán para la elección del tercer árbitro. Si no se llegare a un acuerdo acerca de este punto, las Partes se dirigirán a una tercera Potencia para que Ella haga esta designación, y, a falta de acuerdo aun en este punto, se dirigirá una petición con este fin a su Majestad la Reina de los Países Bajos o a sus Sucesoras.
+El tercer árbitro será elegido en la lista de los miembros de la Corte permanente de arbitraje establecido por la citada Convención de el Haya. Ni los árbitros, ni el tercer árbitro pueden ser nacionales de alguna de las Partes, ni estar domiciliados o residir en sus territorios.
+No podrá ser árbitro tercero la misma persona en dos asuntos sucesivos.
