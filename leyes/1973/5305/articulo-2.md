@@ -1,0 +1,1 @@
+Artículo 2º.- El Servicio Social Odontológico con carácter obligatorio será desempeñado en los circuitos médicos, en los hospitalarios o en otras instituciones de asistencia pública, a juicio del Ministerio de Salubridad Pública, durante un período de un año, de conformidad con lo que se se establece en los artículos siguientes.
