@@ -1,4 +1,4 @@
-Artículo 82. — Los asientos que se hagan en el Registro Central y las declaraciones que se hagan a los Registradores Auxiliares, no causarán derecho alguno.
-A cada certificación que se expida en el Registro Central se agregará un timbre del valor de un colón.
-Por el expediente que se levante previo a la celebración del matrimonio civil, y por éste, se agregará un timbre de cinco colones a cada certificación que debe remitirse al Registro Central para su inscripción.
+Artículo 82.—Por los asientos que se extienden en el Registro Central y las declaraciones que se hagan a los Registradores Auxiliares, Tesoreros de las Juntas de Caridad etc., no se cobrará remuneración alguna.
+A cada certificación que expida el Registro Central, lo mismo que a la constancia de no aparecer inscrito un asiento, debe agregarse un timbre por valor de (¢ 2-00) dos colones.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 17 del 20 de abril de 1925)
 Dado en el Palacio Nacional.—San José, a los veinticinco días del mes de julio de mil novecientos trece.
