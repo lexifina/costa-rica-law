@@ -34,3 +34,4 @@ Reglamento a la Ley de Fomento de las Exportaciones
 | 19 | 1988-04-12 | Decreto Ejecutivo 18095 (1988-04-12) |
 | 20 | 1988-05-18 | Decreto Ejecutivo 18161 (1988-05-18) |
 | 21 | 1989-08-31 | Decreto Ejecutivo 19170 (1989-08-31) |
+| 22 | 1989-09-27 | Decreto Ejecutivo 19204 (1989-09-27) |
