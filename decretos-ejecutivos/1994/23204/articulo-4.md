@@ -1,0 +1,1 @@
+Artículo 4°-El Primer Vicepresidente de la República, será quien presida el Consejo y será asistido por el Director de la Dirección General de Planificación y Cooperación Internacional del MIRENEM" que actuará como Secretario Técnico.
