@@ -1,0 +1,1 @@
+Artículo 6º—Las solicitudes serán consideradas por su orden de recepción en la Secretaria Municipal y conforme hayan cumplido con todos los requisitos exigidos en los artículos 2º y 3º de este Reglamento.

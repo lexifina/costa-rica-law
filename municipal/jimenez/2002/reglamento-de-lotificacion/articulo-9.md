@@ -1,0 +1,1 @@
+Artículo 9º—La Municipalidad una vez que tenga definida y aprobada la gestión del solicitante, procederá a la contratación de los planos de catastro de cada beneficiario y previa autorización de la Contraloría General de la República autorizará el otorgamiento de la escritura ante el notario que designe la Corporación Municipal.

@@ -1,0 +1,1 @@
+Artículo 7º—Los resultados de la Comisión en el estudio de las solicitudes, serán presentados al Concejo Municipal al que se le recomendarán las personas a elegir. La decisión final de las propuestas formuladas por la Comisión estará a cargo del Concejo Municipal.
