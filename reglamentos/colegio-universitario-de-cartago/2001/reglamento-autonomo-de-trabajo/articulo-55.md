@@ -1,0 +1,1 @@
+Artículo 55.—Cuando sea ineludible el reajuste de un docente, por no apertura de cursos por disminución de la matrícula, después de haber agotado toda posibilidad de reubicación, o desempeño de funciones en acción social o investigación, el CUC procederá al pago de las prestaciones proporcionales, con arreglo a lo establecido en el Estatuto de Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 33.—La declaratoria de inopia, corresponderá al Servicio de Personal, y se dará cuando habiéndose realizado los concursos correspondientes, ninguno de los oferentes reúna los requisitos establecidos, en caso de los docentes, se procederá conforme a lo establecido en el artículo 10 de la Ley Nº 6541.

@@ -1,0 +1,1 @@
+Artículo 29.—Para efectos de los concursos internos o externos, la calificación de las ofertas para puestos se hará con base en una escala del uno al cien por ciento (1 al 100%), estableciéndose la calificación de setenta como mínimo.

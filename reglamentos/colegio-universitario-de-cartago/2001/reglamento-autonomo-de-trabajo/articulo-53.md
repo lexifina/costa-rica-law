@@ -1,0 +1,1 @@
+Artículo 53.—La asignación de la carga académica para un profesor de tiempo completo no deberá contener más de tres cursos diferentes. Que podrán ser impartidas en las diferentes carreras de la institución.

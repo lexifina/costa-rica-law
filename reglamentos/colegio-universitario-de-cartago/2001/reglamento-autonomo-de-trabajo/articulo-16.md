@@ -1,0 +1,1 @@
+Artículo 16.—En su relación de servicio, el servidor estará sujeto a las condiciones establecidas en el contrato de trabajo, las cuales se formalizarán mediante acción de personal expedida por el Servicio de Personal, y autorizadas por el Decano.

@@ -1,0 +1,1 @@
+Artículo 92.—El CUC pagará el 100% de la incapacidad, luego rebajará el importe respectivo al pagar las planillas a la Caja Costarricense del Seguro Social, según convenio suscrito entre ambas instituciones.

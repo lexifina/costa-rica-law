@@ -1,0 +1,1 @@
+Artículo 38.—El expediente del personal deberá contener todos aquellos documentos y datos que sirvan para determinar el historial de la relación de servicio en asuntos como: asistencia, evaluación del desempeño, disciplinarios, calidad del funcionario, y otras que se consideren de importancia.

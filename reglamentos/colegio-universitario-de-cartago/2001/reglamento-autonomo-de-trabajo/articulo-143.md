@@ -1,0 +1,3 @@
+Artículo 143.—El despido se efectuará sin responsabilidad para el CUC, previo cumplimiento del procedimiento establecido en este Reglamento, en los siguientes casos:
+1. Cuando el servidor en dos ocasiones se le imponga suspensión e incurra nuevamente en causal que motive una suspensión, en un período de tres meses, ya que se considera la reincidencia en infracciones como conducta irresponsable y contraria a las obligaciones del contrato de trabajo o relación de servicio.
+2. En los casos especialmente previstos en este Reglamento y en el artículo 81 del Código de Trabajo, como también aquellas causales que se establezcan en la Ley General de la Administración Pública y en general, todas aquellas que se establecen en leyes conexas y supletorias, decretos y reglamentos.

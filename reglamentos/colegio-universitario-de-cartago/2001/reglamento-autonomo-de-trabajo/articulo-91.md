@@ -1,0 +1,1 @@
+Artículo 91.—Para los casos protegidos por la CCSS o por el INS, el CUC reconocerá el subsidio necesario para completar el salario completo devengado por el servidor, conforme a su antigüedad y en la forma prevista en el artículo siguiente.

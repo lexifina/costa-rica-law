@@ -1,0 +1,1 @@
+Artículo 26.—La publicación del concurso interno deberá consignar los requisitos del puesto, características y salario. Se imprimirá en caracteres legibles y se colocará en los sitios más visibles de todos los centros de trabajo de la Institución donde se mantendrá por un plazo no inferior a quince días.

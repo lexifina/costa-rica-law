@@ -1,0 +1,1 @@
+Artículo 102.—Ningún servidor una vez que se le asigne un salario base de la categoría correspondiente devengará un salario diferente, salvo que se le recarguen funciones de otros puestos con salario de categoría superior, en cuyo caso tiene derecho a percibir el salario base del puesto de categoría superior que ocupará.

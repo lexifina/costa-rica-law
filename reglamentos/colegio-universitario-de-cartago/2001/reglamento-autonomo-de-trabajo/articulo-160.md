@@ -1,0 +1,2 @@
+Artículo 160.—Recibida por el superior queja o denuncia, o informado de presunta falta, si fuere de su competencia según la gravedad de la misma, procederá a levantar la información y resolverá lo conducente, a la mayor brevedad posible.
+Si por cualquier medio la jefatura inmediata se informare sobre la comisión de falta que no fuere de su competencia elevará el asunto, sin resolución, a el Servicio de Personal, quien procederá conforme lo que se dispone en este capítulo.

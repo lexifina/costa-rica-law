@@ -1,0 +1,1 @@
+Artículo 108.—El cambio de lugar donde se prestarán los servicios deberá ser puesto en conocimiento del personal afectado, por lo menos con ocho días de anticipación, salvo casos de fuerza mayor que imposibiliten tal disposición.

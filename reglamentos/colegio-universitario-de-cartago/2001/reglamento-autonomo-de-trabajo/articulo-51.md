@@ -1,0 +1,1 @@
+Artículo 51.—El CUC podrá realizar nombramientos docentes interinamente por vacantes imprevistas. El funcionario así nombrado permanecerá en su puesto mientras se realice el trámite normal de contratación que corresponda o regrese el titular, según se trate de una vacante definitiva o temporal. Ningún nombramiento interino podrá ser superior a doce meses.

@@ -1,0 +1,1 @@
+Artículo 93.—Tratándose de incapacidad para trabajar por riesgo profesional se estará a lo dispuesto en el artículo 236 de la Ley sobre Riesgos de Trabajo y sus reformas, garantizándose en todo caso el pago del ciento por ciento de su salario.

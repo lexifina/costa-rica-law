@@ -1,0 +1,1 @@
+Artículo 52.—El CUC podrá contratar profesores por fracciones de tiempo completo. Ningún profesor podrá ser remunerado por una jornada mayor a la definida como tiempo y medio, excepto casos especiales, hasta por un cuatrimestre, autorizados por el Decano.

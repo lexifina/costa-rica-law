@@ -1,0 +1,1 @@
+Artículo 28.—En todo caso, las plazas vacantes podrán ser llenadas atendiendo lo señalado en este reglamento; dichas plazas podrán ser ocupadas en forma interina por la persona designada para ello, mientras se realiza el concurso interno, hasta por el término de dos meses, período que podrá ser prorrogado atendiendo las circunstancias particulares del mismo.

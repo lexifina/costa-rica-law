@@ -1,0 +1,1 @@
+Artículo 80.—La necesidad de comprobar las causales que se indican en el artículo anterior, quedan a juicio de la Jefatura del Servicio de Personal. En caso de simulación o engaño de parte del servidor, éste no tendrá derecho a salario alguno y se hará acreedor a la sanción que pudiere corresponder de conformidad con las disposiciones contenidas en este Reglamento.

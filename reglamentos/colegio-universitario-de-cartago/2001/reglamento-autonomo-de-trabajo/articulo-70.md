@@ -1,0 +1,1 @@
+Artículo 70.—Todos los servidores de la institución, de cualquier categoría que sean y cualquiera que sea la forma en que se desempeñen en sus labores y en que se les pague su salario, tendrán derecho al salario escolar en la proporción que la legislación vigente establezca, y será entregado en el momento en que la misma defina.

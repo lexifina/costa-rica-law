@@ -1,0 +1,1 @@
+Artículo 192.—En defecto de disposiciones propias de este Reglamento deberán tenerse como supletorias las contenidas en el Estatuto de Servicio Civil y demás leyes, decretos y reglamentos conexos en la materia que esté en vigencia. Asimismo el Manual Descriptivo de Cargos del CUC.

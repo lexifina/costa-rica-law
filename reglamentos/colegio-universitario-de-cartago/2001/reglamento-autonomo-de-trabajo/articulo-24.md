@@ -1,0 +1,1 @@
+Artículo 24.—En los casos de nombramiento en propiedad, ascensos, permutas y traslados deberá cumplirse con un periodo de prueba de un mínimo de tres meses, pudiendo abreviarse a juicio de la Decanatura.

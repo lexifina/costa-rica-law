@@ -1,0 +1,1 @@
+Artículo 119.—El control y salida durante el tiempo destinado a la hora de almuerzo, queda bajo la responsabilidad de cada jefe inmediato, quien establecerá los mecanismos necesarios para ello, de manera que no se cierre el despacho y no se ocasione menoscabo en la prestación del servicio.

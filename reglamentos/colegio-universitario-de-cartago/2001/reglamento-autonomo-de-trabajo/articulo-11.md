@@ -1,0 +1,4 @@
+Artículo 11.—Son principios éticos del servidor los siguientes:
+a. Orientar el ejercicio de la función pública a la satisfacción del bien común, que es su fin último y esencial. Para ello el servicio que se preste tenderá al mantenimiento y aplicación de los valores de seguridad, justicia, solidaridad, paz, libertad y democracia.
+b. La lealtad, la eficacia, la probidad y la responsabilidad, son valores fundamentales que deberán tenerse presentes en el ejercicio de la función pública. También se tendrán presentes los principios del servicio público. Los deberes y prohibiciones que deben acatar los funcionarios se fundamentan en esos valores y principios.
+c. El funcionario es un servidor de los administrados y en particular de cada individuo o administrado que con él se relacione en virtud de la prestación de servicio y de la función que desempeñe la cual debe atender de una manera integral, con aplicación plena de conocimientos, aptitudes y valores.

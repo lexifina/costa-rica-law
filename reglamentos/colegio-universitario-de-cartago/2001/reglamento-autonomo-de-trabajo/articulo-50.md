@@ -1,0 +1,1 @@
+Artículo 50.—Los coordinadores de carrera deberán poseer al menos el grado de Licenciado universitario, afín al cargo. Serán nombrados por el Decano mediante concurso interno, en caso de no existir candidato calificado, el Decano procederá de acuerdo con lo establecido en este Reglamento.

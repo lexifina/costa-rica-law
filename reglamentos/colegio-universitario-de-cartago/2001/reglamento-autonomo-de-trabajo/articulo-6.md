@@ -1,0 +1,1 @@
+Artículo 6º—El acto administrativo interno sólo producirá su efecto después de notificado al servidor de conformidad con lo dispuesto en el artículo 140 de la Ley General de la Administración Pública, excepto si le concede únicamente derechos o beneficios, en cuyo caso lo producirá desde que se adopte.

@@ -1,0 +1,1 @@
+Artículo 75.—El lapso comprendido entre el tercer sábado de diciembre y el segundo lunes de enero del año siguiente, la Semana Santa y la primera semana de julio, el CUC permanecerá cerrado. Durante estos períodos sus servidores disfrutarán de vacaciones.

@@ -1,0 +1,4 @@
+Artículo 182.—Concluida la audiencia de recepción de la prueba testimonial, la Jefatura de personal, el Decano o el Concejo,, según sea el caso, resolverá en un plazo máximo de ocho días hábiles, la existencia o no de la falta denunciada. En caso de comprobarse ésta, rendirá un informe a el Servicio de Personal recomendando que la falta sea sancionada de la siguiente forma:
+1. Si se trata de un trabajador, en aplicación del artículo 25 de la Ley Nº 7476, se le sancionará con amonestación, suspensión del trabajo sin goce de salario o despido sin responsabilidad patronal, según la gravedad de la falta.
+2. Si se trata del Decano, éste será separado del puesto conforme el procedimiento establecido en el Decreto Ejecutivo Nº 12711-E.
+De no probarse la falta, se ordenará el archivo del expediente.

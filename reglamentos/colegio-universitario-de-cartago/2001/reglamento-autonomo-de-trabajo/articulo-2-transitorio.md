@@ -1,0 +1,1 @@
+II.—En el caso de los servidores que laboran actualmente para el CUC, que hayan sido nombrados por inopia, por no cumplir con los requisitos exigidos para el puesto, tendrán la condición de interinos, hasta que dichas plazas sean sacadas a concurso y se nombre a un funcionario en propiedad.

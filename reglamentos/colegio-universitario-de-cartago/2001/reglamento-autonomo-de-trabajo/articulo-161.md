@@ -1,0 +1,1 @@
+Artículo 161.—En casos muy calificados y cuando, por la naturaleza de la presunta falta, se considere perjudicial la permanencia del servidor en el puesto, la Jefatura de el Servicio de Personal, mediante acción de personal, ordenará la suspensión con goce de salario en el cargo, o su traslado temporal a otro puesto.

@@ -1,0 +1,1 @@
+Artículo 25.—Cuando resulte necesario realizar un concurso por oposición, el Servicio de Personal publicará su apertura dentro de los siguientes treinta días naturales posteriores a aquel en que se produjo la vacante.
