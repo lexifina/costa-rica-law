@@ -1,0 +1,1 @@
+Artículo 7°.- Todo funcionario que tenga un vehículo oficiala su servicio, podrá retirar los combustibles y lubricantes que se señalen por acuerdo del respectivo funcionario y la Contraloría General de la República.

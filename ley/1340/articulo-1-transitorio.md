@@ -1,0 +1,1 @@
+Transitorio I.- Dentro de los treinta días subsiguientes a la fecha en que entre a regir esta ley, las Municipalidades e Instituciones afectadas someterán a conocimiento y aprobación de la Contraloría General de la República los respectivos Reglamentos para el uso de sus vehículos.

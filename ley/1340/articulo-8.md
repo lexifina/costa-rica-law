@@ -1,0 +1,2 @@
+Artículo 8°.- La partida de gasolina se fijará en la Ley de Presupuestos independiente de cualquier otra y para cada Ministerio. En dicha Ley se señalará para tales gastos únicamente lo que resulta de la asignación que haga la Contraloría General de la República, de conformidad con el artículo 4° de esta ley. Igualmente, se podrá incluir en la Ley de Presupuesto el gasto señalado en el artículo anterior.
+La presente ley no aplicará al Ministerio de Seguridad Pública, en casos de emergencia o calamidad nacional.

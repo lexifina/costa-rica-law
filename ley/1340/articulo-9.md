@@ -1,0 +1,1 @@
+Artículo 9°.- La fijación de plazas de choferes que haga cada ministerio , las de estar de acuerdo con el número de vehículos a su cargo que requieran encargado fijo. Se podrá autorizar la creación de plazas de choferes para los automóviles señalados en el artículo 2° de esta ley.
