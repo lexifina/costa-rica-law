@@ -1,6 +1,7 @@
 N° 26515-J
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE JUSTICIA Y GRACIA,
+(NOTA: Este decreto fue ampliado por el artículo 1° del decreto ejecutivo N° 28940 en el sentido de que se autoriza al Registro Nacional a celebrar convenios de desconcentración de servicios con empresas servicio que se constituyen en sociedades anónimas, cuyo capital sea 100% del estado que puedan brindar el servicio de emisión de certificaciones a la ciudadanía que así lo requiera)
 En ejercicio de las facultades que les confieren el artículo 140, inciso 20) de la Constitución Política,
 Considerando:
 1°—Que con los avances tecnológicos actuales, el Registro Nacional está en capacidad de descentralizar los servicios de certificaciones del índice de Propietarios, Literales de Inmuebles y de Vehículos.

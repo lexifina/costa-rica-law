@@ -14,3 +14,4 @@ Autoriza a Registro Nacional Convenios de Desconcentración Servicios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-12-18 | la propia norma |
+| 2 | 2000-09-28 | Decreto Ejecutivo 28940 (2000-09-28) |
