@@ -1,0 +1,1 @@
+Artículo 58.-Los profesores están obligados á dar el número de lecciones y conferencias fijadas por el Consejo, á las horas y por el tiempo que marque horario de la Escuela, sujetándose al plan de estudios y programas aprobados por el mismo Consejo.

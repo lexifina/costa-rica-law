@@ -1,0 +1,1 @@
+Artículo 3°-El último domingo de enero se leerá en las Escuelas generales un discurso de apertura de cursos, que se encargará por el Presidente del Consejo de la Escuela, sucesivamente á cada uno de los profesores de ella. El Presidente determinará el orden de sucesión de los profesores encargados del discurso.

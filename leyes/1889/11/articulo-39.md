@@ -1,0 +1,1 @@
+Artículo 39.-El examen es válido, cuando el promedio de cifras no pasa de 3. Sin embargo, si el Tribunal ha calificado con la cifra 5 una de las que pruebas, el candidato debe sufrir en el término que fije el mismo Tribunal, un nuevo examen sobre la materia ó prueba fallida; y mientras tanto se suspende la calificación final.

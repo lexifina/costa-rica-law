@@ -1,0 +1,1 @@
+Artículo 55.-En los casos en que no hubiese Sociedad Científica ó Academia constituida que designe los miembros que deben formar parte del Gobierno de las Escuelas, los nombramientos de catedráticos se harán directamente por el Poder Ejecutivo.

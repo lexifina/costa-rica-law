@@ -1,0 +1,1 @@
+Artículo 56.-Se prohibe la acumulación de cátedras en un mismo profesor, exceptuándose los casos extraordinarios cuando así lo declare lo autorice el Consejo; pero en ningún caso se permitirá el desempeño de más de dos cátedras.

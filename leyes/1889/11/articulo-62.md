@@ -1,0 +1,1 @@
+Artículo 62.- Cuando por razón de enfermedad temiese el profesor no poder asistir por varios días á sus lecciones, ocurrirá al Presidente del Consejo, quien designará un suplente, ó se procederá al nombramiento de otro profesor conforme á la ley.

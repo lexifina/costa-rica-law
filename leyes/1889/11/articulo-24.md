@@ -1,0 +1,2 @@
+Artículo 24.-La inscripción y pago de la matrícula da derecho al estudiante á todos los beneficios y usufructos de la Escuela, á saber: asistencia á las lecciones, conferencias y ejercicios de los profesores; acceso á los laboratorios y museos, á las salas de lectura, al uso de los libros de la Biblioteca Nade la particular de cada Escuela, y opción á las pensiones, premios y otras fundaciones que la ley ó los particulares establezcan.
+El ejercicio de estos derechos está subordinado á las disposiciones del reglamento general y á los especiales de cada Escuela.

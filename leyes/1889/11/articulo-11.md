@@ -1,0 +1,1 @@
+Artículo 11.-Los estudiantes extranjeros que quieran matricularse, deberán presentar un atestado regular de haber concluído los estudios de segunda enseñanza, si han de inscribirse en el primer año de estudios de cualquier Escuela; y si pretendiesen inscribirse en otro año, aquel mismo atestado y el de los cursos seguidos fuera de la Escuela.
