@@ -1,1 +1,2 @@
-ARTICULO 19.- El ingreso, suspensión o separación de un miembro activo, de un miembro temporal o de un asociado, salvo en el caso de fallecimiento, se avisará por el Diario Oficial, mediante publicación que se hará una vez dentro de un término de 15 días a partir del acuerdo respectivo.
+ARTÍCULO 19.-La incorporación, habilitación o inhabilitación de un miembro, de un miembro temporal o de un asociado, salvo en el caso de fallecimiento, se avisará mediante publicación en el Diario Oficial, así como también en la página electrónica del Colegio Federado, y se hará dentro de un término de quince días a partir del acuerdo respectivo.
+(Así reformado por Asamblea N° 05-03/04 del 24 de marzo y 19 de mayo de 2004 mediante acuerdo N° 14)

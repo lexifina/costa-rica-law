@@ -96,6 +96,7 @@ articulo-95.md
 articulo-96.md
 articulo-97.md
 articulo-98.md
+articulo-98-bis.md
 articulo-99.md
 articulo-100.md
 articulo-101.md
@@ -111,4 +112,6 @@ articulo-110.md
 articulo-111.md
 articulo-112.md
 articulo-113.md
-articulo-98-bis.md
+articulo-70-bis.md
+articulo-100-bis.md
+articulo-100-ter.md

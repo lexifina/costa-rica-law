@@ -1,1 +1,2 @@
-ARTICULO 101.- Los nombres de los profesionales suspendidos, así como su posterior rehabilitación, se publicarán en el Diario Oficial tan pronto como quede firme el respectivo acuerdo.
+ARTÍCULO 101.- Los nombres de los profesionales suspendidos, así como su posterior rehabilitación, se publicarán en el Diario Oficial tan pronto como quede firme el respectivo acuerdo.
+(Mediante Asamblea N° 05-03/04 del 24 de marzo y 19 de mayo de 2004, y por acuerdo N° 44, se indica reformar el artículo 102 de este reglamento, no obstante por su contenido, parece ser que el reformado es el artículo 101 para que se lea: "Los nombres, números de cédula y registro de los profesionales inhabilitados y rehabilitados se publicarán en el Diario Oficial La Gaceta.")

@@ -1,1 +1,2 @@
-ARTICULO 76.- Con los propósitos indicados en este capítulo, la Junta Directiva General dictará normas relativas al uso de la Biblioteca del Colegio Federado, a la celebración de reuniones académicas y a concursos e intercambios intelectuales entre los miembros del Colegio Federado y los de otras naciones.
+ARTÍCULO 76.- Con los propósitos indicados en este capítulo, la Junta Directiva General dictará normas relativas al uso del Centro de Documentación del Colegio Federado, a la celebración de reuniones académicas y a concursos e intercambios intelectuales entre los miembros del Colegio Federado y los de otras naciones.
+(Así reformado por Asamblea N° 05-03/04 del 24 de marzo y 19 de mayo de 2004 mediante acuerdo N° 33)

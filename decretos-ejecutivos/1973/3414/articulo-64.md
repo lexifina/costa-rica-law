@@ -1,1 +1,2 @@
-ARTICULO 64.- Para inscribir el contrato de servicio profesional a que se refiere el artículo 53 de la Ley Orgánica, será necesario presentar la fórmula respectiva, debidamente firmada por las partes y autenticadas por un notario público.
+ARTÍCULO 64.- Para inscribir el contrato de servicios profesionales a que se refiere el artículo 53 de la Ley Orgánica, será necesario presentar las fórmulas respectivas debidamente firmadas, es optativo por cualquiera de las partes llevar ante un notario público el referido contrato para la autenticación de firmas o para llevar el contrato a Escritura Pública.
+(Así reformado por Asamblea N° 05-03/04 del 24 de marzo y 19 de mayo de 2004 mediante acuerdo N° 25)

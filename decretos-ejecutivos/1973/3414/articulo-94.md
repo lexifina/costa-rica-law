@@ -1,2 +1,2 @@
-ARTICULO 94.- La Junta Directiva General reglamentará el uso de las cajas chicas, cuyos montos serán establecidos en el Presupuesto Anual del Colegio Federado.
-(Así reformado por Acuerdo de Sesión Nº 4 de 5 de agosto de 1987)
+ARTÍCULO 94.-Todos los pagos, salvo los de caja chica, serán hechos mediante cheque o transferencia electrónica de fondos.
+(Así reformado por Asamblea N° 05-03/04 del 24 de marzo y 19 de mayo de 2004 mediante acuerdo N° 39)

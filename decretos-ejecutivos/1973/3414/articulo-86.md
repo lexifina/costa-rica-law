@@ -1,2 +1,3 @@
-Artículo 86.- Tendrán derecho a todos los beneficios del Régimen de Mutualidad los miembros activos, ausentes y asociados del CFIA, según lo dispone este Reglamento y el Reglamento del Régimen de Mutualidad.
-(Así reformado por Acuerdo de Sesión Nº 0 de 17 de enero de 2001)
+Artículo 86.- Tendrán derecho a todos los beneficios del Régimen de Mutualidad los miembros(*), ausentes y asociados del Colegio Federado, según lo dispone este Reglamento y el Reglamento del Régimen de Mutualidad.
+(Así modificada su denominación por asamblea Nº 05-03/04 de 24 de marzo y 19 de mayo de 2004, la cual acordó sustituir el término "CFIA" por "Colegio Federado")
+(*Así reformado por asamblea Nº 05-03/04 de 24 de marzo y 19 de mayo de 2004, la cual acordó eliminar el término "activo" en referencia al Voto Nº 5133-02 de la Sala Constitucional, que declaró inconstitucional el término "activo" de la condición de "miembro")

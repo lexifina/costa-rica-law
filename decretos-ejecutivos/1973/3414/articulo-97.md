@@ -1,1 +1,2 @@
-ARTICULO 97.- La Junta Directiva del correspondiente Colegio podrá autorizar y reglamentará el uso de una caja chica, la cual no podrá ser mayor de quinientos colones, en fondo revolutivo.
+ARTÍCULO 97.- La Junta Directiva del correspondiente Colegio podrá autorizar y reglamentará el uso de una caja chica, la cual no podrá ser mayor de quinientos colones, en fondo revolutivo.
+(Mediante Asamblea N° 05-03/04 del 24 de marzo y 19 de mayo de 2004, y por acuerdo N° 40, se indica reformar el artículo 98 de este reglamento, no obstante por su contenido, parece ser que el reformado es el artículo 97 para que se lea: "La Junta Directiva del correspondiente Colegio podrá autorizar y reglamentará el uso de una caja chica en fondo revolutivo".)

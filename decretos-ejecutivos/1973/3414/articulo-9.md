@@ -1,6 +1,8 @@
-ARTICULO 9º.- Para ser miembro temporal se seguirá el siguiente trámite:
+ARTÍCULO 9º.- Para ser miembro temporal se seguirá el siguiente trámite:
 a) Presentar certificación de la entidad estatal, profesional o privada que demande los servicios del profesional en cuestión, indicando en dicha certificación el tipo de asesoría que prestará y el tiempo que permanecerá en el país.
 b) Presentar fotocopia de su título y demás atestados profesionales, todo debidamente autenticado, además, su curriculum vitae, calidades personales y tres fotocopias recientes tamaño pasaporte.
 c) Los permisos correspondientes se entenderán por un término no mayor de un año, quedando a juicio del Colegio de renovación, según se solicite oportunamente y lo justifiquen los términos de la respectiva contratación.
-d) Para otorgar el permiso de tomará en cuenta la inopia en el campo profesional de la especialidad, o circunstancias especiales que lo ameriten, ambos extremos a juicio de la Junta Directiva General.
-e) La autorización será dada bajo la obligación de que el organismo estatal o entidad privada asigne a un ingeniero o a un arquitecto a trabajar junto con el miembro temporal, para que la experiencia que viene a dejar el miembro temporal en las diferentes ramas, sea asimilada al máximo posible por un miembro activo del Colegio Federado.
+* d) Para otorgar el permiso de tomará en cuenta la inopia en el campo profesional de la especialidad, o circunstancias especiales que lo ameriten, ambos extremos a juicio de la Junta Directiva General.
+e) La autorización será dada bajo la obligación de que el organismo estatal o entidad privada asigne a un ingeniero o a un arquitecto a trabajar junto con el miembro temporal, para que la experiencia que viene a dejar el miembro temporal en las diferentes ramas, sea asimilada al máximo posible por un miembro*(activo) del Colegio Federado.
+* (El inciso E fue reformado en Asamblea Nº 05-03/04 del 24 de marzo y 19 de mayo de 2004, al acordar eliminar el término "activo"; esto debido a que mediante resolución de la Sala Constitucional número 5133 de 2002 se declaró la inconstitucionalidad del mismo.
+* (Por resolución de la Sala Constitucional número 14297 de las 14 horas con 56 minutos del 19 de octubre de 2005, se anula del presente artículo todo el inciso D)
