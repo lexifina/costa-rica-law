@@ -1,0 +1,11 @@
+Nº 32262
+EL PRESIDENTE DE LA REPÚBLICA,
+LA MINISTRA DE SALUD
+Y EL MINISTRO DEL AMBIENTE Y ENERGIA
+En ejercicio de las facultades que les confieren los artículos 140 incisos 3), 18) y 146) de la Constitución Política, 28 inciso b) de la Ley General de la Administración Política, 291, 292, 298 y 304 de la Ley Nº 5395 del 30 de octubre de 1973 “Ley General de Salud”, 69 y 132 de la Ley Nº 7317 del 30 de octubre de 1992 “Ley de Conservación de Vida Silvestre”,
+Considerando:
+1º—Que en el Diario Oficial La Gaceta Nº 246 del 22 de diciembre del 2003, el Poder Ejecutivo publicó el Decreto Ejecutivo Nº 31545-S-MINAE, (Reglamento de Aprobación y Operación de Sistemas de Tratamiento de Aguas Residuales.)
+2º—Que el Ministerio de Salud se encuentra ejecutando un proceso de Reestructuración desde hace varios años el cual se ha venido implementando gradualmente. Entre otras modificaciones dicho proceso pretende la desconcentración de actividades operativas del Ministerio con el fin de que sean asumidas por los niveles de gestión regionales y locales de esta cartera.
+3º—Que debido al tiempo transcurrido desde la elaboración de la propuesta original del Decreto Ejecutivo Nº 31545-S-MINAE y las revisiones efectuadas hasta su publicación en el Diario Oficial, algunas de las funciones operativas que le correspondía ejecutar a la Dirección de Protección al Ambiente Humano, se considera deben ser efectuadas, en la actualidad, en los niveles de gestión regionales y locales del Ministerio, para lo cual se cuenta con los recursos humanos y materiales requeridos. 4º—Que la modificación propuesta fue debidamente consultada con el Comité Técnico de Revisión, creado mediante el artículo 11 del Reglamento de Vertido y Reuso de Aguas Residuales y el artículo sexto del Decreto Ejecutivo Nº 31545-S-MINAE, (Reglamento de Aprobación y Operación de Sistemas de Tratamiento de Aguas Residuales.) Por tanto:
+DECRETAN:
+Artículo 1º—Refórmense los artículos 4, 8, 20, 22, 25, 26, 30 y 45 del Decreto Ejecutivo Nº 31545-S-MINAE, (Reglamento de Aprobación y Operación de Sistemas de Tratamiento de Aguas Residuales), publicado en el Diario Oficial La Gaceta Nº 246 del 22 de diciembre del 2003, para que en donde dice “Dirección de Protección al Ambiente Humano del Ministerio de Salud” se lea “Ministerio de Salud”.
