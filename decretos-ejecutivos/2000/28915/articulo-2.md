@@ -1,0 +1,1 @@
+Articulo 2°—El cálculo del límite de gasto fijado en el artículo anterior excluye las subpartidas Mercaderías para la Venta y la transferencia corriente a la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA).
