@@ -1,0 +1,1 @@
+Art. 2° Los puros no entran en la reduccion de los derechos de arancel por razón de averia; sino que en todo caso pagarán el total de ellos, cualquiera que sea su bueno ó mal estado.- Dado en el Palacio Nacional, en San José, á dieziciete. de Agosto de mil ochocientos setenta y seis.-
