@@ -1,0 +1,1 @@
+Artículo XI.—Aquellos estudiantes a quienes se compruebe, que en forma deliberada han omitido o alterado sustancial mente la información económica requerida en la solicitud, serán excluidos de la adjudicación de beca durante los dos cursos lectivos siguientes.

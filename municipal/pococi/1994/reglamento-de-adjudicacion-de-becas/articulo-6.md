@@ -1,0 +1,1 @@
+Artículo VI.- El estudiante podrá manifestar durante el año cualquier cambio desfavorable calificado en su situación económica, que le afecte en sus estudios y solicitar revisión de su categoría; igualmente queda obligado a comunicar cambio favorable en los ingresos económicos.

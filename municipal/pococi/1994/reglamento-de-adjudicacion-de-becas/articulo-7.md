@@ -1,0 +1,2 @@
+Artículo VII.—Se hace acreedor a la primera categoría, el estudiante de escasos recursos económicos que obtenga un promedio anual igual o superior a 85%, en el último ano cursado, siempre que lleve 20 o más créditos anuales en alguna institución universitaria de prestigio.
+También los estudiantes de primer ingreso a la Educación Superior , que hayan obtenido un promedio igual o superior a 90% en la rama académica, en los dos últimos años de Educación Media.

@@ -1,0 +1,1 @@
+Artículo X.—El estudiante que pierda más del 50% de los créditos, o quien no realice retiro parcial o total de materias ante las instancias correspondientes, será inhabilitado para hacer solicitud de beca durante los dos cursos lectivos siguientes.
