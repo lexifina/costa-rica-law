@@ -15,3 +15,4 @@ Crea Comisión Médica Aeronáutica
 | --- | --- | --- |
 | 1 | 1976-08-11 | la propia norma |
 | 2 | 1977-05-02 | Decreto Ejecutivo 6982 (1977-05-02) |
+| 3 | 1977-06-03 | Decreto Ejecutivo 7057 (1977-06-03) |
