@@ -18,5 +18,5 @@ intercambio de los productos originarios de su respectivos países incluidos
 en una lista que será elaborada conforme a los términos previstos en este
 Convenio.
 Ambos países acuerdan llegar al Libre Comercio mediante una
-desgravación arancelaria gradual según se establece en el artículo III
-de este Convenio.
+desgravación arancelaria gradual según se establece en el artículo III de
+este Convenio.

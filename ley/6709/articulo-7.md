@@ -5,8 +5,8 @@ resultado del intercambio comercial con el propósito de evaluar su
 comportamiento y adoptar las medidas que se estimen pertinentes para el
 mejor logro de los objetivos del Convenio.
 La Lista de Intercambio y las modificaciones acordadas entrarán en
-vigor a los treinta (30) días de haberse producido el canje de notas
-entre las respectivas Cancillerías.
+vigor a los treinta (30) días de haberse producido el canje de notas entre
+las respectivas Cancillerías.
 Cuando algunas de las Partes Contratantes demostraran fehacientemente
 ante la Comisión Mixta Permanente que, como resultado del intercambio
 comercial de uno o más productos beneficiarios del régimen de libre
