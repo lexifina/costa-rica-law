@@ -1,0 +1,1 @@
+Art. 3°-A los deudores que deban réditos atrasados se concederá el derecho de pagarlos por cuartas partes semestralmente, sin interés penal, debiendo otorgar, respecto de los expresados réditos, pagarés á la orden de la Municipalidad, con las seguridades correspondientes.
