@@ -1,0 +1,6 @@
+Artículo 2º—DEFINICIONES.
+2.1 Cal. Son todos los productos de variada composición química y aspecto físico, procedentes de la calcinación de piedras calizas ricas en carbonato cálcico (más del 95%) y clasificadas en dos grupos fundamentales: cales aéreas y cales hidráulicas.
+2.2 Cal aérea. Es el material aglomerante que está constituido fundamentalmente de óxido o hidróxido de calcio y que tiene la propiedad de endurecerse, después de amasada con agua, únicamente en el aire, por la acción del anhídrido carbónico.
+2.2.1 Cal Viva. Es el material calcinado que está compuesto principalmente por óxido de calcio (CaO), capaz de apagarse mediante adición de agua.
+2.2.2 Cal hidratada o apagada. Es el producto obtenido después de añadir agua a la cal viva para hidratar sus óxidos y está compuesta fundamentalmente por hidróxido de calcio Ca(OH)2.
+2.3 Cal hidráulica. Es el material aglomerante, pulverulento e hidratado, que se obtiene calcinando calizas que contienen sílice y alúmina, a una temperatura casi de fusión, para que se forme el óxido cálcico libre necesario para permitir su hidratación y al mismo tiempo deja cierta cantidad de silicatos de calcio deshidratados que dan al polvo sus propiedades hidráulicas.
