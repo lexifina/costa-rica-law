@@ -1,4 +1,1 @@
-ARTICULO 21.- Cuando existieren disposiciones legales proteccionistas
-que afecten el pago del impuesto de patentes, corresponderá al interesado
-solicitar la exención respectiva. No obstante, en tales casos se mantiene
-la obligación referente a la licencia municipal.
+Artículo 21.—Cuando existieren disposiciones legales proteccionistas que afecten el pago del impuesto de patentes, corresponderá al interesado solicitar la exención respectiva. No obstante, en tales casos, se mantiene la obligación referente a la licencia municipal.
