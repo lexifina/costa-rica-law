@@ -1,0 +1,2 @@
+Artículo 49°.- Las prestaciones de maternidad podrán otorgarse a partir de la fecha de comprobación del estado de embarazo verificado por los médicos de la Caja, salvo los subsidios en dinero y el suministros de leche que se darán conforme a las reglas de los artículos 42 y 43.
+Las aseguradas deben, por lo menos cuatro meses antes de la fecha presumible del parto, solicitar la comprobación de su estado, y a partir de ese momento quedan obligadas a someterse a las prescripciones médicas que les indique, incluso a las relativas al resposo procedente y posterior al parto.

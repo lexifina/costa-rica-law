@@ -1,0 +1,2 @@
+Artículo 55°. - Los beneficios del artículo anterior sólo se otorgarán a los familiares del asegurado que no ejecuten trabajos asalariados y que dependen económicamente de él.
+En los casos de separación de hecho o de derechos imputables al trabajador, y cuando su esposa no tenga otra fuente de ingresos que la pensión que le satisfaga su marido, podrá también recibir esos beneficios. La misma regla se observará en cuanto a los hijos, independientemente de que la separación o el divorcio en su caso sea o no imputables, al trabajador o a su esposa.

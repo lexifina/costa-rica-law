@@ -1,0 +1,1 @@
+Artículo 28°.- Cuando la Caja, de conformidad con la obligación que le impone el artículo 247 del Código de Trabajo, admitiere casos de accidente de trabajo o de enfermedades profesionales, cobrará al patrono o al Instituto Nacional de Seguros, en su caso y en la misma forma dicha en el artículo anterior, el momento de las prestaciones que por esos riesgos haya otorgado.

@@ -1,0 +1,1 @@
+Artículo 37°. - Se suspenderá el pago del subsidio al asegurado que haya incurrido en alguna de las prohibiciones del artículo anterior. Igualmente se suspenderá cuando se haya ocupado, durante el periodo de la incapacidad, en labores asalariadas.

@@ -1,0 +1,5 @@
+Artículo 60°. - La cobertura de la protección familiar se otorga de acuerdo con las siguientes normas:
+a) Abarcará íntegramente las zonas que la Junta Directiva determine que deben estar cubierta para que tenga derecho a la protección y para que tanto el cómo su patrono queden obligados a cotizar, siempre y cuando, además, el trabajo se realice en una zona cubierta por el Seguro de Enfermedad.
+b) En las demás zonas del país donde rige el Seguro, únicamente gozarán del beneficio los familiares de los trabajadores que presten sus servicios en explotaciones agrícolas, ganaderas y en las industrias o actividades conexas con la agricultura y la ganadería, entendiéndose por tales los beneficios de café, ingenios, trapiches y lecherías; y
+c) Cotizarán para este beneficio de conformidad con el porcentaje señalado en el inciso d) del artículo 9° del Reglamento, todos los trabajadores que se encuentren en las condiciones especificadas en los incisos anteriores, aunque carezcas de familia, y sus patrones.
+(Así reformado por artículo 11 de la sesión N° 2188 celebradas por la Junta Directiva el 27 de abril de 1959)

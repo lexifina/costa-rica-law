@@ -1,0 +1,1 @@
+Artículo 59°. - En cuanto a la forma de la asistencia, requisitos y trámites respectivos, se estará, en lo que le fueren aplicables por analogía, y tomando en cuenta de diversidad del riesgo, a las disposiciones del Seguro de Enfermedad.

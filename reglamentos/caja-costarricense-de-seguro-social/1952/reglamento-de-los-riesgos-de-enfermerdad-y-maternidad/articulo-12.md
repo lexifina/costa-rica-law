@@ -1,0 +1,1 @@
+Art 12°.- Al cancelar la planilla respectiva se le cargará a los patronos atrasados, sin perjuicio de las sanciones establecidas por los artículos 44 y siguientes de la Ley Constitutiva de la Caja, un interés del 6% anual sobre los montos de las cuotas a partir del noveno día hasta la fecha efectiva de su cancelación.

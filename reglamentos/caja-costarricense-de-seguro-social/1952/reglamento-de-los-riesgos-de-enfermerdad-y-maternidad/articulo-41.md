@@ -1,0 +1,1 @@
+Artículo 41°. - La asistencia médica y farmacéutica prenatales se otorgarán dentro del riesgo de enfermedad, siempre que las aseguradas hayan cumplido con los requisitos determinados por los incisos uno y dos del artículo 32 y el 34 de este Reglamento, en su caso.

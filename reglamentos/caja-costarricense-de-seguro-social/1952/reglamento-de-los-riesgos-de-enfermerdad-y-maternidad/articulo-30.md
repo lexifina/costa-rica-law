@@ -1,0 +1,1 @@
+Artículo 30°.- Si el fallecido no dejare deudos con derecho a la cuota de sepelio, la Caja costeará el funeral invirtiendo en él una suma que no exceda de la cuantía fijada en el artículo anterior o lo pagará a cualquier que compruebe haber realizado el gasto.

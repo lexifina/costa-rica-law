@@ -1,0 +1,1 @@
+Artículo 13°. - Cuando por aplicación de las tablas se dieren diferencias a favor del patrono, estas le serán devueltas siempre que las reclame dentro del término de dos meses contados a partir de la fecha del recibo del aviso que en ese sentido la treinta la Caja y previa presentación del mismo.
