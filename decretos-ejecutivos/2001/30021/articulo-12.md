@@ -1,0 +1,2 @@
+Artículo 12.—De los estudios técnicos. Serán los funcionarios técnicos del Fideicomiso quienes emitan al Comité del Fideicomiso un estudio detallado y objetivo de la posible compra y readecuación, análisis el cual no podrá exceder más de los treinta días hábiles a partir de la presentación de la solicitud completa.
+Dicho estudio nunca puede ir en contra de los intereses y fines que dieron origen a la Ley, por lo que se deberán respetar las condiciones originales de las deudas de los posibles beneficiarios.

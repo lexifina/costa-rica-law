@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+De la aprobación o rechazo de las solicitudes
+de compra y readecuación de las deudas
+Artículo 13.—De la resolución final de las solicitudes de compra y readecuación de las deudas. Corresponde al Comité del Fideicomiso, la aprobación o rechazo de las solicitudes que presenten las personas físicas o jurídicas ante el Fideicomiso para la compra y readecuación de sus deudas, basados si así lo consideren pertinente, en las recomendaciones técnicas que emanen del Fideicomiso MAG-PIPA y el Fiduciario, las cuales no serán vinculantes para efectos de la aprobación por parte del Comité. El Comité tiene un plazo no mayor a quince días naturales, posterior a recibir el informe técnico si lo hubiere, y en el caso de que no exista ese informe, se resolverá en un plazo no mayor de diez días naturales una vez recibida la solicitud completa.

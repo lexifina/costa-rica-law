@@ -1,0 +1,4 @@
+CAPÍTULO XVIII
+De la integración del Comité del Fideicomiso
+Artículo 35.—De los miembros del Comité del Fideicomiso. Por disposición de Ley, la integración del Comité del Fideicomiso, se establece en el presente Reglamento. Dicha integración, la conforman dos representantes nombrados por el Ministerio de Agricultura y Ganadería, quienes deberán contar con experiencia en materia de análisis crediticio, siendo de libre remoción por el Ministro de Agricultura y Ganadería. Se contarán como integrantes del Comité, dos agricultores representantes de las organizaciones de productores con representación a nivel nacional, y finalmente como quinto y último miembro del Comité, se nombra a un representante por parte del fiduciario.
+En el caso, de los representantes de las organizaciones de productores, su nombramiento se rige bajo los requisitos establecidos en el siguiente artículo.

@@ -1,0 +1,1 @@
+Artículo 44.—De las modificaciones al reglamento. El presente reglamento, podrá ser modificado en todo o en parte, por el Poder Ejecutivo, siempre y cuando tales modificaciones, no contravengan las normas jurídicas establecidas en la Ley.

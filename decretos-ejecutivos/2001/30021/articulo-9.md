@@ -1,0 +1,1 @@
+Artículo 9º—De los casos de excepción. Como caso de excepción, el monto final del crédito puede superar los catorce millones de colones, siempre y cuando el monto original no supere dicha suma y el incremento haya sido resultado de readecuaciones anteriores.

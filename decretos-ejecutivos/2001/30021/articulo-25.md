@@ -1,0 +1,3 @@
+CAPÍTULO XIII
+De la liberación parcial de garantía
+Artículo 25.—De la solicitud. El beneficiario cuya operación ha sido atendida con regularidad y por ende el saldo deudor se ha disminuido considerablemente con relación al monto originalmente adeudado, podrá solicitar por escrito ante el Comité del Fideicomiso, la liberación parcial de garantía, siempre y cuando, la garantía subsistente sea suficiente para cubrir el monto deudor, a juicio del Comité del Fideicomiso. Para esos efectos se seguirá el mismo trámite a que se refiere el presente Reglamento, en cuanto a las solicitudes de las operaciones.
