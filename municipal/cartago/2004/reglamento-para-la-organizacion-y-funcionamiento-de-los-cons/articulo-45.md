@@ -1,0 +1,1 @@
+Artículo 45.—Este Reglamento deroga al Reglamento para el nombramiento y funcionamiento de los Concejos de Distrito en el Cantón Central de Cartago, publicado en La Gaceta Nº 140 del 22 de julio de 1982.

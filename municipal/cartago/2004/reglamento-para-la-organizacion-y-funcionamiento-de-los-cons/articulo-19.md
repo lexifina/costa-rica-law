@@ -1,0 +1,1 @@
+Artículo 19.—La Municipalidad ejecutará en la medida de sus posibilidades y de acuerdo a existencia de contenido económico las obras o servicios públicos, en cada distrito atendiendo fundamentalmente las prioridades fijadas por el Concejo de Distrito en su plan de trabajo e incluido en el Plan General de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 9º—Los miembros del Concejo de Distrito serán elegidos popularmente por cuatro años, en forma simultánea con la elección de los alcaldes municipales mediante elecciones generales que se realizarán el primer domingo de diciembre, inmediatamente posterior a la elección de los regidores.

@@ -1,0 +1,1 @@
+Artículo 10.—Los Concejales de Distrito serán juramentados por el presidente del Concejo Municipal y tomarán posesión de sus cargos el primer lunes del mes de febrero siguiente a su elección. Podrán ser reelegidos y sus cargos serán renunciables.

@@ -1,0 +1,1 @@
+Artículo 7º—Los Concejos de Distrito estarán integrados por cinco miembros propietarios, todos vecinos del distrito, quienes se denominarán Concejales de Distrito, de los cuales uno será necesariamente el síndico propietario y cinco suplentes, de los cuales uno será el síndico suplente.

@@ -1,0 +1,1 @@
+Artículo 21.—Para el cargo de secretario se podrá postular cualquier miembro del Concejo de Distrito y será elegido por una votación de mayoría simple del total de los miembros presentes. La duración de su cargo será por dos años, pudiendo ser reelecto.

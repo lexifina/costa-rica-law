@@ -1,0 +1,1 @@
+Artículo 30.—El presidente someterá a conocimiento la modificación del orden del día y de existir consenso, hará pasar a los vecinos, haciendo la presentación de rigor, y de inmediato le concederá el uso de la palabra para que realice la exposición correspondiente. Los solicitantes de las audiencias tendrán un tiempo máximo de veinte minutos para realizar su exposición.

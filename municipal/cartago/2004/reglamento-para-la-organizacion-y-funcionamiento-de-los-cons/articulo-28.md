@@ -1,0 +1,1 @@
+Artículo 28.—Las sesiones extraordinarias deberán ser convocadas por escrito, sea por el presidente del Concejo de Distrito o por un mínimo de tres concejales de distrito, con veinticuatro horas de antelación y solo se conocerá del asunto indicado.

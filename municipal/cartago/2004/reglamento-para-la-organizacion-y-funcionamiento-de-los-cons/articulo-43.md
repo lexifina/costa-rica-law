@@ -1,0 +1,1 @@
+Artículo 43.—Los Concejos de Distrito se regirán por todo lo previsto en el presente Reglamento y en ausencia de norma por los demás Reglamentos emitidos por la Municipalidad del Cantón Central de Cartago, el Código Municipal y leyes conexas.
