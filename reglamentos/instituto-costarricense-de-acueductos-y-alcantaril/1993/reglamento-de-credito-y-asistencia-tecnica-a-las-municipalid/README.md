@@ -14,3 +14,4 @@ Reglamento de Crédito y Asistencia Técnica a las Municipalidades Beneficiadas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-04-22 | la propia norma |
+| 2 | 1994-08-30 | Reglamento 0 (1994-01-05) |
