@@ -1,0 +1,1 @@
+Artículos 6º—Los funcionarios que por razón de su cargo tengan conocimiento de asuntos confidenciales, respetarán el secreto profesional que los obliga a proteger la información obtenida, con el propósito de proteger la investigación policial y la honra de las personas, a menos que el deber legal exija revelarla.

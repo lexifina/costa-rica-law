@@ -1,0 +1,1 @@
+Artículo 10.—Los funcionarios policiales cultivarán el honor policial, como suprema cualidad moral que los impulsa a cumplir sus deberes profesionales en plenitud. Están obligados a cumplir el presente Reglamento de Ética de la Función Policial, comprometiéndose con sus valores y promoviéndolos.
