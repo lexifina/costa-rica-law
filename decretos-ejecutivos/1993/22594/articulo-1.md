@@ -1,0 +1,19 @@
+N° 22594-H-MEIC
+EL PRESIDENTE DE LA REPÚBLICA Y LOS MINISTROS DE ECONOMÍA. INDUSTRIA
+Y COMERCIO Y DE HACIENDA
+CONSIDERANDO:
+1.- Que la Asamblea Legislativa de la República de Costa Rica mediante la Ley 7346 de 7 de junio de 1993 ratificó el Protocolo al Convenio Arancelario y Aduanero Centroamericano. el cual autoriza poner en vigencia el Sistema Arancelario Centroamericano (SAC) basado en la Nomenclatura del Sistema Armonizado (S.A).
+2.- Que cuando compete es necesario aclarar los términos expresados en el SAC para adecuarlos al léxico nacional.
+3.- Que de conformidad con el Artículo 26 del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano. los gobiernos de los Estados contratados tienen la facultad de aplicar unilateralmente modificaciones a los derechos arancelarios a la importaciones a los derechos arancelarios a la importación (DAI). establecidos en el Anexo “A” de dicho Convenio.
+4.- Que siendo el arancel uno de los documentos utilizados en el comercio internacional. es necesario garantizar la transparencia y concordancia con otros documentos. incluyendo en el mismo la carga tributaria total vigente y las medidas conexas más importantes.
+5.- Que es necesario adaptar los incisos arancelarios gravados por los Impuestos Selectivo de Consumo y General sobre las ventas. basados en el NAUCA II a la del SAC.
+6.- Que la Ley N° 4961 del 10 de marzo de 1972 y sus Reformas autoriza al Poder Ejecutivo para modificar. total o parcialmente. las tarifas del Impuesto Selectivo de Consumo de acuerdo con lo establecido por el Artículo 12. incisos a. b. y c. de la Ley. razón por la cual se incluyen modificaciones tarifas para adaptarlo al SAC.
+7.- Que mediante Decreto Ejecutivo N° 22592-H. de fecha 4 de octubre de 1993. se modificó la lista de mercancías exentas contenida en el Artículo 5 del Reglamento a la Ley del Impuesto General sobre las Ventas. con el propósito de adecuarla al SAC.
+8.- Que mediante la Ley 6946 del 13 de enero de 1984. se estableció un impuesto generalizado del 1% sobre el valor CIF de las mercancías importadas.
+9.- Que para facilitar el cálculo de los diferentes tributos aplicados a cada inciso arancelario es conveniente reflejar la carga tributaria total a que está afecta cada mercancía importada.
+10.- Que para los efectos de brindar la adecuada divulgación de los requisitos documentales que deben presentarse a la Administración Aduanera para autorizar una operación de importación o exportación. es necesario indicar las Notas Técnicas (N.T) vigentes a la fecha. que se aplican a cada inciso del SAC. mediante códigos de identificación de las diferentes dependencias gubernamentales encargadas de su aplicación y del documento o trámite correspondiente.
+11.- Que para facilitar la recopilación de datos estadísticos. la verificación y el control de las mercancías por la Administración Aduanera es conveniente establecer. en algunos incisos. Unidades Complementarias (U.C) a las del kilogramo masa. bajo las cuales comúnmente se comercian dichas mercancías.
+Por tanto.
+De conformidad con las atribuciones que le conceden los incisos 3) y 18) del artículo 140 de la Constitución Política; artículo 28. párrafo 2. de la Ley General de Administración Pública. Ley 6227 de 2 de mayo de 1978; los artículos 24 y 26 del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano. Ley 6986 de 3 de mayo de 1985; Ley 7346 de 7 de junio de 1993; Ley 4961 del 10 de marzo de 1972 y sus reformas; Ley 6826 del 8 de noviembre de 1982 y sus reformas y Ley 6946 del 13 de enero de 1984.
+DECRETAN:
+ARTÍCULO 1°- Se modifica el Sistema Arancelario Centroamericano (SAC). basado en la nomenclatura del Sistema Armonizado (S.A.). tal como aparece en el Anexo a este Decreto. en lo concerniente a los Derechos Arancelarios a la Importación (DAI) de algunos incisos arancelarios del Arancel Centroamericano de Importación. Dicho Anexo incluye cuando competen expresiones aclaratorias en su léxico.
