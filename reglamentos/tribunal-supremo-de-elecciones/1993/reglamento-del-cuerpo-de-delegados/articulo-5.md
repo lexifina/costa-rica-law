@@ -1,0 +1,2 @@
+QUINTO.-DEL NOMBRAMIENTO Y JURAMENTACIÓN DE LOS DELEGADOS: Los Delegados una vez que haya sido acordado su nombramiento por parte del Tribunal deberán prestar ante éste o ante el magistrado que el Tribunal comisionare, el juramento que señala el artículo 194 de la Constitución Política.
+Juramentados que hayan sido los Delegados, la Secretaria del Tribunal procederá a expedirles el carné y la respectiva insignia a efecto de acreditarlos debidamente.

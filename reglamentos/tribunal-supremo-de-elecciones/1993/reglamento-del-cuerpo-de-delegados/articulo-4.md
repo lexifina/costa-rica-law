@@ -1,0 +1,3 @@
+CUARTO.—DEL RÉGIMEN DE LOS DELEGADOS: El cargo de Delegado del Tribunal Supremo de Elecciones es Ad-Honorem. La relación que se establezca entre quienes sean designados al cargo antedicho y el Tribunal no se regirá en modo alguno por el Código de Trabajo sino por lo que establece -sobre los funcionarios públicos- el título quinto del Libro Primero de La Ley General de la Administración Pública.
+Una vez nombrado por el Tribunal como Delegado el cargo es renunciable en cualquier momento y por cualquier motivo, debiendo comunicarlo así el interesado por escrito a la Secretaría del Tribunal, con copia a la Jefatura Nacional de Delegados.
+A esa misma comunicación adjuntará el carné y las insignias que se le hayan expedido para efectos de acreditación.
