@@ -1,1 +1,1 @@
-Artículo 2°—Autorízase a la Municipalidad de Cartago para que con base en los ingresos que en esta ley se le señalan, empreste las sumas necesaria para efectuar las obras que Índica el artículo anterior.
+Artículo 2°—Autorízase a la Municipalidad de Cartago para que con base en los ingresos que en esta ley se le señalan, empreste las sumas necesarias para efectuar las obras que indica el artículo anterior.
