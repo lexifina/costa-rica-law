@@ -1,0 +1,1 @@
+Artículo 30.—Toda la documentación relativa a arreglos de pago estará en custodia del Departamento de Rentas y Cobranzas, el cual en su oportunidad, y de ser necesario, la remitirá a los abogados, que contrate la Municipalidad para realizar las negociaciones de Cobro Judicial correspondientes.
