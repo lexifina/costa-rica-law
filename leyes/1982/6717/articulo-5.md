@@ -1,0 +1,1 @@
+Artículo 5º-Se autoriza a la Municipalidad para que dicte el reglamento correspondiente a la presente ley y para que adopte las medidas administrativas necesarias a fin de ejercer una adecuada fiscalización de la misma.
