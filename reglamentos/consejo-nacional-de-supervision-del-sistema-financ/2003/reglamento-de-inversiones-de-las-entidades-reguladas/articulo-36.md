@@ -10,5 +10,5 @@ Moody´s A3
 Standard and Poor´s A-
 En caso de tener dos o más calificaciones se tomará la calificación de riesgo más baja.
 c) Deben tener acceso a sistemas electrónicos de información en tiempo real que permitan obtener los precios y los hechos relevantes de los títulos que negocian.
-Las entidades autorizadas deberán acreditar el cumplimiento de los requisitos establecidos en este Artículo por medio de una certificación del auditor externo del intermediario internacional seleccionado.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 383-2003, celebrada el 05 de agosto de 2003, publicada en La Gaceta N° 162 de 25 de agosto de 2003.)
+Las entidades autorizadas deberán acreditar el cumplimiento de los requisitos establecidos en este artículo por medio de una certificación de su auditor externo mediante la cual se indique que el intermediario internacional seleccionado cumple satisfactoriamente los requerimientos exigidos.
+(Reformado en el párrafo final mediante el artículo 1° de la Sesión N° 431-2004 del Consejo Nacional de Supervisión del Sistema Financiero.)
