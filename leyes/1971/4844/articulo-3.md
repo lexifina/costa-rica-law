@@ -1,0 +1,5 @@
+Artículo 3º.- Condónanse, por una sola vez, las deudas que por
+concepto de los impuestos derogados tengan a la fecha los organismos
+deportivos con el Fisco.
+El Ministerio de Hacienda dejará sin efecto el cobro
+correspondiente.

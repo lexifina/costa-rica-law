@@ -1,0 +1,20 @@
+Artículo 1º.- A partir de la vigencia de esta ley, los espectáculos
+esencialmente deportivos quedan exentos de los impuestos a que se
+refieren las siguientes leyes: ¢ 0.10 (diez céntimos) por cada entrada en
+el transitorio X de la ley Nº 1788 de 24 de agosto de 1954; ¢ 0.10 (diez
+céntimos) por cada entrada a favor del Sanatorio Nacional de Las
+Mercedes, a que se refiere la ley Nº 434 de 16 de marzo de 1949 en su
+artículo 1º; el 6% del total de la entrada bruta a que se refiere el
+Decreto-Ley Nº 228 de 13 de octubre de 1948 en su artículo 2º, y artículo
+20 de la ley Nº 362 de 26 de agosto de 1940 (Ley Orgánica de la
+Universidad de Costa Rica y cualquiera otra ley anterior); el 5% sobre la
+renta de equipos o deportistas extranjeros en el territorio nacional
+según artículo de la ley Nº 1789 de 18 de octubre de 1954; el impuesto de
+¢ 20.00 (veinte colones) por cada mil colones en los contratos de equipos
+o deportistas extranjeros, según artículo 17 de la ley Nº 3656 de 5 de
+enero de 1966, y de todo timbre nacional sobre visas para cada integrante
+de una delegación deportiva. estos últimos con la aprobación de la
+Dirección General de Deportes. Quedan igualmente exentos de los
+respectivos impuestos citados los espectáculos públicos de carácter
+cultural con la recomendación del Ministerio de Cultura, Juventud y
+Deporte o de la Universidad de Costa Rica.
