@@ -13,3 +13,4 @@ Reglamento Museo Filatélico y Numismático de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-04-24 | la propia norma |
+| 2 | 1998-08-18 | Decreto Ejecutivo 27238 (1998-08-18) |
