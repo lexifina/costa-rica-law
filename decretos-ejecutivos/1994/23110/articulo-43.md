@@ -1,0 +1,1 @@
+Artículo 43- El Tribunal, dentro del término de cinco días naturales contados a partir del cierre del período de inscripción, analizará los registros de candidaturas. Procederá a aceptarlas o rechazarlas total o parcialmente de acuerdo con las regulaciones de la Ley y este Reglamento formalizando la inscripción de aquellas que cumplan con los requisitos.

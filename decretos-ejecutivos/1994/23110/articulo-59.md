@@ -1,0 +1,1 @@
+Artículo 59-Los recursos de revocatoria y de apelación deberán ser interpuestos dentro de los términos que al efecto establece el artículo 24 de la Ley. En caso de que no se presente personalmente deberá ser autenticados por abogado.

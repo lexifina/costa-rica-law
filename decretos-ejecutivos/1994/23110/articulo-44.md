@@ -1,0 +1,1 @@
+Artículo 44- En el período electoral los candidatos podrán hacer campaña proselitista hasta cuarenta y ocho horas antes de la votación, debiendo guardar el decoro, respeto y dignidad atinente a la profesión médica las regulaciones del Colegio y las disposiciones que oportunamente emita el Tribunal.

@@ -1,0 +1,2 @@
+Artículo 41- Solo los médicos inscritos que se encuentren en pleno uso de su derecho, estén al día en el pago de la colegiatura y no estén suspendidos, pueden ser candidatos a puestos a la Junta.
+Antes del diez de octubre de cada año, en día y hora hábiles del Colegio, deberán registrarse en la secretaría del Tribunal de Elecciones del Colegio las candidaturas para los cargos que se someterán a elección. Este período de registro se abrirá, mínimo con veinte días naturales de anticipación.

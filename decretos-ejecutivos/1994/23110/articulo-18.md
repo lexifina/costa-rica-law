@@ -1,0 +1,1 @@
+Artículo 18°-La Asamblea solo podrá delegar las funciones establecidas en el inciso g) del artículo 12 de la Ley, previo acuerdo de por lo menos el 10% del total de los médicos inscritos y podrá promulgar su reglamento de sesiones y debates.

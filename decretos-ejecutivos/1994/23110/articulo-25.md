@@ -1,0 +1,1 @@
+Artículo 25°-A las sesiones de Junta podrán asistir los miembros del Colegio, previamente invitados por ésta o que les haya solicitado y se haya concedido audiencia, quienes tendrán voz, pero no voto, en los asuntos concernientes al motivo de su visita.

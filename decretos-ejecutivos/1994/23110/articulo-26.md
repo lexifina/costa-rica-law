@@ -1,0 +1,1 @@
+Artículo 26°-En cada discusión el presidente concederá la palabra a los miembros hasta por tres veces cada uno y en el orden en que la pidan, salvo al proponente del punto en discusión, a quien se le será concedida cuantas veces la solicite para contestar.

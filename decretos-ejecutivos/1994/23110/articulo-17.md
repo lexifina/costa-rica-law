@@ -1,0 +1,1 @@
+Artículo 17°-Todo miembro inscrito que se encuentre presente en la Asamblea tiene derecho a que se le inserte su voto razonado, en el acta siempre que su razonamiento lo tenga por escrito el secretario a más tardar dentro de las cuarenta y ocho horas siguientes a la sesión.

@@ -1,0 +1,1 @@
+Artículo 38- Contra las resoluciones o acuerdos del Tribunal cabrá únicamente recurso de revisión, el cual debe ser presentado dentro del siguiente día hábil a su notificación y será resuelto por el Tribunal dentro del siguiente hábil a su presentación. La resolución que dicte el Tribunal no tendrá ulterior recurso.

@@ -1,0 +1,3 @@
+Artículo 13°-Todo médico inscrito en el Colegio o autorizado para ejercer la profesión y para cumplir con el Servicio Médico Sanitario, está obligado a cubrir la cuota de colegiatura que señale la Junta de Gobierno de conformidad con lo que establece la Ley en sus artículos 8° y 9°.
+El médico inscrito que deje de satisfacer tres cuotas de colegiatura será suspendido del ejercicio de su profesión.
+Esta decisión se publicará en el Diario Oficial "La Gaceta" , quedando en suspenso todos los derechos que tiene como médico inscrito en el Colegio. Inmediatamente que satisfaga las cuotas atrasadas recuperará sus derechos y podrá continuar ejerciendo sus profesión, y así se hará mediante el Diario Oficial "La Gaceta".

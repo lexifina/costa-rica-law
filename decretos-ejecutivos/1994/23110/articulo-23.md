@@ -1,0 +1,1 @@
+Artículo 23°-Las resoluciones de la Junta deberán consignarse en el libro de actas correspondientes. Ningún acuerdo será ejecutado antes de que el acta respectiva sea discutida y aprobada, salvo que se haya declarado en firme por votación de dos tercios de la totalidad de los miembros.

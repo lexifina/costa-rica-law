@@ -1,0 +1,1 @@
+Artículo 28°-La Junta no podrá delegar las funciones que le indican los incisos 1, 3, 4, 5, 6 y 7 del artículo 14 de la Ley y podrá promulgar su propio reglamento de sesiones, debate. Cada vez que la Junta vaya a delegar funciones deberá tomar el acuerdo justificado.

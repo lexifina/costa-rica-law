@@ -1,0 +1,1 @@
+Artículo 21°-La Junta de Gobierno señalará los días y horas en que celebrará las sesiones ordinarias. Las sesiones extraordinarias serán acordadas por esta o por su presidente y convocadas conforme las disposiciones de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 37-El Tribunal elegirá de su seno un presidente, un secretario, un primer, segundo y tercer vocal, debiendo el secretario levantar las actas respectivas. El quórum estará formado por tres de sus miembros y sus resoluciones se tomarán por simple mayoría, teniendo el presidente doble voto en caso de empate.

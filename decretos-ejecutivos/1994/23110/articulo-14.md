@@ -1,0 +1,1 @@
+Artículo 14°-Unicamente los médicos y cirujanos inscritos y con la cuota de colegiatura al día, tienen derecho a asistir a la Asamblea General y a elegir y se elegidos en cargos de la Junta, a formar parte de los Tribunales, Comisiones, Delegaciones o cualquiera otra actividad del Colegio.

@@ -1,0 +1,5 @@
+Artículo 53- El delegado del Tribunal en cada centro de votación depositará en un sobre cerrado especialmente preparado, todo el material electoral que se utilizó, incluyendo una copia del acta de votación.
+El delegado del Tribunal deberá comunicar el resultado de la elección el mismo día por medio de telegrama o fax a cargo del Colegio, dirigido al Tribunal o por vía telefónica.
+Los delegados del Tribunal de cada centro de votación entregarán personalmente en la sede del Colegio, en la secretaría del Tribunal o por encomienda certificada, la documentación oficial dentro de las cuarenta y ocho horas siguientes a la elección, contra razón de entregado.
+Los sobres cerrados con los originales de las actas de votación y el material electoral, al recibirse en la secretaría del Tribunal, deberán ser resellados especialmente y no podrán ser abiertos hasta el momento del conteo oficial por parte del Tribunal.
+El Tribunal dispondrá lo necesario para mantener toda la documentación electoral en resguardo.

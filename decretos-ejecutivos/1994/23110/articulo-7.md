@@ -1,0 +1,1 @@
+Artículo 7°- Los médicos y cirujanos autorizados deberán ejercer su profesión únicamente en centros hospitalarios o en el consultorio de un médico inscrito. Quedan sometidos al régimen disciplinario del Colegio y a satisfacer una cuota mensual que será fijada por la Junta de Gobierno, perdiendo la autorización si faltare al pago de tres o más cuotas.

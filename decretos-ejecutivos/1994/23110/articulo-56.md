@@ -1,0 +1,1 @@
+Artículo 56- Las infracciones al presente capítulo serán sancionadas de acuerdo con las disposiciones de la Ley y del Código de Moral Médica del Colegio, Decreto Ejecutivo Nº 13032-SPPS del 15 de octubre de 1981.
