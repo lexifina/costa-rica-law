@@ -1,0 +1,1 @@
+Artículo 2°. Se autoriza al Alcalde Municipal para realizar compras o adquisiciones de bienes y servicios, así como para suscribir gastos fijos, convenios con cooperativas e Instituciones del Estado, en los cuales la Municipalidad de Tilarán actúe como parte, hasta por la suma de C300.000,00.
