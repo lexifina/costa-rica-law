@@ -14,3 +14,4 @@ Reforma Reglamento Tarifas Profesionales Química e Ingeniería Química
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-26 | la propia norma |
+| 2 | 2002-03-11 | Decreto Ejecutivo 30268 (2002-03-11) |
