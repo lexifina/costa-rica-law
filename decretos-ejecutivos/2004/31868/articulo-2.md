@@ -1,0 +1,1 @@
+Artículo 2º—Modifícase al SINART S. A., el gasto presupuestario para el período 2004, establecido en el artículo 1º del Decreto Ejecutivo Nº 31092-H y sus reformas, de manera que no exceda la suma ¢ 1.304.31 millones.

@@ -1,0 +1,13 @@
+Nº 31868-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que le confieren los artículos 140, incisos 3) y 18), y 146 de la Constitución Política, los artículos 25 inciso l), 27 inciso l) y 28 inciso 2), acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos del 18 de septiembre de 2001; Ley Nº 8346, Ley Orgánica del Sistema Nacional de Radio y Televisión Cultural S. A., del 12 de febrero de 2003.
+Considerando:
+1º—Que por medio del artículo 2º de la Ley Nº 8346, publicada en La Gaceta Nº 44 del 4 de marzo de 2003, se crea Sistema Nacional de Radio y Televisión Cultural S. A. (SINART S. A.) como una empresa pública, con personalidad jurídica y patrimonio propios, entre otros.
+2º—Que es necesario que el SINART S. A., destine recursos adicionales en el 2004, para cubrir gastos extraordinarios que permiten el cumplimiento institucional y para acatar la normativa legal contenida en los transitorios III y V de la Ley Nº 8346 citada.
+3º—Que el Sistema requiere incluir una nueva subpartida presupuestaria denominada "Comisiones por intermediación", de conformidad con las recomendaciones efectuadas por la Contraloría General de la República.
+4º—Que mediante Decretos Ejecutivos Nº 31092-H y Nº 31708-H y sus reformas, publicados en La Gaceta Nº 63, del 31 de marzo de 2003 y en La Gaceta Nº 62, del 29 de marzo del presente año respectivamente, la Autoridad Presupuestaria formuló las Directrices de Política Presupuestaria para los años 2004 y 2005, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo el gasto máximo presupuestario del presente año y para el 2005, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+5º—Que mediante oficios STAP-CIRCULAR-0590-03 del 23 de abril de 2003, se comunicó el límite de gasto fijado para el 2004 y STAP-0444-04 del 15 de abril de 2004, se comunicó el límite de gasto fijado para el 2005.
+6º—Que por lo anterior, se hace necesario modificar el gasto presupuestario fijado para el Sistema Nacional de Radio y Televisión Cultural S. A., para el 2004, así como excluir la subpartida "Comisiones por intermediación" para los años 2004 y 2005. Por tanto:
+DECRETAN:
+Artículo 1º—Adiciónese al artículo 2º inciso b), de los Decretos Ejecutivos Nº 31092-H y Nº 31708-H y sus reformas, publicados en La Gaceta Nº 63, del 31 de marzo de 2003 y en La Gaceta Nº 62, del 29 de marzo de 2004, respectivamente, en lo relativo al SINART S. A., el concepto: Comisiones por intermediación.
