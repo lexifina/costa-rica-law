@@ -1,0 +1,1 @@
+ARTICULO 101.-El Presidente de la República mientras dure en su destino, y el Vicepresidente titular o accidental, mientras ejerzan el mando, no podrán ser perseguidos ni juzgados por delitos comunes, sino después que a virtud de acusación interpuesta, haya declarado la Cámara de Diputados que hay lugar a formación de causa.

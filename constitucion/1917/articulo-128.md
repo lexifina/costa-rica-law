@@ -1,0 +1,1 @@
+ARTICULO 128.-Para que pueda tenerse como interpretada de modo auténtico cualquiera de las disposiciones de esta Constitución, es preciso que se observen los mismos trámites y formalidades prescritos para su reforma.

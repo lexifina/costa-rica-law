@@ -1,0 +1,1 @@
+ARTICULO 43.-La naturalización de un extranjero queda sin efecto por la residencia en el país de origen durante dos años consecutivos, a menos que sea en desempeño de una comisión oficial del Gobierno de Costa Rica o con permiso de éste.

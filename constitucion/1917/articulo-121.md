@@ -1,0 +1,3 @@
+ARTICULO 121.-El Intendente propondrá a la Municipalidad las medidas que juzgue convenientes.
+Podrá vetar cualquier acuerdo de la Municipalidad, dentro de los ocho días hábiles siguientes a su fecha, cuando a su juicio el acuerdo sea contrario a la ley o exceda las facultades de la corporación. Los particulares perjudicados podrán en iguales casos apelar de las resoluciones municipales.
+La Municipalidad reconsiderará inmediatamente lo acordado, y si insiste en los resuelto, el caso será sometido para su decisión final al Poder Ejecutivo, el cual considerará y definirá el punto del Consejo de Gabinete.
