@@ -1,13 +1,3 @@
 CAPITULO SEXTO
-De las reducciones en los presupuestos de las instituciones públicas
-y de la inflación financiera
-Artículo 32.- Durante 1984, se establece una contribución
-extraordinaria que deberán pagar al Gobierno de la República las
-instituciones públicas estatales nombradas en el anexo a la presente ley,
-según el monto fijado para cada una. Para financiar tales contribuciones,
-las entidades señaladas en la lista del anexo deberán rebajar sus gastos,
-excepto en las partidas de servicios personales, adquisición de títulos
-valores, servicio de la deuda y programas de inversión real considerados
-prioritarios por el Ministerio de Planificación Nacional y Política
-Económica. Además, la rebaja afectará sólo los gastos financiados con
-recursos, internos.
+De las reducciones en los presupuestos de las instituciones públicas y de la inflación financiera
+Artículo 32.- Inaplicable. (La Corte Suprema de Justicia, mediante resolución de las 8:00 horas del 24 de mayo de 1989 (expediente N° 101-87, promovido por el Instituto Nacional de Seguros) declaró inconstitucional e inaplicable este artículo cuyo texto disponía textualmente: “Durante 1984, se establece una contribución extraordinaria que deberán pagar al Gobierno de la República las instituciones públicas estatales nombradas en el anexo a la presente ley, según el monto fijado para cada una. Para financiar tales contribuciones, las entidades señaladas en la lista del anexo* deberán rebajar sus gastos, excepto en las partidas de servicios personales, adquisición de títulos valores, servicio de la deuda y programas de inversión real considerados prioritarios por el Ministerio de Planificación Nacional y Política Económica. Además, la rebaja afectará sólo los gastos financiados con recursos, internos.”). En este mismo sentido, dispuso el artículo 67 de la Ley Nº 7064 de 29 de abril de 1987 que, al entrar en vigencia la misma, quedó automáticamente derogada, y sin ningún efecto, la obligación de los bancos del Estado de contribuir con lo dispuesto por este artículo.

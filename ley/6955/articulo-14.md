@@ -1,4 +1,2 @@
-Artículo 14.- Los funcionarios que sean responsables de decisiones
-que violen las disposiciones de este capítulo, responderán personalmente
-y con sus propios bienes, de conformidad con lo dispuesto en el artículo
-6 de la ley de Administración Financiera de la República.
+Artículo 14.- Los funcionarios que sean responsables de decisiones que violen las disposiciones de esta ley, responderán personalmente y con sus propios bienes, de conformidad con lo dispuesto en el artículo 6º de la Ley de la Administración Financiera de la República.
+(Así reformado por el artículo 13 de la Ley de Prórrogas y Nuevos Ingresos y Riesgos del Trabajo de la Policía Ley de Riesgos del Trabajo de las Fuerzas de Policía, Nº 6999 de 3 de setiembre de 1985)
