@@ -1,1 +1,1 @@
-Artículo 4º.- Las labores de construcción que realice el Ministro de Transportes, se harán preferentemente por el sistema de contratos por licitación, procurando contratar con el mayor número de personas o de empresas nacionales dedicadas a la construcción.
+Articulo 4°-Las labores de construcción que realice el Ministerio de Transportes, se harán preferentemente por el sistema de contratos por licitación, procurando contratar con el mayor número de personas o de empresas nacionales dedicadas a la construcción.
