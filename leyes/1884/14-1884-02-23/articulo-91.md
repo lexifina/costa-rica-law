@@ -1,0 +1,1 @@
+Art. 91.-Si del examen de los papeles mencionados, en el precedente artículo, confrontados con las noticias derivadas del informe del capitán del buque, y con la filiación de éste, apareciere que es falso amigo, pirata, ó robado, se procederá á su embargo.

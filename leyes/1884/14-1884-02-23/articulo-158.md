@@ -1,0 +1,1 @@
+Art. 158.-Los capitanes y patrones de barcos que conduzcan cal, ladrillos ú otros efectos sueltos que sean sumergibles, cuya caída podría perjudicar el fondeadero, habrán de usar para su carga y descarga de las mismas precauciones prescritas para el lastre ó deslastre; salvo los casos extraordinarios de alijo forzoso, el que deberá justificarse como fundado temor de perecer.

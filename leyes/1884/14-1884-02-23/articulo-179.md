@@ -1,0 +1,1 @@
+Art. 179.-Para que un buque de cartel goce las ventajas concedidas en el precedente artículo, es indispensable que no traiga á bordo cargamento alguno, municiones ni más armas que un cañón para hacer las señales.

@@ -1,0 +1,1 @@
+Art. 12.-Si el buque estuviere yéndose á pique, y su capitán pidiere al práctico ante testigos que lo vare en puerto ó punto de anclaje fuera de peligro, lo hará así sobre arena y en lugar abrigado, de modo que sea fácil desvararlo en todo pleamar.

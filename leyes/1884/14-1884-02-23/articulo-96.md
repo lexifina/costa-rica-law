@@ -1,0 +1,1 @@
+Art. 96.-Tan luego como el capitán del puerto haga el señalamiento de día y hora para la visita de constituyan el Comité de Marina; y, llegada la hora, se trasladará con ellos á bordo para el reconocimiento de que trata la cláusula 6a del artículo 130 de es- te Reglamento.

@@ -1,0 +1,1 @@
+Art. 114.-Antes de terminarse la descarga, es prohibido que las embarcaciones de los buques vengan á tierra después de cerrado el puerto; pero una vez concluída, podrán hacerlo, á condición de atracar y amarrarse al muelle de la Aduana.

@@ -1,0 +1,1 @@
+Art. 182-Todo buque de cartel deberá hacerse a la mar dentro de las veinticuatro horas después de terminada su comisión, salvo temporal, avería, ó necesidad de hacer provisiones. En estos tres últimos casos, se contarán dichas horas desde que cese el peligro o haya hecho la provición de víveres

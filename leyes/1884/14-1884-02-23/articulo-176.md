@@ -1,0 +1,1 @@
+Art. 176.-No obstante el contenido de las prescripciones 2a y 32, artículo 175, y por consideración al principio de la territorialidad, las naves á que ellas se refieren podrán, unidas de bordo, pasarse unas á otras los marineros, armas y municiones de guerra que necesiten.

@@ -1,0 +1,1 @@
+Art. 66.-Se ventilarán en la forma dicha en el precedente artículo, el algodón, lino y cáñamo, cuando en el buque, durante el viaje, no haya ocurrido caso de enfermedad contagiosa; pero si tal hubo, esa carga se desembarcará y expurgará convenientemente.

@@ -1,0 +1,1 @@
+Art. 173.-Los lapsos que establecen los artículos 170 y 171 sólo dejarán de observarse cuando de un mismo puerto, río, rada ó lugar de anclaje hayan de salir uno ó más buques enemigos de los otros anclados en el mismo punto.

@@ -1,0 +1,1 @@
+Art. 61.-Continuarán sujetos á cuarentena los buques procedentes de puertos que hayan sufrido viruelas, fiebre amarilla ó cólera-morbo asiático, y que salgan de ellos dentro de treinta días en el primer caso, y de veinte en los dos últimos.

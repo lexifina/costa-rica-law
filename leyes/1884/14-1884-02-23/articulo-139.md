@@ -1,0 +1,1 @@
+Art. 139.-Los derechos acordados por este Reglamento á los carpinteros navales é ingenieros mecánicos, se pagarán por la respectiva Administración de rentas, en vista de la hoja que presente la parte interesada con el V. B. del Capitán del puerto, cuyas partidas se cargarán al ramo de Marina como gastos extraordinarios.

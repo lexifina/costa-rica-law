@@ -1,0 +1,2 @@
+Art. 10.-Cuando el práctico pueda, antes de abordar un buque, conocer que es enemigo, ó que viene apestado, no deberá acercársele ni darle auxilio.
+§ único. -Si en alguno de los casos de este artículo, fuere sorprendido el práctico por engaño ó fuerza, para que conduzca el buque al puerto en cualquiera de sus puntos de anclaje, ó bien que esto haga por impresión suya, debe comunicarlo á su inmediato jefe, á toda costa y sin pérdida de tiempo.

@@ -1,0 +1,2 @@
+Art. 138.-Los carpinteros navales á que se refiere este Reglamento, tendrán por remuneración de su trabajo cinco pesos cada uno, como derecho de la visita anual que debe efectuarse en cada mes de enero y en los casos del artículo anterior, y diez pesos en los de avería.
+§ único.-Los ingenieros mecánicos que examinaren las máquinas de vapor, de conformidad con este Reglamento, devengarán diez pesos por su visita é informe.

@@ -1,0 +1,1 @@
+Art. 51.-En el mismo sentido se considerará la limpia, cuando en el curso del viaje haya ocurrido en el buque algún caso de las enfermedades que de la procedente de terminan el calificativo de sucia, y puerto extranjero que no esté visada por el cónsul costarricense allí establecido, ó si no lo hubiere, por el de otra República de la América Central, de la Meridional ó de Méjico.

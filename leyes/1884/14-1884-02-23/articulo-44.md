@@ -1,0 +1,1 @@
+Art. 44.-Inmediatamente después de efectuada la prisión de que trata el anterior artículo, el capitán del puerto la participará por escrito al Juez del crimen del lugar, poniendo á su disposición los presos para los fines legales.

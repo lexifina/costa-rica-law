@@ -1,0 +1,1 @@
+Art. 172.-Los víveres que, en el caso expresado en el precedente artículo, podrá tomar un buque de guerra, ó corsario, no han de exceder de la cantidad que le baste hasta llegar al puerto más inmediato de su nación.

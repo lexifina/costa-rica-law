@@ -1,0 +1,1 @@
+Art. 157.-El Capitán del puerto deberá oir la opinión de la junta de sanidad, y en defecto de esta corporación, la del médico del pueblo, respecto del sitio que higiénicamente sea más apropósito para arrojar las basuras y demás desperdicios de los buques.

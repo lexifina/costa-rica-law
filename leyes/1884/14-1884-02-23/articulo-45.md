@@ -1,0 +1,1 @@
+Art. 45.-Si, por culpa del capitán del puerto, transcurrido el término de ley y sin que el preso ó presos de que hablan los artículos 41 y 42 se les haya tomado la correspondiente declaración instructiva, aquél quedará incurso en las penas del detentor arbitrario.

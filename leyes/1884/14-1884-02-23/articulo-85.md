@@ -1,0 +1,3 @@
+CAPÍTULO VIII.
+De las demás visitas de buques.
+Art. 85.-Tan luego como un buque dé fondo en el puerto, irá á visitarlo el Capitán de éste, ó ayudante, asistido del intérprete, en su caso; y pidiendo al capitán de aquél su última patente, el rol y la licencia de andar armado, si lo estuviere, se cerciorará del número de hombres que haya al servicio del del buque, y del de los pasajeros, debiendo recibir del capitán una lista nominal de los últimos; si hubiere altas ó bajas, averiguará la causa; y si hubiere presos, se tomará razón de ellos y se les visitará, pero sin cohibir la autoridad propia del capitán y piloto en cuanto les sea atributivo respecto de la disciplina del buque.

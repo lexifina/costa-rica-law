@@ -1,0 +1,2 @@
+Art. 67.-En todo caso de cuarentena, es prohibida la circulación de los artículos que constituyen el cargamento del buque, hasta que éste sea declarado á libre plática.
+§ único.-Los metales y demás objetos minerales, y el numerario, quedan exceptuados de la prohibición contenida en este artículo, los que podrán circular libremente después de cuarenta y ocho horas de ventilación al sol sobre cubierta.

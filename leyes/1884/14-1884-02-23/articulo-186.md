@@ -1,0 +1,1 @@
+Art. 186.-El Capitán deberá dar auxilio al de cualquier buque mercante extranjero que lo pida para reprimir á bordo desórdenes y delitos, en cuyos casos remitirá las personas responsables ante el juez competente, con oficio en que exponga el hecho que lo motiva.

@@ -1,0 +1,1 @@
+Art. 74.-En el último caso expresado en el artículo anterior, el cabo de la guardia dará inmediatamente parte al capitán del puerto, quien sin demora ordenará al médico de sanidad que vaya á prestar el socorro pedido, con todas las precauciones que la ciencia aconseja para tales circunstancias.

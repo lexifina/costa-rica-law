@@ -1,0 +1,2 @@
+Art. 84.-Para hacer efectiva la responsabilidad de que tratan el artículo anterior y el 74, tan luego como el buque se ponga al ancla en el puerto, el capitán de éste hará quitarle el timón, la aguja de marear en su bitácora, el sextante y la carta, todo lo que guardará hasta que el capitán haga el pago á que se refieren los artículos 75 y 83.
+§ único. -Se prescindirá de esa precaución, si el capitán del buque diere fianza suficiente á satisfacción del Administrador de Rentas.
