@@ -1,0 +1,1 @@
+Artículo 2°—Toda misión oficial del Gobierno de Costa Rica que asista a una conferencia, congreso, reunión o asamblea de carácter internacional, deberá ser designada al efecto mediante acuerdo por el Ministerio de Relaciones Exteriores y Culto.

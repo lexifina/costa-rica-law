@@ -1,0 +1,1 @@
+Artículo 3°—Al producirse dicho nombramiento y por el término que dure el cometido, las personas que integren la delegación serán considerados como funcionarios en misión del Ministerio de Relaciones Exteriores y Culto.
