@@ -1,4 +1,6 @@
+(Derogado)
 MUNICIPALIDAD DE GOICOECHEA
+DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 25 de 18 de julio de 2001, publicada en La Gaceta N° 143 de 26 de julio de 2001.
 El texto integro del presente Reglamento fue publicado en La Gaceta N° 126 de 03 de julio de 1996.
 El Concejo Municipal en sesión ordinaria N° 77-97, celebrada el día 19 de agosto de 1997, artículo 4°, se conoció oficio DAD 1178, suscrito por el Ejecutivo Municipal y Director Administrativo, referente a observaciones al Reglamento Autónomo de Organización del Comité Cantonal de Deportes.
 Al respecto, por unanimidad y con carácter firme se acuerda:
