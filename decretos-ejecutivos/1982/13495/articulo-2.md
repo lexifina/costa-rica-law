@@ -1,0 +1,1 @@
+Artículo 2°-La Procuraduría General de la República hará inscribir los terrenos sin inscribir ubicados dentro de esta zona protectora en el Registro Público, como finca individualizada del patrimonio nacional.

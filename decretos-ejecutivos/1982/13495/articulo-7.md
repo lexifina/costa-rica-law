@@ -1,0 +1,1 @@
+Artículo 7°-Se encarga al Instituto Geográfico Nacional la interpretación de los límites descritos, de acuerdo con el avance cartográfico del mapa básico del país, la elaboración de un mapa separado de esta zona protectora y la toma de nuevas fotos aéreas para la confección de un mosaico fotográfico actualizado.

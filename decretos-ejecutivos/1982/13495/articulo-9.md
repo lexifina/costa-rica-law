@@ -1,0 +1,1 @@
+Artículo 9°-Previa audiencia y comunicación a los interesados, y atendiendo a los fines que persigue el presente decreto, los contratos o los permisos de explotación maderera otorgados en esta zona protectora, serán rescindidos.

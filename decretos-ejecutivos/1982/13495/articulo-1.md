@@ -1,0 +1,17 @@
+N° 13495-A
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERIA,
+En el uso que les confieren los artículos 1°, 2°, inciso b), 27, 83, 86 y 87 de la Ley Forestal, N° 4465 del 25 de noviembre de 1969, y
+Considerando:
+1°-Que es un deber del Estado orientar el aprovechamiento de los recursos forestales en forma técnica que permita su rendimiento continuo y asegurar que los terrenos de vocación forestal permanezcan siempre con su cobertura boscosa.
+2°-Que por razones topográficas, climáticas y por su vegetación, la zona ubicada al norte de cerro Cacho Negro y del volcán Barva, es una importante cuenca de captación que garantiza la afluencia de aguas para suplir necesidades actuales y futuras de las poblaciones del país y particularmente que un desequilibrio en esas características tendría consecuencias imprevisibles en la estabilidad de los suelos.
+3°-Que las condiciones topográficas, edáficas y climáticas hacen que la zona no presente ningún potencial para desarrollar actividades agropecuarias en forma sostenida.
+4°-Que con la creación de esta zona protectora se logrará mantener unidos ecosistemas de bioclimas del bosque muy húmedo tropical hasta bioclimas pluviales del piso montano, condición única en las áreas silvestres del país, lo cual garantizará la supervivencia de aves y otros animales migratorios.
+5°-Que la zona contiene un altísimo porcentaje de especies endémicas de flora y fauna que le confieren un desusado interés biogeográfico.
+6°-Que la zona presenta características geológicas de interés, particularmente en aspectos vulcanológicos relacionados con el volcán Barva.
+7°-Que esta zona protectora hará posible la conexión del Parque Nacional Braulio Carrillo con la Estación Biológica La Selva , uno de los centros de investigación del bosque tropical más importantes del mundo desde hace ya muchos años.
+8°-Que es de suma importancia mantener y proteger las distintas poblaciones de animales y vegetales de la región.
+9°-Que es de vital importancia para la población del Valle Central Intermontano, la preservación de áreas boscosas para mantener un medio ambiente adecuado.
+Por tanto,
+DECRETAN:
+Artículo 1°-Se establece la Zona Protectora "La Selva”, que comprende el territorio ubicado dentro de la siguiente demarcación, basada en los mapas topográficos 1:50.000 del I.G.N. (río Sucio 3447 III, río Cuarto 3347 II, Poás 3346 I): partiendo de un punto del río Peje ubicado sobre el límite de la Reserva Forestal de la Cordi llera Volcánica Central, que se encuentra sobre las coordenadas N 252.600 y E 527.060, sigue una recta hasta el punto de coordenadas N 252.750 y E 526.800. De aquí, el límite continúa por una línea paralela al río Peje, equidistante de la margen izquierda del mismo 300 metros y el cual sigue su curso aguas abajo, hasta encontrar el río Sarapiquí, en el punto de coordenadas N 269.000 y E 532.475. A partir de este punto continúa el límite aguas abajo por el río Sarapiquí hasta el punto dado por las coordenadas N 269.500 y E 535.050 donde se une con el río Puerto Viejo. Sigue aguas arriba por dicho río hasta el punto de coordenadas N 266.175 y E 537.250. De este punto el limite continúa por una línea paralela a la margen derecha del río Guácimo equidistante del mismo 300 metros aguas arriba, hasta un punto del limite de la Reserva Forestal de la Cordillera Volcánica Central, ubicado sobre las coordenadas 251.400 y E 529.925. De aquí sigue en línea recta hasta el punto de coordenadas 252.600 y E 527.060, en el cual se origina esta demarcación.

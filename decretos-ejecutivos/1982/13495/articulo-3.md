@@ -1,0 +1,1 @@
+Articulo 3°-Dentro de los limites establecidos por esta zona protectora, a los ocupantes de terrenos sin inscribir, no amparados por la posesión decenal, pero con derechos de posesión, se les reconocerán únicamente las mejoras correspondientes.
