@@ -1,1 +1,0 @@
-Artículo 3°.-El aumento en las dietas de los miembros del Consejo de Salud Ocupacional y del Consejo Nacional de Salarios rige a partir del 1° de marzo de 1983 y se hará efectivo de acuerdo con las disponibilidades presupuestarias del Ministerio de Trabajo y Seguridad Social.
