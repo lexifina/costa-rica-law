@@ -1,0 +1,1 @@
+III.—Equipo de Transportes y otros: A más tardar el 16 de octubre de 1964 el Instituto convendrá con la Junta el traspaso del equipo de transportes, equipo y útiles de oficina, materiales, y demás enseres que forman parte de la Agencia del Instituto en Cartago y destinado a los servicios eléctricos en los lugares que la Junta va a servir.

@@ -1,0 +1,1 @@
+X.—Contratación de un Empréstito: De acuerdo con la Ley que se reglamenta se autoriza a la Junta para que contrate un empréstito hasta por quinientos mil colones, a diez años plazo. Tal empréstito podrá contratarlo por un suma global con un solo Banco o por sumas menores con varios Bancos del Sistema Bancario Nacional.

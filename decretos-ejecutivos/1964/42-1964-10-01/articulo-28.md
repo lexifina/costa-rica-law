@@ -1,0 +1,1 @@
+Artículo 28.—Sobre el Patrimonio puesto al servicio público, el Servicio le otorgará un rédito para desarrollo justo, el cual sólo podrá ser empleado en el mejoramiento y extensión de sus instalaciones, y en cuanto lo requiera cumplimiento de sus obligaciones y fines.

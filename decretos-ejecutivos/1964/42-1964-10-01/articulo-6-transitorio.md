@@ -1,0 +1,1 @@
+VI.— Depósitos de Garantía: Los depósitos de garantía hechos al Instituto por los abonados que pasen a serlo de la Junta, serán traspasados a esta última a más tardar el 16 de enero de 1965 con el detalle correspondiente.

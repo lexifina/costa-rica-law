@@ -1,0 +1,3 @@
+VIÍI.—Traspaso de Contratos: El Instituto queda autorizado para traspasar a la Junta los contratos de compra-venta de energía eléctrica suscritos con la Compañía Agrícola Santiago, S. A., existentes entre ambas empresas; y el Servicio queda autorizado para regular las condiciones de la venta y entrega de energía de la Compañía a la Junta y para aprobar los convenios que al respecto celebraren estas dos últimas entidades.
+Las compras de energía que la Junta efectúe tanto del Instituto como de la Compañía deberá realizarse en forma tal que se garantice la mejor utilización
+de ambas fuentes, y con el fin de lograr el más bajo costo posible.

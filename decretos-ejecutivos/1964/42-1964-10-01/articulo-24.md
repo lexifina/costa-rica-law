@@ -1,0 +1,1 @@
+Artículo 24.—En la elaboración y liquidación de los presupuestos la Junta se ajustará a las normas legales, y a las disposiciones de la Contraloría Genera! de la República y del Servicio, de acuerdo con sus respectivas facultades legales.

@@ -1,0 +1,1 @@
+Artículo 10.—No podrá ser miembro de la Junta quien tenga parentesco hasta el tercer grado inclusive por consanguinidad o afinidad con alguno de los regidores o con el Ejecutivo de la Municipalidad del cantón central de Cartago.

@@ -1,0 +1,1 @@
+Artículo 2°—Para efectos de este Reglamento la Junta Administrativa del Servicio Eléctrico de Cartago se llamará la “Junta”; el Concejo Municipal de Cartago. “Concejo”; el Servicio Nacional de Electricidad, el “Servicio”’: y el Instituto Costarricense de Electricidad, el “instituto”.

@@ -1,0 +1,2 @@
+Artículo 8°—Los miembros de la Junta devengarán dietas no mayores de setenta y cinco colones por asistencia a cada sesión. Esa remuneración lo será para una sesión ordinaria por semana y para dos extraordinarias en el mes.
+Podrán celebrarse mayor número de sesiones extraordinarias en el mes, si fuera necesario pero sin remuneración. Los suplentes devengarán dieta sólo cuando asistan en sustitución de propietarios.

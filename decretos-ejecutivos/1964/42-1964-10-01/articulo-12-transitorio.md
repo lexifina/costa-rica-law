@@ -1,0 +1,1 @@
+XII.—Reconexión de Servicios: El Instituto deberá reconectar los ser e hubieren sido suspendidos y deberá atender solicitudes de nuevos servicios de acuerdo con los Reglamentos aprobados por el Servicio.

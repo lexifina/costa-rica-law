@@ -1,0 +1,1 @@
+Artículo 13.—La Junta deberá sesionar ordinariamente una vez por semana, y extraordinariamente cuando sea necesario y fuere convocada por su Presidente, por dos de sus miembros, fuere acordado por ella misma en sesión anterior o convocada por el Ejecutivo Municipal.

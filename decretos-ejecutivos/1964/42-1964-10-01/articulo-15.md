@@ -1,0 +1,1 @@
+Artículo 15.—La Junta designará de su seno un Presidente y un Vicepresidente. El Presidente tendrá la representación judicial y extrajudicial de la Junta. El Vicepresidente sustituirá al Presidente en los casos de ausencia o impedimento .

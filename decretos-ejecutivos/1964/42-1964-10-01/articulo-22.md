@@ -1,0 +1,1 @@
+Artículo 22.—Corresponde al Administrador la obligación de presentar programas de trabajo, presupuestos, informes económico-financieros, y de desplegar toda las actividades necesarias para el adecuado cumplimiento de sus funciones y finalidades de la Junta.

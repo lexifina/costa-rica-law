@@ -1,0 +1,1 @@
+Artículo 16.—La Junta está facultada para dictarse sus propios reglamentos internos v tendrá independencia administrativa, pero queda sujeto a todas las reglamentos y disposiciones relativas a administración financiera, tarifas y generación, transmisión y distribución de energía eléctrica.

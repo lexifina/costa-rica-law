@@ -1,0 +1,1 @@
+Artículo 30.—Las controversias relativas al suministro de servicios eléctricos entre las empresas productoras de energía y la Junta, y entre ésta y los consumidores, serán resueltas de modo definitivo por el Servicio, en sus condiciones de Organismo Regulador.

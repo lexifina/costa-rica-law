@@ -1,0 +1,1 @@
+XIV.—Fondos para Obras Específicas: Los fondos del Presupuesto Nacional que a la fecha del inicio de operaciones de la Junta no hubieren sido utilizados por el Instituto para extender servicios eléctricos en lugares que fue: de jurisdicción de la Junta, pasarán a propiedad de la misma para los fines previstos en las leyes que les dieron origen.

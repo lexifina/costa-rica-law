@@ -1,0 +1,1 @@
+XI .—Aportes del Estado: VA Poder Ejecutivo remitirá a la Asamblea Legislativa un proyecto de ley con suficiente sustento económico con el fin de aportar al Capital de la Junta la suma de un millón doscientos mil colones. De esta suma deberá entregarse a la Junta seiscientos mil colones en el año 1964 y el resto en cuotas de trescientos mil colones cada año a partir del año 1965.

@@ -1,0 +1,1 @@
+XV.—Rotación de los Miembros de la Junta: Para establecer una ción conveniente de los integrantes de la Junta, durante el primer periodo de tres años, tanto al final del primer año como al final del segundo, se procederá a renovar, por sorteo, uno de los miembros propietarios y el respectivo suplen!

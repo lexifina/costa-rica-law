@@ -1,0 +1,2 @@
+XVI,—Garantías al Actual Personal: A fin de garantizar a los empleados del actual sistema eléctrico de la zona a servir por la Junta de los derechos derivados de sus contratos de trabajo, la Junta procurará la conservación del personal actual. El personal que no pase a trabajar con la Junta puede conservarlo el Instituto, si estuvieren de acuerdo, o pagarle las indemnizaciones laborales correspondientes.
+Dado en la Casa Presidencial,.San José, al primer día del mes de octubre de mil novecientos sesenta y cuatro.

@@ -1,0 +1,1 @@
+Artículo 12.—Treinta días antes de terminar el período para el cual han sido nombrados los miembros de la Junta, ésta deberá comunicarlo por escrito al organismo correspondiente, para los efectos del respectivo nombramiento.

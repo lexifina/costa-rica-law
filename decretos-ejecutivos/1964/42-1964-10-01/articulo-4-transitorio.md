@@ -1,0 +1,1 @@
+IV.—Avalúos:-El avalúo de los bienes que reciban la Municipalidad y la Junta indicarán el valor original y la depreciación acumulada, según los libros un Instituto, actualizada a la fecha del traspaso.

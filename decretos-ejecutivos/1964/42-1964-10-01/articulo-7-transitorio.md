@@ -1,0 +1,1 @@
+VIl.—Consolidación de Obligaciones: A fin de que la Junta pueda consolidar obligaciones que ella y la Municipalidad de Cartago asumen, se autoriza dos emisiones de bonos, de acuerdo con lo establecido en el artículo la Ley y el correspondiente Reglamento que al efecto se emitirá.

@@ -1,0 +1,1 @@
+Artículo 37.—Los consumidores de energía a tensión igual o mayor 33 KV serán servidos por el Instituto; sin embargo éste podrá otorgar a la Junta la administración de las líneas y de esos servicios, bajo las condiciones que fije el respectivo reglamento que se emitirá como complementario del presente.
