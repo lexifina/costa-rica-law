@@ -1,0 +1,1 @@
+Artículo 12.-Ademas de los guardas secretos, habrá los resguardos públicos ambulantes que el Gobierno juzgase necesarios, con las atribuciones que les designa el Capítulo 19 Sección 1° del citado Reglamento de Hacienda. El Inspector General de la misma, es el Jefe más inmediato de estos Resguardos y de los guardas secretos.

@@ -1,0 +1,1 @@
+Artículo 3°. -El que venda clandestinamente aguardiente mistelas del país extrangeras, de clase distinta de las que se expenden por cuenta del Gobierno, sufrir la mitad de la pena del artículo anterior, pero si confesare y probare de que‚ fábrica que persona ha comprado el artículo, no se le impondrá pena alguna.
