@@ -3,7 +3,7 @@ a. Elaborar los carteles de las licitaciones públicas y someterlos a la aprobac
 b. Analizar las ofertas y tramitar los contratos para la exploración y explotación de los hidrocarburos y remitir las recomendaciones técnicas respectivas al Poder Ejecutivo, por medio del Consejo Técnico de Hidrocarburos.
 c. Fiscalizar las actividades desarrolladas por los contratistas.
 d. Analizar la concurrencia de causales de nulidad o de caducidad de los contratos y elevar su recomendación al Poder Ejecutivo, por medio del Consejo Técnico de Hidrocarburos.
-e. Recomendar al Poder Ejecutivo la procedencia o la improcedencia de la cesión, parcial o total, de los contratos.
+e. (DEROGADO por el artículo 16 del Decreto Ejecutivo N° 28148, del 30 de agosto de 1999)
 f. Analizar y recomendar, al Poder Ejecutivo, el otorgamiento de las prórrogas solicitadas por los contratistas.
 g. Velar por el cumplimiento de la tasa máxima de eficiencia productiva (MEP).
 h. Llevar los registros citados en los artículos 20 y 21 de la Ley 7399.
