@@ -1,0 +1,2 @@
+Art. 5°-Con el presente decreto se dará cuenta al Congreso Constitucional en su próxima reunión ordinaria.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintinueve días del mes de enero cuatro de mil ochocientos ochenta y cuatro. LEOVIGILDO CASTRO S., Secretario.-Liberia. -A. DE JESÚS SOTO, Presidente.-Ejecútese.-P. FERNÁNDEZ.-El Secretario de Estado en el Despacho de lo Interior.-BERNARDO SOTO.
