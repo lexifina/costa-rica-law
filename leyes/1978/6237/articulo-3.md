@@ -1,0 +1,1 @@
+Artículo 3º.- Las limitaciones que establece el párrafo primero del artículo 17 de la ley que se deroga, constantes en las inscripciones del Registro de la Propiedad, quedan insubsistentes y serán canceladas por dicho Registro a gestión del interesado.
