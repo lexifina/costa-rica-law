@@ -1,0 +1,1 @@
+Artículo 25.—La competencia territorial del notificador: El notificador podrá notificar en todo el territorio nacional, será obligación del Colegio de Contadores Privados de Costa Rica el proveer el recurso humano y técnico necesario para cumplir con esta función.

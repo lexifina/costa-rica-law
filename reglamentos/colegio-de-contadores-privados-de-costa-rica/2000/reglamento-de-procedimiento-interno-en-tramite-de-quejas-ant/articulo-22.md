@@ -1,0 +1,4 @@
+Artículo 22.—De la forma de notificación de las distintas resoluciones: Las resoluciones establecidas en el artículo veinte, deberán ser notificadas de la siguiente manera: las resoluciones de los incisos a, e y f, deberán ser notificadas personalmente al interesado.
+Las demás resoluciones podrán ser notificadas en el lugar que señaló para su recibo para evitar indefensión.
+Si en la dirección señalada él notificando no pudiere ser habido, se tendrá por notificada veinticuatro horas después de dictada.
+Cuando las notificaciones hayan de hacerse personalmente y no fuere habido el notificando, la resolución se le notificará mediante edictos publicados en el Diario Oficial "La Gaceta¨, todo ello de conformidad con las prescripciones establecidas, en lo conducente, en el Capítulo Primero del Título Tercero de la Ley General de la Administración Pública, teniéndose por notificado al día siguiente de la publicación respectiva.

@@ -1,0 +1,2 @@
+Artículo 19.—De los recursos: El Recurso de Revocatoria procederá contra todas las resoluciones del Órgano Instructor, siempre que se interpongan dentro del término de tres días.
+El Recurso de Apelación, procederá cuando se ejercite contra las sentencias definitivas o contra los autos que pongan término al litigio o imposibiliten su continuación, siempre que se interponga dentro del tercer día. La Apelación será resuelta por la Junta Directiva dentro de un plazo máximo de un mes.

@@ -1,0 +1,1 @@
+Artículo 9º—Del Órgano Instructor de las Quejas: La Comisión de fiscalía actuará como instructora con plenas facultades en el ejercicio de sus funciones, sin necesidad de consulta a la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 14.—De los alegatos de conclusiones: Concluida la investigación, deberá darse audiencia por tres días al denunciante, si lo hubiere, y al denunciado para que formulen las alegaciones que convengan a sus intereses.

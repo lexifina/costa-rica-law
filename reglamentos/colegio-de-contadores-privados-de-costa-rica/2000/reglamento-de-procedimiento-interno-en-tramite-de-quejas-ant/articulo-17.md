@@ -1,0 +1,1 @@
+Artículo: 17.—Al pronunciarse sobre el fondo, el Instructor indicará, debidamente fundamentado, los hechos que tenga por probados, los que considere faltos de prueba y expondrá con claridad sus razonamientos y conclusiones. Lo resuelto se comunicará al denunciante, si lo hubiere.
