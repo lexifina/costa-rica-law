@@ -13,3 +13,4 @@ Modifica Derechos Arancelarios de Importación de Frijoles(Rige hasta el 26 de j
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-31 | la propia norma |
+| 2 | 1999-05-31 | Decreto Ejecutivo 27956 (1999-06-26) |
