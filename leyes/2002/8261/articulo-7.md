@@ -1,0 +1,1 @@
+Artículo 7º—Coordinación entre las instituciones. Todas las instituciones públicas del Estado deberán coordinar, con el Consejo Nacional de la Política Pública de la Persona Joven, la ejecución plena de los deberes aquí establecidos, los objetivos de la ley, así como las políticas que se determinen.

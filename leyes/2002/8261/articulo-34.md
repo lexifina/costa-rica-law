@@ -1,0 +1,1 @@
+Artículo 34.—Leyes referentes al Movimiento Nacional de Juventudes. A partir de la vigencia de esta Ley, en toda norma del ordenamiento jurídico nacional donde se mencione el Movimiento Nacional de Juventudes, deberá leerse el Consejo Nacional de Política Pública de la Persona Joven.

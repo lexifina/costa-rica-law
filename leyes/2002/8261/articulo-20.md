@@ -1,0 +1,1 @@
+Artículo 20.—Nombramiento y remoción. El director ejecutivo y el subdirector ejecutivo serán de nombramiento y libre remoción del Consejo. En caso de ausencia temporal, el director ejecutivo será sustituido por el subdirector ejecutivo.

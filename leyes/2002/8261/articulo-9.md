@@ -1,0 +1,1 @@
+Artículo 9º—Coordinación con la sociedad civil. El Estado y la sociedad civil, con la participación de las personas jóvenes, coordinará una política integral y permanente, así como planes y programas que contribuyan a la plena integración social, económica, cultural y política de la persona joven, por medio de estrategias claras, oportunas y precisas.

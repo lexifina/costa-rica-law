@@ -1,0 +1,1 @@
+Artículo 19.—Organización. La Dirección Ejecutiva estará dirigida por un director ejecutivo y un subdirector ejecutivo, quien realizará las funciones que le encomiende el director ejecutivo. Esta Dirección contará al menos con tres unidades de administración interna: una de administración y finanzas, una de investigación y una de promoción de la participación juvenil.
