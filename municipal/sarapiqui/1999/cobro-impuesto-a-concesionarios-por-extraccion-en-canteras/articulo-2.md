@@ -1,0 +1,1 @@
+Artículo 2º—Son sujetos pasivos o contribuyentes del impuesto, las personas físicas y jurídicas que se dediquen a la explotación de canteras en el cantón y que hayan obtenido la respectiva concesión de explotación por parte de la Dirección General de Geología y Minas e Hidrocarburos.

@@ -1,0 +1,1 @@
+Artículo 4º—El impuesto será del 10% (diez por ciento) calculado sobre la base del precio de mercado, que será para cada tipo de material, el de venta al público del producto primario extraído durante el mes anterior, puesto en el sitio de extracción y que exprese la declaración jurada o en su defecto la tasación de oficio hecha por la Municipalidad.
