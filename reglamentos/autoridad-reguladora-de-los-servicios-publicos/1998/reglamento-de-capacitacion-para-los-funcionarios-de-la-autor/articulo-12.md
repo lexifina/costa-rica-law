@@ -1,1 +1,0 @@
-Artículo 12.—Suplencias. Para garantizar el quorum, cada miembro de la Comisión tendrá un suplente quien lo reemplazará en sus ausencias. Durante sus ausencias el Jefe de Recursos Humanos será sustituido por el respectivo jefe interino.

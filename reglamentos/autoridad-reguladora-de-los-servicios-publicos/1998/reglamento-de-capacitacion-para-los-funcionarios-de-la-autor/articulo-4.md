@@ -1,1 +1,0 @@
-Artículo 4°—Actuación. Recursos Humanos actuará en materia de capacitación, de conformidad con las políticas emanadas de Junta Directiva y del Regulador General, en coordinación con la Comisión cuando corresponda, y en apego al Plan vigente y a la detección previa de los candidatos a las futuras capacitaciones.

@@ -1,2 +1,0 @@
-Artículo 19.—Procedimiento para solicitar el beneficio. El funcionario interesado en solicitar los beneficios incluidos en este capítulo,
-presentará solicitud escrita ante Recursos Humanos. La solicitud inicial será aprobada en definitiva por el Regulador General, con base en la recomendación de la Comisión. Las solicitudes posteriores, derivadas de la solicitud inicial, con actualización de información de ciclo lectivo serán tramitadas por Recursos Humanos, previo análisis y recomendación de la Comisión.

@@ -1,2 +1,0 @@
-Artículo 13.—Sesiones. La Comisión sesionará ordinariamente cada cuatro semanas y extraordinariamente cada vez que sea necesario, a juicio del presidente, en este caso deberá convocarse con una antelación de veinticuatro horas por lo menos, respecto de la hora de la sesión con indicación de los puntos que se tratarán.
-Las sesiones serán privadas, no obstante la Comisión podrá solicitar la participación de algún funcionario cuando lo estime conveniente. Igualmente podrá conceder audiencia al funcionario que así lo solicite.

@@ -1,5 +1,0 @@
-CAPITULO III
-De la planificación, ejecución y evaluación de actividades de capacitación
-Artículo 5°—Planificación de actividades de capacitación.
-Anualmente se planificará la capacitación por realizar en el año siguiente, con base en el proceso de detección de necesidades de capacitación que definirá Recursos Humanos, el cual entre otros aspectos, deberá establecer la relación que haya entre los déficits de formación identificados mediante la evaluación del desempeño y las acciones tendientes a la disminución de dicho déficit. El resultado del mencionado proceso sera el Plan de Capacitación, el cual requerirá de la aprobación de la Junta Directiva para que pueda ejecutarse.
-Cuando se presente una oportunidad de capacitación, mediante beca o cooperación de gobiernos amigos u organismos internacionales, no prevista en el Plan de capacitación, ésta será canalizada a la Comisión por medio de Recursos Humanos. La Comisión efectuará el respectivo concurso de oposición, según el artículo 6 del reglamento a la Ley No 1810 de licencias para el adiestramiento de servidores públicos y sus reformas.

@@ -1,1 +1,0 @@
-Artículo 11-—Quorum. El quorum para que puedan sesionar válidamente lo formarán tres de sus miembros. De no lograrse el quorum, cuando se deban decidir asuntos con plazos perentorios, Recursos Humanos decidirá y elevará la propuesta al Regulador General.
