@@ -1,0 +1,1 @@
+Artículo 16.-Las Juntas Mediadoras conocerán de aquellos asuntos que no haya sido posible solucionar directamente entre el o los servidores y sus jefes inmediatos, ante quienes deberá plantearse en todo caso la primera gestión.

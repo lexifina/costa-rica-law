@@ -1,0 +1,1 @@
+Artículo 19.-En las Estaciones de Servicio deberán instalarse dormitorios, comedores y salas de recreación debidamente acondicionadas, para que los servidores tengan un mínimo de comodidades durante la prestación de sus servicios.
