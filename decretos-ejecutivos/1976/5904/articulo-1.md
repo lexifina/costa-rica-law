@@ -104,8 +104,10 @@ Este último punto, es el inicio de la presente descripción.
 Además, la Reserva de Chirripó incluirá, como anexo administrativo, la "Reserva Indígena de Nimari-Bukeri"."*(**), su delimitación exacta será efectuada por el ITCO, en coordinación con la CONAI.
 (Así reformado los linderos de la Reserva Indígena de Chirripó anterior por el artículo 2° del decreto ejecutivo N° 6036 del 26 de mayo de 1976)
 (**) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 7267 del 9 de agosto de 1976. Anteriormente se indicaba: "Reserva Indígena de Río Peje de Pacuare")
-(*) Finca "Chirripó-Corina" (finca 4 Chirripó), situada en la hoja del Instituto Geográfico Nacional, Barbilla 3545 IV y localizada por los puntos cuyos rumbos, distancias y coordenadas son:
-Partiendo de un punto en el río Chirripó, coordenadas N 220 900, E 613 350, se sigue con un rumbo S 14° Q2' E y una distancia de 206,16 metros al río Zent en coordenadas N 220 700, E 613 400, se continúa aguas abajo por el río Zent hasta un punto en coordenadas N 216 700, E 615 200. De este punto se sigue con los siguientes rumbos, distancias y coordenadas:
+(*) Finca "Chirripó-Corina" (finca 4 Chirripó), situada en la hoja del Instituto Geográfico Nacional, Barbilla 3545 IV y Matina 3546 III(**) y localizada por los puntos cuyos rumbos, distancias y coordenadas son:
+(**) (Así reformada la frase anterior por el artículo 4° del decreto ejecutivo N° 7736 del 20 de setiembre de 1997)
+Partiendo de un punto en el río Chirripó, coordenadas N 220 900, E 613 350, se sigue con un rumbo S 14° Q2' E y una distancia de 206,16 metros al río Zent en coordenadas N 220 700, E 613 400, se continúa aguas arriba(*) por el río Zent hasta un punto en coordenadas N 216 700, E 615 200. De este punto se sigue con los siguientes rumbos, distancias y coordenadas:
+(*) (Así reformada la frase anterior por el artículo 3° del decreto ejecutivo N° 7736 del 20 de agosto de 1977)
 N 78 26 W | 4 491.10 | 217 600 | 610 800
 N 84 55 W | 4 517.74 | 218 000 | 606 300
 N 05 43 E | 502.49 | 218 500 | 606 350
@@ -346,7 +348,11 @@ De este punto basta el punto de origen de la presente descripción, en coordenad
 (Así adicionada la Reserva Indígena Telire anterior por el artículo 7° del decreto ejecutivo N° 6036 del 26 de mayo de 1976)
 Establécese la Reserva Indígena de Nimari-Bukeri:
 RESERVA INDÍGENA DE NIMARI-BUKERI
-La Reserva Indígena de Nimari-Bukeri se encuentra en las hojas del Instituto Geográfico Nacional, escala 1: 50 000, Barbilla 3545 IV y Tucurrique 34451 y se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
+La Reserva Indígena de Nimari-Bukeri se encuentra en las hojas del Instituto Geográfico Nacional, escala 1: 50 000, Barbilla 3545 IB y Tucurrique 3445 I y se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 7736 del 20 de setiembre de 1977)
+(*)La Reserva se localiza como sigue:
+Partiendo de la unión del río Pacuare con la quebrada Salpuri, en coordenadas N 207 150, E 589 000, se sigue aguas arriba por la quebrada Salpuri hasta un punto en coordenadas N 208 050, E 590 025. De este punto se continúa con los siguientes rumbos, distancias y coordenadas:
+(*) (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 7736 del 20 de setiembre de 1977)
 N 13 38 E | 1 697.79 | 209 700 | 590 425
 N 37 23 W | 2 265.09 | 211 500 | 589 050
 N 37 05 E | 1 078.01 | 212 360 | 589 700
@@ -371,7 +377,10 @@ Se sigue aguas abajo por la Quebrada Jamari hasta su unión con el río Pacuare 
 Área de la Reserva: 7 439 Ha. 6 875 m2.
 (Así adicionada la Reserva Indígena de Nimari-Bukeri anterior por el artículo 2° del decreto ejecutivo N° 7267 del 9 de agosto de 1977. Posteriormente mediante el numeral 5° del decreto ejecutivo antes indicado, se estableció que la Reserva Indígena de Nimari-Bukeri es parte integrante de la Reserva Indígena de Chirripó y sus representantes serán integrados a la admiración de dicha Reserva; la Reserva será inscrita en el Registro de la Propiedad nombre de la misma comunidad indígena cabecar de Chirripó, pero como finca distinta (finca 2 Chirripó).
 RESERVA INDÍGENA DE-COCLES
-Esta Reserva se encuentra en las hojas del Instituto Geográfico Nacional Amubri 3644 TV y Sixaola 3644 I, y se localiza por los puntos cuyos rumbos, anclas y coordenadas son:
+La Reserva Indígena de Cocles se encuentra en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Amubri 36 44 IV y Sixaola 36 44 I.
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 7736 del 20 de setiembre de 1977)
+La Reserva se localiza como sigue:
+Partiendo de un punto en la playa, coordenadas N 399 325, E 604 150, se continúa con los siguientes rumbos, distancias y coordenadas:
 S Franco | 1 225.00 | 398 100 | 604 150
 S 32 32 W | 1 097.14 | 397 175 | 603 560
 S 15 20 E | 907.32 | 396 300 | 603 800
