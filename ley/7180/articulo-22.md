@@ -1,5 +1,4 @@
-ARTICULO 22.- Se establecen las tarifas siguientes, que se aplicarán a
-las personas físicas o jurídicas señaladas en el artículo 20 de esta ley.
+ARTICULO 22.- Se establecen las tarifas siguientes, que se aplicarán a las personas físicas o jurídicas señaladas en el artículo 20 de esta ley.
 IMPUESTO TRIMESTRAL
 POR CATEGORIAS
 1ra. o 2da. 3ra.
