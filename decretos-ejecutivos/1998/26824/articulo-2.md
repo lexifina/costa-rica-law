@@ -1,0 +1,1 @@
+Artículo 2°—La administración del Refugio Nacional de Vida Silvestre Categoría Mixto Pejeperro, le corresponde a la Dirección General de Vida Silvestre, quien la ejercerá a través del Área de Conservación Osa, del Sistema Nacional de Áreas de Conservación, del Ministerio del Ambiente y Energía, quien determinara los procedimientos a seguir para este objetivo.
