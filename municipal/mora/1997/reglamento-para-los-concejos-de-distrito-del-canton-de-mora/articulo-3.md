@@ -1,1 +1,0 @@
-Artículo 3°—El Síndico Propietario presidirá las sesiones, en caso de ausencia lo sustituirá el Síndico Suplente, éste no forma parte del Concejo de Distrito, solo en ausencia del primero puede asistir a las sesiones, con voz pero sin voto.

@@ -1,1 +1,0 @@
-Artículo 5°—En los distritos donde no hay Síndicos Propietarios ni Suplentes porque no se ha integrado a las labores municipales, el Concejo de Distrito funcionará con cuatro miembros y los presidirá el Vicepresidente.
