@@ -14,3 +14,4 @@ Reglamento del Sistema Automatizado Depósitos y Pagos Judiciales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-01 | la propia norma |
+| 2 | 2000-06-01 | Ley 8 |
