@@ -13,3 +13,4 @@ Reglamento Ley Distribución de Bienes Confiscados o Decomisados (1980)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-06-11 | la propia norma |
+| 2 | 1980-06-11 | Decreto Ejecutivo 26132 (1997-06-08) |
