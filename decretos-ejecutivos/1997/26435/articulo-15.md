@@ -15,7 +15,8 @@ n) Autorizar y supervisar:
 1. El funcionamiento de zoológicos, zoocriaderos, criaderos, viveros y acuarios.
 2. El establecimiento y funcionamiento de las fincas cinegéticas, de forma tal que se ajusten a las disposiciones legales y técnicas aplicables.
 o) Velar por el cumplimiento de los permisos, licencias o concesiones otorgados, así como de las disposiciones que rigen en cuanto a investigación.
-p)Extender las licencias de caza y pesca.
+p) Autorizar las licencias de caza y pesca y autorizar los torneos de caza y pesca.
+(Así reformado el inciso anterior por el artículo 30 del decreto ejecutivo N° 30102 del 27 de noviembre de 2001, "Regulaciones para la caza menor y mayor y pesca continental e insular")
 q)Elaborar material didáctico que dé a conocer la misión, objetivos y programas de la DGVS, y en general sobre toda la gestión de la vida silvestre.
 r) Trasladar información técnica a las comunidades sobre la reproducción de flora y fauna silvestres, de conformidad con las prioridades institucionales.
 s)Coordinar con la Oficina de Relaciones Públicas del MINAE todas las actividades que ejecute la DGVS en esta materia.
