@@ -14,3 +14,4 @@ Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-09-23 | la propia norma |
+| 2 | 2003-12-18 | Decreto Ejecutivo 31642 (2003-12-18) |

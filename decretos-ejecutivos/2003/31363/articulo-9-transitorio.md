@@ -1,0 +1,2 @@
+Transitorio IX.—En tanto el Ministerio de Obras Públicas y Transportes asigna el presupuesto para el funcionamiento de la División de Circulación y Transporte de Carga, las dependencias del Ministerio y órganos adscritos que tienen y financian actividades que ahora asume la mencionada División, seguirán financiando esas actividades con cargo a sus respectivas partidas presupuestarias.
+(Así adicionado por artículo 8° del Decreto Ejecutivo N° 31642 de 18 de diciembre de 2003).
