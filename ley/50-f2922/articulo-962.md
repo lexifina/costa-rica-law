@@ -1,1 +1,2 @@
-Artículo 962.-Contra la sentencia que recaiga en el recurso de revisión no se dará recurso alguno.
+Artículo 962.- Las demandas para que se declare la inaplicabilidad de una ley, decreto, acuerdo o resolución por considerarlos contrarios a una disposición constitucional serán presentadas en la Secretaría de la Corte, tramitadas por el Presidente de la Corte Plena y resueltas por ésta con la concurrencia de todos sus miembros.
+(Así reformado por el artículo 2 de la Ley que reformó la Ley Orgánica del Poder Judicial, N° 8 del 29 de noviembre de 1937)
