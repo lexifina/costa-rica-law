@@ -24,7 +24,8 @@ F. El plazo máximo de negociación de los contratos de reporto u otros similare
 G. La custodia de los títulos objeto de los contratos de reporto u otros similares se realizará en una central de valores debidamente autorizada por la Superintendencia General de Valores, siendo suficiente los reportes emitidos por el custodio para efectos de registro.
 H. La Gerencia velará porque la información pertinente acerca de las operaciones de reporto u otras similares, realizadas por el Banco Central, sea canalizada de manera oportuna y eficaz al público.
 I. De la participación del Banco Central de Costa Rica en el Mercado Interbancario de Dinero (MIB).
-1. El Banco Central de Costa Rica participará en el Mercado Interbancario de Dinero con el objetivo de estabilizar la tasa de interés de corto plazo. La intervención del BCCR en este mercado se dará en “horario bancario” y se hará mediante operaciones de recompra.
+(*) I. El Banco Central de Costa Rica participará en el Mercado Interbancario de Dinero con el objetivo de estabilizar la tasa de interés de corto plazo. La intervención del BCCR en este mercado se dará en "horario bancario" y se hará mediante operaciones de recompra que no podrán exceder un día hábil, excepto para los créditos otorgados en días feriados y fines de semana.
+(*) (Así reformado el inciso anterior en sesión N° 5095 del 7 de noviembre de 2001)
 2. Salvo lo que dicten estas disposiciones en materia de reporto u otras figuras similares, y particularmente en cuanto a la participación del Banco Central en el MIB, por lo demás aplica el Reglamento para el Mercado Interbancario de Dinero del Instituto Centroamericano de Finanzas y Mercado de Capitales, S.A.
 3. El BCCR podrá realizar operaciones de recompra en el MIB con aquellos bancos que han cumplido satisfactoriamente con las obligaciones originadas en operaciones de recompra, sea con el BCCR o con otros bancos.
 4. Condiciones de las operaciones de recompra
