@@ -14,3 +14,4 @@ Establece Organización y Objetivos Colegio de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-01-24 | la propia norma |
+| 2 | 1999-07-08 | Decreto Ejecutivo 27993 (1999-07-08) |
