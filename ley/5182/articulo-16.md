@@ -1,0 +1,2 @@
+Artículo 16.- La Asamblea Universitaria se reunirá ordinariamente una vez al año en la fecha que señale el Estatuto y extraordinariamente cada vez que la convoque el Consejo o el Rector, por aviso publicado en periódico oficial con ocho días de anticipación por lo menos. El Consejo
+Universitario se reunirá ordinariamente una vez por semana, y extraordinariamente cada vez que lo convoque el Rector o tres de sus miembros.

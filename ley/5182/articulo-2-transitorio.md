@@ -1,0 +1,1 @@
+Transitorio II.- Los estudiantes inscritos actualmente en las instituciones que se señalan en el transitorio primero continuarán su carrera hasta su conclusión, de acuerdo con los planes de estudios iniciales.
