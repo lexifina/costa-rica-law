@@ -13,3 +13,4 @@ Amplía Límite Gasto Presupuestario al Consejo Nacional de Concesiones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-09 | la propia norma |
+| 2 | 1999-07-09 | SINALEVI (sin norma nombrada) |
