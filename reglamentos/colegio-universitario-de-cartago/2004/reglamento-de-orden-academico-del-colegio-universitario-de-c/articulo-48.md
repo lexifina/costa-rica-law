@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del seminario sobre tópicos selectos
+Artículo 48.—Seminario sobre tópicos selectos. Este seminario estará constituido por charlas sobre tópicos selectos y nuevas tecnologías en áreas específicas de cada carrera. El fin primordial de este seminario es la capacitación de los futuros graduados en temas actuales de la carrera, mismos que deberán ser de actualidad e innovadores, escogidos por el Director de Carrera, con el visto bueno de la Dirección Académica. La evaluación de los estudiantes estará a cargo del profesor del seminario, respetando los criterios de evaluación enmarcados en el presente Reglamento. La cantidad de estudiantes por grupo no podrá ser superior de quince estudiantes, ni menor de diez estudiantes.

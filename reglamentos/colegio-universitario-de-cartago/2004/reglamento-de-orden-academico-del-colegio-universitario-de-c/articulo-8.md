@@ -1,0 +1,1 @@
+Artículo 8º—Vigencia de las carreras. Las carreras deberán cumplir con el ciclo temporal establecido en el estudio del mercado respectivo y para la población estudiantil determinada. Sin embargo podrán ser suspendidas temporalmente, si un estudio de mercado o un análisis de costo-beneficio así lo determinen. Estos estudios estarán bajo la supervisión de la Decanatura.

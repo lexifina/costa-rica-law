@@ -1,0 +1,1 @@
+Artículo 57.—Del informe de matrícula. El Servicio de Registro entregará al estudiante –previa solicitud de éste– un comprobante del resultado de los cursos matriculados a más tardar un mes después de haber iniciado el curso lectivo.

@@ -1,0 +1,1 @@
+Artículo 49.—De la carga académica del profesor. Cualquiera de las opciones de graduación tendrá una carga académica de cuatro horas por semana, como mínimo y con una duración no mayor de catorce semanas.

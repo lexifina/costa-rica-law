@@ -1,0 +1,1 @@
+Artículo 19.—De la obligación de los profesores de entregar las Actas de Rendimiento Académico. El profesor está en la obligación de entregar las actas de Rendimiento Académico, al Servicio de Registro, en las fechas que estipule el cronograma institucional. Si incumpliere con dicha normativa será expuesto a sanciones estipuladas en el Reglamento Autónomo de Trabajo.

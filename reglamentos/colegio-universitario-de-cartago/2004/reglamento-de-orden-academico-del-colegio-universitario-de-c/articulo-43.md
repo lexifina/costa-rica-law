@@ -1,0 +1,1 @@
+Artículo 43.—De la responsabilidad del director de carrera. Los Directores de Carrera velarán porque a los estudiantes se les brinde las oportunidades necesarias de orientación y guía para la realización de su seminario de investigación, de manera que estos se efectúen en el lapso señalado.

@@ -1,0 +1,1 @@
+Artículo 27.—De la suficiencia. Tendrán derecho por una sola vez a esta prueba los estudiantes que la soliciten y se les haya aprobado dicha solicitud. La suficiencia se comprobará mediante una prueba escrita u oral, de tipo comprensivo preparada por la Dirección de la Carrera, para tal efecto, o por el profesor asignado por esta.

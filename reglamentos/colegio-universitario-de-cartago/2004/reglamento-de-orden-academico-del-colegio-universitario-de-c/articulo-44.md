@@ -1,0 +1,1 @@
+Artículo 44.—De la normativa para elaborar los seminarios de investigación. El Profesor Guía y el Director de la Carrera tienen la responsabilidad de fijar las normas relativas a la extensión, la profundidad en el tratamiento del tema y la metodología de los Seminarios de Investigación.

@@ -1,0 +1,2 @@
+Artículo 15.—De la asistencia y evaluación. La asistencia a los cursos regulares teóricos, tutorías y prácticas de laboratorio no puede ser menor del 85%, de las lecciones impartidas. Es obligación de todo profesor llevar el control de la asistencia.
+La evaluación de los alumnos se hará a lo largo del ciclo lectivo correspondiente y las pruebas podrán ser colegiadas, en los casos en que las asignaturas se puedan integrar en cursos colegiados.

@@ -1,0 +1,1 @@
+Artículo 45.—De la supervisión de los seminarios de graduación. El Director de la Carrera velará porque el equipo de profesores guías que supervisan los Seminarios de Investigación lo hagan de manera ágil, objetiva y expedita. Deberán entregar al Director de la Carrera los informes parciales del avance de cada proyecto.

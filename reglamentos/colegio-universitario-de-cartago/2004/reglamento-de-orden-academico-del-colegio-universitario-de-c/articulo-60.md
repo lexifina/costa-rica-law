@@ -1,0 +1,1 @@
+Artículo 60.—Del tiempo para resolver por parte de la Institución. El tiempo para resolver las solicitudes presentadas por los estudiantes es de diez días hábiles, después de recibida la solicitud correspondiente.
