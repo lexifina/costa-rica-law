@@ -1,0 +1,1 @@
+Artículo 51.—No se tomarán en cuenta cotizaciones que indiquen precios FOB o FAS, o que condicionen los precios CIF, salvo que la adjudicación sea por un monto menor de mil dólares, en cuyo caso se deberá indicar los gastos correspondientes a transporte.
