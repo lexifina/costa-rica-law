@@ -1,0 +1,2 @@
+Artículo 3º- Los puestos para expendios de licores al menudeo sólo se pueden obtener por medio de remate público, salvo lo que adelante se dispone sobre patente especial para el expendio de toda clase de licores y cerveza.
+La venta de cerveza al menudeo, solamente podrá efectuarse en los puestos de licores y una vez satisfechas las patentes respectivas establecidas o que se establezcan para el expendio de cerveza.

@@ -1,0 +1,1 @@
+Artículo 10.- Cuando un establecimiento de licores estuviese situado en la casa en que habita la familia de su dueño u otra, deberá mantenerse completamente aislado de los departamentos de habitación. La policía ordenará que se condene, con pared o de otra manera segura, cualquier puerta, ventana u otra abertura que pueda establecer comunicación.

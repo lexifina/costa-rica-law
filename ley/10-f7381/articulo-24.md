@@ -1,0 +1,1 @@
+Artículo 24.- Es absolutamente prohibido vender licor a persona que se halle en estado de embriaguez. La violación de este artículo se penará por primera vez, con multa de veinticinco a cincuenta colones, y las demás, con multa de cincuenta a doscientos colones.

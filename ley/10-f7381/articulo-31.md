@@ -1,0 +1,1 @@
+Artículo 31.- El día domingo o feriado después de las doce horas no podrán vender las boticas alcohol puro sin prescripción médica. A las farmacias y botiquines de pueblo legalmente establecidos, se les permitirá una existencia de dos botellas de cognac, dos de whisky y dos de vino blanco para el despacho de recetas.
