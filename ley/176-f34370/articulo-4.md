@@ -1,4 +1,2 @@
-Artículo 4º.- En los primeros testimonios o certificaciones de
-escrituras que no estén destinadas a inscribirse en el Registro Público,
-el funcionario que los autorice agregará y cancelará el Timbre Forense,
-también de conformidad con la escala indicada en el artículo 2º.
+Artículo 4º.- DEROGADO
+(Derogado por el artículo 11 de la Ley Nº 3245 de 3 de diciembre de 1963)
