@@ -1,1 +1,0 @@
-Artículo 25.- Se impondrá prisión de trece meses a dos años, a los distribuidores y a los fabricantes de las sustancias a las que se refiere el artículo 4 de la presente Ley, que no presentaran la descripción y las muestras a los organismos que se señalan en el citado artículo.

@@ -1,1 +1,0 @@
-Artículo 45.- Para el desarrollo de sus funciones, el Centro de Inteligencia Conjunto Antidrogas (CICAD) podrá abrir una cuenta bancaria especial y presentará su presupuesto a la Contraloría General de la República, para la correspondiente aprobación.
