@@ -1,0 +1,1 @@
+TRANSITORIO SEGUNDO.—El actual cargo de Subprocurador General de la República pasa a denominarse Procurador General Adjunto, para lo cual se reforman en tal sentido las normas legales que se refieren a aquél.

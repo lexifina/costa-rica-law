@@ -1,0 +1,3 @@
+ARTÍCULO 30.—INCOMPATIBILIDADES POR PARENTESCO:
+No podrán desempeñar, simultáneamente, cargos en la Procuraduría General de la República, personas ligadas entre sí por parentesco de consanguinidad o afinidad. Esta prohibición incluye, en ambos casos, toda línea recta. En la colateral abarca hasta el tercer grado, inclusive, si fuere de consanguinidad, y hasta el segundo, inclusive, si fuere de afinidad.
+Cesará en su cargo el servidor que contrajere matrimonio, a causa de lo cual resulte ligado por parentesco de afinidad que lo inhabilite de acuerdo con lo establecido en el párrafo anterior. En el caso de matrimonio entre servidores de la Dependencia, uno de ellos deberá ser cesado en su relación de servicio.

@@ -1,0 +1,3 @@
+ARTÍCULO 12.—DEL PROCURADOR GENERAL ADJUNTO:
+El Procurador General Adjunto deberá reunir los mismos requisitos que esta ley establece para ocupar el cargo de Procurador General; tendrá las mismas inmunidades y prerrogativas que éste y lo sustituirá en casos de ausencia, falta temporal o legítimo impedimento.
+En caso de que se encuentren vacantes los cargos de Procurador General y de Procurador General Adjunto, o cuando estos funcionarios se hallen inhabilitados temporalmente para el ejercicio de sus cargos, el Procurador que tenga más años de servicio en la Institución asumirá, transitoriamente, la Procuraduría General Adjunta.

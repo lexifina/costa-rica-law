@@ -1,0 +1,4 @@
+ARTÍCULO 48.—Se mantiene vigente el artículo 14 de la Ley N° 6185 del 23 de noviembre de 1977, cuyo texto es el siguiente:
+"Los funcionarios que desempeñen cargos de Procurador General, de Subprocurador General, o de Procuradores tendrán, en cuanto a pensiones, los mismos derechos que otorgan las leyes a los funcionarios de la Contraloría General de la República."
+(Nota de Sinalevi: Sobre el tema de las pensiones para funcionarios públicos, véanse los artículos 1° y 38°, además de los Transitorios I y II de la Ley del Régimen General de Pensiones con Cargo al Presupuesto Nacional N° 7302 de 8 de julio de 1992; así como el dictamen de la Procuraduría General de la República C-305-2000 de 11 de diciembre de 2000).
+(Así modificada su numeración por el artículo 3° de la ley N° 7666 de 14 de abril de 1997, que lo traspasó del 45 al 48)

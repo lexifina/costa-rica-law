@@ -1,0 +1,2 @@
+ARTÍCULO 32.—SANCIONES:
+La infracción a lo dispuesto en el inciso a) del artículo 28, será corregida con suspensión hasta por quince días, y su reincidencia justificará el despido. En lo que respecta a los incisos b) y c) del mismo artículo, su contravención será corregida con amonestación, la primera vez, con suspensión hasta por quince días, la segunda, y con despido justificado, cuando exceda de dos infracciones.

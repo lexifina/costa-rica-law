@@ -1,0 +1,7 @@
+ARTÍCULO 25.—EXENCIONES FISCALES:
+La Procuraduría General de la República usará papel simple en toda clase de juicios y actuaciones, y no está obligada a suplir especies fiscales ni a presentar pliegos de papel para ningún trámite o incidente.
+Gozará de franquicia postal, radiográfica y telegráfica para el cumplimiento de sus deberes.
+Las oficinas del Estado, las instituciones u organismos descentralizados, y las empresas estatales, estarán obligadas a suministrar a la Procuraduría General de la República los informes y certificaciones que ésta solicite, con las copias que estime convenientes, para tramitar asuntos de su competencia, los que deberán extenderse en papel simple, exentos de todo tributo presente o futuro.
+(Derogado tácitamente en forma parcial -respecto de futuros tributos- por artículos 50 y 55 de Ley Nº 7293 de 31 de marzo de 1992)
+Las sumas que se requieran para el pago de pruebas periciales u otras actuaciones judiciales, solicitadas por la Procuraduría General de la República , serán cubiertas con el fondo especial que establece el párrafo primero del artículo 100 de la Ley Reguladora de la Jurisdicción Contencioso Administrativa, Nº 3667 del 12 de marzo de 1966. (*)
+(*)(Nota de Sinalevi: La Ley Reguladora de la Jurisdicción Contencioso Administrativa de 1966 fue derogada por el artículo 198 del Código Procesal Contencioso Administrativo No. 8508 de 28 de abril de 2006. El tema del fondo especial al cual se hace referencia en este párrafo se encuentra regulado ahora en el artículo 195, párrafo primero de dicho Código).
