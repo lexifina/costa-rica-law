@@ -1,4 +1,6 @@
+(Derogado)
 Nº 1202
+(Este Convenio fue derogado por el artículo 22° del Convenio Internacional de Telecomunicaciones (Buenos Aires, 1952), Tratado Internacional N° 2409 del 31 de julio de 1959)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
 DECRETA:
 Artículo único―Se ratifica la Convención Internacional de Telecomunicaciones, firmada por el Representante de Costa Rica en Atlantic City el 2 de octubre de 1947
