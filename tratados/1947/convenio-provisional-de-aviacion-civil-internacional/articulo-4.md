@@ -1,0 +1,3 @@
+ARTÍCULO IV
+EL SECRETARIO GENERAL
+El Secretario General será el funcionario principal, ejecutivo y administrativo, del Organismo. Será plenamente responsable ante el Consejo y, conforme a las normas establecidas por éste, tendrá facultad y autoridad completas para desempeñar las funciones que le asigne. Rendirá informes periódicos al Consejo acerca de las labores de la secretaría, nombrará el personal de la secretaria e igualmente la secretaría y personal necesarios para el desempeño de las funciones de la Asamblea, del Consejo, de los Comités y de los organismos conexos que se indican en el presente Convenio o que se constituyan de acuerdo con sus términos.
