@@ -1,0 +1,5 @@
+Artículo 6º—Prohibiciones.
+6.1. En ningún caso podrá cualquier tipo de rótulo sobrepasar la línea de propiedad y no podrá haber más de dos rótulos por establecimiento.
+6.2. Queda totalmente prohibida la instalación de rótulos en parques públicos, árboles, ríos y en la zona de protección de los mismos, en jardines de interés público, en sitios catalogados como patrimonio natural, en conjuntos de edificaciones, en los elementos catalogados como de interés y valor histórico patrimonial, en el derecho de vía de caminos, calles y carreteras, en aceras o sobre las aceras, postes de los servicios públicos y en todos los elementos de ornato de plazas, paseos y parques.
+6.3. Mantener rótulos en estado de deterioro o abandono evidente, desde el punto de vista estético, o que representen un peligro para la integridad física de personas, muebles e inmuebles.
+6.4. Aquellos rótulos que obstruyan la visibilidad de las señales de tránsito, o tengan reflectores intermitentes que puedan confundirse con éstas.

@@ -1,0 +1,5 @@
+Artículo 5º—Rótulos permitidos. El área, alturas y tipos de rótulos; así como la estructura necesaria para su instalación dependerá del sitio donde se ubique el rótulo. Para definir el área de un rótulo se tomará en cuenta el número de caras del mismo, sumando cada una de ellas.
+a) Un rótulo independiente que no exceda de 0.50 metros cuadrados de área por cada metro lineal de frente del local. La altura máxima no excederá de 12 metros y en ningún caso podrán salir más allá de la línea de propiedad del bien inmueble y deben mantener una altura libre en las áreas peatonales de 2.6 m.
+b) Un rótulo debajo de la marquesina de cada local comercial, no mayor de 0.75metros cuadrados. La distancia mínima entre el nivel de piso y la parte inferior del rótulo será de 2.40 metros.
+c) Un rótulo de una cara adosado a la pared con un área máxima de 0.50 metros cuadrados por cada metro lineal de frente del local.
+d) Toldos rotulados, adosados a la pared, que no excedan el 10% del alto de la fachada contra la cual se instalará. Este tipo de toldos podrán salirse del límite de la propiedad pero no podrán cubrir más del 60% del ancho de la acera.
