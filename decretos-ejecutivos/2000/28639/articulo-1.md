@@ -9,8 +9,7 @@ Considerando:
 4º—Que la Autoridad Presupuestaria formuló las siguientes directrices y demás regulaciones en acuerdo número 5878, tomado en sesión ordinaria N° 6-2000, celebrada el 28 de abril del 2000.
 5º—Que el Consejo de Gobierno conoció las directrices y regulaciones en Acta N° 100, artículo tercero del 2 de mayo del 2000. Por tanto,
 DECRETAN:
-DIRECTRICES GENERALES DE POLÍTICA PRESUPUESTARIA
-DEL 2001 PARA LOS MINISTERIOS, DEMÁS ÓRGANOS SEGÚN CORRESPONDA Y ENTIDADES PÚBLICAS CUBIERTAS POR EL ÁMBITO DE LA AUTORIDAD PRESUPUESTARIA
+DIRECTRICES GENERALES DE POLÍTICA PRESUPUESTARIA DEL 2001 PARA LOS MINISTERIOS, DEMÁS ÓRGANOS SEGÚN CORRESPONDA Y ENTIDADES PÚBLICAS CUBIERTAS POR EL ÁMBITO DE LA AUTORIDAD PRESUPUESTARIA
 CAPÍTULO I
 Del límite presupuestario y efectivo
 Artículo 1º—El gasto presupuestario y el gasto efectivo total de las entidades públicas para el año 2001, no podrán exceder los siguientes montos:
@@ -188,3 +187,4 @@ para el Instituto Costarricense de Turismo)
 (Modificado límite de gasto presupuestario y efectivo de la Oficina de Cooperación Internacional de la Salud, por el artículo 1 del Decreto Ejecutivo N° 29921 de 5 de octubre del 2001)
 (Modificado tácimente el límite presupuestario y de gasto efectivo del Fondo de Parques Nacionales, por el artículo 1 del Decreto Ejecutivo N° 1 de noviembre del 2001)
 (Modificado tácimente los límites de gasto para el 2001 del INCOP, por el artículo 1 del Decreto Ejecutivo N° 29989 de 8 de noviembre del 2001)
+Modificado límite de gasto presupuetario y efectivo de la Editorial de Cost Rica, por el artículo 1° del Decreto Ejecutivo N° 30023- H del 4 de diciembre del 2001)

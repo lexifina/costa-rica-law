@@ -10,3 +10,4 @@ Modificados los límites de gasto corriente presupuestario y gasto corriente efe
 Modificados los límites de gasto corriente presupuestario y gasto corriente efectivo, mediante el artículo 2 del Decreto Ejecutivo N° 29835 de 18 de setiembre del 2001)
 Modificados los límites de gasto corriente presupuestario y gasto corriente efectivo, mediante el artículo 2 del Decreto Ejecutivo N° 29875 de 01 de octubre del 2001)
 Modificados los límites de gasto corriente presupuestario y gasto corriente efectivo Consejo de Salud Ocupacional, mediante el artículo 2 del Decreto Ejecutivo N° 29911 de 05 de octubre del 2001)
+Modificados los límites de gasto corriente presupuestario y gasto corriente efectivo mediante el artículo 2° del Decreto Ejecutivo N° 30023- H de 04 de diciembre del 2001)
