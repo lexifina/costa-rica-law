@@ -1,0 +1,1 @@
+Artículo 4°.- Cualquiera que sea la vía de transporte, junto con el ataúd sólo se podrá enviar flores, coronas y otros objetos funerarios análogos, cuando autoricen las disposiciones vigentes del país de destino.
