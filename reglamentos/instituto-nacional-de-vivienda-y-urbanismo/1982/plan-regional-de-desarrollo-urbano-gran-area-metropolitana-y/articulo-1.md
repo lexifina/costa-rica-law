@@ -1,5 +1,6 @@
 PLAN REGIONAL DE DESARROLLO URBANO "GRAN ÁREA METROPOLITANA"
 (Mediante Decreto Ejecutivo No. 13583-VAH-OFIPLAN, el Poder Ejecutivo acoge en todas sus partes este Reglamento)
+(Mediante el articulo 3 del Plan Regulador de la Municipalidad de Escazú, se sustituye la aplicación del presente Plan Regional de Desarrollo Urbano "Gran Area Metropolitana, para el Cantón de Escazú, con excepción del área de protección (agrícola) definida por este plan.)
 Se acuerda adoptar y aprobar el Plan Regional de Desarrollo Urbano "Gran Área Metropolitana", que regirá para la circunscripción que el mismo delimita y establece normas para regular el correcto desarrollo urbano en esa área, así como limitaciones para la contención del crecimiento desproporcionado y realización de obras o cambio de uso del suelo en inmuebles fuera de tal delimitación.
 A la vez el Instituto establece las siguientes regulaciones aplicables de conformidad con el indicado Plan Regional:
 I. Delimitación del área y reglamento que regula lo correspondiente a la primera etapa del Plan Regional de Desarrollo Urbano (GAM) para el sistema de ciudades del val^e central de Costa Rica (Anexo N° 1).
