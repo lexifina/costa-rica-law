@@ -1,0 +1,1 @@
+Artículo 30.- Un reglamento especial fijará las atribuciones del Cuerpo Inspectivo de la Educación Nacional con arreglo a los objetivos de la función inspectiva, a las necesidades de una buena organización administrativa, técnica y social y a las labores específicas de los funcionarios a que se refiere el artículo 24 de esta ley.
