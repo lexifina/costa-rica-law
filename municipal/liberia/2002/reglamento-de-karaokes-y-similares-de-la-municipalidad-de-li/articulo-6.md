@@ -1,0 +1,1 @@
+Artículo VI.—En ningún caso la administración autorizará el desarrollo de las actividades con Karaoke más allá de las 10,00 de la noche y con esta hora como límite deberá cesar completamente todas las actividades de este tipo y solo será permitido que se realícen los días jueves, viernes y sábados de cada semana, con excepción de los salones de baile debidamente autorizados.
