@@ -14,3 +14,4 @@ Reglamento de empleo de vehículos y maquinaria municipal.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-04-29 | la propia norma |
+| 2 | 2003-06-02 | Reglamento municipal 32 (2003-06-02) |

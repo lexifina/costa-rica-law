@@ -1,1 +1,2 @@
-Artículo 11.—Si la maquinaria Municipal se encuentra laborando a 5 km. o menos de distancia del plantel, deberá guardarse en el mismo, a excepción de la maquinaria que no permita rodamiento continuo.
+Artículo 11.—La maquinaria Municipal puede ser guardada al final de cada jornada de trabajo en el patio de un vecino donde se está empleando la misma y con la debida autorización del Alcalde Municipal, transportando a los operadores en los vehículos de la Institución.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Extraordinaria N° 32 celebrada el 02 de junio de 2003, publicada en La Gaceta N° 190 de 03 de octubre de 2003.)
