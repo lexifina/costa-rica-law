@@ -1,0 +1,1 @@
+Artículo 7º—De la aprobación. Una vez realizada dicha diligencia, la Unidad de Administración Tributaria, solicitará al Departamento Legal su pronunciamiento y verificación de requisitos. Una vez con el visto bueno del Departamento Legal se aprobará la patente en primer instancia.

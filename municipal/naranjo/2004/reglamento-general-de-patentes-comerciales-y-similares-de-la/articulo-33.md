@@ -1,0 +1,1 @@
+Artículo 33.—De los recursos contra otras resoluciones. Las otras resoluciones, no referidas en los artículos anteriores del presente reglamento, de funcionarios municipales, se aplicará lo establecido en los artículos 17 y 179 del Código Municipal.

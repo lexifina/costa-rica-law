@@ -1,0 +1,1 @@
+Artículo 23.—De las carreras de cintas, topes y motocros. Para el otorgamiento de permiso para las carreras de cintas, topes y motocros debe cumplirse con los requisitos del artículo 17 y 20 si fuera del caso.

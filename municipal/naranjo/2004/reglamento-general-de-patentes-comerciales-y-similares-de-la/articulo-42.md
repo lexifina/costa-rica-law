@@ -1,0 +1,1 @@
+Artículo 42.—Del informe trimestral. La Unidad Tributaria de la municipalidad de Naranjo efectuará las funciones relativas a la recaudación de este impuesto y dará un informe mensual sobre lo recaudado al Alcalde Municipal, en el cual indicará el tipo de actividad, nombre del negocio y el propietario, calidades, cantidad de tiquetes sellados y valor de éstos.

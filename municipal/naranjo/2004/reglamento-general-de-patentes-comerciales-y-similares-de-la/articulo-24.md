@@ -1,0 +1,1 @@
+Artículo 24.—Del incumplimientos. En caso de que la persona solicitante incumpla con los requisitos solicitados, no se da permiso alguno bajo ningún motivo. La Municipalidad de Naranjo, no reconoce los daños y perjuicios que se causen como producto del mal uso de los permisos aquí otorgados.
