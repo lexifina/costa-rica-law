@@ -1,7 +1,5 @@
-De los servidores autorizados o aspirantes
-ARTICULO 40.- En ninguna circunstancia podrá nombrarse personal no
-calificado, salvo por inopia comprobada. En este caso podrán ser
-designados en calidad de "autorizados" o "aspirantes", candidatos que,
-sin reunir la totalidad de los requisitos, se hayan sometido a pruebas de
-aptitud o concurso de antecedentes, de acuerdo con las regulaciones de
-los artículo 97 y 98 del Estatuto.
+CAPITULO VI
+De los Servidores Disponibles ( NOTA: Este Capítulo fue adicionado por el artículo 2º del Decreto Ejecutivo Nº 4955 de 17 de junio de 1975, cuyo artículo 3º dispuso correr tanto la numeración de los Capítulos restantes como del articulado respectivo, pasando el artículo 42 a ser el 56 y así sucesivamente. Por su artículo 1º, dicho Decreto dispuso DEROGAR los artículos 40 y 41 originales).
+ARTICULO 40.-
+Se entiende por servidores disponibles aquellos que prestan sus servicios en las instituciones educativas de I y II ciclos del país, en plazas para las que, en concurso público, se haya demostrado que existe inopia y que se encuentren ubicadas en lugares de difícil acceso, insalubres e incómodas y sigan con éxito los cursos que imparten algunas de las universidades del país, en virtud del convenio suscrito entre la universidad y el Ministerio de Educación Pública y que hayan firmado contrato de estudios con este último.
+(Así reformado por el artículo 1º del Decreto Ejecutivo Nº 15041 de 16 de noviembre de 1983).

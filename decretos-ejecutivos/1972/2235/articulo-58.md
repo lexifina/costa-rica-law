@@ -1,4 +1,6 @@
-ARTICULO 58.- Para los profesores de enseñanza Técnico Profesional
-que define el artículo 130 del Estatuto, la Dirección General podrá
-establecer diferente valoración, de acuerdo con los grupos a que
-pertenecen y el nivel de enseñanza en que laboren.
+ARTICULO 58.-
+Para obtener un traslado, ascenso o descenso en propiedad, en puestos propiamente docentes, es indispensable haber desempeñado el cargo anterior, como servidor regular, durante un plazo no menor de dos años.
+Si uno de estos movimientos se hubiesen producido durante los dos primeros meses del curso lectivo, no podrá concederse un nuevo traslado, ascenso o descenso al mismo servidor en ese mismo año.
+Si el movimiento se hubiese producido con posterioridad al segundo mes de labores, igual prohibición regirá para el resto del mismo curso y, además, para el siguiente.
+La nominación de un candidato en un nuevo puesto o lugar diferente, como resultado de un concurso para ascenso, descenso o traslado, dejará vacante la plaza anteriormente desempeñada por el servidor. No obstante, si el movimiento fuera en puestos por lecciones, en casos excepcionales, a juicio del Departamento Docente, se podrá autorizar un traslado parcial.
+(Corrida su numeración por el artículo 3º del Decreto Ejecutivo Nº 4955 de 17 de junio de 1975. Originalmente llevó el Nº 44).

@@ -1,49 +1,10 @@
-ARTICULO 9º.- Entre las prohibiciones para los servidores docentes
-que prescribe el artículo 58 del Estatuto, están comprendidas:
-a) El ejercicio de otro oficio, profesión o actividad comercial,
-dentro o fuera del establecimiento docente, que lo inhabilite para
-cumplir con puntualidad y eficiencia las obligaciones propias de su cargo
-o bien que menoscaben su dignidad profesional por contravenir la ley o
-ser contrarias a la moral o a las buenas costumbres;
-b) Promover o recaudar contribuciones en dinero o en especie o
-realizar rifas ajenas a otros fines que no sean los propiamente escolares
-o conexos, tales como el mejoramiento del plantel docente; la adquisición
-de mobiliario, equipo y material didáctico que ayude y facilite la labor
-educativa de la institución; el auxilio de alumnos de escasos recursos
-económicos o cualquier otra obra de bien social o comunal, siempre que
-las contribuciones tengan carácter estrictamente voluntario.
-Para el ejercicio de dichas actividades es obligatoria la
-autorización previa del jefe respectivo y los servidores responsables de
-las mismas, deberán hacer del conocimiento del superior inmediato el
-resultado, monto y destino de los fondos que en tal forma fueren
-recolectados;
-c) Concurrir con sus alumnos a actos de cualquier naturaleza fuera
-del plantel o autorizar a éstos para que lo hagan sin la aprobación del
-Director del establecimiento. Las actividades culturales y deportivas que
-los profesores organicen fuera de las horas lectivas deben ser
-autorizadas, asimismo, por el Director del Plantel, previo el
-consentimiento de los padres de familia;
-d) Incurrir en embriaguez habitual; lo cual debe entenderse como la
-acción reinterada de ingerir licor o cualquier otra droga enervante;
-e) Incurrir en actos que desprestigien su profesión y, en
-particular, incumplir, sin justificación, compromisos personales
-derivados de la permanencia en el lugar donde presten sus servicios,
-tales como los relacionados con la alimentación, el vestuario y la
-habitación. Si se presentare queja de parte perjudicada contra un
-servidor docente por el no cumplimiento de dichos compromisos, el
-superior jerárquico deberá levantar la información que corresponda de
-conformidad con las prescripciones del artículo 66 del Estatuto.
-Asimismo, se considerarán actos que desprestigian o menoscaban la
-dignidad de la profesión docente o contrarios a la moral pública, todos
-aquellos que cometan los educadores y que estén comprendidos dentro de
-las faltas o delitos contemplados en los Códigos Penal y de Policía. Las
-diligencias de información deberán ser inmediatamente promovidas de
-oficio por el superior jerárquico de la jurisdicción donde el infractor
-preste o haya prestado sus servicios en cuanto tenga conocimiento de la
-misma o cuando medie queja formal contra su subalterno. Comprobado que la
-falta tiene fundamento, deberá elevar dicho expediente a conocimiento del
-Director del Departamento de Personal para lo que corresponda; y
-f) Recibir obsequios o dádivas de sus alumnos, cuando en alguna
-forma tales obsequios o dádivas comprometan al educador en el
-cumplimiento de sus deberes o cuando en forma directa o indirecta fueren
-insinuadas por éste.
+ARTICULO 9º.-
+Entre las prohibiciones para los servidores docentes que prescribe el artículo 58 del Estatuto, están comprendidas:
+a) El ejercicio de otro oficio, profesión o actividad comercial, dentro o fuera del establecimiento docente, que lo inhabilite para cumplir con puntualidad y eficiencia las obligaciones propias de su cargo o bien que menoscaben su dignidad profesional por contravenir la ley o ser contrarias a la moral o a las buenas costumbres;
+b) Promover o recaudar contribuciones en dinero o en especie o realizar rifas ajenas a otros fines que no sean los propiamente escolares o conexos, tales como el mejoramiento del plantel docente; la adquisición de mobiliario, equipo y material didáctico que ayude y facilite la labor educativa de la institución; el auxilio de alumnos de escasos recursos económicos o cualquier otra obra de bien social o comunal, siempre que las contribuciones tengan carácter estrictamente voluntario.
+Para el ejercicio de dichas actividades es obligatoria la autorización previa del jefe respectivo y los servidores responsables de las mismas, deberán hacer del conocimiento del superior inmediato el resultado, monto y destino de los fondos que en tal forma fueren recolectados;
+c) Concurrir con sus alumnos a actos de cualquier naturaleza fuera del plantel o autorizar a éstos para que lo hagan sin la aprobación del Director del establecimiento. Las actividades culturales y deportivas que los profesores organicen fuera de las horas lectivas deben ser autorizadas, asimismo, por el Director del Plantel, previo el consentimiento de los padres de familia;
+d) Incurrir en embriaguez habitual; lo cual debe entenderse como la acción reiterada de ingerir licor o cualquier otra droga enervante;
+e) Incurrir en actos que desprestigien su profesión y, en particular, incumplir, sin justificación, compromisos personales derivados de la permanencia en el lugar donde presten sus servicios, tales como los relacionados con la alimentación, el vestuario y la habitación. Si se presentare queja de parte perjudicada contra un servidor docente por el no cumplimiento de dichos compromisos, el superior jerárquico deberá levantar la información que corresponda de conformidad con las prescripciones del artículo 66 del Estatuto.
+Asimismo, se considerarán actos que desprestigian o menoscaban la dignidad de la profesión docente o contrarios a la moral pública, todos aquellos que cometan los educadores y que estén comprendidos dentro de las faltas o delitos contemplados en los Códigos Penal y de Policía. Las diligencias de información deberán ser inmediatamente promovidas de oficio por el superior jerárquico de la jurisdicción donde el infractor preste o haya prestado sus servicios en cuanto tenga conocimiento de la misma o cuando medie queja formal contra su subalterno. Comprobado que la falta tiene fundamento, deberá elevar dicho expediente a conocimiento del Director del Departamento de Personal para lo que corresponda; y
+f) Recibir obsequios o dádivas de sus alumnos, cuando en alguna forma tales obsequios o dádivas comprometan al educador en el cumplimiento de sus deberes o cuando en forma directa o indirecta fueren insinuadas por éste.

@@ -1,10 +1,12 @@
-ARTICULO 59.- Los diferentes niveles, áreas de enseñanza y grados
-profesionales que comprende el Escalafón, están clasificados y ubicados
-en Grupos, que se distinguen mediante siglas, seguidas con números en
-orden descendente, de acuerdo con las especificaciones que contienen los
-artículos 118 a 149 del Estatuto.
-Los profesores autorizados de los diferentes niveles y áreas de
-enseñanza, podrán concursar para ocupar en propiedad los puestos que
-estuvieren desempeñando, de acuerdo con los grupos a que pertenezcan, si
-reúnen los requisitos que determinan en cada caso, los artículos 121,
-124, 129, 134, 138, 143 y 148 del mismo Estatuto.
+Artículo 59°-Los movimientos del personal propiamente docente, por traslado, ascenso o descenso al grado inmediato, podrá hacerlos el Ministerio, previo el visto bueno de la Dirección General, omitiendo el trámite de selección que establecen el capítulo V, título II del estatuto y el presente Reglamento, en los siguientes casos de excepción:
+a) Cuando el movimiento se realice por "reajuste", será indispensable que el servidor haya laborado en propiedad en el cargo y lugar objeto de reajuste durante un periodo no menor de un año. Excepcionalmente podrán realizarse dichos reajustes después de cumplido el período de prueba, cuando se demuestren situaciones de caso fortuito o por disminución imprevisible de matrícula en los centros educativos, en cuyo caso, podrán ser aprobados antes del año;
+b) Cuando se comprobare que existe enfermedad grave del servidor docente o de sus parientes en primer grado de consanguinidad, que los incapacite para continuar residiendo en el lugar donde prestan sus servicios, u otras causas de fuerza mayor debidamente acreditadas, a juicio del Director de Personal
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 25133 del 22 de abril de 1996)
+c) El Director de Personal podrá exigir la presentación de certificaciones médicas como justificantes para la aplicación del inciso b) del artículo 101 del estatuto citado, las cuales deberán ser extendidas por médicos de la caja Costarricense de Seguro Social, en su condición de tales
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 25133 del 22 de abril de 1996)
+d) Cuando el movimiento se realice para resolver situaciones conflictivas internas o públicas, la instrucción respectiva deberá ser levantada por la Asesoría Legal del Ministerio y recomendada con su visto bueno la gestión respectiva.
+Excepcionalmente y previo el visto bueno del departamento docente, el Ministerio podrá realizar estos movimientos sin sujeción al trámite del concurso ni limitación de tiempo de servicio, cuando los mismos se realicen, para preescolar o primaria, dentro de la misma zona escolar; y en los demás niveles de enseñanza, si los movimientos se efectúan entre instituciones de una misma localidad. En estos casos podrá ser dispensada la presentación de documentos justificantes.
+En todos los casos de excepción, salvo cuando se trate de resolver situación conflictivas o se proceda de conformidad con lo establecido en el segundo párrafo del inciso a) del mismo artículo 101, se requiere que los interesados otorguen su consentimiento expreso. El Ministerio deberá procurar que tales movimientos beneficien, fundamentalmente, al servicio público.
+En este mismo sentido deberá juzgar el Servicio Civil; para ello podrán exigirse las certificaciones o documentos que se estimaren necesarios, así como desestimar aquellos que a su juicio resulten insuficientes.
+( Así reformado por el artículo 1º del decreto ejecutivo Nº 24713 de 13 de octubre de 1995)
+(Así corrida su numeración por el artículo 3º del decreto ejecutivo Nº 4955 de 17 de junio de 1975, que lo traspaso del antiguo artículo 45° al 59° actual del artículo)

@@ -9,8 +9,8 @@ de Trabajo, se acordara dispensar este requisito. En estos casos de
 excepción el Ministerio deberá presentar la respectiva solicitud ante la
 Dirección General, acompañada de los antecedentes que a su juicio la
 justifiquen y previo el informe del Departamento de Selección Docente de
-la Dirección General; ésta resolverá la dispensa de este requisito, si
-así lo estimara procedente:
+la Dirección General; ésta resolverá la dispensa de este requisito, si así
+lo estimara procedente;
 c) Presentar la oferta de servicios en los formularios que suministre
 el citado Departamento de Selección Docente y cumplir con los
 procedimientos que éste determine.

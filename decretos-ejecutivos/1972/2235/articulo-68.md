@@ -1,6 +1,3 @@
-ARTICULO 68.- Las educadoras que igualmente hubiesen adquirido la
-condición de servidoras regulares, podrán solicitar licencia con goce de
-su sueldo completo por razón de maternidad, durante los dos meses
-anteriores y los dos posteriores al alumbramiento. Si éste se retrasare,
-no se alterará el término de la licencia y si se anticipare, gozará de
-los dos meses posteriores al mismo.
+ARTICULO 68.-
+Los profesores autorizados podrán ejercer su función con carácter de interinidad, en tanto no se reciban ofertas para las respectivas plazas vacantes, de profesores titulados. Si no hubiere personal autorizado, los aspirantes podrán servir estos puestos en igual condición de interinidad. Quedan a salvo de esta condición de interinidad, los servidores autorizados o aspirantes que adquieran propiedad en sus cargos o que gocen del derecho de estabilidad de conformidad con las disposiciones del artículo 98 del Estatuto y 41 del presente Reglamento.
+(Corrida su numeración por el artículo 3º del Decreto Ejecutivo Nº 4955 de 17 de junio de 1975. Originalmente llevó el Nº 54).

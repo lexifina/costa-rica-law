@@ -1,14 +1,3 @@
-ARTICULO 72.- Las licencias para que los servidores docentes
-realicen estudios en instituciones educativas del país, con derecho a
-devengar su sueldo en forma total o parcial, o bien sin goce de sueldo,
-se otorgarán de conformidad con las normas internas que al efecto deberá
-dictar el Ministerio, previo el visto bueno de la Dirección General,
-atendiendo tanto a las disponibilidades de personal, exigencias de
-trabajo y demás condiciones administrativas del plantel de enseñanza o
-dependencia de que se trate, como a las necesidades de preparación de
-profesionales para el mejor servicio público. Para el otorgamiento de
-estas licencias se tomará en cuenta, en todo caso, el interés, capacidad
-y eficiencia de los funcionarios, demostrados a través de la calificación
-anual de servicios. Supletoriamente, serán aplicables las disposiciones
-de los artículos 37, 38, 39 y 40 que contiene el Reglamento del Título
-Primero del Estatuto.
+ARTICULO 72.-
+Para los profesores de enseñanza Técnico Profesional que define el artículo 130 del Estatuto, la Dirección General podrá establecer diferente valoración, de acuerdo con los grupos a que pertenecen y el nivel de enseñanza en que laboren.
+(Corrida su numeración por el artículo 3º del Decreto Ejecutivo Nº 4955 de 17 de junio de 1975. Originalmente llevó el Nº 58).

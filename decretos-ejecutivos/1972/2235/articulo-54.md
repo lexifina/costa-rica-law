@@ -1,9 +1,3 @@
-ARTICULO 54.- Los profesores autorizados podrán ejercer su función
-con carácter de interinidad, en tanto no se reciban ofertas para las
-respectivas plazas vacantes, de profesores titulados. Si no hubiere
-personal autorizado, los aspirantes podrán servir estos puestos en igual
-condición de interinidad. Quedan a salvo de esta condición de
-interinidad, los servidores autorizados o aspirantes que adquieran
-propiedad en sus cargos o que gocen del derecho de estabilidad de
-conformidad con las disposiciones del artículo 98 del Estatuto y 41 del
-presente Reglamento.
+ARTICULO 54.-
+En los casos en que un servidor pierda su estabilidad por las causas estipuladas en el artículo 50 de este capítulo y no se procediera a su cesación, el Director del Departamento de Personal dictará resolución razonada con cita de las circunstancias y pruebas que le sirvan de fundamento para los efectos del artículo siguiente. Contra dicha resolución cabrá el recurso de apelación ante el señor Ministro dentro del término de quince días siguientes al recibo de la respectiva notificación por escrito.
+(Así reformado por el artículo 1º del Decreto Ejecutivo Nº 15041 de 16 de noviembre de 1983).

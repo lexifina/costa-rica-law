@@ -1,19 +1,4 @@
-De las vacaciones
-ARTICULO 74.- Se tendrá como vacación, para los servidores
-propiamente docentes, el lapso comprendido entre el cierre de un curso y
-la apertura del próximo, excepto en cuanto a la celebración del acto del
-clausura, la práctica de pruebas de recuperación y demás labores
-inherentes a la apertura y cierre del curso. Si por causa imprevista, el
-curso lectivo se interrumpiere, el Ministerio podrá reducir dichas
-vacaciones hasta por un mes.
-Los servidores técnico y administrativo-docentes, gozarán de un mes
-de vacaciones anuales, de acuerdo con las normas del artículo 32 del
-Reglamento del Título Primero del Estatuto.
-Todos los servidores docentes comprendidos en el artículo 54 de este
-Estatuto, cuyas labores sean desempeñadas en los centros de enseñanza,
-gozarán, además, de dos semanas de descanso en el mes de julio.
-El Director de cada institución asignará los trabajos indispensables
-que habrán de cumplir, durante los citados períodos de vacaciones anuales
-y de descanso a medio curso, los servidores no comprendidos en la Carrera
-Docente, tales como oficinistas, auxiliares de laboratorio, personal de
-limpieza y mantenimiento y quienes desempeñen puestos de índole similar.
+ARTICULO 74.-
+El Consejo Superior de Educación podrá reconocer otros estudios y experiencias, aparte de los que se señalan en cada grupo del Escalafón. Asimismo, en casos muy calificados, podrá también reconocer las publicaciones que estimare meritorias, como factor que permita a sus autores, profesores titulados y autorizados, ascender, dentro de la misma serie, a grupos superiores del Escalafón. Una vez reconocidos y equiparados los estudios y experiencias y definida la especialidad por parte del Consejo el Departamento Docente del Servicio Civil asignará el grupo profesional que estimare procedente con base en la anterior resolución y podrá extender certificación de tal reconocimiento a los interesados para los efectos del artículo 115 de la Ley de Carrera Docente y los demás que la misma contempla.
+(Así reformado por el artículo 1º del Decreto Ejecutivo Nº 2847 de 15 de febrero de 1973).
+(Corrida su numeración por el artículo 3º del Decreto Ejecutivo Nº 4955 de 17 de junio de 1975. Originalmente llevó el Nº 60).

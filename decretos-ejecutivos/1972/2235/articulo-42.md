@@ -1,12 +1,3 @@
-CAPITULO VI
-De los Ascensos, Descensos, Traslados y Permutas
-De los ascensos, descensos y traslados
-ARTICULO 42.- Los ascensos, descensos, traslados y permutas de los
-servidores propiamente docentes, podrán acordarse a solicitud de los
-interesados o bien por disposición del Ministerio, de conformidad con lo
-que establece el Capítulo VI del Título Segundo del Estatuto y las
-presentes normas reglamentarias.
-Al personal que desempeña funciones técnico-docentes y
-administrativo-docentes, le serán aplicables las normas que sobre el
-particular contiene el Título Primero del Estatuto y su respectivo
-Reglamento.
+ARTICULO 42.-
+Las relaciones entre el personal disponible y el Ministerio de Educación Pública se regirán por las normas del Estatuto de Servicio Civil, sus reglamentos y la Ley de Salarios de la Administración Pública. Excepto en cuanto a la evaluación de sus servicios que se hará de acuerdo con lo dispuesto por el artículo 47, inciso f) de este Reglamento.
+(Así reformado por el artículo 1º del Decreto Ejecutivo Nº 15041 de 16 de noviembre de 1983).

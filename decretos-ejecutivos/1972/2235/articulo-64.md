@@ -1,6 +1,7 @@
-ARTICULO 64.- Si el servidor mantuviese inconformidad, dispondrá de
-un plazo máximo de diez días hábiles para formular recurso de apelación
-ante el Tribunal de la Carrera Docente, cuyo fallo, que será definitivo,
-deberá dictarse en un plazo no mayor de treinta días. Una vez resuelto el
-asunto, las diligencias deberán ser remitidas al Director del
-Departamento de Personal.
+ARTICULO 64.-
+Las permutas entre puestos de diferente clase, categoría o zona, requerirán la aprobación previa de la Dirección General; ésta la otorgará si se cumplen las condiciones y propósitos siguientes:
+a) Que la solicitud se ajuste a las normas del artículo 104 del Estatuto;
+b) Que la permuta redundare en beneficio o mejora del servicio público; para lo cual se tomarán en cuenta, tanto las circunstancias personales de los proponentes, como las particularidades de los centros educativos en donde prestan sus servicios;
+c) Que los candidatos demostraren su idoneidad para los puestos objeto de la permuta; y
+d) Que no exista una diferencia mayor de cinco años de servicios entre el tiempo laborado por cada uno de los interesados.
+(Corrida su numeración por el artículo 3º del Decreto Ejecutivo Nº 4955 de 17 de junio de 1975. Originalmente llevó el Nº 50).

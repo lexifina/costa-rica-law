@@ -1,8 +1,4 @@
-ARTICULO 20.- Los miembros del Tribunal de la Carrera Docente serán
-remunerados mediante dietas que devengarán por cada sesión a la cual
-asistan. Las dietas del miembro representante de las organizaciones de
-educadores serán pagadas por dichas entidades; las de los otros dos
-miembros serán cubiertas por el Ministerio de Educación Pública. El
-número de sesiones remuneradas, incluyendo ordinarias y extraordinarias,
-no podrá exceder de doce al mes y el monto de las mismas será de cien
-colones cada una.
+ARTICULO 20.-
+Los miembros del Tribunal de la Carrera Docente serán remunerados mediante dietas que devengarán por cada sesión a la cual asistan. Las dietas de los miembros representantes de las organizaciones de educadores serán pagadas en forma conjunta por dichas entidades, las de los otros dos miembros serán cubiertas por el Ministerio de Educación Pública. El número de sesiones remuneradas, incluyendo sesiones ordinarias y extraordinarias, no podrá exceder de doce al mes y el monto de las mismas será de ¢ 900,00 (novecientos colones) cada una.
+(Así reformado por el artículo 1º del Decreto Ejecutivo Nº 17030 de 17 de marzo de 1986).
+( NOTA: Reformado en lo conducente, de manera tácita, por el Decreto Nº 21978 de 4 de febrero de 1993, que en su artículo 1º dispone: "Los miembros del Tribunal de la Carrera Docente devengan hasta 12 dietas mensuales, de ¢ 3.730,00 cada una. Solo tendrán derecho a la remuneración los miembros que asistan a las respectivas sesiones.")

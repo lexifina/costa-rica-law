@@ -1,52 +1,10 @@
-ARTICULO 25.- El Tribunal de la Carrera Docente tendrá las siguientes
-atribuciones:
-a) Conocer, de acuerdo con el procedimiento que la ley y el presente
-Reglamento indican, de todos los conflictos que se originen con motivo
-del ejercicio de la función docente, tanto por el incumplimiento de las
-obligaciones, como por el no reconocimiento de los derechos que determina
-la Carrera Docente de parte de sus superiores jerárquicos y dictar el
-fallo que corresponda, que en este caso agota la vía administrativa para
-que los interesados puedan recurrir al Tribunal de Servicio Civil, de
-conformidad con lo dispuesto por el inciso c) del artículo 14 del
-Estatuto. Si el Tribunal de Servicio Civil lo estimare procedente, podrá
-prescindir de la información previa que esta última norma ordena levantar
-a la Dirección General y dictar su sentencia conforme con lo actuado por
-el Tribunal de la Carrera; o bien ordenar las diligencias que para mejor
-proveer considere necesarias por conducto de la Dirección General. En
-todo caso, el Tribunal de la Carrera deberá remitir el expediente
-respectivo al Tribunal de Servicio Civil, cuando éste lo solicite;
-b) Conocer, en apelación, de lo resuelto por el Director del
-Departamento de Personal, en relación con las peticiones de mejoramiento
-individuales que los servidores docentes formulen, referentes a derechos
-inherentes a ellos, en sus puestos. La resolución, en estos casos, tendrá
-alzada ante el Ministro.
-Cumplido este trámite se tendrá por agotada la vía administrativa y
-en caso de plantearse reclamo ante el Tribunal de Servicio Civil se
-seguirá el procedimiento que se indica en el inciso anterior.
-c) Conocer de las apelaciones que se presenten, dentro de los cinco
-días hábiles siguientes, contra resoluciones del Director de Personal que
-se originen en las situaciones que a continuación se indican; casos en los
-cuales el fallo que dicte el Tribunal de la Carrera no tendrá recurso
-ulterior;
-1) Cuando se alegue que la resolución del Director de Personal
-incumple o viola los procedimientos que el Estatuto y el presente
-Reglamento señalan; y
-2) Cuando se alegue falta de fundamento en la resolución del
-Director de Personal que imponga la sanción de suspensión sin goce de
-sueldo, hasta por un mes, por faltas de cierta gravedad en que
-incurrieren los servidores docentes;
-d) Conocer de las informaciones instruidas por el Departamento de
-Personal contra los servidores docentes por faltas cometidas en el
-ejercicio de sus funciones o en su vida social, cuando éstas constituyan
-presuntas causales de despido. Si el Tribunal resolviera que las faltas
-meritan el despido del servidor o servidores responsables, elevará su
-fallo a conocimiento del Ministro, para que éste proceda bien al formular
-la respectiva gestión de despido, dentro de los treinta días siguientes,
-ante el Tribunal de Servicio Civil, o bien a conmutar dicha sanción por
-otra de las correcciones disciplinarias que especifica el artículo 62 del
-Estatuto, en el caso de que así lo recomendare el Tribunal y Ministro lo
-estimare conveniente. Si se declarare por parte del Tribunal que las
-faltas no constituyen causal de despido, lo comunicará al Director de
-Personal para que se ejecuten las disposiciones que el Tribunal juzgue
-pertinentes; y e) Las demás funciones que este Reglamento o cualquier
-otra disposición legal le otorgaren.
+ARTICULO 25.-
+El Tribunal de la Carrera Docente tendrá las siguientes atribuciones:
+a) Conocer, de acuerdo con el procedimiento que la ley y el presente Reglamento indican, de todos los conflictos que se originen con motivo del ejercicio de la función docente, tanto por el incumplimiento de las obligaciones, como por el no reconocimiento de los derechos que determina la Carrera Docente de parte de sus superiores jerárquicos y dictar el fallo que corresponda, que en este caso agota la vía administrativa para que los interesados puedan recurrir al Tribunal de Servicio Civil, de conformidad con lo dispuesto por el inciso c) del artículo 14 del Estatuto. Si el Tribunal de Servicio Civil lo estimare procedente, podrá prescindir de la información previa que esta última norma ordena levantar a la Dirección General y dictar su sentencia conforme con lo actuado por el Tribunal de la Carrera; o bien ordenar las diligencias que para mejor proveer considere necesarias por conducto de la Dirección General. En todo caso, el Tribunal de la Carrera deberá remitir el expediente respectivo al Tribunal de Servicio Civil, cuando éste lo solicite;
+b) Conocer, en apelación, de lo resuelto por el Director del Departamento de Personal, en relación con las peticiones de mejoramiento individuales que los servidores docentes formulen, referentes a derechos inherentes a ellos, en sus puestos. La resolución, en estos casos, tendrá alzada ante el Ministro.
+Cumplido este trámite se tendrá por agotada la vía administrativa y en caso de plantearse reclamo ante el Tribunal de Servicio Civil se seguirá el procedimiento que se indica en el inciso anterior.
+c) Conocer de las apelaciones que se presenten, dentro de los cinco días hábiles siguientes, contra resoluciones del Director de Personal que se originen en las situaciones que a continuación se indican; casos en los cuales el fallo que dicte el Tribunal de la Carrera no tendrá recurso ulterior;
+1) Cuando se alegue que la resolución del Director de Personal incumple o viola los procedimientos que el Estatuto y el presente Reglamento señalan; y
+2) Cuando se alegue falta de fundamento en la resolución del Director de Personal que imponga la sanción de suspensión sin goce de sueldo, hasta por un mes, por faltas de cierta gravedad en que incurrieren los servidores docentes;
+d) Conocer de las informaciones instruidas por el Departamento de Personal contra los servidores docentes por faltas cometidas en el ejercicio de sus funciones o en su vida social, cuando éstas constituyan presuntas causales de despido. Si el Tribunal resolviera que las faltas meritan el despido del servidor o servidores responsables, elevará su fallo a conocimiento del Ministro, para que éste proceda bien al formular la respectiva gestión de despido, dentro de los treinta días siguientes, ante el Tribunal de Servicio Civil, o bien a conmutar dicha sanción por otra de las correcciones disciplinarias que especifica el artículo 62 del Estatuto, en el caso de que así lo recomendare el Tribunal y Ministro lo estimare conveniente. Si se declarare por parte del Tribunal que las faltas no constituyen causal de despido, lo comunicará al Director de Personal para que se ejecuten las disposiciones que el Tribunal juzgue pertinentes; y
+e) Las demás funciones que este Reglamento o cualquier otra disposición legal le otorgaren.

@@ -1,6 +1,3 @@
-ARTICULO 41.- En tanto los servidores autorizados o aspirantes sean
-estudiantes regulares de los cursos a que se refiere el artículo 98 del
-Estatuto, aprueben dichos cursos y obtengan una calificación favorable de
-sus servicios gozarán de estabilidad, en los lugares que designe el
-Ministerio, por inopia de profesores titulados. Una vez que sus
-condiciones se lo permitan, podrán concursar para puestos en propiedad.
+ARTICULO 41.-
+El Ministerio de Educación Pública impulsará directamente o mediante programas cooperativos con alguna de las universidades del país con las que exista convenio, programas de capacitación y perfeccionamiento docente, tendiente a elevar la condición profesional del personal disponible. Tales cursos serán programados conjuntamente, de tal forma que permita a los estudiantes que los aprueben, ir ascendiendo en el escalafón docente según su nivel y especialidad.
+(Así reformado por el artículo 1º del Decreto Ejecutivo Nº 15041 de 16 de noviembre de 1983).

@@ -1,8 +1,4 @@
-ARTICULO 60.- El Consejo Superior de Educación podrá reconocer otros
-estudios y experiencias, aparte de los que se señalan en cada grupo del
-Escalafón y, asimismo, en casos muy calificados, podrá también reconocer
-las publicaciones que estimare meritorias, como factor que permita a sus
-autores, profesores titulados y autorizados, ascender, dentro de la misma
-serie, a grupos superiores del Escalafón. El Consejo deberá indicar en la
-misma resolución el grupo que se concediere al interesado, con base en
-las circunstancias expuestas.
+ARTICULO 60.-
+Los profesores que resultaren afectados por la aplicación de las normas del inciso a) del artículo anterior, gozarán de prioridad para ocupar las plazas vacantes en los centros educativos de ubicación más próxima a la del plantel en donde ellos prestan sus servicios. Si no hubiere quienes aceptaren el traslado en forma voluntaria, se aplicará el sistema de calificación que rige para la selección e ingreso; en este caso serán trasladados los servicios de menor puntuación.
+Si hubiere imposibilidad de una reubicación en las condiciones anteriores indicadas, se cumplirán las prescripciones del artículo 103 del Estatuto.
+(Corrida su numeración por el artículo 3º del Decreto Ejecutivo Nº 4955 de 17 de junio de 1975. Originalmente llevó el Nº 46).

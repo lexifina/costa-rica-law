@@ -1,4 +1,3 @@
-ARTICULO 78.- Las situaciones no previstas en el presente
-Reglamento, relativas a derechos y deberes de los servidores amparados
-por la Carrera Docente, serán resueltos de conformidad con lo que dispone
-el Reglamento del Título Primero del Estatuto.
+ARTICULO 78.-
+Si el servidor mantuviese inconformidad, dispondrá de un plazo máximo de diez días hábiles para formular recurso de apelación ante el Tribunal de la Carrera Docente, cuyo fallo, que será definitivo, deberá dictarse en un plazo no mayor de treinta días. Una vez resuelto el asunto, las diligencias deberán ser remitidas al Director del Departamento de Personal.
+(Corrida su numeración por el artículo 3º del Decreto Ejecutivo Nº 4955 de 17 de junio de 1975. Originalmente llevó el Nº 64).
