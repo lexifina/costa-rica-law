@@ -125,53 +125,61 @@ Tortillas | | 21 30 | 23.45
 | | PRECIOS MÁXIMOS DE VENTA
 | De productor Mayorista Kg ¢ | De productor mayorista a detallista kg ¢ | De detallista a consumidor Kg ¢
 Huevos | | |
-Huevos de gallina | 52.35 | 54.95 | 61.55
-| | PRECIOS MAXIMOS DE VENTA
-| | Al industrial
-| | Kilogramo ¢
-Aceites y grasas comestibles: | | |
-Aceite | | |
-Aceite crudo de palma africana | | 16,00
-| | PRECIOS MAXIMOS DE VENTA
-| De productor a mayorista o industrial ¢ | De mayorista a detallista ¢ | De detallista a consumidor ¢
-Manteca Vegetal | | |
-Líquida 1 kilogramo | 22,75 | |
-Bulto de 25 kilogramos | 574.85 | 603.60 | 676.25
-Paquete de 1 kilogramo | 24,65 | 25.85 | 28.45
-Paquete de 500 gramos | 12.30 | 12.90 | 14.25
-| | PRECIOS MÁXIMOS DE VENTA
-| | Al productor por tonelada métrica ¢
-Fruta de palma, puesta en planta aceitera | | 1.920.00 |
+Huevos de gallina | 55,00 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 15066 del 2 de diciembre de 1983) | 57,75 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 15066 del 2 de diciembre de 1983) | 64,65 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 15066 del 2 de diciembre de 1983)
+Al consumidor saco 46 kg | Al detalle por kilogramo
+¢ | ¢
+|
+Para gallinas en producción.....................555,00 13,50
+Para pollas en desarrollo...................... 494, 00 12.00
+Para pollitas en crianza.......................615,00 14,95
+Los precios de cualquier otra mezcla o formulación destinada a la alimentación de aves ponedoras, deberán ser previamente aprobados por el Ministerio de Economía y Comercio.
+(Así adicionado los precios de los alimentos para aves por el artículo 2° del decreto ejecutivo N° 15066 del 2 de diciembre de 1983)
+| PRECIOS MAXIMOS DE VENTA
+| Al industrial
+| Kilogramo ¢
+Aceites y grasas comestibles: | |
+Aceite | |
+Aceite crudo de palma africana | 16,00
+| PRECIOS MAXIMOS DE VENTA
+| De productor a mayorista o industrial ¢ De mayorista a detallista ¢ | De detallista a consumidor ¢
+Manteca Vegetal | |
+Líquida 1 kilogramo | 22,75 |
+Bulto de 25 kilogramos | 574.85 603.60 | 676.25
+Paquete de 1 kilogramo | 24,65 25.85 | 28.45
+Paquete de 500 gramos | 12.30 12.90 | 14.25
+| PRECIOS MÁXIMOS DE VENTA
+| Al productor por tonelada métrica ¢
+Fruta de palma, puesta en planta aceitera | 1.920.00 |
 · Cuando se venda al consumidor al menudeo, deberá venderse a ¢27.02 el kilogramo
-| | PRECIOS MAXIMOS DE VENTA
-| De productor a mayorista o industrial ¢ | De mayorista a detallista ¢ | De detallista a consumidor ¢
-Margarinas | | |
-Barrita de 125 gramos.... | 4.38 | 4.59 | 5.10
-Bulto de 15 kilogramos netos cada uno | 486.45 | |
-VARIOS | | |
-| | PRECIOS MAXIMOS DE VENTA
-| De productor a mayorista o industrial | De mayorista a detallista | De detallista a consumidor
-Jabón | | |
-Jabón en barra de 45% a 55% de ácidos grasos, caja de 12.5 Kg netos c/u | 307.45 | 322.80 | 14.85
-De 30% a 44% de ácidos grasos, caja de 12.5 kilogramos netos cada una | 286.75 | 301.10 | 13.85
-| | | Barra 500 g
-| | PRECIOS MAXIMOS DE VENTA
-| | A jabonería o industrial Kilogramo ¢
-Jaboncillo o pasta: | | |
-Con máximo de 65% de humedad | | 3.85
-Blanqueado con un máximo de 40% de humedad | | 17.00
-| | A jabonería
-Aceite de coquito | | 33.40
-Sebo de res: | |
-| | Al industrial
-Sebo de res | | 20.00
-UTILES ESCOLARES | | |
-| | PRECIOS MAXIMOS DE VENTA
-| De Productor a mayorista ¢ | De mayorista a detallista ¢ | De detallista a consumidor ¢
-Cuadernos de rayado común engrapados o engomados | | | Unidad
-Caja de 400 cuadernos de 20 hojas c/u | 1.236.10 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.421.50 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 4.25 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
-Caja de 320 cuadernos de 30 hojas c/u | 1.338.85 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.539.65 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 5.75 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
-Caja de 200 cuadernos de 50 hojas c/u | 1.213.50 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.395.50 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 8.35 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
+| PRECIOS MAXIMOS DE VENTA
+| De productor a mayorista o industrial ¢ De mayorista a detallista ¢ | De detallista a consumidor ¢
+Margarinas | |
+Barrita de 125 gramos.... | 4.38 4.59 | 5.10
+Bulto de 15 kilogramos netos cada uno | 486.45 |
+VARIOS | |
+| PRECIOS MAXIMOS DE VENTA
+| De productor a mayorista o industrial De mayorista a detallista | De detallista a consumidor
+Jabón | |
+Jabón en barra de 45% a 55% de ácidos grasos, caja de 12.5 Kg netos c/u | 307.45 322.80 | 14.85
+De 30% a 44% de ácidos grasos, caja de 12.5 kilogramos netos cada una | 286.75 301.10 | 13.85
+| | Barra 500 g
+| PRECIOS MAXIMOS DE VENTA
+| A jabonería o industrial Kilogramo ¢
+Jaboncillo o pasta: | |
+Con máximo de 65% de humedad | 3.85
+Blanqueado con un máximo de 40% de humedad | 17.00
+| A jabonería
+Aceite de coquito | 33.40
+Sebo de res: |
+| Al industrial
+Sebo de res | 20.00
+UTILES ESCOLARES | |
+| PRECIOS MAXIMOS DE VENTA
+| De Productor a mayorista ¢ De mayorista a detallista ¢ | De detallista a consumidor ¢
+Cuadernos de rayado común engrapados o engomados | | Unidad
+Caja de 400 cuadernos de 20 hojas c/u | 1.236.10 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) 1.421.50 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 4.25 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
+Caja de 320 cuadernos de 30 hojas c/u | 1.338.85 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) 1.539.65 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 5.75 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
+Caja de 200 cuadernos de 50 hojas c/u | 1.213.50 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) 1.395.50 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 8.35 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
 Caja de 160 cuadernos de 70 hojas c/u | 1.226.30 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.410. 25 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 10.55 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
 Cajas de 100 cuadernos de 100 hojas c/u | 1.104.45 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.270.10 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 15.25 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
 Caja de 60 cuadernos de 150 hojas c/u | 1.176.55 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 1.353. 05 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983) | 27.05 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 14234 del 21 de enero de 1983)
