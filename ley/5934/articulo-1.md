@@ -1,8 +1,10 @@
 (Derogado)
 Ley Nº 5934
+La presente norma ha sido DEROGADA PARCIALMENTE para todo lo que se refiera a la República Checa por el artículo 11
+del Acuerdo Comercial con la República Checa N° 7828 de 16 de septiembre de 1998.
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
-Artículo 1º.- Ratifícase en cada una de sus partes el Convenio Comercial entre la República de Costa rica y la República Socialista de Checoslovaquia, firmado en San José, el 11 de noviembre de 1974, cuyo texto es el siguiente:
+Artículo 1º.- Ratifícase en cada una de sus partes el Convenio Comercial entre la República de Costa Rica y la República Socialista de Checoslovaquia, firmado en San José, el 11 de noviembre de 1974, cuyo texto es el siguiente:
 CONVENIO COMERCIAL ENTRE LA REPÚBLICA DE COSTA RICA
 Y LA REPÚBLICA SOCIALISTA DE CHECOSLOVAQUIA
 El Gobierno de la República de Costa Rica y el Gobierno de la República Socialista de Checoslovaquia, con el ánimo de contribuir al desarrollo de las relaciones comerciales entre ambos países; basándose en la igualdad y ventajas mutuas, han convenido lo siguiente:
@@ -39,7 +41,8 @@ d) Equipos destinados a pruebas y experimentos y a las investigaciones de la Cie
 ARTÍCULO NOVENO
 Todos los pagos entre la República de Costa Rica y la República Socialista de Checoslovaquia se efectuarán en moneda de libre convertibilidad.
 ARTÍCULO DÉCIMO
-Para observar el presente convenio y elaborar las recomendaciones que sirvan al aumento y la ampliación de las relaciones comerciales y económicas entre ambos países, las partes se han comprometido a establecer una Comisión Mixta que se reunirá alternativamente en San José o Praga. Dicha Comisión se integrará con representantes autorizados de cada parte.
+Para observar el presente convenio y elaborar las recomendaciones que sirvan al aumento y la ampliación de las relaciones comerciales y económicas entre ambos países, las partes se han comprometido a establecer una Comisión Mixta que se reunirá alternativamente en San José o Praga.
+Dicha Comisión se integrará con representantes autorizados de cada parte.
 ARTÍCULO DÉCIMOPRIMERO
 Este convenio entrará en vigor en la fecha en que ambas partes se comuniquen por Canje de Notas el cumplimiento de los requisitos constitucionales respectivos.
 ARTÍCULO DÉCIMOSEGUNDO
