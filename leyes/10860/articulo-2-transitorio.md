@@ -1,0 +1,1 @@
+TRANSITORIO II- Se otorga al Ministerio de Obras Públicas y Transportes un plazo máximo de doce meses, contados a partir de la publicación de esta ley, para que elabore y actualice los protocolos pertinentes, en relación con la aplicación del artículo 208 de la Ley 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, del 4 de octubre de 2012.
