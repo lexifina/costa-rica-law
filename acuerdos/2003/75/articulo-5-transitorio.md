@@ -1,0 +1,1 @@
+Transitorio V.—Reporte de Composición de carteras de fondos inmobiliarios. La reforma al anexo 22 “Reporte de Composición de carteras de fondos inmobiliarios” en donde se modifica la estructura de la información periódica que se remite sobre los inmuebles y los inquilinos, rige a partir de la información con corte al 30 de abril del 2005.
