@@ -1,0 +1,1 @@
+Artículo 36.—El Director de la División de Recreación y División Cantonal, respectivamente, designarán al responsable de cada una de las subcajas chicas y así lo comunicarán oficialmente al Departamento Financiero-Contable.

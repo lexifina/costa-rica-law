@@ -1,0 +1,1 @@
+Artículo 23°—Al dorso de los comprobantes deberá indicarse el nombre, firma y cédula del funcionario que garantice el recibido conforme. El recibido conforme garantizará la calidad, cantidad y el costo de lo indicado en los comprobantes. En lo concerniente a materiales y suministros deberá además aportarse la boleta de entrada a bodega.

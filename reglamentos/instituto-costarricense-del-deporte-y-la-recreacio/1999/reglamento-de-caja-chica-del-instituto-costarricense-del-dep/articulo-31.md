@@ -1,0 +1,1 @@
+Artículo 31°—El Tesorero deberá hacer constar en la solicitud del adelanto, que el monto ha sido pagado y la fecha en que se entregó el dinero. Además, en el documento se, deberá indicar la firma del funcionario haciendo constar que ha recibido el dinero.

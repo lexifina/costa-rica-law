@@ -1,0 +1,1 @@
+Artículo 42°—En el momento de la presentación del reembolso del fondo de caja chica todos los componentes deben contener al dorso el recibido conforme del responsable de la subcaja chica y el visto bueno del Jefe inmediato con sello de la División a la que pertenece.
