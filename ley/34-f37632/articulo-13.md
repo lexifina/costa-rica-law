@@ -1,0 +1,1 @@
+Art 13.-En los cantones donde no resida Agente Fiscal, la autoridad judicial nombrar un Procurador Fiscal, para cada caso en que se necesite la intervención del Ministerio Público con arreglo á las leyes civiles y de procedimientos.

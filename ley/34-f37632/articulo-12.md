@@ -1,0 +1,1 @@
+Art 12.-Siempre que el Poder Ejecutivo lo crea necesario, nombrar un segundo Agente Fiscal en la capital de la Rep£blica, el cual ejercer entonces las atribuciones de que hablan los incisos 3° y 4° del art. 7°.
