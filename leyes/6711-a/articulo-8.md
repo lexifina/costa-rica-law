@@ -1,0 +1,6 @@
+Artículo 8
+1. Con objeto de facilitar la aplicación de las disposiciones del presente Convenio, cada empleador deberá:
+a) dar a conocer, por medio de carteles colocados en un sitio visible de su establecimiento u otro lugar conveniente, o en cualquier otra forma aprobada por el gobierno, las horas en que comience y termine el trabajo, y si el trabajo se realiza por equipos, las horas en que comience y termine el trabajo de cada equipo. Las horas se fijarán de manera que no excedan de los límites señalados en el presente Convenio y, una vez notificadas, no podrán modificarse sino en el modo y con el aviso aprobados por el gobierno;
+b) dar a conocer, en la misma forma, los descansos concedidos durante la jornada de trabajo que no se consideren comprendidos en las horas de trabajo;
+c) inscribir en un registro, en la forma aprobada por la legislación de cada país o por un reglamento de la autoridad competente, todas las horas extraordinarias efectuadas de acuerdo con los artículos 3 y 6 del presente Convenio.
+2. Se considerará ilegal emplear a una persona fuera de las horas fijadas en virtud del apartado a) o durante las horas señaladas en virtud del apartado b) del párrafo 1 de este artículo.
