@@ -1,0 +1,1 @@
+Artículo 118.- De la disciplina en los dormitorios. Los estudiantes tendrán horario para levantarse y para acostarse. En la mañana deberán estar formados en el área destinada para hacer los ejercicios matinales, de acuerdo con el horario dispuesto para ello. Por la noche, las luces deberán ser apagadas a las veintiún horas, salvo en situaciones de emergencia.

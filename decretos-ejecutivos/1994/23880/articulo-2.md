@@ -1,0 +1,1 @@
+Artículo 2º.- Se exceptúan de la aplicación del presente Reglamento, los servidores indicados en el artículo 43 de la Ley General de Policía, en lo que respecta al derecho de estabilidad en sus puestos.

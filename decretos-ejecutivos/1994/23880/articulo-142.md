@@ -1,0 +1,1 @@
+Artículo 142.- La Comisión dará a conocer todas las ofertas de becas a través de la Dirección de Recursos Humanos del Ministerio, mediante circulares, para lo cual podrá solicitar a éste exhibir la información completa y hacerla llegar a las oficinas.

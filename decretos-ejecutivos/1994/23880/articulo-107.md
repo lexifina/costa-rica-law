@@ -1,0 +1,1 @@
+Artículo 107.- Los diferentes órganos administrativos, docentes o técnico policial de la institución, están en el deber de velar por el cumplimiento del presente reglamento reportando cualquier anomalía o transgresión al mismo.

@@ -1,0 +1,1 @@
+Artículo 92.- La admisión al Programa Básico Policial se regulará por las disposiciones preestablecidas por la Escuela Nacional de Policía basándose en los perfiles de curso, estudio de vida y costumbres, edad y estatura, examen médico y test psicométrico.

@@ -1,0 +1,1 @@
+Artículo 116.- Se establecerá un horario para que cada grupo de estudiantes asista al comedor, este horario debe ser observado estrictamente. Antes de ingresar al comedor, los estudiantes procederán a formarse en el patio, ingresando en orden.

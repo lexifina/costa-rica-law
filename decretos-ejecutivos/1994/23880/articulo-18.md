@@ -1,0 +1,1 @@
+Artículo 18.- Para llenar las plazas vacantes de la Escuela Nacional de Policía, podrá recurrirse a concurso interno o externo, observando en forma estricta el nivel de requisitos y exigencias del puesto según la Ley General de Policía y el Manual de Puestos de la Escuela Nacional de Policía.

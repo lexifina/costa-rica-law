@@ -1,0 +1,1 @@
+Artículo 128.- El estudiante que necesite un permiso especial lo hará saber por escrito al Instructor o Táctico el que a su vez trasladará la gestión a la Unidad de Secretaría Estudiantil para que esta decida sobre el asunto.

@@ -1,0 +1,1 @@
+Artículo 158.- Una vez finalizado el trámite de recepción de solicitudes la Comisión de Becas entrará a calificar a los candidatos admitidos y se resolverá la adjudicación de la beca dentro de un término no mayor de quince días naturales, plazo que comenzará a contar desde la fecha de cierre de recepción de solicitudes.

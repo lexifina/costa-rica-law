@@ -1,0 +1,1 @@
+Artículo 47.- El funcionario que ha recibido el beneficio del permiso con goce de salario del artículo anterior, entregará a la Dirección de Recursos Humanos comprobantes académicos u otros pertinentes, que demuestren a satisfacción el aprovechamiento.

@@ -1,0 +1,1 @@
+Artículo 123.- De las disciplina y asistencia en las lecciones. La sala de clases debe ser considerada como el lugar de estudio y de trabajo intelectual. Allí el alumno debe observar el máximo de atención y respeto para con los instructores, profesores y sus compañeros.

@@ -1,0 +1,1 @@
+Artículo 5º.- Nombramientos ilegales. En concordancia con lo dispuesto en los artículos 50 y 51 de la Ley, serán nombramientos ilegales, aquellos que no se ajustan a los requisitos establecidos en la ley y en el presente reglamento y serán considerados delito de conformidad con lo establecido en el artículo 335, del Código Penal.

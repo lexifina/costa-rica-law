@@ -1,0 +1,1 @@
+Artículo 104.- En cada grupo se designará un "Distinguido" quien fungirá como colaborador de los instructores en la disciplina del grupo y otras actividades de aprendizaje. Su designación será hecha por conducto del Jefe de Instrucción. Tal designación no le concede prerrogativa alguna.

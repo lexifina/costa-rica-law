@@ -1,0 +1,1 @@
+Artículo 66.- La Dirección de Recursos Humanos convoca a concurso, cuando haya menos de tres candidatos elegibles en el correspondiente registro, o cuando se prevea la insuficiencia de personal, dada la necesidad de llenar a corto plazo una o más plazas.

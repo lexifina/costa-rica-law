@@ -1,0 +1,1 @@
+Artículo 148.- En caso de incumplimiento del contrato, el Ministerio podrá cobrar los daños y perjuicios y podrá separar de su cargo al becado in responsabilidad patronal cuando este incumplimiento se origine en una alta grave.

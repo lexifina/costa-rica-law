@@ -1,0 +1,1 @@
+Artículo 150.- Todo funcionario que goce de una beca haya finalizado la misma debe rendir un informe a la Escuela Nacional de Policía dentro del plazo de 30 días sobre su participación en el programa o curso donde asistió, bajo pena de aplicación de una sanción disciplinaria de apercibimiento por escrito en caso de incumplimiento de esta disposición.

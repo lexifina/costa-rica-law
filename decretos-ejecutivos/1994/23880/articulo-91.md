@@ -1,0 +1,1 @@
+Artículo 91.- El Programa Básico Policial está dirigido a dotar de conocimientos básicos dentro del marco teórico-práctico, a los aspirantes a integrar los cuerpos policiales. Está estructurado en los siguientes módulos: Area Humanidades, Area Jurídica, Area Técnico-Policial y Area de Entrenamiento Dirigido.

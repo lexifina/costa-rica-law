@@ -1,0 +1,1 @@
+Artículo 126.- Los alumnos deben estar a la hora exacta, fijada en el horario, en su respectiva aula. En el momento en que ingresa el instructor deberá permanecer de pie hasta que se les indique que pueden sentarse. Con respecto a las ausencias o llegadas tardías, se podrá justificar ante el instructor, quedando a criterio de éste si procede o no la justificación.

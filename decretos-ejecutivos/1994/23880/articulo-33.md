@@ -1,0 +1,1 @@
+Artículo 33.- La distribución y recolección de los formularios de Evaluación del desempeño será responsabilidad de los jefes de la dependencias policiales, quien es el llamado de efectuarlas. Se informará si hay empleados incapacitados, de vacaciones y otras incidentes que alteren el normal desempeño de la evaluación.

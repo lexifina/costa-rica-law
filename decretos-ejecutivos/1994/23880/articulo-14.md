@@ -1,0 +1,1 @@
+Artículo 14.- Una vez, conformadas las ternas con tres candidatos, se remitirá al Director del Cuerpo respectivo a fin de que se realice la escogencia del más idóneo. El nombramiento del candidato elegido será ratificado por el Consejo de Personal. Los candidatos no elegidos serán incorporados nuevamente a la nómina de elegibles.

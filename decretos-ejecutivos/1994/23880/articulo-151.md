@@ -1,0 +1,1 @@
+Artículo 151.- Todo beneficiario de una beca estará obligado en el momento en que se solicite, a brindar sesiones de instrucción sobre la materia objeto de la beca y a colaborar con los programas de adiestramiento de la Escuela Nacional de Policía.

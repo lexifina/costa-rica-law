@@ -1,0 +1,1 @@
+Artículo 78.- De las llegadas tardías. Se considerará llegada tardía el ingreso al trabajo después de los cinco minutos de la hora señalada para el comienzo de las labores en la correspondiente fracción de la jornada. En casos muy calificados, a juicio del superior, se justificarán las llegadas tardías a efecto de no aplicar la sanción correspondiente.

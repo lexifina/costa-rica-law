@@ -1,0 +1,1 @@
+Artículo 98.- Los cursos de especialización que se impartan en la Escuela Nacional de Policía, los definirá el Consejo Asesor de conformidad con la política del Ministerio de Seguridad Pública y las recomendaciones de la Dirección de la Escuela Nacional de Policía.

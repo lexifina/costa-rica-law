@@ -1,0 +1,1 @@
+Artículo 114.- Los estudiantes permanecerán en las aulas únicamente cuando estén recibiendo lecciones o bien en horas de estudio. Para dirigirse a cualquier área diferente a ésta, deberán requerir la autorización respectiva del táctico o instructor.

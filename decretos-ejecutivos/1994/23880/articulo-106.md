@@ -1,0 +1,1 @@
+Artículo 106.- Desde el momento en que se formalice la admisión de un alumno en la Escuela y mientras permanezca en su régimen, quedarán sometidos dentro y fuera del plantel en sus actos como tales, a las disposiciones contempladas en este reglamento.

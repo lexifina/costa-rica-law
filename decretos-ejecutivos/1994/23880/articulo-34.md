@@ -1,0 +1,1 @@
+Artículo 34.- El servidor tendrá acceso a la información contenida en su evaluación del desempeño, deberá firmar si se encuentra conforme. En caso de inconformidad podrá recurrir por escrito dentro de los 10 días siguientes, ante el Consejo de Personal.

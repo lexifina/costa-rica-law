@@ -1,0 +1,1 @@
+Artículo 56.- La Dirección de Recursos Humanos, en el término de seis meses, elaborará los siguientes manuales: Manual Descriptivo de Puestos, Manual de Clasificación y Valoración de Clases y Sistema de Evaluación del Desempeño.

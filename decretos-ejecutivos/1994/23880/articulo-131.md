@@ -1,0 +1,1 @@
+Artículo 131.- Los casos en que los actos y conductas no alcanzaren la consideración de falta leve, por corresponder a un nivel inferior a este, serán corregidos por el Instructor Profesor, Táctico o funcionario competente, con el apercibimiento respectivo.

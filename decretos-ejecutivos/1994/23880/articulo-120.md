@@ -1,0 +1,1 @@
+Artículo 120.- En los dormitorios deberá existir orden y disciplina y evitarán cualquier acto que pueda atentar contra sus compañeros o que implique transgresión a las reglas de cortesía. Igual comportamiento deben guardar en otros recintos de la Escuela, tales como el baño, barbería, etc.

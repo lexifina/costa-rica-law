@@ -1,0 +1,1 @@
+Artículo 157.- De previo a la participación en el concurso, el funcionario debe notificar a su superior acerca de su posible participación. El citado jefe puede objetar que el servidor concurse, pero debe notificar su negativa por escrito, lo cual no será vinculante en la decisión de Comisión de Becas.

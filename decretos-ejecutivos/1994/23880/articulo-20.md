@@ -1,0 +1,1 @@
+Artículo 20.- Para resolver una terna previamente el Director de la Escuela Nacional de Policía realizará las entrevistas pertinentes y completará los formularios que para ese efecto se tenga y las remitirá al Consejo Asesor con su recomendación.

@@ -1,0 +1,1 @@
+Artículo 146.- El beneficiario tiene derecho a que el jefe le permita participar en los programas de adiestramiento siempre y cuando no se afecte el buen funcionamiento de la oficina y la prestación del servicio público.

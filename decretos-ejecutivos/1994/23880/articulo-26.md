@@ -1,0 +1,1 @@
+Artículo 26.- La evaluación del desempeño de los servidores de la Escuela Nacional de Policía, será una apreciación del rendimiento del servidor en cada uno de los factores que influyen en su desempeño general. La evaluación intermedia tendrá como fin hacer correcciones, motivar y aconsejar al servidor y será promediada con el resultado final.

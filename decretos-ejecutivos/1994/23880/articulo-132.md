@@ -1,0 +1,1 @@
+Artículo 132.- Las sanciones de carácter administrativas son independientes de las responsabilidades de orden y disciplina, penales y civiles. Cualquier sentencia judicial o auto con este carácter no tiene efecto alguno para la no aplicación o exclusión de sanciones administrativas.

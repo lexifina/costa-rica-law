@@ -1,0 +1,1 @@
+Artículo 19.- La selección de personal, se realizará entre las nóminas o ternas que al efecto remita la Unidad de Personal del Ministerio de Seguridad Pública con base en los pedimentos tramitados ante ésta.

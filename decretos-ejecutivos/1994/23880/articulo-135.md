@@ -1,0 +1,1 @@
+Artículo 135.- Se considera para los efectos de interpretación de este reglamento como beca aquellas facilidades de adiestramiento que Gobiernos e Instituciones Extranjeras y organismos nacionales o internacionales le otorguen al Ministerio de Seguridad Pública.

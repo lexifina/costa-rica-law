@@ -1,0 +1,1 @@
+Artículo 40.- Para efectuar una permuta, cada uno de los interesados hará una solicitud por escrito en la que constará el visto bueno del jefe inmediato y el refrendo del máximo jerarca de la unidad a que pertenecen.

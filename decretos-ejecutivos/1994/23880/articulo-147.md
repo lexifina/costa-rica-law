@@ -1,0 +1,1 @@
+Artículo 147.- El funcionario favorecido con la adjudicación de una beca, está obligado a suscribir un contrato con el Ministerio estipulándose las condiciones específicas de los beneficios que recibirá el adjudicatario y de sus obligaciones para con el Ministerio. Las condiciones estipuladas en los carteles de las becas se entenderán por incorporadas al contrato.

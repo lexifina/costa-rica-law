@@ -1,0 +1,1 @@
+Artículo 137 .- La Escuela Nacional de Policía en coordinación con la Dirección de Recursos Humanos, será la encargada de atender lo relativo a las becas o cursos de capacitación que impartan; ofrezcan o auspicien Instituciones Publicas o Privadas Nacionales, para el personal de alta en los cuerpos policiales.

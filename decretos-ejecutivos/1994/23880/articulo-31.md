@@ -1,0 +1,1 @@
+Artículo 31.- La calificación se realizará a través de los formularios confeccionados para tal efecto, por la Dirección de Recursos Humanos, que se distribuirá a las unidades y se procesará mediante tablas de ponderación.

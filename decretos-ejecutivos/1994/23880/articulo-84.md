@@ -1,0 +1,1 @@
+Artículo 84.- Las sanciones no se aplicarán necesariamente atendiendo estrictamente el orden en que aparecen en el artículo anterior, sino conforme con las circunstancias de hecho y de derecho relacionadas con la falta cometida, salvo que la misma tenga una sanción específica en este Reglamento, el Código de Trabajo o normas supletorias.
