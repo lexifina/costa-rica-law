@@ -14,3 +14,4 @@ Sistema de Placas Plásticas para Facilitar las Labores de Control en el Aprovec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-18 | la propia norma |
+| 2 | 1998-03-18 | Ley 8 |
