@@ -1,2 +1,10 @@
 Artículo 11.- Los programas de las trasmisoras deben contribuir a elevar el nivel cultural de la Nación. Las radioemisoras comerciales estarán obligadas a ceder gratuitamente al Ministerio de Educación Pública un espacio mínimo de media hora por semana para fines de divulgación científica o cultural. Cada estación indicará al Ministerio citado el espacio que pueda cederle dentro de sus horarios de trabajo.
-Queda prohibida la radiodifusión de anuncios comerciales grabados en el extranjero.
+Queda prohibida la radiodifusión de anuncios grabados en su totalidad en el extranjero, así como la reproducción de los mismos cuando sobrepase el 50% del total de esos anuncios.
+La tele emisión de anuncios producidos en el exterior será permitida siempre que su número no sobrepase el 50% del total de anuncios que se trasmitan mensualmente.
+Se autoriza la trasmisión de programas radiales y radionovelas grabadas en el extranjero, siempre que ninguno de ellos sobrepase el 50% del total que de cada uno de ellos se trasmita mensualmente.
+Se autoriza la tele emisión de programas filmados en el extranjero, siempre que no sobrepasen el 80% del total de programas mensuales que se emitan, y que la producción nacional llene el porcentaje restante.
+Asimismo, se autoriza la teleemisión de programas comerciales en videotape, grabados o producidos en el exterior, siempre que no sobrepasen el 50% de la totalidad de los programas mensuales.
+La violación de esta disposición se penará con multa de ¢ 500.00 la primera vez, de ¢ 1,000.00 la segunda, y de ¢ 5,000.00 las siguientes.
+Estas reglas no rigen para los programas de tipo cultural que sean así calificados por el Ministerio de Educación Pública o que sean importados por el Estado, sus instituciones o por las representaciones de otros países.
+El producto de dichas multas lo girará el Tribunal que conozca del caso, a favor de la Dirección General de Artes y Letras, para formar un fondo destinado a financiar el funcionamiento de cursos de estudios, especiales para trabajadores de radio y televisión.
+(Así reformado por el artículo 1° de la ley N° 3700 del 22 de junio de 1966)
