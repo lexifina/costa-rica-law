@@ -12,3 +12,4 @@ Manual Descriptivo de Clases de la Administración Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-12-15 | la propia norma |
+| 2 | 1991-02-25 | Decreto Ejecutivo 20127 (1991-02-25) |
