@@ -14,3 +14,4 @@ Nuevas Tarifas Multas Delitos y Contravenciones contra Flora Y Fauna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-12 | la propia norma |
+| 2 | 2002-04-02 | Decreto Ejecutivo 30364 (2002-04-02) |
