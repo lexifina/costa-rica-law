@@ -1,0 +1,1 @@
+Artículo 37. -Las presentes disposiciones derogan y dejan sin efecto cualquier reglamento anterior sobre la materia y rige a partir de su publicación en el Diario Oficial, siguiendo el procedimiento establecido en el artículo 47 del Código Municipal. Déjese sin efecto también el Reglamento referente a los derechos de piso.

@@ -1,0 +1,1 @@
+Transitorio V.-Al entrar en vigencia este Reglamento cuando un inquilino haga traspaso de sus derechos de arrendamiento, deberá pagar a la Municipalidad el equivalente a diez mensualidades de alquiler de su local. Asimismo la hora de apertura del Mercado será a las 7,00 a. m. y a las dieciocho horas, treinta minutos el cierre del mismo.
