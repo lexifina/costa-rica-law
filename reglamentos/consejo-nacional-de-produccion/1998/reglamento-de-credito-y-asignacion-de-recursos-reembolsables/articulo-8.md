@@ -1,5 +1,0 @@
-Artículo 8°—Quedará a criterio de la Junta Directiva exigir, independientemente de la modalidad de financiamiento, la suscripción de seguros colectivos o individuales para garantizar la recuperación de la inversión en caso de siniestro.
-Los seguros podrán ser: de incendio, de fidelidad, marítimo, de cosechas, de vida o mutualidad según corresponda sobre los bienes dados en prenda y cualquier otro que apruebe la Junta Directiva.
-El beneficiario al suscribir el seguro que le exija el CNP, deberá aportar el Addendum de acreedor prendario o fiduciario a favor del CNP de dicha póliza, quedando obligado a presentar ante la Dirección Administrativo Financiera del CNP fotocopia del documento de la póliza y el original del Addendum de acreedor prendario o fiduciario, así como el recibo cancelado de la misma.
-La vigencia de las pólizas será por la totalidad del plazo del financiamiento.
-El incumplimiento con respecto a los seguros hará exigible anticipadamente la totalidad de la obligación, a criterio del Consejo Nacional de Producción.

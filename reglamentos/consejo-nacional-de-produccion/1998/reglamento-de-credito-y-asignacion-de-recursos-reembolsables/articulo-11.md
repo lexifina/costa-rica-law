@@ -1,1 +1,0 @@
-Artículo 11.—En caso de incumplimiento de los beneficiarios durante la ejecución del proyecto el Consejo Nacional de Producción comunicará al beneficiario que subsane o corrija, si procede, las irregularidades dentro del plazo que le establezca la Institución, bajo el apercibimiento de tornarse exigible la operación de no proceder conforme a lo intimado.
