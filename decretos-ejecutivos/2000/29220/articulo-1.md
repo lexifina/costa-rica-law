@@ -1,0 +1,20 @@
+DECRETOS
+Nº 29220-MTSS
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las potestades conferidas por los incisos 3) y 18) del artículo 140 de la Constitución Política, 25 y 27 de la Ley General de la Administración Pública; y con fundamento en el artículo 83 del Código de la Niñez y la Adolescencia.
+Considerando:
+1º—Que la entrada en vigencia del Código de la Niñez y la Adolescencia nos obliga a retomar algunos aspectos de la prestación de servicios de las trabajadoras y los trabajadores adolescentes, para darles una regulación especial, acorde con los principios que los rigen a la luz de la Convención de los Derechos del Niño y los Convenios Internacionales de la Organización Internacional del Trabajo, especialmente el N° 138, ratificado por Costa Rica mediante Ley Nº 5594 del 10 de octubre de 1994.
+2º—Que por Decreto Nº 25890 del 12 de marzo de 1997, reformado mediante Decreto Nº 27517-MTSS se creó con carácter permanente el Comité Directivo Nacional para la Prevención y Eliminación Progresiva del Trabajo Infantil y la Protección de la Persona Adolescente Trabajadora en Costa Rica, órgano adscrito, con desconcentración máxima, al Ministerio de Trabajo y Seguridad Social., como ente responsable de establecer la política nacional en materia de trabajo infantil y adolescente.
+3º—Que el Gobierno de la República, por medio del Comité Directivo Nacional para la Prevención y Eliminación Progresiva del Trabajo Infantil y la Protección de la Persona Adolescente Trabajadora en Costa Rica, impulsó el "Plan Nacional para la Prevención, eliminación progresiva del trabajo infantil y la protección de la persona adolescente trabajadora", en el cual se establece el compromiso de reglamentar la contratación laboral de adolescentes, así como determinar cuáles trabajos o centros de trabajo y actividades son insalubres o peligrosos, por constituir un eminente riesgo para su salud física, emocional, psíquica y moral, según la definición que hace el Consejo de Salud Ocupacional, de conformidad con el artículo 294 del Código de Trabajo.
+4º—Que mediante Decreto Nº 27516-MTSS, del 18 de diciembre de 1998, se crea la Oficina de Atención y Erradicación del Trabajo Infantil y Protección del Trabajo Adolescente en el Ministerio de Trabajo y Seguridad Social órgano permanente adscrito a la Dirección Nacional de Seguridad Social del Ministerio de Trabajo y Seguridad Social como órgano encargado y responsable de dirigir la política y las acciones concretas del Ministerio de Trabajo y Seguridad Social en materia de trabajo infantil y adolescente.
+5º—Que el Consejo de Salud Ocupacional elaboró un documento denominado "Condiciones y Actividades Peligrosas e Insalubres para el Adolescente Trabajador", que nos permite reglamentar el artículo 94 y cumplir con lo ordenado en artículo 83, ambos del Código de la Niñez y la Adolescencia.
+6º—Que es imperativo para el Ministerio de Trabajo y Seguridad Social establecer un marco jurídico que brinde seguridad a patronos y trabajadores, en cuanto a las condiciones mínimas que deben prevalecer en la contratación de Adolescentes trabajadores y trabajadoras, por existir una relación directa entre la situación de salud y seguridad de éstos con respecto a las características de su desarrollo, las condiciones de vida y el medio ambiente de trabajo en que se desenvuelve. El adolescente presenta una mayor vulnerabilidad a ciertos factores de riesgo laboral los cuales pueden ser incrementados o reducidos según sean las condiciones laborales. Por tanto,
+Decretan:
+El siguiente
+Reglamento para la contratación laboral
+y condiciones de salud ocupacional
+de las personas adolescentes
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 1º—Este Reglamento establece las condiciones laborales que deben prevalecer en la contratación laboral de personas adolescentes, con énfasis especial en el tipo de labores permitidas y las condiciones necesarias de trabajo, con el fin de proteger su salud, permitir su desarrollo físico, emocional y social, y evitar la ocurrencia de accidentes y enfermedades laborales.

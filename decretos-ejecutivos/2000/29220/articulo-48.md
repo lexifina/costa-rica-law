@@ -1,0 +1,1 @@
+Artículo 48.—Funcionarios (as) designados a los efectos, podrán realizar, a solicitud de la Inspección de Trabajo, visitas a los Centros Educativos para determinar si algún tipo de trabajo esta limitando el acceso a la educación de los adolescentes.

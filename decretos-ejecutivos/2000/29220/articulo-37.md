@@ -1,0 +1,1 @@
+Artículo 37.—El encargado de la Oficina de Trabajo Infantil y Adolescente asignará el caso recibido para que un profesional visite el domicilio o centro de trabajo, realice las valoraciones necesarias para determinar los servicios y ayuda que se le debe brindar al niño o niña afectado (a) y emita un informe técnico.

@@ -1,0 +1,1 @@
+Artículo 20.—La comunicación simple de la persona adolescente trabajadora de que fue despedida se tendrá como denuncia en contra del patrono infractor, para dar inicio al proceso. En el mismo momento se le hará saber que puede optar por la reinstalación a su puesto, o solicitar el pago de sus prestaciones legales.

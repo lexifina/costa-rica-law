@@ -1,0 +1,1 @@
+Artículo 45.—Igualmente brindará atención individual y familiar según corresponda para cada una de las situaciones, y realizará las acciones necesarias para la permanencia o reinserción al sistema educativo de la población atendida.

@@ -1,0 +1,3 @@
+SECCIÓN I
+Despido con responsabilidad patronal
+Artículo 16.—Cuando el patrono despida una persona adolescente trabajadora deberá hacerle saber en la misma carta de despido donde además se le comunica el período de preaviso a que tiene derecho, que debe pasar al Departamento de Relaciones de Trabajo o a las oficinas de la Inspección de Trabajo de la localidad donde reside o tenga el domicilio la empresa para que se le brinde la asesoría que requiera con el fin de conocer con exactitud los derechos laborales que le corresponden. En forma simultánea el patrono deberá enviar por la vía que encuentre más expedita una comunicación en este sentido a la Oficina de la Inspección de Trabajo de la localidad donde se ubica la empresa.

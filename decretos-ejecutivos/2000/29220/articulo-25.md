@@ -1,0 +1,1 @@
+Artículo 25.—Con el fin de llegar a la verdad real de los hechos, el Inspector encargado del caso convocará a las partes interesadas, con tres días de anticipación, a una audiencia oral y privada, en la que se evacuará la prueba aportada. Finalizada la audiencia, el Inspector encargado tendrá cinco días de plazo para valorar la prueba y rendir el informe al Director Regional.

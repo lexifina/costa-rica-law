@@ -1,0 +1,1 @@
+Artículo 9º—Las medidas de protección especial que rigen para las personas adolescentes trabajadoras de ninguna manera serán un obstáculo para su contratación laboral. Podrán desempeñarse en labores y horarios permitidos, y siempre que mantengan su asistencia regular a los centros educativos, de acuerdo con las alternativas que ofrezca el Ministerio de Educación Pública.

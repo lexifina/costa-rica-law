@@ -1,0 +1,1 @@
+Artículo 39.—Indistintamente de la remisión que se haga a otras instancias, todos los casos de personas trabajadoras menores de quince años serán referidos al P.A.N.I., para los efectos que dispone el artículo 92 del C.NA.

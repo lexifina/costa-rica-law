@@ -1,0 +1,1 @@
+Artículo 31.—La Inspección de trabajo también deberá remitir la boleta de registro de toda las personas adolescentes trabajadoras atendidas o detectadas en centros de trabajo, a la Oficina de Trabajo Infantil y Adolescente, para el respectivo seguimiento sociolaboral que permita garantizar los derechos fundamentales de la población adolescente de conformidad con el C.N.A.

@@ -1,0 +1,1 @@
+Artículo 12.—Las limitaciones de las jornadas, expuestas en el artículo anterior, inhiben totalmente a las personas adolescentes trabajadoras de prestar servicios, remunerados o no, en jornadas acumulativas y extraordinarias.

@@ -1,0 +1,1 @@
+Artículo 50.—Para la correcta y oportuna atención de las casos que atienden, es necesario que tanto la Inspección de Trabajo como el Departamento de Medicina, Higiene y Seguridad Ocupacionales remitan en forma diligente los informes técnicos solicitados por la Oficina de Trabajo Infantil y Adolescente, atendiendo el carácter prioritario que tiene esta población trabajadora.

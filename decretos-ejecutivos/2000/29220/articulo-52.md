@@ -1,0 +1,1 @@
+Artículo 52.—Las personas adolescentes trabajadoras deben ser capacitadas e informadas previamente sobre la labor que va a realizar, el riesgo que implica y las medidas de protección y seguridad que debe acatar.

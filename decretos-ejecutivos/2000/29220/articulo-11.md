@@ -1,0 +1,1 @@
+Artículo 11.—Devengarán como mínimo un salario igual al establecido en el Decreto de Salarios Mínimos para una jornada diaria de ocho horas, según cada categoría ocupacional teniendo en cuenta que la protección que se brinda en cuanto al tiempo en que deben ejecutarse las labores no puede incidir negativamente en el ingreso salarial.

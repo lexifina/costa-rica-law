@@ -1,0 +1,1 @@
+Artículo 38.—Una vez emitido el informe técnico se brinda al niño o niña la atención que se recomiende en el mismo, coordinando con las diferentes instituciones involucradas en la materia. Las acciones necesarias para que puedan disfrutar de sus derechos fundamentales de conformidad con el C.N.A.

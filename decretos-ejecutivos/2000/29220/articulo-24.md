@@ -1,0 +1,1 @@
+Artículo 24.—Contra el acta de prevención, el patrono podrá oponer recurso de revisión dentro del mismo plazo otorgado en el artículo anterior, en los términos que lo establece el párrafo tercero del artículo 139 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social, presentando las pruebas que tenga a su favor.

@@ -1,0 +1,1 @@
+Artículo 47.—La Oficina de Trabajo Infantil y Adolescente deberá rendir un informe anual al señor Ministro de Trabajo, en relación con las gestiones realizadas, el resultado favorable o desfavorable de cada una de ellas, y las recomendaciones que considere pertinentes dada la especialización que tiene en el tratamiento de estas personas.

@@ -1,0 +1,1 @@
+Artículo 13.—Podrán trabajar en días feriados en los términos de excepción que establecen expresamente los artículos 150 y 151 del Código de Trabajo, respectivamente, y dentro de los límites de jornada establecidos en el artículo 10 anterior. Por exceder el límite permitido de jornada semanal, no podrán laborar durante el descanso semanal.

@@ -1,0 +1,1 @@
+Artículo 27.—Si no hubo oposición al acta de prevención por parte del patrono, y transcurrido el plazo concedido por ésta, se procederá a realizar la visita de revisión, con el fin de comprobar si se persiste en la infracción o si el menor fue reinstalado tal como se previno, con lo cual se cierra el ciclo inspectivo y se ordena el archivo del expediente.

@@ -1,0 +1,1 @@
+Artículo 23.—El Inspector asignado al caso, elaborará una acta de inspección y prevención, y la notificará al patrono infractor, otorgándole el plazo de dos días hábiles, para que se ponga a derecho y subsane la infracción.

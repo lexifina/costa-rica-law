@@ -1,0 +1,1 @@
+Artículo 28.—Si se comprueba que la infracción no se ha subsanado, se procede a levantar el informe de acusación por violación a los artículos 90 ó 91 del C.N.A., según sea el caso, y se plantea la denuncia correspondiente ante los Tribunales de Trabajo.

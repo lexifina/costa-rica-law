@@ -1,0 +1,1 @@
+Artículo 22.—Indistintamente de la opción que asuma la persona adolescente trabajadora, la Inspección de Trabajo elaborará una acta de prevención al patrono para que corrija la falta, que incluye la reinstalación de la persona adolescente trabajadora, si ésta desea ser instalada.

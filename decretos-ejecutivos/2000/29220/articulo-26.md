@@ -1,0 +1,1 @@
+Artículo 26.—Presentado el informe final rendido por el Inspector, el Director Regional resolverá el recurso de revisión, ordenará continuar los procedimientos pertinentes y notificará a las partes involucradas.
