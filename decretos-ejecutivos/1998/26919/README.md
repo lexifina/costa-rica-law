@@ -14,3 +14,4 @@ Integra la Dirección General de Museos al Centro de Investigación y Conservaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-11-01 | la propia norma |
+| 2 | 1998-11-01 | Decreto Ejecutivo 27182 (1998-06-23) |
