@@ -1,0 +1,1 @@
+Artículo 45.- El Departamento de Cooperativas podrá autorizar el establecimiento de cualquier otro tipo de cooperativas no comtemplado en las disposiciones anteriores, siempre que persiga fines de cooperación y se constituya de acuerdo con las disposiciones de esta ley.

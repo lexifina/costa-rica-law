@@ -1,0 +1,1 @@
+Artículo 55.- Las reuniones de la Asamblea podrán ser ordinarias y extraordinarias. La Asamblea ordinaria se reunirá por lo menos una vez al año en el mes que indique el estatuto de la cooperativa. La Asamblea extraordinaria se reunirá cada vez que se presenten asuntos extraordinarios de importancia que así lo demanden o cuando así lo disponga la ley.

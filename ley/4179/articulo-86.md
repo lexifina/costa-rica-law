@@ -1,0 +1,1 @@
+Artículo 86.- Si el patrimonio social de la cooperativa disminuyere por pérdida en el ejercicio de las operaciones sociales, podrá ser repuesto con fondos pertenecientes a la reserva legal, según lo dispongan los estatutos o lo acuerde la Asamblea.

@@ -1,0 +1,1 @@
+Artículo 43.- Las cooperativas de servicios múltiples son aquellas que combinan cualesquiera de las formas anteriores. Podrán abarcar objetos y propósitos diversos, a condición de que no sean incompatibles entre sí y que en lo pertinente se cumplan las reglas especiales a que debe sujetarse cada una de las clases de cooperativas.

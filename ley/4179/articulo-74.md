@@ -1,0 +1,1 @@
+Artículo 74.- Tendrán capacidad para ser asociados y disfrutar de los derechos de una cooperativa, con excepción de ser electos para cargos en los cuales los estatutos establecen cierto mínimo de edad, los menores de uno u otro sexo, que tengan más de quince años.

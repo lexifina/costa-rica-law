@@ -1,0 +1,1 @@
+Artículo 71.- Los miembros del Consejo de Administración, los Comités y la Gerencia, serán, salvo en los casos de las cooperativas escolares, legalmente capaces conforme a las leyes y a los respectivos estatutos, que deberán exigir condiciones de solvencia moral para desempeñar tales puestos.

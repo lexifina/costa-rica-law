@@ -1,0 +1,1 @@
+Artículo 9º.- Las cooperativas, sin lesionar el derecho de los asociados de retirarse y decidir el aporte que hubieren hecho, podrán reglamentar el ejercicio del derecho de retiro, con el fin de no poner en peligro su estabilidad y buena marcha.
