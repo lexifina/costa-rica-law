@@ -1,6 +1,7 @@
 Nº 3892-MEIC
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE ECONOMIA, INDUSTRIA Y COMERCIO,
+(NOTA: Derogado tácitamente en su totalidad por el artículo 50 de la Ley del Sistema Nacional para la Calidad N° 8279 de 2 de mayo del 2002, al derogar expresamente los numerales que el presente decreto reglamentaba)
 Considerando:
 1º.- Que mediante ley Nº 5292 de 9 de agosto de 1973, fue creada la
 Oficina Nacional de Normas y Unidades de Medida, dependiente

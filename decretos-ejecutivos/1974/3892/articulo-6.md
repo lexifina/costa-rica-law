@@ -5,14 +5,17 @@ equipos o instrumentos de medición que tengan graduación en
 unidades diferentes a las establecidas por ley.
 b) Decomisar todo tipo de equipo o instrumentos de pesaje que
 estén en mal estado.
-c) Decomisar la mercadería cuyos empaques, envases o etiquetas,
-consignen las especificaciones del producto en unidades
-diferentes a las del Sistema Internacional de Medidas, o
-Sistema Métrico Decimal.
+c) Impedir (congelar) la comercialización de aquella mercadería que
+incumpla las especificaciones de las normas, hasta tanto no se
+cumplan las prevenciones hechas por la Oficina Nacional de Normas y
+Unidades de Medida.
+(Así reformado por el artículo primero del Decreto Nº 17836 de 17 de
+noviembre de 1987)
 d) Controlar el peso registrado de los productos, cuyos empaques,
 envases o etiquetado, se consignen en otro idioma.
-e) Retirar del mercado todos aquellos productos, cuyos empaques,
-envases o etiquetado, se consignen en otro idioma.
+e) Refundido.-
+(El texto de este inciso fue refundido en el anterior inciso c) por
+el Decreto Nº 17836 de 17 de noviembre de 1987)
 f) Controlar que los precios de venta al consumidor, no excedan a
 los precios máximos fijados por la Dirección de Comercio
 Interior del Ministerio de Economía, Industria y Comercio para

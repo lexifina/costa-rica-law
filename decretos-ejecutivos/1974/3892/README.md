@@ -13,3 +13,4 @@ Reglamento Oficina Nacional de Normas y Unidades de Medida y del SI
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-06-28 | la propia norma |
+| 2 | 1974-06-28 | SINALEVI (sin norma nombrada) |
