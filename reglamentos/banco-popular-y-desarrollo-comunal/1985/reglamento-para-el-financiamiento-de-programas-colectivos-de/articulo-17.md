@@ -1,1 +1,0 @@
-Articulo 17.—Las organizaciones beneficiadas con préstamo del Banco, tendrán la obligación de divulgar por sus medios que el proyecto se realiza con un crédito concedido por el Banco Popular y de Desarrollo Comunal. Asimismo, la Institución queda expresamente autorizada para que pueda divulgarlo en la forma que considere conveniente.

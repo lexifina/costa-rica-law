@@ -1,3 +1,0 @@
-Artículo 7°—
-a) Los préstamos para proyectos colectivos de vivienda cuya deuda se individualiza una vez adjudicadas las viviendas a los beneficiarios finales, devengarán mi interés anual sobre saldos, ajustable cada seis meses, igual a la tasa de interés de los préstamos que señala el reglamento específico de vivienda individual.
-b) Los préstamos para proyectos colectivos de vivienda asignados a organizaciones que se encargarán de administrar el proyecto individualizado incluyendo cuotas de repago de créditos, devengarán una tasa de interés anual sobre saldos, ajustables cada seis meses, de dos puntos menos a la asignada a los préstamos individuales de vivienda.
