@@ -1,0 +1,6 @@
+DECRETO XXXVII
+Adopta la medida propuesta de reunir en San Salvador una dieta de Representantes por cada Estado para uniformar la opinión respecto a los intereses de la Unión (1).
+“El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
+La Asamblea Extraordinaria del Estado libre de Costa rica, teniendo en consideración: 1° que la invitación a una Dieta en el Estado del Salvador hecha por el Gobierno de Guatemala, presenta los medios más acomodados para uniformar la opinión entre los Estados que componen la Nacion:2° que unidos estos, y conferenciando entre sí las materias de reformas que tanto se desean, dando cuenta a sus respectivas Asambleas del resultado de sus tareas, que serán tachadas o aprobadas por ellas mismas en todo en parte, será más fácil combinar los intereses de los Estados, y preparar la obra que perfeccionará el Congreso que necesariamente habrá de convocarse, para que sobre ella plantée la paz de que hasta hoy ha carecido la República:
+3° que es un deber el procurarla por todos los medios posibles, como el principal para su felicidad, ha venido en decretar y decreta:
+Art 1°.- Se adopta una Dieta de dos Representantes por cada Estado, reunida en San Salvador.
