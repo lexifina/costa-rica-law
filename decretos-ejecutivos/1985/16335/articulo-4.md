@@ -1,1 +1,0 @@
-Artículo 4°-Toda persona, natural o jurídica que se ocupe de la importación, fabricación, manipulación, almacenamiento, venta, distribución, transporte y suministro de sustancias o productos tóxicos, sustancias peligrosas o declaradas peligrosas por el Ministerio de Salud, deberá registrar sus productos de acuerdo con los procedimientos establecidos para ese fin.
