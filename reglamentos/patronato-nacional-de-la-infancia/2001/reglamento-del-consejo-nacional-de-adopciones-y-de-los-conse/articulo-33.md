@@ -1,1 +1,0 @@
-Artículo 33.—Los representantes de la sociedad civil organizada designados en el Consejo Nacional y en los Consejos Regionales, así como el representante de las Juntas de Protección a la Niñez y la Adolescencia que funja como miembro del Consejo Nacional no devengarán dieta ni remuneración económica alguna por su participación en dichas instancias.

@@ -1,1 +1,0 @@
-Artículo 40.—Los acuerdos que adopte el Consejo Nacional de Adopciones deberán ser suscritos por todos los miembros presentes, con la posibilidad de que alguno de ellos pueda salvar su voto en caso de discrepancia. Más sin embargo, las resoluciones administrativas que atañen a la competencia del Consejo adquirirán validez con la sola firma del Presidente y Secretario del mismo.

@@ -1,1 +1,0 @@
-Artículo 16.—El Consejo Regional de Adopciones se reunirá en forma ordinaria al menos una vez al mes y cuantas veces sea necesario en forma extraordinaria, previa convocatoria escrita que al respecto hará el coordinador regional respectivo.

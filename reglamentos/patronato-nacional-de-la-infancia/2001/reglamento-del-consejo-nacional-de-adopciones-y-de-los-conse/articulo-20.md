@@ -1,1 +1,0 @@
-Artículo 20.—En casos especiales, a juicio de cada Consejo Regional, se podrá recibir en las sesiones a funcionarios y profesionales especializados en el caso, o a otras personas interesadas en la dilucidación de lo discutido.

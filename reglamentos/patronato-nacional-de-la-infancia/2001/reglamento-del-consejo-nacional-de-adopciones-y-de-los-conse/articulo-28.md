@@ -1,1 +1,0 @@
-Artículo 28.—En todo lo concerniente a los procedimientos internos aplicables en el ámbito institucional atinentes a la adopción nacional, se estará a lo que en lo conducente disponga el Manual de Normas y Procedimientos que al efecto se constituya.

@@ -1,2 +1,0 @@
-Artículo 36.—El Consejo Nacional de Adopciones sesionará en forma ordinaria una vez a la semana, y cuantas veces sea necesario en forma extraordinaria, por así demandarlo las funciones que le competan.
-Para ello, el presidente del Consejo Nacional, convocará a sus miembros con la anticipación necesaria y a través de los medios escritos o electrónicos existentes, con el propósito de garantizar la celeridad en los procedimientos y la eficiencia en los requerimientos.
