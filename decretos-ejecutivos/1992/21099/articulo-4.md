@@ -1,1 +1,0 @@
-Artículo 4°-La planificación en el área específica de micro y pequeña empresa, coordinación y administración del Programa Nacional de apoyo a la Micro y Pequeña Empresa corresponderá al Ministerio de Trabajo y Seguridad Social.

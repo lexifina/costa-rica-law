@@ -1,1 +1,0 @@
-Artículo 5°-la estructura organizacional, definida para la primera fase operativa del “PRONAMYPE” está conformada por la Dirección Nacional a cargo del del Ministro de Trabajo y Seguridad Social, y dos áreas: una financiera y otra de soporte profesional a la base de la micro y pequeña empresa. El Director Nacional estará asesorado por un comité técnico.

@@ -1,1 +1,0 @@
-Artículo 6°-El área financiera se encargará de las gestiones de Fideicomiso, sistemas de información de los resultados del programa, evaluación y auditoría, desarrollo institucional y administración del programa.

@@ -1,1 +1,0 @@
-Artículo 2°-Se crea la Comisión Nacional de Apoyo a la Micro y pequeña Empresa; la cual tendrá la responsabilidad de aprobar las políticas y orientaciones generales para el Programa Nacional de Apoyo a la Micro y Pequeña Empresa.
