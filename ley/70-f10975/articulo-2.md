@@ -1,0 +1,1 @@
+Art. 2. En el mismo concepto que expresa el art. anterior, gozará el escribiente de la respectiva oficina de aquellos, el sueldo de ciento ochenta pesos anuales. Los gastos de escritorio son tambien de cuenta del tesoro pùblico. –Dado en la ciudad de San José, á los diez dias del mes de guerra.”
