@@ -1,0 +1,1 @@
+Artículo 3°—La labor de depositario judicial o extrajudicial sobre bienes prendarios e Hipotecarios dados en garantía de créditos, embargos, o a cualquier título, la ejercerá el INFOCOOP por intermedio del Administrador de Bienes.

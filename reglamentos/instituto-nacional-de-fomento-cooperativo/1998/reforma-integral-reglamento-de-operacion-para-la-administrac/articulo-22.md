@@ -1,0 +1,1 @@
+Artículo 22.—Una vez que el bien se encuentre inscrito a nombre del INFOCOOP, el Abogado debe remitir el documento de inscripción respectivo al Departamento de Crédito, debiendo este último informar lo anterior a las instancias pertinentes.

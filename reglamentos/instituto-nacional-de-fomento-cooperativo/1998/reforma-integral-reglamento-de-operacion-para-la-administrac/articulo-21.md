@@ -1,0 +1,1 @@
+Artículo 21.—Los bienes se mantendrán bajo el Sistema de Inventario permanente. Por lo menos dos veces al año. La Administración de Bienes y el Departamento de Finanzas realizarán un inventario físico de dichos bienes.

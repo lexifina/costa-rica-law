@@ -1,0 +1,3 @@
+Del ingreso y salida de bienes en las bodegas del INFOCOOP
+Artículo 17.—Cuando un bien ingresa a las bodegas del INFOCOOP, el encargado de bodega procederá a levantar un listado que posea la siguiente información: número de identificación asignado, documento base, número de operación, número de juicio, descripción del bien que debe incluir las características y el estado, lugar de almacenamiento y acto que da lugar al recibo del bien (depósito judicial, extrajudicial, adjudicación o dación de pago).
+Una vez confeccionado lo anterior, el encargado de bodega cotejará dicha información con lo descrito en los Actos Judiciales respectivos. En caso de divergencia deberá reportarlo a la Jefatura para que ésta informe lo pertinente a las diferentes instancias.

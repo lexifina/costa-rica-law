@@ -1,0 +1,1 @@
+Artículo 26.—Para el caso de los bienes adjudicados o recibidos en dación de pago, la Administración de Bienes está facultada para realizar reparaciones y mejoras,’ siempre y cuando se haya determinado la necesidad de tales trabajos y las ventajas que los mismos podrían representar para el INFOCOOP en la recuperación de sus créditos.

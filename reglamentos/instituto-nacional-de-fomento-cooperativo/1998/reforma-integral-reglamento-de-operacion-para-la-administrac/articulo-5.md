@@ -1,0 +1,1 @@
+Artículo 5°—El INFOCOOP gestionará el uso de las instalaciones adecuadas y medios de seguridad requeridos, con el propósito de que los bienes tengan la suficiente protección, a fin de evitar el deterioro acelerado y eventual desmantelamiento de piezas de los mismos.

@@ -1,0 +1,1 @@
+Artículo 8°—Si se tratara de bienes cuyo valor es escaso por encontrarse en estado de abandono o desmantelados, o en mal estado cuyo costo de transporte y custodia pudiera resultar mayor que su valor real, siempre deberá pedirse instrucciones a la Dirección Ejecutiva quien podrá autorizar el no retiro de dichos bienes.

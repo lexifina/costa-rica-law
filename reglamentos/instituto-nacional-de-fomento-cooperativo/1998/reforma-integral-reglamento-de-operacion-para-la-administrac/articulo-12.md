@@ -1,0 +1,1 @@
+Artículo 12.—Si en la administración y custodia de un bien en depósito, dación de pago o adjudicado se detectare que el mismo ha sufrido daños graves o el cliente ha recibido perjuicio en virtud de negligencia de la Administración de Bienes, ésta será responsable de los daños y perjuicios ocasionados.
