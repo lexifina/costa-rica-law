@@ -1,0 +1,1 @@
+Artículo 2°-La Comisión de Infraestructura y Turismo a que se refiere el presente Decreto, será un órgano mixto, integrado por funcionarios de la Administración Pública y de la empresa privada del turismo.
