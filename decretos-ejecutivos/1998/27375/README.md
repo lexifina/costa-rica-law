@@ -14,3 +14,4 @@ Fija Monto Dietas a Miembros del Consejo Nacional de Migración
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-07-09 | la propia norma |
+| 2 | 1998-11-18 | Decreto Ejecutivo 27462 (1998-11-18) |
