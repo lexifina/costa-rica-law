@@ -1,0 +1,2 @@
+Artículo 10.—Reintegro y registro contable
+Las facturas u otros comprobantes pagados con fondos de caja chica administrados por las superintendencias, deberán ser presentados para su reintegro y registro contable el día de cada mes que se establezca en el procedimiento operativo para las compras previstas en el reglamento, sin perjuicio de que antes de esa fecha puedan solicitarse otras liquidaciones por agotamiento de los fondos.

@@ -1,0 +1,7 @@
+Artículo 4º—Requisitos para efectuar compras por caja chica únicamente se podrán tramitar compras por caja chica cuando cumplan con los siguientes requisitos y su aplicación será de responsabilidad absoluta del encargado del Centro de Costo o en quien éste haya delegado.
+a) Que sean urgentes, imprevisibles, excepcionales, indispensables o de imposible aplazamiento, cuya naturaleza justifica el desembolso inmediato y que el bien o suministro que se pretende adquirir, no se encuentre en existencia.
+b) Que por su limitado volumen y monto en colones resulta más conveniente tramitarla prescindiendo de los procedimientos ordinarios de compra, de acuerdo con lo dispuesto en la Ley de Contratación Administrativa y su Reglamento.
+c) Aquellas que por su naturaleza deban pagarse en efectivo. En estos casos si el monto sobrepasa el máximo vigente establecido se requerirá de la autorización escrita de la dirección de la División Administrativa o de la Gerencia en el Banco Central, o del Intendente o Superintendente del respectivo órgano de desconcentración máxima según corresponda, de acuerdo con los montos establecidos en el Artículo 5 de este Reglamento.
+d) Que dispongan de contenido presupuestario suficiente.
+e) Que no constituyan un fraccionamiento ilícito de acuerdo con lo señalado en el Artículo 37 de la Ley de Contratación Administrativa y el Artículo 40 del Reglamento General de Contratación Administrativa.
+f) Que no existan anticipos pendientes de liquidar, de acuerdo con lo establecido en el Artículo 6 de este Reglamento.

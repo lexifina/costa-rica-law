@@ -1,0 +1,4 @@
+Artículo 7º—Liquidación de los anticipos
+Los anticipos para compras por caja chica deberán liquidarse el día hábil siguiente a su emisión. Este plazo solo podrá ser prorrogado en casos excepcionales debidamente justificados por escrito por el funcionario responsable del centro de costo o su sustituto en propiedad, ante la Dirección de Presupuesto o el responsable del fondo de los órganos de Desconcentración Máxima, en cuyo caso esa Dirección deberá decidir el plazo máximo que otorga y comunicar esta aprobación por escrito a los responsables de tramitar la liquidación. (Fórmula 3).
+Si transcurrido este último plazo no ha sido posible efectuar la compra objeto del adelanto, deberá devolverse la totalidad del anticipo.
+El cumplimiento de lo dispuesto en este artículo es de exclusiva responsabilidad del funcionario responsable del centro de costo o su sustituto en propiedad.
