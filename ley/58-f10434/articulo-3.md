@@ -1,1 +1,0 @@
-Art. 3. Se faculta al Poder Ejecutivo para que usando de la mayor economía, tome del tesoro público la cantidad que debe invertirse en las traslaciones de archivos y demás cosas pertenecientes á la administración pública de la Sede Suprema del Gobierno, dando cuenta á la Asamblea.
