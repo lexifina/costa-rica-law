@@ -1,0 +1,1 @@
+Artículo 6°-Los entes descentralizados que contribuyen con el 1% de sus presupuestos totales, exceptuadas las inversiones, para cumplir con el artículo 21 de la Ley N° 5525 de 2 de mayo de 1974, continuarán transfiriendo estos recursos al Gobierno de la República, para los mismos fines.

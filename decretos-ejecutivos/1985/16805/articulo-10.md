@@ -1,0 +1,1 @@
+Artículo 10.-Se autoriza girar en divisas lo correspondiente a salarios y otros gastos en el exterior, del Programa Centro de Promoción de Exportaciones e Inversiones, del Ministerio de Economía y Comercio.

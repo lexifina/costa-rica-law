@@ -1,0 +1,1 @@
+Transitorio II. -Los recursos en efectivo o en Títulos Valores debidamente comprometidos en la atención de gastos aprobados en el presupuesto del año1985, podrán permanecer en poder de las entidades responsables de los programas que se incorporen al Presupuesto Nacional.
