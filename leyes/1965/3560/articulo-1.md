@@ -1,4 +1,6 @@
+(Derogado)
 N° 3560
+(Esta norma fue derogada por el artículo 22 de la Ley Reguladora Transporte Remunerado Personas Vehículos Taxis, N° 5406 del 26 de noviembre de 1973)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 Artículo 1°-Modificase el Transitorio IIde la ley N° 3503 de 10 de mayo de 1965, a efecto que se lea así:
