@@ -1,0 +1,1 @@
+Transitorio único.—El Poder Ejecutivo junto con el Instituto Costarricense de Turismo, en un plazo que no excederá los tres meses mes calendario, revisarán y promulgarán un Manual de Normas Mínimas para Clasificación de las Categorías de Excelencia de las diferentes Actividades Turísticas, que sustituirá el Anexo 3 del presente Decreto Ejecutivo.
