@@ -1,0 +1,1 @@
+Artículo 13.—Finalizada la construcción, el inspector de construcciones dará su aprobación final y se procederá a enviar copia del formulario "Solicitud de Permisos de Construcción" a la Dirección General de Estadísticas y Censos; por parte del mismo Inspector de Rentas y Construcciones.

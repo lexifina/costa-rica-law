@@ -1,0 +1,1 @@
+Artículo 7°—Si la Oficina del Inspector de Construcciones encontrare algún defecto técnico en los planos de construcción o considere que deben modificarse parcial o totalmente lo comunicara en forma escrita al interesado, a efecto de que proceda a hacer las enmiendas señaladas.
