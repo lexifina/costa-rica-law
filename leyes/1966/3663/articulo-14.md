@@ -1,5 +1,2 @@
-Artículo 14.- Los avalúos y peritajes sobre asuntos y materias
-relacionadas con las profesiones de ingeniería y de arquitectura, que
-ordenen las oficinas públicas, instituciones autónomas y semiautónomas y
-las municipalidades deberán ser realizados por miembros activos del Colegio
-Federado de acuerdo a esta ley y sus reglamentos.
+Artículo 14.- Los avalúos y peritajes sobre asuntos y materias relacionadas con las profesiones de ingeniería y de arquitectura, que ordenen las oficinas públicas, instituciones autónomas y semiautónomas y las municipalidades deberán ser realizados por miembros (*) del Colegio Federado de acuerdo a esta ley y sus reglamentos.
+(*) Por resolución de la Sala Constitucional N° 5133 de las 14:46 hrs del 28 de mayo del 2002 se anuló por inconstitucional la palabra "activos" pero únicamente en cuanto se utiliza para hacer la diferencia de trato con los miembros asociados.

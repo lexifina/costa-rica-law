@@ -1,0 +1,4 @@
+Disposiciones transitorias
+(NOTA: Transitorios de la ley N° 4925 de 17 de diciembre de 1971)
+Transitorio I.- Dentro de los treinta días siguientes a la vigencia de esta ley, la actual Junta Directiva del Colegio de Ingenieros y Arquitectos convocará a los miembros activos de las distintas profesiones afectadas por esta ley, para que elijan sus respectivas Juntas Directivas, sus Delegados a la Asamblea de Representantes y a la Junta Directiva General, las que entrarán en funciones tan pronto como queden totalmente integradas. Mientras no entre en funciones la Junta Directiva General, la actual Junta Directiva desempañará las funciones de aquélla. El Presidente de la Junta Directiva General tendrá representación del Colegio Federado hasta tanto no se nombre Director Ejecutivo, con las mismas facultades de éste, nombramiento que deberá hacer dicha Junta una vez instalada.
+(Adicionado este transitorio por Ley Nº 4925 de 17 de diciembre de 1971).

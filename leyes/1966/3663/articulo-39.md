@@ -1,7 +1,3 @@
 De las Directivas de los Colegios Miembros
-Artículo 39.- La Junta Directiva de cada uno de los Colegios Miembros
-estará integrada por siete miembros activos que serán: Presidente,
-Vicepresidente, Secretario, Tesorero, Fiscal y dos Vocales. La Asamblea
-General nombrará por votación directa y secreta a los miembros para cada
-puesto, los mismos no podrán ser reelectos para períodos sucesivos, salvo
-en cargos diferentes.
+Artículo 39.- La Junta Directiva de cada uno de los Colegios Miembros estará integrada por siete miembros (*) que serán: Presidente, Vicepresidente, Secretario, Tesorero, Fiscal y dos Vocales. La Asamblea General nombrará por votación directa y secreta a los miembros para cada puesto, los mismos no podrán ser reelectos para períodos sucesivos, salvo en cargos diferentes.
+(*) Por resolución de la Sala Constitucional N° 5133 de las 14:46 hrs del 28 de mayo del 2002 se anuló por inconstitucional la palabra "activos" pero únicamente en cuanto se utiliza para hacer la diferencia de trato con los miembros asociados.
