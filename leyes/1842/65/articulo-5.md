@@ -1,0 +1,1 @@
+Art. 5. Si se probare que los ganados estaban encerrados, y que por accidente ó por maldad de otro, han salido de los potreros y solares, el dueño queda libre de toda pena: y el que ha promovido el daño á mas de pagar los perjuicios causados, dará una multa de cuatro pesos ó sufrirá quince días de prisión.

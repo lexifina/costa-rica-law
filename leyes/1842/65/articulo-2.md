@@ -1,0 +1,1 @@
+Art. 2. Los propietarios de sementeras, labores ó plantíos que no las hubieren cercado ó que no les hayan dado á los cercos la seguridad necesaria, no tendrán derecho á reclamar los perjuicios que los animales causen en sus fincas.
