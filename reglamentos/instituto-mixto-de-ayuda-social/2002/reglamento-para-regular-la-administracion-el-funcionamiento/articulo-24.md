@@ -1,0 +1,1 @@
+Artículo 24.—De la formalización de los convenios. Es responsabilidad de la Asesoría Jurídica emitir la constancia de legalidad de los convenios presentados, que deben ser aprobados por el Consejo Directivo del IMAS.

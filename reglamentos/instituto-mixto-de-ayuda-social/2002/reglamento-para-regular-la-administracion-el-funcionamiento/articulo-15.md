@@ -1,0 +1,6 @@
+Artículo 15.—Del proceso de ingreso de información a la base de datos.
+1) El Área de Desarrollo Informático del IMAS debe proveer del equipo computacional necesario, así como brindar, en coordinación con el ASIS, el soporte, mantenimiento y asignación de claves de acceso al sistema, para cumplir con el proceso de ingreso de la información a la base de datos.
+2) El ingreso de datos se puede realizar en los CEDES, en las Gerencias Regionales del IMAS, en las oficinas del ASIS, con funcionarios de la institución, personas autorizadas, previamente capacitadas o mediante la contratación de servicios, ya sea por medios convencionales como la digitación o utilizando sistemas digitales, siguiendo el procedimiento establecido para estos efectos.
+3) La FISI debe registrarse en el SIPO, en el "Módulo de personas Institucionalizadas y sin domicilio fijo".
+4) El ASIS y los EPIS deben garantizar el ingreso correcto y oportuno de la información que brinden los instrumentos.
+5) El ingreso de datos al SIPO debe ser evaluado por cada digitador, con el fin de garantizar que los datos registrados en el SIPO sean los consignados en las FIS/FISI. Es responsabilidad de los EPIS realizar dicha evaluación y del ASIS dar seguimiento a este proceso.

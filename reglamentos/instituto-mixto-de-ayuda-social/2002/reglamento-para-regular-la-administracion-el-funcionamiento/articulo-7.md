@@ -1,0 +1,5 @@
+Artículo 7º—De la propiedad y administración del SIPO.
+1) El SIPO es administrado y operacionalizado por el IMAS en su condición de propietario intelectual, según registro de marca número 5156-7978. Por lo tanto, corresponde al IMAS establecer los términos mínimos en que las otras instituciones harán uso del SIPO, incluyendo el diseño de la FIC, la base de datos y la tecnología informática requerida para la interconectividad efectiva con este sistema.
+2) El SIPO tiene proyección interinstitucional regulada mediante convenios, de conformidad con lo establecido en el capítulo VI del presente Reglamento.
+3) La tecnología desarrollada con el SIPO, así como sus aspectos conceptuales y metodológicos pueden ser utilizados a nivel internacional, respetando la propiedad intelectual.
+4) El archivo y custodia de los instrumentos aplicados por el SIPO corresponde al IMAS, por medio de las Gerencias Regionales, de acuerdo con los procedimientos establecidos por el ASIS, el Archivo Central de este instituto y la Ley de Archivos Nacionales.

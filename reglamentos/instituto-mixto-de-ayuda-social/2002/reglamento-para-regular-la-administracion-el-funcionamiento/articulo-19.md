@@ -1,0 +1,6 @@
+Artículo 19.—De los niveles de acceso al SIPO.
+1) Los niveles de acceso al SIPO están definidos por los perfiles de usuario, mediante los cuales se establece el tipo y grado de acceso que tienen las diferentes personas, según sean funcionarios internos y externos al IMAS y ciudadanos en general.
+2) Los funcionarios autorizados del IMAS, según el perfil de usuario correspondiente, podrán consultar la base de datos, obtener información socioeconómica, introducir al sistema los datos recopilados y modificar, actualizar y/o ajustar los datos, la parametrización y las variables contenidas en el sistema.
+3) Los funcionarios de otras instituciones, debidamente autorizados, podrán consultar las FIS e imprimir el reporte imagen, siempre que el respectivo convenio lo autorice, previa validación informática en coordinación con el ASIS.
+4) Las organizaciones privadas podrán obtener únicamente un listado o certificación del IMAS donde se indique que el beneficiario se encuentra registrado en el SIPO y su calificación de pobreza de acuerdo con los parámetros del IMAS, según se establezca en el convenio firmado entre las partes.
+5) Para los ciudadanos en general, el acceso al SIPO queda limitado a la consulta de datos estadísticos.

@@ -1,0 +1,5 @@
+Artículo 14.—De la revisión y supervisión de los instrumentos.
+1) La revisión y supervisión definida para el SIPO, es responsabilidad de las Gerencias Regionales, bajo la conducción de los EPIS. Los porcentajes de revisión y supervisión serán determinados en los procedimientos del SIPO. Los cambios en los porcentajes son aprobados por el ASIS.
+2) Podrán realizar la revisión los funcionarios de otras instituciones públicas o privadas, quienes deberán estar debidamente capacitados por el IMAS y recibir supervisión de los EPIS o del ASIS.
+3) Los procesos de revisión y supervisión deberán ser lo suficientemente exhaustivos, para garantizar la consistencia y veracidad de los datos, de manera que se evidencie la realidad socioeconómica de las personas y familias registradas.
+4) El ASIS podrá efectuar revisiones y supervisiones por muestreo de los instrumentos aplicados en cada Gerencia Regional del IMAS, así como también de las fichas aplicadas por instituciones públicas o privadas, con el propósito de garantizar la calidad de la información contenida en el SIPO.

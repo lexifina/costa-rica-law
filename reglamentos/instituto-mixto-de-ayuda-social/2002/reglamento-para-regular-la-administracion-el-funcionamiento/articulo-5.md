@@ -1,0 +1,8 @@
+Artículo 5º—De los principios que rigen el SIPO.
+1) Solidaridad: mediante el SIPO se procura disponer de información oportuna para coadyuvar en el desarrollo de los programas dirigidos a la población en condición de pobreza.
+2) Equidad: por medio de la calificación técnica y uniforme de la condición socioeconómica de las personas y familias se busca un trato igual y objetivo a toda la población en condición de pobreza.
+3) Igualdad de oportunidades: la información contenida en el SIPO permite que todas las personas y familias en condición de pobreza registradas en esta base de datos tengan la misma posibilidad de obtener uno o más beneficios por medio de los programas sociales.
+4) Accesibilidad: se procura garantizar que las personas y familias en condición de pobreza y principalmente aquellas que presentan una condición más aguda, tengan acceso a los servicios que emanan de los programas sociales.
+5) Transparencia: mediante el SIPO se busca reflejar de una manera veraz y consistente la información relacionada con la población usuaria y potencialmente beneficiaria de los programas sociales.
+6) Eficacia: a través del SIPO se busca facilitar y hacer oportuna la gestión relacionada con la tramitación de beneficios a la población pobre, coadyuvando en el mejoramiento de la calidad de la atención y del tiempo de respuesta.
+7) Tutela de la privacidad de la información: los datos personales y socioeconómicos contenidos en el SIPO son estrictamente confidenciales y de acceso restringido, sólo para personal autorizado de la institución que interviene en el otorgamiento de servicios o beneficios institucionales o estatales.
