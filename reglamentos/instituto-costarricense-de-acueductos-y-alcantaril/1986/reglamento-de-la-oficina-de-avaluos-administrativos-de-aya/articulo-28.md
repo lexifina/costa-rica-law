@@ -1,0 +1,1 @@
+Artículo 28.-En los casos en que para realizar los trabajos, se precise temporalmente de una mayor área, distinta de la que ocupará en definitiva la franja en la que se ejerce la servidumbre, se entenderá que solo se indemnizarán los daños que¡ se causen en ella.

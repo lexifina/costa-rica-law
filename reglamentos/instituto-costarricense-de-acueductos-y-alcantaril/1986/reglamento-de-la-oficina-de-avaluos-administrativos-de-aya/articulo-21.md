@@ -1,0 +1,1 @@
+Artículo 21.-La Dirección Jurídica por medio de la Sección de Aguas, solicitará a la Oficina de Avalúos Administrativos, que procedan a emitir los avalúos correspondientes. Para ello enviará un expediente individual de cada propietario, que contenga, copia del plano, descripción de los daños, estudio de Registro actualizado.

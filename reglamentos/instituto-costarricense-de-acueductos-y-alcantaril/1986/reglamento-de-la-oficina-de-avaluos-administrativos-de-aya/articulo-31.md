@@ -1,0 +1,1 @@
+Artículo 31.-El que preside el cuerpo de peritos, elevará ante la Dirección Jurídica el avalúo a efectos de que esta elabore un proyecto de acuerdo que remitirá a la Gerencia la cual lo someterá a la aprobación de la Junta Directiva .

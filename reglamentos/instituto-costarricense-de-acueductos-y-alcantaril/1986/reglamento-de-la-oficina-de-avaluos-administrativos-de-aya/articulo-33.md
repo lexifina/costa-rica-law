@@ -1,0 +1,1 @@
+Articulo 33.-La Dirección Jurídica, requerirá al propietario o a quien corresponda, mediante notificación, personal o telegráfica. para que manifiesten dentro del término de ocho días hábiles siguientes, si están o no de acuerdo en otorgar escritura por el precio del avalúo administrativo.

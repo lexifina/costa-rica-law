@@ -1,0 +1,1 @@
+Artículo 18.-Aprobada la construcción, una copia del plano maestro y de los individuales se le remitirán a la dirección encargada en la construcción del proyecto, quien a su vez designará al funcionario que coordinará y colaborará con la Dirección Jurídica, la tramitación de permisos y localización de propietarios, etc.

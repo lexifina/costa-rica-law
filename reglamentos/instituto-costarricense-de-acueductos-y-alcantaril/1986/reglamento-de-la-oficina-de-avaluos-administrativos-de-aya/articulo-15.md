@@ -1,0 +1,1 @@
+Artículo 15.-La Dirección que tiene a su cargo el estudio de proyecto, someterá a consideración de la Gerencia, la factibilidad del mismo, a efecto que si es procedente logre la aprobación de la Junta Directiva, y se continúe con su prosecución.

@@ -1,0 +1,1 @@
+Artículo 8°-La notificación debe provenir de la jefatura o la sección o dirección que. ordena el estudio, y deberá practicarse al menos con tres días de antelación al día fijado para ingresar al inmueble.

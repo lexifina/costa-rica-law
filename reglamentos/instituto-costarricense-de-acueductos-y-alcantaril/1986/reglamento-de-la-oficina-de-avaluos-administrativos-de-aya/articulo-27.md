@@ -1,0 +1,1 @@
+Artículo 27. -Los peritos al fijar el valor de derechos de servidumbre, deberán considerar que son derechos reales, limitados que no transfieren el dominio de la propiedad, sino que se imponen a perpetuidad sobre todo el fundo y en la franja donde se, ejercen, se impide el derecho de construcciones permanentes, conllevando el derecho de. paso.

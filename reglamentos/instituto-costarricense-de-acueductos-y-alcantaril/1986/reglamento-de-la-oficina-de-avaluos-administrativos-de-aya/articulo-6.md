@@ -1,0 +1,1 @@
+Artículo 6°-Previa notificación a los dueños, poseedores, usuarios, administradores o sus representantes, la Dirección encargada realizará los estudios e investigaciones necesarias dentro de los predios y edificaciones, excepto las domiciliarias en las que se requiere autorización expresa. (Inciso i), artículo 5° Ley Constitutiva AyA).

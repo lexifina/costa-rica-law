@@ -1,0 +1,1 @@
+Artículo 13.-El ingeniero a cargo del proyecto, deberá llevar un inventario de los daños en cultivos y otros bienes, que deban indemnizarse tanto al hacer los estudios iniciales del proyecto, así como los ocasionados al realizar las obras de construcción del mismo. Ese reporte. lo enviará a la Dirección Jurídica a efecto de que se proceda a su valoración e indemnización.

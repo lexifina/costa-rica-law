@@ -1,0 +1,1 @@
+Artículo 29.-Las indemnizaciones por concepto de reposición podrán ser hasta de un 15% del monto fijado en sentencia como indemnización y únicamente procederá este extremo, cuando de los autos se infiera fehacientemente, que hay mérito para concederla.

@@ -1,0 +1,1 @@
+Artículo 14.-En la elaboración del proyecto, el ingeniero a cargo, revisará los planos levantados de terrenos y servidumbres conforme con la topografía, hará las modificaciones que correspondan y el Departamento de Topografía elaborará los planos definitivos.

@@ -1,0 +1,1 @@
+Artículo 16.-Si se hubiere decidido la construcción del proyecto y hubiere partida presupuestaria, entre otros, para la adquisición de terrenos y servidumbres, declarada su utilidad pública y cumplidos los trámites de ley, se le remitirá a la Dirección Jurídica un plano maestro del proyecto y al menos cuatro copias de cada plano individual de terrenos y servidumbres.

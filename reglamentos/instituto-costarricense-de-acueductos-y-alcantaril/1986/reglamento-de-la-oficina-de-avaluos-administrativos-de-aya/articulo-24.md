@@ -1,0 +1,1 @@
+Artículo 24.-Conforme con el artículo anterior, si el área del terreno o servidumbre que se valora no excede el área de reserva, no se ordenará su indemnización, pero sí el valor de los bienes que fueren necesarios destruir para llevar a cabo el proyecto.

@@ -1,0 +1,1 @@
+Artículo 17.-Si no se hubiera decidido la construcción del proyecto o no hubiere partida presupuestaria, el plano maestro, e individuales se enviarán junto con el proyecto a la unidad gestora que corresponda, la cual en su oportunidad si fuere procedente trasmitirá según este procedimiento las adquisiciones correspondientes.

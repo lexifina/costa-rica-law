@@ -1,0 +1,1 @@
+Artículo 4°-En los trámites de adquisición de lotes y servidumbres, dictámenes periciales, se aplicará la Ley de Expropiaciones del ICE N° 6313 del 4 de enero de 1979, aplicable en la especie a AYA por expreso mandato del artículo 4° de la ley N° 6622 del 27 de agosto de 1981, "La Gaceta" N9 178 del 17 de agosto de 1981.

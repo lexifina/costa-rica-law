@@ -1,0 +1,1 @@
+Artículo 10.-Si los sujetos indicados en el artículo 6°, después de notificados impidieren el ingreso al inmueble, se le pedirá auxilio a la policía administrativa para que proteja la seguridad de los funcionarios y se ingrese al inmueble o predio a efectuar los estudios.

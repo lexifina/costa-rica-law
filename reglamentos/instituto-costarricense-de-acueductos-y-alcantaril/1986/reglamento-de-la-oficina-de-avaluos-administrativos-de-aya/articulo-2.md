@@ -1,0 +1,1 @@
+Artículo 2°-La Oficina de Avalúos Administrativos, en adelante denominada la Oficina, se integrará al menos con dos ingenieros civiles, una secretaria, un auxiliar y dos asistentes. La Gerencia en consulta con la Dirección de Estudios y Proyecto designará el personal de dicha oficina y su titular.
