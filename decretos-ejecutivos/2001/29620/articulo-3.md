@@ -1,0 +1,1 @@
+Artículo 3º—Para la importación temporal de las mercancías que se requieren para la realización del festival, se aplicará lo dispuesto en la Ley Nº 7557 del 20 de octubre de 1995, publicada en La Gaceta Nº 212 del 8 de noviembre de 1995 y el Decreto Ejecutivo Nº 25270-H del 14 de junio de 1996, publicado en el Alcance Nº 37 a La Gaceta Nº 123 del 28 de junio del mismo año.
