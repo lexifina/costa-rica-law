@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LVIIL
+(Esta norma fue derogada por el artículo 2° del decreto-ley N° 134 del 2 de setiembre de 1835 "Establece como punto donde deben residir las Supremas autoridades la población del Murciélago, y dispone que mientras se construyen los edificios necesarios, residan unas en Heredia y otras en San José")
 (Nota: Se respeta la ortografía y gramática del texto original)
 Establece la residencia periódica de las Supremas Autoridades en las cuatro Ciudades principales. (1)
 (1) Explicado por el Decreto de 27 de Mayo del corriente año y derogado por el de 27 de Agosto de 1835.
