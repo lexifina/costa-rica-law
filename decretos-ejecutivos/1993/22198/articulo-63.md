@@ -1,7 +1,7 @@
 Artículo 63: Instrumento para Consignar los Acuerdos
 Los acuerdos y votos salvados deberán consignarse en un acta.
-Tratándose del Consejo de Análisis deberá remitirse copia del acta al
-coordinador de nivel y al Consejo Técnico Institucional en un plazo
+Tratándose del Consejo de Análisis deberá remitirse copia del acta
+al coordinador de nivel y al Consejo Técnico Institucional en un plazo
 perentorio de quince días. La misma regla se aplicará al Consejo Técnico,
 pero el plazo será de siete días.
 El Consejo de Valoración enviará copia del acta al Instituto

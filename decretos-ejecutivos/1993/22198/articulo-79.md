@@ -1,3 +1,2 @@
-Artículo 79: Objetivos de la Valoración Externa
-La Valoración Externa tiene como objetivo: establecer el Plan de
-Atención Técnica de las personas excarceladas sentenciadas.
+Artículo 79: DEROGADO
+(Derogado por artículo 1º del Decreto Nº 26188 de 7 de julio de 1997)

@@ -13,3 +13,4 @@ Reglamento Orgánico y Operativo Dirección General Adaptación Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-06-01 | la propia norma |
+| 2 | 1993-06-01 | SINALEVI (sin norma nombrada) |
