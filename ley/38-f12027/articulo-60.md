@@ -1,0 +1,1 @@
+Art 60° Las pensiones de montepío o inválidos se concederán previa información en la cual conste que la persona o personas interesadas se hallan en el caso de gozar de la gracia que solicitan y con mérito a los documentos, justificaciones o informes de sus superiores, hará el Gobierno la declaratoria correspondiente.

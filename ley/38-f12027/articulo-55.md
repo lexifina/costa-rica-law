@@ -1,0 +1,1 @@
+Art 55° Cuando a un empleado, sirviendo su propio destino, se le encargare el desempeño de otro compatible, se le abonará sobre el sueldo de su empleo, la mitad de la dotación correspondiente al del encargado.

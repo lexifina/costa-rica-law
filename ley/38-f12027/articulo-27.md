@@ -1,0 +1,1 @@
+Art 27° Los Jueces de 1° Instancia, Civiles y del Crimen, y los Secretarios del Tribunal de Justicia, no tendrán derecho otras remuneraciones que la señala por el servicio que preste, excepto los derechos de pura cartulación y viático.

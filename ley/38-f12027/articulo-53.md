@@ -1,0 +1,2 @@
+Art 53° No gozarán de sueldo los empleados que en virtud de licencia se separen de sus destinos temporalmente, aunque sea por poco tiempo, más si la separación fuere causada por alguna enfermedad que en concepto de facultativo impida al empleado la asistencia a la oficina, se le abonará la tercera parte de su sueldo por el término de seis meses.
+Si pasado este tiempo, no pudiere el empleado volver a la Oficina, por no haber recobrado la salud, y no fuere de los que administran justicia, quedará de hecho vacante el destino de seis meses.

@@ -1,0 +1,2 @@
+Art 15° Los Agentes superiores de Policía de las capitales de Provincia, disfrutarán de una dotación que no exceda de ochenta pesos, y los Agentes subalternos de Policía de las mismas capitales y cabecera de Cantón, donde fueren necesarios, hasta treinta de cantón, donde fueren necesarios, hasta treinta pesos mensuales, todo a juicio del Poder Ejecutivo.
+Único. - El juez de Policía rural de Guanacaste, cien pesos mensuales, y los Preventivos hasta cincuenta pesos cada uno.

@@ -1,0 +1,1 @@
+Art 33° Los Jefes y Oficiales veteranos proveerán de su peculio, las remontas necesarias para el desempeño de sus obligaciones, sin embargo, tendrán derecho a que se les abone el forraje y bagaje que la ley señale, estando en comisión o en campaña.

@@ -1,0 +1,1 @@
+Art 64° El pago de sueldes a los funcionarios y empleados de la Administración, se hará del modo que se halla dispuesto en la ley adicional al Reglamento de Hacienda de 20 de abril de 1869 y sus concordantes.
