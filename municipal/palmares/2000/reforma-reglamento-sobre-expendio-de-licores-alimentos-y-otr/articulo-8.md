@@ -1,0 +1,6 @@
+Artículo 8°-Se agregan los Transitorios I, II y III, para que se lea de la siguiente forma;
+"Transitorio l.-Todos los establecimientos con actividad principal o secundaria de licor, que dentro de un plazo de tres meses, a partir de la publicación de este reglamento, no cuenten con los requisitos señalados en el artículo 3° punto 1, de este reglamento, será recalificado, pasando a la categoría "A" de Bar, determinada por la Ley 7633, con el horario correspondiente.
+Transitorio II.-Los establecimientos con actividad principal o secundaria de licor, que fueren recalificados como Bar deberá cumplir con los requisitos para Bar, en cuanto a las regulaciones en el Reglamento a la Ley de Licores, Decreto Ejecutivo 17757-G del 28 de setiembre de 1987.
+De no cumplir con los requisitos del reglamento de la ley de licores, se procederá a suspender la licencia de expendio de licores.
+Transitorio III.- Todos los establecimientos con actividad secundaria de licor, que dentro de un plazo de tres meses, a partir de la publicación de este reglamento, no cuenten con los requisitos señalados en el artículo 3° puntos 3 y 4 de este reglamento, se procederá a la suspensión de la licencia".
+Palmares, 5 de setiembre del 2000.-
