@@ -1,7 +1,7 @@
-Artículo 10.- Son funciones de la Subdirección de Parques Nacionales:
-a) Administrar y promover el establecimiento de parques nacionales, reservas biológicas y monumentos nacionales.
-b) Establecer los reglamentos correspondientes para la administración de los parques nacionales establecidos mediante leyes o decretos.
-c) Hacer estudios de nuevas áreas para la creación de nuevos parques nacionales o reservas equivalentes.
-d) Coordinar con el Instituto Costarricense de Turismo, todo lo referente a actividades turísticas dentro de los parques.
-e) Organizar la recolección de las cánones que sobre diferentes conceptos se cobrarán en los parques nacionales.
-f) Establecer dentro de los parques nacionales los cuerpos de vigilancia permanentes y de cualquier otro orden .
+Artículo 10.-Son funciones del Departamento de Investigación Forestal:
+a) Planificar, coordinar y desarrollar estudios silviculturales, tanto en bosques naturales como en plantaciones artificiales;
+b) Planificar, coordinar y desarrollar estudios tendientes a facilitar la información necesaria para la elaboración y ejecución de proyectos de aprovechamiento y desarrollo;
+c) Planificar, coordinar y ejecutar estudios que permitan la identificación, protección y el aprovechamiento integral, bajo el principio de uso múltiple, de los recursos forestales localizados dentro de las Reservas Forestales;
+d) Estudiar el rendimiento según la especie, clase de sitio y tratamiento silvicultural empleado, mediante el establecimiento de parcelas experimentales y dinámicas permanentes;
+e) Cualesquiera otra u otras que le sean asignadas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12073 del 28 de noviembre de 1980)

@@ -1,9 +1,8 @@
-Artículo 11. -Son funciones del Departamento de Investigaciones Forestales:
-a) Trazar y coordinar con las otras instituciones y organismos del Estado y particulares la política nacional a seguir en investigaciones forestales.
-b) Actualizar las estadísticas de producción y exportación de productos forestales.
-c) Realizar los inventarios forestales necesarios para el desarrollo forestal del país.
-d) Desarrollar un programa de investigación forestal aplicada.
-e) Coordinar con el Laboratorio de Maderas localizado en la Universidad de Costa Rica y otras instituciones el estudio de las propiedades de las Maderas en el país.
-f) Realizar estudios para el establecimiento de Reservas Forestales.
-g) Realizar los estudios referentes a la calificación sobre el uso potencial de las Tierras
-h) En coordinación con el Departamento de Aprovechamientos Forestales, establecer parcelas para investigar la ordenación del bosque.
+Artículo 11.-Son funciones del Departamento de Repoblación Forestal:
+a) Planificar y ejecutar los métodos de recolección, almacenamiento y pregerminación, y efectuar pruebas de germinación de las semillas a utilizarse en los viveros forestales;
+b) Elaborar planes nacionales y regionales de reforestación, con base en los terrenos disponibles según la vocación potencial de las tierras y posibilidades económicas y técnicas;
+c) Promover, aprobar, asesorar y supervisar el establecimiento y manejo de plantaciones forestales en terrenos de propiedad privada;
+d) Planificar, instalar y manejar viveros forestales propios de la Dirección General Forestal, destinados a la producción de las plántulas a utilizarse en el desarrollo de los programas de reforestación;
+e) Promover y asesorar el establecimiento y manejo de viveros de organismos regionales y comunales;
+f) Cualesquiera otra u otras que le sean asignadas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12073 del 28 de noviembre de 1980)
