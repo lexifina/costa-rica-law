@@ -1,0 +1,1 @@
+Art 7°.- El objeto de esta comisión será repartir el cupo designado al pueblo entre sus vecinos propietarios sin diferencia de comerciantes, hacendados, eclesiásticos y empleados, guardando siempre la justa proporción de capital, giro y familia de cada uno.
