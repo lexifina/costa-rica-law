@@ -1,0 +1,1 @@
+Art. 3° Quedan sometidos á la intervención del Jurado, las causas que se versen sobre crímenes de los simples delitos á que el Código señale pena de presidio, mas no las que procedieren de crímenes simples delitos políticos.

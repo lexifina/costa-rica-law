@@ -1,0 +1,2 @@
+Art. 4° Los reos rematados que quieran acogerse a la retroactividad consignada en el artículo 19 del citado Código Penal, ocurrirán al intento, por escrito, al Poder Ejecutivo, quien, previo informe de la Corte Suprema de Justicia, resolverá lo que fuere de derecho.
+AL PODER EJECUTIVO. -Dado en el Salón de Sesiones. -Palacio Nacional. San José, mayo once de mil ochocientos ochenta. -BRUNO CARRANZA, Presidente-Jesús SOLANO, Secretario. -Ejecútese.-T. GUARDIA -El Secretario de Estado en el Despacho de Justicia JOSÉ MARÍA CASTRO.
