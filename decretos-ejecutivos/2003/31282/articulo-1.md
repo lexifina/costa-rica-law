@@ -1,0 +1,13 @@
+N° 31282-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En uso de las facultades conferidas en los incisos 3) y 18) de los artículos 140 y 146 de la Constitución Política; artículos 26 y 27 de la Ley N° 6227, General de Administración Pública, del 2 de mayo de 1978; el artículo 2° de la Ley N° 5525, Ley de Planificación Nacional, del 2 de mayo de 1974 y los artículos 21, 23, 24 y 25 de la Ley N° 8131, Ley de Administración Financiera de la República y Presupuestos Públicos, del 18 de setiembre del 2001, y su Reglamento, y el DE 31090 del 11 de marzo del 2003.
+Considerando:
+1°—Que la Autoridad Presupuestaria formuló los Procedimientos para la Aplicación y Seguimiento de la Política Presupuestaria para el 2004, en Acuerdo N° 6889, tomado en sesión ordinaria N° 04-03, celebrada el 4 de marzo del 2003, conocidas por el Consejo de Gobierno y publicadas mediante Decreto Ejecutivo N° 31090-H, en La Gaceta N° 63 del 31 de marzo del 2003.
+2º—Que la Autoridad Presupuestaria de conformidad con la Ley N° 8131 publicada en La Gaceta N° 98 del 16 de octubre del 2001, está facultada para formular los procedimientos para la aplicación e implementación de las Directrices de Política Presupuestaria del Sector Público.
+3º—Que es necesario ajustar las fechas establecidas en el artículo 13 de los mencionados Procedimientos, para que sean consistentes con las actuales políticas del Gobierno.
+4º—Que la Autoridad Presupuestaria recomendó modificar los Procedimientos plasmados en el Decreto Ejecutivo N° 31090-H, publicado en La Gaceta N° 63 del 31 de marzo del 2003, en Acuerdo Firme N° 6927 tomado en la sesión ordinaria N° 07, celebrada el 26 de mayo del 2003.
+5º—Que el Consejo de Gobierno conoció esta modificación en el artículo cuarto de la sesión número cero cincuenta y nueve, celebrada el 8 de julio del 2003. Por tanto,
+Decretan:
+Artículo 1º—Modificase el artículo 13 del Decreto N° 31090-H "Procedimientos para la Aplicación y Seguimiento de la Política Presupuestaria para el Año 2004", publicado en La Gaceta N° 63 del 31 de marzo del 2003, para que se lea de la siguiente forma:
+"Artículo 13.—De acuerdo con el artículo 4° de la Ley N° 8131 y el artículo 2° de la Ley N° 5525, los ministerios y entidades públicas deberán remitir al MIDEPLAN el Plan Anual Operativo (PAO) para el año 2004, sujeto al Plan Nacional de Desarrollo (PND) 2002-2006, a más tardar el 30 de abril y 15 de julio respectivamente; posteriormente este Ministerio emitirá criterio sobre la vinculación del PAO con el PND, informe que se deberá tomar en cuenta a la hora de la asignación de los recursos públicos por los entes encargados."
