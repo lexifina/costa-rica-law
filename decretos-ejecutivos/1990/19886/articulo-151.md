@@ -1,4 +1,1 @@
-Artículo 151.-Para la exportación de productos forestales numerados del 2) al 11) inclusive, en el artículo 149 del presente reglamento, el interesado deberá, de previo a la autorización correspondiente por parte de la DGF y corriendo por su cuenta los gastos, publicar un edicto por tres días consecutivos en "La Gaceta" con la información indicada en el artículo anterior y por una sola vez en uno de los periódicos de mayor circulación en el país.
-La información que se debe incluir en el edicto, debe ser la que se obtenga una vez realizada la inspección de campo correspondiente por la DGF.
-Transcurridos diez días hábiles después de la última publicación, y si no hay oposición y la DGF no tiene objeciones que hacer, se procederá dentro de los cinco días hábiles siguientes de realizada la inspección de verificación a conceder el respectivo permiso, para lo cual el interesado debe suministrar los medios requeridos.
-En caso de existir oposición, la DGF resolverá sobre esta dentro de los cinco días siguientes a que se presentó.
+Artículo 151.- (Derogado por el artículo 4° del decreto ejecutivo N° 21198 del 23 de marzo de 1992)

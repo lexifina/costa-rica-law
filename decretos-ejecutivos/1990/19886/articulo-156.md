@@ -1,3 +1,1 @@
-Artículo 156.-La DGF estará facultada para fijar cuotas anuales máximas de exportación de acuerdo con los indicadores del mercado o cualquier otra información de que se disponga.
-Asimismo, no autorizará exportación alguna de productos forestales, cuando considere que no existe materia prima suficiente para satisfacer las necesidades nacionales, lo que deberá ser informado mediante medios efectivos con tres meses de anticipación.
-Queda igualmente autorizada esta Dirección para reducir la cantidad solicitada, analizando cada caso en particular, pudiendo para ese efecto requerir del interesado, los datos que estime convenientes, y siempre teniendo presente las necesidades de consumo nacional.
+Artículo 156.-(Derogado por el artículo 4° del decreto ejecutivo N° 21198 del 23 de marzo de 1992)

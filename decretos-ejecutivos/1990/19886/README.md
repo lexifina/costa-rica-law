@@ -19,3 +19,4 @@ Reglamento a la Ley Forestal
 | 4 | 1991-05-27 | Decreto Ejecutivo 20490 (1991-05-27) |
 | 5 | 1991-07-12 | Decreto Ejecutivo 20618 (1991-07-12) |
 | 6 | 1991-11-15 | Decreto Ejecutivo 20993 (1991-11-15) |
+| 7 | 1992-03-23 | Decreto Ejecutivo 21198 (1992-03-23) |

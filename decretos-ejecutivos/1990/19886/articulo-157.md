@@ -1,1 +1,1 @@
-Artículo 157.-La autorización de exportación e importación de productos forestales por parte del Banco Central de Costa Rica, estará sujeta a los respectivos permisos extendidos por la DGF.
+Artículo 157.-(Derogado por el artículo 4° del decreto ejecutivo N° 21198 del 23 de marzo de 1992)
