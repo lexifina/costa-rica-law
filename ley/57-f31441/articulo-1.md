@@ -1,0 +1,8 @@
+DECRETO LVII.
+Declara la eleccion de Regente; Fiscal y Magistra de para la Corte Suprema de Justicia.
+"Juan Rafael Mora Presidente de la República de Costa Rica Por cuanto la honorable Comisión permanente ha decretado lo que sigue.
+La Hanorable Comision permanente de la República de Costa Rien, habiendo practicado el escrutinio de los sufragios emitidos por las Asambleas electorales de canton para Magistrados a la Corte Suprema de Justicia; en conformidad con lo que dispone el artículo 9° de la Ley orgánica de 18 de febrero del corriente año, declara:
+1° Son Magistrados propietanios los Señores Licenciado Don Ramon Carranza; Don Félix Mata; Licenciado Don Matias Trejos, Don José Maria Alfaro y Don Juan Batitista Bonilla.
+2° Son Magistrados suplentes los Señores Don Cecilio Quesada, Don Ramon Gomen; Don Carlos Sancho, Don José Segreda; Don Paulino Ortiz, Don Rafuel Ugalde, Don Manuel Francisco Soto ge Don Nicolas Ramirez.
+3° Se nombra para Regente de la Suprema Corte de Justicia al Benemérito Senor Don Juan Mora y para Fiscal al Sr. Licenciado Don Vicente Herrera.
+4° Se designa para el juramento y posesion del Regente, Fiscal y Magistrados propietarios, ante el Excelentisimo Congreso, el lunes 3 det proximo entrante mayo, -Al Poder Ejecutivo. Dado en el Palacio de los Supremos Poderes, San José, á los diecinueve días del mes de abril de mil ochocientos cincuenta y dos. –Francisco María Oreamuno, Presidente. –Modesto Guevara, Secretario. –Por tanto: Ejecútese. –Palacio Nacional. San José abril veinte de mil ochocientos cincuenta y dos. –Juan Rafael Mora. –El Ministro de Estado en el Despacho de Gobernación, Joaquin Bernardo Calvo.”
