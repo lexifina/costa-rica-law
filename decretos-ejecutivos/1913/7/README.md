@@ -22,3 +22,4 @@ Reglamento del Registro del Estado Civil
 | 8 | 1953-03-04 | Decreto Ejecutivo 11 (1953-03-04) |
 | 9 | 1963-07-03 | Decreto TSE 1 (1963-07-03) |
 | 10 | 1963-09-26 | Decreto TSE 2 (1963-09-26) |
+| 11 | 1963-12-09 | Decreto TSE 3 (1963-12-09) |

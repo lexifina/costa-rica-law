@@ -1,1 +1,2 @@
-Artículo 43.—Los matrimonios celebrados fuera de la República, entre costarricenses o extranjeros, podrán inscribirse en el Registro Civil a requerimiento de parte interesada y en virtud de documento debidamente autenticado y legalizado.
+Artículo 43.—Los matrimonios celebrados fuera de la República, entre costarricenses o entre un costarricense y un extranjero, podrán inscribirse en el Registro Civil a requerimiento de parte interesada y en virtud de documento debidamente autenticado y legalizado.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 3 y publicado en La Gaceta N° 248 del 13 de diciembre de 1963)

@@ -1,1 +1,2 @@
-Artículo 15.—El Registro llevará al día un índice General de Nacimientos, otro de Matrimonios y otro de Defunciones, todos en estricto orden alfabético por el sistema de tarjetas IBM , cuyo mantenimiento estará a cargo de la Sección de Constancias y Certificaciones.
+Artículo 15.—El Registro llevará al día un índice General de Nacimientos, otro de Matrimonios y otro de Defunciones, todos en estricto orden alfabético, mediante tarjetas perforadas por el sistema de máquinas eléctricas, cuyo mantenimiento estará a cargo de la Sección encargada de ello por acuerdo del Tribunal Supremo de Elecciones.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 3 y publicado en La Gaceta N° 248 del 13 de diciembre de 1963)

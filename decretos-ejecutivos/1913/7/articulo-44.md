@@ -1,2 +1,3 @@
-Artículo 44.—La ejecutoria que declare la separación de cuerpos, la nulidad de un matrimonio o el divorcio, se inscribirá también en los libros destinados a matrimonios y además se pondrá nota marginal al asiento del matrimonio.
+Artículo 44.—La ejecutoria que declare la separación de cuerpos, la nulidad de un matrimonio o el divorcio, se inscribirá también en los libros destinados a matrimonios y además se pondrá nota marginal al asiento del matrimonio. Igual marginal se hará cuando sobrevenga la defunción de uno de los cónyuges.
 Las ejecutorias dictadas por Tribunales extranjeros en materia de nulidad de matrimonio, divorcio o separación de cuerpos, podrán inscribirse a requerimiento de parte interesada, una vez cumplidos los trámites que establecen los artículos 1020 y siguientes del Código de Procedimientos Civiles.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 3 y publicado en La Gaceta N° 248 del 13 de diciembre de 1963)
