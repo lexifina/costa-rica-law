@@ -1,0 +1,1 @@
+Artículo 2°-Los sacerdotes beneficiados deberán presentar ante el Consejo Superior de Educación, una certificación de su ordenación sacerdotal, la cual les dará automáticamente el derecho a su Título de Bachiller en letras.
