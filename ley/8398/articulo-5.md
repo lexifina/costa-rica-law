@@ -4,3 +4,4 @@ ARTÍCULO 5° : PRESUPUESTO POR PROGRAMAS DEFENSORÍA DE LOS HABITANTES DE LA RE
 (Modificado por el Artículo 1° del Decreto Ejecutivo N° 31717 del 04 de marzo de 2004)
 (Modificado por el Artículo 1° del Decreto Ejecutivo N° 31725 del 16 de marzo de 2004)
 (Modificado por el Artículo 1° del Decreto Ejecutivo N° 31769 del 16 de abril de 2004)
+(Modificado por artículo 1° del Decreto Ejecutivo N° 31783 de 27 de abril de 2004).
