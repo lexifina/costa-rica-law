@@ -1,0 +1,1 @@
+Artículo 6°—Se prohibe el uso de linternas dentro del refugio, a excepción de la que utilice el guía respectivo, la cual debe emitir luz roja. Se prohibe asimismo el uso de cámaras fotográficas con flash, cámaras de televisión o de cine sin la autorización expresa de la Administración del Refugio.

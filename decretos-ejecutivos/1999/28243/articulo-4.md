@@ -1,0 +1,1 @@
+Articulo 4°—Solo se autorizara la observación del desove de tortugas, a aquella persona o grupo de personas, que se hagan acompañar de un funcionario del refugio o un guía autorizado por el Ministerio del Ambiente y Energía. Las personas que infrinjan esta disposición serán obligadas a salir del refugio.

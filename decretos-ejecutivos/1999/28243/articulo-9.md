@@ -1,0 +1,1 @@
+Articulo 9°—Se prohibe extraer del refugio, huevos de tortuga, conchas, plantas, cangrejos, excepto cuando sea con fines de investigación científica, para lo cual se debe poseer el respectivo permiso investigación. Se prohibe colocar sombrillas de playa y hacer fogatas durante el periodo de desove.

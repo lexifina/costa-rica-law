@@ -1,0 +1,1 @@
+Artículo 8°—Una vez observado el proceso de desove, se dará por terminado el recorrido y las personas deberán desalojar la playa acompañadas del guía respectivo. Se prohibe tocar las tortugas o sentarse sobre ellas. Se prohibe seguirlas mientras están preparando el nido o regresando al agua.

@@ -1,0 +1,1 @@
+Articulo 5°—Sólo se autorizara la observación del desove de tortugas, en el período que va desde las dieciocho a las veintitrés horas. Los grupos de observación no excederán la cantidad de 10 personas. Sólo se autorizará seis grupos como máximo por noche.
