@@ -1,0 +1,1 @@
+Artículo 4°-Quedan autorizadas todas las instituciones del Poder Ejecutivo, así como las instituciones autónomas, a brindar toda la ayuda financiera a su alcance para el desarrollo de este complejo de instalaciones comunales.

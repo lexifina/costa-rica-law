@@ -1,0 +1,1 @@
+Artículo 2°-Tanto el Instituto Nacional de Vivienda y Urbanismo, como la Asociación Integral de Desarrollo Comunal de Ciudad Satélite de Hatillo, quedarán exentos del pago de derechos de registro y notariado por este traspaso, encargándoos dicho trabajo al Departamento Legal de la citada Institución.
