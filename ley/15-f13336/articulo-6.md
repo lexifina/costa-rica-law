@@ -1,0 +1,1 @@
+Art. 6°-Si la Compañía faltare al cumplimiento de las obligaciones que contrae por el presente contrato, salvo caso fortuito ó de fuerza mayor, quedará por el mismo hecho obligada á pagar íntegros los derechos de puerto establecidos por la ley, sin que al Gobierno quepa por su parte responsabilidad alguna.

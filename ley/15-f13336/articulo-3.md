@@ -1,0 +1,1 @@
+Art. 3°-La Compañía se obliga además á conceder en sus vapores cuatro pasajes anuales, de ida vuelta, en primera clase, á los agentes diplomáticos y comisionados del Gobierno de Costa-Rica, desde el puerto de Limón hasta el de Nueva York y viceversa
