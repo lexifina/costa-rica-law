@@ -1,0 +1,1 @@
+Articulo 10.-EI Agente Principal de Policía del lugar donde el tranvía se encuentre funcionando, no permitirá la salida de ningún producto de la estación del ferrocarril, sin que previamente haya sido satisfecho el canon respectivo por el uso del tranvía, en la Tesorería de la Junta.

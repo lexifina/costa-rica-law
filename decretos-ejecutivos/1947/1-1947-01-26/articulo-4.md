@@ -1,0 +1,1 @@
+Artículo 4°-Las Juntas nombrarán de fuera de su seno, un Tesorero y un Capataz, y a cada uno de ellos les fijará un sueldo que no podrá, en ningún caso, exceder del quince por ciento de las entradas brutas mensuales del tranvía, salvo las excepciones previstas en el artículo 9° inciso e) de este Reglamento.

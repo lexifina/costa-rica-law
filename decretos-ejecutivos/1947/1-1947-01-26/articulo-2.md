@@ -1,0 +1,1 @@
+Artículo 2°-Para suplir a los miembros de las Juntas en sus ausencias, habrá dos suplentes por cada Junta; de los cuales uno deberá. ser siempre representante de los agricultores de la región donde el tranvía se encuentra, y el otro indistintamente de la Secretaria de Agricultura o del Banco Nacional de Costa Rica
