@@ -1,0 +1,1 @@
+Artículo 2°-El Ministerio de Salud y la Comisión Nacional de Emergencia tendrán a su cargo la administración y operación del Relleno Sanitario de Río Azul y dispondrán de todo lo necesario para lograr la rehabilitación ambiental de los terrenos en donde se asienta dicho relleno.
