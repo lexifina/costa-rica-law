@@ -1,0 +1,2 @@
+Artículo 10.- Requerirán de una duración mínima de doce meses de estudios de posgrado, las siguientes especialidades: Odontología General, Radiología y Salud Pública, Odontología para Pacientes Especiales con énfasis en Odontogeriatría y Odontología para Pacientes con Discapacidad y ciencias morfológicas en anatomía.
+(Así reformado mediante artículo 1° del decreto ejecutivo N° 28634 del 24 de abril del año dos mil)

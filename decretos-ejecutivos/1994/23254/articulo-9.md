@@ -1,0 +1,1 @@
+Artículo 9°-Requerirán de una duración mínima de veintiuno a veinticuatro meses de estudios de posgrado, las siguientes especialidades; Cirugía Oral, Endodoncia, Implantología Oral, Odontopediatría, Ortodoncia, Patología Oral y Medicina Oral, Periodoncia, Prostodoncia y Trastornos Temporo Mandibulares y Dolor Orofacial y Administración en Salud.

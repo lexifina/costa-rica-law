@@ -1,0 +1,2 @@
+Artículo 4°- La Comisión estará integrada por siete miembros, quienes deberán estar inscritos en el Registro de Especialidades Odontológicas, y serán de nombramiento de la Junta Directiva del Colegio de Cirujanos Dentistas, dando preferencia a los miembros de las academias respectivas, si las hubiese.
+La Comisión será coordinada por un miembro elegido dentro del propio seno de la Comisión, por votación simple de sus miembros, en la primera sesión celebrada por ésta.

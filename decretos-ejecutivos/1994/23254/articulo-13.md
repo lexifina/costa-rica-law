@@ -1,0 +1,1 @@
+Artículo 13.-Serán suspendidos del ejercicio profesional aquellos Cirujanos Dentistas que dentro de su especialidad no se ajusten a los reglamentos y a los cánones de la ética señalados en la "Ley Orgánica del Colegio de Cirujanos Dentistas" y en el Código de Etica.

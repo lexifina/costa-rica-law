@@ -1,0 +1,1 @@
+Artículo 5°-Será inscrito como Especialista, el Cirujano Dentista que demuestre haber cumplido satisfactoriamente con los requisitos exigidos en este Reglamento, de acuerdo con el artículo 14 de la Ley Orgánica del Colegio de Cirujanos Dentistas.
