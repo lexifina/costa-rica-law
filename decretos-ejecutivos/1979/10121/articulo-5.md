@@ -1,1 +1,0 @@
-Artículo 5°—La certificación a que hace referencia el artículo anterior será expedida por médicos veterinarios en el ejercicio legal de su profesión y debidamente incorporados al Colegio de Médicos Veterinarios de Costa Rica. Cualquier anomalía que se presente en dicha certificación será referida al Colegio para su decisión.

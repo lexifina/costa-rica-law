@@ -1,1 +1,0 @@
-Artículo 7°—Es obligación del transportador el cumplir con el requisito previsto en el artículo anterior, operación que se aplicará bajo el control de los servicios veterinarios oficiales. La Dirección del Programa establecerá los desinfectantes a utilizarse en el Manual de Procedimientos de la Campana.

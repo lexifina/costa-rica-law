@@ -1,1 +1,0 @@
-Artículo 9°—Los corrales, mangas y cualquier otro tipo de instalación utilizada con fines de acopio para el traslado de ganado, deben de ser mantenidos limpios, desinfectados y en perfectas condiciones sanitarias.

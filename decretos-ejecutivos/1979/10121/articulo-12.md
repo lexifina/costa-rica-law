@@ -1,1 +1,0 @@
-Artículo 12.—Las infracciones al presente reglamento serán sancionadas de acuerdo a los capítulos I y II, título I, libro II de la Ley General de Salud y el artículo 33 de la Ley General de Salud Animal.
