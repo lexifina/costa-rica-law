@@ -1,0 +1,3 @@
+Artículo 27.—Bajas por hurto o robo. Para dar de baja bienes, cuya pérdida haya sido causada por hurto o robo, sin culpa imputable al responsable de los bienes, además de los requisitos señalados en el artículo 26 de este Reglamento, y las obligaciones estipuladas en el artículo 13 se deberá cumplir con los siguientes requisitos:
+a) Se debe elaborar un acta relacionando los hechos, en la cual deberán intervenir en esta diligencia el funcionario responsable de la administración del bien desaparecido, el jefe de la respectiva Oficina, el encargado de los bienes y el responsable institucional de los bienes.
+b) La Presidencia Ejecutiva o a quien este haya delegado al efecto, dictará la resolución final, autorizando la baja de los bienes.

@@ -1,0 +1,2 @@
+II.—A partir de la vigencia de este Reglamento, será aplicable, en todo aquello en que no resulte afectado por el proceso de inventario que actualmente se realiza, pero aplicará en su plenitud al estar concluido dicho proceso. Se entenderá concluido en el instante en que se tenga plena seguridad de la existencia y ubicación de cada uno de los activos fijos propiedad de la Institución.
+San José, 5 de junio del 2002.

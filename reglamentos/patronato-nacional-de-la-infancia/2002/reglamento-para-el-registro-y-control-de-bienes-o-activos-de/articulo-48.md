@@ -1,0 +1,1 @@
+Artículo 48.—Deber de informar. La institución beneficiada con la donación, deberá comunicar al donante en un plazo no mayor de treinta días naturales, contados a partir del acto de entrega de la donación, un detalle del beneficio o destino final de los bienes donados. En caso de no cumplir con esta disposición, será excluido para futuras donaciones.

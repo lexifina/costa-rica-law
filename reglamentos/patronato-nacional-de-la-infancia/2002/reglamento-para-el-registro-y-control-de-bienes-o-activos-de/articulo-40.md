@@ -1,0 +1,1 @@
+Artículo 40.—Comisión de donación. El Patronato Nacional de la Infancia contará con una Comisión de Donación, de nombramiento de la Presidencia Ejecutiva; conformada por lo menos por el Gerente de Administración, el Proveedor Institucional, Asesor Legal y el Coordinador del Área Administrativa; la que se encargará de recomendar las donaciones.

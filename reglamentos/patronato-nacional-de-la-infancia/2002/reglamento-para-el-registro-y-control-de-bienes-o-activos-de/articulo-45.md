@@ -1,0 +1,1 @@
+Artículo 45.—Escogencia de la institución beneficiada. Para el otorgamiento de donación, la Comisión de Donación deberá escoger la institución del registro, que para tales efectos lleva la oficina de Control de Activos.

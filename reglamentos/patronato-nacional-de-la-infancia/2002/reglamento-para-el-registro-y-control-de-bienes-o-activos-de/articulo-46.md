@@ -1,0 +1,1 @@
+Artículo 46.—Notificación de donación aprobada. La Comisión aprobará la donación. El acuerdo deberá ser notificado expresamente al interesado y la entidad deberá proceder al retiro de los bienes en el término improrrogable de 8 días naturales. Caso contrario, la Administración podrá de oficio dejar sin efecto la misma, procediendo a donarlo a otra institución.
