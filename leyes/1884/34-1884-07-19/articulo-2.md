@@ -1,0 +1,1 @@
+Artículo 2°.-Desde el día diez del mes de agosto de mil ochocientos ochenta y cinco, se usará dicho sistema en todos los actos oficiales de la República, con excepción de los que se relacionen con los ingenieros y agrimensores, quienes comenzarán a usarlo desde el quince de setiembre del corriente año.

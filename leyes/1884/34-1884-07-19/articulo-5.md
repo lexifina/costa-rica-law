@@ -1,0 +1,1 @@
+Artículo 5°.-Por cada infracción de alguna de las disposiciones que contienen los artículos anteriores, se incurrirá en una multa de dos diez pesos; y de cinco veinticinco pesos si fuere empleado público el infractor.

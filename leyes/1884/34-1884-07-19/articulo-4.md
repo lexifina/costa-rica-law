@@ -1,0 +1,1 @@
+Artículo 4°.-Desde el día diez de agosto de mil ochocientos ochenta y cinco, todo el que públicamente venda o compre, por mayor y al menudeo, efectos de cualquier clase, no podrá servirse de otros pesos o medias que los autorizados por la presente ley; y desde la misma fecha se usará también en todos los documentos privados que deban presentarse ante los jueces o tribunales.
