@@ -1,1 +1,0 @@
-Artículo 5º—De la mecánica del sorteo: La mecánica para dicho sorteo es la que se establece en el documento “Mecánica del Sorteo de los Premios en Especie”, el cual forma parte integral de este Reglamento.

@@ -1,4 +1,0 @@
-Artículo 6º—De la forma de pago del premio en especie:
-a) Para efectos del pago del premio en especie al proveedor, el ganador debe autorizar a la Junta, mediante su rúbrica, para que emita una orden incondicional de pago por el monto exacto del bien que haya escogido. El o los pagos que correspondan según lo pactado en el contrato o documento que se menciona en el artículo 9º, inciso a), de este reglamento, serán honrados mediante la emisión de un cheque o transferencia electrónica a la casa proveedora que corresponda.
-b) La Junta no reconocerá ningún tipo de interés sobre los recursos del premio durante el período que transcurra entre el recibo de la fracción ganadora por parte de la Tesorería de la Junta y la entrega final del vehículo por parte de la empresa elegida por el ganador.
-c) De conformidad con lo establecido en el Reglamento Orgánico de la Junta de Protección Social de San José es función del Departamento de Tesorería, la custodia de dichos fondos.

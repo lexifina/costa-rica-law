@@ -1,1 +1,0 @@
-Artículo 10.—Caducidad de los premios en especie: De conformidad con lo establecido en el Reglamento a la Ley de Loterías, el premio en especie tiene un período de caducidad de 60 días naturales a partir del día hábil siguiente de la fecha del sorteo.
