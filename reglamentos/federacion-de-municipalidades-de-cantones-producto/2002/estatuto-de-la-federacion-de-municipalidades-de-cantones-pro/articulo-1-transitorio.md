@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+1°—El/la Directora Ejecutivo nombrado por la Junta Directiva sumirá automáticamente en el momento de entrar en vigor el presente Estatuto, todas las competencias atribuidas a dicho cargo. Tinto este como el resto de los trabajadores de la Federación, incluida UTAMA, permanecerán en sus puestos con carácter indefinido, pudiendo ser removidos Únicamente por causa justa y con observancia y cumplimiento del procedimiento y principios establecidos en el Código Municipal vigentes.

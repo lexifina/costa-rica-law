@@ -1,0 +1,1 @@
+Artículo 7°—De la Asamblea General: La Asamblea General estará compuesta por tres representantes de cada municipalidad, dos de los cuales serán regidores/as y uno/a será el/la Alcalde/esa. Los/as regidores serán nombrados/as por sus respectivos Concejos por un periodo de cuatro años, pudiendo ser reelectos/as.

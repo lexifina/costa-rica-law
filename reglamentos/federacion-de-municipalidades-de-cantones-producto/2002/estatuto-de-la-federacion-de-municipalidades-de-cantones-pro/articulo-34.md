@@ -1,0 +1,3 @@
+Artículo 34.—Liquidación. Acordada la disolución por la Asamblea General ésta designará una Comisión Liquidadora que se encargará de la gestión del servicio y del destino de los bienes que integran el Patrimonio de la Federación de Municipios. La Comisión Liquidadora realizará su cometido en el plazo máximo de un año. Este procedimiento requerirá de modo obligatorio el refrendo de la Contraloría General de la República.
+Los bienes que hubiesen estado destinados a la prestación de los servicios desarrollados por la Federación de Municipios adscritos por los Cantones federados, pasarán automáticamente a disposición de los mismos.
+En cuanto a los demás bienes, la Comisión Liquidado! a adoptará los acuerdos pertinentes contraídos por la Federación de Municipios.

@@ -1,0 +1,1 @@
+Artículo 33.—Procedimiento de disolución y liquidación. La disolución de la Federación Intermunicipal requerirá acuerdo del Concejo Intermunicipal, adoptado con el voto de los 2/3 partes y la ratificación de la mayoría de las entidades asociadas en acuerdos adoptados con igual quorum.
