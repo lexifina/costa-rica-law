@@ -13,3 +13,4 @@ Reglamento de Cajas Chicas Auxiliares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-01 | la propia norma |
+| 2 | 2002-04-08 | Reglamento 15 (2002-04-08) |
