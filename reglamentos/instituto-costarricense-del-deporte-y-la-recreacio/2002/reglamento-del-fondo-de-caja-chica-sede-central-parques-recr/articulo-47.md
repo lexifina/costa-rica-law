@@ -1,0 +1,2 @@
+DISPOSICIONES FINALES
+Artículo 47.—El Proceso Financiero-Contable elevará ante el Consejo Nacional del Deporte y la Recreación las propuestas debidamente justificadas de aumentar los montos aquí establecidos, tanto de los fondos autorizados como el monto de las erogaciones. De igual manera, podrá solicitar al Consejo la suspensión de cajas chicas auxiliares por mal manejo de estas u otra circunstancia que lo amerite. Para ambas, se requiere el acuerdo del Consejo previo a la ejecución de dichos cambios. .

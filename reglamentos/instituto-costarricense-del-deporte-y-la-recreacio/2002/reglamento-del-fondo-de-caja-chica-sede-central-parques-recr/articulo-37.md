@@ -1,0 +1,1 @@
+Artículo 37.—El Director del Área de Recreación, respectivamente, designarán al responsable de cada una de las cajas chicas auxiliares y así lo comunicarán oficialmente al Proceso Financiero-Contable.

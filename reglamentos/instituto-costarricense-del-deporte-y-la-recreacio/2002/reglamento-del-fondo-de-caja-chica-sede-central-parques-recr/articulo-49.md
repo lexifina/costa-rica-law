@@ -1,0 +1,1 @@
+Artículo 49.—Para resolver los casos no contemplados en este Reglamento, se aplicarán supletoriamente el Reglamento General de Cajas Chicas, la Ley de Administración Financiera de la República, el Reglamento de Contratación Administrativa y el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos.

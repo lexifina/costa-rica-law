@@ -1,0 +1,2 @@
+Artículo 45.—Con respecto a las Oficinas Regionales el fondo se empleará únicamente para compra de bienes y/o servicios y para el pago de gastos de viaje y de transportes dentro del país en su área de trabajo o jurisdicción administrativa.
+El responsable de Caja Chica del Parque Recreativo, podrá entregar mediante vale de caja chica la suma de 3.000,00 (tres mil colones exactos) como caja inicial para dar vueltos al funcionario de boletería, dicho vale debe permanecer en la caja chica y debe estar firmado por el encargado de la caja y el solicitante.

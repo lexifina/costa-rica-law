@@ -1,0 +1,1 @@
+Artículo 43.—Las solicitudes de reintegro cuyos comprobantes no cuenten con los requisitos establecidos serán devueltos sin el trámite respectivo, además deben contar con el visto bueno del Director del Área.

@@ -1,0 +1,2 @@
+Artículo 28.—Cuando sean presentados a cobro ante el Proceso Financiero-Contable vales que amparan pagos en los cuales no medió el adelanto respectivo, serán tramitados, siempre y cuando reúnan los requisitos mencionados en los artículos 18 (excepto inciso c) 19, 23 y 24.
+En todo caso, no se reembolsarán aquellos comprobantes que sean presentados a cobro, cuatro o más días hábiles después de la emisión de la factura o comprobante.

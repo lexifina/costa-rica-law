@@ -1,0 +1,1 @@
+Artículo 14.—Todo arqueo al Fondo de Caja Chica se realizará en presencia del Tesorero, quien tendrá el derecho de pedir en el mismo acto en que se realiza el arqueo, una segunda verificación, en caso de dudas sobre el resultado obtenido.

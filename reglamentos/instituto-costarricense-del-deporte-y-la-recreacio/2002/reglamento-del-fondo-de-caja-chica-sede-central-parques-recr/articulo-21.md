@@ -1,0 +1,1 @@
+Artículo 21.—Todo vale de adelanto deberá ser liquidado mediante la posterior presentación de las facturas en que conste claramente el gasto solicitado y cumpla con las disposiciones establecidas por la Dirección General de Tributación.

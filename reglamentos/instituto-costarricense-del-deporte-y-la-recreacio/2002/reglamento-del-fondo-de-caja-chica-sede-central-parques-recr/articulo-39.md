@@ -1,0 +1,2 @@
+Artículo 39.—El monto total de la erogación no podrá sobrepasar la suma de ^ 7.000,00 (siete mil colones exactos) y deberá ser consultado telefónicamente la existencia del disponible presupuestario, dejando constancia en el documento el nombre de quien brindó la información y la fecha.
+Si esta consulta no se realiza queda bajo absoluta responsabilidad del encargado de la caja chica, el gasto realizado si en el momento de liquidarlo no existe contenido presupuestario.

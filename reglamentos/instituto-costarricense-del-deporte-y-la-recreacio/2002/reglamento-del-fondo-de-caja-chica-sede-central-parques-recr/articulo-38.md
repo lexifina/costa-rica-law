@@ -1,0 +1,1 @@
+Artículo 38.—El responsable de la caja chica auxiliar deberá solicitar el reintegro cuando el monto gastado se aproxime al 50% del fondo autorizado mediante la presentación de los comprobantes adjuntos y detallados en fórmula establecida para tales efectos.

@@ -1,0 +1,1 @@
+Artículo 50.—El Proceso Financiero Contable en coordinación con la Comisión de capacitación del Área Administrativa mantendrá un programa de capacitación para todos aquellos servidores que tengan relación con el manejo y control de las Cajas Chicas.

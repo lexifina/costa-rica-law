@@ -1,0 +1,1 @@
+Artículo 20.—La persona autorizada a recibir el dinero deberá firmar en la casilla respectiva haciendo constar el recibo del efectivo, una vez el Tesorero le haya comunicado la autorización para retirarlo.

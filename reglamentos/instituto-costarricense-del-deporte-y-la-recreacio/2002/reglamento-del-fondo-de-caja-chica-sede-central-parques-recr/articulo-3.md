@@ -1,0 +1,1 @@
+Artículo 3°—La custodia y manejo de ese fondo corresponde al Tesorero, quien, para ello se servirá de las pautas que se dan en el presente reglamento, siempre bajo la responsabilidad y control de la Jefatura del Proceso Financiero-Contable,

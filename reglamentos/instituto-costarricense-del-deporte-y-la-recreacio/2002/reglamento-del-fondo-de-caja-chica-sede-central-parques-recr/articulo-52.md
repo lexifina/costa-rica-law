@@ -1,0 +1,1 @@
+Artículo 52.—Queda a disposición del Jefe del Proceso Financiero Contable aceptar o rechazar cualquier justificación por presentación tardía de documentos según plazos establecidos en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 26.—No se tramitarán adelantos por medio del Fondo de Caja Chica a favor de funcionarios cuya Área para la cual laboran tenga adelantos pendientes de liquidar y cuyo plazo para ello se haya vencido.

@@ -1,0 +1,4 @@
+Artículo 15.—El arqueo debe cerrar con el monto total autorizado al Fondo, no obstante, de existir diferencia se procederá de la siguiente manera:
+a) El Tesorero deberá reintegrar en el mismo momento en que se le practique el arqueo el faltante detectado.
+b) El Tesorero deberá justificar por escrito la diferencia detectada.
+c) El Tesorero deberá depositar el sobrante detectado en el arqueo realizado un día hábil después de practicado éste. El informe escrito mencionado en el artículo No 13 deberá contener toda la información sobre las diferencias encontradas en los arqueos realizados.

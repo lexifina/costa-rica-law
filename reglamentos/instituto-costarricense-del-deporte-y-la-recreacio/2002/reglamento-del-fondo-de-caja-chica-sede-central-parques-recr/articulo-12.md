@@ -1,0 +1,6 @@
+Artículo 12.—Para los efectos del artículo anterior, se entenderá cada uno de los documentos de los ítemes citados de la siguiente manera:
+a) Vales debidamente liquidados: Son los vales que después de efectuado el gasto respectivo, dan cuenta del monto real de la operación según los comprobantes adjuntos a éste y que indican la devolución de dinero en caso de sobrante. Los comprobantes deberán cumplir con los requisitos establecidos por la Dirección General de Tributación y coincidir con el concepto del vale.
+b) Vales pendientes de liquidar: Son aquellos vales, cuyo dinero se ha entregado y se encuentran pendientes de liquidar dentro del plazo establecido en este Reglamento. Aquellos vales sin liquidar que se encuentren fuera de dicho plazo deberán adjuntar nota del Tesorero
+donde conste la solicitud de la devolución del dinero al Fondo, esta nota deberá ser realizada un día hábil después de la fecha en que debió liquidar el beneficiario del hábil.
+c) Vales en trámite de reintegro ante la Unidad de Presupuesto:
+Son aquellos vales que ya se encuentran debidamente liquidados y que forman parte del reembolso que el Tesorero solicita y que se encuentra en trámite de cheque.

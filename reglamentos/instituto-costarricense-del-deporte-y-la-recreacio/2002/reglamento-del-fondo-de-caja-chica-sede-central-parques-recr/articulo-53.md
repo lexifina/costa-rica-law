@@ -1,0 +1,1 @@
+Artículo 53.—El incumplimiento de este Reglamento obligará a la Administración a aplicar las sanciones disciplinarias que establezcan las leyes, reglamentos y otras disposiciones internas del órgano u ente público de que se trate, sin perjuicio de lo dispuesto por los artículos 6° y 7° de la Ley de Administración Financiera de la República.

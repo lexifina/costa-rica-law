@@ -1,0 +1,1 @@
+Artículo 22.—La liquidación de todo vale se deberá efectuar a más tardar en el tercer día hábil posterior a la entrega del dinero, o a la finalización de la gira. Este plazo se podrá extender previa autorización de la Jefatura del Proceso Financiero Contable.
