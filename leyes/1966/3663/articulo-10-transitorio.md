@@ -1,0 +1,2 @@
+Transitorio X.- El actual Emblema y Siglas del Colegio de Ingenieros y Arquitectos de Costa Rica, deberá ser reemplazado por un nuevo Emblema y Siglas del Colegio Federado de Ingenieros y Arquitectos, mediante convocatoria a concurso para tal efecto, entre los miembros de los diferentes colegios integrantes y en un plazo no mayor de tres meses después de la publicación oficial de esta ley.
+(Adicionado este transitorio por Ley Nº 4925 de 17 de diciembre de 1971).

@@ -1,5 +1,5 @@
-Artículo 14.- Para celebrar una Asamblea General Extraordinaria, será
-preciso publicar la convocatoria en "La Gaceta" y en uno de los diarios de
-mayor circulación, durante dos días consecutivos; deberá transcurrir un
-lapso de cinco días hábiles, por lo menos, entre la primera publicación y
-el día señalado para la Asamblea.
+Artículo 14.- Los avalúos y peritajes sobre asuntos y materias
+relacionadas con las profesiones de ingeniería y de arquitectura, que
+ordenen las oficinas públicas, instituciones autónomas y semiautónomas y
+las municipalidades deberán ser realizados por miembros activos del Colegio
+Federado de acuerdo a esta ley y sus reglamentos.

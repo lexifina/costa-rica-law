@@ -1,12 +1,7 @@
-Artículo 20.- La Junta Directiva celebrará una sesión ordinaria cada
-dos semanas; las sesiones extraordinarias sólo podrán convocarlas el
-Presidente o tres de los miembros de la Junta Directiva.
-Perderá su condición de miembro de la Junta Directiva:
-a) El que faltare a cuatro sesiones consecutivas sin justificación
-previa;
-b) El que faltare a ocho sesiones consecutivas, aún con
-justificación; y
-c) El que faltare a dieciséis sesiones en el curso de un año, con
-justificación o sin ella.
-Para los efectos anteriores, las Asambleas Generales se considerarán
-como sesiones de Junta Directiva.
+Artículo 20.- El quórum para la Asamblea de Representantes ordinaria o
+extraordinaria, estará formado por no menos de nueve representantes de cada
+uno de los colegios. Cada representante tendrá derecho a voz y voto. En
+caso de que en dos convocatorias consecutivas no se alcance el quórum
+requerido, se sesionará la siguiente vez con los miembros asistentes, pero
+en ningún caso, con menos del 25% del total de los representantes. La
+segunda y tercera convocatorias se podrán efectuar simultáneamente.

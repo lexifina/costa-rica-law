@@ -1,3 +1,3 @@
-Artículo 26.- Son deberes y atribuciones de los Vocales: Suplir, por
-designación del Presidente, al Fiscal, al Tesorero o al Secretario, en
-caso de impedimento o falta temporal de éstos.
+Artículo 26.- Las sesiones extraordinarias podrán ser convocadas por
+el Presidente, o tres de sus Directores, uno de los colegios, o el Director
+Ejecutivo en caso de urgencia.

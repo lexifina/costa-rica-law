@@ -1,7 +1,1 @@
-Artículo 25.- Son deberes y atribuciones del Tesorero:
-a) Custodiar, bajo su responsabilidad, los fondos del Colegio y
-recaudar las contribuciones que a ellos correspondan;
-b) Pagar los libramientos que se le presenten en debida forma a la
-Tesorería;
-c) Llevar los libros de contabilidad del Colegio, y presentar a fin
-del año el estado general de ingreso y egresos.
+Artículo 25.- La Junta Directiva General sesionará ordinariamente una vez cada mes, a la hora y fecha que acuerde al efecto. Sesionará en la sede del Colegio Federado, pero excepcionalmente puede acordar sesionar en otro lugar. Hará quórum la mayoría absoluta de los miembros, siempre que todos los colegios estén representados. En caso de que en dos sesiones consecutivas no se alcance el quórum requerido, se sesionará la siguiente vez con los miembros asistentes.

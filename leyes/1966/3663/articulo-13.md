@@ -1,5 +1,5 @@
-CAPITULO VI
-De las Asambleas Generales
-Artículo 13.- El Colegio celebrará bimestralmente una Asamblea
-General Ordinaria y las Asambleas Generales Extraordinarias que la Junta
-Directiva acuerde por sí o a petición de doce o más miembros activos.
+Artículo 13.- Las entidades públicas o privadas que para su mejor
+desarrollo requieran los servicios de ingenieros o de arquitectos
+extranjeros, no incorporados al Colegio Federado, deberán solicitarle una
+autorización para el ejercicio temporal de esos profesionales, de acuerdo
+al artículo 5º, inciso g) de esta ley.
