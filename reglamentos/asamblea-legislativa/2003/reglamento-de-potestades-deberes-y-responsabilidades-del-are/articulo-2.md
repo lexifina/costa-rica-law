@@ -1,0 +1,8 @@
+Artículo 2º—Para efectos de interpretación del presente reglamento, se definen los siguientes términos:
+a) Agente de seguridad: Funcionario encargado de vigilar, conservar la tranquilidad, el orden institucional y la seguridad de los bienes, así como de los diputados, los servidores y el público en general que visita las instalaciones de la Asamblea Legislativa. Está capacitado para desempeñar su puesto y es nombrado de conformidad con lo que estipula el Manual Descriptivo de Puestos de la Asamblea Legislativa, investido de autoridad para el desempeño de sus funciones dentro de la Institución.
+b) Arma reglamentaria: Revólver de calibre treinta y ocho especial o revólver de nueve milímetros.
+c) Bitácora: Libro de registro diario en el que se describen, tanto la actividad realizada, como las incidencias acaecidas durante la jornada de trabajo.
+d) Detención: Privación momentánea de la libertad de una persona que haya cometido un hecho delictivo dentro de la Institución. El único propósito de la detención es poner a esa persona a disposición de la autoridad competente.
+e) Puesto fijo: Lugar específico, interno o externo, ubicado en las entradas principales de los diferentes edificios que albergan la Asamblea Legislativa; en él se ubica un agente de seguridad durante la jornada laboral con el fin de brindar vigilancia y seguridad.
+f) Recorrido: Ronda de vigilancia a cargo de un agente de seguridad en áreas específicas de las instalaciones de la Asamblea Legislativa, que transita en forma periódica y en un trayecto determinado.
+g) Registro: Inspección a la que son sometidas las personas o los vehículos al Ingresar a la Institución o al salir de ella; la finalidad es determinar si portan armas, drogas u objetos de dudosa procedencia.

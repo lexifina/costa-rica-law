@@ -1,0 +1,1 @@
+Artículo 5º—La Unidad de Seguridad será el ente especializado adscrito al Departamento de Servicios Generales y estará conformado por un jefe, un subjefe, un asistente administrativo y los agentes de seguridad.

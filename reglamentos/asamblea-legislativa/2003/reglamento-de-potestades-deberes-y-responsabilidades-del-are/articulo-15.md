@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Sanciones
+Artículo 15.—Cualquier infracción de las disposiciones contenidas en el presente reglamento, será sancionada de conformidad con lo dispuesto en la Ley de Personal de la Asamblea Legislativa, el Reglamento Autónomo de Servicios de la Asamblea Legislativa, la Ley General de la Administración Pública, N° 6227, del 2 de mayo de 1978 y la legislación laboral vigente.
+(Corregido mediante Fe de Erratas publicada en La Gaceta N° 54 del 18 de marzo del 2014, página N° 92. Anteriormente decía "... Artículo 15.—Cualquier infracción de las disposiciones contenidas en el presente reglamento, será sancionada de conformidad con lo dispuesto en la Ley de Personal de la Asamblea Legislativa, el Reglamento Interior de Trabajo, la Ley General de la Administración Pública, N° 6227, del 2 de mayo de 1978 y la legislación laboral vigente")
