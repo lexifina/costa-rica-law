@@ -14,3 +14,4 @@ Reforma a los artículos 15 y 19 del Reglamento de Beneficios para Estudio.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-04 | la propia norma |
+| 2 | 1999-11-04 | Ley 8 |
