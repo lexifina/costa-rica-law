@@ -6,3 +6,4 @@ c) Cuando la intención del Estado de dar ese efecto a la firma se desprenda de 
 2.- Para los efectos del párrafo 1:
 a) La rúbrica de un texto equivaldrá a la firma del tratado cuando conste que los Estados negociadores así lo han convenido;
 b) La firma ad referéndum de un tratado por un representante equivaldrá a la firma definitiva del tratado si su Estado la confirma.
+(NOTA: En relación con el presente artículo, la delegación de Costa Rica hace la reserva de que el sistema jurídico constitucional del país no autoriza ninguna forma de consentimiento que no esté sujeto a ratificación de la Asamblea Legislativa)
