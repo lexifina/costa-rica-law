@@ -15,3 +15,4 @@ Reglamento Unico de Disponibilidad de la Caja Costarricense de Seguro Social
 | --- | --- | --- |
 | 1 | 2001-12-31 | la propia norma |
 | 2 | 2001-12-31 | Reglamento 7499 (2000-11-23) |
+| 3 | 2001-12-31 | Reglamento 7518 (2001-01-25) |
