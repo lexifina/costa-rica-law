@@ -1,0 +1,1 @@
+Artículo 3-Se destina para el pago de las cantidades designadas, la suma de ($4.973335) cuatro millones novecientos setenta y tres mil trescientos treinta y cinco pesos, á que asciende el Presupuesto probable de entradas en el año económico en curso.
