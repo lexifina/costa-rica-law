@@ -7,4 +7,6 @@ Considerando:
 3°-Que los residuos de estas substancias están prohibidas en los alimentos para consumo humano, estando el Estado en la obligación de velar por la Saluid Pública y los intereses comerciales con base en investigaciones que se vienen realizando desde 1953 en el Departamento de Fitopatología del Ministerio de Agricultura y Ganadería y otros Organismos Nacionales.
 Por tanto,
 DECRETAN:
-Artículo 1°-De conformidad con el artículo 14 inciso c) de la ley número 2852 de 6 días del mes de noviembre de 1961 se prohíbe el mercado en el país y el uso en el café de los fungicidas a base de arsénico y plomo, en el período comprendido entre los meses de julio a enero de cada año por cuanto los frutos de café adsorben estos elementos metálicos cuanto más avanzado es el desarrollo del fruto.
+Artículo 1°-Se permitirá el uso de los fungicidas a base de arsénico y plomo hasta el 15 de junio en las zonas de maduración temprana, ya que la recolección se inicia en el mes de julio; en las zonas de maduración media se permitirá hasta el 15 de agosto por ser la recolección en el mes de setiembre y en las zonas de maduración tardía hasta el 15 de setiembre por iniciarse la recolección en octubre.
+Los períodos de aplicación estarán permitidos mientras los frutos no estén en períodos de maduración.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 10975 del 26 de noviembre de 1979)

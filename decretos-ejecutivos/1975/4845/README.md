@@ -14,3 +14,4 @@ Prohibe uso de los fungicidas a base de arsénico y plomo, en el período compre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-05-24 | la propia norma |
+| 2 | 1979-11-26 | Decreto Ejecutivo 10975 (1979-11-26) |
