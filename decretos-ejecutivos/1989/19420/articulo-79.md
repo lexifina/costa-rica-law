@@ -1,9 +1,6 @@
-Artículo 79.-Funciones del Departamento de Servicios Técnicos y Administrativos:
-1) Organizar, dirigir y ejecutar la asistencia técnica y extensión en mercadeo.
-2) Colaboración en la formulación de los programas de trabajo anual de la Dirección.
-3) Colaboración en el seguimiento y evaluación de los programas de la Dirección.
-4) Organización y seguimiento de trámites administrativos y el control presupuestario de la Dirección General de Mercadeo Agropecuario.
-5) Coordinación de la capacitación en mercadeo a técnicos del Ministerio de Agricultura y Ganadería y agricultores organizados.
-6) Realizar los pronósticos de cosecha.
-7) Coordinar el Componente Regional de la Dirección General de Mercadeo Agropecuario, a través de las Unidades de Mercadeo de cada región.
-8) Obtener información periódica de precios, cantidades y oferta de productos hortifrutícolas.
+Articulo 79.-La Dirección General de Recursos Pesqueros y Acuacultura estará formada de la siguiente manera:
+1) Departamento de Pesca y Caza Marítimas.
+2) Departamento de Protección y Registro.
+3) Departamento de Acuacultura.
+También contará con una Unidad de Planificación, una Unidad Administrativa, cuyas funciones aparecen en los artículos 93 y 116, respectivamente y el Comité Técnico que actuará como ente asesor de la Dirección y estará integrado por: El Director, el Subdirector y los Jefes de Departamento. El Jefe de la Unidad de Planificación actuará como Secretario.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 70 al 79 actual).

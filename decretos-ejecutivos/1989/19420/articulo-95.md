@@ -1,7 +1,6 @@
-Artículo 95.-La Unidad de Planificación Administrativa tendrá las siguientes funciones:
-1) En coordinación con la Dirección de Planificación, cooperar y asesorar a los departamentos administrativos y técnicos del Ministerio en la elaboración de las normas y procedimientos que van a regular y normar las relaciones de trabajo en la Institución.
-2) En coordinación con la Dirección de Planificación, cooperar y asesorar al Departamento de Recursos Externos en el campo administrativo. financiero en la negociación de los convenios que debe suscribir el Ministerio.
-3) Evaluar periódicamente la organización administrativa interna del Ministerio y proponer los ajustes orgánicos correspondientes.
-4) Elaborar el programa de trabajo con la participación activa de los Departamentos v el Comité Técnico de la Dirección General Administrativa.
-5) Elaborar informes correspondientes de seguimiento y evaluación de lo programado por la Dirección General Administrativa.
-6) Apoyar en actividades específicas de la Dirección General Administrativa.
+Artículo 95.-La coordinación a nivel regional en aquellas Direcciones Nacionales que no tienen una estructura regionalizada, se llevará a cabo de la siguiente manera:
+a) Elaborarán sus programas a nivel nacional en coordinación con las Direcciones Regionales correspondientes con el propósito de ajustar estos, tanto a las necesidades nacionales comG regionales.
+b) Las Direcciones Nacionales serán responsables de la ejecución de estos programas en coordinación con la Dirección Regional. Con el propósito de apoyar los programas regionales se fortalecerán los mecanismos de información que permitan orientar e integrar la acción a nivel regional.
+c) La Dirección de Mercadeo Agropecuario estructurará su programa de trabajo en función de los programas nacionales y regionales de acuerdo con las prioridades que establezca la Institución.
+d) Las Direcciones Nacionales de Sanidad Vegetal y Salud Animal y Producción Pecuaria. en situaciones de emergencia ante problemas específicos fito y zoosanitarios, asumirán de inmediato el liderazgo para la organización y coordinación de la campaña, junto con el Director Superior de Operaciones Nacionales, de Operaciones Regionales y el Director Regional respectivo.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 86 al 95 actual).

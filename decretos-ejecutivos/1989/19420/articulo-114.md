@@ -1,6 +1,9 @@
-Artículo 114.-EI Departamento de Publicaciones tendrá las siguientes funciones:
-1) Coordinar con las demás dependencias de la Institución y organismos externos el proceso de difusión de los conocimientos agropecuarios que tiendan al cambio tecnológico y a la promoción de los cultivos de cambio.
-2) Desarrollar y utilizar los medios de comunicación para llevar el mensaje oportuno a los agricultores.
-3) Diseñar y desarrollar las publicaciones e impresiones requeridas por la Institución.
-4) Comunicar lo concerniente a avances tecnológicos en el campo agropecuario considerados de mayor utilidad para los técnicos, productores del país y la opinión pública.
-Habrá un Comité Técnico Administrativo (COTEA) que será un órgano de consultoría y de asesoría para el Director Superior Administrativo. Estará integrado por los jefes de los departamentos de la Dirección Superior Administrativa y se reunirá una vez al mes.
+Artículo 114.-La Dirección Superior Administrativa tendrá una Subdirección Administrativa con las siguientes funciones:
+1) Dirigir y coordinar el establecimiento de procedimientos para mejorar la capacidad operativa de la Institución en cumplimiento de sus planes de trabajo.
+2) Dirigir y apoyar los sistemas internos de Planificación Administrativa. Coordinar la correcta administración y planificación de presupuesto ordinario, cuentas especiales y recursos externos, de acuerdo con la planificación de la institución.
+3) Apoyar la implementación de sistemas para mejorar la calidad del recurso humano y su relación con los reglamentos laborales.
+4) Establecer la coordinación necesaria para la reparación y mantenimiento de los recursos físicos de los programas prioritarios.
+5) Coordinar lo referente a la determinación de necesidades de aprovisionamiento de bienes y materiales de la Institución, así como fortalecer los sistemas operativos actuales de control de activos y bienes de la misma.
+6) Fortalecer y agilizar los procesos de servicios de publicaciones e impresos de la Institución.
+7) Coordinar todo lo referente a la relación entre las actividades técnicas profesionales y las actividades administrativas de la Institución en cumplimiento de los planes de trabajo.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 105 al 114 actual).

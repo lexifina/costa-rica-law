@@ -1,6 +1,7 @@
-Artículo 90.-El Departamento de Información y Documentación tendrá las siguientes funciones:
-1) Establecer y poner en ejecución un Sistema de Información Computarizado.
-2) Captar y almacenar información para el establecimiento de un banco de datos.
-3) Procesar información técnica y contable para la oportuna toma de decisiones.
-4) Brindar apoyo a otras dependencias del Ministerio de Agricultura y Ganadería para difundir los resultados de la acción institucional.
-5) Proporcionar la información disponible a los usuarios que la soliciten.
+Artículo 90.-Las Direcciones Regionales estarán formadas por los siguientes programas:
+a) Programa Regional de Investigación y Extensión Agrícola.
+b) Programa Regional de Salud y Producción Animal.
+c) Programa Regional de Sanidad Vegetal.
+d) Programa Regional de Mercadeo Agropecuario.
+También contarán con una Unidad de Planificación, una Unidad Administrativa y el Comité Técnico Regional que actuará como ente asesor de la Dirección y estará integrado por el Director, el Subdirector, la Unidad de Planificación y los respectivos Jefes Regionales de Programa. El Jefe de la Unidad de Planificación actuará como ente asesor de la Dirección y estará integrado por el Director, el Subdirector, la Unidad de Planificación y los respectivos Jefes Regionales de Programa. El Jefe de la Unidad de Planificación actuará como Secretaría Técnica.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 81 al 90 actual).

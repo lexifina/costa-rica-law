@@ -1,11 +1,18 @@
-De la Dirección de Mercadeo Agropecuario
-Articulo 75.-Las funciones de la Dirección General de Mercadeo Agropecuario son las siguientes:
-1) Contribuir al fomento de la producción y productividad agrícola mediante la investigación de los problemas que afectan el mercado y mercadeo y garantizar un abastecimiento continuo de alimentos y otros productos a los consumidores.
-2) Estimular, orientar y apoyar a los agricultores en aspectos de comercialización agrícola, como pronósticos de cosechas, clasificación, normalización e inspección de productos, información de mercados y precios, investigación, extensión y capacitación en mercadeo, posibilidades de financiamiento e infraestructura para almacenamiento y conservación, con el propósito de lograr un desarrollo acelerado y sostenido de la producción.
-3) Fortalecer y organizar el mercado doméstico, contribuyendo a su vez al establecimiento de mercados externos.
-4) Atender la problemática de comercialización de productos agrícolas en especial de perecederos, en apoyo a los agricultores, reduciendo las pérdidas económicas que por este concepto se deriven.
-5) Brindar los servicios de asistencia técnica en mercadeo, con el objeto de lograr mayor disponibilidad de productos agropecuarios para consumo interno y exportación generando así mayores ingresos para el agricultor con el consecuente mejoramiento de su nivel de vida.
-6) Coordinar las acciones de asistencia técnica con aquellas dependencias relacionadas con la comercialización agrícola (MAG, PIMA, CNP, CEMPRO, CODESA, IICA, CAAP, etc.), así como con otras entidades cuando las circunstancias lo ameriten.
-7) Mejorar los mecanismos operativos y administrativos que garanticen un mejor aprovechamiento de la cooperación técnica internacional en materia de mercadeo agrícola.
-8) Asesorar en aspectos de comercialización agrícola, a los agricultores, consumidores e instituciones públicas y privadas.
-9) Brindar servicios básicos de asistencia técnica en mercadeo, investigando y transmitiendo la tecnología para aplicar los resultados.
+Artículo 75.-Son funciones del Departamento de Servicio Técnico Básico:
+1) Ejecutar la identificación de muestras interceptadas de plantas, productos vegetales, materiales de propagación y materiales de empaque.
+2) Realizar el registro de análisis de muestras en el servicio de diagnóstico.
+3) Realizar estudios sobre el estado fitosanitario de los cultivos agrícolas.
+4) Mantener actualizado el catálogo de los organismos dañinos y enfermedades y de los agentes que se usan para el control biológico.
+5) Mantener y conservar colecciones de organismos dañinos y enfermedades.
+6) Colectar y evaluar datos técnicos y socioeconómicos en el campo de la protección vegetal.
+7) Colaborar en las medidas de la cuarentena vegetal externa e interna.
+8) Prestar asistencia técnica a los programas de la defensa agrícola.
+9) Desarrollar procedimientos para el combate, la prevención y el diagnóstico de organismos dañinos y enfermedades.
+10) Participar en la elaboración de materiales de divulgación fitosanitaria.
+11) Asesorar a entidades oficiales y particulares en la identificación y el combate de organismos dañinos y enfermedades.
+12) Mantener contactos científicos con entidades nacionales e internacionales en el campo de la protección vegetal.
+13) Establecer sistemas de alarma (pronóstico) para el combate de plagas y enfermedades de importancia económica.
+14) Mantener la documentación y biblioteca técnica de la Dirección.
+15) Participar en la capacitación técnica del personal de la Dirección.
+16) Ejecutar las demás funciones que le asigne la Dirección.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 66 al 75 actual).

@@ -1,13 +1,13 @@
-Artículo 109.-El Departamento de Transporte y Servicios Generales tendrá las siguientes funciones:
-1) Planear, coordinar y supervisar todas las labores técnicas y administrativas relacionadas con la administración adecuada de los vehículos y maquinaria agrícola a fin de lograr .un uso racional de estos por parte del Ministerio de Agricultura y Ganadería, así como garantizar que se proporcionen las condiciones óptimas para el mantenimiento y reparación de las instalaciones.
-2) Mantener un sistema de información permanente de todo lo concerniente con los vehículos y maquinaria agrícola del Ministerio de Agricultura y Ganadería.
-3) Sugerir a los Despachos Superiores del Ministerio de Agricultura y Ganadería. las normas políticas, relacionadas con la adquisición. reposición. mantenimiento y reparación de vehículos y maquinaria agrícola del Ministerio de Agricultura y Ganadería.
-4) Realizar y vigilar todo lo relacionado con la recepción, cálculos, custodia y distribución del combustible. A la vez deberá disponer de un mecanismo para garantizar el uso eficiente del combustible.
-5) Elaborar un reglamento para regular todo lo relacionado con la entrega, registro y liquidación de los cupones de combustible utilizados por las diferentes dependencias administrativas del Ministerio de Agricultura y Ganadería.
-6) Elaborar estudios actualizados de los insumos requeridos por la Institución para el uso y mantenimiento de los vehículos y maquinaria del Ministerio.
-7) Establecer métodos de valoración que permitan determinar la conveniencia para la Institución de reparar algunos vehículos.
-8) Velar por el mantenimiento y funcionamiento eficiente de los vehículos del Ministerio.
-9) Elaborar un programa de supervisión en cuanto al mantenimiento preventivo. así como un registro depreciación de las unidades de todas las direcciones y las estaciones experimentales del Ministerio de Agricultura y Ganadería.
-10) Realizar todo lo concerniente con el mantenimiento limpieza de la planta física, así como velar por la seguridad y vigilancia de la Institución.
-11) Atender las solicitudes que se presentan para la reestructuración del edificio (reparaciones menores).
-12) Las demás que se le asignen.
+Artículo 109.-La Auditoría Interna llevará a cabo las siguientes funciones principales para el cumplimiento de sus objetivos:
+1) Realizar auditorías o estudios especiales en el momento que considere oportuno, de acuerdo con las normas técnicas de Auditoría y otras disposiciones dictadas por la Contraloría General de la República y las Normas de Auditoría generalmente aceptadas que fueren aplicables al Ministerio.
+2) Verificar el cumplimiento de las disposiciones legales y reglamentadas, de los objetivos y metas. de las políticas, de los planes y de los procedimientos financieros y administrativos establecidos por el Ministerio.
+3) Verificar el cumplimiento, la suficiencia y validez del sistema de control interno en relación con los aspectos contables. financieros y administrativos.
+4) Verificar que los bienes patrimoniales del Ministerio se hallen debidamente controlados, contabilizados, protegidos contra pérdida, menoscabo. mal uso o desperdicio y debidamente inscritos cuando se trate de bienes inmuebles.
+5) Verificar que la información contable, financiera. administrativa o de otra naturaleza originada en el Ministerio, sea suficiente, oportuna y confiable.
+6) Verificar que los recursos financieros, materiales y humanos de que dispone el Ministerio se hayan utilizado por la administración con eficiencia, economía y eficacia.
+7) Revisar en forma posterior las operaciones contables. financieras y administrativas. los registros. los informes y los estados financieros y de ejecución y liquidación presupuestarios del Ministerio, con el propósito de que al informar sobre el resultado de sus auditorías o de estudios especiales. por medio de sus conclusiones y recomendaciones brinde la asesoría pertinente para lograr la eficiencia en los sistemas de control interno y en la gestión administrativa y financiera.
+8) Comprobar que los funcionarios responsables tomen las medidas apropiadas en relación con las recomendaciones que contienen los informes de Auditoría o los estudios especiales. provenientes tanto de la Auditoría Interna como de la Contraloría General de la República y de auditores externos. Dará cuenta inmediata y por escrito a las autoridades superiores, de cualquier omisión que compruebe al respecto.
+9) Ejercer otras funciones de fiscalización inherentes a su competencia dentro de los lineamientos dictados por la Contraloría General de la República y otras señaladas en disposiciones legales.
+10) Realizar auditorías del sistema de procesamiento de información de la Institución, de acuerdo con las técnicas disponibles para tal efecto.
+11) Asesorar a las autoridades superiores en materias de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 100 al 109 actual).

@@ -1,17 +1,18 @@
-Artículo 64.--Son funciones del Departamento de Unidades Agrícolas:
-1) Elaborar los planes anuales operativos de prevención y combate de organismos dañinos y enfermedades declaradas de combate nacional y/o particular obligatorio en coordinación con la Dirección.
-2) Definir los planes de acción para la prevención y combate de organismos dañinos y enfermedades declaradas de combate nacional y particular obligatorio en coordinación con las direcciones regionales.
-3) Asesorar al Director de Sanidad Vegetal en cualquier emergencia que se presente o cuando él lo solicite.
-4) Asesorar al personal de las direcciones regionales, en emergencias o cuando lo soliciten.
-5) Supervisar la ejecución de los planes de trabajo en el área de Sanidad Vegetal que ejecutan las direcciones regionales.
-6) Elaborar y preparar en conjunto con los Departamentos Técnicos, informes técnicos y material divulgativo para el cumplimiento de las labores específicas de la Dirección.
-7) Coordinar las medidas de combate, prevención y de pronóstico con entidades oficiales y particulares.
-8) Participar en programas de capacitación fitosanitaria para técnicos y agricultores en coordinación con los programas regionales de Sanidad Vegetal de las direcciones regionales cuando lo ameriten.
-9) Dirigir y apoyar la elaboración de planes de trabajo en caso de una emergencia en coordinación 'con la Dirección de Sanidad Vegetal y las direcciónes regionales.
-10) Ejecutar campañas de prevención y alerta de organismos dañinos yenfermedades exóticas.
-11 ) Recolectar material vegetal afectado y los organismos dañinos y remitir a los respectivos laboratorios para su análisis de identificación cuando lo amerite.
-12) Realizar ensayos demostrativos y programas pilotos en el manejo de organismos dañinos y enfermedades.
-13) Prestar asistencia técnica a agricultores así como asesorar a entidades oficiales y particulares en el campo de sanidad vegetal.
-14) Controlar los semilleros, viveros y campos de propagación de semillas y partes vegetales, según lo dispuesto en la Ley de Sanidad Vegetal en coordinación con las direcciones regionales.
-15) Preparar y mantener el equipo e implementos necesarios para las acciones del combate fitosanitario.
-16) Efectuar las demás funciones que Se le asigne.
+Artículo 64-Corresponde a la División de Salud Animal:
+1) Asesorar a la Dirección de Salud Producción Animal en todas las decisiones de política en el campo de la salud animal más conveniente para el país.
+2) Fomentar y ejecutar todos los planes, proyectos y programas derivados como resultado de la aplicación de la Ley de Salud Animal.
+3) Proteger el Patrimonio Pecuario Nacional, según las disposiciones establecidas en la Ley de Salud Animal y sus reglamentos.
+4) Fomentar convenios con organizaciones nacionales o internacionales, que sean convenientes para el mejor cumplimiento de la Ley de Salud Animal.
+5) Gestionar el apoyo técnico y financiero de organismos nacionales e internacionales para hacer cumplir al máximo la Ley de Salud Animal.
+6) Promover la capacitación del personal técnico y de servicio de la División de Salud Animal y de las direcciones regionales. de acuerdo con las necesidades de la Institución y del país.
+7) Diagnosticar la situación de las enfermedades de las especies pecuarias para conocer el grado de prevalencia e incidencia y los factores asociados a las mismas.
+8) Promover la prevención y control de plagas y enfermedades que existen en el país y determinar procedimientos prácticos y eficientes para combatir plagas y enfermedades exóticas.
+9) Dictar los sistemas y procedimientos técnicos para combatir plagas y enfermedades.
+10) Velar por la protección sanitaria de los recursos pecuarios mediante la prevención. control y eventual erradicación de las enfermedades de los animales contribuyendo así mismo a mejorar la salud pública.
+11 ) Formular con base en las directrices emanadas de la Dirección de Salud y Producción Animal y las necesidades y recursos existentes en la Dirección, así como en las direcciones regionales, el programa de salud y producción animal. Apoyar a las direcciones regionales en la ejecución del mismo.
+12) Ejercer la orientación técnico-normativa para la realización de las acciones de salud animal que se llevan a cabo en las regiones. en estrecha coordinación con la respectiva Dirección Regional.
+13) Dirigir. supervisar y evaluar la ejecución de las acciones de salud animal. En los niveles nacional y regional.
+14) Elaborar el presupuesto necesario para cumplir con las actividades de salud . animal y proponer a la Dirección los ajustes necesarios.
+15) Administrar los recursos humanos. físicos y financieros asignados a la División de Salud Animal. de acuerdo con las normas y regulaciones vigentes al respecto y las orientaciones emanadas de la Dirección.
+16) Las demás que se le asignen.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 55 al 64 actual).

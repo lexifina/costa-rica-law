@@ -1,17 +1,17 @@
-De la Dirección de Investigación y Extensión Agrícola
-Artículo 41.-Son funciones y atribuciones de la Dirección de Investigación y Extensión Agrícola las siguientes:
-1 ) Proponer la política de investigación y extensión agrícola. acorde con la política científica y tecnológica nacional y las necesidades de los productores a la Dirección de Operaciones Nacionales.
-2) Proponer políticas específicas y medidas de política de incentivo a la producción agrícola con base en las orientaciones que establecen los planes del sector.
-3) Formular con base en las directrices nacionales. el Programa de Investigación y Extensión Agrícola. a nivel nacional.
-4) Ejecutar el Programa de Investigación Agrícola y a la vez supervisar el que ejecutan las regiones.
-5) Elaborar y ejecutar el Plan Nacional de Conservación de Suelos a nivel nacional en coordinación con los organismos e instituciones competentes. del Sector Agropecuario a fin de integrarlo a las previsiones del Plan Nacional de Desarrollo. Lo anterior en coordinación con SEPSA.
-6) Dirigir la elaboración del presupuesto de investigación y extensión agrícola. a nivel nacional. Una vez aprobado el mismo. velar por el cumplimiento y resolver propuestas de modificación en la asignación y uso efectivo de los recursos.
-7) Establecer y mantener las vinculaciones y el fortalecimiento de la acción interinstitucional como organismos nacionales y extranjeros que colaboran en el campo de investigación y extensión agrícola.
-8) Establecer la política para el eficiente manejo de los recursos humanos. físicos y financieros de la Dirección con base en las orientaciones y normas vigentes en el Ministerio de Agricultura y Ganadería y los compromisos asumidos a través de convenios. contratos y otros instrumentos legales.
-9) Asignar de acuerdo con las prioridades establecidas en el Programa de Investigación y Extensión Agrícola los recursos provenientes tanto del presupuesto ordinario como de otras fuentes.
-10) Establecer los lineamientos básicos para el desempeño de la 'labor técnico-normativa de los programas o dependencias a su cargo.
-11) Presentar informes periódicos y especiales de seguimiento y evaluación de investigación y extensión agrícola a su superior jerárquico inmediato.
-12) Proponer ajustes en las funciones. procedimientos y organización de la Dirección para garantizar el logro de los resultados del Programa.
-13) Proponer a las autoridades superiores los convenios. contratos. cartas de entendimiento y cualquier otro instrumento legal necesario para el mejor desempeño de las funciones.
-14 ) Velar por la permanente integración de las acciones de investigación y extensión agrícola. y por el fortalecimiento de mecanismos de coordinación interinstitucional para proporcionar en forma integrada los servicios a los productores.
-15) Las demás que se le asignen.
+Artículo 41.-A los Comités Sectoriales Regionales Agropecuarios les corresponderá:
+a) Identificar las necesidades regionales mediante estudios de diagnósticos, evaluaciones sobre acciones o proyectos y de la experiencia de los técnicos que trabajan directamente con los productores.
+b) Buscar soluciones a sus problemas compatibilizando los criterios que reciban de SEPSA sobre los objetivos y políticas sectoriales regionales.
+c) Decidir las prioridades regionales para el desarrollo de actividades, dentro del marco de objetivos sectoriales.
+ch) Elaborar el Plan Sectorial Regional con acciones y metas de mediano o corto plazo, según corresponda, con el propósito de orientar sus esfuerzos y asignar los recursos de fomento sectorial en la región.
+d) Dar seguimiento a las acciones señaladas dentro de la programación establecida, para lograr una eficaz integración y cumplimiento de las políticas y mejorar la acción de los organismos participantes.
+e) Elaborar el programa regional de zonificación agropecuaria en forma conjunta con SEPSA y utilizarlo .como instrumento orientador en cuanto a:
+1. Concesión del crédito.
+2. Los programas del Fondo Nacional de Contingencias Agrícolas y Seguro Integral de Cosechas.
+3. La ejecución de proyectos de desarrollo productivo en áreas y productos de nueva explotación.
+4. La selección, otorgamiento y desarrollo de planes de explotación en parcelas de tierra para los beneficiarios del Instituto de Desarrollo Agrario (IDA).
+f) Establecer los requerimientos o necesidades específicas en materia de servicios de apoyo a la producción para que los mismos sean considerados en la definición de las políticas sectoriales.
+g) Participar en la formulación del componente regional de los programas nacionales de desarrollo productivo.
+h) Ejecutar, mediante la integración de grupos de trabajo con participación pública y privada, los componentes regionales de los planes, programas o proyectos que se desarrollan en la región.
+i) Formular y canalizar las solicitudes de financiamiento para estudios y proyectos específicos del Estado en cuanto al desarrollo agropecuario.
+j) Conocer, evaluar y pronunciarse sobre toda acción, plan, programa o proyecto que las instituciones públicas vinculadas al sector lleven a cabo en la región.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 32 al 41 actual).

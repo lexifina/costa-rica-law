@@ -1,1 +1,2 @@
-Artículo 33.-Para el cumplimiento de las acciones enunciadas anteriormente el Comité Sectorial Regional contará con la asesoría de SEPSA.
+Artículo 33.-Para la administración de los recursos financieros de los incisos b), c) y ch) del artículo anterior, se autoriza a SEPSA a abrir una cuenta especial en un Banco del Sistema Bancario Nacional. La programación presupuestaria de estos recursos será revisada y aprobada por la Contraloría General de la República.
+(Así adicionado mediante el artículo 1° del decreto ejecutivo N° 21093 del 9 de enero de 1992).

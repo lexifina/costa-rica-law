@@ -1,11 +1,12 @@
-Artículo 121.-EI Departamento de Administración y Finanzas tendrá las siguientes funciones:
-a) Administrar los recursos externos y de contrapartida dirigidos a financiar programas o proyectos de cooperación técnica y financiera de la Institución.
-b) Ejecutar los presupuestos de los proyectos con financiamiento externo y coordinar con la Proveeduría de la Institución la adquisición de los bienes y servicios que se deriven de tales presupuestos.
-c) Preparar y presentar los informes técnicos y financieros-contables que requieran los organismos financieros y las entidades contraloras nacionales.
-d) Formular los procedimientos y normas administrativo-financieros mediante los cuales se regirán todos los niveles estructurales, en colaboración con el Departamento Financiero del Ministerio.
-e) Controlar. inspeccionar y supervisar la correcta y permanente aplicación de dichos procedimientos y normas.
-f) Apoyar. asesorar y ejecutar todas las disposiciones administrativas y financieras emanados por la Dirección.
-g) Mantener una estrecha coordinación con las áreas afines de que dispone la Dirección Superior Administrativa de la Institución.
-h) Someter la ejecución contable, presupuestaria y sus modificaciones de los proyectos que se administran.
-i) Coordinar con los Inspectores Administrativos el inventario de bienes que se adquieran mediante los diferentes proyectos.
-j) Planear. dirigir, coordinar y controlar las actividades administrativas necesarias para la correcta aplicación de los recursos.
+Articulo 121.-La Unidad de Bodega tendrá las siguientes funciones:
+1) Planificar, dirigir y controlar el proceso de recepción, almacenamiento y distribución de materiales.
+2) Participar en la elaboración del plan anual de suministros.
+3) Recibir los artículos conforme con las especificaciones de los documentos de compra y almacenar adecuadamente los bienes puestos bajo su custodia.
+4) Preparar y entregar los bienes almacenados conforme al documento de pedido en forma oportuna y eficiente.
+5) Informar a la Proveeduría periódicamente sobre los artículos que requieren reposición y el monto disponible en bodegas.
+6) Informar al Departamento de Proveeduría sobre aquellas mercancías rechazadas por no cumplir con las especificaciones de los documentos de compra,
+7) Confeccionar los documentos de ingreso y salidas de mercancías e informar sobre estos movimientos al Director Superior Administrativo.
+8) Mantener actualizado un inventario de los artículos existentes en bodega para que oriente las actividades de adquisición y distribución de materiales.
+9) Elaborar y mantener en perfecto estado de presentación las tarjetas para cada artículo de inventario conforme con las prescripciones del catálogo en cuenta códigos, descripción y unidad.
+10) La Unidad de Bodega estará sujeta a los controles de auditorias internas fiscales conforme con las disposiciones legales correspondientes.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 112 al 121 actual).

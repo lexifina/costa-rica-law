@@ -1,15 +1,2 @@
-De sus funciones
-Artículo 22.-Le corresponderá a la SEPSA desempeñar las siguientes funciones:
-a) Elaborar el proyecto del Plan Nacional de Desarrollo Agropecuario debiendo compatibilizar las iniciativas y aportes de las unidades de planificación de las instituciones del sector.
-b) Atender los lineamientos del Plan Nacional de Desarrollo que corresponden al sector, armonizándolos con las políticas regionales y con las directrices que emanen del Ministro de Agricultura y Ganadería y del CAN.
-c) Mantener estrecha coordinación y colaboración sectorial del Ministerio de Planificación Nacional y Política Económica y las unidades de planificación de las Instituciones del Sector
-ch) Realizar diagnósticos y estudios básicos para los procesos de planificación y conducción del desarrollo del sector. Elaborar. proponer y dar seguimiento a las políticas, planes y programas sectoriales.
-d) Coordinar el Programa de Zonificación Agropecuaria (citado en el artículo 5° de FODEA) y las acciones institucionales dirigidas a apoyar dicho programa.
-e) Asesorar a los comités sectoriales regionales agropecuarios en la elaboración de diagnósticos regionales sectoriales.
--La formulación de planes. programas o propuestas regionales en concordancia con el marco orientador de objetivos y políticas sectoriales nacionales. El seguimiento de los planes, programas o acciones propuestas de naturaleza agropecuaria, que se desarrollen en la región.
--En la identificación de las necesidades prioritarias de apoyo a la producción regional (financiamiento. investigación. etc.).
--En el proceso de identificación. formalización y seguimiento de los programas y proyectos de inversión y de cooperación técnica y financiamiento internacional de acuerdo con la política nacional sectorial y regional. labor que se lleva a cabo en coordinación con los responsables de la dicha área en MIDEPLAN.
--Coordinar la Red de Información Agropecuaria. la cual la integrarán las oficinas de estadísticas, bibliotecas, centros de documentación. centros de procesamiento electrónico de datos y departamentos de publicación de las instituciones relacionadas con la actividad agropecuaria que en adelante se denominarán unidades de información. con el fin de captar, procesar y diseminar la información que estas generen.
-f) SEPSA como coordinador de la Red de Información Agropecuaria deberá recomendar las políticas sobre normas metodológicas y procedimientos mejorados para el manejo de la información de los organismos nacionales para su integración en sistemas nacionales e internacionales dentro de lo que se denominará el Sistema de Información Agropecuaria.
-g) Recibir de las instituciones que integran el Sector una copia como mínimo de toda publicación técnica y administrativa que elaboren.
-h) A solicitud del Ministro Rector corresponde a sus funcionarios representado en comisiones y eventos de naturaleza sectorial e intersectorial y cualquier otra que el Ministro Rector le encomiende.
+Artículo 22.-La Secretaría Ejecutiva de Planificación Sectorial Agropecuaria para fines administrativos funcionará adscrita al Ministerio de Agricultura y Ganadería pero funcionalmente fuera de éste sin duplicar las tareas propias de la respectiva Dirección de Planificación del Ministerio.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 21093 del 9 de enero de 1992).

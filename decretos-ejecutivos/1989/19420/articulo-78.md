@@ -1,15 +1,16 @@
-Articulo 78.-Funciones del Departamento de Economía de Mercados:
-1) Determinación y análisis de la demanda en hogares. servicios. instituciones y agroindustria.
-2) Realizar balances oferta-demanda a fin de orientar la producción nacional.
-3) Realizar estudios de mercado con el fin de orientar la producción nacional de acuerdo con las necesidades de los mercados.
-4) Realizar estudios sobre precios de insumos. su análisis y mantener un sistema de información al respecto.
-5) Detectar problemas de mercado y mercadeo en las regiones del país con el fin de analizarlos y buscarle soluciones.
-6) Divulgación de la información analizada y procesada a los distintos niveles.
-7) Formulación de proyectos y estudios relacionados con la comercialización de productos hortifrutícolas. con problemas internos de mercadeo. o con perspectivas de exportación.
-8) Evaluación de proyectos que en sus componentes contemplen aspectos de mercado y mercadeo.
-9) Elaborar estudios de costos de producción sistemáticos para productos perecederos para consumo nacional y/o para exportación.
-10) Determinar los costos de comercialización para productos hortifrutícolas. Desde las zonas de producción hasta los diferentes mercados. detectando asimismo los problemas que inciden directamente en estos costos.
-11) Coordinar aquellos proyectos especiales que le asignen las autoridades superiores.
-Para ejecutar esas funciones el Departamento de Economía de Mercados cuenta con dos secciones:
-a) Sección de Estudios de Mercado y Precios de Insumos y;
-b) Sección de Determinación y Análisis de Demanda.
+De la Dirección General de Recursos Pesqueros y Acuacultura
+Articulo 78.-Son funciones y atribuciones de la Dirección General de Recursos Pesqueros y Acuacultura:
+1) Elaborar directrices que enmarquen y estimulen el desarrollo armónico, para ser sometidos a conocimiento y aprobación del Ministro.
+2) Elaborar en base a directrices aprobadas por el Ministro los programas de trabajo a nivel nacional que corresponde desarrollar al Ministerio por si o en coordinación con otras instituciones del Estado u organismos internacionales.
+3) Elaborar con base en las directrices los planes anuales operativos.
+4) Colaborar estrechamente con el Coordinador Nacional del Subsector Pesca, en todas aquellas acciones que se implementen.
+5) Velar porque los proyectos regionales cumplan con los lineamientos aprobados en el plan anual operativo.
+6) Supervisar la ejecución de los proyectos de trabajo y verificar que se cumplan en los objetivos y metas propuestas para cada proyecto.
+7) Recibir, analizar e interpretar la información generada en la ejecución de los proyectos y las actividades del personal regional y dar a conocer los resultados obtenidos a nivel nacional.
+8) Proponer los proyectos de decretos que requieran los programas de ordenamiento, manejo y conservación de los recursos naturales, comprendidos dentro del Subsector Pesca.
+9) Otorgar permisos para el ejercicio de la pesca y caza marina, comercio, transporte e industrialización de los productos de la misma, mediando de previo resolución del Poder Ejecutivo.
+10) Llevar el registro a que se refiere el artículo 8'1 de la ley N° 190 de 28 de setiembre de 1948.
+11) Atender las consultas de los interesados sobre la materia relativas a la pesca y la acuacultura y proporcionar la asistencia técnica requerida para los casos acogidos por el Ministerio de Agricultura y Ganadería.
+12) Organizar eventos técnicos y científicos aprobados en el plan anual operativo.
+13) Producir "semilla" mejorada para ser suplida a los productores en proyectos acuícolas.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 69 al 78 actual).

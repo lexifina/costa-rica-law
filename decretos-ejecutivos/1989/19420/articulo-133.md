@@ -1,1 +1,2 @@
-Artículo 133.-En aquellos cantones donde existan grupos organizados de productores agropecuarios, legalmente constituidos, estos podrán designar en conjunto hasta dos representantes para integrar la Junta Directiva del Centro Agrícola Cantonal. En el caso de existir un sólo grupo organizado, podrá designarse un solo representante ante la Junta Directiva del Centro Agrícola.
+Artículo 133.-La Dirección de Recursos Externos y la Unidad de Cooperación Técnica dependerán de la Dirección Superior Administrativa.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 124 al 133 actual).

@@ -1,3 +1,2 @@
-TITULO IV
-Capítulo único
-Artículo 139.-EI pequeño y mediano productor será beneficiado de la asistencia técnica y tecnológica para el desarrollo de sus actividades agropecuarias que el Ministerio realiza a través de su estructura regionalizada.
+Artículo 139.-Los Centros Agrícolas Cantonales. de conformidad con lo establecido en el artículo 125, deberán presentar formal solicitud escrita a la Confederación de Federaciones, sobre los aspectos prioritarios en los cuales requiera asistencia para el cumplimiento de sus fines. La Confederación estudiará la solicitud y de conformidad con su disponibilidad de recursos, en un plazo no mayor a un mes, procederá a contestar la solicitud presentada, de ser negativa, fundamentará los motivos por los cuales no puede brindar la asistencia solicitada.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 130 al 139 actual).

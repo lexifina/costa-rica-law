@@ -1,8 +1,10 @@
-Artículo 93.-Las Unidades de Planificación de las Direcciones Nacionales tendrán las 'siguientes funciones:
-1) Participar en la formulación, seguimiento y evaluación de los programas nacionales que den respuesta a las políticas y estrategias dictadas por el Despacho Ministerial.
-2) Elaborar el Programa de Trabajo de la Dirección Nacional respectiva.
-3) Dar seguimiento y evaluación a los programas y proyectos de la Dirección respectiva. .
-4) Recopilar la información por programas para mantener actualizado el sistema de información.
-5) Asesorar y participar en la identificación de programas y proyectos nacionales y cuando estos no estén incluidos en las políticas institucionales, elevar por medio del Director Nacional, la propuesta correspondiente a las autoridades superiores.
-6) Ejercer la Secretaría del Comité Técnico de la Dirección respectiva.
-7) Asesorar al Director en materia de su competencia.
+Artículo 93.-El Comité Técnico Regional (COTER) estará dirigido por el Director Regional. con la participación del Subdirector, la Unidad de Planificación y de los Jefes Regionales de Programa.
+Este Comité tendrá como sus principales funciones las siguientes:
+a) Analizar la problemática agropecuaria y de recursos naturales a nivel regional.
+b) Elaborar el programa regional que integre todas las acciones que la Institución llevará a cabo en la región como respuesta a los problemas detectados y a las directrices dictadas a nivel nacional.
+c) Coordinar la ejecución de los diferentes programas regionales con el fin de evitar duplicidades y mejorar instancialmente la eficiencia de los servicios prestados por la Institución.
+d) Dar seguimiento y evaluar en forma integral el desarrollo del programa regional y sugerir al Director las modificaciones necesarias.
+e) Actuar como órgano de consulta y asesoría a nivel del Director Regional.
+f) A través del servicio de vigilancia, velar por el resguardo y seguridad de los bienes de la región.
+g) Apoyar al personal en la realización de los trámites referentes a recursos humanos.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 84 al 93 actual).

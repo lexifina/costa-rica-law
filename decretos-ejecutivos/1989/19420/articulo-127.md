@@ -1,2 +1,10 @@
-Artículo 127.-Se entenderá por presupuesto, sujeto al pago del uno por ciento los recursos comprendidos en el artículo 8 de la Ley Constitutiva de los Centros Agrícolas Cantonales, Ley N° 4521 del 26 de diciembre de 1969.
-No estarán afectos al pago mencionado los créditos otorgados a los Centros Agrícolas Cantonales de cualquier clase que estos sean, ni las rentas o retribuciones obtenidas con base en tales créditos.
+Artículo 127.-La Dirección de Recursos Externos estará a cargo de un Director y un Subdirector y tendrá las siguientes funciones:
+a) Actuar como órgano especializado de las actividades relacionadas con el trámite y administración de empréstitos externos, donaciones y programas de cooperación técnica (nacionales e internacionales).
+b) Coordinar con la Dirección de Planificación y demás Direcciones Técnicas del Ministerio, el desarrollo de los proyectos de cooperación técnica y financiera (empréstitos y donaciones).
+c) Orientar, coordinar, participar en conjunto con la Dirección de Planificación en la identificación y definición de los programas, proyectos y actividades relacionadas con la cooperación técnica externa del Ministerio de Agricultura y Ganadería.
+d) Participar y colaborar en conjunto con la Dirección de Planificación en la identificación, negociación y elaboración de proyectos.
+e) Incrementar la capacidad institucional en asuntos relacionados con los proyectos de cooperación técnica y financiera para lograr el uso racional de los recursos y la ejecución oportuna de los mismos.
+f) Asesorar en el área de su competencia a los niveles superiores de la Institución.
+g) Planear, dirigir, coordinar y controlar las actividades técnico-administrativas necesarias para la correcta aplicación de los recursos externos.
+h) Las demás que se le asignen.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 118 al 127 actual).

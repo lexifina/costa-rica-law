@@ -1,2 +1,7 @@
-Artículo 25.-El adiestramiento del personal de SEPSA es atribución exclusiva del Ministro de Agricultura y Ganadería y el Director Ejecutivo de SEPSA. Para tal fin SEPSA atenderá lo establecido por el Estatuto del Servicio Civil en esta materia.
-El personal técnico y administrativo de carácter regular de SEPSA será nombrado por el Ministro de Agricultura y Ganadería. atendiendo la recomendación del Director Ejecutivo de SEPSA.
+Artículo 25.-La Secretaría Ejecutiva de Planificación Sectorial Agropecuaria para el cumplimiento de sus funciones estará estructurada como una Dirección Superior e integrada por las siguientes Direcciones:
+Programación Sectorial y Coordinación Institucional
+Estudios Básicos
+Gasto Público e Inversión Sectorial
+Información Estadística
+Además contará una Asesoría Legal, y una Unidad Administrativa dependiente de la Subdirección.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 21093 del 9 de enero de 1992).

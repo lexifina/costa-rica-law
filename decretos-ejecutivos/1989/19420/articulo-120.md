@@ -1,16 +1,12 @@
-Artículo 120.-EI Departamento de Programas y Proyectos, tendrá las siguientes funciones:
-a) Gestionar ante organismos de financiamiento, los fondos que complementen los recursos nacionales para que la Institución pueda ejecutar eficientemente sus programas y proyectos agropecuarios.
-b) Identificar en conjunto con las Direcciones Técnicas Administrativas y de Apoyo, en coordinación con la Dirección de Planificación, las necesidades de financiamiento externo y de cooperación técnica internacional o nacional y con base en ello, elaborar el programa de financiamiento y cooperación técnica institucional, en concordancia con las políticas sectoriales y ministeriales vigentes.
-c) Asesorar en el ámbito de su acción, a las Direcciones Técnicas Administrativas y de Apoyo, que tengan a cargo la elaboración .de los proyectos de cooperación técnica y financiera.
-d) Coordinar y colaborar en conjunto con la Dirección de Planificación, con las diferentes Direcciones Técnicas, Administrativas y de Apoyo, en la identificación, formulación y negociación de proyectos de cooperación técnica y financiera.
-e) Coordinar con las diferentes Direcciones Técnicas y Administrativas, la atención de las misiones técnicas. de las instituciones, organizaciones u organismos que otorguen cooperación técnica a la Institución.
-f) Dar seguimiento y supervisar los proyectos de cooperación técnica y de financiamiento que se encuentren en sus diferentes etapas.
-g) Mantener en registro los planes operativos de los proyectos de cooperación técnica y financiera en coordinación con la Dirección de Planificación y las entidades técnicas ejecutoras, a fin de ajustar dichos planes a los recursos disponibles.
-h) Elaborar en consultas con las entidades técnicas ejecutoras los presupuestos anuales de cooperación técnica y financiera y efectuar los trámites de aprobación que correspondan.
-i) Dar seguimiento a la ejecución de los planes anuales y presupuestos de los proyectos de cooperación técnica y financiera, tanto en los aspectos técnicos como financieros en cuanto a la consecución de sus objetivos y metas.
-j) Colaborar con la Dirección de Planificación en la evaluación periódica de los proyectos que realicen las direcciones que tengan a su cargo la ejecución de las mismas.
-k) Mantener un Inventario y registro permanente de los proyectos de cooperación técnica y financiera.
-l) Mantener actualizada toda la información técnica, administrativo-financiera que generen los diferentes proyectos.
-m) Apoyar. asesorar y ejecutar todas las disposiciones administrativas y financieras emanadas por la Dirección.
-n) Coordinar las tareas relativas a la Institución y a la prestación de servicios administrativos que requieran misiones o expertos.
-o) Suministrar al Departamento Financiero la información disponible sobre el aporte económico que se realice al amparo de la cooperación técnica.
+Artículo 120.-Son funciones del Departamento de Suministros las siguientes:
+1) Tramitar las licitaciones públicas, privadas y compras directas de la Institución a través de presupuesto ordinario, cuentas especiales y proyectos especiales.
+2) Atender todo lo relativo a desalmacenajes de mercadería, equipos y vehículos consignados al Ministerio de Agricultura y Ganadería en las diferentes aduanas del país, en coordinación con las direcciones del Ministerio de Agricultura y Ganadería, programas y proyectos especiales en la Institución.
+3) Registrar todos los bienes que adquiere la Institución y velar por la custodia.
+4) Mantener un archivo actualizado de todos los trámites efectuados por la Institución en la adquisición de bienes y materiales.
+5) Llevar un registro de aquellos bienes y materiales que por su naturaleza son adquiridos por convenios especiales con otros países y que posteriormente serán patrimonio del Ministerio de Agricultura y Ganadería.
+6) Mantener un inventario. de todos los bienes y materiales que se encuentran en las diferentes bodegas a su cargo.
+7) Velar porque las disposiciones de la Contraloría General de la República, Ley de la Administración Financiera y leyes conexas, en materia de proveeduría se cumplan.
+8) Sugerir modificaciones sobre los procedimiento que se encuentren obsoletos.
+9) Comunicar a todos los funcionarios del Ministerio de Agricultura y Ganadería las modificaciones a los procedimientos de proveeduría en coordinación con la Dirección Superior Administrativa.
+10) Las demás que se le asigne.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 21093 del 9 de enero de 1992, que lo traspasó del antiguo 111 al 120 actual).
