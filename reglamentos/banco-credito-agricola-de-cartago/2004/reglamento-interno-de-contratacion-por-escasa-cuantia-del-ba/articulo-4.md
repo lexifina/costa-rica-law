@@ -1,0 +1,1 @@
+Artículo 4º—Se excluye de la limitación del monto máximo establecido en el artículo 3º, los pagos que debe realizar el Banco por concepto de servicios públicos (servicios municipales, servicios de energía eléctrica, servicios telefónicos, impuestos, timbres y otros) y transferencias corrientes, debidamente aprobados en el presupuesto ordinario.

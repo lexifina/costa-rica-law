@@ -1,0 +1,1 @@
+Artículo 8º—Queda prohibido fraccionar la adquisición de bienes y servicios, así como de autorizar gastos sin contenido presupuestario. Se considerará falta grave el incumplimiento de estas disposiciones.
