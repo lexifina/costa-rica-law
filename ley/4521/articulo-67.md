@@ -1,0 +1,1 @@
+Artículo 67.—Al concluir el trámite de liquidación referido en este título, la Confederación Nacional de Centros Agrícolas cancelará la inscripción respectiva y tres veces consecutivas publicará dicha orden en "La Gaceta".

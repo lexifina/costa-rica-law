@@ -1,4 +1,9 @@
 N° 4521
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
-Artículo 1º.-Los Centros Agrícolas Cantonales se establecen con el objeto de promover la participación de la población local en el planeamiento y ejecución de programas tendientes al desarrollo de la agricultura nacional, a fin de asegurar la eficiencia de la agricultura y el mejoramiento del bienestar social de la comunidad.
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra por el artículo único de la ley N° 7932 del 28 de octubre de 1999, y se reproduce a continuación:)
+TÍTULO I
+LOS CENTROS AGRÍCOLAS
+CAPÍTULO ÚNICO
+DISPOSICIONES GENERALES
+Artículo 1.- Decláranse de interés público la existencia, la constitución y el funcionamiento de los centros agrícolas.

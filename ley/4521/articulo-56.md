@@ -1,0 +1,1 @@
+Artículo 56.- La Fiscalía de la Confederación Nacional de Centros Agrícolas estará a cargo del Comité de Fiscalización, conformado por un cuerpo de tres asociados, de reconocida honorabilidad y capacidad, electos por la Asamblea General por un período de dos años, quienes podrán ser reelegidos.

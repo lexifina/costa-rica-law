@@ -1,0 +1,1 @@
+Artículo 53.- La Confederación Nacional de Centros Agrícolas será el organismo que ostente la representación de los centros agrícolas. Su domicilio legal será el cantón Central de San José y podrá abrir oficinas en todo el país.

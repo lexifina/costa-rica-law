@@ -1,0 +1,2 @@
+Artículo 27.- Cuando un centro agrícola cuente con más de quinientos afiliados, podrá celebrar la Asamblea General con la presencia de delegados, quienes representarán a los afiliados. Para estos fines, se designará a un delegado propietario y uno suplente por cada quince afiliados.
+Al designar los delegados, deberá existir representación de todos los distritos donde haya afiliados. El procedimiento de designación de los delegados se establecerá en el reglamento de la presente ley.
