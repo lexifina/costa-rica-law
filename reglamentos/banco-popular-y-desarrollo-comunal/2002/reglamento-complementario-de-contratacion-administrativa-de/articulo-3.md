@@ -1,0 +1,2 @@
+Artículo 3º—Órganos competentes. La tramitación de las contrataciones administrativas que celebre la Operadora estará a cargo de su Unidad de Compras o de la persona encargada, conforme a las disposiciones del presente Reglamento y los procedimientos definidos.
+Excepcionalmente, bajo razones debidamente justificadas, la Junta Directiva podrá encargar la tramitación de contrataciones administrativas a otras dependencias de la Operadora, las cuales deberán sujetarse a las disposiciones de este Reglamento.

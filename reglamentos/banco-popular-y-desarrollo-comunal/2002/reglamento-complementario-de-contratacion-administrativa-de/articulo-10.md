@@ -1,0 +1,2 @@
+Artículo 10.—Conformación del Comité de Licitaciones. Cuando se trate de contrataciones de cuantía superior al límite establecido a la Operadora por la Contraloría General de la República para las licitaciones restringidas, el Comité de Licitaciones estará integrado por el Gerente General o su asistente, quien lo presidirá, el Jefe del Departamento de Servicio al Cliente y el Jefe del Departamento de Administración.
+Asimismo podrá participar un abogado para brindar la asesoría jurídica en sus acuerdos.

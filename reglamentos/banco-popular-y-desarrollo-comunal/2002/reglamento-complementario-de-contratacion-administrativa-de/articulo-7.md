@@ -1,0 +1,2 @@
+Artículo 7º—Confección de carteles. En las distintas contrataciones que promueva la Operadora, el área usuaria deberá hacer llegar a la Unidad de Compras un borrador de cartel, el cual deberá contener una descripción clara y precisa de los bienes o servicios por adquirir, plazos y demás requisitos.
+Cuando la publicación consista en un extracto del cartel, esta contendrá, al menos, lo indicado en los numerales 45.1.1 a 45.1.4 del Reglamento General de Contratación Administrativa.

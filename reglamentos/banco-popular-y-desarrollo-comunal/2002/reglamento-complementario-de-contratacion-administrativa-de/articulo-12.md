@@ -1,0 +1,2 @@
+Artículo 12.—Subcontratación. En casos muy calificados a juicio de la Operadora, y previo consentimiento, motivado y por escrito del órgano que adjudicó, el adjudicatario podrá subcontratar aspectos del contrato que requieran de especialización, siempre y cuando el valor de la suma de los diferentes convenios de subcontratación no exceda del cincuenta por ciento del monto del contrato.
+En estos casos, tanto el contratista como el subcontratista serán solidariamente responsables ante la Operadora respecto a la materia subcontratada.

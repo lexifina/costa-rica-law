@@ -1,0 +1,1 @@
+Artículo 16.—Comisión de multas. En los contratos que contemplen la cláusula penal, esta no se aplicará cuando el incumplimiento haya sido causado por fuerza mayor debidamente documentada por el adjudicatario, dentro de los cinco días naturales siguientes al cese de la fuerza mayor, y cuente con la aprobación del Comité de Licitaciones.
