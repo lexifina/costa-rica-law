@@ -4,11 +4,11 @@ la República, por medio del Poder Ejecutivo, y que ingresa a la Caja
 Unica, se traslada a la Caja Costarricense de Seguro Social; ésta la
 percibirá directamente y la aplicará al pago de las cuotas que el Estado
 debe cubrir como tal y como patrono, en los regímenes de enfermedad y
-maternidad y de invalidez, vejez y muerte. De la suma total de
-impuestos, que por esta ley se le traslada, la Caja deberá destinar dos
-millones de colones (¢ 2.000,000.0 0) por año, por medio de cuotas
-mensuales proporcionales, al Consejo Nacional de Producción. Estas sumas
-serán giradas por la Caja directamente al Consejo y éste las aplicará,
+maternidad y de invalidez, vejez y muerte. De la suma total de impuestos,
+que por esta ley se le traslada, la Caja deberá destinar dos millones de
+colones (¢ 2.000,000.0 0) por año, por medio de cuotas mensuales
+proporcionales, al Consejo Nacional de Producción. Estas sumas serán
+giradas por la Caja directamente al Consejo y éste las aplicará,
 exclusivamente, a financiar los programas de servicio público destinados
 a garantizar la sanidad en el sacrificio de ganado, el suministro de
 carne para el consumo local y la regulación de sus precios. Si dichos

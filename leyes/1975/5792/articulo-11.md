@@ -1,11 +1,2 @@
-Artículo 11.- El gravamen a que se refiere el artículo 10 de esta
-ley será recaudado, mediante el procedimiento establecido por el Decreto
-Ejecutivo número 2881-H de 5 de marzo de 1973, reformado por el Decreto
-Ejecutivo Nº 3804-H de 23 de mayo de 1974, salvo la porción
-correspondiente al impuesto hospitalario, que se cancelará por el sistema
-vigente para el pago de dicho tributo.
-Sin perjuicio del sistema de recaudación, que se señala en este
-artículo, las cervecerías quedarán autorizadas a diferir hasta por
-treinta y dos días el pago del impuesto, con el objeto de que la
-cancelación del gravamen se realice una vez recuperado por éstas el valor
-de los créditos otorgados a los expendedores.
+Artículo 11.- El gravamen a que se refiere el artículo 10 de esta ley, será recaudado mediante el procedimiento establecido en el decreto ejecutivo Nº 2881-H del 5 de marzo de 1973, reformado por el Nº 3804-H del 23 de mayo de 1974. Sin que se afecte el sistema de recaudación, señalado en este artículo, las cervecerías estarán autorizadas para retardar el pago del impuesto hasta por treinta y dos días, con el objeto de que se realice la cancelación del gravamen, una vez que las cervecerías hayan recuperado el valor de los créditos otorgados a los expendedores.
+(Así reformado por el artículo 35 de la Ley Nº 6735 de 29 de marzo de 1982)
