@@ -1,0 +1,1 @@
+Artículo 14.- Las viviendas escolares constituyen una necesidad para la prestación del servicio educativo y como tales, de conformidad con lo que dispone el artículo 9° de la Ley de Salarios de la Administración Pública, constituyen una prestación a título gratuito por lo que no representan salario en especie ni configuran derechos adquiridos de ninguna naturaleza.

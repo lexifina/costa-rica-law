@@ -1,0 +1,1 @@
+Artículo 3°.- Los educadores favorecidos con la concesión del uso de una vivienda podrán en caos bien justificados y con el previo consentimiento de la autoridad ministerial correspondiente cohabitar con su familia o familiares, las vivienda que le ha sido asignada.

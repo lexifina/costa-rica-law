@@ -1,0 +1,1 @@
+Artículo 4°.- El otorgamiento o la renovación de la concesión del uso de la vivienda lo hará anualmente la Administración Central del Ministerio y será comunicada al servidor por medio de las Direcciones Regionales de Enseñanza respectivas, las cuales tendrán a su cargo la responsabilidad de velar por la aplicación de las disposiciones que establece este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 8°.- Salvo en las escuelas de maestro único o en aquellas en que sólo un miembro del personal requiere del servicio, las viviendas deberán ser compartidas, en forma exclusiva, por el personal docente y docente administrativo de los centros educativos del Ministerio de Educación.

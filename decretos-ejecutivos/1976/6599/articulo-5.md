@@ -1,0 +1,1 @@
+Artículo 5°.- Del cumplimiento de los deberes y prohibiciones que establece este reglamento será directamente responsable el servidor que haga uso de la vivienda o aquella persona usuaria que haya sido designada para tales efectos. Todo lo anterior sin perjuicio de la responsabilidad que a cada uno de los usuarios correspondieres.

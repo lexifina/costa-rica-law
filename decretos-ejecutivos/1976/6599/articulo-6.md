@@ -1,0 +1,1 @@
+Artículo 6°.- Cuando existan varios educadores con derecho de habitar la vivienda, ésta no podrá ser adjudicada con carácter exclusivo a un solo servidor. Sin embargo, la responsabilidad por el buen uso de la vivienda recaerá en uno de los educadores quien será expresamente designado por la Administración Central del Ministerio.
