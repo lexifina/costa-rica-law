@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE ALAJUELITA
+La municipalidad del cantón de Alajuelita, comunica a los estimables vecinos y público en general, que de conformidad con el acuerdo tomado en la sesión N° 139 ordinaria, celebrada el día 24 del mes de octubre del año en curso, a partir de la publicación del presente aviso en el Diario Oficial La Gaceta entrarán en vigencia los siguientes reglamentos: a) Reglamento para el Cobro Administrativo y Judicial. B) Reglamento para el Cobro de Tarifas por las Omisiones a los Deberes de los Propietarios de Inmuebles Localizados en el Cantón de Alajuelita, cuyos textos íntegros fueron publicados en La Gaceta N° 182 del 22 de setiembre del 2000 y La Gaceta N° 183 del 25 de setiembre del 2000 respectivamente y por un plazo de 10 días hábiles sin haberse recibido ninguna objeción a los mismo.
+Alajuelita, 31 de enero del 2001.
+(Nota de Sinalevi: Tal como se indica en el párrafo anterior el reglamento para el Cobro Administrativo y Judicial corresponde al publicado como proyecto en la Gaceta N° 183 del 25 de setiembre del 2000, por lo que se transcribe a continuación:)
+REGLAMENTO PARA EL COBRO
+ADMINISTRATIVO Y JUDICIAL
+De conformidad con lo establecido por el artículo 74 de la Ley N° 7794 del 30 de abril de 1968, debidamente aprobado por acuerdo tomado en la sesión N° 113 ordinaria celebrada el día 25 de abril del año en curso, la Municipalidad del Cantón de Alajuelita, acordó en forma definitiva el siguiente Reglamento para el Cobro Administrativo y Judicial de las tasas e impuestos municipales de ese cantón
+CAPITULO I
+Disposiciones generales
+Artículo 1°.- Este Reglamento tiene por objeto establecer las normas, lineamiento y procedimientos aplicables a los contribuyentes de la Municipalidad de Alajuelita, tanto en sede administrativa, por parte de la oficina encargada de facturación, como en sede judicial, por parte del profesional en derecho encargado de las labores de cobro, para la recuperación de los saldos de las contribuciones, tasas e impuestos que los contribuyentes adeuden a la municipalidad.

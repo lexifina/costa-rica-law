@@ -1,0 +1,1 @@
+Artículo 15.- La Municipalidad no podrá recibir pagos, arreglos o cancelaciones de deudas pasadas a cobro en sede judicial, sin antes constatar la existencia del recibo correspondiente a los honorarios profesionales del abogado director del proceso de Cobro Judicial.

@@ -1,0 +1,1 @@
+Artículo 6°.- La Oficina de Facturación y Cobros está facultada para realizar arreglos de pago de los saldos adeudados por los contribuyentes excepto cuando la cuenta se encuentre en Cobro Judicial, caso en el cual le corresponderá al abogado designado al efecto.

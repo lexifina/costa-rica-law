@@ -1,0 +1,1 @@
+Artículo 21.- Una vez iniciado el proceso judicial solo podrá ser suspendido por el pago total de la deuda y las costas personales y procesales, o en virtud de arreglo de pago, previa cancelación de los honorarios profesionales, según lo establecido en este Reglamento.
