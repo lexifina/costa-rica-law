@@ -15,3 +15,4 @@ Reglamento de la Ley de Creación de Cargas Tributarias sobre licores, cervezas 
 | --- | --- | --- |
 | 1 | 2001-05-21 | la propia norma |
 | 2 | 2002-03-11 | Decreto Ejecutivo 30242 (2002-03-11) |
+| 3 | 2004-01-12 | Decreto Ejecutivo 31605 (2004-01-12) |
