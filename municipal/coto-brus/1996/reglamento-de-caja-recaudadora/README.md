@@ -14,3 +14,4 @@ Reglamento de Caja Recaudadora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-03 | la propia norma |
+| 2 | 1996-11-09 | Reglamento municipal 251 (1996-11-09) |
