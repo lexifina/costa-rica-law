@@ -1,0 +1,1 @@
+Artículo 10.-Los oyentes presentarán también los mismos atestados y cumplirán con las mismas formalidades; pero están dispensados de la presentación de los documentos indicados en el párrafo 2° del artículo anterior.

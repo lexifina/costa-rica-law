@@ -1,0 +1,1 @@
+Artículo 8 -Los estudiantes tendrán derecho á la obtención de los grados académicos títulos profesionales establecidos en cualquier Escuela, cuando se hayan conformado en todo á las disposiciones de la ley y de sus reglamentos.

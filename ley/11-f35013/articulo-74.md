@@ -1,0 +1,1 @@
+Artículo 74.-Los profesores llamarán al orden al estudiante que falte á sus deberes; pueden excluirlo de la lección y prolongar la exclusión hasta obtener decisión del Director de la Escuela. Este, en casos graves, dará cuenta al Presidente del Consejo Superior.

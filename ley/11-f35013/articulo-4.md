@@ -1,0 +1,3 @@
+Artículo 4°-El discurso se consignará, con la anticipación debida, en la Secretaría de la Escuela, para su impresión. Con el discurso se publicará:
+1°- La lista nominativa de los estudiantes y oyentes matriculados en el año precedente y la de los que hubiesen hecho exámenes anuales finales. De los estudiantes suspensos ó no aprobados se indicará el número, pero se callarán los nombres.
+2° -La lista nominativa de los profesores que enseñarán durante el año, con indicación de las asignaturas de cada uno. Se anotarán las variaciones de estas listas respecto de las anteriores; y cuando haya muerto algún profesor, irá adjunta una breve noticia de su vida y escritos, compilados por orden del Consejo.

@@ -1,0 +1,3 @@
+Artículo 19.-Recibido de la Secretaría el libreto de inscripción y un extracto del Reglamento, que contenga las disposiciones relativas á los derechos y deberes de los estudiantes, el estudiante se presentará al Director, el cual le entregará el plan de estudios y horario de la Escuela.
+En seguida ocurrirá el estudiante á los profesores cuyas lecciones quiera seguir, los cuales anotarán bajo su firma, en el libreto de inscripción, la fecha de la presentación del estudiante.
+Á más tardar, un mes después de la apertura de los cursos, todo estudiante consignará su libreto de inscripción con las firmas de los profesores, en la Secretaría, la cual hará las oportunas anotaciones en el registro de carrera escolar, y lo devolverá luego al estudiante.

@@ -1,0 +1,2 @@
+Artículo 59.-Los profesores están asimismo obligados á asistir á las reuniones del Consejo y á las conferencias de profesores; tomar parte en las comisiones examinadoras, á las cuales sean llamados; y desempeñar las comisiones de concursos para que fueren nombrados por el Ministerio o por el Consejo Superior.
+No pueden excusarse de tales obligaciones, por razón de ocupación ó profesión particular, ni hacerse subrogar sin autorización, ni cambiar el horario de sus lecciones á su arbitrio, ni por convenio con los estudiantes.

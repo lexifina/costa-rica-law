@@ -1,0 +1,2 @@
+Artículo 29.-El período de exámenes se divide en dos partes: la primera, al término del año escolar. y la otra, al principio del siguiente.
+En el segundo período se admitirán los estudiantes que, por causa justificada, no se presentaron durante el primer período, ó los que, habiendo sido reprobados en alguna de las materias del examen precedente, hubieran obtenido de la comisión examinadora licencia para reparar en el segundo la prueba fallida en el primero.
