@@ -1,0 +1,1 @@
+Art. 8°. Interpuesta la apelación por cualquiera de las partes, dentro de los tres días de notificada la sentencia, el Alcalde, sin más formalidad, pasará al Juez del Crimen una copia testimoniada del acta ó actas y la sentencia, con la razón al pié, de la parte que apeló, y del termino que se asignó para el emplazamiento, el cual no bajará de tres días, ni excederá de ocho.
