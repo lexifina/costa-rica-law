@@ -1,0 +1,1 @@
+Artículo 62.-La resolución final tendrá recurso de apelación para ante el Ministro, dentro de los tres días hábiles siguientes a la notificación y resolverá en definitiva el jerarca dentro de los tres días hábiles siguientes.

@@ -1,0 +1,1 @@
+Artículo 58.-La persona ofendida podrá poner en consideración del Órgano Instructor su reubicación temporal en la Institución en cualquier momento del proceso. El Órgano Director del procedimiento resolverá en única instancia la procedencia de la reubicación temporal solicitada.

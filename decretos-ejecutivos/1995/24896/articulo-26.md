@@ -1,0 +1,3 @@
+Artículo 26.-De las ausencias por motivo de enfermedad.
+Las ausencias por enfermedad deberán ser justificadas mediante incapacidad o certificado médico extendido por la Caja Costarricense del Seguro Social, el Instituto Nacional de Seguros o el Cuerpo Médico del Ministerio.
+El servidor regular, que fuere incapacitado para trabajar por enfermedad gozará de un subsidio equivalente al monto de su salario, no cubierto por la Caja Costarricense del Seguro Social o por el Instituto Nacional de Seguros. Quedará a juicio de la jefatura correspondiente la admisión de certificado extendido por médicos particulares, a fin de justificar las ausencias de los servidores, en cuyo caso no podrán ser superiores a un día y el funcionario no tendrá derecho a retribución salarial alguna.

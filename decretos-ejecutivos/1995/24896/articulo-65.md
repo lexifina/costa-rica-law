@@ -1,0 +1,1 @@
+Artículo 65.-EI resultado de la evaluación del desempeño, será un factor por considerar, aparte de la eficiencia, para efectos de adiestramiento y capacitación, ascensos, concesión de permisos y en la reducción forzosa de personal, entre otros.

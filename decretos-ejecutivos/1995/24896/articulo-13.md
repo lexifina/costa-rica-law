@@ -1,0 +1,2 @@
+Artículo 13.-De los servidores no sometidos a jornadas de trabajo.
+Se tendrán incluidos dentro de esta categoría aquellos servidores a que hace referencia el artículo 143 del Código de Trabajo y el artículo 4 del Estatuto del Servicio Civil de manera tal que su jornada ordinaria podrá ser hasta de diez horas y media diarias, con los respectivos descansos cuando la prestación del servicio lo requiera.

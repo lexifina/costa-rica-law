@@ -1,0 +1,2 @@
+Artículo 20.-Del servidor que marque una tarjeta que no le corresponde.
+El funcionario que en forma dolosa marque una tarjeta que no le corresponde, será sancionado, la primera vez con una suspensión de cuatro días y en el caso de incurrir en similar falta, esta será considerada como grave lo que acarreará el despido del mismo sin responsabilidad pecuniaria para el Ministerio. Igual sanción se aplicará al servidor cuya tarjeta resulte marcada por otra persona con su consentimiento.

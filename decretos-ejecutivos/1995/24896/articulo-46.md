@@ -1,0 +1,2 @@
+Artículo 46.-Las ausencias injustificadas no se pagarán.
+No se cancelará el salario correspondiente a las ausencias injustificadas, conforme a lo establecido en este Reglamento y la normativa vigente, sin perjuicio de la sanción disciplinaria correspondiente.

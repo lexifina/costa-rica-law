@@ -1,0 +1,1 @@
+Artículo 61.-En un plazo no mayor de treinta días naturales, contados desde la interposición de la denuncia, el Órgano Director emitirá el informe que trasladará al Viceministro, con las recomendaciones disciplinarias que considere aplicables, quien resolverá en definitiva, dentro de un plazo de tres días hábiles.
