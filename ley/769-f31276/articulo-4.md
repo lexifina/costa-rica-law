@@ -1,0 +1,1 @@
+Articulo 4°-Las tarifas por aterrizajes y por pernoctar incluyen todos los servicios del Gobierno en el Aeropuerto, hasta los de la Torre de Control, pero exceptuando los de informaciones meteorológicas, control de vuelos y comunicaciones, cuya tasa se fijará de IIegar a estar eI Gobierno en capacidad de darIos.

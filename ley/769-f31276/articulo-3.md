@@ -1,0 +1,1 @@
+Articulo 3°-Las tarifa por alquiler de piezas en el edificio y en la de Control, deberán ser pagadas por trimestres anticipados e incluyen los servicios de electricidad, pero únicamente para el alumbrado y para rótulos luminosos. Correrá por cuenta de los arrendatarios la limpieza y pintura de las piezas que ocupen, y el pago de la fuerza eléctrica que usen en otros menesteres.
