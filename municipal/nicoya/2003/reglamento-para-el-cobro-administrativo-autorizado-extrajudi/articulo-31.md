@@ -1,0 +1,4 @@
+Artículo 31.—La oficina de cobro podrá emitir dos clases de suspensiones de los procedimientos: a) suspensión definitiva y b) suspensión provisional.
+a) Se entiende por suspensión definitiva: La orden de finalización absoluta y consecuentemente la desestimación del cobro. Esta solo podrá realizarse cuando se haya cancelado la totalidad de la deuda municipal, así como los honorarios establecidos para la empresa o abogados cobradores y los gastos administrativos incurridos.
+b) Se entiende por suspensión provisional: cuando se da la orden de suspender el cobro de una deuda en la etapa de cobro administrativa o extrajudicial.
+Ambas suspensiones se harán por escrito y deberán estar firmadas por el jefe del departamento respectivo o el funcionaroi municipal asignado y será dirigida a la empresa o a los abogados que llevan el cobro.

@@ -1,0 +1,1 @@
+Artículo 4º—La Sección de Cobro Administrativo contará con el personal que requieran las necesidades del servicio y atenderá la organización del cobro de las obligaciones enunciadas en el artículo anterior.

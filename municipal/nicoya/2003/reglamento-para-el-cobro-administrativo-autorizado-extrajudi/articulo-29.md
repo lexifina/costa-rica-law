@@ -1,0 +1,1 @@
+Artículo 29.—Los abogados que por fuerza mayor no puedan atender el cobro, deberán comunicarlo a la administración con treinta días de anticipación y enviar la totalidad de los expedientes judiciales que tienen en su poder a la oficina de cobro.

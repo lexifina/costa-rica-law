@@ -1,0 +1,1 @@
+Artículo 16.—Entre la Municipalidad, la empresa cobradora, o en su caso el profesional en derecho contratado, no existe ninguna relación laboral ordinaria, por ende no genera responsabilidad de este tipo para el contratante. La relación será meramente de carácter contractual y será regida por los términos dispuestos en la Ley de Contratación Administrativa.

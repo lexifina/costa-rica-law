@@ -1,0 +1,1 @@
+Artículo 20.—El abogado deberá excusarse de atender la dirección de un juicio, cuando tuviere vínculo de consanguinidad o afinidad, incluso de amistad con el contribuyente moroso; lo cual comunicará por escrito a la oficina correspondiente de las cuarenta y ocho horas siguientes al recibo de la documentación de cobro.

@@ -1,0 +1,1 @@
+Artículo 35.—Este reglamento deberá ser aprobado por el Concejo Municipal y sancionado por el Alcalde, luego pasado este trámite, deberá ser publicado en el Diario Oficial La Gaceta, conforme a las disposiciones vigentes. Rige a partir de su publicación, fecha a partir de la cual, surtirá todos los efectos y alcances legales correspondientes.
