@@ -1,0 +1,1 @@
+Artículo 4°—El manejo de la fauna y flora silvestre y demás recursos naturales presentes en el área descrita quedará sujeto a criterio técnico de la Dirección General de Recursos Pesqueros y Vida Silvestre.

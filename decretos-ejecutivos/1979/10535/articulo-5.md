@@ -1,0 +1,1 @@
+Artículo 5°—Corresponderá al Instituto Geográfico Nacional la demarcación en el terreno de sus respectivos linderos y la publicación de un mapa de este Refugio de Fauna Silvestre, debiendo confeccionar así mismo un mosaico fotográfico del mismo.
