@@ -1,0 +1,1 @@
+Artículo 6°—Vigencia. Rige a partir de su comunicación.
