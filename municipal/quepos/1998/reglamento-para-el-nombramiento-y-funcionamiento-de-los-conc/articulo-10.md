@@ -1,0 +1,2 @@
+Artículo 10.—El Concejo Municipal creará una Comisión para atender en la forma exclusiva los asuntos de los Concejos de Distrito
+Esta Comisión estará integrada en la forma y términos establecidos por el Código Municipal y funcionará como órgano de coordinación de los tejos de Distrito, con el fin de prestarles la asistencia que proceda en los proyectos que sean de interés para su distrito o grupo de ellos, aislados o conjuntamente.
