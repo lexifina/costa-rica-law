@@ -1,0 +1,1 @@
+Artículo 14.—Obligaciones de los asegurados. Para acogerse a los servicios que se ofrecen en este reglamento se requiere que el asegurado directo o familiar cumpla con la presentación de la orden patronal, cédula de identidad o documento de similar rango y el carné de asegurado (Artículo 74 Reglamento de Salud).

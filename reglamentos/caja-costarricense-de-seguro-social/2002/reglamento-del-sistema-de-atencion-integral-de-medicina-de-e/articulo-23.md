@@ -1,0 +1,4 @@
+CAPÍTULO V
+Subsidios
+Artículo 23.—Incapacidades y licencias. El médico que presta sus servicios en el Sistema de Atención Integral de Medicina de Empresa podrá otorgar incapacidades en el formulario respectivo, de conformidad con lo establecido en el Reglamento para el Otorgamiento de Incapacidades y Licencias a los Beneficiarios del Seguro de Salud en los artículos 8 y 17 vigente para los profesionales de la Caja Costarricense de Seguro Social (C.C.S.S.). Dichas incapacidades se tramitarán en un plazo máximo de dos días a partir de la fecha en que fue formulada la recomendación en el centro o la unidad de adscripción del asegurado.
+Se incluye la autorización para la extensión de licencias por maternidad según lo expuesto en el Reglamento para el Otorgamiento de Incapacidades y Licencias a los Beneficiarios del Seguro de Salud en sus artículos 18, 19 y 20.

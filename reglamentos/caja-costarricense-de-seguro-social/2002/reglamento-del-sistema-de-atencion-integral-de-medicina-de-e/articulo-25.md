@@ -1,0 +1,2 @@
+Artículo 25.—Emisión de informes. Las diferentes empresas remitirán a la unidad de adscripción respectiva un informe mensual en el formulario respectivo, sin detrimento de lo establecido en el artículo anterior, en los primeros 5 días hábiles de cada mes.
+La dirección de la unidad a la cual están adscritos él o los proveedores, remitirá un informe ejecutivo y gerencial a la Dirección Técnica de Servicios de Salud, en forma mensual dentro de los diez primeros días hábiles de cada mes.

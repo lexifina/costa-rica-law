@@ -1,0 +1,2 @@
+Artículo 12.—Obligaciones de la empresa. Las empresas adscritas a este Sistema de Atención Integral de Medicina de Empresa proporcionarán la infraestructura y el recurso humano necesario, que asegure la calidad adecuada de los servicios de salud.
+Los profesionales adscritos y las empresas serán responsables del buen uso, de la confidencialidad de la información y de la custodia de la documentación entregada por la Caja Costarricense de Seguro Social (C.C.S.S.).

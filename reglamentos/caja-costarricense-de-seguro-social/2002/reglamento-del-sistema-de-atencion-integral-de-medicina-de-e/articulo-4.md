@@ -1,0 +1,1 @@
+Artículo 4º—Escogimiento de Profesionales. En el Sistema de Atención Integral de Medicina de Empresa, las empresas, libremente, escogerán y contratarán a los profesionales en ciencias médicas. Los profesionales en ciencias médicas deberán cumplir con los requisitos legales y reglamentarios que la legislación costarricense tenga establecido para el ejercicio de la profesión.

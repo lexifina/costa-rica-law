@@ -1,0 +1,4 @@
+Artículo 29.—Exclusión de responsabilidad. Por tratarse de un contrato privado entre la empresa y los profesionales en Ciencias Médicas o a persona jurídica correspondiente, la Caja Costarricense de Seguro Social no asume responsabilidad alguna de índole civil o de cualquier otro tipo, por el trabajo que los mismos desarrollen. Se entiende que la aceptación del médico y la empresa en el Sistema de Atención Integral de Medicina de Empresa, no les confiere ningún derecho subjetivo que les permita reclamar derechos adquiridos, en el evento de cancelárseles la autorización.
+Este Reglamento rige a partir del ... de ... del año 2002 y deroga el Reglamento del Sistema de Atención Integral de Salud Laboral y deroga el aprobado en el artículo 33°, Acuerdo segundo de la sesión número 7447, celebrada el 8 de junio del año 2000.
+Acuerdo firme".
+San José, 21 de marzo del 2002.—Emma C. Zúñiga Valverde, Secretaria Junta Directiva.

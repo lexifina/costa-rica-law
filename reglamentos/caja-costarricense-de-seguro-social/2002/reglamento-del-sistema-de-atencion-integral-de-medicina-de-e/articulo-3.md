@@ -1,0 +1,5 @@
+Artículo 3º—Ingreso al Sistema de Atención Integral de Medicina de Empresa. Para ingresar al Sistema de Atención Integral de Medicina de Empresa, la empresa interesada deberá formular la solicitud ante el director del Área de Salud, Clínica u Hospital de su adscripción, o en la oficina que el mismo asigne, en donde se recibirá la documentación correspondiente y se procederá a la revisión de los parámetros que se establezcan en el instructivo de este Sistema de Atención Integral de Medicina de Empresa.
+Posteriormente, se remitirá la información a la Oficina de los Sistemas Alternativos de Prestación de Servicios, adscrita a la Dirección Técnica de la Gerencia de División Médica para su análisis e inclusión en la base de datos.
+La autorización se divide en dos aspectos:
+a) Aceptación de la empresa y acreditación de la misma sobre la base de los parámetros que se establezcan en el instructivo de este Sistema de Atención Integral de Medicina de Empresa.
+b) De los profesionales en ciencias médicas mediante la acreditación del profesional. Las solicitudes deben ser tramitadas en forma independiente.
