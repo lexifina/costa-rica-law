@@ -1,0 +1,5 @@
+Artículo 18
+Derechos, privilegios e inmunidades
+i) El IPGRI hará arreglos con el país sede para asegurar que el Instituto, sus funcionarios y visitantes oficiales gocen dentro del territorio del país sede de los mismos derechos, privilegios e inmunidades que generalmente gozan otras organizaciones internacionales, sus funcionarios y visitantes oficiales. Dichos derechos, privilegios e inmunidades se definirán específicamente en un acuerdo de las oficinas centrales con el país sede.
+ii) De forma similar, el IPGRI puede, según el artículo 2 de este documento, firmar acuerdos con otros países en que se encuentre, con el fin de otorgar al IPGRI, a sus funcionarios y al personal, aquellos privilegios e inmunidades requeridos para dicho trabajo.
+iii) Los privilegios e inmunidades a los que se hace referencia en los párrafos anteriores tienen el único fin de asegurar el buen funcionamiento del IPGRI bajo toda circunstancia y la independencia total de las personas a quienes estos son otorgados.
