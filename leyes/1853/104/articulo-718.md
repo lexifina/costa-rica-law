@@ -1,9 +1,9 @@
-ARTÖCULO 718 Malicia o indolencia del capit n en proporcionar
-embarcaci¢n
-Si por malicia o indolencia dejase el capit n de proporcionar
-embarcaci¢n que trasporte el cargamento en el caso que previene el
-art¡culo anterior, podr n buscarla y fletarla los cargadores a expensas
-del anterior fletante, despu‚s de haber hecho dos interpretaciones
-judiciales al capit n; y ‚ste no podr rehusar la ratificaci¢n del
-contrato hecho por los cargadores, que se llevar a efecto de su cuenta
-y bajo su responsabilidad.-No. 104 de 6 de junio de 1853, art. 718.
+Artículo 718.- Malicia o indolencia del capitán en proporcionar
+embarcación
+Si por malicia o indolencia dejase el capitán de proporcionar
+embarcación que trasporte el cargamento en el caso que previene el
+artículo anterior, podrán buscarla y fletarla los cargadores a expensas
+del anterior fletante, después de haber hecho dos interpretaciones
+judiciales al capitán; y éste no podrá rehusar la ratificación del
+contrato hecho por los cargadores, que se llevará a efecto de su cuenta
+y bajo su responsabilidad.

@@ -1,11 +1,10 @@
-ARTÖCULO 809 Reducci¢n del n£mero de buques
-Contratado el seguro de un cargamento con designaci¢n de buque y
-expresi¢n particular de la cantidad asegurada sobre cada uno de ellos,
-si el cargamento se redujere a menor n£mero de buques que los
-designados, se reducir la responsabilidad de los aseguradores a las
+Artículo 809.- Reducción del número de buques
+Contratado el seguro de un cargamento con designación de buque y
+expresión particular de la cantidad asegurada sobre cada uno de ellos,
+si el cargamento se redujere a menor número de buques que los
+designados, se reducirá la responsabilidad de los aseguradores a las
 cantidades aseguradas sobre los buques que reunieron la carga, y no
-ser n de su cargo las p‚rdidas que ocurran en los dem s; pero tampoco
-tendr n derecho en este caso a los premios de las cantidades aseguradas
-sobre los dem s buques, cuyos contratos se tendr n por nulos, abon ndose
-a los aseguradores un medio por ciento sobre su importe.-No. 104 de 6
-de junio de 1853, art. 809.
+serán de su cargo las pérdidas que ocurran en los demás; pero tampoco
+tendrán derecho en este caso a los premios de las cantidades aseguradas
+sobre los demás buques, cuyos contratos se tendrán por nulos, abonándose
+a los aseguradores un medio por ciento sobre su importe.

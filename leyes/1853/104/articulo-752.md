@@ -1,23 +1,21 @@
-ARTÖCULO 752 Formas de celebrarlo
+Sección II
+Del Contrato a la Gruesa, o Préstamo a Riesgo Marítimo
+Artículo 752.- Formas de celebrarlo
 Los contratos a la gruesa pueden celebrarse:
-Por instrumento p£blico con las solemnidades de derecho;
-Por p¢liza firmada por las partes con intervenci¢n de autoridad o
+Por instrumento público con las solemnidades de derecho;
+Por póliza firmada por las partes con intervención de autoridad o
 juez competente;
 Por documento privado entre los contrayentes.
-Los contratos a la gruesa que consten por instrumento p£blico traen
-aparejada ejecuci¢n.
-El mismo efecto producir n cuando, habi‚ndose celebrado con
-intervenci¢n de autoridad o juez competente, se compruebe la p¢liza del
+Los contratos a la gruesa que consten por instrumento público traen
+aparejada ejecución.
+El mismo efecto producirán cuando, habiéndose celebrado con
+intervención de autoridad o juez competente, se compruebe la póliza del
 demandante por el registro de la autoridad o juez competente que
-intervino en el contrato, siempre que ‚ste se encuentre en todas las
+intervino en el contrato, siempre que éste se encuentre en todas las
 formalidades correspondientes.
-Celebr ndose privadamente entre los contratantes, no ser ejecutivo
+Celebrándose privadamente entre los contratantes, no será ejecutivo
 el contrato sin que conste la autenticidad de las firmas por
 reconocimiento judicial de los mismos que las pusieron, o en otra forma
 suficiente.
-Los pr‚stamos a la gruesa contra¡dos de palabra son ineficaces en
-juicio, y no se admitir en su raz¢n demanda ni prueba alguna.-No. 104
-de 6 de junio de 1853, art. 752.
-HISTORIAL
-Referencias cruzadas.
-Concordancias, v‚ase 9 LCRA Art¡culo 780.
+Los préstamos a la gruesa contraídos de palabra son ineficaces en
+juicio, y no se admitirá en su razón demanda ni prueba alguna.

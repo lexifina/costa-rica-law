@@ -1,3 +1,3 @@
-ARTÖCULO 668: fijaba lo relativo a salarios y participaciones en
-las utilidades del marinero que mor¡a en defensa de la nave o que
-hubiese sido apresado con ocasi¢n de esa defensa.
+Artículo 668.- DEROGADO.
+( Derogado por el artículo 1º de las Disposiciones Finales del
+Código de Trabajo, ley No. 2 del 27 de agosto de 1943 ).

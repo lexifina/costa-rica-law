@@ -1,3 +1,3 @@
-ARTÖCULO 538 Enajenaci¢n
+Artículo 538.- Enajenación
 Las naves pueden enajenarse libremente por sus propietarios, cuando
-les acomodare.-No. 104 de 6 de junio de 1853, art. 538.
+les acomodare.

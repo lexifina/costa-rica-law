@@ -1,3 +1,3 @@
-ARTÖCULO 648: establec¡a las nulidades y sanciones para el caso
-deque un hombre de mar que estuviese contratado para una nave se
-concertase para otra.
+Artículo 648.- DEROGADO.
+( Derogado por el artículo 1º de las Disposiciones Finales del
+Código de Trabajo, ley No. 2 del 27 de agosto de 1943 ).

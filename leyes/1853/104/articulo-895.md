@@ -1,11 +1,10 @@
-ARTÖCULO 895 Justiprecio de la nave y del cargamento
-Los efectos del cargamento se estimar n por el precio que tengan
+Artículo 895.- Justiprecio de la nave y del cargamento
+Los efectos del cargamento se estimarán por el precio que tengan
 en el puerto de la descarga.
-Las mercader¡as perdidas entrar n a contribuir por el mismo valor
-que se les haya considerado en la regulaci¢n de la aver¡a.
-El buque con sus aparejos se apreciar igualmente seg£n el estado
+Las mercaderías perdidas entrarán a contribuir por el mismo valor
+que se les haya considerado en la regulación de la avería.
+El buque con sus aparejos se apreciará igualmente según el estado
 en que se hallen.
 Tanto el justiprecio de la nave como el de los efectos de su
-cargamento, se ejecutar por peritos nombrados en la forma que previene
-el art¡culo 886 [9 LCRA Art¡culo 886].-No. 104 de 6 de junio de 1853,
-art. 895.
+cargamento, se ejecutará por peritos nombrados en la forma que previene
+el artículo 886.

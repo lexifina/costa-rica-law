@@ -1,6 +1,6 @@
-ARTÖCULO 882 Deliberaci¢n de arrojar el cargamento al mar; acta
-A continuaci¢n del acta que contenga la deliberaci¢n de arrojar al
-mar la parte del cargamento que se haya graduado necesaria, se anotar n
-cu les han sido los efectos arrojados; y si algunos de los conservados
-hubieren recibido da¤o por consecuencia directa de la echaz¢n, se har
-tambi‚n menci¢n de ellos.-No. 104 de 6 de junio de 1853, art. 882.
+Artículo 882.- Deliberación de arrojar el cargamento al mar; acta
+A continuación del acta que contenga la deliberación de arrojar al
+mar la parte del cargamento que se haya graduado necesaria, se anotarán
+cuáles han sido los efectos arrojados; y si algunos de los conservados
+hubieren recibido daño por consecuencia directa de la echazón, se hará
+también mención de ellos.

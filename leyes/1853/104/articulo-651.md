@@ -1,3 +1,3 @@
-ARTÖCULO 651: ordenaba que el hombre de mar no pod¡a ser despedido
-sin justa causa durante el tiempo de su contrata, y enumeraba las causas
-justas de despido.
+Artículo 651.- DEROGADO.
+( Derogado por el artículo 1º de las Disposiciones Finales del
+Código de Trabajo, ley No. 2 del 27 de agosto de 1943 ).
