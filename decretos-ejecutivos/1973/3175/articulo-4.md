@@ -1,1 +1,0 @@
-Artículo 4°-Las embarcaciones que se ausenten del país por el término de un año, perderán el derecho de su matrícula en Costa Rica, a menos que a juicio del Ministerio de Agricultura y Ganadería se considere conveniente su regreso y siempre que no hayan sido sustituidas por otras embarcaciones.
