@@ -1,0 +1,3 @@
+La Junta Directiva Nacional en la Sesión Ordinaria No 3876 celebrada el 17 de julio del 2001. acordó por unanimidad: Aprobarla modificación al Reglamento Complementario de Contratación Administrativa del Banco Popular y de Desarrollo Comunal publicado en La Gaceta No 102. del 29 de mayo del 2001, de la siguiente manera:
+REGLAMENTO COMPLEMENTARIO DE CONTRATACIÓN ADMINISTRATIVA DEL BANCO POPULAR Y DE DESARROLLO COMUNAL
+Artículo 1°—Fundamento. El presente Reglamento se dicta de conformidad con lo establecido en el inciso b) del articulo 24 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, para regular la actividad de contratación administrativa de la Institución.

@@ -1,0 +1,1 @@
+Artículo 14.—Refrendo de la Contraloría General de la República. Para efectos de refrendo de la Contraloría General de la República, corresponderá al Proceso de Contratación Administrativa, remitir a ese ente la documentación a que se refiere el articulo 5 del Reglamento sobre el refrendo de las contrataciones de la Administración Pública.
