@@ -1,0 +1,3 @@
+Artículo 12.—DE LAS SANCIONES:
+El incumplimiento de las obligaciones o de las prohibiciones a que se refieren los artículos precedentes, será comunicado por el presidente de la Comisión, al Tribunal de la Inspección Judicial y a la Corte, para que determinen si existe mérito para dar inicio a un proceso disciplinario, en los términos de los numerales 190 y siguientes de la Ley Orgánica del Poder Judicial. En caso de que el infractor sea el presidente, la comunicación la deberá hacer el vicepresidente.
+En caso de que alguno de los integrantes incurra en cuatro ausencias injustificadas consecutivas, a las sesiones ordinarias o a las extraordinarias, la Comisión podrá solicitarle a la Corte, la sustitución de aquél, por el resto del respectivo período.

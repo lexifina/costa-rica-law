@@ -1,0 +1,5 @@
+CAPITULO IV
+DE LAS PETICIONES
+Artículo 13.—DE LAS PETICIONES ANTE LA COMISIÓN:
+Todo servidor o grupo de servidores judiciales afectados por un conflicto individual o colectivo de naturaleza laboral, deberá dirigirse a la Comisión, por escrito, dentro del plazo de tres días, contados a partir del siguiente al de la notificación de la resolución o del acuerdo respectivo. La gestión deberá presentarse en el lugar designado para tales efectos, consignándose la hora y la fecha de entrega. Deberá contener una o varias peticiones concretas que ameriten el pronunciamiento de la Comisión, dentro del ámbito especial de su competencia, así como el señalamiento de lugar para atender futuras notificaciones.
+Cuando se tratare de un proceso disciplinario, el servidor judicial podrá solicitar la intervención de la Comisión de Relaciones Laborales, por una sola vez, en cualquier estado del asunto, pero antes de que se dicte la sentencia de primera instancia. En tal caso, una vez concluida la investigación se le dará audiencia para los efectos del artículo 66, inciso 4°, de la Ley Orgánica del Poder Judicial.
