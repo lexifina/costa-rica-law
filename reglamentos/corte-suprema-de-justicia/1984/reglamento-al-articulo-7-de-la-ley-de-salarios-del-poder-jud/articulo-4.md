@@ -1,0 +1,1 @@
+Artículo 4°-Se concederán, previo informe del Consejo de Personal, uno o dos pasos de la Escala de Salarios, a los servidores judiciales que obtengan certificados de capacitación requerida para el desempeño de sus cargos en el Poder Judicial.

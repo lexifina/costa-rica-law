@@ -1,0 +1,1 @@
+Articulo 7°-El Consejo de Personal deberá realizar el análisis correspondiente e informar, conforme con el artículo 4° de este Reglamento, en el caso de los estudios "equivalentes" a que alude el artículo 7° de la Ley de Salarios del Poder Judicial.

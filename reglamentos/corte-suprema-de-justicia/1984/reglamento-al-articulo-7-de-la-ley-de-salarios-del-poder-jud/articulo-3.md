@@ -1,0 +1,1 @@
+Artículo 3°-Salvo lo dispuesto en el transitorio al articulo 19 del Estatuto de Servicio Judicial, los beneficios salariales no se concederán a los' servidores judiciales que no reúnan los requisitos mínimos exigidos. por el Manual de clasificación de Puestos para el cargo que ocupan.
