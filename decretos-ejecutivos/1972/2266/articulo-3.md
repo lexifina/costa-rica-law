@@ -1,0 +1,1 @@
+Artículo 3°—En todo caso, las autorizaciones que se concedan podrán canceladas en cualquier momento, si por su ubicación o por incumplimiento a los requisitos exigidos, se determinare que las instalaciones a que se refiere este decreto, constituyen un peligro para la salud o son causa de molestias de cualquier clase para el vecindario.

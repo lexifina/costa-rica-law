@@ -1,0 +1,1 @@
+Artículo 4°—A fin de evitar la propagación de enfermedades trasmisibles, queda prohibido, en caso de peligro de epidemias, el transporte, así como la importación de animales susceptibles de trasmitir dichas enfermedades, por vía marítima, fluvial, terrestre o aérea, sin la previa autorización del Ministerio Salubridad Pública.
