@@ -1,0 +1,3 @@
+TRES: Para que el Articulo 7, se lea en adelante así:
+"Formato de liquidación de gastos y presentación de cuentas por medio de memorándum. La liquidación de gastos de alimentación y transporte, deberá hacerse dentro de los quince días naturales después de efectuada la erogación. Para tal efecto la Secretaria Municipal deberá comunicar a la Sección de Egresos de la Municipalidad en forma permanente el listado oficial de la asistencia a las sesiones tanto del Concejo como de las comisiones municipales para la verificación y eventual aprobación de las liquidaciones presentadas.
+Las solicitudes de liquidaciones que se presenten fuera de dicho plazo no se les dará trámite alguno y se consideraran extemporáneas y con las consecuencias pecuniarias que ello conlleva".
