@@ -1,0 +1,1 @@
+Artículo 2.-Los ejemplares del periódico Oficial que se dirijan a los Ministros diplomáticos y Cónsules nacionales y extranjeros, ser n timbrados con el sello de la Secretaria de Relaciones Exteriores, y los que se dirijan a los empleados públicos lo serán con el sello de la Secretaria de Estado del ramo a que corresponda el empleado respectivo.
