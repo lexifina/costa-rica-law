@@ -1,0 +1,1 @@
+Artículo 8°-Las sustancias, materiales, instrumental y equipo de uso odontológico decomisados al tenor de lo dispuesto en el artículo 361 de la Ley General de Salud, serán entregados al Departamento de Odontología Sanitaria del Ministerio de Salud para ser utilizados en los programas de salud.

@@ -1,0 +1,1 @@
+Artículo 4°-De toda factura de venta de sustancias, materiales, instrumental y equipo odontológico, el establecimiento vendedor deberá enviar copia al Colegio de Cirujanos Dentistas mensualmente dentro de los ocho días siguientes al mes correspondiente.

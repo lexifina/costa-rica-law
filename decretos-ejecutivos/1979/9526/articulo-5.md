@@ -1,0 +1,1 @@
+Artículo 5°-El Colegio de Cirujanos Dentistas Ilevará un registro de firmas de las personas a que se refiere el artículo 3°. Copia de los asientos de este registro serán enviados por el Colegio de Cirujanos Dentistas al Ministerio, a los depósitos dentales y a los otros interesados, para los controles correspondientes.

@@ -1,0 +1,1 @@
+Artículo 6°-Deberán registrarse en el Ministerio las personas físicas y jurídicas que importen, elaboren o vendan sustancias, materiales, instrumental y equipo odontológico, las que no podrán vender sus productos o mercaderías más que a personas autorizadas bajo pena de incurrir en las responsabilidades que señala el artículo 374 de la Ley General de Salud.

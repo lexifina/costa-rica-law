@@ -1,0 +1,1 @@
+Artículo 7°-Corresponde al Ministerio de Salud otorgar los permisos de importación y desalmacenaje o fabricación de anestésicos locales y demás materiales y equipos odontológicos. Cuando este Ministerio lo estime conveniente podrá solicitar a los establecimientos del ramo un inventario de sus existencias de anestésicos locales, material y equipo odontológico.
