@@ -14,3 +14,4 @@ Declara de Venta Libre los Medicamentos que pueden ofrecerse al consumidor en cu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-05-03 | la propia norma |
+| 2 | 1994-05-24 | Decreto Ejecutivo 23371 (1994-05-24) |

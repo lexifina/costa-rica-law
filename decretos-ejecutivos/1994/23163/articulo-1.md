@@ -20,19 +20,21 @@ Los productos que contengan alcanfor deberán indicar en la etiqueta: "contiene 
 7°-Pomadas o ungüentos para la pañalitis a base de óxido de zinc, aceite de bacalao, coald cream o formulaciones similares.
 8°-Repelentes de insectos para uso humano cuyos principios activos sean dietil toluamida y aceites esenciales.
 9°-Bicarbonato de sodio, citrato de magnesio, crémor, flores de alhucema, flores de tilo, flor de azufre, hojas de sen, licopodio, óxido de zinc y talco simple, presentados en envolturas o sobres empacados, debidamente rotulados, con identificación de la empacadora y el correspondiente número de permiso del Ministerio de Salud. .
-10.-Apósitos quirúrgicos, algodón en empaque cerrado original de cualquier tamaño, esparadrapos, sobre de gasa, vendas de gasa y curitas.
-1 l.-Artículos para uso higiénico y cosmético que no tengan propiedades medicinales ni sean anunciados con tales propiedades.
-12.-Pastas dentales.
+10-Apósitos quirúrgicos, algodón en empaque cerrado original de cualquier tamaño, esparadrapos, sobre de gasa, vendas de gasa y curitas.
+11.-Artículos para uso higiénico y cosmético que no tengan propiedades medicinales ni sean anunciados con tales propiedades.
+12-Pastas dentales.
 13.-Champú anticaspa
-14.-Soluciones para enjuague bucal, gotas y pastillas para el aliento no adicionales de medicamentos ni que sean anunciadas como tales.
+14-Soluciones para enjuague bucal, gotas y pastillas para el aliento no adicionales de medicamentos ni que sean anunciadas como tales.
 15.-Espíritus o esencias naturales o sintéticas en forma líquida o sólida utilizadas como saborizantes que no contengan sustancias potencialmente nocivas para la salud ni con propiedades medicinales.
-16°-Productos utilizados como edulcorantes en soluciones o tabletas, cuyos principios activos sean la sacarina, aspartame u otros declarados como tales por el Ministerio de Salud.
-l7.-Soluciones desinfectantes para uso doméstico, con un índice fenólico no menor del 2%.
-18.-Soluciones antisépticas de timerosal, yodo, mercurocromo, violeta de genciana y agua oxigenada al 10%.
+16-Productos utilizados como edulcorantes en soluciones o tabletas, cuyos principios activos sean la sacarina, aspartame u otros declarados como tales por el Ministerio de Salud.
+l7-Soluciones desinfectantes para uso doméstico, con un índice fenólico no menor del 2%.
+18-Soluciones antisépticas de timerosal, yodo, mercurocromo, violeta de genciana yagua oxigenada de 10 volúmenes (3%)
+( Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 23371 del 24 de mayo de 1994).
 19.-Insecticidas líquidos o en polvo, para uso doméstico y debidamente registrados con una LD-50, no menor de 2 gramos por kilogramo de peso para sólidas y 3 gramos por kilogramo de peso para líquidos, rotulados de acuerdo con la legislación vigente para insecticidas.
 20.-Piojicidas cuyos principios activos sean mezclas con piretrinas a una concentración no mayor de 0.3% o productos con permitrina al 1 % aceptadas oficialmente.
 21.-Pastillas para el alivio de las irritaciones leves de la garganta, cuyos principios activos sean mentol y eucaliptol y otras esencias naturales utilizadas en concentraciones que califiquen para una acción saborizante.
-22.-Fórmulas para el alivio de los síntomas de la gripe en tabletas para adultos, cuyos principios activos sean: Acido acetilsalicílico o acetaminofén en concentración máxima de 500 miligramos, maleato de clorfeniramina o bormofeniramina en concentracón máxima de 4miligramos/tabletas, clorhidrato o bitartrato de fenilefrina en cncentración máxima de 30 miligramos / tablestas, clorhidrato de fenilpropanolamina en concentración máxima de 15 miligramos/tabletas.
+Artículo 22.-Fórmulas para el alivio de los síntomas de la gripe en tabletas para adultos, cuyos principios activos sean: Ácido acetilsalicílico o acetaminofén en concentración máxima de 500 miligramos, maleato de clorfeniramina o bromofeniramina en concentración máxima, de 4 miligramos barra/tableta, Clorhidrato de bitartrato de fenilefrina en concentración máxima de 10 miligramos/tableta, Pseudoefedrina en concentración máxima de 30 miligramos 1 tableta, clorhidrato de fenilpropanolamina en concentración máxima de 15 mili gramos 1 tableta.
+( Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 23371 del 24 de mayo de 1994).
 23.-Antidiarreicos para adultos cuyos principios activos sean Caolín-Pectina.
 24.-Polvos y pastas adherentes de prótesis dentarias.
 25.-Parches callicidas cuyo principio activo sea ácido salicílico en concentración hasta el 10%.
