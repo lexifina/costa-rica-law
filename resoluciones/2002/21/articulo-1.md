@@ -1,0 +1,8 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN DIRECTA
+No 21-02.—San José, a las ocho horas del treinta de abril de dos mil dos.
+Considerando:
+I.—Que el artículo 99 del Código de Normas y Procedimientos Tributarios, Ley No 4755 de 3 de mayo de 1971 y sus reformas, faculta a la Administración Tributaria para dictar normas generales para la correcta aplicación de las leyes tributarias, dentro de los límites que fijan las disposiciones legales y reglamentarias pertinentes.
+II—Que el artículo 96 del Decreto Ejecutivo No 29264-H. Reglamento General de Gestión, Fiscalización y Recaudación Tributaria, según reforma introducida mediante Decreto Ejecutivo No 30165-H publicado en La Gaceta No 42 del 28 de febrero de 2002, establece la facultad de la Administración Tributaria, para compensar de oficio, pudiendo prescindir, por resolución general, de las reglas establecidas para este efecto por el artículo 93 ibidem. estableciendo los mecanismos de compensación por períodos e impuestos específicos.
+III —Que, a fin de iniciar el proceso de cobro de la cartera morosa por concepto del Impuesto sobre la Renta, del período 2001 conforme a las posibilidades materiales con que cuenta esta Dirección, y con el proposito de acelerar el trámite de generación de los débitos, se estima conveniente prescindir de la compensación de dichas deudas con créditos generados en impuestos y períodos distintos al indicado. Por tanto,
+RESUELVE:
+Artículo 1º—Se prescinde del trámite de compensación previa para la generación de la cartera morosa correspondiente al Impuesto sobre la Renta, período fiscal 2001, con créditos generados en impuestos y períodos distintos al indicado.
