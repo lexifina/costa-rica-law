@@ -14,3 +14,4 @@ Reglamento de Inspección para Embarcaciones Nacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-07-14 | la propia norma |
+| 2 | 1999-07-22 | Decreto Ejecutivo 28050 (1999-07-22) |
