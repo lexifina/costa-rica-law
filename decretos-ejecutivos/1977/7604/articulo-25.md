@@ -1,0 +1,1 @@
+Artículo 25.-Los Ejecutivos de las municipalidades de la región se integrarán al Consejo Regional como una Comisión de Ejecutivos Municipales, a fin de asesorar tanto al Secretario Ejecutivo como a la Junta Directiva.
