@@ -14,3 +14,4 @@ Reglamento para las Inversiones de las Reservas del Seguro de Salud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-03 | la propia norma |
+| 2 | 2003-12-04 | Reglamento 7814 (2003-12-04) |
