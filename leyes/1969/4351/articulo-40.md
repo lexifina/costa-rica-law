@@ -1,0 +1,1 @@
+Artículo 40.- El Banco podrá tener secciones de ahorro y¿ capitalización y también Departamentos Hipotecarios. Dichas Secciones y Departamentos se regirán por las disposiciones de esta ley y sus reglamentos.

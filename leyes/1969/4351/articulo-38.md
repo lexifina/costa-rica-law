@@ -1,0 +1,1 @@
+Artículo 38.- El Banco deberá mantener permanentemente en efectivo el equivalente al 10% del monto de los ahorros. Corresponderá al Banco Central, a través de la Auditoria General de Bancos supervigilar el cumplimiento de esta disposición.

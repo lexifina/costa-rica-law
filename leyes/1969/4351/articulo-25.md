@@ -1,0 +1,1 @@
+Artículo 25.- La Junta Directiva Nacional tiene plena facultad para reglamentar todo lo concerniente a su organización, funcionamiento, política de inversiones y demás extremos necesarios para el cumplimiento de los fines que le señala esta ley.

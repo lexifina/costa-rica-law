@@ -1,0 +1,1 @@
+Artículo 17.- La Junta Directiva Nacional elegirá cada año, por mayoría de votos, un Presidente y un Vicepresidente. El Presidente tendrá las facultades estipuladas en el artículo 36 de la Ley del Sistema Bancario Nacional y además se le aplicará lo dispuesto en el artículo 37 de la misma ley.

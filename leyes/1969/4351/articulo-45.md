@@ -1,0 +1,1 @@
+Artículo 45.- El Banco estará sometido a la supervigilancia de la Auditoría General de Bancos, de acuerdo con lo estipulado en el artículo 47 de la Ley Orgánica del Banco Central y el Capítulo III de la Ley Orgánica del Sistema Bancario Nacional. Asimismo, el Banco estará sometido a la fiscalización de la Contraloría General de la República.

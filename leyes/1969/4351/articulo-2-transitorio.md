@@ -1,0 +1,1 @@
+Transitorio II.- Para cumplir las finalidades indicadas en el artículo transitorio anterior, queda autorizado el Poder Ejecutivo para hacer una emisión de bonos hasta por la suma de dos millones de colones (¢ 2.000,000.00) que se denominarán "Bonos Banco Popular y de Desarrollo Comunal 7% anual", y a un plazo no mayor de 20 años.

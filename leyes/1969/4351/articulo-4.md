@@ -1,0 +1,2 @@
+Artículo 4º.- El Banco actuará con absoluta independencia y bajo la exclusiva responsabilidad y dirección inmediata de su Junta Directiva Nacional y Juntas Directivas Regionales, que tendrán limitadas sus funciones por las leyes, los Reglamentos aplicables y los principios de la técnica.
+No podrán imponerle al Banco decisiones sobre custodia, administración o inversión del ahorro, propiedad de los trabajores, ni el Poder Ejecutivo, ni ningún otro organismo público.

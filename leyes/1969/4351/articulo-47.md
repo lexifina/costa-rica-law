@@ -1,0 +1,1 @@
+Artículo 47.- Las prohibiciones a que hace referencia los artículos 7º y 54 de la Ley Orgánica del Sistema Bancario Nacional no serán aplicables al Banco. Sin embargo el Banco, podrá tener cuentas de ahorro pero no operaciones en cuentas corrientes o giro de cheques.
