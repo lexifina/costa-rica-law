@@ -1,0 +1,4 @@
+Artículo 8º.-El máximo jerarca (o en quien este delegue),
+deberá refrendar los contratos de dedicación exclusiva en un plazo
+máximo de 8 días hábiles contados a partir de la fecha de su
+presentación.

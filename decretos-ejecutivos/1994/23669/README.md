@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 23669
+
+Normas para la Aplicación de la Dedicación Exclusiva para Instituciones y Empresas Públicas Cubiertas por el Ambito de la Autoridad Presupuestaria
+
+- Tipo: Decreto Ejecutivo
+- Número: 23669
+- Fecha: 1994-10-18
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 197 del 1994-10-18
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=20161&param2=21461&param3=1 (ficha 20161)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1994-01-31 | la propia norma |
