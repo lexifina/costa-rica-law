@@ -1,0 +1,1 @@
+Artículo 17.—Ningún inquilino de puesto podrá vender o expender artículos o mercaderías diferentes a aquellas para las cuales le fue adjudicado el puesto. La infracción a esta disposición dará lugar a la terminación, caducidad o cancelación automática del contrato.

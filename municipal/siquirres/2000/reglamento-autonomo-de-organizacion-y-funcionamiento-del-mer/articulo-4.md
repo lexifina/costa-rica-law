@@ -1,0 +1,1 @@
+Artículo 4º—La municipalidad coordinará y resolverá todos los asuntos relacionados con el mercado a través del Administrador de Mercado nombrado al efecto por el Alcalde Municipal y el Concejo Municipal.
