@@ -1,0 +1,1 @@
+Art 4°.- Las multas que se impongan a los contrabandistas, y el valor de los artículos o cosas decomisadas, en virtud de las disposiciones anteriores, se dividirán por mitades, de las cuales una pertenecerá al Tesoro público y la otra se partirá entre el denunciante y el resguardo aprehensor en porciones iguales.
