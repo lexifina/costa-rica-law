@@ -1,1 +1,0 @@
-Artículo 22.—Por cada sesión ordinaria o extraordinaria los miembros del Consejo Directivo devengarán una dieta que se determinará por acuerdo ejecutivo y cuyo monto se incluirá en los presupuestos anuales de la Escuela. Sin embargo no podrán celebrar más de dos sesiones remuneradas al mes, incluyendo ordinarias y extraordinarias.

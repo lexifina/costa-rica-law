@@ -1,1 +1,0 @@
-Transitorio II.—La Escuela contará con un limitado número de becas para estudios avanzados en Gran Bretaña para los estudiantes sobresalientes egresados de la Escuela y con un entrenamiento adicional para el personal seleccionado de la Escuela con el fin de suplementar su entrenamiento local.

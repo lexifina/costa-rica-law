@@ -1,1 +1,0 @@
-Artículo 24.—Los miembros del Consejo podrán solicitar que se haga constar en el acta sus, opiniones; los votos disidentes siempre se harán constar. Los directores, como el personal de la Escuela que asista a las sesiones, guardarán absoluta reserva acerca de las deliberaciones y votaciones, que se declaren confidenciales .

@@ -1,1 +1,0 @@
-Artículo 45.—Una vez aprobado el presupuesto por el Consejo Directivo y ratificado por la Contraloría General de la República, constituirá una autorización para el Director para contraer las obligaciones y realizar los gastos necesarios de conformidad con el destino de las partidas correspondientes, la legislación sobre la materia y los acuerdos del Consejo Directivo.

@@ -1,1 +1,0 @@
-Artículo 38.—Los Jefes de Departamentos constituirán un Consejo Asesor de la Escuela, con el cual el Director consultará los problemas de la administración y conducción de la Escuela. El Director podrá invitar a las reuniones del comité a otro personal técnico o administrativo, según lo tenga por conveniente.

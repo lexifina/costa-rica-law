@@ -1,1 +1,0 @@
-Artículo 46.—Con la aprobación de la Contraloría General de la República la Escuela podrá ser dotada por un “Fondo de Trabajo” con fundamento en una partida que específicamente se establezca en el presupuesto y en contribuciones especiales que al efecto se señalen.

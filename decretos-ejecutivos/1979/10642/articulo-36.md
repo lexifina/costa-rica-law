@@ -1,1 +1,0 @@
-Artículo 36.—Cada Departamento estará a cargo de un jefe y su organización corresponderá a la integración de un grupo de materias afines. Contará cada uno de ellos con personal altamente calificado y en número suficiente.

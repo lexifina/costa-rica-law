@@ -1,1 +1,0 @@
-Artículo 18.—El dejar de ser miembro del Consejo Directivo, sea por terminación del período o por cualquier otra causa, no exime a las personas que hubieren ocupado el cargo, de las responsabilidades legales en que pudieren haber incurrido durante su gestión.

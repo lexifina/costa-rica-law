@@ -1,1 +1,0 @@
-Artículo 53.—Con base en la ley N° 5609 de 13 de noviembre de 1974, la Escuela a través de los organismos competentes hará las gestiones pertinentes a efecto de que la Escuela adquiera carácter de Centro Educacional Centroamericano, según lo previsto también en su ley constitutiva.

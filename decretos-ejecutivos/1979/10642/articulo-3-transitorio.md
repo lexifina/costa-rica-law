@@ -1,1 +1,0 @@
-Transitorio III.—La escuela estará también favorecida con una asesoría apropiada en cuanto a consultas especializadas y conexiones con instituciones de alto prestigio docente, de conformidad con los acuerdos que los Gobiernos de Costa Rica y el Reino Unido lleguen a formalizar.

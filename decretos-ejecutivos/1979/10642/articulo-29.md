@@ -1,1 +1,0 @@
-Artículo 29.—Si el Consejo Directivo lo estima necesario, para cumplir en mejor forma sus funciones, podrá delegar en un comité específico compuesto por tres de sus miembros, siendo uño de ellos obligadamente el Presidente del Consejo Directivo, parte de sus atribuciones. Las decisiones que se tomen serán ad referéndum del Consejo Directivo.
