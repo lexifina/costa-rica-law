@@ -1,0 +1,1 @@
+Art. 8. Cuando el Tribunal necesite aclaraciones, ú oir de nuevo al que rindió las cuentas ó Autoridad que las revisó, lo exigirá por los mismos órganos que vinieron, espresando los objetivos ó artículos sobre que los desea: aquellos lo verificarán y los devolverán al Tribunal.
