@@ -1,4 +1,2 @@
 Artículo 121.- Jerarcas de la Superintendencia
-El superior administrativo de la Superintendencia General de Entidades Financieras será el Superintendente General. Existirá un Intendente General, quien cumplirá con las funciones que le asigne el Superintendente y lo sustituirá en caso de vacancia, ausencia, suspensión o impedimento. Ambos serán designados por la Junta Directiva del Banco Central, con el voto de por lo menos cinco de sus miembros.
-En caso de ausencia del Superintendente, el Intendente General ejercerá sus funciones. Si se produjera la ausencia de ambos, las funciones y atribuciones del Superintendente recaerán en la persona que, transitoriamente, designe la Junta Directiva del Banco Central, la cual deberá reunir los requisitos establecidos en esta ley para el Superintendente.
-Cuando los puestos de Superintendente o Intendente General queden vacantes, la Junta Directiva tendrá un plazo máximo de tres meses para realizar los nombramientos.
+(Derogado por el artículo 194 de la Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997)

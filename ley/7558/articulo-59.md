@@ -5,4 +5,5 @@ b) Conceder prórroga, renovación o sustitución de los documentos de crédito 
 c) Efectuar cualesquiera operaciones de crédito de otra clase no autorizadas expresamente por la ley, salvo las que, sin estar prohibidas, fueren compatibles con la naturaleza técnica del Banco Central y necesarias para el debido cumplimiento de sus deberes y funciones.
 d) Otorgar garantías o avales.
 e) Asumir pasivos, en moneda extranjera, que no tengan como contrapartida activos en la misma moneda.
-f) Pagar honorarios, comisiones y otros costos de transacción, sobre la venta de títulos por él emitidos en el mercado primario, excepto las comisiones de bolsa.
+f) Pagar honorarios, comisiones y otros costos de transacción, sobre la venta de títulos por él emitidos en el mercado primario,excepto las comisiones de bolsa.
+( NOTA: el artículo 172 infra señala que la prohibición indicada en este inciso es también aplicable a la Administración Pública)
