@@ -1,0 +1,1 @@
+Artículo 6°.- RECOPE; con el objeto de implementar la política de desarrollo energético contemplada en el Plan Nacional de Desarrollo, previamente comunicada por el MIEM; podrá solicitar al SNE la fijación de diferentes niveles de precios para un mismo producto.
