@@ -1,1 +1,1 @@
-Artículo 6º.- La atención de las acciones de salud en materia de medicina preventiva no reservadas por ley a la Caja, serán de responsabilidad exclusiva del Ministerio de Salubridad Pública.
+Artículo 6º.-(Derogado por el artículo 7° de la ley de aprobación del de los contratos de préstamo suscritos con el Banco Interamericano de Desarrollo para el Programa de mejoramiento de los servicios de Salud y Construcción Hospital Alajuela, Nº 7374 de 3 de diciembre de 1993)
