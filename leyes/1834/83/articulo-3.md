@@ -1,0 +1,1 @@
+Art 3°.-La de San José eligiendo tres Diputados propietarios en lugar de los Ciudadanos Presbíteros Andrés Rivera, Juan Vicente Escalante y Juan Diego Bonilla quedando reservado el Diputado suplente Ciudadano Juan Bautista Bonilla.
