@@ -1,0 +1,1 @@
+ARTICULO 2°.-Consiliada que sea la demanda, y no terminando el negocio por este medio, se dira en el mismo acto por el Juez consiliador: que se mande las partes nombrar arbitros: que lo verificaron, el actor en tal, y el demandado en cual, estendiéndose el certifico peticion de la parte inconforme por el que se satisfarán los derechos que la ley designa.

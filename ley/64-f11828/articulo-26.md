@@ -1,0 +1,3 @@
+ARTICULO 26.-Quedan derogadas las Leyes que se opongan la presente en la parte que la embarasen (1).-Al Consejo Representativo.-Dado en la Ciudad de Heredia los seis dias del mes de Abril de mil ochocientos treinta y ocho.-Felix Sancho, D. Presidente.-Rafael Moya, D. Secretario.- Juan B. Bonilla, D. Secretario. -Casa del Consejo.Heredia Abril veinticuatro de mil ochocientos treinta y ocho.-Pase al Poder Ejecutivo.-Joaquin Flores, Presidente.-Jos‚ Maria Echavarria, Secretario.-Por tanto: EJECUTESE. San Jose Abril veinticinco de 1838.-Manuel Aguilar.-Al Ministro General del Despacho."
+----------
+(1) Derogado el presente Decreto por el Reglamento de Justicia de 31 de Julio de 1841.

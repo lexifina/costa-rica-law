@@ -1,0 +1,2 @@
+Despacho en lo Criminal
+ARTICULO 17.-Los Alcaldes Constitucionales instruirán los sumarios, ‚ instruidos, los pasar n inmediatamente al Juez de 1° Instancia para que este dicte el auto de prision si hubiese mérito, entendiéndose este artículo en el lugar de la residencia de aquel Juez, pues en los demás Pueblos podrán los Alcaldes dictar el citado auto, y proceder á la prision, remitiendo el sumario al Juez de 1° Instancia, quien en su vista, si le pareciese conforme, pedir al reo, y sino devolver el sumario con la providencia que estime de justicia.
