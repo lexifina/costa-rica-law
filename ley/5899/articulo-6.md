@@ -1,0 +1,2 @@
+Artículo 6º.- La Comisión Nacional de Defensa del Idioma estará facultada para solicitar ante los tribunales respectivos la aplicación de las penas previstas en el artículo 4º de esta ley.
+Transitorio.- Las empresas que, al momento de entrar en vigencia la presente ley, no tengan inscrito en los respectivos registros su razón social, nombre comercial o marca de fábrica, deberán ajustarse a las disposiciones de esta ley.

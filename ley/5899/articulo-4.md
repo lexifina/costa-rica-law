@@ -1,0 +1,1 @@
+Artículo 4º.- Será penado, con diez a cincuenta día multa, el propietario, gerente o administrados de la empresa agropecuaria, agrícola, comercial o industrial que contraviniere lo dispuesto en el párrafo primero del artículo 1º de esta ley.
