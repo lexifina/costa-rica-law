@@ -13,3 +13,4 @@ Adhesión a la Convención sobre Nacionalidad de la Mujer de Montevideo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1952-09-08 | la propia norma |
+| 2 | 1953-07-04 | Decreto Ejecutivo 11 (1953-07-04) |
