@@ -1,0 +1,1 @@
+Artículo 2°- El Ministerio de Agricultura y Ganadería mantea administración de dichos recursos a través del Banco Nacional de Costa Rica, según lo dispuesto en el Convenio de Administración de Fondos existente entre el mismo y el Banco.
