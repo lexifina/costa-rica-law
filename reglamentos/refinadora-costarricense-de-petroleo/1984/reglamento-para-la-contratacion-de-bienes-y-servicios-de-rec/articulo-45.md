@@ -1,1 +1,0 @@
-Artículo 45.—Duración del contrato: Deberá fijarse la duración total del respectivo contrato, incluyendo las eventuales prórrogas previstas, tomando en cuenta una justa rentabilidad y la necesaria recuperación de la inversión que deba hacerse.

@@ -1,1 +1,0 @@
-Artículo 9º.—En casos de emergencia la Gerencia General o la Presidencia Ejecutiva podrán contratar por sumas superiores a los C 3.000.000,00 (tres millones de colones), conforme con el artículo 37 de este reglamento y debiendo informar a la Junta Directiva en la sesión siguiente acerca de los motivos de dicha contratación.

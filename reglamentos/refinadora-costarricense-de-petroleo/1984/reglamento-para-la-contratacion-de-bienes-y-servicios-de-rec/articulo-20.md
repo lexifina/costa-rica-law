@@ -1,2 +1,0 @@
-Artículo 20.—De la publicación: El anuncio de la licitación se publicará en los periódicos de mayor circulación y, en cualquier otro medio idóneo, y deberá contener la información mínima necesaria para que los posibles oferentes se interesen y soliciten los documentos de licitación en la Dirección de Administración de Suministros.
-Cuando la empresa estime prudente despertar el interés de posibles participantes en el concurso, podrá dirigirles una nota informativa del cartel publicado, señalando la fecha y periódico en que fue publicado.

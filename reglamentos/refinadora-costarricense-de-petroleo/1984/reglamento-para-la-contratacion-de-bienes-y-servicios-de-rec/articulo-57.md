@@ -1,1 +1,0 @@
-Artículo 57.—Casos no resueltos en este Reglamento: Los casos no resueltos en este reglamento, podrán solucionarse aplicando supletoriamente la filosofía que orienta al reglamento de la contratación administrativa (D.E. 7576-H) para casos similares.

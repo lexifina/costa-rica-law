@@ -1,3 +1,0 @@
-Artículo 23.—De las garantías: En el cartel se deberá indicar el tipo de garantía que deberán rendir los concursantes (garantía de participación), así como el o los adjudicatarios, (garantía de cumplimiento). El porcentaje de dichas garantías se fijará entre un 1% y un 10% del monto de la cotización para la garantía de participación y entre un 5% y un 20% para la de cumplimiento.
-Las causas de ejecución, las formas de cálculo y su vigencia, serán determinadas por el cartel.
-En el caso de que hubiere de ejecutarse la Garantía de Participación, la empresa queda facultada para readjudicar la licitación, siempre que las ofertas no hayan vencido, o para declarar desierto el concurso.

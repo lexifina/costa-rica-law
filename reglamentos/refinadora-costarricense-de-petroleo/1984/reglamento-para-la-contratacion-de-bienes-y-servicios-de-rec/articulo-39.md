@@ -1,3 +1,0 @@
-CAPITULO VII
-Modificación a las contrataciones
-Artículo 39.—Modificaciones: En todo el cartel se indicará que RECOPE podrá aumentar, disminuir o modificar la prestación objeto del contrato en razón de un interés justificado y hasta un 20% en las mismas condiciones ofrecidas, siempre que tal medida se origine en circunstancias imprevistas e imprevisibles al momento de la contratación. El órgano que podrá disponerlos será el indicado en el artículo 89. Cuando la modificación exceda del 20% del monto de la adjudicación se requerirá además, la aquiescencia formal del contratista. De no acceder, RECOPE podrá optar por la rescisión del contrato.

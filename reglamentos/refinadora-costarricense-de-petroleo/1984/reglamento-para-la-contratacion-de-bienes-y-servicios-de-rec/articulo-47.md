@@ -1,5 +1,0 @@
-CAPITULO X
-Prohibiciones
-Artículo 47.—Queda absolutamente prohibido a los funcionarios o empleados de RECOPE, participar directa o indirectamente en contrataciones con la empresa. La misma prohibición rige para el cónyuge, los hijos, padres, hermanos, tíos, suegros, yernos y cuñados de los funcionarios y empleados mencionados. La violación de la presente norma será considerada como falta grave que generará el despido sin responsabilidad patronal. La Gerencia General estará obligada a ejecutar el despido.
-De la misma manera, se prohibe la contratación con las sociedades en que los funcionarios o sus relacionados parientes sean socios, directores o personeros.
-No les alcanza sin embargo dicha prohibición, cuando tuvieren como ocupación habitual la actividad objeto del contrato con un año por lo menos de anterioridad al nombramiento o elección, o desde que surgió el impedimento respectivo, lo cual deberá demostrar documentalmente ante la Junta Directiva, antes de participar en los correspondientes procedimientos, a efecto de ser autorizados.

@@ -1,1 +1,0 @@
-Artículo 40.—Garantías: Cualquier aumento o disminución de los contratos producirá variación sobre la garantía y el contratista deberá proceder a hacer el ajuste del caso, salvo que la garantía sea suficiente.

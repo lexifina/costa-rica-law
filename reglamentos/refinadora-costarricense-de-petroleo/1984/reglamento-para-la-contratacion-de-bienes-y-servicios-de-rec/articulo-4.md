@@ -1,1 +1,0 @@
-Artículo 4°—Unidad de trámite: La Dirección de Administración de Suministros, con excepción de lo dispuesto en el artículo 12, será la dependencia encargada de programar, adquirir, arrendar, almacenar y distribuir los materiales, equipos y servicios solicitados por las dependencias de RECOPE de acuerdo con los procedimientos que para tal efecto se establecen.

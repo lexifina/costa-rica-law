@@ -1,1 +1,0 @@
-Artículo 17.—Modificaciones al cartel: Cualquier modificación a las condiciones o especificaciones del cartel deberá anunciarse en los periódicos y comunicarse por escrito a los interesados. El plazo mínimo entre la fecha de comunicación y de vencimiento para recibir ofertas no será menos de quince (15) días hábiles.

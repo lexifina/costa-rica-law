@@ -1,1 +1,0 @@
-Artículo 52.—Plazo e inicio del contrato: Para los efectos de la correspondiente entrega y recepción de obras, bienes o servicios contratados, se tendrá presente que el plazo señalado para la respectiva ejecución, a falta de estipulación sobre el particular, empezará a correr desde el momento en que se entregue la orden de compra o se dé la orden de inicio en su caso.
