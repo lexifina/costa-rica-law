@@ -1,0 +1,14 @@
+Artículo 4º.- En el desempeño de su cometido, el Ministerio de Economía, Industria y Comercio podrá:
+a) Requerir de las personas físicas o jurídicas los informes y documentos, que considere necesarios, los cuales tendrán carácter de declaración jurada;
+b) Obtener de las instituciones de carácter público los documentos necesarios para completar la información requerida, con excepción de los que por ley tienen carácter confidencial;
+c) Dictar medidas que procuren el adecuado abastecimiento del consumo interno, sin perjuicio de la competencia específica de otras entidades;
+ch) Velar por el correcto estado de las pesas y medidas, así como de las registradoras empleadas por los expendedores de bienes y decomisar las que se encuentren alteradas o defectuosas;
+d) Decomisar la existencia de bienes que sean ofrecidos en venta a precios o con porcentajes de utilidad mayores a los señalados por el Ministerio;
+e) Decomisar los bienes objeto de acaparamiento o especulación, con ocultamiento o sin él, efectuado con la expectativa o finalidad de obtener o provocar alzas en los precios;
+f) Permitir, temporalmente, la libre importación o conceder permisos de importación, en condiciones especiales, cuando por cualquier causa se produzca o prevea interrupción, paralización o disminución de la capacidad productiva existente o del abastecimiento de bienes necesarios para la producción o el consumo nacional, debidamente comprobados, sin que esta medida pueda ser discriminatoria;
+g) Prohibir la exportación, establecer cuotas u otros regímenes especiales de exportación, cuando a juicio del Ministerio haya una situación real o probable de escasez en el mercado nacional;
+h) Regular la distribución de los artículos para el consumo nacional y, cuando lo estime necesario, fijar cuotas a dichos artículos para ser distribuidos por el Consejo Nacional de la Producción, a través de sus expendios o establecimientos particulares establecidos.
+El valor de las mercaderías, que así se adquieran, deberá ser cancelado dentro de los plazos establecidos por la práctica comercial para cada clase de artículo;
+i) Controlar y evitar las prácticas restrictivas de la actividad comercial y comercio desleal, así como las prácticas monopolísticas de mercado;
+j) Clasificar los establecimientos comerciales, a que se refiere el artículo 12 de esta ley, con el fin de que la fijación de precios sobre bienes y servicios se haga de acuerdo con las categorías que por reglamento se les asigne, tomando en cuenta la región del país y los costos de transporte que éstos demanden; y
+k) Dictar las medidas necesarias para asegurar un efectivo cumplimiento de las normas oficiales de calidad.

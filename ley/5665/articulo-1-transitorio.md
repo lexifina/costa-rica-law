@@ -1,0 +1,7 @@
+CAPÍTULO IX
+Disposiciones Transitorias
+TRANSITORIO I.- Con el propósito de impulsar una adecuada campaña de educación para el consumidor e informar a los ciudadanos ampliamente sobre los alcances y fines de esta ley, se establecen, por un período adicional de seis meses al final del mismo, las siguientes obligaciones para los medios de comunicación colectiva:
+1) Prensa escrita: Cada uno de los medios de esta naturaleza cederá a la orden del Ministerio de Economía, Industria y Comercio, una página a la semana. Si la publicación fuera un semanario, una página al mes;
+2) Radio: Cada uno de los medios de esa naturaleza cederá a la orden del Ministerio de Economía, Industria y Comercio, un total de treinta minutos por semana, los cuales podrán ser utilizados en forma de cuñas cortas o bien en un solo espacio, durante los períodos de transmisión que van de las 5:00 a.m. a las 10:00 p.m.; y
+3) Televisión: Cada uno de los medios de esta naturaleza cederá a la orden del Ministerio de Economía, Industria y Comercio, un total de diez minutos por semana, los cuales podrán ser utilizados en forma de espacios cortos de tiempo o en un solo espacio durante los períodos diarios de transmisión comprendidos entre las 6:00 p.m. y las 10:00 p.m.
+Para los efectos de los incisos 2) y 3) de este Transitorio, las empresas de radio y televisión remitirán los horarios disponibles, los cuales se escogerán de común acuerdo, prevaleciendo para la escogencia definitiva, el juicio del Ministerio.
