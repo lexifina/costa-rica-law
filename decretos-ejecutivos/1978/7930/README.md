@@ -24,3 +24,4 @@ Reglamento a la Ley de Fomento de las Exportaciones
 | 9 | 1981-08-26 | Decreto Ejecutivo 12894 (1981-08-26) |
 | 10 | 1982-04-28 | Decreto Ejecutivo 13555 (1982-04-28) |
 | 11 | 1982-11-02 | Decreto Ejecutivo 14001 (1982-11-02) |
+| 12 | 1983-04-20 | Decreto Ejecutivo 14476 (1983-04-20) |
