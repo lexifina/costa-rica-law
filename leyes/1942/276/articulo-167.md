@@ -1,0 +1,2 @@
+Artículo 167.- Cuando además de la sanción penal correspondiente esta ley disponga que la infracción acarrea la suspensión o cancelación de la concesión o permiso de disfrute de aguas, el Tribunal sentenciador aplicará, necesariamente, como pena accesoria, dicha suspensión o cancelación, y lo notificará por nota al Ministerio del Ambiente y Energía.
+(Así reformado por el Transitorio V de la Ley Nº 7593 de 9 de agosto de 1996)

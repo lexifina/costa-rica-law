@@ -1,0 +1,1 @@
+Artículo 84.- Salvo lo dicho en el artículo 81, pertenece a los dueños de los terrenos confinantes con los arroyos, torrentes, ríos y lagos, el acrecentamiento que reciban paulatinamente por la accesión o sedimentación de las aguas.

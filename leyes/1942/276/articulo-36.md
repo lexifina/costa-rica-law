@@ -1,0 +1,2 @@
+Artículo 36.- No se decretará la enajenación forzosa de aguas de propiedad particular para el abastecimiento de una población, sino cuando legalmente se haya declarado, en vista de los estudios practicados al efecto, que no hay aguas públicas que puedan ser racionalmente aplicadas al mismo objeto, a juicio del Ministerio del Ambiente y Energía.
+(sí reformado por el Transitorio V de la Ley Nº 7593 de 9 de agosto de 1996)

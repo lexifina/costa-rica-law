@@ -1,0 +1,3 @@
+CAPITULO IV
+De las obras de defensa y desecación de terrenos
+Artículo 89.- Los dueños de predios lindantes con cauces públicos tienen libertad de poner defensas contra las aguas en sus respectivas márgenes por medio de plantaciones, estacadas o revestimientos, siempre que lo juzguen conveniente. La administración podrá, sin embargo, previo expediente, mandar suspender tales obras y aún restituir las cosas a su anterior estado, cuando por las circunstancias amenacen aquéllas causar perjuicios a la navegación o flotación de los ríos, desviar las corrientes de su curso natural, o producir inundaciones. La indemnización de los perjuicios que pudieran causarse correrán a cargo del dueño que ordenó la construcción de las defensas.

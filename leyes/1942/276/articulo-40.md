@@ -1,0 +1,1 @@
+Artículo 40.- Los aumentos del caudal de aguas para abastecimiento de poblaciones y demás usos a que se refiere la presente Sección, se harán siguiéndose los trámites que se determinan en el capítulo sétimo de esta ley.

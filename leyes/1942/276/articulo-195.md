@@ -1,0 +1,1 @@
+Artículo 195.- Los gastos de viático y demás indispensables en cada caso, le serán satisfechos al Inspector por el interesado que reclame su intervención, sin perjuicio de que éste los cobre de la persona que a ello fuere condenada por la sentencia.

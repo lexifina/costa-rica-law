@@ -1,0 +1,2 @@
+Artículo 179.- Recibida la solicitud, el Ministerio del Ambiente y Energía publicará en el Diario Oficial, y por tres veces consecutivas, un edicto poniendo en conocimiento del público la solicitud, a fin de que los opositores que se consideren lesionados presenten sus objeciones durante el término de un mes que se contará desde la fecha de publicación del primer edicto.
+(Así reformado por el Transitorio V de la Ley Nº 7593 de 9 de agosto de 1996)

@@ -1,0 +1,1 @@
+Artículo 161.- Los delitos y faltas expresamente previstos en los Códigos Penal y de Policía, en relación con la materia de que trata esta ley, serán penadas con las sanciones señaladas en esos cuerpos de leyes.

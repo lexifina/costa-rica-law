@@ -1,0 +1,2 @@
+Artículo 44.- Cuando los ferrocarriles atraviesen terrenos de regadío, las empresas tendrán derecho a tomar en los puntos más convenientes para el servicio del ferrocarril, la cantidad de agua correspondiente al terreno que hayan ocupado y pagado, quedando obligadas a satisfacer en la misma proporción el canon de regadío, o sufragar los gastos ordinarios y extraordinarios de acequia, según los casos, todo según resolución que emitirá al respecto el Ministerio del Ambiente y Energía.
+(Así reformado por el Transitorio V de la Ley Nº 7593 de 9 de agosto de 1996)

@@ -1,0 +1,2 @@
+Artículo 62.- Será obligación de los concesionarios conservar en buen estado las obras, así como el servicio de explotación, si estuviese a su cargo.
+Cuando por faltar al cumplimiento de este deber se imposibilitara la navegación, el Gobierno fijará un plazo para la reparación de las obras y la reposición del material; y transcurrido que sea sin haberse conseguido el objeto, declarará caduca la concesión.

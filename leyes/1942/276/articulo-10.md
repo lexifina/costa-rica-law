@@ -1,0 +1,3 @@
+SECCION II
+De los aprovechamientos comunes de las aguas públicas
+Artículo 10.- El libre uso del mar litoral, ríos navegables, ensenadas, radas, bahías y abras, se entiende para navegar, pescar, embarcar, desembarcar, fondear y otros actos semejantes, conforme a las prescripciones legales o reglamentarias que lo regulen y siempre que ese uso no haya sido objeto de una concesión particular o de reserva del Estado. En el mismo caso se encuentra el uso de las playas, el cual autoriza a todos, con iguales restricciones, para transitar por ellas, bañarse, tender y enjugar ropas y redes, verar, carenar y construir embarcaciones, bañar ganado y recoger conchas, plantas y mariscos.

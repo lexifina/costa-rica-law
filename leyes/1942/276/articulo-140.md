@@ -1,0 +1,5 @@
+Artículo 140.- En los casos de escasez de agua, se establecen los siguientes principios:
+I.- Las aguas se aplicarán de preferencia a los usos domésticos, servicios públicos, abrevaderos, baños, lecherías y abastecimiento de sistemas de transporte;
+II.- Si satisfechos los anteriores usos quedan aguas sobrantes, pero no en la cantidad necesaria para surtir a todos los aprovechamientos, se distribuirán proporcionalmente a sus necesidades entre los siguientes: riego de terrenos en una superficie que no exceda de cinco hectáreas por cada propietario; usos industriales y fuerza motriz para empresas de servicios públicos, cuando la paralización de las industrias o de las plantas de fuerza motriz ocasionen graves perjuicios de orden social o económico a la colectividad;
+III.- Si una vez cubiertas por completo las necesidades de los aprovechamientos que antes se mencionan, quedan aguas sobrantes, se distribuirán así: riego de terrenos mayores de cinco hectáreas y fuerza motriz para servicios particulares y usos industriales; y
+IV.- Si satisfechos los aprovechamientos anteriores, quedan aguas sobrantes se cubrirán las demás necesidades.

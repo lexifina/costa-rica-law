@@ -1,0 +1,1 @@
+Artículo 142.- Exceptuados los casos de expropiación o modificación de derechos preestablecidos, los aprovechamientos que se autoricen sólo podrán utilizar las aguas excedentes, después de satisfecho en su totalidad lo comprendido en el artículo 140.

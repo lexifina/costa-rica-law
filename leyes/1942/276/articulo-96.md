@@ -1,0 +1,1 @@
+Artículo 96.- Del mismo modo el dueño del predio superior puede construir dentro de él ribazos, malecones o paredes que, sin gravar la servidumbre del predio inferior, suavicen las corrientes de las aguas impidiendo que arrastren consigo la tierra vegetal, o causen desperfectos en la finca.

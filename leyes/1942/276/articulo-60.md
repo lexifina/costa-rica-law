@@ -1,0 +1,1 @@
+Artículo 60.- Pasados los diez primeros años de hallarse en explotación un canal, y en lo sucesivo de diez en diez años, se procederá a la revisión de las tarifas, salvo que la concesión estableciere cosa distinta.

@@ -1,0 +1,1 @@
+Artículo 66.- En caso de que los propietarios de fundos ajenos se negaren a otorgar las licencias, podrá decretarse la expropiación, si lanempresa que se pretende desarrollar fuere de interés para la colectividad.

@@ -1,0 +1,1 @@
+Artículo 90.- Los dueños de lagunas o terrenos pantanosos o encharcadizos, que quieran desecarlos o sanearlos, podrán extraer de los terrenos públicos, previa la correspondiente autorización de la autoridad local, la tierra y piedra indispensable para el terraplén y demás obras.

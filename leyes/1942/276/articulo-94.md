@@ -1,0 +1,5 @@
+CAPITULO V
+SECCION I
+De las servidumbres naturales
+Artículo 94.- Los terrenos inferiores están obligados a recibir las aguas que naturalmente, y sin intervención del hombre, fluyan de los superiores, así como la tierra o piedras que arrastren en su curso. Pero si las aguas fuesen producto de alumbramientos artificiales, o sobrantes de acequias de riego, o procedentes de establecimientos industriales que no hayan adquirido esta servidumbre, tendrá el dueño del predio que recibe las aguas el derecho de exigir el resarcimiento de daños y perjuicios, a menos que éste quiera aprovecharse de las aguas que reciba su terreno, en cuyo caso no tiene derecho a tal resarcimiento.
+Los dueños de predios o establecimientos inferiores podrán negarse a recibir los sobrantes de los establecimientos industriales que arrastren o lleven en disolución sustancias nocivas o fétidas, introducidas por los dueños de éstos. Presentarán al efecto la reclamación correspondiente ante la autoridad de policía respectiva.

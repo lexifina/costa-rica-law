@@ -1,0 +1,1 @@
+Artículo 147.- Las autorizaciones que confiere el Poder Ejecutivo para explotar bosques nacionales en la forma prevista en el artículo 549 del Código Fiscal deberán contener, expresamente, la prohibición de cortar los árboles a que aluden el artículo anterior y siguiente.

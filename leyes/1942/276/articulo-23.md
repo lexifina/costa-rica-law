@@ -1,0 +1,2 @@
+Artículo 23.- El Ministerio del Ambiente y Energía no asume ninguna responsabilidad por la falta o disminución de agua que pudiera resultar en el caudal expresado en la concesión, ya sea que proceda de error o de cualquiera otra causa. Se entenderá que toda concesión se extiende con esa liberación de responsabilidad, aunque no se diga expresamente.
+(Así reformado por el Transitorio V de la Ley Nº 7593 de 9 de agosto de 1996)

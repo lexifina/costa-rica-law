@@ -1,0 +1,3 @@
+Artículo 20.- En las concesiones de aprovechamiento de aguas públicas se entenderá comprendida la de los terrenos de dominio público, necesarios para la obra de la presa y de los canales y acequias.
+Respecto de los terrenos de propiedad del Estado, de los Municipios, de los pueblos y de los particulares, se procederá, según los casos, a imponer la servidumbre forzosa, con las formalidades de ley.
+La expropiación se hará por la Secretaría de Estado en el Despacho de Gobernación y Policía con los trámites indicados en la ley número 36 de 26 de junio de 1896, adicionada por la Nº 78 de 24 de junio de 1938, o la que a esa sazón rija sobre la materia.

@@ -1,0 +1,1 @@
+Artículo 16.- En las aguas de dominio privado y en las concedidas para el establecimiento de viveros o criaderos de peces, solamente podrán pescar los dueños o concesionarios, o los que de ellos obtuviesen permiso, sin más restricciones que las relativas a la salubridad pública.

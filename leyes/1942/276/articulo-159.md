@@ -1,0 +1,1 @@
+Artículo 159.- Los Gobernadores, Jefes Políticos, Agentes de Policía y demás autoridades del mismo ramo deberán exigir, en sus respectivas circunscripciones, el estricto cumplimiento de lo establecido en esta ley.

@@ -1,0 +1,2 @@
+Articulo 202.-Procede igualmente el juicio ordinario en los términos indicados en los artículos anteriores en los casos en que las resoluciones del Ministerio del Ambiente y Energía hayan sido dictadas sobre concesiones de aguas destinadas a desarrollar fuerzas o caducidad de las mismas de acuerdo con la ley Nº 258 de 18 de agosto de 1941, y en las que se pronuncien modificando concesiones de acuerdo con el Capítulo sétimo de esta ley.
+(Así reformado por el Transitorio V de la Ley Nº 7593 de 9 de agosto de 1996)

@@ -1,0 +1,1 @@
+Artículo 115.- Cuando el dueño de un acueducto que atraviesa tierras ajenas solicitare aumentar su capacidad para recibir mayor caudal de agua, se usarán las mismas reglas que para su establecimiento.

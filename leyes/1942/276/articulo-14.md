@@ -1,0 +1,1 @@
+Artículo 14.- Todos pueden pescar en cauces públicos, sujetándose a las leyes y reglamentos de policía que especialmente sobre la pesca existan o puedan dictarse, siempre que no se embarace la navegación y flotación. Queda absolutamente prohibido pescar haciendo uso de explosivos o envenenamiento de las aguas.

@@ -1,0 +1,1 @@
+Artículo 152.- Mantiénese la institución de guardabosques creada por decreto número 40 de 13 de junio de 1906. El Poder Ejecutivo dispondrá la manera de hacer efectiva, a la mayor brevedad, esa disposición.

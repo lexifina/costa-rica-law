@@ -1,0 +1,5 @@
+SECCION II
+De los inspectores Cantonales de Aguas
+Artículo 194.- Los Inspectores Cantonales de Aguas a que se refieren el presente y anterior capítulo deben ser mayores de edad, ciudadanos en ejercicio y de probidad notoria. Estos funcionarios serán nombrados por el Ministerio del Ambiente y Energía, de una terna propuesta por la Municipalidad respectiva en los primeros quince días de cada año; permanecerán en sus funciones un año sin perjuicio de ser reelectos indefinidamente; y durante su período sólo podrán ser removidos por el Ministerio del Ambiente y Energía por faltas graves en el ejercicio de su cargo, o por disponerlo así una sentencia de los Tribunales.
+Su sueldo será asignado y cubierto por la Municipalidad respectiva y este gasto pesará sobre las rentas generales del cantón. Si se diere el caso de que alguna de las Municipalidades de los cantones menores no pudiere satisfacer el sueldo del Inspector, las funciones podrán ser recargadas en el respectivo Jefe Político con anuencia del Ministerio del Ambiente y Energía.
+(Así reformado por el Transitorio V de la Ley Nº 7593 de 9 de agosto de 1996)

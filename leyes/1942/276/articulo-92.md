@@ -1,0 +1,1 @@
+Artículo 92.- Cuando se declare, por quien corresponda, insalubre una laguna o terreno pantanoso o encharcadizo, procede forzosamente su desecación o saneamiento. Si fuere de propiedad privada se hará saber a los dueños la resolución para que dispongan el desagüe o saneamiento en el plazo que se les señale.

@@ -1,0 +1,1 @@
+Artículo 78.- Los cauces de los ríos que queden abandonados por variar naturalmente el curso de las aguas, pertenecen a los dueños de los predios respectivos en toda la longitud. Si el cauce abandonado separaba heredades de distintos dueños, la nueva línea divisoria correrá equidistante de unas y otras.

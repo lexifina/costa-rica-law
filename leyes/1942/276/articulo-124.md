@@ -1,0 +1,1 @@
+Artículo 124.- Decretada la servidumbre forzosa de estribo de presa, se abonará al dueño del predio o predios sirvientes el valor que por la ocupación del terreno corresponda; y después se le indemnizará de los daños y perjuicios que pudieran haber experimentado las fincas.

@@ -1,0 +1,1 @@
+Artículo 211.- En los casos de expropiación forzosa prescritos en esta ley cabe acción ante los Tribunales únicamente cuando no hubiere precedido al desahucio la correspondiente indemnización, o cuando la expropiación se hubiere decretado sin la observancia de las prescripciones legales que regulan la materia.

@@ -1,0 +1,1 @@
+Artículo 170.- Las concesiones de aprovechamientos de agua para el desarrollo de fuerzas hidráulicas y eléctricas pagarán los impuestos que se determinan en el artículo 57 de la ley número 258 de 18 de agosto de 1941, pero si las aguas se emplearen para otros menesteres distintos al desarrollo de fuerza, deberán pagar, además, el impuesto a que se refiere el artículo preanterior.

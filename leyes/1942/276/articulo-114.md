@@ -1,0 +1,1 @@
+Artículo 114.- Si el acueducto atravesare vías públicas o particulares, de cualquier naturaleza que sean, quedará obligado el que haya obtenido la concesión a construir y conservar las alcantarillas y puentes necesarios; y si hubiere de atravesar otros acueductos, se procederá de modo que no retarde ni acelere el curso de las aguas, ni disminuya su caudal, ni adultere su calidad.

@@ -1,0 +1,1 @@
+Artículo 214.- Las concesiones dadas en virtud de contratos legalmente aprobados no serán objeto de restricción, a menos que llegare a comprobarse que las corrientes que proveen los servicios contratados sirven con exceso los fines a que están destinados y en ese caso podrá disponerse de los sobrantes en el orden establecido en el artículo 27.

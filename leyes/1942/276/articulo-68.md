@@ -1,0 +1,1 @@
+Artículo 68.- La solicitud de concesión deberá presentarse con acompañamiento de planos topográficos, estudio de niveles, y demás datos indispensables que permitan apreciar la seriedad de la obra que se realiza.

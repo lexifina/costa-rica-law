@@ -1,0 +1,3 @@
+SECCION VII
+Abastecimiento para beneficios de café, trapiches, molinos y otras fábricas
+Artículo 56.- Las aguas públicas concedidas a los propietarios de beneficios de café, trapiches, fábricas y otras empresas industriales para el desarrollo de fuerzas hidráulicas o hidroeléctricas, no pueden ser empleadas en el laboreo de sus productos, sin una concesión especial para ese fin. No obstante, los usuarios que en la fecha de la promulgación de la presente ley estuvieren aprovechando aguas públicas en esos menesteres, podrán continuar su aprovechamiento, quedando sujetos a las restricciones que determina el Capítulo VII y a las obligaciones que determina el Artículo 21.

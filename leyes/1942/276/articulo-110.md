@@ -1,0 +1,1 @@
+Artículo 110.- La servidumbre temporal no puede prorrogarse, pero sí convertirse en perpetua, sin necesidad de nueva concesión, si el concesionario abona lo establecido en el artículo anterior, previa deducción de lo satisfecho por la servidumbre temporal.

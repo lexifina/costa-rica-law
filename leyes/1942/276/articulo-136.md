@@ -1,0 +1,1 @@
+Artículo 136.- Podrán constituirse colectividades de concesionarios de aguas en una misma región cuando se provean del mismo o de los mismos manantiales. Esas colectividades pueden constituirse por medio de escritura pública y les son aplicables, en cuanto quepan, las disposiciones del presente capítulo.
