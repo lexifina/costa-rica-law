@@ -1,0 +1,1 @@
+Artículo 5º—Las decisiones de inversión deben ser evaluadas según las necesidades u objetivos específicos de la Municipalidad. Así mismo, se debe velar por el cumplimiento de los siguientes parámetros generales: liquidez, seguridad y rentabilidad según sea el caso y las posibilidades que el mercado ofrezca.

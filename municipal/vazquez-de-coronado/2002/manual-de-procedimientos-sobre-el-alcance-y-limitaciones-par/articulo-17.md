@@ -1,0 +1,2 @@
+Artículo 17.—Como comprobante inversión se consideran: la tenencia física de los títulos, copia de documentos emitidos por el puesto de bolsa en cuestión en donde se hace constar la realización de la inversión, los estados de cuenta que emiten los puestos de bolsa u otro intermediario financiero en forma mensual, quincena o semanal cuando los títulos valores en cuestión se encuentren custodiados en la Central de Valores.
+Cualquier otro documento comprobatorio al que se refiere el artículo 8º.

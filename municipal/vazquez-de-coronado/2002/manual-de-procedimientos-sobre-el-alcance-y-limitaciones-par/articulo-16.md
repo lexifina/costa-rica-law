@@ -1,0 +1,1 @@
+Artículo 16.—Comprobantes: Se exigirán comprobantes de las inversiones efectuadas, las cuales deberán ser conservados por el Departamento Administrativo-Financiero y el tesorero municipal con el fin de llevar un control doble de la operación.

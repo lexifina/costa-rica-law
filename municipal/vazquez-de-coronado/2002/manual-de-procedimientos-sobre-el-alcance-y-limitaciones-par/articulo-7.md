@@ -1,0 +1,1 @@
+Artículo 7º—Las posibles inversiones en títulos denominados con garantía estatal quedan supeditados a la obtención de una recomendación por parte de la Contraloría General de la República, que para tal efecto, este órgano emita.

@@ -1,0 +1,1 @@
+Artículo 9º—Debido a lo cambiante de los productos financieros a través del tiempo, a la obsolescencia de algunos mecanismos e introducción contínua de nuevos instrumentos financieros se permite la utilización otros no mencionados en el artículo precedente, siempre y cuando cumplan y se tenga presente lo descrito en los artículo 5º y 6º.

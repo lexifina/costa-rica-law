@@ -1,0 +1,1 @@
+Artículo 11.—Responsabilidad: El titular del área financiera en conjunto con el Alcalde serán los encargados de determinar las necesidades de inversión o de recuperación de la institución, es decir montos y plazos e instrumentos a invertir.

@@ -1,0 +1,2 @@
+Procedimiento interno para gestionar inversiones:
+Artículo 10.—Apertura de un contrato de cuenta: Antes de gestionar cualquier inversión, el cliente deberá suscribir el contrato que para ese efecto le suministrará el puesto, el objetivo de dicho contrato es proteger al inversionista por medio de una serie de acuerdos marco que regulan la operativa de la cuenta, sus limitaciones generales y responsabilidades del puesto en el cuidado, manejo y administración de patrimonio de inversionista.

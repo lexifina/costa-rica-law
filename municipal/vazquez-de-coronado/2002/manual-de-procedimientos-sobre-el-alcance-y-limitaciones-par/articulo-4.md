@@ -1,0 +1,1 @@
+Artículo 4º—Las decisiones en cuanto al tipo de instrumento financiero a utilizar, el plazo y montos las establecerá el Alcalde en conjunto o bajo recomendación del Departamento Administrativo- Financiero, sin menoscabo del buen funcionamiento operativo de la Municipalidad.
