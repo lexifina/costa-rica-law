@@ -15,3 +15,4 @@ Reglamento de otorgamiento de Incapacidades y Licencias a Beneficiarios del Segu
 | --- | --- | --- |
 | 1 | 1997-09-01 | la propia norma |
 | 2 | 2000-03-22 | SINALEVI (sin norma nombrada) |
+| 3 | 2001-10-18 | Reglamento 7591 (2001-10-18) |
