@@ -1,0 +1,2 @@
+Artículo 6º—Actualización de la información. El prospecto deberá actualizarse cada vez que se modifique la información relacionada con el contenido mínimo aquí establecido; todo ello de conformidad con las instrucciones que emita el Superintendente General de Valores.
+El Superintendente General de Valores establecerá los medios por los cuales la sociedad administradora deberá informar a los inversionistas sobre los cambios realizados al prospecto, así como los plazos de que dispondrá para realizar tal comunicación.

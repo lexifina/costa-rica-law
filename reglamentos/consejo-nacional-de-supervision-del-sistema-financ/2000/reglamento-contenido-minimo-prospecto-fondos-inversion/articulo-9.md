@@ -1,0 +1,1 @@
+Artículo 9º—Contenido mínimo de la carátula. En la carátula deberá identificarse claramente el fondo y su naturaleza, así como la sociedad que lo administra, con las leyendas que el Superintendente establezca.
