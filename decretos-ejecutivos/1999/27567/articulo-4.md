@@ -1,0 +1,1 @@
+Artículo 4°—Todo cilindro que contenga gas para uso hospitalario, deberá ser rotulado y pintado de acuerdo a la normativa internacional de Organización de las Naciones Unidas. Además deberá ser rotulado con una leyenda legible indicando el tipo de gas que contiene.

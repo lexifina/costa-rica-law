@@ -1,0 +1,1 @@
+Artículo Transitorio.—Los establecimiento hospitalarios que suministren oxígeno por red cuentan con un plazo de cuatro meses a partir de la publicación del presente decreto ejecutivo, para cumplir con lo dispuesto en el párrafo cuarto del artículo 2 de este decreto ejecutivo.
