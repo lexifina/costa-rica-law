@@ -1,0 +1,2 @@
+Art. 8°-El Poder Ejecutivo dictará los reglamentos que procedan.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintiocho días del mes de diciembre de mil ochocientos ochenta y siete.-AND. SÁENZ, Presidente. -J. M. SOTO Y ALFARO, Secretario ad hoc. -Palacio Presidencial.-San José, á veintiocho de diciembre de mil ochocientos ochenta y siete.-Ejecútese.-BERNARDO Soro.-El Ministro de Instrucción Pública, MAURO FERNÁNDEZ.

@@ -1,0 +1,1 @@
+Art. 4 -A los mencionados alumnos, aprobados que sean, se les expedirán los certificados correspondientes en igual forma que los que se dan en los colegios nacionales; pero con expresión de aquel de que procedan. Estos documentos serán respetados en todos ellos y en la Universidad de Santo Tomás, para los efectos legales.
