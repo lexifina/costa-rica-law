@@ -10,7 +10,8 @@ Considerando:
 5°—Que se ha suscrito un Acuerdo de Cooperación entre el Gobierno de Costa Rica, representado por el Ministerio de Agricultura y Ganadería y el Organismo Internacional Regional de Sanidad Agropecuaria (OIRSA), para el establecimiento y operación de un programa nacional e internacional de fumigación (SIF) de productos agropecuarios, el cual fue suscrito en la ciudad de San José. Costa Rica el 15 de diciembre de 1988.
 6°—Que la Ley N° 7664 del 8 de abril de 1997. Ley de Protección Fitosanitaria, creó el Servicio Fitosanitario del Estado otorgándole las funciones que anteriormente realizaba la Dirección de Sanidad Vegetal del Ministerio de Agricultura y Ganadería. Por tanto:
 DECRETAN:
-Artículo 1°—Fíjense las tarifas que regirán para los servicios que presta el Ministerio de Agricultura y Ganadería, por medio de la Dirección de Investigaciones Agropecuarias.
+Artículo 1°—Fíjense las tarifas que regirán para los servicios que presta el Ministerio de Agricultura y Ganadería, por medio del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA).
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31039 del 19 de febrero de 2003)
 A. SERVICIOS EN FITOPROTECCION.
 1. Exámenes microscópicos o de otra índole para |
 identificación de enfermedades, (por muestra) | ¢2.000,00
