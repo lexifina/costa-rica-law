@@ -1,0 +1,1 @@
+Articulo 22—Este Reglamento fue aprobado por la Junta Directiva del Consejo Nacional de Producción, en sesión No 254, artículo 12 de 11 de noviembre de 1985 y autorizado por la Contraloría General, según oficio No 113-L del 16 de enero de 1986.

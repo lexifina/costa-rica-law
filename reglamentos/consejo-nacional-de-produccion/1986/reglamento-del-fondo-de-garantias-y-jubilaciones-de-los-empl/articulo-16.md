@@ -1,0 +1,1 @@
+Artículo 16—La Administración de! Conejo dotará de los recursos humanos y materiales necesarios, para que las solicitudes de préstamo sean analizadas y se dé la respectiva recomendación, previo a ser presentadas a la, Junta Administradora para su resolución.

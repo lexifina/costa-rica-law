@@ -1,0 +1,1 @@
+Articulo 21—Los funcionarios del Consejo relacionados con la aplicación de este Reglamento, estarán sujetos a las sanciones disciplinarias que establece la legislación laboral, en caso de falta o incumplimiento de sus obligaciones.
