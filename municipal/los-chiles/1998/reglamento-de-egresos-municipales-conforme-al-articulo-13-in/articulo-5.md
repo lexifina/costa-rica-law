@@ -1,0 +1,1 @@
+Artículo 5°—Además el Alcalde podrá celebrar convenios, comprometer los fondos o bienes de la Municipalidad autorizar egresos y en general adquirir bienes y servicios, sin necesidad de autorización del Concejo Municipal, cuando tales actos no excedan el tres por ciento (3%) del monto del presupuesto ordinario correspondiente, vigente al momento de efectuarse el egreso respectivo.

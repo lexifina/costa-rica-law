@@ -1,0 +1,1 @@
+Artículo 3°—Para la ejecución de cualquier egreso que requiera formular la Municipalidad, serán aplicables los principios y procedimientos que para dicho fin y conforme a la cuantía del mismo, establezca la Ley de Contratación Administrativa, su Reglamento; las resoluciones, disposiciones y directrices que de manera vinculante dicte la Contraloría General de la República.

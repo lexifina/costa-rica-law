@@ -1,0 +1,4 @@
+Artículo 6°—En todo caso el Alcalde Municipal deberá revisar en forma previa al pago o compromiso al que está autorizado, que el Departamento de Proveeduría ha guardado los procedimientos de contratación administrativa aplicable a cada caso, la existencia del expediente administrativo correspondiente que respalde la decisión de compra, contratación o compromiso y que existe subpartida presupuestaria que ampare el egreso.
+Si la subpartida estuviere agotada o fuera insuficiente, el egreso no se realizará.
+Es absolutamente prohibido, conforme el artículo 103 del Código Municipal, pagar un gasto con cargo a una subpartida de egresos que corresponda a otra.
+La infracción de lo antes dispuesto será motivo de suspensión del funcionario o empleado responsable y la reincidencia será causa! de despido sin responsabilidad patronal.
