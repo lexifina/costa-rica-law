@@ -1,0 +1,2 @@
+Artículo 15.—Del pago.
+Del pago del servicio de agua potable será responsable directo el propietario del bien inmueble al cual esta conectado. En cualquier caso de arrendamiento o inquilinato, el propietario es el responsable directo de velar porque el inquilino cancele puntualmente el servicio de agua potable, por lo que no causa justificativa el no pago por parte del inquilino. cuando el propietario haya pactado con éste último el pago del servicio de agua y este no haya cumplido.
