@@ -1,0 +1,1 @@
+Artículo 5°-Los terrenos privados existentes en el área se considerarán parte de la Zona Protectora cuando el Estado las adquiera, mientras tanto los propietarios gozarán de todos los atributos del dominio.

@@ -1,0 +1,1 @@
+Artículo 4°-EI Ministerio de Recursos Naturales, Energía y Minas por medio de la Dirección General Forestal, gestionará la implementación de convenios específicos con entes públicos o privados, nacionales o extranjeros, para la aportación de recursos de toda índole que contribuyan al manejo, control y desarrollo de la Zona Protectora.
