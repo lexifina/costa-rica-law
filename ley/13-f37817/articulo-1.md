@@ -1,0 +1,5 @@
+DECRETO XII.
+Aclara la letra del articulo 1104, parte la del codigo de la Republica.
+“Juan Rafael Mora Presidente de la República de Costa Rica, -_Por cuanto el Excelentísimo Congreso constitucional ha decretado lo siguiente:
+El Excelentisimo Congreso constitucional de la República de Costa Rica, advirtiendo que el articulo 1104 de la 1° parte del Código de la República está diminuto, y por este motivo dá lugar á dudas, se ha servido aclararlo en los siguientes, términos:
+"Ningun retracto, tendrá lugar cuando la venta se declare nula por alguna de las causas expresadas en el titulo de ventas." -Al Poder Ejecutivo.-Dado en el Palacio de los Supremos Poderes en San José a los trece dias del mes de junio de mil ochocientos cincuenta y uno, -Nazario Toledo, Diputado Vice Presidente.-Modesto Guevara, Secretario.-Miguel Mora Secretario Suplente.-Por tanto: EJECUTESE: Palacio Nacional. San José junio dieziocho de mil ochocientos cincuenta y uno. -Juan Rafael Mora. -El Ministro de Estado en el Despacho de Gobernacion, Joaquin Bernardo Calvo."
