@@ -1,0 +1,1 @@
+Artículo 4°—Las responsabilidades a que se refiere el párrafo 2 de la Sección 3 (b) del Contrato que por esta ley se aprueba, serán únicamente las de carácter civil, asumiéndolas el Gobierno de Costa Rica en cuanto sean consecuencia de daños personales o a la propiedad que pudieren producirse con ocasión de aquellas operaciones necesarias a los trabajos de la Carretera.
