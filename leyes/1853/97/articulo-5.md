@@ -1,0 +1,1 @@
+Artículo 5°:- En inventarios, retractos interdicción de obra nueva, justificaciones ad perpetuam y otras diligencias en que por las leyes pueden conocer los Alcaldes Constitucionales, cobraran sus derechos con arreglo al arancel al cual se arreglaran también para los derechos por la cartulación que les está encomendado.
