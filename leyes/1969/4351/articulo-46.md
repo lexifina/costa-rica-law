@@ -1,0 +1,2 @@
+Artículo 46.- El Banco estará sometido a la supervisión de la Auditoría General de Bancos, de acuerdo con lo establecido en el artículo 47 de la Ley Orgánica del Banco Central y el Capítulo III del Título I de la Ley Orgánica del Sistema Bancario Nacional. Asimismo, el Banco estará sometido a la fiscalización de la Contraloría General de la República.
+(Así adicionado por el artículo 1° de la ley N° 5776 del 18 de agosto de 1975)
