@@ -1,0 +1,1 @@
+II.—Referente a los proyectos no financiados en el marco de un Convenio de financiación específico. El Estado del Beneficiario aplicará el régimen definido en el apartado I a las acciones consideradas de interés público. Las demás acciones estarán sometidas a las disposiciones de la ley local.
