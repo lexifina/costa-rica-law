@@ -1,3 +1,2 @@
-Artículo 19.- Cuarenta y ocho horas después de haberse visto un
-proceso de imprenta, cualquiera que sea su importancia, se dictará el
-fallo que corresponda.
+Artículo 19.- ( ANULADO por Resolución de la Sala Constitucional Nº
+1197 de las 16:30 hrs. del 25 de junio de 1991 ).
