@@ -1,0 +1,1 @@
+Artículo 12.- Para los efectos de la presente ley se entiende que toda mercadería de las gravadas que se importe o se produzca es para el expendido, aún cuando se dijere que es para consumo privado o no para la venta; que en consecuencia todo está sujeto al pago del impuesto.

@@ -1,0 +1,1 @@
+Artículo 5º.- El Poder Ejecutivo queda facultado para hacer sorteos extraordinarios con dinero proveniente de cualquier otro recurso y de llamar al pago la totalidad de los bonos en cualquier momento.
