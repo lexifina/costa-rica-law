@@ -1,0 +1,4 @@
+N°1224
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+Decreta:
+Artículo 1°.- Autorízase la presentación al Registro Público, como título suficiente de propiedad, para efectos de su inscripción, y sin perjuicio de tercero de mejor derecho, del testimonio de la escritura pública otorgada por doña Marta Mora Valenzuela de Prestinary, relativa a la cesión y traspaso de derechos de posesión sobre un terreno situado en Piuta, a favor del Concejo Municipal del Cantón Central de Limón, los cuales derechos fueron cedidos y traspasados en el mismo acto a la Caja Costarricense del Seguro Social, Departamento de la Habitación, de este domicilio. El terreno de referencia se dedicará exclusivamente a la construcción de viviendas, y la inscripción aquí autorizada se hará libre de derechos fiscales. El notario autorizante de la escritura pondrá razón de esta ley al pie del documento respectivo.
