@@ -1,0 +1,1 @@
+Artículo 6º-Todos los vehículos de uso administrativo llevarán siempre una placa de matrícula especial en los lugares donde reglamentariamente esta deba colocarse y un distinti vo visible en sus costados, mediante el cual se indique "Municipalidad de Flores".

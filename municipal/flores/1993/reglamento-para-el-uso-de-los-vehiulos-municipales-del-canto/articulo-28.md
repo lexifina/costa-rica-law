@@ -1,0 +1,1 @@
+Artículo 28.-El presente reglamento entrará a regir inmediatamente después de su , publicación en el Diario Oficial "La Gaceta". Cualquier reforma o adición a este Reglamento será tramitado por el Concejo y requerirá la aprobación de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 4º-Las disposiciones contenidas en el presente reglamento son aplicables a todos los funcionarios que en razón de sus cargos usen, controlen y administren los recursos de transporte de la Municipalidad, incluidos el Ejecutivo y los Miembros del Concejo.

@@ -1,0 +1,1 @@
+Artículo 9º-Cuando la naturaleza de la labor a realizar permita utilizar según criterios de conveniencia y oportunidad medios de transporte público estos deberán referirse siempre que resulte más económicos.

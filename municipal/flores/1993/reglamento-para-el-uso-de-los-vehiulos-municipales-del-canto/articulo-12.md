@@ -1,0 +1,2 @@
+Artículo 12.- Los únicos funcionarios autorizados para retirar combustible, lubricantes, repuestos son los que tienen asignados vehículos de uso administrativo.
+A cada uno de estos vehículos el Ejecutivo les asignará la cuota de combustibles necesarios para su funcionamiento, de acuerdo con los programas establecidos. En caso de que dichas cuotas fueran insuficiente, el Ejecutivo podrá autorizar una cuota adicional dando las justificaciones escritas del caso.

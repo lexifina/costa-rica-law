@@ -1,0 +1,3 @@
+CAPITULO VI
+Responsabilidad por infracciones de tránsito, accidentes o pérdida de implementos.
+Artículo 21.- Deberá existir un control exacto de los accesorios, herramientas Y repuestos con que cuenta cada automotor, a través de una lista registro, el cual podrá ser supervisado en cualquier momento por el Contador .Municipal. Cuando injustificadamente se pierda uno de estos artículos el conductor o el responsable directo de la pérdida deberá reponerlo dentro del menor plazo posible, que al efecto fije el Ejecutivo Municipal. La inobservancia de esta disposición será sancionada a título de falta de conformidad con el Reglamento Interior de Trabajo.

@@ -1,0 +1,2 @@
+Artículo 8º-Todos los vehículos de uso administrativo deberán sujetarse a la jornada ordinaria de trabajo, además habrán de ser guardados al final de cada jornada en el plantel municipal, salvo caso fortuito o fuerza mayor debidamente comprobados lo cual será informado por escrito al Ejecutivo, a la mayor brevedad posible.
+El vehículo de uso discrecional debe guardarse en el lugar que reúna las condiciones mínimas de seguridad de lo cual será responsable el funcionario que lo tenga a su cargo, quien deberá responder por cualquier daño que se cause al vehículo.

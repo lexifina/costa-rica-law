@@ -1,0 +1,1 @@
+Artículo 3º-El Ejecutivo Municipal velará por el cumplimiento de las disposiciones en los aspectos reglamentarios y presupuestarios que regulan el uso de los vehículos de la Municipalidad, debiendo someter al Concejo los cambios que considere necesarios. Asimismo, ejercerá los controles internos adecuados para el buen uso de los mismos.

@@ -1,0 +1,2 @@
+Artículo 14.- El Ejecutivo Municipal podrá conceder permiso excepcional a un funcionario, para que guarde el vehículo municipal en su casa después de la jornada de trabajo: tal autorización será por escrito y habrá de ser debidamente comunicada al Concejo.
+Lo anterior no exime al funcionario de la obligación de velar porque el vehículo se guarde en un lugar seguro. En caso de que el vehículo sufriere algún daño, se deberá instaurar el procedimiento respectivo a efecto de sentar las responsabilidades del caso. sin perjuicio de otras sanciones que resultaren aplicables.
