@@ -1,0 +1,2 @@
+ARTICULO 2.-
+El impuesto de patentes se pagará durante el tiempo en que se haya tenido abierto el establecimiento o se haya ejercido el comercio en forma ambulante y durante el tiempo en que se haya poseído la licencia, aunque la actividad no se hubiera realizado. Autorízase a la Municipalidad para que ejerza un adecuado cumplimiento de esta ley, de acuerdo con las potestades que ella le confiere.
