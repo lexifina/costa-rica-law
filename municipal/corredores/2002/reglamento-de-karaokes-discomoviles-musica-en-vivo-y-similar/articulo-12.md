@@ -1,0 +1,1 @@
+Artículo 12.—Por la celebración de actividades con karaoke, discomóvil, música en vivo o similares, se deberá pagar un impuesto sobre espectáculos públicos cuando aquellas se enmarquen en la definición que del hecho generador de la obligación hace el artículo 1º del Reglamento para la aplicación del impuesto sobre espectáculos públicos.

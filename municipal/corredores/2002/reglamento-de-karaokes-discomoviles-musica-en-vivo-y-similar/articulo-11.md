@@ -1,0 +1,1 @@
+Artículo 11.—La Violación a lo dispuesto en este Reglamento originará las sanciones previstas en el Código Municipal, Ley de Espectáculos Públicos, Ley y Reglamento de Patentes de la Municipalidad de Corredores, y Código Penal en lo referente a la realización de actividades comerciales sin permiso municipal.

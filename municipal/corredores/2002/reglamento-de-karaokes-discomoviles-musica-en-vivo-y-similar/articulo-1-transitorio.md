@@ -1,0 +1,2 @@
+Transitorio: Para los establecimientos comerciales. Las personas físicas o jurídicas, que ofrezcan este tipo de actividades, y que cuentan o no en la actualidad con el respectivo permiso de funcionamiento del Ministerio de Salud, se les concede un plazo de noventa días para que cumplan con los requisitos y normas establecidas en este Reglamento.
+Se concede un plazo de diez días, a efecto que los interesados en este reglamento se manifiesten con respecto al mismo.

@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo: El cantón de Corredores ha experimentado un acelerado crecimiento de las actividades comerciales, en las que se destacan las de diversión. Esta situación trae consigo una actividad, la cual es una novedad en el comercio local, los denominados Karaokes, instalados en cantinas, restaurantes, salones de baile y otros centros de diversión.
