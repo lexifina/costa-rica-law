@@ -14,3 +14,4 @@ Modificaciones al Reglamento Orgánico de la Contraloría General de la Repúbli
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-20 | la propia norma |
+| 2 | 2000-07-07 | Resolución 0 (2000-07-07) |
