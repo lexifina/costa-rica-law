@@ -1,0 +1,2 @@
+Art 4° En los quince primeros días del próximo octubre, los Secretarios de la Corte, Jueces de 1° Instancia, Fiscal de Hacienda y Agentes Fiscales, remitirán a la Contaduría Mayor los libros relativos a los derechos judiciales para el consiguiente examen y fenecimiento de los de las cuentas.
+Dado en el Palacio Nacional, en San José a los veintitrés días del mes de setiembre de mil ochocientos setenta y cinco.

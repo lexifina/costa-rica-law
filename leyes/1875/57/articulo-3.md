@@ -1,0 +1,1 @@
+Art 3° Al intentarse la demanda por falta de oportuno pago en la Receptoría la extenderá el Fiscal a los daños y perjuicios causados al Tesoro, comprendiendo en ellos el honorario señalado al Fiscal por el art 4° del Decreto XV antes citado.
