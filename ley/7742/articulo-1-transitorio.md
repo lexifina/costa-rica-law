@@ -1,0 +1,1 @@
+TRANSITORIO I.- A los funcionarios amparados por el Fondo de Garantías y Jubilaciones a que se refería el derogado inciso c) del artículo 14 y que han formado parte de la Institución antes de la vigencia de esta ley se les reconocerán todos los derechos.
