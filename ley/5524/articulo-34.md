@@ -1,7 +1,4 @@
-Artículo 34.- Habrá un Consejo Médico Forense, al cual corresponderá
-dictaminar en grado de tales las cuestiones médicolegales que se susciten
-en los procesos, cuando para ellos sea requerido por los tribunales de
-oficio, o a solicitud de parte. Esto último deberá hacerse a través del
-respectivo recurso de apelación, el cual se interpondrá ante el mismo
-tribunal que conoce de la causa, dentro de los ocho días siguientes a
-aquel en que se notifique el dictamen a las partes.
+Artículo 34.- Habrá un Consejo Médico Forense, organizado en las secciones necesarias para su buen funcionamiento, a juicio de la Corte Suprema de Justicia y previa recomendación del Jefe de Departamento de Medicina Legal.
+Los profesionales que integren el Consejo Médico Forense podrán trabajar en éste a tiempo completo.
+También se podrán contratar servicios profesionales especializados, de acuerdo con las necesidades. A las secciones del Consejo les corresponderá dictaminar, en alzada, sobre las cuestiones médico legales que se susciten en los procesos cuando lo ordenen los Tribunales de Justicia, de oficio o a solicitud de parte. Para ejercer sus potestades, deberá existir la consulta, en su caso, o el respectivo recurso de apelación, el cual se interpondrá ante el Tribunal que conoce del proceso, dentro de los ocho días siguientes a aquel en que el dictamen impugnado haya sido notificado a todas las partes.
+(Así reformado por el artículo 1º de la Ley Nº 7355 de 10 de agosto de 1993).
