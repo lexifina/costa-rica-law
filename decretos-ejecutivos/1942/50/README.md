@@ -13,3 +13,4 @@ Reglamento de Clubes de Mercaderías: Corresponde al Gobernador de la Provincia 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1942-09-23 | la propia norma |
+| 2 | 1947-09-10 | Acuerdo 40 (1947-09-10) |
