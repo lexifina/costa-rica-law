@@ -1,0 +1,1 @@
+Artículo 4º.- El control administrativo de las asociaciones corresponde al Poder Ejecutivo, quien es el encargado de autorizar la creación de asociaciones nacionales y la incorporación de las extranjeras; de fiscalizar las actividades de las mismas y de disolver las que persigan fines ilícitos o lesionen la moral o el orden público, todo de acuerdo con lo dispuesto por esta ley.

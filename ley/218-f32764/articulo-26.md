@@ -1,0 +1,1 @@
+Artículo 26.- Las asociaciones no podrán adquirir otros bienes inmuebles que los que determina el artículo 28 del Código Civil. Los demás que adquieran por cualquier título serán convertidos en valores muebles dentro de un año contado desde su adquisición. Exceptúanse los bienes que han sido donados a la asociación con el ánimo de que produzcan renta destinada a la misma.

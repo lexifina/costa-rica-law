@@ -1,0 +1,1 @@
+Artículo 25.- Las asociaciones que establezcan el fondo de mutualidad en favor de los asociados deberán formalizar semestralmente la cuenta de los ingresos y gastos y comunicarla a los asociados y deberán cubrir con una póliza de fidelidad la administración de esos fondos.

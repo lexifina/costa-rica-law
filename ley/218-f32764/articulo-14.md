@@ -1,0 +1,1 @@
+Artículo 14.- Al extinguirse la asociación los bienes de ésta se distribuirán en la forma que determine los estatutos. Si los bienes han de ser repartidos entre los asociados se pedirá al Juez Civil respectivo que nombre de uno a tres liquidadores que devengarán en conjunto un honorario que no pase de cinco por ciento del producto neto de los bienes liquidados.

@@ -1,0 +1,1 @@
+Artículo 19.- Las reformas parciales o totales de los estatutos sufrirán los mismo trámites de aprobación e inscripción indicados en el artículo 18 y esas modificaciones no surtirán efecto alguno mientras no estén inscritas en el Registro de Personas.
