@@ -1,0 +1,1 @@
+Artículo 44: Habiendo cumplido satisfactoriamente con todos los requisitos solicitados, la SETENA con base en la resolución de aprobación de incorporación, registrará al solicitante en el Libro correspondiente y se le extenderá un certificado de inscripción.

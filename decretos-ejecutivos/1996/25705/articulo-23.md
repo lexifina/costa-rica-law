@@ -1,0 +1,6 @@
+Artículo 23: Una vez recibido un documento para su análisis la SETENA lo incorporará a la lista de proyectos recibidos, misma que será actualizada todos los viernes y enviada a la Oficina de Relaciones Públicas del MINAE, a efecto de que se divulgue la misma profusamente en los medios de comunicación colectiva.
+Una vez cumplido lo anterior la SETENA estudiará y rendirá su resolución, pudiendo realizarse de previo una inspección de campo en el sitio a que el proyecto o actividad se refiera. Para los Formularios de Evaluación Ambiental Preliminar la inspección previa será optativa, a criterio de la SETENA.
+Para emitir la resolución respectiva la SETENA tendrá los siguientes plazos:
+a) Sobre FEAP, quince días a partir de la recepción del formulario completo.
+b) Los acuerdos para aprobar o rechazar los estudios de impacto ambiental o evaluación de daños, serán tomados por la SETENA dentro de un plazo no mayor de cuarenta y cinco días, posteriores a la recepción de los documentos completos en la sede de la SETENA.
+c) SETENA podrá solicitar, por una única vez y mediante anexo, ampliaciones y modificaciones que considere necesarias. Una vez presentado el anexo, se tendrá que resolver en definitiva.

@@ -1,0 +1,2 @@
+Artículo 32: En caso de incumplimiento de las disposiciones emanadas de la Ley y de los compromisos ambientales adquiridos por el proyectista, durante las etapas del proyecto, dará lugar a la ejecución total o parcial de la misma, sin detrimento de las otras sanciones a que se haga acreedor.
+En caso de ejecución parcial de las garantías, el proyectista deberá reajustar el saldo de la garantía requiera, salvo que por la gravedad de los hechos la SETENA acuerde ordenar la paralización o clausura total y permanente de las obras (sic).

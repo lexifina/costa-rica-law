@@ -1,0 +1,1 @@
+Artículo 50: Lo relativo a la operación de la cuenta del FONAM, se regirá por lo establecido en un reglamento interno de operación que emitirá la SETENA con la aprobación de la Contraloría General de la República.

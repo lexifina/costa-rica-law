@@ -1,0 +1,1 @@
+Artículo 49: Solamente se contratará nuevo personal con cargo al FONAM si es estrictamente necesario, y para laborar en proyectos específicos de la SETENA, en cuyo caso una vez finalizado vencerán las contrataciones.

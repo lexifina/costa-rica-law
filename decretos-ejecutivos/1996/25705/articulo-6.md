@@ -1,0 +1,2 @@
+Artículo 6º: La SETENA se reunirá ordinariamente con la frecuencia que demande el eficiente cumplimiento de sus funciones, pero que será no menos de una vez por semana, en días y horas que el propio órgano acuerde, sin necesidad de convocatoria especial.
+Para reunirse en forma extraordinaria, podrán habilitarse días y horas pero será necesaria una convocatoria escrita con una antelación mínima de doce horas.

@@ -1,0 +1,2 @@
+Artículo 26: De todo proyecto amparado a un EsIA deberán presentarse informes periódicos de avance del Plan de Gestión Ambiental, refrendado por los profesionales responsables de su ejecución. Esta información será presentada en los plazos y formato que al efecto determine la SETENA, en la resolución de aprobación.
+Los informes deberán incluir los resultados obtenidos a partir de la implementación del plan de gestión ambiental, respecto a su cronograma.

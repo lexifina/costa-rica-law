@@ -1,0 +1,2 @@
+Artículo 34: Recibida la denuncia se procederá a verificar si el proyecto o los hechos que la originan tienen expediente administrativo en la SETENA, en cuyo caso se procederá a realizar la inspección de campo correspondiente y a rendir dentro del plazo no mayor de diez días el informe técnico.
+En caso de no existir expediente administrativo en la SETENA, se trasladará la denuncia al Tribunal Ambiental Administrativo.

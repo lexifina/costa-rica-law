@@ -1,0 +1,1 @@
+Artículo 25: Para realizar la inspección de campo el interesado deberá cubrir los costos de la misma, conforme la tabla de viáticos establecida por la Contraloría General de la República, para gastos en el interior del país, depositando de previo el importe en la cuenta especial del Fondo Nacional Ambiental.

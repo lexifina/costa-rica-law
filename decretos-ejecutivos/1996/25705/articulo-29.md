@@ -1,0 +1,1 @@
+Artículo 29: Los porcentajes aplicados para determinar el monto de las garantías ambientales se regirá por lo establecido en el artículo 21 de la Ley Orgánica del Ambiente y los establecidos en otras leyes especiales.
