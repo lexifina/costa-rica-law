@@ -14,3 +14,4 @@ Reglamento del Departamento Disciplinario Legal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-25 | la propia norma |
+| 2 | 2004-12-01 | Decreto Ejecutivo 32177 (2004-12-01) |
