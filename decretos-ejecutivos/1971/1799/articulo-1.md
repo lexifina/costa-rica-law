@@ -1,4 +1,6 @@
+(Derogado)
 N° 1799-G
+(Este decreto ejecutivo fue derogado por el artículo 1° del decreto ejecutivo N° 3506 del 18 de enero de 1974)
 JOSE FIGUERES FERRER
 PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y GRACIA,
