@@ -1,0 +1,1 @@
+Art 3. El Fiscal de hacienda en esta capital y los Procuradores Síndicos en los demas pueblos del Estado visitarán los boletos que dieren los Receptores, poniendo en el reverso de ellos razon de haberlo así verificado. Esta obligacion la desempeñará en el puerto de Puntarenas el Contador de [imagen] aquella Aduana.

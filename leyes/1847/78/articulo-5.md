@@ -1,0 +1,1 @@
+Art. 5. Los Receptores al expedir las papeletas ó boletos, en que conste estar satisfecha la alcabala, los numerarán por su orden, y los encargados de vistarlos al hacer el asiento de ellos en rejis [imagen] tro, se referirán al número con que estan marcados.
