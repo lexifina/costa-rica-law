@@ -6,4 +6,4 @@ d. Establecer los procedimientos de control interno que garanticen el correcto r
 e. Depositar los cheques con más de tres meses de emitidos que se encuentren en la caja pasiva sin retirar por sus beneficiarios, con carácter devolutivo en la cuenta especial, conforme lo establecido por este Reglamento en el artículo 81 de este Reglamento.
 f. Efectuar semanalmente el arqueo de caja de los cheques pendientes de entregar a sus beneficiarios, de lo cual realizará un informe a efecto de dejar constancia del mismo, y trasladar a la caja pasiva, que estará a su cargo, los cheques que permanezcan sin retirar por más de un mes.
 g. Velar porque los controles, registros y archivos que corresponde llevar a su Sección, se mantengan al día y en orden.
-h. Administrar financieramente los intereses provenientes de las cuentas corrientes judiciales, y recomendar a la Dirección Ejecutiva las inversiones en los títulos y plazos que mejor convengan, conforme a las políticas de inversión.
+h. Derogado mediante sesión N° 20 del 13 de mayo del 2002.

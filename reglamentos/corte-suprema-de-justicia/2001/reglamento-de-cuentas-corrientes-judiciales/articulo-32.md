@@ -1,1 +1,1 @@
-Artículo 32.—Devolución. El giro de estas boletas abandonas, se hará con carácter devolutivo. Corresponde su devolución cuando así lo disponga el jefe o titular del Despacho Judicial, a solicitud de la parte interesada. El Departamento Financiero Contable, realizará con base en sus archivos y registros la verificación de la procedencia de tal devolución.
+Artículo 32.—Derogado mediante sesión N° 20 del 13 de mayo del 2002.

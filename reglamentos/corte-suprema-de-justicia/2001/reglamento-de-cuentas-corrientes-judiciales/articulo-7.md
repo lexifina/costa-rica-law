@@ -15,7 +15,7 @@ m. Establecer los mecanismos y procedimientos eficaces y seguros para la custodi
 n. Documentar, agregando la respectiva constancia o boleta de depósito, las órdenes de giro y las copias de los cheques.
 o. Recibir, verificar y dar la conformidad al Banco, respecto de las constancias o boletas de depósito que éste le remite.
 p. Mantener en custodia y perfecto archivo, las constancias o boletas de depósitos, que permanecen activos; asimismo un consecutivo numérico estricto de los cheques girados contra las cuentas corrientes judiciales junto con los documentos soporte y de respaldo.
-q. Propiciar en todo momento, el traslado con carácter devolutivo, a la cuenta corriente “Corte Suprema de Justicia, artículo 237”, de los depósitos judiciales pertenecientes a juicios con cuatro o más años de estar inactivos, conforme la autorización otorgada por el artículo 237 Ley Orgánica del Poder Judicial. Para ello previamente establecerá la coordinación con el despacho judicial y la revisión pertinente de los depósitos.
+q. Derogado mediante sesión N° 20 del 13 de mayo del 2002.
 r. Rehabilitar las constancias de depósitos, cuando los cheques girados contra ellas, fueren anulados.
 s. A solicitud del titular del Despacho Judicial, certificar las boletas de depósito, que este no haya recibido por parte del Banco. El Juzgado o Tribunal agotará todos los medios a su alcance para determinar que la boleta de interés no se encuentra en ese Despacho, y que con anterioridad no ha sido girada.
 t. Autorizar previa solicitud del interesado la reposición de los cheques depositados en la Cuenta Corriente, conforme al artículo 6, inciso e.

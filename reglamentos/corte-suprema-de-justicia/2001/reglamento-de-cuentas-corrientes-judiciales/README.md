@@ -13,3 +13,4 @@ Reglamento de Cuentas Corrientes Judiciales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-07-30 | la propia norma |
+| 2 | 2002-05-13 | Reglamento 20 (2002-05-13) |

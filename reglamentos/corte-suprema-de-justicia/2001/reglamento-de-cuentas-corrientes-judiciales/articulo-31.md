@@ -1,1 +1,1 @@
-Artículo 31.—Traspaso. Cada tres meses como mínimo, el Departamento Financiero Contable o la Unidad o Subunidad Administrativa Regional, según corresponda, realizará la revisión de las constancias de depósito y los datos del proceso a que pertenecen y la fecha a partir de la cual se declara en cada caso el estado de inactividad procesal.
+Artículo 31.—Derogado mediante sesión N° 20 del 13 de mayo del 2002.

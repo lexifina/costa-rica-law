@@ -8,7 +8,7 @@ b. Velar porque toda orden de giro y todo cheque tengan respaldo en una resoluci
 c. Revisar, aprobar y firmar conjuntamente con el auxiliar judicial designado, las órdenes de giro o los cheques, según el tipo de cuenta corriente que posea su Despacho.
 d. Firmar las certificaciones de depósitos, solicitadas por el Departamento Financiero Contable o la Unidad o Subunidad Administrativa Regional, según corresponda.
 e. Velar porque los controles, registros y archivos que corresponda llevar al Despacho, se mantengan al día y en orden.
-f. Ordenar el traspaso de los depósitos pertenecientes a procesos abandonados por más de cuatro años o fenecidos, a la cuenta corriente denominada “Corte Suprema de Justicia, artículo 237”, de conformidad con lo que establece la Ley Orgánica del Poder Judiciales su artículo 237.
+f. Derogado mediante sesión N° 20 del 13 de mayo del 2002.
 g. Informar inmediatamente que tenga conocimiento, a la Auditoría y al Departamento Financiero Contable o a la Unidad o Subunidad Administrativa Regional, según corresponda, de cualquier anomalía o sobregiro que se presente en la cuenta corriente de la dependencia a su cargo.
 h. Velar porque en los juicios ejecutivos y otros en los que se ordene la ejecución de embargos hasta completar determinada suma, se mantenga debidamente actualizado dentro del expediente el correspondiente control de la suma a embargar y de las ya giradas.
 i. Designar a un auxiliar judicial para las labores relacionadas con los depósitos judiciales, la emisión de órdenes de giro y cheques, así como cualquier otra relacionada con la cuenta corriente de su despacho, cuando no exista un auxiliar de contabilidad a cargo de esas labores.
