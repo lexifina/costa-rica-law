@@ -1,8 +1,1 @@
-Artículo 2º.- Como Institución Autónoma del Estado, el Instituto
-tendrá personería jurídica y patrimonio propios: ejercerá su gestión
-administrativa y comercial con absoluta independencia, guiándose
-exclusivamente por las decisiones de su Junta Directiva, que actuará
-conforme a su criterio, dentro de la Constitución, leyes y reglamentos
-pertinentes, y las normas comerciales de mayor conveniencia para el
-fomento del turismo hacia Costa Rica. La Junta Directiva será responsable
-de su gestión en forma total e ineludible.
+Artículo 2º.- Como Institución Autónoma del Estado, el Instituto tendrá personería jurídica y patrimonio propios: ejercerá su gestión administrativa y comercial con absoluta independencia, guiándose exclusivamente por las decisiones de su Junta Directiva, que actuará conforme a su criterio, dentro de la Constitución, leyes y reglamentos pertinentes, y las normas comerciales de mayor conveniencia para el fomento del turismo hacia Costa Rica. La Junta Directiva será responsable de su gestión en forma total e ineludible.

@@ -1,7 +1,1 @@
-Artículo 57.- Quienes hayan adquirido lotes en la zona a que se
-refieren los artículos anteriores no los podrán vender mientras no
-hubieren cancelado totalmente el precio de los mismos, sin
-consentimiento de la Junta Directiva del Instituto Costarricense de
-Turismo, el cual evitará por los medios a su disposición el
-establecimiento de actividades inconvenientes o inadecuadas en la
-referida zona.
+Artículo 57.- (Derogado por el artículo 1º de la ley Nº 4071 de 22 de enero de1968, “Declara Zona Urbana de Ciudad de Puntarenas y Reforma Otras Leyes”)

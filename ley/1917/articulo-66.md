@@ -1,5 +1,1 @@
-Artículo 66.- Los arrendatarios y ocupantes de buena fe a que se
-refiere esta ley, pagarán al Instituto Costarricense de Turismo un canon
-de arrendamiento que en ningún caso podrá ser mayor del ocho por ciento
-ad-valórem, durante el período comprendido entre la rescisión de los
-permisos de ocupación y la adjudicación de lotes por el Instituto.
+Artículo 66.- (Derogado por el artículo 1º de la ley Nº 4071 de 22 de enero de1968, “Declara Zona Urbana de Ciudad de Puntarenas y Reforma Otras Leyes”)

@@ -1,9 +1,3 @@
 De la Gerencia
-Artículo 30.- La Junta Directiva designará, con el voto favorable de
-no menos de cuatro de sus miembros, un Gerente que tendrá a su cargo la
-administración general del Instituto, de acuerdo con la ley y con la
-instituciones que le imparta la Junta. En casos de ausencia o impedimento
-temporal del Gerente, nombrará de la misma manera un Gerente pro-témpore,
-el cual tendrá las mismas atribuciones, facultades y deberes del titular.
-El Gerente y quien le sustituya temporalmente, deberá reunir los mismos
-requisitos exigidos a los miembros de la Junta Directiva.
+Artículo 30.- La Junta Directiva designará, con el voto favorable de no menos de cuatro de sus miembros, un Gerente que tendrá a su cargo la administración general del Instituto, de acuerdo con la ley y con la instrucciones que le imparta la Junta. En casos de ausencia o impedimento temporal del Gerente, nombrará de la misma manera un Gerente pro-témpore, el cual tendrá las mismas atribuciones, facultades y deberes del titular. El Gerente y quien le sustituya temporalmente, deberá reunir los mismos requisitos exigidos a los miembros de la Junta Directiva.
+(Nota de Sinalevi: Sobre este tema véase artículos 6º y 7º de la ley Nº 4646 del 20 de octubre de 1970, “Modifica Integración de Juntas Directivas de Instituciones Autónomas” y artículo 6º de la ley Nº 5507 de 19 de abril de 1974)

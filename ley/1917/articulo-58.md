@@ -1,7 +1,1 @@
-Artículo 58.- Toda solicitud para que se otorgue un contrato de
-compra- venta supone de parte del solicitante la aceptación de las
-restricciones y reglamentación de orden general que la Institución
-establezca y la obligación de respetar los árboles o sembrar aquellos que
-el Instituto considere necesarios para cualquier otra de la presente ley,
-producirá la nulidad del acto o contrato y la can el embellecimiento de
-la zona.
+Artículo 58.- (Derogado por el artículo 1º de la ley Nº 4071 de 22 de enero de1968, “Declara Zona Urbana de Ciudad de Puntarenas y Reforma Otras Leyes”)

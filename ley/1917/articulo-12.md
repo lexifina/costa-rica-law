@@ -1,4 +1,1 @@
-Artículo 12.- El Instituto publicará en el Diario Oficial, dentro de
-los primeros treinta días hábiles de cada semestre, un balance general de
-su situación económica que comprenderá el estado de su activo y pasivo al
-último día hábil del semestre anterior.
+Artículo 12.- El Instituto publicará en el Diario Oficial, dentro de los primeros treinta días hábiles de cada semestre, un balance general de su situación económica que comprenderá el estado de su activo y pasivo al último día hábil del semestre anterior.
