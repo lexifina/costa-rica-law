@@ -1,0 +1,1 @@
+Artículo 5º—Cuando el premio acumulado no es acertado, de conformidad con el azar propio de la mecánica de sorteo, su importe permanece disponible para el sorteo siguiente, más la suma que se agrega semanalmente.

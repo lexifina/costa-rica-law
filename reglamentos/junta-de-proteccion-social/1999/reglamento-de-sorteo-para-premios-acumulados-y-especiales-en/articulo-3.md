@@ -1,0 +1,1 @@
+Artículo 3º—El Fondo para Premios Adicionales se distribuye entre el público jugador de loterías, en forma de premios en efectivo o en especie, acumulados y especiales, en los diferentes sorteos de loterías que realice la Junta para cualquier tipo de lotería.
