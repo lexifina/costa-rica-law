@@ -1,0 +1,1 @@
+ARTICULO 28.-El Ecónomo rendir su cuenta general en los primeros quince días del mes de enero, entregándola al Director. Este, en unión del Rector, la visar y con esta formalidad se pasar al Tribunal que debe fenecerla.

@@ -1,0 +1,1 @@
+ARTICULO 15.-Al Director corresponde así mismo la facultad de corregir los alumnos en las faltas que cometan con la circunspección que corresponda, atendiendo en la imposición de correcciones el carácter individual de los alumnos.

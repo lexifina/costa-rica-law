@@ -1,0 +1,1 @@
+ARTICULO 80.-La oposición premios se hará inmediatamente después de concluidos los exámenes. Los premios se entregarán los agraciados en la función solemne de apertura de clases, por la persona que tenga en aquel acto la presidencia de honor en falta de cualquiera de ellos, por el Rector.

@@ -1,0 +1,1 @@
+ARTÍCULO 14.-El Director desempeñar una más asignatura y ser considerado como el Profesor principal del Instituto. En consecuencia, le corresponde la dirección de la enseñanza en todos sus ramos, la designación de las horas de clase y todo lo que corresponda la disciplina escolar.

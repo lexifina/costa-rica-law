@@ -1,0 +1,1 @@
+ARTICULO 73.-El Reglamento interior fijar el tiempo en que los alumnos internos pueden salir del Instituto, durante las vacaciones sin que, por eso, se suspenda la pensión alimenticia que están obligados.

@@ -1,0 +1,1 @@
+ARTICULO 37.-Los gastos de vestido, efectos de uso y demás extras de los alumnos bequistas son cargo de sus padres tutores, pero si fuesen huérfanos y absolutamente pobres, serán cargo del Tesoro Nacional.

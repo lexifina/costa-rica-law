@@ -1,0 +1,3 @@
+ARTICULO 63.-Obtenido por los Bequistas del Gobiernos el grado de Bachiller en Artes, cesar n de tener esta calidad. Del mismo modo cesar n de serlo, si trascurrido los primeros cuatros años no se presentasen optar el grado de Bachiller, si calificados en los ejercicios con la nota de suspenso y sujetados nueva prueba tres meses después, no resultasen aprobados. Cesar n igualmente, siempre que, durante los primeros dos años, no observen buena conducta escolar no des esperanzas de aprovechamiento, según el informe del Director y Profesores respectivos. En todo caso en que un bequista deba cesar de disfrutar de la gracia, el Rector lo hará presente al Ministerio de Instrucción Pública para que se provea lo conveniente.
+CAPITULO XIII.
+De los títulos periciales.
