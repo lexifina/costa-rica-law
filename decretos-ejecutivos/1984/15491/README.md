@@ -14,3 +14,4 @@ Reforma Reglamento para la Comisión de Becas del Ministerio de Agricultura y Ga
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-07-11 | la propia norma |
+| 2 | 1987-05-28 | Decreto Ejecutivo 17567 (1987-05-28) |
