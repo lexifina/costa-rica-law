@@ -1,0 +1,5 @@
+Artículo 10.- Una vez adquiridas las tierras señaladas en la presente
+ley, sólo podrán ser utilizados por el Estado costarricense para el
+proyecto de desarrollo turístico en Bahía Culebra, de conformidad con la
+ley especial que la Asamblea Legislativa deberá emitir con ese propósito en
+cumplimiento del artículo 3º de la ley Nº 5847 del 18 de noviembre de 1975.
