@@ -1,0 +1,1 @@
+Articulo 4°-Las instituciones públicas que integrarán el Consejo, serán aquellas que ejecutan programas o proyectos en la región; y los representantes de éstas ante el Consejo serán aquellos funcionarios de mayor nivel jerárquico que residen en la región.
