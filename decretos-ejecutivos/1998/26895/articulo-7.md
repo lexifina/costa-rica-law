@@ -1,0 +1,2 @@
+Artículo 73—Entrega.
+El documento de identidad del menor será directa y exclusivamente entregado al menor que lo hubiera solicitado, previa identificación del mismo, y este deberá calzar su nombre de su puño y letra en la razón correspondiente en presencia del funcionario que realice la entrega, salvo en los casos de menores de edad con discapacidad física o mental que les impida hacerlo, en cuyo caso serán sus representantes legales quienes solicitarán y recibirán el respectivo documento de identidad.

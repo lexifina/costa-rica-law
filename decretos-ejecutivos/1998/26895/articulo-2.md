@@ -1,0 +1,2 @@
+Artículo 2°—Órgano competente
+Con arreglo al artículo setenta y tres, incisos a), i) y j) de la Ley Orgánica del Tribunal Supremo de Elecciones y del Registro Civil. Ley N° 3504 del diez de mayo de mil novecientos sesenta y cinco, corresponderá al Departamento Electoral del Registro Civil tramitar, expedir y fiscalizar todas las solicitudes de los documentos de identidad de los costarricenses mayores de doce años y menores de dieciocho.
