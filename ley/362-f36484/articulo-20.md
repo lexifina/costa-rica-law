@@ -1,44 +1,9 @@
-ARTÖCULO 20.-Son rentas de la Universidad: 1) Los derechos de
-matr¡cula y de examen que deben cubrir los alumnos de las Escuelas;
-2)
-Las sumas o rentas que destina actualmente el Estado al
-sostenimiento de
-los centros que pasan a formar parte de la Universidad, inclusive
-la que
-contempla el art¡culo 9§ de la ley N§ 74 de 12 de agosto de 1902,
-previa
-deducci¢n de los gastos que ocasione la fiscalizaci¢n y recaudaci¢n
-del
-impuesto. Sin embargo, mientras no se establezca la Escuela de
-Medicina
-en la Universidad, except£ase el cincuenta por ciento del impuesto
-sobre
-los establecimientos donde se despachan recetas o se expendan
-drogas o
-medicamentos, que continuar entreg ndose a la Facultad respectiva;
-3) La
-parte proporcional que le corresponde del Fondo Nacional de
-Educaci¢n
-Com£n, de acuerdo con las reglas que fija la ley N§ 127 de 21 de
-agosto
-de 1928, en el inciso 2§ del art¡culo 6§; 4) La parte proporcional
-que le
-corresponda del impuesto de Espect culos P£blicos de acuerdo con
-las
-reglas que establece la ley N§ 296 de 26 de agosto de 1939, que se
-hace
-extensiva a la Universidad, el cual, a partir de la promulgaci¢n de
-esta
-ley, se eleva al 6% quedando reformada as¡ la N§ 3 de 14 de
-diciembre de
-1938. El Poder Ejecutivo reglamentar la liquidaci¢n del impuesto
-a que
-se refiere este inciso; 5) Los derechos de timbre y papel sellado
-que
-causa conforme al C¢digo Fiscal (art¡culos 240, inciso 4§; 423,
-incisos
-2§ y 3§; 244, incisos 3§ y 4§; 273, inciso 30), la expedici¢n de
-T¡tulos
-de Doctor, Licenciado, Ingeniero, Notario P£blico, Bachiller,
-Profesor de
-nse¤anza o cualquier otro t¡tulo profesional o universitario.
+Artículo 20.- Son rentas de la Universidad:
+1º.- Los derechos de matrícula y de examen que deben cubrir los alumnos de las Escuelas;
+2º.- Las sumas o rentas que destina el Estado al sostenimiento de los centros que pasan a formar parte de la Universidad y las que destina al sostenimiento de la Universidad misma, inclusive el quince por ciento del ingreso bruto que produzca el impuesto que establecen los artículos 3º y 4º de la Ley del Colegio de Farmacéuticos, Nº 15 de 29 de octubre de 1941, originalmente contemplado en la ley Nº 74 de 12 de agosto de 1902, que será girado a la Universidad anualmente por el citado Colegio, al que corresponderá el ochenta y cinco por ciento restante.
+(Así reformado por el artículo 1 de Ley 4499 de 10 de diciembre de 1969).
+3º.- La parte proporcional que le corresponde del Fondo Nacional de Educación Común, de acuerdo con las reglas que fija la ley Nº 127 de 21 de agosto de 1928, en el inciso 2º del artículo 6º;
+4º.- La parte proporcional que le corresponde del Impuesto de Espectáculos Públicos de acuerdo con las reglas que establece la ley Nº 296 de 26 de agosto de 1939, que se hace extensiva a la Universidad, y el cual, a partir de la promulgación de esta ley, se eleva al seis por ciento quedando reformada así la Nº 3 de 14 de diciembre de 1938. El Poder Ejecutivo reglamentará la liquidación del impuesto a que se refiere este inciso;
+5º.- Los derechos de timbre y papel sellado que causa conforme al Código Fiscal (Artículos 240, inciso 4º; 243, incisos 2º y 3º; 244, incisos 3º y 4º; 273, inciso 30), la expedición de Títulos de Doctor, Licenciado, Ingeniero, Notario Público, Bachiller, Profesor de Enseñanza o cualquier otro título profesional o Universitario.
+(Así Reformado por artículo único de Ley 17 de 25 de octubre de 1940).
+NOTA: La Ley Nº 3030 de 20 de setiembre de 1962 otorga exenciones varias a favor de la U.C.R., Ley que resulta complementada por los artículos 2 de la Nº 5684 de 30 de abril de 1975 (interpretada por la Nº 5857 de 3 de diciembre de 1975) y 2 inc. l) y 6 de la Nº 7293 de 31 de marzo de 1992. No goza de franquicia postal (art.15 de Ley 5870 de 11 ddiciembre de 1975, ni telegráfica y radiográfica (art.9 de la Ley Nº 4513 de 2 de enero de 1970). Derogado tácitamente en forma parcial, por los artículos 50 y 55 de la citada Ley Nº 7293, a partir de su vigencia, en lo referente a exención de pago de futuros impuestos.
