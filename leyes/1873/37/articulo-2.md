@@ -1,0 +1,2 @@
+Art 2° No quedan comprendidas en el artículo anterior las operaciones y cuentas relativas a los empréstitos contratados en Londres por el Poder Ejecutivo, ni las cuentas o cuadros adjuntos a dicho Informe concernientes a la Empresa del Ferrocarril, por ser negocios pendientes y considerarse las cuentas líquidas.
+Al Poder Ejecutivo, Dado en el Salón de Sesiones, Palacio Nacional, San José, veintidós de agosto de mil ochocientos setenta y tres.
