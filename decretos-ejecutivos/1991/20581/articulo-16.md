@@ -1,0 +1,1 @@
+Artículo 16.-La Dirección de Crédito Público del Ministerio de Hacienda, será la unidad negociadora en materia de crédito público externo, en los casos en que el Gobierno vaya a figurar como deudor o garante. Para tales efectos, todas las instituciones públicas deberán coordinar sus acciones con ella en lo pertinente, así como suministrarle la información que les sea requerida.

@@ -1,0 +1,1 @@
+Artículo 21.-Sin perjuicio de las atribuciones del Poder Ejecutivo de acuerdo con la Constitución Política, corresponderá al Ministerio de Hacienda intervenir en la suscripción de los contratos de crédito en los cuales el Gobierno figure como deudor a garante. Queda a salvo los casos de delegación con la ley.

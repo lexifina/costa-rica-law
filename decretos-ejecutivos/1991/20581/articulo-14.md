@@ -1,0 +1,1 @@
+Artículo 14.-Una vez obtenida la autorización de MIDEPLAN, según artículo 10, inciso a), de este decreto la institución interesada deberá dirigirse a la Dirección de Crédito Público del Ministerio de Hacienda, a efecto de que se negocie y se someta ante el CONAFE el crédito respectivo.

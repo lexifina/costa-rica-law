@@ -1,0 +1,1 @@
+Artículo 11.-MIDEPLAN emitirá su criterio según lo establecido en el artículo 10 de la Ley de Planificación Nacional, N° 5525. MIDEPLAN deberá remitir copia de sus pronunciamientos a la Dirección de Crédito Público del Ministerio de Hacienda.

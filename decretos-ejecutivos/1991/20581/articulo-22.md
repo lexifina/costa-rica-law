@@ -1,0 +1,1 @@
+Artículo 22.-Todas aquellas dependencias e instituciones públicas que lleven registros o realicen gestiones en relación con el crédito público, están obligadas a suministrar la información requerida por la Dirección de Crédito Público.

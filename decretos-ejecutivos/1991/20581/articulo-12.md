@@ -1,0 +1,1 @@
+Artículo 12.-No estarán sujetas a la intervención de MIDEPLAN las operaciones de financiamiento que realice el Ministerio de Hacienda encaminadas a la refundición de operaciones de consolidación de la deuda externa, así como las operaciones destinadas a financiar necesidades distintas a proyectos de inversión.

@@ -1,0 +1,2 @@
+Transitorio III.-El Ministro de Hacienda adoptará las medidas que corresponda con el fin de equipar con los recursos materiales y humanos que requiere la Dirección de Crédito Público para operar en forma adecuada y para que el Consejo Nacional de Financiamiento Externo empiece a funcionar de conformidad con lo dispuesto en este decreto.
+Dado en la Presidencia de la República.-San José, a los diecinueve días del mes de junio de mil novecientos noventa y uno.

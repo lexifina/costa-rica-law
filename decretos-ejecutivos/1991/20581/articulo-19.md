@@ -1,0 +1,1 @@
+Artículo 19.-Después de realizar los análisis pertinentes, la Dirección de Crédito Público presentará su recomendación a la Autoridad Presupuestaria para que, de conformidad con los pronunciamientos de MIDEPLAN, el Banco Central de Costa Rica y al Ministerio de Hacienda, .resuelva en definitiva sobre ]a autorización para la contratación del crédito externo.

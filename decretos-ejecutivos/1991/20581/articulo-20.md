@@ -1,0 +1,1 @@
+Artículo 20.-El Ministerio de Hacienda, por medio del Consejo Nacional de Financiamiento Externo y la Dirección de Crédito Público, procurará que la contratación de todo crédito público externo se haga en las mejores condiciones financieras para el país. Solo podrá recomendarse la suscripción de créditos con instituciones o agentes financieros .de primer orden.
