@@ -1,0 +1,1 @@
+Artículo 12.-EI proponente original de una moción tiene prioridad en el uso de la palabra por tres minutos. En caso de que su moción sea combatida el presidente (a) podrá concederle de nuevo la palabra hasta por minutos para que ejerza su derecho a réplica o cuando un regidor haya con la intervención de otro regidor.

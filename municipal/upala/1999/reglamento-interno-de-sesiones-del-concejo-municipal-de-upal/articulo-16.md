@@ -1,0 +1,1 @@
+Artículo 16.-Corresponderá también al secretario (a) formar un expediente de cada proyecto que se presente, a él se agregará el dictamen de Comisión y las mociones que se presenten durante el debate, con los acuerdos tomados transcritos.

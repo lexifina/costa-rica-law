@@ -1,0 +1,1 @@
+Artículo 29.-Cuando el objeto de la audiencia se trataré de un asunto de competencia del Alcalde Municipal, el presidente (a) por medio de la secretaría remitirá el asunto a dicho funcionario para que éste le dé el trámite correspondiente y así se le comunicará a los interesados y al Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 30.-En cualquier momento en que se presente un vecino o grupo de vecinos para ser atendidos por el Concejo Municipal, dependiendo de la urgencia o importancia de los asuntos a tratar, cualquier regidor puede presentar una moción para alterar el orden del día y recibirlos, requiriéndose una votación y que sea por unanimidad de los Regidores presentes.

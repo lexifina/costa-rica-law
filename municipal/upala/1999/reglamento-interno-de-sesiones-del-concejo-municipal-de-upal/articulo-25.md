@@ -1,0 +1,2 @@
+Artículo 25.-Debidamente instaladas las comisiones y comunicado su integración a la presidencia, sus miembros, no pueden ser removidos del cargo. El presidente (a) podrá remover del cargo a los miembros de una comisión cuando éstos falten a tres sesiones consecutivas o no estén cumpliendo con su trabajo y no rindan los dictámenes oportunamente al Concejo, lo anterior en base al infonne de Comisión.
+En todo lo no previsto en este capítulo se le aplicará a las comisiones las mismas disposiciones para las sesiones del Concejo Municipal.
