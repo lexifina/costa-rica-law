@@ -1,0 +1,1 @@
+Artículo 3º—Los concejales de distrito serán electos popularmente, juntamente con los Síndicos y el Alcalde, cada 4 años, según lo establecido en el Código Municipal, y podrán ser reelectos si los proponen.

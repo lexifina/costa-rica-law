@@ -1,0 +1,1 @@
+Artículo 2º—Los Concejos de Distrito estarán integrados por cinco miembros propietarios, uno de ellos será el síndico propietario, referido en el artículo 172 de la Constitución Política, quien presidirá el Concejo, además de cinco suplentes, a quienes se denominará concejales. Uno de ellos será el síndico suplente.

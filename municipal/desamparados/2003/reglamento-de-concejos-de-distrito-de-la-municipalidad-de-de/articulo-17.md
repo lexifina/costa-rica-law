@@ -1,0 +1,1 @@
+Artículo 17.—Las sesiones se desarrollarán según el orden del día presentado por el Presidente o, en su ausencia, por la persona que lo esté reemplazando en el momento. Sólo podrá ser modificado por acuerdo de mayoría calificada.

@@ -1,0 +1,1 @@
+Artículo 30.—El presente Reglamento deroga el anterior aceptado por acuerdo Nº 5 de la sesión 337 del 17 de enero de 1997, publicado en La Gaceta Nº 199 del 16 de octubre de 1997 y entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta.

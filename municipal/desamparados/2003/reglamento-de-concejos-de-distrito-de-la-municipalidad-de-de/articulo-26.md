@@ -1,0 +1,1 @@
+Artículo 26.—Son deberes del Secretario: Asistir a todas las sesiones, levantar las actas, encargarse de que todos los concejales asistentes firmen el libro de actas, el cual debe ser autorizado por la Auditoria Interna, y transcribir todos los acuerdos del Concejo de Distrito. Debe llevar un archivo, además de un consecutivo de todos los oficios emitidos.

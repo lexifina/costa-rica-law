@@ -1,0 +1,1 @@
+Artículo 13.—El Concejo de Distrito deberá reunirse al menos 2 veces al mes, asimismo, debe comunicar a la Comisión de Concejos de Distrito la fecha, hora y lugar de la sesión, y podrá celebrar sesiones extraordinarias haciendo la convocatoria directamente desde la presidencia o por acuerdo de tres de los miembros, con al menos 24 de anticipación.

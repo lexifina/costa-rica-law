@@ -1,0 +1,1 @@
+Artículo 27.—El Tesorero es el depositario transitoriamente de las contribuciones que se recauden de las ferias públicas, y deberá depositarlas en la Tesorería Municipal, dentro de las 48 horas siguientes. Debe desempeñar cualquier labor que se le encomiende y rendir informes periódicos al Concejo Municipal, mediante la Comisión de Concejos de Distrito.

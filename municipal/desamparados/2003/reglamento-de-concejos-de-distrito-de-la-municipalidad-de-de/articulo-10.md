@@ -1,0 +1,1 @@
+Artículo 10.—La comisión a la que se refiere el artículo anterior, funcionará como órgano de coordinación con los Concejos de Distrito, con el fin de prestar la asesoría necesaria para tramitar los proyectos de interés de cada distrito.

@@ -1,0 +1,1 @@
+Artículo 6º—Los Concejos de Distrito quedan autorizados por el Concejo de Gobierno Local para realizar reuniones con los vecinos del distrito, con el fin de fomentar la participación ciudadana y para considerar problemas comunes y promover las soluciones adecuadas.

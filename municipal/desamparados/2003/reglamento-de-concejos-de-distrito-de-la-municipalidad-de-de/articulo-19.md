@@ -1,0 +1,1 @@
+Artículo 19.—Los acuerdos serán tomados por mayoría simple. Cuando se presente un empate entre los miembros que están a favor y los que están en contra, se irá de nuevo a votación, en caso de persistir el empate, el Presidente tendrá voto de calidad, con lo que decidirá la votación.

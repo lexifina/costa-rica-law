@@ -1,0 +1,1 @@
+Artículo 9º—El Concejo de Gobierno Local nombrará una comisión encargada de atender los asuntos que le remitan los Concejos de Distrito, siguiendo lo establecido por el artículo 49 del Código Municipal.

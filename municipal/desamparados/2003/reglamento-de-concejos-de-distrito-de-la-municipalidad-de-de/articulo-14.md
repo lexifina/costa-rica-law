@@ -1,0 +1,1 @@
+Artículo 14.—Las sesiones ordinarias se realizarán en un lugar asignado exclusivamente para ese fin, las sesiones extraordinarias podrán realizarse en otros distritos del mismo cantón si los asuntos por tratar así lo requieren.

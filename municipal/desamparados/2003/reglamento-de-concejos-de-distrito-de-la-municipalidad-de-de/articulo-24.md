@@ -1,0 +1,1 @@
+Artículo 24.—El presidente del Concejo debe dirigir, abrir, suspender en caso de necesidad, y cerrar las sesiones. También debe preparar la agenda, recibir las votaciones, anunciar la aprobación o desaprobación de los acuerdos, velar por el orden durante la sesión y firmar las actas en conjunto con el secretario y el vicepresidente.

@@ -1,0 +1,1 @@
+Artículo 28.—Son causas para perder la credencial de concejal la inasistencia a 3 sesiones de manera consecutiva, o a 5 de manera alterna y sin justificación escrita ante el Consejo de Distrito, el traslado de domicilio fuera del distrito o por sentencia judicial, según el artículo 29 de Código Municipal.

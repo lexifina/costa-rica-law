@@ -1,0 +1,1 @@
+Artículo 25.—En ausencia del Presidente, este será sustituido por el Síndico Suplente, si este estuviera presente. En ausencia de ambos, el Síndico suplente será responsable de presidir el Concejo de Distrito.
