@@ -1,0 +1,1 @@
+Art 2°.- Con tan importante fin se pondrá inmediatamente en acción el ejercito de la República y tanto los costarricenses como los Centro americanos que residen en ella, están obligados a tomar las armas en las presentes circunstancias y a dar todos los auxilios que necesiten hasta restablecer la nacionalidad de Nicaragua, y afianzar la independencia de la América Central.
