@@ -1,0 +1,2 @@
+Artículo 5
+Cuando en una misma empresa existan representantes sindicales y representantes electos, habrán de adoptarse medidas apropiadas, si fuese necesario, para garantizar que la existencia de representantes electos no se utilice en menoscabo de la posición de los sindicatos interesados o de sus representantes y para fomentar la colaboración en todo asunto pertinente entre los representantes electos y los sindicatos interesados y sus representantes.
