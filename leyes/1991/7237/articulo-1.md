@@ -446,8 +446,8 @@ DE
 DE VENEZUELA COSTA RICA
 Heberto Urdaneta Fernando Naranjo
 Villalobos
-Presidente
-Ministro de Hacienda
+Presidente Ministro de
+Hacienda
 --------------------------------------------------------------
 ---------
 ANEXO "A"
@@ -472,29 +472,25 @@ PROGRAMA DE INVERSION DEL PRESTAMO FIV
 -----------------------------------------------------------------
 CATEGORIAS Y MONTO EN US$ (MILES)
 SUBCATEGORIAS DE -----------------------------
-INVERSION Rep£blica de Rep£blica de
-Venezuela Costa Rica
+INVERSION Rep£blica de
+Rep£blica de
+Venezuela Costa
+Rica
 -----------------------------------------------------------------
 I. PUENTES Fabricaci¢n 7.000,oo
 Transporte y Seguros 200,oo
-Sub-total
-7.200,oo
+Sub-total 7.200,oo
 II. OTROS MATERIALES
 Tuber¡a de Acero Corrugado 1.000,oo
-Gabiones
-1.000,oo
-Guardacaminos
-500,oo
-Pilotes
-500,oo
+Gabiones 1.000,oo
+Guardacaminos 500,oo
+Pilotes 500,oo
 Cementos Asf ltico (85-100) 1.500,oo
 Materiales de Reparaci¢n 1.000,oo
 Varilla de Refuerzo 500,oo
 Transporte y Seguros 200,oo
-Sub-total
-6.200,oo
-III. OBRAS CIVILES
-3.350,oo
+Sub-total 6.200,oo
+III. OBRAS CIVILES 3.350,oo
 IV. IMPREVISTOS Y ESCALAMIENTO 1.347,20
 V. GASTOS DE SUPERVISION Y 182,80
 CONTROL
@@ -694,12 +690,9 @@ FINANCIAMIENTO PARA ADQUISICION DE MATERIALES
 REPARACION DE DA¥OS CAUSADOS POR EL HURACAN JUANA
 DISTRIBUCION DE RECURSOS
 Acuerdos D¢lares
-VII
-3.496.829,18
-VIII
-10.138.970,oo
-IX
-4.644.200,82"
+VII 3.496.829,18
+VIII 10.138.970,oo
+IX 4.644.200,82"
 --------------------------------------------------------------
 ------
 CONTRATO MODIFICATORIO DEL CONTRATO DE PRESTAMO
@@ -886,49 +879,3 @@ Puentes 500,oo
 - Varilla de
 Refuerzo 500,oo
 - Transporte y
-Seguros 200,oo
-Sub-total 10.200,oo
-III. OBRAS CIVILES 3.350,oo
-IV. IMPREVISTOS Y ESCALAMIENTOS 2.347,20
-V. GASTOS DE SUPERVISION Y CONTROL DEL FIV 182,80
-_________
-TOTAL GENERAL 14.930,oo 3.350,oo
-ANEXO "D"
-TABLA DE AMORTIZACION
-FECHA DE VENCIMIENTO MONTO EN US$
-30-12-93
-1.218.676
-30-06-94
-1.218.666
-30-12-94
-1.218.666
-30-06-95
-1.218.666
-30-12-95
-1.218.666
-30-06-96
-1.218.666
-30-12-96
-1.218.666
-30-06-97
-1.218.666
-30-12-97
-1.218.666
-30-06-98
-1.218.666
-30-12-98
-1.218.666
-30-06-90
-1.218.666
-30-12-90
-1.218.666
-30-06-99
-1.218.666
-30-12-99
-1.218.666
-30-06-2000
-1.218.666
-30-12-2000
-1.218.666
---------------------------------------------------------------
-------
