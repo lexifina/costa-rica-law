@@ -21,3 +21,4 @@ Reglamento General del Instituto Nacional de Seguros.
 | 6 | 1969-07-11 | Decreto Ejecutivo 32 (1969-07-11) |
 | 7 | 1970-05-21 | Decreto Ejecutivo 1005 (1970-05-21) |
 | 8 | 1971-12-03 | Decreto Ejecutivo 2088 (1971-12-03) |
+| 9 | 1975-01-15 | Decreto Ejecutivo 4484 (1975-01-15) |
