@@ -1,0 +1,5 @@
+DECRETO XCVII.
+Designa a Don Juan Antonio Alvarado para que represente a Costa Rica en la dieta Centro-Americana de "Sonsonate”.
+"El Jefe Supremo Provisorio del Estado libre de Costa Rica.
+Habiendo fallecido uno de los Representantes licenciado Manuel Aguilar, y siendo necesaria su reposicion, en aquel alto Cuerpo, para llenar lo prevenido en el art° I9 del decreto de 10 de julio del año próximo pasado: atendiendo á la ilustracion y patriotismo del distinguido costaricense Sr. Juan Antonio Alvarado, y en uso de las facultades que la fraccion 3° art. 11 de la acta de 7 de junio ùltimo confiere al Supremo Poder Ejecutivo; ha venido en decretar y decreta.
+Art. único Se ha por Representante del Estado de Costa Rica, en la Dieta Cento-Americana para cuya residencia se ha señalado la ciudad de Sonsonate, al Señor Juan Antonio Alvarado. -Dado en la ciudad de San José, á los diesinueve dias del mes de setiembre de mil ochocientos cuarenta y seis. José Maria Alfaro. Al Ministro de relaciones Señor Doctor José Maria Castro.
