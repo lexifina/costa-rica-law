@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Salvo el vehículo destinado al uso discrecional del Presidente de la Asamblea Legislativa, todos los demás vehículos de la institución llevarán permanentemente placas de matrícula oficial en los lugares donde deben colocarse.

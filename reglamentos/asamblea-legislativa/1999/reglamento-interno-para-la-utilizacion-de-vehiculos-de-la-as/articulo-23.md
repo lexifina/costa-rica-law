@@ -1,0 +1,1 @@
+ARTÍCULO 23.- El conductor deberá informar a la mayor brevedad a la Unidad de Transportes sobre los pormenores del accidente y comportarse cortésmente con las autoridades que emitan las determinaciones.

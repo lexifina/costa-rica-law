@@ -1,0 +1,1 @@
+ARTÍCULO 9.- Los operadores de equipo móvil funcionarios de la Unidad de Transportes encargados de brindar el servicio de transporte, están solamente facultados para hacerlo en los vehículos y por asuntos propios de la institución.

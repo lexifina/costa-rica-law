@@ -1,0 +1,1 @@
+ARTÍCULO 5.- El vehículo de uso discrecional no tiene restricciones en cuanto a combustible, horario de operación, recorrido, podrá usar placas particulares y no tendrá marcas visibles que lo distingan como vehículo oficial.
