@@ -7416,23 +7416,23 @@ Fracción Arancelaria | Descripción | DAI
 | mascar incluso recubiertos |
 | de azúcar |
 1704.90.00 | - Los demás | 15%
-(NOTA: El Decreto Ejecutivo N° 31158 de 29 de abril de 2003, hizo una modificación a los Derechos Arancelarios a la Importación en lo siguiente:
-1) Del 3 de febrero del 2003 al 15 de agosto del 2003:
-SAC | Descripción | DAI
-0713.3 | Frijoles (judías, alubias fréjoles) |
-| (Vigna spp., Phaseolus spp.) |
-0713.32.00 | Adzuki (rojos pequeños) |
-| (Phaseolus o Vigna angularis) | 46%
-0713.33 | Comunes (Phaseolus vulgaris) |
-0713.3310 | Negros | 46%
-2) A partir del 16 de agosto del 2003:
-SAC | Descripción | DAI
-0713.3 | Frijoles (judías, alubias fréjoles) |
-| (Vigna spp., Phaseolus spp.) |
-0713.32.00 | Adzuki (rojos pequeños) |
-| (Phaseolus o Vigna angularis) Así modificado por el Decreto Ejecutivo No. 31227 de 03 de junio de 2003. | 46% Del 3 de febrero del 2003 al 15 de agosto del 2003.
-0713.33 | Comunes (Phaseolus vulgaris) |
-0713.3310 | Negros Así modificado por el Decreto Ejecutivo No. 31227 de 03 de junio de 2003. | 46% Del 3 de febrero del 2003 al 15 de agosto del 2003.
+(NOTA: El artículo 1° del Decreto Ejecutivo N° 32048 del 21 de setiembre del 2004, hizo una modificación a los Derechos Arancelarios a la Importación de los productos que se describen a continuación, en el siguiente sentido:
+1) A partir de su publicación y hasta el 15 de diciembre del 2004:
+SAC Descripción DAI
+0713.3 Frijoles (judías, porotos, alubias, fréjoles)
+(Vigna spp., Phaseolus spp.):
+0713.32.00 Adzuki (“rojos pequeños”) 14 %
+(Phaseolus o Vigna angularis)
+0713.33 Comunes (Phaseolus vulgaris):
+0713.33.10 Negros 14 %
+2) A partir del 16 de diciembre del 2004:
+SAC Descripción DAI
+0713.3 Frijoles (judías, porotos, alubias, fréjoles)
+(Vigna spp., Phaseolus spp.):
+0713.32.00 Adzuki (“rojos pequeños”) 30 %
+(Phaseolus o Vigna angularis)
+0713.33 Comunes (Phaseolus vulgaris):
+0713.33.10 Negros 30 %
 NOTA: El Decreto Ejecutivo N° 31068 de 5 de marzo del 2003, hizo una modificación en lo siguiente:
 DAI DAI
 (%) (%)
