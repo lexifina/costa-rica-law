@@ -15,3 +15,4 @@ Reglamento general de patentes comerciales y similares
 | --- | --- | --- |
 | 1 | 2000-03-06 | la propia norma |
 | 2 | 2000-08-22 | Reglamento municipal 158 (2000-08-22) |
+| 3 | 2002-06-13 | Reglamento municipal 9 (2002-06-13) |
