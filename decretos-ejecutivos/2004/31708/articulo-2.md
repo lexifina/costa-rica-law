@@ -27,9 +27,9 @@ Comisión Nacional de Prevención de Riesgos y Atención de Emergencias | Recurs
 Compañía Nacional de Fuerza y Luz | Compra de energía
 Consejo de Seguridad Vial | Transferencia al PANI según Ley No. 7331. Cruz Roja Costarricense. Gobiernos Locales. (Municipalidades), según Ley No. 7331.Consejo Nacional de Vialidad, según Ley Nº 7798 (Así ampliado por el artículo 1° del decreto ejecutivo N° 31984 del 26 de julio de 2004.)
 Consejo Nacional de Producción | Materias Primas y Mercaderías del Programa Abastecimiento Institucional. Reserva Alimenticia y Emergencia Nacional. Transferencia a FANAL según Ley No. 6050. Transferencia a SEPSA según Ley No. 7064.
-Consejo Nacional de Vialidad | Adquisición de Terrenos, según Ley N° 7798. (Así adicionado por el artículo 1° del decreto ejecutivo N° 32162 del 24 de noviembre del 2004)
+Consejo Nacional de Vialidad | Adquisición de Terrenos, según Ley N° 7798. Recursos provenientes del Préstamo con el Export-Import Bank de la República de China destinados al Proyecto de Construcción de la Carretera Florencia-Naranjo. (Así ampliado por el artículo 1° del decreto ejecutivo N° 32299 del 5 de abril del 2005)
 Consejo Técnico Asistencia Médico Social | Transferencia al Inciensa según Ley N° 5412 y sus reformas. Transferencia a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, según Ley N° 5412, Ley Orgánica del Ministerio de Salud.
-Correos de Costa Rica | Canon de la ARESEP
+Correos de Costa Rica | Canon de la ARESEP Producto de la venta de los sellos de navidad destinada a la Ciudad de los Niños, según la Ley N° 2291. (Así ampliado por el artículo 1° del decreto ejecutivo N° 32566 del 2 de junio del 2005)
 Dirección General de Aviación Civil | Transferencia al Instituto Meteorológico Nacional según Ley N° 5222
 Editorial Costa Rica | Impresión y encuadernación Derechos de Autor en el Programa Producción y Difusión Pago de Comisiones (Así adicionado por el artículo 2° del decreto ejecutivo N° 31995 del 13 de julio de 2004.)
 Fábrica Nacional de Licores (FANAL) | Materia Prima . Impuesto IDA Impuesto IFAM. Transferencia al IAFA según Ley N° 7035. Transferencia al CNP, por Margen de Comercialización según Ley N° 6050. Transferencia al CNP, por Utilidad Neta y Ventas Proyectadas según Ley N° 6050.
