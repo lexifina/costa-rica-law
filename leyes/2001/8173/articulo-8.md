@@ -1,0 +1,1 @@
+Artículo 8°—El concejo municipal de distrito y el intendente distrital deberán rendir a la municipalidad del cantón los informes y las copias de documentos que les soliciten. Asimismo, estarán obligados a brindar todas las facilidades a los auditores y/o contadores de la municipalidad del cantón, en los estudios que requieran realizar en los concejos municipales de distrito.

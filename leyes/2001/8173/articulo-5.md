@@ -1,0 +1,1 @@
+Artículo 5°—Los cometidos distritales referentes a deportes y recreación serán atendidos por un comité distrital de deportes, que se regirá por la misma normativa de los comités cantonales de deportes.

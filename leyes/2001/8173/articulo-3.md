@@ -1,0 +1,1 @@
+Artículo 3°—Toda la normativa referente a las municipalidades será aplicable a los concejos municipales de distrito y a sus concejales e intendentes, siempre y cuando no haya incompatibilidad en caso de atribuciones propias y exclusivas de esos entes, a los regidores y al alcalde local.

@@ -1,0 +1,2 @@
+Artículo 10.—Los impuestos de patentes aplicables a las actividades ejecutadas en el distrito, serán igualmente percibidos por el concejo municipal de distrito, sin perjuicio de que, en caso de actividades especialmente grandes, el producto de la patente deba repartirse con la municipalidad del cantón, según convengan las partes. De igual modo se procederá con los demás impuestos locales.
+En los impuestos en que participen las municipalidades, se entenderá que los concejos municipales de distrito participan proporcionalmente.

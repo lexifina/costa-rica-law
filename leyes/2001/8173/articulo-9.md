@@ -1,0 +1,1 @@
+Artículo 9°—Las tasas y los precios por los servicios distritales, en tanto estos sean asumidos por el concejo municipal de distrito, serán percibidos directamente por dicho concejo, así como las contribuciones especiales originadas en actividades u obras del mismo concejo.
