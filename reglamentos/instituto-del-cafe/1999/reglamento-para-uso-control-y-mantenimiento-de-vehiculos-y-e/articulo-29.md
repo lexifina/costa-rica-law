@@ -1,0 +1,1 @@
+Artículo 29.—Ante la ausencia de regulación expresa de este reglamento, los asuntos que surjan, serán de resolución por parte de la Dirección Ejecutiva, conforme con lo que según el caso, establezca el Manual sobre Normas Técnicas de Control Interno Relativas al Uso, Control y Mantenimientos de Vehículos de la Contraloría General de la República.

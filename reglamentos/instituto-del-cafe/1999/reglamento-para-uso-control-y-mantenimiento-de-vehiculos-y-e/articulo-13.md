@@ -1,0 +1,1 @@
+Artículo 13.—La Unidad de Servicios Generales establecerá los registros adecuados para el control de las diferentes actividades relativas al uso, control y mantenimiento de vehículos y equipos de tracción, y los documentos que se generen deberán ser archivados convenientemente mediante los mecanismos que al efecto establezca.

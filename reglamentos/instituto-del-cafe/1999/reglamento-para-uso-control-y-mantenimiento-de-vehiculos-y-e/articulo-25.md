@@ -1,0 +1,1 @@
+Artículo 25.—El conductor que utilice indebidamente combustibles, lubricantes o cualquier otro material, destinado al buen funcionamiento, conservación y limpieza de vehículos, se hará acreedor a las sanciones contenidas en el presente reglamento.
