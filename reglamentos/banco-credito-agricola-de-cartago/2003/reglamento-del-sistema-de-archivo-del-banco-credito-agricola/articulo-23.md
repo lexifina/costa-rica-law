@@ -1,0 +1,1 @@
+Artículo 23.—El responsable de cada archivo de gestión centralizado, será la persona encargada de las labores administrativas de la oficina, a quien le corresponderá administrar las funciones archivísticas que establezca el Archivo Central y servirá de enlace entre el archivo de gestión y el Archivo Central y el Comité Institucional de Selección y Eliminación de Documentos.

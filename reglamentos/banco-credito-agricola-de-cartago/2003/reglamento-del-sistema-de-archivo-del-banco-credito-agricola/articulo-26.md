@@ -1,0 +1,1 @@
+Artículo 26.—El Comité Institucional también podrá estar integrado por otros miembros temporales o permanentes, según los objetivos y funciones específicos de cada dependencia, en calidad de observadores, de conformidad con el numeral 54 de la Ley General de la Administración Pública.

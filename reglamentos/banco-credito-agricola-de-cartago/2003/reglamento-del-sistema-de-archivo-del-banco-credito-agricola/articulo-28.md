@@ -1,0 +1,1 @@
+Artículo 28.—En los archivos de gestión centralizados y los archivos de Centros de Negocios, se conformarán Subcomités de Selección y Eliminación de Documentos, que estarán integrados por los responsables de las unidades administrativas, el encargado del archivo, quien presidirá, y un Asesor Jurídico o el representante de la Sección Legal, y deberán sesionar cada dos meses.

@@ -1,0 +1,1 @@
+Artículo 22.—Los Centros de Negocios, la Junta Directiva, la Gerencia General, las Subgerencias y la Auditoría Interna contarán con un archivo de gestión centralizado. Podrán crearse otros archivos de gestión centralizados en concordancia con la evolución de la estructura orgánica del Banco, previo criterio del Archivo Central.

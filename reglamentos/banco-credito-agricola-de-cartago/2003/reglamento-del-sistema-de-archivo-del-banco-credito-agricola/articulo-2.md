@@ -1,0 +1,11 @@
+Artículo 2º—Para efectos de este Reglamento se entiende por:
+a- Documentos de archivo: Testimonios de la actividad del hombre que contienen información fijada en cualquier formato o soporte, producidos orgánicamente y/o reunidos y utilizados por una persona particular, familia u organismo en el ejercicio de las actividades y funciones del ente productor. Los documentos de archivo actúan como testimonios ofreciendo pruebas, justificantes, para garantizar los derechos de la administración y de los administrados y ofrecen información, ya sea facilitando antecedentes para agilizar una gestión o bien, como fuentes de historia.
+b- Tipo documental: Forma en que esté presentada la información contenida en el documento. En ese sentido se podrá hablar de reglamentos, actas, circulares, expedientes, correspondencia, informes, reportes, contratos, listados, convenios, hojas de trámite, tabulados, acuerdos, fotografías y otros.
+c- Clase documental: Está determinada por el procedimiento empleado para transmitir la información. Existen cinco diferentes clases documentales:
+1. Textual: en donde los documentos transmiten la información mediante texto escrito.
+2. Gráfica: aquellos que emplean la imagen, signos no textuales, colores y otros para representar la información.—mapas, planos, gráficos, fotografías, diapositivas, etc.
+3. Sonoros: permiten grabar y reproducir cualquier sonido, tales como discos, cintas magnéticas, discos compactos, etc.
+4. Audiovisuales: Combinan la imagen en movimiento y el sonido.—filmes, cintas de vídeo, videodiscos, etc.
+5. Electrónicos o informáticos: Son los generados a partir de una computadora, disquetes, discos ópticos, cintas, DC-ROM, etc.
+d- Tablas de plazos: Es el instrumento mediante el cual se determinan los tipos documentales que se producen o reciben en la Institución, así como su vigencia administrativa o legal, su valor científico o cultural, la cantidad, cuáles oficinas tienen originales o copias, en qué medios están almacenados y otros datos de carácter general que permiten controlar la producción documental en la Institución.
+e- Fondo documental: Está integrado por el conjunto de documentos de archivo, sean de cualquier tipo y clase documental, que se encuentran custodiados en los diferentes archivos del Sistema.

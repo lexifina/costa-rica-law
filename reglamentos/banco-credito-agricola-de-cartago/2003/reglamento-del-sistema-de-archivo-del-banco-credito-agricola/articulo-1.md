@@ -1,0 +1,4 @@
+NOTA DE SINALEVI: El Banco Crédito Agrícola de Cartago, acordó la aprobación de un nuevo Reglamento del Sistema de Archivo del Banco Crédito Agrícola de Cartago, publicado en La Gaceta N° 109 del 07 de junio de 2007
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—El presente Reglamento se dicta de conformidad con el artículo 34, inciso 3, de la Ley Orgánica del Sistema Bancario Nacional y artículo 41 de la Ley del Sistema Nacional de Archivos y su Reglamento, y regula el funcionamiento del Sistema de Archivo de Bancrédito, el cual estará conformado por el Archivo Central, archivos de gestión de las diferentes unidades administrativas del Banco, archivos de Centros de Negocios y el Comité Institucional de Selección y Eliminación de Documentos. El Archivo Central será el rector del Sistema. En este Reglamento el término "Archivo" es comprensivo de todos los componentes del Sistema de Archivo de Bancrédito.
