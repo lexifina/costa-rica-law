@@ -1,0 +1,4 @@
+En cumplimiento del artículo 47 del Código Municipal y al no haberse recibido ningún tipo de pronunciamiento u oposición en el plazo de diez días hábiles estipulado por ley, respecto al Reglamento para el Nombramiento y Funcionamiento de los Concejos de Distritos del Cantón de Desamparados, publicado en La Gaceta N° 199 del día jueves 16 de octubre de 1997, se considera aprobado, por lo cual se publica por segunda y última vez:
+REGLAMENTO PARA EL NOMBRAMIENTO Y FUNCIONAMIENTO DE LOS CONCEJOS DE DISTRITO DEL CANTÓN DE DESAMPARADOS
+DISPOSICIONES GENERALES
+Artículo 1o—Los Concejos de Distrito están integrados por cinco miembros vecinos del distrito, a quienes se denominará concejales, de los cuales uno será necesariamente el síndico de la circunscripción de que se trate, y el otro su suplente; el primero ejercerá la presidencia del concejo y el segundo la vicepresidencia.
