@@ -13,3 +13,4 @@ Pago Prestaciones Movilidad o Renuncia Voluntaria Servidores Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-06-19 | la propia norma |
+| 2 | 1995-06-19 | SINALEVI (sin norma nombrada) |
