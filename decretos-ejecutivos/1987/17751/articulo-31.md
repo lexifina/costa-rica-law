@@ -1,5 +1,5 @@
 CAPITULO VIII
-De las modificaciones
+De las notificaciones
 Artículo 31.- La Comisión Técnica de Transportes comunicará sus
 acuerdos mediante notificador del despacho, siempre y cuando se hubiere
 señalado lugar para tal fin dentro del Area Metropolitana

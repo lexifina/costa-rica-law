@@ -15,7 +15,7 @@ CAPITULO I
 De la integración y funciones de la Comisión Técnica de Transportes
 Artículo 1º.- La Comisión Técnica de Transportes será integrada por
 el Poder Ejecutivo con los siguientes miembros:
-a) El Director de Transporte Automotor, quien presidirá;
+a) El Director de Transporte Automotor(*), quien presidirá;
 b) El Director de la Policía de Tránsito;
 c) El Director de Ingeniería de Tránsito;
 d) Un abogado del Estado con experiencia en Derecho Administrativo;
@@ -23,3 +23,5 @@ e) Un economista del Estado con experiencia en planificación del
 transporte; y
 f) Un profesional del Estado con experiencia en equipo de
 transportes.
+(*) Tácitamente reformado por el artículo 249 de la Ley Nº 7331 de
+13 de abril de 1993: actualmente es Director de Transporte Público.

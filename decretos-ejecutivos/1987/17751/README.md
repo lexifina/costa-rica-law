@@ -13,3 +13,4 @@ Reglamento ejecutivo para el ejercicio de actuaciones y procedimientos de la Com
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-09-18 | la propia norma |
+| 2 | 1987-09-18 | SINALEVI (sin norma nombrada) |
