@@ -1,7 +1,8 @@
-Artículo 3º.- El domicilio legal de la Junta de Administración
-Portuaria y de Desarrollo Económico de la Vertiente Atlántica,
-estará en la ciudad de Limón, donde tendrá sus oficinas, pero podrá
-organizar agencias, sucursales o representaciones en cualquier otro
-lugar de la República o fuera de ella, por simple acuerdo de la
-Junta Directiva. Su duración como organismo de derecho público
-será indefinida.
+Artículo 3º.- Como institución autónoma de derecho público, JAPDEVA
+tendrá personería jurídica y patrimonio propio; gozará de independencia
+administrativa de acuerdo con esta ley. Se regirá por las decisiones de
+su Consejo de Administración, cuyos miembros actuarán con apego a la
+Constitución Política, a las leyes y reglamentos pertinentes, siendo
+responsables de su gestión en forma total e ineludible. Las relaciones
+entre el Poder Ejecutivo y JAPDEVA se mantendrán a través del Ministerio
+de Obras Públicas y transportes.

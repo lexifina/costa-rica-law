@@ -1,7 +1,6 @@
-Artículo 19.- Los miembros de la Junta Directiva, el Gerente
-General y el Auditor de la Junta, que ejecutaren o permitieren la
-ejecución de actos y operaciones evidentemente violatorios de
-disposiciones legales o reglamentarias o de evidente perjuicio para
-la empresa, responderán con sus bienes por las pérdidas que le
-causaren, sin perjuicio de la responsabilidad penal en que pudieran
-incurrir.
+Artículo 19.- El Consejo de Administración, a propuesta del
+Presidente Ejecutivo, podrá designar el gerente o gerentes que sean
+necesarios, quien o quienes tendrán las atribuciones y poderes que
+expresamente les asigne el Consejo de Administración.
+NOTA: Complementado por artículos 6 y 7 de Ley Nº 4646 de 20 de
+octubre de 1970.
