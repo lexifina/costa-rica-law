@@ -27,7 +27,7 @@ solamente en el caso de que dicha energía no pueda ser suministrada
 adecuadamente, por los servicios establecidos. No se dará franquicia
 aduanera a la importación de combustible y lubricantes destinados a
 equipos de transporte;
-d) Franquicia aduanero del 99% sobre la importación de materias
+d) Franquicia aduanera del 99% sobre la importación de materias
 primas, productos semielaborados o materiales que entren en la
 composición o en el proceso de elaboración del producto;
 e) Franquicia aduanera del 99% sobre la importancia de empaques y
@@ -55,3 +55,15 @@ Directa.
 El uso de materia prima o productos semielaborados nacionales será
 factor de primordial importancia en el otorgamiento de los beneficios a
 que se refiere este artículo.
+( TACITAMENTE DEROGADO el presente artículo por el 1º de la Ley Nº
+7293 de 31 de marzo de 1992, LEY REGULADORA DE TODAS LAS EXONERACIONES
+VIGENTES, SU DEROGATORIA Y SUS EXCEPCIONES, que literalmente dispone:
+"Derogatoria General. Se derogan todas las exenciones tributarias
+objetivas y subjetivas previstas en las diferentes leyes, decretos y
+normas legales referentes, entre otros impuestos, a los derechos
+arancelarios, a las ventas, a la renta, al consumo, al territorial, a la
+propiedad de vehículos, con las excepciones que indique la presente Ley.
+En virtud de lo dispuesto, únicamente quedarán vigentes las exenciones
+tributarias que se mencionan en el artículo siguiente." Es de hacer notar
+que el artículo 2º de dicha ley Nº 7293 no excluye de la derogatoria a la
+presente ley.
