@@ -1,0 +1,1 @@
+Transitorio único.-El Ministerio de Ciencia y Tecnología, enviar todas las solicitudes que hasta la fecha de vigencia de este decreto tenga en su poder a las autoridades competentes con el fin de que se siga con el tramite normal establecido en nuestro Ordenamiento Jurídico para donaciones de equipos de cómputo.
