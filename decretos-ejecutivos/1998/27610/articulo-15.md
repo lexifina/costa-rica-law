@@ -1,0 +1,4 @@
+Artículo 15.—De acuerdo al presente reglamento por fondo de Caja Chica pueden realizarse gastos plenamente justificados en la siguiente forma:
+Hasta ¢ 20.000,00 (veinte mil colones) y en casos especiales con previa autorización de la Dirección Ejecutiva, Coordinador del Área Administrativa-Financiera o el Encargado del Proceso Financiero por un monto mayor a lo establecido hasta la suma de ¢ 30.000,00 (treinta mil colones). Para la compra de repuestos y reparaciones hasta por un máximo de ¢ 200.000,00 (doscientos mil colones).
+Los pagos podrán hacerse en efectivo hasta ¢ 10.000,00 (diez mil colones) superior a este pago se hará mediante cheque en cualquiera de las tres cajas chicas.
+La solicitud de adelanto o cancelación por este fondo, debe hacerse por escrito, autorizado por el Jefe de la Unidad solicitante y dirigido a la persona encargada de la Caja Chica, indicando además la persona autorizada para retirar el dinero o a favor de quien será emitido el cheque.
