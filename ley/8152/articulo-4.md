@@ -1,0 +1,2 @@
+ARTÍCULO 4.- Autorízase al Poder Ejecutivo para que, cada año, incluya en la Ley de Presupuesto Nacional la partida presupuestaria anual, destinada al Ministerio de Educación Pública, con el propósito de financiar permanentemente el desarrollo de las Olimpiadas de Matemáticas. El monto corresponderá a doscientos cincuenta salarios mensuales de oficinista 1, como se establece en el artículo 2 de la Ley Nº 7337, de 14 de mayo de 1993.
+Rige a partir de su publicación.

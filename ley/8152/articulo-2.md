@@ -1,0 +1,1 @@
+ARTÍCULO 2.- En las Olimpiadas de Matemáticas se fomentará y estimulará la participación de los estudiantes de primaria y secundaria de todos los centros educativos del país, públicos y privados, a nivel nacional e internacional.
