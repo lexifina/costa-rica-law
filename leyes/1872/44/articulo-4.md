@@ -1,0 +1,1 @@
+Art 4° Aunque el demandante hubiere consentido en que el descuento de esta proceda a la entrega del demandado, puede solicitarla pendiente el descuento, y debe concedérsele inmediatamente, bajo las condiciones prescritas en los dos anteriores artículos.

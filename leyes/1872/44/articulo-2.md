@@ -1,0 +1,1 @@
+Art 2° El demandante o patrón que no consintiese en esto, queda sujeto a dar a la autoridad que impuso la multa, aviso escrito de que el demandado ha cumplido la obligación por la cual se le demandado ha cumplido la obligación por la cual se le demandó, dentro de tres días de verificado tal cumplimiento para que la autoridad mencionado proceda a ejecutar el castigo impuesto.
