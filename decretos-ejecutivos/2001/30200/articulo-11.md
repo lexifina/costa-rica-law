@@ -1,0 +1,5 @@
+Artículo 11.—Funciones del Administrador del contrato de obra:
+11.1 El administrador de contrato de obra del MOPT o del respectivo órgano con desconcentración máxima, que tenga a su cargo la administración de contratos en los que se incluyan bienes exonerados, deberá tener un riguroso archivo que contenga un registro óptimo de las exoneraciones solicitadas y las recomendadas para cada contrato.
+11.2 Deberá, además, emitir la recomendación para que en caso de vehículos, el Registro Público le otorgue la placa con código especial OPXXXX, o bien para que el MOPT le asigne el código especial de identificación cuando se trate de maquinaria y equipo.
+11.3 Para el caso del MOPT, deberá dicho administrador supervisar a la Ingeniería de Proyecto o a la Unidad correspondiente del órgano desconcentrado, según se trate, en el cumplimiento de las obligaciones establecidas por este Reglamento.
+11.4 Velar porque al finalizar el proyecto, los vehículos, maquinaria y equipo exonerados, cancelen los impuestos correspondientes, sean exportados o trasladados a otro proyecto que goce del beneficio de exención, antes de que se firme el finiquito de la obra.

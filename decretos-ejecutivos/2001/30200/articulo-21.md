@@ -1,0 +1,4 @@
+Artículo 21.—Traslado de bienes exonerados de un proyecto a otro:
+21.1 Sólo será posible el traslado de bienes exonerados adquiridos al amparo de una Ley específica, para destinarlos a un proyecto distinto e igualmente exonerado, cuando técnicamente se justifique y el Administrador del contrato de obra del MOPT o del órgano desconcentrado competente así lo determine, de lo cual deberá informar el Departamento de Exenciones del Ministerio de Hacienda, todo ello conforme lo establece el presente Reglamento.
+21.2 Cuando se trate del traslado de los bienes a que se refiere el presente Reglamento, a un proyecto que no esté cubierto por el beneficio de exoneración, deberá cancelarse, previamente, los tributos correspondientes.
+21.3 Cuando se trasladare bienes exonerados para un proyecto distinto que goza del beneficio exonerativo, deberá de previo efectuársele el cambio de placa o de código con el fin de que resulten acordes al nuevo proyecto.

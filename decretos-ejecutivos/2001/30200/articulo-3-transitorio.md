@@ -1,0 +1,1 @@
+Transitorio III.—Las solicitudes de liquidación que se encuentren pendientes de trámite a la entrada en vigencia del presente reglamento o aquellas autorizadas por el Departamento de Exenciones con anterioridad pero que no hayan sido aplicadas en la respectiva Aduana, se regirán por las disposiciones del presente decreto.

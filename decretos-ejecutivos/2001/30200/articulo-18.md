@@ -1,0 +1,1 @@
+Artículo 18.—Restricción. Toda solicitud de exención deberá ajustarse al programa de trabajo y a los procesos constructivos de la obra conforme al contrato, sus modificaciones y/o ampliaciones, así como a los lineamientos del presente Reglamento.

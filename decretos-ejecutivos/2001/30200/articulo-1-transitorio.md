@@ -1,0 +1,2 @@
+Disposiciones Transitorias
+Transitorio I.—Se otorga un plazo de tres meses, a partir de la publicación del presente decreto, para que las empresas constructoras de obras públicas que se encuentren ejecutando proyectos con bienes exentos a la fecha de publicación de este reglamento y que posean vehículos exonerados al amparo de leyes especiales, procedan a depositar las placas que portan actualmente y a solicitar ante el Registro Publicó la asignación de las nuevas con código OPXXXX.

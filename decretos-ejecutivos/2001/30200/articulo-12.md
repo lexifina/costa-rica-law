@@ -1,0 +1,32 @@
+SECCIÓN SEGUNDA
+De los trámites ante el Ministerio de Hacienda
+Artículo 12.—Subproceso de solicitud de exoneraciones. Para efectos del trámite de exoneración de vehículos, equipo y maquinaria, deberá seguirse el siguiente procedimiento:
+12.1 A partir del momento en que se lleve a cabo la "reunión de preconstrucción", el adjudicatario de la correspondiente licitación o Contratista, presentará ante la ingeniería de proyecto del MOPT o del órgano desconcentrado correspondiente la solicitud de exoneración en el formulario establecido para esos efectos por la Dirección, el que deberá estar conforme a los términos de la respectiva Ley o Contrato que otorga dicha exención, al contenido de la Licitación y a los términos del presente Reglamento, y al cual se le adjuntará toda la documentación necesaria, según se establece en este Reglamento.
+12.2 El Ingeniero del Proyecto representante del MOPT o la unidad correspondiente del órgano con desconcentración máxima recibe dicho "formulario" y los documentos anexos, verifica que los bienes cuya solicitud de exoneración se gestiona se encuentran dentro de los contemplados en el respectivo Contrato y confecciona el oficio o nota de remisión ante el administrador de contrato de obra que resultare competente, acompañándola de toda la documentación.
+12.3 El administrador del contrato de obra del MOPT o del órgano con desconcentración máxima que fuere competente recibe, a su vez, dicho oficio de recomendación, el "formulario" y los documentos anexos, verifica que los bienes cuya solicitud de exoneración se gestiona, se encuentran dentro de los contemplados en el respectivo Contrato y confecciona el oficio o nota de remisión ante el Departamento de Exenciones, acompañándola de toda la documentación.
+12.4 El Departamento de Exenciones recibe la totalidad de la documentación y una vez analizada, autoriza o no, finalmente la nota de exención. De este documento de exención se remitirá fotocopia al Administrador del contrato de obra que le hubiese remitido tales documentos, si fuere del caso, o indicará por escrito las razones técnicas y jurídicas que imposibilitan el otorgamiento de la exoneración.
+12.5 Si se aprobara la exoneración, se entregará copia al Contratista y el original de la Nota de Exoneración será remitida por el Departamento de Exenciones a la dependencia correspondiente de la Dirección General de Aduanas del Ministerio de Hacienda con el fin de que se aplique al respectivo desalmacenaje. En caso de que se establecieran medios de transmisión electrónica, en lugar de remitir el documento físico de la nota de exención, se enviará vía electrónica la correspondiente comunicación a la Dirección General de Aduanas o a la Aduana respectiva.
+12.6 La dependencia correspondiente de la Dirección General de Aduanas recibe dicho documento y procede a aplicarla a la declaración aduanera de importación respectiva.
+12.7 El Contratista, una vez tramitada la indicada declaración aduanera, y si se tratara de vehículos, equipo y maquinaria, procede a solicitar ante el Administrador del contrato de obra del MOPT o del órgano desconcentrado que fuere competente y que administra el contrato, la recomendación para que en caso de vehículos, el Registro Público le otorgue la placa especial OPXXXX, o bien para que el MOPT o el órgano desconcentrado le asigne el código especial de identificación cuando se trate de maquinaria y equipo.
+12.8 El Administrador del contrato de obra en mención, una vez recibida la copia de la nota de exención y copia certificada por la Aduana o por Notario Público de la declaración aduanera de importación, así como la solicitud de recomendación de placa especial o código especial, verifica, asigna y entrega dichas recomendaciones, conjuntamente con la documentación respectiva, con el fin de que el contratista solicite, a más tardar en el plazo de los quince días siguientes a la fecha de recibo de tales documentos, la inscripción y la respectiva placa ante el Registro Público cuando se trate de vehículos, o bien ante el MOPT o el órgano desconcentrado competente cuando se trate de maquinaria y equipo.
+12.9 Finalizado el plazo de los 15 días indicados anteriormente, el Contratista deberá comunicar al Administrador del contrato de obra del MOPT o del órgano con desconcentración máxima competente y que tuviere a su cargo el proyecto respectivo, de los trámites realizados para solicitar la inscripción y la correspondiente placa o el código especial, según corresponda; de lo contrario, la maquinaria, el equipo o vehículos en cuestión no podrán ser utilizados mientras no se cumpla con lo anterior, y la demora, atraso o deficiencias que se produjeren en el proyecto o la obra serán imputables, en tal caso, exclusivamente a la firma contratista.
+12.10 El Registro Público de la Propiedad Mueble recibe la documentación en referencia, y una vez analizada por el Registrador y comprobado que cumple con los requisitos legales, procede a la inscripción y a asignar de inmediato el número de placa con código especial a los vehículos.
+12.11 El Administrador del contrato de obra del MOPT o del órgano desconcentrado competente, una vez recibida la información por parte de la firma contratista o de su representante legal, confeccionará un control individualizado del uso y destino de la maquinaria, equipo y vehículos exonerados que incluirá al menos:
+12.11.1. Nombre de la Empresa Constructora
+12.11.2. Número de cédula jurídica
+12.11.3. Número de Ley que ampara la exoneración
+12.11.4. Nombre del Proyecto en que será utilizado el bien
+12.11.5. Oficio de recomendación de la solicitud
+12.11.6. Nombre de la persona que recomendó la exención
+12.11.7. Copia de la nota de exención
+12.11.8. Copia de la Declaración Aduanera de Importación
+12.11.9. Ubicación del bien
+12.11.10. Fecha de inicio y de conclusión del proyecto
+12.11.11. Características o descripción de los bienes exonerados, con un detalle especial para vehículos, equipo y maquinaria (marca, modelo, Nº motor, Nº de serie, Nº VIN, etc.)
+12.11.12. Control de código y números de placa
+12.11.13. Fecha de vencimiento de las notas de exención temporales
+12.11.14. Autorizaciones de traslados a otros proyectos u otras actuaciones del recomendador.
+Asimismo, y una vez finalizado el Proyecto, deberá constar adicionalmente en el respectivo expediente administrativo:
+12.11.15 Copia de la Nota de Liquidación
+12.11.16 Copia de la Declaración de liquidación de impuestos.
+12.11.17 Comprobante de la entrega de las placas especiales o del código especial

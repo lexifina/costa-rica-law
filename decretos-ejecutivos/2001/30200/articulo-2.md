@@ -1,0 +1,4 @@
+CAPÍTULO II
+De la competencia de la Administración Pública
+Artículo 2º—Competencia del MOPT. Dentro de las atribuciones establecidas por su Ley de Creación, Nº 4786 del 5 de julio de 1971 y sus reformas, corresponderá al MOPT verificar que para cada contrato u obra pública a cargo de empresas constructoras, se cumpla con las disposiciones legales vigentes y cumplir con los demás términos del presente Reglamento.
+Asimismo, corresponde al MOPT o al respectivo órgano con desconcentración máxima, según se trate, velar porque el equipo y maquinaria exonerados permanezcan en el sitio del proyecto, así como que dichos bienes y los vehículos exonerados efectivamente se utilicen en la ejecución del contrato que lo ampara, de conformidad con lo prescrito en el artículo 42 de la Ley Nº 7293 del 31 de marzo de 1992.

@@ -1,0 +1,1 @@
+Artículo 26.—Derogatoria. Se deroga el Decreto Ejecutivo Nº 18533-H de seis de octubre de 1988 y cualquier otra disposición de similar o inferior rango jerárquico que se oponga a las regulaciones del presente reglamento.

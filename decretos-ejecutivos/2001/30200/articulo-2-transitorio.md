@@ -1,0 +1,1 @@
+Transitorio II.—El Registro Público de la Propiedad Mueble procederá a realizar la inscripción de la maquinaria y equipo, una vez que se hayan concluido los ajustes técnicos correspondientes para esos efectos, en el sistema de información de dicho Registro.
