@@ -1,0 +1,1 @@
+Artículo 109.—El monto económico derivado del régimen por carrera profesional se establecerá en cada caso, de conformidad con el puntaje alcanzado por cada servidor, mediante el estudio pertinente, en relación con el valor asignado a cada punto, que será igual al contemplado para el mismo efecto para los servidores cubiertos por el Régimen de Servicio Civil.

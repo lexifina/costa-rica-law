@@ -1,0 +1,1 @@
+Artículo 102.—El Departamento de Personal de MIDEPLAN conservará un listado anual de la calificación de servicios de los servidores acogidos al beneficio por carrera profesional, para los efectos de la comprobación y verificación correspondientes a cada ajuste.

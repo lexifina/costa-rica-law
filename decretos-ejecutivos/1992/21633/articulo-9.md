@@ -1,0 +1,1 @@
+Artículo 9°—El Director está facultado para asignar a los servidores las labores que considere necesarias, siempre que estas resulten compatibles con sus capacidades, preparación y los requisitos del puesto para el cual fueron nombrados.

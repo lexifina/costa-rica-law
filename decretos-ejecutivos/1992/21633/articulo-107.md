@@ -1,0 +1,1 @@
+Artículo 107.—El Departamento de Personal de MIDEPLAN registrará la fecha de presentación de la solicitudes formuladas y las presentará ante la Comisión de carrera Profesional para los Servidores de la UEP, a los efectos de su respectiva evaluación.

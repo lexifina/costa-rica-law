@@ -1,0 +1,7 @@
+Artículo 89.—Para optar al incentivo de carrera profesional, los grados académicos deberán ser:
+a) Propios del área de actividad del puesto o afines con la misma.
+b) Conferidos o reconocidos y equiparados por alguna de las universidades del país, facultadas para ello. Los interesados deberán aportar una certificación emitida por el Departamento de Registro de la institución que corresponda.
+c) Los grados y títulos académicos obtenidos antes de la promulgación de las "Normas sobre el Reconocimiento y Equiparación de los Grados y Títulos" por parte del Consejo Nacional de Rectores (CONARE) del diecinueve de agosto de mil novecientos ochenta y seis, serán aceptados de acuerdo con la condición con que los haya reconocido el colegio profesional respectivo.
+d) La especialidad se ponderará como tal, si fue obtenida con base en la licenciatura. A la especialidad obtenida con base en el bachillerato se le otorgará el puntaje previsto para la licenciatura.
+e) Se entenderán por grados y especialidades adicionales aquellos que presenten los servidores y que no hayan sido considerados para la ponderación básica de su grado académico. Solo se reconocerá un grado o especialidad adicional a cada servidor.
+f) Podrá aceptarse para la puntualización de licenciatura el grado de maestría en áreas diferentes a la licenciatura de los servidores, siempre y cuando sea congruente con la actividad que estos realicen.

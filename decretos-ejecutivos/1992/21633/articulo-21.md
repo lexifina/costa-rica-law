@@ -1,0 +1,1 @@
+Artículo 21.—La evaluación y selección de las ofertas presentadas en el plazo vías condiciones estipuladas en el respectivo aviso, se llevará a cabo sobre la base del resultado obtenido en la calificación de los oferentes para el puesto, y será efectuada por el Departamento de Personal de MIDEPLAN.

@@ -1,0 +1,1 @@
+Artículo 23.—Para quedar elegibles, los candidatos deberán obtener una calificación final que no podrá ser menor de setenta puntos, en una escala de uno a cien, y ocuparán su lugar en la correspondiente lista en estricto orden descendente, de conformidad con la puntuación obtenida.

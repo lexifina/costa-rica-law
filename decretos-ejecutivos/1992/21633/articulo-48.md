@@ -1,0 +1,1 @@
+Artículo 48.—La acumulación de vacaciones deberá solicitarse por escrito ante el Departamento de Personal de MIDEPLAN antes de la prescripción del correspondiente derecho. La solicitud deberá acompañarse de la aprobación del superior inmediato, así como del Director.

@@ -1,0 +1,1 @@
+Artículo 81-—Los servidores que incurran en incumplimiento de las disposiciones del presente capítulo o de las del respectivo contrato, no podrán firmar un nuevo contrato y percibir el incentivo por dedicación exclusiva antes de haber transcurrido cinco años contados a partir de la fecha en que se dio el incumplimiento mencionado.
