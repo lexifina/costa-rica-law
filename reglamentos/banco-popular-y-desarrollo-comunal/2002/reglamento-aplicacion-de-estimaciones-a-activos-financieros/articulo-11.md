@@ -1,0 +1,1 @@
+Artículo 11.—Contabilización. Todo activo financiero liquidado con fundamento en este Reglamento deberá registrarse en cuentas de orden (Cuenta 815–Cuentas Castigadas), y además, cuando proceda, se registrará en el Sistema Integrado de Préstamos, a fin de que los obligados normalicen su situación cuando lo deseen.
