@@ -1,0 +1,1 @@
+Artículo 7º—El Ministerio de Salud se reserva el derecho de confirmar, mediante muestreo o análisis de muestras en el mercado o en las bodegas del productor o importador, el cumplimiento de la leche de ganado vacuno importada con los niveles de fortificación establecidos en el presente reglamento.

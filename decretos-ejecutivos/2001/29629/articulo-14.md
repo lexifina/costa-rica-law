@@ -1,0 +1,1 @@
+Artículo 14.—El Ministerio de Salud podrá modificar los niveles de fortificación o los tipos de fortificante, acorde con el perfil epidemiológico de las deficiencias de micronutrientes en el país y con los avances de los conocimientos científicos y tecnológicos sobre el tema.
