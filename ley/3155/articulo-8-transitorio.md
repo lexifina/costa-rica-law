@@ -1,0 +1,2 @@
+Transitorio VIII.- El Ministerio de Transportes, para los efectos de la ley Nº 19de 4 de noviembre de 1944 y sus reformas, asume las obligaciones de la que fue Secretaría de Fomento y luego Ministerio de Obras Públicas; los servidores cubiertos por el régimen de pensiones, al operarse la sustitución mantendrán sus derechos sin solución de continuidad, al seguir prestando servicios o pretarlos en el futuro en ese Ministerio.
+(Así adicionado por el artículo único de la ley N° 3604 del 2 de diciembre de 1965)
