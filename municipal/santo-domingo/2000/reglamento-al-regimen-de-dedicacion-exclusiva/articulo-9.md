@@ -1,0 +1,1 @@
+Artículo 9º—El contrato debe ser tramitado en cuatro tantos; un original para el archivo del Alcalde Municipal, una copia para el servidor que se acoge al Régimen de Dedicación Exclusiva, una copia para el expediente de personal y una copia para la Asesoría Legal y la última para la oficina Financiera.

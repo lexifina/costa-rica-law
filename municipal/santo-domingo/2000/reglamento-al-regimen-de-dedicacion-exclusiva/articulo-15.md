@@ -1,0 +1,1 @@
+Artículo 15.—El incumplimiento del beneficio por parte del servidor acogido al Régimen de Dedicación Exclusiva, se considera como infracción grave a la relación laboral y por tanto será causal de despido sin responsabilidad patronal, adicional a las causales establecidas en el artículo 81 del Código de Trabajo; observándose para ello el debido proceso.

@@ -1,0 +1,1 @@
+Artículo 13.—Los servidores que estén acogidos al Régimen de Dedicación Exclusiva y estén disfrutando de un permiso sin goce de salario; al finalizar el mismo, pueden seguir devengando el pago de dicho incentivo.

@@ -1,0 +1,7 @@
+CAPÍTULO II
+De las definiciones y objetivos
+Artículo 3º—Se entenderá por dedicación exclusiva para efectos del presente Reglamento, la compensación económica retribuida a los servidores de nivel profesional porcentual sobre sus salarios, para que obligatoriamente no ejerzan de manera particular, remunerado o ad honórem, la profesión que sirven para desempeñar el puesto que ostente, así como las actividades relacionadas con ésta, con las excepciones que se establecen a continuación:
+a) Cuando se trate del ejercicio de la docencia en establecimientos de educación superior oficiales o privados, en seminarios, cursos y congresos organizados e impartidos por dichos centros educativos.
+b) Cuando se trate de impartir cursos de capacitación en instituciones públicas, siempre que sean organizadas y auspiciadas por las instituciones indicadas en el inciso a de este numeral.
+c) Cuando se trate de asuntos personales, de los de su cónyuge o su compañero (si convive en unión libre, comprobable mediante declaración jurada ante notario público o autoridad competente), ascendientes y descendientes hasta el tercer grado de consanguinidad o afinidad; siempre que no exista interés lucrativo por parte del funcionario.
+d) Para los efectos anteriores, el servidor con la debida antelación debe solicitar por escrito y recibir la autorización del Alcalde Municipal, para acogerse a las excepciones indicadas, señalando el tipo de objetivo de la presentación del servicio y ubicación; y esperar su respuesta.

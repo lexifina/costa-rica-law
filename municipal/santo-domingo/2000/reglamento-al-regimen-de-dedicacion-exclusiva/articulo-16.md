@@ -1,0 +1,1 @@
+Artículo 16.—El Alcalde Municipal verificará cuando lo consideré pertinente, de conformidad con los procedimientos que al respecto establezca; el cumplimiento de una o varias obligaciones contraídas por los servidores acogidos al Régimen de Dedicación Exclusiva, iniciará el debido proceso.
