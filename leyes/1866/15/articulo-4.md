@@ -1,0 +1,1 @@
+Art 4°. - Se suprime el art 5° de la ley número 2 de 9 de Setiembre de 1862, y el Gobierno queda autorizado para disponer de la manera que crea más conveniente, el modo de custodiar y expender las estampillas.
