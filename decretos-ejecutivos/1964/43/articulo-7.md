@@ -1,0 +1,1 @@
+Artículo 7°-Cada dos años, contados a partir del otorgamiento de la Patente de Corredor Jurado, deberá el interesado comprobar ante el Ministerio de Economía y Hacienda la bondad de la garantía, o presentar constancia de haberse renovado ésta cuando se tratare de Póliza de Fidelidad extendida por el Instituto Nacional de Seguros.

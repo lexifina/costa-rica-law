@@ -1,0 +1,1 @@
+Artículo 6°-Los Corredores Jurados garantizarán su ejercicio con Póliza de Fidelidad del Instituto Nacional de Seguros, o con una fianza o cualquiera otra garantía satisfactoria, a juicio del Ministerio de Economía y Hacienda, por la suma de diez mil colones.

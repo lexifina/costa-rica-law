@@ -1,0 +1,1 @@
+Artículo 9°-Para los fines de este Reglamento, e! Instituto Nacional de Seguros deberá comunicar al Ministerio de Economía y Hacienda los casos en que las fianzas o garantías otorgadas por la Institución a favor de Corredores Jurados, han quedado caducas por cualquier motivo.

@@ -1,0 +1,1 @@
+Artículo 5°-Una vez hecha la publicación indicada, se tomará el juramento de ley al peticionario, y se ordenará la protocolización de lo resuelto ante un notario, para su inscripción en el Registro Mercantil, todo por cuenta de! interesado.

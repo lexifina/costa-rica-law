@@ -1,0 +1,1 @@
+Artículo 3°- Vencidos quince días desde la publicación del primer aviso y si no se hubiere presentado oposición, o presentada ésta, se hubiere evacuado toda la prueba pertinente, el Ministerio de Economía y Hacienda, con vista de lo actuado, resolverá si procede el otorgamiento de la Patente de Corredor Jurado.

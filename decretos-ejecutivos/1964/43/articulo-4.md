@@ -1,0 +1,1 @@
+Artículo 4°-Resuelta de conformidad la solicitud, el Ministerio de Economía y Hacienda procederá al bastanteo, aceptación y formalización de la fianza o garantía ofrecida, y dictará la resolución denengando u otorgando la Patente, la que deberá ser considerada, para su publicación en el Diario Oficial.
