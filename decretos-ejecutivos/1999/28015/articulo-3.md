@@ -1,0 +1,1 @@
+Artículo 3°—Para la estructuración de dicho Plan, la Administración Forestal del Estado deberá de conformar la Comisión de elaboración dentro de un plazo máximo de 15 días a partir de la vigencia del presente Decreto Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 4°—Como excepción a lo anterior y mientras dure la vigencia de este Decreto, solamente se tramitarán para Refugios de Vida Silvestre Privados y Mixtos, Reservas Forestales y Zonas Protectoras aquellas solicitudes que contengan la viabilidad ambiental de la Secretaría Técnica Nacional Ambiental.
