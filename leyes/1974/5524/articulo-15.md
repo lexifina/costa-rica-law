@@ -1,4 +1,4 @@
-Artículo 15.-El Director, Subdirector, Jefes, Oficiales y demás
+Artículo 15.- El Director, Subdirector, Jefes, Oficiales y demás
 funcionarios del Organismo no son recusables; pero deben separarse del
 conocimiento de los asuntos en que les corresponda intervenir, cuando los
 comprenda alguna causa de impedimento o recusación de las que señala la
