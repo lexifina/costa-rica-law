@@ -1,19 +1,22 @@
 (Derogado)
 N° 1929-A
-(Este decreto ejecutivo fue derogado por el artículo 1° del decreto ejecutivo N° 5974 del 4 de mayo de 1976)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERIA,
 Por cuanto:
 La ley N° 4686 de 3 de diciembre de 1970 aprobó el Acuerdo de Préstamo suscrito entre el Gobierno de la República de Costa Rica y el de los Estados Unidos de América por intermedio de la Agencia para el Desarrollo Internacional (AID);
-Para hacer efectivo el proyecto de "Tenencia de la Tierra", incluido dentro del programa de Desarrollo Agropecuario de tal préstamo, se hace necesario y obligatorio que las tierras afectas al mismo, sean traspasadas al Instituto de Tierras y Colonización para que esta Institución proceda a realizar los actos catastrales de Registro Público que se requieran para su titulación;
-La Junta Directiva del Instituto de Tierras y Colonización solicitó al Poder Ejecutivo que le traspasara los terrenos ubicados en los distritos 1°, 2° y 4° del cantón de Nandayure ; 1°,2°,3° y 5° del cantón de Nicoya y 4° del cantón de Santa Cruz, todos de la provincia de Guanacaste, en tanto no estén comprendidos dentro de las excepciones que indican las leyes números 2825 de 14 de octubre de 1961 y sus reformas y 4465 de 25 de noviembre de 1969, o se trate de terrenos de dominio privado o que por otras causas legales no pueda traspasarlos;
+Para hacer efectivo el proyecto de "Tenencia de la Tierra", incluido dentro del programa de Desarrollo Agropecuario de tal préstamo, se hace necesario y obligatorio que las tierras afectas al mismo, sean traspasadas al Instituto de Desarrollo Agrario (IDA)(*), para que esta Institución proceda a realizar los actos catastrales de Registro Público que se requieran para su titulación;
+(*) (Así modificada su denominación por el artículo 1° de la ley N° 6735 del 29 de marzo de 1982, que trasformó el Instituto de Tierras y Colonización (ITCO), en el Instituto de Desarrollo Agrario (IDA))
+La Junta Directiva del Instituto de Desarrollo Agrario (IDA)(*),solicitó al Poder Ejecutivo que le traspasara los terrenos ubicados en los distritos 1°, 2° y 4° del cantón de Nandayure ; 1°,2°,3° y 5° del cantón de Nicoya y 4° del cantón de Santa Cruz, todos de la provincia de Guanacaste, en tanto no estén comprendidos dentro de las excepciones que indican las leyes números 2825 de 14 de octubre de 1961 y sus reformas y 4465 de 25 de noviembre de 1969, o se trate de terrenos de dominio privado o que por otras causas legales no pueda traspasarlos;
+(*) (Así modificada su denominación por el artículo 1° de la ley N° 6735 del 29 de marzo de 1982, que trasformó el Instituto de Tierras y Colonización (ITCO), en el Instituto de Desarrollo Agrario (IDA))
 Dicho traspaso encuentra asidero legal en las disposiciones del artículo 13 de la Ley de Tierras y Colonización N° 2825 de 14 de octubre de 1961 y sus reformas y artículo 20 de la Ley Forestal N° 4465 de 25 de noviembre de 1969;
-La Dirección General Forestal del Ministerio de Agricultura y Ganadería considera los indicados terrenos como de aptitud agrícola y está conforme con su traspaso al ITCO para los fines ya indicados;
+La Dirección General Forestal del Ministerio de Agricultura y Ganadería considera los indicados terrenos como de aptitud agrícola y está conforme con su traspaso al IDA(*) para los fines ya indicados;
+(*) (Así modificada su denominación por el artículo 1° de la ley N° 6735 del 29 de marzo de 1982, que trasformó el Instituto de Tierras y Colonización (ITCO), en el Instituto de Desarrollo Agrario (IDA))
 Que es de interés nacional facilitar a los poseedores de tierras, que titule legalmente sus fundos para todos los fines económicos y legales consiguientes.
 Por tanto,
 En vista de las razones y citas legales expresadas,
 DECRETAN:
-Artículo 1°- Traspásanse al Instituto de Tierras y Colonización, en tanto no estén comprendidas dentro de las excepciones que indican las leyes números 2825 de 14 de octubre de 1961 y sus reformas y 4465 de 25 de noviembre de 1969; o se trata de terrenos de dominio privado o que por otras causas legales no pueda traspasarlos, los terrenos ubicados en la Península de Nicoya, distritos 1° y 2° del cantón de Nandayure; 1°, 2°, 3° y 5° del cantón de Nicoya y 4° del cantón Santa Cruz, comprendidos dentro de los siguientes puntos cuyas coordenadas están referidos al sistema geodésico nacional, así:
+Artículo 1°- Traspásanse al Instituto de Desarrollo Agrario (IDA), en tanto no estén comprendidas dentro de las excepciones que indican las leyes números 2825 de 14 de octubre de 1961 y sus reformas y 4465 de 25 de noviembre de 1969; o se trata de terrenos de dominio privado o que por otras causas legales no pueda traspasarlos, los terrenos ubicados en la Península de Nicoya, distritos 1° y 2° del cantón de Nandayure; 1°, 2°, 3° y 5° del cantón de Nicoya y 4° del cantón Santa Cruz, comprendidos dentro de los siguientes puntos cuyas coordenadas están referidos al sistema geodésico nacional, así:
+(*) (Así modificada su denominación por el artículo 1° de la ley N° 6735 del 29 de marzo de 1982, que trasformó el Instituto de Tierras y Colonización (ITCO), en el Instituto de Desarrollo Agrario (IDA))
 Puntos | Latitud | Longitud
 1 | 219.150 | 412.625
 (Se localiza en la desembocadura del estero troncal en el océano Pacífico).
