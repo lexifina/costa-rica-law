@@ -1,0 +1,1 @@
+Artículo 30.- Todos los actores como lazadores, toreros, montadores, alistadores, etc., que participen en las actividades que contempla este Reglamento, deberán firmar una declaración indicando que participan voluntariamente, y que exoneran a la comisión realizadora del evento de toda responsabilidad, en caso de que ocurra algún accidente.

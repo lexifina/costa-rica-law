@@ -1,0 +1,1 @@
+Artículo 12.-Los lazadores formarán un equipo de trabajo, y deberán de tomar las medidas necesarias a fin de evitar accidentes. Los toreros improvisados, no podrán interferir en los trabajos de los lazadores. La autoridad de policía debe velar por el cumplimiento estricto de esta norma.

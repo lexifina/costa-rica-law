@@ -1,0 +1,1 @@
+Artículo 8°-Todo el personal que permanezca en el ton1, deberá ser previamente acreditado por la Comisión, a excepción del personal de la Municipalidad que ejerza labores de inspección, Cruz Roja y autoridades policiales.

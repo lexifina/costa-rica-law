@@ -1,0 +1,1 @@
+Artículo 14.-La participación del torero cómico, debe ser sujeto a un guión autorizado por la Comisión, a fin que las actuaciones se ajusten a las buenas costumbres y valores morales de la sociedad costarricense.

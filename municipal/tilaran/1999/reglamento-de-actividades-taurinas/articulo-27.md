@@ -1,0 +1,1 @@
+Artículo 27.-En los casos en que las corridas sean para actores menores de edad, éstos deberán presentar a la autoridad una constancia extendida por sus padres o encargados y autenticada por el Delegado Distrital y Cantonal de la GAR del lugar.

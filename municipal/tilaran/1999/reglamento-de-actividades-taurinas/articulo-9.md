@@ -1,0 +1,1 @@
+Artículo 9°-La Comisión deberá designar un encargado del ton1, con conocimientos al respecto y cuyas funciones serán vigilar y colaborar con la autoridad a fin que se respeten las disposiciones que se expresan en este Reglamento. Especial atención debe dar al cuido de los animales.
