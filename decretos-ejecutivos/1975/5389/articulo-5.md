@@ -1,0 +1,1 @@
+Artículo 5°—La Dirección General Forestal dará el asesorarhiento necesario en los trabajos de deslinde, vigilancia y estudios tendientes al aprovechamiento de los recursos naturales.

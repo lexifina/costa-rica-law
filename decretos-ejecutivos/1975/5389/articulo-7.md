@@ -1,0 +1,1 @@
+Artículo 7°—Las fincas particulares y las reservas nacionales establecidas dentro de los límites de la reserva quedan automáticamente sometidas al Régimen Forestal. Las labores que se fueran a realizar en estas fincas, deben contar con la autorización escrita de la Dirección General Forestal.
