@@ -1,0 +1,2 @@
+Artículo 3°-El Ministerio de Economía y Hacienda dará trámite a la exoneración solamente cuando las Municipalidad hayan comprobado mediante certificación expedida por la Contraloría General de la república que cuentan con los recursos necesarios para cubrir la obligación autorizada por la presente ley.
+Casa Presidencial.-San José, a los treinta días del mes de setiembre de mil novecientos sesenta y cuatro.
