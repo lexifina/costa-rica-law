@@ -1,0 +1,1 @@
+Art. 2. Los enunciados vales o billetes nacionales serán reconocidos y cambiados en la administración por los nuevamente refredados, y de esta oficina pasarán al Ministerio de Relaciones por el órgano de la Intendencia general para que alli se oontramarquen con el sello de aquel despacho en el lugar que està prevenido, llevandose cueuta y razon de ellos.
