@@ -1,0 +1,1 @@
+Transitorio I.—Todas aquellas empresas gastronómicas que en un plazo de seis meses, a partir de la publicación de este Reglamento, no cuenten con los requisitos señalados en el artículo 3° , deberán recalificarse, pasando a la categoría "A" de Bar, determinada por la ley Nº 7633, con el horario correspondiente.
