@@ -71,7 +71,8 @@ ZPQ.5: En el lote 2.
 E.3. Usos permitidos: Se permite el desarrollo de proyectos comunales de reforestación y ornamentación, así como obras de infraestructura que permitan el mejoramiento de la canalización, represado y contención, previo estudio aprobado por la Dirección General Forestal.
 E.4. Usos condicionales: Se pueden desarrollar senderos peatonales y sitios aislados para estar, previo estudio aprobado por la Dirección General Forestal.
 E.5. Usos conflictivos: En esta área no deben desarrollarse actividades pesadas ni edificaciones permanentes. Tampoco se permite la tala de árboles y plantas, ni la siembra de especies exóticas.
-E.6. Concesión: En la zona de protección de quebradas no se dan concesiones y todos los concesionarios deben hacerse responsables del mantenimiento, conservación, limpieza y la funcionalidad de estas zonas en conjunto con la Municipalidad.
+E.6. Concesión:Estás áreas se darán en concesión a las personas físicas o jurídicas que así lo soliciten siempre y cuando se ajusten a los requisitos citados en el presente reglamento y de acuerdo con lo establecido en la Ley N° 6043 y su Reglamento.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 88 de 12 de abril de 2003, publicada en La Gaceta N° 151 de 07 de agosto de 2003.)
 F. ZONA RESIDENCIAL RECREATIVA (ZRR):
 F.1. Propósito: Permitir la recreación, esparcimiento y vivienda temporal a los adjudicatarios de los terrenos, con capacidad media de carga.
 Ocupa 14 603,45 m² y representa un 6,68% de la zona restringida.
@@ -344,5 +345,26 @@ A. La instalación de actividades en edificios ya existentes que implique un uso
 B. La Municipalidad de Puntarenas suspenderá toda obra que se ejecute en contra de la zonificación, pudiendo disponer para ello del auxilio de la Fuerza Pública.
 C. Se aplicarán además, todas las sanciones civiles y penales contempladas en las leyes correspondientes. Serán acreedores a dichas sanciones, tanto los infractores como los funcionarios responsables del incumplimiento de este reglamento que consienten en la violación del mismo.
 5.7. Modificación del Reglamento y vigencia: Las modificaciones y variantes que se deseen introducir al presente reglamento, se someterá al criterio técnico del ICT y la tramitación prevista en el artículo 17 de la Ley de Planificación Urbana Nº 4240 del 15 de noviembre de 1968, a solicitud expresa del gobierno local.
+M. Zona de protección de manglar (ZPM)
+M.1. Propósito: Garantizar los objetivos establecidos en el decreto de la creación de zonas de protección a los bosques de manglares.
+M.2. Localización: Zona denominada con las siglas ZPM según mapa Nº 5, es una franja que se extiende desde el mojón número 503 + 5 m al mojón 521 - 22 m.
+M.3. Usos permitidos: Protección y conservación.
+M.4. Usos condicionales y conflictivos: Los establecidos por la Ley Forestal Nº 7174 Artículo 32, del 16 de julio de 1990 (Declaratoria de los bosques de Manglar como Patrimonio Forestal del Estado) y los establecidos en el Decreto Ejecutivo Nº 22550 de Humedales - MIRENEM.
+M.5. Concesiones: Estas áreas se darán en concesión a las personas físicas o jurídicas que así lo soliciten siempre y cuando se ajusten a los requisitos citados en el presente reglamento y de acuerdo con lo establecido en la Ley N° 6043 y su reglamento.
+Los cambios solicitados se indican en la lámina N° 8, los cambios se reflejan en el cuadro de áreas del Plan Regulador de la siguiente manera.
+Cobertura de Zonas Plan Regulador Santa Teresa
+Zona Metros2 Área %
+ZC Zona Comercial 20 803.29 0.95
+ZCa Zona de Campamento 1 760.80 0.80
+ZPa Zona de Parque 2 522.08 1.15
+ZPQ Zona de Protección de Quebradas 20 122.55 9.18
+ZRR Zona Residencial Recreativa 14 603.45 6.66
+ZRbd Zona Residencial baja densidad 84 590.08 38.60
+ZSB Zona de Servicios Básicos 454.06 0.23
+ZH Zona Hotelera 16 791.40 7.66
+ZP Zona de Protección 72 396.60 33.04
+ZPM Zona Protección del Manglar 3 791 1.73
+Total 219 148.59 100.00
+(Así AMPLIADO por la Sesión Ordinaria N° 88 de 12 de abril de 2003, publicada en La Gaceta N° 151 de 07 de agosto de 2003, la cual adicionó el punto M al presente artículo)
 Rige a partir de su publicación en el Diario Oficial y queda derogada toda disposición municipal anterior que se oponga a sus normas.
 Puntarenas, 4 de enero del 2000.—Marco A. Campos Bermúdez, Jefe a.i., del Departamento de Arriendos.—1 vez.—(13088
