@@ -13,3 +13,4 @@ MLOSCHILES: Reglamento para Uso de Vehículos Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-06-16 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
