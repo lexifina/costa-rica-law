@@ -1,1 +1,1 @@
-Artículo 3º.- Corresponde también al Colegio fijar y colectar el impuesto que pagará todo establecimiento farmacéutico: droguerías, boticas o farmacias, botiquines, laboratorios químicos y farmacéuticos, depósitos de especialidades farmacéuticas, tanto de uso humano como veterinario y cualesquiera otros establecimientos similares, conforme a una tarifa que requerirá la aprobación del Poder Ejecutivo.
+Artículo 3º.- (Anulado mediante resolución de la Sala Constitucional N° 03477del 10 de julio de 1976)
