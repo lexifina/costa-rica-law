@@ -15,3 +15,4 @@ Reglamento Interno Junta Directiva
 | --- | --- | --- |
 | 1 | 1994-05-05 | la propia norma |
 | 2 | 1996-09-17 | Reglamento 1896 (1996-09-17) |
+| 3 | 1998-05-20 | Reglamento 2000 (1998-05-20) |
