@@ -1,0 +1,1 @@
+Artículo 13.—Transporte de electores. En materia de transporte de electores en la segunda vuelta regirá lo dispuesto en los transitorios segundos de los artículos 85 bis y 177 del Código Electoral, según fueron interpretados por la resolución del Tribunal Supremo de Elecciones N° 2753-E-2001 de las 14,00 horas del 21 de diciembre del 2001.

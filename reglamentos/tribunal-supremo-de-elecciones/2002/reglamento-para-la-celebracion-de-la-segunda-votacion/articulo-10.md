@@ -1,0 +1,2 @@
+Artículo 10.—Regulación de las encuestas. Las empresas que presten servicios de propaganda y las dedicadas a elaborar encuestas y sondeos de opinión de carácter político-electoral para esta etapa del proceso, serán las mismas registradas ante este Tribunal para las votaciones del 3 de febrero.
+El 4 de abril será el último día para difundir o publicar parcial o totalmente encuestas relativas al proceso electoral.

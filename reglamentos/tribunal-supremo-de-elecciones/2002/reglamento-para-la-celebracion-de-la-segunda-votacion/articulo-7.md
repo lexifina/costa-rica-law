@@ -1,0 +1,1 @@
+Artículo 7º—Ubicación en la papeleta. Los partidos políticos que participarán en la segunda vuelta, mantendrán el orden de prelación en la papeleta de acuerdo al sorteo que se realizó para la votación del 3 de febrero.

@@ -1,0 +1,1 @@
+Artículo 17.—Régimen jurídico aplicable. En todos los aspectos no regulados expresamente en este reglamento, regirá lo dispuesto en el Código Electoral, reglamentos y directrices vigentes en materia electoral, cuyas normas se aplicarán extensivamente a la celebración de la segunda vuelta.

@@ -1,0 +1,1 @@
+Artículo 16.—Declaratoria de elección. El escrutinio definitivo de las votaciones del 7 de abril del 2002 y la respectiva declaratoria de elección, deberán producirse dentro de los quince días hábiles siguientes.

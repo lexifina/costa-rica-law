@@ -1,0 +1,1 @@
+Artículo 15.—Clubes políticos. Únicamente los partidos políticos que participan en la segunda vuelta electoral podrán solicitar la inscripción de nuevos locales. Estas solicitudes podrán presentarse hasta el 15 de marzo del año en curso.

@@ -1,0 +1,1 @@
+Artículo 2º—Padrón Electoral. La lista de electores será la misma que rigió para la votación del 3 de febrero del 2002. Se reimprimirá el mismo padrón registro utilizado ese día, mediante el mecanismo que determine el Departamento de Informática.

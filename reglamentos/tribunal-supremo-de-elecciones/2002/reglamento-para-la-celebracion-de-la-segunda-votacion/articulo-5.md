@@ -1,0 +1,2 @@
+Artículo 5º—Acreditación de fiscales de los partidos políticos. La acreditación de fiscales de todos los partidos políticos que hayan participado en las votaciones del 3 de febrero del 2002, se tiene por prorrogada para efectos de la segunda vuelta.
+Los partidos políticos podrán, si lo tienen a bien y hasta el 15 de marzo del 2002, solicitar al Tribunal la substitución de los fiscales e instar la acreditación de aquellos cuyo nombramiento hubieren omitido con anterioridad. En la tramitación se dará prioridad a los partidos que participen en la segunda vuelta.

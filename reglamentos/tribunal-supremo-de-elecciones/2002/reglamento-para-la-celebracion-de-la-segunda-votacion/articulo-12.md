@@ -1,0 +1,1 @@
+Artículo 12.—Procedimiento de votación. Las directrices contenidas en el Decreto N° 20-2001, publicado en La Gaceta Nº 237 del 10 de diciembre del 2001, en cuanto al procedimiento de votación correspondiente a las votaciones del 3 de febrero, tendrán plena vigencia para la celebración de la segunda vuelta electoral.

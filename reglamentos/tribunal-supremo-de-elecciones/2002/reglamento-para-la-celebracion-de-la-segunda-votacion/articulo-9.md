@@ -1,0 +1,4 @@
+Artículo 9º—Propaganda electoral. El 4 de abril del 2002 será el último día para que los partidos políticos realicen propaganda electoral, incluidas las manifestaciones, reuniones y desfiles en vías o lugares públicos.
+La celebración de estas últimas se regirá, en lo que les resulte aplicable, por lo dispuesto en los artículo 79 a 84 del Código Electoral y en el Decreto Nº 10-2001 del Tribunal Supremo de Elecciones.
+Los partidos políticos participantes en la segunda vuelta electoral deberán solicitar los permisos para la celebración de reuniones o mítines políticos ante la Inspección Electoral, dentro de los cinco días hábiles siguientes a la fecha en que el Tribunal les comunique la celebración de la segunda vuelta.
+No podrán verificarse manifestaciones, reuniones ni desfiles en sitios públicos los días domingo 24, jueves 28, viernes 29, sábado 30 y domingo 31 de marzo del 2002, con motivo de la Semana Santa.

@@ -1,0 +1,1 @@
+Artículo 3º—Término de validez de la cédula de identidad. Las cédulas de identidad, cuyo vencimiento haya ocurrido el 3 de febrero del año 2001 o en fecha posterior conservarán su validez, únicamente para efectos electorales, hasta el 7 de abril del año 2002.

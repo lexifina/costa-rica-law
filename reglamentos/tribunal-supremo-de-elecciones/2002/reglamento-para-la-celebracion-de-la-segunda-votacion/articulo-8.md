@@ -1,0 +1,1 @@
+Artículo 8º—Sobre las difusiones del Poder Ejecutivo, la administración descentralizada y las empresas del Estado. Por tratarse de un proceso electoral no concluido, la prohibición contemplada en el inciso j) del artículo 85 del Código Electoral se mantiene vigente ininterrumpidamente hasta el 7 de abril del 2002, inclusive.
