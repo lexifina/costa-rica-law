@@ -1,0 +1,1 @@
+Art. 3. Los habitantes de este departamento que tuvieren armas ó cualesquiera otros elementos bélicos deberán presentarlos dentro del perentorio término de cuatro dias al Comandante de la fuerza que ha de quedar en esta plaza, con el único óbjeto de recibirlos.
