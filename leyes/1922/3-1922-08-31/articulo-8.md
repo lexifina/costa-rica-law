@@ -1,5 +1,3 @@
-Artículo 8º.- Los autores, empresarios, administradores, comisionados
-o agentes de lotería, no autorizada, incurrirán en una multa de cincuenta
-a doscientos colones.
-A los objetos puestos en lotería es aplicable lo dispuesto en el
-artículo 7º.
+Artículo 8º.- DEROGADO.
+( Derogado por el artículo 15 de la ley No. 1387 del 21 de noviembre de
+1951 ).
