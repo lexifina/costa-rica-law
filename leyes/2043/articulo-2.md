@@ -1,0 +1,1 @@
+Articulo 2º—Para el pago de la obligación anterior, el Poder Ejecutivo incluirá en los presupuestos de los próximos ejercicios fiscales las respectivas cuotas anuales, conforme a los términos fijados en este Contrato.
