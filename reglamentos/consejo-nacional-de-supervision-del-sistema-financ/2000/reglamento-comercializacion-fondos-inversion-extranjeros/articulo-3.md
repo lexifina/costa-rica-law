@@ -1,1 +1,0 @@
-Artículo 2º—Sujetos autorizados. La comercialización de las participaciones de fondos de inversión extranjeros autorizados de conformidad con este Reglamento únicamente podrá ser realizada por las sociedades administradoras de fondos de inversión.
