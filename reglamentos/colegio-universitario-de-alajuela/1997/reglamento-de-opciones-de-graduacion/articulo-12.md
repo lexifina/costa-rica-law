@@ -1,0 +1,1 @@
+Artículo 12.— Cuando el estudiante repruebe su Opción por segunda vez o no se presente a la misma, deberá esperar un período de un año para tener acceso a una nueva posibilidad de matrícula y a la presentación de la opción.

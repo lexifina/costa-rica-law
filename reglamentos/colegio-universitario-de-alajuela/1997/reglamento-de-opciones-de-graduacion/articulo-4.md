@@ -1,0 +1,1 @@
+Artículo 4°—El estudiante podrá solicitar la Opción de Graduación, después de haber aprobado todos los cursos del plan curricular, o bien haber matriculado paralelamente aquellas materias correspondientes al último ciclo de su carrera, y después de obtener el Certificado de Asistencia al Taller de Ética Profesional, o de llevarlo en forma simultánea.

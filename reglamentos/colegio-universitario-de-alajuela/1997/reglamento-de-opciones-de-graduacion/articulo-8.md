@@ -1,0 +1,2 @@
+Artículo 8°—El proceso de práctica finaliza con el cumplimiento de al menos 240 horas de labor, a las que se le dará seguimiento por medio de las fórmulas de evaluación diseñadas para tal fin. El portafolio o proyecto concluye con la exposición visual y oral del informe que debe rendir el estudiante. La prueba comprensiva concluye con la presentación oral ante un jurado calificador, o con la ejecución de la prueba escrita elaborada para ello.
+En todos los casos, la nota mínima de aprobación será de siete (7).
