@@ -1,0 +1,1 @@
+Artículo 2°.- La estimación de la faja de terreno es de 6.300.00 (seis mil trescientos colones), que corresponde al total de la suma a pagar de conformidad con avalúo realizado por el Ministerio de Obras Públicas y Transportes.
