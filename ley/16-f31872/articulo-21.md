@@ -1,0 +1,2 @@
+Artículo 21.—Cada seis meses la Directiva del Banco presentará al Ejecutivo un estado de las operaciones de esta sección del Banco y lo publicará en el periódico oficial.
+Al principio de cada año dicha Directiva pasará al Gobierno un informe detallado de todas las operaciones del Banco durante el año precedente, y de los resultados obtenidos, y que dé a conocer en toda su extensión la situación en que se encuentra.

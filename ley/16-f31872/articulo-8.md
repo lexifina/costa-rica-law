@@ -1,0 +1,1 @@
+Artículo 8°. — Sin perjuicio de la amortización ordinaria que dispone el artículo 6°., el Banco tiene derecho de amortizar también a la par, empleando el sorteo, la cantidad de bonos que acordare la Directiva del mismo.

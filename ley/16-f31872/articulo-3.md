@@ -1,0 +1,3 @@
+Artículo 3°.—Los bonos hipotecarios se emitirán formando serie. Pertenecen a una misma serie los que ganen un mismo interés y tengan asignado un mismo fondo de amortización. Pueden emitirse bonos hipotecarios pagaderos en moneda nacional de las denominaciones de 100, 200, 500 ó 1000 colones. También pueden emitirse pagaderos en moneda extranjera, de las denominaciones de 100, 200, 500 ó 1000 pesos fuertes, aun cuando la unidad adoptada sea de mayor o de menor valor que el peso.
+Serán nominales o al portador, a elección del deudor hipotecario, y trasferibles o negociables.
+Los bonos hipotecarios nominales se trasferirán por endoso; pero el endoso sólo importará la garantía de la existencia del crédito al tiempo del traspaso, salvo estipulación en contrario.

@@ -1,0 +1,1 @@
+Artículo 14.—Si los inmuebles hipotecarios experimentaren desmejoras o sufrieren daños de modo que no ofrezcan suficiente garantía para la seguridad del Banco, tiene éste el derecho de exigir el reembolso de su acreencia. Cuando las pérdidas o desmejoras del inmueble no puedan imputarse a culpa del deudor, el Banco admitirá nueva garantía o aumento de garantía para su crédito.
