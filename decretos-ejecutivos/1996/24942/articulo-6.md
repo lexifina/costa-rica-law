@@ -1,5 +1,0 @@
-Artículo 6º-Rige a partir de su publicación.
-Dado en la Presidencia de la República.-San José, a los treinta días
-del mes de enero de mil novecientos noventa y seis.
-JOSE MARIA FIGUERES OLSEN.-El Primer Vicepresidente y Ministro de la
-Presidencia, Rodrigo Oreamuno Blanco.-1 vez.-C-50.-(6672).
