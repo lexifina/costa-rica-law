@@ -14,3 +14,4 @@ Prorroga Emergencia Nacional Suministro de Agua Potable
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-07-23 | la propia norma |
+| 2 | 1984-07-23 | SINALEVI (sin norma nombrada) |
