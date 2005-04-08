@@ -1,0 +1,11 @@
+Nº 32296
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA Y GRACIA
+Con fundamento en lo dispuesto en los artículos 140, incisos 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones y en los artículos 27 y siguientes de su Reglamento.
+Considerando:
+I.—Que el artículo 32 de la Ley de Asociaciones número 218 del ocho de agosto de mil novecientos treinta y nueve y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado y que por ello contribuyan a solventar una necesidad social.
+II.—Que la Asociación Cámara de Ganaderos Unidos del Sur, cédula de persona jurídica número 3-002-056573, se inscribió en el Registro de Asociaciones del Registro Público desde el día veintiocho de enero de mil novecientos setenta y nueve, bajo el Expediente Nº 737.
+III.—Que los fines que persigue la Asociación, según el artículo cuarto de sus Estatutos, son: "... Artículo Cuarto: a) Trabajar por la organización y efectivo desarrollo de la ganadería. b) Propiciar el mejor conocimiento y contacto entre los ganaderos del país; c) Velar por la protección y defensa de sus miembros procurar las medidas que conduzcan al mejor desenvolvimiento de la ganadería costarricense perfeccionando los conocimientos técnicos y la elevación en todos los campos de sus asociados dentro de las normas equitativas de justicia; d) intervenir a solicitud de sus asociados en los asuntos que afecten directamente y en particular en relación a la ganadería del país; e) Velar por que las leyes que se promulguen no sean perjudiciales al desenvolvimiento de la ganadería nacional; f) Trata que la política económica seguida por el Estado sea lo más conveniente a los intereses de la economía nacional, para ello podrá cooperar con los organismos respectivos y procurar que sus asociados y los funcionarios públicos cumplan y respeten las leyes.
+IV.—Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado Costarricense. Por tanto:
+DECRETAN:
+Artículo 1º—Declárese de Utilidad Pública para los intereses del Estado a la Asociación Cámara de Ganaderos Unidos del Sur, cédula de persona jurídica número 3-002-056573.
