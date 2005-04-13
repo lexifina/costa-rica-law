@@ -1,0 +1,1 @@
+Artículo 12.—Los vehículos destinados a la recolección y transporte de los desechos ordinarios, sean estos municipales o contratados por esta, deberán cumplir con lo dispuesto en el artículo 29 del Reglamento de Manejo de Basuras y el Decreto Ejecutivo 25178-S del 13 de mayo de 1996 o bien deberán ser inspeccionados y avalados por la Municipalidad.

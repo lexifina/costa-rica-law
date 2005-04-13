@@ -1,0 +1,1 @@
+Artículo 20.—La Municipalidad establecerá los días de recolección para los desechos reciclajes como lo son cartón, plástico, vidrio y latas, fuera del horario normal de recolección de basura no reciclable.

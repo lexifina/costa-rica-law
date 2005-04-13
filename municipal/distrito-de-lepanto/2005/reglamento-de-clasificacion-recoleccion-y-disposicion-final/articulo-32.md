@@ -1,0 +1,1 @@
+Artículo 32.—Para el funcionamiento de todo proyecto de Relleno Sanitario, independiente de su tipo o tamaño, la Dirección de Protección al Ambiente Humano del Ministerio de Salud deberá emitir un permiso de funcionamiento.

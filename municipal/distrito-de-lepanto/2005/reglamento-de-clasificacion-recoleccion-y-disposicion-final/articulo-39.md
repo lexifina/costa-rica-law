@@ -1,0 +1,1 @@
+Artículo 39.—Se establece como promedio de habitantes por unidad habitacional en el distrito de Lepanto la cifra de 3.7 personas (Dato tomado de los resultados generales del censo nacional de población y vivienda del 2000).

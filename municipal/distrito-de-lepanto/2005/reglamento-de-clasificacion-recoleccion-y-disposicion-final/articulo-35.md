@@ -1,0 +1,2 @@
+Artículo 35.—La Municipalidad de oficio o a petición del contribuyente podrá realizar un estudio específico para cualquier usuario del servicio, para determinar la cantidad de desechos ordinarios generados, si es que la Municipalidad o el contribuyente consideran que la generación de este es diferente a la establecida en el rango de generación donde se clasificó originalmente.
+En este estudio se deberán realizar cuando menos 3 muestreos durante el trimestre, sin que exista la necesidad que el usuario se entere de la fecha en que se realizarán estos muestreos.

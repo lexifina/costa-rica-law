@@ -1,0 +1,1 @@
+Artículo 45.—Se toma como tarifa comercial 3, la tasa a aplicar a todo aquel lugar patentado que cumpla con lo dispuesto en el artículo 41 inciso d del presente reglamento y en donde se estime una generación de basura superior a los 501 kilogramos por semana. En la tarifa comercial 3 el factor de ponderación será estimado en 10.0.

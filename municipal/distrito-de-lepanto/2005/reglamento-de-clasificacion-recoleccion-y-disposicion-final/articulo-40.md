@@ -1,0 +1,1 @@
+Artículo 40.—De la aplicación de los factores anteriores, se obtiene como resultado una generación de desechos ordinarios por unidad residencial de 14. kilogramos por semana como el promedio en el distrito de Lepanto.

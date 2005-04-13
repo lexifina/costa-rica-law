@@ -1,0 +1,1 @@
+Artículo 46.—Se toma como tarifa Institucional la tasa a aplicar a todo aquel contribuyente que cumpla con lo dispuesto en el artículo 41 inciso e del presente reglamento. En la tarifa Institucional el factor de ponderación será estimado en 1.5.

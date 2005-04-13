@@ -1,0 +1,1 @@
+Artículo 17.—Los edificios de uso multifamiliar o de otro tipo, y los usuarios cuyas viviendas tengan frente a servidumbre de paso, en donde por las condiciones de acceso no se presta el servicio de recolección de basura directamente, estarán obligadas a tener una estructura para el almacenamiento colectivo de desechos, ubicados dentro de la propiedad próxima a la acera o calle.
