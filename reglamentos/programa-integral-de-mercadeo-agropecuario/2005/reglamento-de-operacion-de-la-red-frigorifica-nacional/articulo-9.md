@@ -1,0 +1,1 @@
+Artículo 9°—Recursos: Las decisiones y disposiciones de la Administración y del Gerente General tendrán los siguientes recursos: de revocatoria a presentar por escrito en un término de tres días hábiles después de ocurrido el hecho y de apelación ante el Consejo Directivo a presentar por escrito en un término de cinco días hábiles después del mismo hecho.

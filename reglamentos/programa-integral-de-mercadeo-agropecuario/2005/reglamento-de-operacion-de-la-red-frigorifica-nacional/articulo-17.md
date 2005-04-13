@@ -1,0 +1,1 @@
+Artículo 17.—Registro de usuarios permanentes y ocasionales: La Administración llevará un prontuario de usuarios donde conste su nombre, domicilio, espacios contratados, referencia al contrato de derecho de uso y record de pagos. Asimismo registrará el nombre de las personas autorizadas por el usuario para el retiro de mercadería.

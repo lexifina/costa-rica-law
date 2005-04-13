@@ -1,0 +1,2 @@
+Artículo 12.—Concesión de derechos de uso: La concesión de derechos de uso de espacios de cámaras frigoríficas a los usuarios ocasionales se concretará mediante el pago de las tarifas diarias, por kilo o volumen, que en forma genérica establezca el Consejo Directivo, efectuadas en la forma y condiciones que se dispongan.
+El Consejo Directivo es el único organismo autorizado para establecer variaciones a las tarifas, formas y condiciones de pago.

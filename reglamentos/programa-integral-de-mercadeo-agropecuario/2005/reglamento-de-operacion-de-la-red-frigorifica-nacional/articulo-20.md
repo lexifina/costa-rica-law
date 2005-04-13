@@ -1,0 +1,2 @@
+Artículo 20.—Fallecimiento del usuario o cancelación de personería: El contrato de derecho de uso se rescinde automáticamente con la muerte del usuario o la cancelación de la personería jurídica contratante.
+Los productos podrán ser retirados en su caso por la persona que el causante hubiera dejado autorizada en vida, y en caso de la cancelación de personería por la última persona autorizada. Todo lo anterior sujeto al pago del Canon.
