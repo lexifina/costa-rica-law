@@ -1,7 +1,3 @@
-Artículo 23.- Antes de imponer corrección alguna, el Presidente por
-sí o por medio del Fiscal, o en asocio de éste, levantará una información,
-recibirá las pruebas necesarias y luego dará una audiencia de ocho días,
-por lo menos, al interesado, para que presente sus pruebas o alegaciones
-de descargo. Este término podrá ampliarse cuando fuere necesario a juicio
-de la Junta Directiva, la cual dictará su resolución dentro de los treinta
-días siguientes al vencimiento del término concedido al interesado.
+Artículo 23.—Recibida una denuncia, la Junta Directiva la trasladará al fiscal de la Junta Directiva, para que este proceda a presentar, dentro de los ochos días hábiles siguientes, un informe debidamente razonado a la Junta Directiva, en el que deberá recomendar pasar el caso al Tribunal de Honor o archivar el expediente.
+Este informe será necesario aún en aquellos casos donde la denuncia sea de oficio. La Junta Directiva tendrá diez días hábiles para trasladar el asunto al Tribunal de Honor o archivarlo. Contra la resolución que ordene archivar el caso, cabrá recurso de revocatoria y apelación ante la Asamblea General.
+( Así reformado por el artículo 1° de la Ley N° 8437 del 13 de abril del 2005)

@@ -1,9 +1,7 @@
-Artículo 21.- Las sanciones disciplinarias que puede imponer la Junta
-Directiva de acuerdo con el artículo anterior, serán:
-a) Advertencia;
-b) Amonestación;
-c) Multa de diez (¢ 10.00) hasta doscientos colones (¢ 200.00); y
-d) Suspensión temporal del derecho de ejercer la profesión.
-La Junta directiva decidirá en cada caso la sanción a aplicar, pero
-cuando se trate de faltas o delitos expresamente penados por las leyes no
-se aplicará la sanción del inciso c) de este artículo.
+Artículo 21.—El Tribunal de Honor, una vez realizada la investigación del caso y comprobada la infracción a la presente Ley o al Código de Ética, respetando el debido proceso de la Administración Pública, podrá recomendar alguna de las siguientes sanciones, atendiendo a la gravedad de la falta:
+a) Amonestación escrita.
+b) Suspensión de una semana a tres meses.
+c) Suspensión de tres a seis meses.
+d) Suspensión de uno a tres años.
+En los casos de los incisos b), c), y d), la sanción deberá publicarse al menos una vez en La Gaceta.
+( Así reformado por el artículo 1° de la ley N° 8437 del 13 de abril del 2005)
