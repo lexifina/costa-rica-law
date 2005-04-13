@@ -1,0 +1,1 @@
+Artículo 5°—Se establecerán contratos independientes con aquellos propietarios de inmuebles cuyo Volumen de basura generado exceda los límites indicados en el artículo 4°. El precio que se establezca en dichos contratos será el resultado de los estudios que para este efecto se realicen. Y en el contrato se indicará la forma de pago de este servicio.

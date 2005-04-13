@@ -1,0 +1,1 @@
+Artículo 11.—Los beneficiarios del servicio de recolección de basura, deberán comunicar a la municipalidad los traspasos, ventas, segregaciones y mutaciones de los inmuebles, ya que la morosidad por concepto de tributos constituye hipoteca legal preferentemente sobre los respectivos inmuebles.

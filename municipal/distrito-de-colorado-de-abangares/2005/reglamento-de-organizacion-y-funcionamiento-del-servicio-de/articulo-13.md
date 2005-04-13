@@ -1,0 +1,1 @@
+Artículo 13.—Los patentados de comercios e industrias deberán pagar el servicio de recolección de basura, la falta de pago de más de dos trimestres del servicio dará lugar a proceder de inmediato con el trámite de cancelación de la patente.

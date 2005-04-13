@@ -1,0 +1,1 @@
+Artículo 8°—Se prohibe la recolección de cualquier desecho que en una u otra forma atenta contra la integridad física de los funcionarios en esa actividad y aquellos que puedan causar algún desperfecto a las unidades recolectoras.
