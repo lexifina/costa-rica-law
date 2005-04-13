@@ -1,0 +1,16 @@
+DIRECTRIZ
+MINISTERIO DE TRABAJO Y SEGURIDAD SOCIAL
+Nº 002-2005
+EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso y ejecución de las potestades conferidas por el artículo 141 de la Constitución Política, en concordancia con los artículos 25.2, 28, 59, 83, 102, 103 y 107 de la Ley General de la Administración Pública y 1º, 2º, 15, 22 a 24 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social.
+Considerando:
+I.—Que la Ley General de Migración y Extranjería en su artículo 72 establece que los extranjeros admitidos o autorizados como "radicados o residentes temporales", podrán desarrollar actividades asalariadas o lucrativas por cuenta propia o en relación de dependencia solamente durante el período de su permanencia legal y en las actividades autorizadas por la Dirección General de Migración y Extranjería, previo informe favorable del Ministerio de Trabajo y Seguridad Social.
+II.—Que el artículo 36, inciso a), de la indicada ley señala que los científicos profesionales contratados por empresas o instituciones establecidas o que desarrollen actividades en el país, para efectuar trabajos de su especialidad se consideran como "radicados temporales".
+III.—Que el artículo 66 bis del Reglamento a la Ley General de Migración y Extranjera (Decreto Ejecutivo Nº 19010-G de 11 de mayo de 1989), dispone que la Dirección General de Migración y Extranjería, dentro de las facultades que le otorga la ley puede conceder permisos temporales de residencia a extranjeros que se encuentren en varios supuestos, dentro de los cuales están los profesionales y técnicos extranjeros altamente calificados en el área de su especialización, previo informe favorable del Ministerio de Trabajo y Seguridad Social.
+IV.—Que Costa Rica ha venido realizando esfuerzos por ordenar y controlar los movimientos migratorios, especialmente aquellos con fines de empleo.
+V.—Que se ha demostrado la dificultad de los profesionales costarricenses y extranjeros regularizados para obtener trabajo remunerado.
+VI.—Que tradicionalmente la mejor forma de progresar social y económicamente se ha logrado mediante la obtención de un título profesional, sin embargo desde hace algunos años, con el aumento del nivel educativo en algunos grupos de población, se observa un decrecimiento de las posibilidades de contratación laboral de dichos profesionales.
+VII.—Que actualmente existe un aumento de la cantidad de profesionales extranjeros que han migrado a Costa Rica, propiciando del desplazamiento de "mano de obra" nacional o extranjera regularizada, generando en consecuencia problemas de ocupación y acceso al mercado de trabajo en actividades profesionales. Por tanto:
+Se emiten las siguientes disposiciones de acatamiento obligatorio para los representantes de este Ministerio ante el Consejo Nacional de Migración, la Dirección Nacional de Empleo y la Unidad de Migraciones Laborales.
+Artículo 1º—Se ordena que en adelante las consultas que realice la Dirección General de Migración y Extranjería para otorgarle una residencia temporal o un permiso temporal a un profesional o técnico extranjero,
+altamente calificado en su área de especialización, sea analizada en forma rigurosa y profunda, para garantizar el mejor aprovechamiento del recurso humano existente en el país.

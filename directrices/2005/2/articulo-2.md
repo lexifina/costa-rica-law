@@ -1,0 +1,2 @@
+Artículo 2º—Los representantes del Ministerio de Trabajo y Seguridad Social ante el Consejo de Migración deben verificar que las residencias temporales que se otorguen a profesionales y técnicos extranjeros, estén debidamente autorizadas por estudios especializados que haya realizado en, al menos los últimos seis meses, la Unidad de Migraciones Laborales de la Dirección Nacional de Empleo del Ministerio de Trabajo y Seguridad Social.
+Emitida en el Despacho del Ministro.—San José, a los catorce días del mes de marzo del dos mil cinco.
