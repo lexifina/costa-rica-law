@@ -39,3 +39,4 @@ Directrices de política presupuestaria del 2005 para los ministerios, demás ó
 | 24 | 2005-03-08 | Decreto Ejecutivo 32283 (2005-03-08) |
 | 25 | 2005-04-05 | Decreto Ejecutivo 32299 (2005-04-05) |
 | 26 | 2005-04-05 | Decreto Ejecutivo 32345 (2005-04-05) |
+| 27 | 2005-04-13 | Decreto Ejecutivo 32336 (2005-04-13) |
