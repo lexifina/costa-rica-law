@@ -1,0 +1,1 @@
+Artículo 6°—Tarifa: El Concejo Municipal de Distrito de Colorado cobrará un impuesto del cinco por ciento (5%) sobre la base imponible definida en el artículo anterior, a todos los espectáculos públicos y de diversión no gratuitos.

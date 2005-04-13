@@ -1,0 +1,1 @@
+Artículo 14.—Los inspectores o fiscalizadores de este impuesto deberán realizar un informe final por cada actividad, el cual será presentado al Encargado de Cobro para los trámites de liquidación del impuesto.

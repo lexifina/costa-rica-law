@@ -1,0 +1,1 @@
+Artículo 3°—Hecho Generador. Constituye el hecho generador de la obligación tributaria, la presentación o desarrollo de toda clase de espectáculos públicos y de diversión no gratuitos, tales como: cines, teatros, circos, salones de bailes, discotecas, estadios, plazas de deportes públicas y privadas y todo espectáculo que se efectúe con motivo de festejos cívicos y patronales

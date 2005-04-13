@@ -1,0 +1,1 @@
+Artículo 12.—En el caso de Asociaciones de Desarrollo y comités afiliados, Iglesia Católica, se establece un monto fijo de ¢10.000,00 (diez mil colones) por concepto de este impuesto, monto que será actualizado anualmente. Las actividades de entradas a corridas de toros se les exonerará dicho impuesto.
