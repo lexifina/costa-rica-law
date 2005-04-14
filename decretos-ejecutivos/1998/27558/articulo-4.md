@@ -1,1 +1,1 @@
-Artículo 4°—Los representantes gubernamentales ante la Comisión son funcionarios de confianza y podrán ser removidos de sus cargos, en cualquier momento. Los representantes de las organizaciones de la Sociedad Civil indicados en el artículo 2° del inciso 5) al 9), serán designados por un período de cinco años. Con el fin de lograr que se renueve uno de estos miembros cada año, el primer periodo variará de uno a cinco años del inciso 5 al 9 correspondientemente.
+Artículo 4°— Este artículo fue DEROGADO por el artículo 1° del decreto ejecutivo N° 32330 del 14 de abril del 2005.

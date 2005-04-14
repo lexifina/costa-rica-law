@@ -18,5 +18,4 @@ REGLAMENTO A LA LEY DE DESARROLLO SOCIAL Y
 ASIGNACIONES FAMILIARES
 CAPITULO I
 De la comisión de solidaridad y desarrollo humano
-Artículo 1.- Crease la Comisión Nacional de Atención y Prevención de la Pobreza (CNAPP), adscrita al Ministerio de Trabajo y Seguridad Social, como órgano de desconcentración máxima para la elaboración, coordinación y fiscalización de la política social de programas destinados a la atención y prevención de la pobreza que se ejecuten con recursos del Fondo de Desarrollo Social y Asignaciones Familiares.
-(Así adicionado el texto del artículo anterior, mediante el artículo 1° del Decreto Ejecutivo No. 27794, de fecha 14 de abril de 1999.)
+Artículo 1.- Este artículo fue DEROGADO por el artículo 1° del decreto ejecutivo N° 32330 del 14 de abril del 2005
