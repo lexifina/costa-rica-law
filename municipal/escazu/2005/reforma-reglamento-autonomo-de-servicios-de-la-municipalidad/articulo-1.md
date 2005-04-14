@@ -1,0 +1,14 @@
+MUNICIPALIDAD DE ESCAZÚ
+SECRETARÍA DEL CONSEJO MUNICIPAL
+El Concejo Municipal del cantón de Escazú, en su sesión extraordinaria 65, acta 216, del 17 de marzo 2005, acordó: Acuerdo AC-107- 05: “Se acuerda con fundamento en las disposiciones de los artículos 11 y 169 de la Constitución Política, 11 de la Ley General de la Administración Pública, 13, inciso c), en relación con el 43 del Código Municipal, aprobar la reforma del artículo 49 bis del Reglamento Autónomo de Servicios de la Municipalidad de Escazú, para que diga:
+“Artículo 49 bis.—A los servidores municipales que por razones de salud, les prescriban las autoridades médicas, prótesis dentales, aparatos ortopédicos, y/o anteojos, exámenes de resonancia magnética, citrodencintometría ósea, tomografía axial computarizada, mamografía, gastroscopía y cualesquiera otro que requiera hacer una erogación económica, la Municipalidad les reconocerá del valor de dichos aparatos y exámenes, según la siguiente escala de los salarios brutos devengados, cuyos topes se incrementarán anualmente y de forma porcentual según los índices de precios del Banco Central de Costa Rica y la Dirección General de Estadística y Censo:
+De 13,876 hasta 200.000 colones 75%
+De 201.000 hasta 400.000 colones 50%
+De 400.001 en adelante 25%
+Dicha ayuda económica se otorgará una vez al año y siempre que sea por prescripción médica emitida por los médicos de la Caja Costarricense del Seguro Social. Los requisitos serán los siguientes:
+1. Presentar la boleta de “Solicitud de bienes y servicios” debidamente firmada y autorizada por el Jefe inmediato, al Departamento de Tesorería.
+2. Presentar la boleta de prescripción médica emitida por la CCSS.
+3. Presentar la cotización o factura pro forma del costo de las prótesis o exámenes en su caso, emitida por la empresa comercializadora de tales aparatos o exámenes.
+4. Presentar la boleta de autorización de deducción en planillas en caso de incumplimiento de la presentación de la factura cancelada en la fecha establecida, del servicio recibido.
+El Departamento de Contabilidad confeccionará los cheques a nombre del o la funcionaria beneficiada, y la Tesorería Municipal procederá a la entrega del mismo a éste o ésta según sea el caso, quedando éstos en la obligación de entregar la factura debidamente cancelada en un plazo de tres días hábiles a la Tesorería Municipal. El o la funcionaria que incumpla con lo indicado en el párrafo anterior, deberá devolver a la Municipalidad la suma desembolsada y no podrá volver a ser beneficiario/a del reconocimiento económico establecido en el presente artículo por espacio de los siguientes dos años”. Para la entrada en vigencia de la reforma aquí acordado, procédase a publicar la misma en el Diario Oficial La Gaceta”. Acuerdo firme.
+INSTITUCIONES DESCENTRALIZADAS
