@@ -1,0 +1,1 @@
+Artículo 16.—Utilización de otros medios de transporte: No se hará uso de vehículos de la Institución, cuando resulte más ventajoso realizar un viaje utilizando los servicios particulares o de transporte colectivo de personas y su uso no perjudique la efectividad y oportunidad del trabajo ajuicio del funcionario responsable encargado y la Coordinación de Servicios Generales.

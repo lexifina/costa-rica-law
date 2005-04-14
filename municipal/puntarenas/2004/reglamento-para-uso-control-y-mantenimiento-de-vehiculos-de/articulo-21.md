@@ -1,0 +1,1 @@
+Artículo 21.—Protección a choferes y conductores: La Municipalidad de Puntarenas otorgará como protección a sus choferes y conductores, durante el ejercicio de sus labores, las pólizas de riesgo del trabajo y las relativas a vehículos según las disposiciones de la Ley de Tránsito.
