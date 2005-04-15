@@ -1,0 +1,1 @@
+Artículo 5º—Plazo del nombramiento. El nombramiento interino de Auditor y Subauditor Interno, será por un plazo máximo improrrogable de doce meses, de manera que la Institución obligatoriamente deberá realizar todo el proceso de concurso público para llenar la plaza en propiedad dentro de ese período como máximo.

@@ -1,0 +1,2 @@
+Artículo 6º—De la comunicación del nombramiento a la Contraloría. De conformidad con el artículo 31 de la Ley General de Control Interno y los Lineamientos mencionados, se deberá comunicar a la Contraloría el nombramiento interino del Auditor o Subauditor Interno, a más tardar el primer día hábil del inicio de funciones en el respectivo cargo.
+Se deberá informar como mínimo: nombre y apellidos, grado académico, fecha y tipo de nombramiento (interino con el periodo de vigencia), jornada laboral y horario, y remitir copia del acuerdo o resolución respectiva.

@@ -1,0 +1,1 @@
+Artículo 20.—Del período de prueba. Una vez nombrado el Auditor o Subauditor Interno será sujeto a un periodo de prueba de tres meses. Concluido el periodo de prueba la Junta Directiva del INS procederá a comunicar a la Contraloría su conformidad o disconformidad con el desempeño del funcionario nombrado.

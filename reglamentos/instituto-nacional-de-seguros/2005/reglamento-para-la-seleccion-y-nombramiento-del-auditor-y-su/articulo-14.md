@@ -1,0 +1,2 @@
+Artículo 14.—Sobre la convocatoria para el proceso de evaluación. Las personas que cumplan con el perfil de la clase del puesto en concurso y cuyas ofertas hayan sido aceptadas, según lo establecido en los artículos 11° y 12° del presente Reglamento, recibirán la convocatoria para el proceso de evaluación.
+Las convocatorias para el proceso de evaluación deberán incluir el día, la hora, el lugar y el tipo de prueba que se realizará conforme lo establecido en el cartel.

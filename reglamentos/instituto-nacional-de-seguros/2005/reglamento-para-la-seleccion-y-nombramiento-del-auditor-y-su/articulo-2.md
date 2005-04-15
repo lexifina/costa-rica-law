@@ -1,0 +1,1 @@
+Artículo 2º—Requisitos de los puestos. Los requisitos y descripción de funciones para los cargos de Auditor y Subauditor Internos, serán los que se encuentran definidos en el Manual de Perfiles de Clase correspondientes a estos puestos, de acuerdo con los lineamientos mencionados en el artículo anterior.

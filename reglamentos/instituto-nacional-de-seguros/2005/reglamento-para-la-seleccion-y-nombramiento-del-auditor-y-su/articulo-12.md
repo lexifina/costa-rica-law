@@ -1,0 +1,1 @@
+Artículo 12.—Sobre la aclaración de las ofertas. Cuando una oferta presentada requiera aclaración sobre cuestiones susceptibles de ser subsanadas, se concederá un plazo de hasta cuatro días hábiles a partir de la fecha establecida para la recepción de ofertas a .n de que los interesados puedan completar su solicitud.

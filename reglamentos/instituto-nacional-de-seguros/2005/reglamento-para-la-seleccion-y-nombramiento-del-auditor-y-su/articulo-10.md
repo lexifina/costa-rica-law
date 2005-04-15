@@ -1,0 +1,1 @@
+Artículo 10.—Sobre el plazo para la presentación de ofertas. El plazo para la presentación de ofertas no podrá ser menor a ocho días naturales contados a partir del día siguiente a la publicación del aviso del concurso.
