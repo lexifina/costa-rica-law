@@ -1,0 +1,9 @@
+AJDIP/120-2005.—Puntarenas, a los once días del mes de marzo
+del dos mil cinco.
+Considerando:
+1º—Que para efectos de la celebración de las sesiones de Junta Directiva, requerimiento del quórum de funcionamiento y asistencia de los miembros propietarios, se reguló en el Reglamento Interno de Junta Directiva, en su artículo 2, inciso b), la obligación de los miembros de comunicar la inasistencia a las sesiones previo al inicio de las mismas.
+2º—Que aun cuando la regulación mencionada pretendió otorgar .exigibilidad a los miembros de la Junta para comunicar la inasistencia a las sesiones, la misma no ha otorgado certeza o seguridad en cuanto a la posible participación de los suplentes de un miembro propietario y su participación eventualmente en las sesiones de Junta Directiva. Situación que es menester corregir mediante la inclusión de un plazo mínimo para que los miembros comuniquen la inasistencia a las sesiones programadas.
+3º—Que en atención a la hora ordinaria de inicio de las sesiones, anteriormente la Junta Directiva había dispuesto otorgar autorización a miembros directivos específicos, para poder asistir a las sesiones de la Junta Directiva, con un retraso respecto del inicio de la sesión hasta de una hora, lo cual al día de hoy no se justi.ca y genera la misma incertidumbre planteada en el considerando anterior, resultando necesario derogar los acuerdos que establecieron dichas excepciones. Por tanto:
+SE ACUERDA:
+1º—Modificar el artículo 2, inciso b), del acuerdo AJDIP/022-2000, de enero del 2000, "Reglamento Interno de Junta Directiva", para que el mismo se lea de la siguiente manera:
+"b. Excusarse verbalmente por su inasistencia con no menos de veinticuatro horas antes del inicio de cada sesión. En todo caso el Director está en la obligación de formalizar de manera idóneo, la excusa correspondiente antes del inicio de la siguiente sesión ordinaria ante la Secretaría de la Junta Directiva".
