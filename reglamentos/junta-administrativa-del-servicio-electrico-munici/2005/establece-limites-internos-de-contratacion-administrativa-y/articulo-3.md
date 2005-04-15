@@ -1,0 +1,1 @@
+Artículo 3º—Corresponde al Proceso de Contratar Bienes y Servicios la tramitación y adjudicación de las contrataciones directas, sean estas compras locales o de importación. Corresponde al Coordinador de dicho proceso y al encargado de contrataciones, la firma de las órdenes de compra en conjunto.

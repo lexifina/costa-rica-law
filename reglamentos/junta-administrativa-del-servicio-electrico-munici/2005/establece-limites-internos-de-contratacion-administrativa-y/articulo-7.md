@@ -1,0 +1,1 @@
+Artículo 7º—Igualmente corresponderá a la Junta Directiva la aprobación de los actos de adjudicación de cualesquiera otros procedimientos concursales dispuestos por la Ley de Contratación Administrativa.

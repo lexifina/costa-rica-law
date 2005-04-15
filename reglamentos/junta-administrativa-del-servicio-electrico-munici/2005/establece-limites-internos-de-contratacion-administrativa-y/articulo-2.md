@@ -1,0 +1,1 @@
+Artículo 2º—Para el inicio de los diferentes procesos adquisitivos, el Proceso Contratar Bienes y Servicios deberá de seguir los límites económicos de la contratación administrativa vigentes que haya dispuesto la Contraloría General de la República mediante publicación en el Diario Oficial La Gaceta.
