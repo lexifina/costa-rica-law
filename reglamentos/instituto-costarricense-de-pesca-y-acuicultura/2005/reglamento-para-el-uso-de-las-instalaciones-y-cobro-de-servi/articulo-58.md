@@ -1,0 +1,1 @@
+Artículo 58.—El INCOPESCA responderá por daños causados dentro de la Terminal Pesquera, únicamente cuando haya existido participación directa de sus funcionarios en la producción de tales daños o perjuicios o por la prestación o funcionamiento anormal de los servicios que la misma brinda.

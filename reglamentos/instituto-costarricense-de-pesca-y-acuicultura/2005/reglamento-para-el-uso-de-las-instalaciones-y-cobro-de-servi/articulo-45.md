@@ -1,0 +1,1 @@
+Artículo 45.—El Administrador de la Terminal Pesquera o quien este designe, deberá comunicar a los deudores sobre la existencia de la deuda por prestación de los servicios y eventual suspensión de éstos.

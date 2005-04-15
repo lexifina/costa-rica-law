@@ -1,0 +1,2 @@
+Artículo 41.—El usuario cancelará los servicios recibidos, en el momento de desatracar la embarcación o a más tardar 30 días calendario posterior a recibirlos, para lo cual el Administrador de la Terminal o quien éste designe, realizará los trámites correspondientes.
+Toda deuda no cancelada dentro del plazo antes establecido, devengará intereses, los cuales serán calculados a la tasa básica del Banco Central. El Administrador de la Terminal procederá a iniciar las gestiones de cobro administrativo y a suspenderle el servicio.

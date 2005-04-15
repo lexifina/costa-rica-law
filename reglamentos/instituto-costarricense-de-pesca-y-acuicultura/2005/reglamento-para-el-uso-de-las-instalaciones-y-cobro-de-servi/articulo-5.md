@@ -1,0 +1,1 @@
+Artículo 5º—El propietario de la embarcación que dañe las instalaciones de la Terminal durante el proceso de maniobra de atraque o desatraque, o bien colisione con otra embarcación en dichos procesos, será responsable por cualquier daño que se pudieran producir a la pantalla, a su embarcación y a otras embarcaciones.

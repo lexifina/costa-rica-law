@@ -1,0 +1,1 @@
+Artículo 11.—El Capitán o el representante de la embarcación, velará porque su embarcación se encuentre lista para desatracar o cambiar de sitio, cuando a juicio de la Administración sea necesario hacerlo.

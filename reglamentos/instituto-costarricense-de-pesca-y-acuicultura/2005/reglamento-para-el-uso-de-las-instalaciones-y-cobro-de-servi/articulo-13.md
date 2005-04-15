@@ -1,0 +1,1 @@
+Artículo 13.—En caso de embarcaciones que no reúnan las condiciones que exige la Administración de la Terminal, para la seguridad de las instalaciones, de la misma embarcación y su personal, podrán suspenderse las operaciones o no dar inicio a éstas, hasta que las anomalías sean corregidas o se pronuncie al respecto el Administrador de la Terminal.

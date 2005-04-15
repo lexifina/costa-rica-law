@@ -1,0 +1,1 @@
+Artículo 39.—El Administrador de la Terminal Pesquera o quien este designe y la Sección de Contabilidad, deberán realizarse mensualmente conciliaciones de las cuentas por cobrar a los clientes y los registros contables auxiliares de la Institución, lo anterior con el .n de determinar y enmendar cualquier error u omisión que se haya cometido en el procesamiento de la información.

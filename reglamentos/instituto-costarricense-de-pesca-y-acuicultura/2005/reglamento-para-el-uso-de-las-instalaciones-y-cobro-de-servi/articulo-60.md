@@ -1,0 +1,1 @@
+Artículo 60.—De producirse un daño dentro de las instalaciones de la Terminal, los afectados o interesados deberán comunicarlo dentro de un plazo máximo de tres días hábiles a partir de su acaecimiento, a la Administración de la Terminal Pesquera, a los efectos de su valoración y realización de los trámites pertinentes.

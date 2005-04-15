@@ -1,0 +1,1 @@
+Artículo 66.—Este reglamento deroga el Reglamento para el uso de las instalaciones y cobro de servicios prestados en la Terminal publicado en La Gaceta Nº 79 del 25 de abril del 2000. Rige a partir de su aprobación por parte de la Junta Directiva y su posterior publicación en el Diario Oficial La Gaceta.

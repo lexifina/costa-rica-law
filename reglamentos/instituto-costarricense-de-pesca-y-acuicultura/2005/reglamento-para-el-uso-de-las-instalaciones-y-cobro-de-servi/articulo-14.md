@@ -1,0 +1,1 @@
+Artículo 14.—La Administración puede ordenar la suspensión de labores y el desatraque de una nave, cuando considere que la forma y condiciones de trabajo perjudican las labores de la Terminal, la atención de otras embarcaciones o dañen de alguna manera las instalaciones de la Terminal; así como la desobediencia de las normativas sanitarias.

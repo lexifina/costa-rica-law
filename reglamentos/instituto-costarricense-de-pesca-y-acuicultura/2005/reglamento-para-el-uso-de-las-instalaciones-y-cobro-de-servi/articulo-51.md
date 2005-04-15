@@ -1,0 +1,1 @@
+Artículo 51.—La Dirección General Administrativa será la responsable de informar a la Presidencia Ejecutiva si el deudor atendió o no los requerimientos interpuestos dentro del plazo establecido en el artículo anterior. En caso de que el usuario no cancelara la suma adeudada, procederá inmediatamente a notificarlo a Asesoría Legal a .n de iniciar el proceso de cobro judicial.

@@ -1,0 +1,1 @@
+Artículo 28.—En el área de la Terminal, bajo ninguna circunstancia, se permitirá el desagüe y lavado de tanques y neveras que utilizan los vehículos en el proceso de almacenaje y transporte de productos hidrobiológicos.

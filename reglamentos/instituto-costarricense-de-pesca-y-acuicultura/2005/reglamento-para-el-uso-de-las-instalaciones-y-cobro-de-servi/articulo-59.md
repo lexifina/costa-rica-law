@@ -1,0 +1,1 @@
+Artículo 59.—No existirá responsabilidad del INCOPESCA aún cuando se produzca un daño dentro de la Terminal Pesquera si el mismo se debe a fuerza mayor, culpa de la víctima, o hecho de un tercero, eximentes de responsabilidad administrativa según lo dispuesto en la Ley General de la Administración Pública.

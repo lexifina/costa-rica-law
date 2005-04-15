@@ -1,0 +1,1 @@
+Artículo 62.—La Auditoría Interna y el Departamento Financiero realizarán arqueos al funcionario responsable de la facturación de las cuentas por cobrar y al responsable de la recepción del efectivo, de conformidad con lo dispuesto en el Manual de Normas Generales de Control Interno para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización.

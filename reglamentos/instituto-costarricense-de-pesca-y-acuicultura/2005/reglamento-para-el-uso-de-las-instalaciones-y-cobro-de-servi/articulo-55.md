@@ -1,0 +1,1 @@
+Artículo 55.—La Asesoría Legal presentará a la jefatura de la Dirección General Administrativa un informe semestral sobre el estado de los juicios que le hayan sido asignados, el cual deberá ser presentado en la primera semana de los meses de julio y enero.

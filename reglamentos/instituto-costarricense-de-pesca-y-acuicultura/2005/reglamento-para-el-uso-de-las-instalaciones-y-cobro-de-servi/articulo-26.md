@@ -1,0 +1,1 @@
+Artículo 26.—El transporte de los productos pesqueros deben hacerse en unidades motorizadas exclusivas para este .n, que no puedan ser utilizadas en el transporte de otros productos junto con productos pesqueros. Las unidades de transporte deben contar con los permisos reglamentarios vigentes, emitidos por el Ministerio de Salud e INCOPESCA.

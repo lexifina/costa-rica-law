@@ -1,0 +1,1 @@
+Artículo 37.—Será prohibido para cualquier persona, en la zona de descarga, el uso de camisetas abiertas, prendas de vestir y otros objetos como cadenas, pulseras o cualquier tipo de implemento que pueda ser arrollado por máquinas en movimiento o enganchadas en los aparatos de manipulación de carga.

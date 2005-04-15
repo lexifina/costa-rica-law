@@ -1,0 +1,1 @@
+Artículo 65.—El presente Reglamento se sujetará en lo que corresponda, a las disposiciones contenidas en la Ley de Administración Financiera, Ley General de Control Interno, Manual de Normas Generales de Control Interno para la Contraloría General de la República y Órganos sujetos a su fiscalización, y toda aquella otra norma conexa que le sea aplicable.

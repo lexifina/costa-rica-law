@@ -1,0 +1,1 @@
+Artículo 12.—Terminadas las operaciones, toda embarcación deberá abandonar el puesto de atraque de inmediato, o cuando la administración se lo solicite en caso que se encuentren otras embarcaciones dispuestas a atracar.

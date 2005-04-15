@@ -1,0 +1,1 @@
+Artículo 56.—La Presidencia Ejecutiva, la Auditoría Interna o la Dirección General Administrativa podrán solicitarle a Asesoría Legal cualquier informe adicional que fuere necesario para un adecuado seguimiento del estado de los respectivos procesos judiciales.

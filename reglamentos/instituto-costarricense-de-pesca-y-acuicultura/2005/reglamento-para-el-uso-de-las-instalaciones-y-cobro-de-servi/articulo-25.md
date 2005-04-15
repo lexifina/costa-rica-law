@@ -1,0 +1,1 @@
+Artículo 25.—Todo vehículo que ingrese a las instalaciones de la Terminal Pesquera con la finalidad de cargar y/o descargar productos, deberá contar con el respectivo permiso de transporte y comercio vigente, además, deberá haber cancelado previamente los derechos de ingreso a la Terminal Pesquera, emitidos por el INCOPESCA.

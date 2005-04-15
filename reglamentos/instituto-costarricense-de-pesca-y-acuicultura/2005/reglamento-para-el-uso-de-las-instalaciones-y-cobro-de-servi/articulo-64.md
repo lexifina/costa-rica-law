@@ -1,0 +1,1 @@
+Artículo 64.—Las disposiciones contenidas en el presente Reglamento regulan todo lo relacionado con el uso de las instalaciones y cobro de servicios prestados en la Terminal Pesquera. Ningún usuario, funcionario o tercero relacionado con el servicio que brinda el INCOPESCA en las instalaciones de la Terminal Pesquera podrá alegar desconocimiento del presente Reglamento.
