@@ -1,0 +1,1 @@
+Artículo 7º—Vencido el término permitido de la inactividad según se hubiere concedido al interesado, de no existir gestión alguna por escrito del permisionario antes del vencimiento, presentada al Instituto, el permiso o licencia de pesca caducará de pleno derecho y el Instituto procederá a su cancelación administrativa.

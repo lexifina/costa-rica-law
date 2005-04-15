@@ -1,0 +1,1 @@
+Artículo 9º—Los interesados podrán recurrir ante la Junta Directiva contra resoluciones que denieguen el trámite de inactividad requerido, por motivos de legalidad o de oportunidad debiendo interponerse el recurso pertinente dentro del término de tres días hábiles, plazo contado a partir de la comunicación del acto de denegación.
