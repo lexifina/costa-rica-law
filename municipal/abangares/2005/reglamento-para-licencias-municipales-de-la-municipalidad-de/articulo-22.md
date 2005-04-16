@@ -1,0 +1,3 @@
+Artículo 22.—Además de las causales estipuladas en el artículo anterior, no se otorgarán licencias para ventas ambulantes, ni estacionarias para la venta de alimentos que deban ser manipulados por el vendedor tales como: carnes, embutidos, frutas peladas o picadas, pupusas, etc. Ni para la venta de licores, ni cerveza ni ningún otro producto no amparado a la licencia otorgada.
+El encargado del Departamento de Administración Tributaria aclarará los productos a los cuales tiene derecho comerciar el beneficiario de la licencia.
+En caso de comerciar otros productos no autorizados por el Municipio se le aplicará el artículo 23 de este Reglamento en sus incisos a,b,c.

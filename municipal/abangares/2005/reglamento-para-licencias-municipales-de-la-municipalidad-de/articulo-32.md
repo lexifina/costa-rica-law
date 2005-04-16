@@ -1,0 +1,1 @@
+Artículo 32.—Compete únicamente al Departamento de Administración Tributaria, la tramitación y resolución con todo lo relacionado con las patentes del cantón de Abangares. Así como velar por el .el cumplimiento de las normas establecidas para estas actividades y de cualquier otro cuerpo normativo que regule la materia.

@@ -1,0 +1,1 @@
+Artículo 7º—Para toda solicitud de otorgamiento, traslado o traspaso de licencia comercial, será indispensable que los interesados estén acorde con lo estipulado en el Reglamento de Cobros de la Municipalidad de Abangares y sus modificaciones al día en el pago de los tributos y demás obligaciones municipales.

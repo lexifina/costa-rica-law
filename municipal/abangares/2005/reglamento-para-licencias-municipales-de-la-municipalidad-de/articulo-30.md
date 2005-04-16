@@ -1,0 +1,1 @@
+Artículo 30.—Para cumplir con lo señalado en el artículo anterior, el jefe de la sección, deberá velar porque cada uno de los locales comerciales cuente con un expediente, en donde se archivarán en orden todos los documentos relacionados con el establecimiento comercial.

@@ -1,0 +1,1 @@
+Artículo 50.—La declaración jurada municipal que deben presentar los patentados quedará sujeta a las disposiciones especiales de los artículos Nos. 122, 123 y 130 del Código de Normas y Procedimientos Tributarios, así como a lo que establece el artículo Nº 309 del Código Penal y las establecidas en el artículo Nº 14 de la Ley 7459.

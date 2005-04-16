@@ -1,0 +1,4 @@
+SUBSECCIÓN II
+De las licencias temporales
+Artículo 13.—Las solicitudes para licencias comerciales temporales serán tramitadas ente el Departamento de Administración Tributaria de la Municipalidad, la cual constatará si la explotación de la actividad lucrativa solicitada, cuenta con todos los requisitos legales y reglamentarios necesarios para su explotación, de lo contrario rechazará dicha solicitud, aclarándole en forma escrita al solicitante el por que del rechazo de la misma, y si es personal comunicándole los requisitos omisos de la solicitud. No se podrá recibir documentación incompleta para ser tramitada posteriormente.
+La autorización final de la explotación de la licencia comercial temporal respectiva, la otorga el Jefe o Encargado del Departamento de Administración Tributaria, lo que hace constar mediante si firma en el Título Correspondiente.

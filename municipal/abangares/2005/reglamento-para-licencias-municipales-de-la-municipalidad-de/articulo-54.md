@@ -1,0 +1,1 @@
+Artículo 54.—Los patentados están en la obligación de mantener sus recibos de pago de las patentes y el certificado correspondiente en un lugar visible en su local comercial, caso contrario, se creerá que no posee la respectiva patente y se procederá al cierre del local.
