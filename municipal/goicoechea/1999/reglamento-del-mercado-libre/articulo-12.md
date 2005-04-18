@@ -1,4 +1,0 @@
-Artículo 12.—La Administración del Mercado Libre de Guadalupe estará a cargo de un Administrador y 4 Auxiliares, quienes dependerán del Alcalde Municipal.
-A partir de la aprobación de este reglamento y sujeto a las regulaciones presupuestarias se creará la plaza de Administrador del Mercado.
-Los Auxiliares del Administrador podrán nombrarse entre los funcionarios municipales, a los cuales se les cancelará jornada extraordinaria por sus labores en el Mercado Libre. Si se desea contratar personal no municipal debe mediar de previo un dictamen del Alcalde Municipal justificando él por qué y el costo que tendría dicha contratación para que sea analizado por la Comisión respectiva y rinda su dictamen al Concejo Municipal.
-Al Administrador y Auxiliares se les aplicará el Régimen Disciplinario propio de la Municipalidad.

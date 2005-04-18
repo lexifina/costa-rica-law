@@ -1,1 +1,0 @@
-Artículo 24.—Será desalojado del Mercado por medio del Administrador, aquel participante que no porte el respectivo carnet de identificación, o la cancelación de la cuota cobrada por el uso del suelo, de no acatar dicha disposición, se le solicitará a la Fuerza Pública o Policía Municipal, para que lleve a cabo el desalojo.

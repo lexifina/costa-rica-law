@@ -1,1 +1,0 @@
-Artículo 22.—Si el Administrador o Auxiliares fuesen encontrados otorgando privilegios sobre campos, precios, romanas, etc. Recibiendo dinero o permita permanencia de vendedores sin el carnet de identificación será destituido de su cargo sin responsabilidad patronal.

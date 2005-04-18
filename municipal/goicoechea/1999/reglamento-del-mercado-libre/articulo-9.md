@@ -1,7 +1,0 @@
-Artículo 9°—Para efectos de control de calidad y presentación de los productos del mercado, además de las normas sanitarias que prevé la legislación sobre la materia, deberá cumplirse con las siguientes normas:
-a- Todos los productos deberán de presentarse limpios, libres de enfermedades y plagas, clasificados por calidad o tamaño y con el precio visible, en ningún caso podrán estar expuestos directamente sobre el suelo, deberán de estar como mínimo a un metro del suelo.
-b- Hortalizas, frutas y verduras, deberán venderse frescas y sin pelar.
-c- Ventas de carnes, pollo, pescado, mariscos, embutidos y otros, deberán de contar con un permiso del Ministerio de Salud, y cumplir con las normas sanitarias vigentes, el vehículo en que se transporten lácteos, deberá contar con el permiso de elaboración del Ministerio de Salud, y manejarse debidamente empacados.
-ch- Venta de huevos, deberán de ser frescos, es obligatorio contar con un recipiente con tapa para los que se quiebren.
-d- Venta de jugos deberán venderse en vasos desechables. La pequeña industria (molino y vehículo), deberán contar con el visto bueno del Ministerio de Salud, la caña pelada en cabos deberá empacarse en bolsas transparentes, nuevas y selladas. e- Venta de miel de abeja, mermeladas, dulces y conservas; deberán contar con el permiso del Ministerio de Salud, manejarse debidamente empacadas.
-f- Otros productos agropecuarios deberán de ajustarse a las normas sanitarias vigentes y al ordenamiento de la Administración del Mercado.

@@ -1,1 +1,0 @@
-Artículo 7°—Durante el transcurso de ventas en este Mercado los participantes estarán en la obligación de exponer en lugar visible el precio de ventas de sus productos, el cual debe ser concordante con el precio establecido por el MEC y la Administración.

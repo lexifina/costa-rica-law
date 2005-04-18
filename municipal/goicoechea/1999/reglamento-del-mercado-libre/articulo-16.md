@@ -1,1 +1,0 @@
-Artículo 16.—Los vendedores del Mercado Libre de Guadalupe, que así lo deseen, podrán instalar sus propios puestos de venta, sujetos al tamaño y diseño que sobre el particular gire la Comisión de Feria en conjunto con el Departamento de Ingeniería.

@@ -1,1 +1,0 @@
-Artículo 21.—Cualquier violación a las normas establecidas en defensa del consumidor o violación al reglamento, dará derecho a la administración de amonestar por escrito la primera vez. la segunda vez suspensión y la expulsión si reincide, en caso de no acatar la disposición sin perjuicio de las sanciones penales a que se haga acreedor.

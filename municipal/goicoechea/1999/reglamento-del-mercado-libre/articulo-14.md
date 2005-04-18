@@ -1,1 +1,0 @@
-Artículo 14.—El Administrador del Mercado Libre de Guadalupe, rendirá un informe trimestral de labores al Alcalde Municipal, quien una vez analizado lo enviará al Concejo Municipal para su información con las observaciones y recomendaciones que crea conveniente si las hubiese.
