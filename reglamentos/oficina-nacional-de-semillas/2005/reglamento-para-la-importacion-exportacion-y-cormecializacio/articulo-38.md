@@ -1,0 +1,1 @@
+38.—Toda persona física o jurídica que ofrezca a cualquier título semilla para su comercialización, es responsable del correcto rotulado y de la veracidad de la información indicada en el envase, rótulo o etiqueta. El acto de adherir o fijar una etiqueta o rótulo en un envase de semillas tendrá carácter de declaración jurada.

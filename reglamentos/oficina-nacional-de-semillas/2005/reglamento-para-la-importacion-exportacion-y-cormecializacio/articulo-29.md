@@ -1,0 +1,1 @@
+29.—Para la realización tanto del muestreo como de los análisis oficiales de calidad, se seguirán en lo posible, los procedimientos y metodologías establecidas por la Asociación Internacional para Pruebas de Semillas (ISTA por sus siglas en inglés).

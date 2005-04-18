@@ -1,0 +1,1 @@
+10.—Las semillas consideradas impropias para su introducción al país, por razones fitosanitarias o cuarentenarias, deberán ser devueltas a su origen, destruidas, o bien ser tratadas según lo que determine el Servicio Fitosanitario del Estado.

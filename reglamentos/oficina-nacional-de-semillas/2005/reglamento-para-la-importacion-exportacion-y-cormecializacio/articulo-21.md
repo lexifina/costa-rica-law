@@ -1,0 +1,1 @@
+21.—Con base en la solicitud, la Oficina Nacional de Semillas tramitará el registro de exportación el cual será requisito para la autorización, por parte de la Dirección General de Aduanas, del despacho de la semilla. El Registro previo ante la Oficina Nacional de Semillas representa para efectos aduanales la nota técnica denominada “Autorización de despacho de semillas”.

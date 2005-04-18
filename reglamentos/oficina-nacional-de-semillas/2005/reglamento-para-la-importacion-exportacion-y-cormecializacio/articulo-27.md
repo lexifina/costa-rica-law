@@ -1,0 +1,1 @@
+27.—Inspectores oficiales, debidamente identificados efectuarán el respectivo muestreo de los lotes de semilla claramente identificados, diligenciándose para tal efecto actas con la información requerida. Las muestras representativas de cada uno de los lotes son remitidas al laboratorio oficial, para la realización del análisis de calidad correspondiente.

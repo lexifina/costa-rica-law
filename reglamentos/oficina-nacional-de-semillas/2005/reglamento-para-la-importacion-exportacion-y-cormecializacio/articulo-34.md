@@ -1,0 +1,1 @@
+34.—El valor del servicio de verificación de normas de calidad, de los análisis de semillas así como de los otros servicios que se deriven de la aplicación de este reglamento, serán sufragados por los usuarios, de acuerdo con los precios o tasas establecidas oficialmente.

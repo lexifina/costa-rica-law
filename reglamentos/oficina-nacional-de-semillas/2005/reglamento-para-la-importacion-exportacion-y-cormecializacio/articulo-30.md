@@ -1,0 +1,1 @@
+30.—Las muestras de semilla que se tomen, deberán enviarse al laboratorio oficial lo antes posible para su análisis correspondiente. Asimismo, los resultados de los análisis de calidad, deberán ser remitidos por el laboratorio a la Oficina Nacional de Semillas en un plazo perentorio.

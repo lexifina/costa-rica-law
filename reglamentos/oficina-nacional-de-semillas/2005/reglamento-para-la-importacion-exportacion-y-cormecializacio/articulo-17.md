@@ -1,0 +1,1 @@
+17.—Los productos vegetales importados y cuyo destino sea exclusivamente la industrialización, el consumo o cualquier otro destino ajeno a la siembra o plantación, no podrán ser comercializados o transferidos en calidad de semillas. Los adquirientes de estos materiales estarán sujetos a la misma prohibición.

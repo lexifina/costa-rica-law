@@ -1,0 +1,1 @@
+31.—Las muestras de semillas tomadas por inspectores de la Oficina Nacional de Semillas serán consideradas muestras oficiales, y los resultados de los análisis de calidad realizados en el laboratorio oficial tendrán el carácter de análisis oficiales.

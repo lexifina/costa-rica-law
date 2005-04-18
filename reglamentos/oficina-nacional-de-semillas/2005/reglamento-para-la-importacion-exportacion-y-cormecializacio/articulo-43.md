@@ -1,0 +1,1 @@
+43.—Las personas que se dediquen al comercio de semillas deberán habilitar un libro registro, en el cual asentarán las entradas, salidas y existencias de semillas por especies y variedades. Este libro deberá estar al día y será presentado a los inspectores oficiales cada vez que se solicite.

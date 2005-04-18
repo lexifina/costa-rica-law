@@ -1,0 +1,1 @@
+45.—Para juzgar la veracidad del etiquetado, en lo relativo a los atributos de calidad, se considerarán los rangos de variación tolerables establecidos por ISTA, entre análisis o entre un análisis oficial y lo indicado en el marbete o etiqueta.

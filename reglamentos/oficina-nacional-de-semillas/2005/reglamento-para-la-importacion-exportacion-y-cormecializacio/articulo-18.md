@@ -1,0 +1,1 @@
+18.—En casos excepcionales o cuando se hayan establecido convenios regionales o bilaterales, la Oficina Nacional de Semillas podrá reconocer certificados de calidad emitidos por entes oficiales del país de origen, sin perjuicio de su potestad de realizar las comprobaciones, cuando se considere pertinente.

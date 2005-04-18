@@ -1,0 +1,1 @@
+13.—En semillas de cultivos en los que se ha establecido y opera un sistema oficial de control de calidad (verificación de normas mínimas de calidad), las empresas importadoras deberán solicitar oportunamente y formalmente a la Oficina Nacional de Semillas, el servicio de muestreo y análisis de calidad de los diferentes lotes de semilla importados.

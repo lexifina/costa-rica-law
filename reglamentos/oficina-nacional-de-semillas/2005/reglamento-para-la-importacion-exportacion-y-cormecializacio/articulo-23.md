@@ -1,0 +1,1 @@
+23.—Corresponde al Departamento de Verificación Técnica del Servicio Nacional de Aduanas incorporar en el arancel automatizado, la nota técnica correspondiente para las semillas objeto de exportación.

@@ -1,0 +1,1 @@
+5º—Para agilizar los trámites de registro, las solicitudes podrán enviarse vía fax o por medios electrónicos en los formatos elaborados para este fin. La Oficina Nacional de Semillas, con el objeto de facilitar los trámites de registro, podrá establecer convenios con los interesados de acuerdo a sus necesidades.

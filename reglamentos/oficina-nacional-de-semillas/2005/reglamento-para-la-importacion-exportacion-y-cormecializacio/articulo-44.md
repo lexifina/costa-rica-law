@@ -1,0 +1,1 @@
+44.—La Oficina Nacional de Semillas podrá solicitar a las empresas comercializadoras informes periódicos sobre ventas y existencias de semillas, para fines estadísticos y de información general. La información estrictamente comercial será considerada de carácter confidencial.

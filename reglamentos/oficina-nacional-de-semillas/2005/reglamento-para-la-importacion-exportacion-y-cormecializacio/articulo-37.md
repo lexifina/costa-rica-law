@@ -1,0 +1,1 @@
+37.—En aquellos casos que así se determine, la Oficina Nacional de Semillas podrá suplir a las empresas importadoras, las etiquetas con la asignación de los números de lotes correspondientes. Para tal fin, los interesados deberán solicitar oportunamente las cantidades requeridas de acuerdo a la información contenida en los registros de importación.

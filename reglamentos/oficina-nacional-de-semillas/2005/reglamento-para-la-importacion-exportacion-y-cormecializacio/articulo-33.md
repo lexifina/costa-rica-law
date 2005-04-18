@@ -1,0 +1,1 @@
+33.—Las empresas comercializadoras deberán solicitar oportunamente, a la Oficina Nacional de Semillas, los remuestreos de los lotes que requieren de un nuevo análisis de calidad, en virtud de haber vencido su periodo de vigencia o por algún cambio en las características o condiciones de la semilla.

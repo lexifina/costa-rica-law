@@ -1,0 +1,1 @@
+14.—En aquellos casos en que la Oficina Nacional de Semillas determine la conveniencia, el importador podrá suministrar muestras de referencia de los lotes importados, a efectos de verificación de las normas de calidad, sin perjuicio del muestreo oficial por parte de la Oficina Nacional de Semillas si se estima pertinente.

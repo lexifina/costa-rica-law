@@ -1,0 +1,1 @@
+40.—El perjuicio ocasionado al consumidor o usuario de semillas por razón de la semilla adquirida o de una información inexacta debe ser resarcido por quien haya producido, preparado o envasado la semilla; la misma responsabilidad incumbe al vendedor que por negligencia haya causado el perjuicio. Solo se libera quien demuestre que ha sido ajeno al daño causado.
