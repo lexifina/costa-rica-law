@@ -1,0 +1,9 @@
+Artículo 36.—De las obligaciones de los abogados externos. Los abogados externos contratados por la Municipalidad para la etapa ejecutiva, estarán obligados a:
+a. Presentar dentro de los diez días hábiles siguientes al recibo del expediente, el proceso judicial respectivo ante la autoridad jurisdiccional correspondiente, y remitir dentro del plazo de los dos días hábiles siguientes al vencimiento del primer plazo citado, copia de la demanda constancia de la presentación exigida. De incumplir los plazos dados, al presentar la copia respectiva deberá adjuntar nota justificando los motivos de su incumplimiento.
+b. Presentar dentro de los cinco días hábiles siguientes de cada trimestre, informe a la Oficina de la Sección de Cobros de la Municipalidad, sobre el estado de los procesos judiciales a su cargo, de conformidad con Anexo 1 de este Reglamento.
+c. Cobrar directamente al sujeto pasivo los honorarios del proceso ejecutivo, de conformidad con la Tabla de Honorarios que se anexa a este Reglamento, Anexo 2.
+d. Asumir todos los gastos que se presenten por la tramitación del proceso judicial asignado a su dirección.
+e. Ante ausencias de su oficina por plazos mayores a tres días hábiles, deberá indicar a la Oficina de la Sección de Cobros de la Municipalidad, al profesional que deja responsable de los procesos judiciales a su cargo.
+f. Realizar estudios de retenciones como mínimo cada tres meses en los procesos que estén bajo su dirección y solicitar cuando exista sentencia firme, la orden de giro correspondiente, a efectos de lograr el ingreso de dichos dineros a la caja municipal.
+g. Dictada la sentencia respectiva, el abogado externo director del proceso deberá presentar la liquidación de costas en un plazo no mayor de quince días naturales.
+h. Comunicar por escrito, al día hábil siguiente del remate, el resultado del mismo, a la Sección de Cobros de la Municipalidad.
