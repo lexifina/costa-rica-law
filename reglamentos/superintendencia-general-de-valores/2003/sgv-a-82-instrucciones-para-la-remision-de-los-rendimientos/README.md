@@ -14,3 +14,4 @@ SGV-A-82- Instrucciones para la Remisión de los Rendimientos de los Fondos de I
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-02 | la propia norma |
+| 2 | 2005-04-18 | Acuerdo 102 (2005-04-18) |

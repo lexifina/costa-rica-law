@@ -60,14 +60,37 @@ a. Rendimiento líquido
 b. Rendimiento total
 En donde:
 B Beneficios por participación distribuidos a los inversionistas durante los últimos 12 meses en consideración
-C. Fondos de titularización. Para la determinación del rendimiento se deberán utilizar las siguientes fórmulas:
+C. Fondos de titularización
+Los fondos de titularización reportarán dos rendimientos, el rendimiento líquido y el rendimiento total. El rendimiento líquido excluye el ajuste por la valoración de la cartera de valores, y el rendimiento total incorpora todo el activo neto del fondo.
+Cualquier publicidad de un fondo de inversión de titularización que mencione rendimientos deberá incluir el rendimiento líquido y el total. El cálculo de los rendimientos será de la siguiente forma:
 i. Cálculo del rendimiento anualizado últimos 30 días
+a- Para la determinación del rendimiento líquido y dado que este tipo de fondos distribuye periódicamente beneficios a sus inversionistas, la fórmula a utilizar sería la siguiente:
+Ver cuadro en La Gaceta impresa número 81 del 28 de abril del 2005
 En donde:
-Rt Rentabilidad total anualizada del fondo para los últimos 30 días
-terminados en el día †
-VPt Valor de la participación del fondo al cierre del día †
-VPt 30 Valor de la participación del fondo al cierre del día †-30
+RLt Rentabilidad líquida anualizada del fondo para los últimos 30 días terminados en el día t
+Excluye el efecto por ganancia (o pérdida) no realizada por la valoración de la cartera de valores
+VPLt Valor de la participación ajustado del fondo al cierre del día t
+VPLt-30 Valor de la participación ajustado del fondo al cierre del día t-30
+B Beneficios por participación distribuidos a los Inversionistas durante el mes en consideración
+ANt Activo neto del fondo al cierre del día t
+ANt-30 Activo neto del fondo al cierre del día t-30
+GPt Ganancia (o pérdida) no realizada por la valoración de la cartera de valores al cierre del día t
+GPt-30 Ganancia (o pérdida) no realizada por la valoración de la cartera de valores al cierre del día t-30
+Participacionest Participaciones al cierre del día t
+Participaciones t-30 Participaciones al cierre del día t-30
+Para la determinación del rendimiento total se deberá utilizar la siguiente fórmula:
+Ver cuadro en La Gaceta impresa número 81 del 28 de abril del 2005
+En donde:
+RTt Rentabilidad total anualizada del fondo para los últimos 30 días terminados en el día t
+VPt Valor de la participación del fondo al cierre del día t
+VPt-30 Valor de la participación del fondo al cierre del día t-30
 B Beneficios por participación distribuidos a los inversionistas durante el mes en consideración
 ii. Cálculo del rendimiento últimos 12 meses
+a. Rendimiento líquido
+Ver cuadro en La Gaceta impresa número 81 del 28 de abril del 2005
+b. Rendimiento total
+Ver cuadro en La Gaceta impresa número 81 del 28 de abril del 2005
 En donde:
-B Beneficios por participación distribuidos a los inversionistas durante los últimos 12 meses en consideración.
+B Beneficios por participación distribuidos a los inversionistas durante los últimos 12 meses en consideración”
+Ver cuadro en La Gaceta impresa número 81 del 28 de abril del 2005
+(Así reformado por el artículo 1 del acuerdo Nº 102 del 22 de marzo del 2005).
