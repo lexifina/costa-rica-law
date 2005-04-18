@@ -33,7 +33,8 @@ v. Coeficiente de obligación frente a terceros del fondo a la fecha de corte y 
 vi. Coeficiente de obligación frente a terceros de fondos de la misma categoría a la fecha de corte ("industria").
 vii. Desviación estándar de rendimientos últimos 12 meses del fondo a la fecha de corte y comparativo con el informe anterior.
 viii. Desviación estándar de rendimientos últimos 12 meses de fondos de la misma categoría a la fecha de corte ("industria").
-ix. Razón de Sharpe del fondo a la fecha de corte y comparativo con el informe anterior.
+ix. Rendimiento ajustado por Riesgo del fondo a la fecha de corte y comparativo con el informe anterior*.
+*(Así reformado por el artículo 3 del acuerdo Nº 102 del 22 de marzo del 2005).
 t. Comentarios del administrador o comité de inversión.
 i. Análisis de la situación económica en general y del sector específico en el cual invierte el fondo de inversión o de los valores que componen su portafolio.
 ii. Descripción de factores económicos, legales u operativos que explican las variaciones en los rendimientos observadas en el trimestre.
@@ -48,4 +49,5 @@ vi. Pagada al puesto de bolsa.
 vii. Total de comisiones.
 v. Leyendas dispuestas en el artículo 91, 93, 94 y 95 del Reglamento general sobre Sociedades administradoras y Fondos de inversión.
 Leyendas sobre la protección de derechos de propiedad intelectual, así como leyendas que mejoren la comprensión y revelación de las responsabilidades de la información contenida en el Informe Trimestral (Esta información es de tipo facultativa).
-Si el fondo es de tipo seriado, se deberá indicar para cada serie el rendimiento últimos 12 meses y últimos 30 días del inciso q y la desviación estándar y razón de Sharpe del inciso s. La información de los fondos de la misma categoría ("industria") se presentará como si se tratara de un fondo no seriado.
+*Si el fondo es de tipo seriado, se deberá indicar para cada serie el rendimiento últimos 12 meses y últimos 30 días del inciso q y la desviación estándar y el rendimiento ajustado por riesgo del inciso s. La información de los fondos de la misma categoría (“industria”) se presentará como si se tratara de un fondo no seriado
+*(Así reformado por el artículo 1 del acuerdo Nº 102 del 22 de marzo del 2005).

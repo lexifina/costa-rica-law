@@ -1,3 +1,4 @@
+(El Acuerdo SGV-A-102 del 22 de marzo del 2005 reforma los Anexos del Acuerdo SGV-A-97 de 11 de nopviembre del 2004, emitido por la Superintendencia General de Valores. Dichas normas no fueron publicadas debido a lo extenso de su contenido, aunque pueden ser localizadas en el sitio Web http://www.sugeval.fi.cr/ )
 SGV-A-97
 La Superintendencia General de Valores de conformidad con lo establecido en la Ley Nº 8220 "Protección del ciudadano del exceso de requisitos y trámites administrativos" publica el siguiente acuerdo:
 SGV-A-97.—Superintendencia General de Valores.—Despacho del Superintendente.—A las doce horas del veintisiete de setiembre del dos mil cuatro.
