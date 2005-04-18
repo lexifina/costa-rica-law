@@ -66,17 +66,7 @@ Artículo 62.—Las comisiones permanentes analizarán, dictaminarán y recomend
 8.5 Coordinar a través del Concejo Municipal, con diferentes instancias el desarrollo de proyectos que involucren a la mujer.
 8.6 Promover el apoyo municipal a las instancias locales, regionales y nacionales tendientes a favorecer la equidad de género.
 8.7 Los otros asuntos relacionados o afines o que le asigne el Concejo Municipal para su conocimiento.
-9. COMISIÓN DE MERCADO LIBRE
-9.1 Recomendar la asignación de los puestos del Mercado Libre de Guadalupe.
-9.2 Proponer las tarifas de operación de los adjudicatarios del Mercado Libre de Guadalupe.
-9.3 Recomendar los lineamientos de salud e higiene que deben acatarse en el Mercado Libre.
-9.4 Recomendar los tipos de productos o servicios que se pueden comercializar en el Mercado Libre.
-9.5 Recomendar la frecuencia, el plazo y el día o días de operación del Mercado Libre.
-9.6 Recomendar las políticas y normativas para el tratamiento de los desechos sólidos que genera el Mercado Libre.
-9.7 Velar porque existan los registros de todos los puestos asignados a los adjudicatarios, así como el respectivo historial de pago y eventos adicionales.
-9.8 Recomendar los lineamientos de infraestructura con que debe operar el Mercado Libre de Guadalupe.
-9.9 Proponer y evaluar el Presupuesto de operación e inversión del Mercado Libre.
-9.10 Los otros asuntos relacionados o afines o que le asigne el Concejo Municipal para su conocimiento.
+9. Así Derogado en sesión N° 16 del 18 de abril del 2005.
 10. COMISIÓN DE ASUNTOS EDUCATIVOS
 10.1 El análisis y dictamen de los nombramientos de las Junta de Educación de las escuelas y de las Juntas Administrativas de los colegios.
 10.2 La evaluación y recomendación de la infraestructura física con que operan los kínder, escuelas y colegios del cantón.

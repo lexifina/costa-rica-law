@@ -10,7 +10,7 @@ Las comisiones permanentes son las siguientes:
 6. Asuntos Ambientales.
 7. Asuntos Culturales.
 8. Condición de la Mujer.
-9. Mercado Libre.
+9. Así Derogado en sesión N° 16 del 18 de abril del 2005.
 10. Asuntos Educativos.
 11. Asuntos de Salud Pública.
 12. Asuntos de Seguridad Ciudadana.
