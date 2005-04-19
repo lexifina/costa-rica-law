@@ -1,0 +1,1 @@
+Artículo 63.—Los medidores y tableros de control eléctrico y de telecomunicaciones, deben ubicarse en un área común y en sitios de fácil acceso, con el propósito de que el Instituto Costarricense de Electricidad, la Compañía Nacional de Fuerza y Luz o la Empresa que brinde el servicio en el lugar, pueda proveer esos servicios.

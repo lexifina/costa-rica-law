@@ -1,0 +1,1 @@
+Artículo 68.—Los planos que se elaboren para la desafectación deberán ser confeccionados y firmados por un profesional en agrimensura y ser presentados al INVU, Ministerio de Salud y Municipalidad respectiva, a fin de obtener la aprobación de estas instituciones, conforme a sus respectivas competencias.

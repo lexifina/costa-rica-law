@@ -1,0 +1,1 @@
+Artículo 83.—La aplicación de los requisitos establecidos en este Reglamento para la debida inscripción en el Registro Público de escrituras referentes a la constitución, extinción o traspaso de un bien sometido al régimen de propiedad en condominio, se dará siempre y cuando el otorgamiento de la escritura o de la solicitud sean posteriores a la entrada en vigencia del mismo.

@@ -1,0 +1,1 @@
+Artículo 69.—Para la inscripción de una desafectación ante el Registro de la Propiedad, el notario debe dar fe de que tuvo a la vista, tanto la lámina de distribución como los planos catastrados individuales que cuentan con el respectivo visado municipal y de las Instituciones que otorgan el visado.

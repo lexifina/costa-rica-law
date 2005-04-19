@@ -1,0 +1,1 @@
+Artículo 47.—La estructura de las escaleras comunes, los pasillos y los vestíbulos de acceso o distribución deben ser de concreto armado o con materiales resistentes al fuego de dos horas como mínimo. Dichos elementos no podrán revestirse con materiales combustibles.

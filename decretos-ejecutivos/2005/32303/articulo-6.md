@@ -1,0 +1,1 @@
+Artículo 6º—Para obtener la aprobación de los planos de un condominio que se vaya a desarrollar en etapas, es necesario realizar el trámite del Anteproyecto del proyecto ante el INVU, el Ministerio de Salud y la Municipalidad respectiva, según corresponda a las competencias de cada institución.

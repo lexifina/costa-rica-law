@@ -1,0 +1,1 @@
+Artículo 71.—En el caso de condominios verticales, horizontales, mixtos y/o combinados, que no cumplan con lo que señala el artículo anterior, la desafectación implicará la conversión de la totalidad del inmueble al régimen de propiedad tradicional. En estos casos la cabida del nuevo inmueble será la que señale el respectivo plano catastrado del terreno.

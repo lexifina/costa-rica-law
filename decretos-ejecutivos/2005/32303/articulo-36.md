@@ -1,0 +1,1 @@
+Artículo 36.—Los derechos de cada condómino sobre los bienes comunes, así como sus obligaciones para con el condominio, se transmitirán automáticamente con la enajenación que haga de la finca filial respectiva.

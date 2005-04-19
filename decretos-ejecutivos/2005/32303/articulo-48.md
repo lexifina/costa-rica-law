@@ -1,0 +1,1 @@
+Artículo 48.—No se podrán colocar muros, verjas o setos que segreguen una porción del área común para el uso exclusivo de algún propietario, salvo cuando el proyecto del complejo contemple espacios de terreno para uso exclusivo de uno o más propietarios. Estas áreas mantendrán su calidad de bienes comunes de uso restringido.

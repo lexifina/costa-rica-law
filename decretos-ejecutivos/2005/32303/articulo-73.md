@@ -1,0 +1,1 @@
+Artículo 73.—En el caso de los bienes de dominio público otorgados en concesión y sometidos al régimen de propiedad en condominio, para su desafectación del régimen, deberá contarse además con la aprobación expresa del ente, institución y/o autoridad que autorizó la concesión.

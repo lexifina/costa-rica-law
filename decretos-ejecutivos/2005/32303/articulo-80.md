@@ -1,0 +1,1 @@
+Artículo 80.—Para todos aquellos casos de edificaciones en la zona marítimo terrestre, se aplicará lo dispuesto en el Decreto Ejecutivo N° 29307-MP-J-MIVAH-S-MEIC-TUR de 26 de enero del 2001, publicado en La Gaceta N° 36 del 20 de febrero del 2001.

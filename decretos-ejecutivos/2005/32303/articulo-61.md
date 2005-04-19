@@ -1,0 +1,1 @@
+Artículo 61.—Todo inmueble que se encuentre amparado a este reglamento y a la Ley Reguladora de la Propiedad en Condominio, deberá contar con redes para los servicios de telecomunicaciones y electricidad.

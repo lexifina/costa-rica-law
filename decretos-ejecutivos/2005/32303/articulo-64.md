@@ -1,0 +1,1 @@
+Artículo 64.—Las redes de telecomunicaciones y distribución eléctrica, podrán ser colocadas de forma aérea o mediante ductos subterráneos. En el caso de las redes eléctricas, éstas deben tener las respectivas cajas de registro, conforme al Código Nacional Eléctrico.

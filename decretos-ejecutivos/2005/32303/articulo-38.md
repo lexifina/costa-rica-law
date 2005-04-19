@@ -1,0 +1,1 @@
+Artículo 38.—En todos los condominios las áreas comunes pueden ser restringidas o de uso general. Asimismo, dentro de esas áreas comunes se podrán asignar espacios o instalaciones a determinadas fincas filiales, siempre y cuando las áreas comunes excedan el área indicada en este Reglamento.

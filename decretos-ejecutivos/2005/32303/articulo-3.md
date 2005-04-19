@@ -1,0 +1,1 @@
+Artículo 3º—Los condominios podrán ser de tipo horizontal, vertical, combinado y mixto. De acuerdo con su uso, podrán ser habitacionales, agrícolas, industriales, comerciales, turísticos, pecuarios, estacionamientos, de servicios y, en general, destinados a cualquier propósito que sea lícito.

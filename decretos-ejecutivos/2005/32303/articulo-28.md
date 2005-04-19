@@ -1,0 +1,1 @@
+Artículo 28.—En el caso de terminación de una concesión filial, la autoridad que haya otorgado la concesión asumirá en forma plena los derechos y obligaciones que corresponden al respectivo condómino. Si todos los derechos de concesiones filiales revierten en la autoridad que los ha otorgado, dicha autoridad podrá extinguir el régimen de propiedad en condominio.

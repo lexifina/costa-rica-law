@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Acerca de las condiciones funcionales y estructurales de los condominios
+Artículo 42.—En el diseño y construcción de condominios verticales, horizontales, mixtos y combinados de edificaciones, deberán observarse en lo conducente, de acuerdo con la naturaleza de la propiedad en condominio, las disposiciones del Plan regulador de la Municipalidad respectiva, cuando exista, las del Plan Regional Metropolitano (GAM), la Ley de Construcciones y su Reglamento, la Ley General de Salud, la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, la Ley Orgánica del Ambiente, la Ley de Aguas, la Ley Forestal y cualesquiera otra normativa sobre la materia.

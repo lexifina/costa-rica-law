@@ -1,0 +1,2 @@
+Artículo 44.—Cuando se propongan fincas filiales frente a calles públicas, los retiros de antejardín deben ajustarse a lo requerido en el Plan regulador de cada cantón, o en su defecto a lo que exija el Reglamento de Construcciones; en cualquier caso, no podrá ser menor de dos metros.
+Cuando se trate de una edificación propuesta sobre una de las vías internas del condominio, no será necesario el retiro de antejardín.

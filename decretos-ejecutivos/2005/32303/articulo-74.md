@@ -1,0 +1,1 @@
+Artículo 74.—La aprobación mencionada en el artículo anterior debe indicar además a nombre de quién o quienes se inscribirá la o las concesiones resultantes, así como cualquier modificación al contrato original de otorgamiento. Para su plena validez, dicho acuerdo deberá protocolizarse e inscribirse en la Sección de Concesiones del Registro Público.

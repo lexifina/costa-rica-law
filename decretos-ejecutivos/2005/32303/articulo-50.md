@@ -1,0 +1,1 @@
+Artículo 50.—Para condominios mayores de treinta o más filiales, o de más de tres mil quinientos metros cuadrados, incluyendo el área de estacionamientos, se requerirá una caseta o local de vigilancia con un área mínima de seis metros cuadrados que incluya servicio sanitario y un área para la preparación de alimentos.

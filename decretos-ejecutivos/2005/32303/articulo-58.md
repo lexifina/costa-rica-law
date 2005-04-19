@@ -1,0 +1,1 @@
+Artículo 58.—Los sistemas de agua potable, aguas residuales, aguas pluviales, instalaciones eléctricas y telecomunicaciones, deberán conducirse, cuando se trate de edificaciones a nivel de terreno, a través de áreas comunes; cuando se trate de condominios verticales deberán instalarse en ductos horizontales y/o verticales que puedan ser registrables desde áreas comunes.

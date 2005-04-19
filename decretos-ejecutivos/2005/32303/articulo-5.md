@@ -1,0 +1,1 @@
+Artículo 5º—Cuando se quiera desarrollar un condominio por etapas, éstas podrán ser desarrolladas individualmente y los planos constructivos de cada una de ellas pueden tramitarse por separado para su aprobación.

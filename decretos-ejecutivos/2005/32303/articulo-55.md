@@ -1,0 +1,1 @@
+Artículo 55.—En los condominios a desarrollarse por etapas, el área destinada a zona verde, juegos infantiles, parques y áreas recreativas se calculará independientemente para cada etapa, de tal forma que no podrá exigirse que la misma sea mayor al 10% de la superficie de cada una de ellas, o veinte metros cuadrados por cada lote, cualquiera que sea mayor.
