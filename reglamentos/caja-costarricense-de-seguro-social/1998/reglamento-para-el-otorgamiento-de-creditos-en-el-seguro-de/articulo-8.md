@@ -1,5 +1,9 @@
 CAPITULO II
 DE LAS CONDICIONES PARA EL OTORGAMIENTO DE CRÉDITOS HIPOTECARIOS
-Artículo 8°—Los tipos de préstamos a los que se refiere el artículo anterior, podrán formalizarse en colones o dólares.
-La Junta Directiva de la Caja podrá establecer una línea de crédito para compra, construcción o mejoras de vivienda única, por medio del sistema de cuotas escalonadas, dirigida a sus asegurados. El crédito se otorgará con base en las recomendaciones que al efecto realizará el Departamento de Crédito. Se entiende por "vivienda única", aquella propiedad con casa de habitación que posee un grupo familiar como único bien inmueble.
-Así ampliado por Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 17 de la sesión 7269 de 22 de octubre de 1998.
+Artículo 8º—Los tipos de préstamo a los que se refiere el artículo anterior, deberán estar sujetos a las siguientes consideraciones:
+a. Cuando se trate del financiamiento de una segunda compra o construcción de vivienda, la tasa de interés será superior que aquella que se establezca en la operación de vivienda única.
+b. El porcentaje máximo del avalúo, que podrá financiarse por medio del programa de crédito será el 80%.
+c. El plazo máximo será de veinte años y la tasa de interés será ajustable, para lo cual la Gerencia División de Pensiones hará la propuesta técnica a la Junta Directiva.
+d. La Gerencia División de Pensiones, presentará cada año a consideración de la Junta Directiva, una política y estrategia de colocación de créditos hipotecarios, en la cual se deberá especificar los montos a asignar por tipo de instrumento crediticio.
+(Así reformado mediante sesión Nº 7943, celebrada el 31 de marzo de 2005).
+Nota de SINALEVI: En sesión Nº 7943 del 31 de marzo del 2005 se acordó suspender la modalidad de crédito mediante cuota escalonada, al cuál hacía mención anteriormente este artículo.
