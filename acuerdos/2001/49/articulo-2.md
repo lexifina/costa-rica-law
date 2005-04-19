@@ -1,3 +1,0 @@
-Artículo 2°-—Reconocimiento de intereses- Independientemente de la alternativa que seleccione la Sociedad Administradora de Fondos de Inversión deberá establecer un procedimiento que distribuya a los fondos de inversión en forma diaria los ingresos por intereses que generen dichas cuentas corrientes.
-En el caso de que la Sociedad decida abrir una cuenta corriente en colones y otra en dólares para la administración del efectivo de los fondos que administra, la distribución de intereses se deberá efectuar en proporción a los saldos promedios diarios mantenidos por cada uno de ellos. Este mismo procedimiento aplica en caso de que se adopte la opción c) indicada en el articulo anterior.
-El procedimiento debe estar por escrito.
