@@ -14,3 +14,4 @@ Reglamento para el Pago de Zonaje a los Servidores del Ministerio de Trabajo y S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-15 | la propia norma |
+| 2 | 2005-04-20 | Decreto Ejecutivo 32379 (2005-04-20) |

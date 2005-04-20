@@ -1,3 +1,7 @@
 CAPÍTULO III
 Supresión y modificación del zonaje
-Artículo 10.—El zonaje será obligatorio y uniforme para los servidores que reúnan los requisitos establecidos en este Reglamento.
+Artículo 10.—El zonaje se dejará de pagar cuando el servidor cese de trabajar en el puesto en que fue nombrado con disfrute de dicho beneficio o cuando se modifiquen las circunstancias quemotivaron ese pago adicional.
+Igualmente, perderán ese beneficio los servidores que lleguen a ser propietarios de una casa, apartamento u otra edificación destinada a vivienda, en el mismo lugar o circunscripción territorial donde desempeñan sus labores y se les reconoce el pago por concepto de zonaje o que habiten cualquiera de esos inmuebles en los que su cónyuge sea propietario. En tales casos, es obligación del funcionario comunicar al Departamento de Recursos Humanos cualquiera de esas circunstancias y el no hacerlo será considerado falta grave a su contrato de servicios y acarreará la respectiva responsabilidad administrativa, sin perjuicio de las demás que propicie este hecho.
+La supresión de dicho beneficio se realizará, previo debido proceso, mediante resolución del Departamento de Recursos Humanos, que se comunicará con treinta días de anticipación a la fecha en que se hará efectiva. Contra dicha resolución caben los recursos de revocatoria y de apelación en los términos y condiciones contemplados en la Ley General de la Administración Pública.
+Es entendido que no habrá necesidad de procedimiento administrativo, si el servidor de que se trate manifiesta su conformidad por escrito, o si se presenta cualquiera de las situaciones descritas en el párrafo segundo de este artículo
+(Así reformado por el artículo 2° del decreto ejecutivo N° 32379 del 20 de abril del 2005)
