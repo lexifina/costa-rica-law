@@ -1,0 +1,1 @@
+Artículo 111.—El denunciante o el denunciado podrá solicitar un traslado provisional a otro departamento, oficina o dirección de la Presidencia o del Ministerio, previa exposición de motivos ante la Dirección General.

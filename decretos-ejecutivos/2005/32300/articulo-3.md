@@ -1,0 +1,1 @@
+Artículo 3º—El cumplimiento de este Reglamento es de acatamiento obligatorio, a efecto de que las labores se lleven a cabo dentro de la armonía requerida, con la mayor eficacia y eficiencia posibles, en concordancia con los principios que rigen el servicio público y en aras de la satisfacción del interés público.

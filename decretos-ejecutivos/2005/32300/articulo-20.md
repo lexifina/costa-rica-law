@@ -1,0 +1,1 @@
+Artículo 20.—Los servidores de la Presidencia o del Ministerio, podrán ser capacitados y obtener adiestramiento complementario, mediante, cursos, seminarios y otros, previa aprobación del estudio técnico emitido por la Dirección de Recursos Humanos.

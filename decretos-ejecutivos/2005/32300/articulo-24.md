@@ -1,0 +1,1 @@
+Artículo 24.—Los servidores tienen derecho a que no se les discrimine en su trabajo por razones de edad, etnia, género, religión o por padecer de cualquier tipo de discapacidad, o que se les cese en sus funciones por tales razones.

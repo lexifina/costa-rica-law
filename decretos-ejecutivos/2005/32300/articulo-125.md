@@ -1,0 +1,3 @@
+Artículo 125.—La amonestación oral y la amonestación escrita, relacionadas con aspectos disciplinarios ajenos a la asistencia corresponderá aplicarlas al superior inmediato, y se dejará constancia en el expediente personal remitiendo copia a la Dirección de Recursos Humanos.
+Las advertencias sobre asistencia deberá hacerlas la Dirección de Recursos Humanos.
+Toda suspensión que pueda proceder a consecuencia de aspectos disciplinarios, que conlleve una suspensión o despido, será impuesta por el Viceministro, previo procedimiento llevado a cabo por el Órgano Director que se designe; las gestiones de despido las firmará el Ministro de la Presidencia con observación de los trámites que establece el Estatuto de Servicio Civil y su Reglamento.

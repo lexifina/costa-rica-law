@@ -1,0 +1,4 @@
+Artículo 77.—No podrán concederse permisos para trabajar menos horas de la jornada diaria o semanal salvo por motivo de estudios en la forma ya regulada. No obstante, cuando se trate de labores docentes en instituciones de nivel superior, o de las excepciones previstas en el artículo 123 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, será permitido que servidores regulares trabajen menos de la jornada señalada, bajo las siguientes condiciones:
+a) Siempre que la labor respectiva del puesto pueda ser desempeñada eficientemente en un lapso menor de la jornada ordinaria o semanal a efecto de que no sea necesario el nombramiento de un sustituto, por el tiempo que esté ausente el titular.
+b) Que se suscriba un convenio entre la Presidencia o el Ministerio y el servidor.
+c) Que el servidor devengue solamente el sueldo proporcional correspondiente al tiempo efectivo de trabajo.

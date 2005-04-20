@@ -1,0 +1,1 @@
+Artículo 97.—Corresponde al superior inmediato efectuar la evaluación del desempeño, en el plazo establecido en el artículo anterior, siguiendo las instrucciones contenidas en el Manual de Procedimientos para la Evaluación del Desempeño.

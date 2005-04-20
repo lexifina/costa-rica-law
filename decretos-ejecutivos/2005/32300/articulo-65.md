@@ -1,0 +1,1 @@
+Artículo 65.—Los servidores de la Presidencia y del Ministerio, gozarán sin interrupción de su período de vacaciones. Las vacaciones se disfrutarán de conformidad con lo establecido en el artículo 158 del Código de Trabajo.

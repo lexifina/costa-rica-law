@@ -1,0 +1,1 @@
+Artículo 16.—Los superiores inmediatos serán los responsables de advertir a los funcionarios sobre la prohibición del fumado. La Presidencia o el Ministerio deberán, asimismo, indicar dicha prohibición por medio de rótulos en lugares visibles.

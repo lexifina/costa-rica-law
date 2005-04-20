@@ -1,0 +1,6 @@
+Artículo 135.—Salvo lo dispuesto en el artículo anterior, la aplicación de sanciones disciplinarias corresponderá:
+a) Al Ministro o Viceministro, según se trate de Directores, Jefes o servidores directamente dependientes de cada uno de ellos.
+b) A los superiores Inmediatos respectivos, cuando se trate de amonestación oral o de apercibimiento escrito.
+c) A la Dirección General, cuando se trate de suspensiones disciplinarias, previo procedimiento administrativo en donde se observe la garantía constitucional del debido proceso y los principios que la conforman, en especial el derecho de defensa.
+En casos de despido por justa causa y de suspensión previa mientras se tramita la correspondiente gestión de despido, se seguirán los trámites establecidos por el Estatuto de Servicio Civil y su Reglamento.
+Cuando la sanción fuere escrita, se deberá enviar copia a la Dirección de Recursos Humanos, para efectos de su inclusión en el expediente de servicios.

@@ -1,0 +1,1 @@
+Artículo 124.—Para efectos de las anteriores sanciones, las faltas se clasificarán como leves, de alguna gravedad o graves, según la trascendencia y las veces que se hayan cometido las mismas a juicio del Viceministro, previa consulta con el superior inmediato respectivo.

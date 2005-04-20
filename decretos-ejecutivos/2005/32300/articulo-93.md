@@ -1,0 +1,1 @@
+Artículo 93.—La Dirección de Recursos Humanos, llevará y custodiará un expediente personal para cada servidor de la Presidencia o del Ministerio. Dicho expediente deberá contener todos aquellos documentos y datos que sirvan para determinar el historial de los servicios.
