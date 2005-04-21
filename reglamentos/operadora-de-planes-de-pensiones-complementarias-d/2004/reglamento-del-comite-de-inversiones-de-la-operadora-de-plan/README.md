@@ -14,3 +14,4 @@ Reglamento del Comité de Inversiones de la Operadora de Planes de Pensiones Com
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-12 | la propia norma |
+| 2 | 2005-04-21 | Reglamento 177 (2005-04-21) |
