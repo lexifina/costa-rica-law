@@ -1,0 +1,1 @@
+Artículo 12.—Solicitudes de arreglo de pago. Aquel deudor que desee realizar un arreglo de pago, deberá hacer solicitud escrita, indicando las razones que le han impedido, o que le impedirán, el cumplimiento de la obligación en los términos originalmente pactados.

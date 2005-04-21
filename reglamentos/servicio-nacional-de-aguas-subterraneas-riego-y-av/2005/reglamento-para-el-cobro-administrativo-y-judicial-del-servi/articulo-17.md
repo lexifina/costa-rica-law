@@ -1,0 +1,1 @@
+Artículo 17.—Formalización del arreglo de pago. Todo arreglo de pago deberá respaldarse con la suscripción de un título ejecutivo, con al menos los mismos requisitos solicitados en el documento que dio origen a la deuda, salvo que se trate de una mera suspensión temporal de la gestión de cobro (Prórroga), que no requiera formalizar nuevo documento.

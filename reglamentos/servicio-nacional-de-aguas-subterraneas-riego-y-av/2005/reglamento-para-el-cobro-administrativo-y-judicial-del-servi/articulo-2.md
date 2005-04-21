@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este Reglamento será de aplicación obligatoria para todas las instancias administrativas de SENARA en lo que a cada una correspondiere, así como a los Abogados externos que sean contratados por el Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA), para gestionar el cobro judicial de las cuentas que se le asignen.

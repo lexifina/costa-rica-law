@@ -1,0 +1,1 @@
+Artículo 7º—Declaratoria de prescripción de deudas. La declaratoria de prescripción total o parcial de deudas, tanto de principal como de intereses corrientes y moratorios, solo procede a solicitud expresa de la parte deudora, sin que sea procedente declararla de oficio.

@@ -1,0 +1,4 @@
+Artículo 30.—Terminación o suspensión del proceso judicial. Una vez que el cobro judicial haya sido iniciado, solo podrá darse por terminado, en las siguientes circunstancias:
+a) Cuando se hubiere hecho el pago total de la suma adeudada al SENARA, incluyendo principal, intereses corrientes y moratorios, así como las costas procesales y personales.
+b) Cuando se hubiese llegado a un arreglo judicial o extrajudicial y se encuentren firmados los documentos de formalización del arreglo. En casos de arreglo extrajudicial, la Asesoría Legal de SENARA informará por escrito al abogado director del proceso, para que proceda a solicitar al juzgado correspondiente que de por terminado el proceso por haberse llegado a un arreglo extrajudicial.
+c) Cuando exista sentencia en firme y no hayan bienes susceptibles de embargo, según estudio de bienes efectuado bajo responsabilidad del abogado director del proceso, y así se informe por escrito a la Asesoría Legal del SENARA.

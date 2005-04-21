@@ -1,0 +1,3 @@
+SECCIÓN V
+Terminación del contrato de abogados externos
+Artículo 37.—Resolución de la contratación. Los abogados externos que por alguna razón personal o profesional, quieran dejar de servir al SENARA, deberán de comunicar esa decisión expresamente y por escrito a la Asesoría Legal del SENARA, con treinta días de antelación, nota de la cual remitirá una copia a la Gerencia del SENARA y al Área Administrativa Financiera. En este caso, el SENARA no le asignará más casos, sin embargo, ello no eximirá al profesional en Derecho de concluir, hasta su finalización, los procesos judiciales que le han sido asignados, salvo que, de acuerdo con las normas del contrato específico que se haya firmado entre las partes, se haya establecido algo distinto.
