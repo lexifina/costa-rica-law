@@ -13,3 +13,4 @@ Reglamento Autónomo de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-07 | la propia norma |
+| 2 | 2005-04-21 | Reglamento 737 (2005-04-21) |
