@@ -18,3 +18,4 @@ Reglamento Centroamericano sobre el Origen de las Mercancías
 | 3 | 2000-10-23 | Decreto Ejecutivo 29052 (2000-10-23) |
 | 4 | 2002-09-05 | Decreto Ejecutivo 30703 (2002-09-05) |
 | 5 | 2003-01-06 | Decreto Ejecutivo 30948 (2003-01-06) |
+| 6 | 2005-04-22 | Decreto Ejecutivo 32362 (2005-04-22) |
