@@ -14,3 +14,4 @@ Pone en vigencia Resolución 132-2004 (COMIECO-XXX: modificaciones al Arancel Ce
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-08 | la propia norma |
+| 2 | 2005-04-22 | Decreto Ejecutivo 32360 (2005-04-22) |
