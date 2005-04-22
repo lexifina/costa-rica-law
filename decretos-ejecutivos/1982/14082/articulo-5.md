@@ -231,8 +231,8 @@ Vinagres de toda clase
 Levaduras
 Velas, cirios, veladoras y mariposas para lámparas, excepto las coloreadas, decoradas o perfumadas
 Fósforos y cerillas a granel o en empaques
-Jabón para lavar, moldeado o troquelado
-(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+Jabón para lavar, moldeado o troquelado, excepto las preparaciones orgánicas tensoactivas usadas como jabón.
+(Así reformada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 32352 del 22 de abril de 2005)
 Papel higiénico
 Dentífricos
 Pastas dentales
@@ -696,7 +696,7 @@ Cuadernos y pinturas, hechos por pintores nacionales y extranjeros, producidos e
 Cajas mortuorias
 Consumo mensual de energía eléctrica que sea igual o inferior a 250 KW/h (cuando el consumo mensual exceda los 250 KW/hel impuesto cuya tarifa es del 5%, se aplicará al total de KW/h consumido
 Formularios para el cumplimiento de las obligaciones tributarias
-(Así adicionada el punto anterior por el artículo 7° del decreto eejcutivo N° 26048 del 28 de abril de 1997)
+(Así adicionada el punto anterior por el artículo 7° del decreto ejcutivo N° 26048 del 28 de abril de 1997)
 Prótesis oculares
 Toda clase de equipos médicos e instrumentos médico-quirúrgicos, requeridos por la Caja Costarricense de Seguro Social para la prestación de sus servicios
 Composiciones musicales
