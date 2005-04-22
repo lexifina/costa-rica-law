@@ -1,0 +1,1 @@
+Artículo 4º—Autoridades Responsables. El cumplimiento de las funciones encomendadas en la Ley, el Reglamento a la ley y las demás normas vigentes, es responsabilidad de la Junta Directiva, del Regulador General, del Auditor Interno, los jerarcas de Dirección y de todos los funcionarios de la Institución.

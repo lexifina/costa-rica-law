@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. El presente Reglamento establece la organización de la Autoridad Reguladora de los Servicios Públicos para el cumplimiento de las funciones encomendadas en la Ley y el Reglamento a la ley y también regula lo relativo a la estructura orgánica.
