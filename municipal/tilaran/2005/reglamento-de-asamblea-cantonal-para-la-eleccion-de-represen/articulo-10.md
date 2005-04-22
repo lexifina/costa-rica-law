@@ -1,0 +1,3 @@
+Artículo 10.—Podrán ingresar al recinto personas no delegadas con interés de ser electos o de observadores del desarrollo del proceso electivo, para lo que se levantará un listado aparte de dichos participantes, donde indiquen su nombre, número de cédula y firma, en todo caso deberán portar su cédula de identidad bajo las mismas condiciones de los delegados.
+Dichos asistentes tendrán derecho a voz, no a voto y deberán ubicarse en un lugar especial que no se confundan con los delegados. No se permitirá el ingreso de personas bajo efectos del alcohol u otras sustancias psicotrópicas.
+Una vez en el recinto, se deberá mantener el respeto, orden y disciplina adecuados.

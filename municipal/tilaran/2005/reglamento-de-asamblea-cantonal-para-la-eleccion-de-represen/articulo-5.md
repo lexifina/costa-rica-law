@@ -1,0 +1,1 @@
+Artículo 5°—Los nombramientos que resulten de la Asamblea, deberán ser ratificados por el Concejo Municipal de Tilarán, por medio de la Junta Directiva del Comité Cantonal en un plazo no mayor a siete días naturales.
