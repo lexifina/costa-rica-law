@@ -1,0 +1,2 @@
+Artículo 20 bis.—Son reuniones presenciales, las que se llevan a cabo en una sede, con la presencia física de los Ministros que integran el Consejo o del Viceministro en su caso, debidamente facultado. Son reuniones virtuales las que se realicen mediante el sistema de videoconferencia.
+(Así adicionado por Resolución 136-2004 COMIECO, puesta en vigencia por decreto ejecutivo N° 32361 de 22 de abril de 2005).

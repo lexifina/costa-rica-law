@@ -15,3 +15,4 @@ Pone en vigencia Resolución Nº 16-98 COMIECO -V: Reglamento de Organización y
 | --- | --- | --- |
 | 1 | 1998-03-23 | la propia norma |
 | 2 | 1999-09-30 | Decreto Ejecutivo 28223 (1999-09-30) |
+| 3 | 2005-04-22 | Decreto Ejecutivo 32361 (2005-04-22) |
