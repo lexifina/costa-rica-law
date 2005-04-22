@@ -1,0 +1,1 @@
+Artículo 23.—En caso de renuncia de algún miembro del Comité Cantonal de Deportes, será sustituido por el segundo y subsiguiente de acuerdo al orden de votación, según lo consigne el acta de asamblea.

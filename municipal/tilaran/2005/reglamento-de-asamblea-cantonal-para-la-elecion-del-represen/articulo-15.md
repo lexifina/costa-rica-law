@@ -1,0 +1,3 @@
+Artículo 15.—Únicamente podrá ser electo como representante de las organizaciones comunales y asociaciones del Cantón de Tilarán, ante el Comité Cantonal de Deportes en cargos directivos, las personas que reúnan los siguientes requisitos:
+Tener afición o alto espíritu por el deporte, ser mayor de dieciocho años, estar dispuesto a desempeñar el cargo con sentido de responsabilidad, ser residente del Cantón de Tilarán, estar presente para aceptar la postulación y/o nombramiento, no haber sido condenado en sentencia firme por la Comisión de Delitos contra la Hacienda Pública ni la propiedad privada.
+El electo será juramentado por el Concejo Municipal previo a entrar en posesión del cargo.

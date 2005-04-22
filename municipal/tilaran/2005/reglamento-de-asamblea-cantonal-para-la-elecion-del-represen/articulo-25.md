@@ -1,0 +1,1 @@
+Artículo 25.—Toda acción de nulidad debe plantearse por escrito ante el Concejo Municipal de Tilarán, dentro del término de tres días contados a partir del día hábil posterior a la celebración de la Asamblea.

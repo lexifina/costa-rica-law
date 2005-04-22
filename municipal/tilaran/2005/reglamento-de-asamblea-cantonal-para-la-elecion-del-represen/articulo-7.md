@@ -1,0 +1,1 @@
+Artículo 7º—La Asamblea se realizará en el lugar, día y hora señalada en la convocatoria y será dirigida por el representante cantonal, quien podrá contar con el auxilio de notarios públicos que den fe de lo actuado y personas que bajo su dirección colaboren en la buena marcha de la asamblea.
