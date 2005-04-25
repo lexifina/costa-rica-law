@@ -1,0 +1,1 @@
+Artículo 76.—Decláranse el pez vela (Istiophorus albidius), marlin azul (Makaira nigrioans), marlin negro (Makaira indica), marlin rallado (Tetrapturas audaz) y sábalo (Melaops atlanticus), como especies de interés turístico-deportivo.

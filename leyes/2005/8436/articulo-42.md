@@ -1,0 +1,2 @@
+Artículo 42.—Por la importancia del domo térmico del océano Pacífico para el desarrollo sostenible de la actividad pesquera, el Estado velará por la protección, el aprovechamiento y el manejo sostenible de los recursos marinos en las aguas jurisdiccionales, las cuales comprenden el afloramiento del domo térmico.
+El Estado promoverá internacionalmente la importancia de manejar los recursos marinos del domo térmico como recurso vital para la humanidad.

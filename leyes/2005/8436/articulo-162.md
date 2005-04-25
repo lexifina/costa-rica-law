@@ -1,0 +1,2 @@
+Artículo 162.—Para garantizar la seguridad laboral y la salud de los tripulantes de las embarcaciones, el INCOPESCA, el Ministerio de Salud y la Caja Costarricense de Seguro Social (CCSS), determinarán mediante Reglamento, las medidas necesarias para el cumplimiento de estos fines, entre los cuales necesariamente deberán incluir un botiquín de primeros auxilios y capacitación en esta materia de al menos uno de los tripulantes.
+En cuanto a la capacitación, el INCOPESCA coordinará, con el INA y los colegios universitarios, la implementación de los cursos necesarios.

@@ -1,0 +1,1 @@
+Artículo 93.—Cuando el INCOPESCA requiera análisis de laboratorio de las instalaciones acuícolas, podrá avalar las certificaciones de sanidad de organismos acuícolas emitidas por laboratorios debidamente acreditados y registrados ante el Instituto.

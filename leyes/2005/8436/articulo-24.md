@@ -1,0 +1,1 @@
+Artículo 24.—Entiéndese por pesca didáctica la actividad pesquera que realizan las instituciones educativas o de investigación oficialmente reconocidas, para impartir programas de enseñanza y capacitación en pesca o acuicultura. Para ejercer este tipo de pesca, los interesados deberán acreditar el permiso otorgado por la autoridad ejecutora.

@@ -1,0 +1,1 @@
+Artículo 147.—Será reprimido con quince a noventa días multa quien, en relación con el tipo de licencia, concesión, permiso o autorización, viole las disposiciones relativas a la protección, extracción, captura o comercialización de recursos pesqueros continentales o marinos, en cuanto a tamaños, cantidades, especies y zonas autorizadas de pesca o acuicultura.

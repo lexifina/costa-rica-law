@@ -1,0 +1,1 @@
+Artículo 35.—Al establecerse una veda, se precisará su carácter temporal o indefinido, así como la denominación común y científica de las especies vedadas y cualquier otra información conveniente para identificar la veda. Durante este período, el INCOPESCA ejercerá el monitoreo de las especies vedadas, ya sea él mismo o por medio de las universidades estatales.

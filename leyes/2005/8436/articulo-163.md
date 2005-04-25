@@ -1,0 +1,1 @@
+Artículo 163.—Las licencias o los permisos, las concesiones y las autorizaciones otorgados con anterioridad a la entrada en vigencia de la presente Ley, se mantendrán vigentes según las condiciones y los plazos establecidos en el otorgamiento.

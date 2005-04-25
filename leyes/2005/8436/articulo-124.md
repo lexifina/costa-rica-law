@@ -1,0 +1,1 @@
+Artículo 124.—Las instalaciones portuarias y marinas utilizadas para el desembarco y la limpieza de las capturas, deberán cumplir los requisitos técnicos, sanitarios y de cualquier otro tipo que se consideren pertinentes. El Reglamento de esta Ley establecerá los requisitos mínimos que deben cumplir para estos efectos, de acuerdo con la legislación vigente.

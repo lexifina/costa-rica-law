@@ -1,0 +1,1 @@
+Artículo 151.—Se impondrá multa de cinco a quince salarios base, de conformidad con el artículo 2 de la Ley Nº 7337, a quien incurra en las conductas establecidas en los incisos a), b), c), d), e), f), g), i), j), k) y l) del artículo 38 de esta Ley.

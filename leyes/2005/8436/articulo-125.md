@@ -1,0 +1,1 @@
+Artículo 125.—Los propietarios, responsables, empleados, operadores y trabajadores en general, deberán cumplir las normas relativas al acondicionamiento y la ubicación de las instalaciones industriales pesqueras y acuícolas, así como al manejo, la conservación y la industrialización de productos, materiales sanitarios, maquinaria, equipo, accesorios y equipos de seguridad.

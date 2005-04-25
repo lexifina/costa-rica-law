@@ -1,0 +1,1 @@
+Artículo 89.—Cualquier actividad de cultivo y manejo, independientemente del nivel y estadio de desarrollo de especies de flora y fauna acuáticas, para fines productivos o de investigación por parte de instituciones públicas o privadas, deberá cumplir los lineamientos de la presente Ley y su Reglamento.

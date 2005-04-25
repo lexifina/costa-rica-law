@@ -1,0 +1,1 @@
+Artículo 60.—Los barcos atuneros cerqueros de bandera nacional o extranjera no podrán ejercer actividades pesqueras dentro de las doce millas del mar territorial; lo anterior, sin perjuicio de lo establecido en las leyes nacionales vigentes y en los tratados internacionales.

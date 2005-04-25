@@ -1,0 +1,1 @@
+Artículo 28.—El presupuesto del INCOPESCA deberá contener, anualmente, los recursos económicos necesarios para desarrollar la investigación y capacitación pesquera y acuícola, de acuerdo con su plan anual operativo, y para implementar los alcances que le competen por esta Ley.

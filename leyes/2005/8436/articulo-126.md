@@ -1,0 +1,5 @@
+Artículo 126.—En esta materia, el INCOPESCA podrá:
+a) Proponer los proyectos de zonas portuarias pesqueras y acuícolas e indicar el uso de las áreas marítimas y terrestres y promover, ante la autoridad competente, su integración a los planes maestros que se autoricen.
+b) Propiciar la evaluación de la infraestructura pesquera y acuícola, en los puertos y en otros sitios, apoyándose en los resultados obtenidos; proponer la localización y dimensión de las obras y los servicios que requieran la flota pesquera nacional y la extranjera autorizadas, así como la actividad acuícola; promover la construcción y el mantenimiento de la infraestructura disponible.
+c) Participar, en conjunto con las autoridades competentes, en el estudio de los problemas de operación y de administración de la infraestructura pesquera.
+d) Fomentar la construcción y el funcionamiento de lonjas pesqueras y otros centros de acopio, con el propósito de lograr condiciones apropiadas afines con la calidad, la sanidad, la comercialización y el transporte de los productos pesqueros y acuícolas, que conlleven una mejor rentabilidad económica para los pescadores y acuicultores.

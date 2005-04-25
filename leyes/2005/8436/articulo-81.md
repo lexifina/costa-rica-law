@@ -1,0 +1,1 @@
+Artículo 81.—La actividad acuícola consiste en el cultivo y la producción de organismos acuáticos, sean flora o fauna, mediante el empleo de métodos y técnicas para su desarrollo controlado; abarca su ciclo biológico completo o parcial, en ambientes hídricos naturales o artificiales, tanto en aguas marinas como continentales.

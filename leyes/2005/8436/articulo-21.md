@@ -1,0 +1,3 @@
+Artículo 21.—El INCOPESCA definirá los objetivos, las políticas y los requerimientos de las investigaciones científicas y técnicas referidas a los recursos vivos marinos y acuícolas, que comprenderán la flora y fauna acuáticas, la evaluación de impactos de origen terrestre sobre las zonas costeras, la tecnología de pesca acuática marina, los ecosistemas costeros y cualquier otro recurso importante en el área de investigación.
+Para tales efectos, coordinará con las instituciones universitarias, los
+colegios universitarios y otras instancias que tengan la experiencia, el conocimiento y la tecnología de pesca acuática necesarios para realizar esas investigaciones.

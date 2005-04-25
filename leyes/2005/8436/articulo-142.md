@@ -1,0 +1,1 @@
+Artículo 142.—Será sancionado con pena de multa de veinte a sesenta salarios base, definidos en el artículo 2 de la Ley Nº 7337, de 5 de mayo de 1993, quien, con permiso, licencia o autorización de pesca o sin estos, utilice artes prohibidos o ilegales, al realizar faenas de pesca en aguas interiores, continentales, en el mar territorial o en la zona económica exclusiva.

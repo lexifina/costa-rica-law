@@ -1,0 +1,1 @@
+Artículo 160.—La interposición del recurso se hará por escrito y deberá expresar el nombre y domicilio del recurrente, los agravios, los elementos de prueba que se consideren necesarios y las constancias que acrediten la legitimación del promovente. El Reglamento de la presente Ley establecerá los demás requisitos para la interposición, tramitación y sustanciación del recurso.

@@ -1,0 +1,1 @@
+Artículo 170.—El Estado brindará el apoyo en materia financiera, de salud, seguridad y bienestar social a todas las personas que se dediquen a la actividad pesquera y acuícola. Estas medidas deberán ser contempladas en el Plan Nacional de Desarrollo Pesquero y Acuícola.

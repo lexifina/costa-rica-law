@@ -1,0 +1,1 @@
+Artículo 39.—Prohíbense la caza marítima, la captura de cetáceos, pinnípedos y quelonios, así como el aprovechamiento de sus lugares de cría, salvo lo establecido en los convenios o tratados internacionales debidamente ratificados por Costa Rica.

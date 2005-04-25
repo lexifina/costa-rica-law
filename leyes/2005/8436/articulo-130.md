@@ -1,0 +1,1 @@
+Artículo 130.—Todos los sujetos a los que esta Ley les confiere un derecho o beneficio, deberán presentar los informes acerca de los datos estadísticos requeridos por el INCOPESCA para el cumplimiento de sus fines y objetivos.
