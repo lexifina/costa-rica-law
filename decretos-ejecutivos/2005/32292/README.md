@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-04-13 | la propia norma |
+| 2 | 2005-04-25 | Decreto Ejecutivo 32335 (2005-04-25) |
