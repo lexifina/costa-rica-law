@@ -1,0 +1,1 @@
+Artículo 74.—Las capturas obtenidas de la pesca deportiva, según la cantidad autorizada de ejemplares, se destinarán a la taxidermia o al consumo de quienes las realicen, bajo los términos y las condiciones que determine el INCOPESCA.

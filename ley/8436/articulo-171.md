@@ -1,0 +1,1 @@
+Artículo 171.—El Poder Ejecutivo velará para que se incluyan al sector pesquero y acuícola, en igualdad de condiciones con los otros sectores, en cualquier negociación internacional, fideicomiso, ayuda económica y financiera que se realice para beneficio de la actividad productiva nacional, incluido el sector agropecuario.

@@ -1,0 +1,1 @@
+Artículo 48.—Las licencias para capturar camarones con fines comerciales en el mar Caribe, serán permitidas de conformidad con los criterios técnicos y científicos que emita la autoridad ejecutora. No se darán licencias para la captura en los parques nacionales y otras áreas protegidas.

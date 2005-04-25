@@ -1,0 +1,1 @@
+Artículo 11.—Los permisionarios estarán obligados a comunicar al INCOPESCA sobre las embarcaciones con licencia que dejen de laborar, por caso fortuito o fuerza mayor. Comunicado el suceso, deberán cumplir los plazos y las condiciones establecidos por la autoridad ejecutora.

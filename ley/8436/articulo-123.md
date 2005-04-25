@@ -1,0 +1,2 @@
+Artículo 123.—Exonérase a la flota pesquera nacional, excepto a la dedicada a la pesca deportiva, de todo tipo de impuestos nacionales para la importación de embarcaciones, repuestos, motores, implementos de navegación, de pesca y sus respectivos accesorios.
+En cumplimiento de lo dispuesto en el artículo 45 de la Ley Nº 7384, de 16 de marzo de 1994, RECOPE venderá el combustible (gasolina, regular y diesel) a la flota pesquera nacional, excepto para la actividad de pesca deportiva, a un precio competitivo con el precio internacional.

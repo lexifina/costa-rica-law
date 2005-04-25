@@ -1,4 +1,6 @@
+(Derogado)
 Ley Nº 5775
+(Esta ley fue DEROGADA, por el artículo 165, de la Ley N° 8436 de 1° de marzo de 2005, Ley de Pesca y Acuicultura).
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 ( Texto modificado y reproducido íntegramente por el artículo 1º de la ley No. 6267 de 29 de agosto de 1978 ).

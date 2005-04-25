@@ -1,0 +1,3 @@
+Artículo 96.—Prohíbese el vertimiento fuera del área de desarrollo del proyecto de acuicultura de productos, especies o alimentos requeridos para el manejo y aprovechamiento sostenible de especies bajo cultivo en aguas marinas y continentales.
+En el área del proyecto de acuicultura únicamente podrán ser utilizados los productos, las especies o los alimentos expresamente autorizados por INCOPESCA.
+Los productores deberán mantener controles y aplicar medidas eficaces para que no puedan escapar de las instalaciones de cultivo, los animales, las especies ni sus productos sexuales o en alguna fase del ciclo de vida, especialmente si se trata de especies exóticas.

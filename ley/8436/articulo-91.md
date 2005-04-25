@@ -1,0 +1,1 @@
+Artículo 91.—El INCOPESCA, en coordinación con las demás autoridades competentes, vigilará la calidad de las aguas procedentes de los sistemas productivos a los cuerpos de aguas naturales. El MINAE podrá revocar la concesión, en caso de que el productor acuícola incumpla los requisitos de la presente Ley y su Reglamento, previo el debido proceso.

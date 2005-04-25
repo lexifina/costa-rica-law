@@ -1,0 +1,1 @@
+Artículo 148.—Será reprimido con veinticinco a sesenta salarios base, quien viole las disposiciones o regulaciones de naturaleza técnica para realizar las faenas o labores de pesca o acuicultura en aguas marinas jurisdiccionales, según lo exija cada tipo de licencia, permiso, autorización o concesión.

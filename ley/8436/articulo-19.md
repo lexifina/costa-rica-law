@@ -1,0 +1,1 @@
+Artículo 19.—Cuando las universidades nacionales o los colegios universitarios, ambos estatales y el INA, desarrollen la pesca de fomento, estas instituciones podrán disponer de los productos pesqueros obtenidos durante el desarrollo de tal actividad, en las condiciones que determine la autoridad ejecutora.

@@ -1,0 +1,1 @@
+Artículo 30.—Las instituciones de enseñanza o investigación que desarrollen programas educativos afines a la actividad pesquera y acuícola, deberán aportar al INCOPESCA un plan anual operativo de actividades, para articular las acciones por seguir.
