@@ -14,3 +14,4 @@ Reglamento de Fiscalización Profesional de Entidades Consultoras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-10-26 | la propia norma |
+| 2 | 2005-04-25 | Decreto Ejecutivo 32371 (2005-04-25) |
