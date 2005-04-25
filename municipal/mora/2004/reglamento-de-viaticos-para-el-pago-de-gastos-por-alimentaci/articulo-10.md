@@ -1,1 +1,2 @@
-Artículo 10.—Los formularios de transporte y/o alimentación, deben ser llenados al final de la sesión municipal y entregados a la secretaria del Concejo Municipal, quien con su firma y sello dará fe de la asistencia del regidor o síndico y transferirá los documentos a la tesorería municipal para lo que corresponda.
+Artículo 10.—TM pago se hará dentro de los ocho días siguientes de recibida y aprobada la solicitud de pago de los viáticos correspondientes; las dependencias involucradas en el pago de tales viáticos deben darle un trámite expedito y prioritario, sin sobrepasar este plazo.
+(Así reformado en sesión N° 218 del 25 de abril del 2005)

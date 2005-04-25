@@ -1,0 +1,2 @@
+Artículo 12.—En ningún caso se autorizará una nueva erogación, ni se podrá girar suma alguna por tales conceptos al regidor o síndico, propietario o suplente, que tuviere pendiente alguna liquidación. El incumplimiento en la presentación de la liquidación de gastos dentro del plazo establecido en el artículo 7, obligará al Concejo Municipal a dictar las medidas que correspondan conforme a este Reglamento.
+(Así adicionado en sesión N° 218 del 25 de abril del 2005)

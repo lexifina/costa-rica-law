@@ -1,7 +1,4 @@
-Artículo 4º—La suma máxima a pagar por concepto de gastos de transporte a regidores y síndicos, conforme este reglamento, será una asignación conforme a la siguiente tabla, que considera su procedencia y distancia:
-• Regidores y síndicos procedentes del distrito de Picagres cuatro mil quinientos colones (¢4.500,00).
-• Regidores y síndicos procedentes de Piedras Negras, cuatro mil colones (¢4.000,00).
-Estos montos se actualizarán anualmente de acuerdo a los precios que rijan en ese momento.
-• Regidores y Síndicos procedentes de cualquier otro distrito, siempre y cuando cumpla con la disposición del artículo 2º de este Reglamento, se le dará una asignación de acuerdo con los precios que rijan en ese momento.
-• Los Regidores y Síndicos procedentes de Tabarcia, cuatro mil quinientos colones exactos.
-(Así adicionado mediante sesión N° 180 del 1° de noviembre del 2004)
+Artículo 4. Por viático en este caso, debe entenderse aquella suma destinada a la atención de gastos concretos de transporte y alimentación, que la Municipalidad reconocerá a los regidores y síndicos, propietarios y/o suplentes, siempre y cuando asistan a las sesiones del Concejo Municipal, en los horarios que al efecto se disponga por acuerdo firme.
+Los viáticos correspondientes a transporte, se reconocerán a dichas personas, cuando estos deban desplazarse a la sede de sesiones del Concejo Municipal y de ésta a sus domicilios, siempre y cuando la Municipalidad no le facilite el transporte en vehículos de su propiedad.
+Los viáticos por concepto de alimentación, serán reconocidos a dichas personas, cuando asistan a las sesiones del Concejo y éstas se prolonguen de las diecinueve horas en adelante; en caso de las sesiones celebradas en la noche; si las sesiones se realizan a otra hora para efectos del reconocimiento del almuerzo se estará a lo dispuesto en este reglamento
+(Así reformado en sesión N° 218 del 25 de abril del 2005)

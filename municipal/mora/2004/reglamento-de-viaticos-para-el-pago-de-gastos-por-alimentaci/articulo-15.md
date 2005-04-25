@@ -1,0 +1,2 @@
+Artículo 15.—El gasto de transporte se reconocerá del lugar de residencia del regidor y/o síndico, propietarios o suplentes al lugar sede del Concejo Municipal y viceversa, atendiendo a lo establecido en los numerales 23 y 28 del Código Municipal, en caso de sesiones extraordinarias en otros lugares, se deberá indicar el lugar donde esa sesión se lleve a cabo.
+(Así adicionado en sesión N° 218 del 25 de abril del 2005)

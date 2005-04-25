@@ -1,0 +1,3 @@
+Artículo 16.—Para los efectos: reconocimiento de gastos de transporte, se estará a lo dispuesto por el Concejo Municipal, para el horario de las sesiones ordinarias y extraordinarias, a celebrar por éste y/o sus Comisiones, ya sea en la sede usual del Concejo, o en cualquier otro lugar donde se realice la sesión y así lo haya acordado el Concejo por acuerdo firme.
+Los gastos correspondientes a la alimentación, se reconocerán a partir de las diecinueve horas (7:00 p. m.), cuando las sesiones sean a partir de las diecisiete horas. Cuando las sesiones se celebren en horas de la mañana o de la tarde, se reconocerá el gasto correspondiente a almuerzo, según el monto que indica este Reglamento para la cena.
+(Así adicionado en sesión N° 218 del 25 de abril del 2005)

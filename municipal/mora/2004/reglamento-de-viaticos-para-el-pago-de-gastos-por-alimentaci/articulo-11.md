@@ -1,1 +1,2 @@
-Artículo 11.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 11.—La información consignada en la liquidación de gastos de transporte y alimentación tiene el carácter de declaración jurada, o sea, que ésta es una relación cierta de los gastos incurridos.
+(Así adicionado en sesión N° 218 del 25 de abril del 2005)
