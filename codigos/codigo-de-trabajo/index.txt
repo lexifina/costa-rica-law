@@ -623,3 +623,5 @@ articulo-621.md
 articulo-622.md
 articulo-623.md
 articulo-624.md
+articulo-120-bis.md
+articulo-198-bis.md
