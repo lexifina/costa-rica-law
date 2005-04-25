@@ -1,0 +1,2 @@
+Artículo 10.—La autoridad ejecutora de esta Ley, debidamente fundamentada en criterios técnicos, científicos, económicos, sociales o ambientales, podrá limitar la extracción pesquera en áreas y especies determinadas de pesca dentro de la jurisdicción nacional, por razones de interés nacional en la conservación de la especie o el recurso acuático.
+Toda persona física o jurídica deberá respetar los períodos, las áreas y las especies de veda fijados por el órgano competente.

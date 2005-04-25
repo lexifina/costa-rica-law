@@ -1,0 +1,3 @@
+Artículo 59.—El INCOPESCA establecerá un sistema de seguimiento satelital, para fiscalizar y controlar el ejercicio de la actividad pesquera de las embarcaciones atuneras con red de cerco, en la zona económica exclusiva.
+Para poder desarrollar dicha actividad, estas embarcaciones atuneras deberán portar los equipos satelitales requeridos y autorizados por el INCOPESCA y tenerlos en buen funcionamiento. Se le cancelará la licencia de pesca, sin indemnización alguna, a la persona física o jurídica titular o adjudicataria de la licencia que incumpla lo establecido en este artículo.
+La determinación de tal sistema satelital no podrá diseñarse en forma que se produzcan discriminaciones arbitrarias, en cuanto a los proveedores o las marcas de los equipos requeridos.

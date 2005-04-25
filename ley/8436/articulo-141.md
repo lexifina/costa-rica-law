@@ -1,0 +1,1 @@
+Artículo 141.—Será sancionado con pena de multa de diez a cuarenta salarios base, definidos en el artículo 2 de la Ley Nº 7337, de 5 de mayo de 1993, quien pesque en épocas y zonas de veda o pesque especies vedadas con permiso, licencia o autorización de pesca o sin estos, en aguas interiores, en el mar territorial o en la zona económica exclusiva.

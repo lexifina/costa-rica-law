@@ -1,0 +1,3 @@
+CAPÍTULO III
+Pesca del camarón
+Artículo 45.—El INCOPESCA podrá autorizar la captura y comercialización de camarón blanco (Litopenaeus stylirostris, Litopenaeus vannamel, Litopenaeus occidentalis), camarón (Café californiens) con fines comerciales, camarón “pink” (Penaeus brevirostris), camarón fidel (Solenocera agassizi), camarón tití, camarón camello y camello real (Heterocarpus sp), así como de otras especies cuyo aprovechamiento comercial sea determinado por la autoridad ejecutora previo estudio técnicocientífico. El tamaño y peso proporcionales de cada especie de camarón por capturar será establecido en el Reglamento de esta Ley.

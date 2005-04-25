@@ -1,0 +1,1 @@
+Artículo 166.—Autorízase a la CCSS para que establezca convenios con las organizaciones pesqueras debidamente inscritas, a fin de que, de acuerdo con la actividad pesquera, se fijen parámetros acordes de cotización, según la actividad laboral atípica de que se trate.

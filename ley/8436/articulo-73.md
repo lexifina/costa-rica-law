@@ -1,0 +1,1 @@
+Artículo 73.—El INCOPESCA establecerá los cánones, las épocas, las zonas y las tallas mínimas, así como el número máximo de ejemplares que pueda capturar un pescador deportista, de acuerdo con las condiciones del recurso de que se trate y las características particulares del lugar donde se desarrolle la actividad.

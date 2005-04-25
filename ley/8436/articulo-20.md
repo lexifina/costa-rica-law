@@ -1,0 +1,1 @@
+Artículo 20.—Para desarrollar las actividades de investigación científica y tecnológica, el INCOPESCA contará con el apoyo de las instituciones públicas y las privadas, nacionales o extranjeras, que voluntariamente lo ofrezcan y tengan capacidad para desarrollar investigaciones científico-tecnológicas o de los recursos acuáticos pesqueros y las comunidades pesqueras y acuícolas.

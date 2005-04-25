@@ -1,0 +1,1 @@
+Artículo 134.—Todo hecho punible sancionado conforme a la presente Ley, tendrá como consecuencia la pérdida, en favor del INCOPESCA, de los artes de pesca que se hayan utilizado para cometer el delito.

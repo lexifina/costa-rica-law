@@ -1,0 +1,1 @@
+Artículo 99.—Quienes comercialicen e industrialicen los recursos marinos, pesqueros y acuícolas, deberán sujetarse a las normas de comercialización, sanidad, calidad e inspección que fijen sobre la materia las autoridades competentes.

@@ -1,6 +1,6 @@
 ARTICULO 17.- La Junta Directiva del Instituto tendrá las siguientes atribuciones:
 a) Ejercer las atribuciones que la presente Ley le confiere.
-b) Dirigir, dentro de las normas y principios de esta Ley, la política pesquera, de acuacultura, económica y social del Instituto y determinar su organización administrativa.
+b) Dirigir, dentro de las normas y principios de esta Ley, la política pesquera, de acuicultura*, económica y social del Instituto y determinar su organización administrativa.
 c) Velar por el cumplimiento de los fines del Instituto.
 ch) Aprobar, modificar o improbar los presupuestos ordinarios y extraordinarios del Instituto, de conformidad con la Ley Orgánica de la Contraloría General de la República.
 d) Aprobar la memoria anual y los estados financieros de la Institución.
@@ -15,4 +15,5 @@ l) Nombrar de su seno al Vicepresidente en la primera sesión.
 ll) Elaborar los proyectos de ley que se estime necesarios para lograr mejor y con mayor rapidez, los objetivos establecidos en esta Ley.
 m) Incoar las acciones judiciales correspondientes, en defensa de los derechos del Instituto. Transigir o someter a arbitraje los litigios que tenga y otorgar los poderes judiciales y extrajudiciales indispensables para la debida atención de sus negocios.
 n) Ejercer las funciones a las que se refieren ésta y cualesquiera otras leyes que le correspondan, de acuerdo con las leyes y reglamentos aplicables.
-ñ) Vigilar porque se apliquen las políticas y la legislación que garanticen la sostenibilidad y el aprovechamiento racional de los recursos marinos y de acuacultura.
+ñ) Vigilar porque se apliquen las políticas y la legislación que garanticen la sostenibilidad y el aprovechamiento racional de los recursos marinos y de acuicultura*.
+*(Así modificado por el artículo 168 de la Ley N° 8436 de 1 de marzo de 2005).

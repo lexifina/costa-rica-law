@@ -1,0 +1,2 @@
+Artículo 16.—La pesca de fomento realizada por personas físicas o jurídicas costarricenses o extranjeras, o por organismos internacionales con barcos de bandera nacional o extranjera, requerirá un permiso extendido por la autoridad ejecutora.
+La autoridad ejecutora deberá designar a un representante, con el carácter de observador, para barcos de bandera extranjera y, discrecionalmente, para barcos de bandera nacional, para que fiscalice los trabajos de investigación y verifique que se ajusta a las condiciones y los límites que fije el INCOPESCA.

@@ -1,0 +1,1 @@
+Artículo 115.—La caducidad y la revocatoria serán declaradas de acuerdo con el procedimiento establecido en el Reglamento de esta Ley. A los interesados se les otorgará la garantía del debido proceso.

@@ -1,0 +1,1 @@
+Artículo 37.—Las especies y áreas vedadas no podrán ser objeto de pesca, excepto los volúmenes que el INCOPESCA autorice, mediante permisos o autorizaciones específicas y temporales, para fines científicos y de investigación para la actividad pesquera.

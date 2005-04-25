@@ -1,0 +1,2 @@
+Artículo 65.—El INCOPESCA podrá autorizar la pesca de calamar con poteras para carnada, únicamente para las embarcaciones artesanales de pequeña y mediana escala, así como las catalogadas como pesca palangrera costarricense.
+En el caso de la pesca de calamar para el consumo humano solo podrá realizarse previo permiso del INCOPESCA a la embarcación que lo solicite. Para tales efectos, el INCOPESCA deberá efectuar estudios técnicos para determinar los ciclos biológicos en que exista abundancia o escasez de dicho recurso.

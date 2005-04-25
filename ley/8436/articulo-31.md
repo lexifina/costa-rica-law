@@ -1,0 +1,1 @@
+Artículo 31.—El permiso para la pesca didáctica podrá comprender la comercialización de las capturas que se obtengan, con los límites y las condiciones que se dispongan en el permiso y las leyes reguladoras de la institución dedicada a la pesca didáctica.

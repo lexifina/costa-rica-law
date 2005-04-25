@@ -1,0 +1,1 @@
+Artículo 22.—El INCOPESCA deberá solicitar, a toda persona física o jurídica dedicada a la pesca de fomento, que antes de realizar la investigación de los recursos acuáticos suministre la información requerida referente a la ejecución de la investigación.

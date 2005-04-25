@@ -1,0 +1,1 @@
+Artículo 107.—Además de los requisitos establecidos en la presente Ley o en otras disposiciones reglamentarias, los solicitantes de licencias de pesca deberán demostrar la posesión legal de los bienes necesarios para cumplir el objetivo de la solicitud.

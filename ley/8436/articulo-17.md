@@ -1,0 +1,1 @@
+Artículo 17.—El INCOPESCA promoverá la pesca de fomento y podrá permitirla a científicos, técnicos e instituciones de investigación científica, tanto nacionales como extranjeras, debidamente acreditadas como tales. Para ello, deberán aportar a esta Institución un plan de actividades, conforme a las disposiciones reglamentarias de la presente Ley.

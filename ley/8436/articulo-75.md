@@ -1,0 +1,1 @@
+Artículo 75.—Tanto la tripulación como quienes practiquen la pesca deportiva a bordo de una embarcación o de manera subacuática, deberán portar el respectivo carné de pesca deportiva extendido por el INCOPESCA.

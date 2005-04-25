@@ -1,7 +1,7 @@
+(Derogado)
 El siguiente
-REGLAMENTO DE LA LEY Nº 190 DE 28 DE SETIEMBRE DE 1948,
-SOBRE LA LEY DE PESCA Y CAZA MARITIMAS
-DE LA PESCA
+REGLAMENTO DE LA LEY Nº 190 DE 28 DE SETIEMBRE DE 1948,SOBRE LA LEY DE PESCA Y CAZA MARITIMAS DE LA PESCA
+(DEROGADO, por el artículo 165, de la Ley N° 8436 de 1° de marzo de 2005, Ley de Caza y Acuicultura).
 ARTICULO 1º.- La pesca marítima se clasifica en:
 a) Pesca de la Bajura, la que se efectúa por embarcaciones que se
 internan en el mar no más de doce millas desde la costa;

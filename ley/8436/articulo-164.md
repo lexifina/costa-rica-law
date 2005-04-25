@@ -1,0 +1,1 @@
+Artículo 164.—Los permisos, las concesiones, las licencias y las autorizaciones podrán cancelarse, sin lugar a indemnizaciones por el incumplimiento de los contratos o por inobservancia de esta Ley y de su Reglamento, sin perjuicio de otras responsabilidades en que incurran los adjudicatarios.

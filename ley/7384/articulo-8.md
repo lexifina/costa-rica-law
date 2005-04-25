@@ -1,4 +1,5 @@
 ARTICULO 8.- Para ser miembro de la Junta Directiva se necesita:
 a) Ser mayor de edad.
 b) Ser costarricense por nacimiento o por naturalización, con no menos de diez años de residencia en el país.
-c) Tener amplia experiencia o conocimientos en materia pesquera, de acuacultura, o en ambas.
+c) Tener amplia experiencia o conocimientos en materia pesquera, de acuicultura*, o en ambas.
+*(Así modificado por el artículo 168 de la Ley N° 8436 de 1 de marzo de 2005).

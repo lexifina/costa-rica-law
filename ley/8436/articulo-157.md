@@ -1,0 +1,1 @@
+Artículo 157.—Para aplicar las sanciones por la violación de normas de la presente Ley, la denominación salario base se entenderá como la contenida en el artículo 2 de la Ley Nº 7337, de 5 de mayo de 1993.

@@ -1,0 +1,1 @@
+Artículo 29.—Para promover y allegar recursos económicos para el desarrollo científico y tecnológico de la actividad pesquera y acuícola, el INCOPESCA podrá recibir donaciones o celebrar convenios de cooperación con personas físicas o jurídicas y con instituciones nacionales e internacionales.
