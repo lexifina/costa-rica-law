@@ -1,0 +1,3 @@
+Artículo 9º—Instalación, Construcción y Visado de Planos Constructivos: Toda persona física o jurídica que desee construir una granja porcina deberá contar con:
+a) Permiso de ubicación extendido por la Dirección de Área Rectora de Salud respectiva del MS.
+b) Planos constructivos de las instalaciones y de los sistemas de tratamiento de las aguas residuales que se requieren para su aprobación, adjunto Memoria de cálculo y manual de operación y mantenimiento del sistema de tratamiento de las aguas residuales; según lo estipulado en el Decreto Ejecutivo Nº 27967-MP-MIVAHS- MEIC del 1° de julio de 1999 “Reglamento para el Trámite de Visado de Planos para la Construcción”.

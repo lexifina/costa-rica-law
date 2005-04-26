@@ -1,0 +1,2 @@
+Artículo 26.—Revocatoria de permisos: Cualquier variación en la infraestructura física, en el número de cerdos, en el manejo y control de la cerdaza y de las condiciones generales de la granja bajo las cuales fue otorgado el Permiso sin previa aprobación del MS; faculta a este para la revocatoria del permiso otorgado (artículo 364 Ley General de Salud).
+En caso de cancelación del Permiso de Funcionamiento, el mismo será renovado en el momento que se demuestre el cumplimiento de las medidas que motivaron la cancelación.

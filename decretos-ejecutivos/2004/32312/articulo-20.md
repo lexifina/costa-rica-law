@@ -1,0 +1,1 @@
+Artículo 20.—Control de moscas, artrópodos y roedores: Todo propietario, administrador o encargado de una granja porcina deberá implementar un programa de control de moscas, artrópodos y roedores, el cual será verificado en el campo por las autoridades de salud.

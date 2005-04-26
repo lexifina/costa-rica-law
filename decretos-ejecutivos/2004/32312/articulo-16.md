@@ -1,0 +1,1 @@
+Artículo 16.—Modificación del establecimiento o aumento en la población porcina: En caso que las condiciones en que fue otorgado el permiso sean modificadas, ya sea porque se requieran hacer cambios en la infraestructura, aumentar la población porcina, u otros, se debe solicitar de previo el permiso al Área Rectora de Salud correspondiente.
