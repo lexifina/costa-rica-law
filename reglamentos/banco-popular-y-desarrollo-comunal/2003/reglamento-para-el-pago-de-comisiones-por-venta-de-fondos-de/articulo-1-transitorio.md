@@ -1,1 +1,0 @@
-Transitorio 1.—Dentro del mes siguiente a la publicación del presente Reglamento, quienes deban nombrar miembros del Comité de Inversiones, comunicarán dichos nombramientos a la Junta Directiva de Popular Sociedad de Fondos de Inversión.

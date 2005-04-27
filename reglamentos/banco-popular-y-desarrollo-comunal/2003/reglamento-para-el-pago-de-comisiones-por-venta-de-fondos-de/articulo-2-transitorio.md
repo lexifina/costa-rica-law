@@ -1,1 +1,0 @@
-Transitorio 2.—Para el nombramiento del miembro independiente del Comité de Inversiones, la Gerencia de Popular Sociedad de Fondos de Inversión enviará a la Junta Directiva, dentro de los ocho días siguientes a la publicación del presente Reglamento, la terna a partir de la cual la Junta Directiva hará el nombramiento que corresponda.

@@ -14,3 +14,4 @@ Reglamento para el pago de comisiones por venta de fondos de inversión de Popul
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-13 | la propia norma |
+| 2 | 2005-04-27 | Reglamento 134 (2005-04-27) |
