@@ -1,1 +1,0 @@
-Artículo 6º—El registro de este tipo de pruebas tendrá una vigencia de cinco años, salvo que las infracciones en la elaboración, comercio o uso en que haya incurrido su titular, o experiencia demostrativa de que la prueba es insegura o ineficaz en los términos en que fue autorizada, hagan procedente su cancelación o la modificación que corresponda.

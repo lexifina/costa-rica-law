@@ -1,1 +1,0 @@
-Artículo 3º—Para la importación, fabricación, comercialización y uso de las pruebas rápidas de diagnóstico es necesario su registro previo en la Dirección de Registros y Controles del Ministerio de Salud.

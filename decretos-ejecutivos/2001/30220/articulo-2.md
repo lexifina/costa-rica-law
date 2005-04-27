@@ -1,1 +1,0 @@
-Artículo 2º—Para los efectos del presente Decreto se entenderá por prueba rápida de diagnóstico, aquella que utiliza reactivos, sustancias o materiales de laboratorio en pequeñas cantidades que permiten establecer resultados rápidos in vitro.
