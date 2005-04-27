@@ -1,0 +1,2 @@
+Artículo 3º—Cambios en la información o documentación presentada. Cualquier hecho o situación que modifique la información o documentos presentados, deberá ser informado a la Superintendencia General de Entidades Financieras en un plazo no mayor a cinco días hábiles, adjuntando la documentación debidamente actualizada.
+Cuando el solicitante requiera un plazo adicional para la actualización de la información, deberá solicitarlo por escrito a la Superintendencia, y se entenderá como suspendido el plazo de resolución indicado en el siguiente artículo.

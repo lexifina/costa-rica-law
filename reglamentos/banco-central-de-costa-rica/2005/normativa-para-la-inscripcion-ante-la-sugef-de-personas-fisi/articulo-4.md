@@ -1,0 +1,1 @@
+Artículo 4º—Plazo de resolución. Una vez que se cuente con toda la información indicada en el artículo 2º de esta Normativa, la Superintendencia tendrá un plazo de treinta días hábiles contados a partir del momento en que toda la información esté completa, para presentar ante el Consejo Nacional de Supervisión el dictamen a que se refiere el artículo 15 de la Ley Nº 8204.
