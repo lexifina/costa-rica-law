@@ -1,2 +1,0 @@
-Artículo 3°—Se reforma el párrafo primero del artículo 5 del Reglamento citado, para que en adelante se lea así:
-"Artículo 5°—Para efectos de comparación de precios, bienes nacionales y bienes originarios de los Estados Unidos Mexicanos, las instituciones del Estado, señaladas en el artículo primero, deberán agregar al valor CIF de la importación los siguientes porcentajes, que incluye los derechos arancelarios de importación y los costos de internación."
