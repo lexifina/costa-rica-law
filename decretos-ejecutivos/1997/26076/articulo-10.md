@@ -1,1 +1,0 @@
-Artículo 10.—Para efectos de comparación de precios entre los oferentes nacionales y los de Zonas Francas instaladas en el país. las instituciones del Estado señaladas en el artículo primero, deberán utilizar los porcentajes establecidos en el artículo tercero de este Decreto: los cuales serán aplicados sobre el valor del contenido importado.

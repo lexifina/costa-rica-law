@@ -1,2 +1,0 @@
-Artículo 2°—En caso de duda de la administración o discrepancia planteada por un oferente respecto a calidades de los productos se procederá a consultar el caso a la Oficina Nacional de Normas y Unidades de Medida del Ministerio de Economía, Industria y Comercio, la cual deberá decidir, en un plazo no superior de treinta días naturales, ese aspecto en forma privativa.
-En caso de discrepancia, ésta sólo puede ser planteada dentro de los cinco días hábiles siguientes al acto administrativo.

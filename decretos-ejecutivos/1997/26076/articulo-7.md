@@ -1,1 +1,0 @@
-Artículo 7°—Para efectos de comparación de precios entre los oferentes nacionales y de países centroamericanos signatarios del Tratado General de Integración Económica Centroamericana, las instituciones del Estado señaladas en el artículo primero deberán agregar al Valor CIF de la importación un 4.7% por concepto de gastos de internación y 1% de la Ley 6966.

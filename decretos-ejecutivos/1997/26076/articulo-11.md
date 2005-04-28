@@ -1,1 +1,0 @@
-Artículo 11—El Ministerio de Economía. Industria y Comercio, deberá efectuar una revisión anual de los porcentajes Incluidos en los artículos 3 y 5, la cual deberá elaborarse antes del 15 de febrero. Las modificaciones correspondientes deberán establecerse por Decreto, y publicarse, en el Diario Oficial La Gaceta, antes del 15 de marzo de cada año.

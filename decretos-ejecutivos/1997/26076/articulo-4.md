@@ -1,1 +1,0 @@
-Artículo 4.—En aquellas licitaciones en que participen únicamente empresas centroamericanas y de terceros mercados, las instituciones del Estado deberán utilizar para efectos comparativos de precios los porcentajes establecidos en el artículo anterior.

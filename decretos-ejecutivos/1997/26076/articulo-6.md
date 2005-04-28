@@ -1,1 +1,0 @@
-Artículo 6°—Para aquellos productos licitados por las instituciones que se incluyen en el artículo 1 del presente reglamento, y que no aparecen en las listas de los artículos 3 y 5, las instituciones deberán consultar al Ministerio de Economía, industria y Comercio, el porcentaje a aplicar.

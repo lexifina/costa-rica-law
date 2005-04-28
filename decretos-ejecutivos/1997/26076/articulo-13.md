@@ -1,1 +1,0 @@
-Artículo 13.—El Ministro de Economía, Industria y Comercio deberá proponer ante el Consejo de Ministros de Integración Económica Centroamericana la elaboración de un reglamento centroamericano de Compras del Estado, que entre en vigencia a la mayor brevedad posible.

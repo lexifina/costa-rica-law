@@ -1,1 +1,0 @@
-Articulo 8°—Las instituciones que se incluyen en el artículo 1 del presente reglamento deberán especificar claramente en todos los carteles de licitación, si los precios cotizados en las ofertas, tanto nacionales como extranjeras, deben incluir o no. el impuesto selectivo de consumo y el impuesto de ventas, así como cualquier otro gravamen que se establezca en el futuro.
