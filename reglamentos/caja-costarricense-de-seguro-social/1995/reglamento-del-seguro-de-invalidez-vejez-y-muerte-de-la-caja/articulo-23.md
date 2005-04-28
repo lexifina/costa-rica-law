@@ -1,8 +1,6 @@
 CAPÍTULO IV
 De los montos de las pensiones Monto de las pensiones por vejez e invalidez
-Artículo 23°
-El salario de referencia para el cálculo de la pensión por vejez, será un promedio de los salarios mensuales sobre los cuales efectivamente cotizó el asegurado durante los últimos 240 (doscientos cuarenta) meses.
-El salario de referencia para el cálculo de la pensión por invalidez, será un promedio de los últimos 60 salarios mensuales reportados. Cuando el derecho a pensión por invalidez se consolida, sin que el asegurado übiere aportado 60 (sesenta) cuotas mensuales, se tomarán en cuenta, para el calculo del salario promedio, todos los salarios sobre los que se cotizó.
-En ambos casos, para determinar el salario de referencia, se actualizarán los salarios aplicando la variación en el índice de Precios al Consumidor.
-La pensión se pagará mensualmente, e incluirá además un único pago adicional por concepto de aguinaldo (treceavo mes), igual a una toceava pane del total de pensiones efectivamente pagadas durante el año l que se contrae.
-(Así reformado por acuerdo tomado en sesión N° 7085 de 10 de diciembre de 1996)
+Artículo 23.—La pensión por vejez o invalidez se calculará con base en el promedio de los últimos 240 salarios o ingresos mensuales, devengados y cotizados por el asegurado, actualizados por inflación, tomando como base el índice de precios al consumidor.
+Cuando el derecho a pensión por invalidez o muerte se consolida sin que el asegurado hubiere aportado 240 cuotas mensuales, se tomarán en cuenta para el cálculo del salario promedio la totalidad de salarios reportados, actualizados por inflación.
+La pensión se pagará mensualmente e incluirá un pago adicional por concepto de aguinaldo (treceavo mes) igual a una duodécima parte del total de pensiones efectivamente pagadas durante el año a que se contrae.
+(Así reformado en el artículo 12 de la sesión N° 7950 y en el artículo 7 de la sesión N° N° 7952 celabradas 21 y el 28 de abril del 2005)
