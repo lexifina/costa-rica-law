@@ -14,3 +14,4 @@ Reglamento sobre Mantenimiento Reparación y Modificación de Aeronaves(RAC 43)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-26 | la propia norma |
+| 2 | 2005-04-29 | Decreto Ejecutivo 32392 (2005-04-29) |
