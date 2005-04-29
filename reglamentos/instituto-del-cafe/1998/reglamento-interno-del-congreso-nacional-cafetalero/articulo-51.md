@@ -1,1 +1,1 @@
-Artículo 51.—La Dirección Ejecutiva de ICAFE en coordinación con el Directorio, determinarán las personas que serán invitadas a la Sesión del Congreso.
+Artículo 51.—Las actas deben estar listas y a disposición de los delegados dentro de un plazo no mayor a los 60 días posteriores a realizada la respectiva sesión del Congreso.

@@ -15,3 +15,4 @@ Reglamento Interno del Congreso Nacional Cafetalero
 | --- | --- | --- |
 | 1 | 1998-09-14 | la propia norma |
 | 2 | 2003-04-04 | Reglamento 0 (2003-04-04) |
+| 3 | 2005-04-29 | Reglamento 0 (2005-04-29) |

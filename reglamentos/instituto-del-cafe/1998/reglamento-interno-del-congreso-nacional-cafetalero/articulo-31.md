@@ -1,1 +1,1 @@
-Artículo 31.—Ningún delegado podrá hacer uso de la palabra sin la autorización del Presidente del Directorio. El segundo secretario llevará el control de los oradores en estricto orden de solicitud, pero en el uso de la palabra se le dará prioridad al proponente de la moción.
+Artículo 31.—Ningún Delegado podrá hacer uso de la palabra sin la autorización del Presidente del Directorio. El segundo secretario llevará el control de los oradores en estricto orden de solicitud, pero en el uso de la palabra se le dará prioridad al proponente de la moción.

@@ -1,1 +1,1 @@
-Artículo 19.—Corresponde al Primer Secretario asegurar el levantamiento del acta, llevar el control del quórum e identificar al orador públicamente y leer las mociones en orden alternativo cuando corresponda.
+Artículo 19.—Corresponde al primer Secretario asegurar el levantamiento del acta, llevar el control del quórum e identificar al orador públicamente y leer las mociones en orden alternativo cuando corresponda.

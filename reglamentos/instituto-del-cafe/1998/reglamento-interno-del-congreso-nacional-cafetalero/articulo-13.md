@@ -1,1 +1,1 @@
-Artículo 13.—En las sesiones extraordinarias del Congreso Nacional Cafetalero, la agenda será determinada por el Directorio dentro de las regulaciones de ley y dentro de lo estipulado en este reglamento.
+Artículo 13.—En las sesiones extraordinarias del Congreso Nacional Cafetalero, la Agenda será determinada por el Directorio dentro de las regulaciones de ley y dentro de lo estipulado en este reglamento.

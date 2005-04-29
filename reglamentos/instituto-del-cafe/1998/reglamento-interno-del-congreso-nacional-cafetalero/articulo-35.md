@@ -1,1 +1,1 @@
-Artículo 35.—Si el tiempo destinado para conocer los informes de las comisiones de trabajo no fuere suficiente, el Directorio podrá habilitar más tiempo para seguir conociendo de los mismos y si aún así los asuntos no llegaren a agotarse, se podrán posponer para otra sesión del Congreso.
+Artículo 35.—Si el tiempo destinado para conocer los informes de las Comisiones de Trabajo no fuere suficiente, el Directorio podrá habilitar más tiempo para seguir conociendo de los mismos y si aún así los asuntos no llegaren a agotarse, se podrán posponer para otra sesión del Congreso.

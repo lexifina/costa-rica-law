@@ -6,6 +6,6 @@ d) Tener por agotada la discusión y someter a votación cada asunto en el momen
 e) En caso de empate, decidir la votación con su voto de calidad.
 f) Decretar los recesos que estime convenientes para verificar el quórum, armonizar o conciliar mociones, y ante situaciones imprevistas que lo justifiquen.
 g) Recibir y atender a los invitados especiales.
-h) Velar porque el Congreso cumpla las leyes y reglamentos relativos a su función.
+h) Velar porque el Congreso cumpla las Leyes y Reglamentos relativos a su función.
 i) Designar a los miembros del Tribunal de Elecciones del Congreso Nacional.
-j) Firmar el libro de actas junto con los dos secretarios.
+j) Firmar el libro de actas junto con los dos Secretarios.

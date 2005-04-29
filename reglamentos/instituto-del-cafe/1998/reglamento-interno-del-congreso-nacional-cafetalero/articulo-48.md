@@ -1,1 +1,1 @@
-Artículo 48.—Las actas deben estar listas y a disposición de los delegados dentro de un plazo no mayor a los 60 días posteriores a realizada la respectiva sesión del Congreso.
+Artículo 48.—Contra los acuerdos y resoluciones del Congreso, solo cabrá el recurso de revocatoria o reposición. Este recurso de revocatoria deberá interponerse ante el Congreso.
