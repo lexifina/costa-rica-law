@@ -1,0 +1,1 @@
+14.—Revisión de los pedidos. Revise los pedidos de tesorería y asegúrese de que estén correctos, sin olvidar que los fajos de billetes de quinientos y denominaciones mayores deben ser revisados en presencia del Tesorero. Cualquier reclamo posterior en relación con estos billetes no tendrá validez.

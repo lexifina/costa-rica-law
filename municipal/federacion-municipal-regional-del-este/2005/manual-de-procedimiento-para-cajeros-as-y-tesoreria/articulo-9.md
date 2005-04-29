@@ -1,0 +1,1 @@
+9º—Debe permanecer cerrado. Por la gran responsabilidad que tiene la Caja en cuanto al dinero y la Tesorería en relación con los valores que posee en custodia, no se deben retirar de la Caja u oficina dejando abierto el cajón y la caja fuerte donde mantienen dinero y los valores, por lo que se debe mantener siempre cerrada la puerta.

@@ -1,0 +1,1 @@
+10.—Personas ajenas. No permita visitas de compañeros o compañeras u otra persona dentro de su cubículo o área de trabajo, salvo los superiores inmediato y jerárquico y el Auditor Interno en ejercicio de sus funciones.

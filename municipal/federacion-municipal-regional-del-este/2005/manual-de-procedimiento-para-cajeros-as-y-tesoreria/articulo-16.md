@@ -1,0 +1,6 @@
+CAPÍTULO VI
+Uso de sello de cajero
+16.—Recomendaciones generales.
+a. No selle un recibo hasta que compruebe que está correcto. Cuando reciba un cheque en función de un pago (de las Municipalidades), revise que cumpla con todos los requisitos necesarios, tales como; fecha de emisión, que esté a nombre de la Federación Municipal Regional del Este, cantidad en números igual a su leyenda y que esté firmado por el girador, una vez verificados estos detalles se procede a sellar y firmar el recibo y acto seguido al cheque se le estampa un sello con la siguiente leyenda: “Únicamente para depositar en la cuenta corriente de la Federación Municipal Regional del Este” y guárdelo en la caja fuerte.
+b. Curse cada recibo una vez que se haya asegurado de su correcta emisión y exactitud, sellándolo en forma legible, procurando no interferir con los requisitos importantes del mismo. La falta de sello en uno de ellos podría interpretarse como evasión de responsabilidad.
+c. Las personas que realicen temporalmente o en período de entrenamiento, funciones de cajero o cajera, recibirán de la Jefatura respectiva un sello que identifica a la dependencia y con la leyenda “Cajero (a) Suplente”. Además se indicará hora y fecha cuando inicie y concluya su período.

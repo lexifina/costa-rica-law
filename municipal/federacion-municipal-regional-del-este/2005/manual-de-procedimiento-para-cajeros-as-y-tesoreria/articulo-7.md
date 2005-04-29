@@ -1,0 +1,3 @@
+7º—No atender por la puerta de atrás de su caja.
+a. El área de Cajas y Tesorería debe permanecer con absoluta independencia. El cajero no debe atender por la parte de atrás de su caja a ninguna persona o empleado de ésta Federación, que se presente con trámites personales, excepto aquellas debidamente autorizadas por los Superiores jerárquicos.
+b. El acceso al área de la Caja y de Tesorería es restringido, por lo tanto no se debe permitir la presencia de compañeros y compañeras, salvo cuando se hiciere en razón de sus funciones, en la cual usted debe estar presente para proteger los valores bajo su custodia.
