@@ -1,0 +1,1 @@
+Artículo 15.—Celeridad y responsabilidad sobre la tramitación de las denuncias. Las denuncias deberán tramitarse con la mayor celeridad y no podrá alegarse inercia del denunciante para justificar cualquier retraso en su trámite, por lo que será la Administración la que procurará su instrucción, así como su pronta conclusión.

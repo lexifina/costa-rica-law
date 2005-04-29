@@ -1,0 +1,1 @@
+Artículo 5º—Libre acceso a la información. Es de interés público la información relacionada con el ingreso, la presupuestación, la custodia, la fiscalización, la administración, la inversión y el gasto de los fondos públicos, así como la información necesaria para asegurar la efectividad de la Ley con relación a hechos y conductas de los funcionarios públicos.

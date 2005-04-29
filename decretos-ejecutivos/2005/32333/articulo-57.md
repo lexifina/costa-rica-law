@@ -1,0 +1,1 @@
+Artículo 57.—Miembros de las comisiones de adjudicación de contrataciones administrativas. También deberán presentar declaración los funcionarios que se encuentren nombrados en las comisiones de adjudicación en los órganos y entes que conforman la Administración Pública.

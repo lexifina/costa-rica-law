@@ -1,0 +1,1 @@
+Transitorio VIII.—Las personas que en virtud del presente Reglamento, ya no se encuentran obligadas a rendir declaración jurada sobre su situación patrimonial, pese a mantenerse en sus cargos, contarán con un plazo de cuarenta días hábiles contados a partir de su publicación para rendir una declaración final.

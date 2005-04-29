@@ -1,0 +1,1 @@
+Artículo 62.—Plazo de la declaración anual. La declaración anual deberá ser presentada en los primeros quince días hábiles de mayo de cada año, debiendo declarar los bienes adquiridos durante ese período, las mejoras de los ya declarados y las variaciones que hubiere experimentado en su patrimonio, consignando el origen de los recursos y su monto.

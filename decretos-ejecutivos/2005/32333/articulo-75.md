@@ -1,0 +1,1 @@
+Artículo 75.—Declaración en el período de vacaciones. Los declarantes que se encuentren de vacaciones durante el período o parte de éste, en que corresponde presentar declaración, deben cumplir con dicho requisito en el citado período, de acuerdo con los plazos establecidos en la ley 8422 y el presente Reglamento.

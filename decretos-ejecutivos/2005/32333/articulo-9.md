@@ -1,0 +1,1 @@
+Artículo 9º—Deber de denunciar. Los funcionarios públicos tienen el deber de denunciar ante las autoridades competentes los actos presuntamente corruptos que se produzcan en la función pública, de los que tengan conocimiento.

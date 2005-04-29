@@ -1,0 +1,1 @@
+Transitorio II.—Todos los funcionarios obligados a declarar en virtud de la Ley y el presente Reglamento, contarán para cumplir con tal obligación, con un plazo de cuarenta y cinco días hábiles a partir de la publicación en el Diario Oficial La Gaceta de este Reglamento ejecutivo.

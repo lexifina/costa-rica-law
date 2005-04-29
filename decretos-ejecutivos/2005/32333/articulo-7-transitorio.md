@@ -1,0 +1,1 @@
+Transitorio VII.—Las personas que bajo la vigencia de la Ley, no estaban obligadas a presentar la declaración jurada de bienes, pero que sí deban hacerlo en virtud de dicha norma legal y el presente Reglamento, contarán con un plazo de cuarenta días hábiles para cumplir tal obligación, contado a partir de la publicación de este último.

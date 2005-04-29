@@ -1,0 +1,1 @@
+Artículo 45.—Remisión a la Dirección General de Administración de Bienes y Contratación Administrativa. Toda entidad u órgano público deberá remitir a la Dirección General de Administración de Bienes y Contratación Administrativa, los obsequios que sean entregados por cortesía o costumbre diplomática a sus funcionarios cuyo valor supere un salario base.

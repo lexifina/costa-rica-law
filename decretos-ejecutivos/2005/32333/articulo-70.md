@@ -1,0 +1,1 @@
+Artículo 70.—Acceso a cargos públicos. Para ejercer un cargo público que origine la obligación de rendir declaración jurada de bienes, es requisito que no exista ninguna declaración jurada pendiente de ser presentada ante la Contraloría General de la República. De esta disposición se exceptúan los cargos de elección popular.

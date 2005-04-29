@@ -1,0 +1,1 @@
+Artículo 21.—Técnicas de investigación. Durante la fase de investigación, las instituciones respectivas en el ejercicio de sus competencias y facultades, deberán efectuar la investigación correspondiente, utilizando para tales efectos los medios científicos, técnicos y empíricos necesarios según lo amerita cada caso.

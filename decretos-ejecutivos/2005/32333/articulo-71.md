@@ -1,0 +1,1 @@
+Artículo 71.—Funcionario que resulta reelecto. Los declarantes que sean reelectos en sus cargos o pasen a ocupar otro cargo público de los contemplados en el presente Capítulo, no quedan obligados a rendir la declaración final y la inicial si el cargo se asume en un plazo no mayor de veinte días hábiles, contados a partir de la fecha en que dejaron el cargo anterior.

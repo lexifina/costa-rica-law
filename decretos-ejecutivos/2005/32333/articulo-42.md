@@ -1,0 +1,1 @@
+Artículo 42.—Excepciones. Para efectos de este Reglamento, las condecoraciones y los galardones de carácter honorífico, cultural, académico o científico no se considerarán obsequios y quedan exceptuados de la prohibición del artículo 40 de este Reglamento.

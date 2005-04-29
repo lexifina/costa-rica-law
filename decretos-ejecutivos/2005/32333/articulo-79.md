@@ -1,0 +1,1 @@
+Artículo 79.—Falta al deber de informar. La falta de cumplimiento oportuno del deber que se refiere el artículo precedente, hará incurrir al responsable de remitir la información en falta grave, sancionable de conformidad con el régimen disciplinario interno correspondiente.

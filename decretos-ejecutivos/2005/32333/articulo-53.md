@@ -1,0 +1,4 @@
+Artículo 53.—Destino de los bienes recibidos por otras entidades públicas.
+Los bienes muebles, valores, dinero y derechos que reciban los órganos y entes del Administración descentralizada, los entes públicos no estatales y las empresas públicas, a causa de la condenatoria judicial firme por el delito de enriquecimiento ilícito, tendrán por fin principal resarcir los daños económicos o sociales ocasionados.
+Con este fin, la institución receptora podrá vender, donar o conservar dichos bienes, conforme el interés público lo exija. En todo caso, dichos bienes deberán ser valorados por el Departamento de Avalúos de la Dirección General de Tributación Directa.
+Quedan facultados dichos entes y empresas para donar los bienes recibidos a favor del Ministerio Público, Contraloría General y Procuraduría de la Ética Pública. La asignación de estos recursos deberá responder a un sano criterio de equidad y deberá ser proporcional a las necesidades reales de cada institución.

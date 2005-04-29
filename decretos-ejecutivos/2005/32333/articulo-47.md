@@ -1,0 +1,2 @@
+Artículo 47.—Procedimiento para determinar la relevancia histórica-cultural del bien. Una vez inscrito el bien, en el Registro previsto en el artículo anterior, la Dirección General de Administración de Bienes, si así se estima pertinente, consultará al Ministerio de Cultura, Juventud y Deportes, a efecto de determinar, mediante dictamen técnico, si el bien donado posee relevancia histórico-cultural.
+En caso de acreditarse esta relevancia histórico-cultural los entregará a los órganos o entes administrativos competentes para su conservación y administración.

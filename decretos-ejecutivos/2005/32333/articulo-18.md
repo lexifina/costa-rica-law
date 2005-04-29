@@ -1,0 +1,3 @@
+SECCIÓN TERCERA
+Trámite de las denuncias
+Artículo 18.—Confidencialidad. Durante el proceso de investigación se guardará la confidencialidad sobre la identidad del denunciante, así como de toda aquella información y evidencia que pueda llegar a sustentar la apertura de un procedimiento administrativo o proceso judicial. La identidad del denunciante deberá protegerse aún después de concluida la investigación y el procedimiento administrativo si lo hubiera. Todo lo anterior en estricto apego a lo establecido en las Leyes Nos. 8422 y 8292 sobre el particular.

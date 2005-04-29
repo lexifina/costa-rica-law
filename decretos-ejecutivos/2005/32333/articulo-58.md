@@ -1,0 +1,1 @@
+Artículo 58.—Exclusión. Se excluyen de la obligación de presentar declaración jurada de bienes, las Juntas Administrativas de Colegios, Cementerios, Juntas de Educación, Ligas de Municipalidades y Juntas de Protección Social excepto la de San José.

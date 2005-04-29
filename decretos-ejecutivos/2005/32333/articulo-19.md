@@ -1,0 +1,1 @@
+Artículo 19.—Principios ordenadores. Las denuncias atendidas por las autoridades competentes en los términos dispuestos por la Ley y este Reglamento, se instruirán bajo la ordenación de los principios de informalidad, oficiosidad, celeridad y eficacia.

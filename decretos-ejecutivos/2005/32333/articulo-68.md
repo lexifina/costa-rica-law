@@ -1,0 +1,1 @@
+Artículo 68.—Del contenido de las declaraciones. La declaración de bienes, rentas, derechos y obligaciones que constituyan su patrimonio, tanto dentro como fuera del territorio nacional, se consignará de forma clara y precisa, según el detalle que al efecto dispone el artículo 29 de la Ley.

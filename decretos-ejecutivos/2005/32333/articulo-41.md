@@ -1,0 +1,1 @@
+Artículo 41.—Destino de los bienes. Los bienes recibidos por un funcionario público, como gesto de cortesía o costumbre diplomática por parte de un sujeto de Derecho Internacional, serán considerados bienes propiedad de la Nación siempre que su valor sea superior a un salario base.

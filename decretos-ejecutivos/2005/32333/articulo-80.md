@@ -1,0 +1,1 @@
+Artículo 80.—Deber de las auditorías internas. Las auditorías internas fiscalizarán que las unidades de recursos humanos u oficinas de personal de los órganos, entes y empresas públicas, estén cumpliendo a cabalidad con el deber de informar establecido en la Ley, lo cual implica cerciorarse de la veracidad de la información brindada.

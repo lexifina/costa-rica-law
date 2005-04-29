@@ -1,0 +1,1 @@
+Artículo 49.—Donación de bienes a favor de entidades. Los bienes recibidos, como gesto de cortesía o costumbre diplomática, podrán ser objeto de donación a favor de entidades declaradas de interés público, interés social y sin fines de lucro.
