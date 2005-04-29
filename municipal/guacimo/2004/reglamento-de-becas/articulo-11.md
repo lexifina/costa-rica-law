@@ -1,0 +1,1 @@
+Artículo 11.—El Departamento de Secretaría deberá hacer un expediente individual de cada beneficiario, en el cual archivará las calificaciones o constancias aportadas para cada uno de los estudiantes becados.

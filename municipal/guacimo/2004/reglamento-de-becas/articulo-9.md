@@ -1,0 +1,1 @@
+Artículo 9º—Todo estudiante que desea optar el beneficio de una beca, deberá haber ganado el año anterior, además durante el periodo que tenga beca, deberá mantener su rendimiento académico general con el mínimo de un 70% ya que el incumplimiento de lo anterior, autoriza automáticamente a la Comisión a suspender la beca por el resto del curso lectivo.
