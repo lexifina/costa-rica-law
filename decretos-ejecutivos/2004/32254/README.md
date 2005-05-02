@@ -14,3 +14,4 @@ Reglamento para el registro de productores e importadores de cemento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-03-11 | la propia norma |
+| 2 | 2005-05-02 | Decreto Ejecutivo 32586 (2005-05-02) |

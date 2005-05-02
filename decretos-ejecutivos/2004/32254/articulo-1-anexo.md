@@ -1,26 +1,27 @@
 ANEXO A. SOLICITUD DE REGISTRO DE PRODUCTORES E IMPORTADORES DE CEMENTO
 (reglamentario)
-[imagen]
 Ministerio de Economía, Industria y Comercio
+Unidad de estudios Económicos
 1. Nombre de la persona física o jurídica
-2. No de cédula de identidad o identificación | 3. No de cédula jurídica (sociedades)
+2. N° de cédula de identidad o identificación | 3. N° de cédula jurídica (sociedades)
 |
 4. Dirección del domicilio de la persona física o jurídica
 5. Tipo de Registro (marque con una equis)
-Productorð Importadorð
-6. No Teléfono | 7. No Fax
+Productor Importador
+6. N° Teléfono | 7. N° fax
 |
-8. No Celular | 9. Correo electrónico
+8. N° Celular | 9. Correo electrónico
 |
-10. Apartado postal | 11. No beeper, aerocasilla u otro
+10. Apartado postal | 11. N° beeper, aerocasilla u otro
 |
-12. Lugar para notificaciones
-13. Personas jurídicas: Indicar nombre y calidades del representante legal
+12.Lugar para notificaciones
+13. personas jurídicas: Indicar nombre y calidades del represente legal
 14. En el caso de ser productor: Dirección exacta de la planta procesadora
 15. En el caso de ser importador: Dirección exacta de las instalaciones donde se va a almacenar el producto
-DOCUMENTOS QUE SE DEBEN ACOMPAÑAR A ESTA SOLICITUDa) Si es persona física: original y fotocopia certificada de la cédula de identidad, cédula de residencia o pasaporte. b) Si es persona jurídica: original y fotocopia certificada de la cédula de identidad del representante legal, original y fotocopia certificada de la cédula jurídica, certificación registral o notarial de la personería jurídica, con no más de tres meses de emitida. c) Original y fotocopia certificada de la etiqueta del producto. d) Si el trámite lo realiza una tercera persona: original y fotocopia certificada de la cédula de identidad, cédula de residencia o pasaporte de la persona que autoriza, original y fotocopia certificada de la cédula de identidad, cédula de residencia o pasaporte de la persona autorizada, fotocopia certificada del poder que ostente el autorizado y autorización por escrito del autorizante debidamente autenticada por un Abogado.
+DOCUMENTOS QUE SE DEBEN ACOMPAÑAR A ESTA SOLICITUD a) Si es persona física: Original y fotocopia de la cédula de identidad, cédula de residencia o del pasaporte del interesado, para que sea confrontada por el funcionario de la Unidad de estudios Económicos del Ministerio de Economía, Industria y Comercio, o en su lugar, una copia certificada
+b) Si es persona jurídica: b.1) original y fotocopia de la cédula jurídica, para que sea confrontada por el funcionario de la Unidad de estudios Económicos del Ministerio de Economía, Industria y Comercio, o en su lugar, una copia certificada. b.2) Una certificación notarial o registral de la personería jurídica, que no tenga más de tres meses de emitida. b.3) original y fotocopia de la cédula de identidad, cédula de residencia o del pasaporte del representante legal, para que sea confrontada por el funcionario de la Unidad de Estudios Económicos del Ministerio de Economía, Industria y Comercio, o en su lugar, una copia certificada. c) Si el trámite lo realiza una tercera persona, se deben presentar adicionalmente los siguientes documentos: c.1) Autorización por escrito del solicitante, que indique el nombre completo y número de cédula de identidad, cédula de residencia o pasaporte, tanto del autorizante como del autorizado y el trámite a gestionar. c.2) Original y fotocopia de la cédula de identidad, cédula de residencia o del pasaporte del tercero autorizando para gestionar el trámite, para que sea confrontada por el funcionario de la Unidad de Estudios Económicos del Ministerio de Economía, Industria y Comercio, o en su lugar, una copia certificada.
 16. Nombre | 17. Firma
-|
+(Así reformado por el artículo 2° del decreto ejecutivo N° 32586 del 2 de mayo del 2005)
 PARA USO OFICIAL
 Fecha de presentación | Hora | No de documentos recibidos:
 | |
