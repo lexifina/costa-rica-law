@@ -14,3 +14,4 @@ Estatuto Orgánico de la Universidad de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-03-22 | la propia norma |
+| 2 | 2005-05-02 | Reglamento 120 (2005-05-02) |
