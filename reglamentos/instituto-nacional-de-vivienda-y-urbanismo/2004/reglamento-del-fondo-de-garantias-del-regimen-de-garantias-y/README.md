@@ -14,3 +14,4 @@ Reglamento del Fondo de Garantías del Régimen de Garantías y Jubilaciones del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-01 | la propia norma |
+| 2 | 2005-05-02 | Reglamento 5468 (2005-05-02) |
