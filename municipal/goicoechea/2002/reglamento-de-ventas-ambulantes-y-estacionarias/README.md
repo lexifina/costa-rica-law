@@ -14,3 +14,4 @@ Reglamento de Ventas Ambulantes y Estacionarias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-13 | la propia norma |
+| 2 | 2005-05-02 | Reglamento municipal 18 (2005-05-02) |
