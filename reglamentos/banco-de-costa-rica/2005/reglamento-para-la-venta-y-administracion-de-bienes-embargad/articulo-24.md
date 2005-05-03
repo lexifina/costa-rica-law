@@ -1,0 +1,1 @@
+Artículo 24.—El quórum quedará válidamente constituido por tres de sus integrantes con derecho a voto, debiendo ser uno de ellos el Director de Procesos y Logística o el Director de la División Comercial respectiva. Las decisiones se tomarán por simple mayoría de los miembros asistentes. En caso de empate el Presidente tendrá doble voto.

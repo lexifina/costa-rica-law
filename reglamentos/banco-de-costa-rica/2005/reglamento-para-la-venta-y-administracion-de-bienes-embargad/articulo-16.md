@@ -1,0 +1,2 @@
+Artículo 16.—La base para la venta de los bienes inmuebles, no podrá ser inferior al monto del avalúo, el cual no podrá tener más de un año de haberse efectuado.
+La Comisión de venta de bienes adquiridos en pago de obligaciones, o el Director de la División Procesos y Logística o los Directores de las Divisiones Comerciales, podrán autorizar una disminución a la base hasta de un 25% cuando la promoción de la venta haya resultado infructuosa. Esta autorización, deberá ser debidamente motivada, y sustentada con criterios de razonabilidad y conveniencia institucional.

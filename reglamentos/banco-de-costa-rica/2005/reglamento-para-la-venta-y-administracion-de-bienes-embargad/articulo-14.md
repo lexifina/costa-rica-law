@@ -1,0 +1,1 @@
+Artículo 14.—En caso de bienes muebles con derechos prioritarios a favor de terceros y otros que presenten obstáculos que dificulten libremente su venta en el mercado, la Comisión de Venta de Bienes Adquiridos en Pago de Obligaciones, podrá autorizar la venta sin sujeción a base.

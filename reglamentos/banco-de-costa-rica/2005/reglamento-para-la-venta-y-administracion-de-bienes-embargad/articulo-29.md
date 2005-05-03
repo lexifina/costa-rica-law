@@ -1,0 +1,6 @@
+CAPÍTULO VI
+Disposiciones finales
+Artículo 29.—Los funcionarios del Banco y sus subsidiarias, no podrán participar en los procesos de venta que se tramiten.
+No obstante, si un bien se ha publicado en tres oportunidades o más durante un año y no se ha logrado su venta, la Comisión de Venta de Bienes Adquiridos en Pago de Obligaciones podrá autorizar su venta entre los funcionarios del Banco y sus subsidiarias.
+Tendrán prohibición absoluta de adquisición de estos bienes, miembros de la Junta Directiva General el Gerente General, los Subgerentes, Directores de División, Auditor y Subauditor, Gerentes de las Divisiones Comerciales, los funcionarios de la Oficina de Mobiliario y Equipo, los Abogados de la División Jurídica, así como los abogados externos y peritos que hayan participado en el proceso de adquisición y valoración de los bienes, el Jefe de la Oficina Administración de Bienes en Pago de Obligaciones, los Interventores y Ejecutivos de esa oficina y cualquier otro funcionario que participe en la Comisión de Venta de Bienes Adquiridos en Pago de Obligaciones.
+La anterior prohibición incluye además, al cónyuge, compañero o compañera de unión de hecho de los funcionarios mencionados, así como sus parientes por consanguinidad hasta el primer grado.

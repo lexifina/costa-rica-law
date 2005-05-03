@@ -1,0 +1,1 @@
+Artículo 25.—La Comisión se reunirá con la frecuencia que sea necesaria, y será convocada por el Director de la División Procesos y Logística o por el Jefe de la Oficina Administración de Bienes en Pago de Obligaciones.

@@ -1,0 +1,1 @@
+Artículo 28.—El Director de la División Procesos y Logística deberá presentar a conocimiento del Comité Ejecutivo un informe de las resoluciones tomadas por la Comisión de Venta de Bienes Adquiridos en Pago de Obligaciones.
