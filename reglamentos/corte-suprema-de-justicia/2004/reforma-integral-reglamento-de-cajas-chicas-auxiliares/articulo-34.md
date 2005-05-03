@@ -1,0 +1,1 @@
+Artículo 34.—Evaluaciones. La Auditoría Judicial velará, mediante las intervenciones y medios que considere oportunos, el cumplimiento de lo dispuesto en este reglamento, manual de procedimientos y demás normativa relacionada, conforme a las potestades que le otorga el Reglamento de la Auditoría Interna del Poder Judicial.
