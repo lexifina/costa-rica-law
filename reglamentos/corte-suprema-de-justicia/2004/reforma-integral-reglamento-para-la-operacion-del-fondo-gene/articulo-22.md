@@ -1,0 +1,1 @@
+Artículo 22.—Cajas chicas auxiliares. El funcionamiento, control y correcto uso de los fondos de las Cajas Chicas Auxiliares, se regirá por el Reglamento respectivo aprobado por la Corte Plena en sesión Nº 22-01 celebrada el 2 de julio de 2001, artículo XVI.

@@ -1,0 +1,1 @@
+Artículo 24.—Custodia y físcalización. La operación y custodia del fondo de la Caja Chica General será responsabilidad de los funcionarios encargados de ello en el Departamento Financiero Contable y su fiscalización estará a cargo de la Auditoría Judicial.

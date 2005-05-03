@@ -1,0 +1,3 @@
+Artículo 3º—Cajas Chicas Auxiliares. La Caja Chica General podrá subdividirse en Cajas Chicas Auxiliares, que operan bajo el sistema de fondo fijo, al igual que la general.
+La Dirección Ejecutiva, autorizará la apertura, funcionamiento y la variación de los fondos de las diferentes Cajas Chicas Auxiliares, para lo cual solicitará un informe técnico que verifique tal necesidad, al Departamento Financiero Contable o las Unidades o Subunidades Administrativas Regionales, según corresponda.
+Las Cajas Chicas Auxiliares del Poder Judicial, se regirán por su respectivo reglamento y en lo no dispuesto expresamente en él, se aplicará el presente.

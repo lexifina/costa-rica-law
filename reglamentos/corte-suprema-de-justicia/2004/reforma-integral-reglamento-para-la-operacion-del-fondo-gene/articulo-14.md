@@ -1,0 +1,1 @@
+Artículo 14.—Modificación de adelantos. Una vez emitido el cheque o hecha la transferencia, no podrá variarse el fin ni el beneficiario de esos adelantos de dinero, salvo autorización del departamento o dependencia solicitante, previa comunicación escrita al Departamento Financiero Contable.

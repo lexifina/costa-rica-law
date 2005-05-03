@@ -1,0 +1,1 @@
+Artículo 36.—Manual de procedimientos. El Departamento de Planificación en coordinación con el Departamento Financiero Contable, emitirá y mantendrá actualizado el manual de procedimientos para el buen funcionamiento del fondo de Caja Chica.

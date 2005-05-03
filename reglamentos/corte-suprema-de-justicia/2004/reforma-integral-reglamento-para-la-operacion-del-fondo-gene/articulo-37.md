@@ -1,0 +1,1 @@
+Artículo 37.—Derogaciones. Se deroga el Reglamento de Caja Chica General aprobado por el Consejo Superior en sesión celebrada el 24 de marzo de 1994 último, artículo CVII, y sus reformas, así como cualquier otra disposición que se le oponga.

@@ -1,0 +1,1 @@
+Artículo 31.—Prohibiciones. Los fondos de la Caja Chica General, no se deben utilizar para cambios monetarios, cambio de cheques u operaciones distintas a las que se destinan dichos fondos. No deben mezclarse con la Caja Chica General, dinero, cheques, valores, otros documentos y objetos que no tengan relación con el fondo.

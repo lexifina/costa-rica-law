@@ -1,0 +1,1 @@
+Artículo 19.—Liquidez del fondo. El encargado de la Caja Chica será el responsable de tramitar semanalmente los reembolsos necesarios con el propósito de darle una rotación óptima a los recursos y mantener la liquidez del fondo.

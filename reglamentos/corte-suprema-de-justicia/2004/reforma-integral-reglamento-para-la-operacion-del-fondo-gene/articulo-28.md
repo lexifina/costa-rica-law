@@ -1,0 +1,1 @@
+Artículo 28.—Arqueos. Del movimiento y operación del Fondo de la Caja Chica General, el Departamento Financiero Contable, deberá elaborar un informe o arqueo mensual, que debe conservar en sus archivos de manera que permita la verificación posterior de las transacciones efectuadas. Dicho informe lo enviará a la Dirección Ejecutiva con copia a la Auditoría Judicial.
