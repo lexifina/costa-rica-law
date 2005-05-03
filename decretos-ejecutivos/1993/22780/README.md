@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio del Ministerio Ciencia y Tecnología
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-02-04 | la propia norma |
+| 2 | 2005-05-03 | Decreto Ejecutivo 32366 (2005-05-03) |

@@ -1,1 +1,2 @@
-Artículo 11.—El Ministerio de común acuerdo con los servidores, podrán modificar la jornada ordinaria de trabajo siempre y cuando no se cause perjuicio al Servicio Público, ni a la prestación de la misma, previa notificación a las partes interesadas.
+Artículo 11.—El Ministerio, a través de la Administración Superior y siempre que exista una necesidad institucional y no se cause perjuicio a la prestación del servicio público podrá, de común acuerdo con los servidores, modificar la jornada ordinaria de trabajo, previa comunicación a las partes interesadas.
+(Así reformado mediante el artículo 1º del decreto ejecutivo Nº 32366 del 3 de mayo del 2005)

@@ -1,1 +1,2 @@
-Artículo 34.—Los servidores que laboren durante la jornada mensual acumulativa que por la índole de sus funciones permanecen disponibles en su lugar de trabajo, tendrán derecho a incentivos de carácter socioeconómicos reglamentados en su momento.
+Artículo 34.—
+(Suprimido mediante el artículo 2º del decreto ejecutivo Nº 32366 del 3 de mayo del 2005)
