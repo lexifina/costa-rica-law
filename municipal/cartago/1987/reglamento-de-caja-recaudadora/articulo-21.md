@@ -1,1 +1,0 @@
-Artículo 21.-El Tesorero revisará y verificará los montos de la recaudación y del depósito, anotará la fecha de cancelación del comprobante de ingreso y procederá a hacer los registros correspondientes en el Libro Diario de Caja.

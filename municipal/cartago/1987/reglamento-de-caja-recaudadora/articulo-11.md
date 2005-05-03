@@ -1,1 +1,0 @@
-Artículo 11.-En la Caja Recaudadora se prohíbe el cambio de cheques personales, excepto los cheques por concepto de salario de trabajadores de esta Municipalidad, cuando así se disponga administrativamente.

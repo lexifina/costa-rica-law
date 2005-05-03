@@ -1,1 +1,0 @@
-Artículo 27. -Después de las 3,00 p. m. no se permitirá el ingreso de persona alguna a la fila de la Caja Recaudadora Municipal, circunstancia que se hará cumplir mediante el mecanismo que al efecto se disponga administrativamente.

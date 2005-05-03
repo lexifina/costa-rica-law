@@ -1,1 +1,0 @@
-Artículo 7°-Las ausencias de los cajeros, las suplirán funcionarios del Departamento de Tesorería, adiestrados para ello, y deberán contar también con una póliza de fidelidad del Instituto Nacional de Seguros.
