@@ -14,3 +14,4 @@ Reglamento del Programa de Ayuda Compensatoria para los Productores Bananeros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-03-15 | la propia norma |
+| 2 | 2005-05-03 | Decreto Ejecutivo 32353 (2005-05-03) |
