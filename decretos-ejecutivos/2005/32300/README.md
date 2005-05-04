@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio de la Presidencia de la Repúbl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-04-20 | la propia norma |
+| 2 | 2005-05-04 | Decreto Ejecutivo 32355 (2005-05-04) |

@@ -1,3 +1,2 @@
-Artículo 144.—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a los veintiocho días del mes de marzo del dos mil cinco.
-DOCUMENTOS VARIOS
+Artículo 144.- Con fundamento en el artículo 47 de la Ley General de Administración Pública el Presidente de la República podrá nombrar otro Viceministro de la Presidencia para atender temas específicos de la Presidencia de la República y el Ministerio de la Presidencia en materia de seguridad nacional y las relativas a actividades en el campo de la prevención contra el fenómeno de las drogas y el combate contra su tráfico ilícito y delitos conexos, así como para atender actividades extraordinarias y ordinarias para prevenir situaciones ante riesgos inminentes de emergencia, cuyas competencias se delimitarán vía Acuerdo Presidencial.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 32355 del 4 de mayo del 2005)
