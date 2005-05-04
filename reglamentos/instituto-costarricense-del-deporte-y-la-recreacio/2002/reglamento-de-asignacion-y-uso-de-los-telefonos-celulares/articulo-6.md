@@ -1,2 +1,0 @@
-Articulo 6°—Entrega del teléfono. Aprobada la asignación por la instancia competente y de previo a su forma! entrega por el Proceso de Proveeduría, el funcionario a quien se haya aprobado la asignación, firmará un recibido conforme haciéndose responsable de los bienes que en éI se describan, cumpliendo con lo dispuesto en el Decreto No 26544-H.
-Los equipos de telefonía móvil deben estar en disposición de ser accesados al menos entre las 8,00 y 22,00 horas en días naturales.

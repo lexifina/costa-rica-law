@@ -1,1 +1,0 @@
-Articulo 3°—Definición. El teléfono celular es un instrumento de trabajo como cualquier otro para facilitar el mejor desempeño de las labores de la persona a quien fue asignado. La asignación y posterior uso de un teléfono celular no se considerará como atribución o beneficio personal, no será parte del salario, ni se debe dar para conferir estatus.

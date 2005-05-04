@@ -1,4 +1,0 @@
-Articulo 5°—Funcionarios a quienes se les asigna su utilización.
-El o (la) Director (a) Nacional, valorará en forma objetiva y en observancia de los principios de razonabilidad, sana administración y protección de los intereses del ICODER, la necesidad de asignar de manera restrictiva, equipos de telefonía móvil con sus respectivos accesorios y línea telefónica a funcionarios de la Institución; así como autorizar el pago de la tarifa vigente en el artículo 10 o parte de ella para aquellos funcionarios que utilicen equipo y líneas propias en sus labores institucionales.
-(Así ampliado mediante sesión ordinaria N° 378 del 7 de julio del 2004)
-La asignación de los bienes objeto de este Reglamento como el pago de las tarifas contempladas, no se considerarán como salario en especie, ni dan origen a derechos adquiridos.

@@ -1,3 +1,0 @@
-Articulo 9°—Del cobro por parte de la Administración.
-La Administración determinará el monto de la deuda y se lo informará al funcionario, quien, si está de acuerdo, autorizara su cancelación mediante las deducciones convenidas, las cuales no podrán ser inferiores a tres ni superiores a doce mensualidades. El funcionario podrá efectuar la cancelación en un solo pago.
-• Si el funcionario no estuviere de acuerdo con que el monto de lo adeudado se deduzca de conformidad con el párrafo anterior, la Administración procederá, previo debido proceso, a certificar el monto de los adeudado y establecer el cobro respectivo. Entre tanto se reali2a el proceso de cobro, el ICODER podrá suspender el pago del servicio de telefonía.
