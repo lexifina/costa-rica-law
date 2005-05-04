@@ -1,0 +1,1 @@
+Artículo 87.—Usar el equipo de protección personal adecuado antes de ingresar al área del incidente (mascarilla equipo de protección respiratoria y traje de protección de encapsulamiento total contra el vapor, tal como el Artículo 29) y evitar en todo momento tocar cualquier derrame de cloro líquido ya que es muy corrosivo.

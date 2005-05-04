@@ -1,0 +1,1 @@
+Artículo 38.—Para el caso de cilindros de 1 ton., los mismos deberán rodarse sobre rieles de acero primeramente hasta el área de carga y descarga de materiales de la bodega central de cloro o plantas de tratamiento, o hacer uso de un mecanismo de levantamiento vertical, de acuerdo con el artículo 25. “Procedimiento de Almacenamiento y Manipulación de Cloro”.

@@ -1,0 +1,1 @@
+Artículo 62.—Técnicos de Mantenimiento: Son aquellos funcionarios que deben brindar mantenimiento a los sistemas de desinfección, los cuales por lo general tienen funciones en el ámbito regional. Estos como los citados en el punto anterior se consideran como usuarios del procedimiento.

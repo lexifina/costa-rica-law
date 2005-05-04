@@ -1,0 +1,1 @@
+Artículo 3º—Campo de aplicación. El campo de aplicación lo conforman Plantas de Tratamiento de Agua Potable, Estaciones de Bombeo, Almacenes o Bodegas de gas cloro, y vehículos que transportan, reciben o despachan recipientes con gas cloro y casetas de cloración para los sistemas de Acueductos en todo el territorio nacional.

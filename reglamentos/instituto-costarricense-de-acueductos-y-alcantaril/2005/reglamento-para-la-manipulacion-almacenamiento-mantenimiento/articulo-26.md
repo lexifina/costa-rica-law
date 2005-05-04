@@ -1,0 +1,17 @@
+Artículo 26.—Almacenamiento de cilindros y contenedores. Para el almacenamiento de los cilindros y contenedores de 1 tonelada se deberán seguir los siguientes lineamientos:
+a) Los cilindros y contenedores deberán ser almacenados en lugares secos, ventilados, lejos de materiales inflamables, tuberías de vapor o excesiva fuente de calor o peligro de fuego. Además deben quedar protegidos del sol y humedad excesivas (lluvias).
+b) La sala de almacenaje de cloro sea a prueba de fuego.
+c) Los recipientes de cloro nunca deberán ser almacenados cerca de pasajes o elevadores o cerca de sistemas de ventilación.
+d) Los recipientes llenos deberán estar separados de los recipientes vacíos y las zonas de almacenaje deberán estar correctamente señalizadas. (Ver detalles de señalización en Anexo B del presente procedimiento).
+e) Se deberán almacenar los cilindros y contenedores dispuestos de tal manera que permita inspecciones frecuentes de señales de fugas u otros peligros. Por lo tanto los cilindros de 45,53, 68 y 88 kg deben colocarse en hileras separadas como mínimo por 60 cm unas de otras para que se permita el paso de la persona que inspecciona.
+f) Las capuchas protectoras de válvulas deberán mantenerse en su lugar, aunque el recipiente se encuentre lleno o vacío. Solo se hará excepción a esta regla cuando se están vaciando los cilindros y contenedores.
+g) Los cilindros deberán almacenarse en posición vertical, con un dispositivo de retención o sujetador que los mantenga en dicha posición sin peligro de caídas como el que se muestra en la Ilustración 2 del Anexo 4. Se debe evitar almacenarlo o moverlo en posición horizontal para evitar, que en caso de fugas el cloro se escape en forma líquida.
+h) Los contenedores de una tonelada deberán ser almacenados de lado, sobre rieles de acero a pocas pulgadas sobre el piso.
+i) La temperatura de almacenaje de los recipientes nunca debe exceder los 51ºC.
+j) Se prohíbe el almacenaje de recipientes por más de 6 meses. Cuando se presente alguna anomalía con algún recipiente de cloro gas, debe procederse inmediatamente de acuerdo con el Artículo 13, inciso b).
+k) No se permite el almacenaje de cilindros o contenedores en mal estado. Si por alguna razón se detecta que un cilindro presenta algún daño, comunicarse inmediatamente con el personal especializado del AyA, del Ministerio de Salud, o Bomberos.
+l) Toda zona de almacenaje y centros de cloración debe contar con una pileta de desfogue cuyas dimensiones sean proporcionales a la capacidad de los recipientes de cloro gas que se manipulen.
+m) Toda zona de almacenaje deberá tener detectores de cloro gas y el equipo de seguridad respectivo: máscaras, trajes y kit de seguridad.
+n) Se debe colocar en el área de almacenamiento de recipientes de cloro, letreros de seguridad e higiene completamente visibles de acuerdo con la Norma INTE 31-07-02-97: “Señalización de Seguridad e Higiene en los Centros de Trabajo” Ver Anexo 5.
+o) El lugar de almacenamiento debe tener a la entrada del recinto un rombo de peligrosidad con los códigos convencionales de la NFPA para indicar al personal y cuerpos de rescate, la presencia y peligrosidad del cloro gas como se muestra en el Anexo 2.
+p) Además del rombo se colocará en un lugar visible una lámina con la información correspondiente a los “Requisitos de Etiquetado para Productos Peligrosos (en concordancia con Reglamento para el Registro de Productos Peligrosos publicado en el Alcance N° 74 a La Gaceta N° 194).” Véase Anexo 6.

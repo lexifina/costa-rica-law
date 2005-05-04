@@ -1,0 +1,1 @@
+Artículo 83.—Los brigadistas se trasladarán al centro de coordinación con su equipo respectivo para recibir las indicaciones del coordinador general. Ya sea para controlar posibles situaciones de incendios, fugas de gas cloro, extraer víctimas, brindar primeros auxilios o pedir ayuda externa si se requiere.

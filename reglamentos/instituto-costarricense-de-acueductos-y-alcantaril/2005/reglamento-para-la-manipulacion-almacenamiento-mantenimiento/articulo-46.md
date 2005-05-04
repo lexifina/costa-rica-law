@@ -1,0 +1,1 @@
+Artículo 46.—No se deben transportar recipientes de cloro junto con otros gases comprimidos; materiales de construcción, aguarrás, amoniaco, metales finamente divididos, hidrocarburos o materiales inflamables.

@@ -1,0 +1,1 @@
+Artículo 39.—Se debe verificar que cada uno de los contenedores porten el capuchón de seguridad aún cuando se encuentren vacíos, ya que las válvulas estarían expuestas a ser degolladas por manejo inadecuado o por un golpe involuntario. En caso de que algún cilindro no cumpla con todo lo anterior NO se permitirá el transporte del mismo.

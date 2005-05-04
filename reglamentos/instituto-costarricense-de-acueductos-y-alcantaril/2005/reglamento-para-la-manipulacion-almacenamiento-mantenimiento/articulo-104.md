@@ -1,0 +1,5 @@
+Artículo 104.—Para AyA rige a partir de su adopción. Para efectos externos de los demás Operadores, así como de Proveedores, Almacenadotes y Transportistas, rige a partir de su publicación. Notifíquese a las unidades internas de AYA, a ARESEP, al Director Nacional de Bomberos, al Director de Ingeniería de Tránsito, al Director de la Cruz Roja Costarricense, al Director de Salud Pública. Notifíquese a las Municipalidades Administradoras del Agua, ASADAS y al público en general por medio de Publicación en el Diario Oficial La Gaceta Notifíquese publíquese.
+Acuerdo firme.
+RAZÓN DE LA SECRETARIA
+Este acuerdo N° 2005-079, fue adoptado por la Junta Directiva del Instituto Costarricense de Acueductos y Alcantarillados, en el inciso d), del artículo 6°, de la sesión Ordinaria N° 2005-004, celebrada el 24/01/2005. La cual se encuentra firme y debidamente firmada. Los anexos se adjuntan y para las Municipalidades, ESPH y ASADAS en cada caso, en las formulas deben cambiar el nombre de AYA, por el de su organización.
+San José, 2 de febrero 2005.

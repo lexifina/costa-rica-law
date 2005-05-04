@@ -1,0 +1,1 @@
+Artículo 40.—Seguidamente se elevarán los cilindros utilizando una grúa móvil o estacionaria para dicho fin. Dicho equipo deberá tener una capacidad de por lo menos 2 toneladas y susceptible de elevar la carga por lo menos 2m sobre el piso.

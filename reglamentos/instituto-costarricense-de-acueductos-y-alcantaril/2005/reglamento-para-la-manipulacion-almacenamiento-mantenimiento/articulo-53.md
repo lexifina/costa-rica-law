@@ -1,0 +1,1 @@
+Artículo 53.—Alcance. Este procedimiento es aplicable para todos aquellos sistemas del Instituto Costarricense de Acueductos y Alcantarillados (AyA) y otros operadores en todo el territorio nacional en los que se utilizan recipientes de cloro gas, y se encuentra sujeto a las leyes y reglamentos sobre materiales y productos peligrosos.

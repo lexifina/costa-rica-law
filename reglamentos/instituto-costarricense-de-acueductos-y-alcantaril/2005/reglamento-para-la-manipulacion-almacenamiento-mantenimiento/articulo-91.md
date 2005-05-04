@@ -1,0 +1,1 @@
+Artículo 91.—Se debe proceder de acuerdo al “Protocolo de intervención y atención de casos de emergencias por fugas mayores” que la brigada de emergencia del plantel haya diseñado para el sitio específico (plantel o bodega), para evacuar al personal siguiendo rutas de evacuación preestablecidas y mantener el orden en las zonas de seguridad definidas con antelación.

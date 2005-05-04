@@ -1,0 +1,1 @@
+Artículo 43.—Para sujetar los contenedores se deberán usar cadenas de 0.95 cm (3/8”) con resistencia al rompimiento de 155.680 Newtons (35.000 lbs.), y entre sí con dispositivos de bloqueo en el frente y parte trasera de la plataforma.

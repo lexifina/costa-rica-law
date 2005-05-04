@@ -1,0 +1,2 @@
+d. Medidas básicas de primeros auxilios para víctimas de accidentes con fugas de cloro.
+Artículo 97.—El contacto con cloro líquido o con una gran concentración de cloro gaseoso puede producir lesiones a los ojos, piel y membrana mucosa. En caso de fuga se debe evaluar la condición del afectado para determinar si presenta alguno de los cuadros consignados en la ficha de emergencia. A continuación se detalla cada uno de los casos:

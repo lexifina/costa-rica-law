@@ -1,0 +1,6 @@
+Artículo 48.—Carga de cilindros de cloro de 45, 53, 68 y 88 Kg.
+a) Para cargar los cilindros de cloro dentro del vehículo de transporte correspondiente, estos deben moverse hasta el área de carga y descarga de la bodega central de cloro y puntos de desinfección. Para ello debe utilizarse una carretilla de mano balanceada de preferencia con una abrazadera de 2 a 3 soportes de cadena, de acuerdo con el Artículo 24.
+b) Una vez cargados se procede a colocar los cilindros en posición vertical en el cajón del camión. Se deben mover con sumo cuidado evitando que se caigan o golpeen con cualquier objeto, mientras se colocan en su posición final.
+c) Después de colocados, los recipientes deben fijarse asegurándolos con cadenas de tal forma que amarren al cilindro o conjunto de ellos por la parte superior, media e inferior del cuerpo del (os) mismo (s) de tal manera que aún en caso de vuelco, los cilindros no se proyecten hacia fuera de la plataforma (cajón del vehículo o camión de transporte). Al asegurar el (los) cilindro(s) por la parte superior, no deben sujetarse del vástago o de la capucha.
+Ver diagrama en La Gaceta impresa N° 85 del 4 de mayo del 2005.
+d) Inmediatamente después se debe colocar una lona en el cajón del camión de tal manera que los recipientes se protejan contra el sol y permita la circulación del aire.

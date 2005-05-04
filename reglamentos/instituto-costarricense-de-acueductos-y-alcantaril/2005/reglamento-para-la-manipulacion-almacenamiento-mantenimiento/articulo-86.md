@@ -1,0 +1,1 @@
+Artículo 86.—Cualquier persona que descubra una fuga de cloro deberá dar la voz de alerta y/o activar la alarma de emergencia provista para tal fin, especificando al menos si se trata de una fuga de menor magnitud (cilindro de 45 Kg a 88 Kg) o una fuga mayor (contenedores de 907 Kg).

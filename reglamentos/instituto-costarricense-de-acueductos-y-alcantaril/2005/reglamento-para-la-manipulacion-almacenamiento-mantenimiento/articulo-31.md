@@ -1,0 +1,1 @@
+Artículo 31.—Alcance. Este procedimiento aplica para todos los vehículos del AyA, Municipalidades, E.S.P.H., ASADA’s, proveedores y transportistas, utilizados para el transporte de recipientes de cloro gas en todo el territorio nacional, bajo el control y vigilancia de la Policía de Tránsito en las carreteras, de conformidad con la Ley de Tránsito.

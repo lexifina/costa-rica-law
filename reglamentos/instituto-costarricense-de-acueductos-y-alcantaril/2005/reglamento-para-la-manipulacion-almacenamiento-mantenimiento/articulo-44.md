@@ -1,0 +1,1 @@
+Artículo 44.—Se prohíbe estibar contenedores unos sobre otros, o sobre cualquier otro material. Deben acomodarse en una sola línea, esto es, todos en un mismo nivel, su incumplimiento implicará la imposición de las sanciones establecidas en las leyes y reglamentos.
