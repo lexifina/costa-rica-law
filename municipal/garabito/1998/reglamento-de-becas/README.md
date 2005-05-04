@@ -14,3 +14,4 @@ Reglamento de Becas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-09-02 | la propia norma |
+| 2 | 2005-05-04 | Reglamento municipal 157 (2005-05-04) |
