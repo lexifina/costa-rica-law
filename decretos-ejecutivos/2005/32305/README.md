@@ -14,3 +14,4 @@ Establece precio mínimo de compra del industrial, al productor de arroz y preci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-04-19 | la propia norma |
+| 2 | 2005-05-04 | Decreto Ejecutivo 32354 (2005-05-04) |
