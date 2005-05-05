@@ -1,0 +1,11 @@
+Artículo 2°—Se instaura la unidad coordinadora para la preparación del informe nacional de cumplimiento del pacto internacional de derechos económicos, sociales y culturales, que estará a cargo de un (a) coordinador nacional designado por el Ministro de Relaciones Exteriores y Culto. La Dirección Jurídica designará además, un secretario (a) para apoyar a la coordinación. Tanto el coordinador (a) nacional como el secretario (a) deben ser funcionarios del Ministerio de Relaciones Exteriores y Culto, por lo que no debe implicar ninguna contratación adicional de personal. Podrán integrarse a la unidad otros colaboradores, entre ellos estudiantes que realizan la pasantía en la Cancillería.
+Las funciones serán las siguientes:
+a) Coordinar y dirigir la ejecución del proyecto para la elaboración Informe.
+b) Coordinar y convocar a las distintas instancias que se constituyen en el presente decreto.
+c) Capacitar en la medida que se requiera, a los funcionarios de las instituciones públicas responsables de colaborar en la elaboración del Informe, en el tema de los derechos humanos y en el manejo de los instrumentos preparados para garantizar la calidad de la información.
+d) Proveer a las instituciones participantes de los instrumentos adecuados, entre ellos los cuestionarios, para que informen sobre el estado de la situación de las áreas bajo su responsabilidad en relación con el cumplimiento de los derechos establecidos en el Pacto. Dar seguimiento a cada institución en el cumplimiento de sus responsabilidades.
+e) Valorar la información aportada por las instituciones en relación con las obligaciones contenidas en el Pacto. Asimismo, poner en conocimiento esos insumes a la comisión asesora.
+f) Realizar la consulta del contenido del informe, con la Sociedad Civil, sectores organizados y pertinentes, de previo a la conclusión definitiva del mismo.
+g) Preparar la versión final del informe para consideración del Director General de Política Exterior y en un segundo momento para consideración y aprobación del Ministro.
+h) Realizar los ajustes necesarios para concluir el informe definitivo que será presentado al comité de derechos económicos, sociales y culturales.
+i) Otras que sean necesarias para la elaboración del Informe.

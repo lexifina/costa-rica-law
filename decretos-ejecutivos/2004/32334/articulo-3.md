@@ -1,0 +1,5 @@
+Artículo 3°—Confórmese un comité interinstitucional constituido por las distintas instituciones públicas, incluyendo Ministerios de la República y entes autónomos, relacionadas con la aplicación del pacto internacional de derechos económicos, sociales y culturales, las cuales se convocarán conforme a este criterio por el coordinador (a) nacional para que integren el comité.
+Además de las que le asigne la unidad coordinadora, serán funciones de este comité:
+a) Proporcionar la información necesaria sobre las actividades a cargo de cada institución, relacionadas directamente con el goce de los derechos económicos, sociales y culturales.
+b) Trabajar conjuntamente con la unidad coordinadora en el estudio de la normativa, disposiciones, políticas, medidas específicas y prácticas desarrolladas en procura del respeto de los derechos económicos, sociales y culturales, atendiendo al llamado” de ese órgano.
+c) Participar activamente en el proceso de elaboración del informe nacional de cumplimiento, realizando las observaciones pertinentes en pos de acumular la información más fidedigna posible.

@@ -1,0 +1,1 @@
+Artículo 6°—La Coordinación convocará a instancias nacionales de la sociedad civil organizada (organizaciones no gubernamentales, Iglesia Católica, academia, expertos en la materia) en la etapa final del informe, con la finalidad de abrir espacios de consulta y validación social.

@@ -1,0 +1,4 @@
+Artículo 4°—Las instituciones participantes en el comité interinstitucional tienen las siguientes responsabilidades:
+a) Brindar la colaboración necesaria y la información pertinente a la unidad coordinadora, para lo cual designará un funcionario de enlace titular y uno suplente. Estos deberán participar en las reuniones del comité interinstitucional.
+b) Entregar información fidedigna acerca de todas las medidas que se hayan adoptado dentro de las instituciones y en colaboración con otras para salvaguardar el goce de los derechos económicos, sociales y culturales, así como la normativa y las prácticas necesarias por desarrollar para lograr efectivamente el respeto a esos derechos.
+c) Entregar dentro del plazo asignado, las solicitudes de la unidad coordinadora, atendiendo al cronograma de elaboración del informe.
