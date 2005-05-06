@@ -1,0 +1,1 @@
+Artículo 21.—Otros mecanismos de control. El Director del Departamento de Proveeduría podrá implementar otros mecanismos de control que considere pertinente y podrá establecer directrices tendientes a obtener una mejor fiscalización y administración de los licores.

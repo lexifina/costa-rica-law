@@ -1,0 +1,1 @@
+Artículo 23.—El Departamento de Informática. Brinda soporte técnico al Departamento de Proveeduría en el mantenimiento y mejora del sistema de inventarios automatizados de licores e informa de manera documentada las acciones desarrolladas en cuanto a las consultas que se le planteen al respecto.

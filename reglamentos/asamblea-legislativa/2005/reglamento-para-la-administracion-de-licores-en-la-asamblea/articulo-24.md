@@ -1,0 +1,1 @@
+Artículo 24.—Encargado de la custodia de los licores. La Jefatura del Área de Suministros es la responsable de custodiar y mantener un inventario actualizado y confiable de licores, hacer cumplir los controles estipulados en este reglamento en lo que le compete y de los trámites de documentos que se le relacionen.

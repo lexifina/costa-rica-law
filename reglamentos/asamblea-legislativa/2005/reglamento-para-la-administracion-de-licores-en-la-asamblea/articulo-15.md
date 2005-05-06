@@ -1,0 +1,1 @@
+Artículo 15.—Cotejo de inventarios. Los resultados del inventario se deben confrontar con los saldos de los registros, para determinar posibles diferencias, las cuales se investigarán para determinar su origen y proponer las medidas correctivas pertinentes, todo lo cual se documentará.

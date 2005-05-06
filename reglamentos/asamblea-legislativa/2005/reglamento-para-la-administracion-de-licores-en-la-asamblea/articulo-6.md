@@ -1,0 +1,1 @@
+Artículo 6º—Registro de ingreso del producto. El ingreso de los licores se debe registrar en el sistema de inventario automatizado y manual conforme entran al área de suministros, con la respectiva factura comercial y orden de pedido.

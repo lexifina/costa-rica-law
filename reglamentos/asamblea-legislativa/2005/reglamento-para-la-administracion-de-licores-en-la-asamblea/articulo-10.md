@@ -1,0 +1,1 @@
+Artículo 10.—Entrega del artículo. El encargado del Área de Suministros entregará el licor únicamente con la presentación de la requisición. Además hará el respectivo registro de la entrega en el sistema de inventario automatizado y manual contra entrega del producto.

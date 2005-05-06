@@ -1,0 +1,1 @@
+Artículo 14.—Planificación. El personal responsable de efectuar los distintos inventarios, deberá planificar con el debido cuidado los inventarios físicos de previo a su ejecución y elaborará la papelería y formularios que se utilizarán para realizarlos y documentarlos.

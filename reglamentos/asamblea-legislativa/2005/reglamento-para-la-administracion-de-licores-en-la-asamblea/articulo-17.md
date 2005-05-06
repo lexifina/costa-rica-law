@@ -1,0 +1,1 @@
+Artículo 17.—Diferencias en inventarios físicos y electrónicos. De constatarse algún faltante de licores por descuido o negligencia por parte de alguno de los responsables de su manejo, se aplicará la sanción disciplinaria correspondiente después de haberse otorgado el debido proceso y derecho de defensa. Además, dicho faltante deberá ser cubierto por el funcionario responsable.
