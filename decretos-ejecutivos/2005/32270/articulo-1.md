@@ -19,3 +19,4 @@ Del gasto presupuestario
 Artículo 1°—El gasto presupuestario de las entidades públicas, para el año 2006, podrá incrementarse hasta un máximo del 7% con respecto al gasto presupuestario autorizado para el 2005, según artículo 1º del Decreto Ejecutivo Nº 31708-H y sus reformas publicado en La Gaceta Nº 62 del 29 de marzo del 2004; del cual se deducirán las ampliaciones a dicho gasto que corresponden a gastos no recurrentes.
 Para aquellas entidades no contempladas en dicho decreto, el porcentaje de crecimiento se aplicará sobre el gasto presupuestario del 2005.
 Los montos autorizados resultantes serán comunicados por la Secretaría Técnica de la Autoridad Presupuestaria (STAP) a más tardar el 30 de abril del 2005.
+(Mediante el artículo 1° del decreto ejecutivo N° 32395 del 6 de mayo del 2005, se modifica el gasto presupuestario al Teatro Popular Melico Salazar, fijándolo en la suma de ¢769.60 millones)
