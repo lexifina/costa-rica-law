@@ -14,3 +14,4 @@ Reglamento de Organización y Funciones de la Auditoría Interna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-23 | la propia norma |
+| 2 | 2005-05-09 | Reglamento 17 (2005-05-09) |
