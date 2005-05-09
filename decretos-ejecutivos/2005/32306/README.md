@@ -14,3 +14,4 @@ Adiciona Detalles del Cálculo de los ingresos extraordinarios y reforma Ley de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-01 | la propia norma |
+| 2 | 2005-05-09 | Decreto Ejecutivo 32383 (2005-05-09) |
