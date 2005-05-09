@@ -1,0 +1,1 @@
+Artículo 13.—Del poncho. El poncho será color azul, con la leyenda “Fuerza Pública” en la parte trasera, en letras color amarillo. Para operativos en montaña podrá autorizarse el uso del poncho verde o en camuflaje.

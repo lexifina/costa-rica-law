@@ -1,0 +1,1 @@
+Artículo 20.—Del quepis. Tanto el personal masculino como femenino utilizará quepis del mismo color del uniforme, con visera negra con el Escudo de Costa Rica al frente en color dorado. Para la escala superior, el Escudo estará rodeado de laureles, y también tendrá laureles bordados en la visera.

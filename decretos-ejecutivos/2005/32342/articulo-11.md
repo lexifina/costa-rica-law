@@ -1,0 +1,3 @@
+Artículo 11.—Del uniforme para acondicionamiento físico. Para acondicionamiento físico u otras actividades que lo requieran, se utilizará camiseta blanca con las leyendas, “Policía” al frente y “Fuerza Pública” en la parte trasera. En su lugar se podrá utilizar camiseta completamente blanca, pantaloneta azul oscuro, medias blancas deportivas y zapatos deportivos.
+Cuando se realicen actividades de acondicionamiento físico en la vía pública, al menos dos efectivos utilizarán chalecos reflectantes.
+Los estudiantes de la Escuela Nacional de Policía, utilizarán camiseta blanca con el escudo de la Escuela al frente en el lado izquierdo, pantaloneta azul con el escudo de la Escuela en la pierna izquierda, medias deportivas blancas y zapatos deportivos.

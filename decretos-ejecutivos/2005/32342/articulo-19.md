@@ -1,0 +1,1 @@
+Artículo 19.—Del sombrero. El sombrero será de color azul mate, con el escudo de la Escuela Nacional de Policía al frente. Su uso será obligatorio y exclusivo de los miembros de la Policía Montada y los instructores de la Escuela Nacional de Policía, Sede Murciélago, Guanacaste, o su similar. Se autoriza el sombrero en camuflaje para operativos en montaña.

@@ -1,0 +1,2 @@
+Artículo 9º—Del uniforme de los técnicos, mecánicos y maquinistas. El uniforme de trabajo de los técnicos, mecánicos y maquinistas del Servicio Nacional de Guardacostas y del Servicio de Vigilancia Aérea, será el traje tipo kimono en color azul oscuro, de una sola pieza y con diseño especial para portar herramientas.
+Se utilizará gorra de color azul, con la leyenda “Guardacostas” o “Vigilancia Aérea” al frente, según corresponda y botas de media caña color negro, con puntera de acero.

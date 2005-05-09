@@ -1,0 +1,3 @@
+Artículo 18.—De la gorra. La gorra será del mismo color del uniforme, con la leyenda “Policía” al frente, en letras amarillas, y el apellido en la banda de ajuste. En la gorra no se utilizarán grados ni otro tipo de distintivo. La gorra de los oficiales superiores tendrá bordados laureles en la visera.
+La Unidad de Intervención Policial utilizará gorra tipo beisbolera, del mismo color del uniforme, con la leyenda “Policía” en su parte delantera y las siglas “UIP” en su lado derecho, ambas leyendas bordadas en hilo blanco. Deberá ser utilizada en todo momento, excepto bajo techo.
+Para operativos en zonas montañosas, con el uso del uniforme de faena en camuflaje se permite la gorra en camuflaje, previa autorización.
