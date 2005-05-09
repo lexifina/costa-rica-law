@@ -1,0 +1,11 @@
+Nº 32330
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+Con fundamento en las atribuciones conferidas por los artículos 140 incisos 3), 8), 18) y 20) de la Constitución Política, 18 de la Ley de Desarrollo Social y Asignaciones Familiares, Nº 5662, del 23 de diciembre de 1974 y 25, 27 y 28 de la Ley General de la Administración Pública.
+Considerando:
+1º—Que mediante Decreto Nº 27558-MTSS del 10 de diciembre de 1998, se creó la Comisión de Solidaridad y Desarrollo Humano (CONASOL), como un órgano de elaboración, coordinación y fiscalización de la política de financiamiento de programas destinados a la atención de la pobreza que se ejecuten con recursos del Fondo de Desarrollo Social y Asignaciones Familiares.
+2º—Que el Decreto Nº 27794-MTSS de fecha 14 de abril de 1999, modifica los artículos 1º y 2º del Decreto Nº 27558-MTSS, y crea la Comisión Nacional de Atención y Prevención de la Pobreza (CNAPP) adscrita al Ministerio de Trabajo y Seguridad Social, como órgano de desconcentración máxima para la elaboración, coordinación y fiscalización de la política social de programas destinados a la atención y prevención de la pobreza que se ejecuten con recursos del FODESAF, manteniendo las mismas funciones de la CONASOL.
+3º—Que de conformidad con los artículos 1º y 18 de la Ley Nº 5662 de fecha 24 de diciembre de 1974, crea el Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF) administrado por la Dirección General de Desarrollo Social y Asignaciones Familiares (DESAF), y cuyo Superior Jerarca es el Ministro de Trabajo y Seguridad Social.
+4º—Que en virtud de la dualidad de funciones de administración del FODESAF previstas entre los Decretos Nº 27558-MTSS y el Nº 27794-MTSS y las asignadas por la Ley Nº 5662, se crea con ello un conflicto de jerarquía de normas en su aplicación, violentando el bloque de legalidad previsto en los artículos 6º y siguientes de la Ley General de la Administración Pública. Por tanto:
+DECRETAN:
+Artículo 1º—Deróguense los artículos del 1º al 8º inclusive, del Decreto Nº 27558-MTSS, del 10 de diciembre de 1998, publicado en el Alcance Nº 96-A a La Gaceta Nº 251, del 28 de diciembre de 1998, así como la fe de erratas publicada en La Gaceta Nº 72 del jueves 15 de abril de 1999.
