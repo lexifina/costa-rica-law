@@ -14,3 +14,4 @@ Reglamento para el Pago de Gastos por Alimentación y Transporte a los Regidores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-12-09 | la propia norma |
+| 2 | 2005-05-09 | Reglamento municipal 237 (2005-05-09) |
