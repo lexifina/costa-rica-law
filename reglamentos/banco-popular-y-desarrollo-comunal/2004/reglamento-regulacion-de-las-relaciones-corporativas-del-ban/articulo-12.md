@@ -1,1 +1,0 @@
-Artículo 12.—Del uso de los recursos y la ejecución de políticas. Cuando las Sociedades Anónimas requieran recursos institucionales, el Gerente de la Sociedad respectiva, deberá plantear la solicitud correspondiente ante la Gerencia General del Banco, junto con un detalle de la utilización de los recursos solicitados. La decisión del Gerente General del Banco será definitiva.

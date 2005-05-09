@@ -1,2 +1,0 @@
-Artículo 10.—De la Unidad Técnica Corporativa. Para apoyar, implementar y dar seguimiento a los acuerdos de los órganos corporativos, se crea una Unidad Técnica Corporativa, que dependerá de la Gerencia General Corporativa, la cual será la encargada de la coordinación operativa institucional. Dicha dependencia tendrá la conformación en cuanto a personal que le determine la Gerencia General Corporativa.
-Los distintos entes que conforman la Corporación están en la obligación ineludible de brindar el apoyo solicitado por la Unidad Técnica para la atención de sus requerimientos.

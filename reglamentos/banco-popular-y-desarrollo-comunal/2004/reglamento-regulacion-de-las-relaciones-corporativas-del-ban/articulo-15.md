@@ -1,1 +1,0 @@
-Artículo 15.—De las transferencias de capital. Cuando una Sociedad Anónima requiera un aumento de capital, el Gerente previa aprobación de la Junta Directiva de la Sociedad, coordinará con el Gerente General del Banco la propuesta respectiva a someterse a la Junta Directiva Nacional en su condición de titular de las atribuciones de la asamblea de accionistas.
