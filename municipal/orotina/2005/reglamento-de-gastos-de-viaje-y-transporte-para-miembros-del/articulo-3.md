@@ -1,0 +1,1 @@
+Artículo 3º—Proporción del gasto. Deberá existir una estrecha proporción del gasto ya que el mismo debe ser sujeto a lo presupuestado por el Concejo Municipal, además del evidente interés público que debe caracterizar.

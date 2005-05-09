@@ -1,0 +1,1 @@
+Artículo 2º—Sujetos beneficiarios. Los gastos a que se refiere este Reglamento únicamente serán cubiertos a los Regidores Propietarios y Suplentes y Síndicos del Concejo Municipal de Orotina que presten sus servicios a esta Municipalidad, como parte de su obligación de asistir a las sesiones ordinarias y extraordinarias.
