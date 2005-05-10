@@ -1,0 +1,1 @@
+Artículo 22.—Archivo de documentación. Las diferentes instancias que tengan relación con el pago y trámite de tiempo extraordinario, deberán contar con un archivo en donde quede documentado todo lo relativo a dicho asunto.

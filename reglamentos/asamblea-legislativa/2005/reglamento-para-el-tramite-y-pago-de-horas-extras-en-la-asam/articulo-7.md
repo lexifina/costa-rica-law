@@ -1,0 +1,5 @@
+CAPÍTULO III
+Autorización de horas extras
+Artículo 7º—Autorización. Una vez que la jefatura inmediata haya detectado la necesidad de laborar tiempo extraordinario, dará el visto bueno en la correspondiente boleta de autorización, así como la autorización de la dirección de departamento, la dirección de división respectiva y la Dirección Ejecutiva, quienes deberán velar porque no se extralimite en el tope establecido, si existiera tal tope.
+Sin detrimento de la anterior disposición, el Director Ejecutivo podrá reconocer tiempo extraordinario a aquellos funcionarios que deban cubrir situaciones de emergencia e imprevistas, para solventar necesidades institucionales, aun cuando estas excedan el tope establecido.
+En el caso de la Unidad de Transportes, la autorización del tiempo extraordinario se hará una vez que la Segunda Secretaría del Directorio (la Dirección Ejecutiva o la Dirección de Servicios Generales) y la Jefatura de la Unidad de Transportes autoricen la gira solicitada mediante la boleta “Solicitud servicio de transporte para gira”, de acuerdo con el horario de trabajo propuesto en la respectiva boleta.

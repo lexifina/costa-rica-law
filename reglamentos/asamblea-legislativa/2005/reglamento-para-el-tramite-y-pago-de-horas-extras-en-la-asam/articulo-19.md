@@ -1,0 +1,1 @@
+Artículo 19.—Funcionarios con pago de incentivos. Se reconocerá el pago de tiempo extraordinario a funcionarios con nivel profesional que gocen de los incentivos de prohibición y dedicación exclusiva, cuando el trabajo sea de suma importancia, estrictamente necesario y debidamente justificado por los jerarcas respectivos.

@@ -1,0 +1,1 @@
+Artículo 21.—Presentación extemporánea. Todo reconocimiento de tiempo extra, presentado para pago fuera del tiempo reglamentado en el artículo anterior, deberá contar con un acuerdo tomado por el Directorio Legislativo, y deberá ser sustentado y respaldado con motivos de fuerza mayor, ajenos al funcionario que solicitó y laboró tiempo extra.
