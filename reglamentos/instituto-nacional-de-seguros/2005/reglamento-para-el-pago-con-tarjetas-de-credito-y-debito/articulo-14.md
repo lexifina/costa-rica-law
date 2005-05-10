@@ -1,0 +1,1 @@
+Artículo 14.—En todo lo que no se encuentre especificado en el presente Reglamento aplicará lo estipulado en la Ley de Contratación Administrativa, su Reglamento y las Disposiciones que al efecto dicte la Gerencia del Instituto.

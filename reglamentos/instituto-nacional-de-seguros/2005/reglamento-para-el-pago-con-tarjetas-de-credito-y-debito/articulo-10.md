@@ -1,0 +1,1 @@
+Artículo 10.—El Instituto reconocerá a la Empresa una comisión sobre el valor total de las transacciones realizadas. La comisión a pagar será establecida y revisada en forma anual por la Dirección Financiera de el Instituto.

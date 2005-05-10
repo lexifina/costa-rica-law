@@ -1,0 +1,1 @@
+Artículo 9º—El Emisor o Procesador será el encargado de procesar los cobros que el Instituto le envíe de acuerdo con los términos de cada contrato, y no podrá reembolsar directamente al tarjetahabiente ninguna suma de dinero. Cualquier modificación que el cliente del Instituto desee realizar en su contrato deberá tramitarlo directamente con el INS.
