@@ -15,3 +15,4 @@ Reglamento de Radiocomunicaciones
 | --- | --- | --- |
 | 1 | 2004-06-28 | la propia norma |
 | 2 | 2004-10-22 | Decreto Ejecutivo 32168 (2004-10-22) |
+| 3 | 2005-05-10 | Decreto Ejecutivo 32485 (2005-05-10) |
