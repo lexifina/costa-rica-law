@@ -1,0 +1,1 @@
+Artículo 19.—El usuario debe cambiar su clave de acceso periódicamente para mayor seguridad, por lo cual la misma caducará cada cuatro meses. Durante los tres días anteriores a la fecha de vencimiento, el usuario recibirá la notificación del sistema al respecto.

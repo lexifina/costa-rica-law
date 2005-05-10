@@ -1,0 +1,1 @@
+Artículo 33.—La administración de la red del Departamento de Informática, no ejercerá ningún control sobre el contenido de correo que pase por la red o de quien lo utilice, por lo que queda bajo la entera responsabilidad del usuario.

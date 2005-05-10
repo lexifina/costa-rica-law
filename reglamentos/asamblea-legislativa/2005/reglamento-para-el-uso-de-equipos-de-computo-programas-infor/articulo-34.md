@@ -1,0 +1,1 @@
+Artículo 34.—El Departamento de Informática pondrá en funcionamiento herramientas de control que posibiliten detectar, analizar y bloquear accesos no permitidos, (aquellos que no guarden relación con aspectos de trabajo), que pongan en riesgo la seguridad de los recursos informáticos y atenten contra su desempeño.

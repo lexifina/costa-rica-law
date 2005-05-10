@@ -1,0 +1,1 @@
+Artículo 38.—Los funcionarios encargados de la administración de los servicios deberán guardar confidencialidad y discrecionalidad sobre la información de las actividades en línea. Por ningún motivo proporcionarán información a personas no autorizadas para solicitarla, todo de acuerdo con lo que establece este Reglamento.

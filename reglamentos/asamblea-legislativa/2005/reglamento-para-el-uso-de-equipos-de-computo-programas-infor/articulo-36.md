@@ -1,0 +1,1 @@
+Artículo 36.—El Departamento de Informática mantendrá una copia de la bitácora y sus respectivos respaldos sobre las actividades en Internet de todos los usuarios de la red por un período de tres meses. Los datos a registrar en dicha bitácora serán los siguientes: usuario, fecha de acceso, hora de inicio, hora de fin, dirección del sitio visitado.

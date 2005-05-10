@@ -1,0 +1,1 @@
+Artículo 25.—La cuenta de correo electrónico es para ser usada exclusivamente por el funcionario acreditado. El usuario propietario es responsable de las actividades que realice con ella cualquier otra persona.
