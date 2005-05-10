@@ -1,0 +1,1 @@
+Artículo 6º—Declárese de interés educativo el trabajo que realice esta comisión, por lo que se autoriza a instituciones públicas y privadas a destinar recursos humanos y materiales, en la medida de sus posibilidades legales, a fin de lograr los objetivos estipulados.

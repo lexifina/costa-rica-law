@@ -1,0 +1,1 @@
+Artículo 5º—Cuando se cuente con disponibilidad presupuestaria, el Ministerio de Educación Pública designará un funcionario(a) en un código de asesor de educación 2, quien dará seguimiento a los acuerdos, propuestas o recomendaciones que dicha comisión formule y coordinará el trabajo de ella. Este código estará ubicado en la División de Desarrollo Curricular.
