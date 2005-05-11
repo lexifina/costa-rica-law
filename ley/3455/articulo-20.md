@@ -1,10 +1,6 @@
-CAPITULO V
-Correcciones Disciplinarias
-Artículo 20.- La Junta Directiva podrá imponer corrección
-disciplinaria a cualquiera de los miembros del Colegio;
-a) Por infracción de la presente ley, de su Reglamento o de las
-disposiciones que haya adoptado o adopte el Colegio;
-b) Por las faltas o abusos que cometan en el ejercicio o práctica
-de su profesión o empleo; y
-c) Por conducta profesional antiética que haga desmerecer en el
-concepto público a la profesión y al Colegio.
+Artículo 20.—El Tribunal de Honor estará integrado por cinco miembros propietarios, quienes serán nombrados por la asamblea general ordinaria y durarán en sus cargos dos años, con la posibilidad de ser reelegidos por un período igual. En la misma
+asamblea se elegirán tres miembros suplentes, quienes serán llamados a sustituir a los propietarios en las ausencias temporales o por motivos de incompatibilidad con un caso concreto. El Tribunal tendrá un presidente, un secretario y tres vocales, cuyos puestos serán designados de su seno en la primera sesión de trabajo que celebren.
+La elección de los miembros del Tribunal, tanto propietarios como suplentes, se efectuará tomando en cuenta los valores morales y atestados profesionales e intelectuales de los candidatos. Corresponde al Tribunal de Honor conocer de las denuncias que se presenten contra los miembros del Colegio, a causa de infracciones al Código de Ética dictado por la Asamblea General. Las denuncias pueden ser presentadas por el fiscal, por cualquier colegiado o por terceros.
+En el trámite de las denuncias que se presenten, el Tribunal estudiará los casos, con estricto respeto a los derechos fundamenta
+les de los denunciados, y recomendará lo que corresponda a la Junta Directiva.
+( Así reformado por el artículo 1° de la Ley N° 8437 del 13 de abril de 2005)

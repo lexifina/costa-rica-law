@@ -1,9 +1,5 @@
-Artículo 11.- Para que haya sesión de Asamblea General será necesaria
-la concurrencia de las tres cuartas partes de los miembros del Colegio.
-En caso de que no se reúna ese número para una reunión debidamente
-convocada, podrá celebrarse la Asamblea General en el mismo local
-señalado, media hora después y con la asistencia de la cuarta parte de los
-colegiados. La convocatoria se hará por medio del periódico oficial o de
-avisos publicados en los diarios de mayor circulación con tres días de
-anticipación por lo menos, e indicará lugar, día y hora de la reunión así
-como los asuntos a tratar en ella.
+Artículo 11.—La Asamblea General es el órgano máximo del Colegio y está compuesta por todos los miembros activos, entendidos como tales aquellos que no se encuentren suspendidos o retirados.
+El quórum requerido para iniciar una asamblea ordinaria o extraordinaria, en primera convocatoria, será la mitad más uno de los miembros activos. Si a la hora señalada para la primera convocatoria no se ha reunido el quórum señalado, se procederá a celebrar la asamblea en segunda convocatoria media hora después, en cuyo caso constituirán quórum los miembros activos presentes. Una vez iniciada la asamblea, continuará con los miembros presentes.
+Las asambleas ordinarias y extraordinarias requerirán convocatoria, la cual se publicará una vez en La Gaceta y en un diario de circulación nacional. En la convocatoria deberá indicarse el día y las horas de la primera y la segunda convocatorias, la agenda y el sitio.
+La publicación de la convocatoria en La Gaceta deberá aparecer cuando menos diez días hábiles antes del señalado para la celebración de la asamblea.
+( Así reformado por el artículo 1° de la Ley N° 8437 del 13 de abril del 2005)
