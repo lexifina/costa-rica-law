@@ -1,0 +1,1 @@
+Artículo 3º—Para efectos del ámbito de aplicación de este reglamento, se establece que el nivel de vigilancia de la calidad del agua potable, corresponde al Ministerio de Salud y los niveles de administración, control y ejecución a los organismos operadores.

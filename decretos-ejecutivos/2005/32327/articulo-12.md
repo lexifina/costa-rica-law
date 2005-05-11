@@ -1,0 +1,3 @@
+CAPÍTULO V
+Desinfección
+Artículo 12.—Utilización de la desinfección. El proceso de desinfección se utiliza como parte de una serie de operaciones y procesos de tratamiento unitario en una planta. En su forma mas simple se aplica como único tratamiento de aguas naturales de excelente calidad (aguas subterráneas o de manantial) para garantizar ausencia de indicadores de contaminación fecal entre el punto de aplicación y el punto de entrega al usuario. La desinfección deberá aplicarse además para mantener un nivel residual, según lo indicado en el artículo 13, que garantice la calidad del agua de contaminaciones eventuales a través de todo el sistema de distribución.
