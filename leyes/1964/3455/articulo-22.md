@@ -1,4 +1,1 @@
-Artículo 22.- La advertencia y amonestación serán hechas por el
-Presidente del Colegio por escrito o de palabra, y en este último caso,
-privadamente o en Junta Directiva todo -lo mismo que el procedimiento a
-seguir- a juicio de esta última.
+Artículo 22.- (Este artículo fue DEROGADO por el artículo 2° de la Ley 8437 del 13 de abril de 2005).
