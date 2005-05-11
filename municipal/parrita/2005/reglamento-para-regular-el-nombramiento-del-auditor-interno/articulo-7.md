@@ -1,0 +1,1 @@
+Artículo 7º—Para la presentación de las ofertas se podrán utilizar del presente Reglamento, en un término de cuarenta y ocho horas después medios electrónicos, siempre que se cumpla con los requisitos del artículo 6 del presente Reglamento, en un término de cuarenta y ocho horas después de su envío.

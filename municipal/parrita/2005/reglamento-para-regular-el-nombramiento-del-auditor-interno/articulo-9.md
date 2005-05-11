@@ -1,0 +1,1 @@
+Artículo 9º—Para efectos de demostrar el título académico del oferente, este debe presentar original copia del título emitido por un Centro de Enseñanza Superior, reconocido por el Ministerio de Educación.

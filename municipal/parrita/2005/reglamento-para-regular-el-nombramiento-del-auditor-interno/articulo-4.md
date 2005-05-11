@@ -1,0 +1,1 @@
+Artículo 4º—El Concejo Municipal tomará un acuerdo mediante el cual se hará la convocatoria al concurso público, del cual se publicará un extracto en un diario de circulación nacional, una vez tomado el acuerdo corresponde a la administración la publicación respectiva.
