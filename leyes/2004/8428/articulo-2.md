@@ -3,3 +3,4 @@ Nota: Por lo extenso de su contenido ver Alcance N° 67 a La Gaceta N° 257 del 
 (Modificado por el artículo 1° del decreto ejecutivo N° 32179 del 4 de enero del 2005)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32197 del 13 enero del 2005)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32287 del 09 de marzo del 2005)
+(Modificado por el artículo 1° Y 3° del decreto ejecutivo N° 32292 del 28 de marzo del 2005)
