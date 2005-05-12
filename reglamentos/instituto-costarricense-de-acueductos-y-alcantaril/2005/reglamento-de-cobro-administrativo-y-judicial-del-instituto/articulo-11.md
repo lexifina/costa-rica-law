@@ -1,0 +1,4 @@
+Artículo 11.—De los arreglos de pago por deudas correspondientes a la prestación de servicios de agua potable y/o alcantarillado sanitario.
+Términos de los arreglos de pago. En todos los casos de arreglo
+de pago, es entendido que AyA como acreedor no renuncia a la ejecución forzosa en virtud de morosidad. No obstante mientras se cumpla con el arreglo de pago formulado, no se presentará el juicio ejecutivo. En todos los casos deberá de recibírsele al deudor las sumas que en ese acto aporte para formalizar el arreglo de pago.
+En lo posible, los arreglos de pago se orientarán para que los clientes cancelen un pago inicial del 20% de la deuda total y el saldo a un plazo máximo de veinticuatro meses. Para clientes de tarifa "Económica", el pago inicial será de un 25% de la deuda total y el saldo a un plazo máximo de 12 meses.

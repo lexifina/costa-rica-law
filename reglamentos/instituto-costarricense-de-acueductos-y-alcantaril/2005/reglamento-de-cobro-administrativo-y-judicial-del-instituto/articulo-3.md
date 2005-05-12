@@ -1,0 +1,1 @@
+Artículo 3º—Organización. La recuperación de las obligaciones pendientes de pago estará a cargo de los Departamentos de Cobranza de las distintas Regiones y las Asesorías Legales de la Dirección Jurídica de AyA.

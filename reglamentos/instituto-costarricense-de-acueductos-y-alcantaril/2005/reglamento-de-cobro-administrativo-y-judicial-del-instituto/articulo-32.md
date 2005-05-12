@@ -1,0 +1,10 @@
+Artículo 32.—De las obligaciones incobrables por concepto de deudas por servicios de agua potable y alcantarillado sanitario. Se gestionará la declaratoria de incobrabilidad aquellas obligaciones que presenten las siguientes condiciones:
+a. Cuentas a cobrar con montos menores o iguales a ¢30,000.00 cuyo servicio haya sido suspendido desde hace más de 12 meses y se encuentre inactivo y no haya sido posible recuperar la deuda mediante cobro administrativo.
+En estos casos, debe existir certificación del área comercial respectiva, que declare la inexistencia de bypas o paja fraudulenta en el servicio.
+b. Cuentas con montos mayores a ¢30.000 para los cuales se ha realizado el proceso de Cobro Administrativo y Judicial sin que se haya podido recuperar la deuda y se encuentren inactivas.
+c. Cuentas para las cuales se ha gestionado la recuperación del pendiente y se ha solicitado administrativamente la prescripción de la deuda por parte del interesado, de facturas que tienen diez o más años en estado de morosidad, previa certificación de las Unidades correspondientes y estudio técnico de la facturación.
+d. Cuentas para las cuales se ha gestionado el Cobro Judicial y se haya declarado judicialmente la prescripción del cobro de algunas facturas. Serán incobrables, en este caso, únicamente las facturaciones declaradas prescritas. La Administración deberá determinar la responsabilidad del funcionario, que dejare transcurrir los plazos de ley, para lograr el efectivo pago de las deudas, previa determinación de que existían los supuestos anteriormente detallados, para la efectiva recuperación de las sumas pecuniarias.
+e. Cuentas para las cuales no es posible reconstruir por ningún medio el Estado de Cuenta, ni depurar el pendiente por no poderse recuperar la información necesaria.
+f. Cuentas en las cuales las propiedades han sufrido modificaciones catastrales y no se puede determinar el inmueble donde recae la deuda, previo estudio técnico y legal.
+Se informará periódicamente a la ARESEP sobre las cuentas que se
+haya declarado incobrables a efectos de demostrar la gestión institucional.

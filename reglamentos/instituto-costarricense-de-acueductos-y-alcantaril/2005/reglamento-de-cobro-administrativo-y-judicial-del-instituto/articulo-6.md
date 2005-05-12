@@ -1,0 +1,2 @@
+Artículo 6º—De la instalación de la fuente pública. Para el caso de servicios registrados con tarifa domiciliar que sean suspendidos por morosidad, AyA procederá a instalar una fuente pública, al menos a cien metros de distancia del servicio desconectado, cuando éste así lo solicite.
+Para aquellos clientes cuyo servicio en tarifa domiciliar haya sido suspendido y no hayan solicitado la fuente pública, AyA facilitará fuentes públicas en los sectores donde existan servicios suspendidos.

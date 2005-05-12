@@ -1,0 +1,1 @@
+Artículo 17.—Cobro de honorarios. El cobro de los honorarios profesionales será responsabilidad de la Asesoría Legal de Cobros Especiales, de la Asesoría Legal Comercial y demás Asesorías Legales Regionales y se regirán por la tabla de honorarios, según Decreto Ejecutivo vigente. Dichas sumas ingresarán a la Dirección Financiera de AyA.

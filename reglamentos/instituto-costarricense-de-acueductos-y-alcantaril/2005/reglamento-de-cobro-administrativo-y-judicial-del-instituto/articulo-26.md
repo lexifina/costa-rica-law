@@ -1,0 +1,2 @@
+Artículo 26.—Remate. El día hábil inmediato siguiente al remate, el Departamento correspondiente deberá informar al Director Jurídico o a la Gerencia General, acerca del resultado del mismo.
+A juicio de AyA, luego de celebrado un remate en el que no hubo postores, el Departamento correspondiente solicitará al Despacho Judicial un nuevo señalamiento para realizarlo o en su defecto, AyA podrá adjudicarse los bienes con base en lo establecido en el párrafo primero del artículo 655 del Código Procesal Civil.

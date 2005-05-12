@@ -1,0 +1,2 @@
+Artículo 27.—Adjudicación y puesta en posesión. Una vez adjudicado un bien a AyA, el Departamento correspondiente debe solicitar de inmediato al Juez la aprobación del remate y gestionará la puesta en posesión del bien adjudicado.
+La protocolización de piezas por bienes adjudicados a favor de la Institución estará a cargo de un Notario de AyA de acuerdo al rol que al efecto existe, lo cual debe ser gestionado por la Unidad.

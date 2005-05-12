@@ -1,0 +1,2 @@
+Artículo 20.—Formalización y aprobación de arreglos extrajudiciales. La Gerencia General podrá autorizar recibir de sus deudores sumas parciales para cubrir sus obligaciones, o bien la cancelación de la totalidad de la deuda.
+La solicitud de arreglos de pago los efectuará el deudor ante el Departamento correspondiente y se formalizará mediante la emisión de un título ejecutivo, caso de ser aprobada por la Gerencia General. No podrá recibirse dinero en aquellos casos en que se haya producido el remate de la propiedad.
