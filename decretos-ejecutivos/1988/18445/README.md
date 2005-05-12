@@ -22,3 +22,4 @@ Reglamento a Ley del Impuesto sobre la Renta
 | 7 | 2001-10-23 | Decreto Ejecutivo 29952 (2001-10-23) |
 | 8 | 2002-02-07 | Decreto Ejecutivo 30410 (2002-02-07) |
 | 9 | 2003-04-03 | Decreto Ejecutivo 31130 (2003-04-03) |
+| 10 | 2005-05-12 | Decreto Ejecutivo 32410 (2005-05-12) |
