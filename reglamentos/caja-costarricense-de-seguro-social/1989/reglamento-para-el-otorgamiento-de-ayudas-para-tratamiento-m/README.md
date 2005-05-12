@@ -18,3 +18,4 @@ Reglamento para el Otorgamiento de Ayudas para Tratamiento Médico en el Exterio
 | 4 | 1994-03-03 | Reglamento 6808 (1994-03-03) |
 | 5 | 1997-11-25 | Reglamento 7178 (1997-11-25) |
 | 6 | 1999-03-25 | Reglamento 7299 (1999-03-25) |
+| 7 | 2005-05-12 | Reglamento 7957 (2005-05-12) |
