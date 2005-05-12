@@ -1,1 +1,0 @@
-Artículo 4º—Identificación de los convenios que transmiten la propiedad de los bienes arrendados. Para que se configure el requisito enunciado en el numeral i) del artículo 2°, el contrato debe contener una estipulación mediante la cual la transferencia de dominio del bien arrendado sea consecuencia necesaria e inevitable del cumplimiento de los demás deberes contractuales.

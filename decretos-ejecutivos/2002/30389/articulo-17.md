@@ -1,4 +1,0 @@
-SECCIÓN IV
-Disposiciones finales
-Artículo 17.—Conciliación para efectos tributarios. En razón de que a partir del período fiscal del impuesto sobre las utilidades 2001, las empresas se encuentran en la obligación de registrar contablemente los arrendamientos de acuerdo con las prescripciones de la Norma Internacional de Contabilidad 17, en caso de que el tratamiento de un arrendamiento de conformidad con lo dispuesto en este Decreto no coincida con el que se debe dar, para efectos financieros, según la NIC citada, se deberán conciliar sus resultados financieros para realizar los ajustes que afectarán la base imponible del impuesto sobre las utilidades.
-El tratamiento contable asignado al contrato no tendrá incidencia en materia tributaria, siempre y cuando la conciliación que se haga con tales efectos cumpla con las disposiciones de este Reglamento.

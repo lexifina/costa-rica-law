@@ -1,3 +1,0 @@
-Artículo 16.—Arrendante domiciliado en el exterior. Financiero. Operativo. Los pagos que los arrendatarios efectúen a personas —físicas o jurídicas— no domiciliados en el país, como consecuencia de operaciones de arrendamiento financiero, al ser asimilable a la adquisición de bienes, a plazo, no están afectos al impuesto sobre remesas al exterior.
-Por el contrario, en lo tocante a los arrendamientos operativos, cuando se trate de bienes utilizados en actividades comerciales debe retenerse el 15% de los montos pagados o acreditados.
-Si se trata de arrendamientos operativos de bienes utilizados en actividades industriales o agropecuarias, podría ser inaplicable la retención si se cumplen las condiciones señaladas por el artículo 59 de la Ley del Impuesto sobre la Renta.
