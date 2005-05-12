@@ -1,0 +1,1 @@
+Artículo 8º—Todas las dependencias municipales, por formar parte del Sistema están obligadas a facilitar la labor de la Unidad de Control Interno, mediante el trabajo conjunto en la consolidación y activación del Sistema; así como brindar en tiempo, suficiencia, certeza y claridad; todo tipo de información que le sea requerido por la Unidad.

@@ -1,0 +1,1 @@
+Artículo 5°—La Unidad de Control Interno estará adscrita al Alcalde, por ser éste el ente encargado de llevar a cabo la formulación, monitoreo y evaluación de planes, programas y proyectos en la institución.
