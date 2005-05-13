@@ -1,0 +1,1 @@
+Artículo 35.—El Inspector General y el Contralor de Servicios deberán realizar una vez al año, una encuesta de percepción sobre los servicios concesionados, dirigida tanto a los funcionarios como a los visitantes y usuarios. Sus resultados deberán ser analizados por el Comité Técnico del Área de Conservación quién emitirá recomendaciones sobre los mismos.

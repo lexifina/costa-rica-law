@@ -1,0 +1,1 @@
+Artículo 26.—Los precios que se definan para los servicios estipulados en este Reglamento deberán apegarse al principio de racionalidad, evitando cualquier posible especulación y basados en la oferta y demanda de cada zona, además de encuestas de disponibilidad de pago de los visitantes.

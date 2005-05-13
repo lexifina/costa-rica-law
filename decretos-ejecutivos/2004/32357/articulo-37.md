@@ -1,0 +1,1 @@
+Artículo 37.—La Ley de Contratación Administrativa y su Reglamento, se considerarán como fuentes supletorias de las disposiciones establecidas en el presente Reglamento y serán utilizadas para resolver los casos y las situaciones no previstas.

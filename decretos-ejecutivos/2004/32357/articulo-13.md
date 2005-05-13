@@ -1,0 +1,1 @@
+Artículo 13.—Por razones de interés público el MINAE por medio del SINAC podrá modificar las características de los servicios concesionados, con fundamento en el artículo 12 de la Ley de Contratación Administrativa Nº 7494.

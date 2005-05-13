@@ -1,0 +1,1 @@
+Artículo 17.—El SINAC podrá realizar auditorías de calidad cuando lo considere oportuno. Sin embargo, se efectuarán una vez al año como mínimo. Además se llevarán a cabo, inspecciones directas, encuestas o cualquier otro mecanismo que permita evaluar la calidad del servicio concesionado, todo esto con base en lo establecido por el capítulo VI de este Reglamento.

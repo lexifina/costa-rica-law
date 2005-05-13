@@ -1,0 +1,1 @@
+Artículo 19.—El adjudicatario deberá entregar al visitante o usuario la respectiva factura timbrada o tiquete de caja en caso de estar adscrito al régimen de tributación simplificado, como comprobantes de su pago. Se exceptúan casos debidamente exonerados del timbraje por la ley.
