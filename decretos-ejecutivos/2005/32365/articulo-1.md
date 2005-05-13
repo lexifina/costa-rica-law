@@ -1,0 +1,14 @@
+Nº 32365
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que les confieren los artículos 140 incisos, 3) y 18), 146 de la Constitución Política, 1, 2, 4, 7, 37, 38, 39, 337, siguientes y concordantes de la Ley Nº 5395 del 30 de octubre de 1973, Ley General de Salud y 6 de la Ley Nº 5412 del 8 de noviembre de 1973, Ley Orgánica del Ministerio de Salud.
+Considerando:
+I.—Que es función del Ministerio de Salud velar por la salud de la población.
+II.—Que las pruebas rápidas de diagnóstico in vitro han penetrado en el mercado nacional y se ofrecen en forma masiva a los pacientes en forma personal y privada.
+III.—Que la interpretación indebida de los resultados dados por una prueba rápida de diagnóstico puede tener consecuencias graves en el estado de salud de los pacientes.
+IV.—Que el objetivo de estas pruebas rápidas de diagnóstico es ofrecer una alternativa orientadora de diagnóstico de patologías de fácil manejo, lo cual se contradice al existir pruebas rápidas, que se ofrecen también al público, siendo que las patologías interesadas son de estricto manejo médico, por lo cual con la utilización de estas pruebas, por parte de los pacientes, se pierde la oportunidad de realizar acciones médicas oportunas, poniéndose en riesgo la Salud Pública.
+V.—Que la utilización y registro de pruebas rápidas de estricto manejo médico y su posterior oferta a los pacientes, entorpece clara y abiertamente los programas nacionales de salud tales como detección temprana de cáncer de cervix, cáncer de mama, antígeno prostático, enfermedades de transmisión sexual, detección de infarto, declaración obligatoria de enfermedades venéreas, al posibilitarse la sustracción del paciente a la oportuna atención médica, por el carácter personal y privado de la prueba, con el evidente riesgo de la población expuesta.
+VI.—Que la definición de pruebas rápidas en el reglamento de registro vigente no hace diferencia alguna de las diferentes pruebas rápidas con base al riesgo para la Salud Pública, con lo cual, al registrarlas sin diferenciación alguna, ni restricción, se pone en peligro la Salud Pública.
+VII.—Que lo anterior hace que el reglamento vigente resulte contradictorio a lo dispuesto en el ordenamiento jurídico puesto que la Dirección de Registros y Controles se ve entonces obligada a registrar pruebas que ponen en riesgo la Salud Pública en abierta contradicción con la función y naturaleza del Ministerio de Salud. VIII.—Que el reglamento para notificación, registro, clasificación, importación y control de equipo y material biomédico, contempla una clasificación por riesgo a la salud de las pruebas rápidas, entre otros, lo que optimizaría el uso de dichas pruebas. Por tanto:
+DECRETAN:
+Artículo 1º—Se deroga el Decreto Nº 30220-S, del 26 de noviembre del 2001, publicado en el Alcance Nº 25 a La Gaceta Nº 57 del 21 de marzo del 2002, “Reglamento para el Registro de Pruebas Rápidas de Diagnóstico de Laboratorio”.
