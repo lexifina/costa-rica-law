@@ -14,3 +14,4 @@ Declara de interés público y nacional, las actividades que llevará a cabo la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-26 | la propia norma |
+| 2 | 2005-05-13 | Decreto Ejecutivo 32411 (2005-05-13) |

@@ -7,4 +7,5 @@ Considerando:
 2º—Que las actividades que se realizarán durante el Congreso indicado, se consideran de importancia para el país en materia de Salud, toda vez que reunirán a Profesionales de las Ciencias de la Salud, tanto del sector público como del sector privado del país.
 3º—Que los organizadores del evento han solicitado al Ministerio de Salud la declaratoria de interés público y nacional de las actividades citadas. Por tanto:
 DECRETAN:
-Artículo 1º—Se declaran de interés público y nacional, las actividades que llevará a cabo la Asociación Costarricense de Nefrología, con motivo de la celebración del VII Congreso Latinoamericano de Nefrología Pediátrica, que tendrá lugar en nuestro país del 5 al 9 de setiembre del 2005.
+Artículo 1º—Se declaran de interés público y nacional, las actividades que llevará a cabo la Asociación Costarricense de Nefrología, con motivo de la celebración del VII Congreso Latinoamericano de Nefrología Pediátrica, que tendrá lugar en nuestro país del 5 al 8 de noviembre del 2005.
+(Así reformado parcialmente por Artículo 1° del Decreto Ejecutivo N°32411 del 13 de mayo del 2005).
