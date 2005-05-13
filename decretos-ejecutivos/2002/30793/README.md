@@ -14,3 +14,4 @@ Reglamento Operativo del Programa de Regularización del Catastro y el Registro 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-04 | la propia norma |
+| 2 | 2005-05-13 | Decreto Ejecutivo 32560 (2005-05-13) |
