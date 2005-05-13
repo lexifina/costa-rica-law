@@ -1,0 +1,1 @@
+Artículo 7º—Corresponde a la Administración emitir mensualmente el estado de cuenta, del pendiente de pago por los servicios ofrecidos, y enviarlo al Director Ejecutivo y al Concejo Director de FEDEMUR, para su respectivo análisis.
