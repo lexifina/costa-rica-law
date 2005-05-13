@@ -1,0 +1,1 @@
+Artículo 9º—De la selección. La selección de los posibles candidatos(as) se realizará con base a los resultados de la metodología empleada y a lo dispuesto en el artículo 31 de la Ley de Control Interno N° 8292.
