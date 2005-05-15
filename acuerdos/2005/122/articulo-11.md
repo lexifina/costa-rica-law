@@ -1,0 +1,1 @@
+Artículo 11.—El incumplimiento de las disposiciones y regulaciones establecidas en el presente acuerdo, dará lugar a la aplicación de lo dispuesto en el artículo 12 de la Ley Nº 190, Ley de Pesca y Caza Marina, del 28 de setiembre de 1948, previo cumplimiento y garantía del debido proceso para los administrados.

@@ -1,0 +1,1 @@
+Artículo 5º—Si los marcos de los DET’s y las barras detectoras son construidos con las características de los materiales que se indican en los artículos 1º y 2º del presente acuerdo, el espacio entre las barras detectoras y el marco de la parrilla no deberá de exceder las 6 pulgadas.
