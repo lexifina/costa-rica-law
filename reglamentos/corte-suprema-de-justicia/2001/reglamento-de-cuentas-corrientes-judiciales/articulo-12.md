@@ -1,2 +1,4 @@
 Artículo 12.—Numerario. Únicamente podrá recibirse en depósito judicial, dinero en efectivo y cheques girados contra las mismas cuentas corrientes judiciales por concepto de traspaso de fondos. No se recibirá en depósitos judiciales, cheques que no hayan sido debidamente certificados por el Banco pagador.
+Para los efectos del artículo 652 del Código Procesal Civil se aceptarán depósitos en dinero efectivo, cheque certificado, cheque de gerencia u orden incondicional de pago irrevocable en favor del tribunal respectivo, emitidos por bancos públicos o privados domiciliados en Costa Rica, autorizados por la legislación bancaria para recibir depósitos y abrir cuentas corrientes.
 Los depósitos en especie se regirán conforme lo dispuesto en el capítulo II de este título.
+(Así reformado mediante sesión N° 13-05, celebrada el 16 de mayo de 2005)
