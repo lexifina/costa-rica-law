@@ -13,3 +13,4 @@ Reforma Integral Reglamento de Cuentas Corrientes Judiciales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-14 | la propia norma |
+| 2 | 2005-05-16 | Reglamento 13 (2005-05-16) |
