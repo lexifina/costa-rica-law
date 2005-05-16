@@ -1,0 +1,1 @@
+Artículo 2º—El documento de referencia se encuentra disponible para las entidades públicas, ministerios y demás órganos, en los correspondientes sitios electrónicos del Sistema Nacional de Evaluación, de la Dirección General de Presupuesto Nacional y de la Autoridad Presupuestaria.
