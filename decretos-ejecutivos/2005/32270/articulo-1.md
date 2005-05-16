@@ -20,3 +20,4 @@ Artículo 1°—El gasto presupuestario de las entidades públicas, para el año
 Para aquellas entidades no contempladas en dicho decreto, el porcentaje de crecimiento se aplicará sobre el gasto presupuestario del 2005.
 Los montos autorizados resultantes serán comunicados por la Secretaría Técnica de la Autoridad Presupuestaria (STAP) a más tardar el 30 de abril del 2005.
 (Mediante el artículo 1° del decreto ejecutivo N° 32395 del 6 de mayo del 2005, se modifica el gasto presupuestario al Teatro Popular Melico Salazar, fijándolo en la suma de ¢769.60 millones)
+(Modificado mediante Artículo 1° del Decreto Ejecutivo N° 32415 del 16 de mayo del 2005 en el siguiente sentido: Artículo 1º—Modifícase al Consejo de Transporte Público, el gasto presupuestario máximo fijado para el año 2006, establecido según el artículo 1° del Decreto Ejecutivo N° 32270-H, publicado en La Gaceta N° 54 del 17 de marzo del 2005, de manera que éste no podrá exceder la suma de ¢ 1.278.9 millones.)
