@@ -1,0 +1,1 @@
+Artículo 11.—Estimación de Contratación: Para efectos de determinar el procedimiento aplicable en cada caso, se toma en consideración para fijar el costo total, tanto el importe principal como también aquellos que necesariamente deben cubrirse al contratista conforme con los términos del concurso, tales como: tasas, fletes, seguros, etcétera.

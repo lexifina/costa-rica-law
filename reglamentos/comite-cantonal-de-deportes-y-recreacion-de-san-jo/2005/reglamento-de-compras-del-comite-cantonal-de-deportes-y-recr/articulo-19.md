@@ -1,0 +1,1 @@
+Artículo 19.—Entrega de órdenes de compra: La Sección de Proveeduría entrega a los proveedores el original de la orden de compra, observando que la misma cumpla todas las formalidades y trámites requeridos, y remitirá una copia a la Tesorería para el trámite de pago.

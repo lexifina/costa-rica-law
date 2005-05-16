@@ -1,0 +1,1 @@
+Artículo 21.—Recepción de documentos: Las facturas para pago deben ser presentadas en la Tesorería del Comité y verificarse que el ingreso de la mercadería a bodega, fue recibido a entera satisfacción.

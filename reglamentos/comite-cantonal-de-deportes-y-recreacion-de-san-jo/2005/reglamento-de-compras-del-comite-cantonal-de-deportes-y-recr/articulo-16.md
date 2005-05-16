@@ -1,0 +1,1 @@
+Artículo 16.—Control presupuestario: Todas las órdenes de compra se enviarán a la unidad responsable de ejecución de Presupuesto para establecer las reservas presupuestarias. Las órdenes de compra que se lleguen a anular serán enviadas a la unidad administrativa indicada, con fecha y leyenda de anulado.

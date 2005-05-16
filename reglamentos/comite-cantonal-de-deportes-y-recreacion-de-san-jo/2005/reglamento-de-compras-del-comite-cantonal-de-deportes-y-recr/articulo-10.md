@@ -1,0 +1,1 @@
+Artículo 10.—Comisión de compras: Dicha Comisión será nombrada por la Junta Directiva del Comité y se abocará a realizar el análisis de las compras promovidas por la Institución mediante licitación, y brindará su recomendación a la Junta Directiva.

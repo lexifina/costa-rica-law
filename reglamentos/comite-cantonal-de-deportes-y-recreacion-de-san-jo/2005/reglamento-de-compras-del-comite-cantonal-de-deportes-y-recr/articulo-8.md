@@ -1,0 +1,1 @@
+Artículo 8º—Existencia de muestras y atestados: La Proveeduría pondrá en conocimiento de la unidad solicitante -cuando fuere necesariolas muestras en relación con los bienes, así como cualquier informe técnico de la Institución. En el caso de cotizaciones por servicios, se adjuntarán además los atestados de oferentes.
