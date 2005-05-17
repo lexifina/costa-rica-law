@@ -14,3 +14,4 @@ Reglamento al Régimen de Dedicación Exclusiva del servicio para los Profesiona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-08 | la propia norma |
+| 2 | 2005-05-17 | Reglamento 11323 (2005-05-17) |

@@ -1,4 +1,7 @@
-Artículo 4°—El reconocimiento que haga el Banco Nacional de Costa Rica, será en todo caso de acuerdo con su disponibilidad presupuestaria y de la siguiente forma.
-a. Profesionales (Funcionarios del Banco que ocupen puestos en donde se requiera ser licenciado) 55%.
-b. Bachilleres Universitarios que ocupen puestos en donde exija ese requisito 35%.
-Nota: Este porcentaje aplica únicamente para los puestos del Área de Ciencias de la Computación. Es entendido que en aquellos casos, que ajuicio de la Gerencia General, ameriten el reconocimiento del pago de dedicación exclusiva no contemplados en la aprobación de la reforma del presente Reglamento, esa instancia administrativa podrá presentarlos a conocimiento de la Junta Directiva General para que por la vía de excepción, si procede, se resuelva lo correspondiente.
+Artículo 4º—El reconocimiento que haga el Banco Nacional de Costa Rica, será en todo caso de acuerdo con su disponibilidad presupuestaria y de la siguiente forma:
+a) Funcionarios con título profesional de licenciatura que ocupen puestos en los que se requiera este grado académico, se reconocerá un cincuenta y cinco por ciento (55%) adicional a la base de su salario.
+b) Bachilleres universitarios que ocupen puestos en donde se exija ese requisito, se reconocerá un treinta y cinco por ciento (35%) adicional a la base de su salario, siempre que se trate del área de "Ciencias de la Computación".
+La Gerencia General, para casos de excepción, podrá autorizar la aplicación de los porcentajes anteriores, para licenciados o bachilleres, siempre y cuando:
+a) Por la naturaleza del puesto y de las funciones asignadas al trabajador, se requiera su dedicación exclusiva a los asuntos del Banco Nacional de Costa Rica, siempre y cuando lo recomiende la Jefatura inmediata.
+b) Se cuente con un informe de la Dirección de Recursos Humanos, en el que avale la solicitud del trabajador y la recomendación del Jefe inmediato. Estos porcentajes de remuneración no se aplicarán si los funcionarios reciben un salario único, de acuerdo con la escala aprobada por la Junta Directiva General, en cuyo caso se regirá por las condiciones de dicho sistema de remuneración.
+(Así reformado por sesión N° 11.323 celebrada el 17 de mayo del 2005)
