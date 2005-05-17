@@ -1,0 +1,1 @@
+Artículo 13.—El Director Ejecutivo, a través del Área de Atención a las Comunidades se reserva el derecho de verificar, cuando lo estime pertinente, la veracidad de la información suministrada, por los medios que sean pertinentes.

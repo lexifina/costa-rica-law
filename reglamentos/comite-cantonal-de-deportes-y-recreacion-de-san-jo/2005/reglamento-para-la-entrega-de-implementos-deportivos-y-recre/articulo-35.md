@@ -1,0 +1,1 @@
+Artículo 35.—Corresponde a la Junta Directiva del Comité Cantonal velar por la aplicación y cumplimiento de lo establecido en este Reglamento, así como interpretar y resolver todos aquellos aspectos no regulados en observancia de las normas vigentes.

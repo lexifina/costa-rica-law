@@ -1,0 +1,1 @@
+Artículo 22.—Las solicitudes que se conciben al amparo del artículo 5 del presente Reglamento, podrán ser presentadas a la Junta Directiva de forma directa por los miembros de la Junta Directiva del Comité Cantonal.

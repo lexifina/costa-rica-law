@@ -1,0 +1,1 @@
+Artículo 23.—La Dirección Ejecutiva girará las instrucciones al encargado de bodega, junto con una copia de la solicitud y el acuerdo de Junta Directiva, para que por medio de una requisición de materiales de bodega, se le entreguen los implementos deportivos a la persona debidamente autorizado por la organización.

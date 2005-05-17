@@ -1,0 +1,1 @@
+Artículo 33.—La entrega de implementos deportivos y recreativos no contemplados en este Reglamento y que son de interés institucional, podrán ser autorizados por el Presidente o Vicepresidente de la Junta Directiva, para lo cual deberá quedar debidamente documentado la gestión y entrega de los bienes en la bodega, quien deberá informar a la Junta Directiva en la Sesión siguiente.

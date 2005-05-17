@@ -1,0 +1,1 @@
+Artículo 34.—El incumplimiento del presente Reglamento, dará pie a la aplicación de medidas legales correspondientes con fundamento a lo establecido en la Ley General de Administración Pública y demás disposiciones legales aplicables al caso.

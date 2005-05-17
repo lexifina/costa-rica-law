@@ -1,0 +1,1 @@
+Artículo 16.—Las organizaciones que reciban implementos deportivos deberán prestar jugadores o atletas de sus equipos, que pertenezcan al Cantón Central de San José, al Comité Cantonal cuando se le solicite para sus equipos representativos.

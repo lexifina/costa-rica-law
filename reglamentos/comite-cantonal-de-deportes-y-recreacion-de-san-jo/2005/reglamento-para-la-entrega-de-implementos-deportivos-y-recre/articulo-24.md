@@ -1,0 +1,1 @@
+Artículo 24.—Es obligación del encargado de bodega, mantener un auxiliar del Registro de Beneficiarios, en donde se mantenga el registro de cada organización inscrita, de la requisiciones de bodega de las entregas que se le han hecho y presentar un informe semestral, a la Dirección Ejecutiva para ser conocido por la Junta Directiva del Comité Cantonal.

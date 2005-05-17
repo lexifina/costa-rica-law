@@ -1,0 +1,1 @@
+Artículo 12.—El Director Ejecutivo remitirá al Departamento de Atención a las Comunidades toda la información para revisar si cumple con todos los requisitos para la aprobación e inscripción de la organización.

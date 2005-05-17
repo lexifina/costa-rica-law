@@ -1,0 +1,1 @@
+Artículo 18.—Se dará prioridad de entrega de implementos a aquellos equipos que cumplan con los requisitos de este Reglamento y que participen, por lo menos, en un programa del Comité Cantonal al año.

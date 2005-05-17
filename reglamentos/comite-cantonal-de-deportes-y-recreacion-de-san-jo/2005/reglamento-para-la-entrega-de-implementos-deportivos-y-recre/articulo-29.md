@@ -1,0 +1,1 @@
+Artículo 29.—Todos los miembros de las asociaciones inscritas en el registro de beneficiarios son responsables por el buen uso de los implementos deportivos entregados y tendrán la obligación de denunciar el mal uso de los mismos, pues de lo contrario asumirán las responsabilidades que establecen la Ley por el mal uso de bienes públicos.

@@ -1,0 +1,1 @@
+Artículo 27.—La entrega de implementos deportivos que no se hallen en existencias en las bodegas del Comité Cantonal deberá esperar el tiempo necesario para que la Proveeduría lleve a cabo el procedimiento de contratación administrativa que corresponda seguir.

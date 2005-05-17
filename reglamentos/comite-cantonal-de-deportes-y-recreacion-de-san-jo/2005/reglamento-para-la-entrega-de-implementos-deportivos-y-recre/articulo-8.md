@@ -1,0 +1,1 @@
+Artículo 8º—Estará exento de la presentación de la cédula jurídica y de la personería jurídica, aquellas organizaciones que no la poseen, pero que pueden demostrar de forma fehaciente que son un grupo organizado y que se mantienen activos, lo cual podrán demostrar preferiblemente mediante copia del libro de actas de su Junta Directiva.

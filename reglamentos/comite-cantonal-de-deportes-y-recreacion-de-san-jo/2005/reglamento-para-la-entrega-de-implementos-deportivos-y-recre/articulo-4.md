@@ -1,0 +1,1 @@
+Artículo 4º—Toda aquella organización que desee ser inscrita dentro del registro de Beneficiarios de Implementos Deportivos, deberá cumplir con todos los requisitos que se exigen en el presente reglamento, de previo a recibir cualquier tipo de beneficio.
