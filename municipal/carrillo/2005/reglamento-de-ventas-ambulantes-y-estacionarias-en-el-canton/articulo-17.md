@@ -1,0 +1,1 @@
+Artículo 17.— Tanto el vendedor ambulante como el estacionario deberá velar por el buen estado de su carrito o puesto, cuidando de no ser portador de malos olores y ruidos, pues cada vendedor debe ser agente de la limpieza de la ciudad o del cantón en general, por lo que deberá adecuarse a un plan de recolección diaria de los desechos que produzca la venta.

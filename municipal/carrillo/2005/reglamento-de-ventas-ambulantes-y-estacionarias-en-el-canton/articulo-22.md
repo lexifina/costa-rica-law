@@ -1,0 +1,1 @@
+Artículo 22.—En caso de caducidad o renuncia a la licencia por cualquier motivo, la OFICINA DE LICENCIAS Y PATENTES MUNICIPALES, procederá a la adjudicación de esta licencia por medio del orden en que hayan ingresado las solicitudes. Posteriormente, informará al Alcalde, con copia al Concejo Municipal a quien se le adjudico la licencia.

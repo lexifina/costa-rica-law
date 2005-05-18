@@ -1,0 +1,1 @@
+Artículo 24.—La OFICINA DE LICENCIAS Y PATENTES MUNICIPALES, se reservará el derecho de reubicar los puestos cuando las condiciones de tránsito o de los peatones lo ameriten, la construcción de obras nuevas lo requieran, o por cualquier otra causa. Además por decisión del Concejo Municipal, así como el Alcalde Municipal, previo debido proceso.

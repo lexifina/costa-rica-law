@@ -1,0 +1,1 @@
+Artículo 11.—A los vendedores de flores, periódicos y revistas, limpiadores de calzado, helados y copos, se les eximirán de los requisitos y/o formalidades de artículo 15 (quince) de este Reglamento, debiendo presentar diseño del mueble acorde a su respectiva actividad. Lo anterior, previa autorización de la OFICINA DE LICENCIAS Y PATENTES MUNICIPALES.
