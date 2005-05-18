@@ -1,0 +1,2 @@
+Artículo 2º—Modificar el inciso tercero del artículo 34 del Decreto Ejecutivo Nº 31608-G del 24 de junio de 2004, publicado en el Diario Oficial La Gaceta No. 125, de fecha 28 de junio de 2004, denominado “Reglamento de Radiocomunicaciones”, para que se lea así:
+“Artículo 34.—... 1. ..., 2. ..., 3. Cuando el Departamento compruebe que la frecuencia de servicio privado de radiocomunicaciones no ha estado en uso por un período máximo de hasta seis meses sin justificación alguna. ..., 4...., 5. ..., 6. ...”.
