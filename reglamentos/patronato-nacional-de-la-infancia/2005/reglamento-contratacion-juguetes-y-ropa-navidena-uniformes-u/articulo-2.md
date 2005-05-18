@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El Patronato Nacional de la Infancia contratará la compra de los bienes, en forma total o parcial, para las niñas, niños y adolescentes ubicados en los albergues de la Institución.

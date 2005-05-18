@@ -1,0 +1,1 @@
+Artículo 11.—Normativa supletoria. En todo aquello no previsto en el presente Reglamento se aplicará la Ley de Administración Financiera de la República, la Ley de Contratación Administrativa y su Reglamento General.

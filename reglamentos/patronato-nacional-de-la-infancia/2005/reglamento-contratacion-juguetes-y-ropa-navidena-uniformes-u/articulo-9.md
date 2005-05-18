@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Trámite y forma de pago
+Artículo 9º—Trámite y forma de pago. El Patronato Nacional de la Infancia cancelará los bienes contratados con los proveedores de acuerdo a las condiciones convenidas en la orden de compra. Los pagos se tramitarán en el Departamento Financiero Contable, del Patronato Nacional de la Infancia una vez recibidos a satisfacción los bienes. Para ello, los proveedores deberán poner en trámite de cobro sus facturas originales con el visto bueno de recibido a satisfacción de los bienes, junto con la orden de compra original correspondiente.
+El Departamento de Suministros, Bienes y Servicios podrá emitir órdenes de pago, a petición del funcionario responsable del albergue, para todos aquellos proveedores de lugares fuera del Área Metropolitana, una vez que se cuente con todos los documentos especificados en el párrafo segundo del artículo 8 de este Reglamento.
