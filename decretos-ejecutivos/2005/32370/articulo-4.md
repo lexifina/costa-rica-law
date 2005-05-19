@@ -1,0 +1,1 @@
+Artículo 4º—Se reconoce a la Conferencia Episcopal Nacional de Costa Rica, así como a cada una de las diócesis, la facultad de dictar las directrices, políticas y reglamentos que regirán los órganos e instituciones que las integran respectivamente, así como la definición de sus competencias y estructura funcional.

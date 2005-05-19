@@ -1,0 +1,1 @@
+Artículo 5º—Para el cumplimiento de sus fines, la Iglesia Católica podrá adoptar la organización institucional prevista en su ordenamiento interno, así como utilizar las formas jurídicas autorizadas en la legislación común.
