@@ -1,0 +1,3 @@
+Artículo 8º—Sobre el control. La Gerencia de División Médica o la dependencia que ésta designe llevará una base de datos de los tratamientos de acelerador lineal autorizados que contenga la siguiente información: Datos identificación del beneficiario (nombre y cédula), edad, diagnóstico, centro médico que recomienda tratamiento, fecha autorización por Comisión Asesora.
+Cualquier otra disposición previa a este acuerdo, será suspendida temporalmente mientras la Gerencia de División Médica con la recomendación de la Comisión Ad Hoc presenta un Reglamento definitivo”.
+San José, 12 de mayo del 2005

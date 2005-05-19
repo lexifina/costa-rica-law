@@ -1,0 +1,2 @@
+Artículo 7º—Procedimiento autorización de tratamiento. La Gerencia de División Médica trasladará el expediente para el inicio del tratamiento, siempre y cuando dicho tratamiento haya sido recomendado, previamente a su inicio, por la Comisión Asesora de Oncología.
+En aquellos casos que los pacientes no respeten el procedimiento aquí contemplado, y decidan por su propia cuenta efectuarse el tratamiento en forma privada, no procederá por parte de la Caja el pago del tratamiento o en su defecto el reconocimiento de los gastos por el tratamiento recibido.

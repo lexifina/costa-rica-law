@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. Regular la aprobación y aplicación de tratamientos de Radioterapia con Acelerador Lineal que la Caja autorice a realizar a través de sus propios Servicios de Radioterapia o mediante la contratación de servicios por terceros a los asegurados que lo requieran.
