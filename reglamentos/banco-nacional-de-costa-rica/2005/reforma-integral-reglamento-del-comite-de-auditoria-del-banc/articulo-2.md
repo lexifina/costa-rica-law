@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este comité ejercerá sus funciones a nivel corporativo; es decir, tanto para el Banco Nacional como para las subsidiarias en las que el Banco tiene el 100% de participación.
