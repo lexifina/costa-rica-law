@@ -1,0 +1,1 @@
+Artículo 3º—Base Imponible. Constituye la base imponible para la determinación de este impuesto, el valor total, a precio de mercado, del material acumulado o extraído de la cantera, tajo o río autorizada (o), sea este material arena, piedra, lastre o cualquier derivado de éstos.

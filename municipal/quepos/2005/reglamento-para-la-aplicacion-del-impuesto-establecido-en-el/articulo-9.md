@@ -1,0 +1,1 @@
+Artículo 9º—Pago del Tributo. El Impuesto deberá ser cancelado únicamente en las cajas recaudadoras debidamente autorizadas por la Municipalidad de Aguirre, a más tardar el último día hábil del mes en que fue presentada la declaración jurada correspondiente al mes anterior.

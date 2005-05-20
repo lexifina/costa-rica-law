@@ -1,0 +1,1 @@
+Artículo 12.—Fiscalización. La Unidad de Hacienda Municipal tiene la facultad, en cualquier tiempo, de verificar el correcto cumplimiento de las obligaciones tributarias a que se refiere este Reglamento, utilizando para ello cualquier medio y procedimiento legalmente establecido, según lo estipulado en el Código de Normas y Procedimientos Tributarios.
