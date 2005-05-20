@@ -14,6 +14,7 @@ d) En representación del área de Seguridad, el Ministro de Seguridad Pública,
 e) En representación de la Presidencia de la República, el Ministro de la Presidencia, el Viceministro, o su representante.
 f) En representación del área de Ambiente, el Ministro del Ambiente y Energía, el Viceministro, o su representante.
 g) En representación del área de Vivienda, el Ministro de Vivienda y Asentamientos Humanos, el Viceministro, o su representante.
-h) En representación del área de Asistencia Social, el Presidente del Instituto Mixto de Ayuda Social o el Gerente de la institución.
+h) En representación del Área de Asistencia Social, el Presidente del Instituto Mixto de Ayuda Social o el Gerente de la Institución, o sus representantes
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32446 del 20 de mayo del 2005)
 i) En representación de la Cruz Roja Costarricense un representante oficial designado por esa entidad o el suplente nombrado al efecto.
 (Así REFORMADO TOTAL Y EXPRESAMENTE por el Decreto Ejecutivo N°31444, publicado en La Gaceta N° 222 del 18 de noviembre de 2003)
