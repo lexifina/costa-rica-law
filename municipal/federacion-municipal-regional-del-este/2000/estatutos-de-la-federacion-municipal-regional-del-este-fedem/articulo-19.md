@@ -1,1 +1,1 @@
-ARTÍCULO DÉCIMO NOVENO: DE LOS CONFLICTOS.- La Federación podrá resolver sus conflictos de cualquier índole mediante el nombramiento de un arbitraje.
+Artículo 19.—Los miembros de la Federación asistirán a la Asamblea General por medio de sus delegados designados previamente y su respectivo Alcalde.

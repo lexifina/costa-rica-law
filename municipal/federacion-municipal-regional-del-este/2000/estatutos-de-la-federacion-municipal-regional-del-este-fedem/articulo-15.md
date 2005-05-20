@@ -1,7 +1,7 @@
-ARTÍCULO DÉCIMO QUINTO: ATRIBUCIONES DE LOS MIEMBROS DEL CONSEJO DIRECTIVO.
-EL PRESIDENTE ostenta la representación política de la Federación ante toda clase de órganos y entes públicos de la Administración Pública Centralizada y Descentralizada, Municipal, provincial, local, jurídica o administrativa, asociaciones, fundaciones, federaciones o confederaciones, empresas públicas y privadas. Además de esta función representativa, que se entiende conferida en su más amplio sentido y alcance, tendrá las siguientes:
-1) Convocar y presidir la Asamblea General y el Consejo Directivo.
-2) Dirigir los debates y el orden de las reuniones.
-3) Rendir informe anual de su actuación ante la Asamblea General.
-4) En general, desempeñar cuantas funciones y atribuciones que no sean de competencia específica de la Asamblea General o del Consejo Directivo.
-(Así reformado por Asamblea General Extraordinaria celebrada el 16 de julio de 2004)
+Artículo 15.—Atribuciones de la asamblea general extraordinaria. Serán atribuciones de esta asamblea las siguientes:
+a. Reformar los Estatutos.
+b. Acordar la disolución de la Federación mediante votación unánime.
+c. Conocer en alzada de las impugnaciones a los acuerdos.
+d. Los que por unanimidad acuerden los miembros de la asamblea.
+e. Nombrar a los directores del Consejo Directivo según lo estipulado en el artículo 28 de estos estatutos.
+f. La asamblea general extraordinaria se reunirá solamente para conocer de los asuntos expresamente incluidos en la convocatoria y aquellos que requieran de un trámite urgente aprobados por unanimidad de la asamblea.

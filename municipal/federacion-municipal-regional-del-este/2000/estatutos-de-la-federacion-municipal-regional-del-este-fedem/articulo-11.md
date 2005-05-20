@@ -1,2 +1,3 @@
-ARTÍCULO DÉCIMO PRIMERO: La Administración de la Federación estará a cargo de un Consejo Directivo formado por diez Directores propietarios; (cinco Miembros representantes de la Municipalidad de Curridabat y cinco Miembros representantes de la Municipalidad de La Unión), dos Directores suplentes (un Miembro representante de la Municipalidad de Curridabat y un Miembro representante de la Municipalidad de La Unión; y dos Fiscales, uno por cada Cantón, los cuales necesariamente serán los Síndicos Propietarios.
-(Así reformado por acuerdo de Asamblea Extraordinaria el 10 del diciembre del 2004)
+TÍTULO III
+Órganos de Gobierno
+Artículo 11.—Organización: La Federación contará con la siguiente estructura organizativa: a) La Asamblea General, b) El Consejo Directivo, c) La Fiscalía, d) El Director Ejecutivo.

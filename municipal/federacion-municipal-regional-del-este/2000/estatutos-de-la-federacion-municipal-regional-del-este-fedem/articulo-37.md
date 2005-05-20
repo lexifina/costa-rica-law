@@ -1,0 +1,3 @@
+TÍTULO VII
+Disposición final
+Artículo 37.—La Federación ejecutará el porcentaje establecido anualmente en los presupuestos correspondientes para las obras comunales por partes iguales en obras de desarrollo comunal, actividades culturales, educativas y deportivas que conlleven a mejorar la calidad de vida de los ciudadanos de las comunidades pertenecientes a las municipalidades asociadas enfocados el mayor porcentaje a las comunidades vecinas al Relleno Sanitario de Río Azul, sea Río Azul y Tirrases y a las comunidades circunvecinas al relleno sanitario de Río Azul que se vean afectados por la operación del relleno sanitario.

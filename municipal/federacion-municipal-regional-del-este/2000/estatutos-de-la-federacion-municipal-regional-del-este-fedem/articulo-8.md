@@ -1,12 +1,3 @@
-ARTÍCULO OCTAVO: DE LA ASAMBLEA GENERAL.- Es el órgano máximo de la Federación compuesto por nueve asambleístas de cada Municipalidad asociada y su respectivo Alcalde. Los delegados a la Asamblea General serán nombrados por los respectivos consejos municipales de Curridabat y de La Unión, por períodos de dos años*, en el mes de julio del año que corresponda, pudiendo ser reelectos. Habrá dos tipos de asambleas, ordinarias y extraordinarias. La asamblea se reunirá ordinariamente dos veces al año en el mes de marzo con el propósito de escuchar los informes del presidente, los fiscales y el tesorero y en el mes de setiembre para la aprobación del presupuesto de la Federación. Extraordinariamente se reunirá cada vez que sea convocado por escrito con la firma de tres de sus miembros, por lo menos con una antelación de veinticuatro horas o cuando el presidente del Consejo Director o la fiscalía los convoque.
-(*Así reformado por acuerdo de Asamblea General Extraordinaria N° 1, del 22 de enero de 2004.)
-Las asambleas son convocadas a través del secretario por medio de circular con ocho días naturales de anticipación. Se considerará constituida en primera convocatoria cuando concurran la mitad más uno de todos los asambleístas que conforman la FEDEMUR, de no presentarse el mínimo indicado, se reunirá en segunda convocatoria una hora después con los presentes.
-Los asuntos se votarán individualmente. Los asuntos se aprobarán por mayoría simple, excepto aquellos en que la ley o los estatutos requieran el voto de las dos terceras partes de los delegados presentes. Corresponde a la asamblea general ordinaria, además de lo indicado:
-a) Efectuar la integración del Consejo Director conforme lo indique el estatuto,
-b) Conocer, aprobar o improbar los informes anuales que le rinda el consejo directivo y el órgano de vigilancia,
-c) Los demás que indique el estatuto.
-Corresponde a la asamblea general extraordinaria:
-a) Conocer las reformas a los estatutos,
-b) La disolución de la Federación,
-c) Cuando proceda, la sustitución de los miembros de los órganos de la Asociación, la cual se entenderá que es por el resto del período correspondiente,
-d) Los recursos de apelación en caso de expulsión de algún asociado si así lo establece el estatuto. La asamblea general extraordinaria se reunirá solamente para conocer de los asuntos expresamente incluidos en la convocatoria y aquellos que requieran de un trámite urgente.
+TÍTULO II
+De los miembros de la Federación
+Artículo 8º—Los miembros de la Federación serán las municipalidades asociadas. Estos miembros designarán ante la Federación nueve delegados por cada municipalidad y su respectivo Alcalde. Los delegados deberán cumplir y acatar los deberes indicados para las municipalidades asociadas y respetar las decisiones de la Federación. Los delegados serán nombrados por cada municipalidad.
