@@ -1,0 +1,1 @@
+Artículo 6°—A toda persona que haciendo uso de este reglamento encuentre razón sustentada para pedir revisión, se le solicita notificarlo sin demora al Ministerio de Economía, Industria y Comercio, aportando, de ser posible, la información correspondiente para hacer las investigaciones necesarias y tomar las previsiones del caso.
