@@ -1,0 +1,1 @@
+Artículo 5º—Los establecimientos donde se proyecten videos musicales, películas de cualquier tipo, o se realicen exhibiciones de modelaje o baile, deben contar con el visto bueno de la Oficina de Control y Calificación de Espectáculos Públicos, adjunta al Ministerio de Justicia.

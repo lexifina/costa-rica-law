@@ -1,0 +1,2 @@
+Artículo 7º—Queda prohibida la venta de bebidas alcohólicas a menores de edad, así como su consumo. En los establecimientos considerados como restaurantes, salones de bailes y similares, donde la venta de licor se constituye como actividad secundaria y no la principal, los menores de edad podrán permanecer, pero en ningún momento podrán ingerir bebidas alcohólicas.
+Los establecimientos cuya actividad principal es la venta de licor, tales como bares y cantinas ni siquiera permitirán la entrada a menores de edad.
