@@ -1,0 +1,3 @@
+CAPÍTULO II
+Disposiciones finales
+Artículo 6º—Lo que no este establecido en este Reglamento, se regirá por lo que indica la Ley de Impuestos Municipales del Cantón Carrillo (Ley Nº 7177) y su Reglamento, Código Municipal, Ley Zona Marítimo Terrestre (Ley 6043), Ley de Licores y su Reglamento (Ley 10), Ley de Regulación de Horarios de Funcionamiento en Expendios de Bebidas Alcohólicas y su Reglamento (Ley Nº 7633), Ley de Juegos Nº 3 del 31 de agosto de 1922, el Reglamento de Juegos Nº 3510-G del 24 de enero 1974 y el Reglamento Decreto 8722 del 13 de junio de 1978, Ley General de la Administración Pública y otras Leyes Conexas.

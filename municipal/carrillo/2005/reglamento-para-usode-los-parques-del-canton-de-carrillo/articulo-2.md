@@ -1,0 +1,1 @@
+Artículo 2º—Toda actividad de carácter público (político, religioso y afines), a realizarse en cualquier parque del Cantón, deberá contar con la respectiva licencia extendida por el Departamento de Patentes.

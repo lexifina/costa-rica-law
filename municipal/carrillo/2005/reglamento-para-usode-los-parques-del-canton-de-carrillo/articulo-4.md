@@ -1,0 +1,1 @@
+Artículo 4º—En caso de incumplimiento o de escándalos y alteración del orden público por medio al Alcalde Municipal o la OFICINA DE LICENCIAS Y PATENTES, por medio de sus Inspectores Municipales en coordinación con la Fuerza Pública, podrán intervenir y llamar la atención al orden llegando incluso hasta clausurar la actividad en caso necesario.

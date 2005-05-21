@@ -1,0 +1,1 @@
+Artículo 5º—El deber de los Interesados u Organizadores de la actividad, dejar en buen estado y totalmente limpio el parque donde se realice la actividad. En caso de incumplimiento, la Municipalidad de Carrillo, queda facultada para cobrar los daños ocasionados al Parque.
