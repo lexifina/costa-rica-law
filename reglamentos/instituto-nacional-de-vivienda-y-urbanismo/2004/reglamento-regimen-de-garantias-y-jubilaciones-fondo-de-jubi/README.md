@@ -14,3 +14,4 @@ Reglamento Régimen de Garantías y Jubilaciones Fondo de Jubilación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-01 | la propia norma |
+| 2 | 2005-05-23 | Reglamento 5474 (2005-05-23) |

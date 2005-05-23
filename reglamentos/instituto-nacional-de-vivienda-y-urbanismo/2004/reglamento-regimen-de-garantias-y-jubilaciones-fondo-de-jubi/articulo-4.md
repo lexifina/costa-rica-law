@@ -1,1 +1,2 @@
-Artículo 4º—Afiliados. Será miembro del Fondo, todo funcionario(a) a partir de su nombramiento interino (siempre y cuando alcance los doce meses o más) o en propiedad en una plaza de la Institución.
+Artículo 4º—Afiliados. Será miembro del Fondo, todo funcionario(a) a partir de su nombramiento interino (con doce meses o más de laborar en la Institución) o en propiedad en una plaza de la Institución.
+(Así reformado en sesión N° 5474 del 23 de mayo del 2005)

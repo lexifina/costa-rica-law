@@ -1,1 +1,2 @@
-Artículo 34.—Capitalización de utilidades. La Junta Administradora capitalizará y acreditará en la cuenta individual de cada afiliado en forma proporcional a sus aportes totales, los rendimientos provenientes de las inversiones acumuladas al 31 de diciembre de cada año. Si un afiliado se retira antes de este cierre, se determinarán los rendimientos que le correspondan a la fecha de retiro.
+Artículo 34.—Capitalización de utilidades. La Junta Administradora capitalizará y acreditará en la cuenta individual de cada afiliado en forma proporcional a sus aportes totales, los rendimientos provenientes de las inversiones al valor cuota.”
+(Así reformado en sesión N° 5474 del 23 de mayo del 2005)

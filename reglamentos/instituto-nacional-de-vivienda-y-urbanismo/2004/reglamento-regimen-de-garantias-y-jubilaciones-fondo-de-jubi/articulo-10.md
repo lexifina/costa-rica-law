@@ -7,4 +7,5 @@ c) Despido sin responsabilidad patronal.
 d) Renuncia del afiliado al Instituto.
 e) Muerte.
 f) Movilidad horizontal.
-g) Cualquier situación similar a las anteriores
+g) Cualquier situación similar a las anteriores que implique el cese de funciones del trabajador en la Institución.
+(Así reformado en sesión N° 5474 del 23 de mayo del 2005)
