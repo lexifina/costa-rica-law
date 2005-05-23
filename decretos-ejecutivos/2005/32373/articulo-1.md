@@ -1,0 +1,11 @@
+Nº 32373
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones y en los artículos 27 siguientes de su Reglamento.
+Considerando:
+I.—Que el artículo 32 de la Ley de Asociaciones número 218 de fecha 08 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.—Que la Asociación Administradora del Acueducto Rural de Pejibaye Jiménez, cédula de persona jurídica Nº 3-002-231036, representada por el señor Guido Solano Trejos, mayor, educador, cédula de identidad Nº 3-232-301, vecino de Pejibaye de Jiménez, se inscribió en el Registro de Asociaciones del Registro Público el 19 de octubre de 1998, bajo el expediente Nº 10178 (folios 15, 43).
+III.—Que entre los fines que persigue la asociación se encuentran los siguientes: indica que los fines de la misma son los siguientes: “a) Administrar, operar y conservar en buenas condiciones el acueducto con las disposiciones y Reglamentos que al respecto emita Acueductos y Alcantarillados. B) Obtener la participación efectiva de la comunidad, en el mantenimiento del Acueducto. C) Colaborar en los programas y campañas de índole educativas que se emprendan. D) Ayudar a explicar y divulgar en la comunidad las disposiciones y Reglamentos de Acueductos y Alcantarillados. E) Cooperar en los planes, proyectos y obras que emprenda Acueductos y Alcantarillados en la comunidad. F) Participar en la vigilancia y protección de las fuentes de abastecimiento del Acueducto, evitar las contaminaciones de las mismas y ayudar a la protección de las cuencas hidrográficas de la región.” (folios 25-26)
+IV.—Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado Costarricense. Por tanto,
+DECRETAN:
+Artículo 1º—Declárese de Utilidad Pública para los intereses del Estado a la Asociación Administradora del Acueducto Rural de Pejibaye Jiménez, cédula de persona jurídica Nº 3-002-231036.
