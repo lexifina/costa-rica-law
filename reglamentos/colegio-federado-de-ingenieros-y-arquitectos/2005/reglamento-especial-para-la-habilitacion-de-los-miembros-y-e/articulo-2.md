@@ -1,0 +1,2 @@
+Artículo 2º—Los miembros que hayan cancelado sus deudas y la multa correspondiente, deberán solicitar a la Oficina de Registro del Colegio Federado su habilitación, mediante el formulario denominado “Solicitud de Habilitación Profesional”, al cual deberá adjuntarse copia del recibo de cancelación y una copia de la cédula de identidad.
+Las empresas deberán presentar en la Oficina de Registro el formulario de “Revalidación de Derechos”, con los requisitos ahí indicados. Posteriormente deberá proceder a la cancelación de la deuda y la multa respectiva.

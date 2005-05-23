@@ -1,0 +1,1 @@
+Artículo 6º—Cuando se trate de miembros que hayan tenido una morosidad superior a los tres años, la Dirección Ejecutiva también comunicará a la Junta Directiva General las habilitaciones temporales otorgadas, las cuales deberán ser incorporadas en la agenda de la próxima Asamblea de Representantes, para que sean ratificadas.

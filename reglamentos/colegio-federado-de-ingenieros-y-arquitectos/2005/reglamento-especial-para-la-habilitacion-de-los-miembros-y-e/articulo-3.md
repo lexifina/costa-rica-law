@@ -1,0 +1,1 @@
+Artículo 3º—La Dirección Ejecutiva del Colegio Federado, una vez comprobada la cancelación de las deudas y la multa correspondiente, podrá otorgar una habilitación temporal a los miembros que hayan satisfecho sus obligaciones, comunicándolo a la Oficina de Registro.

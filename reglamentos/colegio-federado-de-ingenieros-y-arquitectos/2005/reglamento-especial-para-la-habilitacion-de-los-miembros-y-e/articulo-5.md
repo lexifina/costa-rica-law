@@ -1,0 +1,2 @@
+Artículo 5º—La Dirección Ejecutiva del Colegio Federado, deberá informar a la Junta Directiva General de las habilitaciones temporales otorgadas, para que ésta proceda a ratificar dichas habilitaciones en la próxima sesión y siempre que se trate de miembros morosos con tres años o menos.
+La Dirección Ejecutiva deberá comunicar a la Oficina de Registro, a la mayor brevedad y siempre que el acuerdo esté firme, la ratificación de las habilitaciones temporales otorgadas.

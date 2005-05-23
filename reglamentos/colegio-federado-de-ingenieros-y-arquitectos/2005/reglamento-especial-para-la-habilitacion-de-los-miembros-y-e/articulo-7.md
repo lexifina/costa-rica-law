@@ -1,0 +1,1 @@
+Articulo 7º—Las habilitaciones temporales otorgadas por la Dirección Ejecutiva del Colegio Federado, otorgarán a los miembros, los mismos derechos que las habilitaciones definitivas concedidas por la Junta Directiva General o por la Asamblea de Representantes, pero su vigencia caducará una vez que dichas habilitaciones definitivas sean acordadas.
