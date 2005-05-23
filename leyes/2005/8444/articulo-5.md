@@ -1,0 +1,1 @@
+Artículo 5º—El beneficiario de un vehículo exonerado podrá enajenarlo, en cualquier momento, previa autorización del Departamento de Exenciones de la Dirección General de Hacienda y pagados los tributos; sin embargo, no podrá solicitar una nueva exoneración hasta que se cumpla el plazo señalado de siete años.
