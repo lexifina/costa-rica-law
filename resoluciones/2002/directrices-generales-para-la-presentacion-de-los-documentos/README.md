@@ -14,3 +14,4 @@ Directrices Generales para la presentación de los documentos presupuestarios de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-10 | la propia norma |
+| 2 | 2005-05-23 | Resolución 41 (2005-05-23) |
