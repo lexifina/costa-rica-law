@@ -14,3 +14,4 @@ Regulaciones aplicables a sujetos privados que reciben partidas específicas y t
 | --- | --- | --- |
 | 1 | 2001-12-18 | la propia norma |
 | 2 | 2002-10-22 | Resolución 0 (2002-10-22) |
+| 3 | 2005-05-23 | Resolución 41 (2005-05-23) |

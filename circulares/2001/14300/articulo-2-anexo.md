@@ -2,6 +2,7 @@ ANEXO 2
 Nombre del sujeto privado............................
 PRESUPUESTO DE INGRESOS Y EGRESOS
 Año:......................
+NOTA DE SINALEVI: La Contraloría General de la República, mediante Resolución No. 41 de 23 de mayo de 2005, modifica este anexo al disponer lo siguiente: "La Circular con regulaciones aplicables a los sujetos privados que reciben partidas específicas y transferencias del Presupuesto Nacional así como transferencias por beneficios patrimoniales, gratuitos o sin contraprestación alguna, de entidades u órganos públicos; o que por disposición de ley, deben presentar su presupuesto para la aprobación de la Contraloría General de la República, Nº 14300 del 18 de diciembre del 2001, se modifica en lo pertinente al Anexo 2".
 INGRESOS
 | | |
 INGRESOS CORRIENTES | PARCIALES | PARCIALES | TOTALES
