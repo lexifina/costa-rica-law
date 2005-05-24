@@ -1,0 +1,1 @@
+Articulo 2°—Se autoriza al Alcalde Municipal para realizar compras o adquisición de bienes y servicios así como para suscribir gastos fijos, convenios en los cuales la Municipalidad de Turrialba actúe. como parte hasta por la suma de 1.000,000 de colones,
