@@ -1,0 +1,1 @@
+Artículo 9º—El monto que se determine para la beca, será utilizado únicamente en material didáctico y uniformes, para lo cual, la Comisión de Becas de la Municipalidad establecerá los mecanismos necesarios para garantizar que así sea.

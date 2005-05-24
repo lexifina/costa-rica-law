@@ -1,0 +1,1 @@
+Artículo 8º—El monto de la beca lo fijará la Comisión de Becas en coordinación con la Comisión de Hacienda y Presupuesto de cada año. Este deberá ser aprobado por el Concejo, junto con la nómina de los becados.

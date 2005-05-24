@@ -1,0 +1,1 @@
+Artículo 6º—El estudiante deberá presentar original y fotocopia de la tarjeta de calificación al realizar su solicitud de beca, para que los miembros de la Comisión de Becas a su vez, informen al Concejo lo que corresponda y una vez que las becas sean aprobadas se devolverá la nota original al interesado.
