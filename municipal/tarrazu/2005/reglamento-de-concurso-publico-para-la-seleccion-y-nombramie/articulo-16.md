@@ -1,0 +1,3 @@
+Artículo 16.—De la aprobación por parte de la Contraloría General de la República: El expediente del concurso y la terna, serán sometidos a conocimiento de la Contraloría General de la República, quien aprobará o improbará el concurso realizado.
+Si la Contraloría General de la República aprueba el proceso efectuado, se presentará la terna propuesta al Concejo Municipal de Tarrazú con el propósito de escoger a la persona que se nombrará en el puesto en concurso.
+Si la Contraloría General de la República imprueba el concurso realizado, se iniciará nuevamente el concurso, de conformidad con lo que al respecto señale la Contraloría General de la República.

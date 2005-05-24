@@ -1,0 +1,1 @@
+Artículo 3º—Requisitos de los puestos: Los requisitos de los puestos de Auditor Interno son los definidos por la Contraloría General de República, según publicación en La Gaceta Nº 205 del 24 de octubre de 2003 de los lineamientos para la descripción de las funciones y requisitos del cargo de Auditor Interno.
