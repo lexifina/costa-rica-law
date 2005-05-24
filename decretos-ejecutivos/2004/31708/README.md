@@ -45,3 +45,4 @@ Directrices de política presupuestaria del 2005 para los ministerios, demás ó
 | 30 | 2005-05-06 | Decreto Ejecutivo 32400 (2005-05-06) |
 | 31 | 2005-05-12 | Decreto Ejecutivo 32414 (2005-05-12) |
 | 32 | 2005-05-13 | Decreto Ejecutivo 32417 (2005-05-13) |
+| 33 | 2005-05-24 | Decreto Ejecutivo 32418 (2005-05-24) |
