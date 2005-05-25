@@ -1,0 +1,2 @@
+Artículo 9º—Para todos los aspectos no previstos en el presente reglamento, se aplicará en forma supletoria, en lo conducente, lo dispuesto por el Código Municipal, la Ley de Planificación Urbana y sus respectivos reglamentos. De conformidad con lo establecido por el artículo 43 del Código Municipal, a partir de la publicación del presente reglamento en el Diario Oficial La Gaceta, los interesados en presentar oposiciones al mismo, cuentan con un plazo de diez días hábiles.
+Alajuelita, 8 de setiembre del 2004.

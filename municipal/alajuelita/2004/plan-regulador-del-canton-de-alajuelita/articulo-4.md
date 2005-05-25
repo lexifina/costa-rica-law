@@ -1,0 +1,2 @@
+Artículo 4º—La Audiencia Pública estará presidida por el Concejo Municipal en pleno (Regidores propietarios), el Presidente Municipal se ajustará en la dirección de la actividad, al presente reglamento y supletoriamente, en aquellos casos no previstos, a lo dispuesto por el Código Municipal.
+La atención de las consultas y propuestas relativas al proyecto del Plan Regulador, serán evacuadas en todos los casos, por los funcionarios que acredite la empresa ECOPLAN, firma consultora, para atender la audiencia, los miembros de la Comisión Estratégica y el Concejo Municipal.

@@ -1,0 +1,3 @@
+Artículo 8º—Las consultas a la audiencia serán evacuadas por el personal de la empresa ECOPLAN, firma consultora, o los miembros de la Comisión Estratégica Municipal y el Concejo Municipal.
+Las propuestas u oposiciones serán analizadas por la comisión y la firma consultora, debiendo la Comisión Estratégica presentar al Concejo Municipal un informe con sus recomendaciones en un plazo no mayor de treinta días hábiles a partir de la fecha de realización de la audiencia.
+El Concejo Municipal valorará si se incorporan al Plan Regulador o se rechazan, resolución que debe notificarse a los interesados a más tardar quince días calendario después de la firmeza del acuerdo respectivo.
