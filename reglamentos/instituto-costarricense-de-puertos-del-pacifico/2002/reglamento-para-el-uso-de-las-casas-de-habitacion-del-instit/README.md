@@ -14,3 +14,4 @@ Reglamento para el uso de las casas de habitación del Instituto Costarricense d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-20 | la propia norma |
+| 2 | 2005-05-25 | Reglamento 3294 (2005-05-25) |
