@@ -1,0 +1,1 @@
+Artículo 12.—De las quejas. Las quejas interpuestas deberán ser tramitadas en forma expedita y con la mayor diligencia, debiendo la Contraloría de Servicios comunicar su respuesta escrita en un plazo no mayor a diez días hábiles luego de producido el hecho.

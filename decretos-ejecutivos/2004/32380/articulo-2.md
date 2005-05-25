@@ -1,0 +1,6 @@
+Artículo 2º—Definiciones. Para los efectos de este Reglamento, se entenderán los siguientes términos:
+1) Queja: Es la manifestación oral de inconformidad presentada por los usuarios del Registro Nacional, respecto de un servicio que según el usuario no reúne necesariamente los requerimientos de eficiencia y eficacia.
+2) Denuncia: Es un acto formal y escrito por el cual los usuarios de los servicios del Registro Nacional, declaran el conocimiento de un hecho irregular relacionado con la prestación de los servicios o los actos internos que afecten injustamente sus intereses legítimos o derechos.
+3) Contraloría de Servicios: Es un Departamento perteneciente al Registro Nacional, que permite detectar deficiencias y promover su corrección, mediante una relación directa y sencilla entre la Institución y los usuarios de los servicios, quienes en forma oral o escrita presentarán sus diferencias, siguiendo los procedimientos que para esos efectos se han establecido en el manual correspondiente.
+4) Contralor de Servicios: Es el profesional responsable de representar y coordinar todas las actividades relacionadas con la Contraloría de Servicios.
+5) Usuario: Es aquella persona que acude al Registro Nacional para realizar trámites y gestiones, haciendo uso de los servicios que este brinda en virtud de su naturaleza.

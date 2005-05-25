@@ -1,0 +1,2 @@
+Artículo 9º—Del presupuesto de las Contralorías de Servicios. Para el cumplimiento de sus funciones la Contraloría de Servicios del Registro Nacional dispondrá de recursos humanos y materiales que serán contemplados dentro del presupuesto de la Dirección General, a efecto de que se le permita programar y ejercer adecuadamente su gestión.
+Los funcionarios públicos que integran el personal de la Contraloría de Servicios del Registro Nacional no percibirán pago ni emolumento adicionales alguno por realizar su gestión.

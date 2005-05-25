@@ -1,0 +1,4 @@
+Artículo 14.—Registro de quejas y denuncias. La Contraloría de Servicios debe mantener un registro actualizado de quejas y denuncias.
+Cada caso deberá estar debidamente identificado, numerado y tener asignado un expediente administrativo, que registre no sólo las denuncias, quejas, reclamos y demás acciones interpuestas por los particulares, sino también las acciones tomadas.
+El registro de quejas y denuncias deberá generar información que permita visualizar las tendencias y los comportamientos de la Institución en la prestación de sus servicios.
+Con base en la información que suministre el registro, la Contraloría de Servicios podrá remitir informes al Director General del Registro Nacional, para que dicha Autoridad fomente un control de la gestión pública en beneficio de los usuarios del Registro Nacional.
