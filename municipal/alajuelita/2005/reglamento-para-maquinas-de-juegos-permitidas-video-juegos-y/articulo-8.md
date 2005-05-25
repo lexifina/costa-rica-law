@@ -1,0 +1,1 @@
+8) Los propietarios de los locales en donde esté ubicada esta actividad comercial, están obligados a exhibir carteles a la vista del público señalando los horarios de funcionamiento y fuera del horario de funcionamiento los locales permanecerán cerrados.

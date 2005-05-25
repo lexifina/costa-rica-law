@@ -1,0 +1,1 @@
+11) Los Inspectores Municipales y la Fuerza Pública en forma conjunta o individualmente tienen la obligación de velar por el buen funcionamiento de esta actividad y de percatarse de incumplimientos, debe de levantar acta de notificación señalando la falta, copia de la cual se entregará al patentado y el original se traslada al Departamento de Patentes para lo de su cargo.

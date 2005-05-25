@@ -1,0 +1,5 @@
+12) De las notificaciones de incumplimientos a la actividad de juegos permitidos, el Departamento de Patentes seguirá el siguiente procedimiento:
+A) Por la primera notificación le hará un apercibimiento por escrito al patentado infractor para que lo sucedido no se vuelva a presentar.
+B) Por la segunda notificación de incumplimiento en un lapso de tiempo de seis meses posteriores a la primera notificación, se suspenderá la actividad comercial por un periodo de quince días, procediendo al sello del local donde se lleva a cabo la actividad.
+C) Por la tercera notificación de incumplimientos en un lapso de tiempo de seis meses a partir de la segunda notificación, se cancelará definitivamente la actividad comercial de sala de juegos.
+D) De comprobarse que en el local comercial autorizado para la actividad de Sala de Juegos se ingieren bebidas alcohólicas o se consumen drogas o se presta para actividades que violenten los derechos de los niños y adolescentes, en forma inmediata y definitiva se suspende la explotación comercial de la sala de juegos.

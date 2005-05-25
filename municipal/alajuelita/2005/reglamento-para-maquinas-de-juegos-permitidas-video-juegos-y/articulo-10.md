@@ -1,0 +1,1 @@
+10) Si se cumple con los requisitos señalados para obtener la licencia comercial de sala de juegos, previo a explotar la actividad se deben de cumplir con todos los requisitos institucionales de solicitud de patentes que se encuentren en vigencia a la fecha de la solicitud.

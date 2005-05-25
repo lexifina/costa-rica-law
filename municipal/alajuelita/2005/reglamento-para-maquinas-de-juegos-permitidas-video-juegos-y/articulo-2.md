@@ -1,0 +1,1 @@
+2) La actividad comercial de máquinas de juegos permitidas, video juegos y otras máquinas (golosinas, peluches, sorpresas, alimentos, bebidas sin alcohol, básculas y fotografías) se llevarán a cabo en lugares destinados únicamente a esta actividad y totalmente independientes de cualquier otra actividad comercial.

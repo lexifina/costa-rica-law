@@ -1,0 +1,1 @@
+14) Toda máquina de juegos instalada en lugares no autorizados por la Municipalidad, serán decomisadas por funcionarios municipales o la fuerza pública, operando conjuntamente o individualmente, sin necesidad de proceder a notificar previamente el decomiso.
