@@ -1,0 +1,1 @@
+Artículo 16°—Ningún arrendatario de puestos fijos o móviles podrá vender o expender artículos o mercancía diferentes a aquellas para las cuales le autoriza la patente. La infracción a esta disposición dará lugar a la cancelación automática del contrato e inicio de las gestiones de desahucio conforme al artículo anterior.

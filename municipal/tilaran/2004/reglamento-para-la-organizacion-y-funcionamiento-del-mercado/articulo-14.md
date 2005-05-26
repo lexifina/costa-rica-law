@@ -1,0 +1,1 @@
+Articulo 14°—Podrán también ser arrendatarios los causahabientes a título universal y los cesionarios del adjudicatario; pero las cesiones para su validez, necesitan de la aprobación del Concejo, previo dictamen emitido por la Junta Administradora del Mercado.
