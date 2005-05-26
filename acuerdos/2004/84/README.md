@@ -14,3 +14,4 @@ Guía para la Elaboración de Prospectos de Empresas Emisoras.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-03-03 | la propia norma |
+| 2 | 2005-05-26 | Acuerdo 107 (2005-05-26) |
