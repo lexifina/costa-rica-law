@@ -1,7 +1,9 @@
 Artículo 19.—La Unidad de Monitoreo del Comercio y la Inversión estará compuesta por un equipo de asesores especializados y estará a cargo de un coordinador, a quien corresponderá:
 a) Desarrollar una base de datos histórica que contenga información como: exportaciones e importaciones de Costa Rica, según inciso arancelario, sector económico y destino, flujos de inversión extranjera hacia Costa Rica por socio comercial y en especial de aquellos países con los cuales se haya suscrito algún tratado, convenio u otro instrumento sobre comercio e inversión.
 b) Elaborar y publicar, reportes que incluyan una síntesis de los flujos de comercio y de inversión referidos en el inciso a) de este artículo.
-c) Elaborar, de oficio o a petición de la Dirección General de Comercio Exterior o alguna de sus dos Direcciones, estudios de diagnóstico e impacto económico sobre algún sector productivo de bienes o servicios en particular.
-d) Recopilar y analizar cualquier otra información que le sea solicitada por la Dirección General de Comercio Exterior o alguna de sus dos Subdirecciones.
+c) Elaborar, de oficio o a petición de la Dirección General de Comercio Exterior o de alguna de sus Direcciones, estudios de diagnóstico e impacto económico sobre algún sector productivo de bienes o servicios en particular.
+(Así reformado por el artículo 6° del decreto ejecutivo N° 32401 del 26 de mayo del 2005)
+d) Recopilar y analizar cualquier otra información que le sea solicitada por la Dirección General de Comercio Exterior o alguna de sus Direcciones.
+(Así reformado por el artículo 6° del decreto ejecutivo N° 32401 del 26 de mayo del 2005)
 e) Elaborar un banco de datos sobre toda la legislación aplicable en Costa Rica al comercio y la inversión extranjera.
 Para efectos de cumplir con las funciones señaladas en este artículo, la Unidad de Monitoreo del Comercio y la Inversión contará con la colaboración de PROCOMER, la cual deberá proporcionar cualquier información que le sea solicitada así como el libre acceso a sus bases de datos estadísticos y el apoyo logístico necesario.

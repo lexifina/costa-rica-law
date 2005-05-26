@@ -9,3 +9,5 @@ g) Delegación Permanente ante la Organización Mundial del Comercio.
 h) Dirección de Asesoría Legal.
 i) Oficialía Mayor.
 j) Oficina de Prensa.
+k) Dirección de Inversión y Cooperación.
+(Así adicionado el inciso anterior, por el artículo 1° del decreto ejecutivo N° 32401del 26 de mayo del 2005)
