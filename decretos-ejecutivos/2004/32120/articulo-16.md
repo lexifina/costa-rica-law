@@ -1,1 +1,0 @@
-Artículo 16.—Libro de Actas. El Comité de Sorteos deberá llevar un Libro de Actas de todas sus sesiones y además, deberá registrar, pormenorizadamente y en orden cronológico, todos los aspectos relevantes del sorteo. Como mínimo se deberán registrar el número de sorteo, la fecha, las calidades de los participantes premiados y el monto de los premios obtenidos.

@@ -1,1 +1,0 @@
-Artículo 14.—Variación del monto y naturaleza de los premios. La Oficina de Lotería Fiscal podrá sugerir a las autoridades del Ministerio de Hacienda variar los montos o la naturaleza de los premios en cualquier momento, a discreción de esa oficina.

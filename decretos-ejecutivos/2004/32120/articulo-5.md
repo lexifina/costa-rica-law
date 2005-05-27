@@ -1,1 +1,0 @@
-Artículo 5º—Facturas Defectuosas. Las facturas enviadas que no cumplan los requisitos indicados en el artículo 4º de este reglamento o que denoten alteración o ruptura serán objeto de descalificación para el sorteo.

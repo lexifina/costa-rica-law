@@ -1,1 +1,0 @@
-Artículo 19.—Facultad fiscalizadora de la Dirección General de Tributación. La Dirección General de Tributación podrá utilizar cualquiera de las facturas seleccionadas en la muestra para verificar su correcta emisión, a fin de cumplir con la facultad fiscalizadora de las obligaciones tributarias de los contribuyentes.
