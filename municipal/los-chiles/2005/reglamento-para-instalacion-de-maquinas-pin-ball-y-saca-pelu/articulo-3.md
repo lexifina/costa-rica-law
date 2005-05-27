@@ -1,0 +1,1 @@
+3º—Lugares de comercio. En acatamiento de la Ley de Juegos N° 1387 del 21 de noviembre de 1951 y Reglamentos de Juegos Decreto Ejecutivo 3510-G del 24 de enero de 1974, de las disposiciones jurisprudenciales se establece la prohibición de instalar este tipo de máquinas en los comercios en donde se expende licor como actividad primaria.

@@ -1,0 +1,1 @@
+12.—El propietario del negocio donde se encuentre ubicada una máquina pin ball y saca peluche que incumpla con el presente Reglamento podrá ser sujeto a que se le clausure el uso de la máquina y el local comercial.

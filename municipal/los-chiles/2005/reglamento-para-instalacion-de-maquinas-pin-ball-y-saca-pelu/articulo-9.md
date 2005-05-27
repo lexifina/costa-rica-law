@@ -1,0 +1,1 @@
+9º—Puntualidad en el pago. Tanto el propietario del negocio como el de las máquinas deberán estar al día con el pago de todos los impuestos y servicios municipales según Ley Nº 7341 de la Municipalidad de Los Chiles.

@@ -1,0 +1,1 @@
+4º—La instalación de máquinas pin ball y saca peluches, podrá realizarse únicamente en locales comerciales autorizados. No se permite la instalación de estas máquinas en las casas de habitación y se autorizarán un máximo de dos máquinas por local comercial a excepción de los centros que sean exclusivos para juegos.
