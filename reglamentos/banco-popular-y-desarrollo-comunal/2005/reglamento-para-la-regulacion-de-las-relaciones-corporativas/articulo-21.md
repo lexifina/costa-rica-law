@@ -1,0 +1,3 @@
+Artículo 21.—Del uso de los recursos y de la ejecución de políticas. Cuando un integrante del Grupo Corporativo requiera utilizar bienes propiedad de otro integrante del Grupo, el Gerente General de la interesada planteará la solicitud correspondiente ante el Comité Ejecutivo Corporativo, junto con un detalle del uso que se dará a lo solicitado.
+Aprobada la solicitud, los interesados suscribirán un contrato que regule la relación.
+Si transcurrido un mes desde la aprobación, el contrato no hubiese sido suscrito, los interesados deberán remitir el asunto al Comité Ejecutivo Corporativo, quien indicará en definitiva los términos de la relación.

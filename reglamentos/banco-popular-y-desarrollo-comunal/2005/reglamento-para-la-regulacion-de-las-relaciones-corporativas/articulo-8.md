@@ -1,0 +1,2 @@
+Artículo 8º—De la fiscalía. La vigilancia de cada sociedad corresponderá a un fiscal nombrado por la Junta Directiva Nacional de conformidad con la propuesta que al efecto formule la Asamblea de Trabajadores y Trabajadoras.
+Los informes del fiscal, que de conformidad con el Código de Comercio deban ser conocidos por la Asamblea de Accionistas, deberán ser remitidos por la Junta Directiva Nacional a la Asamblea de Trabajadores y Trabajadoras como parte del informe al que se refiere el artículo 14 bis e) de la Ley Orgánica del Banco Popular y de Desarrollo Comunal.

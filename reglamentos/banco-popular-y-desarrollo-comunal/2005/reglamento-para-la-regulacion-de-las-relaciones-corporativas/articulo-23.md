@@ -1,0 +1,1 @@
+Artículo 23.—De los aumentos de capital. Cuando una sociedad requiera un aumento de capital, su Gerente General, previa aprobación de la respectiva Junta Directiva, coordinará con el Gerente General Corporativo la presentación de la propuesta a someterse a la Junta Directiva Nacional, en su condición de titular de las atribuciones de la asamblea de accionistas.
