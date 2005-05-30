@@ -1,0 +1,1 @@
+Artículo 3º—Derogatorias. Se deroga el acuerdo “SGV-A-89 Ajuste al capital social suscrito y pagado de las bolsas de valores, de los puestos de bolsa y de las sociedades administradoras de fondos de inversión y al activo neto mínimo y monto mínimo de participación de los fondos de inversión”.
