@@ -1,0 +1,1 @@
+Artículo 10.—Corresponderá al Departamento de Proveeduría atender las requisiciones para la compra de estas prendas y a los departamentos interesados, la escogencia de las mismas, procurando escoger los mejores precios, así como, seleccionar buenos materiales y hechuras, lo anterior sin prejuicio de los demás procedimientos de contratación administrativa establecidos en la Junta.

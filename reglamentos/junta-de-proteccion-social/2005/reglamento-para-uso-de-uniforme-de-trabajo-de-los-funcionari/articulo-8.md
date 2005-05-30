@@ -1,0 +1,1 @@
+Artículo 8º—La entrega de uniformes se hará, en el período comprendido entre enero y noviembre, según la necesidad de reposición u otorgamiento, basándose en los principios de racionalidad y sana administración de los fondos públicos.

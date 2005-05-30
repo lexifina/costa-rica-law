@@ -1,0 +1,1 @@
+Artículo 9º—Corresponderá al Departamento de Contabilidad, por medio de la Sección de Presupuesto, presupuestar una partida específica para este efecto. Esta deberá incluir, tanto a los funcionarios de la Institución, como eventuales ingresos de personal.

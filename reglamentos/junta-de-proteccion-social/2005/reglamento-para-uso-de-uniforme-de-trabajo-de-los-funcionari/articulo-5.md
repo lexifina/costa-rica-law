@@ -1,0 +1,1 @@
+Artículo 5º—Todos los funcionarios indicados en el artículo 4º de este Reglamento, están obligados a vestir uniforme completo, todos los días laborales. El uso del uniforme, será única y exclusivamente para ejercer las funciones en la Institución y se considerará falta grave su uso distinto.

@@ -1,0 +1,1 @@
+Artículo 7º—Los uniformes y ropas de trabajo serán confeccionados adecuándose al tipo de servicio prestado y en telas de buena calidad, de acuerdo con las labores a ejecutar por cada funcionario y/o grupo de funcionarios a quienes les sean suministrados.
