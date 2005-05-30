@@ -15,3 +15,4 @@ Reglamento Ley Concesión Funcionamiento Marinas Turísticas
 | --- | --- | --- |
 | 1 | 1998-05-20 | la propia norma |
 | 2 | 1999-06-17 | Decreto Ejecutivo 27954 (1999-06-17) |
+| 3 | 2005-05-30 | Decreto Ejecutivo 32617 (2005-05-30) |

@@ -3,6 +3,6 @@ a) Presidir los debates, decidir cuando los temas en discusión han sido suficie
 b) Representar oficialmente a la Comisión.
 c) Solicitar a la Secretaría la convocatoria a sesiones extraordinarias.
 d) Fijar directrices técnicas e impartir instrucciones relacionadas con aspectos formales sobre las tareas de la Comisión.
-e) .Visar los planos de cada Proyecto, una vez que se haya otorgado la concesión a los solicitantes por parte de la Municipalidad respectiva.
-f) Las demás funciones y atribuciones propias de su cargo, de acuerdo al artículo 49 de la ley General de la Administración Pública.
-g) Otros fijados en este Reglamento.
+e)Las demás funciones y atribuciones propias de su cargo, de acuerdo al artículo 49 de la Ley General de la Administración Administración Pública.
+f) Otros fijados en el Reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 32617 del 30 de mayo de 2005)

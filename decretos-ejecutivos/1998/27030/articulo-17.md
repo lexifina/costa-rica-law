@@ -6,6 +6,7 @@ Artículo 17.—Son funciones y deberes de la Secretaría:
 5. Ejecutar y coordinar los estudios que solicite la Comisión, para lo cuál contará con el respaldo de todas las instituciones que integra la Comisión.
 6. Convocar de oficio a las sesiones ordinarias, y convocar las extraordinarias a instancia del presidente o tres de los miembros de la Comisión, con no menos de 24 horas de antelación salvo los casos de urgencia. No obstante quedará válidamente constituida la Comisión sin cumplir los requisitos referentes a la convocatoria o a la orden del día, cuando asistan todos sus integrantes y así lo acuerden por unanimidad.
 7. Comunicar los acuerdos sobre las solicitudes y otras gestiones realizadas por los interesados ante la Comisión, una vez firmes según las formalidades dispuestas en los artículos 239 y siguientes de la Ley General de la Administración Pública.
-8. Llevar un sistema actualizado de información sobre los anteproyectos aprobados y los planos del proyecto visados por la Comisión, y demás documentos tramitados ante la Comisión.
+8. Llevar un sistema actualizado de información sobre los anteproyectos aprobados y los planos del proyecto visados por la Unidad Técnica y demás documentos tramitados ante la Comisión.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32617 del 30 de mayo de 2005)
 9. Llevar las actas de las sesiones de la CIMAT al día.
 10. Otros que establezca este reglamento.
