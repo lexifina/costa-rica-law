@@ -1,0 +1,1 @@
+Artículo 9º—Se derogan el Reglamento de la Medalla al Mérito Deportivo, Sesión Nº 538, acuerdo Nº 4-e- del 26 de mayo de 1977 y sus reformas, sesión Nº 1150, acuerdo Nº 10 del 10 de octubre de 1990, y el Reglamento de los Premios Nacionales en Deporte, sesión Nº 1519, artículo Nº 7, inciso 4 del 30 de abril de 1998.

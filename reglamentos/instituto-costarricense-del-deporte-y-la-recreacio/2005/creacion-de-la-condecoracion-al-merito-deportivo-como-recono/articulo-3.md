@@ -1,0 +1,1 @@
+Artículo 3º—La propuesta de candidatos deberá ser justificada y presentada en Sesión Ordinaria del Consejo Nacional de Deportes y la Recreación por cualquiera de sus miembros o del Director Nacional del Instituto Costarricense del Deporte y la Recreación.

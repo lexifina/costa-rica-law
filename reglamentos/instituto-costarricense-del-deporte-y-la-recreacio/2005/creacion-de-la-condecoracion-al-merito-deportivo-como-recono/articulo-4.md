@@ -1,0 +1,1 @@
+Artículo 4º—El Consejo Nacional de Deportes y Recreación podrá aprobar y realizar más de una Condecoración al Mérito Deportivo dentro de un mismo periodo o año, así como también otorgada con carácter regional o provincial, siempre y cuando la misma sea un estímulo y motivación para la promoción del deporte en otras regiones y provincias del país.

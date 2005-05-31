@@ -1,0 +1,1 @@
+Artículo 8º—En los principales eventos deportivos oficiales organizados por el ICODER, se realizará una exposición alusiva a las personas o entidades que han recibido la Condecoración al Mérito Deportivo a fin de que sirva de estímulo y reconocimiento por parte de la ciudadanía costarricense.

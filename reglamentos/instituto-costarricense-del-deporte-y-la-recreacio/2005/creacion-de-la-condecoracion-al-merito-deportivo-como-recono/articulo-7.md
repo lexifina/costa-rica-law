@@ -1,0 +1,1 @@
+Artículo 7º—En la Secretaría del Consejo Nacional de Deportes y Recreación, se establecerá un registro fotográfico de las personas o entidades que han recibido esta Condecoración, así como una breve reseña de los logros que se alcanzaron para hacerse acreedores a esta distinción.
