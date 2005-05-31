@@ -1,0 +1,1 @@
+9) Desarrollo de sistemas de información El Jerarca deberá establecer las acciones que permitan diseñar, implantar y mantener sistemas para accesar, identificar y registrar información confiable, relevante, pertinente y oportuna, de manera que se cumplan estos Lineamientos.

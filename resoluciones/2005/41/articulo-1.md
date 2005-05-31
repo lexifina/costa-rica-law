@@ -1,0 +1,34 @@
+CONTRALORÍA GENERAL DE LA REPÚBLICA
+Lineamientos
+R-CO-41-2005.—Contraloría General de la República.—Despacho de la Contralora General a. í., a las quince horas del veintitrés de mayo del dos mil cinco.
+Considerando:
+1º—Que el artículo 180 de la Constitución Política de la República de Costa Rica se señala que el presupuesto ordinario y los extraordinarios constituyen el límite de acción de los poderes públicos para el uso y disposición de los recursos del Estado, y sólo podrán ser modificados por leyes de iniciativa del Poder Ejecutivo.
+2º—Que los artículos 183 y 184 de la Constitución Política de la República de Costa Rica establecen a la Contraloría General de la República como institución auxiliar de la Asamblea Legislativa en la vigilancia de la Hacienda Pública. Asimismo, en el inciso 2), del artículo 184, antes citado, se establece como deber y atribución de la Contraloría General examinar, aprobar o improbar los presupuestos de las municipalidades e instituciones autónomas y fiscalizar su ejecución y liquidación.
+3º—Que el artículo 12 de la Ley Orgánica de la Contraloría General de la República Nº 7428 la designa como órgano rector del Sistema de Control y Fiscalización Superiores de la Hacienda Pública y le confiere facultades para emitir disposiciones, normas, políticas y directrices de acatamiento obligatorio por parte de los entes sujetos pasivos, para el uso correcto de los fondos públicos.
+4º—Que en el artículo 18 de la referida ley, reformado por el inciso d), del artículo 126 de la Ley de Administración Financiera de la República y Presupuestos Públicos Nº 8131 del 18 de setiembre del 2001, se establece que la Contraloría General examinará para su aprobación o improbación, total o parcial, los presupuestos de los entes referidos en el artículo 184 de la Constitución Política, así como del resto de la administración descentralizada, las instituciones semiautónomas, las empresas públicas y los órganos, las unidades ejecutoras, los fondos, los programas y las cuentas.
+5º—Que en el artículo 53 de la Ley de Administración Financiera de la República y Presupuestos Públicos se dispone que los presupuestos de los entes y de los órganos sujetos a aprobación de la Contraloría General de la República deberán prepararse atendiendo las normas técnicas dictadas por ese Órgano Contralor.
+6º—Que el artículo 91 del Código Municipal establece que las municipalidades deben acordar el presupuesto ordinario que regirá cada año, utilizando la técnica presupuestaria y contable recomendada por la Contraloría General de la República.
+7º—Que con los Decretos Nº 31458 y 31459 del 6 de octubre del 2003, publicados en La Gaceta Nº 223 del 19 de noviembre del 2003, se adecuan los clasificadores presupuestarios a las necesidades actuales de información, y se generaliza y homogeniza su uso a todo el sector público. Los cuales se podían implementar desde el año 2004. Sin embargo, la obligatoriedad de implementar dichos clasificadores regirá a partir del ejercicio presupuestario del año 2006.
+8º—Que en el “Manual de normas técnicas sobre presupuesto...” en la norma 603 se manifiesta que para efectos de análisis y aprobación del presupuesto por parte de la Contraloría General de la República, su nivel de presentación, en cuanto a estructura se refiere, será el que defina este Órgano Contralor.
+9º—Que esta Contraloría General, mediante resoluciones de las nueve horas del 5 de mayo del 2004, emitió lineamientos a considerar en la formulación de planes operativos anuales y presupuestos, en aras de que en los entes y órganos las fases del proceso de planificación-presupuesto se desarrollen de manera vinculada y atendiendo a lo establecido en la normativa vigente.
+10.—Que con fundamento en lo antes expuesto es necesario establecer un marco normativo básico para fortalecer en las Administraciones activas la responsabilidad por su gestión y una mayor transparencia en el proceso de evaluación y rendición de cuentas. Por tanto,
+RESUELVE:
+Emitir los siguientes:
+LINEAMIENTOS GENERALES SOBRE EL NIVEL DE
+APROBACIÓN DEL PRESUPUESTO DE LOS ENTES Y
+ÓRGANOS PÚBLICOS, MUNICIPALIDADES Y
+ENTIDADES DE CARÁCTER MUNICIPAL,
+FIDEICOMISOS Y SUJETOS PRIVADOS
+L-1-2005-CO-DFOE
+1) Definiciones: Aprobación presupuestaria externa: Para los efectos de estos Lineamientos se entiende por: Proceso a cargo de la Contraloría General de la República, por medio del cual conoce, verifica y se pronuncia mediante acto razonado sobre el cumplimiento de las disposiciones legales y técnicas aplicables al presupuesto formulado y aprobado por los sujetos pasivos para el cumplimiento de sus objetivos y metas, otorgándole validez y eficacia jurídica, permitiendo su ejecución para el período respectivo.
+Aprobación presupuestaria interna: Etapa del proceso presupuestario en la cual el jerarca superior u órgano con la competencia necesaria, conoce, verifica y se pronuncia mediante acto razonado sobre el cumplimiento de las disposiciones legales y técnicas aplicables al presupuesto inicial y sus variaciones, formulados en función de los objetivos y metas institucionales.
+Clasificador de ingresos: Es un instrumento normativo que ordena y agrupa los recursos con que cuentan las entidades, en categorías homogéneas definidas en función de la naturaleza y características de las transacciones que dan origen a cada una de las fuentes de recursos.
+Clasificador por objeto del gasto: Consiste en un conjunto de cuentas de gastos, ordenadas y agrupadas de acuerdo con la naturaleza del bien o servicio que se esté adquiriendo o la operación financiera que se esté efectuando.
+Jerarca: Superior jerárquico, unipersonal o colegiado del órgano o ente, quien ejerce la máxima autoridad.
+Nivel de aprobación presupuestaria externa: Nivel de detalle de los ingresos y los egresos del presupuesto inicial y sus variaciones, sobre el cual se ejerce la aprobación presupuestaria externa y es definido por la Contraloría General.
+Nivel de aprobación presupuestaria interna: Nivel de detalle de los ingresos y los egresos del presupuesto inicial y sus variaciones sobre el cual se ejerce la aprobación presupuestaria interna.
+Presupuesto: Es el instrumento que expresa en términos financieros el plan operativo institucional anual, mediante la estimación de los ingresos y egresos necesarios para cumplir con los objetivos y las metas de los programas establecidos (1).
+_____________
+1 Publicado en La Gaceta Nº 183 del 27 de setiembre de 1988.
+Proceso presupuestario: Es un conjunto de fases continuo, dinámico, participativo y flexible, mediante el cual se formula, discute, aprueba, ejecuta, controla y evalúa la actividad institucional, en sus dimensiones físicas y financieras, de conformidad con el bloque de legalidad.
+Sistema de información de presupuestos públicos: Sistema de información automatizado desarrollado en la Contraloría General de la República como herramienta de apoyo para la fiscalización.

@@ -1,0 +1,1 @@
+5) Alcance del nivel de detalle del presupuesto aprobado externamente. Las asignaciones presupuestarias según los niveles de detalles aprobados constituirán el límite máximo de autorizaciones para gastar.

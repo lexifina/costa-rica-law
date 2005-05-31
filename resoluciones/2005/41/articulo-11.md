@@ -1,0 +1,1 @@
+11) Régimen sancionatorio El incumplimiento injustificado de estos Lineamientos dará lugar a las responsabilidades contempladas en la Ley de Administración Financiera de la República y Presupuestos Públicos, la Ley General de Control Interno y las demás disposiciones concordantes.

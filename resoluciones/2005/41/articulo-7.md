@@ -1,0 +1,4 @@
+7) Información adicional para aprobación presupuestaria y la fiscalización:
+7.1. Aprobación presupuestaria interna. El Jerarca debe definir la información adicional que se requiera para verificar el - cumplimiento de las disposiciones legales y técnicas aplicables al presupuesto sometido a su aprobación.
+7.2. Aprobación presupuestaria externa. Los entes y órganos públicos, municipalidades y otras instituciones del sector municipal, fideicomisos y sujetos privados deberán tomar las medidas pertinentes que le permitan atender los requirimientos de información adicional que solicite la Contraloría General en el ejercicio de sus competencias constitucionales y legales.
+7.3. Fiscalización y control. El Jerarca de cada institución debe establecer las acciones pertinentes para el adecuado uso y actualización de la información del Sistema de Presupuestos Públicos que establecerá la Contraloría General de la República.

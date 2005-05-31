@@ -1,0 +1,1 @@
+8) Variación del nivel de aprobación presupuestaria externa del presupuesto: El nivel de aprobación externa del presupuesto establecido en estos Lineamientos podrá ser variado por la Contraloría General para particulares, cuando así lo disponga la Gerencia de la División de Fiscalización Operativa y Evaluativo mediante resolución razonada.
