@@ -1,0 +1,1 @@
+Artículo 22.—Verificación del depósito bancario. El responsable de caja recaudadora debe verificar que todo depósito bancario esté acompañado de las respectivas facturas emitidas, mismas que deben coincidir en forma exacta con el monto del depósito.

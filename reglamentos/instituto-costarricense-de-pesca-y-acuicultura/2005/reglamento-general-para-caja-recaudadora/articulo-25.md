@@ -1,0 +1,1 @@
+Artículo 25.—Prohibición. Queda prohibido mantener en custodia en la caja recaudadora, dinero que pertenezca al responsable de caja recaudadora o a terceros. De detectarse la existencia de dinero en estas condiciones, pasará a formar parte de los ingresos de la Institución.

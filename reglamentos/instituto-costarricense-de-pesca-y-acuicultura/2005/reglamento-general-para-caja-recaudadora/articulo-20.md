@@ -1,0 +1,2 @@
+Artículo 20.—Responsabilidad del encargado de caja recaudadora. Será deber del responsable de caja recaudadora, custodiar adecuadamente el block o las facturas que esté en uso y los sellos, mismos que deberá mantener en óptimas condiciones. Así mismo, deberá mantener en la caja, los billetes y monedas en las denominaciones requeridas para los trámites por servicios brindados.
+Le corresponderá realizar siempre al final del día, un cierre de caja y una revisión total de su área de trabajo, de manera que no quede nada de valor a disposición de terceros.

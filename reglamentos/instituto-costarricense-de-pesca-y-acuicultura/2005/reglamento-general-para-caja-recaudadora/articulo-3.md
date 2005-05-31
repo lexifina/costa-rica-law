@@ -1,0 +1,1 @@
+Artículo 3º—Captación de ingresos. El INCOPESCA captará ingresos en los diferentes centros de ingreso por los bienes y servicios que brinda, según la clasificación presupuestaria y contable definida por el Departamento Financiero.

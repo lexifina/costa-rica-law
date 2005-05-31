@@ -1,0 +1,4 @@
+CAPÍTULO III
+Deberes, obligaciones y prohibiciones
+Artículo 19.—Responsabilidad de la jefatura. La jefatura del centro de ingreso será la responsable de cerciorarse que existan los controles adecuados para la entrega y manejo de los formularios de Factura, así mismo, que se lleve la numeración consecutiva en ambos casos, de conformidad con lo dispuesto en la norma 4.17 del Manual de Normas Generales de Control Interno para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización.
+Está totalmente prohibido que la jefatura del centro de ingreso, el responsable de caja recaudadora o cualquier funcionario que recauda ingresos, confeccione o entregue a los usuarios, recibos que no sean las facturas oficiales debidamente aprobadas por el Departamento Financiero, con las medidas de seguridad necesarias.

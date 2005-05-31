@@ -1,0 +1,1 @@
+Artículo 10.—Acta de entrega de fondos. El Responsable de caja recaudadora al recibir el fondo fijo, deberá firmar el Acta de entrega de fondos; igualmente cada vez que se realicen incrementos o disminuciones al fondo fijo de caja recaudadora.

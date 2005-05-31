@@ -1,0 +1,1 @@
+Artículo 4º—Declaración patrimonial. Los responsables de caja recaudadora y suplentes deberán declarar su situación patrimonial ante la Contraloría General de la República, de conformidad con lo dispuesto en la Ley Nº 8422, Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento.

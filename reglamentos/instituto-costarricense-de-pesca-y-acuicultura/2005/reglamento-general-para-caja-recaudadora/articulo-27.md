@@ -1,0 +1,1 @@
+Artículo 27.—Sobrante. En caso de determinarse la existencia de sobrantes, el funcionario que realiza el arqueo, debe exigir al responsable de caja recaudadora la emisión inmediata de la factura correspondiente, dinero que será depositado en la cuenta bancaria de la Institución, a más tardar el día hábil siguiente en que fue detectado.

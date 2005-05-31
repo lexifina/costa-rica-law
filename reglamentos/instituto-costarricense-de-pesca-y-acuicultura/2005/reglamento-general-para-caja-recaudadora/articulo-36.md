@@ -1,0 +1,1 @@
+Artículo 36.—Regulación. Las disposiciones contenidas en el presente Reglamento regulan lo relacionado con el funcionamiento de las cajas recaudadoras. Ningún funcionario del INCOPESCA que tenga relación directa o indirecta con las cajas recaudadoras podrá alegar desconocimiento del presente Reglamento.

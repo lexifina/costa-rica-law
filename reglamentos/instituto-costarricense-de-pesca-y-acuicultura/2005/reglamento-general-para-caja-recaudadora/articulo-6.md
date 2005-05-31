@@ -1,0 +1,1 @@
+Artículo 6º—Medidas de seguridad. Cada jefe de centro de ingresó deberá disponer de los recursos y medidas de seguridad necesarios para la custodia del fondo fijo y la recaudación diaria, los cuales estarán bajo la custodia del responsable de caja recaudadora.

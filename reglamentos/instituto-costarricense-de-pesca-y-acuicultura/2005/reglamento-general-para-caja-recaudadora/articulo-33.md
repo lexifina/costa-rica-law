@@ -1,0 +1,1 @@
+Artículo 33.—Incumplimiento. El incumplimiento en la presentación de los informes indicados en los artículos 31 y 32 dentro de los plazos establecidos, podrá ocasionar sanciones disciplinarias tanto para el responsable de caja recaudadora como para el jefe del centro de ingresos.

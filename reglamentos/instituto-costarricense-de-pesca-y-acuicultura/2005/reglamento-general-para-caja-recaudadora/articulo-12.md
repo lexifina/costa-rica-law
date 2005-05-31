@@ -1,0 +1,1 @@
+Artículo 12.—Funciones del responsable de caja recaudadora. Las funciones y actividades que debe realizar el responsable de caja recaudadora serán las incluidas en el Manual de Procedimientos para Caja Recaudadora.
