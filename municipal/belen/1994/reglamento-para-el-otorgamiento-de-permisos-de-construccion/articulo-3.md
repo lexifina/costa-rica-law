@@ -6,6 +6,8 @@ Alineamiento: línea fijada por la Municipalidad o por el Ministerio de Obras Pu
 Antejardín: espacio comprendido entre la línea de propiedad y la línea de construcción fijada por la Municipalidad o el MOPT, implica una restricción para construir, sin que por ello la porción de terreno pierda su condición de propiedad privada.
 Calle: cualquier vía pública o privada que permita el tránsito de vehículos automotores y peatones.
 Calzada: parte de la calle destinada al tránsito de vehículos automotores y de peatones en el caso de que no existan aceras.
+Cobertura: Es la proyección horizontal de una estructura o el área de terreno cubierta por tal estructura.
+(Así adicionado mediante acuerdo tomado en sesión N° 25 de 26 de abril de 2005 y definitivamente aprobado en sesión N° 32 de 31 de mayo de 2005).
 Condominio: inmueble construido en forma horizontal, vertical o mixta susceptible de aprovechamiento independiente por parle de distintos propietarios, con elementos comunes de carácter indivisible.
 Construcción: es toda la estructura que se fija e incorpora a un terreno, incluye cualquier tipo de remodelación, alteración o ampliación que se realice a una estructura existente.
 Cordón y cano: desagüe pluvial que conforma el límite entre la calzada de una calle y la acera.
@@ -16,6 +18,8 @@ Estacionamientos: aquellos lugares (ya sea en edificios o lotes) públicos o pri
 (Así reformado en sesión ordinaria N° 2 del 11 de enero del 2000)
 Estructura: sistema de elementos resistentes a los efectos de las fuerzas externas o internas de todo tipo que forma el esqueleto de un edificio u obra civil.
 Fraccionamiento: es la división de cualquier predio con el fin de vender, traspasar, negociar, repartir, explotar o utilizar en forma separada, las parcelas resultantes, incluye tanto particiones de adjudicación judicial o extrajudicial, localizaciones de derechos indivisos y meras segregaciones en cabeza del mismo dueño, como las situadas en urbanizaciones o construcciones nuevas que interesen el control de la formación y uso urbano de los bienes inmuebles.
+Industria: Conjunto de operaciones materiales ejecutadas por el trabajo humano que busca la transformación de primera materias hasta hacerlas útiles para la satisfacción de necesidades, incluido el conjunto de instalaciones para estas actividades.
+(Así adicionado mediante el acuerdo tomado en sesión N° 25 de 26 de abril de 2005 y definitivamente aprobado en sesión N° 32 de 31 de mayo de 2005).
 Instalación: en un edificio, cualquier sistema destinado a servicios tales como agua potable, desagües, energía eléctrica, transporte vertical, aire acondicionado, etc.
 Obra civil: obra diseñada y construida mediante la aplicación de la ciencia y la tecnología perteneciente a la Ingeniería Civil.
 Obra provisional: obra de carácter temporal que debe construirse o instalarse como medio de servicio para ayudar a la construcción de una obra definitiva.
@@ -25,6 +29,9 @@ También es indispensable para movimientos de tierra, excavaciones o rellenos.
 Piso: es de un edificio, plataforma a nivel que sirve de suelo habitable y sostener los muebles. Se llama piso al que está a nivel de la calle. Edificio de un piso es aquel de una sola planta.
 Plano catastrado: plano oficial de un terreno debidamente registrado en Dirección de Catastro Nacional, que fija la forma, área, deslindes y orientación aquel.
 Reparación: renovación de cualquier parte de una obra para dejarla en condiciones iguales o mejores, que las primitivas.
+Resolución: Acto administrativo que se caracteriza por producir efectos jurídicos subjetivos, concretos, de alcance individual.
+(Así adicionado mediante el acuerdo tomado en sesión N° 25 de 26 de abril de 2005 y definitivamente aprobado en sesión N° 32 de 31 de mayo de 2005).
 Tabique: elemento vertical resistente que sirve como división interior o cierre exterior de los recintos de un edificio.
 Urbanización: desarrollo o habilitación, para fines urbanos de acuerdo con la zonificación del Plan Regulador, mediante ía apertura de calles o provisión de servicio.
-Voladizo: parte que sobresale de una pared.
+Voladizo: Parte horizontal que sobresale de una pared.
+(Así reformado mediante el acuerdo tomado en sesión N° 25 de 26 de abril de 2005 y definitivamente aprobado en sesión N° 32 de 31 de mayo de 2005).
