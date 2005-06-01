@@ -6,3 +6,4 @@ Nota: Por lo extenso de su contenido ver Alcance N° 67 a La Gaceta N° 257 del 
 (Modificado por el artículo 1° del decreto ejecutivo N° 32292 del 28 de marzo del 2005)
 (Modificado por el artículo 1º del decreto ejecutivo Nº 32311 del 5 de abril del 2005).
 (Modificado por el articulo 1° del Decreto Ejecutivo N° 32335 del 25 de abril del 2005 ).
+(Modificado por el articulo 1° del Decreto Ejecutivo N° 32383 del 9 de mayo del 2005 ).
