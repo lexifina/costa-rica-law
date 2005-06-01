@@ -92,7 +92,7 @@ Todo interés por mora se destinará exclusivamente a fortalecer el Fondo de Pen
 Artículo 16.- Modificación de las cotizaciones
 La Junta de Pensiones y Jubilaciones del Magisterio Nacional podrá ajustar las cotizaciones de los funcionarios activos asegurados, cuando así lo recomienden los estudios actuariales y previa autorización de la Superintendencia General de Pensiones.
 La cuota patronal sólo podrá variarse con autorización expresa de la Asamblea Legislativa, emitida por ley ordinaria.
-Transitorio I.- Cotización especial solidaria. (DEROGADO por el artículo 3° de la Ley No. 7946 de 18 de noviembre de 1999).
+Transitorio I.- Cotización especial solidaria . (DEROGADO por el artículo 3° de la Ley No. 7946 de 18 de noviembre de 1999).
 Transitorio II.- Transferencia de cotizaciones pagadas
 El Estado transferirá, al Fondo de Capitalización que esta ley establece, una suma equivalente a las cotizaciones obreras deducidas del salario de los funcionarios nacidos el 1º de agosto de 1965 o en fecha posterior y que sean cotizantes según la Ley No. 7268, del 14 de noviembre de 1991. El Ministerio de Hacienda determinará el monto total de esa suma.
 Para estos efectos, la suma correspondiente se transferirá en diez tractos, pagaderos anualmente, y en títulos indexables del Estado (TUDES), en plazos de diez, quince y veinte años.
@@ -460,8 +460,9 @@ Contra el acto final, cabrá recurso de revocatoria dentro de los cinco días si
 (Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 92.- Apelación.
 Contra el acto final, cabrá recurso de apelación el cual deberá ser interpuesto ante la Junta , dentro de los ocho días siguientes a la notificación del acto impugnado.
-Recibido el recurso de apelación, la Junta perderá toda competencia sobre la gestión del recurrente, salvo el caso exclusivo de la tramitación del recurso y, dentro de los tres días siguientes a la interposición, deberá elevar el expediente y el recurso ante el Tribunal Superior de Trabajo, que resolverá en alzada administrativa. En la tramitación de la alzada, la Junta deberá atenerse a lo dispuesto en el artículo 349.2 de la Ley General de la Administración Pública.
+Recibido el recurso de apelación, la Junta perderá toda competencia sobre la gestión del recurrente, salvo el caso exclusivo de la tramitación del recurso y, dentro de los tres días siguientes a la interposición, deberá elevar el expediente y el recurso ante el *(Tribunal Superior de Trabajo), que resolverá en alzada administrativa. En la tramitación de la alzada, la Junta deberá atenerse a lo dispuesto en el artículo 349.2 de la Ley General de la Administración Pública.
 (Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
+* (Nota de SINALEVI: Por resolución de la Sala Constitucional número 6866 de las catorce horas con treinta y siete minutos del 1° de junio del 2005, se anula de este artículo la frase entre paréntesis que dispone "Tribunal Superior de Trabajo").
 CAPITULO X
 Administración del Régimen
 Artículo 93.- Organo competente
@@ -586,8 +587,8 @@ En la regulación y supervisión del Sistema de Pensiones del Magisterio se apli
 (Así adicionado por el artículo 2° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 115.- Garantía de pago.
 El Estado garantiza el pago de los derechos otorgados y los que se lleguen a otorgar en el Régimen transitorio de reparto de acuerdo con esta ley.
-Así adicionado por el artículo 2° de la Ley No. 7946 de 18 de noviembre de 1999).
+(Así adicionado por el artículo 2° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 116.- Exoneración de pensiones.
 Solo quedarán exonerados de la contribución correspondiente al Régimen de reparto, los derechos por vejez, invalidez, muerte o supervivencia, iguales o menores a dos veces el salario base más bajo pagado por la Administración Pública.
 En caso de supervivencia, la exoneración se aplicará sobre la sumatoria de los montos derivados de un derecho jubilatorio.
-Así adicionado por el artículo 2° de la Ley No. 7946 de 18 de noviembre de 1999).
+(Así adicionado por el artículo 2° de la Ley No. 7946 de 18 de noviembre de 1999).
