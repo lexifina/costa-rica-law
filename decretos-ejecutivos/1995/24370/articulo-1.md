@@ -1,6 +1,9 @@
+(Anulada)
 N° 24370-MOPT
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES,
+ANULADO
+(Este Decreto Ejecutivo ha sido anulado mediante resolución de la Sala Constitucional N° 6854-05, de las 10:00 horas del primero de junio del dos mil cinco.)
 En uso de las atribuciones que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política; la Ley de Creación del Ministerio de Obras Públicas y Transportes N° 4786 del 5 de julio de 1971 y sus reformas, la Ley General de la Administración Pública N° 6227 del 2 de mayo de 1978, ley N° 7040 del 25 de abril de 1986.
 Considerando:
 1°—Que en los términos de la ley N° 7040 del 25 de abril de 1986, mientras persiste el período de transición y no se defina la modalidad de administración definitiva, del Muelle de Golfíto, el Ministerio de Obras Públicas y Transportes, mediante su Titular, debe constituir una Junta de Administración del Muelle de Golfíto, formada por cinco miembros, para que administre directamente los ingresos provenientes del referido Muelle.
