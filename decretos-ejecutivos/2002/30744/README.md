@@ -16,3 +16,4 @@ Reforma Integración de Junta de Desarrollo Portuario de Golfito.
 | 1 | 2002-10-03 | la propia norma |
 | 2 | 2003-03-04 | Decreto Ejecutivo 31074 (2003-03-04) |
 | 3 | 2004-09-27 | Decreto Ejecutivo 32036 (2004-09-27) |
+| 4 | 2005-06-01 | SINALEVI (sin norma nombrada) |
