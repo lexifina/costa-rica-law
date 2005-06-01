@@ -15,3 +15,4 @@ Modifica la integración de la Junta de Desarrollo Portuario del Cantón de Golf
 | --- | --- | --- |
 | 1 | 1998-10-22 | la propia norma |
 | 2 | 2002-09-10 | Decreto Ejecutivo 30744 (2002-09-10) |
+| 3 | 2005-06-01 | SINALEVI (sin norma nombrada) |
