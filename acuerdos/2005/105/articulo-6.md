@@ -1,0 +1,1 @@
+Artículo 6º—Derogatorias. Se deroga el acuerdo SGV-A-49 Instrucciones para el manejo de las cuentas corrientes y de la custodia de los títulos valores en las Sociedades Administradoras de fondos de Inversión y en los Fondos de Inversión Ref. 3573 del 22 de octubre 2001.
