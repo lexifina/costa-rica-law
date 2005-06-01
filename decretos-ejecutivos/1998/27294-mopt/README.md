@@ -19,3 +19,4 @@ Reforma Integración de Junta de Desarrollo Portuario de Golfito
 | 4 | 2001-07-23 | Decreto Ejecutivo 29759 (2001-07-23) |
 | 5 | 2002-07-01 | Decreto Ejecutivo 30567 (2002-07-01) |
 | 6 | 2002-09-10 | Decreto Ejecutivo 30744 (2002-09-10) |
+| 7 | 2005-06-01 | SINALEVI (sin norma nombrada) |
