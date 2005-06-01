@@ -1,1 +1,1 @@
-Artículo 41.—Servicio Fax. Está totalmente prohibido circular por medio del servicio Fax, documentos o gráficos, que contengan insultos, dibujos y expresiones contrarias a la moral y a las buenas costumbres o que dañen la reputación de las personas. Respecto a los documentos escritos en un idioma diferente al español, el contenido de los mismos quedará bajo la exclusiva responsabilidad del remitente.
+Artículo 41.— Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 06867 del 01 de junio de 2005.)

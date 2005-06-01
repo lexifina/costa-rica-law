@@ -18,3 +18,4 @@ Reglamento Interior de Servicio Postal
 | 3 | 2000-02-24 | Reglamento 132 (2000-02-24) |
 | 4 | 2004-01-29 | Reglamento 473 (2004-01-29) |
 | 5 | 2005-03-10 | Reglamento 578 (2005-03-10) |
+| 6 | 2005-06-01 | SINALEVI (sin norma nombrada) |
