@@ -1,10 +1,11 @@
-(Derogado)
+(Anulada)
 PODER EJECUTIVO
 DECRETOS
 Nº 29759-MOPT
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
-(NOTA: El presente decreto ha sido DEROGADO EN SU TOTALIDAD por el artículo 2 del Decreto Ejecutivo N° 39567 de 1 de julio del 2002).
+ANULADO
+(Este Decreto Ejecutivo ha sido derogado en su totalidad por el artículo 2 del decreto ejecutivo N° 39567 del 1 de julio del 2002, así como mediante resolución de la Sala Constitucional N° 6854-05, de las 10:00 horas del primero de junio del dos mil cinco)
 En el ejercicio de las facultades y prerrogativas conferidas en el artículo 140, incisos 3) y 18) de la Constitución Política; así mismo con fundamento en los numerales 1, 2, y 3 de la Ley de Creación del Ministerio de Obras Públicas y Transportes N° 4736; los artículos 4, 1, 27, 28 incisos 1) y 2), ítemes a) y b) de la Ley General de la Administración Pública N° 6227 y el numeral 48 de la Ley N° 7040.
 Considerando:
 1º—Que de conformidad con lo establecido en el artículo 48 de la Ley N° 7040, constituye una competencia material propia y exclusiva del Ministerio de Obras Públicas y Transportes, la constitución y designación de los funcionarios públicos y ciudadanos que conformarán e integrarán la Junta de Desarrollo Portuario del cantón de Golfito, cuya designación actual se dio mediante Decreto Ejecutivo Nº 25231-MOPT, modificado por los Decretos Ejecutivos N° 27294-MOPT, publicado en el Alcance N° 60 a La Gaceta N° 178 del 11 de setiembre de 1998, y N° 27437-MOPT, publicado en el Diario Oficial N° 229 del 25 de noviembre de 1998.
