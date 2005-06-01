@@ -1,6 +1,9 @@
+(Anulada)
 Nº 29596-MOPT
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+ANULADO
+(Este Decreto Ejecutivo ha sido derogado en su totalidad mediante resolución de la Sala Constitucional N° 6854-05, de las 10:00 horas del primero de junio del dos mil cinco)
 En el ejercicio de las facultades conferidas por el artículo 140, incisos 3) y 18) de la Constitución Política; la Ley de Creación del Ministerio de Obras Públicas y Transportes Nº 4786, del 5 de julio de 1971; la Ley General de la Administración Pública Nº 6227 del 2 de mayo de 1978; y el artículo 48 de la Ley Nº 7040, del 25 de abril de 1986.
 Considerando:
 1º—Que el artículo 48 de la Ley Nº 7040, ante el abandono que hizo la Compañía Bananera de la zona sur del país, y la reversión de sus bienes a favor del Estado, incluyendo el Muelle de Golfito, dispuso la obligación para el Ministerio de Obras Públicas y Transportes, mediante su titular, de constituir una Junta de Administración de dicho Muelle, para que administre directamente los ingresos provenientes de esas instalaciones, los cuales deben destinarse a la administración, operación, mantenimiento y mejoras de sus instalaciones y equipos. Finalmente dicha norma dispuso que el MOPT fijará el apéndice tarifario respectivo y emitirá el Reglamento de Administración y Operación Portuaria en un plazo de treinta días contados a partir de la vigencia de la ley.

@@ -14,3 +14,4 @@ Autoriza a la Junta de Desarrollo Portuario del Cantón de Golfito para que homo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-25 | la propia norma |
+| 2 | 2005-06-01 | SINALEVI (sin norma nombrada) |
