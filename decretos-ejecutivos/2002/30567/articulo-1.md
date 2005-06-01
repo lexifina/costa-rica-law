@@ -1,8 +1,9 @@
-(Derogado)
+(Anulada)
 Nº 30567-MOPT
-(DEROGADO por el artículo 3 del Decreto Ejecutivo N° 30744 de 3 de octubre del 2002)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+ANULADO
+(Este Decreto Ejecutivo ha sido derogado en su totalidad por el artículo 3 del decreto ejecutivo N° 30744 del 10 de setiembre del 2002, así como mediante resolución de la Sala Constitucional N° 6854-05, de las 10:00 horas del primero de junio del dos mil cinco)
 En el ejercicio de las facultades y prerrogativas conferidas en el artículo 140, incisos 3) y 18) de la Constitución Política; asimismo con fundamento en los numerales 1, 2 y 3 de la Ley de Creación del Ministerio de Obras Públicas y Transportes Nº 4736; los artículos 4, 1, 27, 28, incisos 1) y 2), ítemes a) y b) de la Ley General de la Administración Pública Nº 6227 y el numeral 48 de la Ley Nº 7040.
 Considerando:
 1º—Que de conformidad con lo establecido en el artículo 48 de la Ley Nº 7040, constituye una competencia material propia y exclusiva del Ministerio de Obras Públicas y Transportes, la constitución y designación de los funcionarios públicos y ciudadanos que conformarán e integrarán la Junta de Desarrollo Portuario del Cantón de Golfito, nombre atribuido por el Decreto Ejecutivo 25231-MOPT, confirmados por los Decretos Ejecutivos Nº 27294-MOPT y 27437-MOPT, con el propósito de que en forma directa, coordinada y eficiente se administren los ingresos provenientes del Puerto de Golfito.
