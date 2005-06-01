@@ -1,6 +1,9 @@
+(Anulada)
 Nº 28600-MOPT
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+ANULADO
+(Este Decreto Ejecutivo ha sido derogado en su totalidad mediante resolución de la Sala Constitucional N° 6854-05, de las 10:00 horas del primero de junio del dos mil cinco)
 En el ejercicio de las facultades y prerrogativas conferidas por los artículos 11 y 140, incisos 3) y 18) de la Constitución Política; asimismo, Ley de Creación del Ministerio de Obras Públicas y Transportes N° 4786, artículos 1°, 2° y 3°, siguientes y concordantes, del 5 de julio de 1971; artículos 4º, 11, 27 inciso 1), 28 incisos 1) y 2), ítems a) y b), de la Ley General de la Administración Pública N° 6227 y el artículo 48 de la Ley N° 7040, del 25 de abril de 1986.
 Considerando:
 1º—Que la Ley de Creación del Ministerio de Obras Públicas y Transportes N° 4786, ha establecido como uno de sus objetos y competencias materiales propias de la entidad, la planificación, construcción, mejoramiento y mantenimiento de los Puertos de Altura y Cabotaje, las vías y terminales de navegación interior, los sistemas de transbordadores y similares; asimismo, regular y controlar el transporte marítimo internacional, de cabotaje y por vías de navegación interior.

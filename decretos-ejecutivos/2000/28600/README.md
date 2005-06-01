@@ -14,3 +14,4 @@ Organización Administrativa y Operativa de la JUnta de Desarrollo Portuario del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-09 | la propia norma |
+| 2 | 2005-06-01 | SINALEVI (sin norma nombrada) |
