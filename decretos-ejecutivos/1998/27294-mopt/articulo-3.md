@@ -1,1 +1,0 @@
-Artículo 3°—Se modifica en lo conducente el Decreto Ejecutivo N° 24370-MOPT, del 26 de mayo de 1995 y se deroga en su integridad el Acuerdo N° 30 del Ministerio de Obras Públicas y Transportes, del 26 de mayo de 1995, publicado en el Diario Oficial "La Gaceta" N° 132, del 12 de julio de 1995.
