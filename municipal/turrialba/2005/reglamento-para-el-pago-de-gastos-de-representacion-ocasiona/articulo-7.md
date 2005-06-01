@@ -1,0 +1,1 @@
+Artículo 7º—Normativa supletoria. Aquellos casos que se presente y que no estén regulados por este reglamento, se regirán por la normativa que al respecto tenga o indique la Contraloría General de la República.
