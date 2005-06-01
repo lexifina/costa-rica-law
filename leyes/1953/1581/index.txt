@@ -14,8 +14,8 @@ articulo-13.md
 articulo-14.md
 articulo-15.md
 articulo-16.md
-articulo-17.md
 articulo-18.md
+articulo-17.md
 articulo-19.md
 articulo-20.md
 articulo-21.md
@@ -40,8 +40,8 @@ articulo-39.md
 articulo-40.md
 articulo-41.md
 articulo-42.md
-articulo-44.md
 articulo-43.md
+articulo-44.md
 articulo-45.md
 articulo-46.md
 articulo-47.md
@@ -72,8 +72,8 @@ articulo-71.md
 articulo-72.md
 articulo-73.md
 articulo-75.md
-articulo-76.md
 articulo-74.md
+articulo-76.md
 articulo-77.md
 articulo-78.md
 articulo-79.md
