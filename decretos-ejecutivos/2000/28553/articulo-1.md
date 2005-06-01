@@ -1,10 +1,11 @@
-(Derogado)
+(Anulada)
 DECRETOS
 MINISTERIO DE OBRAS PUBLICAS Y TRANSPORTES
 Nº 28553-MOPT
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES
-(NOTA: Esta norma ha sido DEROGADA EN SU TOTALIDAD por el artículo 3 del decreto ejecutivo N° 30744 del 10 de setiembre del 2002)
+ANULADO
+(Este Decreto Ejecutivo ha sido derogado en su totalidad por el artículo 3 del decreto ejecutivo N° 30744 del 10 de setiembre del 2002, así como mediante resolución de la Sala Constitucional N° 6854-05, de las 10:00 horas del primero de junio del dos mil cinco)
 En el ejercicio de las facultades y prerrogativas conferidas en el artículo 140, inciso 3) y 18) de la Constitución Política; asimismo, artículos 1º, 2º y 3º de la Ley de Creación del Ministerio de Obras Públicas y Transportes Nº 4786, del 5 de julio de 1971; artículos 4º, 11, 27, 28 incisos 1) y 2), ítemes a) y b) de la Ley General de la Administración Pública Nº 6227 y el artículo 48 de la ley Nº 7040, del 25 de abril de 1986.
 Considerando:
 1º—Que de conformidad con lo establecido en el artículo 48 de la ley Nº 7040, del 25 de abril de 1986, constituye una competencia material propia y exclusiva del Ministerio de Obras Públicas y Transportes, la constitución y designación explícita de los funcionarios públicos y ciudadanos que conformarán e integrarán la Junta de Desarrollo Portuario del Cantón de Golfito, nombre actualmente atribuido por el decreto ejecutivo Nº 25231-MOPT, del 13 de mayo de 1996, confirmado por el decreto ejecutivo Nº 27294-MOPT, del 23 de julio de 1998 y por el decreto ejecutivo Nº 27437-MOPT, del 22 de octubre de 1998, con el propósito de que en forma directa, coordinada y eficiente administre los ingresos provenientes del Puerto de Golfito.
