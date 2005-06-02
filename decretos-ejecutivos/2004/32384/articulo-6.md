@@ -1,0 +1,1 @@
+Artículo 6º—La Dirección Administrativa invitará a formar parte del Registro de Proveedores de la institución, al menos una vez al año, por medio de publicación en el Diario Oficial y en al menos un diario de circulación nacional. Los eventuales proveedores podrán solicitar su incorporación al registro en cualquier tiempo.

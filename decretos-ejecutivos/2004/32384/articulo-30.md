@@ -1,0 +1,1 @@
+Artículo 30.—En todo trámite de adquisición de bienes y servicios la Dirección Administrativa, mediante certificación, verificará y comprometerá el disponible presupuestario para la realización de ese trámite de compra.

@@ -1,0 +1,1 @@
+Artículo 36.—Para toda modificación contractual, sea que implique aumento o disminución del objeto contractual, deberá aplicarse el procedimiento establecido en la Ley de Contratación Administrativa, su reglamento y el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública, y cualquier otra disposición legal o reglamentaria aplicable.

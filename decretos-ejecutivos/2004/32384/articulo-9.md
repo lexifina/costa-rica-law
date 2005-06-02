@@ -1,0 +1,1 @@
+Artículo 9º—Toda la documentación antes señalada deberá de ser presentada en original en la Dirección Administrativa del Tribunal Registral Administrativo, quien procederá a calificarlo en un plazo que no podrá exceder ocho días hábiles.

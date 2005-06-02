@@ -1,0 +1,1 @@
+Artículo 33.—Tratándose de compras directas se regirá por lo dispuesto en este reglamento y las disposiciones que emita la Contraloría General de la República y órganos competentes en la materia. En estos casos, el pliego de condiciones será aprobado por la Dirección Administrativa y la adjudicación corresponderá al Tribunal Registral Administrativo.

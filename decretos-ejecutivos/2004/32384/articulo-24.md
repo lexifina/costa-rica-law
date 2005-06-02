@@ -1,0 +1,1 @@
+Artículo 24.—Corresponderá a la Dirección Administrativa gestionar la publicación del plan anual de adquisición de bienes y servicios, así como las modificaciones que presenten las instancias superiores, a fin de satisfacer de mejor manera el interés público.

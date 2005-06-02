@@ -1,0 +1,1 @@
+Artículo 28.—Las solicitudes de compra deben hacerse en el formulario diseñado por la Dirección Administrativa para tal efecto. Será el Jefe de cada Departamento quien trasladará la solicitud a la Dirección Administrativa para el trámite respectivo.

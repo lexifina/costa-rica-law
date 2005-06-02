@@ -1,0 +1,1 @@
+Artículo 16.—La Comisión de Recomendaciones se reunirá en forma ordinaria, cuando así lo considere necesario su Presidente sin necesidad de convocatoria previa, y de manera extraordinaria, cuando la mitad de sus miembros así lo requieran.
