@@ -1,6 +1,6 @@
 # Ley de Presupuesto para 1987
 
-Ley N° 7055 del 1986-12-18. SINALEVI, ficha 14434: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=14434&param2=15505&param3=1>.
+Ley N° 7055 del 1986-12-18. SINALEVI, ficha 14434: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=14434&param2=113380&param3=1>.
 
 Publicada en La Gaceta N° 245 del 1986-12-26.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1992-04-03 | SINALEVI (24 normas) | 1986-12-18 |
 | 2 de 3 | 1992-04-03 | SINALEVI | 1986-12-18 |
+| 3 de 3 | 2005-06-02 | SINALEVI | 2005-06-02 |
