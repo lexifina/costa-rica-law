@@ -6,4 +6,5 @@ El Director de la Dirección Actuarial y Planificación Económica.
 El Tesorero de la Caja.
 El Director de Inversiones con voz pero sin voto.
 El coordinador del Comité de Riesgos para fondos institucionales con voz pero sin voto.
-El Director Financiero de la Gerencia de la División de Pensiones fungirá como secretario del Comité.
+El Director Financiero Administrativo de la Gerencia de la División de Pensiones* fungirá como secretario del Comité.
+*(Así reformado mediante Sesión 7963 celebrada el 02 de junio del 2005)

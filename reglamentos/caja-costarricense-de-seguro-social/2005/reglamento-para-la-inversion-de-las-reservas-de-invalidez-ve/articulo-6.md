@@ -1,6 +1,7 @@
 Artículo 6º—Funciones y Condiciones del Comité de Inversiones:
 Funciones del Comité de Inversiones:
-a) Recomendará las inversiones de acuerdo con los análisis y diagnósticos presentados para esos efectos, por la Dirección de Inversiones, la Unidad Administración de Riesgo y el Comité de Riesgo.
+a) Recomendará las inversiones de acuerdo con los análisis y diagnósticos presentados para esos efectos, por la Dirección de Inversiones, el Departamento Administración de Riesgo* y el Comité de Riesgo.
+*(Así reformado mediante Sesión 7963 celebrada el 02 de junio del 2005)
 b) Propondrá, para discusión y aprobación de la Gerencia de la División de Pensiones, la política de inversiones y sus reformas para la gestión de cada uno de los fondos administrados de conformidad con el Capítulo II de este Reglamento. Dicha política deberá ser revisada al menos dos veces al año.
 c) Sesionará al menos dos veces al mes. La participación de los miembros del Comité forma parte de sus obligaciones ordinarias, y se considerará falta grave la ausencia injustificada a las sesiones.
 d) Verificará el cumplimiento de las Políticas y Estrategias de inversiones aprobadas por la Junta Directiva, teniendo a la vista los informes técnicos presentados por la Dirección de Inversiones y el Comité de Riesgo.
