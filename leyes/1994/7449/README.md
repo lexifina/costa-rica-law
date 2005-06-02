@@ -1,6 +1,6 @@
 # Ley de Presupuesto Extraordinario
 
-Ley N° 7449 del 1994-11-04. SINALEVI, ficha 26246: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26246&param2=27769&param3=1>.
+Ley N° 7449 del 1994-11-04. SINALEVI, ficha 26246: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26246&param2=113384&param3=1>.
 
 Publicada en La Gaceta N° 217 del 1994-11-15.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1994-11-15 | Ley 7449 | 1994-11-04 |
 | 2 de 3 | 2004-10-19 | Ley 8424 | 2004-10-07 |
+| 3 de 3 | 2005-06-02 | SINALEVI | 2005-06-02 |
