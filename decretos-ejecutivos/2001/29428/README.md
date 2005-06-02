@@ -16,3 +16,4 @@ Reglamento al Estatuto del Servicio Exterior de la República.
 | 1 | 2001-06-05 | la propia norma |
 | 2 | 2001-12-20 | Decreto Ejecutivo 30072 (2001-12-20) |
 | 3 | 2002-04-08 | Decreto Ejecutivo 30346 (2002-04-08) |
+| 4 | 2005-06-02 | Decreto Ejecutivo 32520 (2005-06-02) |

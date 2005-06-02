@@ -1,1 +1,2 @@
-Artículo 89.—De la calificación mínima. En caso de que el aspirante obtenga en uno de los dos exámenes que debe presentar la nota mínima de 6.5, en el caso de Primer Secretario y Consejero, o, la misma calificación en dos de las pruebas que deben presentar los aspirantes a Ministro y Embajador; la Comisión Calificadora del Servicio Exterior le permitirá volver a presentar en forma extraordinaria estos exámenes por una sola vez, a fin de lograr una mejor calificación y por ende mejorar su promedio.
+Artículo 89.—
+(Así derogado por el artículo 2° del Decreto Ejecutivo No 32520-RE del 2 de junio de 2005)

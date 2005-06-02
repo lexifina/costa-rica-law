@@ -1,1 +1,2 @@
-Artículo 90.—Del acceso al expediente y a las evaluaciones. Las evaluaciones y consideraciones recibidas por la Comisión Calificadora del Servicio Exterior tienen carácter clasificado y deberán ser conservadas por el Secretario de la comisión en los expedientes de cada uno de los aspirantes. Los funcionarios diplomáticos podrán conocer de sus evaluaciones y tendrán acceso a sus expedientes.
+Artículo 90.—
+(Así derogado por el artículo 2° del Decreto Ejecutivo No 32520-RE del 2 de junio de 2005)

@@ -1,1 +1,2 @@
-Artículo 87.—De la calificación de entrevistas. Para consignar los resultados de la entrevista con la Comisión Calificadora a que se refiere el artículo 83, los entrevistadores elaborarán una tabla de calificación de criterios y cada uno asignará un puntaje al funcionario. Al final de la entrevista se promediarán los puntajes individuales y la Comisión Calificadora elaborará por escrito una conclusión motivada, adjuntando al expediente del funcionario la tabla de criterios utilizada en la entrevista.
+Artículo 87.—
+(Así derogado por el artículo 2° del Decreto Ejecutivo No 32520-RE del 2 de junio de 2005)
