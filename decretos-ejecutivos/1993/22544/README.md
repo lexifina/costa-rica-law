@@ -18,3 +18,4 @@ Reglamento de Concurso de Oposición para el Ingreso a la Carrera Diplomática y
 | 3 | 2000-07-31 | Decreto Ejecutivo 28821 (2000-07-31) |
 | 4 | 2000-09-01 | Decreto Ejecutivo 28931 (2000-09-01) |
 | 5 | 2001-10-18 | Decreto Ejecutivo 29914 (2001-10-18) |
+| 6 | 2005-06-02 | Decreto Ejecutivo 32519 (2005-06-02) |
