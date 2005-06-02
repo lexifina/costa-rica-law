@@ -1,0 +1,1 @@
+Artículo 5º—Plazo de vigencia. Cada autorización tendrá un plazo de vigencia de un año a partir de su otorgamiento, período dentro del cual se deberá realizar el aprovechamiento de los árboles expresamente autorizados.
