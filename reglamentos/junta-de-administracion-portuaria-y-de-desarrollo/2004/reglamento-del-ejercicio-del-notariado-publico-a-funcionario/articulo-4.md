@@ -1,0 +1,1 @@
+Artículo 4º—La violación de las prohibiciones establecidas en el presente Reglamento considérese, falta gravísima, a efectos de la aplicación de las sanciones disciplinarias derivadas de la inaplicación de las normas aquí establecidas.

@@ -1,0 +1,1 @@
+Transitorio I.—Se concede el periodo de tres meses calendario a partir de su publicación, para que los actuales abogados de la Institución, que se encuentren involucrados en cualquiera de las prohibiciones establecidas en el presente Reglamento, finalicen sus gestiones notariales, ya iniciadas.
