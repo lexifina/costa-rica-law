@@ -1,1 +1,0 @@
-Artículo 5º—Las solicitudes de precio podrán ser hechas por RECOPE o INCOPESCA o por el ente Regulador de Oficio, por cuanto las variaciones de precio de la Flota Pesquera Nacional No Deportiva, se harán siguiendo las mismas variaciones Ordinarias y Extraordinarias solicitadas por RECOPE.
