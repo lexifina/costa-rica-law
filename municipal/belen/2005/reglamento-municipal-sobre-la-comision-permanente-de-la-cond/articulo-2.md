@@ -1,0 +1,1 @@
+Artículo 2º—Esta Comisión tendrá como fin el cumplimiento efectivo e las funciones que se reasigne y cualquier otra que corresponda a su competencia o que le sea asignada por el Código Municipal, los reglamentos que se dicten al efecto y cualquier Ley vigente.
