@@ -28,3 +28,4 @@ Fijación de tarifas de los servicios del Ministerio de Agricultura y Ganadería
 | 13 | 2004-04-01 | Decreto Ejecutivo 31808 (2004-04-01) |
 | 14 | 2004-09-27 | Decreto Ejecutivo 32049 (2004-09-27) |
 | 15 | 2005-02-07 | Decreto Ejecutivo 32285 (2005-02-07) |
+| 16 | 2005-06-03 | Decreto Ejecutivo 32593 (2005-06-03) |
