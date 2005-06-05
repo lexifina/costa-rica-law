@@ -1,2 +1,2 @@
-Artículo 14.—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a los ocho días del mes de diciembre del dos mil cuatro.
+Artículo 14.—Los montos establecidos en este Decreto se aplicarán a los contratos cuya vigencia sea a partir del año 2005, con excepción de los proyectos de conservación de bosque, en cuyo caso el monto establecido en el inciso a) del artículo 7º del Decreto Nº 32226- MINAE, se realizará a partir del segundo desembolso en el año dos mil seis.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 32750 del 5 de junio del 2005)

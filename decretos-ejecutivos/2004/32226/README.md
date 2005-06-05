@@ -14,3 +14,4 @@ Presupuesto asignado al Programa de Servicios Ambientales para el 2005
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-14 | la propia norma |
+| 2 | 2005-06-05 | Decreto Ejecutivo 32750 (2005-06-05) |
