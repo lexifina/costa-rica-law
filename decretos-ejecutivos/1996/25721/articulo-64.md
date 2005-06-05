@@ -1,2 +1,3 @@
-Artículo 64.—El FONAFIFO, de los recursos que reciba por cualquier fuente para el pago de servicios ambientales, podrá disponer de un porcentaje no mayor al siete por ciento de monto anual otorgado, para hacer frente a los gastos del programa de pago de servicios ambientales.
-(Así reformado por el artículo 12 del Decreto Ejecutivo N° 31081 de 17 de marzo de 2003)
+Artículo 64º—FONAFIFO, de los recursos que perciba de cualquier fuente para el pago por servicios ambientales, podrá disponer de un porcentaje que no podrá ser mayor al siete por ciento del monto anual otorgado, para hacer frente a los gastos administrativos en que incurra en la ejecución del programa de pagos por servicios ambientales. Asimismo, el FONAFIFO financiará con un 2% de ese porcentaje, la ejecución de la Estrategia de Seguimiento al Pago por Servicios Ambientales elaborada por el Sistema Nacional de Áreas de Conservación (SINAC).
+El FONAFIFO deberá someter a aprobación previa del SINAC, el presupuesto correspondiente al 5% restante.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 32750 del 5 de junio del 2005)
