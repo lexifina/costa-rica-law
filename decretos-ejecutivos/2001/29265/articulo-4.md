@@ -1,2 +1,0 @@
-Artículo 4º—La Dirección General de Tributación, en lo que corresponda a su competencia, será el ente encargado de emitir las lineamientos para la correcta aplicación del procedimiento consignado en el presente Decreto, además se encargará de la interpretación, manejo y actualización cada cuatro meses de la base de datos, utilizada para el cobro de los Impuestos de Traspaso y Propiedad del vehículo.
-(Así reformado por el artículo 2 del Decreto Ejecutivo N° 29346 de 2 de marzo del 2001, que sustituye la palabra "directrices" por "lineamientos")

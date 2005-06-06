@@ -1,2 +1,0 @@
-"Artículo 15.—La Administración Tributaria, con el ánimo de evitar la subfacturación y garantizar el adecuado cobro de los tributos que corresponden al Estado, procederá a valorar de manera individual todas aquellas mercancías que a partir de la vigencia de este decreto, sean declaradas de conformidad con el artículo 55 de la Ley General de Aduanas."
-(Así adicionado por el artículo 1 del Decreto Ejecutivo N° 29346 de 2 de marzo del 2001)
