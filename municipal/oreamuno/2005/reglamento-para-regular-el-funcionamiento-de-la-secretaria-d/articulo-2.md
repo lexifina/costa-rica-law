@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El ámbito de aplicación de este Reglamento lo es únicamente la Secretaría del Concejo Municipal y su interrelación con las demás instancias técnicas y administrativas.
