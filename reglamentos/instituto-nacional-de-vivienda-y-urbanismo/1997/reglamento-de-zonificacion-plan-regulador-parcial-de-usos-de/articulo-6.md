@@ -4,8 +4,9 @@ Esta zona es la parte plana y superior del Valle de Parrita, con pendientes del 
 Se permitirán cualquier uso urbano, pero dentro dé los núcleos de población existentes ya consolidados, donde se podrá utilizar la infraestructura existente y los servicios conexos.
 6.2 Requisitos:
 6.2.1 Para la vivienda:
-Frente Mínimo: 12,00 m
-Área Mínima: 350,00 m2
+Frente Mínimo: 8,00 m
+Área Mínima: 220,00 m2
+(Así reformado parcialmente por Sesión Ordinaria 1914-2005 celebrada el 6 de junio del 2005)
 Retiros: FRONTAL 300 m. Posterior: 5,00 m. Laterales: no se exigen, en caso de apertura de ventanas 1.50 m.
 6.2.2 Para el comercio:
 Frente Mínimo: 10,00 m

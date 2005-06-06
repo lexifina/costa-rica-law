@@ -6,8 +6,9 @@ Dentro de esta zona está ubicada la mayor parte de la población urbana del Can
 Aunque existe riesgo por las inundaciones, las consecuencias se pueden minimizar y aceptar la construcción pero como uso condicional, ya que la actividad que se desarrolla en esta zona no es posible ignorarla y provocar así el abandono en la salubridad y seguridad de la población y en las inversiones. La condición para construir será el nivel de piso con rellenos, tomando como referencia el punto más alto de la rasante de la calle a que enfrente el lote o finca.
 5.2.1 La vivienda:
 De nuevo insistimos en no recomendar la construcción de vivienda en este sector de hacerlo la condición es que el nivel de piso terminado esté a 60 cm arriba de la rasante de la calle a que enfrenta el lote.
-Área Mínima: 350,00 m2.
-Frente Mínimo: 12,00 metros.
+Área Mínima: 220,00 m2.
+Frente Mínimo: 8,00 metros.
+(Así reformado parcialmente por Sesión Ordinaria 1914-2005 celebrada el 6 de junio del 2005)
 Cobertura Máxima: 70% del área del lote.
 Nivel de piso: 60 cm arriba de la rasante.
 Retiros Mínimos: Frontal: 3,00 metros. Posterior 5,00 metros, Laterales: no se exigen, solo en caso de apertura de ventanas, se debe respetar 1,50 metros.

@@ -4,8 +4,9 @@ Esta zona corresponde a la parte plana inferior del Valle, por lo general inmedi
 Bajo las mismas condiciones que la planicie superior, se permite cualquier uso urbano conexo.
 7.2 Requisitos:
 7.2.1 Para la vivienda:
-Frente Mínimo: 12,00 m
-Área Mínima: 350,00 m2
+Frente Mínimo: 8,00 m
+Área Mínima: 220,00 m2
+(Así reformado parcialmente por Sesión Ordinaria 1914-2005 celebrada el 6 de junio del 2005)
 Retiros: Frontal: 3,00 m. Posterior: 5,00 m. Laterales: no se exigen, en caos de apertura de ventanas 1,50 m
 Cobertura máxima: 70% del área del lote
 Altura máxima: 8,00 m o 2 pisos

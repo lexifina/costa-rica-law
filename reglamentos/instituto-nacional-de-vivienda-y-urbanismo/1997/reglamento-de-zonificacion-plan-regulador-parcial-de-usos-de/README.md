@@ -14,3 +14,4 @@ Reglamento de Zonificación Plan Regulador Parcial de usos de suelo y las zonas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-05-12 | la propia norma |
+| 2 | 2005-06-06 | Reglamento municipal 1914 (2005-06-06) |
