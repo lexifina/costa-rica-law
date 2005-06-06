@@ -14,3 +14,4 @@ Reglamento para el cobro del impuesto a concesionarios por la explotación de ma
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-01 | la propia norma |
+| 2 | 2005-06-06 | Reglamento municipal 23 (2005-06-06) |
