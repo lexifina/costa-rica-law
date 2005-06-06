@@ -1,1 +1,1 @@
-Artículo 9º—La Dirección General de Tributación realizará un primer estudio dentro de los siguientes noventa días a la publicación del presente decreto para actualizar el margen de valor agregado señalado en el artículo 7º y mediante resolución razonada modificará el citado margen, de ser procedente. Posteriormente, esos estudios serán semestrales.
+Artículo 9º—(Derogado por Artículo 15 del Decreto Ejecutivo N° 32458 del 6 de junio del 2005)

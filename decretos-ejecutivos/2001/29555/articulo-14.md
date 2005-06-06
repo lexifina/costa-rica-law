@@ -1,1 +1,1 @@
-Artículo 14.—Los importadores mayoristas de motocicletas y cuadraciclos, nuevos o usados, deben realizar sus transferencias financieras necesariamente a través del sistema bancario y financiero sometido a regulación por las correspondientes autoridades, nacionales y/o extranjeras y, en caso de operaciones en efectivo, cumplir con lo que la ley indica.
+Artículo 14.—(Derogado por Artículo 15 del Decreto Ejecutivo N° 32458 del 6 de junio del 2005)

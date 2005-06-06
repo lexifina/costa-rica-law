@@ -1,1 +1,1 @@
-Artículo 18.—Rige a partir de su publicación.
+Artículo 18.—(Derogado por Artículo 15 del Decreto Ejecutivo N° 32458 del 6 de junio del 2005)

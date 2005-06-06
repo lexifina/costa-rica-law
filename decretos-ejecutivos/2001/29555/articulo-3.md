@@ -1,6 +1,1 @@
-Artículo 3º—Sólo se admitirá como valor promedio de compra al por mayor el "clean trade value" del Black Book, para los efectos de los cálculos indicados en los artículos anteriores, si el importador mayorista cumple con los siguientes requisitos:
-a. Estar inscrito en el registro de importadores de la Dirección General de Aduanas, comunicándole a la Dirección General de Tributación la información pertinente.
-b. Poseer o arrendar un local comercial abierto al público; contar y mantener al día las patentes del caso y, llevar los libros legales debidamente registrados en la Dirección General de Tributación.
-c. Estar inscrito en los registros de contribuyentes respectivos que al efecto lleve la Dirección General de Tributación y cumplir con las disposiciones de carácter tributario y aduaneras vigentes.
-Los requisitos establecidos en los incisos b) y c) deberán hacerse constar en la Dirección General de Aduanas.
-Anualmente deberán renovar ante la Dirección General de Aduanas su condición de mayorista, aportando los requisitos antes mencionados. Mientras no actualice su condición de mayorista, el valor de la revista indicada que se utilizará para determinar el parámetro de control, será el valor promedio de venta al detalle (average retail price).
+Artículo 3° ( Derogado por Artículo 15 del Decreto Ejecutivo N° 32458 del 6 de junio del 2005)

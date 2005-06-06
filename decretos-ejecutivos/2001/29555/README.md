@@ -14,3 +14,4 @@ Determina los procedimientos para el control del valor tributario de importació
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-11 | la propia norma |
+| 2 | 2005-06-06 | Decreto Ejecutivo 32458 (2005-06-06) |
