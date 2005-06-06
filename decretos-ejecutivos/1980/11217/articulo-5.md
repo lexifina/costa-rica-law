@@ -1,7 +1,4 @@
-Artículo 5°—Esas empresas de hospedaje turístico serán clasificadas en las siguientes categorías:
-De lujo.
-De primera categoría A.
-De primera categoría B.
-De segunda categoría.
-De tercera categoría.
-Para su mejor identificación y abreviación el Instituto y las empresas -ni utilizar la terminología y simbología de estrellas, en orden numérico descendente. desde cinco para la categoría de lujo hasta una para tercera categoría.
+Artículo 5—Las empresas de hospedaje turístico podrán operar bajo los sistemas de condohotel o tiempo compartido.
+Como condohotel se entenderá la modalidad de operación de hospedaje en el que la propiedad del inmueble está acogida a la Ley de Propiedad en Condominios (Nº 7933 del 28 de octubre de 1999), o aplica principios contenidos en ésta y en el que la explotación hotelera está garantizada mediante un contrato de administración con una empresa operadora hotelera que asume las funciones correspondientes a los administradores según el ordenamiento jurídico vigente y las que se derivan del carácter hotelero de la operación. El setenta por ciento del tiempo al año debe dedicarse el establecimiento como mínimo al servicio de hospedaje y el treinta por ciento restante puede ser utilizado por los condóminos.
+Como tiempo compartido se entenderá el sistema o régimen por medio del cual una persona adquiere un derecho de uso, goce o cualquier otro derecho relativo a la utilización de una unidad habitacional vacacional, por períodos determinados o determinables dentro de cada año durante la vigencia del contrato respectivo, mediante el pago de un determinado precio”.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 32592 del 6 de junio del 2005)

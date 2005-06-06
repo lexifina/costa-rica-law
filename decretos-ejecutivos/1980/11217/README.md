@@ -14,3 +14,4 @@ Reglamento Empresas Hospedaje Turístico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-03-07 | la propia norma |
+| 2 | 2005-06-06 | Decreto Ejecutivo 32592 (2005-06-06) |

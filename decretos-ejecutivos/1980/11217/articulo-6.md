@@ -1,9 +1,2 @@
-Artículo 6°—En cada tipo de empresas de hospedaje se aplicarán las siguientes categorías:
-. Hoteles: De lujo a tercera o de 5 a 1 estrella.
-Apárteteles: De primera a tercera o de 3 a 1 estrella.
-Hoteles-residencia: De primera a tercera o de 3 a 1 estrella.
-Pensiones: De segunda a tercera o de 2 a 1 estrella.
-Casas de huéspedes: De segunda a tercera o de 2 a 1 estrella.
-Albergues: De primera a tercera o de 3 a 1 estrella.
-Campamentos: De primera a tercera o de 3 a 1 estrella.
-Viviendas turísticas: De primera a tercera o de 3 a 1 estrella.
+Artículo 6—En cada tipo de empresa de hospedaje turístico se aplicarán las estrellas según se establezca en el respectivo manual.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 32592 del 6 de junio del 2005)
