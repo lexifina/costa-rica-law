@@ -1,7 +1,7 @@
 Articulo 10: De conformidad con las atribuciones y funciones que establece la ley, las actividades del Vicerninisterio se clasifican en dos grandes áreas a cargo de cada una de las cuales habrá un viceministro:
 A)
-1. La Dirección Superior y la coordinación de las siguientes dependencias: División de Desarrollo Curricular, el Centro Nacional de Didáctica, el Departamento de Informática Educativa de la División de Informática, División de Control de Calidad y Macro Evaluación del Sistema Educativo, Departamento de Planificación y Desarrollo Educativo de las Direcciones Provinciales, Departamento de Desarrollo Educativo de las Direcciones Regionales y, la Oficina de Derechos de la Niñez y la Adolescencia.
-(Así reformado tácitamente, por artículo 4° del Decreto Ejecutivo N° 31579 de 17 de octubre de 2003).
+1. La Dirección Superior y la coordinación de las siguientes dependencias: División de Desarrollo Curricular, el Centro Nacional de Didáctica, el Departamento de Informática Educativa de la División de Informática, División de Control de Calidad y Macro Evaluación del Sistema Educativo, Departamento de Planificación de Desarrollo Educativo de las Direcciones Provinciales, Departamento de Desarrollo Educativo de la Direcciones Regionales."
+(Así reformado este inciso por artículo 3° del Decreto Ejecutivo N° 32568 de 07 de junio de 2005).
 2. La coordinación de los gerentes de los programas de gobierno que expresamente señale el Ministro.
 3. Las acciones de seguimiento de los asuntos sometidos al Consejo Superior de Educación y el desarrollo de los convenios con la Fundación Ornar Dengo y el Sistema Nacional de Radio y Televisión.
 4. Coordinar y ejercer la dirección superior sobre los proyectos con financiamiento externo provenientes de; OEA, OIT, UNESCO, UNICEF, OEI y REDUC.
