@@ -1,2 +1,1 @@
-Artículo 4°—Modifíquese el inciso A), acápite 1, del artículo 10 del Decreto Ejecutivo N° 22612-MEP y sus reformas, para que se lea de la siguiente manera:
-a) 1. La Dirección Superior y la coordinación de las siguientes dependencias: División de Desarrollo Curricular, el Centro Nacional de Didáctica, el Departamento de Informática Educativa de la División de Informática, División de Control de Calidad y Macro Evaluación del Sistema Educativo, Departamento de Planificación y Desarrollo Educativo de las Direcciones Provinciales, Departamento de Desarrollo Educativo de las Direcciones Regionales y, la Oficina de Derechos de la Niñez y la Adolescencia.
+Artículo 4°—(Derogado por Artículo 2° del Decreto Ejecutivo N° 32568 de 7 de junio del 2005)

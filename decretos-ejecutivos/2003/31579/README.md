@@ -14,3 +14,4 @@ Crea Oficina de Derechos de la Niñez y la Adolescencia del Ministerio de Educac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-05 | la propia norma |
+| 2 | 2005-06-07 | Decreto Ejecutivo 32568 (2005-06-07) |
