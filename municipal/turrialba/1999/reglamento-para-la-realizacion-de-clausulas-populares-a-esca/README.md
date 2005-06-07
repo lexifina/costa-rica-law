@@ -14,3 +14,4 @@ Reglamento para la Realización de Cláusulas Populares a Escala Cantonal y Dist
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-13 | la propia norma |
+| 2 | 2005-06-07 | Reglamento municipal 161 (2005-06-07) |

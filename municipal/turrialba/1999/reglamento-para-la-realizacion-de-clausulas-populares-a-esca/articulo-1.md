@@ -1,6 +1,7 @@
 MUNICIPALIDAD DE TURRIALBA
 DEPARTAMENTO DE SECRETARIA
-1. Reglamento para la realización de Cláusulas Populares a Escala Cantonal y Distrital de la Municipalidad de Turrialba.
+1. Reglamento para la realización de *Consultas Populares a Escala Cantonal y Distrital de la Municipalidad de Turrialba.
+(*Así reformado en sesión N° 161 del 7 de junio del 2005)
 La Municipalidad de Turrialba en base lo que dispone el Artículo Cuatro, inciso a) de la Ley número 7794 del 30 de abril de 1998, crea el siguiente Reglamento.
 Artículo 1°—Definiciones:
 CONSULTA POPULAR
