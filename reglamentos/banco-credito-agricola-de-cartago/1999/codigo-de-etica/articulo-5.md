@@ -6,6 +6,7 @@
 5.1.4 Procurar un ambiente agradable, comprometiéndose con los objetivos de la unidad y del Banco.
 5.2 En el desarrollo de sus funciones, el funcionario no debe:
 5.2.1 Tener o establecer relaciones con personas o empresas de quienes se conozca que su giro comercial no se ajusta a la ley, moral pública o las buenas costumbres. En la atención de este deber y en caso de duda, deberá recurrir a sus superiores a exponer la situación, especialmente cuando se trate de personas físicas o jurídicas que se sospeche puedan estar utilizando el Banco para la legitimación de capitales, previniéndose un efecto negativo en la reputación del Banco.
+(Así reformado en sesión N° 7837 del 7 de junio del 2005)
 5.2.2 Utilizar las instalaciones, los recursos materiales y humanos, en negocios o asuntos distintos a aquellos que son claramente de interés institucional.
 5.2.3 Sacar, sin autorización expresa y escrita del superior, documentos o información bajo cualquier medio de los negocios o asuntos del Banco, cuya utilización o divulgación pueda causar perjuicio al Banco o a terceras personas, o cuya interpretación inexacta pueda de cualquier forma propiciar ese perjuicio.
 5.2.4 Sopesar dentro de sus capacidades funcionales, en todo negocio que realice el Banco, el riesgo financiero implícito, de manera tal que se aseguren la solidez y rentabilidad de las operaciones bancarias que la Institución realice.

@@ -12,3 +12,4 @@
 4.11 No hacer obsequios materiales o de cualquier otra índole a compañeros, clientes o terceras personas, a fin de obtener de ellas favores o beneficios extraordinarios para sí mismos, para familiares o amistades cercanas.
 4.12 No incurrir en el desarrollo de sus funciones en riesgos temerarios, graves o impropios, que pongan en peligro la integridad física de las personas o los haberes de la Institución.
 4.13 Prevenir que los servicios que presta el Banco, sean utilizados para la legitimación de capitales ilícitos.
+(Así reformado el inciso anterior en sesión N° 7837 del 7 de junio del 2005)
