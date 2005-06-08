@@ -1,0 +1,1 @@
+Artículo 2º—Ordénese mandamiento provisional de anotación ante el Registro Nacional de la Propiedad, de dicho inmueble que por este Decreto se ha establecido como necesario para la consolidación del Parque Nacional Marino Las Baulas de Guanacaste, conforme a lo prescrito por la Ley Nº 7495 y sus reformas.
