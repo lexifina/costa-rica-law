@@ -14,3 +14,4 @@ Fija criterios para cambios al capital mínimo de los bancos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-06 | la propia norma |
+| 2 | 2005-06-08 | Acuerdo 0 (2005-06-08) |
