@@ -1,11 +1,5 @@
 ARTICULO 59.- Carácter excepcional de la detención provisional.
-La detención provisional tendrá carácter excepcional, especialmente
-para los mayores de doce años y menores de quince y sólo se aplicará
-cuando no sea posible aplicar otra medida menos gravosa.
-La detención provisional no podrá exceder de dos meses. Cuando el
-Juez estime que debe prorrogarse, lo acordará así, estableciendo el plazo
-de prórroga y las razones que lo fundamentan.
-En ningún caso, el nuevo término será mayor de dos meses y el auto en
-que se acuerde deberá consultarse al Tribunal Superior Penal Juvenil, con
-remisión de copia de las actuaciones que el Juez estime deben valorarse
-para disponer sobre la prórroga.
+La detención provisional tendrá carácter excepcional, especialmente para los mayores de doce años y menores de quince y sólo se aplicará cuando no sea posible aplicar otra medida menos gravosa.
+La detención provisional no podrá exceder de dos meses. Cuando el Juez estime que debe prorrogarse, lo acordará así, estableciendo el plazo de prórroga y las razones que lo fundamentan.
+En ningún caso, el nuevo término será mayor de dos meses.
+(Así reformado este párrafo de acuerdo con la anulación parcial ordenada por resolución de la Sala Constitucional N° 07227, del 09 de junio de 2005, misma que interpreta que: “resulta procedente el recurso de apelación respecto de la resolución que acuerda la prórroga de la prisión preventiva” y “que en todos los casos donde se solicita prórroga de la prisión preventiva debe concederse audiencia al menor y a su defensor, a fin de que presenten las pruebas o argumentos que consideren convenientes.”)
