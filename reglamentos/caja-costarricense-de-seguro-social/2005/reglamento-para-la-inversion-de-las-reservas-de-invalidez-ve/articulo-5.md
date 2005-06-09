@@ -1,10 +1,10 @@
-Artículo 5º—El Comité de Inversiones estará integrado por:
-El Gerente de la División de Pensiones, quien coordinará.
-Una persona externa a la Institución nombrada por la Junta Directiva a propuesta de la Presidencia Ejecutiva.
-El Gerente de la División Financiera.
-El Director de la Dirección Actuarial y Planificación Económica.
-El Tesorero de la Caja.
-El Director de Inversiones con voz pero sin voto.
+Artículo 5º— El Comité de Inversiones estará integrado por:
+El gerente de la División de Pensiones, quien coordinará.
+Una persona externa a la Institución nombrada por la junta directiva a propuesta de la Presidencia Ejecutiva.
+El gerente de la División Financiera.
+El jefe del Departamento de Estudios Económicos de la Dirección Actuarial y Planificación Económica.
+El tesorero de la Caja.
+El director de inversiones con voz pero sin voto.
 El coordinador del Comité de Riesgos para fondos institucionales con voz pero sin voto.
-El Director Financiero Administrativo de la Gerencia de la División de Pensiones* fungirá como secretario del Comité.
-*(Así reformado mediante Sesión 7963 celebrada el 02 de junio del 2005)
+El director financiero de la Gerencia de Pensiones fungirá como secretario del Comité”.
+(Así reformado en sesión N° 7965 del 9 de junio del 2005)
