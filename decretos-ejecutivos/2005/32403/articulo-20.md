@@ -1,0 +1,11 @@
+CAPÍTULO VII
+De la pesca continental
+Artículo 20.—Se prohíbe la pesca:
+a- De guapote (Parachromis spp), róbalo (Centropomus undecimalis), sábalo (Megalops atlanticus) y demás especies de peces, en los siguientes ríos y sus afluentes: Frío, Zapote, Niño o Pizote, lagunas del Refugio de Fauna Silvestre de Caño Negro y el Refugio de Fauna Silvestre las Camelias, entre el 1º de abril y el 31 de julio inclusive. Fuera de este período, se podrá pescar con un límite de 5 peces con un tamaño mínimo de 25 cm. de longitud, por persona por día. La pesca de peces cultivados en estanques se puede realizar durante todo el año.
+b- Del gaspar (Atractosteus tropicus) en los siguientes ríos y sus afluentes: Frío, Zapote, Niño o Pizote, lagunas del Refugio de Fauna Silvestre de Caño Negro y el Refugio de Fauna Silvestre las Camelias, entre el 1º de marzo y el 31 de agosto inclusive. Fuera de este período, se podrá pescar con un límite de 2 peces con un tamaño mínimo de 60 cm. de longitud, por persona por día.
+c- De todas las especies de peces de agua dulce en todos los ríos incluyendo sus afluentes, lagos y lagunas (exceptuando lo establecido en el inciso c y d de este artículo), entre el 1 de setiembre y el 30 de noviembre inclusive. Fuera de ese plazo se podrá pescar con un límite de 5 piezas con un tamaño mínimo de 25 cm. de longitud, por persona con licencia por día. Se exceptúa el tepemechín (Agonostomus monticola), para el cual no se establece límite de longitud y gaspar (Atractosteus tropicus) para el cual se fija un tamaño mínimo de 60 cm.
+d- Del langostino o camarón de río (Macrobrachium spp.) en todos los ríos nacionales entre el 15 de mayo y el 30 de noviembre, inclusive.
+Fuera de este período, se podrá pescar con un límite de 10 piezas por persona, por día.
+e- La pesca deportiva en la Laguna de Hule, ubicada en el Refugio de Fauna Privado Bosque Alegre, Cariblanco.
+f- En las Reservas Indígenas (excepto la pesca de subsistencia que realicen los indígenas con permiso del SINAC).
+g- 100 mts. en ambas márgenes del Río San Rafael en Muelle de San Carlos, entre el puente sobre la carretera que comunica la comunidad de Muelle con Pital y la desembocadura del Río San Rafael en el Río San Carlos.
