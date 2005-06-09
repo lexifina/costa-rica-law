@@ -1,0 +1,9 @@
+Artículo 17.—
+a. La resolución por la que se fija la comparecencia, deberá ser notificada al servidor con al menos quince días hábiles de anticipación a la celebración de la comparecencia.
+b. Cuando no conste en el expediente la residencia, lugar de trabajo o cualquier otra dirección exacta del investigado, la notificación se hará por publicación en el Diario Oficial La Gaceta, la que deberá hacerse por tres veces consecutivas y se tendrá por hecha cinco días después de la última publicación.
+c. La comparecencia podrá ser grabada, a cuyo efecto la Unidad Coordinadora de Procedimientos Administrativos custodiará las grabaciones originales, sin perjuicio de que las partes puedan presentar por escrito, en la misma comparecencia, cualquier alegato o solicitud. El Órgano Instructor levantará un acta con la transcripción de los casetes, que será notificada a las partes una vez cumplida esta transcripción.
+d. La comparecencia se realizará a la hora, fecha y lugar indicados en la resolución.
+e. Todas las incidencias relativas a la integración del Órgano Instructor y a la continuación del procedimiento o a la recepción y rechazo de pruebas, deberá resolverla el Órgano en el mismo acto de la comparecencia.
+f. De oficio, o a solicitud de las partes, y atendiendo a la complejidad del caso se podrá otorgar un plazo no mayor de cinco días hábiles, para la recepción de pruebas para mejor proveer y/o para la formulación de conclusiones por escrito.
+g. La comparecencia podrá llevarse a cabo aún sin la presencia del trabajador, cuando éste haya sido notificado oportunamente, y no conste en el expediente causa legítima alguna para su inasistencia.
+h. Una vez concluida la comparecencia, en un plazo no mayor de treinta días naturales el Órgano Instructor emitirá un informe de recomendación, que pondrá al conocimiento de la Gerencia General para el dictado del acto final.

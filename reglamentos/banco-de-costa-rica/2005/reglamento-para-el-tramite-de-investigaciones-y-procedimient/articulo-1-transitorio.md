@@ -1,0 +1,2 @@
+Transitorio.—A las investigaciones que a la fecha de aprobación de este Reglamento hayan sido trasladadas por la Unidad Coordinadora para el trámite del respectivo procedimiento y ya se le haya hecho el respectivo traslado de cargos, continuarán tramitándose bajo lo previsto en el Reglamento Administrativo para la investigación y toma de decisiones administrativas cuando ocurren hechos irregulares. Los demás casos, se tramitarán conforme con el reglamento que ahora se aprueba.
+San José, 11 de mayo de 2005.

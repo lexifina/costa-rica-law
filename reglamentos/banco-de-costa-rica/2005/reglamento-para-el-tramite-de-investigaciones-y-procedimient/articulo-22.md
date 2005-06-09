@@ -1,0 +1,5 @@
+Artículo 22.—
+a. Los recursos contra las resoluciones que se dirán se deberán interponer en los siguientes plazos:
+1. Contra la resolución que ordena el Acto Inicial de procedimiento: Cabrá recurso de revocatoria que deberá plantearse ante el Órgano Instructor dentro del plazo de veinticuatro horas siguientes a su notificación. Cabrá recurso de apelación ante la Gerencia General que deberá interponerse en el plazo de tres días hábiles.
+2. Contra las resoluciones de mero trámite o incidentales: Cabrá recurso de revocatoria que deberá interponerse ante el órgano que las dictó, en el acto mismo en que se dicten o dentro del plazo de veinticuatro horas siguientes a su notificación.
+3. Contra el Acto Final: Cabrá recurso de reposición o reconsideración que deberá interponerse ante el Órgano que lo dictó dentro del plazo de dos meses, contado a partir del día siguiente de su notificación. En todo caso, el escrito de interposición del recurso deberá incorporarse en el expediente administrativo de forma inmediata a su recibo. De igual forma se procederá con la resolución que resuelva el recurso y con el acto de notificación.

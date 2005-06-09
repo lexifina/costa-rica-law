@@ -1,0 +1,4 @@
+Artículo 18.—
+a. Cuando se trate de procedimientos por infracciones al Régimen de Hacienda Pública, de acuerdo con el artículo 10 de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública número 8422 del 6 de octubre de 2004, las comparecencias serán orales y públicas, pero el Órgano Director, en resolución fundada, podrá declararlas privadas por razones de decoro y por derecho a la intimidad de las partes o terceros, cuando estime que se entorpece la recopilación de evidencia o peligra un secreto cuya revelación sea castigada penalmente.
+b. En caso de audiencia pública se seguirán en lo que resulte aplicable los principios de publicidad previstos para el proceso penal en el Título III, del Código Procesal Penal, artículos 330, 331 y 332 y concordantes.
+c. En todo caso se seguirán los principios generales previstos en el Capítulo Primero de la Ley Nº 8422.
