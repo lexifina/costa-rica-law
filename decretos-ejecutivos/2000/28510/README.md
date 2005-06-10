@@ -16,3 +16,4 @@ Fija Tasa prevista en el artículo 112 de la Ley General de Salud.
 | 1 | 2000-03-20 | la propia norma |
 | 2 | 2003-05-15 | Decreto Ejecutivo 31192 (2003-05-15) |
 | 3 | 2004-06-02 | Decreto Ejecutivo 31847 (2004-06-02) |
+| 4 | 2005-06-10 | Decreto Ejecutivo 32467 (2005-06-10) |
