@@ -1,3 +1,0 @@
-6. NOTIFICACIONES
-6.1 Toda resolución que se dicte, sea concediendo o denegando un permiso, deberá notificarse de inmediato al partido interesado y a los demás personeros de los demás partidos de la localidad, a quienes se entregará copia de la resolución, obteniendo constancia de tal comunicación. Además en su Despacho, fijará una copia de los permisos concedidos (artículo 80, párrafo cuarto del Código Electoral).
-6.2 Los partidos políticos deberán indicar a la Inspección Electoral el lugar para recibir notificaciones. Si no lo hicieren, la resolución se tendrá por notificada veinticuatro horas naturales después de dictada. Copia de dicha resolución se enviará de inmediato al Tribunal Supremo de Elecciones.

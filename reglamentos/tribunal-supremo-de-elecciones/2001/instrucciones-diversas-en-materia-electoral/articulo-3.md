@@ -1,4 +1,0 @@
-3. PERMISO PARA DESFILES
-3.1 Los partidos políticos requieren del permiso de las autoridades correspondientes para la realización de los desfiles. Durante los dos meses anteriores a las elecciones, requerirán el permiso de la Inspección Electoral, para lo cual se debe cumplir con lo preceptuado en los artículos 79, 80 y 83 del Código Electoral.
-3.2 La ruta del desfile debe ser claramente especificada en la solicitud de permiso y llevarse a cabo conforme a la misma, respetando las regulaciones de tránsito y las que ordene el Tribunal Supremo de Elecciones por medio de la Jefatura Nacional de Delegados.
-Tratándose del simple tránsito de un desfile de vehículos con destino a otro lugar, no requiere permiso de la autoridad local, pero deberán pasar a velocidad reglamentaria, sin detenerse y acatando las órdenes respecto de la ruta previamente señalada.
