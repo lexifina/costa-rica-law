@@ -1,0 +1,1 @@
+Artículo 3º—FEDEMUR responde en su organización y funcionamiento a los principios rectores que justifican su existencia y a los fines y objetivos dispuestos en sus Estatutos y por su naturaleza su vigencia es de plazo indefinido.

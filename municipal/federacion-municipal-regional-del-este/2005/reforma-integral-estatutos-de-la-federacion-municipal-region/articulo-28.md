@@ -1,0 +1,7 @@
+Artículo 28.—Pérdida de la condición de Director del Consejo Directivo. La pérdida de la condición de Director del Consejo Directivo, se producirá por cualquiera de las siguientes causas:
+a) En caso de fallecimiento, renuncia, impedimento o por ausencia injustificada a las sesiones del Consejo, por más de un mes consecutivo, de un miembro del Consejo Directivo, perderá la condición de Director y será comunicado a la Asamblea a fin de que proceda a designar el sustituto correspondiente.
+b) El miembro que sea condenado por delitos contra la hacienda Pública o que tenga una condenatoria por más de seis meses en firme por parte de los Tribunales de Justicia.
+c) El miembro que haya sido condenado por los Tribunales de Justicia a no ejercer cargos públicos.
+d) Asimismo perderá la condición de director el miembro que se le compruebe haber violentado la Ley Nº 8422.
+e) En todos los casos anteriores deberá realizarse el debido proceso, una vez finalizada la investigación por parte de un órgano director, cuya recomendación será conocida por la asamblea general extraordinaria de la Federación. Una vez que se acordaré la destitución del miembro como directivo, el primer suplente pasará a ocupar su lugar de forma inmediata y la asamblea procederá en el acto a designar al nuevo suplente el cual ocupará el cargo en forma inmediata ante el Consejo Director.
+f) Si se tratare de un delegado, se le comunicará a la municipalidad respectiva.

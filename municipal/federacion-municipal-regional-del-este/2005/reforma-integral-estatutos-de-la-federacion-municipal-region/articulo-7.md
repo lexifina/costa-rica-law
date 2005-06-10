@@ -1,0 +1,1 @@
+Artículo 7º—Las funciones, fines y objetivos anteriormente reseñados no constituyen, en modo alguno, limitaciones para la actuación de la Federación, que se extenderá a cuantos aspectos puedan repercutir y/o engrandecer los intereses y acciones de la Federación en pro y beneficio de la salud pública y el medio ambiente.

@@ -1,0 +1,2 @@
+Transitorio único.—De conformidad con lo estipulado en el artículo 13 de los estatutos los actuales miembros del Consejo Directivo durarán en sus cargos hasta la primera quincena del mes de agosto del año 2008 fecha en la cual se celebrará la asamblea general ordinaria para la elección del nuevo Consejo Directivo.
+Río Azul, 20 de mayo del 2005
