@@ -1,4 +1,3 @@
-DECRETOS
 Nº 30103-S
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE SALUD
@@ -8,4 +7,5 @@ Considerando:
 2º—Que de conformidad con el artículo 206 de la Ley General de Salud, las personas físicas o jurídicas que se ocupen de la importación, elaboración o comercio de alimentos de nombre determinado y bajo marca de fábrica deberán ser registrados ante el Ministerio para su posterior consumo por la población, debiendo pagar el pago del arancel correspondiente.
 3º—Que al amparo de lo dispuesto en el artículo 13 de la Ley Orgánica del Ministerio de Salud, al Consejo Técnico de Asistencia Médico Social, órgano adscrito al despacho del Ministro de Salud, le corresponde la recaudación de fondos provenientes de la venta de bienes y servicios por parte del Ministerio de Salud. Por tanto,
 Decretan:
-Artículo 1º—Para efectos de registro de productos alimenticios y fórmulas infantiles, fíjase la tasa prevista en el artículo 206 de la Ley General de Salud, en la suma de US $ 100 (cien dólares sin céntimos) o su equivalente en moneda nacional. Este monto será revisado cada año, los fondos recaudados serán utilizados en el programa de control estatal del alimento en el mercado, que tiene a cargo el Ministerio de Salud.
+Artículo 1º—Para efectos de trámite, registro y apoyo a las funciones de inspección, vigilancia y control de productos alimenticios y fórmulas infantiles, fíjase la tasa prevista en el artículo 206 de la Ley General de Salud, en la suma de US $100 (cien dólares americanos) o su equivalente en moneda nacional. Dichos ingresos serán destinados para financiar las actividades que desarrollan los programas del Ministerio de Salud.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 32468 del 10 de junio del 2005)
