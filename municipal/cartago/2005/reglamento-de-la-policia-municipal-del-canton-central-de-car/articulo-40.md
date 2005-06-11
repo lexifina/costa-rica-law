@@ -1,0 +1,1 @@
+Artículo 40.—La Policía Municipal Voluntaria depende jerárquicamente de la persona designada por el Alcalde para tal fin. Los miembros de la Policía Municipal voluntaria no adquieren derecho alguno como funcionarios de la Policía Municipal por lo que no se ven amparados por ningún reglamento de índole laboral de la municipalidad.

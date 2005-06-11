@@ -1,0 +1,1 @@
+Artículo 33.—El Comité de Seguridad Ciudadana deberá ser juramentado por el Concejo Municipal y permanecerá en sus cargo por un período de dos años, contados a partir de la fecha del nombramiento según el acuerdo municipal respectivo, salvo casos de suspensión o renuncias en que se nombrará sustituto en el acto.

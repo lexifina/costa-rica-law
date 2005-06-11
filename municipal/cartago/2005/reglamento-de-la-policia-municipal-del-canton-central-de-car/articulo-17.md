@@ -1,0 +1,1 @@
+Artículo 17.—Velará por la seguridad y el orden en los actos públicos que realice la Municipalidad, pondrá en conocimiento de sus superiores cualquier incidencia del servicio, guardará el máximo respeto a todos los miembros de la corporación municipal, así como a sus signos externos, lo cual deberá ser recíproco dada la autoridad que representa en este cantón.

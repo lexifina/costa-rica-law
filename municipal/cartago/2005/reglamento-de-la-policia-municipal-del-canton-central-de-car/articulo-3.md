@@ -1,0 +1,1 @@
+Artículo 3º—Cualquier acto que en el cumplimiento de sus funciones realice la Policía Municipal, lo pondrá en conocimiento de su superior jerárquico y, en caso de ser obligatorio por ley o pertinente según directrices del superior, del organismo nacional de seguridad o investigación que corresponda.

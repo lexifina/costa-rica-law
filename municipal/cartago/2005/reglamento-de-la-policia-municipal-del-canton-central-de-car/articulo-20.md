@@ -1,0 +1,1 @@
+Artículo 20.—Evitarán la comisión de delitos, faltas e infracciones al presente reglamento y demás reglamentos municipales, cuando sean conocidos en razón de la colaboración que se brinde a otros departamentos municipales y estarán obligados a denunciar los mismos cuando tengan noticia de su existencia.

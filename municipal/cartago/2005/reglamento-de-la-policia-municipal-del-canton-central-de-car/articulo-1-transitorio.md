@@ -1,0 +1,1 @@
+Transitorio I.—Se entenderán los actuales miembros del cuerpo de Seguridad y Vigilancia Municipal como miembros de la Policía municipal para efectos de cumplir los deberes y funciones que establece este reglamento.
