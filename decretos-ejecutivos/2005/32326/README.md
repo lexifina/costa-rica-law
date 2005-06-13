@@ -14,3 +14,4 @@ Modifica a la Dirección General de Aviación Civil el gasto presupuestario máx
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-04 | la propia norma |
+| 2 | 2005-06-13 | Decreto Ejecutivo 32445 (2005-06-13) |
