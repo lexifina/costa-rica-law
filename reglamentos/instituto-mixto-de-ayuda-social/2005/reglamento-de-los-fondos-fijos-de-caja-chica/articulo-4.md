@@ -1,0 +1,1 @@
+Artículo 4º—De las normas y procedimientos: Corresponderá al o la Coordinadora del Equipo de Apoyo y Asesoría Financiera proponer a la Subgerencia Administrativa Financiera para su aprobación, las normas y procedimientos que rigen la administración de los fondos fijos de caja chica, así como propuestas de políticas para consideración del Consejo Directivo.

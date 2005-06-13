@@ -1,0 +1,3 @@
+Artículo 42.—De la custodia de los comprobantes: Toda solicitud de reposición debe estar respaldada con los justificantes correspondientes, que deberán estar a disposición de los órganos fiscalizadores para ser revisados cuando así lo requieran.
+En oficinas centrales, los comprobantes del fondo fijo de caja chica deben custodiarse en la Unidad de Tesorería hasta que se remita el cheque para archivo.
+En las unidades desconcentradas, la unidad administrativa responsable del fondo fijo será la responsable de archivar y custodiar toda la documentación que respalde las transacciones del fondo fijo de caja chica. La revisión de los comprobantes que componen el giro de reposición será realizada conforme se estipula en los artículos 43, 45 y 46 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 10.—Supervisión: Corresponde al Titular Subordinado del Encargado del Fondo Fijo de Caja Chica y a los Titulares Subordinados que autorizan los gastos, verificar el cumplimiento de este reglamento y de los procedimientos definidos para el ejercicio normal del proceso.

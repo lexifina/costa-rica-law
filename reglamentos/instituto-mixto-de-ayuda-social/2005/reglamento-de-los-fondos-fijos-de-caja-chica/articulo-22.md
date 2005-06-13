@@ -1,0 +1,1 @@
+Artículo 22.—Reconocimiento de gastos de viaje cuando el lugar de destino coincide con el de su residencia. Si el destino está fuera de la jurisdicción territorial definida en el artículo anterior y la distancia entre el lugar de destino y la residencia es superior a los 10 Km., se podrán reconocer viáticos, en caso contrario solamente se podrán reconocer los gastos de traslado.

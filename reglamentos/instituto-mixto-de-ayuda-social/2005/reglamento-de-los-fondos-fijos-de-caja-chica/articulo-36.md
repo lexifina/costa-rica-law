@@ -1,0 +1,1 @@
+Artículo 36.—De la presentación de la liquidación: De no presentarse la liquidación en la forma y el plazo establecidos, el IMAS no reconocerá los gastos efectuados y el importe del anticipo deberá ser reintegrado en su totalidad por el funcionario que realizó el adelanto. Además, se procederá conforme se estipula en los artículos 51 y 52 de este reglamento.

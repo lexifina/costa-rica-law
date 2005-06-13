@@ -1,0 +1,1 @@
+Artículo 30.—De la no realización del gasto: Si por algún motivo el gasto para el cual se solicitó el adelanto no se va a realizar, o la gira es suspendida o pospuesta, después de haber retirado el dinero del adelanto, el funcionario solicitante debe hacer devolución inmediata del dinero, junto con una justificación y la autorización del Titular Subordinado.

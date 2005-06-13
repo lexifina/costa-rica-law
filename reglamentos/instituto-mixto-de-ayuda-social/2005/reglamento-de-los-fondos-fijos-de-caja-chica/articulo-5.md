@@ -1,0 +1,25 @@
+Artículo 5º—De las definiciones: Para efectos del presente reglamento se entenderá por:
+a. Activo Fijo: Aquel activo que, para efectos contables, cumpla con las tres condiciones siguientes:
+1. Cuyo valor económico individual supere el monto mínimo establecido por el Coordinador (a) Equipo de Apoyo y Asesoría Financiera y autorizado por el Subgerente Administrativo Financiero.
+2. Bienes tangibles cuya vida útil sea superior a un ejercicio económico o las adiciones o mejoras que alarguen la vida útil del activo.
+3. Estar directamente afectados a las actividades operativas de la institución.
+En caso de duda, la Unidad de Contabilidad será la encargada de definir si el bien por adquirir se registra como activo fijo.
+b. Adelanto: La suma de dinero que se solicita en forma anticipada al gasto efectivo.
+c. Arqueo: Análisis y conteo de las transacciones, del dinero en cuenta corriente o en efectivo y comprobantes, durante un lapso determinado, con el objeto de comprobar la exactitud del fondo fijo de caja chica.
+d. Autorizaciones técnicas: Las autorizaciones documentadas de las unidades técnicas especializadas, que son requisito indispensable para la compra de un bien o servicio.
+e. Caja Chica: Mecanismo que se considera como una excepción a los procedimientos de contratación administrativa para gastos menores autorizados, conforme se establece en el artículo 2º inciso e) de la Ley de Contratación Administrativa y en el artículo 61 inciso h) de la Ley de Administración Financiera y Presupuestos Públicos de la República de Costa Rica.
+f. Compras menores o de escasa cuantía: El costo de un bien o servicio se considera de escasa cuantía cuando sea igual o menor al monto máximo autorizado, para gastos por fondo fijo de caja chica.
+g. Consejo Directivo: Máximo Jerarca de la Institución.
+h. Declaración Jurada: La manifestación que se hace, bajo fe de juramento, de que la consignación de información o datos declarados en la fórmula de liquidación de viáticos es cierta y fidedigna. La falsedad de esta declaración se configura como delito de "falso testimonio", sancionado por el Código Penal.
+i. Dirección Superior: La que ejerce el Presidente Ejecutivo, el Gerente General, el Subgerente de Desarrollo Social, el Subgerente Administrativo Financiero y el Subgerente de Empresas Comerciales.
+j. Encargado del Fondo Fijo de Caja Chica: Funcionario encargado del manejo y custodia del fondo fijo de caja chica. Para oficinas centrales será el funcionario de la Unidad de Tesorería, asignado para tal fin; para las Gerencias Regionales será el Técnico Administrativo; y en Empresas Comerciales, el Asistente de Control de Gestión.
+k. Fondo Fijo: La suma de dinero destinada a cubrir la adquisición de bienes y servicios bajo este sistema, lo que implica que el Encargado del Fondo Fijo de Caja Chica tendrá en todo momento la suma total asignada, representada por efectivo en caja o bancos y los documentos que respaldan las operaciones.
+l. Fraccionar: Dividir el monto total de una transacción para la adquisición de un bien o servicio en más de un adelanto, con el propósito de variar el procedimiento de contratación que se debería utilizar. Se considerará como vicio administrativo el adquirir un bien o servicio por partes, suministradas por un mismo proveedor con diferentes justificantes, para la misma unidad administrativa. La adquisición de bienes y servicios que sean para uso o consumo urgente, no se considerarán como fraccionamiento.
+m. I.M.A.S.: Instituto Mixto de Ayuda Social.
+n. Reglamento de gastos de viaje: Reglamento emitido por la Contraloría General de la República, denominado "Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos", aprobado por el Consejo Directivo del IMAS".
+o. Reintegro: Suma de dinero, que se gira al funcionario que cubrió con sus propios recursos económicos, obligaciones que se originaron en razón del desempeño de su cargo y que son de interés institucional.
+p. Reposición: Suma de dinero que se gira a cada unidad administrativa que administra fondos fijos de caja chica, con el fin de reponer los gastos realizados por este medio.
+q. Sistema SAP/R3: Sistema Informático que utiliza el IMAS para el registro y control de transacciones administrativas financieras. Se utilizará este sistema para cada uno de los procesos del fondo fijo de caja chica.
+r. Titular Subordinado: Funcionario de la administración activa, responsable de un proceso, con autoridad para ordenar y tomar decisiones.
+s. Titular Subordinado del Encargado del Fondo Fijo de Caja Chica: Para oficinas centrales será el (la) Tesorera General; para las Gerencias Regionales será el (la) Coordinador (a) Administrativo Financiero; y en Empresas Comerciales, el (la) Administrador (a) de Control de Gestión.
+t. Viáticos: Suma destinada a la atención de gastos de hospedaje, alimentación, transporte y otros gastos que los entes públicos reconocen a sus servidores cuando estos tengan que desplazarse, en forma transitoria, de su centro de trabajo con el fin de cumplir con las obligaciones a su cargo, conforme a lo establecido en este reglamento y en el Reglamento de Gastos de Viaje.

@@ -1,0 +1,1 @@
+Artículo 35.—Excepción: Se exceptúa del artículo anterior al funcionario responsable de liquidar que tenga una incapacidad imprevista, para lo cual deberá adjuntar a la liquidación una fotocopia de la incapacidad, y deberá liquidar el día hábil siguiente de su incorporación a su sede de trabajo.

@@ -1,0 +1,1 @@
+Artículo 6º—Registro de firmas: En cada unidad en la cual exista un fondo fijo de caja chica deberá existir un registro actualizado de firmas de los funcionarios autorizados para la aprobación de los adelantos y los documentos de la liquidación.

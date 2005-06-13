@@ -1,0 +1,1 @@
+Artículo 9º—Responsables: El Titular subordinado y el funcionario que realiza el gasto serán responsables de la rendición de cuentas. Además, todos los funcionarios que participen en el proceso tienen la obligación de cumplir las normas establecidas de control interno.

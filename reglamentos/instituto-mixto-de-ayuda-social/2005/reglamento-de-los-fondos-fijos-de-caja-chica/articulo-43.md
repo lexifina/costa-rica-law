@@ -1,0 +1,3 @@
+Artículo 43.—De la revisión de la solicitud de reposición: En oficinas centrales la Unidad de Contabilidad realizará la revisión de la solicitud de reposición del fondo de caja chica y de la documentación que la respalda.
+Para las oficinas desconcentradas será el Titular Subordinado del Encargado del Fondo Fijo de Caja Chica quien deberá revisar la documentación que respalda la reposición de fondos. La Unidad de Contabilidad deberá verificar que tanto la solicitud de reposición de fondos, como el arqueo y el detalle de las afectaciones en la cuenta mayor con la composición de las transacciones liquidadas y pendientes de reponer, sean coincidentes.
+En ambos casos la Unidad de Contabilidad contará con cinco días hábiles para realizar la reposición.

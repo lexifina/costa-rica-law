@@ -1,0 +1,1 @@
+Artículo 37.—Liquidaciones extemporáneas: Si el Encargado del Fondo Fijo de Caja Chica recibe liquidaciones presentadas en forma extemporánea por razones no contempladas y justificadas en este reglamento, se hará acreedor a la sanción disciplinaria correspondiente, conforme lo estipula el artículo 52 de este reglamento.

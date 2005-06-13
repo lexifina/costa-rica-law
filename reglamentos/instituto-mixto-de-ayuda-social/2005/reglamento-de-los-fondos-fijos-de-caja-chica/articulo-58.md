@@ -1,0 +1,3 @@
+Artículo 58.—Transitorio III: El manual de procedimientos de este Reglamento deberá ser elaborado por el Equipo de Apoyo y Asesoría Financiera y entregado a la Subgerencia Administrativa Financiera para su revisión y remisión a la Gerencia General para su aprobación, en un plazo máximo de tres meses después de aprobado este Reglamento. Reglamento aprobado por el Consejo Directivo del Instituto Mixto de Ayuda Social, Acta Nº 032-05, Acuerdo Nº 148-05, artículo cuarto, de fecha 28 de abril del 2005.
+San José, 20 de mayo del 2005
+(Nota Sinalevi: por la configuración del mismo Ver anexo en Gaceta No 113 del 13 de junio del 2005)

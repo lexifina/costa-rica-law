@@ -1,0 +1,1 @@
+Artículo 53.—Se tendrá como normativa supletoria en materia de viáticos el Reglamento de Gastos de Viaje y Transportes para Funcionarios Públicos, emitido por la Contraloría General de la República, aprobado por el Consejo Directivo del IMAS.

@@ -1,0 +1,1 @@
+Artículo 48.—Del respaldo de los arqueos: Todos los arqueos realizados a los fondos fijos deberán quedar respaldados con un documento debidamente firmado por el funcionario que lo realiza y el Encargado del Fondo Fijo de Caja Chica. El archivo de los arqueos será responsabilidad del Titular Subordinado del Encargado del Fondo Fijo de Caja Chica o por quien éste designe.

@@ -1,0 +1,1 @@
+Artículo 52.—De las sanciones: Ante el incumplimiento de este reglamento se procederá conforme lo estipula la Ley de Administración Financiera y Presupuestos Públicos de la República de Costa Rica, la Ley General de Administración Pública, la Ley de Contratación Administrativa, y la Ley General de Control Interno y el Reglamento Autónomo de Servicios del IMAS.

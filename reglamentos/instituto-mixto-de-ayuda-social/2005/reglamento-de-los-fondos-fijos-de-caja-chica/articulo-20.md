@@ -1,0 +1,1 @@
+Artículo 20.—Autorizaciones técnicas: A solicitud de las unidades institucionales con especialidades técnicas, la Subgerencia Administrativa Financiera mediante resolución administrativa fundamentada, determinará las autorizaciones técnicas y los procedimientos que se requerirán para la adquisición de algunos bienes o servicios.

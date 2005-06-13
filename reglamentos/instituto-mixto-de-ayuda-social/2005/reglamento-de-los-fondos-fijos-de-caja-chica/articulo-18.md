@@ -1,0 +1,1 @@
+Artículo 18.—Bienes o servicios no autorizados: A solicitud del Coordinador (a) del Equipo de Apoyo y Asesoría Financiera, la Subgerencia Administrativa Financiera mediante resolución administrativa fundamentada, determinará los bienes y servicios que no podrán ser adquiridos por medio de caja chica.
