@@ -38,11 +38,12 @@ c) Valores de deuda emitidos por empresas privadas y que cuenten con cotización
 d) Endoso de pagarés o prenda de documento de crédito del saldo de las operaciones que garantiza | 90% del saldo de las operaciones que garantiza
 e) Emitidos por la Sociedad Administradora de Fondos de Inversión del Banco Popular | 90% del valor de la participación en el fondo
 (Así reformado parcialmente mediante Sesión Ordinaria No. 4250, de fecha 11 de octubre del 2004.)
-III. Hipotecas |
-a) Hipoteca común o cédulas hipotecarias | 80%
-b) Hipoteca de interés social | 90%
-IV. Aval Fodemipyme: | 100%
-V. Otras Garantías: | 70%
-Definidas por el Comité Gerencial. |
+*III.Hipotecas |
+a) Hipoteca común | 80%
+b) Cédulas hipotecarias: |
+b.1) Si la cédula no devenga intereses o éstos son inferiores a la tasa de interés del crédito al momento de su aprobación, se aceptarán por el valor menor entre el valor de avalúo o el de la cédula, hasta el | 80%
+b.2) Si la cédula devenga intereses iguales o superiores a la tasa de interés del préstamo al momento de su aprobación, siempre que el 80% del avalúo sea igual o superior al valor de la cédula hasta el | 100%
+c) Hipoteca de interés social | 90%
+(*Así reformado en sesión N° 4311 del 13 de junio del 2005)
 Estas modificaciones regirán a partir de su publicación en el Diario Oficial La Gaceta.
 San José, 26 de octubre del 2004.
