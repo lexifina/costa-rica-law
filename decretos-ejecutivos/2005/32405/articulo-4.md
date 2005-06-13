@@ -1,0 +1,1 @@
+Artículo 4º—Las instituciones del Estado que posean tierras en el área territorial que conformará el Refugio Nacional de Vida Silvestre Mixto Maquenque, deberán iniciar los trámites administrativos para traspasarlas a la Administración Forestal del Estado.
