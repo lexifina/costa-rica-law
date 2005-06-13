@@ -14,3 +14,4 @@ Pone en Vigencia Resolucipón N° 128-2004 (COMIECO XXX) Modifica Convenio sobre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-08 | la propia norma |
+| 2 | 2005-06-13 | Decreto Ejecutivo 32528 (2005-06-13) |

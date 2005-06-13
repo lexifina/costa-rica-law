@@ -33,8 +33,12 @@ Ministro de Economía de Guatemala | | Viceministro, en representación del Mini
 | |
 | |
 ANEXO RESOLUCIÓN Nº 128-2004 (COMIECO-XXX)*
-*(Mediante resolución 133-2005 COMIECO XXX, puesta en vigencia por el decreto ejecutivo N° 32216 de 18 de enero de 2005, se modifica esta resolución al modificar expresamente el numeral 3 de la Resolución Nº 132- 2004 (COMIECO XXX), el cual se deberá leer de la siguiente manera:
-“Se suspende temporalmente los efectos de las modificaciones a los rubros arancelarios 2709.00.10; 2709.00.90; 2710.11.20; 2710.11.30; 2710.19.11; 2710.19.12; 2710.19.21; 2710.19.23; 2711.11.00; 2711.14.00; 2711.19.00; 2711.21.00; 2711.29.00; y, 2714.90.00 contenidos en la Resolución Nº 128-2004 (COMIECO XXX) de fecha 14 de diciembre de 2004, hasta que la presente Resolución deje de surtir efectos legales”.)
+*NOTAS DE SINALEVI:
+1. Mediante resolución 133-2005 COMIECO XXX, puesta en vigencia por el decreto ejecutivo N° 32216 de 18 de enero de 2005, se modifica esta resolución al modificar expresamente el numeral 3 de la Resolución Nº 132- 2004 (COMIECO XXX), el cual se deberá leer de la siguiente manera:
+“Se suspende temporalmente los efectos de las modificaciones a los rubros arancelarios 2709.00.10; 2709.00.90; 2710.11.20; 2710.11.30; 2710.19.11; 2710.19.12; 2710.19.21; 2710.19.23; 2711.11.00; 2711.14.00; 2711.19.00; 2711.21.00; 2711.29.00; y, 2714.90.00 contenidos en la Resolución Nº 128-2004 (COMIECO XXX) de fecha 14 de diciembre de 2004, hasta que la presente Resolución deje de surtir efectos legales”.
+2. Mediante resolución 138-2005 COMIECO-EX, publicada por el decreto ejecutivo N° 32257 de 18/01/2005 se reforma esta resolución al "...Derogar la Resolución Nº 132-2004 (COMIECO-XXX), ... restituyéndose los DAI aprobados en la Resolución Nº 128-2004 (COMIECO-XXX) de 14 de diciembre del 2004, con excepción del siguiente inciso arancelario que continúa vigente:
+Código | Descripción | DAI
+27101130 | Las demás Gasolinas | 40
 Código Descripción DAI
 2701.20.00- - -Briquetas, ovoides y combustibles sólidos similares, obtenidos de la hulla 5
 2705.00.00 - - GAS DE HULLA, GAS DE AGUA, GAS POBRE Y GASESSIMILARES, EXCEPTO EL GAS DE PETRÓLEO Y DEMÁS HIDROCARBUROS GASEOSOS 5
