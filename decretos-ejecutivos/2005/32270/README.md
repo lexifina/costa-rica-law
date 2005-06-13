@@ -16,3 +16,4 @@ Directrices de política presupuestaria para las entidades públicas, ministerio
 | 1 | 2005-03-17 | la propia norma |
 | 2 | 2005-05-06 | Decreto Ejecutivo 32395 (2005-05-06) |
 | 3 | 2005-05-16 | Decreto Ejecutivo 32415 (2005-05-16) |
+| 4 | 2005-06-13 | Decreto Ejecutivo 32463 (2005-06-13) |
