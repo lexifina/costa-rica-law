@@ -1,0 +1,1 @@
+Artículo 24.—Recibido el escrito de apelación y estando dentro del término indicado en el artículo anterior, la Junta de Gobierno lo acogerá sin mayor trámite y fijará hora y fecha para la celebración de la Asamblea General.

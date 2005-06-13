@@ -1,0 +1,1 @@
+Artículo 7º—El expediente incluirá toda la documentación pertinente para el debido proceso, deberá enumerarse en forma consecutiva en el extremo derecho de cada hoja y llevará un índice de Actuaciones.

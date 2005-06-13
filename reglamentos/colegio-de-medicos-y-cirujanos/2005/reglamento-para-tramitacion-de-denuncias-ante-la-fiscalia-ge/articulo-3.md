@@ -1,0 +1,1 @@
+Artículo 3º—Cuando el asunto fuese competencia de la Fiscalía General, ésta recabará todas las pruebas pertinentes para determinar la verdad real de los hechos. Una vez terminada la investigación, la Fiscalía someterá el asunto a la Junta de Gobierno, con sus recomendaciones, para que dicho órgano tome la resolución que en derecho corresponda.

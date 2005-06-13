@@ -1,0 +1,1 @@
+Artículo 23.—La resolución de la Junta de Gobierno, una vez notificada, puede ser apelada por las partes dentro de los ocho días hábiles siguientes a su notificación para que sea sometida a juicio ante Asamblea General.

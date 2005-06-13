@@ -1,0 +1,1 @@
+Artículo 6º—Recibido el acuerdo emitido por la Junta de Gobierno que ordena abrir el correspondiente procedimiento disciplinario, el Tribunal de Moral Médica recabará toda la documentación presentada por el denunciante y el acuerdo de la Junta de Gobierno que lo nombró órgano encargado del procedimiento disciplinario.

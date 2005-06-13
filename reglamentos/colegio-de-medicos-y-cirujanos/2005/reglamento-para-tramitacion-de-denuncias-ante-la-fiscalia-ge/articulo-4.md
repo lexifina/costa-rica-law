@@ -1,0 +1,1 @@
+Artículo 4º—Cuando se tratare de consultas o asuntos que la Fiscalía no considere complejas de evacuar, ésta podrá responderlas directamente sin necesidad de elevar el asunto a la Junta de Gobierno y deberá rendir un informe sobre la denuncia, la información recabada, el criterio emitido y su fundamentación a la citada Junta de Gobierno.

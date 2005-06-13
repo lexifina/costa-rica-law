@@ -1,0 +1,1 @@
+Artículo 15.—En caso de que se llegase a un acuerdo conciliatorio, el Tribunal dictará una resolución dando por terminado el caso, archivando el asunto y devolverá el expediente del afiliado al Departamento de Archivo del Colegio.

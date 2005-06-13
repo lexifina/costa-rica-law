@@ -1,0 +1,1 @@
+Artículo 14.—En la diligencia de conciliación y prueba, el Tribunal, por medio de su Presidente, preguntará a ambas partes si desean llegar a un acuerdo conciliatorio. En caso afirmativo se levantará un acta en que se harán constar los términos del acuerdo, la cual será firmada por ambas partes o sus representantes y los miembros del Tribunal.

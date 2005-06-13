@@ -1,0 +1,2 @@
+Artículo 17.—Antes de que la parte denunciada rinda su declaración, el Presidente del Tribunal le indicará que no está obligado a declarar contra sí mismo, por lo que puede guardar silencio, lo cual no prejuzga sobre su eventual responsabilidad.*3
+*3 Constitución Política de la República de Costa Rica, Artículo 36.—“En materia penal nadie está obligado a declarar contra sí mismo, ni contra su cónyuge, ascendientes, descendie, descendientes o parientes colaterales hasta el tercer grado inclusive de consanguinidad o afinidad.

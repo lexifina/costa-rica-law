@@ -1,0 +1,1 @@
+Artículo 22.—Recibido el expediente, la Junta de Gobierno conocerá el caso en la siguiente sesión ordinaria. La recomendación del Tribunal de Moral Médica no es vinculante para la Junta de Gobierno, la cual podrá aprobarla o apartarse de su criterio en forma razonada, informando al Tribunal su decisión y las razones en que fundamentó el rechazo.

@@ -1,0 +1,1 @@
+Artículo 16.—En caso de que no se llegase a un acuerdo entre las partes en la audiencia conciliatoria, se evacuará la prueba testimonial ofrecida por las partes. Si la audiencia fuere insuficiente para recibir todos los testimonios, el Tribunal fijará una nueva hora y fecha para continuar con los testimonios faltantes.

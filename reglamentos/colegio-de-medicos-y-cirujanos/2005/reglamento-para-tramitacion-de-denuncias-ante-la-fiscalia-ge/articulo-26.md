@@ -1,0 +1,1 @@
+Artículo 26.—En lo expresamente no regulado en este Reglamento, se aplicará supletoriamente la Ley General de la Administración Pública, la Ley Orgánica del Colegio de Médicos y Cirujanos de Costa Rica y su Reglamento ejecutivo.
