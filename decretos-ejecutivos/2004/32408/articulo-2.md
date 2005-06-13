@@ -1,0 +1,1 @@
+2º—Ordénese mandamiento de desafectación de la anotación de expropiación contenida en el Decreto Ejecutivo N° 22033-MAGMIRENEM publicado en La Gaceta del 30 de marzo de 1993 y Decreto Ejecutivo N° 22276-MAG-MIRENEM publicado en La Gaceta del 25 de junio de 1993, ante el Registro Público de la Propiedad Inmueble.
