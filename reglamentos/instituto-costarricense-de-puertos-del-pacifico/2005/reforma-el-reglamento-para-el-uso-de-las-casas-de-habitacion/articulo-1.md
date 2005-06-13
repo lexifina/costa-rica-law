@@ -1,0 +1,9 @@
+INSTITUTO COSTARRICENSE DE PUERTOS DEL PACÍFICO
+REGLAMENTO PARA EL USO DE LAS CASAS DE HABITACIÓN
+DEL INSTITUTO COSTARRICENSE
+DE PUERTOS DEL PACÍFICO
+Que la Junta Directiva de esta Institución mediante Acuerdo N° 3 tomado en la Sesión N° 3294, celebrada el día 25 de mayo del año en curso, acordó modificar el Artículo Nº 4 del Reglamento para el Uso de las Casas de Habitación del Instituto Costarricense de Puertos del Pacífico, que se leerá como sigue:
+Artículo 4º—Con el objeto de cumplir fielmente los principios de legalidad, austeridad y orden en el manejo de las casas propiedad de INCOP, la Administración Superior lo dispondrá de la siguiente forma:
+a. De los sujetos beneficiarios: La Administración Superior (Presidente Ejecutivo y Gerente General) conforme a derecho y cuando impere la necesidad, destinarán el uso de las casas del INCOP únicamente para los fines propios de la Institución, conforme al Artículo Nº 3 de este Reglamento.
+b. De la vigilancia: El jefe del Departamento de Vigilancia tendrá la responsabilidad de cumplir fielmente con la vigilancia necesaria, para lo cual los oficiales a su cargo llevarán, entre otras responsabilidades, una bitácora por escrito, control cronológico del ingreso y salida de las personas, menaje y cualquier otro hecho que se considere importante de señalar. Además, deberá estar atento en todo momento al cuidado y al buen uso del inmueble. En el caso del Balneario Ojo de Agua, esta labor corresponderá al Administrador de este Centro de Recreo.
+c. Del uso del muelle: El uso del inmueble se dará bajo una necesidad de la institución y existirán cuidados estrictos para que las casas sean utilizadas única y exclusivamente por las personas autorizadas, las cuales deberán mantener el orden, la buena conducta y procurando el cuidado del inmueble en todo momento.
