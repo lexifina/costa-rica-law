@@ -1,4 +1,5 @@
-Artículo 86.- Reconocimiento por instrucción. Créase un incentivo denominado reconocimiento por instrucción, el cual consiste en un plus salarial equivalente a un veinte por ciento (20%) del salario base, que corresponderá a todos los instructores de planta de la Academia Nacional de Policía.
-Un incentivo similar se les concederá a los instructores de la Unidad de Policía Comunitaria.
-Este incentivo podrá ser extendido temporalmente a otros funcionarios de los ministerios de Gobernación y Policía, y de Seguridad Pública, siempre y cuando sean destacados en la Academia Nacional de Policía para impartir cursos especializados con una duración mínima de un mes calendario.
-(Así adicionado por el artículo 3° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)
+Artículo 86°—Actuación administrativa en el caso de procesamiento en sede penal
+En cualquier caso de procesamiento en sede penal, por delito vinculado con torturas, tratos crueles, inhumanos o degradantes, de inmediato la administración suspenderá al servidor y, hasta la decisión del caso, le retendrá, total o parcialmente, el salario.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 70 al 73 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 73 al 80 actual)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 80 al 86 actual)

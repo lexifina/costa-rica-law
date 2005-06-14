@@ -1,4 +1,10 @@
-Artículo 55.- Direcciones y subdirecciones de los cuerpos policiales de la Fuerza Pública
-Todo cuerpo policial deberá contar con un director y un subdirector. Los directores de los cuerpos de policía deberán ostentar, como mínimo, el grado de comisionado de policía. Los subdirectores, por su parte, deberán tener como requisito mínimo el grado de comandante.
-Los funcionarios mencionados en este artículo son de libre nombramiento y remoción por parte del ministro del ramo.
-(Así adicionado por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)
+Artículo 55°—Atribuciones
+Son atribuciones del Consejo de Personal:
+a) Conocer los reclamos originados en disposiciones emanadas de cualquier jerarca de las dependencias de las fuerzas de policía.
+Los jerarcas del Consejo de Personal deberán abstenerse de votar, en asuntos que previamente hayan conocido y sobre los que hayan emitido criterio.
+b) Determinar las políticas generales del Departamento de Personal respectivo.
+c) Refrendar las listas de servidores elegibles confeccionadas por el Departamento de Personal, a fin de que el ministro respectivo efectúe los nombramientos correspondientes.
+d) Conocer y resolver, en primera instancia, las recomendaciones de despido y las suspensiones temporales, al aplicar el régimen disciplinario, así como elevar el asunto ante el ministro respectivo, se apele o no la resolución de que se trate.
+e) Las demás atribuciones que la presente Ley y sus Reglamentos le confieran.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 46 al 49 actual)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 49 al 55 actual)
