@@ -1,1 +1,2 @@
-Artículo 3°—Rige a partir de su publicación.
+Artículo 3°— Los recursos económicos que las dependencias del sector público y privado destinen para financiar el Premio Nacional del cantón Ecológico y Saludable, deberán ser transferidos al Ministerio de Salud y depositados en la cuenta bancaria del Consejo Técnico de Asistencia Médico Social, institución que los entregará al ente municipal previamente seleccionado, en base a la revisión y análisis de los proyectos de salud en desarrollo que hayan sido sometidos para el estudio de adjudicación del Premio de Cantón Ecológico y Saludable.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 32600 de 14 de junio de 2005).

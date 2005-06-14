@@ -1,0 +1,2 @@
+Artículo 4º—La adjudicación del premio económico estará a cargo de la "Comisión Técnica Asesora de Cantones Ecológicos y Saludables", quien establecerá los requisitos para la presentación de proyectos y vigilar el proceso de difusión y evaluación de los proyectos sobre la base de criterios previamente estandarizados.
+(Así adicionado por el artículo 1° del Decreto Ejecutivo N° 32600 de 14 de junio de 2005).

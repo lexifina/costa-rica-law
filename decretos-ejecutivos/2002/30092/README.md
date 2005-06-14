@@ -14,3 +14,4 @@ Declara de Intrés Público las Actividades de algunas Instituciones del Estado 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-21 | la propia norma |
+| 2 | 2005-06-14 | Decreto Ejecutivo 32600 (2005-06-14) |
