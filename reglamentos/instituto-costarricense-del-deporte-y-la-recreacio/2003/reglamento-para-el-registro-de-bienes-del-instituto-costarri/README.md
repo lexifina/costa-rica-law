@@ -14,3 +14,4 @@ Reglamento para el registro de bienes del Instituto Costarricense del Deporte y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-03 | la propia norma |
+| 2 | 2005-06-15 | Reglamento 435 (2005-06-15) |

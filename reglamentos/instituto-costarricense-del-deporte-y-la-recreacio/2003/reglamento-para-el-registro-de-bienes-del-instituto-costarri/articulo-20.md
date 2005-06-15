@@ -1,7 +1,6 @@
-Artículo 20.—Préstamo de bienes. Cuando una dependencia facilite bienes en calidad de préstamo a otra, se debe cumplir con los siguientes requisitos:
-a) Solicitud por escrito con detalle de los bienes y del uso o destino que se les dará;
-b) Copia de la respuesta de aceptación del superior de la entidad prestataria;
-c) Firma de un convenio de préstamo donde se establecen las condiciones (número de acta, plazo, valor, condiciones de entrega y recibido, etc.) del préstamo;
-d) Refrendo o aprobación interna del convenio de préstamo;
-e) Acta de recibo de los bienes firmada por los coordinadores o superiores de cada dependencia;
-f) Registro de los datos en el Sistema Informático de Administración de Bienes; y la Proveeduría Institucional será las responsables de darle seguimiento a la utilización de los bienes prestados.
+Artículo 20.—Préstamo de bienes entre dependencias institucionales. Cuando una dependencia institucional acceda a facilitar a otra bienes que se encuentren bajo su custodia, se debe cumplir con los siguientes requisitos:
+a. Solicitud firmada por el coordinador o encargado de la dependencia que solicita los bienes, con detalles de los bienes, uso o destino que se les dará y plazo estimado de devolución.
+b. Acta de entrega de los bienes donde conste el estado en que se entregan y demás detalles que faciliten el control sobre los mismos.
+c. Registro de los datos en el Sistema Informático de Administración de Bienes. La Proveeduría Institucional será la responsable de darle seguimiento a la utilización de los bienes prestados.
+d. Acta de devolución de bienes, donde conste la conformidad del coordinador o encargado de la dependencia acerca del estado en que se reciben.
+(Así reformado en sesión N° 435 del 15 de junio del 2005)
