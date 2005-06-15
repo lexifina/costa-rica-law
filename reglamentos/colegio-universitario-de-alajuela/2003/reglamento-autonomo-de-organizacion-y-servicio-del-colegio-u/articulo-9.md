@@ -8,6 +8,15 @@ Atestados: Exámenes escritos, prácticos, experiencia, certificados de conducta
 CCSS: Caja Costarricense de Seguro Social.
 Clase: Puesto o conjunto de puestos lo suficientemente similares en cuanto a requisitos, deberes, responsabilidades y autoridad para que se les pueda aplicar el mismo título a cada uno de ellos, exigir a quienes hayan de ocuparlos los mismos requisitos de preparación académica, experiencia, conocimientos, etc. Usar el mismo tipo de exámenes o pruebas de aptitud, para seleccionar a los candidatos a empleo, y asignarles el mismo salario o remuneración en condiciones de trabajo similar.
 Clasificación de puestos: Sistema por medio del cual se analizan, evalúan y ordenan en forma sistemática los diferentes tipos de tareas que se realizan en la Institución, considerando entre otros, factores tales como: deberes y obligaciones, naturaleza de éstos, grado de dificultad, preparación académica, conocimientos de otra índole, experiencia, habilidades y destrezas que deben poseer los candidatos al empleo.
+Comisión de Recursos Humanos: Está integrada por el Decano, el Jefe del Departamento de Recursos Humanos y el Jefe de la Unidad respectiva. En caso de los puestos docentes, participará el Coordinador de la Carrera respectiva. Serán funciones de esta Comisión:
+1. Establecer los requisitos y bases de selección para los diferentes puestos que se concursen, de acuerdo con la naturaleza del puesto y las necesidades de la institución.
+2. Pronunciarse sobre los estudios de reasignación de puestos.
+3. Determinar conjuntamente con el Departamento de Recursos Humanos las áreas de desarrollo, en materia de estudio y/o capacitación.
+4. Administrar el fondo que anualmente se presupuesta para la concesión de becas de estudios al personal.
+5. Actuar como elemento asesor de la Administración Superior, conjuntamente con el Departamento de Recursos Humanos, en lo relativo a necesidades de capacitación.
+6. Determinar los estímulos y obligaciones para los beneficiarios, contemplados dentro del programa de estudios y/o capacitación.
+7. Otras, encomendadas por el Consejo Directivo.
+(Así adicionado el término "Comisión de Recursos Humanos" mediante sesión 2289 celebrada el 15 de junio del 2005)
 Concurso: Procedimiento de selección de personal que garantiza la participación amplia y la valoración adecuada de los candidatos, con la finalidad de llenar plazas vacantes. Estos pueden ser internos o externos.
 Consejo: Consejo Directivo del Colegio Universitario de Alajuela. Funcionario administrativo: Aquel que realiza funciones administrativas y técnicas.
 Funcionario docente y docente administrativo: Aquel que realiza funciones propias de la docencia, investigación, acción social, asistencia académica o coordinación de las Carreras. INS: Instituto Nacional de Seguros.
@@ -20,7 +29,7 @@ Reasignación: Cambio que se hace a la clasificación de un puesto con motivo de
 Reclasificación: Procedimiento para rectificar la clasificación de un puesto asignado erróneamente.
 Régimen de empleo público: Está constituido por el conjunto de disposiciones normativas y de principios jurídicos y morales, que regulan la actividad de quienes "prestan servicios a la Administración o a nombre y por cuenta de ésta, como parte de su organización".
 Régimen de Carrera Administrativa: Es el estatus o condición laboral al que tienen derecho los funcionarios administrativos, y que permite el ascenso desde los cargos de menor nivel hasta los de más alta jerarquía, por el sistema de méritos, usualmente orientado hacia la profesionalización que hace un servidor de su empleo público.
-Régimen de Carrera Docente: Es el estatus o condición laboral al que acceden aquellos docentes que por su tipo de nombramiento, desempeño, trayectoria y años de servicio, son considerados por el CUNA, como fundamentales para el logro de sus objetivos primarios, en materia de docencia. Tal Calificación estará a cargo de una comisión evaluadora conformada por el Director(a) Académico (a), el Coordinador de Carrera que corresponda, la Unidad de Recursos Humanos y el Decano.
+Régimen de Carrera Docente: Es el estatus o condición laboral al que acceden aquellos docentes que por su tipo de nombramiento, desempeño, trayectoria y años de servicio, son considerados por el CUNA, como fundamentales para el logro de sus objetivos primarios, en materia de docencia. Tal Calificación estará a cargo de una comisión evaluadora conformada por el Director(a) Académico (a), el Coordinador de Carrera que corresponda, la Departamento de Recursos Humanos y el Decano.
 Reglamento: Reglamento Autónomo de Servicio.
 Relación de servicio: El conjunto de obligaciones, derechos, atribuciones, funciones y tareas que corresponden al servidor o funcionario, en relación con la institución y los administrados, de acuerdo con el ordenamiento jurídico y en virtud de un acto válido y eficaz de nombramiento
 Representante patronal: El Decano y aquellas personas autorizadas para ejercer dentro del CUNA funciones de dirección, de administración o de ambos géneros.
@@ -30,7 +39,8 @@ Salario: Remuneración periódica que se otorga por el desempeño de un cargo co
 Superior jerárquico: La jefatura o superior inmediato.
 Funcionario o Servidor: Toda persona física que a cambio de una remuneración y en virtud de un acto válido y eficaz de nombramiento, presta sus servicios materiales, intelectuales o de ambos géneros en forma personal y subordinada al CUNA.
 Traslado: Paso de un servidor de un puesto a otro de la misma categoría.
-Unidad de Recursos Humanos: La unidad administrativa encargada de la administración de los Recursos Humanos de la Institución.
+Departamento de Recursos Humanos: La unidad administrativa encargada de la administración de los Recursos Humanos de la Institución.
 Vacante: Plaza que no posee titular.
 Vacante Imprevista: Cuando la vacante se produce por ausencia repentina del titular que genera el nombramiento de sustituto por un plazo fijo.
 Valoración: Proceso mediante el cual se asignan remuneraciones a las clases de puestos, tomando en consideración: estudio de los niveles o grados de dificultad, responsabilidad y variedad de las tareas, requisitos mínimos, índices de costo de vida, encuestas de salarios y otros elementos de juicio de uso condicionado.
+(Así reformado mediante sesión 2289 celebrada el 15 de junio del 2005)

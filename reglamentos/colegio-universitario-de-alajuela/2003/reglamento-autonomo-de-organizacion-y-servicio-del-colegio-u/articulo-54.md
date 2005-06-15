@@ -1,7 +1,3 @@
-Artículo 54.—Para ingresar al Régimen de Carrera Docente, debe cumplirse con los siguientes requisitos:
-1. Haberse desempeñado de manera continua como docente en el CUNA durante los últimos tres años.
-2. Desarrollar su actividad académica en la (s) materia (s) sustantivas, propias y representativas de las carreras que imparta el CUNA.
-3. Tener experiencia laboral en la especialidad, independientemente de la docencia, no menor de tres años en puestos relacionados con la materia que imparte.
-4. No haber sido objeto de sanciones disciplinarias durante los últimos tres años.
-5. Haber obtenido una calificación de desempeño igual, o mayor a muy bueno, durante los últimos tres años de servicio.
-6. Cumplir con un módulo Pedagógico definido y aprobado por la Institución, cuya duración sea de 90 horas como mínimo. Dicho módulo podrá ser ofrecido por la Institución y se impartirá fuera de la jornada Laboral Ordinaria.
+Artículo 54.—El Régimen de Carrera Docente concede todos los beneficios establecidos en los artículos 46 y 48 del presente Reglamento y en los demás que se establezcan en el Reglamento específico para tal efecto.
+El ascenso a una categoría laboral superior dependerá del cumplimiento de los requisitos establecidos para cada categoría, de acuerdo con el artículo 48 del presente Reglamento.
+(Así reformado mediante sesión 2289 celebrada el 15 de junio del 2005)

@@ -1,10 +1,6 @@
 Artículo 36.—Los contratos de servicio serán:
-1. A PLAZO INDEFINIDO: Se celebrarán con aquellos servidores indispensables para satisfacer las necesidades propias y permanentes del CUNA.
-2. A PLAZO FIJO: Se celebrarán con los servidores administrativos que sea necesario nombrar para satisfacer necesidades temporales del CUNA y con funcionarios docentes, que no hayan ingresado al régimen de carrera docente.
-3. POR OBRA DETERMINADA: Se podrán celebrar para satisfacer necesidades que eventualmente se presenten en el CUNA, cuando sin fijación de tiempos, el objeto de la prestación del servicio subordinado será la misma obra producida.
-4. INTERINOS: Se realizarán con personal nombrado por inopia o para cubrir vacantes imprevistas, mientras se realiza el concurso correspondiente. También tendrán este carácter aquellas relaciones que se generen como consecuencia de ascensos o traslados motivados por permisos con o sin goce de sueldo de los titulares del puesto.
-En el caso de nombramientos interinos no se generarán derechos de estabilidad en el puesto.
-Las tres últimas modalidades de contratación atenderán los mecanismos existentes al efecto, a saber:
-1. SUPLENCIAS: Mecanismo para sustituir temporalmente funcionarios ausentes por licencias o por vacaciones o incapacidad médica extendida por la CCSS o el Instituto Nacional de Seguros.
-2. SERVICIOS ESPECIALES: Modalidad de contratar recurso humano en el área técnica y técnica-administrativa, para cubrir necesidades temporales que no excedan de un año autorizados por la Autoridad Presupuestaria.
-3. JORNALES OCASIONALES: Modalidad de contratación de recursos humanos ocasionales necesarios para la realización de una obra que puede ser por plazo fijo u obra determinada.
+1. A plazo indefinido: Se celebrarán con aquellos trabajadores indispensables para satisfacer las necesidades propias y permanentes del CUNA, mediante un nombramiento en propiedad, una vez satisfechos los procedimientos de concurso interno o externo, o de nombramiento sin oposición establecido en el artículo 11 del Estatuto de Servicio Civil aplicable supletoriamente al CUNA, conforme a lo dispuesto en el artículo 185 del presente Reglamento.
+2. Plazo fijo: Se celebrarán con los trabajadores administrativos y docentes que sea necesario nombrar para satisfacer necesidades temporales del CUNA.
+El Colegio Universitario de Alajuela, asignará en la medida de sus posibilidades, los recursos necesarios para ejecutar los programas de carrera administrativa, señalados anteriormente.
+El Reglamento de Carrera Administrativa establecerá normas para que todos los programas que la conforman se lleven a cabo conforme a los principios de idoneidad comprobada, eficacia, eficiencia y justicia. Los ascensos en puestos de trabajo se harán una vez descartada la existencia de sanciones disciplinarias por falta grave.
+(Así reformado mediante sesión 2289 celebrada el 15 de junio del 2005)

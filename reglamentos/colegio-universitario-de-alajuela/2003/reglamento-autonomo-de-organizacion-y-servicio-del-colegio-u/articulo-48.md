@@ -7,3 +7,4 @@ Artículo 48.—La clasificación del funcionario docente se hará según los si
 6) Profesor ad honoren, es la persona que colabora sin recibir remuneración en actividades de docencia, investigación y acción social, será nombrado por el Decano y deberá cumplir con las funciones establecidas en el manual descriptivo de puestos.
 7) Profesor visitante, es el extranjero que la institución contrata por un período de un año o menos (renovable hasta por un máximo de dos períodos), para laborar en docencia, investigación y acción social, en virtud de convenios o programas de cooperación internacional.
 8) Profesor emérito, es el docente jubilado de la institución que hubiese prestado servicios de reconocido valor a la educación y la cultura nacional. El nombramiento lo hará el Consejo, a propuesta del Decano.
+(Así reformado mediante sesión 2289 celebrada el 15 de junio del 2005)

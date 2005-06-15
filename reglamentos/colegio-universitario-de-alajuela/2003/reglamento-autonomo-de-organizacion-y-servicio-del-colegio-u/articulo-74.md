@@ -1,4 +1,4 @@
 CAPÍTULO XIV
 Del descanso semanal, vacaciones y días feriados
-Artículo 74.—Considerando que el CUNA debe dar un servicio al usuario de lunes a domingo con horario diurno y nocturno, se hace necesario ajustar los horarios de la Institución y utilizar el recurso humano disponible en la forma más adecuada, con base en el servicio que se brinda actualmente y respetando los límites de las jornadas ordinarias existentes.
-En algunos casos será necesario utilizar una jornada acumulativa dentro del horario del servicio, sin embargo; todo servidor tendrá derecho a disfrutar de un día de descanso absoluto, después de cada seis días de servicio continuo o de completar las horas correspondientes a jornadas ordinarias en caso de jornada acumulativa.
+Artículo 74.—El CUNA dará la prestación de servicios de lunes a domingo, en horario diurno y nocturno, respetando las jornadas respectivas de los trabajadores, según haya sido la firma de su contrato laboral, anterior o posterior de la entrada en vigencia del presente Reglamento y respetando su derecho a disfrutar el o los días de descanso absoluto que le correspondan, según se trate de jornada laboral ordinaria o acumulativa.
+(Asi reformado mediante sesión 2289 celebrada el 15 de junio del 2005)

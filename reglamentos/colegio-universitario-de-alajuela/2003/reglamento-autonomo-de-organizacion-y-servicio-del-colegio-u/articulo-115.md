@@ -1,2 +1,2 @@
-Artículo 115.—Quedarán excluidos de la limitación de la jornada y horario que establezca este reglamento, los que ocupan puestos de jefatura (Directores, Jefes de Unidad y Coordinadores de Carreras) y todos aquellos que trabajan sin fiscalización superior inmediato; los que desempeñan funciones discontinuas o que requieran su sola presencia; y las personas que realizan funciones que por su indudable naturaleza no están sometidas a jornada de servicio.
-Sin embargo, estos funcionarios no estarán obligados a permanecer más de doce horas diarias en servicio y tendrán derecho dentro de esa jornada, a un descanso mínimo de una hora y media.
+Artículo 115.—Todos los trabajadores sin distinción alguna, quedan obligados a cumplir con la jornada laboral ordinaria por la que fueron contratados.
+(Así reformado mediante sesión 2289 celebrada el 15 de junio del 2005)

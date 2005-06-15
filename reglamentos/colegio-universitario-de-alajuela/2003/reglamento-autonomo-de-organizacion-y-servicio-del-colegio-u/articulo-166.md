@@ -1,2 +1,3 @@
-Artículo 166.—Recibido el descargo, el instructor procederá a evacuar la prueba, con las formalidades que prescribe el articulado correspondiente de la Ley General de Administración Pública.
-Evacuadas las pruebas se tendrá por concluida la investigación, debiendo el Órgano Director presentar en el plazo previsto por ley, el informe con su recomendación a la instancia competente, según la gravedad de la falta, para que este dicte la resolución final correspondiente, dentro de los plazos establecidos por ley.
+Artículo 166 Recibido el descargo, o en caso de que no se formule dentro del término establecido, el instructor procederá a evacuar la prueba, con las formalidades que prescribe el articulado correspondiente de la Ley General de Administración Pública.
+Evacuadas las pruebas, se tendrá por concluida la investigación, debiendo el Órgano Director presentar en el plazo previsto por ley, el informe con su recomendación a la instancia competente, según la gravedad de la falta, para que éste dicte la resolución final correspondiente, en el plazo de un mes
+(Así reformado mediante sesión 2289 celebrada el 15 de junio del 2005)

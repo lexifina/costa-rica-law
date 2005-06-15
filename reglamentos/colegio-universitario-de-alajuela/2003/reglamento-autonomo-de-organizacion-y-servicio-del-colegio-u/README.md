@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio del Colegio Universitario de Al
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-08 | la propia norma |
+| 2 | 2005-06-15 | Reglamento 2289 (2005-06-15) |
