@@ -1,1 +1,0 @@
-Artículo 4º—Las instituciones del Estado que posean tierras en el área territorial que conformará el Parque Nacional Maquenque, deberán iniciar los trámites administrativos para traspasarlas a la Administración Forestal del Estado.

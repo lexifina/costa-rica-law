@@ -1,1 +1,0 @@
-Artículo 2º—Queda autorizada la comisión nacional del Corredor Biológico San Juan-La Selva a gestionar apoyo y fondos para la realización de los estudios básicos, trabajos preparatorios y compra de tierras para la creación del Parque Nacional Maquenque.
