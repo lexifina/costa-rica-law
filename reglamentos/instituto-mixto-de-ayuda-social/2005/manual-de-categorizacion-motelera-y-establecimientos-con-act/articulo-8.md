@@ -1,0 +1,1 @@
+Artículo 8º—Sanciones. El incumplimiento de las responsabilidades asignadas en este Manual, se regulará, según corresponderá, en el Reglamento Autónomo de Servicios del IMAS, en la Ley General de Administración Pública, en el Código de Normas y Procedimientos Tributarios y en la Ley General de Control Interno.

@@ -1,0 +1,4 @@
+Artículo 7º—Deberes de los contribuyentes sujetos al tributo de la Ley Nº 8343. Los contribuyentes del IMAS tendrán los siguientes deberes:
+a. Deberán prestar la mayor colaboración a los funcionarios de la Administración Tributaria del IMAS, al realizarse la inspección del establecimiento. Los contribuyentes deberán garantizar que la persona que atienda al funcionario de la Administración Tributaria del IMAS se encuentre capacitada para facilitar el proceso de inspección y suministre la información que se requiera para realizar tal actividad.
+b. Autorizar el ingreso al establecimiento a los funcionarios de la Administración Tributaria del IMAS para la inspección del lugar.
+c. Acompañar al funcionario de la Administración Tributaria del IMAS en el recorrido de la inspección del establecimiento, en caso de no poder acompañarlo, deberá instruir a la persona que lo atienda para que le acompañe.
