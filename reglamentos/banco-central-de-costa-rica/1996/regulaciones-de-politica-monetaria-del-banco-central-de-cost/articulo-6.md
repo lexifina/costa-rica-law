@@ -1,19 +1,19 @@
 (*)TITULO VI
 Disposiciones sobre la reserva de liquidez
 (*)(Así adicionado este título en sesión N° 4931 del 24 de octubre de 1997)
-(*) A.Deberán mantener una reserva de liquidez...
-El porcentaje reserva de liquidez que deberán mantener las entidades antes mencionadas es el siguiente:
-1. Para las operaciones en moneda nacional aplicará una tasa de reserva de liquidez del 12,0%, a la cual se ajustarán con la siguiente gradualidad:
+(*) A. Deberán mantener una reserva de liquidez
+El porcentaje de reserva de liquidez que deberán mantener las entidades antes mencionadas es el siguiente:
+Para las operaciones en moneda nacional aplicará una tasa de reserva de liquidez del 15,0%, a la cual se ajustarán con la siguiente gradualidad:
 Fecha | Tasa
 A partir del: |
-01 de setiembre del 2004 | 11,0%
-01 de octubre del 2004 | 12,0%
-2. Para las operaciones en moneda extranjera aplicará una tasa de reserva de liquidez del 12,0%, a la cual se ajustarán con la siguiente gradualidad:
+16 de julio del 2005 | 13,5%
+16 de agosto del 2005 | 15,0%
+Para las operaciones en moneda extranjera aplicará una tasa de reserva de liquidez del 15,0%, a la cual se ajustarán con la siguiente gradualidad:
 Fecha | Tasa
 A partir del: |
-01 de setiembre del 2004 | 11,0%
-01 de octubre del 2004 | 12,0%
-(*) (Así reformado el literal anterior en sesión N° 5208 del 26 de julio de 2004)
+16 de julio del 2005 | 13,5%
+16 de agosto del 2005 | 15,0%
+(*) (Así reformado el literal anterior en sesión N° 5235 del 15 de junio de 2005)
 (*) B. Las cooperativas de ahorro y crédito y las cooperativas de vivienda amparadas a la Ley del Sistema Financiero para la Vivienda, cuyo nivel de activos netos al 31 de diciembre de cada año sea superior a los ¢200.0 millones, serán incorporadas al control del encaje por parte del BCCR y de la SUGEF.
 (*) (Así reformado el literal anterior en sesión N° 5067 del 21 de febrero de 2001)
 (*) C. Las cooperativas de ahorro y crédito cuyos activos netos, al 31 de diciembre de cada sean iguales o superiores a los ¢200.0 millones deberán, para quedar eximidas del requisito de encaje, presentar semestralmente ante la SUGEF los atestados correspondientes de que no han realizado operaciones financieras con no asociados
