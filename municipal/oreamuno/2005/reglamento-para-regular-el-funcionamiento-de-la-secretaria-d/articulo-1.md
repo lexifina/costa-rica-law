@@ -8,4 +8,5 @@ El Concejo Municipal de la Municipalidad de Oreamuno, considerando que:
 3. De acuerdo con la normativa citada se procede a reglamentar el funcionamiento de la Oficina de Secretaría del Concejo Municipal.
 CAPÍTULO I
 Objetivo y ámbito de aplicación
-Artículo 1º—Objetivo. El presente Reglamento tiene por objetivo establecer las normas que regularán el funcionamiento de la Secretaría del Concejo Municipal que serán de aplicación obligatoria para las diferentes instancias municipales.
+Artículo 1º—Se aprueba por parte de la Comisión de Asuntos Jurídicos el Reglamento para Regular el Funcionamiento de la Secretaría del Concejo Municipal.
+(Así reformado en sesión N° 245 del 16 de junio del 2005)

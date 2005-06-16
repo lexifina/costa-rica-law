@@ -14,3 +14,4 @@ Reglamento para Regular el Funcionamiento de la Secretaría del Concejo Municipa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-06 | la propia norma |
+| 2 | 2005-06-16 | Reglamento municipal 245 (2005-06-16) |
