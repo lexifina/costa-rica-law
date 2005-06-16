@@ -1,0 +1,1 @@
+II.—Que toda modificación del mencionado manual deberá obligatoriamente ser sometida por la Dirección de Suministros al conocimiento y aprobación de la Junta Directiva del AyA. Publíquese En el Diario Oficial La Gaceta.
