@@ -1,0 +1,1 @@
+Artículo 11.—Dado el carácter temporal de los permisos de ocupación o uso. La Municipalidad de Parrita puede revocarlo con base en razones de oportunidad o conveniencia por acto, administrativo motivado en atención al interés público. Dicho acto no genera responsabilidad para la Administración salvo que actúe arbitrariamente y no al amparo de interés público.

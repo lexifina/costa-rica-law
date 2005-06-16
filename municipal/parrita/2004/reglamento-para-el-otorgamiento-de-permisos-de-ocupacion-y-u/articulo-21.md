@@ -1,0 +1,1 @@
+Artículo 21.—Sanciones. En caso de incumplimiento se procederá a levantar información al respecto y se seguirá el debido proceso hasta desalojar a los infractores del presente permiso de uso, el cual no da derecho a construcciones ilegales, a ventas y a otros debidamente normados en las leyes existentes escritas y no escritas.

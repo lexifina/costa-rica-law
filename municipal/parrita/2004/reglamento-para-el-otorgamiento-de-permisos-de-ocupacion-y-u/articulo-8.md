@@ -1,0 +1,1 @@
+Artículo 8º—El carácter de los permisos de ocupación o uso es temporal puesto que se otorgan ante la imposibilidad de conceder concesiones por no existir un plan regulador determinado. En todo caso el plazo de vigencia será establecido por la Municipalidad de Parrita en este Reglamento o de acuerdo al interés debidamente motivado y razonado.

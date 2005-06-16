@@ -1,0 +1,2 @@
+Sobre la naturaleza de los permisos
+Artículo 7º—Esta Municipalidad entiende por permiso de ocupación o uso de la Zona Marítimo Terrestre un bien de dominio público ocupado temporalmente por alguien que lo ha solicitado, a lo que la Municipalidad de Parrita puede acceder bajo los términos contemplados en este reglamento de manera unilateral. Por la misma definición tal permiso no otorga ningún derecho a favor del titular (Sala Constitucional voto 2306-91).

@@ -1,0 +1,1 @@
+Artículo 14.—Dado que los permisos de ocupación o uso no configuran ningún derecho subjetivo se otorgan a título personal, no se permite traspasarlo, ceder ni subarrendar a la vez que impide que alguien pueda disfrutar de más de un permiso a la vez. Por lo demás la venta de cosa ajena es absolutamente nula.

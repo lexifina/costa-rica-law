@@ -1,0 +1,1 @@
+Artículo 9º—El otorgamiento de un permiso de ocupación o uso es un acto unilateral de la Municipalidad manifestado por la resolución administrativa por lo tanto no es un acto contractual y no adopta la forma de un contrato. El mismo es de carácter precario que concede la Administración a un particular el uso privativo sobre un bien de dominio público.

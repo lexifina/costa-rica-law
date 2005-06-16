@@ -1,0 +1,1 @@
+Artículo 10.—El otorgamiento de un permiso de ocupación o uso es un acto discrecional de la Municipalidad dirigido a bien público, por ello debe manifestarse mediante resolución administrativa debidamente motivada con referencia al interés público que lo justifica. La denegatoria de una solicitud también debe de motivarse.
