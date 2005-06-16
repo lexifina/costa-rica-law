@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE OROTINA
+El Concejo Municipal de Orotina en el artículo III, aparte 16 del acta de sesión ordinaria Nº 251, celebrada el día 3 de mayo del 2005, tomó el siguiente acuerdo:
+Con base a lo establecido en la Ley de Arrendamiento de Locales en Mercados Municipales, Ley Nº 2428 del 14 de setiembre de 1959, reformada por Ley Nº 7027 de 4 de abril de 1986, se procede a realizar el presente Transitorio al Reglamento del Mercado Municipal del cantón de Orotina.
+DISPOSICIONES TRANSITORIAS
+De los contratos
+El arrendatario, deberá firmar un contrato con la Municipalidad, en dicho contrato debe estipularse el precio del alquiler del local arrendado y el plazo, el cual no podrá ser mayor de cinco años ni menor de tres años. En dicho plazo el inquilino, no podrá ceder su derecho. Faltando un mes para que expire el contrato, el inquilino, deberá notificarle a la Municipalidad si desea continuar con el contrato o rescindir del mismo. La falta de este requisito prorrogará el contrato por un período igual al estipulado al momento de firmarse el contrato. Los locales arrendados no servirán como garantía ante cualquier deuda que contraiga el arrendatario. En caso de incumplimiento de este transitorio se perderá el derecho al local arrendado.
