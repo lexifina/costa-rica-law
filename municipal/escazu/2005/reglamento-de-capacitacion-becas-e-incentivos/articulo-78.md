@@ -1,0 +1,1 @@
+Artículo 78.—La Municipalidad programará y presupuestará mediante el Departamento de Recursos Humanos becas de capacitación o formación acordes con las necesidades detectadas y prioridades en las distintas unidades de la Institución, en coordinación con el Despacho del Alcalde, las direcciones y jefaturas de Departamento.

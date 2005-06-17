@@ -1,0 +1,1 @@
+Artículo 33.—El Departamento de Recursos Humanos será la única instancia facultada para proponer ante la Comisión. los nombres de los funcionarios para la participación en eventos de capacitación Las Jefaturas para estos fines, deberá remitir a este Departamento los postulantes para su posterior remisión a la Comisión.

@@ -1,0 +1,1 @@
+Artículo 50.—La Municipalidad cubrirá los viáticos del funcionario municipal en el caso de que la actividad de capacitación se realice fuera de horas laborales y requiera el traslado del empleado fuera de su centro de trabajo. Dichos costos serán pagados de acuerdo a la tabla de viáticos vigente.

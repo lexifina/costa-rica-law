@@ -1,0 +1,1 @@
+Artículo 41.—La Comisión Institucional de Becas seleccionará a funcionarios para el otorgamiento de las becas en concurso, considerando para ello el estudio del Departamento de Recursos Humanos, su evaluación del desempeño y expediente personal.

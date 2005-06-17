@@ -1,0 +1,1 @@
+Artículo 65.—El funcionario becado deberá, una vez concluida su participación, rendir un informe al Departamento de Recursos Humanos sobre la capacitación recibida por el otorgamiento de la beca y estar en disposición de transmitir los conocimientos adquiridos cuando el Departamento lo requiera.

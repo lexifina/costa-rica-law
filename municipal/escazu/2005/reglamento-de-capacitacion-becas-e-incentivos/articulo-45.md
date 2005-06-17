@@ -1,0 +1,1 @@
+Artículo 45.—La Comisión Institucional de Becas deberá notificar en forma escrita en un término no mayor de los ocho días de concluida la sesión, las resoluciones tomadas al Departamento de Recursos Humanos, jefaturas respectivas y funcionarios interesados.

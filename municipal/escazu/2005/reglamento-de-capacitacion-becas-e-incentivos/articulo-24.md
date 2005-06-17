@@ -1,0 +1,1 @@
+Artículo 24.—Le corresponderá al Departamento de Recursos Humanos la capacitación de los empleados de la Municipalidad, la inducción del nuevo empleado, para mejorar en sus puestos de trabajo, para optar por otro puesto de trabajo, y la búsqueda de su desarrollo integral dentro de la Institución, en coordinación con las jefaturas correspondientes.

@@ -1,0 +1,1 @@
+Artículo 10.—Financiamiento de la actividad. Se considerará financiamiento al pago total o parcial de conceptos como salario, matrícula, derechos de estudios, derechos de exámenes, material didáctico, hospedaje, alimentación, transporte, tesis.

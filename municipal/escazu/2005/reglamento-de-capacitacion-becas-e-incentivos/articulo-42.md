@@ -1,0 +1,1 @@
+Artículo 42.—La Comisión Institucional de Becas deberá aprobar o no las propuestas para adjudicación de becas programadas y las otorgadas como incentivo, considerando para ello el estudio del Departamento de Recursos Humanos, el expediente personal y el contenido presupuestario.

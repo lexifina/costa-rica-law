@@ -1,0 +1,1 @@
+Artículo 37.—La Comisión Institucional de Becas realizará concursos mediante el Departamento de Recursos Humanos para becas dentro ó fuera del país, según un programa preestablecido o conforme se vayan ofreciendo.

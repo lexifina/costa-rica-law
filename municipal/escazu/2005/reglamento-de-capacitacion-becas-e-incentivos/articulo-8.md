@@ -1,0 +1,1 @@
+Artículo 8º—Becas para capacitación. Se considerarán becas para capacitación aquellas otorgadas a funcionarios para su capacitación o formación programadas o autorizadas por el Departamento de Recursos Humanos.

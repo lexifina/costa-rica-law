@@ -1,0 +1,1 @@
+Artículo 66.—Todo funcionario becado por la Municipalidad deberá adquirir un seguro de vida en el Instituto Nacional de Seguros por el período que dure el beneficio y por el monto otorgado, nombrando beneficiario del monto de la beca a la Municipalidad.

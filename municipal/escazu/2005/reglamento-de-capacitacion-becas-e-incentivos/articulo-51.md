@@ -1,0 +1,1 @@
+Artículo 51.—La Municipalidad brindará el tiempo necesario y el transporte a sus funcionarios para la participación en actividades de capacitación ó formación que se realicen en horas laborales fuera de sus respectivos centros de trabajo cubrirá los costos que el traslado implique acogiéndose a las tarifas establecidas para los medios colectivos de transporte.

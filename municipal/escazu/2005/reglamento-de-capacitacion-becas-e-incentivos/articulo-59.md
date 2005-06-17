@@ -1,0 +1,1 @@
+Artículo 59.—El Departamento de Recursos Humanos coordinará con el Departamento de Asuntos Jurídicos, la elaboración de un contrato de beca cuando requiera un permiso igual o mayor de 90 días naturales, o el financiamiento total o parcial que signifique una suma igual o mayor a un salario base de un Oficial de Seguridad Municipal.

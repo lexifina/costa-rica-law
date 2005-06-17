@@ -1,0 +1,1 @@
+Artículo 2º—Actividades de capacitación programadas. Se considerarán actividades de capacitación y formación programadas todas aquellas en que la Municipalidad mediante el Departamento de Recursos Humanos determine por medio de un estudio las necesidades en materia de capacitación y para su satisfacción elabora un plan cuyos objetivos tiendan a su solución.

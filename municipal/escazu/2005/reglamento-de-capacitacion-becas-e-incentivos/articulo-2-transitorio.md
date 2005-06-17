@@ -1,0 +1,1 @@
+Transitorio segundo. La Comisión Institucional de Becas iniciará funciones al entrar en vigencia el presente Reglamento. A la fecha deberán haber sido acreditados por parte del Despacho del Alcalde, los miembros que la integren. La omisión de este requisito no impedirá que esta Comisión inicie sus labores, si la mitad de esos miembros han sido acreditados.
