@@ -1,2 +1,0 @@
-Artículo 53.
-Ningún servidor podrá disfrutar de los beneficios que autoriza este reglamento mientras esté pendiente de cumplimiento algún contrato anterior, salvo casos muy calificados, siendo requisito indispensable el dictamen de la Comisión.

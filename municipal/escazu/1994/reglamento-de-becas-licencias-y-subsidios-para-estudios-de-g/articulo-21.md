@@ -1,2 +1,0 @@
-Artículo 21.
-Cuando por urgencia debidamente comprobada, en razón del tiempo en que se hubiere recibido la invitación respectiva, fuere absolutamente necesario prescindir el procedimiento atinente al concurso, la Administración, con el propósito de aprovechar al máximo posible la capacitación, podrá presentar a consideración de la Comisión, una lista con los nombres de los funcionarios que proponga para optar al curso o actividad de capacitación respectiva.

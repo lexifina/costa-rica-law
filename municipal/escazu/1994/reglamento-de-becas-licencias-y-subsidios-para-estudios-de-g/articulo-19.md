@@ -1,2 +1,0 @@
-Artículo 19.
-El aporte económico de la beca que haga la institución, deberá asegurarse por medio de garantía fiduciaria o real, a juicio de la administración, dadas las circunstancias del becario y el monto del beneficio otorgado. Cuando hubiere garantía fiduciaria, el fiador también suscribirá el contrato respectivo autorizando las prórrogas que puedan darse. Salvo lo dispuesto en el artículo 42 de este Reglamento.

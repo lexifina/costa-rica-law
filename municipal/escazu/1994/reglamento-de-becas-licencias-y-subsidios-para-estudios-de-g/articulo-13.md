@@ -1,2 +1,0 @@
-Artículo 13.
-Corresponde al Departamento Administrativo por medio de la Sección de Personal en coordinación con los Directores de Departamentos, proponer las políticas y elaborar el programa de capacitación interna y ejecutarlo, de lo cual informará trimestralmente a la Comisión.
