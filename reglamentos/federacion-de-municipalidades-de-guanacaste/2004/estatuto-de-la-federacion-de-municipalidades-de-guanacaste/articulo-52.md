@@ -1,0 +1,2 @@
+Artículo 52.—Procedimiento de disolución y liquidación. La disolución de la Federación requerirá acuerdo de la asamblea general, adoptado con el voto de los 2/3 y la ratificación de la mayoría de las entidades asociadas, en acuerdos adoptados con igual quórum.
+(Así corrida su numeración mediante sesión N° 01 celebrada el 18 de junio del 2005, al adicionarse los artículos 43 y 44 ordenando correr la numeración siguiente , por lo que este artículo pasó de ser el artículo "50" al actual artículo "52")

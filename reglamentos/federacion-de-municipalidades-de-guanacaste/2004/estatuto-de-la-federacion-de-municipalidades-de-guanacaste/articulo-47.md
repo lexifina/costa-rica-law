@@ -1,3 +1,4 @@
-CAPÍTULO XIX
-Altas y bajas de los socios
-Artículo 47.—Adhesiones. Podrán adherirse otros cantones o concejos municipales de distrito de cualquier parte del país. A tal efecto, los municipios solicitantes deberán adoptar acuerdo sobre ello con la aprobación de estos estatutos. la adhesión deberá ser aprobada por la asamblea general, y seguirá el mismo trámite que una modificación del estatuto.
+CAPÍTULO XVIII
+Distinciones especiales
+Artículo 47.—Miembros honoríficos. La asamblea general podrá nombrar miembros honoríficos a las personas naturales y jurídicas que por sus relevantes servicios, a la Federación hayan contribuido al desarrollo de los fines de la misma.
+(Así corrida su numeración mediante sesión N° 01 celebrada el 18 de junio del 2005, al adicionarse los artículos 43 y 44 ordenando correr la numeración siguiente , por lo que este artículo pasó de ser el artículo "45" al actual artículo "47")

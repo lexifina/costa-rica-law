@@ -1,1 +1,2 @@
-Artículo 44.—Las actividades económicas de la Federación estarán fiscalizadas por la Contraloría General de la República.
+Artículo 44.—La Unidad Técnica de la Zona Marítimo Terrestre, será financiada por las Municipalidades con jurisdicción costera, parte de la Federación y que se integren a dicha Unidad, a través de presupuestos ordinarios permanentes anuales, de los fondos recaudados por concepto de cánones de la Zona Marítimo Terrestre, de conformidad con el artículo 59) inciso b) de la Ley 6043, Ley sobre la Zona Marítimo Terrestre, del 2 de marzo de 1977.
+(Adicionado mediante sesión N° 01 celebrada el 18 de junio del 2005)

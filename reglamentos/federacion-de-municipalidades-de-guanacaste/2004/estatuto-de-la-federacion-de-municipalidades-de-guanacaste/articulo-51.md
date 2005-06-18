@@ -1,3 +1,4 @@
-Artículo 51.—Liquidación. Acordada la disolución por la asamblea general, ésta designará una comisión liquidadora que se encargará de la gestión del servicio y del destino de los bienes que integran el patrimonio de la Federación. La comisión liquidadora realizará su cometido en el plazo máximo de un año. Este procedimiento requerirá de modo obligatorio el refrendo de la Contraloría General de la República.
-Los bienes que hubiesen estado destinados a la prestación de los servicios desarrollados por la federación y adscritos por los cantones asociados, pasarán automáticamente a disposición de los mismos.
-En cuanto a los demás bienes, la comisión liquidadora adoptará los acuerdos pertinentes. Las municipalidades no responderán de las deudas y obligaciones contraídas por la Federación.
+CAPÍTULO XX
+Disolución y liquidación
+Artículo 51.—Causas de disolución. La disolución de la Federación podrá producirse por acuerdo adoptado en la asamblea general.
+(Así corrida su numeración mediante sesión N° 01 celebrada el 18 de junio del 2005, al adicionarse los artículos 43 y 44 ordenando correr la numeración siguiente , por lo que este artículo pasó de ser el artículo "49" al actual artículo "51")
