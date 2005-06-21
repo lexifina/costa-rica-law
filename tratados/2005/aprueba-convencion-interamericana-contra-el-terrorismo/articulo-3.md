@@ -1,0 +1,1 @@
+Artículo 3º—El inciso 3 del artículo 10 de esta Convención deberá interpretarse en el sentido de que lo dispuesto en él no podrá utilizarse para evadir, en forma alguna, los procedimientos de extradición establecidos en la Ley de Extradición y en los tratados vigentes sobre esta materia.

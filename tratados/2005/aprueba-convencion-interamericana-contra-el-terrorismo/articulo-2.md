@@ -1,0 +1,1 @@
+Artículo 2º—La República de Costa Rica interpreta que los mecanismos y procedimientos establecidos en esta Convención para los supuestos del inciso 1 del artículo 2, serán aplicables en tanto cada uno de los actos descritos en las convenciones relacionadas esté tipificado como delito en la legislación penal costarricense.
