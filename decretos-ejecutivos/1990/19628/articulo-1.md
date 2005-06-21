@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto fue DEROGADO mediante el artículo 1° del decreto ejecutivo N° 32517 de 21 de junio de 2005).
 ARTÖCULO 1§.-Para los fines de la ley n£mero 6877 y el decreto N§
 18564-MAG, cr‚ase el Distrito de Riego y Avenamiento y Zona de
 Conservaci¢n de Suelos Osa-Golfito y Corredores de la provincia de
