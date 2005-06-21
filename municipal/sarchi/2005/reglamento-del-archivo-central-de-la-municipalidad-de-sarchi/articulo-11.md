@@ -1,0 +1,1 @@
+Artículo 11.—La documentación no podrá salir de la Institución salvo en los casos de exposición o requerimiento de los Tribunales de Justicia y la Contraloría General de la República, para estos casos deberá quedar una copia fotostática certificada por la Secretaria Municipal, como respaldo y en los casos que proceda se dará en préstamo esas copias.

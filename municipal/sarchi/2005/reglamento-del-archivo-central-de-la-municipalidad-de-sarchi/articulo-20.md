@@ -1,0 +1,1 @@
+Artículo 20.—El Concejo Municipal, el Alcalde Municipal y la Sección de Archivo Central, deberán promover exposiciones, conferencias y seminarios con el fin de acercar a los ciudadanos y dar conocer al público en general nuestra historia.

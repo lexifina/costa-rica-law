@@ -1,0 +1,1 @@
+Artículo 17.—Los jefes de departamentos o encargados de oficina serán los responsables de que en su oficina se ordenen y archiven correctamente los documentos siguiendo las normas de procedimientos establecidos por el Archivo Central, asimismo será el responsable de que se archiven correctamente las listas de remisión.
