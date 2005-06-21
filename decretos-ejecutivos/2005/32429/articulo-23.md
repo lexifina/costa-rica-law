@@ -1,0 +1,1 @@
+Artículo 23.—Utilización de esposas. Para la utilización de esposas durante el allanamiento y en la conducción y transporte de personas menores de edad aprehendidos como resultado del allanamiento, se estará a lo dispuesto en los numerales 9 y 11 del presente Reglamento.

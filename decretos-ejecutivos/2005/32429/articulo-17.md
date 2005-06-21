@@ -1,0 +1,2 @@
+Artículo 17.—Violencia doméstica. En las intervenciones policiales que se realicen en los casos de violencia doméstica, el oficial de policía deberá actuar en forma inmediata, salvaguardando prioritariamente la integridad física, sexual, emocional y psicológica de la persona menor de edad.
+Asimismo, pondrá de inmediato el asunto en conocimiento del Patronato Nacional de la Infancia para lo correspondiente y remitirá el asunto, sin demora, al Juzgado de Violencia Doméstica o a la Autoridad Judicial que por competencia conozca la materia.

@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Deberes y atribuciones de los miembros de los cuerpos policiales
+ante personas menores de edad en conflicto con la ley penal
+Artículo 7º—Interés superior de la persona menor de edad.
+En toda acción policial en que forme parte una persona menor de edad en conflicto con la ley penal, se debe proteger al máximo su integridad física y su dignidad, así como su imagen, identidad, y aquellos datos que faciliten su individualización e identificación por terceros ajenos al proceso o procedimiento correspondiente. Queda estrictamente prohibido que al amparo de una actuación policial, un oficial de policía permanezca a solas, en un lugar aislado, con una persona menor de edad. En caso de imposibilidad objetiva para cumplir con esta última disposición, el oficial, para fundamentar su actuación, deberá buscar a una persona mayor de edad ajena a la investigación, que sea testigo del procedimiento, y que pueda dar fe del respeto a los derechos fundamentales y al interés superior de la persona menor de edad.

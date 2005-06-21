@@ -1,0 +1,3 @@
+CAPÍTULO V
+Deberes y atribuciones de los miembros de los cuerpos policiales ante personas menores de edad víctimas de hechos delictivos o contravenciones
+Artículo 15.—Aspectos generales. En toda actuación policial en que se encuentre involucrada una persona menor de edad en calidad de víctima, el oficial de policía deberá solicitar los datos de identificación mínimos necesarios de la persona menor de edad y un relato sucinto de los hechos, evitando realizar preguntas innecesarias que podrían perjudicar la estabilidad emocional de la víctima, y de inmediato deberá remitirla a la autoridad judicial competente o al Patronato Nacional de la Infancia, según sea el caso.

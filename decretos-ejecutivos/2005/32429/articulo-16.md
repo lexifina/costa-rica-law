@@ -1,0 +1,1 @@
+Artículo 16.—Denuncia. Cuando una persona menor de edad informe a la autoridad administrativa cualquier delito o contravención cometidos en su perjuicio, el oficial de policía deberá informar de inmediato a la autoridad judicial competente y realizar todas las gestiones necesarias que el caso requiera.

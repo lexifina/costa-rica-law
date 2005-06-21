@@ -1,0 +1,1 @@
+Artículo 28.—Custodia o traslado. Cuando una autoridad judicial solicite la custodia o traslado de una persona menor de edad, el jefe de la Delegación respectiva seleccionará el personal idóneo, el cual velará porque en la actuación solicitada se respeten los derechos fundamentales de la persona menor de edad y se actúe conforme a lo aquí dispuesto.

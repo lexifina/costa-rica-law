@@ -1,0 +1,1 @@
+Artículo 19.—Abuso de la autoridad parental. Cuando un o una oficial tenga conocimiento de abuso u omisión en el ejercicio de la autoridad parental en perjuicio de una persona menor de edad, deberá confeccionar el informe respectivo y remitir de inmediato a la autoridad judicial competente y al Patronato Nacional de la Infancia.

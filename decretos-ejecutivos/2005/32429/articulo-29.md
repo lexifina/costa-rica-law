@@ -1,0 +1,1 @@
+Artículo 29.—Otras actuaciones. Cualquier actuación policial que no provenga de un hecho cometido en flagrancia, deberá ser realizada en coordinación con las autoridades administrativas y policiales competentes.

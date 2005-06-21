@@ -1,0 +1,1 @@
+Artículo 22.—Personas menores de edad ajenas al hecho investigado. Si en el lugar allanado se encuentran personas menores de edad que no tienen relación con el hecho investigado, el oficial de policía deberá comunicar de inmediato esta circunstancia al fiscal y al juez a cargo del asunto, además del Patronato Nacional de la Infancia.
