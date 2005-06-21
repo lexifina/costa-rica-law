@@ -1,0 +1,1 @@
+Artículo 3º—Procedencia. En los supuestos indicados en los dos artículos que anteceden, se entenderá por Junta Administrativa de la Imprenta Nacional, sus directores integrantes, el Director Ejecutivo, el Asesor Legal, la Secretaria Ejecutiva. Asimismo, en el caso de invitados asistentes especiales, deberá justificarse razonadamente la trascendencia de la visita.
