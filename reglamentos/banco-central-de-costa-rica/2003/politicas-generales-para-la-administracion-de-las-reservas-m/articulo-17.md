@@ -1,4 +1,6 @@
-Artículo 17.—Contrapartes para préstamo de títulos, recompras y reventas.
-Las operaciones de préstamo de títulos y de recompra y reventa de valores podrán ser efectuadas, directamente o por medio de administradores externos. Dichas operaciones se efectuaran con grupos bancarios comerciales o de inversión de primer orden, reconocidos como tales de conformidad con lo dispuesto en el Artículo 107 de la Ley 7558 del 27 de noviembre de 1995 y sus modificaciones, cuya calificación de riesgo, sea A-1, para el corto plazo y A+ para obligaciones de largo plazo. En el caso que algunas de estas contrapartes no cuenten con calificaciones de largo plazo, sólo se considerarán las de corto plazo.
-Los grados mencionados se refieren a las calificaciones de Standard & Poor's o el equivalente de cualquiera otra agencia calificadora reconocida internacionalmente y autorizada para operar por la Securities and Exchange Commission de los Estados Unidos de América.
-(Así corrida su numeración, en sesión N° 5202 de 16 de junio de 2004, que lo traspasó del antiguo 13 al 17 actual del artículo)
+Artículo 17.—Plazo máximo de inversión. Los plazos máximos por tipo de instrumento serán los que se especifican a continuación:
+a. Obligaciones emitidas por gobiernos soberanos, agencias
+gubernamentales y entidades multilaterales: 10 años.
+b. Operaciones de préstamo de títulos: 90 días.
+c. Instrumentos de mercado de dinero: aplicarán los mismos límites
+especificados en el artículo 13 de estas normas.

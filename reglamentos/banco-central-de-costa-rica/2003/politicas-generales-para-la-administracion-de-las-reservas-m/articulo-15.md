@@ -1,3 +1,8 @@
-Artículo 15.—Depositarios y emisores. Las inversiones del tramo de inversión podrán realizarse en gobiernos soberanos, bancos centrales, agencias gubernamentales, entidades oficiales y entidades supranacionales o multilaterales, cuya calificación de riesgo propio o soberano, para obligaciones de largo plazo, sea igual o superior a A+/A1/A+, según Standard & Poor´s, Moody´s o Fitch, respectivamente. Con excepción de los gobiernos soberanos y los bancos centrales, todas las entidades antes mencionadas deberán ser reconocidas, previamente, como bancos extranjeros de primer orden, de conformidad con lo dispuesto en el artículo 107 de la Ley Nº 7558 del 27 de noviembre de 1995 y sus reformas.
-Los saldos remanentes de efectivo podrán invertirse en los instrumentos y entidades especificadas en los artículos 11 y 12 de este reglamento, excepto en entidades financieras en las que el Estado costarricense tenga participación accionaria directa o indirecta. Las entidades mencionadas y los activos elegibles que ellos emitan deberán contar con una calificación de corto plazo igual o superior a A-1/P-1/F1, según Standard & Poor´s, Moody´s o Fitch, respectivamente.
-(Así adicionado en sesión N° 5202 del 16 de junio del 2005)
+CAPÍTULO III
+Portafolio de Dólares: Tramo de Inversión
+Artículo 15.—Instrumentos elegibles. Los recursos del tramo de inversión del portafolio de dólares de las reservas monetarias internacionales podrán ser invertidos en los siguientes instrumentos:
+a. Bonos gubernamentales.
+b. Valores de deuda emitidos por agencias gubernamentales y entidades oficiales, no garantizados por hipotecas u otro tipo de activos, ni redimibles anticipadamente.
+c. Depósitos y bonos emitidos por entidades supranacionales o multilaterales.
+d. Acuerdos de préstamos de títulos con instrumentos del Tesoro de Estados Unidos de América, títulos de agencias gubernamentales, entidades oficiales y multilaterales.
+Adicionalmente, podrán invertirse saldos remanentes de efectivo en los instrumentos de mercado de dinero consignados en el artículo 11 de las presentes normas.

@@ -17,3 +17,4 @@ Políticas Generales para la Administración de las Reservas Monetarias Internac
 | 2 | 2005-01-30 | Reglamento 5202 (2004-06-16) |
 | 3 | 2005-01-30 | Reglamento 5209 (2004-08-04) |
 | 4 | 2005-01-30 | Reglamento 5229 (2005-01-05) |
+| 5 | 2005-06-22 | Reglamento 5236 (2005-06-22) |

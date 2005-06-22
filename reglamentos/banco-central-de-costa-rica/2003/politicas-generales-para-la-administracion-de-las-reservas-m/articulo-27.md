@@ -1,2 +1,1 @@
-Artículo 27.—Metas de desempeño. El Comité de Reservas establecerá anualmente las metas de desempeño de los administradores internos y externos.
-(Así corrida su numeración, en sesión N° 5202 de 16 de junio de 2004, que lo traspasó del antiguo 23 al 27 actual del artículo)
+Artículo 27.—Riesgo soberano. El Comité de Reservas, cuando lo considere necesario, podrá limitar aún más las inversiones en el tramo de liquidez de los portafolios de dólares y euros para los depositarios y emisores, cuyo país de residencia cuenta con una calificación de riesgo soberano de largo plazo menor a AA-, Aa3 o AA- según las agencias calificadoras de riesgo internacional de Standard & Poor’s, Moody’s Investor Services y Fitch Ibca, respectivamente.

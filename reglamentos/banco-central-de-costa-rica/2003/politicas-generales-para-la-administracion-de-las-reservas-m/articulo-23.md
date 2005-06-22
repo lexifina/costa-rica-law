@@ -1,2 +1,4 @@
-Artículo 23.—Corresponsales. De acuerdo con lo establecido en el Artículo 28 de la Ley Orgánica del Banco Central de Costa Rica, la Junta Directiva acordara y revocara la designación de corresponsales fuera del país para el manejo de sus cuentas corrientes u otras cuentas operativas necesarias para la administración de las reservas monetarias internacionales. Sólo serán considerados bancos del exterior de primer orden, reconocidos como tales de conformidad con lo dispuesto en el Artículo 107 de la Ley 7558 del 27 de noviembre de 1995, que presten servicios a nivel global y cuya calificación de corto plazo sea A-1 de Standard & Poors o el equivalente de cualquier otra agencia calificadora reconocida internacionalmente y autorizada para operar por la Securities and Exchange Commission de los Estados Unidos.
-(Así corrida su numeración, en sesión N° 5202 de 16 de junio de 2004, que lo traspasó del antiguo 19 al 23 actual del artículo)
+Artículo 23.—Plazo máximo de inversión. Los plazos máximos por tipo de instrumento serán los que se especifican a continuación:
+a. Notas de descuento e instrumentos de corto plazo emitidos por gobiernos soberanos, agencias gubernamentales y entidades multilaterales: 360 días.
+b. Certificados de depósito y papel comercial: 180 días.
+c. Depósitos a plazo: 90 días.

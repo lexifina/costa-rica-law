@@ -1,6 +1,4 @@
-Artículo 16.—Plazo máximo de inversión. Los plazos máximos por tipo de instrumento serán los que se especifican a continuación:
-a. Obligaciones emitidas por gobiernos soberanos o por agencias gubernamentales y entidades supranacionales o multilaterales: Diez años.
-b. Operaciones de préstamo de títulos: 90 días.
-c. Instrumentos de mercado de dinero: aplicarán los mismos límites especificados en el artículo 13 de estas normas.
-El Comité de Reservas, cuando lo considere necesario, podrá limitar aún más los plazos máximos de inversión.
-(Así adicionado en sesión N° 5202 del 16 de junio del 2004)
+Artículo 16.—Depositarios y emisores. Las inversiones del tramo de inversión del portafolio de dólares podrán realizarse en gobiernos soberanos, bancos centrales, agencias gubernamentales, entidades oficiales y entidades supranacionales o multilaterales, cuya calificación de riesgo propio o soberano de largo plazo, sea igual o superior a A+, A1 o A+, según las agencias calificadoras de riesgo internacional de Standard & Poor’s, Moody’s Investor Services o Fitch Ibca, respectivamente. Con excepción de los gobiernos soberanos y los bancos centrales, todas las entidades antes mencionadas deberán ser reconocidas, previamente, como bancos extranjeros de primer orden, de conformidad con lo dispuesto en el artículo 107 de la Ley Nº 7558 del 27 de noviembre de 1995 y sus reformas.
+Además, los depositarios o emisores, a excepción de las entidades multilaterales, deberán contar con calificación de riesgo soberano de largo plazo del país de residencia, igual o superior a AA-, Aa3 o AA-, según las agencias calificadoras de riesgo internacional de Standard & Poor’s, Moody’s Investor Services y Fitch Ibca, respectivamente.
+En los países cuya moneda oficial es el dólar de Estados Unidos de América, se analizará los ratings soberanos en divisa local y en los demás países el ratings soberano en moneda extranjera.
+Los saldos remanentes de efectivo podrán invertirse en las entidades especificadas en el artículo 12 de esta normativa.

@@ -1,2 +1,1 @@
-Artículo 18.—Prohibición. No será permitido colocar inversiones en entidades clasificadas como paralelas ("offshore").
-(Así corrida su numeración, en sesión N° 5202 de 16 de junio de 2004, que lo traspasó del antiguo 14 al 18 actual del artículo)
+Artículo 18.—Parámetro de referencia. El desempeño del tramo de inversión será contrastado con el índice de referencia de bonos del Tesoro de los Estados Unidos de América con plazo al vencimiento entre uno y tres años, calculado por Merrill Lynch (ticket de Bloomberg: G1O2).

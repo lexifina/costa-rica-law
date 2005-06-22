@@ -1,4 +1,4 @@
-Artículo 9°—Estructura de las Reservas Monetarias Internacionales Disponibles. Las Reservas Monetarias Internacionales Disponibles del Banco Central de Costa Rica tendrán la siguiente estructura:
-a) Tramo de Liquidez: Los recursos mantenidos en este tramo contribuirán a solventar las necesidades de caja del Banco Central de Costa Rica y la normal realización de pagos al exterior.
-b) Tramo de Inversión: El objetivo de este tramo será maximizar el rendimiento de las reservas, dentro de los niveles de riesgo tolerables, según se define en la presente normativa.
-c) Tramo de garantía: Los recursos mantenidos en este tramo garantizarán operaciones de crédito u otros compromisos en el exterior.
+Artículo 9º—Composición por moneda. Las reservas monetarias internacionales (RMI) del Banco Central de Costa Rica estarán denominadas en dólares de los Estados Unidos de América y en euros.
+Las RMI Disponibles constituidas en dólares y en euros, son aquellos activos líquidos que constituyen un pasivo en dólares de los Estados Unidos de América y en euros, respectivamente, para el Banco Central de Costa Rica.
+Las RMI denominadas en dólares se invertirán en activos emitidos en dólares de los Estados Unidos de América o bien en otras divisas internacionales. La exposición en monedas diferentes al dólar de los Estados Unidos de América deberá ser contrarrestada mediante la adquisición de instrumentos de cobertura.
+Las RMI denominadas en euros se invertirán en activos emitidos en esa misma moneda.
