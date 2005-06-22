@@ -14,3 +14,4 @@ Reforma integral al Reglamento para el reconocimiento del incentivo por peligros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-23 | la propia norma |
+| 2 | 2005-06-22 | Decreto Ejecutivo 32503 (2005-06-22) |
