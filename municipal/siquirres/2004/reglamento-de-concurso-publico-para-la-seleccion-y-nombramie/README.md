@@ -15,3 +15,4 @@ Reglamento de Concurso Público para la Selección y Nombramiento del Auditor In
 | --- | --- | --- |
 | 1 | 2004-05-13 | la propia norma |
 | 2 | 2005-04-07 | Reglamento municipal 75 (2005-04-07) |
+| 3 | 2005-06-22 | Reglamento municipal 165 (2005-06-22) |
