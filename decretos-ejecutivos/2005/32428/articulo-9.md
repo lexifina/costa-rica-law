@@ -1,0 +1,2 @@
+Artículo 9º—Reposición o cambio de tarjetas. En caso de extravío, deterioro o robo de la tarjeta, el beneficiario deberá comunicarse con el departamento de Parqueos de la Administración del AIJS para proceder con su inmediata desactivación. El beneficiario será responsable por cualquier uso inadecuado o ilegítimo que se dé a la tarjeta asignada.
+En caso de extravío, deterioro o robo de la tarjeta, el beneficiario deberá cancelar el monto correspondiente al costo de emisión de la tarjeta para que proceda su restitución.

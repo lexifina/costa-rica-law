@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. Establecer lineamientos que permitan regular la asignación y el uso de espacios por funcionarios públicos y vehículos oficiales de las dependencias gubernamentales que prestan servicios en el Aeropuerto Internacional Juan Santamaría, de conformidad con la obligación dispuesta en el Anexo A.3. del Contrato de Gestión Interesada.
