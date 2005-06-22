@@ -14,3 +14,4 @@ Reglamento de Evaluación de los Aprendizajes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-12 | la propia norma |
+| 2 | 2005-06-22 | Decreto Ejecutivo 32681 (2005-06-22) |
