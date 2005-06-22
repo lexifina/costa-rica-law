@@ -1,1 +1,1 @@
-Artículo 6°—El pago del incentivo que aquí se establece estará condicionado a que el funcionario desempeñe sus funciones al servicio efectivo de CENADRO y su plaza esté cubierta por el presupuesto institucional."
+Artículo 6º—El incentivo se otorgará a todos los funcionarios del Instituto Costarricense sobre Drogas.

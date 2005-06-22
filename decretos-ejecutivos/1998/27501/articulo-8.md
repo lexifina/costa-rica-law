@@ -1,0 +1,1 @@
+Artículo 8º—Compete a la Dirección General de Servicio Civil el control del pago del incentivo que aquí se regula, el ejercicio de la fiscalización del reconocimiento y pago del mismo, así como la emisión de las normas y criterios relativas a éste.
