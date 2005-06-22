@@ -5,3 +5,5 @@ c) Que en virtud de la baja cuantía se justifique la adquisición del bien o se
 d) Que además de su baja cuantía, el bien o servicio sea tan indispensable y de tal urgencia que se justifique su contratación o adquisición sin seguir los trámites ordinarios establecidos en la Ley de Contratación Administrativa y su Reglamento.
 e) Que la selección de bienes o servicios beneficien en precio y calidad a la Institución.
 f) Que no se trate de compras fraccionadas repetitivas para ajustar el monto de las adquisiciones a la suma autorizada para los desembolsos de Caja Chica.
+g) Que tenga contenido económico y contemplado en el presupuesto.
+(Así adicionado el inciso anterior en sesión N° 9 del 22 de junio del 2005)
