@@ -14,3 +14,4 @@ Reglamento de Auditores Extrenos aplicable a los sujetos fiscalizados por SUGEF,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-09 | la propia norma |
+| 2 | 2005-06-23 | Reglamento 514 (2005-06-23) |
