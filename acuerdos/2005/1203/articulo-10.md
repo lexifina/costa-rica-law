@@ -1,0 +1,1 @@
+10.—Completar la tabla de aportes presupuestados en la que se detalla la cantidad de recursos con los que se cuenta para realizar el proyecto y las diferentes instancias que los aportan. Un ejemplar de esta tabla puede ser obtenido en el departamento de Proyectos de Dinadeco.

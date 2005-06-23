@@ -1,0 +1,1 @@
+13.—Todo proyecto de infraestructura deberá acompañarse del estudio técnico respectivo donde se detalle el tramo o lugar (sitio de la obra), descripción detallada de la obra a realizar, presupuesto de materiales y cálculo de la mano de obra necesarios, así como el respectivo diseño de la obra; todo formalmente elaborado por un profesional competente.

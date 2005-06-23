@@ -1,0 +1,1 @@
+17.—Certificación actualizada emitida por el Registro Público de la Propiedad, del terreno donde se va a desarrollar la obra, donde se consigne el propietario del terreno, linderos, gravámenes, prendas y anotaciones (en caso de existir). Tal certificación no debe sobrepasar los tres meses de haber sido emitida.

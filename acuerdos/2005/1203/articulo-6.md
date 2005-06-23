@@ -1,0 +1,1 @@
+6º—Fotocopia fiel, clara y completa del acta de la asamblea general de afiliados donde se da a conocer y se aprueba el provecto, en la cual deben constar los respectivos números de folio así como los sellos de legalización de Dinadeco. En su defecto, fotocopia del acta con las mismas condiciones, en la que se aprueba el plan de trabajo.
