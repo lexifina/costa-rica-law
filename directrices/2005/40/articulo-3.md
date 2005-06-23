@@ -1,0 +1,1 @@
+Artículo 3º—Establecer normas y mecanismos que permitan la interoperatibilidad de los sistemas de información entre instituciones públicas y dentro de ellas cuando por su función así lo requieran empleando tecnologías de manera rentable, eficiente y segura.
