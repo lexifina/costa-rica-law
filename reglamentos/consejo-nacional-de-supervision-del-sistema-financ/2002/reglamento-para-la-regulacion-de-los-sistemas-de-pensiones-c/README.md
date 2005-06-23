@@ -16,3 +16,4 @@ Reglamento para la Regulación de los Sistemas de Pensiones Complementarias, cre
 | 1 | 2002-06-11 | la propia norma |
 | 2 | 2002-12-19 | Reglamento 346 (2002-12-19) |
 | 3 | 2004-03-09 | Reglamento 424 (2004-03-09) |
+| 4 | 2005-06-23 | Reglamento 514 (2005-06-23) |

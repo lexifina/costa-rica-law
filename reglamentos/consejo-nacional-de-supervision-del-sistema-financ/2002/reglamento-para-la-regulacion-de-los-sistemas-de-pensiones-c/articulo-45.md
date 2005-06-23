@@ -1,1 +1,1 @@
-Artículo 45.—Del coeficiente de reserva. El coeficiente de reserva se estimará con criterios técnicos actuariales, según las características de cada régimen.
+Artículo 45.—Derogado en sesión N° 514 del 23 de junio del 2005.

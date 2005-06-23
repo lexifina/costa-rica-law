@@ -1,1 +1,1 @@
-Artículo 49.—De la presentación de los estudios actuariales a la Superintendencia. Los estudios actuariales deberán presentarse a la Superintendencia en la forma y tiempo que establezca el Superintendente mediante disposición general. El actuario responsable del estudio deberá efectuar una presentación de éste ante la Superintendencia, cuando así lo disponga el Superintendente.
+Artículo 49.—Derogado en sesión N° 514 del 23 de junio del 2005.

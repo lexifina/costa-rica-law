@@ -1,9 +1,3 @@
 CAPÍTULO V
 Estudios Actuariales
-Artículo 43.—De la base de cálculo actuarial. Los beneficios que ofrezcan los fondos a los afiliados deben estar basados en cálculos actuariales realizados en forma individual para cada uno de los beneficios o coberturas ofrecidas, considerando:
-a) Monto de las cotizaciones, periodicidad de pago, edad y sexo del solicitante.
-b) Ocurrencias y eventos futuros que afecten los costos de los beneficios. Los mismos deberán quedar debidamente explícitos, entre ellos: inflación, rendimiento de la inversión, ajuste a las pensiones, mortalidad, invalidez y retiro de la fuerza de trabajo, rehabilitación, separación de afiliados a los sistemas, composición familiar, gastos de administración, nuevos participantes, edad de ingreso al empleo, variación de los salarios, ganancias o pérdidas de capital, procedimientos para determinar el valor actuarial de los activos, características de ingresos a un método actuarial en particular y cualquier otro aspecto que el actuario considere relevante. Las hipótesis utilizadas deberán ser adecuadamente justificadas a criterio del Superintendente de Pensiones.
-c) Tasa Técnica Actuarial. Para la elaboración del estudio actuarial, Se deberá considerar una tasa técnica no superior al 4% anual. Estos porcentajes podrán ser variados por el Superintendente de Pensiones cuando medien razones técnicas para ello.
-d) Tablas de mortalidad. Se deberán utilizar bases biométricas de ocurrencia de los diferentes riesgos cubiertos por los planes, las cuales deberán estar aprobadas previamente por el Superintendente de Pensiones.
-e) Edad promedio. Cuando los planes prevean el retiro en diferentes edades, se podrá utilizar una edad promedio de retiro o aplicar tasas de retiro ponderadas para las diferentes edades.
-f) Cuantificación de pasivos. Se deberá cuantificar el monto de las obligaciones o pasivos contingentes, es decir, beneficios por pensiones y reservas técnicas, y el valor de los activos acumulados.
+Artículo 43.—Derogado en sesión N° 514 del 23 de junio del 2005.
