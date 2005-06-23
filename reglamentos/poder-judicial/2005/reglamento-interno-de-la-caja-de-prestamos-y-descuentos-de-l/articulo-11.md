@@ -1,0 +1,1 @@
+Artículo 11.—Al producirse el fallecimiento de un socio o afiliado, el aporte de capital, ahorro voluntario e intereses, se entregarán a sus beneficiarios. Si no hubiere nombrado beneficiarios, el aporte de capital, ahorro voluntario e intereses, se entregarán de conformidad con lo expuesto en el artículo Nº 3 de la Ley Constitutiva de la Caja.

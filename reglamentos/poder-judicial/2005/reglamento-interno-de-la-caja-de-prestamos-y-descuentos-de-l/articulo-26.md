@@ -1,0 +1,1 @@
+Artículo 26.—Tres miembros propietarios de la junta directiva formarán quórum para celebrar sesión, y los acuerdos se tomarán por mayoría de votos de los presentes. Los suplentes tendrán derecho a voto cuando sustituyan a un miembro propietario, una vez declarada su ausencia.

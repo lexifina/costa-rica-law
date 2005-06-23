@@ -1,0 +1,1 @@
+Artículo 5º—Forma de realizar sus fines. Para el cumplimiento de sus fines, se entiende que la CAPREDE está facultada para realizar todas aquellas actuaciones que no le estén prohibidas por la ley, el orden público y los derechos de terceros

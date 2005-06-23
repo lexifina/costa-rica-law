@@ -1,0 +1,1 @@
+Artículo 28.—La asamblea general de delegados es la autoridad suprema de CAPREDE, quién estará administrado por una junta directiva que gozará de absoluta autonomía y cuya total responsabilidad por los acuerdos que tome recaerá sobre sus miembros así como cualquier acción judicial que eventualmente se interpusiere como derivación de los mismos.

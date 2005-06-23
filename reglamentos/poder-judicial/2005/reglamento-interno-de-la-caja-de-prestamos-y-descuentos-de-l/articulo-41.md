@@ -1,0 +1,1 @@
+Artículo 41.—Cuatro ausencias consecutivas o seis alternativas sin justificación de un director, será considerado como abandono del cargo y dará motivo para la correspondiente cancelación de la credencial y la respectiva solicitud de reposición, a tenor del artículo 20, previo acuerdo de la junta directiva.

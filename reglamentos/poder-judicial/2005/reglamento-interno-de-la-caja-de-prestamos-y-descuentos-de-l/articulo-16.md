@@ -1,0 +1,1 @@
+Artículo 16.—Las sumas acumuladas por el aporte de capital serán registradas en cuentas individuales a nombre de cada socio o afiliado, pudiéndose o no emitir títulos por montos que decida la junta directiva.

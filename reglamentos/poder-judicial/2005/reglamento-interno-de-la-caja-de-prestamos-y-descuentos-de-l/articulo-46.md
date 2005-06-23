@@ -1,0 +1,1 @@
+Artículo 46.—De todos los asuntos tratados y de los acuerdos tomados durante las sesiones, deberá quedar constancia clara y precisa en el acta correspondiente, así como de las opiniones y de los votos razonados. En estos casos el director podrá presentar por escrito su intervención o solicitar que se transcriba textualmente la grabación correspondiente.

@@ -1,0 +1,1 @@
+Artículo 19.—Los propietarios durarán cinco años en sus funciones y los suplentes tres años. Esos nombramientos se renovarán al vencerse el período correspondiente o cuando ocurran vacantes por motivos especiales o extraordinarios.

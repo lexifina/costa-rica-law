@@ -1,0 +1,1 @@
+Artículo 36.—Las sesiones ordinarias se efectuarán una vez cada quince días. Si en alguna ocasión el día señalado para una sesión resultare feriado, de fiesta o asueto, la sesión podrá realizar en cualquier otro día de la misma semana.

@@ -1,0 +1,1 @@
+Artículo 50.—La administración de la Caja estará a cargo de un gerente, que será nombrado cada dos años por la junta directiva, con el voto favorable de cuatro de sus miembros por lo menos y podrá ser reelecto para periodos iguales.

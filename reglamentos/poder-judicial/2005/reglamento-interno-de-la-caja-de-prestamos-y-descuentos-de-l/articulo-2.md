@@ -1,0 +1,1 @@
+Artículo 2º—Domicilio. Su domicilio es en la ciudad de San José, pero se podrán establecer agencias y sucursales en cualquier población del territorio nacional en que funcionen oficinas del Poder Judicial, cuando la junta directiva lo estime conveniente.

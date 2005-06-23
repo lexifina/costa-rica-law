@@ -1,0 +1,1 @@
+Artículo 22.—Un miembro propietario que ha cumplido su período legal completo de cinco años, no podrá ser reelegido para ningún cargo en la junta directiva, pero sí podrán ser reelegidos nuevamente un año después de su vencimiento.

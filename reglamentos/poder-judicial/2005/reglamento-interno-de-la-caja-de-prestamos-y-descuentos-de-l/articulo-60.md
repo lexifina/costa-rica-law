@@ -1,0 +1,1 @@
+Artículo 60.—Las reformas a este Reglamento deberán presentarse a la junta directiva, por escrito, con las consideraciones que la motivan y el texto de la redacción propuesta. Las reformas se conocerán en la o las siguientes sesiones a la que fue presentada la misma.

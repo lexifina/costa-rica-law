@@ -1,0 +1,1 @@
+Artículo 53.—El gerente es el jefe superior e inmediato de todas las dependencias administrativas de la CAPREDE y de sus empleados, excepto de los asesores, y es responsable del eficiente y correcto funcionamiento de la institución, de conformidad con las leyes, los reglamentos y las disposiciones de la junta directiva.

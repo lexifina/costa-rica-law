@@ -1,0 +1,1 @@
+Artículo 23.—Un miembro suplente puede ser elegido para suplir a un miembro propietario según lo indican los artículos 20 y 21 y también puede ser reelegido como miembro suplente hasta por un período a partir de su vencimiento, después de estos dos períodos consecutivos, deberá esperar hasta un año para ser propuesto como miembro suplente.

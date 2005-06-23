@@ -1,0 +1,1 @@
+Artículo 38.—Por cada sesión de junta directiva o comisión se pagará la dieta correspondiente que para tal efecto determine la junta directiva. Tendrán derecho al pago de la dieta por cada sesión, los directores que inicien y finalicen la misma, salvo lo dispuesto en el artículo 43.

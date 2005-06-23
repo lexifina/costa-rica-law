@@ -1,0 +1,1 @@
+Artículo 45.—Si en el momento de una votación existiera empate deberá votarse nuevamente el asunto previa exposición de motivos. Si persistiera dicho empate, la presidencia decidirá con voto de calidad; en caso de aprobación de créditos la presidencia no podrá ejercer el voto de calidad.

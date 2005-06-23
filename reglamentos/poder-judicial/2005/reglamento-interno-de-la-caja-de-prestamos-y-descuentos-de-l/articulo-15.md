@@ -1,0 +1,1 @@
+Artículo 15.—Los giros cheques y efectivo que le pertenezcan a la institución, se depositarán en las cuentas corrientes de la Caja en el Banco de Costa Rica y/o en cualquier otro ente bancario del Sistema Financiero Nacional, o cualquier puesto de la Bolsa Nacional de Valores, que se encuentre avalada por la Superintendencia General de Entidades Financieras.

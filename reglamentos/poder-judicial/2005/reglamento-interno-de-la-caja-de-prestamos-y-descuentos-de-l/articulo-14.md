@@ -1,0 +1,1 @@
+Artículo 14.—Las cuotas deducidas serán giradas a la orden de la Caja de Préstamos y Descuentos de los Empleados del Poder Judicial por las oficinas de la entidad deductora correspondiente y por el Departamento Financiero Contable la encargada de la confección de cheques de Jubilados.

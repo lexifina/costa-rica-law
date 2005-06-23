@@ -1,0 +1,1 @@
+Artículo 10.—Cuando se produzca el fallecimiento de un socio afiliado y tuviere deudas con la Caja, estas se cobrarán del monto de las acciones, del 50 % del Fondo de Mutualidad y monto de ahorro y sus intereses, en caso de no operar el fondo de contingencias y si tuviere saldo a favor se procederá conforme al artículo 8º.

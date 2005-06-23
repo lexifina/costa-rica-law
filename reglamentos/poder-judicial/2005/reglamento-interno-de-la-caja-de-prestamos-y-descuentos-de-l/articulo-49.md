@@ -1,0 +1,1 @@
+Artículo 49.—Los miembros de la junta directiva no podrán prevalecer en su condición de tales, para hacer propaganda de carácter político, religioso o sectario, dentro del recinto de la Caja o mientras desempeña funciones específicas inherentes a la misma. Funciones del Gerente

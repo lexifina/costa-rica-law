@@ -1,0 +1,1 @@
+Artículo 51.—Será inamovible, salvo el caso de que a juicio de la junta directiva y previa información en el ejercicio de sus funciones se hubiere comprobado que no cumple debidamente con su cometido. La remoción del gerente sólo podrá acordarse con el mismo número de votos requeridos para su nombramiento.

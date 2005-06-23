@@ -1,0 +1,1 @@
+Artículo 4º—Objetivos de la Institución. Tiene por objeto facilitar el acceso al crédito, estimulando el ahorro de sus asociados como un medio de acceso al mismo. Todo ello según las directrices que establezca la junta directiva.

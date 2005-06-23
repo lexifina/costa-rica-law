@@ -1,0 +1,1 @@
+Artículo 27.—Si por cualquier motivo el presidente o la gerencia prevén la imposibilidad de efectuar una sesión ordinaria según el calendario establecido, ésta comunicará con 24:00 horas de antelación, indicando, a los directivos el motivo de la posposición.

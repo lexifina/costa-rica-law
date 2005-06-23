@@ -1,0 +1,1 @@
+Artículo 58.—Los afiliados tienen derechos a solicitar los préstamos que conceda la Caja, pero ésta no está obligada a efectuar siempre esas operaciones y puede rechazar cualquier solicitud que a su juicio encuentre inconveniente.
