@@ -14,3 +14,4 @@ Ajuste al Capital Social Suscrito y Pagado de las Bolsas de Valores, de los Pues
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-30 | la propia norma |
+| 2 | 2005-06-23 | Acuerdo 109 (2005-06-23) |

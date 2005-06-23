@@ -3,4 +3,6 @@ a. Los fondos de inversión inmobiliarios deberán contar con un activo neto mí
 b. Los fondos de inversión inmobiliarios deberán contar con un monto mínimo de la participación de dos millones doscientos cincuenta mil colones (¢2.250.000).
 c. Los fondos de inversión de titularización deberán contar con un activo neto mínimo de ciento cincuenta y dos millones de colones (¢152.000.000).
 d. Los fondos de inversión de titularización deberán contar con un monto mínimo de la participación de cinco millones doscientos cincuenta mil colones (¢5.250.000).
+e) Los fondos de inversión deberán contar con un activo neto mínimo de treinta y nueve millones de colones (¢.39.000.000).
+(Así adicionado en inciso anterior por acuerdo N° 109 del 23 de junio del 2005)
 En todos los casos, a partir del 1º de junio del año 2005 se deberán alcanzar los montos mínimos de activos netos y monto mínimo de la participación establecidos en este acuerdo.
