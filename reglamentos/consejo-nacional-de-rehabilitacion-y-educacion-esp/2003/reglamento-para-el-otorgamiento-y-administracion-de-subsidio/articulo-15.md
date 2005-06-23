@@ -1,1 +1,0 @@
-Artículo 15.—Suspensión por incumplimiento de obligaciones. El incumplimiento a lo establecido en este reglamento por parte del usuario o de la organización, faculta al Consejo a revocar en forma inmediata la concesión del subsidio.
