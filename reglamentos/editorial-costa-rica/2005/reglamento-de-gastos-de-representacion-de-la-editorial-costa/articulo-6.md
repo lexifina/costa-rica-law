@@ -1,0 +1,1 @@
+Artículo 6º—Oficialidad de los eventos. Para los efectos de este Reglamento, se entenderán como oficiales, todas aquellas actividades dentro del país en las que la Editorial figure como anfitriona, partícipe o interesada y las que se realicen en el exterior siempre que el Consejo haya acordado previamente la participación oficial del Gerente, o la de su Presidencia.

@@ -1,0 +1,1 @@
+Artículo 12.—Reintegro. Deberán reintegrarse junto con la liquidación, las sumas no utilizadas. Deberá reintegrarse la totalidad del adelanto, cuando no se cumplan los requisitos y plazo previstos en el artículo anterior.

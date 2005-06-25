@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del adelanto y la liquidación de los gastos de representación
+Artículo 7º—Monto del adelanto. El monto mensual para gastos de representación del Gerente, no podrá ser superior a un doceavo de la suma incluida en el presupuesto, sin perjuicio de que al final del respectivo período, puedan ser liquidados gastos mayores, en cuyo caso, los adelantos posteriores serán iguales al monto que resulte de prorratear el saldo de la cuenta disponible, entre los meses restantes del respectivo período. Cuando se trate de gastos de representación fuera del país, la suma máxima autorizada deberá consignarse en el respectivo acuerdo de viaje.

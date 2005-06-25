@@ -1,0 +1,1 @@
+Artículo 9º—La Gerencia o la Presidencia del Consejo Directivo, podrán solicitar el reintegro, cuando excepcionalmente hayan incurrido en gastos por sus medios, los que deberán justificar plenamente ante el Consejo Directivo según la lineación del artículo 2, inciso 4 respectivo.
