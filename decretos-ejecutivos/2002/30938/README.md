@@ -13,3 +13,4 @@ Reglamento para la producción industrialización y comercializaciòn del café 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-02-03 | la propia norma |
+| 2 | 2005-06-27 | Decreto Ejecutivo 32643 (2005-06-27) |
