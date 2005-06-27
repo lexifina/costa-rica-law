@@ -1,0 +1,5 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+Nº 016-SC.—San José, 15 de junio del 2005
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-169-2005, se modi.ca el anexo del artículo 1º de la Resolución DG-221-2004 del 3 de setiembre del 2004, mediante la cual se aprobó la codificación del Manual Descriptivo de Especialidades del Régimen de Servicio Civil, para incluir la codificación 167 a la especialidad Ciencias Actuariales y se modi.ca el anexo del artículo 2 de la Resolución DG-221-2004 del 3 de setiembre del 2004, mediante la cual se aprobó el Manual Descriptivo de Especialidades del Régimen de Servicio Civil, con sus respectivas atinencias académicas, para que se incluya la especialidad Ciencias Actuariales.
+DG-170-2005, se modi.ca el anexo del artículo 2 de la Resolución DG-221-2004 del 3 de setiembre del 2004, mediante la cual se aprobó el Manual Descriptivo de Especialidades del Régimen de Servicio Civil, con sus respectivas atinencias académicas, para que se incluya como atinencia académica, el Diplomado en Topografía en la especialidad Topografía.
