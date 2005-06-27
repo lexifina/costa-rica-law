@@ -1,0 +1,1 @@
+Artículo 5º—La Administración del Muelle de Puerto Quepos podrá reservarse el derecho de no prestar o suspender los servicios a aquellos clientes que no se encuentren a derecho en sus obligaciones o que incumplan las disposiciones de este Reglamento.

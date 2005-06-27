@@ -1,0 +1,1 @@
+Artículo 37.—Cuando una persona haya perdido su tarjeta, deberá informarlo a la Administración del muelle, la cual le dará trámite para que se le extienda una nueva tarjeta previo pago de una suma igual al doble del costo original.

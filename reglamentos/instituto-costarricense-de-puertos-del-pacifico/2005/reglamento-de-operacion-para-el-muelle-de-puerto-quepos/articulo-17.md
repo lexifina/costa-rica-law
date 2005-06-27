@@ -1,0 +1,1 @@
+Artículo 17.—El capitán o el responsable de cada nave cuidará que su embarcación se encuentre lista para desatracar o cambiar de sitio, cuando a juicio de la Administración del muelle sea necesario hacerlo.

@@ -1,0 +1,2 @@
+Artículo 51.—El valor del depósito se le comunicará a la Sección de Facturación del Departamento de Contabilidad al momento de recibir la solicitud.
+El importe del depósito debe ser pagado en dinero efectivo o cheques certificados siempre y cuando la Gerencia General del INCOP autorice a la Administración del muelle a la recepción de cheques contra Bancos del Sistema Nacional, siempre que se trate de clientes habituales.

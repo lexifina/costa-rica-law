@@ -1,0 +1,1 @@
+Artículo 12.—La Administración del Muelle de Quepos se reserva el derecho de designar el orden de atraque de las naves o limitar su permanencia en el muelle, cuando esto se requiera por razón de orden operativo.

@@ -1,0 +1,1 @@
+Artículo 4º—El horario de funcionamiento de los servicios prestados en el Muelle será definido por la Administración según la conveniencia y necesidades, siempre y cuando se respeten las normas internas que el INCOP ha establecido.

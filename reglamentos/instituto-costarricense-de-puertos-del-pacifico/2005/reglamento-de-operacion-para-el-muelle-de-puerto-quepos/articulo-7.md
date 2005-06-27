@@ -1,0 +1,1 @@
+Artículo 7º—No se permitirá a los clientes o particulares dejar basuras o desperdicios dentro de las instalaciones del Muelle. Estos deben ser retirados una vez concluida la operación por cuenta del cliente.

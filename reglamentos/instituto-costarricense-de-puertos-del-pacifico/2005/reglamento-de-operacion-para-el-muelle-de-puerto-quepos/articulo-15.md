@@ -1,0 +1,1 @@
+Artículo 15.—Perderá el derecho de atraque toda nave que no vaya a trabajar inmediatamente después de su arribo al muelle, así como las que estando fondeadas y les corresponda el atraque, no lo efectúen.

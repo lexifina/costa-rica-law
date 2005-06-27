@@ -1,0 +1,2 @@
+Artículo 50.—El funcionario designado para el cobro de los servicios tendrá que entregar a la persona designada por la Administración, la suma recaudada diariamente con su debida justificación (documentos, comprobantes), ésta hará un depósito diario en los Bancos del Sistema Bancario Nacional en la cuenta de INCOP.
+El encargado de efectuar el depósito del banco reportará todos los días hábiles al Departamento de Contabilidad de la Institución el informe de ingresos (informe diario de movimiento).

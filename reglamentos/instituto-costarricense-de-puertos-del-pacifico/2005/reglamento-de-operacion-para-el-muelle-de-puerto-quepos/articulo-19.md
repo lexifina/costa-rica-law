@@ -1,0 +1,1 @@
+Artículo 19.—En caso de naves que no reúnan las condiciones que exige la Administración del muelle para la seguridad de las instalaciones del mismo o su personal, podrán suspenderse las operaciones o no dar inicio a las mismas hasta que las anomalías sean corregidas o se pronuncie al respecto el encargado del muelle.

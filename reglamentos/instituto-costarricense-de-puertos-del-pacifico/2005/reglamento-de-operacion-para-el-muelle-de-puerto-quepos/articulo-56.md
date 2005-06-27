@@ -1,0 +1,1 @@
+Artículo 56.—Las disposiciones contempladas deben ser estrictamente acatadas por todos los trabajadores del INCOP y los particulares que hagan uso de las instalaciones del muelle o que por razones de visita o trabajo transiten o permanezcan dentro de ellas.

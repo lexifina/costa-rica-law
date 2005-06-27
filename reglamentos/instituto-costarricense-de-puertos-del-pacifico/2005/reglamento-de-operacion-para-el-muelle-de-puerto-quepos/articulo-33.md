@@ -1,0 +1,1 @@
+Artículo 33.—Los pases temporales serán otorgados a trabajadores ocasionales y a los empleados de los usuarios que deban realizar constantemente labores dentro de las instalaciones del muelle. Además los pases indicarán su vigencia.

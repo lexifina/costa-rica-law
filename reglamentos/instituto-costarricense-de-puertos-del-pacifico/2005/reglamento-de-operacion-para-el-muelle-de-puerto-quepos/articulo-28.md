@@ -1,0 +1,1 @@
+Artículo 28.—Todo conductor, cliente y cualquier otra persona debe abstenerse de actos imprudentes o peligrosos dentro de las instalaciones del Muelle que puedan originar accidentes o exponer la salud de las personas.

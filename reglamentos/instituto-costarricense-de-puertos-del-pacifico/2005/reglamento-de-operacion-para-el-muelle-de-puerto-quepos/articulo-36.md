@@ -1,0 +1,1 @@
+Artículo 36.—Toda persona al ingresar a las instalaciones del muelle deberá exhibir en lugar visible el pase (tarjeta), además deberá respetar y observar las disposiciones contenidas en este capítulo.
