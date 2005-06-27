@@ -14,3 +14,4 @@ Reglamento para los procesos de adopciones nacionales e internacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-09 | la propia norma |
+| 2 | 2005-06-27 | Reglamento 27 (2005-06-27) |
