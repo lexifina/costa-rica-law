@@ -17,3 +17,4 @@ Parque Nacional La Cangreja
 | 2 | 2002-06-05 | Decreto Ejecutivo 30479 (2002-06-05) |
 | 3 | 2002-06-05 | Ley 8 |
 | 4 | 2003-06-13 | Decreto Ejecutivo 31222 (2003-06-13) |
+| 5 | 2005-06-27 | Decreto Ejecutivo 32752 (2005-06-27) |
