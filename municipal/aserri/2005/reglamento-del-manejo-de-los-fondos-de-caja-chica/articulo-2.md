@@ -1,0 +1,1 @@
+Artículo 2º—Este Reglamento y las personas que involucra, quedan sujetas a las disposiciones dadas por Ley de Administración Financiera, la Ley y Reglamento de Contratación Administrativa, el Reglamento de Viáticos de la Contraloría General de la República, el Código Municipal y cualquiera otros, cuyas materias se vean aquí implícitas.

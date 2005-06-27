@@ -1,0 +1,1 @@
+Artículo 32.—Las personas encargadas de los fondos de caja chica, no podrán guardar documentos, efectivo o cheques que sean de propiedad particular o de otra persona en los lugares destinados para tal fin, no podrán suplir dinero de su peculio para compras o pagos que correspondan a la Municipalidad, salvo en emergencias justificadas, razonada y avalada por el Alcalde Municipal.

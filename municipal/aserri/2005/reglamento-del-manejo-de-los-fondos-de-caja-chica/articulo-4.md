@@ -1,0 +1,1 @@
+Artículo 4º—Las cajas chicas se manejarán en efectivo y estarán a cargo de la Tesorería de la Municipalidad o la persona que el Alcalde Municipal designe, el cual será responsable de su correcto funcionamiento.

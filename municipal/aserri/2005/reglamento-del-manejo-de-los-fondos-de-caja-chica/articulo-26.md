@@ -1,0 +1,1 @@
+Artículo 26.—Todo arqueo al fondo de caja chica se realizará en presencia del funcionario responsable del fondo, quien tendrá el derecho de pedir una segunda verificación, si albergara dudas sobre el resultado obtenido.
