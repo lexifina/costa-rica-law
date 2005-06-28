@@ -1,1 +1,0 @@
-Artículo 14.—En el caso del artículo anterior, los beneficios recibidos por los valores de los vehículos, formarán parte del patrimonio del Consejo de Seguridad Vial, para uso exclusivo de la Policía de Tránsito; y el importe recibido deberá presupuestarse para la adquisición de vehículos nuevos del mencionado cuerpo policial.

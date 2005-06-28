@@ -1,1 +1,0 @@
-Artículo 17.—En el plazo de noventa días siguientes a la vigencia del presente Reglamento, la Dirección General de la Policía de Tránsito levantará un inventario general de todos los vehículos existentes en los depósitos a su cargo, comunicando a la Autoridad Judicial correspondiente y a la Asesoría Legal del Consejo de Seguridad Vial, los datos obtenidos de tal inventario.

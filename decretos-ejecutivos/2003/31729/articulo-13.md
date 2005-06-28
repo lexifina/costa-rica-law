@@ -1,5 +1,0 @@
-Artículo 13.—Aquellos vehículos de regular estado, cuya inscripción no resulte útil para el Consejo de Seguridad Vial, serán debidamente valorados y en coordinación con el Ministerio de Hacienda, serán entregados como parte de pago en la compra de vehículos nuevos o rematados, según los procedimientos de contratación administrativa, establecidos en la ley de la materia.
-A los efectos del presente artículo, no se considerará un vehículo útil para el Consejo de Seguridad Vial, en los siguientes casos:
-a) Cuando el vehículo presenta un manifiesto deterioro, de tal suerte que su reparación sea superior a un treinta por ciento del valor de mercado del vehículo, siempre que su deterioro no sea tal que tipifique en el artículo anterior; o
-b) Cuando el tipo de vehículo no resulte viable para actividad policiaca.
-Se autoriza la inclusión de cláusulas en los carteles, en los cuales el adjudicatario deba realizar el total de los actos de inscripción ante el Registro Público, a partir de la determinación judicial que ingresa el bien dentro del patrimonio institucional.

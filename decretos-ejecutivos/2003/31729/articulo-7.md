@@ -1,1 +1,0 @@
-Artículo 7º—En todo depósito existirá un encargado quien será el responsable de este como depositario judicial de los bienes, mientras se encuentran bajo su custodia. Cuando el depósito se encuentre anexo a una Delegación de Tránsito, las responsabilidades de encargado del depósito recaerán sobre delegado.
