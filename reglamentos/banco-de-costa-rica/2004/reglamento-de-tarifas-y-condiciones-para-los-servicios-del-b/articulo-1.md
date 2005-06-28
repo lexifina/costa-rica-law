@@ -158,11 +158,14 @@ $ 2,00 cada uno, realizados en el Registro de la Propiedad
 $ 5,00 cada uno, cuando requiera trasladarse a la Dirección General de Deportes o al Ministerio de Trabajo.
 Se exceptúan aquellas que por ley no deben cobrarse.
 26.- Conformidad salida del país a vehículos prendados al Banco $ 15,00
-27.- Cobro administrativo de operaciones en mora
-Créditos superiores a $ 1.000:
-1-30 días 31-60 días 61-90 días
-$ 20,00 $ 30,00 $ 40,00
-Nota: Esta comisión se cobra mensualmente durante el período en que permanezca el crédito en esa condición.
+27. Cobro administrativo de operaciones en mora
+Créditos superiores a $1.000:
+11-30 días 31-60 días
+$20.00 $30.00
+61 días de atraso en adelante
+$40.00
+NOTA: Rige para todos los créditos nuevos (incluye tarjetas) otorgados a partir de la aprobación de esta tarifa, cuyo monto original sea mayor o igual a $1.000 o su equivalente en colones y que al momento del pago se encuentre en cartera normal o en cobro judicial, cada vez que se realice un pago se les cobrará el monto indicado según el rango de atraso con base en la fecha devencimiento de los intereses.
+(Así reformado el punto 27,en sesión N° 25 del 28 de junio del 2005)
 28.- Cobro Telegramas enviados operaciones vencidas $ 5,00
 X.—Tarjeta de crédito y débito
 29.- Comisión por reemplazo normal BCR-VISA $ 5,00
