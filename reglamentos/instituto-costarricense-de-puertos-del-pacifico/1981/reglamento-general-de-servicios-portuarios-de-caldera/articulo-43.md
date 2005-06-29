@@ -8,3 +8,5 @@ d) Dimensiones (eslora, calado máximo con que entrará en puerto).
 e) Tonelaje y clase de carga que desembarcará y/o embarcará.
 f) Indicación sobre transporte, de carga peligrosa en vía a otro puerto o para descargar.
 g) Relación de carga por escotilla.
+*i) Carta de Garantía en la que el agente naviero expresamente señale que responderá solidariamente por los daños y perjuicios ocasionados por su representada.
+(* El Instituto Costarricense de Puertos del Pacífico, mediante sesión N° 3299 del 29 de junio del 2005, acuerda adicionar un inciso "i", no obstante no existe un inciso "H" en este artículo)

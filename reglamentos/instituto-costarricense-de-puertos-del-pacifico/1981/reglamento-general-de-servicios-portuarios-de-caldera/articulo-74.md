@@ -1,1 +1,3 @@
 Artículo 74.—El Capitán, el armador y su agente, serán solidariamente responsables de cualquier daño o perjuicio ocasionado al muelle o a otras instalaciones portuarias debido a impericias, omisiones, incumplimiento de disposiciones del Instituto, etc., o por cualquier otra causa imputable a ellos.
+Como Garantía de la responsabilidad contenida en el párrafo anterior, el Agente Naviero deberá presentar, con la documentación requerida en el artículo 43 de este Reglamento, una carta de garantía en la que expresamente señale que responderá solidariamente por los daños y perjuicios ocasionados por su representada.
+(Así adicionado el párrafo anterior mediante sesión N° 3299 del 29 de junio del 2005)
