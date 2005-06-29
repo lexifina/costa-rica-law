@@ -14,3 +14,4 @@ Fija salarios mínimos a partir del 1° de enero de 2005
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-01 | la propia norma |
+| 2 | 2005-06-29 | Decreto Ejecutivo 32455 (2005-06-29) |
