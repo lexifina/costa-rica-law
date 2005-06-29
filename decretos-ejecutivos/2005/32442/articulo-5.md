@@ -1,0 +1,1 @@
+Artículo 5º—Los turistas que deseen ingresar por mar sin utilizar a las organizaciones turísticas con fines comerciales, deberán solicitar con un día de antelación, el permiso respectivo al Área de Conservación Guanacaste y de ser otorgado, pagar la tarifa que rija para el ingreso en ese mismo momento.

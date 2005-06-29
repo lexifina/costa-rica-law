@@ -1,0 +1,6 @@
+Artículo 4º—Obligaciones de las asociaciones y turistas individuales.
+a Cuando las embarcaciones ingresen a la Bahía Nance, deberán navegar a una velocidad no mayor a 5 nudos.
+b Las Asociaciones inscritas deberán reportar el ingreso con un día de anticipación, como mínimo. Deberán indicar: el número, no mayor de 5 pasajeros y nacionalidad de los turistas, datos de la embarcación, miembros de la tripulación. Estos últimos deberán permanecer en la embarcación durante todo el tiempo mientras se encuentren dentro del parque. Solo en casos excepcionales y con la debida justificación por escrito, el reporte de ingreso podrá hacerse el mismo día.
+c Cada una de las operaciones que transporten turistas o surfeadores deberán hacer los pagos correspondientes por concepto del derecho de admisión por persona, a más tardar el mismo día del ingreso ante él o la representante del Área de Conservación Guanacaste destacada en Playas del Coco. En el caso de los individuales, lo harán preferiblemente el día anterior a su ingreso cuando soliciten la autorización.
+d Apoyar las acciones de conservación del Área de Conservación Guanacaste dentro del área marino-costera y colaborar en las labores de protección de la vida marino costera del Área de Conservación Guanacaste.
+e Asumir la completa responsabilidad por accidentes o daños a las persona o a las cosas.

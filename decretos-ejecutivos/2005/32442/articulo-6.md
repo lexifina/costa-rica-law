@@ -1,0 +1,6 @@
+Artículo 6º—Condiciones especiales.
+a En la época lluviosa, del 1º de mayo al 30 de noviembre, se dará prioridad a las operaciones que entren por el mar, respetando la capacidad de carga de 30 personas en Playa Naranjo y 20 en Potrero Grande. Para la época seca, en Playa Naranjo, del 1º de diciembre al 30 de abril, se dará prioridad a los surfeadores que ingresen por tierra.
+b El horario de ingreso por mar a las playas será de las 5:30 horas a las 17:00 horas, por razones administrativas y de seguridad.
+c Para la época seca cada día se permitirá la presencia de máximo 35 personas en el agua, en Playa Naranjo. Lo anterior se desglosa de la siguiente forma: 15 personas por mar y 20 personas que entren por tierra. El Programa de Ecoturismo del Área de Conservación Guanacaste podrá ampliar en caso necesario espacios adicionales por día por tierra, justificándolo debidamente.
+d En la época seca, y dado que en Playa Potrero Grande no se autoriza el ingreso por tierra, se mantiene la capacidad de carga igual de 20 personas por mar.
+e Se excluyen de las presentes regulaciones la Semana Santa y la última semana de diciembre, en razón de la gran afluencia de público, lo que genera un reforzamiento en las labores de control y protección, por parte del Área de Conservación Guanacaste.
