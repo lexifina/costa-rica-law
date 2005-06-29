@@ -1,0 +1,1 @@
+Artículo 18.—Recursos. Todo acto que se adopte en relación con las sanciones previstas en el presente capítulo, tendrá los recursos de revocatoria y apelación previstos en la Ley General de la Administración Pública.
