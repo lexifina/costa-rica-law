@@ -1,0 +1,1 @@
+Artículo 18.—Los funcionarios autorizados para firmar cheques serán la Tesorera y el Alcalde u otro funcionario que designe el Alcalde, con firmas mancomunadas. Queda autorizado para firmar cheques con límite de suma por ¢200.000,00 (doscientos mil colones exactos), al Director Financiero en forma conjunta con la Tesorera Municipal.

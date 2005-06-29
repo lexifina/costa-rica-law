@@ -1,0 +1,1 @@
+Artículo 28.—Cuando existan cheques en poder de la Tesorería con tres meses de emitidos, el Tesorero procederá a anularlos, para lo cual levantarán lista de ellos y lo comunicará al Departamento de Contabilidad para su respectivo registro.

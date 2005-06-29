@@ -1,0 +1,1 @@
+Artículo 15.—Los cheques debidamente prenumerados en forma consecutiva, serán emitidos por la Contabilidad, en estricto orden numérico, previa revisión y codificación de la documentación por parte del contador encargado. Los cheques de salarios y aguinaldo serán emitidos normalmente, siguiendo este mismo procedimiento.
