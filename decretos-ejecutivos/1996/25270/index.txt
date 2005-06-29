@@ -128,8 +128,11 @@ articulo-127.md
 articulo-128.md
 articulo-129.md
 articulo-130.md
+articulo-130-bis.md
+articulo-130-ter.md
 articulo-131.md
 articulo-132.md
+articulo-132-bis.md
 articulo-133.md
 articulo-134.md
 articulo-135.md
@@ -154,6 +157,7 @@ articulo-153.md
 articulo-154.md
 articulo-155.md
 articulo-156.md
+articulo-156-bis.md
 articulo-157.md
 articulo-158.md
 articulo-159.md
@@ -226,6 +230,7 @@ articulo-224.md
 articulo-225.md
 articulo-226.md
 articulo-227.md
+articulo-227-bis.md
 articulo-228.md
 articulo-229.md
 articulo-230.md
@@ -234,6 +239,7 @@ articulo-232.md
 articulo-233.md
 articulo-234.md
 articulo-235.md
+articulo-235-bis.md
 articulo-236.md
 articulo-237.md
 articulo-238.md
@@ -244,10 +250,13 @@ articulo-242.md
 articulo-243.md
 articulo-244.md
 articulo-245.md
+articulo-245-bis.md
+articulo-245-ter.md
 articulo-246.md
 articulo-246-bis.md
 articulo-246-ter.md
 articulo-247.md
+articulo-247-bis.md
 articulo-248.md
 articulo-249.md
 articulo-250.md
@@ -300,6 +309,7 @@ articulo-294.md
 articulo-295.md
 articulo-296.md
 articulo-296-bis.md
+articulo-296-ter.md
 articulo-297.md
 articulo-298.md
 articulo-299.md
@@ -532,6 +542,7 @@ articulo-519.md
 articulo-520.md
 articulo-521.md
 articulo-522.md
+articulo-522-bis.md
 articulo-523.md
 articulo-524.md
 articulo-525.md

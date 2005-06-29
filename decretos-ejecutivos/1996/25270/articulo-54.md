@@ -1,2 +1,2 @@
-Artículo 54.—Forma de las actuaciones
-Las actuaciones de fiscalización se deben desarrollar por el funcionario fiscalizador o analista que tenga asignado el estudio. El Jefe del órgano fiscalizador debe definir los casos en que las actuaciones se realizarán por varios funcionarios o por las Unidades de Fiscalización.
+Artículo 54.—Forma de las actuaciones. Las actuaciones de fiscalización se deben desarrollar por el funcionario fiscalizador o analista que tenga asignado el estudio. El Director o Jefe del órgano fiscalizador debe definir los casos en que las actuaciones se realizarán por varios funcionarios o por las Unidades de Fiscalización
+(Así reformado por el artículo 48 del decreto ejecutivo N° 32481 del 29 de junio del 2005)

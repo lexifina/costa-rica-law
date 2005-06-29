@@ -16,7 +16,9 @@ Comprende, de la provincia de San José, los cantones de Puriscal, Mora y Santa 
 (Así reformado por el artículo 1 del Decreto Ejecutivo N° 28976 de 27 de setiembre del 2000)
 VI- ADUANA DE LIMON
 Comprende, de la provincia de Limón, los cantones de Limón, Pococí, Siquirres, Matina, Talamanca y Guácimo.
-VII- ADUANA DE PASO CANOAS
-Comprende, de la provincia de Puntarenas, los cantones de Coto Brus y Corredores.
-VIII- ADUANA DE GOLFITO
-Comprende, de la provincia de Puntarenas, los cantones de Buenos Aires, Osa y Golfito.
+VII.—ADUANA DE PASO CANOAS
+Comprende, de la provincia de Puntarenas, los cantones de Coto Brus, Corredores, Buenos Aires, Osa y Golfito.
+(Así reformado por el artículo 48 del decreto ejecutivo N° 32481 del 29 de junio del 2005)
+VIII.—ADUANA DE VERIFICACIÓN DOCUMENTAL
+Comprende todo el territorio aduanero nacional respecto de la verificación documental de las declaraciones aduaneras.
+(Así reformado por el artículo 48 del decreto ejecutivo N° 32481 del 29 de junio del 2005)

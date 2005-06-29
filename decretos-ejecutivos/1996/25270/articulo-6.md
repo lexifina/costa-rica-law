@@ -3,5 +3,4 @@ Competencias y funciones de la Dirección General
 de Aduanas y sus Dependencias
 SECCION I
 Director General
-Artículo 6.—Competencia del Director General
-Es competencia del Director General, determinar y emitir las políticas y directrices que orienten las decisiones y acciones hacia el efectivo cumplimiento de los fines del régimen jurídico aduanero y la consecución de los objetivos del Servicio Nacional de Aduanas.
+Artículo 6.—Así Derogado por el artículo 50 del decreto ejecutivo N° 32481 del 29 de junio del 2005.

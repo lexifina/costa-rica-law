@@ -10,5 +10,5 @@ e. Marcas de los bultos si los hubiere.
 f. Referencias de las mercancías indicadas en los bultos, o señalamiento expreso de su ausencia.
 g. Descripción de las mercancías.
 h. Detalle de daños, faltantes o sobrantes si los hubiere.
-i. Fecha y hora de ingreso al depósito fiscal.
-(Así reformado por el artículo 4 del Decreto Ejecutivo N° 30721 de 10 de setiembre del 2002)
+i. (Derogado por el artículo 35 del decreto ejecutivo N° 32456 del 29 de junio del 2005, “Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el Servicio Nacional de Aduanas”)
+(Así reformado por el artículo 4 del decreto ejecutivo N° 30721 de 10 de setiembre del 2002)

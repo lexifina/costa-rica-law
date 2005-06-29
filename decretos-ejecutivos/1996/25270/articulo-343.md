@@ -1,2 +1,2 @@
-Artículo 343.—Declaración aduanera de exportación
-La declaración aduanera de mercancías de exportación podrá ser presentada por el agente aduanero o el exportador, según el caso, estableciendo la cuantía de la obligación tributaria aduanera y comprobando su pago.
+Artículo 343.—Declaración aduanera de exportación. Para la aceptación, la declaración aduanera de mercancías de exportación deberá transmitirse electrónicamente al sistema informático por el agente aduanero o directamente por el exportador, estableciendo la cuantía de la obligación tributaria aduanera y comprobando su pago cuando corresponda
+(Así reformado por el artículo 32 del decreto ejecutivo N° 32456 del 29 de junio del 2005, “Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el Servicio Nacional de Aduanas”)

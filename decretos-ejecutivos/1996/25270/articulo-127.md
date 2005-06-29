@@ -1,8 +1,6 @@
-Artículo 127.—Documentos que debe conservar el transportista aduanero
-Los transportistas aduaneros deberán conservar, según el caso, los siguientes documentos:
-a. Originales de los certificados de importación temporal que amparan la entrada de los vehículos y unidades de transporte.
-(Así reformado por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).
-b.Fotocopia de las declaraciones de tránsito, traslado y de los conocimientos de embarque.
-c. Original del manifiesto de carga.
-d. Documentos utilizados por el transportista para la entrega de las mercancías en las instalaciones de los auxiliares autorizados para recibir mercancías bajo control aduanero.
-(Así adicionado por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).
+Artículo 127.—Respaldo de información que debe conservar el transportista aduanero. El transportista aduanero deberá conservar, bajo su responsabilidad y bajo su custodia directa o por medio de terceros, un respaldo del archivo de la declaración aduanera transmitida electrónicamente y los siguientes documentos:
+a. Copia de los documentos oficiales de importación temporal que se emitieren para amparar la entrada de los vehículos y unidades de transporte al país.
+b. Fotocopia de los conocimientos de embarque.
+c. Manifiestos de carga, en el caso del transportista aduanero internacional.
+d. Documentos que utilice en su giro normal como comprobante de la entrega de las unidades de transporte y sus mercancías en las instalaciones de los auxiliares autorizados para recibir mercancías bajo control aduanero
+(Así reformado por el artículo 33 del decreto ejecutivo N° 32456 del 29 de junio del 2005, “Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el Servicio Nacional de Aduanas”)

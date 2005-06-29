@@ -2,5 +2,4 @@ TITULO II
 Servicio Nacional de Aduanas
 CAPITULO I
 Organización Administrativa
-Artículo 4º—Órgano superior en materia aduanera. La Dirección General es el órgano superior jerárquico nacional en materia aduanera, con las funciones establecidas por el CAUCA, el RECAUCA, la Ley y demás normas tributarias y generales. La Dirección General estará a cargo de un Director General y un Subdirector General.
-(Así reformado por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).
+Artículo 4º—Así Derogado por el artículo 50 del decreto ejecutivo N° 32481 del 29 de junio del 2005.

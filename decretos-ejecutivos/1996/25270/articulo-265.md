@@ -14,7 +14,10 @@ j. Fecha y firma del declarante.
 k. Número y fecha del conocimiento de embarque individualizado.
 l. Número(s) y fecha (s) de la(s) factura(s) comercial(es) asociada(s) a la(s) mercancía(s).
 m. Valor de las mercancías según facturas.
-n. Otros que determine la Dirección General mediante resolución razonada.
+n. Indicación de si por el peso y dimensiones de la mercancía, u otra legalmente permitida, ésta no pueda viajar en un contenedor cerrado y marchamado.
+(Así adicionado por el artículo 34 del decreto ejecutivo N° 32456 del 29 de junio del 2005)
+o. Otros que determine la Dirección General mediante resolución razonada.
+(Corrida la numeración del inciso anterior por el artículo 34 del decreto ejecutivo N° 32456 del 29 de junio del 2005, que lo traspaso del anterior inciso n) al inciso o) actual)
 Con la declaración aduanera de tránsito se adjuntará copia fiel del conocimiento de embarque.
 Cada unidad de transporte deberá viajar amparada a la declaración aduanera de tránsito original y una copia de sus respectivos documentos de respaldo.
 El valor consignado conforme al literal m., para los efectos de este artículo, no implica que la autoridad aduanera acepte de previo ese monto, para efectos de la posterior determinación del valor en aduana.

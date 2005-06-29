@@ -6,4 +6,6 @@ d. Muestras sin valor comercial.
 e. Importaciones no comerciales.
 f. En aquellos casos que disponga la Dirección General mediante
 resolución de alcance general.
-(Así reformado por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).
+La movilización de las mercancías declaradas hacia las zonas de operación aduanera, cuando correspondiere su reconocimiento físico, se efectuará bajo control aduanero.
+(Así adicionado el párrafo anterior por el artículo 32 del decreto ejecutivo N° 32456 del 29 de junio del 2005, “Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el Servicio Nacional de Aduanas”)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

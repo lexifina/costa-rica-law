@@ -1,4 +1,5 @@
 Artículo 271.— Desarrollo del tránsito
 El tránsito se realizara por las vías habilitadas que se señalen reglamentariamente, sin desviaciones, descargas, ni estacionamientos; salvo con las paradas propias de las necesidades del transporte, según lo establezca la Dirección General mediante resolución de alcance general.
-Durante el recorrido se harán constar, al menos en la guía de tránsito, los controles intermedios que hayan realizado los funcionarios aduaneros encargados del control del tránsito o cualquier otra autoridad, con la fecha y hora del control efectuado.
+Durante el recorrido se harán constar en el documento que acompaña el vehículo, los controles intermedios que hayan realizado los funcionarios aduaneros encargados del control del tránsito o cualquier otra autoridad, con la fecha y hora del control efectuado.
+(Así reformado el párrafo anterior por el artículo 32 del decreto ejecutivo N° 32456 del 29 de junio del 2005, “Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el Servicio Nacional de Aduanas”)
 En caso de irregularidades, se inmovilizara el vehículo y/o se adoptarán las medidas cautelares que se estimen necesarias, comunicándolo a la aduana de salida o de destino, salvo que las medidas cautelares consistan en su acompañamiento a una aduana o zona de operación aduanera.

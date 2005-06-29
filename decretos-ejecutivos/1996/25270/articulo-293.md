@@ -1,5 +1,5 @@
-Artículo 293.—Descarga con intervención de funcionario aduanero.
-Cuando corresponda efectuar la descarga con intervención de funcionario aduanero, éste deberá
-trasladarse al depósito en que se ubique la unidad de transporte y la mercancía, a efecto de inspeccionar la descarga dentro de un plazo máximo de dos horas, contadas a partir de la comunicación respectiva. No obstante, si las instalaciones del auxiliar de la función pública se encuentran ubicadas fuera del perímetro de veinticinco kilómetros cuadrados de las instalaciones de la aduana de control, el plazo será de tres horas. Si transcurrido el plazo indicado, el funcionario no se apersona al lugar, el depositario procederá a efectuar la descarga y dejará constancia de tal situación en el documento de ingreso a sus instalaciones.
-La aduana velará por el cumplimiento del plazo establecido y tomará las medidas correspondientes a efecto de establecer la responsabilidad del servidor y del auxiliar de la función pública.
-(Así reformado por el artículo 20 del Decreto Ejecutivo N° 28976 de 27 de setiembre del 2000)
+Artículo 293.—Descarga con intervención de funcionario aduanero. Cuando corresponda efectuar la descarga con intervención de funcionario aduanero, éste deberá trasladarse al depósito en que se ubique la unidad de transporte y la mercancía, a efecto de inspeccionar la descarga.
+Si a la hora programada para la descarga el funcionario no se apersona al lugar, el depositario procederá a efectuar la descarga y dejará constancia de tal situación en el documento de ingreso a sus instalaciones.
+La aduana velará por el cumplimiento de lo anterior y tomará las medidas correspondientes a efecto de establecer la responsabilidad del servidor y del auxiliar de la función pública.
+Cuando hubieren razones justificadas, la aduana podrá reprogramar por una única vez, la fecha y hora de la descarga previamente comunicadas
+(Así reformado por el artículo 32 del decreto ejecutivo N° 32456 del 29 de junio del 2005, “Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el Servicio Nacional de Aduanas”)

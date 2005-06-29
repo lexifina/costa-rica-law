@@ -18,5 +18,8 @@ Emitir directrices relativas al uso de vehículos, conservación de información
 Establecer mecanismos que garanticen el control y la conservación de los activos del Servicio.
 Coordinar y asesorar en materia administrativa, a los Departamentos Administrativos de las aduanas.
 Llevar el control de asistencia y otorgar vacaciones a los funcionarios.
-Otras que le encomiende la Dirección General.
+p) Notificar a los auxiliares, que de conformidad con la Ley deben tener casillero en la Dirección General, los actos respectivos.
+(Así adicionado el inciso anterior por el artículo 49 del decreto ejecutivo N° 32481 del 29 de junio del 2005)
+*q) Otras que le encomiende la Dirección General.
+(*Mediante el artículo 49 del decreto ejecutivo N° 32481 del 29 de junio del 2005, se adiciona un nuevo inciso "p" trasladando así el anterior inciso "p" a inciso "q" )
 El Departamento Administrativo estará a cargo de un Jefe.
