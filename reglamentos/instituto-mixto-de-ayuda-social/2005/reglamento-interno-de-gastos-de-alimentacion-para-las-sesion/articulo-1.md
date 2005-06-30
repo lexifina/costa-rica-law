@@ -1,0 +1,20 @@
+INSTITUTO MIXTO DE AYUDA SOCIAL
+REGLAMENTO INTERNO DE GASTOS DE ALIMENTACIÓN
+PARA LAS SESIONES DEL CONSEJO DIRECTIVO
+DEL INSTITUTO MIXTO DE AYUDA SOCIAL
+En el ejercicio de las atribuciones que le confiere el artículo 188 de la Constitución Política de la República de Costa Rica, 136 de la Ley General de la Administración Pública y en atención a lo indicado en los oficios Nº 01144 (FOE-AM-48), Nº 9508 (FOE-OP-410) , Nº 10890 (FOE-FEC- 712), Nº 1953 ((FOE-FEC-110) y Nº 10439 (FOE-FEC-559), todos de la División de Fiscalización Operativa y Evaluativo de la Contraloría General de la República,
+Considerando:
+1º—Que la Ley Nº 4760 de Creación del IMAS, de 4 de mayo de 1971, establece en su artículo 20 que las sesiones del Consejo Directivo se realizarán ordinariamente por lo menos una vez por semana y en forma extraordinaria cada vez que lo convoque el Director Ejecutivo, por orden de su Presidente o a solicitud de cuatro miembros.
+2º—Que debe procurarse que el Consejo Directivo cuente con adecuadas condiciones para su desempeño en aplicación de lo indicado en los oficios Nº 01144 (FOE-AM-48), Nº 9508 (FOE-OP-410) , Nº 10890 (FOE-FEC-712), Nº 1953 ((FOE-FEC-110) y Nº 10439 (FOEFEC- 559), todos de la División de Fiscalización Operativa y Evaluativo de la Contraloría General de la República, dado la naturaleza compleja y dinámica de la gestión administrativa. Por lo anterior, se requiere de una aplicación del principio de legalidad orientado al cumplimiento del interés público, con eficiencia, continuidad y oportunidad.
+3º—Se hace necesario contar con un Reglamento que en definitiva regule lo concerniente a las situaciones excepcionales en que se pueda reconocer gastos de alimentación del Consejo Directivo.
+4º—Que algunos de los Directores designados por el Consejo de Gobierno, de acuerdo al inciso b) numeral 3) del artículo 18 de la Ley Nº 4760, proceden de zonas alejadas de las Oficinas Centrales del IMAS.
+5º—Que para poder arribar a las oficinas del IMAS en San José, en tiempo para las sesiones, los directores que viven en zonas alejadas requieren de dos o más horas, lo que hace que la asistencia represente un desgaste de los funcionarios, pues además del viaje, las sesiones suelen prolongarse por más de dos horas.
+6º—Que dada la duración de las sesiones y los temas de trascendencia institucional que se tratan, es requerida una adecuada participación y atención de los integrantes del Consejo Directivo, y que la gestión no se vea afectada cuando las sesiones se prolongan por más de dos horas y treinta minutos, para garantizar la eficiencia, oportunidad y continuidad de la gestión y para un mejor desempeño de cada uno de los directores.
+7º—Que mediante acuerdo Nº CD-194-2005 este proyecto de reglamento fue enviado a consulta a la Auditoria Interna y a la Asesoría Jurídica quienes, mediante oficios A.I. 162-2005 del 6 de junio de 2005 y AJ-881-06-2005 del 10 de junio de 2005, respectivamente, manifestaron sus observaciones, las cuales fueron incorporadas al documento que se somete a aprobación de este Consejo Directivo. Por tanto:
+Se acuerda promulgar el siguiente:
+REGLAMENTO INTERNO DE GASTOS DE ALIMENTACIÓN
+PARA LAS SESIONES DEL CONSEJO DIRECTIVO
+DEL INSTITUTO MIXTO DE AYUDA SOCIAL
+Artículo 1º—Supuestos de procedencia. Se podrá autorizar el pago de gastos mínimos de alimentación durante la celebración de las sesiones del Consejo Directivo, en su sede central en San José o en lugar distinto en el que haya acordado sesionar, cuando en el cumplimiento de sus funciones se configure alguna de las siguientes situaciones:
+a) Que la sesión se prolongue por más de dos horas y treinta minutos y durante ésta deban decidirse aspectos de relevancia institucional o de interés prioritario de la población beneficiaria.
+b) Cuando las horas en que deba reunirse el Consejo o las circunstancias para la asistencia representen algún grado de desgaste del funcionario, siendo que se va a necesitar su presencia durante un lapso que supere el que se indicó en el punto anterior.

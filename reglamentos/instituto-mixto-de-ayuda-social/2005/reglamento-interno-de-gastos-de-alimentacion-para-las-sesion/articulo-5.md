@@ -1,0 +1,1 @@
+Artículo 5º—Verificación de requisitos: La verificación de la procedencia de incurrir en este tipo de gastos y de que se presenten los supuestos de procedencia del artículo primero de este reglamento, quedará bajo la responsabilidad de la Gerencia General.

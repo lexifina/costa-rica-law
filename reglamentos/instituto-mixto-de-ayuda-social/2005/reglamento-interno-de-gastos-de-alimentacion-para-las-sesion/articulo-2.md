@@ -1,0 +1,1 @@
+Artículo 2º—Principios que atenderá el gasto. Dichos gastos atenderán a los principios de racionalidad, razonabilidad y austeridad en el uso de los fondos públicos y tendrán como objetivo asegurar una debida atención y gestión durante las sesiones por parte de los asistentes para que se garantice la eficiencia, oportunidad y continuidad de la gestión.
