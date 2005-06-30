@@ -1,0 +1,1 @@
+Artículo 3º—Semestralmente rendirá el Alcance Municipal un informe al Concejo Municipal, el cual contendrá los egresos que hubiese autorizado. Lo anterior de conformidad al artículo 17, inciso f) del Código Municipal.
