@@ -1,0 +1,1 @@
+Artículo 20.—Para aplicar la sanción descrita en el artículo 19º, las autoridades del SINAC deberán tomar en consideración las circunstancias en que se dieron los hechos, las posibles reiteraciones de faltas anteriores y el tipo de falta que se cometió, así como los principios de prudencia, proporcionalidad, racionalidad y razonabilidad.

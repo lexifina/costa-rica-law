@@ -1,0 +1,1 @@
+Artículo 11.—Se prohíbe a las organizaciones e instituciones descritas en el artículo 9º de este reglamento, el uso de los nombres y logotipos institucionales del MINAE, del SINAC o de sus Áreas de Conservación, sin la debida autorización por escrito.
