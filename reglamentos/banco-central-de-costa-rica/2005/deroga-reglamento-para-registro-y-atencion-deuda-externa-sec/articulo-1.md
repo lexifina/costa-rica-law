@@ -1,0 +1,8 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica, mediante numeral 1., artículo 20 del acta de la sesión 5235-2005, celebrada el 15 de junio del 2005, con sustento en la recomendación de las Divisiones Gestión de Activos y Pasivos y de Asesoría Jurídica, contenidas en sus oficios DGAP-17-2005 del 19 de enero del 2005 y AJ-146-2005 del 4 de febrero del 2005, respectivamente, y
+considerando:
+a.- que mediante el artículo 9 del acta de la sesión 5185-2004, celebrada el 4 de febrero del 2004, la Junta Directiva convino en encomendar a la División Gestión de Activos y Pasivos revisar y ajustar a las nuevas circunstancias del Departamento Operaciones Activas y Pasivas, los documentos reglamentarios, así como cualquier otro relacionado con la deuda pública interna y externa, producto del traslado de la información y administración del sistema de registro de la deuda pública a la Tesorería Nacional en el Ministerio de Hacienda,
+b.- que el “Reglamento para el Registro y Atención de la Deuda Externa del Sector Público Costarricense”, aprobado en la Sesión 4991-99, artículo 14, del 7 de abril de 1999, perdió el vigor con el traslado del Sistema Gestión y Análisis de la Deuda (SIGADE) y la base de datos de la deuda pública externa a la Tesorería Nacional, en marzo del 2004,
+c.- que el Ministerio de Hacienda promulgó el Decreto Ejecutivo N° 32000-H con el nuevo “Reglamento para el registro de la deuda externa del sector público costarricense”, publicado en el Diario Oficial La Gaceta 159 del 16 de agosto del 2004,
+dispuso:
+Derogar el “Reglamento para el Registro y Atención de la Deuda Externa del Sector Público Costarricense”, aprobado en la Sesión 4991-99, artículo 14, celebrada el 7 de abril de 1999.
