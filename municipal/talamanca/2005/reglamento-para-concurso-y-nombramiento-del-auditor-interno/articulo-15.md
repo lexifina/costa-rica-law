@@ -1,0 +1,1 @@
+Artículo 15.—Del periodo de prueba: Una vez nombrado el auditor, será sujeto a un periodo de prueba de dos meses, pasado este plazo el Consejo Municipal procederá a comunicar a la Contraloría General de la República su conformidad o disconformidad del desempeño del funcionario nombrado.

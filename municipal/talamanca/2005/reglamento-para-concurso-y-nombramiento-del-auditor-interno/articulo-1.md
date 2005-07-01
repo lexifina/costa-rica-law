@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE TALAMANCA
+El Consejo Municipal de la Municipalidad de Talamanca, mediante Sesión Ordinaria Nº 155, celebrada el día 22 de junio del 2005, aprobó el acuerdo Nº 05, que dice:
+El Consejo Municipal de Talamanca acuerda aprobar el Reglamento para concurso público para selección y nombramiento de auditor interno de la Municipalidad de Talamanca, que indica lo siguiente:
+Artículo 1º—De la naturaleza: El presente Reglamento regula el procedimiento para el concurso y nombramiento del Auditor Interno de la Municipalidad de Talamanca, de conformidad con lo estipulado en la Ley Nº 8292, denominada Ley General de Control Interno y los “Lineamientos para la descripción de las funciones y requisitos de los cargos de auditor y sub auditor interno”, emitidos por la Contraloría General de la República, documento oficial L-1- 2003-CO-DDI, publicado en La Gaceta del 24 de octubre del 2003.
