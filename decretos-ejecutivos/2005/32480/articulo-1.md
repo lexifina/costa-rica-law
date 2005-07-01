@@ -1,0 +1,12 @@
+No 32480
+EL PRESIDENTE DE LA REPÚBLICA,
+LA MINISTRA DE LA PRESIDENCIA,
+EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+Y EL MINISTRO DE HACIENDA
+En uso de las facultades conferidas por el artículo 140, incisos 3) y 18), y el artículo 146, ambos de la Constitución Política.
+Considerando:
+I.—Que el Gobierno de la República, ha expuesto sus intenciones por una política salarial que beneficie a los servidores públicos y esté en concordancia con las políticas económicas y sociales desarrolladas, en beneficio de toda la ciudadanía costarricense.
+II.—Que es necesario incrementar el salario de los servidores públicos armonizando la capacidad fiscal del Estado y las políticas gubernamentales destinadas a propiciar el desarrollo y bienestar del país, coadyuvando en particular con los esfuerzos para el control del costo de la vida, de forma que la integración de dichas acciones redunde en beneficio de los trabajadores y trabajadoras.
+III.—Que en consonancia con las políticas mencionadas se dispone realizar un aumento porcentual al salario base que corresponda a cada categoría ocupacional. Por tanto,
+DECRETAN:
+Artículo 1 °—Se autoriza un aumento general al salario base de todos los servidores públicos consistente en un 4% (cuatro por ciento), a partir del 1° de julio del año 2005.

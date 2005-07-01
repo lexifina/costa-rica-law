@@ -1,0 +1,1 @@
+Artículo 6°—Ninguna institución pública, entes descentralizados o empresas públicas del Estado podrán exceder en monto, porcentaje, ni vigencia el límite de aumento general definido en el presente decreto.
