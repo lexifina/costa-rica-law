@@ -15,3 +15,4 @@ Reforma al Instituto Costarricense del Deporte y la Recreación (ICODER), el gas
 | --- | --- | --- |
 | 1 | 2005-02-10 | la propia norma |
 | 2 | 2005-03-10 | Decreto Ejecutivo 32301 (2005-03-10) |
+| 3 | 2005-07-04 | Decreto Ejecutivo 32525 (2005-07-04) |
