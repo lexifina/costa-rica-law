@@ -11,4 +11,5 @@ Considerando:
 6º—Que mediante el Decreto Ejecutivo Nº 32326-H, publicado en La Gaceta Nº 85 del 4 de mayo de 2005, se amplió el gasto presupuestario máximo a la Dirección General de Aviación Civil.
 7º—Que para el cumplimiento de lo anterior, la Dirección General de Aviación Civil requiere incorporar recursos extraordinarios a su presupuesto vigente, por lo que es necesario modificar el gasto presupuestario máximo asignado a la citada entidad. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase a la Dirección General de Aviación Civil el gasto presupuestario máximo asignado para el año 2005, establecido en el Decreto Ejecutivo Nº 32326-H, publicado en La Gaceta Nº 85 del 4 de mayo del 2005, de manera que éste no exceda la suma de ¢8.365,5 millones, en ese período.
+Artículo 1º—Modifícase a la Dirección General de Aviación Civil el gasto presupuestario máximo asignado para el año 2005, establecido en el Decreto Ejecutivo Nº 32326-H, publicado en La Gaceta Nº 85 del 4 de mayo del 2005, de manera que éste no exceda la suma de ¢*10.031,3 millones, en ese período.
+(* Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 32533 del 4 de julio del 2005)

@@ -14,3 +14,4 @@ Reforma decreto que modifica a la Dirección General de Aviación Civil el gasto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-27 | la propia norma |
+| 2 | 2005-07-04 | Decreto Ejecutivo 32533 (2005-07-04) |
