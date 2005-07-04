@@ -11,3 +11,4 @@ Considerando:
 6º - Que mediante el Decreto Ejecutivo Nº 32220-H, publicado en La Gaceta Nº 29 del 10 de febrero del 2005, se modificó el gasto presupuestario máximo autorizado al Instituto. Por tanto,
 DECRETAN:
 Artículo 1º - Modificase al Instituto Costarricense del Deporte y la Recreación (ICODER), el gasto presupuestario máximo fijado para el año 2005, según lo dispuesto en el artículo 1º del Decreto Ejecutivo Nº 32220-H, publicado en La Gaceta Nº 29 del 10 de febrero del 2005, de manera que éste no podrá exceder la suma de ¢2.867,60 millones en ese período.
+( Reformado por el Artículo 1° del Decreto N° 32526 de 4 de julio del 2005 de la siguiente manera: Artículo 1º—Modifícase el gasto presupuestario máximo del año 2005, establecido al Instituto Costarricense del Deporte y la Recreación (ICODER), en el artículo 1° del Decreto Ejecutivo Nº 32301-H, publicado en La Gaceta Nº 73 de 18 de abril del 2005, fijándolo en ¢3.650,00 millones en ese período.)
