@@ -16,3 +16,4 @@ Modifica Límite de Gasto Presupuestario para el Instituto Costarricense del Dep
 | 1 | 2005-01-01 | la propia norma |
 | 2 | 2005-01-12 | Decreto Ejecutivo 32220 (2005-01-12) |
 | 3 | 2005-03-10 | Decreto Ejecutivo 32301 (2005-03-10) |
+| 4 | 2005-07-04 | Decreto Ejecutivo 32525 (2005-07-04) |
