@@ -1,15 +1,10 @@
-* CAPITULO VI
-División de Desarrollo Institucional
-SECCIÓN PRIMERA
-Generalidades
-Artículo 30.—Objetivo; Relación jerárquica.
-1) Dirigir las labores de soporte técnico a la fiscalización, así como las acciones necesarias para el pleno ejercicio de la rectoría del Ordenamiento de Control y Fiscalización Superiores, atendiendo criterios de efectividad, transparencia, legalidad, rendición de cuentas y orientación al usuario, a efecto de promover una adecuada gestión de las instituciones y órganos públicos.
-2) Está a cargo de un Gerente de División y tiene bajo su dirección las siguientes unidades:
-1. Centro de Relaciones para el Fortalecimiento del Control y la Fiscalización Superiores.
-2. Centro de Capacitación.
-3. Autorizaciones y Aprobaciones.
-4. Servicios de Información.
-5. Sistemas y Tecnología de Información.
-6. Cooperación Internacional
-* NOTA DEL SINALEVI: El presente Capítulo VI cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República.)
-(Modificada la numeración de este artículo, mediante Resolución 0 del 26 de febrero del 2003, de la Contraloría General de la República, que subió la numeración de los artículos 44 y 45 de la anterior Sección Segunda del Capítulo VII de este Reglamento, que fue reemplazada por una nueva sección "Sección Sétima del Capítulo III, compuesta ahora por un nuevo artículo 17 y 18", corriendose así en dos tantos la numeración de los artículos preexistentes, con lo que el presente pasó de ser el N° 28 a ser el N° 30).
+SECCIÓN CUARTA
+Denuncias y declaraciones juradas
+Artículo 30.—Objetivo; relación jerárquica; integración.
+a) Recibir, registrar y evaluar las denuncias que ingresen a la Contraloría General y dar trámite a aquellas que le correspondan, según lo que dispongan el marco legal y los criterios o políticas institucionales.
+b) Coordinar el traslado de las denuncias a las diferentes unidades internas o dependencias externas de la institución en caso de que corresponda por la especialidad de la materia.
+c) Recibir, registrar y dar seguimiento a las declaraciones de bienes de los funcionarios públicos o de sujetos que por orden singular así corresponda, de conformidad con lo establecido en la Ley contra la corrupción y el enriquecimiento ilícito en la función pública, de manera que se pueda generar la información necesaria para apoyar la fiscalización integral y la determinación de responsabilidades civiles, administrativas o penales, y coordinar lo pertinente, con otras áreas internas o externas.
+d) Establecer un sistema de investigación a partir de la información que contiene las declaraciones juradas y otras fuentes de información internas y externas.
+e) Depende de la Gerencia de la División de Fiscalización Operativa y Evaluativa.
+f) Contará con su propia estructura administrativa y tendrá a su cargo las atribuciones que se señalan en este Reglamento y los otros instrumentos técnicos y jurídicos que se emitan al efecto.
+(Así adicionado por el artículo 4° de la Resolución de la Contraloría General de la República N° 66 del 4 de julio del 2005)

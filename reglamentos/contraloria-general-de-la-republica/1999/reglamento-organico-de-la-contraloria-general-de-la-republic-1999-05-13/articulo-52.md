@@ -1,5 +1,6 @@
-CAPÍTULO VIII
-Vigencia
-Artículo 52.—Vigencia.
-Regirá en su totalidad a partir de la publicación de la resolución del Contralor General en que oficialmente declare la finalización del proceso de reorganización y modernización de la Contraloría General de la República.
-(Así corregida la numeración de este Capítulo, mediante Fe de Erratas publicada en La Gaceta No. 109, del 07 de junio de 1999.)
+SECCIÓN QUINTA
+Servicios de Proveeduría
+Artículo *52.—Objetivo; relación jerárquica.
+1. Asegurar oportuna y adecuadamente la provisión y control de los bienes y servicios que los procesos de fiscalización superior y de apoyo requieran, a través de medios administrativos ágiles y transparentes y con apego a los procedimientos legales vigentes.
+2. Depende del Gerente del Área Administrativa.
+(*Así corrida su numeración por el artículo 4º de la Resolución de la Contraloría General de la República N° 66 del 4 de julio del 2005, que lo traspasó del antiguo 50 al 52 actual del artículo).
