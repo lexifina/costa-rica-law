@@ -1,0 +1,2 @@
+Artículo 38.—Solicitud de audiencia. Toda persona que tenga interés en asuntos de la Municipalidad del cantón, podrá ser oída por el Concejo, para tal efecto deberá presentar a la secretaria solicitud escrita con exposición de los motivos en que se fundamente su petición.
+La secretaria remitirá al Concejo en orden de presentación las solicitudes de audiencia. El Concejo decidirá si acepta o no la petición formulada, tomando en cuenta el interés municipal, la oportunidad y cualquier otro elemento que se considere pertinente.

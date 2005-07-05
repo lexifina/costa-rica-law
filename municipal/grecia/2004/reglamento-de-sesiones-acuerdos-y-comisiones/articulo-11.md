@@ -1,0 +1,2 @@
+Artículo 11.—Comportamiento en las sesiones. Los participantes de las sesiones deberán guardar el orden y conducirse de forma que no alteren o perjudiquen el normal desarrollo de la sesión; deberán además prestar la atención necesaria durante la discusión.
+Corresponderá a la presidencia velar por el orden de la sesión y llamar la atención a las personas que no acaten lo dispuesto en este artículo.

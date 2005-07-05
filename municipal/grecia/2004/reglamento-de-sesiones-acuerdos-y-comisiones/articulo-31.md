@@ -1,0 +1,2 @@
+Artículo 31.—Trámite de mociones de orden. Las mociones de orden deben de ser conocidas, discutidas y sometidas a votación en riguroso orden de presentación. Sobre una moción de orden no se admitirá otra que pretenda posponerla.
+Presentada una moción de orden, se concederá el uso de la palabra en primer término, al proponente, luego a los regidores que la soliciten, sin que pueda exceder de cinco minutos cada intervención.

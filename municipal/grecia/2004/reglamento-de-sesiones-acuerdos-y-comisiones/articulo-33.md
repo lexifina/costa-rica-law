@@ -1,0 +1,1 @@
+Artículo 33.—Presidencia y secretaría de las comisiones. Cada Comisión se instalará dentro de los quince días siguientes a su designación, y de su seno por mayoría absoluta escogerá un presidente y un secretario, quienes deberán ser miembros del Concejo.

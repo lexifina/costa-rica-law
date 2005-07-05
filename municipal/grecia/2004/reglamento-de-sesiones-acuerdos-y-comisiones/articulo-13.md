@@ -1,0 +1,1 @@
+Artículo 13.—Entrega previa de actas. Las actas del Concejo pendientes de aprobación deberán ser entregadas por la secretaria, dos horas antes del inicio de la sesión como mínimo, para conocimiento de los regidores.

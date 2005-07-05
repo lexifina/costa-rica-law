@@ -1,0 +1,1 @@
+Artículo 18.—Iniciativas de los regidores. En el capítulo de iniciativas de los regidores, éstos presentarán sus mociones y proposiciones por escrito y firmadas. La secretaría anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden de presentación, salvo que se trate de mociones de orden.

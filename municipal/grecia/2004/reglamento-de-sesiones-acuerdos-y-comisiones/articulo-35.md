@@ -1,0 +1,1 @@
+Artículo 35.—Presentación de los dictámenes. Los dictámenes de las comisiones deberán presentarse por escrito y firmados por todos los miembros de la comisión que los emiten. Cuando no existiere acuerdo unánime sobre un dictamen, los miembros de la comisión que no lo aprueben, podrán rendir dictamen por separado si lo estiman conveniente.

@@ -1,0 +1,1 @@
+Artículo 43.—Moderación de las audiencias. Corresponde a la Presidencia moderar las intervenciones de los munícipes o particulares, llamarlos al orden y suspender la audiencia si el caso lo amerita. En caso necesario la presidencia podrá ordenar el desalojo del recinto, para lo cual podrá requerir la participación de la fuerza pública.

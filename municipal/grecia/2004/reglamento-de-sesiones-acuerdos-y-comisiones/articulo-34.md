@@ -1,0 +1,1 @@
+Artículo 34.—Plazo para rendir informes. Salvo los casos especiales en que la Presidencia del Concejo Municipal establezca un plazo diferente, las comisiones rendirán sus dictámenes dentro de los quince días hábiles siguientes a que les encomiende el análisis de un asunto. Este plazo podrá prorrogarse hasta por un plazo igual, cuando así lo solicite la Presidencia de la Comisión.

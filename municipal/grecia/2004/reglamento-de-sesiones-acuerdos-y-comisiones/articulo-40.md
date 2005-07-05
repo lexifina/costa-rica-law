@@ -1,0 +1,1 @@
+Artículo 40.—Traslado oficioso de documentos. Si en la solicitud de audiencia se incluyeran memoriales adicionales dirigidos al Concejo la Secretaría los examinará, y si resulta que lo planteado es de competencia de la Alcaldía, lo enviará a ese despacho para que efectúe el trámite correspondiente. De lo anterior se informará a los solicitantes.

@@ -1,0 +1,1 @@
+Artículo 8º—Pérdida de dieta. El miembro propietario que llegare después de transcurridos los quince minutos, contados a partir de la hora señalada para iniciar la sesión, perderá el derecho a devengar la dieta, aunque no se hubiera efectuado su sustitución. En caso de los regidores, si no se hubieren sustituido, conservará su derecho a voz y voto.

@@ -1,0 +1,3 @@
+Artículo 7º—Permiso para ausentarse. La Presidencia podrá otorgar permiso al regidor que así lo solicitare, por lapso de diez minutos como máximo, para retirarse momentáneamente de la sesión, siempre y cuando no se afecte el quórum reglamentario. Para otorgar el permiso la presidencia deberá contar con la venia de la Jefatura de la Fracción a la cual pertenece el regidor.
+Deberá suplirse de manera inmediata al regidor que cuenta con permiso para abandonar la sesión, por el lapso que dure su ausencia.
+Pasados los diez minutos sin que el regidor se reintegre a la sesión, la presidencia lo tendrá como ausente y dispondrá que el suplente continúe ejerciendo como propietario por el resto de la sesión. El regidor ausente perderá la dieta.

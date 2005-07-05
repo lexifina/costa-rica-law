@@ -1,0 +1,1 @@
+Artículo 6º—Restablecimiento del quórum. Si en el curso de una sesión se rompiere el quórum, la Presidencia instará a los regidores que se hubieren retirado sin permiso, para que ocupen de nuevo sus curules. Transcurridos diez minutos sin que pueda establecerse el quórum, se levantará la sesión. Los regidores remisos perderán el derecho a devengar la dieta correspondiente.

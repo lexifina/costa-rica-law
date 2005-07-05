@@ -1,0 +1,3 @@
+Artículo 21.—Uso de la palabra. La Presidencia concederá el uso de palabra en el orden en que se lo soliciten los regidores. Salvo en los casos en que este Reglamento .je un lapso menor a cada regidor, podrá referirse al asunto en discusión, hasta por un término de diez minutos la primera vez y por un lapso de cinco minutos la segunda vez, si así lo solicitare. El regidor al que se le hubiere concedido la palabra no podrá ceder su tiempo.
+Asimismo la presidencia podrá conceder el uso de la palabra por un lapso de hasta diez minutos al alcalde y síndicos que así lo soliciten.
+La Presidencia podrá pedir a quien haga uso de la palabra que se concrete al punto del debate y en caso de renuencia podrá retirársela.

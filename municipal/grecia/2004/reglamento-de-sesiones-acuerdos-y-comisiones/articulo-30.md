@@ -1,0 +1,1 @@
+Artículo 30.—Presentación de mociones de orden. En cualquier momento del debate podrán proponerse mociones de orden. La moción de orden suspenderá el debate hasta tanto no sea discutida y votada por el Concejo.

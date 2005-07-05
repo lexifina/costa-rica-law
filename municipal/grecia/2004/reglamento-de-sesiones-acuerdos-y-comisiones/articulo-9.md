@@ -1,0 +1,2 @@
+Artículo 9º—Regidor suplente en ejercicio. El regidor suplente que sustituyere a un propietario, tendrá derecho a permanecer toda la sesión con voz y voto y a devengar la dieta, si la sustitución se hubiere efectuado después de los quince minutos a que se refiere el artículo anterior. El regidor propietario que llegare después de los quince minutos de gracia podrá ejercer su derecho a voz, pero no tendrá voto y no devengará dieta.
+Las disposiciones de los artículos 8º y 9º son aplicables a los síndicos.

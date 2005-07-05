@@ -1,0 +1,1 @@
+Artículo 39.—Notificación de audiencia. Corresponde a la secretaria notificar oportunamente a los interesados las invitaciones a las audiencias que acuerde el Concejo. También deberá notificar al solicitante cuando se rechace la petición.

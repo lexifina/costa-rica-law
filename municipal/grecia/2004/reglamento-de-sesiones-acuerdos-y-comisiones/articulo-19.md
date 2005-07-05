@@ -1,0 +1,1 @@
+Artículo 19.—Reformas reglamentarias. Toda iniciativa tendiente a adoptar, reformar, suspender o derogar disposiciones reglamentarias, debe ser presentada ante el Concejo por el alcalde o algún regidor y enviada a comisión para su estudio y dictamen.

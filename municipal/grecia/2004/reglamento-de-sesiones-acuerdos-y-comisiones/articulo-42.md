@@ -1,0 +1,1 @@
+Artículo 42.—Invitados especiales. Cuando concurran al Concejo miembros de los Supremos Poderes, invitados especiales, representantes de organismos oficiales, representantes de instituciones, se les recibirá en el Salón de Sesiones a la hora .jada al efecto e inmediatamente después del saludo de rigor se les concederá el uso de la palabra.

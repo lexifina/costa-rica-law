@@ -1,0 +1,4 @@
+Artículo 26.—Del recurso de revisión. El recurso de revisión procederá contra todos los acuerdos, salvo los aprobados definitivamente. Deberá presentarse por medio de moción escrita y razonada, antes de ser aprobada el acta.
+La misma mayoría requerida para dictar el acuerdo sobre el que se solicita la revisión será necesaria para acordar ésta.
+El recurso podrá plantearlo cualquier regidor propietario.
+Recibido el recurso, la presidencia deberá someterlo a discusión y votación antes de la aprobación del acta. De ser acogida la moción de revisión, se pasará al conocimiento del asunto por el fondo, éste deberá resolverse, necesariamente, durante la misma sesión en que se plantea el recurso, a menos que por tratarse de un asunto que la presidencia considere urgente prefiera conocerlo en sesión extraordinaria, a realizarse antes de la sesión ordinaria siguiente.

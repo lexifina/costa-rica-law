@@ -1,0 +1,1 @@
+Artículo 25.—Firmeza de los acuerdos. Los acuerdos tomados por el Concejo, quedarán en firme con la aprobación del acta respectiva. En casos especiales de suma urgencia el Concejo por votación de dos terceras partes de la totalidad de sus miembros, podrá declarar definitivamente aprobados sus acuerdos en la misma sesión.
