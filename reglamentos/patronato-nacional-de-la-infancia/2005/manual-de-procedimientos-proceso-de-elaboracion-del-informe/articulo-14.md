@@ -1,0 +1,1 @@
+14.—En la primera semana hábil del mes de enero, se llevará a cabo la clasificación y el registro de todos los ingresos, correspondientes al período en proceso de liquidación. Oficina Responsable: Departamento Financiero Contable.

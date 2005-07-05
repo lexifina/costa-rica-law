@@ -1,0 +1,1 @@
+17.—De acuerdo a los resultados del proceso de conciliación, en la segunda semana de enero se llevarán a cabo los ajustes necesarios en el sistema que corresponda. Oficinas Responsables: Departamento Financiero Contable, Departamento Administración de Presupuesto.

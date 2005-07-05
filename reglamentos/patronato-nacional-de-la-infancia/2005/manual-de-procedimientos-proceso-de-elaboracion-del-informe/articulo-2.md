@@ -1,0 +1,1 @@
+2º—Las Liquidaciones Presupuestarias se elaboran para un determinado período y dadas las características de continuidad del proceso presupuestario, estas servirán de fuente informativa para la formulación y ejecución de presupuestos de períodos posteriores.

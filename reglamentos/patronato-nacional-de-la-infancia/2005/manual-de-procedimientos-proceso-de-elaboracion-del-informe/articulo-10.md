@@ -1,0 +1,1 @@
+10.—La liquidación correspondiente a los egresos deberá ser presentada al mismo nivel de estructura programática (programa, subprograma, partida, subpartida, según corresponda) y de acuerdo con las clasificaciones de ingresos y gastos aprobadas por la Contraloría General de la República. (Ver Anexo 2).

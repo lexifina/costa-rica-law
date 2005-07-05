@@ -1,0 +1,2 @@
+Del informe de la subpartida de información y publicidad
+23.—De acuerdo a los resultados del ejercicio y como lo indica la circular 1259 emitida por la Contraloría General de la República, en la segunda semana hábil de enero se formulará el detalle de la partida de información y publicidad. Oficina Responsable: Departamento Administración de Presupuesto, con insumos suministrados por la Oficina de Prensa de la Institución.
