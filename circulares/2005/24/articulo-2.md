@@ -1,0 +1,13 @@
+CAPÍTULO II
+Documentación mínima para el registro de elegibles
+Artículo 2º—Documentación mínima para la inscripción en el registro de auditores elegibles. El profesional independiente o la firma de auditoria deberán presentar la siguiente documentación en la Superintendencia General de Valores (en adelante SUGEVAL) de conformidad con el formulario establecido en el Anexo Nº III:
+a. Solicitud de inscripción del profesional independiente o las firmas auditoras. La solicitud deberá ser firmada por el profesional independiente o su apoderado, o el representante legal en caso de las firmas auditoras, y deberá ser autenticada por notario público.
+Cuando la solicitud se haga por medio de representantes legales o apoderados, deberá adjuntarse la correspondiente certificación de personaría jurídica o del mandato, expedida por el Registro Público Nacional o notario público. La solicitud deberá indicar una dirección permanente para atender notificaciones o comunicaciones.
+b. Declaración jurada protocolizada rendida por el representante legal de la firma o el profesional independiente donde se indiquen todas las sociedades relacionadas, por propiedad o control, con el profesional, la firma, o sus socios, así como las actividades que realizan.
+c. Documentación general del profesional o firma de auditoria de conformidad con lo establecido en el Artículo Nº 3 de este acuerdo.
+d. Certificación extendida por el Colegio de Contadores Públicos donde conste que el profesional independiente es miembro activo.
+Dicha certificación deberá ser presentada para cada uno de los socios que conforman la firma, y para los encargados directos de la auditoría de conformidad con lo establecido en el artículo 5) inciso c) del Reglamento de Auditores Externos y Medidas de Gobierno Corporativo aplicable a los sujetos fiscalizados por SUGEF, SUGEVAL y SUPEN.
+e. En el caso de firmas de auditoria deberán presentar certificación de que es miembro activo de Colegio de Contadores Públicos.
+f. Certificación registral o notarial de los poderes conferidos a cada uno de los socios en el caso de firmas auditoras.
+g. Declaración jurada protocolizada por el representante legal de la firma o el profesional independiente, del cumplimiento de los requisitos de idoneidad y experiencia profesional establecidos en los Artículos Nos. 4 y 5 del Reglamento de Auditores Externos y Medidas de Gobierno Corporativo aplicable a los sujetos fiscalizados por SUGEF, SUGEVAL y SUPEN. (Anexo Nº I).
+Las certificaciones indicadas en los incisos anteriores no deberán tener un plazo mayor al mes de emitidos. Toda la documentación será de carácter confidencial.
