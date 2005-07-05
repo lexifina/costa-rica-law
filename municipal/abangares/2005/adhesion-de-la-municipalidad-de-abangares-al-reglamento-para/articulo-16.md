@@ -1,0 +1,1 @@
+Artículo 16.—Notificación del Cobro. Habiendo ejecutado los trabajos, por parte del comité de caminos, la municipalidad en coordinación con la fuerza pública procederá con la notificación de cobro al respectivo propietario.
