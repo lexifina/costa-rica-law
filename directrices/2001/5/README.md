@@ -14,3 +14,4 @@ Reglamento a la Tramitación Notarial de Procesos en Actividad Judicial no Conte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-22 | la propia norma |
+| 2 | 2005-07-06 | Directriz 0 (2005-07-06) |
