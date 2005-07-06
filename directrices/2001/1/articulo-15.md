@@ -1,6 +1,0 @@
-Artículo 15.- Faltas u omisiones subsanables:
-Las faltas u omisiones subsanables que no merezcan –en un principio- la iniciación de un procedimiento disciplinario, o formulación de denuncia, podrán señalarse mediante dos procedimientos:
-1. Por vía de recomendación:
-En este caso, si en apego a los lineamientos de la Dirección, la subsanación de la falta tiene como finalidad incrementar la agilidad de la notaría o la eficacia y seguridad en la prestación del servicio, el fiscal notarial formulará recomendación escrita, comprensiva de las acciones a tomar con ese fin, la cual entregará junto con el acta de inspección. El cumplimiento de estas recomendaciones, será comprobado en la próxima fiscalización ordinaria que se efectúe en la notaría.
-2. Por vía de prevención:
-Se presentará cuando se detecten faltas u omisiones que de conformidad con la Dirección, ameriten el otorgamiento de un plazo perentorio para cumplirlas. La prevención la efectuará por escrito el fiscal notarial en el acto, y la entregará al notario. En la misma deberá establecerse el plazo concedido para su fiel cumplimiento, según lo dispone el artículo 17 de este reglamento. De la subsanación se hará comprobación en cualquier momento, una vez finalizado el plazo concedido; lo anterior, sin perjuicio de lo dispuesto en el artículo 139 del Código Notarial.

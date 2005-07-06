@@ -1,2 +1,0 @@
-Artículo 24.- Ausencia de irregularidades o faltas:
-Cuando finalizada la inspección, los documentos examinados, el notario, la notaría y cualquier otro lugar inspeccionado o visitado, no sugieran la existencia de ningún tipo de irregularidad, falta o incumplimiento por parte del notario, se procederá a archivar el formulario y documentos en los archivos respectivos. Del resultado satisfactorio de la diligencia, tomará nota el Registro Nacional de Notarios, en el asiento del respectivo profesional.
