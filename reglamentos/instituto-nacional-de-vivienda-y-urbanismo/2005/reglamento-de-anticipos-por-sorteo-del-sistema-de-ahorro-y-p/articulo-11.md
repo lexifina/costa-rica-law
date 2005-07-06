@@ -1,0 +1,1 @@
+Artículo 11.—La Junta Directiva de la Institución, podrá de conformidad con la solidez financiera del Sistema, incrementar o disminuir el número de contratos favorecidos por sorteo lo que oportunamente será del conocimiento de los clientes del Sistema.

@@ -1,0 +1,1 @@
+Artículo 4º—En cada sorteo se favorecerán tres contratos, independientemente de su monto. Las personas favorecidas en cada uno de los sorteos, quedarán sujetos a lo dispuesto para este particular en el artículo 6 del Reglamento del Sistema de Ahorro y Préstamo del INVU.

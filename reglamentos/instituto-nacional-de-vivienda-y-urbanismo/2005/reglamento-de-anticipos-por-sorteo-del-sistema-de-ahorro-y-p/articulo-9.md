@@ -1,0 +1,1 @@
+Artículo 9º—El plazo para la cancelación del crédito, se define, adicionando al plazo reglamentario, según el tipo de plan, los meses que le faltaban, al mes del sorteo, para completar su programa de ahorro.
