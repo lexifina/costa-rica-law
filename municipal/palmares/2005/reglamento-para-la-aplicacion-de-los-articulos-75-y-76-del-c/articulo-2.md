@@ -1,0 +1,1 @@
+Artículo 2º—Alcance: Este Reglamento abarca todo lote o finca que se encuentre en área pública o privada, ubicada dentro del cantón de Palmares. Que se preste para incurrir en las omisiones detalladas en el artículo primero del presente Reglamento.
