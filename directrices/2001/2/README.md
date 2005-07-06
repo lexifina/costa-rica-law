@@ -13,3 +13,4 @@ Reglamento de Fondo de Garantía de los Notarios.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-05 | la propia norma |
+| 2 | 2005-07-06 | Directriz 0 (2005-07-06) |
