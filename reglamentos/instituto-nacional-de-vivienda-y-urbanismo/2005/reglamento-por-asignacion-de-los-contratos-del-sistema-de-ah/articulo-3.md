@@ -1,0 +1,1 @@
+Artículo 3º—Es condición para que se autorice un crédito anticipado que el suscriptor aporte su cuota de ahorro mensualmente en forma consecutiva, y sin atraso. No es válido para el caso de anticipo el período de gracia.

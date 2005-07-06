@@ -1,0 +1,1 @@
+Artículo 6º—La tasa de interés que se aplicará a los créditos anticipados por asignación será igual a la activa del Banco Nacional para préstamos de vivienda más 2 puntos porcentuales. La tasa de interés será la vigente al momento en que formalice el crédito y no la vigente al momento en que se autorice el anticipo.

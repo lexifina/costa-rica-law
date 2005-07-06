@@ -1,0 +1,1 @@
+Artículo 9º—Se establecen topes máximos de anticipos de acuerdo a las finalidades del Sistema, dependiendo de la tasa de interés vigente, a la fecha de aprobación. Estos topes los fijará la Dirección de Ahorro y Préstamo, de acuerdo al inciso a) y e) del artículo 4 del Reglamento de Ahorro y Préstamo, del Sistema de Ahorro y Préstamo del INVU.

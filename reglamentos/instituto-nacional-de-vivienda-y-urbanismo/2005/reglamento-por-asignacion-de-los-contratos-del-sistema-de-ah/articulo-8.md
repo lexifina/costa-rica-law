@@ -1,0 +1,1 @@
+Artículo 8º—Una vez autorizado formalmente el anticipo, el beneficiario tendrá un plazo de 30 días hábiles para tramitar el crédito, de lo contrario, expirará el beneficio de anticipo; y la Dirección de Ahorro y Préstamo, podrá de nuevo autorizar este beneficio a otro solicitante.

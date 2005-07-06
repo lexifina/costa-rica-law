@@ -1,0 +1,1 @@
+Artículo 10.—Si el solicitante no tramitó el préstamo al finalizar los 30 días hábiles, pierde su derecho al anticipo aprobado y no podrá gestionar una nueva solicitud, hasta que se apruebe un nuevo presupuesto.
