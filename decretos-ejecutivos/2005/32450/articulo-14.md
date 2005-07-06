@@ -1,0 +1,1 @@
+Artículo 14.—Disposición de las facturas. Concluido cada sorteo, la Oficina de Lotería Fiscal seleccionará una muestra de facturas para labores de fiscalización. Asimismo, podrá disponer el destino final para el resto de las facturas participantes en el sorteo.

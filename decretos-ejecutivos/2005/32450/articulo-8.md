@@ -1,0 +1,1 @@
+Artículo 8º—Notificación de participantes premiados. Los nombres de los participantes premiados serán divulgados en el mismo sorteo; además, se dará a conocer la lista de premiados en un diario de circulación nacional y por una única vez, a más tardar cinco días hábiles después de efectuado el sorteo.
