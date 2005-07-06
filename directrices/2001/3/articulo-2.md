@@ -1,12 +1,14 @@
 ARTICULO 2
 DISPOSICIONES DE CARÁCTER GENERAL:
-1.- Solo podrá ser objeto de registración notarial, las resoluciones emitidas por la Dirección Nacional de Notariado que se originan en:
-a)- el ejercicio de su competencia,
-b)- sentencias dictadas por los Tribunales de Justicia, civil, penal y notarial,
-c)- aquéllas provenientes de gestiones al efecto formuladas por el Notario, y
-d)- las sanciones impuestas por el Colegio de Abogados, respecto a la aplicación de competencia de ese Colegio.
+1. Sólo podrán ser objeto de registración notarial, las resoluciones emitidas por la DNN que se originan en:
+a) El ejercicio de su competencia.
+b) Suspensión como notario por sentencias firmes dictadas por los Tribunales de Justicia, Civil, Penal, Notarial, Sala Segunda y Sala Constitucional.
+c) Aquellas provenientes de gestiones al efecto formuladas por el notario.
+En el caso de gestiones formuladas por el notario, como lo es el caso de salidas y entradas del país, cambio de sellos blancos, de oficina entre otros, no necesitaran resolución alguna para ser inscritas. Así como los resultados de las fiscalizaciones efectuadas por la DNN en las oficinas notariales.
+(Reformado por el Artículo 120 de los Lineadmientos Generales para la prestación y control del ejercicio y servicio notarial de fecha 6 de julio del 2005)
 2.- El asiento matriz registral notarial, podrá ser objeto de cancelación siempre y cuando medie una resolución judicial que así lo indique; sin embargo, por ser la inscripción a perpetuidad con efectos erga omnnes, ésta se mantendrá como parte del histórico. Lo anterior por cuanto la licencia de notario público no es objeto de cancelación, amén de que entratándose de inhabilitación lo que se suspende es la vigencia de la función notarial únicamente, sea no se pierde la condición de notario público, lo cual solo sucede con el fallecimiento.
-3.- El asiento que se origina en resoluciones de la Dirección que en ejecuciones de su competencia, podrán ser objeto de variación.
+3. El asiento que se origina en resoluciones de la DNN en ejecuciones de su competencia podrá ser objeto de variación a requerimiento de las Autoridades Judiciales..
+(Reformado por el Artículo 120 de los Lineadmientos Generales para la prestación y control del ejercicio y servicio notarial de fecha 6 de julio del 2005)
 4.- Los asientos registrales notariales que se originan en sentencia firme de los juzgados jurisdiccionales y notariales sólo podrán variarse a requerimientos de esas autoridades.
 5.- Los asientos registrales notariales tienen toda su eficacia, en tanto no se indique lo contrario mediante anotación marginal, y de conformidad con las disposiciones al efecto de este reglamento.
 6.- Si por error se inscribiera un asiento, sólo podrá cancelarse mediante resolución dictada por la Dirección en ese sentido en donde se indique claramente en que consistió el error.

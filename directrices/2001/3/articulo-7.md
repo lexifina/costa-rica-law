@@ -1,9 +1,12 @@
 ARTICULO 7
 CLASES DE ASIENTOS REGISTRALES NOTARIALES:
 DE INSCRIPCION, HABILITACION, CESE E INHABILITACION.
-Su respaldo lo constituye el expediente judicial tramitado de conformidad con los artículos 10 y 3 del Código Notarial
-La inscripción y/o habilitación procede a inscribirse una vez que el notario se juramente de conformidad con la resolución firme de la Dirección.-
-Los casos respecto al cese e inhabilitación, también tienen como respaldo el expediente donde se llevó a cabo el respectivo tramite, según el caso.
+Habilitación: Representa en la actividad notarial el proceso administrativo especializado con efectos registrales que emite la DNN para inscribir, autorizar en ser y ejercer como notario, rehabilitarlo cuando se encuentre en cese y cesarlo voluntaria o forzosamente cuando al notario en estado activo le sobrevenga la inhabilitación legal y no solicite el cese respectivo.
+El notario público habilitado que desee cesar en el ejercicio del notariado deberá solicitarlo por escrito y para efectos de publicidad, el cese surte efecto desde la hora y fecha en que presenta la solicitud.
+Inscripción: Se inscribirá el notario público que cuente con los requisitos y condiciones de conformidad con el CN. Puede originarse por solicitud expresa al efecto o porque, a pesar de contar con las condiciones y requisitos, se tiene algún impedimento para ser notario.
+El notario público inscrito podrá solicitar su rehabilitación en el tanto cumpla con los requisitos y condiciones y no se encuentre impedido para ser notario. En el presente caso, si se tratare de notarios autorizados con el régimen derogado, no tendrá que realizar el acto de juramentación, de lo contrario tendrá que cumplir con ese requisito.
+Inhabilitación: Es el estado de inhabilitación o cese forzoso del notario activo. Se deriva de una causa personal que le sobreviene a su ejercicio, de conformidad con el CN y por los efectos que produce ese estado en el servicio notarial, el decreto de inhabilitación representa en materia registral notarial una medida preventiva. Por esa razón ese fedatario deberá inhibirse de brindar el servicio notarial que le es rogado y proceder a depositar el tomo de protocolo en uso.
+(Así reformado por Artículo 120 de Lineamientos Generales para la prestación y control del ejercicio y servicio notarial de fecha 6 de julio del 2005 )
 RESPECTO A LA ENTREGA DE LA LICENCIA DE NOTARIO:
 La licencia es el documento que identifica al notario público autorizado para el ejercicio de la función notarial, su entrega se efectuará una vez que éste rinda el juramento de ley. Tendrá vigencia en el tanto de que el notario se encuentre debidamente habilitado.
 El Notario público deberá reportar su pérdida y su reposición se efectuará a requerimiento del fedatario.
