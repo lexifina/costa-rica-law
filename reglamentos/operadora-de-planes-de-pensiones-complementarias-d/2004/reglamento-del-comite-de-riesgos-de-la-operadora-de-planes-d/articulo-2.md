@@ -5,7 +5,10 @@ a) El Gerente de la Operadora, quien lo presidirá y en caso de empate, ejercer�
 b) El Jefe del Departamento de Administración y Finanzas de la Operadora, quien será su Vicepresidente y sustituirá al Presidente en caso de ausencia.
 c) El Jefe de la Unidad de Riesgos de Popular Pensiones OPC, quien será su Secretario.
 d) El Coordinador del Proceso de Gestión de Riesgo del Banco Popular y de Desarrollo Comunal, o su delegado, quien debe ser funcionario del Área de Gestión de Riesgo del Banco Popular y contar con experiencia en administración integral de riesgos.
-e) El miembro independiente que se especifica en el inciso b) del artículo 8º del Reglamento de Inversiones.
+e) El miembro independiente que se especifica en el inciso b) del artículo 8 del Reglamento de Inversiones, el cual será nombrado por un plazo de dos años, pudiendo ser prorrogado su contrato por periodos iguales. Será potestad de la junta directiva de Popular Pensiones S. A., el nombramiento y remoción del mismo.
+(Así reformado el inciso anterior en sesión N° 186 del 6 de julio de 2005)
 El encargado de Operaciones Bursátiles de la Operadora y el Asistente del Gerente de la Operadora asistirán con derecho a voz pero sin voto. El único miembro que puede delegar es el indicado en el inciso d) anterior.
 No corresponderá el pago de dietas para la asistencia a las sesiones del Comité, salvo en el caso del miembro independiente indicado en el inciso e) anterior, que devengará dietas en el mismo monto señalado para los integrantes de la Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal, hasta por un máximo de dos sesiones mensuales.
-El quorum para sesionar quedará conformado con tres de los miembros con derecho a voz y voto, siempre y cuando se cuente con al menos uno de los miembros indicados en los incisos d) y e) anteriores.
+El quórum para sesionar quedará conformado por tres de los miembros con derecho a voz y voto, siempre y cuando se cuente con al menos uno de los miembros indicados en los incisos d) y e) anteriores.
+El representante designado por cada uno de los fondos especiales, que mediante convenio o relación contractual sean administrados por Popular Pensiones, podrá participar en las sesiones del Comité de Riesgos, con voz y voto, únicamente en aquellos asuntos que tengan relación directa con el fondo que representa.
+(Así adicionado el párrafo anterior en sesión N° 186 del 6 de julio de 2005)

@@ -14,3 +14,4 @@ Reglamento del Comité de Riesgos de la Operadora de Planes de Pensiones Complem
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-07-22 | la propia norma |
+| 2 | 2005-07-06 | Reglamento 186 (2005-07-06) |
