@@ -1,1 +1,0 @@
-Artículo 3°—La Autoridad Nacional desempeñará las funciones que se estipulan en el párrafo 4° del artículo VII de la Convención, coordinará las actividades de las instituciones gubernamentales para la aplicación de la misma y emitirá la reglamentación necesaria al efecto.
