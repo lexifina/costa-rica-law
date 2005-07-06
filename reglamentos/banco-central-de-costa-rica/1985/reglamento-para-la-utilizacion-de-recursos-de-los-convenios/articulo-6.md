@@ -7,7 +7,6 @@ Las tasas de interés deben ajustarse trimestralmente para los usuarios finales 
 Todos los contratos de préstamos de los bancos con los bancos prestatarios y con las empresas privadas deben tener una provisión, permitiendo el ajuste de los intereses según la variación de la tasa básica pasiva del Banco Central. El Banco Central comunicará la fecha exacta cuando se aplica el cambio de intereses.
 d) Plazo:
 i) Para financiar capital de trabajo: hasta un máximo de veinticuatro meses, con un período de gracia de doce meses.
-ii) Para financiar el resto de las actividades permitidas en el artículo 2°, anterior: hasta un máximo de siete años con un período de gracia máximo de dos años.
-Los plazos que conceda el Banco Central a los bancos intermediarios, serán los mismos que los que éstos concedan al usuario final del crédito.
+ii) (Derogado este inciso mediante sesión 5237 celebrada el 6 de julio del 2005)
 e) El Banco Central cobrará a los bancos intermediarios y éstos últimos a sus clientes, una comisión conforme con las disposiciones adoptadas al respecto por el Directorio del Instituto Emisor, con el propósito de constituir el "Fondo de Pérdidas Cambiarías". Los bancos intermediarios no deberán cobrar otros cargos o comisiones bajo este programa.
 En todos los casos, los plazos involucrados en estas transacciones serán iguales a los concedidos a los empresarios y las operaciones se formalizarán en colones.

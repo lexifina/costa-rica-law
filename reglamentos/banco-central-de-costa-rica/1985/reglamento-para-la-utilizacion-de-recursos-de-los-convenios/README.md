@@ -15,3 +15,4 @@ Reglamento para la utilización de recursos de los Convenios de Asistencia AID 5
 | --- | --- | --- |
 | 1 | 1985-04-29 | la propia norma |
 | 2 | 1985-09-04 | Reglamento 4061 (1985-09-04) |
+| 3 | 2005-07-06 | Reglamento 5237 (2005-07-06) |
