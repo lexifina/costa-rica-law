@@ -14,3 +14,4 @@ Reforma reglamento para la utilización de recursos de los Convenios de Asistenc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-10-17 | la propia norma |
+| 2 | 2005-07-06 | Reglamento 5237 (2005-07-06) |
