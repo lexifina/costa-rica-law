@@ -1,0 +1,19 @@
+CONSEJO NACIONAL DE SUPERVISIÓN
+DEL SISTEMA FINANCIERO
+El Consejo Nacional de Supervisión del Sistema Financiero, mediante artículos 12 y 6º de las actas de las sesiones Nos. 513-2005 y 514-2005, respectivamente, celebradas el 23 de junio del 2005,
+considerando:
+a. que el Consejo Nacional de Supervisión del Sistema Financiero mediante artículos 18 y 6º de las actas de las sesiones Nos. 491- 2005 y 492-2005, respectivamente, celebradas ambas el 20 de enero del 2005, aprobó el “Reglamento de Auditores Externos y Medidas de Gobierno Corporativo aplicable a los sujetos fiscalizados por la SUGEF, SUGEVAL y SUPEN”, acuerdos que fueron publicados en el Diario Oficial La Gaceta Nº 28 del 9 de febrero del 2005,
+b. que el artículo 11 del Reglamento establece que únicamente serán elegibles para la presentación de servicios de auditoría externa a los sujetos fiscalizados por las Superintendencias, los profesionales y firmas auditoras que se encuentren inscritos en el Registro de Auditores Elegibles que deberán constituir las tres Superintendencias de manera conjunta,
+c. que el artículo 13 del Reglamento establece que los sujetos fiscalizados deberán comunicar a la Superintendencia respectiva el nombre de la firma auditora contratada para realizar la auditoría correspondiente, a más tardar el 30 de junio de cada año para las empresas con cierre en diciembre de cada año y el 30 de abril para las entidades que cierran en setiembre de cada año,
+d. que el acuerdo conjunto de las tres Superintendencias que establece los requisitos de inscripción de profesionales o firmas auditoras en el Registro Nacional de Valores e Intermediarios fue emitido el 7 de junio del 2005, fecha de inicio para el registro de estos profesionales.
+Con el .n de que los sujetos fiscalizados cuenten con tiempo suficiente para contratar los profesionales o firmas independientes de auditores externos inscritos en el Registro Nacional de Valores e Intermediarios, se considera necesario para el ejercicio fiscal del 2005 ampliar el plazo hasta el 29 de julio del 2005 para que, tanto las empresas con cierre fiscal a setiembre como las empresas con cierre fiscal a diciembre, informen sobre el nombramiento de los auditores externos,
+e. que el artículo 18 del Reglamento establece que los sujetos fiscalizados deben presentar un informe complementario a los estados financieros. Sin embargo, en dicho artículo se omitió que el mismo deberá ser realizado de conformidad con lo establecido por el Superintendente correspondiente, por lo que es necesario incorporar este requisito,
+f. que las medidas indicadas son de carácter urgente y formalmente necesarias para el correcto funcionamiento del registro y además van en beneficio de los sujetos fiscalizados se considera apropiado prescindir del trámite de consulta, con fundamento en el Artículo 361, inciso 2, de la Ley General de la Administración Pública,
+acordó:
+1. Modificar el artículo 18 del “Reglamento de Auditores Externos y Medidas de Gobierno Corporativo aplicable a los sujetos fiscalizados por la SUGEF, SUGEVAL y SUPEN”, de tal forma que su texto se lea de la siguiente manera:
+“Artículo 18.—Informe complementario. El profesional o firma auditora deberá elaborar un informe complementario a los estados financieros auditados, el cual deberá presentarse conjuntamente con estos. Como mínimo dicho informe deberá referirse a los siguientes temas:
+a) Cumplimiento de la normativa aplicable a la entidad auditada.
+b) Declaración y descripción de la necesidad de ajustes a los estados financieros intermediarios remitidos a la Superintendencia.
+c) Evaluación de los mecanismos de control interno de la entidad auditada.
+d) Análisis efectuado al área de tecnología de información que utiliza la entidad auditada, el cual se efectuará conforme a las Normas Internacionales de Auditoría y declaraciones relacionadas.
+El Superintendente respectivo definirá una guía para la elaboración de este informe.”
