@@ -1,0 +1,1 @@
+Artículo 8º—Los órganos y las entidades que a la fecha no hayan implementado los clasificadores vigentes, podrán utilizar el superávit libre en los términos dispuestos en el artículo 7 de este Lineamiento, pues esos recursos mantienen la misma naturaleza.

@@ -1,0 +1,1 @@
+Artículo 10.—Las entidades privadas que administren o dispongan recursos de la Hacienda Pública, e incorporen recursos de vigencias anteriores -superávit libre y específico- en sus presupuestos, deberán atenerse a lo dispuesto en este Lineamiento.

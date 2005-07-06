@@ -1,0 +1,1 @@
+Artículo 6º—Los recursos de financiamiento que provienen de operaciones de endeudamiento producto del financiamiento interno y externo que le generan un pasivo a la entidad, tendrán el mismo tratamiento que los ingresos de capital, en cuanto a que no pueden utilizarse para financiar gastos corrientes, salvo que exista una disposición de rango legal o superior que lo autorice.

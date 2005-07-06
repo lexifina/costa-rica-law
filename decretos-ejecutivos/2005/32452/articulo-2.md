@@ -1,0 +1,1 @@
+Artículo 2º—Tal y como lo dispone la normativa vigente, los ingresos del Sector Público están clasificados en tres clases, a saber: los ingresos corrientes, los ingresos de capital y el financiamiento.

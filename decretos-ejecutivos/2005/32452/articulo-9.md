@@ -1,0 +1,1 @@
+Artículo 9º—Los recursos de vigencias anteriores que se refieren al superávit específico, podrán utilizarse para financiar los gastos definidos en los fines establecidos en las disposiciones especiales o legales aplicables a esos recursos.

@@ -1,0 +1,1 @@
+Artículo 5º—Los ingresos de financiamiento son una fuente extraordinaria de recursos de diferente naturaleza producto del financiamiento interno y externo, los recursos de emisión monetaria, así como los recursos de vigencias anteriores dentro de los cuales se ubican los superávit libre y superávit específico.

@@ -1,0 +1,1 @@
+Artículo 3º—Los ingresos corrientes constituyen la fuente ordinaria de recursos públicos y a través de ellos se financian gastos de los órganos y las entidades públicas. Entre ellos están los ingresos tributarios, las contribuciones sociales, los ingresos no tributarios y las transferencias corrientes.
