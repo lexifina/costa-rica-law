@@ -14,3 +14,4 @@ Información de trámites y requisitos que se realizan ante el AYA con ocasión 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-04 | la propia norma |
+| 2 | 2005-07-06 | Acuerdo 493 (2005-07-06) |
