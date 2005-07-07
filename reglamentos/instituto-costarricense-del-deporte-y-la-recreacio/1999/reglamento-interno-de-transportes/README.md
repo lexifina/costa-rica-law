@@ -14,3 +14,4 @@ Reglamento Interno de Transportes.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-20 | la propia norma |
+| 2 | 2005-07-07 | Reglamento 438 (2005-07-07) |
