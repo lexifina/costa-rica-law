@@ -1,0 +1,4 @@
+SECCIÓN V
+Autoridad de Registro
+Artículo 22.—Autoridad de Registro. La Autoridad de Registro es la encargada de autorizar el uso del certificado digital para el sistema informático respectivo para este fin deberá registrar y validar la identidad de los usuarios (Proveedores, Auxiliares de la Función Pública, Contribuyentes entre otros) de certificados digitales para su posterior emisión; igualmente es la encargada de recibir y dar trámite a las solicitudes de vencimiento anticipado y renovación de los certificados, todo lo anterior de acuerdo con las políticas y procedimientos establecidas para tales efectos por la Autoridad Certificadora.
+La Autoridad de Registro tendrá las áreas especializadas en cada uno de las dependencias del Ministerio de Hacienda, dedicadas a autorizar el uso del certificado digital para éstos.
