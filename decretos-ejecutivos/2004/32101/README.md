@@ -14,3 +14,4 @@ Reglamento a la Ley No. 8147 y sus reformas, de creación del fideicomiso para l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-12 | la propia norma |
+| 2 | 2005-07-07 | Decreto Ejecutivo 32562 (2005-07-07) |
