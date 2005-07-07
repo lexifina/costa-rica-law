@@ -1,0 +1,2 @@
+Artículo 11.—De la valoración de la prueba. Para la valoración de la prueba deberá tomarse en consideración todos los elementos indiciarios y directos aportados. El Órgano Director en sus consideraciones deberá utilizar las reglas de la sana crítica. -Para los efectos probatorios del hecho deberá considerarse el estado de ánimo de la persona que presenta la denuncia así como su desempeño laboral o académico, cumplimiento y dinámica laboral o académica.
+Por improcedente deberá rechazarse cualquier valoración sobre la vida personal del denunciante.

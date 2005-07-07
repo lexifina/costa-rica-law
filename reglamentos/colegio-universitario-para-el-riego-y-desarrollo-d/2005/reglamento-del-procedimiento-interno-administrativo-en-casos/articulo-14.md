@@ -1,0 +1,1 @@
+Artículo 14.—De la conclusión del proceso y la resolución final. En el plazo de quince días naturales después de la comparecencia y evacuación de la prueba el Órgano Director informará por escrito al Titular, la resolución final, que contendrá las conclusiones del expediente administrativo y las recomendaciones disciplinarias que se consideren aplicables.

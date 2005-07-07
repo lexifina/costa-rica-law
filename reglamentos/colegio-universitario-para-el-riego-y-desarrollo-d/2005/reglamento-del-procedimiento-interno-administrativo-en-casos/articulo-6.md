@@ -1,0 +1,2 @@
+Artículo 6º—De las medidas cautelares. En caso de que la persona ofendida considere necesario su reubicación temporal en otra oficina o clase de la Institución, podrá solicitarla al Decanato en cualquier momento del proceso, quien decidirá en única instancia.
+Asimismo, como medida alternativa, se puede solicitar al Decanato en cualquier momento del proceso, quien decidirá en única instancia la separación del funcionario hostigador con goce de salario mientras dure el proceso administrativo.

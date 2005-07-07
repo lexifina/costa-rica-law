@@ -1,0 +1,1 @@
+Artículo 13.—De las partes dentro del proceso. A cualquiera de las partes dentro del proceso les asiste el derecho de hacerse acompañar por un abogado o asesor jurídico, todo en aras del derecho al debido proceso y derecho de defensa.

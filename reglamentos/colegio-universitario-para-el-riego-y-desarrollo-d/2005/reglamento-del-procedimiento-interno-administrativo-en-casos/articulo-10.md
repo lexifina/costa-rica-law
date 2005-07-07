@@ -1,0 +1,3 @@
+Artículo 10.—Del traslado de la denuncia y de la audiencia oral y privada. Transcurrido el plazo anterior, se dará traslado de cargos a la persona denunciada, concediéndole un plazo de ocho días hábiles, al cabo de los cuales se realizará una audiencia oral y privada para que se refiera a todos y cada uno de los hechos que se le imputan y ofrezca los medios de prueba en descargo de los mismos.
+En el caso de que el imputado no ejerza su derecho de defensa, el proceso continuará hasta el dictado de la resolución final.
+Se establece, previo a la recepción de la prueba, la posibilidad del mecanismo de arreglo o conciliación alterno entre las partes ante el Órgano Director.

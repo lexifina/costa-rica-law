@@ -1,0 +1,1 @@
+Artículo 5º—Información sobre denuncias. La administración del Colegio Universitario para el Riego y el Desarrollo del Trópico Seco está obligada a informar sobre las denuncias de hostigamiento sexual que se reciban, así como del resultado del procedimiento que se realice, a la Defensoría de los Habitantes.

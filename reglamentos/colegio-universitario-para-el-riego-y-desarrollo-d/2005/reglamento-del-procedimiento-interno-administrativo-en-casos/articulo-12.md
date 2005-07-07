@@ -1,0 +1,1 @@
+Artículo 12.—De la recepción de la prueba. A los fines de recepción de la prueba, el Órgano Director tendrá las mismas facultades y deberes que las autoridades judiciales y los testigos y las partes, incurrirán en los delitos de falso testimonio y perjurio establecidos en el Código Penal, cuando se dieren las circunstancias allí señaladas.
