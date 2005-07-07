@@ -1,0 +1,1 @@
+Artículo 3º—Régimen de Compras: De conformidad con la Ley 7017 la Administración dará preferencia a los productos manufacturados por la industria nacional, cuando la calidad sea equiparable, el abastecimiento adecuado y el precio igual o inferior al de los productos importados. Todo de conformidad con lo que se regula en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 12.—Derogaciones: Se deroga el Decreto Ejecutivo Nº 26076-MP-MEIC, publicado en la Gaceta Nº 113 del 13 de junio de 1997, así como sus reformas: Decreto Ejecutivo Nº 26306-MP-MEIC, publicado en la Gaceta Nº 183 del 24 de setiembre de 1997 y el Decreto Ejecutivo Nº 27246-COMEX-MEIC, publicado en La Gaceta Nº 170 del 1° de setiembre de 1998.
