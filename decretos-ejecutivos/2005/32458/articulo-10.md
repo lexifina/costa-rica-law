@@ -1,0 +1,1 @@
+Artículo 10.—Los importadores de vehículos de las partidas arancelarias 87.02, 87.03, 87.04 y 87.11, gravadas con el impuesto Selectivo de Consumo y que no están afectos a los Derechos Arancelarios a la Importación, no están obligados a la presentación de la declaración de valor.

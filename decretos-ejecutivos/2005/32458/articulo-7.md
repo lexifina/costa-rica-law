@@ -1,0 +1,1 @@
+Artículo 7º—Los importadores de vehículos, con el fin de colaborar para que la Administración pueda identificar los vehículos sujetos a valoración en el mercado interno para determinar la clase tributaria, reportarán los nombres y características de fábrica de los vehículos cuyos estilos variarán según el mercado para el cual fueron originalmente producidos.

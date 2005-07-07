@@ -1,0 +1,10 @@
+Artículo 9º—El procedimiento a seguir cuando el importador de un vehículo de los citados en el artículo 2 del presente decreto, no esté de acuerdo con el Valor Fiscal de dicha unidad establecido en la Lista de Valores de Vehículos de Tributación, será el siguiente:
+a. Si la inconformidad del importador surge antes de la transmisión de la declaración aduanera a la aduana correspondiente, podrá éste solicitar a la Dirección General de Tributación un estudio del valor para el caso que se trate, contemplado en la Lista de Valores. De ser necesario se realizará la corrección que proceda de conformidad con el artículo 157 de la Ley General de Administración Pública y las facultades otorgadas en el ordenamiento jurídico al respecto. Para tal efecto, el importador debe presentar los siguientes documentos:
+1. Solicitud explicando el motivo o los motivos para la actualización del valor y el número de clase correspondiente. 2. Copia certificada de la factura.
+3. Copia certificada del título de propiedad del vehículo, si se trata de una unidad usada.
+4. Copia del conocimiento de embarque.
+5. Las pruebas que fundamenten la petición de la actualización.
+b. Una vez notificada la obligación tributara aduanera, el agente aduanero o el consignatario podrán impugnar ante la Aduana o el Tribunal Aduanero Nacional, el valor que sirvió de base para el cálculo de los tributos, con fundamento en el artículo 198 de la Ley General de Aduanas, dentro de los siguientes plazos:
+1. Si hubiere habido un ajuste efectuado por la Aduana, tres días hábiles siguientes a su notificación.
+2. En caso de que no hubiere habido un ajuste y existiese inconformidad con el valor establecido en la Lista de Valores de Vehículos de Tributación, tres días hábiles contados a partir del día siguiente a la notificación de la obligación tributaria aduanera.
+Para los efectos de la resolución de los recursos presentados, la Aduana o el Tribunal Aduanero Nacional podrán solicitar los dictámenes técnicos y demás información útil para la Dirección General de Tributación.

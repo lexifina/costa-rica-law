@@ -1,0 +1,1 @@
+Artículo 13.—La Dirección General de Tributación determinará el margen de valor agregado señalado en el artículo 12º del presente decreto, y mediante resolución razonada, modificará el citado margen, en caso de ser procedente.
