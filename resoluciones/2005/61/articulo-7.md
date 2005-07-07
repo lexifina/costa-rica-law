@@ -1,0 +1,6 @@
+7. Destinatarios. Los jerarcas y titulares subordinados deben presentar el respectivo informe de fin de gestión de manera impresa y en formato digital ante los destinatarios que seguidamente se indican, según corresponda:
+1. En el caso del jerarca, el informe de fin de gestión lo debe presentar ante quien lo nombró o designó, con una copia para quien vaya a sucederlo en el cargo. En los casos en que el jerarca sea un órgano colegiado, cada uno de sus integrantes presentará individualmente ese documento.
+2. Cuando el jerarca sea designado por elección popular, el citado informe únicamente se debe presentar a su sucesor, a través de la unidad institucional encargada de la gestión de recursos humanos.
+3. En el caso de un titular subordinado, el informe de fin de gestión lo debe presentar a su superior jerárquico inmediato, con una copia para su sucesor.
+4. En todos los casos anteriores se deberá remitir copia del informe a la respectiva unidad institucional encargada de la gestión de recursos humanos.
+5. Asimismo, se debe presentar copia al área o unidad administrativa que administra, de existir, la página WEB de la institución, para que ésta proceda a colocar el documento en un sitio especialmente confeccionado de ésta, en aras de facilitar el acceso, por esa vía, por parte de cualquier ciudadano interesado.

@@ -1,0 +1,1 @@
+12. Responsabilidad en la aplicación de la normativa. Los jerarcas, titulares subordinados y los demás funcionarios de las unidades internas de cada Administración activa a quienes les aplique la presente normativa serán responsables de su efectivo cumplimiento, en lo que les corresponda.

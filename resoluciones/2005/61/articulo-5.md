@@ -1,0 +1,1 @@
+5. Períodos de gestión menores a un año. Cuando la gestión del jerarca o del titular subordinado no sobrepase un año, los plazos mencionados en la directriz anterior se ajustarán al periodo dentro del cual ejerció su cargo.

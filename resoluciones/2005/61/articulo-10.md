@@ -1,0 +1,4 @@
+10. Plazo para la presentación del informe de fin de gestión y la entrega formal de activos. Los jerarcas y titulares subordinados deben presentar el informe de fin de gestión al respectivo destinatario a más tardar el último día hábil de labores, indistintamente de la causa por la que deja el cargo.
+En caso de que la salida del funcionario se produzca en forma repentina deberá presentar el informe diez días hábiles contados a partir del último día en que estuvo en el cargo.
+Como complemento de la presentación del citado informe, los funcionarios mencionados deberán hacer la entrega formal de aquellos bienes que se le hubieran otorgado en el ejercicio del cargo a la unidad interna designada por la Administración activa.
+Esta entrega de bienes deberá efectuarse a más tardar el último día hábil que labore el funcionario, indistintamente de la causa de finalización.

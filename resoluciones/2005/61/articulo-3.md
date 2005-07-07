@@ -1,0 +1,2 @@
+3. Ámbito de aplicación. Las presentes directrices serán aplicables a los jerarcas y titulares subordinados de la Contraloría General de la República y de los entes y de los órganos sujetos a su fiscalización.
+Asimismo se aplicarán en lo que les concierne a las respectivas unidades de auditoría interna, a la encargada de la gestión de recursos humanos y a la encargada de la entrega y recepción de bienes.
