@@ -16,3 +16,4 @@ Aprueban nuevas tarifas por venta de bienes y servicios (INCOPESCA)
 | 1 | 2005-01-01 | la propia norma |
 | 2 | 2005-01-14 | Acuerdo 17 (2005-01-14) |
 | 3 | 2005-03-11 | Acuerdo 127 (2005-03-11) |
+| 4 | 2005-07-08 | Acuerdo 373 (2005-07-08) |
