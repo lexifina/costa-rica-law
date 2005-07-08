@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-01 | la propia norma |
+| 2 | 2005-07-08 | Decreto Ejecutivo 32492 (2005-07-08) |
