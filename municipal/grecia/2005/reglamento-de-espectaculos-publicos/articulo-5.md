@@ -1,0 +1,1 @@
+Artículo 5º—Exenciones: Previa aprobación del concejo municipal, están exentos del pago del impuesto, los espectáculos públicos ocasionales que se realicen en el cantón de Grecia, señalados en el artículo 2 del reglamento a la ley de espectáculos públicos.

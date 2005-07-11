@@ -1,0 +1,1 @@
+Artículo 7º—Autorización. La solicitud recibida en tiempo y forma por el Departamento de Administración Tributaria, será resuelta con al menos cuarenta y ocho horas de antelación al evento que se solicita autorizar. Cuando por sus características deba ser del conocimiento del Concejo Municipal, así se hará saber a éste, y deberá ser conocida y tramitada en la sesión siguiente.

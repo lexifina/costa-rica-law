@@ -1,0 +1,5 @@
+De los tiquetes
+Artículo 8º—Requisitos. Los solicitantes están obligados a emitir los boletos o tiquetes de entrada para cada espectáculo público, y deberán garantizar sus condiciones de seguridad. Los tiquetes deberán estar debidamente diferenciados en secuencia, por serie, número, color o según su valor, el cual en todo caso deberá consignarse en forma clara. Deberán contener el nombre o denominación social del solicitante, y su número de cédula de identidad o de cédula jurídica.
+Cada boleto deberá ser emitido en dos tantos: uno para el cliente y otro para el buzón de control. Deberán ser presentados previamente al Departamento de Administración Tributaria para su debida autorización, mediante la impresión de un sello municipal que se utilizará al efecto.
+Las entradas de cortesía deberán estar debidamente identificadas, y podrá deducirse su importe del monto bruto de la taquilla recaudada por evento, hasta en un máximo de un cinco por ciento (5%) de los tiquetes emitidos.
+Tratándose de actividades ocasionales la Municipalidad permitirá el uso de boletos sin el nombre del establecimiento.
