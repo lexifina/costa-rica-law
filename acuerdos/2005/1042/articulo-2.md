@@ -1,0 +1,6 @@
+Artículo 2º—Adiciónense al texto del Reglamento de Organización de la Defensoría de los Habitantes, los siguientes artículos:
+Artículo 29 bis.—De funcionamiento de Consejo de Directores. El Consejo de Directores sesionará ordinariamente una vez por semana los días martes a partir de las ocho horas y treinta minutos de la mañana. Podrá además sesionar de forma extraordinaria cuando sea convocado por: el Defensor de los Habitantes, el Defensor Adjunto de los Habitantes o por tres Directores.
+Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito o remitida por correo electrónico, con una antelación mínima de veinticuatro horas, salvo casos de urgencia.
+En lo no previsto en este reglamento, el funcionamiento del Consejo de Directores se regulará por las reglas que para los órganos colegios establece la Ley General de la Administración Pública.
+Durante el período de ausencia del Defensor (a) de los Habitantes y del Defensor (a) Adjunto de los Habitantes, cada Director (a) podrá ordenar la apertura y trámite de procedimientos administrativos disciplinarios, de conformidad con el Estatuto Autónomo de Servicio de la Defensoría de los Habitantes.
+En el tanto no sea nombrado el Defensor (a) de los Habitantes, el Consejo de Directores sesionará de forma ordinaria los días martes y viernes.
