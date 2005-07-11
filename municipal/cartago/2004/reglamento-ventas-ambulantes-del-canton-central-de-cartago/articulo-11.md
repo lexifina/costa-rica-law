@@ -1,0 +1,1 @@
+Artículo 11.—Todo lo referente a los montos por patente y trámite de cobro municipal respectivo se regirá por lo previsto en la Ley de Patentes para el cantón Central de Cartago (Ley de Impuestos), su reglamento y el Reglamento de cobro vigente de la municipalidad.

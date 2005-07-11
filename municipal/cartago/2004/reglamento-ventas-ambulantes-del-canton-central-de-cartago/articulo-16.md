@@ -1,0 +1,1 @@
+Artículo 16.—Los horarios de las ventas ambulantes o estacionarias, así como el pago del impuesto correspondiente, estarán sujetos a las disposiciones de la Ley de Patentes para el cantón Central de Cartago y su reglamento.

@@ -1,0 +1,1 @@
+Artículo 19.—La venta de periódicos y revistas requerirá de patente de venta estacionaria de conformidad con lo dispuesto en el presente reglamento y su actividad se realizará de conformidad con las normas contenidas en este documento.

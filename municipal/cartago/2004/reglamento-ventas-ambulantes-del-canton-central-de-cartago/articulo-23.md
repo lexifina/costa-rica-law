@@ -1,0 +1,3 @@
+Artículo 23.—La Municipalidad, el Instituto Costarricense de Electricidad y el Instituto Costarricense de Acueductos y Alcantarillados no podrán suministrar energía eléctrica ni agua potable a ningún puesto estacionario, salvo solicitud expresa municipal y para actividades normadas por el presente Reglamento, con la indicación de que los respectivos medidores de estos servicios públicos, se tramitarán ante dichas instituciones a nombre del patentado.
+El Ministerio de Salud, de conformidad, con la Ley General de Salud y su Reglamento, podrá fiscalizar en materia de su competencia, el buen funcionamiento de estos establecimientos.
+Para los efectos anteriores, la Municipalidad hará del conocimiento de tales entidades este Reglamento.

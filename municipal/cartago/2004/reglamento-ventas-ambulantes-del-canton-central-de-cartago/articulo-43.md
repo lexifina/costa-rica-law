@@ -1,0 +1,2 @@
+Artículo 43.—Los inspectores de ventas ambulantes y estacionarias, procurarán el fiel cumplimiento de las disposiciones establecidas en este reglamento, para lo cual deberán en todo momento, en el ejercicio de sus funciones, hacerse acompañar de un miembro de la Policía Municipal.
+Para el cumplimiento de este artículo, el Jefe del Departamento de la Policía Municipal deberá destacar el personal necesario.
