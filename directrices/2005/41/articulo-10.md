@@ -1,0 +1,1 @@
+Artículo 10.—En el plazo máximo de 22 días, todas las instituciones deberán iniciar la ejecución de las acciones establecidas en la presente directriz, e informarán mensualmente a la Comisión Plan de Contingencia Petrolera sobre los avances en las mismas.

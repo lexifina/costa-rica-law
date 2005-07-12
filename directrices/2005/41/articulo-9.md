@@ -1,0 +1,1 @@
+Artículo 9º—El MOPT y sus órganos adscritos, así como la Compañía Nacional de Fuerza y Luz y el INCOFER, darán prioridad a las acciones requeridas para ejecutar el Proyecto de Sectorización de Autobuses y, el Transporte Eléctrico de pasajeros y mercancías, reactivando el tren eléctrico.

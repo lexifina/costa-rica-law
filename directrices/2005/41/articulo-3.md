@@ -1,0 +1,1 @@
+Artículo 3º—Las instituciones de Gobierno, deberán implementar los mecanismos necesarios para ofrecer servicios y trámites de forma descentralizada y electrónica, facilitando las gestiones de los usuarios, a fin de evitar el traslado de los mismos a oficinas ubicadas en San José y deberán divulgar la existencia de dicha facilidad.

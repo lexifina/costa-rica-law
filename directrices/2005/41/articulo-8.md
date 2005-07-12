@@ -1,0 +1,1 @@
+Artículo 8º—Las instituciones y empresas responsables del cumplimiento de las Acciones Complementarias del Plan deben presentar, al Coordinador de la Comisión Plan de Contingencia Petrolera, en el plazo de 22 días, la calendarización para el cumplimiento de las mismas incluyendo plazos, responsables, condiciones especiales y recursos requeridos.

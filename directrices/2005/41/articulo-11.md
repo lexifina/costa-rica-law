@@ -1,0 +1,1 @@
+Artículo 11.—El MINAE, MOPT, el Ministerio de Hacienda y Ministerio de la Presidencia, estudiarán y elaborarán, en el plazo de tres meses, una propuesta para promover la mejora del parque automotor y la introducción de tecnologías limpias.
