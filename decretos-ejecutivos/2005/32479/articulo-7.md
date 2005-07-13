@@ -1,0 +1,1 @@
+Artículo 7°—Para la atención de la presente declaratoria de emergencia la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, de conformidad con la Ley Nacional de Emergencia, podrá destinar fondos y aceptar donaciones de entes públicos y privados.
