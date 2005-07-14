@@ -1,2 +1,2 @@
-Artículo 3º—Se fija el límite máximo para la compra de bienes y servicios con este fondo, en ¢200.000,00 (doscientos mil colones con 00/100).
-(Así reformado por Junta Directiva en sesión extraordinaria N° 3349).
+Artículo 3º—Se fija el límite máximo para la compra de bienes y servicios con este fondo, en la suma del “salario base”, contenida en los artículos 209, 212, 216, 384 del Código Penal, correspondiente al monto equivalente al salario base mensual del “Oficinista 1” que aparece en la relación de puestos de la Ley de Presupuesto Ordinario de la República, de conformidad con el aviso de la Corte Suprema de Justicia, publicado en La Gaceta en el transcurso de los meses de enero y febrero de cada año, el cual será comunicado por la Dirección Jurídica Institucional a la Sección de Contabilidad y Finanzas para su publicación.
+(Así reformado en sesión N° 3488 del 14 de julio del 2005)

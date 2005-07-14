@@ -1,2 +1,2 @@
-Artículo 4º—El titular de la Dirección Ejecutiva o aquel funcionario que en su ausencia quede debidamente autorizado por éste, podrá autorizar compras mayores de ¢50.000,00 (cincuenta mil colones con 00/100), hasta un máximo de ¢200.000,00 (doscientos mil colones con 00/100).
-(Así reformado por Junta Directiva en sesión extraordinaria N° 3349).
+Artículo 4º—El titular de la Dirección Ejecutiva o la persona que en su ausencia quede debidamente acreditado por la Junta Directiva, podrá autorizar compras mayores de ¢50.000,00 (cincuenta mil colones con 00/100), hasta un máximo del salario base vigente de cada año de conformidad con el monto al que se hace referencia en el artículo 3 del presente Reglamento.
+(Así reformado en sesión N° 3488 del 14 de julio del 2005)
