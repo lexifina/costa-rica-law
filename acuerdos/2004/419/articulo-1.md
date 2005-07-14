@@ -66,10 +66,10 @@ Por año/Por trámite | * | *
 Acuicultor | Carné | 3.400,00
 Feria del Agricultor (Venta Directa o Auxiliar) | Carné | 8.250,00
 LICENCIAS PARA PESCA COMERCIAL (por año o por trámite | * | *
-Flota Artesanal Pequeña Escala: constituida por aquellas embarcaciones tipo bote y panga con motores fuera de borda o estacionarios. A las que faenan dentro del Golfo de Nicoya, se les establece como eslora máxima permitida una medida de 10,0 metros y a las que faenan fuera del Golfo de Nicoya, es decir, en el Océano Pacífico o en el Mar Caribe, se les establece como eslora máxima permitida una medida de 12,0 metros. | Licencia | 8.250,00
-Flota Palangrera Media: constituida por embarcaciones tipo lancha que operan con motores estacionarios y que faenan fuera del Golfo de Nicoya, es decir, en el Océano Pacífico o en el Mar Caribe. El arte de pesca que utilizan es el trasmallo, el currican y la línea de anzuelos larga (long line) con longitudes que oscilan entre los 5 mil y 15 mil metros. Su principal extracción son los peces pelágicos, los túnidos, los tiburones y otros. Tienen una eslora mayor a los 6,0 metros pero menor o igual a los 11,99 metros. | Licencia | 25.000,00
-Flota Palangrera Avanzada: se diferencian de la Flota Palangrera Media, porque la línea de anzuelos larga (long line) utilizada por sus embarcaciones y sus esloras, son mayores de 15 mil metros y 12,0 metros respectivamente. | Licencia | 98.000,00
-Flota Semi-Industrial: constituida por embarcaciones cuyo objetivo principal de pesca es el camarón y la sardina | Licencia | 106.500,00
+a) Pequeña escala: Pesca realizada artesanalmente por personas físicas, sin mediar el uso de embarcación, en las aguas continentales o en la zona costera, o la pesca practicada a bordo de una embarcación con una autonomía para faenar hasta un máximo de tres millas náuticas del mar territorial costarricense.* (Así reformado el párrafo anterior por el artículo 1° del acuerdo N° 378 del 14 de julio del 2005) | Licencia | 8.250,00
+b) Mediana escala: Pesca realizada por personas físicas o jurídicas, a bordo de una embarcación con autonomía para faenar hasta un máximo de cuarenta millas náuticas inclusive. (Así reformado el párrafo anterior por el artículo 1° del acuerdo N° 378 del 14 de julio del 2005) | Licencia | 25.000,00
+c) Avanzada: Pesca que realizan, por medios mecánicos, personas físicas o jurídicas, a bordo de una embarcación con autonomía para faenar superior a las cuarenta millas náuticas, orientada a la captura de especies pelágicas con palangre, y de otras especies de importancia comercial.* (Así reformado el párrafo anterior por el artículo 1° del acuerdo N° 378 del 14 de julio del 2005) | Licencia | 98.000,00
+d) Semi-industrial: Pesca realizada por personas físicas o jurídicas, a bordo de embarcaciones orientadas a la extracción del camarón con red de arrastre, de la sardina y del atún con red de cerco.* (Así reformado el párrafo anterior por el artículo 1° del acuerdo N° 378 del 14 de julio del 2005) | Licencia | 106.500,00
 Extracción de Moluscos (sin embarcación) | Licencia | 3.400,00
 Extracción de Moluscos (con embarcación) | Licencia | 5.700,00
 Extracción de Peces de Arrecife (sin embarcación) | Licencia | 6.500,00
@@ -184,7 +184,13 @@ CARNÉ DE IDENTIFICACIÓN DE PESCA DEPORTIVA (Por año/Por trámite) | * |
 Pesca Deportiva (Nacionales y Residentes) | Carné | 6.800,00
 Pesca Deportiva (Extranjeros) | Carné | $24,00
 Pesca Subacuática Deportiva | Carné | 9.850,00
-| |
+CARNÉ DE IDENTIFICACIÓN PARA PESCA DEPORTIVA CONTINENTAL O MARINA (por año/ por trámite) Pesca deportiva continental (nacional o residente) | Carné | ¢6.800,00
+Pesca deportiva continental (extranjero) | Carné | $24,00
+Tripulante de embarcación de pesca deportiva continental o marina | Carné | ¢3.400,00
+Pesca subacuática deportiva continental (Así adicionado por el artículo 2° del Acuerdo N° 378 del 14 de julio del 2005 | Carné | ¢9.850,00
+CARNÉ DE IDENTIFICACIÓN PARA PESCA TURÍSTICA CONTINENTAL O MARINA (por año/ por trámite)Pesca turística continental o marina (nacional o residente) | Carné | ¢6.800,00
+Pesca turística continental o marina (extranjero) | Carné | $24,00
+Tripulante de embarcación de pesca turística(Así adicionado por el artículo 2° del Acuerdo N° 378 del 14 de julio del 2005) | Carné | ¢3.400,00
 LICENCIAS PARA EMBARCACIÓN DEDICADA A LA OBSERVACIÓN DE MAMÍFEROS MARINOS (por año o por trámite) | * | *
 Embarcaciones de hasta 8 metros de eslora | Licencia | 17.000,00
 Embarcaciones de 8,01 metros a 12,0 metros de eslora | Licencia | 34.000,00
