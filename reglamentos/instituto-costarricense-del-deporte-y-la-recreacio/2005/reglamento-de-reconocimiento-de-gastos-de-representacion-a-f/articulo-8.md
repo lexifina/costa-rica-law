@@ -1,0 +1,1 @@
+Artículo 8º—Los gastos de representación en los viajes al exterior se regirán por el Reglamento de Gastos de Viaje y de Transportes para Funcionarios Públicos dictado por la Contraloría General de la República o la norma jurídica que se encuentre en vigencia sobre dicho tema.

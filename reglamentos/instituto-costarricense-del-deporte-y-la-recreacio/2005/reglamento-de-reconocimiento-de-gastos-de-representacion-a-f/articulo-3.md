@@ -1,0 +1,1 @@
+Artículo 3º—Los rubros que podrán ser reconocidos como “gastos de representación” incluyen desayunos, almuerzos, cenas, refrescos, repostería y similares, obsequios, etc., pero no gastos personales ni pago de cigarrillos, licores, cervezas y similares.

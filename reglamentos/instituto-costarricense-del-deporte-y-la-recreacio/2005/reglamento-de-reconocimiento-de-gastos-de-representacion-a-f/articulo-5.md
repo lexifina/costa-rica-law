@@ -1,0 +1,5 @@
+Artículo 5º—Las partidas indicadas en el artículo anterior podrán ser liquidadas cada vez que se efectúe un gasto o dentro de los siete días hábiles a la finalización del mes al que corresponden, a elección del beneficiario, y las facturas correspondientes deberán cumplir con los siguientes requisitos:
+a. Indicar claramente el tipo de gasto efectuado. No se admiten conceptos generales como “gastos de representación”, “gastos varios” o “servicio de restaurante”.
+b. Cumplir con los requisitos mínimos exigidos por la Dirección General de Tributación. Bajo ninguna circunstancia se tramitarán facturas cuyas cifras no estén claras, que contengan borrones o tachaduras, sin membrete del local que la emitió, o que contenga cualquier otro detalle que haga dudar de su legitimidad.
+c. Hacer la rebaja correspondiente en caso de que se incluyan artículos de los indicados en el artículo 3º como no susceptibles de reconocimiento.
+d. Indicar en el formulario de liquidación respectivo el nombre de la(s) persona(s) atendidas, cargo que ejercen, institución a la que pertenecen, detalle de las razones que motivaron la atención y firma del funcionario responsable.

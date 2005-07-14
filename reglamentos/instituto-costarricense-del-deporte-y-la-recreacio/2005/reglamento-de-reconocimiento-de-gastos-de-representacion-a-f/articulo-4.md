@@ -1,0 +1,1 @@
+Artículo 4º—Los gastos de representación tendrán como límite el monto de la partida total presupuestada para cada ejercicio económico. Para efectos presupuestarios y de ejecución, ese monto deberá distribuirse en la subpartida de gastos de representación en forma tal que no se agoten antes de finalizar el período presupuestario.
