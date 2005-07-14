@@ -1,1 +1,3 @@
-Articulo 13.—La Oficina de Cobros deberá rendir informes mensuales al Alcalde Municipal sobre las gestiones realizadas de cobro de as cuentas morosas y el estado en que se encuentran las acciones de cada gestión a esa fecha.
+CAPÍTULO III
+De los abogados
+Artículo 13.—El nombramiento de los abogados externos sin sujeción laboral para el cobro judicial lo hará el Alcalde Municipal por medio de una Contratación de Servicios de conformidad con lo establecido en los artículos 64 de la Ley y 69 del Reglamento, siguientes y concordantes de Contratación Administrativa.

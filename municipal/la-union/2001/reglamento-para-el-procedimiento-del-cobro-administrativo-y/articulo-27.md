@@ -1,1 +1,1 @@
-Articulo 27.—El cálculo de los honorarios profesionales debe ser realizado únicamente por el profesional en derecho, tomando como base el decreto de honorarios de abogado, que estuviere vigente y los mismos serán por el deudor.
+Artículo 27.—Cuando un abogado deje de prestar los servicios a la Municipalidad, por cualquier motivo, excepto por incumplimiento de sus obligaciones, tendrá derecho a que se le paguen los honorarios de acuerdo con el grado de avance en que se encuentren los juicios, una vez finalizada la acción judicial y estos correrán por cuenta del deudor.

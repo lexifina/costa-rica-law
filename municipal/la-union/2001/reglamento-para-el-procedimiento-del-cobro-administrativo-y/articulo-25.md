@@ -1,1 +1,1 @@
-Articulo 25.—La Municipalidad podrá realizar los trámites administrativos respectivos contra el abogado, ante la fiscalía del Colegio de Abogados, en aquellos casos que se demuestre negligencia o impericia en la tramitación judicial de las cuentas a cobrar.
+Artículo 25.—No se contratará a los abogados que hayan sido negligentes en el cobro de las cuentas y/o no hayan rendido los informes solicitados.

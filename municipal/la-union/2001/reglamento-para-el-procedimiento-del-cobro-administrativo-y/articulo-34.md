@@ -1,1 +1,1 @@
-Articulo 34.—Toda la documentación relativa a arreglos de pago estará en custodia de la Oficina de Cobro Administrativo, la que en su oportunidad y de ser necesario la remitirá a los abogados que contrate la Municipalidad, para que se realicen las gestiones de cobro judicial correspondiente.
+Artículo 34.—Toda la documentación relativa a arreglo de pago estará en custodia de la Oficina de Gestión de Cobro, la que en su oportunidad y de ser necesario la remitirá a los abogados que contrate la Municipalidad para que se realicen las gestiones de cobro judicial correspondiente.

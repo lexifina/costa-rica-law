@@ -1,1 +1,1 @@
-Articulo 24.—Los abogados que por alguna razón deseen dejar de servir a la Municipalidad deberán comunicar esa decisión con treinta días de antelación al Alcalde Municipal y enviar la totalidad de los expedientes judiciales que manejan a la Ofician de Cobro Administrativo.
+Artículo 24.—La Municipalidad podrá realizar los trámites administrativos respectivos contra el abogado, ante la fiscalía del Colegio de Abogados, en aquellos casos que se demuestre negligencia o impericia en la tramitación judicial de las cuentas a cobrar.

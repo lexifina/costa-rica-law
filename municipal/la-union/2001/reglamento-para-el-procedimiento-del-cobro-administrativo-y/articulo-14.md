@@ -1,3 +1,1 @@
-CAPÍTULO III
-De los abogados
-Articulo 14.—El nombramiento de los abogados externos sin sujeción laboral para el cobro judicial lo hará el Alcalde Municipal por medio de una Contratación de Servicios de conformidad con lo establecido en los artículos 64 de la Ley y 69 del Reglamento, siguientes y concordantes de Contratación Administrativa.
+Artículo 14.—La designación de los abogados le será comunicada por escrito al profesional, el cual deberá dentro de los siguientes diez días naturales, contestar por escrito su aceptación, conocimiento y conformidad con las normas establecidas en este Reglamento, de lo contrario se podrá nombrar otro profesional en su lugar siempre y cuando haya participado en la contratación de servicios. El profesional designado deberá firmar el contrato correspondiente, que al efecto elaborará la Municipalidad.

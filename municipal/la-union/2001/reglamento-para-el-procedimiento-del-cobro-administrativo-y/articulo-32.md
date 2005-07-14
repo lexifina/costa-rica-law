@@ -1,1 +1,1 @@
-Articulo 32.—En caso de que el contribuyente moroso incumpliere el compromiso adquirido de arreglo de pago, la Municipalidad procederá de inmediato a pasar esa cuenta a cobro judicial.
+Artículo 32.—Sólo se autorizarán dos arreglos de pago en una misma cuenta. En caso de que el contribuyente moroso incumpliere el segundo compromiso adquirido de arreglo de pago, la Municipalidad procederá a pasar esa cuenta a cobro judicial.

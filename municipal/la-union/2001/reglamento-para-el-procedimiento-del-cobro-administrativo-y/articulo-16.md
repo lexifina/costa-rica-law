@@ -1,2 +1,1 @@
-Artículo 16.—En caso de contratarse profesionales para ejercer la gestión extrajudicial y judicial la asignación de los casos se hará lo más equitativamente posible considerando los honorarios que podrían devengar por la gestión judicial que realice cada profesional y el rendimiento que demuestre la estadística individual de cuentas recuperadas.
-(Así reformado por acuerdo del Concejo Municipal, en su sesión N° 158 del 15 de abril de 2004)
+Artículo 16.—El abogado deberá de excusarse de atender la dirección de un juicio cuando tuviera vínculos de parentesco o incluso en caso de amistad, lo cual comunicará por escrito a la oficina correspondiente dentro de las cuarenta y ocho horas siguientes al recibo de la documentación de cobro.

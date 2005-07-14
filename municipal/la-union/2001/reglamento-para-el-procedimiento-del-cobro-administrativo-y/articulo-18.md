@@ -1,1 +1,1 @@
-Articulo 18.—Es prohibido para los abogados hacer cualquier tipo de arreglo con el deudor, recibir pagos o abonos de la deuda, los honorarios profesionales los cobrará el abogado en la oficina con la excepción de la condonación de los honorarios, donde deberá medir nota del abogado donde indique expresamente esa circunstancia.
+Artículo 18.—Los abogados nombrados no podrán aceptar casos de litigio en contra de la Institución, el no cumplimiento de esta disposición hará que su nombramiento quede revocado automáticamente como abogado de la Institución.
