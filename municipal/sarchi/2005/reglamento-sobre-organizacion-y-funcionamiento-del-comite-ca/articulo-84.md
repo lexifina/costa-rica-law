@@ -1,0 +1,1 @@
+Artículo 84.—El sustituto ocupará el cargo dentro de la Junta Directiva del miembro saliente. Si a mejor conveniencia de funcionamiento interno, quedan facultados los directivos dictaminar si procede una reestructuración de nuevos cargos en el directorio.

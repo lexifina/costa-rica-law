@@ -1,0 +1,1 @@
+Artículo 75.—En ausencia de nombramiento, o bien por alguna circunstancia especial de legitimidad o legalidad de funcionamiento del Comité Cantonal de Deportes y Recreación, es facultad del Concejo Municipal, nombrar un comité interino que asuma estas obligaciones temporalmente, siempre y cuando no vaya en contraposición del presente Reglamento, de las leyes o decretos vigentes.

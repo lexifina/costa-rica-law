@@ -1,0 +1,1 @@
+Artículo 20.—En la primera sesión, mediante votación secreta, se designarán los cargos de Presidente, Vicepresidente, Secretario, Tesorero y Vocal, funciones que desempeñarán por espacio de dos años, en forma ad honoren pudiendo ser reelectos.
