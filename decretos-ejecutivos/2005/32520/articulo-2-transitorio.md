@@ -1,0 +1,1 @@
+II.—Los funcionarios de carrera que se encuentren ejerciendo en comisión cargos en categorías superiores a la suya podrán continuar en ellos, mientras haya inopia de funcionarios de la categoría del puesto que desempeñan, o de inopia de funcionarios de la categoría inmediata inferior que reúnan todos los requisitos para ascender y desempeñar el cargo de que se trate.
