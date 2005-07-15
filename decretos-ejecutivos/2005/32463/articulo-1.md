@@ -1,0 +1,13 @@
+Nº 32463
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso l), 27, inciso l) y 28, inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; la Ley N° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001 y su Reglamento, el Decreto Ejecutivo N° 30058-H-MP-PLAN de 19 de diciembre del 2001; la Ley N° 7593, Ley de la Autoridad Reguladora de los Servicios Públicos de 9 de agosto de 1996 y sus reformas; y el Decreto Ejecutivo N° 32270-H de 1º de marzo de 2005 y sus reformas.
+Considerando:
+1º—Que por medio de la Ley N° 7593, publicada en La Gaceta N° 169 del 5 de setiembre de 1996, se crea la Autoridad Reguladora de los Servicios Públicos (ARESEP), para regular los servicios públicos, mediante la fijación de precios y tarifas, procurando la armonía y equilibrio de intereses entre consumidores, usuarios y prestatarios de los servicios públicos.
+2º—Que la ARESEP requiere fortalecer e implementar cambios no sólo al interior de la organización, sino también en sus relaciones externas, especialmente las concernientes a la aplicación de mayores controles a su gestión, también tiene que reforzar su capacidad fiscalizadora en aspectos técnicos, jurídicos y financieros-contables, compra de equipo y formación de capital.
+3º—Que para tal fin, la institución se estaría financiando con recursos provenientes principalmente de los cánones que cobra a sus regulados, o bien de recursos de superávit.
+4º—Que mediante el Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 del 17 marzo de 2005 y sus reformas, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2006, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Poder Ejecutivo, estableciendo el gasto presupuestario máximo para el 2006, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+5º—Que mediante oficio STAP-0391-05 del 17 de marzo de 2005, se comunicó a la ARESEP el gasto presupuestario máximo fijado para el año 2006.
+6º—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado a la Autoridad Reguladora de los Servicios Públicos para el año 2006. Por tanto,
+DECRETAN:
+Artículo 1º—Modifícase a la Autoridad Reguladora de los Servicios Públicos (ARESEP), el gasto presupuestario máximo para el año 2006, establecido en el Decreto Ejecutivo N° 32270-H, publicado en La Gaceta Nº 54 del 17 de marzo de 2005 y sus reformas, de manera que no podrá exceder la suma de ¢3.259.7 millones.
