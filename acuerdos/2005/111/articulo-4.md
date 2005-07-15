@@ -1,0 +1,1 @@
+Artículo 4º—Obligación de comunicación de los puestos de bolsa. Los puestos de bolsa deberán proveer a las bolsas de valores con la información establecida en el artículo 1, dentro de los plazos fijados en dicho artículo, a efectos de que éstas últimas puedan cumplir sus deberes de divulgación y publicidad establecidos en este acuerdo.

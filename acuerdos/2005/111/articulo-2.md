@@ -1,0 +1,1 @@
+Artículo 2º—Suministro de información a la Superintendencia. Las bolsas de valores suministrarán a la Superintendencia General de Valores la información comunicada por los puestos de bolsa indicada en el artículo 1 del presente acuerdo en formato electrónico, al cierre del mismo día en que la bolsa recibe los datos reportados por los puestos de bolsa.
