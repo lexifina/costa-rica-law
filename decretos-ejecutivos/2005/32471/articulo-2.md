@@ -1,0 +1,1 @@
+Artículo 2º—Nombrar en sustitución del señor Zamora Cavallini al señor José Manuel Salas Carrillo, cédula de identidad número 1-441- 991 como representante propietario del Sector Empresarial ante el Consejo Nacional de Salarios. Este nombramiento tiene vigencia por el resto del período, sea, hasta el 31 de diciembre del 2005.
