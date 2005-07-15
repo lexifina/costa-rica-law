@@ -1,0 +1,2 @@
+Artículo 3º—Del responsable de la aplicación del presente Reglamento. La Dirección Ejecutiva, por medio de sus unidades ejecutoras y con base en las políticas generales emitidas por la Junta Directiva, será la responsable de establecer las directrices generales y los mecanismos operativos, que permitan un ágil y debido control de los servicios y beneficios.
+Corresponderá al Departamento Técnico y al Departamento Administrativo del Consejo, colaborar, apoyar y asesorar en su implementación, ejecución, control y seguimiento.

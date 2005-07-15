@@ -1,0 +1,4 @@
+Artículo 15.—Variación en las condiciones del solicitante. El o la solicitante cuyo requerimiento de subsidio haya sido rechazado por el CNREE, por no cumplir con los requerimientos establecidos en el presente Reglamento, podrá presentar nuevamente su solicitud en un plazo no menor de un año, cuando se considere que ha variado de manera sustancial su condición socioeconómica. Para tal efecto deberán considerarse las siguientes situaciones:
+1 Ausencia o disminución de los ingresos de algún miembro del grupo familiar, bajo verificación y criterio técnico del personal del CNREE.
+2 Incremento en la Canasta Básica de Discapacidad producto de la discapacidad progresiva y demostrable, donde se requiera la ampliación de los apoyos para mejorar la calidad de vida del o de la solicitante.
+3 Derogatoria o retiro de apoyos de otras entidades públicas, pensión alimenticia y/o asistencia a Programas Sociales.

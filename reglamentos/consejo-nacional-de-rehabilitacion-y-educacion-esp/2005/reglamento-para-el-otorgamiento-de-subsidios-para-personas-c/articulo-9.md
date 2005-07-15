@@ -1,0 +1,1 @@
+Artículo 9º—De los procedimientos para el Programa de Servicios de Convivencia Familiar. Se deberá seguir el Procedimiento de Análisis y Selección de Beneficiarios (as), así como el Procedimiento de Prórroga de Subsidios, establecidos por la administración del Consejo para la entrega de subsidios del Programa Servicios de Convivencia Familiar.

@@ -1,0 +1,1 @@
+Artículo 16.—Cuando la persona que requiera nuevamente el otorgamiento de subsidio sea referido por una ONG, será responsabilidad de la organización verificar la variación en la condición socioeconómica del o de la solicitante en los términos del artículo anterior, como requisito previo a trasladar la solicitud al CNREE.

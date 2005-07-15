@@ -1,0 +1,6 @@
+Artículo 24.—Incumplimiento por parte de ONG´s: En caso de incumplimiento de responsabilidades por parte de las organizaciones no gubernamentales que firman convenio con el Consejo, los funcionarios (as) de la institución procederán de la siguiente manera.
+A) Se emite recomendación por escrito y se comunica a la organización que tiene un plazo de 20 días hábiles para aplicar las acciones correctivas.
+B) Al término del plazo establecido se procede a verificar el cumplimiento de las acciones correctivas.
+C) En caso de confirmarse el incumplimiento por parte de la organización, se procederá con la retención de los cheques y se eleva la situación por escrito a la Dirección Ejecutiva, con visto bueno de la coordinación del equipo, para que se establezca y comunique la sanción correspondiente. En este caso el Consejo procederá con la entrega directa de los subsidios a los beneficiarios (as), quedando la supervisión de los mismos sujeta a la disponibilidad de sus recursos técnicos y administrativos.
+D) De acuerdo con la gravedad de la falta el Consejo podrá unilateralmente rescindir el convenio de cooperación suscrito.
+E) Si de la falta se deriva un perjuicio económico para el Consejo o sus beneficiarios(as), la institución necesariamente deberá gestionar la recuperación del monto desviado.

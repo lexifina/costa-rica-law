@@ -1,0 +1,1 @@
+Artículo 14.—Agotamiento de la vía administrativa. La resolución que emita la Dirección Ejecutiva dará por agotada la vía administrativa, y contra la misma no cabrá recurso administrativo posterior. No obstante, el interesado(a) podrá solicitar nuevamente el otorgamiento de subsidios si varían las condiciones que fundamentaron el rechazo de su solicitud.

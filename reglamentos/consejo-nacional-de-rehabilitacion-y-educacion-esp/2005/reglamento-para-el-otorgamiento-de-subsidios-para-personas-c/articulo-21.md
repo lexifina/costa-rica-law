@@ -1,0 +1,1 @@
+Artículo 21.—Responsabilidad de la asesoría en planificación. Corresponde a dicha Asesoría la elaboración de informes mensuales y aquellos solicitados por los entes financieros, con base en la información facilitada por el Departamento Técnico y Administrativo.

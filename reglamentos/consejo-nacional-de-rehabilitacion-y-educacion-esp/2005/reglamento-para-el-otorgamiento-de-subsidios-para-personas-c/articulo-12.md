@@ -1,0 +1,1 @@
+Artículo 12.—La interposición del recurso no requerirá de condiciones especiales de redacción o de fondo, pudiendo incluso plantearse de manera verbal ante la Administración, no obstante, al momento de su interposición el o la recurrente deberá aportar todas las pruebas y testimonios que a su parecer podrían modificar la decisión de la Administración.
