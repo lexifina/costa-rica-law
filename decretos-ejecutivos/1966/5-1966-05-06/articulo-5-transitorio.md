@@ -1,0 +1,9 @@
+Transitorio cinco.—Con el propósito de atender el tema de interinazgos prolongados para las instituciones públicas empleadoras de profesionales en medicina y con el .n de tutelar los derechos constitucionales de dichos profesionales en cuanto a la estabilidad en el trabajo, se adoptarán por una única vez, las siguientes acciones en materia de concursos:
+Los profesionales en medicina que cumplan los siguientes requisitos:
+a) Cinco años de nombramiento continuo al servicio de la Caja Costarricense de Seguro Social, o bien, la respectiva institución del Estado donde concurse para un puesto en propiedad.
+b) Haberse desempeñado, al momento de la entrada en vigencia de la presente reforma, por un período superior al año en un código vacante.
+c) Del total de cinco años establecidos en el inciso a) al menos 2 años fueron cumplidos en forma continua en el mismo centro de trabajo donde se encuentra el código vacante señalado en el inciso
+b), independientemente del número de código. Para los efectos del presente inciso, se considerará que cumplieron el requisito aquellos profesionales en medicina que fueron trasladados como consecuencia de la reforma del sector salud hacia un nuevo nivel de atención, en el tanto éste último corresponda a la misma área de atracción de su anterior nivel de atención.
+d) Encontrarse en el registro de elegibles dispuesto en el presente Reglamento, elaborado conforme al respectivo concurso.
+Serán nombrados en propiedad en el mismo código vacante indicado en el inciso b) del presente transitorio. Esta medida se aplicará por una única vez en beneficio de quienes cumplan todos los requisitos señalados anteriormente al momento de configurarse el primer registro de elegibles después de la publicación de la presente reforma, en el Diario Oficial La Gaceta.
+(Así adicionado por Artículo 1° del Decreto Ejecutivo 32670 del 15 de julio del 2005)
