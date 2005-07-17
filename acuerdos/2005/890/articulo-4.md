@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión establecerá los aspectos relativos a su organización y funcionamiento. Asimismo, deberá fijar una agenda de trabajo, la cual remitirá oportunamente para su conocimiento al Presidente de la República.

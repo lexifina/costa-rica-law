@@ -1,0 +1,1 @@
+Artículo 5º—La Comisión deberá rendir un informe final escrito al Presidente de la República en un plazo de hasta sesenta días naturales a partir de la firma del presente Acuerdo, plazo que podrá ser prorrogado por una sola vez, a solicitud justificada de la Comisión.
