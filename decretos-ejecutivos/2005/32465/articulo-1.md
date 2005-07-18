@@ -1,0 +1,13 @@
+Nº 32465
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; los artículos 25, inciso l), 27, inciso l) y 28, inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; la Ley N° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001 y su Reglamento, el Decreto Ejecutivo N° 30058-H-MP-PLAN de 19 de diciembre de 2001; la Ley N° 4471 de 3 de diciembre de 1969 y sus reformas; el Decreto Ejecutivo N° 2, Reglamento de la Junta Administrativa del Colegio San Luis Gonzaga de 15 de abril de 1946 y el Decreto Ejecutivo Nº 31708-H de 16 de marzo de 2004.
+Considerando:
+1º—Que la Junta Administrativa del Colegio San Luis Gonzaga, se rige bajo la Ley N° 4471, publicada en La Gaceta N° 280 de 10 de diciembre de 1969 y sus reformas, y opera con autonomía administrativa dentro del marco legal correspondiente a la Administración Pública.
+2º—Que la Junta Administrativa del Colegio San Luis Gonzaga, requiere incrementar el gasto presupuestario máximo para el año 2005, con el fin de realizar varias obras de infraestructura y cubrir otros gastos de inversión, los cuales financiará con recursos provenientes de superávit, por lo que no requiere de aportes adicionales por parte del Gobierno Central, ni
+afecta el déficit del Sector Público.
+3º—Que mediante el Decreto Ejecutivo Nº 31708-H, publicado en La Gaceta Nº 62 de 29 de marzo del 2004 y sus reformas, la Autoridad Presupuestaria formuló las Directrices de Política Presupuestaria del 2005, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Poder Ejecutivo, estableciendo en el artículo 1º del citado decreto, el gasto presupuestario máximo del presente año, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+4º—Que mediante el oficio STAP-CIRCULAR-0455-04 del 16 de abril de 2004, se comunicó a la institución el gasto presupuestario máximo fijado para el año 2005, el cual no contempla los gastos indicados en el considerando 2 de este decreto.
+5º—Que por lo anterior, resulta necesario modificar el gasto presupuestario máximo fijado al Colegio San Luis Gonzaga para el año 2005. Por tanto,
+DECRETAN:
+Artículo 1º—Modifícase al Colegio San Luis Gonzaga el gasto presupuestario máximo para el año 2005, establecido en el artículo 1° del Decreto Ejecutivo N° 31708-H, publicado en La Gaceta Nº 62 de 29 de marzo de 2004 y sus reformas, de manera que éste no podrá exceder la suma de ¢ 218.0 millones.
