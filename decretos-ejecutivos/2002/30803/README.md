@@ -14,3 +14,4 @@ Reglamento a la Ley de Reestructuración de la Deuda Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-07 | la propia norma |
+| 2 | 2005-07-18 | Decreto Ejecutivo 32546 (2005-07-18) |
