@@ -1,0 +1,1 @@
+Artículo 5º—La tarifa por este medio se encontrará vigente, mientras se encuentre en operación el aeropuerto, sin perjuicio de los poderes de revisión, modificación, suspensión o cancelación que se reserva el Consejo Técnico de Aviación Civil, de oficio o a solicitud de parte.
