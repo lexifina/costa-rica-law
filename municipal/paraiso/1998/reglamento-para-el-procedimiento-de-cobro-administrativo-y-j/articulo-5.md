@@ -1,1 +1,2 @@
-Artículo 5°—Se entenderá como cobro administrativo las acciones que se realizan administrativamente a efecto de normalizar las cuentas morosas.
+Artículo 05—Se entenderá por cobro administrativo las acciones que se realizan administrativamente a efecto de normalizar las cuentas morosas, la oficina de cobros podrá contratar a personas físicas o jurídicas para realizar la gestión de cobro administrativo, todo conforme a los mecanismos establecidos por la ley de contratación administrativa y su reglamento.
+(Así reformado en sesión N° 284 del 18 de julio del 2005)
