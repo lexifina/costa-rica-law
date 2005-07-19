@@ -1,13 +1,15 @@
 CAPÍTULO III
-Procedimiento para la entrega de materiales o prestación
-de servicios en el caso de obras viales y fluviales
+Procedimiento para la entrega de materiales o prestación de servicios
+que se tramiten a través de la División de Obras Públicas
 Artículo 9°—Procedimiento para la entrega de materiales
 9.1 Toda solicitud para la entrega de materiales, para la construcción de obras viales o fluviales, deberá presentarse por escrito, firmada por el representante legal de la organización social o institución gubernamental en favor de la cual proceda la ayuda del Ministerio de Obras Públicas y Transportes. Con dicha gestión deberá adjuntarse los siguientes documentos:
 9.1.1 Copia certificada de la cédula jurídica.
 9.1.2 Copia certificada de la cédula de identidad del Representante Legal.
 9.1.3 Certificación de personería que acredite al representante Legal.
 9.1.4 En el caso de obras viales, cuando la solicitud no sea realizada por una Municipalidad, deberá aportarse documento emitido por la Municipalidad respectiva, en el cual Ésta manifieste su conformidad con la ejecución de las obras.
-9.2 Toda solicitud deberá contener la indicación expresa de las obras a ejecutar, los planos o croquis o inventario de necesidades, según sea el caso, el presupuesto de materiales, el plan de financiamiento, la fecha de inicio de las obras, la fecha probable de conclusión y en el caso de que los planos no hayan sido elaborados por el órgano competente de la División de Obras Públicas, indicar los profesionales responsables.
+Artículo 9.2.—Toda solicitud deberá contener la indicación expresa de las obras a ejecutar, los planos o croquis o inventario de necesidades, según sea el caso, el presupuesto de materiales, el plan de financiamiento, la fecha de inicio de las obras, la fecha probable de conclusión. Las personas jurídicas legitimadas para solicitar ayuda, podrán solicitar por escrito la colaboración de diseños elaborados por la División de Obras Públicas. En el caso de que éstos no hayan sido elaborados por la División de Obras Públicas, deberá indicar en la solicitud los profesionales responsables de su elaboración.
+También deberá indicarse en la solicitud, el nombre del responsable de la dirección técnica de la obra ante el Colegio Federado de Ingenieros y Arquitectos (CFIA), el número de cédula de tal profesional, así como el número de colegiado, debiéndose adjuntar también fotocopia de la cédula y del carné respectivo.
+(Así reformado el inciso 9.2 por Artículo 1° del Decreto Ejecutivo N° 32478 del 19 de julio del 2005)"
 9.3 Únicamente se recibirán aquellas solicitudes que se presenten con la totalidad de los documentos establecidos en este Reglamento y los planos o croquis elaborados o aprobados por este Ministerio.
 9.4 Las solicitudes con los documentos podrán recibirse en las respectivas Direcciones Regionales o bien en la División de Obras Públicas, entratándose de obras viales; y en la Dirección de Obras Fluviales, en el caso de obras fluviales, debiendo la oficina o dependencia que las recibe verificar que los datos consignados en el formulario coincidan con los aportados en las fotocopias, y de que se aporte la totalidad de la documentación requerida.
 9.5 Si la gestión se hubiere presentado ante una Dirección Regional de la División de Obras Públicas o ante la Dirección de Obras Fluviales según corresponda, Ésta verificará su conformidad con lo dispuesto en este Reglamento y solicitará autorización a la División de Obras Públicas para su inclusión en el programa trimestral correspondiente, previa verificación sobre la existencia de materiales, factibilidad técnica de su entrega y capacidad del interesado de ejecutar y controlar las obras.
