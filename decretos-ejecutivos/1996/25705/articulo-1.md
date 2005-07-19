@@ -1,6 +1,6 @@
 (Derogado)
 (La presente norma ha sido derogada en su totalidad por el decreto ejecutivo N° 31849 del 24 de mayo de 2004,
-Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental (EIA))
+Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental (EIA), y posteriormente se vuelve a derogar por el artículo 34 del decreto ejecutivo N° 32711 del 19 de julio del 2005)
 Nº 25705-MINAE
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DEL AMBIENTE Y ENERGÍA
