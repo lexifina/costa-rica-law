@@ -1,0 +1,1 @@
+Artículo 2º—La Corporación Arrocera Nacional, será el ente encargado de realizar las actividades y acciones que tiendan a la celebración adecuada de dicha actividad dentro del respeto y promoción de la imagen civilista y democrática del país, para lo cual las instituciones públicas podrán colaborar con la Corporación en la celebración del día indicado.
