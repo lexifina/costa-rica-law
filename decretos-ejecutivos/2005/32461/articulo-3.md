@@ -1,0 +1,1 @@
+Artículo 3º—Se mantienen vigentes las restantes normas de los Decretos Ejecutivos Nº 32094 MOPT, publicado en La Gaceta Nº 225 del 17 de noviembre del año 2004 y Nº 27917-MOPT de 31 de mayo de 1999, publicado en La Gaceta Nº 112 del 10 de junio de 1999 y sus reformas.
