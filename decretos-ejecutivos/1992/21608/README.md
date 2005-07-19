@@ -14,3 +14,4 @@ Reglamento a la Ley de la Comisión Nacional de Nomenclatura
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-10-21 | la propia norma |
+| 2 | 2005-07-19 | Decreto Ejecutivo 32598 (2005-07-19) |
