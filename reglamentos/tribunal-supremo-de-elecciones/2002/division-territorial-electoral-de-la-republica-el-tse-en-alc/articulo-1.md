@@ -822,7 +822,8 @@ Mapa
 069 Fd 063 C. P. *AMBITOS D (MEDIANA CERRADA) E (MAXIMA).
 (*Mediante el artículo 1° punto 8 inciso 8-3 del decreto del TSE N° 7 del 25 de mayo del 2005, al distrito electoral C P Ámbitos D (Mediana Cerrada) F (Máxima) se le cambia su denominación a C P Ámbitos D (Mediana Cerrada) E (Máxima)
 *069 Fd 064 C. P. GERARDO RODRIGUEZ ECHEVERRIA. / 068 Sñ 018 C. P. HEREDIA.
-(*Mediante el artículo 1° punto 8 inciso 8-4 del decreto del TSE N° 7 del 25 de mayo del 2005, el distrito electoral C P Heredia (018) que aparecia incluido en el distrito administartivo I Heredia se refunde en el distrito electoral C. P. Gerardo Rodríguez E. eliminandose el mismo del distrito administartivo I Heredia, esto porque el Centro penitenciario de Heredia fue cerrado por el Ministerio de Justicia y Gracia)
+(*Mediante el artículo 1° punto 8 inciso 8-4 del decreto del TSE N° 7 del 25 de mayo del 2005, el distrito electoral C P Heredia (018) que aparecia incluido en el distrito administartivo I Heredia se refunde en el distrito electoral C. P. Gerardo Rodríguez E. eliminandose el mismo del distrito administartivo I Heredia, esto porque el Centro penitenciario de Heredia fue cerrado por el Ministerio de(*) Justicia y Paz)
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 069 Fd 065 C. P. ADULTO MAYOR.
 IX DISTRITO RIO SEGUNDO
 068 Sg 024 RIO SEGUNDO (SANTIAGO ESTE)* D /. POBLADOS: (BARRIO FATIMA,(1)) FINCA CARMELA, GUAYABO, LA JULIETA, LOS ANGELES, URB. EL CEDRO, VIQUEZ.
@@ -2652,6 +2653,8 @@ IX DISTRITO MONTE VERDE
 Mapa
 X DISTRITO ISLA DEL COCO
 (CONSTITUIDA EN PARQUE NACIONAL)
+*105 ISLA DEL COCO
+(*Mediante el artículo 1° del decreto del TSE N° 10 del 19 de julio del 2005, se reconóce el distrito electoral 105 Isla del Coco, con hoja cartográfica Isla del Coco, escala 1:25000, ed. 1° IGN. Cr, 2002)
 XI DISTRITO COBANO
 032 Mx 013 TAMBOR* /. POBLADOS: PIEDADES, PIEDRA AMARILLA.
 032 Po 024 COBANO* /. POBLADOS: CAÑADA MONTEZUMA (RIO ENMEDIO), CERITAL, DELICIAS, FINCA PROGRESO, MOLINO, SAN ANTONIO DE COBANO, SAN ISIDRO DE CERITAL, SAN ISIDRO DE COBANO, SAN JORGE DE ARIO*, SANTA CLEMENCIA*, SANTA FE.

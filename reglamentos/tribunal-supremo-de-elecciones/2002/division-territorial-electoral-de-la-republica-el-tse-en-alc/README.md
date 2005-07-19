@@ -19,3 +19,4 @@ División Territorial Electoral de la República (El TSE en Alcance N° 29 a La 
 | 4 | 2005-05-25 | Decreto TSE 5 (2005-05-25) |
 | 5 | 2005-05-25 | Decreto TSE 6 (2005-05-25) |
 | 6 | 2005-05-25 | Decreto TSE 7 (2005-05-25) |
+| 7 | 2005-07-19 | Decreto TSE 10 (2005-07-19) |
