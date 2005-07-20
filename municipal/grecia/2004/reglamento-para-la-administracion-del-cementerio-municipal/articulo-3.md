@@ -1,0 +1,1 @@
+Artículo 3º—Los contratos de arrendamiento de nichos y el cobro de los derechos derivados de ellos se regirán por las disposiciones del presente reglamento. Quedan a salvo los derechos adquiridos por contratos anteriores a la promulgación de la presente normativa que dispongan otras condiciones, hasta la fecha de su vencimiento o su terminación por cualquier causa.

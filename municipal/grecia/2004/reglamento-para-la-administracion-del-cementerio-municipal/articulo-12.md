@@ -1,0 +1,1 @@
+Artículo 12.—Comprobando el fallecimiento o ausencia del arrendatario, el arrendante procederá de oficio, sin más trámite, a consignar como nuevo arrendatario, a quien hubiere sido designado como beneficiario por estricto orden en la solicitud.

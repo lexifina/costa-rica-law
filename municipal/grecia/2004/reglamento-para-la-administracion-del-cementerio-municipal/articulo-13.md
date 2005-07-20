@@ -1,0 +1,1 @@
+Artículo 13.—El arrendatario podrá ceder su derecho de arrendamiento, para lo cual deberá suscribir un contrato con el nuevo adquirente. Este documento se presentará debidamente autenticado ante la Junta para lo de su cargo. Solo procederá la cesión del derecho, cuando el cedente demuestre encontrarse al día en el pago de la mensualidad correspondiente.

@@ -1,0 +1,1 @@
+Artículo 4º—La Junta será de nombramiento del Concejo Municipal, a propuesta de una lista suministrada por el Alcalde. Estará integrada por cinco miembros propietarios y dos suplentes que permanecerán en sus cargos dos años, pudiendo ser reelectos.

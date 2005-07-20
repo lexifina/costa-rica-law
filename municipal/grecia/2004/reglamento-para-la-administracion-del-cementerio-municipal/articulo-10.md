@@ -1,0 +1,2 @@
+Artículo 10.—El Departamento de Administración Tributaria, previo a resolver la solicitud, realizará consulta ante la Junta, a fin de que ésta le indique si hay espacios disponibles y cuáles; de manera que, si es posible, sea acogida la solicitud, y se otorgue el arrendamiento solicitado.
+El contrato de arrendamiento tendrá un plazo de noventa y nueve años, contados a partir de la fecha en que la solicitud sea acogida con lugar por la Municipalidad.

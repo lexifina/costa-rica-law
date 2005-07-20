@@ -1,0 +1,1 @@
+Artículo 14.—La cuota anual de mantenimiento será revisada y .jada en el mes de diciembre de cada año por el Concejo Municipal, a propuesta de la Junta. Para su cálculo se tomará en consideración el costo efectivo del servicio, los gastos de trámites y el aumento en el costo de la vida en cada período.

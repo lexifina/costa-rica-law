@@ -1,0 +1,1 @@
+Artículo 16.—Para atender los gastos que demanda la sepultura de los difuntos, la Municipalidad cobrará derechos de sepultura, llamados también "derechos de tapa". El monto de esos derechos será determinado por acuerdo municipal, previa propuesta de la Junta, y recomendación del Alcalde.

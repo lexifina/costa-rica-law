@@ -1,0 +1,1 @@
+Artículo 18.—En casos de indigencia, salubridad, o manifiesto interés público, el Departamento de Administración Tributaria de la Municipalidad podrá, condonar el pago de los derechos de tapa. La resolución que así lo acuerde, deberá estar debidamente motivada y conservarse en el Registro de Inhumaciones junto al asiento respectivo.
