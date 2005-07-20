@@ -1,0 +1,1 @@
+Artículo 77.—Reporte de extravío o deterioro. El notario público activo debe dar cuenta a la DNN dentro del plazo de quince días del extravío o deterioro total o parcial del protocolo, detallando para ello los hechos. Dentro de ese plazo deberá aportar los documentos requeridos para la apertura del proceso de reposición de protocolo.

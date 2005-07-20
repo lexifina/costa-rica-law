@@ -1,0 +1,1 @@
+Artículo 97.—Entrega de protocolo. La entrega del nuevo protocolo con la razón respectiva se hará en forma personal, el notario, en presencia del funcionario respectivo procederá a suscribir dicha razón. Lo anterior una vez que se haya realizado el asiento de autorización del tomo en el RNN.

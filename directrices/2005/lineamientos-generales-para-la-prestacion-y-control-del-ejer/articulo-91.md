@@ -1,0 +1,1 @@
+Artículo 91.—Grado académico. No se exigirá el postgrado en derecho notarial y registral para aquellos profesionales que lleguen a alcanzar el grado de notarios públicos antes del 22 de noviembre del dos mil tres. La especialidad será obligatoria a partir del 23 de noviembre del 2003.

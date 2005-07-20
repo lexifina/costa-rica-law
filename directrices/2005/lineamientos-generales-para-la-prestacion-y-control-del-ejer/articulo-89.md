@@ -1,0 +1,1 @@
+Artículo 89.—Rehabilitación. Se considera rehabilitado para ser y ejercer aquel notario que estando cesado por resolución firme cumpla con todos los requisitos y condiciones que la ley le exige probar o bien que demuestre que la causa que motivó su inhabilitación haya desaparecido.

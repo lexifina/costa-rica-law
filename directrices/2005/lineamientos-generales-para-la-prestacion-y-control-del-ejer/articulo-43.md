@@ -1,0 +1,1 @@
+Artículo 43.—Deber de congruencia. Para brindar este servicio, el notario está obligado a ajustarse a los hechos que le constan por sus sentidos, a efecto de transcribir, reproducir o expedir documentos notariales que guarden congruencia con el documento original que sirvió de base para realizar la certificación.

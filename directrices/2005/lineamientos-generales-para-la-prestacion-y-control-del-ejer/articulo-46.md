@@ -1,0 +1,1 @@
+Artículo 46.—Vigencia. Notarialmente no existe norma en concreto que indique la vigencia de las certificaciones notariales, debiendo entenderse que esa vigencia se mantendrá hasta tanto los hechos de la información que sustentan la certificación no varíen.

@@ -1,0 +1,1 @@
+Artículo 40.—Sanciones. Tratándose de un deber legal, el incumplimiento de las normas que regulan el archivo de referencias es sancionado con suspensión en el ejercicio del notariado mediante resolución firme dictada por los órganos competentes.

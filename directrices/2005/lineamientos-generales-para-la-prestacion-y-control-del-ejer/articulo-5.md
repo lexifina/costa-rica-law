@@ -1,0 +1,1 @@
+Artículo 5º—Conciencia de las implicaciones. Intervenir con conciencia de las implicaciones inherentes a los requisitos, condiciones y deberes del notario en el ejercicio del notariado y su normativa.

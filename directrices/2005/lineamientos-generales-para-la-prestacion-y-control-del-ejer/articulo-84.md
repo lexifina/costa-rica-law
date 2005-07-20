@@ -1,0 +1,1 @@
+Artículo 84.—Plazo de reposición. Transcurrido el mes a que se refiere el artículo 64 del CN, se ordenará la reposición con el material aportado hasta esa fecha, mediante razón al efecto, según los términos del artículo 67 del mismo texto legal. Lo anterior sin perjuicio de que ese plazo se extienda seis meses según lo dispuesto por el artículo 66 del cuerpo de leyes citado.

@@ -1,0 +1,1 @@
+Artículo 75.—Cambio de firma o sello y extravío de papel de seguridad o sello del notario. Cuando el notario varíe su firma está en la obligación de informar y registrar su nueva rúbrica. De igual forma en el caso del extravío del sello blanco y el papel de seguridad notarial.

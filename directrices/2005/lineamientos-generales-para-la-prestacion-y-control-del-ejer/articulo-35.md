@@ -1,0 +1,1 @@
+Artículo 35.—Testigos de conocimiento. Matrimonios. Se exige que los testigos participantes en la celebración del matrimonio que se realiza ante notario público, tengan conocimiento pleno de la aptitud legal y libertad de estado de los contrayentes.

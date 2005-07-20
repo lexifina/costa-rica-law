@@ -1,0 +1,1 @@
+Artículo 44.—Tipos de certificación. Las certificaciones pueden ser totales o parciales. Cuando se trate de copias y certificaciones parciales de un documento, el notario por ley debe advertir, bajo su responsabilidad, que se trata de una trascripción en lo conducente y que lo omitido no modifica, altera, condiciona, restringe, ni desvirtúa lo trascrito.

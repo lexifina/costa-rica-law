@@ -1,0 +1,1 @@
+Artículo 12.—Actos pre-escriturarios. La excusa, la autorización y expedición de un instrumento notarial, representan el ámbito por el cual discurre la ética profesional del notario. Por esa razón, los actos pre-escriturarios representan en el asesoramiento la parte esencial para la conformación de las voluntades y es el momento para excusarse o no de brindar el servicio.

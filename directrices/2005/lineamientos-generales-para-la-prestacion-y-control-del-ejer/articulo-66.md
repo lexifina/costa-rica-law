@@ -1,0 +1,1 @@
+Artículo 66.—Deber de custodia. Por tratarse de un medio de seguridad, el sello blanco y el papel de seguridad deben ser custodiados y utilizados adecuadamente por el notario, y reportar su extravío inmediatamente ante la DNN cuando tal circunstancia suceda. El incumplimiento de esta disposición conlleva la aplicación del régimen disciplinario.

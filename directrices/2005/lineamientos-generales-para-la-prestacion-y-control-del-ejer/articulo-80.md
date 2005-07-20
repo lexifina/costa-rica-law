@@ -1,0 +1,1 @@
+Artículo 80.—Folios con texto de "no corre". Cuando se trate de folios con texto de no corre, no se reponen el contenido de dichos folios en razón de que no son instrumentos públicos autorizados, pero si contiene una escritura o parte de ella, se procederá a reponerlo.

@@ -1,0 +1,1 @@
+Artículo 47.—Fuentes. Toda certificación de documentos (públicos, privados o mediante fotocopias), debe realizarse a partir del documento original que el notario ha tenido a la vista, siendo incorrecto que el fedatario certifique un documento con vista en una fotocopia.

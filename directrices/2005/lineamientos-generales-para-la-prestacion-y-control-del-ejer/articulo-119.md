@@ -1,0 +1,1 @@
+Artículo 119.—Naturaleza de la denuncia. Es una denuncia de hechos que implican responsabilidad del notario pero no demanda en contra del notario. Es para hacer efectiva la responsabilidad disciplinaria y civil del notario por sus faltas.

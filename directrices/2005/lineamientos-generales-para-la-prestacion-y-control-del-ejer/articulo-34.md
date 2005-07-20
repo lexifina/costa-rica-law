@@ -1,0 +1,4 @@
+CAPÍTULO V
+Actos protocolares
+Artículo 34.—Subsanación de errores u omisiones. Se podrán enmendar por vía de razón notarial, errores y omisiones en las escrituras, siempre y cuando tal acción surja producto del asesoramiento y que el notario pueda comprobar esa corrección por medio del archivo de referencia o cualquier fuente objetiva de consulta utilizada a la hora de la confección del instrumento y no constituyan variación de las voluntades consentidas. Es entendido que la existencia de toda razón en el testimonio de escritura desde esa dimensión, deberá consignarse en la matriz sin las firmas de las partes, ya sea mediante nota marginal o al pie de ella sin perjuicio de la responsabilidad del notario, si así no lo hiciere, consignando el día, hora mes y año en que la realice.
+(Así corregido mediante publicación hecha por la Dirección Nacional de Notariado, en el Boletín Judicial N° 159 del 19 de agosto del 2005)

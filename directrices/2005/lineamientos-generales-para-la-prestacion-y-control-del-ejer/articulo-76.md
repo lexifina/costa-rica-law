@@ -1,0 +1,1 @@
+Artículo 76.—Presentación de índices. Vencido el plazo de los cinco días para la presentación de índice en el Archivo Notarial, el notario público activo deberá comprobar su entrega mediante copia debidamente sellada por el Archivo Notarial dentro del plazo establecido por el CN.
