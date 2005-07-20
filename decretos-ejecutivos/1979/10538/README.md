@@ -21,3 +21,4 @@ Reglamento de Especialidades Médicas
 | 6 | 1998-03-12 | Decreto Ejecutivo 26812 (1998-03-12) |
 | 7 | 2002-05-03 | Decreto Ejecutivo 30395 (2002-05-03) |
 | 8 | 2004-06-23 | Decreto Ejecutivo 32018 (2004-06-23) |
+| 9 | 2005-07-20 | Decreto Ejecutivo 32762 (2005-07-20) |
