@@ -18,4 +18,6 @@ Técnica Informática
 Técnico informático
 8. Siuyen Apuy Wong
 Técnico Informático
+9. Sra. Alejandra Arias Sánchez
+(Así adicionado el punto 9 por la circular N° 85 del 21 de julio del 2005)
 San José, 22 de febrero del 2005.

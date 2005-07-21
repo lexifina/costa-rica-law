@@ -13,3 +13,4 @@ Lista de funcionarios del Departamento de Infracciones del Consejo de Seguridad 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-03-02 | la propia norma |
+| 2 | 2005-07-21 | Circular 85 (2005-07-21) |
