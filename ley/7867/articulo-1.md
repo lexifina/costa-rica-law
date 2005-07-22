@@ -20,3 +20,4 @@ máxima de 30% anual en colones y un 9% anual en dólares, y demás
 características de las emisiones de Títulos Valores de Deuda Interna.
 (Así reformado por el artículo 10 inciso 32 de la Ley N° 8424 del 30 de setiembre del 2004)
 (Así reformado por el artículo 10 inciso 12, de la Ley N° 8433 del 10 de diciembre del 2004, publicado en el Alcance N° 64 a La Gaceta N° 245 del 15 de diciembre del 2004)
+(Así reformado por el artículo 7° incisos 5, 18, de la Ley N° 8453 del 22 de julio del 2005, publicado en el Alcance N° 28 a La Gaceta N° 154 del 11 de agosto del 2005)

@@ -5,3 +5,4 @@ ARTICULO 1º.- Modifícase el Artículo 2º de la Ley No.7563 de 13 de
 diciembre de 1995, en la forma que se indica a continuación:
 (Por lo extenso de su contenido, véase La Gaceta No.228, Alcance 72,
 de 27 de noviembre de 1996)
+(Así reformado por el artículo 7° inciso 17 de la Ley N° 8453 del 22 de julio del 2005, publicado en el Alcance N° 28 a La Gaceta N° 154 del 11 de agosto del 2005)
