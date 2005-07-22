@@ -1,0 +1,1 @@
+Artículo 2º—Los agremiados de la Asociación Nacional de Empleados Públicos y Privados (ANEP), de las diferentes entidades y órganos de la Administración Pública, podrán tomar parte durante todo el día, con goce salarial en la asamblea general ordinaria de fin de periodo de dicha Asociación.
