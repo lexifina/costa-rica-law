@@ -10,5 +10,6 @@ h) Llevar un registro nacional de los profesionales autorizados por las instituc
 i) Llevar un registro actualizado de CEC así como de investigadores que hayan sido sancionados por incumplimiento de la normativa que regula la investigación en que participan seres humanos.
 j) Informar por escrito a las autoridades de salud de las Regiones de Salud del Ministerio de Salud y de la Caja Costarricense de Seguro Social, así como a las Juntas de Salud del establecimiento, sobre las investigaciones aprobadas y por desarrollarse en su jurisdicción, en las que participan seres humanos.
 k) Definir en forma anual, los planes de trabajo y presupuestos necesarios para ejercer sus funciones.
-l) Velar porque los fondos que ingresan por concepto de revisión, aprobación y registro de protocolos de investigación en que participan seres humanos, sean utilizados para asegurar el adecuado funcionamiento del CONIS y en la mejora de los procesos de investigación y divulgación de la bioética y los derechos de los usuarios de los servicios de salud.
+l) Velar porque los fondos que ingresen por concepto de revisión, aprobación y registro de protocolos de investigación en que participan seres humanos sean destinados para financiar las actividades que desarrollan los programas y subprogramas del Ministerio de Salud.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32648 del 22 de julio del 2005)
 m) Presentar al Ministro informes semestrales y anuales sobre su funcionamiento.
