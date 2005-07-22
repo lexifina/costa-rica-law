@@ -1,0 +1,4 @@
+CAPÍTULO II
+De las funciones y responsabilidades
+Artículo 3º—Las observaciones o disposiciones emitidas por la empresa auditora, tendrán carácter de acatamiento obligatorio. En caso de que no sean acatadas, la empresa auditora deberá notificar tal situación a la Gerencia de Biotecnología del Servicio Fitosanitario del Estado, en los respectivos informes, para que se realicen las acciones que procedan, de conformidad con la Ley de Protección Fitosanitaria y su respectivo Reglamento.
+La Empresa auditora y el auditor en Bioseguridad deberán guardar confidencialidad en la información técnica que le suministre la institución o empresa, para los fines propios de la actividad auditada. Para tal fin, la empresa auditora y la entidad auditada, firmarán un contrato de confidencialidad que se regirá por lo estipulado en la normativa vigente.

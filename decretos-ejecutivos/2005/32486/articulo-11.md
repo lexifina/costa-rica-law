@@ -1,0 +1,1 @@
+Artículo 11.—Todo establecimiento que manipule OVMs, deberá llevar una bitácora debidamente foliada y con la respectiva razón inicial de apertura por parte de la Gerencia de Biotecnología del Servicio Fitosanitario del Estado, que será revisado periódicamente por la empresa auditora y por la misma Gerencia de Biotecnología.

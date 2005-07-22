@@ -1,0 +1,1 @@
+Artículo 16.—La Gerencia de Biotecnología podrá solicitar a la empresa auditora el Libro de Protocolo de cada auditor, en el momento que lo considere oportuno para su respectiva revisión, estando el profesional en la obligación de presentarlo dentro del plazo que le conceda la Gerencia de Biotecnología.

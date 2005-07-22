@@ -1,0 +1,1 @@
+Artículo 7º—La Gerencia de Biotecnología del Servicio Fitosanitario del Estado, deberá suministrar a la empresa auditora un certificado en el cual se le autoriza el ejercicio de la actividad en entidades sujetas a auditoraje.
