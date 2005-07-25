@@ -14,3 +14,4 @@ Créase el Centro Nacional de Fármacovigilancia en la Dirección de Vigilancia 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-25 | la propia norma |
+| 2 | 2005-07-25 | Decreto Ejecutivo 32367 (2005-04-06) |
