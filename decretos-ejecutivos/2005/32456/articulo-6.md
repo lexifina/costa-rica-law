@@ -1,0 +1,3 @@
+Artículo 6º—Plan de continuidad. El Servicio tomará las medidas necesarias que les permitan a los Auxiliares y demás usuarios, reiniciar las operaciones críticas ante las aduanas en un plazo de dos horas, después de una interrupción del servicio.
+Si el período de interrupción del servicio supera el plazo de dos horas, la tramitación de las diferentes operaciones aduaneras se podrá realizar de forma manual o utilizando otro sistema informático autorizado.
+El Servicio utilizará los medios más expeditos para comunicar oportunamente a los Auxiliares y demás usuarios, la ocurrencia de fallas y de las medidas alternativas.

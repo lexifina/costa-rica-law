@@ -1,0 +1,1 @@
+Artículo 35.—Derogatorias al Reglamento a la Ley General de Aduanas. Deróguense el inciso b del artículo 156, el inciso i del artículo 297 y los artículos 334, 402, 403 del Decreto Ejecutivo Nº 25270-H de 14 de junio de 1996, Reglamento a la Ley General de Aduanas.

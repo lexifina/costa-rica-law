@@ -1,0 +1,1 @@
+Artículo 27.—Registro de exportadores. Los exportadores registrados ante la Promotora del Comercio Exterior de Costa Rica (PROCOMER) se considerarán registrados ante el Servicio, en consecuencia no tendrán que registrarse ante éste. Ambas instituciones establecerán los medios que permitan la actualización constante de la información.

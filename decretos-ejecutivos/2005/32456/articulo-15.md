@@ -1,0 +1,1 @@
+Artículo 15.—Facilidades para la autoridad aduanera. Las autoridades portuarias dispondrán de un espacio adecuado para que los funcionarios aduaneros ejecuten labores propias de su cargo, incluyendo el equipo necesario para el acceso al sistema informático.

@@ -1,0 +1,2 @@
+Artículo 25.—Control de pago. El levante de las mercancías no se ordenará sin antes comprobar que el monto de la obligación tributaria aduanera y demás tributos que deben pagarse en relación con el ingreso y salida de mercancías del territorio aduanero nacional, ha sido efectivamente cancelado o, habiéndose autorizado la rendición de garantía, que ésta haya sido efectivamente otorgada y depositada por el monto correspondiente.
+Todo ello sin perjuicio de los ajustes y las rectificaciones que pudieren realizarse a la declaración aduanera.

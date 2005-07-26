@@ -1,0 +1,1 @@
+Artículo 4º—Comunicación del programa de implementación. La Dirección General comunicará entre otros, por medios de difusión escrita, el programa de implementación por aduana del sistema informático y las modificaciones con el .n de que los usuarios del Sistema Aduanero Nacional, en adelante “el Sistema”, tomen las previsiones del caso.

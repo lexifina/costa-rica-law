@@ -1,0 +1,3 @@
+Artículo 31.—Comunicación de la salida de los vehículos del territorio. En la salida de vehículos, unidades de transporte y/o mercancías del territorio aduanero nacional, se registrará la fecha y hora de la salida, de conformidad con las siguientes reglas:
+a. En el tránsito aéreo y en el tránsito marítimo, la autoridad portuaria o el Gestor Interesado en el caso del Aeropuerto Juan Santamaría, deberán comunicar al Servicio la fecha y hora de salida efectiva de la nave y de las unidades de transporte debidamente embarcadas.
+b. En el tránsito terrestre, la autoridad aduanera registrará la fecha y hora de salida efectiva del vehículo y las unidades de transporte.

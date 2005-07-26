@@ -1,0 +1,2 @@
+Artículo 23.—Llegada a las instalaciones del auxiliar receptor. A la llegada de los vehículos y las unidades de transporte a las instalaciones habilitadas, el conductor presentará al auxiliar el documento de respaldo del tránsito o traslado.
+El auxiliar receptor transmitirá electrónicamente y de forma inmediata, la llegada de la unidad de transporte a sus instalaciones, así como cualquier circunstancia que deba ser comunicada.

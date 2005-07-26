@@ -1,0 +1,1 @@
+Artículo 2º—Implementación de un nuevo sistema informático. El Servicio implementará gradualmente por aduana y por régimen aduanero, un nuevo sistema informático denominado Sistema de Información para el Control Aduanero TIC@, en adelante “el sistema informático” o “el sistema informático TIC@”.

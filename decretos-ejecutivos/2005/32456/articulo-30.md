@@ -1,0 +1,2 @@
+Artículo 30.—Aceptación y verificación de la declaración aduanera en el caso de exportación definitiva. Por regla general, aceptada la declaración aduanera, se comunicará inmediatamente si procede ordenar algún acto inmediato de verificación o autorizar el levante de las mercancías.
+No obstante, el declarante podrá transmitir la declaración y solicitar esa comunicación dentro del plazo de cinco días hábiles a partir de la aceptación de la declaración. Si la solicitud no la efectúa el declarante en ese plazo, la transmisión se tendrá como no efectuada.

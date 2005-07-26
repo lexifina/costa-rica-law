@@ -1,0 +1,1 @@
+Transitorio único.—La exigencia del uso del precinto electrónico se implementará gradualmente y de conformidad con las disposiciones de alcance general que al efecto emita la Dirección General de Aduanas y que se publiquen en el Diario Oficial La Gaceta.
