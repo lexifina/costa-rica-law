@@ -16,3 +16,4 @@ Reglamento Ley Promoción Desarrollo Científico y Tecnológico Nº 7169
 | 2 | 1995-09-04 | Decreto Ejecutivo 24666 (1995-09-04) |
 | 3 | 2002-05-14 | Decreto Ejecutivo 30491 (2002-05-14) |
 | 4 | 2003-07-23 | Decreto Ejecutivo 31296 (2003-07-23) |
+| 5 | 2005-07-26 | Decreto Ejecutivo 32613 (2005-07-26) |
