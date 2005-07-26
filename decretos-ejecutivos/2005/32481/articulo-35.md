@@ -1,0 +1,1 @@
+Artículo 35.—Estructura organizativa de las aduanas. Las aduanas estarán a cargo de un Gerente, un Subgerente. Contarán con un Departamento Normativo y un Departamento Técnico que tendrá a su cargo una Sección Técnica Operativa y una Sección de Depósito.

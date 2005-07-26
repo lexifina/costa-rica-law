@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Las presentes disposiciones reglamentarias regularán la estructura organizativa y funcional de las aduanas del país que apliquen el nuevo sistema informático del Servicio, denominado Sistema de Información para el Control Aduanero TIC@, en adelante “el sistema informático” o “el sistema informático TIC@”.

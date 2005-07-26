@@ -1,0 +1,26 @@
+Artículo 42.—Funciones de los Puestos de Aduana. Son funciones de los Puestos Aduaneros:
+1. Realizar operaciones y trámites aduaneros de conformidad con las normas y reglamentaciones correspondientes.
+2. Garantizar el cumplimiento de las disposiciones y regulaciones en materia técnica aduanera en general.
+3. Elaborar el Plan Anual Operativo, jerarquizando metas y actividades, determinadas en él, para el cumplimiento de los objetivos y funciones, de conformidad con las políticas determinadas por la Dirección General y formulando los índices e indicadores de gestión que le permitan evaluar los resultados obtenidos en la ejecución de dicho plan.
+4. Efectuar el proceso de verificación de las mercancías.
+5. Elaborar informes y reportes a la Gerencia sobre el movimiento, volumen, tipo y monto de las operaciones y trámites aduaneros del Puesto de Aduanas, que le permitan a la Gerencia contar con la información oportuna para la toma de decisiones.
+6. Realizar las comunicaciones y notificaciones que sean procedentes, por los medios autorizados por ley, a los auxiliares, sus asistentes y demás usuarios del servicio, de manera oportuna, segura y de conformidad con las disposiciones legales y reglamentarias.
+7. Informar a la Gerencia cuando se presenten irregularidades que se deriven de la incorrecta aplicación de los procedimientos y disposiciones técnicas y administrativas previstas por la normativa aduanera, o que se deriven de protección de los derechos relacionados con la propiedad industrial e intelectual, de conformidad con leyes especiales la materia; para que se inicien los procedimientos administrativos y judiciales correspondientes.
+8. Determinar y comunicar a la gerencia, los niveles de acceso a los sistemas de información por parte de los funcionarios del Puesto.
+9. Informar a la Gerencia los roles y rotación de trabajo de los funcionarios del puesto.
+10. Analizar, evaluar y dar seguimiento a la ejecución de recomendaciones contenidas en informes de órganos contralores.
+11. Revisar y analizar las operaciones y servicios aduaneros atendidos por el departamento, a efecto de recomendar a la Gerencia los cambios procedimentales, con el .n de mejorar la calidad del servicio.
+12. Colaborar en la planeación, dirección, coordinación y control de proyectos de.nidos para mejorar la gestión de la Aduana.
+13. Coadyuvar con la Jefatura del Departamento, suministrando la información requerida para el establecimiento de perfiles de riesgo, que la Aduana coordinará con la Dirección de Gestión de Riesgo Aduanero.
+14. Aplicar las medidas de control correspondientes para protección de los derechos relacionados con la propiedad industrial e intelectual, de conformidad con leyes especiales la materia, en coordinación con las diferentes dependencias tanto administrativas como judiciales que tengan competencia en la materia.
+15. Participar en comisiones y comités de trabajo de la aduana, cuando así se lo solicite la Gerencia.
+16. Coordinar la integración de comisiones de trabajo tendientes al establecimiento de controles en los procedimientos de los distintos regímenes aduaneros, controlando el cumplimiento de sus objetivos, con el propósito de desarrollar de la mejor manera los proyectos establecidos.
+17. Dar seguimiento a los planes, programas y actividades en general que se ejecutan en el Puesto de Control, mediante la revisión constante de los plazos y resultados, con el objetivo de cumplir con las metas y objetivos planteados.
+18. Realizar la investigación correspondiente para la atención de las denuncias e informar a la Gerencia los resultados para que se inicien los procedimientos sancionatorios que correspondan.
+19. Velar por que se cumplan las disposiciones de la Ley General de Control Interno, con el .n de salvaguardar los recursos humanos, materiales y financieros y así asegurar el cumplimiento de las demás disposiciones legales y administrativas para lograr la consecución de las metas y objetivos programados.
+20. Cumplir con las disposiciones y controles establecidos para la actividad aduanera y tributaria contempladas en la Ley 7730, del 13 de Enero de 1998, Reforma a la Ley de creación del Depósito Libre Comercial de Golfito Número 7012.
+21. Verificar que se cumpla con los términos de la Ley 7012, sobre la determinación de los precios de venta al consumidor y los niveles de utilidad de los productos que expenden los Concesionarios en las instalaciones del Depósito Libre Comercial de Golfito.
+22. Suministrar a los usuarios del Depósito Libre Comercial de Golfito, la Tarjeta de Autorización de Compra, previa verificación de los requisitos.
+23. Supervisar y controlar el registro de restricciones en la base de datos del Depósito Libre Comercial de Golfito, sobre las compras de los usuarios, de conformidad a las limitaciones legalmente establecidas.
+24. Recopilar y capturar, diversidad de información producto de la interconexión de los locales de los Concesionarios en las instalaciones del Depósito Libre Comercial de Golfito, al servidor central del Ministerio de Hacienda. Rendir, en los plazos establecidos, los informes de gestión que les sean requeridos.
+25. Otras que le delegue y encomiende la Gerencia de la aduana de la cual dependen.
