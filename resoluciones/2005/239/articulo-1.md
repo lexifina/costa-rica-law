@@ -1,0 +1,29 @@
+DIRECCIÓN GENERAL DE ADUANAS
+Res. DGA-239.—San José, a las once horas del día 22 de julio del año 2005.
+Considerando:
+I.—Que mediante resolución número 115-2004 (COMIECO), puesta en vigencia mediante Decreto Ejecutivo No. 32082-COMEX-H, publicado en La Gaceta 217 de 5 de noviembre de 2004, el Consejo de Ministros de Integración Económica, aprobó el Reglamento Centroamericano sobre la Valoración Aduanera de las Mercancías, con los anexos de la Declaración del Valor en Aduana de las mercancías importadas y el Instructivo de Llenado.
+II.—Que el artículo 26 del Reglamento Centroamericano sobre la Valoración Aduanera de las Mercancías, establece que en la importación de mercancías se deberá presentar la Declaración del Valor y la misma debe contener la información, elementos y demás datos exigidos en el formulario e instructivo de llenado anexos al Reglamento.
+III.—Que el artículo 28 del Reglamento Centroamericano sobre la Valoración Aduanera de las Mercancías establece que no será obligatoria la presentación de la Declaración del Valor, cuando se trate de importaciones realizadas por el Estado, las municipalidades, las importaciones realizadas por organismos o entidades internacionales que están exentos del pago de derechos e impuestos, importaciones con fines no comerciales, importaciones comerciales cuyo valor de transacción no exceda de un mil pesos centroamericanos, siempre que no se trate de importaciones o envíos fraccionados y otros que determine el Servicio Aduanero.
+IV.—Que el Transitorio Tercero del Reglamento Centroamericano sobre la Valoración Aduanera de las Mercancías establece que hasta tanto no entre en vigencia la Unión Aduanera Centroamericana, el comercio intrarregional de mercancías no originarias de los países miembros del Protocolo de Guatemala, estarán sujetas a la presentación de la Declaración del Valor, salvo las excepciones previstas en el artículo 28 de dicho Reglamento.
+V.—Que el párrafo primero del artículo 319 del Reglamento a la Ley General de Aduanas, establece que la declaración aduanera de mercancías con un valor aduanero igual o inferior a mil pesos centroamericanos y las importaciones realizadas por el Estado y demás entes públicos no requerirán de una declaración del valor en aduana de las mercancías, se exceptuarán asimismo aquellas mercancías que disponga la Dirección General.
+VI.—Que el párrafo tercero del artículo 433 del Reglamento a Ley General de Aduanas, establece que no será necesaria la presentación de la declaración de valor para las importaciones no comerciales.
+VII.—Que se ha desarrollado un nuevo sistema informático como parte del nuevo modelo aduanero denominado TIC@ (Tecnología de Información para el Control Aduanero), que permite la automatización de los procesos aduaneros y el ejercicio del control que la legislación vigente impone.
+VIII.—Que mediante resolución DGA-203-2005 del 22 de junio de 2005 la Dirección General de Aduanas aprueba el Manual de Procedimientos Aduaneros y establece en el procedimiento de importación definitiva y temporal, en la política general Nº 7, que no será necesaria la transmisión de la Declaración de Valor en Aduanas en los casos previstos en la normativa aduanera vigente y cualquier otro que defina la Dirección General de Aduanas mediante resolución de alcance general. Por tanto:
+Con base en las potestades otorgadas en la Ley General de Aduanas Nº 7557 del 20 de octubre de 1995 y sus reformas, el Reglamento a la Ley General de Aduanas Decreto Nº 25270-H del 14 de junio de 1996 y sus reformas, y demás normativa aplicable, esta Dirección General de Aduanas procede a emitir las siguientes directrices sobre las excepciones de la presentación de la Declaración del Valor en Aduana en el Régimen de Importación Definitiva.
+1. No será necesaria la transmisión y presentación de la Declaración de Valor en Aduana, cuando las mercancías califican en alguno de los casos que se detallan a continuación:
+a) las importaciones cuyo valor de transacción no exceda de un mil pesos centroamericanos siempre que no se trate de importaciones o envíos fraccionados.
+b) importaciones realizadas por instituciones del Estado, Municipalidades, Organismos o Entidades Internacionales (incluido el cuerpo Diplomático y Consular) que estén exentos del pago de derechos e impuestos.
+c) mercancías de origen centroamericano que se desalmacenan por medio del FAUCA.
+d) mercancías consistentes en equipaje, menaje de casa, envíos urgentes y envíos de socorro.
+e) importaciones no comerciales.
+f) muestras sin valor comercial con valor de transacción de hasta mil pesos centroamericanos.
+g) urnas funerarias conteniendo personas fallecidas.
+h) importaciones de vehículos regulados por Decreto Ejecutivo.
+i) ventas locales procedentes del régimen de zona franca con valor de transacción de hasta $1.000,00.
+j) ventas locales procedentes del régimen de perfeccionamiento activo con un valor de transacción de hasta $1.000,00.
+k) importación de maquinaria y equipo procedente del régimen de zona franca de menos de 5 años, con un valor de transacción de hasta $1.000,00.
+l) importación de maquinaria y equipo procedente del régimen de zona franca, de más de 5 años.
+m) mercancías adquiridas mediante subasta pública.
+n) reimportación de mercancías para perfeccionamiento pasivo, con un valor de transacción hasta $1.000 (mil pesos centroamericanos).
+2. La presente resolución rige en las jurisdicciones de cada Aduana según el cronograma que al efecto ha definido el Ministerio de Hacienda iniciando con la Aduana de Verificación Documental y la Aduana de Caldera y rige a partir de la vigencia de la Resolución DGA-203-2005 del 22 de junio de 2005, emitida por esta Dirección General de Aduanas, es decir a partir del 26 de julio del 2005.
+3. Comuníquese a la División de Estadística, Registro y Divulgación para su correspondiente publicación en el Diario Oficial La Gaceta y notifíquese a las Agencias y Agentes de Aduanas.
