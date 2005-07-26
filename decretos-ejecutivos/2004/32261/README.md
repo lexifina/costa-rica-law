@@ -14,3 +14,4 @@ Reglamentación de Características y Condiciones Generales de los vehículos ta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-03-16 | la propia norma |
+| 2 | 2005-07-26 | Decreto Ejecutivo 32589 (2005-07-26) |

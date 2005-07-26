@@ -1,0 +1,3 @@
+Transitorio II.—Los adjudicatarios de las concesiones administrativas obtenidas a través del Primer Procedimiento Especial Abreviado de Taxis, podrán seguir operando con los vehículos que formalizaron su concesión, hasta el mes de diciembre del año 2007.
+Los concesionarios del Primer Procedimiento Especial Abreviado de Taxis que se encuentren formalizando su contrato de concesión en estos momentos, los que todavía no lo han efectuado y los que soliciten cambio de unidad, podrán ofrecer un vehículo cuyo año modelo no sea inferior a 1994, el cual podrán utilizar hasta el mes de diciembre del año 2007.
+(Así adicionado por Artículo 4° del Decreto 32589 de 26 de julio del 2005)
