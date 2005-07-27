@@ -14,3 +14,4 @@ Crea el Comité Gerencial de Informática del Ministerio de Agricultura y Ganade
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-18 | la propia norma |
+| 2 | 2005-07-27 | Decreto Ejecutivo 32654 (2005-07-27) |
