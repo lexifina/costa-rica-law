@@ -1,2 +1,0 @@
-Artículo 12.—Todo el personal del Colegio de Costa Rica, tanto el que se encuentra cubierto por el Régimen del Servicio Civil, como el que ocupa plazas excluidas de éste, se trasladará a la Dirección General de Cultura (Programa 753-Gestión y Desarrollo Cultural), garantizándoseles el respeto de sus derechos laborales.
-(Así adicionado mediante el artículo 2º del decreto ejecutivo Nº 27993 del 8 de julio de 1999)

@@ -1,1 +1,0 @@
-Artículo 8º. – El Colegio gestionará con alguna de las editoriales del sector público, la coedición de una revista que recoja las conferencias más importantes que se dicten en su seno, así como aquellos textos doctos de interés académico que el Consejo Ejecutivo acuerde.

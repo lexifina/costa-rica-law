@@ -1,1 +1,0 @@
-Artículo 3º. – El colegio será regido por un Consejo Ejecutivo integrado de la siguiente manera: El Ministro de Cultura Juventud y Deportes o su representante, quien lo presidirá, tres miembros que serán elegidos libremente por el Ministro y dos miembros que serán electos entre los integrantes del Colegio. Durarán en sus cargos dos años y podrán ser reelectos.
