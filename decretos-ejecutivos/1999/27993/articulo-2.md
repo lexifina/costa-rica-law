@@ -1,2 +1,0 @@
-Artículo 2°—Adiciónase un artículo 12 al Decreto Ejecutivo N° 20175-C del 3 de diciembre de 1990. para que se lea de la siguiente manera:
-"Artículo 12.—Todo el personal del Colegio de Costa Rica, tanto el que se encuentra cubierto por el Régimen del Servicio Civil, como el que ocupa plazas excluidas de éste, se trasladará a la Dirección General de Cultura (Programa 753-Gestión y Desarrollo Cultural), garantizándoseles el respeto de sus derechos laborales".
