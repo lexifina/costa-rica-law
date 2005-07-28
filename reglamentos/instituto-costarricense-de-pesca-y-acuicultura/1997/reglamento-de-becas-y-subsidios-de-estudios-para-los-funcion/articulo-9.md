@@ -1,1 +1,0 @@
-Articulo 9°—Para resolver cualesquiera asunto que se someta al conocimiento de la Comisión, se requerirá simple mayoría de votes presentes. En caso de empale, quien presida someterá el asunto nuevamente a votación y si persistiese el empale, podrá ejercer el voto de calidad o doble voto.

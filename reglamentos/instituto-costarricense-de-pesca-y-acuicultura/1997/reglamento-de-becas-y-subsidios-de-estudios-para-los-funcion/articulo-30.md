@@ -1,1 +1,0 @@
-Articulo 30.—Cumplidos los requisitos y los procedimientos correspondientes, una vez concedido el subsidio. el interesado deberá presentar los atestados documentales del caso, con el objeto de que el Instituto gire el cheque a la Empresa o Centre de Estudio respectivo.

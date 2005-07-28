@@ -1,1 +1,0 @@
-Articulo 33.—La solicitud del financiamiento del trabajo para graduación se remitirá a la Comisión de Capacitación Interna, esta deberá solicitar el criterio técnico del departamento correspondiente acorde con el tema y contenido de la solicitud.

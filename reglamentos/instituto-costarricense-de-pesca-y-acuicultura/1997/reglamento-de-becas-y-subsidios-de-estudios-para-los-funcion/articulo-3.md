@@ -1,1 +1,0 @@
-Articulo 3°—Se establece una Comisión de Capacitación Interna en será la única responsable de analizar y emitir las recomendaciones relacionadas con el otorgamiento de todos los beneficios contemplados en este Reglamento, para ante la Presidencia Ejecutiva del Instituto.

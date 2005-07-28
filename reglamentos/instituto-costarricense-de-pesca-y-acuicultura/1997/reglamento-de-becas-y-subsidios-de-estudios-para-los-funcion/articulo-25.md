@@ -1,1 +1,0 @@
-Articulo 25.—La Comisión deberá razonar su recomendaci ponderando expresamente para ello cada uno de los aspectos qi contempla el articulo anterior en el caso de todos los concursante;.. En Cartel se podrá señalar el porcentaje que se dará a cada una de 1 condiciones que se evaluaran. tratándose de las que exija, específicamente la beca. (inciso e) artículo 24)

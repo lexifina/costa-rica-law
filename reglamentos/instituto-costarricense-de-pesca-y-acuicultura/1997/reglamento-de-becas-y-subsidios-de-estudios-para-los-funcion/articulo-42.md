@@ -1,1 +1,0 @@
-Articulo 42.—En todos los casos de incumplimiento, por parte del funcionario. el órgano que otorgo el beneficio determinara si existe responsabilidad y las atenuantes si las hubiere. previo dictamen y procedimiento con garantía del debido proceso, por parte del Departamento Legal del Instituto.

@@ -1,1 +1,0 @@
-Articulo 41.—Le corresponderá a la Comisión en primera instancia interpretar las disposiciones de este Reglamento cuando surjan dudas en su aplicación recomendando el dictado de las normas o directrices pertinentes. para ante la Junta Directiva. a la cual le compete la decisión final.

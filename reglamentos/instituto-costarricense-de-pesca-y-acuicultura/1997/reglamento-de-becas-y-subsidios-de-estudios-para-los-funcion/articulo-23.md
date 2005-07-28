@@ -1,1 +1,0 @@
-Articulo 23.—Vencido el plazo de recepción de solicitudes la Comisión estudiara los expedientes y evaluara el o los candidatos en un termino no mayor de cinco días hábiles. posteriores al cierre del plazo.

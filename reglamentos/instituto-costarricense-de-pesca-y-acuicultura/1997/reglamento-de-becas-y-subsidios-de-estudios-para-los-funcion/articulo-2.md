@@ -1,1 +1,0 @@
-Articulo 2°—El objetivo del presente Reglamento es asegurar un tema de participación igualitaria a todos los funcionarios y dotar al tituló de los mecanismos adecuados para el logro eficaz y eficiente de sus metas, a través de la capacitación y formación de sus servidores.

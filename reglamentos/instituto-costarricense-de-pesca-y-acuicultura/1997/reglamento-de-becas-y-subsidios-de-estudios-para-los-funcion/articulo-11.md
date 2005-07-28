@@ -1,1 +1,0 @@
-Articulo 11.—La Comisión de Becas además de tramitar los casos que Ie sean sometidos, podrá nombrar las comisiones que considere necesario dentro de su seno a efecto de analizar y estudiar algunos de los casos sometidos a su resolución. cuando así lo estime conveniente.

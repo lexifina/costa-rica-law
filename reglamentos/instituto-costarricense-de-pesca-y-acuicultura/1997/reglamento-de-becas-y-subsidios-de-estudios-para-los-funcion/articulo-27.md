@@ -1,1 +1,0 @@
-Articulo 27.—La Sección de Recursos Humanos confeccionara mantendrá en existencia formularios que se refieran a los datos necesarios para concursar, sin que sea admitido ningún otro documento distinto a éste salvo en aquellos casos que por fuerza mayor no se disponga de tales formularios.
