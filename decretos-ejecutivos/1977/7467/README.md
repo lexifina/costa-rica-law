@@ -14,3 +14,4 @@ Crea Casa Cultura Puntarenas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-09-27 | la propia norma |
+| 2 | 2005-07-28 | Decreto Ejecutivo 32636 (2005-07-28) |
