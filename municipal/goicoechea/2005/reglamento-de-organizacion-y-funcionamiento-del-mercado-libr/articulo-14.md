@@ -1,0 +1,1 @@
+Artículo 14.—La resolución adoptada por el Administrador de toda solicitud de concesión, sea favorable o desfavorable, deberá ser motivada conforme a la Ley General de la Administración Pública, y notificada al interesado con indicación de los recursos ordinarios que proceden en su contra conforme a la ley.

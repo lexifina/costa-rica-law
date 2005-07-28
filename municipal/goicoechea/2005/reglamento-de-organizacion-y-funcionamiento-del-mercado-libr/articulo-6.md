@@ -1,0 +1,1 @@
+Artículo 6º—La administración del Mercado Libre de Guadalupe, estará a cargo de un Administrador, quien dependerá del Alcalde Municipal. Tanto los auxiliares como el Administrador deberán ser nombrados entre los funcionarios municipales y su remuneración se efectuará por medio de un sobresueldo propuesto por el Alcalde Municipal y aprobado por el Concejo Municipal.

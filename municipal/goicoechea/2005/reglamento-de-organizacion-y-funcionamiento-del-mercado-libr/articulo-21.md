@@ -1,0 +1,1 @@
+Artículo 21.—El Presupuesto de Ingresos y Egresos será formulado por el Administrador a más tardar el 15 de julio de cada año y el Alcalde lo deberá incorporar dentro del Proyecto de Presupuesto Ordinario.

@@ -1,0 +1,5 @@
+Artículo 4º—Para efectos del control de calidad y presentación de los productos del mercado, además de las normas sanitarias que prevé la legislación sobre la materia, deberá cumplirse con las siguientes normas:
+a) Todos los productos deberán presentarse limpios, libres de enfermedades y plagas, clasificados por calidad o tamaño y con el precio visible al público. En todo caso estarán expuestos al menos a una altura de un metro del suelo.
+b) Las hortalizas, frutas y verduras, deberán venderse frescas y sin pelar, salvo los casos expresamente autorizados.
+c) La venta de cualquier producto, independientemente de si es natural o procesado e independientemente de su naturaleza (carnes, pollo, pescado, mariscos, embutidos, productos lácteos, miel de abeja, mermelada, dulces y conservas, etc.), solo se permitirá si el concesionario cuenta con un permiso sanitario del Ministerio de Salud.
+d) El permiso sanitario, expedido a nombre del concesionario, deberá estar expuesto en cada puesto de venta, a la vista de los consumidores.
