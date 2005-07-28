@@ -1,0 +1,5 @@
+Artículo 35 bis.—De los reclamos económicos de los contratistas.
+Las gestiones que versan sobre una pretensión de carácter patrimonial deberán ser presentadas por el contratista durante su ejecución y hasta la elaboración del acta de recepción provisional de la obra, ante el órgano fiscalizador, el cual deberá realizar el análisis pertinente y remitirlo a la Dirección de Suministros. Si en el hecho que origina la solicitud de reclamo existió participación de otras dependencias de la Empresa, el análisis deberá integrar los criterios de dichas unidades.
+A solicitud de la Dirección de Suministros, la Asesoría Legal realizará el análisis jurídico sobre la procedencia del reclamo.
+Una vez que la Dirección de Suministros cuente con los criterios técnico y jurídico correspondientes, elaborará la recomendación de resolución y la remitirá al nivel de competencia que resolvió la adjudicación, quien decidirá en definitiva el reclamo interpuesto.
+(Así adicionado, mediante sesión N° 3966-327 de 28 de julio de 2005).
