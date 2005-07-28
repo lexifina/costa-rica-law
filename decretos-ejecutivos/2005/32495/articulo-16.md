@@ -1,0 +1,8 @@
+Artículo 16.—Especificaciones sobre conducción en torno a los cetáceos. Toda embarcación que opere en las aguas territoriales costarricenses y los turistas, investigadores y observadores en general, que intencionalmente estén observando cetáceos, deberán acatar las siguientes especificaciones:
+1. El acercamiento para la observación de los cetáceos en tránsito debe ser en línea diagonal únicamente por la parte lateral posterior. Las embarcaciones deberán avanzar en forma paralela al curso de desplazamiento de los cetáceos.
+2. La velocidad máxima permitida de navegación, dentro de las áreas de observación en presencia de cetáceos, es de 4 nudos (7 kilómetros por hora), en todo momento la embarcación se deberá desplazar a menor velocidad que el animal más lento del grupo observado.
+3. Abandonar el lugar a baja velocidad cuando los cetáceos manifiesten señales de alteración.
+4. Solo podrán permanecer un número máximo de dos embarcaciones en torno a un mismo grupo de cetáceos. Cualquier otra embarcación deberá mantener una distancia de 200 metros de las primeras embarcaciones.
+5. Cuando sea sólo un individuo o una madre con cría no podrá acercarse a una distancia menor de 100 metros.
+6. No se deben realizar actividades de posesión, pesca, buceo o natación, esquí acuático, “jet-ski” o motos acuáticas, “wind-surf”, remos, canoas, kayak, o interponerse entre la pareja madre-cría, con excepción de lo estipulado en el artículo 8.
+7. El tiempo de observación deberá ser igual o menor a 30 minutos respetando las distancias establecidas en el artículo 13. Cuando se trate de investigación el tiempo máximo con un mismo grupo podrá prolongarse siempre y cuando no haya señales de alteración por parte de los cetáceos.

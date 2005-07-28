@@ -1,0 +1,1 @@
+Artículo 20.—Transitorio único. Toda actividad de observación, así como los investigadores que operen antes de la promulgación del presente decreto, gozarán de un plazo de seis meses para ajustarse a las disposiciones de este Reglamento.

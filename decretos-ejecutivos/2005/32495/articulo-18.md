@@ -1,0 +1,1 @@
+Artículo 18.—El INCOPESCA y el MINAE, basados en criterios técnicos, deberán determinar el cierre temporal de las áreas de observación de cetáceos, por condiciones climáticas, saturación de embarcaciones o por criterios de orden biológico. Dichas determinaciones deberán ser notificadas a las capitanías de puerto respectivas, en cumplimiento del Decreto 28742-MOPT.
