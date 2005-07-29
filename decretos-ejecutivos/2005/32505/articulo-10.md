@@ -1,0 +1,1 @@
+Artículo 10.—El incumplimiento de cualquiera de las normas establecidas en este Reglamento, en la Ley Nº 6084 o bien de las directrices que emitan los funcionarios del Sistema Nacional de Áreas de Conservación, facultará a los funcionarios o a la autoridad pertinente para expulsar al visitante del Parque.

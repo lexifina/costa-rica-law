@@ -1,0 +1,1 @@
+Artículo 3º—Todos los visitantes deberán conservar el tiquete de ingreso, el cual podrá ser solicitado en cualquier momento durante su estadía, por los funcionarios del Ministerio del Ambiente y Energía debidamente identificados.

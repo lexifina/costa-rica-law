@@ -1,0 +1,1 @@
+Artículo 9.—El número de visitantes permitido en cada sendero podrá ser variado por la Administración de conformidad con lo que determinen los estudios de capacidad de carga o límite de cambio aceptable.

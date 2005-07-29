@@ -1,0 +1,1 @@
+Artículo 4º—En caso de emergencia, la Administración del Parque coordinará las acciones pertinentes de conformidad con el Plan de Emergencias establecido y podrá restringir el ingreso de visitantes por el tiempo que sea necesario.
