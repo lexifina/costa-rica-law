@@ -1,0 +1,1 @@
+Artículo 13.—El Tribunal de Elecciones estará integrado por un Presidente, Vicepresidente, Secretario, Prosecretario y Vocal. Sesionará ordinariamente una vez por semana y en forma extraordinaria cuando se considere necesario. La sede del Tribunal de Elecciones estará en el domicilio legal del Colegio y harán quórum tres de ellos.

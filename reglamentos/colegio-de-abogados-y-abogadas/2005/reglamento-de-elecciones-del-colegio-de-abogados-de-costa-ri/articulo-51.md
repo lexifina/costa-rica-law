@@ -1,0 +1,1 @@
+Artículo 51.—Queda autorizado el Tribunal de Elecciones para la implementación, regulación y uso del voto electrónico, así como de todos los medios electrónicos para la debida realización del proceso electoral.

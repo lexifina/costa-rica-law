@@ -1,0 +1,1 @@
+Artículo 37.—Para garantizar el secreto del voto, se acondicionará un sitio de forma tal que se impida observar la decisión del elector. Asimismo, se usará tinta indeleble para marcar el dedo índice de las personas que voten. Las votaciones se realizarán en los lugares que determine el Tribunal, quien dispondrá las medidas de control que considere necesarias y oportunas.

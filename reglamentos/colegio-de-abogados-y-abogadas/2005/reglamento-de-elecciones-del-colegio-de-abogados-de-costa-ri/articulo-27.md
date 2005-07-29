@@ -1,0 +1,2 @@
+Artículo 27.—Es prohibido que los candidatos o su grupo soliciten o reciban contribuciones para gastos de propaganda, de organizaciones políticas, entidades religiosas, empresas comerciales a criterio del tribunal.
+El tribunal podrá solicitar a los grupos participantes en el proceso electoral, a toda clase de información sobre los gastos incurridos y las fuentes de financiamiento que sirvan para sufragar esos gastos.

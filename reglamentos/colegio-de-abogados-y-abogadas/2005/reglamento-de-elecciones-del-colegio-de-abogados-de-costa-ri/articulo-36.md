@@ -1,0 +1,1 @@
+Artículo 36.—Dentro del centro de votación y durante el escrutinio, solo podrán permanecer los delegados o auxiliares del Tribunal, los miembros de mesa, los fiscales y los miembros del Tribunal de Elecciones.

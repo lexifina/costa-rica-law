@@ -1,0 +1,1 @@
+Artículo 12.—El Tribunal de Elecciones estará integrado por cinco miembros propietarios y tres suplentes nombrados por la Junta Directiva en los primeros quince días del mes de julio, por un plazo de tres años, pudiendo ser reelectos por períodos iguales. A su vez el Tribunal de Elecciones nombrará y juramentará los delegados o auxiliares electorales que estime convenientes.

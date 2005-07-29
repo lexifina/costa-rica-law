@@ -1,0 +1,1 @@
+Artículo 21.—Vencido el plazo para la inscripción de candidaturas, el Tribunal examinará las mismas y determinará si cumplen con los requisitos. Al examinar las solicitudes estará obligado a verificar la idoneidad tanto de los proponentes como de los candidatos y sus suplentes a participar en puestos de elección.

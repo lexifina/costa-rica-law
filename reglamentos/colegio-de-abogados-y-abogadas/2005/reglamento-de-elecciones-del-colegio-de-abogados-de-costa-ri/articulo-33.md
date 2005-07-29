@@ -1,0 +1,1 @@
+Artículo 33.—Cada Junta Receptora estará integrada por un Delegado o auxiliar del Tribunal que será el Presidente de la mesa y un representante de cada uno de los grupos. Para cada cuestión que se suscite en la mesa, se resolverá por mayoría simple. El Presidente de la mesa, en caso de empate, tendrá doble voto.

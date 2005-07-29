@@ -1,0 +1,1 @@
+Artículo 7º—En elecciones extraordinarias, el Tribunal de Elecciones Internas tomará el acuerdo de convocatoria y ordenará la publicación en la forma que indica el artículo anterior con una antelación de un mes al día señalado para realizar la Asamblea.

@@ -1,0 +1,1 @@
+Artículo 16.—Aprobado el padrón por el Tribunal de Elecciones, se confeccionarán copias para la Junta Directiva, para el Tribunal y para los abogados que hubieren inscrito candidaturas. Una vez aprobada la inscripción de candidaturas se pondrá a disposición de ellas el padrón electoral.

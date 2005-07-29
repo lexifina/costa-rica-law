@@ -1,0 +1,1 @@
+Artículo 19.—En elecciones ordinarias, el plazo para inscribir candidaturas concluirá a las dieciséis horas del último día hábil del mes de setiembre del año correspondiente. En elecciones extraordinarias, finalizará treinta días hábiles antes de la fecha de la Asamblea respectiva.

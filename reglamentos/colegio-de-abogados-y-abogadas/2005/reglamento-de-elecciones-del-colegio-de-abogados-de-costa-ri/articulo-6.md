@@ -1,0 +1,1 @@
+Artículo 6º—Tratándose de elecciones ordinarias: el acuerdo para la convocatoria deberá tomarlo el Tribunal de Elecciones Internas en la primera quincena de agosto del año correspondiente y su publicación se hará en un diario de circulación nacional y en el periódico oficial en los siguientes diez días naturales.

@@ -1,0 +1,2 @@
+Artículo 22.—El Tribunal de Elecciones deberá emitir pronunciamiento sobre las candidaturas propuestas, dentro de los cinco días siguientes al vencimiento del plazo.
+En el caso de omisiones o defectos subsanables, el Tribunal de Elecciones deberá prevenir a los interesados que realicen las correcciones del caso dentro del plazo improrrogable de cinco días. En caso de no cumplir la prevención se tendrá por no inscrita la candidatura sin necesidad de resolución alguna.

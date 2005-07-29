@@ -1,0 +1,2 @@
+Artículo 46.—Al cerrarse la votación, el escrutinio lo realizará el delegado o auxiliar electoral y los miembros de mesa, pudiendo intervenir en el mismo el Fiscal de cada grupo. El resultado deberá ser comunicado al Tribunal de Elecciones por cualquier medio autorizado por éste, el mismo día de la elección y en forma oportuna.
+Dentro de los cinco días posteriores a la finalización de la votación el Presidente de la mesa deberá entregar al Tribunal de Elecciones en forma personal o enviar por correo certificado, toda la documentación utilizada en el proceso.

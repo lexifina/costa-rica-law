@@ -1,0 +1,1 @@
+Artículo 31.—Se computarán como votos válidos los emitidos en las papeletas que oficialmente hayan sido aprobadas por el Tribunal de Elecciones, que al menos contengan la firma de dos de los miembros de la Junta receptora, o en su defecto que contengan la firma del delegado o auxiliar del Tribunal de Elecciones.
