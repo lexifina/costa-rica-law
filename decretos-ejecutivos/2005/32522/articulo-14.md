@@ -1,0 +1,1 @@
+Artículo 14.—Incorporación al Estatuto de Policía. Por la naturaleza de las funciones que desempeñan los servidores de la Dirección de Inteligencia y Seguridad Nacional, el personal tendrá labores polifuncionales o mixtas y será susceptible de incorporarse al Régimen Estatutario que contempla la Ley General de Policía.

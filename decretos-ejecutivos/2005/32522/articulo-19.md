@@ -1,0 +1,2 @@
+Artículo 19.—Autorizaciones. De previo a realizar cualquier operativo especial no rutinario, se dará cuenta del mismo a la Dirección General quien a su vez solicitará la autorización ante el Ministro, tratando de respetar la cadena de mando y el organigrama que establezca la Dirección General.
+Una vez autorizada la intervención, ésta se circunscribirá al marco mismo y naturaleza de los asuntos que le fueron encomendados. La ampliación deliberada del ámbito de dichas funciones eventualmente constituirá falta grave de parte del funcionario que tome tal decisión.
