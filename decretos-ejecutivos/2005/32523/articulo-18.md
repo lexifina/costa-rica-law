@@ -1,0 +1,4 @@
+CAPITULO V
+De las restricciones
+Artículo 18.—Por lo específico de sus funciones, para la realización de un operativo, se deberá contar con la previa y expresa autorización del Presidente de la República, la cual procurará obtener el Director General de la Unidad y en ausencia de éste, el encargado del Área de Operaciones.
+Esta autorización será girada por telegrama, radiograma, facsímil, correo electrónico u cualquier otro medio idóneo escrito y de inmediato se hará constar en un libro especial llevado al efecto, en estricto orden cronológico, suscrito únicamente por el Director General de la dependencia o el Encargado de Operaciones en su ausencia, documento que custodiará bajo su estricta responsabilidad en su oficina. Todo sin perjuicio de la necesaria movilización del personal para la pronta y efectiva atención de la situación de peligro, previo a la orden de ejecutar el operativo sin la cual la Unidad no podrá actuar.

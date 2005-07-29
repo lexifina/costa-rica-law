@@ -1,0 +1,1 @@
+Artículo 19.—Una vez autorizada la intervención de esta unidad, ésta se circunscribirá al marco mismo y naturaleza de los asuntos que le fueron encomendados. La ampliación deliberada del ámbito de dichas funciones eventualmente constituirá falta grave de parte del funcionario que tome tal decisión.
