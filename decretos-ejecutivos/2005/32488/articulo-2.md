@@ -1,0 +1,1 @@
+Artículo 2º—Los Comités Sectoriales Regionales Agropecuarios estarán ubicados en las siguientes regiones: Brunca, Central Oriental, Central Occidental, Central Sur, Chorotega, Huetar Atlántica, Huetar Norte y Pacífico Central.

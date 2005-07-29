@@ -1,0 +1,14 @@
+Nº 32488
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+De conformidad con las facultades que les confieren los artículos 140, incisos 3), 8), 18) y 20) y 146 de la Constitución Política, los artículos 25, 27.1, 28.2b de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública, y la Ley Nº 7064 del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería.
+Considerando:
+1º—Que la Ley de Fomento a la Producción Agropecuaria Nº 7064 del 29 de abril de 1987, establece los mecanismos de planificación y coordinación del sector agropecuario y que la función de la Secretaría Ejecutiva de Planificación Sectorial Agropecuaria (SEPSA), en el ámbito regional, obedece a la necesidad de apoyar la labor que desempeñan los Comités Sectoriales Regionales Agropecuarios de la Ley, los cuales son órganos de planificación, coordinación y consulta, integrados por los directores regionales representantes de las instituciones del sector y otras vinculadas con éste.
+2º—Que una de las principales funciones de los Comités Sectoriales Regionales Agropecuarios, debe ser apoyar la labor de los Comités Sectoriales Locales, como las instancias operativas del sistema de planificación sectorial, constituidas por funcionarios del sector agropecuario que laboran en el ámbito local, de acuerdo con el área geográfica que el Comité Sectorial Regional Agropecuario defina.
+3º—Que es importante articular las funciones de los Comités anteriormente indicados, pues a nivel de los mismos, se le da seguimiento y se evalúa la ejecución de las políticas, estrategias, programas y proyectos nacionales y regionales y se coordina la elaboración y el seguimiento de los planes regionales de desarrollo agropecuario.
+4º—Que de conformidad con lo dispuesto en la Ley Nº 7064, el Ministro de Agricultura y Ganadería es el Rector del Sector Agropecuario.
+Por tanto;
+DECRETAN:
+De los Comités Sectoriales Regionales Agropecuarios (CSRA)
+De su constitución y funciones
+Artículo 1º—Los Comité Sectoriales Regionales Agropecuarios (CSRA), estarán integrados por los directores regionales o representantes institucionales del Ministerio de Agricultura y Ganadería (MAG), Consejo Nacional de Producción (CNP), Instituto de Desarrollo Agrario (IDA), Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA), Instituto Costarricense de Pesca y Acuicultura (INCOPESCA), Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA), Programa Integral de Mercadeo Agropecuario (PIMA), Oficina Nacional de Semillas (ONS). Además, se incorporan representantes regionales de otras instituciones vinculadas con el sector agropecuario como el INA, MINAE, IMAS y en algunas regiones representantes de otras instituciones públicas responsables, de programas y proyectos agropecuarios específicos.

@@ -1,0 +1,3 @@
+De los Comités Sectoriales Locales (COSEL)
+De su constitución y funciones
+Artículo 6º—Los Comités Sectoriales Locales, son la instancia de mayor operatividad del sistema de planificación sectorial, relacionada con el desarrollo del sector agropecuario y del medio rural, donde se brindan los servicios que prestan las instituciones públicas y se mantiene una relación más directa con los productores (as) y sus organizaciones, constituido por los funcionarios del sector agropecuario que laboran en el ámbito local, de acuerdo con el área geográ.ca que el Comité Sectorial Regional Agropecuario defina.

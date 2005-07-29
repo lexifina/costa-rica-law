@@ -1,0 +1,1 @@
+Artículo 10.—Los miembros de los Comités Sectoriales Regionales Agropecuarios y de los Comités Sectoriales Locales, no percibirán dietas ni emolumento alguno, por la participación o integración de tales órganos colegiados, ni por las funciones que en tal calidad desempeñen.

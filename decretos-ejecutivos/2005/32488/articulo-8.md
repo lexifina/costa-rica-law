@@ -1,0 +1,1 @@
+Artículo 8º—Los Comités Sectoriales Locales (COSEL), se reunirán ordinariamente dos veces al mes y nombrarán de entre sus miembros un Coordinador y lo harán del conocimiento del Comité Sectorial Regional Agropecuario.
