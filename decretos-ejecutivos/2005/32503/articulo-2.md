@@ -1,0 +1,1 @@
+Artículo 2º—Rige a partir de la entrada en vigencia de la Resolución de clasificación y asignación de los puestos del Instituto Costarricense sobre Drogas, emitida por parte de la Dirección General de Servicio Civil.
