@@ -1,0 +1,1 @@
+Artículo 5º—Cuando los deudores posean bienes suficientes y jurídicamente se determine que puede lograrse la recuperación del monto adeudado; la Dirección de Asuntos Jurídicos procederá a realizar las gestiones cobratorias por la vía judicial.

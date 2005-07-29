@@ -1,0 +1,1 @@
+Artículo 8º—Se faculta a la Dirección Administrativa Financiera para modificar en coordinación con la Dirección de Asuntos Jurídicos el monto establecido en el Artículo Segundo y Tercero, de acuerdo a la estimación del costo de llevar un proceso judicial, e informar del mismo a la Junta Directiva.
