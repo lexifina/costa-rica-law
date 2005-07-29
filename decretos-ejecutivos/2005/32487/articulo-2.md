@@ -1,0 +1,1 @@
+Artículo 2º—La Oficina Nacional de Semillas fijará las prioridades del caso, observando los criterios de protección de la salud y la vida de personas y animales, la preservación de los vegetales y del medio ambiente y la prevención de prácticas que puedan inducir a error.
