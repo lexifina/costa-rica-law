@@ -1,0 +1,1 @@
+Artículo 6º—Se insta a las instituciones y empresas del sector público para que efectúen una revisión del estado de las vacaciones no disfrutadas y se establezcan los mecanismos necesarios para que las mismas sean disfrutadas.

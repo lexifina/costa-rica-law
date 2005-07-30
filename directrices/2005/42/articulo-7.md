@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión Plan de Contingencia Petrolera dará seguimiento mensual al programa establecido en esta directriz con el objeto de introducir mejoras y en el término de 5 meses rendirá un informe con los resultados y recomendaciones.
