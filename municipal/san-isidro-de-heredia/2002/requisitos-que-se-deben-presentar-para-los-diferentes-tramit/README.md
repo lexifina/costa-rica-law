@@ -14,3 +14,4 @@ Requisitos que se deben presentar para los diferentes trámites ante la Municipa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-24 | la propia norma |
+| 2 | 2005-08-01 | Reglamento municipal 45 (2005-08-01) |
