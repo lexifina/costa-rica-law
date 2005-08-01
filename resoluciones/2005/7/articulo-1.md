@@ -1,0 +1,16 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+N° DGT-07.—San José, a las ocho horas del cuatro de julio del dos mil cinco.
+Considerando:
+1°—Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria para dictar normas para la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
+2°—Que la Ley N° 7972 de 22 de diciembre de 1999, publicada en el Alcance N° 205-A a La Gaceta N° 250 de 24 de diciembre de 1999, denominada "Creación de cargas tributarias sobre licores, cervezas y cigarrillos para financiar un plan integral de protección y amparo de la población adulta mayor, niñas y niños en riesgo social, personas discapacitadas abandonadas, rehabilitación de alcohólicos y farmacodependientes, apoyo a las labores de la Cruz Roja y derogación de impuestos menores sobre las actividades agrícolas y su consecuente sustitución", crea un impuesto específico sobre las bebidas alcohólicas de producción nacional o importadas.
+3°—Que la Ley N° 8399 de 19 de diciembre del 2003, publicada en La Gaceta N° 21 de 30 de enero del 2004, reformó el artículo 1° de la citada Ley Nº 7972, estableciendo una nueva base imponible sobre los mililitros de alcohol absoluto contenidos en las bebidas alcohólicas de producción nacional o importadas, según la concentración de alcohol por volumen.
+4°—Que el Transitorio único de la Ley Nº 8399 dispone, que el impuesto deberá actualizarse en adelante de conformidad con el mecanismo previsto para tal efecto por el artículo 6º de la Ley N° 7972, de 22 de diciembre de 1999 y sus reformas, el cual establece, que la Administración Tributaria actualizará de oficio trimestralmente, el monto del impuesto conforme con la variación del índice de precios al consumidor que determine el Instituto Nacional de Estadística y Censos y que en ningún caso cada ajuste trimestral podrá ser superior a un tres por ciento (3%). Asimismo, el artículo 6° del decreto N° 29463-H, Reglamento de la Ley Nº 7972, reformado por el Decreto N° 31605-H establece que, la actualización deberá efectuarse, a partir del primer día de cada uno de los meses de febrero, mayo, agosto y noviembre de cada año, para lo cual se deberán considerar los trimestres inmediatos anteriores a finales de cada uno de los meses de marzo, junio, setiembre y diciembre de cada año.
+5°—Que mediante resolución N° DGT 04-05 de 4 de abril del 2005, publicada en La Gaceta N° 73 de 18 de abril del 2005, se actualizó el impuesto específico por cada mililitro de alcohol absoluto a las sumas de ¢1.70, ¢2.03 y ¢2.34, para los porcentajes de alcohol por volumen de hasta 15%; más de 15% y hasta 30%; y más de 30%, respectivamente, a partir del 1° de mayo del 2005.
+6°—Que los niveles del índice de precios al consumidor, al final de los meses de marzo y junio del 2005, corresponden a 319.51 y 328.49 respectivamente, generando una variación equivalente a un 2.811%. Por tanto:
+RESUELVE:
+Artículo 1º—Actualícense los montos de los impuestos específicos por cada mililitro de alcohol absoluto, mediante un ajuste del 2.811%, según se detalla a continuación:
+Porcentaje de alcohol Impuesto (colones por
+por volumen mililitro de alcohol absoluto)
+Hasta 15% 1.75
+Más de 15% y hasta 30% 2.09
+Más de 30% 2.41
