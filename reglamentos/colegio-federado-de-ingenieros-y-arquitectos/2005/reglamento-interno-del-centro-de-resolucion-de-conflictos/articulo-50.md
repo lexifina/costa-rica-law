@@ -1,0 +1,1 @@
+Artículo 50.—Normativa aplicable. Se integran de pleno derecho a este Reglamento y le será además aplicable la normativa de la Ley Nº 7727, los artículos 70 y 71 del Reglamento Interior General del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica y la normativa concordante del Código Procesal Civil.

@@ -1,0 +1,2 @@
+Artículo 17.—Audiencias conjuntas. El conciliador realizará audiencias con ambas partes, y procurará que las audiencias no sobrepasen dos horas y media en un mismo día. Podrá firmarse al final un acuerdo parcial o total de conciliación. El conciliador dejará constancia de la asistencia a cada audiencia conjunta.
+El conciliador decidirá sobre la conveniencia de la realización de audiencias conjuntas o separadas.

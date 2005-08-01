@@ -1,0 +1,2 @@
+Artículo 38.—Lugar del arbitraje. Las actuaciones arbitrales se efectuarán en el Centro de Resolución de Conflictos, salvo que, por la naturaleza de las mismas, deban efectuarse en otro lugar.
+El laudo arbitral se entenderá siempre dictado en el lugar del arbitraje.

@@ -1,0 +1,1 @@
+Artículo 14.—Cantidad de conciliadores. Habrá uno o más conciliadores por caso, quienes preferiblemente deberán tener conocimientos afines a la naturaleza del caso. Cuando haya más de un conciliador, deberán, por regla general, actuar de común acuerdo; pero sólo uno será el conciliador titular.

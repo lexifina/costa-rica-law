@@ -1,0 +1,1 @@
+Artículo 30.—Admisibilidad de pruebas en otros procedimientos. Las partes no invocarán ni propondrán como pruebas en un procedimiento arbitral o judicial, se relacionen éstas o no con la controversia objeto del procedimiento conciliatorio, los hechos reconocidos, opiniones expresadas o propuestas formuladas durante el desarrollo de la conciliación.

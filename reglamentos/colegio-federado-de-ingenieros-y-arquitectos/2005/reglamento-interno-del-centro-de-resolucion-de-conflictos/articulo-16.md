@@ -1,0 +1,2 @@
+Artículo 16.—Audiencia preliminar separada. El conciliador solicitará una reunión preliminar separada con cada una de las partes para escuchar a fondo sus exposiciones sobre el asunto y para aclarar cualquier particular al respecto.
+El conciliador podrá, cuando lo considere oportuno, solicitar a las partes documentación escrita, que deberá presentarse antes o durante la audiencia conjunta.
