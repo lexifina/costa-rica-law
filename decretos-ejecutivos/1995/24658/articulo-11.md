@@ -11,11 +11,23 @@ h. Tramitar los desembolsos en los préstamos directos, en las transferencias no
 i. Estudiar la ampliación de los plazos de desembolso en préstamos directos, transferencias no reembolsables, o en líneas de crédito y emitir criterio al respecto;
 j. Evaluar el avance de los estudios por medio de los informes de los consultores o, de cualquier otro procedimiento que se considere necesario;
 k. Colaborar con los beneficiarios en la evaluación de los estudios;
-l. Preparar informes periódicos y estados financieros sobre las actividades del FONDO;
+l. Preparar informes periódicos sobre las actividades del FONDO
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32653 del 1 de agosto del 2005)
 m. Mantener estrecha coordinación con el AGENTE FINANCIERO;
 n. Preparar el Presupuesto de operación anual del FONDO, así como las modificaciones que sean necesarias;
 o. Preparar y tramitar las solicitudes de desembolso de los recursos asignados al FONDO, e informar al AGENTE FINANCIERO en cada caso;
 p. Establecer y mantener actualizado un Registro de Consultores para profesionales, firmas y entidades públicas y privadas, nacionales, extranjeras o mixtas, que actúan en el campo de la consultoría técnica y económica en cualquiera de sus ramas o especialidades;
-q. Promover las acciones correspondientes a los cobros de las amortizaciones e intereses de los préstamos y líneas de crédito otorgados, con base en la notificación del AGENTE FINANCIERO, según lo dispone el Artículo 13, Literal f del presente Reglamento; y
-r. Analizar los informes y estados financieros del FONDO elaborados por el AGENTE FINANCIERO;
-s. Cumplir cualquier tarea que le encomiende el MINISTRO o el COMITÉ DIRECTIVO, en relación con la operación y administración del FONDO.
+q.Establecer un sistema contable para registrar e identificar los aportes del Gobierno de Costa Rica, los préstamos nacionales e internacionales y cualquier otro aporte que el FONDO obtenga;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32653 del 1 de agosto del 2005)
+r. Llevar los registros contables de las operaciones de financiamiento y de líneas de crédito que el FONDO conceda, anotando en cada caso el detalle de origen y uso de los recursos, así como las amortizaciones, comisiones e intereses recibidos
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32653 del 1 de agosto del 2005)
+s.Elaborar los estados e informes financieros mensuales, trimestrales, semestrales o anuales del FONDO;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32653 del 1 de agosto del 2005)
+t. Hacer los cobros de rutina de las amortizaciones, intereses y comisiones de las operaciones de financiamiento y de líneas de crédito otorgadas por el FONDO;
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32653 del 1 de agosto del 2005)
+u. Promover las acciones correspondientes a los cobros de las amortizaciones e intereses de los préstamos y líneas de crédito otorgado, cuando se encuentren en estado de mora;
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32653 del 1 de agosto del 2005)
+v. Coordinar con entidades financieras y bursátiles las operaciones de inversiones que de manera transitoria se practiquen con los recursos del FONDO que temporalmente se mantengan ociosos, a partir de las directrices y especificaciones que disponga el Ministro; y
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32653 del 1 de agosto del 2005)
+w. Cumplir cualquier tarea que le encomiende el Ministro o el Comité Directivo, en relación con la operación y administración del FONDO.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32653 del 1 de agosto del 2005)
