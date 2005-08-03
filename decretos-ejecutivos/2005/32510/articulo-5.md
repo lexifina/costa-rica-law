@@ -1,0 +1,1 @@
+Artículo 5º—Deróguese el Decreto Ejecutivo Nº 21537-C, del 22 de agosto de 1992, publicado en el Diario Oficial La Gaceta Nº 180, del 18 de setiembre de 1992 y el Decreto Ejecutivo Nº 24460-C, publicado en el Diario Oficial La Gaceta Nº 143, del 28 de julio de 1995 y cualquier otro que se les contraponga.
