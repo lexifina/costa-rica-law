@@ -1,0 +1,6 @@
+Artículo 7º—Número y placas de matrícula. Se dispone lo siguiente:
+7.1- Todo vehículo que entre a este régimen de “Vehículos de Interés Histórico” deberá tener asignadas placas con un número de matrícula especial.
+El número de matrícula especial será el que le corresponda como “Vehículo de Interés Histórico”, no correspondiendo este número de matrícula con el número de matrícula que le correspondió originalmente.
+7.2- Para asignarles las placas con el número de matrícula especial a los vehículos que ya circulen legalmente por las vías públicas terrestres de la Nación, y que resulten acogidos dentro de este régimen, deberá realizarse, previamente, el depósito de sus placas originales, y proceder con el trámite que le sea indicado en el Registro Público de la Propiedad de Bienes Muebles.
+7.3- El vehículo de motor procedente del extranjero que resulte catalogado como de interés histórico, se le asignará también la placa de matrícula correspondiente a “Vehículo de Interés Histórico”, y no podrá exhibir la placa extranjera original.
+7.4- Las características de la placa de matrícula especial se atendrán a lo que establece la legislación vigente para las placas de matrícula, pero en ellas figurará, antecediendo al número de matrícula, la inscripción VH de identificación de Vehículo de Interés Histórico.

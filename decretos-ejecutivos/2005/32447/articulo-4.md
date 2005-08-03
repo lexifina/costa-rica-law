@@ -1,0 +1,3 @@
+Artículo 4º—Resolución final del procedimiento. El Ministro de Obras Públicas y Transportes dictará la resolución final del procedimiento incluyendo en ella, si fuera favorable a la catalogación del vehículo como “Vehículo de interés histórico”, la declaración como tal, así como
+las limitaciones que se impongan a la circulación del vehículo, y las condiciones técnicas específicas que no se exigirán al mismo en la revisión técnica vehicular.
+La empresa encargada de la revisión técnica de vehículos deberá transcribir en la Tarjeta de Revisión Técnica Vehicular estas limitaciones a la circulación del vehículo y las condiciones técnicas específicas que no se exigirán al mismo en la revisión técnica.
