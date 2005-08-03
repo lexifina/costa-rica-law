@@ -1,1 +1,0 @@
-Artículo 53—Todo cambio que modifique la naturaleza de un mausoleo o de un nicho, requiere de autorización escrita de la Junta qué administra el cementerio, quien para estos efectos ordenará una inspección ocular por uno de sus miembros. Si la modificación perjudicare las construcciones limítrofes, la autorización se denegará pudiendo el interesado únicamente repellar o adornar.

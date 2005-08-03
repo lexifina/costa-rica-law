@@ -1,1 +1,0 @@
-Artículo 30.—Las exhumaciones ordinarias no requieren de orden o permiso especial. El guardián del cementerio las hará bajo su propia responsabilidad, cuando sea necesario, después de transcurrido el período de cinco años de la inhumación.

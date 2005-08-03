@@ -1,1 +1,0 @@
-Artículo 22._ Podrán permitirse nichos dobles o triples para núcleos familiares. Su distribución deberá quedar contemplada en el plano regulador. Este plano deberá contemplar además una área de nichos no menor del 5% del área total para indigentes y contingencias.

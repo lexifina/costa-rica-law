@@ -1,1 +1,0 @@
-Artículo 52.—Cuando por muerte, negligencia y otra causa, una sepultura o monumento, amenace ruina, podrá la Junta que administra el Cementerio, ordenar su demolición. Los materiales producto de ésta, serán propiedad de la Junta que sólo podrá emplearlos en trabajos del mismo cementerio.

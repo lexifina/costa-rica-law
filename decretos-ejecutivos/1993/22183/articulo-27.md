@@ -1,1 +1,0 @@
-Artículo 27._ La ocupación de las fosas públicas se hará según el plano regulador, empezando por un extremo de cada cuadro y sucesivamente fila por fila, de manera que siempre quede un espacio libre entre fosas ocupadas. Agotada la ocupación de puestos impares de un cuadro, se utilizará en igual forma los puestos que habían quedado libres.

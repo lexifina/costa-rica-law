@@ -1,1 +1,0 @@
-Articulo 16.—No podrán cruzar corrientes superficiales de agua permanentes o intermitentes, por el área dispuesta para cementerios. La escorrentía de aguas arriba del cementerio serán debidamente canalizadas y desviadas fuera de éste.

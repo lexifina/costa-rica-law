@@ -1,1 +1,0 @@
-Artículo 67 .—Podrán disponerse o cremarse dentro de los cementerios, según el caso, todas las pablaciones procedentes de los quirófanos del Sistema Hospitalario Nacional o de Clínicas Privadas de atención médico quirúrgica que cuenten con respectivo permiso sanitario de funcionamiento y autorización previa de administración del Cementerio.

@@ -1,1 +1,0 @@
-Artículo 32.—Cuando -se trate de exhumaciones extraordinarias ordenadas por las autoridades judiciales, el cadáver será trasladado a la sala de autopsias indicada por dichas autoridades, observando todas las normas que esta autoridad sugiera para el mejor resultado de sus investigaciones.

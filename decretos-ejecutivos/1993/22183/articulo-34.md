@@ -1,1 +1,0 @@
-Artículo 34.—Las exhumaciones se harán siempre en presencia del guardián del cementerio y de dos testigos, copia del acta levantada será enviada a la Junta Administradora del Cementerio y el original lo conservará el guardián en su poder.

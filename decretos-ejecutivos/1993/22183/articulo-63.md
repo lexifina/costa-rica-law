@@ -1,1 +1,0 @@
-Artículo 63.—El Tesorero indicará en las órdenes que expida para inhumaciones de nichos, cual ha de ser ocupado. Si el guardián encontrare motivo que le impida cumplirla, dará aviso inmediato al Tesorero, explicando las razones.

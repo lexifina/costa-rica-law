@@ -1,4 +1,0 @@
-Artículo 18._ Las sepulturas se construirán de acuerdo al plano regulador y a los siguientes requisitos.
-a) Las sepulturas estarán alineadas entre sí, con un mínimo de separación a lo largo y ancho entre fosas y bóvedas de 0,50,m. Cada 2 filas, estarán separadas por un pasillo de zona verde de 1.50 m. En caso de utilización de equipo mecánico para excavación, deberá preverse el ancho de los pasillos, dejando pasillos adecuados para su circulación y operación, de acuerdo al equipo que se emplee.
-b) En zonas urbanas, la separación mínima entre las tumbas y los linderos de las propiedades colindantes será de tres metros mínimo. Si el lindero contiguo tiene una profundidad de más de un metro respecto al nivel del cementerio, el retiro mínimo será de cinco metros.
-c) Toda tumba guardará una separación mínima de un metro del borde del talud o del pie de éste. La separación máxima entre pasillos de 1.50 m. será de 100 metros.

@@ -1,1 +1,0 @@
-Artículo 40.— Las parcelas arrendadas para sepulturas privadas podrán ser concedidas por un tiempo determinado o inferior a cinco años o a perpetuidad, según lo acuerde la Junta que administre el cementerio.

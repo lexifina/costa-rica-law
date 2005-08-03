@@ -1,1 +1,0 @@
-Artículo 8º-. La vigilancia, conservación y administración del cementerio bienes y fondos, estará a cargo de la Junta de Protección Social del lugar, quien velará por el estricto cumplimiento del presente Reglamento.

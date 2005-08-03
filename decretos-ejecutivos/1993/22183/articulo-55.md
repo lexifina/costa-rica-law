@@ -1,1 +1,0 @@
-Artículo 55.—Extinguido un cementerio, conforme a lo que señala el artículo anterior, su terreno solo podrá destinarse para siembra dé árboles, sin movimientos de tierra y en plazo no menor de cinco años.
