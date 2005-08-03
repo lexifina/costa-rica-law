@@ -1,0 +1,36 @@
+SECCIÓN IV
+Reglamento de la Publicidad Exterior
+Artículo 1º—Propósito. Regular y controlar todo lo referente a la publicidad exterior, ubicada en propiedad privada pero con proyección al espacio público en el Cantón de San José, con el fin de lograr un mejor equilibrio entre el paisaje urbano y los mensajes publicitarios.
+En lo referente a publicidad exterior sobre espacio público aplica la normativa publicada en La Gaceta Nº 7 del lunes 12 de enero del 2004 "Rótulos ubicados sobre el Espacio Público" y "Aclaración y ampliación
+referentes a la reglamentación de rótulos en el Cantón de San José", publicado en La Gaceta Nº 142 del miércoles 21 de julio del 2004, con sus respectivos anexos gráficos.
+Artículo 2º—Licencias. Para colocar, sustituir o remodelar: anuncios, rótulos, letreros, avisos, vallas y demás tipologías, en adelante rótulos, es obligatorio obtener licencia de la MSJ. La estructura constructiva que soporte el rótulo deberá obtener, además, el permiso de construcción respectivo, cumpliendo con el trámite normal del permiso de construcción.
+2.1. Vigencia. La licencia para la colocación de cualquier tipo de rótulo, exceptuando los rótulos temporales, tendrá vigencia por un período de cinco años, a partir del cual deberá solicitarse su renovación, cumpliendo con todos los requisitos existentes a esa fecha.
+2.2. Rótulos temporales. La licencia para rótulos temporales se otorgará por un plazo mínimo de un trimestre y un máximo de seis meses. Se incluyen en esta categoría los rótulos de venta o alquiler, rótulos de obras en construcción, entre otros.
+2.3. Rótulos sin licencia. No será necesario tramitar licencia municipal para rótulos de hasta medio metro cuadrado inclusive, en razón de un rótulo por actividad patentada. Tampoco necesitarán licencia los rótulos de seguridad vial, de nomenclatura urbana, de información turística, de placas conmemorativas y de homenaje, siempre que éstos sean oficiales y no contengan un mensaje publicitario particular.
+2.4. Requisitos. Son los siguientes:
+a) Solicitud respectiva (formulario debidamente lleno), firmada por el propietario.
+b) Certificación de la propiedad emitida por el Registro Público o Notario Público.
+c) Dos copias del croquis del rótulo conteniendo su leyenda, materiales, cotas, dimensiones y sistema de iluminación, si lo incluyere.
+d) Una copia del plano catastrado de la propiedad, sin reducir y sin pegas, visado por la MSJ.
+e) Visto Bueno del Ministerio de Obras Públicas y Transporte (MOPT), en los casos de los predios con frente a las calles de la Red Vial Nacional.
+f) Visto Bueno de Patrimonio en Inmuebles declarados por el MCJD.
+Artículo 3º—Prohibiciones. Se prohibe la instalación de cualquier tipo de rótulos, en las siguientes zonas, lugares y sitios:
+a) Conjuntos, edificaciones, monumentos, plazas y demás elementos, catalogados como de interés y valor histórico patrimonial, de uso no comercial, declarados oficialmente por el MCJD.
+b) Sitios, catalogados como patrimonio natural, tales como: cerros, rocas, parques, árboles, ríos, así como en las zonas de protección de ríos.
+c) Edificios públicos: escuelas, universidades, colegios, templos, teatros, museos, gimnasios e instalaciones deportivas, incluyendo el total de su predio y perímetro.
+d) Lugares donde obstaculicen señales de tránsito o rótulos de nomenclatura, a partir de los cuales deberán distanciarse 2 metros mínimo o aquella distancia mayor necesaria, previendo que no obstruya la visibilidad de los mismos.
+e) Sobre elementos arquitectónicos como: balcones, columnas, relieves, ventanas, puertas y elementos ornamentales de la edificación, salvo que presenten diseño integral de la fachada (croquis), firmado por un arquitecto.
+f) Ubicados sobre la línea de la propiedad a una altura menor a los 2,40 m desde el nivel de acera; salvo los rótulos utilizados en vitrinas, los de información de salidas de emergencia y seguridad o para informar del acceso para personas con discapacidad.
+g) Sobre los techos de los inmuebles, salvo que presente diseño integral de la publicidad (croquis) acorde con la fachada y solamente con el mensaje relacionado con la actividad que se desarrolla en el inmueble.
+h) En fachadas a colindancia o sea tapias o paredes del inmueble proyectadas al predio colindante.
+Artículo 4º—Áreas máximas de rótulos. Para las Zonas de Intervención que el PDU distingue, se definen regulaciones específicas en lo referente a áreas máximas de rótulos y publicidad exterior como sigue:
+4.1. En la Zona de Interés Cultural y Turístico (ZICT). Cada metro lineal de frente de la propiedad da derecho a 0,2 m² de publicidad, para el predio, exceptuando sitios patrimoniales. Este derecho no podrá usarse para la instalación de ningún tipo de vallas publicitarias.
+En las vías nacionales dentro del ámbito de esta zona no aplica el Decreto Nº 29253-MOPT, publicado en La Gaceta N° 25 del 5 febrero del 2001, sobre Reglamento de Derechos de Vía y Publicidad Exterior.
+4.2. En la Zona de Renovación Urbana (ZRU), excluyendo la zona anterior. Cada metro lineal de frente de la propiedad da derecho a 0,3 m² de publicidad, para el predio. Este derecho no podrá usarse para la instalación de ningún tipo de vallas publicitarias. En las vías nacionales dentro del ámbito de esta zona no se aplica el Decreto 29253-MOPT, publicado en La Gaceta N° 25 del 5 febrero del 2001, sobre Reglamento de Derechos de Vía y Publicidad Exterior.
+4.3. Zona de Intervención General (ZIG1), resto del cantón excluyendo las dos zonas anteriores.
+a) En lotes con frentes a vías locales, cada metro lineal de frente de la propiedad da derecho a 0,5 m² de publicidad.
+b) En lotes con frentes a vías nacionales, de acuerdo al Decreto 29253-MOPT, publicado en La Gaceta N° 25 del 5 febrero del 2001, sobre Reglamento de Derechos de Vía y Publicidad Exterior.
+c) Vallas publicitarias: Las vallas publicitarias se permiten únicamente en las vías urbanas nacionales de acuerdo al Mapa de Vialidad Propuesta para el Cantón de San José, contenido en estos Reglamentos, y requieren para el trámite de la Licencia Municipal el Visto Bueno del MOPT, en cumplimiento del Decreto Nº 29253-MOPT "Reglamento de los derechos de vía y publicidad exterior", publicado en La Gaceta N° 25 del 5 de febrero del 2001. Con excepción de lo indicado en los incisos 4.1 y 4.2 de este artículo.
+Artículo 5º—Sanciones. En casos de rótulos sin licencias o modificados en contra de la licencia original, la Municipalidad ordenará su retiro o demolerá a costa del propietario. En caso de rótulos antirreglamentarios ligados a una patente comercial, la Municipalidad sancionará a los infractores con la cancelación de dicha patente y cerrará el establecimiento comercial hasta que se ponga a derecho, aplicando el artículo 14 de la Ley N° 6890, en caso de incumplimiento de este Reglamento, la Municipalidad sancionará a los infractores con la cancelación de la patente comercial y con el cierre del establecimiento comercial hasta que se ponga a derecho.
+Cuando el propietario del predio decide eliminar el rótulo, es su deber reportar este acto ante la MSJ, para que ésta proceda al trámite de cancelación de la licencia y su respectivo descargo del sistema de cobro.
+Transitorio Único. Las licencias aprobadas antes de la entrada en vigencia de este reglamento caducarán cinco años después de su emisión.
