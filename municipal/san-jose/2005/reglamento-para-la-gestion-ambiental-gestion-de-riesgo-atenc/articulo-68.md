@@ -1,0 +1,1 @@
+Artículo 68.—En las áreas de parques urbanos, áreas de protección de ríos y en general, en todas aquellas áreas o lugares mencionados en este Reglamento, se prohíbe la instalación de rótulos y vallas publicitarias comerciales.

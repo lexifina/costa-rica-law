@@ -1,0 +1,2 @@
+Artículo 19.—La Sección de Capacitación de la Dirección de Recursos Humanos, como dependencia encargada de la capacitación de los funcionarios municipales, tendrá a cargo el desarrollo e implementación de proyectos o programas de sensibilización y educación ambiental.
+Dicha instrucción deberá dirigirse al mejoramiento de la calidad de vida de los funcionarios, tanto dentro como fuera de las instalaciones municipales; así como a desarrollar una cultura de uso ambientalmente racional y adecuado de los materiales utilizados en su labor diaria.

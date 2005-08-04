@@ -1,0 +1,1 @@
+Artículo 54.—La Municipalidad exigirá a los entes generadores de aguas residuales, mantener un adecuado drenaje de las mismas, hacia el alcantarillado autorizado o el respectivo cuerpo receptor, previo tratamiento de éstas.

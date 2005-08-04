@@ -1,0 +1,2 @@
+Artículo 105.—La Comisión promoverá la realización de proyectos de reciclaje a nivel institucional y con los vecinos del cantón. Dichos proyectos deberán ser gestionados por una subcomisión nombrada para dichos efectos. Esta subcomisión, según el asunto que trate, estará
+coordinada por un miembro de la Comisión, quien podrá solicitar informes sobre el estado del proyecto; además de colaborar en la coordinación con las demás dependencias municipales.

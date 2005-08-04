@@ -1,0 +1,1 @@
+Artículo 78.—La Municipalidad desarrollará los procesos de control ambiental que se requieran, con el fin de fiscalizar y controlar el cumplimiento sobre el funcionamiento de los rellenos sanitarios, conforme con las disposiciones de la normativa que regula esa materia.

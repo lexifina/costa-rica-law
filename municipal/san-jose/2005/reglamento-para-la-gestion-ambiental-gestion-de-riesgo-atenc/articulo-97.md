@@ -1,0 +1,1 @@
+Artículo 97.—Con base en una evaluación de los escenarios de riesgo y/o situaciones de emergencia, tanto a lo interno como a lo externo de la Municipalidad, dicha dependencia emitirá un dictamen técnico en el cual comunique a las diferentes dependencias municipales las recomendaciones del caso, las que deberán tomarse en cuenta al momento de planificar el accionar municipal.

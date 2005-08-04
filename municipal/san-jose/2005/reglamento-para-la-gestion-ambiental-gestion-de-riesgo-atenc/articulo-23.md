@@ -1,0 +1,1 @@
+Artículo 23.—Los Planes de Gestión Ambiental estarán condicionados a la inspección y diagnóstico, que en conjunto realicen la empresa y la municipalidad; del mismo modo se hará en el caso de la Gestión del Riesgo, Atención de Emergencias y Desastres Naturales.

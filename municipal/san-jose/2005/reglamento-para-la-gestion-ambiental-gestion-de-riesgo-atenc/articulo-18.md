@@ -1,0 +1,1 @@
+Artículo 18.—La Administración Municipal queda autorizada para realizar charlas, seminarios, forum, talleres, exposiciones, publicaciones y obras de teatro o a prestar a otros entes públicos, con fines de capacitación, cualquier tipo de material que posea relacionado con la sensibilización y educación ambiental. (Artículos 9 y 62, del C.M).

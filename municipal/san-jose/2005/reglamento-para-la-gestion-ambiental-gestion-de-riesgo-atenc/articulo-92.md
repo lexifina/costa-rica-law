@@ -1,0 +1,1 @@
+Artículo 92.—Todas las dependencias municipales y principalmente las que otorgan permisos de construcción, de publicidad exterior (rótulos), o licencias comerciales (patentes), deben contemplar el acatamiento de las normas legales existentes en materia de prevención y atención de emergencias.

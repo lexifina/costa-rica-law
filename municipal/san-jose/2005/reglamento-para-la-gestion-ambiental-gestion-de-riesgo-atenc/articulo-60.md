@@ -1,0 +1,3 @@
+Artículo 60.—En zonas de protección de ríos, arroyos y quebradas está prohibido el desarrollo de obras y proyectos constructivos, a no ser que se esté en presencia de las regulaciones contenidas en el Artículo 34, de la Ley Forestal, por tratarse de obras declaradas de utilidad pública, situación que requiere la declaratoria de ley, por medio de decreto ejecutivo.
+La regulación del área de protección, se establece tomando en cuenta la máxima crecida “ordinaria” del cauce en estudio.
+La Municipalidad a través de la Comisión de Gestión Ambiental, podrá solicitar al INVU, la revisión de la definición de las Zonas de Protección, en aquellos casos en que surja duda respecto, a la verdad material de las ya definidas.

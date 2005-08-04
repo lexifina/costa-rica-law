@@ -1,0 +1,1 @@
+Artículo 27.—Los Planes de Gestión Ambiental, Gestión de Riesgo, Atención de Emergencias y Desastres Naturales que presenten las empresas deberán ajustarse a las disposiciones establecidas en la normativa que regula la materia.

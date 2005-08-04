@@ -1,0 +1,2 @@
+Artículo 62.—En las obras de entubamiento de ríos, quebradas y arroyos, en ningún momento se podrá cambiar su caracterización como tales, de manera que en las obras de entubamiento realizadas por las instituciones públicas, así como por la Municipalidad, se deberá mantener y conservar la zona de protección que por ley se dispone.
+Acorde con el marco regulador, está prohibido realizar obras constructivas de cualquier tipo, así como movimientos de tierra, en las zonas de protección dispuestas por la ley.

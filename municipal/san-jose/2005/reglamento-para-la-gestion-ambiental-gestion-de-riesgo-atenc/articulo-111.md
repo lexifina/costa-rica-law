@@ -1,0 +1,1 @@
+Artículo 111.—En los casos en que en una zona recreativa ubicada en un parque, se admita más de un uso, la Municipalidad deberá definir cuales usos son los permitidos y en que áreas están ubicados, para lo cual colocará el aviso respectivo en éste.

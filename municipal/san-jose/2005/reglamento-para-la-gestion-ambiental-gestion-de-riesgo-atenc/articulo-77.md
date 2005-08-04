@@ -1,0 +1,4 @@
+Artículo 77.—La Municipalidad controlará los movimientos de tierra, que se desarrollen en el cantón, con el fin de que no generen contaminación ni degradación del suelo.
+De igual forma procurará la Municipalidad, que se establezcan adecuados controles de las áreas, en donde se compruebe la inestabilidad de laderas, o la presencia de desplazamientos de terreno, debiéndose observar al efecto, lo establecido en el Reglamento de Uso del Suelo del
+Plan Director de Desarrollo Urbano.
+Las dependencias encargadas del control urbano, podrán ordenar la implementación de las medidas precautorias que se consideren necesarias, para salvaguardar la seguridad y tranquilidad de las propiedades vecinas al terreno, en que se realice el movimiento de tierra. De igual forma podrán estas dependencias, exigir la ejecución de medidas que garanticen la conservación y el adecuado uso del suelo, así como de la disposición del material producto de excavaciones y movimientos de tierra.

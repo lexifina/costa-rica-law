@@ -1,0 +1,2 @@
+Artículo 79.—La Municipalidad establecerá, mediante una adecuada regulación del uso de suelo, un control especial en las áreas definidas por ella, o por la Comisión Nacional de Emergencias, como zonas de inundación o de potencial riesgo.
+Para tales efectos, la Comisión de Gestión Ambiental colaborará con la dependencia municipal encargada de la Atención y Prevención de Desastres, para que dicha materia quede debidamente contemplada en el Plan Director de Desarrollo Urbano.

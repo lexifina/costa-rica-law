@@ -1,0 +1,2 @@
+Artículo 113.—Conforme a la legislación civil y penal, los padres o encargados de los menores de edad que, por realizar un uso indebido de las instalaciones o mobiliario urbano municipal ubicado en los parques, causen en éstos algún daño material, serán responsables por los mismos, correspondiéndoles resarcir el costo total de la reparación de los daños causados.
+La autoridad municipal y policial, como parte de su deber legal de proteger y preservar los bienes públicos, deberán vigilar por el correcto uso de estos bienes municipales.

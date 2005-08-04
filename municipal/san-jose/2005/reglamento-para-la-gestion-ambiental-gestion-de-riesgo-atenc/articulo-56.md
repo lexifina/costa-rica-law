@@ -1,0 +1,1 @@
+Artículo 56.—La Municipalidad impulsará medidas y proyectos de prevención con otras Instituciones del Estado, para el adecuado entubamiento y tratamiento de las aguas que son vertidas a los cauces de los ríos, con el fin de que se cumpla con los parámetros admisibles.

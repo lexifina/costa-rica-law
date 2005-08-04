@@ -1,0 +1,3 @@
+Artículo 89.—La Municipalidad reconoce la existencia de declaratorias de emergencias, tanto nacionales como locales. A nivel nacional, las declaratorias deben cumplir con los extremos
+contemplados en la Ley Nacional de Emergencias (N° 7914, del 28 de setiembre de 1999 y sus reformas).
+En el ámbito local, el estado de emergencia podrá ser determinado por la Municipalidad, previo criterio técnico de las dependencias que conforman la Comisión de Gestión Ambiental y el criterio que dé la dependencia encargada de la prevención y atención de emergencias y desastres y solamente podrá darse, cuando no se haya emitido, por parte del Gobierno Central, la correspondiente declaratoria de emergencia nacional.

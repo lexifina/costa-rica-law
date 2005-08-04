@@ -1,0 +1,1 @@
+Artículo 11.—A las sesiones de esta Comisión podrá asistir el Presidente de la Comisión de Asuntos Ambientales del Concejo Municipal, o el miembro de la misma que él designe, quien realizará una labor fiscalizadora, pudiendo participar en la discusión de los asuntos pero no en la toma de decisiones.

@@ -1,0 +1,1 @@
+Artículo 26.—La aprobación del plan de gestión ambiental o de los planes de gestión de riesgo, atención de emergencias y desastres naturales, que presenten las empresas será objeto de seguimiento en su ejecución, por parte de la dependencia encargada del control e inspección ambiental.

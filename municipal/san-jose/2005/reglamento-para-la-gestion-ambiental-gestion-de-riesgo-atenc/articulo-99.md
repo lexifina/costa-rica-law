@@ -1,0 +1,1 @@
+Artículo 99.—La dependencia encargada de la gestión del riesgo y la atención de emergencias será responsable de coordinar y vigilar los trabajos necesarios para garantizar la mitigación del riesgo o la atención de la emergencia puntual.

@@ -1,0 +1,2 @@
+Artículo 122.—La Comisión promoverá la creación de subcomisiones institucionales y comisiones interinstitucionales, encargadas de la gestión de proyectos urbanos de importancia para el desarrollo de la provincia de San José, en especial del Cantón Central de San José.
+La participación institucional en esas comisiones interinstitucionales, estarán enmarcadas dentro de los artículos 5º, 6º, y 7º, del Código Municipal.

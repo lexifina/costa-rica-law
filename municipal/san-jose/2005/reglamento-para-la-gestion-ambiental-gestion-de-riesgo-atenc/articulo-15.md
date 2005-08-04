@@ -1,0 +1,1 @@
+Artículo 15.—Los acuerdos que se tomen en la Comisión serán por mayoría simple de votos de parte de sus integrantes y para su firmeza, requerirán de la ratificación del Alcalde Municipal, una vez firmes, tendrán la fuerza de directriz administrativa y serán vinculantes para todas las dependencias municipales.

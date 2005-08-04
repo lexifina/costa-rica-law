@@ -1,0 +1,1 @@
+Artículo 126.—Al realizarse un proyecto urbano, el urbanizador deberá respetar la arborización presente en las áreas que se destinen a parque, franjas verdes; además, deberá arborizar las zonas de taludes con pendientes superiores al 15% y si fuera del caso, las áreas de protección señaladas. Ello con el objeto de proveer seguridad contra deslizamientos a las viviendas aledañas.

@@ -1,0 +1,1 @@
+Artículo 44.—La Municipalidad controlará los niveles de ruido en los locales comerciales que expendan bebidas alcohólicas, utilicen equipos de sonido, realicen espectáculos públicos, funcionen karaokes y cualesquier otra actividad que lo genere.

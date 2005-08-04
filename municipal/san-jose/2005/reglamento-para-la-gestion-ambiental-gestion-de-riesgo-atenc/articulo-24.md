@@ -1,0 +1,1 @@
+Artículo 24.—El Plan de Gestión Ambiental deberá presentarse ante la dependencia encargada del control e inspección ambiental, para su estudio, análisis y aprobación, incluyendo los plazos de cumplimiento; de igual manera deberán ser presentados ante esa dependencia, los Planes de Gestión de Riesgo, Atención de Emergencias y Desastres Naturales.

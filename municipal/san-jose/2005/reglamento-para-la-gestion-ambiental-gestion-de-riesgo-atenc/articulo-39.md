@@ -1,0 +1,1 @@
+Artículo 39.—La Municipalidad controlará la contaminación atmosférica generada por la emisión de partículas, polvos, humos, malos olores y gases, exigiendo de las personas generadoras, el cumplimiento de normas técnicas existentes para mitigar y minimizar dichos impactos.

@@ -1,0 +1,1 @@
+Artículo 64.—Toda acción preventiva, o de limpieza en las márgenes u orillas de ríos, se realizarán según lo que determine la Comisión de Gestión Ambiental, previo criterio de las dependencias especializadas de la Dirección de Hidrología, respetando el marco legal existente.

@@ -1,0 +1,1 @@
+Artículo 47.—Las actividades públicas como reuniones políticas, religiosas, conciertos y otras deberán contar con las autorizaciones municipales correspondientes para su realización, así como con la autorización municipal específica, en relación con los niveles de sonido a utilizar durante la actividad.

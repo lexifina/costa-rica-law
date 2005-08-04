@@ -1,0 +1,15 @@
+Municipalidad de San José
+REGLAMENTO PARA LA GESTIÓN AMBIENTAL, GESTIÓN
+DE RIESGO, ATENCIÓN DE EMERGENCIAS Y DESASTRES
+El Consejo Municipal del cantón central de San José, con fundamento en los artículos 50, 169 y 170 de la Constitución Política, artículos 1,2,3,4, párrafo primero, incisos a) y c), 13 incisos c) y d), 43 y 75, del Código Municipal, las disposiciones contenidas en la Ley Orgánica del Ambiente, Ley General de Salud Pública, Ley Nacional de Emergencias, Ley de Conservación y Uso del Suelo, Ley de Biodiversidad, Ley de Conservación de la Vida Silvestre, el Código de Minería, la Ley de Aguas, Ley Forestal, Convenios y Tratados Internacionales sobre Materia Ambiental, otras leyes y reglamentos relacionados con la actuación municipal y específicamente en materia de gestión ambiental, y gestión del riesgo y atención de emergencias y desastres, emite el presente Reglamento para la Gestión Ambiental, Gestión de Riesgo, Atención de Emergencias y Desastres, cuyas disposiciones y alcances se dieron a conocer como Proyecto de Reglamento publicado en el Diario Oficial La Gaceta Nº 6, del 10 de enero del 2005.
+Acuerdo firme 85, artículo V, sesión ordinaria 151, celebrada el 20 de marzo del 2005.
+NOTA DE SINALEVI: El siguiente texto corresponde al publicado como proyecto en La Gaceta Nº 6 de 10 de enero de 2005, mismo que no fue objetado por la comunidad.
+MUNICIPALIDAD DE SAN JOSÉ
+REGLAMENTO PARA LA GESTIÓN
+AMBIENTAL, GESTIÓN DE RIESGO,
+ATENCIÓN DE EMERGENCIAS
+Y DESASTRES
+El Concejo Municipal del Cantón Central de San José, con fundamento en los artículos 50, 169 y 170 de la Constitución Política, artículos 1, 2, 3, 4, párrafo primero, incisos a) y c), 13 incisos c) y d), 43 y 75, del Código Municipal, las disposiciones contenidas en la Ley Orgánica del Ambiente, Ley General de Salud Pública, Ley Nacional de Emergencias, Ley de Conservación y Uso del Suelo, Ley de Biodiversidad, Ley de Conservación de la Vida Silvestre, el Código de Minería, la Ley de Aguas, Ley Forestal, Convenios y Tratados Internacionales sobre Materia Ambiental, otras leyes y reglamentos relacionados con la actuación municipal específicamente en materia de gestión ambiental, y gestión del riesgo y atención de emergencias y desastres, emite el presente Proyecto de Reglamento para la Gestión Ambiental, Gestión de Riesgo, Atención de Emergencias y Desastres, que se regirá por las siguientes disposiciones.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—La actuación de la Municipalidad, específicamente en materia de gestión ambiental, gestión de riesgo y atención de emergencias y desastres, se desarrollará de conformidad con el marco jurídico que fundamenta la emisión de este reglamento.

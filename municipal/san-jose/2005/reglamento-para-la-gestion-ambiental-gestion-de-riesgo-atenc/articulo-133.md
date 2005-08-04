@@ -1,0 +1,2 @@
+Artículo 133.—Es prohibida toda autorización para la corta, derribo, poda o cualquier práctica que provoque daño, o alteración permanente en el desenvolvimiento natural, de cualquier especie arbórea ubicada en áreas públicas.
+El funcionario que así lo autorice, cometerá una falta grave al patrimonio municipal, falta que será sancionable administrativa y laboralmente, con base en el Artículo 81, del Código de Trabajo, en concordancia con el Código Municipal vigente.

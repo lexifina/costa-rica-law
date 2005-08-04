@@ -1,0 +1,1 @@
+Artículo 74.—La Municipalidad controlará el cumplimiento de las disposiciones jurídicas, que han de observar para operar en su actividad, los entes generadores de desechos sólidos o líquidos, según el marco normativo vigente.

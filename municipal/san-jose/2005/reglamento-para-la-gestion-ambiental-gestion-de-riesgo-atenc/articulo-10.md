@@ -1,0 +1,1 @@
+Artículo 10.—Cada uno de los funcionarios que ostenten los cargos indicados en el artículo anterior, serán titulares de esa comisión; independientemente de que sean representados en una o más reuniones, por la persona en quien ellos mismos designen.

@@ -1,0 +1,1 @@
+Artículo 130.—La corta y poda de árboles en zonas públicas solo podrá ser realizada por la dependencia municipal que tenga a su cargo la gestión de parques o, en su caso, por las empresas contratadas para ese fin por la Municipalidad.

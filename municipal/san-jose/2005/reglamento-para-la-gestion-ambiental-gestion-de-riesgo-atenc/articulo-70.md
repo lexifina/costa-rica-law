@@ -1,0 +1,1 @@
+Artículo 70.—Se considera contaminación visual la instalación de rótulos o vallas publicitarias que infrinjan las normas legales y reglamentarias que rijan dichos elementos de publicidad exterior. En tal condición se deberá ordenar la eliminación de aquellos elementos que no puedan ser adecuados a la normativa vigente.

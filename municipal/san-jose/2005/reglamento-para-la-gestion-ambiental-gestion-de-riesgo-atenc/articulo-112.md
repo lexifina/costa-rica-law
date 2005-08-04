@@ -1,0 +1,1 @@
+Artículo 112.—La Municipalidad procurará generar una debida conciencia entre los administrados, respecto del debido uso de los parques, con el objeto de que se les dé el uso autorizado y no un uso distinto, que ponga en peligro su conservación

@@ -1,0 +1,1 @@
+Artículo 124.—Toda iniciativa de arborización que se pretenda realizar en el cantón, debe responder al Plan de Arborización, que será elaborado por la dependencia municipal encargada de la atención y administración de los parques, el cual debe contemplar las especies arbóreas más idóneas para las áreas urbanas.

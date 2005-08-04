@@ -1,0 +1,1 @@
+Artículo 59.—El área de protección de ríos, arroyos y quebradas es de 10 metros a ambos lados de las riberas, en zona urbana cuando el terreno es plano y de 50 metros medidos horizontalmente, a partir del punto de máxima crecida “ordinaria”, cuando el terreno es quebrado. Por terreno quebrado se entenderá aquel que presente una pendiente mayor a 10 grados.

@@ -1,0 +1,1 @@
+Artículo 67.—También se considerará contaminación visual, el desarrollo de obras o actividades que afecten de forma permanente el paisaje, en áreas de protección de ríos, parques urbanos bajo administración municipal o no, polideportivos, así como en reservas forestales y naturales existentes en el cantón.

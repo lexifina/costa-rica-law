@@ -1,0 +1,1 @@
+Artículo 117.—Todo criterio de la dependencia encargada del control e inspección ambiental, deberá ser emitido después de realizar los análisis técnicos de viabilidad ambiental y de campo, para lo cual la Administración Municipal dotará a esa dependencia, de los instrumentos técnicos necesarios según sea el caso.

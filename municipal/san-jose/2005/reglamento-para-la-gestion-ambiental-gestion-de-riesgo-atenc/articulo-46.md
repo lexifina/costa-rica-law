@@ -1,0 +1,2 @@
+Artículo 46.—La Municipalidad controlará los niveles de ruido en las empresas e industrias del cantón, cuando por la naturaleza de su giro industrial o comercial provoquen contaminación por ruidos o vibraciones según la normativa vigente.
+También se controlarán éstos, cuando se presente ante la Municipalidad, alguna denuncia de parte de algún vecino del cantón. Las industrias y el comercio deberán cumplir además, con los parámetros establecidos mediante reglamento por el Gobierno Central.

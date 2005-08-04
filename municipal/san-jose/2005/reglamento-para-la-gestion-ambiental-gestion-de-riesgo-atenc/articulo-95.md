@@ -1,0 +1,1 @@
+Artículo 95.—Esa dependencia deberá recabar, analizar y sistematizar toda la información referida a riesgos, emergencias y desastres naturales, ocurridos o presentes en el cantón, con el objeto de crear una base de información útil a la hora de la toma de decisiones o la necesidad de enfrentar cualquier tipo de hecho o evento.

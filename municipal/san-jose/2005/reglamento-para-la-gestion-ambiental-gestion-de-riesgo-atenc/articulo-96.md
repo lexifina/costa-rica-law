@@ -1,0 +1,2 @@
+Artículo 96.—Los dictámenes técnicos emitidos por esa dependencia, serán suficientes para que la misma gestione, ante las demás dependencias municipales, la adopción de medidas tendientes a mitigar los riesgos y las amenazas de emergencia.
+En los casos en donde se requiera el accionar de otras instituciones públicas, la Comisión valorará el dictamen técnico emitido por dicha dependencia, procediendo, luego de su aval, a comunicar las recomendaciones que considere pertinentes a las demás instituciones del Estado.

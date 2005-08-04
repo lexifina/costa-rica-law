@@ -1,0 +1,1 @@
+Artículo 128.—Se prohíbe la siembra en áreas públicas de especies exóticas de alta capacidad degenerativa. La Municipalidad podrá restringir la siembra de estas especies, en propiedad privada si, de conformidad con criterios técnicos resulta evidente, que con ello se causaría un grave daño al recurso suelo o al medio ambiente en general.

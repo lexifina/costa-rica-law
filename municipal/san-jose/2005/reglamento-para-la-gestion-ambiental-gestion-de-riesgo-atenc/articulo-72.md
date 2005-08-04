@@ -1,0 +1,1 @@
+Artículo 72.—Se considera contaminación visual, la inadecuada conservación estética de las fachadas de las edificaciones del cantón. La Municipalidad podrá ordenar las medidas que considere necesarias de conformidad con las disposiciones contenidas en los Artículos 75 y 76, del Código Municipal, así como lo que corresponda según el Plan Director de Desarrollo Urbano.

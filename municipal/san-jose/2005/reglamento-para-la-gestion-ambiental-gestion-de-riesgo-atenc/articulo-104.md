@@ -1,0 +1,2 @@
+Artículo 104.—La Comisión podrá requerir informes y emitir resoluciones sobre la viabilidad ambiental de los servicios prestados por la Municipalidad, a la comunidad. Además, podrá promover la adopción de medidas reglamentarias, de naturaleza ambiental, que deben ser consideradas o cumplidas por los proveedores de servicios del cantón.
+La Dirección de Urbanismo deberá valorar la procedencia de introducir dichas medidas, cuando se realicen modificaciones al Plan Director de Desarrollo Urbano.

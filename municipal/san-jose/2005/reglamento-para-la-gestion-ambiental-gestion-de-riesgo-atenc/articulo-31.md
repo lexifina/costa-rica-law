@@ -1,0 +1,1 @@
+Artículo 31.—Al negocio beneficiado con el “Certificado Municipal de Reconocimiento de Gestión Ambiental, Gestión de Riesgo, Atención de Emergencias o Desastres Naturales” se le hará entrega de un distintivo, el cual podrá colocar en el lugar que él prefiera.

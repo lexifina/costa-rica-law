@@ -1,0 +1,1 @@
+Artículo 53.—La Municipalidad exigirá el cumplimiento estricto de los parámetros reglamentados por el Gobierno Central y por esta Municipalidad, en el ámbito de su competencia, en cuanto al vertido y reuso de aguas residuales.

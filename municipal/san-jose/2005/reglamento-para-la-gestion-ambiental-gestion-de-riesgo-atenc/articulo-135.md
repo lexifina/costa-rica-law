@@ -1,0 +1,1 @@
+Artículo 135.—Los proyectos de arborización o reforestación, así como cualquier otra práctica selvicultural, pública o privada, deben ser diseñadas y ejecutarse minimizando el riesgo de poner en peligro la salud, o seguridad de los administrados y la infraestructura en general.

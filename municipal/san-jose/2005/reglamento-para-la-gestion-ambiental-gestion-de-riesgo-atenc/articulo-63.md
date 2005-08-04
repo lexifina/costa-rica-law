@@ -1,0 +1,4 @@
+Artículo 63.—En las obras de entubamiento ejecutadas por la Municipalidad, o por cualquier institución pública, así como aquellas desarrolladas por propietarios privados, se regulará ineludiblemente la limitación de uso sobre el área de protección, regulación que de ser
+incumplida ameritará la demolición de las obras realizadas.
+La Dirección de Hidrología y la Dirección de Urbanismo, ambas dependencias de la Municipalidad, tendrán a cargo la vigilancia y control de dichas áreas de protección.
+Las dependencias encargadas del Control Urbano y de la extensión de los permisos de construcción, verificarán al momento de autorizarlos, que los mismos no violenten o pongan en peligro, cualquier zona de protección o fuente acuífera, a la que refiere el Artículo 36, del presente reglamento y la Ley Forestal vigente.

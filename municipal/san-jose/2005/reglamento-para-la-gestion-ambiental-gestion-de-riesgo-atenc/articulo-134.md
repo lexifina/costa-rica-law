@@ -1,0 +1,1 @@
+Artículo 134.—Queda vedada la realización de podas, excesivas o drásticas, así como la poda de raíces, en árboles públicos salvo que así lo determine la dependencia técnica, que tenga a cargo la gestión de parques.

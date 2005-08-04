@@ -1,0 +1,1 @@
+Artículo 36.—La Comisión de oficio, o a solicitud del Alcalde Municipal, podrá nombrar subcomisiones encargadas de analizar, proponer y promover, proyectos de reformas legales y reglamentarias en cualquiera de las materias de competencia municipal, como medios para mejorar la Gestión Ambiental, la Gestión del Riesgo, Atención de Emergencias y Desastres Naturales.

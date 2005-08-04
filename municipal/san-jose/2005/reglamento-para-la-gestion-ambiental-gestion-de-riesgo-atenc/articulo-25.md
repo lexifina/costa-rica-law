@@ -1,0 +1,1 @@
+Artículo 25.—Los Planes de Gestión Ambiental, Gestión de Riesgo, Atención de Emergencias y Desastres Naturales, podrán ser presentados en forma voluntaria por las empresas del cantón o en virtud de una orden de la dependencia encargada del control e inspección ambiental, por mediar una denuncia o inspección.

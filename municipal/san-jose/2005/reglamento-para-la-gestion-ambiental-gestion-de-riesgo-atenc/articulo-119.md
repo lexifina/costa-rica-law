@@ -1,0 +1,2 @@
+Artículo 119.—Las medidas dispuestas por la dependencia encargada del control, e inspección ambiental, en su criterio, podrán ser ordenadas de previo a la autorización del permiso, o patente, o bien sobrevenir con posterioridad al otorgamiento de cualquiera de los mismos.
+Las dependencias encargadas del control urbano y de patentes deberán, en función de sus competencias, fiscalizar el cumplimiento de las medidas ordenadas por la dependencia encargada del control e inspección ambiental.

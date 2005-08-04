@@ -1,0 +1,1 @@
+Artículo 81.—De previo a la audiencia que se conferirá al interesado, esa dependencia deberá verificar preliminarmente la causa de la contaminación ambiental y acreditarla en el expediente que se llevará al efecto, aplicando en su análisis los principios de responsabilidad objetiva y los principios ambientales dispuestos en el Ordenamiento Jurídico.

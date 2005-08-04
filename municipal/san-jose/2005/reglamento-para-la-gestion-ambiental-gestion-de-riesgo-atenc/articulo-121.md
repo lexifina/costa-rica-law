@@ -1,0 +1,2 @@
+Artículo 121.—Las licencias comerciales (patentes), deberán ser otorgadas en cumplimiento de la ley especial que las rige y demás normas conexas que resultan aplicables, pero deberán ponderar los aspectos de conveniencia ambiental urbana.
+Para esos efectos, debe ser valorizado como herramienta para el efectivo control y ordenamiento urbano; así como, para el desarrollo de una adecuada Gestión Ambiental Municipal.
