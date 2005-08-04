@@ -1,1 +1,0 @@
-Artículo 16.-Toda organización al hacer uso del aval concedido por el Fondo de Garantía, pagará una comisión del 1,0% del monto avalado. que se cobrará por una sola vez en el momento de girar dicho préstamo.

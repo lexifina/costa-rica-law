@@ -1,1 +1,0 @@
-Artículo 30.-En caso de liquidación del Fondo de Garantía, el Banco cargará a este el total de las obligaciones que garantice el mismo y el remanente, si lo hubiere, lo girará al consejo para que este lo distribuya a las organizaciones, conforme a su derecho.

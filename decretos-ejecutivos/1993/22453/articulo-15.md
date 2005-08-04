@@ -1,1 +1,0 @@
-Artículo 15.-DINADECO llevará el control y registro de los aportes de las organizaciones y de los porcentajes que se establecen en el artículo anterior y suministrará un informe anual por organización al Consejo.

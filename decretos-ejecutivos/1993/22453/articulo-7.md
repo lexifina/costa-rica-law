@@ -1,1 +1,0 @@
-Artículo 7°-Para la solicitud de los fondos que el Consejo debe girar todos los años a las organizaciones, de acuerdo con este Reglamento, las organizaciones seguirán los trámites y procedimientos que al efecto establezca el Consejo.

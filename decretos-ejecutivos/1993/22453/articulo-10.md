@@ -1,1 +1,0 @@
-Artículo 10.--EI Banco girará a las organizaciones contra la cuenta del Fondo por girar a organizaciones, las cantidades ordenadas por el Consejo, de acuerdo a las órdenes de pago que extienda DINADECO.

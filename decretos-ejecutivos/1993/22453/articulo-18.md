@@ -1,1 +1,0 @@
-Artículo 18.-Las organizaciones, en el momento en que se posean garantías reales, a satisfacción del Banco, deberán sustituir con estas la garantía del fondo, a efecto de liberar este en esas sumas y ponerlo en condiciones de brindar garantía a otras organizaciones que así lo requieran.

@@ -1,2 +1,0 @@
-Artículo 4°-EI Fondo de Garantía generará dividendos similares a la tasa pasiva de interés devengados por el ahorro a seis meses plazo, vigente a inicio de cada período. Con el propósito de aumentar el Fondo de Garantía y Avales, se establece la capitalización del cinco por ciento de los intereses devengados por dicho Fondo.
-El Fondo de Girar a las organizaciones de desarrollo comunal devengará la tasa de interés que se paga al ahorro voluntario a la vista.
