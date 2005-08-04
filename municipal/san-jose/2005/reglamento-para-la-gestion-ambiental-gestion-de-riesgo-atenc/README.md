@@ -14,3 +14,4 @@ Reglamento para la Gestión Ambiental, Gestión de Riesgo, Atención de Emergenc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-04 | la propia norma |
+| 2 | 2005-08-04 | Reglamento municipal 167 (2005-07-12) |
