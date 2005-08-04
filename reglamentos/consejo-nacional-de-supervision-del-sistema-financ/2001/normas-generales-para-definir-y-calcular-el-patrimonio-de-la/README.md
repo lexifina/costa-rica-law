@@ -18,3 +18,4 @@ Normas Generales para Definir y Calcular el Patrimonio de las Asociaciones Mutua
 | 4 | 2003-07-22 | Reglamento 381 (2003-07-22) |
 | 5 | 2003-12-09 | Reglamento 408 (2003-12-09) |
 | 6 | 2004-03-09 | Reglamento 425 (2004-03-09) |
+| 7 | 2005-08-04 | Reglamento 520 (2005-08-04) |
