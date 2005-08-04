@@ -1,0 +1,1 @@
+Artículo 7º—Formalidades del pedido: La respectiva solicitud de pedido, deberá estar suscrita por el jefe de la dependencia solicitante y contar con el visto bueno del superior inmediato, quienes serán los responsables de verificar y justificar la efectiva necesidad del bien, servicio u obra.
