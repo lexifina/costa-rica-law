@@ -1,0 +1,19 @@
+Artículo 4º—Definición de lugares y especies que se prohíben y se autorizan pescar en aguas continentales. Se prohíben pescar en aguas continentales, lo cual se aplica tanto para pesca deportiva continental como para pesca turística continental, quedando de la siguiente manera:
+Se prohíbe la pesca deportiva continental y turística continental de las siguientes especies y en los siguientes lugares:
+a. De guapote (Parachromis spp), róbalo (Centropomus undecimalis), sábalo (Megalops atlanticus) y demás especies de peces, en los siguientes ríos y sus afluentes: Frío, Zapote, Niño o Pizote, lagunas del Refugio de Fauna Silvestre de Caño Negro y el Refugio de Fauna Silvestre Las Camelias, entre el 1° de abril y el 31 de julio inclusive. Fuera de este período, se podrá pescar con un límite de cinco peces con un tamaño mínimo de 25 cm. de longitud, por persona por día.
+b. Del gaspar (Atractosteus tropicus) en los siguientes ríos y sus afluentes: Frío, Zapote, Niño o Pizote, lagunas del Refugio de Fauna Silvestre de Caño Negro y el Refugio de Fauna Silvestre Las Camelias, entre el 1° de marzo y el 31 de agosto inclusive. Fuera de este periodo, se podrá pescar con un límite de dos peces con un tamaño mínimo de 60 cm. de longitud, por persona por día.
+c. De todas las especies de peces de agua dulce en todos los ríos incluyendo sus afluentes, lagos y lagunas) exceptuando lo establecido en los incisos e) y d) de este artículo), entre el 1° de setiembre y el 30 de noviembre inclusive. Fuera de ese plazo se podrá pescar con un límite de 5 piezas con un tamaño mínimo de 25 cm. de longitud, por persona con licencia y carné de pesca continental al día. Se exceptúa el tepemechín (Agonostomus monticola), para el cual no se establece límite de longitud y gaspar (Atractosteus tropicus) para el cual se fija un tamaño mínimo de 60 cm.
+d. Del langostino o camarón de río (Macrobrachium spp), en todos los ríos nacionales entre el 15 de mayo y el 30 de noviembre inclusive. Fuera de este periodo, se podrá pescar con un límite de diez piezas por persona por día.
+e. La pesca deportiva y la pesca turística en la Laguna de Hule, ubicada en el Refugio de Fauna Privado Bosque Alegre, Cariblanco.
+f. En las Reservas Indígenas (excepto la pesca de subsistencia que realicen los indígenas).
+g. 100 metros en ambas márgenes del Río San Rafael en Muelle de San Carlos, entre el puente sobre la carretera que comunica la comunidad de Muelle con Pital y la desembocadura del Río San Rafael en el Río San Carlos.
+h. La pesca por tiempo indefinido en los ríos Sarapiquí, entre la confluencia del Río Peje hasta la unión con el Puerto Viejo, entre la confluencia con el Río Sábalo Esquina, hasta la unión con el Sarapiquí.
+Para la pesca deportiva continental y pesca turística continental se autoriza lo siguiente:
+a. La pesca con caña y carrete, así como cuerdas de mano, en un horario de 6:00 a. m. a 5:00 p.m.
+b. La pesca todos los días del año en:
+b.1. El Río Reventazón desde Palomo de Orosi hasta su desembocadura con excepción de sus afluentes. El límite de piezas se establece en cinco peces con un tamaño superior a 25 cm. por pescador con licencia de pesca deportiva o pesca turística continental, por día.
+b.2. La que se realice con cuerda de mano o caña y carrete en el Embalse de Arenal. Se establece el límite de piezas en 10 peces por pescador con licencia, por día.
+b.3. En las Barras de Colorado, Parismina, Tortuguero y Matina. El límite de piezas en las barras citadas será de cinco peces por pescador con licencia, por día. Se entenderá por barra de un río, como el cauce comprendido hasta un kilómetro aguas arriba, partiendo de la boca.
+c. La pesca de subsistencia que realicen los indígenas en las Reservas Indígenas.
+Rige a partir de su publicación.
+Puntarenas, 26 de julio del 2005.
