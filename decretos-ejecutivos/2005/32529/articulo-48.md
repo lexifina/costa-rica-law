@@ -1,0 +1,1 @@
+Artículo 48.—Las ASADAS deben solicitar a la Dirección de Gestión Ambiental del AyA la delimitación de las zonas de protección que requieren los diferentes puntos de producción de sus sistemas, con el fin de adquirirlas, en el menor plazo posible, para proteger el recurso y garantizar su sostenibilidad.

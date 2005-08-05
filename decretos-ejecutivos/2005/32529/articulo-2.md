@@ -1,0 +1,5 @@
+SECCIÓN SEGUNDA
+Disposiciones generales
+Artículo 2º—Corresponde al Instituto Costarricense de Acueductos y Alcantarillados, en adelante AyA, como ente rector en materia de los sistemas de acueducto y alcantarillado, intervenir en todos los asuntos relativos a la operación, mantenimiento, administración y desarrollo de estos sistemas necesarios para el suministro de agua a las poblaciones; así como colaborar en la conservación, aprovechamiento y uso racional de las aguas, vigilancia y control de su contaminación o alteración, definición de las medidas y acciones necesarias para la protección de las cuencas hidrográficas.
+Asimismo, le corresponde a AyA velar porque todos los sistemas de acueducto y/o alcantarillado sanitario cumplan con los principios del servicio público.
+Los costos incluyendo la regulación que implique la prestación del servicio público, deberán ser sufragados por el ente operador, bajo cuya administración se encuentre el acueducto y alcantarillado. Todo de conformidad con el artículo 71 de Ley de la Autoridad Reguladora de los Servicios Públicos (ARESEP).

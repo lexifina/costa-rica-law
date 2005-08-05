@@ -1,0 +1,1 @@
+Artículo 44.—Los miembros de las Juntas Directivas y Fiscal perderán las dietas cuando no se presenten dentro de los 15 minutos inmediatos posteriores a la hora .jada para comenzar la sesión o cuando se retiren antes de finalizar la sesión.

@@ -1,0 +1,2 @@
+Artículo 52.—AyA se compromete a respetar el derecho que tienen los pueblos indígenas de conservar sus costumbres e instituciones siempre que éstas no sean incompatibles con la normativa jurídica vigente. Cuando sea necesario deberán establecerse procedimientos para solucionar los conflictos que puedan surgir en la aplicación de este principio.
+Lo anterior no deberá impedir a los miembros de dichos pueblos ejercer los derechos reconocidos a todos los ciudadanos del país y asumir las obligaciones correspondientes.

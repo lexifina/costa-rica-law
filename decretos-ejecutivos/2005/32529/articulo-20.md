@@ -1,0 +1,1 @@
+Artículo 20.—AyA unilateralmente podrá rescindir en cualquier momento el Convenio de Delegación de la gestión del servicio y asumir de pleno derecho la administración del sistema, previo el debido proceso, para lo cual procederá de conformidad con lo establecido en el artículo 4 de este Reglamento.

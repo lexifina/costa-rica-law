@@ -1,0 +1,1 @@
+Artículo 15.—La inscripción, organización, plazo de vigencia y personería de la Asociación, entre otros, se regirán por la Ley de Asociaciones Nº 218. Corresponde al Registro de Asociaciones del Registro Nacional inscribir las mismas, acreditar su personería y su renovación, debiendo la ASADA presentar ante esta entidad los estatutos y sus modificaciones.

@@ -1,0 +1,2 @@
+Artículo 24.—La ASADA presentará certificaciones expedidas por el contador relativas a deudas morosas, con el .n de que AyA las certifique y la Asociación proceda a realizar las gestiones de cobro en sede judicial.
+Las certificaciones expedidas por AyA relativas a deudas provenientes de sus servicios serán títulos ejecutivos y en el juicio correspondiente sólo podrá oponerse la excepción de pago o de prescripción, según el artículo 5 de la Ley N° 6622 del 27 de agosto de 1981.

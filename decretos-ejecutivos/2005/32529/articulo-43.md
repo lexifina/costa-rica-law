@@ -1,0 +1,1 @@
+Artículo 43.—No se podrá pagar más de una dieta por miembro de Junta Directiva o Fiscal por cada sesión remunerable, para la realización de éstas se podrá autorizar el reconocimiento del traslado de sus miembros, el cual será equivalente al monto aprobado por ARESEP para el respectivo transporte público.
