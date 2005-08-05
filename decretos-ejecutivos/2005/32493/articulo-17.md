@@ -1,0 +1,1 @@
+Artículo 17.—Convenio sobre honorarios. El profesional y su cliente podrán convenir otras sumas de remuneración de honorarios distintas a las señaladas anteriormente, siempre y cuando su acuerdo sea por escrito y por montos no inferiores a los mínimos establecidos.

@@ -1,0 +1,1 @@
+Artículo 78.—Cancelaciones y renuncias. Las cancelaciones o renuncias de condiciones, restricciones, derechos, reservas, cargas o gravámenes, carentes de regulación expresa en materia de honorarios notariales como acto especial, devengarán un honorario mínimo igual al indicado en el artículo 69.

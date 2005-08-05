@@ -1,0 +1,1 @@
+Artículo 73.—Actas notariales. Las actas notariales, independiente que contengan alguna referencia de valor o estimación acerca del acto al cual se refieren, devengarán honorarios de cincuenta mil colones por cada acta, más las circunstancias prevista en el artículo 61 anterior.

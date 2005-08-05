@@ -1,0 +1,2 @@
+Artículo 36.—En la atención de procesos sobre faltas o contravenciones, los honorarios se determinarán tomando en cuenta el número y gravedad de las infracciones, la cantidad de trabajadores involucrados, la complejidad del caso y otros factores del proceso, con un mínimo de veinte mil colones.
+Cuando se cobren adicionalmente daños y perjuicios los honorarios se fijarán en un mínimo del quince por ciento (15%) y un máximo del veinticinco por ciento (25%), ya sea sobre la condenatoria o sobre la absolutoria, con un mínimo de cincuenta mil colones.

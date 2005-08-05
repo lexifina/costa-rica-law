@@ -1,0 +1,1 @@
+Artículo 103.—Valor superior al indicado por las partes. Cuando el valor o estimación del acto o contrato o de los bienes a que se refiere la escritura resulta superior al indicado por las partes, el notario puede cobrar los honorarios que corresponda con respecto a ese mayor valor.

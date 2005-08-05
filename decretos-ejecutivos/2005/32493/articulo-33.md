@@ -1,0 +1,1 @@
+Artículo 33.—Tratándose de incidentes sin contenido económico, o de cualquiera otra diligencia judicial no señalada en las anteriores disposiciones, el abogado devengará como honorarios, máximo, la suma de veinticinco mil colones, independientemente de su grado de complejidad.

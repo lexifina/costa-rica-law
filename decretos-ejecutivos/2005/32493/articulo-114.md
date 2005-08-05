@@ -1,0 +1,1 @@
+Artículo 114.—Derecho a la información de los consumidores y usuarios. En los juzgados y tribunales de toda clase y en las oficinas públicas ante las cuales deban tramitarse documentos y actos de los comprendidos en el presente Decreto, se colocará un ejemplar en un lugar visible.

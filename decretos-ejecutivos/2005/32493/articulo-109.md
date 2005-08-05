@@ -1,0 +1,1 @@
+Artículo 109.—Certificados de prenda. Mientras no se dicte norma en contrario, los certificados de prenda pagarán el timbre del Colegio de Abogados sobre la cuantía de la obligación según la tarifa que indica el artículo 106.

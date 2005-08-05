@@ -1,0 +1,1 @@
+Artículo 68.—Errores o negligencia del notario. Constituye una obligación del profesional confeccionar y tramitar a su costo las escrituras principales, adicionales o complementarias, o las reproducciones que fueren necesarias, a consecuencia de su negligencia, descuido o error o por causas imputables al profesional y por las cuales no devengarán honorario alguno.

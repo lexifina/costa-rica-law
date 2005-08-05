@@ -1,0 +1,1 @@
+Artículo 110.—Cancelación del timbre. La cancelación del timbre a fin de inutilizarlo se realizará por el Tribunal o por la oficina que deba recibir los documentos, o en su defecto por el profesional.

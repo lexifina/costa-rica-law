@@ -1,0 +1,1 @@
+Artículo 51.—Por la constitución e inscripción de personas jurídicas tales como asociaciones, cooperativas, fundaciones, sociedades civiles, sociedades mercantiles, sindicatos u otro tipo de personas jurídicas se cobrará un honorario mínimo de cien mil colones.

@@ -1,0 +1,1 @@
+Artículo 52.—Por todo otro trámite en sede administrativa de carácter contencioso no expresamente regulado en este Arancel, el profesional devengará un honorario del cincuenta por ciento (50%) de la Tabla General en relación con el monto estimado del asunto en discusión. En los casos no estimables el monto mínimo de los honorarios serán de cien mil colones.

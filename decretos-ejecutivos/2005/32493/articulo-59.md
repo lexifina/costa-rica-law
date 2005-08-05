@@ -1,0 +1,1 @@
+Artículo 59.—Por confección de una prenda, se fija por concepto de honorarios diez mil colones. Si la misma se confecciona en escritura pública los honorarios serán los previstos en el artículo 70 y su cancelación pagará el 50% de dicha tarifa.

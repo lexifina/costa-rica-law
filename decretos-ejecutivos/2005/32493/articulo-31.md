@@ -1,0 +1,2 @@
+Artículo 31.—En procesos contenciosos de separación judicial o de divorcio pero sin contención sobre gananciales, de investigación de paternidad, de suspensión de patria potestad, de reivindicación de estado, de adopciones, el abogado devengará como honorarios la suma máxima de cien mil colones por proceso.
+En procesos contenciosos de separación judicial o de divorcio con contención sobre gananciales, se aplicarán las tarifas y las etapas procesales que señala el artículo 18 del presente Arancel , sin que su importe sea inferior al mínimo establecido.

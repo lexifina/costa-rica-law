@@ -1,0 +1,4 @@
+Artículo 24.—Concurso de acreedores y quiebras. En concurso de acreedores y quiebras el o los profesionales designados como curadores devengarán los honorarios establecidos en los artículos pertinentes del Código Civil y del Código de Comercio.
+a) Convenio preventivo. Los honorarios del curador designado en este tipo de procesos serán los regulados en el Código Procesal Civil.
+b) Asesoramiento. Por asesoramiento y solicitud de quiebra, administración por intervención judicial o convenio preventivo, los honorarios de abogado serán de dos tercios de lo señalado para el curador.
+c) Legalización de créditos. Los honorarios serán el veinticinco por ciento (25%) de la Tarifa General de este Arancel, sobre el monto del crédito legalizado por su presentación. Si adicionalmente corresponde la tramitación en el juicio universal hasta su terminación, los honorarios serán hasta el cincuenta por ciento (50%).
