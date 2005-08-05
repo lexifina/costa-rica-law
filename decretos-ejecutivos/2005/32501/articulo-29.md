@@ -1,0 +1,1 @@
+Artículo 29.—Los propietarios de la Subasta, organizadores, empleados y funcionarios de las instancias públicas, deberán velar por el cumplimiento y acatamiento de las disposiciones establecidas en el presente Reglamento.

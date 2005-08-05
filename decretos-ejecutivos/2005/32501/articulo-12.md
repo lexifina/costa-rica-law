@@ -1,0 +1,1 @@
+Artículo 12.—A petición del vendedor y bajo su responsabilidad, al momento de subastarse los animales, se podrá informar al público de aquellas características o condiciones que pudieran dar como resultado un mejor precio de aquellos.

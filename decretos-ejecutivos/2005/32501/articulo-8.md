@@ -1,0 +1,1 @@
+Artículo 8º—El funcionario de la subasta que recibe los animales deberá llevar una .cha con las señas y características detalladas de cada animal (sexo, condición física y categoría), así como constatará los datos consignados en la guía de transporte de los animales.

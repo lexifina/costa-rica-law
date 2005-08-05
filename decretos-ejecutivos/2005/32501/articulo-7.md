@@ -1,0 +1,1 @@
+Artículo 7º—Todo animal que ingrese a los corrales, deberá ser debidamente identificado, utilizando métodos que no dañen el cuero o afecten el estado físico del animal, conteniendo su número respectivo de admisión. La numeración tendrá que ser continua y consecutiva, siguiendo los procedimientos de cada subasta.

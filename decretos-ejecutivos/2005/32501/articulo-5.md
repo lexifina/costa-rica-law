@@ -1,0 +1,1 @@
+Artículo 5º—Toda subasta estará en la obligación de instalar carteles y rótulos legibles y bien claros, a la vista pública, conteniendo el presente Reglamento, así como las listas de precios promedios por categorías alcanzados en las cuatro subastas anteriores a la fecha de celebración.
