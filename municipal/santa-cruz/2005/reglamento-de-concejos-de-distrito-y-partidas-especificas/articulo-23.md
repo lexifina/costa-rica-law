@@ -1,0 +1,1 @@
+Artículo 23.—Todas las sesiones de Concejo de Distrito serán publicadas , pudiendo participar en ellas los (as) vecino (as), en calidad de representantes de organizaciones comunales o en su calidad particular. ara tal efecto cada Concejo normará dicha participación por medio de un reglamento interno.

@@ -1,0 +1,1 @@
+Artículo 20.—El quórum para las sesiones se formará con tres miembros, entre los cuales siempre deberá estar presente el presidente. En las sesiones podrán participar los suplentes con derecho a voz, teniendo derecho al voto únicamente cuando sustituyan a miembros propietarios ausencia o conforme el siguiente artículo.

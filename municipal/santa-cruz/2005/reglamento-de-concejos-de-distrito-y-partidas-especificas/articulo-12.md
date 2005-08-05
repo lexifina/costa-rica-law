@@ -1,0 +1,1 @@
+Artículo 12.—Los concejales serán nombrados dentro de los tres meses siguientes en que se nombre al Alcalde Municipal, por un período de cuatro años, podrán ser reelegidos y desempeñaran sus cargos gratuitamente.

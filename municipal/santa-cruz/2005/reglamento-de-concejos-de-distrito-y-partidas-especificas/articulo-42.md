@@ -1,0 +1,1 @@
+Artículo 42.—La precalificación no constituye ningún compromiso u obligación para la Municipalidad de Santa Cruz, toda vez que requiere la calificación de la Contraloría General de la Republica, así como el cumplimiento de los requisitos establecidos por ella y por la Ley Nº 7755.
