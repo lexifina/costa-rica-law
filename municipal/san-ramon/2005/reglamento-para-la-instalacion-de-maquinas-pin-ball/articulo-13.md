@@ -1,0 +1,1 @@
+Artículo 13.—La edad mínima para el uso de las máquinas pin ball es de 12 años, según lo indica el Código de la Niñez y la Adolescencia. El propietario del local que incumpla con esta regla, podrá ser sancionado con el retiro de la máquina y la cancelación de la patente comercial.

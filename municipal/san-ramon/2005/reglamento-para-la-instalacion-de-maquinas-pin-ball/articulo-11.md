@@ -1,0 +1,1 @@
+Artículo 11.—El administrado que sea concesionario de una patente para que funcionen máquinas pin ball, en el cantón de San Ramón, deberá comunicar por escrito a la Municipalidad de San Ramón por medio de su Departamento de Patentes, la cantidad de máquinas que instalará, el lugar exacto, nombre del negocio, nombre del propietario y copia del contrato previo.
