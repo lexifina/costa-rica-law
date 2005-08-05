@@ -1,0 +1,1 @@
+Artículo 16.—Una vez aprobado el concurso y la terna por parte de la Contraloría General de la República: La Unidad de Recursos Humanos de la Dirección General de Aviación Civil procederá con cinco días de anticipación a convocar por escrito a entrevista a los integrantes de la terna a efectos de que el Consejo Técnico de Aviación Civil escoja al candidato más idóneo.

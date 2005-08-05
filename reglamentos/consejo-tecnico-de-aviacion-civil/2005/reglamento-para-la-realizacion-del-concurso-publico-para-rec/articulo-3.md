@@ -1,0 +1,1 @@
+Artículo 3º—Requisitos del puesto: Los requisitos mínimos del puesto de Subauditor Interno son los definidos por la Contraloría General de la República, según publicación en La Gaceta Nº 205 del 24 de octubre del 2003, de los lineamientos para la descripción de las funciones y requisitos de los cargos de Auditor y Subauditor Interno.

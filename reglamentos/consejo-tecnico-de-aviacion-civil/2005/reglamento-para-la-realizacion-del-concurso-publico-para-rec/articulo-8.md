@@ -1,0 +1,1 @@
+Artículo 8º—Sobre los supuestos bajo los cuales se excluye una oferta del proceso: Se excluirán del proceso quienes no se presenten a la evaluación convocada en la fecha y lugar informados oportunamente. Asimismo, serán excluidas las de los oferentes a los que se les compruebe falsedad en la información suministrada.

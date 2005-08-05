@@ -1,0 +1,1 @@
+Artículo 2º—Acciones previas: Con base en el acuerdo del Consejo Técnico de Aviación Civil se programará y pondrá en marcha la realización del concurso público que indica la Ley Nº 8292 para el nombramiento del Subauditor Interno, se requerirá de la existencia de un acuerdo tomado por el Consejo Técnico de Aviación Civil.

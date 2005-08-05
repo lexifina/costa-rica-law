@@ -1,0 +1,1 @@
+Artículo 7º—Sobre la recepción de las ofertas: Se recibirán las ofertas solamente a aquellos interesados que demuestren poseer los requisitos establecidos para el puesto en concurso, las mismas deben ser presentadas en forma personal y bajo ninguna circunstancia se recibirán mediante fax, correo ni correo electrónico. Ni se recibirán ofertas condicionadas.
