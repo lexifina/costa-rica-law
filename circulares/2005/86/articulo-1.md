@@ -1,0 +1,16 @@
+CIRCULAR Nº 86-2005
+ASUNTO: Reglas sobre confidencialidad e ingreso a albergues del INAMU.
+A TODAS LAS AUTORIDADES DEL PAÍS QUE CONOCEN
+MATERIA DE VIOLENCIA DOMÉSTICA
+SE LES HACE SABER QUE:
+El Consejo Superior, en sesión Nº 45-05, celebrada el 14 de junio del 2005, artículo XLII, dispuso comunicarles el acuerdo tomado por la Comisión Permanente de la Violencia Intrafamiliar, respecto a las reglas sobre confidencialidad e ingreso a albergues del INAMU, a saber:
+1. De oficio o a solicitud de parte podrá disponerse que en el expediente no aparezcan el domicilio, los números de teléfono, la dirección del lugar de trabajo o cualquier otro dato que permita la localización de la persona solicitante. En tal caso, esos datos se consignarán en acta aparte que se conservará bajo custodia en el archivo del despacho y a la cual sólo tendrán acceso los funcionarios del Juzgado autorizados.
+De igual forma se procederá con las fórmulas de citación a la persona solicitante, dejando únicamente en el expediente constancia del envío.
+2. Para que proceda el ingreso de una mujer a un centro especializado de atención y albergue temporal para mujeres afectadas por la violencia intrafamiliar, sus hijos e hijas (CEAAM), es necesaria la valoración y la autorización de una funcionaria del Área de Violencia de Género del Instituto Nacional de las Mujeres; lo que debe coordinarse a través del servicio de Emergencias 9-1-1. Las gestiones practicadas deben guardarse bajo custodia en el archivo del despacho.
+3. El ingreso de una persona a un centro especializado de atención y albergue temporal para mujeres afectadas por la violencia intrafamiliar, sus hijos e hijas (CEAAM), se rige por las siguientes reglas:
+a) El Instituto Nacional de las Mujeres es la única instancia competente para determinar si se requiere o no el ingreso inmediato a uno de sus centros en función del nivel de riesgo por violencia intrafamiliar.
+b) La funcionaria especialista del Instituto Nacional de las Mujeres es la encargada de coordinar con las instancias necesarias el traslado de las mujeres y sus hijos e hijas al centro que corresponda, previa valoración de la disponibilidad de espacio en el mismo. El lugar de traslado es estrictamente confidencial.
+c) Cuando la solicitud de valoración para ingreso la formula alguna instancia o institución ubicada fuera del área metropolitana, la o el profesional a cargo debe remitir por fax una referencia en la cual NO se debe anotar que la persona requiere su ingreso a un centro.
+4. En virtud de la confidencialidad de su intervención, las especialistas del Instituto Nacional de las Mujeres no rinden informes técnicos en relación con las personas que se encuentran en alguno de sus centros Especializados de atención y albergue temporal para mujeres afectadas por la violencia intrafamiliar, sus hijos e hijas (CEAAM).
+5. Por ningún motivo se debe registrar la dirección, los números de teléfono o información alguna referente al traslado de la persona solicitante al centro o los centros especializados de atención y albergue temporal para mujeres afectadas por la violencia intrafamiliar, sus hijos e hijas (CEAAM); ni siquiera bajo custodia en el archivo del despacho.
+San José, 26 de julio del 2005.
