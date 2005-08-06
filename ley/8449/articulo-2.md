@@ -1,0 +1,3 @@
+Artículo 2º—Modifícase el artículo 6º de la Ley General de Policía, N° 7410, de 26 de mayo de 1994. El texto dirá:
+“Artículo 6º—Cuerpos. Las fuerzas de policía encargadas de la seguridad pública, son las siguientes: la Guardia Civil, la Guardia de Asistencia Rural, la policía encargada del control de drogas no autorizadas y de actividades conexas, la Policía de Fronteras, la Policía de Migración y Extranjería, la Policía del Control Fiscal, la Dirección de Seguridad del Estado, la Policía de Tránsito, la Policía Penitenciaria, la Policía Escolar y de la Niñez, así como las demás fuerzas de policía, cuya competencia esté prevista en la ley”.
+Dado en la Presidencia de la República.—San José, a los catorce días del mes de junio del dos mil cinco.

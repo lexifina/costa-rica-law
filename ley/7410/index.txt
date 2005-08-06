@@ -110,4 +110,10 @@ articulo-109.md
 articulo-110.md
 articulo-111.md
 articulo-112.md
+articulo-113.md
+articulo-114.md
+articulo-115.md
+articulo-116.md
+articulo-117.md
+articulo-118.md
 articulo-1-transitorio.md
