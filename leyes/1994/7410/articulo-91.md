@@ -1,4 +1,4 @@
-Artículo 91°—(Derogado por el artículo 55 de la Ley de Regulación de los Servicios de Seguridad Privados, N° 8395 del 1° de diciembre de 2003)
-(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 79 al 82 actual)
-(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 82 al 89 actual)
-(Así corrida su numeración por el artículo 3° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 89 al 91 actual)
+Artículo 91.- Riesgo policial. Créase un incentivo denominado riesgo policial, el cual consiste en un plus salarial equivalente a un dieciocho por ciento (18%) del salario base; corresponderá a todos los funcionarios de los ministerios de Gobernación y Policía, y de Seguridad Pública que desarrollen funciones policiales que impliquen riesgo a su integridad física, independientemente de la ubicación en la estructura administrativa de ese Ministerio.
+El otorgamiento de este incentivo salarial deberá fundamentarse, en cada caso concreto, definiendo las razones por las cuales las funciones del empleado correspondiente encuadran dentro del supuesto de peligrosidad definido.
+(Así adicionado por el artículo 3° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 85 al 91 actual)

@@ -1,4 +1,9 @@
-Artículo 94°—(Derogado por el artículo 55 de la Ley de Regulación de los Servicios de Seguridad Privados, N° 8395 del 1° de diciembre de 2003)
-(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 82 al 85 actual)
-(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 85 al 92 actual)
-(Así corrida su numeración por el artículo 3° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 92 al 94 actual)
+Artículo 94°—Criterios
+El adiestramiento y la capacitación policial se fundamentarán en los siguientes criterios:
+a) Tendrán carácter profesional y permanente.
+b) Serán convalidados por el Ministerio de Educación Pública.
+c) No tendrán carácter militar y, en consecuencia, su orientación será civilista, democrática y defensora de los derechos humanos.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 76 al 79 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 79 al 86 actual)
+(Así corrida su numeración por el artículo 3° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 86 al 88 actual)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 88 al 94 actual)

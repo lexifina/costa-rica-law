@@ -1,11 +1,8 @@
-Artículo 70°—Deberes
-Los miembros de las fuerzas de policía, además de los deberes ético-jurídicos consignados en esta Ley, tendrán las siguientes obligaciones específicas:
-a) Dedicarse exclusivamente a sus labores a tiempo completo.
-b) No podrán ocupar, simultáneamente, otros cargos o puestos dentro de la Administración Pública, excepto los previstos en la Ley de la Administración Financiera de la República. Tampoco podrán participar en actividades político-partidistas, aspirar a puestos de elección popular ni ejercerlos.
-c) Ajustarse a los horarios definidos por reglamento, sin perjuicio de las obligaciones derivadas de la disponibilidad para el servicio y de las movilizaciones.
-d) Observar buena conducta.
-e) Respetar y considerar a las personas con quienes tratan en el ejercicio de sus funciones, para evitar las quejas originadas por abusos o deficiencias en la prestación del servicio.
-f) Recibir, obligatoriamente, los cursos de adiestramiento y capacitación que sus superiores les indiquen, con el propósito de mejorar la calidad del servicio.
-g) Abstenerse de portar armas distintas de las autorizadas por reglamento.
-(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 60 al 63 actual)
-(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 63 al 70 actual)
+(*)CAPITULO V
+De los ascensos, los traslados, las permutas y las movilizaciones
+(*)(Así corrida la numeración del capítulo anterior por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo capítulo IV al V actual)
+Artículo 70°—Ascensos o traslados provisionales
+Los sustitutos de los servidores ascendidos o trasladados también ascenderán o se trasladarán provisionalmente, durante el período de prueba que, en estos casos, se reducirá a tres meses. No obstante, deberán volver a sus puestos de origen si el servidor ascendido o trasladado tuviera que regresar, a su vez, al puesto que ocupaba.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 54 al 57 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 57 al 64 actual)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 64 al 70 actual)

@@ -1,7 +1,5 @@
-Artículo 39.- Incentivos salariales. Los profesionales integrantes de dicha Dirección tendrán derecho a los siguientes incentivos salariales:
-a) El sesenta y cinco por ciento (65%) a la base por concepto de prohibición.
-b) Carrera profesional de acuerdo con la reglamentación vigente en los ministerios de Gobernación y Policía, y de Seguridad Pública.
-c) Un veinticinco por ciento (25%) a la base por concepto de disponibilidad.
-d) Anualidades conforme a los parámetros vigentes para los ministerios de Gobernación y Policía, y de Seguridad Pública.
-e) Riesgo Policial conforme a los parámetros vigentes para los ministerios de Gobernación y Policía, y de Seguridad Pública.
-(Así adicionado por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)
+CAPITULO III
+De la Reserva de las Fuerzas de Policía
+Artículo 39º—Naturaleza de la Reserva
+El Presidente de la República podrá organizar y convocar, con carácter transitorio, a la Reserva de las fuerzas de policía, como cuerpo auxiliar extraordinario, con carácter ad honórem, para atender estados de emergencia o situaciones excepcionales.
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 33 al 39 actual)

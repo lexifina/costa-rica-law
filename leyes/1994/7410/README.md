@@ -1,6 +1,6 @@
 # Ley General de Policía
 
-Ley N° 7410 del 1994-05-26. SINALEVI, ficha 66525: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66525&param2=78382&param3=1>.
+Ley N° 7410 del 1994-05-26. SINALEVI, ficha 66525: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66525&param2=78414&param3=1>.
 
 Publicada en La Gaceta N° 103 del 1994-05-30.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 19 | 2001-03-23 | Ley 8096 | 2001-03-15 |
 | 4 de 19 | 2003-05-21 | Sala Constitucional, resolución 4368 (2003-05-21) | 2003-05-21 |
 | 5 de 19 | 2003-05-21 | Ley 8395 | 2003-12-01 |
+| 6 de 19 | 2005-08-06 | Ley 8449 | 2005-06-14 |

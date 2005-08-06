@@ -1,4 +1,5 @@
-Artículo 68°—autorización para movilizaciones
-Todos los miembros de las fuerzas de policía podrán ser movilizados a cualquier parte del territorio nacional, por el tiempo necesario, a juicio del ministro del ramo.
-(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 58 al 61 actual)
-(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 61 al 68 actual)
+Artículo 68°—Nombramientos provisionales
+A instancia de cualquier jerarca de las fuerzas de policía, el Consejo de Personal podrá llenar, de inmediato y en forma provisional, los puestos vacantes. Para ello, escogerá a los candidatos elegibles, según el registro respectivo llevado por el Departamento de Personal. En caso de agotarse la lista de elegibles, el Consejo de Personal procederá a instalar, provisionalmente, a quienes hayan presentado una solicitud de ingreso al servicio, previo cumplimiento de las pruebas psicológicas y por un plazo no mayor de nueve meses. Pasado este lapso, la instalación provisional deberá terminarse.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 52 al 55 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 55 al 62 actual)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 62 al 68 actual)

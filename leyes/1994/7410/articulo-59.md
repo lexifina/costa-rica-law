@@ -1,18 +1,6 @@
-(*)CAPITULO IV
-Ingreso a las fuerzas de policía y nombramientos
-(*)(Así corrida la numeración del capítulo anterior por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo capítulo III al IV actual)
-Artículo 59°—Requisitos
-Para ingresar al servicio de las fuerzas de policía, se requiere:
-a) Ser costarricense.
-b) Ser mayor de dieciocho años y ciudadano en el ejercicio pleno de sus derechos.
-c) Jurar fidelidad a la Constitución Política y a las leyes.
-d) No contar con antecedentes penales en el Registro Judicial de Delincuentes.
-La inscripción en registros policiales obligará a estudiar profundamente la vida y costumbres del solicitante, a fin de establecer su idoneidad.
-e) Poseer aptitud física y moral para el desempeño idóneo del cargo.
-f) Someterse a las pruebas y los exámenes que esta Ley y sus Reglamentos exijan.
-g) Ser escogido de las listas confeccionadas mediante los procedimientos establecidos en este Estatuto y sus Reglamentos.
-h) Haber concluido el tercer ciclo de la Enseñanza General Básica.
-i) Pasar satisfactoriamente el período de prueba previsto en esta Ley.
-j) Cumplir con cualquier otro requisito que establezcan la presente Ley, sus reglamentos y demás disposiciones aplicables.
-(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 49 al 52 actual)
-(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 52 al 59 actual)
+Artículo 59.- Uniformes
+Los uniformes que utilizará la Fuerza Pública serán de color azul y deberán confeccionarse con un diseño netamente policial. Se exceptúan de esta norma las unidades que presten servicio en zonas fronterizas y las unidades especializadas que, por sus funciones, requieran un atuendo diferente. El Ministerio de Seguridad Pública reglamentará los tipos de uniformes por utilizar dentro de cada unidad especializada.
+De igual manera, los vehículos que la Fuerza Pública adquiera y opere deberán ser del color azul o blanco, los cuales serán exigidos en todos los procesos de adquisición de dicho equipo.
+Exceptúanse de lo dispuesto en el párrafo anterior los vehículos automotores asignados a unidades especializadas que, por el carácter encubierto de sus labores policiales, deban mantener la confidencialidad de su naturaleza.
+(Así adicionado por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 53 al 59 actual)

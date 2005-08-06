@@ -1,5 +1,7 @@
-Artículo 46°—Servidores no cubiertos por el Estatuto. No estarán cubiertos por la disposición del inciso a) del artículo 59 de este Estatuto y, en consecuencia, no gozarán de inamovilidad en sus puestos, en los siguientes funcionarios.
-a) Ministros y viceministros, asesores y empleados de confianza.
-b) El director general administrativo, el director general de la Fuerza Pública, los directores y subdirectores regionales de esta, el director del Servicio de Vigilancia Aérea y el director de la Policía de Control de Drogas.
-(Así reformado por el artículo 4 aparte a) de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)
-(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 43 al 46 actual)
+(*)CAPITULO V
+Disposiciones varias sobre las Fuerzas de Policía
+(*)(Así corrida la numeración del capítulo anterior por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo capítulo IV al V actual)
+Artículo 46º—Soluciones varias sobre las Fuerzas de Policía
+Los conflictos de competencia entre cuerpos policiales dependientes de un mismo ministerio, serán resueltos por su jerarca. Los conflictos que surjan entre cuerpos policiales dependientes de ministerios distintos los resolverá el Presidente de la República.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 37 al 40 actual)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 40 al 46 actual)
