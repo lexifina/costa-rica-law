@@ -27,8 +27,15 @@ e.2.9.3. Una vez recibido el comprobante del depósito se envía por medio de fa
 e.2.9.4. Se confirma el envío del fax y se adjunta copia del depósito al comprobante de cheque, el cual debe ser archivado en el consecutivo del mismo.
 f. Las ofertas de dicho concurso serán recibidas por la Unidad de Recursos Humanos y enviadas mediante memorando a la Dirección Ejecutiva junto con un cuadro comparativo de los requisitos del puesto, con el fin de que la Dirección Ejecutiva lo remita a Junta Directiva para que esta analice las ofertas recibidas y realice los trámites respectivos ante el ente Contralor según lo indicado en el artículo 6, incisos a, b, c, d y f del presente reglamento. La tabla a utilizar es:
 Ítem a evaluar | Porcentaje | Oferente | Porcentaje obtenido
+Formación: Grado Académico | | |
+Incorporación al Colegio de Profesionales en Contaduría Pública | 40% | |
+Experiencia | 30% | |
+Conocimiento complementarios | 20% | |
+Disponibilidad | 10% | |
+TOTAL | 100% | |
+Grado Académico | | |
+Incorporación al Colegio Profesional de Contadores Públicos. | 60% | |
 Experiencia | 40% | |
-Grado Académico | 40% | |
-Recomendaciones | 20% | |
-Total | 100% | |
+TOTAL | 100% | |
+(Así reformada la anterior tabla en sesión N° 330 del 6 de agosto del 2005)
 g. En caso de que la Contraloría General aprobara o vetara dicho nombramiento se deberá apegar a lo estipulado en el artículo 31 de la Ley de Control Interno.

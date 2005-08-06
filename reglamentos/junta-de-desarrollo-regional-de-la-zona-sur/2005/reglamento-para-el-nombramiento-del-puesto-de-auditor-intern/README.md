@@ -15,3 +15,4 @@ Reglamento para el Nombramiento del Puesto de Auditor Interno de la Junta de Des
 | --- | --- | --- |
 | 1 | 2005-05-13 | la propia norma |
 | 2 | 2005-06-30 | Reglamento 325 (2005-06-30) |
+| 3 | 2005-08-06 | Reglamento 330 (2005-08-06) |
