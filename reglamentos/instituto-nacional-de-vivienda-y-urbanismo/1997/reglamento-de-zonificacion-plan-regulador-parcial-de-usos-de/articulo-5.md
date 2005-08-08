@@ -8,7 +8,7 @@ Aunque existe riesgo por las inundaciones, las consecuencias se pueden minimizar
 De nuevo insistimos en no recomendar la construcción de vivienda en este sector de hacerlo la condición es que el nivel de piso terminado esté a 60 cm arriba de la rasante de la calle a que enfrenta el lote.
 Área Mínima: 220,00 m2.
 Frente Mínimo: 8,00 metros.
-(Así reformado parcialmente por Sesión Ordinaria 1914-2005 celebrada el 6 de junio del 2005)
+(Así reformado parcialmente por Sesión Ordinaria 1914-2005, celebrada el 6 de junio de 2005. Dicha reforma fue reiterada mediante Sesión Ordinaria N° 1930-2005, celebrada el 08 de agosto de 2005).
 Cobertura Máxima: 70% del área del lote.
 Nivel de piso: 60 cm arriba de la rasante.
 Retiros Mínimos: Frontal: 3,00 metros. Posterior 5,00 metros, Laterales: no se exigen, solo en caso de apertura de ventanas, se debe respetar 1,50 metros.

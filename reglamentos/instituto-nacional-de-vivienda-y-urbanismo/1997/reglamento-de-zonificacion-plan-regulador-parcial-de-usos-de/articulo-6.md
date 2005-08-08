@@ -6,7 +6,7 @@ Se permitirán cualquier uso urbano, pero dentro dé los núcleos de población 
 6.2.1 Para la vivienda:
 Frente Mínimo: 8,00 m
 Área Mínima: 220,00 m2
-(Así reformado parcialmente por Sesión Ordinaria 1914-2005 celebrada el 6 de junio del 2005)
+(Así reformado parcialmente por Sesión Ordinaria 1914-2005, celebrada el 6 de junio de 2005. Dicha reforma fue reiterada mediante Sesión Ordinaria N° 1930-2005, celebrada el 08 de agosto de 2005).
 Retiros: FRONTAL 300 m. Posterior: 5,00 m. Laterales: no se exigen, en caso de apertura de ventanas 1.50 m.
 6.2.2 Para el comercio:
 Frente Mínimo: 10,00 m
