@@ -1,0 +1,1 @@
+Artículo 27.—Durante el transcurso de las sesiones del Concejo sólo podrán permanecer en la Sala de Sesiones los Regidores, Síndicos, el Alcalde, sus suplentes el Secretario Municipal, el Auditor Municipal y los Asesores del Concejo.

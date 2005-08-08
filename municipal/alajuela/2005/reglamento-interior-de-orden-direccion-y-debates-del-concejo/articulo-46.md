@@ -1,0 +1,1 @@
+Artículo 46.—Los informes o dictámenes del Comisiones, serán entregados, una vez que se hayan declarados firmes, a la Presidencia Municipal, la que los pondrá en conocimiento de los regidores, por menos veinticuatro horas antes del inicio de la sesión del Concejo Municipal en que se analizará.
