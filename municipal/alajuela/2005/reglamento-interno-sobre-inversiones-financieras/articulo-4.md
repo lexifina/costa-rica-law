@@ -1,0 +1,1 @@
+Artículo 4º—La Dirección de Hacienda Municipal, junto con el flujo de caja proyectado, deberá mantener un programa anual de inversiones, en el que conste los montos, posibles rendimientos y plazos de las mismas.

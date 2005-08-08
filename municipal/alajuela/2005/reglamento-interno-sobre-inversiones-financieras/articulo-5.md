@@ -1,0 +1,1 @@
+Artículo 5º—La Hacienda Municipal constituirá con las entidades registradas, puestos de bolsa, sociedades administradoras de inversión o bancos públicos o de los títulos adquiridos en forma directa, sendos portafolios de inversión, cuya estructura deberá mantener códigos por tipo de inversión, monto, rendimiento, precio de mercado y plazo.

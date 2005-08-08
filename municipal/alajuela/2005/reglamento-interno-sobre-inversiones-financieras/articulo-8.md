@@ -1,0 +1,1 @@
+Artículo 8º—La Contabilidad Municipal registrará el valor de las inversiones a su precio de compra, en el momento que ocurra, efectuará los ajustes mensualmente con base en el precio de mercado vigente el último día hábil del mes y conciliará mensualmente la cuenta de “Inversiones” con la Tesorería Municipal.
