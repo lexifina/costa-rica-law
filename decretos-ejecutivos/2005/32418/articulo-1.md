@@ -9,4 +9,5 @@ Considerando:
 4º—Que mediante oficio STAP-Circular–0435-04, del 14 de abril del 2004, se comunicó al INCOP el gasto presupuestario máximo fijado para el año 2005.
 5º—Que por lo anterior, resulta necesario modificar el gasto presupuestario máximo fijado al INCOP para el 2005. Por tanto:
 DECRETAN:
-Artículo 1º—Modificase para el Instituto Costarricense de Puertos del Pacífico, el gasto presupuestario máximo fijado para el año 2005, establecido en el artículo 1º del Decreto Ejecutivo Nº 31708-H, publicado en La Gaceta Nº 62 del 29 de marzo del 2004, y sus reformas, de manera que éste no podrá exceder la suma de ¢7.407.5 millones, en ese período.
+Artículo 1º—Modificase para el Instituto Costarricense de Puertos del Pacífico, el gasto presupuestario máximo fijado para el año 2005, establecido en el artículo 1º del Decreto Ejecutivo Nº 31708-H, publicado en La Gaceta Nº 62 del 29 de marzo del 2004, y sus reformas, de manera que éste no podrá exceder la suma de *¢23.667.4 millones, en ese período.
+(*Así reformado el anterior monto por el artículo 1° del decreto ejecutivo N° 32610 del 8 de agosto del 2005)

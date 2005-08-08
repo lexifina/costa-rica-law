@@ -14,3 +14,4 @@ Modifica al Instituto Costarricense de Puertos del Pacífico el gasto presupuest
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-17 | la propia norma |
+| 2 | 2005-08-08 | Decreto Ejecutivo 32610 (2005-08-08) |
