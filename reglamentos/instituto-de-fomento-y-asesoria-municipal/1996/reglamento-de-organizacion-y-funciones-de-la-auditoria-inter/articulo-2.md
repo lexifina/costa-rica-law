@@ -1,2 +1,1 @@
-Artículo 2º—La Auditoría Interna realizará al menos una vez por semestre, la fiscalización del cobro de los impuestos a los licores nacionales, extranjeros y cerveza nacional que percibe el IFAM. Como parte de esa fiscalización, elaborará los informes correspondientes, y los remitirá a la Junta Directiva, Presidencia y Dirección Ejecutiva para los trámites siguientes.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Extraordinaria No. 3277, celebrada el 24 de abril de 2003, publicada en La Gaceta No. 122 de 26 de junio de 2003.)
+Artículo 2º—Así Derogado en sesión N° 3497 del 8 de agosto del 2005.

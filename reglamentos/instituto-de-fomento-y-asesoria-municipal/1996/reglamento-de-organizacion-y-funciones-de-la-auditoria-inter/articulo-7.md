@@ -6,7 +6,8 @@ c) Evaluar los sistemas de control interno en relación con los aspectos contabl
 ajustes necesarios.
 d) Verificar que tos bienes patrimoniales se hallen debidamente controlados, contabilizados y protegidos contra pérdida, deterioro o mal uso.
 e) Asesorar a la Junta Directiva, Presidencia Ejecutiva y Dirección Ejecutiva en las materias de su competencia, por medio de informes sobre los resultados de sus intervenciones, O en la forma en que sea solicitada.
-f) Realizar evaluaciones de auditoria para verificar el cálculo y pago de los impuestos sobre licores y cerveza que percibe el IFAM.
+f) Evaluar las labores de “Administración tributaria” que el Instituto realiza con relación a los impuestos sobre la cerveza nacional y los licores nacionales y extranjeros.
+(Así reformado en sesión N° 3497 del 8 de agosto del 2005)
 g) Verificar que los recursos financieros, materiales y humanos de que dispone la Institución, sean militados con eficiencia y economía.
 h) Verificar si los funcionarios que les corresponde, aplican las recomendaciones que contienen los informes de la Auditoría Interna, de la Contraloría General de la República y de firmas de auditores estemos,
 i) Elaborar un plan anual de trabajo, sobre las intervenciones de auditoría y estudios especiales que serán realizados.
