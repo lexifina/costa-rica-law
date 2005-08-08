@@ -1,0 +1,1 @@
+Artículo 17.—De las regulaciones: Lo no regulado por el presente Reglamento, Estatutos de la Asociación y Reglamento Interno del Museo, rige supletoriamente lo dispuesto por la Ley General de la Administración Pública, en materia de Órganos Colegiados.

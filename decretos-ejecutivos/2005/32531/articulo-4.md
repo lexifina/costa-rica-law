@@ -1,0 +1,13 @@
+Artículo 4º—De la organización y funcionamiento: Para su organización y funcionamiento administrativo, el Museo de Guanacaste, deberá contar con personería jurídica propia e independiente, para esto se requiere que se constituya una asociación denominada “Asociación Administradora del Museo de Guanacaste”, con un mínimo de diez personas que serán los socios fundadores y de ellos se nombrará a los miembros de la Junta Administrativa y Fiscalía. Los representantes del Poder Ejecutivo y de las otras entidades, por acuerdo de cada uno de éstos, serán los encargados de designar la o las personas que representará la Institución para que forme parte de la asociación, la cual deberá estar integrada en la medida de lo posible por los siguientes miembros:
+a) Un representante de la sede de Guanacaste de la Universidad de Costa Rica.
+b) Un representante de la Dirección Regional de Ministerio de Cultura, Juventud y Deportes.
+c) Un representante del Área de Conservación Guanacaste del Ministerio de Ambiente y Energía.
+d) Un representante de la Federación de Municipalidades de Guanacaste.
+e) Un representante de la Municipalidad de Liberia.
+f) Un representante de la Asociación para la Cultura Subregión de Liberia.
+g) Un representante de la Asociación de Amigos del Museo de Guanacaste.
+h) Un representante del Ministerio de Educación Pública, ya sea de la Dirección Regional de Liberia, o de otra Dirección Regional de la provincia.
+i) Un representante de la Cámara Liberiana de Turismo.
+j) Un representante de la Federación de Uniones Cantonales Sector Noreste de Guanacaste.
+Se autoriza a las personas que representaran el Poder Ejecutivo y de las otras entidades, que formarán parte de la asociación, para que comparezcan ante notario público de su confianza, a efecto de crear el Pacto Constitutivo de la “Asociación Administradora del Museo de Guanacaste”, según lo regulado en la Ley de Asociaciones Nº 218, sus reformas y Reglamento. El pago por concepto de honorarios, inscripción y de publicación del edicto de creación de la asociación, correrán por cuenta de los socios fundadores.
+Si en el futuro algunas de las instituciones estatales o privadas, a las aquí indicadas dejara de ejercer su actividad en la región, esto no inhabilitará el ejercicio de la Asociación Administradora del Museo de Guanacaste, por lo que facultativamente podrán ser sustituidas por otras nuevas instituciones u organizaciones, que en el futuro vayan a desarrollar su actividad de educación, conservación, comercial o de servicio, entre otras, esto siempre y cuando demuestren un interés general en la investigación, educación, promoción, difusión y conservación del patrimonio cultural y natural de la provincia.

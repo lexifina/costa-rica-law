@@ -1,0 +1,1 @@
+Artículo 2º—Del objetivo general: El Museo de Guanacaste tendrá como objetivo general la investigación, promoción, difusión y conservación del patrimonio cultural y natural de la provincia de Guanacaste con el .n de estimular la identidad regional de sus habitantes.
