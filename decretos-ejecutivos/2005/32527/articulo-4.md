@@ -1,0 +1,1 @@
+Artículo 4.—Las solicitudes de fijación del precio mencionado en el presente, serán realizadas por RECOPE o por el ente Regulador de oficio, por cuanto las variaciones de precio del combustible para la Flota Pesquera Nacional no Deportiva, se harán siguiendo las mismas variaciones ordinarias y extraordinarias solicitadas por RECOPE.
