@@ -19,3 +19,4 @@ Reglamento a la Ley de Loterías.
 | 4 | 2004-01-08 | Decreto Ejecutivo 31615 (2004-01-08) |
 | 5 | 2004-01-20 | Decreto Ejecutivo 31823 (2004-01-20) |
 | 6 | 2004-10-22 | Decreto Ejecutivo 32141 (2004-10-22) |
+| 7 | 2005-08-09 | Decreto Ejecutivo 32739 (2005-08-09) |
