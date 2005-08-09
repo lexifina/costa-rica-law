@@ -1,0 +1,1 @@
+Artículo 3º—Coordinación. El sistema de aprobaciones y autorizaciones será coordinado por el Gerente de Proyecto designado por el Consejo Nacional de Concesiones. Todas las comunicaciones escritas y presentaciones de documentos que el concesionario deba remitir o realizar, deberán estar dirigidas al coordinador.
