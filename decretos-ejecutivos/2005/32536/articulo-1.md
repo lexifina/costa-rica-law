@@ -1,0 +1,10 @@
+Nº 32536
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 28 párrafo segundo de la Ley Nº 6227 del 2 de mayo de 1978 “Ley General de la Administración Pública”, 1 y 2 de la Ley Nº 5395 del 30 de octubre de 1973 “Ley General de Salud”, 48 bis de la Ley Nº 5412 del 8 de noviembre de 1973 y sus reformas “Ley Orgánica del Ministerio de Salud”, y 32 de la Ley Nº 4760 del 4 de mayo de 1971 “Ley de Creación Instituto Mixto de Ayuda Social” y
+Considerando:
+1°—Que el artículo 48 Bis de la Ley Orgánica del Ministerio de Salud, señala que las personas físicas o jurídicas, privadas o públicas, que requieran permisos o autorizaciones del Ministerio de Salud relativos al control de los factores físicos, químicos biológicos y sociales que afecten el ambiente humano, contribuirán económicamente con el pago del servicio conforme a las normas que dicte el Ministerio de Salud y con las limitaciones establecidas en la Ley de la Administración Financiera de la República.
+2°—Que mediante Decreto Ejecutivo Nº 32161-S del 9 de setiembre del 2004, publicado en La Gaceta N° 255 del 29 de diciembre del 2004, el Poder Ejecutivo emitió el Reglamento de Registro Sanitario de Establecimientos Regulados por el Ministerio de Salud, para proceder con el cobro del servicio que brinda el Ministerio.
+3°—Que el artículo 32 de la Ley Nº 4760 del 4 de mayo de 1971, Ley de Creación del Instituto Mixto de Ayuda Social, contempla que el Poder Ejecutivo determinará, por medio de decreto, los términos y condiciones en que los ministerios, de acuerdo con su naturaleza deberán participar en la lucha contra la pobreza a través del IMAS. Por tanto,
+DECRETAN:
+Artículo 1º—Se exonera del pago del servicio autorizado en el 48 bis de la Ley Orgánica del Ministerio de Salud Nº 5412 del 8 de noviembre de 1973 y sus reformas, establecido en el Reglamento de Registro Sanitario de Establecimientos Regulados por el Ministerio de Salud, a los beneficiarios del Instituto Mixto de Ayuda Social.
