@@ -103,7 +103,7 @@ Actividades de servicios relacionadas extracción de petróleo y gas, excepto de
 12. Extracción de minerales de uranio y torio | Extracción de minerales de uranio y torio | 1200 | Todas. | | |
 14. Explotación de minas y canteras | Extracción, a cielo abierto y subterránea, de minerales metalíferos no ferrosos y ferrosos | 1320 | Todas. | | |
 Prospección y exploración minera. | | Exploración geológica – minera, con uso de maquinaria, incluyendo la perforación de pozos | Prospección geológica con uso de maquinaria, sin perforación de pozos | Prospección geológica sin uso de maquinaria |
-Extracción a cielo abierto, de piedras de construcción, piedra de talla, arcilla, talco, dolomita, arena y grava. | 1410 | Volumen a extraer mayor que 50 000 m3 | Volumen a extraer mayor que 20 000 m3 y menor o igual que 50 000 m3 | Volumen a extraer menor o igual que 20 000 m3 |
+Extracción a cielo abierto (canteras o cauces de dominio público), de piedras de construcción, piedra de talla, arcilla, talco, dolomita, arena y grava. (Así reformado por el artículo 13 del Decreto Ejecutivo N° 32734 del 09 de agosto de 2005). | 1410 | Volumen a extraer mayor que 50 000 m3 | Volumen a extraer mayor que 20 000 m3 y menor o igual que 50 000 m3 | Volumen a extraer menor o igual que 20 000 m3 |
 | Extracción subterrránea, de piedras de construcción, piedra de talla, arcilla, talco, dolomita, arena, grava y otros. | 1410 | Todas | | |
 Extracción de minerales para la fabricación de abonos y productos químicos. | 1421 | Todas | | |
 Extracción de sal. | 1422 | Todas | | |
@@ -119,7 +119,6 @@ Elaboración y conservación de frutas y vegetales (legumbres, hortalizas, raíc
 Elaboración y conservación de frutas y vegetales (legumbres, hortalizas, raíces y tubérculos): deshidratación, congelación, cocido, inmersión en aceite, vinagre o salmuera. Salsas y sopas | 1513 | | GE | ME | PE
 Elaboración de aceites y grasas animales o vegetales | 1514 | GE | ME | PE |
 Elaboración de productos lácteos: Clasificación, filtración, inspección y refrigeración de crema y leche entera fresca y líquida, elaboración de: yogur, quesos, cuajada, suero, mantequilla, refrescos a partir de leche, ponche, rompope, helados y similares. | 1520 | GE | ME | PE |
-| | | | | | | |
 | | Productos de molinería. Elaboración de: harinas, sémolas, cereales en grano; molienda, descarillado, pulido, blanqueado de arroz; cereales para desayuno; molienda de legumbres, raíces y tubérculos, harina y masa mezclada y preparadas. Almidones y derivados. | 1531 | | GE | ME | PE
 | | Elaboración (manufactura) de Productos de panadería y pastelería: pan, pasteles, galletas, bollos, etc. | 1541 | | GE | ME | PE
 | | Fábricas y refinería de azúcares: Azúcares en bruto, refinada, jarabes y otros azúcares (azúcar de arce, azúcar invertido, azúcar, azúcar de palma), Producción de Melazas | 1542 | GE | ME | PE |
@@ -131,7 +130,6 @@ Elaboración de productos lácteos: Clasificación, filtración, inspección y r
 | | Elaboración (manufactura) de bebidas fermentadas, como la producción de cerveza, vino y otros | 1553 | GE | ME | PE |
 | | Industrias de bebidas no alcohólicas y aguas minerales y naturales. Bebidas aderezadas con jugos de frutas, jarabes y otras sustancias. Bebidas gaseosas | 1554 | GE | ME | PE |
 | | | | | | |
-| | | | | | | |
 | División | Descripción de la Actividad | CIIU3 | A | B1 | B2 | C
 D. Industrias manufactureras | 17. Fabricación de productos textiles | Preparación e hilaturas de fibras textiles; tejedura de productos textiles. Preparación de fibras, producción de fibras a partir de hilachas, hilatura, fabricación de hilados e hilos para tejeduría y costura, fabricación de tejidos. | 1711 | GE | ME | PE |
 Proceso de textiles. Blanqueo, teñido, calandrado, perchado, encogimiento y estampado de tejidos no producidos en la misma unidad | 1712 | GE | ME | PE |
@@ -233,12 +231,12 @@ Fabricación de gas; distribución de combustibles gaseosos por tuberías | 4020
 Suministro y distribución comercial de vapor (no se incluyen las de autoconsumo) | 4030 | Mayor que 62 500 kW -h térmico | Menor que 62 500 kW - h térmico y mayor que 21 875 kW - h térmico | menor que 21 875 kW - h térmico | .
 | | Descripción de la Actividad | CIIU 3 | A | B1 | B2 | C
 | 41. Captación, depuración y distribución de agua | Trasvase de aguas y modificación de cauces | 4100 | Todas | | |
-Aprovechamiento (concesión) de aguas superficiales, si no forma parte integral de un proyecto. | | mayor que 200 m3/día | de 50 hasta 200 m3/día | de 5 hasta 50 200 m3/día | de 0 hasta 5 m3/día
-Aprovechamiento (concesión) de aguas subterráneas, si no forma parte integral de un proyecto. | | mayor que 200 m3/día | de 50 hasta 200 m3/día | de 5 hasta 50 200 m3/día | de 0 hasta 5 m3/día
+(La descripción correspondiente fue derogada por el artículo 14 del Decreto Ejecutivo N° 32734 del 09 de agosto de 2005). | | mayor que 200 m3/día | de 50 hasta 200 m3/día | de 5 hasta 50 200 m3/día | de 0 hasta 5 m3/día
+(La descripción correspondiente fue derogada por el artículo 14 del Decreto Ejecutivo N° 32734 del 09 de agosto de 2005). | | mayor que 200 m3/día | de 50 hasta 200 m3/día | de 5 hasta 50 200 m3/día | de 0 hasta 5 m3/día
 F. Construcción | 45. Construcción | Modificación del terreno (desmonte y movimiento de tierras) Movimiento de tierras cuando no sea parte integral de la primera etapa de un proyecto de infraestructura. Zona Urbana | 4510 | | > 1,000 m3 | 201 - 1,000 m3 | 0-200 m3
 Modificación del terreno (desmonte y movimiento de tierras) Movimiento de tierras cuando no sea parte integral de la primera etapa de un proyecto de infraestructura. Zona Rural | | | > 1,000 m3 | 0 - 1,000 m3 |
-Construcción y operación de edificaciones. Zona Urbana | 4520 | > 10,000 m2 de construcci ón | 5,000 - 10,000 m2 de construcción | 1,000 - 4,999 m2 de construcción | 0 - 999 m2 de construcci ón
-Construcción y operación de edificaciones. Zona Rural | 4520 | > 10,000 m2 de construcci ón | 5,000 - 10,000 m2 de construcción | 0 -4,999 m2 de construcción |
+Construcción y operación de edificaciones. Zona Urbana.Excepto las viviendas uni-Familiares y edificaciones de hasta 300 metros cuadrados de construcción en dos pisos o menos. (Así reformado por el artículo 13 del Decreto Ejecutivo N° 32734 del 09 de agosto de 2005). | 4520 | > 10,000 m2 de construcci ón | 5,000 - 10,000 m2 de construcción | 1,000 - 4,999 m2 de construcción | 0 - 999 m2 de construcci ón
+Construcción y operación de edificaciones. Zona Rural. Excepto las viviendas unifamiliares y edificaciones de hasta 300 metros cuadrados de construcción en dos pisos o menos. (1) La calificación final de la actividad, obra o proyecto, será la de la categoría de IAP más alta. (Así reformado por el artículo 13 del Decreto Ejecutivo N° 32734 del 09 de agosto de 2005). | 4520 | > 10,000 m2 de construcci ón | 5,000 - 10,000 m2 de construcción | 0 -4,999 m2 de construcción |
 Construcción de edificios industriales y de almacenamiento, cuando no tengan relación directa con la operación | | > 10,000 m2 | 3,000 - 10,000 m2 | 500 - 2,999 m2 | 0 - 499 m2
 Construcción y operación de hoteles, albergues, complejos turísticos y clubes campestres. | 5510 | > 10,000 m2 | 5,000 - 10,000 m2 | 1000 - 4,999 m2 | 0 - 999 m2
 Construcción y operación de hospitales y clínicas | | Todas | | |

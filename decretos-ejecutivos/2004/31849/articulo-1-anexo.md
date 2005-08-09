@@ -1,3 +1,5 @@
+Anexo 1.
+(Así incorporado el título anterior por el artículo 12 del Decreto Ejecutivo N° 32734 del 09 de agosto de 2005).
 Listado de proyectos, obras y actividades obligados según leyes
 específicas a cumplir el proceso de Evaluación de Impacto Ambiental
 o de Estudio de Impacto Ambiental ante la SETENA
