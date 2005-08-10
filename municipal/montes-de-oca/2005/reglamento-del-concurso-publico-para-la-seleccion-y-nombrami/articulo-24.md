@@ -1,0 +1,3 @@
+Artículo 24.—Del refrendo de la Contraloría General de la República. Una vez concluido el proceso anterior, la Comisión Especial someterá ante la Contraloría General de la República el expediente del concurso, para que esta la apruebe o impruebe.
+En caso de que la Contraloría apruebe el procedimiento, el expediente se traslada al Concejo Municipal para que proceda con el nombramiento de entre los candidatos elegibles de la terna.
+En caso de que la Contraloría impruebe el procedimiento, el mismo debe ser subsanado, rectificado o reiniciado, de conformidad con lo que al respecto señale la Contraloría General de la República.

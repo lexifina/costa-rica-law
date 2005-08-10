@@ -1,0 +1,1 @@
+Artículo 28.—Fin del nombramiento. En caso de inconformidad con el nombramiento realizado, antes de que finalice el período de prueba, se cesa el nombramiento debidamente justificado, y se deberá proceder a un nuevo nombramiento de entre los candidatos elegibles de la terna, o del registro de elegibles según corresponda.

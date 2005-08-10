@@ -1,0 +1,1 @@
+Artículo 20.—Conformación de la Terna. Del registro de elegibles se procederá a conformar una nómina o terna con las tres personas que hayan obtenido la más alta calificación de entre los elegibles, de entre los cuales se deberá escoger al nuevo Auditor Interno.

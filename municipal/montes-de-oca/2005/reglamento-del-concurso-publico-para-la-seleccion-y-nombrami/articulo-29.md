@@ -1,0 +1,1 @@
+Artículo 29.—Normas supletorias. En aquellos casos que este reglamento sea omiso, se aplicará supletoriamente la normativa conexa, la establecida en el Reglamento Autónomo de Servicio, el Código Municipal y el Código de Trabajo.

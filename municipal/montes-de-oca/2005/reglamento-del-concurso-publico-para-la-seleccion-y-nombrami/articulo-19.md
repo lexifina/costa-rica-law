@@ -1,0 +1,2 @@
+Artículo 19.—Vigencia del Registro de Elegibles. La condición de elegible se mantendrá y aplicará por un lapso no mayor a dos años, después de efectuado el concurso. No obstante, dicho plazo de vigencia podrá ser variado mediante resolución fundada, emitida por el Concejo Municipal.
+Igualmente, mediante resolución fundada del Concejo Municipal, el registro de elegibles caducará en caso de que se varíen sustancialmente los requisitos u otras condiciones en relación con las que dieron origen al Concurso Público con el que se constituyó dicho Registro de Elegibles.
