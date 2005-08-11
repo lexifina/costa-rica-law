@@ -14,3 +14,4 @@ Reglamento Corporativo para la Prevención, Detección y Control de la Legitimac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-12 | la propia norma |
+| 2 | 2005-08-11 | Reglamento 4326 (2005-08-11) |
