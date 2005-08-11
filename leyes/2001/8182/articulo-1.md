@@ -5,3 +5,4 @@ Modificación de la Ley N° 8050, " Ley de Presupuesto Ordinario y Extraordinari
 ARTÍCULO 1: Modifícase el artículo 1°, inciso a) de la Ley N° 8050 de 7 de diciembre del 2000, en la forma que se indica a continuación: (.....)
 (Por lo extenso de su contenido, véase el Alcance No.86 a La Gaceta No.237 de 10 de diciembre del 2001, p.1)
 (Así reformado por el artículo 10 inciso 3 de la Ley N° 8424 del 30 de setiembre del 2004)
+(Así reformado por el artículo 7° inciso 24 de la Ley N° 8453 del 22 de julio del 2005, publicado en el Alcance N° 28 a la Gaceta N° 154 del 11 de agosto del 2005)
