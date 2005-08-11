@@ -1,0 +1,1 @@
+Artículo 5°.- Para efectos de la ejecución del Programa de Fomento de la Producción Agropecuaria Sostenible, registro contable 110 182-00 731 52 241 40 200, se le otorga a la Unidad Ejecutora del Proyecto (UCP) personalidad jurídica instrumental para el manejo de los recursos del programa.
