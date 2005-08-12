@@ -1,0 +1,5 @@
+Artículo 9º—Zona Vial. (ZV)
+a) Propósitos: Zona destinada a mejorar las condiciones de accesibilidad, tanto del habitante local, como del visitante a la playa y sus servicios.
+b) Localización: De acuerdo al Mapa Nº 17, Anexo Nº 5, corresponde a las zonas identificadas con la simbología ZV, expresadas fundamentalmente por vías y áreas de estacionamiento. En el caso de este Plan Regulador existe una vía localizada en la zona pública, específicamente en el sector entre mojones 281 y 302, la cual, por las condiciones topográficas del sector, fue imposible de reubicar.
+Esta vía deberá de someterse al trámite necesario para aplicar el artículo 22 de la Ley de Zona Marítimo Terrestre, que permitirá la permanencia de esta calle por Zona Pública.
+c) Usos permitidos: Circulación interna de vehículos automotores, bicicletas, caballos y estacionamiento de vehículos.

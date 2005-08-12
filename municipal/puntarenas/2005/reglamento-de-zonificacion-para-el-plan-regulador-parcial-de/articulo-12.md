@@ -1,0 +1,7 @@
+Artículo 12.—Observaciones Generales.
+a) En general, salvo que no exista otra alternativa, no se permitirá la descarga en la playa de aguas pluviales servidas o aguas negras de las edificaciones que se ubiquen en el área restringida. Si esto fuera inevitable, deberá presentarse un proyecto detallado que asegure que no habrá erosión en la playa, ni existe riesgo de que la descarga pluvial se obstruya. Las construcciones existentes que violan estas disposiciones deberán modificarse en este sentido.
+b) Deberá contar con la autorización respectiva previo cualquier inicio de obras ante el ICT y la Municipalidad de Puntarenas.
+c) Los drenajes pluviales, en general, podrán conducirse hacia las quebradas, siempre y cuando se mitigue el impacto de las aguas a las quebradas y de estas al océano.
+d) Ningún drenaje o construcción podrá ubicarse en un radio menor de 30 m. de los pozos de agua potable. Debe solicitarse al Ministerio de Salud que analice la potabilidad del agua que se extrae de los pozos existentes.
+e) En la línea de frente de la construcción, no se podrán construir vallas sólidas con una altura mayor de un metro. Por sobre esta altura, se podrá colocar únicamente verjas con elementos que permitan la visibilidad tales como rejas, mallas, etc. Se establece un porcentaje de permeabilidad del 80%. Se excluye de esta disposición el caso de los muros de retención.
+f) Ninguna vía pública permitirá el acceso de vehículos motorizados a la playa.
