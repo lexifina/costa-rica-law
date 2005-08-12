@@ -15,5 +15,5 @@ b) La siguiente información básica del o de los posibles sitios:
 (Así reformado por el artículo 1° del decreto ejecutivo N° 31771 de 19 de marzo de 2004)
 c) Población a servir (población de diseño)
 d) Tipo de relleno sanitario propuesto
-e) En el caso de entidades privadas de aseo, deberán presentar carta de la municipalidad respectiva, haciendo constar la posibilidad de delegar en esta empresa la responsabilidad de la disposición final de los desechos ordinarios de su cantón, según condiciones exigidas por el articulo 280 de la Ley General de Salud.
-f) Aprobación del Concejo Municipal de la municipalidad respectiva, salvo en caso de emergencia nacional o calamidad pública debidamente decretada por el Poder Ejecutivo.
+e) Así Derogado por el artículo 2° del decreto ejecutivo N° 32608 del 12 de agosto del 2005.
+f) Así Derogado por el artículo 2° del decreto ejecutivo N° 32608 del 12 de agosto del 2005.

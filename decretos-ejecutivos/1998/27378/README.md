@@ -15,3 +15,4 @@ Reglamento sobre Rellenos Sanitarios
 | --- | --- | --- |
 | 1 | 1998-10-23 | la propia norma |
 | 2 | 2004-04-19 | Decreto Ejecutivo 31771 (2004-04-19) |
+| 3 | 2005-08-12 | Decreto Ejecutivo 32608 (2005-08-12) |

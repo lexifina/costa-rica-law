@@ -16,4 +16,5 @@ m) Diseño de la configuración final del sitio, con su tratamiento paisajístic
 n) Ningún aprovechamiento posterior que implique construcciones, en un plazo mínimo de 20 años.
 ñ) Franja de protección de un mínimo de 20 metros entre el área de disposición de desechos y el lindero de las propiedades vecinas.
 o) Estar ubicado a una distancia que garantice que las zonas de recarga de acuíferos o de fuentes de abastecimiento de agua potable estén libres de contaminación.
-p) Aprobación del permiso de construcción según artículo 13 del presente Reglamento.
+p) Aprobación del visado sanitario de planos para la construcción del proyecto de relleno sanitario, según artículo 13 del presente Reglamento.
+(Así reformado el inciso "p", por el artículo 1° del decreto ejecutivo N° 32608 del 12 de agosto del 2005)

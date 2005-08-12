@@ -1,4 +1,5 @@
-Artículo 13.—Del permiso de construcción: La Dirección de Protección al Ambiente Humano, aprobará el permiso de construcción de relleno sanitario, dentro de los 15 días naturales siguientes al recibo de la solicitud con la información completa.
+Artículo 13.—Del permiso de construcción: La Dirección de Protección al Ambiente Humano, aprobará el visado sanitario de planos para la construcción del proyecto de relleno sanitario, dentro de los 15 días naturales siguientes al recibo de la solicitud con la información completa.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 32608 del 12 de agosto del 2005)
 Para lo cual el interesado deberá presentar ante dicha Dirección los siguientes requisitos:
 a) Memoria de cálculo.
 b) Planos y Manual de Operación y Mantenimiento del proyecto, así como una carta de compromiso de la municipalidad de presentar periódicamente la información contenida en el artículo 19 del presente reglamento.
