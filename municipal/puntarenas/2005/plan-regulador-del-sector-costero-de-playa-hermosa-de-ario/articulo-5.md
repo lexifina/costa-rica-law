@@ -1,0 +1,4 @@
+5.—Sanciones. La contravención de las normas del presente reglamento se sancionará de la siguiente manera:
+A. La instalación de actividades en edificios ya existentes que implique un uso inconciliable con la zonificación indicada, ya sea, un uso conflictivo o un uso condicional no autorizado, se sancionará con la clausura del local sin perjuicio de la responsabilidad penal en que se incurra.
+B. El Concejo Municipal de Puntarenas suspenderá toda obra que se ejecute en contra de la zonificación, pudiendo disponer para ello del auxilio de la fuerza pública.
+C. Se aplicarán además, todas las sanciones civiles y penales contempladas en las leyes correspondientes. Serán acreedores a dichas sanciones, tanto los infractores como los funcionarios responsables del incumplimiento de este reglamento que consiente en la violación del mismo.
