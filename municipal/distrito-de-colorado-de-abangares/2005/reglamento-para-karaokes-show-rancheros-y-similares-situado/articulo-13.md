@@ -1,0 +1,1 @@
+Artículo 13.—El horario en que se desarrollarán estas actividades de karaoke, estará entre las 20 horas hasta las 23 horas (8:00 p.m. a 11:00 p.m.). Durante actividades festivas podrán autorizarse durante el día.

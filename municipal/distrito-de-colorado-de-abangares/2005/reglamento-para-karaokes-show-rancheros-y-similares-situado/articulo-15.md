@@ -1,0 +1,1 @@
+Artículo 15.—Sanciones. La violación a lo dispuesto en este Reglamento originará las sanciones previstas en el Código Municipal, Ley de Espectáculos Públicos, Ley de Impuesto de Patentes del Concejo Municipal del Distrito de Colorado y Código Penal en lo referente a la realización de actividades comerciales sin permiso municipal.

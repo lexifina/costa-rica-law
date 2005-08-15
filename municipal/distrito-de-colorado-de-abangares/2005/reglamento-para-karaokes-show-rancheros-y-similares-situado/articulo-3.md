@@ -1,0 +1,1 @@
+Artículo 3°—Del permiso municipal. Todo negocio que realice actividades sociales en donde se pretenda desarrollar karaoke, deberá contar con el correspondiente permiso municipal para su realización, previa inspección y valoración por los departamentos de Cobros e Inspección Municipal.

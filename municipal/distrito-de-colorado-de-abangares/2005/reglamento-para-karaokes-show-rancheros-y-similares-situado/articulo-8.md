@@ -1,0 +1,1 @@
+Artículo 8°—La persona física o jurídica que desee instalar un karaoke de forma permanente, deberá contar con una patente municipal para esta actividad y cumplir con todos los requisitos que para tal efecto establece la ley.

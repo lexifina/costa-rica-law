@@ -1,0 +1,1 @@
+Artículo 9°—El Concejo Municipal se reserva el derecho de denegar un permiso cuando haya incumplimiento de cualquier disposición de este Reglamento o situaciones especiales que afecten los intereses de la comunidad a criterio de la administración.

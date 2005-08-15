@@ -1,0 +1,1 @@
+Artículo 2°—Definición. Denomínase karaoke al sistema de sonido amplificado utilizado como forma de diversión donde las personas pueden cantar con acompañamiento de pistas musicales pregrabadas. Se entenderá por show ranchero a cualquier tipo de música que se realice en vivo como un atractivo del local comercial.

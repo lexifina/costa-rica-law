@@ -1,0 +1,1 @@
+Artículo 6°—La persona física o jurídica que venda el servicio sea de karaoke, show ranchero o similares a los patentados de negocios de este distrito deberán contar con la licencia municipal al día, según lo establece el artículo 79 del Código Municipal.
