@@ -1,2 +1,2 @@
-Transitorio V.—Excepciones en la Distribución de Trabajo. Para la aplicación del articulo 18 de este Reglamento y en lo que no contravenga su contenido, expresamente se ratifica lo acordado por la Junta Directiva General en el artículo 19° de la sesión número 10.966, celebrada el 2 de marzo de 1999. Únicamente se modifica aquel acuerdo, para que en adelante se lea su epígrafe de la siguiente forma:
-"Lineamientos Generales para la Aplicación del artículo 18 del Reglamento para la Prestación de Servicios Notariales del Banco Nacional de Costa Rica".
+Transitorio V.—Excepciones en la Distribución de Trabajo.
+(Derogado mediante sesión 11338 celebrada el 16 de agosto del 2005)
