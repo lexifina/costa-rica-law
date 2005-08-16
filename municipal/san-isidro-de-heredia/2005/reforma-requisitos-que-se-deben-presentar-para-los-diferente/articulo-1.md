@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE SAN ISIDRO DE HEREDIA
+DEPARTAMENTO DE INGENIERÍA Y CONSTRUCCIONES
+El Concejo Municipal de San Isidro de Heredia, en sesión ordinaria Nº 45-2005, del 1º de agosto de 2005, mediante acuerdo por unanimidad y definitivamente aprobado con dispensa de trámite de Comisión Nº 774- 2005, aprobó modificar el punto 6 de los requisitos para permisos de construcción, los cuales fueron publicados en La Gaceta Nº 120 del 4 de junio de 2002 y se leerá de la siguiente forma:
+“ 6. Alineamientos y Uso de Suelo: Los alineamientos podrán ser otorgados por el MOPT (rutas nacionales), INVU (quebradas, arroyos, nacientes) o por el Departamento de Catastro de esta Municipalidad (carreteras cantónales) y deberá de contar con el Uso de Suelo conforme con la actividad presentada, todo de acuerdo con el Decreto 25902 MIVAH-MP-MINAE, III.3.7.1 del Reglamento del Control Nacional de Fraccionamientos y Urbanizaciones, art. 33 y 34 de la Ley Forestal, artículo 19 de la Ley de Caminos Públicos y artículo 18 de la Ley de Construcciones”.
+San Isidro de Heredia, 4 de agosto de 2005.
