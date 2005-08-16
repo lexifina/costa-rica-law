@@ -1,1 +1,2 @@
-Artículo 15.—Todos los uniformes o prendas que sean suministradas a los funcionarios o grupos de trabajo, según lo expuesto en el artículo 4º de este Reglamento, deberán llevar el logotipo de la Institución y el período que corresponde a dicha entrega.
+Artículo 15.—Todos los uniformes o prendas que sean suministradas a los funcionarios o grupos de trabajo, según lo expuesto en el artículo 4º de este Reglamento, deberán llevar el logotipo de la institución y el periodo que corresponde a dicha entrega. Se exceptúa el uso del logotipo en los uniformes de aquellos funcionarios que, por la índole de sus funciones, pueda correr peligro su integridad física.
+(Así reformado en sesión N° 30 del 16 de agosto del 2005)

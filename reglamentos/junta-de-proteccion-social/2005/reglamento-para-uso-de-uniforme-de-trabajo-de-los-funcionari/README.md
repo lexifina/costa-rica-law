@@ -14,3 +14,4 @@ Reglamento para Uso de Uniforme de Trabajo de los Funcionarios de la Junta de Pr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-30 | la propia norma |
+| 2 | 2005-08-16 | Reglamento 30 (2005-08-16) |
