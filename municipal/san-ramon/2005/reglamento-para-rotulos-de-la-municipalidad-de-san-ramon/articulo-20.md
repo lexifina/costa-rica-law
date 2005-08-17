@@ -1,0 +1,2 @@
+Cancelación de licencias
+Artículo 20.—La Municipalidad podrá cancelar la licencia para un anuncio o rótulo de publicidad exterior y ordenar su retiro o demolición a costa del propietario, en caso de no cumplimiento de este reglamento de publicidad exterior, la Municipalidad sancionará a los infractores con la cancelación de la licencia o patente municipal y con el cierre del establecimiento comercial en el cantón, hasta que se ponga a derecho, para lo cual deberá notificarse al trasgresor, quien tendrá un término de quince días hábiles para ponerse a derecho.

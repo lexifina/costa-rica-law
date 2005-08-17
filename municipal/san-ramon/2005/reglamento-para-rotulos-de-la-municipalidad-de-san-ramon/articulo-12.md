@@ -1,0 +1,2 @@
+Anuncios salientes
+Artículo 12.—Se clasifican como anuncios salientes aquellos que proyectan más de la línea de cordón y caño y concordante con lo dispuesto en el artículo 4. Podrán ocupar el ancho mismo de la acera y hasta un metro más, cuando se encuentren colocados a una altura sobre el nivel de acera, superior a 2,8 m y cuyo caso su área máxima permitida será de 3,00 metros cuadrados por cada.

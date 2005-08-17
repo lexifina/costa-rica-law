@@ -1,0 +1,1 @@
+Artículo 5°.—Limitaciones: Los anuncios, dibujos y su colocación, deben ser de tales dimensiones que no desvirtúen los elementos arquitectónicos de las fachadas en que serán colocados, de las que estén cercanas, ni que al proyectarse en la perspectiva de una calle, plaza monumento, alteren su valor arquitectónico.

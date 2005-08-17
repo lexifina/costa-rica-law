@@ -1,0 +1,2 @@
+Rótulos independientes
+Artículo 11.—Únicamente se permitirán rótulos independientes en propiedades con frente a vía pública: con un ancho no inferior a los 10 metros y no más de un rótulo por cada 20 metros de frente de una propiedad, para este tipo de rótulos regirá una altura máxima de 8 metros, lo anterior medible desde el nivel de piso terminado al borde inferior del rótulo. Deberá preverse sobre área pública una altura libre de 3,00 metros del nivel de acera al borde inferior del rótulo, esto para el libre tránsito de peatones.
