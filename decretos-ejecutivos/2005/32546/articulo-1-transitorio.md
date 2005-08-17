@@ -1,0 +1,2 @@
+Transitorio único: Durante los 60 días hábiles posteriores a la entrada en vigencia de este Decreto, el Banco Central de Costa Rica y la Tesorería Nacional, con el apoyo de la Superintendencia General de Valores, procederán a una revisión de los mecanismos de colocación de valores, con el propósito de optimizarlos.
+Dado en la Presidencia de la República.—San José, a los dieciocho días del mes de julio del dos mil cinco.
