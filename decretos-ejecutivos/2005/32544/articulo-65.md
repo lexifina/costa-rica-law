@@ -1,0 +1,1 @@
+Artículo 65.—La Unidad de Recursos Humanos será la dependencia del Ministerio que tendrá a cargo la aplicación del pago de sueldos y los ajustes necesarios en coordinación con la Unidad de Recursos Financieros.

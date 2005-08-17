@@ -1,0 +1,1 @@
+Artículo 50.—Excepto los fraccionamientos decretados por el Poder Ejecutivo, los servidores del Ministerio gozarán sin interrupción del período de vacaciones y éstas solo podrán dividirlas en tres fracciones como máximo y en aquellos casos en que la ausencia prolongada del servidor pudiese causar detrimento en las actividades que se desarrollan en la respectiva dependencia.

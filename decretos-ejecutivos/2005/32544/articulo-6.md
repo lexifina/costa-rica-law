@@ -1,0 +1,1 @@
+Artículo 6º—Misión. El Ministerio de Salud es una entidad líder en la conducción de la producción social de la salud, capaz de convocar a la negociación y concertación de los diversos actores sociales involucrados, apoyada en el pensamiento crítico, trabajo en equipo, participación social y un sistema de información adecuado y oportuno.

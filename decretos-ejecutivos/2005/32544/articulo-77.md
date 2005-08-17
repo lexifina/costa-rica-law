@@ -1,0 +1,1 @@
+Artículo 77.—A solicitud del servidor o del Jefe inmediato, o atendiendo las circunstancias, el Órgano Director del Procedimiento, como medida cautelar, podrá recomendar, la reubicación temporal del denunciado o del denunciante, mientras concluye el proceso administrativo.

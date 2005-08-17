@@ -1,0 +1,1 @@
+Artículo 49.—Queda prohibido la acumulación de vacaciones, salvo cuando el servicio público así lo requiera y a solicitud del servidor, se podrá acumular únicamente un periodo, mediante resolución razonada de la máxima autoridad que así lo autorice, de acuerdo con las disposiciones contenidas en el artículo 159 del Código de Trabajo.

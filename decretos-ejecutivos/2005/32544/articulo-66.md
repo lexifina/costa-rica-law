@@ -1,0 +1,1 @@
+Artículo 66.—La Unidad de Recursos Financieros, será la dependencia responsable de llevar el control presupuestario y de informar a la Unidad de Recursos Humanos sobre cualquier modificación efectuada a la partida presupuestaria de servicios personales, con el fin de asegurar el contenido económico en cada una de las partidas y subpartidas presupuestarias.

@@ -1,0 +1,1 @@
+Artículo 78.—Las sanciones disciplinarias por acoso u hostigamiento sexual, de acuerdo con la gravedad de los hechos, serán las que se indiquen en el siguiente capítulo y en concordancia con los artículos 25 y 27 de la Ley 7476 (Ley contra el Hostigamiento Sexual en el Empleo y la Docencia).

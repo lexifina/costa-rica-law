@@ -1,0 +1,1 @@
+Artículo 31.—En aquellos casos en que el servicio público lo amerite, el Ministro o los Directores del nivel central y regional mediante resolución motivada, podrán modificar transitoriamente los horarios establecidos en el presente Reglamento.

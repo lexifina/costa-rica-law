@@ -1,0 +1,4 @@
+Artículo 89.—El despido se tramitará sin responsabilidad para el Ministerio y ante la Dirección General de Servicio Civil, en los siguientes casos:
+a) Cuando al servidor se le imponga en dos ocasiones una sanción disciplinaria por incurrir en falta de mediana gravedad, e incurra en causal para la tercera sanción por el mismo concepto, aunque no tenga relación con las anteriores, dentro de un período de tres meses consecutivos, ya que se considerará la repetición de infracciones como conducta reincidente y contraria a las obligaciones del contrato o relación de servicio.
+b) En los casos especialmente previstos en este Reglamento.
+c) Cuando el servidor incurra en alguna de las causales de despido contempladas en el Estatuto de Servicio Civil o en su Reglamento, Código de Trabajo y otras leyes conexas.

@@ -1,0 +1,1 @@
+Artículo 34.—Para efectos de pago de la jornada ordinaria, para aquellos servidores que laboran jornada acumulativa los días sábado, domingo y días feriados se pagará doble de acuerdo con el artículo 152 del Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 47.—Cuando el Ministerio de por concluido su relación de servicio con el servidor, con o sin responsabilidad patronal, podrá pagar las vacaciones proporcionales o enviar al servidor al disfrute previo a hacer efectiva la decisión.

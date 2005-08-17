@@ -1,0 +1,1 @@
+Artículo 55.—La Comisión requerirá de previo a otorgar la licencia, como mínimo, el horario de lecciones, detalle de las asignaturas que comprenderá el curso lectivo, la aprobación del jefe inmediato, las calificaciones obtenidas del curso anterior, entre otros.

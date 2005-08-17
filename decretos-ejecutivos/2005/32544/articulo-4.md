@@ -1,0 +1,1 @@
+Artículo 4º—De los responsables de velar que se cumplan las disposiciones contempladas en el presente Reglamento: Serán responsables de velar porque se cumplan las disposiciones reglamentarias todos los funcionarios de la Institución.

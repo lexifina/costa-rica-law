@@ -1,0 +1,5 @@
+Artículo 54.—Para los efectos de este Reglamento, las Becas, licencias para estudio y los permisos para capacitación, se deberán regir por las disposiciones contenidas en el 37 y 38 del Reglamento del Estatuto de Servicio Civil y con base en las siguientes consideraciones:
+a) Tanto las licencias para estudio como los permisos para capacitación deben atender las necesidades institucionales o ser afines con las funciones que realiza el servidor.
+b) El beneficiario de una licencia para estudio o permiso para capacitación, deberá ser sometido a un estudio en donde se determine que ha tenido un buen récord laboral durante su relación de servicio con la Institución.
+c) Que el número de horas semanales que requiera la licencia no exceda de veinticuatro y que además no afecte el normal desarrollo de las actividades propias de la respectiva dependencia, lo que podría ir en detrimento del servicio público. En este caso se requerirá el respectivo informe del jefe inmediato.
+d) Que el servidor se encuentre nombrado en propiedad.

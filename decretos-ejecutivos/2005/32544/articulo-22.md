@@ -1,0 +1,1 @@
+Artículo 22.—Los servidores sin distinción si están nombrados en propiedad, interinos o a tiempo determinado (servidores eventuales) tendrán la posibilidad que se les brinde la debida capacitación y desarrollo complementario, siempre que la normativa lo permita, a través de cursos, seminarios, talleres, congresos y otros.

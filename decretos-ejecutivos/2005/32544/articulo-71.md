@@ -1,0 +1,4 @@
+CAPÍTULO XXI
+Expediente de personal
+Artículo 71.—La Unidad de Recursos Humanos y las Unidades Administrativas Regionales, llevarán un expediente personal de cada uno de los servidores. En él se archivará toda la documentación íntegra y completa, totalmente concatenada, foliada y sellada concerniente a la relación de servicio del funcionario, ordenada cronológicamente.
+El expediente es confidencial; sólo podrá ser examinado por funcionarios autorizados por la Jefatura de la Unidad de Recursos Humanos previa solicitud escrita en el nivel central, por el Jefe de la Unidad Administrativa Regional en dicho nivel, los directores de los tres niveles de gestión, así como el propio funcionario o a quien él delegue su representación. Todos bajo supervisión del responsable de custodiar los expedientes de personal.

@@ -1,0 +1,1 @@
+Artículo 96.—Las sanciones disciplinarias a que se refieren los artículos 93 y 94 del presente Reglamento, y que se presenten dentro de un mismo mes calendario, se aplicarán independiente una de otra.

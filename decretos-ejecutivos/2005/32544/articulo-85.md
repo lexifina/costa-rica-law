@@ -1,0 +1,1 @@
+Artículo 85.—Para los efectos de sanción las faltas en que incurran los servidores se clasificarán como leves, de mediana gravedad o graves, según la importancia o trascendencia de las mismas. Se considera reincidencia la repetición de una falta especí.ca dentro de un período de tres meses consecutivos a partir de la fecha de la primera falta.

@@ -1,0 +1,1 @@
+Artículo 58.—De conformidad con el Plan de Capacitación se promoverá permanentemente un programa de educación continua, con el fin de mejorar las competencias de los servidores del Ministerio, lo cual se regirá bajo la normativa de la Dirección General de Servicio Civil.

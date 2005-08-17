@@ -1,0 +1,3 @@
+CAPÍTULO XIX
+De los movimientos de personal
+Artículo 61.—Ascensos. Se dará prioridad a la promoción interna del personal de la institución vía ascenso directo o por concurso interno, para ocupar cargos vacantes. En tales casos la selección de los servidores que se asciendan, deberá efectuarse en estricto apego a criterios técnicos, mediante lo cual los seleccionados deberán ser escogidos de la respectiva nómina elaborada en la Unidad de Recursos Humanos. Esto de acuerdo con las disposiciones contenidas en el Decreto Ejecutivo Nº 24025-MP del 13 de enero de 1995 y lo establecido en los artículos 20 y 21 del Reglamento del Estatuto de Servicio Civil.

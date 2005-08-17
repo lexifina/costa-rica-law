@@ -1,0 +1,1 @@
+Artículo 102.—El Ministerio facilitará la participación de los funcionarios en programas de capacitación, cuando sufran discapacidad en razón del trabajo que realizan. Esto de acuerdo con el artículo 29 de la Ley Nº 7600 “Ley de Igualdad de Oportunidades para las Personas con Discapacidad”.
