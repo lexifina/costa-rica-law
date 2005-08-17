@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza de la actividad de capacitación. Los contenidos del Programa Anual de Capacitación y Formación de los Recursos Humanos asignados al INCOPESCA, deberán estar estrechamente relacionados con las necesidades institucionales y las funciones desempeñadas por los funcionarios.

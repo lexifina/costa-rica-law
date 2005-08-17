@@ -1,0 +1,1 @@
+Artículo 62.—De las limitaciones. Ningún servidor podrá disfrutar de los beneficios que otorga este Reglamento mientras este pendiente de cumplimiento algún contrato anterior, salvo casos muy calificados, siendo requisito indispensable el criterio de la Comisión y la aprobación de la Junta Directiva.

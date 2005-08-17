@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+De los concursos
+Artículo 36.—Del cartel. Las becas que otorgue el Instituto podrán ser objeto de concurso por oposición, el cual será difundido por medio de un Cartel elaborado por la Sección de Recursos Humanos y visto bueno de la Comisión de Becas. En el Cartel se indicarán todos los requisitos exigidos por la Institución y por el Gobierno que ofrece la beca, así como los bene.cios y aportes que pudieran otorgarse. No obstante de no existir más de un concursante la Comisión de Becas podrá recomendar al único participante ante la Junta Directiva o la Presidencia Ejecutiva para lo que corresponda.

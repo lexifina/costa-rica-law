@@ -1,0 +1,1 @@
+Artículo 51.—De la reincorporación por estudios en el exterior. Tratándose de estudios en el exterior, la reincorporación se hará después del término prudencial que el funcionario requiera para regresar al país, no podrá exceder de un término máximo de dos semanas.

@@ -1,0 +1,1 @@
+Artículo 15.—Asuntos no incluidos en el orden del día. No podrá ser objeto de acuerdo ningún asunto que no .gure en el orden del día de la sesión de la Comisión, salvo que estén presentes los dos tercios del sus miembros, y sea declarada la urgencia del asunto por el voto favorable de la mayoría de ellos.

@@ -1,0 +1,2 @@
+Artículo 14.—De las sesiones. La Comisión deberá sesionar en la fecha, hora y lugar que se señale en las convocatoria, sea esta ordinaria o extraordinaria cuando el caso lo amerite. El quórum para sesionar será mínimo de tres de sus miembros.
+Las sesiones de la Comisión serán privadas, no obstante ésta podrá solicitar la comparecencia de algún funcionario cuando lo estime conveniente igualmente podrá conceder audiencia al funcionario que así lo solicite.

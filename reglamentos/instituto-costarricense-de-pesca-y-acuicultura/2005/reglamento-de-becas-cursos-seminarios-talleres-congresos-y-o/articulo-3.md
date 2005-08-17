@@ -1,0 +1,1 @@
+Artículo 3º—De la partida presupuestaria de capacitación y becas. Para ejecutar las actividades programadas en cuanto a becas, la Comisión de Becas velará por la adecuada ejecución de los recursos presupuestarios destinados para estos .nes. Lo anterior a efectos de que el monto presupuestado sea ejecutado para las actividades indicadas.

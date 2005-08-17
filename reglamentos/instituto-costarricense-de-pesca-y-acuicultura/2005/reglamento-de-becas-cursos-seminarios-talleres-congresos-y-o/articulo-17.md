@@ -1,0 +1,1 @@
+Artículo 17.—De la prohibición. Queda prohibido a los miembros de la Comisión participar y/o votar asuntos en que tengan interés directo o que puedan derivar beneficios personales, en cuyos casos deberán recusarse, conforme a las previsiones del artículo 230 y siguientes de la Ley General de la Administración Pública.

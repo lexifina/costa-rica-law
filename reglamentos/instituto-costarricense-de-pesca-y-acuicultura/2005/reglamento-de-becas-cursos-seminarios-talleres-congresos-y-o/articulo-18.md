@@ -1,0 +1,1 @@
+Artículo 18.—Voto negativo. Los miembros de la Comisión podrán hacer constar en el acta su voto negativo al acuerdo adoptado y los motivos que lo justi.quen, quedando exentos de las responsabilidades que, en su caso, pudieren derivarse de tales acuerdos.

@@ -1,0 +1,1 @@
+Artículo 19.—De las actas. La Comisión levantará un acta de cada sesión, la cual deberá contener la nómina de los miembros presentes, el lugar y hora de la sesión, los aspectos a tratar, los puntos de deliberación, así como el contenido de los considerandos y acuerdos tomados.

@@ -1,0 +1,1 @@
+Artículo 55.—De la custodia del contrato. La versión original de los contratos que se mencionan en este Reglamento, será custodiada por la Sección de Recursos Humanos, la cual debe incluir la documentación del caso en el expediente del respectivo funcionario.

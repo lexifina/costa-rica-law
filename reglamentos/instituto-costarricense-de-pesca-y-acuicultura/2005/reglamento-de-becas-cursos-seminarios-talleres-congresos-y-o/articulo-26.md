@@ -1,0 +1,4 @@
+Artículo 26.—Documentos a presentar. Toda solicitud de participación en los programas de capacitación y formación deberán gestionarse presentando a la Junta Directiva, Presidencia Ejecutiva, o a la Sección de Recursos Humanos, según sea el caso los siguientes documentos:
+a) Solicitud formal mediante un oficio explicativo de la capacitación, formación a recibir, justi.cando su relación laboral e importancia en el campo de su competencia, con el visto bueno de la jefatura inmediata.
+b) Aportar toda la documentación requerida: proformas, constancia de horarios, comprobante de matrícula, aceptación en la Universidad o Instituto de enseñanza superior y otros que sean necesarios.
+c) Los trámites deben realizarse por lo menos con quince días naturales antes del inicio de lecciones tratándose de becas.

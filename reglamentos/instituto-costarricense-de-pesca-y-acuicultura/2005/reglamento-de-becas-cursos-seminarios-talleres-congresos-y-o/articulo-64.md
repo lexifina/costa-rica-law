@@ -1,0 +1,1 @@
+Artículo 64.—De las situaciones no previstas. Los casos no regulados en el presente reglamento serán conocidos por la Comisión de Becas, la que deberá analizar y recomendar una posible solución, a la Presidencia Ejecutiva o Junta Directiva quienes deberán de resolver. Siempre bajo términos que establezcan las Leyes o Reglamentos conexos.

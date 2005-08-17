@@ -1,0 +1,1 @@
+Artículo 59.—De la cancelación de la beca. La Comisión de Becas podrá recomendar a la Junta Directiva la cancelación de becas concedidas, en caso de pérdida de materias cursadas, de expulsión del centro de estudios, de abandono injustificado de los estudios o si el funcionario se niega a suministrar los datos en relación con sus estudios, que le solicite la Comisión de Becas.

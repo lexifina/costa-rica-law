@@ -1,0 +1,1 @@
+Artículo 31.—Del trámite de pago. Una vez aprobados los beneficios, el funcionario presentará al Departamento Financiero los documentos necesarios para la emisión del pago a la empresa o centro de estudios respectivo.

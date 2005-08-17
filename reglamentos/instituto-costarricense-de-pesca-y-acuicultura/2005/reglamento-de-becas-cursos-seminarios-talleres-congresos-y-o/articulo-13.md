@@ -1,0 +1,1 @@
+Artículo 13.—De la convocatoria. Toda convocatoria deberá realizarse por escrito y con al menos dos días de antelación a la fecha propuesta. La secretaría remitirá con la convocatoria, la agenda de los asuntos a tratar en la sesión.

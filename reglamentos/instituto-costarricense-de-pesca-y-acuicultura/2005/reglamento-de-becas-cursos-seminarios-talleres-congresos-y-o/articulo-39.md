@@ -1,0 +1,1 @@
+Artículo 39.—Del estudio de expedientes. Vencido el plazo de recepción de solicitudes la Comisión estudiará los expedientes y evaluara el o los candidatos en un término no mayor de cinco días hábiles, posteriores al cierre del plazo.

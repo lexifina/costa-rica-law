@@ -1,0 +1,1 @@
+Artículo 29.—Del financiamiento de la actividad de capacitación. Las actividades de capacitación solicitados por los funcionarios, serán cubiertos por la institución siempre que exista el contenido presupuestario y en el caso de las becas se regirá por lo establecido en el artículo 22 del presente Reglamento.

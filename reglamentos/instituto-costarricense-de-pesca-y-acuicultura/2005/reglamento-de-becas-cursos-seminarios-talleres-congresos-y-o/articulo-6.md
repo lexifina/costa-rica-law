@@ -1,0 +1,1 @@
+Artículo 6º—En los casos de becas para el territorio nacional, corresponderá a la Presidencia Ejecutiva valorar la recomendación sobre su otorgamiento, una vez recibida la recomendación de la Comisión de Becas. Tratándose de becas en el extranjero, deberá la Presidencia someterlas a conocimiento de la Junta Directiva para su aprobación.

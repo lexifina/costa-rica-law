@@ -1,0 +1,1 @@
+Artículo 23.—En caso de que algún funcionario solicite algún beneficio no contemplado en este Reglamento, que se requiera para cursar estudios en áreas de interés institucional, será la Presidencia Ejecutiva o bien la Junta Directiva la que determine su concesión a solicitud del funcionario.

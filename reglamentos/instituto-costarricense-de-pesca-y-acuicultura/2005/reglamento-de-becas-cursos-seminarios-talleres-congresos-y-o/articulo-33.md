@@ -1,0 +1,1 @@
+Artículo 33.—Beca de organismos internacional. Cuando la beca provenga de un organismo internacional, el Instituto podrá reconocer el gasto de transporte cuando este no sea reconocido por el organismo y pagar el salario a tiempo completo.

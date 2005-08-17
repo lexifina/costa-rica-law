@@ -1,0 +1,1 @@
+Artículo 28.—De la capacitación solicitada por los funcionarios. Los funcionarios podrán solicitar a la Presidencia Ejecutiva o la Junta Directiva, la autorización para recibir actividades de capacitación. En el caso de solicitud de becas, deberá ser presentada ante la Comisión de Becas, que sean de evidente beneficio para el quehacer de la Institución.

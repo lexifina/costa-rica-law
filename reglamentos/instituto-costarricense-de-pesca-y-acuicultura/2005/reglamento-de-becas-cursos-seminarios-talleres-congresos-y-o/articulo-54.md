@@ -1,0 +1,1 @@
+Artículo 54.—Del contenido del contrato. Todo contrato, además de especificar claramente su objetivo, duración, estimación del monto y demás circunstancias especiales, contendrá las obligaciones a que se comprometen las partes.

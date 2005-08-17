@@ -1,0 +1,1 @@
+Artículo 37.—De las excepciones. Por urgencia debida comprobada en becas al exterior y en razón del tiempo en que hubiera recibido la invitación respectiva, con el propósito de aprovechar la actividad, la Comisión en primera instancia podrá proponer una lista con al menos tres candidatos para optar, con las respectivas calificaciones.

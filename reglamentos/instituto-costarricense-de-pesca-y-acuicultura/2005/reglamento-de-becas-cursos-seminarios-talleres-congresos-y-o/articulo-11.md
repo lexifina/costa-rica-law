@@ -1,0 +1,1 @@
+Artículo 11.—De la duración en el cargo de los representantes. Los representantes de los funcionarios de INCOPESCA ejercerán su cargo por un período de dos años. Podrán ser reelectos por períodos alternos.
