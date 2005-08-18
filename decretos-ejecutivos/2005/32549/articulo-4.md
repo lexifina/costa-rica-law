@@ -1,0 +1,1 @@
+4º—El propietario de los inmuebles indicados dará toda la colaboración posible a los funcionarios del Ministerio de Ambiente y Energía, así como a grupos de COVIRENAS, brigadas contra incendios forestales, o voluntarios, con fines de proteger la biodiversidad o realizar actividades de educación ambiental en el Refugio o en el área de influencia del mismo.
