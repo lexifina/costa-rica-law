@@ -1,0 +1,3 @@
+OPERADORA DE PLANES DE PENSIONES COMPLEMENTARIAS DEL BANCO POPULAR Y DE DESARROLLO COMUNALS.A.
+REGLAMENTO COMPLEMENTARIO DE CONTRATACIÓN ADMINISTRATIVA DE LA OPERADORA DE PLANES DE PENSIONES COMPLEMENTARIAS DEL BANCO POPULAR Y DE DESARROLLO COMUNAL S. A.
+Artículo 1º—Fundamento. El presente Reglamento se dicta de conformidad con lo establecido en el artículo 109 de la Ley de Contratación Administrativa y por el artículo 8 del Decreto N° 27503-H "Reglamento para la constitución de Puestos de Bolsa, Sociedades Administradoras de Fondos de Inversión y Operadoras de Pensiones de los Bancos Públicos y del Instituto Nacional de Seguros".

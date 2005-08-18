@@ -1,0 +1,2 @@
+Artículo 7º—Confección de carteles. El cartel será redactado por la Unidad de Compras con la colaboración del Área Usuaria e incluirá todos aquellos aspectos necesarios para asegurar una correcta y eficiente contratación, debiendo incluirse en el expediente todo documento empleado para su confección.
+Si la publicación del cartel consistiere en un extracto de éste, dicha publicación contendrá al menos lo indicado en los numerales 45.1.1 a 45.1.4 del Reglamento General de Contratación Administrativa.
