@@ -1,0 +1,1 @@
+Artículo 2º—Para efecto del otorgamiento del subsidio, el IMAS calificará a los pescadores permisionarios dentro del concepto de pobreza coyuntural, amparado al Decreto Ejecutivo que se emita para estos efectos.
