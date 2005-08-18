@@ -1,0 +1,1 @@
+Artículo 15.—Para los efectos de determinar el valor de liquidación del azúcar y de la miel final sustituidas por alcohol y la participación de los productores en los montos que se determinen, se aplicará lo dispuesto por la Ley Nº 7818 y su Reglamento, Decreto Ejecutivo Nº 28665-MAG.

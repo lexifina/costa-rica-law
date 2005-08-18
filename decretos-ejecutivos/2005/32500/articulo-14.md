@@ -1,0 +1,2 @@
+Artículo 14.—Los datos consignados en los libros de registro a que se refiere el artículo anterior, serán para todos los efectos, considerados como los oficiales y definitivos.
+Finalizada cada zafra, un libro de registro será archivado en las Oficinas Centrales de la Liga de la Caña, bajo la responsabilidad del Departamento Técnico, por un plazo mínimo de cinco años. El otro quedará en poder y bajo la custodia del Ingenio respectivo.

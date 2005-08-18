@@ -1,0 +1,1 @@
+Artículo 7º—El equipo utilizado para cuantificar las materias primas a que se refiere el artículo anterior, deberá ser aprobado por el Departamento Técnico de la Liga de la Caña, así como su calibración cuando proceda. Para tales efectos, dicho Departamento establecerá un programa de verificación y control periódicos.

@@ -1,0 +1,2 @@
+Artículo 6.—Cuando un ingenio destine jugos clarificados o mieles ricas a la producción de alcoholes, deberá proceder a pesar y analizar dichas materias primas enviadas a la destilería.
+Con esa finalidad, los inspectores del Departamento Técnico de la Liga de la Caña, verificarán el buen funcionamiento de los equipos instalados para pesar y analizar las materias primas que se envíen a la destilería.
