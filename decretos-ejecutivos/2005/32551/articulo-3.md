@@ -1,0 +1,1 @@
+Artículo 3º—La incorporación de dicha información en el SICCNET, deberá hacerse en las fechas establecidas al efecto en los artículos 1°, 2°, 3°, 5°, 7º, 8º y 10 del Decreto Ejecutivo Nº 31710-H y en el artículo 21 del Decreto Ejecutivo Nº 31711-H.
