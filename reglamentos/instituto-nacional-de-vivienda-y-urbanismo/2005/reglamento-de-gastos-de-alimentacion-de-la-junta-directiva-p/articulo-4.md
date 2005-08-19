@@ -1,0 +1,1 @@
+Artículo 4º—Comprobación de requisitos. A la Gerencia General o en ausencia de ésta a la Subgerencia General, concernirá la comprobación de los requisitos y la procedencia de incurrir en este tipo de gastos.

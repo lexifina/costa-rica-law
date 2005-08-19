@@ -1,0 +1,1 @@
+Artículo 2º—Justificación del gasto. Dichos gastos deberán atender a los principios de razonabilidad y austeridad, en el tanto que únicamente procederán en los casos indicados en el artículo anterior.
