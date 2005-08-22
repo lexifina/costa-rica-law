@@ -1,0 +1,1 @@
+Artículo 23.—La Oficina de Ejecutores y Peritos Valuadores periódicamente depurará y actualizará la Lista Oficial de Peritos, la cual tiene carácter vinculante para todos los despachos judiciales. Solo podrán nombrarse como peritos, a quienes se encuentran incluidos en la referida lista y de acuerdo a la zona que se indica.

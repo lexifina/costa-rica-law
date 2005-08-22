@@ -1,0 +1,1 @@
+Artículo 21.—Si el interesado cumple con todos los requisitos se procederá a incluirlo dentro de la Lista Oficial de Peritos del Poder Judicial, la que se publicará periódicamente en el Boletín Judicial. Una vez realizada la publicación, el Perito deberá presentarse a la Oficina de Ejecutores y Peritos Valuadores, a fin de confeccionarle el carné que lo acreditará como tal.
