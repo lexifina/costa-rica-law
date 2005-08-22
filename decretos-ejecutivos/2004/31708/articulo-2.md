@@ -8,7 +8,7 @@ a) Para todas las entidades, según corresponda:
 6. Pago de Impuestos, cuando las entidades actúan como recaudadoras y que se transfieren al Fondo General de Gobierno.
 7. Otros recursos que se transfieren al Fondo General de Gobierno (incluye donaciones de títulos valores).
 8. Impuesto sobre la Renta.
-9. Contribuciones a la Seguridad Social: Caja Costarricense de Seguro Social (CCSS), Instituto Mixto de Ayuda Social (IMAS), Instituto Nacional de Aprendizaje (INA), Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF).
+9. Contribuciones a la Seguridad Social: Caja Costarricense de Seguro Social (CCSS), Instituto Mixto de Ayuda Social (IMAS), *, Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF).
 10. Aporte patronal a la CCSS para el Régimen Obligatorio de Pensiones Complementarias, Ley Nº 7983.
 11. Aporte patronal a la CCSS para el Fondo de Capitalización Laboral, Ley Nº 7983.
 12. Aporte patronal al Banco Popular y de Desarrollo Comunal, inciso b) art. 13 Ley N° 7983.
@@ -27,7 +27,6 @@ Comisión Nacional de Prevención de Riesgos y Atención de Emergencias | Recurs
 Compañía Nacional de Fuerza y Luz | Compra de energía
 Consejo de Seguridad Vial | Transferencia al PANI según Ley No. 7331. Cruz Roja Costarricense. Gobiernos Locales. (Municipalidades), según Ley No. 7331.Consejo Nacional de Vialidad, según Ley Nº 7798 (Así ampliado por el artículo 1° del decreto ejecutivo N° 31984 del 26 de julio de 2004.)
 Consejo Nacional de Producción | Materias Primas y Mercaderías del Programa Abastecimiento Institucional. Reserva Alimenticia y Emergencia Nacional. Transferencia a FANAL según Ley No. 6050. Transferencia a SEPSA según Ley No. 7064.
-Consejo Nacional de Vialidad | Adquisición de Terrenos, según Ley N° 7798. Recursos provenientes del Préstamo con el Export-Import Bank de la República de China destinados al Proyecto de Construcción de la Carretera Florencia-Naranjo. (Así ampliado por el artículo 1° del decreto ejecutivo N° 32299 del 5 de abril del 2005)
 Consejo Técnico Asistencia Médico Social | Transferencia al Inciensa según Ley N° 5412 y sus reformas. Transferencia a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, según Ley N° 5412, Ley Orgánica del Ministerio de Salud.
 Correos de Costa Rica | Canon de la ARESEP Producto de la venta de los sellos de navidad destinada a la Ciudad de los Niños, según la Ley N° 2291. (Así ampliado por el artículo 1° del decreto ejecutivo N° 32566 del 2 de junio del 2005)
 Dirección General de Aviación Civil | Transferencia al Instituto Meteorológico Nacional según Ley N° 5222
@@ -37,7 +36,7 @@ Fondo Forestal | Transferencias al Fondo Nacional de Financiamiento Forestal (As
 Fondo de Parques Nacionales | Transferencias al Convenio MINAE-Municipalidad de Aguirre y a la Comisión Nacional de Gestión para la Biodiversidad (Así adicionado por el artículo 1° del decreto ejecutivo N° 31861 del 3 de junio de 2004)
 Fondo de Vida Silvestre | Transferencias a la Comisión Nacional de Gestión para la Biodiversidad (Así adicionado por el artículo 1° del decreto ejecutivo N° 31861 del 3 de junio de 2004)
 Instituto Costarricense de Electricidad | Compra de energía. Importación de energía. Canon regulación eléctrica y telefónica. Alquileres operativos. Alquileres de canales y participación telefónica. Combustibles para generación térmica.
-Instituto Costarricense de Pesca (INCOPESCA) | Transferencia al Instituto Nacional y Acuacultura de Innovación y Transferencia en Tecnología Agropecuaria (INTA).
+Instituto Costarricense de Pesca (INCOPESCA) | Transferencia al Instituto Nacional y Acuacultura de Innovación y Transferencia en Tecnología Agropecuaria (INTA). Transferencias al Instituto Nacional de Innovación y Transferencia Tecnológica Agropecuaria (INTA), transferencias a la Universidad de Costa Rica, Universidad Nacional de Costa Rica, Servicio Nacional de Guardacostas, Colegios Universitarios de Guanacaste y de Limón de conformidad a los artículos 51 y 154 de la Ley N° 8436. (Así ampliado por el artículo 1° del decreto ejecutivo N° 32645 de 22 de agosto de 2005)
 Instituto Costarricense sobre Drogas (ICD) | Transferencia al Instituto sobre Alcoholismo y farmacodependencia (IAFA), de conformidad con la Ley 8204.
 Instituto Costarricense de Turismo | Transferencia a entidades del Sector Cultura, según artículo 4, Ley N° 1917 y sus reformas. Gastos de Capital del Proyecto Turístico Golfo de Papagayo, según Decreto Ejecutivo N° 21828-MT- MEIC.
 Instituto de Desarrollo Agrario (IDA) | Transferencia a SEPSA según Ley Nº 7064, Transferencia a SENARA.
@@ -57,3 +56,4 @@ Refinadora Costarricense de Petróleo S. A. (RECOPE) | Impuesto único a los com
 Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA) | Transferencia a SEPSA según Ley N° 7064. Transferencia al Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA).
 SINART S.A. | Comisiones por intermediación (Así adicionado por el artículo 1° del decreto ejecutivo N° 31868 de 25 de mayo de 2004)
 Teatro Nacional | Transferencias a: Museo de Arte Costarricense, Compañía Nacional de Teatro y Centro Nacional de la Música (Unidad Técnica Especializada Orquesta Sinfónica Nacional).
+Consejo Nacional de Vialidad | Adquisición de Terrenos, según Ley N° 7798. Recursos provenientes del Préstamo con el Export-Import Bank de la República de China destinados al Proyecto de Construcción de la Carretera Florencia-Naranjo. (Así ampliado por el artículo 1° del decreto ejecutivo N° 32299 del 5 de abril del 2005)

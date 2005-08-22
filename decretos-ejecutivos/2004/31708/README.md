@@ -54,3 +54,4 @@ Directrices de política presupuestaria del 2005 para los ministerios, demás ó
 | 39 | 2005-07-13 | Decreto Ejecutivo 32535 (2005-07-13) |
 | 40 | 2005-07-20 | Decreto Ejecutivo 32547 (2005-07-20) |
 | 41 | 2005-08-05 | Decreto Ejecutivo 32567 (2005-08-05) |
+| 42 | 2005-08-22 | Decreto Ejecutivo 32645 (2005-08-22) |
