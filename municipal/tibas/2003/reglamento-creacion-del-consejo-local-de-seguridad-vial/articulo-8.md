@@ -1,0 +1,1 @@
+Artículo 8º—El Consejo Local de Seguridad Vial, se reunirá ordinariamente una vez por semana y extraordinariamente cuando lo acuerde el Directorio, lo decida el presidente o lo solicite un número mínimo de tres de sus miembros, y estas tendrán fines específicos y serán convocadas por el presidente con 24 horas de antelación.

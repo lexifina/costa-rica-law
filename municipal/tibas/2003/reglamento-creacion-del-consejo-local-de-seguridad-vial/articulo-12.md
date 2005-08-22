@@ -1,0 +1,1 @@
+Artículo 12.—Los acuerdos tomados por el Consejo, quedarán firmes al aprobarse el acta respectiva, por votación de las dos terceras partes de la totalidad de los miembros, podrá el Consejo declarar sus acuerdos como definitivamente aprobados.
