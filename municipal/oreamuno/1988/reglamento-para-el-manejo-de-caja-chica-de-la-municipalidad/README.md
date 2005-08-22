@@ -13,3 +13,4 @@ Reglamento para el manejo de caja chica de la Municipalidad de Oreamuno
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-09-26 | la propia norma |
+| 2 | 2005-08-22 | Reglamento municipal 259 (2005-08-22) |
