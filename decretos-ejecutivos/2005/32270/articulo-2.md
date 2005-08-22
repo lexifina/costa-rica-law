@@ -31,7 +31,8 @@ Fondo de Parques Nacionales - Transferencias al Parque Nacional Manuel Antonio.
 Fondo de Vida Silvestre -Transferencias a Comisión Nacional para la Gestión de la Biodiversidad (CONAGEBIO).
 Fondo Forestal - Transferencias al Fondo Nacional de Financiamiento Forestal (FONAFIFO).
 Instituto Costarricense de Electricidad (ICE) - Compra de energía. Importación de energía. Alquileres operativos. Alquileres de canales y participación telefónica. Combustibles para generación térmica.
-Instituto Costarricense de Pesca y Acuacultura (INCOPESCA)-Transferencia al Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA).
+Instituto Costarricense de Pesca y Acuacultura (INCOPESCA) -Transferencias al Instituto Nacional de Innovación y Transferencia Tecnológica Agropecuaria (INTA), transferencias a la Universidad de Costa Rica, Universidad Nacional de Costa Rica, Servicio Nacional de Guarda Costas, Colegios Universitarios de Guanacaste y de Limón de conformidad a los artículos 51 y 154 de la Ley Nº 8436.
+(Así reformado el párrafo anterior por el artículo 1° del Decreto Ejecutivo N° 32672 del 22 de agosto de 2005).
 Instituto Costarricense sobre Drogas (ICD) - Transferencia al Instituto sobre Alcoholismo y Farmacodependencia (IAFA), de conformidad con la Ley 8204.
 Instituto Costarricense de Turismo (ICT) - Transferencia a entidades del Sector Cultura, según artículo 4, Ley N°1917 y sus reformas. Gastos de Capital del Proyecto Turístico Golfo de Papagayo, según Decreto Ejecutivo N° 21828-MT-MEIC.
 Instituto de Desarrollo Agrario (IDA) - Transferencia a SEPSA según Ley Nº 7064, Transferencia a SENARA.
