@@ -15,3 +15,4 @@ Reglamento de Operación para la Administración de Bienes de la Naturaleza de s
 | --- | --- | --- |
 | 1 | 1991-07-03 | la propia norma |
 | 2 | 1998-12-16 | Reglamento 2807 (1998-12-16) |
+| 3 | 2005-08-22 | Reglamento 3469 (2005-08-22) |
