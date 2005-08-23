@@ -1,0 +1,1 @@
+Artículo 29.—Criterios adicionales para otorgar una beca. Adicionalmente a los criterios del artículo anterior, se podrá tomar como elementos de juicio para el otorgamiento de una beca los siguientes: tipo de jefatura y tipo de familia, número de hijos que estudian, número de hijos menores de edad, enfermedad o edad de los progenitores o encargados y otros similares.

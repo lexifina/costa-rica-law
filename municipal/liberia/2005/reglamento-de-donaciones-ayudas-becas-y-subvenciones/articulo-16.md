@@ -1,0 +1,1 @@
+Artículo 16.—En caso de que un acontecimiento de grandes proporciones afecte a varios vecinos del cantón, la Municipalidad ayudará a tantos vecinos como lo permitan los recursos establecidos anualmente para tales fines.

@@ -1,0 +1,1 @@
+Artículo 24.—El monto máximo de la ayuda corresponde a dos salarios mínimos de un peón, y esta será por una sola vez al año, y de acuerdo al análisis y solicitudes al Concejo Municipal. La ayuda podrá ser en materiales, insumos, alimentación, pago de servicios públicos o alquileres, excepto para pago de salarios.

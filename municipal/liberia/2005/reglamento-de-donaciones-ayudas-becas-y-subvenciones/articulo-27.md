@@ -1,0 +1,1 @@
+Artículo 27.—Las becas que otorga la Municipalidad podrán también otorgarse a estudiantes de enseñanza especial, siempre y cuando cumplan los requisitos señalados en el artículo 29 de este Reglamento.

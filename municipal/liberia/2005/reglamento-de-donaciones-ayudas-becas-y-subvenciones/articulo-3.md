@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión de Bienestar Social, está facultada para requerir a los solicitantes, los documentos necesarios y pertinentes que les permitan valorar los casos y así poder enviar al Concejo Municipal el dictamen correspondiente.

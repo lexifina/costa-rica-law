@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión se reunirá para analizar las solicitudes de donaciones, ayudas, becas y subvenciones que le traslade el Concejo Municipal producto de los informes de los Concejos de Distrito. La Comisión brindará el dictamen en un plazo máximo de 15 días hábiles después de haber recibido las solicitudes por parte del Concejo Municipal.
