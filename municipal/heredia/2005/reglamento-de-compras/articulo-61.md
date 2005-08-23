@@ -1,0 +1,1 @@
+Artículo 61.—Procedimientos. Para cada uno de los procedimientos señalados en el artículo anterior se seguirá lo indicado en los artículos 63, 64 y 65 del Reglamento de la Ley de Contratación Administrativa según corresponda.

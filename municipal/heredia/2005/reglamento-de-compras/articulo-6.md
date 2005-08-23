@@ -1,0 +1,1 @@
+Artículo 6º—Archivo físico. Paralelo al registro de proveedores, el Departamento de Proveeduría llevará un archivo físico donde se conservarán debidamente foliados en forma consecutiva, los documentos presentados por el oferente para su inscripción en el registro, así como cualquier incidencia que ocurra que lo afecte.

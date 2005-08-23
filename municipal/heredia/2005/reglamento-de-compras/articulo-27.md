@@ -1,0 +1,2 @@
+Artículo 27.—Derechos y obligaciones de las partes. En materia de derechos y obligaciones de la Municipalidad y de los contratistas, se aplicarán las disposiciones de la Ley de Contratación Administrativa y su respectiva reglamentación.
+Los derechos y obligaciones del contratista no podrán ser objeto de cesión, salvo autorización expresa del órgano que adjudicó, la cual solo podrá otorgar cuando así lo recomienden razones de orden público y el cesionario sea apto para asumir los compromisos del contratista. La forma y el destino del pago no se consideran cesión.

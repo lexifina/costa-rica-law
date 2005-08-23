@@ -1,0 +1,3 @@
+Artículo 20.—Custodia de documentos y elaboración de expedientes. Corresponde a la Proveeduría la custodia de todos los documentos relacionados con los trámites de contratación administrativa, para lo cual deberá establecer los procedimientos de control adecuados.
+De cada una de las contrataciones que realice la Municipalidad, cualquiera que sea su modalidad, el Departamento de Proveeduría confeccionará un expediente en el cual se incorporarán todos los documentos relativos al mismo. Dichos documentos se foliarán en forma consecutiva y se separarán internamente de acuerdo con la etapa del procedimiento a que correspondan.
+Todo expediente deberá indicar claramente el tipo y número de contratación de que se trata y el bien o servicio al que se refiere.

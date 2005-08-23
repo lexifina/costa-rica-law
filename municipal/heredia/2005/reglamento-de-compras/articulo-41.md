@@ -1,0 +1,2 @@
+Artículo 41.—Precalificación. Cuando se considere necesario para el mejor escogimiento del contratista, la Municipalidad podrá promover una etapa de precalificación como parte de la licitación pública restringida y la licitación por registro, para seleccionar previamente a sus participantes de acuerdo con sus condiciones particulares. El cartel indicará expresamente factores a utilizar para el escogimiento y el valor asignado a cada factor.
+Firme el acto de precalificación, en el respectivo concurso se invitará a participar únicamente a las firmas precalificadas.

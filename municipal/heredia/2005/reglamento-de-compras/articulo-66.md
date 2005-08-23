@@ -1,0 +1,1 @@
+Artículo 66.—Responsabilidad sobre el trámite. En materia de contratación de servicios profesionales, será responsabilidad del Departamento de Proveeduría la promoción del respectivo concurso o procedimiento.

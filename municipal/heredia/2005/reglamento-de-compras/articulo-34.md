@@ -1,0 +1,2 @@
+Artículo 34.—Formalización de la contratación. Los contratos administrativos de la Municipalidad se formalizarán en simple documento, salvo que requieran su inscripción en algún registro público mediante escritura pública en cuyo caso se formalizarán mediante tal mecanismo.
+Se podrá omitir la formalización si de la documentación correspondiente quedan claros los derechos y obligaciones de las partes, ello a juicio del órgano que adjudica.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+Sobre el Registro de Proveedores
+Artículo 5º—Definición. El Registro de Proveedores es una base de datos en la cual se inscribirán las personas físicas que según el tipo de bienes o servicios que ofrezcan, hayan manifestado interés en contratar con la Municipalidad. Los proveedores se inscribirán en estricto orden y se les otorgará un código de identificación individual, según la categoría de los bienes y servicios sea suficiente y garantice una amplia participación en los procedimientos de contratación que promueva. El registro debe estar en plena capacidad de identificar a los proveedores potenciales, tanto por sus datos de inscripción, como por el tipo de bienes y servicios que ofrece.

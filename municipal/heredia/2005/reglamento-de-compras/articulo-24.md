@@ -1,0 +1,1 @@
+Artículo 24.—Elaboración del cartel. Corresponde al Departamento de Proveeduría la elaboración del cartel de licitación, dependencia que deberá remitir los pliegos de condiciones al Comité Institucional de Compras para su revisión.

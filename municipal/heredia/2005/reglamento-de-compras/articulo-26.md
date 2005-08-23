@@ -1,0 +1,1 @@
+Articulo 26.—Verificación de la ejecución contractual. En los casos en los que sea necesario, se designará por parte del órgano competente ya sea en el acto inicial o en el cartel, la unidad administrativa de la Municipalidad encargada de verificar la correcta ejecución de la contratación.

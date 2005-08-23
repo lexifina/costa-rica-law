@@ -1,0 +1,3 @@
+Artículo 57.—Adjudicación y notificación. Para la adjudicación de las contrataciones directas se aplicarán las siguientes reglas:
+Será competencia del Alcalde Municipal, las adjudicaciones directas que no superen el monto establecido por la Contraloría General de la República para la utilización de dicho procedimiento de excepción.
+Corresponde al Concejo Municipal la adjudicación de las contrataciones directas cuando dicho procedimiento se hubiere utilizado en algún otro de los casos de excepción previstos en el Reglamento General de la Contratación Administrativa y el monto adjudicado supere el límite de la compra directa.

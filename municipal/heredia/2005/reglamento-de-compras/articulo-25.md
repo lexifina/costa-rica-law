@@ -1,0 +1,1 @@
+Artículo 25.—Invitaciones. Corresponde a la Proveeduría, gestionar las publicaciones o cursar las invitaciones en los diferentes concursos que promueva la Municipalidad, todo de conformidad con las reglas que establece la Ley de la Contratación Administrativa y su Reglamento.

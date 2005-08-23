@@ -1,0 +1,1 @@
+Artículo 10.—Obligación de actualizar la información. Los proveedores inscritos en el registro estarán obligados a comunicar al Departamento de Proveeduría de la Municipalidad, en el momento en que este ocurra, cualquier cambio en sus datos generales, o descripción y características de los bienes y servicios que ofrece.
