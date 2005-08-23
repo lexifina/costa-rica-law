@@ -15,3 +15,4 @@ Crea la Oficina Coordinadora de Proyectos Tecnológicos como dependencia del Tri
 | --- | --- | --- |
 | 1 | 2001-05-17 | la propia norma |
 | 2 | 2004-01-20 | Decreto TSE 1 (2004-01-20) |
+| 3 | 2005-08-23 | Decreto TSE 12 (2005-08-23) |

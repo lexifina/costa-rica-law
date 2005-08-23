@@ -7,3 +7,9 @@ e) Coordinar y ejecutar las acciones que establezca el Comité Gerencial para el
 f) Informar al Comité Gerencial de Informática y al Tribunal sobre el avance de los proyectos tecnológicos.
 g) Cualquier otra que el Tribunal le asigne o que sea inherente a su cargo.
 REFORMADO mediante Reglamento N° 01 del 20 de enero de 2004, publicado en el Alcance N°5 a La Gaceta N° 16 del 23 de enero de 2004.
+h) Identificar los proyectos que pueden acceder a la cooperación internacional, con el propósito de preparar un programa institucional de cooperación y definir las necesidades en ésta área de la Institución.
+i) Mantener un inventario permanente de proyectos que conforman el citado programa de cooperación internacional, en sus diferentes fases del proyecto: formulación, ejecución, seguimiento y evaluación ex-post.
+j) Coordinar las labores relativas a la instalación y a la prestación de servicios administrativos que requieren las misiones y expertos dentro del marco de los proyectos de cooperación internacional.
+k) Mantener estrecha coordinación con las instituciones y entidades nacionales competentes en el ámbito de la cooperación internacional.
+l) Informar oportuna y permanentemente al Tribunal sobre los asuntos relacionados con la materia de los incisos anteriores.
+(Así adicionados los puntos h, i, j, k y l, mediante Decreto del Tribunal Supremo de Elecciones N° 12-2005 de 23 de agosto de 2005)
