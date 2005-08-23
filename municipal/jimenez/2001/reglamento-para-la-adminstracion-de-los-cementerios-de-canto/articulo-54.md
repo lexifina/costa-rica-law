@@ -1,1 +1,0 @@
-Artículo 54.—En todo lo no previsto en este Reglamento se acatará la Ley de Cementerios vigente, el Reglamento de Cementerios, La Ley General de Salud y todas las disposiciones pertinentes al Código Sanitario.

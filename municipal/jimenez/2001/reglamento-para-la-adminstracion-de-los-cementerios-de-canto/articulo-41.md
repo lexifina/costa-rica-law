@@ -1,1 +1,0 @@
-Artículo 41.—Cada sepultura en el área destinada a las fosas comunes será marcada con una fosa, cruz u otro distintivo que lleve un número progresivo y la indicación del año en que fue hecha la inhumación. Este control lo llevará en un cuaderno o libro el Encargado del Cementerio, y será de propiedad municipal.

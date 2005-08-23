@@ -1,1 +1,0 @@
-Artículo 6º—Las tarifas aprobadas por la Municipalidad se pondrán al cobro a los usuarios treinta días después de su publicación en el Diario Oficial La Gaceta, conforme lo ordena el artículo 74 del Código Municipal vigente.

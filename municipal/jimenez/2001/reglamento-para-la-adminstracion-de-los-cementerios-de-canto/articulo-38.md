@@ -1,1 +1,0 @@
-Artículo 38.—Los particulares a quienes corresponda el dominio sobre alguna porción del terreno, pueden completar las construcciones que tengan derecho a repararlas o reedificarlas de modo conveniente con tal que se ajusten a las condiciones de su adquisición de acuerdo con la ley y el presente Reglamento.

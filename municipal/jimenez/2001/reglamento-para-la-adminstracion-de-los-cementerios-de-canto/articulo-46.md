@@ -1,1 +1,0 @@
-Artículo 46.—Todos los problemas de carácter legal u de otra índole que se presenten en el cementerio, deberán ser atendidos por el Alcalde Municipal, pudiendo los interesados recurrir a la Municipalidad si consideren que el susodicho funcionario no ha atendido conforme a derecho sus peticiones, quedando con ello agotada la vía administrativa.

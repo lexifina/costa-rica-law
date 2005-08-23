@@ -1,1 +1,0 @@
-Artículo 25.—No se podrá efectuar trabajos en el cementerio durante los días domingos y feriados y deben ceñirse los interesados a cumplir las disposiciones y permisos correspondientes estipulados en este Reglamento.

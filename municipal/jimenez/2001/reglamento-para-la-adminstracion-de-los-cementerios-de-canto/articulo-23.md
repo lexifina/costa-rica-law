@@ -1,1 +1,0 @@
-Artículo 23.—No podrá realizarse la exhumación de ningún cadáver salvo por orden de la autoridad judicial antes de la destrucción de las partes blandas, el plazo fijado para ello no puede ser menor de cinco años. Sin embargo pasados cuatro años de la inhumación, el Ministerio de Salud podrá en casos muy calificados autorizar la exhumación respectiva.

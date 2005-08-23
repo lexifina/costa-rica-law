@@ -1,1 +1,0 @@
-Artículo 31.—Los nichos sobre la superficie de la tierra, cuya construcción fue anterior a la fecha que entró en vigencia la ley sobre Protección de Salud Pública (12 de marzo de 1925), pueden continuar siendo ocupadas para inhumaciones mientras se conserven en buen estado y no muestren anteriormente exudaciones de los productos acuosos de la descomposición cadavérica.

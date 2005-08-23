@@ -1,1 +1,0 @@
-Artículo 48.—Los restos de ofrendas florales o de plantas naturales, deberán ser retirados por los arrendatarios y los frascos donde se almacenen deben ser llenados con tierra o arena; en caso de que no fueran retirados por los interesados, lo hará el Encargado del Cementerio sin que este ni la Municipalidad, asuma ninguna responsabilidad por el retiro de estos restos.

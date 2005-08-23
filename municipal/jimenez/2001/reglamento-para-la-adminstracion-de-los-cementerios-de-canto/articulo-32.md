@@ -1,1 +1,0 @@
-Artículo 32.—Cuando esos nichos por la acción del tiempo, por movimientos telúricos o por cualquier otro motivo resulten totalmente deteriorados o muestren filtraciones a través de sus paredes, la Municipalidad, prohibirá que se sigan usando para nuevas inhumaciones y transcurrido el período de cinco años de la última inhumación ordenará su demolición.

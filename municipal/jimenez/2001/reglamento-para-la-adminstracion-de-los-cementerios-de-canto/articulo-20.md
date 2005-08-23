@@ -1,1 +1,0 @@
-Artículo 20.—Las parcelas, tumbas, mausoleos, sepulturas y nichos citados no pueden ser gravados en garantía, ni vendidos con pacto de retroventa, ni son susceptibles de embargo no de venta forzosa judicial.

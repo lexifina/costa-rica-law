@@ -1,1 +1,0 @@
-Artículo 26.—Solamente el Encargado del Cementerio será el que indique los lugares en que se puedan cavar fosas para inhumaciones corrientes, para lo cual se ajustará a las normas establecidas en este Reglamento.

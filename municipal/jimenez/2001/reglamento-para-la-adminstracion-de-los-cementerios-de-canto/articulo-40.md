@@ -1,1 +1,0 @@
-Artículo 40.—Los cadáveres que se sepulten en las parcelas de inhumación, deberán presentarse en cajas de madera livianas. No se permitirá la inhumación de más de un cadáver en la misma caja y en la misma fosa, salvo cuando se tratare de madre y recién nacido muertos en el acto del parto.

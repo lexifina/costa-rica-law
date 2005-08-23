@@ -1,1 +1,0 @@
-Artículo 9º—El terreno destinado al cementerio, se dividirá en lotes por medio de callejuelas longitudinales y transversales, procurando distinguir las callejuelas principales de las otras, dándoles mayor anchura.
