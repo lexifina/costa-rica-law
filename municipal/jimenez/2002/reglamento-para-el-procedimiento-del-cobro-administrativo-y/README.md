@@ -14,3 +14,4 @@ Reglamento para el Procedimiento del Cobro Administrativo y Judicial de la Munic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-21 | la propia norma |
+| 2 | 2005-08-23 | Reglamento municipal 115 (2005-08-23) |

@@ -1,1 +1,2 @@
-Artículo 28.—En el caso de que el contribuyente moroso incumpliere el compromiso adquirido del arreglo de pago, la Municipalidad procederá de inmediato, a pasar esta cuenta a cobro judicial.
+Artículo 28.—En el caso de que el contribuyente moroso incumpliere el compromiso adquirido de arreglo de pago, la Municipalidad procederá de inmediato, a pasar esta cuenta a cobro judicial, una vez en Cobro Judicial no se podrán realizar arreglos de pago, debe cancelarse la totalidad de lo adeudado; debido a que ya se dio por agotada la vía administrativa.
+(Así reformado en sesión N° 115 del 23 de agosto del 2005)
