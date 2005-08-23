@@ -20,3 +20,4 @@ Reglamento a Ley de Semillas
 | 5 | 1997-09-01 | Decreto Ejecutivo 26322 (1997-09-01) |
 | 6 | 2001-01-29 | SINALEVI (sin norma nombrada) |
 | 7 | 2004-03-03 | Decreto Ejecutivo 31736 (2004-03-03) |
+| 8 | 2005-08-23 | Decreto Ejecutivo 32640 (2005-08-23) |
