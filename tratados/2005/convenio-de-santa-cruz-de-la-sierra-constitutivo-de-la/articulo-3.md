@@ -1,0 +1,1 @@
+Artículo 3º—Funciones. La Secretaría General Iberoamericana tendrá las funciones .jadas en su normativa estatutaria, que será aprobada por los Jefes de Estado y de Gobierno, a fin de dar apoyo institucional, en estrecha coordinación con la Secretaría Pro-Tempore, a la Cumbre de Jefes de Estado y de Gobierno y a las demás instancias de la Conferencia Iberoamericana.

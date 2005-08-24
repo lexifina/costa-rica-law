@@ -1,0 +1,1 @@
+Artículo 13.—Interpretación. Las diferencias de interpretación de este Convenio serán examinadas por los Coordinadores Nacionales y elevadas, en su caso, a los Ministros de Relaciones Exteriores para la resolución por consenso de los Jefes de Estado y de Gobierno.

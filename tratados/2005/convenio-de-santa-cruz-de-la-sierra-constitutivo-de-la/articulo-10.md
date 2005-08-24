@@ -1,0 +1,3 @@
+Artículo 10.—Firma, ratificación y entrada en vigor. El presente Convenio estará abierto a la firma de todos los Estados miembros de la Conferencia Iberoamericana en la sede del Ministerio de Relaciones Exteriores y Culto de la República de Bolivia.
+El presente Convenio será ratificado de conformidad con las normas internas de cada Estado Parte y entrará en vigor el trigésimo día a partir de la fecha en que haya sido depositado el sétimo instrumento de ratificación.
+Para el Estado que ratifique el Convenio después de haber sido depositado el séptimo instrumento de ratificación, el Convenio entrará en vigor el trigésimo día a partir de la fecha en que tal Estado haya depositado su instrumento de ratificación.

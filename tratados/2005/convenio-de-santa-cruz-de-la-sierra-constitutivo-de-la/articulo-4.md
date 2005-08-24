@@ -1,0 +1,2 @@
+Artículo 4º—El Secretario General. La Secretaría General Iberoamericana contará con un Secretario General nombrado por consenso por los Jefes de Estado y de Gobierno a propuesta de la Reunión Plenaria de Ministros de Relaciones Exteriores. Su mandato tendrá una duración de cuatro años, pudiendo ser renovado por una sola vez. El Secretario General no podrá ser sucedido por una persona de la misma nacionalidad.
+Las funciones, competencias y el procedimiento de selección del Secretario General serán definidos en la normativa estatutaria de la Secretaria General Iberoamericana.

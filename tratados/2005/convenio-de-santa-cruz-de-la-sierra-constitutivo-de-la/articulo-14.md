@@ -1,0 +1,1 @@
+Artículo 14.—Depositario. El presente Convenio, cuyos textos en español y portugués son igualmente auténticos, y sus instrumentos de ratificación se depositarán en los Archivos del Ministerio de Relaciones Exteriores y Culto de la República de Bolivia.

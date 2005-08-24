@@ -1,0 +1,2 @@
+Artículo 11.—Enmiendas. El presente Convenio podrá ser enmendado a propuesta de cualquier Estado Parte. Las propuestas de enmienda serán comunicadas al Secretario General quien las notificará a las demás Partes para su inclusión, por la Secretaría Pro-Tempore, en la agenda de la siguiente Cumbre.
+Una vez aprobadas por consenso de los Jefes de Estado y de Gobierno, las enmiendas entrarán en vigor, para todos los Estados Parte de conformidad con el procedimiento establecido en el artículo 10.

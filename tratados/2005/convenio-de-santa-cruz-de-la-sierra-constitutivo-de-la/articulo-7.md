@@ -1,0 +1,2 @@
+Artículo 7º—Financiación. La Secretaría General se financiará a través de las contribuciones de los Estados miembros, según la escala de cuotas que acordará la Reunión Plenaria de Ministros de Relaciones Exteriores con base en las recomendaciones formuladas por los Coordinadores Nacionales y los Responsables de Cooperación Iberoamericanos.
+La Secretaría General Iberoamericana se regirá por las disposiciones de carácter financiero y presupuestario establecidas en su normativa estatutaria.
