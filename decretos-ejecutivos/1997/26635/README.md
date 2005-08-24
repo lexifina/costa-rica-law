@@ -14,3 +14,4 @@ Traslada al Instituto Meteorológico Nacional del Ministerio del Ambiente y Ener
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-12-18 | la propia norma |
+| 2 | 2005-08-24 | Decreto Ejecutivo 32868 (2005-08-24) |
