@@ -1,0 +1,1 @@
+Artículo 64.—La Junta Directiva abrirá, a partir del momento en que declare vacante la Silla, un período de recepción de un mes natural, a fin de que los académicos incorporados formalicen sus solicitudes para llenar las vacantes de Silla. Cuando sean varias las vacantes, deberán señalar en su solicitud a cuál de ellas aspiran.

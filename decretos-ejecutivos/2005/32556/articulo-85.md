@@ -1,0 +1,1 @@
+Artículo 85.—En los artículos que se publiquen en la Revista de la Academia, la responsabilidad de las tesis u opiniones que allí se sostengan, será tan solo de los respectivos autores. La Comisión se limita a considerar si esos artículos merecen ser publicados. Esta declaración aparecerá en cada número de la Revista de la Academia.

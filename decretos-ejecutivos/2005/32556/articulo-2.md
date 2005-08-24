@@ -1,0 +1,2 @@
+Artículo 2º—Del domicilio. El domicilio de la Academia quedará circunscrito al Cantón Central de la Provincia de San José. Sin embargo, la Junta Directiva podrá variarlo en forma permanente u ocasional, dentro de la misma Provincia, mediante resolución de la mitad más uno de los votos afirmativos de la totalidad de los miembros de la Junta.
+La Academia dará domicilio permanente a la Comisión Nacional de Conmemoraciones Históricas.

@@ -1,0 +1,1 @@
+Artículo 91.—El Fiscal de la Academia informará en el mes de junio de cada año, a la Junta Directiva, sobre la existencia de nuevos libros y sobre la morosidad de los préstamos a domicilio, así como de las pérdidas.

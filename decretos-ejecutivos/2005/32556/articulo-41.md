@@ -1,0 +1,1 @@
+Artículo 41.—La Junta Directiva compulsará a la totalidad de los académicos, mediante consulta postal domiciliaria, con boletas especialmente diseñadas para que se manifiesten sobre la admisión o no del postulante a académico de número, el cual deberá obtener una votación no menor de la mitad más uno de la totalidad de los miembros de la Academia.

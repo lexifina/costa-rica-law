@@ -1,0 +1,1 @@
+Artículo 7º—El Presidente de la Junta Directiva es el representante judicial y extrajudicial de la Academia, con facultades de apoderado generalísimo sin límite de suma, de acuerdo con el artículo 1253 del Código Civil.

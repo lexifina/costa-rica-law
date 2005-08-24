@@ -1,0 +1,1 @@
+Artículo 30.—La Junta Directiva convocará a Asamblea de académicos debiendo mediar un término de 10 días hábiles como mínimo entre la fecha del acuerdo de convocatoria y la fecha de celebración de la Asamblea.

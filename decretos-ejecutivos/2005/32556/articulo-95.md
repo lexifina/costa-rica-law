@@ -1,0 +1,1 @@
+Artículo 95.—Una vez declarada disuelta o extinguida la Academia todos sus bienes materiales, como también aquellos derechos intelectuales que le hubieren sido traspasados serán cedidos a la Dirección General del Archivo Nacional, por los trámites que señala la ley en estos casos.

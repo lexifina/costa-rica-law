@@ -1,0 +1,1 @@
+Artículo 82.—Por medio de sus publicaciones, la Academia podrá dar a conocer: trabajos y discursos de incorporación de los académicos, investigaciones, informes, acuerdos, ponencias y todo lo relacionado con sus actividades.

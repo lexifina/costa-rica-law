@@ -1,0 +1,1 @@
+Artículo 26.—De las Vocalías. Es deber de quienes ocupen los cargos, reemplazar temporalmente, por orden de nominación, a los miembros ausentes de la Junta Directiva, y asistir a todas las sesiones, tanto de la Junta como de las asambleas de académicos.

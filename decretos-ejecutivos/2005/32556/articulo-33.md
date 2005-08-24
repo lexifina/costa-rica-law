@@ -1,0 +1,1 @@
+Artículo 33.—De no lograrse el quórum requerido, la Junta Directiva concederá un plazo perentorio de 30 minutos con el fin de reunirlo. Transcurrido ese término, la Junta abrirá la asamblea con cualquier número de académicos presentes.

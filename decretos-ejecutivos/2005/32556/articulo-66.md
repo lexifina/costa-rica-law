@@ -1,0 +1,5 @@
+Artículo 66.—Una vez cerrado el período de recepción de solicitudes, la Junta Directiva asignará los cargos de miembros de Silla a las personas a quienes corresponda cada una de ellas. Cuando fueren varios los que solicitaron una misma silla, ésta se adjudicará mediante votación del nombre de cada aspirante, para lo cual se requerirá la mitad más uno de los votos afirmativos de los miembros presentes de la Junta Directiva:
+a) Adjudicadas las Sillas por primera vez, los académicos deberán presentar a la Junta Directiva una biografía del historiador cuyo nombre lleva la Silla.
+b) Cuando hubiere Sillas vacantes por reemplazo, los académicos escogidos para ellas deberán escribir la biografía del historiador que las hubiere dejado vacantes.
+c) El académico no tomará posesión de la Silla hasta tanto no haya leído, en sesión pública, su discurso biográfico.
+d) Contestado el discurso por el presidente de la Academia, éste le tomará el juramento de estilo al nuevo miembro de Silla, le impondrá la Venera y hará entrega del diploma que lo acredita como miembro de Silla.

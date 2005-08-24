@@ -1,0 +1,1 @@
+Artículo 32.—La apertura de las asambleas de académicos estará a cargo de la Junta Directiva, a la hora indicada en la convocatoria, con el fin de constatar la asistencia de la mitad más uno de la totalidad de los académicos, para lo cual se tomarán como miembros presentes las cartapoder acreditadas por los miembros ausentes.

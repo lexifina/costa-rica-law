@@ -1,0 +1,1 @@
+Artículo 43.—El primer secretario de la Academia le comunicará al postulante el resultado de la elección y, de ser aceptado, le indicará los trámites subsiguientes y el término de que dispone para incorporarse.

@@ -1,0 +1,1 @@
+Artículo 36.—Las votaciones empatadas se repetirán dos veces más, en forma consecutiva y en el mismo acto;` de persistir el empate, se tendrá el asunto como votado negativamente, sin que se pueda intentar recurso alguno contra esto.

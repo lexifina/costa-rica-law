@@ -1,0 +1,1 @@
+Artículo 48.—Quienes ostenten la condición de académico de número y cumplan con los requisitos que establece este Estatuto, pueden aspirar a ser miembros académicos de Silla, lo cual constituye la más alta distinción permanente que confiere la Academia.

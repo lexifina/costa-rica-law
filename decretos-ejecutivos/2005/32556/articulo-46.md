@@ -1,0 +1,1 @@
+Artículo 46.—El postulante deberá leer el trabajo de incorporación en sesión pública. Una vez concluida la lectura, se procederá a la juramentación de estilo. La incorporación quedará registrada en el libro de actas de la Junta Directiva de la Academia en la sesión siguiente a la incorporación.

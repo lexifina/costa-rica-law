@@ -1,0 +1,1 @@
+Artículo 98.—De las interpretaciones estatutarias. La Junta Directiva queda facultada para interpretar el Estatuto por acuerdo de la mitad más uno de los votos afirmativos de la totalidad de los miembros de la Junta. Las interpretaciones que haga deberán ser ratificadas por Asamblea General.

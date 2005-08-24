@@ -1,0 +1,1 @@
+Artículo 35.—Todas las resoluciones sobre acuerdos de la Asamblea General de académicos se tomarán con el voto de la mitad más uno de los miembros presentes. Excepto los casos dispuestos en el artículo 41 y el inciso b) del artículo 68.

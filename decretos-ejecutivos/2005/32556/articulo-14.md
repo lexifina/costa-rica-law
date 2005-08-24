@@ -1,0 +1,1 @@
+Artículo 14.—De la periodicidad de las sesiones. La periodicidad de las sesiones ordinarias de la Junta Directiva será establecida por ésta cada año en su primera sesión ordinaria, la cual deberá comunicarse inmediatamente a todos los académicos.

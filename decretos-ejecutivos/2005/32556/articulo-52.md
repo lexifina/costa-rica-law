@@ -1,0 +1,1 @@
+Artículo 52.—Durante el acto de incorporación a la Academia, harán uso de la palabra únicamente el miembro, que leerá su discurso de incorporación y el Presidente de la Academia, que lo contestará. La potestad de contestar el discurso de incorporación es únicamente delegable en cualquier otro miembro incorporado a la Academia.

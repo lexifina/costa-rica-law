@@ -1,0 +1,1 @@
+Artículo 49.—Del protocolo en las incorporaciones. Por constituir la incorporación a la Academia, una de las máximas distinciones a que pueden aspirar los intelectuales costarricenses y extranjeros, a su labor probada y meritoria en las disciplinas de la Geografía e Historia y ciencias afines, toda incorporación se constituye en un acto público, cívico y cultural.

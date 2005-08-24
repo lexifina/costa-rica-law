@@ -1,0 +1,1 @@
+Artículo 19.—El orden del día de las sesiones de Junta Directiva será elaborado en forma provisional por la Presidencia. Abierta la sesión y aprobada el acta anterior, deberá de inmediato entrarse a la aprobación o modificación del orden del día propuesto.

@@ -1,0 +1,1 @@
+Artículo 61.—En homenaje y reconocimiento a los investigadores que hicieron aportes excepcionales a la Historia y Geografía de Costa Rica, nacidos entre 1812 y 1930, la Academia les ha adjudicado las primeras Sillas con sus nombres.

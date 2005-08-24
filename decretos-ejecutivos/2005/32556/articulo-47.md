@@ -1,0 +1,1 @@
+Artículo 47.—En la sesión de incorporación al nuevo miembro, se le entregará el Estatuto Orgánico de la Academia, los Reglamentos emitidos, el título que lo acredita como académico de Número y, además, la autorización de usar la divisa y venera de la Academia.

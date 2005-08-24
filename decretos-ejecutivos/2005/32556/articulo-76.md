@@ -1,0 +1,1 @@
+Artículo 76.—El académico que lleve la representación de la Academia a un evento internacional en el que deba presentar una ponencia, entregará una copia de esta a la Junta Directiva antes de la realización del evento. Posteriormente, deberá rendir un informe sobre la actividad en general y sobre su participación.
