@@ -14,3 +14,4 @@ Modifica al Instituto Costarricense del Deporte y la Recreación (ICODER) el gas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-03 | la propia norma |
+| 2 | 2005-08-25 | Decreto Ejecutivo 32649 (2005-08-25) |
