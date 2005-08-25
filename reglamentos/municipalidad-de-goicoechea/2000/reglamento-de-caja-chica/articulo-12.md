@@ -1,1 +1,0 @@
-Artículo 12.—Todo arqueo de caja chica se realizará en presencia del Jefe de Tesorería o del funcionario que él designe para tales efectos. Este funcionario tendrá el derecho de pedir una segunda verificación si mantiene dudas sobre el resultado obtenido.
