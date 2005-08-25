@@ -1,0 +1,1 @@
+Artículo 19.—Los vales de caja chica deben ser liquidados a más tardar cuatro días hábiles posteriores a la fecha de entrega, salvo casos excepcionales debidamente autorizados por la Dirección Ejecutiva.

@@ -1,0 +1,1 @@
+Artículo 30.—Si realizado el arqueo resultare una diferencia debe ser comunicada de inmediato al Director Ejecutivo, quien debe solicitar la justificación al responsable de la caja chica, quien, además, procederá en forma inmediata, a depositar o reintegrar el faltante, según corresponda.

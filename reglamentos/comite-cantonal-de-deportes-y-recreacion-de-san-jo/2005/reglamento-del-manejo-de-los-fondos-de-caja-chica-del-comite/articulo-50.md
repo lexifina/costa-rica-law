@@ -1,0 +1,1 @@
+Artículo 50.—La aplicación de este Reglamento es de responsabilidad del Director Ejecutivo. La Auditoría ejercerá sus controles sobre este particular, cuando lo juzgue conveniente dentro de su programa de trabajo o a solicitud de la Junta Directiva del Comité Cantonal.

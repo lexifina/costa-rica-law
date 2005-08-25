@@ -1,0 +1,1 @@
+Artículo 15.—En caso de excepción y con la debida justificación se podrá realizar la compra de activos hasta por el monto máximo autorizado por caja chica sin que esto signifique, que para la compra de un artículo se tenga que hacer dos vales o más para cubrir el gasto.

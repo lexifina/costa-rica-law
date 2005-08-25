@@ -1,0 +1,1 @@
+Artículo 11.—La caja chica se utilizará para comprar y pagar materiales, suministros, repuestos, pasajes, viáticos, accesorios y servicios que se requieran para el mantenimiento y reparación de los equipos automotores y de servicios; donde el principio de costo -beneficio-prevalezca en cada transacción.

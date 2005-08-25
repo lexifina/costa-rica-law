@@ -1,0 +1,1 @@
+Artículo 10.—La Junta Directiva del Comité Cantonal estudiará y aprobará mediante acuerdo en cada oportunidad, a solicitud del Director Ejecutivo, el monto máximo tanto del fondo de caja chica, como el monto máximo a pagar por cada erogación.

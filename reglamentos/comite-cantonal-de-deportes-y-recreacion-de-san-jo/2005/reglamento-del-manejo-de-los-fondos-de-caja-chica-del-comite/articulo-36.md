@@ -1,0 +1,1 @@
+Artículo 36.—Ningún funcionario de la Institución, con excepción de quienes tengan custodia de la caja chica, podrá mantener en su poder fondos de caja chica por más de cuatro días hábiles, salvo aquellos casos de giras por más de dicho término.

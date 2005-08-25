@@ -1,0 +1,1 @@
+Artículo 27.—No se entregará vale de caja chica a nombre de un funcionario, si este tiene pendiente la liquidación de uno anterior. No podrá extenderse más de un vale a nombre de un mismo beneficiario en forma simultánea, salvo situaciones especiales propias del accionar diario del Comité Cantonal, debidamente aprobados por el Director Ejecutivo.

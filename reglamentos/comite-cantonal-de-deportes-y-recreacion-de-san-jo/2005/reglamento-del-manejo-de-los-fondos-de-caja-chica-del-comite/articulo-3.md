@@ -1,0 +1,1 @@
+Artículo 3º—La caja chica se manejará mediante cuenta corriente y estarán a cargo de la Tesorería del Comité Cantonal o la persona que el Director Ejecutivo designe, los cuales serán responsables de su correcto funcionamiento.

@@ -1,0 +1,1 @@
+Artículo 8º—Los fondos de caja chica deberán ser utilizados en el pago de gastos menores, así como en la adquisición de bienes y servicios indispensables, que se presenten en forma ocasional y que justifiquen su pago fuera de los trámites ordinarios, entendiéndose está acción auxiliar a la gestión de compras.

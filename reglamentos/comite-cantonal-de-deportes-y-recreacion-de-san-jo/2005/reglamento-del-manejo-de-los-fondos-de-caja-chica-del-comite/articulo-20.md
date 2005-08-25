@@ -1,0 +1,1 @@
+Artículo 20.—Cuando algún funcionario realiza un vale y éste no retira el dinero el mismo día, se entenderá por desechado el mismo, de tal forma que si se requiere hacer la compra por el interesado, tendrá que volver a efectuar el trámite.

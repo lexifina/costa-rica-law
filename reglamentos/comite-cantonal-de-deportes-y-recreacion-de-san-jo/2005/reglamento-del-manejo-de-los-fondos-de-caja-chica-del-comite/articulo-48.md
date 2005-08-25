@@ -1,0 +1,1 @@
+Artículo 48.—Las sanciones descritas serán aplicadas por el Director Ejecutivo y la Junta Directiva del Comité Cantonal, conforme lo establece el Reglamento Autónomo de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de San José, el Reglamento Interno de Trabajo y el Código de Trabajo.

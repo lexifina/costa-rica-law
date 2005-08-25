@@ -1,0 +1,1 @@
+Artículo 46.—El funcionario que incumpla con las disposiciones de este reglamento incurrirá en falta y será amonestado por escrito cuando sea reincidente. En este último caso, podrá ser sujeto a suspensión sin goce de salario una vez que se le haya dado el debido proceso para que explique las razones por las cuales inobservó el presente reglamento.
