@@ -1,0 +1,8 @@
+CAPÍTULO II
+De la admisibilidad, tramitación, desestimación
+y archivo de la denuncia
+6º—Admisibilidad de la denuncia. La oficina que reciba la denuncia, analizará su contenido y determinará si procede su admisión para investigación.
+Deberá determinar si se trata de una actuación material o de una omisión, el régimen al que pertenece el servidor (policial o administrativo), la gravedad y relevancia de los hechos denunciados y cualquier otro aspecto de importancia que se desprenda de la denuncia. Los encargados de las oficinas receptoras de denuncias deberán determinar de acuerdo con su criterio profesional, las acciones a seguir y la prioridad de su atención. Para lo anterior, la Auditoría Interna deberá tomar en cuenta, además, los aspectos contenidos en su Plan Anual de Labores.
+Si la denuncia es presentada ante la Auditoría Interna y versa sobre hechos que por su naturaleza y materia resultan ajenos a su competencia, será trasladada al Departamento Disciplinario Legal, para que determine sobre su admisibilidad y proceda de conformidad.
+Si la denuncia versa sobre una materia ajena a la competencia de la dependencia receptora, de inmediato se deberá trasladar el expediente a la oficina competente para que determine sobre su admisibilidad y proceda como corresponde. El traslado del expediente se hará en sobre cerrado en resguardo de la confidencialidad de los datos. En la parte externa del sobre deberá consignarse la leyenda que diga "CONFIDENCIAL".
+Admitida la denuncia se procederá a darle el curso respectivo, y se informará al denunciante de esa circunstancia en el domicilio o dirección que señale para ese efecto.

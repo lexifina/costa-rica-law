@@ -1,0 +1,4 @@
+10.—Remisión y recepción del informe. Estudiado el informe, el Departamento Disciplinario Legal ordenará la instrucción o el archivo del asunto, según corresponda.
+En el caso de la Auditoría Interna, el informe deberá ser remitido al Ministro con las respectivas recomendaciones.
+Si del informe se desprende la posible existencia de un hecho delictivo, el asunto también deberá remitirse al Ministerio Público para lo de su competencia.
+La Auditoría Interna remitirá al Ministro o a las instancias correspondientes, los informes, documentos de asesoría y demás productos que se generen durante la investigación, guardando la con.dencialidad del caso. Únicamente se remitirá copia de estos productos al denunciante cuando él mismo haya presentado y .rmado la denuncia, siempre que los resultados del estudio no involucren procesos administrativos o judiciales para determinar eventuales responsabilidades.
