@@ -26,6 +26,21 @@ Consejo Nacional de Producción (CNP) - Materias Primas y Mercaderías del Progr
 Consejo Técnico Asistencia Médico Social (CTAMS) - Transferencia al INCIENSA según Ley N° 5412 y sus reformas. Transferencia a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, según Ley N° 5412, Ley Orgánica del Ministerio de Salud.
 Dirección General de Aviación Civil - Trasferencia al Instituto Meteorológico Nacional según Ley N° 5222.
 Editorial Costa Rica - Impresión y encuadernación. Derechos de autor en el Programa Producción y Difusión. Pago de comisiones por ventas.
+Escuela de Ganadería:
+NOTA: Mediante el artículo 1° del decreto ejecutivo N° 33266 del 6 de julio del 2006, se “adiciona a las exclusiones específicas los siguientes rubros que se ubican dentro de la partida “Bienes para la producción y comercialización”, subpartidas “Materia prima” y “Otros bienes para la producción y comercialización” de la clasificación por objeto del gasto del presupuesto de la Escuela de Ganadería:
+Acemite de trigo | Grasa amarilla
+Áureo SP-250 | Harina de soya
+Azúcar | Leche
+Bolsas | Leche en polvo
+Cajas de cartón | Lisina sintética
+Carbonato de calcio | Maíz amarillo
+Cascarilla de soya | Melaza
+Condimentos | Metionina sintética
+Cultivos lácteos | Sal común
+Destilados de maíz | Semolina de arroz
+Etiquetas | Topping
+Fosfato dicálcico granulado | Químicos para desinfección de
+Fundas para embutidos | Plantas agroindustriales
 Fábrica Nacional de Licores (FANAL) - Materia Prima. Impuesto IDA. Impuesto IFAM. Transferencia al IAFA según Ley N° 8289. Transferencia al CNP, por Margen de Comercialización según Ley N° 6050. Transferencia al CNP, por Utilidad Neta y Ventas Proyectadas según Ley N° 6050.
 Fondo de Parques Nacionales - Transferencias al Parque Nacional Manuel Antonio.
 Fondo de Vida Silvestre -Transferencias a Comisión Nacional para la Gestión de la Biodiversidad (CONAGEBIO).
@@ -38,8 +53,11 @@ Instituto Costarricense de Turismo (ICT) - Transferencia a entidades del Sector 
 Instituto de Desarrollo Agrario (IDA) - Transferencia a SEPSA según Ley Nº 7064, Transferencia a SENARA.
 Instituto de Fomento Cooperativo (INFOCOOP) - Concesión de Préstamo, Transferencias al CONACOOP y CENECOOP R.L., según artículo 185 de la Ley Nº 6955.
 Instituto de Fomento y Asesoría Municipal (IFAM) - Transferencia al ICODER según Ley N° 7800. Transferencias a las municipalidades provenientes de los artículos 3º de la Ley Nº 6909 y 2º de la Ley Nº 6282, que reforma el art. 37 de la Ley Nº10. Concesión de Préstamos.
+Recursos asignados al Proyecto FOMUDE para el año 2006.
+(El artículo 1° del decreto ejecutivo N° 32910 del 11 de enero del 2006, adicionó el párrofo anterior a las exclusiones específicas del Instituto de Fomento y Asesoría Municipal (IFAM))
 Instituto Mixto de Ayuda Social (IMAS) - Transferencia a la Dirección General de Aviación Civil. Mercaderías para la Venta.
-Instituto Nacional de Seguros (INS) - Concesión de préstamos. Obligaciones por Contratos de Seguros. Reaseguros. Comisiones y otros. Aporte al Consejo de Seguridad Vial. Egresos de Servicios Médicos y lo correspondiente a este Servicio en el Programa de Inversiones. Egresos del subprograma Servicios de Bomberos, incluyendo los proyectos de construcción, mejoras y equipamiento de unidades de ese Servicio identificadas en el presupuesto y los Aportes al Consejo de Salud Ocupacional en cumplimiento con lo estipulado en el Título IV del Código de Trabajo.
+Instituto Nacional de Seguros (INS) - Concesión de préstamos. Obligaciones por Contratos de Seguros. Reaseguros. Comisiones y otros. Aporte al Consejo de Seguridad Vial. Egresos de Servicios Médicos y lo correspondiente a este Servicio en el Programa de Inversiones. Egresos del subprograma Servicios de Bomberos, incluyendo los proyectos de construcción, mejoras y equipamiento de unidades de ese Servicio identificadas en el presupuesto y los Aportes al Consejo de Salud Ocupacional en cumplimiento con lo estipulado en el Título IV del Código de Trabajo. Prestaciones Legales.
+(Así reformado el párrafo anterior mediante el artículo 1 del decreto ejecutivo N°33231 del 09 de junio del 2006).
 Instituto Nacional de Vivienda y Urbanismo (INVU) - Construcciones Adiciones y Mejoras (Bono Familiar de Vivienda). Transferencias de Capital (Bono Familiar de Vivienda). Amortización de Obligaciones de Contrato de Ahorro y Préstamo. Concesión de Préstamos. Junta Administrativa de la Imprenta Nacional - Compras de papel, tinta y planchas de imprenta.
 Junta Administrativa del Registro Nacional - Transferencia a la Editorial Costa Rica, según Ley Nº 8020. Gastos por concepto de investigación y capacitación en materia de propiedad intelectual, según Ley N° 8020.
 Junta de Desarrollo Regional de la Zona Sur (JUDESUR) - Concesión de Préstamos.
@@ -51,5 +69,11 @@ Refinadora Costarricense de Petróleo S.A. (RECOPE) - Impuesto único a los comb
 Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA) - Transferencia a SEPSA según Ley N° 7064. Transferencia al Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA).
 Sistema Nacional de Radio y Televisión, S. A. (SINART, S. A.) - Comisiones por intermediación.
 Teatro Nacional - Transferencias a: Museo de Arte Costarricense, Compañía Nacional de Teatro y Centro Nacional de la Música (Unidad Técnica Especializada Orquesta Sinfónica Nacional).
-*Correos de Costa Rica S. A, producto de la venta de los sellos de navidad destinada a la Ciudad de los Niños, según la Ley N° 2291.
-(*Así adicionado por el artículo 1° del decreto ejecutivo N° 32566 del 2 de junio del 2005)
+Correos de Costa Rica S. A, producto de la venta de los sellos de navidad destinada a la Ciudad de los Niños, según la Ley N° 2291.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32566 del 2 de junio del 2005)
+Consejo Nacional de Vialidad (Conavi)- Recursos provenientes del Préstamo con el Export-Import Bank de la República de China destinados al Proyecto de Construcción de la Carretera Florencia- Naranjo. Recursos destinados a la Adquisición de Terrenos, según Ley Nº 7624 y el Decreto Ejecutivo Nº 31688-MOPT-H.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32687 del 25 de agosto del 2005)
+INS Pensiones OPC, S.A. - Comisiones
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32748 del 4 de octubre del 2005)
+INS Bancrédito Valores, Puesto de Bolsa, S.A. - Comisiones
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32748 del 4 de octubre del 2005)
