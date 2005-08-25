@@ -4,9 +4,10 @@ Reformar integralmente el presente Reglamento para la contratación de bienes, s
 CAPÍTULO PRIMERO
 Disposiciones generales
 Artículo 1º—Definiciones. Para los efectos del presente Reglamento se entenderá por:
-1.1. Actividad Ordinaria: Conforme con lo dispuesto por la Ley General de la Administración Pública Nº 6227 del 2 de mayo de 1978, artículo 3.2, la Ley Nº 6588 del 30 de julio de 1981, artículo sexto, se define como actividad ordinaria de RECOPE:
+1.1. Actividad ordinaria: Conforme con lo dispuesto por la Ley General de la Administración Pública N° 6227 del 2 de mayo de 1978, artículo 3.2, la Ley N° 6588 del 30 de julio de 1981, artículo sexto, y la Ley del Monopolio en favor del Estado para la Importación, Refinación y Distribución al Mayoreo del Petróleo Crudo, sus Combustibles Derivados, Asfaltos y Naftas N° 7356 del 24 de agosto de 1993, se define como actividad ordinaria de RECOPE:
 1.1.1 La venta de productos.
-1.1.2 La compra, venta, fletamento e inspección de petróleo crudo y sus derivados.
+1.1.2 La compra, venta, fletamento e inspección de petróleo crudo y sus derivados, así como los componentes oxigenantes requeridos para la formulación de combustibles.
+(Así reformado el punto anterior, mediante Sesión Ordinaria N° 3973-334 celebrada el 25 de agosto de 2005).
 1.2 Administración: Todo órgano o unidad administrativa de cualquier nivel de la estructura orgánica de RECOPE, con participación directa en alguna de las fases de los procedimientos de contratación regulados por este Reglamento.
 1.3 Administración Superior: Es la conformada por la Junta Directiva, Presidencia, Gerencia General y Auditoría General de la Empresa.
 1.4 Alquiler o arrendamiento con opción de compra: Aquella contratación por la cual se toma en arrendamiento un bien a un plazo determinado, con el derecho preferente por parte de RECOPE de proceder a su adquisición.
