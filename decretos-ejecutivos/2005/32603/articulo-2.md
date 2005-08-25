@@ -1,0 +1,1 @@
+Artículo 2º—Se faculta y autoriza a la Administración Pública centralizada y a las instituciones y empresas del Estado para que brinden las facilidades y la cooperación requeridas en la realización de las actividades que se llevarán a cabo en Costa Rica con motivo de dicha Cumbre.
