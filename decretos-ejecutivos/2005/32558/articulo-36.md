@@ -1,0 +1,1 @@
+Artículo 36.—Solicitud de modificación o corrección. La petición de modificación o corrección de una solicitud o registro deberá, además de cumplir los requisitos generales establecidos en el artículo 3 de este Reglamento, indicar el número de expediente o el número de registro, según el caso, y la modificación o corrección que debe efectuarse en términos precisos.

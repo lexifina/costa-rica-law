@@ -1,0 +1,1 @@
+Artículo 23.—Certificado de registro. El certificado de registro de un esquema de trazado que debe expedirse al titular contendrá la información a que se refiere el artículo anterior y se le agregará copia de la descripción y la representación gráfica.

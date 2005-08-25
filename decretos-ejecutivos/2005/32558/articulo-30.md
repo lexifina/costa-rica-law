@@ -1,0 +1,1 @@
+Artículo 30.—Renuncia del registro. Además de cumplir los requisitos comunes establecidos en el artículo 3º de este Reglamento, la renuncia de un registro deberá llevar la firma del solicitante o de su representante cuando fuere el caso. En la misma resolución por la que se ordene la cancelación, se dispondrá su publicación en el Diario Oficial.

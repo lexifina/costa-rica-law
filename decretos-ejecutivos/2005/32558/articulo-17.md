@@ -1,0 +1,1 @@
+Artículo 17.—Errores u omisiones. En el caso de que la solicitud adolezca de errores u omisiones, el Registro otorgará un plazo de un mes para que sean subsanados. Vencido el plazo sin que el interesado cumpliere con lo requerido, la solicitud se tendrá por abandonada, ordenándose el archivo del expediente.

@@ -1,0 +1,1 @@
+Artículo 29.—Nulidad de oficio. Tratándose de un caso de nulidad en que el Registro actúe de oficio, se procederá conforme lo dispuesto en el último párrafo del artículo 24 de la Ley, sin perjuicio de ordenar la publicación de la resolución en el Diario Oficial a que se refiere el artículo 30 de la Ley.

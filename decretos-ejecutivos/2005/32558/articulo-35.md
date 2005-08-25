@@ -1,0 +1,2 @@
+Artículo 35.—Corrección de errores. El Registro, de oficio o a solicitud del titular, podrá modificar una inscripción para corregir algún error material.
+Se entenderá que se ha cometido error material cuando se han escrito unas palabras por otras, se ha omitido la expresión de algún requisito o circunstancia cuya falta no causa nulidad, o bien, cuando se ha consignado en forma equívoca alguno de los requisitos de la inscripción, siempre que con ello no se cambie el sentido general de la inscripción ni de ninguno de sus conceptos.

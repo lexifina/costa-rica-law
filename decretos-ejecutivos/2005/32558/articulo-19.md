@@ -1,0 +1,1 @@
+Artículo 19.—Observaciones. Además de los requisitos comunes previstos en este Reglamento para toda solicitud, las observaciones que se presenten contra la solicitud de inscripción en el registro de un esquema de trazado deberán indicar el número de expediente y fecha de presentación de la solicitud materia de la observación.

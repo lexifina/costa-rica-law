@@ -1,0 +1,1 @@
+Artículo 16.—Descripción. La descripción deberá definir, de manera concisa y clara, la función electrónica del circuito integrado que incorpora el esquema de trazado y podrá contener referencias a la representación gráfica que puedan ser útiles para su comprensión.

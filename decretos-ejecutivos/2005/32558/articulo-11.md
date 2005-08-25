@@ -1,0 +1,1 @@
+Artículo 11.—Abandono. Cuando se tenga una solicitud por abandonada de acuerdo a lo prescrito en el artículo 20 y 21 de la Ley, el registro lo hará constar en los antecedentes que obran en las bases de datos y ordenará su archivo, firmando la resolución dictada en el respectivo expediente.

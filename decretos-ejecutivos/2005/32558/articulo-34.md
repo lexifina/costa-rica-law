@@ -1,0 +1,1 @@
+Artículo 34.—Reposición de expedientes. Sin perjuicio de las responsabilidades a que haya lugar y a la imposición de medidas disciplinarias al personal responsable, la reposición de un expediente perdido o destruido total o parcialmente, deberá ser ordenada por el Registro en forma inmediata, de oficio o a solicitud del interesado.

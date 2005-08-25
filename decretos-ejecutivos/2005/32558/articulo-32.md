@@ -1,0 +1,1 @@
+Artículo 32.—Apelación. Contra las resoluciones definitivas del Registro, o aquellas que pongan fin al proceso de inscripción, procede el recurso de apelación que será conocido por el Tribunal Registral Administrativo, conforme lo establecido en la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, Ley número 8039 del 12 de octubre del año 2000.
