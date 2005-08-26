@@ -16,3 +16,4 @@ Convoca a Sesiones extraordinarias a la Asamblea Legislativa a partir del 1° de
 | 1 | 2005-08-01 | la propia norma |
 | 2 | 2005-08-23 | Decreto Ejecutivo 32561 (2005-08-23) |
 | 3 | 2005-08-26 | Decreto Ejecutivo 32570 (2005-08-26) |
+| 4 | 2005-08-26 | Decreto Ejecutivo 32573 (2005-08-26) |
