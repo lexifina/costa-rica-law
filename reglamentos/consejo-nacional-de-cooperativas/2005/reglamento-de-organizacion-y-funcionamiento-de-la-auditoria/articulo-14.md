@@ -1,0 +1,3 @@
+CAPÍTULO CUARTO
+Del Objeto, potestades y prohibiciones
+Artículo 14.—El Objetivo fundamental de la Auditoría Interna es prestar un servicio de asesoría preventiva y constructiva a la Administración para que alcance sus metas y objetivos institucionales (de acuerdo con su Planeamiento Estratégico y los cambios y condiciones que exige la organización), con mayor eficiencia y eficacia, mediante la práctica de un enfoque integral para evaluar y mejorar la efectividad de la administración del riesgo, el control de los procesos de gestión, proporcionándole en forma oportuna información, análisis, comentarios y recomendaciones sobre las operaciones y procesos que examina.

@@ -1,0 +1,1 @@
+Artículo 4º—La Secretaria Ejecutiva, y subalternos de las unidades administrativas que conforman la estructura del CONACOOP. deben colaborar permanentemente con la Auditoría Interna en las investigaciones y indagaciones que ésta realice, a CUYO fin deben atender oportunamente los requerimientos y solicitudes que ésta les formule.

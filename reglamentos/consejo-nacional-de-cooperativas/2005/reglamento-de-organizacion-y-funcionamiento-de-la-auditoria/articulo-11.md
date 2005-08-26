@@ -1,0 +1,1 @@
+Artículo 11.—La Auditor (a) Interno (a) será designado por el directorio, conforme los resultados del concurso que realice el CONACOOP de conformidad con la reglamentación dictada al efecto. Para la remoción del auditor interno deberá cumplirse con lo establecido por la Ley General de Control Interno.

@@ -1,0 +1,1 @@
+Artículo 12.—La labor del Auditor (a) Interno (a) será evaluada anualmente por el directorio, de acuerdo con la presentación de los informes de gestión de la auditoría interna. La Auditoría Interna remitirá un informe anual a conocimiento del plenario.

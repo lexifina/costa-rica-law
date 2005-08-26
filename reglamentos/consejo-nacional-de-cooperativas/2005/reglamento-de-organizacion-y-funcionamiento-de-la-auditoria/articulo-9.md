@@ -1,0 +1,1 @@
+Artículo 9º—La Auditoría Interna se regulará de acuerdo con las disposiciones del directorio, las normas, políticas, procedimientos, en el ámbito de su competencia emitidas por el órgano contralor y el Colegio de Contadores Públicos de Costa Rica.

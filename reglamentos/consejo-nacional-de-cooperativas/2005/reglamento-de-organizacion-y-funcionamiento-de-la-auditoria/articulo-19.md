@@ -1,0 +1,1 @@
+Artículo 19.—El Auditor (a) Interno (a) mantendrá actualizado y en uso, los procedimientos de auditoría interna, con el objeto de que cuente con un instrumento que defina las características y los procedimientos de auditoría aplicables al CONACOOP.

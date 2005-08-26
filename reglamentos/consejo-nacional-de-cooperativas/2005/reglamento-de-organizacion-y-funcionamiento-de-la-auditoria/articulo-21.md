@@ -1,0 +1,1 @@
+Artículo 21.—La comunicación deberá hacerse por escrito durante el desarrollo de los estudios de Auditoría, mediante memorando, oficios o informe parcial, y al finalizar la labor de campo por medio del informe final cuando el caso lo amerite.

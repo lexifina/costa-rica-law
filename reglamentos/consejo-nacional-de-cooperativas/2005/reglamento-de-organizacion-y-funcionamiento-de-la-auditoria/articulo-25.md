@@ -1,0 +1,1 @@
+Artículo 25.—Las unidades o funcionarios responsables dispondrán de un plazo de un mes, a partir de la comunicación de las recomendaciones presentadas por la Auditoría Interna para aceptar, rechazar o proponer modificaciones. En caso de no dar respuesta, se entenderá que han sido aceptadas y acogidas de inmediato.
