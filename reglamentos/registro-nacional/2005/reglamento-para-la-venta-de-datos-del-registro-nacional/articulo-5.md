@@ -1,0 +1,7 @@
+Artículo 5º—De las obligaciones del comprador. El comprador podrá adquirir la información estadística contenida en las bases de datos del Registro Nacional bajo la exclusiva salvedad de que la información transferida será utilizada únicamente para fines estadísticos. Para tales efectos, el comprador tendrá las siguientes obligaciones:
+a) No podrá alterar o modificar total ni parcialmente, la información vendida y existente en las bases de datos.
+b) No podrá transmitir la información a terceros, total o parcialmente, a través de la reventa.
+c) No podrá emitir certificaciones, ni cualquier otro documento, cuya eficacia quede supeditada a la información contenida y transferida en virtud del presente Reglamento.
+d) Deberá tomar todas las medidas necesarias de seguridad para que la información contenida en las bases de datos del Registro Nacional que le haya sido vendida, no sea utilizada en forma indebida y contrario a lo convenido en éste Reglamento y en el contrato respectivo.
+e) No podrá ceder total ni parcialmente los derechos otorgados al amparo del presente Reglamento.
+f) Será responsable ante la Junta Administrativa y ante terceros por el uso indebido que haga de la información contenida en la base de datos que le haya sido vendida, sea por su propio actuar o por actos provenientes de su personal, cuando se violenten ó menoscaben los derechos de terceros, en virtud del uso indebido que se invoca en cuanto a la información transferida.

@@ -1,0 +1,1 @@
+Artículo 2º—Bases de datos del Registro Nacional. La información estadística contenida en las bases de datos del Registro Nacional, podrá ser vendida a personas físicas o jurídicas que así lo soliciten. En su solicitud, el potencial comprador deberá demostrar que tiene un interés legítimo en la adquisición de dicha información.

@@ -1,0 +1,1 @@
+Artículo 8º—El comprador deberá presentar una solicitud de compra de información cada vez que desee comprar información estadística de las bases de datos del Registro Nacional. La Junta Administrativa sólo aprobará una venta por cada solicitud que se le presente.
