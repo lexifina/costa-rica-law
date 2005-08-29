@@ -13,3 +13,4 @@ Listado Oficial de Peritos Auxiliares del Poder Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-13 | la propia norma |
+| 2 | 2005-08-29 | Circular 37 (2005-08-29) |

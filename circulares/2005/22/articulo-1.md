@@ -1,6 +1,7 @@
 DIRECCIÓN EJECUTIVA DEL PODER JUDICIAL
 SECCIÓN DE ASESORÍA LEGAL
 CIRCULAR Nº 22-2005
+(NOTA DE SINALEVI: Esta circular fue ampliada por la circular N° 37 de 29 de agosto de 2005, la cual puede consultarse en el sistema)
 De: Lic. Alfredo Jones León, Director Ejecutivo.
 Para: Todas las oficinas judiciales del país y peritos designados.
 Asunto: Lista oficial de peritos.
