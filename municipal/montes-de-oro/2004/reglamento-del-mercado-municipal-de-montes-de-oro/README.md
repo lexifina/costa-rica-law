@@ -14,3 +14,4 @@ Reglamento del Mercado Municipal de Montes de Oro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-03-17 | la propia norma |
+| 2 | 2005-08-29 | Reglamento municipal 35 (2005-08-29) |
