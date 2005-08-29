@@ -42,3 +42,4 @@ Reglamento para el Sistema de Ahorro y Préstamo del Instituto Nacional de Vivie
 | 27 | 2003-07-23 | Reglamento 5296 (2003-07-23) |
 | 28 | 2004-02-11 | Reglamento 5350 (2004-02-11) |
 | 29 | 2004-03-17 | Reglamento 5360 (2004-03-17) |
+| 30 | 2005-08-29 | Reglamento 5497 (2005-08-29) |
