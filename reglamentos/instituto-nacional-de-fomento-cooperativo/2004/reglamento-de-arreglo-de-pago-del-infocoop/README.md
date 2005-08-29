@@ -14,3 +14,4 @@ Reglamento de Arreglo de Pago del INFOCOOP
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-22 | la propia norma |
+| 2 | 2005-08-29 | Reglamento 3471 (2005-08-29) |
