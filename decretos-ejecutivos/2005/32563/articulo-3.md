@@ -1,0 +1,1 @@
+Artículo 3º—De la aplicación. La aplicación de las medidas establecidas en el presente decreto, se ejecutarán independientemente, de la fecha que indican los planos no inscritos, de la fecha que indiquen los planos inscritos; o de la fecha de los asientos registrales.

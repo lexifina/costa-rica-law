@@ -1,0 +1,15 @@
+Nº 32563
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA
+Con fundamento en el artículo 140, incisos 3) y 18 de la Constitución Política.
+Considerando:
+1º—Con ocasión del “Programa de Regularización del Catastro y el Registro” en el marco del convenio de préstamo Nº 1284/OC-CR entre la República de Costa Rica y el Banco Interamericano de Desarrollo, Ley Nº 8154 de 27 de noviembre de 2001, donde se busca la armonización de los datos del Catastro Nacional y los asientos registrales del Registro Público de la Propiedad Inmueble; es necesario establecer los procedimientos por los cuales se logre el saneamiento de los diferentes conflictos que deriven de la confrontación de las realidades jurídicas constantes en el Registro de la Propiedad Inmueble, respecto de los planos catastrados y la información catastral.
+2º—Que en el artículo 30 de la Ley del Catastro Nacional número 6545 de 25 de marzo de 1981 y sus reformas, obliga a que en todo movimiento registral, se cite un plano de agrimensura, levantado de acuerdo con las normas establecidas por dicha ley; el cual debe servir a la descripción del inmueble de que se trate, logrando una verdadera concordancia y relación entre la información del Registro Público de la Propiedad Inmueble y la que indique el plano de agrimensura inscrito en el Catastro Nacional.
+3º—Que en ciertos casos existe inconsistencia en la información contenida en el Catastro Nacional y el Registro Público de la Propiedad Inmueble. Con el .n de lograr la concordancia en esta información, se hace necesaria la inscripción de un plano de agrimensura para el saneamiento de la información de los asientos registrales del Registro Público de la Propiedad Inmueble, independientemente de que exista_ un plano indicado en tal asiento, pues el mismo puede no, corresponder a la finca o no encontrarse debidamente inscrito en el Catastro Nacional.
+4º—Con el fin de cumplir con el mandato legal de establecer una verdadera concordancia entre la información del Registro Público de la Propiedad Inmueble y el Catastro Nacional se hace necesario establecer procedimientos para que de manera coordinada se pueda sanear la información de ambas dependencias, a los efectos de lograr concordancia entre la información jurídica de los asientos registrales y la representación gráfica de la realidad física constante en el plano catastrado. Por tanto,
+DECRETAN:
+Reglamento al artículo 30 de la Ley de Catastro
+Nº 6545 de 25 de marzo de 1981 y sus reformas
+CAPÍTULO ÚNICO
+De la inscripción de planos para subsanar asientos
+Artículo 1º—De la inscripción de planos para subsanar asientos registrales. Cuando en un asiento del Registro Público de la Propiedad Inmueble se cite un número de plano que no corresponda al inmueble o que no se encuentre inscrito, el Catastro Nacional previa solicitud del interesado procederá a la inscripción del plano que corresponda de conformidad con la normativa vigente. Una vez inscrito el plano, el propietario registral deberá bajo las formalidades registrales hacer la solicitud ante el Registro Público de la Propiedad Inmueble para sanear la información y ajustarla a la realidad material.
