@@ -14,3 +14,4 @@ Arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-05 | la propia norma |
+| 2 | 2005-08-30 | Decreto Ejecutivo 32683 (2005-08-30) |
