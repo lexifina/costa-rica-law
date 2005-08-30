@@ -1,0 +1,2 @@
+Artículo 41.—Rige. El presente Reglamento rige dos meses después de su publicación.
+Dado en la Presidencia de la República.—San José, a los cuatro días del mes de mayo del dos mil cinco.

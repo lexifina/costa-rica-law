@@ -1,0 +1,1 @@
+Artículo 31.—Reducción por residencia en instalaciones del MOPT u otros entes públicos o privados. Cuando los funcionarios que reciben Viático Corrido residan en instalaciones del MOPT u otros entes públicos o privados o a través de contrataciones de este con terceros, se les deducirá un 30% del monto total de Viático Corrido.

@@ -1,0 +1,1 @@
+Artículo 40.—Derogatoria. Este Decreto deroga el Decreto Ejecutivo N° 5697-T, de 26 de enero de 1976, y sus reformas, así como toda norma de igual o inferior rango o jerarquía en lo que se le oponga a este Reglamento.

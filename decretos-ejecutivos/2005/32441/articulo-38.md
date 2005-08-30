@@ -1,0 +1,1 @@
+Artículo 38.—Faltas graves. Las faltas graves deberán entenderse en concordancia con el artículo 77° del Reglamento Autónomo de Organización y Servicios del MOPT. Se califican como faltas graves a las obligaciones del contrato de trabajo toda alteración o información que conduzca a error o engaño en la aplicación de este Reglamento.

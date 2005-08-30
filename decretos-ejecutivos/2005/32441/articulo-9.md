@@ -1,0 +1,1 @@
+Artículo 9º—Reconocimiento de gastos de lavado y planchado de ropa. Cuando la permanencia fuera del lugar de contrato de trabajo sea por un lapso mayor de seis días continuos los funcionarios tendrán derecho a que, a partir del sétimo día, se les reconozca el importe de lavado y planchado de ropa.

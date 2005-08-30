@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del pago de Viático Corrido
+Artículo 20.—Concepto. Por Viático Corrido debe entenderse aquella suma destinada a la atención de gastos de hospedaje, alimentación y otros gastos menores, efectivamente realizados, que realicen los funcionarios del MOPT, cuando estos son destacados, mediante “Acción de Personal”, en otro centro de trabajo localizado a una distancia mayor o igual que 25 kilómetros de su lugar de contrato de trabajo o de su residencia habitual y cuya naturaleza demande sus servicios por un mes o más, sin que esto signifique obligación para el funcionario de permanecer en el lugar en que fue destacado durante los días que no se labore.

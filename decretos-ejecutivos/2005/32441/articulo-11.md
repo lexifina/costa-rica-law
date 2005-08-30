@@ -1,0 +1,1 @@
+Artículo 11.—Adelanto. Por adelanto debe entenderse la suma estimada de viáticos y gastos de transporte durante el período estimado del viaje, de acuerdo con lo estipulado por la Contraloría General de la República, lo cual deberá tramitarse una vez obtenida la autorización para el viaje y de previo a realizarse éste.

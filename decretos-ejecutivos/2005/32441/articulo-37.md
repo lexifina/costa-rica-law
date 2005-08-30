@@ -1,0 +1,1 @@
+Artículo 37.—Vigilancia. Las Auditorías Generales del MOPT vigilarán por la rectitud de los procedimientos contemplados en este Reglamento, según esté inscrita en la Administración Central o en sus entes adscritos.

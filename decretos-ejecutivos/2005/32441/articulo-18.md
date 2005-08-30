@@ -1,0 +1,1 @@
+Artículo 18.—No reconocimiento del Viático Ocasional. No se reconocerá Viático Ocasional al funcionario, cuando el punto de destino esté a una distancia inferior a los 25 km del centro de trabajo, o a menos de 10 km de su residencia habitual.

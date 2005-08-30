@@ -1,0 +1,1 @@
+Artículo 21.—Vigencia del Viático Corrido. El pago de Viático Corrido regirá desde el primer día en que al funcionario se le ubique físicamente en su nuevo centro de trabajo y durará hasta que cambie la condición que motivó dicho pago.
