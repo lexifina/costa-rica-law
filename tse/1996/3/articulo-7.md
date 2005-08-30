@@ -1,3 +1,4 @@
 CAPITULO II
 De la jornada de trabajo
-Artículo 7°—La jornada semanal de todos los trabajadores, con excepción de los oficiales de seguridad, será de cinco días.La jornada diurna será: Lunes de las ocho a las dieciséis horas y de martes a viernes de las ocho a las quince y treinta horas.
+Artículo 7º—La jornada semanal de todos los trabajadores, con excepción de los Oficiales de Seguridad, será de cinco días, de lunes a viernes, y ocho horas diarias, de acuerdo al horario que fije el Tribunal
+(Así reformado por el artículo 1° del Decreto del Tribunal Supremo de Elecciones N° 13 del 30 de agosto del 2005)
