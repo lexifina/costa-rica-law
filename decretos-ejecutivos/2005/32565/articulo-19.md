@@ -1,0 +1,1 @@
+Artículo 19.—Consultas telefónicas. Los funcionarios públicos tienen la obligación de atender las consultas telefónicas que formulen los particulares sobre información general acerca de los asuntos de su competencia, así como las que realicen los interesados para conocer el estado de sus tramitaciones.

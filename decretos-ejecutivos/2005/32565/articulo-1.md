@@ -1,0 +1,15 @@
+Nº 32565
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+En uso de las facultades conferidas en los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política del 7 de noviembre de 1949; inciso 2.b) del artículo 28 siguientes y concordantes de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; artículo 5º de la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley Nº 6054 del 14 de junio de 1977 y sus reformas, y el inciso b) del artículo 5º del Reglamento a la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Decreto Nº 29117-MEIC del 21 de noviembre del 2000, Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Ley Nº 8220 del 4 de marzo de 2002 y los artículos 3º y 4º de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor Nº 7472 del 20 de diciembre de 1994.
+Considerando:
+I.—Que la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Ley Nº 8220, ordena simplificar los trámites y requisitos establecidos por la Administración Pública frente a los ciudadanos, evitando duplicidades y garantizando en forma expedita el derecho de petición y el libre acceso a los departamentos públicos, contribuyendo de forma innegable en el proceso de reforzamiento del principio de seguridad jurídica del sistema democrático costarricense.
+II.—Que la simplificación de los trámites administrativos y la mejora regulatoria tienen por objeto racionalizar las tramitaciones que realizan los particulares ante la Administración Pública; mejorar su eficacia, pertinencia y utilidad, a fin de lograr mayor celeridad y funcionalidad en la tramitación, reduciendo los gastos operativos.
+III.—Que para el cumplimiento efectivo de la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, es necesario y conveniente reglamentar las disposiciones contenidas en dicho cuerpo normativo con el propósito de dotar a la Ley de una serie de elementos que permitan la aplicación uniforme de sus disposiciones. Por tanto,
+DECRETAN:
+Reglamento a la Ley de Protección al Ciudadano
+del Exceso de Requisitos y Trámites Administrativos
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Objeto y ámbito de aplicación. El presente Reglamento tiene por objeto desarrollar los principios contemplados en la Ley Nº 8220 conforme a los cuales los órganos de la Administración Pública se relacionan con el administrado en el ejercicio de su derecho de petición, información o cualquier trámite administrativo que los particulares gestionen para la obtención de una autorización, licencia o permiso.
+El presente Reglamento tiene como ámbito de aplicación a toda la Administración Pública, central y descentralizada, incluso instituciones autónomas y semiautónomas, órganos con personalidad jurídica instrumental, entes públicos no estatales, municipalidades y empresas públicas. Se exceptúa de su aplicación los trámites y procedimientos en materia de defensa del Estado y seguridad nacional.

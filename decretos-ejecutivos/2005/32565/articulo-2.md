@@ -1,0 +1,10 @@
+Artículo 2º—Definiciones generales. Para efectos de este reglamento, las expresiones o las palabras, empleadas tienen el sentido y los alcances que se mencionan en este artículo:
+a) Administración Central: La Administración Pública estará constituida por el Estado y los demás entes públicos, cada uno con personalidad jurídica y capacidad de derecho público y privado.
+b) Administración Descentralizada: Está conformada por las entidades pertenecientes al Poder Ejecutivo que tienen competencia en forma definitiva y exclusiva en las materias señaladas por Ley. Se considera dentro de la Administración descentralizada las instituciones autónomas, las denominadas semiautónomas, entes públicos no estatales, municipalidades y empresas públicas.
+c) Buena fe: Es el convencimiento, de quien realiza un acto o hecho jurídico, de que éste es verdadero, lícito y justo.
+d) Ley: Ley de Protección al Ciudadano contra el Exceso de Requisitos y Tramites Administrativos, Ley Nº 8220.
+e) Responsabilidad del funcionario: Es responsable ante terceros, el funcionario público que haya actuado con dolo o culpa grave en el desempeño de sus deberes o con ocasión del mismo, aunque sólo haya utilizado los medios y oportunidades que le ofrece el cargo.
+Estará comprendido en tales casos el funcionario que emitiere actos manifiestamente ilegales y el que los obedeciere de conformidad con el ordenamiento jurídico vigente.
+f) Trámite Administrativo: Cada una de las diligencias, actuaciones o gestiones consideradas previamente por la Administración Pública, para el curso y resolución de un asunto administrativo o de una solicitud realizada por los particulares ante los órganos y entidades de la Administración Pública.
+g) Trámite innecesario: Es aquella diligencia, actuación o gestión no fundamental para concretar el acto administrativo.
+h) Derecho de petición: Se define como aquel derecho que garantiza al ciudadano su derecho para dirigirse a un funcionario público o entidad estatal con el .n de solicitar información o realizar gestiones de su interés, así como la garantía de obtener pronta respuesta por parte de la Administración Pública.

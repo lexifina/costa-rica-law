@@ -1,0 +1,1 @@
+Artículo 32.—Responsabilidad por culpa o dolo. Será responsable personalmente ante terceros, el servidor público que haya actuado con dolo o culpa grave en el ejercicio de sus funciones y en la tramitación de la petición del Administrado.

@@ -1,0 +1,1 @@
+Artículo 27.—Silencio positivo. Excepciones. Quedan exceptuados de la aplicación del silencio positivo las solicitudes, permisos y autorizaciones que por disposición legal o por jurisprudencia de la Corte Suprema de Justicia así lo señalen.

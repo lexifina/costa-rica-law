@@ -1,0 +1,1 @@
+Artículo 10.—Presentación de documentos. Los particulares podrán presentar la información solicitada por la Administración, en formularios oficiales brindados por la Administración o mediante cualquier documento que respete integralmente, el contenido y la estructura exigidos en dichos formatos cuando así lo exija la normativa jurídica.

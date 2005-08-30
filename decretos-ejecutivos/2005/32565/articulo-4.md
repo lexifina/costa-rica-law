@@ -1,0 +1,1 @@
+Artículo 4º—Estructura de los trámites administrativos. Los trámites administrativos deben estructurarse de manera tal que sean claros, sencillos, ágiles, racionales, y de fácil entendimiento para los particulares, a fin de mejorar las relaciones de estos con la Administración Pública, haciendo eficaz y eficiente su actividad.
