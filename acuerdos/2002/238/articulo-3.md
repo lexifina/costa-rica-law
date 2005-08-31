@@ -1,51 +1,54 @@
-Articulo 3°—Requisitos para obtener una licencia de pesca deportiva por primera vez:
-A. Propietarios de embarcaciones nacionales:
-A.. 1. Personas físicas:
-§ Formula de solicitud debidamente llena y firmada (F.S.L.).
-§ Presentar original y aportar fotocopia de alguno de los siguientes documentos, según corresponda:
-Cedula de identidad vigente.
-Cedula de residencia vigente.
-Pasaporte o carne de turista extendido por el ICT, vigentes.
-§ Aportar una certificación del Registro Nacional de Buques, que demuestre que la embarcación esta inscrita a su nombre, con un máximo de un mes calendario de haber sido expedida.
-§ Presentar certificado de navegabilidad vigente.
-§ Presentar Carne de pesca deportiva vigente del propietario.
-§ Aportar una fotografía en la cual se aprecie claramente la bandera, el nombre y el numero de matricula en la proa de la embarcación.
-§ Estar al día con las obligaciones obrero patronales.
-§ Cancelación del canon respectivo.
-A.2. Personas jurídicas:
-§ Formula de solicitud debidamente llena y firmada (F.S.L.) por el representante legal.
-§ El representante legal debe presentar original y entregar fotocopia de la cedula de identidad vigente o presentar original y entregar fotocopia del pasaporte, carne de turista extendido por el ICT o de la cedula de residencia vigente, en caso de ser extranjero.
-§ Presentar original de la cedula de persona jurídica vigente.
-§ Entregar una certificación registral o notarial de personería jurídica de la empresa en original, con no mas de un mes de haber sido expedida.
-§ Aportar una certificación del Registro Nacional de Buques que demuestre que la embarcación esta inscrita a nombre de la empresa solicitante, con un máximo de un mes calendario de haber sido expedida.
-§ Presentar certificado de navegabilidad vigente en original.
-§ Presentar carne de pesca deportiva vigente del representante legal.
-§ Aportar una fotografía en la cual se aprecie claramente la bandera, el nombre y el numero de matricula en la proa de la embarcación.
-§ La empresa propietaria de la embarcación solicitante debe estar al dia con sus obligaciones obrero patronales.
-§ Cancelación del canon respectivo.
-B. Propietarios de embarcaciones extranjeras:
-B. L Personas físicas:
-§ Formula de solicitud debidamente llena y firmada (F.S.L.).
-§ Presentar original y fotocopia de alguno de los siguientes documentos, según corresponda:
-§
-§
-Cedula de identidad.
-Cedula de residencia vigente.
-Pasaporte vigente o carne de turista extendido por el ICT.
-§ Presentar original y aportar fotocopia del certificado de importación temporal emitido por el Servicio Nacional de Aduanas del Ministerio de Hacienda.
-§ Presentar carne de pesca deportiva vigente del propietario de la embarcación.
-§ Entregar una fotografía de la embarcación en la cual se aprecie claramente el nombre de la misma.
-§ Cancelación del canon respectivo.
-B.2. Personas jurídicas (nacionales o extranjeras):
-§ Formula de solicitud debidamente llena y firmada (F.S.L.) por el representante legal.
-§ El representante legal debe presentar original y entregar fotocopia de la cedula de identidad vigente o presentar original y entregar fotocopia del pasaporte, carne de turista extendido por el ICT o de la cedula de residencia vigente, en caso de ser extranjero.
-§ Presentar original de la cedula de persona jurídica vigente para empresas costarricenses.
-§ Entregar una certificación registral o notarial de personería jurídica de la empresa en original, con no mas de un mes de haber sido expedida en el caso de empresas costarricenses.
-§ Presentar original y aportar fotocopia del certificado de importación temporal emitido por el Servicio Nacional de Aduanas del Ministerio de Hacienda.
-§ Presentar carne de pesca deportiva vigente del representante legal.
-§ Aportar una fotografía en la cual se aprecie claramente el nombre de la embarcación.
-§
-§ La empresa propietaria de la embarcación solicitante debe estar al día con sus obligaciones obrero patronales tratándose de empresas costarricenses.
-§ Cancelación del canon respectivo.
-La presentación de documentos y firma de las solicitudes correspondientes, anteriormente establecidos, podrán ser realizadas por el titular o propietario de la embarcación o en su defecto, por el capitán de la misma, tanto para personas físicas como jurídicas.
-(Así adicionado el párrafo anterior mediante acuerdo N° 18 del 14 de enero del 2005).
+Artículo 3º—Requisitos para el otorgamiento de Licencia a embarcaciones dedicadas a pesca deportiva y pesca turística marina o continental así como para la observación de especies acuáticas por "PRIMERA VEZ":
+a) Propietario de embarcación nacional:
+a.1. Personas físicas:
+- Fórmula de solicitud debidamente llena y firmada por el propietario, apoderado o capitán. Cuando se trate del capitán o apoderado, presentar documento legal que lo acredite como tal.
+- Presentar original y copia de alguno de los siguientes documentos, según corresponda:
+- Cédula de identidad vigente.
+- Cédula de residencia vigente.
+- Pasaporte vigente.
+- Certificación original de que la embarcación está inscrita ante el Registro Nacional de Buques.
+- Presentar original y copia del certificado de navegabilidad vigente.
+- En el caso de embarcaciones dedicadas a la pesca turística, presentar original y copia de la declaratoria turística emitida por el Instituto Costarricense de Turismo (ICT).
+- Presentar carné de pesca vigentes respetivos del propietario o el capitán y de los tripulantes.
+- En el caso de embarcaciones dedicadas a la pesca turística y la observación de especies acuáticas, deberá presentarse documento original idóneo emitido por la CCSS, en el que se demuestre estar inscritos y al día con sus obligaciones.
+- Cancelación de la tarifa respectiva
+a.2. Personas jurídicas:
+- Fórmula de solicitud debidamente llena y firmada por el representante legal o capitán. Cuando se trate de capitán presentar documento legal que lo acredite.
+- Presentar original y copia de alguno de los siguientes documentos, del (la) representante legal o del capitán según corresponda:
+- Cédula de identidad.
+- Cédula de residencia vigente.
+- Pasaporte vigente.
+- Presentar original y copia de cédula de persona jurídica vigente.
+- Entregar original de certificación registral o notarial de personería jurídica de la empresa, con no más de un mes de haber sido expedida.
+- Certificación original de que la embarcación está inscrita ante el Registro Nacional de Buques.
+- Presentar original y copia del certificado de navegabilidad vigente.
+- En el caso de embarcaciones dedicadas a la pesca turística, presentar original y copia de la declaratoria turística emitida por el Instituto Costarricense de Turismo (ICT).
+- Presentar carné de pesca vigentes respectivos del propietario o el capitán y de los tripulantes.
+- En el caso de embarcaciones dedicadas a la pesca turística y la observación de especies acuáticas, deberá presentarse documento original idóneo emitido por la CCSS, en el que se demuestre estar inscritos y al día con sus obligaciones.
+- Cancelación de la tarifa respectiva.
+b. Propietario de embarcación extranjera (únicamente para pesca deportiva).
+b.1. Personas físicas:
+- Fórmula de solicitud debidamente llena y firmada por el representante legal o capitán. Cuando se trate del capitán, presentar documento legal que lo acredite como tal.
+- Presentar original de alguno de los siguientes documentos, del (la) propietario(a) o del capitán según corresponda:
+- Cédula de identidad.
+- Cédula de residencia vigente.
+- Pasaporte vigente.
+- Carné de turista extendido por el I.C.T., vigente.
+- Presentar original y copia del certificado de importación temporal emitido por el Servicio Nacional de Aduanas del Ministerio de Hacienda.
+- Presentar original y copia del permiso de permanencia de la embarcación en aguas nacionales emitido por el Ministerio de Obras Públicas y Transportes.
+- Presentar carné de pesca vigentes respectivos del propietario o el capitán y de los tripulantes.
+- Cancelación de la tarifa respectiva.
+b. 2. Personas jurídicas (nacional o extranjera):
+- Fórmula de solicitud debidamente llena y firmada por el representante legal o capitán. Cuando se trate del capitán, presentar documento legal que lo acredite como tal.
+- Presentar original de alguno de los siguientes documentos, del (la) representante legal o del capitán según corresponda:
+- Cédula de identidad.
+- Cédula de residencia vigente.
+- Pasaporte vigente.
+- Carné de turista extendido por el I.C.T., vigente.
+- Presentar original y copia de cédula de persona jurídica vigente.
+- Entregar original de certificación registral o notarial de personería jurídica de la empresa, con no más de un mes de haber sido expedida (únicamente para empresas costarricenses).
+- Presentar original y copia del certificado de importación temporal emitido por el Servicio Nacional de Aduanas del Ministerio de Hacienda.
+-Presentar original y copia del permiso de permanencia de la embarcación en aguas nacionales emitido por el Ministerio de Obras Públicas y Transportes.
+- Presentar carné de pesca vigentes respectivos del propietario o el capitán y de los tripulantes.
+- Cancelación de la tarifa respectiva.
+(Así reformado por el artículo 1° del Acuerdo AJDIP 430 del 31 de agosto de 2005).
