@@ -1,0 +1,1 @@
+Artículo 8º—Las sesiones del Comité serán siempre privadas, pero éste podrá disponer, acordándolo así por unanimidad de sus miembros presentes, que tenga acceso a ella personas que puedan contribuir con su gestión, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
