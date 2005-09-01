@@ -1,6 +1,6 @@
 CAJA COSTARRICENSE DE SEGURO SOCIAL
 JUNTA DIRECTIVA
-(NOTA: La vigencia de este reglamento fue prorrogada por seis meses más mediante el inciso 1° del artículo 9° de la sesión de la Junta Directiva de la Caja Costarricense de Seguro Social, No. 7927 del 27 de enero del 2005.)
+(NOTA: La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 8º de la sesión 7989, celebrada el 1º de setiembre del año 2005, acordó prorrogar hasta el 31 de octubre del año 2005 la vigencia de este Reglamento).
 La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 4º, acuerdo segundo de la sesión 7720, celebrada el 16 de enero de 2003, dispuso modificar el Reglamento para la investigación en centros asistenciales de la Caja Costarricense de Seguro Social, que en adelante se leerá así:
 CAPÍTULO I
 Principios Generales

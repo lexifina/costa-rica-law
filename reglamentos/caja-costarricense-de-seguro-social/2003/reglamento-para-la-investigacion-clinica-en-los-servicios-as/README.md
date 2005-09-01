@@ -16,3 +16,4 @@ Reglamento para la Investigación Clínica en los Servicios Asistenciales de la 
 | 1 | 2003-01-30 | la propia norma |
 | 2 | 2004-01-22 | Reglamento 7827 (2004-01-22) |
 | 3 | 2005-01-27 | Reglamento 7927 (2005-01-27) |
+| 4 | 2005-09-01 | Reglamento 7989 (2005-09-01) |
