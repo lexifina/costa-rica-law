@@ -18,3 +18,4 @@ Normativa para el conocimiento y aprobación de las solicitudes de subsidio para
 | 3 | 2002-12-12 | Reglamento 82 (2002-12-12) |
 | 4 | 2002-12-12 | Reglamento 82 (2002-12-12) |
 | 5 | 2005-02-15 | Reglamento 9 (2005-02-15) |
+| 6 | 2005-09-01 | Reglamento 53 (2005-09-01) |
