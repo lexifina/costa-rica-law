@@ -1,0 +1,2 @@
+Artículo 10.—Sobre la nota mínima para formar la lista de elegibles. Se considerarán elegibles a quienes obtengan como mínimo una calificación final de 80% resultado de la ponderación de las calificaciones obtenidas en los diferentes factores utilizados para la evaluación de candidatos.
+Con los candidatos que obtengan una calificación final de 80% se conformará un Registro de Elegibles, ordenado en forma descendente a partir de la calificación mayor hasta el 80%.

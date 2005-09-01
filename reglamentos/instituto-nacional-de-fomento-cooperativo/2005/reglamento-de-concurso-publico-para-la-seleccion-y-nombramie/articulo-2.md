@@ -1,0 +1,1 @@
+Artículo 2º—Acciones previas. De previo a que el Proceso Desarrollo Humano programe y ponga en marcha la realización del Concurso Público que indica la Ley 8292 para el nombramiento del Auditor Interno, se requerirá de la existencia de un acuerdo tomado por la Junta Directiva del Instituto Nacional de Fomento Cooperativo.

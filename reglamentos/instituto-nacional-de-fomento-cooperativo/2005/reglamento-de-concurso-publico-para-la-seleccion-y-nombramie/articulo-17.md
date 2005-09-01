@@ -1,0 +1,1 @@
+Artículo 17.—Del período de prueba. El nombramiento definitivo del Auditor Interno escogido, estará sujeto al desempeño durante un período de prueba de tres meses, de acuerdo con la legislación vigente.

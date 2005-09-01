@@ -1,0 +1,1 @@
+Artículo 8º—Sobre el estudio de las ofertas. Las ofertas serán estudiadas y analizadas por el coordinador del Proceso Desarrollo Humano, quien en aras de facilitar el análisis, podrá solicitar las aclaraciones que estime convenientes.

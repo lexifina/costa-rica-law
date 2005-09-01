@@ -1,0 +1,1 @@
+Artículo 5º—De la publicación de aviso del concurso público. La publicación del anuncio sobre el Concurso, deberá contener los requisitos mínimos solicitados para el puesto, así como el lugar, la fecha y horas de inicio y término en que se recibirán las ofertas. La publicación del anuncio se hará en el Diario Oficial La Gaceta y en un diario de circulación nacional.

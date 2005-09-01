@@ -1,0 +1,1 @@
+Artículo 3º—Requisitos de los puestos. Los requisitos del puesto de auditor interno son los que se encuentran definidos en los “Lineamientos para la descripción de las funciones y requisitos de los cargos de Auditor y Subauditor Internos”, publicados en La Gaceta 205 del 24 de octubre de 2003.

@@ -1,0 +1,1 @@
+Artículo 4º—Sobre las condiciones de la evaluación. De previo a la realización del concurso, el Proceso Desarrollo Humano elaborará una propuesta que contendrá los factores a valorar en las ofertas presentadas por los oferentes y sus ponderaciones, así como el cronograma de actividades. Esta propuesta será aprobada por la Junta Directiva.
