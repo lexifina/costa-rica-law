@@ -14,3 +14,4 @@ Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-26 | la propia norma |
+| 2 | 2005-09-02 | Decreto Ejecutivo 32729 (2005-09-02) |

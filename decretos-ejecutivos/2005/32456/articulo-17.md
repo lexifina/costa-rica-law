@@ -1,3 +1,4 @@
 Artículo 17.—Declaración anticipada. La declaración de mercancías podrá ser presentada anticipadamente al arribo de las mercancías al país en los regímenes señalados en el artículo 87 del RECAUCA y el régimen de tránsito aduanero.
-La declaración aduanera podrá transmitirse con una anticipación máxima de veinticuatro horas y mínima de una hora del arribo del vehículo a puerto aduanero.
+La declaración aduanera anticipada podrá transmitirse desde el momento en que se hubiere transmitido el manifiesto de carga de ingreso al país y hasta el momento de arribo de la nave al muelle, al aeropuerto o del registro del arribo del vehículo al puerto terrestre, según se trate de tránsito marítimo, aéreo o terrestre, respectivamente.
+(Así reformado el párrafo anterior por el artículo 1° del Decreto Ejecutivo N° 32729 del 2 de setiembre de 2005).
 La Dirección General establecerá los procedimientos, condiciones y plazos para que la declaración aduanera pueda presentarse sin asociarse a un inventario, tomando en cuenta las particularidades de cada régimen o modalidad, las condiciones de infraestructura y las particularidades del tráfico terrestre, marítimo o aéreo.
