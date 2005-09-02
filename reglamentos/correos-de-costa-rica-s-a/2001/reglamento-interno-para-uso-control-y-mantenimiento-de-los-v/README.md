@@ -14,3 +14,4 @@ Reglamento Interno para Uso, Control y Mantenimiento de los Vehículos de Correo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-01 | la propia norma |
+| 2 | 2005-09-02 | Reglamento 529 (2004-09-02) |
