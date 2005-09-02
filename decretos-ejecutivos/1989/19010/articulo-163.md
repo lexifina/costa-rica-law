@@ -1,0 +1,2 @@
+Artículo 163.—La verificación de antecedentes penales la realizará la Dirección General de oficio. En caso de que el Registro Judicial comunique que el extranjero cuenta con juzgamientos, la Dirección General le entregará una boleta para que se apersone ante ese Registro para solicitar la certificación correspondiente, la cual deberá presentar a la Dirección General en un plazo que no excederá de cinco días hábiles.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32696 del 2 de setiembre de 2005)

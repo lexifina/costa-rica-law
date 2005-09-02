@@ -1,0 +1,6 @@
+Artículo 140.—La Dirección General podrá otorgar permisos temporales a extranjeros que pretendan realizar servicios domésticos, para lo cual se deberá aportar los siguientes requisitos:
+a) Solicitud del interesado dirigida a la Dirección General, indicando su nombre, nacionalidad, número y tipo de pasaporte, dirección exactaen Costa Rica, nombre de los padres, lugar y fecha de nacimiento, nombre y calidades del empleador, salario por devengar, dirección de la casa de habitación en la que realizará el trabajo y lugar o medio cierto para recibir notificaciones.
+b) Declaración jurada emitida ante notario público por parte del empleador, donde consigne su nombre, nacionalidad, dirección exacta de su casa de habitación y condiciones laborales y salariales que ofrece al extranjero que pretende contratar.
+c) Fotocopia de la cédula de identidad costarricense, de residencia o del documento donde se consignó el permiso temporal del empleador.
+d) Demostrar la solvencia económica del empleador mediante: constancia salarial, certificación bancaria o certificación de ingresos emitida por contador público autorizado.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32696 del 2 de setiembre de 2005)

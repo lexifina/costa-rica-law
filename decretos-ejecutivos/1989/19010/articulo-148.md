@@ -1,0 +1,2 @@
+Artículo 148.—Cuando los requisitos señalados, se presenten de manera incompleta o defectuosa, el Ministerio de Trabajo, con base en el artículo 264 de la Ley General de la Administración Pública, prevendrá al interesado para que complete los requisitos o subsane los defectos, dentro de un plazo de diez días hábiles, a partir de la respectiva notificación. La falta de cumplimiento de dicha prevención obligará al archivo de la solicitud.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32696 del 2 de setiembre de 2005)

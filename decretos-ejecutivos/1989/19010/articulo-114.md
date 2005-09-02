@@ -1,0 +1,2 @@
+Artículo 114.—La Dirección General podrá corroborar la información suministrada por el petente de un permiso temporal, mediante la investigación que corresponda para determinar la verdad real de la situación alegada en cada solicitud, y la procedencia o no del otorgamiento de este beneficio, de conformidad con el artículo 13 de la Ley General de Migración y Extranjería.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32696 del 2 de setiembre de 2005)

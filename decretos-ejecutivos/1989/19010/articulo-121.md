@@ -1,0 +1,2 @@
+Artículo 121.—El otorgamiento de un permiso temporal implicará el beneficio de permanecer en el país por el plazo que la Dirección General indique y el desarrollo de las actividades particulares para las cuales se solicitó. El extranjero beneficiado con un permiso temporal no podrá realizar otro tipo de actividades ajenas a las expresamente autorizadas.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32696 del 2 de setiembre de 2005)

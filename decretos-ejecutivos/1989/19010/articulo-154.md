@@ -1,0 +1,2 @@
+Artículo 154.—La Gestión de Extranjería o delegación regional competente de la Dirección General notificará al empleador a la dirección o medio que conste en el expediente administrativo, la lista oficial autorizada de trabajadores a quienes se les otorgó el permiso temporal de trabajo, con el .fin de que se coordine hora y fecha para la notificación personal de la resolución a cada trabajador y la devolución de su documento de viaje en el que constará el permiso.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32696 del 2 de setiembre de 2005)

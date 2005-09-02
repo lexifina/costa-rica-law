@@ -1,0 +1,2 @@
+Artículo 112.—Toda fotocopia que se presente dentro una gestión de permiso temporal, deberá ser debidamente certificada por notario público, salvo que sean confrontadas por el funcionario competente para recibir este tipo de trámites, en cuyo caso éste dejará constancia de haber tenido a la vista los documentos originales.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32696 del 2 de setiembre de 2005)

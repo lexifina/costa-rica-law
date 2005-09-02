@@ -1,0 +1,7 @@
+CAPÍTULO SEGUNDO
+Personas que requieran tratamiento médico
+Artículo 124.—Para el conocimiento y tramitación de los permisos temporales de permanencia a personas que requieran tratamiento médico especializado en un centro hospitalario reconocido, se deberá cumplir con los siguientes requisitos:
+a) Solicitud del interesado dirigida a la Dirección General, indicando nombre, nacionalidad, número y tipo de pasaporte, dirección exacta en Costa Rica, nombre de los padres, lugar y fecha de nacimiento, el tipo de padecimiento, nombre de la clínica u hospital donde recibirá el tratamiento, el tiempo estimado que deberá permanecer en el país para tal fin y las razones por las cuales no se ha hecho el tratamiento médico en su país de origen o en que legalmente resida y lugar o medio cierto para recibir notificaciones.
+b) Certificado médico del hospital o clínica donde recibirá el tratamiento, indicando el tipo de padecimiento y el tiempo que durará el tratamiento.
+c) Demostrar la solvencia económica mediante la cual cubrirá sus gastos durante su permanencia en el país, ya sean propios o de otra persona. En caso de presentar solvencia económica de un garante, debe aportar fotocopia certificada de la cédula costarricense o de residencia, así como declaración jurada emitida ante notario público mediante la cual éste se compromete a sufragar el tratamiento y la permanencia en el país del extranjero.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32696 del 2 de setiembre de 2005)

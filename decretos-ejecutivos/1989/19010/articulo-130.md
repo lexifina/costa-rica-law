@@ -1,0 +1,2 @@
+Artículo 130.—A los estudiantes se les otorgará una autorización de permanencia en el país por bimestre, trimestre, cuatrimestre, semestre o año lectivo según sea el sistema de créditos del centro de enseñanza. Los interesados podrán solicitar prórroga por periodos similares, siempre y que acrediten la continuación de sus estudios en forma regular y la aprobación de las notas, hasta por un periodo máximo que no exceda en un año el plazo total de la carrera.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32696 del 2 de setiembre de 2005)

@@ -1,0 +1,2 @@
+Artículo 149.—Presentados los requisitos de manera completa, el Ministerio de Trabajo y Seguridad Social realizará el estudio correspondiente en un plazo que no excederá de treinta días naturales, mediante el cual se deberá determinar la necesidad real de mano de obra extranjera, en virtud de la carencia en el país de trabajadores costarricenses o extranjeros que permanezcan bajo la categoría migratoria de Residentes.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32696 del 2 de setiembre de 2005)

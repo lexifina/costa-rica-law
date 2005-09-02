@@ -21,3 +21,4 @@ Reglamento a la Ley General de Migración y Extranjería
 | 6 | 2002-03-19 | Decreto Ejecutivo 30300 (2002-03-19) |
 | 7 | 2003-02-05 | Decreto Ejecutivo 31186 (2003-02-05) |
 | 8 | 2004-06-24 | Decreto Ejecutivo 31874 (2004-06-24) |
+| 9 | 2005-09-02 | Decreto Ejecutivo 32696 (2005-09-02) |

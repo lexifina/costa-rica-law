@@ -1,0 +1,2 @@
+Artículo 113.—No se tramitarán solicitudes que carezcan de lugar dentro del perímetro judicial de San José o medio para recibir notificaciones. En caso de omisión, o si el lugar o medio fuere incierto o falso, las notificaciones del acto administrativo se tendrán por realizadas veinticuatro horas después de su dictado.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32696 del 2 de setiembre de 2005)

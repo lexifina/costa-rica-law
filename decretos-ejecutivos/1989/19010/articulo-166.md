@@ -1,0 +1,2 @@
+Artículo 166.—El Director General podrá, en caso necesario, delegar facultades de su competencia, cuando con ello se faciliten los servicios que debe prestar la Dirección General. La delegación podrá ser jerárquica o no jerárquica, de conformidad con lo estipulado en la Ley General de la Administración Pública.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 32696 del 2 de setiembre de 2005)

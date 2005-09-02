@@ -1,0 +1,2 @@
+Artículo 111.—La firma de todas las solicitudes de permisos temporales u otros documentos de interés en el trámite, deberán ser autenticadas por notarios públicos, salvo que la rúbrica se realice ante el funcionario competente para recibir este tipo de trámites, en cuyo caso éste dejará constancia de que la firma se realizó en su presencia.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32696 del 2 de setiembre de 2005)

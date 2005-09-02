@@ -1,0 +1,2 @@
+Artículo 155.—La Dirección Nacional de Inspección del Ministerio de Trabajo y Seguridad Social, revisará en cualquier momento el cumplimiento estricto de lo estipulado en el presente artículo, así como las condiciones mínimas estipuladas en el Código de Trabajo. Así mismo, verificará las condiciones de los campamentos y/o habitaciones en las que residirán los trabajadores, en los casos en que se proporcione alojamiento.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32696 del 2 de setiembre de 2005)
