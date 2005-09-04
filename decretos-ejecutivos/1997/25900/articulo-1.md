@@ -55,7 +55,7 @@ Colegio Iribo | San José | Curridabat
 Colegio Calasanz | San José | Montes de Oca
 Escuelas Internacionales Cristianas | Heredia | Santo Domingo
 Colegio Salesiano Don Bosco | San José | San José
-Colegio Sek Internacional | San José | Curridabat
+* Colegio Internacional SEK-Costa Rica (* Así reformado por el artículo 1° del decreto ejecutivo N° 32736 del 4 de setiembre del 2005) | San José | Curridabat
 Colegio Metodista | San José | Montes de Oca
 Mariam Baker School | Cartago | La Unión
 Colegio los Angeles | San José | San José
