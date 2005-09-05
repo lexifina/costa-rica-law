@@ -1,0 +1,1 @@
+Artículo 4º—El fondo documental que se maneja en el Archivo Central se organizará por medio de los sistemas de clasificación y los métodos de ordenación archivísticos definidos por este, respetando los principios de procedencia y orden original de los documentos.

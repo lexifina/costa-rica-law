@@ -1,0 +1,1 @@
+Artículo 20.—La documentación a transferir, será determinada por las Tablas de Plazos, excepto en casos especiales, para lo cual deberá contar con una autorización por escrito de la persona encargada del Archivo de Gestión.

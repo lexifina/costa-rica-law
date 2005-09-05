@@ -1,0 +1,1 @@
+Artículo 16.—La selección y eliminación de documentos la realizará el Archivo Central de acuerdo con lo que establezcan la Tabla de Plazos o las valoraciones parciales aprobadas por el Comité Institucional y avalada por la Comisión Nacional de Selección y Eliminación de Documentos, según lo establece la Ley y el Reglamento a la ley.

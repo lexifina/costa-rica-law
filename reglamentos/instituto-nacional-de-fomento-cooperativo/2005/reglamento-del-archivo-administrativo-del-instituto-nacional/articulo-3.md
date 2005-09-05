@@ -1,0 +1,2 @@
+Artículo 3º—El Archivo Central deberá contar con las medidas de seguridad e infraestructura adecuadas (local, estantería, materiales, mobiliario, equipo técnico y contra incendios) que permita una mejor conservación de los documentos.
+Contará con tres áreas bien definidas, a saber: área administrativa, área de consulta y área de depósito. Deberá velar porque en los Archivos de Gestión se cumplan las medidas de conservación y preservación documental y las directrices emanadas del Archivo Nacional.

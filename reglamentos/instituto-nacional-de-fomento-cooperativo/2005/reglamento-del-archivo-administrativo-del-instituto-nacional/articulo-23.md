@@ -1,0 +1,1 @@
+Artículo 23.—Al realizarse la transferencia, el funcionario de Archivo Central y uno del proceso, macroproceso u oficina remitente, confrontarán la lista de remisión con los documentos. En caso de presentarse faltantes o alguna anomalía, no se recibirá la documentación hasta que éstas se hayan corregido.

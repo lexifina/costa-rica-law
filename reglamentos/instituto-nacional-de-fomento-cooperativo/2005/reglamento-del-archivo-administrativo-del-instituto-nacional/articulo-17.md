@@ -1,0 +1,2 @@
+Artículo 17.—Los documentos que se eliminen deberán convertirse en material no legible y venderse como material reciclable, para lo cual el Comité Institucional coordinará con el Proceso de Administración y Finanzas y con Proveeduría, para que realicen los procedimientos de contratación administrativa establecidos en la Ley de Contratación Administrativa y su respectivo reglamento general.
+El Comité tendrá la responsabilidad de diseñar la lista y acta de eliminación de documentos y consignar la participación de los responsables en este proceso de eliminación documental.

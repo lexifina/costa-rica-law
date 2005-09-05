@@ -1,0 +1,1 @@
+Artículo 15.—El Comité Institucional podrá convocar a sus reuniones a cualquier funcionario del INFOCOOP, competente en la materia por tratar, para decidir con mayor amplitud y objetividad la conservación y eliminación de la documentación evaluada.
