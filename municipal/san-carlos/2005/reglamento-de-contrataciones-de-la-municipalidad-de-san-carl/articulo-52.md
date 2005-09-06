@@ -1,0 +1,1 @@
+Artículo 52.—La Sección de Proveeduría tendrá la facultad para fiscalizar la existencia de materiales en las diferentes secciones o Departamentos de la Institución y podrá realizar inventarios cuando lo estime conveniente, y desestimar las solicitudes cuando a su juicio sean gastos superfluos o hayan suficientes existencias en las diferentes secciones de la Administración.

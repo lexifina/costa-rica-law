@@ -1,0 +1,1 @@
+Artículo 16.—El detalle de los requisitos, para inscribirse en el citado Registro, será entregado a los interesados en el Departamento de Proveeduría de la Institución. Los interesados podrán solicitar la incorporación en cualquier momento.

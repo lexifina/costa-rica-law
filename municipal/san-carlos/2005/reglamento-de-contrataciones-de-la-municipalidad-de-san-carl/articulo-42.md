@@ -1,0 +1,1 @@
+Artículo 42.—Corresponderá a la Oficina de Contratación Administrativa encauzar y dirigir los trámites internos para la obtención de los informes técnicos, jurídicos u otros necesarios, en relación con las contrataciones que deban someterse al conocimiento de la Comisión de Contratación Administrativa.

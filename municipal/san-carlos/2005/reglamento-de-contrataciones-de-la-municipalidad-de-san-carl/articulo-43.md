@@ -1,0 +1,1 @@
+Artículo 43.—Una vez analizadas las ofertas y efectuadas las recomendaciones pertinentes, la Comisión de Contratación Administrativa elevará su dictamen al conocimiento del Concejo Municipal. Trascrito el acuerdo Municipal de esta última instancia, retomará la Oficina de Contratación Administrativa el procedimiento de contratación para lo que corresponda.

@@ -1,0 +1,5 @@
+Artículo 35.—La contratación de bienes y servicios atenderán las siguientes disposiciones:
+a) Para compras menores o iguales a trescientos mil colones (¢300.000,00) se podrá invitar al menos dos Proveedores, y se podrán recibir cotizaciones por fax.
+b) Para compras mayores a trescientos un mil colones (¢300.001,00) y hasta un millón de colones (¢ 1.000.000,00) se invitará al menos a tres Proveedores, y se podrán recibir cotizaciones por fax.
+c) Para compras mayores a un millón un colón (¢1.000.001,00) y hasta dos millones quinientos mil colones (¢2.500.000,00) se invitarán al menos a cinco Proveedores y se podrán recibir cotizaciones por fax o en sobre cerrado.
+d) Para compras directas mayores a dos millones quinientos mil un colón (¢2.500.001,00) y menores de cuatro millones ochocientos treinta mil colones (¢4.830.000,00) se invitará al menos a cinco Proveedores, o en su defecto a los inscritos en el Registro para la categoría especifica, debiéndose recibir ofertas solo en sobre cerrado.

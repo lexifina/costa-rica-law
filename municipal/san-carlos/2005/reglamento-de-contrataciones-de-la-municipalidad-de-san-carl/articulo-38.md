@@ -1,0 +1,1 @@
+Artículo 38.—Las cotizaciones se abrirán el día y hora señalados, conforme a la invitación, en presencia del Jefe de la Sección de Proveeduría y el Encargado de la compra. En ausencia del Jefe de la Sección de Proveeduría, estará presente el funcionario expresamente designado por el Alcalde.

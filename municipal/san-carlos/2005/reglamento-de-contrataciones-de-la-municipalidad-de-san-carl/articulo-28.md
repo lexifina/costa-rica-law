@@ -1,0 +1,1 @@
+Artículo 28.—Clasificación de Proveedores: Se clasificarán primero con relación en la categoría de bienes y/o servicios que ofrece y segundo por su actividad, si es constructor, distribuidor, comerciante, fabricante, profesional y otros.

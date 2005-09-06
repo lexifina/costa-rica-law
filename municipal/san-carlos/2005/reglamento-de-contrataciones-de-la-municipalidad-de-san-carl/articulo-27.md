@@ -1,0 +1,1 @@
+Artículo 27.—En la base de datos que llevará el Departamento de Proveeduría se incluirán al menos los siguientes aspectos: Código de Proveedor, dirección geográfica, teléfono, fax, apartado postal, descripción de los bienes y/o servicios que ofrece, informes por proveedor, por artículo y observaciones.

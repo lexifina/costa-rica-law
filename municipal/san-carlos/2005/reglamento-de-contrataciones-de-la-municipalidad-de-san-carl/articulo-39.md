@@ -1,0 +1,1 @@
+Artículo 39.—Las cotizaciones recibidas por la Sección de Proveeduría serán analizadas y adjudicadas de manera razonada en un plazo no mayor a cinco días hábiles posteriores, estando la adjudicación a cargo del Encargado de Proveeduría.

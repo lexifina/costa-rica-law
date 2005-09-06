@@ -1,0 +1,1 @@
+Artículo 41.—Se crea la Comisión de Contratación Administrativa, la cual estará integrada por el Encargado de la Oficina de Contratación Administrativa, quien tendrá a cargo la coordinación de la misma, el Abogado de la Institución y el Jefe de la Unidad solicitante de la compra, cuya función será estudiar el proceso y emitir un criterio de preadjudicación al Concejo Municipal.

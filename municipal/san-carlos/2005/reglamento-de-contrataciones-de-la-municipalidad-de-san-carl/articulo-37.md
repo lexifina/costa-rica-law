@@ -1,0 +1,1 @@
+Artículo 37.—Cuando así se disponga, las cotizaciones serán recibidas por la Sección de Proveeduría en sobre cerrado. En caso contrario, se aceptará su remisión por medios telemáticos, privando la hora de recepción en Proveeduría y no la de remisión por parte del oferente.

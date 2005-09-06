@@ -1,0 +1,1 @@
+Artículo 55.—Lo no dispuesto en el presente Reglamento se regirá supletoriamente por las disposiciones de la Ley de Contratación Administrativa, Nº 7494 del 2 de mayo de 1995, y el Reglamento General de la Contratación Administrativa, Decreto Ejecutivo Nº 25038-H del 6 de marzo de 1996.

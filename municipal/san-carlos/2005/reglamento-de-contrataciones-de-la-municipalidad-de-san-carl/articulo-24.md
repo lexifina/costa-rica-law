@@ -1,0 +1,1 @@
+Artículo 24.—Los Proveedores potenciales incluidos en el Registro de Proveedores están en la obligación de comunicar a la Proveeduría todo cambio en sus datos generales: Dirección Geográfica, teléfono, fax o descripción, características de la mercancía, servicios y otros, así como en los poderes, representación de la empresa, propiedad de las acciones y situaciones similares.

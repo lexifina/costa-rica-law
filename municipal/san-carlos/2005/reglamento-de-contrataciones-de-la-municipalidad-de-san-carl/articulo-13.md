@@ -1,0 +1,1 @@
+Artículo 13.—El Departamento de Proveeduría será el encargado de administrar, para todos los efectos, los trámites y procedimientos del registro de Proveedores. Para ello, implantará la organización que se estime necesaria con el apoyo de los medios tecnológicos y recursos que garanticen la eficiencia y eficacia del registro.

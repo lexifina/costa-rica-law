@@ -1,0 +1,1 @@
+Artículo 49.—Los demás elementos de la ejecución de los contratos se regirán por las disposiciones de los capítulos IV “Derechos y Obligaciones de las Partes” y VI “Procedimiento de Contratación” del Reglamento General de la Contratación Administrativa.
