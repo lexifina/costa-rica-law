@@ -14,3 +14,4 @@ Reglamento al Artículo 20 de la Ley Orgánica de la Procuraduría General de la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-14 | la propia norma |
+| 2 | 2005-09-06 | Decreto Ejecutivo 32850 (2005-09-06) |

@@ -1,1 +1,3 @@
 Artículo 6º—Las propuestas que se hayan hecho en los procesos conciliatorios y demás medidas alternativas al proceso, a partir del 1° de agosto del 2002 y que se encuentran pendientes de resolución ante el Poder Ejecutivo, serán conocidas por la Procuraduría General de la República a efecto de que se tramiten conforme a lo establecido en el presente Decreto Ejecutivo.
+Este reglamento será aplicable, en lo pertinente, a los procedimientos administrativos sancionadores seguidos ante el Tribunal Ambiental Administrativo. Para tal efecto, se contará con la colaboración técnica referida en el artículo tercero de este Decreto, en los términos que ahí se indican.
+(Así adicionado el párrafo anterior, por el artículo 1° del decreto ejecutivo N° 32850 de 6 de setiembre de 2005).
