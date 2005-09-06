@@ -14,3 +14,4 @@ Reforma al Reglamento General de la Proveeduría Municipal.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-27 | la propia norma |
+| 2 | 2005-09-06 | Reglamento municipal 36 (2005-09-06) |
