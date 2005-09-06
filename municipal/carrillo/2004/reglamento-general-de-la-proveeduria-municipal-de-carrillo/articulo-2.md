@@ -141,10 +141,9 @@ La adjudicación del proyecto u obra o de cualquier tipo de adquisición de bien
 También existe un estudio denominado oferta rigurosa para el contratista, dicha situación ocurre cuando el contratista por algún error o circunstancia cobra menos de lo que en realidad cuesta la obra o de los bienes y servicios que está adquiriendo la Municipalidad. Si la licitación es pública, la adjudicación debe hacerse también pública.
 Por adjudicada la obra, o bienes o servicios que se está adquiriendo, debe formalizarse un contrato según el caso, el cual debe pasar por el mismo camino de revisiones, aprobaciones y refrendo hasta alcanzar su validez, similar a un proceso licitatorio. Este documento comprende todos los elementos de un contrato descritos en este Capítulo y establece las bases para la relación Municipalidad de Carrillo-Contratista, sobre la base de la legislación vigente.
 El referendo de este documento por parte del refrendo interno o la Contraloría General de la República, en su caso, en donde autoriza el inicio del proyecto en cuestión.
-10. Copia de nota de recomendación del Encargado (a) de la Proveeduría al Concejo Municipal, montos mayores a ¢1.000.000,00*, sobre las ofertas presentadas y la adjudicación recomendada.
-Así como copia de nota de recomendación del Encargado de la Proveeduría Municipal al Alcalde Municipal, montos menores a ¢1.000.000,00 (un millón de colones netos)*, sobre las ofertas presentadas y la
-adjudicación recomendada.
-*(Así reformado por la Sesión Ordinaria N° 41 del 12 de Octubre del 2004)
+10. Copia de nota de recomendación del Encargado (a) de la Proveeduría al Concejo Municipal, montos mayores a ¢3.000.000,00*, sobre las ofertas presentadas y la adjudicación recomendada.
+Así como copia de nota de recomendación del Encargado de la Proveeduría Municipal al Alcalde Municipal, montos menores a ¢3.000.000,00 (tres millónes de colones netos)*, sobre las ofertas presentadas y la adjudicación recomendada.
+*(Así reformado mediante Acuerdo N° 7 de la Sesión Ordinaria N° 36 celebrada el 6 de Setiembre del 2005)
 11. Acuerdo del Concejo Municipal de Adjudicación del Cartel de la Licitación de conformidad con el artículo 57, incisos 1, 2 y 3 del Reglamento de la Ley de Contratación Administrativa, que la Secretaria del Concejo Municipal debe comunicar al Encargado (a) de la Proveeduría Municipal, para que prosiga con los procedimientos de rigor que se indican en el aparte siguiente;
 12. Copia del comunicado del Encargado (a) de la Proveeduría Municipal de la adjudicación a los oferentes, previo debe haberse cumplido con el punto l, aparte 8 y el 9, según el proceso licitatorio. Con respecto a adjudicación de un proceso licitatorio “Licitación Pública”, se debe publicar el acuerdo municipal de adjudicación el cual será debidamente motivado y publicado en el Diario Oficial La Gaceta de conformidad con el artículo 57.3 del Reglamento de la Ley de Contratación Administrativa.
 Asimismo, agregar copia de la orden de compra y copia del cheque, con que se pagó la publicación en el Diario Oficial La Gaceta, de la adjudicación de la Licitación Pública.
@@ -166,8 +165,8 @@ El Ingeniero Director Responsable de una obra, tiene autoridad para rechazar man
 De lo anterior, se deberá dejar constancia por escrito e incorporado al expediente respectivo, de esos documentos.
 19. El Proveedor(a) Municipal, incorporará al expediente respectivo, según el caso, lo siguiente:
 1. Copia de la Orden de Compra, autorizada por el Alcalde y Tesorero(a) Municipales, por el inicio de un proyecto o obra o para la adquisición de otro tipo de bienes y servicios en esta Municipalidad.
-2. Acuerdo de pago del Concejo Municipal, mayores a ¢1.000.000,00 (un millón de colones netos)*, que la Secretaria del Concejo Municipal, debe comunicar al Alcalde y Tesorero(a) Municipales y menores de este monto, la autorización al Tesorero(a), la debe hacer por escrito el Alcalde Municipal, para realizar el pago por el inicio del proyecto u obra o para la adquisición de otro tipo de bienes y servicios para esta Municipalidad.
-*(Así reformado por la Sesión Ordinaria N° 41 del 12 de Octubre del 2004)
+2. Acuerdo de pago del Concejo Municipal, mayores a ¢3.000.000,00 (tres millónes de colones netos)*, que la Secretaria del Concejo Municipal, debe comunicar al Alcalde y Tesorero(a) Municipales y menores de este monto, la autorización al Tesorero(a), la debe hacer por escrito el Alcalde Municipal, para realizar el pago por el inicio del proyecto u obra o para la adquisición de otro tipo de bienes y servicios para esta Municipalidad.
+*(Así reformado mediante Acuerdo N° 7 de la Sesión Ordinaria N° 36 celebrada el 6 de Setiembre del 2005)
 2. Copia de la Nómina de pago, autorizada por el Alcalde, Contador(a) y Tesorero(a) Municipales, en donde va incorporado la orden de compra para el inicio de un proyecto u obra o para la adquisición de otro tipo de bienes y servicios para esta Municipalidad.
 3. Copia del cheque de autorizado por el Alcalde y Tesorera Municipales, como pago por el inicio de un proyecto u obra o como pago para la adquisición de otro tipo de bienes y servicios para esta Municipalidad.
 4. Copia de los originales de la factura(s) timbradas o recibo(s) por adelanto(s) o avance(s) del Proyecto u Obra.
@@ -179,8 +178,8 @@ La decisión de modificar lo puesto en los planos o lo contemplado en el contrat
 21. Original o copia de las notas de inspecciones realizadas por el ingeniero responsable del proyecto u obra, para que se proceda a inspeccionar el inicio, además de autorizar y realizar los pagos por avance de obra, adelanto o cancelaciones, según informe técnico, que se tenga establecido del Proyecto u Obra Municipal.
 22. Original de las fotografías, tomadas en las inspecciones realizadas por el ingeniero responsable del proyecto u obra, para que se proceda al inicio del proyecto u obra, además de aútorizar y realizar los pagos por avance de obra, adelanto o cancelaciones, según informe técnico, que se tenga establecido del Proyecto u Obra Municipal.
 23. Copias de la Bitácora de Obra, de las inspecciones realizadas por el ingeniero responsable del proyecto u obra, para que se proceda al inicio, autorizar y realizar los pagos por avance de obra, adelanto o cancelaciones, según informe técnico, que se tenga establecido del Proyecto u Obra Municipal.
-24. Acuerdo de pago del Concejo Municipal, mayores a ¢1.000.000,00 (un millón de colones netos)*, que la Secretaria del Concejo Municipal, debe comunicar al Alcalde y Tesorero(a) Municipales y menores de este monto, la autorización al Tesorero(a), la debe hacer por escrito el Alcalde Municipal, para realizar el pago por avance de obra.
-*(Así reformado por la Sesión Ordinaría N° 41 del 12 de Octubre del 2004)
+24. Acuerdo de pago del Concejo Municipal, mayores a ¢3.000.000,00 (tres millónes de colones netos)*, que la Secretaria del Concejo Municipal, debe comunicar al Alcalde y Tesorero(a) Municipales y menores de este monto, la autorización al Tesorero(a), la debe hacer por escrito el Alcalde Municipal, para realizar el pago por avance de obra.
+*(Así reformado mediante Acuerdo N° 7 de la Sesión Ordinaria N° 36 celebrada el 6 de Setiembre del 2005)
 25. Copia de la Nómina de pago, firmada por el Alcalde, Contador(a) y Tesorero(a) Municipales, en donde se incluya el pago por avance de obra.
 26. Copia de cheque o cheques con que se realizó el pago por avance del Proyecto u obra.
 27. Copia de los originales de la factura(s) timbradas o recibo(s) por avance(s) del Proyecto u Obra.
@@ -189,8 +188,8 @@ ORDEN DE FINALIZACIÓN.
 Un proyecto se da por concluido, cuando se emite una orden de finalización en donde el Contratista y el Ingeniero Director Responsable de un Proyecto u Obra Municipal, proponen una
 fecha de entrega del proyecto. Es decir; se debe levantar una ACTA RECIBIDO DEL PROYECTO U OBRA MUNICIPAL, por parte del Ingeniero Responsable de la Municipalidad, asignado para tales efectos.
 Lo anterior, de conformidad con el artículo 108 incisos 1 y 2 del Reglamento de la Ley de Contratación Administrativa.
-29. Acuerdo de pago del Concejo Municipal, mayores a ¢1.000.000,00 (un millón de colones netos)*, que la Secretaria del Concejo Municipal, debe comunicar al Alcalde y Tesorero(a) Municipales y menores de este monto, la autorización al Tesorero(a) la debe hacer por escrito el Alcalde Municipal, para realizar el pago de la cancelación por la terminación del Proyecto u Obra.
-*(Así reformado por la Sesión Ordinaría N° 41 del 12 de Octubre del 2004)
+29. Acuerdo de pago del Concejo Municipal, mayores a ¢3.000.000,00 (tres millónes de colones netos)*, que la Secretaria del Concejo Municipal, debe comunicar al Alcalde y Tesorero(a) Municipales y menores de este monto, la autorización al Tesorero(a) la debe hacer por escrito el Alcalde Municipal, para realizar el pago de la cancelación por la terminación del Proyecto u Obra.
+*(Así reformado mediante Acuerdo N° 7 de la Sesión Ordinaria N° 36 celebrada el 6 de Setiembre del 2005)
 30. Copia de la Nómina de pago, firmada por el Alcalde, Contador(a) y Tesorero(a) Municipales, en donde se incorpora el pago de la cancelación del proyecto u obra
 municipal terminada.
 31. Copia del cheque con que se realizó el pago por cancelación por la terminación del Proyecto u Obra municipal terminada.

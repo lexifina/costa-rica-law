@@ -15,3 +15,4 @@ Reglamento General de la Proveeduría Municipal de Carrillo
 | --- | --- | --- |
 | 1 | 2004-08-26 | la propia norma |
 | 2 | 2004-10-12 | Reglamento municipal 41 (2004-10-12) |
+| 3 | 2005-09-06 | Reglamento municipal 36 (2005-09-06) |
