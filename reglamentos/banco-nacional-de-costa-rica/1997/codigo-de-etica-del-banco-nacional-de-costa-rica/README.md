@@ -15,3 +15,4 @@ Código de Ética del Banco Nacional de Costa Rica.
 | --- | --- | --- |
 | 1 | 1997-09-05 | la propia norma |
 | 2 | 2003-07-21 | Reglamento 11216 (2003-07-21) |
+| 3 | 2005-09-06 | Acuerdo 11341 (2005-09-06) |
