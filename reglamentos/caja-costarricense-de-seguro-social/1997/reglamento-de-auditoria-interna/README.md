@@ -14,3 +14,4 @@ Reglamento de Auditoría Interna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-07-01 | la propia norma |
+| 2 | 2005-09-08 | Reglamento 7991 (2005-09-08) |
