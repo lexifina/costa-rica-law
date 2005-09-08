@@ -1,0 +1,1 @@
+Artículo 2º—Asignación de recursos. Por medio de la Tesorería Nacional, el Estado reservará al Consejo los fondos asignados a las organizaciones según lo estipula el artículo 19 de la Ley sobre Desarrollo de la Comunidad Nº 3859, a efecto de que el Consejo los utilice según se determina en el presente Reglamento.

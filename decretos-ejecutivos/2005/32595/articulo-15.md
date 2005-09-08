@@ -1,0 +1,1 @@
+Artículo 15.—Información de operaciones. El Consejo por intermedio de la Dirección Ejecutiva, podrá solicitar informes a la Tesorería Nacional o a quien corresponda, acerca de las operaciones en materia de asignación de recursos del fondo por Girar o del Fondo de Proyectos.

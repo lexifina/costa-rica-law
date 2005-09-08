@@ -1,0 +1,2 @@
+Artículo 7º—Trámite para el retiro del fondo por girar. Transcurrido el plazo para presentación de requisitos, DINADECO hará el cálculo de los dineros del 2% del Impuesto sobre la Renta para distribuirlo entre las organizaciones que cumplieron los requisitos del artículo 6 de este reglamento.
+El plazo para la presentación de requisitos deberá de publicarse en algún medio de comunicación, así como por las oficinas filiales de DINADECO. El procedimiento para el retiro de los fondos será determinado por la Tesorería Nacional.

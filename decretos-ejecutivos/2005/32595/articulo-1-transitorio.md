@@ -1,0 +1,2 @@
+Transitorio I.—Liquidación del fondo de garantía. Salvo disposición en contrario de las autoridades de Hacienda, los dineros del Fondo de Garantía que no estén avalando operaciones crediticias de las organizaciones, serán trasladados al Fondo de Proyectos creado en el presente reglamento. De igual forma se hará cada vez que queden liberados avales, hasta que la anterior cuenta del Fondo de Garantía quede cancelada en su totalidad.
+Dado en la Presidencia de la República.—San José, a las ocho horas con treinta minutos del cuatro de agosto de dos mil cinco.

@@ -1,0 +1,1 @@
+Artículo 5º—Administración del fondo por girar. Cada vez que sea requerido con antelación, el Consejo le suministrará a la Tesorería Nacional la distribución que corresponde a cada una de las cuentas, con base en los informes brindados al efecto por DINADECO.

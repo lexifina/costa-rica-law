@@ -1,0 +1,1 @@
+Artículo 9º—Liquidación de los fondos por girar. Las organizaciones comunales deberán presentar cada año la liquidación de los recursos asignados a su favor, ante el Departamento dé Economía Comunal de DINADECO, el cual deberá ejercer asesoría y control en el manejo de estos recursos.
