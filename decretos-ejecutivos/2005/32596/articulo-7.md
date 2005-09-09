@@ -1,0 +1,1 @@
+Artículo 7º—Esta Subcomisión se reunirá ordinariamente una vez cada dos meses y extraordinariamente cuando el Ministro de Ciencia y Tecnología o su representante lo considere necesario o sea solicitado por dos terceras partes de sus miembros.

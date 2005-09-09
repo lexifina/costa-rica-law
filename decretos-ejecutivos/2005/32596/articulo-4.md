@@ -1,0 +1,1 @@
+Artículo 4º—La Subcomisión podrá invitar y convocar tanto a instituciones públicas o privadas relacionas con el tema así como a las personas que por su trayectoria y relevancia considere que podrán aportar su experiencia y conocimientos, con el .n de dar cumplimento a sus fines y funciones.
