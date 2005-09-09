@@ -1,0 +1,1 @@
+Artículo 17.—Participación. Cuando el Presidente del Comité así lo considere conveniente, podrá invitar a otras personas conocedoras de los temas que se tratarán en la sesión, siempre con voz pero sin voto.

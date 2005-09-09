@@ -1,0 +1,1 @@
+Artículo 15.—Ausencia. En caso de ausencia del Presidente del Comité de Contratación de Hidrocarburos, tal cargo podrá ser asumido de manera ad-hoc por uno de sus miembros, disposición que oportunamente el Presidente comunicará a dicho comité.

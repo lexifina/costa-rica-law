@@ -1,0 +1,1 @@
+Artículo 24.—Acciones recursivas. Cabrán recursos de revocatoria y apelación contra los acuerdos del comité, interpuestos según los requisitos y plazos contenidos en la normativa aplicable en la materia. La junta directiva de la empresa fungirá como instancia de apelación sobre los actos dictados por el comité.

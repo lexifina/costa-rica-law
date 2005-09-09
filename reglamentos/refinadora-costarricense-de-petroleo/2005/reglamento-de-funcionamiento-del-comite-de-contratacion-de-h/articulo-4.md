@@ -1,0 +1,1 @@
+Artículo 4º—Integrantes. El Comité de Contratación de Hidrocarburos estará integrado por los gerentes de área, el gerente general y el presidente de la empresa, quien fungirá como Presidente del Comité.
