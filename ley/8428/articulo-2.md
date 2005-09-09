@@ -16,3 +16,4 @@ Nota: Por lo extenso de su contenido ver Alcance N° 67 a La Gaceta N° 257 del 
 (Así reformado por el artículo 3° de la Ley N° 8453 del 22 de julio del 2005)
 (Así reformado por el artículo 6° de la Ley N° 8453 del 22 de julio del 2005)
 (Modificado por el artículo 1° y 2 del Decreto Ejecutivo 32584 de 10 de agosto de 2005)
+(Modificado por el artículo 1° del Decreto Ejecutivo 32571 de 23 de agosto de 2005)
