@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE OREAMUNO
+La suscrita secretaria, se permite transcribir, el acuerdo tomado en la sesión Nº 259-2005, celebrada por el Concejo Municipal el día 22 de agosto del 2005, que literalmente dice:
+Artículo 24.—Acuerdo Nº 5065-2005: Moción presentada por el señor Wálter Granados Torres, Alcalde Municipal.
+Considerando:
+A) Que mediante el Reglamento para el Manejo de Caja Chica vigente en su artículo 7º dice los montos del fondo y los topes para cada desembolso los recomendará la Comisión de Hacienda y Presupuesto y aprobados por el Concejo Municipal en base a solicitud por escrito que formule el tesorero, para tal efecto se fija el monto de la Caja Chica en ¢20.000,00 y como desembolso máximo la suma de ¢4.000,00.
+B) Que en virtud del incremento en los precios, el incremento en el costo de la vida y el aumento del Presupuesto de esta Municipalidad, se hace necesario reformar el artículo 7º dice los montos del fondo y los topes para cada desembolso los recomendará la Comisión de Hacienda y Presupuesto y aprobados por el Concejo Municipal en base a solicitud por escrito que formule el tesorero, para tal efecto se fija el monto de la Caja Chica en ¢250.000,00 y como desembolso máximo la suma de ¢20.000,00; los desembolsos que sobrepasen la suma de ¢10.000,00, deben ser autorizados por el Alcalde Municipal.
+Por lo tanto mocionó para que: El Concejo Municipal reforme el artículo 7º del Reglamento para el Manejo de Caja Chica, dice los montos del fondo y los topes para cada desembolso los recomendará la Comisión de Hacienda y Presupuesto y aprobados por el Concejo Municipal en base a solicitud por escrito que formule el tesorero, para tal efecto se fija el monto de caja chica en ¢250.000,00 y como desembolso máximo la suma de ¢20.000,00; los desembolsos que sobrepasen la suma de ¢10.000,00 deben ser autorizados por el Alcalde Municipal.
+Con dispensa del trámite de comisión y se declare definitivamente aprobado y en firme.
+Se somete a votación la dispensa del trámite de Comisión es aprobado por unanimidad.
+Se somete a votación el fondo de la moción es aprobada por unanimidad.
