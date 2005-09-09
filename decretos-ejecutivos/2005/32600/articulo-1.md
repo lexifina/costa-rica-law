@@ -1,0 +1,10 @@
+Nº 32600
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En ejercicio de las facultades que les confieren los artículos 140 incisos 3 y 18 de la Constitución Política; 27 y 28 de la Ley Nº 6227 de 02 de mayo de 1978 "Ley General de la Administración Pública", 1 y 2 de la Ley Nº 5495 de 30 de octubre de 1973 "Ley General de Salud"
+Considerando:
+Único.—Que en la declaratoria de interés público de las actividades de las instituciones del Estado tendientes a la promoción de las acciones cantonales en pro de la protección al medio ambiente y la salud humana que señala el Decreto Nº 30092-S de 2 de enero del 2002, publicado en La Gaceta de 21 de enero del año 2002, no fue incorporado el mecanismo de financiamiento del Premio Nacional de Cantón Ecológico y Saludable, por lo que se hace necesario agregar a dicho Decreto las mencionadas disposiciones. Por tanto,
+DECRETAN:
+Artículo 1º—Modifíquese el artículo 3° y adiciónese un artículo 4° al Decreto Ejecutivo Nº 30092-S de 2 de enero del 2002, "Declara de Interés Público las Actividades de algunas Instituciones del Estado con motivo de la Entrega del Premio Nacional de Cantones Ecológicos y Saludables", para que digan así:
+"Artículo 3º—Los recursos económicos que las dependencias del sector público y privado destinen para financiar el Premio Nacional del cantón Ecológico y Saludable, deberán ser transferidos al Ministerio de Salud y depositados en la cuenta bancaria del Consejo Técnico de Asistencia Médico Social, institución que los entregará al ente municipal previamente seleccionado, en base a la revisión y análisis de los proyectos de salud en desarrollo que hayan sido sometidos para el estudio de adjudicación del Premio de Cantón Ecológico y Saludable.
+Artículo 4º—La adjudicación del premio económico estará a cargo de la "Comisión Técnica Asesora de Cantones Ecológicos y Saludables", quien establecerá los requisitos para la presentación de proyectos y vigilar el proceso de difusión y evaluación de los proyectos sobre la base de criterios previamente estandarizados."
