@@ -1,0 +1,3 @@
+Artículo 19.—Gestión de cobro del excedente: Si el consumo reportado por el Instituto Costarricense de Electricidad excede el monto máximo de pago establecido para el uso de los teléfonos fijo o móvil, el Departamento Financiero informará de tal situación al superior del funcionario responsable del equipo, para que dentro de los cinco días hábiles siguientes, aquel manifieste por escrito, ante el Departamento Financiero, las razones del exceso.
+Si el funcionario no demuestra que el exceso en el uso del teléfono, se ha producido por razones propias de su trabajo, faculta a la Institución para aplicar la deducción automática de planilla, según lo pactado en el convenio.
+Esta disposición rige únicamente para aquellos funcionarios que tienen teléfonos de uso exclusivo.

@@ -1,0 +1,2 @@
+Artículo 25.—Transitorio: Una vez que este Reglamento haya sido publicado en el Diario Oficial La Gaceta, la asignación vigente de los teléfonos fijos, celulares y radiolocalizadores, será revisada por el Ministro o el Viceministro con el .n de actualizar la asignación, o revocar las asignaciones de equipo sin ninguna responsabilidad para la Administración.
+Y en los demás casos deberán ajustarse al presente Reglamento
