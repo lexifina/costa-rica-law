@@ -1,1 +1,0 @@
-Artículo 3º—Este Decreto Ejecutivo rige a partir del 01 de enero del 2003 y su aplicación quedará sujeta a la disponibilidad presupuestaria. Deroga el Decreto Ejecutivo Nº 29326-MEP del 6 de marzo del 2001.
