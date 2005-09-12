@@ -1,6 +1,8 @@
 Artículo 2º—Para todos los efectos de este Reglamento, debe entenderse por:
-a) Adecuación de préstamo: Modificación de una de las condiciones originales del préstamo, previo a su vencimiento.
-b) Adjudicatario o adjudicataria: Persona física o jurídica, que por reunir los requisitos de la Ley de Tierras y Colonización número 2825 de 14 de octubre de 1961 y sus reformas, se le ha adjudicado una parcela.
+a) Adecuación de préstamo: Modificación de una de las condiciones originales del préstamo.
+(Así reformado en sesión N° 35 del 12 de setiembre del 2005.
+b) Adjudicatario o adjudicataria: Persona física o jurídica, que por reunir los requisitos de la Ley de Tierras y Colonización Nº 2825 del 14 de octubre de 1961 y sus reformas, se le ha adjudicado una parcela o una granja familiar y que el .n sea para la agroindustria.
+(Así reformado en sesión N° 35 del 12 de setiembre del 2005.
 c) Área de Crédito Rural: Unidad administrativa del Instituto responsable del análisis y recomendación de las solicitudes de préstamo y de administrar el Fondo de Crédito Rural.
 d) Comité Subregional de Crédito: Órgano encargado del análisis técnico agroeconómico y de recomendar todas las solicitudes de préstamo que correspondan a su ámbito de acción.
 e) Crédito: Operación por la cual el Instituto de Desarrollo Agrario se compromete a entregar al adjudicatario o propietario, una suma de dinero, recibiendo a cambio después de un plazo, dicha suma más los respectivos intereses.
@@ -15,4 +17,5 @@ m) Novación: Posibilidad legal que tiene el Instituto de sustituir a petición 
 n) Oficina Subregional: Unidad administrativa de la dirección regional responsable de proveer los servicios institucionales a los asentamientos bajo su jurisdicción.
 o) Propietario o propietaria: EL adjudicatario o adjudicataria que cuente con escritura sobre su parcela, debidamente inscrita en el Registro Público de la Propiedad.
 p) Prórrogas: Ampliación al plazo de la operación original, cuando por circunstancias demostradas, el prestatario no pueda atender el pago previo a su vencimiento.
-q) Readecuación de préstamo: Modificación de dos o más de las condiciones originales del crédito, previo a su vencimiento.
+q) Readecuación de préstamo: Modificación de dos o más de las condiciones original del crédito.
+(Así reformado el inciso "q" en sesión N° 35 del 12 de setiembre del 2005.

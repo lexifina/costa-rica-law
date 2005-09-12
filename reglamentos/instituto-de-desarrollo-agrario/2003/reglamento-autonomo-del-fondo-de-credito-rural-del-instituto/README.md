@@ -14,3 +14,4 @@ Reglamento Autónomo del Fondo de Crédito Rural del Instituto de Desarrollo Agr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-18 | la propia norma |
+| 2 | 2005-09-12 | Reglamento 35 (2005-09-12) |
