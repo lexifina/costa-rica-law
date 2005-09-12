@@ -20,3 +20,4 @@ Nota: Por lo extenso de su contenido ver Alcance N° 67 a La Gaceta N° 257 del 
 (Modificado por el artículo 1° del Decreto Ejecutivo N° 32651 del 9 de setiembre del 2005)
 (Mediante el artículo 2° del Decreto Ejecutivo N° 32651 del 9 de setiembre del 2005, se modifican las coletillas de descripción de varias subpartidas del Tribunal Supremo de Elecciones)
 (Modificado tacitamente por el artículo 3° del decreto ejecutivo N° 32651 del 9 de setiembre del 2005, que reformó expresamente el decreto ejecutivo N° 32383 del 9 de mayo del 2005)
+(Modificado por el artículo 2° del decreto ejecutivo N° 32685 del 12 de setiembre del 2005)
