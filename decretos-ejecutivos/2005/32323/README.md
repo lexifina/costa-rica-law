@@ -14,3 +14,4 @@ Modifica al Colegio Universitario de Alajuela, el gasto presupuestario maximo fi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-04 | la propia norma |
+| 2 | 2005-09-12 | Decreto Ejecutivo 32716 (2005-09-12) |
