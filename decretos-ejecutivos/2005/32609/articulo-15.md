@@ -1,0 +1,1 @@
+Artículo 15.—Los gastos en que se incurra para el desarrollo de los desfiles deberán ser financiados por las Juntas de Educación, Juntas Administrativas, Patronatos Escolares, aportes voluntarios de los padres de familia, sin perjuicio de las donaciones que puedan hacer los particulares, instituciones del Estado o la empresa privada.

@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión deberá coordinar la actividad con instituciones de la comunidad, como la Municipalidad, Cruz Roja, Cuerpo de Bomberos, Dirección General de Tránsito, Ministerio de Seguridad, Iglesias, Comité Regional de Emergencias y Policía Municipal.

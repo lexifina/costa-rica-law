@@ -1,0 +1,2 @@
+Artículo 22.—En el acto cívico tienen la obligación de participar, el personal docente y administrativo docente y todas las secciones o grupos de estudiantes de la institución educativa, sin perjuicio de la participación del personal administrativo que así lo desee.
+La organización del acto cívico, a lo interno de cada institución, corresponderá al Director de la institución, en conjunto con una comisión de docentes y estudiantes que integrará oportunamente.

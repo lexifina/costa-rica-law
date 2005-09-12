@@ -1,0 +1,1 @@
+Artículo 20.—Los desfiles se inician con el Pabellón Nacional cuando asista el Presidente de la República, y en los demás casos con la Bandera Nacional, debiendo observarse la conducta apropiada en proporción a la solemnidad de la celebración patria.

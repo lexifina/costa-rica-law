@@ -1,0 +1,2 @@
+Artículo 11.—En los desfiles deberán participar los estudiantes. El Director Institucional y el personal docente de la institución (entiéndase personal administrativo docente y técnico docente), brindarán el apoyo necesario para su debido desarrollo.
+La Dirección de la institución educativa invitará a los padres de familia o sus representantes para que colaboren en el orden y la seguridad durante el evento.

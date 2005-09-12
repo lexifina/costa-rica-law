@@ -1,0 +1,1 @@
+Artículo 6º—La Comisión, para la organización de los desfiles, deberá considerar con suficiente antelación el área donde se llevará a cabo, las vías por utilizar, ubicación de las ciudades y comunidades, y la duración del desfile.

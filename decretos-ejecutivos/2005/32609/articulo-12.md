@@ -1,0 +1,1 @@
+Artículo 12.—El Director de la institución podrá delegar en el personal docente y administrativo del centro educativo, lo relativo a la coordinación para la participación de los diferentes grupos representativos, como la banda estudiantil, cuerpos de banderas, bastoneras, mejores promedios, gobierno estudiantil, entre otros.

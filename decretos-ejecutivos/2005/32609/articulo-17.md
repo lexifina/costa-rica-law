@@ -1,0 +1,1 @@
+Artículo 17.—Las bandas estudiantiles deben demostrar disciplina, coordinación de pasos y estudio musical en sus interpretaciones durante las celebraciones patrias, así como aseo y buena presentación personal.
