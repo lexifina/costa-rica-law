@@ -1,1 +1,0 @@
-Artículo 12.—Los organismos cooperativos que deseen accesar los recursos de coinversión no podrán tener en conjunto deudas con el INFOCOOP (incluyendo créditos, avales y coinversión), por un monto que sobrepase el 5% del Patrimonio total del INFOCOOP, conforme lo señala el Artículo 12 del Reglamento General de Créditos y Avales.
