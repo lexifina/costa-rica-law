@@ -1,0 +1,1 @@
+Transitorio único.—Las gestiones de solicitud de calificación de idoneidad presentadas en la Contraloría General antes de la entrada en vigencia de este Reglamento, serán tramitadas por este Órgano Contralor conforme a los procedimientos existentes a esa fecha.
