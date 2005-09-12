@@ -1,3 +1,4 @@
-Artículo 21.—Plazo para formalizar. El Organismo Cooperativo contará con un plazo de 2 meses, contados a partir de la comunicación formal del acuerdo de junta directiva, para concretar la formalización del crédito. El Proceso de Operaciones podrá otorgar un plazo de 2 meses más contados a partir del vencimiento del plazo anterior, en aquellos casos en los que considere que existen suficientes elementos que así lo justifiquen, debiendo presentar el Informe técnico respectivo. Transcurrido ese plazo sin que se formalice el crédito, se archivará el caso.
-Vencido el plazo y habiendo formalizaciones y desembolsos pendientes, el nivel técnico remitirá a la Junta Directiva para su consideración, un informe técnico con la justificación para continuar con la formalización y con el plan de desembolsos originalmente autorizados o el criterio técnico con la recomendación para que se inicie una nueva solicitud de crédito.
-(Así reformado el párrafo segundo en sesión N° 3450 del 13 de junio del 2005)
+CAPÍTULO V
+Niveles de resolución del crédito
+Artículo 21.—Aprobación. Las solicitudes de crédito serán resueltas por la Junta Directiva, previo dictamen de la Comisión de Crédito de acuerdo con lo establecido en el Reglamento de dicha Comisión.
+(Así corrida su numeración y capítulo en sesión N° 3492 del 12 de setiembre del 2005, que lo traspasó del antiguo 19 y capítulo IV al 21 actual del artículo y actual capítulo V).

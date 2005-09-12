@@ -1,1 +1,4 @@
-Artículo 27.—Administración y fiscalización. Con el objetivo de fiscalizar el uso y aplicación de los recursos, la recuperación de estos, así como la buena marcha del proyecto, el Infocoop podrá requerir que se incluyan en el respectivo contrato de crédito, cláusulas que lo faculten para nombrar contralores, administradores, fiscalizadores u otros mecanismos que garanticen la buena marcha y la recuperabilidad de los recursos otorgados al Organismo Cooperativo. Los gastos en que se incurra por este concepto correrán por cuenta del Organismo Cooperativo.
+CAPÍTULO VIII
+Supervisión y seguimiento
+Artículo 27.—Supervisión de los créditos. Es potestad del Infocoop supervisar los créditos en todos sus aspectos, para lo cual los prestatarios deberán aportar toda la información y colaboración que se les solicite. En caso que el Organismo Cooperativo no permita que se concrete la supervisión, se hará exigible la obligación.
+(Así corrida su numeración y capítulo en sesión N° 3492 del 12 de setiembre del 2005, que lo traspasó del antiguo 25 y capítulo VII al 27 actual del artículo y actual capítulo VIII).

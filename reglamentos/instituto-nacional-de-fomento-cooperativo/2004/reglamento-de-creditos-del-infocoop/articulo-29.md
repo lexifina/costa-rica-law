@@ -1,3 +1,2 @@
-CAPÍTULO VIII
-Reembolsos
-Artículo 29.—Atención del crédito. El prestatario deberá hacer los pagos derivados del crédito en las fechas pactadas contractualmente, mediante dinero efectivo, transferencias y cheques de los Bancos del Sistema Bancario Nacional. El Infocoop ajustará las fechas de pago al primer día natural de cada periodo.
+Artículo 29.—Administración y fiscalización. Con el objetivo de fiscalizar el uso y aplicación de los recursos, la recuperación de estos, así como la buena marcha del proyecto, el Infocoop podrá requerir que se incluyan en el respectivo contrato de crédito, cláusulas que lo faculten para nombrar contralores, administradores, fiscalizadores u otros mecanismos que garanticen la buena marcha y la recuperabilidad de los recursos otorgados al Organismo Cooperativo. Los gastos en que se incurra por este concepto correrán por cuenta del Organismo Cooperativo.
+(Así corrida su numeración en sesión N° 3492 del 12 de setiembre del 2005, que lo traspasó del antiguo 27 al 29 actual del artículo)

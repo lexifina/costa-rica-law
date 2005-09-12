@@ -1,3 +1,4 @@
-Artículo 31.—Derogatoria de otras disposiciones. El presente reglamento deroga el Reglamento de Créditos del Infocoop publicado en La Gaceta Nº 125 del 1º de julio del 2003 y sus reformas posteriores, el Reglamento para la atención de empresas cooperativas en crisis, publicado en La Gaceta N° 150 del 6 de agosto del 2003; así como cualquier otra norma reglamentaria del Infocoop que se le oponga.
-Rige a partir de su publicación y se aplicará para todos los casos no resueltos al momento de entrar en vigencia.
-Se instruye a la Dirección Ejecutiva a efectos que proceda con el trámite de la publicación respectiva. Acuerdo firme”.
+CAPÍTULO IX
+Reembolsos
+Artículo 31.—Atención del crédito. El prestatario deberá hacer los pagos derivados del crédito en las fechas pactadas contractualmente, mediante dinero efectivo, transferencias y cheques de los Bancos del Sistema Bancario Nacional. El Infocoop ajustará las fechas de pago al primer día natural de cada periodo.
+(Así corrida su numeración y capítulo en sesión N° 3492 del 12 de setiembre del 2005, que lo traspasó del antiguo 29 y capítulo VIII al 31 actual del artículo y actual capítulo IX).
