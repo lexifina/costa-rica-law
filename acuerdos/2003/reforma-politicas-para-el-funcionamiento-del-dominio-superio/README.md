@@ -15,3 +15,4 @@ Reforma Políticas para el Funcionamiento del Dominio Superior CR
 | --- | --- | --- |
 | 1 | 2003-12-15 | la propia norma |
 | 2 | 2004-12-13 | Acuerdo 0 (2004-12-13) |
+| 3 | 2005-09-13 | Acuerdo 0 (2005-09-13) |
