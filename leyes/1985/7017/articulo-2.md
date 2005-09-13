@@ -1,6 +1,9 @@
 ARTICULO 2º- Para la correcta aplicación de este arancel, se aprueban
 las notas legales complementarias nacionales que se adjuntan como anexo
 Nº2.
+(NOTA DE SINALEVI: Por resolución Nº 138-2005 COMIECO EX, puesta en vigencia por el decreto ejecutivo N° 32588 de 18 de julio de 2005, se aprueba "... la siguiente Nota Complementaria en el Capítulo 2, que forma parte del Anexo “A” del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano:
+NOTA COMPLEMENTARIA CENTROAMERICANA
+A) Los trozos comprendidos en los incisos arancelarios 0207.13.94 y 0207.14.94, deben incluir cualquier combinación de trozos de gallo o gallina que contenga muslos, piernas, incluso unidos.)
 ANEXO NUMERO 2
 NOTAS COMPLEMENTARIAS NACIONALES
 AL ANEXO "A"
