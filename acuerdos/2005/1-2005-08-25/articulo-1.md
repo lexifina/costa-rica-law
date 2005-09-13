@@ -1,0 +1,12 @@
+BANCO HIPOTECARIO DE LA VIVIENDA
+La Junta Directiva del Banco Hipotecario de la Vivienda en su sesión 51-2005, artículo 1º, del 25 de agosto del presente año, tomó el acuerdo Nº 1, que indica lo siguiente:
+“ACUERDO Nº 1:
+Considerando:
+Primero: Que mediante el oficio DF-OF-1596-2005 del 19 de agosto de 2005, la Dirección del Fondo de Subsidios para la Vivienda (FOSUVI) remite a la Gerencia General una propuesta para estandarizar los formularios que utilizan las Entidades Autorizadas para emitir las Declaratorias de Interés Social para casos individuales y proyectos habitacionales. Para sustentar dicha propuesta, la Dirección FOSUVI plantea, en lo conducente, lo siguiente:
+“(...) esta Dirección llevó a cabo un estudio relacionado con las Declaratorias de Interés Social que emiten las entidades autorizadas para casos individuales y proyectos habitacionales. / Del análisis de la documentación recopilada, se pudo establecer el uso de diferentes formatos de formularios e incluso la utilización de referencias legales ya modificadas o fuera de vigencia. / Así las cosas, esta Dirección, de conformidad con lo establecido en el Artículo 126 del Reglamento de Operaciones del Sistema Financiero Nacional para la Vivienda, ha procedido a la elaboración de dos formularios con el propósito de estandarizar su uso en el Sistema. /
+(...) Se adjunta copia de los dos formularios propuestos y para una mayor ilustración sobre el particular, la reglamentación que sobre el particular se encuentra vigente y que corresponde a los Artículos 145.- y 147.- de la Ley del Sistema y al Capítulo IV del Título Tercero del reglamento ya citado (Art. 123 al 131).”
+Segundo: Que mediante el oficio GG-0671-2005 del 24 de agosto de 2005, la Gerencia General avala en todos sus extremos el citado planteamiento de la Dirección FOSUVI y recomienda la aprobación del mismo por parte de esta Junta Directiva.
+Tercero: Que con base en la información que al respecto se ha tenido a la vista, esta Junta Directiva no encuentra objeción en acoger la recomendación de la Administración, por lo que se procede a aprobar los formularios para las Declaratorias de Interés Social que emiten las Entidades Autorizadas para casos individuales y proyectos habitacionales, en los mismos términos planteados por la Dirección FOSUVI en el oficio DF-OF-1596-2005.
+Por tanto, se acuerda:
+1) Aprobar el siguiente formulario para la Declaratoria de Interés Social de casos individuales:
+Ver formularios en páginas N° 41 a la 42 en La Gaceta impresa N° 176 del 13 de setiembre del 2005.
