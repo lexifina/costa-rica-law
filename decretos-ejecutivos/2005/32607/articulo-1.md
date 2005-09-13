@@ -1,0 +1,16 @@
+Nº 32607
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que le confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, los artículos 25 inciso l), 27 inciso l) y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública del 2 de mayo de 1978; la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos del 18 de setiembre del 2001, y su Reglamento, el Decreto Ejecutivo Nº 30058-H-MP-PLAN del 19 de diciembre del 2001; la Ley Nº 8347, Ley de Creación del Centro Nacional de la Música, del 19 de febrero del 2003 y su reforma, Ley Nº 8426, del 12 de noviembre del 2004 y el Decreto Ejecutivo Nº 31708-H del 16 de marzo del 2004 y sus reformas y el Decreto Ejecutivo Nº 32452-H del 29 de junio del 2005.
+Considerando:
+1º—Que mediante la Ley Nº 8347, Ley de Creación del Centro Nacional de la Música, publicada en La Gaceta Nº 43 del 3 de marzo del 2003, se crea el Centro Nacional de la Música, como un órgano del Ministerio de Cultura, Juventud y Deportes, con desconcentración mínima y personalidad jurídica instrumental.
+2º—Que de conformidad con el artículo 2º de la Ley Nº 8347, el Centro Nacional de la Música tiene como finalidad contribuir al desarrollo, el fortalecimiento, la enseñanza y la difusión de las artes musicales en todas sus manifestaciones.
+3º—Que el Centro Nacional de la Música requiere ampliar el gasto presupuestario máximo para el año 2005, con el .n de que la Orquesta Sinfónica Nacional participe en la Exposición Internacional 2005, en Aichi, Japón, a celebrarse en el mes de setiembre del 2005.
+4º—Adicionalmente, el Centro requiere incorporar recursos para la compra -por actualización tecnológica- de equipo de cómputo y licencias para el desempeño de la labor administrativa y financiera, adquirir equipo de transporte para el traslado de artistas e instrumentos de la institución, realizar adiciones y mejoras para la docencia en la infraestructura física de su sede y realizar otras inversiones en equipo educacional.
+5º—Que para atender los gastos extraordinarios indicados en los considerandos 3º y 4º, el Centro incorporará los recursos provenientes del superávit libre.
+6º—Que mediante el Decreto Ejecutivo Nº 31708-H y sus reformas, publicado en La Gaceta Nº 62 de 29 marzo del 2004, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2005, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo el gasto presupuestario para el 2005, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+7º—Que mediante el oficio STAP-0409-04 de 13 de abril del 2004, se comunicó al Centro Nacional de la Música el gasto presupuestario fijado para el año 2005.
+8º—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado para el Centro Nacional de la Música para el año 2005. Por tanto,
+DECRETAN:
+Artículo 1º—Modifícase al Centro Nacional de la Música, el gasto presupuestario máximo para el año 2005, establecido en el artículo 1º del Decreto Ejecutivo Nº 31708-H y sus reformas, publicado en La Gaceta Nº 62 del 29 de marzo del 2004, de manera que no podrá exceder la suma de ¢.948,5 millones.
