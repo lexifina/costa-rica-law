@@ -1,0 +1,1 @@
+Artículo 5º—Modificaciones al Plan. Podrán adicionarse al Plan Anual de Capacitación acciones no previstas originalmente, justificadas por la función de las necesidades institucionales, las que serán valoradas por la Dirección Ejecutiva para su eventual aprobación en virtud de ser actividades de ejecución.

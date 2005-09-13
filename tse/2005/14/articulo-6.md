@@ -1,0 +1,1 @@
+Artículo 6º—Áreas de capacitación de interés institucional. La Sección establecerá, mediante un diagnóstico fidedigno y confiable, las áreas de capacitación internas y externas de mayor interés institucional, hacia las que impulsará y orientará la capacitación de los funcionarios, así como la dirigida a la población en general.
