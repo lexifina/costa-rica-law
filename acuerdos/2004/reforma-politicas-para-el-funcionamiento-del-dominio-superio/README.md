@@ -14,3 +14,4 @@ Reforma Políticas para el funcionamiento del Dominio Superior CR
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-12-13 | la propia norma |
+| 2 | 2005-09-13 | Acuerdo 0 (2005-09-13) |
