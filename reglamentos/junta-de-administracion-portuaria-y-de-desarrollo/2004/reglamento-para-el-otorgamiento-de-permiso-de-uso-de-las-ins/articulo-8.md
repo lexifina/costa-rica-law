@@ -1,9 +1,0 @@
-Artículo 8º—De los requisitos: para la venta de artesanía, el prestatario permisionario deberá:
-1. Indicar cuáles de los miembros de la agrupación se dedicarán a la venta o manufactura y venta de artesanía en los puertos.
-2. Indicar claramente el tipo de artesanía que fabrica y comercializa y vende al turista.
-La Autoridad Portuaria exigirá que todo prestatario del servicio de transporte cumpla con:
-1. Acreditar las pólizas de seguros con la cobertura de responsabilidad civil que protejan a los pasajeros y cubran daños a terceros.
-2. Fecha del día de las pólizas que se presentan, nombre completo, dirección exacta, teléfono y fax, debe consignarse los datos de todos y cada uno de los miembros que estarán prestando el servicio, el número de placa del vehículo, el modelo, año, características generales de la condición de cada vehículo, copia certificada de la tarjeta de circulación así como del título de propiedad para demostrar que el vehículo está a nombre de la persona u organización solicitante.
-3. Cada persona u organización deberá asegurarse de que sus vehículos cumplan con lo establecido por el Ministerio de Obras Públicas y Transportes, en los Decretos Nos. 15203 y 20141 “Reglamento para la Explotación de Servicios Especiales de Transporte Automotor Remunerado de Personas”, publicados en La Gaceta Nº 38 del 22 de febrero de 1984 y La Gaceta Nº 13 del 18 de enero de 1991, respectivamente, así como las normativas establecidas por el Instituto Costarricense de Turismo para el servicio de transporte a Turistas, cualquier otra normativa que establezca el MOPT o el ICT.
-El solicitante deberá manifestar por escrito su aceptación expresa de someterse al régimen establecido en el presente Reglamento.
-Las solicitudes deberán ser presentadas ante la Unidad de Cruceros de JAPDEVA, que las analizará y emitirá recomendación para la aprobación por parte del Consejo de Administración.

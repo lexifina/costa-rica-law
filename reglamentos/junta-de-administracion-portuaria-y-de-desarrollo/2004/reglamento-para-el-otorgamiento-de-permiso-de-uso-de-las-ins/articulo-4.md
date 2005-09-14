@@ -1,2 +1,0 @@
-Artículo 4º—Vigencia del permiso: Los permisos para utilización de áreas portuarias, tendrán vigencia únicamente durante la temporada de atraque de cruceros en el Complejo Portuario de Limón período para el cual se tramitó.
-En todo caso, dichos permisos podrán solicitarse para ser considerados en la próxima temporada, mediante la presentación de los documentos citados en el artículo 7, un mes antes del inicio de la temporada correspondiente. El que no cumpla con lo antes expuesto, quedará fuera de la temporada sin responsabilidad alguna para JAPDEVA.

@@ -1,2 +1,0 @@
-Artículo 12.—De la aprobación de la solicitud. Las solicitudes serán analizadas por la Unidad de Cruceros de JAPDEVA, la que emitirá recomendación para el otorgamiento o denegatoria ante la Gerencia Portuaria y esta las presentará ante el Consejo de Administración para su resolución final.
-En forma escrita, la Unidad de Cruceros comunicará el resultado de los trámites a cada uno de los solicitantes del permiso, dentro del plazo de ocho (8) días siguientes a la resolución del mismo.
