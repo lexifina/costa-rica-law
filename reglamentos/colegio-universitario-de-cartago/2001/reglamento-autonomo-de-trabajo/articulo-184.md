@@ -1,1 +1,1 @@
-Artículo 184.—Mientras dure la investigación y hasta la resolución final del caso, se suspenderán los términos de prescripción para sancionar a las personas involucradas.
+Artículo 184.—(Derogado en sesión N° 2377 del 14 de setiembre de 2005)

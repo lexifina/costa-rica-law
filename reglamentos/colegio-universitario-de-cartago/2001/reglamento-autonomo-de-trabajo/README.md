@@ -14,3 +14,4 @@ Reglamento Autónomo de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-28 | la propia norma |
+| 2 | 2005-09-14 | Reglamento 2444 (2006-05-17) |

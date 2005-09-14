@@ -1,2 +1,1 @@
-Artículo 179.—El trabajador o trabajadora que quiera denunciar por hostigamiento sexual a una o varias personas, cualquiera que sea su rango, deberá hacerlo en forma verbal o escrita ante el Servicio de Personal, ofreciendo en el mismo acto, toda la prueba que considere oportuna. En caso de presentarse la denuncia en forma verbal, en el mismo acto se levantará acta de la denuncia, la cual deberá ser firmada por el denunciante.
-En caso de que la denuncia involucre al Jefe del Servicio de Personal, la tramitación correspondiente estará a cargo del Decano y en caso de que involucre a éste último, será el Consejo Directivo quien se avocará al conocimiento de la denuncia.
+Artículo 179.—(Derogado en sesión N° 2377 del 14 de setiembre de 2005)

@@ -1,1 +1,1 @@
-Artículo 180.—Una vez presentada la denuncia, y dentro de un plazo máximo de tres días hábiles, la persona u órgano encargado del procedimiento, tomará la declaración tanto del denunciante como de la(s) persona(s) denunciada(s), quien(es) en ese mismo acto, deberá aportar la prueba de descargo. En ese mismo momento se les deberá leer, textualmente, las disposiciones de los artículos 14, 15 y 16 de la Ley Nº 7476, ya citada.
+Artículo 180.—(Derogado en sesión N° 2377 del 14 de setiembre de 2005)

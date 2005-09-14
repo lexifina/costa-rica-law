@@ -1,1 +1,1 @@
-Artículo 185.—Los plazos señalados para tramitar y resolver las denuncias que se presenten, se podrán ampliar, siempre y cuando con ello no se supere el término de tres meses, contados desde el momento de interposición de la denuncia, según lo dispuesto por el artículo 5, último párrafo de la Ley Nº 7476 de repetida cita.
+Artículo 185.—(Derogado en sesión N° 2377 del 14 de setiembre de 2005)

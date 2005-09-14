@@ -1,1 +1,1 @@
-Artículo 187.—Para todo lo que no se regule en el presente capítulo se aplicará la Ley Nº 7476 supracitada.
+Artículo 187.—(Derogado en sesión N° 2377 del 14 de setiembre de 2005)
