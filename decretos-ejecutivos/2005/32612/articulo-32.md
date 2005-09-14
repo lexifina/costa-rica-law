@@ -1,0 +1,1 @@
+Artículo 32.—La resolución mediante la cual se rechaza el reclamo o la denuncia deberá ser motivada y se notificará al interesado, con indicación de las instancias en las que puede reclamar sus derechos o gestionar lo que corresponda, así como los recursos administrativos que procedan.

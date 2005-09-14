@@ -1,0 +1,1 @@
+Artículo 27.—La Auditoría General y la contraloría de servicios de salud deberán guardar reserva de la identidad del denunciante cuando éste lo haya solicitado expresamente, con el objeto que no se afecte la continuidad y seguridad del servicio requerido y del procedimiento.

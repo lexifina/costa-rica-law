@@ -1,0 +1,1 @@
+Artículo 8º—El quórum para sesionar será de tres miembros y los acuerdos serán válidos cuando estos sean tomados por tres de los miembros presentes. En caso de empate, el presidente decidirá por la calidad de su voto.

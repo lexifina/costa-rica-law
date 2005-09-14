@@ -1,0 +1,3 @@
+Artículo 33.—Una vez recibido el reclamo o la denuncia la Auditoría General o las contralorías de servicios realizarán una investigación preliminar, con el objeto de esclarecer la verdad real y material de los hechos. La investigación deberá ser sumaria e informal, con audiencia a las partes afectadas. El acto que admite la denuncia o reclamo deberá ser notificado a la parte denunciada, para que en el plazo de cinco días hábiles ofrezca su descargo y formule los alegatos que estime convenientes.
+Deberá procederse de igual manera cuando la investigación se hubiera iniciado de oficio.
+La Auditoría General y las contralorías de servicios podrán requerir si se estimare pertinente, el nombramiento de expertos para una investigación especializada.

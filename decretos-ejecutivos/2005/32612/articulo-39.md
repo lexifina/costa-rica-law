@@ -1,0 +1,2 @@
+Artículo 39.—La Auditoría General y las contralorías de servicios de salud, previa valoración de los casos que les sean remitidos, mediante resolución motivada, podrán ampliar el plazo de la investigación por cuatro días hábiles.
+La Auditoría General con fundamento en el informe suministrado al efecto por las contralorías de servicios de salud, podrá dar seguimiento a los resultados vertidos en otras instancias administrativa o judicial.

@@ -1,0 +1,1 @@
+Artículo 43.—La desatención injustificada a las recomendaciones de la Auditoría General y de las contralorías de servicios de salud se considerará falta grave, en cuyo caso la institución empleadora deberá determinar la responsabilidad disciplinaria del funcionario, para lo cual deberá observar el debido proceso y sus principios integrantes.

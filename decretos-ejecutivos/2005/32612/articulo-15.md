@@ -1,0 +1,1 @@
+Artículo 15.—Corresponde a las contralorías de servicios de salud, las funciones señaladas al efecto en el artículo 12 de la Ley de Derechos y Deberes de las Personas Usuarias de los Servicios de Salud Públicos y Privados.

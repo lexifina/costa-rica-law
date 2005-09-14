@@ -1,0 +1,2 @@
+Artículo 36.—La denuncia o el reclamo se desestimará cuando de la investigación preliminar no se determine una violación a los derechos del paciente.
+Cuando la investigación determine que existe causal suficiente para un procedimiento administrativo, el expediente deberá remitirse al superior jerárquico para la apertura del procedimiento y la determinación de las posibles sanciones, de conformidad con el reglamento interno de la institución de que se trate y la normativa jurídica vigente.

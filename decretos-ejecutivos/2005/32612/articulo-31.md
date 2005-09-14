@@ -1,0 +1,1 @@
+Artículo 31.—El pronunciamiento sobre la admisibilidad o rechazo del reclamo o la denuncia debe darse en el momento de su recepción, salvo aquellos casos en que exista prueba pendiente de diligenciar, no imputable a la parte.

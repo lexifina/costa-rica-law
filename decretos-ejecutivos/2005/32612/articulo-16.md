@@ -1,0 +1,1 @@
+Artículo 16.—Acorde con lo dispuesto en el artículo anterior las contralorías de servicios de salud, en el cumplimiento de sus funciones tendrán las potestades previstas en el artículo 13 de la Ley de Derechos y Deberes de las Personas Usuarias de los Servicios de Salud Públicos y Privados.

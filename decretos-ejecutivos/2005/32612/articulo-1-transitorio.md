@@ -1,0 +1,2 @@
+Transitorio Único.—Los Servicios de Salud Públicos y Privados contarán con un plazo de seis meses a partir de la publicación del presente decreto en el Diario Oficial La Gaceta para la implementación de las contralorías de servicios de salud, las cuales deberán funcionar acorde con lo dispuesto en la Ley de Derechos y Deberes de las Personas Usuarias de los Servicios de Salud Públicos y Privados y el presente Reglamento.
+Dado en la Presidencia de la República.—San José, a los catorce días del mes de julio del dos mil cinco.

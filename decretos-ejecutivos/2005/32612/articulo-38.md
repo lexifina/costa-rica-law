@@ -1,0 +1,1 @@
+Artículo 38.—Cuando el resultado de la investigación determine que en un establecimiento de salud se pone en riesgo la salud o la integridad de los usuarios, la Auditoría General procederá a comunicar tal situación a las autoridades de salud, para que se adopten las medidas sanitarias especiales contempladas en la Ley General de Salud.

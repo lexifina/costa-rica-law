@@ -1,0 +1,1 @@
+Artículo 22.—Los establecimientos de salud públicos y privados deberán disponer de un mural ubicado en lugar visible, donde se especifiquen los derechos y los deberes de los usuarios de los servicios de salud contemplados en la Ley de los Derechos y Deberes de las Personas Usuarias de los Servicios de Salud Públicos y Privados.

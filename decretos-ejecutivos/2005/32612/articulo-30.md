@@ -1,0 +1,1 @@
+Artículo 30.—La Auditoría General y las contralorías de servicios de salud no podrán conocer aquellos asuntos que hayan sido interpuestos ante las autoridades judiciales y que se encuentren pendientes de resolución. De igual forma procederán en aquellos casos sobre los cuales exista un pronunciamiento judicial con autoridad de cosa juzgada.

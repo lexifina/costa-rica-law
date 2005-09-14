@@ -1,0 +1,1 @@
+Artículo 45.—El presente Reglamento deberá ser objeto de revisiones periódicas con el fin de actualizarlo y que se incorporen los cambios necesarios en cuanto a funciones, procedimientos, u otros aspectos de su contenido, sin perjuicio del dictado de otros Reglamentos necesarios para el adecuado funcionamiento de la Auditoría General.
