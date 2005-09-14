@@ -1,0 +1,2 @@
+Artículo 12.—Sobre la comunicación de los resultados: Los resultados de las etapas del concurso, serán comunicados a los participantes por la comisión Ad-hoc o por el Alcalde Municipal, según corresponda.
+Contra esta comunicación podrá interponerse el recurso de revocatoria, el de apelación o ambos, de conformidad con lo que establece la Ley General de Administración Pública para estos efectos.
