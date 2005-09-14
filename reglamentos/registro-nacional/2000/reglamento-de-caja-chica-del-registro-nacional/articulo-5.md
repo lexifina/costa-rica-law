@@ -1,4 +1,2 @@
-ARTÍCULO 5
-La creación o ampliación del fondo fijo de la caja chica del Registro Nacional, será determinada por medio de un acuerdo de la Junta Administrativa del Registro Nacional, en atención a solicitud de la Coordinación de Tesorería, la cual deberá presentar a la Jefatura del Departamento Financiero para su respectivo estudio y posteriormente este la presenta ante la Junta Administrativa para su aprobación. Dicha solicitud deberá contener la siguiente información:
-• Solicitud de creación o ampliación/debidamente firmada por el responsable de la Caja Chica y el Jefe del Departamento Financiero, en la que se indicarán los justificantes que sustentan la necesidad de crear o incrementar el fondo.
-• Estudio cuantitativo de necesidades, real o proyectado, según sea el caso, acompañado de los documentos que dan pie a dicho análisis.
+Artículo 5º—La creación o amplificación del fondo fijo de la caja chica del Registro Nacional, será determinada por medio de un Acuerdo de Junta Administrativa del Registro Nacional, en atención a solicitud (debidamente justificada) de la Dirección Administrativa.
+(Así reformado mediante Sesión Ordinaria N° 36-2005, celebrada el 14 de setiembre de 2005).
