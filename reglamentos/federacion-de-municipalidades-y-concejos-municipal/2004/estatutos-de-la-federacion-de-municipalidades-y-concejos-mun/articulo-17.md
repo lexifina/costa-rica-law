@@ -1,0 +1,1 @@
+Artículo diecisiete: Del Director Ejecutivo. La administración general de la Federación estará a cargo de un Director Ejecutivo, nombrado por el Concejo Directivo por el plazo que considere necesario. Dicho nombramiento deberá recaer en una persona de probada capacidad en asuntos de desarrollo municipal.

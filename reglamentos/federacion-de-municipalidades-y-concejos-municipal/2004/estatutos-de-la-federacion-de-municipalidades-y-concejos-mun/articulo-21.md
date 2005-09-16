@@ -1,0 +1,1 @@
+Artículo veintiuno: La Federación puede solicitar a los Concejos signatarios el personal técnico y administrativo que necesite para el cumplimiento de sus funciones y aquellos los proporcionará en la medida de sus posibilidades.

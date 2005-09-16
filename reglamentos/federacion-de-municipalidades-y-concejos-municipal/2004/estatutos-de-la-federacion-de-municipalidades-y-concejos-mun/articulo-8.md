@@ -1,0 +1,1 @@
+Artículo octavo: Integración: La Asamblea General es el órgano máximo de la Federación, y estará integrada por Alcalde o Alcaldesa, Intendente o Intendenta y un miembro de los concejos de los gobiernos locales asignatarios a La Federación.

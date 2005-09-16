@@ -1,0 +1,1 @@
+Artículo diecinueve: De la remoción o suspensión: El Director Ejecutivo sólo podrá ser removido o suspendido de su cargo por causa justa, o por votación no menor de las dos terceras partes de los miembros del Concejo Directivo.

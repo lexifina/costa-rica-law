@@ -1,0 +1,1 @@
+Artículo veinticuatro: El presente estatuto y sus modificaciones, rige a partir de su aprobación una vez analizada y discutida la reforma, total al estatuto, se somete a consideración de la asamblea y se aprueba por unanimidad.

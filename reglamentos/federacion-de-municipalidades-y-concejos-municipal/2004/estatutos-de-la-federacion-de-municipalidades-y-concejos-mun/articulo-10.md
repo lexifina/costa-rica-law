@@ -1,0 +1,1 @@
+Artículo diez: De los acuerdos de la Asamblea General. Serán tomados por mayoría simple, salvo aquellos que requieran una mayoría calificada, según lo determinado por el artículo once del Código Municipal.

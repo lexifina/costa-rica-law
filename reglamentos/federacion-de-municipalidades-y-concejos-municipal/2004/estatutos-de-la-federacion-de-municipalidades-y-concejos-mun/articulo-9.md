@@ -1,0 +1,1 @@
+Artículo noveno: Del quórum. La Asamblea lo formará la mitad más una de los gobiernos locales signatarios de la Federación. Si efectuada la primera convocatoria no hubiese quórum, la Asamblea General se realizará, a segunda convocatoria, una hora después con los representantes presentes, siempre y cuando estén cinco miembros representando los gobiernos locales.
