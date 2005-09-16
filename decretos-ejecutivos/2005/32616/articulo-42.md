@@ -1,0 +1,1 @@
+Artículo 42.—En los servicios de las Unidades de Soporte Avanzado, la ausencia de Jefatura Médica es causal de reclasificación inmediata de las unidades, a un nivel inmediato inferior y su personal laborará conforme lo estipulado para ese otro nivel de atención.

@@ -1,0 +1,1 @@
+Artículo 56.—En el caso de situaciones anómalas de los A. E .M., el Colegio de Médicos y Cirujanos de Costa Rica podrá delegar el estudio del caso, a una comisión que se conformará para tal .n, de la cual formará parte la Asociación Costarricense de Técnicos en Salud adscrita a dicho colegio profesional, a fin de que se determine la sanción a aplicar.

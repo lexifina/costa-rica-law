@@ -1,0 +1,1 @@
+Artículo 43.—En caso de continuar situaciones anómalas en un servicio, previas valoraciones de omisión e incumplimiento de las disposiciones y de procedimiento, el Ministerio podrá cancelar la habilitación del servicio infractor, por el tiempo que considere necesario o de manera permanente.

@@ -1,0 +1,1 @@
+Artículo 27.—En accidentes en la vía pública u otros lugares donde no hay un médico de cabecera, el Médico Jefe de Servicios Extrahospitalarios asumirá la responsabilidad en la atención de los pacientes y el personal médico que se presente e identifique plenamente en la escena, colaborará en la atención de las víctimas, coordinando con dicha jefatura.

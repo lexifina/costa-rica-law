@@ -1,0 +1,2 @@
+Artículo 35.—En caso de emergencias masivas, el personal de las Unidades Avanzadas y su Jefatura, serán oficiales de Triage y coordinarán con los hospitales pertinentes, la atención y recibo de los pacientes y aplicarán los tratamientos que a criterio del o los médicos a cargo, se requieran, en forma previa o durante el traslado del paciente.
+El resto del personal cumplirá las indicaciones que el oficial a cargo del transporte le indique, como pueden ser prioridades de traslado, hospital receptor, unidad que lo trasladará y otros.

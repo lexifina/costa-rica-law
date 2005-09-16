@@ -1,0 +1,1 @@
+Artículo 34.—Ante cualquier emergencia calificada, el radiooperador deberá localizar al Jefe Médico en forma inmediata, para informarle del caso a fin de que éste se desplace a la escena, o se mantenga pendiente en la frecuencia del radio.

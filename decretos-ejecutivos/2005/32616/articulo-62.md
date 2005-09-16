@@ -1,0 +1,1 @@
+Artículo 62.—Los propietarios de los vehículos, en lo concerniente a señales rotativas luminosas deberán cumplir con las disposiciones contenidas en el artículo 32 de la Ley de Tránsito por Vías Públicas y Terrestres de la República.

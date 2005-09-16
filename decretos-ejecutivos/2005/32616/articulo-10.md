@@ -1,0 +1,3 @@
+Artículo 10.—Las ambulancias tipo B ("Soporte Intermedio") deben reunir los siguientes requisitos de tripulación:
+1) Un conductor debidamente acreditado como A. P. A. con curso aprobado de MVE.
+2) Además del conductor, en la ambulancia pueden viajar un A. E. M. en zonas rurales, dos A. E. M. en el área metropolitana y cabeceras de provincia, los cuales estarán encargados de la atención de los pacientes y deberán estar acreditados ante el Ministerio. La ambulancia deberá contar con el personal que se requiere para cada tipo de soporte, según el nivel académico del personal que la tripula y la categoría asignada por el Ministerio; así como con los equipos especializados necesarios para la atención del paciente en forma obligatoria.

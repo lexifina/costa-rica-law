@@ -1,0 +1,2 @@
+Artículo 9º—Las ambulancias intermedias-tipo B además de los rótulos a que se re.ere el artículo 7 del presente Reglamento, deberán llevar la insignia de la Estrella de la Vida de color azul en cada costado, posterior y superior no mayor de 60 cm de diámetro.
+Todas las unidades deben poseer una luz rotativa o de destello color rojo (visible 360º grados) y un equipo de comunicación fijo de alcance con la base, u otras centrales de despacho.

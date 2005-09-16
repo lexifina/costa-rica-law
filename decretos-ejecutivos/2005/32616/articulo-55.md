@@ -1,0 +1,1 @@
+Artículo 55.—Cualquier falta que se reporte en el ejercicio de las labores de un Asistente en Emergencias Médicas, debidamente comprobada y siguiendo el debido proceso, podrá ser objeto de sanción acorde con las disposiciones reglamentarias del Colegio de Médicos y Cirujanos de Costa Rica.
