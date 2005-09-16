@@ -1,0 +1,1 @@
+Artículo 10.—Desempeño de cargos. Los funcionarios del ICD están obligados a desempeñar sus cargos durante los días hábiles y las horas reglamentarias. No se podrá por lo mismo conceder privilegios, prerrogativas o licencia alguna que autorice una asistencia irregular, salvo los casos de licencia para estudios y los contratos de labores docentes.

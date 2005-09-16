@@ -1,0 +1,1 @@
+Artículo 72.—Derogatoria. El Reglamento Autónomo de Administración y Servicio del Centro Nacional de Prevención contra Drogas (CENADRO), Decreto Ejecutivo Nº 27377-MP; el Reglamento de Organización del Centro de Inteligencia Conjunto Antidrogas, así como las demás disposiciones reglamentarias o acuerdos ejecutivos que se le opongan.

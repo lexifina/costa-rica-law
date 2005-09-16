@@ -1,0 +1,2 @@
+Artículo 18.—Período de disfrute de las vacaciones. Las vacaciones se disfrutarán dentro del período anual correspondiente, salvo excepciones debidamente justificadas. Cualquier acumulación deberá regirse por el Estatuto del Servicio Civil y el artículo 32 de su Reglamento. Para el disfrute de acumulación excepcional contemplado en dicho artículo, se deberá contar con la autorización de la Jefatura a la que pertenece el funcionario.
+No podrán otorgarse vacaciones proporcionales, salvo las vacaciones colectivas autorizadas.

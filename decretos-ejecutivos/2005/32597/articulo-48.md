@@ -1,0 +1,1 @@
+Artículo 48.—De las obligaciones de la Dirección General. La Dirección General tendrá la responsabilidad de mantener, en el lugar de la prestación de servicios, condiciones de respeto para quienes ahí laboran y por ende debe tomar las medidas necesarias para prevenir, desalentar, evitar y sancionar las conductas de acoso u hostigamiento sexual.

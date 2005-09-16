@@ -1,0 +1,1 @@
+Artículo 66.—Periodo de licencias. Las licencias de estudio regirán únicamente por el tiempo necesario para concurrir a lecciones, debiendo el servidor asistir al trabajo durante los días o períodos libres que conceda dicho centro educativo.

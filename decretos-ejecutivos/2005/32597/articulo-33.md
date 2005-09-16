@@ -1,0 +1,1 @@
+Artículo 33.—Abandono del trabajo. Se considera abandono de trabajo el dejar, dentro de la jornada de trabajo, la labor objeto del contrato o relación de servicio. Para efectos de calificar el abandono no es necesario que el servidor se retire de su lugar de trabajo, sino que bastará que de manera evidente y manifiesta abandone la labor que le ha sido encomendada.

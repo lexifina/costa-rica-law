@@ -1,0 +1,1 @@
+Artículo 36.—Comunicación de ausencia. En todo caso, el servidor deberá notificar a su jefe inmediato lo antes posible verbalmente o por escrito, las causas que le impidieron asistir al trabajo. Por ninguna razón, salvo fuerza mayor o caso fortuito, deberá esperar hasta el segundo día de la ausencia para notificarlo.

@@ -1,0 +1,1 @@
+Artículo 28.—Del comedor. La Institución tendrá acondicionado un local adecuado para que los servidores puedan ingerir los alimentos y bebidas durante su tiempo de descanso. Sin perjuicio que en el recinto se puedan expender alimentos.

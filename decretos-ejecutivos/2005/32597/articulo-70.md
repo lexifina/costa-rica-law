@@ -1,0 +1,1 @@
+Artículo 70.—Sanciones de Control Interno. Las responsabilidades y sanciones establecidas en la Ley General de Control Interno y su reglamento serán aplicables a los funcionarios del ICD, siguiendo los procedimientos establecidos en el presente reglamento y demás normativa aplicable.

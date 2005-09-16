@@ -1,0 +1,1 @@
+Artículo 13.—De la Comisión de Recursos Humanos. La Comisión de Recursos Humanos de la Dirección General del Servicio Civil es el órgano encargado de autorizar, de forma previa, la jornada extraordinaria de los órganos que conforman la Administración Central.
