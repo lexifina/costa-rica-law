@@ -18,3 +18,4 @@ Reglamento General de Contratación Administrativa
 | 3 | 2001-04-04 | SINALEVI (sin norma nombrada) |
 | 4 | 2002-08-23 | Decreto Ejecutivo 30729 (2002-08-23) |
 | 5 | 2003-12-12 | Decreto Ejecutivo 31658 (2003-12-12) |
+| 6 | 2005-09-16 | Decreto Ejecutivo 32717 (2005-09-16) |
