@@ -1,4 +1,6 @@
+(Derogado)
 N° 21316-MICIT
+(Este decreto fue derogado por el artículo 12 del Reglamento al Título II de la Ley de Promoción de Desarrollo Científico y Tecnológico, aprobado mediante decreto jecutivo N° 32817 del 19 de setiembre de 2005)
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE CIENCIA Y TECNOLOGIA,
 En uso de las atribuciones que le confiere los incisos 3) y 18) del artículo 140 de la Constitución Política, en la Ley General de la Administración Pública N° 6227 del 2 de mayo de 1978 y en cumplimiento de lo dispuesto por el transitorio único de la Ley de Promoción del Desarrollo Científico y Tecnológico, ley N° 7169 del 26 de junio de 1990,
