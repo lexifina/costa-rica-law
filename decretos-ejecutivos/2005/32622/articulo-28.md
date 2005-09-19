@@ -1,0 +1,1 @@
+Artículo 28.—Entrada en vigor. Las disposiciones establecidas en el presente Decreto, entrarán en vigencia para el caso del embalaje tratado y manufacturado en el país, a ser utilizado en la exportación de mercancías, a partir de su publicación y seis meses calendario después de su publicación, para el embalaje utilizado en mercancías de importación.

@@ -1,0 +1,5 @@
+Artículo 23.—Procedimiento en puntos de salida.
+23.1. Los funcionarios destacados en los puntos de salida, podrán verificar mediante muestreo al azar de cualquier envío, el cumplimiento de las disposiciones de esta regulación.
+23.2. En aquellos países que se establezca como requisito para el ingreso de embalaje de madera, la presentación del Certificado Fitosanitario que indique la conformidad con la NIMF Nº 15, el SFE emitirá dicho documento y colocará en el punto Nº 10 la siguiente leyenda: “El embalaje de madera, acompañando el envío descrito, cumple con el tratamiento establecido mediante la Norma NIMF Nº 15, de la Convención Internacional de Protección Fitosanitaria”.
+23.3. Lo anterior también aplica para aquellas empresas exportadoras que lo soliciten por su voluntad.
+23.4. Cuando el país importador tenga como requisito la presentación de un Certificado Fitosanitario para ingreso de embalaje de madera y el exportador realice el envío de mercancías sin cumplir con este requisito, debe asumir la responsabilidad sobre cualquier acción que el país importador le imponga, tal como: devolución, tratamiento o destrucción.

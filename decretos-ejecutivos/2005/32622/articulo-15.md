@@ -1,0 +1,9 @@
+Artículo 15.—Características de los hornos y del tratamiento térmico.
+15.1. Contar con al menos cuatro sensores, pudiendo aumentar de acuerdo con la capacidad del horno, distribuidos espacialmente y garantizando que se logre alcanzar la temperatura y tiempo mínimo estipulado en la NIMF 15. El número total de sondas aprobadas debe ser colocado en cada tratamiento, aunque la carga del horno, no esté al máximo de su capacidad.
+15.2. Cuando una sonda se dañe durante el tratamiento, se puede continuar con el proceso, no obstante, para la próxima corrida, debe haber sido reparada o sustituida, de lo contrario no se darán por válidos los siguientes tratamientos.
+15.3. Cada sonda debe ser colocada en la pieza más gruesa de la madera a tratar, para lo cual se hará un agujero en el centro, donde se introducirá la sonda, cuidando que no la atraviese totalmente, además, se colocará pasta de silicón alrededor de su punto de ingreso para evitar la influencia de la temperatura interna del horno.
+15.4. La madera en piezas sueltas debe colocarse dentro del horno en estratos mediante el uso de separadores, esto para favorecer la circulación del aire.
+15.5. La distribución de las sondas dentro del horno, debe ser de tal forma que no queden ubicadas en las orillas o cerca de la fuente de calor, procurando que queden dispuestas en la parte superior, media e inferior de las estibas de madera, ya que la temperatura no es uniforme dentro de la instalación.
+15.6. Instalar un graficador electrónico, cuya información no pueda ser manipulada y que permita registrar en forma continua, la temperatura en el centro de la madera y el tiempo de exposición.
+15.7. Aquellos hornos que fueron certificados con graficadores manipulables, deberán sustituirlos por electrónicos.
+15.8. Disponer de los elementos que permitan tener una adecuada distribución de la temperatura al interior del horno, tales como ventiladores internos.

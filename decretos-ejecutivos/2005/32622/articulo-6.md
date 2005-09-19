@@ -1,0 +1,1 @@
+Artículo 6º—Ente regulador. El Servicio Fitosanitario del Estado, a través de los entes competentes en materia de exportación y cuarentena vegetal, es el órgano oficial correspondiente para velar por la implementación y aplicación de las disposiciones de este Decreto.

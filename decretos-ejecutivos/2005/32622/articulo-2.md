@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Las normas y especificaciones de esta regulación, se aplicarán a los procedimientos para la certificación del embalaje de madera elaborados o tratados en las instalaciones autorizadas por el Servicio Fitosanitario del Estado. También será aplicable al embalaje de madera de las mercancías que se importan.

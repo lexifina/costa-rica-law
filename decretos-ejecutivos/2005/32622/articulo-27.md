@@ -1,0 +1,1 @@
+Artículo 27.—Disposiciones relativas a la documentación. En la página web del SFE y en el área de exportaciones, estarán a disposición de los interesados los formularios y listado de empresas autorizadas conforme a lo indicado en la presente regulación.
