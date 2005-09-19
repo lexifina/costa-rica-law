@@ -1,4 +1,6 @@
+(Derogado)
 No 28880
+(Este decreto fue derogado por el artículo 12 del Reglamento al Título II de la Ley de Promoción de Desarrollo Científico y Tecnológico, aprobado mediante decreto jecutivo N° 32817 del 19 de setiembre de 2005)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
 En uso de las atribuciones que les confieren los incisos 3) y 18) del artículo 140 de la Constitución Política, La Ley General de la Administración Pública No 6227, del 2 de mayo de 1978 y la Ley de Promoción del Desarrollo Científico y Tecnológico Ley No 7169 del 26 de junio de 1990.

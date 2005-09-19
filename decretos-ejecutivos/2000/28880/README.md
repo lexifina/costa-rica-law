@@ -14,3 +14,4 @@ Creación del Consejo Consultivo de Ciencia y Tecnología
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-29 | la propia norma |
+| 2 | 2005-09-19 | Decreto Ejecutivo 32817 (2005-09-19) |
