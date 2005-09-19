@@ -1,0 +1,3 @@
+Artículo 7º—Del quórum del Consejo Nacional. Para que pueda sesionar válidamente el Consejo Nacional será necesaria la presencia de la mitad más uno de los miembros. Si no hubiere quórum podrá sesionar válidamente en segunda convocatoria una hora después de la señalada para la primera, con los miembros presentes.
+En caso de que no exista el quórum para la primera y segunda convocatoria, se suspenderá la reunión haciéndolo constar así en el acta respectiva que deberá levantarse con la indicación de las personas presentes.
+El Consejo Nacional podrá invitar a sus sesiones a diferentes especialistas para analizar temas complejos o aspectos específicos de su quehacer.
