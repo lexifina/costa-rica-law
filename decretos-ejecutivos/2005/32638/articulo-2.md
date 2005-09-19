@@ -1,0 +1,1 @@
+Artículo 2º—Los documentos de residencia de extranjeros beneficiados con el Régimen de Excepción 1999, que al momento de entrada en vigencia del presente decreto se encuentren vigentes, se considerarán renovados hasta la fecha que corresponda, en el año 2007.
