@@ -1,0 +1,3 @@
+Artículo 2º—El Ministro del Ambiente y Energía solicitará a cada una de las instituciones públicas y entidades privadas, la designación de su respectivo representante propietario y suplente ante la Comisión.
+Los miembros del sector público que integren la Comisión serán nombrados por tiempo indefinido, sin perjuicio de las facultades de los jerarcas de cada Ministerio representado para sustituirlos en cualquier momento.
+Los representantes del sector privado serán nombrados por un período de tres años, pudiendo ser reelectos. En caso de renuncia o remoción de los representantes del sector privado deberá enviarse una nueva terna para su designación, en cuyo caso el nuevo representante será nombrado por el plazo restante del período establecido.
