@@ -1,0 +1,3 @@
+Artículo 29.—Del acceso al expediente y el derecho a la comparecencia. Las partes tendrán derecho a conocer el expediente y a alegar sobre lo actuado para hacer valer sus derechos o intereses, antes de la decisión final, de conformidad con los principios del debido proceso a fin de garantizar el derecho de defensa.
+Las partes tendrán derecho a una comparecencia oral y privada con el Tribunal de Honor, en la que se ofrecerá y recibirá toda la prueba.
+En todo trámite, procedimiento o actuación, se deberán respetar especialmente los derechos de Audiencia y Defensa consagrados en la Constitución Política.

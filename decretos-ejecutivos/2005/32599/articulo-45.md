@@ -1,0 +1,1 @@
+Artículo 45.—De la fecha de elecciones. Las elecciones de Junta Directiva serán en la última semana de noviembre, para ello, la Junta Directiva procederá en la primera sesión del mes de setiembre de cada año, a fijar la fecha de convocatoria a elecciones. Dicha convocatoria deberá de anunciarse además por los medios internos de comunicación, en un diario de circulación nacional.

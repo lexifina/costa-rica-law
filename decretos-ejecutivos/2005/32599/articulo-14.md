@@ -1,0 +1,1 @@
+Artículo 14.—De la dirección de las asambleas. Las asambleas generales ordinarias o extraordinarias serán dirigidas por la Presidencia de la Junta Directiva y, en ausencia suya, por la Vicepresidencia. En ausencia de ambos, presidirá el miembro Director de más edad entre los presentes.

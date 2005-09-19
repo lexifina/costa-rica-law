@@ -1,0 +1,1 @@
+Artículo 46.—Todo lo que no se encuentre regulado por este Reglamento en materia de Órganos Colegiados, se rige supletoriamente por lo dispuesto en tal sentido en la Ley General de la Administración Pública.
