@@ -1,5 +1,5 @@
-Artículo quinto-- De las Funciones del Comité Sismológico Nacional.
-Las funciones del Comité Sismológico Nacional serán asesorar y recomendar al Consejo Directivo en cuanto a:
+Artículo 5º—De las Funciones del Comité Sismológico Nacional. Las funciones del Comité Sismológico Nacional serán las de asesorar y recomendar al Ministro de Ciencia y Tecnología y a las demás instituciones que conforman el SISNI en cuanto a:
+(Así reformado el párrafo primero por Artículo 11 del Decreto Ejecutivo N° 32817 del 19 de setiembre del 2005)
 Desarrollar las normas para una distribución óptima de las estaciones sismologicas existentes y nuevas en el país, con miras a integrar y complementar las diversas redes de observación de cada una de las instituciones integrantes del SISNI.
 Definir las normas de operación del Banco de Datos y del Boletín Sismológico.
 Definir las normas de homologación de los tipos de equipos a utilizar por las instituciones integrantes del SISNI.

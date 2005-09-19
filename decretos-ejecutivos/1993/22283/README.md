@@ -15,3 +15,4 @@ Crease el Sistema Sismológico Nacional Integrado
 | --- | --- | --- |
 | 1 | 1993-07-15 | la propia norma |
 | 2 | 1994-02-14 | Decreto Ejecutivo 22936 (1994-02-14) |
+| 3 | 2005-09-19 | Decreto Ejecutivo 32817 (2005-09-19) |
