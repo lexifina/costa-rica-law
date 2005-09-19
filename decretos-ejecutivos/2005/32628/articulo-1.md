@@ -1,0 +1,12 @@
+Nº 32628
+EL PRESIDENTE DE LA REPÚBLICA,
+Y LOS MINISTROS DE OBRAS PÚBLICAS Y TRANSPORTES,
+Y DEL AMBIENTE Y ENERGÍA
+En ejercicio de las facultades que les confieren los incisos 3) y 18) del numeral 140 de la Constitución Política, la Ley de Creación del Ministerio de Obras Públicas y Transportes, y los artículos 3 inciso m), 33 y 34 de la Ley Forestal Nº 7575, el artículo 3 inciso m) fue adicionado mediante Ley Nº 7788 del 30 de abril de 1998.
+Considerando:
+1º—El Gobierno de Costa Rica ha suscrito el Contrato de Préstamo Nº 1605 con el Banco Centroamericano de Integración Económica que fue ratificado por Ley 8359 de la Asamblea Legislativa, para Completar el Complejo Vial Costanera Sur.
+2º—El Programa para Completar Complejo Vial Costanera Sur, contribuirá con el desarrollo económico y social de la zona sur del país y propiciará la integración vial de los países centroamericanos, México, Belice y Panamá; de acuerdo con lo establecido en el Plan Puebla- Panamá, razón por la cual esta Administración lo contempla como una de las prioridades a corto plazo.
+3º—El costo económico para el país por cada día de atraso en la construcción de estas obras, asciende a valores incalculables, debido a los altos costos de operación de los vehículos, tiempo perdido y costos de producción en las diferentes actividades agroindustriales de la región.
+4º—En el Programa para completar Complejo Vial Costanera Sur, se requiere realizar el Rehabilitación de la Carretera Interamericana Norte -Caldera, la Rehabilitación del Puente sobre el Río Grande de Tárcoles, la Construcción de los Puentes sobre los Ríos Parrita, Paquita y Naranjo y sus Accesos, la Construcción de la Carreteras Quepos-Savegre-Dominical, la Ampliación del Puente sobre el Río Savegre y la Construcción de los Puentes sobre los Ríos Matapalo, Portalón, Hatillo Nuevo y Hatillo Viejo. Por tanto,
+DECRETAN:
+Artículo 1º—Declarar de Conveniencia Nacional el Programa para Completar el Complejo Vial Costanera Sur, y por ende la ejecución de los proyectos de Rehabilitación de la carretera Interamericana Norte-Caldera, la Rehabilitación del Puente sobre el Río Grande de Tárcoles, la Construcción de los Puentes sobre los Ríos Parrita, Paquita y Naranjo y sus Accesos, la Construcción de la Carretera Quepos-Savegre-Dominical, la Ampliación del Puente sobre el Río Savegre y la Construcción de los Puentes sobre los Ríos Matapalo, Portalón, Hatillo Nuevo y Hatillo Viejo, incluidas todas estas obras dentro de este Programa.
