@@ -1,0 +1,12 @@
+Nº 32624
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001 y su Reglamento, la Ley N° 2171, Ley del Patronato Nacional de Ciegos, de 30 de octubre de 1957 y el Decreto Ejecutivo Nº 31708-H de 16 de marzo del 2004 y sus reformas.
+Considerando:
+1º—Que el Patronato Nacional de Ciegos, creado mediante Ley N° 2171, de 30 de octubre de 1957, publicada en La Gaceta N° 250 de 3 de noviembre de 1957, tiene como misión brindar protección a todas las personas ciegas y coordinar la acción de todos los organismos y asociaciones que tengan relación con los problemas y necesidades de las personas no videntes del país.
+2º—Que mediante el Decreto Ejecutivo Nº 31708-H, publicado en La Gaceta Nº 62 de 29 de marzo de 2004 y sus reformas, la Autoridad Presupuestaria formuló las Directrices de Política Presupuestaria del 2005, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo en el artículo 1º del citado decreto, el total de gasto presupuestario máximo del presente año, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+3º—Que el Patronato Nacional de Ciegos solicita incrementar el gasto máximo presupuestario para el 2005, con el fin de reforzar partidas presupuestarias que en la actualidad son indispensables para el Patronato.
+4º—Que mediante el oficio STAP-CIRCULAR-0455-04 de 16 de abril del 2004, se comunicó al cambiar por Patronato Nacional de Ciegos el gasto presupuestario máximo fijado para el año 2005, el cual no contempla los gastos indicados en el considerando 2 de este Decreto.
+5º—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado al Patronato Nacional de Ciegos para el año 2005. Por tanto,
+DECRETAN:
+Artículo 1º—Modifícase al Patronato Nacional de Ciegos el gasto presupuestario máximo fijado para el año 2005, establecido en el artículo 1° del Decreto Ejecutivo N° 31708-H, publicado en La Gaceta N° 62 de 29 de marzo del 2004 y sus reformas, de manera que éste no podrá exceder la suma de ¢38.3 millones en ese período.
