@@ -1,0 +1,1 @@
+Artículo 10.—Las personas que incumplan la normativa aquí considerada recibirán una llamada de atención y explicación de las posibles consecuencias de su acción. Si persistieran serán expulsadas del Refugio.

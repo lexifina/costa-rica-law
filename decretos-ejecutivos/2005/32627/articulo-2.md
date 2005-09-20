@@ -1,0 +1,1 @@
+Artículo 2º—El horario general para la atención al público será únicamente de las 18:00 horas a las 24:00 horas, excepto durante los días de arribada, el cual será entre las 6:00 horas y las 24: 00 horas.

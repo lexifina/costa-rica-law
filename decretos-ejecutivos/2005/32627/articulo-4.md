@@ -1,0 +1,1 @@
+Artículo 4º—Los guías locales deberán participar en toda actividad que promueva la educación ambiental, ecoturismo, protección y control de las tortugas marinas y demás recursos naturales del Refugio y responsabilizarse por el uso adecuado y apropiado del equipo y materiales que le sean entregados.

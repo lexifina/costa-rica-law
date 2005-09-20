@@ -1,0 +1,5 @@
+Artículo 8º—Durante los días de arribada, los recorridos guiados para observar tortugas en el área terrestre deberán regirse por las siguientes disposiciones:
+a) El inicio y el final del período oficial para observación de tortugas, será determinado y divulgado por la Asociación de Desarrollo, la Universidad de Costa Rica y/o la Administración del Refugio.
+b) Sin excepción, los visitantes interesados en observar la arribada deberán cancelar la cuota de ingreso y ser acompañados por uno(a) de los guías locales autorizados.
+c) El tamaño máximo de cada grupo de visitantes por guía será de 10 personas (incluyendo menores de edad y guía). Este número podrá ser modificado por la Administración cuando los estudios respectivos así lo determinen. De igual forma, para mejorar el servicio, se pondrá en marcha un sistema de reservaciones a cargo de la Dirección Regional del Área de Conservación y la administración del Refugio.
+d) Sólo se permitirá el uso de la luz roja a los investigadores y a los guías durante las caminatas en horario nocturno. La vigilancia encargada del monitoreo de anidación usará luz blanca.
