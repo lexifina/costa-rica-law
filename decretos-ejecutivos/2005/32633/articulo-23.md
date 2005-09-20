@@ -1,0 +1,1 @@
+Artículo 23.—Se prohíbe la tenencia de animales silvestres en cautiverio dentro de las instalaciones de establecimientos comerciales tales como: hoteles, bares, sodas restaurantes, talleres, fabricas y cualquier otro local donde se realicen actividades similares.

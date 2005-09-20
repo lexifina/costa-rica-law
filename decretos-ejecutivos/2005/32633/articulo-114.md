@@ -1,0 +1,1 @@
+Artículo 114.—Los especímenes de vida silvestre que se mantengan temporalmente en cautiverio para su rehabilitación deberán estar en edificios completamente separados de los sitios donde se mantengan animales domésticos, u otros animales silvestres que se encuentren en cautiverio permanente. Nunca se deberá permitir el acceso al público.

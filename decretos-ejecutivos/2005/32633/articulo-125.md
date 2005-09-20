@@ -1,0 +1,1 @@
+Artículo 125.—Queda prohibida la importación de especies exóticas que hayan sido identificadas como posibles plagas en otros países, se exceptúa de esta prohibición la importación de machos no fértiles, para ello deberán aportar las respectivas certificaciones veterinarias.

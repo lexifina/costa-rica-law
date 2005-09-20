@@ -1,0 +1,1 @@
+Artículo 152.—El SINAC podrá otorgar permisos de uso, en la zona marítima terrestre (zona restringida) comprendida dentro de los límites de los Refugios de Propiedad Mixta, de acuerdo al artículo 82 de la Ley Vida Silvestre, Nº 7317, al artículo 19 de la Ley Forestal 7575 y el artículo 11 del reglamento a la Ley Forestal, Decreto Ejecutivo 25721-MINAE y otras leyes conexas.

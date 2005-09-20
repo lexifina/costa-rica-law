@@ -1,0 +1,1 @@
+Artículo 55.—Los zoocriaderos, zoológicos y acuarios con fines comerciales deberán estar inscritos en el registro nacional establecido en el artículo 19 de la ley 7317, LCVS, cumpliendo con los requisitos establecidos en el artículo 56, según corresponda, de este reglamento.

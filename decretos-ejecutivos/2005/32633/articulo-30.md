@@ -1,0 +1,1 @@
+Artículo 30.—Para los efectos del artículo 26 de la LCVS y este reglamento se entenderá por especies ornamentales únicamente aquellas especies de aves, peces y plantas exóticas, catalogadas como domesticas, reproducidas en cautiverio en zoocriaderos, centros de rescate, viveros, acuarios y que requieren del cuidado del hombre para su supervivencia.

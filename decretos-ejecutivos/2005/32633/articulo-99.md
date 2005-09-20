@@ -1,0 +1,1 @@
+Artículo 99.—Los permisos de colecta de animales y plantas para zoológicos, zoocriaderos, jardines botánicos o viveros sólo serán otorgados cuando el número de animales a capturar garanticen la viabilidad de la población a afectar; salvo la excepción establecida en el artículo 14 de la LCVS.

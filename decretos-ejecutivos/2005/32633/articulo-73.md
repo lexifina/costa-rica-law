@@ -1,0 +1,1 @@
+Artículo 73.—El SINAC se reserva el derecho de cancelar un permiso para tenencia en cautiverio sin responsabilidad alguna, cuando lo considere necesario o cuando se compruebe que no se ha cumplido el mismo.

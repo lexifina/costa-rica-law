@@ -1,0 +1,1 @@
+Artículo 146.—Se prohíbe la importación de especies animales silvestres incluidos en los Apéndices de CITES que formen parte de circos, de espectáculos públicos ambulantes y de organizaciones similares. Se exceptúa de esta prohibición la importación cuando se trate de animales en tránsito, como ruta de paso ente un puesto fronterizo y otro.

@@ -1,0 +1,1 @@
+Artículo 92.—Los zoológicos, zoocriaderos (de todas las categorías), viveros (incluyendo jardines botánicos), y acuarios deberán estar inscritos en el registro nacional establecido en el artículo 19 de la ley 7317, LCVS, cumpliendo con los requisitos establecidos en los artículos 54, 55 y 56 de este Reglamento.

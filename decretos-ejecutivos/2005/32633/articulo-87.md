@@ -1,0 +1,1 @@
+Artículo 87.—Las cuotas máximas de comercialización serán establecidas por las oficinas subregionales del SINAC en donde se encuentra inscrito el establecimiento considerando el criterio técnico, los inventarios y los informes de inspecciones, asignando mediante resolución administrativa una cuota semestral de especimenes autorizadas para el comercio.

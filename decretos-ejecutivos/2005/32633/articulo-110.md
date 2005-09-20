@@ -1,0 +1,1 @@
+Artículo 110.—El permisionario del centro de rescate deberá entregar al SINAC un recibo por cada espécimen de flora y fauna que reciba, ya sea producto del decomiso, de la entrega voluntaria o ingresado para rehabilitación, en las 24 horas siguientes.

@@ -1,0 +1,1 @@
+Artículo 177.—Los permisos de uso otorgados dentro de los Refugios Nacionales de Vida Silvestre Estatales y en el Área Estatal de los Refugios Mixtos, podrán ser renovados siempre y cuando los permisionarios demuestren haber cumplido con los compromisos adquiridos con la institución y la legislación ambiental en general.

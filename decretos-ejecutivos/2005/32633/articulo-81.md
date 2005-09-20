@@ -1,0 +1,1 @@
+Artículo 81.—El SINAC o cualquier otra institución que este designe deberá marcar con anillos, marbetes o microchips, según corresponda, todos los individuos entregados en custodia legal. Los costos incurridos en el marcaje serán cubiertos por el solicitante.

@@ -1,0 +1,5 @@
+Artículo 8º—Dictada una sentencia firme en los Tribunales de Justicia, por la comisión de un ilícito tipificado en la LCVS, el SINAC utilizará o destruirá los artículos, los equipos o los artefactos caídos en comiso, de acuerdo al siguiente procedimiento:
+a) Se confeccionará un acta en presencia de dos técnicos del SINAC.
+b) Cuando se trate de equipo para ser utilizado por el SINAC procederá a plaquearlos e inscribirlos como patrimonio del Estado, cumpliendo con los procedimientos que al efecto se encuentran establecidos.
+c) El SINAC, en cada caso específico, fijará el método adecuado para destrucción de los artículos o equipo decomisados, enviando inmediatamente copia de dicho acto a la autoridad judicial que ordenó el comiso.
+d) Cuando se trate de productos o subproductos de la flora y la fauna silvestre, el SINAC podrá donarlos al Museo Nacional, museos de Universidades y otras instituciones estatales, siempre que se cumpla con los procedimientos establecidos en las diferentes convenciones internacionales.

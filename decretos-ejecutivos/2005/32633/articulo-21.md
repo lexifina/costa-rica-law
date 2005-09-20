@@ -1,0 +1,1 @@
+Artículo 21.—Se designa como Inspectores de Vida Silvestre a las autoridades aduanales del Ministerio de Hacienda, de Sanidad Animal y Vegetal del Ministerio de Agricultura, debidamente acreditados y en el ejercicio de sus funciones en los puertos y aeropuertos de salida e ingreso del país.

@@ -1,0 +1,1 @@
+Artículo 83.—Todo establecimiento de este tipo deberá llevar una bitácora, oficializada por la Oficina Regional correspondiente, en donde los funcionarios del SINAC que realizan las inspecciones anotarán las fechas de inspección y las recomendaciones para el mejor manejo de los especímenes y todas las actividades realizadas por el regente y el propietario en el establecimiento.

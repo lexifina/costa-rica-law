@@ -1,0 +1,1 @@
+Artículo 115.—El SINAC tiene la obligación de proporcionar las condiciones mínimas de espacio y asegurar la alimentación de aquellas especies decomisadas y dadas en custodia temporal por el poder judicial o entregadas voluntariamente mientras se resuelve la situación jurídica de ellas.

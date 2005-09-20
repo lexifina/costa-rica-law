@@ -1,0 +1,1 @@
+Artículo 12.—Créase dentro del Sistema Nacional de Áreas Protegidas el Programa Nacional de Vida Silvestre con la finalidad de asegurar un manejo sostenible del recurso fauna y flora silvestre. El SINAC establecerá vía Decreto Ejecutivo las políticas y acciones ha desarrollar.

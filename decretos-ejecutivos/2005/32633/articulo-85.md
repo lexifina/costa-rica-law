@@ -1,0 +1,1 @@
+Artículo 85.—El permisionario de un zoológico, zoocriadero (de todas las categorías), viveros (incluyendo jardines botánicos) y acuario, deberá entregar al SINAC un recibo por cada espécimen de flora y fauna que reciba, ya sea producto del decomiso, de la entrega voluntaria o ingresado para rehabilitación, en las 24 horas siguientes.

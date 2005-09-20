@@ -1,0 +1,1 @@
+Artículo 67.—El permisionario de cualquier establecimiento de cautiverio autorizado deberá entregar al SINAC un recibo por cada espécimen de flora y fauna que reciba, ya sea producto del decomiso, de la entrega voluntaria o ingresado para rehabilitación, en las 24 horas siguientes.

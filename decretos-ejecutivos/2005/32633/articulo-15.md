@@ -1,0 +1,1 @@
+Artículo 15.—La Dirección Regional de Área de Conservación será un órgano programador, de supervisión y de apoyo técnico al Director del SINAC y será la encargada de la ejecución de las actividades de campo. Se autoriza al SINAC para el establecimiento de las oficinas subregionales que se requieran para el cumplimiento de la ley.

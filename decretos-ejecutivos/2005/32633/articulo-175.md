@@ -1,0 +1,7 @@
+Artículo 175.—En la medida de sus posibilidades, los Refugios Nacionales de Fauna y Vida Silvestre, brindarán los siguientes servicios para los cuales se cobrarán las tarifas que a continuación se indican:
+a) Hospedaje por día 6.00 dólares o su equivalente en moneda nacional particulares y 2.00 dólares o su equivalente en colones a estudiantes debidamente identificados.
+b) Derecho de acampar, Se cobrará una cuota general por día de 2.00 dólares.
+c) Derecho de filmación 100.00 dólares por día.
+d) El SINAC determinará aquellos casos en que las .lmaciones sean de carácter científico o cultural, caso en el cual podrían ser eximidas de este canon o disminuido prudencialmente su monto, a juicio de la Dirección, debiendo entregar copia del programa editado.
+e) Derecho de investigación de carácter científico se cobrara la tarifa por 1 permiso hasta de tres meses de cinco dólares (USA$5), hasta 6 meses diez dólares (USA$10) y hasta 12 meses quince dólares (USA $15). Para cada área de Conservación debe tramitar un permiso por aparte. El Sistema Nacional de Áreas de Conservación, determinará los casos en los que podrán eximirse de este pago, a juicio de la Dirección, los investigadores ligados a universidades o institutos de investigación de nuestro país que tengan convenios de cooperación con el MINAE y los centros de enseñanza primaria y diversificada reconocidos ante el Ministerio de Educación Pública.
+f) Dichos montos serán revisados anualmente de acuerdo a la inflación.

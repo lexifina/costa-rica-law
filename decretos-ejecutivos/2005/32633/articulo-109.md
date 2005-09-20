@@ -1,0 +1,1 @@
+Artículo 109.—El permisionario de un centro de rescate deberá llevar un libro de bitácora, el cual deberá presentar al SINAC, donde será sellado a la hora de la inscripción del establecimiento. En estas bitácoras deberá establecerse las incidencias no rutinarias que acontecen a diario en el establecimiento, registros reproductivos, médicos y biológicos.

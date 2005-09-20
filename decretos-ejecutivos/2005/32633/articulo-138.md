@@ -1,0 +1,1 @@
+Artículo 138.—La ausencia injustificada por tres veces consecutivas de uno de los miembros a las sesiones del Consejo, acarreará que el Coordinador del Consejo de Representantes de las Autoridades Científicas solicite a la Institución que corresponda, la remoción del mismo y la designación de un nuevo representante.

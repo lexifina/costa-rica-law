@@ -1,0 +1,1 @@
+Artículo 13.—La administración y manejo del recurso flora y fauna silvestre continúa a cargo del Sistema Nacional de Áreas de Conservación y los demás órganos del MINAE, a los que la legislación les ha otorgado esa competencia.

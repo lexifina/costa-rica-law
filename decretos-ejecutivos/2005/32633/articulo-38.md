@@ -1,0 +1,1 @@
+Artículo 38.—Para la obtención de licencias de subsistencia para la extracción y recolecta de la flora, el SINAC podrá autorizar las solicitudes cuando sean para llenar necesidades alimenticias o medicinales de personas de escasos recursos económicos comprobadas y previa consulta a técnicos y especialistas en la materia.

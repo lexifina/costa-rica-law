@@ -1,0 +1,1 @@
+Artículo 40.—Los requisitos para la obtención de licencias de extracción y recolecta científica de flora y fauna silvestre se regirán por el Manual de Procedimientos que se publicara vía decreto ejecutivo

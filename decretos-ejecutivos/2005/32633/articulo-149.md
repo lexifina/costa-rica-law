@@ -1,0 +1,1 @@
+Artículo 149.—El SINAC despachará las solicitudes para la obtención de permisos y licencias, de acuerdo a su orden de recepción y de conformidad con lo señalado por el artículo 296 de la Ley General de la Administración Pública.

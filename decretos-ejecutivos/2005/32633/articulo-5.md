@@ -1,0 +1,1 @@
+Artículo 5º—Para el cumplimiento de lo dispuesto en la LCVS el SINAC solicitará, trimestralmente, a la Fundación de Vida Silvestre la cantidad de sellos sin valor postal necesarios. Este sello sin valor postal consiste de un sello blanco a relieve emitido por la Fundación de Vida Silvestre, con denominaciones según se establece en el artículo 131 de la ley 7317.

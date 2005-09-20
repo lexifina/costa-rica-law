@@ -1,0 +1,1 @@
+Artículo 163.—Cualquier renovación de permiso de uso deberá acogerse a las especificaciones de los artículos anteriores, aún en aquellos casos donde en un sólo permiso se permitiera la aplicación de diferentes categorías de uso sobre el área de terreno.

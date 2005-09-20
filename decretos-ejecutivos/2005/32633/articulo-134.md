@@ -1,0 +1,1 @@
+Artículo 134.—Cada Autoridad Científica contara con un registro de los profesionales especialistas en los diferentes campos de la vida silvestre, a los que la Autoridad Administrativa podrá solicitar criterios técnicos según especialidades.

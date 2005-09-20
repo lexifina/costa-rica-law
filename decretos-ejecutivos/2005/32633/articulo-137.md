@@ -1,0 +1,1 @@
+Artículo 137.—El Consejo de Representantes de las Autoridades Científicas deberá sesionar por lo menos una vez al mes, en forma ordinaria y extraordinaria cuando se requiera por convocatoria de su Coordinador o a solicitud de la Autoridad Administrativa.

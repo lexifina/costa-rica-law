@@ -1,0 +1,1 @@
+Artículo 107.—El SINAC establecerá mediante resolución administrativa los procedimientos y formularios para la inscripción, informes trimestrales o semestrales, informes de inspección y seguimiento de estos establecimientos.
