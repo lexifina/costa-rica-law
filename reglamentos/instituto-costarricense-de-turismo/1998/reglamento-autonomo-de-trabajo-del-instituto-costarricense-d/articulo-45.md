@@ -1,7 +1,8 @@
 CAPITULO XI
 Prohibiciones a los servidores
 Artículo 45.—Además de lo dispuesto en otros artículos de este Reglamento y en las leyes administrativas y de trabajo, queda prohibido a los funcionarios: ,
-a. Recibir gratificaciones en razón de la prestación de sus servicios como funcionario de la Institución.
+a Recibir dádivas, obsequios, regalos, premios, recompensas o cualquier otra ventaja como retribución por actos u omisiones inherentes a sus cargos.
+(Así reformado el inciso anterior, mediante sesión ordinaria N° 5379 de 20 de setiembre de 2005).
 b. Sacar de la unidad administrativa correspondiente, documentos, bienes y activos del Instituto, para dar cumplimiento a trabajos determinados, sin permiso de la Gerencia o de la jefatura respectiva.
 c. Valerse de la función que desempeñan en el Instituto o invocarla, para obtener ventajas de cualquier índole, ajenas a las funciones que ejercen.
 d. Hacer dentro del Instituto o en el desempeño de sus funciones, manifiestas demostraciones de carácter político-electoral y en general ejercer actividades o hacer propaganda en cualquier forma, que sean contrarias al orden público o régimen democrático que establece la Constitución de la República.
