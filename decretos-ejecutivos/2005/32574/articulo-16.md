@@ -1,0 +1,1 @@
+Artículo 16.—Prórrogas en la suspensión provisional del proceso judicial. Ninguna suspensión provisional del proceso judicial podrá superar un plazo mayor al mes natural, existiendo la posibilidad de conceder una prórroga máxima por quince días naturales, cuando se esté cumpliendo con el arreglo acordado.

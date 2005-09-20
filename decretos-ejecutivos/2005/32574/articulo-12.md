@@ -1,0 +1,1 @@
+Artículo 12.—Suspensión definitiva del proceso judicial. El ente ejecutor del cobro no podrá suspender en forma definitiva el proceso judicial hasta que se le haya manifestado por escrito, por parte del órgano que autorizó el incobrable, responsabilizándose de ello a la Administración de JUDESUR.
