@@ -1,0 +1,14 @@
+Nº 32634-H
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; los artículos 25, inciso 1), 27, inciso 1) y 28, inciso 2), acápite b) de la Ley Nº 6227 o Ley General de la Administración Pública de 2 de mayo de 1978, la Ley Nº 8131 o Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001, y su Reglamento, Decreto Ejecutivo Nº 30058-H-MP-PLAN de 19 de diciembre de 2001, la Ley Nº 7659 de 28 de febrero de 1997 y el Decreto Ejecutivo Nº 31708-H de 16 de marzo de 2004.
+Considerando:
+1º—Que mediante la Ley Nº 7659, publicada en La Gaceta Nº 66 de 7 de abril de 1997, se aprobó un contrato de préstamo entre la República de Costa Rica y el Banco Centroamericano de Integración Económica para financiar el Proyecto de Desarrollo Agrícola de la Península de Nicoya (PRODAPEN).
+2º—Que en cumplimiento de las condiciones de dicho contrato de préstamo, el PRODAPEN tiene a cargo el financiamiento y asesoría técnica a productores de la zona, así como la ejecución de varios proyectos de infraestructura para el desarrollo de la península de Nicoya, por un plazo de 6 años.
+3º—Que la institución tuvo algunas demoras para lograr la ejecución de los fondos del préstamo con las entidades financieras internacionales, situación que ha provocado el pago de intereses agravando con ello el problema fiscal que sufre el país, por lo que se hace necesario ejecutar la totalidad de los fondos contratados.
+4º—Que mediante Decreto Ejecutivo Nº 31708-H, publicado en La Gaceta Nº 62 de 29 de marzo de 2004, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2005, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo en el artículo 1º del citado Decreto, el límite de gasto presupuestario del presente año, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+5º—Que mediante oficio STAP-CIRCULAR STAP-0435-04 de 14 de abril del 2004, se comunicó a PRODAPEN el límite de gasto fijado para el año 2005.
+6º—Que a efectos de solicitar el desembolso total de los fondos contratados con el Banco Centroamericano de Integración Económica (BCIE), la entidad solicitó mediante oficio Nº CDN-011-2005 de 3 de agosto de 2005, la ampliación del límite de gasto máximo presupuestario para el año 2005.
+Por tanto,
+DECRETAN:
+Artículo 1º—Modifícase para el Proyecto de Desarrollo Agrícola de la Península de Nicoya, el límite de gasto presupuestario total del 2005, establecido en el Decreto Ejecutivo Nº 31708-H y sus reformas, de manera que el gasto presupuestario total de PRODAPEN no podrá exceder la suma de ¢861.03 millones, en ese período.
