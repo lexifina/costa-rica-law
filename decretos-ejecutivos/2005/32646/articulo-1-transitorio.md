@@ -1,0 +1,2 @@
+Transitorio único.—De los recursos publicitarios. A partir de la vigencia del presente decreto, para el lanzamiento de las Rifas Populares, la Junta podrá utilizar, por una única vez en el ejercicio presupuestario 2005, los recursos publicitarios destinados para sus otros productos, con el objeto de realizar las campañas publicitarias de lanzamiento y mantenimiento respectivas.
+Dado en la Presidencia de la República.—San José, a los veintitrés días del mes de agosto del año dos mil cinco.

@@ -1,0 +1,3 @@
+Artículo 7º—De las utilidades y costos. La utilidad bruta de cada Rifa Popular se determinará deduciendo de las ventas brutas, las devoluciones sobre ventas, el importe de la emisión no vendida, el descuento sobre ventas y el importe de premios efectivamente pagados.
+De la utilidad bruta resultante, la Junta deducirá, los costos y gastos de emisión, administración y comercialización para obtener la utilidad neta.
+La utilidad neta resultante, se destinará a contribuir con el financiamiento de los programas de desarrollo social y asistencial que ejecuten las organizaciones o instituciones del sector social y médico social, los cuales incluirán, programas de infraestructura, equipamiento y otras necesidades, a juicio de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 6º—De las comisiones a los canales de distribución. Las comisiones que se cancelarán a los canales de distribución por la venta de las Rifas Populares, serán fijadas por la Junta Directiva atendiendo el principio de seguridad económica de la Institución.

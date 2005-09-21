@@ -1,0 +1,1 @@
+Artículo 4º—De la mecánica para la realización de las rifas populares. La mecánica y sistema a utilizar para la realización de cada rifa popular será definida por la Junta Directiva; de igual forma definirá la mecánica para determinar los números, combinaciones de números y símbolos que se utilizarán en los billetes, acciones, títulos, jugadas o apuestas ganadoras.

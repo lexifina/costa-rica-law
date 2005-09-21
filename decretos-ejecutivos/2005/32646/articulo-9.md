@@ -1,0 +1,1 @@
+Artículo 9º—De los impuestos. Lo referente al pago de impuestos, tasas y contribuciones nacionales y municipales, se regirá por lo dispuesto en la Ley de Rifas y Loterías N° 1387 de 21 de noviembre de 1951 y sus reformas.
