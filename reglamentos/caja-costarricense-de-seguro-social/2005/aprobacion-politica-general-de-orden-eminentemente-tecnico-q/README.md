@@ -14,3 +14,4 @@ Aprobación Política General de Orden Eminentemente Técnico que debe seguir ut
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-29 | la propia norma |
+| 2 | 2005-09-22 | Reglamento 7994 (2005-09-22) |
