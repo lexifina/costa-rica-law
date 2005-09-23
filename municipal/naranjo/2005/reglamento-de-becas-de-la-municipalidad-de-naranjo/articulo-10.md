@@ -1,0 +1,1 @@
+Artículo Nº 10.—Todo estudiante que desee optar al beneficio de una beca deberá haber ganado el año anterior, además durante el periodo que tenga beca deberá mantener su rendimiento académico sobre el promedio general mínimo para aprobar las asignaturas en su respectiva institución, ya que el cumplimiento de lo anterior autoriza automáticamente a la Comisión de Becas.

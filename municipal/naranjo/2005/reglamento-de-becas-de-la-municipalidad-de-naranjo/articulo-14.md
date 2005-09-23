@@ -1,0 +1,1 @@
+Artículo Nº 14.—Este Reglamento será modificado mediante acuerdo aprobado por el Concejo Municipal con votación de mayoría absoluta.

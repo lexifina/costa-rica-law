@@ -1,0 +1,1 @@
+Artículo Nº 11.—Por cada solicitud de beca Municipal la comisión de becas abrirá un expediente en donde constarán todos los documentos aportados por el interesado. La comisión de becas no dará trámite a aquellas solicitudes que sean entregadas en forma incompleta o carente de documentos o fuera de los plazos establecidos para tal .n.

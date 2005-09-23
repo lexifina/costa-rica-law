@@ -1,0 +1,1 @@
+Artículo Nº 9º—Solamente se otorgará una beca por familia, quedando a criterio de la comisión otorgar otra beca con base al estudio socioeconómico del respectivo núcleo familiar y recomendación del Departamento de Orientación del Centro Educativo correspondiente.

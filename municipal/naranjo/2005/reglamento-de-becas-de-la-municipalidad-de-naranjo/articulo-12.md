@@ -1,0 +1,1 @@
+Artículo Nº 12.—Una vez acordada la aprobación de la lista de becados por el Consejo Municipal, comunicará a cada institución educativa la nomina de becados con su respectivo duplicado para ser devuelta como recibido por el Departamento de Orientación.

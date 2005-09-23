@@ -1,0 +1,1 @@
+Artículo Nº 7º—El Alcalde Municipal deberá incluir en el Presupuesto Anual Ordinario así como en los extraordinarios los recursos necesarios para dar cumplimiento al Programa de Becas Municipales tomando en cuenta la recomendación que la Comisión de Becas emita, todo lo anterior después de la debida aprobación del Concejo Municipal.
