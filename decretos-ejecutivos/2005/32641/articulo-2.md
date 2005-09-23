@@ -1,0 +1,1 @@
+Artículo 2º—Derogar el inciso j) del mismo artículo 8º del Reglamento Orgánico de la Junta de Protección Social de San José, Decreto Ejecutivo Nº 28025-MTSS-MP publicado en El Alcance Nº 55 a La Gaceta Nº 151 del 5 de agosto de 1999.
