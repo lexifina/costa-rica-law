@@ -1,0 +1,3 @@
+Artículo 2º—Adiciónese una frase final al párrafo sexto del artículo 60 del Decreto Ejecutivo Nº 12907-A y sus reformas, Reglamento a la Ley de Semillas, la cual se leerá de la siguiente manera:
+“Artículo 60.—...
+…, no existiendo responsabilidad de la Oficina Nacional de Semillas por el resultado del uso de las variedades registradas”.
