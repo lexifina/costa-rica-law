@@ -1,0 +1,1 @@
+Artículo 10.—Del canon por uso de las instalaciones: El canon por uso de las instalaciones portuarias para la venta de servicios de transporte, souvenirs y otros servicios relacionados con la actividad de cruceros se pagará por un mes adelantado durante la temporada, de acuerdo a las tarifas aprobadas por JAPDEVA y la ARESEP vigentes.

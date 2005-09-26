@@ -1,0 +1,2 @@
+Artículo 13.—Responsabilidad de la administración: JAPDEVA no asumirá ninguna responsabilidad civil ni de ningún otro tipo por accidentes u otras situaciones que se presenten con motivo de la prestación de estos servicios.
+Tampoco asumirá responsabilidad alguna por la irregularidad e incumplimiento que pueda producirse en el arribo y atraque de los barcos, cruceros, por parte de los permisionarios.

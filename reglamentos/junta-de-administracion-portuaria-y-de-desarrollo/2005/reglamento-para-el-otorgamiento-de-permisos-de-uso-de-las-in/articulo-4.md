@@ -1,0 +1,1 @@
+Artículo 4º—Permisionarios: De acuerdo con los objetivos de este Reglamento, los permisos para venta de servicios de transporte, venta de souvenirs y venta de otros servicios, podrán ser otorgados a personas físicas y jurídicas que cumplan con los requisitos establecidos en este reglamento.

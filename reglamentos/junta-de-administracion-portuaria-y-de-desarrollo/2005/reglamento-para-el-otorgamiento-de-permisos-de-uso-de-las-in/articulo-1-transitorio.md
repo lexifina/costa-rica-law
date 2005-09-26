@@ -1,0 +1,1 @@
+Transitorio primero: Los permisos de transporte, manicure, pedicure, venta de artesanía y peinado de cabello concedidos por el Consejo de Administración de JAPDEVA con anterioridad a la publicación del presente Reglamento, se mantendrán vigentes únicamente para la temporada de cruceros que se inicia el 10 de octubre del 2005 y que finaliza en junio del 2006.

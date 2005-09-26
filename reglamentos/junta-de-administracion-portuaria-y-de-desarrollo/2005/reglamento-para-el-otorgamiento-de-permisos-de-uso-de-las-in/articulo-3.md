@@ -1,0 +1,8 @@
+Artículo 3º—Forma y lugar de prestación de los servicios:
+a) Venta de servicios de transporte: La venta de servicios deberá ofrecerse mediante la instalación de un stand que agrupe los oferentes de estos servicios, los cuales deberán estar debidamente organizados. Se ubicarán en un área designada por JAPDEVA.
+Las tarifas de estos servicios serán uniformes, deberán ser colocadas en un lugar visible para los pasajeros, dentro del vehículo y en el stand de ventas.
+El puesto de venta de servicios, debe tener un mostrador y sillas para atender a los excursionistas. El techo debe ser de lona o cualquier otro sustituto en óptimas condiciones y debidamente instalado en el sitio establecido.
+En el stand deberá permanecer únicamente el personal acreditado para la venta del servicio, el cual debe estar debidamente capacitado e identificado.
+Venta de souvenirs y otros servicios (Destinos agroecoturísticos, Manicure, Pedicure y peinado de cabello, proyectos de tours histórico-étnico-cultural, tours por los canales del norte. Y tours para criaderos y zoocriaderos de especies nativas en la Región Huétar Atlántica.
+La venta de souvenirs y otros servicios sólo será permitida en el área especialmente designada por JAPDEVA para ese fin.
+Para hacer ingreso al área portuaria designada para la venta de souvenirs y otros servicios, se hace necesario, que cada vendedor y sus ayudantes deben estar debidamente uniformados, contar con el carné de identificación y esté registrado en el listado que previamente tendrá el guarda del puesto correspondiente. La persona deberá estar dentro del área asignada a los artesanos.

@@ -1,0 +1,2 @@
+Artículo 8º—Vigencia del permiso: Los permisos que se den al amparo de este Reglamento serán otorgados por un plazo de 5 años que regirá a partir de la temporada en que se les asigne.
+Estos permisos podrán solicitarse mediante la presentación y cumplimento de los requisitos citados en el presente reglamento, un mes antes del inicio de la temporada correspondiente. El permisionario que no cumpla con lo antes expuesto, quedará fuera de la temporada sin responsabilidad alguna para JAPDEVA.
