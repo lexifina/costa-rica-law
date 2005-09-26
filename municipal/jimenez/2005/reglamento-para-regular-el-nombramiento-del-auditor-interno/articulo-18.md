@@ -1,0 +1,1 @@
+Artículo 18.—La Comisión elaborará el cuadro comparativo de las ofertas, en los diez días hábiles siguientes al cierre de recibo de las mismas, y lo trasladará al Concejo para la escogencia y nombramiento del Auditor Interno, la cual se realizará en los veinte días siguientes al recibo del informe de la comisión.

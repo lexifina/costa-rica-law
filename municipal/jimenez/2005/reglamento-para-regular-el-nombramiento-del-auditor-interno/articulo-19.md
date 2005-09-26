@@ -1,0 +1,1 @@
+Artículo 19.—El acuerdo de nombramiento del Auditor Interno, junto con el expediente completo del Concurso Público, se trasladará a la Contraloría General de la República para dar cumplimiento al artículo 31 de la Ley General de Control Interno.

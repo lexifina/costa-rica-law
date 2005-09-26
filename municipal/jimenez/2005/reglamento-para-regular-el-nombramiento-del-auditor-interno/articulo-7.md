@@ -1,0 +1,1 @@
+Artículo 7º—Las ofertas deberán presentarse en la Secretaría en expediente debidamente identificado. El oferente deberá adjuntar en la oferta, copia de títulos y demás documentación de respaldo de la oferta. Los originales de los títulos académicos, carnés y otros, deberán presentarse al funcionario que recibe la documentación para su verificación.

@@ -1,0 +1,1 @@
+Artículo 10.—La experiencia en el campo municipal será demostrada por el oferente mediante las certificaciones de las instituciones municipales para las cuales ha laborado, debidamente firmadas y selladas.

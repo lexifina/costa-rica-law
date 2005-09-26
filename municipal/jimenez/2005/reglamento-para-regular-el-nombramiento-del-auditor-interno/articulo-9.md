@@ -1,0 +1,1 @@
+Artículo 9º—La incorporación al Colegio de Contadores Públicos de Costa Rica o al colegio respectivo lo demostrará el oferente mediante copia del carné respectivo o certificaciones del colegio mencionado.
