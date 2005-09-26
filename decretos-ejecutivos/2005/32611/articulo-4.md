@@ -1,0 +1,1 @@
+Artículo 4º—Dichos terrenos estarán sometidos a la categoría de Refugio Nacional de Vida Silvestre de categoría mixta durante un período, de diez años prorrogables por períodos iguales, para lo cual la propietaria privada deberá solicitarlo con un mes de antelación a la finalización de dicho período ante el Sistema Nacional de Áreas de Conservación.
