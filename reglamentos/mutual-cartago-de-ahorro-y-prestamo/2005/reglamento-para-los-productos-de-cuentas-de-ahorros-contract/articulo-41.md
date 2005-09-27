@@ -1,0 +1,3 @@
+Artículo 41.—Constitución de la cuenta de ahorros colectiva. Los contratos de ahorros colectivos se constituyen mediante la aceptación del gestor, en representación del grupo de ahorrantes, de las cláusulas contractuales que contiene este reglamento, la “Solicitud de Servicios Financieros” y del contrato de ahorros.
+Con la firma del contrato, MUCAP creará en sus registros cuentas individuales para cada uno de los ahorrantes, las cuales se denominarán subcontratos.
+Los adherentes al contrato, en el momento de su constitución o posteriormente, deberán firmar el contrato principal aceptando sus condiciones.

@@ -1,0 +1,4 @@
+Artículo 16.—Designación de personas autorizadas. El ahorrante podrá, bajo su entera responsabilidad, autorizar por escrito a terceras personas mediante la figura del mandato comercial, para que en su nombre realicen o suspendan los depósitos, cancelen anticipadamente los contratos o al vencimiento del plazo, retiren los ahorros acreditados en dinero efectivo o mediante cheque girado a nombre del ahorrante o terceras personas.
+El contratante podrá en cualquier momento en forma escrita revocar este mandato.
+El mandato fenecerá por el fallecimiento del titular, o de su declaratoria de insania debidamente comunicado a la Mutual mediante certificación expedida del asiento respectivo del Registro de Defunciones del Registro Civil o de la autoridad judicial respectiva.
+Igualmente, concluirá el mandato de pleno derecho por la muerte del mandatario.

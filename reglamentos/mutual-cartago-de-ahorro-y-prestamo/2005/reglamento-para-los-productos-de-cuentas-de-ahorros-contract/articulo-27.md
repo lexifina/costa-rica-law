@@ -1,0 +1,2 @@
+Artículo 27.—Préstamos con garantía del saldo de los contratos individuales. El ahorrante podrá utilizar el saldo de su contrato como garantía real para solicitar un préstamo ante la Mutual. Igualmente, podrá autorizar que el saldo de su contrato pueda servir de garantía por un préstamo otorgado a un tercero.
+En ambos casos, el deudor deberá cumplir con las disposiciones sobre crédito establecidas para el Sistema Financiero Nacional para la Vivienda y la normativa interna del crédito solicitado.

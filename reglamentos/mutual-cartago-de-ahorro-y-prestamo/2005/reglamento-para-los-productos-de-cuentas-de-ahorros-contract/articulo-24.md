@@ -1,0 +1,2 @@
+Artículo 24.—El ahorrante. El ahorrante es toda persona física con capacidad de actuar o persona jurídica cuyo plazo social, personería y cédula jurídica se encuentren vigentes, podrán constituir los contratos de ahorros individuales que deseen.
+El representante de un menor de edad, o de un incapaz judicialmente declarado, podrá constituir cuentas de ahorros individuales a nombre de sus representados siguiendo los mismos procedimientos antes indicados.

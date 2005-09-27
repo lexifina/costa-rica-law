@@ -1,0 +1,6 @@
+Artículo 23.—Documentos utilizados para la apertura de un contrato de cuenta de ahorros individual.
+A. Solicitud de servicios financieros. La “Solicitud de Servicios Financieros”, es un documento donde el ahorrante indica, bajo la fe de juramento que lo manifestado es cierto de conformidad con la Ley Nº 8204 “Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado y actividades conexas”, el cual deberá firmar de su puño y letra.
+Las personas físicas se identificarán presentando su cédula de identidad, pasaporte o cédula de residencia vigentes, y deberán entregar a MUCAP una fotocopia.
+Si el ahorrante constituyente es una persona jurídica, su representante deberá presentar una certificación original vigente de su personería jurídica, la cédula jurídica vigente, el documento de identidad del representante legal y cualquier otro documento o información requerida por MUCAP o por los entes reguladores.
+Para el caso de los dos últimos requisitos deberá suministrar una fotocopia de éstos.
+B. El contrato. El contrato es el documento donde se establecen las condiciones bajo las cuales operará la cuenta de ahorros individual. El contrato constará de dos originales que deberán ser firmados por el ahorrante y por un representante de MUCAP.

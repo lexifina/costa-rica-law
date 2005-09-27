@@ -1,0 +1,4 @@
+Artículo 17.—La libreta de ahorros. De acuerdo al tipo de contrato y plan suscrito por el ahorrante, MUCAP entregará una libreta de ahorros después de haber recibido el depósito inicial.
+La libreta de ahorros tiene impresos los signos comerciales y de identificación de MUCAP y se expide con el nombre y número de documento de identidad del ahorrante.
+La primera libreta y las sucesivas que reciba al agotarse las páginas donde se registran las transacciones no tienen costo alguno, excepto cuando el ahorrante solicite su reposición en cuyo caso el costo será de US$2, o su equivalente en colones al tipo de cambio de venta del dólar. Este monto se cobrará en efectivo o se debitará de la cuenta al momento de la reposición.
+El ahorrante es responsable por el cuido y uso que le dé a la libreta de ahorros. MUCAP no asumirá responsabilidad alguna por el uso indebido, imprudente, negligente o inadecuado.

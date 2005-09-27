@@ -1,0 +1,2 @@
+Artículo 32.—De la representación comercial del gestor. La relación entre el gestor y los adherentes será estrictamente comercial conforme lo establece el Código de Comercio en los artículos 663, 664, 665 y 666, para las cuentas en participación, por lo cual no devengará ninguna comisión o pago.
+El gestor no ejercerá ninguna representación de la MUTUAL, por lo que no podrá firmar contratos o arrogarse su representación en ninguna forma. Sin embargo, el gestor puede ser ahorrante adherente del contrato colectivo al mismo tiempo, cuando éste sea persona jurídica.

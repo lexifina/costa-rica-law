@@ -1,0 +1,3 @@
+Artículo 36.—El adherente. El adherente de un contrato ahorro colectivo, es el ahorrante que en el momento de la constitución del contrato o posteriormente, acepta las cláusulas previamente negociadas entre la Mutual y el gestor, comprometiéndose a realizar un ahorro, no menor a la suma estipulada en el contrato y por un plazo determinado.
+Al firmar el contrato colectivo, el adherente recibirá una copia original de este contrato debidamente firmado por la Mutual y el gestor, donde se indican todas las cláusulas y condiciones previamente pactadas.
+El gestor podrá constituirse como adherente de un contrato de ahorros colectivo, cuando este sea una persona jurídica.
