@@ -1,0 +1,1 @@
+Artículo 2º—Las tarifas de la Tabla de Costos Máximos Horarios de Equipo y Maquinaria son montos máximos. La Administración podrá fijar precios menores cuando técnicamente se justifique o existan varios oferentes. A los equipos que no cuenten con odómetro mecánico se les aplicará el llamado "factor 0.83" para computar el tiempo efectivo de labor.
