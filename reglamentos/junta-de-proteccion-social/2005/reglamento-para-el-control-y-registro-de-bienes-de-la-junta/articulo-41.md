@@ -1,0 +1,1 @@
+Artículo 41.—Notificación de donación aprobada. La Gerencia General o la Comisión de Donaciones notificarán al interesado quien deberá proceder al retiro de los bienes con un máximo de 15 días naturales después de su comunicación. Caso contrario, la Administración podrá de oficio dejar sin efecto la misma, procediendo a donarlo a otra institución.

@@ -1,0 +1,1 @@
+Artículo 22.—Aparición de bienes dados de baja. Cuando se ubica o recupera un bien que anteriormente haya sido dado de baja, se deberá inventariar nuevamente por el funcionario responsable, y comunicado al Departamento de Contabilidad y Presupuesto para el registro del bien con un número nuevo de placa.

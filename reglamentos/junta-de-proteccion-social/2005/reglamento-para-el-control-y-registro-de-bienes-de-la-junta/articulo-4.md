@@ -1,0 +1,1 @@
+Artículo 4º—Registro de bienes. Es responsabilidad del Departamento de Contabilidad y Presupuesto mantener un registro actualizado del patrimonio de la Institución, así como registrar las bajas correspondientes.

@@ -1,0 +1,1 @@
+Artículo 6º—Formularios. El sistema informático de bienes contará con los formularios correspondientes para que los usuarios autorizados de cada Departamento o Sección tramiten las altas de bienes, asignación, reasignación, préstamo, concesión y baja de bienes. La responsabilidad de autorización o visto bueno de estos trámites corresponde a la Jefatura de la Dependencia.
