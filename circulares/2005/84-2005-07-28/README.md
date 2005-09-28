@@ -13,3 +13,4 @@ Certificaciones sobre el Indice de Obligados Alimentarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-28 | la propia norma |
+| 2 | 2005-09-28 | Circular 119 (2005-09-28) |
