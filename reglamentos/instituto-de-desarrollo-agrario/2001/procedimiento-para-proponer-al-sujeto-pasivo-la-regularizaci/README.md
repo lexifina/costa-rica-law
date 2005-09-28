@@ -14,3 +14,4 @@ Procedimiento para proponer al Sujeto Pasivo la Regularización de su Situación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-12-14 | la propia norma |
+| 2 | 2005-09-28 | SINALEVI (sin norma nombrada) |

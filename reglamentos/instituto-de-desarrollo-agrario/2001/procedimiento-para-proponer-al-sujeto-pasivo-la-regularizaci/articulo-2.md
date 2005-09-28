@@ -1,1 +1,1 @@
-Artículo 2°—Concluidas las actuaciones referidas en el artículo anterior, la Administración Tributaria deberá proponerle al sujeto pasivo, conforme con los resultados derivados de esas actuaciones, la regularización correspondiente.
+Artículo 2°—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 13226, del 28 de setiembre de 2005.)

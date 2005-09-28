@@ -1,4 +1,6 @@
+(Anulada)
 INSTITUTO DE DESARROLLO AGRARIO
 PROCEDIMIENTO PARA PROPONER AL SUJETO PASIVO LA REGULARIZACIÓN DE SU SITUACIÓN TRIBUTARIA
+(Anulado este Reglamento mediante resolución de la Sala Constitucional N° 13226, del 28 de setiembre de 2005.)
 El Instituto de Desarrollo Agrario, en calidad de Administración Tributaria de los tributos establecidos en los artículos del 1 al 14 de la Ley No 5792 del 1° de setiembre de 1975, reformados por el artículo 35 de la Ley No 6735 del 29 de marzo de 1982; conforme con lo dispuesto en los artículos 18 inciso g) y 40 de la Ley No 6735 del 29 de marzo de 1982 y en los artículos 99, 11 y 14 del Código de Normas y Procedimientos Tributarios, dicta el presente Reglamento que regula el procedimiento para proponer a los sujetos pasivos la regularización de su situación tributaria
-Artículo 1°—Para realizar la determinación de oficio regulada en el artículo 124 del Código de Normas y Procedimientos Tributarios, la Administración Tributaria ejercerá las actuaciones fiscalizadoras o de comprobación necesarias, de conformidad con las potestades atribuidas legal y constitucionalmente.
+Artículo 1°—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 13226, del 28 de setiembre de 2005.)
