@@ -8,7 +8,8 @@ a) El funcionario interesado en obtener ayuda para estudios, presentará solicit
 6. Costo estimado de la ayuda que se solicita con proyección financiera de los costos de la carrera hasta la obtención del título que se persigue.
 7. Tiempo aproximado que le falta para obtener el título.
 b) El funcionario que gestione la ayuda para estudios, deberá haber obtenido como mínimo la calificación Muy bueno en la evaluación del desempeño durante el último año.
-c) La solicitud inicial será aprobada por el (la) Regulador (a) General, a recomendación de Recursos Humanos.
+c) La solicitud inicial será aprobada por el (la) Regulador (a) General, a recomendación de *talento humano.
+(Así reformado en sesión N° 32 del 28 de setiembre del 2005)
 d) El Departamento de Talento Humano, de acuerdo con lo aprobado por el Regulador General, tramitará las subsiguientes gestiones que le presente el beneficiario con ocasión de la ayuda para estudios.
 e) Para efectos de las adendas presentará al Departamento de Talento Humano, con un mínimo de quince días hábiles de anticipación al efectivo inicio de ciclo lectivo la siguiente información:
 - Variación de las calidades del funcionario.
