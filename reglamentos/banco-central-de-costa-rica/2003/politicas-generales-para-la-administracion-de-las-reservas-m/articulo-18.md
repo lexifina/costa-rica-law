@@ -1,1 +1,1 @@
-Artículo 18.—Parámetro de referencia. El desempeño del tramo de inversión será contrastado con el índice de referencia de bonos del Tesoro de los Estados Unidos de América con plazo al vencimiento entre uno y tres años, calculado por Merrill Lynch (ticket de Bloomberg: G1O2).
+Artículo 18.—Parámetro de referencia. El desempeño del tramo de inversión será contrastado con el índice de referencia de bonos del Tesoro de los Estados Unidos con plazo al vencimiento entre uno y tres años, calculado por Merrill Lynch (ticket de Bloomberg: G102).

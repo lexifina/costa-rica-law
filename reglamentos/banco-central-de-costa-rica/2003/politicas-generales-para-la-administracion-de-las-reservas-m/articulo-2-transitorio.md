@@ -1,0 +1,3 @@
+Transitorio II.—Límites de tolerancia del Banco Mundial. Durante el período de vigencia del convenio "Reserve Advisory & Management Program", el Banco Mundial podrá aplicar estrategias de mejoramiento del rendimiento, para lo cual tendrá en cuenta los siguientes aspectos:
+a) La posibilidad de asumir riesgo tendrá un límite de 50 puntos base. Si el retorno del sub-portafolio se reduce en cualquier momento del año en 50 puntos base por debajo del índice Merrill Lynch 1-3 de Bonos del Tesoro, los administradores del sub-portafolio le consultarán a la administración si se desea regresar a una estrategia pasiva.
+b) Se admitirá un rango de desviación de tres meses alrededor de la duración del índice Merrill Lynch 1.3 de Bonos del Tesoro."

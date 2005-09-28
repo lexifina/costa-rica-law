@@ -30,3 +30,5 @@ articulo-29.md
 articulo-30.md
 articulo-31.md
 articulo-32.md
+articulo-1-transitorio.md
+articulo-2-transitorio.md
