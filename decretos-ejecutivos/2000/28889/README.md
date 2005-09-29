@@ -14,3 +14,4 @@ Reglamento de la Proveeduría Institucional de la Comisión Nacional de Prevenci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-05 | la propia norma |
+| 2 | 2005-09-29 | Decreto Ejecutivo 32659 (2005-09-29) |
