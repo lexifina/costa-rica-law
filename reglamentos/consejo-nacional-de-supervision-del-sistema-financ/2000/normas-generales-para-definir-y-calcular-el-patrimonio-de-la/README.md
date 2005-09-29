@@ -22,3 +22,4 @@ Normas Generales para Definir y Calcular el Patrimonio de las Entidades Fiscaliz
 | 7 | 2004-03-09 | Reglamento 425 (2004-03-09) |
 | 8 | 2004-12-21 | Reglamento 486 (2004-12-21) |
 | 9 | 2005-08-04 | Reglamento 520 (2005-08-04) |
+| 10 | 2005-09-29 | Reglamento 528 (2005-09-29) |

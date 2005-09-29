@@ -7,12 +7,11 @@ Además, forman parte del capital secundario los resultados acumulados de period
 En la siguiente tabla se detalla el porcentaje de la Utilidad del período que formará parte del capital secundario para las entidades.
 Bancos Comerciales del Estado | 85%
 Bancos Privados | 95%
-BICSA | 95%
 Banco Hipotecario de la Vivienda | 100%
-Banco Popular y de Desarrollo Comunal | 100%
+Banco Popular y de Desarrollo Comunal | 95%
 Empresas Financieras no Bancarias | 100%
 Caja de ANDE | 100%
-(Así REFORMADA PARCIAL Y EXPRESAMENTE la tabla anterior del apárte ii, punto 2., por la Sesión 486-2004, celebrada el 21 de diciembre de 2004.)
+(Así reformada la tabla anterior en sesión N° 528 del 29 de setiembre del 2005)
 En virtud de lo dispuesto en el Artículo 78 de la ley de Asociaciones Cooperativas y Creación del INFOCOOP, las cooperativas de ahorro y crédito no podrán incorporar en el cálculo de capital base el monto de los excedentes acumulados durante el periodo actual, a excepción del 10% que deben destinar al incremento de la reserva legal.
 Serán consideradas como estimaciones genéricas para los efectos de esta norma, aquellas creadas con el propósito de responder ante pérdidas o deterioros aún no identificados en el valor de los activos y que se encuentran libremente disponibles para la cobertura de pérdidas que se materialicen con posterioridad. Las estimaciones genéricas elegibles para su inclusión como capital secundario estarán limitadas al 1,25% de los activos totales ponderados por riesgo según el Acuerdo SUGEF 23-00 "Normas para Establecer la Suficiencia Patrimonial de las Entidades Fiscalizadas por la Superintendencia General de Entidades Financieras".
 Para efectos del cálculo del capital base, se considera como capital secundario hasta una suma que no exceda el 100% del monto del capital primario.
