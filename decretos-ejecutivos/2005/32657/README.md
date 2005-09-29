@@ -14,3 +14,4 @@ Declara estado de emergencia nacional la situación provocada por el fenómeno m
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-19 | la propia norma |
+| 2 | 2005-09-29 | Decreto Ejecutivo 32659 (2005-09-29) |
