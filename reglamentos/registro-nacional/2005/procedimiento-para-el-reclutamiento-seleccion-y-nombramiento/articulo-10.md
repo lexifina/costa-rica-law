@@ -1,0 +1,1 @@
+10) Nombramiento del Subauditor(a) Interno(a): La Junta Administrativa conocerá la terna aprobada por la Contraloría General de la República así como la información adicional obtenida mediante la investigación de antecedentes laborales y la entrevista efectuada y emitirá el acuerdo respectivo en relación con la persona escogida para comunicarlo al ente contralor.
