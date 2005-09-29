@@ -1,0 +1,11 @@
+Artículo 2º—Solicitud y requisitos. Los interesados en recibir el beneficio indicado en el artículo anterior, deberán plantear solicitud formal ante el Departamento de Cooperación Internacional del Ministerio de Cultura, Juventud y Deportes, con los siguientes requisitos:
+a) Presentar la solicitud con quince días hábiles de anticipación a la realización del viaje.
+b) Indicar el tipo de actividad artística o cultural que se realizará.
+c) Nombre de la actividad en la que se participará.
+d) Fecha, país, ciudad y lugar específico en que se llevará a cabo el evento.
+e) Objetivos e intereses que se tienen en participar en el evento al cual han sido invitados.
+f) Breve resumen de la trayectoria del grupo artístico-cultural, aportando dentro de lo posible, información de carácter audiovisual y documental.
+g) Además con la solicitud se debe adjuntar los siguientes documentos:
+1. Fotocopia de la invitación al evento. En el caso de que ésta esté en un idioma extranjero, se debe adjuntar una traducción de la misma al español. Dicha invitación debe indicar claramente, que la actividad no es de carácter lucrativo y además se debe señalar el nombre de la persona o institución nacional o extranjera, que cubre los gastos de transporte internacional, hospedaje y alimentación del o de los participantes.
+2. Copia de la programación elaborada por los organizadores, en la que se refleje la participación artística o cultural del representante o los representantes nacionales.
+3. Lista de los miembros de la delegación, indicando apellidos y nombre en orden alfabético, lugar y fecha de nacimiento, número de pasaporte y fotocopia del mismo, fecha de emisión del pasaporte, fotocopia de la cédula de residencia en caso que sean extranjeros, cargo artístico-cultural que ocupa dentro de la delegación, profesión u oficio. El presente requisito deberá suministrarse de acuerdo con el formato que para esos efectos, elaborará el Departamento de Cooperación Internacional del Ministerio de Cultura, Juventud y Deportes. Adicionalmente en el caso de grupos integrados por más de cinco miembros se debe adjuntar en formato digital la lista con los nombres completos y sus respectivos números de pasaporte de los integrantes.

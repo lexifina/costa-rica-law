@@ -1,0 +1,1 @@
+Artículo 5º—Retiro de la recomendación de la exención de impuestos de salida. El o los interesados deben presentarse a retirar la recomendación, en caso que proceda, en el Departamento de Cooperación Internacional, para su presentación ante la Dirección de Exenciones del Ministerio de Hacienda.

@@ -1,0 +1,1 @@
+Artículo 3º—Solicitud de criterio técnico. El Departamento de Cooperación Internacional del Ministerio, podrá solicitar criterio técnico sobre la calidad artística o cultural del o de los participantes a la Dirección General de Cultura del Ministerio de Cultura, Juventud y Deportes, quien emitirá su criterio en un plazo de tres días hábiles.

@@ -1,0 +1,1 @@
+Artículo 4º—Plazo de recomendación de la solicitud. Una vez que el Departamento de Cooperación Internacional, cuente con todos los requisitos señalados en los artículos anteriores, dispondrá de tres días hábiles para elevar al jerarca la recomendación de exención de impuestos.
