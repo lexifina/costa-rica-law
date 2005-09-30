@@ -1,0 +1,1 @@
+Artículo 2º—De conformidad con el artículo 25 del Reglamento de Auditores Externos y Medidas de Gobierno Corporativo aplicable a los sujetos fiscalizados por la SUGEF, SUGEVAL y SUPEN emitido por el CONASSIF y publicado en el periódico oficial La Gaceta Nº 28, del 9 de febrero del 2005, le corresponderá a la junta directiva acordar la integración del Comité de Auditoría

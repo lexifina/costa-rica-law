@@ -1,0 +1,1 @@
+Artículo 9º—Las actas del Comité de Auditoría serán llevadas a conocimiento de la Junta Directiva General en los diez días hábiles siguientes, después de la sesión en que quede en firme el acta, con el objetivo de que los asuntos o acuerdos que allí se reflejen, sean conocidos por los demás miembros de la Junta.
