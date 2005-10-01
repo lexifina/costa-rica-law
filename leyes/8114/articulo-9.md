@@ -1,18 +1,14 @@
 CAPÍTULO II
 Impuesto específico sobre las bebidas envasadas sin contenido alcohólico, excepto la leche y los jabones de tocador
 Artículo 9º—Impuesto específico. Fíjase un impuesto específico por unidad de consumo para todas las bebidas envasadas sin contenido alcohólico, excepto la leche y todos los productos contemplados en el registro que, al efecto, llevan el Ministerio de Salud y la Caja Costarricense de Seguro Social, cuando se trata de bebidas terapéuticas y de uso médico, utilizadas en los establecimientos sanitarios y hospitalarios del país, como se detalla a continuación:
-* Tipo de bebida | Impuesto en colones por unidad de consumo
-Bebidas gaseosas y concentrados de gaseosas | 6,20
-Otras bebidas líquidas envasadas (incluso agua) | 4,60
-Agua (envases de 18 litros o más) | 2,15
+Tipo de bebida | Impuesto en colones por unidad de consumo
+Bebidas gaseosas y concentrados de gaseosas | 10.06
+Otras bebidas líquidas envasadas (incluso agua) | 7.46
+Agua (envases de 18 litros o más) | 3.49
+Impuesto por gramo de jabón de tocador | 0.127
+NOTA: Los montos del impuesto aquí especificados fueron actualizados por el Decreto Ejecutivo Nº 32658 del 6 de setiembre del 2005, mediante un ajuste del 3%.
 Defínanse como unidades de consumo los siguientes volúmenes: para todas las bebidas líquidas sujetas al impuesto, doscientos cincuenta mililitros (250 ml) y para los concentrados de gaseosas treinta y nueve coma doscientos dieciséis mililitros (39,216 ml). Para envases de diferentes contenidos el impuesto se aplicará proporcionalmente. También se fija un impuesto específico de ocho céntimos de colón (¢0,08) por gramo de jabón de tocador. Para los jabones de tocador con distinto peso, el impuesto se aplicará proporcionalmente. Los impuestos específicos recaen sobre la producción nacional y las importaciones o internaciones.
 El hecho generador de los impuestos establecidos en este artículo ocurre en las ventas a nivel de fábrica, en la fecha de emisión de la factura o de la entrega del producto, el acto que suceda primero; en la importación o internación, en el momento de aceptación de la declaración aduanera; en todos los casos, independientemente de su presentación.
 En la producción nacional, será contribuyente de estos impuestos el fabricante o envasador de dichos productos; en la importación o internación, la persona natural o jurídica que introduzca los productos o a cuyo nombre se importen o internen.
 Para aplicar estos impuestos, se entenderá por venta cualquier acto que involucre o tenga por fin último la transferencia del dominio del producto, independientemente de su naturaleza jurídica, la designación y las condiciones pactadas por las partes. Asimismo, se entenderá por importación o internación el ingreso al territorio nacional, una vez cumplidos los trámites legales, de los productos sujetos a estos impuestos, provenientes tanto de Centroamérica como del resto del mundo.
 Exceptúase del pago de estos impuestos el producto destinado a la exportación.
-* NOTA: Los montos del impuesto aquí especificado fueron actualizados por el Decreto Ejecutivo Nº 32437 del 2 de junio del 2005, mediante un ajuste del 3%, según se detalla a continuación:
-Tipo de bebida | Impuesto en colones por unidad de consumo
-Bebidas gaseosas y concentrados de gaseosas | 9.77
-Otras bebidas líquidas envasadas (incluso agua) | 7.24
-Agua (envases de 18 litros o más) | 3.39
-Impuesto por gramo de jabón de tocador | 0.123
