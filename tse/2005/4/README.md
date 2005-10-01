@@ -14,3 +14,4 @@ Establece número de regidores propietarios por cantón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-04-19 | la propia norma |
+| 2 | 2005-10-01 | Decreto TSE 15 (2005-10-01) |

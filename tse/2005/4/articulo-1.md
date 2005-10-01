@@ -51,7 +51,7 @@ Orotina | 16987 | 0.41 | 5
 San Carlos | 140929 | 3,39 | 9
 Alfaro Ruiz | 11786 | 0.28 | 5
 Valverde Vega | 17615 | 0.42 | 5
-Upala | 41846 | 1.01 | 5
+Upala | 41846 | 1.01 | 7 (Así reformado el número de regidores por el artículo 7° del decreto del TSE N° 15 del 1 de octubre del 2005)
 Los Chiles | 22190 | 0.53 | 5
 Guatuso | 14235 | 0.34 | 5
 PROVINCIA DE CARTAGO
