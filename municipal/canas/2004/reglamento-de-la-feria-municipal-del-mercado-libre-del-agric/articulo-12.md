@@ -1,0 +1,1 @@
+Artículo 12.—La emisión, registro y control de los carnés que se otorguen, estará a cargo de la Municipalidad, siendo ante ella que los interesados pedirán los documentos necesarios, que les indicarán los requisitos a cumplir para la obtención de la respectiva acreditación. La portación del carné es obligatoria, y deberá serlo en un lugar visible.

@@ -1,0 +1,1 @@
+Artículo 21.—El pago de los derechos de puesto de venta, se realizará de previo a iniciar las actividades. Las dimensiones de cada puesto de venta serán de dos metros treinta centímetros de frente, por dos metros cincuenta centímetros de fondo.

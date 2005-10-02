@@ -1,0 +1,1 @@
+Artículo 30.—La organización que seleccione la Municipalidad para que compre y venda los productos que la Región de la Altura (Upala, Tilarán, Bagaces, Cañas y Abangares) no produce, será tomada como un participante más, y será sujeta de la misma normativa establecida para los demás.

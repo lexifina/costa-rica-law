@@ -1,0 +1,1 @@
+Artículo 20.—El valor por la emisión de cada carné será de un mil quinientos colones (¢1.500,00), y tendrá una vigencia de seis meses. Los interesados, también podrán optar por realizar una cancelación anual que será por la suma de tres mil colones (¢3.000,00).

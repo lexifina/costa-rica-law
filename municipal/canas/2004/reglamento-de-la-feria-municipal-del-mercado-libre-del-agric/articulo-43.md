@@ -1,0 +1,1 @@
+Artículo 43.—Cualesquiera otras normativas que sean parte del debido proceso, no incluidas en este Reglamento, serán absoluta y plenamente aplicables, para la resolución de los eventuales casos que se conozcan.

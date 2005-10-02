@@ -1,0 +1,1 @@
+Artículo 37.—El área en donde se ubiquen los productores, debe estar debidamente señalizada, de manera que cada uno de los derechos de puesto de venta, se encuentre claramente demarcado y numerado. Igualmente deberán estar marcadas e identificadas las áreas de tránsito para las personas, entradas, salidas, zonas de seguridad y áreas de servicios.

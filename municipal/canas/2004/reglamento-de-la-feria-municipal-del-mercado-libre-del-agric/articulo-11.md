@@ -1,0 +1,1 @@
+Artículo 11.—Todos aquellos micros, pequeños o medianos productores, que participen en la Feria Municipal del Mercado Libre del Agricultor; deberán estar registrados como tales en la Municipalidad de Cañas, además, de portar el correspondiente carné que los acredite y el comprobante de pago de sus derechos.

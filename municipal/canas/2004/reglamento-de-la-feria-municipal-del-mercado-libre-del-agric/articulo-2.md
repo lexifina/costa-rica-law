@@ -1,0 +1,2 @@
+Artículo 2º—Únicamente se permitirá la venta en la Feria Municipal del Mercado Libre del Agricultor, a los productores y organizaciones de productores participantes, que cumplan con los requisitos mencionados en el presente Reglamento, y que además califiquen como micros, pequeños o medianos productores, de acuerdo con los parámetros establecidos para tal efecto por los ministerios de Economía, Industria y Comercio y de Agricultura y Ganadería.
+Queda prohibida la participación, de intermediarios en la Feria Municipal del Mercado Libre del Agricultor.

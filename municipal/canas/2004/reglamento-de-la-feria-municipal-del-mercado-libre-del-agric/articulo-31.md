@@ -1,0 +1,1 @@
+Artículo 31.—No se permitirá la venta de comidas en el área de la Feria Municipal del Mercado Libre del Agricultor, salvo para los patentados que se encuentren allí localizados o en sus alrededores, y que estén al día con sus permisos sanitarios y patentes.

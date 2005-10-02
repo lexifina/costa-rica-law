@@ -1,0 +1,1 @@
+Artículo 15.—Los carnés que emita el Centro Agrícola Cantonal, como parte de sus funciones ordinarias, servirán como referencia para autorizar el correspondiente carné que permita operar en la Feria Municipal del Mercado Libre del Agricultor.

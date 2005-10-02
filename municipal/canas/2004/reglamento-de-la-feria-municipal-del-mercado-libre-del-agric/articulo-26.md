@@ -1,0 +1,1 @@
+Artículo 26.—Los micro, pequeños y medianos productores que participen de la Feria Municipal del Mercado Libre del Agricultor, deberán como norma general presentar, para todos aquellos productos que cuenten con un grado de industrialización; las correspondientes licencias de los productos, debidamente autorizadas por el Ministerio de Salud y el Ministerio de Industria y Comercio.

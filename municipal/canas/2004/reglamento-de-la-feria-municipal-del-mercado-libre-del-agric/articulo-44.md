@@ -1,0 +1,1 @@
+Artículo 44.—Todas las resoluciones que esta Municipalidad asuma en materia propia de su competencia serán vinculantes. Si las instancias correspondientes no acatan lo dispuesto, la Municipalidad podrá, otorgando el debido proceso, suspender la ejecución de los actos contrarios a las directrices emitidas, asegurándose la implementación de las mismas,

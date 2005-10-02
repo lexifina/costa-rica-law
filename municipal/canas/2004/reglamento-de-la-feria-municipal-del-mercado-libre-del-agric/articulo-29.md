@@ -1,0 +1,1 @@
+Artículo 29.—La organización que se encargue de lograr los productos indicados en el punto anterior, deberá establecer sus relaciones de compra directamente con los productores de otras zonas, de forma que evite al máximo la participación de intermediarios; y en el caso de productos importados, hacer un esfuerzo por negociar con el importador directo.

@@ -1,0 +1,1 @@
+Artículo 24.—Los recursos que ingresen o egresen como parte del programa, serán sujetos de toda la normativa establecida para su control por la Contraloría General de la República; por lo que, y para el reforzamiento del control interno, trimestralmente se suministrará un informe de actividades a la Auditoria Interna.

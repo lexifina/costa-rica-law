@@ -1,0 +1,1 @@
+Artículo 40.—El Ministerio de Salud será el responsable de garantizar las condiciones del área destinada para realizar la Feria del Mercado Libre del Agricultor, para lo cual extenderá una vez cumplidas todas las disposiciones, el correspondiente permiso sanitario de funcionamiento.

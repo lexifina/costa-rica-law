@@ -1,0 +1,1 @@
+Artículo 38.—El área destinada para los fines aquí ya señalados, deberá ofrecer tanto para los productores como para el público, servicios sanitarios separados entre varones y damas, agua potable, y en el caso de los productores, deberá proveerse un producto desinfectante de reconocida acción, para que puedan lavar sus manos y garantizar higiene al manipular sus productos.

@@ -1,0 +1,1 @@
+Artículo 35.—Ningún participante de la Feria Municipal del Mercado Libre del Agricultor, podrá aumentar sus precios variándolos en relación con lo que le fuera originalmente autorizado por la Municipalidad. Quien hiciera ésto y se le comprobara, será considerado como una acción grave, y se sancionará conforme lo establece este mismo Reglamento.
