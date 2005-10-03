@@ -1,0 +1,1 @@
+Artículo 3º—La Administración Municipal tendrá a cargo el mejoramiento, mantenimiento y administración de sus cementerios, para lo cual contará con un Administrador, un peón y el personal necesario para el buen funcionamiento de sus actividades.

@@ -1,0 +1,1 @@
+Artículo 52.—La Municipalidad de Santa Ana, deberá contar con un registro de concesionarios de derecho funerario el cuál acreditará mediante un título que entregará al arrendatario, sin el cuál éste no podrá realizar exhumaciones e inhumaciones.

@@ -1,0 +1,1 @@
+Artículo 63.—La Comisión Administrativa de Cementerios estará conformada por los Administradores de todos los cementerios del cantón, el Director de Desarrollo y Control Urbano y el Asesor Legal de la Municipalidad.

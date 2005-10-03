@@ -1,0 +1,1 @@
+Transitorio I.—A los concesionarios con derechos anteriores a la entrada en vigencia de este Reglamento, que comprueben que son propietarios de un derecho de 25 años, se les concederá la prórroga para un período de 5 años contados a partir del vencimiento del plazo de 25 años anterior.
