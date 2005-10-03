@@ -13,3 +13,4 @@ Reglamento de Servicios Médicos por Honorarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-04-26 | la propia norma |
+| 2 | 2005-10-03 | Reglamento 30 (2005-10-03) |
