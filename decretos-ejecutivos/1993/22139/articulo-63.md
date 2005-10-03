@@ -1,2 +1,1 @@
-Artículo 63.— Horario.
-La visita conyugal se concederá una vez cada quince días dependiendo de la modalidad de custodia y disposiciones internas de cada centro o ámbito. No podrá ser inferior a las cuatro horas.
+Artículo 63.— Horario. Así Derogado por el artículo 10° del decreto ejecutivo N° 32724 del 3 de octubre del 2005.

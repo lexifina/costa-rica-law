@@ -1,2 +1,1 @@
-Artículo 66.— Comisión encargada.
-La solicitud y documentación requerida será presentada ante una Comisión integrada por las áreas de Comunidad, Salud, Violencia y Jurídica, que procederá de conformidad con las siguientes disposiciones:
+Artículo 66.— Comisión encargada. Así Derogado por el artículo 10° del decreto ejecutivo N° 32724 del 3 de octubre del 2005.

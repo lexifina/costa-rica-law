@@ -1,3 +1,1 @@
-Artículo 64.— Permanencia del hijo lactante.
-Dichos recursos deberán interponerse por el interesado en los términos y formas estipuladas en tal Título.
-Para los efectos de este Artículo se considerará interesados al privado o privada de libertad y a la Defensoría de los Derechos del privado y privada de Libertad.
+Artículo 64.— Permanencia del hijo lactante. Así Derogado por el artículo 10° del decreto ejecutivo N° 32724 del 3 de octubre del 2005.
