@@ -23,3 +23,4 @@ Directrices de política presupuestaria para las entidades públicas, ministerio
 | 8 | 2005-08-22 | Decreto Ejecutivo 32672 (2005-08-22) |
 | 9 | 2005-08-25 | Decreto Ejecutivo 32687 (2005-08-25) |
 | 10 | 2005-09-20 | Decreto Ejecutivo 32718 (2005-09-20) |
+| 11 | 2005-10-03 | Decreto Ejecutivo 32728 (2005-10-03) |
