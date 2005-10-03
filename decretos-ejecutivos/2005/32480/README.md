@@ -14,3 +14,4 @@ Aumento 4% al salario base de los Empleados del Sector Público, segundo semestr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-01 | la propia norma |
+| 2 | 2005-10-03 | Decreto Ejecutivo 32769 (2005-10-03) |
