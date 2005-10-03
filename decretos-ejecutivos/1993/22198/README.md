@@ -16,3 +16,4 @@ Reglamento Orgánico y Operativo Dirección General Adaptación Social
 | 2 | 1993-06-01 | SINALEVI (sin norma nombrada) |
 | 3 | 1998-11-17 | Decreto Ejecutivo 27510 (1998-11-17) |
 | 4 | 2005-01-31 | Decreto Ejecutivo 32265 (2005-01-31) |
+| 5 | 2005-10-03 | Decreto Ejecutivo 32754 (2005-10-03) |
