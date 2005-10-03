@@ -1,0 +1,2 @@
+Transitorio II.—Las universidades privadas dispondrán de un plazo máximo de seis meses, a partir de la entrada en vigencia de esta reforma, para decidir y comunicar al CONESUP, cuáles de las sedes autorizadas serán sedes regionales o aulas desconcentradas. Para cada caso deberán cumplir con los requisitos que aquí se establecen.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 32784 del 3 de octubre del 2005)
