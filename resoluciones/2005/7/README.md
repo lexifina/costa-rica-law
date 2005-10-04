@@ -14,3 +14,4 @@ Actualiza los montos de los impuestos específicos por cada mililitro de alcohol
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-01 | la propia norma |
+| 2 | 2005-10-04 | Resolución 18 (2005-10-04) |

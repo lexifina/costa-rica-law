@@ -1,3 +1,4 @@
+(Los montos actualizados en esta resolución se dejan sin efecto mediante el artículo 1 de la resolución N° DGT-18 del 4 de octubre de 2005):
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
 N° DGT-07.—San José, a las ocho horas del cuatro de julio del dos mil cinco.
 Considerando:
