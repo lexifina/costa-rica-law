@@ -1,0 +1,14 @@
+Artículo 2º—Definiciones. Para efectos del presente Reglamento se entenderá por:
+a) Banco: Banco Popular y de Desarrollo Comunal.
+b) Bases del concurso: Determinación de la vacante que está sujeta a sustitución, del perfil del puesto y de la tabla de valoración.
+c) Comisión: Comisión para la selección y nombramiento del auditor y subauditor interno, que la Junta Directiva del Banco Popular y de Desarrollo Comunal y de sus Sociedades Anónimas designa de conformidad con lo establecido en el artículo 4 de este Reglamento.
+d) Concurso: Proceso público externo que se convoca para seleccionar, entre los que deseen participar y cumplan con los requisitos exigidos por el puesto, a aquella persona dispuesta a prestar sus servicios como auditor o subauditor interno.
+e) Desarrollo Humano: El Proceso de Desarrollo Humano, dependencia técnica responsable de los procesos de selección, reclutamiento y administración del recurso humano que trabaja para el Banco Popular y de Desarrollo Comunal y que brindará los servicios descritos en este reglamento, a cada una de las sociedades anónimas del Banco Popular.
+f) Idoneidad: Coincidencia entre el perfil definido por la entidad para el puesto de auditor o subauditor sometido a concurso público externo y el perfil del concursante.
+g) Inopia: Cuando no se haya podido conformar la terna, por no haber suficientes concursantes o porque al menos tres de los concursantes, no alcanzaron la condición de elegibles.
+h) Junta: Junta Directiva Nacional o Junta Directiva propia de cada una de las Sociedades Anónimas del Banco Popular, según quien haya convocado al concurso público externo, jerarca responsable del nombramiento del auditor y subauditor interno de la entidad de que se trate.
+i) Lista de Elegibles: Lista conformada por los concursantes que lograron una calificación igual o mayor a 80% en el proceso de selección.
+j) Perfil: Es la definición de la naturaleza del puesto, sus objetivos, competencias técnicas, de conocimiento y de actuación, de conformidad con la normativa indicada en el párrafo 1 del artículo 1 de este Reglamento.
+k) Tabla de Valoración: Presentación numérica de la ponderación asignada a los diferentes aspectos sujetos a evaluación.
+l) Terna: Lista conformada por los tres concursantes que hayan obtenido la mejor calificación de entre la lista de elegibles resultante del proceso de selección.
+m) Sociedades Anónimas: Empresas del Banco Popular y de Desarrollo Comunal, constituidas con fundamento en el artículo 55 de la Ley Reguladora del Mercado de Valores y el “Reglamento para la Constitución de los Puestos de Bolsa, Sociedades Administradoras de Fondos y Operadoras de Pensiones Complementarias de los Bancos Públicos y del Instituto Nacional de Seguros”, Decreto Ejecutivo número 27503-H, publicado en La Gaceta número 245, Alcance 92-A del 17 de diciembre de 1998.

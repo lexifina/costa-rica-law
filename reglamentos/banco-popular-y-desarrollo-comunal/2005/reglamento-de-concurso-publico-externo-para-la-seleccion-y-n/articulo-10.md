@@ -1,0 +1,4 @@
+Artículo 10.—Expediente. Del concurso deberá conformarse un expediente administrativo que deberá trasladarse a la Contraloría General de la República para su respectiva evaluación del proceso.
+El expediente administrativo estará conformado por:
+a) Un Legajo Principal: donde los funcionarios de Desarrollo Humano archivarán, debidamente foliadas, cada una de las actuaciones de la administración durante todo el proceso de nombramiento, incluyendo los resultados de las pruebas aplicadas, sus atestados y currículo aportado por cada uno de esos concursantes al puesto objeto de concurso y;
+b) Un Legajo Confidencial donde se archivarán, debidamente foliados, los documentos en que se fundamenten los resultados de las pruebas psicométricas, físicas y cualquier otra, cuyo contenido solo pueda ser consultado por los concursantes o persona expresamente autorizada por ellos y profesionales responsables de aplicarlas y evaluarlas.

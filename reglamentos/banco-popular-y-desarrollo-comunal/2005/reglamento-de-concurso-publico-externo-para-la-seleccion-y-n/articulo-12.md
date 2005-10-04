@@ -1,0 +1,2 @@
+Artículo 12.—Confidencialidad. Todos los funcionarios que intervengan en cualquier etapa del proceso de nombramiento del auditor y subauditor interno, deberán guardar la más estricta confidencialidad respecto de los asuntos que conozcan con motivo de su participación en el proceso de nombramiento.
+Lo anterior no los exime de su obligación de denunciar ante las autoridades administrativas y judiciales competentes, cualquier irregularidad que observen en el curso del proceso de concurso o en las ofertas que hayan sido debidamente recibidas.

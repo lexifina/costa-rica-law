@@ -1,0 +1,1 @@
+Artículo 6º—Plazo para presentar ofertas. El plazo para la presentación de ofertas será de ocho días hábiles, contados a partir de la última publicación del aviso que convoca a concurso, en el Diario Oficial La Gaceta.

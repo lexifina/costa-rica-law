@@ -1,0 +1,1 @@
+Artículo 14.—Propiedad de la documentación. Los documentos que los participantes en el concurso hubieren aportado a requerimiento del Banco o sus Sociedades Anónimas, así como cualquier prueba que hubieren rendido y sus resultados, serán propiedad del Banco.
