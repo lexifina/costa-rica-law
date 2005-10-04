@@ -1,0 +1,1 @@
+Artículo 9º—Constancia en el Expediente. La determinación de cuenta desvalorizada, cuenta incobrable o activo desvalorizado, incluyendo los valores, deberá constar en el expediente del correspondiente activo, junto con la documentación que motivó el acto, en el cual deberán constar necesariamente los documentos indicados en los artículos 5 y 7 de este Reglamento.

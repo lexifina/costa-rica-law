@@ -1,0 +1,1 @@
+Artículo 12.—Pago de la Cuenta o Valor. Si luego de trasladada la cuenta o valor a cuentas de orden, alguien pretendiere cancelarlo, deberá pagar las costas personales y procesales, los gastos administrativos relacionados con la gestión de cobro, un año de intereses y el saldo de capital, y se consignará que la respectiva obligación ha sido cancelada.
