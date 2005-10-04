@@ -23,3 +23,4 @@ Reglamento para la Prestación de Servicios Notariales del Banco Nacional de Cos
 | 8 | 2002-11-05 | Reglamento 11177 (2002-11-05) |
 | 9 | 2003-08-19 | Reglamento 11223 (2003-08-19) |
 | 10 | 2005-08-16 | Reglamento 11338 (2005-08-16) |
+| 11 | 2005-10-04 | Reglamento 11346 (2005-10-04) |

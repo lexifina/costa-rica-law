@@ -3,3 +3,5 @@ Artículo 18.—Asignación de trabajo sin pago de honorarios. El Gerente Genera
 2. Los arreglos de pago, readecuaciones o compromisos que asumirán los prestatarios, fiador, avalista o cualquier otro obligado, que será formalizado en escritura pública, deberá ser de evidente beneficio para la Institución.
 3. Para todos aquellos créditos cuyo nivel de endeudamiento con el Banco Nacional incluyendo la nueva deuda sea igual o superior a US$200.000,00 o su equivalente en colones.
 (Asi reformado mediante sesión 11338 celebrada el 16 de agosto del 2005)
+4-Para todos aquellos créditos que se otorguen con el propósito de financiar la compra, total o parcial, de bienes temporales del Banco Nacional de Costa Rica. Para efectos de este inciso, se entenderá como “bienes temporales” todos aquellos bienes recibidos o adjudicados en pago de créditos otorgados a terceros, judicial o extrajudicialmente.
+(Así adicionado el inciso anterior en sesión N° 11346 del 4 de octubre del 2005)
