@@ -1,0 +1,1 @@
+Artículo 35.—El organizador de actividades especiales y de carácter esporádico, como son ferias, turnos, fiestas comunales o patronales y otras actividades similares, que generen desechos sólidos, deberá cancelar el monto del cobro según la clasificación que determine la Municipalidad.

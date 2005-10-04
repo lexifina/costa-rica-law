@@ -1,0 +1,1 @@
+Artículo 25.—La tarifa comercial 5 es la tasa aplicable a todos los centros turísticos, clubes sociales, depósitos de materiales, hoteles, supermercados, salones de baile. El promedio de generación de basura será superior 375.1 kilogramos por semana y se aplicará el factor de ponderación 25.

@@ -1,0 +1,1 @@
+Artículo 20.—La tarifa mixta es la tasa aplicable a una unidad habitacional en donde exista una actividad comercial (patente) y la producción de basura de ambas sea inferior a 62.5 Kg por semana y se le asigna el factor de ponderación de 2.
