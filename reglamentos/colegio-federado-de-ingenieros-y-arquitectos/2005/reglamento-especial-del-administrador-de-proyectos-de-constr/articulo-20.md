@@ -1,0 +1,1 @@
+Artículo 20.—Los proyectos declarados de “Interés Social”, ya sean casos individuales, urbanizaciones o conjuntos habitacionales, además de los requisitos indicados en los artículos precedentes, deberán indicar el número “FHA”, o número de bono número de la Declaratoria de interés social por parte de la entidad autorizada.

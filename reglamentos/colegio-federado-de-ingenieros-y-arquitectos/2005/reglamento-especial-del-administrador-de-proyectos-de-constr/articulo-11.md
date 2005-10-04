@@ -1,0 +1,2 @@
+Artículo 11.—En aquellos proyectos de construcción que se requiera la participación de varios profesionales de distintas ramas de la Ingeniería y/o de la Arquitectura, además del profesional responsable, éstos también deberán validar el registro de su responsabilidad. Para ello, deberán acceder al APC y mediante la introducción de su PIN, aceptar expresamente esa responsabilidad.
+En tanto esos profesionales no hayan validado esa responsabilidad, los contratos no podrán ser registrados y en consecuencia, los proyectos a que se refieren, no podrán ser ejecutados.

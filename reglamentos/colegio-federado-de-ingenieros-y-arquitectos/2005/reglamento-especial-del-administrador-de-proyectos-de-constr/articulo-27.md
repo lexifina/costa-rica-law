@@ -1,0 +1,1 @@
+Artículo 27.—Todo proyecto de obra, tramitado conforme al sistema APC, deberá ser cancelado por el usuario en un plazo máximo de cinco días hábiles. Vencido ese plazo, sin que el usuario haya cancelado el monto correspondiente, los analistas a cargo procederán a rechazar el proyecto y eliminarlo del sistema.

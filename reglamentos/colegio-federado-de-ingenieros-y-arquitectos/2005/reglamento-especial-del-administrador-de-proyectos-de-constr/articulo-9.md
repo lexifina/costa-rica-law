@@ -1,0 +1,1 @@
+Artículo 9º—El visado de los proyectos de construcción, relacionados con las Ingenierías y la Arquitectura, así como el sellado de los planos respectivos, a que se refiere el artículo 54 de la Ley Orgánica del Colegio Federado de Ingenieros y de Arquitectos, se realizará a través del APC.

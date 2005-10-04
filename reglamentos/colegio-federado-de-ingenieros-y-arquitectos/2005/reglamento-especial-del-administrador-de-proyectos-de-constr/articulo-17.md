@@ -1,0 +1,2 @@
+Artículo 17.—Los usuarios del sistema APC deberán dejar un espacio en los planos y las boletas para visado eléctrico que se remitan por medio del archivo digital correspondiente, para que el Colegio Federado de Ingenieros y de Arquitectos proceda a sellar digitalmente dicho proyecto. Este espacio no deberá contener ninguna información, sea gráfica o de texto.
+Las especificaciones de dicho espacio, tales como ubicación dentro de la lámina y sus dimensiones, será definida por la Dirección Ejecutiva en el documento denominado “Guía de uso del Sistema APC”.

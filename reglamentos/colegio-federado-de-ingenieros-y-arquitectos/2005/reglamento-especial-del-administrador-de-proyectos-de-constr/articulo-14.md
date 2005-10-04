@@ -1,0 +1,1 @@
+Artículo 14.—Se deberán adjuntar los planos del proyecto de construcción, en un archivo digital cuyo formato será “DWG” o “DWF” o bien en aquellos formatos compatibles, según lo determine el Departamento de Tecnología de la Información del CFIA.

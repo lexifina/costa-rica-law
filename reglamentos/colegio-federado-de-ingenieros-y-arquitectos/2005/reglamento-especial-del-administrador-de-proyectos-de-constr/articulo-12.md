@@ -1,0 +1,1 @@
+Artículo 12.—La renuncia o la sustitución de la responsabilidad profesional de cualquier profesional involucrado en un proyecto, deberá hacerse a través del sistema APC y será efectiva, a partir del momento en que esos actos queden registrados en el sistema.
