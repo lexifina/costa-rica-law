@@ -1,0 +1,2 @@
+Artículo 10.—Una vez remitido el informe técnico a su oficina, el Director Regional deberá darle el beneplácito correspondiente y enviar la documentación del caso a la Dirección Administrativa Financiera o a la Dirección de Formación y Desarrollo de Asentamientos del Instituto, según corresponda, para su trámite posterior.
+En caso de que el Director Regional no avale el informe técnico, deberá emitir una resolución razonada de los motivos de hecho y derecho para tal decisión y a su vez comunicarla al solicitante, para que éste pueda hacer valer sus derechos.

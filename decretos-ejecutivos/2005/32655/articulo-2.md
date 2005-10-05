@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación: El presente Reglamento aplicará para la condonación de los intereses y multas generados al 31 de diciembre del año 2002 en las operaciones de créditos de tierra y Caja Agraria del Instituto de Desarrollo Agrario, señaladas en el artículo 1.
