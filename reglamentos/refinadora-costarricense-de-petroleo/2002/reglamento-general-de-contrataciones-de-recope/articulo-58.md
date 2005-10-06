@@ -1,1 +1,2 @@
-Artículo 58.—Formalización. Por la naturaleza de los procedimientos de contratación de la actividad ordinaria, las fases de perfeccionamiento y formalización se darán en forma simultánea con la notificación de lo resuelto a todos los participantes del concurso.
+Artículo 58.—Informe de la actividad contractual. El Comité de Contratación de Hidrocarburos presentará mensualmente a la Junta Directiva un informe sobre los procedimientos de contratación formalizados en ese período dentro de la actividad contractual ordinaria, el cual será elaborado por la Dirección de Comercio Internacional de Hidrocarburos.
+(Así reformado en sesión N° 3983 del 6 de octubre del 2005)

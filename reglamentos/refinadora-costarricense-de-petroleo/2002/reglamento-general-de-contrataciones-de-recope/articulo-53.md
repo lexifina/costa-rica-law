@@ -1,1 +1,3 @@
-Artículo 53.—Niveles de aprobación. Para los procedimientos establecidos en el numeral 51 anterior, la Dirección de Suministros presentará la solicitud así como la recomendación de adjudicación debidamente justificada al Presidente de la Empresa quien resolverá al respecto. En su ausencia las facultades y competencias a él asignadas, serán del Gerente o Gerentes de Área designados al efecto y que tengan poder suficiente para este acto.
+Artículo 53.—Comité de Contratación de Hidrocarburos. Será la única instancia formal con plenas facultades en la toma de decisiones de los procedimientos de contratación para la actividad ordinaria.
+Este comité se regirá por el Reglamento aprobado por la Junta Directiva.
+(Así reformado en sesión N° 3983 del 6 de octubre del 2005)

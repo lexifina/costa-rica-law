@@ -18,3 +18,4 @@ Reglamento General de Contrataciones de RECOPE
 | 3 | 2004-04-22 | Reglamento 3841 (2004-04-22) |
 | 4 | 2005-07-28 | Reglamento 3966 (2005-07-28) |
 | 5 | 2005-08-25 | Acuerdo 3973 (2005-08-25) |
+| 6 | 2005-10-06 | Reglamento 3983 (2005-10-06) |
