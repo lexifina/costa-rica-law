@@ -1,0 +1,7 @@
+Artículo 11.—Zona de Vialidad (ZV).
+a) Propósitos: Áreas destinadas a la circulación y parqueo de vehículos de carácter público y para el tránsito de los usuarios de las instalaciones de Hospedaje o similares; así como accesos peatonales a las zonas del Plan Regulador.
+b) Localización: De acuerdo con la lámina 19, corresponde a la zona identificada por las siglas ZV, incluye caminos de acceso, parqueos vehiculares y alamedas peatonales.
+c) Usos Permitidos: En el camino de acceso y parqueos vehiculares, se permite únicamente circulación y aparcamiento de vehículos; en el caso de los senderos peatonales, únicamente se permite el acceso de personas o animales. Además se admite la construcción de obras de sostén de taludes, alcantarillado pluvial y muros de retención allí donde sea necesario.
+d) Usos Conflictivos: Cualquier actividad que no esté ligada directamente con el transporte de los visitantes.
+e) Concesiones: No se darán concesiones en esta área.
+f) Requisitos: Tanto para la aplicación de los usos permitidos y usos condicionales se deberá contar antes con el aval de las Entidades correspondientes. Además, para el caso de la vía de 14 metros se construirá una calzada de 8 metros y a ambos lados de la misma se mantendrá un área verde de 3 metros cada una; la alameda peatonal se seccionará en 3 metros para el tránsito de las personas y 3 metros para zona verde, éstos últimos ubicados entre la línea de mojones y los tres metros para el tránsito de las personas.
