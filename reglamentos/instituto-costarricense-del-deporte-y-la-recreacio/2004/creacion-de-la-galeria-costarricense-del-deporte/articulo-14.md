@@ -1,1 +1,0 @@
-Artículo 14.—Las candidaturas, que tendrán vigencia sólo para el período que se estipula en la convocatoria, deben hacerse llegar por escrito, al Departamento de Prensa y Relaciones Públicas del Instituto Costarricense del Deporte y la Recreación, dentro del lapso de tiempo señalado para la recepción de las mismas.
