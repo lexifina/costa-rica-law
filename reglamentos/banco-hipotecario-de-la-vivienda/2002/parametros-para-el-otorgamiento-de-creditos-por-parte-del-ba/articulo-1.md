@@ -19,3 +19,14 @@ e) Mantenimiento o fortalecimiento de la posición económica y financiera del B
 5. Forma de Pago: La cancelación de los créditos otorgados por el BANHVI se realizará mediante cuotas mensuales uniformes por mes vencido.
 6. Tipo de Garantías: La garantía solicitada a las Entidades Autorizadas estaría representada fundamentalmente por cartera crediticia con respaldo hipotecario; en particular, deberá aplicarse lo establecido según acuerdo Nº6, artículo 8º, de la sesión 74-2001 referente al “Procedimiento para la constitución, seguimiento y control de las garantías que respaldan los créditos de largo plazo otorgados por el Banco Hipotecario de la Vivienda”.
 7. Tipo de Entidad Autorizada: El otorgamiento de créditos por parte del BANHVI no debe ser restringido a cierto tipo de Entidades Autorizadas. En este sentido, toda Entidad Autorizada que cumpla a cabalidad con los requisitos establecidos en términos de capacidad de pago, garantías otorgadas y comportamiento de pago podrá ser sujeto de crédito de este Banco.
+8. Transitorio: El cálculo de la tasa de interés y el requerimiento de suficiencia del margen de intermediación, establecidos en el punto 2 y detallado en el anexo Nº 1, serán de aplicabilidad obligatoria a partir del momento en que la Administración lo considere apropiado y así lo comunique a la Junta Directiva del Banco, mientras tanto, deberá verificarse en forma anual la mejora en la relación de cobertura de la tasa activa establecida en el anexo Nº 1, tomando como punto de partida el 30 de junio del 2005. Esta mejora será medida a través del incremento de la siguiente razón:
+Ver formula en La Gaceta impresa N° 212 del 3 de noviembre del 2005.
+donde:
+TA = Tasa de interés activa promedio de los créditos.
+UD = Tasa de crecimiento de la Unidad de Desarrollo durante el último año calendario.
+TCRP = Tasa de capitalización anual deseada para los recursos propios.
+PRP = Proporción de los recursos propios empleados dentro del total financiado.
+CPC = Costo promedio de las captaciones
+PC = Proporción de los recursos captados dentro del total financiado.
+GA = Porcentaje de los réditos que se traslada a Cuenta General.
+(Así adicionado el punto "8", en sesión N° 57 del 6 de octubre del 2005)

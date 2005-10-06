@@ -13,3 +13,4 @@ Parámetros para el Otorgamiento de Créditos por parte del banco Hipotecario de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-17 | la propia norma |
+| 2 | 2005-10-06 | Reglamento 57 (2005-10-06) |
