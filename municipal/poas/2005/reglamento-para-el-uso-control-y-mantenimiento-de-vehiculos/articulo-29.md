@@ -1,0 +1,1 @@
+Artículo 29.—Sanciones: Las infracciones al presente Reglamento, serán sancionadas disciplinariamente de acuerdo a la normativa vigente en el Reglamento Autónomo de Organización y Servicios de la Municipalidad de Poás, el Código de Trabajo y este Reglamento, junto con cualquier normativa en materia de Administración Pública, en lo que le sea aplicable.

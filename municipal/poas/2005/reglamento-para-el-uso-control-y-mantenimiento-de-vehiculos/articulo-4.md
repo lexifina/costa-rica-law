@@ -1,0 +1,6 @@
+CAPÍTULO II
+De la clasificación y asignación de vehículos oficiales
+Artículo 4º—De la clasificación: Los vehículos propiedad de la Municipalidad de Poás se clasifican de la siguiente manera:
+a) De uso administrativo y operativo: Aquellos vehículos destinados al cumplimiento de las funciones propias de la Municipalidad.
+Deberán encontrarse debidamente rotulados en ambos costados de la cabina con el logotipo: "Municipalidad de Poás". Estos vehículos serán asignados conforme a la Programación Periódica de Trabajo y se les fijará un chofer o eventualmente un conductor, que deberá responder conforme a este Reglamento.
+b) De uso discrecional: Se trata de aquel vehículo, que previa declaratoria del Concejo Municipal, sea asignado al servicio del Alcalde. Este tipo de vehículo no cuenta con restricciones en cuanto al gasto de combustible, horario de operación ni recorrido, aspectos que asumirá bajo estricta responsabilidad el funcionario. No obstante lo anterior, deberá llevarse un control mensual del kilometraje, consumo de combustible y de mantenimiento y se deberá utilizar la placa oficial respectiva. Dicha asignación y disfrute de vehículo de uso discrecional, no constituirá salario en especie.

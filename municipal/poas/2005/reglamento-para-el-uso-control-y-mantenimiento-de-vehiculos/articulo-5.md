@@ -1,0 +1,2 @@
+Artículo 5º—De la asignación de los vehículos: El Alcalde autorizará el uso de los vehículos municipales y designará otros de uso discrecional que crea conveniente; a excepción del caso de los miembros del Concejo Municipal, en donde para el caso de giras y si los mismos desean conducir el vehículo, se requerirá autorización de la Alcaldía.
+Corresponderá al Concejo Municipal asignar y declarar como de uso discrecional el vehículo fijado al Alcalde.
