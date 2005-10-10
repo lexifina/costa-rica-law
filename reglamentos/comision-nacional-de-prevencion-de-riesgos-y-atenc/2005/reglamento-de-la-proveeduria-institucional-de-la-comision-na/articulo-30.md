@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del Comité de Adjudicaciones
+Artículo 30.—Se conforma el Comité de Adjudicaciones, que se denominará el Comité, el cual está integrado por el (a) jefe del Departamento de Proveeduría, quien lo coordinará, el (a) jefe del Departamento Legal, o sus delegados, y el (a) jefe del Departamento solicitante. En caso de contrataciones de obras de emergencia, el comité estará integrado por el (a) jefe de la Contraloría de Unidades Ejecutoras o su delegado. Se podrá invitar a participar, con derecho a voz y sin voto, a otras personas que por la naturaleza de la contratación se considere necesario.

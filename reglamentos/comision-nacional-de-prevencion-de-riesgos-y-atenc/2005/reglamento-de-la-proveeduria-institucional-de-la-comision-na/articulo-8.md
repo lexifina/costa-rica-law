@@ -1,0 +1,1 @@
+Artículo 8º—La contratación directa se utilizará bajo los supuestos que están establecidos en la Ley y Reglamento de Contratación Administrativa y las disposiciones sobre la cuantía que establece la Contraloría General de la República.

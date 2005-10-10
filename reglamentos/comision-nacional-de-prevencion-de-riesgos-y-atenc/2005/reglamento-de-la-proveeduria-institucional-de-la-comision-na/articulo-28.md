@@ -1,0 +1,3 @@
+Artículo 28.—Los recursos que proceden en las contrataciones de emergencias son los siguientes:
+Recurso de revocatoria: Procede para todas las contrataciones de emergencia. Deberá presentarse en el plazo de dos días hábiles contados a partir del momento en que se comunicó el acto a recurrir.
+Recurso de apelación: Procede en contra de las contrataciones cuyo monto supere el establecido para la licitación restringida por parte de la Contraloría General de la República. Deberá ser resuelto por el superior del funcionario que emitió el acto impugnado y debe presentarse en el plazo de tres días hábiles contados a partir del momento en que se comunicó el acto a recurrir.

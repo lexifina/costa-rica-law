@@ -1,0 +1,1 @@
+Artículo 11.—Bajo condiciones especiales debidamente razonadas, en contrataciones directas el (a) proveedor (a) podrá solicitar a los oferentes y contratistas, que rindan garantía de participación y de cumplimiento, en los términos establecidos en la Ley y Reglamento de Contratación Administrativa, debiendo prevalecer siempre el interés institucional.

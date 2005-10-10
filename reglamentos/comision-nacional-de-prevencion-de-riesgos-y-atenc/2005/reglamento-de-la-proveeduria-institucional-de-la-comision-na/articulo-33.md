@@ -1,0 +1,1 @@
+Artículo 33.—Las recomendaciones que emita dicho Comité no serán vinculantes, por su naturaleza asesora, pero para apartarse de ellas el órgano competente para adjudicar deberá fundamentar ampliamente las razones por las que no acepta la respectiva recomendación, asumiendo en tal caso total y plena responsabilidad de dicho acto.

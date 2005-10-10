@@ -1,0 +1,1 @@
+Artículo 13.—La invitación a participar y la fórmula para cotizar en contrataciones directas, podrán ser enviadas vía fax a los oferentes, pero deberá dejarse constancia en el expediente del nombre y ocupación de la persona que recibió la documentación.

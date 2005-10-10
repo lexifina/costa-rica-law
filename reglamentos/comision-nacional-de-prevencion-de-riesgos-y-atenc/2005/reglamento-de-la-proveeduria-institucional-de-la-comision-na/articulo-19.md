@@ -1,0 +1,1 @@
+Artículo 19.—La Dirección de Gestión en Desastres mantendrá créditos abiertos en los lugares que considere pertinentes y que se encuentren en las zonas afectadas, de lo cual deberá informar a la Proveeduría, con el fin de lograr mayor agilidad y coordinación en la compra de artículos que, por su naturaleza, sea necesario adquirir de manera inmediata.
