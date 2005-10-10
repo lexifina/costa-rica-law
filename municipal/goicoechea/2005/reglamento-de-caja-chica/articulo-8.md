@@ -1,0 +1,1 @@
+Artículo 8º—Bajo casos de excepción, valoradas y autorizadas únicamente por el Alcalde Municipal, puede tramitarse comprobante de Caja Chica, en fecha posterior a la factura. El Alcalde valorará los hechos y la justificación que se emita para tal fin previo a rubricar la autorización.
