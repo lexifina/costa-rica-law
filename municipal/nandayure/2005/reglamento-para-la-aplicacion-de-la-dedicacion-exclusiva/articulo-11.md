@@ -1,0 +1,1 @@
+Artículo 11.—Los profesionales con la dedicación exclusiva y aprobada hayan disfrutado de un permiso sin goce de salario, al regresar pueden seguir devengado el pago de dicho incentivo, siempre y cuando el convenio esté vigente.
