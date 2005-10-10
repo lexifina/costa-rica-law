@@ -1,0 +1,6 @@
+CIRCULAR N° 116-2005
+ASUNTO: Deber de informar a la Dirección General de Administración de Bienes y Contratación Administrativa del Ministerio de Hacienda, las sentencias firmes en las que se condene por los delitos de enriquecimiento ilícito
+A TODAS LOS DESPACHOS JUDICIALES DEL PAÍS
+El Consejo Superior, en sesión Nº 54-05, celebrada el 14 de julio del 2005, artículo XLVI, dispuso comunicarles, que están en la obligación de informar a la Dirección General de Administración de Bienes y Contratación Administrativa del Ministerio de Hacienda, las sentencias en firme, en las que se condene por los delitos de enriquecimiento ilícito y producto de ellas el Estado reciba bienes, los cuales se deben poner en custodia de esa Dirección, con el fin de que pueda incorporarlos al registro que para tal efecto lleva y posteriormente se defina el destino final de cada uno de ellos.
+Lo anterior, para dar .el cumplimiento a lo preceptuado en el Decreto Ejecutivo Nº 32333-MP-J, denominado “Reglamento a la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública”, sección quinta, artículo 52, publicado en el Alcance Nº 11, La Gaceta Nº 82 del 29 de abril del 2005, que establece la competencia.
+San José, 3 octubre del 2005.
