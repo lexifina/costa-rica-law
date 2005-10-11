@@ -1,0 +1,1 @@
+Artículo 5º—El plazo para la inscripción de candidaturas en el Registro Civil vence a las quince horas del día viernes veintiuno de octubre del año en curso, según el artículo 76 del Código Electoral.

@@ -1,0 +1,4 @@
+N° 15-2005
+En cumplimiento de las atribuciones que le confieren los artículos 9, 99, 102 inciso 1), 106 y 133 de la Constitución Política, 97 y 98 del Código Electoral,
+DECRETA:
+Artículo 1º—Se convoca a todos los ciudadanos inscritos como electores en el Departamento Electoral del Registro Civil para que, ejerciendo el derecho constitucional al sufragio, en votación obligatoria, directa y secreta, concurran a las respectivas Juntas Receptoras de Votos el día domingo cinco de febrero del año dos mil seis, a fin de que procedan a elegir Presidente y Vicepresidentes de la República, Diputados a la Asamblea Legislativa y Regidores Municipales. Las elecciones se efectuarán en todo el territorio nacional, sin interrupción, desde las seis hasta las dieciocho horas de ese día, según lo establece el artículo 102 del Código Electoral.
