@@ -1,0 +1,1 @@
+Transitorio II.—Durante los siguientes seis meses a la entrada en vigencia de este reglamento, las personas que realicen actividades de las reguladas en este reglamento deberán adecuar su negocio a las disposiciones contenidas en este texto normativo.

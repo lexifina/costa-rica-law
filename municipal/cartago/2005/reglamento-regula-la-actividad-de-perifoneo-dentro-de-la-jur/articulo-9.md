@@ -1,0 +1,1 @@
+Artículo 9º—No se permitirá el perifoneo de las 20:00 horas a las 06:00 horas, así como en los alrededores de hospitales, centro de educación, Iglesias, capillas de velación o áreas designadas por el Ministerio de Salud como de “tranquilidad excepcional”.
