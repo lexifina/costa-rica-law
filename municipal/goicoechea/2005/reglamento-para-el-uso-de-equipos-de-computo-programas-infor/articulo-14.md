@@ -1,0 +1,1 @@
+Artículo 14.—Las actividades en línea serán controladas, a solicitud de la jefatura respectiva, cuando se tenga conocimiento de que un funcionario esta desacatando alguna de las anteriores disposiciones. De llegarse a comprobar una falta, concluido el procedimiento disciplinario respectivo, la Administración cancelará el acceso al servicio al funcionario responsable.

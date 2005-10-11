@@ -1,0 +1,1 @@
+Artículo 16.—Los directores y jefes de los departamentos y demás oficinas de la Municipalidad de Goicoechea velarán por el uso adecuado y el cuidado del equipo de cómputo, los programas y las herramientas informáticas que tienen asignado. Cuando se compruebe negligencia de su parte, será responsable conjuntamente con el usuario principal por el uso inadecuado del equipo.

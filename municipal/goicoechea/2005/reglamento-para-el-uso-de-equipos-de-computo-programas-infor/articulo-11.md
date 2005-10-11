@@ -1,0 +1,1 @@
+Artículo 11.—Todos los monitores de los equipos instalados en la Institución deberán utilizar protector de pantalla que no dañen la moral y las buenas costumbres o en su defecto se utilizará la o las imágenes autorizadas oficialmente.

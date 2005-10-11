@@ -1,0 +1,2 @@
+Artículo 5º—La entrega, puesta en funcionamiento y cambio de equipo entre las diferentes oficinas de la Institución, la efectuará la oficina encargada, en coordinación con el Departamento de Cómputo. Todo traslado interno requerirá el visto bueno de los jefes de las oficinas involucradas y deberá ser comunicado al Departamento de Cómputo.
+Los equipos de cómputo no podrán ser trasladados a oficinas ajenas o fuera de la Municipalidad de Goicoechea, los programas informáticos, sean estos propiedad o no de la Municipalidad, exceptuando el equipo portátil.
