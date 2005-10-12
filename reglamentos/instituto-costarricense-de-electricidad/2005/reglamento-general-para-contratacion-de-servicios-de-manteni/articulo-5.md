@@ -1,0 +1,4 @@
+Artículo 5º—Calificación para incluir proveedores en el registro de elegibles.
+5.1. Con base en las condiciones y requisitos del Pliego de Atestados, la dependencia técnica encargada determinará, dentro de un plazo máximo de 15 días hábiles, las empresas o personas físicas que resulten elegibles, previo estudio y calificación de los atestados.
+5.2. Aquellos que no cumplen con los requisitos mínimos establecidos, según calificación previa, tendrán la oportunidad de corregir la situación por la cual no fueron aceptados y volver a solicitar su ingreso al Registro de Elegibles.
+5.3. El ICE enviará a cada proveedor calificado para ingresar al Registro de Elegibles, copia de la documentación, con el resultado y le indicará las condiciones que debe cumplir, para todas las futuras contrataciones en que pueda participar.

@@ -1,0 +1,3 @@
+Artículo 6º—Recursos.
+6.1. Procederá el recurso de revocatoria en lo concerniente a la inclusión o exclusión de proveedores en el Registro de Elegibles.
+6.2. Contra el acto de adjudicación de las reparaciones podrá interponerse recurso de revocatoria en el caso de aquellas contrataciones que superen el monto de ochocientos mil colones (El ICE podrá ajustar este monto tomando como base la variación porcentual del índice general de precios al consumidor) y deberá ser interpuesto ante el órgano que dictó el acto, dentro de los 3 días hábiles siguientes a la notificación. El ICE resolverá dentro de los 5 días hábiles siguientes.

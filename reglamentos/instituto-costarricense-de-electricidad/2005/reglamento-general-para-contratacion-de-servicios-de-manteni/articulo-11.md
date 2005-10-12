@@ -1,0 +1,16 @@
+Artículo 11.—Adjudicación en mantenimiento de carrocería.
+11.1. En el caso de reparaciones que no excedan los 75 mil colones, cada Centro de Mantenimiento Automotriz cotizará según se indica en el artículo 8.1.a) y la adjudicación se realizará tomando en cuenta parámetros como el precio cotizado y calificaciones de adjudicaciones anteriores.
+11.2. En el caso de reparaciones que superen los 75 mil colones, la Proveeduría o con debida justificación y autorización cada Centro de Mantenimiento Automotriz, invitará a los potenciales oferentes inscritos en el Registro de Elegibles, según punto 8.1.b), mediante el envío, en forma personal o por algún medio telemático legalmente aceptado, del pliego de condiciones para la respectiva contratación. La adjudicación se realiza tomando en cuenta parámetros como el precio cotizado y el promedio de las evaluaciones de los últimos trabajos efectuados; en el caso de Proveedores de nuevo ingreso, se tomará la calificación obtenida a su ingreso al Registro de Elegibles.
+a) Las ofertas deben indicar claramente el nombre de la empresa oferente y de la persona que suscribe la oferta. Deberán ser entregadas en sobres cerrados o por algún medio electrónico, antes de la hora señalada para el cierre de recepción de ofertas, con indicación clara, en la parte exterior y visible del sobre, de la siguiente leyenda:
+INSTITUTO COSTARRICENSE DE ELECTRICIDAD
+CONTRATACIÓN NÚMERO ________________
+CONTRATACIÓN DE..........
+(Indicar claramente de qué se trata)
+b) Asimismo, las ofertas deben ser presentadas en español. A éstas se les deberá adjuntar los formularios con la información completa en ellos requerida. Tanto las ofertas como los formularios deberán ser firmados por la persona legalmente autorizada para hacerlo.
+c) Las ofertas deberán incluir una declaración jurada del oferente o su representante, mediante la cual aceptan expresamente que el incumplimiento de las obligaciones laborales y de seguridad social para con sus trabajadores se tendrá como causal de incumplimiento del respectivo contrato.
+d) Las ofertas ilegibles o que contengan omisiones, alteraciones, borrones, tachaduras o que presenten irregularidades importantes de cualquier clase, no serán tomadas en cuenta.
+Para evitar esto, las adiciones o correcciones se deben indicar con claridad y venir debidamente firmadas. Para esto, el ICE pondrá a disposición de los oferentes un machote con todas los pormenores exigidos en el pliego de condiciones.
+e) Una vez que la oferta haya sido entregada en el lugar indicado en el cartel podrá ser dejada sin efecto cuando medie causa justificada, mediante una manifestación escrita de quien tenga facultades suficientes para ello, caso contrario se procederá según lo que dictan los artículos 99 inciso c) y 100 de la Ley de Contratación Administrativa.
+f) Una vez que se verifique la apertura de las ofertas, en la cual, el proveedor que desee puede participar, la dependencia interesada hará el estudio de ellas, de conformidad con los parámetros establecidos en el pliego de condiciones.
+g) Serán excluidas aquellas ofertas que se aparten de lo solicitado, o que hagan imposible armonizarlas con lo señalado en el pliego de condiciones.
+h) El ICE resolverá la adjudicación dentro de un máximo de 3 días hábiles, a partir de la apertura de las ofertas.
