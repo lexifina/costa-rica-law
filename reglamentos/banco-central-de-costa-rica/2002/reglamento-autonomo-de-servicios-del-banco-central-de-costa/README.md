@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicios del Banco central de Costa Rica y sus Organism
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-03 | la propia norma |
+| 2 | 2005-10-12 | Reglamento 5250 (2005-10-12) |

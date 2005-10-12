@@ -8,3 +8,6 @@ f. Sacar del lugar de trabajo documentos, valores, equipos de diferente índole,
 g. Autorizar o efectuar gastos a nombre de la Institución sin cumplir las normas y los trámites establecidos al efecto.
 h. Inducir a error a la Institución pretendiendo tener cualidades, condiciones o conocimientos que no posee, o presentándole referencias o atestados personales cuya falsedad luego se compruebe, o ejecutando su trabajo en forma que demuestre claramente su incapacidad en la realización de las labores para las cuales ha sido nombrado.
 i. Cualquier otra acción u omisión de acuerdo con las disposiciones del ordenamiento jurídico aplicable a la relación de servicio entre la Institución y sus servidores. La sanción correspondiente en este caso se fijará atendiendo las particularidades de la falta cometida.
+j. El uso de equipo electrónico de la Institución para observar o reproducir pornografía.
+k. La exhibición de material pornográfico dentro de las instalaciones de la Institución.
+(Así adicionados los incisos j y k, mediante sesión N° 5250-2005 celebrada el 12 de octubre de 2005).
