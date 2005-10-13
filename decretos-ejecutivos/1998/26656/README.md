@@ -14,3 +14,4 @@ Reglamento General del Instituto de Investigación y Enseñanza en Nutrición y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-20 | la propia norma |
+| 2 | 2005-10-13 | Decreto Ejecutivo 32746 (2005-10-13) |
