@@ -14,3 +14,4 @@ Establece deber de toda embarcación pesquera comercial, nacional o extranjera q
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-21 | la propia norma |
+| 2 | 2005-10-13 | Acuerdo 499 (2005-10-13) |
