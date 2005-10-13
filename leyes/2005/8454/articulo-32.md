@@ -1,0 +1,2 @@
+Artículo 32.—Publicidad. Excepto el caso de amonestación, todas las sanciones administrativas impuestas serán publicadas por medio de reseña o trascripción íntegra en La Gaceta, sin perjuicio de que, en atención al caso concreto, se disponga, además, publicarlas en uno o más medios de circulación o difusión nacional.
+Asimismo, la Dirección de Certificadores de Firma Digital dispondrá la publicación electrónica en su página de información en Internet.

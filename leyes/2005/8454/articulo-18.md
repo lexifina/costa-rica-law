@@ -1,0 +1,4 @@
+SECCIÓN II
+Certificadores
+Artículo 18.—Definición y reconocimiento jurídico. Se entenderá como certificador la persona jurídica pública o privada, nacional o extranjera, que emite certificados digitales y está debidamente autorizada según esta Ley o su Reglamento; asimismo, que haya rendido la debida garantía de fidelidad. El monto de la garantía será fijado por la Dirección de Certificadores de Firma Digital y podrá ser hipoteca, fianza o póliza de fidelidad de un ente asegurador, o bien, un depósito en efectivo.
+Sin perjuicio de lo dispuesto en los artículos 3º, 9º y 19 de esta Ley, los certificados digitales expedidos por certificadores registrados ante la Dirección de Certificadores de Firma Digital, solo tendrán pleno efecto legal frente a terceros, así como respecto del Estado y sus instituciones.

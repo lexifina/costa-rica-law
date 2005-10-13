@@ -1,0 +1,1 @@
+Artículo 31.—Procedimiento. Todas las sanciones serán impuestas mediante el procedimiento administrativo ordinario, previsto en la Ley General de la Administración Pública, salvo en el caso de amonestación, en que podrá aplicarse el procedimiento sumario.

@@ -1,0 +1,1 @@
+Artículo 22.—Cesación voluntaria de funciones. Los certificadores registrados de carácter privado podrán cesar en sus funciones, siempre y cuando avisen, a los usuarios, con un mes de anticipación como mínimo, y con dos meses a la Dirección de Certificadores de Firma Digital.

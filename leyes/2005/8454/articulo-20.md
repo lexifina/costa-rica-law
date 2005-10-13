@@ -1,0 +1,2 @@
+Artículo 20.—Corresponsalía. Los certificadores registrados podrán concertar relaciones de corresponsalía con entidades similares del extranjero, para efectos de homologar los certificados digitales expedidos por estas entidades o que estas hagan lo propio en el exterior con los emitidos por los certificadores registrados.
+Se deberá informar a la Dirección de Certificadores de Firma Digital, acerca del establecimiento de relaciones de esta clase, de previo a ofrecer ese servicio al público.
