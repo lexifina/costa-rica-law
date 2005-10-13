@@ -1,0 +1,1 @@
+Artículo 4º—Autoridad competente. Es competencia del Sistema Nacional de Áreas de Conservación proponer las políticas, normas y procedimientos para regular, evaluar, otorgar o denegar y dar seguimiento a los permisos de investigación en biodiversidad, tal como se establece en la normativa vigente en materia de investigación científica.

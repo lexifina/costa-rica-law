@@ -1,0 +1,1 @@
+Artículo 27.—Modifícase el Decreto Ejecutivo Nº 28993-MINAE, publicado en La Gaceta Nº 203 del 24 de octubre de 2000, en su artículo 2º, sobre la integración del Comité Técnico de Investigación del Sistema Nacional de Áreas de Conservación, que quedará constituido como establece el artículo 6º del presente Decreto.

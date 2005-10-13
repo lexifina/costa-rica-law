@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Este procedimiento se aplicará a toda solicitud de permisos de investigación, trámite correspondiente, su análisis, evaluación, resolución y seguimiento a efectuarse en todas las oficinas regionales del Sistema Nacional de Áreas de Conservación (SINAC), o a nivel de SINAC Central, cuando proceda.

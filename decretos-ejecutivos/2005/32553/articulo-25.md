@@ -1,0 +1,1 @@
+Artículo 25.—Formularios para solicitudes y otros documentos. Los formularios para realizar las solicitudes de permisos y otra documentación de requisito serán elaborados y oficializados por el Sistema Nacional de Áreas de Conservación y puestos a disposición al usuario mediante forma impresa o electrónica.

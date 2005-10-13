@@ -1,0 +1,11 @@
+Artículo 13.—Análisis de una solicitud de permiso de investigación:
+1) Análisis administrativo:
+a. Todos los espacios del formulario deberán estar debidamente llenos o completos y cumplir con todos los requisitos anotados anteriormente.
+b. Si la solicitud recibida en un área de conservación requiere la consulta de otras áreas de conservación, del Comité Técnico de Investigación del SINAC o del Programa de Investigación del SINAC Central, remitirá una copia completa del expediente para su estudio y resolución. Si no hay respuesta en los siguientes 8 días naturales de su envío, será resuelta en el Área que corresponda o por el Programa de Investigaciones del SINAC Central, de conformidad con el plazo establecido por el artículo 42 de la Ley de Conservación de la Vida Silvestre.
+c. Si alguno de los requisitos o solicitud de permiso de investigación requiere ser mejorado o actualizado, se informará al interesado por escrito para que proceda según indicación al efecto.
+2) Análisis técnico:
+a. Verificar que los objetivos y metodología presentados en el proyecto de investigación, sean compatibles con los objetivos de conservación y protección de la biodiversidad, competencia del Ministerio del Ambiente y Energía.
+b. Recomendar al investigador, si procede, que presente modificaciones o ajustes a la propuesta para que sean compatibles con los objetivos institucionales en materia de investigación.
+c. Inducir a los investigadores (as) a colaborar con las temáticas identificadas en las estrategias regionales y en la nacional de investigación. Esto principalmente en los casos que el investigador (a) requiere de servicios o facilidades en áreas silvestres protegidas, o solicite exoneraciones de los cánones exigidos por investigación dentro de ellas.
+d. El encargado (a) del Programa de Investigaciones del Área de Conservación, podrá enviar copia del proyecto de investigación a especialistas en la materia para consultas técnicas y poder resolver adecuadamente la solicitud recibida, cuando corresponda.
+e. El encargado (a) del Programa de Investigaciones del Área de Conservación, procederá a emitir la resolución respectiva y el pasaporte científico correspondiente y sus copias serán enviadas al Programa de Investigación del SINAC Central y viceversa, si le corresponde resolver a esta última.
