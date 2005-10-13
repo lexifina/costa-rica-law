@@ -1,0 +1,1 @@
+Artículo 17.—Conservación de efectos. La suspensión o revocación de un certificado digital no producirá, por sí sola, la invalidez de los actos o negocios realizados con anterioridad al amparo de dicho certificado.

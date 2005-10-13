@@ -1,0 +1,1 @@
+Artículo 16.—Revocación por el cese de actividades del certificador. El cese de actividades del certificador implicará la revocatoria de todos los certificados que haya expedido, salvo que anteriormente hayan sido traspasados a otro certificador, previo consentimiento del usuario.

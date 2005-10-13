@@ -1,0 +1,1 @@
+Artículo 7º—Satisfacción de los requisitos fiscales. Cuando la emisión de un acto o la celebración de un negocio jurídico en soporte electrónico conlleve el pago de requisitos fiscales, el obligado al pago deberá conservar el comprobante respectivo y exhibirlo cuando una autoridad competente lo requiera.
