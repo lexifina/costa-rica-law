@@ -1,0 +1,1 @@
+Artículo 33.—Ausencia del funcionario. En el caso de que el funcionario responsable de un vehículo de uso discrecional se encuentre en vacaciones, con permiso, incapacitado u otra situación de similar naturaleza, el vehículo de uso discrecional se mantendrá en el lugar que se designe para tal efecto, por el Área de Gestión y Asesoría Administrativa.

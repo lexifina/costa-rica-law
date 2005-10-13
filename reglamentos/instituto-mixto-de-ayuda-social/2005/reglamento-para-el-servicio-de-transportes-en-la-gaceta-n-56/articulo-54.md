@@ -1,0 +1,1 @@
+Artículo 54.—De la selección y contratación de talleres para mantenimiento y reparación de vehículos. Lo relativo a la selección y contratación de talleres para el mantenimiento y reparación de los vehículos del IMAS será regulado por un reglamento específico, el cual deberá ser aprobado previamente por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+IV.—El Reglamento para la contratación de servicios de mantenimiento y reparación de vehículos, en forma expedita, deberá instaurarse en el plazo máximo de cuatro meses contados a partir de la entrada en vigencia de esta normativa. (se elimina el resto).

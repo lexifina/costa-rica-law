@@ -1,0 +1,1 @@
+Artículo 73.—De la responsabilidad disciplinaria. Al margen de las responsabilidades indicadas en los artículos anteriores, la Administración podrá aplicar las sanciones disciplinarias que correspondan, previo procedimiento administrativo, con garantía del debido proceso.

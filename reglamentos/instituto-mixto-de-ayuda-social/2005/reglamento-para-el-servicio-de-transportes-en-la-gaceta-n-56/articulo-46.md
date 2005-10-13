@@ -1,0 +1,1 @@
+Artículo 46.—De la autorización para su adquisición. El Consejo Directivo del IMAS evaluará las necesidades, considerando la recomendación del informe del Área de Gestión y Asesoría Administrativa y autorizará mediante acuerdo firme, convenio o cualquier otro instrumento que se requiera, según el caso, el procedimiento para la adquisición de los vehículos.

@@ -1,0 +1,1 @@
+V.—Previa determinación de su necesidad, oportunidad y conveniencia, precedidas de un estudio financiero que demuestre el costo–beneficio de la aplicación de esta modalidad, la Administración podrá emitir un Reglamento para el arrendamiento de vehículos propios de funcionarios del IMAS, el cual deberá contar con la aprobación previa de la Contraloría General de la República.

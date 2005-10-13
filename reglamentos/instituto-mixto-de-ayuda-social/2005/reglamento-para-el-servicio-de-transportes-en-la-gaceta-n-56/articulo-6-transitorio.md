@@ -1,0 +1,1 @@
+VI.—En cuanto a los Transitorios IV y V, se instruye a la Gerencia General para que se elabores y sometan a conocimiento del Consejo Directivo los proyectos de reglamentos correspondientes, dentro de los plazos indicados.

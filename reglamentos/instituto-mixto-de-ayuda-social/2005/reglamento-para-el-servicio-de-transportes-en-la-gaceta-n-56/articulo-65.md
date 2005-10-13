@@ -1,0 +1,2 @@
+Artículo 65.—Responsable del retiro de los cupones. El responsable de la gira será la persona autorizada para retirar, utilizar y liquidar los cupones de combustible, directamente en la Tesorería. En la medida de lo posible, la labor de retiro y liquidación de cupones la realizará el mismo funcionario, a efecto de agilizar y evitar contratiempos.
+Los funcionarios que tengan asignados vehículos de uso discrecional serán los responsables de retirar, utilizar y liquidar los cupones de combustible para tales vehículos.

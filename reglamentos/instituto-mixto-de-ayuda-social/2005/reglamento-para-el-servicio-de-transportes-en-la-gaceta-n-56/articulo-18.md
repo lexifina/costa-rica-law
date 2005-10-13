@@ -1,0 +1,1 @@
+Articulo 18.—Del estacionamiento de los vehículos fuera de la Institución. Cuando el vehículo se encuentre fuera de la Institución o esté realizando una gira, deberá estacionarse en un parqueo público o en el lugar que brinde adecuadas condiciones de seguridad y de acatamiento a las disposiciones de la Ley de Tránsito, todo bajo responsabilidad del conductor.

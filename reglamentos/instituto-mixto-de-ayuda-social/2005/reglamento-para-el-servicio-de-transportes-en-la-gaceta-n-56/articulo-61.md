@@ -1,0 +1,1 @@
+Artículo 61.—Resguardo de los cupones. Todo funcionario que posea cupones de combustible deberá resguardarlos, para evitar su extravío o robo, dado que éstos son títulos valores similares a un cheque al portador. De no cumplirse con esta disposición y de producirse una pérdida, el funcionario deberá de asumir el costo respectivo.

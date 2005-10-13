@@ -1,0 +1,1 @@
+Artículo 36.—Del registro de firmas autorizadas para solicitar el servicio y conducir vehículos. El Área de Gestión y Asesoría Administrativa deberá mantener un Registro de Firmas de aquellas personas autorizadas para solicitar servicio de transporte y mantenimiento de los vehículos y de las personas que se encuentran autorizadas para conducir.

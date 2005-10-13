@@ -1,0 +1,1 @@
+Artículo 31.—Responsabilidad en la custodia del vehículo de uso discrecional. El funcionario que tenga asignado un vehículo de uso discrecional deberá velar por su custodia, uso y conservación y deberá reportar al Área de Gestión y Asesoría Administrativa, cualquier daño que afecte al vehículo.
