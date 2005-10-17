@@ -1,0 +1,15 @@
+Capítulo XI:
+Entrada Temporal
+Artículo XI.01 Entrada Temporal
+1. Las Partes reconocen la creciente importancia de la inversión y los servicios en relación con el comercio de mercancías. De conformidad con sus leyes y reglamentos aplicables, las Partes deberán facilitar la entrada temporal de:
+(a) nacionales que sean transferidos dentro de una empresa (gerentes, ejecutivos, especialistas) y visitantes de negocios;
+(b) nacionales que provean servicios posteriores a la venta directamente relacionados con la exportación de mercancías por un exportador de esa misma Parte en el territorio de la otra Parte;
+(c) cónyuge e hijos de los nacionales descritos anteriormente en (a); y
+(d) residentes legales en el territorio de una de las Partes que sean transferidos dentro de una empresa (gerentes, ejecutivos, especialistas) y que hayan sido continuamente empleados por la misma al menos por un (1) año inmediatamente anterior a la fecha de la aplicación para la entrada y que cumpla con los requisitos migratorios de la otra Parte.
+2. Con el objeto de desarrollar y profundizar sus relaciones bajo este Capítulo, las Partes acuerdan que dentro de dos (2) años a partir de la fecha de entrada en vigor de este Tratado, revisarán el desarrollo relacionado con la entrada temporal y considerarán la necesidad de ampliar las disciplinas en esta área.
+3. A más tardar seis (6) meses después de la fecha de entrada en vigor de este Tratado, las Partes pondrán a disposición material explicativo en relación con los requerimientos para la entrada temporal bajo este Artículo de manera tal que permita a los ciudadanos de la otra Parte conocer estas disposiciones.
+4. Para efectos de este Capítulo:
+entrada temporal significa el derecho de entrar y permanecer por el período de tiempo autorizado por las Partes de conformidad con sus leyes y reglamentos;
+nacional significa una persona natural que es ciudadano de una Parte;
+servicios posteriores a la venta incluyen aquellos que sean prestados por personal de instalación, reparación y mantenimiento, supervisores de instalación, e instalación y prueba de equipo comercial e industrial (incluidos los programas de computación), siempre y cuando estos servicios sean prestados como parte de una venta original o extendida, o un acuerdo de arrendamiento, garantía, o contrato de servicio. La "instalación" no incluye la instalación en sitio generalmente llevada a cabo a través de construcción o edificación. Servicios posteriores a la venta también incluye a las personas que presten sesiones de familiarización o entrenamiento a usuarios potenciales; y
+visitantes de negocios son visitantes por un período de tiempo corto que no pretenden incorporarse al mercado laboral de las Partes, pero que buscan involucrarse en actividades tales como la investigación de oportunidades de negocios, compra, venta o mercadeo de mercancías o servicios, negociación de contratos, conversaciones con colegas, o participación en conferencias; ferias comerciales o misiones comerciales.
