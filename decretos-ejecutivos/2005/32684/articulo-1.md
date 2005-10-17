@@ -1,0 +1,12 @@
+N° 32684
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+En ejercicio de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; los artículos 27 y 28 2.b) de la Ley General de Administración Pública Nº 6227 del 2 de mayo de 1978; el artículo 42 de la Ley Nº 8279 del Sistema Nacional para la Calidad del 2 de mayo del 2002; el Decreto Ejecutivo Nº 30989-MEIC de la Creación del Comité Nacional del Codex Alimentarius de fecha 20 de enero del año 2003.
+Considerando:
+1º—Que del día 6 al 9 de diciembre del año 2005 se celebrará en Costa Rica la Conferencia Regional FAO/OMS sobre la Inocuidad de los Alimentos para las Américas y el Caribe con el auspicio de la FAO-Costa Rica, actividad organizada por los Ministerios de Economía, Industria y Comercio, Agricultura y Ganadería, Comercio Exterior y de Salud.
+2º—Que acuerdan las mencionadas sedes ministeriales la designación como Oficial de Enlace en Costa Rica para esta Conferencia a la Secretaría Técnica del Comité Nacional del Codex, adscrita al Ministerio de Economía, Industria y Comercio.
+3º—Que las actividades a realizar durante el desarrollo de esta Conferencia, se consideran de importancia para el país en materia de la inocuidad de los alimentos, toda vez que reunirá a profesionales especialistas en esta materia, a nivel nacional e internacional.
+4º—Que la inocuidad de los alimentos se define como el conjunto de condiciones y medidas necesarias durante la producción, elaboración, almacenamiento, distribución y preparación de los alimentos para asegurar que, una vez ingeridos, no representen un riesgo para la salud de la población.
+5º—Que por la relevancia que representa para el país los temas que se discutirán y los acuerdos que se tomen en torno a esta materia, el Ministerio de Economía, Industria y Comercio estima necesario declarar de interés público nacional la actividad citada. Por tanto,
+DECRETAN:
+Artículo 1º—Se declara de interés público nacional, las actividades que organizan las dependencias ministeriales de Economía, Industria y Comercio, Agricultura y Ganadería, Comercio Exterior y de Salud, bajo la coordinación de la Secretaría Técnica del Comité Nacional del Codex adscrita al Ministerio de Economía, Industria y Comercio, con el auspicio de la FAO-Costa Rica, para la celebración de la Conferencia Regional FAO/ OMS sobre la Inocuidad de los Alimentos para las Américas a realizarse en la Ciudad de San José del día 06 al 09 de Diciembre de 2005.

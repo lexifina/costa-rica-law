@@ -1,0 +1,1 @@
+Artículo 2º—Las dependencias tanto del sector público como privado podrán contribuir con recursos económicos y humanos dentro del marco legal respectivo, sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de la actividad indicada.
