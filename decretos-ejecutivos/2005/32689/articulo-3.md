@@ -1,0 +1,4 @@
+Artículo 3º—De los casos en que debe llenarse el formulario. El "Formulario de Evaluación Costo - Beneficio" deberá completarse para los siguientes casos:
+1. Cuando la propuesta de regulación establezca nuevos trámites, requisitos y procedimientos sobre inscripciones, registros o autorizaciones, o modifiquen o eliminen trámites existentes.
+2. Cuando se eliminen trámites, sólo si en adición a tal eliminación se modifican o se crean nuevos trámites, requisitos y procedimientos sobre inscripciones, registros o autorizaciones.
+Cuando la propuesta de regulación sea una reforma a un trámite existente, en la cual únicamente: se eliminan documentos y requisitos innecesarios, se establezcan plazos definidos, se reduzcan los plazos de resolución, o se disminuyan los procedimientos, solamente se deberán llenar la sección 1 (Información General) y el apartado 2.2 del formulario.
