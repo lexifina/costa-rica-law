@@ -1,0 +1,1 @@
+Artículo 2º—Modifícase el gasto presupuestario máximo del año 2005 establecido al Instituto Costarricense del Deporte y la Recreación (ICODER), en el artículo 1° del Decreto Ejecutivo N° 32525-H, publicado en La Gaceta N° 148 del 3 de agosto del 2005, fijándolo en ¢ 3.850,00 millones en ese período.
