@@ -14,3 +14,4 @@ Reglamento de Asamblea Cantonal para la elección de representantes de organizac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-04-22 | la propia norma |
+| 2 | 2005-10-18 | Reglamento municipal 105 (2005-10-18) |
