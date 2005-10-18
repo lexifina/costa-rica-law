@@ -14,3 +14,4 @@ Modifica al Instituto Nacional de Fomento Cooperativo, el gasto presupuestario p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-04-04 | la propia norma |
+| 2 | 2005-10-18 | Decreto Ejecutivo 32775 (2005-10-18) |
