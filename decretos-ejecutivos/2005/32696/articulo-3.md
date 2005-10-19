@@ -1,0 +1,2 @@
+Artículo 3º—Adiciónese un nuevo artículo 166 al Decreto Nº 19010- G, del once de mayo de mil novecientos ochenta y nueve, corriéndose la respectiva numeración de los artículos, que se leerá de la siguiente manera:
+“Artículo 166.—El Director General podrá, en caso necesario, delegar facultades de su competencia, cuando con ello se faciliten los servicios que debe prestar la Dirección General. La delegación podrá ser jerárquica o no jerárquica, de conformidad con lo estipulado en la Ley General de la Administración Pública”.
