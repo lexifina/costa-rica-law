@@ -15,3 +15,4 @@ Reglamento de Capacitación y Estudios
 | --- | --- | --- |
 | 1 | 2005-03-31 | la propia norma |
 | 2 | 2005-09-28 | Reglamento 32 (2005-09-28) |
+| 3 | 2005-10-20 | Reglamento 34 (2005-10-20) |
