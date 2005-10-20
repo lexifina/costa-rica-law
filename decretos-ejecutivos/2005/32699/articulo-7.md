@@ -1,0 +1,3 @@
+Artículo 7º—Selección de árbitros no costarricenses. Corresponderá al Ministro de Comercio Exterior la selección de los candidatos no nacionales, propuestos por Costa Rica para conformar las listas de árbitros de los acuerdos comerciales internacionales ratificados por Costa Rica.
+Para su designación, se enviará una invitación a los candidatos quienes, en caso de aceptar la postulación, deberán expresarlo formalmente.
+Los candidatos propuestos deberán ser profesionales de amplia experiencia y reconocida trayectoria en materia de comercio internacional y solución de controversias comerciales, y deberán cumplir con los requisitos establecidos en el acuerdo comercial internacional para el cual vayan a ser nominados.
