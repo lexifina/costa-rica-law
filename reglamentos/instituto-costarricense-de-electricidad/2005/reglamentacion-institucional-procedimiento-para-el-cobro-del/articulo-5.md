@@ -1,0 +1,1 @@
+Artículo 5º—La Agencia Eléctrica, una vez comprobada la anomalía, deberá, de forma inmediata, realizar su corrección, tanto en el campo como en el Sistema Administración Comercial Eléctrico (SACE), por lo que no será admisible que se continúe facturando en condiciones de inconsistencia.

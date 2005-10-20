@@ -1,0 +1,1 @@
+Artículo 13.—Concluido el punto anterior, se debe retirar la evidencia (equipo dañado, acometida) del ilícito y en su lugar se instalará el equipo y material nuevo que le garantice al abonado la continuidad de su servicio eléctrico. La evidencia y las pruebas correspondientes deberán ser trasladadas a la Agencia Eléctrica para su debida custodia.

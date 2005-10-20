@@ -1,0 +1,1 @@
+Artículo 16.—En la Agencia Eléctrica respectiva debe quedar copia de recibido de la comunicación al abonado con el nombre del notificador, nombre de quien la recibe, fecha y hora en la cual se le notificó la anomalía encontrada en su servicio.

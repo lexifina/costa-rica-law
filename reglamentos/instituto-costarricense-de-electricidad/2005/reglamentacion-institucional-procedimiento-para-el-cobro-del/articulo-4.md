@@ -1,0 +1,1 @@
+Artículo 4º—El funcionario de la Agencia Eléctrica a cargo de la inspección de campo, debe indicarle al abonado el motivo de su inspección y dejar constancia escrita de su visita, mediante copia de la fórmula de inspección antes mencionada.

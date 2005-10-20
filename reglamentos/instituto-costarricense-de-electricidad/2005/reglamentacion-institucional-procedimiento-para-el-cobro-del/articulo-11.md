@@ -1,0 +1,1 @@
+Artículo 11.—Para cada uno de los casos antes indicados, la Agencia Eléctrica confeccionará un expediente que contenga el resultado de la investigación por ella practicada, las conclusiones y toda la documentación que requiera para sustentarla.

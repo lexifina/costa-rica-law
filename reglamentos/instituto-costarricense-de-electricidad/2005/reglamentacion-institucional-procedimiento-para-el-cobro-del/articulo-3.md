@@ -1,0 +1,1 @@
+Artículo 3º—La Agencia Eléctrica, previo a realizar la solicitud de cobro ante el abonado, debe efectuar la investigación de campo correspondiente, utilizando para ello la fórmula “Inspección de Servicio Eléctrico”.

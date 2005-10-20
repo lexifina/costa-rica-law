@@ -1,0 +1,2 @@
+Artículo 18.—Si el abonado presenta las pruebas de descargo y las mismas lo eximen de toda responsabilidad por el uso ilícito, la jefatura de la Agencia Eléctrica, deberá notificarle al abonado de tal resolución y el caso será archivado con toda la documentación respectiva.
+En caso de que las pruebas aportadas no lo eximan de la responsabilidad por el uso ilícito, se le informará al abonado de tal resolución, indicándole los recursos ordinarios que contra la misma caben y además dándole un plazo de diez días hábiles para la cancelación de la energía consumida y no facturada.

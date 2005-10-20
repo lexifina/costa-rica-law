@@ -1,0 +1,1 @@
+Artículo 2º—Una vez que la Agencia Eléctrica haya detectado la anomalía en la facturación de un servicio eléctrico, deberá efectuar las acciones e investigaciones administrativas y técnicas requeridas para proceder a corregirla.

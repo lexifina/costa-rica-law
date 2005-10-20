@@ -1,0 +1,1 @@
+Artículo 17.—Si el abonado no presenta las pruebas de descargo en el plazo establecido y tampoco cancela la energía no facturada, se procederá con el trámite de cobro judicial, para lo cual se deben aportar los antecedentes correspondientes.
