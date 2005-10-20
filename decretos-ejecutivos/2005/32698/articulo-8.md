@@ -1,0 +1,1 @@
+Artículo 8º—El Ministerio de Obras Públicas y Transportes, por medio de la Dirección de Navegación y Seguridad de la División Marítimo Portuaria brindará la asesoría que la Administración de la Terminal Portuaria de Punta Morales le requiera, con el propósito que se adquieran los equipos necesarios para la debida señalización de las áreas descritas en el presente decreto.

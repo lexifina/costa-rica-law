@@ -1,0 +1,1 @@
+Artículo 3º—Zona de fondeo: se define una zona de fondeo de forma circular, de un radio de 800 metros, cuyo centro se ubica en el punto de coordenadas siguientes: Longitud norte 84º 58’ 00”, latitud oeste 10º 02’ 30”. La ubicación de dicha zona deberá aparecer señalada en la carta náutica Nº CR.007.

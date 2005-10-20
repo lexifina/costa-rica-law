@@ -1,0 +1,1 @@
+Artículo 4º—En la zona de fondeo sólo podrá fondear temporalmente aquella embarcación autorizada por la Dirección de Operaciones Portuarias del Instituto Costarricense de Puertos del Pacífico (INCOP).
