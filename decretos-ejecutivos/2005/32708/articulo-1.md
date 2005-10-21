@@ -1,0 +1,13 @@
+Nº 32708
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DEL AMBIENTE Y ENERGÍA
+De conformidad con lo establecido en los incisos 3) y 18) de los artículos 140 y 146 de la Constitución Política, el artículo 27 de la Ley General de la Administración Pública Nº 6227, de 2 de mayo de 1978 y la Ley de Conservación de la Vida Silvestre, Nº 7317, de 30 de octubre de 1992, publicada en La Gaceta Nº 235 de 7 de diciembre de 1992, y
+Considerando:
+1º—Que el artículo 4º de la Ley de Conservación de la Vida Silvestre Nº 7317, declaró de interés público el manejo de la fauna silvestre.
+2º—El Sistema Nacional de Áreas de Conservación del Ministerio del Ambiente y Energía, de conformidad con el artículo 6º de la Ley de Conservación de la Vida Silvestre es el órgano competente en materia de planificación de la flora y de la fauna silvestre, el cual debe procurar todo tipo de medidas para cumplir los preceptos de la ley.
+3º—Que la Asociación de Voluntarios para el Servicio en las Áreas Protegidas, ASVO, es una organización privada sin fines de lucro, debidamente inscrita en el Registro de Asociaciones bajo cédula jurídica número 3-002-098217-17, domicilio fiscal calle 1, entre avenidas 10 y 12, cuyo representante legal es el señor Harry Álvarez Barrientos, cédula de identidad número 1-667-787.
+4º—Que dicha asociación fue fundada en el año de 1988, con el objetivo expreso de apoyar y fortalecer el programa de voluntariado surgido en el año 1985, a instancia del Servicio de Parques Nacionales.
+5º—Que al ser una organización con proyección nacional e internacional con fines de investigación, educación y conservación del medio ambiente, con compromiso social, ha establecido alianzas estratégicas con organismos gubernamentales y no gubernamentales para el cumplimiento de sus fines que le permiten crecer de manera autónoma y autosuficiente, capaz de subvencionar sus propios proyectos y actividades.
+6º—Que dentro de sus objetivos se encuentran el promover la participación y formación ciudadana en materia de conservación de Áreas Silvestres Protegidas, por medio del trabajo voluntario de estudiantes y público en general, dotar a las áreas de conservación de recurso humano para la implementación de proyectos y actividades tendientes a la conservación, protección de los recursos naturales, así como la conservación y mantenimiento de la infraestructura que se necesita en las áreas silvestres protegidas. Por tanto,
+DECRETAN:
+Artículo 1º—Declárase de interés público la Asociación de Voluntarios para el Servicio en las Áreas Protegidas, ASVO, cédula jurídica Nº 3-002-098217, Representante Legal Harry Álvarez Barrientos cédula de identidad número 1-667-787.
