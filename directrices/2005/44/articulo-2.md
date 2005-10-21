@@ -1,0 +1,8 @@
+Artículo 2º—Todas las Unidades Ejecutoras del FODESAF, deberán aplicar el enfoque de derechos humanos y la gestión basada en resultados como estrategias transversales que guiarán la programación de la inversión social. Ambos enfoques se irán introduciendo progresivamente en los procesos de formulación, ejecución, seguimiento y evaluación de la inversión canalizada a través del FODESAF.
+a) El uso del enfoque de derechos humanos en la programación (EDHP) permitirá:
+a.1. Mejorar y ayudar a la sostenibilidad de los esfuerzos de reducción de la pobreza que impulsa el Gobierno de la República, la DESAF y las Unidades Ejecutoras.
+a.2. Fortalecer las capacidades de las Unidades Ejecutoras para que los objetivos de sus programas se orienten a la realización progresiva de los derechos humanos, basados en los principios de, universalidad, equidad, no discriminación y participación de otros responsables en el cumplimiento de los derechos.
+a.3. Dar uso más eficiente y eficaz a la inversión asignada a los programas o proyectos sociales, posibilitando el progreso en la realización de los derechos humanos y especialmente en los derechos de la niñez, para alcanzar y sostener los resultados esperados.
+b) La utilización del enfoque de gerencia basada en resultados (GBR) a su vez servirá para:
+b.1. Asegurar que el conjunto de las intervenciones sea suficiente para alcanzar los resultados esperados.
+b.2. Desarrollar estrategias de planificación y presupuestación de los programas sociales basadas en resultados medibles de producto, efecto y de contribución al impacto en las condiciones de vida de la población beneficiaria, y que sean verificables, favoreciendo el mejoramiento de la organización, la transparencia, la autoevaluación y la rendición de cuentas.
