@@ -1,0 +1,5 @@
+Artículo 14.—La asignación de los números de registro se regirá por las siguientes condiciones:
+14.1. El Ministerio asignará un número único de registro a todo EMB registrado.
+14.2. En caso de familias de EMB, se podrán registrar todos los miembros de la familia de EMB en un solo registro y se les asignará un único número de registro seguido de un código alfanumérico que identifique cada miembro. Si se desea incluir otro miembro de la familia deberá hacerse una notificación a la Dirección, mediante oficio firmado por el titular del registro.
+14.3. En caso de grupos de EMB y grupos de familia de EMB, se registrarán bajo un único número de registro, cualquier modificación en la combinación de los EMB que forman el grupo o grupo de familia, requerirá de un nuevo registro.
+14.4. En caso de kits de pruebas, se realizará un único registro y se les asignará un único número de registro seguido de un código alfanumérico que identifique cada miembro. En caso de que se modifique la composición del kit de prueba requerirá un nuevo registro.

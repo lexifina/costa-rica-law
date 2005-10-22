@@ -1,0 +1,1 @@
+Artículo 17.—La verificación o el control estatal del cumplimiento de lo aprobado en la notificación o en el registro, así como de las disposiciones establecidas en este reglamento, la realizará el Ministerio de Salud o los inspectores que para tales efectos autorice el Ministerio.

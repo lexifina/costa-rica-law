@@ -1,0 +1,1 @@
+Artículo 19.—Queda facultado el Ministro de Salud para que por modificación del decreto, actualice la clasificación de los EMB citada en el capítulo segundo de este reglamento, incorporando las resoluciones administrativas, según lo establecido en el artículo 4º.
