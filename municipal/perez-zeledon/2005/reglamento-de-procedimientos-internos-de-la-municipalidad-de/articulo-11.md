@@ -1,0 +1,6 @@
+Artículo 11.—Principios generales para la generación de tipos documentales municipales. En la producción de los distintos tipos de documentos que sean necesarios generar en la institución se usará una numeración consecutiva para la cual se considerarán los siguientes principios:
+a) Primero contendrá una sigla compuesta por tres letras la cual identificara el tipo documental de que se trata.
+b) Segundo contendrá un número consecutivo en cada caso y de acuerdo a cada tipo de documento que corresponda.
+c) Tercero contendrá el año en que se emite expresado mediante los dos últimos dígitos del número que expresa ese dato.
+d) Cuarto contendrá las siglas de la subactividad, actividad, subproceso, proceso, o nivel de la estructura organizacional de la institución a que pertenece el funcionario que la emite de acuerdo a las siglas respectivas que le han sido asignadas.
+La definición de las siglas institucionales que se usarán en los casos de los incisos a) y d), de este artículo corresponderá al Proceso de Archivo Municipal, el cual lo comunicará al resto del personal municipal a través de circular y entrará en vigencia de conformidad con las condiciones de la comunicación formal que se haya dado.

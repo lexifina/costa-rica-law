@@ -1,0 +1,1 @@
+Artículo 42.—Del accionado. La persona física o jurídica que ha sido investigada a través de este procedimiento o aquella que haya resultado implicada en la investigación como parte de la averiguación de la verdad real, se considerará parte del procedimiento para todo lo que le favorezca.

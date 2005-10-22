@@ -1,0 +1,9 @@
+Artículo 27.—Requisitos de la relación de hechos. La relación de hechos de que habla el artículo anterior deberá redactarse a través de una forma institucionalmente acogida al efecto y que tendrá que contener, bajo pena de nulidad, al menos los siguientes elementos:
+a) Un encabezado: En el que se indicará el nombre del órgano que dirige el procedimiento y que hace la relación de hechos, el número de forma, el tipo de asunto tratado e investigado, las partes que intervienen en el asunto y el número de expediente que se ha iniciado en contra del supuesto responsable.
+b) Una relación de hechos: En que se describirá de manera clara, detallada y circunstanciada uno a uno los hechos, los actos o las manifestaciones, presumiblemente anómalos o irregulares, con cita de las disposiciones jurídicas o técnicas incumplidas según el caso.
+Además se hará referencia a la prueba que sustenta que se aporta o se infiere del expediente.
+c) Identificación: De las personas sobre las cuales podría recaer algún tipo de responsabilidad y su grado de participación en los hechos que se estiman irregulares, junto con sus calidades, número del documento de identificación y domicilio exacto donde puedan ser habidas, si se tienen.
+d) Emplazamiento e intimación: De conformidad con lo que establece el artículo siguiente.
+e) Lugar, hora y fecha del oficio que se pone en conocimiento a las partes.
+f) Nombre y firma del funcionario responsable del oficio y de dar inicio al procedimiento.
+g) Constancia de notificación: En la que se establezca el lugar, la hora y fecha exacta de la notificación practicada al presunto responsable, el nombre y calidades del mismo así como las del funcionario que notifica y la firma de ambos. En caso de que el notificado no quisiera firmar la notificación, así se hará constar mediante razón en el documento, dando fe de ello el funcionario notificador.

@@ -1,0 +1,1 @@
+Artículo 32.—De la forma y contenido del acta de la comparecencia. En esta comparecencia se levantará un acta en la que se consignará las calidades de los funcionarios y de las partes intervinientes y sus abogados si fuere del caso. Además se consignará textualmente lo que señalen los testigos, las preguntas que se le hagan por todas las partes que intervienen y sus respuestas.

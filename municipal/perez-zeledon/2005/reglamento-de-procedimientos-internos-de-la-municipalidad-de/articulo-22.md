@@ -1,0 +1,5 @@
+CAPÍTULO II
+Del procedimiento ordinario
+Artículo 22.—Inicio del procedimiento. El procedimiento ordinario que se describen en este Reglamento podrá iniciarse de oficio o a instancia de parte interesada mediante solicitud o denuncia escrita o verbal.
+Si se tratare de una solicitud, ésta deberá presentarse por escrito de acuerdo a las formas y procedimientos que al efecto tenga descritas la Municipalidad y exigen los Reglamentos y las demás normas vigentes para cada caso. Estas formas y procedimientos deberán ser accesibles a los munícipes a través de su exposición en lugares públicos dentro de las oficinas o por cualquier otro medio de divulgación institucional.
+Las denuncias podrán ser presentadas también verbalmente siempre y cuando se hagan ante el funcionario correspondiente de acuerdo a la competencia del cargo y en ese acto se levante un acta de denuncia en que se contenga fiel y sucintamente los hechos que se describen por el interesado. La denuncia sólo se admitirá si el denunciante acepta firmar el acta que se ha levantado al efecto, de otro modo no se le dará trámite.

@@ -1,0 +1,5 @@
+TÍTULO TERCERO
+Disposiciones finales y transitorias
+CAPÍTULO I
+Disposiciones finales
+Artículo 71.—Vigencia de esta norma. La presente norma entrará en vigencia una vez aprobado por el Concejo Municipal y después de otorgada la audiencia de diez días hábiles, concedida a la comunidad para que se pronuncie al respecto. Y si habiendo transcurrido estos diez días hábiles después de publicado como proyecto en el Diario Oficial La Gaceta la Municipalidad de Pérez Zeledón, acoge alguna modificación o enmienda sugerida por ciudadanos de la comuna ésta deberá constar íntegramente en una nueva publicación junto con el aviso de entrada en vigencia del que se habla en el párrafo siguiente. De no existir objeción alguna o si habiéndola el Concejo Municipal no la acogiere entonces se publicará un aviso de que operó la publicación oficial y de que el Reglamento ha entrado en vigencia el día inmediato después de aquel de la publicación del último aviso en un periódico de circulación nacional o en el Diario Oficial respectivo.

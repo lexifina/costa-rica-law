@@ -1,0 +1,1 @@
+Artículo 49.—Trámite de las pruebas. En el procedimiento sumario el Órgano Director ordenará y tramitará las pruebas en la forma que crea más oportuna, determinará el orden, términos y plazos de los actos a realizar, así como la naturaleza de estos, sujeto únicamente a las limitaciones que señala la LGAP.

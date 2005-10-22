@@ -1,0 +1,1 @@
+Artículo 72.—Derogatoria. El presente Reglamento deroga totalmente el Reglamento de Procedimientos Internos que fuere aprobado por la Municipalidad en acuerdo del artículo 5º, inciso c), de la sesión Nº 090-99 del 5 de octubre de 1999, y que fuere publicado en el Alcance Nº 92 de La Gaceta Nº 227 del 23 de noviembre de 1999 y sus reformas.

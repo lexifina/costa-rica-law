@@ -1,0 +1,1 @@
+Artículo 58.—Plano del perímetro. Para los efectos de este artículo el Ingeniero Municipal levantará en el término definido en los transitorios de este Reglamento un plano en el que defina con claridad y de manera grá.ca los límites del perímetro de notificaciones de esta Municipalidad y éste se exhibirá en al menos dos áreas visibles al público dentro de la Institución.

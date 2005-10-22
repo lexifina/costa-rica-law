@@ -1,0 +1,21 @@
+MUNICIPALIDAD DE PÉREZ ZELEDÓN
+CONCEJO MUNICIPAL
+AVISO DE PUBLICACIÓN Y VIGENCIA DEL
+REGLAMENTO DE PROCEDIMIENTOS INTERNOS
+En el Diario Oficial La Gaceta Nº 170 del 5 de setiembre del 2005, se publicó el texto oficial del Reglamento de Procedimientos Internos de la Municipalidad de Pérez Zeledón. Se otorgó un término de 10 días hábiles para oposición por parte de la ciudadanía al mismo. La única oposición formulada provino del señor Marcos Carazo Sánchez, en escrito recibido el 19 de setiembre del 2005 en la Secretaría Municipal, y la misma fue rechazada de plano por el Concejo Municipal, a través de dictamen de la Comisión de Jurídicos aprobado en sesión 180-05, artículo 6, inciso 1 del 11 de octubre del 2005. De esta manera se declara como texto oficial el que se publicó en fecha antes referida. Este Reglamento entra en vigencia el día inmediato siguiente al de la publicación de este aviso.
+(NOTA DE SINALEVI: Tal como se indica en el párrafo anterior, el texto corresponde al publicado en La Gaceta N° 170 del 5 de setiembre del 2005)
+Considerando:
+I.—La necesidad del ejercicio de la potestad normativa que tienen las Municipalidades de Costa Rica, derivada precisamente del Principio de Autonomía Municipal consagrado en el artículo 170 de la Constitución Política.
+II.—Que los artículos 171 y 173 de la Constitución Política establecen la existencia de una Justicia Administrativa Municipal en la Administración Pública costarricense la cual garantiza la existencia de un Procedimiento Administrativo como instrumento de tutela jurídica de los derechos e intereses en la relación Administrado-Administración.
+III.—Que el Código Municipal en su artículo 13, incisos c) y d), autoriza al Concejo Municipal a dictar los reglamentos necesarios para la organización interna de las municipalidades y para la adecuada prestación de los servicios públicos en general.
+IV.—Que el Título VI del Código Municipal y la LGAP se consideran la base de la legislación del procedimiento administrativo municipal el cual por estar enunciado de manera general requiere de un proceso de concreción para el caso de la Municipalidad de Pérez Zeledón a través de un Reglamento Interno.
+IV BIS.—Que el presente Reglamento regulará en lo esencial el procedimiento sancionatorio municipal y aquellos otros procesos que, exigiendo de la aplicación de un debido proceso para su concreción, no lo tienen previsto en la normativa actual existente. Lo anterior sin detrimento de que los procedimientos especiales de cada proceso administrativo municipal queden regulados en los reglamentos específicos de cada proceso”.
+V.—Que se vuelve imperioso para la organización interna municipal y para promover la certeza jurídica en las relaciones con los administrados dentro de la Municipalidad de Pérez Zeledón, la promulgación del presente Reglamento de Procedimientos Internos de la Institución. Por tanto,
+El Concejo Municipal de Pérez Zeledón mediante acuerdos de la sesiones número 120-04 y 126-04, artículos 5º y 9º, incisos 9) y 3), de los días 17 de agosto y 28 de setiembre del año 2004, todo respectivamente emite el presente Reglamento de Procedimientos Internos de la Municipalidad de Pérez Zeledón, que dice así:
+TÍTULO PRIMERO
+Disposiciones generales
+CAPÍTULO I
+Del ámbito material y geográfico y
+de las principales definiciones
+Artículo 1º—Finalidad de este Reglamento. Este Reglamento se dicta con la finalidad de asegurar el acertado cumplimiento del ejercicio de las potestades que el Ordenamiento Jurídico le otorga a la Municipalidad de Pérez Zeledón para tramitar los procedimientos administrativos que le corresponde verificar a esta institución y que se presenten a su conocimiento. Asimismo tiene la finalidad de garantizar el respeto a los derechos fundamentales y las garantías del debido proceso que enuncia la Constitución Política para el administrado.
+Lo anterior, sin perjuicio de las competencias de los órganos municipales y de las facultades y atribuciones de que gozan los funcionarios de la institución municipal y que le han sido encomendadas por la Ley General de Administración Pública, por la Ley Reguladora de la Jurisdicción Contenciosa Administrativa, así como por las emanadas del Código Municipal y por la Constitución Política de Costa Rica.

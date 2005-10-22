@@ -1,0 +1,8 @@
+Artículo 33.—De los testigos y demás pruebas en la comparecencia. Si fuere necesario en la comparecencia recibir la declaración de testigos se seguirá el siguiente procedimiento:
+a) Al testigo se le invitará para que se identifique con documento idóneo.
+b) Se le prevendrá de su obligación de decir la verdad acerca de los hechos investigados.
+c) Se le preguntará si conoce a las partes, si tiene parentesco con alguno de ellos, si tiene alguna relación de trabajo o de subordinación con alguno de ellos y finalmente si tiene algún interés en la resolución de este asunto. Sus respuestas a estas preguntas se consignarán textualmente.
+d) Luego se le invitará para que declare todo lo que sabe acerca de los hechos investigados. Se procurará no interrumpirlo. Su declaración se consignará de manera textual cuidando anotar todos los detalles de lo expresado.
+e) Posteriormente se procederá a interrogarlo en el siguiente orden: primero preguntará el funcionario que funge como órgano de la comparecencia, luego se le da la palabra a la parte o a su abogado que ofreció al testigo, luego preguntarán las otras partes en el orden en que fueron emplazados y finalmente preguntarán los otros miembros del órgano de la comparecencia. Las manifestaciones de las partes y las de los testigos se consignarán en el acta con fidelidad en este proceso.
+f) El Órgano Director podrá preguntar y repreguntar cuantas veces sea necesario para buscar la verdad real de los hechos.
+Igualmente se procederá con las manifestaciones verbales que hagan las partes, los peritos o las autoridades en la comparecencia. La Ley General de Administración Pública establecerá las demás reglas a seguir en esta comparecencia.

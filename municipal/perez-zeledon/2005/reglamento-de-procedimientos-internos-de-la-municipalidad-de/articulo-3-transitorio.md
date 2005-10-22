@@ -1,0 +1,1 @@
+Transitorio 3º—Término para nombrar nómina de órganos directores al Concejo. Se concede un término de dos meses después de la entrada en vigencia de este Reglamento al Concejo Municipal a efectos de que proceda a nombrar la nómina de órganos directores de la que habla el artículo 52, inciso b), de este Reglamento.

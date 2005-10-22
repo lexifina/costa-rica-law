@@ -1,0 +1,1 @@
+Artículo 73.—Orden público y normas supletorias. Este Reglamento se declara de orden público y tendrán aplicación supletoria a él tanto la Ley General de Administración Pública, el Código Municipal así como los principios generales del Derecho en General y los del Derecho Administrativo y Municipal. Igualmente procederá con las otras fuentes materiales del derecho.

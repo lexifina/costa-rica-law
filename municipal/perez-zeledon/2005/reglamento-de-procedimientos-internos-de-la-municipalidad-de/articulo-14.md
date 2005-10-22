@@ -1,0 +1,1 @@
+Artículo 14.—Salida del expediente. En todos los casos la salida de un expediente de la institución se dará únicamente por requerimiento de los Tribunales de Justicia, para lo cual mediará un acta de secuestro, o por solicitud de la Contraloría General de la República.

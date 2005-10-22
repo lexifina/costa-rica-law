@@ -1,0 +1,1 @@
+Artículo 9º—Aplicación supletoria de otras normas. La Ley General de Administración Pública, el Código Municipal y el Código Procesal Civil son de aplicación supletoria cuando así lo permitan los principios del Derecho Administrativo.

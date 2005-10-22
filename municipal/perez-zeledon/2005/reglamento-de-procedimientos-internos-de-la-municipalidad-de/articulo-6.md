@@ -1,0 +1,1 @@
+Artículo 6º—Principios que informan la materia. Los principios generales del Derecho Administrativo informarán esta materia de potestades, competencias, atribuciones y facultades y la misma se resolverá de conformidad con lo establecido en sendos Títulos Terceros de la LGAP y el Código Municipal, respectivamente.

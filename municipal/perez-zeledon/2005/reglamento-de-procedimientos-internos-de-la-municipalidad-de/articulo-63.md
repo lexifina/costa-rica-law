@@ -1,0 +1,1 @@
+Artículo 63.—Comunicaciones en el extranjero. En caso de ser necesario notificar a alguna de las partes en el extranjero o a persona jurídicas o físicas cuya personería se encuentre vencida, se procederá conforme lo dispone la legislación procesal civil y el derecho común.

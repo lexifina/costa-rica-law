@@ -1,0 +1,1 @@
+Artículo 17.—Negativa de acceso al expediente. La negativa de acceso al expediente administrativo deberá ajustarse a lo dispuesto en el artículo 273 de la Ley General de Administración Pública. Deberá ser suficientemente motivada y contra ella cabrán los recursos ordinarios que señalan el Código Municipal y este Reglamento.

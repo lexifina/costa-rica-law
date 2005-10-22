@@ -1,0 +1,2 @@
+Artículo 70.—Anticipación. Los plazos y términos del procedimiento administrativo, destinados a la municipalidad, podrán ser reducidos o anticipados, respectivamente, por razones de oportunidad o conveniencia, en virtud de resolución que adoptará el director del procedimiento.
+La resolución que así lo determine deberá cumplir los requisitos que señala este Reglamento y tendrá los recursos ordinarios.
