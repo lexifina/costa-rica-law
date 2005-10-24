@@ -1,0 +1,1 @@
+Artículo 4º—Esta obligación es extensiva a todos aquellos actores que, sin formar parte del Poder Ejecutivo integran el aparato estatal, como lo son las Instituciones Descentralizadas, las Municipalidades, la Superintendencia de Pensiones (SUPEN), Superintendencia General de Entidades Financieras (SUGEF), Superintendencia General de Valores (SUGEVAL) y Entidades Financieras.

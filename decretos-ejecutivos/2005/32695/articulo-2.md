@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones del Poder Ejecutivo responsables de la ejecución de los programas, los proyectos y las acciones contempladas en el Plan Nacional sobre Drogas 2005-2007, se comprometerán a incluir en sus respectivos Planes Anuales Operativos 2005, 2006 y 2007, las acciones en las cuales participan directamente.
