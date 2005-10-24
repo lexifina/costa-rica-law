@@ -1,0 +1,1 @@
+Artículo 3º—Firma de los estados financieros. Los estados financieros deben presentarse debidamente firmados por el Contador a cargo y requieren además la firma y aprobación del Director Ejecutivo o jerarca de la Institución correspondiente.
