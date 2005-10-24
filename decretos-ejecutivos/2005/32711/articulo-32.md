@@ -1,0 +1,1 @@
+Artículo 32.—Organización operativa del personal. Todo el personal técnico, administrativo y legal del Departamento de Administración de Proyectos podrá conformar los equipos de trabajo específicos y temporales mientras está en marcha cada proyecto, obra o actividad. El personal de cada equipo de trabajo se reportará directamente al Coordinador del Proyecto asignado.

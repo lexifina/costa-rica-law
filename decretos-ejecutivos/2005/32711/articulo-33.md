@@ -1,0 +1,1 @@
+Artículo 33.—En lo dispuesto por el presente Reglamento, en materia de notificaciones rige supletoriamente la Ley de Notificaciones, Citaciones y otras Comunicaciones Judiciales y los reglamentos especiales.
