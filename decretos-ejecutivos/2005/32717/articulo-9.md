@@ -1,0 +1,4 @@
+Artículo 9º—Cálculo de plazos del acto de apertura de ofertas. Para efectos del cálculo de los plazos mínimos para recibir las ofertas que establecen la Ley de Contratación Administrativa y su Reglamento General, éstos se computarán de acuerdo con las siguientes reglas:
+a) Si se trata de una licitación pública o de una licitación por registro que deba publicarse en el Diario Oficial La Gaceta, será la publicación en este último la que determine el inicio del plazo.
+b) Si se trata de una licitación por registro que no requiere publicación en La Gaceta; de una licitación restringida, o de una contratación directa, será la comunicación al último de los potenciales oferentes invitados, la que determine el inicio del plazo.
+La oferta que se envía electrónicamente por CompraRED, debe ser remitida antes de la apertura de las ofertas, de lo contrario el sistema no la recibirá, pues éste cuenta con un control estricto de la hora y fecha de la apertura de las mismas.

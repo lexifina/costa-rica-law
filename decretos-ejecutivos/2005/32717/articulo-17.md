@@ -1,0 +1,1 @@
+Artículo 17.—Sobre la autenticidad del contenido del mensaje. Para todos los efectos, prevalecerá el contenido del mensaje que de acuerdo a los registros de CompraRED, se demuestre que fue enviado o recibido utilizando los mecanismos de seguridad aplicados en CompraRED, como son la firma digital; la encriptación, entre otros.

@@ -1,0 +1,1 @@
+Artículo 31.—Acuse de recibo. Cada vez que un proveedor envíe un documento por CompraRED, se le remitirá un correo con el acuse de recibo electrónico, el que permitirá acreditar la fecha y hora de recepción.

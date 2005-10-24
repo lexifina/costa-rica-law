@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del administrador y seguridad del sistema
+Artículo 22.—Administrador del sistema. La administración de CompraRED estará a cargo de la Dirección General de Administración de Bienes y Contratación Administrativa, con el apoyo técnico de la Dirección de Informática, ambas dependencias del Ministerio de Hacienda, las cuales deberán velar porque el sistema cumpla con todos los requisitos que en materia de seguridad señala el presente Reglamento; de manera tal que se garantice la identificación del emisor y receptor del mensaje, la conservación del contenido original de cada documento electrónico que se reciba y se envíe, y se permita la impresión del mismo.

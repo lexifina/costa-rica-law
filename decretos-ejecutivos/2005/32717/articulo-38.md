@@ -1,0 +1,1 @@
+Artículo 38.—Precio base de la subasta. La Administración se reserva la facultad de establecer en las cláusulas cartelarias, un precio base o de mercado que servirá de límite superior para adjudicar ofertas.

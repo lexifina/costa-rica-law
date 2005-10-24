@@ -1,0 +1,1 @@
+Artículo 18.—Comunicaciones a ofertas conjuntas o en consorcio. En la presentación de ofertas en consorcio o conjuntas, se tendrá por notificado el acto administrativo con la comunicación a una de las personas físicas o jurídicas involucradas en la oferta, cuando la Administración lo haya autorizado en las bases del concurso.
