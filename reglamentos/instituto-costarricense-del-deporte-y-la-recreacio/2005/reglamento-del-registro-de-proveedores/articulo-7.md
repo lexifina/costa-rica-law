@@ -1,0 +1,1 @@
+Artículo 7º—Incorporación. Una vez verificado que la información y documentos presentados son correctos el proveedor será incorporado, se incluirá en el sistema automatizado y se le asignará un código, notificándose de ello.
