@@ -14,3 +14,4 @@ Reforma Reglamento de Construcciones del INVU
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-09-24 | la propia norma |
+| 2 | 2005-10-24 | Reglamento 5508 (2005-10-24) |
