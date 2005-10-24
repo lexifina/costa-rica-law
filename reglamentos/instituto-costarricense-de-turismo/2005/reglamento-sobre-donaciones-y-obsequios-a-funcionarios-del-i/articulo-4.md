@@ -1,0 +1,2 @@
+Artículo 4º—Cualquier obsequio entregado a un funcionario como gesto de cortesía o costumbre diplomática por parte de un sujeto de Derecho Internacional, además de informarlo a la Junta Directiva y a la Auditoría General dentro de los siguientes cinco días hábiles a su recepción, deberá ser remitido dentro del mismo plazo al Departamento Administrativo para su valoración.
+En caso que el funcionario no se encuentre en el país, el plazo iniciará a partir del día hábil siguiente a su regreso al país.

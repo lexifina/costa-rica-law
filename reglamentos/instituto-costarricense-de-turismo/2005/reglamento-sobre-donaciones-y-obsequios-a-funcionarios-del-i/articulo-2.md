@@ -1,0 +1,2 @@
+Artículo 2º—Se exceptúan de la prohibición anterior las condecoraciones o galardones de carácter honorífico, cultural, académico o científico que reciba cualquier funcionario. No obstante, subsiste la obligación de informar de dicha circunstancia a la Junta Directiva y a la Auditoría General, dentro de los siguientes cinco días hábiles a su recepción, con indicación de la estimación del valor aproximado del bien recibido.
+En caso que el funcionario no se encuentre en el país, el plazo iniciará a partir del día hábil siguiente a su regreso al país.

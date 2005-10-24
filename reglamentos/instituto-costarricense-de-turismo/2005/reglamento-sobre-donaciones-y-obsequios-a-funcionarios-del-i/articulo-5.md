@@ -1,0 +1,1 @@
+Artículo 5º—En caso que el valor del bien obsequiado a un funcionario como gesto de cortesía o costumbre diplomática por parte de un sujeto de Derecho Internacional, sea inferior a un salario base, pasará a ser propiedad de la Institución, el funcionario al que se le entregó el bien deberá informarlo a la Junta Directiva y a la Auditoría General.

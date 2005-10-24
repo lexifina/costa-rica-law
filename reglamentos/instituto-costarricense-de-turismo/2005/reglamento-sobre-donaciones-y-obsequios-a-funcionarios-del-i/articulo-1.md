@@ -1,0 +1,6 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+En sesión ordinaria de Junta Directiva Nº 5379, artículo 5º, inciso VII), celebrada el día 20 de setiembre del 2005, se acuerda: a) Acoger la recomendación de la Gerencia, remitida mediante oficio G-1713-2005, así como la recomendación legal dada mediante oficio DL-1290-2005, y aprobar el Reglamento sobre Donaciones y Obsequios a Funcionarios del Instituto Costarricense de Turismo, en atención al acuerdo de Junta Directiva comunicado mediante oficio SJD-724-2005 y con el propósito de regular lo relacionado con el artículo 43 del Reglamento a la Ley Nº 8422, Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública,
+REGLAMENTO SOBRE DONACIONES Y OBSEQUIOS
+A FUNCIONARIOS DEL INSTITUTO
+COSTARRICENSE DE TURISMO
+Artículo 1º—Prohibición general. De conformidad con lo establecido en el artículo 40 del Reglamento a la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y el artículo 45, inciso a), del Reglamento Autónomo de Trabajo del Instituto Costarricense de Turismo, se prohíbe a todos los funcionarios recibir dádivas, obsequios, regalos, premios, recompensas o cualquier otra ventaja como retribución por actos u omisiones inherentes a sus cargos.

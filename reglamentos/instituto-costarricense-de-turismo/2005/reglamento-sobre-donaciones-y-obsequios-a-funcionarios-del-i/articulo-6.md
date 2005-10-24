@@ -1,0 +1,1 @@
+Artículo 6º—En caso que el valor del obsequiado a un funcionario como gesto de cortesía o costumbre diplomática por parte de un sujeto de Derecho Internacional, sea superior a un salario base, el Departamento Administrativo deberá proceder conforme lo establece el artículo 45 del Reglamento a la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
