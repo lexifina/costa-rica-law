@@ -1,0 +1,1 @@
+Artículo 26.—Restricciones. Queda prohibido a todos los funcionarios del Ministerio o de la Presidencia abrir o reparar los recursos informáticos o trasladarlos a terceros para evaluaciones o reparaciones, sin autorización de la Dirección General en coordinación de la Dirección de Informática y sin el trámite respectivo en la Proveeduría Institucional.

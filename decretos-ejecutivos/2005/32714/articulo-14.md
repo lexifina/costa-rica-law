@@ -1,0 +1,1 @@
+Artículo 14.—Software con licencia. En los equipos de cómputo y telecomunicaciones únicamente se podrán utilizar los programas de los cuales se disponga de las licencias o llaves físicas para uso, avaladas por el fabricante y los sistemas de información desarrollados por el Ministerio o la Presidencia.

@@ -1,0 +1,1 @@
+Artículo 12.—Resguardo de manuales y licencias. La Dirección de Informática, bajo la responsabilidad de su Director, será la encargada del resguardo y distribución de manuales originales técnicos y de usuario, así como de los medios físicos (tales como cd, dvd y diskette) y las licencias de sistemas de software que sean propiedad del Ministerio o de la Presidencia.

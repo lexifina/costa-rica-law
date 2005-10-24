@@ -1,0 +1,3 @@
+CAPÍTULO X
+Solicitud y actualización de recursos informáticos
+Artículo 46.—Solicitud. Para que se le de trámite a una solicitud de actualización de recursos informáticos, es necesario que el requerimiento se formule por escrito y con la justificación correspondiente. Todas las solicitudes para actualización deben ser canalizadas a través de los encargados de soporte informático y con el visto bueno de las jefaturas correspondientes. Esta solicitud debe ser remitida al Comité Gerencial de Informática para su estudio y debe incluir una descripción detallada del equipo que se actualizará, así como, la utilidad que se le dará, esto, de acuerdo a lo estipulado en el artículo 47 de este Reglamento.

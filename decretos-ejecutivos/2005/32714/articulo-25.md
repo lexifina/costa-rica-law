@@ -1,0 +1,1 @@
+Artículo 25.—Recursos críticos. Para los recursos considerados como críticos en la infraestructura de cómputo y telecomunicaciones, es responsabilidad de la Dirección de Informática, colaborar en la elaboración de los contratos en la parte técnica y prestar el servicio de mantenimiento correctivo y preventivo.

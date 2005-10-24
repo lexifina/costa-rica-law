@@ -1,0 +1,1 @@
+Artículo 30.—Equipos de telecomunicaciones. Los equipos de telecomunicaciones que tengan configuraciones especiales deben disponer de una palabra de paso para evitar alteraciones o daños ocasionados por la manipulación no autorizada de los equipos.

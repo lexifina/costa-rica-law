@@ -1,0 +1,1 @@
+Artículo 9º—Pertenencia de equipos, software y servicios. Los equipos, software y el derecho de uso de servicios (Web, correo electrónico) asignados a cada funcionario para el desarrollo de sus labores son propiedad del Ministerio o de la Presidencia.

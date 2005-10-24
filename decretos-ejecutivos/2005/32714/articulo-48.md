@@ -1,0 +1,1 @@
+Artículo 48.—Presupuesto. Es responsabilidad de cada una de las dependencias planificar y realizar la solicitud para asegurar el contenido presupuestario para la adquisición de sus equipos de cómputo (computadoras, impresoras, switches, concentradores, etc.).

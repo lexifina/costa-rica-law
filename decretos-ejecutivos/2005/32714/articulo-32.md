@@ -1,0 +1,1 @@
+Artículo 32.—Sistemas de seguridad. Los despachos que tengan recursos informáticos, deberán disponer como mínimo, de un sistema de seguridad (extintores contra fuego) y controles manuales o electrónicos de acceso a dichas áreas.

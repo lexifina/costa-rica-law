@@ -1,0 +1,1 @@
+Artículo 16.—Software de entretenimiento. En ningún caso se debe instalar o utilizar software de entretenimiento (como juegos), música o videos, que no sean propios de las labores encomendadas, en las computadoras y servidores propiedad del Ministerio o de la Presidencia.

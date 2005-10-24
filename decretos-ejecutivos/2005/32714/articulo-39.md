@@ -1,0 +1,1 @@
+Artículo 39.—Evaluación de sistemas. La Dirección de Informática, tendrá la facultad de supervisar y revisar cualquier sistema de información desarrollado en el Ministerio o la Presidencia, para asegurar el uso racional de los recursos de cómputo.

@@ -1,0 +1,1 @@
+Artículo 5º—Desecho de recursos. No se podrá desechar un recurso informático sin el dictamen técnico correspondiente de la Dirección de Informática y siguiendo el trámite establecido. Cuando no proceda la exclusión, esta elaborará una propuesta de reutilización o reasignación.

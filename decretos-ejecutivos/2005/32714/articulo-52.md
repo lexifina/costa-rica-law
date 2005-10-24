@@ -1,0 +1,1 @@
+Artículo 52.—Se considerará falta grave para efectos de la sanción respectiva según el Reglamento Autónomo de Organización y Servicio de la Presidencia de la República y Ministerio de la Presidencia, la infracción a las siguientes disposiciones contempladas en el presente Reglamento en los artículos 05, 17 y 18.

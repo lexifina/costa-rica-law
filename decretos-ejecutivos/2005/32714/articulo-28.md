@@ -1,0 +1,1 @@
+Artículo 28.—Respaldo de información. Es responsabilidad de los directores de cada despacho, así como de los funcionarios de la Dirección de Informática y encargados de soporte técnico, velar porque se cumplan las políticas para respaldar la información en medios magnéticos para su restauración en caso de destrucción parcial o total.
