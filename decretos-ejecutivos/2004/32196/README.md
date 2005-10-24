@@ -14,3 +14,4 @@ Reglamento para el Uso de Instalaciones del Ministerio de Cultura, Juventud y De
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-21 | la propia norma |
+| 2 | 2005-10-24 | Decreto Ejecutivo 32768 (2005-10-24) |
