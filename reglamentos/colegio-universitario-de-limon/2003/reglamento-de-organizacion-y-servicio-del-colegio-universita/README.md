@@ -14,3 +14,4 @@ Reglamento de organización y servicio del Colegio Universitario de Limón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-03-01 | la propia norma |
+| 2 | 2005-10-25 | Reglamento 0 (2005-10-25) |
