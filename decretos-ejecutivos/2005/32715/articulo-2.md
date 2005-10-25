@@ -1,0 +1,1 @@
+Artículo 2º—Cualquiera de las tarifas anteriores, deberán cancelarse en moneda de circulación nacional o su equivalente en dólares, moneda de los Estados Unidos de América, al tipo de cambio oficial, en la cuenta número 112156-5, del Fondo de Vida Silvestre del Banco Nacional de Costa Rica.
