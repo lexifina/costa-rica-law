@@ -1,6 +1,4 @@
-ARTICULO 108.- Será sancionado con multa de diez mil colones
-(¢10.000), quien extraiga o comercie, sin autorización, con raíces o
-tallos de helechos arborescentes.
-( Texto modificado por Resolución de la Sala Constitucional Nº
-1781-97 de las 16:00 horas del 1º de abril de 1997 ).
-NOTA: mediante el artículo 2°inciso b) del Decreto Ejecutivo No. 30364 de 2 de marzo de 2002, se actualizan los montos aquí especificados de la siguiente forma: b) Para la contravención indicada en el artículo 108, se fija una mufla de veintitrés mil cuatrocientos colones (¢23.400,00).
+ARTICULO 108.-
+Será sancionado con multa de treinta y un mil ciento cuarenta y cinco colones netos (¢31.145,00), quien extraiga o comercie, sin autorización, con raíces o tallos de helechos arborescentes.
+( Texto modificado por Resolución de la Sala Constitucional Nº 1781-97 de las 16:00 horas del 1º de abril de 1997 ).
+(Así modificado el monto anterior por el artículo 2° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
