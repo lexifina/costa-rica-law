@@ -1,0 +1,40 @@
+N° 32747-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA,
+En uso de las facultades que le confieren los incisos 3), 10) y 18) de los artículos 140 y 146 de la Constitución Política de la República de Costa Rica, los artículos 25, inciso 1), 27, inciso 1) y 28, inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; Ley Nº 8360 del 24 de junio de 2003, Decreto Ejecutivo Nº 31536COMEX-H de 24 de noviembre del 2003, Ley Nº 7557 de 20 de octubre de 1995 y sus reformas.
+Considerando:
+I.- Que mediante Ley Nº 8458, publicada en La Gaceta Nº 205 del 25 de octubre del 2005, se modificación el artículo 86 de la Ley General de Aduanas, Ley Nº 7557, en el que se dispuso que la declaración aduanera debe venir acompañada de "Una copia o fotocopia de la declaración aduanera o del documento de salida de las mercancías exportadas, emitido por el exportador o expedidor, que incluya el valor real de la mercancía, el nombre del importador, el peso bruto y neto, así como el número del contenedor, cuando proceda" y que tal disposición "solamente será exigible para las mercancías amparadas al régimen de importación definitiva. No será obligatoria para las mercancías cuyo valor en aduanas sea inferior a dos mil dólares de los Estados Unidos de América (US$ 2.000,00); tampoco se exigirá para los envíos urgentes en las modalidades de entrega rápida, envíos de socorro, equipaje de viajeros, importaciones realizadas por el Estado y demás entes públicos, muestras sin valor comercial, envíos postales no comerciales de acuerdo con el artículo 192 del RECAUCA, importaciones de ataúdes, urnas mortuorias o similares, con las características normales de mercado y que contengan a las personas fallecidas; tampoco para pequeños envíos sin carácter comercial e importaciones no comerciales".
+II.- Que el artículo 86 indicado, constituye una disposición con incidencia inmediata en las operaciones de comercio exterior, por cuanto refiere a la documentación que debe acompañar a la declaración aduanera al momento de su tramitación.
+III.- Que la reforma indicada establece la facultad del Ministerio de Hacienda de ampliar o aclarar vía reglamento la lista anterior, para incluir otras modalidades o casos en los cuales no se requiera la presentación del documento enunciado en el inciso d) de este artículo.
+IV.- Que de acuerdo con el artículo 6 de la Ley General de Aduanas, el régimen jurídico aduanero tiene como fines la aplicación de la normativa nacional, facilitación y agilización de las operaciones de comercio exterior y facultar la correcta percepción de los tributos y la represión de las conductas ilícitas que atenten contra la gestión y el control de carácter aduanero y de comercio exterior.
+V.- Que a efectos de que las autoridades aduaneras en uso de las atribuciones y competencias conferidas por la Ley General de Aduanas, Nº 7557, en los artículos 13 y 24, den una correcta aplicación al artículo 86 de la Ley Nº 7557 y con sustento en lo dispuesto en el párrafo penúltimo de la citada disposición, conviene modificar el artículo 315 bis del Reglamento a la Ley General de Aduanas, Decreto Ejecutivo 25270-H y sus reformas, y adecuarlo al artículo 86 de la Ley General de Aduanas, recientemente aprobado por la Asamblea Legislativa. Por tanto,
+DECRETAN:
+Artículo 1º- Modifíquese el artículo 315 bis del Decreto Ejecutivo Nº 25270-H, sus modificaciones y reformas, publicado en el Alcance Nº 37 de La Gaceta Nº 123 del 28 de junio de 1996, como sigue:
+"Artículo 315 bis. Copia o fotocopia de la declaración aduanera de exportación o documento de salida de las mercancías.
+De conformidad con el artículo 86 de la Ley, la declaración aduanera del régimen de importación definitiva debe presentarse acompañada de:
+a) Una copia o fotocopia de la declaración aduanera de exportación, o
+b) Una copia o fotocopia del documento de salida de las mercancías exportadas, emitido por el exportador o expedidor, que podrá consistir en:
+El documento de salida de las mercancías, usualmente expedido por el exportador o expedidor; o en su defecto,
+Un documento expedido por el exportador o expedidor que contenga la información requerida por el artículo 86 de la Ley.
+Los anteriores documentos deben contener el valor real de la mercancía, el nombre del importador, el peso bruto y neto, así como el número del contenedor, cuando proceda. Si el documento es omiso en alguno de los datos requeridos, el importador deberá declarar en su reverso el dato omiso, firmando bajo su responsabilidad y, en esos términos, será aceptada por la autoridad aduanera.
+En el caso de que la declaración aduanera de exportación o el documento de salida de las mercancías exportadas no se encuentren redactados en español, deberá adjuntársele la traducción correspondiente.
+La presentación de la documentación señalada en los incisos a) y b) anteriores, será exigible únicamente para las mercancías amparadas al régimen de importación definitiva; excluyéndose, de acuerdo con el artículo 86 de la Ley, las mercancías cuyo valor en aduanas sea inferior a dos mil pesos centroamericanos, las importaciones realizadas por el Estado y demás entes públicos, así como las siguientes modalidades de importación definitiva:
+a) Envíos urgentes, en la modalidad de entrega rápida,
+b) Entrega rápida,
+c) Envíos de socorro,
+d) Equipaje de viajeros,
+e) Muestras sin valor comercial,
+f) Envíos postales no comerciales,
+g) Importaciones de ataúdes, urnas mortuorias o similares, con las características normales de mercado y que contengan a las personas fallecidas.
+h) Pequeños envíos sin carácter comercial e,
+i) Importaciones no comerciales.
+El artículo 86 de la Ley contempla la posibilidad de que el Ministerio de Hacienda, vía reglamento, pueda ampliar o aclarar la lista anterior, para incluir otras modalidades o casos en los cuales no se requiera la presentación del documento enunciado en el inciso d) del artículo indicado, por lo que se establecen las siguientes excepciones a la obligatoriedad de presentar la declaración aduanera de exportación o documento de salida de las mercancías exportadas, ante las autoridades aduaneras:
+a) Importación definitiva de mercancías no afectas, exentas o exoneradas en su totalidad del pago de tributos de importación.
+b) Importaciones definitivas de mercancías de los regímenes aduaneros de zonas francas y perfeccionamiento activo, que son objeto de venta local o "nacionalización".
+c) Envíos urgentes en razón de su naturaleza o por responder a una necesidad debidamente justificada.
+d) Importaciones definitivas de mercancías cuya declaración aduanera es tramitada de oficio. e) Importaciones definitivas de mercancías adjudicadas en una subasta aduanera.
+f) Mercancías consistentes en vehículos automotores no gravados con derechos arancelarios a la importación, pero afectos a una alícuota del impuesto selectivo de consumo, en que la determinación del valor se realiza mediante el procedimiento establecido por Decreto Ejecutivo.
+g) Mercancías originarias de Centroamérica que estén amparadas a una declaración aduanera establecida para el comercio regional de acuerdo con las normas de Integración Económica.
+h) Mercancías que antes del veinticinco de octubre del dos mil cinco, hayan sido embarcadas en el país de procedencia y se declaren antes del plazo de quince días hábiles, contados desde el arribo de las mercancías a puerto aduanero, según lo certifique el representante legal del transportista, debidamente acreditado en el país o en el puerto de embarque, mediante instrumento otorgado ante notario público del lugar, legalizado en la forma debida por medio del procedimiento consular.
+i) Mercancías que antes del veinticinco de octubre del dos mil cinco, hayan ingresado al territorio aduanero nacional.
+Para los efectos de aplicación de este artículo entiéndase país de exportación, el país donde se inicia el traslado de la mercancía hacia el país de importación, independientemente del lugar donde se emite la factura comercial".
