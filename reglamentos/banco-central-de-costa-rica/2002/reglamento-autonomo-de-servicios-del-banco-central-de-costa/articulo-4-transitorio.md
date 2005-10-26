@@ -1,0 +1,2 @@
+Transitorio IV.—La variación en la periodicidad de pago de las salarios establecida en el artículo 88 de este Reglamento, se hará efectiva a partir del viernes 16 de diciembre del 2005, con la salvedad de que dicho pago correspondería al período del 1° al 16 de diciembre del 2005, siendo este un período de transición que considerará por esta única vez, 12 días hábiles.
+(Así adicionado en sesión N° 5251 del 26 de octubre del 2005)
