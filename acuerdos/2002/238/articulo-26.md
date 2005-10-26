@@ -27,3 +27,11 @@ C. Licencia por registro:
 · Aportar nota del capitán del barco donde se compromete a respetar la legislación del país y respetar todo lo concerniente a la protección de los delfines emanada de la Comisión Interamericana del Atún Tropical.
 · Certificación del arqueo de la embarcación por parte de la Dirección General de Transporte Marítimo del Ministerio de Obras Publicas y Transportes donde estipule el tonelaje neto de registro con un máximo de 3 meses de haber sido emitida.
 · Cancelación del canon respectivo.
+Nota de SINALEVI: Mediante acuerdo de INCOPESCA N° 542 de 26 de octubre de 2005, se establece adicionar "Requisitos para el otorgamiento de licencia de pesca comercial de atún para barcos extranjeros", pero debido a que fue omiso en cuanto a la especificación de dónde adicionar el texto, el mismo se transcribe tal y como fue publicado, dentro del presente artículo hasta que se publique la aclaración que corresponde:
+Licencia de pesca comercial de atún, para barcos extranjeros:
+Requisitos para otorgar licencias para la captura de atún, para barcos extranjeros, de la segunda licencia del año en adelante, sin derecho a prórroga gratuita:
+Solicitud de la licencia de pesca comercial de atún, por parte de la Agencia Aduanal o el representante legal de la embarcación.
+Aportar nota del Capitán del Barco donde se compromete a respetar la legislación del país y respetar todo lo concerniente a la protección de los Delfines y disposiciones emanadas por la Comisión Interamericana del Atún Tropical.
+Certificado de Propiedad de la embarcación.
+Aportar informe del Capitán del Barco sobre la mortalidad de delfines del viaje anterior.
+Cancelación de la tarifa respectiva en cualquier Banco del Sistema Bancario Nacional por $54 por Tonelaje neto de registro. No cancelará la tarifa de emisión por licencia.
