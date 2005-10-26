@@ -1,0 +1,4 @@
+Artículo 5º—Mecanismos de control de la Contabilidad Nacional.
+La Contabilidad Nacional deberá presentar el informe, que incluye la elaboración de los estados financieros consolidados del Sector Público y que deberá ser entregado a la Contraloría General de la República a más tardar el primero de marzo de cada año. Por lo anterior procederá a los siguientes mecanismos de control:
+- Revisión de los Estados Financieros Individuales y cuadros auxiliares, la cual consiste en comprobar que dicha información llegue de manera oportuna, completa y se adecue a los principios y normas contables, procedimientos de registro, directrices y legislación vigente. De tal manera que se puedan incluir en los Estados Financieros Consolidados del Sector Público.
+- Recordatorios a las diferentes entidades del Sector Público de la obligación de la presentación de los Estados Financieros y cuadros auxiliares.
