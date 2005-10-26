@@ -1,0 +1,1 @@
+2.- Solicitar a la Comisión encargada de elaborar el Reglamento de la Ley N°.8436, que analice la posibilidad de establecer en el mismo, el otorgamiento de un tiempo perentorio para que los pescadores que no cuenten con su respectiva licencia de pesca al día, puedan ponerse a derecho.
