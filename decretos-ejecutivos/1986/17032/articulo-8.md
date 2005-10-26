@@ -1,1 +1,0 @@
-Artículo 8°-La Oficina tendrá su domicilio legal en la ciudad de San José, sin perjuicio de establecer representaciones, agencias y sucursales en cualquier lugar de la República o fuera de ella, a juicio de su Junta Directiva.

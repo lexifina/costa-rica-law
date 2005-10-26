@@ -1,2 +1,0 @@
-Artículo 24.-El representante del Sistema Bancario Nacional, al que se refiere el artículo precedente, será designado por la Consejo de Gobierno, a propuesta de la Junta Directiva del Banco central. Dicho nombramiento se hará por un plazo de dos años, pudiendo ser reelecto. Si el Gerente nombrado dejare de ostentar tal cargo, también cesará como miembros de esta Junta Directiva.
-(Así reformado por el artículo 1° del 27525 del 26 de noviembre de 1998)

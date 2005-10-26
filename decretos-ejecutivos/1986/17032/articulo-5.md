@@ -1,1 +1,0 @@
-Artículo 5°-La representación legal de la Oficina la ejercerá el Director Ejecutivo, quien tendrá la representación judicial con las facultades que determine la Junta Directiva, de conformidad con las disposiciones del Código Civil.

@@ -1,2 +1,0 @@
-Artículo 60.-El arroz en granza de la cuota de exportación será propiedad de los beneficiadores, pero estará a la orden de la Oficina. Las exportaciones serán realizadas directamente por la Oficina, sin perjuicio de que ésta pueda otorgar permisos para su realización a los industriales debidamente inscritos en su registro de beneficiadores, previo cumplimiento de los requisitos señalados en el reglamento de Exportaciones.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 17507 del 23 de marzo de 1987)

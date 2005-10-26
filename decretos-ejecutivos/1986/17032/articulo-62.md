@@ -1,1 +1,0 @@
-Artículo 62.-Los industriales serán responsables ante la Oficina de la calidad del arroz que cada uno de ellos entregue para exportación. Las pérdidas de calidad del grano de la cuota de exportación que se originen en el mal manejo y conservación de la cosecha destinada a la exportación, deberá ser pagada por el beneficiador que ocasiona la misma.

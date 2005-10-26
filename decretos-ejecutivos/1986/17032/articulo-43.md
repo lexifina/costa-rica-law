@@ -1,1 +1,0 @@
-Artículo 43.-El Director Ejecutivo será el jefe superior del personal de la Oficina del Arroz, excepto de la Auditoría Interna, será responsable ante la Junta Directiva del eficiente y correcto funcionamiento administrativo y técnico de lo Oficina, sin perjuicio de la responsabilidad civil y penal que le corresponda.

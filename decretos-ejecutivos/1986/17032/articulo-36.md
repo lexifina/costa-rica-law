@@ -1,1 +1,0 @@
-Artículo 36.-Los miembros de la Junta Directiva devengarán una dieta de ¢700,00 (setecientos colones) por cada sesión que asistan. Sin embargo, sólo se pagarán dietas por un máximo de cuatro sesiones por mes .

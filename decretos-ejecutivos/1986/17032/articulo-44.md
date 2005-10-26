@@ -1,1 +1,0 @@
-Artículo 44-No podrán ser nombrados en el puesto de Director Ejecutivo aquellas personas que directamente o alguno de sus parientes por consanguinidad o afinidad hasta el segundo grado inclusive, sean propietarios, socios, presidentes o gerentes de empresas dedicadas a la actividad arrocera-producción agrícola, industria y comercialización.

@@ -1,1 +1,0 @@
-Artículo 16.-La convocatoria a las asambleas se hará en el domicilio de sus miembros, por vía telegráfica o mediante carta certificada, debiendo enviarse la comunicación por lo menos ocho días naturales antes del día de la sesión. Además, deberá publicarse dicha convocatoria, con la misma antelación en uno de los periódicos de mayor circulación del país.

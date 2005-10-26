@@ -1,1 +1,0 @@
-Artículo 4°-La Oficina del Arroz tendrá personería jurídica propia y gozará de autonomía funcional y administrativa, como una entidad semiautónoma del Estado, con independencia del Poder Ejecutivo en todos los actos que la ley N° 7014 del 28 de noviembre de 1985 le asigna.

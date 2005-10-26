@@ -1,5 +1,0 @@
-Artículo 64.-De acuerdo con el comportamiento de la cosecha la Oficina podrá aumentar o disminuir la cuota exportable. En caso de incremento de la cuota, el monto total de los recursos generados por las exportaciones deberán aplicarse de la siguiente manera:
-a) A cubrir los costos y gastos de los industriales en el manejo y conservación de la cuota destinada a la exportación.
-b) A reembolsar a los industriales el diferencial del adelanto, al haberse rebajado la cuota del consumo interno.
-q) El sobrante se girará a los productores en forma proporcional a la cuota de exportación aportada por cada uno.
-En caso de que la cuota de exportación se disminuya, los industriales deberán pagar la diferencia a los productores de acuerdo con el precio de compra pactado con cada uno de ellos para la cuota destinada al consumo interno. La Oficina establecerá el procedimiento para el cálculo y el pago correspondiente. Este pago deberá hacerse en un lapso no mayor de ocho días después de que la Junta Directiva de la Oficina tome el acuerdo en firme de disminuir la cuota de exportación.

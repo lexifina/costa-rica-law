@@ -1,1 +1,0 @@
-Artículo 32.-Los acuerdos de la Junta Directiva se tomarán por simple mayoría de los miembros presentes. En caso de empate el Presidente o quien le sustituya tendrá doble voto. Los acuerdos serán aprobados en la siguiente sesión excepto en los casos que expresamente se declaren como "acuerdos en firme".

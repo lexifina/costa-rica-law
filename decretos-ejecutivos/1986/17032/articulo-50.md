@@ -1,1 +1,0 @@
-Artículo 50.-Para el nombramiento o remoción del Auditor Interno se requerirá por lo menos el voto de siete miembros de la Junta Directiva. Deberá ser Contador Público y estar incorporado al colegio profesional respectivo.

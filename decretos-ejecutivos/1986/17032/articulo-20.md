@@ -1,1 +1,0 @@
-Artículo 20.-Las resoluciones y acuerdos de la Asamblea, se harán constar en un libro de actas el cual deberá ser firmado por el Presidente y un delegado de cada uno de los grupos representantes (sector público, beneficia- dores y productores).
