@@ -1,0 +1,1 @@
+Artículo 14.—Reintegros. El fondo por su carácter de monto fijo y rotatorio, recuperará las sumas pagadas mediante el sistema de reintegros periódicos, mismos que deberán ser realizados por el Departamento Financiero Contable, en forma oportuna a fin de contar con los recursos para el normal desarrollo de las actividades.

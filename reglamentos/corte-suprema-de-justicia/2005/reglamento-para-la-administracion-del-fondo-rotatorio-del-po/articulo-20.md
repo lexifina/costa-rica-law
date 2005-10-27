@@ -1,0 +1,1 @@
+Artículo 20.—Recuperación de salarios. El Departamento de Personal será el responsable de la recuperación de las sumas adelantadas por concepto de salarios en forma oportuna, a efecto de no afectar la liquidez del fondo.

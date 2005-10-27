@@ -1,0 +1,1 @@
+Artículo 22.—Directrices e instrucciones. La Dirección Ejecutiva establecerá directrices y dictará instrucciones generales tendientes a obtener una mejor fiscalización y operación del Fondo Rotatorio.

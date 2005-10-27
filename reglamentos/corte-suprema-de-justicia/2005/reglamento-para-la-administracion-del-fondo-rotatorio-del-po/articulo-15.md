@@ -1,0 +1,1 @@
+Artículo 15.—Depósitos. El cheque o transferencia electrónica de fondos que emita el Departamento Financiero Contable, producto del acuerdo de pago por concepto de reintegro al Fondo Rotatorio, será depositado en la cuenta bancaria respectiva.
