@@ -1,0 +1,1 @@
+Artículo 4º—Queda absolutamente prohibida la participación de los menores de doce (12) años en esta clase de juegos. La participación de los mayores de doce años y menores de dieciocho es permitida hasta las veinte horas.

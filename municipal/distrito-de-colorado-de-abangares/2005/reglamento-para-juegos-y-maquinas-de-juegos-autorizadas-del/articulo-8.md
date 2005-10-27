@@ -1,0 +1,1 @@
+Artículo 8º—Queda prohibida la ubicación de locales de juegos o máquinas de juegos en lugares situados a menos de 100 metros de templos religiosos, centros de salud y de enseñanza debidamente autorizados.

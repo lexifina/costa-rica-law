@@ -1,0 +1,2 @@
+Infracciones y sanciones
+Artículo 13.—Los negocios que incumplan las disposiciones señaladas en este Reglamento, serán sancionados con la suspensión de la licencia municipal y la clausura del local, de acuerdo con el artículo 81 Bis del Código Municipal, en caso de que las máquinas de juegos funcionen en un local comercial cualquiera, la violación de las disposiciones que establece este Reglamento, podrá conllevar hasta la cancelación de la patente comercial que explota.

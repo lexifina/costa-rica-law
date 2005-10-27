@@ -1,0 +1,1 @@
+Artículo 10.—Cuando se trate de una actividad secundaria que se desee ubicar máquinas de juegos dentro de un establecimiento comercial, el número máximo a autorizar es de dos máquinas por local, con excepción de los locales exclusivos para juegos de esta categoría.

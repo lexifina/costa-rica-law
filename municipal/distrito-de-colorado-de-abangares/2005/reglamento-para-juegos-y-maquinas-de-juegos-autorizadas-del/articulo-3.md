@@ -1,0 +1,2 @@
+Artículo 3º—Definiciones: Son permitidas en forma restringida los juegos y las máquinas de juego que simulen juegos deportivos o de destreza, en las que el jugador participe con su habilidad y mediante el pago de monedas o fichas.
+Son absolutamente prohibidos los juegos y diversiones que se realicen en máquinas en que la ganancia del jugador depende únicamente de un mecanismo automático incontrolable o de la suerte.
