@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE ALAJUELA
+MODIFICACIÓN AL ARTÍCULO 3º
+DEL REGLAMENTO DE CAJA CHICA
+Con fundamento en el artículo 43 del Código Municipal, y con la aprobación del Concejo Municipal, artículo 21, capítulo VII, sesión ordinaria Nº 39-05, del martes 27 de setiembre del 2005, se publica la modificación al artículo 3º del Reglamento de Caja Chica, en los siguientes términos:
+“Artículo 3º—Se establecen dos fondos de caja chica independientes, cuyo fondo será de ¢500.000,00 (quinientos mil colones) cada una. La custodia de dichos fondos, será responsabilidad del Tesorero Municipal, quien deberá actuar de conformidad, con lo que al efecto disponga la normativa, vigente y aplicable en la materia y este Reglamento, corresponde a este funcionario revisar anualmente esos fondos y, proponer ante el Concejo Municipal, el aumento que se estime conveniente, para satisfacer las necesidades institucionales de los bienes y servicios que deben adquirirse por este medio. Uno de dichos fondos se destinará exclusivamente, a atender los gastos del Subproceso de Servicios Administrativos, el Subproceso de Acueducto Municipal y las Actividades de Obras Civiles y Gestión Vial”.
+Rige a partir de su publicación.
