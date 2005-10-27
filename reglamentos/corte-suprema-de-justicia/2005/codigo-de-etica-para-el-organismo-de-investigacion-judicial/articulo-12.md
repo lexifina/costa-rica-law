@@ -1,0 +1,1 @@
+Artículo 12.—Honor y dignidad. Los servidores y servidoras del Organismo de Investigación Judicial cultivarán en su ámbito privado y laboral, el honor, como suprema cualidad moral que los impele a observar una conducta intachable y a cumplir sus deberes profesionales con excelencia y dignidad.

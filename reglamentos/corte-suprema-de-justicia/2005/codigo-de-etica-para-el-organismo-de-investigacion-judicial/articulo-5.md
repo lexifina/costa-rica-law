@@ -1,0 +1,2 @@
+Artículo 5º—Garantía de igualdad. Los servidores y servidoras del Organismo de Investigación Judicial, no podrán hacer ningún tipo de discriminación en las personas que requieran válidamente de su servicio.
+La obligación de respeto a la sola condición de ser humano no hará diferencia ante víctimas, testigos, imputados o personas sin vínculo directo con nuestra función. Todos y todas esperan igual respuesta de la institución en los términos de eficiencia, legalidad y objetividad.

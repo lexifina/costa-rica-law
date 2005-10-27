@@ -1,0 +1,1 @@
+Artículo 2º—Nuestra Visión. Ser reconocidos como un organismo forense de investigación criminal, técnico, científico, objetivo e independiente, respetuoso del ordenamiento jurídico, con capacidad de respuesta tecnológica y operacional ante las modalidades delictivas; que contribuye al continuo logro y mantenimiento de la seguridad, igualdad y paz social en Costa Rica.
