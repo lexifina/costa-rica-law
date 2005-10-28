@@ -1,0 +1,1 @@
+3º—Encargar a la Gerencia General, para que en asocio con la Subgerencia respectiva, cuando corresponda, procedan a modificar, cambiar, eliminar o crear cualquiera de los anexos y formularios que formen parte del "Manual para la elaboración de avalúos por daños materiales del Instituto Costarricense de Electricidad".
