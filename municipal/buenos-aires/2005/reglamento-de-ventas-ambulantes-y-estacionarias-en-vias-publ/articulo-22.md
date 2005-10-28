@@ -1,0 +1,1 @@
+Artículo 22.—Mientras la Ley de Patentes Municipales del cantón de Buenos Aires no disponga lo contrario se fija el pago de patente conforme a como está cada línea comercial tasada en la actual Ley de Patentes, si la actividad comercial no estuviera establecida, se aplicará la patente de comercio no clasificado a criterio de la Administración Municipal,
