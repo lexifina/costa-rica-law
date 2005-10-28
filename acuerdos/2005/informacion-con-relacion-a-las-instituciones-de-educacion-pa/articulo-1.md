@@ -1,0 +1,43 @@
+CONSEJO SUPERIOR DE EDUCACIÓN
+El Consejo Superior de Educación informa a la opinión Pública, con relación a las Instituciones de Educación Parauniversitaria:
+1) Requisitos de ingreso a las instituciones de Educación Superior Parauniversitaria:
+„« Las instituciones de Educación Superior Parauniversitaria requieren la aprobación por el Consejo Superior de Educación, para impartir carreras en el nivel de Diplomado, de acuerdo con la Ley 6541.
+„« Según lo establece el artículo 31 del Reglamento de la Educación Superior Parauniversitaria, es requisito de ingreso al nivel de Diplomado, el título de Bachiller en Educación Media. Por tanto: cualquier matrícula que se hiciere sin cumplir con este requisito es ilegal y no tiene validez.
+2) Equiparación de Estudios: De acuerdo con lo que estipula el artículo 68 del Reglamento de la Educación Superior Parauniversitaria, la equiparación de estudios procede únicamente en los siguientes casos:
+„« Estudios afines del nivel de Diplomado cursados en otra Institución Parauniversitaria.
+„« Estudios Universitarios afines a la carrera del nivel de diplomado que se desea cursar.
+3) Cursos libres: Los cursos libres que ofrecen las instituciones parauniversitarias, no son autorizados ni reconocidos por el Consejo Superior de Educación
+4) Actualización de Planes de Estudio: Las instituciones de educación parauniversitaria públicas y privadas, deben mantener actualizados los planes de estudios y los programas respectivos, según lo estipula el artículo 40 del Reglamento de la Educación Superior Parauniversitaria, para tal efecto el Consejo Superior de Educación ha establecido como fecha límite el 14 de diciembre de 2005, para el cumplimiento del artículo 40.
+5) Instituciones de educación superior parauniversitarias públicas y privadas autorizadas por el Consejo Superior de Educación, que mantienen la condición de ACTIVAS y carreras aprobadas:
+Colegio Universitario de Alajuela. Administración aduanera, Administración de compras y control de inventarios, Administración de empresas con énfasis en Recursos Humanos, Artes y Ciencias Fotográficas, Asistencia ejecutiva Bilingüe, comercio Exterior, Computación Empresarial, contabilidad y Finanzas, Control de Calidad, Costos de construcción y presupuestación con CAD, Desarrollo Comunal con énfasis en Empresas Comunitarias, Diseño Interior, Electromecánica, Electrónica, Inglés como segunda lengua, Navegación Marítima, Protección y control ambiental, Salud Ocupacional, Secretariado Ejecutivo Bilingüe, Supervisión de la producción, Tecnólogo en prevención, Turismo con énfasis en agencias de viaje, Turismo con énfasis en alimentos y bebidas, Turismo con énfasis en Conducción de grupos, Turismo con énfasis en hotelería.
+Colegio Universitario de Cartago. Administración de servicios alimentarios, Agroindustria, Comercio Exterior, Dirección de Empresas, Electrónica, Empresas y actividades turísticas, Instrumentación Industrial, Investigación Criminal, Investigación Criminal y Seguridad, Organizacional, Mantenimiento de equipos médicos, Mecánica Dental, Nutrición, Optometría, Perito Agroindustrial, Programación de Sistemas de Computación, Promotor de turismo, Riego, drenaje y conservación de suelos, Secretariado Ejecutivo Bilingüe, Seguros, Técnico en Horticultura, Tecnología Textil.
+Colegio Universitario de Puntarenas. Administración de empresas, Administración de empresas con énfasis en lo portuario, Administración de empresas pesqueras, Administración hotelera, Agricultura orgánica y biodiversidad, Agroindustria con énfasis en frutas y hortalizas, Asistencia legal, Auditoría interna, Computación Empresarial, Contabilidad, Diseño gráfico, Electrónica, Electrónica digital, Electrónica industrial, Floricultura y plantas ornamentales, Guía naturalista, Industrialización de productos apícolas, Industrialización de recursos marinos, Inglés Conversacional, Mantenimiento industrial, Música, Navegación Marítima, Operaciones portuarias, Piscicultura y tecnología pesquera, Producción industrial, Programación de computadoras, Recursos Marinos, Salud Ocupacional, Secretariado Ejecutivo, Secretariado Ejecutivo Bilingüe, Técnicas agrícolas con énfasis en granos básicos, Telemática.
+Colegio Universitario para el Riego y el Desarrollo del Trópico Seco.
+Agroecoturismo, Administración de empresas con énfasis en Recursos Humanos, Computación empresarial, Contabilidad y Finanzas, Inglés como segunda lengua, Producción bajo riego, Secretariado bilingüe.
+Escuela Centroamericana de Ganadería. Agroecoturismo, Manejo Forestal y Vida Silvestre, Producción animal, Tecnología de Alimentos
+Colegio Universitario de Limón. Computación Empresarial, Dirección de Empresas, Guía Naturalista, Inglés como Segunda Lengua
+Colegio Universitario Boston. Administración de negocios, Aduanas, Auditoría interna, Comercio exterior, Contabilidad, Costos industriales, informática, Mercadeo y servicio al cliente, Secretariado ejecutivo bilingüe, Secretariado ejecutivo en español, Tecnología de la comunicación, Administración hotelera, Guía turística.
+Escuela Técnica, Agrícola e Industrial. Administración de empresas, Ciencias agropecuarias, Empresas y Actividades turísticas
+Instituto Parauniversitario de Educación en Seguros y Afines.
+Prevención y control de incendios Seguros
+Instituto Latinoamericano de Computación. Administración de empresas informatizadas, Computación administrativa, Contabilidad informatizada, Secretariado directivo informático.
+Instituto Parauniversitario del Istmo. Administración de empresas, Ciencias secretariales en bilingüe, Ciencias secretariales en español, Contabilidad.
+Instituto Superior de Educación Técnica. Administración de empresas, Auditoría interna, Ciencias contables, Informática, Secretariado ejecutivo bilingüe, Secretariado ejecutivo en español.
+Instituto Parauniversitario American Business. Administración de empresas, Administración de empresas turísticas, Administración de empresas y agencia de viajes, Auditoría interna, Contabilidad, Informática, Inglés, Secretariado ejecutivo bilingüe, Secretariado ejecutivo en español.
+Instituto Latino de Formación Integral. Administración de negocios, Administración de seguros, Administración municipal, Asistente clínico dental, Contaduría, Diseño publicitario, Electrónica, Locución, Optometría, Publicidad, Recursos humanos, Secretariado bilingüe, Secretariado en español, Sistemas de información, Técnica dental, área cromo-cobalto, Técnica dental, área restaurativa, Turismo.
+Instituto Parauniversitario Plerus. Administración de empresas, Contabilidad, Imágenes médicas, Informática, Investigación y control de drogas, Registros médicos y sistemas de información.
+Instituto Parauniversitario Jiménez. Administración de negocios, Auditoría interna, Contabilidad, Costos industriales, Informática, Secretariado ejecutivo en español.
+Instituto Creativo. Arquitectura, Decoración de espacio interno, Diseño de interiores, Diseño de modas, Informática.
+Instituto de Tecnología Administrativa. Informática, Gestión Empresarial, Asistencia legal, Secretariado ejecutivo bilingüe, Costos industriales, Auditoría interna, Contabilidad, Contabilidad y Finanzas, Administración hotelera, Guía turística, Mercadeo y ventas, Aduanas y comercio exterior, Asistente dental, Inglés como segunda lengua, Higienista dental.
+Centro Costarricense de Educación Parauniversitaria. Contabilidad, Secretariado ejecutivo, Guía turística, Computación gerencial.
+Centro de Formación en Tecnologías. Tecnologías de Desarrollo de software
+Instituto Parauniversitario de Didáctica Computacional.
+Administración de proyecto, Diseño Gráfico, Contabilidad asistida por computadora, Desarrollo para internet.
+Centro Interamericano de Educación Tecnológica. Artes Culinarias, Control de Calidad, Decoración de Interiores, Producción Industrial, Informática, Electrónica industrial.
+Instituto Parauniversitario Ávila. Contabilidad, Administración de Empresas, Secretariado Ejecutivo en Español, Secretariado Ejecutivo Bilingüe, Auditoría Interna, Informática
+Instituto Parauniversitario de la Seguridad. Seguridad y Vigilancia, Administración y Gestión de la Seguridad.
+Instituto Parauniversitario Walt Whitman. Cultura Física, Computación, Inglés Conversacional.
+Instituto de Servicios Educativos. Administración de empresas, Secretariado ejecutivo bilingüe, Contabilidad, Inglés conversacional, Informática.
+Es responsabilidad de los interesados verificar que la institución esté autorizada y las carreras que deseen matricular, estén debidamente aprobados.
+Mayor información a los teléfonos: 257-6031; 221-0398, o al fax 255-2115, con la supervisión de Instituciones de Educación Superior Parauniversitaria.—
+San José, 24 de octubre de 2005.
