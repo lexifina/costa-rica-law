@@ -1,3 +1,2 @@
-Artículo 50.—Cajas Chicas. Se autoriza a la Junta Directiva para establecer el número de cajas chicas que considere conveniente. Éstas se regirán por los lineamientos que disponga la Junta Directiva de conformidad con las normas contables aceptadas en su manejo.
-El Presidente en asocio con el Fiscal o este último, practicarán o solicitarán a la Administración que se realicen arqueos de caja cuando lo estimen conveniente, e informarán sobre estos a la Junta Directiva.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003, publicada en La Gaceta No. 62 de 28 de marzo del 2003)
+Artículo 50.—Cajas chicas. Se autoriza a la Junta Directiva para establecer el número de cajas chicas que considere conveniente. Éstas se regirán por los lineamientos que disponga la Junta Directiva, de conformidad con los manuales de políticas y procedimientos.
+(Así reformado por la asamblea general ordinaria CV del 29 de octubre del 2005).
