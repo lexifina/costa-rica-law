@@ -1,2 +1,1 @@
-Artículo 12.- Si el colegiado decide retirar el 60% del monto que le corresponde dentro del fondo, al cumplir la edad de 65 años, no podrá antes de su muerte pedir que se le reajuste el monto recibido, en virtud de eventuales aumentos que pueda aprobar la Junta Directiva. Al momento de su fallecimiento, los beneficiarios recibirán el 50% del monto que esté vigente al momento de la muerte del colegiado.
-(Así reformado por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003).
+Artículo 12.- Así Derogado por la Asamblea General Extraordinaria CV, celebrada el 29 de octubre de 2005.

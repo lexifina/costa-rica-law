@@ -1,5 +1,4 @@
-Articulo 4°—El Fondo también otorgará, por una sola vez, subsidios económicos, cuando se produzca alguna de las siguientes circunstancias:
-a) Enfermedad grave del colegiado.
-b) Enfermedad terminal o muerte de pariente en primer grado de consanguinidad o afinidad.
-c) Caso fortuito o fuerza mayor, ambos debidamente comprobados.
-(Así reformado por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003).
+Artículo 4º—El subsidio económico también se otorgará por una sola vez a la persona colegiada, cuando se produzca alguna de las siguientes circunstancias:
+Enfermedad grave o terminal de la persona colegiada, de acuerdo con un listado de enfermedades, según criterio profesional acogido por la Junta Directiva y revisado al menos una vez al año.
+Catástrofe natural o antrópica que afecte directamente a la persona colegiada o su patrimonio, como pueden ser terremotos, inundaciones o cualquier otra considerada por la Comisión Nacional de Emergencia o autoridad competente y aprobada por Junta Directiva.
+(Así reformado por la Asamblea General Extraordinaria CV, celebrada el 29 de octubre de 2005)

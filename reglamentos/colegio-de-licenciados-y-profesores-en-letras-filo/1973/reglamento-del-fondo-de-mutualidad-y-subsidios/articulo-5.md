@@ -1,3 +1,4 @@
-Articulo 5°—La Junta Directiva del Colegio será la encargada de fijar la contribución económica de los colegiados al fondo, como parte de la cuota mensual que aquellos deben cubrir, con el fin de garantizar la solidez de este. Asimismo la Junta Directiva será la encargada de revisar el monto del subsidio que le corresponde a cada colegiado.
-Ambas fijaciones las deberá acordar la Junta Directiva en la primera sesión del mes de febrero, tomando en cuenta la situación económica nacional, la situación financiera del Colegio y la demanda por parte de los colegiados.
-(Así reformado por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003).
+Artículo 5º—
+La Junta Directiva del Colegio será la encargada de fijar la contribución económica de los colegiados al Fondo, como parte de la cuota mensual que aquellos deben cubrir, con el fin de garantizar la solidez de éste. Asimismo, la Junta Directiva determinará y revisará, en la primera sesión del mes de febrero de cada año, los montos otorgados por concepto de subsidios según este Reglamento, considerando el contenido de los estudios actuariales, estados financieros y recomendaciones emitidas por la auditoría externa en relación con el Fondo.
+La Junta Directiva puede disponer, para los efectos de los artículos 3 y 4, hasta un 50% del monto del Fondo, según el último estudio actuarial realizado.
+(Así reformado por la Asamblea General Extraordinaria CV, celebrada el 29 de octubre de 2005)

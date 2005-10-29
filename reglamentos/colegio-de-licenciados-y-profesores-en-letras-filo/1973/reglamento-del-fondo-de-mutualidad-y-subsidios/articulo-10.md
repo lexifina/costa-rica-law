@@ -1,1 +1,1 @@
-Artículo 10.—El colegiado que cumpla 65 años de edad y que tenga al menos quince anos consecutivos de estar incorporado, podrá optar por la entrega del 50% del monto fijado por la Junta Directiva para el caso previsto en el articulo 7°, previa solicitud hecha por escrito al Colegio.
+Artículo 10.—Así Derogado por la Asamblea General Extraordinaria CV, celebrada el 29 de octubre de 2005.

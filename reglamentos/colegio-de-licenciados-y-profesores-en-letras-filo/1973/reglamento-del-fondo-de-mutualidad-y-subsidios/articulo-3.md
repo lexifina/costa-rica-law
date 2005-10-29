@@ -1,3 +1,5 @@
-Artículo 3°—El Fondo tendrá como su principal fin otorgar en calidad de subsidio por una sola vez al colegiado, un monto de dinero que la Junta Directiva fijará en los términos que establece el artículo 5 de este Reglamento. El 60% de esa suma de dinero será entregada al colegiado, si este lo desea, cuando cumpla la edad de 65 años y el otro porcentaje, o bien el monto completo en caso de no haber hecho el retiro antes señalado, al momento de su fallecimiento.
-En caso de fallecimiento el dinero será entregado a los beneficiarios que haya señalado el propio colegiado y en caso de no haber hecho esta manifestación se entregará a los herederos o legatarios del colegiado causante, declarados de tal modo en sede judicial o notarial.
-(Así por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003).
+Artículo 3º—El subsidio económico se entregará por una sola vez a la persona colegiada, tal y como se indica en el artículo 4 de este Reglamento.
+El subsidio económico, en caso de fallecimiento del colegiado, será entregado a los beneficiarios que éste haya señalado.
+Si la persona colegiada no indicó beneficiarios, el subsidio será entregado a los herederos o legatarios del causante, declarados en sede administrativa, judicial o notarial.
+La Junta Directiva, tendrá la potestad de obviar el trámite legal señalado en el párrafo anterior, siempre que los interesados presenten los documentos probatorios que garanticen el vínculo dentro del plazo establecido por la Junta Directiva.
+(Así reformado por la Asamblea General Extraordinaria CV, celebrada el 29 de octubre de 2005)
