@@ -1,0 +1,4 @@
+COLEGIO UNIVERSITARIO DE LIMÓN
+El Colegio Universitario de Limón, CUNLIMÓN, informa que con el aval de la Secretaría Técnica de la Autoridad Presupuestaria del Ministerio de Hacienda, emitido mediante oficio STAP-1738-05, del 27 de setiembre del 2005, se procede a la eliminación del Transitorio I del Reglamento Autónomo de Organización y Servicio del Colegio Universitario de Limón, el cual cita, “Todos los servidores nombrados a plazo indefinido, al ser aprobado el presente reglamento tendrán derecho a un mes calendario de vacaciones después de cada 50 semanas de servicios prestados. Los servidores nombrados a partir de esa fecha disfrutarán de los períodos de vacaciones de acuerdo a los años servidos que establece este reglamento.
+Todo lo referente a vacaciones de los funcionarios del CUNLIMÓN se observará en el Capítulo XIV de dicho Reglamento.
+Limón, 25 de octubre del 2005.
