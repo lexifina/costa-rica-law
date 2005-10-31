@@ -14,3 +14,4 @@ Reforma Reglamento de Organización y Funciones de la Auditoría Interna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-06 | la propia norma |
+| 2 | 2005-10-31 | Acuerdo 0 (2005-10-31) |
