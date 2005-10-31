@@ -1,0 +1,1 @@
+Artículo 123.—La Municipalidad de Naranjo se compromete a cancelar a más tardar en la segunda semana del mes de enero de cada año, la suma correspondiente al salario escolar y se presupuestara previamente en todos los presupuestos ordinarios anuales.

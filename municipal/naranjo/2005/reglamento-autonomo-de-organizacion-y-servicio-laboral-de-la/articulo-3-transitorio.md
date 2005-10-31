@@ -1,0 +1,1 @@
+Transitorio 3º—Para el incentivo de carrera profesional la municipalidad de naranjo aplicará dispuesto en el reglamento de carrera profesional para la administración pública dispuesto por el Servicio Civil en el oficio DG-080-96 y sus modificaciones, hasta que se confeccione un reglamento municipal para tal incentivo económico.

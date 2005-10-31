@@ -1,0 +1,1 @@
+Artículo 90.—El cometido de la Comisión de Salud Ocupacional será desempeñado dentro de la jornada de trabajo, sin perjuicio o menoscabo de ninguno de los derechos Laborales de los servidores que la conforman y de las funciones laborales a ellos asignada.

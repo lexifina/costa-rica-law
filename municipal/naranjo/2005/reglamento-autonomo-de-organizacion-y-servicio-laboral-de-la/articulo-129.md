@@ -1,0 +1,1 @@
+Artículo 129.—Podrá laborarse tiempo extraordinario en aquellas dependencias que por su naturaleza a la estructura administrativa lo requiera, tales como: Caminos vecinales, acueductos y aseso de vías. El pago de horas extras será únicamente para peones de campo; y deberá justificarse por el Jefe inmediato y autorizadas por el Alcalde.

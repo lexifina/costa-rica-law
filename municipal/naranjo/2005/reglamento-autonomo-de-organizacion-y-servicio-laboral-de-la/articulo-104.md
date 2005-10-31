@@ -1,0 +1,1 @@
+Artículo 104.—Las vacaciones son incompensables. Sólo procederá el pago según lo que establece el artículo 156 del Código de Trabajo. Para el funcionario que se ausente de la municipalidad por un permiso sin goce de salario, este no registrará cómputo sobre este tiempo para el disfrute de vacaciones. O según lo que establece el artículo 156 del Código de Trabajo.

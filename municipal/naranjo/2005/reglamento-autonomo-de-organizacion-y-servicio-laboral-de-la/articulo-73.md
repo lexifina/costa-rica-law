@@ -1,0 +1,3 @@
+TÍTULO IV
+El hostigamiento sexual en el empleo y la docencia Municipal de Naranjo
+Artículo 73.—La Municipalidad de Naranjo, basada en los principios constitucionales del respeto por la libertad y la vida humana, el derecho al trabajo y el principio de igualdad ante la ley, y los enunciados contemplan en los artículos 4, inciso a), artículo 13, inciso c), artículo 43 del Código Municipal, así como en el establecimiento de políticas para la eliminación de la discriminación contra la mujer, según la Convención de las Naciones Unidas sobre la eliminación de todas las formas de discriminación contra la mujer y la Convención Interamericana para prevenir, sancionar y erradicar la violencia contra la mujer. Establece las presentes normas contra el hostigamiento y acoso sexual.

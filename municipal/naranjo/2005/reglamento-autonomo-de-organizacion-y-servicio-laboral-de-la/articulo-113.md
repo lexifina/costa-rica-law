@@ -1,0 +1,1 @@
+Artículo 113.—Las trabajadores municipales podrán gozar de una hora por día para periodo de lactancia de forma segmentada como establece el artículo 97 del Código de trabajo o completa previa coordinación con la Oficina de Recursos Humanos. La funcionaria deberá presentar la debida constancia extendida por la C.C.S.S. de que se encuentra en dicho periodo.

@@ -1,0 +1,5 @@
+Artículo 171.—El procedimiento o instrucción disciplinaria atenderá los siguientes pasos:
+a) Las jefaturas deberán reportar a la Oficina de Recursos Humanos, las faltas en que incurran sus colaboradores, dentro de los tres días hábiles siguientes en que estas sean de su conocimiento.
+b) Toda denuncia deberá ser presentada por escrito y, contener una relación circunstanciada de los hechos, indicación del o los servidores participantes, fechas, lugares y otros datos de interés. El denunciante deberá aportar y ofrecer las pruebas en que fundamenta su denuncia.
+c) La Oficina de Recursos Humanos, hará una prevaloración de la falta reportada para determinar su naturaleza, circunstancias y gravedad y establecer la necesidad o no de iniciar una investigación.
+d) Establecida la falta y definida la sanción correspondiente, de ser esta suspensión sin goce de salario o despido sin responsabilidad patronal, procederá a comunicarla al trabajador conforme el procedimiento establecido en los Artículos 150 y 151 del Código Municipal.

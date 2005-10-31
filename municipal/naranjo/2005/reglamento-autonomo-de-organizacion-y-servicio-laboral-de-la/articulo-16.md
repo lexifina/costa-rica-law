@@ -1,0 +1,1 @@
+Artículo 16.—Deber de imparcialidad: El servidor o servidora debe de ejercer el cargo sin discriminar, en cuanto a las formas y condiciones del servicio a ninguna persona por razón de grupo étnico, género, preferencia sexual, creencia religiosa, discapacidad, nacionalidad, situaciones económicas, de ideología o afiliación política.

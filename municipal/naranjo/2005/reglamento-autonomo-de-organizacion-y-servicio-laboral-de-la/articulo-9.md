@@ -1,0 +1,7 @@
+CAPÍTULO II
+Principios éticos de la función pública y del servidor público municipal
+Artículo 9º—Son principios éticos de la función Pública y del servidor (a) los siguientes:
+a. El ejercicio de la función pública debe orientarse a la satisfacción del bien común, que es su fin último y esencial. Para ello la función pública propenderá a la actualización de los valores de seguridad, justicia, paz, libertad y democracia.
+b. La lealtad la eficiencia, la probidad y la responsabilidad son valores fundamentales que deberán tenerse presentes en el ejercicio de la función pública. También se tendrán presentes los principios del servicio público, Los deberes y prohibiciones que deben acatar los funcionarios (as) públicos se fundamentan en esos valores y principios.
+c. El funcionario (a) público (a) es un servidor de los administrados en general y en particular de cada individuo o administrado que con él se relacione en virtud de la prestación de servicio y de la función que desempeña.
+d. El servidor (a) público (a) debe actuar en forma tal que su conducta pueda admitir el examen público dentro del su horario laboral. Para ello no es suficiente la simple observación de la ley, deben aplicarse también los principios de la ética del servicio público, regulados de modo directo por la ley.

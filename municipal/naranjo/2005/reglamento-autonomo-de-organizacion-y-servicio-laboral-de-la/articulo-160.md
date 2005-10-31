@@ -1,0 +1,1 @@
+Artículo 160.—Las sanciones descritas en este capítulo, serán aplicadas por la Alcaldía Municipal a través de la Oficina de Recursos Humanos, conforme al procedimiento que establece el artículo 150 del Código Municipal y cualquier otra norma expresa, referente a la materia.

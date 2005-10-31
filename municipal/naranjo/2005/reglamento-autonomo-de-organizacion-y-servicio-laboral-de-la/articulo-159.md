@@ -1,0 +1,1 @@
+Artículo 159.—Cuando el resultado de la evaluación y calificación de servicios anual del servidor sea regular o inferior por dos veces consecutivas será considerado como falta grave, de conformidad con el artículo 141 del Código Municipal.

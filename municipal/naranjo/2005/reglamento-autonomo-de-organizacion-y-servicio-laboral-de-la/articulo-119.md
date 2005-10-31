@@ -1,0 +1,1 @@
+Artículo 119.—Los funcionarios de esta Municipalidad, podrán acogerse a cualquier plus salarial tales como carrera administrativa, carrera profesional, prohibición, anualidad, etc., contemplados dentro de otros regímenes de la Municipalidad, según las disposiciones legales vigentes en esa materia.

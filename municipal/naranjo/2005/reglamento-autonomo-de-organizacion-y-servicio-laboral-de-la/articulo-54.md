@@ -1,0 +1,2 @@
+Artículo 54.—Las jefaturas también podrán en las condiciones anteriores, solicitar en beneficio de sus subalternos, la reasignación de cualquier puesto.
+Recibida la solicitud la Oficina de Recursos Humanos, procederá al estudio respectivo en un plazo no mayor de 15 días hábiles, sometiendo su resultado a conocimiento y resolución de la Alcaldía Municipal. Lo resuelto por la Alcaldía y la Oficina de Recursos Humanos, le será comunicada al funcionario dentro de los cinco días posteriores a aquel en que se adopte la decisión.

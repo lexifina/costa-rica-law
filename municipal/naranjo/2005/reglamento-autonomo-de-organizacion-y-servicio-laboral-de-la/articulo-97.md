@@ -1,0 +1,10 @@
+TÍTULO V
+De la jornada de trabajo
+Artículo 97.—La jornada de trabajo para el personal se desarrollará en las instalaciones de la Municipalidad llamado sede administrativa, ubicadas o no en el edificio principal en este Cantón. Para el personal que debe laborar fuera de las instalaciones centrales, a causa de la naturaleza del servicio que presta, la jornada de trabajo se desarrollará en los sitios o lugares que la administración señale y de acuerdo a las necesidades del servicio que se preste. Si bien los trabajos deben ejecutarse en las instalaciones de la Municipalidad, por medio de razón justificada por el Alcalde Municipal, un empleado puede desarrollar su función fuera de ella, de ser razonable y conveniente al interés público.
+El cambio de lugar donde se prestarán los servicios deberá ser puesto en conocimiento del personal afectado, con no menos de dos días de anticipación, salvo casos de fuerza mayor que imposibiliten tal disposición.
+La jornada ordinaria de trabajo de los servidores municipales, será Planta Administrativa: de lunes a viernes, de 8 a. m a 4 p. m y Jornales:
+de lunes a viernes Mañana: de 6 a. m a 2:30 p. m, y los sábados de 6 a. m a 11:30 a. m, con únicamente 15 minutos para el café de la mañana para ambos grupos y media hora de almuerzo.
+La Oficina de Recursos Humanos confeccionará el rol de la hora de almuerzo y café para cada funcionario, responsabilizando a cada jefatura de Oficina de su cumplimiento.
+No obstante la municipalidad podrá establecer jornadas ordinarias inferiores a estas por razones de salud, ocupación u horarios de trabajo distintos a lo señalado
+En cuanto a la jornada y horario de trabajo de los conserjes, estos entraran a las 7 a. m y saldrán a las 3 p. m, con el fin de mantener limpio y con buena presentación las áreas de atención al publico, pasillos comunes y sanitarios.
+En las áreas de seguridad, sea policía o guardia, donde la prestación de servicios debe comprender las veinticuatro horas del día, los servidores estarán en la obligación de rotar en los distintos turnos en que se dividan las veinticuatro horas del día de acuerdo con los horarios que se establezcan.

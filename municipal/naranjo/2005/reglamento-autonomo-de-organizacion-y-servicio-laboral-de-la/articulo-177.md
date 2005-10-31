@@ -1,0 +1,1 @@
+Artículo 177.—Toda cita que para los efectos del Artículo anterior se curse, deberá hacerse por escrito mediando entre la fecha en que se entrega la cita y aquel en que debe comparecer, un plazo lógico de convocatoria.

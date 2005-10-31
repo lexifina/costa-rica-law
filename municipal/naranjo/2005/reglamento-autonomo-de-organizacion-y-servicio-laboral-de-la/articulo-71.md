@@ -1,0 +1,1 @@
+Artículo 71.—En el caso de funcionarios nombrados a plazo fijo, u obra determinada, la relación de servicio termina. Por vencimiento del plazo en que fue nombrado, o terminación de la obra para cuya realización fue contratado. Se sitúe en cualesquiera de las causas enumeradas en el Artículo anterior.

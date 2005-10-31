@@ -1,0 +1,1 @@
+Transitorio 1º—A todos aquellos trabajadores que al momento de entrar en vigencia este Reglamento tengan más de dos períodos de vacaciones sin disfrutar, deberá la Oficina de Recursos Humanos y la jefatura correspondiente en coordinación con el funcionario establecer el disfrute de al menos un periodo de vacaciones

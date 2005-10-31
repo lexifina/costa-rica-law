@@ -1,0 +1,1 @@
+Artículo 164.—Se amonestará por escrito al funcionario que por primera vez no atienda un citatorio, realice o no remita la información que le sea solicitada para la resolución de un asunto disciplinario laboral y se le suspenderá sin goce de salario por cinco días en caso de reincidencia.
