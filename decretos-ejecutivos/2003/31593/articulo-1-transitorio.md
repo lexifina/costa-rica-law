@@ -1,2 +1,0 @@
-Transitorio único.—Una vez publicado el presente decreto, las dependencias mencionadas en el artículo 1º, deberán informar al Ministerio de Hacienda dentro de los próximos quince días el monto de los recursos destinados de la subpartida de publicación e información en radio, televisión u otros medios de comunicación de su presupuesto anual que se ha ejecutado, desglosado entre lo pautado con el SINART S. A., y con otros medios de comunicación.
-Dado en la Presidencia de la República.—San José, a los dieciséis días del mes de setiembre del dos mil tres.
