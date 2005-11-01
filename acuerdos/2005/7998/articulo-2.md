@@ -1,0 +1,1 @@
+2) Encargar a la Gerencia de la División Pensiones, en coordinación con la Dirección Actuarial y de Planificación Económica, ajustar y aplicar a partir del 1º de noviembre del año 2005 la tabla de montos de pensión por postergación, de conformidad con el nuevo tope máximo de pensión.
