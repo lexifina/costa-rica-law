@@ -1,1 +1,0 @@
-14. —CONAPE cobra una comisión del 2% sobre el monto total de cada préstamo aprobado y por una sola vez. Dicha comisión se destinará a cubrir gastos de estudio o investigaciones previas a la concesión del préstamo, gastos de inspección de garantías, etc.

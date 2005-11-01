@@ -1,2 +1,0 @@
-29. —El prestatario debe retirar cada desembolso en un lapso máximo de 60 días naturales a partir de la fecha de su emisión. Vencido ese plazo, el Departamento de Crédito suspenderá el desembolso hasta que justifique el retraso en el retiro.
-(Así corrida su numeración por acuerdo del Consejo Directivo, en su sesión N° 47 de 18 de noviembre de 1999, el cual pasó el anterior artículo 28 al 29 actual)

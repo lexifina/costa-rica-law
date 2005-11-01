@@ -1,2 +1,0 @@
-41. —El prestatario que realice estudios en el exterior, debe apersonarse a CONAPE a más tardar treinta días después de finalizar los estudios, o comunicar al Departamento de Crédito cualquiera circunstancia que le impida regresar a Costa Rica en ese lapso.
-(Así corrida su numeración por acuerdo del Consejo Directivo, en su sesión N° 47 de 18 de noviembre de 1999, el cual pasó el anterior artículo 40 al 41 actual)

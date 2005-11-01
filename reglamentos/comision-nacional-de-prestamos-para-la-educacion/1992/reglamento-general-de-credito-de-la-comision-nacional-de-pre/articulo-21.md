@@ -1,3 +1,0 @@
-21. —El respaldo de un préstamo con garantía prendaria sobre un vehículo automotor se aceptará sólo en primer grado y si cumple con los siguientes requisitos:
-a) El modelo debe ser máximo 2 años anteriores al año en que se aprueba el préstamo.
-b) El vehículo debe estar asegurado por el INS mediante una póliza, por el valor máximo que acepte y al menos con las coberturas A: ( Responsabilidad civil por lesión o muerte de personas ). C: ( Responsabilidad civil por daños a la propiedad de terceros ). D: ( Colisión y vuelco ). F: ( Robo y hurto ). Esta póliza debe estar endosada a favor de CONAPE como acreedor prendario y vigente durante toda la vida del crédito hasta la cancelación de éste.

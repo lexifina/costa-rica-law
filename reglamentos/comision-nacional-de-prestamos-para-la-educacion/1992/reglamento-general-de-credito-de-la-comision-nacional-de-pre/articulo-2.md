@@ -1,1 +1,0 @@
-2°—El trámite de la solicitud de préstamo, en adelante la solicitud, es ejecutado por el Departamento de Crédito mediante un proceso que abarca la orientación al usuario, el análisis de su solicitud y un primer dictamen que se eleva ante el Comité de Crédito.

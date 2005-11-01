@@ -1,2 +1,0 @@
-24. —El prestatario vigilará el mantenimiento y conservación de las garantías constituídas a favor de CONAPE, y por ende comunicará inmediatamente al Departamento de Crédito o al Departamento Financiero, según corresponda, cualquiera desmejora o desaparición que estas sufrieren, así como los cambios en la dirección de residencia. N°. Telefónico, o lugar de trabajo, suyos y sus fiadores.
-(Así corrida su numeración por acuerdo del Consejo Directivo, en su sesión N° 47 de 18 de noviembre de 1999, el cual pasó el anterior artículo 23 al 24 actual)

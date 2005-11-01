@@ -1,1 +1,0 @@
-20. —La solicitud de un cambio de garantía hipotecaria por un grado inferior o por otra garantía no hipotecaria, debe ser resuelta por el Comité de Crédito, los demás cambios de garantía puede resolverlos el Departamento de Crédito o el Departamento Financiero, según corresponda.

@@ -1,2 +1,0 @@
-53. —El Departamento Financiero puede aprobar las solicitudes de adecuación de deuda, prórroga al período de amortización por causas debidamente justificadas, siempre y cuando la prórroga acumulada, en conjunto no exceda de doce meses, en un máximo de tres adecuaciones o prórrogas para un mismo prestatario durante la vigencia del crédito.
-(Así corrida su numeración por acuerdo del Consejo Directivo, en su sesión N° 47 de 18 de noviembre de 1999, el cual pasó el anterior artículo 52 al 53 actual)

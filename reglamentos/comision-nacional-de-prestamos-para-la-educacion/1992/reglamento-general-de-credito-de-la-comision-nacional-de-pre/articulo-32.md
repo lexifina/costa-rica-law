@@ -1,2 +1,0 @@
-32. —El prestatario debe matricular la cantidad de asignaturas establecidas en el Plan de Estudios para cada ciclo lectivo. Toda variación debe ser comunicada por el prestatario a CONAPE en el mismo ciclo lectivo. El Departamento de crédito podrá autorizar la petición.
-(Así corrida su numeración por acuerdo del Consejo Directivo, en su sesión N° 47 de 18 de noviembre de 1999, el cual pasó el anterior artículo 31 al 32 actual)

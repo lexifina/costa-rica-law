@@ -1,3 +1,0 @@
-CAPÍTULO III
-CONDICIONES CREDITICIAS
-11—El deudor y sus fiadores formalizarán el Contrato de Crédito para estudios QUE ES UN TÍTULO EJECUTIVO de acuerdo con el Artículo 24, de la Ley 6041 y así reconocido por las partes, produce acción ejecutiva para exigir a los obligados el cumplimiento de los compromisos adquiridos y está sometido a las disposiciones legales que le sean aplicables. El prestatario y sus fiadores quedan obligados solidariamente, a requerimientos de pago y demás trámites de juicio ejecutivo, renuncian a su domicilio y aceptan el pago de ambas costas causadas por el eventual juicio.

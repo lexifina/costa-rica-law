@@ -1,1 +1,0 @@
-3°.—El Comité de Crédito es un órgano presidido por el Secretario Ejecutivo conformado, además por los Jefes de los Departamentos de Crédito y Financiero; estudia el dictamen de cada solicitud y emite la respectiva recomendación ante el Consejo Directivo por medio del Secretario Ejecutivo.
