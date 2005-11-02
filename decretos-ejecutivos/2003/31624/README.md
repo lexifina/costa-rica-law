@@ -14,3 +14,4 @@ Reglamento de la Organización de la Tesorería Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-09 | la propia norma |
+| 2 | 2005-11-02 | Decreto Ejecutivo 32861 (2005-11-02) |

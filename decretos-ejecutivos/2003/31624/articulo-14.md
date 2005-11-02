@@ -1,13 +1,16 @@
-Artículo 14.—De la Unidad de Análisis y Política de Deuda:
-Con el propósito de proveer el soporte analítico para la administración estratégica de la deuda y desarrollar el seguimiento y control del riesgo corresponderá a la Unidad de Análisis de Deuda desarrollar las siguientes funciones:
-a) Elaborar la propuesta de estrategia de endeudamiento público tanto interno como externo para el mediano y largo plazo, considerando la capacidad de endeudamiento del país.
-b) Apoyar y asesorar en la toma de decisiones sobre operaciones de crédito público dentro del marco de la estrategia elaborada.
-c) Coordinar con otras instancias del Ministerio de Hacienda y del Banco Central, encargadas de la formulación de política económica a efecto de garantizar la consistencia entre la gestión de endeudamiento y la política monetaria y fiscal.
+Artículo 14.—De la Unidad de Análisis y Política de Deuda: Con el propósito de proveer el soporte analítico para la administración estratégica de la deuda y desarrollar el seguimiento y control del riesgo corresponderá a la Unidad de Análisis de Deuda desarrollar las siguientes funciones:
+a) Coordinar con la Unidad de Coordinación del Endeudamiento Institucional la elaboración de la propuesta de política de endeudamiento público tanto interno como externo para el mediano y largo plazo, considerando, entre otros, la capacidad de endeudamiento del país.
+b) Apoyar y asesorar a la Dirección y Gerencia en la toma de decisiones que se deban ejecutar, respecto a las operaciones de crédito público, dentro del marco de la estrategia elaborada.
+c) Coordinar con otras instancias del Ministerio de Hacienda, Ministerio de Planificación (MIDEPLAN) y del Banco Central, encargadas de la formulación de política económica, a efecto de garantizar la consistencia entre la gestión de endeudamiento y la política monetaria y fiscal, mediante la elaboración de la política de endeudamiento público.
 d) Elaborar estudios e informes sobre las principales características de la deuda pública.
-e) Apoyar la toma de decisiones sobre operaciones de financiamiento dentro del marco de la estrategia elaborada.
-f) Identificar y cuantificar y administrar los riesgos financieros del portafolio de deuda pública.
-g) Elaborar estimaciones y proyecciones del saldo y servicio de la deuda pública.
-h) Dar seguimiento sobre el cumplimiento de los parámetros ("benchmark") establecidos en la estrategia de endeudamiento para orientar la gestión de la deuda pública.
-i) Analizar y dar seguimiento a los pasivos contingentes del Gobierno Central.
-j) Evaluar la aplicabilidad y alcance de diferentes instrumentos financieros en la gestión de deuda pública.
-k) Otras funciones que determine la Dirección o la Gerencia de la División de Gestión de Deuda y correspondan para el cumplimiento de sus objetivos.
+e) Analizar, interpretar y emitir criterios y planes de acción con respecto a normativas y legislaciones referentes al proceso del crédito público, considerando los aspectos de cobertura de riesgos y minimización de costos del financiamiento con un nivel prudente de riesgo, para garantizar el cumplimiento de la estrategia de endeudamiento público y favorecer el desarrollo del mercado de deuda pública costarricense.
+f) Apoyar la toma de decisiones de la Dirección y Gerencia sobre operaciones de financiamiento dentro del marco de la estrategia elaborada.
+g) Identificar, cuantificar y administrar los riesgos financieros del portafolio de deuda pública.
+h) Elaborar estimaciones y proyecciones del saldo y servicio de la deuda pública.
+i) Realizar investigaciones sobre el comportamiento histórico, actual y e internacional, de manera que puedan ser incorporados dentro de los supuestos de análisis de los modelos financieros, para una adecuada estimación del servicio de la deuda pública.
+j) Definición de un Portafolio de Referencia (“Benchmark”) para Pasivos, que refleje la estructura de deuda que pondera el costo y riesgo que el Gobierno está dispuesto a asumir en consideración con la estructura de sus activos y pasivos; para una adecuada gestión de la deuda pública.
+k) Dar seguimiento sobre el cumplimiento de los parámetros del portafolio de referencia establecidos en la estrategia de endeudamiento para orientar la gestión de la deuda pública.
+l) Identificar y cuantificar las exposiciones de los pasivos contingentes y diseñar estrategias que permitan monitorear la exposición del Gobierno, haciendo uso de herramientas de la ingeniería financiera.
+m) Evaluar la aplicabilidad y alcance de los diferentes instrumentos financieros en la gestión de deuda pública.
+n) Otras funciones que determine la Dirección o la Gerencia de la División de Gestión de Deuda que correspondan al cumplimiento de sus objetivos.
+(Así reformado por el artículo 1° del decreto ejecutivo N°32861 del 02 de noviembre del 2005).
