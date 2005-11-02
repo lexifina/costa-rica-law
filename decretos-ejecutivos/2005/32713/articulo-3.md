@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión sesionará ordinariamente una vez al mes y extraordinariamente cuando sea convocada por el Coordinador. Para sesionar válidamente se requiere un quórum conformado por la mayoría absoluta de los miembros que integran esta Comisión. Los acuerdos se tomarán por mayoría simple de los representantes presentes.
