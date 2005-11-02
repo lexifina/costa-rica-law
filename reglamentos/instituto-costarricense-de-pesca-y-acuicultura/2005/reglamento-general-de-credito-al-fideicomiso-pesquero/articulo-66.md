@@ -1,0 +1,1 @@
+Artículo 66.—De los informes. El Fiduciario deberá presentar trimestralmente al Comité Especial un informe con los bienes adjudicados. Así mismo, en un plazo no mayor a 30 días, le presentará el informe correspondiente con los resultados de los bienes rematados.

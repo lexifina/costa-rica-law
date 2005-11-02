@@ -1,0 +1,1 @@
+Artículo 4º—De los beneficiarios. Solo podrán ser beneficiarios de este Fideicomiso los pescadores con licencia de pesca vigente o con inactividad y sus organizaciones, los acuicultores y sus organizaciones debidamente registradas ante INCOPESCA, y aquellas personas que en su plan de inversión establezca la compra de una embarcación con licencia de pesca vigente.

@@ -1,0 +1,1 @@
+Artículo 41.—De los gastos de formalización. Dentro del crédito, a solicitud del Fideicomisario, se podrán financiar la comisión de formalización, honorarios profesionales por constitución de prendas o hipotecas, prima de las pólizas y timbres que se deriven de la formalización del crédito.

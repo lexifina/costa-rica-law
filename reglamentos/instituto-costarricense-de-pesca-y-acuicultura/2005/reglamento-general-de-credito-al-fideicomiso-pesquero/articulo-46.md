@@ -1,0 +1,1 @@
+Artículo 46.—De la forma de pago. La forma de pago será mediante cuotas mensuales para adquisición y reparación de equipo de pesca y acuicultura y capital de trabajo; para obras de infraestructura y proyectos acuícolas podrán ser cuotas trimestrales, semestrales o anuales vencidas, que comprenderán amortización, intereses, pólizas y otros.

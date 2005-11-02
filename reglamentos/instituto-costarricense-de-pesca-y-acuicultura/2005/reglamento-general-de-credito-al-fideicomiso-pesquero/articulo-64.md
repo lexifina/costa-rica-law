@@ -1,0 +1,1 @@
+Artículo 64.—De los bienes adjudicados. Una vez adjudicado el bien por el juzgado correspondiente, el fiduciario con base en criterios técnicos y de conveniencia para el Fideicomiso, realizará las gestiones administrativas para el remate de los bienes, lo cual deberá llevar a cabo en plazo no mayor a 60 días a partir de la protocolización.

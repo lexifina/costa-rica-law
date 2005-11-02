@@ -1,0 +1,1 @@
+Artículo 28.—De los títulos valores. Podrán aceptarse títulos valores emitidos por un Banco del Sistema Bancario Nacional siempre y cuando el plazo de vigencia del título sea concordante al plazo del crédito solicitado; en caso contrario, deberá endosar el título al fiduciario. Se tomará el 100% del valor del título dado en garantía.

@@ -1,0 +1,2 @@
+Artículo 12.—De la votación. Los acuerdos del Comité Especial del Fideicomiso, se tomarán por mayoría simple de los miembros presentes. En caso de empate el presidente del Comité Especial tendrá doble voto.
+Los miembros del Comité Especial del Fideicomiso que estén fungiendo como titulares y tengan voto, podrán salvar el mismo, presentando las justificaciones que consideren necesarias para tal efecto.

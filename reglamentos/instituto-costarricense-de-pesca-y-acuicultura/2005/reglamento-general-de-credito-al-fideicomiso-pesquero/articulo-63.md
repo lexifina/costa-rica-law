@@ -1,0 +1,1 @@
+Artículo 63.—De la recuperación del crédito. La ejecución se ejercerá sobre las garantías hipotecarias, prendarias o fiduciarias, otorgadas por el beneficiario a favor del Fiduciario al momento de haberse otorgado el préstamo y sobre los bienes, mejoras, productos, o subproductos que se vayan obteniendo con los recursos del préstamo otorgado.

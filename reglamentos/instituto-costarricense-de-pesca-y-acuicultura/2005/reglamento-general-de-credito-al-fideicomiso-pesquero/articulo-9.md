@@ -1,0 +1,1 @@
+Artículo 9º—De la Presidencia. La Presidencia del Comité Especial del Fideicomiso será ejercida por el representante de la Presidencia Ejecutiva del INCOPESCA o su suplente. En caso de ausencia de estos, la presidencia se escogerá por votación simple entre los miembros presentes.

@@ -1,0 +1,1 @@
+Artículo 50.—De la póliza para garantía prendaria. Cuando la garantía sea una embarcación se pedirá como requisito al fideicomisario la suscripción de una póliza de pérdida total para el casco, para los vehículos una póliza con todas las coberturas y en el caso de maquinaria y equipo la póliza respectiva.

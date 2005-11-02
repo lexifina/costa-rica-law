@@ -1,0 +1,1 @@
+Artículo 65.—Del remate. El procedimiento de remate se ajustará a lo dispuesto para tal efecto por el Código Procesal Civil. El Fideicomiso Pesquero no dará crédito para la compra de bienes a rematar, sea de éste fideicomiso o de otra entidad bancaria.

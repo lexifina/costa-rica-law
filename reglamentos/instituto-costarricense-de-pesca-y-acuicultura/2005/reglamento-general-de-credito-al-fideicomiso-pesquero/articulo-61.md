@@ -1,0 +1,4 @@
+CAPÍTULO XI
+Cobro Judicial y remate de bienes adjudicados
+Artículo 61.—Del trámite de cobro. Durante la vigencia del crédito otorgado, los beneficiarios deberán cumplir con las condiciones establecidas en el presente Reglamento y el Contrato de Préstamo, caso contrario, se dará por vencida la obligación procediendo a la recuperación de los fondos adeudados por la vía administrativa y judicial, acciones que ejecutará el Fiduciario.
+Si a la fecha de vencimiento para el pago de dos cuotas mensuales o de una si el pago es trimestral o semestral, el prestatario no ha hecho efectiva la cuota correspondiente y no ha justificado su atraso en el cumplimiento de la obligación pendiente, el Fiduciario procederá inmediatamente a tomar las acciones administrativas y judiciales para recuperar los saldos vencidos, siguiendo los procedimientos que establece el contrato del préstamo y demás leyes aplicables.

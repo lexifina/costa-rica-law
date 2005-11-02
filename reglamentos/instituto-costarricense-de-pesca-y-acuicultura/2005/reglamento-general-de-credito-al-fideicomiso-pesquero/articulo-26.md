@@ -1,0 +1,1 @@
+Artículo 26.—De la hipoteca común. El Fideicomiso aceptará garantías hipotecarias en primer grado y libre de anotaciones, tomado como máximo al 80% del valor del avalúo del bien dado en garantía. Como garantía de una operación el beneficiario puede ofrecer hipotecas en primer grado sobre bienes inmuebles de su propiedad o de un tercero que consentirá el gravamen.

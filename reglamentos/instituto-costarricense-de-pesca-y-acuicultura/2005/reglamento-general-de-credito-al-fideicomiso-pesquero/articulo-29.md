@@ -1,0 +1,1 @@
+Artículo 29.—De los porcentajes de compromiso. El porcentaje de compromiso entre la cuota a pagar del crédito solicitado al Fideicomiso y los ingresos certificados, no podrá ser mayor al 30% para el deudor y el 25% en los .adores. Para determinar este compromiso, también se tomarán en cuenta otras deudas que tengan el deudor y/o los .adores en otras entidades crediticias.

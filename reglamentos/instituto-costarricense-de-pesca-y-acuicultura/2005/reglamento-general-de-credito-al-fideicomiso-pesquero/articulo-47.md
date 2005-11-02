@@ -1,0 +1,1 @@
+Artículo 47.—Del seguimiento del crédito. Las labores de asesoría, asistencia técnica y seguimiento técnico de los proyectos, serán realizadas por el INCOPESCA y el beneficiario pagará por el servicio. En caso de no contar con el personal técnico para dichas labores, la UTA recomendará los profesionales que brinden este servicio.

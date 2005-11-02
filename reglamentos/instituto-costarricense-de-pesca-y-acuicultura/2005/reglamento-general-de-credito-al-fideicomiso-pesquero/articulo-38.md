@@ -1,0 +1,1 @@
+Artículo 38.—De la recepción de solicitudes de crédito. Las solicitudes de crédito con todos sus requisitos pueden ser presentadas en las Direcciones Regionales, Oficinas Regionales, Oficina Auxiliares, Estaciones Acuícolas u oficina del Fideicomiso Pesquero en Puntarenas.

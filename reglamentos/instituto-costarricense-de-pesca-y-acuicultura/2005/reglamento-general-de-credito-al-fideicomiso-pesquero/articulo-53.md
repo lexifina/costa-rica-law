@@ -1,0 +1,1 @@
+Artículo 53.—Del pago de la póliza. Cuando por motivos de morosidad en el pago de la cuota, no se cuente con el monto total de la prima, el Fiduciario pagará el importe total con recursos del Fideicomiso y abrirá una cuenta por cobrar al deudor, misma que será liquidada contra el pago de las cuotas atrasadas o la cancelación del monto total adeudado.

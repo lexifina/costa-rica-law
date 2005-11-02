@@ -1,0 +1,1 @@
+Artículo 30.—Del refuerzo. En los casos en que existan operaciones con garantía prendaria o hipotecaria cuyo valor del avalúo no cubra los porcentajes estipulados, el Fideicomiso podrá aceptar que se refuerce la garantía con fianza solidaria según los términos que establece el Reglamento para estos fines.

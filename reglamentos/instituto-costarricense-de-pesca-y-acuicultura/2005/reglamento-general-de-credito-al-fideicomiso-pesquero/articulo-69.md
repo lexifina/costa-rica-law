@@ -1,0 +1,1 @@
+Artículo 69.—Del Fondo de Contingencia. El monto disponible en el Fondo de Contingencia al entrar en vigencia el presente Reglamento, se utilizará para cancelar los costos de desinscripción de las garantías que en su momento respaldaron un crédito otorgado con fondos del Fideicomiso Pesquero, cuyo beneficiario haya cancelado la totalidad de la deuda.

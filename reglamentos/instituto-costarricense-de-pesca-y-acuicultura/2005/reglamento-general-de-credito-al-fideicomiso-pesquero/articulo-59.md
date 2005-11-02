@@ -1,0 +1,2 @@
+Artículo 59.—De la novación de deudor. Se podrán realizar novaciones de deudor, siempre y cuando éste cumpla con los requisitos estipulados en el capítulo VII de este Reglamento y se mantenga las garantías originales.
+Debe presentar la solicitud formal con los requisitos establecidos remitiendo éstos al Comité Especial para su análisis y recomendación al Fiduciario; quien en última instancia será el que lo apruebe. Correrá por cuenta del Fideicomisario los gastos correspondientes a dicho trámite.

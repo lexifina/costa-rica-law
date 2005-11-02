@@ -1,0 +1,1 @@
+Artículo 43.—Del período de desembolso. El Comité Especial podrá aprobar, con base en el plan de inversión del proyecto, un período de desembolso para aquellas operaciones que por sus características lo requieran.

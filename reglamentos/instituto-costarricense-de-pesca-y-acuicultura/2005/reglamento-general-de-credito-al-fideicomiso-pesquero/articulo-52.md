@@ -1,0 +1,1 @@
+Artículo 52.—De la prima de la póliza. El Fideicomiso financiará la prima de las pólizas de los bienes en garantía, cuyo costo será incluido dentro del préstamo total y en la cuota mensual a pagar. El Fiduciario será el responsable de la vigencia de la póliza.

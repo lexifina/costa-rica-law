@@ -1,0 +1,3 @@
+Artículo 8º—De los nombramientos. El suplente, asumirá las funciones y responsabilidades del propietario en ausencia temporal de éste en las sesiones. El nombramiento del representante propietario y del suplente del sector pesquero será por un período de dos años. La función de los miembros del Comité Especial del Fideicomiso será ad honórem.
+Para que la actuación de los miembros del Comité Especial se ajuste a derecho deberá estar vigente su nombramiento.
+Los suplentes podrán asistir a las sesiones ordinarias y extraordinarias con derecho a voz pero sin voto, salvo cuando ocupe la titularidad del cargo.

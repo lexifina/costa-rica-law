@@ -1,0 +1,2 @@
+Artículo 67.—Del saldo al descubierto. El Fiduciario será quien determine la cuantía del saldo al descubierto, le corresponderá informar de esa suma al abogado para que solicite al juez la respectiva declaratoria. Dicha gestión deberá realizarse inmediatamente después de obtenida la firmeza del remate.
+El Fiduciario es el responsable de dar seguimiento a las gestiones del abogado para recuperar esos saldos para lo cual deberá tomar las medidas necesarias.

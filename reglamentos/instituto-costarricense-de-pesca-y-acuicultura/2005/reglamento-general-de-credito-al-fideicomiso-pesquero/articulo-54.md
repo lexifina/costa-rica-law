@@ -1,0 +1,3 @@
+Artículo 54.—De la indemnización. El Fideicomisario, en caso de siniestro deberá iniciar los trámites de cobro de la indemnización y comunicar inmediatamente al Fiduciario.
+La aseguradora deberá emitir el cheque de indemnización a favor del Fiduciario, el cual procederá a aplicarla a la fecha del siniestro. En caso de recursos sobrantes estos se le entregan al fideicomisario y de quedar un saldo al descubierto deberá ser cancelado por éste.
+En caso de que el bien dado en garantía sufra un siniestro y la póliza no se encuentre vigente, por causas no imputables al fideicomisario, el Fiduciario será el responsable de indemnizar al Fideicomiso Pesquero por el total de la deuda.

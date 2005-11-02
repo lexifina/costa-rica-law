@@ -1,0 +1,1 @@
+Artículo 11.—Del quórum. El Comité Especial del Fideicomiso, para efecto de celebrar las sesiones ordinarias o extraordinarias programadas, deberá contar con al menos dos de los miembros con voto, de forma tal que se cuente con el quórum requerido.

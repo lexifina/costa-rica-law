@@ -1,0 +1,2 @@
+Artículo 44.—De las inspecciones. Los desembolsos se realizaran contra avance de obra, para lo cual un funcionario de la UTA o de INCOPESCA, efectuará las respectivas inspecciones para verificar que los trabajos correspondan a lo aprobado en el plan de inversión del préstamo y presentará al Fiduciario el informe.
+En caso de que la inspección sea realizada por un funcionario de INCOPESCA, el interesado deberá cancelar este servicio.
