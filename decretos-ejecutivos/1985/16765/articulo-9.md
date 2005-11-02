@@ -1,1 +1,1 @@
-ARTICULO 9º.- El Colegio autorizará apertura de botiquines a menos de 5 kilómetros de distancia de la farmacia más próxima o de otro botiquín.
+ARTICULO 9º.-Anulado. (Anulado mediante resolución de la Sala Constitucional N° 3477-96, de las 14: 51 horas, del 10 de julio de 1996).
