@@ -4,9 +4,9 @@ a) Recibir las solicitudes de los candidatos que soliciten expresamente ser suje
 b) Aprobar o improbar la compra de la deuda de los solicitantes, previa verificación del cumplimiento de los requerimientos ordenados en esta Ley.
 c) Proceder a la compra de las deudas de los beneficiarios aprobados.
 d) Readecuar la deuda comprada a un plazo de quince años y a la tasa de interés fijada en esta Ley. En caso especial, previo estudio técnico y financiero, el Comité del Fideicomiso podrá fijar un plazo menor que el establecido en este inciso.
-(Así refromado por el inciso e) del artículo 1 de la ley N° 8332 de 7 de noviembre del 2002)
-e) Fijar el período de gracia que el Fideicomiso considere apropiado, el cual no podrá ser inferior a un año ni podrá exceder de tres años. Los intereses generados durante el primer año se acumularán al monto del principal. Para establecer la periodicidad del pago de los intereses una vez transcurrido dicho plazo el Comité del Fideicomiso considerará el tipo de actividad a que se dedica el agricultor.
-(Así reformado por el inciso c) del artículo 1 de la Ley No. 8390 de 4 de noviembre de 2003).
+(Así reformado por el inciso e) del artículo 1 de la ley N° 8332 de 7 de noviembre del 2002).
+e) Fijar el período de gracia de tres años sobre el principal y los intereses. Durante este período, las operaciones no devengarán intereses, ni estos se acumularán al monto del principal. El Comité del Fideicomiso considerará el tipo de actividad a que se dedique el agricultor, a fin de establecer la periodicidad del pago de los intereses.
+(Así reformado el inciso anterior por el artículo 1° de la Ley N° 8477 de 3 de noviembre de 2005).
 f) Aprobar los presupuestos del Comité de Fideicomiso y las modificaciones que se requieran.
 g) Aprobar la contratación de, al menos, una auditoría externa por año del fideicomiso.
 h) Colaborar con el fiduciario, en todo lo que requiera para la buena marcha del fideicomiso.
