@@ -1,0 +1,1 @@
+Artículo 12.—Previo a la aprobación del acta, cualquier concejal que funja como propietario puede interponer recurso de revisión contra determinado acuerdo. El acuerdo así impugnado podrá ser derogado si se cuenta con al menos la misma mayoría que se necesitó para su adopción.

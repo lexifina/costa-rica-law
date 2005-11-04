@@ -1,0 +1,1 @@
+Artículo 5º—Por acuerdo del Concejo, cualquier funcionario podrá ser citado a sesiones. El funcionario está obligado a responder personalmente y no por medio de otras personas. La negativa a presentarse o a responder las preguntas se considerará falta grave, excepto cuando sea por motivo de enfermedad o de fuerza mayor debidamente justificada.

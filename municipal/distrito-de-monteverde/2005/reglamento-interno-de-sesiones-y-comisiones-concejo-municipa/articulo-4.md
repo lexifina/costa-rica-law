@@ -1,0 +1,1 @@
+Artículo 4º—El quórum para sesionar válidamente será de tres miembros del Concejo. Para efectos de conformar el quórum, en caso de ausencia de concejales propietarios, procederá la sustitución con concejales suplentes en los términos señalados por el Código Municipal.

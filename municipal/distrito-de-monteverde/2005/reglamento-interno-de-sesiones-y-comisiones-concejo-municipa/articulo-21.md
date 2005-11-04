@@ -1,0 +1,1 @@
+Artículo 21.—Queda a discreción de la Secretaría Municipal grabar total o parcialmente las sesiones, así como de los Concejales solicitar que no se consignen sus manifestaciones dentro de la grabación. Los casetes serán solamente una ayuda para la secretaria municipal, por lo cual serán borrados una vez confeccionada el acta.
