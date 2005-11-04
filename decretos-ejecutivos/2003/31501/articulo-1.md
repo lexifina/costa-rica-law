@@ -10,7 +10,8 @@ Artículo 1º—Modifíquese el artículo 1 punto 1 incisos a), i) y punto 2 inc
 1. Miembros propietarios:
 a) Allan Flores Moya, representante del Ministro del Ambiente y Energía, quien será el presidente de la Comisión y responsable de su adecuado funcionamiento.
 i) Mariela Herrera Morera, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
-2. Miembros suplentes:
-a) Daniel León Núñez, representante del Viceministro del Ambiente y Energía.
-c) Carlos Cordero Morales, representante del Ministro de Agricultura y Ganadería.
+2) Miembros suplentes:
+a. Guillermo Arce Roldán, representante del Viceministro del Ambiente y Energía.
+c. Nevio Bonilla Morales, representante del Ministro de Agricultura y Ganadería.
 i) Irina Ramos Arrocha, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
+(Así reformados el punto 2, incisos a) y c) por Artículo 2° del Decreto Ejecutivo N° 32803 del 4 de Noviembre del 2005)
