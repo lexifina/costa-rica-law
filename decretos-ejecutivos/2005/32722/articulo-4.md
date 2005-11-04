@@ -1,0 +1,1 @@
+Artículo 4º—Compete al Ministerio y a la Caja mediante sus dependencias técnicas, normativas y ejecutivas, la responsabilidad de velar porque se brinde a la familia y a la comunidad en general, una información objetiva, completa y coherente sobre inmunizaciones.

@@ -1,0 +1,3 @@
+CAPÍTULO V
+Investigación
+Artículo 31.—Investigación: La Comisión debe ser informada sobre las investigaciones en el campo de las inmunizaciones que se realicen en el país por parte de los investigadores, ya sea del sector público o privado. La Comisión no tendrá relación con la aprobación de los estudios, los cuales deben seguir los procedimientos de aprobación ante el Consejo Nacional de Investigación de Salud (CONIS), o los respectivos Comités Ético-Científicos Institucionales (CEC), acorde con lo dispuesto en el Decreto Ejecutivo Nº 31078-S de 5 de marzo del 2003 “Reglamento para las Investigaciones en que participan seres humanos”.

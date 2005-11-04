@@ -1,0 +1,1 @@
+Artículo 28.—Todo el personal de salud que apliquen vacunas está en la obligación de anotar en el carné de vacunas del paciente, las vacunas aplicadas y la fecha en que se aplicó. En caso de que el paciente no lleve consigo el carné de vacunas o no tenga, debe dársele uno nuevo con el registro de la aplicación.

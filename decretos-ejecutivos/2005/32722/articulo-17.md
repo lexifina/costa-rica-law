@@ -1,0 +1,4 @@
+CAPÍTULO III
+Del suministro de vacunas selección,
+adquisición, almacenamiento y distribución
+Artículo 17.—Selección de vacunas: Corresponde a la Comisión, la revisión y actualización del esquema básico oficial y los esquemas especiales de inmunizaciones, con base en la realidad epidemiológica y la información científico-técnica actual. El análisis de esquemas se hará en forma continua, para su actualización. En casos de situaciones especiales tales como desastres o emergencias declaradas en las que se necesite aplicar vacunas, se definirá el esquema que garantice la cobertura de las poblaciones de mayor vulnerabilidad, en sesión extraordinaria de la Comisión. Los cambios en esquema oficial y la inclusión de nuevas vacunas la hará el Ministerio y la Caja en comunicado a todas las unidades asistenciales y a todas las dependencias del sector salud del país.

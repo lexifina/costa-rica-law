@@ -1,0 +1,1 @@
+Artículo 3º—El Ministerio y la Caja son las instituciones encargadas de velar porque se cumpla con los programas de inmunizaciones, tanto en lo relacionado al esquema oficial de inmunizaciones aprobado para el país y las vacunas definidas por la Comisión para grupos de riesgo.

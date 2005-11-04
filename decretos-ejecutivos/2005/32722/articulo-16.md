@@ -1,0 +1,1 @@
+Artículo 16.—Quórum: El quórum se formará con cinco miembros y los acuerdos se tomarán por mayoría absoluta de los miembros presentes, debiendo especificarse cuando los acuerdos que tomen son en firme.

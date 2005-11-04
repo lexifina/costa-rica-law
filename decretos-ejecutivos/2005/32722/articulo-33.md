@@ -1,0 +1,1 @@
+Artículo 33.—La Comisión deberá solicitar al Despacho de la Ministra la inclusión de fondos dentro de la Ley Nacional de Presupuestos de acuerdo a las proyecciones de gastos con base en la programación de actividades y las necesidades previstas.

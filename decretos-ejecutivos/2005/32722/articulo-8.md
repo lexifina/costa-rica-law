@@ -1,0 +1,1 @@
+Artículo 8º—Toda acción u omisión que contravenga las disposiciones de la ley N° 8111 y del presente reglamento, será considerada como contravención a la salud y se sancionará conforme lo establece la normativa jurídica.

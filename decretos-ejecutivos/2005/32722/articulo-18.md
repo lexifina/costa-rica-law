@@ -1,0 +1,1 @@
+Artículo 18.—Si se incluye alguna vacuna ya sea en el esquema oficial o en esquemas especiales, se elevará solicitud de inclusión al Comité Central de Farmacoterapia de la Caja, según la normativa vigente, y se solicitará realizar los trámites administrativos pertinentes para su inclusión en el Catálogo de Suministros de la Institución y en la Lista Oficial de Medicamentos (LOM).

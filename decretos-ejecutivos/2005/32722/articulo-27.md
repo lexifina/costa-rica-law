@@ -1,0 +1,1 @@
+Artículo 27.—El Ministerio a través de la Dirección de Servicios de Salud, deberá habilitar los centros o consultorios que se establezcan para la aplicación de vacunas, responsabilizándose de su supervisión.

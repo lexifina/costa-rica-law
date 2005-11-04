@@ -1,0 +1,1 @@
+Artículo 7º—Compete al Ministerio, con la asesoría de la Comisión, establecer las disposiciones o acciones para el cumplimiento del presente Reglamento a nivel de servicios de salud públicos y privados.

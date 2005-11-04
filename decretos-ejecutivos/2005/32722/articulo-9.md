@@ -1,0 +1,1 @@
+Artículo 9º—Las sanciones que las autoridades podrán imponer por las infracciones a la ley N° 8111 y del presente reglamento y las que dicten las autoridades de salud, deberán ser acordes con el ordenamiento jurídico vigente.

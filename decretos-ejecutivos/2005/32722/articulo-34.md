@@ -1,0 +1,1 @@
+Artículo 34.—Para los efectos del artículo 15 inciso c) de la Ley 8111, la Comisión deberá solicitar a la Gerencia General de la Junta de Protección Social, que la fecha del sorteo asignado a la Vacunación sea lo más cercano al 7 de abril de cada año.

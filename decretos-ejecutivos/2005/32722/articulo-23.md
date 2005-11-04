@@ -1,0 +1,1 @@
+Artículo 23.—De las donaciones: Las donaciones efectuadas por las instituciones públicas, instituciones autónomas y semiautónomas, empresas públicas y privadas , así como de otras instituciones u organismos privados se canalizarán a través de la Comisión y la Gerencia la Caja, según la reglamentación vigente.

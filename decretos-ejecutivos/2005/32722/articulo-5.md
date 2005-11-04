@@ -1,0 +1,1 @@
+Artículo 5º—El material que contenga información acerca del empleo de inmunizaciones, deberá señalar el riesgo que implica para la salud de la persona, el uso innecesario, inadecuado e indiscriminado de estos medicamentos.

@@ -1,0 +1,1 @@
+Artículo 2º—Están sujetos a las disposiciones de este Reglamento, las personas físicas y jurídicas que directa o indirectamente se relacionen o intervengan con los servicios de salud pública y privada, que realicen actividades de prevención, vigilancia y control de enfermedades inmunoprevenibles.

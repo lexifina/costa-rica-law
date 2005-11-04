@@ -1,0 +1,1 @@
+Artículo 20.—En caso de que el Fondo Rotatorio /OPS no pueda suplir las vacunas que se necesitan, o no puedan ofrecer alguna vacuna necesaria ya sea dentro del esquema oficial o dentro de los esquemas especiales, la Caja comprará las vacunas siguiendo la normativa vigente para adquisición de medicamentos.
