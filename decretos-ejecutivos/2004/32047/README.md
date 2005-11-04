@@ -14,3 +14,4 @@ Reforma a la Integración de la Comisión Nacional para la Gestión de la Biodiv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-09 | la propia norma |
+| 2 | 2005-11-04 | Decreto Ejecutivo 32803 (2005-11-04) |

@@ -9,8 +9,9 @@ III.—Que el artículo 15 de la Ley de Biodiversidad, establece la forma en que
 DECRETAN:
 Artículo 1º—Modifíquese el artículo 1º, punto 1, incisos d) y e) y punto 2, incisos e) y k) del Decreto Nº 31126-MINAE, para que en su defecto se lea:
 1. Miembros propietarios:
-d) Fanny Levin Vargas, representante de la Ministra de Salud.
+d) Fanny Levin Picado, representante de la Ministra de Salud.
 e) Alejandra Aguilar Schramm, representante del Ministro de Comercio Exterior.
 2. Miembros suplentes:
 e) Natalia Hernández Ramírez, representante del Ministro de Comercio Exterior.
-k) Eduardo Aguilar Espinoza, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
+k. Pablo Sibar Sibar, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
+(Así reformado el punto punto 1, inciso d) y 2, inciso k) por Artículo 3 del Decreto Ejecutivo 32803 del 4 de noviembre del 2005)
