@@ -12,7 +12,8 @@ Artículo 1º—Se integra la Comisión Nacional para la Gestión de la Biodiver
 a) Señor Allan Flores Moya, representante del Ministro del Ambiente y Energía, quien será el presidente de la Comisión y responsable de su adecuado funcionamiento.
 (Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
 b) Señor Raúl Solórzano Soto, Director Superior del Sistema Nacional de Áreas de Conservación.
-c) Señor Alfredo Bolaños Herrera, representante del Ministerio de Agricultura y Ganadería.
+c. Carlos Cordero Morales, representante del Ministro de Agricultura y Ganadería.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32803 del 4 de noviembre de 2005)
 d) Fanny Levin Vargas, representante de la Ministra de Salud.
 (Así reformado el inciso d) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
 e) Alejandra Aguilar Schramm, representante del Ministro de Comercio Exterior.
@@ -20,9 +21,10 @@ e) Alejandra Aguilar Schramm, representante del Ministro de Comercio Exterior.
 f) Señor Carlos Hernández Porras, representante de la Asociación Mesa Nacional Campesina.
 g) Señor Reynaldo González Segura, representante de la Asociación Mesa Nacional Indígena.
 h) Señor Berny Marín Alpízar, representante del Instituto Costarricense de Pesca y Acuacultura.
-i) Señora Mariela Herrera Morera, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
+i. Señora Mariela Herrera Morera, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
 (Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
-j) Señor Daniel Briceño Lobo, representante de la Comisión Nacional de Rectores.
+j) Fiorella Donato Calderón, representante del Consejo Nacional de Rectores.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32803 del 4 de noviembre de 2005)
 k) Señor Isaac Rojas Ramírez, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
 2. Miembros suplentes:
 a) Señor Daniel León Núñez, representante del Viceministro del Ambiente y Energía.
@@ -38,6 +40,6 @@ g) Señor Donald Rojas Maroto, representante de la Asociación Mesa Nacional Ind
 h) Señora Ana Rita Vásquez Arias, representante del Instituto Costarricense de Pesca y Acuacultura.
 i) Señora Irina Ramos Arrocha, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
 (Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
-j) Señor Ruperto Quesada Monge, representante de la Comisión Nacional de Rectores.
+j. Abdenago Brenes Hine, representante del Consejo Nacional de Rectores.
 k) Eduardo Aguilar Espinoza, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
 (Así reformado el inciso k) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
