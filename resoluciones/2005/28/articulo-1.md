@@ -1,0 +1,15 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+Nº 028-SC.—San José, 20 de octubre del 2005
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-275-2005, se modifica su homóloga la DG-79-95 que regula la Carrera Profesional Docente.
+DG-286-2005, se elimina del Manual Institucional de Clases del Tribunal Administrativo de Transporte, las clases de Presidente del Tribunal Administrativo de Transporte y Miembro del Tribunal Administrativo de Transporte.
+DG-289-2005, se modi.ca el artículo 2º de su homóloga la DG- 221-2004 a efecto de incorporar al Ministerio de Cultura, Juventud y Deportes en el aparte de ubicación de la especialidad forestal y ampliar el rango de aplicación de varias especialidades, para que contengan las clases institucionales del Museo Nacional de Costa Rica.
+DG-290-2005, se incluye la carrera Salud Ocupacional como atinencia académica de la Especialidad Gestión en Desastres, Subespecialidad Social, de la Comisión de Prevención de Riegos y Atención de Emergencias.
+DG-291-2005, se incluye la carrera Ingeniería en Mantenimiento Industrial, en la especialidad Ingeniería Mecánica del Manual Descriptivo de Especialidades del Régimen de Servicio Civil.
+DG-294-2005, se incluye la carrera de Ciencias de la Comunicación Colectiva con sus énfasis en el Manual Descriptivo de Especialidades del Régimen de Servicio Civil.
+DG-298-2005, se, crean las clases Coordinador General de Departamento Catastro y Coordinador de Proceso de Catastro Nacional, así como la modificación consecuente de otras y supresión de las Clases: Jefe de Departamento Catastral (Grupos A y B), y Coordinador de Proceso Catastral (Grupos A y B).
+DG-299-2005, se incluye la Licenciatura en Ingeniería Informática con énfasis en Desarrollo del Software dentro de las atinencias académicas para algunas clases de la serie de informática tanto del Manual de Clases anchas del Régimen de Servicio Civil, como de los Manuales Institucionales de algunas dependencias del Ministerio de Hacienda.
+DG-300-2005, se asigna la especialidad Administración Tributaria, Subespecialidad Gestión y Recaudación al puesto clasificado como Técnico Tributario, cargo: Técnico Tributario B del Ministerio de Hacienda.
+DG-301-2005, se modi.ca el artículo 2º de la resolución DG- 174-99, a efecto de incluir los Grupos de Especialidad Ingeniería Industrial, Publicidad y Relaciones Públicas, en la lista de especialidades autorizadas para las clases Profesional 1, 2, 3 y 4 del Manual de Clases Institucional de la Imprenta Nacional.
+DG-302-2005, se modi.ca un requisito de la clase institucional Trabajador Auxiliar de CEN-CINAI del Ministerio de Salud.
+DG-303-2005, se declara la carrera de Ingeniería en Seguridad Laboral e Higiene Ambiental y la Maestría en Salud Ocupacional con mención en Higiene Ambiental en su opción académica y profesional como atinencias académicas de los grupos de especialidad denominados: Inspección Laboral, Radioprotección, Salud Integral, Salud, Seguridad e Higiene Ocupacional y Saneamiento Ambiental en el Manual Descriptivo de Especialidades del Régimen de Servicio Civil.
