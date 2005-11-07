@@ -13,3 +13,4 @@ Reglamento para el Registro, Control, y Uso del Mobiliario y Equipo de Oficina d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-16 | la propia norma |
+| 2 | 2005-11-07 | Reglamento 34 (2005-11-07) |
