@@ -1,0 +1,1 @@
+IV.—Finalidad del Consejo Consultivo de Género. Se crea el Consejo Consultivo de Género como Órgano permanente de la Dirección General del Organismo de Investigación Judicial, con la finalidad de asesorar, velar y coadyuvar al establecimiento y cumplimiento de políticas equitativas para el desarrollo de todo el personal de la Institución y de la prestación del servicio.

@@ -1,0 +1,12 @@
+IX.—Disposiciones generales.
+a- El Consejo Consultivo de Género se reunirá ordinariamente una vez al mes, siempre que existan temas a tratar, y extraordinariamente las veces que sean necesarias.
+b- EI quórum se establecerá con la presencia de la mitad más uno de sus miembros.
+c- Los acuerdos se tomarán por consenso, pero de no lograrse, se hará mediante votación de mayoría simple. Por formar parte de un cuerpo deliberativo, son los encargados de tomar decisiones, por lo tanto no se aceptará una abstención en una votación. En caso de que se presente empate, el (la) Coordinador (a) tendrá la potestad de resolver la situación con la emisión de un segundo voto.
+d- Sobre todas las sesiones que se celebren se levantará un acta que será firmada por todos los miembros presentes al momento de la aprobación, la cual se realizará en la sesión siguiente.
+e- Las sesiones se iniciarán con la lectura del acta de la reunión anterior, procediendo a evaluar el estado de cumplimiento de los acuerdos tomados.
+f- El Consejo Consultivo de Género tendrá la potestad de relevar del cargo de representante a aquel miembro que incumpla en reiteradas ocasiones, los deberes y responsabilidades establecidas en este reglamento.
+g- El (la) Coordinador (a) del Consejo Consultivo de Género, se constituye en un puesto de confianza del Director General del Organismo de Investigación Judicial; por tanto, dicho Coordinador (a) podrá ser removido (a) y sustituido (a) de su puesto por el Director General, antes de la conclusión del período para el cual fue nombrado (a).
+h- Para el cumplimiento de sus objetivos, el Consejo Consultivo de Género podrá invitar a sus sesiones a representantes de otras instituciones o personas que puedan ofrecer aportes de interés.
+i- Las jefaturas del Organismo de Investigación Judicial, están en la obligación de velar por que los (as) representantes del Consejo Consultivo de Género asistan puntualmente a las reuniones convocadas oficialmente. Cuando la o él representante se encuentre cubriendo roles alternos, se eximirá de la guardia previa o posterior del día de la reunión, sea diurna o nocturna.
+j- La Dirección General del Organismo de Investigación Judicial brindará el apoyo y seguimiento necesario al Consejo Consultivo de Género y velará por el cumplimiento de los acuerdos tomados.
+Además, tiene la facultad de sancionar a sus integrantes en caso de que de manera injustificada, no se cumpla con los acuerdos tomados en ese Consejo, conforme a las disposiciones legales vigentes.
