@@ -1,0 +1,7 @@
+Nº 8463
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN A LA MUNICIPALIDAD DE SANTA BÁRBARA DE HEREDIA PARA QUE DONE UN INMUEBLE DE SU PROPIEDAD A LA ASOCIACIÓN DE EDUCADORES PENSIONADOS
+Artículo 1º—Autorízase a la Municipalidad de Santa Bárbara de Heredia, cédula de persona jurídica Nº 3-014-042096, para que traspase, a título gratuito, a la Asociación de Educadores Pensionados (ADEP), cédula de persona jurídica Nº 3-002-045539-03, el inmueble de su propiedad, el cual se encuentra debidamente inscrito en la Sección Propiedad del Registro Nacional, provincia de Heredia, en el tomo quinientos noventa, folio trescientos sesenta y dos, asiento 1, número veintiún mil quinientos sesenta y se describe así: terreno de potrero con un galerón que sirve para el rastro público, situado en el distrito 1º del cantón IV de la provincia de Heredia. Linda: al norte y al este, con Otoniel Orozco; al sur, con Florencio Salas, y al oeste, con Juan Cortés y calle pública. La medida registral es de 630 metros cuadrados y el plano catastrado es el número H-826237-89. El terreno por donar será destinado a la construcción de la casa de los educadores pensionados de la filial del cantón de Santa Bárbara, provincia de Heredia.
+Asimismo, se autoriza a la ADEP para que establezca los convenios de cooperación con organizaciones de la comunidad, con el fin de facilitarles las instalaciones.
