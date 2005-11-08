@@ -1,0 +1,1 @@
+Artículo 2º—Por existir una discrepancia entre la medida registral y la indicada en el plano catastrado aludido supra, se rectifica en la disminución la medida de la finca descrita en el artículo anterior a 513 metros cuadrados con 24 decímetros, tal y como lo establece el plano catastrado número H-826237-89.
