@@ -14,3 +14,4 @@ Reglamento interno de Contratación Administrativa del Banco Crédito Agrícola 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-08 | la propia norma |
+| 2 | 2005-11-08 | Reglamento 7881 (2005-11-08) |

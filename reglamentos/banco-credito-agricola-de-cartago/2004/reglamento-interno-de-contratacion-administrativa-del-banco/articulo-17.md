@@ -1,1 +1,2 @@
-Artículo 17.—La Proveeduría entregará al responsable designado en el artículo anterior, copia de la orden de compra o contrato y toda aquella información relacionada con los deberes y obligaciones de las partes contratantes (cartel y la oferta, entre otros). El responsable deberá mantener el expediente de ejecución contractual debidamente ordenado y custodiado.
+Artículo 17.—Se faculta los Subgerentes Generales para vender o rematar bienes muebles en desuso y material de desecho, para lo cual deberá contar con una valoración emitida por el área técnica correspondiente. Cuando el valor contable de los bienes muebles en desuso sea mayor a la valoración, debe motivarse la autorización.
+(Así reformado en sesión N° 7881 del 8 de noviembre del 2005)
