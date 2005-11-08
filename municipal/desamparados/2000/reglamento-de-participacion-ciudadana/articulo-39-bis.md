@@ -1,0 +1,2 @@
+Artículo 39 bis: Existirá un Pleno de Jornadas de Discusión para la Rendición de Cuentas, integrado por 3 representantes de cada concejo distrital ampliado. Dicho espacio cantonal, será convocado durante el mes de enero de cada año, con la finalidad de validar el Informe de Labores del Alcalde/sa Municipal.
+(Así adicionado en sesión N° 260 del 13 de setiembre de 2005, y definitivamente aprobado en sesión N° 273 del 8 de noviembre de 2005)

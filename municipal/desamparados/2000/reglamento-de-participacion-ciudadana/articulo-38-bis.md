@@ -1,0 +1,7 @@
+Artículo 38 bis: Adicionalmente las Jornadas de Discusión para la Rendición de Cuentas se establecerán como espacio distrital, integrado por los miembros permanentes del concejo distrital, para lo cual el concejo de distrito deberá:
+a) Solicitar en setiembre de cada año a la Dirección de Gestión Social de la Municipalidad, el censo actualizado de organizaciones distritales idóneas y fundaciones, para la integración en su seno de uno / una de los representantes de cada organización.
+b. Solicitar a la Oficina de Planificación Municipal los índices de gestión institucional referentes al distrito respectivo, con el objeto de iniciar el ciclo de discusión sobre el proceso de elaboración del Informe Labores del Alcalde Municipal.
+c. Elaborar el documento de “Observaciones Distritales”, con las incongruencias y errores detectados en los índices de gestión y realizaciones distritales, tenidas como ciertas por la Administración Municipal.
+d. Analizar las justificaciones que brinden las distintas dependencias municipales sobre el fondo de las “Observaciones Distritales”.
+e. El Concejo Distrital Ampliado deberá nombrar 3 de sus miembros, de género diferenciado, para que representen al distrito ante el Pleno de Jornadas de Discusión para la Rendición de Cuentas.
+(Así adicionado en sesión N° 260 del 13 de setiembre del 2005, y definitivamente aprobado en sesión N° 273 del 8 de noviembre de 2005)

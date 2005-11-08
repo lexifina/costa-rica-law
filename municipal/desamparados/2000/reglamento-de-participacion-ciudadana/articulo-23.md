@@ -1,3 +1,5 @@
 Artículo 23.—En el municipio y por medio de sus respectivas instancias, la Municipalidad deberá:
 a) Impulsar y diseñar políticas y programas destinados a la juventud y la niñez, con el propósito de fomentar en ellos una conciencia cívica que implique el interés por la participación ciudadana en la gestión municipal.
 b) Concertar por las vías legales establecidas el que los centros de enseñanza del cantón sin menoscabo de su autonomía con respecto a la municipalidad, incluyan en sus programas el estudio de las normas de participación ciudadana a fin de que estas se difundan y sean conocidas por las nuevas generaciones.
+c) Con ocasión del ciclo de actividad es de Rendición de Cuentas, inaugurado con la convocatoria de las Jornadas de Discusión, la corporación municipal y sus dependencias se comprometerá a brindar toda la información y colaboración planteadas en el artículo 38 bis del presente reglamento, a fin de hacer efectivas las atribuciones en la materia de los concejos distritales ampliados.
+(Así adicionado el inciso anterior en sesión N° 260 del 13 de setiembre del 2005, y definitivamente aprobado en sesión N° 273 del 8 de noviembre de 2005)

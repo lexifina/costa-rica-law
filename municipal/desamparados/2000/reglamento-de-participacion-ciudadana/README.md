@@ -14,3 +14,4 @@ Reglamento de Participación Ciudadana
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-29 | la propia norma |
+| 2 | 2005-11-08 | Reglamento municipal 273 (2005-11-08) |
