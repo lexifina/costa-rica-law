@@ -1,0 +1,4 @@
+CAPÍTULO II
+De la asignación del teléfono celular
+Artículo 3º—El servicio de teléfonos celulares, es una asignación excepcional, cuya asignación o retiro del servicio es potestad exclusiva del Director Ejecutivo a fin de asegurarse la adecuada comunicación con y entre los funcionarios de su organización por la naturaleza de sus funciones se justifique que disponga del servicio.
+La Dirección Ejecutiva valorará en forma objetiva y en observancia de los principios de razonabilidad, sana administración, austeridad en el gasto público y protección a los intereses del Consejo de Transporte Público, la necesidad de asignar de manera equipos de telefonía móvil con sus respectivos accesorios y línea telefónica a funcionarios de la organización. En principio, tendrá un teléfono celular asignado únicamente el Presidente de la Junta Directiva, la Dirección Ejecutiva y el Auditor Interno del Consejo de Transporte Público.

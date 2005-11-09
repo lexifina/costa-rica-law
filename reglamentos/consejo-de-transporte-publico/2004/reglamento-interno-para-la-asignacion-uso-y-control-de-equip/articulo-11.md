@@ -1,0 +1,4 @@
+CAPÍTULO III
+Responsabilidades
+Artículo 11.—El teléfono celular, será de uso exclusivo del funcionario responsable, por lo tanto éste será responsable de la conservación, limpieza, custodia, control, uso correcto y racional de la línea, del equipo telefónico y los accesorios facilitados por el CTP en calidad de instrumentos de trabajo, para su uso exclusivo y mejor desempeño de sus labores conforme al presente reglamento. Responderán por el uso que den a la línea y equipo asignados, así como por la pérdida, el deterioro o ambos, del equipo telefónico y sus accesorios que no correspondan a situaciones de caso fortuito, fuerza mayor o desgaste natural ocasionado en el uso diligente del instrumento.
+Para la aplicación de este Reglamento deberá hacerse un especial énfasis a lo establecido en el artículo 15 de la Ley General de Control Interno No. 8292, en relación con las actividades de control.

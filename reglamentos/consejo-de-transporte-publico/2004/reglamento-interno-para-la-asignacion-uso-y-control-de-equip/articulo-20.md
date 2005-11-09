@@ -1,0 +1,1 @@
+Artículo 20.—El incumplimiento de las disposiciones contenidas en este Reglamento, hará acreedor al funcionario culpable de las medidas disciplinarias que correspondan, sin perjuicio de otro tipo de responsabilidades que conforme con el ordenamiento jurídico, le sean aplicables.

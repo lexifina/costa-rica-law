@@ -1,0 +1,1 @@
+Artículo 4º—La Dirección Administrativa Financiera es la encargada de la adquisición de los teléfonos celulares con el propósito de garantizar la estandarización y compatibilidad del sistema de celulares. Le corresponderá a la Dirección Ejecutiva definir las normas de sustitución y obsolescencia.

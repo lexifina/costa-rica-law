@@ -1,0 +1,1 @@
+Artículo 6º—La línea y el teléfono celular se asignan al puesto y estarán restringidos a una línea por funcionario. Los equipos de telefonía móvil deben estar en disposición de ser accesados al menos entre las 07:00 y las 21:00 horas, en días hábiles.

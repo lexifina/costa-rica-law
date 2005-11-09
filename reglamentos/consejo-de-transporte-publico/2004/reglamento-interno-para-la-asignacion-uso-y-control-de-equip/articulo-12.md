@@ -1,0 +1,1 @@
+Artículo 12.—Corresponde a la Dirección Administrativa Financiera del Consejo de Transporte Público velar por el cabal cumplimiento de las normas contenidas en el presente Reglamento y cualesquiera otras que le sean aplicables.

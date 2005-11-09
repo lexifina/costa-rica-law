@@ -1,0 +1,1 @@
+Artículo 14.—En caso de que el funcionario responsable se ausente del CTP por un período mayor a 5 días hábiles, por motivo de incapacidad, vacaciones entre otros que considere la Administración, deberá coordinar con la administración la devolución del teléfono celular y sus accesorios.
