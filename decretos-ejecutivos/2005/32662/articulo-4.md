@@ -1,0 +1,1 @@
+Artículo 4º—El Ministerio de Cultura, Juventud y Deportes coordinará y apoyará al Consejo Nacional del Libro y la Lectura por medio de sus programas y órganos: Dirección General de Cultura, Sistema Nacional de Bibliotecas y Colegio de Costa Rica, para la ejecución de sus propuestas.

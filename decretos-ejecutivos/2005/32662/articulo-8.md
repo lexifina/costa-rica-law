@@ -1,0 +1,1 @@
+Artículo 8º—En caso de ausencia, los miembros del Consejo Nacional del Libro y la Lectura serán sustituidos por sus respectivos suplentes, a su vez, la Secretaría Técnica podrá ser representada por el Coordinador de Apoyo Logístico.

@@ -1,0 +1,3 @@
+Artículo 9º—El Consejo Nacional del Libro y la Lectura se reunirá una vez al mes, en su sede del Ministerio de Cultura, Juventud y Deportes-Sala Magón-Cada sesión del Consejo tendrá una duración de dos horas, lo que no impide que por la prioridad de asuntos a tratar pueda extenderse a más tiempo.
+Para reunirse en sesión ordinaria no hará falta convocatoria especial.
+Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito, con una antelación mínima de veinticuatro horas, salvo los casos de urgencia. A la convocatoria se acompañará copia del orden del día, salvo casos de urgencia.
