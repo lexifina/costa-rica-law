@@ -12,6 +12,6 @@ Considerando:
 TÍTULO I
 CAPÍTULO ÚNICO
 Disposiciones generales
-Artículo 1º—Identificación de bienes. Todo bien que ingrese a la Administración deberá ser identificado por un sistema de rotulado (placa de metal o plástica o cualquier otro sistema de alta seguridad), en el que se indique el número de patrimonio asignado por la Dirección General de Administración de Bienes y Contratación Administrativa.
-Las Oficinas de Bienes Institucionales serán las responsables de rotular los bienes, de acuerdo con las pautas establecidas en el Sistema Informático de Registro y Control de Bienes.
-La colocación de marcas y señales en los semovientes será controlada y ejecutada por personal calificado de las unidades correspondientes.
+Artículo 1º—Identificación de bienes. Todo bien sujeto a capitalización que ingrese a la Administración deberá ser identificado por un sistema de rotulado (placa de metal o plástica o cualquier otro sistema de alta seguridad).
+La Unidad de Administración de Bienes Institucionales de cada Ministerio u Órgano Adscrito, será la responsable de rotular los bienes, de acuerdo con las pautas establecidas por la Dirección General de Administración de Bienes y Contratación Administrativa contempladas en el Sistema Informático de Registro y Control de Bienes.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 32815 del 9 de noviembre del 2005)
