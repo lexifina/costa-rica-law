@@ -1,0 +1,6 @@
+Artículo 2º—Son funciones del Colegio de Costa Rica:
+a) Apoyar las políticas ministeriales, estimulando y auspiciando la formulación de proyectos y actividades en todos los campos del saber humano.
+b) Cultivar y aprovechar los talentos e intereses especiales de los intelectuales costarricenses y extranjeros, que permita una mayor difusión de sus producciones y estimular en el pueblo el pensamiento crítico y reflexivo sobre la realidad nacional e i nternacional, por medio de ciclos de conferencias que podrán realizarse en diferentes zonas de nuestro país y en los ámbitos de distintos sectores de la actividad nacional.
+c) Brindar en la medida de sus posibilidades, apoyo al Consejo Nacional del Libro y la Lectura.
+d) Realizar coordinaciones e intercambios eficaces con el Sistema Nacional de Educación Superior para la ejecución de actividades como foros, mesas redondas, debates, sobre temas de interés, cuyo fin será la defensa, rescate, estímulo y difusión de la identidad cultural costarricense.
+e) Realizar coordinaciones con agentes culturales: institutos, universidades, asociaciones, centros culturales internacionales, fundaciones y otros sectores afines- para la realización de proyectos conjuntos que promuevan el desarrollo y participación de la ciudadanía.
