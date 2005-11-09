@@ -1,0 +1,1 @@
+Artículo 11.—Las salas de juegos, billares o pooles podrán funcionar de lunes a viernes a partir de las 16 horas y hasta las 24 horas. Sábado, domingo y días de asueto escolar feriados podrán tener un horario a partir de las 11 hasta las 24 horas.

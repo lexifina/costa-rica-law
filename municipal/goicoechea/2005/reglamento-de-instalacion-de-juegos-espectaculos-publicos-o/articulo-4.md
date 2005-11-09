@@ -1,0 +1,1 @@
+Artículo 4º—Queda prohibido la ubicación de salas de juegos, billares y pooles en locales situados a menos de ochenta metros de templos religiosos o de centros de salud y de enseñanza, privados o públicos debidamente autorizados, lo anterior de conformidad con el artículo 8° del Reglamento a la Ley de Juegos Nº 3510-G.

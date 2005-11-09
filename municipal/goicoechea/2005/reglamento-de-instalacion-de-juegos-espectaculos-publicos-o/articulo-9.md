@@ -1,0 +1,1 @@
+Artículo 9º—Se prohíbe el ingreso a toda hora, de menores de 12 años a los negocios cuya actividad sea los video - juegos, billares o pooles. Los dueños o administradores de estos locales tendrán la obligación de pedir la credencial de mayoría de edad, esto no aplicará a negocios dedicados a brindar servicios de Internet en todas sus modalidades.
