@@ -14,3 +14,4 @@ Reglamento de Zonificación para la Ciudad de Tilarán
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-11-09 | la propia norma |
+| 2 | 2005-11-09 | Acuerdo municipal 693 (2005-11-09) |
