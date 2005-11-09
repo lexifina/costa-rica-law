@@ -1,6 +1,8 @@
 Artículo 41.—Funciones del Director Ejecutivo. Serán funciones y atribuciones del Director Ejecutivo de JUDESUR, quien será el Administrador del Depósito las siguientes:
 a) Ejecutar y velar por el cumplimiento de los acuerdos y resoluciones que dicte la Junta Directiva de JUDESUR y el Puesto de Control de Golfito, en la materia de su competencia.
-b) Ejercer las funciones inherentes a su condición de Administrador General del Depósito vigilando la organización, funcionamiento, y coordinación de todas las unidades administrativas así como la observación de los reglamentos y acuerdos de JUDESUR.
+b) Nombrar al funcionario administrativo de JUDESUR, quién será el Administrador del Depósito y tendrá a su cargo la planificación, control, verificación y seguimiento de todo lo relacionado con el correcto funcionamiento y adecuada operación del Depósito Libre Comercial de Golfito. Este dependerá del Director Ejecutivo para el desempeño de su cargo.
+Asimismo, el Director Ejecutivo será el responsable del funcionamiento y coordinación de todas las unidades administrativas de JUDESUR y deberá velar por el acatamiento de las reglamentaciones y acuerdos de la Junta Directiva de JUDESUR.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32987 del 9 de noviembre del 2005)
 c) Suministrar a la Junta Directiva la información requerida para asegurar el buen gobierno y dirección superior del Depósito, de manera exacta, completa y oportuna.
 d) Proponer a la Junta Directiva la creación de las plazas y servicios indispensables para el correcto funcionamiento del Depósito.
 e) Nombrar, promover, conceder licencias, imponer sanciones y remover a los empleados administrativos de JUDESUR de conformidad con las políticas y reglamentaciones aprobadas por la Junta Directiva.

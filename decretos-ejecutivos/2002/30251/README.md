@@ -14,3 +14,4 @@ Reglamento de Organización y Servicios de la Junta de Desarrollo Regional de la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-05 | la propia norma |
+| 2 | 2005-11-09 | Decreto Ejecutivo 32987 (2005-11-09) |
