@@ -14,3 +14,4 @@ Reglamento para el uso, custodia y conservación de los teléfonos celulares de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-28 | la propia norma |
+| 2 | 2005-11-09 | Reglamento 160 (2005-11-09) |
