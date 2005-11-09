@@ -1,0 +1,4 @@
+Artículo 7º—Modifíquese el inciso 1) del artículo 46 del Decreto Ejecutivo N° 31849-MINAE-S-MOPT-MAG-MEIC del 24 de mayo del 2004, publicado en La Gaceta N° 125 del 28 de junio del 2004, para que en lo sucesivo se lea de la siguiente manera:
+"Artículo 46.—Vigencia de la viabilidad (licencia) ambiental.
+1) La viabilidad (licencia) ambiental, una vez otorgada tendrá una validez máxima de dos años de previo al inicio de actividades de la actividad, obra o proyecto. En caso de que, en ese plazo, no se inicien las actividades, el desarrollador deberá requerir, de previo al vencimiento, una prórroga de su vigencia ante la SETENA, conforme con el procedimiento que se establecerá en el Manual de EIA. (...)"
+El resto del artículo 46º del Decreto Ejecutivo N° 31849-MINAE-SMOPT-MAG-MEIC supracitado permanece igual.
