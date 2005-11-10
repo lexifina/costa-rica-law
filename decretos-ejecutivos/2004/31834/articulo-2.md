@@ -1,1 +1,0 @@
-Artículo 2º—De los honorarios profesionales. La cotización de los servicios profesionales deberá constar por escrito en términos de horas profesionales y el valor económico. Prevalece el principio de libre contratación de honorarios, ya sea en moneda nacional o extranjera con sujeción a los mínimos establecidos en este decreto.

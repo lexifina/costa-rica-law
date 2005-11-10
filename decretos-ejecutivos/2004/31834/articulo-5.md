@@ -1,1 +1,0 @@
-Artículo 5º—Los honorarios mínimos recomendados serán actualizados por decreto ejecutivo cada seis meses, utilizando para tal finalidad el índice general de Salarios Mínimos que establece el Banco Central de Costa Rica, vigente a la fecha actualización.

@@ -1,1 +1,0 @@
-Artículo 6º—En el Libro de Servicios Profesionales deberán incluirse en todo caso los honorarios reales cobrados, conforme al artículo 15 del Reglamento a la Ley de Creación del Colegio de Contadores Públicos, Nº 1038 de 19 de agosto de 1947.
