@@ -1,0 +1,1 @@
+Artículo 9º—La Proveeduría Municipal debe enviar a verificar el estado mecánico de los vehículos municipales al menos dos veces al año a un taller calificado, para que se realicen las reparaciones básicas y necesarias para su funcionamiento y mantenimiento.

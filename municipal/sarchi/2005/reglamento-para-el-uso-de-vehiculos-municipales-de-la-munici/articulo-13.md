@@ -1,0 +1,1 @@
+Artículo 13.—A fin de controlar los aspectos propios de la municipalidad, ésta puede dictar las regulaciones internas que estime conveniente para el uso de sus vehículos automotores, las cuales se tendrán como complemento de este Reglamento.
