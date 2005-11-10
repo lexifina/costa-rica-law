@@ -1,0 +1,1 @@
+Artículo 12.—Cuando así se disponga, las cotizaciones serán recibidas por el Departamento de Proveeduría en sobre cerrado, en caso contrario se aceptara su remisión por cualquier otro medio, ya sea fax, correo, electrónico, correo, mensajería, etc; de forma tal que ingresen en el momento indicado.

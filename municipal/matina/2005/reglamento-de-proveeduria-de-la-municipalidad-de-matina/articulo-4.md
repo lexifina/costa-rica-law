@@ -1,0 +1,1 @@
+Artículo 4º—A fin de elaborar el plan anual de adquisiciones, en cada mes de julio, el Departamento de Proveeduría solicitará a las diferentes dependencias municipales, información sobre los requerimientos de bienes y servicios específicos necesarios para sus actividades.
