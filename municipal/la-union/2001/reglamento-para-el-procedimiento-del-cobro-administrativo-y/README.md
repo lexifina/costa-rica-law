@@ -17,3 +17,4 @@ Reglamento para el Procedimiento del Cobro Administrativo y Judicial de la Munic
 | 2 | 2003-06-05 | Reglamento municipal 88 (2003-06-05) |
 | 3 | 2004-04-15 | Reglamento municipal 1580 (2004-04-15) |
 | 4 | 2005-07-14 | Reglamento municipal 264 (2005-07-14) |
+| 5 | 2005-11-10 | Reglamento municipal 294 (2005-11-10) |
