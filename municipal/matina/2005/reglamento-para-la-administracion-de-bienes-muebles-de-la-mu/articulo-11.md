@@ -1,0 +1,1 @@
+Artículo 11.—Una vez recibido el activo por la Sección de Proveeduría, se comunicará al Director respectivo, con el fin de que indique a cual funcionario se asignara el active, para proceder a confeccionar la "Boleta de Entrega de Activo"

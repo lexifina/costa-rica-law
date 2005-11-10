@@ -1,0 +1,1 @@
+Artículo 19.—La Sección de Proveeduría deberá incluir y excluir los activos en la póliza de aseguramiento que corresponda, además, debe llevar el control de pagos de esas pólizas. A la Sección de Contabilidad le corresponderá incluir en el presupuesto los montos suficientes para la cancelación de las mismas.

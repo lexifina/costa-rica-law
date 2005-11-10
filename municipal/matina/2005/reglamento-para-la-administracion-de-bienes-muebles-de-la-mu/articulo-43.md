@@ -1,0 +1,1 @@
+Artículo 43.—Una vez que sean reparados los bienes, la Sección de Proveeduría lo entregará a la dependencia interesada, donde el usuario firmará el original de la factura dando por recibido el equipo.

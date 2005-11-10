@@ -1,0 +1,1 @@
+Artículo 37.—En el caso de activos que no estén en uso, el funcionario lo comunicara al jefe inmediato para su respectiva reasignación o comunicara al Director Administrativo para que tome las acciones del caso.

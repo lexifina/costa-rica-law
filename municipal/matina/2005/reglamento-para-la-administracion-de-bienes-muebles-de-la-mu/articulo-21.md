@@ -1,0 +1,1 @@
+Artículo 21.—La Sección de Proveeduría, coordinará con el Departamento Legal si existiere, el trámite para el registro, ante los distintos organismos, de aquellos activos que por sus características requieran ser inscritos. Lo anterior antes de la asignación de los mismos.

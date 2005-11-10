@@ -1,0 +1,1 @@
+Artículo 49.—Para entregar activos en calidad de prestado a otras instituciones, se deberá realizar mediante acuerdo de la Junta Directiva y confección de acta de entregara de activos por parte de la sección Jurídica de la Institución.

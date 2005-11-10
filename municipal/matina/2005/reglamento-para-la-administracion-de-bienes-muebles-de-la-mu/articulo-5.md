@@ -1,0 +1,1 @@
+Artículo 5º—Antes de comprar un activo, la Sección de Proveeduría deberá analizar la posibilidad de asignar mobiliario y equipo en desuso en otras dependencias, asegurándose que se elabore y .rme el formulario de traslado de activos.

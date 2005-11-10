@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Otras disposiciones
+Artículo 45.—Los bienes que ingresen a las instalaciones de la Municipalidad, por contrato de alquiler o en calidad de préstamo y que sean propiedad de personas físicas o jurídicas particulares u Organismos del Estado que se vayan a utilizar en la realización de algún trabajo, deben ser reportados inmediata y obligatoriamente a la Sección de Proveeduría, con el propósito de registrar su permanencia y su posterior salida. Para retirar esos bienes debe solicitarse a la Sección de Proveeduría la autorización correspondiente.
