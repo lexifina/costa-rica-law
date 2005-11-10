@@ -1,0 +1,2 @@
+Artículo 7º—De la evacuación de la Audiencia de Conciliación.
+A la hora y fecha señalada para la Audiencia de Conciliación, el mediador deberá recibir a las partes y celebrar la Audiencia de Conciliación. La metodología utilizada en este CENTRO para evacuar la audiencia de conciliación, es el "modelo de conciliación por etapas"; aunado a lo anterior, los funcionarios conciliadores combinan una serie de técnicas e instrumentos para la negociación, así como la implementación de los principios básicos que conforman la resolución alterna de conflictos.
