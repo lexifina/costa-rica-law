@@ -1,0 +1,1 @@
+Artículo 7º—De la experticia. El mediador deberá actuar en el proceso con estricto apego a las normas de experticia que le impone su profesión u oficio, refiérase a la capacidad que debe tener todo mediador para atender los casos que recibe, actuando con ciencia y en conciencia.

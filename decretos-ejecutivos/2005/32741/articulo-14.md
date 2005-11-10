@@ -1,0 +1,5 @@
+Artículo 14.—Otros deberes. El mediador también estará obligado a lo siguiente:
+a) No permitir que se utilice el proceso de mediación o conciliación para que una o varias partes involucradas manipule o intimide a la contraparte, deberá evitar el desbalance de poder durante todo el proceso, tal y como se establece en el artículo 12 de este reglamento, si la conducta de las partes persiste, debe dar por terminado el proceso.
+b) El mediador deberá emplear las técnicas de escucha activa que procuren fomentar el diálogo entre las partes con el .n de promover un modelo de comunicación no adversarial.
+c) Es obligación del mediador dar por terminado el proceso si determina que alguna de las partes involucradas compareció a la sesión contra su voluntad. Deberá vigilar durante todo el proceso que las partes participan movidos por la voluntariedad.
+d) Informar a la parte compareciente las opciones procedimentales que le asisten en caso de que el otro interesado no acuda a la sesión de mediación o conciliación

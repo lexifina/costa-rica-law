@@ -1,0 +1,1 @@
+Artículo 5º—Profesionalismo. Es obligación de los mediadores y asesores-negociadores mantener altos estándares de profesionalismo y calidad en sus actuaciones y deberes asignados, debiendo aplicar las técnicas y demás instrumentos de mediación y negociación.

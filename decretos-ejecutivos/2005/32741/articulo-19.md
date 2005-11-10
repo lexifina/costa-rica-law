@@ -1,0 +1,1 @@
+Artículo 19.—Confidencialidad. Es obligación del asesor - negociador, bajo el principio de confidencialidad, no divulgar ningún tipo de información obtenida durante el desarrollo de la asesoría. Para todos los efectos, rige lo dispuesto en el Reglamento Autónomo de Servicio del MEIC y la ley número 6227.

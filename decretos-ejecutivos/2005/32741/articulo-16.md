@@ -1,0 +1,4 @@
+Artículo 16.—Relaciones entre mediadores y demás funcionarios del Centro. Los mediadores deberán observar las siguientes obligaciones cuando se trate de sus relaciones con los demás funcionarios del centro, a saber:
+a) Los mediadores están obligados a respetarse mutuamente, ser solidarios entre sí, así como cooperar recíprocamente cuando fuere necesario.
+b) Estará terminantemente prohibido que un mediador sustraiga trabajo a otro colega salvo que se le haya designado expresamente por el coordinador. No deberá verter criterio alguno a las partes o terceros intervinientes de un proceso que no está bajo su curso.
+c) En caso que existe divergencias de criterio de admisibilidad, conciliabilidad o de estrategias procesales entre uno o varios, mediadores, estos deberán resolver el diferendo de forma privada o ante el coordinador del centro, siendo prohibido cualquier discusión frente a los usuarios, o a las partes intervinientes.
