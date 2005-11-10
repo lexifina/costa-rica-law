@@ -1,0 +1,5 @@
+Artículo 19.—De la representación. En caso de que por motivos justificados las partes no puedan comparecer de manera personal a las sesiones de conciliación, podrán hacerlo mediante representantes; siempre y cuando se cumplan las siguientes disposiciones:
+a) Informar al CENTRO que su participación en las sesiones de conciliación será a través de representante.
+b) Proveer al representante de las acreditaciones legales requeridas según el tipo de representación que se otorga, podrá utilizarse cualquiera de las siguientes: poder general, generalísimo, especial administrativo, o simple carta autenticada por abogado.
+c) Indicar en las acreditaciones legales respectivas, que los representantes ostentan poder suficiente para decidir sobre el conflicto, realizar ofrecimientos o propuestas de conciliación, contrapoponer y firmar el acuerdo conciliatorio. De no aportarse la acreditación debida, las manifestaciones del compareciente no podrán tomarse en cuenta.
+d) A las partes del proceso y sus representantes les asisten todos y cada uno de los derechos y obligaciones descritos en el presente reglamento.

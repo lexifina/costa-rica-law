@@ -1,0 +1,4 @@
+Artículo 13.—De la exclusión de un funcionario del grupo de conciliadores del CENTRO. El Coordinador del CENTRO tendrá la facultad de recomendar al Director, la exclusión de un funcionario del grupo de mediadores, cuando se infrinjan las siguientes circunstancias, para lo cual se seguirá el debido proceso dispuesto en la Ley General de la Administración Pública y demás normativa aplicable:
+a) Cuando el funcionario no cumpla alguna de las obligaciones impuestas en la Ley RAC y su reglamento, la Ley Nº 7472 y su reglamento, los REGLAMENTOS de funcionamiento y procedimientos y demás normas estatutarias que rigen este CENTRO.
+b) Cuando infrinja alguna de las disposiciones éticas normadas en el Código de Ética del CENTRO.
+c) Cuando no cumpla alguna de las obligaciones establecidas en el Reglamento Autónomo de Servicio del Ministerio de Economía, Industria y Comercio; o bien, infrinja alguna de las prohibiciones o restricciones impuestas en dicho cuerpo normativo.

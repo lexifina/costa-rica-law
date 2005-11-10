@@ -1,0 +1,4 @@
+Artículo 25.—Del Acuerdo Conciliatorio. El acuerdo al que lleguen voluntariamente las partes durante el procedimiento de conciliación, deberá ser redactado en estricto apego a lo dispuesto por el artículo 12 de la Ley RAC y por el numeral 55 de la Ley N° 7472. Son sus principales características las siguientes:
+a) En el texto del acuerdo el mediador deberá dejar constancia de todos y cada uno de los acuerdos a los que llegaron las partes, con indicación clara y precisa de las fechas y lugares para su cumplimiento, conforme se dispone en los artículos 12 Ley RAC y 55 Ley N° 7472.
+b) En cumplimiento de lo dispuesto en el art. 55 de la Ley N° 7472, el mediador deberá aprobar el acuerdo suscrito por las partes, para ello deberá dejar plasmada su firma y el sello de la oficina en el acuerdo conciliatorio.
+c) El acuerdo conciliatorio tendrá la validez y eficacia que se detalla en el artículo 9 de la Ley RAC.

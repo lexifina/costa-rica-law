@@ -1,0 +1,9 @@
+Artículo 16.—Del Asesor-Negociador. Al Asesor-Negociador le corresponde orientar a los usuarios acerca de la mejor forma de lograr la satisfacción de sus intereses y ayudarlos de forma profesional y eficiente, aplicando las técnicas oportunas con el fin de procurar avenir a las partes a una adecuada negociación, además deberá:
+a) Inhibirse de todos aquellos procesos en los cuales exista un conflicto de interés, potencial o actual de tipo económico, psicológico, emocional, asociativo, o de autoridad con cualquiera de los usuarios, ya sea esta relación anterior o posterior a una asesoría.
+b) Bajo el principio de confidencialidad, no divulgar ningún tipo de información obtenida durante el desarrollo de la asesoría y negociación.
+c) Requerir de los interesados sólo aquella información necesaria e indispensable para la tramitación del caso.
+d) Informar a las partes si el procedimiento de negociación y de mediación es el más adecuado para la solución de sus disputas, o bien, referirlos a otros procesos para la solución de su conflicto.
+e) Contextualizar la situación de manera realista, de forma que los usuarios puedan comprender claramente las opciones que se les presentan y el contenido final del acuerdo al que se llegue, reafirmando en el principio de que son los interesados y no el negociador, los responsables de la toma de decisión.
+f) Emplear, en el desempeño de su función, las técnicas de escucha activa que permitan brindar una mejor asesoría y procuren fomentar el diálogo entre las partes con el fin de lograr una negociación.
+g) Mantener una actitud empática con los usuarios, de manera tal que esto le permita brindar una mejor asesoría y orientación a los consumidores
+h) El Asesor-Negociador no podrá utilizar la información obtenida para ningún propósito ajeno a la negociación, ya sea directa o indirectamente.

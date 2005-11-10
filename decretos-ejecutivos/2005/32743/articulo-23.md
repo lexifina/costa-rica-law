@@ -1,0 +1,1 @@
+Artículo 23.—Del Procedimiento Conciliatorio. El procedimiento de conciliación se encuentra regulado en los artículos 55 de la Ley N° 7472 y 66 de su Reglamento, así como en el Reglamento de procedimientos del centro; además regirá supletoriamente la Ley RAC para todo lo no dispuesto en dichos cuerpos normativos.

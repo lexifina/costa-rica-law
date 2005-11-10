@@ -1,0 +1,4 @@
+Artículo 27.—Del Seguimiento del Acuerdo. Será obligación del centro verificar el efectivo cumplimiento de los acuerdos conciliatorios suscritos por sus usuarios, para ello se seguirá el siguiente procedimiento:
+a) El sistema de seguimiento y verificación que se utilizará en el centro será a través de llamadas telefónicas.
+b) Corresponderá a un funcionario elegido por el coordinador del CENTRO, realizar las llamadas telefónicas que sean necesarias para verificar el efectivo cumplimiento de los acuerdos suscritos por las partes y dejará constancia escrita en el expediente de lo conversado con ambas partes.
+c) El seguimiento se realizará una vez acaecido el plazo establecido en el acuerdo como fecha máxima para el cumplimiento de lo acordado; previo cronograma de trabajo elaborado por el Coordinador .
