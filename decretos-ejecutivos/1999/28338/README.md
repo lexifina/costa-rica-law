@@ -15,3 +15,4 @@ Reglamento General de Cajas Chicas.
 | --- | --- | --- |
 | 1 | 2000-01-06 | la propia norma |
 | 2 | 2003-02-03 | Decreto Ejecutivo 31073 (2003-02-03) |
+| 3 | 2005-11-10 | Decreto Ejecutivo 32874 (2005-11-10) |

@@ -1,4 +1,6 @@
+(Derogado)
 Nº 28338-H
+(Así Derogado por el artículo 44 del decreto ejecutivo N° 32874 del 10 de noviembre del 2005)
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE HACIENDA
 En uso de las facultades concedidas en los incisos 3) y 18) del artículo 140 de la Constitución Política y de conformidad con lo establecido en el artículo 14 de la Ley de Administración Financiera de la República,
