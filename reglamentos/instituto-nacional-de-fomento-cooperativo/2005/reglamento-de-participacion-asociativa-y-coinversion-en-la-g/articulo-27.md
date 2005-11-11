@@ -1,0 +1,3 @@
+Artículo 27.—Alcances del presente reglamento. Este Reglamento deroga cualquier norma que se le oponga.
+Este Reglamento deroga el Reglamento de Coinversión aprobado por la Junta Directiva del INFOCOOP en la Sesión Nº 2994, Artículo primero, inciso 3.1, celebrada el nueve de octubre del año dos mil y modificado en la Sesión 3301, artículo dos, inciso 3.7 del ocho de diciembre del año dos mil tres.
+Este reglamento deroga los lineamientos para la Participación Asociativa aprobados por la Junta Directiva del INFOCOOP, en la sesión Nº 3071, artículo único, inciso 2), celebrada el 23 de julio del 2001.

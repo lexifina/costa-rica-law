@@ -1,0 +1,3 @@
+Artículo 16.—Emisión de certificados.
+a) Participación asociativa. Los recursos otorgados por el INFOCOOP bajo la modalidad de participación como asociado deberán ser representados en certificados de aportación emitidos por el organismo cooperativo de igual valor nominal, de conformidad con lo que al respecto establece su estatuto social.
+b) Coinversión. Los recursos otorgados por el INFOCOOP bajo la modalidad Coinversión deberán ser representados en certificados de coinversión, los cuales establecerán la forma de reintegro, el rendimiento, plazo y la responsabilidad del organismo cooperativo receptor.

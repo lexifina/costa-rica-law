@@ -1,0 +1,1 @@
+Artículo 19.—Pago de interés limitado a la participación asociativa. Los recursos canalizados bajo la modalidad de participación asociativa podrán gozar de un interés limitado al capital. Se fijará por acuerdo de Asamblea de Asociados y con cargo a los excedentes del período y luego de haberse aplicado las reservas indicadas en el artículo anterior de este reglamento.

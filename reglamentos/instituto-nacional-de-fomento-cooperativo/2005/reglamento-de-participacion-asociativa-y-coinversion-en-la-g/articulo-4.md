@@ -1,0 +1,7 @@
+Artículo 4º—Sujetos de Participación Asociativa y Coinversión. Para ser sujeto de Coinversión o tener la participación del INFOCOOP como asociado, el organismo cooperativo:
+a) Deberá ajustarse a las regulaciones de la Ley de Asociaciones Cooperativas, de previo o al momento de formalizarse la participación del INFOCOOP como asociado o coinversionista.
+b) Que el proyecto a desarrollar por el organismo cooperativo coadyuve al cumplimiento de su objeto social y concuerde con los fines, funciones, y objetivos del INFOCOOP. Lo anterior se deberá sustentar en el estudio técnico que realicen las áreas técnicas del INFOCOOP.
+c) Comprometerse a realizar los ajustes necesarios en sus estatutos, estructura organizacional y procesos de gestión que permitan crear, mejorar y mantener los mecanismos de control requeridos para el logro del proyecto, así como el adecuado uso y recuperación de los recursos de la participación institucional.
+d) Toda solicitud podrá ser valorada y sujeta de estudio por parte del INFOCOOP.
+En aquellos casos en que el organismo cooperativo registre pérdidas o presente bajos niveles de generación de efectivo, deberá demostrarse en el estudio respectivo, la posibilidad de revertir tal situación en correlación con el impacto regional o nacional.
+e) Para la elaboración de la viabilidad y factibilidad del proyecto, el INFOCOOP nombrará un equipo técnico y el organismo cooperativo facilitará la información requerida.

@@ -1,0 +1,4 @@
+Artículo 10.—Representación. Cuando el INFOCOOP participe como asociado o como coinversionista, el organismo cooperativo, en Asamblea General de Asociados, aceptará el nombramiento de aquellos representantes del INFOCOOP que de acuerdo al estudio técnico deban integrar el Consejo de Administración.
+Los representantes del INFOCOOP, tendrán derecho a voz y voto en el seno del Consejo de Administración. Además se requerirá del voto favorable de estos representantes para que el Consejo de Administración adopte los acuerdos que, para cada caso concreto, definirá la Junta Directiva del INFOCOOP.
+El INFOCOOP nombrará los delegados o representantes que correspondan ante la Asamblea de Asociados ordinaria o extraordinaria que realice el organismo cooperativo.
+Para estos efectos deberá modificarse el Estatuto Social.

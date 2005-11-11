@@ -1,0 +1,1 @@
+Artículo 5º—La coinversión y la participación del INFOCOOP como asociado en los organismos cooperativos, podrá realizarse cuando de conformidad con el estudio técnico respectivo, se haya evaluado y determinado que estas modalidades de financiamiento son necesarias para la factibilidad del proyecto.
