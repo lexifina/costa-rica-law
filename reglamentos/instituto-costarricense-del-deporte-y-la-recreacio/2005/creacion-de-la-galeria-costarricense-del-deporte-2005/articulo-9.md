@@ -1,0 +1,1 @@
+Artículo 9º—La ausencia injustificada de cualquier miembro a tres sesiones de la Comisión, será motivo de sustitución, gestión que deberá presentarse ante el Consejo Nacional de Deportes y Recreación por parte de la Presidencia u otros miembros de la Comisión, según sea el caso.

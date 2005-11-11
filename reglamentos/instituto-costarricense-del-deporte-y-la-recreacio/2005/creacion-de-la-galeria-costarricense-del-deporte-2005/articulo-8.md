@@ -1,0 +1,2 @@
+Artículo 8º—En su primera sesión, elegirán un Presidente quien tendrá la potestad de presidir y convocar las sesiones, ya sean ordinarias o extraordinarias, y un Secretario que deberá tomar el acta de cada sesión y tramitar la correspondencia. Ambos deberán firmar las actas una vez aprobadas por la Comisión.
+En caso de ausencia del Presidente o del Secretario, a una sesión, los presentes elegirán quien asume esa labor.

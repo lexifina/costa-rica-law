@@ -1,0 +1,1 @@
+Artículo 16.—Podrán ingresar a la Galería Costarricense del Deporte de uno y hasta tres postulados por periodo, según el fallo emitido por la Comisión. De igual manera podrá declararse desierto cuando se considere que las postulaciones del periodo no son relevantes o del todo no se presentó alguna.

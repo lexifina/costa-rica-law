@@ -1,0 +1,1 @@
+Artículo 10.—El quórum mínimo para poder sesionar será de tres miembros y los acuerdos se tomarán por simple mayoría. En el caso de que, en una votación se registre algún empate por ausencia de uno de los miembros o por alguna abstención, funcionará el voto doble del Presidente.

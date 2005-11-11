@@ -1,0 +1,1 @@
+Artículo 14.—La Comisión recibirá las postulaciones en las oficinas del Proceso de Prensa y Relaciones Públicas del Instituto Costarricense del Deporte y la Recreación dentro del horario establecido para tal fin, siempre y cuando cumplan con los documentos establecidos en el artículo Nº 6 de este Reglamento.

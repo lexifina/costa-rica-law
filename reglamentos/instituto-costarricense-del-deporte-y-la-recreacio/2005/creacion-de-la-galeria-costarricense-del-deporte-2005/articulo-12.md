@@ -1,0 +1,1 @@
+Artículo 12.—En caso de que en una postulación se presente una persona que tenga parentesco de consanguinidad o afinidad hasta el tercer grado con algún miembro de la Comisión, se informará al Consejo Nacional de Deportes y Recreación para su sustitución.
