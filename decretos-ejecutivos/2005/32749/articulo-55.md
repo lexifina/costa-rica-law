@@ -1,0 +1,2 @@
+Artículo 55.—Daños o destrucción al patrimonio. Cuando la conducta infractora, haya consistido en destrucción o daño grave a un inmueble patrimonial que configure el delito tipificado en el artículo 20 de la Ley, el presunto responsable deberá ser denunciado ante el Ministerio Público, comunicándose lo pertinente en forma inmediata a la Procuraduría General de la República, a efecto que represente en sede judicial los intereses del Estado.
+En estos casos, el Ministerio deberá ser tomado en cuenta como parte afectada.

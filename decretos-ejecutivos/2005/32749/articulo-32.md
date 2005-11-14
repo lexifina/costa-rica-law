@@ -1,0 +1,3 @@
+Artículo 32.—Plazo del procedimiento. El procedimiento de declaratoria e incorporación al patrimonio histórico-arquitectónico deberá concluirse en el plazo de dos meses, que correrán a partir de la fecha de notificación de la resolución de apertura del procedimiento.
+Se entenderá concluido el procedimiento con la resolución por medio de la cual, el Ministro se pronuncia sobre la incorporación al patrimonio histórico-arquitectónico del bien respectivo.
+El procedimiento caducará si éste no ha sido concluido en el plazo de dos meses, excepto que haya existido prórroga hasta por un plazo igual, previa resolución motivada suscrita por el Ministro, a petición del órgano director.

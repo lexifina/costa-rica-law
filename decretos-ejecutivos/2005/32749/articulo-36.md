@@ -1,0 +1,1 @@
+Artículo 36.—Normativa supletoria. En lo no previsto en el presente capítulo, se aplicarán las disposiciones y principios del procedimiento administrativo ordinario previsto en la Ley General de la Administración Pública.

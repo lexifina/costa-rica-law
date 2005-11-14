@@ -1,0 +1,1 @@
+Artículo 43.—Recursos. Contra lo resuelto por el Centro, sobre solicitudes de intervención en bienes patrimoniales, proceden los recursos de revocatoria y apelación en el término de tres días hábiles.

@@ -1,0 +1,1 @@
+Artículo 22.—Categorías. Según lo establece el artículo 6º de la Ley, las categorías bajo las cuales pueden ser declarados como patrimonio histórico y arquitectónico, los inmuebles de propiedad pública o privada son las siguientes: edificación, monumento, sitio, conjunto y centro histórico.

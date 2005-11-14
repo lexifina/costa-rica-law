@@ -1,0 +1,1 @@
+Artículo 42.—Permisos. No procederá el trámite de los permisos de parcelación, edificación o derribo, si la realización de las obras solicitadas perjudica el valor histórico o arquitectónico del bien, excepto que mediante informes de la Comisión y el Centro se acredite lo contrario, en cuyo caso, el Ministro así lo comunicará a la autoridad respectiva.

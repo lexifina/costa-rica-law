@@ -1,0 +1,1 @@
+Artículo 13.—Miembros ad-hoc. En caso de ausencia o enfermedad y en general, cuando concurra alguna causa justa, el Presidente y el Secretario de la Comisión serán sustituidos por el Vicepresidente o un Presidente ad-hoc y un Secretario Suplente, respectivamente.

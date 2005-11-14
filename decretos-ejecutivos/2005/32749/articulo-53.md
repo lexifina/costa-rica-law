@@ -1,0 +1,1 @@
+Artículo 53.—Procedimiento aplicable. Para la imposición de multas por infracción a la Ley Nº 7555, deberá constituirse un órgano director que será el encargado de instruir un procedimiento administrativo ordinario, siguiendo las reglas del Libro Segundo de la Ley General de la Administración Pública.

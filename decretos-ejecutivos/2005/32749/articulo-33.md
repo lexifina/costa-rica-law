@@ -1,0 +1,1 @@
+Artículo 33.—Decreto Ejecutivo. Si la resolución del Ministro resuelve declarar e incorporar al patrimonio histórico-arquitectónico el inmueble, en el mismo acto se dispondrá la elaboración, suscripción y publicación del decreto ejecutivo correspondiente, el cual deberá contener los requisitos establecidos en el artículo 8° de la Ley.

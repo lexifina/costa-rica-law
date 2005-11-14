@@ -1,0 +1,2 @@
+Artículo 30.—Resolución de recomendación. Otorgada por la Comisión la opinión sobre la declaratoria, el órgano director procederá a emitir la resolución de recomendación respectiva, en la que se pronunciará sobre cada uno de los aspectos relevantes aportados por las partes u originados con ocasión del procedimiento instruido, recomendando o no según corresponda, la incorporación del bien al patrimonio histórico arquitectónico.
+Dicha resolución junto con el expediente respectivo, serán remitidos al Ministro, a efecto que proceda a la emisión del acto final.

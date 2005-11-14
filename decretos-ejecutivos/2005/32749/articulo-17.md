@@ -1,0 +1,1 @@
+Artículo 17.—Asistencia. Las sesiones de la Comisión se efectuarán en privado y en el sitio designado por mayoría de sus miembros. No obstante a dichas sesiones podrán asistir particulares que así lo soliciten, requiriendo para ello la aprobación de la Comisión, participación que en todo caso será con voz pero sin voto.

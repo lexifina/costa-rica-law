@@ -1,0 +1,1 @@
+Artículo 45.—Sede. El registro de bienes inmuebles patrimoniales tendrá su sede en el área de documentación del Centro, y estará a cargo de los funcionarios que se estimen necesarios designados por la Dirección.

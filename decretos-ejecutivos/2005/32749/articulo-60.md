@@ -1,0 +1,1 @@
+Artículo 60.—Fiscalización. El Poder Ejecutivo y la municipalidad respectiva, se encuentran obligados a velar por el cumplimiento de esta ley, y evitar aquellas acciones que lesionen el patrimonio que por este reglamento se protege.
