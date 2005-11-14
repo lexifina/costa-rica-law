@@ -23,3 +23,5 @@ Nota: Por lo extenso de su contenido ver Alcance N° 67 a La Gaceta N° 257 del 
 (Modificado por el artículo 2° del decreto ejecutivo N° 32685 del 12 de setiembre del 2005)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32719 del 26 de setiembre del 2005)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32721 del 20 de octubre del 2005)
+(Así reformado por el artículo 2° de la Ley N° 8465 del 25 de octubre del 2005)
+(Así reformado por el artículo 3° de la Ley N° 8465 del 25 de octubre del 2005)
