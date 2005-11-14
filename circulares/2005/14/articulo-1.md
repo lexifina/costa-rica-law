@@ -16,9 +16,10 @@ Técnico Informático.
 Técnica Informática
 7. Ronald Ramírez Rodríguez.*
 Técnico informático
-8. Siuyen Apuy Wong
+8. Siuyen Apuy Wong**
 Técnico Informático
-9. Sra. Alejandra Arias Sánchez
+9. Sra. Alejandra Arias Sánchez**
 (Así adicionado el punto 9 por la circular N° 85 del 21 de julio del 2005)
 San José, 22 de febrero del 2005.
 *(La presente Circular fue modificada por Circular N° 134-2005 del 30 de setiembre del 2005, publicada en el Boletín Judicial N° 207 del 27 de octubre del 2005, en el sentido de que autoriza a la Sra. Sheily Alvarado Rodríguez, para firmar las constancias arriba indicadas, asmismo a partir de esa fecha queda inhabilitada la firma del Sr. Ronald Ramírez Rodríguez.)
+**(La presente Circular fue modificada por Circular N° 161-2005 del 14 de noviembre del 2005, publicada en el Boletín Judicial N° 233 del 2 de diciembre del 2005, en el sentido de que se autoriza al Sr. William Róger Solís Miranda, para firmar las constancias arriba indicadas, asimismo a partir de esa fecha queda inhabilitadas las firmas de las Sras. Siuyen Apuy Wong y Alejandra Arias Sánchez.)
