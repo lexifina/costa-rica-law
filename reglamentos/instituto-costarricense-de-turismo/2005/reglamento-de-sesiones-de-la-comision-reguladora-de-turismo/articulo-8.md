@@ -1,0 +1,1 @@
+Articulo 8º—Nombramientos ad hoc de Presidente de Junta Directiva. Cuando existan ausencias, enfermedad o alguna causa justa que imposibilite al Presidente y al Vicepresidente conjuntamente de presentarse a sesión, en el seno de la Comisión Reguladora se designará un Presidente ad hoc.

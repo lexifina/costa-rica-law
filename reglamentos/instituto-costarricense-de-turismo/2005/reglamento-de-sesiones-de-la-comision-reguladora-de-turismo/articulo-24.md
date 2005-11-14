@@ -1,0 +1,1 @@
+Artículo 24.—De las mayorías para adoptar acuerdos. Los acuerdos se tomarán por mayoría absoluta de los directores asistentes, excepto para la declaratoria de firmeza de acuerdos en la misma sesión, en cuyo caso se requerirá de la votación favorable de no menos de cuatro directores presentes.

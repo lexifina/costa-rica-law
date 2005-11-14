@@ -1,0 +1,1 @@
+Artículo 14.—Periodicidad. La Comisión Reguladora se reunirá en sesión ordinaria al menos dos veces por mes y designará el día y hora de sesión mediante acuerdo específico. Para celebrar sesión ordinaria no hará falta convocatoria especial, si el día fijado para sesionar lo es para todas las sesiones del año.

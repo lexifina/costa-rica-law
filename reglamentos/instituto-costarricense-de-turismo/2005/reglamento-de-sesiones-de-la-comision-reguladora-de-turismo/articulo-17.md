@@ -1,0 +1,1 @@
+Artículo 17.—Privacidad de las sesiones. Las sesiones de la Comisión Reguladora serán siempre privadas salvo que, los miembros presentes acuerden por unanimidad, que el público en general o ciertas personas puedan tener acceso a la sesión, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
