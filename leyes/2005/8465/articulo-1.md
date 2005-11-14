@@ -1,0 +1,182 @@
+Nº 8465
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+Segundo Presupuesto Extraordinario de la República
+para el Ejercicio Económico del 2005 y Modificación al
+Presupuesto Ordinario de la República para el Ejercicio
+Económico del 2005, Ley Nº 8428
+Artículo 1º— Modifícase el artículo 1º de la ley Nº 8428, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2005, publicada en el Alcance Nº 67 a La Gaceta Nº 257 de 31 de diciembre del 2004, en la forma que se indica a continuación:
+AUMENTAR:
+INCISO A) DETALLE DE LA PROYECCIÓN DE LOS INGRESOS CORRIENTES
+DEL GOBIERNO DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2005
+(EN COLONES CORRIENTES)
+C. G. S. P. S. R. S. Concepto Monto ¢
+1 0 0 0 0 00 00 INGRESOS CORRIENTES
+1 2 0 0 0 00 00 INGRESOS NO
+TRIBUTARIOS
+1 2 6 0 0 00 00 OTROS INGRESOS NO
+TRIBUTARIOS
+1 2 6 0 0 03 00 Ingresos Varios No Especificados
+(Incluye Traspasos de la Junta
+Administrativa del Registro
+Nacional, Leyes Nos. 3421 y 5792,
+de 2/11/48 y 01/09/75,
+respectivamente y por concepto de
+honorarios, según art.154 de la Ley
+Orgánica del Poder Judicial). 3.970.158,46
+TOTAL AUMENTAR: OTROS
+INGRESOS NO TRIBUTARIOS 3.970.158,46
+TOTAL AUMENTAR: INGRESOS
+NO TRIBUTARIOS 3.970.158,46
+TOTAL AUMENTAR: INGRESOS
+CORRIENTES 3.970.158,46
+TOTAL AUMENTAR: 3.970.158,46
+| | | | | | |____ Subrenglón
+| | | | | |______ Renglón
+| | | | |________ Subpartida
+| | | |__________ Partida
+| | |____________ Sección
+| |______________ Grupo
+|________________ Clase
+INCISO B) DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS
+INTERNOS DE CAPITAL DEL GOBIERNO DE LA REPÚBLICA PARA EL
+EJERCICIO DE 2005 (EN COLONES CORRIENTES)
+AUMENTAR:
+C. G. S. P. S. R. S. Concepto Monto ¢
+2 0 0 0 0 00 00 INGRESOS DE CAPITAL
+2 4 0 0 0 00 00 ENDEUDAMIENTO
+2 4 1 0 0 00 00 INTERNO
+2 4 1 1 0 00 00 COLOCACION O EMISION DE
+TITULOS VALORES DE DEUDA INTERNA
+2 4 1 1 1 00 00 COLOCACION O EMISION DE TITULOS
+VALORES DE DEUDA INTERNA DEL
+GOBIERNO CENTRAL
+2 4 1 1 1 01 00 EMISION DE TITULOS VALORES
+DE DEUDA INTERNA
+2 4 1 1 1 01 27 Títulos Valores de Deuda Interna 3.000.000.000,00
+TOTAL AUMENTAR:
+EMISION DE TITULOS VALORES
+DE DEUDA INTERNA 3.000.000.000,00
+TOTAL AUMENTAR:
+COLOCACION O EMISION DE
+TITULOS VALORES DE DEUDA
+INTERNA DEL GOBIERNO
+CENTRAL 3.000.000.000,00
+TOTAL AUMENTAR:
+COLOCACION O EMISION DE
+TITULOS VALORES DE DEUDA
+INTERNA 3.000.000.000,00
+TOTAL AUMENTAR: INTERNO 3.000.000.000,00
+TOTAL AUMENTAR:
+ENDEUDAMIENTO 3.000.000.000,00
+2 6 0 0 0 00 00 RECURSOS DE VIGENCIAS
+ANTERIORES
+2 6 0 0 0 01 00 SUPERAVIT DE INSTITUCIONES
+2 6 0 0 0 01 05 SUPERAVIT 26.239.772,00
+TOTAL AUMENTAR: SUPERAVIT
+DE INSTITUCIONES 26.239.772,00
+TOTAL AUMENTAR: RECURSOS
+DE VIGENCIAS ANTERIORES 26.239.772,00
+TOTAL AUMENTAR: INGRESOS
+DE CAPITAL 3.026.239.772,00
+TOTAL AUMENTAR 3.026.239.772,00
+C.G. S. P. S. R. S.
+| | | | | | |
+| | | | | | |
+| | | | | | |____ Subrenglón
+| | | | | |______ Renglón
+| | | | |________ Subpartida
+| | | |__________ Partida
+| | |____________ Sección
+| |______________ Grupo
+|________________ Clase
+Autorízase al Poder Ejecutivo para emitir hasta ¢ 3.000.000.000,00 (tres mil millones de colones sin céntimos), en Títulos Valores de Deuda Interna 2005.
+Parte de estas emisiones podrán realizarse en moneda extranjera. El Poder Ejecutivo queda autorizado para establecer, vía reglamento, el plazo, hasta por un máximo de veinte años, el tipo de interés, que podrá fijarse en una tasa máxima de 30% anual en colones y un 10% anual en dólares y demás características de las emisiones de Títulos Valores de Deuda Interna 2005.
+Pago de intereses de bonos de la deuda pública. En el marco de la renegociación de la deuda entre el Gobierno Central y las instituciones del Sector Público No Financiero, se autoriza al Ministerio de Hacienda a reconocer a éstas por el pago de intereses de los bonos de la deuda pública, una tasa de interés máxima igual a la suma del porcentaje de inflación, más uno punto veinticinco por ciento (1,25%).
+INCISO C) DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS
+EXTERNOS DE CAPITAL DEL GOBIERNO DE LA REPÚBLICA PARA EL
+EJERCICIO DE 2005 (EN COLONES CORRIENTES)
+REBAJAR:
+C. G. S. P. S. R. S. Concepto Monto ¢
+2 0 0 0 0 00 00 INGRESOS DE CAPITAL
+2 4 0 0 0 00 00 ENDEUDAMIENTO
+2 4 2 0 0 00 00 EXTERNO
+2 4 2 2 0 00 00 CREDITOS BANCARIOS Y DE
+CONSORCIOS FINANCIEROS
+C. G. S. P. S. R. S. Concepto Monto ¢
+2 4 2 2 1 00 00 AL GOBIERNO CENTRAL
+2 4 2 2 1 00 82 Créd. del Gob. de los EEUU
+(Conv.PL-480 Leyes N° 6945 - 6978 -
+7019 – 7059 - 7098-7203 y 7307 de
+19/01/84, 27/12/84, 26/12/85, 01/04/87,
+23/09/88, 29/09/90 y 14/09/92
+respectivamente). 111.884.307,00
+2 4 2 2 1 00 84 FIV Crédito N° 32-204 Ley N° 7237
+de 03-05-91 Reconstrucción Red Vial
+Dañada por el Huracán Juana 152.259.378,88
+TOTAL REBAJAR: AL GOBIERNO
+CENTRAL 264.143.685,88
+TOTAL REBAJAR CREDITOS
+BANCARIOS Y DE CONSORCIOS
+FINANCIEROS 264.143.685,88
+TOTAL REBAJAR: EXTERNO 264.143.685,88
+TOTAL REBAJAR: ENDEUDA-
+MIENTO 264.143.685,88
+2 6 0 0 0 00 00 RECURSOS DE VIGENCIAS
+ANTERIORES
+2 6 0 0 0 03 00 RECURSOS DEL CREDITO EXTERNO
+2 6 0 0 0 03 28 REINTEGRO E INTERESES DEL
+CRÉDITO EXTERNO PL-480 35.454.745,00
+TOTAL REBAJAR: RECURSOS
+DEL CRÉDITO EXTERNO 35.454.745,00
+TOTAL REBAJAR: RECURSOS
+DE VIGENCIAS ANTERIORES 35.454.745,00
+TOTAL REBAJAR: INGRESOS DE
+CAPITAL 299.598.430,88
+TOTAL REBAJAR: 299.598.430,88
+AUMENTAR:
+C. G. S. P. S. R. S. Concepto Monto ¢
+2 0 0 0 0 00 00 INGRESOS DE CAPITAL
+2 4 0 0 0 00 00 ENDEUDAMIENTO
+2 4 2 0 0 00 00 EXTERNO
+2 4 2 1 0 00 00 CREDITOS DE ORGANISMOS
+INTERNACIONALES
+2 4 2 1 1 00 00 AL GOBIERNO CENTRAL
+2 4 2 1 1 03 00 CREDITOS DEL BANCO
+INTERAMERICANO DE DESARROLLO
+(BID)
+2 4 2 1 1 03 40 Crédito BID 1451/OC--CR, LEY N° 8403,
+Programa de Desarrollo del Sector Salud 277.142.450,00
+2 4 2 1 1 03 70 Crédito BID N° 636 Ley N° 7296 Programa
+de Suministro Agua Potable Centros Urbanos. 24.823.252,73
+TOTAL AUMENTAR: CRÉDITOS
+DEL BANCO INTERAMERICANO
+DE DESARROLLO (BID) 301.965.702,73
+TOTAL AUMENTAR: AL GOBIERNO
+CENTRAL 301.965.702,73
+TOTAL AUMENTAR: CREDITOS
+DE ORGANISMOS
+INTERNACIONALES 301.965.702,73
+TOTAL AUMENTAR: EXTERNO 301.965.702,73
+TOTAL AUMENTAR:
+ENDEUDAMIENTO 301.965.702,73
+2 5 0 0 0 00 00 TRANSFERENCIAS DE CAPITAL
+2 5 2 0 0 00 00 AL GOBIERNO CENTRAL
+2 5 2 1 0 00 00 DONACIONES
+2 5 2 1 0 03 00 AL GOBIERNO CENTRAL
+2 5 2 1 0 03 85 Donación de las Naciones Unidas para
+el Poder Judicial (Depto. de Ciencias
+Forenses del Organismo de Investigación
+Judicial) 108.384,90
+2 5 2 1 0 03 94 Donación Gobierno U.S.A. al OIJ 1.319.586,21
+TOTAL AUMENTAR: AL GOBIERNO
+CENTRAL 1.427.971,11
+TOTAL AUMENTAR: DONACIONES 1.427.971,11
+TOTAL AUMENTAR: AL GOBIERNO
+CENTRAL 1.427.971,11
+TOTAL AUMENTAR: TRANSFERENCIAS
+DE CAPITAL 1.427.971,11
+TOTAL AUMENTAR: INGRESOS
+DE CAPITAL 303.393.673,84
+TOTAL AUMENTAR 303.393.673,84
