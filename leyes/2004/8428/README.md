@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el ejercicio económico del 2005
 
-Ley N° 8428 del 2004-11-29. SINALEVI, ficha 54212: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=54212&param2=59323&param3=1>.
+Ley N° 8428 del 2004-11-29. SINALEVI, ficha 54212: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=54212&param2=59324&param3=1>.
 
 Publicada en La Gaceta N° 257 del 2004-12-31.
 
@@ -31,3 +31,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 21 de 26 | 2005-09-29 | Decreto Ejecutivo 32685 (2005-09-12) | 2005-09-12 |
 | 22 de 26 | 2005-10-31 | Decreto Ejecutivo 32719 (2005-09-26) | 2005-09-26 |
 | 23 de 26 | 2005-10-31 | Decreto Ejecutivo 32721 (2005-10-20) | 2005-10-20 |
+| 24 de 26 | 2005-11-14 | Ley 8465 | 2005-10-25 |
