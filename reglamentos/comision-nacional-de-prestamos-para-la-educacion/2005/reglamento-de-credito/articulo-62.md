@@ -1,0 +1,1 @@
+Artículo 62.—El período general de financiamiento es hasta de 20 años, el cual incluye el período de estudios, gracia y amortización. El plazo de cada uno de estos tres períodos lo establece el Consejo Directivo en el Plan Anual de Colocaciones.

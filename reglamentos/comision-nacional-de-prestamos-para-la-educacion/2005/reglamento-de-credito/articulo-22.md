@@ -1,0 +1,1 @@
+Artículo 22.—El plan de inversión de la solicitud de préstamo debe ajustarse a los rubros, costos y topes de préstamo establecidos por CONAPE, excepto casos especiales resueltos por el Consejo Directivo.

@@ -1,0 +1,1 @@
+Artículo 16.—El solicitante de préstamo debe cumplir con los requisitos correspondientes establecidos por CONAPE, salvo casos especiales a juicio del Consejo Directivo, de conformidad con lo que establece la Ley 6041.

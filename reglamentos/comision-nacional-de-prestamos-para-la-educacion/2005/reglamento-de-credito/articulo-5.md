@@ -1,0 +1,1 @@
+Artículo 5º—El estudiante deberá presentar la solicitud de préstamo con la debida anticipación, que le permita a la Sección de Gestión y Análisis de Crédito de CONAPE, analizar y dictaminar las condiciones de elegibilidad.

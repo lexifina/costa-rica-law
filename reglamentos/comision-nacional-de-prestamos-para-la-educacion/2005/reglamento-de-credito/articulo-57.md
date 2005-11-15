@@ -1,0 +1,1 @@
+Artículo 57.—El prestatario que obtenga la condición de “escolaridad” en una o más asignaturas, debe aprobarlas de conformidad con el sistema de requisitos académicos propios del centro de estudios y el programa de estudios del prestatario, en un plazo máximo de un año calendario a partir del momento en que obtiene la escolaridad.

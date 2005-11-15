@@ -1,0 +1,8 @@
+Artículo 25.—CONAPE financia a estudiantes en los niveles de estudios financiables, por una sola vez, dentro de las condiciones crediticias vigentes, la adquisición de equipo, herramientas, instrumentos, suministros y materiales necesarios para el proyecto de estudios, bajo las siguientes condiciones:
+a) Demuestre la necesidad de la solicitud y adjuntar la factura proforma extendida por la casa proveedora.
+b) Inicie la amortización del crédito en un plazo máximo de 6 meses posteriores al otorgamiento del préstamo, cuando la solicitud de crédito solo considere adquisición de equipo.
+c) El tope del financiamiento máximo para esta línea crediticia es el que se establece en el Programa Anual de Crédito, excepto casos especiales a juicio del Consejo Directivo. Este financiamiento no está incluido en el tope crediticio regular, destinado a solventar gastos de estudio y sostenimiento.
+d) El financiamiento se otorga únicamente durante la etapa de estudios del interesado.
+e) El equipo adquirido no puede utilizarse como garantía prendaria ante CONAPE.
+f) CONAPE emite un único desembolso por la totalidad del préstamo y el prestatario debe presentar a la Sección de Desembolsos y Control de Crédito la factura cancelada en los próximos 15 días , de lo contrario, esta Sección traslada el préstamo al cobro inmediato por incumplimiento del Contrato de Créditos para Estudios, con los cargos respectivos.
+g) El estudiante puede solicitar financiamiento para la adquisición de equipo dentro de su solicitud de préstamo ordinaria o tramitar una refundición de préstamo si ya es prestatario; en ambos casos, inicia la amortización, una vez concluidos los estudios.

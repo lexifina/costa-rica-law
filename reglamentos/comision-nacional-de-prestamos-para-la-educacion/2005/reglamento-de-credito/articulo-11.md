@@ -1,0 +1,1 @@
+Artículo 11.—El rendimiento académico del solicitante es calificado por CONAPE en una escala de 0 a 100 o su equivalente. Es indispensable que el solicitante cumpla con los requisitos de admisión del centro de estudios.

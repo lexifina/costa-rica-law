@@ -1,0 +1,1 @@
+Artículo 8º—La entrega y recepción de la fórmula “Solicitud de préstamo”, no obliga a CONAPE a la aprobación del préstamo. CONAPE mantendrá los requisitos y condiciones crediticias, con una vigencia de 30 días calendario, después de la fecha de entrega de la fórmula de solicitud.

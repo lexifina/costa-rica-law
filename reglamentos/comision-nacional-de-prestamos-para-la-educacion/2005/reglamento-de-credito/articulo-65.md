@@ -1,0 +1,1 @@
+Artículo 65.—La Sección de Desembolsos y Control de Crédito considerará la condición de incumplimiento, cuando el prestatario no cumpla con las obligaciones que establece el Reglamento de Crédito y el Contrato de Crédito para Estudios y trasladará la operación a la fase de cobro con un cargo adicional del 10% sobre el monto desembolsado.

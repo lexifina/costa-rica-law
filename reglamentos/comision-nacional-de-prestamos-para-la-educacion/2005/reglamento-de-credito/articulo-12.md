@@ -1,0 +1,1 @@
+Artículo 12.—Los trámites crediticios del solicitante en el proceso de gestión y análisis del crédito o del prestatario en el proceso de desembolsos y control de crédito, deberá ser gestionado preferentemente en forma personal, por medio de un apoderado legal, o cuando así proceda, por medio de un tercero con autorización expresa del solicitante o prestatario.
