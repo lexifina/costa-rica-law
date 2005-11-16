@@ -1,0 +1,2 @@
+ARTÍCULO 2: RELACIÓN CON LA ENMIENDA DE 1992
+Ningún Estado u organización de integración económica regional podrá depositar un instrumento de ratificación, aceptación, aprobación o adhesión de la presente Enmienda a menos que haya depositado, previa o simultáneamente, un instrumento de ratificación, aceptación, aprobación o adhesión de la Enmienda aprobada en la Cuarta Reunión de las Partes, en Copenhague, el 25 de noviembre de 1992.
