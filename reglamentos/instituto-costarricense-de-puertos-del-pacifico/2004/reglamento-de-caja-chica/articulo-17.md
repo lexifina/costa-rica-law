@@ -1,5 +1,6 @@
 Articulo 17.—De los requisitos del vale: Deberá incluir con el vale los siguientes requisitos:
-a) Numero del vale de la Dirección de Área solicitante.
+a) Número del consecutivo presupuestario.
+(Así reformado el inciso anterior mediante sedión N°3322 del 16 de noviembre del 2005).
 b) Fecha de emisión.
 q Suma solicitada en números.
 d) Suma solicitada en letras.

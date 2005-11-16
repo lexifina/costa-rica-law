@@ -11,5 +11,7 @@ g) Las facturas deberán ser nítidas, sin borrones ni tachaduras o alteraciones
 h) Al dorso de la factura deberá consignarse el recibido conforme de quien recibió el bien o el servicio.
 i) Sello de contenido presupuestario, código presupuestario y contable.
 j) No se dará tramite a ninguna factura que con anterioridad no haya efectuado el respectivo vale provisional de caja chica. Exceptuando aquellas que por su naturaleza o urgencia resulte imposible cumplir con este requisito, debiendo motivarse dicho acto en la liberación del respectivo vale.
-k) Se deberá de adjuntar vale de herramientas en caso de que el articulo adquirido tenga un costo mayor de 0 5.000,00 y menor de 15.000,00. Salvo los casos autorizados por la Administración Superior.
-I) Cuando el articulo adquirido posea un valor mayor a los 15.000,00 deberá contar con la placa de activo respectiva. En todo caso, corresponderá al Departamento de Contabilidad y de conformidad con la naturaleza de los bienes, definir la asignación de la placa. Esto con observancia de las Normas Intemacionales de Contabilidad.
+k) Se deberá de adjuntar vale de herramientas en caso de que el articulo adquirido tenga un costo mayor de ¢10.000,00 y menor de ¢25.000,00. Salvo los casos autorizados por la Administración Superior.
+(Así reformado el inciso anterior en sesión N°3322 del 16 de noviembre del 2005)
+I) Cuando el articulo adquirido posea un valor mayor a los ¢25.000,00 deberá contar con la placa de activo respectiva. En todo caso, corresponderá al Departamento de Contabilidad y de conformidad con la naturaleza de los bienes, definir la asignación de la placa. Esto con observancia de las Normas Intemacionales de Contabilidad.
+(Así reformado el inciso anterior en sesión N°3322 del 16 de noviembre del 2005)

@@ -14,3 +14,5 @@ j) Compras de bienes y servicios que no reúnan los requisitos mínimos establec
 La prohibición no será extensiva para:
 • Las compras de combustible y lubricantes, siempre y cuando sea para atender giras en lugares alejados en donde las compras deben ser en efectivo y de contado.
 • En caso de la contratación de cursos de capacitación, seminarios, o similares relativos a formación, este tipo de gestiones se realizaran mediante vales de caja chica hasta por el monto máximo establecido, cuando el monto sea superior se realizara mediante orden de compra / servicios.
+Las compras de bienes y servicios descritas en el presente artículo que la Administración Superior motive por condición especial o conveniencia institucional. Dicha motivación deberá quedar impresa en el vale o en hoja adicional, exceptuando los incisos a, h, i, y j de este artículo.
+(Así reformado el párrafo anterior mediante sesión N°3322 del 16 de noviembre del 2005).
