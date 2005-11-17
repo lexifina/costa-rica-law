@@ -1,0 +1,1 @@
+Artículo 3º—Color y diseño de cada papeleta. Las papeletas para presidente serán de color blanco con detalles de seguridad en cyan y negro; para Diputados color cyan con detalles en blanco y negro; para Regidores color magenta con detalles en blanco y negro. El color será el mismo por ambos lados de la papeleta.

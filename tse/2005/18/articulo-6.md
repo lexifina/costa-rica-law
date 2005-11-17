@@ -1,0 +1,1 @@
+Artículo 6º—Casillas con candidatos. Los partidos políticos que participan en esta elección se ubicarán en dos filas, una bajo la otra, y el texto referido en el párrafo segundo del artículo anterior irá en el centro de la papeleta. Cuando se trate de un número impar de partidos políticos, la fila mayor irá arriba.
