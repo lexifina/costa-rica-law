@@ -1,3 +1,3 @@
-Artículo 25.—El asegurado que cumpla los requisitos para tener derecho al disfrute de pensión por vejez, tendrá derecho a una pensión adicional por postergación del retiro, a partir de la fecha en que haya cumplido los requisitos legales y reglamentarios. Esta pensión adicional consistirá en el 0,1333% por mes sobre el salario promedio calculado según el artículo 23.
-El monto de la pensión adicional por postergación del retiro sumado al monto de la pensión ordinaria calculada según el artículo 24º de este Reglamento, no podrá exceder del 125% del salario promedio indicado.
-(Así reformado en el artículo 12 de la sesión N° 7950 y en el artículo 7 de la sesión N° N° 7952 celabradas 21 y el 28 de abril del 2005)
+Artículo 25°.—El asegurado que cumpla los requisitos para tener derecho al disfrute de pensión por vejez, tendrá derecho a una pensión adicional por postergación del retiro, a partir de la fecha en que haya cumplido los requisitos legales y reglamentarios. Esta pensión adicional consistirá en el 0,1333% por mes sobre la pensión ordinaria calculada según el artículo 24º de este Reglamento.
+El monto de la pensión adicional por postergación del retiro sumado al monto de la pensión ordinaria calculada según el artículo 24º de este Reglamento, no podrá exceder del doble de la pensión ordinaria.
+(Así reformado en sesión N° 8009 del 17 de noviembre del 2005)
