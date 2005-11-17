@@ -1,1 +1,2 @@
-Transitorio VI.—Los actuales prestarios del servicio de televisión por suscripción, por cable o directa por satélite, tendrán un plazo máximo de 6 meses para adecuar su condición a lo establecido en el presente Reglamento.
+Transitorio VI.—Los actuales prestarios del servicio de televisión por suscripción, por cable o directa por satélite, tendrán un plazo máximo hasta el 30 de junio del 2006 para adecuar su condición a lo establecido en el presente reglamento, caso contrario deberán suspender sus transmisiones de inmediato.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 32786 del 17 de noviembre de 2005).
