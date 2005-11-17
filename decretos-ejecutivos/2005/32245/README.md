@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de visas restringidas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-03-04 | la propia norma |
+| 2 | 2005-11-17 | Decreto Ejecutivo 32838 (2005-11-17) |
