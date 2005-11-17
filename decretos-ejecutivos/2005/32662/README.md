@@ -14,3 +14,4 @@ Integración del Consejo Nacional del Libro y la Lectura, encargado de promover 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-09 | la propia norma |
+| 2 | 2005-11-17 | Decreto Ejecutivo 33027 (2005-11-17) |
