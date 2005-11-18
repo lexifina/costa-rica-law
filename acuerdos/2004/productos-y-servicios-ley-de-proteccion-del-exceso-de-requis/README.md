@@ -14,3 +14,4 @@ Productos y servicios, Ley de Protección del Exceso de Requisitos y Tramites Ad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-20 | la propia norma |
+| 2 | 2005-11-18 | Acuerdo 0 (2005-11-18) |

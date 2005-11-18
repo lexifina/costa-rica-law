@@ -320,6 +320,7 @@ Adquirir un bien mueble o inmueble propiedad del Banco.
 Requisitos para BN-Instituciones Financieras IFI S
 Estar supervisado por la SUGEF y estar calificado en categoría A o , según la metodología interna de calificación para asumir riesgo con el sistema financiero nacional.
 Ver formularios de “Solicitud de Crédito”, en el Alcance N° 43 de La Gaceta impresa N° 183 del 20 de setiembre del 2004.
+(NOTA DE SINALEVI: en la Gaceta impresa N°84 del 03 de mayo del 2006, se publicó un "nuevo formulario de Solicitud de Crédito").
 NOTAS
 1) Parientes por consanguinidad hasta segundo grado: hijos, padres, hermanos, abuelos y nietos. Parientes por afinidad hasta segundo grado: cónyuge, suegros y cuñados.
 2) De requerirse mayor espacio, favor incluir hojas adicionales que hagan referencia a los numerales a que corresponde la información.
@@ -565,6 +566,7 @@ Internet Banking Corporativo
 • Copia de las cedulas de identidad de los usuarios.
 • Formulario de solicitud virtual lleno y contrato firmado.
 Ver formulario de “Solicitud de Contrato B: N: Servicios Bancarios y Contrato de Servicios Bancarios”, en el Alcance N° 43 de La Gaceta N° 183 del 20 de setiembre del 2004.
+(Así reformado los formularios BN Servicios Bancarios Persona Física y Persona Jurídica, mediante acuerdo del Banco Nacional, publicado en La Gaceta N° 232 del 01 de diciembre del 2005)
 Requisitos para el pago automático de salarios (PAS)
 Entrega de solicitud PAS, firmada por los responsables.
 Copia de personería jurídica.
