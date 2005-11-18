@@ -1,0 +1,1 @@
+Artículo 57.—Cuando la figura del administrador del Mercado no exista, todas las funciones que se dicten en este reglamento recaerán en el Alcalde Municipal, y este podrá eventualmente designar funciones en quien él estime conveniente.

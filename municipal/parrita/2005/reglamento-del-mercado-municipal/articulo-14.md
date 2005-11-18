@@ -1,0 +1,1 @@
+Artículo 14.—Presentada en forma la solicitud de traspaso, el Concejo Municipal la aprobará en caso de que los interesados estén al día en el pago del arrendamiento, impuestos, patentes y servicios municipales, y cumpla con los requisitos establecidos en el artículo 12 y lo comunicará así al Alcalde para los efectos consiguientes.

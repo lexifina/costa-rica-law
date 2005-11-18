@@ -1,0 +1,1 @@
+Artículo 15.—Ningún inquilino permanente o transitorio podrá vender o expender artículos o mercaderías diferentes a aquellas para las cuales le fue adjudicado el puesto. La infracción a esta disposición provocará el rompimiento del contrato en forma inmediata.

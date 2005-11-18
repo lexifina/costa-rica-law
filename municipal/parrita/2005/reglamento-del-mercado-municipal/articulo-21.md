@@ -1,0 +1,1 @@
+Artículo 21.—Los puestos transitorios serán permitidos en el caso de que el Concejo Municipal acordare su funcionamiento, por razones de conveniencia o emergencia del servicio. El pago de los derechos de piso será mensual y por adelantado y se hará mediante cancelación del recibo ante la Tesorería Municipal.
