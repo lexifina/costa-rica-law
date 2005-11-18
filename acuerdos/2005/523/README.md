@@ -13,3 +13,4 @@ Deroga artículo 10 del acuerdo AJDIP/109-2005
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-26 | la propia norma |
+| 2 | 2005-11-18 | Acuerdo 582 (2005-11-18) |
