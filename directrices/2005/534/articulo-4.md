@@ -1,0 +1,1 @@
+Artículo 4º—Los Asesores del Consejo y el Secretario General deberán remitir al Presidente del Consejo sus informes finales de gestión. En estos casos las funciones establecidas en las directrices se desarrollarán de acuerdo con lo indicado en el Artículo 2.

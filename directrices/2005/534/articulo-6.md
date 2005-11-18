@@ -1,0 +1,1 @@
+Artículo 6º—Se derogan las "Directrices para la confección del informe de fin de gestión y para la entrega formal del órgano a su sucesor, de acuerdo con el literal e) del Artículo 12 de la Ley 8292, Ley General de Control Interno", aprobada en Sesión 427-2004 del 23 de marzo del 2004."
