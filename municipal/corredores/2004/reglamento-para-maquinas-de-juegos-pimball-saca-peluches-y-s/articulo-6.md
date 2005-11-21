@@ -1,1 +1,1 @@
-Artículo 6º—Es permitida la participación en esta clase de juegos de las personas mayores de catorce años y menores de dieciocho hasta las dieciocho horas.
+Artículo 6º—Es permitida la participación en esta clase de juegos de personas mayores de doce años de edad de las once a las veintidós horas.

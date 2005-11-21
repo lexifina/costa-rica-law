@@ -1,1 +1,1 @@
-Artículo 7º—Estas máquinas podrán funcionar de las dieciséis horas (04:00 p.m.) a las veintidós horas (10:00 p.m.) en días lectivos y de las trece horas (01:00 p.m.) a las veintitrés horas (11:00 p.m.) los días de asueto escolar, domingos y días feriados.
+Artículo 7º—El horario de funcionamiento de las máquinas es de las once horas a las veintitrés horas, con excepción del horario para menores de edad establecido en el artículo 6 anterior.

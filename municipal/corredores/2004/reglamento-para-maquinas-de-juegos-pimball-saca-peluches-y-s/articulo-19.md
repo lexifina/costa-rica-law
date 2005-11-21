@@ -1,1 +1,2 @@
-Artículo 19.—Antes de autorizar la patente para esta clase de máquinas de juegos, en algún local comercial, además de cumplir con los requisitos solicitados en este Reglamento, deberá el solicitante obligatoriamente colocar rótulos que dicten lo especificado en los artículos 5, 6 y 7 de este Reglamento. Solo el hecho de no cumplir con este requisito, la misma será denegada sin objeción.
+Artículo 19.—Publíquese en el Diario Oficial La Gaceta, rige a partir de su publicación.
+Corredores, 28 de noviembre del 2005.

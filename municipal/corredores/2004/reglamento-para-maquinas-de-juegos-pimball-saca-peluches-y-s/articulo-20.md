@@ -1,1 +1,0 @@
-Artículo 20.—Las personas físicas y jurídicas que en este momento ya cuenten con la respectiva patente para esta clase de máquinas, se les otorga un plazo de 60 días naturales, para que se ajusten a lo establecido en este Reglamento, caso contrario se procederá a su cancelación y a la clausura de las máquinas sin responsabilidad Municipal.

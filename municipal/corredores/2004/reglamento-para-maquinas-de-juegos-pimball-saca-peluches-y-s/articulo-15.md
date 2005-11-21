@@ -1,1 +1,1 @@
-Artículo 15.—Las personas físicas o jurídicas que soliciten una patente para esta clase de juegos, ubicarán las máquinas en un local, exclusivo, para que albergue las mismas.
+Artículo 15.—Las licencias para máquinas de juegos tendrán la vigencia de un año a partir de la fecha de su expedición, vigencia que por ningún concepto se podrá renovar automáticamente sino a solicitud de parte interesa previo cumplimiento de los requisitos establecidos o por silencio positivo.

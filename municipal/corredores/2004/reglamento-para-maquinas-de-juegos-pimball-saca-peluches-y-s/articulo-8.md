@@ -1,1 +1,1 @@
-Artículo 8º—Es absolutamente prohibido la instalación de máquinas para juego de cualquier clase de las mencionadas en este Reglamento, en lugares en donde se expendan licores, esto salvaguardando la integridad de las personas que tienen acceso a ellas, como son los menores de edad.
+Artículo 8º—Es absolutamente prohibida la ubicación para juegos de cualquier clase de las mencionadas en este reglamento en bares y cantinas.

@@ -1,1 +1,1 @@
-Artículo 17.—Las licencias para máquinas de juegos según este reglamento tendrán de vigencia un año, las cuales cumplido el plazo, podrán ser renovadas presentando con antelación los requisitos que solicite el Departamento de Rentas.
+Artículo 17.—Se entenderá como requisito sine qua nom para la autorización de la patente municipal correspondiente, la obligación del solicitante de colocar rótulos visibles al público que expresen los requerimientos de los artículos 5, 6 y 7 de este reglamento.

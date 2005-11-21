@@ -1,1 +1,1 @@
-Artículo 14.—No se permitirá la instalación de este tipo de máquinas en ningún otro local comercial que no sea el autorizado por el Departamento de Rentas de esta Municipalidad.
+Artículo 14.—La correcta ubicación de este tipo de máquinas será supervisada en cualquier momento por el Departamento de Rentas de la Municipalidad.
