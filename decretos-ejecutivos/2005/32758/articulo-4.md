@@ -1,0 +1,1 @@
+Artículo 4º—El funcionario que sea acreditado por el superior jerárquico de la institución que se trate, como representante ante la Comisión, deberá ser el Jefe o Encargado del Archivo Central o, en su defecto, estar directamente relacionado con los procesos archivísticos de los Archivos Centrales, Archivos de Gestión Centralizados o Especializados de la Entidad.

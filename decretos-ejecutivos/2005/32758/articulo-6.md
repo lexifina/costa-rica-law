@@ -1,0 +1,1 @@
+Artículo 6º—Del Informe de la Comisión. La Junta Directiva rendirá un informe de labores al cabo de su gestión, el cual se hará del conocimiento de cada una de las instituciones representadas en la misma.

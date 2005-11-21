@@ -1,0 +1,1 @@
+Artículo 9º—De las Subcomisiones. La Comisión podrá nombrar Subcomisiones para el estudio de casos concretos, cuando así las circunstancias lo ameriten. Los informes de estas Subcomisiones deberán ser presentados por escrito a la Comisión dentro del plazo que les sea conferido, pudiéndose otorgarles una prórroga si el caso es justificado.

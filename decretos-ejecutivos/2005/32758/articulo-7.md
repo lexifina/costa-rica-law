@@ -1,0 +1,1 @@
+Artículo 7º—La CIAP sesionará ordinariamente una vez al mes y extraordinariamente cuando sea convocada al efecto con 8 días hábiles de anticipación por el Presidente y el Secretario de la Junta Directiva o por el 10% de los representantes.
