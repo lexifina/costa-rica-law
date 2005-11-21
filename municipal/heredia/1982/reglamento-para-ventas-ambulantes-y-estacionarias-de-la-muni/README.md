@@ -14,3 +14,4 @@ Reglamento para Ventas Ambulantes y Estacionarias de la Municipalidad de Heredia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-09-23 | la propia norma |
+| 2 | 2005-11-21 | Reglamento municipal 294 (2005-11-21) |
