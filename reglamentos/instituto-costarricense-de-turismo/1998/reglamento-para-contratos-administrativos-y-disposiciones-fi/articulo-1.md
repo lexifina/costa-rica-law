@@ -1,3 +1,5 @@
+(Derogado)
+(Este Reglamento fue DEROGADO por el artículo 81 del Reglamento Financero aprobado en sesión No. 5389 de 22 de noviembre de 1998).
 En sesión ordinaria de Junta Directiva No 4796, artículo 5, inciso LVL celebrada el 9 de marzo de 1998.
 Se acuerda: A) Aprobar el proyecto "Reglamento para Contratos Administrativos y Disposiciones Financieras del Instituto Costarricense de Turismo".
 REGLAMENTO PARA CONTRATOS ADMINISTRATIVOS

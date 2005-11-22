@@ -23,3 +23,4 @@ Reglamento para Contratos Administrativos y Disposiciones Financieras del Instit
 | 8 | 2003-07-01 | Reglamento 5252 (2003-07-01) |
 | 9 | 2003-09-16 | Reglamento 5267 (2003-09-16) |
 | 10 | 2003-10-14 | Reglamento 5273 (2003-10-14) |
+| 11 | 2005-11-22 | Reglamento 5389 (2005-11-22) |
