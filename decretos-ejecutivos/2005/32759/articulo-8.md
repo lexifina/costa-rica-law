@@ -1,0 +1,1 @@
+Artículo 8º—El montaje será financiado del superávit de la Compañía Nacional de Teatro, de acuerdo con la justificación presupuestaria del proyecto ganador y el Ministerio de Cultura, Juventud y Deportes gestionará lo correspondiente al aumento del límite de gasto presupuestario con ese fin.

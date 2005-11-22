@@ -1,0 +1,1 @@
+Artículo 4º—Los proyectos serán valorados en términos de viabilidad económica y de producción, así como en cuanto al cumplimiento de los requisitos formales establecidos en la convocatoria, por una Comisión nombrada al efecto por la Compañía Nacional de Teatro, a fin de seleccionar los proyectos admisibles para ser enviados ante el jurado calificador.
