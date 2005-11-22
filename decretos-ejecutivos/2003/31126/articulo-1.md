@@ -20,7 +20,8 @@ e) Alejandra Aguilar Schramm, representante del Ministro de Comercio Exterior.
 (Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
 f) Señor Carlos Hernández Porras, representante de la Asociación Mesa Nacional Campesina.
 g) Señor Reynaldo González Segura, representante de la Asociación Mesa Nacional Indígena.
-h) Señor Berny Marín Alpízar, representante del Instituto Costarricense de Pesca y Acuacultura.
+h) Ana Rita Vásquez Arias, representante del Instituto Costarricense de Pesca y Acuicultura.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32819 del 22 de noviembre de 2005)
 i. Señora Mariela Herrera Morera, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
 (Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
 j) Fiorella Donato Calderón, representante del Consejo Nacional de Rectores.
@@ -37,9 +38,11 @@ e) Natalia Hernández Ramírez, representante del Ministro de Comercio Exterior.
 (Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
 f) Señor Rafael Salazar Murillo, representante de la Asociación Mesa Nacional Campesina.
 g) Señor Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
-h) Señora Ana Rita Vásquez Arias, representante del Instituto Costarricense de Pesca y Acuacultura.
+h) Berny Marín Alpízar, representante del Instituto Costarricense de Pesca y Acuicultura.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32819 del 22 de noviembre de 2005)
 i) Señora Irina Ramos Arrocha, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
 (Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
 j. Abdenago Brenes Hine, representante del Consejo Nacional de Rectores.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32803 del 4 de noviembre de 2005)
 k) Eduardo Aguilar Espinoza, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
 (Así reformado el inciso k) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
