@@ -1,0 +1,1 @@
+Artículo 2º—El Área de Conservación Pacífico Central revisará y demarcará en el campo los linderos de esta área protegida. La adquisición de los terrenos incluidos dentro de los límites del Parque se realizará conforme a lo establecido en el artículo 37 de la Ley Orgánica del Ambiente y el artículo 2º de la Ley Forestal, Nº 7575.
