@@ -1,1 +1,3 @@
 Artículo 4°—Los concejos municipales de distrito tendrán las competencias locales en el respectivo distrito y podrán convenir en toda clase de alianzas de cooperación con la municipalidad del cantón y con entes públicos no territoriales. Para concertar convenios con otras municipalidades u otros concejos municipales de distrito, necesitarán la aprobación de la municipalidad del cantón al que pertenece el distrito que gobiernan y administran.
+Los concejos municipales de distrito, sin perjuicio de las atribuciones de otras instituciones del Estado, promoverán la eficiencia de la actividad del sector público y velarán por ella.
+(Así adicionado el párrafo segundo por el artículo 12 de la Ley No. 8489 de 22 de noviembre de 2005).
