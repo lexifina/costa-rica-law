@@ -1,0 +1,3 @@
+ARTÍCULO II
+1. Las Partes encomiendan la ejecución del presente Acuerdo a la Comisión Nacional de Energía Atómica (en adelante CNEA) de la República Argentina y a la Comisión de Energía Atómica (en adelante CEA) de la República de Costa Rica, organismos que de común acuerdo establecerán en cada caso las condiciones particulares y las modalidades que regirán la cooperación.
+2. Las Partes, cuando lo consideren conveniente, facilitarán en todo lo posible la participación que pueda caber a otras instituciones u organismos públicos o privados de los respectivos países en los proyectos conjuntos que se realicen en aplicación de este Acuerdo. Estas acciones se canalizarán a través de la CNEA y la CEA respectivamente.
