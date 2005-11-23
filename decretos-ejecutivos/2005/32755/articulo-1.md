@@ -1,0 +1,13 @@
+Nº 32755
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DEL AMBIENTE Y ENERGÍA
+En el ejercicio de las facultades que confieren los incisos 3) y 18) del artículo 140 y 146 de la Constitución Política, la Ley Forestal Ley Nº 7575, publicada en La Gaceta Nº 72 del 16 de abril de 1996 y sus reformas, la Ley de Biodiversidad Ley Nº 7788, publicada en La Gaceta Nº 101, del 27 de mayo de 1998 y el artículo 32 de la Ley Orgánica del Ambiente Ley Nº 7554, publicada en La Gaceta Nº 215 del 13 de noviembre de 1995, y
+Considerando:
+I.—Que es de interés del Estado Costarricense fortalecer y consolidar las estructuras administrativas en el campo de los recursos naturales, a fin de contar con políticas definidas que garanticen el uso racional de dichos recursos.
+II.—Que la Zona Protectora Nosara se estableció como área silvestre protegida mediante Decreto Ejecutivo Nº 22967-MIRENEM del 16 de febrero de 1994, publicado en La Gaceta Nº 49 de 10 de marzo de 1994, siendo ésta un sitio de gran importancia estratégica en la conformación del Corredor Biológico Chorotega.
+III.—Que estudios técnicos han determinado que es de suma importancia proteger la cuenca alta del Río Nosara, ubicada dentro de los terrenos de esta área protegida, a fin de garantizar a largo plazo el suministro de recursos hídricos para la provincia de Guanacaste, principalmente para los cantones de Hojancha y Nicoya, constituyendo un núcleo muy importante para la conservación de los recursos naturales de la Península de Nicoya, que resguarda recursos de gran valor escénico y sitios aptos para el disfrute sano de sus bellezas, como tradicionalmente ha ocurrido.
+IV.—Que desde la creación de esta Zona Protectora, la comunidad de Hojancha a través de diferentes instancias como la Fundación Pro Reserva Forestal Monte Alto, la Municipalidad, el Centro Agrícola Cantonal, la Guardia Rural, la Comisión de Corredor Biológico, los grupos de brigadas contra incendios y otras organizaciones, han realizado un trabajo conjunto en pro de la consolidación y conservación de esta área.
+V.—Que desde antes de ser decretada oficialmente el área antes indicada, los pobladores llamaban a este lugar “Reserva Monte Alto” y aún ahora se le llama de esta forma, siendo el nombre más común y más arraigado a la toponimia de la zona.
+VI.—Que se hace necesario crear el Consejo Local de esta Zona Protectora con el .n de reunir esfuerzos en pro de la protección de esta área silvestre. Por tanto,
+DECRETAN:
+Artículo 1º—Modifícase el artículo 1° del Decreto Ejecutivo Nº 22967-MIRENEM, publicado en La Gaceta Nº 49 del 10 de marzo de 1994, cambiando el nombre de “Zona Protectora Nosara” por el de “Zona Protectora Monte Alto”, cuyos límites serán los mismos del Decreto original de creación.

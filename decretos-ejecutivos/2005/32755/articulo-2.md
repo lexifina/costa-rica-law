@@ -1,0 +1,1 @@
+Artículo 2º—El Consejo Regional del Área de Conservación Tempisque podrá autorizar la conformación del Consejo Local de la Zona Protectora Monte Alto, cuya constitución se definirá en el acuerdo de creación, tal como lo indica el artículo 29 de la Ley de Biodiversidad.
