@@ -1,0 +1,1 @@
+Artículo 4º—Las personas físicas o jurídicas interesadas en acreditarse ante el Registro, deberán inscribirse primero en el registro de Oferentes de la Caja que mantiene el Área de Adquisiciones, y luego deberán llenar el formulario que les facilitará la Dirección y aportar la información que en él se solicite en idioma español.

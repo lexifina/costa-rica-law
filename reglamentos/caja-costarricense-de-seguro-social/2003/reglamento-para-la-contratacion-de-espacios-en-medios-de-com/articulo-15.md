@@ -1,0 +1,1 @@
+Artículo 15.—En ningún caso se podrá contratar con personas o medios que no se encuentren al día en el pago de sus obligaciones obrero patronales, según lo establecido en los artículos 74 de la Ley Constitutiva de la Caja Costarricense de Seguro Social y 84 de la Ley de Protección al Trabajador.

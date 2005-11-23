@@ -1,0 +1,1 @@
+Artículo 5º—La Caja se reserva el derecho de solicitar cualquier aclaración o adición que juzgue conveniente con respecto de una solicitud de inscripción que haya sido presentada o en cuanto a la información suministrada.

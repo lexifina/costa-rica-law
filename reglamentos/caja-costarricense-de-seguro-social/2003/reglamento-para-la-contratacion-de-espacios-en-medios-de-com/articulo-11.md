@@ -1,0 +1,1 @@
+Artículo 11.—Si fueran varios los medios escogidos y al momento de negociar alguno de ellos no llenara las expectativas de la Institución, podrá desistirse de su contratación, para lo cual deberá dejarse una justificación razonada en el expediente respectivo.
