@@ -1,0 +1,1 @@
+Artículo 13.—Las instancias de la Administración Penitenciaria mencionadas anteriormente informarán al órgano jurisdiccional solicitante lo que corresponda, en un plazo no mayor a 15 días posteriores al recibo de la petición.

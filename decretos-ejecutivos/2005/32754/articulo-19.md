@@ -1,0 +1,3 @@
+Artículo 19.—En el caso de personas sentenciadas con pena menor a un año de prisión, los trámites para la autorización del beneficio del artículo 55 del Código Penal se iniciarán a partir del momento de su ingreso al centro penal o cancelación de sentencia anterior, procediéndose a autorizar el beneficio en ese instante.
+Dicha autorización surtirá efectos a partir del momento en que cumpla la mitad de la pena, salvo que haya descontado prisión preventiva y sea necesario hacer los ajustes correspondientes.
+En el caso específico de sentencias menores a un año de prisión, los plazos estipulados en los artículos 17 y 18 se entenderán reducidos a la mitad.

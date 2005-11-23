@@ -1,0 +1,1 @@
+Artículo 16.—El Consejo de Valoración de cada centro penal remitirá al Instituto Nacional de Criminología con al menos 2 meses de anticipación a la mitad de la pena con descuento, su recomendación para que esa instancia se pronuncie sobre la autorización del beneficio del artículo 55 del Código Penal.
