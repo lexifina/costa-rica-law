@@ -1,0 +1,1 @@
+Artículo 2º—La cuota de importación indicada en el artículo anterior deberá negociarse en tractos de doscientas cincuenta toneladas métricas (250 TM), hasta que se agote la cuota establecida y el producto deberá ingresar al país a más tardar el 31 de diciembre del 2005.
