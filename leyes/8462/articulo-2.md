@@ -1,0 +1,1 @@
+Artículo 2º—No sujeción a timbres. Las actividades descritas en el artículo 1º de esta Ley tampoco estarán sujetas al pago de ningún monto por concepto de timbres o contribuciones parafiscales vigentes en el momento de publicarse la presente Ley.
