@@ -1,0 +1,1 @@
+Artículo 25.—Todos los miembros deberán comunicar por escrito, cuando proceda, las razones de su inasistencia a las sesiones, a más tardar en la sesión siguiente de su ausencia, de no hacerlo, una ausencia será considera injustificada y sancionable.

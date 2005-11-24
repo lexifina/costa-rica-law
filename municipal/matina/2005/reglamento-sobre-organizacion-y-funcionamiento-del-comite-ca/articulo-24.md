@@ -1,0 +1,1 @@
+Artículo 24.—El quórum, para sesionar, deberá estar integrado por tres miembros. Los acuerdos se tomarán por simple mayoría de votos presentes, salvo cuando se estipule en ese reglamento un número mayor de votos, en caso de empate en una votación, el Presidente tendrá voto calificado (doble).

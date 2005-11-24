@@ -1,0 +1,1 @@
+Artículo 51.—Para proceder al cierre de una instalación deportiva o recreativa, será necesario contar con el visto bueno del Comité Cantonal de Deportes y Recreación; quien se extralimite en esas facultades será(n) destituido(s) del cargo.

@@ -1,0 +1,1 @@
+Artículo 4º—Los miembros de Junta Directiva del Comité Cantonal de Deportes y Recreación, durarán en sus cargos dos años, podrán ser reelegidos y no devengarán dietas ni remuneración alguna. Serán nombrados por el Concejo Municipal, en la primera semana del mes del año que finaliza la gestión del Comité Cantonal vigente.

@@ -1,0 +1,1 @@
+Artículo 22.—La Junta Directiva podrá reunirse en sesión extraordinaria cuando sean convocados por el Presidente o conjuntamente por tres de sus miembros, la convocatoria debe hacerse por escrito, con cuarenta y ocho horas antes, con señalamiento del objeto de la sesión. En sesiones extraordinarias únicamente se conocerá lo incluido en la convocatoria.

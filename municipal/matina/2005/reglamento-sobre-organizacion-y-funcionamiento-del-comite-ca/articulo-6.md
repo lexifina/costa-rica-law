@@ -1,0 +1,1 @@
+Artículo 6º—Diez días después de ejecutado el nuevo nombramiento del Comité Cantonal de Deportes y Recreación, el Concejo Municipal hará una sesión extraordinaria donde recibirá los informes del comité saliente y juramentará a los miembros del comité entrante.

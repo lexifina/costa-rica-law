@@ -1,0 +1,1 @@
+Artículo 96.—Toda modificación y ajuste que se deba realizar, que no se encuentre estipulado en el presente reglamento, quedará sujeto a aplicación de acuerdo con lo estipulado mediante al Código Municipal vigente y cualquier reforma que fuese implementación en el mismo.

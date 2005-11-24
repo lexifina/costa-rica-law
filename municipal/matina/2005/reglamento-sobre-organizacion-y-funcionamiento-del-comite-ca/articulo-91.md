@@ -1,0 +1,1 @@
+Artículo 91.—El Comité Cantonal de Deportes y Recreación tendrá personería jurídica únicamente para el cumplimiento de los fines que la Ley y este reglamento lo otorguen, la personería jurídica será extendida por el Concejo Municipal. Los comités comunales dependerán jurídicamente de la personería del Comité Cantonal de Deportes y Recreación.
