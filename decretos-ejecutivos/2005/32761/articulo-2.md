@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza a los diversos órganos y entes del Sector Público costarricense para que dentro de sus marcos de regulación normativa y de sus posibilidades, sin perjuicio del cumplimiento de sus objetivos propios, colaboren en todo lo posible con la realización del XIII Congreso Ibero-Latinoamericano del Asfalto (XIII CILA).

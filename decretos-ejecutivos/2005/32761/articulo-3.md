@@ -1,0 +1,1 @@
+Artículo 3º—Se conmina a los integrantes del Sector Privado y a los diversos Colegios Profesionales e Instituciones Académicas y Técnicas privadas a participar y colaborar con la realización del XIII Congreso Ibero- Latinoamericano del Asfalto (XIII CILA).
