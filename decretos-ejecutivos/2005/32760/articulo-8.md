@@ -1,0 +1,1 @@
+Artículo 8º—Convocatoria para el proceso de evaluación. Solamente las personas que cumplan con los requisitos de la clase del puesto en concurso y cuyas ofertas hayan sido aceptadas, recibirán la convocatoria para el proceso de evaluación.

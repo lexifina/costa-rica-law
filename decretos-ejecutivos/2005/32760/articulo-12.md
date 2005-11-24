@@ -1,0 +1,3 @@
+Artículo 12.—Aprobación por parte de la Contraloría General de la República. El Expediente del Concurso y la terna de los candidatos seleccionados, en forma previa al nombramiento, serán sometidos a conocimiento de la Junta Directiva, quien aprobará o improbará el procedimiento realizado, si lo aprueba, remitirá el expediente y la nómina a la Contraloría General de la República, de conformidad con lo establecido en el Artículo 31 de la Ley General de Control Interno.
+Si la Contraloría General de la República, aprueba el concurso efectuado, la Junta Directiva procederá a realizar el nombramiento.
+Si la Contraloría General de la República imprueba el concurso realizado, se iniciará nuevamente este proceso, de conformidad con lo que al respecto señale el ente contralor.

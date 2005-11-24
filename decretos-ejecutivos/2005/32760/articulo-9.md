@@ -1,0 +1,2 @@
+Artículo 9º—Nota mínima para integrar un registro de elegibles. Se considerarán elegibles a quienes obtengan como mínimo una calificación final de 70%, resultado de la ponderación de las calificaciones obtenidas en los diferentes predictores utilizados para la evaluación de candidatos.
+Con los candidatos que obtengan una calificación final igual o superior a 70% se conformará un Registro de Elegibles, registrado en orden descendente a partir de la calificación mayor hasta el 70%.

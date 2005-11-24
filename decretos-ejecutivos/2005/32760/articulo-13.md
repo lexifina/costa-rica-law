@@ -1,0 +1,1 @@
+Artículo 13.—Del período de prueba. Una vez nombrado el Auditor, éste será sujeto a un período de prueba de tres meses, pasado este plazo, la Junta Directiva del Instituto, comunicará a la Contraloría General de la República su conformidad o disconformidad del desempeño del funcionario nombrado.
