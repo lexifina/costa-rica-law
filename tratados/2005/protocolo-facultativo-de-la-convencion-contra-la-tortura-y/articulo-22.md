@@ -1,0 +1,1 @@
+Artículo 22.—Las autoridades competentes del Estado Parte interesado examinarán las recomendaciones del mecanismo nacional de prevención y entablarán un diálogo con este mecanismo acerca de las posibles medidas de aplicación.

@@ -1,0 +1,5 @@
+Artículo 18.—
+1. Los Estados Partes garantizarán la independencia funcional de los mecanismos nacionales de prevención, así como la independencia de su personal.
+2. Los Estados Partes tomarán las medidas necesarias a fin de garantizar que los expertos del mecanismo nacional de prevención tengan las aptitudes y los conocimientos profesionales requeridos. Se tendrá igualmente en cuenta el equilibrio de género y la adecuada representación de los grupos étnicos y minoritarios del país.
+3. Los Estados Partes se comprometen a proporcionar los recursos necesarios para el funcionamiento de los mecanismos nacionales de prevención.
+4. Al establecer los mecanismos nacionales de prevención, los Estados Partes tendrán debidamente en cuenta los Principios relativos al estatuto de las instituciones nacionales de promoción y protección de los derechos humanos.

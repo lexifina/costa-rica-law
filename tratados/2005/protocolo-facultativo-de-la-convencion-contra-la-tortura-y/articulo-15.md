@@ -1,0 +1,1 @@
+Artículo 15.—Ninguna autoridad o funcionario ordenará, aplicará, permitirá o tolerará sanción alguna contra una persona u organización por haber comunicado al Subcomité para la Prevención o a sus miembros cualquier información, ya sea verdadera o falsa, y ninguna de estas personas u organizaciones sufrirá perjuicios de ningún tipo por este motivo.

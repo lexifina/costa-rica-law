@@ -1,0 +1,1 @@
+Artículo 3º—Cada Estado Parte establecerá, designará o mantendrá, a nivel nacional, uno o varios órganos de visitas para la prevención de la tortura y otros tratos o penas crueles, inhumanos o degradantes (en adelante denominado el Mecanismo Nacional de Prevención).

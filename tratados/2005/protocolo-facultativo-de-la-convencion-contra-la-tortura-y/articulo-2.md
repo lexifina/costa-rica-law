@@ -1,0 +1,5 @@
+Artículo 2º—
+1. Se establecerá un Subcomité para la Prevención de la Tortura y Otros Tratos o Penas Crueles, Inhumanos o Degradantes del Comité contra la Tortura (en adelante denominado el Subcomité para la Prevención), que desempeñará las funciones previstas en el presente protocolo.
+2. El Subcomité para la Prevención realizará su labor en el marco de la Carta de las Naciones Unidas y se guiará por los propósitos y principios enunciados en ella, así como por las normas de las Naciones Unidas relativas al trato de las personas privadas de su libertad.
+3. Asimismo, el Subcomité para la Prevención se guiará por los principios de confidencialidad, imparcialidad, no selectividad, universalidad y objetividad.
+4. El Subcomité para la Prevención y los Estados Partes cooperarán en la aplicación del presente protocolo.

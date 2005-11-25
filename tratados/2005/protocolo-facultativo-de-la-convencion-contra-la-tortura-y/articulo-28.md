@@ -1,0 +1,3 @@
+Artículo 28.—
+1. El presente protocolo entrará en vigor el trigésimo día a partir de la fecha en que haya sido depositado el vigésimo instrumento de ratificación o adhesión en poder del Secretario General de las Naciones Unidas.
+2. Para cada Estado que ratifique el presente protocolo o se adhiera a él después de haber sido depositado el vigésimo instrumento de ratificación o de adhesión en poder del Secretario General de las Naciones Unidas, el presente protocolo entrará en vigor el trigésimo día a partir de la fecha en que ese Estado haya depositado su instrumento de ratificación o de adhesión.

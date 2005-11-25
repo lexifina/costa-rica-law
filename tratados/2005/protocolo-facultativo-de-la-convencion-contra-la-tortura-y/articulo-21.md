@@ -1,0 +1,3 @@
+Artículo 21.—
+1. Ninguna autoridad o funcionario ordenará, aplicará, permitirá o tolerará sanción alguna contra una persona u organización por haber comunicado al mecanismo nacional de prevención cualquier información, ya sea verdadera o falsa, y ninguna de estas personas u organizaciones sufrirá perjuicios de ningún tipo por este motivo.
+2. La información confidencial recogida por el mecanismo nacional de prevención tendrá carácter reservado. No podrán publicarse datos personales sin el consentimiento expreso de la persona interesada.

@@ -1,0 +1,7 @@
+Artículo 20.—A fin de que los mecanismos nacionales de prevención puedan desempeñar su mandato, los Estados Partes en el presente protocolo se comprometen a darles:
+a) Acceso a toda la información acerca del número de personas privadas de su libertad en lugares de detención según la definición del artículo 4 y sobre el número de lugares de detención y su emplazamiento;
+b) Acceso a toda la información relativa al trato de esas personas y a las condiciones de su detención;
+c) Acceso a todos los lugares de detención y a sus instalaciones y servicios;
+d) Posibilidad de entrevistarse con las personas privadas de su libertad, sin testigos, personalmente o con la asistencia de un intérprete en caso necesario, así como con cualquier otra persona que el mecanismo nacional de prevención considere que pueda facilitar información pertinente;
+e) Libertad para seleccionar los lugares que deseen visitar y las personas a las que deseen entrevistar;
+f) El derecho a mantener contactos con el Subcomité para la Prevención, enviarle información y reunirse con él.
