@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión de Asuntos Electorales Indígenas podrá convocar a reuniones y requerir informes de todos aquellos sujetos que tengan algún tipo de injerencia en el desarrollo general de las poblaciones indígenas.

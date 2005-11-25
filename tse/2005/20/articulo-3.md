@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión verificará que las consultas que se sometan a su consideración sean planteadas bajo el principio de buena fe y ajustándose a la verdad real de las circunstancias, con la finalidad de lograr un acuerdo consentido en cuanto a las propuestas que se planteen.
