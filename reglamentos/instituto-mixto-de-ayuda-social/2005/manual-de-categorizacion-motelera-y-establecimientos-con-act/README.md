@@ -14,3 +14,4 @@ Manual de Categorización Motelera y Establecimientos con Actividades Similares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-15 | la propia norma |
+| 2 | 2005-11-25 | Resolución 0 (2005-11-25) |
