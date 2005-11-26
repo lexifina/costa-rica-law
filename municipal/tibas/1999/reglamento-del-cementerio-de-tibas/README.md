@@ -14,3 +14,4 @@ Reglamento del Cementerio de Tibás
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-24 | la propia norma |
+| 2 | 2005-11-26 | Reglamento municipal 82 (2003-11-26) |
