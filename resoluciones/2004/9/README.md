@@ -15,3 +15,4 @@ Comunica emisión de resoluciones: D-087-2004, DG-088-2004, D-089-2004, DG-090-2
 | --- | --- | --- |
 | 1 | 2004-05-18 | la propia norma |
 | 2 | 2004-09-27 | Resolución 26 (2004-09-27) |
+| 3 | 2005-11-28 | Resolución 31 (2005-11-28) |

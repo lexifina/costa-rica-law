@@ -10,4 +10,4 @@ Se hace saber que la Dirección General de Servicio Civil ha emitido las siguien
 • D-091-2004, se declara atinente la carrera Dirección Empresarial con énfasis en Recursos Humanos para varias clases y cargos del Área Administrativa del Ministerio de Salud y se incluye en la Guía de Atinencias Académicas del Manual Institucional de Clases del Ministerio de Salud, la carrera Dirección Empresarial con énfasis en Recursos Humanos en las clases y cargos indicados en el artículo anterior.
 • D-092-2004, se modifica la clase de puesto Profesor de Enseñanza Preescolar del Manual Descriptivo de Clases de Puestos Docentes.
 • DG-093-2004, se modifica el Manual Institucional de Clases del Ministerio de Ambiente y Energía, específicamente la Clase Profesional Licenciado del MINAE, en los apartes “Ubicación” y “Caracterización de la Clase”.
-• DG-094-2004, se modifica el artículo 1º de la resolución DG-292-2003, que reformó el artículo 4° del apartado de las “Normas para el Reconocimiento del Incentivo Retribución por Peligrosidad” contenidas en la resolución DG-260-2003.
+• DG-094-2004, Así Derogada mediante resolución N° 31 del 28 de noviembre del 2005.
