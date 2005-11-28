@@ -1,0 +1,1 @@
+Artículo 65.—Indemnización por privación ilegítima de libertad. Toda persona joven privada de libertad ilegítimamente, tendrá derecho a recibir del Estado una indemnización por los daños y perjuicios que se le provoquen. El funcionario que, actuando con dolo o culpa, haya ordenado o mantenido la privación de libertad ilegítima, será responsable solidariamente.

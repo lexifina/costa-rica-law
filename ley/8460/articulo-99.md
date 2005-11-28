@@ -1,0 +1,2 @@
+Artículo 99.—Competencia para ordenar medidas extraordinarias de seguridad. Las medidas extraordinarias de seguridad deberán ser dispuestas por el director del centro de internamiento especializado o la persona que esté a cargo de él durante su ausencia. En el expediente del sancionado se dejará constancia escrita de los motivos o las razones por los cuales se tomó la determinación.
+Toda persona joven sometida a las medidas a que se refieren los incisos b), c), d) y e) del artículo anterior, deberá ser valorada por el personal de salud del centro penitenciario.

@@ -1,0 +1,2 @@
+Artículo 47.—Selección del centro educativo. Para elegir el centro educativo deberán tomarse en cuenta, sobre todo, las aptitudes y capacidades de la persona joven para el tipo o la modalidad de educación, así como los requisitos exigidos por el centro educativo.
+El centro escogido quedará obligado a aceptar a la persona joven como estudiante y a no divulgar las razones por las cuales ella se encuentra en ese centro. Por ningún motivo podrá realizar diferenciación o discriminación alguna respecto de los demás estudiantes del centro educativo.

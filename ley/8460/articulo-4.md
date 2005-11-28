@@ -1,0 +1,1 @@
+Artículo 4º—Principio de tipicidad de la ejecución. Ninguna persona joven sancionada podrá ser sometida a medidas disciplinarias ni a la restricción de sus derechos, si la conducta atribuida no se encuentra descrita en esta Ley.

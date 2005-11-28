@@ -1,0 +1,5 @@
+CAPÍTULO II
+Internamiento en centros especializados
+SECCIÓN I
+Consideraciones generales
+Artículo 63.—Estructura física de los centros especializados de internamiento. Todo centro de internamiento especializado donde se cumpla una sanción privativa de libertad, deberá tener determinada su capacidad o el máximo de plazas para albergar a las personas jóvenes en condiciones adecuadas y sin hacinamiento. La determinación será fijada por los órganos competentes de la Dirección General de Adaptación Social, tomando en cuenta la capacidad preestablecida y la opinión de los expertos en la materia. Además, el diseño de los centros de internamiento deberá responder a su finalidad, es decir, a la rehabilitación de las personas jóvenes, teniendo en cuenta, debidamente, su necesidad de intimidad, estímulos sensoriales, posibilidades de asociación con sus compañeros y participación en actividades deportivas, ejercicios físicos y de esparcimiento. El diseño y la estructura de los centros de internamiento deberán ser tales que reduzcan al mínimo el riesgo en casos de desastres naturales y garanticen una evacuación segura de los establecimientos.

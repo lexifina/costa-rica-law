@@ -1,0 +1,2 @@
+Artículo 35.—Entidades para la prestación del servicio comunal. Los responsables de las entidades sin fines de lucro, interesados en participar en la ejecución de la sanción de prestación de servicio comunal, deberán comprobar la idoneidad de los programas que ofrecen ante la Dirección General de Adaptación Social, la cual deberá autorizar y supervisar a estas entidades.
+Para el cumplimiento de esta sanción se preferirán los programas comunales del lugar de origen de la persona joven o su lugar de residencia.

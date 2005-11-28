@@ -1,0 +1,2 @@
+Artículo 104.—Procedencia de la medida disciplinaria. Las medidas disciplinarias proceden aun cuando el hecho pueda dar lugar a un proceso penal. Sin embargo, no se aplicarán cuando sean sustituidas por abordaje técnico como medida alternativa a la sanción.
+No deberá sancionarse a ninguna persona joven más de una vez por la misma infracción disciplinaria. Se prohíben las sanciones disciplinarias colectivas.

@@ -1,0 +1,6 @@
+Artículo 91.—Inspecciones. El personal del centro podrá inspeccionar las pertenencias de la persona joven para garantizar que no posee objetos prohibidos por esta Ley y los reglamentos penitenciarios. Las inspecciones aludidas deberán realizarse conforme a las normas penitenciarias vigentes, cuidando no someter a la persona a un tratamiento cruel y degradante, y respetando su pudor. Las inspecciones deberán realizarse en presencia de la persona joven y con su colaboración, de la siguiente manera:
+a) Al ingresar al centro por primera vez, así como cuando reingrese por razones de permisos, o en cualquier otro momento, si se considera conveniente.
+b) En horas del día, salvo si existen controles de seguridad que, excepcionalmente, justifiquen controles nocturnos.
+c) Las pertenencias de cada persona privada de libertad se revisarán con cuidado de no dañarlas y se dejarán en orden.
+d) Cuando las inspecciones sean en el cuerpo de las personas privadas de libertad, deberán ser realizadas por personas de su mismo sexo y con la presencia de un testigo, como mínimo. Se preferirá que el testigo sea una persona de confianza de la persona joven.
+Se prohíbe practicar, en el cuerpo de la persona joven, cualquier examen físico que se considere abusivo y excesivo respecto de la integridad física y moral.
