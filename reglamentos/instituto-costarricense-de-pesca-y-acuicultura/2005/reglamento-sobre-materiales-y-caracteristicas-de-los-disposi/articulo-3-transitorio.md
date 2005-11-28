@@ -1,0 +1,1 @@
+Transitorio tercero. En el caso de los DET’s construidos con varilla sólida de materiales diferentes al aluminio, éstos deberán tener las mismas dimensiones de los DET’s construidos con varilla de aluminio sólida, pero el espacio entre las barras deflectoras y el marco de la parrilla no podrá exceder las 4 pulgadas.

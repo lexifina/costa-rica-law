@@ -1,0 +1,1 @@
+Transitorio primero. Se permitirá el uso de los DET’s construidos con varilla sólida de aluminio u otro material, hasta un año después de haber sido publicado este acuerdo, con el objetivo de que los dispositivos construidos antes de la promulgación de este acuerdo puedan ser usados y gastados.

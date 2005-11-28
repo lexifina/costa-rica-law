@@ -1,0 +1,1 @@
+Transitorio segundo. En el caso de los DET’s construidos con varilla de aluminio sólida, éstos deberán de tener un diámetro mínimo exterior de 3/4 de pulgadas, la parrilla un mínimo de 34 1 /2 pulgadas de ancho por 42,0 pulgadas de alto y el espacio entre las barras deflectoras y el marco de la parrilla no podrá exceder las 6 pulgadas.

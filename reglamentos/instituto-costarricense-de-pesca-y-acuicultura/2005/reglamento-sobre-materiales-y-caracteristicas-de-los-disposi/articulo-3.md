@@ -1,0 +1,11 @@
+Artículo 3º—De los requisitos de construcción de la abertura de escape de 71 pulgadas para las tortugas marinas. En aquellos DET en que el espacio entre las barras deflectoras y el marco de la parrilla sea de 6 pulgadas, se debe seguir el siguiente procedimiento para construir la abertura de escape:
+A. Se coloca el DET en forma vertical.
+B. Se miden 2 pulgadas a la izquierda de la base de la primera barra deflectora de la izquierda y de este punto se realiza un corte vertical de 26 pulgadas.
+C. Se miden 2 pulgadas a la derecha de la base de la primera barra deflectora de la derecha y de este punto se realiza un corte vertical de 26 pulgadas.
+D. Se hace un corte que una la parte superior de los dos cortes verticales, creándose la abertura que deberá tener 71 pulgadas de ancho, cuando las mallas están estiradas.
+Si el espacio entre las barras deflectoras y el marco de la parrilla del DET es de 4 pulgadas, se sigue el procedimiento anterior salvo que los cortes se inician en la base de la primera barra deflectora de la izquierda y en la base de la primera barra deflectora de la derecha.
+La tapa de la abertura de escape, conocida también como solapa, se construye cortando un pedazo de malla con un alto de 133 pulgadas y un ancho de 58 pulgadas. El borde del lado de 133 pulgadas se cose 2 a 1 nudos en la parte delantera superior de la salida, en el borde de 71 pulgadas, es decir, por cada nudo de la red principal se amarran 2 nudos del material de la solapa, mientras que el borde de 58 pulgadas se cose 1 a 1 nudo, en los dos bordes de 26 pulgadas de la parte delantera de la salida, iniciando en la parte superior.
+El resto de la salida de escape que queda colgando, puede fijarse a los lados hasta un máximo de 6 pulgadas, medidas desde el borde inferior de marco del DET hacia abajo.
+El largo de la tapa puede extenderse hasta un máximo de 24 pulgadas, medidas desde el borde inferior del marco del DET hacia abajo.
+La salida de escape, medida a la altura del borde inferior del marco del DET, debe medir al menos 71 pulgadas, estirando la parte inferior de la tapa en línea recta a esa altura.
+La solapa debe medir 71 pulgadas con la malla estirada, en la parte superior, en el medio y también en la parte inferior, para así asegurar que la salida de escape tenga las dimensiones apropiadas.
