@@ -1,2 +1,3 @@
-Artículo 17.—La suma a cobrar por el concepto de alimentación (cena) será de dos quinientos colones (¢2.500,00) y por el concepto de transporte será de cinco mil colones, sumas que se aumentarán en un 10% anual de acuerdo al costo de la vida y a lo referente a dichos rubros, quedando entendido que por economía administrativa y por lo complicado y minucioso que será el tramitar las liquidaciones sobre el viático de transporte, se determinó una suma fija para todo el cantón, quedando a salvo las excepciones del artículo 18 de este Reglamento.
+Artículo 17.—La suma a cobrar por concepto de alimentación (cena) será el monto que asigne la tabla de viáticos de la Contraloría General de la República.
 (Así adicionado en sesión N° 218 del 25 de abril del 2005)
+(Así reformado en sesión N° 259 del 28 de noviembre del 2005)
