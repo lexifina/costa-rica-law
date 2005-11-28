@@ -18,3 +18,4 @@ Reglamento de Cementerios de Pacayas y Capellades
 | 3 | 1984-07-19 | Reglamento municipal 113 (1984-07-19) |
 | 4 | 1992-11-23 | Reglamento municipal 160 (1992-11-23) |
 | 5 | 2000-06-05 | Reglamento municipal 113 (2000-06-05) |
+| 6 | 2005-11-28 | Reglamento municipal 182 (2005-11-28) |
