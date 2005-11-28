@@ -14,3 +14,4 @@ Dirección General de Servicio Civil Emite Resoluciones DG-291-2003, DG-292-2003
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-03 | la propia norma |
+| 2 | 2005-11-28 | Resolución 31 (2005-11-28) |
