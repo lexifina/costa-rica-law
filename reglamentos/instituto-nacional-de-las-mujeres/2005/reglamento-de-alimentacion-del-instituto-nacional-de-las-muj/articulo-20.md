@@ -1,0 +1,1 @@
+Artículo 20.—Si el Instituto proporciona la alimentación a los participantes del evento, la instancia correspondiente encargada de la actividad para el trámite de pago de la factura deberá adjuntar a la misma la lista de los participantes que recibieron la alimentación con la respectiva .rma de asistencia a la actividad.

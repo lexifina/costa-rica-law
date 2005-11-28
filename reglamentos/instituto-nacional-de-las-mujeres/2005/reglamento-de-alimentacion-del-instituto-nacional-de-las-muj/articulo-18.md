@@ -1,0 +1,1 @@
+Artículo 18.—Para que la adquisición de los refrigerios menores se realice en forma ágil y expedita se realizará mediante formulario denominado “Solicitud de Alimentos a bodega”. Para lo anterior se debe seguir el procedimiento establecido para las requisiciones a bodega.

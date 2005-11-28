@@ -1,0 +1,1 @@
+Artículo 17.—En caso de que sobrantes de alimentos las instancias encargadas deberá remitirlos, mediante el formulario indicado en el artículo 15 del presente Reglamento a instituciones como escuelas, instituciones de beneficencia, los CEAAM, que estén más cercanos.

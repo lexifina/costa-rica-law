@@ -1,0 +1,1 @@
+Artículo 12.—De las sesiones de la Junta Directiva: Procederá el suministro de alimentación a los miembros de la Junta Directiva cuando la sesión requiera la presencia de sus miembros por un lapso prolongado.

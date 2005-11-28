@@ -1,0 +1,1 @@
+Artículo 19.—Para la adquisición de los alimentos indicados en el inciso c) del artículo 2 del presente Reglamento se aplicarán los procedimientos establecidos en la proveeduría del Instituto y lo estipulado en la Ley de Contratación Administrativa y su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 3º—El Reglamento tiene como fin el regular la asignación, uso y control de los recursos destinados para los gastos de alimentación para conmemoraciones, agasajos, atención de sesiones de la Junta Directiva, exposiciones, congresos, seminarios, cursos de capacitación, talleres, reuniones y otros de características similares.

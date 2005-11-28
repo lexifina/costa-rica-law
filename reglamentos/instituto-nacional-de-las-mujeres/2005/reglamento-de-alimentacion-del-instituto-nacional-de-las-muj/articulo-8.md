@@ -1,0 +1,3 @@
+CAPÍTULO III
+Procedimiento de uso
+Artículo 8º—Reuniones Internas: Se podrán hacer uso de los refrigerios menores en reuniones que se realicen en alguna dependencia del Instituto ya sea con mujeres y/o, funcionarios \as públicos externos. Estos productos serán tramitados y adquiridos por la Proveeduría del Instituto y se entregarán a las instancias solicitantes a través del formulario diseñado para tal fin. En caso que la reunión sea con funcionarios/as de distintas instancias del mismo Instituto deberá justificarse por la persona encargada de la actividad y quedará a criterio de la Coordinación Administrativa autorizarlos o no.

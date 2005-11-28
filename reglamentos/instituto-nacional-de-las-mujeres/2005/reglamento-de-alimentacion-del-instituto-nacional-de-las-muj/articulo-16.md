@@ -1,0 +1,1 @@
+Artículo 16.—Todas las instancias de Instituto que requieran de alimentos deben velar porque la cantidad solicitada sean las que correspondan para cada una de las actividades indicadas en el artículo tercero del presente Reglamento.
