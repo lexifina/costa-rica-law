@@ -1,0 +1,1 @@
+Artículo 18.—Participación del Ministerio Público. Dentro de la etapa de ejecución penal, el Ministerio Público actuará de conformidad con su respectiva ley orgánica y según la Ley de justicia penal juvenil, esta Ley y las demás disposiciones legales vigentes. Para ello, deberán nombrarse fiscales especializados en ejecución penal juvenil.

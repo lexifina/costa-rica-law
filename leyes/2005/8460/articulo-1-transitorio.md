@@ -1,0 +1,1 @@
+Transitorio I.—Para la puesta en marcha de las nuevas atribuciones que se le asignan a la Dirección General de Adaptación Social, en fiel cumplimiento de las nuevas funciones que se le asignan mediante la presente Ley, el Ministerio de Hacienda deberá tomar las previsiones necesarias en el momento de preparar la Ley de Presupuesto Nacional.

@@ -1,0 +1,1 @@
+Artículo 11.—Evolución del plan individual para cumplir la sanción. El plan de ejecución deberá mantenerse acorde con los resultados obtenidos y el desenvolvimiento de la persona joven sancionada. Por ello, deberá ser revisado por la Dirección General de Adaptación Social cada tres meses, como mínimo.

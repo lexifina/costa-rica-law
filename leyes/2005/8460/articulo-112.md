@@ -1,0 +1,1 @@
+Artículo 112.—Órganos competentes. Los órganos competentes para la aplicación del procedimiento disciplinario para las personas jóvenes, serán los establecidos en los reglamentos penitenciarios vigentes y estarán adecuados a la Ley de justicia penal juvenil.

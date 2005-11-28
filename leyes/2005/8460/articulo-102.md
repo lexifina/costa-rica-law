@@ -1,0 +1,1 @@
+Artículo 102.—Utilización de armas de fuego. La portación de armas de fuego, cuando se esté en contacto directo con las personas, será autorizada, en forma excepcional, cuando esté en riesgo la integridad física de estas y la seguridad institucional.

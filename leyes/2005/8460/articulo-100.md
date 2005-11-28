@@ -1,0 +1,1 @@
+Artículo 100.—Excepcionalidad del esposamiento para transporte y conducción. El transporte y la conducción de las personas jóvenes deberá realizarse sin utilizar esposas, salvo que resulte indispensable para su seguridad o la de terceros. Los conductores de reos deberán tener conocimientos o formación básica en materia penal juvenil.

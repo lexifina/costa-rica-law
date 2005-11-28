@@ -1,0 +1,1 @@
+Artículo 110.—Derecho de defensa. Toda persona joven tendrá el derecho de ejercer su defensa durante todo el proceso en el cual se le atribuya la comisión de una falta disciplinaria. Con tal objetivo, la persona joven podrá hacerse representar por un profesional en Derecho, costeado por la persona o, en su defecto, por un defensor público.

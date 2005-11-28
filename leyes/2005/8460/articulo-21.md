@@ -1,0 +1,11 @@
+Artículo 21.—Funciones de los órganos administrativos de la ejecución. La Dirección General de Adaptación Social será la entidad responsable de ejecutar las sanciones penales juveniles y tendrá las siguientes funciones:
+a) Elaborar el plan individual de ejecución de la sanción jurisdiccionalmente impuesta en cada caso concreto, y velar por el cumplimiento estricto de la sanción impuesta por el juez.
+b) Implementar proyectos y actividades en procura de cumplir los fines de las sanciones comprendidas en la Ley de justicia penal juvenil; en especial, fomentar en la persona joven su sentido de responsabilidad y una vida en comunidad, sin la comisión de delitos.
+c) Informar al juez de ejecución de las sanciones penales juveniles sobre cualquier obstáculo para el cumplimiento de las sanciones impuestas, en especial, de la falta de cooperación o el incumplimiento de deberes de los funcionarios públicos que participen de la ejecución de la sanción impuesta.
+d) Velar por el respeto de los derechos fundamentales de las personas jóvenes sancionadas e informar al juez de ejecución de las sanciones penales juveniles, de cualquier violación de sus derechos o del peligro de que estos sean afectados.
+e) Investigar las posibles faltas disciplinarias cometidas por las personas jóvenes que se encuentren cumpliendo una sanción penal juvenil e imponer las sanciones disciplinarias correspondientes.
+f) Comunicar, al juez de ejecución de las sanciones penales juveniles, con un mes de anticipación, la finalización del cumplimiento de la sanción ejecutada.
+g) Contar con un registro de las instituciones públicas y de las organizaciones no gubernamentales sin fines de lucro, que contribuyan, apoyen o ejecuten programas y/o proyectos para el cumplimiento de las sanciones penales juveniles.
+h) Autorizar y supervisar los programas que ejecuten las organizaciones no gubernamentales sin fines de lucro, para cumplir las sanciones penales juveniles no privativas de libertad.
+i) Dar seguimiento a las sanciones privativas de libertad, en las que se haya concedido el beneficio de ejecución condicional de la sanción de internamiento.
+j) Cumplir cualquier otra función que se le asignen en esta o en otras leyes.

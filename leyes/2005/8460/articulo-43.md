@@ -1,0 +1,1 @@
+Artículo 43.—Prohibición de visitar determinados lugares. La sanción de prohibición de visitar determinados lugares consiste en ordenarle, a la persona joven, que no asista a los lugares o establecimientos señalados en la Ley de justicia penal juvenil o los indicados por el juez penal juvenil, cuando resulten inconvenientes para su sano desarrollo.

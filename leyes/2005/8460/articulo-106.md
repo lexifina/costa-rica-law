@@ -1,0 +1,1 @@
+Artículo 106.—Cumplimiento de las medidas disciplinarias. Las medidas disciplinarias podrán cumplirse de inmediato, una vez firmes administrativamente; no obstante, podrán suspenderse a prueba por un término que no podrá exceder de dos meses.

@@ -1,0 +1,1 @@
+Artículo 75.—Personas jóvenes en detención provisional. Los principios y derechos establecidos en esta Ley se aplicarán a las personas jóvenes que se encuentren en detención provisional. Se respetarán las exigencias de la presunción de inocencia, la duración de la detención, la condición jurídica y cualquier otra circunstancia de las personas jóvenes.

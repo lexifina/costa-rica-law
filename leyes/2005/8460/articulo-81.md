@@ -1,0 +1,1 @@
+Artículo 81.—Derecho al reposo. Toda persona joven tendrá el derecho de disfrutar un descanso mínimo de ocho horas diarias, en condiciones básicas que respeten la dignidad humana. Salvo situaciones de carácter especial, no deberá interrumpirse ni perturbarse el sueño de las personas sancionadas.

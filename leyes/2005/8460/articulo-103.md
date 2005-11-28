@@ -1,0 +1,4 @@
+CAPÍTULO III
+Medidas disciplinarias
+Artículo 103.—Principio general. Todas las medidas y los procedimientos disciplinarios deberán contribuir a la seguridad y a una vida comunitaria ordenada, y ser compatibles con el respeto a la dignidad inherente de la persona joven. Toda sanción disciplinaria deberá aplicarse considerando los fines rectores de esta Ley, a efecto de infundir en la persona joven disciplina y respeto por sí misma, y por los derechos fundamentales de todas las personas.
+Estarán estrictamente prohibidas todas las medidas disciplinarias que constituyan un trato cruel, inhumano y degradante, incluso los castigos corporales y el aislamiento como castigo, así como cualquier otra sanción que pueda poner en peligro la salud física o mental de la persona. Ninguna persona joven privada de libertad podrá tener a su cargo funciones disciplinarias.
