@@ -1,0 +1,1 @@
+Transitorio II.—Al entrar en vigencia esta Ley, el procedimiento previsto en ella deberá aplicarse a todos los procesos pendientes, excepto los que se encuentren listos para dictar sentencia, los cuales seguirán tramitándose de conformidad con la legislación anterior.

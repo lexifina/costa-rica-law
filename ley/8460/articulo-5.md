@@ -1,0 +1,1 @@
+Artículo 5º—Principio de proporcionalidad e interés superior de la persona joven. En la ejecución de las sanciones penales juveniles, cuando proceda imponer una medida disciplinaria o cualquier otra disposición administrativa, deberá escogerse la que perjudique menos a la persona joven y sea acorde con la falta cometida.

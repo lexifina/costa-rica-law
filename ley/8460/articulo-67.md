@@ -1,0 +1,1 @@
+Artículo 67.—Actividades colectivas. Al elaborar el plan individual para el cumplimiento de la sanción, deberá procurarse la realización de actividades colectivas entre las personas privadas de libertad, para fomentar una convivencia más acorde con la vida en libertad.

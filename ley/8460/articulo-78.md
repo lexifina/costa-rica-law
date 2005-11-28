@@ -1,0 +1,1 @@
+Artículo 78.—Certificados de estudios. Los certificados o diplomas que acrediten la aprobación o culminación de los estudios, deberán ser extendidos en forma tal que en ellos no conste ni sea reconocible que las personas jóvenes han estado privadas de libertad.

@@ -1,0 +1,1 @@
+Artículo 89.—Pertenencias de la persona joven. A la persona joven se le deberá respetar el derecho de poseer objetos de valor afectivo y pertenencias personales, siempre que no se trate de objetos que pongan en peligro la seguridad del centro, o de objetos prohibidos por esta Ley y los reglamentos del centro de internamiento.
