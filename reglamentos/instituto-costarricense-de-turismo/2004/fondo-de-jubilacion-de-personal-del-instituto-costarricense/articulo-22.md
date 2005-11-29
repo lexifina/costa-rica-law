@@ -1,1 +1,0 @@
-Artículo 22.—Del quórum. La asistencia a las sesiones de la Junta Administradora de cuatro de sus miembros, constituye quórum y los acuerdos deben tomarse por mayoría de los miembros presentes. En caso de empate, después de una segunda votación, el presidente ejercerá el voto de calidad.

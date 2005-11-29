@@ -1,1 +1,0 @@
-Artículo 21.—De las sesiones. La Junta Administradora deberá reunirse en sesión ordinaria una vez al mes, en el lugar, día y hora que sus miembros determinen y, en sesión extraordinaria, las veces que sea convocada por escrito por el presidente, o en ausencia de este, por su vicepresidente o por el fiscal con el apoyo de tres de sus miembros.
