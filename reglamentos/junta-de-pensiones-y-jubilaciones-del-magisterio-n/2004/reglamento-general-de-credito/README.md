@@ -14,3 +14,4 @@ Reglamento General de Crédito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-07-13 | la propia norma |
+| 2 | 2005-11-30 | Reglamento 132 (2005-11-30) |
