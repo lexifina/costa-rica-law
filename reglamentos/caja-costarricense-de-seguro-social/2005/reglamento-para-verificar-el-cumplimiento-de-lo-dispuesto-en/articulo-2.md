@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El presente Reglamento regula el cumplimiento de la presentación o suscripción de garantías a favor de la Caja, derivadas de lo establecido en el artículo 13 de la Ley Nº 8131 "Ley de la Administración Financiera de la República y de Presupuestos Públicos".

@@ -1,0 +1,1 @@
+Artículo 5º—Monto de la garantía. El monto a garantizar es por un mínimo de ¢500.000,00 (quinientos mil colones). La Caja, según el puesto y responsabilidad del funcionario, podrá fijar razonablemente montos mayores; de igual manera podrá actualizar periódicamente dichas sumas.
