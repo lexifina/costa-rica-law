@@ -43,7 +43,10 @@ SUPERVISIÓN RECIBIDA SUPERVISIÓN EJERCIDA RESPONSABILIDADES
 Por actividades
 Por equipo, materiales y valores
 Por relaciones de trabajo
-CONDICIONES DE TRABAJO CONSECUENCIA DEL ERROR CARACTERÍSTICAS PERSONALES CONOCIMIENTOS BÁSICOS CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+CONDICIONES DE TRABAJO
+CONSECUENCIA DEL ERROR
+CARACTERÍSTICAS PERSONALES
+CONOCIMIENTOS BÁSICOS CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 A continuación, se ofrece una breve explicación de cada una de las partes utilizadas en el formato de las descripciones y especificaciones.
 NOMBRE DE LA CLASE
 Nombre breve de la descripción de los cargos, se indica de manera sintética la índole del trabajo incluido en ella.
@@ -84,8 +87,7 @@ ANÁLISIS: Separación y distinción de las partes de un todo hasta llegar a con
 ANÁLISIS DE PUESTOS: Estudio de los puestos para conocer las tareas, los deberes y responsabilidades relacionados con las exigencias físicas y mentales, herramientas, maquinaria y equipo utilizado, líneas de promoción, requisitos académicos, conocimientos, habilidades, experiencia, condiciones organizacionales y ambientales y su relación con otros puestos.
 ANÁLISIS OCUPACIONAL: Es el proceso sistemático y sistémico de recopilación y análisis de información relativa a los diversos aspectos de un puesto.
 CAPACITACIÓN: Proceso por medio del cual los empleados adquieren los conocimientos, las habilidades y destrezas para ejecutar con mayor eficacia y eficiencia las tareas que les corresponden, permitiéndoseles el desarrollo y la movilidad en la estructura ocupacional, conducente a facilitar la promoción económica y social del individuo en el ámbito laboral donde se desempeña y en la comunidad.
-CARACTERÍSTICAS PERSONALES: Habilidades, destrezas, conocimientos, licencias, autorizaciones, capacitación y otras características que deben poseer los funcionarios para desempeñar
-eficientemente un puesto.
+CARACTERÍSTICAS PERSONALES: Habilidades, destrezas, conocimientos, licencias, autorizaciones, capacitación y otras características que deben poseer los funcionarios para desempeñar eficientemente un puesto.
 CARGO: Denominación interna con que se conocen los puestos en una Institución.
 CARRERA ADMINISTRATIVA: Sistema que permite el ascenso desde los cargos de menor nivel hasta los de más alta jerarquía, por el sistema de méritos, estudios formales y experiencia; usualmente orientado hacia la profesionalización que hace un servidor de su empleo.
 CARRERA DE ENSEÑANZA SUPERIOR: Estudios cursados en instituciones de enseñanza superior, lo que incluye tanto universidades como instituciones reconocidas por el Estado.
@@ -150,56 +152,96 @@ SERIE DE CLASES: Conjunto de clases comprendidas en un mismo campo de trabajo y 
 SUPERVISIÓN; Aquella fase de la dirección que pretende una visión directa, inmediata, de las tareas asignadas a los individuos o grupos para asegurar su realización correcta y adecuada.
 TITULO DE CLASE: Nombre breve y oficial de una clase que indica de manera sintética la índole del trabajo incluido en ella.
 TRABAJADOR: Se define este concepto como aquella persona que ejecuta una actividad determinada en cualquier empresa y cuyos logros son intelectuales o físicos. El término trabajador alude a los conceptos de servidor público y privado, que desempeñan actividades para el logro de los objetivos de una organización.
-TRABAJO DE OFICTNA: Identifica aquellos cargos en los que se ejecutan tareas de oficina, secretaría y otros servicios administrativos de similar naturaleza como por ejemplo: preparar y tramitar documentos y correspondencia; recibo y transmisión de toda clase de mensajes verbales o escritos;
-etc. Todas estas labores son necesarias e importantes como apoyo para los
-trabajos de toda índole.
+TRABAJO DE OFICTNA: Identifica aquellos cargos en los que se ejecutan tareas de oficina, secretaría y otros servicios administrativos de similar naturaleza como por ejemplo: preparar y tramitar documentos y correspondencia; recibo y transmisión de toda clase de mensajes verbales o escritos; etc. Todas estas labores son necesarias e importantes como apoyo para los trabajos de toda índole.
 TRANSFERENCIA DE LA CAPACITACIÓN: Grado en que la capacitación es relevante respecto a las condiciones reales de trabajo, determinado por la prontitud con que el empleado transfiere el aprendizaje a su puesto.
 UBICACIÓN: Proceso de instalar a un empleado en un puesto nuevo o diferente.
 USUARIO: Es la persona, unidad, departamento o institución que está solicitando determinado producto/servicio. Se refiere tanto al usuario interno (de la propia empresa o institución) como al usuario externo (servidores de otras instituciones o público en general).
-AGENTE DE SEGURIDAD
-Objetivo del trabajo: Dar apoyo en los servicios de seguridad, vigilancia e investigación, en la Asamblea Legislativa, mediante la ejecución de labores variadas de esta índole donde se requiere la aplicación de experiencia específica.
-Ubicación:
-En esta clase se ubican los puestos de seguridad de la Sección de Seguridad del Departamento de Servicios Generales.
-Actividades generales:
+AGENTE DE SEGURIDAD (nivel A y B)
+Objetivo del trabajo: Dar protección, seguridad y vigilancia a diputados y diputadas, personal administrativo y de fracción, y visitantes de la Asamblea Legislativa, así como a los inmuebles y bienes de la Institución mediante la ejecución de labores variadas de esta índole que requieren de experiencia específica.
+Ubicación: En esta clase se ubican los puestos de seguridad de la Sección de Seguridad del Departamento de Servicios Generales.
+Actividades generales: Dar protección, seguridad y vigilancia al personal administrativo y de fracciones políticas dentro de la Institución y a los(as) diputados(as) dentro y fuera de la Institución si así lo requieran.
 Realizar labores de vigilancia de los edificios, vehículos, equipos, materiales y otros bienes muebles e inmuebles de la Asamblea Legislativa.
 Velar por la seguridad de los diputados, funcionarios y visitantes de la Asamblea Legislativa.
 Vigilar las entradas de las personas a los edificios de la Asamblea Legislativa, solicitar la identificación a los visitantes y registrar los datos en el cuaderno de control respectivo; y revisar los artículos, equipo y materiales que ingresan o salen de los edificios comparándolos con la boleta de autorización respectiva.
 Evitar la entrada de personal no autorizado, durante las horas restringidas e inspeccionar periódicamente los edificios y terrenos circundantes a la Asamblea Legislativa, revisar las puertas, ventanas y verjas para asegurarse que estén debidamente cerradas.
 Brindar información al público sobre la ubicación de edificios, oficinas y localización de funcionarios.
 Reportar las irregularidades observadas durante el turno de trabajo y mantener informado al superior sobre los asuntos relacionados con la actividad.
+Formar parte de la Comisión de Seguridad y las brigadas de emergencia como lo establece el Plan de Emergencia Institucional.
 Realizar labores de investigación cuando el jefe se lo pida.
+Respetar los procedimientos de cambio de rol, en cuanto al traspaso de armas y activos del puesto de seguridad, consignándolo en la respectiva bitácora.
 Rendir declaración cuando el caso lo exija.
-Sustituir a empleados de mayor nivel por vacaciones, permisos o enfermedad.
 Ejecutar otras tareas propias del cargo.
 CONDICIONES ORGANIZACIONALES Y AMBIENTALES
 Supervisión ejercida: No ejerce supervisión.
 Supervisión recibida: Trabaja siguiendo normas establecidas e instrucciones precisas, en lo concerniente a horarios, turnos de guardia, reglas de orden disciplinario, presentación personal y modalidad del trabajo. Su labor es supervisada y evaluada por medio de la apreciación de los resultados obtenidos y por el cumplimiento en su labor.
 RESPONSABILIDAD
-Por actividades
-Debe mantenerse atento durante el turno de trabajo, para cumplir a cabalidad con las tareas de vigilancia que le han sido asignadas. Puede conocer asuntos confidenciales sobre los cuales debe guardar la debida discreción.
-Por equipo, materiales y valores
-Es responsable por el adecuado empleo y por mantener en óptimo estado de funcionamiento y aseo las armas y el equipo que usa en su trabajo.
-Por relaciones de Trabajo
-La actividad origina relaciones constantes con superiores, compañeros, representantes de Instituciones del Estado y público en general, las cuales deben ser atendidas con tacto y discreción.
+Por actividades. Debe mantenerse atento durante el turno de trabajo, para cumplir a cabalidad con las tareas de: protección, seguridad y vigilancia que le han sido asignadas. Puede conocer asuntos confidenciales sobre los cuales debe guardar la debida discreción.
+Por equipo, materiales y valores. Es responsable por el adecuado empleo y por mantener en óptimo estado de funcionamiento y aseo las armas y el equipo que usa en su trabajo.
+Por relaciones de trabajo. La actividad origina relaciones constantes con superiores, compañeros, representantes de Instituciones del Estado y público en general, las cuales deben ser atendidas con tacto y discreción.
 CONDICIONES DE TRABAJO
 En el ejercicio de su función está expuesto a situaciones que pueden poner en peligro su integridad física. Lo que indica que se requiere de una buena condición física y mental.
 Jornada: Le corresponde laborar en jornadas diurnas, mixtas y nocturnas o sin límite de horario y permanecer bajo concentración cuando la circunstancia lo exige.
 CONSECUENCIA DEL ERROR
 Los errores cometidos pueden causar pérdidas, daños o atrasos de alguna consideración y poner en peligro la integridad física de compañeros y otras personas, por lo que las labores deben ser realizadas con sumo cuidado y precisión.
-CARACTERÍSTICAS PERSONALES.
-Debe observar discreción con respecto a los asuntos que se le encomiendan. Requiere habilidad para tratar en forma cortés y satisfactoria con el público. Buena condición física. No poseer antecedentes penales o problemas psicológicos que lo inhabiliten para el ejercicio del cargo. Destreza en el manejo de armas de fuego. Buena presentación personal. Iniciativa y habilidad para detectar detalles. Capacidad para resolver problemas imprevistos.
+CARACTERÍSTICAS PERSONALES
+Debe observar discreción con respecto a los asuntos que se le encomiendan. Requiere habilidad para tratar en forma cortés y respetuosa a los(as) diputados(as), personal legislativo y público en general. Buena condición física. No poseer antecedentes penales o problemas psicológicos que lo inhabiliten para el ejercicio del cargo. Destreza en el manejo de armas de fuego. Buena presentación personal. Iniciativa y habilidad para detectar detalles. Capacidad para resolver problemas imprevistos.
 CONOCIMIENTOS BÁSICOS
-Manejo de armas de fuego Aspectos técnicos en materia de Seguridad y Vigilancia
+Manejo de armas de fuego.
+Aspectos técnicos en materia de Seguridad y Vigilancia
 CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
-Título de Bachiller en Educación Media.
-Capacitación en materia de Seguridad y Vigilancia.
-Dos años de experiencia en labores relacionadas con el puesto.
-Poseer el permiso para portar armas de fuego.
-o
-Tercer ciclo aprobado de la Enseñanza General Básica.
-Tres años de experiencia en labores relacionadas con el cargo.
-Capacitación en materia de Seguridad y Vigilancia.
-Poseer el permiso para portar armas de fuego.
+Nivel B:
+Título de bachiller en Educación Media.
+Experiencia mínima de dos años en labores relacionados con el área de actividad en la Asamblea Legislativa.
+Capacitación en materia en Seguridad y Vigilancia.
+Destreza y pericia en el manejo de armas de fuego.
+Curso de protección de dignatarios.
+Curso teórico práctico de armas de fuego.
+Nivel A:
+Título de bachiller en Educación Media.
+Experiencia mínima de dos años en labores relacionadas con el cargo.
+Destreza y pericia en el manejo de armas de fuego.
+Curso teórico práctico de armas de fuego.
+SUPERVISOR DE TURNO-SEGURIDAD
+Objetivo del trabajo: Colaborar con la Jefatura de la Sección de Seguridad, mediante la coordinación y supervisión de un grupo de Agentes de Seguridad, ejecutando labores de organización, asignación y control de trabajo en los roles respectivos.
+Ubicación: Sección de Seguridad.
+Actividades generales: Colaborar con la Jefatura de Sección en el establecimiento de medidas tendientes a fortalecer la Institución en el campo de la protección, seguridad y vigilancia.
+Coordinar, supervisar, controlar el trabajo del grupo de agentes de seguridad en los roles correspondientes.
+Colaborar con la Jefatura en la confección de turnos de trabajo.
+Girar las instrucciones necesarias al grupo a su cargo, para atender situaciones de emergencia.
+Reportar ante el Superior, cualquier ilícito que ocurra en las plantas físicas de la Asamblea Legislativa en el turno correspondiente.
+Orientar al grupo a su cargo, sobre los métodos y procedimientos para la ejecución del trabajo.
+Controlar el uso y buen mantenimiento del equipo, mobiliario y materiales asignados al grupo a su cargo.
+Colaborar en la atención y resolución de consultas que presenten diputados y público en general relacionado con el área de actividad.
+Le puede corresponder sustituir en sus ausencias temporales al Jefe o Subjefe de la Sección de Seguridad.
+Realizar cualquier otra función relacionada con el cargo.
+Actividades específicas: Coordinar el cumplimiento de las instrucciones emanadas de los niveles superiores y reportar las irregularidades ocurridas y observadas.
+Preparar y presentar reportes sobre las actividades realizadas, irregularidades observadas y hacer las recomendaciones pertinentes.
+Confeccionar los turnos de trabajo y determinar la ubicación física de los funcionarios de seguridad y coordinar las actividades de vigilancia en los edificios de la Asamblea Legislativa y las investigaciones ante situaciones especiales y de peligrosidad.
+CONDICIONES ORGANIZACIONALES Y AMBIENTALES
+Supervisión ejercida: Supervisar a los funcionarios del Grupo a su cargo, orientarlos en la ejecución de trabajos y velar por su disciplina y eficiencia.
+Supervisión recibida: Trabaja con independencia, siguiendo instrucciones generales y normas establecidas de parte de la Jefatura de Seguridad del Departamento de Servicios Generales o de otros superiores y las políticas institucionales en materia de seguridad. Su labor es supervisada y evaluada por medio del análisis de los informes que presenta, la apreciación de la calidad del trabajo realizado y los resultados obtenidos.
+RESPONSABILIDAD
+Por actividades. Es responsable de la organización y supervisión del trabajo del grupo a su cargo y por el eficiente, puntual y oportuno cumplimiento de las actividades y servicios que le asignen.
+Por relaciones de trabajo. La actividad origina relaciones constantes con diputados, superiores, subalternos y público en general, las cuales deben ser atendidas con tacto y discreción. Por la naturaleza del puesto le corresponde conocer asuntos confidenciales sobre los cuales debe guardar discreción.
+Por equipo y materiales. Es responsable por el adecuado empleo y mantenimiento de los equipos, mobiliario, útiles y materiales asignados del grupo a su cargo.
+CONDICIONES DE TRABAJO
+Esfuerzo mental: La actividad requiere algún esfuerzo físico y mental. Debe someterse a los programas de capacitación requeridos para el desempeño del puesto.
+Jornada: Le corresponde trabajar los turnos que se le asignen al grupo de Agentes de Seguridad y también le puede corresponder trabajar sin límite de jornada, y trasladarse a diferentes lugares del país en caso de actividades especiales de los legisladores.
+CONSECUENCIAS DEL ERROR
+Los errores cometidos pueden causar pérdidas, daños o atrasos de consideración, por lo que las labores deben ser realizadas con cuidado y precisión, ya que también se puede poner en peligro la integridad física de los diputados, funcionarios y visitantes de la Institución.
+CARACTERÍSTICAS PERSONALES
+Debe observar discreción con respecto a los asuntos que se le encomiendan o de los que tiene conocimiento, por la relación tan estrecha que se mantiene con los diputados y los asuntos que se tratan en las sesiones de fracción. Requiere habilidad para tratar en forma cortes y satisfactoria con el público. Buena presentación personal.
+CONOCIMIENTOS BÁSICOS
+Capacitación en el campo de la seguridad.
+CONOCIMIENTOS Y EXPERIENCIA REQUERIDA,
+Título de bachiller en Educación Media.
+Experiencia mínima de tres años en labores relacionados con el área de actividad en la Asamblea Legislativa.
+Experiencia mínima de seis meses en el manejo y supervisión de grupos de seguridad.
+Capacitación en materia en Seguridad y Vigilancia.
+Destreza y pericia en el manejo de armas de fuego.
+Curso de protección de dignatarios.
+Curso teórico práctico de armas de fuego.
+(Así reformado mediante acuerdo N° 32 tomado en sesión N° 186 celebrada el 30 de noviembre del 2005).
 ASESOR (nivel 1 y 2)
 Objetivo del trabajo: Asesorar a las jefaturas departamentales y a las altas jerarquías institucionales en la ejecución de tareas de un alto grado de dificultad y responsabilidad propias del área de especialidad.
 Ubicación: En diferentes departamentos.
@@ -348,7 +390,7 @@ ASISTENTE DE DIRECTOR DE DIVISIÓN (Niveles A y B)
 Objetivo del trabajo: Ejecución de labores asistenciales de orden técnico administrativo en la resolución, organización, preparación de material diverso en la Direcciones de División para su revisión posterior y toma de decisiones.
 Ubicación: Dirección de División Administrativa o División Legislativa.
 ACTIVIDADES GENERALES:
-Niveles A v B
+Niveles A y B
 Atender asuntos administrativos o profesionales en los que interviene el despacho del Director (a) de División.
 Realiza el seguimiento y control de directrices indicadas por el Director (a) de División.
 Coordinar y dar seguimiento a asuntos del despacho del Director (a) de
@@ -385,7 +427,8 @@ CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Nivel A:
 Bachillerato universitario de una carrera que faculte para el desempeño del cargo,
 Tres años de experiencia profesional en la ejecución de labores relacionadas con el cargo.
-Un año de experiencia en labores de supervisión de personal. Requisito Legal:
+Un año de experiencia en labores de supervisión de personal.
+Requisito Legal:
 Incorporación al Colegio respectivo.
 Nivel B:
 Licenciatura en una carrera universitaria que faculte para el desempeño del cargo.
@@ -641,7 +684,7 @@ Es responsable por el uso óptimo y racional del equipo que se suministra para e
 CONDICIONES DE TRABAJO
 Le corresponde laborar sin límite de jornada, trabajar bajo presión y en estricta confidencialidad y trasladarse a distintos lugares del país o fue de éste, a solicitud de los diputados.
 CONSECUENCIAS DEL ERROR
-Los errores pueden obstaculizar el cumplimiento de los objetivos institucionales, pérdidas de consideración, si no se establecen 1< controles y procedimientos adecuados.
+Los errores pueden obstaculizar el cumplimiento de los objetivos institucionales, pérdidas de consideración, si no se establecen el controles y procedimientos adecuados.
 CARACTERÍSTICAS PERSONALES
 Liderazgo, facilidad de palabra, extroversión, don de gentes, buen. relaciones humanas, iniciativa, capacidad negociadora, capacidad para supervisar personal, capacidad para trabajar bajo presión y para trabajo y equipo.
 CONOCIMIENTOS BÁSICOS
@@ -1041,7 +1084,8 @@ Cirujano Dentista
 Cuatro años de experiencia en labores relacionadas con su especialidad
 Requisito Legal:
 Incorporado al Colegio Profesional respectivo
-PROFESIONAL (Niveles A, B, C, D y E) Niveles A, B y C
+PROFESIONAL (Niveles A, B, C, D y E)
+Niveles A, B y C
 Objetivo del trabajo: Facilitar el cumplimiento y desarrollo de los planes y programas del proceso de trabajo en el que se ubican, mediante la ejecución de labores profesionales orientadas a brindar, asesorar, ejecutar y controlar las diferentes actividades; para la cual requiere la aplicación de principios teóricos y prácticos propios de una disciplina atinente al cargo y adquiridos en una institución de enseñanza superior.
 Ubicación: Los cargos contemplados en estos niveles están ubicados en las diferentes áreas y procesos de la Asamblea Legislativa.
 Actividades generales:
@@ -1200,8 +1244,7 @@ Aplicar las normas, reglamentos y procedimientos o disposiciones técnicas y adm
 Elaborar informes; revisar informes, instructivos, manuales, reglamentos, etc; resolver problemas; evaluar programas, apoyar administrativamente a las jefaturas.
 Realizar otras tareas propias del cargo.
 RELACIONES PÚBLICAS Y PRENSA: Colaborar en la planificación, supervisión y control de eventos de tipo oficial, cultural o social, confeccionar el orden del día o agenda de actividades para tales efectos, invitar a la personalidades que el ceremonial protocolar demanda; organizar y atender otros actos ceremoniales.
-Coordinar con las diferentes unidades de la Institución aspectos tales como: diseñar el programa de la actividad, diagramas de las invitaciones, coordinar aspectos de limpieza, arreglo del salón, disposición de sillas, medidas de seguridad, ingreso de los invitados, compra de la alimentación
-y otras.
+Coordinar con las diferentes unidades de la Institución aspectos tales como: diseñar el programa de la actividad, diagramas de las invitaciones, coordinar aspectos de limpieza, arreglo del salón, disposición de sillas, medidas de seguridad, ingreso de los invitados, compra de la alimentación y otras.
 Mantener información actualizada sobre los perfiles de los países del mundo y participar en la organización y desarrollo de eventos.
 Mantener coordinación con los periodistas para suministrarles documentos escritor, audios, fotografías, tomas de vídeo o copias de estos, relacionados con las diferentes actividades en que participa la Asamblea Legislativa.
 Mantener actualizado el Directorio Diplomático de las embajadas acreditadas en el extranjero y de las embajadas de otros países acreditados en Costa Rica.
@@ -1403,60 +1446,99 @@ Experiencia mínima de dos años en supervisión de personal a nivel profesional
 Experiencia mínima de dos años en labores de su especialidad profesional a nivel de Licenciatura en la Asamblea Legislativa.
 Requisito Legal:
 Incorporación al Colegio respectivo.
-SUBJEFE DE SECCIÓN
-Objetivo del trabajo: Colaborar con el jefe de Sección mediante la ejecución de labores de organización, asignación y control del trabajo que realiza el personal.
-Ubicación: Sección de Seguridad, Sección de Ujieres del Departamento de Servicios Generales.
-Actividades generales:
-Apoyar la gestión del jefe inmediato y colaborar en el establecimiento de medidas tendientes a fortalecer la institución.
+SUBJEFE DE SEGURIDAD
+Objetivo del trabajo: Colaborar con el jefe de la Sección de Seguridad mediante la ejecución de labores de organización, asignación y control del trabajo que realiza el personal.
+Ubicación. Sección de Seguridad del Departamento de Servicios Generales.
+Actividades generales. Colaborar en el planeamiento, dirección, supervisión, control y ejecución de las políticas que en materia de protección, seguridad y vigilancia se establezcan en la Institución.
+Colaborar en el cumplimiento de las instrucciones emanadas de los niveles superiores y se reporten las irregularidades ocurridas y observadas.
+Colaborar en la preparación de reportes sobre las actividades realizadas, irregularidades observadas y hacer las recomendaciones pertinentes.
+Colaborar con la confección de los turnos de trabajo y determinar la ubicación física de los funcionarios de seguridad y coordinar las actividades de vigilancia en los edificios de la Asamblea Legislativa y las investigaciones ante situaciones especiales y de peligrosidad.
+Colaborar en la preparación de reportes sobre las actividades realizadas, irregularidades observadas y hacer las recomendaciones pertinentes.
+Colaborar con la jefatura para establecer medidas de seguridad tanto dentro, como fuera de la institución, en caso de manifestaciones o huelgas que puedan poner en peligro la integridad de la Institución y de los que laboran en ella.
+Colaborar con la jefatura en el control disciplinario del personal de seguridad.
+Colaborar en la supervisión de todo lo relacionado con protección, seguridad y vigilancia a diputados(as), personal administrativo, de fracción y visitantes de la Asamblea Legislativa.
+Colaborar en la supervisión de seguridad y vigilancia de las instalaciones y bienes de la Institución.
+Colaborar con el control del uso y buen mantenimiento de los equipos, mobiliario, materiales y suministros de limpieza.
+Colaborar en la atención y resolución de las consultas que presentan los superiores, diputados y público en general, relacionadas con la actividad a su cargo.
+Sustituir al jefe en sus ausencias temporales adquiriendo la potestad inherente al cargo.
+Realizar otras funciones relacionadas con el cargo.
+CONDICIONES ORGANIZACIONALES Y AMBIENTALES
+Supervisión ejercida: Colaborar en la supervisión de los funcionarios de la sección y los orienta en la ejecución de los trabajos y vela por su disciplina y eficiencia.
+Supervisión recibida: Trabaja con independencia, siguiendo instrucciones generales y normas establecidas de parte de la jefatura o del Director del Departamento de Servicios Generales. Su labor es supervisada y evaluada por medio del análisis de los informes que presenta, la apreciación de la calidad del trabajo realizado y los resultados obtenidos.
+RESPONSABILIDAD
+Por actividades. Es responsable de participar en la organización y supervisión del trabajo de la Sección y por el eficiente, puntual y oportuno cumplimiento de las actividades y servicios que le asignen.
+Por equipo, materiales. Es responsable junto con el jefe por el adecuado empleo y mantenimiento de los equipos, útiles y materiales asignados a la Sección.
+Por relaciones de trabajo. La actividad origina relaciones constantes con diputados, superiores, subalternos y público en general, las cuales deben ser atendidas con tacto y discreción. Puede conocer asuntos confidenciales sobre los cuales debe guardar discreción.
+CONDICIONES DE TRABAJO
+Esfuerzo mental. La actividad requiere algún esfuerzo físico y mental. Debe someterse a los programas de capacitación requeridos para el desempeño del puesto.
+Jornada: Le puede corresponder trabajar sin límite de jornada, y trasladarse a diferentes lugares del país en caso de actividades especiales de los legisladores.
+CONSECUENCIAS DEL ERROR
+Los errores cometidos pueden causar pérdidas, daños o atrasos de consideración, por lo que las labores deben ser realizadas con cuidado y precisión.
+CARACTERÍSTICAS PERSONALES
+Debe observar discreción con respecto a los asuntos que se le encomiendan o de los que tiene conocimiento. Requiere habilidad para tratar en forma cortes y satisfactoria con el público. Buena presentación personal, habilidad para resolver situaciones imprevistas.
+CONOCIMIENTOS Y EXPERIENCIA REQUERIDA EN SEGURIDAD
+Título de Bachiller en Educación Media.
+Experiencia mínima de cuatro años en labores relacionados con el área de actividad en la Asamblea Legislativa.
+Experiencia mínima de un año en el manejo y supervisión de grupos de seguridad.
+Capacitación en materia en Seguridad y Vigilancia.
+Destreza y pericia en el manejo de armas de fuego.
+Curso de protección de dignatarios.
+Curso teórico práctico de armas de fuego.
+SUBJEFE DE UJIERES
+Objetivo del trabajo: Colaborar con el jefe de la Sección de Ujieres mediante la ejecución de labores de organización, asignación y control del trabajo que realiza el personal.
+Ubicación: Sección de Ujieres del Departamento de Servicios Generales.
+Actividades generales: Apoyar la gestión del jefe inmediato y colaborar en el establecimiento de medidas tendientes a fortalecer la institución.
 Colaborar en la asignación, coordinación, supervisión y control del trabajo del personal a cargo.
-Colaborar con la confección de turnos de trabajo y de ubicación física del personal, en ausencia del jefe.
+Colaborar con la ubicación física del personal, en ausencia del jefe.
 Girar instrucciones necesarias para atender situaciones de emergencia en el caso de que se requiera.
 Reportar ante el superior, cualquier ilícito que ocurra en las plantas físicas de la Asamblea Legislativa.
-Colaborar con el control del uso y buen mantenimiento de los equipos, mobiliario y materiales suministros de limpieza.
+Colaborar con el control del uso y buen mantenimiento de los equipos, mobiliario, materiales y suministros de limpieza.
 Colaborar en la orientación a los subalternos sobre los métodos y procedimientos para la ejecución del trabajo.
 Colaborar en la atención y resolución de las consultas que presentan los superiores, diputados y público en general, relacionadas con la actividad a su cargo.
 Colaborar en la revisión de la documentación que debe tener cada una de las curules antes del inicio de las sesiones del Plenario.
-Sustituir al jefe en sus ausencias temporales adquiriendo las potestad inherente al cargo.
-Realizar otras funciones relacionadas con el cargo.
-Actividades específicas :
-Seguridad: Colaborar en el cumplimiento de las instrucciones emanadas de los niveles superiores y se reporten las irregularidades ocurridas y observadas.
-Colaborar en la preparación de reportes sobre las actividades realizadas, irregularidades observadas y hacer las recomendaciones pertinentes.
-Colaborar con la confección de los turnos de trabajo y determinar la ubicación física de los funcionarios de seguridad y coordinar las actividades de vigilancia en los edificios de la Asamblea Legislativa y las investigaciones ante situaciones especiales y de peligrosidad.
-Realizar otras funciones relacionadas con el cargo.
-Ujieres: Colaborar con la confección de los turnos de trabajo y de ubicación física de los Ujieres para la limpieza de los edificios de la Asamblea Legislativa y para la atención a los señores Diputados en
-Plenario, Comisiones y otras actividades.
+Sustituir al jefe en sus ausencias temporales adquiriendo la potestad inherente al cargo.
+Colaborar con la confección de los turnos de trabajo y de ubicación física de los Ujieres para la limpieza de los edificios de la Asamblea Legislativa y para la atención a los señores Diputados en Plenario, Comisiones y otras actividades.
 Colaborar con el control del uso y buen mantenimiento de los suministros de limpieza y mantener bajo custodia el mobiliario y equipo que se utiliza para las actividades sociales y de trabajo que se realizan en la Asamblea Legislativa.
 Colaborar en la verificación de que las curules de los señores diputados cuenten con los documentos requeridos durante el desarrollo de las sesiones plenarias.
 Realizar otras funciones relacionadas con el cargo.
 CONDICIONES ORGANIZACIONALES Y AMBIENTALES
 Supervisión ejercida: Colaborar en la supervisión de los funcionarios de la sección y los orienta en la ejecución de los trabajos y vela por su disciplina y eficiencia.
-Supervisión recibida: Trabaja con independencia, siguiendo instrucciones generales y normas establecidas de parte de la jefatura o del Director del departamento de Servicios Generales. Su labor es supervisada y evaluada por medio del análisis de los informes que presenta, la apreciación de la calidad del trabajo realizado y los resultados obtenidos.
+Supervisión recibida: Trabaja con independencia, siguiendo instrucciones generales y normas establecidas de parte de la jefatura o del Director del Departamento de Servicios Generales. Su labor es supervisada y evaluada por medio del análisis de los informes que presenta, la apreciación de la calidad del trabajo realizado y los resultados obtenidos.
 RESPONSABILIDAD
-Por actividades
-Es responsable de participar en la organización y supervisión del trabajo de la Sección y por el eficiente, puntual y oportuno cumplimiento de las actividades y servicios que le asignen.
-Por equipo, materiales
-Es responsable junto con el jefe por el adecuado empleo y mantenimiento de los equipos, útiles y materiales asignados a la Sección.
-Por relaciones de trabajo
-La actividad origina relaciones constantes con diputados, superiores, subalternos y público en general, las cuales deben ser atendidas con tacto y discreción. Puede conocer asuntos confidenciales sobre los cuales debe guardar discreción.
+Por actividades. Es responsable de participar en la organización y supervisión del trabajo de la Sección y por el eficiente, puntual y oportuno cumplimiento de las actividades y servicios que le asignen.
+Por equipo, materiales. Es responsable junto con el jefe por el adecuado empleo y mantenimiento de los equipos, útiles y materiales asignados a la Sección.
+Por relaciones de trabajo. La actividad origina relaciones constantes con diputados, superiores, subalternos y público en general, las cuales deben ser atendidas con tacto y discreción. Puede conocer asuntos confidenciales sobre los cuales debe guardar discreción.
 CONDICIONES DE TRABAJO
-Esfuerzo mental:
-La actividad requiere algún esfuerzo físico y mental. Debe someterse a los programas de capacitación requeridos para el desempeño del puesto.
-Jornada:
-Le puede corresponder trabajar sin límite de jornada, y trasladarse a diferentes lugares del país en caso de actividades especiales de los legisladores.
+Esfuerzo mental: La actividad requiere algún esfuerzo físico y mental. Debe someterse a los programas de capacitación requeridos para el desempeño del puesto.
+Jornada: Le puede corresponder trabajar sin límite de jornada, y trasladarse a diferentes lugares del país en caso de actividades especiales de los legisladores.
 CONSECUENCIAS DEL ERROR
 Los errores cometidos pueden causar pérdidas, daños o atrasos de consideración, por lo que las labores deben ser realizadas con cuidado y precisión.
 CARACTERÍSTICAS PERSONALES
-Debe observar discreción con respecto a los asuntos que se le encomiendan o de los que tiene conocimiento. Requiere habilidad para tratar en forma cortés y satisfactoria con el público. Buena presentación personal, habilidad para resolver situaciones imprevistas.
+Debe observar discreción con respecto a los asuntos que se le encomiendan o de los que tiene conocimiento. Requiere habilidad para tratar en forma cortes y satisfactoria con el público. Buena presentación personal, habilidad para resolver situaciones imprevistas.
 CONOCIMIENTOS BÁSICOS
 Cursos de capacitación en el campo de la actividad
 CONOCIMIENTO Y EXPERIENCIA REQUERIDA
-Segundo año aprobado de una carrera universitaria que faculte para el desempeño del cargo.
-Un año de experiencia en labores relacionadas con el cargo en la Asamblea Legislativa.
-Un año de experiencia en supervisión de personal.
-o
 Título de Bachiller en Educación Media.
-Cuatro años de experiencia en labores relacionadas con el cargo en la Asamblea Legislativa.
-Un año de experiencia en supervisión de personal.
+Experiencia mínima de un año en labores relacionadas con el cargo desarrollada en la Asamblea Legislativa.
+Experiencia mínima de un año en el manejo y supervisión de personal.
+Asimismo se incluye en la clase de Jefe de Área, las siguientes actividades específicas en materia de seguridad:
+Planear, dirigir, supervisar, coordinar y ejecutar las políticas que en materia de protección, seguridad y vigilancia establezca la Institución, así como todo lo referente a la organización interna y actuación administrativa.
+Coordinar la supervisión de todo lo relacionado con protección, seguridad y vigilancia a diputados(as), personal administrativo y de fracción y visitantes de la Asamblea Legislativa.
+Coordinar la supervisión de la seguridad y vigilancia a las instalaciones y bienes de la Institución mediante la ejecución de labores variadas.
+Emanar directrices a los supervisores de turno seguridad y agentes de seguridad, relacionados con los planes de operación de seguridad en la Institución.
+Velar porque se cumplan las instrucciones emanadas de los niveles superiores y se reporten las irregularidades ocurridas y observadas.
+Preparar y presentar reportes sobre las actividades realizadas, irregularidades observadas y hacer las recomendaciones pertinentes.
+Confeccionar los turnos de trabajo y determinar la ubicación física de los funcionarios de seguridad y coordinar las actividades de vigilancia en los edificios de la Asamblea Legislativa y las investigaciones ante situaciones especiales y de peligrosidad.
+Coordinar con los entes pertinentes para establecer medidas de seguridad tanto dentro, como fuera de la Institución, en caso de manifestaciones o huelgas que puedan poner en peligro la integridad de la Institución y los que laboran en ella.
+Establecer las estrategias necesarias de vigilancia para contrarrestar los daños ocasionados por personas ajenas a la Institución, en lugares y horas determinados.
+Ejercer la autoridad disciplinaria sobre todo el personal de la Unidad de Seguridad.
+Coordinar con el Departamento de Recursos Humanos, en el nombramiento del personal de seguridad, procurando que cumplan con los requisitos establecidos.
+Promover la capacitación técnica del personal de la Unidad.
+Ser parte activa del Plan de Emergencia Institucional.
+Colaborar con la Dirección de Departamento en el desarrollo y ejecución de los planes anuales y operativos de la Unidad.
+Velar porque todas las normas de control interno, dictadas por la administración y órgano competentes sean aplicadas conforme a lo reglamentado.
+Realizar todas las gestiones administrativas y operativas propias de la Unidad.
+(Así reformado mediante sesión N°186 celebrada el 30 de noviembre del 2005).
 TÉCNICO ESPECIALISTA (niveles A. B. C y D)
 Objetivo del trabajo: Facilitar el cumplimiento de planes y programas del proceso de trabajo mediante la ejecución de labores técnicas variadas, para lo que se requiere la aplicación de principios teóricos y prácticos propios de una disciplina o área determinada de conocimientos.
 Ubicación: Los cargos de esta clase se ubican en los siguientes departamentos: Proveeduría, Archivo, Comisiones, Relaciones Públicas, Financiero, Biblioteca, Servicios Generales, Legal, Servicios Parlamentarios, Servicios de Salud, Recursos Humanos, Unidad de Presupuesto, Informática, Secretaría del Directorio, Servicios Parlamentarios. Servicios Técnicos.
@@ -1565,8 +1647,7 @@ Atender al público que se apersona a las diferentes actividades, lo que implica
 Coordinar con otros Departamentos de la Asamblea Legislativa, asuntos relacionados con las actividades organizadas (p.e. suministro de refrigerios con el Departamento de Proveeduría y Servicios Generales, con la Comisión Especial de Relaciones Internacionales, asuntos relativos al recibimiento de delegaciones).
 Mantener actualizado un listado con la información básica de cada uno de los diputados (p.e. nombre de la fracción a que pertenecen, provincia que representan, nombres de los miembros del Directorio Legislativo y teléfono, así como las listas de los miembros de los demás poderes e instituciones del Estado.)
 Confeccionar las credenciales de los Diputados, para lo cual debe desplazarse al Ministerio de Gobernación, Ministerio de Obras Públicas y Transporte y Ministerio de Seguridad Pública para realizar los trámites pertinentes.
-Colaborar en la atención de los funcionarios de los diferentes medios de comunicación colectiva que demanden información de interés público y dar seguimiento a las informaciones que ofrecen estos medios de comunicación, sobre el quehacer legislativo y hacerla del conocimiento de
-los diputados.
+Colaborar en la atención de los funcionarios de los diferentes medios de comunicación colectiva que demanden información de interés público y dar seguimiento a las informaciones que ofrecen estos medios de comunicación, sobre el quehacer legislativo y hacerla del conocimiento de los diputados.
 Brindar asistencia en el diseño y elaboración de material gráfico para conferencia y otros eventos.
 Colaborar en la exposición de materiales diversos, tales como pinturas, esculturas, material histórico, entre otros, determinar si las muestras ofrecidas para exposición reúnen las condiciones de calidad necesaria.
 Recomendar, controlar y supervisar la restauración de obras artísticas de la Asamblea Legislativa y sus edificios.
