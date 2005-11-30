@@ -1,0 +1,1 @@
+Artículo 20.—El Fiscal de Junta Directiva podrá solicitar informes de actividades y del cumplimiento del Programa y velará por que la Comisión y el Programa se ajusten a lo señalado por el presente Reglamento Interno.

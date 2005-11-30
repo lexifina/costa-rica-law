@@ -1,0 +1,1 @@
+Artículo 19.—La Comisión presentará a la Junta Directiva en la primer semana de diciembre, un informe de actividades y de ejecución de presupuesto del período que termina junto con un resumen del estado del FEC. Dicho informe deberá ser incluido en los informes a la Asamblea General Ordinaria de cada enero, la cual debe manifestarse sobre ellos.

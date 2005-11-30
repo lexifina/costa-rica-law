@@ -1,0 +1,1 @@
+Artículo 25.—Las actividades del Programa de Educación Continua, ya sea la participación como expositor o de asistente, podrán ser consideradas como educación formal para efectos de la puntuación que corresponda, de manera que los interesados puedan beneficiarse del Programa.

@@ -1,0 +1,2 @@
+Transitorios:
+I. En los siguientes 90 días calendario posteriores a la entrada en vigencia de este Reglamento, la Junta Directiva, junto con los miembros de la Comisión, decidirá si el fideicomiso en el que actualmente están depositados los fondos líquidos para Educación Continua es la mejor opción, caso contrario establecerá un nuevo fideicomiso que se ajuste mejor a las necesidades de Educación Continua de los colegiados.
