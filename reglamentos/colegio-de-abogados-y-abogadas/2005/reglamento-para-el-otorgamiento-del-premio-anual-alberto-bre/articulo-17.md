@@ -1,0 +1,1 @@
+Artículo 17.—Él o los autores galardonados se obligan a suscribir el contrato de edición y demás documentos que sean precisos para formalizar oportunamente esta cesión, en los que se consignarán las condiciones expuestas en el presente reglamento.

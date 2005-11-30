@@ -1,0 +1,1 @@
+Artículo 6º—La Junta Directiva ordenará la publicación de un aviso en la última semana del mes de julio, para el año siguiente, invitando a todos los miembros activos del Colegio a participar con la presentación de sus obras en el concurso. La recepción de obras se abrirá el 1° día de agosto y se cerrará el 30 de noviembre de ese mismo año.

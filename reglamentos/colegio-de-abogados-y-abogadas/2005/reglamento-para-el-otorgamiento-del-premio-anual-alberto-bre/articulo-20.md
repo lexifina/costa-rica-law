@@ -1,0 +1,1 @@
+Artículo 20.—Él o los autores de la obra que resulte galardonada, deberán aceptar y realizar cualquier recomendación de corrección de forma para efectos de publicación de la misma, la cual se hará por el Jurado Calificador.

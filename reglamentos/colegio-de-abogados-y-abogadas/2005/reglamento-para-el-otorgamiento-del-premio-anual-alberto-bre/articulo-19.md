@@ -1,0 +1,1 @@
+Artículo 19.—La participación en el concurso supone la aceptación integral y sin reservas de todas las condiciones contenidas en el presente reglamento. Su no cumplimiento implicará la exclusión del concurso y la pérdida de los beneficios que de éste se derivan. Cualquier situación no prevista en estas bases, será resuelta por la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 12.—Los originales presentados y sus copias no serán devueltos ni se remitirá acuse de recibo alguno. Una vez dictado el veredicto, los sobres con los datos personales de los autores no premiados y sus obras, serán destruidos en presencia de la Junta Directiva y el Fiscal del Colegio de Abogados.
