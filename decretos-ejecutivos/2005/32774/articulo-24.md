@@ -1,0 +1,1 @@
+Artículo 24.—El Contador Privado Incorporado, que acepta a estudiantes de Contabilidad en calidad de colaboradores, debe proveerlos de un ámbito de trabajo adecuado y decoroso para su preparación profesional. Deberá retribuir su colaboración proporcionalmente a los aranceles vigentes, estipulados por el Colegio.

@@ -1,0 +1,1 @@
+Artículo 22.—Por considerarlo lesivo para la profesión y los principios legales y morales, el Contador Privado Incorporado, no deberá realizar actos u omisiones que conduzcan a sentencias judiciales de índole penal o civil en su contra, relacionadas con el ejercicio de su profesión.

@@ -1,0 +1,1 @@
+Artículo 38.—El presente Decreto Ejecutivo deroga el Decreto Nº 8, de fecha 9 de marzo de 1953, publicado en La Gaceta Nº 64 del 18 de marzo de 1953, así como cualquier disposición anterior de igual o inferior jerarquía que se le oponga.

@@ -1,0 +1,1 @@
+Artículo 20.—Los Contadores Privados Incorporados, no podrán anunciar sus servicios haciendo ostentación de sus conocimientos. Se anunciarán por un medio donde no menoscabe la dignidad de los demás colegiados.

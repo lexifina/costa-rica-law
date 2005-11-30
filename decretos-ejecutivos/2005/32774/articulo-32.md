@@ -1,0 +1,1 @@
+Artículo 32.—El procedimiento para imponer las sanciones dispuestas en el presente capítulo deberá llevarse a cabo conforme a la regulación del procedimiento administrativo ordinario dispuesto en el Libro Segundo de la Ley General de la Administración Pública.

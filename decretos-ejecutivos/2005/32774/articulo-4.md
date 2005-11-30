@@ -1,0 +1,1 @@
+Artículo 4º—En el ejercicio de la contaduría en forma independiente, el Contador Privado Incorporado, deberá guardar el debido respeto a sus colegas. No suscribirá ningún contrato de servicios como contador con un tercero, si no mediare renuncia previa y definitiva de quien los venía prestando y previa constancia que no le adeudan honorarios al primero.
