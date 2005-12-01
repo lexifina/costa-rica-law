@@ -1,0 +1,1 @@
+Artículo 16.—Perfil de soporte. El perfil relacionado con la función de soporte del SWIFT denominado “técnico”, será asignado por el Director del Departamento de Tecnologías del Sistema de Pagos exclusivamente a funcionarios de esa dependencia.

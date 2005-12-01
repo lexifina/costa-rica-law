@@ -1,0 +1,4 @@
+CAPÍTULO V
+Otras disposiciones
+Artículo 29.—Plan de contingencia y continuidad. Las Divisiones Gestión de Activos y Pasivos, Servicios Financieros y Tecnologías de Información, coordinarán las acciones necesarias para identificar y evaluar los sistemas y mecanismos alternativos que permitirán reanudar las operaciones de pagos y transferencias internacionales, ante alguna eventualidad.
+Dichas unidades administrativas elaborarán y mantendrán planes de contingencia y continuidad actualizados, con base en los recursos disponibles de la Institución, y se establecerán los procedimientos para posibles eventualidades. Estos planes y procedimientos deberán revisarse trimestralmente y se actualizarán de conformidad con las actividades encomendadas a las diferentes áreas administrativas y en concordancia con las políticas institucionales sobre la materia.

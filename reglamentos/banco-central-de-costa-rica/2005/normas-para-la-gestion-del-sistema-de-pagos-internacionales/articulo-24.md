@@ -1,0 +1,3 @@
+Artículo 24.—Capacitación. Se programarán reuniones periódicas entre las áreas de administración, operación y soporte del Sistema de Pagos Internacionales, para exponer temas de interés común, el proceso operativo vigente, las actualizaciones de los sistemas, las modificaciones, las nuevas funciones y otros aspectos a considerar.
+Adicionalmente, cuando se requiera se solicitarán capacitaciones de asesores externos con el .n de conocer nuevas funcionalidades del SWIFT y otros sistemas alternativos, considerados útiles para el desempeño de las funciones relacionadas con la gestión de ese sistema.
+De acuerdo con lo anterior, cada centro de costo involucrado establecerá sus necesidades de capacitación en la formulación del presupuesto para el siguiente período.

@@ -1,0 +1,1 @@
+Artículo 25.—Ubicación de equipos de cómputo. Los equipos de cómputo del Sistema de Pagos Internacionales, deberán ubicarse en un área restringida cerrada y con acceso únicamente para el personal autorizado por el Director del Departamento de Operaciones Financieras ó el Coordinador del Proceso de Soporte de Operaciones Financieras.

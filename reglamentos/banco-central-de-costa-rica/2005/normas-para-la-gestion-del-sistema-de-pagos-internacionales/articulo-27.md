@@ -1,0 +1,1 @@
+Artículo 27.—Actualización de procedimientos. Cada dependencia del BCCR involucrada en la administración, operación y soporte de la Sistema de Pagos Internacionales, será responsable de mantener actualizados los procedimientos relacionados con las funciones que les han sido asignados en esta normativa.

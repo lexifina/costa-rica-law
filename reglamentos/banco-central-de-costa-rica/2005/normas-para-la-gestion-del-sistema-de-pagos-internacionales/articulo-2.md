@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. La gestión de pagos y transferencias internacionales por parte del Banco Central de Costa Rica, se regirá por la presente normativa, de conformidad con lo establecido en la Ley 7558, Ley Orgánica del Banco Central de Costa Rica, del 27 de noviembre de 1995 y sus modificaciones.

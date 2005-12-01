@@ -1,0 +1,3 @@
+Artículo 12.—Administración de Perfiles de Operación. El oficial de seguridad del SWIFT creará, modificará o cancelará los perfiles de ese sistema, atendiendo la solicitud escrita del Director del Departamento de Operaciones Financieras de la División Gestión de Activos y Pasivos.
+Cuando los registros de las operaciones del sistema, indiquen que alguno de los perfiles autorizados no hubiese sido utilizado por un período de tres meses, el administrador cancelará el perfil del usuario respectivo.
+El administrador presentará un reporte trimestral sobre los perfiles de los usuarios vigentes y las modificaciones realizadas en los mismos, al Director de la División Gestión de Activos y Pasivos.

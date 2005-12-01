@@ -1,0 +1,3 @@
+Artículo 5º—Sistemas del SWIFT. El Sistema de Pagos Internacionales estará conformado por los sistemas: SWIFT (Society for Worldwide Interbank Financial Telecommunication), CitiDirect del Citibank e INFORM del Bank of New York, además del fax
+como medio de comunicación.
+Los pagos y las transferencias de recursos desde y hacia el exterior se realizarán utilizando los servicios del SWIFT, de conformidad con lo dispuesto en esta normativa. Los otros sistemas (CitiDirect e INFORM) y el medio de comunicación (fax) serán empleados para la consulta de saldos y obtención de información. Además, se conservarán como un mecanismo alternativo para realizar las operaciones en situaciones de contingencia.

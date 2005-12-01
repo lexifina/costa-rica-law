@@ -1,0 +1,6 @@
+Artículo 7º—Perfiles de Administración. Los perfiles asignados para la función de administración del SWIFT serán los siguientes:
+a. Oficial de Seguridad: Es el encargado de revisar, autorizar o rechazar las modificaciones en los perfiles de los usuarios, así como de autorizar las actualizaciones del sistema SWIFT.
+Además debe resguardar las tarjetas de seguridad en un lugar restringido, que permita mantener su control, a fin de entregarlas y recibirlas sólo contra firma.
+b. Administrador: Es el funcionario encargado de evaluar o crear los roles de usuarios del SWIFT del BCCR, analizar y tramitar las modificaciones de asignación de perfiles a los usuarios y gestionar dichos cambios ante el oficial de seguridad. Asimismo, tramitará ante la Representación del SWIFT la resolución de consultas o problemas que se presenten con respecto al funcionamiento de ese sistema y con los cobros de facturas.
+c. Supervisor: Es el funcionario encargado de abrir y cerrar diariamente las sesiones del SWIFT, cuando falle la opción automatizada del sistema, así como dar mantenimiento al calendario laboral del BCCR y generar diariamente los “archives” de todos los mensajes enviados o recibidos.
+d. Consulta: Es el perfil asignado a funcionarios con roles de auditoría y control para el monitoreo y consulta de las operaciones llevadas a cabo en el sistema.
