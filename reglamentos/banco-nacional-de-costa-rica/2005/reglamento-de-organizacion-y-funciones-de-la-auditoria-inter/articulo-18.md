@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la ejecución de la Auditoría
+Artículo 18.—La Auditoría Interna deberá ejecutar su trabajo de acuerdo con lo que establecen las normas de ejecución de la auditoría contenidas en el Manual sobre Normas Técnicas de Auditoría para la Contraloría General de la República y las Entidades y Órganos Sujetos a su Fiscalización, las adoptadas por el Colegio de Contadores Públicos de Costa Rica en lo que sea aplicable, los lineamientos que al respecto contiene el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público y en cualesquiera otras disposiciones que dicte la Contraloría General de la República.

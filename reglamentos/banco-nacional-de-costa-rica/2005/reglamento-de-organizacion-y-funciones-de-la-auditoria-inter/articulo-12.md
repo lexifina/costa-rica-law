@@ -1,0 +1,1 @@
+Artículo 12.—El Auditor Interno y sus subalternos no podrán pertenecer ni ejercer funciones de ninguna otra unidad administrativa del Banco Nacional de Costa Rica y sus Subsidiarias y tampoco ser miembros de juntas directivas, comités, comisiones de trabajo o similares; con excepción del Comité de Auditoría u otro que la función de auditoría así lo amerite.

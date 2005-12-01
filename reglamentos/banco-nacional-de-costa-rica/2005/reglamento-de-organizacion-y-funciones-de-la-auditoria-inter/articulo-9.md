@@ -1,0 +1,1 @@
+Artículo 9º—El Auditor Interno deberá proponer debidamente justificada a la Junta Directiva General del Banco Nacional de Costa Rica, la creación de plazas y servicios que considere indispensables para el cumplimiento de su plan anual operativo y en general para el buen funcionamiento de la Auditoría Interna.
