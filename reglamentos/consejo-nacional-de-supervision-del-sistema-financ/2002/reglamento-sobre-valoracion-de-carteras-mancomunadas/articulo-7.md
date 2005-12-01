@@ -1,2 +1,1 @@
-Artículo 7º—Prohibición de modificación de una metodología inscrita.
-Las metodologías inscritas ante la Superintendencia General de Valores no podrán modificarse.
+Artículo 7º—Así Derogado mediante sesión N° 543 del 1° de diciembre del 2005.

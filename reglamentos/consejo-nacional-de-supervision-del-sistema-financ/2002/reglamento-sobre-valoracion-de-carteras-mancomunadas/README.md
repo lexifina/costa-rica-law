@@ -16,3 +16,4 @@ Reglamento sobre valoración de carteras mancomunadas
 | 1 | 2002-02-15 | la propia norma |
 | 2 | 2002-03-07 | Reglamento 286 (2002-03-07) |
 | 3 | 2002-03-14 | Reglamento 290 (2002-03-14) |
+| 4 | 2005-12-01 | Reglamento 543 (2005-12-01) |
