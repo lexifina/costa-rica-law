@@ -1,0 +1,1 @@
+Artículo 2º—Ordénese mandamiento provisional de anotación ante el Registro Nacional de la Propiedad, de dicho inmueble como acto necesario para la consolidación del Parque Nacional Marino las Baulas de Guanacaste, conforme a lo prescrito por la Ley 7495 y sus reformas, para lo cual se autoriza al Coordinador (a) del Departamento Legal del Ministerio del Ambiente y Energía.
