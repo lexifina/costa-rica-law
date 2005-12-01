@@ -1,0 +1,14 @@
+Nº 32781
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA,
+Y LOS MINISTROS DEL AMBIENTE Y ENERGÍA,
+TURISMO, OBRAS PÚBLICAS Y TRANSPORTES,
+Y AGRICULTURA Y GANADERÍA
+En ejercicio de las facultades que les confieren los incisos 3) y 18) del artículo 140 y 146 de la Constitución Política, artículo 50 de la Constitución Política, la ley N° 7575, Ley Forestal; ley N° 7554, Ley Orgánica del Ambiente; ley N° 6043, Ley sobre la Zona Marítimo Terrestre; ley N° 7317, Ley de Conservación de la Vida Silvestre; ley N° 7779, Ley de Uso y Conservación de Suelos.
+Considerando:
+1º—La Zona Marítimo Terrestre es la franja de doscientos metros de ancho a todo lo largo de los litorales Atlántico y Pacífico, medidos a partir de la línea de pleamar ordinaria, comprende también las islas, islotes y peñascos marítimos, así como toda formación natural que sobresalga del nivel del mar territorial. Se compone de dos secciones, la zona pública que es la franja de los cincuenta metros de ancho desde la línea de la pleamar ordinaria y las zonas que quedan al descubierto durante la marea baja, además comprende los islotes, peñascos y demás pequeñas y formaciones naturales que sobresalgan del mar, los manglares de los litorales continentales e insulares y esteros del territorio nacional; la zona restringida, que comprende los ciento cincuenta metros restantes o por los demás terrenos en el caso de las islas.
+2º—Que el artículo 73 de la Ley 6043 sobre la Zona Marítimo Terrestre que dispone que la misma no aplica en las zonas marítimo terrestres incluidas en parques nacionales y reservas equivalentes, las cuales se regirán por la legislación respectiva.
+3º—Que el dictamen de la Procuraduría General de la República C-297-2004 del 19 de octubre del 2004, estableció que “reservas equivalentes” comprenden todas aquellas áreas silvestres protegidas, como lo son refugios nacionales de vida silvestre, parques nacionales, reservas biológicas, reservas forestales, monumentos naturales y humedales, siendo competente para conservarlos y administrarlos el Ministerio del Ambiente y Energía. Asimismo reconoce que los terrenos con bosque o que son de vocación forestal ubicados dentro de la Zona Marítimo Terrestre, compete al Ministerio del Ambiente y Energía su administración, siendo necesario que este Ministerio elabore los instrumentos de ordenamiento de esas áreas.
+4º—Que es necesario que el Ministerio del Ambiente y Energía, defina a corto plazo, las áreas de bosque y los terrenos de aptitud forestal dentro de la Zona Marítimo Terrestre, por ser parte integrante del Patrimonio Natural del Estado. Por tanto,
+DECRETAN:
+Artículo 1º—Declarar de interés público, la labor de definición por parte del Ministerio del Ambiente y Energía de las áreas de bosque y terrenos de aptitud forestal dentro de la zona marítimo terrestre.

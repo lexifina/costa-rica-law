@@ -1,0 +1,1 @@
+Artículo 2º—Toda dependencia del Poder Ejecutivo e Instituciones Autónomas, Semiautónomas, podrá en la medida de sus posibilidades presupuestarias y materiales prestar la colaboración requerida por el Ministerio del Ambiente y Energía para el cumplimiento de la labor encomendada.
