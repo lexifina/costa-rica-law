@@ -1,0 +1,1 @@
+Artículo 3º—Una vez grabado el número de identificación vehicular en el automotor respectivo, se procederá a su donación conforme los procedimientos formalizados en la Ley de Distribución de Bienes Confiscados o Caídos en Comiso y su Reglamento.

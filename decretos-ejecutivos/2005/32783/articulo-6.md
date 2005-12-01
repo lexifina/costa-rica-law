@@ -1,0 +1,1 @@
+Artículo 6º—Los vehículos que se inscriban de conformidad con lo establecido en este Decreto, no podrán ser traspasados ni de ninguna forma enajenados a personas físicas o jurídicas de índole particular, debiendo el Registro Público de la Propiedad Mueble consignar el gravamen correspondiente, para efectos de la publicidad registral.
