@@ -20,3 +20,4 @@ Reglamento Interno de la Junta Directiva de la Caja Costarricense de Seguro Soci
 | 5 | 2001-03-01 | Reglamento 7528 (2001-03-01) |
 | 6 | 2002-03-20 | Reglamento 7612 (2002-03-20) |
 | 7 | 2004-06-15 | Reglamento 7863 (2004-06-15) |
+| 8 | 2005-12-01 | Reglamento 8013 (2005-12-01) |
