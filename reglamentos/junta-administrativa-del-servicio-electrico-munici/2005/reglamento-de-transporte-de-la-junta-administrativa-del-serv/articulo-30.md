@@ -1,0 +1,1 @@
+Artículo 30.—Diligencia y prudencia. En condiciones difíciles de conducción, todo conductor deberá actuar prudente y diligentemente, evitando la temeridad a fin de no exponerse a pérdidas humanas y materiales.

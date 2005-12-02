@@ -1,0 +1,1 @@
+Artículo 31.—Intercambios. Salvo autorización del Proceso de Gestión de Apoyo Logístico, los conductores u operadores no podrán hacer intercambios de accesorios de los automotores o los equipos auxiliares.

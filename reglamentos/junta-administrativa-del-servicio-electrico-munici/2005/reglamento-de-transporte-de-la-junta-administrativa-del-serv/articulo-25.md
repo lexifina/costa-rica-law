@@ -1,0 +1,1 @@
+Artículo 25.—Prohibición para conducir u operar. Queda prohibido que un servidor no autorizado o un particular, conduzca vehículos u opere equipo de JASEC, salvo lo previsto en el artículo 32 de este Reglamento.

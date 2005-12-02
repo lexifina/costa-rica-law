@@ -1,0 +1,1 @@
+Artículo 43.—Ausencias reglamentarias. Para los efectos de interpretar e integrar el presente reglamento, a falta de disposición expresa, se estará a los principios que informan el ordenamiento jurídico administrativo vigente.

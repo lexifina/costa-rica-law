@@ -1,0 +1,1 @@
+Artículo 20.—Parqueo Institucional. Los vehículos propiedad de JASEC deberán ser estacionados en los parqueos institucionales tanto dentro como fuera de la jornada de trabajo. La Gerencia designará los vehículos propiedad de servidores que podrán ser estacionados en horas laborables en los parqueos institucionales. Esta autorización no generará ningún derecho adquirido.

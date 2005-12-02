@@ -1,0 +1,1 @@
+Artículo 19.—Conclusión de labores. Una vez concluidas las labores diarias, todo vehículo, a excepción de los de uso discrecional, debe ser guardado en un parqueo institucional o lugar que el Proceso de Gestión de Apoyo Logístico, le haya asignado en forma previa.

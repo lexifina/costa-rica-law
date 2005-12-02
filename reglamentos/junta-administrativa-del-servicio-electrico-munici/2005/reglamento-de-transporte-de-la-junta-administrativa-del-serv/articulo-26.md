@@ -1,0 +1,1 @@
+Artículo 26.—Autorización para conducir. La Unidad de Gestión de Apoyo Logístico, dará trámite a la solicitud de autorización para conducir vehículos de JASEC u operar equipo auxiliar, previa constatación en el Manual de Puestos de JASEC que las funciones del cargo así lo requieran.

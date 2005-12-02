@@ -1,0 +1,1 @@
+Artículo 33.—Cesión de conducción u operación. Quienes estén autorizados para conducir vehículos de la institución, no podrán ceder la conducción de ellos a otras personas, salvo caso de fuerza mayor sujeto a comprobación y calificación posterior por el Proceso de Gestión de Apoyo Logístico. Igual regla rige para el equipo auxiliar.

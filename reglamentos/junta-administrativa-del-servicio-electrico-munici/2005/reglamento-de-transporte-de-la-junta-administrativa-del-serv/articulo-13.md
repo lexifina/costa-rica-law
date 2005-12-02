@@ -1,0 +1,11 @@
+Artículo 13.—Vehículos y maquinaria de uso regular de campo.
+Estos vehículos y maquinaria de uso regular de campo, son aquellos que por la naturaleza regular de sus labores, están sujetos a la programación y controles diarios de las UEN. Entre tales vehículos están los siguientes:
+1) La maquinaria pesada de trabajo en obras de mantenimiento, como los retroexcavadores.
+2) Los vehículos de doble tracción de traslado de cuadrillas y supervisión del mantenimiento de canales, desarenadores, tomas, canales y vías en el sistema Birris.
+3) Los camiones de traslado diario de cuadrillas, equipo y materiales, para la atención y supervisión del mantenimiento rutinario permanente de las líneas de transmisión, patios de interruptores, subestaciones y otras tareas del sistema eléctrico.
+4) Los vehículos de doble tracción destinados a la atención y supervisión del programa diario de averías, acondicionados especialmente para estas tareas y el trasiego permanente de equipos y materiales para el cumplimiento de este objetivo vital de servicio al público de JASEC.
+5) Las grúas y canastas hidráulicas, destinados al trabajo de soporte a las cuadrillas de mantenimiento de las redes, así como al mantenimiento del alumbrado público, obedeciendo a la programación diaria del trabajo.
+6) Las motocicletas y cuadraciclos dedicadas exclusivamente a la atención de la programación diaria, para la lectura de medidores, inspecciones y otras tareas misceláneas necesarias a la empresa.
+7) Los vehículos de doble tracción dedicados a las cortas, reconexiones, inspecciones y mediciones, de acuerdo a la programación diaria de la UEN de Servicio al Cliente.
+8) Todo otro tipo de vehículo destinado a la prestación de otros servicios públicos conforme lo establece el artículo 2º de la Ley Nº 7799 del 30 de abril de 1998 y el artículo 5º de la Ley Nº 7593 del 9 de agosto de 1996.
+Los conductores, operadores y responsables ante el Proceso de Gestión de Apoyo Logístico, están sujetos en relación con la programación de su actividad diaria, recorridos, combustible, percances y cualquiera otra situación, a cumplir con las directrices de encendido, revisión periódica, mantenimiento preventivo, reportes operacionales y cualquiera otra directriz que emane de dicho proceso.

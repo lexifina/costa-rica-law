@@ -1,0 +1,1 @@
+Artículo 22.—Rotulación. Es requisito indispensable para que un automotor de uso administrativo general y de uso regular de campo entre en circulación, estar rotulado con el logotipo de JASEC y el número de placa en las puertas laterales.

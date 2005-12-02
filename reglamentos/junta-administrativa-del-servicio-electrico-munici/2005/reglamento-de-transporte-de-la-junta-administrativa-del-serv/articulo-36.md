@@ -1,0 +1,1 @@
+Artículo 36.—Acción u omisión. Es responsabilidad exclusiva de cada conductor y operador, el cumplimiento de lo establecido en el presente capítulo, de ahí que si desacata órdenes que contravengan las anteriores disposiciones, asumirá las consecuencias que de esa acción u omisión se deriven.

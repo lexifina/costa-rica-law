@@ -1,0 +1,2 @@
+Artículo 4°—De la naturaleza del acto de asignación. Cuando un vehículo sea asignado a un funcionario en particular, esa asignación es un acto por medio del cual se le dota de una herramienta de trabajo, necesaria para el mejor desempeño de sus funciones.
+El uso de un vehículo de la institución y la entrega de combustible, no se considerarán salario en especie, constituyendo única y exclusivamente un medio para la prestación de funciones y no para consumo personal o familiar. Asimismo, no dan origen a derechos adquiridos de ninguna naturaleza.

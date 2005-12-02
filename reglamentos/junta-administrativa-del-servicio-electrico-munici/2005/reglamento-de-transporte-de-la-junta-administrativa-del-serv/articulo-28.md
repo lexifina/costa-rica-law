@@ -1,0 +1,7 @@
+Artículo 28.—Protecciones. JASEC otorgará a sus conductores, operadores y demás funcionarios que viajen en uno de sus vehículos y en ejercicio de sus funciones, las siguientes protecciones:
+1) Riesgos del Trabajo: Todos los conductores de la institución, estarán amparados por la Póliza de Seguro contra Accidentes y Riesgos Profesionales.
+2) Certificado de Fianza de Excarcelación: Es una garantía que ofrece JASEC a sus conductores, en aplicación del artículo 32 g) del Reglamento Autónomo de Trabajo, en caso de privación de libertad, con ocasión de accidentes de tránsito ocurridos con participación de vehículos de la institución.
+3) Seguro de accidentes: Los vehículos automotores de JASEC cuentan con una Póliza de Seguros de Responsabilidad Civil, de cobertura total del Instituto Nacional de Seguros.
+Las motocicletas y cuadraciclos también estarán cubiertas con una póliza de cobertura total (coberturas: A, C, D: Colisión y vuelcos por colisión, F: Robo y H: Vuelco y riesgos adicionales).
+En caso de robo de vehículos o maquinaria de JASEC, el servidor deberá de presentar la denuncia ante las Autoridades Judiciales competentes dentro de las 24:00 horas siguientes a los hechos.
+La Unidad de Salud Ocupacional de JASEC, deberá intervenir en los procesos de adquisición de vehículos, estableciendo las especificaciones de seguridad, que deben reunir los vehículos, para la seguridad del conductor y de los pasajeros.

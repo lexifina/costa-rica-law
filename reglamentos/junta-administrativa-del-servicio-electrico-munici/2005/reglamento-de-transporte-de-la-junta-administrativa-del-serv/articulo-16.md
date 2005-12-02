@@ -1,0 +1,2 @@
+Artículo 16.—Solicitud de servicios. Todo funcionario que requiera la prestación de servicios de transporte de vehículos de uso administrativo general, deberá solicitarlo a la jefatura del Proceso de Gestión de Apoyo Logístico, con la suficiente antelación para que esta pueda programar el servicio.
+El Proceso de Gestión de Apoyo Logístico determinará de acuerdo con la solicitud presentada, el tipo de vehículo que mejor se adapte a las condiciones del servicio requerido.
