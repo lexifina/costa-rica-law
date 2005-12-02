@@ -1,0 +1,2 @@
+Artículo 10.—De los números participantes en el sorteo del Juego Pega 6. La Junta se reserva el derecho por condiciones de oportunidad en el juego, el disminuir la cantidad de números disponibles para ser seleccionados dentro de la combinación de seis números, siempre dentro del rango de la numeración del 01 al 36, para un determinado sorteo o número de sorteos.
+Estos cambios la Junta deberá comunicarlos al público por los medios que estime convenientes, al menos una semana antes de la realización del respectivo sorteo.

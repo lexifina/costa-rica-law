@@ -1,0 +1,1 @@
+Artículo 13.—Tiempo límite para la recepción de apuestas de los juegos de lotería electrónica. La recepción de apuestas se inicia a partir del momento en que la Junta lo defina en el sistema automatizado. El tiempo límite para la recepción de apuestas es de quince minutos antes de la realización del respectivo sorteo.

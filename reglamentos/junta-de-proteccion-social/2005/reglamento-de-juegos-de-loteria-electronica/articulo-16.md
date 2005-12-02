@@ -1,0 +1,3 @@
+Artículo 16.—De las fechas y horarios de los sorteos. Los sorteos de Pega 1 se realizarán los días martes y viernes de cada semana, a las 19:00 horas (7:00 p.m.), en el Auditorio "Alfredo Echandi Jiménez de la Junta de Protección Social de San José" o en el lugar que se designe para ello.
+Los sorteos de Pega 6 se realizarán el día sábado de cada semana, a las 17:30 horas (5:30 p.m.), en las instalaciones en donde se realiza el sorteo de la Rueda de la Fortuna o en el lugar que se designe para ello.
+Los sorteos serán fiscalizados conforme lo dispone el Artículo Nº 75 del Reglamento a la Ley de Loterías.

@@ -1,0 +1,3 @@
+Artículo 20.—Término para reclamos. En caso de que exista disconformidad por parte de algún jugador sobre el pago o no de un premio, o sobre el monto respectivo que se haya pagado, se podrá presentar el respectivo reclamo, el cual debe dirigirse al canal autorizado por la Junta en el cual se adquirió la apuesta. La fecha límite para la presentación de estos reclamos es el término de caducidad del respectivo sorteo. Se atenderá, resolverá y comunicará al interesado su resolución, dentro del plazo de un mes posterior al recibo de la solicitud firmada por el reclamante.
+Se aprueba el presente reglamento, según acuerdo de Junta Directiva JD-629 correspondiente al artículo I) de la sesión Nº 41-2005, celebrada el 1º de noviembre del 2005.
+San José, 22 de noviembre del 2005.

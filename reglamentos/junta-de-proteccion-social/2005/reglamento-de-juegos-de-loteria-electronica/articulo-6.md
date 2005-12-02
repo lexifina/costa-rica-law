@@ -1,0 +1,1 @@
+Artículo 6º—Comisiones. La Junta Directiva, de acuerdo con la recomendación técnica, determinará el porcentaje de comisión que se reconocerá a los canales por la venta y pago de premios de la lotería electrónica. Esta comisión no podrá ser superior al 12% e incluye la captura de las apuestas de lotería electrónica y el pago de premios.
