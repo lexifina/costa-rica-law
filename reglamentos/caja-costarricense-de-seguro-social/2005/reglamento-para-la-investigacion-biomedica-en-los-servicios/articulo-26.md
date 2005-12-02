@@ -1,0 +1,1 @@
+Artículo 26.—Recursos. Las resoluciones de la Dirección Ejecutiva del CENDEISSS tendrán los recursos ordinarios de revocatoria ante la Dirección y de apelación ante la Gerencia División Médica de la Caja.

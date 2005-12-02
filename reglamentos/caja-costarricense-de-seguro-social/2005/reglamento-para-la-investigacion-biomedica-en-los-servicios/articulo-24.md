@@ -1,0 +1,1 @@
+Artículo 24.—Pólizas. De previo a la firma del contrato deberá contarse con una póliza del Instituto Nacional de Seguros que garantice la reparación de eventuales daños y perjuicios a los investigados y a la Caja, ejecutable por los beneficiarios. Está póliza deberá tener la vigencia que el COIBÍ-CCSS recomiende.

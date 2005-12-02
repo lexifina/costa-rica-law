@@ -1,0 +1,1 @@
+Artículo 4º—Principios generales. Se reconocen como principios generales que deberán regir la materia: el respeto a la dignidad de las personas, la beneficencia, la no maleficencia, la autonomía y la justicia distributiva.

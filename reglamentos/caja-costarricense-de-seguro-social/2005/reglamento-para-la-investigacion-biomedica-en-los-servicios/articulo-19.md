@@ -1,0 +1,1 @@
+Artículo 19.—Excusas. Además de cualquier otro motivo legal de excusa, quienes participen en las recomendaciones y aprobaciones a que se refiere este Reglamento deberán abstenerse de participar en todo caso en que puedan tener cualquier interés, aún indirecto, con los investigadores o patrocinadores.

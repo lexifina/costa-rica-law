@@ -1,0 +1,1 @@
+Artículo 29.—Derogatoria. Se deroga el Reglamento para la Investigación Clínica en los Servicios Asistenciales de la Caja Costarricense de Seguro Social aprobado por la Junta Directiva en la sesión Nº 7720 del 16 de enero del año 2003.

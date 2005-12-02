@@ -1,0 +1,4 @@
+Artículo 23.—Contrato. En todas las investigaciones patrocinadas por terceros deberá suscribirse un contrato entre la Caja, representada por la Gerencia División Médica y el responsable del estudio, en donde se definan las condiciones económicas y demás obligaciones de las partes.
+Estarán excluidas de la aplicación del párrafo anterior las investigaciones oficiales de la Caja, las investigaciones con fines exclusivamente académicos, y las investigaciones colaborativas interinstitucionales sin fines comerciales donde no medie pago a investigadores.
+Cuando se trate de investigaciones de terceros y la Caja deba aportar recursos de cualquier clase, los mismos deberán remunerarse de acuerdo a su costo.
+Todo contrato suscrito deberá contar con la verificación de legalidad de la Dirección Jurídica y con el refrendo de la Contraloría General de la República cuando el caso así lo amerite.

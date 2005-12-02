@@ -1,0 +1,3 @@
+Artículo 6º—Requisitos para investigaciones observacionales.
+Deberán ser autorizadas por el Director del respectivo centro asistencial, previa recomendación por un comité local de bioética en investigación, nombrado en cada centro por su director. Este tipo de investigaciones se regirán por las disposiciones que dicte el CENDEISSS y la Gerencia División Médica.
+Los estudios de utilización de medicamentos promovidos por la Dirección de Medicamentos y Terapéutica de la Caja, vigilancia epidemiológica, e investigación estratégica en recursos humanos o servicios de salud propios del quehacer de la institución estarán excluidos de este artículo. Las instancias participantes darán al COIBI-CCSS los informes que solicite.
