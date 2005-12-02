@@ -1,0 +1,2 @@
+Artículo 12—Representantes de las restantes asociaciones comunales.
+La comisión coordinará con los diferentes grupos comunales del cantón registrados formalmente en la Municipalidad para el nombramiento de su representante y un suplente. Cada año, la secretaría municipal actualizará la lista de estos grupos legalmente formalizados y deberá cursar invitación a aquellos que no se han registrados, cuando sean de su conocimiento.

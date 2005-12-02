@@ -1,0 +1,1 @@
+Artículo 17.—Lugar, día, hora y cantidad de sesiones será fijado por los miembros del Comité Cantonal de Deportes y comunicado por escrito al Concejo Municipal y a todas las organizaciones comunales, deben efectuar un mínimo de dos sesiones ordinarias al mes y extraordinariamente las que fueran necesarias.

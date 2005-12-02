@@ -1,0 +1,1 @@
+Artículo 3°—Reglamentación y nombramiento. La Municipalidad de El Guarco reglamentará el proceso de elección de los miembros del Comité Cantonal de Deportes y Recreación. (Artículo N° 165 Código Municipal).
