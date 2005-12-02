@@ -1,0 +1,1 @@
+Artículo 29.—Los Comités Comunales y Distritos Deportivos conformarán dentro de su seno una Junta Directiva compuesta por cinco miembros: presidente, vicepresidente, secretario, tesorero y vocal (capítulo VII art. 49) y desempeñarán iguales funciones que por esos cargos tienen los miembros del Comité Cantonal.

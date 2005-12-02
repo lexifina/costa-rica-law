@@ -1,0 +1,1 @@
+Artículo 106.—Las personas designadas por la Comisión deben ser notificadas al Concejo Municipal y recibirán del Comité Cantonal un pergamino o placa como reconocimiento, el día de celebración del aniversario del cantón.

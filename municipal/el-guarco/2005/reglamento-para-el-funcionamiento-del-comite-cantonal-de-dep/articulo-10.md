@@ -1,0 +1,1 @@
+Artículo 10.—El ICODER y la Municipalidad fijarán las políticas generales en materia deportiva y de recreación, a su vez el Comité Cantonal ejercerá los controles que corresponden, para que sus órganos y afiliados, cumplan con las funciones asignadas para el logro de dichas políticas para fomentar, iniciar y dirigir el deporte y la recreación.

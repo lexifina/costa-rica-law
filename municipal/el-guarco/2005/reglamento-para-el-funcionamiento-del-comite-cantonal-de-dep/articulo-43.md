@@ -1,0 +1,1 @@
+Artículo 43.—Cuando se realicen torneos internos del Distrito, el Comité Comunal debe confeccionar el respectivo reglamento, el que deberá ser ratificado y aprobado por el Comité Cantonal para su aplicación.

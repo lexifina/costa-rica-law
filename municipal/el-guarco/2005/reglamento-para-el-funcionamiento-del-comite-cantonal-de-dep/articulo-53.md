@@ -1,0 +1,1 @@
+Artículo 53.—Todo miembro deberá comunicar en forma escrita, cuando proceda, las razones de su inasistencia a las sesiones, en la siguiente sesión; caso contrario, será catalogada la inasistencia como injustificada y sancionable.
