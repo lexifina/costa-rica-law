@@ -14,3 +14,4 @@ Manual de Normas para el Tratamiento de Cáncer en Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-14 | la propia norma |
+| 2 | 2005-12-05 | Decreto Ejecutivo 32897 (2005-12-05) |
