@@ -1,0 +1,1 @@
+Artículo 15º—Sesiones. La Comisión sesionará en forma ordinaria una vez por mes y en forma extraordinaria cuando lo convoque el Coordinador o Coordinadora. El quórum para sesionar válidamente será la mitad más uno de la totalidad de sus miembros.

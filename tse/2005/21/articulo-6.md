@@ -1,0 +1,1 @@
+Artículo 6º—Igualdad. Es obligación de todo funcionario del Tribunal brindar un trato igualitario tanto a los funcionarios que presentan alguna discapacidad, como a las personas que requieran de los servicios que presta la institución.

@@ -1,0 +1,1 @@
+Artículo 11.—Nombramiento. Las Jefaturas de las unidades administrativas citadas en el artículo anterior propondrán al Tribunal para su nombramiento, los nombres de los funcionarios propietarios y suplentes que conformarán la Comisión.

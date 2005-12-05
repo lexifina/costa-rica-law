@@ -1,0 +1,1 @@
+Artículo 4°—Aspecto laboral. El Departamento de Recursos Humanos garantizará la posibilidad de ingreso a laborar, para aquellas personas en situación de discapacidad que reúnan los requisitos para la presentación de ofertas de servicio, adecuando los mecanismos de selección a las condiciones particulares de los oferentes.

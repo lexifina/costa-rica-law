@@ -1,0 +1,1 @@
+Artículo 17.—Tiempo. Los miembros de la Comisión tienen el derecho y el deber de asistir a las sesiones y atender cualquier diligencia o actividad propia de la Comisión, para lo cual utilizarán el tiempo necesario.

@@ -1,0 +1,1 @@
+Artículo 21.—Régimen sancionatorio. Los funcionarios del Tribunal que violen la presente normativa estarán sujetos a la imposición de las sanciones establecidas en la Ley N° 7600 y el Reglamento Autónomo de Servicios.

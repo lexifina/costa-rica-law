@@ -1,0 +1,1 @@
+Artículo 14º—Personal Auxiliar. La Comisión contará con el auxilio de un funcionario de la unidad administrativa a la que pertenece el Coordinador General, quien colaborará con las labores secretariales.

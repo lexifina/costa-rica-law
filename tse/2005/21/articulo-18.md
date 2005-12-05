@@ -1,0 +1,1 @@
+Artículo 18.—Recursos. La Comisión estará facultada para gestionar los recursos humanos y materiales indispensables para el logro de su cometido, los cuales deberán estar debidamente planificados y justificados dentro del Plan Operativo Anual.
