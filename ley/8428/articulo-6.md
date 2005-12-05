@@ -15,3 +15,4 @@ Nota: Por lo extenso de su contenido ver Alcance N° 67 a La Gaceta N° 257 del 
 (Así reformado por el artículo 3° de la Ley N° 8465 del 25 de octubre del 2005)
 (Así reformado por el artículo 5° de la Ley N° 8465 del 25 de octubre del 2005)
 (Modificado por el artículo 1° del Decreto Ejecutivo N° 32773 del 10 de noviembre de 2005).
+(Modificado por el artículo 1° del Decreto Ejecutvo N° 32792 del 23 de noviembre de 2005).
