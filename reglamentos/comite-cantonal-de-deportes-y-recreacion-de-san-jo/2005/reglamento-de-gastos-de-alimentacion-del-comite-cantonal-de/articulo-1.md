@@ -1,0 +1,3 @@
+COMITÉ CANTONAL DE DEPORTES Y RECREACIÓN DE SAN JOSÉ REGLAMENTO DE GASTOS DE ALIMENTACIÓN
+El presente Reglamento fue aprobado por la Junta Directiva en la sesión extraordinaria Nº 09-2005, del 31 de octubre del 2005, con el propósito de regular y controlar los gastos por concepto de alimentación para la presidencia y la junta directiva de la Institución.
+Artículo 1º—La Dirección Ejecutiva autorizará los gastos de alimentación durante la celebración de las sesiones ordinarias y extraordinarias de la Junta Directiva, en cumplimiento de las funciones a su cargo, siempre y cuando que por el horario sea razonable brindar el servicio.

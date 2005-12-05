@@ -1,0 +1,1 @@
+Artículo 5º—La Presidencia de la Junta Directiva, en función de actividades propias de su cargo podrá, en casos muy excepcionales, cubrir gastos de alimentación a terceros debiendo presentar en cada caso un informe a la Junta Directiva sobre los asuntos tratados, la duración de la reunión, la persona invitada y las razones que privaron para incurrir en este gasto.
