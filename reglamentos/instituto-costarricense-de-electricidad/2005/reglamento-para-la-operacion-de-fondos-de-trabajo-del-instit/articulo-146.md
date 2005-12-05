@@ -1,0 +1,1 @@
+Artículo 146.—El encargado del fondo de trabajo debe sellar todas las facturas que se tramiten, después de ingresar sus datos en el sistema de fondos de trabajo, de acuerdo a lo indicado en el artículo 7 inciso k).

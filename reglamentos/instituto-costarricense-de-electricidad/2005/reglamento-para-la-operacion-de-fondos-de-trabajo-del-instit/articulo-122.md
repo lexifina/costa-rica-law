@@ -1,0 +1,1 @@
+Artículo 122.—El encargado del fondo de trabajo puede únicamente tramitar un vale a su nombre, cuando por la naturaleza de sus funciones requiera trasladarse a otras regiones, cubrir sus gastos de alimentación, hospedaje, lavado y planchado de ropa o adquirir bienes y servicios.

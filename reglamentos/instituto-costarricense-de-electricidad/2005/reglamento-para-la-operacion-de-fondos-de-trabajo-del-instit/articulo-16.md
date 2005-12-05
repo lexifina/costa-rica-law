@@ -1,0 +1,1 @@
+Artículo 16.—Todo vale debe ser aprobado por uno de los funcionarios autorizados para este fin. No se puede tramitar un nuevo vale, sino ha sido liquidado el último y bajo ninguna circunstancia, se debe autorizar liquidaciones parciales en vales.

@@ -1,0 +1,1 @@
+Artículo 151.—En caso de que el tarjeta habiente haya solicitado la sustitución de su tarjeta por reposición (daños en el plástico) o por reemplazo (robo o pérdida), aplican los mismos principios y controles dispuestos para la entrega de una tarjeta nueva.

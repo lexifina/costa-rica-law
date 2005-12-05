@@ -1,0 +1,1 @@
+Artículo 99.—El responsable de la operación de un subfondo, debe utilizar el Sistema de Fondos de Trabajo Web, para el trámite de la documentación generada en el subfondo de trabajo y regirse por lo que estipula este Reglamento, en cuanto a la operación de un fondo de trabajo.

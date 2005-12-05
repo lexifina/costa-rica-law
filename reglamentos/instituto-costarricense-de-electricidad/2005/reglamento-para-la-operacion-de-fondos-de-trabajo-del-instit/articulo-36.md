@@ -1,0 +1,1 @@
+Artículo 36.—Para liquidar la adquisición de activos o herramientas, debe adjuntarse a la factura, copia del respectivo vale (F-10-0003), con el sello de la dependencia que custodia el original de este documento. En el caso de las herramientas también se debe presentar copia de la fórmula F-10-0025 (Devolución).

@@ -1,0 +1,1 @@
+Artículo 84.—Si el bien o servicio adquirido no se utiliza o incorpora en la producción de dichos servicios, el impuesto de ventas sufragado debe codificarse como parte del costo si es un activo o como gasto si es para mantenimiento u operación.

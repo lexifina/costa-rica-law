@@ -1,0 +1,1 @@
+Artículo 104.—Concluido el plazo establecido en el Artículo 102. b) de este Reglamento, el encargado del fondo debe reintegrar a la cuenta matriz que corresponde, el excedente autorizado y solicitar el respectivo registro a Contabilidad, mediante carta y copia original del comprobante de depósito. Enviar copia de esta carta a Gestión de Liquidez.

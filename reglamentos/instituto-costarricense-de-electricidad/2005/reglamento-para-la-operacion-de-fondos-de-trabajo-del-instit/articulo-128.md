@@ -1,0 +1,1 @@
+Artículo 128.—Una vez cancelados los costos antes mencionados, el beneficiario del cheque entrega al encargado del fondo, los comprobantes que respaldan los pagos y con la autorización del Director de la UEN o Director Administrativo, emite un nuevo cheque a nombre del proveedor o funcionario que corresponde.

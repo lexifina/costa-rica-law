@@ -1,0 +1,1 @@
+Artículo 138.—Queda bajo la responsabilidad de los funcionarios indicados en el artículo 135 de este Reglamento el autorizar, en casos de excepción calificada, el uso de la tarjeta de compras institucionales a funcionarios que no estén nombrados en forma permanente.

@@ -1,0 +1,1 @@
+Artículo 65.—Una vez incluido el compromiso para la asignación del fondo de trabajo, el coordinador de presupuesto de cada UEN o Dirección Administrativa, debe coordinar con el Proceso de Planificación Financiera de la Dirección Administrativa Finanzas, para que dicho compromiso sea aplicado y a su vez se refleje en el sistema de fondos de trabajo.

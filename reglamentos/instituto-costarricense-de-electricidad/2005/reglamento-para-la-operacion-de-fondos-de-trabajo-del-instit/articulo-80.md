@@ -1,0 +1,1 @@
+Artículo 80.—El funcionario que realizó la compra y que por caso fortuito no aplicó la retención, debe justi.carlo al dorso de la factura. Entiéndase por caso fortuito el suceso que no se puede prevenir ni resistir.

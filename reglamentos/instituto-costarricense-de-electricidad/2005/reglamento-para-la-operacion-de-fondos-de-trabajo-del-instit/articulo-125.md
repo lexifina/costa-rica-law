@@ -1,0 +1,5 @@
+Artículo 125.—Es responsabilidad del Director de la UEN y del Director Administrativo, donde opere un fondo de trabajo, o en su defecto de los funcionarios de esas dependencias debidamente autorizados por sus superiores, que no tengan ninguna injerencia en el manejo del efectivo ni en la emisión o firma de cheques, realizar lo siguiente:
+Arqueos tanto a los fondos de trabajo como a los subfondos, al menos una vez al mes.
+Conciliaciones mensuales a la cuenta corriente asignada al fondo de trabajo.
+Emitir constancias escritas de la ejecución de los arqueos y de las conciliaciones, así como remitir copia de estos documentos al Director de UEN o Director Administrativo, para lo que corresponda.
+Para tales efectos, el encargado del fondo de trabajo debe facilitar al responsable de realizar los arqueos y conciliaciones, las facturas pendientes de liquidar ante Gestión de Liquidez, el control de cheques emitidos, el efectivo en caja, los vales por adelanto de dinero y los últimos estados de cuenta del Banco.

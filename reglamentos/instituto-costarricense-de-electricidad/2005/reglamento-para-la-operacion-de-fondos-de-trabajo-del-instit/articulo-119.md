@@ -1,0 +1,1 @@
+Artículo 119.—El encargado del fondo de trabajo es responsable de gestionar ante el Banco, la emisión y el retiro de las chequeras requeridas mediante el procedimiento establecido por la entidad bancaria.

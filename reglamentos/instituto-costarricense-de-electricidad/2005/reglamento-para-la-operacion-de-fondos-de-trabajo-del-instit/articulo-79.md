@@ -1,0 +1,1 @@
+Artículo 79.—Gestión de Liquidez, realiza la transferencia del monto que corresponde a la retención del Impuesto sobre la Renta al Gobierno Central y solicita a Contabilidad el respectivo registro contable de esta transacción.

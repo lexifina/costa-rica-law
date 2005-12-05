@@ -1,0 +1,1 @@
+Artículo 97.—Los subfondos son tramitados únicamente en casos de excepción y con la debida autorización del Director de UEN ó Director Administrativo, su apertura se oficializa con la fórmula F-10-0052 "Solicitud de Fondos de Trabajo".

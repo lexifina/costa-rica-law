@@ -1,0 +1,1 @@
+Artículo 107.—La combinación, copias de las llaves de la caja fuerte y del cubículo, deben mantenerse en un sobre lacrado, bajo la responsabilidad del funcionario designado por el coordinador de la dependencia donde opere un fondo de trabajo. En caso de ser necesario, dicho sobre debe abrirse en presencia de por lo menos dos funcionarios, levantando el acta correspondiente.

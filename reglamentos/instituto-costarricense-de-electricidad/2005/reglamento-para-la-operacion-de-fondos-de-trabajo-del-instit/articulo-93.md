@@ -1,0 +1,1 @@
+Artículo 93.—Cuando se presente alguna irregularidad en el Sistema de Fondos de Trabajo, el encargado del fondo afectado debe informar inmediatamente a Gestión de Liquidez, dependencia responsable de coordinar los ajustes requeridos.

@@ -1,0 +1,1 @@
+Artículo 118.—Para mantener el efectivo estrictamente necesario, el encargado del fondo debe emitir un cheque a su favor, el cual debe ser firmado por dos funcionarios autorizados a girar contra la respectiva cuenta corriente, uno del Grupo A con uno del Grupo B, esto en concordancia con el Artículo 111 de este Reglamento.

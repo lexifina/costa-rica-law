@@ -1,0 +1,1 @@
+Artículo 38.—Es totalmente prohibida la adquisición mediante fondos de trabajo de computadoras completas y CPU. Para efectos de reposición por daño comprobado de algún equipo de cómputo, se puede adquirir por este medio de pago con la aprobación como mínimo de la Jefatura de Nivel 1.

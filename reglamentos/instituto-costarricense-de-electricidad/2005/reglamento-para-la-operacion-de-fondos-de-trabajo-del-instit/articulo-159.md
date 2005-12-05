@@ -1,0 +1,1 @@
+Artículo 159.—El Director de la UEN, Director Administrativo, o en su defecto el funcionario debidamente autorizado por sus superiores, solicita al Área de Investigaciones y al OIJ, la ejecución de la investigación que corresponde, con copia a la Auditoria y a Gestión de Liquidez.

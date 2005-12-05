@@ -1,0 +1,1 @@
+Artículo 91.—Con copia de la justificación y de la nota de crédito que envía la dependencia responsable del fondo de trabajo a Contabilidad, Gestión de Liquidez aplica los ajustes en el Sistema de fondos de trabajo WEB.

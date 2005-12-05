@@ -1,0 +1,7 @@
+Artículo 86.—El funcionario autorizado para aprobar la solicitud de liquidación ante Gestión de Liquidez, es responsable de:
+Verificar que la documentación que respalda la liquidación, coincida con el reporte "Cuentas por Liquidación" y "Cuentas por Reintegro Resumido", cumpla con los requerimientos por ley establecidos.
+Verificar que las facturas canceladas, incluyan el sello de "CANCELADO FONDO DE TRABAJO Nº …"
+Confirmar que el monto total de la liquidación, sea el mismo que resulte de la sumatoria de todos los documentos que respaldan los gastos realizados.
+Autorizar vía Sistema de Fondos de trabajo WEB, la solicitud de reintegro.
+Devolver al encargado del fondo, el original de la hoja "Cuentas por Reintegro Resumido", debidamente firmada para el trámite que corresponde en Gestión de Liquidez, así como toda la documentación original que respalda dicha solicitud en un sobre sellado, el cual debe estar identi.cado con el nombre del Ejecutivo de Fondos en Gestión de Liquidez que corresponde. El Reporte "Cuentas por Liquidación" quedará en custodia del autorizador de liquidación, como respaldo de la revisión efectuada.
+El encargado del fondo debe, enviar el original del Reporte "Cuentas por Reintegro Resumido" y los comprobantes que respaldan los pagos, en los siguientes tres días hábiles después de realizada la solicitud de reintegro a Gestión de Liquidez. De no cumplir con este plazo, Gestión de Liquidez podrá suspender el trámite de reembolso de las solicitudes de reintegro.

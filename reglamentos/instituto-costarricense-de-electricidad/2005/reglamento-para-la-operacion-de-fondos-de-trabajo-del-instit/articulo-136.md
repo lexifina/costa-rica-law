@@ -1,0 +1,3 @@
+Artículo 136.—Para definir las características de la tarjeta se debe cumplir con los siguientes pasos:
+El autorizador de la creación o modificación de tarjetas debe establecer las clasificaciones requeridas para cada tarjeta habiente, para lo cual debe realizar un análisis de las necesidades de su dependencia, respecto a los funcionarios que deben utilizar este instrumento de pago, así como los parámetros de consumo a asignar a cada uno de ellos. En caso de que las clasificaciones sean restringidas, debe justificar su uso por escrito a Gestión de Liquidez.
+El encargado del fondo debe tramitar ante Gestión de Liquidez, el formulario múltiple para la solicitud y mantenimiento de la tarjeta de compras institucionales.

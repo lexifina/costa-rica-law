@@ -1,0 +1,1 @@
+Artículo 26.—Si el responsable del vale no presenta los comprobantes de los gastos realizados, en la fecha que corresponde para su cancelación, el encargado del fondo debe reportarlo por escrito al Coordinador del Área responsable del fondo, con copia a la Auditoria Interna y al Director de UEN o Director Administrativo.

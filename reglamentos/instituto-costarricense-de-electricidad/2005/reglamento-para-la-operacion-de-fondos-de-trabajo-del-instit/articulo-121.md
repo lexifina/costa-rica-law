@@ -1,0 +1,1 @@
+Artículo 121.—El encargado del fondo debe completar y tramitar en una liquidación, la fórmula F-10-0029 "Comprobante de Gastos", para respaldar el reintegro del monto correspondiente al costo de la emisión de las chequeras y de los cargos que aplican las entidades bancarias, por los servicios de consulta electrónica.

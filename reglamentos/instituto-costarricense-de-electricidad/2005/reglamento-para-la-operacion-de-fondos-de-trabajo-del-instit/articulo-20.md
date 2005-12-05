@@ -1,0 +1,1 @@
+Artículo 20.—Siempre debe existir correspondencia entre el monto adelantado y el lugar donde se efectúa el trabajo, el período de la gira autorizada y el costo del bien o servicio por adquirir. Esto de acuerdo con lo establecido en el artículo 8 del "Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos", emitido por la Contraloría General de la República.

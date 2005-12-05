@@ -1,0 +1,1 @@
+Artículo 24.—El responsable del vale debe presentar al encargado del fondo de trabajo, los comprobantes de los gastos realizados para su respectiva cancelación en la fecha que corresponde. En caso de vacaciones, este documento debe ser cancelado el último día laborado.

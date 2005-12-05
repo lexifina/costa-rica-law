@@ -1,0 +1,1 @@
+Artículo 115.—Bajo ninguna circunstancia, un encargado de fondo está autorizado para girar cheques en blanco, al portador o a nombre de otra persona que no sea el beneficiario directo del pago: proveedor o funcionario ICE responsable del vale, ni proceder al cambio de cheques de ninguna naturaleza.

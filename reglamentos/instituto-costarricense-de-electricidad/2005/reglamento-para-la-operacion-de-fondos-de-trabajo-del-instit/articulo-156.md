@@ -1,0 +1,1 @@
+Artículo 156.—En la modalidad de fondos de trabajo con tarjeta de compras institucionales, es de acatamiento obligatorio la aplicación de las normas establecidas en el "Procedimiento de Control y Uso de la Tarjeta de Compras Institucionales", aprobado por la Subgerencia de Gestión Administrativa.

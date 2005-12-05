@@ -1,0 +1,3 @@
+Artículo 15.—Los plazos para la liquidación de los vales son los siguientes:
+Los gastos por alimentación, hospedaje y transporte (viáticos internos), deben ser cancelados dentro de los tres días hábiles posteriores al regreso de la gira. Dicho plazo debe estar considerado en la fecha de vencimiento establecida en este documento. Este plazo se duplicará para aquellos documentos que se generan en las Áreas Regionales y que deben ser aprobados por el Director de UEN o Director Administrativo.
+La adquisición de bienes y servicios, debe ser cancelada cinco días hábiles, después de la fecha de emisión del vale.

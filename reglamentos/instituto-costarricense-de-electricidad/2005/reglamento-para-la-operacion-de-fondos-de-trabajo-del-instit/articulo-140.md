@@ -1,0 +1,1 @@
+Artículo 140.—El uso de la tarjeta se rige por lo que estipula el presente Reglamento, en cuanto al proceso de adquisición y aprobación de la compra de bienes y servicios. El tarjeta habiente sólo podrá cotizar con proveedores que estén a.liados al sistema de tarjetas de compras institucional, excepto por lo indicado en el artículo 137 de este Reglamento.

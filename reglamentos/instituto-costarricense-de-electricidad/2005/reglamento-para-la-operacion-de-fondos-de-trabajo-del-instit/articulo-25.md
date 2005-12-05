@@ -1,0 +1,1 @@
+Artículo 25.—El funcionario que no cumpla con el artículo 24 de este Reglamento, no puede solicitar un nuevo vale, a no ser que el Director de UEN o Director Administrativo, rinda por escrito la autorización que corresponde.

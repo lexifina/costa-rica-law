@@ -1,0 +1,1 @@
+Artículo 113.—Previo a la emisión de un cheque, todo encargado de fondo debe asegurarse de la disponibilidad de dinero en la cuenta corriente, para evitar posibles devoluciones por parte del banco y las responsabilidades personales adicionales que esta situación provoca.

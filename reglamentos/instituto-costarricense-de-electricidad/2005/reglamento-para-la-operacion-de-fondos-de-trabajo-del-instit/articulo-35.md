@@ -1,0 +1,1 @@
+Artículo 35.—No se cancelan facturas mediante fondo de trabajo cuyo monto sea superior a los trescientos mil colones (¢300.000,00) y en caso de que el bien o servicio pueda ser provisto por alguna dependencia del ICE (Gestión de Documentación e Información, almacenes y otras), debe agotarse primeramente esa posibilidad.

@@ -1,0 +1,15 @@
+TRANSITORIO ÚNICO
+Para efectos de este Reglamento, las disposiciones relativas a la asignación semestral para cubrir contingencias en Fondos de Trabajo y Subfondos de Trabajo, que se indican a continuación, tendrán aplicación institucional hasta el 31 de diciembre de 2005, inclusive, quedando derogadas a partir de esa fecha.
+ASIGNACIÓN SEMESTRAL PARA CUBRIR CONTINGENCIAS
+EN FONDOS Y SUBFONDOS DE TRABAJO
+Artículo 1.—Con el fin de atender posibles contingencias en la administración de fondos y subfondos de trabajo, se debe aplicar a cada uno de ellos una asignación semestral equivalente al 25% del salario de contratación de un oficinista 2, a 48 horas.
+Artículo 2.—Cada semestre comprende el siguiente período: del 1° de enero al 30 de junio y del 1° de julio al 31 de diciembre de cada año. Si la administración del fondo durante ese período ha estado a cargo de varios encargados, se le asigna a cada uno de ellos la suma proporcional al número de días en que estuvo bajo su responsabilidad.
+Artículo 3.—Cuando por alguna causa un encargado del fondo o subfondo de trabajo deje su puesto temporalmente, la persona que lo sustituya tiene una asignación proporcional al período de sustitución, del respectivo monto semestral para cubrir contingencias.
+Artículo 4.—La suma señalada en el artículo 1 de este transitorio, es una asignación propia para el fondo de trabajo, por lo que las personas que cumplen funciones de encargados de fondos o subfondos de trabajo, no deben considerar éstas como ventajas incorporadas en el contrato individual de trabajo.
+Artículo 5.—Los sobrantes que se produzcan en los cierres diarios de operaciones, deben ser depositados a favor de la Institución a más tardar 24 horas después de detectados, en la Cuenta Matriz del Sector que corresponde, por el encargado del fondo o subfondo de trabajo. Asimismo, debe solicitar el registro a Contabilidad mediante carta explicativa y copia original del comprobante del depósito. Copia de esta carta debe ser remitida a la Auditoría.
+Artículo 6.—Cada UEN y Dirección Administrativa, debe consignar en el presupuesto anual de gastos, los montos correspondientes para cubrir las asignaciones semestrales de los fondos y subfondos.
+Artículo 7.—Los Directores de UEN, Directores Administrativos ó en su defecto el funcionario autorizado por ellos, son los responsables ante la Institución de mantener un control efectivo sobre las diferencias ocurridas en el fondo o subfondo de trabajo de su dependencia, el respectivo cálculo y liquidación de la asignación semestral que corresponde, reintegrar mediante la fórmula F-10-0029 - Comprobante de Gastos, así como el respectivo registro ante Contabilidad, mediante una carta y documentos que respalden la transacción realizada.
+Los registros y expedientes derivados de este control, son la base para la toma de decisiones en cuanto al ajuste de faltantes y para evaluar la labor del personal respectivo.
+(NOTA: Mediante sesión N° 5771 del 28 de noviembre de 2006, se modifica el anexo 13, al no constar dicho anexo en la publicación original, se transcribe ésta:
+"...Se modifica Anexo 13 por el siguiente”
+[imagen]

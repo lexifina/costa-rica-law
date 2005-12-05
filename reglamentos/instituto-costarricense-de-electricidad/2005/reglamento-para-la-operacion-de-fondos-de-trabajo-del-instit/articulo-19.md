@@ -1,0 +1,1 @@
+Artículo 19.—En todo vale sin excepción, debe detallarse el uso que se va a dar al dinero. En este sentido, la información incluida en los documentos que respaldan los gastos, debe coincidir con lo descrito en el vale, de lo contrario debe mediar una justificación del funcionario que aprobó el trámite.

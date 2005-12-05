@@ -1,0 +1,1 @@
+Artículo 161.—Se faculta a la Gerencia General, para que autorice la operación transitoria de procedimientos, que incluyan mejoras sustanciales en la Administración de Fondos de Trabajo, los cuales serán incorporados posteriormente a este Reglamento, según lo establecido en el artículo 160. Estas modificaciones deben ser informadas oficialmente a todo el personal.

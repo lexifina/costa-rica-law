@@ -1,0 +1,1 @@
+Artículo 155.—Gestión de Liquidez tiene la potestad de suspender el uso de tarjetas cuando se determine incumplimiento de la fecha establecida, para la presentación de liquidaciones, conciliación mensual (Art. 148) y a solicitud expresa de la dependencia donde opera la tarjeta o de la Auditoria Institucional.

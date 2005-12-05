@@ -1,0 +1,1 @@
+Artículo 117.—El encargado del fondo de trabajo debe mantener en caja, la cantidad mínima de fórmulas de cheques requeridas y el efectivo estrictamente necesario, con el fin de cubrir adelantos de dinero para gastos de alimentación, hospedaje y transporte (viáticos) y adquisición de materiales, en aquellos lugares donde no hay acceso a una entidad bancaria.

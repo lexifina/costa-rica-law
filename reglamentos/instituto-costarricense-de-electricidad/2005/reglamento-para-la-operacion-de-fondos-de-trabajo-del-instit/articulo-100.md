@@ -1,0 +1,5 @@
+Artículo 100.—Trámite para el cierre de un fondo de trabajo. Para el cierre de un fondo de trabajo, la UEN o Dirección Administrativa a la que pertenezca el fondo, deberá proceder según lo indicado en el Procedimiento "Cierre cuenta corriente de fondo de trabajo" y enviar a Gestión de Liquidez los siguientes documentos:
+Nota de solicitud de cierre del fondo de trabajo y de la respectiva cuenta corriente, con la debida justificación del cierre.
+Copia de la conciliación realizada a la fecha del cierre del fondo.
+Copia con el recibido conforme de la nota con la cual el encargado del fondo de trabajo solicitó a Contabilidad el registro del cierre del fondo y copia del comprobante del depósito del cheque emitido a nombre del ICE, para dejar la cuenta corriente con saldo 0.
+Copia del acta de destrucción de las fórmulas de cheques no utilizadas, la cual debe contener en detalle la cantidad y el número de las fórmulas destruidas, la firma del encargado del fondo de trabajo y del representante de la Unidad de Control.

@@ -1,0 +1,1 @@
+Artículo 137.—La clasificación 17 "Retiros de efectivo", se utiliza únicamente para pago de parqueos, transbordadores, viáticos, buses, taxis u otro medio de transporte. Sólo en casos de emergencia calificada y debidamente justificada por el superior jerárquico, se permite el uso de efectivo para la adquisición de bienes y servicios no contemplados en este artículo.

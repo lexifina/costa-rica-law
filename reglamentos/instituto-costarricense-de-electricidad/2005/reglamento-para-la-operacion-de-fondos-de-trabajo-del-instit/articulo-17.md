@@ -1,0 +1,1 @@
+Artículo 17.—El encargado del fondo debe mantener en su poder, una lista actualizada de los empleados autorizados para tramitar gastos en el Fondo de Trabajo. Ningún funcionario puede aparecer inscrito en dos o más fondos, excepto aquellos casos en que el Director de UEN o Director Administrativo, justifique esa necesidad.

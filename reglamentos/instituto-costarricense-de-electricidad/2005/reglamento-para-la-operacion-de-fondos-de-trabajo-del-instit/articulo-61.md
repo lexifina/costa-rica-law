@@ -1,0 +1,1 @@
+Artículo 61.—El Director de UEN, Director Administrativo y unidades de control interno, son los responsables de velar porque los funcionarios involucrados directa o indirectamente en la administración y uso de un fondo de trabajo, cumplan con las normas y políticas establecidas en este Reglamento y demás regulaciones conexas.

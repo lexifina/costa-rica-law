@@ -1,0 +1,1 @@
+Artículo 92.—Gestión de Liquidez, tiene la potestad de suspender el trámite de reembolso de las solicitudes de reintegro de un fondo de trabajo, en caso de determinar anomalías en el funcionamiento del mismo o por razones y causas debidamente justificadas por alguna de las dependencias involucradas en este proceso.

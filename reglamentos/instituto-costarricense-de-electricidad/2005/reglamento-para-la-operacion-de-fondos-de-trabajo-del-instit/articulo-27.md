@@ -1,0 +1,1 @@
+Artículo 27.—El Coordinador del Área, responsable del fondo de trabajo debe gestionar ante el funcionario que aprobó el vale, la cancelación del mismo en un plazo no mayor a 24 horas, en caso contrario, deberá presentar la justificación que corresponda dentro de este mismo lapso.

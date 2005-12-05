@@ -1,0 +1,1 @@
+Artículo 23.—El encargado del fondo de trabajo, debe revisar semanalmente las fechas de vencimiento de los vales emitidos y gestionar con los responsables de cada uno de ellos, su oportuna cancelación.

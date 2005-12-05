@@ -1,0 +1,11 @@
+Artículo 95.—Para la creación de un nuevo fondo de trabajo el Centro de Trabajo debe formular la solicitud correspondiente, mediante nota cumpliendo con los siguientes requisitos.
+Completar la información de la fórmula F-10-0052 "Solicitud de Fondo de Trabajo", la cual debe contener la respectiva justificación.
+Adjuntar las proyecciones de los gastos para un período de un año, según el número de funcionarios que harán uso del mismo.
+Cuando sea el caso, indicar cuál o cuáles fondos de trabajo, han estado cubriendo los gastos que se van a pagar mediante el nuevo fondo, para trasladar la suma que corresponde.
+Nombre completo y número de cédula de dos funcionarios autorizados para operar el fondo de trabajo: un titular y un suplente, quienes no deben estar facultados para aprobar gastos ni solicitudes de liquidación.
+Nombre completo y número de cédula de por lo menos tres funcionarios autorizados a girar contra la cuenta corriente, el encargado y suplente del fondo y una persona más, que no esté autorizada para aprobar gastos, debidamente firmada por el Director de UEN o Director Administrativo.
+Nombre completo y número de cédula de los funcionarios autorizados para aprobar gastos y vales, debidamente firmada por el Director de UEN o Director Administrativo.
+Completar el formulario "Registro de Autorizaciones de Fondos Trabajo", con los funcionarios autorizados para aprobar compras y vales, girar en cuentas corrientes, aprobar liquidaciones, y autorizar o modificar tarjetas de compras institucionales, debidamente firmada por el Director de UEN o Director Administrativo.
+Sólo en casos de excepción debidamente justificados por escrito, el Director de UEN o Director Administrativo, podrá autorizar a un funcionario a aprobar en dos conceptos a la vez: girar contra cuenta corriente, gastos - vales y liquidaciones indicados en los incisos e), f) y g) de este artículo. Se excluyen de esta facultación al encargado y suplente del fondo de trabajo.
+Confeccionar nota para solicitar la apertura de una cuenta corriente firmada por el Director de la UEN o Director Administrativo. Adjuntar fotocopias de las cédulas de identidad vigentes de los funcionarios autorizados a girar contra la misma.
+En caso de modificación en la facultación de firmas, se debe actualizar la documentación que corresponda.

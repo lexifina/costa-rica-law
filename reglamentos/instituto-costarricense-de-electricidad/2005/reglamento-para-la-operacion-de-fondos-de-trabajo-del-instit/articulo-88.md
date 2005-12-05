@@ -1,0 +1,1 @@
+Artículo 88.—Una vez que el Ejecutivo de Fondos de Trabajo en Gestión de Liquidez, recibe la documentación original, verifica que el monto total del Reporte "Cuentas por Reintegro Resumido", coincida con el recibido vía sistema WEB y que contengan las firmas originales de los autorizados que corresponden.

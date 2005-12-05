@@ -1,0 +1,1 @@
+Artículo 81.—El Director de la UEN o Director Administrativo, es responsable de velar porque las excepciones sean las mínimas y cuenten con su respectiva justificación, de manera que esta información esté disponible en caso de un eventual estudio por parte de la Auditoria, Unidades de Control Interno, la Administración Superior o Dirección General de Tributación.

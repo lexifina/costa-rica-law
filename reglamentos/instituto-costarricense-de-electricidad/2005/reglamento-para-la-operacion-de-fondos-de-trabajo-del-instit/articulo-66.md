@@ -1,0 +1,1 @@
+Artículo 66.—El Coordinador de Presupuesto de cada dependencia puede realizar durante el año ajustes a la estimación inicial, ya sea para aumentar o disminuir los recursos asignados a una determinada estructura, para ello deberá modificar el monto consignado en el módulo de compromisos del sistema de presupuesto.

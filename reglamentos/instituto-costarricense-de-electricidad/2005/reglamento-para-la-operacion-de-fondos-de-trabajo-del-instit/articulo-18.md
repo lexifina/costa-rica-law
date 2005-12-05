@@ -1,0 +1,1 @@
+Artículo 18.—El trámite de adelanto de dinero se realiza en forma personal, contra la presentación obligatoria del carné que lo identifica como funcionario ICE. En ningún caso, se debe entregar dinero en vales que incluyan varios funcionarios, excepto aquellos casos calificados debidamente justificados por su superior jerárquico autorizado.

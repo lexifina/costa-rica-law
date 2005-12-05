@@ -1,0 +1,1 @@
+Artículo 114.—Si por alguna razón un cheque es devuelto por el Sistema Bancario Nacional, el encargado del fondo que emitió el cheque debe depositar en la cuenta corriente del fondo de trabajo, de sus propios recursos los recargos cobrados por el banco, independientemente de la responsabilidad que asuma por este hecho.

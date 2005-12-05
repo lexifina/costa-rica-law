@@ -1,0 +1,1 @@
+Artículo 45.—Si el monto total de la factura es superior al máximo autorizado por la Contraloría General de la República para hospedaje, debe indicarse el monto que procede cancelarse. En este sentido, el encargado del fondo no debe cancelar el excedente entre el monto total de la factura y la tarifa vigente para este concepto.

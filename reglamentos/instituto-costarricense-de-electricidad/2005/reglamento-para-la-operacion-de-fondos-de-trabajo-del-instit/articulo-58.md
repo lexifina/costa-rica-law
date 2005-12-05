@@ -1,0 +1,1 @@
+Artículo 58.—De ser necesario, el Director de la UEN o Director Administrativo tiene la potestad de nombrar un nuevo titular o suplente y la responsabilidad de asegurarse de que el nuevo encargado reciba la capacitación requerida para la correcta operación del fondo, así como solicitar inmediatamente a Gestión de Liquidez su incorporación en el respectivo registro.
