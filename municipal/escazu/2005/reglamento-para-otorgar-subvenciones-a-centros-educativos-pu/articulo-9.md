@@ -1,0 +1,1 @@
+Artículo 9º—Para acreditar en sede administrativa el incumplimiento de las condiciones dispuestas en el convenio correspondiente por parte del centro educativo, de beneficencia o servicio social, se instaurará el procedimiento a que se refiere el artículo 308 y siguientes de la Ley General de la Administración Pública, competencia que será propia de la Administración.
