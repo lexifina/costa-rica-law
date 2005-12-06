@@ -1,0 +1,36 @@
+7º—Normas aplicables.
+-De conformidad con el artículo 765 del Código Civil, cualquiera puede pagar en nombre del deudor, aun oponiéndose éste o el acreedor; sin embargo, al operar un pago a través de un tercero, deberán tenerse presente las disposiciones que se refieren a la reinstalación de los servicios liquidados contablemente.
+-Todo arreglo de pago devengará intereses corrientes y moratorios sobre amortizaciones vencidas pendientes de pago, cuya tasa será la misma que esté vigente al momento de la suscripción del arreglo para ambos conceptos, tasas que serán definidas por la Subgerencia Gestión Administrativa en forma trimestral.
+-Cuando un arreglo de pago sea cancelado en su totalidad antes de la fecha de su vencimiento, solo se le aplicarán los intereses corrientes a la fecha de pago y los intereses moratorios, si corresponden.
+-Todo documento que medie en la formalización de un arreglo de pago, deberá confeccionarse en forma nítida, sin alteraciones en la información como: números o letras dudosas, tachaduras, borrones o contradicciones y cumplir con los requisitos previstos por la Ley.
+Lo anterior, obedece a que este tipo de documentos se constituyen en títulos ejecutivos, que en caso de incumplimiento de pago, deberán ser aportados en sede judicial, como prueba de la obligación pecuniaria incumplida.
+-Es obligación del funcionario que formalice un arreglo de pago, instruir al deudor y en caso de que corresponda, a sus fiadores, sobre los términos en que se está firmando el documento, a saber:
+a. Monto neto de la deuda
+b. Tasa de interés corrientes y moratorios
+c. Plazo de cancelación
+d. Cuota mensual
+e. Fecha y lugar de Cancelación, según corresponda
+f. Efectos que causaría el incumplimiento del pago de la deuda, según la condiciones pactadas.
+-Los arreglos de pago podrán ser tramitados bajo las siguientes modalidades:
+a) Pagaré suscrito únicamente por el sujeto deudor (sin garantía real o personal). Este tipo de arreglo será tramitado por los funcionarios de Agencias y procede únicamente cuando el saldo al descubierto sea superior a ¢10.000,00 (diez mil colones exactos), e inferior a ¢1.000.000,00 (un millón de colones exactos), los cuales, podrán tener un plazo de cancelación máximo de 12 meses y deberán contar con el Visto Bueno del jefe de la Agencia respectiva. En los casos que el cliente manifieste su imposibilidad de cancelar dentro del plazo antes indicado, corresponderá a la jefatura de agencia autorizar la cancelación de la deuda, en un plazo máximo de 24 meses.
+b) Pagaré con aporte de garantía real o personal (fiadores). Este tipo de arreglo procede cuando el saldo al descubierto sea superior a los ¢10.000,00 (diez mil colones exactos) y el sujeto deudor solicite la continuidad del servicio moroso, o bien, la reinstalación de un servicio liquidado, mismos que podrán tener un plazo de cancelación máximo de 12 meses, cuando sean aprobados por el jefe de Agencia; 24 meses cuando sea aprobado por el jefe de CAIC y/o Dirección Regional; 36 meses cuando sea aprobado por el Director de UEN y será discrecional, cuando sea aprobado por cualquiera de las Subgerencias, Gerencia General, o bien, por la Presidencia Ejecutiva. En el caso de las dependencias de la Administración Superior, la aprobación podrá ser hecha por el jerarca respectivo ó por la persona que éste delegue para tales efectos.
+En ambos casos, la cantidad de cuotas y el monto de las mismas, así como el tipo de garantía por ofrecer (cuando corresponda), sea ésta real o personal, deberán definirse de acuerdo con las posibilidades económicas del deudor.
+Sin excepción, todo arreglo de pago deberá ser formalizado mediante la suscripción de un Pagaré, ello con la finalidad de dejar constancia de la aceptación por parte del deudor, del pendiente que mantiene con la institución.
+-El pago de la primer cuota, así como el de las restantes, deberá ser definido al momento de negociar las condiciones de pago, del arreglo correspondiente.
+-Para cargar deudas a un servicio activo del mismo cliente, o de un tercero, será requisito indispensable, contar con la autorización escrita del cliente titular del servicio.
+-Sin excepción, todo arreglo de pago sin garantía real o personal, implicará que el servicio objeto del arreglo, deberá mantenerse suspendido hasta tanto la deuda no sea debidamente cancelada, tratándose de servicios telefónicos activos, al operar este tipo de arreglos, deberá hacerse el retiro temporal sin costo para el cliente, debiendo éste cancelar durante el plazo del arreglo, la tarifa básica, otros cargos debidamente autorizados y la cuota del arreglo de pago.
+Una vez cancelada la deuda, el servicio será reinstalado de oficio.
+-Tratándose de servicios que se encuentren liquidados contablemente y sobre los cuales se haya efectuado un arreglo de pago con garantía real o personal, la reinstalación únicamente podrá ser solicitada por su titular, o bien, por un tercero debidamente autorizado para tales efectos.
+-Únicamente se permitirá un arreglo de pago activo por cédula.
+-Las personas que se ofrezcan como fiadores, no podrán ser morosas con la Institución y deberán cumplir los siguientes requisitos:
+a. Cualquier persona asalariada con más de un año de laborar para una misma empresa o institución, o bien, cualquier persona con ingresos propios, para lo cual, deberá aportar constancia de salario emitida por el patrono y/o certificación de ingresos emitida por un Contador Público Autorizado, respectivamente.
+Sin embargo, en todo arreglo de pago, al menos un fiador deberá ser asalariado.
+b. El Presidente o Apoderado General o Generalísimo de una Empresa, puede suscribir el arreglo como representante de la misma y a la vez, en su carácter personal, servir como fiador solidario de la deuda.
+c. Deberán ser de nacionalidad costarricense o bien, extranjeros con residencia permanente en el país.
+d. No podrán ser fiadores los extranjeros sin residencia temporal en el país ni personas pensionadas.
+e. Tratándose de servicios telefónicos, el fiador necesariamente deberá ser titular de al menos un servicio telefónico.
+-La refundición de cuentas de un mismo cliente, podrá ser realizada con la autorización como mínimo del jefe de la Agencia Telefónica
+-Eléctrica, toda vez que es importante propiciar el pago de todas las deudas de los sujetos morosos en un mismo arreglo.
+-Las presentes disposiciones regularán los arreglos de pago por deudas contraídas por personas físicas o jurídicas con la Institución.
+-Estas disposiciones no se aplicarán a las deudas surgidas por la emisión de cheques devueltos, aunque su giro hubiese obedecido a la cancelación de los servicios telefónicos ó eléctricos, ya que los mismos se podrán tramitar en la vía penal correspondiente, siempre que fuere procedente. Tampoco regirá para deudas por concepto de guía telefónica, servicios 900, 900 Membresía, 900 En línea, y Telegrafía Nacional o Internacional, u otras que no correspondan a servicios propiamente prestados por este Instituto.
+-Las condiciones expresadas en este procedimiento podrán ser variadas únicamente con el visto bueno de la Presidencia Ejecutiva, Gerencia General y por las Subgerencias, o bien, por las personas en que los Titulares de dichas dependencias, deleguen esa responsabilidad.
