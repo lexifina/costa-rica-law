@@ -1,0 +1,1 @@
+Artículo 2º—Toda solicitud que haya ingresado antes de la publicación del presente decreto seguirá su trámite conforme lo dispuesto por el Código de Minería y su reglamento. Asimismo se respetarán los derechos adquiridos mediante concesión.
