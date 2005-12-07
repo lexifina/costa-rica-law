@@ -1,1 +1,0 @@
-Artículo 22.—Como complemento de su formación integral, el becario con beca 0 deberá cumplir con el servicio becario consistente en cooperar en las actividades académicas de proyectos de investigación, laboratorios, biblioteca, asistencia al personal docente y otras actividades afines al quehacer educativo de la propia Institución.

@@ -1,1 +1,0 @@
-Artículo 21.—El becario deberá actualizar con diligencia todos los documentos que acrediten el tipo de beca asignada cuando el calendario o la comisión de becas se lo soliciten. El incumplimiento producirá la suspensión y/o la pérdida automática de la beca asignada.

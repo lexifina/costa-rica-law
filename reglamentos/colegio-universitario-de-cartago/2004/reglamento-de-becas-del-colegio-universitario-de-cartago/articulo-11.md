@@ -1,1 +1,0 @@
-Artículo 11.—La Comisión de Becas estará integrada por la Jefatura del Servicio de Bienestar Estudiantil y Acción Social, quien la preside, el Director Académico o a quien éste designe y un Representante Estudiantil nombrado por la Federación de Estudiantes, el cual durará un año en su cargo.

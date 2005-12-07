@@ -1,1 +1,0 @@
-Artículo 25.—El becario debe aceptar que su cooperación en las actividades académicas y otras definidas en el servicio becario no implican una relación laboral, ni una prestación de servicios y no está sujeta a ninguna remuneración económica.
