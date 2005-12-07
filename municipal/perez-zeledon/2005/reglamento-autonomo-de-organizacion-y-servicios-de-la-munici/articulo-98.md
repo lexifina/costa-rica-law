@@ -1,0 +1,1 @@
+Artículo 98.—Agotamiento del trámite administrativo. Agotados los procedimientos internos, la partes podrán acudir a los Tribunales Laborales ordinarios o en su caso a la Justicia Penal Ordinaria, de conformidad con el artículo 18 de la Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia, Ley Nº 7476.

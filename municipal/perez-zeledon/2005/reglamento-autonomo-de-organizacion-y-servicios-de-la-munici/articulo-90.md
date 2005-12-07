@@ -1,0 +1,1 @@
+Artículo 90.—Sanciones. Las faltas o violaciones a estas u otras disposiciones contenidas en la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, del Código de la Niñez y la Adolescencia y de las normas que dan fundamento al Programa Ciudadano de Oro de la CCSS se sancionarán como falta grave.

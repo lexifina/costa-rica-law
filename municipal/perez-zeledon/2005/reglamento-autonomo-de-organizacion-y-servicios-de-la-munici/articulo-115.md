@@ -1,0 +1,5 @@
+Artículo 115.—Principios de recepción de la queja. En este procedimiento de recepción de la queja prevalecerán los siguientes principios:
+a) Principio de Inmediatez de la noticia de la falta o “notitia criminis”: que implica que el funcionario que atienda la queja deberá ser diligente en su atención procurando darle prioridad sobre cualquier otro asunto que esté atendiendo en ese momento y considerando que deberá consignar documentalmente todos los detalles y aspectos que aporte el quejoso, aunque en este sentido los considere irrelevantes.
+b) Principio del Deber de Confidencialidad: Atenderá la denuncia con absoluta confidencialidad, procurando que nadie más que su persona y el quejoso, tengan conocimiento de lo ocurrido.
+c) Principio de Provisión de la Prueba: Procurará que toda la prueba existente o posible de ser obtenida en ese mismo acto sea incorporada en ese preciso momento.
+d) Principio de Traslado Inmediato: Si el funcionario que recibe la queja no es el competente para tramitarla deberá darle traslado de inmediato y con carácter prioritario a quien sí puede hacerlo.

@@ -1,0 +1,2 @@
+Transitorio 3º—Aplicación del beneficio del artículo 42. El beneficio de Carrera Profesional establecido en el artículo 42 de este Reglamento quedará en suspenso hasta tanto el Proceso de Recursos Humanos elabore un estudio formal y técnico que contemple la viabilidad económica del reconocimiento de este beneficio. Se requerirá de un acuerdo del Concejo Municipal a efecto de que este reconocimiento pueda hacerse efectivo una vez que sea viable económicamente.
+San Isidro de El General, Pérez Zeledón, 12 de octubre del 2005.

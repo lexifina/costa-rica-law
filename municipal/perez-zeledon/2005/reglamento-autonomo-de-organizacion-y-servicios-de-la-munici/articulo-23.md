@@ -1,0 +1,6 @@
+Artículo 23.—Plaza vacante. Al quedar una plaza vacante, se procederá de la siguiente forma:
+a) Se ascenderá al empleado inmediato inferior en grado del mismo proceso, subproceso, actividad o subactividad y que esté calificado para el efecto.
+b) De no haber empleado o funcionario municipal capaz de llenar la plaza vacante en el proceso, subproceso, actividad o subactividad, de conformidad con el manual descriptivo de puestos, se sacará a concurso interno la plaza a nivel municipal y para el mismo los trabajadores gozarán en su favor de la antigüedad.
+c) En caso de inopia o si no hubiere interés de ningún empleado para concursar en la plaza vacante, la Municipalidad podrá sacarla a concurso externo, publicado por lo menos en un diario de circulación nacional y con las mismas condiciones del concurso interno.
+d) Cuando el Proceso de Recursos Humanos saque una plaza a concurso externo lo hará del conocimiento de todos los empleados mediante comunicación, que se hará ocho días hábiles antes de la fecha del concurso. También se hará la comunicación al coordinador o presidente de la Junta de Relaciones Laborales en caso de existir ésta.
+e) Tratándose de la contratación de profesionales el nombramiento debe de ajustarse a lo que dicte la Ley Constitutiva del respectivo Colegio Profesional y el Manual Descriptivo de Puestos.

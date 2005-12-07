@@ -1,0 +1,1 @@
+Artículo 33.—Contenido del expediente. El expediente de personal deberá contener todos aquellos documentos, evaluaciones, acciones de personal y demás datos que sirvan para determinar el historial de la relación de servicios del funcionario con la Municipalidad. Será responsabilidad del funcionario (a) actualizar su expediente.

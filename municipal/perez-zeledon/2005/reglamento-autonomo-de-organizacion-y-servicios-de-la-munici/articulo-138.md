@@ -1,0 +1,1 @@
+Artículo 138.—Pago de vacaciones. El pago de las vacaciones se hará con base en el promedio de los salarios ordinarios devengados por el servidor (a) durante las cincuenta semanas anteriores a adquirir el derecho, o durante el tiempo que le diera el derecho proporcional.

@@ -1,0 +1,2 @@
+Artículo 52.—Modalidad de los ascensos. El trabajador ascendido comenzará a percibir el sueldo mínimo de la nueva categoría. Sin embargo, si en el antiguo puesto hubiera ganado uno o más grados de escala de salarios (aumentos por anualidad), estos se le computaran dé acuerdo con la categoría del cargo al cual se le asciende.
+De igual forma es aplicable para los casos de reclasificación, revaloración o para todos aquellos casos en que al trabajador se le varíe la categoría.

@@ -1,0 +1,1 @@
+Artículo 48.—Manual de Incentivos y Pluses Salariales. Con el objeto de incentivar la gestión de los funcionarios municipales y crear una mejora en el clima organizacional existirá un manual de Incentivos y pluses salariales que definirá técnicamente la existencia de los mismos y su forma de aplicación y vigencia.

@@ -1,0 +1,1 @@
+Artículo 49.—Deber de las autoridades municipales. El Concejo Municipal a instancia del Alcalde Municipal tendrá la facultad y obligación de liderar, promover, generar, desarrollar y aprobar los Manuales que describe este Reglamento y de mantenerlos actualizados.

@@ -1,0 +1,6 @@
+Artículo 152.—Jornada ordinaria. La jornada de trabajo ordinaria para los trabajadores de la Municipalidad será continua acumulativa de cuarenta y cuatro horas semanales y se rige por el siguiente horario:
+a) Personal de planta o administrativo: De lunes a jueves de las siete a las dieciséis horas y los viernes de las siete a las quince horas.
+b) Personal técnico y/o de campo: De lunes a jueves de las seis a las quince horas y los viernes de las seis a las catorce horas.
+Quedan exceptuados de la anterior jornada, aquellos empleados que por la índole de sus funciones y el servicio que prestan los obligue a servir en una jornada ordinaria normal que incluye el día sábado o domingo en el tanto que no es acumulativa, además de las jornadas extraordinarias y de carácter rotativo que existen para algunos centros de trabajos.
+La Alcaldía Municipal, de común acuerdo con algunos funcionarios del nivel político, del nivel de asesoría y los de alta jerarquía del nivel de ejecución podrá establecer horarios de servicio distintos para estos funcionarios considerando las necesidades del servicio brindado y los requerimientos de la organización.
+Es obligación de la Municipalidad informar por los medios adecuados a los contribuyentes y publico en general de los horarios ordinarios.

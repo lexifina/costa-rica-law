@@ -1,0 +1,1 @@
+Artículo 60.—Derecho a la propiedad del cargo. El empleado municipal tiene el derecho de permanecer en su cargo en propiedad, salvo que incurran en causal de despido punitivo, según lo establece el Ordenamiento Jurídico vigente, sin detrimento de lo establecido en el artículo 22 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 20.—Exigibilidad de un manual. La Municipalidad para efectos de Reclutamiento y Selección de Personal, mantendrá actualizado un Manual de Reclutamiento y Selección, que fijará las pautas para garantizar la uniformidad de los procedimientos y los criterios de equidad que exige la normativa legal en esta materia.

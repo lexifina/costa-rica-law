@@ -1,0 +1,5 @@
+Artículo 87.—De las medidas de protección. Dentro de la institución se establecerán mecanismos necesarios y suficientes para garantizar la igualdad de oportunidades de las personas con discapacidad, de los adultos mayores y de los menores de edad siguiendo como base los siguientes criterios mínimos:
+a) Que la institución sirva como instrumento a las personas con discapacidad, a los adultos mayores y a los menores de edad para que alcancen se máximo desarrollo, su plena participación social, así como el ejercicio de los derechos y deberes establecidos en el sistema de derecho.
+b) Garantizar la igualdad de oportunidades para la población costarricense en ámbitos como: salud, educación, trabajo, vida familiar, recreación, deportes, cultura y todos los demás ámbitos de desarrollo posibles y existentes.
+c) Eliminar cualquier tipo de discriminación hacia las personas con discapacidad, los adultos mayores y los menores de edad.
+d) Establecer las bases jurídicas y materiales que le permitan a la comunidad del cantón adoptar medidas necesarias para la equiparación de oportunidades y la no discriminación de estos grupos de interés.

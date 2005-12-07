@@ -1,0 +1,2 @@
+Artículo 8º—Función de enlace del Alcalde. El Alcalde Municipal, es el enlace entre el Concejo Municipal y los servidores de la Municipalidad. Es el funcionario de mayor jerarquía administrativa dentro de la Institución, por lo que toda información por parte de la Administración que sea dirigida al Concejo Municipal a de ser remitida a través de su despacho y viceversa.
+A éste corresponde la presentación ante el Concejo de toda iniciativa que surja de la Administración y de los informes que ésta presente ante dicha instancia.

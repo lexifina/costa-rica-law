@@ -1,0 +1,1 @@
+Artículo 69.—Calificación de suficiente. Cuando el resultado de la evaluación y calificación de servicios anual del servidor (a) sea de “Suficiente” por dos veces consecutivas, el hecho, se considerará falta grave y se actuará conforme a lo establecido en materia sancionatoria en este reglamento y el Código Municipal.

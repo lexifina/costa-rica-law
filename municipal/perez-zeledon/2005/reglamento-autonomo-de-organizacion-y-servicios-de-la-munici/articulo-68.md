@@ -1,0 +1,1 @@
+Artículo 68.—Del desacuerdo. El desacuerdo entre el coordinador inmediato y el colaborador (a) en relación con el resultado de la evaluación y calificación de servicios, será resuelto por el Alcalde de la Municipalidad en acto motivado y fundado, previa audiencia a todas las partes interesadas. Este acto podrá ser impugnado por el servidor de conformidad con el Código Municipal.

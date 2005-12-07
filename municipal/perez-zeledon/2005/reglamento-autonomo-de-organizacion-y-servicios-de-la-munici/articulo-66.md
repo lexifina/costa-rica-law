@@ -1,0 +1,1 @@
+Artículo 66.—Aplicación de la evaluación. La evaluación y calificación de servicios en la Municipalidad de Pérez Zeledón, deberá darse a los servidores (as) nombrados (as) en propiedad que durante el año hayan trabajado continuamente.

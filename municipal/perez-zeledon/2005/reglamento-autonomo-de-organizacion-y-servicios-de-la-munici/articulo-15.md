@@ -1,0 +1,1 @@
+Artículo 15.—Del incumplimiento de los deberes. El incumplimiento de estos deberes con carácter intencional o culposo, comprobado mediante las reglas del debido proceso, dará lugar a la aplicación de la respectiva sanción de las previstas en el Código Municipal en el artículo 149, 150 y siguientes así como en las descritas por este Reglamento.

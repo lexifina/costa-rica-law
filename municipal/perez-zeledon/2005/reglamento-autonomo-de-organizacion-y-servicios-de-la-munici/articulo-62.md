@@ -1,0 +1,1 @@
+Artículo 62.—Error o dolo del funcionario. No se puede alegar derecho cuando la circunstancia razón o pretensión se origine en una reiterada violación legal o reglamentaria, o cuando se haya concedido por error.

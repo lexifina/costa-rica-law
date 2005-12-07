@@ -1,0 +1,1 @@
+Artículo 112.—Del procedimiento ordinario. A efectos de sancionar las faltas graves y gravísimas de los funcionarios (as) se seguirá, bajo pena de nulidad absoluta, el procedimiento ordinario conforme lo disponen los siguientes artículos.
