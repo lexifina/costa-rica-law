@@ -14,3 +14,4 @@ Reglamento de Asignación y uso de los Teléfonos Celulares en la Institución
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-02 | la propia norma |
+| 2 | 2005-12-08 | Reglamento 465 (2005-12-08) |
