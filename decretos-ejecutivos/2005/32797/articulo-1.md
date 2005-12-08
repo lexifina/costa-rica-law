@@ -1,0 +1,17 @@
+Nº 32797
+EL PRESIDENTE DE LA REPÚBLICA
+LA MINISTRA DE LA PRESIDENCIA
+Y LA MINISTRA DE SALUD
+En ejercicio de las facultades que les confieren los artículos 140, incisos 3) y 18) y 180 de la Constitución Política, artículos 25, inciso 1), 27, inciso 1), 28, incisos b) y j), de la Ley N° 6227 del 2 de mayo de 1978, Ley General de la Administración Pública, artículo 5º de la Ley N° 7914 del 28 de setiembre de 1999, Ley Nacional de Emergencia.
+Considerando:
+1º—Que la Empresa de Servicios Públicos de Heredia constató en el año 2004 que existía una contaminación en el pozo de agua potable AB- 1089 y en el Acuífero Colima Superior por presencia de hidrocarburos.
+2º—Que fue conformada una comisión interinstitucional para el análisis, seguimiento y control de la situación generada por esta contaminación, la cual la integran las siguientes instituciones: Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento, el Instituto Nacional de Acueductos y Alcantarillados, la Empresa de Servicios Públicos de Heredia, el Ministerio de Salud, la Municipalidad de Belén, Refinadora Costarricense de Petróleo y la Universidad de Costa Rica.
+3º—Que esa comisión ha realizado los esfuerzos institucionales que están a su alcance para controlar esta situación, tales como perforaciones exploratorias, redes de monitoreo de agua, pero a la fecha no se ha podido controlar la contaminación en aguas y suelos con los medios ordinarios de que dispone el Gobierno y esta situación se agravó con la aparición de gasolina, además del hidrocarburo menos volátil encontrado inicialmente.
+4º—Que esta contaminación se encuentra retenida a veinte metros de profundidad, desconociéndose la amplitud de la pluma de contaminación.
+5º—Que esta contaminación afecta sensiblemente la salud de las personas, así como el medio ambiente y el desarrollo urbano e industrial, además que ha causado que el pozo detectado contaminado salga de uso como agua de consumo humano.
+6º—Que la contaminación existente amenaza con extenderse a otros cantones en dirección del flujo de aguas subterráneas, afectando a diferentes usuarios públicos, tales como la Municipalidad de Belén, AyA, ESPH, y privados del agua subterránea y se requiere por ello una respuesta técnica adecuada.
+7º—Que la salud de la población es un bien de interés público tutelado por el Estado, quien debe velar por la protección de la vida, la seguridad de los habitantes y en general la conservación del orden social.
+8º—Que la Ley Nacional de Emergencia dispone que en caso de calamidad pública ocasionada por hechos de la naturaleza o del hombre que son imprevisibles o previsibles pero inevitables y no puedan ser controlados, manejados ni dominados con las potestades ordinarias de que dispone el Gobierno, el Poder Ejecutivo podrá declarar emergencia nacional a fin de integrar y definir las responsabilidades y funciones de todos los organismos, entidades públicas, privadas y poder brindar una solución acorde a la magnitud del desastre.
+9º—Que en razón de lo expuesto se hace necesaria la promulgación de un marco jurídico para tomar las medidas de excepción que señala la Ley Nacional de Emergencia para hacerle frente a los efectos ocasionados por la situación descrita y mitigar las consecuencias que ha ocasionado. Por lo tanto,
+DECRETAN:
+Artículo 1º—Se declara estado de emergencia nacional la situación generada por el derrame de hidrocarburos ocurrido en el pozo de agua potable AB-1089 y en el Acuífero Colima Superior.
