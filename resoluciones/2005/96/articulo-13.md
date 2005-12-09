@@ -1,0 +1,2 @@
+Artículo 13.—Fundamentación del acto de desestimación o archivo de denuncias: La desestimación o archivo de las denuncias se realizará mediante un acto debidamente motivado donde acredite los argumentos valorados para tomar esa decisión.
+Cuando en las Áreas de Fiscalización se desestime la atención de asuntos denunciados, esa situación deberá quedar debidamente acreditada en los papeles de trabajo de la investigación y en la razón de archivo correspondiente o en las herramientas que defina la División de Fiscalización Operativa y Evaluativa.

@@ -1,0 +1,1 @@
+Artículo 4º—Área de Denuncias y Declaraciones Juradas: el Área de Denuncias y Declaraciones Juradas de la División de Fiscalización Operativa y Evaluativa será la unidad de la Contraloría General encargada de valorar la admisibilidad de las denuncias presentadas ante este órgano contralor, conforme a lo establecido en estos Lineamientos.

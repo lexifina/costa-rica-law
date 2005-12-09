@@ -1,0 +1,1 @@
+Artículo 10.—Direccionamiento de las denuncias: La Contraloría General procurará que los jerarcas de las instituciones públicas y las auditorías internas, atiendan las denuncias que les sean remitidas por este órgano contralor relacionadas con sus competencias específicas, de conformidad con lo establecido en la Ley General de Control Interno y demás normativa vigente.
