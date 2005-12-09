@@ -1,0 +1,1 @@
+Artículo 4º—Plazos. Los plazos de los créditos se determinarán tomando en cuenta la naturaleza del plan de inversión y la capacidad de pago de los deudores, de conformidad con las políticas financieras del Banco.

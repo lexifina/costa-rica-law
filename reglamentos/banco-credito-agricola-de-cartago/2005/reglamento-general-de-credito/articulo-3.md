@@ -1,0 +1,1 @@
+Artículo 3º—Del monto a financiar. Los créditos se otorgarán por el monto indispensable para ejecutar el plan de inversión y de acuerdo a la capacidad de pago. El Banco se reserva el derecho de solicitar que el deudor participe en proporción al riesgo a asumir y según las características de la actividad a financiar, así como establecer el importe de dicha participación.

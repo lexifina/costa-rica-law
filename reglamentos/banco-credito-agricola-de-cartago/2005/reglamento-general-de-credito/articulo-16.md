@@ -1,0 +1,2 @@
+Artículo 16.—Del cobro judicial. El Banco podrá dar por vencido el plazo y hacer exigible la deuda en forma anticipada, por el atraso de un pago de intereses o abono al principal, por el incumplimiento o desviación del plan de inversión o de alguno de los requisitos o condiciones establecidas para el otorgamiento del crédito o durante la vigencia de éste.
+El incumplimiento de cualquiera de las condiciones establecidas en el contrato de crédito, facultará al Banco para iniciar las respectivas acciones judiciales para la recuperación del crédito.
