@@ -15,3 +15,4 @@ Reglamento del Fondo de Ayuda y Socorro Mutuo (FASMU)
 | --- | --- | --- |
 | 1 | 2001-06-27 | la propia norma |
 | 2 | 2001-12-09 | Reglamento 114 (2001-12-09) |
+| 3 | 2005-12-10 | Reglamento 1 (2005-12-10) |
