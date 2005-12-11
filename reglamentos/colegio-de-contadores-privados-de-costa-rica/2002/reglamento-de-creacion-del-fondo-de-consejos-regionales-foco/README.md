@@ -15,3 +15,4 @@ Reglamento de Creación del Fondo de Consejos Regionales (FOCORE)
 | --- | --- | --- |
 | 1 | 2003-04-11 | la propia norma |
 | 2 | 2003-12-14 | Reglamento 89 (2003-12-14) |
+| 3 | 2005-12-11 | Reglamento 116 (2005-12-11) |
