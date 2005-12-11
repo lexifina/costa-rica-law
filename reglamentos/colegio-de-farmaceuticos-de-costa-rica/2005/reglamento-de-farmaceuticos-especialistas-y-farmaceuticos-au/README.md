@@ -14,3 +14,4 @@ Reglamento de Farmacéuticos Especialistas y Farmacéuticos Auditores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-14 | la propia norma |
+| 2 | 2005-12-11 | Reglamento 0 (2005-12-11) |

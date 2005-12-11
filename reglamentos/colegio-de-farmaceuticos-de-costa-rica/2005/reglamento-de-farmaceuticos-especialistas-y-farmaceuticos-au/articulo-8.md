@@ -1,11 +1,12 @@
-Artículo 8º—Para el ejercicio de las actividades propias como auditor farmacéutico, es indispensable la inscripción en el Registro de Auditores Farmacéuticos y contar con el correspondiente certificado expedido por la Junta Directiva.
-Para obtener la inscripción se requiere estar incorporado al Colegio de Farmacéuticos de Costa Rica, ser miembro activo y presentar la solicitud escrita adjuntando los documentos que se le dirán, ante la Junta Directiva, la que deberá conocerla en la sesión ordinaria siguiente a la fecha del recibo, tomar nota de ello y pasarla a conocimiento de la Comisión de Especialidades Farmacéuticas.
-Para inscribirse en el Registro de Auditores Farmacéuticos deberán adjuntarse los siguientes documentos:
-1- Título, diploma o Certificado Universitario en que conste formación recibida. Los diplomas o certificaciones extendidas por colegios profesionales o entidades no universitarias no se considerarán como documentos de carácter universitario, excepto que sean refrendados por la universidad donde se efectuaron los estudios.
-2- Lista de todos los cursos, teórico prácticos, práctica clínica, de laboratorio, hospitalaria o comunitaria, efectuados anualmente, por semestre o cuatrimestres; indicando el número de horas y la aprobación de los mismos.
-3- Descripción del contenido de cualquier curso, cuando a juicio de la Comisión así se requiere para aclarar dudas sobre el mismo.
-4- Cuando el farmacéutico haya efectuado sus estudios de especialización en el extranjero deberá presentar atestados de las universidades o instituciones académicas universitarias autorizadas para otorgar títulos, diplomas, certificados o grados académicos, del país donde se efectuaron los estudios. Las firmas de los documentos deberán venir debidamente autenticadas por:
+Artículo 8º—Para solicitar la inscripción en el Registro de Especialistas Farmacéuticos se requiere:
+1) Ser miembro activo del Colegio de Farmacéuticos.
+2) Solicitar por escrito a la Junta Directiva su incorporación al Registro de Especialistas Farmacéuticos.
+3) Adjuntar el certificado de la universidad en que conste la especialidad efectuada (Diplomas o Certificados extendidos por Colegios Profesionales o Entidades No Universitarias no se consideran como documentos de carácter universitario, a no ser que vengan refrendados por la Universidad donde efectuaron los estudios).
+4) Certificación de las materias cursadas. En ellas se debe indicar el nombre de cada materia, la nota obtenida, el periodo en que se aprobó y el número de créditos
+5) Descripción del contenido de cualquier curso, cuando a juicio de la Comisión así se requiere para aclarar dudas sobre el mismo.
+6) Cuando el farmacéutico haya efectuado sus estudios de especialización en el extranjero deberá presentar el título, diploma o certificado debidamente autenticado por:
 a. Las autoridades correspondientes y el Ministerio de Relaciones Exteriores y Culto o similar del país donde se efectuaron los estudios.
 b. El cónsul de Costa Rica en ese país. Si no lo hubiere, el Cónsul más cercano que tenga jurisdicción de ese país o estado.
 c. El Ministerio de Relaciones Exteriores y Culto de Costa Rica.
-5- Recibo que compruebe el pago hecho al Colegio de los respectivos derechos por el valor establecido por la Junta Directiva. En caso de ser denegada la inscripción, el pago mencionado será devuelto.
+7) Recibo que compruebe el pago hecho al Colegio de los respectivos derechos por el valor establecido por la Junta Directiva. En caso de ser denegada la inscripción, el pago mencionado será devuelto.
+(Así reformado por la Junta Directiva del Colegio de Farmacéuticos de Costa Rica, y publicado en La Gaceta N° 30 del 10 de febrero del 2006)
