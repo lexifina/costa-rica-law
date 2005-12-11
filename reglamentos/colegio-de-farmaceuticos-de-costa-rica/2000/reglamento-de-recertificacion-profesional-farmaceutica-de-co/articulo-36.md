@@ -1,1 +1,1 @@
-Artículo 36.—Para las actividades a distancia con sesiones presenciales, se reconocerán tres horas adicionales por cada hora presencial.
+Artículo 36.—Así Derogado por acuerdo de Junta Directiva del 11 de diciembre del 2005.

@@ -1,1 +1,2 @@
-Artículo 39.—El farmacéutico presentará anualmente los certificados (original y copia) de las actividades de EFC que tomó durante el año. La presentación la deberá realizar un mes antes de cumplir el año de la fecha de inscripción al Sistema.
+Artículo 39.—El farmacéutico solicitará a la CRPF cada año, por escrito y utilizando el formulario establecido para tal fin, el reconocimiento de las actividades de EFC en que participó a más tardar el 31 de octubre del año en curso.
+(Así reformado mediante acuerdo de Junta Directiva del 11 de diciembre del 2005)

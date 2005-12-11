@@ -15,3 +15,4 @@ Reglamento de Recertificación Profesional Farmaceútica de Costa Rica
 | --- | --- | --- |
 | 1 | 2000-12-05 | la propia norma |
 | 2 | 2004-07-06 | Reglamento 0 (2004-07-06) |
+| 3 | 2005-12-11 | Reglamento 0 (2005-12-11) |

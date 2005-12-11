@@ -1,1 +1,2 @@
-Artículo 10.—El Colegio de Farmacéuticos de Costa Rica garantizará la transparencia, la oportunidad y la eficacia de todos los procesos que se desarrollen en el Sistema de Recertificación Profesional Farmacéutica.
+Artículo 10.—La Junta Directiva garantizará la transparencia, la oportunidad y la eficacia de todos los procesos que se desarrollen en el SRPF.
+(Así reformado mediante acuerdo de Junta Directiva del 11 de diciembre del 2005)

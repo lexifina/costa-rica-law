@@ -1,29 +1,15 @@
 CAPÍTULO VI
 Escala de acreditación y sus aplicaciones
 Artículo 34.—Los créditos para la recertificación profesional farmacéutica se asignarán con base en la siguiente escala:
-Tipo de actividad Créditos
-1. Cursos, talleres, jornadas, foros, 0,5 créditos/ hora real de asistencia
-paneles, seminarios, mesas redondas, 1 crédito /hora real de participación
-congresos, conferencias, ciclos de 2 créditos /hora real de
-conferencias y otros aprovechamiento
-2. Pasantía (mínimo cinco días hábiles, 35 créditos/ pasantía
-siete horas diarias)
-3. Autoaprendizaje (revistas, Internet, De acuerdo al valor acreditado para
-teleconferencia u otros). el mismo
-4. Exposición en actividades 2 créditos /hora real de exposición o
-presenciales y tutoría en pasantías tutoría
-5. Docencia universitaria en farmacia y 2 créditos /hora en grado
-ciencias de la salud 3 créditos /hora en posgrado
-6. Publicaciones
-6.1. Libro con editorial 10 créditos autor único; 5 créditos
-primer autor; 3 créditos segundo
-autor, 2 créditos tercero o más
-autores.
-6.2. Artículo en revista científica 20 créditos autor único; 10 créditos
-reconocida con comité editorial primer autor; 5 créditos segundo
-autor; 3 créditos tercero o más
-autores.
-6.3. Documentos (folletos, 5 créditos autor único; 3 créditos
-antologías documentos primer autor; 2 créditos segundo
-técnicos, manuales y otros) autor; 1 crédito tercero o más
-autores.
+Tipo de actividad | Créditos
+1. Cursos, talleres, jornadas, foros, paneles, seminarios, mesas redondas, congresos, conferencias, ciclos de conferencias y otros | 0,5 créditos/hora real de asistencia 1 crédito/hora real de participación 2 créditos /hora real de aprovechamiento
+2. Pasantía profesional | 1 crédito/hora real
+3. Autoaprendizaje (revistas, Internet, teleconferencia u otros). | De acuerdo con el valor homologado para cada actividad
+4. Exposición en actividades presenciales. | 1 crédito/ hora real en actividades de asistencia 1,5 créditos/hora real en actividades de participación 2 créditos/hora real en actividades de aprovechamiento
+5. Tutoría en pasantías profesionales | 2 créditos/hora real
+6. Docencia universitaria en farmacia y en otras ciencias de la salud | 2 créditos/hora en grado 3 créditos/hora en postgrado
+7. Publicaciones |
+7.1 Libro con editorial | 20 créditos Los créditos se asignan dividiendo el número de créditos entre el número de autores
+7.2 Artículo en revista científica con comité editorial | 10 créditos Los créditos se asignan dividiendo el número de créditos entre el número de autores
+7.3. Documentos (folletos, antologías, documentos técnicos, manuales y otros) | 5 créditos Los créditos se asignan dividiendo el número de créditos entre el número de autores
+(Así reformado mediante acuerdo de Junta Directiva del 11 de diciembre del 2005)
