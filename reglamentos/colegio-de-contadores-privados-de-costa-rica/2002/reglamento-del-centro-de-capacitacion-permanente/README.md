@@ -14,3 +14,4 @@ Reglamento del Centro de Capacitación Permanente
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-01 | la propia norma |
+| 2 | 2005-12-11 | Reglamento 116 (2005-12-11) |
