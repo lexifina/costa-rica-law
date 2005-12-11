@@ -14,3 +14,4 @@ Reglamento de Tribunal de Elecciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-23 | la propia norma |
+| 2 | 2005-12-11 | Reglamento 97 (2005-12-11) |
