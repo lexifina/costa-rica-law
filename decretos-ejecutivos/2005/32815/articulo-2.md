@@ -1,0 +1,1 @@
+Artículo 2º—Corríjase el error material en la numeración del actual “Título VI” léase “Título IV”, y en el segundo “Título V” del Decreto Ejecutivo N° 30720-H de 26 de agosto de 2002 y sus reformas, para que en lo sucesivo se lea “Título VI”.
