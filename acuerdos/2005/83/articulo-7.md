@@ -1,0 +1,7 @@
+7º—Pasos a seguir para solicitar y comunicar el disfrute de vacaciones al Departamento de Personal.
+7.1. El servidor propietario interesado en disfrutar vacaciones, deberá verificar con el jefe inmediato el registro actual de su estado de vacaciones.
+7.2. En caso de que el servidor cuente con saldo para salir a vacaciones, deberá llenar totalmente la primera parte de la Boleta de "Solicitud de Vacaciones" (Formulario F-126) en la cual deberá estampar su firma.
+7.3. La "Solicitud de Vacaciones" (Formulario F-126) debe ser entregada directamente al Jefe inmediato, el cual una vez analizada la gestión de conformidad con las disposiciones del presente Plan de Vacaciones, y de los controles que para tal efecto se han diseñado, terminará de completar la información de la mencionada Boleta y la refrendará con su firma y el sello del Despacho.
+7.4. Si no se sustituye al servidor que disfrutará de vacaciones, el Jefe de Oficina siempre deberá remitir en forma obligatoria la "Solicitud de Vacaciones" (Formulario F-126) al Departamento de Personal, para actualizar los registros correspondientes.
+7.5. El Jefe inmediato deberá actualizar los "Controles de Vacaciones" de conformidad con los datos indicados en la "Solicitud de Vacaciones" (Formulario F-126), de forma que se cuente con los respaldos y registros correspondientes.
+7.6. El encargado de Oficina entregará también una copia de la "Solicitud de Vacaciones" (Formulario F-126) al interesado, con el visto bueno correspondiente.
