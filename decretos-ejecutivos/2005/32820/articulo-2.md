@@ -1,0 +1,1 @@
+Artículo 2º—Nombrar en sustitución del señor Campos González a la señora Ana María Conejo Elizondo, cédula de identidad número 1-873- 428, como representante propietario del Sector Empresarial ante el Consejo Nacional de Salarios. Este nombramiento tiene vigencia por el resto del periodo, sea, hasta el 31 de diciembre del 2005.

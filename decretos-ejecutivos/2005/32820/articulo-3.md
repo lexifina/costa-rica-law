@@ -1,0 +1,1 @@
+Artículo 3º—La vigencia del periodo de nombramiento de los directores propietarios y suplentes del Consejo Nacional de Salarios, según lo indicado en el considerando IV de este Decreto, será hasta el 31 de diciembre de 2005.
