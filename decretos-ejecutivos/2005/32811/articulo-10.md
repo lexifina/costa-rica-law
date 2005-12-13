@@ -1,0 +1,1 @@
+Artículo 10.—Las autoridades académicas, técnicas y administrativas del Liceo de Costa Rica, tienen la responsabilidad de participar activamente en la implantación, después de validadas las experiencias, de los modelos experimentales de Bachillerato Científico, Bachillerato Humanístico y Bachillerato Internacional, en otras instituciones públicas similares.

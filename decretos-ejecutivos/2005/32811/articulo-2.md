@@ -1,0 +1,1 @@
+Artículo 2º—Otorgar al Liceo de Costa Rica el carácter de “Colegio Laboratorio” según la definición y con todas las características, disposiciones, facultades y deberes que establece para estas instituciones educativas, el decreto número 7125 del 16 de junio de 1977, y que no contraríen lo dispuesto en el presente decreto.
