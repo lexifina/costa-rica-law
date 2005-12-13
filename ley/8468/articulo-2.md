@@ -1,0 +1,1 @@
+Artículo 2º—Autorización. Autorízase a la Municipalidad de Alajuela para que done a la Junta de Educación del Roble de Alajuela, cédula de persona jurídica Nº 3-008-056510, el terreno descrito en el artículo 1º de esta Ley, el cual será utilizado para ampliar la infraestructura física de este centro educativo.
