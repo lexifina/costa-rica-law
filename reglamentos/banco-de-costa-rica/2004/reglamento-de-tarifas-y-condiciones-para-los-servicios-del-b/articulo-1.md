@@ -1,7 +1,8 @@
 Reglamento de tarifas y condiciones para los servicios del Banco de Costa Rica
 BANCO DE COSTA RICA
 La Junta Directiva General del Banco en sesión 13-04 artículo XVII del 16 de abril del año en curso, aprobó el Reglamento de Tarifas y Condiciones para los servicios del Banco de Costa Rica.
-NOTA DE SINALEVI: El texto de este Reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, en sesión N° 17 del 3 de mayo del 2005 y publicado en La Gaceta N° 107 del 3 de junio de 2005, por lo que se reproduce a continuación:
+(NOTA DE SINALEVI: El texto de este Reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, en sesión N° 17 del 3 de mayo del 2005 y publicado en La Gaceta N° 107 del 3 de junio de 2005, por lo que se reproduce a continuación)
+(NOTA DE SINALEVI: El Banco de Costa Rica, publicó en La Gaceta N° 103 del 30 de mayo de 2006, un nuevo Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica)
 COMISIONES DE CONFIANZA
 Dentro de las Comisiones de Confianza están los Mandatos, los Fideicomisos y Otras Comisiones de Confianza.
 Tarifa (porcentaje) a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades del mandato.
@@ -139,157 +140,7 @@ NOTAS:
 Colones:1,50% anualizado al formalizar
 Dólares: 1,00% anualizado al formalizar
 Ambas cobrarse por una única vez
-21.- Comisión por pago anticipado, pago parcial o cancelación de la deuda para créditos en colones y dólares cuyo monto sea igual o superior a $ 250.000 o su equivalente en colones.
-2% sobre el saldo adeudado.
-22.- Comisión de formalización por sobregiros documentados en cuenta corriente
-SOBREGIROS FORMALES
-1% para sobregiros o prórrogas a 3 meses plazo
-2% para sobregiros o prórrogas a 6 meses plazo
-2% para sobregiros o prórrogas
-Tarifa Mínima $ 20,00
-SOBREGIROS INFORMALES
-0,5% mínima $ 10,00
-23.- Comisión por no cancelación de sobregiros conforme a la forma de pago pactada.
-SOBREGIROS FORMALES E INFORMALES DOCUMENTADOS
-Se cobrará, además de los intereses correspondientes, una comisión del 2 % sobre el saldo no cubierto del sobregiro. Mínima $ 20,00
-24.- Comisión de manejo en operaciones garantizadas con mercadería depositada en bodega de clientes (gastos, kilometrajes y otros) $ 0,05 mensual por cada $ 5,00 del principal adeudado
-25.- Estudios en el Registro de la Propiedad y estudios sobre Sociedades que realiza la División Jurídica.
-$ 2,00 cada uno, realizados en el Registro de la Propiedad
-$ 5,00 cada uno, cuando requiera trasladarse a la Dirección General de Deportes o al Ministerio de Trabajo.
-Se exceptúan aquellas que por ley no deben cobrarse.
-26.- Conformidad salida del país a vehículos prendados al Banco $ 15,00
-27. Cobro administrativo de operaciones en mora
-Créditos superiores a $1.000:
-11-30 días 31-60 días
-$20.00 $30.00
-61 días de atraso en adelante
-$40.00
-NOTA: Rige para todos los créditos nuevos (incluye tarjetas) otorgados a partir de la aprobación de esta tarifa, cuyo monto original sea mayor o igual a $1.000 o su equivalente en colones y que al momento del pago se encuentre en cartera normal o en cobro judicial, cada vez que se realice un pago se les cobrará el monto indicado según el rango de atraso con base en la fecha devencimiento de los intereses.
-(Así reformado el punto 27,en sesión N° 25 del 28 de junio del 2005)
-28.- Cobro Telegramas enviados operaciones vencidas $ 5,00
-X.—Tarjeta de crédito y débito
-29.- Comisión por reemplazo normal BCR-VISA $ 5,00
-Nota: Para los productos de Compras Institucionales, Empresariales y BCR Distribución no pagarán comisión por reemplazo.
-30.- Comisión por reemplazo de emergencia BCR-VISA
-Local $ 20,00
-Internacional, Oro y Platino $ 30,00
-31.- Comisión por adelanto de efectivo BCR-VISA-CRÉDITO
-Tarjetas de Crédito
-1% avance efectivo en Bancobcr.com y Bancatel.
-1% avance de efectivo en cajeros del BCR
-1% avance efectivo en cajeros dentro de los convenios que tenga el BCR (ATH y BNCR)
-3 % avance efectivo en ventanilla del BCR.
-$ 2,00 avance efectivo en ATM´S que no estén en convenio con el BCR.
-- Por los avances de efectivo de la BCR Compras del ICE, pagarán una comisión igual a la tasa básica pasiva del BCCR, vigente al momento de la formalización de cada giro, más el margen que corresponda a una operación ubicada en el riesgo AAA en su límite inferior, ajustable mensualmente. (Según acuerdo Comité de Crédito 16-04 del 29-04-2004)
-- Los funcionarios del BCR, Operadora de Pensiones, Puesto de Bolsa y Sociedad de Fondos de Inversión, pagarán el 50% de las comisiones establecidas.
-Tarjetas de Débito
-No generará comisión avance efectivo en cajeros del BCR o en redes que el BCR realice convenios mediante conexión Host to Host, Bancatel o Bancobcr.com.
-- $ 0.10 avance efectivo en cajeros del BCR después del quinto retiro en el mes, solamente en las cuentas cuyo saldo promedio semestral sea inferior a los $ 350,00
-- $ 0.50 por avances efectivo monetarios en cajeros dentro de los convenios que tenga el BCR (ATH y BNCR) y $ 0.25 para las consultas.
-- $ 1,00 avance y retiro efectivo en ventanilla del BCR por transacción, excepto en las cuentas cuyo saldo promedio semestral sea mayor a $ 500,00 o cuando el retiro a solicitar por el cliente supere el monto permitido a dispensar por nuestros ATM´S.
-- $ 2,00 avance efectivo en ATM´S que no estén en convenio con el BCR.
-- Los funcionarios del BCR, Operadora de Pensiones, Puesto de Bolsa y Sociedad de Fondos de Inversión, pagarán el 50% de las comisiones establecidas.
-32.- Comisión levantamiento bloqueo temporal por mora tarjetas de BCR-VISA $5,00
-33.- Membresía anual BCR-VISA
-No hay cobro de membresía ni anualidad
-34.- Comisiones a negocios afiliados BCR-VISA
-Mantener lo definido en acuerdo de Emisores Locales Visa Internacional
-35.- Monto a cobrar por tarjetas BCR-VISA recuperadas.
-Es cobrado al tarjetahabiente y pagado al recuperador de la tarjeta (persona física o negocio afiliado VISA).
-Por tarjetas localizadas en el exterior hasta un máximo de $165,00 ($ 150,00 por localización más $ 15,00 por manejo o su equivalente en colones)
-Por tarjeta localizada en el territorio nacional $ 10,00
-36.- Comisión por retiro de efectivo en ventanilla para intercambio con otros emisores internacionales y locales que no estén en convenio con BCR- VISA.
-$ 2,00 + 0,33 % de la transacción
-37.- Multa por pago automático con débito a una cuenta (sin fondos) VISA
-1% sobre el monto de la cuota
-Máximo $ 2,00
-38.- Comisión por cargo administrativo por mora BCR-VISA
-1-30 días 31-60 días 61-90 días
-$ 20,00 $ 30,00 $ 40,00
-Nota: Ésta comisión se cobra mensualmente durante el período en que permanezca el crédito en esa condición.
-XI.—Cuentas corrientes 39.- Cuentas corrientes con saldos promedios mensuales menores a $ 350,00.
-1- Saldo menor a $ 350,00 – Giro hasta 5 cheques, sobre exceso de giro $ 1,00 c/u.
-2- De $ 350,00 a $ 2.350,00 – Giro hasta 10 cheques, sobre exceso de giro $ 1,00 c/u.
-3- Saldo Superior a $ 2.350,00 – Giro de 15 cheques por cada $2.350,00 de promedio mensual por cliente, sobre exceso $1,00 c/cheque girado de más según cantidad permitida producto del saldo promedio mensual.
-Nota: La Gerencia General y los directores de las Bancas Comerciales, podrá exonerar el 100% de la comisión para casos plenamente justificados donde el margen contributivo financiero lo amerite.
-40.- Órdenes de no pago de cheques y depósitos a plazo Cheques $ 4,00 Depósitos a plazo $ 7,00
-41.- Cierre de cuentas motivo del extravío de cheques $ 10,00
-42.- Certificación de cheques colones y dólares $ 10,00 Tarifa única.
-43.- Información sobre solicitudes de conformidades de saldos sobre cuentas corrientes y otras, hechas para firmas de auditorías nacionales y extranjeras $ 10,00
-44.- Cargos
-Cargos enviados a clientes y devueltos por dirección errónea
-$ 1,00
-45.- Nota de débito generada por la devolución de un cheque defectuoso (no se incluyen cheques con fondos insuficientes a los cuales se les aplicará la tarifa establecida en el punto 62 del Capítulo XII) $ 3,00
-46.- Comisión por sobregiros accidentales
-Se cobrará tasa para los sobregiros, proporcional al número de días de su utilización.
-Mínimo $ 10,00
-Los empleados deberán pagar el 100% de estas tarifas.
-47.- Apertura nuevas cuentas corrientes
-Apertura por extravío fórmulas en blanco $ 15,00
-Chequera robada ó perdida $ 15,00
-Cuentas Cerradas por decisión del Banco o saldo
-insoluto $ 10,00
-48.- Chequeras
-Colones y Dólares
-$ 6,00
-49.- Traspaso de fondos entre cuentas corrientes manualmente en las plataformas
-$ 5,00 por cada traspaso
-50.- Cuentas corrientes inactivas.
-Saldos inferiores a $ 20,00 (cuentas en colones)
-Saldos inferiores a $ 50,00 (cuentas en dólares)
-$ 2,00 cada mes hasta su liquidación
-$ 3,00 cada mes hasta liquidación
-51.- Buzón Nocturno
-Bolso $ 18,00
-Llave $ 7,50
-52.- Confección Planillas
-Confección y entrega ventanilla
-1,50% sobre el monto.
-Mínimo $ 20,00
-Confección y envío por transportadora de valores $ 18,00 la confección
-El envío de acuerdo a la tarifa con la empresa transportadora.
-53.- Por cada cheque que giren los intermediarios financieros (Bancos Privados, Empresas Financieras no Bancarias, Cooperativas de Ahorro y Crédito, Mutuales y Puestos de Bolsa)
-El equivalente en colones de $ 2,00 suma que se cobrará el primer día hábil del mes siguiente.
-Esta tarifa será ajustada semestralmente.
-54.- Cobro de una comisión sobre el monto de cada cheque o transferencia cambiada en efectivo, contra cuentas corrientes que mantengan los intermediarios financieros con la Institución en dólares y colones. 0,35% sobre el monto.
-55.- Giro sobre otros valores (fondos utilizados respaldados en otros valores)
-0,07% sobre los fondos utilizados en moneda nacional 0,03% sobre recursos en moneda extranjera
-56.- Descongelamiento de fondos (descongelamiento de recursos depositados en cuenta corriente por medio de cheques)
-0,10% sobre los fondos utilizados en moneda nacional
-0,05% sobre los fondos utilizados en moneda extranjera
-XII.—Otras Tarifas
-57.- Constancias o certificaciones para efectos de trámite de visa de ingreso a los Estados Unidos de América $ 10,00
-Referencias Comerciales $ 10,00
-Otras constancias $ 5,00
-Reportes y constancias por CDP’S para
-negociación en la Bolsa de Valores $ 7,50
-58.- Solicitud de información confidencial a otros Bancos del Sistema Estatal.
-Personas físicas $ 2,00 c/u
-Personas jurídicas $ 7,00 c/u
-59.- Estados de cuenta corriente.
-$ 2,00 máximo 3 folios, sobre excesos $ 0,5 por folio
-60.- Copias de Microfilm
-$ 3,00
-61.- Uso de Fax
-Nacional $ 1,00
-Internacional $ 5,00 *
-Otros
-* Nos ajustamos a tarifa de RACSA ($ 2) + plus ($ 3)
-Se exceptúa el envío del estado VISA cuando el cliente no lo recibió.
-62.- Cheques rechazados por insuficiencia de fondos colones y dólares $ 15,00
-Los empleados deberán pagar el 100%.
-63.- Traspaso de operaciones de cobro administrativo a cobro judicial 1% sobre el total adeudado de cada operación
-Mínima $ 10,00
-Máxima $ 120,00
-64.- Venta de cheques de gerencia $ 10,00 Tarifa única (colones y dólares)
-65.- Bancatel
-Banca Fax- Módulo de Negocios
-$ 2,00 fijo mensual
-Con derecho a 10 consultas de cheques mensuales sin costo.
-Cada consulta adicional $ 0.25
-66.- Saldo impreso en el Módulo de Banca Comercial $ 0.20 por hoja
-67.- Órdenes de Pago (transferencias) a otras oficinas bancarias
-- Colones y dólares-
+21. Comisión por pago anticipado, pago parcial o cancelación de la deuda para créditos en colones y dólares | Entre 0% y 5%, según el tipo crédito*, sobre el abono extraordinario aplicado como amortización del principal o cancelación total. *El tipo de crédito y el rango de comisión que se aplicará serán establecidos por el Comité de Negocios del BCR. (Así reformado el punto 21, en sesión N° 48 del 13 de diciembre del 2005) 22.- Comisión de formalización por sobregiros documentados en cuenta corriente SOBREGIROS FORMALES 1% para sobregiros o prórrogas a 3 meses plazo 2% para sobregiros o prórrogas a 6 meses plazo 2% para sobregiros o prórrogas Tarifa Mínima $ 20,00 SOBREGIROS INFORMALES 0,5% mínima $ 10,00 23.- Comisión por no cancelación de sobregiros conforme a la forma de pago pactada. SOBREGIROS FORMALES E INFORMALES DOCUMENTADOS Se cobrará, además de los intereses correspondientes, una comisión del 2 % sobre el saldo no cubierto del sobregiro. Mínima $ 20,00 24.- Comisión de manejo en operaciones garantizadas con mercadería depositada en bodega de clientes (gastos, kilometrajes y otros) $ 0,05 mensual por cada $ 5,00 del principal adeudado 25.- Estudios en el Registro de la Propiedad y estudios sobre Sociedades que realiza la División Jurídica. $ 2,00 cada uno, realizados en el Registro de la Propiedad $ 5,00 cada uno, cuando requiera trasladarse a la Dirección General de Deportes o al Ministerio de Trabajo. Se exceptúan aquellas que por ley no deben cobrarse. 26.- Conformidad salida del país a vehículos prendados al Banco $ 15,00 27. Cobro administrativo de operaciones en mora Créditos superiores a $1.000: 11-30 días 31-60 días $20.00 $30.00 61 días de atraso en adelante $40.00 NOTA: Rige para todos los créditos nuevos (incluye tarjetas) otorgados a partir de la aprobación de esta tarifa, cuyo monto original sea mayor o igual a $1.000 o su equivalente en colones y que al momento del pago se encuentre en cartera normal o en cobro judicial, cada vez que se realice un pago se les cobrará el monto indicado según el rango de atraso con base en la fecha devencimiento de los intereses. (Así reformado el punto 27,en sesión N° 25 del 28 de junio del 2005) 28.- Cobro Telegramas enviados operaciones vencidas $ 5,00 X.—Tarjeta de crédito y débito 29.- Comisión por reemplazo normal BCR-VISA $ 5,00 Nota: Para los productos de Compras Institucionales, Empresariales y BCR Distribución no pagarán comisión por reemplazo. 30.- Comisión por reemplazo de emergencia BCR-VISA Local $ 20,00 Internacional, Oro y Platino $ 30,00 31.- Comisión por adelanto de efectivo BCR-VISA-CRÉDITO Tarjetas de Crédito 1% avance efectivo en Bancobcr.com y Bancatel. 1% avance de efectivo en cajeros del BCR 1% avance efectivo en cajeros dentro de los convenios que tenga el BCR (ATH y BNCR) 3 % avance efectivo en ventanilla del BCR. $ 2,00 avance efectivo en ATM´S que no estén en convenio con el BCR. - Por los avances de efectivo de la BCR Compras del ICE, pagarán una comisión igual a la tasa básica pasiva del BCCR, vigente al momento de la formalización de cada giro, más el margen que corresponda a una operación ubicada en el riesgo AAA en su límite inferior, ajustable mensualmente. (Según acuerdo Comité de Crédito 16-04 del 29-04-2004) - Los funcionarios del BCR, Operadora de Pensiones, Puesto de Bolsa y Sociedad de Fondos de Inversión, pagarán el 50% de las comisiones establecidas. Tarjetas de Débito No generará comisión avance efectivo en cajeros del BCR o en redes que el BCR realice convenios mediante conexión Host to Host, Bancatel o Bancobcr.com. - $ 0.10 avance efectivo en cajeros del BCR después del quinto retiro en el mes, solamente en las cuentas cuyo saldo promedio semestral sea inferior a los $ 350,00 - $ 0.50 por avances efectivo monetarios en cajeros dentro de los convenios que tenga el BCR (ATH y BNCR) y $ 0.25 para las consultas. - $ 1,00 avance y retiro efectivo en ventanilla del BCR por transacción, excepto en las cuentas cuyo saldo promedio semestral sea mayor a $ 500,00 o cuando el retiro a solicitar por el cliente supere el monto permitido a dispensar por nuestros ATM´S. - $ 2,00 avance efectivo en ATM´S que no estén en convenio con el BCR. - Los funcionarios del BCR, Operadora de Pensiones, Puesto de Bolsa y Sociedad de Fondos de Inversión, pagarán el 50% de las comisiones establecidas. 32.- Comisión levantamiento bloqueo temporal por mora tarjetas de BCR-VISA $5,00 33.- Membresía anual BCR-VISA No hay cobro de membresía ni anualidad 34.- Comisiones a negocios afiliados BCR-VISA Mantener lo definido en acuerdo de Emisores Locales Visa Internacional 35.- Monto a cobrar por tarjetas BCR-VISA recuperadas. Es cobrado al tarjetahabiente y pagado al recuperador de la tarjeta (persona física o negocio afiliado VISA). Por tarjetas localizadas en el exterior hasta un máximo de $165,00 ($ 150,00 por localización más $ 15,00 por manejo o su equivalente en colones) Por tarjeta localizada en el territorio nacional $ 10,00 36.- Comisión por retiro de efectivo en ventanilla para intercambio con otros emisores internacionales y locales que no estén en convenio con BCR- VISA. $ 2,00 + 0,33 % de la transacción 37.- Multa por pago automático con débito a una cuenta (sin fondos) VISA 1% sobre el monto de la cuota Máximo $ 2,00 38.- Comisión por cargo administrativo por mora BCR-VISA 1-30 días 31-60 días 61-90 días $ 20,00 $ 30,00 $ 40,00 Nota: Ésta comisión se cobra mensualmente durante el período en que permanezca el crédito en esa condición. XI.—Cuentas corrientes 39.- Cuentas corrientes con saldos promedios mensuales menores a $ 350,00. 1- Saldo menor a $ 350,00 – Giro hasta 5 cheques, sobre exceso de giro $ 1,00 c/u. 2- De $ 350,00 a $ 2.350,00 – Giro hasta 10 cheques, sobre exceso de giro $ 1,00 c/u. 3- Saldo Superior a $ 2.350,00 – Giro de 15 cheques por cada $2.350,00 de promedio mensual por cliente, sobre exceso $1,00 c/cheque girado de más según cantidad permitida producto del saldo promedio mensual. Nota: La Gerencia General y los directores de las Bancas Comerciales, podrá exonerar el 100% de la comisión para casos plenamente justificados donde el margen contributivo financiero lo amerite. 40.- Órdenes de no pago de cheques y depósitos a plazo Cheques $ 4,00 Depósitos a plazo $ 7,00 41.- Cierre de cuentas motivo del extravío de cheques $ 10,00 42.- Certificación de cheques colones y dólares $ 10,00 Tarifa única. 43.- Información sobre solicitudes de conformidades de saldos sobre cuentas corrientes y otras, hechas para firmas de auditorías nacionales y extranjeras $ 10,00 44.- Cargos Cargos enviados a clientes y devueltos por dirección errónea $ 1,00 45.- Nota de débito generada por la devolución de un cheque defectuoso (no se incluyen cheques con fondos insuficientes a los cuales se les aplicará la tarifa establecida en el punto 62 del Capítulo XII) $ 3,00 46.- Comisión por sobregiros accidentales Se cobrará tasa para los sobregiros, proporcional al número de días de su utilización. Mínimo $ 10,00 Los empleados deberán pagar el 100% de estas tarifas. 47.- Apertura nuevas cuentas corrientes Apertura por extravío fórmulas en blanco $ 15,00 Chequera robada ó perdida $ 15,00 Cuentas Cerradas por decisión del Banco o saldo insoluto $ 10,00 48.- Chequeras Colones y Dólares $ 6,00 49.- Traspaso de fondos entre cuentas corrientes manualmente en las plataformas $ 5,00 por cada traspaso 50.- Cuentas corrientes inactivas. Saldos inferiores a $ 20,00 (cuentas en colones) Saldos inferiores a $ 50,00 (cuentas en dólares) $ 2,00 cada mes hasta su liquidación $ 3,00 cada mes hasta liquidación 51.- Buzón Nocturno Bolso $ 18,00 Llave $ 7,50 52.- Confección Planillas Confección y entrega ventanilla 1,50% sobre el monto. Mínimo $ 20,00 Confección y envío por transportadora de valores $ 18,00 la confección El envío de acuerdo a la tarifa con la empresa transportadora. 53.- Por cada cheque que giren los intermediarios financieros (Bancos Privados, Empresas Financieras no Bancarias, Cooperativas de Ahorro y Crédito, Mutuales y Puestos de Bolsa) El equivalente en colones de $ 2,00 suma que se cobrará el primer día hábil del mes siguiente. Esta tarifa será ajustada semestralmente. 54.- Cobro de una comisión sobre el monto de cada cheque o transferencia cambiada en efectivo, contra cuentas corrientes que mantengan los intermediarios financieros con la Institución en dólares y colones. 0,35% sobre el monto. 55.- Giro sobre otros valores (fondos utilizados respaldados en otros valores) 0,07% sobre los fondos utilizados en moneda nacional 0,03% sobre recursos en moneda extranjera 56.- Descongelamiento de fondos (descongelamiento de recursos depositados en cuenta corriente por medio de cheques) 0,10% sobre los fondos utilizados en moneda nacional 0,05% sobre los fondos utilizados en moneda extranjera XII.—Otras Tarifas 57.- Constancias o certificaciones para efectos de trámite de visa de ingreso a los Estados Unidos de América $ 10,00 Referencias Comerciales $ 10,00 Otras constancias $ 5,00 Reportes y constancias por CDP’S para negociación en la Bolsa de Valores $ 7,50 58.- Solicitud de información confidencial a otros Bancos del Sistema Estatal. Personas físicas $ 2,00 c/u Personas jurídicas $ 7,00 c/u 59.- Estados de cuenta corriente. $ 2,00 máximo 3 folios, sobre excesos $ 0,5 por folio 60.- Copias de Microfilm $ 3,00 61.- Uso de Fax Nacional $ 1,00 Internacional $ 5,00 * Otros * Nos ajustamos a tarifa de RACSA ($ 2) + plus ($ 3) Se exceptúa el envío del estado VISA cuando el cliente no lo recibió. 62.- Cheques rechazados por insuficiencia de fondos colones y dólares $ 15,00 Los empleados deberán pagar el 100%. 63.- Traspaso de operaciones de cobro administrativo a cobro judicial 1% sobre el total adeudado de cada operación Mínima $ 10,00 Máxima $ 120,00 64.- Venta de cheques de gerencia $ 10,00 Tarifa única (colones y dólares) 65.- Bancatel Banca Fax- Módulo de Negocios $ 2,00 fijo mensual Con derecho a 10 consultas de cheques mensuales sin costo. Cada consulta adicional $ 0.25 66.- Saldo impreso en el Módulo de Banca Comercial $ 0.20 por hoja 67.- Órdenes de Pago (transferencias) a otras oficinas bancarias - Colones y dólares-
 Montos | % | Acumulado
 Hasta $ 200,00 | 2,0 | $ 4,00
 Exceso $ 200,00 a $ 1.800,00 | 1,5 | $ 28,00
