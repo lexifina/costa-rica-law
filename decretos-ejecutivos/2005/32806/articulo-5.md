@@ -1,0 +1,1 @@
+Artículo 5º—La política y estrategia del Sector Agropecuario y de sus instituciones, así como sus planes y programas, deberán incorporar objetivos y acciones de seguridad alimentaria y nutricional y asignárseles, de sus propios recursos los que sean necesarios para garantizar su desarrollo y ejecución.

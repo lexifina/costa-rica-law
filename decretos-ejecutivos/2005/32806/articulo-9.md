@@ -1,0 +1,1 @@
+Artículo 9º—En lo no normado expresamente en el presente decreto, se estará a las disposiciones que se establecen en el Capítulo Tercero, Título Segundo del Libro Primero de la Ley General de la Administración Pública, referente a los órganos colegiados.
