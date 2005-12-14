@@ -1,3 +1,1 @@
-Artículo 122.—Variación y reajuste de la cuota: Las variaciones en las cuotas nominales necesarias para mantener la cuota real serán equivalentes a la variación del salario mínimo de un obrero no calificado de la industria de la construcción, según lo defina periódicamente el Consejo Nacional de Salarios y los reajustes en las cuotas nominales entrarán a regir un mes después de que el aumento de salario haya estado vigente.
-En caso que el salario mínimo desapareciera, o bien que no se llegue a emplear, se utilizarán los parámetros que al efecto apruebe el BANHVI.
-(Así reformado en sesión N° 73 del 7 de diciembre del 2004)
+Artículo 122.—Así Derogado mediante sesión N° 75 del 14 de diciembre del 2005.
