@@ -1,0 +1,1 @@
+Artículo 3º—Autorízase a la Procuraduría General de la República para que, por medio de la Notaría del Estado, otorgue la escritura correspondiente y proceda a formalizar e inscribir en el Registro Público esas donaciones, cada una de las cuales se estima en un colón (¢1,00).
