@@ -1,0 +1,1 @@
+Artículo 2º—En caso de disolución de la Asociación Nacional de Educadores, o si esta decide no realizar la construcción o, una vez hecha, no utilizarla para el fin señalado en esta Ley, la donación del lote quedará sin efecto, y el dominio regresará a la Municipalidad de Turrubares.
