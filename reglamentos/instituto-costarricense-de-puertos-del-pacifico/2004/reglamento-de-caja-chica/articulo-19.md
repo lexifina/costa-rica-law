@@ -6,7 +6,8 @@ b) Factura original debidamente membretada, con sello de cancelación y timbrada
 c) Fecha de emisión.
 d) A nombre de INCOP.
 e) Firmada por la persona autorizada (estipulada en el Articulo 13 de este Reglamento) como aprobación.
-f) Especificación detallada de los artículos comprados o servicios adquiridos y el valor unitario de cada uno.
+f) Especificación detallada de los artículos comprados o servicios adquiridos y el valor unitario de cada uno. Cuando se trate de facturas o tiquetes de caja que originalmente no presenten precio unitario, queda facultado el responsable de liquidar el vale para que mediante observación firmada al dorso de la misma anote dicha información.
+(Así reformado el inciso anterior en sesión N°3327 del 14 de diciembre del 2005)
 g) Las facturas deberán ser nítidas, sin borrones ni tachaduras o alteraciones.
 h) Al dorso de la factura deberá consignarse el recibido conforme de quien recibió el bien o el servicio.
 i) Sello de contenido presupuestario, código presupuestario y contable.
