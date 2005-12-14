@@ -1,0 +1,1 @@
+Artículo 3º—Harán quórum para sesionar cinco de sus miembros. Los acuerdos se tomarán por mayoría simple de los votos presentes. En caso de empate, el Presidente tendrá doble voto. Los acuerdos podrán quedar en firme en la misma sesión si la Comisión así lo determina por votación unánime de todos los miembros presentes.
