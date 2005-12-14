@@ -1,0 +1,3 @@
+Artículo 19.—Toda entrega de cheques que haga el CAJERO, lo será al beneficiario directo, con excepción de lo indicado en el artículo anterior y estableciéndose los siguientes requisitos:
+19.1 Tratándose de personas físicas, la entrega se hará contra presentación de su cédula de identidad. Si el interesado no puede apersonarse, deberá enviar la autorización correspondiente y su cédula de identidad.
+19.2 En el caso de las personas jurídicas, la entrega se hará contra la presentación de un recibo membretado, o en su defecto, sellado por parte de la entidad beneficiaria, personería jurídica vigente y autorización escrita para retiro del cheque, en caso de que quien retire no sea el Apoderado General de la empresa.

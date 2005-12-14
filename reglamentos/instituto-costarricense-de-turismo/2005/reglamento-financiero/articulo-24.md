@@ -1,0 +1,1 @@
+Artículo 24.—Luego de que se efectúen todos los cálculos y ajustes por parte de Recursos Humanos en las diferentes planillas, incluidas las que se refieren a órdenes judiciales o solicitudes en donde se dé la obligación legal de retener, trasladará a Financiero la información necesaria tres días hábiles antes del término de pago salarial fijado por el RAT.

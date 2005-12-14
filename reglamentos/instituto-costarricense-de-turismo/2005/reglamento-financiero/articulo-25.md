@@ -1,0 +1,1 @@
+Artículo 25.—Le corresponde a Financiero completar el proceso de pago salarial, debiendo hacerlo durante el día asignado para ese efecto, de conformidad con el RAT. Se exceptúa de lo anterior, la cancelación a los servidores que terminan el contrato de trabajo por renuncia o despido antes del vencimiento del período respectivo.

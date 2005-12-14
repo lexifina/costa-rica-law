@@ -1,0 +1,1 @@
+Artículo 34.—La ejecución, codificación e identificación del gasto presupuestario, deberá quedar impresa en todos los documentos, ya se trate de percepción de ingresos o de ejecución de egresos; debiendo estar visados por el responsable de ese trámite.

@@ -1,0 +1,1 @@
+Artículo 38.—El primer día hábil de julio de cada año, la Gerencia presentará para conocimiento y aprobación de la Junta Directiva, el proyecto integrado del presupuesto y el plan anual operativo del Instituto, el que deberá quedar firme por parte de este órgano deliberativo, como fecha máxima el último día del mismo mes de julio.

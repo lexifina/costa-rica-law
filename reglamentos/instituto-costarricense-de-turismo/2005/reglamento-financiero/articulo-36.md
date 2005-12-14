@@ -1,0 +1,1 @@
+Artículo 36.—Una vez que se cuente con la información necesaria, la Jefatura de la Dirección Administrativo-Financiera preparará el proyecto y cronograma de los ingresos que se esperan captar en el próximo ejercicio económico, el cual será remitido a la Gerencia para la toma de decisión que corresponda.

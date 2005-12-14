@@ -1,0 +1,1 @@
+Artículo 43.—Todos los fondos que se establezcan, operarán por el sistema de "fondo fijo", lo que requiere que en todo momento el encargado de los fondos tenga la suma total asignada, bien sea en dinero en efectivo, vales de Caja Chica definitivos o provisionales; solicitudes de reintegro en trámite o cheque de reintegro pendiente de cambio.

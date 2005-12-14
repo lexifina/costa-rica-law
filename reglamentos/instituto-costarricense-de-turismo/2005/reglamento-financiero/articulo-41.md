@@ -1,0 +1,1 @@
+Artículo 41.—Se mantendrá una estrecha y efectiva coordinación entre Financiero y Tecnologías de Información, a fin de asegurarse resultados óptimos y oportunos que permitan visualizar en forma integral y pormenorizada, la situación económica y financiera que presente la Institución en cualquier momento.

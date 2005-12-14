@@ -1,0 +1,1 @@
+Artículo 73.—La fecha máxima para presentar la liquidación de gastos de representación y de recepciones será el sétimo día hábil posterior al evento, cuya fecha de realización ha de haberse consignado en el formulario Adelanto de Gastos. En lo que respecta a otros bienes y servicios la fecha máxima será el sétimo día hábil de haberse adquirido el bien o dado el servicio.

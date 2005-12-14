@@ -1,0 +1,1 @@
+Artículo 3º—Los Departamentos Financiero y de Ingresos son las unidades competentes dentro del proceso de ejecución presupuestal contable del I.C.T., según las funciones que a cada uno corresponden y que se detallan en el presente Reglamento.

@@ -1,0 +1,2 @@
+Artículo 64.—El impuesto se le reintegra al comprador del tiquete u orden de canje, debiendo presentar su cédula de identidad o su pasaporte.
+Cuando por razones especiales el beneficiario del reembolso no pueda presentarse a gestionar el reintegro, podrá autorizar a otra persona mediante nota debidamente firmada y acompañada con fotocopia de la cédula de identidad o pasaporte para que retire el impuesto a reintegrar.

@@ -1,0 +1,1 @@
+Artículo 22.—Financiero mantendrá un estricto control en todo el proceso relacionado con el registro de documentos, debiendo atender la validación de los reportes generados por los sistemas de información, referidos a Contabilidad general, Presupuesto, Control de Activos, inversiones transitorias y Control de Efectivo.

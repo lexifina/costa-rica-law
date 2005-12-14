@@ -1,0 +1,1 @@
+Artículo 27.—Con excepción de los trámites de pago de salarios ordinarios y extraordinarios a los servidores de la institución, previstos en los artículos anteriores y los que correspondan por medio de las Cajas Chicas y los de adelanto de Gastos para Viajes, todos los demás deberán canalizarse por medio de la respectiva Orden de Pago por Servicios, u Orden de Compra.
