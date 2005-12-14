@@ -1,0 +1,2 @@
+Artículo 2º—La Comisión Interinstitucional Marino y Costera del Área de Conservación de Osa tendrá como objetivo garantizar el adecuado desarrollo sostenible, protección y conservación de los recursos existentes en el Área Marina de Uso Múltiple Pacífico Sur, así como el uso sostenible de los recursos y hábitats de su zona de influencia.
+Para lograr este objetivo, la Comisión será un ente consultor de la Dirección del Área de Conservación Osa.

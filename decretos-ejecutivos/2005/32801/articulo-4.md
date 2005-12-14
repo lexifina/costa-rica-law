@@ -1,0 +1,1 @@
+Artículo 4º—Los miembros de la Comisión Interinstitucional Marino y Costera, deberán ser designados por las instituciones y organizaciones dentro del mes siguiente a la publicación de este Decreto Ejecutivo y serán convocados dentro del mes siguiente por el Coordinador de la Comisión. La metodología de trabajo será definida en el Reglamento de Trabajo de la Comisión.
