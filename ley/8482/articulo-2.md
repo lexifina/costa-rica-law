@@ -1,0 +1,1 @@
+Artículo 2º—La finca por donar se describe así: Nº 014453 del partido de Puntarenas, inscrita en el tomo 1817, folio 43, asiento 1; el área mide 2843 m2; está situada en el distrito de San Jerónimo, cantón de Esparza; su plano catastrado es el Nº P-653497-2000.
