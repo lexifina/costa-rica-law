@@ -15,3 +15,4 @@ Reglamento de Operación de la Línea de Crédito de Bienestar Familiar.
 | --- | --- | --- |
 | 1 | 2005-01-06 | la propia norma |
 | 2 | 2005-01-06 | Reglamento 76 (2004-12-16) |
+| 3 | 2005-12-14 | Reglamento 75 (2005-12-14) |
