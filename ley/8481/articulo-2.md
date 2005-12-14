@@ -1,0 +1,2 @@
+Artículo 2º—Los inmuebles relacionados en el artículo anterior quedan desafectos del destino para el cual fueron comprados por el Estado, que en su momento fue para campo de aterrizaje de aeronaves.
+En su lugar, serán destinados, en la proporción establecida en el artículo 4, para la expansión del área útil de la Escuela Antonio Obando Espinoza; la ampliación del cementerio de la localidad de Cañas y la creación de un parque público de carácter recreativo y deportivo, orientado a la promoción y protección del medio ambiente.
