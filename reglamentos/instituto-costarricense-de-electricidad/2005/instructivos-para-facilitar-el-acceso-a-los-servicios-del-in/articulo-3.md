@@ -1,0 +1,1 @@
+3º—Medio o lugar para recibir la facturación del servicio y las notificaciones. Adicionalmente se podrá indicar un número telefónico de referencia para coordinar las visitas del personal técnico autorizado, según corresponda.
