@@ -1,0 +1,1 @@
+Artículo 56.—El patrono o sus representantes, estarán en la obligación de adoptar las medidas preventivas que señalen las autoridades competentes, conforme a los reglamentos en vigor, en materia de salud ocupacional, según se determina en el inciso d) del artículo 214 del Código de Trabajo.

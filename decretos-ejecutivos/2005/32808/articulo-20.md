@@ -1,0 +1,1 @@
+Artículo 20.—El (La) Director (a) Nacional regulará mediante directrices, el control de horarios para los servidores que laboren jornadas extraordinarias que deban ser reconocidas por medio del mecanismo de la compensación de tiempo.

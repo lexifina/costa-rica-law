@@ -1,0 +1,1 @@
+Artículo 22.—Abandono de trabajo. Se considera abandono del trabajo el hacer dejación dentro de la jornada de trabajo, de la labor objeto de la relación de servicio. Para efectos de calificar el abandono no es necesario que el servidor salga del lugar donde presta sus servicios, sino que bastará que sea evidente, el abandono de la labor encomendada.

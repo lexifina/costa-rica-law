@@ -1,0 +1,1 @@
+Artículo 27.—El servidor que por dolo o complacencia marque tarjetas o registros de asistencia que no le corresponden, incurrirá en falta grave a sus deberes, haciéndose acreedor a las sanciones establecidas en este reglamento. La misma sanción se le aplicará al servidor que se le compruebe haber solicitado o consentido en que otro le haya marcado la tarjeta de registro.

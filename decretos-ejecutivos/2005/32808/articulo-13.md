@@ -1,0 +1,1 @@
+Artículo 13.—Los servidores están obligados al desempeño de su cargo durante todos los días hábiles y horas reglamentarias, no podrán otorgarse privilegios, prerrogativas o concesiones que autoricen una asistencia irregular, salvo los casos de licencia para estudio y los demás que determine este Reglamento y el ordenamiento jurídico vigente.

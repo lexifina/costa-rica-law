@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento es de acatamiento obligatorio para los funcionarios de la Dirección Nacional de Desarrollo de la Comunidad, a efecto de que las labores se lleven a cabo dentro de la armonía, eficiencia y eficacia requerida.

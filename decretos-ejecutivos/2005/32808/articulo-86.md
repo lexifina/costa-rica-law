@@ -1,0 +1,1 @@
+Artículo 86.—Transitorio I.—Con la entrada en vigencia de este Reglamento se deben tomar las medidas pertinentes a efecto de que los funcionarios que tengan más de un período de sus vacaciones acumulados, puedan disfrutarlos a más tardar dentro de los 6 meses siguientes a la publicación del presente decreto.

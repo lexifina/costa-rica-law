@@ -1,0 +1,5 @@
+CAPÍTULO XIX
+De los reclamos y otros recursos administrativos
+Artículo 71.—Todas las peticiones, quejas, reclamos, sugerencias, nacidas de la relación de servicio, deberán ser dirigidas por escrito al encargado de Unidad quien las resolverá en los ocho días siguientes en la misma forma. Sin embargo, los asuntos urgentes podrán gestionarse verbalmente y deberán entonces, resolverse del mismo modo y de inmediato.
+No obstante lo apuntado, cuando al encargado de Unidad se considere incompetente para resolver algún asunto especial, deberá informar de ello al servidor y remitir la causa ante su superior en la escala jerárquica, para que éste se pronuncie al respecto.
+Se excepcionan los casos en que la ley faculta gestionar directamente ante el Ministro u otro funcionario. También podrá un servidor recurrir a un Jefe inmediato si demuestra que su encargado de Unidad no ha cumplido con la obligación de atender su gestión, o si por cualquier motivo, se establece conflicto entre el subalterno y dicho encargado.

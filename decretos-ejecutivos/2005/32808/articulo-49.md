@@ -1,0 +1,1 @@
+Artículo 49.—Todo acto de administración de personal que implique el otorgamiento de derechos o la aplicación de sanciones que correspondan a suspensiones, deberá hacerse constar en el formulario denominado “Acción de Personal”, el cual deberá contar con el visto bueno de la Unidad de Recursos Humanos.

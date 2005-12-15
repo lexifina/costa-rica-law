@@ -1,0 +1,1 @@
+Artículo 83.—El presente Reglamento no perjudica los derechos adquiridos por los servidores de la Dirección Nacional. Se presumirá de conocimiento de éstos y será de observancia obligatoria para todos desde el día de su vigencia, inclusive para los que en el futuro trabajen para la Dirección Nacional, salvo disposición en contrario de rango superior.

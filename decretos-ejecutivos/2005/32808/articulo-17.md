@@ -1,0 +1,1 @@
+Artículo 17.—El (La) Director (a) Nacional podrá autorizar el servicio durante horas extraordinarias en situaciones excepcionales, cuando sea indispensable satisfacer necesidades esenciales del servicio público que presta la Dirección Nacional, previa aprobación de la Comisión de Recursos Humanos de la Dirección General de Servicio Civil.

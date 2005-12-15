@@ -1,0 +1,5 @@
+Artículo 40.—El pago de vacaciones de conformidad con lo reglado por el artículo 31 del Reglamento del Estatuto de Servicio Civil, se hará con base en el tiempo de trabajo efectivo y en el promedio de los salarios ordinarios y extraordinarios devengados durante las últimas cincuenta semanas de relación de servicio o durante el tiempo que le diera derecho proporcional a las mismas y de los subsidios recibidos por el servidor de parte del Estado y sus instituciones de seguridad social si ha estado incapacitado, en los tres casos siguientes:
+a) Cuando el servidor hubiere disfrutado de licencia sin goce de sueldo por más de treinta días consecutivos o no.
+b) Cuando el servidor hubiere estado incapacitado para trabajar por razón de enfermedad o riesgo profesional, durante un período mayor de seis meses.
+c) Cuando, por las circunstancias especiales previstas por la ley, se acuerde la compensación en dinero, parcial o total, del período de vacaciones.
+La negativa injustificada del servidor a firmar constancia de haber recibido sus vacaciones anuales, se tendrá por falta grave a la relación de servicio, para efectos de su sanción.

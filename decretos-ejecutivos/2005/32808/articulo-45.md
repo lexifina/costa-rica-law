@@ -1,0 +1,1 @@
+Artículo 45.—En relación con los viáticos, estos se ajustarán a las disposiciones que emanen de la Contraloría General de la República en cuanto al Reglamento para el Pago de Viáticos en la Administración Pública.

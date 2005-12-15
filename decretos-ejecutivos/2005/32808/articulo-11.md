@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De las promociones, traslados y permutas
+Artículo 11.—La Dirección Nacional desarrolla su actividad en todo el territorio nacional, por consiguiente los funcionarios deben desplazarse diariamente a diferentes lugares del país. Asimismo, cuando la Institución lo considere necesario, podrá ordenar el traslado temporal o definitivo de un servidor, con arreglo a lo dispuesto por los ordinales 22 bis y 120 del Reglamento del Estatuto de Servicio Civil, otorgando en ambos casos, la oportunidad para ejercer su derecho de defensa. Además debe suministrarse al servidor toda la información relativa al traslado, si es permanente o definitivo, las modificaciones a las condiciones laborales, el tiempo de duración del traslado y las funciones que se le asignen.

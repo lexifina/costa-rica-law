@@ -1,0 +1,1 @@
+Artículo 33.—Ausencias excusables. Para casos muy calificados, no contemplados en este Reglamento, ni en el Estatuto de Servicio Civil y su Reglamento, queda a discreción del Director Nacional y su respectivo Jefe de Área, Departamento, Unidad, Sección o Zona, justificar las ausencias que no sean por enfermedad comprobada, sin que ello signifique obligación al pago del salario.

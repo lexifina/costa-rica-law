@@ -1,0 +1,1 @@
+Artículo 16.—La Institución podrá modificar transitoriamente los horarios establecidos en este Reglamento, siempre que circunstancias especiales así lo exijan. El cambio operará, una vez publicada la modificación a éste mediante Decreto Ejecutivo, previa aprobación por parte de la Asesoría Jurídica de la Dirección General de Servicio Civil.

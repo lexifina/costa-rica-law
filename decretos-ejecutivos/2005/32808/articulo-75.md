@@ -1,0 +1,1 @@
+Artículo 75.—Todo funcionario que se considere afectado por actos y hostigamiento sexual conforme los define los artículos 3º y 4º de la Ley Nº 7476, podrá plantear la denuncia en forma verbal o escrita ante la Unidad de Recursos Humanos de la Institución. Si se plantea en forma verbal, se procederá a levantar un acta consignando las manifestaciones de la persona denunciante.

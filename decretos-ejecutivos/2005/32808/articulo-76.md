@@ -1,0 +1,1 @@
+Artículo 76.—La persona ofendida podrá agregar a su denuncia la solicitud para su reubicación temporal en la Institución, teniendo la posibilidad de plantearla en cualquier estado del proceso, así como solicitar ayuda profesional médica de la Institución, si considera que su salud mental y física ha sido afectada.

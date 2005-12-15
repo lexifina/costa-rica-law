@@ -1,0 +1,1 @@
+Artículo 60.—La inobservancia a las obligaciones y prohibiciones estipuladas en los artículos 285 y 286 del Código de Trabajo por parte de los servidores, constituirá falta grave para efectos de establecer las sanciones contenidas en el presente Reglamento.

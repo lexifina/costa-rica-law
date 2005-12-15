@@ -1,0 +1,1 @@
+Artículo 15.—Días hábiles. Para los servidores de la Dirección Nacional son días hábiles para el trabajo, todos los días del mes, menos los feriados, sábados y domingos y aquellos días que el Poder Ejecutivo declare de asueto, conforme al decreto correspondiente.

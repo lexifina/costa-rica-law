@@ -1,0 +1,1 @@
+Artículo 30.—Las llegadas tardías injustificadas se estimarán como faltas a los deberes del servidor y se computarán al final de cada mes calendario a efecto de aplicar las sanciones establecidas en este Reglamento.

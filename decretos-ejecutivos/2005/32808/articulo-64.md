@@ -1,0 +1,1 @@
+Artículo 64.—Las anteriores sanciones se aplicarán sin perjuicio de que, si las conductas lo ameriten, se aplique una medida disciplinaria según sea el caso concreto no contemplado taxativamente en este reglamento, lo anterior a juicio de la administración y garantizándose al afectado el debido proceso.

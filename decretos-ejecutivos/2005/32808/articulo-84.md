@@ -1,0 +1,1 @@
+Artículo 84.—La Dirección Nacional se reserva el derecho de adicionar o modificar en cualquier momento las disposiciones de este Reglamento, las cuales deberán ser sometidas al trámite de conocimiento y aprobación de la Asesoría Jurídica de la Dirección General del Servicio Civil.

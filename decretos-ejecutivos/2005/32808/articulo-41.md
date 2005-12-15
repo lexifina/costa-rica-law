@@ -1,0 +1,1 @@
+Artículo 41.—Para efecto de determinar la fecha en que se adquiere derecho a las vacaciones, no interrumpirán la continuidad de la relación de servicio las licencias con goce de salario, las interrupciones del servicio legalmente aceptadas, las incapacidades debidamente justificadas, las prórrogas o renovación inmediata de la prestación de servicio u otra causa análoga.

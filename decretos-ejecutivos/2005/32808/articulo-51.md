@@ -1,0 +1,1 @@
+Artículo 51.—La calificación de servicios se hará en función de los méritos durante el año respectivo, en una escala que comprenderá: excelente, muy bueno, bueno, regular, deficiente.

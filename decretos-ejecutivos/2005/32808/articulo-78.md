@@ -1,0 +1,1 @@
+Artículo 78.—De conformidad con lo dispuesto por el artículo 25 de la Ley Nº 7476, según la gravedad de la falta se impondrá las siguientes sanciones: La falta leve será sancionada con amonestación por escrito, la falta grave con suspensión sin goce de salario de tres a quince días o el despido sin responsabilidad patronal.

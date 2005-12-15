@@ -1,0 +1,1 @@
+Artículo 48.—El servidor al presentarse a laborar, deberá a suministrar a la Unidad de Recursos Humanos una fotografía reciente. Dicha fotografía deberá ser renovada por el trabajador cada cinco años.

@@ -1,0 +1,4 @@
+CAPÍTULO XVII
+De las comisiones de salud ocupacional
+Artículo 57.—De conformidad con el artículo 288 del Código de Trabajo, en la Institución se establecerán las Comisiones de Salud Ocupacional que sean necesarias, integradas con igual número de representantes del patrono y de los servidores. Dichas Comisiones tendrán por finalidad investigar las causas de los riesgos profesionales, proponer medidas para prevenirlos y vigilar que las mismas se cumplan. La constitución de las Comisiones se pondrá en conocimiento del Consejo de Salud Ocupacional al cual se sujetarán en lo relativo al asesoramiento.
+Los miembros de las Comisiones desempeñarán sus cargos gratuitamente y dentro de la jornada de trabajo, sin perjuicio o menoscabo de ninguno de los derechos laborales que corresponden a los servidores.

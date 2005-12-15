@@ -1,0 +1,1 @@
+Artículo 54.—De conformidad con lo establecido en el artículo 214, inciso b) en concordancia con el artículo 221, del Código de Trabajo, el jefe inmediato deberá dar aviso al Instituto Nacional de Seguros de todo riesgo del trabajo que ocurra dentro de los ocho días hábiles siguientes a su acaecimiento.
