@@ -1,0 +1,1 @@
+Artículo 42.—Las construcciones existentes antes de la fecha de vigencia del Plan Regulador y que se ubiquen dentro del derecho de vía propuesto, mantendrán su condición hasta que no se proceda a la expropiación de los terrenos y el pago de las mejoras.

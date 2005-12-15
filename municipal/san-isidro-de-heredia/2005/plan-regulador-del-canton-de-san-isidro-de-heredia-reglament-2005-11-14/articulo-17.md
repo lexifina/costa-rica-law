@@ -1,0 +1,1 @@
+Artículo 17.—Tránsito vehicular. Queda a criterio de la Municipalidad de San Isidro el definir aquellas vías facultadas para admitir el tránsito pesado, quién quedará facultado para definir mediante criterio técnico de diseño la capacidad de tránsito y carga en este tipo de vías.

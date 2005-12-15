@@ -1,0 +1,1 @@
+Artículo 21.—Derecho de vía. Tendrán un derecho de vía mínimo de seis metros (6.0 m) y una calzada de dos metros (2 m) como mínimo. En casos de ubicación dentro de áreas públicas, el requisito del derecho de vía no aplica.

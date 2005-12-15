@@ -1,0 +1,1 @@
+Artículo 32.—Se permiten estacionamientos públicos o privados bajo techo en el área adyacente al casco urbano de San Isidro con capacidad máxima de cincuenta espacios y con frente mínimo de veinte metros (20 m).

@@ -1,0 +1,1 @@
+Artículo 23.—Longitud. Cuando disponga de salida hacia más de una calle de tránsito vehicular su longitud máxima podrá ser de cien metros (100 m), en caso contrario no será mayor a cincuenta metros (50 m). Se exceptúan de esta disposición aquellos casos que la Municipalidad de San Isidro mediante acuerdo y dictamen técnico que lo respalde así lo disponga.

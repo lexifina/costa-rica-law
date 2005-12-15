@@ -1,0 +1,1 @@
+Artículo 24.—Retiro. El retiro requerido será de dos metros (2 m) los cuales, se contarán a partir del derecho de vía correspondiente, excepto en las vías contenidas en la zona de cuadrante urbano, para la cual se exigirá el retiro para cada zona en particular.

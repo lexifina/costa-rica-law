@@ -1,0 +1,1 @@
+Artículo 35.—Para lo dispuesto en el artículo anterior, la Municipalidad de San Isidro y el MOPT, conforme a lo que proyecta el presente Plan Regulador, habilitarán aquellas áreas de dominio público o privado que aparecen reservadas a tal fin.

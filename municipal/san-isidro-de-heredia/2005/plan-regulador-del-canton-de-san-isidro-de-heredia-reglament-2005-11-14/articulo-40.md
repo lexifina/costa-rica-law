@@ -1,0 +1,1 @@
+Artículo 40.—Cuando el derecho de vía existente sea igual o menor al derecho de vía propuesto en el plano oficial de vialidad, el alineamiento se indicará midiendo desde la línea de centro de la calzada existente más el retiro de construcción establecido para cada una de las zonas del mapa de zonificación.

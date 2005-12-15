@@ -1,0 +1,1 @@
+Artículo 20.—Ubicación. Su disposición será única y exclusivamente en áreas de uso para parque, juegos infantiles, áreas de uso comercial, áreas comunales o así dispuestos en el plano de vialidad. En casos excepcionales serán admisibles como acceso único para frentes de vivienda o fincas de uso residencial, siempre que las condiciones de espacio no permitan otra solución vial.

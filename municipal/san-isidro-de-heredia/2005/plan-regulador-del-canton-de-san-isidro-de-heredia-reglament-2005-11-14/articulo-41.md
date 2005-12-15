@@ -1,0 +1,1 @@
+Artículo 41.—Cuando el derecho de vía existente sea mayor al derecho de vía propuesto en el plano oficial de vialidad, el alineamiento se indicará midiendo el retiro de construcción establecido para cada una de las zonas del mapa de zonificación, a partir de la colindancia con la calle pública.
