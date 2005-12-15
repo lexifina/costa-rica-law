@@ -1,0 +1,3 @@
+CAPÍTULO DÉCIMO QUINTO
+La Zona Industrial de Comercio y Servicios (ZICS)
+Artículo 101.—La ZICS, se localiza en los terrenos que colindan con la Carretera Braulio Carrillo Colina, en una franja de 100 metros a ambos lados del derecho de vía. El propósito de la ZICS es proveer al Cantón de San Isidro de un espacio concentrado para el desarrollo de actividades industriales, comerciales y de servicios de mayor escala, permitiendo la creación de empleos para el cantón de San Isidro; asimismo, crear espacios de amortiguamiento para los usos industriales, en aras de un desarrollo humano y natural sustentable.

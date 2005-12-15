@@ -1,0 +1,1 @@
+Artículo 58.—Se aceptarán solicitudes de fraccionamiento mediante servidumbre únicamente en la Zona Reserva Forestal Cordillera Volcánica Central, la Zona de Amortiguamiento de Zonas Protegidas, Zona Agroturística, Zona Agropecuaria y Zona Rural Concentrada, conforme a las regulaciones que en cada una de ellas y en el Reglamento de Vialidad se indiquen.

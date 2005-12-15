@@ -1,0 +1,3 @@
+Artículo 102.—Los USOS genéricos que son aplicables a todo el espacio que comprende la ZICS son los siguientes, conforme a la lista establecida en el artículo 60 del presente Reglamento:
+a) Usos permitidos: 3, 5, 7, 10, 11, 12, 15, 16, 17, 20, 21, 26, 28, 32, 34, 36, 37, 38, 39, 40, 41, 49, 51, 52, 57, 58, 59, 60, 61, 62, 63, 69, 70, 74, 79, 80, 81, 87, 88, 89, 91, 92, 94, 95, 96, 97, 98, 99, 106, 107, 109, 116, 123, 124, 125, 130, 132, 134, 135, 136, 148, 149, 150, 151, 152, 153, 154, 155, 156, 157, 158, 159, 160, 163, 164, 165, 166, 168, 169, 170 - 171.
+b) Usos no permitidos o prohibidos: Serán usos no permitidos o prohibidos, todos aquellos que no han sido incluidos como usos permitidos.

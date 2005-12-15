@@ -1,0 +1,1 @@
+Artículo 36.—En proyectos que no sobrepasen los dos pisos, el diseñador, a fin de obtener una mejor distribución arquitectónica del proyecto, podrá eliminar el retiro posterior del sitio correspondiente, sustituyéndolo por un área equivalente en otra sección del predio.

@@ -1,0 +1,3 @@
+Artículo 84.—Los USOS genéricos que son aplicables a todo el espacio que comprende la ZAG son los siguientes, conforme a la lista establecida en el artículo 60 del presente Reglamento:
+a) Usos permitidos: 1, 4, 6, 9, 14, 15, 18, 24, 20, 26, 27, 29, 33, 36, 37, 41, 42, 43, 44, 47, 49, 50, 55, 57, 58, 60, 65, 66, 67, 68, 69, 70, 80, 81, 84, 86, 89, 91, 92, 96, 103, 105, 108, 110, 115, 117, 118, 119, 122, 126, 127, 128, 136, 143, 146, 162, 163, 166, 167, 170, 171, 173 - 175. Asimismo, se establecen como permitidos todos los usos permitidos en la Zona Institucional.
+b) Usos no permitidos o prohibidos: Serán usos no permitidos o prohibidos, todos aquellos que no han sido incluidos como usos permitidos.

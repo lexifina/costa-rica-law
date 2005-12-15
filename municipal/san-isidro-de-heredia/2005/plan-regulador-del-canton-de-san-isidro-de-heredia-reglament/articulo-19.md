@@ -1,0 +1,1 @@
+Artículo 19.—Excepcionalmente, las solicitudes de modificación del Plan Regulador, pueden ser derivadas de los siguientes órganos competentes: a) Concejo de Distrito, b) La DDU, c) La JUPLACA, d) El Concejo Municipal, e) El INVU, f) La Comisión de un plebiscito o referendo a nivel distrital o cantonal.

@@ -1,0 +1,3 @@
+CAPÍTULO TERCERO
+Aplicación del Plan Regulador
+Artículo 4º—La Dirección de Desarrollo Urbano. Se constituye como parte de la Municipalidad de San Isidro de Heredia la Dirección de Desarrollo Urbano (en adelante DDU), que sustituye en sus funciones al Departamento de Ingeniería. Esta dirección será responsable de la aplicación del presente plan. La DDU asistirá en las decisiones al Alcalde y al Concejo Municipal en lo que se refiera al Plan Regulador; las funciones de la DDU serán establecidas dentro de este mismo reglamento y sus actividades o proyectos serán establecidos o programados anualmente en el Plan Anual Operativo Municipal.

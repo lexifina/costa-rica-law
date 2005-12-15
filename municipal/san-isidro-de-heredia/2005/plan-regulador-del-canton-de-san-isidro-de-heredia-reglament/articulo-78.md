@@ -1,0 +1,3 @@
+CAPÍTULO OCTAVO
+La Zona Rural Concentrada (ZRC)
+Artículo 78.—Definición. En el mapa de zonificación esta se consigna con las siglas ZRC y comprende espacios a lo largo de calles públicas que cuenten con servicios públicos de energía eléctrica y agua potable, donde actualmente se concentran viviendas a ambos lados en cada uno de los distritos. La ZRC tiene el propósito de establecer una franja de desarrollo a ambos lados de las vías de comunicación, con el fin de facilitar los asentamientos que se han venido desarrollando históricamente entre estas vías y la zona agropecuaria u otras que se establecen en el presente Plan Regulador.

@@ -1,0 +1,9 @@
+Artículo 105.—Los USOS genéricos que son aplicables a todo el espacio que comprende la ZPUT son los siguientes, conforme a la lista establecida en el artículo 60 del presente Reglamento:
+a) Usos permitidos: 6, 10, 14, 15, 28, 92, 103, 108, 117, 118, 126, 146, 147, 162, 171 - 175.
+b) Usos no permitidos o prohibidos: Todos aquellos usos que no sean específicamente autorizados por la Ley Forestal y leyes conexas que protegen el recurso forestal y las zonas que este ocupa, se considerarán usos no permitidos o prohibidos. Además:
+1. No será permitido verter a lo largo del parque ningún tipo de aguas negras o servidas provenientes de instalaciones colindantes. Se exigirá drenajes o sistemas de tratamiento para todo tipo de aguas de desecho en el caso de que no exista alcantarillado sanitario.
+2. No se permitirán frente al parque tapias o muros, solo se aceptarán divisiones abiertas tipo mallas, rejas y/o divisiones naturales (cercas vivas).
+3. No se aceptarán accesos viales a lo largo del parque, solo espacios peatonales. Será excepción a la regla los accesos viales con fines de mantenimiento y la seguridad de los usuarios del parque, concretamente el acceso para vehículos ambulancia, de bomberos, de policía y/o servicios municipales.
+4. En los lotes colindantes no se permitirán establecimientos peligrosos, insalubres e incómodos. Ningún uso permitido podrá ser fuente de contaminación o inseguridad para los fines del parque.
+5. No se permitirán construcciones en los terrenos colindantes al parque que presenten riesgos de erosión o deslizamiento, sean éstos por las características del río, del suelo, la topografía o de estas combinadas.
+6. En las parcelas colindantes con el parque, se podrán desarrollar los usos comerciales permitidos para cada una de las zonas donde se ubiquen las parcelas y se permitirá el acceso de usuarios desde el parque.

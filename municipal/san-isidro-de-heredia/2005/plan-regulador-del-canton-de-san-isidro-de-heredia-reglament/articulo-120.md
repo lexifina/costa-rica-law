@@ -1,0 +1,2 @@
+Artículo 120.—Para la derogación, modificación, actualización y/o ampliación del plan regulador aplicará lo establecido en el presente Reglamento, se excluye de esta disposición el caso siguiente:
+a) La variación o la extensión de la línea divisora entre diferentes zonas, podrán hacerse solamente vía acuerdo municipal previo dictamen y estudio técnico de la DDU, con base en el presente Reglamento.

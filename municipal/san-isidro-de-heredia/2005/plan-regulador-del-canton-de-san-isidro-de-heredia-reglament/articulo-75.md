@@ -1,0 +1,1 @@
+Artículo 75.—Para el caso de los proyectos de urbanización que se aprueben en esta zona, los usos comerciales permitidos deberán ubicarse exclusivamente en la zona comercial que forma parte de cada proyecto de urbanización, a fin de evitar que usos potencialmente molestos afecten las zonas residenciales.

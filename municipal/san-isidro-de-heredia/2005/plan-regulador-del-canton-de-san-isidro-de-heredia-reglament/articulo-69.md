@@ -1,0 +1,2 @@
+Artículo 69.—Los usos permitidos establecidos para la ZMRC, deberán cumplir con las siguientes regulaciones mínimas, sin detrimento de regulaciones adicionales que no contradigan las establecidas en este artículo, que pueda adoptar la DDU, vía acuerdo municipal, con el objetivo de hacer cumplir el Plan Regulador. Asimismo, deberán aplicarse todas las regulaciones específicas establecidas en otras leyes y reglamentos vigentes.
+Ver cuadro en página N° 52 a La Gaceta impresa N° 242 del 15 de diciembre del 2005.

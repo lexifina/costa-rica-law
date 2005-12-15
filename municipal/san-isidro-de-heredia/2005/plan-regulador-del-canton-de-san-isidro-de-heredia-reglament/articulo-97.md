@@ -1,0 +1,1 @@
+Artículo 97.—Los usos permitidos para la ZAPN, deberán cumplir con los siguientes requisitos mínimos, sin detrimento de lo que establezcan otras leyes y reglamentos vigentes y vinculantes que no se le opongan.

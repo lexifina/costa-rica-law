@@ -1,0 +1,3 @@
+CAPÍTULO DÉCIMO CUARTO
+La Zona Agroturística (ZAT)
+Artículo 98.—Esta zona ha sido establecida para fomentar un ordenamiento mixto del territorio; consolidar el desarrollo territorial en quintas de bajas densidades y lotes grandes que sirvan de amortiguamiento a los terrenos más frágiles del sector norte del cantón de San Isidro de Heredia; asimismo, para aprovechar las ventajas competitivas que presenta en términos de accesibilidad y paisajes el Cantón de San Isidro de Heredia; fomentar la concentración de las actividades turísticas y recreativas; y aprovechar el atractivo que la zona puede representar, en combinación con el Parque Nacional Braulio Carrillo para el turismo de bajo impacto, basado en la sustentabilidad y el potencial ecoturístico y agroecoturístico.

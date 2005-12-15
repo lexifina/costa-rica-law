@@ -1,0 +1,1 @@
+Artículo 66.—Para los usos 19, 43, 64, 65, 149, 163, el tamaño mínimo del lote será de 3000 m², un frente mínimo de 30 metros, retiro lateral de 3m y los parqueos deberán estar confinados dentro del predio. El resto de las variables se mantienen.

@@ -1,0 +1,1 @@
+Artículo 127.—Transitorio III. Los inmuebles en lo cuales estén construidas residencias unifamiliares, que a la entrada en vigencia del presente Reglamento se encontraren ubicadas en zonas de naturaleza industrial y comercial, podrán permanecer en dichas zonas sin que sean permitidas segregaciones para la construcción de nuevas edificaciones.

@@ -1,0 +1,6 @@
+Artículo 117.—Segregación de lotes. No se permitirá la segregación de lotes en tamaños menores que los establecidos como área mínima para cada una de las zonas. El fraccionamiento de lotes frente a servidumbre o caminos privados solo se permitirá dentro de los límites de la Zona Reserva Forestal Cordillera Volcánica Central, la Zona de Amortiguamiento de Zonas Protegidas, la Zona Agroturística, la Zona Agropecuaria y la Zona Rural Concentrada, de acuerdo a los requisitos específicos que se establezcan en cada una de ellas y a los siguientes requisitos mínimos de infraestructura:
+a) Acceso a lotes con un ancho mínimo de 9.0 m que incluye: 6.0 m de superficie de rodamiento; 1.5 m de zona verde en uno de los lados de la superficie de rodamiento.
+b) La superficie de rodamiento será al menos de lastre compactado.
+c) Deberá contar un sistema de evacuación de aguas pluviales con cuneta de concreto como mínimo, confinado dentro del predio, según indicaciones técnicas de la DDU.
+d) Deberá contar con sistema de agua potable y red secundaria de energía eléctrica hasta cada uno de los lotes.
+e) Solo se aceptarán en terrenos especiales en que por su ubicación o dimensión se demuestre que es imposible fraccionar con acceso adecuado a vías públicas existentes, utilizándose preferentemente para casos en que ya existan viviendas en el lote.

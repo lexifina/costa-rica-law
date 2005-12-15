@@ -1,0 +1,3 @@
+Artículo 79.—Los USOS genéricos que son aplicables a todo el espacio que comprende la ZRC son los siguientes, conforme a la lista establecida en el artículo 60 del presente Reglamento:
+a) Usos permitidos: 8, 11, 12, 15, 21, 26, 28, 30, 34, 36, 37, 39, 40, 42, 44, 47, 48, 49, 56, 57, 59, 60, 62, 63, 70, 79, 80, 91, 92, 103, 107, 109, 114, 116, 125, 130, 132, 134, 135, 136, 138, 141, 142, 149, 150, 151, 152, 153, 154, 155, 156, 157, 158, 159, 160, 161, 163, 166, 169, 170, 171 - 173.
+b) Usos no permitidos o prohibidos: Serán usos no permitidos o prohibidos, todos aquellos que no han sido incluidos como usos permitidos.

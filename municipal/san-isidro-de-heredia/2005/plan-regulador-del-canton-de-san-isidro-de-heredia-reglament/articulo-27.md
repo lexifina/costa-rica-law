@@ -1,0 +1,1 @@
+Artículo 27.—A partir de la aprobación y vigencia del presente Plan Regulador y de sus Reglamentos, queda totalmente prohibido otorgar licencias para el funcionamiento de ventas ambulantes; aquellas existentes podrán seguir funcionando en los sitios autorizados hasta que se agote su periodo de vigencia.

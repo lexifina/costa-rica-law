@@ -1,0 +1,1 @@
+Artículo 37.—En edificios de más de dos pisos se podrá aceptar la misma solución y sustitución del área correspondiente al retiro posterior, siempre que el área correspondiente al retiro posterior sea incrementada en un diez por ciento, lo cual quedará sujeto a la aprobación municipal, así como de las autoridades de la DDU que previamente deban dar su aprobación al diseño.

@@ -1,0 +1,2 @@
+Artículo 65.—Los usos permitidos para la Zona Urbana de Comercio y Residencial, deberán cumplir con las siguientes regulaciones mínimas, sin detrimento de regulaciones adicionales que no contradigan las establecidas en este artículo, que pueda adoptar la DDU, vía acuerdo municipal, con el objetivo de hacer cumplir el Plan Regulador.
+Ver cuadro en página N° 52 a La Gaceta impresa N° 242 del 15 de diciembre del 2005.

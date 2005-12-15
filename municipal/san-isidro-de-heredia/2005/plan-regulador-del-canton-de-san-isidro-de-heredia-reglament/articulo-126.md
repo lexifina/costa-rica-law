@@ -1,0 +1,1 @@
+Artículo 126.—Transitorio II. Los permisos de construcción otorgados antes de la vigencia del presente Plan Regulador y que hayan cumplido el plazo de ley de vigencia, no haciendo efectivos en el mismo deberán tramitarse de nuevo para que adecuen a las normas comprendidas para la zona respectiva en el presente Reglamento.
