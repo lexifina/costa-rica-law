@@ -1,0 +1,1 @@
+Artículo 4º—El Director Superior del Sistema Nacional de Áreas de Conservación velará por el cumplimiento de la debida acreditación e identificación de todo el personal que ostente en el ejercicio de sus funciones el carácter de autoridad de policía, lo que llevará a cabo mediante la emisión de carnes oficiales.
