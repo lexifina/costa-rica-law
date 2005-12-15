@@ -1,0 +1,6 @@
+Artículo 2º—Serán requisitos para que una familia pueda optar para el otorgamiento del beneficio objeto del presente decreto:
+1) Encontrarse registrado en el Sistema de Información de la Población Objetivo del IMAS.
+2) Aportar documento fehaciente que haga constar que el beneficiario está inscrito como propietario del inmueble garante de la obligación en el Registro Público de la Propiedad Inmueble y no poseer otros inmuebles inscritos a nombre de los habitantes mayores de edad de su núcleo familiar.
+3) Aportar documento fehaciente con base en la información del Registro Civil, que haga constar el estado civil de las personas mayores de edad y de nacimiento de las personas menores de edad.
+4) Aportar constancia de la deuda actualizada a ser cancelada, con detalle del saldo respectivo, tanto por concepto de capital, intereses y costas, debidamente emitida por el fiduciario o entidad autorizada del Sistema Financiero Nacional para la Vivienda.
+Corresponderá al Banco Hipotecario de la Vivienda por medio de los Fiduciarios encargados de la administración de estas operaciones, gestionar de oficio la documentación y preparar los expedientes con la referida información para ser sometida a conocimiento del Instituto Mixto de Ayuda Social, dentro de los 45 días naturales posteriores a la publicación del presente decreto.

@@ -1,0 +1,2 @@
+Artículo 6º—Corresponderá al Banco Hipotecario de la Vivienda ser coadyuvante con el Instituto Mixto de Ayuda Social en la ejecución del presente decreto.
+Para tal efecto, el Banco Hipotecario de la Vivienda deberá aplicar y digitar las Fichas de Información Social y conformar los expedientes respectivos, ya sea por medio de sus funcionarios o de otros sujetos de derecho público o privado debidamente contratados, siempre y cuando exista capacitación y aval previo por parte del Instituto Mixto de Ayuda Social.
