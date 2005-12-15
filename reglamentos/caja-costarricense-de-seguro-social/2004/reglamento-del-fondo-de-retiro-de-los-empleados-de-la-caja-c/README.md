@@ -14,3 +14,4 @@ Reglamento del Fondo de Retiro de los Empleados de la Caja Costarricense de Segu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-10 | la propia norma |
+| 2 | 2005-12-15 | Reglamento 8019 (2005-12-15) |
