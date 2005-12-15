@@ -1,0 +1,1 @@
+4º—Responsable de la revisión de esta normativa. Con la finalidad de revisar y actualizar esta normativa, se conformará un equipo constituido por funcionarios de los Sectores de Electricidad y Telecomunicaciones, así como de la Dirección Administrativa de Finanzas, quienes serán convocados por la Gerencia General, al menos una vez al año.

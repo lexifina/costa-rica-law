@@ -1,0 +1,1 @@
+2º—Alcance. Este procedimiento aplica a todas aquellas actividades que realizan las dependencias responsables de la recuperación de los dineros, producto de la prestación de los servicios públicos u otros conceptos facturados, puestos al cobro por la Institución y cancelados con cheques que resultan devueltos por el Sistema Bancario Nacional.
