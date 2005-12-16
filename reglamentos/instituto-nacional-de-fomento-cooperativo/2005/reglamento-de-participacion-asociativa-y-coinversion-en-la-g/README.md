@@ -14,3 +14,4 @@ Reglamento de Participación Asociativa y Coinversión (En La Gaceta N° 145 del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-11 | la propia norma |
+| 2 | 2005-12-16 | Reglamento 3505 (2005-12-16) |
