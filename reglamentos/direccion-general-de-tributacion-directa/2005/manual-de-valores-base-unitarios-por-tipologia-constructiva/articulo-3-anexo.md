@@ -1,0 +1,8 @@
+ANEXO 3: OBSERVACIONES GENERALES PARA BATERÍAS
+BATERÍAS: Servicios sanitarios de uso público, que constan de varios inodoros, cada uno separado por paredes de panelería o bloques de concreto, y un área común con uno o más lavamanos. Cada batería es de uso exclusivo para damas ó caballeros.
+1. TIPO ECONÓMICO Inodoros y lavamanos tipo económico, color blanco, grifería cromada, no hay enchapes en paredes. Paredes divisorias de metal.
+2. TIPO NORMAL Inodoro y lavamanos blancos tipo normal, grifería de acero inoxidable económica, enchape de azulejo económico, hasta 1.60 m de altura sobre el nivel de piso terminado. Paredes divisorias de melamina tipo económico...
+3. TIPO BUENO Loza sanitaria compuesta por lavamanos empotrados en mueble de concreto con sobre de granito sintético, inodoros blancos de buena calidad, grifería de mediana calidad, enchapes de azulejo en las paredes, hasta 1.80 m de altura sobre el nivel de piso terminado, y cerámica en los pisos. Paredes divisorias de melamina o bloques de concreto. Todo de mediana calidad.
+4. TIPO MUY BUENO Inodoros y lavamanos blancos, de muy buena calidad, grifería con regulador de caudal, de muy buena calidad, algunas con sensores infrarrojos, enchapes en paredes de piso a cielo, de azulejo con diseños decorativos, listelos, y pisos de cerámica. Mueble de concreto, con lavamanos empotrados, con sobre de granito natural o mármol. Paredes divisorias de melamina de buena calidad o bloques de concreto con repello fino.
+5. TIPO INTELIGENTE Inodoros y lavamanos color blanco de muy buena calidad, grifería con sensores infrarrojos. Iluminación, extractores de aire y música con sensores de movimiento
+Paredes divisorias de madera de buena calidad, bloques de concreto con repello fino o similar.

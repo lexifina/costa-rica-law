@@ -1,0 +1,7 @@
+ANEXO 1: OBSERVACIONES GENERALES PARA CUARTOS DE BAÑO
+1. ECONÓMICO Loza sanitaria económica, color blanco, grifería cromada, no hay enchapes en paredes
+2. NORMAL Loza sanitaria blanca o en colores pastel, grifería económica, enchape de azulejo económico solo en la ducha, hasta 1.60 m de altura sobre el nivel de piso terminado.
+3. BUENO Loza sanitaria compuesta por lavamanos empotrado en mueble de mediana calidad con sobre de granito sintético, inodoro elongado, tina de fibra de vidrio, grifería de mediana calidad, enchapes de azulejo en las paredes, hasta 1.80 m de altura sobre el nivel de piso terminado, y cerámica en los pisos. Todo de mediana calidad.
+4. MUY BUENO Loza sanitaria compuesta por inodoro y bidé, elongados de muy buena calidad, lavamanos, tina con sistema de aguas turbulentas, grifería de muy buena calidad, enchapes en paredes de piso a cielo, de azulejo con diseños decorativos, listelos, y pisos de cerámica, puertas de vidrio temperado. Mueble de muy buena calidad, con sobre de granito natural.
+5. LUJOSO Loza sanitaria compuesta por inodoro, bidé, lavamanos de lujo, tina de aguas turbulentas, cabina de hidromasaje o cabina con columna de hidromasaje, grifería de bronce macizo o similar de excelente calidad. Enchapes de cerámica, o azulejo en paredes de piso a cielo. Mueble de baño tipo americano de madera o similar, con sobre de mármol o granito natural, doble lavamanos.
+6. MEDIO BAÑO: El medio baño o de visitas se refiere a cuartos de baño que no incluyen la ducha.
