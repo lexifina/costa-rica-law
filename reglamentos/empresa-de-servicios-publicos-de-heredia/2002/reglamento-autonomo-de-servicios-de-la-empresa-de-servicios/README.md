@@ -16,3 +16,4 @@ Reglamento Autónomo de Servicios de la Empresa de Servicios Públicos de Heredi
 | 1 | 2002-05-23 | la propia norma |
 | 2 | 2002-11-21 | Reglamento 266 (2002-11-21) |
 | 3 | 2003-10-27 | Reglamento 2531 (2003-10-27) |
+| 4 | 2005-12-19 | Acuerdo 394 (2005-12-19) |
