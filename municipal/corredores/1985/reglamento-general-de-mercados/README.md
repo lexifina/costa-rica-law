@@ -15,3 +15,4 @@ Reglamento General de Mercados
 | --- | --- | --- |
 | 1 | 1985-03-14 | la propia norma |
 | 2 | 1985-08-19 | Reglamento municipal 0 (1985-08-19) |
+| 3 | 2005-12-19 | Reglamento municipal 51 (2005-12-19) |
