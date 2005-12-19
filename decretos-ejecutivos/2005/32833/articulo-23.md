@@ -1,0 +1,1 @@
+Artículo 23.—Para optar por el Permiso Sanitario de Funcionamiento, los cementerios deberán haber cumplido con los requisitos señalados en la Hoja Nº MS-DPAH-PF-RSPF-08 denominada Requisitos para Solicitudes de Permisos de Funcionamiento, la cual se encuentra disponible en el Área Rectora de Salud correspondiente.

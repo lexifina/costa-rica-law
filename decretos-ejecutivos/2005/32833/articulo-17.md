@@ -1,0 +1,1 @@
+Artículo 17.—Todo cementerio tendrá obras de recolección de pluviales, pie de taludes, luz artificial y otras obras de infraestructura básica necesarias para su buen funcionamiento. Debe evitarse riesgos en los pasillos, por el mal estado de parrillas, en los caños recolectores de las aguas pluviales que lo atraviesan.

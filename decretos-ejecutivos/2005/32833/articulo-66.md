@@ -1,0 +1,1 @@
+Artículo 66.—Los cementerios que ofrezcan el servicio de cremación de cadáveres, podrán recibir para su cremación, cuando lo estimen conveniente, ablaciones procedentes de los quirófanos del Sistema Hospitalario Nacional o de Clínicas Privadas de atención médico quirúrgica, siempre y cuando estos establecimientos cuenten con el permiso sanitario de funcionamiento.

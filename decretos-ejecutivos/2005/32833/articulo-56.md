@@ -1,0 +1,1 @@
+Artículo 56.—El Área Rectora de Salud en coordinación con la Dirección de Vigilancia de la Salud del Ministerio, ordenará se clausure un cementerio, por razones de higiene, de orden público o cuando éste no satisfaga las condiciones prescritas por las leyes sanitarias y los requisitos del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 51.—Cuando los nichos, por la acción del tiempo, por movimientos telúricos o por cualquier otro motivo se deterioren, el Ministerio prohibirá su uso para nuevas inhumaciones y ordenará su demolición.

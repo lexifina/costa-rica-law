@@ -1,0 +1,1 @@
+Artículo 18.—En el caso de que existan cursos de agua de dominio público, permanentes o no, dentro del terreno del cementerio o colindante con ella, deberán de respetarse, los alineamientos o retiros estipulados por las leyes vigentes.

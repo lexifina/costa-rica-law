@@ -1,0 +1,1 @@
+Artículo 16.—En zonas urbanas el cementerio estará delimitado por pared o muro sólido de dos metros de altura (2 metros) mínima. Frente a la vía pública podrá utilizarse muro, verjas o combinación de ambas. En zonas rurales podrá ser delimitado por cerca de alambre o verja.

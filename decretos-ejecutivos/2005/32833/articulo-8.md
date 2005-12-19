@@ -1,0 +1,1 @@
+Artículo 8º—Todos los cementerios, deberán contar con un reglamento interno, ajustado a las disposiciones del presente reglamento; que contemple las normas técnicas y administrativas necesarias para su organización, funcionamiento, operación y mantenimiento, además, un registro estadístico de las inhumaciones, exhumaciones, cremaciones y traslados de restos.

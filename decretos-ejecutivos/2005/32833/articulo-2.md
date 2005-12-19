@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. La presente regulación reglamentaria tienen como fines primordiales la ubicación, construcción, ampliación y funcionamiento de los cementerios que se ubiquen en el territorio nacional.

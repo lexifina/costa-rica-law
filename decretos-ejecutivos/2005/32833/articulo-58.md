@@ -1,0 +1,1 @@
+Artículo 58.—En caso de clausura de un cementerio, conforme lo estipula el artículo 56 y a las disposiciones del 57 del presente reglamento, los arrendatarios de parcelas conservarán sus derechos sobre ellas, por el tiempo que falte para su vencimiento.

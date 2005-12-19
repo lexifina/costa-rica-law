@@ -1,0 +1,1 @@
+Artículo 44.—En las parcelas pueden levantarse monumentos, mausoleos diseñados por un profesional responsable y contar con los permisos constructivos respectivos, de acuerdo a la normativa para el Trámite de Visado de Planos para la Construcción.
