@@ -1,0 +1,1 @@
+Artículo 2º—Toda persona interesada, sin excepción alguna, podrá dirigirse al consejo de distrito para plantear sus quejas, reclamos o denuncias, siempre que sean dentro del ámbito de su jurisdicción.

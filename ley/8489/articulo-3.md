@@ -1,0 +1,4 @@
+Artículo 3º—La solicitud ante el consejo de distrito o ante quien este designe, se presentará sin formalidades especiales, en forma verbal o escrita, y sin costo alguno; sin embargo, la persona reclamante deberá indicar su nombre, sus calidades y el domicilio, exactos, así como exponer claramente los hechos denunciados y la prueba que pueda aportar.
+Si la denuncia es verbal, la persona denunciante rendirá declaración ante el consejo, el cual levantará un acta, que será firmada por quien denuncie y remitida al órgano o ente que corresponda.
+El consejo acusará recibo de las quejas o denuncias que se le formulen y tendrá amplia discrecionalidad ara darles curso a los reclamos o rechazarlos.
+En caso de rechazo, orientará a la persona denunciante respecto de las vías oportunas para que reclame sus derechos, si lo considera necesario. Asimismo, llevará un registro de las quejas o denuncias sometidas a su conocimiento.

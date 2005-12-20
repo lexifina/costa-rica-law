@@ -1,0 +1,1 @@
+Artículo 11.—De incurrir el consejo de distrito en una omisión en cuanto a la recepción y el seguimiento de las quejas o denuncias que lleguen a su conocimiento, esta función será asumida por el concejo municipal, cuando lo amerite el caso particular.

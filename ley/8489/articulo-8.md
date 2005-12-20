@@ -1,0 +1,1 @@
+Artículo 8º—Las corporaciones municipales, en la medida de sus posibilidades, facilitarán a los consejos de distrito los recursos necesarios para el cumplimiento de sus funciones, y promoverán la celebración de convenios o acuerdos interinstitucionales con la Defensoría de los Habitantes, a .n de apoyar la función asignada por esta Ley a los consejos de distrito.
