@@ -1,0 +1,1 @@
+Artículo 10.—Propaganda en el interior y exterior del tren. Toda aquella publicidad que vaya a ser colocada sobre las superficies externas del tren deberá respetar un espacio adecuado para que el emblema del INCOFER pueda ser apreciado fácilmente. En los espacios interiores, también deberá hacerse alusión al INCOFER, reservando siempre algunas áreas donde se ubiquen los emblemas.

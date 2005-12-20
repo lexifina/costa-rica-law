@@ -1,0 +1,1 @@
+Artículo 2º—Otorgamiento de permisos. Corresponderá al Consejo Directivo del INCOFER otorgar los permisos de uso temporales que habiliten a un ente público o privado a la colocación de la publicidad descrita en el artículo primero de este Reglamento. Para ello, el Instituto observará los procedimientos que la ley le habilita a esos efectos.

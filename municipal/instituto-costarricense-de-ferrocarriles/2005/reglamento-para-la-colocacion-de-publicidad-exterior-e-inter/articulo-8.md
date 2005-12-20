@@ -1,0 +1,1 @@
+Artículo 8º—Prohibición de propaganda religiosa o política. Dentro de la publicidad que se exhiba queda estrictamente prohibido toda clase de propaganda referente a partidos políticos o credos religiosos. Además estará prohibida aquella propaganda referida a licores, cigarrillos y toda aquella otra que pueda resultar contraria a las buenas costumbres y a la moral.
