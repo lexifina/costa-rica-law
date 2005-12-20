@@ -1,0 +1,1 @@
+Artículo 2º—Por las compras de bienes y servicios de ¢1.000.001.00 (Un millón un colón exactos) a ¢ 5.000.000,00 (cinco millones de colones exactos), las aprobará el Consejo Municipal mediante el procedimiento de contratación directa, (presentación de facturas, proformas y justificando las razones para su adjudicación.
