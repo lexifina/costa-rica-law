@@ -197,10 +197,16 @@ Destreza y pericia en el manejo de armas de fuego.
 Curso de protección de dignatarios.
 Curso teórico práctico de armas de fuego.
 Nivel A:
-Título de bachiller en Educación Media.
-Experiencia mínima de dos años en labores relacionadas con el cargo.
-Destreza y pericia en el manejo de armas de fuego.
-Curso teórico práctico de armas de fuego.
+• Título de bachiller en Educación Media.
+• Experiencia mínima de dos años en labores relacionadas con el cargo.
+• Destreza y pericia en el manejo de armas de fuego.
+• Curso teórico práctico de armas de fuego.
+o
+• Tercer ciclo aprobado de Enseñanza General Básica.
+• Experiencia mínima de tres años en labores relacionadas con el cargo.
+• Destreza y pericia en el manejo de armas.
+• Curso teórico práctico de armas de fuego.
+(Así reformado mediante acuerdo N° 41 tomado en sesión N° 192 celebrada el 20 de diciembre del 2005).
 SUPERVISOR DE TURNO-SEGURIDAD
 Objetivo del trabajo: Colaborar con la Jefatura de la Sección de Seguridad, mediante la coordinación y supervisión de un grupo de Agentes de Seguridad, ejecutando labores de organización, asignación y control de trabajo en los roles respectivos.
 Ubicación: Sección de Seguridad.
