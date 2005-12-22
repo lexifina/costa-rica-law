@@ -1,0 +1,2 @@
+Artículo 2º—La Asociación pro Vivienda del Segundo Milenio del Barrio Los Ángeles de Heredia, destinará dicho inmueble a la construcción de viviendas de interés social para treinta y cuatro familias (34), las cuales serán seleccionadas por dicha organización.
+Si alguno de los beneficiarios no califica para el bono de la vivienda, la Asociación lo sustituirá por otro que sí cumpla los requisitos establecidos por el Sistema Financiero Nacional para la Vivienda.
