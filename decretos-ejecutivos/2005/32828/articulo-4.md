@@ -1,0 +1,2 @@
+Artículo 4º—Del director y subdirector jurídico. La Asesoría Jurídica del Ministerio de Hacienda está a cargo de un Director(a) Jurídico(a) y un Subdirector (a) Jurídico(a) quienes deberán ser abogados, y ejecutarán sus funciones con amplia independencia profesional, para lo cual acatarán las normas, la legislación y las directrices aplicables al área de su actividad.
+El superior jerárquico de la Asesoría Jurídica del Ministerio de Hacienda serán el Ministro y los Viceministros de Ingresos y Egresos de Hacienda.

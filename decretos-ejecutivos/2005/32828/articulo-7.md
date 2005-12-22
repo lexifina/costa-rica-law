@@ -1,0 +1,1 @@
+Artículo 7º—De las comisiones. El Director podrá designar a los funcionarios para que formen parte en las comisiones que a lo interno del Ministerio de Hacienda, resulten necesarias para estudiar asuntos de su competencia.

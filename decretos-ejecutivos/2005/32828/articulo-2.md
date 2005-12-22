@@ -1,0 +1,1 @@
+Artículo 2º—Del objetivo general. La Asesoría Jurídica del Ministerio de Hacienda tiene por objetivo general analizar, asesorar y resolver los asuntos de índole legal sometidos a su conocimiento, a través del desarrollo de una labor de interpretación, aplicación y valoración jurídica, dentro del marco de la racionalidad, transparencia y objetividad institucional.

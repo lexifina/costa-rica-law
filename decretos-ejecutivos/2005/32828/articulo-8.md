@@ -1,0 +1,1 @@
+Artículo 8º—De la Asignación de las tareas de la Asesoría Jurídica del Ministerio de Hacienda. El Director tendrá la facultad de asignar las tareas o complementar las existentes así como, efectuar aquellos cambios que se requieran, para una mayor eficiencia de la Asesoría Jurídica del Ministerio de Hacienda.
