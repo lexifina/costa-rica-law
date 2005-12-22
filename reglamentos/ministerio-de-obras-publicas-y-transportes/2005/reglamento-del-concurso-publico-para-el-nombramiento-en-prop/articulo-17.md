@@ -1,0 +1,1 @@
+Artículo 17.—De la comunicación del nombramiento a la Contraloría General de la República. De conformidad con el Artículo 31 de la Ley N° 8292 se comunicará a la Contraloría General de la República el nombramiento resultante a más tardar el primer día hábil del inicio de funciones del Subauditor Interno en el respectivo cargo.

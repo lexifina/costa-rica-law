@@ -1,0 +1,2 @@
+Artículo 13.—Sobre la forma en que estará conformada la terna y sus efectos. Se conformará una terna con las tres personas que hayan obtenido las calificaciones más altas, del total de oferentes que hayan completado el proceso.
+Asimismo, la Dirección General de Recursos Humanos solicitará a los integrantes de la misma, declaración jurada en la que se acredite la ausencia de impedimentos legales, administrativos o de incompatibilidades que puedan afectar su posible nombramiento, de acuerdo con lo dispuesto por nuestro ordenamiento jurídico.

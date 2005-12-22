@@ -1,0 +1,1 @@
+Artículo 8º—Sobre la recepción de las ofertas. Se recibirán ofertas solamente de aquellos interesados que demuestren poseer los requisitos establecidos para el puesto en concurso, las mismas deben ser presentadas en forma personal y bajo ninguna circunstancia se recibirán mediante fax, correo, ni correo electrónico. Tampoco se recibirán ofertas condicionadas.

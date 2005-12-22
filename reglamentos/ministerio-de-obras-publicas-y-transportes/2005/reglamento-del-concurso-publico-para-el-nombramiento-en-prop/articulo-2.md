@@ -1,0 +1,1 @@
+Artículo 2º—Acciones previas. De previo a realizar el procedimiento del Concurso Público que aquí se regula, se requiere la instrucción expresa del Jerarca Institucional como acto de inicio, designando a la unidad administrativa competente para el procedimiento del Concurso Público que aquí se regula.

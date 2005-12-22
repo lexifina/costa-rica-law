@@ -1,0 +1,2 @@
+Artículo 12.—Sobre la comunicación de los resultados. Los resultados del concurso serán comunicados en forma escrita por la Dirección de Recursos Humanos a cada uno de los participantes evaluados, por el medio señalado por el oferente para recibir la notificación (personal, telegrama, fax), lo cual se hará constar en el expediente del Concurso.
+Contra esta comunicación podrá interponerse el recurso de revocatoria, el de apelación o ambos, de conformidad con lo que se establece la Ley General de la Administración Pública para esos efectos.

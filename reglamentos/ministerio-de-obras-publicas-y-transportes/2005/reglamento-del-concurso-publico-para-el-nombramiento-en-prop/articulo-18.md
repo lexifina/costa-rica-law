@@ -1,0 +1,1 @@
+Artículo 18.—Del período de prueba. Una vez nombrado el Subauditor Interno, estará sujeto a un período de prueba de 3 meses. Concluido ese período de prueba, el Jerarca Institucional procederá a comunicar a la Contraloría General de la República su conformidad o disconformidad con el desempeño del funcionario nombrado.
