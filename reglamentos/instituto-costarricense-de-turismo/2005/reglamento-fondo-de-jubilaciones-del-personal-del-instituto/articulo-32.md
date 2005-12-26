@@ -1,0 +1,1 @@
+Artículo 32.—De las disposiciones de la Junta. La Junta establecerá los procedimientos para una sana administración del fondo, acorde a la legislación aplicable y vigente, siendo obligación de todos los miembros acatar las disposiciones que al efecto tome dicha Junta.

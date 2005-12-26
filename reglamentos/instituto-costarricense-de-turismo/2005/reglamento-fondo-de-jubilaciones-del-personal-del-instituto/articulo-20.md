@@ -1,0 +1,1 @@
+Artículo 20.—De las sesiones. La Junta deberá reunirse en Sesión Ordinaria una vez al mes, en el lugar, día y hora que sus miembros determinen y, en Sesión Extraordinaria, las veces que sea convocada por escrito por el Presidente, o en ausencia de este, por el Vicepresidente o por el Fiscal con el apoyo de tres de sus miembros.

@@ -1,0 +1,1 @@
+Artículo 6º—Esquema financiero del plan de retiro. El plan de jubilación se sustentará en el esquema financiero de la capitalización individual, el Fondo se constituye con la capitalización de los aportes y rendimientos que generan las inversiones del Fondo.

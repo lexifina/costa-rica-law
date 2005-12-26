@@ -1,0 +1,1 @@
+Artículo 27.—De los informes anuales. La Junta rendirá, a más tardar el 15 de Febrero de cada año, un informe con los estados financieros auditados al 31 de Diciembre del año anterior por la Auditoría Externa, a la Junta Directiva del Instituto, a la SUPEN y a la Asamblea General, sobre las operaciones realizadas durante el período fiscal del año anterior.
