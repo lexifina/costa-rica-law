@@ -1,0 +1,2 @@
+Artículo 12.—Donación de productos forestales.
+La Dirección Administrativa de Bienes Inmuebles gestionará ante el Ministerio de Ambiente y Energía, las autorizaciones de extracción y transporte de productos forestales, de conformidad con la Ley Forestal Nº 7575 y su reglamento. La Dirección Administrativa de Bienes Inmuebles solicitará dicha autorización en el plazo de tres días hábiles, contados a partir del día siguiente a la remisión de la solicitud de la Dirección de Proveeduría.

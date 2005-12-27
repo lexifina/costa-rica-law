@@ -1,0 +1,1 @@
+Artículo 37.—Las disposiciones de este Reglamento no serán aplicables a los Planes de Gestión Ambiental aprobados por la Secretaría Técnica Nacional Ambiental (SETENA), los programas de manejo de cuencas y los programas complementarios al desarrollo de los Proyectos de Generación Eléctrica.

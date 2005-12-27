@@ -1,0 +1,1 @@
+Artículo 33.—En todos los casos, el donatario deberá autorizar al ICE para que realice las inspecciones y verificaciones que la Institución considere necesarias para comprobar el buen uso y destino adecuado del bien objeto de la donación.

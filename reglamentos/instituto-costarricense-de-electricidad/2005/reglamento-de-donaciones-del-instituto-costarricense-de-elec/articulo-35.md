@@ -1,0 +1,1 @@
+Artículo 35.—La Dirección Jurídica Institucional elaborará los contratos y otros documentos legales cuando así corresponda. Para tal efecto la Dirección Jurídica Institucional coordinará con la Dirección de Proveeduría, Presidencia Ejecutiva, Gerencia General, Subgerencias de Sector, Direcciones Administrativas y Unidades Estratégicas de Negocios, según corresponda.

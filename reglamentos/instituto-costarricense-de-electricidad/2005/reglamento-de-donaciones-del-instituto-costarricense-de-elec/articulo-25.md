@@ -1,0 +1,1 @@
+Artículo 25.—La aceptación de las donaciones, no implicará gastos por concepto de reparación, operación y mantenimiento, mayores a los que requieren los bienes similares propiedad de la institución o los que normalmente arriendan.

@@ -1,0 +1,1 @@
+Artículo 32.—El ICE no cubrirá los costos de transporte y montaje de los bienes donados por la Institución, salvo en casos debidamente justificados, previa aprobación por parte de la Subgerencia depositaria del bien, en coordinación con las dependencias respectivas.

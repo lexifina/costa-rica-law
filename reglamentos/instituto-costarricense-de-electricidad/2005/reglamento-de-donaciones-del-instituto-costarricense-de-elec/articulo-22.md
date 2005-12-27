@@ -1,0 +1,1 @@
+Artículo 22.—El incumplimiento de los artículos 20 y 21 de este Reglamento o cualquier uso inadecuado de los recursos financieros donados, obligará al ICE a exigir al donatario la devolución inmediata de los fondos donados y éste deberá dar cumplimiento a tal obligación.

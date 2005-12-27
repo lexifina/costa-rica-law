@@ -1,0 +1,8 @@
+6.2 Título II donaciones que realiza el ICE.
+6.2.1 Capítulo I. Sobre el trámite y aprobación.
+Artículo 4º—Requisitos de admisibilidad. Las solicitudes de donación deberán ser presentadas ante cualquier dependencia del ICE, por personas físicas o jurídicas, directamente o mediante su representante y/o persona autorizada.
+En el caso de personas jurídicas las solicitudes deberán ser suscritas por el jerarca o representante legal de la entidad. Las solicitudes presentadas por las Municipalidades serán suscritas por el Alcalde Municipal en ejercicio.
+La solicitud deberá incluir el acuerdo firme emitido por el órgano colegiado correspondiente, si lo hubiere, mediante el cual se solicita la donación, indicar el interés público que reviste la donación, el uso y ubicación que tendrán los bienes y el medio o lugar para notificaciones. Adicionalmente el solicitante indicará, en la medida de sus posibilidades, el sitio donde se ubican los bienes y un número telefónico en el cual la Institución pueda obtener información complementaria relacionada con la solicitud de donación.
+Las solicitudes deberán incluir la siguiente información:
+a. Fundamento legal de la solicitud.
+b. Informe detallado de la cantidad y características de los bienes requeridos, utilizando las unidades legales de medida, de conformidad con el Decreto Ejecutivo 29660 del 18 de abril del 2001, Reglamento RTCR 26:2000 Metrología. Unidades Legales de Medida. CDU 53.081:003.62., publicado en el Diario Oficial La Gaceta 151 del 8 de agosto del 2001. La referencia por lote solamente será aceptada cuando se trate de materiales con características especiales de embalaje, tales como la chatarra y el cable de acometida exterior.

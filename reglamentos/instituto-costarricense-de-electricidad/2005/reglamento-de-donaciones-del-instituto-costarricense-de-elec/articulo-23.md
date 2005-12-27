@@ -1,0 +1,7 @@
+6.3 Título III. Donaciones a favor del ICE.
+6.3.1 Capítulo único. Sobre las donaciones a favor del ICE, trámite y aceptación.
+Artículo 23.—Las ofertas de donación a favor del ICE deberán ser suscritas y presentadas ante cualquier dependencia del ICE, por personas físicas o jurídicas, directamente o mediante su representante y/o persona autorizada con capacidad para donar, indicando el valor estimado del bien sujeto a donación y medio o lugar para notificaciones. Las ofertas de donación, cumplirán con los trámites señalados en los artículos 4º, 5º, 6º, 7º y 10 del Reglamento, según
+corresponda.
+El Consejo Directivo aceptará, rechazará y solicitará las donaciones cuyo valor sea igual o superior al señalado en el párrafo primero del artículo 8 de este Reglamento. El Consejo Directivo autoriza al Presidente Ejecutivo, Gerente General, Subgerentes de Sector, Directores Administrativos y de UEN para que acepten, rechacen y soliciten donaciones a favor del ICE, según el valor de la donación de conformidad con los límites establecidos en el artículo 8º del Reglamento.
+Las dependencias señaladas en el párrafo anterior aceptarán, rechazarán y solicitarán donaciones con base en el criterio de oportunidad y conveniencia institucional y en los informes técnicos que para tal efecto podrán solicitar a las distintas dependencias del ICE.
+Los informes técnicos se remitirán en el plazo de seis días hábiles, contados a partir del día siguiente a la remisión de la solicitud de la Dirección de Proveeduría.

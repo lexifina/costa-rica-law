@@ -1,0 +1,2 @@
+Artículo 39.—Las donaciones amparadas en la Ley de Distribución de Bienes Confiscados o Caídos en Comiso, Ley Nº 6106 del 7 de noviembre de 1977 y las donaciones a favor de la Administración Central se tramitarán de conformidad con el Reglamento a Ley de Distribución de Bienes Confiscados o Decomisados, Decreto Ejecutivo Nº 26132 del 8 de junio de 1997 y el Reglamento para el Registro y Control de Bienes de la Administración Central, Decreto Ejecutivo Nº 30720 del 26 de agosto del 2002 y sus reformas.
+Rige a partir de su publicación.

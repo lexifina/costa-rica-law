@@ -1,0 +1,2 @@
+Artículo 15.—El Almacén de Recuperación de Materiales de la Dirección Administrativa Logística será la dependencia responsable de la custodia, clasificación y control de los materiales declarados obsoletos y de desecho.
+Los materiales de desecho como el cobre, aluminio y plomo se mantendrán cada uno por separado y se controlarán por peso. Las llantas, transformadores, envases, baterías y otros objetos cuya forma y uso corresponda a una unidad definida, se controlarán por unidad.

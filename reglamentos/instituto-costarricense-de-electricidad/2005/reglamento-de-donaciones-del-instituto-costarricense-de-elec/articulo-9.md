@@ -1,0 +1,1 @@
+Artículo 9º—El Consejo Directivo otorga las facultades enumeradas en el numeral 1408 del Código Civil al Presidente Ejecutivo, Gerente General, Subgerentes de Sector, Directores Administrativos y de Directores de las Unidades Estratégicas de Negocios, para que donen en representación del ICE, en los términos que señala el artículo 8º de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 36.—En los casos que la donación suponga la administración de recursos públicos, el donatario deberá cumplir con lo dispuesto en la Ley de la Administración Financiera y Presupuestos Públicos y la Ley de la Contratación Administrativa y su Reglamento.

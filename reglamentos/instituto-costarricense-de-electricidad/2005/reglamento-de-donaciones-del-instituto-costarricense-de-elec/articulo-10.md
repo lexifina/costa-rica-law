@@ -1,0 +1,3 @@
+Artículo 10.—La Dirección de Proveeduría agregará la resolución al expediente y la notificará al solicitante en el plazo de tres días hábiles, contados a partir del día siguiente a su recepción.
+La Proveeduría, previa coordinación con la Dirección Jurídica Institucional, informará al donatario la hora, día y lugar para formalizar la donación, de conformidad con lo establecido en el artículo 29 del Reglamento.
+La Proveeduría coordinará con las dependencias propietarias o depositarias del bien e informará al donatario la hora, día y lugar para entregar los bienes al donatario o a la persona autorizada, de conformidad con lo establecido en el artículo 29 del Reglamento.

@@ -1,0 +1,1 @@
+Artículo 18.—De conformidad con la Ley de Administración Financiera y Presupuestos Públicos y el principio de universalidad presupuestaria, las donaciones de dinero quedarán sujetas a la aprobación de la modificación del contenido presupuestario por parte de la Contraloría General de la República.

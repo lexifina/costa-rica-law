@@ -1,0 +1,1 @@
+Artículo 34.—El donatario deberá ajustarse al uso propio de los bienes donados, las limitaciones y los plazos que se señalen en la escritura pública respectiva. En caso que se modifique su uso o alteren los términos definidos por la Institución, esta última, por intermedio del órgano que aprobó la donación, podrá revocar la donación y solicitar la devolución de los bienes.

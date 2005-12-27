@@ -1,0 +1,1 @@
+Artículo 13.—Cuando la donación sea de bienes obsoletos, la dependencia técnica que custodie el bien, será la responsable de remitir a la Dirección de Proveeduría, la declaratoria de obsolescencia de los materiales, equipos y repuestos solicitados.
