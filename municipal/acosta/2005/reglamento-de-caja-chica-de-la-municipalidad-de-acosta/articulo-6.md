@@ -1,0 +1,1 @@
+6º—El Alcalde firma y sella el original y la copia del comprobante de pago y luego de comprobar si el gasto se ajusta a lo estipulado en el punto 3, lo remite a la Tesorería. En ausencia del Alcalde podrá firmar el Encargado de la Oficina de la Unidad Técnica de Gestión Vial.
