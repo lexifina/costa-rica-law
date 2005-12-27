@@ -1,0 +1,1 @@
+Artículo 6º—La aceptación del préstamo deberá respetar los principios de libre concurrencia, igualdad de trato entre los oferentes, publicidad, legalidad y transparencia, seguridad jurídica, equilibrio de intereses, buena fe, razonabilidad, oportunidad y conveniencia.

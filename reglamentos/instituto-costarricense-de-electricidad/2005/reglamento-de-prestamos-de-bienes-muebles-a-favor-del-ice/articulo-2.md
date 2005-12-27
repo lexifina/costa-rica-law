@@ -1,0 +1,1 @@
+Artículo 2º—El préstamo, en su modalidad de comodato, es un contrato gratuito mediante el cual el prestador autoriza al Instituto Costarricense de Electricidad (ICE), en su condición de prestatario, para el uso de bienes muebles y nuevas tecnologías propiedad del prestador.

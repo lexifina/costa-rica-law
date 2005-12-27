@@ -1,0 +1,2 @@
+Artículo 3º—Las ofertas para prestar al ICE serán presentadas ante la Subgerencia competente, directamente o mediante su representante y/o persona autorizada, indicando el valor estimado del bien objeto del préstamo y el medio o lugar para recibir notificaciones.
+La oferta deberá detallar la cantidad y características de los bienes prestados, utilizando las unidades legales de medida, de conformidad con el Decreto Ejecutivo Nº 29660 del 18 de abril del 2001, Reglamento RTCR 26:2000 Metrología, Unidades Legales de Medida.

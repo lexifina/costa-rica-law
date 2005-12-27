@@ -1,0 +1,1 @@
+Artículo 5º—La resolución de aceptación o rechazo del préstamo será remitida a la Dirección de Proveeduría para que la agregue al expediente y notifique la resolución al prestador, señalando para tal efecto hora, día y lugar para el acto de recepción del bien, según corresponda.
