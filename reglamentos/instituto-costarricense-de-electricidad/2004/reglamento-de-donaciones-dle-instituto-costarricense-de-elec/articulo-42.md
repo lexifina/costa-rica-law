@@ -1,2 +1,0 @@
-Artículo 42.—En donaciones aprobadas con restricciones, la entidad beneficiaria deberá ajustarse al uso, limitaciones y términos que le fueron impuestos por el ICE y señalados en la escritura pública respectiva. En caso de que se varíen el uso o los términos, el ICE a través de su Consejo Directivo, podrá revocar y dejar sin efecto la donación.
-(Así corrida su numeración, en sesión No. 5630 de 23 de agosto de 2004, que lo pasó del artículo N° 38 al N° 42 actual).

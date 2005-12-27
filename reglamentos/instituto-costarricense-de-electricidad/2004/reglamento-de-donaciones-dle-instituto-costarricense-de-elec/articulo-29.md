@@ -1,2 +1,0 @@
-Artículo 29.—En las donaciones de dinero, el representante previamente autorizado de la entidad beneficiaria, una vez ejecutado el proyecto financiado con la donación, deberá presentar a la Presidencia Ejecutiva del ICE, dentro del término de 30 días naturales, un informe detallado de esta, aprobado por el respectivo órgano colegiado, de conformidad con los lineamientos que para tal efecto proporcionará el ICE.
-(Así corrida su numeración, en sesión No. 5630 de 23 de agosto de 2004, que lo pasó del artículo N° 25 al N° 29 actual).

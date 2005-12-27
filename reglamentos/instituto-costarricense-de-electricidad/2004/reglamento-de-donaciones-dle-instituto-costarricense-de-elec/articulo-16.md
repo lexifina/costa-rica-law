@@ -1,1 +1,0 @@
-Artículo 16.—En los casos de las donaciones producto de importaciones temporales, debe incluirse de previo, en el contrato respectivo, las normas y los procedimientos bajo los cuales dicho equipo se trasladaría al ICE, en especial en materia tributaria (cancelación de impuestos de importación o exoneraciones).

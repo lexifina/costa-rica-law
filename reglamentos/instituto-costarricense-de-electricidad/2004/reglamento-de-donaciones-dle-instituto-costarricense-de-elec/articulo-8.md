@@ -1,1 +1,0 @@
-Artículo 8º—Recibida la recomendación de donación por parte de la Dirección de Proveeduría, el órgano competente, según los lineamientos del artículo 6º, procederá a aprobar o denegar la solicitud de donación, según corresponda. En caso de apartarse de la recomendación de la Dirección de Proveeduría, se deberá señalar las razones en las que fundamenta su decisión.

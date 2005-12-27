@@ -1,2 +1,0 @@
-Artículo 26.—De conformidad con la Ley de Administración Financiera y Presupuestos Públicos (Ley Nº 8131), el ICE podrá girar el dinero de la donación una vez que la entidad beneficiaria presente la modificación presupuestaria aprobada por la Contraloría General de la República.
-(Así corrida su numeración, en sesión No. 5630 de 23 de agosto de 2004, que lo pasó del artículo N° 22 al N° 26 actual).

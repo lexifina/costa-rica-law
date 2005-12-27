@@ -1,2 +1,0 @@
-Artículo 32.—A partir del acto de notificación de aprobación de una solicitud de donación por parte de la Presidencia Ejecutiva, el beneficiario tendrá un plazo de treinta días naturales para realizar la formalización de la escritura. Si transcurrido ese plazo, el beneficiario no se presenta a realizar la formalización, el acto de donación se tendrá por desestimado.
-(Así corrida su numeración, en sesión No. 5630 de 23 de agosto de 2004, que lo pasó del artículo N° 28 al N° 32 actual).

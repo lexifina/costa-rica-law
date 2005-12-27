@@ -1,2 +1,0 @@
-Artículo 36.—Cuando se trate de bienes inmuebles, sean estos patrimoniales o demaniales, la solicitud deberá estar respaldada por una disposición legal que autorice o faculte al ICE a realizar el acto de donación, para lo cual deberá llevarse un registro de disposiciones legales bajo la competencia de la Dirección Jurídica Institucional, en los términos que dispone el artículo primero párrafo segundo de este reglamento.
-(Así corrida su numeración, en sesión No. 5630 de 23 de agosto de 2004, que lo pasó del artículo N° 32 al N° 36 actual).

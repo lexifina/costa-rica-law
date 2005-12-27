@@ -1,2 +1,0 @@
-Artículo 27.—Tratándose de donaciones en dinero, destinadas a proyectos específicos de obras, cada entidad beneficiaria deberá llevar el control correspondiente del avance físico y financiero, el cual servirá de base para la verificación del uso adecuado de los recursos donados para el proyecto. La entidad beneficiaria está obligada a permitir que el ICE efectúe las inspecciones o verificaciones que correspondan.
-(Así corrida su numeración, en sesión No. 5630 de 23 de agosto de 2004, que lo pasó del artículo N° 23 al N° 27 actual).
