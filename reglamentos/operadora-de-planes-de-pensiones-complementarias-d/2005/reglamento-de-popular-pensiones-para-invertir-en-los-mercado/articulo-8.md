@@ -1,0 +1,2 @@
+Artículo 8º—Condición crediticia de los activos financieros objeto de negociación. Los activos financieros objeto de negociación, que estén sujetos a calificación crediticia, deberán ostentar el grado de inversión determinado por las agencias calificadoras de riesgo reconocidas internacionalmente y ubicarse dentro de los niveles o rating establecidos reglamentariamente por SUPEN.
+En caso de que un instrumento ostente más de una calificación, se tomará la menor de ellas.

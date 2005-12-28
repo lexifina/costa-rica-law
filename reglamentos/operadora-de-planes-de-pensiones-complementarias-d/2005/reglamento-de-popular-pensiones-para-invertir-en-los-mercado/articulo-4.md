@@ -1,0 +1,8 @@
+Artículo 4º—Reglas aplicables. Las inversiones en los mercados financieros internacionales se regirán por las siguientes reglas:
+a) Se acudirá a tales mercados con el objeto de invertir los recursos propiedad de los fondos de pensión administrados y los propios recursos de la Operadora, siempre y cuando, por motivo de límites de inversión y de riesgo, o por estrategia de diversificación del Comité de Inversiones, en el mercado costarricense no existan opciones de inversión que estén en igualdad o mejores condiciones.
+b) Toma de decisiones fundamentadas en criterios y opiniones técnicas, provenientes de especialistas o expertos en la materia.
+c) Documentación de las políticas y procedimientos relacionados con los mercados, agentes, contrapartes, líneas de mando y control de riesgos.
+d) Supervisión interna de las actividades, incluyendo labores de control, capacitación y el cumplimiento de normativa interna y externa.
+e) Enfoque integral para la administración de inversiones y de riesgos, capaz de evaluar la exposición y el desempeño.
+f) Atención especial de los aspectos contractuales (incluyendo el contrato en sí y toda otra documentación que respalde su firma), y otros legales.
+La administración de Popular Pensiones deberá informar a la Junta Directiva, en forma trimestral o con mayor frecuencia cuando esta última así lo indique, sobre las inversiones en los mercados financieros internacionales. Tales informes deben demostrar que dichas inversiones están siendo administradas en concordancia con la estrategia general de la entidad, su posición financiera, los lineamientos establecidos en este Reglamento y de acuerdo con la regulación emitida por el CONASSIF y la SUPEN.

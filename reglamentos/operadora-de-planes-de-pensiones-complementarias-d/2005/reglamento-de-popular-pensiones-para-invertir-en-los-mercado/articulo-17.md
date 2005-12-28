@@ -1,0 +1,3 @@
+Artículo 17.—Enfoque de inversiones y riesgo. Las operaciones que se realicen en los mercados financieros internacionales deberán ser evaluadas en forma integral por el Comité de Inversiones y el Comité de Riesgos. Para tal fin, se deberá tomar en cuenta las características de riesgo y rendimiento de las posiciones que se asuman en estos mercados, junto con las que se tengan en el mercado financiero local.
+Para efectos de evaluaciones de riesgo, rendimiento y estrategia de inversión, se deberán tomar en cuenta, en forma global, las posiciones que se asuman en estos mercados, así como el impacto que puedan tener tales transacciones.
+Se remitirán informes a la Junta Directiva en forma trimestral, o con mayor frecuencia, cuando esta así lo disponga.

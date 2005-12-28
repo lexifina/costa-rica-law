@@ -1,0 +1,14 @@
+CAPÍTULO V
+Requisitos por cumplir durante las operaciones
+en mercados financieros internacionales
+Artículo 16.—Condiciones que deben cumplirse una vez en operación. Una vez que Popular Pensiones se encuentre realizando operaciones en los mercados financieros internacionales, la Administración deberá:
+a) Controlar el proceso operativo relacionado con las transacciones (compra y venta), su registro y la confirmación de las transacciones y conservar documentación sobre todas las operaciones anteriormente citadas.
+b) Contar con una descripción, por escrito, de los procedimientos de cada una de las áreas que participan en las operaciones de inversión internacional, aprobados de acuerdo con la normativa interna para la implementación y aplicación de los procedimientos.
+Los procedimientos deberán incluir, al menos, el detalle de los colaboradores autorizados para negociar, aprobar, ejecutar, registrar y revisar cuentas y documentos relativos a las transacciones con este tipo de instrumentos. Se deben incluir, cuando corresponda, las limitaciones o restricciones que se pueden imponer en estas funciones y puestos, los procedimientos para el manejo y revisión de tales actividades, la metodología para valorar las transacciones y determinar el grado de efectividad de las inversiones, la definición de los reportes necesarios, los procedimientos para la aprobación de intermediarios y agentes por medio de los cuales se transará, los documentos que como mínimo se requieran a los intermediarios, agentes y otros participantes.
+c) Contar con una estructura organizacional y administrativa que defina en forma clara las líneas de autoridad y responsabilidad y que mantenga la independencia entre las áreas de operaciones, contable y de control del riesgo.
+d) El Gerente General será el responsable de sugerir a la Junta Directiva la actualización de las políticas.
+Es responsabilidad del Gerente de Popular Pensiones sugerir la promulgación y actualización de las normas necesarias para el adecuado desempeño de lo indicado en este artículo.
+e) Planificar sus acciones en caso de que una contraparte o un agente sea suspendido, intervenido o cesado en sus funciones por disposición administrativa o judicial, sea sanción administrativa o penal, concurso de acreedores, quiebra u otra causa similar. Estos mecanismos deben permitir una rápida reacción y establecer en forma clara el estatus legal de cada contrato o negociación, los procedimientos y caminos alternativos por seguir.
+f) Establecer políticas generales de control interno para estas operaciones.
+g) Evaluar los resultados obtenidos en relación a los riesgos asumidos.
+h) Dar seguimiento continuo al mercado financiero costarricense con el fin de evaluar la redirección de los recursos colocados en el exterior ante la existencia de mejores opciones de inversión en el mercado nacional, en concordancia con el artículo 4, inciso a) del presente Reglamento.
