@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De las sanciones
+Artículo 10.—Sanciones. Cualquier infracción a las disposiciones contenidas al presente reglamento, por parte de los funcionarios de la Unidad de Seguridad, en el cumplimiento de sus labores, será sancionada de conformidad con lo dispuesto en el artículo 36 y siguientes de la Ley de Personal de Asamblea Legislativa, y lo contenido en el Reglamento Autónomo de Servicio de la Asamblea Legislativa, en concordancia con lo contemplado en la Ley General de Administración Pública y demás legislación laboral vigente, respetando los principios constitucionales del debido proceso.

@@ -1,0 +1,1 @@
+Artículo 3º—Objetivo. El presente Reglamento tendrá por objeto establecer los mecanismos a los cuales el visitante debe someterse para el ingreso a la Institución, la conducta que debe guardar dentro de ella y la información necesaria para que el mismo sea atendido de una forma ágil, pronta y eficaz.
