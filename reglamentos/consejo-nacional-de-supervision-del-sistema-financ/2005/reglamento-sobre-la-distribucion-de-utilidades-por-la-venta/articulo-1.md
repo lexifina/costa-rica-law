@@ -1,0 +1,9 @@
+El Consejo Nacional de Supervisión del Sistema Financiero, mediante artículo 5 del acta de la sesión 544-2005, celebrada el 8 de diciembre del 2005,
+Considerando:
+1. que mediante Artículo 1 de la Ley 4631 del 18 de agosto de 1970, reformada a través del Artículo 167 de la Ley Orgánica de Banco Central de Costa Rica, Ley 7558, se encarga a la Superintendencia General de Entidades Financieras para que dicte las normas relativas a la aplicación de dicho Artículo.
+2. que las normas relativas a la aplicación del Artículo 1 de la Ley 4631 deben referirse a la forma de cálculo, distribución y liquidación de las utilidades netas que obtengan los intermediarios financieros supervisados por la Superintendencia General de Entidades Financieras, derivadas de la explotación y venta de bienes adjudicados en remates judiciales, así como a los mecanismos de comunicación que deben utilizar las partes involucradas, dispuso:
+aprobar el Acuerdo SUGEF 6-05, “Reglamento sobre la Distribución de Utilidades por la venta de Bienes adjudicados (Artículo 1 de la Ley 4631)”, conforme al texto que se copia de inmediato:
+Acuerdo SUGEF 6-05
+REGLAMENTO SOBRE LA DISTRIBUCIÓN DE UTILIDADES POR LA VENTA DE BIENES ADJUDICADOS (ARTÍCULO 1 DE LA LEY 4631)
+Artículo 1º—Objetivo y alcance. Conforme con lo dispuesto en el Artículo 1 de la Ley 4631, el presente reglamento tiene como objeto regular el cálculo y la aplicación de las utilidades netas que obtengan las entidades financieras supervisadas por la Superintendencia General de Entidades Financieras (SUGEF), derivadas de la explotación y la venta de los bienes que les sean adjudicados en remate, así como los mecanismos de comunicación que deben utilizar las partes involucradas.
+La transferencia de derechos de cobro o bienes adjudicados en remate judicial a un fideicomiso, no exime del cumplimiento de este Reglamento.

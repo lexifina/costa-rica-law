@@ -1,0 +1,9 @@
+Artículo 3º—Definiciones. Para la aplicación de las utilidades netas conforme lo indicado en el Artículo anterior debe entenderse lo siguiente:
+a) Venta del bien y materialización de las utilidades netas: El bien se tendrá por vendido a partir de la fecha en que las partes convienen cosa y precio. Las utilidades netas que existieren se tendrán por devengadas en ese mismo momento.
+b) Gastos de administración: Los gastos de administración incurridos pendientes de cobro, comprenden los siguientes rubros:
+i) Gastos por gestión de cobro administrativo: comprende los gastos identificables y razonablemente medidos por la entidad, asociados a la gestión de cobro de la operación crediticia que originó el proceso de remate judicial.
+ii) Gastos de adjudicación: comprende los gastos por concepto de costas personales y procesales en que incurrió la entidad durante el proceso de cobro judicial.
+Tratándose de gastos en moneda extranjera o en Unidades de Desarrollo, se computarán por su equivalente en colones calculados al tipo de cambio de compra de referencia del Banco Central de Costa Rica (*) o la referencia correspondiente a las Unidades de Desarrollo, vigente a la fecha en que se incurrió el gasto.
+c) Obligaciones de plazo vencido: Obligaciones con al menos una cuota de principal o de intereses vencida, según los términos contractuales pactados.
+d) Capital e intereses de la obligación que originó el remate: Monto del principal y de los intereses devengados y no cobrados derivados de la operación que motivó el remate, acumulados hasta la fecha del remate.
+Tratándose de obligaciones pactadas en moneda extranjera o en Unidades de Desarrollo, el principal y los intereses se computarán por su equivalente en colones, calculados al tipo de cambio de compra de referencia del Banco Central de Costa Rica (*) o la referencia correspondiente a las Unidades de Desarrollo, vigente a la fecha del remate.

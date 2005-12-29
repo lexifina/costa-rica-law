@@ -1,0 +1,2 @@
+Artículo 2º—Utilidades netas. Para efectos de este Reglamento, la utilidad neta, es el resultado positivo que se obtiene de restar a los ingresos por explotación y venta del bien, los gastos necesarios e indispensables incurridos para su explotación, conservación y venta, computados desde la fecha en que la autoridad judicial ponga a la entidad en posesión del bien y hasta la fecha de venta.
+Las indemnizaciones por liquidación de seguros u otras coberturas sobre el bien se consideran como ingresos.
