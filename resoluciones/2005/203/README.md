@@ -14,3 +14,4 @@ Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y salida d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-26 | la propia norma |
+| 2 | 2005-12-29 | Resolución 707 (2005-12-29) |
