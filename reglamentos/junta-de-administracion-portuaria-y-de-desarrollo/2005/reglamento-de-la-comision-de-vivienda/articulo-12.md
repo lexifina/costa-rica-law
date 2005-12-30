@@ -1,0 +1,5 @@
+Artículo 12.—De acuerdo con lo establecido en la Ley Nº 6609 del 13 de agosto de 1981, tendrán derecho a lotes los trabajadores que reúnan los siguientes requisitos:
+a) Tener por lo menos dos (2) años de trabajar ininterrumpidamente con JAPDEVA.
+b) No tener bienes inscritos a su nombre, al igual que su cónyuge.
+(artículo 2º, Ley 6609).
+Cuando la Comisión llegare a comprobar que el adjudicatario de un lote en Los Cocos, no ha construido y éste o su cónyuge aparecen con bienes inscritos o que ya solucionó su problema habitacional, ésta procederá a iniciar los trámites para anular dicha adjudicación y readjudicar el mismo al trabajador que corresponda, según la lista pendiente, respetando el orden en que recibieron las respectivas solicitudes. Para ello, el nuevo adjudicatario deberá reintegrar en un plazo que deberá definirse, los gastos de mantenimiento del lote y otros afines, que demuestre fehacientemente haber incurrido el anterior propietario, transcurrido ese plazo y no habiéndose llegado a acuerdo satisfactorio, la Comisión le dará la oportunidad al trabajador que sigue en la lista de solicitudes de lote.

@@ -1,0 +1,1 @@
+Artículo 16.—La Comisión de Vivienda informará a la Administración; sobre eventuales incumplimientos de los adjudicatarios de lote en la Urbanización Los Cocos, en cuanto a que en la adjudicación del lote, haya mediado la falta de buena fe del solicitante; con el fin de que se establezcan las sanciones administrativas y judiciales que correspondan.

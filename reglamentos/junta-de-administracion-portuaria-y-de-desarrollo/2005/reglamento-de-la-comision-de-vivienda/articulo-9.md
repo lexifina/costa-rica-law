@@ -1,0 +1,1 @@
+Artículo 9º—La Comisión de Vivienda trabajará en forma ad honorem, como un servicio para sus propios compañeros; manejará el fondo creado, pero los fondos serán girados por la Administración y deberán ser auditados por la Auditoria General las veces que sean necesarias.

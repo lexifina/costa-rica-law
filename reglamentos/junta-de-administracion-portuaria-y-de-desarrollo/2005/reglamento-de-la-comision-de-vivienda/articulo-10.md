@@ -1,0 +1,2 @@
+Artículo 10.—La tramitación de las solicitudes de préstamo se harán en formularios especiales que suministrará la Comisión, a los que se agregarán los documentos que dichos formularios indiquen. Para tales efectos la institución diseñará y confeccionará los formularios apropiados, con los datos e información necesarios.
+Transcurrido un mes después de ser notificado de la aprobación del préstamo, el trabajador perderá su derecho y se anulará la solicitud, excepto que presente razones de peso que valorará la Comisión.”

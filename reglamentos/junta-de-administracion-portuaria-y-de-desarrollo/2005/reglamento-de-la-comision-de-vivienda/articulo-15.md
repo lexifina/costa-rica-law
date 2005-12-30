@@ -1,0 +1,3 @@
+Artículo 15.—El adjudicatario de un lote en la Urbanización Los Cocos, asume la responsabilidad ineludible de limpiar, conservar y mantener limpio el inmueble, incluyendo desde el canal de desague hasta la mitad de la calle.
+El incumplimiento de este artículo facultará a la Comisión de Vivienda a coordinar con la Municipalidad del Cantón Central de Limón; la limpieza, aseo y conservación de los lotes, con el traslado del cobro respectivo al adjudicatario por parte de la Municipalidad.
+Para tal efecto, en la escritura se incluirá que el adjudicatario deberá autorizar a JAPDEVA a deducir vía planillas el monto de ese gasto, cuando se dé la situación apuntada en este artículo.

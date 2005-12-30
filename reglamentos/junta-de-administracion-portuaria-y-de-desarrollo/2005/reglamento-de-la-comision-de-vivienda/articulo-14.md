@@ -1,0 +1,1 @@
+Artículo 14.—Los lotes, no podrán ser arrendados, gravados, embargados, vendidos ni traspasados por ningún título, a persona física o jurídica alguna, mientras no hayan sido totalmente pagados y mientras no hayan transcurrido diez años desde la respectiva adjudicación, salvo aquellos casos expresamente señalados por la misma ley (artículo 2, Ley 6609).
