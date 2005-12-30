@@ -1,0 +1,1 @@
+Artículo 7º—El local comercial que quiera instalar un puesto de venta pólvora menuda debe contar con el permiso sanitario de funcionamiento vigente y únicamente podrá tener la pólvora en una urna exclusiva para ello.

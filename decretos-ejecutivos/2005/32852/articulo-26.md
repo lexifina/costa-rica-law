@@ -1,0 +1,1 @@
+Artículo 26.—El Área Rectora de Salud tiene plazo de 5 días hábiles para solicitarle algún requisito que le faltará al solicitante, teniendo el administrado diez (10) días hábiles para completar o aclararlo.

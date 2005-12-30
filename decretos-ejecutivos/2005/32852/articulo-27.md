@@ -1,0 +1,1 @@
+Artículo 27.—El Área Rectora tiene un plazo de cinco (5) días hábiles para resolver el trámite de la autorización sanitaria para la quema de las bombetas de trueno. Una vez resuelto el mismo, enviará copia del dictamen anexando la documentación presentada por el administrado a la Dirección General de Armamento del Ministerio de Seguridad.

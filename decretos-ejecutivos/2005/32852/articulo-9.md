@@ -1,0 +1,1 @@
+Artículo 9º—El lugar o local comercial donde se va instalar el puesto de venta de pólvora menuda debe ubicarse a una distancia no menor de cien (100) metros de otro puesto de venta de pólvora. Ni a menos cien (100) metros a linderos de estaciones gasolineras, plantas de llenado gas de petróleo licuado (GLP), fábricas o bodegas de agroquímicos o químicos inflamables.

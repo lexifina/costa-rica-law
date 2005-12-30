@@ -1,0 +1,1 @@
+Artículo 34.—El Ministerio de Salud después de publicado el presente decreto, a partir de septiembre del año 2006, realizará todos los años, dos capacitaciones una en el mes marzo y otra en el mes de septiembre de cada año, a las personas que soliciten dicha certificación. La capacitación consiste sobre los requisitos y medidas de seguridad indicadas en este reglamento.

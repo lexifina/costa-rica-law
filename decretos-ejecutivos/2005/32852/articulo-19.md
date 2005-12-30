@@ -1,0 +1,1 @@
+Artículo 19.—La empresa contratada para llevar a cabo el espectáculo con los juegos pirotécnicos, deberá contar con la licencia del Ministerio de Seguridad que los faculten como empresas pirotécnicas.

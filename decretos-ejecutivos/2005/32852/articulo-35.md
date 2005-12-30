@@ -1,0 +1,1 @@
+Artículo 35.—Las personas aspirantes deben presentarse en la Unidad de Gestión del Riesgo de la Dirección General de Salud, un mes antes de cada capacitación con el fin de inscribirse y que se le indique las fechas, contenidos y horario de la capacitación.

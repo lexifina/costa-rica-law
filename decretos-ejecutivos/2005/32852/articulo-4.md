@@ -1,0 +1,1 @@
+Artículo 4º—El administrado debe entregar la solicitud para el trámite de autorización de venta de pólvora menuda en el Área Rectora de Salud correspondiente al lugar donde se instalará el puesto de venta.

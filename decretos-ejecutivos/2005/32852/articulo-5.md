@@ -1,0 +1,1 @@
+Artículo 5º—El Área Rectora tiene un plazo de un mes para resolver el trámite de la autorización. Una vez resuelto el Área Rectora enviará copia de la resolución a la Dirección General de Armamento del Ministerio de Seguridad Pública, adjuntando copia de la documentación presentada por él.

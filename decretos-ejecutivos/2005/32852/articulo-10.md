@@ -1,0 +1,1 @@
+Artículo 10.—Debe contar con urna de material resistente al fuego que proteja al producto de una ignición accidental (vidrio u otro) y no debe estar expuesta a rayos solares o cerca de fuentes de ignición. Solamente personas mayores de edad autorizadas, deben manipular los productos.

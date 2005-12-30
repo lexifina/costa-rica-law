@@ -1,0 +1,1 @@
+Artículo 17.—El administrado debe entregar la solicitud para el trámite de autorización de espectáculo pirotécnico, en el Área Rectora de Salud correspondiente, para la valoración junto con las medidas de seguridad que aplicara la empresa pirotécnica responsable del evento.

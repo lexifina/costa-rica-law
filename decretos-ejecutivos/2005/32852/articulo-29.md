@@ -1,0 +1,1 @@
+Artículo 29.—En caso en que se requiera almacenar bombetas de trueno la bodega de almacenamiento deberá ajustarse a los requisitos previstos en el Reglamento sobre Uso y Fabricación de Materiales Pirotécnicos Decreto 27502-S de 20 de noviembre de 1998.

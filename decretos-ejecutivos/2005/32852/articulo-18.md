@@ -1,0 +1,1 @@
+Artículo 18.—El Área Rectora tiene un plazo de diez (10) días para resolver el trámite de la autorización. Una vez resuelto el Área Rectora enviará copia del dictamen (resolución) anexando la documentación presentada por el administrado a la Dirección General de Armamento del Ministerio de Seguridad Pública.
