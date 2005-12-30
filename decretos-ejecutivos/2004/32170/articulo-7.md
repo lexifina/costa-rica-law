@@ -1,0 +1,1 @@
+Artículo 7º—De la creación de subcomisiones técnicas. La Comisión podrá disponer la creación de subcomisiones técnicas, bien para la atención de aspectos específicos de interés especial para determinadas direcciones, o para la definición de aspectos técnico operativos de determinados sistemas de información computadorizados.
