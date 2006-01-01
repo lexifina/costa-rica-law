@@ -14,3 +14,4 @@ Modifica Manual Descriptivo de Clases de la Asamblea Legislativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-01 | la propia norma |
+| 2 | 2006-01-01 | Acuerdo 41 (2005-12-22) |
