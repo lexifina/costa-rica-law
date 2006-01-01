@@ -1,0 +1,1 @@
+7º—Obligatoriedad de las Directrices. Estas Directrices son de carácter vinculante para los sujetos pasivos señalados en el ámbito de aplicación. El superior jerarca y los titulares subordinados respectivos deberán establecer los mecanismos que aseguren su adecuado cumplimiento.
