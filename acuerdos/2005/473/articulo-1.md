@@ -171,7 +171,7 @@ Venta de Huevos de Tortuga | Carné | 4.000,00
 Venta productos pesqueros en Feria del Agricultor (Venta Directa o Auxiliar) | Carné | 9.500,00
 CARNÉ DE IDENTIFICACIÓN DE PESCA DEPORTIVA CONTINENTAL O MARINA (Por año / Por trámite) | * |
 Pesca Deportiva (Nacionales y Residentes) | Carné | 8.000,00
-Pesca Deportiva (Extranjeros) | Carné | $30,00
+Pesca Deportiva (Extranjeros) | Carné | $24,00 (Así reformado mediante acuerdo N° AJDIP 603 del 13 de diciembre del 2005).
 Pesca Subacuática Deportiva | Carné | 11.300,00
 Pesca Deportiva (tripulante) | Carné | 4.000,00
 CARNÉ DE IDENTIFICACIÓN DE PESCA TURÍSTICA CONTINENTAL O MARINA (Por año / Por trámite) | * |
