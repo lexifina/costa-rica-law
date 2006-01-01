@@ -1,0 +1,1 @@
+Artículo 55.—Una vez incorporado al Registro, los interesados no están obligados a solicitar nuevamente su incorporación, sino que bastará que renueven aquellos documentos legales vencidos y notificar cualquier otro cambio de conformidad con lo señalado en el artículo 50 de este Reglamento.

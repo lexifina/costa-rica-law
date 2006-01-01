@@ -1,0 +1,1 @@
+Artículo 44.—Las personas que participen en los procesos de contratación administrativa, deberán estar registradas y serán evaluadas en forma integral en cuanto a su historial, capacidad técnica y demás aspectos que resulten de interés, los que se incorporarán en la base de datos del sistema de compras de la institución.

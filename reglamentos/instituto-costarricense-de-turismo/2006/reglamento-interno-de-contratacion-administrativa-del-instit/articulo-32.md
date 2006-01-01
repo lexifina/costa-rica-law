@@ -1,0 +1,1 @@
+Artículo 32.—Análisis Técnico de las ofertas. En el caso de contrataciones de bienes y servicios especializados, la Proveeduría remitirá a la Unidad Solicitante, el expediente para la evaluación técnica de las ofertas elegibles. Cuando se trate de bienes y servicios genéricos, la evaluación la hará la Proveeduría.

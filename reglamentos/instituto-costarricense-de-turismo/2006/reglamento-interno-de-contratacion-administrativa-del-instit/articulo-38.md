@@ -1,0 +1,1 @@
+Artículo 38.—De la Compra de Equipo de Cómputo y otros Activos. Cuando se trate de la compra de activos, cualquiera que sea su naturaleza, requerirá siempre la firma de la Gerencia. Si los activos a adquirir se refieren a software o hardware, deberán contar con la autorización de la Jefatura de la Unidad de Tecnologías de Información.

@@ -1,0 +1,1 @@
+Artículo 33.—Del Cuadro Comparativo. Corresponde al Proveedor o su Delegado, preparar el cuadro comparativo de las ofertas elegibles, con base en las calificaciones técnica y legal, señalando cuando corresponda, las que fueron rechazadas y la justificación correspondiente. Cumplida esta etapa, el expediente deberá ser remitido a la Comisión para lo que corresponda.

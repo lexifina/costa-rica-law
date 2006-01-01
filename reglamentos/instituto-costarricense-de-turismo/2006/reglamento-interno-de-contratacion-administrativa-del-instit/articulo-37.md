@@ -1,0 +1,8 @@
+CAPÍTULO VIII
+Competencias para autorización y adjudicación
+en el trámite de contratación
+Artículo 37.—De la autorización de la contratación. Todo trámite de contratación, deberá ser autorizado, mediante su firma, por la jefatura de la unidad solicitante y de acuerdo con los siguientes límites en cuanto al monto de la operación, quedando vedada la autorización y aprobación fuera de jurisdicción, excepto cuando se trate de la Gerencia:
+a) Cuando el monto sea igual o superior al importe a partir del cual procede licitación por registro o cuando se trate de las contrataciones mencionadas en el inciso 2 c), d) y e) del artículo 39 de este Reglamento, requerirán además, la firma de la Gerencia.
+b) Cuando el monto iguale o supere el límite establecido para licitación restringida y sea inferior al importe a partir del cual procede la licitación por registro, requerirá además la firma de la jefatura de la Dirección.
+c) Cuando se trate de contrataciones que, previa justificación técnica que fundamente la contratación al amparo de los artículos 2 incisos f) de la Ley y 80 del R.G.C.A., y cuyo monto no alcance el importe a partir del cual procede licitación pública, requerirán además, la firma de la Gerencia. Si el importe estimado es igual o supera el monto correspondiente a una Licitación Pública, requerirán la aprobación de la Junta Directiva.
+d) Requerirán además la autorización de la Junta Directiva, las contrataciones que deben tramitarse mediante el procedimientos de Licitación Pública y que a criterio de la Gerencia estén directamente relacionadas con la estrategia institucional.

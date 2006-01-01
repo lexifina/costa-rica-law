@@ -1,0 +1,1 @@
+Artículo 42.—Obligación de Informar a la Proveeduría. Las Unidades Solicitantes quedan obligadas de informar a la Proveeduría sobre el recibo a satisfacción del bien, conclusión del servicio o finiquito de obras, según sea el caso, con el .n de que esta pueda dar seguimiento a las contrataciones (inciso p del artículo 10).

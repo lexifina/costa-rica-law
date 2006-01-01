@@ -1,0 +1,4 @@
+Artículo 5º—Unidad Competente. La Proveeduría del ICT es la Unidad competente para la ejecución de todas las etapas del proceso de contratación administrativa del I.C.T., dentro y fuera del país, que se inicia con el documento SMS presentado por las Unidades Solicitantes.
+Quedan excluidas aquellas contrataciones que por su especial naturaleza, el trámite de compra deba ser realizado por un funcionario del Instituto cuando se encuentre en el exterior y que el gasto haya sido previamente autorizado en el acuerdo de Junta Directiva correspondiente.
+Para efectos de control, las Unidades deberán informar a la Proveeduría sobre cualquier contratación realizada, sin que haya mediado su intervención.
+Corresponde asimismo a la Proveeduría, realizar el proceso de almacenamiento y distribución de bienes.

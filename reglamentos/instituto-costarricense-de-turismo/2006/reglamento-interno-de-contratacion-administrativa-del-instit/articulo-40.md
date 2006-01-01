@@ -1,0 +1,2 @@
+Artículo 40.—Modificación de Contratos en Ejecución. Toda modificación que deba efectuarse en contratos adjudicados o en ejecución, deberá aprobarse por el Órgano que adjudicó y deberá cumplir con las disposiciones establecidas en los artículos 12 de la Ley y el 14 del R.G.C.A.
+En caso de que la modificación implique una variación del procedimiento original, la aprobación corresponderá al Órgano competente para el procedimiento resultante.

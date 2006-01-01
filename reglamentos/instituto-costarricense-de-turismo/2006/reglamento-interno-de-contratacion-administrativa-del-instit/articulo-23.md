@@ -1,0 +1,1 @@
+Artículo 23.—De los invitados. Salvo que exista un proveedor único o exclusivo o, que el número de oferentes en el registro sea insuficiente, se invitará a cotizar a un mínimo de tres proveedores idóneos.

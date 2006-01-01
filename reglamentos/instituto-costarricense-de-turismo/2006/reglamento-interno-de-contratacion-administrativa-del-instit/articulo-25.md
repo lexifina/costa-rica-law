@@ -1,0 +1,1 @@
+Artículo 25.—De las ofertas. Las cotizaciones u ofertas deberán presentarse en forma escrita, como máximo, el día y hora fijados para la apertura y bajo las condiciones señaladas en el documento de invitación (proforma o cartel).

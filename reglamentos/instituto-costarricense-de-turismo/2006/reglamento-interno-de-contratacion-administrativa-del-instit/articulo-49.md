@@ -1,0 +1,1 @@
+Artículo 49.—Todo interesado podrá, con posterioridad a la presentación de la respectiva solicitud, verificar su inclusión en el Registro de Proveedores y solicitar el número de identificación (código) asignado, dentro de los quince días hábiles posteriores a de la presentación de la solicitud.
