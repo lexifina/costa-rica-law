@@ -1,0 +1,13 @@
+Nº 32821
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001 y su Reglamento, el Decreto Ejecutivo Nº 30058-HMP- PLAN de 19 de diciembre de 2001; la Ley Nº 6588 de 30 de julio de 1981 y sus reformas y el Decreto Ejecutivo Nº 32270-H de 1º de marzo de 2005 y sus reformas.
+Considerando:
+1º—Que por medio de la Ley Nº 6588, publicada en La Gaceta Nº 154 de 13 de agosto de 1981, se ratifica el traspaso de la Refinadora Costarricense de Petróleo (RECOPE) al Estado y se faculta a la empresa a refinar, transportar, comercializar a granel el petróleo y sus derivados.
+2º—Que la Refinadora requiere incorporar recursos en el período presupuestario 2006, para ejecutar su plan de inversiones en infraestructura necesaria para su operación, con el fin de llevar a cabo sus funciones de producción y distribución de hidrocarburos y derivados del petróleo, con mayor productividad y mejor calidad.
+3º—Que el plan de inversiones contiene diversos proyectos como la ampliación de la capacidad de almacenamiento, obras de mejoramiento en facilidades, obras de mejoramiento del oleoducto y planteles, sistemas de información y edificaciones, orientados a la ejecución eficiente del Proyecto de Poliducto en su III etapa.
+4º—Que mediante el Decreto Ejecutivo Nº 32270-H y sus reformas, publicado en La Gaceta Nº 54 de 17 marzo de 2005, la Autoridad Presupuestaria formuló las Directrices de Política Presupuestaria para el año 2006, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Poder Ejecutivo, estableciendo en el artículo 1º del citado decreto el gasto presupuestario máximo para el 2006, de las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+5º—Que mediante el oficio STAP-0488-05 de 6 de abril de 2005, se comunicó a la Refinadora el gasto presupuestario máximo para el año 2006.
+6º—Que por lo anterior, resulta necesario modificar el gasto presupuestario máximo fijado a la Refinadora para el año 2006. Por tanto,
+DECRETAN:
+Artículo 1º—Modifícase el gasto presupuestario máximo establecido a la Refinadora Costarricense de Petróleo S. A. (RECOPE) para el año 2006, establecido según el artículo 1º del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 marzo de 2005 y sus reformas, fijando el mismo en ¢79.157,11 millones durante ese período.
