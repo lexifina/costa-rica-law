@@ -1,0 +1,1 @@
+Artículo 2º—Fuentes de información. Para la determinación de los elementos a fiscalizar la Dirección de Gestión de Riesgo Aduanero procederá a realizar el análisis y evaluación de la información de conformidad con las facultades que le confiere el artículo 60 y 61 de Reglamento a la Ley General de Aduanas y sus modificaciones.
