@@ -1,0 +1,1 @@
+Artículo 7°—Se podrán realizar cambios de nomenclatura en puestos de servicios especiales, siempre y cuando correspondan a proyectos de inversión financiados con recursos externos; que el ocupante esté en el ejercicio del puesto, cumpla con los requisitos del mismo y cuente con el visto bueno del máximo jerarca.

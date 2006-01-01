@@ -1,0 +1,1 @@
+Artículo 3°—El Manual General de Clasificación de Clases basado en el Estatuto de Servicio Civil, Ley de Salarios de la Administración Pública vigente y su correspondiente índice y escala salarial, constituyen el instrumento básico de la administración del potencial humano para el reclutamiento, selección, clasificación y valoración de puestos entre otros.

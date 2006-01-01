@@ -1,0 +1,1 @@
+Artículo 8°—Toda estructura organizacional no constituida por normativa, así como su modificación deberá contar con la aprobación previa de Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), según lo dispuesto en el Decreto Ejecutivo Nº 23323-PLAN y sus reformas, Reglamento General de dicho Ministerio.

@@ -1,0 +1,4 @@
+Artículo 14.—En caso de producirse variaciones hacia clasificaciones de menor nivel salarial que la original, producto de cambios en los manuales institucionales, reasignaciones, estudios integrales u homologaciones y conversión de sistemas, se cumplirá con lo siguiente:
+a) El servidor podrá continuar en el desempeño de sus funciones por un período máximo de seis meses, hasta ser trasladado a otro puesto de igual clase o equivalente que quedare vacante dentro de la entidad, o bien logre ser ascendido mediante los procedimientos de méritos permitidos.
+b) Al concluir los seis meses, en caso de que el servidor aceptare el descenso, tendrá derecho a la indemnización respectiva, proporcional al monto de la reducción que tenga su salario.
+c) Si la ubicación del servidor en otro puesto no fuere posible en los seis meses estipulados y éste no aceptare el descenso, se procederá a la indemnización correspondiente.
