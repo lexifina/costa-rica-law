@@ -1,1 +1,0 @@
-Artículo 56.—El presente decreto deroga los artículos del octavo al vigésimo primero, demás de los artículos trigesimosegundo y septuagésimo quinto del Reglamento del Estatuto del Servicio Exterior de la República promulgado por el Decreto Ejecutivo No 17369-RE del primero de diciembre de mil novecientos ochenta y seis.

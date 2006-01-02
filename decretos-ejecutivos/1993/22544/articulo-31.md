@@ -1,1 +1,0 @@
-Artículo 31.—Las incapacidades médicas por períodos superiores a una semana laboral deberán probarse ante el Jefe de Misión, quien deberá remitirlas al Ministerio ;con los respectivos certificados médicos.

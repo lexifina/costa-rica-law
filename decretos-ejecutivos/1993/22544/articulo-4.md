@@ -1,2 +1,0 @@
-Artículo 4.—La Comisión Calificadora del Servicio Exterior organizará y calificará los concursos de oposición para el ingreso a la carrera del Servicio Exterior de la República, de conformidad con el artículo 15 del Estatuto del Servicio Exterior de la República.
-(Así REFORMADO TOTAL y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 28821 del 31 de julio del 2000, publicado en La Gaceta N° 152 del 09 de agosto del 2000.)

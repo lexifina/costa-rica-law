@@ -1,2 +1,0 @@
-Artículo 51.—Al excusarse del traslado, el funcionario podrá optar por la rotación al Servicio Interno.
-La Comisión Calificadora deberá pronunciarse sobre la excusa del funcionario de servir en el nuevo destino en un plazo no mayor de diez días hábiles luego de presentada. Expirado dicho plazo, sin que la Comisión se pronuncie, el funcionario permanecerá en su cargo hasta que se le nombre en una plaza del Servicio Interno.

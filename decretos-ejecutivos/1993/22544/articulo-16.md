@@ -1,2 +1,0 @@
-Artículo 16.- Si no se presentaran aspirantes en el plazo fijado, o ninguna de las personas que participaron en el concurso alcanza un puntaje final de por lo menos un 65%, la Comisión Calificadora declarará desierto el concurso y lo comunicará así al Ministro de Relaciones Exteriores y Culto, con las recomendaciones que estime oportunas.
-(Así REFORMADO TOTAL y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 28821 del 31 de julio del 2000, publicado en La Gaceta N° 152 del 09 de agosto del 2000.)

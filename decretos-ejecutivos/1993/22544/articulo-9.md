@@ -1,2 +1,0 @@
-Artículo 9.—La Comisión Calificadora abrirá un expediente para cada concursante, que se mantendrá debidamente foliado. Estos expedientes estarán bajo la custodia del Secretario de la Comisión. Los concursantes tendrán acceso a su propio expediente.
-(Así REFORMADO TOTAL y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 28821 del 31 de julio del 2000, publicado en La Gaceta N° 152 del 09 de agosto del 2000.)

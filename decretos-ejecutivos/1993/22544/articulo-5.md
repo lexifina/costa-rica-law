@@ -1,2 +1,0 @@
-Artículo 5.—Para la comprobación de la idoneidad, conocimientos y calificaciones de los concursantes, la Comisión Calificadora contará con la asistencia técnica y logística del Instituto Manuel María de Peralta y podrá adicionalmente solicitar la colaboración de otras instituciones de enseñanza o de personas con conocimientos especializados o de reconocida experiencia en la materia en que se trate.
-(Así REFORMADO PARCIAL y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 28821 del 31 de julio del 2000, publicado en La Gaceta N° 152 del 09 de agosto del 2000.)

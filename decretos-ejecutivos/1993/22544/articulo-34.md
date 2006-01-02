@@ -1,1 +1,0 @@
-Artículo 34.—El Jefe de Misión deberá poner en conocimiento del Ministro cualquier accidente o enfermedad laboral ocurrida a uno de los miembros de su misión u oficina en el término de veinticuatro horas. También podrá el funcionario afectado ponerlo en conocimiento del Ministro a fin de que se tomen las medidas pertinentes.
