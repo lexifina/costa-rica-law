@@ -1,0 +1,4 @@
+3º—Disposiciones transitorias:
+a. Durante los nueve meses siguientes a la vigencia de esta resolución, no aplicará el régimen sancionatorio previsto, con el fin de que todos los entes y órganos de la Administración a que se refiere el punto 1.1 implementen el plan de aseguramiento de calidad correspondiente, el cual deberá estar concluido el 30 de junio del año 2006.
+b. No obstante lo señalado en el inciso a) anterior, la información debe incorporarse en el sistema a partir del 1º de julio del año 2006, con todos aquellos procedimientos de contratación cuya invitación a participar se comuniquen a partir de esa misma fecha.
+c. El cumplimiento de los artículos 101 de la Ley de Contratación Administrativa y 107 del Reglamento General de Contratación Administrativa, referente a procedimientos de contratación iniciados antes de la fecha prevista en el inciso b) anterior, se hará mediante el formato de informes que la Administración ha venido utilizando.
