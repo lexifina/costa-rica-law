@@ -1,0 +1,10 @@
+Nº 32880
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+En uso de las facultades que les confieren los artículos 140 incisos 3), 8), 18) y 20) y 146 de la Constitución Política, los artículos 25, 27.1, 28.2b de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública, la Ley Nº 7064 del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería y la Ley Nº 7664 del 8 de abril de 1997, Ley de Protección Fitosanitaria.
+Considerando
+1º—Que mediante Decreto Ejecutivo Nº 29133-MAG de 15 de noviembre del 2000, publicado en La Gaceta Nº 239 del 13 de diciembre del mismo año, se declaró de interés y necesidad pública nacional, la prevención de la enfermedad conocida como "Leprosis de los Cítricos".
+2º—Que en el artículo 7º del Decreto citado, se estableció la prohibición del ingreso a territorio nacional de plantas de cítricos o partes de ellas, provenientes de países que tuvieran presencia de la enfermedad, como medida técnica de aplicación normal al tiempo en que se emitió el Decreto indicado. Sin embargo las regulaciones normativas aplicables en la materia, actualmente posibilitan la importación de productos, que provengan de zonas declaradas libres de conformidad con los requisitos y procedimientos fitosanitarios aceptados internacionalmente, por lo que resulta necesario modificar el artículo 7º supracitado. Por tanto;
+DECRETAN
+Artículo 1º—Modifíquese el artículo 7º del Decreto Ejecutivo Nº 29133-MAG de 15 de noviembre del 2000, para que el mismo se lea de la siguiente manera:
+"Artículo 7º—Se prohíbe el ingreso a Territorio Nacional, de plantas de cítricos o partes de ellas, provenientes de países en donde se encuentra presente la enfermedad conocida como "Leprosis de los Cítricos", salvo que provengan de una zona declarada libre de Leprosis, por la autoridad competente del país exportador. Las importaciones serán autorizadas y supervisadas por el Servicio Fitosanitario del Estado".
