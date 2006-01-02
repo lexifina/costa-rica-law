@@ -14,3 +14,4 @@ De Interés Nacional Prevención de la Enfermedad "Leprosis de los Cítricos"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-12-13 | la propia norma |
+| 2 | 2006-01-02 | Decreto Ejecutivo 32880 (2006-01-02) |
