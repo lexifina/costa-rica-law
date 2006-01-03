@@ -1,1 +1,1 @@
-Artículo VIII.—Los estudiantes adjudicados de secundaria recibirán ¢ 5.000,00 mensuales y los universitarios ¢ 6.000,00 mensuales, los estudiantes de educación especial ¢ 5.500,00.
+Artículo VIII.—Los estudiantes adjudicados de secundaria recibirán ¢8.000,00, Universitarios ¢10.000,00 y Educación Especial ¢8.500,00; en forma mensual.

@@ -1,1 +1,1 @@
-Artículo XI.—Los estudiantes interesados deberán retirar la solicitud en la secretaría a partir de la primera semana del mes de enero y hasta el 8 de febrero de cada año.
+Artículo XI.—Los interesados deberán retirar la solicitud en la Oficina de la Secretaría del Concejo Municipal, entre la segunda y tercera semana de enero de cada año y se recibirán hasta la segunda semana de febrero de cada año.

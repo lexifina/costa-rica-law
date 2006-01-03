@@ -1,1 +1,1 @@
-Artículo X.—El trabajo lo coordinará con el Director de la escuela, colegio, asociaciones de desarrollo y comités de desarrollo.
+Artículo X.—Los beneficiarios de Beca Municipal aportarán cuatro horas mensuales a labores comunales como retribución solidaria y voluntaria en coordinación con el Director de la institución u organización comunal.

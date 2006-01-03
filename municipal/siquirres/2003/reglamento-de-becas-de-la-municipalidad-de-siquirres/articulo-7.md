@@ -1,1 +1,1 @@
-Artículo VII.—Cada estudiante adjudicatario de beca municipal, deberá retirar en la secretaría del Concejo Municipal, un Reglamento de Becas.
+Artículo VII.—El estudiante becado no podrá disfrutar de doble beca de la Municipalidad u otra institución. Esta información la recavará la Comisión de Becas con la institución en coordinación con el Director.

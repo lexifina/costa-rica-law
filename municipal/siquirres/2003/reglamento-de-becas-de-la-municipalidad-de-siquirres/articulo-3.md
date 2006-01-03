@@ -1,1 +1,1 @@
-Artículo III.—La comisión de becas con base a las solicitudes presentadas seleccionará a los beneficiarios, dando prioridad en todo caso a los alumnos de menores ingresos familiares y de mayor rendimiento económico.
+Artículo III.—La Comisión de Becas con base a las solicitudes presentadas seleccionará a los beneficiarios, dando prioridad en todo caso a los alumnos de menor ingreso económico y mayor rendimiento académico.
