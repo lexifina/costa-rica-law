@@ -1,0 +1,1 @@
+Artículo 2º—Ordénese mandamiento provisional de anotación ante el Registro Nacional de la Propiedad, de dicho inmueble que por esta resolución se ha establecido como necesario para la consolidación del Parque Nacional Manuel Antonio conforme a lo prescrito por la Ley Nº 5100 y sus reformas.
