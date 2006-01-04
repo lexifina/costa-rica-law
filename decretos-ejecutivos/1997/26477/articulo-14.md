@@ -1,1 +1,0 @@
-Artículo 14.-Los acuerdos se tomarán por mayoría a miembros asistentes. Si hubiere empate, el asunto será decidido con el voto de calidad del Presidente. Este procedimiento opera también cuando se trate de una votación secreta.

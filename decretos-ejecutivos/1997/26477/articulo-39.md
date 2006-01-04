@@ -1,1 +1,0 @@
-Artículo 39.-Le corresponde al Auditor, entre otras funciones fiscalizar las operaciones económicas, administrativas mediante la evaluación sistemática de la estructura de control interno implementada por la administración, para lo cual revisará los procedimientos, registros, así como el manejo de los fondos Instituto.

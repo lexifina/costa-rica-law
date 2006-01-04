@@ -1,1 +1,0 @@
-Artículo 11 .-Sesenta días antes del vencimiento del término para el cual fue electo cada uno de los miembros de la Junta Directiva, ésta lo comunicará al Ministerio de Salud a efecto de que se proceda a efectuar un nuevo nombramiento.

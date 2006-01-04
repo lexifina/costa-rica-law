@@ -1,1 +1,0 @@
-Artículo 23.-Por cada sesión celebrada por la Junta Directiva, se confeccionará una acta, que deberá entregarse a cada miembro de Junta Directiva por lo menos veinticuatro horas antes de la celebración sesión en que debe aprobarse.

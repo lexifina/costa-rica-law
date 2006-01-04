@@ -1,1 +1,0 @@
-Artículo 17.-Para cada sesión el Presidente de la Junta con el Director General, preparará el orden del día el cual del conocimiento de los miembros de la Junta Directiva por lo menos con veinticuatro horas de anticipación a la sesión respectiva.

@@ -1,1 +1,0 @@
-Artículo 7°-Cada una de las Áreas del Instituto tendrá un coordinador que será responsable ante el Director General, quien a su vez responderá ante la Junta Directiva por la buena marcha de la Institución.

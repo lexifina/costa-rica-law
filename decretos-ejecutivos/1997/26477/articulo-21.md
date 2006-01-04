@@ -1,1 +1,0 @@
-Artículo 21.-Cuando se produjeran llegadas tardías superiores a treinta minutos, los miembros de la Junta Directiva perderán el derecho a percibir la dieta. Igualmente, la perderá el miembro de Junta Directiva que se ausente de la respectiva sesión sin autorización del Presidente.

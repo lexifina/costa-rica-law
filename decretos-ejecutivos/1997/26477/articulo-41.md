@@ -1,1 +1,0 @@
-Artículo 41.-EI Coordinador del Área de Apoyo deberá poseer Licenciatura en Ciencias Económicas y/o Administrativas preferiblemente con experiencia en el campo de la comunicación Colectiva, debidamente incorporado al Colegio Profesional

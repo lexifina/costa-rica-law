@@ -1,1 +1,0 @@
-Artículo 5°-La administración de los recursos se hará mediante las cuentas corrientes que estrictamente se consideren necesarias contemplando todas las normas de control interno y externo que rigen la materia y para su validez se requerirá la firma del Director General y la del Coordinador del Área de Apoyo.

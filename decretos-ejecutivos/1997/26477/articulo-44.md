@@ -1,5 +1,0 @@
-Artículo 44.-Son responsabilidades del Área Técnica las siguientes:
-a. Promover, dirigir y fortalecer una red de colaboración de servicios, para atención local de la población mediante la investigación, prevención, tratamiento, capacitación, asesoramiento y seguimiento de los diferentes programas por medio de organizaciones regionales que sirvan de enlace entre el Instituto y la comunidad nacional. Participar en el establecimiento de un plan institucional integrado que responda a las demandas nacionales respecto al fenómeno droga.
-b. Desarrollar los criterios técnicos de apoyo a las acciones institucionales, en la ejecución de proyectos de acuerdo al Plan Institucional.
-c. Operativizar en la comunidad las normas, políticas y directrices sobre la atención del fenómeno droga, por medio de los programas que se definan en el Plan Institucional.
-e. Elaborar proyectos regionales dirigidos a la población en riesgo y de escasos recursos, para el abordaje del fenómeno droga; propiciar en las instituciones públicas y privadas, programas o acciones que promueven la capacitación, asesoría y seguimiento en el campo de la prevención integral del fenómeno droga.

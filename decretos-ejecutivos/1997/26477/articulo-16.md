@@ -1,1 +1,0 @@
-Artículo 16.-El Presidente determinará el orden en que hayan de tratarse los asuntos y dirigirá los debates y votaciones. Los acuerdos que tome la Junta Directiva quedarán quedaran firmes al aprobarse el acta embargo, serán firmes los acuerdos de nombramientos y los la Junta Directiva, por mayoría absoluta.
