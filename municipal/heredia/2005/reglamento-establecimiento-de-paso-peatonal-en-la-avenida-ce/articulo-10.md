@@ -1,0 +1,1 @@
+Artículo 10.—Patentes de licores. Todas las solicitudes para la explotación de patentes de licores en el paso peatonal de la avenida 0, se regirán conforme a la normativa especial establecida por la Ley de Licores y su respectivo reglamento.

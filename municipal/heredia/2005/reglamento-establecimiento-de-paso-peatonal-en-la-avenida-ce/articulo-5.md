@@ -1,0 +1,2 @@
+Artículo 5º—Lugares de carga y descarga. Para el suministro y retiro de mercadería en los diferentes comercios, afectados por la prohibición de tránsito vehicular, se destinarán los espacios y horarios que estarán debidamente definidos y señalizados por el Departamento de Ingeniería de Tránsito del Ministerio de Obras Públicas y Transportes.
+El transporte de mercadería hasta los locales comerciales se permitirá únicamente mediante carretillos o similares, que no deterioren el color y la textura del acabado de piso.

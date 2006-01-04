@@ -1,0 +1,1 @@
+Artículo 11.—Otras actividades lucrativas prohibidas. Con fundamento en el artículo 81 del Código Municipal, se prohíbe el otorgamiento de licencias municipales para el ejercicio de actividades lucrativas que sean contrarias a la ley, la moral o las buenas costumbres, así como cualquier otra que resulte incompatible con la naturaleza y finalidad del paso peatonal de la avenida 0.

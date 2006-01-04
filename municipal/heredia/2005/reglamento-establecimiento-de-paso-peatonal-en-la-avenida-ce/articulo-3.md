@@ -1,0 +1,2 @@
+Artículo 3º—Ámbito de aplicación. Conforme a los artículos precedentes, el presente reglamento rige para el segmento comprendido entre avenida 0 (central), calles 4 y 9.
+La aplicación de este reglamento, así como cualquier otra actividad inherente al mismo, deberá estar debidamente avalada por el Departamento de Ingeniería de esta Municipalidad o la dependencia municipal que corresponda, en coordinación con el Ministerio de Obras Públicas y Transportes (MOPT) y/o cualquier otra autoridad pública competente.

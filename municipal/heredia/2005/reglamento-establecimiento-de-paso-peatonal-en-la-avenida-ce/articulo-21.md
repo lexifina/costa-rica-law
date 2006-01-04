@@ -1,0 +1,3 @@
+Artículo 21.—Requisitos. Para obtener la licencia correspondiente, el interesado debe hacer la solicitud por escrito ante el Departamento de rentas y Cobranzas (quien requerirá el criterio técnico de la Ingeniería Municipal), presentar dos copias de los planos o croquis detallados indicando el material de los elementos de demarcación, tipo de silla o mesa y elementos ornamentales, así como el tipo de material y colores. Todos los detalles deben venir dibujados a escala.
+Se debe adjuntar un plano catastrado con el alineamiento demarcado, con el fin de que el Departamento de Inspecciones demarque la extensión correspondiente.
+De igual forma, se debe cancelar el monto establecido por la Municipalidad para obtener la licencia correspondiente.

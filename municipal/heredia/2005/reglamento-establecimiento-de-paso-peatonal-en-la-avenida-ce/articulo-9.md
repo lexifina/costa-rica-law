@@ -1,0 +1,1 @@
+Artículo 9º—Parqueos y garajes de vehículos. Al estar el área de la avenida 0 en cuestión, destinada exclusivamente al tránsito peatonal, queda absolutamente prohibida la instalación y funcionamiento de parqueos o garajes para vehículos (públicos y privados), con excepción de los autorizados antes de la entrada en vigencia de este reglamento.

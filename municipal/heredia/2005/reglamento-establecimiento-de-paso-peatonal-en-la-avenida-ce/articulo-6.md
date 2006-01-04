@@ -1,0 +1,1 @@
+Artículo 6º—Ventas ambulantes y estacionarias. En el paso peatonal de la avenida 0, se prohíbe la instalación de ventas ambulantes y estacionarias, además de cualquier tipo de actividad temporal de carácter comercial que atente contra la seguridad, la salud, el ornato, la comodidad, la tranquilidad y el orden público en dicho lugar.

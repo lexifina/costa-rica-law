@@ -1,0 +1,1 @@
+Artículo 7º—Eventos culturales. La ocupación del espacio por eventos públicos culturales se regulará a través del Concejo Municipal y según la normativa reglamentaria existente para este tipo de actividades.

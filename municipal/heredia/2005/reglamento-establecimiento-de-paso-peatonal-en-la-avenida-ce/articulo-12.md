@@ -1,0 +1,4 @@
+CAPÍTULO II
+Extensión de comercios a la vía pública
+Artículo 12.—Exclusividad. La Municipalidad de Heredia podrá conceder permisos de extensión de comercio a la vía pública únicamente a locales comerciales expendedores de comidas que se ubiquen en el paso peatonal de la avenida 0. Este permiso será con el único fin de colocar mesas y sillas para el disfrute de este servicio, manteniéndose y resguardándose el uso residencial existente. Queda absolutamente prohibida la venta y el consumo de bebidas alcohólicas en el área pública asignada.
+Conforme al artículo 154 de la Ley General de la Administración Pública, el permiso indicado anteriormente se otorga a título precario, por lo que podrá ser revocado en cualquier momento por la Municipalidad sin responsabilidad alguna, por razones de oportunidad, conveniencia o interés público que lo justifiquen, garantizándose para ello los principios fundamentales del debido proceso.

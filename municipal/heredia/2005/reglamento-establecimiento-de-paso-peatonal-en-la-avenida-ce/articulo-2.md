@@ -1,0 +1,3 @@
+Artículo 2º—Objetivos reglamentarios. El presente reglamento busca establecer criterios técnicos de lineamientos, especificaciones y recomendaciones para la regulación y el desarrollo óptimo del paso peatonal de la avenida 0 (central).
+Con la renovación del sitio, a partir de la intervención en el espacio público, se pretende incentivar el apoyo de la empresa privada, propietarios y comerciantes, para el mejoramiento de las fachadas de los edificios y con ello, los servicios que los mismos brindan a los usuarios.
+Estos criterios, servirán como guía técnica para la regulación de actividades en dicho paso peatonal.

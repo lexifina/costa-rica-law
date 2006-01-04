@@ -1,0 +1,1 @@
+Artículo 17.—Colores y estilos. El mobiliario deberá ser acorde al diseño arquitectónico del paso peatonal, deberá escogerse y definirse además en colores no intensos, neutros (grises, blancos, tabacos y cremas).
