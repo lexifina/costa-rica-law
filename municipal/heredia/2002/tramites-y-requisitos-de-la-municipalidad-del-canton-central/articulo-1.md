@@ -10,13 +10,8 @@ Es importante resaltar que esta ley es aplicable a las Corporaciones Municipales
 - Obliga a las Municipalidades del país a efectuar una revisión de los requisitos y trámites internos exigidos a los administrados, para minimizarlos así reducirlo a los estrictamente necesarios. Cuando se establezcan nuevos trámites y requisitos o reitere anteriores, deberá indicar la norma legal que lo sustenta o deberán estar publicados.
 - Se establecen plazos reducidos para contestarle al administrado sobre sus gestiones, así como de la aplicación del Silencio Positivo y también las responsabilidades de los servidores municipales que incumplen los plazos.
 - La necesidad de coordinar internamente en las Corporaciones Municipales y con otras instituciones estatales, lo que beneficia la estructura organizativa y el orden interno de cada corporación.
-TRÁMITES Y REQUISITOS DE LA MUNICIPALIDAD
-DEL CANTÓN CENTRAL DE HEREDIA
-Requisito único.- No se aceptarán, ni tramitará formularios incompletos.
-MERCADO
-La administración Municipal puede extender los siguientes permisos:
-El administrador recibirá y enviará a trámite si es del caso:
-Pintura | Llenar la solicitud de trámites en la Administración del Mercado para que resuelva quien corresponda.
+TRÁMITES Y REQUISITOS DE LA MUNICIPALIDAD DEL CANTÓN CENTRAL DE HEREDIA Requisito único.- No se aceptarán, ni tramitará formularios incompletos. MERCADO La administración Municipal puede extender los siguientes permisos: El administrador recibirá y enviará a trámite si es del caso:
+Pintura | Llenar la solicitud de trámites en la Administración del Mercado para que resuelvaquien corresponda.
 Arreglo de sistema eléctrico | Municipal.
 Solicitudes de servicio eléctrico y agua | Estar al día en el pago de los Tributos Municipales. En caso de mejoras, remodelaciones, presentar la solicitud en el Departamento de Ingeniería Municipal, con copia al Administrador del Mercado. En caso de traslados, realizar la solicitud en el Departamento de Rentas y Cobranzas de la Municipalidad de Heredia, con copia al Mercado Municipal. Regirá el reglamento de Mercado Municipal.
 Atención al Público en los Servicios | Cancelar el arancel correspondiente.
@@ -55,7 +50,7 @@ Liquidación de asignación de Recursos Municipales para Juntas de Educación, A
 |
 RENTAS Y COBRANZAS
 Arreglo de pago |
-En el caso de patentes comerciales, cementerio, alquiler no hay arreglo de pago, salvo en patentes en casos de que el negocio esté cerrado y se haya presentado la nota de retiro de patente. | Estar moroso tanto en bienes inmuebles, como en servicios comunales (basura, limpieza ya sea comercial ó residencial) La deuda debe superar los treinta mil colones (₵30.000.00) Una letra de cambio. Fotocopia de un recibo de agua, luz o teléfono, Este trámite deberá ser realizado de agua, luz o teléfono. Este trámite deberá ser realizado personalmente, si el deudor por alguna razón no puede apersonarse por razones de fuerza mayor, la persona que realice el arreglo de pago deberá presentar un poder autenticado. En caso de una sociedad deberán presentar además personería jurídica, copia de cédula jurídica, copia de la cédula de representante legal. En todos los casos se deberá realizar en el momento del arreglo, la cancelación de la primera cuota acordada.
+Que se le de potestad a la Administración Municipal para que realice arreglos de pago en casos de patentes comerciales, cementerios, mercados, alquileres. Aún así en patentes en casos de que el negocio está cerrado y se haya presentado la nota de retiro de patente. (Así reformado el párrafo anterior en sesión N° 303 del 4 de enero de 2006) | Estar moroso tanto en bienes inmuebles, como en servicios comunales (basura, limpieza ya sea comercial ó residencial) La deuda debe superar los treinta mil colones (₵30.000.00) Una letra de cambio. Fotocopia de un recibo de agua, luz o teléfono, Este trámite deberá ser realizado de agua, luz o teléfono. Este trámite deberá ser realizado personalmente, si el deudor por alguna razón no puede apersonarse por razones de fuerza mayor, la persona que realice el arreglo de pago deberá presentar un poder autenticado. En caso de una sociedad deberán presentar además personería jurídica, copia de cédula jurídica, copia de la cédula de representante legal. En todos los casos se deberá realizar en el momento del arreglo, la cancelación de la primera cuota acordada.
 Traspaso de lotes en el Cementerio | Estar al día en el pago de los Tributos Municipales. Solicitud por escrito, firmada por el propietario o propietarios de derecho. Fotocopia de la cédula de identidad por ambos lados vigente del propietario del derecho y del nuevo beneficiario. (Persona física o jurídica). Constancia del Cementerio. Acuerdo del Concejo. E caso de que sea fallecido se debe publicar edicto.
 Adquisición de lotes en el Cementerio | Solicitud por escrito dejando claro el nombre, número de cédula del dueño y su beneficiario mayores de edad. En caso de aprobación cancelar o pagar la primera cuota, cancelar el saldo en máximo 6 cuotas mensuales consecutivas.
 Constancia y categoría de licores | Fórmula completa Ubicación externa donde se explota la misma. Copia de cédula ya sea persona física o jurídica del dueño de la patente comercial y del dueño de la de licores. Si es del caso presentar la personería jurídica. Estar al día de pago de los tributos Municipales.
@@ -138,3 +133,4 @@ Permiso de construcción en obras mayores de 30 m2 | Planos constructivos aproba
 |
 NOTA: Los formularios anotados se encuentran a disposición, para cualquier consulta, en esta Municipalidad.
 Heredia, 4 de junio del 2002.
+|
