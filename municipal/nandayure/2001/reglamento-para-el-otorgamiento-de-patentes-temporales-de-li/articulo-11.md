@@ -1,1 +1,2 @@
-Artículo 11.—No se autorizará permisos simultáneos en comunidades que se encuentren a un radio de 15 kilómetros de distancia una de otras, para evitar perjuicio económicos a los diferentes grupos comunales.
+Artículo 11.—No se autorizará permisos simultáneos en comunidades que se encuentren a un radio de 15 kilómetros de distancia una de otras, para evitar perjuicio económico a los diferentes grupos comunales; a excepción del Sábado de Gloria y del 24 al 31 de Diciembre. En cuanto al primer sábado de diciembre solo se autorizará Permiso de Baile y Patente Temporal de Licores al Comité Organizador del Festival Navideño de Nandayure, debidamente juramentado por el Concejo Municipal.
+(Así reformado mediante sesión N°192, celebrada el 04 de enero del 2006).

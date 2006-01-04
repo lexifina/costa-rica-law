@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de patentes temporales de licores y aprobación 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-22 | la propia norma |
+| 2 | 2006-01-04 | Reglamento municipal 192 (2006-01-04) |
