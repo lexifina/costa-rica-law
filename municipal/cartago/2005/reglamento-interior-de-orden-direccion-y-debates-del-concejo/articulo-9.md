@@ -1,0 +1,1 @@
+Artículo 9º—El Concejo Municipal sesionará extraordinariamente de acuerdo con los artículos 36 y 37 del Código Municipal y su objeto debe ser motivado por razones de necesidad y no de manera antojadiza.

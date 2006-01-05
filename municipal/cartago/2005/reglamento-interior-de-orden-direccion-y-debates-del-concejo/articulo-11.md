@@ -1,0 +1,1 @@
+Artículo 11.—En sesiones extraordinarias, celebradas el mes, día y hora de la convocatoria, se conocerán exclusivamente los asuntos indicados expresamente en la convocatoria, salvo que por unanimidad de los Regidores Propietarios presentes se decida conocer otros asuntos, previo a la orden del día que indique la Presidencia Municipal.

@@ -1,0 +1,1 @@
+Artículo 67.—Igualmente, el Concejo podrá dar audiencia a los munícipes que así lo soliciten. Se establece como día para recibir en audiencias al público, las sesiones de los últimos martes de cada mes, y se limitarán a tres audiencias por sesión.

@@ -1,0 +1,1 @@
+Artículo 82.—Existirán dos tipos de Comisiones de Trabajo: las Permanentes y las Especiales. Éstas últimas podrán integrarse por acuerdo del Concejo, según se estime conveniente para la atención de asuntos específicos de interés comunal o propios de la Municipalidad.

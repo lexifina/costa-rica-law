@@ -1,0 +1,1 @@
+Artículo 63.—El recurso de revisión de uno o más acuerdos podrá ser planteado por cualquier Regidor que haya o no estado presente al momento de tomarlo y en cualquier caso aunque lo hubiere votado favorablemente. Deberá plantearse por medio de moción escrita y en memorial razonado. El Regidor que así solicite la revisión, no está bajo ninguna circunstancia obligado a votarla.

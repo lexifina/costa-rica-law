@@ -1,0 +1,1 @@
+Artículo 100.—Queda facultado la Presidencia del Concejo Municipal por sí o a solicitud de uno o más Regidores por fuerza mayor u otro motivo a reestructurar las Comisiones de Trabajo cuando así se amerite.

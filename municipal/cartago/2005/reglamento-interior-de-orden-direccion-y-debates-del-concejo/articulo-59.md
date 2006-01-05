@@ -1,0 +1,1 @@
+Artículo 59.—Antes de aprobar el acta, cualquier regidor podrá plantear revisión de acuerdos, salvo respecto de los que hayan sido aprobados definitivamente conforme al Código Municipal y este reglamento. Para la admisión de la moción que plantea el recurso de revisión, debe contarse con la mayoría mínima que se requirió para tomar el acuerdo objeto del recurso.

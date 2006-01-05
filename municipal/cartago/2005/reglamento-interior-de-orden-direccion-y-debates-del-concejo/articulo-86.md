@@ -1,0 +1,1 @@
+Artículo 86.—El Concejo Municipal podrá pasar los dictámenes de comisión a conocimiento de otra comisión, o alguna designada especialmente por la Presidencia, para que se pronuncie sobre un caso en concreto.
