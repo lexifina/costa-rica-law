@@ -1,0 +1,3 @@
+Artículo 7º—De la facturación. La Unidad Administrativa encargada realizará la facturación mediante el sistema mecanizado, remitirá la información a cajas mediante el mismo sistema mecanizado o, en su defecto, en original y una copia, los cuales serán firmados y sellados por la persona que confecciona los recibos y lo anota en el formulario "Control de
+recibos enviados a Caja".
+En caso de que la caja esté unificada (una sola persona factura y cobra), el encargado de la caja recaudadora realizará ambas funciones, firmará y los sellará con el sello de cancelado.
