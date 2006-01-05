@@ -1,7 +1,0 @@
-Acuerdo SUGEF 25-00
-(NOTA DE SINALEVI: El presente Acuerdo, es derogado por artículo 27del Reglamento sobre la Suficiencia Patrimonial de Entidades Financieras (Acuerdo SUGEF N° 3-06), el cual originalmente regía a partir del 18 de marzo de 2006, pero mediante reforma efectuada por el Consejo Nacional de Supervisión del Sistema Financiero, en sesión No. 569 de 6 de abril de 2006, empezará a regir el 18 de julio de 2006).
-El Consejo Nacional de Supervisión del Sistema Financiero considerando que:
-1. El Artículo 171, inciso b), de la Ley Reguladora del Mercado de Valores, Ley 7732, dispone que es atribución de este consejo aprobar las normas atinentes a la autorización, regulación, supervisión, fiscalización y vigilancia que, conforme a la ley, deben ejecutar la Superintendencia General de Entidades Financieras.
-2. El Artículo 70 de la Ley del Sistema Financiero Nacional para la Vivienda y sus reformas, menciona que las Asociaciones Mutualistas de Ahorro y Préstamo se constituyen únicamente con un fondo inicial integrado por cuentas de ahorro en efectivo.
-DISPONE:
-1. Que el patrimonio contable de las asociaciones mutualistas de ahorro y préstamo para la vivienda se calcule utilizando el Plan de Cuentas vigente para las entidades fiscalizadas por la SUGEF y en estricto apego de la naturaleza jurídica de esas entidades. Para este propósito se incluyen las siguientes partidas: Aportes patrimoniales no capitalizados, ajustes al patrimonio, reservas patrimoniales, resultados acumulados de ejercicios anteriores y el resultado del periodo.
