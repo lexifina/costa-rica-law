@@ -1,0 +1,5 @@
+CAPÍTULO II
+De la solicitud de bienes
+Artículo 6º—Solicitud de Bienes Municipales. Todo préstamo de bienes municipales deberá estar debidamente respaldado y justificado por la correspondiente "Solicitud de Préstamo de Bienes Municipales" y autorizados por el Gestor de Apoyo Logístico.
+Dicha solicitud deberá presentarse con, al menos, quince días hábiles de anticipación a la fecha prevista para la realización de la actividad que justifica el préstamo, salvo casos excepcionales de emergencia comprobada o prioridades establecidas por la municipalidad, a valorar por el Alcalde Municipal o el Concejo Municipal cuando se trate del uso de Salón de Sesiones y de las Plazas Mayor y de la Independencia.
+El Concejo Municipal transfiere autoridad al Alcalde Municipal para que a su criterio pueda prestar el Salón de Sesiones o las Plazas Mayor y de la Independencia en casos especiales y de orden mayor, siempre y cuando no altere el préstamo ya establecido por el mismo Concejo. Cuando el Concejo Municipal acuerde disponer de bienes municipales, de previo deberá verificar con el Proceso de Apoyo Logístico y la Secretaría General, la disponibilidad de los bienes.

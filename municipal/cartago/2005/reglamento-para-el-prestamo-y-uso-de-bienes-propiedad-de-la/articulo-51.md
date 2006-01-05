@@ -1,0 +1,1 @@
+Artículo 51.—Sanciones. Sin perjuicio de las acciones jurisdiccionales de orden pecuniario o penal, por los daños o incumplimiento de contrato, la Municipalidad de Cartago podrá rechazar la inmediata gestión de préstamo de bienes municipales que realice el interesado cuyo incumplimiento contractual se le impute.

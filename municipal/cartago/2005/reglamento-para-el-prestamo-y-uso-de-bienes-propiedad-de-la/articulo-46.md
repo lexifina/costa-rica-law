@@ -1,0 +1,1 @@
+Artículo 46.—Del informe. El encargado del Proceso de Apoyo Logístico, rendirá un informe mensual a la encargada del Eje de Eficiencia Administrativa de las gestiones atendidas con ocasión del presente reglamento, con su respectivo detalle.

@@ -1,0 +1,1 @@
+Artículo 36.—De la restitución. Una vez terminado el contrato, el prestatario tendrá que devolver los bienes municipales dados en préstamo, en el término, lugar y forma convenidos, lo cual verificará el encargado del Proceso de Apoyo Logístico oportunamente.

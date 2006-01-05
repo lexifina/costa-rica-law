@@ -1,0 +1,2 @@
+Artículo 27.—Del pago. El precio del arriendo se pagará en las Cajas municipal o aquellas que expresamente estén autorizadas, una vez firmado el contrato respectivo y previa entrega de los bienes municipales acordados.
+La letra de cambio emitida en garantía deberá depositarse y conservarse en las cajas de la Tesorería Municipal, en el mismo momento en que se verifique la cancelación del monto por concepto de arriendo.

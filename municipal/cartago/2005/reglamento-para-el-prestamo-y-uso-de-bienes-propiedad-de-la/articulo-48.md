@@ -1,0 +1,2 @@
+Artículo 48.—De la vigilancia. En todas las actividades programadas al amparo de este Reglamento en el Salón de Sesiones, excepto las de comisiones y departamentos administrativos, deberá contarse con la presencia de un funcionario municipal responsable designado al efecto, a fin de vigilar el correcto uso de las instalaciones y equipos municipales y
+verificar el estado de los mismos, conforme con el inventario previamente elaborado, al término de la actividad correspondiente.

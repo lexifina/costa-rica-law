@@ -1,0 +1,1 @@
+Artículo 14.—Del Comodato. Igualmente, la municipalidad podrá disponer del uso y disfrute de sus bienes de acuerdo con un contrato de préstamo gratuito, cuando por cooperación a instituciones públicas o por razones de beneficencia sean requeridos los bienes de acuerdo con el presente reglamento.

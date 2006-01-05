@@ -1,0 +1,2 @@
+Artículo 34.—Del traslado. Cuando así sea pactado, el departamento de Apoyo Logístico coordinará con los funcionarios municipales idóneos para el traslado, instalación y desinstalación, así como el manejo adecuado del equipo, cuando sea necesario por lo complejo o sofisticado de los bienes municipales prestados.
+En todo caso, se procurará que los bienes sean trasladados mediante vehículos municipales y su costo será cancelado por el interesado, según los valores que oportunamente se determinarán, como parte del precio a cancelar.

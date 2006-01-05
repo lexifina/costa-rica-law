@@ -1,0 +1,1 @@
+Artículo 31.—De la resolución. La Municipalidad se reserva el derecho de resolver el contrato y retirar todos los bienes prestados, previo aviso a los prestatarios, cuando se requiera atender asuntos Municipales urgentes generados por caso fortuito o fuerza mayor, de conformidad con las reglas que sobre el particular establezcan las leyes vigentes.

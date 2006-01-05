@@ -1,0 +1,1 @@
+Artículo 10.—Firma del Contrato. Aprobado el préstamo, por parte del Alcalde Municipal o el Concejo Municipal cuando corresponda, el interesado se deberá apersonarse ante la Alcaldía Municipal, a fin de suscribir el respectivo contrato de préstamo.

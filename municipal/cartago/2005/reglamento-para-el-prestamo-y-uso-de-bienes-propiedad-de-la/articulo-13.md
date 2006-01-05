@@ -1,0 +1,1 @@
+Artículo 13.—Del Arrendamiento. La municipalidad podrá disponer del uso y disfrute, por tiempo determinado, de sus bienes, previa solicitud del interesado, a cambio de un precio que deberá ser cancelado antes de la entrega de los bienes, en las cajas recaudadoras de la Municipalidad o aquellas autorizadas por la corporación municipal.

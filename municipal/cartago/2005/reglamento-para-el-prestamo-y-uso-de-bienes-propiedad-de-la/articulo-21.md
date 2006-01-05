@@ -1,0 +1,2 @@
+Artículo 21.—De las condiciones de uso de las plazas. De acuerdo con el artículo anterior, se prohíbe para todo caso, el uso de equipos de sonido u otros que produzcan ruido excesivo y contaminación sónica indebida.
+Cuando las actividades impliquen la aglomeración de grupos grandes de personas o público, el organizador deberá contar con los permisos estatales correspondientes, corriendo por su cuenta las responsabilidades que se deriven de este incumplimiento.

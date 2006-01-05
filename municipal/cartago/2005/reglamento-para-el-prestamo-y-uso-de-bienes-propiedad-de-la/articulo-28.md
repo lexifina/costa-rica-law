@@ -1,0 +1,4 @@
+Artículo 28.—De la entrega del bien. Una vez firmado el contrato y dispuesto en ese documento el plazo por el cual queda autorizado el interesado a utilizar el bien según las condiciones pactadas, la Municipalidad deberá entregar el bien y sus accesorios haciendo constar el estado actual de los bienes por prestar.
+En caso que no se consigne su estado, se presume que los bienes municipales fueron entregados en buen estado.
+Cuando se trate de instalaciones municipales, se hará una entrega simbólica del bien, la cual se concretará con la entrega del inventario de los bienes que se encuentren dentro del local. En ningún momento se entregarán las llaves de la instalación municipal, las cuales quedarán en
+todo momento a cargo de funcionario municipal responsable.
