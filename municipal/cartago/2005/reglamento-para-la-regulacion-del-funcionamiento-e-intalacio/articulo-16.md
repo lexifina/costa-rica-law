@@ -1,0 +1,1 @@
+Artículo 16.—De conformidad con el artículo 81 bis del Código Municipal, será sancionado con multa equivalente a tres salarios base, según lo establecido en la Ley 7337, artículo 2, el propietario, administrador o responsable de un establecimiento que no se encuentre al día o que tenga la licencia suspendida y continúe desarrollando la actividad.

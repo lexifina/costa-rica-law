@@ -1,0 +1,1 @@
+Artículo 6º—Los negocios que incumplan las disposiciones señaladas en este Reglamento, serán sancionados con la suspensión de la licencia y la eventual clausura del local, de acuerdo con lo que determinan los artículos 81 bis del Código Municipal, 42 de la Ley de Licores y 20 del Reglamento de la Ley de Licores.

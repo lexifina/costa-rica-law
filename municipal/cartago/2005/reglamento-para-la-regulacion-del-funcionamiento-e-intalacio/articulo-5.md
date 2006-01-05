@@ -1,0 +1,1 @@
+Artículo 5º—Queda prohibido la ubicación de salas de juegos carteados, billares y futbolines en locales situados a menos de cincuenta metros de templos religiosos, centros de salud y de enseñanza, privados o públicos debidamente autorizados, lo anterior de acuerdo con el Reglamento a la Ley de Juegos N° 3510-G.
