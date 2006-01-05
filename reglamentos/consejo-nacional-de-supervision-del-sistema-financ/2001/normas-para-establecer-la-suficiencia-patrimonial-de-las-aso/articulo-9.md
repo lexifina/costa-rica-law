@@ -1,1 +1,0 @@
-9. Cuando debido a modificaciones en el plan de cuentas o en cualquiera de los módulos del sistema ingresador sea necesario cambiar el detalle de rubros utilizados para el cálculo de la suficiencia patrimonial, la SUGEF comunicará las variaciones mediante carta circular externa.
