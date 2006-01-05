@@ -1,0 +1,3 @@
+Artículo 17.—El Banco tiene la facultad de solicitar directamente al Instituto Costarricense de Electricidad, en cualquier momento, un desglose de las llamadas que se efectúan de los teléfonos celulares asignados, incluso en los casos en que no existen restricciones en cuanto a tarifa.
+En el caso de que la línea celular sea propiedad del funcionario, éste deberá solicitar, a pedido de la Dirección de Apoyo Institucional, el reporte mencionado y presentarlo a esa Dirección lo antes posible.
+En los meses de enero y julio de cada año, la Dirección de Apoyo Institucional hará una evaluación de las autorizaciones que se hayan otorgado al amparo de este Reglamento, con el fin de determinar si mantiene la necesidad de esas autorizaciones.

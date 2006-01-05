@@ -1,0 +1,1 @@
+Artículo 13.—En el evento de que el funcionario responsable del uso del teléfono celular no justifique el exceso de consumo, en forma clara, precisa y satisfactoria, o sus argumentos no sean de recibo a criterio de funcionarios competentes, señalados en el artículo anterior, el funcionario deberá cancelar la suma gastada en exceso, mediante el procedimiento establecido.

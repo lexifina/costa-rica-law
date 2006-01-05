@@ -1,0 +1,1 @@
+Artículo 4º—La asignación de líneas y aparatos telefónicos celulares es para uso único y exclusivo del funcionario autorizado. La cesión del uso de la línea telefónica y el aparato telefónico celular a un funcionario no autorizado, acarrea responsabilidad administrativa para ambos funcionarios.

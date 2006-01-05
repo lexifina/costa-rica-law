@@ -1,0 +1,3 @@
+TRANSITORIO I
+Las líneas y/o aparatos telefónicos celulares propiedad del Banco Crédito Agrícola de Cartago, que hayan sido asignadas a funcionarios en puestos diferentes a los que establece el artículo Nº 3 de este Reglamento, serán analizadas y mantendrán la asignación por interés institucional, o hasta que exista una manifestación explícita y por escrito, del funcionario autorizado, razonando que no desea usar la línea y/o aparato telefónico celular propiedad del BCAC.
+El presente Reglamento fue aprobado por la Junta Directiva General, en la sesión Nº 7889/05, artículo 24, celebrada el 6 de diciembre del 2005 y rige a partir de su publicación en el Diario Oficial La Gaceta. 14 de diciembre del 2005.

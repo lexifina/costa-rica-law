@@ -1,0 +1,9 @@
+Artículo 2º—Con el propósito de conservar el principio de racionabilidad en el uso de los bienes públicos, para interpretar el articulado de este Reglamento se debe entender:
+Funcionario autorizado para el uso de línea y teléfono celular propiedad del BCAC: Empleado del BCAC que ha sido autorizado por el Gerente o Subgerentes Generales, para el uso de una línea y aparato telefónico celular propiedad del BCAC.
+Funcionario autorizado para recibir pago por servicio telefónico celular: Empleado del BCAC que ha sido autorizado por el Gerente o Subgerentes Generales para recibir el pago por parte del BCAC, del servicio telefónico celular, toda vez que en razón de sus funciones, colabora con el logro de los objetivos institucionales.
+Línea celular propiedad del BCAC: Línea celular que está registrada en el Instituto Costarricense de Electricidad como propiedad del BCAC.
+Teléfono celular propiedad del BCAC: Aparato telefónico celular con factura de compra a nombre del BCAC.
+Pago de servicio telefónico celular: Son los pagos que realiza el BCAC por servicio telefónico celular, para eficientizar el desempeño de sus funciones.
+Principios de razonabilidad, sana administración y de la protección de los intereses del Banco: Son los que utiliza el Gerente General y los Subgerentes Generales, para la asignación de líneas y aparatos telefónicos celulares propiedad del BCAC y para autorizar el pago de servicios telefónicos celulares a funcionarios del BCAC.
+En situaciones calificadas, se puede autorizar el pago del servicio telefónico celular a funcionarios que cuenten con línea y aparato telefónico, siempre y cuando en el ámbito de sus funciones hayan realizado gastos, previa solicitud formal del funcionario.
+Las disposiciones de este Reglamento son de acatamiento obligatorio para los funcionarios, usuarios y para las oficinas involucradas en la administración y control del servicio.

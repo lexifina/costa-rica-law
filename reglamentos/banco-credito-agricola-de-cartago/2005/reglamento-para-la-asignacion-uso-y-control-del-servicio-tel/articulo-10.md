@@ -1,0 +1,2 @@
+Artículo 10.—Las llamadas telefónicas internacionales de líneas telefónicas celulares propiedad del Banco, deben justificarse por escrito, exceptuando al Presidente de Junta Directiva, Gerente General y los Subgerentes Generales.
+De no justificar su actuación o no brindar un fundamento adecuado para la erogación, a criterio de la Junta Directiva cuando de los Directores de Junta se trate, o a criterio de la Gerencia o Subgerencias Generales para el resto de funcionarios, debe cubrir el pago de las llamadas con sus propios ingresos.
