@@ -1,3 +1,0 @@
-3. La suficiencia patrimonial resulta de la relación entre el capital base y los activos totales ponderados según el grado de riesgo más el valor de exposición a riesgo operacional por concepto de administración de fideicomisos similares a fondos de inversión y fideicomisos de titularización. Se establece para el cálculo de la suficiencia patrimonial el procedimiento que está definido en el documento anexo a esta normativa
-(Así reformado por el artículo 3° del Reglamento N° 231- 2001 del 11 de junio del 2001)
-(Mediante ssesión N° 320 de 20 de agosto del 2002, se cambia el término "patrimonio no redimible" por el término "capital base")

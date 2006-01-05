@@ -1,1 +1,0 @@
-8. Los intermediarios financieros indicados en el numeral 1 anterior se encuentran expuestos a la aplicación de las disposiciones contenidas entre los Artículos 25 y 35 del Acuerdo SUGEF 24-00 "Reglamento para juzgar la Situación Económica y Financiera de las entidades supervisadas".
