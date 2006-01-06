@@ -1,0 +1,1 @@
+Artículo 6º—Oportunidad de presentar la solicitud: JAPDEVA mantendrá abierta la posibilidad de recibir solicitudes para la prestación de los diferentes servicios aquí regulados, en forma permanente, y éstos se otorgarán una vez verificado el trámite que establece este reglamento.

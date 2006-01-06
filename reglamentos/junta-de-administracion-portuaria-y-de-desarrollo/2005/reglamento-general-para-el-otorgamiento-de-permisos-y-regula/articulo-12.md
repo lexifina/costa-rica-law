@@ -1,0 +1,1 @@
+Artículo 12.—Disposiciones de protección. Deberán cumplir con las disposiciones de seguridad de las instalaciones portuarias de acuerdo al código PBIP, medidas de protección ambiental, la legislación referida a los riesgos del trabajo, cobertura por parte del Seguro Social y medidas indemnizatorias por daños a terceros, instalaciones y equipos del puerto.

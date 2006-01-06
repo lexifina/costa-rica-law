@@ -1,0 +1,1 @@
+Artículo 7º—El órgano competente: Corresponde al Consejo de Administración de JAPDEVA, aprobar en definitiva las solicitudes para la prestación de los diferentes servicios, una vez seguidos los procedimientos establecidos en los artículos 16 y 17 de este reglamento.

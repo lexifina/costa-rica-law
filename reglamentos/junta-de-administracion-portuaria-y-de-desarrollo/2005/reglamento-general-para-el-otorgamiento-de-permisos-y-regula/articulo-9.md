@@ -1,0 +1,1 @@
+Artículo 9º—Comunicación de autorización: Una vez aprobado el permiso de operación o la prórroga por parte de la Junta Directiva, le corresponderá a la Gerencia Portuaria notificar el acuerdo a las empresas autorizadas, a las respectivas Intendencias de Limón y Moín, a la Dirección de Seguridad y a la Dirección Administrativa.

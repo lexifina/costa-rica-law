@@ -1,0 +1,1 @@
+Artículo 21.—Análisis de la solicitud: Una vez que el Depto de Servicios Generales reciba la documentación completa, remitirá las solicitudes de servicios al Depto Legal para que sean dictaminadas por esa instancia previo a ser elevadas al Consejo de Administración.

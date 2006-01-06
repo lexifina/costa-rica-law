@@ -1,0 +1,1 @@
+Artículo 22.—Resolución del consejo: El Consejo de Administración de JAPDEVA, mediante resolución motivada, otorgará o negará el respectivo permiso. La resolución deberá emitirse dentro de los treinta días naturales siguientes a la presentación al Consejo de Administración.

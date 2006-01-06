@@ -1,0 +1,1 @@
+Artículo 15.—Lugar para recibir notificaciones: Toda solicitud deberá ser presentada mediante escrito debidamente firmado por el solicitante en forma personal. En caso de ser presentada por un tercero deberá de ser autenticada por un abogado, en el que señalará un lugar o número de fax para recibir notificaciones dentro del perímetro de la Ciudad de Limón.
