@@ -1,1 +1,0 @@
-Artículo 26.- Las funciones de la Comisión de Coordinación Bancaria y de sus Comités son las de crear planes de Contingencias, los cuales deberán ser revisados periódicamente, pudiendo la Comisión establecer las fechas para esta revisión.

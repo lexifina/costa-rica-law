@@ -1,2 +1,0 @@
-Artículo 24.- En las Agencias Bancarias ubicadas fuera del Área Metropolitana, se integrará un comité local de coordinación de seguridad, el cual estará formado por el Gerente o Encargado de la Agencia Bancaria, los comandantes, los (*) comandantes cantonales o distritales, de los respectivos cuerpos policiales.
-(*) (Así modificada su denominación por el artículo 3º del decreto ejecutivo Nº 24928 de 16 de enero de 1996).
