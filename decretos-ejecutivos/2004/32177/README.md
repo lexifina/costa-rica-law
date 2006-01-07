@@ -14,3 +14,4 @@ Reglamento de Organización del Ministerio de Seguridad Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-10 | la propia norma |
+| 2 | 2006-01-07 | Decreto Ejecutivo 33128 (2006-01-07) |
