@@ -1,0 +1,1 @@
+Artículo 9º—Los visitantes o funcionarios ajenos al Departamento de Informática no podrán ingresar al mismo con bolsos, ni maletines, entre otras cosas. Estos elementos deberán dejarse en la secretaría del Departamento de Informática.

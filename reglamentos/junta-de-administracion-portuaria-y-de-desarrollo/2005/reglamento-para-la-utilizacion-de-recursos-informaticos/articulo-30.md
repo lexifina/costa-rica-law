@@ -1,0 +1,2 @@
+Artículo 30.—El equipo de cómputo será utilizado únicamente para accesar, abrir o generar archivos con información exclusiva de la dependencia responsable del equipo o aquella que contenga información que le sirva para sus fines laborales.
+El equipo de cómputo sólo podrá ser utilizado por alguna otra dependencia dentro y fuera de la institución, siempre y cuando dicha información sea para asuntos de trabajo afines a JAPDEVA.

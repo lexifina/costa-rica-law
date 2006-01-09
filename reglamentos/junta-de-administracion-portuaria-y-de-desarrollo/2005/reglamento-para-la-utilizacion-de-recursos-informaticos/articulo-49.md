@@ -1,0 +1,1 @@
+Artículo 49.—Cualquier material y/o datos obtenidos mediante el uso del servicio de Internet sin contar con las protecciones recomendadas, constituye un riesgo para el funcionario y para la Institución, por lo que el servidor será exclusivamente responsable de cualquier daño al sistema o pérdida de datos que pueda resultar de su proceder.

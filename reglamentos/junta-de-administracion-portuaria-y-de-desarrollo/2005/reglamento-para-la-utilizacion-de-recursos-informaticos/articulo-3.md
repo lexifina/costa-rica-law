@@ -1,0 +1,1 @@
+Artículo 3º—Solamente los funcionarios de JAPDEVA podrán operar los equipos. No se permite su uso a personas ajenas a la Institución ni la instalación de otros paquetes de software, excepto en los casos en que se cuente con autorización previa y por escrito del Departamento de Informática.

@@ -1,0 +1,1 @@
+Artículo 20.—La Sección de Soporte Técnico del Departamento de Informática, estará a cargo de las licencias de software y la instalación de software original en las microcomputadoras y microcomputadoras portátiles de la institución.

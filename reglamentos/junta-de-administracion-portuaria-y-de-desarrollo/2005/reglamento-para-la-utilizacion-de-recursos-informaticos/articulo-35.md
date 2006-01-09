@@ -1,0 +1,1 @@
+Artículo 35.—El mantenimiento y limpieza de los microcomputadores será realizado periódicamente por personal de la Sección de Soporte Técnico o en su defecto y previa justi.cación técnica de parte del Departamento de Informática, podrá ser contratado el mantenimiento preventivo por parte de la Institución a empresas externas dedicadas a esta tarea.

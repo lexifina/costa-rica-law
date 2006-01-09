@@ -1,0 +1,1 @@
+Artículo 25.—Toda solicitud de adquisición de repuestos y/o accesorios para el equipo de cómputo, deberá tener la respectiva justificación por parte del responsable solicitante así como la respectiva justificación técnica de la Sección de Soporte Técnico del Departamento de Informática, lo cual deberá ser coordinado con el Departamento de Proveeduría.

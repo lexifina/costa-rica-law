@@ -1,0 +1,3 @@
+Artículo 43.—Cada usuario tiene una dirección electrónica personal la cual estará habilitada mientras labore para la institución. Para poder acceder al correo electrónico es necesario digitar la clave de acceso. Los usuarios serán los responsables por el uso de la clave y bajo ninguna circunstancia debe revelarse. Ésta se deberá de cambiar periódicamente y cuando expire debe cambiarse de inmediato. Sólo se instalará una cuenta por equipo.
+El jefe de la unidad comunicará al departamento de Informática la persona que ha dejado o dejará de laborar en JAPDEVA ya sea por renuncia, pensión, despido o muerte, para eliminarle la dirección.
+En caso de que un usuario esté disfrutando de sus vacaciones podrá accesar su cuenta desde cualquier computadora fuera de la Institución.

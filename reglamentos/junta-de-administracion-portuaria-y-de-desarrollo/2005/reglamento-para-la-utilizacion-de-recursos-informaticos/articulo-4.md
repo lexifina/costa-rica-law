@@ -1,0 +1,1 @@
+Artículo 4º—La Unidad de Informática tiene la autoridad para controlar y negar el acceso a cualquier persona que viole las políticas o interfiera con los derechos de otros usuarios. También tiene la responsabilidad de comunicar a aquellas personas que se vean afectadas por las decisiones tomadas y a sus superiores.

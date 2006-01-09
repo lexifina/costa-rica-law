@@ -1,0 +1,1 @@
+Artículo 32.—Los encargados de sistemas o jefaturas inmediatas evitarán que se utilicen unidades de almacenamiento particulares en sus microcomputadoras, si no han sido revisados previamente por el antivirus instalado.

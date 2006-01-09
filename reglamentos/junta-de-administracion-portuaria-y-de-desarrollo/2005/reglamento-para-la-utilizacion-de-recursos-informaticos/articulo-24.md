@@ -1,0 +1,1 @@
+Artículo 24.—Cuando el equipo no pueda ser reparado por la Sección de Soporte Técnico, el Departamento de Informática coordinará con el Departamento de Proveeduría la reparación del mismo por parte de empresas contratadas para tal efecto mediante los procesos de contratación establecidos en la institución.

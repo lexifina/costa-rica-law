@@ -1,0 +1,1 @@
+Artículo 8º—Los visitantes externos a JAPDEVA que estén dentro de las instalaciones del Departamento de Informática deben portar una identificación en un lugar visible que los distinga como visitante.

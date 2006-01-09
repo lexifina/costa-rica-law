@@ -1,0 +1,1 @@
+Artículo 29.—Cada usuario es responsable de respaldar su información periódicamente. Para poder respaldar la información en discos compactos (CD), debe coordinar con la Sección de Soporte Técnico del Departamento de Informática para que le brinde las facilidades del caso.

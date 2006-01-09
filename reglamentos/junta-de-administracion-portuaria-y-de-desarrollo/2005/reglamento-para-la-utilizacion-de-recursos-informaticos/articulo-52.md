@@ -1,0 +1,3 @@
+Artículo 52.—En el momento en que el Departamento de
+Informática detecte el uso indebido de las herramientas cuyo uso se regula en este reglamento, enviará la comunicación correspondiente al jefe del Departamento o la Unidad, según corresponda, para que este valore la posibilidad de suspenderle al funcionario el acceso a los servicios sin que con ello se vea perjudicado el servicio. En caso de así considerarlo necesario, el Jefe enviará el comunicado al Departamento de Informática, quien deberá cumplir la orden inmediatamente.
+Esta suspensión no impide que se establezcan procedimientos administrativos, para aplicar sanciones disciplinarias por el uso indebido del equipo electrónico y las comunicaciones en la institución.

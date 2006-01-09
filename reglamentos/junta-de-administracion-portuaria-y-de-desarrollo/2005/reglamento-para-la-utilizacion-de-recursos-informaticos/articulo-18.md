@@ -1,0 +1,1 @@
+Artículo 18.—Toda adquisición de software original para el área de las microcomputadoras y las microcomputadoras portátiles, debe contar con el visto bueno del Departamento de Informática conforme la estrategia informática de la Institución.

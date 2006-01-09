@@ -1,0 +1,1 @@
+Artículo 15.—Debe llevarse un registro de cualquier material o equipo que ingrese o salga del Departamento de Informática. Este registro debe contemplar fecha de entrada o salida, hora entrada o salida, material y nombre de la persona que lo ingrese o saque.

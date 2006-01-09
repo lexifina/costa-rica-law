@@ -1,0 +1,1 @@
+Artículo 2º—Cada equipo de cómputo estará asignado a un usuario responsable, quien deberá velar por su buen funcionamiento Para tal efecto deberá reportar cualquier falla o anomalía al Departamento de Informática, para que se le brinde el soporte técnico respectivo

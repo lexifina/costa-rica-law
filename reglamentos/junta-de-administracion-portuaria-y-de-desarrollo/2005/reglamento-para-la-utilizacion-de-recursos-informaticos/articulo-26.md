@@ -1,0 +1,1 @@
+Artículo 26.—Queda terminantemente prohibido trasladar el equipo de cómputo de una sección a otra sin la debida autorización de la Sección de Soporte Técnico del Departamento de Informática. Este traslado deberá ser reportado a la Unidad de Control de Activos Fijos.

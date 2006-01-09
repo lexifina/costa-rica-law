@@ -1,0 +1,1 @@
+Artículo 36.—Es obligación del Departamento de Informática llevar una tarjeta de control de los suministros, accesorios, partes o repuestos de cada equipo, la cual deberá ser actualizada cada vez que el usuario requiera nuevos suministros.

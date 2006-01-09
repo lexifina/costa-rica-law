@@ -1,0 +1,1 @@
+Artículo 59.—El Departamento de Informática colaborará estrechamente con los Jefes de División, Departamento o Sección, según corresponda, en la sustanciación de los expedientes que deban levantarse en contra de los trabajadores que sean sorprendidos en violación de lo estipulado en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 19.—Todo software original que se adquiera será para uso exclusivo de la institución y estará bajo la responsabilidad y custodia de la Sección de Soporte Técnico del Departamento de Informática.
