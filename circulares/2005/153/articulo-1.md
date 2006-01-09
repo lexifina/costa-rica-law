@@ -1,0 +1,10 @@
+CIRCULAR Nº 153-2005
+ASUNTO: Política de disponibilidad.
+A TODAS LAS AUTORIDADES JUDICIALES DEL PAÍS
+QUE ATIENDEN DISPONIBLIDAD
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión Nº 79-05, celebrada el 6 de octubre del 2005, artículo LV, en razón del informe elaborado por el Departamento de Planificación, dispuso comunicarles la propuesta aprobada en relación con la política de disponibilidad, que define el funcionario que debe cubrir la disponibilidad del fin de semana, feriado o día inhábil, cuando se trata de un nombramiento interino y este termina el viernes o el día hábil anterior al feriado, cuyo texto literalmente dice:
+"... cuando a un despacho le corresponda atender disponibilidad durante un .n de semana o día inhábil, siendo que el día anterior a ese lapso, el titular viene siendo sustituido, al servidor interino que lo sustituye se le deben incluir en el nombramiento, los días inhábiles posteriores al nombramiento, con el .n de que la disponibilidad sea cubierta por este. En este caso, no se debe perder de vista que por ejemplo si la sustitución es únicamente por un viernes, el nombramiento también debería incluir sábado y domingo, con el .n de que se cubra la respectiva disponibilidad, ante lo cual se tendrían que cancelar esos dos días al servidor interino. Se reitera que esto procedería solamente en los casos en que al despacho donde se realiza el nombramiento, le corresponda por rol atender disponibilidad exactamente el siguiente período inhábil de cuando se termina el nombramiento del interino, lo cual podría decirse que es sumamente relativo y difícil de programar.
+En este caso, es importante indicar que se debe informar al servidor responsable de hacer los nombramientos, que el funcionario sustituto estará sometido al régimen de disponibilidad; por tanto, el período inhábil deberá incluirse en el nombramiento."
+Cuando se trate de nombramientos interinos por cinco días o más, tal como se ha venido aplicando, se incluyen sábado y domingo como parte del nombramiento, tenga o no disponibilidad el despacho en donde se cumple.
+San José, 22 de noviembre de 2005.
