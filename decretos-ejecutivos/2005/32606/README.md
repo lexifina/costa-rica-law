@@ -14,3 +14,4 @@ Concede asueto a los empleados públicos del cantón de Tarrazú de la Provincia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-09 | la propia norma |
+| 2 | 2006-01-09 | Decreto Ejecutivo 32800 (2005-11-01) |
