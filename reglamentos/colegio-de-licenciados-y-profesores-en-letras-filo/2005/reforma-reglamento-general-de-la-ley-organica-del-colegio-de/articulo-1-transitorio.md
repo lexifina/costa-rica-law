@@ -1,0 +1,1 @@
+Transitorio I.—Para la aplicación del artículo 25 de este reglamento, los miembros que se encuentren con nombramientos vigentes al momento de aprobación de esta modificación reglamentaria se mantendrán en su cargo con las condiciones con que fueron electos, hasta la finalización de su período de elección.
