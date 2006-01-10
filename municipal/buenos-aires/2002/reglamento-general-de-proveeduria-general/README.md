@@ -14,3 +14,4 @@ Reglamento General de Proveeduría General
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-15 | la propia norma |
+| 2 | 2006-01-10 | Reglamento municipal 2 (2006-01-10) |

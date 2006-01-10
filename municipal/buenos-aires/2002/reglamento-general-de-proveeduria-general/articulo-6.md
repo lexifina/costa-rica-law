@@ -5,7 +5,8 @@ a) Por caja chica: Se comprará por caja chica artículos urgentes de adquisici�
 b) Por contratación directa:
 1. Se realizará compra directa únicamente cuando el valor no sobrepase los montos establecidos en la Ley de Contratación Administrativa y su respectivo Reglamento.
 2. Únicamente podrán ser tramitados, mediante compra directa, aquellos bienes y servicios que cumplan con lo estipulado en el artículo anterior, para los cuales se deberán realizar cotizaciones previas a la emisión de la orden de compra, de acuerdo con el siguiente procedimiento:
-Para compras de ¢10.000,00 a ¢99.999,00, una cotización, para compras de ¢100.000,00 a ¢299.999,00, dos cotizaciones, para compras de ¢300.000,00 a ¢ 999.999,00, tres cotizaciones, los montos superiores al millón de colones se tramitarán de acuerdo a lo establecido en la Ley de Contratación Administrativa y su Reglamento.
+Para Compra de ¢10.000,00 a ¢ 499.999,00, una cotización, para compra de ¢500.000 a ¢999.999,00 dos cotizaciones, para compra de ¢1.000.000 a ¢1.930.000 tres cotizaciones.
+(Así reformado el párrafo anterior en sesión N° 2 del 10 de enero del 2006)
 3. Las cotizaciones deben indicar como mínimo:
 - Descripción del bien o servicio cotizado.
 - Fecha máxima de recepción de cotizaciones.
