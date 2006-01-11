@@ -1,0 +1,2 @@
+Artículo 23.—Si la ubicación pretendida por el interesado no fuera aceptada por la Unidad de Recursos Humanos, el profesional puede presentar ante ésta, recurso de revocatoria con apelación para ante el Alcalde Municipal, en un plazo de ocho días hábiles contados a partir del momento en que reciba la comunicación. La Comisión deberá pronunciarse en un plazo similar sobre el reclamo.
+El Alcalde Municipal conocerá de esa apelación y agotará la vía administrativa en tal caso, pudiendo el profesional acudir a la vía judicial si lo estima conveniente y necesario a sus intereses.

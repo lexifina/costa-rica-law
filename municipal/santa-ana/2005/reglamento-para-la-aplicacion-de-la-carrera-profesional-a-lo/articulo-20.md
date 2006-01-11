@@ -1,0 +1,1 @@
+Artículo 20.—Para ser tomada en cuenta la calificación de servicios de los funcionarios de nivel profesional, deberá venir firmada por la Jefatura del funcionario, estar registrada en la Unidad de Recursos Humanos de la Municipalidad, antes del 30 de agosto de cada año. Si no estuviera registrada la calificación de servicios en la citada dependencia, se considera como muy buena.

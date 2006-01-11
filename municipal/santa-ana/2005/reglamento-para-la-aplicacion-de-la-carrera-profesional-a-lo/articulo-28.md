@@ -1,0 +1,2 @@
+Artículo 28.—Los ajustes a la Carrera Profesional, podrán ser solicitados a la unidad de Recursos Humanos en cualquier momento. Su aprobación se hará de conformidad con el procedimiento señalado en los Artículo 16, 17, 20, 21, 22, 23 y 24. En cuanto a su fecha de vigencia, ésta será del primer día hábil de la semana siguiente después de aprobada la solicitud.
+La unidad de Recursos Humanos deberá realizar la evaluación respectiva a más tardar ocho días hábiles, después de presentada la solicitud.

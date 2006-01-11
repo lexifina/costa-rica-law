@@ -1,0 +1,1 @@
+Artículo 22.—La Unidad de Recursos Humanos estudiará la solicitud y si la aprobare, determinará de acuerdo con el puntaje obtenido, el monto por reconocer y comunicará al petente y al Encargado de Recursos Humanos el resultado de su gestión.

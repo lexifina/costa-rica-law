@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión de Carrera Profesional no hará estudios de oficio, solo realizará aquellos solicitados por los interesados. Salvo el estudio de experiencia profesional y del ajuste del valor del incentivo, de acuerdo a lo publicado por el Servicio Civil.

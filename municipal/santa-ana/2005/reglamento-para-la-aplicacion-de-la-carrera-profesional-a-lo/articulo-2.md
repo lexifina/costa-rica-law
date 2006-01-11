@@ -1,0 +1,1 @@
+Artículo 2º—Denomínese Carrera Profesional al incentivo económico aplicable a los funcionarios del nivel profesional que trabajan en la Municipalidad de Santa Ana, concedido con base en sus grados académicos, posgrados adicionales a la Licenciatura y publicaciones realizadas.

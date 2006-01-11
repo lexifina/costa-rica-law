@@ -1,0 +1,1 @@
+Artículo 18.—La obtención de una calificación inferior a muy bueno o la no presentación de la certificación de que habla el artículo anterior, será motivo para no otorgar y suspender el ajuste solicitado u otorgado. El año de experiencia respectivo, no será tomado en cuenta en estudios posteriores.

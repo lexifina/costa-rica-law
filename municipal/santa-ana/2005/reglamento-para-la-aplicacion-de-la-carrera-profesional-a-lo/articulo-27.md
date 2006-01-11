@@ -1,0 +1,1 @@
+Artículo 27.—Las resoluciones referidas, serán comunicadas a la Unidad de Recursos Humanos, a fin de que se tramite la respectiva Acción de Personal y que se haga efectivo el incentivo por Carrera Profesional.

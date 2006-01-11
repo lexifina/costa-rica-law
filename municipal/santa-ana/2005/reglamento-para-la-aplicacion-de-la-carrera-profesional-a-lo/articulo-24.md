@@ -1,0 +1,1 @@
+Artículo 24.—Una vez definido el monto de incentivo, de acuerdo con los factores evaluados, la unidad de Recursos Humanos trasladará al Alcalde, el formulario en que conste la decisión tomada y documentos probatorios.

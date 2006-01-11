@@ -1,0 +1,1 @@
+Artículo 30.—El encargado de Recursos Humanos tendrá la obligación de controlar y aplicar en el mes de setiembre de cada año o luego de efectuada la calificación de servicios, lo dispuesto en el Artículo 17 de este Reglamento, presentando una lista de los profesionales afectados, al Alcalde Municipal, con copia a la Auditoria y a la Dirección de Hacienda Municipal.
