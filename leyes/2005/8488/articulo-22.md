@@ -1,0 +1,1 @@
+Artículo 22.—Auditoría Interna. El auditor interno deberá ser un contador público autorizado; será nombrado de conformidad con la legislación vigente y dependerá en forma directa de la Junta Directiva.

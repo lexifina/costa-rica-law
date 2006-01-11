@@ -1,0 +1,1 @@
+Artículo 44.—Administración del fondo nacional de emergencias. Los costos necesarios para la administración, la gestión, el control y la auditoría del Fondo Nacional de Emergencias, serán cubiertos hasta con un tres por ciento (3%) del monto que conforma dicho fondo.

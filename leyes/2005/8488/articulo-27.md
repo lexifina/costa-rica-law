@@ -1,0 +1,1 @@
+Artículo 27.—Presupuestación. En los presupuestos de cada institución pública, se deberá incluirse la asignación de recursos para el control del riesgo de los desastres, considerando la prevención como un concepto afín con las prácticas de desarrollo que se promueven y realizan.
