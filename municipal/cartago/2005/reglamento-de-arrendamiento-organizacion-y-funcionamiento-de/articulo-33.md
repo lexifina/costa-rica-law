@@ -1,0 +1,1 @@
+Artículo 33.—De las pólizas. Se mantendrá una póliza vigente contra incendio, temblor y terremoto que proteja la infraestructura del inmueble municipal. Las pólizas referentes a las mercaderías y bienes que sirvan a cada local, correrán por cuenta de cada inquilino.

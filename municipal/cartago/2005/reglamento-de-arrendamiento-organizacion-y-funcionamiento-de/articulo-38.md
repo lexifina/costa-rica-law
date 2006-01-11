@@ -1,0 +1,4 @@
+Artículo 38.—Medidas de higiene. Tanto los inquilinos como el público deberán acatar las disposiciones de las autoridades municipales, el Ministerio de Salud, así como las propias que los inquilinos organizados sugieran a la administración del mercado. Queda terminantemente prohibido el lanzamiento al suelo de basura o despojos, así como de aguas sucias, líquidos fermentables.
+No se permite la manipulación de dinero y mercaderías consecutivamente (carnes, quesos, embutidos, etc.).
+El administrador, en coordinación con el Ministerio de Salud, será vigilante de que lo aquí reglamentado sea cumplido.
+Los inquilinos deberán limpiar sus tramos o locales, por lo menos una vez al día. La basura deberá ser colocada en recipientes con bolsa, debidamente tapados según lo dispuesto en el artículo siguiente.
