@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Plan general de la emergencia
+Artículo 38.—Elaboración del plan general de la emergencia. Cuando el Poder Ejecutivo haya emitido el decreto que declara el estado de emergencia, de inmediato la Comisión, por medio de su Dirección Ejecutiva y en consulta con su Presidencia, convocará a las Instituciones que tengan competencia y cualquier otra que considere necesaria por estar dentro del área de afectación de la emergencia, para la elaboración del Plan General de la Emergencia, instrumento que permitirá planificar y canalizar en forma racional, eficiente y sistemática, las acciones que deban realizarse, la supervisión necesaria y la asignación de los recursos que se requieren.
+Con este propósito dentro de un plazo máximo de dos meses, las instituciones convocadas deberán entregar un reporte oficial de los daños que sufrió el área de su competencia, con una estimación de los costos y las necesidades que deban cubrirse. Debe existir, en forma inequívoca, una relación de causa- efecto en este reporte de daños.
+Con los reportes presentados y la demás documentación que la Comisión acredite, se elaborará el Plan General de la Emergencia.
