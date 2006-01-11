@@ -1,0 +1,3 @@
+Transitorio II.—Autorízase a la Comisión para que los remanentes de las sumas de dinero que ingresen a su patrimonio para atender una situación de prevención, mitigación o de emergencia por medio de una autorización legislativa, los utilice en la atención de otras declaratorias de emergencia para atender situaciones de prevención y mitigación, una vez concluidas todas las contrataciones de bienes o servicios que demanden la situación para la cual fue girado el dinero.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.—San José, a los veintidós días del mes de noviembre del dos mil cinco.

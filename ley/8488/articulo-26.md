@@ -1,0 +1,1 @@
+Artículo 26.—Coordinación. Las instituciones públicas deberán coordinar con la Comisión sus programas y actividades de prevención, considerándolos como un proceso de política pública que deberá operar en forma permanente y sostenida, con el enfoque sistémico y del Plan Nacional de Gestión del Riesgo.

@@ -1,0 +1,1 @@
+Artículo 11.—Programas de promoción. La Comisión deberá contar con programas permanentes para la promoción, el fomento y la capacitación de las instancias de coordinación referidas en el artículo 10 de esta Ley.

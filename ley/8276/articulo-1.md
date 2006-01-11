@@ -1,4 +1,6 @@
+(Derogado)
 Nº 8276
+(Ésta Ley fue Derogada por el artículo 56 de la Ley N° 8488 del 22 de noviembre de 2005)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:

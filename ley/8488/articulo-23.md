@@ -1,0 +1,3 @@
+Artículo 23.—Disposiciones aplicables a la Auditoría Interna. La Unidad de Auditoría Interna se organizará y funcionará conforme a las normas que rigen el ejercicio de la Auditoría Interna y las disposiciones emitidas por la Contraloría General de la República. La competencia, las potestades y atribuciones de esta Unidad serán .jadas por el ordenamiento jurídico aplicable.
+Para el adecuado cumplimiento de las responsabilidades, la Auditoría Interna contará con los recursos humanos, físicos y de otra índole que estime necesarios, con el .n de que ejerza el control oportuno y eficazmente.
+El nombramiento y la remoción del personal de la Auditoría Interna, así como su promoción, deberán contar con la anuencia del auditor.

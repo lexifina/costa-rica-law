@@ -1,0 +1,1 @@
+Artículo 37.—Cesación del estado de emergencia. El Poder Ejecutivo deberá declarar la cesación del estado de emergencia, cuando se cumplan las fases de la emergencia definidas en el artículo 30 de esta Ley, y cuente con un criterio técnico emitido por la Comisión que así lo respalde.
