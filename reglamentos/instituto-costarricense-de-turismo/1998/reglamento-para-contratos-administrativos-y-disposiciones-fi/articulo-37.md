@@ -1,1 +1,0 @@
-Artículo 37—Todos los cheques que se confeccionen, los mantendrá la Tesorería bajo su custodia, para su posterior entrega al beneficiario, según lo señalan las disposiciones financieras de este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 41.—Es responsabilidad del Departamento Financiero mantener actualizados los sistemas computarizados en uso, como resultado del procesamiento electrónico de datos, manteniendo un estricto control de la apertura y actualización de los catálogos de cuentas y sobre la digitación de todos los documentos que se procesan en los diferentes sistemas.

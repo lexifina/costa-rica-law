@@ -1,3 +1,0 @@
-CAPITULO III
-De las responsabilidades inherentes a los funcionarios que intervienen en trámites de contratación administrativa
-Artículo 22.—Ningún servidor de la institución será relevado de responsabilidad, por haber procedido en contra de lo indicado en la Ley de Contratación Administrativa y su Reglamento. Ley de la Administración Financiera de la República, así como de aquellos procedimientos de contratación que le corresponda cumplir en el procedimiento de que se trate. De presentarse cualquier irregularidad en forma espontánea o por disposición superior, debe ser objetada por escrito ante la jefatura inmediata, con copia a la Gerencia y a la Auditoría.

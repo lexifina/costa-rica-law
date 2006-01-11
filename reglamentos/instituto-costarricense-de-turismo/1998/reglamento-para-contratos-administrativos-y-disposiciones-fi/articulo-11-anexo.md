@@ -1,1 +1,0 @@
-Artículo 11.—El Tesorero solicitará al Departamento Administrativo las tarjetas de turismo que mantendrá en custodia para la venta. Será el responsable directo de la custodia y venta de dichas tarjetas, y deberá llevar los más claros y seguros registros demostrativos del saldo y secuencia numérica estricta, así como las entregadas en consignación.

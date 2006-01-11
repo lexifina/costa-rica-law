@@ -1,1 +1,0 @@
-Artículo 3°—Todas las responsabilidades que se deriven de las diferentes actividades administrativas que realicen los funcionarios de Instituto, deberán ajustarse a los procedimientos establecidos en la Ley, el R.G.C.A. y el presente Reglamento, así como por el Reglamento Autónomo de Trabajo y cualquier otra estipulación legal conexa.

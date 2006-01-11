@@ -1,1 +1,0 @@
-Artículo 30.—El Departamento Financiero deberá controlar la ejecución del presupuesto ordinario y sus modificaciones en la forma más amplia y detallada, siguiendo las técnicas y directrices que en ese campo se deben utilizar.

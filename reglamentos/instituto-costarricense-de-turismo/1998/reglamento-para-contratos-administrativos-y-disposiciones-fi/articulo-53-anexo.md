@@ -1,1 +1,0 @@
-Artículo 53.—Es prohibido mantener o sustituir los fondos de Caja Chica por otros valores que no sean lo que indica el Artículo 45 y la violación de esta disposición se considerara falta grave, que se sancionará según lo estipula el Reglamento Autónomo de Trabajo.

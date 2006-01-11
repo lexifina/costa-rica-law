@@ -1,1 +1,0 @@
-Artículo 55.—Cualquier modificación relativa a la variación de los montos fijados en cada caso para los fondos de Caja Chica, será tramitado per la unidad competente ante la Junta Directiva, la que resolverá.

@@ -1,1 +1,0 @@
-Artículo 58.—Únicamente podrán tramitarse mediante estos fondos, aquellas compras de bienes y servicios que no sobrepasan la suma de c15.000,00 (quince mil colones), quedando expresamente prohibido fraccionar compras mayores de ese monto.

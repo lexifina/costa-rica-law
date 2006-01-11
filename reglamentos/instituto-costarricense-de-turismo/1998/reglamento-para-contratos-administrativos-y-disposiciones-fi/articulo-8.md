@@ -1,1 +1,0 @@
-Artículo 8°—Cada tres meses el encargado del Área de Proveeduría tendrá la responsabilidad de remitir a la Contraloría General de la República el informe de la actividad contractual desplegada durante ese período, el que básicamente deberá ajustarse a los lineamientos establecidos en el artículo 107 del R.G.C.A.

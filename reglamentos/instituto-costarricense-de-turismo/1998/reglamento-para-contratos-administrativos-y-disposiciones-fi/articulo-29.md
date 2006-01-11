@@ -1,5 +1,0 @@
-Artículo 29.—La autorización de gastos y aprobación de la partida presupuestaria que se hagan, estarán sujetas a los siguientes límites, según el monto de la operación, quedando vedada la autorización y aprobación fuera de jurisdicción, excepto cuando se trate de la Gerencia o cuando la jefatura esté facultada a autorizar montos superiores:
-a) Cuando sea superior a una tercera parte de la suma establecida en el artículo 79.4.5 del R.G.C.A., deberá ser firmada por la jefatura de la Dirección.
-b) Cuando sea igual o inferior a una tercera parte de la suma establecida en el artículo 79.4.5 del R.G.C.A.. deberá ser firmada por la jefatura del Departamento.
-c) Cuando sea igual o inferior a una sexta parte de la suma establecida en el artículo 79.4.5 del R.G.C.A., deberá ser firmada por el Encargado del Área.
-No obstante lo establecido en el inciso a) de este artículo, para operaciones superiores a dos terceras panes de la suma indicada en el artículo 79.4.5 del RGCA, se deberá contar adicionalmente con el refrendo de la Gerencia.

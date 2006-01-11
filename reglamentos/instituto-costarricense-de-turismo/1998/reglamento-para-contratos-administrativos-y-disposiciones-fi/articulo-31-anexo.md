@@ -1,1 +1,0 @@
-Artículo 31.—La existencia de contenido económico en las diferentes partidas presupuestarias, deberá hacerse constar en todos y cada uno de los formularios utilizados por la institución para las diferentes transacciones.

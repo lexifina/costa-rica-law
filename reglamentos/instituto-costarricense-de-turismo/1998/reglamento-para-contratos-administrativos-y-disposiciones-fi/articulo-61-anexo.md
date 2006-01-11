@@ -1,1 +1,0 @@
-Artículo 61.—Únicamente podrán tramitarse mediante estos fondos, aquellas compras de bienes y servicios que no sobrepasen la suma de c5.000,00 (cinco mil colones), quedando expresamente prohibido fraccionar compras que se pretendan hacer mayores de ese monto.

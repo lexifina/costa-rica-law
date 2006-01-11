@@ -1,1 +1,0 @@
-Artículo 10.—Por medio de la Tesorería, debe de darse la más respetuosa y armoniosa coordinación y relación, tanto con las personas que proceden a efectuar pagos, como con todos los proveedores externos, a quienes se les cancele la prestación de servicios o adquisición de bienes.

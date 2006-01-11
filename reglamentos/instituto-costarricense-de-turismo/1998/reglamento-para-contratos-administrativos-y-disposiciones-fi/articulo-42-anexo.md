@@ -1,1 +1,0 @@
-Artículo 42.—Además de los ajustes a las validaciones de los movimientos digitados, es responsabilidad del Área de Contabilidad, emitir y preparar los diferentes informes y repones que ayuden a la toma de decisiones por parte de los diferentes niveles jerárquicos.

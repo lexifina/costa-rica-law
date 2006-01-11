@@ -1,3 +1,0 @@
-Artículo 14.—Toda entrega de cheques que haga la Tesorería, lo será al beneficiario directo, con excepción de la posibilidad indicada en el artículo anterior y estableciéndose los siguientes requisitos:
-14.1 Tratándose de personas físicas, la entrega se hará contra presentación de su cédula de identidad. Si el interesado no puede apersonarse, deberá enviar la autorización correspondiente y su cédula de identidad, debiéndose también solicitar adicionalmente, la de la persona que ha sido autorizada.
-14.2 En el caso de las personas jurídicas, deberá de presentarse un recibo membretado o en su defecto, sellado por parte de entidad beneficiaria.

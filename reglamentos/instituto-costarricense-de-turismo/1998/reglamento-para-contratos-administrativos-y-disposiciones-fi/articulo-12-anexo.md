@@ -1,1 +1,0 @@
-Artículo 12.—La Tesorería debe velar por mantener un estricto control sobre todos los valores entregados para su custodia, dentro de los que se destacan: pólizas, acciones comunes y preferenciales, bonos, garantías de participación y de cumplimiento, pagarés, patentes, colecciones numismáticas, folletos y reglamentos entre otros.

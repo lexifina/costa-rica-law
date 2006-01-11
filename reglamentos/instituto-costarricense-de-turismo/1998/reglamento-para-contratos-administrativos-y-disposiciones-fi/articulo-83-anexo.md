@@ -1,2 +1,0 @@
-Artículo 83.—No está permitido utilizar los adelantos de gastos en fines distintos para los que se solicitaron. La presentación de la liquidación y la rendición de cuentas, fuera del tiempo concedido en este Reglamento, se tipifica como falta grave y obliga a la Administración a exigir el reintegro inmediato, de la totalidad de la suma que se hay a adelantado.
-(Así ADICIONADO mediante Sesión Ordinaria Nº4995 celebrada el 31 de enero de 2000, publicada en La Gaceta Nº 72 del 12 de abril de 2000.)

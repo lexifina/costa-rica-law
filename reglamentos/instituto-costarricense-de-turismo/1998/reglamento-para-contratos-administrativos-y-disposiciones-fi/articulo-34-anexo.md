@@ -1,1 +1,0 @@
-Artículo 34.—Deberá Presupuesto mantener actualizado, el Manual de Cuentas Presupuestarias, el cronograma financiero y cualquier otro tipo de control que en este campo se utilice, manteniendo una estrecha y constante coordinación con la Contabilidad e Informática.

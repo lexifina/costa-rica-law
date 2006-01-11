@@ -1,1 +1,0 @@
-Artículo 17.—La Contabilidad es la unidad encargada del registro, verificación y custodia de todos los comprobantes que se procesan diariamente. Le corresponde también brindar datos precisos y oportunos a través de los diferentes balances mensuales y de cierre de período, para lo cual, utilizará y aplicará la metodología contable moderna.

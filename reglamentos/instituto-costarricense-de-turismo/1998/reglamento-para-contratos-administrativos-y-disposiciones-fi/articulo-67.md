@@ -1,2 +1,0 @@
-Artículo 67.—El plazo para la recepción de ofertas será el establecido en la invitación a cotizar, el cual lo determinará el Proveedor, de acuerdo a los requisitos y especificaciones establecidas en la misma invitación. Asimismo, el plazo podrá ser modificado, por el Proveedor, previa consulta a unidad solicitante, atendiendo la naturaleza y complejidad de la contratación.
-(Así ADICIONADO por la Sesión Ordinaria N° 5267, celebrada el 16 de setiembre de 2003, publicada en La Gaceta N° 205 de 24 de octubre de 2003.)

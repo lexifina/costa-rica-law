@@ -1,2 +1,0 @@
-Artículo 82.—Las jefaturas o personas encargadas de autorizar los gastos incluidos en las liquidaciones, deberán realizar un análisis de los mismos, con el fin de verificar que únicamente se está incluyendo los bienes o servicios autorizados de previo y que no constituyen violación a los procedimientos normales de contratación.
-(Así ADICIONADO mediante Sesión Ordinaria Nº4995 celebrada el 31 de enero de 2000, publicada en La Gaceta Nº 72 del 12 de abril de 2000.)

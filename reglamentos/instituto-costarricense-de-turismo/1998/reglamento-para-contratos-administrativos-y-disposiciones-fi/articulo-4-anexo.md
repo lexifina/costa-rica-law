@@ -1,1 +1,0 @@
-Artículo 4°—En cuanto a los términos y plazos fijados por medio de contratos, convenios, o cualquiera otra determinación administrativa, el Área de Ingresos les dará el seguimiento que corresponda para su fiel y correcto cumplimiento, o en su defecto, iniciar los trámites legales que sean pertinentes.

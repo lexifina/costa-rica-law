@@ -1,1 +1,0 @@
-Artículo 10.—Cualquier modificación que deba efectuarse en contratos adjudicados o en vías de ejecución deberá aprobarse por la Junta Directiva o la Gerencia, dependiendo del monto de la adjudicación y deberá cumplir con las disposiciones establecidas en la Ley y el R.G.C.A.

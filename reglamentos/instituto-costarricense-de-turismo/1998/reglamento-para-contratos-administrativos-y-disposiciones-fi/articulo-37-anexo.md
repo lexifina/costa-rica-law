@@ -1,1 +1,0 @@
-Artículo 37.—El 15 de mayo de cada año es la fecha límite para que las unidades encargadas de ejecutar gastos en la institución, presenten a la Gerencia por medio de los responsables de los programas que se establezcan: la información consolidada de los requerimientos para el año venidero, en base a las justificaciones y los objetivos y metas que se piensan cumplir y alcanzar.

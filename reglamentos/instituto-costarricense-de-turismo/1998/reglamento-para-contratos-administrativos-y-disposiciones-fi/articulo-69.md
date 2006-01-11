@@ -1,3 +1,0 @@
-Artículo 69.—Las ofertas recibidas deberán remitirse, luego de determinada su admisibilidad por parte de la Proveeduría, junto con el expediente, a la unidad solicitante para su criterio técnico, el cual deberá ser devuelto a la Proveeduría, en un plazo no mayor a cinco días hábiles.
-El plazo antes indicado puede ser modificado por el Proveedor Institucional, previa consulta a la unidad solicitante, atendiendo la naturaleza y complejidad de la contratación.
-(Así ADICIONADO por la Sesión Ordinaria N° 5267, celebrada el 16 de setiembre de 2003, publicada en La Gaceta N° 205 de 24 de octubre de 2003.)

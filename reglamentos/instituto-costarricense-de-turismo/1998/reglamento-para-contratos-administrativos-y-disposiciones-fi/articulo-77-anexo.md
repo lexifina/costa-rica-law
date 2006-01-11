@@ -1,2 +1,0 @@
-Artículo 77.—Podrá tramitarse mediante estos fondos, los reintegros del impuesto del 5% sobre pasajes internacionales, según las condiciones del artículo 71 de este Reglamento y además se utilizará para dar cambio al públicos que efectúe pagos en Oficinas Centrales.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Ordinaria N° 5250, celebrada el 17 de junio de 2003, publicada en La Gaceta N° 132 de 10 de julio de 2003.)

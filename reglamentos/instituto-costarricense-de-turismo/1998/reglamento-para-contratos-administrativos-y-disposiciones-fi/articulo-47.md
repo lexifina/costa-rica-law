@@ -1,1 +1,0 @@
-Artículo 47.—Todo interesado en integrar el Registro de proveedores con posterioridad a la presentación de la respectiva solicitud. estará obligado a verificar la inclusión dentro del lapso de quince días hábiles, a partir de la presentación de la solicitud. Asimismo, deberá solicitar el número de identificación asignado dentro del registro.

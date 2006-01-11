@@ -1,1 +1,0 @@
-Artículo 71.—Únicamente podrá tramitarse mediante estos fondos, los reintegros del Impuesto del 59% sobre la venta de pasajes internacionales que no sobrepasen la suma de c15.000.00 (quince mil colones) en cada caso, con la aprobación del Encargado del Área de Ingresos.

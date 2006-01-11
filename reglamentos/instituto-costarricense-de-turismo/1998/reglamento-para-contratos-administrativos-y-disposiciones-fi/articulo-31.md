@@ -1,1 +1,0 @@
-Artículo 31.—Una vez cumplido por parte de la Proveeduría, con los trámites establecidos en el Manual de Procedimientos del Área de Proveeduría y este Reglamento, así como por las leyes y reglamentos conexos, procederá a emitir la Orden de Compra en el formulario correspondiente, remitiéndola una vez revisada y aprobada a Presupuesto.

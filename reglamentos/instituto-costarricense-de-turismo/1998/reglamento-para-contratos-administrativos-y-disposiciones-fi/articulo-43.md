@@ -1,1 +1,0 @@
-Artículo 43.—El Registro de Proveedores es un elemento esencial de obligada consulta que permitirá mantener actualizados requisitos y características de proveedores, bienes y servicios ofrecidos, así como todo lo referente al régimen de prohibiciones.

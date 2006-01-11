@@ -1,1 +1,0 @@
-Artículo 43.—Se mantendrá una estrecha y efectiva coordinación entre Contabilidad. Presupuesto y la Unidad de Informática, a fin de asegurarse resultados óptimos y oportunos que permitan visualizar en forma integral y pormenorizada, la situación económica y financiera que presente la institución en cualquier momento.

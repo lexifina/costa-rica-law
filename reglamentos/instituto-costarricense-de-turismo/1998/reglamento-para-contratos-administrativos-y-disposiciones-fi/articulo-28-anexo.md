@@ -1,1 +1,0 @@
-Artículo 28.—Los funcionarios autorizados por la Dirección Superior para registrar sus firmas en las diferentes cuentas bancarias que se consideren necesarias, al momento de firmar los cheques, revisarán los comprobantes y justificaciones que amparen a cada uno. Bajo ninguna circunstancia se permitirá la firma de cheques en blanco o al portador.

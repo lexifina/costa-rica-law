@@ -1,1 +1,0 @@
-Artículo 3°—El Encargado del Área de Ingresos, será el responsable de ejecutar y asegurarse en forma eficiente del mantenimiento de aquellos sistemas de control que permitan la recaudación de todos los ingresos que en determinado período se deban de recaudar, así como de velar por el cumplimiento de las fechas de reintegro, en especial, de las reglamentadas a esos efectos.

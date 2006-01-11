@@ -1,2 +1,0 @@
-Artículo 24.—El funcionario que en nombre de la institución contraiga compromisos de cualquier naturaleza en contra de las disposiciones legales, o sin cumplir los trámites establecidos en el Manual de Procedimientos del Área de Proveeduría y Disposiciones Administrativas sobre la Contratación y el presente Reglamento, será exclusivamente responsable ante los acreedores.
-De previo a la recepción del bien o inicio del servicio debe constatarse que se hayan finiquitado todos los trámites internos previos al perfeccionamiento de cada contratación.

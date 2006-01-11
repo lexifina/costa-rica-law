@@ -1,1 +1,0 @@
-Artículo 8°—Todos los ingresos que se reciban en efectivo (monedas. cheques que deben ser emitidos a nombre del I.C.T. y cualquier otro documento de pago bancario), deberán depositarse íntegramente a más tardar, el día hábil posterior a su recepción. Bajo ningún concepto se cambiarán cheques personales con los fondos percibidos.

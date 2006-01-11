@@ -1,3 +1,0 @@
-Artículo 85.—Cuando existe un adelanto de gastos y se toman vacaciones, que han sido autorizadas de previo, será requisito indispensable adjuntar al formulario de liquidación, copia de la orden de personal correspondiente o copia de la nota enviada al Área de Personal con las firmas respectivas, e indicarlo en el formulario de liquidación y en caso de enfermedad o permiso, se adjuntara el comprobante respectivo.
-Para los casos de incapacidad por maternidad u otros casos similares en que sea previsible la incapacidad, será considerado como falta grave el hecho de acogerse a ella teniendo gastos pendientes de liquidar.
-(Así ADICIONADO mediante Sesión Ordinaria Nº4995 celebrada el 31 de enero de 2000, publicada en La Gaceta Nº 72 del 12 de abril de 2000.)

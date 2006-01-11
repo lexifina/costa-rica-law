@@ -1,3 +1,0 @@
-CAPITULO V
-Intervención del Área de Proveeduría
-Artículo 30.—No está permitido el fraccionamiento de compras de bienes o servicios con el propósito de eludir los procedimientos normales de contratación, según su tipo y su monto, salvo las excepciones señalados en el artículo 40 del RGCA. El fraccionamiento se considera ilícito cuando conociéndose la necesidad concreta o el suministro sucesivo que se pretende obtener, se realiza más de una contratación para el mismo objeto. Es responsabilidad de la Proveeduría para los casos de su competencia. rechazar dichas gestiones.

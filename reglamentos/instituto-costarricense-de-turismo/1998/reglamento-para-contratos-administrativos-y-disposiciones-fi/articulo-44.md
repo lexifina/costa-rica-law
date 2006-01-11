@@ -1,1 +1,0 @@
-Artículo 44.—El Instituto invitará mediante publicación en el Diario Oficial "La Gaceta", y posteriormente en los principales diarios de circulación del país, por lo menos una vez al año, a más tardar durante el mes de febrero, a aquellas personas físicas o jurídicas que deseen formar parte del Registro de Proveedores para las futuras contrataciones a realizar.

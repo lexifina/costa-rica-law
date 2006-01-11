@@ -1,1 +1,0 @@
-Artículo 63.—Se exceptúa de este fondo, cuando las circunstancias lo americen, la prohibición establecida por el Artículo 48, inciso 48.1. Tampoco se requerirá en los pagos tramitados con estos fondos, lo establecido por el artículo 49 en cuanto a la autorización previa de Presupuesto.
