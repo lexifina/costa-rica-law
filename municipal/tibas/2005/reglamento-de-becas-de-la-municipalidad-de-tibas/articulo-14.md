@@ -1,0 +1,1 @@
+Artículo 14.—Del control de entrega de becas. Será responsabilidad de la Administración Municipal en la figura de la Tesorería Municipal, establecer los mecanismos pertinentes para ejercer el control del pago de becas a cada uno de los beneficiarios.

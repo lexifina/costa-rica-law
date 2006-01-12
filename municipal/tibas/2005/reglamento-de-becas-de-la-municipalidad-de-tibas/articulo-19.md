@@ -1,0 +1,1 @@
+Artículo 19.—En casos muy calificados un estudiante podrá solicitar beca fuera del periodo ya indicado y a juicio de la Comisión de Asuntos Educativos y Becas y dependiendo de las circunstancias y disponibilidad de presupuesto se podrá otorgar.

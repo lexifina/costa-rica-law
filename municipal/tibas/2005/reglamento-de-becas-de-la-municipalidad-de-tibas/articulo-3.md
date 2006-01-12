@@ -1,0 +1,2 @@
+CAPÍTULO II
+Artículo 3º—De la partida presupuestaria. Cada año la Comisión de Asuntos Educativos y Becas presentará al Concejo Municipal la partida para las becas del periodo económico siguiente, a fin de que la misma sea incluida en el presupuesto ordinario. Asimismo, se establecerá por parte de la Comisión, el monto mensual correspondiente a cada Beca y la cantidad de becas que se entregarán cada año, según lo estipulado en el artículo 2 de este Reglamento.

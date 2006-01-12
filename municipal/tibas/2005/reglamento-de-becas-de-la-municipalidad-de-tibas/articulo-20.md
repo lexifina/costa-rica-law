@@ -1,0 +1,2 @@
+Artículo 20.—Cualquier aspecto no definido en este Reglamento así como cualquier apelación en la asignación de becas se debe realizar ante la Comisión de Asuntos Educativos y Becas, quien deberá resolver en los siguientes 10 días hábiles.
+Si el solicitante no queda satisfecho, entonces podrá elevar el caso ante el Concejo Municipal quien deberá resolver la situación en el mismo lapso de tiempo, es decir 10 días hábiles.
