@@ -1,0 +1,1 @@
+Artículo 13.—Para la implementación de los programas y proyectos que formule y recomiende el COLOSEVI éste podrá gestionar recursos adicionales provenientes de instituciones públicas o privadas del cantón así como de la población.

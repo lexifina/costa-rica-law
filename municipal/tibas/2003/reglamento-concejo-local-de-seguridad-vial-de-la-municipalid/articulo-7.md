@@ -1,0 +1,1 @@
+Artículo 7º—El Concejo Local de Seguridad Vial se reunirá ordinariamente una vez al mes y extraordinariamente cuando lo acuerde el Directorio, lo decida el Presidente o lo solicite un número mínimo de tres de sus miembros y estas tendrán fines específicos y serán convocados por el presidente con 24 horas de antelación.

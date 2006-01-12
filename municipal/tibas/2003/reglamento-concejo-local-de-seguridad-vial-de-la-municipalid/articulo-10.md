@@ -1,0 +1,1 @@
+Artículo 10.—Los asuntos que conozca el comité, se decidirán por mayoría simple de sus miembros presentes, salvo en lo que respecta a presupuestos, que se acordarán por mayoría calificada, (dos tercios de la totalidad de los miembros presentes).

@@ -1,0 +1,1 @@
+Artículo 11.—Los acuerdos tomados por el Concejo Local de Seguridad Vial, quedarán firmes al aprobarse el acta respectiva por votación de las dos terceras partes de la totalidad de los miembros presentes), podrá el Concejo Local de Seguridad Vial declarar sus acuerdos definitivamente aprobados.
