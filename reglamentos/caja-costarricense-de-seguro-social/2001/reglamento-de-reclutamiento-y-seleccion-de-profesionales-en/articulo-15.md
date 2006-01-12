@@ -1,5 +1,3 @@
-CAPITULO 4
-Artículo 15.—Vigencia del reglamento. El presente Reglamento fue robado en el artículo 25° de la sesión número 7558, celebrada el 28 de junio del año 2001 y empezará a regir a partir de su aprobación.
-Este Reglamento deroga en todos sus extremos la normativa anterior sobre el reclutamiento y la selección para plazas de profesionales de Farmacia, Nutrición, Odontología y Trabajo Social.
-La fórmula de Informe de Calificación para Farmacia, Nutrición, Odontología y Trabajo Social, queda constando en forma anexa al borrador original de esta acta.
-Acuerdo firme.
+Artículo 15.—Recursos contra la calificación. En contra del acto de calificación se podrán interponer los recursos ordinarios de revocatoria y de apelación, en el plazo máximo de cinco días hábiles posteriores a la notificación de la misma, ante la oficina de recursos humanos o la unidad de gestión de recursos humanos, establecida como sede del Jurado. Es requisito fundamental para la admisibilidad del recurso, brindar al momento de su interposición los motivos de inconformidad.
+Recibido el recurso, el Jurado Calificador se pronunciará sobre la revocatoria. En caso de que la declararse sin lugar y si se interpuso también el recurso de apelación, procederá a remitir todo el expediente ante el Tribunal Administrativo de la Caja.
+Para el trámite y resolución de los recursos, se aplicarán las reglas de la Ley General de la Administración Pública.

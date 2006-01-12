@@ -1,12 +1,9 @@
-Artículo 9°—Inscripción al concurso. Los interesados en participar ;n los concursos deberán presentar su curriculum vitae y atestados en el ligar v ‘plazo fijados en el cartel.
-A partir de la primera publicación del concurso se inicia la inscripción de los participantes, la cual estará a cargo de la oficina de recursos humanos que promueve el concurso. La inscripción consiste en la revisión y sellado contra original de todos los documentos contenidos en el curriculum vitae de cada participante y del llenado de la hoja “Inscripción Concurso”.
-Los interesados deberán aportar a la hora de la inscripción lo siguiente:
-- Curriculum vitae debidamente foliado que contenga:
-- Listado de los contenidos de los folios debidamente enumerados de la primera página hasta la última.
-- Nota de solicitud de inscripción indicando la plaza o plazas para las cuales desea concursar.
-- Certificación del colegio profesional, si existe al momento del concurso, con al menos 30 días hábiles de emitida, antes de la fecha de cierre de inscripción, que indique que es miembro activo..
-- Certificaciones de experiencia laboral emitida por la oficina de recursos humanos respectiva, especificando puestos y tiempo laborado.
-- Certificados y títulos de cursos y seminarios, especificando tipo, fechas y número de horas.
-- Evaluaciones del Desempeño de los últimos tres años si está en propiedad, o las tres últimas evaluaciones de los nombramientos, en caso de ser interino(a). Este requisito no se considera para el concurso externo.
--Certificado del colegio profesional, de la inscripción de la especialidad respectiva.
--Cualquier otro documento que considere necesario o que indique el cartel de publicación del concurso.
+Artículo 9º—Jurados calificadores. El CEDICO nombrará los jurados calificadores en atención a los criterios fijados en el presente Reglamento. Una vez establecidos los jurados, procederá a comunicar a las Oficinas Locales de Recursos Humanos, quienes deberán notificar la integración de los mismos al retirar los documentos de inscripción al concurso, momento a partir del cual correrá el plazo de recusación.
+En caso de declararse con lugar la recusación, el miembro recusado no podrá formar parte del jurado calificador del recusante.
+La designación de los integrantes de los jurados calificadores deberá respetar los siguientes criterios:
+a) Los jurados calificadores de los concursos de profesionales estarán integrados por tres profesionales de la respectiva disciplina. En términos similares, cuando se trate del concurso de una plaza de especialista, los miembros del jurado deberán ser de la especialidad de que se trate la vacante. Únicamente en casos de inopia comprobada de profesionales con el nivel académico o el mismo perfil ocupacional requerido para la plaza objeto de concurso, se podrá modificar el requisito académico establecido en este inciso.
+b) Se nombrará también un miembro suplente, para que sustituya la ausencia justificada de algún miembro titular del jurado calificador.
+c) Todos los integrantes del jurado deberán ocupar un puesto de la misma o de superior categoría al puesto en concurso, y proceder de un centro asistencial diferente del lugar de trabajo del participante inscrito que deba ser evaluado por el respectivo jurado.
+d) El CEDICO designará al coordinador del jurado.
+e) En caso de no poder conformarse el Jurado Calificador, de acuerdo con lo estipulado en este Reglamento, en forma excepcional, se podrá tomar en cuenta a profesionales externos a la Institución, los que deben demostrar ante el CEDICO, su idoneidad técnica y conocimiento adecuado de los procesos institucionales que el puesto en concurso requiera.
+f) La capacitación de los diferentes jurados calificadores estará a cargo del CEDICO, que en caso necesario, podrá solicitar la asesoría a la Subárea de Reclutamiento y Selección.

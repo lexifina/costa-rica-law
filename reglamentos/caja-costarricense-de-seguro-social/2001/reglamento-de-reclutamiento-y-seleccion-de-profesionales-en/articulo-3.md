@@ -1,4 +1,2 @@
-CAPÍTULO 3
-Procedimiento de reclutamiento y selección
-Artículo 3°—Ocupación de los puestos. Los puestos nuevos. vacantes o traslados del personal Profesional de Farmacia. Nutrición. Odontología y Trabajo Social, se llenarán mediante concurso, de acuerdo con los procedimientos descritos en el presente Reglamento.
-Para efectos de redacción del presente reglamento, en lo sucesivo entiéndase como referidas las cuatro disciplinas, por saber: Farmacia, Nutrición. Odontología y Trabajo Social.
+Artículo 3º—Ocupación de los puestos. Los puestos vacantes del personal Profesional de Farmacia, Nutrición, Odontología, Trabajo Social y Psicología, se otorgarán mediante el procedimiento establecido en este Reglamento. Primero se constituirá el registro de elegibles, posteriormente, deberán apersonarse los candidatos elegibles que estén interesados en optar por ocupar la plaza en propiedad.
+La Caja garantizará la igualdad de condiciones y lo dispuesto en las leyes que pretenden la igualdad de género y de las personas con discapacidad.

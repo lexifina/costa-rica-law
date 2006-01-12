@@ -14,3 +14,4 @@ Reglamento de Reclutamiento y Selección de Profesionales en Farmacia, Nutrició
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-28 | la propia norma |
+| 2 | 2006-01-12 | Reglamento 8023 (2006-01-12) |
