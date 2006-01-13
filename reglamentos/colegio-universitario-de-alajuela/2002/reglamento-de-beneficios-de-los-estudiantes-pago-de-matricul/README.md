@@ -14,3 +14,4 @@ Reglamento de Beneficios de los Estudiantes, pago de matrícula y otros Arancele
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-12 | la propia norma |
+| 2 | 2006-01-13 | Reglamento 2340 (2006-01-13) |
