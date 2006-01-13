@@ -1,0 +1,2 @@
+Artículo 10.—Del personal de apoyo. Para la tramitación de los asuntos que se sometan a conocimiento de la Junta y con las funciones que se indican en el artículo siguiente existirá una secretaría adscrita a la Junta. El secretario de la Junta será el Superior Funcional de la Secretaría, personal de apoyo que desempeñará sus funciones a tiempo completo y tendrá el deber de guardar confidencialidad sobre los asuntos tratados en el seno de la Junta.
+Para el cumplimiento de sus funciones, el secretario contará con apoyo de recurso humano y técnico necesario.

@@ -1,0 +1,1 @@
+Artículo 6º—Presidente y secretario ad hoc. La Junta designará un Secretario conforme a la Ley. En casos de ausencia del presidente o del secretario se designará un presidente y secretario ad hoc, los cuáles se nombrarán por mayoría absoluta de los miembros con derecho a voto.

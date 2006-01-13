@@ -1,0 +1,1 @@
+Artículo 4º—Participación de personas ajenas a la Junta. Las sesiones de Junta son privadas. Sin embargo, por unanimidad de los miembros presentes con derecho a voto podrán autorizar el acceso a las sesiones de personas ajenas a la Junta, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.

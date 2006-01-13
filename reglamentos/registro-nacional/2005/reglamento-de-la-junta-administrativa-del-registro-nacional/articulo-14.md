@@ -1,0 +1,2 @@
+Artículo 14.—Quórum de las sesiones. Para que la Junta pueda sesionar válidamente el quórum será el de mayoría absoluta de la totalidad de sus miembros, o sea cuatro miembros propietarios o quienes actúen en esa condición.
+Si no hubiere quórum, la Junta podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo en casos de urgencia en la que podrá sesionar media hora después de la hora señalada para la primera convocatoria, con la asistencia de la tercera parte de sus miembros.

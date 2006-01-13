@@ -1,0 +1,2 @@
+Artículo 8º—De la abstención, impedimentos y recusaciones. Serán motivo de abstención los mismos de impedimento y recusación que se establecen en la Ley Orgánica del Poder Judicial, de acuerdo con el procedimiento determinado en los artículos 230 y siguientes de la Ley General de Administración Pública. El miembro que con motivo de abstención se separe del conocimiento de un asunto, deberá hacer constar sus razones ante la Junta.
+La abstención será resuelta por los miembros de la Junta.

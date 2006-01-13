@@ -1,0 +1,3 @@
+Artículo 21.—Libro oficial de actas. El secretario, deberá conformar un libro de actas en el que, una vez firmes las actas respectivas, se transcribirán inmediatamente a fin de que sean firmadas por el presidente, el secretario y por aquellos miembros que hubieren hecho constar su voto disidente, en un plazo máximo de ocho días hábiles luego de su aprobación.
+Una vez firmadas las actas se procederá a realizar respaldo tecnológico similar a microfilm, con el fin de garantizar su autenticidad, veracidad y respaldo.
+La responsabilidad de la custodia, firma y foliado del mismo, recae en el secretario.
