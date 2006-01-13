@@ -1,0 +1,2 @@
+Artículo 6º—Base de cálculo actuarial
+La evaluación actuarial del régimen debe mostrar los métodos y procedimientos aplicados a cada una de las personas objeto de la evaluación así como sus resultados. Para ello se utilizará tablas de probabilidades de ocurrencia de las diferentes contingencias cubiertas que puedan afectar a los afiliados activos y pensionados, así como a los sobrevivientes actuales y eventuales.

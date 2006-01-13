@@ -1,0 +1,4 @@
+Artículo 17.—Comunicación de designación y demostración del cumplimiento de los requisitos y condiciones
+Los regímenes deberán comunicar a la Superintendencia el nombre del actuario o en su defecto de la firma actuarial y el actuario encargado de realizar la evaluación o auditoría actuarial correspondiente, al menos treinta días antes del inicio del trabajo encargado.
+Las entidades deberán acreditar el cumplimiento de los requisitos establecidos en este artículo por medio de una declaración jurada. En dicha declaración, rendida ante notario público, el representante legal indicará que verificó que el actuario, o en su defecto la firma actuarial y el actuario encargado, cumple satisfactoriamente los requerimientos exigidos y que los documentos probatorios se encuentran a disposición de la Superintendencia.
+Igual certificación deberá entregarse para el caso del auditor actuarial.

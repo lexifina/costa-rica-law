@@ -1,0 +1,2 @@
+Artículo 20.—Aplicación del régimen sancionatorio
+La aplicación del régimen sancionatorio por el incumplimiento de las normas del presente Reglamento, se hará de conformidad con lo dispuesto por los artículos 45 y siguientes de la Ley 7523, Ley sobre el Régimen Privado de Pensiones Complementarias, mediante el procedimiento administrativo que corresponda siguiendo los principios de la Ley General de la Administración Pública.

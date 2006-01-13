@@ -1,0 +1,3 @@
+Artículo 18.—Sustitución del profesional o de la firma designada
+En el caso de que un régimen resuelva sustituir al actuario o firma actuarial designada para la realización de una evaluación actuarial, deberá comunicarlo a la Superintendencia con una explicación detallada de la causa de la sustitución.
+El actuario o firma actuarial deberá remitir su propio informe con una explicación detallada de la causa que originó la sustitución. En caso de que la evaluación actuarial haya sido concluida el actuario o la firma actuarial deberá informar sobre el resultado de su evaluación al régimen y a la Superintendencia.

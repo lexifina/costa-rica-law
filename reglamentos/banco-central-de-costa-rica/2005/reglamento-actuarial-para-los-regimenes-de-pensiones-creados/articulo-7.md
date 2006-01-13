@@ -1,0 +1,3 @@
+Artículo 7º—Bases económico-financieras
+Es responsabilidad del actuario establecer los valores de las bases económico-financieras al realizar la evaluación actuarial. Las bases y los valores asignados deben ser consistentes entre sí y reflejar cada uno de ellos una parte de la realidad en función del aspecto al que refieran, considerando la experiencia a largo plazo y las perspectivas de la economía.
+En el informe actuarial se deben detallar y justificar adecuadamente los valores asignados a las bases económico-financieras utilizadas en la evaluación. El Superintendente podrá solicitar cambios en los valores asignados a dichas bases cuando detecte inconsistencias en ellas.

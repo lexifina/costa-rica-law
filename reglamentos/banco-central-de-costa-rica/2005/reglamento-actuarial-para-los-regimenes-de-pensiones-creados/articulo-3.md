@@ -1,0 +1,2 @@
+Artículo 3º—Observancia de las especificaciones técnicas
+Las evaluaciones actuariales deben realizarse atendiendo las especificaciones técnicas del régimen. Asimismo, las recomendaciones derivadas de dichas evaluaciones y las acciones que los regímenes emprendan para atenderlas, deberán estar dirigidas a actuar sobre variables que correspondan a las especificaciones técnicas del régimen de que se trate.
