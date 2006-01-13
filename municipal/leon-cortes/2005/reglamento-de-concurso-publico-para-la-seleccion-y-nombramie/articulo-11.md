@@ -1,0 +1,2 @@
+Artículo 11.—Sobre la nota mínima para formar la lista de elegibles: Se consideran elegibles a quienes obtengan como mínimo una calificación final del 70%, resultado de la ponderación de las calificaciones obtenidas de los diferentes predictores utilizados para la evaluación de los candidatos.
+Con los candidatos que obtengan una calificación igual o superior al 70% se conformará un Registro de Elegibles, ordenados en orden descendente a partir de la calificación mayor hasta el 70%.

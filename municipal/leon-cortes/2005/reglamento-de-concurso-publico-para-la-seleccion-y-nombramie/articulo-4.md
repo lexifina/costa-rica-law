@@ -1,0 +1,2 @@
+Artículo 4º—Sobre las condiciones de la evaluación: De previo a la realización del concurso, la Comisión de Nombramiento del Auditor Interno de la Municipalidad de León Cortés, elaborará una propuesta que contendrá los descriptores con los cuales se evaluarán las ofertas presentadas por los oferentes y sus ponderaciones, así como un Cronograma de actividades.
+En caso que se requiera, se podrá coordinar con otras instituciones para la colaboración en materiales y asesoría en el diseño y confección del material de evaluación específico.

@@ -1,0 +1,1 @@
+Artículo 5º—De la publicación de aviso del concurso: La publicación del anuncio sobre el Concurso deberá contener los requisitos mínimos solicitados, así como la fecha y el sitio en el que se recibirán las ofertas. La publicación del anuncio se hará en un diario de circulación nacional, sin detrimento que sea divulgada por otros medios que la Municipalidad tenga a su alcance.

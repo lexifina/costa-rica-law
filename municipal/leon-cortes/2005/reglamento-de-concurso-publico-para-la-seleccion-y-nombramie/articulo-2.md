@@ -1,0 +1,1 @@
+Artículo 2º—Acciones previas: De previo a que la Comisión de Nombramiento del Auditor Interno, programe y proponga en marcha la realización del Concurso Público que indica la Ley N° 8292 para el nombramiento de dicho empleado, se requerirá de un acuerdo tomado por el Concejo Municipal de León Cortés.
