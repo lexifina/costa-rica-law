@@ -1,1 +1,0 @@
-Artículo 19.—Conforme las regulaciones existentes, la Dirección de Salud Animal y Producción Pecuaria establecerá, según la condición sanitaria existente en el país de origen, las pruebas y análisis requeridos que deban realizarse a los productos importados, en procura de salvaguardar la salud pública y animal.

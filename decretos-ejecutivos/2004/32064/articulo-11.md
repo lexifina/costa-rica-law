@@ -1,1 +1,0 @@
-Artículo 11.—Los establecimientos que incumplan con lo dispuesto por el Sistema de Análisis de Riesgo y Control de Puntos Críticos (SARCPC) establecido mediante Decreto Nº 26559-MAG-S del 9 de diciembre de 1997, contarán con un plazo de 15 días naturales para la corrección de las desviaciones en los puntos críticos de control o en sus registros.
