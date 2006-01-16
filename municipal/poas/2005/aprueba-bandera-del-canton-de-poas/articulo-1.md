@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE POÁS
+BANDERA DEL CANTÓN DE POÁS
+La suscrita Secretaria Municipal, Roxana Chinchilla Fallas, hace constar que en la sesión ordinaria Nº 183 celebrada el 15 de noviembre del 2005, el Concejo Municipal de Poás, aprobó la Bandera del cantón de Poás que textualmente dice:
+Se acuerda:
+Acuerdo Nº 2491-11-2005
+Por iniciativa del Comité Cantonal de Deportes y Recreación de Poás, el Concejo Municipal aprueba la Bandera del cantón de Poás, declarada oficial con los colores Gris y Rojo, con el siguiente significado: Color Rojo: color fuerte y llamativo, profundo, llama mucho la atención a los jóvenes, simboliza la sangre que hay en el ciudadano Poaseño, que lleva con orgullo y lo procede una gran herencia de nuestros abuelos, que han luchado por mantener la Paz y fortalecer nuestra Democracia.
+Que ha luchado por obtener el fruto dulce que produce nuestro suelo y las madres que han visto y quieren seguir viendo crecer los niños y los jóvenes saludables, alegres y entusiastas. Color gris: Ceniza del Volcán, que se convierte en el mejor abono de nuestra tierra y eso lo saben nuestros campesinos y después de ahí solo es una comparación científica. Materia Gris, nuestra mente siempre pensante, el esfuerzo de la juventud y la sabiduría de los mayores. El cielo es gris, la señal de agua fuente de vida y la fortaleza de nuestra tierra, bella, fértil, única, llena de flores de increíbles, fragancias y aroma, diversidad de fauna y especialmente de mi gente hospitalaria, humilde, sencilla y de un gran corazón. Otras Especificaciones: Las franjas de la bandera son en forma horizontal y el ancho de cada franja ambas deben ser uniformes, colocadas primer franja de color Rojo, segunda franja el color gris y tercer franja de color Rojo. Publíquese en el Diario Oficial La Gaceta.
+Acuerdo Unánime.
+San Pedro de Poás, 23 de noviembre del 2005.—
