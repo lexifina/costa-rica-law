@@ -1,0 +1,1 @@
+Artículo 54.—La construcción, modificaciones o reparaciones, que no se ajustan a lo establecido por el Reglamento General de Cementerios o el presente Reglamento, serán demolidos por la Junta y sin responsabilidad de su parte.

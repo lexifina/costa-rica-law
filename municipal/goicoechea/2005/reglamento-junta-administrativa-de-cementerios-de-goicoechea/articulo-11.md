@@ -1,0 +1,1 @@
+Artículo 11.—En caso que alguno de los miembros de la Junta renunciare, falleciere o dejare de asistir a las sesiones conforme a lo previsto en el artículo 9º, el Presidente lo comunicará en forma inmediata al Concejo Municipal de Goicoechea, para su reposición, utilizando el sistema previsto para el nombramiento.

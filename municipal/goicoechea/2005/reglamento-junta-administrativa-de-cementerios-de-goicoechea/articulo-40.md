@@ -1,0 +1,1 @@
+Artículo 40.—No es permitido el traslado de restos, entre bóvedas, fosas o mausoleos de propiedad privada, si entre el fallecido y los arrendatarios de una u otra bóveda, fosa o mausoleos, no existieran vínculos hasta el tercer grado de consaguinidad.

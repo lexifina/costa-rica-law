@@ -1,0 +1,1 @@
+Artículo 46.—Para la inhumación en nichos de alquiler no se permitirán cajas de metal, cadáveres embalsamados, ni restos exhumados de los cementerios a cargo de la Junta, ni traídos de otro cementerio.

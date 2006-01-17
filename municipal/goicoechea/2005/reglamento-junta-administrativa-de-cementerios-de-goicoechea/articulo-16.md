@@ -1,0 +1,3 @@
+CAPÍTULO SEXTO
+Artículo 16.—Para ser dueño de un derecho de arrendamiento se requiere ser mayor de edad, vecino del Cantón de Goicoechea. Se requiere no ser adjudicatario de otro u otros derechos de arrendamiento en los Cementerios del Cantón. Asimismo, se debe indicar el domicilio legal o dirección del arrendatario en el respectivo contrato.
+La Junta Administrativa por medio de la administración llevará un registro de cada arrendatario, en donde se indicará el domicilio exacto y otras señas suministradas por el correspondiente arrendatario, las cuales se tendrán como domicilio contractual para todos los efectos legales.

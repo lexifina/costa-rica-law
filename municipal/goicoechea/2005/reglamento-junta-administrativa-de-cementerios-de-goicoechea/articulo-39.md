@@ -1,0 +1,1 @@
+Artículo 39.—En los casos de traslado de restos a otro cementerio, además de los anteriores requisitos se requiere también una constancia de la Junta Administrativa, u organismo encargado del cementerio donde se hará el traslado, en la que se indique que aceptan éstos. Cuando la Junta lo crea conveniente, podrá solicitar más datos a efecto de comprobar la veracidad de los mismos.

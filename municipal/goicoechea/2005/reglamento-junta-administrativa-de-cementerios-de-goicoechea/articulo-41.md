@@ -1,0 +1,1 @@
+Artículo 41.—A partir del momento en que los restos de una persona hayan salido del cementerio, la responsabilidad legal de cualquier tipo por su custodia, será asumida por la persona que realizó la solicitud respectiva. La solicitud.

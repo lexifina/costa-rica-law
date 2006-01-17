@@ -1,0 +1,1 @@
+Artículo 29.—Se prohíbe colocar sobre las bóvedas, fosas o nichos, jarrones, macetas, floreros u otros recipientes, para la colocación de .ores, si éstos no disponen de agujeros adecuados para el apropiado drenaje del agua que pudiere entrar en ellos.

@@ -1,0 +1,1 @@
+Artículo 8º—Los acuerdos de la Junta, se tomarán por mayoría simple de votos. En caso de empate, el asunto se decidirá en la próxima sesión ordinaria. Si la situación persistiere, se dará por desechado.
