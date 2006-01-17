@@ -1,7 +1,2 @@
-CAPÍTULO VII
-Variaciones en las condiciones crediticias
-y períodos de financiación
-Artículo 59.—La Sección de Desembolsos y Control de Crédito y a solicitud expresa del prestatario, recibirá, analizará y resolverá mediante Acuerdo Administrativo, la solicitud de cambio de área, disciplina y énfasis en los diferentes niveles de estudios, si el prestatario cumple los siguientes requisitos:
-a) Que el período de estudios original no se amplíe en más de dos años y no sobrepase el período máximo de estudios financiado por CONAPE.
-b) Que exista justificación de trasladarse a otra entidad educativa o carrera para lograr su proyecto académico.
-Los casos especiales los resolverá el Comité de Crédito.
+Artículo 59.—La Sección de Desembolsos y Control de Crédito, antes de suprimir el préstamo y mediante Acuerdo Administrativo, puede someter al prestatario a una fase de observación académica, durante un ciclo lectivo o mantenerlo durante un máximo de 3 ciclos lectivos adicionales, para que nivele el cronograma de estudios aprobado y reanalizar el caso en el momento oportuno, con el fin de que el prestatario pueda continuar y finalizar los estudios.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 58 al 59 actual del artículo)

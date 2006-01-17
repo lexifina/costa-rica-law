@@ -1,1 +1,2 @@
-Artículo 70.—El presente reglamento puede ser modificado por el Consejo Directivo de CONAPE y deroga el Reglamento General de Crédito aprobado en sesión Nº 45, de fecha 15 de octubre de 1992, publicado en La Gaceta Nº 239, del 14 de diciembre de 1992 y sus reformas.
+Artículo 70.—La actuación del Departamento de Crédito en la aplicación de este Reglamento, en lo que corresponda, se realiza mediante Acuerdo Administrativo firmado por el funcionario autorizado en cada Sección y por el Jefe inmediato.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 69 al 70 actual del artículo)

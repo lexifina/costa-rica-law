@@ -1,1 +1,8 @@
-Artículo 45.—El deudor, fiadores y apoderados legales deben firmar el contrato de crédito para estudios, en un plazo máximo de 60 días naturales, a partir de la fecha de aprobación de la solicitud por el Consejo Directivo. En caso contrario, el prestatario pierde el derecho sobre la utilización del préstamo y sobre la documentación presentada, salvo situación de fuerza mayor debidamente demostrada a satisfacción del Jefe del Departamento de Crédito o a quién éste delegue.
+Artículo 45.—El monto por el que se firma el Contrato de Crédito para Estudios, incluye la suma del principal aprobado más un 50% de ese monto, con el fin de que al momento de dar inicio a la amortización del crédito, se efectúe la liquidación de la deuda, la cual incluye:
+a) Monto de los desembolsos
+b) Intereses sobre saldos desembolsados.
+c) Comisión de crédito.
+d) Cualquier otro cargo de conformidad con el presente reglamento.
+Por medio de la firma del Contrato de Crédito para Estudios, deudor y fiadores autorizan expresamente a CONAPE a efectuar la liquidación mencionada, con el fin de contar con el monto real y definitivo de principal que deberá cancelar.
+En caso de que la liquidación exceda el principal más el 50%, deudor y fiadores deberán suscribir los documentos que solicita CONAPE.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 44 al 45 actual del artículo)

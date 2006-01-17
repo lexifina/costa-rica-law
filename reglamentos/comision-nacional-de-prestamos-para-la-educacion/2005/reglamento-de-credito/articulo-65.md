@@ -1,1 +1,2 @@
-Artículo 65.—La Sección de Desembolsos y Control de Crédito considerará la condición de incumplimiento, cuando el prestatario no cumpla con las obligaciones que establece el Reglamento de Crédito y el Contrato de Crédito para Estudios y trasladará la operación a la fase de cobro con un cargo adicional del 10% sobre el monto desembolsado.
+Artículo 65.—El traslado de la operación crediticia a cobro, lo realiza la Sección de Desembolsos y Control de Crédito, después de que se cumpla la fecha de vencimiento del período de estudios establecida en el Contrato de Crédito para Estudios, de acuerdo con el plan de operaciones por trasladar a cobro.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 64 al 65 actual del artículo)

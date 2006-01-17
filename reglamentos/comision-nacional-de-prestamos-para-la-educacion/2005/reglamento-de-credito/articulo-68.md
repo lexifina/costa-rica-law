@@ -1,1 +1,2 @@
-Artículo 68.—La actuación del Comité de Crédito en la aplicación del Reglamento de Crédito, se realiza mediante acuerdos consignados en el libro de Actas de este Comité, legalizado por la Auditoría Interna.
+Artículo 68.—Toda interpretación de los artículos de este Reglamento de Crédito le corresponde al Consejo Directivo.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 67 al 68 actual del artículo)

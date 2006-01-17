@@ -1,3 +1,3 @@
-GARANTÍA DE TÍTULOS VALORES
-Artículo 41.—CONAPE puede aceptar como garantía de un préstamo, mediante endoso o cesión a su favor títulos valores emitidos por instituciones estatales, bancos estatales, mutuales, el Banco Popular y Desarrollo Comunal y otros bancos, a juicio del Consejo Directivo.
-El monto de los títulos valores ofrecidos en garantía, debe cubrir al menos el 150% del monto del préstamo aprobado.
+Artículo 41.—CONAPE exigirá al solicitante una póliza de incendio y terremoto sobre las edificaciones, cuando el valor del terreno ofrecido en garantía hipotecaria sea menor a los porcentajes que exige CONAPE.
+Dicha póliza deberá cubrir a satisfacción de CONAPE, el inmueble dado en garantía, salvo casos excepcionales que analizará y recomendará el Comité de Crédito, de acuerdo con lo que defina al respecto, el Consejo Directivo de CONAPE.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 40 al 41 actual del artículo)

@@ -1,4 +1,7 @@
-CAPÍTULO VI
-Autorización de desembolsos, seguimiento académico
-y sanciones en la ejecución del préstamo
-Artículo 50.—El préstamo se desembolsará de conformidad con los montos estipulados en el respectivo plan de desembolsos para los ciclos lectivos establecidos en el cronograma de estudios del prestatario.
+Artículo 50.—La firma del Contrato de Crédito para Estudios se realiza en las oficinas centrales de CONAPE. En casos de excepción, el Jefe de la Sección de Desembolsos y Control de Crédito, podrá autorizar de manera escrita que dicha firma se realice externamente, de las siguientes formas:
+a) Ante un abogado que autentique las firmas.
+b) Ante la Delegación de la Fuerza Pública del Ministerio de Seguridad Pública y Gobernación del lugar de residencia del deudor o fiadores.
+c) Ante funcionarios autorizados de instituciones con las que CONAPE tenga un Acuerdo de Cooperación Institucional.
+d) Ante funcionarios de CONAPE.
+e) Cuando las firmas se reciban de acuerdo con los incisos a. y b., se deben agregar los timbres de ley respectivos.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 49 al 50 actual del artículo)

@@ -1,3 +1,13 @@
-Artículo 54.—El prestatario deberá presentar ante la Sección de Desembolsos y Control de Crédito, el informe de calificaciones obtenidas en el ciclo lectivo cursado y el informe de matrícula del siguiente, en la fórmula oficial de CONAPE llamada “Declaración Jurada”, la cual debe ser presentada por el prestatario en un plazo no mayor de 30 días después de la conclusión del ciclo lectivo que cursó.
-El prestatario deberá presentar el informe oficial de calificaciones del período declarado bajo juramento, extendido por la entidad educativa, como requisito para tramitar el próximo desembolso.
-Cuando medie un acuerdo de cooperación institucional con las entidades de educación superior, que regule el proceso de seguimiento académico y desembolsos, el Departamento de Crédito, podrá variar el procedimiento y periodicidad de presentación de los informes académicos de los prestatarios y la autorización de los desembolsos respectivos.
+Artículo 54.—La Sección de Desembolsos y Control de Crédito, resolverá mediante Acuerdo Administrativo las siguientes situaciones crediticias:
+a) Rendimiento académico insatisfactorio
+b) Extensión del período de estudios.
+c) Cambio de entidad educativa.
+d) Cambio de carrera (área, disciplina, énfasis).
+e) Cambio de grado académico.
+f) Aumento o disminución de las asignaturas matriculadas.
+g) Sustitución de fiadores.
+h) Suspensión de estudios.
+i) Modificación de planes de desembolsos.
+j) Cambios en el cronograma de estudios.
+k) Supresión del crédito.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 53 al 54 actual del artículo)

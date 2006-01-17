@@ -1,12 +1,2 @@
-Artículo 53.—La Sección de Desembolsos y Control de Crédito, resolverá mediante Acuerdo Administrativo las siguientes situaciones crediticias:
-a) Rendimiento académico insatisfactorio
-b) Extensión del período de estudios.
-c) Cambio de entidad educativa.
-d) Cambio de carrera (área, disciplina, énfasis).
-e) Cambio de grado académico.
-f) Aumento o disminución de las asignaturas matriculadas.
-g) Sustitución de fiadores.
-h) Suspensión de estudios.
-i) Modificación de planes de desembolsos.
-j) Cambios en el cronograma de estudios.
-k) Supresión del crédito.
+Artículo 53.—Los desembolsos suspendidos por la Sección de Desembolsos y Control de Crédito y los no tramitados por el prestatario, podrán ser autorizados, distribuidos entre los restantes o reprogramados, a solicitud escrita de éste, de acuerdo con el análisis y dictamen resuelto por Acuerdo Administrativo.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 52 al 53 actual del artículo)

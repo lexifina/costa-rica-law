@@ -1,17 +1,18 @@
-Artículo 47.—CONAPE debe vigilar el cumplimiento de las obligaciones del prestatario estipuladas en este reglamento y en el Contrato de Crédito para estudios y puede suprimir el préstamo - dando por vencido el plazo y exigible los saldos adeudados a la fecha - en los siguientes casos:
-a) Cuando se cambie de área, disciplina o énfasis aprobados, grado o de entidad educativa, sin autorización previa del Departamento de Crédito.
-b) Cuando incumpla con el cronograma y período de estudios aprobados.
-c) Cuando se compruebe que ha utilizado el préstamo para financiar otros rubros diferentes al financiamiento de los estudios.
-d) Cuando obtenga un rendimiento académico insatisfactorio.
-e) Cuando no presente los informes académicos en cada ciclo lectivo.
-f) Cuando no actualice la dirección y demás datos de localización de domicilio y lugar de trabajo del deudor y fiadores o deceso, desmejora o desaparición que éstos sufrieren o no mantenga vigentes las pólizas ofrecidas a CONAPE.
-g) Cuando no presente los comprobantes de conclusión de estudios.
-h) Cuando abandone o se retire de los estudios sin causa justificada.
-i) Cuando declare o presente documentación académica u otra información falsa o alterada.
-j) Cuando cierre la entidad educativa o la carrera de estudios que cursa.
-k) Cuando sufra quebrantamiento permanente de la salud física o mental, que le impida continuar con los estudios.
-l) Cuando el prestatario no preste servicios en el país por un período no menor al doble del tiempo financiado con el préstamo.
-m) Cuando el prestatario haya realizado estudios en el exterior y no regrese al país.
-n) Cuando no mantenga vigente las pólizas de seguro que solicite CONAPE sobre edificaciones.
-o) Cuando la operación crediticia se encuentre en la etapa de recuperación y el prestatario no pague puntualmente las cuotas del plan de amortización, la Sección de Cobro procederá a las gestiones de aviso de cobro al deudor y fiadores y al cobro judicial respectivo.
-p) Cuando incumpla cualesquier requisitos y obligaciones establecidos en este Reglamento o en el Contrato de Crédito para Estudios.
+Artículo 47.—El deudor al firmar el Contrato de Crédito para Estudios queda obligado a cumplir con lo siguiente:
+a) Cursar los estudios en el área y disciplina aprobada.
+b) Obtener el grado académico aprobado.
+c) Realizar los estudios de acuerdo con el cronograma y período de estudios aprobados.
+d) Realizar los estudios en la entidad educativa aprobada.
+e) Utilizar el préstamo únicamente para financiar los gastos de estudios autorizados.
+f) Matricular y aprobar las asignaturas del cronograma de estudios aprobado, el cual debe mantener concordancia con el programa oficial de estudios y fecha de conclusión de estudios.
+g) Presentar el informe de calificaciones oficial de las asignaturas matriculadas en el ciclo lectivo anterior, junto con una declaración jurada – como mínimo - que debe incluir las asignaturas matriculadas en el ciclo lectivo que cursa y las que estima matricular en el siguiente ciclo, como requisito para tramitar el siguiente desembolso.
+h) Actualizar -al tramitar el último desembolso- la dirección domiciliar y laboral, números de teléfonos, faxes, apartados postales, dirección electrónica y otros datos suyos y de los fiadores.
+i) Presentar -al vencimiento del Contrato de Crédito para Estudios- la constancia, certificación, fotocopia del título o declaración jurada, de conclusión de estudios, a la Sección de Desembolsos y Control de Crédito.
+j) Prestar servicios en el país por un período no menor al doble del tiempo de estudios financiados con el préstamo, salvo casos de excepción y de interés para el país a juicio del Comité de Crédito.
+k) Regresar a Costa Rica -si el prestatario ha realizado estudios en el exterior- a más tardar treinta días después de finalizado los estudios.
+Presentarse a la Sección de Desembolsos y Control de Crédito o comunicar a ésta misma Sección, cualesquiera circunstancias que le impidan regresar a Costa Rica en ese lapso.
+l) Asegurar el saldo de la deuda más los intereses acumulados sobre desembolsos, en la Póliza Colectiva de Vida del INS, con el fin de protegerse del riesgo de muerte o incapacidad total y permanente, durante la vigencia total del préstamo.
+m) Vigilar por el mantenimiento y conservación de las garantías constituidas a favor de CONAPE e informar a la Sección de Desembolsos y Control de Crédito, cualquier deceso, desmejora o desaparición que éstas sufrieren, con el fin de sustituir la garantía y sobre los cambios de dirección domiciliar y lugar de trabajo de los fiadores.
+n) Presentar por escrito al funcionario autorizado de la Sección de Desembolsos y Control de Crédito, cualquier solicitud de modificación de las obligaciones anteriores.
+o) Cancelar puntualmente las cuotas del plan de pagos en el período de amortización.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 46 al 47 actual del artículo)

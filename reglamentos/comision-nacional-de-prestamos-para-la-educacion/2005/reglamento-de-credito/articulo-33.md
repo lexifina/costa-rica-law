@@ -1,3 +1,3 @@
-Artículo 33.—La sustitución de fiadores en el período de estudios, lo resuelve el funcionario autorizado de la Sección de Desembolsos y Control de Crédito, mediante un Acuerdo Administrativo.
-En toda sustitución de fiador, el nuevo garante debe cumplir con los requisitos exigidos por CONAPE.
-El funcionario autorizado de la Sección de Desembolsos y Control de Crédito analiza, dictamina y recomienda situaciones especiales, elevándolas a conocimiento y resolución del Comité de Crédito.
+Artículo 33.—CONAPE acepta que sólo uno de los fiadores, por operación, presente ingresos provenientes de actividades propias, según certificación de ingresos de los últimos doce meses a la fecha de la solicitud de crédito, extendida por un Contador Público Autorizado.
+El fiador con ingresos propios sólo puede cubrir hasta el 10% del monto aprobado del préstamo - independientemente de sus ingresos - y excepcionalmente, hasta un 15%, a juicio del Comité de Crédito. El Comité de Crédito queda facultado para solicitar la información adicional que considere indispensable.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 32 al 33 actual del artículo)

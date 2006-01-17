@@ -1,1 +1,2 @@
-Artículo 36.—CONAPE podrá aceptar garantías hipotecarias de segundo grado para respaldar un préstamo o una refundición, cuando el valor consignado en el avalúo cubra no menos del 175% del monto aprobado y los grados hipotecarios contraídos estén otorgados a favor de instituciones públicas o instituciones de reconocida trayectoria financiera, a criterio del Comité de Crédito, salvo casos excepcionales a juicio del Consejo Directivo de CONAPE.
+Artículo 36.—Cuando la garantía hipotecaria ofrecida a CONAPE es de primer grado, el valor consignado en el avalúo de la propiedad debe cubrir como mínimo el 150% del monto aprobado.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 35 al 36 actual del artículo)

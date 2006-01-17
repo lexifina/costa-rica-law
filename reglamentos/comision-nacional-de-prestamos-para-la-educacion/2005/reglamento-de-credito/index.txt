@@ -69,6 +69,7 @@ articulo-68.md
 articulo-69.md
 articulo-70.md
 articulo-71.md
+articulo-72.md
 articulo-1-anexo.md
 articulo-2-anexo.md
 articulo-3-anexo.md

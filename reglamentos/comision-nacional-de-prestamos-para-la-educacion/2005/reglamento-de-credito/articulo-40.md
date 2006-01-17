@@ -1,2 +1,2 @@
-Artículo 40.—CONAPE exigirá al solicitante una póliza de incendio y terremoto sobre las edificaciones, cuando el valor del terreno ofrecido en garantía hipotecaria sea menor a los porcentajes que exige CONAPE.
-Dicha póliza deberá cubrir a satisfacción de CONAPE, el inmueble dado en garantía, salvo casos excepcionales que analizará y recomendará el Comité de Crédito, de acuerdo con lo que defina al respecto, el Consejo Directivo de CONAPE.
+Artículo 40.—La solicitud de una sustitución del bien hipotecado por otro inmueble, es resuelta por el Comité de Crédito. El valor de la nueva propiedad ofrecida debe cubrir al menos el 150% del monto aprobado, cuando es de primer grado o de 175% para los otros grados que acepta CONAPE.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 39 al 40 actual del artículo)

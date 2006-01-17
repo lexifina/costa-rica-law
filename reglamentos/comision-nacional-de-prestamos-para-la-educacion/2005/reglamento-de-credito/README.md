@@ -14,3 +14,4 @@ Reglamento de Crédito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-15 | la propia norma |
+| 2 | 2006-01-17 | Reglamento 2 (2006-01-17) |
