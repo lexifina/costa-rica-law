@@ -1,9 +1,13 @@
-Artículo 7º—Naturaleza de la información periódica, divulgación y registro 24. La información requerida en virtud de este Acuerdo será de carácter público con excepción de los siguientes reportes que serán considerados confidenciales:
-a. Reporte de operaciones sospechosas.
-b. Cuadro resumen operaciones únicas y múltiples.
-c. Informes complementarios de auditores externos.
-d. Hoja de consolidación de los estados financieros auditados de las empresas emisoras y sujetos fiscalizados.
-e. Reporte de verificación de la normativa prudencial.
-f. Encaje mínimo legal.
+Artículo 7. Naturaleza de la información periódica, divulgación y registro. La información requerida en virtud de este Acuerdo será de carácter público con excepción de los siguientes reportes que serán considerados confidenciales:
+Reporte de operaciones sospechosas
+Cuadro resumen operaciones únicas y múltiples
+Informes complementarios de auditores externos
+Hoja de consolidación de los estados financieros auditados de las empresas emisoras y sujetos fiscalizados
+Reporte de verificación de la normativa prudencial
+Encaje mínimo legal
+Auxiliar de inversiones propias de puestos de bolsa
+Anexo 36 "Cambios en la Información Inmobiliaria"
+Código del inquilino del Anexo 22 "Reporte de composición de cartera de fondos inmobiliarios"
+Reportes correspondientes a inversiones en títulos internacionales y posiciones abiertas a plazo por parte de los Puestos de Bolsa.
 En consecuencia, con excepción de los reportes indicados, toda la información periódica requerida en virtud de este Acuerdo será incorporada al Registro Nacional de Valores e Intermediarios.
-(24) Artículo reformado por el acuerdo del Superintendente SGV-A-96 el 27 de septiembre del 2004, y vuelto a reformar por el acuerdo del Superintendente SGV-A-101 el 08 de marzo del 2005.
+(Así reformado mediante acuerdo N°114 del 17 de enero del 2006).
