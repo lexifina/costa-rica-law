@@ -1,0 +1,13 @@
+Nº 32860
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001 y su Reglamento, el Decreto Ejecutivo Nº 30058-HMP- PLAN de 19 de diciembre de 2001; la Ley N° 5695, Ley de Creación del Registro Nacional, de 28 de mayo de 1975 y sus reformas y el Decreto Ejecutivo Nº 32270-H de 1º de marzo de 2005 y sus reformas.
+Considerando:
+1º—Que el Registro Nacional, creado mediante la Ley N° 5695 denominada "Ley de Creación del Registro Nacional", publicada en La Gaceta N° 106 de 7 de junio de 1975, es una dependencia del Ministerio de Justicia y Gracia cuya función primordial es registrar en forma eficaz y eficiente los documentos que se presenten al Registro Nacional para su inscripción, así como garantizar y asegurar a los ciudadanos los derechos con respecto a terceros.
+2º—Que es función de la Junta Administrativa del Registro Nacional, ejecutar los programas de mejoras, de acuerdo con las necesidades de las dependencias a su cargo; motivo por el cual requiere efectuar inversiones en los proyectos Unificación de Servidores y Almacenamiento SAN (Storage Área Network); con el fin de fortalecer los sistemas tecnológicos
+de información para garantizar el mejor uso de los servicios que se ofrecen a la ciudadanía.
+3º—Que mediante Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 de marzo de 2005, la Autoridad Presupuestaria formuló las Directrices de Política Presupuestaria del 2006, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Poder Ejecutivo, estableciendo en el artículo 1º del citado decreto, el total de gasto presupuestario del presente año, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+4º—Que mediante el oficio STAP-CIRCULAR-0475-05 de 12 de abril de 2005, se comunicó a la Junta Administrativa del Registro Nacional el gasto presupuestario máximo fijado para el año 2006.
+5º—Que por lo anterior, se hace necesario modificar el gasto máximo presupuestario de la Junta Administrativa del Registro Nacional para el 2006. Por tanto,
+DECRETAN:
+Artículo 1º—Modifícase a la Junta Administrativa del Registro Nacional el gasto presupuestario máximo fijado para el año 2006, según lo dispuesto en el artículo 1° del Decreto Ejecutivo N° 32270-H, publicado en La Gaceta N° 54 de 17 de marzo de 2005, de manera que éste no podrá exceder la suma de ¢7.386.20 millones en ese período.
