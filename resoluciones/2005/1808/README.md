@@ -14,3 +14,4 @@ Donación en Especie a Partido Político
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-17 | la propia norma |
+| 2 | 2006-01-19 | Resolución 241 (2006-01-19) |
