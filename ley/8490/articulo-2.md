@@ -14,3 +14,4 @@ OBJETIVOS DE MEJORA INSTITUCIONALES:
 6.Promoverlacapacitación del personal, conforme a los requerimientos de la integración del Parlamento para el actual período gubernamental.
 Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 49 a La Gaceta N° 253 del 30 de diciembre de 2005.
 (Modificado por el artículo 1° del decreto ejecutivo N° 32859 del 9 de enero del 2006)
+(Modificado por el artículo 1° del decreto ejecutivo N° 32866 del 17 de enero del 2006)
