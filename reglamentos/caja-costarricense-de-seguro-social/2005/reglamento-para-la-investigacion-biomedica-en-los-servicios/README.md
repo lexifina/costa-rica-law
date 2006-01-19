@@ -14,3 +14,4 @@ Reglamento para la investigación biomédica en los servicios asistenciales de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-02 | la propia norma |
+| 2 | 2006-01-19 | Reglamento 8026 (2006-01-19) |
