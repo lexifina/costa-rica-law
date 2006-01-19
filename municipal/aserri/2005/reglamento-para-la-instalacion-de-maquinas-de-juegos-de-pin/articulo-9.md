@@ -1,0 +1,1 @@
+Artículo 9º—El horario estipulado por la Ley de Juegos, para el funcionamiento de este tipo de máquinas, será de lunes a viernes, de las 16:00 a las 22:00 horas y los sábados, domingos y feriados de las 13:00 a las 23:00 horas,

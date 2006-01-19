@@ -1,0 +1,1 @@
+Artículo 5º—El costo de la patente comercial para dicho fin será de ¢8.000,00 mensual, por cada máquina instalada y cada año la Administración adecuará el valor de la patente, teniendo como parámetro el aumento en el costo de la vida.

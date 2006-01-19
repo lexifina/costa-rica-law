@@ -1,0 +1,1 @@
+Artículo 7º—La empresa gestionante realizará un contrato con el propietario del local, mediante el cual adquieren compromisos en forma solidaria, que permitan velar por los derechos de los y las menores de edad. Este documento deberá estar autenticado por un abogado y deberá presentarse una copia ante el Departamento de patentes de la Municipalidad de Aserrí.
