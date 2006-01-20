@@ -14,3 +14,4 @@ Crea la comisión Institucional Marino y Costera del Area de Conservación de Os
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-14 | la propia norma |
+| 2 | 2006-01-20 | Decreto Ejecutivo 32945 (2006-01-20) |

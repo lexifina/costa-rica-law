@@ -28,4 +28,5 @@ g) Municipalidad de Osa.
 h) Municipalidad de Golfito.
 i) Ministerio de Obras Públicas y Transportes, Capitanía de Puerto.
 j) Un representante del Consejo Regional de Biodiversidad del Área de Conservación de Osa (CRACOSA).
-Además de las instituciones señaladas anteriormente, la comisión además estará integrada por tres miembros de organizaciones no gubernamentales, que desarrollan labores en la zona respecto a los recursos marinos costeros. Estas serán designadas con base en el perfil que prepare el coordinador y someta a consideración de la Comisión.
+Además de las instituciones señaladas anteriormente, la comisión además estará integrada por tres miembros de organizaciones no gubernamentales y tres miembros de organizaciones comunales del Área de Conservación Osa, que desarrollan labores en la zona respecto a los recursos marinos costeros. Estas serán designadas con base en el perfil que prepare el coordinador y someta a consideración de la Comisión.
+(Así reformado mediante decreto ejecutivo N°32945 del 20 de enero del 2006).
