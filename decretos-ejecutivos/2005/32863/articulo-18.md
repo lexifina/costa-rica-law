@@ -1,0 +1,1 @@
+Artículo 18.—El Director Ejecutivo será nombrado por el Consejo Directivo y su labor será evaluada anualmente, para lo cual dicho Consejo deberá consultar al Consejo Asesor Consultivo y a los Coordinadores de Áreas Temáticas.

@@ -1,0 +1,3 @@
+CAPÍTULO IX
+De los recursos financieros
+Artículo 21.—Los Recursos financieros para el sostenimiento de la Red, se utilizarán para la ejecución de proyectos y para la administración propia de la Red. Los recursos financieros para la ejecución de proyectos provendrán de varias fuentes: Recursos provenientes de donaciones externas a la Red, por Patrocinadores, ONG´s, Organismos Internacionales o cualquier otra institución nacional o extranjera que así lo deseare; por recursos institucionales de los miembros de la Red presupuestados para la ejecución de proyectos compartidos o no compartidos. Los recursos financieros para la administración de la Red estarán cubiertos por la institución hospedera de la Red o por fondos provenientes de donaciones para dicho fin.

@@ -1,0 +1,1 @@
+Artículo 8º—El Consejo Directivo podrá separar de la Red a aquellos integrantes que incumplan con los deberes previstos en el artículo anterior por seis veces consecutivas durante un período de tres meses. Para dichos efectos deberán seguirse los procedimientos establecidos en la normativa correspondiente.

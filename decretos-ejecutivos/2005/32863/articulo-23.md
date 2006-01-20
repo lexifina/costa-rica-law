@@ -1,0 +1,1 @@
+Artículo 23.—Está conformado por expertos o especialistas en diferentes campos del quehacer de la Red que actúan a título personal o representando instituciones, organizaciones o empresas. Para ser miembro del Consejo Asesor Consultivo no es necesario estar integrado a la Red.

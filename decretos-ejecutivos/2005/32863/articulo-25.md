@@ -1,0 +1,3 @@
+CAPÍTULO XI
+De las áreas temáticas y grupos de trabajo
+Artículo 25.—La Red desarrollará sus actividades, proyectos y programas en áreas temáticas, alrededor de las cuales se conformarán grupos de trabajo. Los grupos de trabajo tendrán un coordinador, designado por el Director Ejecutivo, y serán los encargados de preparar las propuestas, cumplir con sus correspondientes planes de trabajo y preparar los informes de labores correspondientes. Los planes de trabajo de las áreas temáticas deberán estar integrados y debidamente coordinados con los planes operativos de la Red. Para pertenecer a un grupo de trabajo no es necesario estar integrado a la Red. El funcionamiento de las áreas temáticas se regirá por su propio reglamento interno.
