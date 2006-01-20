@@ -1,0 +1,4 @@
+Artículo 37.—Pago de recargo de funciones. El trabajador del Banco que asuma
+temporalmente las funciones de otro trabajador que ocupa una posición o cargo con un salario superior, devengará como adicional la diferencia de su salario base con la del salario base del sustituido durante el tiempo de la sustitución, y los recargos solo podrán efectuarse en la medida en que no afecte la eficiencia del servicio que debe prestarse a los usuarios.
+Queda a discreción del Banco, la facultad de ordenar las sustituciones y recargos que crea convenientes.
+El trabajo de los empleados que se encuentran gozando de vacaciones, así como el de aquellos que no asisten a sus labores por enfermedad, licencia o por cualquier motivo, podrá ser encomendado, a juicio de la jefatura correspondiente, al resto del personal sin remuneración adicional, siempre que sea dentro de la misma jornada de trabajo y, además, compatible con sus fuerzas, aptitudes, estado o condición.

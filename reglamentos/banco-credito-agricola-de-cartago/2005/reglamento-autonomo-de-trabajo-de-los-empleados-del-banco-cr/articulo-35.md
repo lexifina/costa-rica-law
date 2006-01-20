@@ -1,0 +1,1 @@
+Artículo 35.—Pago a practicantes. El Banco podrá reconocer pago por concepto de servicios "no profesionales", a las personas que realizan prácticas técnicas o profesionales, de acuerdo con los contratos de aprendizaje indicados en el artículo 19 del presente Reglamento.

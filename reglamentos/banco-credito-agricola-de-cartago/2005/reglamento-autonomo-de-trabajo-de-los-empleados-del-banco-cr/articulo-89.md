@@ -1,0 +1,1 @@
+Artículo 89.—Denuncia de los hechos. El trabajador que se considere afectado por acoso u hostigamiento sexual, deberá plantear la denuncia respectiva en forma escrita ante la Dirección de Recursos Humanos, quien lo trasladará al Comité, que levantará el acta respectiva consignando las manifestaciones de la persona denunciante.

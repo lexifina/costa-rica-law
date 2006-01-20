@@ -1,0 +1,1 @@
+Artículo 113.—Derogatoria. Se deroga el Reglamento Interior de Trabajo aprobado por la Junta Directiva General en el año 1978, así como cualquier otra norma anterior dictada por la Junta Directiva General, que se le oponga.

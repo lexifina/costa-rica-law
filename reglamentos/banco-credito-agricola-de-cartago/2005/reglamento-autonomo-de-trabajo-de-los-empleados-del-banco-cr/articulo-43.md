@@ -1,0 +1,3 @@
+Artículo 43.—Fraccionamiento de vacaciones. Los trabajadores gozarán sin interrupción del período de vacaciones. Sin embargo, cuando se trata de trabajadores que realizan labores de índole especial, que no permitan una ausencia muy prolongada, éstas podrán dividirse en distintos períodos con la autorización de la Dirección de Recursos Humanos, previa
+justificación del jefe inmediato.
+El Banco podrá establecer vacaciones para todos sus trabajadores o para una parte de estos en épocas especiales, las cuales no se considerarán fraccionamiento para los efectos del artículo 158 del Código de Trabajo.

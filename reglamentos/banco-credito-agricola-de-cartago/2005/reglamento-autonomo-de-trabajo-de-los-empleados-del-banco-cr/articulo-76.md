@@ -1,0 +1,1 @@
+Artículo 76.—Deberes en materia de salud ocupacional. El Banco está obligado a adoptar y poner en práctica en todos los centros de trabajo, las medidas en materia de salud ocupacional, con el .n de que se proteja la salud y se preserve la integridad física, moral y social de sus trabajadores.

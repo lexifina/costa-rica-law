@@ -1,0 +1,3 @@
+Artículo 85.—Comité para la prevención e investigación del hostigamiento sexual. La Gerencia General deberá designar un Comité para la Prevención e Investigación del Hostigamiento Sexual.
+El Comité designado estará adscrito a la Dirección de Recursos Humanos, unidad administrativa encargada de determinar el mérito para el debido proceso, coadyuvando a este último en la atención y análisis de las denuncias por hostigamiento sexual.
+Dicho Comité estará constituido por un representante de la Gerencia, un Abogado de la Dirección Jurídica, un profesional en Psicología de la Dirección de Recursos Humanos y un representante nombrado por el Sindicato UNECA.

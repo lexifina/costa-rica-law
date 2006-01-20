@@ -1,0 +1,2 @@
+Artículo 91.—Investigación del caso. Al acogerse la denuncia, el caso será investigado por el Comité, en un plazo máximo de 10 días hábiles.
+Luego se elevará a conocimiento de la Dirección de Recursos Humanos con las motivaciones necesarias para su instrucción. La Dirección lo remite al Órgano Director respectivo para su instrucción. Este Órgano deberá instruirlo a más tardar en un mes calendario, a partir de su presentación.

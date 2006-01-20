@@ -1,0 +1,2 @@
+Artículo 33.—No tendrán carácter de salario en especie. Las prestaciones o suministros adicionales que en algunos casos otorgue el Banco a sus trabajadores, tales como las que cubran gastos de alojamiento, alimentación, vehículo, uniformes u otros, no tendrán carácter de salario en especie ya que tales gastos se otorgan cuando las necesidades del servicio así lo requieran, lo mismo que las sumas que fueren pagadas por concepto
+de viáticos o gastos de viaje.

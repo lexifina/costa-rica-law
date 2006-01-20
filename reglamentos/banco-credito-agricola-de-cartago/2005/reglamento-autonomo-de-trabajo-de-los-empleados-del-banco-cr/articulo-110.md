@@ -1,0 +1,1 @@
+Artículo 110.—Informe de salida. Los trabajadores indicados en el artículo 99 del presente Reglamento, deberán presentar un informe de su gestión y realizar la entrega formal a su superior jerárquico, de conformidad con lo estipulado en el artículo 12 de la Ley General de Control Interno.

@@ -1,0 +1,1 @@
+Artículo 6º—Clasificación de puestos. El Banco dispondrá de un Manual Descriptivo de Puestos, así como de una escala salarial asociada, debidamente aprobada por la Junta Directiva General que contendrá los requisitos académicos, legales, prácticos, experiencia, conocimientos, y competencias requeridas para el desempeño de cada uno de los puestos.

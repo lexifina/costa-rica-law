@@ -1,0 +1,7 @@
+Artículo 108.—Pago de auxilio de cesantía. En casos excepcionales, a juicio del Gerente General, previa solicitud del trabajador, se podrá pagar el auxilio de cesantía. Este beneficio se calculará, de la siguiente manera:
+a) A razón de un mes de auxilio de cesantía por cada año de servicio, hasta un máximo de 15 años.
+b) Después de 15 años, se reconocerá por cada tres años de servicio un mes adicional, hasta un tope máximo de 20 meses.
+Los trabajadores de nombramiento de Junta Directiva General que son por plazo fijo según la ley y que provengan de carrera bancaria en la Institución, una vez finalizado el período de nombramiento y de no continuar prestando sus servicios al Banco, el pago de la cesantía del tiempo laborado en el Banco se les reconocerá hasta un máximo de 15 años, correspondiente al tiempo desempeñado en otros puestos en la organización, diferentes a puestos de nombramiento a plazo fijo.
+Como excepción a lo dispuesto en los párrafos anteriores del presente artículo, se acuerda:
+En virtud de una reestructuración, alianza, fusión y/o cierre de oficinas que conlleve la supresión de plazas indicadas en el artículo 99 del presente Reglamento, en la cual no se pueda reubicar el personal, el Banco podrá dar por terminado el contrato de trabajo con el pago a título de indemnización de todos los años de servicio en el Banco.
+Dicho cálculo se hará de conformidad con la Ley de Protección al Trabajador y al artículo 29 del Código de Trabajo.

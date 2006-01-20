@@ -1,0 +1,1 @@
+Artículo 41.—Fijación de fecha de disfrute de vacaciones. La jefatura respectiva realizará el plan de vacaciones de los funcionarios a su cargo, en coordinación con cada funcionario, estableciéndose un cronograma durante el año de tal manera que el funcionario disfrute sus vacaciones en distintas épocas del año.

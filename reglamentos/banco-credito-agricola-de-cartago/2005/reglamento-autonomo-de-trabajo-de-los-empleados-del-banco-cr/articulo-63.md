@@ -1,0 +1,1 @@
+Artículo 63.—De la aplicación. Las sanciones contempladas en los artículos que conforman este capítulo, serán aplicadas en coordinación con Recursos Humanos, al tenor de lo dispuesto en el artículo 68 de este Reglamento.

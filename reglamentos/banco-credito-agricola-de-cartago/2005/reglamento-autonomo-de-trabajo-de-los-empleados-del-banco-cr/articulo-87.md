@@ -1,0 +1,1 @@
+Artículo 87.—Prohibición a los miembros del Comité. Los miembros del Comité deberán abstenerse de participar en la investigación de los casos, en que se encuentren directa o indirectamente involucrados con alguna de las partes en cuestión.

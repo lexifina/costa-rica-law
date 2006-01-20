@@ -1,0 +1,1 @@
+Artículo 101.—Exclusión de límites de jornada. Los trabajadores indicados en el artículo 99 del presente Reglamento, estarán excluidos de las limitaciones de la jornada de trabajo, de acuerdo con el artículo 143º del Código de Trabajo.

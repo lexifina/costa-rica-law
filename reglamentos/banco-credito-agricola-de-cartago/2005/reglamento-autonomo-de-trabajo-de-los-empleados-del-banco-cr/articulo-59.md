@@ -1,0 +1,1 @@
+Artículo 59.—Sanciones. Las jefaturas respectivas podrán hacer llamados de atención o amonestaciones por escrito, con motivación debidamente fundamentada, y en los casos en que proceda suspensión o destitución, serán del conocimiento del Órgano Director del Debido Proceso.

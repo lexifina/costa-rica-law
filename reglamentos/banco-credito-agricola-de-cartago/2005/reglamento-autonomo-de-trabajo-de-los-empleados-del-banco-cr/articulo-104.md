@@ -1,0 +1,3 @@
+Artículo 104.—Permiso por enfermedad de familiares directos. Los trabajadores incluidos en el presente sistema, podrán solicitar permiso con goce de sueldo por enfermedad de familiares directos, de acuerdo con las circunstancias del trabajador y según el tiempo que el Banco estime necesario, de conformidad con los atestados que deben presentar a la Dirección de Recursos Humanos, quien recomendará a la Gerencia y/o Junta General, quienes resolverán en definitiva según corresponda.
+Lo anterior con el objeto de que el trabajador pueda atender su situación particular.
+El tiempo que se otorgue, queda a criterio de los niveles resolutivos aquí indicados.

@@ -1,0 +1,1 @@
+Artículo 12.—Responsabilidad por actos no autorizados. El Representante Patronal o cualquier trabajador que ejecute u omita con dolo o culpa grave, tramitar los movimientos de personal de conformidad con lo indicado en el presente Reglamento y en la normativa existente, responderá personalmente por las consecuencias que de ese acto se deriven.

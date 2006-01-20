@@ -1,0 +1,1 @@
+Artículo 88.—Confidencialidad de los hechos. El procedimiento deberá ser llevado a cabo resguardando la imagen de las partes y la confidencialidad de los hechos, so pena de incurrir en falta grave los trabajadores que permitieren o intervinieren una divulgación inapropiada.

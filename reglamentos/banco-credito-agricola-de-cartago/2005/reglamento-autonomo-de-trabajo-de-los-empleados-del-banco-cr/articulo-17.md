@@ -1,0 +1,4 @@
+Artículo 17.—Planteamientos de los trabajadores. Todo trabajador tendrá derecho a presentar quejas, reclamos, solicitudes o peticiones sobre sus condiciones laborales, para lo cual deberá seguir el siguiente procedimiento:
+En primera instancia, deberá presentar por escrito a su jefe inmediato con copia a Recursos Humanos, quien deberá resolver en un plazo de cinco días hábiles.
+En segunda instancia, en caso de que el funcionario en ese lapso no obtenga respuesta o la respuesta obtenida no le satisfaga, podrá acudir a la instancia jerárquica superior inmediata.
+Una vez agotadas las instancias indicadas anteriormente, podrá acudir a la Dirección de Recursos Humanos quien resolverá lo pertinente y si fuera del caso, elevará el asunto a la Gerencia General, la que resolverá en definitiva y tomará las acciones que corresponda con relación a la solicitud del trabajador y las acciones disciplinarias pertinentes, con respecto a los jefes que no hubieren resuelto.

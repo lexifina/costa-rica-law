@@ -1,0 +1,1 @@
+Artículo 81.—Póliza de Seguro por traslado al interior y exterior del país. Cuando el trabajador debiera trasladarse al exterior o interior del país, en funciones propias de su cargo, el Banco lo cubrirá con una póliza de seguros por Riesgos de Trabajo al momento de realizarse el viaje, con el fin de indemnizar al trabajador y a su familia de un eventual accidente.

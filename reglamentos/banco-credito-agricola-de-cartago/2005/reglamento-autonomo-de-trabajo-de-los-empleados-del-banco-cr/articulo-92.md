@@ -1,0 +1,1 @@
+Artículo 92.—Justificación para el inicio del procedimiento. En la realización del proceso de investigación por parte del Comité, se llevarán a cabo actuaciones previas con el objeto de determinar con carácter preliminar, si concurren circunstancias que justifiquen la iniciación del procedimiento.

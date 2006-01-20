@@ -1,0 +1,4 @@
+Artículo 7º—Reclutamiento y selección. Con la finalidad de contratar recurso humano calificado, toda persona que ingrese a trabajar al Banco, deberá haber superado satisfactoriamente el proceso de reclutamiento y selección. El Banco tendrá un Sistema de Reclutamiento y Selección, el cual será administrado por medio de la Dirección de Recursos Humanos.
+El proceso de reclutamiento podrá realizarse en forma externa al Banco.
+El nombramiento de los puestos que corresponde a la Junta Directiva, se regirá de conformidad con lo establecido por la Ley.
+Aquellos funcionarios de carrera administrativa dentro del Banco, que sean ascendidos a puestos con plazo definido determinado por disposición legal, una vez vencido su nombramiento, serán reubicados en un nuevo puesto en propiedad dentro de la organización, si el motivo del cese no obedece a faltas graves que justifiquen la finalización del contrato de trabajo.

@@ -1,0 +1,1 @@
+Artículo 57.—Ausencias por enfermedad. Toda ausencia por enfermedad, deberá ser comprobada mediante dictamen médico emitido por la Caja Costarricense de Seguro Social, el médico de empresa o el Instituto Nacional de Seguros, procediéndose de conformidad con el inciso cc) del artículo 28 del presente Reglamento.

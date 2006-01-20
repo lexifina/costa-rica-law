@@ -1,0 +1,1 @@
+Artículo 32.—Forma de pago. El Banco pagará a sus trabajadores, mediante transferencia a la cuenta de ahorros o cuenta corriente del trabajador en el Banco, el salario en forma semanal los días viernes de cada semana o el día hábil anterior, si aquellos fueran feriados o asuetos.

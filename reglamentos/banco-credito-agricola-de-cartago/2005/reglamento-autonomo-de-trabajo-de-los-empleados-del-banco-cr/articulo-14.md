@@ -1,0 +1,3 @@
+Artículo 14.—Prohibición de ingreso y traslados. Será prohibido contratar personas que tengan familiares hasta el segundo grado de consanguinidad o afinidad, laborando en la Institución.
+Igualmente, será prohibido trasladar a un trabajador cuando ello implique que laborará en la misma dependencia en la que labore un trabajador con el que se encuentre ligado por parentesco en primer o segundo grado de consanguinidad y afinidad o unión de hecho.
+Si en una misma dependencia sobreviniere alguna situación de este tipo, deberá trasladarse a otra dependencia uno de los trabajadores involucrados, a la mejor conveniencia del Banco.

@@ -1,0 +1,1 @@
+Artículo 55.—Fondo de garantías y jubilaciones. Los trabajadores tendrán derecho a los beneficios establecidos en el Reglamento del Fondo de Capitalización Individual de los Empleados del BCAC, en las condiciones y términos dispuestos en la Ley Orgánica del Sistema Bancario Nacional y en el estatuto correspondiente.

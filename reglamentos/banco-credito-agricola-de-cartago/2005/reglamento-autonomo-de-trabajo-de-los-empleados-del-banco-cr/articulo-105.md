@@ -1,0 +1,3 @@
+Artículo 105.—Vacaciones anuales. Los trabajadores de nuevo ingreso y quienes ingresaron al Banco después de abril de 1998, disfrutarán de 15 días hábiles de vacaciones anuales no compensables, por cada cincuenta semanas laboradas.
+Para los trabajadores que a la fecha tengan derecho a más días de vacaciones, se respetarán los derechos adquiridos.
+En caso de terminación del contrato de trabajo o relación laboral, antes de cumplir el trabajador el período de cincuenta semanas, tendrá derecho a la proporción de los días equivalentes a cada mes completo de trabajo, según lo indicará la Dirección de Recursos Humanos, de acuerdo con el período de vacaciones que goza el trabajador.

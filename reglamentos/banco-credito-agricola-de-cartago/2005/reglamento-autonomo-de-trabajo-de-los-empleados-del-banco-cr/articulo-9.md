@@ -1,0 +1,2 @@
+Artículo 9º—Plan de capacitación. Anualmente la Dirección de Recursos Humanos, en coordinación con las unidades administrativas, elaborará un plan de capacitación, el cual contendrá capacitaciones académicas y especificas para el puesto, con el objeto de lograr un eficiente desempeño de los funcionarios en su puesto.
+El Banco desarrollará un Programa de Facilitadores Internos, debidamente capacitados y remunerados, para efectos de brindar cursos, charlas y conferencias al personal.

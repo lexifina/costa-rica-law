@@ -1,0 +1,2 @@
+Artículo 50.—Justificación de registro de asistencia y puntualidad. El trabajador debe justificar conforme a este Reglamento, ante su jefatura inmediata, de manera escrita y satisfactoria, las ausencias y llegadas tardías, a efecto de evitar la imposición de las medidas disciplinarias contenidas en el presente Reglamento.
+La justificación deberá presentarla el trabajador a más tardar, el día hábil siguiente a su reincorporación al trabajo.

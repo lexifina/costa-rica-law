@@ -1,0 +1,1 @@
+Artículo 112.—Conocimiento del Reglamento. El presente Reglamento se presumirá de conocimiento de todos los trabajadores del Banco desde el día de su vigencia y por lo tanto, a partir de esa fecha será de observancia obligatoria para todos los trabajadores, sin perjuicio de los derechos jurídicamente adquiridos.

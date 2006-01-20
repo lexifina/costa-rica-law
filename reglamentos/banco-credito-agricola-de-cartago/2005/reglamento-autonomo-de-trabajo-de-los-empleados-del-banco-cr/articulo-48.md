@@ -1,0 +1,1 @@
+Artículo 48.—Omisión de registro de asistencia. Cuando no exista justificación razonable de la jefatura inmediata, la omisión de un registro de asistencia de entrada y salida, se considerará como ausencia injustificada a la respectiva jornada.

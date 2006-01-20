@@ -1,0 +1,1 @@
+Artículo 78.—Obligación de los trabajadores con respecto a la Ley de Riesgos del Trabajo. Todo trabajador del Banco deberá acatar y cumplir en lo que le sea aplicable, los términos de la Ley sobre Riesgos del Trabajo, su reglamento, los reglamentos de salud ocupacional que se promulguen y las recomendaciones que en esta materia les formulen las autoridades competentes.

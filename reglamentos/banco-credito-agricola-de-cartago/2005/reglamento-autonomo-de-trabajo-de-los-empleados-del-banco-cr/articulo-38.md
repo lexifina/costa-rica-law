@@ -1,0 +1,3 @@
+Artículo 38.—Aguinaldo. Todo trabajador tendrá derecho a recibir adicionalmente en el mes de diciembre de cada año, una doceava parte del total de salarios devengados en los doce meses anteriores al primero de diciembre o tiempo menor que haya laborado.
+Este sueldo adicional anual será depositado en la cuenta corriente o de ahorros del trabajador con el Banco, el primer día hábil del mes de diciembre.
+En el caso de que el trabajador cesare de sus labores por cualquier causa, tendrá derecho a recibir la doceava parte de los salarios ordinarios y extraordinarios devengados en el período acumulado para efecto del aguinaldo.

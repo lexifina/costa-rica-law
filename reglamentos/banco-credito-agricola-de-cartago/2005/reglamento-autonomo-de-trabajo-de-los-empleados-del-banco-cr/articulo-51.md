@@ -1,0 +1,4 @@
+Artículo 51.—Trámite de reporte mensual de registro de asistencia anormal. La Dirección de Recursos Humanos, dentro de los primeros diez días naturales de cada mes, remitirá a cada jefatura un reporte del registro de asistencia de los trabajadores que presenten anomalías.
+La jefatura deberá analizar la situación y comunicar a la Dirección de Recursos Humanos, en un plazo de cinco días hábiles siguientes al recibo del reporte correspondiente, los resultados del análisis sobre los registros de asistencia anómalos. Está comunicación deberá ser firmada por el trabajador y por el jefe.
+La omisión del envío del reporte por parte de la jefatura respectiva, podrá constituirse como falta grave.
+La jefatura inmediata no podrá justificar más de cinco registros anómalos de un mismo funcionario al mes, salvo autorización expresa y previa al reporte del superior respectivo.
