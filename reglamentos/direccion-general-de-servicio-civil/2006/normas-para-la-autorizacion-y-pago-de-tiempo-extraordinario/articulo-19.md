@@ -1,0 +1,1 @@
+Artículo 19.—La Comisión de Recursos Humanos podrá realizar auditorías sobre la aplicación de las autorizaciones emitidas. Sus recomendaciones serán de acatamiento obligatorio, siendo la Administración responsable por la aplicación de las mismas.
