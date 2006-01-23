@@ -1,0 +1,1 @@
+Artículo 4º—El plazo de vigencia del Refugio Nacional de Vida Silvestre Bosque Escondido será por un periodo de diez años prorrogables por periodos iguales, para lo cual los propietarios o arrendatarios deberán solicitarlo con tres meses de antelación a la finalización de dicho periodo.

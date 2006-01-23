@@ -1,0 +1,1 @@
+Artículo 3º—El manejo de la vida silvestre estará sujeto al Plan de Manejo aprobado por el Área de Conservación Tempisque, quien supervisará su ejecución y emitirá disposiciones técnicas y científicas que deberán seguir los propietarios o arrendatarios.
