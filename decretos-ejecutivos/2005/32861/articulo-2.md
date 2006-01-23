@@ -1,0 +1,8 @@
+Artículo 2º—Agrégase un artículo 15 bis al Decreto Ejecutivo Nº 31624-H publicado en el Diario Oficial La Gaceta Nº 27 del 9 de febrero del 2004, que se leerá como se indica a continuación:
+Artículo 15 bis.—De la Unidad de Coordinación del Endeudamiento Institucional. Con el propósito de orientar el financiamiento público a efecto de que se ajuste a la capacidad de endeudamiento del país y responda a prioridades nacionales y criterios técnicos, corresponderá a la Unidad de Coordinación del Endeudamiento Institucional desarrollar las siguientes funciones:
+a) Coordinar con la Unidad de Análisis y Política la elaboración de la propuesta de política de endeudamiento público tanto interno como externo para el mediano y largo plazo, considerando la capacidad de endeudamiento del país.
+b) Evaluar proyectos de préstamo con organismos financieros internacionales y nacionales y preparar la correspondiente recomendación a la Autoridad Presupuestaria sobre la autorización para la contratación de crédito público.
+c) Preparar criterios técnicos y guías metodológicas para la elaboración de las solicitudes de aprobación de proyectos de endeudamiento público.
+d) Apoyar como Secretaría Técnica, el funcionamiento del Consejo Nacional de Financiamiento e Inversiones (CONAFIN), de conformidad con las funciones que al efecto se establezcan en la reglamentación correspondiente.
+e) Apoyar a las instituciones públicas que lo requieran en la formulación de los proyectos de inversión y de financiamiento de dichos proyectos, con instituciones financieras locales y/o internacionales.
+f) Otras funciones que determine la Dirección y la Gerencia de División que correspondan al cumplimiento de sus objetivos”.
