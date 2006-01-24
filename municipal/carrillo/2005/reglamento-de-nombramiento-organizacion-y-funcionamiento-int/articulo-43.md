@@ -1,0 +1,1 @@
+Artículo 43.—El Coordinador de cada Comisión, será el representante y el vocero ante la Junta Directiva del Comité Cantonal y podrá participar en las reuniones ordinarias de esta, cuando por razones del desempeño de sus funciones, sea necesario.

@@ -1,0 +1,1 @@
+Artículo 54.—Las subcomisiones serán juramentadas por la Junta Directiva del Comité Cantonal, y corresponderá a la Comisión de Juegos Deportivos Comunales y Nacionales la supervisión y el apoyo directo a estas, debiendo reunirse con ellas, al menos cada seis meses, seis meses con el objetivo de conocer sus inquietudes y realizar una planificación conjunta del trabajo.

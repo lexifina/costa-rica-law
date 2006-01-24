@@ -1,0 +1,1 @@
+Artículo 71.—Una vez nombrados, juramentados y debidamente instalados los respectivos puestos de la Junta Directiva del Comité Comunal, la Junta Directiva del Comité Cantonal comunicará su conformación e inicio de labores al ICODER y al Concejo Municipal de Carrillo.

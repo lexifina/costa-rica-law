@@ -1,0 +1,1 @@
+Artículo 67.—Para el nombramiento de las Juntas Directivas de los Comités Comunales, la Junta Directiva del Comité Cantonal deberá agotar, en el orden que se encuentran establecidos en el artículo anterior, los procedimientos indicados, pero podrá combinar la utilización de los mismos, cuando las circunstancias lo ameriten.

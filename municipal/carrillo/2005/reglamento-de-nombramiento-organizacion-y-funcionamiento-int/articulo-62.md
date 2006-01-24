@@ -1,0 +1,1 @@
+Artículo 62.—Los comités comunales promoverán, en el plano local, el logro de los objetivos, planes y funciones establecidos por la Junta Directiva del Comité Cantonal a través del presente Reglamento.

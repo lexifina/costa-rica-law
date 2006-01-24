@@ -1,0 +1,1 @@
+Artículo 58.—En el cantón podrán funcionar filiales de asociaciones o federaciones deportivas, las cuales podrán fungir como subcomisión específica de su disciplina deportiva, con las mismas funciones, obligaciones y atribuciones indicadas para las subcomisiones en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 70.—Los miembros de la Junta Directiva de cada Comité Comunal, deberán ser juramentados por la Junta Directiva del Comité Cantonal, en la siguiente sesión inmediata al nombramiento respectivo, el cual se verificará, de ser posible, en la misma comunidad en donde funcionará el Comité Comunal, o bien, en el lugar que la Junta Directiva acordare.

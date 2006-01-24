@@ -1,0 +1,1 @@
+Artículo 35.—La Junta Directiva del Comité podrá incluir en su presupuesto el dinero correspondiente a las partidas que tenga en su cuenta corriente, siempre que las mismas se utilicen para el destino que fueron asignadas.

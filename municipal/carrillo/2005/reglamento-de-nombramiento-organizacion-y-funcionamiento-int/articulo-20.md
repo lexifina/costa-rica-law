@@ -1,0 +1,1 @@
+Artículo 20.—La Junta Directiva del Comité Cantonal se reunirá con carácter ordinario, cada quince días. El Secretario del Comité Cantonal, deberá comunicar por escrito al Concejo, al ICODER, a toda organización o entidad interesada y al público en general, el día y la hora de las sesiones.

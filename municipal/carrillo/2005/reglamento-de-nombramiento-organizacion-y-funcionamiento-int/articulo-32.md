@@ -1,0 +1,1 @@
+Artículo 32.—El miembro de Junta Directiva del Comité que falte a sesiones, deberá justificar su ausencia o solicitud de permiso, mediante nota escrita dirigida a la Secretaría del Comité. Podrá realizar la comunicación o solicitud oral, en aquellos casos en que por fuerza mayor o caso fortuito, tenga que ausentarse o faltar de forma imprevista a una sesión.

@@ -1,0 +1,1 @@
+Artículo 36.—La Junta Directiva del Comité, en coordinación con el Concejo Municipal, de acuerdo con la disponibilidad financiera que tenga la Municipalidad, podrá incluir en su presupuesto anual, las sumas específicas destinadas para la compra de terrenos aptos para la construcción y desarrollo de canchas e instalaciones deportivas y para la recreación.

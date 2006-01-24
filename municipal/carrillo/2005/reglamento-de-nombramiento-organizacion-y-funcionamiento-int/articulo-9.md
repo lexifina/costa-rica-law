@@ -1,0 +1,6 @@
+Artículo 9º—La Junta Directiva del Comité Cantonal de Deportes y Recreación de Carrillo, estará compuesta por cinco miembros, representantes de las siguientes entidades comunales, de la siguiente forma:
+a) Dos representantes de la Municipalidad de Carrillo
+b) Un representante de las asociaciones de desarrollo del Cantón
+c) Dos representantes de los comités y organizaciones deportivas adscritos al Comité Cantonal de Deportes.
+Se entiende que, para los efectos de evitar la injerencia partidista y favorecer la independencia de gestión del Comité Cantonal, los regidores y síndicos, tanto propietarios como suplentes, no podrán formar parte de este.
+Los miembros del Comité Cantonal durarán en sus cargos por un período de dos años y podrán ser reelegidos, debiendo ser electos en la segunda quincena del mes de setiembre. Se entiende que por el desempeño de sus funciones, los miembros del Comité no devengaran dietas ni remuneración alguna, salvo el pago de viáticos que se cancelarán en aquellas actividades que sean de interés para el Comité y siempre y cuando exista disponibilidad presupuestaria para ese efecto.

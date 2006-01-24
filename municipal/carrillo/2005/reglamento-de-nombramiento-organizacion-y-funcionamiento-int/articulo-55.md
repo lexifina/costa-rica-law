@@ -1,0 +1,1 @@
+Artículo 55.—Cada subcomisión específica creada por disciplina deportiva, tendrá la misma vigencia de la Comisión de Juegos Deportivos Comunales y Nacionales. Sus miembros podrán ser reelectos y no devengarán dietas ni remuneración alguna.

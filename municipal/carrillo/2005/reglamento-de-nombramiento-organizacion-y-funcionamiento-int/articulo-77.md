@@ -1,0 +1,1 @@
+Artículo 77.—Los Comités Comunales llevarán sus libros de Actas y Tesorería, con arreglo a los principios que establece el presente Reglamento, las normas o requerimientos comúnmente aceptados y las disposiciones especiales establecidas en la ley.

@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+El presupuesto
+Artículo 34.—La Junta Directiva del Comité Cantonal deberá someterá a conocimiento del Concejo Municipal, en conjunto con el Plan Anual de Trabajo, el presupuesto anual para su respectiva aprobación. La presentación del presupuesto deberá realizarse a más tardar en la primera semana del mes de julio de cada año, a efecto de que las actividades del Comité Cantonal y su presupuesto, puedan ser incluidas en el PAO y el Presupuesto Anual del Municipio. El Comité Cantonal podrá solicitar a la Administración Municipal, por medio de la Alcaldía, la asesoría requerida para la elaboración adecuada del mismo.

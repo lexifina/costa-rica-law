@@ -1,0 +1,1 @@
+Artículo 84.—Las juntas directivas de los Comités Comunales deberán informar una vez al año, mediante la remisión de una lista por escrito a la Junta Directiva del Comité Cantonal, los nombres de los equipos afiliados a ellas.

@@ -1,0 +1,1 @@
+Artículo 37.—La Junta Directiva del Comité fiscalizará el dinero de partidas específicas girados a los comités comunales, subcomités o agrupaciones determinadas, que hubieren solicitado y utilizado, la personería jurídica del Comité para obtenerla.
