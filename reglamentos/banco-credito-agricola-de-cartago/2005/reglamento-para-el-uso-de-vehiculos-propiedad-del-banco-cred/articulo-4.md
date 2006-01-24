@@ -1,0 +1,1 @@
+Artículo 4º—Los vehículos de la Institución solo serán conducidos por personas debidamente autorizadas. Para ello, el área de Transportes establecerá el procedimiento respectivo y le corresponde el control y actualización de los conductores autorizados. La autorización deberá ser otorgada por la Jefatura respectiva y por el área de Transportes.

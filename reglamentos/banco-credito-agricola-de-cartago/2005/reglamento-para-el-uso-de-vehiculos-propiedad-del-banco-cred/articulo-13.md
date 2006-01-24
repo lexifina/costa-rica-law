@@ -1,0 +1,1 @@
+Artículo 13.—Los deberes y responsabilidades de los conductores de vehículos propiedad del Banco, serán las que defina la ley y ninguno podrá oponerse al principio de seguridad y racionalidad en el uso de bienes públicos.

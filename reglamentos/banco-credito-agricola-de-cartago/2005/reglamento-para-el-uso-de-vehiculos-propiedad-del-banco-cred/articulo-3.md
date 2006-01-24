@@ -1,0 +1,1 @@
+Artículo 3º—Todos los vehículos propiedad del Banco Crédito Agrícola de Cartago, deberán portar placa de circulación oficial y estar rotulados en las dos puertas delanteras con el logo oficial aprobado en Comisión Ejecutiva. Se exceptúan de estos requerimientos, los vehículos de uso discrecional y los de seguridad que la Comisión Ejecutiva autorice.
