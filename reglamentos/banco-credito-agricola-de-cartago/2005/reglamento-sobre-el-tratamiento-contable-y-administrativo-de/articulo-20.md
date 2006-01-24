@@ -1,0 +1,1 @@
+Artículo 20.—Los Jefes de Operaciones Bancarias y los encargados de oficina, son los responsables de la gestión de cobro de los faltantes de caja y de la confección del expediente correspondiente, así como de su debida custodia.

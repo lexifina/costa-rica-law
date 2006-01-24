@@ -1,0 +1,1 @@
+Artículo 23.—Este reglamento fue aprobado por la junta directiva General del Banco Crédito Agrícola de Cartago, en sesión N° 7892/2005, artículo 3°, celebrada el 15 de diciembre de 2005, y rige a partir de su publicación en el Diario Oficial La Gaceta.

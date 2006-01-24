@@ -1,0 +1,1 @@
+Artículo 5º—La Dirección de Recursos Humanos incluirá en el presupuesto ordinario de ingresos y gastos del Banco, los montos necesarios para atender lo dispuesto en el artículo 36 de la Convención Colectiva de Trabajo y del presente Reglamento.

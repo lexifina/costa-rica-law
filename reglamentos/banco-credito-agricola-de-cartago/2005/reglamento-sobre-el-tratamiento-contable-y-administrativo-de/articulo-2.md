@@ -1,0 +1,1 @@
+Artículo 2º—La asignación para el tratamiento de las diferencias de caja, son los montos asignados para cada uno de los puestos indicados en el artículo 36 de la Convención Colectiva, para ser aplicados a los faltantes de caja en colones y dólares (al tipo de cambio vigente que presenten en el desarrollo de sus funciones).

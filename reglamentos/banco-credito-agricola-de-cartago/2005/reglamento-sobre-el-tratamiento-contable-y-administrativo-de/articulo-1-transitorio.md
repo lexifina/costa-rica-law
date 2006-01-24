@@ -1,0 +1,1 @@
+Transitorio I.—Conforme las oficinas vayan pasando a formar parte de las oficinas modelo, de acuerdo a la nueva estructura del BCAC, la tesorería estará a cargo del Técnico de Operaciones Bancarias, hasta que se cambie la nomenclatura de Agente Tesorero a Cajero Tesorero (de acuerdo a la recomendación del Comité de Gerencia en sesión N° 23-2005).

@@ -1,0 +1,3 @@
+CAPITULO III
+Principios generales
+Artículo 4º—El Director de Operaciones Bancarias y los Jefes de Operaciones Bancarias de los Centros de Negocios, los Agentes de Puntos Comerciales, los Técnicos de Operaciones Bancarias, los Jefes de Plataforma de Servicios, y cualquier otro puesto que tenga como responsabilidad la supervisión de personal que labora con efectivo y valores, deberán ejercer un estricto control, a efecto de que esta reglamentación sea debidamente observada. El incumplimiento de esa obligación de supervisión, hará acreedor a las sanciones correspondientes previo cumplimiento con el debido proceso.

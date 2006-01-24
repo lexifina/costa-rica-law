@@ -1,0 +1,1 @@
+Transitorio III.—En caso de los funcionarios que durante el año 2005 hayan realizado funciones de cajas y que no estén nombrados en los puestos que indica el artículo 36 de la Convención Colectiva de Trabajo, se les dará la asignación correspondiente en el periodo de diciembre del 2005.

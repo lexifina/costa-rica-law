@@ -1,0 +1,2 @@
+Artículo 12.—Las liquidaciones de las diferencias de caja se efectuarán de acuerdo al artículo 36 de la Convención Colectiva de Trabajo, las cuales se efectuarán a los quince días de los meses de junio y diciembre de cada año respectivamente, y el pago se realizará en la segunda quincena del mes de junio y diciembre, según corresponda.
+El tipo de cambio que regirá al momento de efectuar la liquidación, será el contable.

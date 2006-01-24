@@ -1,0 +1,3 @@
+Artículo 7º—Los faltantes o sobrantes de cajas, superiores a US $10, deberán ser investigados exhaustivamente en un plazo máximo de dos (2) días, dejando la evidencia documentaría de la investigación llevada a cabo, validada por sello y firma del funcionario y del supervisor inmediato.
+Dicha documentación deberá quedar debidamente archivada en el expediente del funcionario, para preservar el derecho del Banco ante posibles reclamos judiciales.
+La documentación y demás información relativa al cierre de cada caja, indistintamente de que exista o no diferencia, debe ser resguardada por el responsable de la dependencia, por espacio no inferior de cinco años, para preservar el derecho del Banco ante posibles reclamos judiciales.
