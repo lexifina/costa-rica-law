@@ -14,3 +14,4 @@ Delegación de Competencias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-18 | la propia norma |
+| 2 | 2006-01-24 | Acuerdo 115 (2006-01-24) |

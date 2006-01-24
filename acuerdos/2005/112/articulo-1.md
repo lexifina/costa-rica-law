@@ -38,13 +38,19 @@ Modificaciones de capital de bolsas de valores.
 Modificaciones de capital de centrales de valores.
 Modificaciones de capital de sociedades de compensación y liquidación.
 Notificación de un nuevo trámite y, por ende, un nuevo cómputo de plazos, en aquellos procesos en los que se incorporan documentos adicionales.
-Apertura, actualización y/o cierre de libros en los trámites de legalización de libros de actas de fondos de inversión, fondos de pensión y calificadoras de riesgo.
-Circulares sobre fechas de actualización de prospectos.
 Consultas relacionadas con requisitos o trámites de oferta pública.
+Informes de observaciones y resoluciones de aprobación de aumentos de capital de sociedades administradoras de fondos de inversión y de emisores (para casos derivados de capitalización de cuentas patrimoniales)
+(Así adicionado el punto anterior por acuerdo SGV-115 del 24 de enero del 2006)
+Inscripción de emisiones del Ministerio de Hacienda y del Banco Central de Costa Rica.
+(Así adicionado el punto anterior por acuerdo SGV-115 del 24 de enero del 2006)
+Inscripción de emisiones de gobiernos extranjeros registrados para mercado secundario.
+(Así adicionado el punto anterior por acuerdo SGV-115 del 24 de enero del 2006)
 Al Director(a) de la División de Supervisión de Mercados e Intermediarios:
 Comunicación de las visitas de rutina y especiales a los regulados.
 Respuesta a las solicitudes de prórroga para inicio de visita de inspección y presentación de respuesta del informe, y para la remisión de información y de comunicados de hechos relevantes.
 Consultas relacionadas con la supervisión de mercados e intermediarios.
+Incumplimientos de normativa prudencial.
+(Así adicionado el punto anterior por acuerdo SGV-115 del 24 de enero del 2006)
 Al Director(a) de la División de Supervisión de Fondos de Inversión y Emisores:
 Comunicación de las visitas de rutina y especiales a los regulados.
 Respuesta a las solicitudes de prórroga para inicio de visita de inspección y presentación de respuesta del informe, y para la remisión de información y de comunicados de hechos relevantes.
@@ -53,6 +59,8 @@ Resultados de las revisiones de las valoraciones periciales y financieras de inm
 Remisión de documentos a las instancias que se requieran para dar cumplimiento a la Ley de Psicotrópicos.
 Requerimientos de información a las entidades reguladas remitidas por los juzgados.
 Remitir a los juzgados las respuestas de las entidades reguladas a sus solicitudes de información.
+Incumplimiento de normativa prudencial.
+(Así adicionado el punto anterior por acuerdo SGV-115 del 24 de enero del 2006)
 Al Director(a) del Departamento de Informática:
 Especificaciones técnicas a la Proveeduría del Banco Central de Costa Rica para los carteles de adquisición de bienes o servicios relacionados con tecnología de la información.
 Solicitudes de aclaraciones respecto a la información consignada en ofertas de los proveedores para la adquisición de bienes o servicios relacionados con tecnología de la información.
@@ -71,6 +79,12 @@ Acuse recibo de las consultas que recibe la Institución.
 Respuestas a consultas que no requieran de un criterio legal o de interpretación de la normativa.
 Control de entrega de la información periódica por parte de los regulados.
 Remisión a las Superintendencias de solicitudes de inscripción en el Registro de Auditores Elegibles por parte de auditores independientes y despachos de auditores.
+Apertura, actualización y/o cierre de libros en los trámites de legalización de libros de actas de fondos de inversión, fondos de pensión y calificadoras de riesgo.
+(Así adicionado el punto anterior por acuerdo SGV-115 del 24 de enero del 2006)
+Circulares sobre fechas de actualización de prospectos.
+(Así adicionado el punto anterior por acuerdo SGV-115 del 24 de enero del 2006)
+Correcciones en la información asentada en el registro Nacional de Valores e Intermediarios (RNVI)
+(Así adicionado el punto anterior por acuerdo SGV-115 del 24 de enero del 2006)
 Al Jefe(a) del Área Administrativa:
 Gestión de cobros periódicos a los regulados por concepto de financiamiento al presupuesto de la Institución.
 Reintegro y liquidación de la caja chica de la SUGEVAL.
