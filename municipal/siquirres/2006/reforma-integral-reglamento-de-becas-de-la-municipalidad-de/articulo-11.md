@@ -1,0 +1,1 @@
+Artículo XI.—Los interesados deberán retirar la solicitud en la Oficina de la Secretaría del Concejo Municipal, entre la segunda y tercera semana de enero de cada año y se recibirán hasta la segunda semana de febrero de cada año.

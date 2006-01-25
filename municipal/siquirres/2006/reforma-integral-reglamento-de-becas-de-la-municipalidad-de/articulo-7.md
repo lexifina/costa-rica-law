@@ -1,0 +1,1 @@
+Artículo VII.—El estudiante becado no podrá disfrutar de doble beca de la Municipalidad u otra institución. Esta información la recavará la Comisión de Becas con la institución en coordinación con el Director.
