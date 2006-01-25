@@ -1,0 +1,1 @@
+Artículo 8º—Comité de Reservas. El Comité de Reservas otorgará el reconocimiento de “institución que normalmente se dedica a efectuar operaciones internacionales” siempre que cumplan con los requisitos establecidos en esta normativa. Adicionalmente, se informará a la Junta Directiva cada trimestre sobre el listado de entidades reconocidas.
