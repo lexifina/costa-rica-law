@@ -1,0 +1,1 @@
+Transitorio: El nombramiento del Presidente, Secretario y el Fiscal que se elija en la presente Asamblea regirán en sus puestos a partir del día de hoy y hasta el tercer sábado de enero 2008, y el nombramiento del Tesorero y los tres Vocales actualmente en ejercicio se prorrogará hasta el tercer sábado de enero de 2007
