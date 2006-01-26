@@ -1,0 +1,6 @@
+COLEGIO DE CONTADORES PRIVADOS DE COSTA RICA
+REGLAMENTO DE CREACIÓN DEL FONDO
+DE CONSEJOS REGIONALES,
+Por acuerdo de la asamblea general extraordinaria de Colegiados Nº 116-2005, celebrada el 11 de diciembre de 2005 y según propuesta presentada por la Junta Directiva, se acuerda la publicación de la modificación de los artículos Nº 3 y 7 del Reglamento de Creación del Fondo de Consejos Regionales, en relación con el cambio de fecha para la convocatoria de la Asamblea General Extraordinaria de informes y elección de miembros del consejo de administración del Fondo de Consejos Regionales (FOCORE) quedando la redacción de la siguiente forma:
+Artículo 3º—Su administración corresponderá a un Consejo de Administración, cuyos deberes y derechos y obligaciones detallará el presente Reglamento, el cual será electo en la Asamblea General Extraordinaria de Colegiados, el tercer domingo de enero de cada año.
+Artículo 7º—Los miembros del Consejo de Administración del FOCORE ejercerán sus funciones por dos años, a partir de la fecha de su nombramiento, podrán ser reelectos y se renovarán de la siguiente manera: el Secretario, el primero y segundo Vocal en año impar. El Presidente y el Tesorero en año par.
