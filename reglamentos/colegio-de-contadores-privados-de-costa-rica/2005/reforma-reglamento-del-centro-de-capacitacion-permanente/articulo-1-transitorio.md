@@ -1,0 +1,1 @@
+Transitorio: El nombramiento del Secretario el 2do. Vocal, y el Fiscal que se elijan en la presente Asamblea regirán en sus puestos a partir del día de hoy y hasta tercer domingo de enero de 2008. El Presidente, el Tesorero y el Primer Vocal cuyo nombramiento esta vigente a la fecha se prorrogará hasta el tercer domingo de enero de 2007.
