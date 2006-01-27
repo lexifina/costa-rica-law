@@ -1,0 +1,3 @@
+2. Disposiciones Transitorias.
+I. Lo dispuesto en el inciso a) del artículo 106, reformado, entrará a regir a partir del día tres de abril de dos mil seis.
+II. Toda disminución de plazos para la entrega o traslado de recursos, de conformidad con el artículo 106, reformado, de este Reglamento, entrará a regir a partir del día dos de mayo de dos mil seis. Se exceptúa de lo anterior lo dispuesto en el inciso c), numeral 1), del artículo 106, respecto al traslado del 50% de los aportes del Fondo de Capitalización Laboral al Régimen Obligatorio de Pensiones que entrará a regir, junto con las restantes reformas, a partir de su publicación.
