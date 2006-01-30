@@ -1,0 +1,1 @@
+Artículo 11.—A partir del octavo año el Ministerio del Ambiente y Energía aplicará un incremento a los valores del canon total en cada uno de los usos, calculado con base en la inflación acumulada del año anterior, conforme los datos del Banco Central y regirá a partir del mes de enero de cada año siguiente.

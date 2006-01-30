@@ -1,0 +1,1 @@
+Artículo 7º—El caso del uso de agua para el riego de los cultivos de arroz, caña de azúcar, pastos y café por tratarse de cultivos extensivos tradicionales, expuestos a condiciones especiales de mercado, deberán reconocer un monto de 0.12 colones por metro cúbico anual de agua para agua superficial en concesión y 0,16 colones por metro cúbico de agua subterránea en concesión.

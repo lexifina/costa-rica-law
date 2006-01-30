@@ -1,0 +1,1 @@
+Artículo 18.—El Departamento de Aguas en coordinación con el Órgano Asesor de Aguas, deberá establecer las prioridades de nuevas estaciones hidrológicas y meteorológicas, así como áreas de investigación en materia de agua subterráneas y superficiales, que se requieran para garantizar los datos para una gestión eficiente del recurso hídrico.

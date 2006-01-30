@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del control y política de inversión
+Artículo 12.—Al Ministro del Ambiente y Energía le corresponde velar por el buen uso de los recursos, asegurando el cumplimiento de los fines del presente Decreto. Le corresponderá al Órgano Asesor creado mediante el Decreto 26635-MINAE, proponer las políticas y someterlas a la aprobación por parte del Ministro Rector, con relación a las prioridades de los gastos de los recursos provenientes del canon, velando por que la inversión se realice con fines de una gestión integrada del recurso hídrico y en consonancia con los artículos 13,14 y 15 siguientes. Todos los acuerdos de este Órgano, serán consignados en un libro de actas abierto para tal efecto.

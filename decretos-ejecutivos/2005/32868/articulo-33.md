@@ -1,0 +1,1 @@
+Artículo 33.—Se adiciona un inciso i) al artículo 5 del Decreto 26635-MINAE publicado en La Gaceta Nº 22 del lunes 2 de febrero de 1998, para que se lea de la siguiente manera " i) un representante de la Cámara Nacional de Agricultura y Agroindustria".

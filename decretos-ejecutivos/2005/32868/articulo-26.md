@@ -1,0 +1,1 @@
+Artículo 26.—El reglamento con el detalle de buenas prácticas para el uso eficiente del agua, del régimen de incentivos, el registro y los requisitos de las auditorías, deberán publicarse en el Diario Oficial La Gaceta, en un plazo máximo de seis meses después de la entrada en vigencia de este Decreto.

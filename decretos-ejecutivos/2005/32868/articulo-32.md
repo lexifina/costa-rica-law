@@ -1,0 +1,1 @@
+Artículo 32.—El MINAE deberá mantener constante monitoreo acerca de la implementación del canon con el fin de que se pueda identificar y realizar los ajustes que se consideren procedentes que permita la sostenibilidad del canon, para lo cual en el plazo de tres años de la vigencia del presente derecho deberá realizar su evaluación.

@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Disposiciones generales
+Artículo 28.—En el caso de la Empresa de Servicios Públicos de Heredia S. A. (ESPH S. A.) para lo referente al uso poblacional en concesión y en vista que actualmente ha incorporado el servicio ambiental de protección del recurso hídrico en la tarifa de servicio, cancelará al Departamento de Aguas solo lo correspondiente al valor por el derecho de uso del agua equivalente a 0,73 colones por metro cúbico anual en aguas superficiales y 0,81 colones por metro cúbico anual de agua subterránea. La ESPH S. A. deberá ajustarse a lo que el MINAE disponga en cuanto a la normalización por el Pago del Servicio Ambiental por concepto del servicio de protección del recurso hídrico.
