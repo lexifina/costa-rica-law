@@ -1,0 +1,2 @@
+Artículo 23.—Modificaciones a la relación contractual. Es potestad de INCOFER, a través de su Consejo Directivo ejercer el derecho de modificar unilateralmente el Contrato de Concierto.
+Cuando el INCOFER en el legítimo ejercicio de sus potestades y atribuciones acuerde modificaciones que afecten el equilibrio financiero del contrato, deberá compensar al concertista, de manera que se restablezcan las condiciones consideradas al momento de suscripción del contrato.

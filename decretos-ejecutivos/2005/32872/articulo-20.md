@@ -1,0 +1,4 @@
+Artículo 20.—Plazo del contrato de concierto. El plazo del contrato de concierto, será aquel que resulte necesario para que el concertista pueda recuperar la inversión realizada, mediante el cobro de la tarifa contractual promovedora del concierto, que se encuentre autorizada por la Autoridad Reguladora de los Servicios Públicos.
+El plazo de recuperación empezará a correr una vez que estén construidas las obras y el INCOFER haya emitido la correspondiente declaratoria de puesta en operación.
+A los efectos correspondientes, el plazo de recuperación de la inversión se establecerá en el contrato respectivo, de acuerdo con las estipulaciones de este Reglamento, y en ningún caso será superior a veinte años.
+El concertista deberá entregar a la Administración las obras y demás infraestructura necesaria para brindar el servicio, en condiciones adecuadas de conservación, operación y mantenimiento.

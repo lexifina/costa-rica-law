@@ -1,0 +1,1 @@
+Artículo 21.—Rescate de la obra. La Administración tendrá la facultad para rescatar la obra objeto del contrato de concierto en cualquier momento, cuando por razones de interés público así se determine, pagando al concertista únicamente la suma que reste para la recuperación total de la inversión, todo ello con apego al debido proceso.

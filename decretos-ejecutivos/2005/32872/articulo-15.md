@@ -1,0 +1,1 @@
+Artículo 15.—Condiciones de mantenimiento de las obras construidas por el concertista. Cuando así se pacte expresamente entre las partes, el mantenimiento de las obras construidas mediante el contrato de concierto correrán por cuenta del concertista, que deberá ajustarse a las condiciones técnicas y normas de calidad establecidas por INCOFER.

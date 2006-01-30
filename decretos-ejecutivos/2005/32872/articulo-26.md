@@ -1,0 +1,1 @@
+Artículo 26.—Recomendaciones del concertista. El concertista tendrá el derecho a presentar recomendaciones, tanto de carácter general como específico a la Administración, con el propósito de fijar mecanismos, principios y cambios necesarios a fin de mejorar la calidad del servicio prestado a los usuarios.

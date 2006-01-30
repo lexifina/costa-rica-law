@@ -1,0 +1,1 @@
+Artículo 8º—Obligaciones de la empresa concertista. La empresa concertista estará obligada al cumplimiento de lo expresamente pactado en el respectivo contrato de concierto, así como todo aquello que sea consecuencia de la propia naturaleza de las obras y servicios contratados, según la buena fe, el uso y la ley.
