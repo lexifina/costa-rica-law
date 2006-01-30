@@ -14,3 +14,4 @@ Reglamento de Gastos de Alimentación del Comité Cantonal de Deportes y Recreac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-05 | la propia norma |
+| 2 | 2006-01-30 | Reglamento 4 (2006-01-30) |

@@ -1,1 +1,1 @@
-Artículo 3º—Los gastos de alimentación de la Junta Directiva incluyen a sus cinco miembros, al Director Ejecutivo, la Secretaria, el o los Asesores Legales e invitados en casos excepcionales, donde su permanencia contemple la mayor parte de la sesión de Junta Directiva.
+Artículo 3º—Los gastos de alimentación de Junta Directiva y las Comisiones incluyen al Director Ejecutivo, la secretaria, el o los asesores legales y los invitados en casos excepcionales, donde su permanencia contemple la mayor parte de la sesión de Junta Directiva o Comisión.

@@ -1,1 +1,2 @@
-Artículo 6º—El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 6º—El presente reglamento rige a partir de su aprobación por parte de la Junta Directiva del Comité Cantonal de Deportes y Recreación de San José. Publíquese.
+El presente Reglamento fue aprobado por la Junta Directiva del Comité Cantonal de Deportes y Recreación de San José en la Sesión Extraordinaria Nº 09-2005, del 31 de octubre de 2005 y modificado mediante Sesión Extraordinaria Nº 04-2006, del 30 de enero de 2006, con el propósito de regular y controlar los gastos por concepto de alimentación para la presidencia y la Junta Directiva de la Institución.
