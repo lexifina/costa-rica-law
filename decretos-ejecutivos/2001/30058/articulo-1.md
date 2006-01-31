@@ -1,5 +1,6 @@
-DECRETOS
+(Derogado)
 Nº 30058-H-MP-PLAN
+(Así Derogado por el artículo 153 (actual 154) del decreto ejecutivo N° 32988 del 31 de enero del 2006)
 EL PRESIDENTE DE LA REPÚBLICA, Y LOS MINISTROS DE HACIENDA, DE LA PRESIDENCIA
 Y DE PLANIFICACIÓN NACIONAL
 En ejercicio de las facultades que les confiere los incisos 3) y 18) del artículo 140 de la Constitución Política y el artículo 129 de la Ley de la Administración Financiera y Presupuestos Públicos, Nº 8131 del 18 de setiembre del 2001.

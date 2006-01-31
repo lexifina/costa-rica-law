@@ -21,3 +21,4 @@ Reglamento de la Ley de Administración Financiera de la República y Presupuest
 | 6 | 2004-08-13 | Decreto Ejecutivo 31975 (2004-08-13) |
 | 7 | 2004-08-13 | SINALEVI (sin norma nombrada) |
 | 8 | 2005-11-09 | Decreto Ejecutivo 32815 (2005-11-09) |
+| 9 | 2006-01-31 | Decreto Ejecutivo 32988 (2006-01-31) |
