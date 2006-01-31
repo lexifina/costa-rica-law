@@ -1,0 +1,1 @@
+Artículo 4.—Vigencia. Rige a partir del 31 de enero del 2006. Consulte el sitio Web de la SUGEVAL (www.sugeval.fi.cr) en su Sección de "Marco Jurídico/Acuerdos del Superintendente/Acuerdos Vigentes/General", para acceder al texto del acuerdo original con todas sus reformas"
