@@ -1,0 +1,8 @@
+EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA
+SOCIEDAD ANÓNIMA
+La Junta Directiva de la Empresa de Servicios Públicos de Heredia, Sociedad Anónima (ESPH S. A.) en sesión Nº 2726, celebrada el día 19 de diciembre del 2005, artículo III, inciso 9º, aprobó la modificación al artículo 103 del Reglamento Autónomo de Servicios de la ESPH S. A., que dice así:
+Acuerdo JD 394-2005
+1) Modificar el artículo Nº 103 del Reglamento Autónomo de Servicios de la Empresa de Servicios Públicos de Heredia S. A., para que se lea así:
+Artículo 103.—A solicitud del interesado y previa consulta al coordinador o coordinadora respectiva, los Coordinadores de Dirección pueden otorgar al servidor permiso sin goce de salario hasta por un mes, la Gerencia y Contralor lo puede otorgar hasta por doce meses y hasta por veinticuatro meses, la Junta Directiva. Cuando se trate de funcionarios que sean llamados para desempeñar altos puestos públicos, sea de representación popular (Síndico, Munícipe o Diputado), de nombramiento exclusivo del Presidente de la República o Consejo de Gobierno (Ministros, Presidentes Ejecutivos, Gerentes, Subgerentes, Directores, Gobernadores, Oficiales Mayores, Embajadores y Cónsules) o los nombrados por el Consejo Municipal (Alcaldes), la Junta Directiva podrá concederles permiso sin goce de salario por el tiempo que dure el nombramiento
+en el nuevo cargo.
+También podrá concederse permiso sin goce de salario a aquellos funcionarios que disfruten de becas o pasantías para estudios ya sea a nivel Nacional o Internacional por el tiempo que éste dure, siempre y cuando sea de interés institucional.
