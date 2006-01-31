@@ -1,0 +1,1 @@
+Artículo 5º—En lo no previsto expresamente en el presente y en cuanto al funcionamiento de la Comisión Sustituta, como órgano colegiado, rige supletoriamente lo dispuesto en esta materia, en la Ley General de la Administración Pública.
