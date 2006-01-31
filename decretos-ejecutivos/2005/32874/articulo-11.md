@@ -1,0 +1,1 @@
+Artículo 11.—Autorización de recursos. En atención a la solicitud del superior jerárquico de la institución interesada, el Tesorero Nacional autorizará la asignación de los recursos para el Fondo Fijo-Caja Chica, considerando las necesidades de la Institución y la disponibilidad de recursos del Tesoro Público.

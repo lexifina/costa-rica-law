@@ -1,0 +1,1 @@
+Artículo 44.—Derogatoria. Deróguese el Decreto Ejecutivo Nº 28338-H del 23 de noviembre de 1999 publicado en La Gaceta Nº 4 del jueves 6 de enero del 2000, sus reformas y cualquier otra disposición que se le oponga.

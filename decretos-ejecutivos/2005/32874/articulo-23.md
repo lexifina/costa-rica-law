@@ -1,0 +1,1 @@
+Artículo 23.—Liquidación pendiente. No se autorizará un anticipo de dinero a un funcionario que tenga una liquidación previa pendiente, debiendo en tal caso el responsable del fondo fijo-caja chica solicitar al funcionario la presentación de la liquidación pendiente. El incumplimiento de esta disposición hará incurrir en lo dispuesto en el artículo 37 de este Reglamento.

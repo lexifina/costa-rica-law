@@ -1,0 +1,5 @@
+Artículo 14.—Ampliaciones temporales o permanentes. Los jerarcas institucionales podrán solicitar formalmente a la Tesorería Nacional ampliaciones temporales para el Fondo Fijo-Caja Chica, con el fin de atender situaciones sumamente especiales por razones de conveniencia, oportunidad e interés público para lo cual deberán ajustarse a lo siguiente:
+a) Solicitud de ampliación del Fondo Fijo-Caja Chica, temporales o permanentes, adjuntando la composición del fondo o el estado actual de los recursos autorizados al cierre del último semestre, el saldo en la cuenta corriente al último día del mes anterior, además del flujo de efectivo de los últimos tres meses.
+b) Indicar en la solicitud la fecha en que se depositará el monto de la ampliación temporal en el Fondo General del Gobierno.
+c) Acatar las disposiciones que por medio de lineamientos emita la Tesorería Nacional.
+d) Reintegrar el monto de la ampliación temporal al Fondo General del Gobierno en la fecha acordada, utilizando los mecanismos que para tal efecto defina la Tesorería Nacional.

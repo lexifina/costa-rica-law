@@ -1,0 +1,4 @@
+Artículo 7º—Responsable. El responsable del Fondo Fijo-Caja Chica de cada institución, que en lo sucesivo en este Reglamento se le denominará como “el Responsable”, será el Jefe de la Unidad Financiera o en quien se delegue el cumplimiento de las funciones atinentes a dicho cargo. El máximo Jerarca de la institución comunicará a la Tesorería Nacional el nombre y el número de cédula de la persona que desempeña el cargo de Jefe de la Unidad Financiera o de quien ejecute estas funciones.
+Compete al Responsable de la administración del Fondo, el ejercicio de las siguientes funciones:
+1) Controlar, comprar, pagar y solicitar la apertura de cajas auxiliares cuando éstas correspondan, al amparo de lo dispuesto en el artículo 12 del presente Reglamento, etc.
+2) Crear y mantener actualizado el registro de firmas autorizadas para operar la cuenta corriente correspondiente.
