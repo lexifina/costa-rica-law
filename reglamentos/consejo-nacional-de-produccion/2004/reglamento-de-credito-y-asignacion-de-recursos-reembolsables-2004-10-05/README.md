@@ -14,3 +14,4 @@ Reglamento de Crédito y Asignación de Recursos Reembolsables y no Reembolsable
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-28 | la propia norma |
+| 2 | 2006-02-01 | Reglamento 2623 (2006-02-01) |
