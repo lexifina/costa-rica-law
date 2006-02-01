@@ -1,0 +1,1 @@
+Artículo 22.—Derecho de indemnización. Cualquier efecto lesivo derivado de instrucciones dadas por el cliente afiliado o sus autorizados, serán asumidas por este, quien deberá indemnizar al Banco ante cualquier reclamo, obligación o indemnización que tuviere que asumir a causa de daños provocados a terceros por actuar bajo sus instrucciones.

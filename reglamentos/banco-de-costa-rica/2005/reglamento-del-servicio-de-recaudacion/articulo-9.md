@@ -1,0 +1,1 @@
+Artículo 9º—Comprobante de cancelación. Cuando los pagos se realicen en cajas, el BCR entregará a la persona que lo efectúe como comprobante de cancelación, un voucher que incluirá la información que así quede pactada en el contrato de recaudación y en el documento denominado Reglas de Negocio.

@@ -1,0 +1,1 @@
+Artículo 10.—De la fecha de vencimiento de las facturas. La fecha de vencimiento de la factura no será un impedimento para que el Banco, pueda recaudar el pago aun después de la fecha en ella indicada. El cliente afiliado deberá en estos casos, validar en su sistema automático la fecha de pago incluyendo el recargo en la próxima factura, si este corresponde.

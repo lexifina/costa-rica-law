@@ -1,0 +1,1 @@
+Artículo 5º—Recaudación fuera del territorio nacional. Para brindar el servicio de recaudación fuera del territorio de la República de Costa Rica, el recaudador deberá contar con autorización previa escrita del cliente afiliado, servicio que será brindado siempre y cuando se cuente con los medios que le permitan llevar a cabo esta actividad.

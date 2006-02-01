@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El objeto del presente Reglamento es regular el servicio de recaudación de modo que permita al BCR la recaudación de los pagos correspondientes a los servicios que presta el cliente afiliado, conforme se establezca en el respectivo contrato y de conformidad con las condiciones acordadas y denominadas Reglas del Negocio.
