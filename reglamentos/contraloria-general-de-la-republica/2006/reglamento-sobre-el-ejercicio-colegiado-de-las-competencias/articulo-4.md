@@ -1,0 +1,1 @@
+Artículo 4°—Registro de las votaciones. Los colegios indicados en los artículos anteriores llevarán un libro de registro de sus votaciones, debidamente foliado. La razón de apertura y la de cierre de los libros de registro estarán a cargo de la Contralora General.

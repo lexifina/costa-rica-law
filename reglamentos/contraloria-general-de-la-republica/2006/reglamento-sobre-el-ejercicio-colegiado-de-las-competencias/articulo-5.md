@@ -1,0 +1,1 @@
+Artículo 5°—Forma de las resoluciones. Se aplicarán en lo conducente las disposiciones del Código Procesal Civil. En cada División las resoluciones tendrán una numeración continua y consecutiva, agregando solamente al final las dos últimas cifras del año en curso.
