@@ -1,0 +1,1 @@
+Artículo 2°—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución N° DGT 18-05 de 4 de octubre del 2005, publicada en La Gaceta N° 200 de 18 de octubre del 2005.
