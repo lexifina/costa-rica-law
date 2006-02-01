@@ -1,0 +1,2 @@
+Disposiciones Transitorias
+Transitorio I.—El presente Reglamento se pondrá en vigencia a partir de su publicación, para lo cual la Contralora General y los respectivos Gerentes de División podrán reorganizar la ubicación del personal a cargo y trasladarlo a aquellas divisiones, áreas y unidades que lo requieran de conformidad con las prioridades institucionales y el mejoramiento de la fiscalización superior de la Hacienda Pública.
