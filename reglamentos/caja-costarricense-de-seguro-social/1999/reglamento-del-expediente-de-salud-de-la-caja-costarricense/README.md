@@ -14,3 +14,4 @@ Reglamento del Expediente de Salud de la Caja Costarricense del Seguro Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-09-29 | la propia norma |
+| 2 | 2006-02-02 | Reglamento 8029 (2006-02-02) |
