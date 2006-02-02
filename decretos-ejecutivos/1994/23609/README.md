@@ -15,3 +15,4 @@ Crea y Regula Fideicomiso del Impuesto Bananero (US $ 0,02)
 | --- | --- | --- |
 | 1 | 1994-09-12 | la propia norma |
 | 2 | 1998-01-08 | Decreto Ejecutivo 26819 (1998-01-08) |
+| 3 | 2006-02-02 | Decreto Ejecutivo 32925 (2006-02-02) |
