@@ -1,2 +1,0 @@
-Artículo 14.—Cuando un puesto sea revalorado o reasignado a una categoría superior, el derecho del trabajador a percibir la diferencia, nacerá una vez aprobada por la Contraloría General de la República la asignación presupuestaria necesaria la cual será recomendada por la Gerencia General y autorizada por la Junta Directiva Nacional.
-En este caso no habrá un criterio de derecho acumulado, sino que éste se adquiere y paga a partir del momento mismo en que el Ente Contralor lo apruebe.

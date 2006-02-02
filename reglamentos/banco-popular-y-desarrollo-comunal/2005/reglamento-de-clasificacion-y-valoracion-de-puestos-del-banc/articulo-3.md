@@ -1,1 +1,0 @@
-Artículo 3º—El Proceso de Desarrollo Humano es responsable de la administración de la Clasificación y Valoración de Puestos y tendrá la competencia para analizar y recomendar a la Gerencia General la implantación de mejoras técnicas que contribuyan a la eficiencia y eficacia del sistema.

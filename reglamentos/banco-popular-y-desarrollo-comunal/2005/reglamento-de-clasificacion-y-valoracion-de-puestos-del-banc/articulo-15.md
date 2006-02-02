@@ -1,2 +1,0 @@
-Artículo 15.—Los estudios individuales de asignación, reclasificación, reasignación y revaloración de puestos serán realizados únicamente por el Proceso de Desarrollo Humano quien recomendará a la Gerencia General los cambios, y ésta resolverá.
-En el caso del personal de la Auditoría, el estudio deberá contarse con la autorización del Auditor Interno, en cuyo caso el Proceso de Desarrollo Humano remitirá el expediente y sus atestados a la Auditoría y posteriormente lo elevará a la Gerencia General para su resolución.

@@ -1,1 +1,0 @@
-Artículo 7º—La reasignación de un puesto procederá únicamente cuando ocurran variaciones sustanciales y permanentes en los deberes y responsabilidades de un puesto y signifiquen un cambio de clase, aún cuando no necesariamente un cambio de categoría.
