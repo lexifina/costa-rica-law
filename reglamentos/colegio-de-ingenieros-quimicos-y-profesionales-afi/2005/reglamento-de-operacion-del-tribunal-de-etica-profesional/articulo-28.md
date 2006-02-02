@@ -1,0 +1,1 @@
+Artículo 28.—Recursos contra las resoluciones. Los recursos serán ordinarios o extraordinarios. Serán ordinarios el de revocatoria y el de apelación. Será extraordinario el de revisión. El recurso de revocatoria será resuelto por el mismo Tribunal. Los recursos de apelación o de revisión serán de conocimiento de la Junta Directiva del Colegio.

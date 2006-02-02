@@ -1,0 +1,1 @@
+Artículo 7º—Convocatoria. Una vez conocida la queja o denuncia por el Tribunal, éste deberá proceder a intimar a la parte denunciada, indicándole de la manera más clara posible cuáles son los cargos en su contra y la prueba a ese momento existente en el expediente disciplinario.

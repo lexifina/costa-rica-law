@@ -1,0 +1,1 @@
+Artículo 4º—Integración del Tribunal: La Asamblea General Ordinaria nombrará al Tribunal que estará integrado por cinco miembros propietarios y dos suplentes, quienes permanecerán dos años en sus funciones y podrán ser reelegidos.

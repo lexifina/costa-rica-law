@@ -1,0 +1,1 @@
+Artículo 14.—Fondo de la Queja. El Tribunal se informará muy bien del fondo de la queja o denuncia contra el miembro, para lo cual dará lectura a todos los documentos relacionados con el asunto y se enteraran en detalle de los hechos y pruebas relacionadas con la queja o denuncia.

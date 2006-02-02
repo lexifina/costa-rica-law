@@ -1,0 +1,1 @@
+Artículo 30.—Plazos para interponer recursos. Los recursos ordinarios deberán interponerse dentro del término de tres días, salvo que se trate del acto de intimación en cuyo caso deberá hacerse dentro del término de veinticuatro horas.

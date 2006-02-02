@@ -1,0 +1,1 @@
+Artículo 20.—Ausencias. La ausencia injustificada de la parte, no impedirá que la comparecencia se lleve a cabo, pero no valdrá como aceptación por ella de los hechos. El Tribunal evacuará la prueba previamente ofrecida por la parte ausente, si ello es posible.

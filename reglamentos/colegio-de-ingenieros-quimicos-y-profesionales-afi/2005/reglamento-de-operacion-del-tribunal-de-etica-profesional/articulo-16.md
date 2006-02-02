@@ -1,0 +1,2 @@
+Artículo 16.—Comparecencia Oral y Privada. El procedimiento disciplinario se tramitará mediante una comparecencia oral y privada, ante el Tribunal, en la cual se admitirá y recibirá toda la prueba y alegatos de las partes que fueren pertinentes.
+Se convocará a otra comparecencia, únicamente cuando haya sido imposible en la primera dejar listo el expediente para su decisión final, y las diligencias pendientes así lo requieran.

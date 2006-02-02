@@ -1,0 +1,1 @@
+Artículo 27.—Derecho a recurrir contra las resoluciones. Las partes podrán recurrir contra resoluciones de mero trámite, o incidentales o finales, en los términos y condiciones que lo establece la Ley General de la Administración Pública.

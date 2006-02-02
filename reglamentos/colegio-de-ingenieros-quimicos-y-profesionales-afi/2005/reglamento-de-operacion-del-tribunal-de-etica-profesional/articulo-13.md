@@ -1,0 +1,2 @@
+Artículo 13.—Actas. El Secretario del Tribunal será el encargado de redactar las actas de las sesiones, debiendo ser foliadas en orden consecutivo y firmadas tanto por el Presidente como por el Secretario.
+El Tribunal llevará aparte un expediente administrativo por cada caso sometido a su conocimiento, al cual se incorporaran todos los documentos presentados por las partes, así como el auto de intimación y resolución final.

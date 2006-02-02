@@ -1,0 +1,1 @@
+Artículo 18.—Grabación de comparecencias. Las comparecencias podrán ser grabadas. Cuando lo fueren, el acta respectiva podrá ser levantada posteriormente con la sola firma del Presidente y del Secretario del Tribunal, pero en todo caso deberá serlo antes de la decisión final. Se conservará la grabación hasta la conclusión del expediente.
