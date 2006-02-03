@@ -14,3 +14,4 @@ Reglamento de operación del Centro Nacional de Abastecimiento y Distribución d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-25 | la propia norma |
+| 2 | 2006-02-03 | Reglamento 0 (2006-02-03) |
