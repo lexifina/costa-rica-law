@@ -1,0 +1,1 @@
+Artículo 8º—Los miembros del Colegio de Químicos considerarán como reservados y por tanto sujetos al secreto profesional, los datos técnicos, financieros o de cualquiera otra índole, definidos como confidenciales, conocidos en virtud de sus relaciones presentes o anteriores con sus clientes, empleadores o comitentes.

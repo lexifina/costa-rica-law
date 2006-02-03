@@ -1,0 +1,1 @@
+Artículo 10.—Los miembros del Colegio de Químicos no podrán aceptar de proveedores de materiales o servicios, en perjuicio del bien público, de sus clientes, comitentes o empleadores, comisiones, descuentos, bonificaciones u otras prebendas similares.

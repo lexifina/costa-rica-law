@@ -1,0 +1,1 @@
+Artículo 5º—NOTA DEL SINALEVI: En la publicación de este reglamento, no aparece el artículo 5°. No obstante, el sistema exige una numeración consecutiva, por lo que se ha creado el mismo pero sin texto.

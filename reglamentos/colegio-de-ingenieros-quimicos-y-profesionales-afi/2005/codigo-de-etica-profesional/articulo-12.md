@@ -1,0 +1,1 @@
+Artículo 12.—Es obligación de los miembros del Colegio de Químicos en el ejercicio de la profesión, acatar las leyes de la República y en especial la Ley General de Salud y sus Reglamentos, poniendo énfasis en salvaguardar el ambiente y la salud, sometiéndose a las reglas sanitarias establecidas o que el buen juicio y conocimiento científico indiquen como óptimas.
