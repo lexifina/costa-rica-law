@@ -14,3 +14,4 @@ Reglamento de Operación de la Red Frigorífica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-04-13 | la propia norma |
+| 2 | 2006-02-03 | Reglamento 0 (2006-02-03) |
