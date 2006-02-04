@@ -1,0 +1,1 @@
+Artículo 2º—El presente reglamento se aplica a todos los productos farmacéuticos multiorigen e innovadores de origen alterno que requieran probar su equivalencia terapéutica con base en los criterios de riesgo sanitario expresados en el listado priorizado que será publicado para tal efecto.

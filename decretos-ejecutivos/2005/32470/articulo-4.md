@@ -1,0 +1,25 @@
+Artículo 4º—Para efecto de este reglamento se adoptan las siguientes definiciones:
+1) Autoridad sanitaria: Entidad facultada legalmente que tiene la responsabilidad de regular sobre la calidad, seguridad y eficacia de los medicamentos en cada país. Esto incluye la revisión de los estudios, la revisión de las conclusiones de los estudios, la definición de qué laboratorios pueden hacer estudios de bioequivalencia y la realización de inspecciones y auditorías.
+2) Bioequivalencia: Relación entre dos productos farmacéuticos que son equivalentes farmacéuticos y cuya biodisponibilidad en términos de tasa y grado, después de ser administrados a la misma dosis molar, bajo las mismas condiciones, son similares a tal grado, que sus efectos serían esencialmente los mismos.
+3) Buenas prácticas clínicas: Normativa que debe regir para el diseño, dirección, realización, cumplimiento, monitoreo, auditoría, registro, análisis e información de ensayos clínicos que asegura que los datos y resultados obtenidos son correctos y confiables y que se protegen los derechos, la integridad y confidencialidad de los sujetos del ensayo.
+4) Buenas prácticas de laboratorio (BPL): Conjunto de reglas, procedimientos operativos que participa en el estudio de bioequivalencia sean reproducibles, íntegros y de calidad.
+5) Centro de investigación: Entidad privada o pública acreditada por la autoridad competente en el país de origen y reconocida por el Ministerio, para realizar estudios de bioequivalencia.
+6) Equivalencia terapéutica: Condición que se da entre dos productos farmacéuticos cuando son equivalentes farmacéuticos y después de la administración en la misma dosis molar, sus efectos con respecto a la eficacia y la seguridad, serán esencialmente los mismos, cuando es administrado a los pacientes por la misma vía y bajo las condiciones especificadas en el etiquetado.
+7) Equivalente farmacéutico: Medicamento que contiene cantidades idénticas de los mismos principios activos del producto al que es equivalente, en idéntica forma farmacéutica, cumple con estándares similares o comparables y es administrado por la misma vía, pero no necesariamente tiene los mismos excipientes ni el mismo proceso de fabricación.
+8) Equivalente terapéutico: Equivalente farmacéutico que debe producir los mismos efectos clínicos y poseer el mismo perfil de seguridad que el producto al que es equivalente, cuando se administra según las condiciones especificadas en su rotulación.
+9) Listado priorizado: Documento emitido por el Ministerio en el que, siguiendo criterios de riesgo sanitario, se clasifican los productos a los cuales se les aplicarán las disposiciones contenidas en el presente reglamento.
+10) Medicamento o producto farmacéutico: Toda sustancia de origen natural, sintético o semisintético, y toda mezcla de esas sustancias o productos que se utilizan para el diagnóstico, prevención, tratamiento y alivio de las enfermedades, síntomas o estados físicos anormales, así como para restablecer o modificar funciones orgánicas en las personas o animales.
+11) Ministerio: Ministerio de Salud de Costa Rica.
+12) OMS: Organización Mundial de la Salud.
+13) País de origen: Es el país donde se fabrica el producto. En el caso de fabricación por terceros o entre filiales puede ser también en el país donde se localiza el dueño o representante de la comercialización del producto.
+14) Perfil de disolución: Curva que caracteriza al proceso de disolución cuando se representa gráficamente la cantidad o porcentaje del medicamento disuelto contra el tiempo.
+15) Producto, producto farmacéutico o medicamento intercambiable:
+Es aquél producto que es terapéuticamente equivalente al producto de referencia y que puede ser intercambiado en la práctica clínica.
+16) Producto de referencia: Es el producto farmacéutico definido como tal por el Ministerio y con el cual el medicamento de prueba pretende demostrar ser terapéuticamente equivalente.
+17) Producto de riesgo sanitario: Es aquel producto farmacéutico que cumple uno o más de los criterios de riesgo sanitario definidos por el Ministerio.
+18) Producto farmacéutico o medicamento innovador: Es aquel producto farmacéutico que se autorizó primero para su comercialización, en el primer país de origen, sobre la base de su documentación de eficacia, seguridad y calidad.
+19) Producto innovador de origen alterno: Es aquel producto innovador que no es fabricado en el primer país de origen.
+20) Producto líder del mercado: Es el producto que ha demostrado calidad, seguridad y eficacia y que a su vez es el más ampliamente utilizado en Costa Rica.
+21) Producto farmacéutico multiorigen: Es aquel equivalente farmacéutico que puede ser o no un equivalente terapéutico.
+22) Reglamento: Reglamento para el registro sanitario de los medicamentos que requieren demostrar equivalencia terapéutica.
+23) Riesgo sanitario: es la estimación de la probabilidad de que un producto farmacéutico represente un peligro para la salud desde el punto de vista de su bioequivalencia, contemplando criterios epidemiológicos, clínicos, farmacocinéticos, fisicoquímicos y asociados con su forma farmacéutica.

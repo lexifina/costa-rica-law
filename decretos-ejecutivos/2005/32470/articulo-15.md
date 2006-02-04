@@ -1,0 +1,1 @@
+Artículo 15.—En caso de que el producto de referencia nacional deje de ser comercializado en el país, el Ministerio podrá elegir un nuevo producto de referencia entre aquellos productos equivalentes terapéuticos al mismo, siguiendo el mismo orden de prioridad del artículo anterior.

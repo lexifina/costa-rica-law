@@ -1,0 +1,1 @@
+Artículo 3º—Todo producto farmacéutico multiorigen o innovador de origen alterno que se encuentre incluido en el listado priorizado, debe presentar para su registro sanitario o renovación, además de los requisitos exigidos en la regulación vigente, los requisitos establecidos en el presente reglamento.

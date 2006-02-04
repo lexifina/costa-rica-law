@@ -1,0 +1,1 @@
+Artículo 11.—Sólo los productos que hayan demostrado su equivalencia terapéutica siguiendo lo dispuesto en el presente reglamento podrán denotar su carácter de equivalentes terapéuticos en el etiquetado.

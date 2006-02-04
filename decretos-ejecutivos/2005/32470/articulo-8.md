@@ -1,0 +1,6 @@
+Artículo 8º—Para el registro sanitario por primera vez o la renovación de los medicamentos multiorigen o innovadores de origen alterno que requieran demostrar la equivalencia terapéutica, se requiere el cumplimiento de las siguientes condiciones:
+1) El producto propuesto debe ser un equivalente farmacéutico del producto de referencia.
+2) Debe cumplir con los requerimientos de las Buenas Prácticas de Manufactura según lo establecido en la reglamentación costarricense o en la normativa de la OMS que tenga el mismo nivel de exigencia. Para ello debe presentarse un documento emitido por la autoridad sanitaria del país de origen del (los) fabricante (s) del producto propuesto, que indique tal condición.
+3) Debe demostrar su bioequivalencia in vivo e in vitro con respecto al producto de referencia, presentando la documentación descrita en el capítulo III del presente Reglamento y según lo establecido en el listado priorizado y la Guía de cambios post-registro.
+4) Las indicaciones de uso del producto propuesto deben haber sido aprobadas previamente para el producto de referencia.
+5) La información de seguridad incluida en el etiquetado debe ser acorde y exhaustiva con respecto a la del producto de referencia.
