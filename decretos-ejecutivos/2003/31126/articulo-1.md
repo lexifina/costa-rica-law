@@ -18,7 +18,8 @@ d) Fanny Levin Vargas, representante de la Ministra de Salud.
 (Así reformado el inciso d) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
 e) Alejandra Aguilar Schramm, representante del Ministro de Comercio Exterior.
 (Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
-f) Señor Carlos Hernández Porras, representante de la Asociación Mesa Nacional Campesina.
+f) Rafael Salazar Murillo, representante de la Asociación Mesa Nacional Campesina.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32993 del 6 de febrero del 2006)
 g) Señor Reynaldo González Segura, representante de la Asociación Mesa Nacional Indígena.
 h) Ana Rita Vásquez Arias, representante del Instituto Costarricense de Pesca y Acuicultura.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32819 del 22 de noviembre de 2005)
@@ -36,7 +37,8 @@ c) Señor Carlos Cordero Morales, representante del Ministro de Agricultura y Ga
 d) Señor Jorge Mena Arce, representante del Ministro de Salud.
 e) Natalia Hernández Ramírez, representante del Ministro de Comercio Exterior.
 (Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
-f) Señor Rafael Salazar Murillo, representante de la Asociación Mesa Nacional Campesina.
+f) Félix Díaz Rivera, representante de la Asociación Mesa Nacional Campesina.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32993 del 6 de febrero del 2006)
 g) Señor Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
 h) Berny Marín Alpízar, representante del Instituto Costarricense de Pesca y Acuicultura.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32819 del 22 de noviembre de 2005)

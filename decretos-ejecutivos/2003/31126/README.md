@@ -18,3 +18,4 @@ Integra la Comisión Nacional para la Gestión de la Biodiversidad
 | 3 | 2004-08-09 | Decreto Ejecutivo 32047 (2004-08-09) |
 | 4 | 2005-11-04 | Decreto Ejecutivo 32803 (2005-11-04) |
 | 5 | 2005-11-22 | Decreto Ejecutivo 32819 (2005-11-22) |
+| 6 | 2006-02-06 | Decreto Ejecutivo 32993 (2006-02-06) |
