@@ -1,0 +1,1 @@
+Artículo 18.—La decisión en el sentido antes apuntado, deberá adoptarla el funcionario del área comercial que cuente con las suficientes atribuciones según la naturaleza y cuantía del asunto, y con arreglo a la normativa que regula tales facultades.

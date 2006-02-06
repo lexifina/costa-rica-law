@@ -1,0 +1,1 @@
+Artículo 39.—Una vez resuelto el recurso de apelación el expediente deberá ser devuelto a la Contraloría de Servicios para que lleve a cabo la notificación y se cumpla con el respectivo archivo y custodia.

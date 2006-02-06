@@ -1,0 +1,1 @@
+Artículo 3º—La decisión que como acto final resolverá el reclamo en correspondencia con el monto y la naturaleza de la reclamación, deberá ser emitida exclusivamente y según el marco de sus atribuciones, por el Director de División, Gerente de División o Gerente Regional, a cuyo cargo estuviera el área u oficina donde ocurrieron los hechos.

@@ -1,0 +1,1 @@
+Artículo 11.—Todos los demás defectos subsanables podrán ser corregidos en el plazo que concederá la oficina receptora del reclamo el cual no podrá ser mayor de diez días hábiles. Igualmente se procederá cuando falten documentos necesarios.

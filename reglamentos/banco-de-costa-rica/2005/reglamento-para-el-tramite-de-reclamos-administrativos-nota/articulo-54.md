@@ -1,0 +1,1 @@
+Artículo 54.—Este Reglamento sustituye y deja sin efecto alguno las Disposiciones Administrativas para el Trámite de Reclamos Administrativos DISP-DJ-32-03-05, documento elaborado por la Gerencia de Contraloría de Servicios y la División Jurídica con fecha 12 de julio del 2002 y aprobado por el Comité Operaciones en sesión C.OP. 08-03, artículo XI, del 19 de noviembre del 2003.

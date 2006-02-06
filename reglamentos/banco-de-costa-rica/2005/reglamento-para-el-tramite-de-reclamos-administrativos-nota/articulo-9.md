@@ -1,0 +1,1 @@
+Artículo 9º—La interposición del reclamo será válida sin autenticaciones aunque no la presente la parte, salvo facultad de que goza el Banco de exigir la verificación de la autenticidad por los medios que estime pertinentes.

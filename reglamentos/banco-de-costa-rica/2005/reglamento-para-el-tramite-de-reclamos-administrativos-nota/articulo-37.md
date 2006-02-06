@@ -1,0 +1,1 @@
+Artículo 37.—Con motivo de la resolución del Recurso de Apelación y para los efectos de lo dispuesto en el artículo 356.1 de la Ley General de la Administración Pública, si no existe un criterio jurídico previo, deberá solicitarse el pronunciamiento de la División Jurídica.

@@ -1,0 +1,1 @@
+Artículo 27.—En casos sumamente complejos o de difícil esclarecimiento, el órgano Director del Procedimiento, mediante resolución fundada podrá prorrogar el plazo por una sola vez y por un lapso de hasta treinta días adicionales, debiendo comunicarlo al reclamante.

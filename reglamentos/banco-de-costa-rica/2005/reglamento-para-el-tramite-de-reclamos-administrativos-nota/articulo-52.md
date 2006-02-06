@@ -1,0 +1,1 @@
+Artículo 52.—Cuando la oficina que incumplió haya finalizado el trámite administrativo con el cliente, deberá informar mediante nota, los alcances de la respuesta a la Contraloría de Servicios, y ésta los adjuntará al expediente para cerrar el caso.

@@ -1,0 +1,1 @@
+Artículo 24.—Cuando la Gerencia de Investigaciones fuere requerida a intervenir deberá darle trámite expedito contando con un máximo de un mes para emitir su informe, de modo que se pueda disponer de tiempo suficiente para emitir resolución; los dictámenes y análisis técnicos que se requieran deberán ser rendidos dentro del mismo plazo.

@@ -1,0 +1,1 @@
+Artículo 26.—El reclamo deberá ser atendido y el acto final deberá ser comunicado al cliente de conformidad con lo estipulado en el artículo 261 de la Ley General de la Administración Pública, dentro de un plazo no mayor de dos meses contados a partir de su presentación, y en su caso de la subsanación de los defectos que tuviere.

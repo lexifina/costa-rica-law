@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Disposiciones finales
+Artículo 53.—Al finalizar cada año, la Contraloría de Servicios rendirá a la Gerencia General un informe estadístico que indique la cantidad de los reclamos tramitados, la naturaleza y objeto de cada reclamación, un detalle de los reclamos resueltos con aplicación de criterios de oportunidad y conveniencia bajo evaluación comercial; de los que fueron acogidos y el impacto patrimonial que eso ocasionó, de los rechazados con especial indicación de cuales de éstos últimos generaron ulteriores procesos ordinarios en vía jurisdiccional.
+Este informe deberá ser evaluado dentro de los ocho días iniciales de cada año en forma conjunta por la Contraloría de Servicios y la División Jurídica con el propósito de rendir las recomendaciones que se consideren pertinentes, y adoptar para el siguiente período las prevenciones necesarias para contener o minimizar el consecuente Riesgo Legal.

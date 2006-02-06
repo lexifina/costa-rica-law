@@ -1,0 +1,1 @@
+Artículo 12.—Si la interposición se hace en forma verbal, deberá documentarse a través de un formulario que deberá llenar el reclamante o trascribiendo las manifestaciones directas de éste en un acta que cumpla todas las formalidades antes indicadas.

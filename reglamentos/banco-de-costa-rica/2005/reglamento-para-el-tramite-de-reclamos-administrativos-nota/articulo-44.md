@@ -1,0 +1,1 @@
+Artículo 44.—Previo a la cancelación o acreditación de los montos reconocidos a favor del cliente, se firmará con éste un documento en dónde se haga constar la voluntad de ambas partes de dejar resuelta toda diferencia presente y futura fundada en los mismos hechos, y la renuncia a interponer cualquier otra acción motivada en la misma causa.

@@ -1,0 +1,1 @@
+Artículo 30.—El expediente debe estar completo, contener el informe de investigaciones (cuando éste se considere indispensable), los elementos y documentos que justifiquen los fundamentos en que se basa la decisión, entre ellos cualquier consulta Jurídica.

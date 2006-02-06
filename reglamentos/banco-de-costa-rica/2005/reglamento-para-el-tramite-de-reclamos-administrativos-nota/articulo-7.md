@@ -1,0 +1,1 @@
+Artículo 7º—La ausencia de los requisitos indicados en los numerales b) y c) obligará al rechazo y archivo de la reclamación, salvo que los datos se puedan inferir claramente del escrito o de los documentos anexos.

@@ -1,0 +1,1 @@
+Artículo 49.—La oficina involucrada, dentro del término de cinco días deberá preparar una respuesta para el cliente, término dentro del cual deberá llevar a cabo la recolección de la información que fuere necesaria al efecto.
