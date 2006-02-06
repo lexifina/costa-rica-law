@@ -1,0 +1,1 @@
+Artículo 2º—Encargado de procedimientos. El funcionario encargado de la Sección de Servicios Generales establecerá los procedimientos a seguir para el uso y control de todo el servicio telefónico en la Institución, así como establecer los mecanismos de control.

@@ -1,0 +1,2 @@
+Artículo 3º—Supervisión de cumplimiento. La Sección de Servicios Generales se encargará de velar por el cumplimiento del presente Reglamento.
+La Sección de Servicios Generales llevará un registro actualizado de la cantidad de extensiones otorgadas, así como de los teléfonos de uso institucional asignados a la Imprenta Nacional. En este registro se consignará el número de la línea asignada, los datos relativos al aparato telefónico, marca, serie, modelo, patrimonio, precio de mercado, estado y cualquier otro dato que se estime pertinente.

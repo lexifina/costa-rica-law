@@ -1,0 +1,1 @@
+Artículo 13.—El Órgano Director del Procedimiento. La tramitación del procedimiento, estará a cargo del Departamento de Asesoría Jurídica de la Institución en condición de Órgano Director, conforme a la Ley General de la Administración Pública.

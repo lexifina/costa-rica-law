@@ -1,0 +1,1 @@
+Artículo 5º—De la solicitud y asignación de los aparatos telefónicos. La asignación de una extensión o línea directa deberá ser autorizada expresamente por la Dirección, y será realizada por la Sección de Servicios Generales según el puesto y las funciones que desempeñe el usuario.
