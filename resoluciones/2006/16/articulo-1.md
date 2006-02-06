@@ -1,0 +1,17 @@
+DIRECCIÓN GENERAL DE ADUANAS
+RES-DGA-016.—Dirección General de Aduanas.—San José, a las diecisiete horas con veinticinco minutos del veinticinco de enero del dos mil seis.
+Considerando:
+I.—Que de acuerdo con el artículo 20 del CAUCA, el depositario aduanero es el auxiliar de la función pública responsable ante el Servicio Aduanero, por la custodia y conservación temporal de las mercancías, bajo el control y supervisión de la autoridad aduanera.
+II.—Que el Manual de Procedimientos Aduaneros, publicado en el Diario Oficial La Gaceta Nº 143, en el Alcance Nº 23, del día 26 de julio del 2005, contiene entre otros, el procedimiento común para el ingreso de mercancías a depositarios aduaneros, bodegas y patios de aduana e instalaciones portuarias.
+III.—Que una vez implementado el procedimiento para el ingreso de mercancías a depositarios aduaneros, bodegas y patios de aduana e instalaciones portuarias, se ha determinado que en la práctica se requiere efectuar ajustes a la sección "VIII. Del Control de Salidas de Depósito, punto A 1º).- actuaciones del Depósito", para agilizar el mismo, sin detrimento del control aduanero. Por tanto,
+Con fundamento en las consideraciones de hecho y derecho citadas:
+EL DIRECTOR GENERAL DE ADUANAS, RESUELVE:
+Ajustar la sección "VIII. Del Control de Salidas de Depósito", punto A 1º).- Actuaciones del Depósito, del procedimiento de Depósito, en los siguientes términos:
+"VIII. Del Control de Salidas de Depósitos"
+A.- Actuaciones del Depósito
+1º) El depositario, ante la solicitud de salida de mercancías presentada por el declarante, importador o transportista, completará el mensaje de salida y lo transmitirá a la aplicación informática, tomando en consideración lo siguiente:
+Cuando se trate de salidas de mercancías amparadas a un DUA, se debe indicar la siguiente información: Código de Ubicación, Número de movimiento de inventario de salida, Año del movimiento de operación de salida, Tipo de documento de salida, Tipo de Registro, Número de Documento, Año del Documento, Código de Aduana y fecha de la salida del régimen.
+Si se trata de salidas asociadas a otros documentos, se debe indicar la siguiente información: Código de ubicación, Número de movimiento de inventario de salida, Año del movimiento de operación de salida, Tipo de documento de salida, Tipo de registro, Tipo de bulto, Cantidad total de bultos, Número del movimiento de inventario de entrada, Año del movimiento de inventario de entrada, Número del documento, Año del documento, Código de aduana y fecha de la salida del régimen. Para salidas de mercancías amparadas a DUAS oficio y a Certificados de Importación Temporal de Vehículos para Turistas (VEHITUR) se deberá indicar además, el Número de línea de que se trate. Para lo anterior se deberá utilizar el formato de "Mensaje de Depósitos versión 1.44" que se encuentra publicado desde el 13 de diciembre de 2005.
+No se permitirá realizar modificaciones sobre las salidas, solamente inclusión y /o eliminación de las mismas, en caso de que a un movimiento de stock, se le asocien varias DUAS, se deberá enviar un movimiento de salida por DUA.
+En caso de salidas asociadas a un DUA no se permitirá el envío de movimientos de salidas parciales, por lo tanto el depositario deberá enviar un único movimiento de salida al finalizar la entrega efectiva de la totalidad de los bultos. Para salidas de mercancías asociadas a otros tipos de documento de salida sí se permitirá el envió de parciales.
+Rige a partir del 6 de febrero del 2006.
