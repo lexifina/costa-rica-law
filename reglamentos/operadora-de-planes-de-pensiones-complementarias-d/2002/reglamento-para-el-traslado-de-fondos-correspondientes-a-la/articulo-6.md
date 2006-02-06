@@ -1,1 +1,0 @@
-Artículo 6º—De la información. Al día hábil siguiente de efectuado el depósito, la Operadora remitirá a la Asociación o Cooperativa un listado en el que detallará los aportes depositados a cada trabajador.

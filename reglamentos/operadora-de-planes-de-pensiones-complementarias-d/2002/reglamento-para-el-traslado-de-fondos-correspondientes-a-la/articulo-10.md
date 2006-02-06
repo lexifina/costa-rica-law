@@ -1,1 +1,0 @@
-Artículo 10.—Reglamentos para la administración de los aportes. Para hacer efectivo el traslado de los recursos tanto la Asociación como la Cooperativa deberán presentar ante la Operadora un reglamento que regule los procedimientos y la forma en que serán administrados los aportes que garanticen además su disponibilidad y rentabilidad.

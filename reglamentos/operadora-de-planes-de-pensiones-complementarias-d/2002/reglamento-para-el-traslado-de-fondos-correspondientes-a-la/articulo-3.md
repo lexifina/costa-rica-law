@@ -1,3 +1,0 @@
-Artículo 3º—Administración de los aportes. Los aportes serán administrados por las siguientes organizaciones:
-3.1. Las que de conformidad con el artículo 8º de la Ley de Protección al Trabajador correspondan al Fondo de Capitalización Laboral, por cualquier persona jurídica autorizada legalmente al efecto.
-3.2. Las demás sumas serán administradas por la Asociación o por la Cooperativa de conformidad con la elección de los trabajadores, siempre y cuando el órgano competente de dichas organizaciones haya consentido expresamente en sujetarse a la fiscalización de la administración de dichos aportes por parte de la Operadora, en los términos indicados en el artículo nueve y demás requerimientos establecidos en este reglamento.
