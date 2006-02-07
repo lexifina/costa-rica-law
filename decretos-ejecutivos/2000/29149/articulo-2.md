@@ -1,1 +1,0 @@
-Articulo 2-Crease la Comision Nacional sobre Incendios Forestales (CONIFOR), como una instancia adscrita al Sistema Nacional de µreas de Conservacion (SINAC) y a la cual le corresponde la formulacion, gestion, apoyo y seguimiento de las acciones interinstitucionales definidas en la Estrategia Nacional y el Plan Nacional de Manejo del Fuego.

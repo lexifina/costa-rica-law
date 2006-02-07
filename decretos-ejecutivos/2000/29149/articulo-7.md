@@ -1,1 +1,0 @@
-Articulo 7-La Comision Nacional sobre Incendios Forestales estar bajo la direccion y coordinacion de la Direccion General del Sistema Nacional de areas de Conservacion, del Ministerio del Ambiente y Energ¡a; quien aprobar , apoyar y supervisar las acciones que en materia de manejo del fuego sea necesario ejecutar.

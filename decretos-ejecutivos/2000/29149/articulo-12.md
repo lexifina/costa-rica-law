@@ -1,1 +1,0 @@
-Articulo 12.-Para efectos operativos de manejo del fuego, se reconoce y establece la figura del Bombero Forestal, como aquella persona que participa en la prevencion, mitigacion, control y liquidacion de fuego, capacitada y entrenada para trabajar en forma segura y eficiente.
