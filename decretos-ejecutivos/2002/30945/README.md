@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento del Sistema Nacional de vigilancia 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-27 | la propia norma |
+| 2 | 2006-02-07 | Decreto Ejecutivo 32980 (2006-02-07) |

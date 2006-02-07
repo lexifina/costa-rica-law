@@ -45,6 +45,8 @@ I.—Subsistema de notificación obligatoria:
 43) Tos ferina
 44) Tuberculosis en todas sus formas
 45) Violencia intra familiar
+46) Obesidad
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32980 del 7 de febrero del 2006)
 II.—Otros subsistemas de vigilancia:
 1) Accidentes laborales
 2) Cáncer
