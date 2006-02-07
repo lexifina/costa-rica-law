@@ -1,0 +1,2 @@
+Artículo 32.—Registro de elegibles. Se considerarán elegibles quienes obtengan como mínimo una calificación final de 80% (ochenta por ciento) o más como resultado de la ponderación de las calificaciones obtenidas en los diferentes parámetros utilizados para la evaluación de candidatos.
+Con los candidatos que obtengan una calificación final de 80% (ochenta por ciento) o más se conformará un registro, ordenado en forma descendente a partir de la calificación mayor hasta el 80%.

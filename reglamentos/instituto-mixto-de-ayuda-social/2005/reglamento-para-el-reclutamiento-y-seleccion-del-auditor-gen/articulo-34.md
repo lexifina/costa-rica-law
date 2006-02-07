@@ -1,0 +1,1 @@
+Artículo 34.—Conformación de la nómina. Del registro de elegibles se procederá a conformar una nómina o candidato único según corresponda con las personas que hayan obtenido la más alta calificación entre los elegibles, de los cuales se deberá escoger al nuevo Auditor General o Subauditor.

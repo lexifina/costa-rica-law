@@ -1,0 +1,1 @@
+Artículo 24.—Plazo y lugar para la recepción de ofertas. El plazo para la presentación de ofertas no podrá ser menor a cinco días naturales para nombramientos interinos y de ocho días hábiles para nombramientos en propiedad, contados a partir del día siguiente a la publicación del aviso del concurso, en la oficina de Recursos Humanos.

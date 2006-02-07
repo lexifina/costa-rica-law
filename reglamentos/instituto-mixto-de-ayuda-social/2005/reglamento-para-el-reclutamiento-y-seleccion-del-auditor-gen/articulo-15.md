@@ -1,0 +1,1 @@
+Artículo 15.—Establecimiento de una Comisión Especial. Para proceder al nombramiento del Auditor General o de Subauditor, el Consejo Directivo mediante acuerdo firme, constituirá una comisión especial que se encargará de llevar adelante el proceso de escogencia de los candidatos al puesto.

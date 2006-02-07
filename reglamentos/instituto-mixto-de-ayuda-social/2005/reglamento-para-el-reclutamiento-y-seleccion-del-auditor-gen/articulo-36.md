@@ -1,0 +1,1 @@
+Artículo 36.—Comunicación de resultados. Una vez recibida la autorización del nombramiento de la Contraloría, la Comisión Especial para el nombramiento del Auditor General o Subauditor deberá indicar por escrito a cada participante, el puntaje obtenido, la condición en la que queda ubicado y el respectivo agradecimiento por la participación.

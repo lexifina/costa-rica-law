@@ -1,0 +1,3 @@
+Artículo 39.—Deberes del Consejo Directivo. El Consejo Directivo deberá en su orden:
+• Nombrar al Auditor General o Subauditor del IMAS entre los candidatos elegibles de la nómina o candidato único.
+• Ordenar a la Secretaría de ese Órgano Colegiado, que comunique a la Contraloría General de la República el nombramiento resultante, a más tardar el primer día hábil del inicio de funciones en el respectivo cargo, de conformidad con el artículo 31 de la Ley Nº 8292 de Control Interno. Se deberá informar como mínimo: nombre y apellidos, grado académico, fecha y tipo de nombramiento (interino con el período de vigencia, por periodo de prueba, o en propiedad), jornada laboral y horario, y remitir copia del acuerdo o resolución respectiva.

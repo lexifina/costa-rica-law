@@ -1,0 +1,1 @@
+Artículo 42.—Nombramiento en firme. Una vez superado el período de prueba de seis meses, en caso de aceptación se procedería con el nombramiento en firme del funcionario, según lo definido por la Legislación Laboral vigente.

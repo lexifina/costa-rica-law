@@ -1,0 +1,1 @@
+Artículo 18.—Plazo del proceso. De conformidad con el artículo 28 de la Ley General de Control Interno Nº 8292, la plaza de Auditor General o Subauditor deberá llenarse en un plazo máximo de tres meses, contados a partir del momento de la vacante. El plazo podrá prorrogarse por otros tres meses, por razones debidamente acreditadas en el expediente que se confeccione al efecto.

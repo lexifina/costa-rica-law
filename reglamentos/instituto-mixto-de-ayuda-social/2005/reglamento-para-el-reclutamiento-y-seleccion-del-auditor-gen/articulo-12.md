@@ -1,0 +1,1 @@
+Artículo 12.—Plazo del nombramiento. El nombramiento interino de Auditor General y de Subauditor, puede ser por un plazo máximo improrrogable de doce meses, de manera que la Institución obligatoriamente deberá realizar todo el proceso de concurso público para llenar la plaza en propiedad, dentro de ese período como máximo.

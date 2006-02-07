@@ -1,0 +1,1 @@
+Artículo 41.—Reconocimiento de tiempo laborado. En aquellos casos en que el funcionario que estaba nombrado en forma interina en la plaza que sale a concurso, se le nombra en propiedad, ese período de interinidad se podrá tomar como parte del período de prueba en el tanto se mantenga en el ejercicio de las mismas funciones.

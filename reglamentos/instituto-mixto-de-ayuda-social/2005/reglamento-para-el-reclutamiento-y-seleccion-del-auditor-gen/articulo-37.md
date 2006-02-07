@@ -1,0 +1,1 @@
+Artículo 37.—Proceso de apelación. Una vez recibidos los resultados, los participantes que tengan razones fundamentadas para impugnar el procedimiento ejecutado y el nombramiento realizado, podrán presentar el correspondiente recurso, según lo dispuesto en la Ley General de la Administración Pública.

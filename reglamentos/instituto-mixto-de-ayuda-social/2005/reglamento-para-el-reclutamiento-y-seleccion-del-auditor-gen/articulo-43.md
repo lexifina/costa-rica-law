@@ -1,0 +1,1 @@
+Artículo 43.—Fin del nombramiento. En caso de inconformidad con el desempeño del funcionario, antes de que finalice el período de prueba, se cesa el nombramiento debidamente justificado, y se deberá proceder a un nuevo nombramiento entre los candidatos elegibles de la nómina o del registro de elegibles, según corresponda.

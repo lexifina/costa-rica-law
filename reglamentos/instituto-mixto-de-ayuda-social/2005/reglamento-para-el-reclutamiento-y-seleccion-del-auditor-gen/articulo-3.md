@@ -1,0 +1,1 @@
+Artículo 3°—Requisitos y funciones de los puestos. Los requisitos funciones principales de los cargos de Auditor General y Subauditor, serán los que se encuentran definidos en el Manual Descriptivo de Clases y de Cargos del IMAS correspondientes a estos puestos.

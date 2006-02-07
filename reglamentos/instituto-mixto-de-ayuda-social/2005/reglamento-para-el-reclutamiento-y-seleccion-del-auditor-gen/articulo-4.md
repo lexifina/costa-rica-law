@@ -1,0 +1,1 @@
+Artículo 4º—Facultad de nombramiento. Es competencia del Consejo Directivo del IMAS el nombrar en forma interina o por tiempo indefinido al Auditor General o Subauditor, bajo las normas definidas en el presente Reglamento.
