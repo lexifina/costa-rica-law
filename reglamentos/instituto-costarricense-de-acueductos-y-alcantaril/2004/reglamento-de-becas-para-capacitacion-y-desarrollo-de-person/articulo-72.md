@@ -2,7 +2,8 @@ Artículo 72.—De la firma de contratos según tipo de actividad. Previo al dis
 a. Ante la Gerencia:
 i. Cuando sea para actividades escolarizadas no programadas por AyA, en las cuales el beneficio solicitado sea un permiso con goce de salario mayor a las 8 horas semanales, o un financiamiento mayor o igual a dos salarios base mensual mínimo vigente en AyA, o ambas.
 ii. Cuando sea para actividades no escolarizadas y no programadas por AyA, en las cuales el costo por participación individual sea igual o mayor que el salario base por mes de la clase ocupacional de menor categoría vigente en la Institución, o bien para actividades de esta misma naturaleza que tengan duración mayor de 80 horas lectivas dentro del tiempo laboral, o ambas.
-iii. Cuando se trate de becas de categoría cinco, siete, doce, catorce, dieciocho, diecinueve, o veintiuno establecidas en el articulo 36 de este Reglamento.
+iii. Se trate de becas de categoría cinco, siete, doce, catorce, dieciocho, diecinueve, veintiuno, veintidós, veintitrés o veinticuatro establecidas en el artículo 36 de este Reglamento.
+(Así reformado el inciso anterior por acuerdo N° 72 del 7 de febrero del 2006)
 iv. Cuando se trate de becas de categoría seis, once, trece o veinte, y los costos a financiar sean mayores o iguales que el salario base mínimo mensual vigente en AyA.
 b. Ante la Dirección de Recursos Humanos: En tratándose de los casos incluidos en este literal, la administración superior, como apoderada generalísima de AyA, delegará en la Dirección de Recursos Humanos, la firma de los contratos de beca, que se conocerán como “acuerdos de compromiso y responsabilidad por beca”:
 i. Cuando sea para actividades escolarizadas no programadas por AyA, en las cuales el beneficio solicitado sea un permiso con goce de salario menor o igual a 8 horas semanales, o un financiamiento menor a dos salarios base mensual mínimo vigente en AyA, o ambas.

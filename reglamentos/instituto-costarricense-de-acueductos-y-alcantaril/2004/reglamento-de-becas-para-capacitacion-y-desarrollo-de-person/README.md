@@ -15,3 +15,4 @@ Reglamento de Becas para Capacitación y Desarrollo de Personal para el Institut
 | --- | --- | --- |
 | 1 | 2004-03-29 | la propia norma |
 | 2 | 2004-12-08 | Reglamento 86 (2004-12-08) |
+| 3 | 2006-02-07 | Acuerdo 72 (2006-02-07) |
