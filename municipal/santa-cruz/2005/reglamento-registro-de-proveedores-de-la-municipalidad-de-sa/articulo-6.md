@@ -1,0 +1,1 @@
+Artículo 6º—La información aportada para lograr la inscripción será considerada como verídica por el solo hecho de presentar la solicitud de inscripción y la información complementaria correspondiente. Salvo prueba en contrario presentada por un interesado que se considere lesionado.

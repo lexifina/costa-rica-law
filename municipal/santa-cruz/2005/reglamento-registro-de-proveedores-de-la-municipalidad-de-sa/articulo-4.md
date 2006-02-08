@@ -1,0 +1,1 @@
+Artículo 4º—A efectos de mantener actualizado el Registro de Proveedores, la Municipalidad invitará a los interesados en integrarlo mediante publicación en el Diario Oficial y dos diarios de circulación nacional, al menos una vez al año.
