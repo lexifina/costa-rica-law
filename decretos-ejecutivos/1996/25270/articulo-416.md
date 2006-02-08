@@ -1,2 +1,2 @@
-Artículo 416.—Procedimiento para la transmisión del manifiesto de entrega rápida. Trasmitido el manifiesto de entrega rápida a la Aduana mediante los formatos autorizados y con la información requerida, la Aduana procederá a aceptarlo e indicará si procede ordenar un acto inmediato de verificación al arribo de las mercancías de entrega rápida, el cual se realizará en las instalaciones autorizadas para tal fin. En este último caso la empresa de entrega rápida separará los bultos o mercancías que serán sometidos a verificación.
-(Así reformado por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).
+Artículo 416.—Declaración Aduanera Simplificada Anticipada. La declaración simplificada podrá ser presentada en forma anticipada al arribo del vehículo al puerto, una vez que esté presentado el manifiesto de carga general y el manifiesto de entrega rápida.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 32935 del 8 de febrero del 2006)

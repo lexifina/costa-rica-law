@@ -1,18 +1,3 @@
-Artículo 414.—Datos que debe contener el manifiesto de entrega rápida
-El manifiesto de entrega rápida deberá contener la siguiente información:
-Nombre y dirección del exportador.
-Nombre y dirección del importador.
-Nombre y dirección del consignatario.
-Descripción de las mercancías.
-Número de piezas.
-Valor declarado.
-Peso.
-Número de identificación del envío.
-País de procedencia.
-Fecha de llegada.
-Identificación del transportista.
-Número de vuelo.
-Lugar de embarque.
-Régimen al que se destinarán las mercancías.
-Indicación de las mercancías que requieren autorización de ingreso de otras autoridades para la aplicación de medidas no arancelarias, previo a su despacho, independientemente de su valor individual.
-En el caso de mercancías comprendidas en las categorías b y c del artículo 410 de este Reglamento, deberá consignarse el valor aduanero (valor CIF).
+Artículo 414.—Datos que debe contener el manifiesto de entrega rápida. El manifiesto de entrega rápida deberá contener en lo aplicable, la información indicada en el artículo 218 del Reglamento de la Ley General de Aduanas y sus reformas.
+El detalle de la información que deberá contener, será publicada en la página web, de acuerdo a lo establecido en el artículo 9 del Decreto Nº 32456-H del 29 de junio del 2005.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 32935 del 8 de febrero del 2006)

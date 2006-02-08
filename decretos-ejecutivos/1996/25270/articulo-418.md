@@ -1,5 +1,9 @@
-Artículo 418.—Despacho de envíos sujetos al pago de tributos
-Para el caso de bultos que contengan envíos sujetos al pago de tributos indicados en el artículo 410 de este Reglamento, la presentación de una declaración provisional, amparada a la garantía de operación rendida, facultará a la empresa de entrega rápida a despacharlos en forma inmediata. La declaración provisional podrá ser transmitida en forma anticipada a la llegada del vehículo.
-En este caso, la empresa o el agente aduanero que la represente, deberá presentar una declaración definitiva acompañada de los documentos exigibles y del documento que acredita la cancelación de los tributos correspondientes, dentro de un plazo no mayor a doce horas de la salida efectiva de las mercancías y siempre con anterioridad al siguiente despacho.
-La aduana podrá verificar el despacho de estas mercancías, mediante revisión documental o reconocimiento físico de conformidad con los criterios selectivos y aleatorios de control y fiscalización. Para tales efectos. la empresa deberá confirmar la llegada de las mercancías a la aduana de control.
-La aduana ordenara el traslado de las mercancías que no pudieren ser despachadas inmediatamente a las zonas de operación aduanera habilitadas al efecto.
+Artículo 418.—Despacho de envíos sujetos al pago de tributos. Para el caso de bultos que contengan envíos sujetos al pago de tributos indicados en el inciso c) del artículo 410 de este Reglamento, la presentación de una declaración simplificada facultará a la empresa de entrega rápida a despacharlos en forma inmediata.
+La declaración simplificada deberá ser transmitida una vez transmitido el manifiesto de entrega rápida.
+La declaración simplificada podrá ser transmitida por una Empresa de Entrega Rápida o por el agente que la represente, de acuerdo a lo establecido en el artículo 128 de la Ley General de Aduanas.
+La obligación tributaria aduanera y otros tributos indicados en la declaración simplificada deberán pagarse según lo establecido en el artículo 20 del Decreto Nº 32456-H del 29 de junio del 2005.
+Para realizar el pago de la obligación tributaria aduanera y otros tributos, la empresa de entrega rápida deberá cumplir con lo establecido en el artículo 22 del Decreto Nº 32456-H del 29 de junio del 2005.
+La declaración simplificada deberá contener en lo aplicable, la información indicada en el artículo 314 del Reglamento de la Ley General de Aduanas y sus reformas.
+El detalle de la información que deberá contener la declaración simplificada será publicado en la página web del Ministerio de Hacienda, de acuerdo a lo establecido en el artículo 9 del decreto Nº 32456-H del 29 de junio del 2005.
+El reconocimiento físico de mercancías se realizará en los términos que establece el artículo 351 del Reglamento de la Ley General de Aduanas y sus reformas, cuando se determine que éste debe existir.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 32935 del 8 de febrero del 2006)

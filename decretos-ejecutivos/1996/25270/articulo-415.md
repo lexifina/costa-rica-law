@@ -1,3 +1,4 @@
-Artículo 415.—Comunicación anticipada del manifiesto de entrega rápida
-La empresa de entrega rápida deberá suministrar a la aduana de ingreso la información correspondiente del manifiesto de entrega rápida con una anticipación mínima de dos horas a la llegada de la aeronave, salvo que el trayecto desde el puerto de salida al de llegada se cumpla en un plazo menor, en cuyo caso la Dirección General establecerá los plazos aplicables.
-El manifiesto se identificará mediante la numeración que establecerá la Dirección General de Aduanas.
+Artículo 415.—Procedimiento para la transmisión del manifiesto de entrega rápida. El transportista aduanero deberá presentar el manifiesto de carga general en el plazo establecido en el inciso b) del artículo 220 de este Reglamento.
+El transportista aduanero deberá presentar el manifiesto de carga general, con la información detallada en el artículo 218 de este reglamento, incluyendo además un código de identificación en el (los) conocimiento (s) de embarque matriz que identifiquen la modalidad de entrega rápida.
+Una vez que el transportista aduanero presente el manifiesto de carga general incluyendo el conocimiento de embarque matriz, la empresa de entrega rápida presentará el detalle del manifiesto de entrega rápida.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 32935 del 8 de febrero del 2006)

@@ -1,0 +1,5 @@
+Artículo 416 ter.—Plazo para desalmacenar envíos de las categorías a) y c). La empresa de entrega rápida contará con un plazo de seis horas hábiles, posteriores a la recepción de la unidad de transporte en las instalaciones del depositario, para finiquitar el trámite de despacho de las mercancías correspondientes a las categorías a) y c).
+De no haberse finiquitado el despacho de las mercancías en el plazo indicado, éstas deberán trasladarse al régimen de depósito fiscal.
+En el caso de las categorías b) y d), y las que aplican en la modalidad de “pequeños envíos sin carácter comercial”, deben ser entregadas en forma inmediata al Depositario Aduanero al finalizar el proceso de desconsolidación.
+En todos los casos, en que las mercancías no hayan sido entregadas al depositario aduanero, la empresa de entrega rápida deberá responder por las obligaciones tributarias respectivas, sin menoscabo a la aplicación de las sanciones respectivas.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 32935 del 8 de febrero del 2006)

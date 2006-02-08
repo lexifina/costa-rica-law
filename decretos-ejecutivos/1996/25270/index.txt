@@ -153,6 +153,7 @@ articulo-149.md
 articulo-150.md
 articulo-151.md
 articulo-152.md
+articulo-152-bis.md
 articulo-153.md
 articulo-154.md
 articulo-155.md
@@ -434,6 +435,8 @@ articulo-413.md
 articulo-414.md
 articulo-415.md
 articulo-416.md
+articulo-416-bis.md
+articulo-416-ter.md
 articulo-417.md
 articulo-418.md
 articulo-419.md
