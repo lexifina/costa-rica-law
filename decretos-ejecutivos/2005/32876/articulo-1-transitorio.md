@@ -1,0 +1,2 @@
+Transitorio único.—De conformidad con el principio de seguridad jurídica que debe prevalecer en las relaciones Fisco-Contribuyente, para la determinación del impuesto sobre la renta del período 2005 se aplicarán las reglas del Decreto ejecutivo Nº 30389-H del 2 de mayo del 2002, publicado en La Gaceta Nº 94 del 17 de mayo del 2002. A partir del período fiscal 2006, se aplicarán las reglas contenidas en este Decreto.
+Dado en la Presidencia de la República.—San José, a los seis días del mes de diciembre del dos mil cinco.

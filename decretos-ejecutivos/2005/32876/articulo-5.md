@@ -1,0 +1,3 @@
+Artículo 5º—Del impuesto sobre remesas al exterior: En el caso de pagos efectuados a beneficiarios no domiciliados en el país por los arrendamientos previstos en el artículo 1, por ser asimilables estos a la compra venta a plazos del bien, no están afectos al impuesto sobre las remesas al exterior.
+Para los arrendamientos previstos en los artículos 2 y 3, cuando se trate de bienes utilizados en actividades comerciales, debe retenerse el 15% de los montos pagados o acreditados, establecidos en el artículo 59 de la Ley del Impuesto sobre la Renta vigente.
+Asimismo, en el caso de bienes utilizados en actividades industriales o agropecuarias, si se cumplen las condiciones establecidas en el artículo mencionado para esos casos, no aplica la retención indicada.
