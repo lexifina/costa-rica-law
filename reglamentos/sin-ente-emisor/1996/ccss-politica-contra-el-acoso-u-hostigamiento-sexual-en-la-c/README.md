@@ -13,3 +13,4 @@ CCSS: Política contra el Acoso u Hostigamiento Sexual en la CCSS
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-02-20 | la propia norma |
+| 2 | 2006-02-09 | Reglamento 8031 (2006-02-09) |
