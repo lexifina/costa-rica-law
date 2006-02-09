@@ -14,3 +14,4 @@ Reglamento sobre la Fiscalización del Escrutinio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-15 | la propia norma |
+| 2 | 2006-02-09 | Decreto TSE 3 (2006-02-09) |
