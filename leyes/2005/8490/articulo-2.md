@@ -15,3 +15,4 @@ OBJETIVOS DE MEJORA INSTITUCIONALES:
 Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 49 a La Gaceta N° 253 del 30 de diciembre de 2005.
 (Modificado por el artículo 1° del decreto ejecutivo N° 32859 del 9 de enero del 2006)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32866 del 17 de enero del 2006)
+(Modificado por el artículo 1° del decreto ejecutivo N° 32884 del 24 de enero del 2006)
