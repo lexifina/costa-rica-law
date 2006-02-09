@@ -13,3 +13,4 @@ CCSS: Reglamento sobre Hostigamiento y Acoso Sexual
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-11-19 | la propia norma |
+| 2 | 2006-02-09 | Reglamento 8031 (2006-02-09) |
