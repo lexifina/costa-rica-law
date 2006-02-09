@@ -1,0 +1,1 @@
+Transitorio I.—Para los casos de Traspaso de cuotas del Poder Judicial, que se hayan presentado en la Tesorería Nacional con anterioridad a la entrada en vigencia del presente decreto, que carezcan de documentos idóneos, la Tesorería Nacional remitirá el listado de ellos al Fondo del Poder Judicial para que presenten los documentos requeridos para acceder al trámite.

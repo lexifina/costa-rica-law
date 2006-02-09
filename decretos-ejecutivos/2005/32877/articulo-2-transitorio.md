@@ -1,0 +1,2 @@
+Transitorio II.—Para los casos de traspaso de de cuotas de los regímenes de Hacienda, y Magisterio Nacional que se hayan presentado en la Tesorería Nacional con anterioridad a la entrada en vigencia del presente decreto, la Dirección Jurídica del Ministerio de Hacienda, valorará y tramitará los documentos idóneos para la resolución del asunto.
+Dado en la Presidencia de la República.—San José, a los ocho días del mes de noviembre del dos mil cinco.
