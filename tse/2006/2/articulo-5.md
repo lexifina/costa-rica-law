@@ -1,0 +1,1 @@
+Artículo 5º—Sobre el plazo para el retiro de ofertas. Las ofertas de servicios se entregarán en el Departamento de Recursos Humanos del Tribunal únicamente durante los tres días hábiles siguientes a la publicación del aviso.
