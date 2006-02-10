@@ -14,3 +14,4 @@ Requisitos para Plantear una Queja
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-22 | la propia norma |
+| 2 | 2006-02-10 | Resolución 5418 (2006-02-10) |
