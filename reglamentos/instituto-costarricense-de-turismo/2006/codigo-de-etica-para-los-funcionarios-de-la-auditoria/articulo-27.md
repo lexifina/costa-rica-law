@@ -1,0 +1,1 @@
+Artículo 27.—Los funcionarios de la Auditoría General deberán resguardar, proteger y tutelar los fondos y recursos públicos. Todo acto contrario a tal imperativo, debe ser denunciado de inmediato ante las instancias correspondientes.

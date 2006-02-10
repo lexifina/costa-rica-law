@@ -1,0 +1,1 @@
+Artículo 11.—Se deben evitar toda clase de relaciones y actos inconvenientes, con personas que puedan influir, comprometer o amenazar la capacidad real o potencial de la institución para actuar, y por ende, para actuar con la independencia requerida.

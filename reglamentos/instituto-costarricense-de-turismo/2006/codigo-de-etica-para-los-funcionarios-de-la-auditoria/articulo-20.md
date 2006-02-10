@@ -1,0 +1,1 @@
+Artículo 20.—Los funcionarios de la Auditoría General no deberán usar las instalaciones físicas, el equipo de oficina, vehículos o demás bienes públicos a que tengan acceso, para propósitos ajenos al fin para el que están destinados.

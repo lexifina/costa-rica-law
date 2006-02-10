@@ -1,0 +1,1 @@
+Artículo 24.—Los funcionarios de la Auditoría General no deberán recibir, directa o indirectamente, beneficios originados en contratos, concesiones o franquicias que celebre u otorgue la Administración.

@@ -1,0 +1,1 @@
+Artículo 29.—Los funcionarios de la Auditoría General deben evitar relaciones inconvenientes con los directivos y el personal del Instituto y otras personas que puedan influir, comprometer o amenazar su capacidad para actuar.

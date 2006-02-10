@@ -1,0 +1,1 @@
+Artículo 6º—Se requiere objetividad e imparcialidad en toda la labor efectuada y en particular en la toma de decisiones, las cuales deberán ser exactas, objetivas y apegadas al marco jurídico establecido.

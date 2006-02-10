@@ -1,0 +1,1 @@
+Artículo 8º—Se deberá utilizar la información aportada por el Instituto y por terceros. Esta información deberá tenerse en cuenta de modo imparcial en los dictámenes emitidos. También se deberá obtener información acerca de los enfoques de la Administración. Sin embargo, estos enfoques no deberán condicionar las conclusiones resultantes, del estudio o campo.

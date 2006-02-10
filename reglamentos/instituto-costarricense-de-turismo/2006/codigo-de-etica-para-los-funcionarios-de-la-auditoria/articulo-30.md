@@ -1,0 +1,1 @@
+Artículo 30.—Los funcionarios de la Auditoría General deberán evitar relaciones inconvenientes que impliquen un riesgo de corrupción o que puedan suscitar dudas acerca de su objetividad o independencia.

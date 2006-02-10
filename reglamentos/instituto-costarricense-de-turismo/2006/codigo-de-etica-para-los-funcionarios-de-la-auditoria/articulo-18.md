@@ -1,0 +1,1 @@
+Artículo 18.—Los funcionarios de la Auditoría General no deberán aceptar honorarios o regalías de cualquier tipo por discursos, conferencias o actividades similares, con excepción de lo que permita la ley.

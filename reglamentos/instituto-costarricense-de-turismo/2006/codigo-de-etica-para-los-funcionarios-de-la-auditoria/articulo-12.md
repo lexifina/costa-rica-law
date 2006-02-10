@@ -1,0 +1,1 @@
+Artículo 12.—Los funcionarios de la Auditoría General no deberán utilizar sus cargos con propósitos privados y deberán evitar relaciones y actos que impliquen un riesgo de corrupción o que puedan suscitar dudas razonables acerca de su objetividad, independencia e imparcialidad.

@@ -1,0 +1,1 @@
+Artículo 17.—Los funcionarios de la Auditoría General no deberán solicitar o recibir de personas, físicas o jurídicas, nacionales o extranjeras, directa o indirectamente, colaboraciones para viajes, aportes en dinero u otras liberalidades semejantes, para su propio beneficio o de un tercero.

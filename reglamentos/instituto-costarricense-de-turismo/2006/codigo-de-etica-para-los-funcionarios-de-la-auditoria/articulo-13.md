@@ -1,0 +1,1 @@
+Artículo 13.—Los funcionarios de la Auditoría General no deberán aprovecharse indebidamente de los servicios que prestan para la institución, en beneficio propio, de familiares o amigos, directa o indirectamente.

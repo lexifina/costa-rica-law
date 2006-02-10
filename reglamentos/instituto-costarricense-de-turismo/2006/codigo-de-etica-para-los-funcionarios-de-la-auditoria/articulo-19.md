@@ -1,0 +1,1 @@
+Artículo 19.—Los funcionarios de la Auditoría General no deberán efectuar o patrocinar para terceros, directa o indirectamente, trámites, nombramientos o gestiones administrativas que se encuentren, o no, relacionados con su cargo, salvo que está dentro de los cauces normales de la prestación de esos servicios o actividades.
