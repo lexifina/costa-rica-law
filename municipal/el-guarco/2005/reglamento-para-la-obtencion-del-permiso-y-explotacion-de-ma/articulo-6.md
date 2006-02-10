@@ -1,0 +1,1 @@
+Artículo 6º—De las condiciones del Permiso de Funcionamiento. Dentro del recinto en el cual se instalen las máquinas que regula este reglamento y de manera visible, deberá colocarse el respectivo permiso de funcionamiento, rotulado con el nombre del negocio y la leyenda: “Prohibido el uso de estas máquinas a personas menores de edad”.

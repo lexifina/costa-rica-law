@@ -1,0 +1,1 @@
+Artículo 8º—De los locales no autorizados. Queda prohibida la instalación de las máquinas en locales ubicados a menos de ochenta metros de distancia de centros educativos, templos religiosos y centros de salud autorizados. Ley Nº 1387, 21 de noviembre de 1951. Reglamento 3510 G, 24 de enero de 1974. (artículo 8º).

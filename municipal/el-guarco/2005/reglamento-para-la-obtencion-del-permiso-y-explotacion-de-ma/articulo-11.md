@@ -1,0 +1,1 @@
+Artículo 11.—Vigilancia del cumplimiento. Las autoridades de Policía, el Patronato Nacional de la Infancia e inspectores de Defensa Social, velarán por el cumplimiento de este reglamento y denunciarán a las autoridades respectivas las infracciones del mismo. Decreto ejecutivo 8722 G, 13 de junio de 1978, artículo 8º.
