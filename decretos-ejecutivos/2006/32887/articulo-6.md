@@ -1,0 +1,4 @@
+Artículo 6º—Rige a partir de su publicación.
+DISPOSISICIONES TRANSITORIAS
+Artículo 6º—Transitorio único. Los funcionarios que en el momento de entrada en vigor de este Decreto Ejecutivo se encuentren formalmente incorporados al régimen del Servicio Exterior de la República y que al mismo tiempo se encuentren nombrados en propiedad en algún otro régimen de servicio del Estado o de sus instituciones, deberán proceder a comunicar formalmente al Ministro de Relaciones Exteriores en el plazo improrrogable de un mes, contado a partir de la publicación del presente decreto, el régimen de su elección. En caso de que optaren por un régimen distinto al del Servicio Exterior, o de que omitieren comunicar su decisión dentro del término señalado, serán excluidos de oficio de la carrera del Servicio Exterior.
+Dado en la Presidencia de la República, a los dos días del mes de enero del año dos mil seis.

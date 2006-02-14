@@ -1,0 +1,1 @@
+Artículo 5º—Derogatoria. Derógase en su totalidad el Decreto Ejecutivo N° 22544-RE de 29 de setiembre de 1993, publicado en el Diario Oficial La Gaceta N° 194 de 11 de octubre de 1993 y toda otra norma reglamentaria que se oponga a las disposiciones del presente Decreto Ejecutivo.
