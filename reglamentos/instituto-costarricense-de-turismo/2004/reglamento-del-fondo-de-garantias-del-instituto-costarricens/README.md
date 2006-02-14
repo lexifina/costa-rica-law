@@ -14,3 +14,4 @@ Reglamento del Fondo de Garantías del Instituto Costarricense de Turismo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-04-27 | la propia norma |
+| 2 | 2006-02-14 | Reglamento 5400 (2006-02-14) |
