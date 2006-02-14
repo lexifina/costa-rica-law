@@ -1,1 +1,0 @@
-Artículo 19°.—Para el mejor cumplimiento de esta ley la Municipalidad y la Dirección General de Tránsito tomarán las medidas pertinentes en estrecha y efectiva colaboración. Los inspectores están investidos de autoridad para las actuaciones oficiales a ese respecto de acuerdo con lo establecido en la ley N° 3580 del 2 de noviembre de 1975.

@@ -1,3 +1,0 @@
-Artículo 10.—La fijación de aparcamiento se hará por medio de tarjetas de estacionamiento con una validez para estacionar de una hora y media hora. Cada tarjeta se utilizará una única vez. Quien utilice la tarjeta en forma indebida o contravenga lo establecido anteriormente se hará acreedor a la sanción que se establece en el artículo 16 del presente Reglamento. La tarjeta debe llevar el sello de la Tesorería Municipal, sin él la misma será nula.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Ordinaria N°41 celebrada el 14 de octubre de 2003, publicada en La Gaceta N° 236 del 08 de diciembre de 2003.)
-(NOTA: La reforma a este artículo fue publicada nuevamente en La Gaceta N° 20 del 29 de enero de 2004.)

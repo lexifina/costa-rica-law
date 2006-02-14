@@ -1,1 +1,0 @@
-Artículo 18°.—La Municipalidad de Alajuela por medio de Inspectores velará por el cumplimiento en el pago de la tasa establecida en este Reglamento, quienes reportarán los vehículos que infrinjan la ley y en caso necesario el jefe de sección pasará el asunto a la agencia de tránsito respectiva.

@@ -1,1 +1,0 @@
-Artículo 3°.—El pasaje comprendido entre el CIPET y la Iglesia Metodista, queda sujeto a las disposiciones del presente Reglamento. Esta zona será demarcada de amarillo, no permitiéndose el estacionamiento de vehículos a ninguno de los dos lados del pasaje.

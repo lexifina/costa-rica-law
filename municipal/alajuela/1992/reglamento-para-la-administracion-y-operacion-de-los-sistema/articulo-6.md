@@ -1,1 +1,0 @@
-Artículo 6°.—A cada zona de estacionamiento se le demarcará claramente el área dentro de la cual deberá estacionarse los vehículos, ninguna zona podrá ser menor de 5 metros, ni mayor de 7 metros de largo por 2 metros de ancho.

@@ -1,1 +1,0 @@
-Artículo 32°.—Los derechos de zonas o espacios podrán ser revocados cuando se considere conveniente a los intereses de la Municipalidad o cuando se comprueba se está dando el uso debido para el cual fue solicitado, la revocatoria de la adjudicación será comunicado por escrito al interesado.
