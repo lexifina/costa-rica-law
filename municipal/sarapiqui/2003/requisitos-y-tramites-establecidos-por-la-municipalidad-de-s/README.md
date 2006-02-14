@@ -14,3 +14,4 @@ Requisitos y Trámites Establecidos por la Municipalidad de Sarapiquí.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-13 | la propia norma |
+| 2 | 2006-02-14 | Acuerdo municipal 0 (2006-02-14) |
