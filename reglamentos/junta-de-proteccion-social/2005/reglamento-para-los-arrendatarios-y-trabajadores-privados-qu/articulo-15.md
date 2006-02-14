@@ -1,0 +1,1 @@
+Artículo 15.—En caso de no presentar el permiso de trabajo indicado en el artículo anterior, la Administración de Cementerios podrá detener las labores que el trabajador privado se encuentre realizando hasta que presente dicho permiso.

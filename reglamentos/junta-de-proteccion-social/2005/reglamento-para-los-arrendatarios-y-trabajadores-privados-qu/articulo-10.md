@@ -1,0 +1,2 @@
+Artículo 10.—Finalizada la ejecución de labores de albañilería y similares, el trabajador privado deberá dar aviso a la Administración de Cementerios, con la finalidad de que se verifique el ornato y el aseo del lugar y sus alrededores, así como el retiro del escombro del Campo Santo.
+En caso de incumplimiento del presente artículo, no se autorizará a los trabajadores privados para futuras labores que soliciten los arrendatarios y/o beneficiarios.

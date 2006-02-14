@@ -1,0 +1,1 @@
+Artículo 19.—La Administración de Cementerios brindará un área en el osario general a los trabajadores privados para guardar sus herramientas y demás utensilios, la cual será distribuida equitativamente entre todos. La Junta no asumirá ninguna responsabilidad por las herramientas allí guardadas.

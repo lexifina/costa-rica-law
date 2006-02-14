@@ -1,0 +1,1 @@
+Artículo 14.—Al trabajador privado se le entregará un documento que lo autoriza para realizar las labores solicitadas por el arrendatario, el cual deberá portar siempre en su lugar de trabajo, con la finalidad de presentarlo ante la Administración o el funcionario designado para estos efectos.

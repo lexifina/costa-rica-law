@@ -1,0 +1,1 @@
+Artículo 17.—Ningún trabajador privado o persona alguna podrá sacar de los Campos Santos imágenes, placas y otros objetos similares, sin la autorización escrita firmada por el arrendatario y autenticada por un abogado y el Visto Bueno por parte de la Administración de Cementerios. Dicha autorización quedará en poder de la Administración de Cementerios

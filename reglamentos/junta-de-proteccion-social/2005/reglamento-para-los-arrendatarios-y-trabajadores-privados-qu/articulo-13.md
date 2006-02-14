@@ -1,0 +1,1 @@
+Artículo 13.—El arrendatario deberá depositar en la Administración de Cementerios, como garantía de cumplimiento, una cantidad de dinero, de acuerdo con los montos aprobados por la Junta al momento de realizarse las labores. En caso de no cumplir con lo establecido en los artículos diez y once del presente reglamento, se ejecutará dicha garantía.

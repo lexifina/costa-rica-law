@@ -1,0 +1,1 @@
+Artículo 6º—La Administración de Cementerios mantendrá un registro de los trabajadores privados permanentes u ocasionales que han sido contratados por los arrendatarios y/o arrendatarias de los campo santos.

@@ -1,0 +1,1 @@
+Artículo 11.—El trabajador privado toda vez finalizada la ejecución de labores de jardinería y similares, deberá botar la basura orgánica en los depósitos respectivos. En caso de incumplimiento del presente artículo, no se le autorizará para futuras labores que soliciten los arrendatarios.
