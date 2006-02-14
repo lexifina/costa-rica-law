@@ -14,3 +14,4 @@ Reglamento de Administración de Transporte y Equipo Especial en RECOPE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-23 | la propia norma |
+| 2 | 2006-02-14 | Reglamento 0 (2006-02-14) |
