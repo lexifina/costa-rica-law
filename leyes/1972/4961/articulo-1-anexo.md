@@ -38,13 +38,23 @@ Lista de mercancías gravadas con el impuesto selectivo de consumo
 8510 Afeitadoras, máquinas de cortar el pelo o esquilar y aparatos de depilar, con motor eléctrico incorporado.
 8511 Aparatos y dispositivos eléctricos de encendido o de arranque, para motores de encendido por chispa o por compresión (por ejemplo: magnetos, dinamomagnetos, bobinas de encendido, bujías de encendido o calentamiento, motores de arranque); generadores (por ejemplo: dinamos, alternadores) y reguladores disyuntores utilizados con estos motores.
 8516 Calentadores eléctricos de agua de calentamiento instantáneo o acumulación y calentadores eléctricos de inmersión; aparatos eléctricos para calefacción de espacios o suelos; aparatos electrotérmicos para el cuidado del cabello (por ejemplo: secadores, rizadores, calientatenacillas); planchas eléctricas; los demás aparatos electrotérmicos de uso doméstico; resistencias calentadoras, excepto las de la partida Nº 85.45.
+NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 32890 del 8 de noviembre del 2005, se reduce la tarifa del Impuesto Selectivo de Consumo a un cero por ciento (0%), a los “vaporizadores y emanadores eléctricos para plaquitas y pastillas repelentes de zancudos y mosquitos” de la posición arancelaria 8516.79.00.00.
 8519 Giradiscos, tocadiscos, tocacasetes y demás reproductores de sonido, sin dispositivo de grabación de sonido incorporado.
 8520 Magnetófonos y demás aparatos de grabación de sonido, incluso con dispositivo de reproducción de sonido incorporado.
 8521 Aparatos de grabación o reproducción de imagen y sonidos (vídeos), incluso con receptor de señales de imagen y sonido incorporado.
 8527 Aparatos receptores de radiotelefonía, radiotelegrafía o radiodifusión, incluso combinación en la misma envoltura (gabinete) con grabador o reproductor de sonido o con reloj.
 8528 Aparatos receptores de televisión, incluso con aparato receptor de radiodifusión o con grabador o reproductor de sonido o imagen incorporado; videomonitores y videoproyectores.
 8702 Vehículos automóviles para transporte de diez o más personas, incluido el conductor.
-8703 Coches de turismo y demás vehículos automóviles concebidos principalmente para transporte de personas.
+8703 .COCHE DE TURISMO Y DEMÁS VEHÍCULOS AUTOMOVILES CONCEBIDOS PRINCIPALMENTE PARA TRASNPORTE DE PERSONAS (EXCEPTO LO DE LAS PARTIDAS N° 87.02), INCLUIDOS LOS VEHÍCULOS DEL TIPO FAMILIAR (“BREAK” O “STATION WAGON”)Y LOS DE CARRERAS
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 26163 del 4 de julio de 1997)
+8703.90-Los demás
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 26163 del 4 de julio de 1997)
+8703.90.10 -Movidos por energía eléctrica
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 26163 del 4 de julio de 1997)
+8703.90.90 -Los demás
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 26163 del 4 de julio de 1997)
+(Corregido la numeración anterior mediante Fe de Erratas y publicada en La Gaceta N° 186 del 29 de setiembre de 1997. Anteriormente se indicaba: 8703.90.19)
+8704 Vehículos automóviles para transporte de mercancías.
 8704 Vehículos automóviles para transporte de mercancías.
 8706 Chasis de vehículos automóviles de las partidas Nº 87.01 a 87.05, equipados con su motor.
 8707 Carrocerías de vehículos automóviles de las partidas Nº 87.01 a 87.05, incluidas las cabinas.
