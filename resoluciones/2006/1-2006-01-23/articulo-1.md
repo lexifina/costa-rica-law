@@ -1,0 +1,18 @@
+LABORATORIO COSTARRICENSE DE METROLOGÍA
+COMISIÓN DE METROLOGÍA
+R- LACOMET-001-2006
+Costos de Servicios Metrológicos
+La Comisión de Metrología del Laboratorio Costarricense de Metrología, a las catorce horas treinta minutos del día veintitrés de enero del año dos mil seis.
+Resultando:
+1º—Que el artículo 8 de la Ley Nº 8279, indica: “…Créase el Laboratorio Costarricense de Metrología (LACOMET), como órgano de desconcentración máxima, con personalidad jurídica instrumental para el desempeño de sus funciones, adscrito al MEIC. Se regirá por las normas nacionales e internacionales aplicables…”
+2º—Que el artículo 15 del mismo cuerpo normativo, señala: “… Venta de Servicios. Autorízase al LACOMET para que venda servicios a instituciones públicas o empresas privadas. El producto de la venta de servicios se destinará, en su totalidad, al mejoramiento de los laboratorios, la capacitación técnica de su personal y el desarrollo de la infraestructura metrológica…”
+3º—Que el artículo 12, inciso b) de la Ley de cita, establece entre las funciones de la Comisión de Metrología la siguiente: “…establecer las tarifas y condiciones en que el Laboratorio debe contratar y vender los servicios de metrología. Las tarifas serán efectivas a partir de la publicación en La Gaceta…”
+4º—Que con resolución R- LACOMET-029-2005, emitida por la Comisión de Metrología del Laboratorio Costarricense de Metrología, a las nueve horas treinta minutos del día siete de setiembre del año dos mil cinco, se ordenó publicar el Costo de los Servicios Metrológicos prestados por LACOMET.
+5º—Que mediante el acta de la sesión número 12 de la Comisión de Metrología, celebrada, a las 8:30 horas el 7 de octubre del 2005, artículo IV, aparte 4.6, se informa que en publicación de “Costos de Servicios Metrológicos” prestados por LACOMET, hay algunos errores que se deben subsanar.
+6º—Que mediante el acta de la sesión número 13 de la Comisión de Metrología, celebrada a las 8 horas 30 minutos del día 9 de diciembre del 2005, se ratificó los acuerdos tomados en el acta de la sesión número 12, de la Comisión de Metrología, antes indicada.
+7º—Que el artículo 157 de la Ley General de la Administración Pública señala que “… En cualquier tiempo podrá la Administración rectificar los errores materiales o de hecho y los aritméticos…”
+8º—Que con fundamento en el artículo supra citado se hicieron las correcciones del caso las cuales se implementan mediante la presente resolución.
+9º—En cuanto a las horas profesional, las tarifas que se aplicarán serán las mismas establecidas por los Colegios Profesionales a los que se encuentran incorporados los profesionales de LACOMET designados para llevar a cabo los procedimientos específicos. En el caso de que el experto designado para realizar el trámite no tenga el título grado profesional, sino técnico especializado, las tarifas que se aplicarán serán las establecidas en el decreto de salarios mínimos vigente al momento del procedimiento, para la clase “trabajadores calificados”.
+10.—La presente resolución sustituye en todo la resolución R- LACOMET-029-2005, emitida por la Comisión de Metrología del Laboratorio Costarricense de Metrología, a las nueve horas treinta minutos del día siete de setiembre del año dos mil cinco, mediante la cual se ordenó publicar el Costo de los Servicios Metrológicos prestados por LACOMET, de cita en el. Por tanto,
+La Comisión de Metrología del Laboratorio Costarricense de Metrología, con fundamento en las estipulaciones legales contenidas en el artículo 157 de la Ley General de la Administración Pública, resuelve,
+1.Acoger lo indicado mediante el punto IV, aparte 4.6 de la sesión número 12 de la Comisión de Metrología, celebrada a las 08 horas 30 minutos del día 07 de octubre del 2005.
