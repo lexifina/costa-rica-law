@@ -1,2 +1,0 @@
-Artículo 14.—Pérdida y recuperación de beca. Si el estudiante becado pierde el curso lectivo, automáticamente perderá el derecho a disfrutar de la beca concedida, excepto caso fortuito debidamente justificado y comprobado ante y por JUDESUR.
-Asimismo, será causal para la extinción inmediata de la beca, la comprobación de que el beneficiario percibe, al mismo tiempo, alguna beca de estudios otorgada por otra institución o que se determine que la información brindada en principio relacionada con la demostración de ser de escasos recursos se haya apartado de la verdad.

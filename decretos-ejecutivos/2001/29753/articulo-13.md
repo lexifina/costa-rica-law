@@ -1,1 +1,0 @@
-Artículo 13.—Estudiantes discapacitados. Los casos estipulados en la Ley Nº 7600, serán atendidos en forma especial y no le serán aplicados en su totalidad los requisitos para mantener la beca; excepto el de asistir regularmente a un colegio público.
