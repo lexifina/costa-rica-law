@@ -14,3 +14,4 @@ Reforma al Reglamento a la Ley de Relaciones entre Productores, Beneficiadores y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-19 | la propia norma |
+| 2 | 2006-02-15 | SINALEVI (sin norma nombrada) |
