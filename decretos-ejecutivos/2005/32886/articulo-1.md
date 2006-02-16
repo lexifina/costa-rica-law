@@ -1,0 +1,19 @@
+Nº 32886
+ELPRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE SALUD, DE CULTURA, JUVENTUD Y DEPORTES, DE EDUCACIÓN PÚBLICA, DE TRABAJO Y SEGURIDAD SOCIAL, DE LA PRESIDENCIA, Y DE GOBERNACIÓN, POLICÍA Y SEGURIDAD PÚBLICA
+En uso de las facultades que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política 27 y 28 de la Ley Nº 6227 del 2 de mayo de 1978, “Ley General de la Administración Pública”; l y 2 de la Ley Nº 5395 del 30 de octubre de 1973 “Ley General de Salud”.
+Considerando:
+1º—Que la salud de la población es un bien de interés público tutelado por el Estado.
+2º—Que existe suficiente evidencia científica que prueba que la actividad física es un componente esencial de la producción social de la salud y la prevención de las enfermedades.
+3º—Que el gasto estatal en el tratamiento de las enfermedades crónicas no trasmisibles puede ser reducido mediante la inversión en estilos de vida saludables y, específicamente, en el incremento de los niveles de actividad física de la población.
+4º—Que existe insuficiente coordinación entre las instituciones del Estado en materia de planes y proyectos de actividad física para la salud, tanto en el nivel nacional como en el local.
+5º—Que existe una instancia de coordinación entre el Ministerio de Salud y el Instituto Costarricense del Deporte y la Recreación que debe ser ampliada a otras instituciones que tienen planes y proyectos en actividad física.
+6º—Que las municipalidades del país constituyen los Comités Cantonales de Deporte y Recreación y tienen funciones específicas en el campo del deporte y la recreación.
+7º—Que los Comités Cantonales de Deporte y Recreación no han incluido de manera suficiente en sus planes y proyectos a la actividad física para la salud, destinando sus recursos fundamentalmente a la competición deportiva y al sector minoritario de la población que la realiza, lo cual ha marginado de esos recursos a la mayoría de las personas.
+8º—Que la Organización Mundial de la Salud (OMS) aprobó en su Asamblea Mundial del 2004 la Estrategia Mundial sobre Régimen Alimentario, Actividad Física y Salud, la cual define lineamientos para el trabajo intersectorial de los países en materia de promoción de esos factores de la salud.
+9º—Que Costa Rica es miembro activo de la Red de Actividad Física de las Américas (RAFA) desde su creación en el año 2000, la cual ha sido promovida por la Organización Panamericana de la Salud (OPS) y el Centro de Control de Enfermedades (CDC) de los Estados Unidos de América y cuyo propósito es el fomento de redes nacionales de actividad física para la salud.
+10.—Que Costa Rica participa de la experiencia internacional organizada por la Organización Panamericana de la Salud del Observatorio de Políticas en Salud, el cual tiene como tema medular el seguimiento de las políticas nacionales de promoción de la actividad física.
+11.—Que existen instituciones internacionales de apoyo a la promoción de la actividad física para la salud, que mantienen coordinaciones y comunicación con el país, tales como el Centro de Control de Enfermedades (CDC) de los Estados Unidos de América, la Organización Panamericana de la Salud (OPS), la Unión Internacional de Promoción y Educación para la Salud (UIPHE), el Instituto Nacional del Corazón, los Pulmones y la Sangre (NIH) de los Estados Unidos de América, entre otras.
+12.—Que se ha considerado oportuno y necesario crear la Red Costarricense de Actividad Física para la salud en nuestro país. Por tanto,
+DECRETAN:
+Artículo 1º—Créase la Red Costarricense de Actividad Física para la Salud en lo sucesivo denominada “RCAFS”, como una Organización participativa de alcance nacional y cantonal, así como un mecanismo de coordinación interinstitucional y social, cuyo fin es la promoción de la actividad física en todas sus modalidades para la salud integral de la población costarricense en todos los cantones del país.

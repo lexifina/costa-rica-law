@@ -1,0 +1,1 @@
+Artículo 11.—Las dependencias del Sector Público y Sector Privado podrán contribuir con recursos humanos, económicos y técnicos, en la medida de sus posibilidades, y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de las actividades generadas por la Red Costarricense de Actividad Física para la Salud.

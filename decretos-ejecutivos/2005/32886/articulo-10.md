@@ -1,0 +1,1 @@
+Artículo 10.—La RCAFS establecerá relaciones de intercambio y coordinará acciones conjuntas con las organizaciones internacionales e instituciones extranjeras que promueven la actividad física para la salud.
