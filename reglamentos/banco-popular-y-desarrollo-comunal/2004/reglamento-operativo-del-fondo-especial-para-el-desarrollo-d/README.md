@@ -15,3 +15,4 @@ Reglamento operativo del Fondo Especial para el Desarrollo de la Micro, Pequeña
 | --- | --- | --- |
 | 1 | 2004-05-07 | la propia norma |
 | 2 | 2005-01-13 | Reglamento 4271 (2005-01-13) |
+| 3 | 2006-02-16 | Reglamento 4371 (2006-02-16) |

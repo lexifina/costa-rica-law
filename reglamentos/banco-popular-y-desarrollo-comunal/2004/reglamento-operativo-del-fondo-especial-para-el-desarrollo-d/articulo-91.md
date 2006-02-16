@@ -19,7 +19,7 @@ Aeronaves con licencia (nuevas) | 60%
 Certificación de aeronabilidad Equipo, maquinaria agrícola, industrial o pesada: Nueva: Usada: | 60% 50%
 Equipo electrónico especializado (nuevo) | 50%
 Ganado bovino, caballar, porcino, caprino | 60%
-No se aceptarán en garantía equipos de cómputo y vehículos de alquiler ("Rent a Car") | - - - - -
+No se aceptarán en garantía equipos de cómputo y vehículos de alquiler ("Rent a Car") Recibir únicamente equipo de cómputo nuevo, aceptado de la siguiente manera: Equipo de cómputo nuevo aceptado máximo al 50% de su precio de adquisición para préstamos hasta 12 meses plazo. Equipo de cómputo nuevo aceptado máximo al 25% de su precio de adquisición para préstamos hasta 24 meses plazo. No aplica para préstamos con plazos mayores a 24 meses. Los préstamos deberán otorgarse con cuota mensual. Se autoriza un límite de colocación de crédito de este tipo máximo de $500.000.00 con este tipo de garantía (Así reformado mediante sesión N°4371 celebrada el 16 de febrero del 2006). | - - - - -
 B-VALORES (Calculados a valor de mercado). a.1) Emitidos o avalados por el BPDC, Gobierno o Banco Central de Costa Rica a.2) Emitidos o avalados por Bancos estatales costarricenses | 100% 95%
 b) Valores de deuda emitidos por Bancos privados del SBN y con cotización en BNV | 90%
 c) Valores de deuda emitidos por empresas | 80%
