@@ -156,6 +156,8 @@ b) los demás transportistas navieros deberán transmitir la información de las
 23) En los casos de conocimientos de embarque matriz el consignatario deberá ser un consolidador de carga o empresa de entrega rápida registrados como auxiliares de la función pública aduanera y la información del tipo y número de identificación de estos auxiliares deberá constar en la información del manifiesto de carga, debidamente asociado a cada conocimiento de embarque matriz, previo al envío del mensaje con el detalle de los conocimientos de embarque individualizados.
 24) Las unidades de transporte declaradas en el manifiesto de carga ingresarán al territorio aduanero bajo el régimen de importación temporal y la aplicación informática llevará el registro a efecto de contabilizar el plazo de tres meses contado a partir de la fecha de oficialización del manifiesto.
 25) Para las mercancías declaradas en tránsito internacional y que se descargan del medio de transporte y deban permanecer dentro de la zona portuaria, el transportista responsable de su salida por el mismo puerto, al momento de confeccionar el manifiesto, deberá indicar el número del manifiesto de ingreso, conocimiento de embarque y línea, para que en forma automática el sistema cancele el registro en el manifiesto de ingreso, en los demás casos la cancelación del conocimiento de embarque en el manifiesto de ingreso se realizará con la aceptación del DUA de tránsito.
+(*)26°) Las autoridades portuarias serán las responsables de asignar un número consecutivo anual a cada ingreso o salida de naves o aeronaves a y de los puertos aduaneros marítimos y aéreos y de publicar, en forma anticipada al arribo o salida de dichos medios de transporte, la numeración en el sitio WEB de la DGA.
+(*)(Así adicionado mediante resolución DGA-117 del 16 de febrero de 2006)
 II. De la Transmisión del Manifiesto de Carga
 A. Actuaciones del Transportista Internacional y Consolidador de Carga
 1) El transportista aduanero internacional transmitirá en forma electrónica el manifiesto de ingreso con la antelación que se desee pero siempre antes de los plazos que a continuación se detallan:
@@ -187,13 +189,15 @@ Los tres últimos documentos se presentarán a la autoridad aduanera junto con e
 a) marítimo y fluvial, por un número constituido por la siguiente secuencia:
 i. modalidad de transporte: se indicará el número uno (1) para transporte marítimo.
 ii. tipo de manifiesto: se indicará el número cero (0) para manifiestos de ingreso y el número uno (1) para manifiestos de salida
-iii. identificación del viaje: se indicará el número de escala o viaje asignado por la autoridad portuaria.
+(*)iii. identificación del viaje: se indicará el número consecutivo asignado por la autoridad portuaria a cada nave que ingresa o sale del puerto aduanero.
+(*)(Así reformado mediante resolución DGA-117 del 16 de febrero de 2006)
 Iv. código de ubicación: se indicará el código asignado por la DGA a las instalaciones de ingreso o egreso, según el caso.
 v. fecha estimada: se consignará la fecha estimada de arribo o partida del buque, en el formato AAAA-MM-DD.
 b) aéreo, por un número constituido por la siguiente secuencia:
 i. modalidad de transporte: se indicará el número cuatro (4) para transporte aéreo.
 ii. tipo de manifiesto: se indicará el número cero (0) para manifiestos de. ingreso y el número uno (1) para manifiestos de salida
-iii. identificación del viaje: se indicará el código IATA de la línea aérea seguido del número de vuelo. Si por alguna circunstancia este número se repitiera en el mismo día, se agregará una letra para diferenciarlo del anterior, utilizándose “M” para el vuelo de la mañana y una “T” para el vuelo de la tarde.
+(*)iii. identificación del viaje: se indicará el número consecutivo asignado por la autoridad aeroportuaria a cada aeronave que ingresa o sale del puerto aduanero.
+(*)(Así reformado mediante resolución DGA-117 del 16 de febrero de 2006)
 iv. código de ubicación: se indicará el código asignado por la DGA a las instalaciones de ingreso o egreso, según el caso.
 v. fecha estimada: se consignará la fecha estimada de arribo de la aeronave, en el formato AAAA-MM-DD.
 c) terrestre por carretera, por un número constituido por la siguiente secuencia:
