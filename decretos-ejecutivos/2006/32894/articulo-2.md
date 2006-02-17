@@ -1,0 +1,1 @@
+Artículo 2º—Corresponderá al Instituto Costarricense de Electricidad, la representación oficial del Gobierno de Costa Rica y el coordinar el evento a nivel de los demás organismos e instituciones del Estado.
