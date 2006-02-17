@@ -1,7 +1,0 @@
-Artículo 36.- El monto por reconocer se establecerá mediante
-resolución escrita del máximo jerarca, con visto bueno del departamento
-legal de la institución, copia de la cual se acompañará en cada
-modificación presupuestaria. La fecha de vigencia de la concesión inicial
-(no de los ajustes) será a partir del primer día del siguiente mes
-calendario a la fecha de recibo de la solicitud en la oficina de
-personal.

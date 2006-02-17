@@ -1,9 +1,0 @@
-Artículo 53.- Aquellos funcionarios de nivel profesional, a quienes
-se les hizo el reconocimiento de los cursos de capacitación recibidos a
-partir del logro de la condición de egresado, y ostentaron el grado de
-bachillerato universitario antes de la referida condición, podrán
-solicitar al comité de carrera profesional de su institución o empresa
-pública, el ajuste respectivo que derive en el reconocimiento del
-beneficio dejado de percibir después de la obtención del mencionado grado
-académico dichos ajustes se harán de conformidad al procedimiento
-señalado en el artículo 39.
