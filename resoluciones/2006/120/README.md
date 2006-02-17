@@ -14,3 +14,4 @@ Cobran por la emisión de cada documento de residencia, sus duplicados o renovac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-17 | la propia norma |
+| 2 | 2006-02-17 | Resolución 1090 (2006-02-17) |
