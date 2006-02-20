@@ -1,0 +1,1 @@
+Artículo 3º—Para la interpretación del presente reglamento, se considerará refrigerio aquellas tales como bocadillos, galletas refrescos, té, café, entre otros, que su costo no podrá exceder del monto autorizado por la Contraloría General de la República para funcionarios públicos para el rubro de viáticos de desayuno.

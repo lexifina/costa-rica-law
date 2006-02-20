@@ -1,0 +1,1 @@
+Artículo 5º—Cuando las sesiones se den fuera del recinto designado para las sesiones ordinarias, y/o cuando se atiendan invitados especiales, el consejo Directivo podrá acordar otro tipo de facilitación de alimentos.

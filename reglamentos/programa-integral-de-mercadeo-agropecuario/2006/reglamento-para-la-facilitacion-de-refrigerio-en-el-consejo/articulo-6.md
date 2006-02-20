@@ -1,0 +1,1 @@
+Artículo 6º—Para la aplicación del artículo anterior, se aplicará de igual forma los principios de razonabilidad y austeridad, así mismo el Consejo Directivo determinará cuando un invitado a sesión deba ser considerado especial.
