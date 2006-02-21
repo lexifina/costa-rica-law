@@ -1,0 +1,2 @@
+Artículo 48.—La Asamblea se realizará el tercer viernes de febrero de cada año, y para efectos de convocatoria la Junta del Fondo enviará a cada trabajador con ocho (8) días hábiles de anticipación la convocatoria con la agenda incluida. La administración entregará previo a la Asamblea a cada afiliado una copia de los estados financieros con cierre del último período.
+La Asamblea podrá reunirse extraordinariamente a solicitud de la Junta Administrativa del Fondo o con la firma de al menos el diez por ciento (10%) de los afiliados al Fondo.

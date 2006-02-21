@@ -1,0 +1,2 @@
+Artículo 53.—Del quórum. El quórum se conformará con la presencia de tres de los Directivos. Iniciada la sesión se dará un plazo de quince (15) minutos de espera, si pasados quince minutos luego de la hora de inicio de la reunión el miembro titular no se hubiese presentado su suplente asumirá su lugar hasta que finalice la sesión.
+En caso de no existir quórum durante quince (15) minutos posterior a la hora fijada para la sesión, se levanta una acta con los directivos presentes y se suspende por falta de quórum.

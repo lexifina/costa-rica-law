@@ -1,0 +1,2 @@
+Artículo 41.—Los saldos acreditados a cada trabajador servirán de garantía privilegiada aplicable luego de un atraso de dos mensualidades consecutivas. Si aún así se mantienen saldos al descubierto se tramitará el cobro judicial.
+Todas las partes involucradas deben firmar un documento de autorización para que tanto los ahorros de los fiadores como de los deudores se apliquen por medio de la administración del Fondo, en caso de deudas pendientes, sean deudas del deudor o de los fiadores.

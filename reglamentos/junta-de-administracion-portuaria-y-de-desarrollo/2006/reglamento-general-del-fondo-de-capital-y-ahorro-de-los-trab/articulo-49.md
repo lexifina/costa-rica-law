@@ -1,0 +1,1 @@
+Artículo 49.—La Asamblea se reunirá en primera convocatoria con la mitad más uno de los asociados. En caso de que no se alcance dicho quórum, se reunirá en segunda convocatoria una hora después con los asociados presentes.

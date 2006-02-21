@@ -1,0 +1,1 @@
+Artículo 47.—Con el afán de estimular la participación de los asociados en las asambleas, el Fondo destinará un 1% del gasto administrativo para la compra de obsequios que se rifarán entre sus asociados.

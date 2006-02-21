@@ -1,0 +1,12 @@
+Artículo 31.—De los préstamos personales. Se establece la línea de PRESTAMO PERSONAL para utilizarlos en las necesidades personales de los asociados según lo que dispone a continuación:
+a) Para préstamos personales, los asociados cuya permanencia ininterrumpida como asociados sea mayor a seis meses y hasta un año, gozará de un crédito personal hasta dos salarios con un tope máximo de ¢300.000.00 colones.
+b) Los asociados cuya permanencia ininterrumpida sea mayor a un año y hasta un año y medio gozarán de crédito personal hasta por un máximo de tres salarios, con un tope máximo de ¢500.000.00 colones.
+c) Los asociados cuya permanencia ininterrumpida sea mayor a dos años y hasta tres años, tendrán derecho a un crédito personal de cuatro veces su salario, con un tope máximo de ¢750.000.00.
+d-1) Los asociados cuya permanencia ininterrumpida sea mayor a tres años tendrán derecho a un crédito personal hasta cinco veces su salario, con un tope máximo de ¢1.000.000.00 de colones.
+d-2) Los trabajadores cuya permanencia ininterrumpida sea mayor a seis años tendrán derecho a un crédito personal hasta diez veces su salario, con un tope máximo de ¢2.000.000.00 de colones.
+e) Así mismo, el socio que no tenga créditos pendientes podrá solicitar un préstamo personal sobre sus propios ahorros disponibles antes del 2000.
+Para efecto de este artículo se entenderá por salario el promedio mensual de los últimos tres meses del total devengado, excluyéndose solo lo correspondiente a plan vacacional, aguinaldo y bonificaciones que no aporten contribuciones al Fondo.
+Si el solicitante ya tuviera aprobado un crédito personal, sólo podrá edir uno nuevo, siempre y cuando haya cancelado como mínimo un 50% de su deuda. El Fondo rebajará el saldo pendiente del nuevo crédito otorgado.
+Podrá el asociado solicitar un préstamo personal igual o inferior a sus ahorros, dejando como única garantía los ahorros siempre que no tenga otros saldos pendientes en otras líneas de crédito. El tipo de interés para préstamos personales será del 12% sobre saldos y plazo máximo de 60 meses.
+El préstamo personal, podrá ser respaldado con garantía fiduciaria, con un mínimo de dos fiadores.
+El trabajador que al aprobarse su solicitud de crédito y en el momento no tiene capacidad de pago, autoriza al Fondo para que cancele sus deudas, siempre y cuando le quede liquidez para hacerle frente a su nueva deuda con el Fondo.

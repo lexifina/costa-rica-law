@@ -1,0 +1,8 @@
+Artículo 32.—De los préstamos de emergencia. Se otorgará préstamo de emergencia cuando se justifiquen debidamente ante el Fondo. Este rubro será para cubrir necesidades de emergencia que afecten directamente al núcleo familiar hasta tercer grado de consanguinidad.
+Para esta línea de crédito el préstamo tendrá como garantía los ahorros del afiliado en primera instancia debiendo el solicitante firmar pagaré a favor del Fondo. Sin embargo, cuando la situación lo amerita se pedirán garantías colaterales como fiadores. En todo caso para comprobar el uso del dinero deberán a más tardar un mes después, presentar los originales de las correspondientes facturas timbradas por los bienes o servicios adquiridos.
+En caso de que no presente los justificantes del caso se le aplicará la tasa de mercado.
+El tipo de interés para esta línea de crédito será del 12% anual sobre saldos, el plazo será hasta de (36) meses y el monto máximo hasta por ¢450.000.00 colones. Estos préstamos serán aprobados luego de verificados los requisitos con la firma de dos directivos propietarios.
+Se entiende por emergencias única y exclusivamente, los casos de enfermedad, muerte, tratamientos odontológicos y médicos, accidentes de tránsito y hechos de la naturaleza y aquellos casos muy calificados a criterio de la Junta Administradora del Fondo.
+Podrá optar por un segundo préstamo de emergencia, sin haber cancelado el primero, cuando se presente la causa de muerte dentro del núcleo familiar del primer grado de consanguinidad.
+El asociado podrá optar por un préstamo de emergencia después de haber transcurrido los tres meses de prueba en la Institución – JAPDEVA.
+El préstamo de emergencia, podrá ser respaldado con garantía fiduciaria, con un mínimo de dos fiadores.

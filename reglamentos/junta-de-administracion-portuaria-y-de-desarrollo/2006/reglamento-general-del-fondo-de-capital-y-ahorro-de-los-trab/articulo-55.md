@@ -1,0 +1,2 @@
+Artículo 55.—Del desarrollo de la sesión. Una vez instalada la sesión en la forma enumerada en los artículos anteriores, el Presidente la dirigirá tratando de conservar el mayor orden posible, pero siempre en estricto apego a la normativa vigente y guardando el respeto a sus compañeros y demás personas citadas a la sesión.
+El conocimiento y aprobación de los créditos deberá darse en estricto apego de las prioridades fijadas en el artículo 24, del capítulo IV, de los préstamos.
