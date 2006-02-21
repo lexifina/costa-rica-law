@@ -1,0 +1,1 @@
+Artículo 12.—La anterior compensación económica equivale a una suma de hasta un 25% (veinticinco por ciento) adicional sobre el salario base de cada trabajador que califique y que desee acogerse a la disponibilidad, para lo cual deberá realizar la solicitud ante la Oficina de Personal.
