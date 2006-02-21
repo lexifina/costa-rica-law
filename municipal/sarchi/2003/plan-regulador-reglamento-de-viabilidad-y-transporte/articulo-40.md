@@ -11,3 +11,4 @@ VTL | 1-2 | 2.75 | -- | -- | 7 | 9 | 2.75 | 0.50 | 1.25 | 2.0 | 200 | 30
 SUR | -- | -- | -- | -- | 6 | -- | 3.0 | -- | 1.25 | 2.0 | -- | 30
 VUE | 1 | 3.5 | -- | -- | 14 | -- | 3.5 | 1.5 | 4.0 | 3.0 | -- | 20
 VPN: Vía Primaria Nacional. VSN: Vía Secundaria Nacional. VPL: Vía Primaria Local. VSL: Vía Secundaria Local. VTL: Vía Terciaria Local. VUE: Vía Urbana Especial. SUR: Servidumbre Urbana y Rural. Q: Cantidad de carriles (a cada lado). Dm: Dimensión. C: Calzada (a cada lado). AV: Área verde. AC: Acera. RE: Retiro. DPP: Distancia Promedio de Paradas. VP: Velocidad promedio
+NOTA DE SINALEVI: En sesión N° 189 del 21 de febrero del 2006, se establece que el derecho de vía mínimo de las servidumbres urbanas y rurales será el que señala el Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones.
