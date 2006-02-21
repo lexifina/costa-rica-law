@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE CARTAGO
+El Concejo Municipal de la Municipalidad del cantón central de Cartago, por medio del acuerdo Nº 11, del acta 265-06, de la sesión celebrada el día 10 de enero del 2006, acordó: que la Municipalidad del cantón central de Cartago se adhiere al nuevo Manual de Valores Base Unitarios por Tipología Constructiva, publicado en el Diario Oficial La Gaceta N° 243, Alcance N° 48, del 16 de diciembre del 2005.
