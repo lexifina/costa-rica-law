@@ -1,4 +1,5 @@
 Artículo 61.—Los usos permitidos y condicionales establecidos para la ZCO, deberán cumplir con las siguientes regulaciones mínimas. Asimismo, deberán aplicarse todas las regulaciones específicas establecidas en otras leyes y reglamentos vigentes.
+NOTA DE SINALEVI: En sesión N° 189 del 21 de febrero del 2006, se modifica para la zona comercial (ZCO), lo siguiente:"el retiro frontal será de 3 m, o bien de 6 m sólo cuando el lote sea mayor a 300 m2; no se solicitan retiros laterales y el frente mínimo será de 8 m. En esta zona los requisitos para uso residencial serán: área mínima de lote residencial 200 m2; frente mínimo de lote de 8 m; retiro frontal de 3 m; retiro posterior de 3 m; retiro laterales según lo indicado en el Reglamento para el Control nacional de Fraccionamientos y Urbanizaciones; altura máxima de 12 m o 2 pisos; la cobertura máxima será del 60% y el área verde mínima de 40%."
 Variable | Requisito
 Área mínima de lote | 200 m²
 Retiro Frontal mínimo (m) | 5

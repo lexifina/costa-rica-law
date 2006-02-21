@@ -107,7 +107,8 @@ Artículo 47.—Los usos de la tierra son los fines particulares a los que puede
 106. Micro y pequeña industria.
 107. Minisupermercado.
 108. Mirador.
-109. Mueblería y/o colchonería (fabricación).
+109. Mueblería, Colchonería, Espumas (fabricación)
+(Así reformado el inciso anterior en sesión N° 189 del 21 de febrero del 2006)
 110. Museo.
 111. Oficina de gobierno central.
 112. Oficina institucional.
@@ -164,7 +165,8 @@ Artículo 47.—Los usos de la tierra son los fines particulares a los que puede
 163. Templo.
 164. Terminal de autobuses.
 165. Terminal de taxis.
-166. Torres de radiodifusión, radioemisoras, televisoras.
+166. Torres de radiodifusión, radioemisoras, televisoras, torres de transmisión eléctrica y similares.
+(Así reformado el inciso anterior en sesión N° 189 del 21 de febrero del 2006)
 167. Venta de automotores.
 168. Verdulería.
 169. Vivero.

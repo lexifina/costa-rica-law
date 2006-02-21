@@ -1,4 +1,5 @@
 Artículo 55.—Los usos permitidos establecidos para la ZMRC, deberán cumplir con las siguientes regulaciones mínimas. Asimismo, deberán aplicarse todas las regulaciones específicas establecidas en otras leyes y reglamentos vigentes.
+NOTA DE SINALEVI: En sesión N° 189 del 21 de febrero del 2006, se modifica para la zona mixta residencial comercial (ZMCR), lo siguiente: " establecer como área mínima de lote residencial 200 m2, con 8 m de frente mínimo y retiro posterior de 3 m. En los usos comerciales y de servicios un frente mínimo de 8 m, retiro frontal de 3 m, o 6 m en lotes mayores a 300 m2, y cobertura máxima de 75%. "
 Variable | Usos
 | Habitacional Unifamiliar | Comercial y servicios | Habitacional Multifamiliar
 Superficie mínima de Lote (m²) | 300 | 200 | 1000

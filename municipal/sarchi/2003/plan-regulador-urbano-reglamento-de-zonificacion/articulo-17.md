@@ -1,1 +1,2 @@
-Artículo 17.—En el caso de que la DDU lo requiera, se podrá solicitar a los desarrolladores de actividades productivas, ampliación de los requisitos o normativas establecidos en leyes, reglamentos o decretos particulares, a fin de garantizar la viabilidad ambiental de la actividad y que esta no actúe en detrimento de los objetivos del Plan Regulador.
+Artículo 17.—En el caso de que la DDU lo requiera, se podrá solicitar a los desarrolladores de actividades productivas y con base en fundamentos técnicos, los requisitos e información que considere necesarios para garantizar la salud y la seguridad ambiental y humana y para que la actividad no actúe en detrimento de los objetivos del Plan Regulador.
+(Así reformado en sesión N° 189 del 21 de febrero del 2006)

@@ -1,1 +1,2 @@
-Artículo 32.—Posterior a la publicación y entrada en vigencia de este Reglamento, los proyectos aprobados tendrán una vigencia de hasta un año natural para llevarlos a cabo; de no ser así, el interesado debe tramitar la renovación correspondiente, siempre y cuando el proyecto no contravenga la zonificación establecida en el Plan Regulador y específicamente, con las restricciones establecidas para la zona particular en la cual se proponga.
+Artículo 32.—En el caso de los proyectos tramitados y no ejecutados antes de la entrada en vigencia del Plan Regulador, deberán tramitar la renovación correspondiente a fin de ajustarse a las normas del Plan Regulador.
+(Así reformado en sesión N° 189 del 21 de febrero del 2006)

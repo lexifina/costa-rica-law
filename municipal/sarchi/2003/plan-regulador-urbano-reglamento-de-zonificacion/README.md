@@ -14,3 +14,4 @@ Plan Regulador urbano: Reglamento de zonificación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-08 | la propia norma |
+| 2 | 2006-02-21 | Reglamento municipal 189 (2006-02-21) |

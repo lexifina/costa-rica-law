@@ -1,4 +1,5 @@
 Artículo 81.—Los usos permitidos establecidos para la Zona Agroecoturística Residencial, deberán cumplir con las siguientes regulaciones mínimas. Asimismo, deberán aplicarse todas las regulaciones específicas establecidas en otras leyes y reglamentos vigentes.
+NOTA DE SINALEVI: En sesión N° 189 del 21 de febrero del 2006, se modifica para la zona agroecoturística residencial (ZAER), lo siguiente:"establecer 500 m2 de área mínima para uso residencial en lotes que enfrenten a calle pública existente antes de la entrada en vigencia del Plan Regulador, así como un área mínima de 3000 m2 para los usos comerciales y de servicios en esta misma condición. Para el caso de los usos comerciales, residencial y de servicios la altura máxima será de 12 m".
 Variable | Categorías
 | CC | HO | IC | CO | SP | ED | OI | VI | GP
 Superficie mínima de Lote (m2) | 20000 | 10000 | 5000 | 2000 | 2500 | 10000 | 5000 | 3000 | 10000
