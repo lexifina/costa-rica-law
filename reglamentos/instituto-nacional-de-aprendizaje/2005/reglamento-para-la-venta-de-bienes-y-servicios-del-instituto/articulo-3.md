@@ -1,0 +1,16 @@
+Artículo 3º—Definiciones. Para los fines del presente Reglamento se entenderá por:
+ASISTENCIA TÉCNICA: Se entiende por asistencia técnica, el suministro de información y documentación, la realización de investigaciones o estudios, la presentación de servicios de asesores, consultores, expertos y docentes, el préstamo o arriendo de instalaciones, equipos y materiales didácticos y toda otra acción análoga relacionada con la creación, estructuración y funcionamiento de servicios de capacitación y formación profesional a instituciones o empresas.
+COMISION CENTRAL DE VENTAS: Es el órgano colegiado institucional responsable de emitir directrices y políticas en relación con la Venta de Bienes y Servicios en el INA.
+COMISION LOCAL DE VENTAS: Es el órgano colegiado responsable de administrar la venta de bienes y servicios a lo interno de cada Centro de Formación.
+BIEN: Objeto o cosa producida por medio de la transformación de los insumos, que posee valor agregado.
+BIEN PERECEDERO: Bien que tiene un periodo de conservación corto, en especial los alimentos, el término perecedero se aplica también a los servicios como una de sus características diferenciales, dado que si no se usan cuando están disponibles no pueden guardarse o almacenarse para su utilización.
+SERVICIO: Actividades, por lo general intangibles, realizadas por las entidades públicas y privadas, personas físicas y jurídicas, para proveer unas u otras.
+PRECIO DE MERCADO: Valor monetario de un bien o servicio según la libre competencia.
+PRECIO DE COSTO: Precio de costo se entiende como el valor que se derive de los materiales utilizados, más un diez por ciento del valor de los mismos, por concepto de gastos de administración, sin que se incluya el valor de la mano de obra prestada por funcionarios o alumnos de la Institución.
+PRECIO SIMBÓLICO: Es el veinte por ciento del precio de costo.
+NÚCLEO DE FORMACIÓN Y SERVICIOS TECNOLÓGICOS: Unidad desconcentrada técnicamente que facilita la convergencia de diferentes actores de la Formación Profesional de un área especializada, con el fin de incrementar la calidad, productividad y competitividad empresarial mediante la Capacitación y Formación Profesional y la adaptación y transferencia de tecnología.
+CENTRO DE FORMACIÓN: Área física instalada y equipada para la ejecución de los servicios de formación profesional para atender los requerimientos de los sectores económicos del país. De acuerdo con sus características los Centro de Formación pueden ser polivalentes, especializados o de desarrollo tecnológico.
+UNIDAD PRODUCTIVA: Unidad Administrativa dedicada a la transformación de los insumos en un bien o a proveer un servicio.
+SERVICIOS DE FORMACIÓN PROFESIONAL: Son los productos técnicos, tecnológicos y metodológicos derivados de la identificación de necesidades y requerimientos en formación profesional y del proceso de diseño de los mismos.
+SERVICIOS TECNOLÓGICOS: Conjunto de acciones especializadas y concertadas que ofrece una entidad orientadas a incrementar la innovación, la productividad, la eficiencia y el mejoramiento de la calidad de las empresas.
+TRANSFERENCIA TECNOLÓGICA: Transmisión o traspaso sistemático de los conocimientos científicos, tecnológicos y técnicos necesarios para diseñar o fabricar, un bien, realizar un proceso de producción o prestar un servicio.

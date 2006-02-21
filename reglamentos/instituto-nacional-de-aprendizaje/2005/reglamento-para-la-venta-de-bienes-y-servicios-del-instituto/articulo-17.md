@@ -1,0 +1,1 @@
+Artículo 17.—De la prestación de servicios. Los bienes y servicios tecnológicos serán realizados con el personal técnico especializado, entendido como personal de planta del INA y los recursos materiales con que cuenta cada Centro de Formación, acatando los lineamientos emanados de la Comisión Central de Ventas.

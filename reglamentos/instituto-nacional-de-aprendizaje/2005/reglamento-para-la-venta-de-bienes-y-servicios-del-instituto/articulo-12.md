@@ -1,0 +1,1 @@
+Artículo 12.—Lugar de cancelación. Las personas que adquieran un bien o servicio derivado de las actividades didácticas deberán cancelar el monto en efectivo, en las Cajas o cuentas bancarias de la Institución, o bien con la persona encargada de la venta. Solamente con la factura con sello de cancelado, podrá retirar el producto o servicio.

@@ -1,0 +1,1 @@
+Artículo 19.—Formas de pago. La remuneración de los bienes y servicios tecnológicos, debe realizarse en dinero en efectivo, que deberá cancelarse en las cajas de la institución o en las cuentas bancarias que para tal efecto disponga el INA, siguiendo los procedimientos que se definirán en el respectivo Manual de Procedimientos.

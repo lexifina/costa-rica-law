@@ -1,0 +1,1 @@
+Artículo 8º—Presentación de solicitudes. Las personas físicas o jurídicas, interesadas en adquirir algún producto o servicio, derivados de la función didáctica, debe realizar los trámites necesarios por medio del Centro de Formación.

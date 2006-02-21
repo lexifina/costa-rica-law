@@ -1,0 +1,1 @@
+Artículo 33.—Derogación del reglamento anterior. El presente Reglamento deroga el Reglamento para la venta de productos y servicios derivados de actividades educativas en el INA, publicado el primero de mayo de 1987 en el Diario Oficial La Gaceta.

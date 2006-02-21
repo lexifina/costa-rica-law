@@ -1,0 +1,1 @@
+Artículo 9º—Bienes requeridos por el INA. La persona encargada del Centro de Formación deberá comunicar a la Comisión Institucional respecto de los bienes producidos a efecto de que esta determine si son requeridos por el INA, salvo si se trata de bienes perecederos, en cuyo caso serán vendidos en el Centro de Formación en que se produzcan.
