@@ -14,3 +14,4 @@ Manual de Normas y Procedimientos de Publicaciones en los Diarios Oficiales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-20 | la propia norma |
+| 2 | 2006-02-22 | Reglamento 82 (2006-02-22) |

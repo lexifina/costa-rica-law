@@ -1,1 +1,1 @@
-Artículo 9.—La Imprenta Nacional conservará los documentos originales que se han publicado en cada diario, durante un periodo de seis meses. Después de ese lapso la Administración procederá a destruirlos y no aceptará ningún reclamo por errores en las publicaciones.
+Artículo 9.—Así Derogado en sesión N° 82 del 22 de febrero del 2006.
