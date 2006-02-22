@@ -1,0 +1,1 @@
+Artículo 3º—La Dirección General del SINABI a través de la Dirección de Bibliotecas Públicas, es la responsable que se lleve a cabo el expurgo y descarte del material documental y velará porque las bibliotecas públicas cumplan con las políticas y procedimientos establecidos en este Reglamento.
