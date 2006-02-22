@@ -1,0 +1,19 @@
+COMERCIO EXTERIOR
+Con fundamento en el artículo 2 de la Ley de Creación del Ministerio de Comercio Exterior y Creación de la Promotora del Comercio Exterior de Costa Rica, Ley Nº 7638 publicada en La Gaceta Nº 218 del 13 de noviembre de 1998, en el artículo 6 inciso h) del Reglamento Orgánico del Ministerio de Comercio Exterior, Decreto Ejecutivo Nº 28471-COMEX publicado en La Gaceta Nº 43 del 1 de marzo del 2000 y en las disposiciones del Reglamento General sobre la Asignación y Distribución de Contingentes Arancelarios de Importación, Decreto Ejecutivo Nº 30900-COMEX-MAG del 20 de diciembre de 2002, reformado por el Decreto Ejecutivo Nº 32237-COMEX-MAG, de fecha 8 de febrero del 2005 procede a comunicar a los interesados lo siguiente:
+Contingentes de Importación otorgados al amparo del TLC con Canadá, Chile, México
+y los compromisos de la OMC correspondientes al año 2006
+Por lo extenso de su contenido y tipo de formato ver páginas 25 a la 28 en La Gaceta impresa N° 38 del 22 de febrero del 2006.
+- Es estrictamente necesario que el importador solicite un certificado de importación a la Dirección de Aplicación de Acuerdos Comerciales Internacionales (DAACI) de COMEX, para cada vez importación amparada al contingente arancelario que le fue asignado. Dicho certificado deberá ser entregado en el puesto aduanero en el momento del despacho de la mercancía. COMEX también transmitirá los indicados certificados al sistema Tecnología de Información para el Control Aduanero (TIC@).
+-El importador que desea aplicar un contingente deberá clasificar las mercancías en el inciso arancelario legalmente aplicable y previsto para estos efectos en la declaración aduanera. Asimismo, deberá especificar el peso neto para cada producto que vaya a importar bajo contingente, ya sea en la casilla 15, en la casilla de observaciones si se trata de varias líneas o si la importación se realiza bajo el sistema TIC@.
+-Para el caso de las importaciones de papa congelada prefrita del tipo french fries, procedentes de Canadá, deberá presentarse adicionalmente, una declaración jurada emitida por el exportador canadiense, en donde se indique que el producto es efectivamente papa tipo “french fries”, y que es clasificable bajo la subpartida 200410.
+-Los volúmenes de remantes, resultantes de la presente asignación se encuentran a disposición de los interesados. La asignación de los indicados volúmenes, se efectuará siguiendo el orden diario de presentación de las respectivas solicitudes. Si el volumen total solicitado por los interesados es inferior al volumen disponible, COMEX asignará a cada solicitante el volumen solicitado; caso contrario la asignación se hará en forma proporcional entre los solicitantes que hayan presentado el mismo día y dentro del horario oficial de labores de COMEX, de 7 a.m a 4 p.m, su respectiva solicitud.
+-Los interesados en participar en la asignación de alguno de los contingentes arriba descritos deberán presentar una solicitud por escrito especificando:
+a) identificación del solicitante, incluyendo una descripción de su actividad económica;
+b) en el caso de las personas físicas, copia de la identificación oficial;
+c) en el caso de las personas jurídicas, copia de la cédula jurídica acompañada de una certificación de personería vigente;
+d) descripción detallada del contingente de importación en el cual desea participar. Las solicitudes referidas a los contingentes creados al amparo de un tratado de libre comercio deberán indicar, además, el país de origen del producto;
+e) descripción del producto y la clasificación arancelaria correspondiente;
+f) volumen de importación solicitado y
+g) fax designado para efectuar las notificaciones.
+Para mayor información comunicarse con Leonor Obando, en la DAACI al teléfono 299-4924.
+San José, 17 de febrero del 2006
