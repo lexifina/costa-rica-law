@@ -1,0 +1,1 @@
+3º—El feriado 11 de abril, día de la heroica hazaña de Juan Santamaría, será disfrutado el lunes 17 de abril del 2006, salvo que en alguna oficina se hiciera difícil dejar de laborar el lunes o no se pudiera cerrar durante el fin de semana, en cuyo caso el disfrute se trasladará para la fecha en que convenga mejor a la oficina de que se trate, en coordinación con los servidores.

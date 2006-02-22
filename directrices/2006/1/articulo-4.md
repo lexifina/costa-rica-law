@@ -1,0 +1,2 @@
+4º—Los centros educativos en todo el país celebrarán las festividades patrias correspondientes al 11 de abril, el viernes anterior, sea el día 7 de abril, en aplicación analógica de lo que dispone el artículo 148 del Código de Trabajo, cuando el feriado que se traslada cae el lunes, y tomando en cuenta que las celebraciones cívicas en Semana Santa resultan inapropiadas y poco prácticas.
+Dada en el Despacho del Ministro.—San José, a los catorce días del mes de febrero del dos mil seis.
