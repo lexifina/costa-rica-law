@@ -1,0 +1,1 @@
+Artículo 2º—Las dependencias mencionadas en el artículo 1°, deberán cumplir con pautar con el Sinart S. A., en el monto legalmente establecido, a los efectos de no hacerse acreedores a las sanciones previstas en la Ley General de la Administración Pública.
