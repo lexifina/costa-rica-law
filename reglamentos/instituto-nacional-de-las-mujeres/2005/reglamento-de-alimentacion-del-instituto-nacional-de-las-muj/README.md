@@ -14,3 +14,4 @@ Reglamento de alimentación del Instituto Nacional de las Mujeres (INAMU)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-28 | la propia norma |
+| 2 | 2006-02-23 | Acuerdo 2 (2006-02-23) |
