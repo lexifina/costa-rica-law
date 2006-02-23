@@ -1,0 +1,1 @@
+Artículo 46.—Es deber de las unidades administrativas de las dependencias de la Institución, enviar copia al expediente personal de los funcionarios (as), de aquellas gestiones que dentro de su ámbito de competencia, pueden generar actos jurídico-administrativos.

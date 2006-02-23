@@ -1,0 +1,1 @@
+Artículo 154.—Se considera como ausencia, la inasistencia injustificada al trabajo durante la jornada laboral completa. La inasistencia injustificada durante una fracción de la jornada laboral se computará como la mitad de una ausencia. En ningún caso, se pagará el salario que corresponde, a las ausencias injustificadas.

@@ -1,0 +1,2 @@
+Artículo 19.—Deber de objetividad: El servidor (a) siempre debe emitir juicios objetivos sin influencias de criterios personales o de terceros no autorizados por la autoridad administrativa y se abstendrá de participar en cualquier decisión cuando exista violencia moral sobre él, que pueda hacerle incumplir con su deber de objetividad.
+Queda a salvo su deber de obediencia al superior en los términos previstos en la Ley General de la Administración Pública.

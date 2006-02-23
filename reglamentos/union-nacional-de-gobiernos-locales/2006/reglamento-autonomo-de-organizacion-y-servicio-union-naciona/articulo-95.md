@@ -1,0 +1,1 @@
+Artículo 95.—Cualquier infidencia de una persona encargada de trámite o de cualquier otro funcionario (a) vinculado (a) directa o indirectamente con el procedimiento, se considerará falta grave de acuerdo con las disposiciones de este Reglamento.

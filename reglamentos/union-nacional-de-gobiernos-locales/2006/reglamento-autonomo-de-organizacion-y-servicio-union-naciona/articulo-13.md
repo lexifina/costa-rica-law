@@ -1,0 +1,1 @@
+Artículo 13.—Deber de probidad: Todo servidor (a), debe de actuar con honradez, en especial cuando haga uso de los recursos públicos que le son confiados para el cumplimiento de los fines de la institución o cuando participe en actividades o negocios de la administración y que comprometen esos recursos.

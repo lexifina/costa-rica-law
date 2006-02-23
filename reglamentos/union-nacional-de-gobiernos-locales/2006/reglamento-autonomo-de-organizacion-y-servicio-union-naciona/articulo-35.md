@@ -1,0 +1,4 @@
+Artículo 35.—Para integrar a la nómina de elegibles se requiere:
+a) Cumplir los requisitos que establezca el Manual de Puestos y Normas de Reclutamiento y Selección de Personal, definida en dicho Manual someterse a las pruebas que disponga la Unidad especializada para tal efecto, la unidad especializada en esta materia debe de cumplir con los conocimientos, aptitudes y destrezas necesarias para tal fin, así como tener la oficialidad de ejercicio en este caso el Colegio de Profesionales en Ciencias Económicas.
+b) Someterse a las pruebas que disponga la Unidad especializada para este efecto.
+c) No tener parentesco hasta el tercer grado de consanguinidad o afinidad con ningún miembro de la Junta Directiva, o del Director (a) Ejecutiva de la institución, tal y como lo establece el artículo 127 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 106.—El tiempo laborado que exceda las jornadas ordinarias anteriormente señala, constituye tiempo extraordinario y debe ser remunerado atendiendo los siguientes aspectos y de acuerdo a las disposiciones enmarcadas en el Reglamento sobre uso y control de horas extraordinarias.

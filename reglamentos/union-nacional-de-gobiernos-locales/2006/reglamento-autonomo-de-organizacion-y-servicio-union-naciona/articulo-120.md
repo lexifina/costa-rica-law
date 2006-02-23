@@ -1,0 +1,1 @@
+Artículo 120.—Cuando el servidor (a) desempeñe labores técnicas o profesionales que dificulten su reemplazo, podrá la institución acumularle las vacaciones por un período. Es obligación de todo (a) responsable institucional, el no permitir que se acumulen dos o más períodos de vacaciones.

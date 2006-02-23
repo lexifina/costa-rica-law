@@ -1,0 +1,1 @@
+Artículo 67.—Si persistiere la inconformidad del servidor, este podrá apelar ante la Dirección Ejecutiva, de acuerdo al artículo 161 del Código Municipal, previa audiencia a todas las partes interesadas.

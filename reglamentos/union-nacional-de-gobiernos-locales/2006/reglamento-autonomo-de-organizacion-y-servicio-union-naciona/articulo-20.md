@@ -1,0 +1,1 @@
+Artículo 20.—Deber de comportarse con decoro y respeto: Todo servidor (a) debe ser justo (a), cuidadoso (a) y cortés en el trato con los usuarios del servicio, sus jefes, colaboradores y compañeros (as).

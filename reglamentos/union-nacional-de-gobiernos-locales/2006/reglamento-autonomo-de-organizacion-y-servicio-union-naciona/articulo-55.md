@@ -1,0 +1,2 @@
+Artículo 55.—Las jefaturas o encargados también podrán en las condiciones anteriores, solicitar en beneficio de sus subalternos la reasignación de cualquier puesto.
+Recibida la solicitud, la Unidad de Recursos Humanos procederá al estudio respectivo en un plazo no mayor de sesenta días, sometiendo su resultado al conocimiento y resolución de la Dirección Ejecutiva. Lo resuelto por esta y la Unidad de Recursos Humanos le será comunicada al petente dentro de los cinco días posteriores a aquel en que se adopte la decisión.

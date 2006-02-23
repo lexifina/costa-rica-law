@@ -1,0 +1,1 @@
+Artículo 186.—Las sanciones descritas en este capítulo, serán aplicadas por la Dirección Ejecutiva o quien esta designe para tal fin, conforme al procedimiento que establece el Artículo 150 del Código Municipal y cualquier otra norma expresa, referente a la materia.

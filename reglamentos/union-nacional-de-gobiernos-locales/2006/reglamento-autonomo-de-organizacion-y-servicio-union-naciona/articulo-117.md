@@ -1,0 +1,2 @@
+Artículo 117.—Del total que le corresponde, el servidor (a) deberá disfrutar al menos de quince días hábiles cada año, período que es incompensable.
+Cuando el servidor (a) lo solicite, y la institución así lo acepte por razones de conveniencia institucional y exista disponibilidad presupuestaria, se podrá compensar económicamente el resto de las vacaciones a que tiene derecho el servidor (a) en forma total o parcial.

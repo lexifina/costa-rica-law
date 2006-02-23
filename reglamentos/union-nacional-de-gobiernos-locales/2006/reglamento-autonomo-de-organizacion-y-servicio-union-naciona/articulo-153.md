@@ -1,0 +1,1 @@
+Artículo 153.—Incurrirá en falta grave el servidor que por dolo o complacencia, marque una tarjeta ajena o que maliciosamente altere el sistema establecido para tal efecto, mutile o la haga desaparecer en aquellos casos en que aún se mantiene este sistema o el que este habilitado; como también el que dañe o altere los otros medios de control que pudiesen existir.

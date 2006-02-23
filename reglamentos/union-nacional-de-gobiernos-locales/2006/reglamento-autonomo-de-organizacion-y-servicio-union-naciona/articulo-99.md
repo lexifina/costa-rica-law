@@ -1,0 +1,2 @@
+Artículo 99.—Para la valoración de las pruebas, se tomará en consideración todos los elementos indicados aportados, dentro de los que se contemplarán todos aquellos a que se refieren a las alteraciones provocadas por los hechos que se denuncian, en el estado de ánimo de la persona que presenta la denuncia, así como en su desempeño, cumplimiento y dinámica laboral.
+El Órgano de procedimiento no podrá emitir valoración alguna sobre la vida personal del (la) denunciante.

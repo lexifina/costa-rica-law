@@ -1,0 +1,1 @@
+Artículo 137.—Los funcionarios (as) podrán acogerse al pago por concepto de prohibición, Dedicación Exclusiva y tendrán derecho al pago del la Carrera Profesional de conformidad con la normativa vigente.

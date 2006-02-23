@@ -1,0 +1,1 @@
+Artículo 59.—La Institución debe mantener actualizado el Manual de Puestos y efectuar un estudio integral de los mismos cuando sea necesario, conforme y lo establece el artículo 120 del Código Municipal.

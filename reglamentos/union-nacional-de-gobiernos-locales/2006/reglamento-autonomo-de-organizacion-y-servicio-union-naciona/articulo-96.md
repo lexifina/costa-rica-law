@@ -1,0 +1,1 @@
+Artículo 96.—Conformado el trámite y levantada la información, este dará ocho días hábiles a la persona denunciante para que amplíe o aclare los términos de la denuncia y se pronuncie con respecto a los mismos.

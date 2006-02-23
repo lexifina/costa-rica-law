@@ -1,0 +1,5 @@
+Artículo 63.—La evaluación y calificación de servicios, deberá darse a los servidores (as) nombrados (as) en propiedad que durante el año hayan trabajado continuamente.
+Cuando el servidor (a) no haya completado un año de prestar servicios en el momento de la evaluación, se observará las siguientes reglas:
+a) El servidor (a) que durante el respectivo período de evaluación y calificación de servicios anual haya cumplido el período de prueba pero no haya completado un semestre de prestación de servicios, será calificado provisionalmente, pero deberá calificársele en forma definitiva durante la primera quincena del mes de enero siguiente, de no reformarse la calificación provisional en este período, será considerada definitiva.
+b) Si el servidor (a) ha estado menos de un año, pero más de seis meses a las órdenes de un mismo coordinador, a él le corresponderá evaluarlo.
+c) Si el servidor (a) ha estado a las órdenes de varios coordinadores durante el año pero con ninguno por más de seis meses, lo evaluará y calificará el último coordinador con quien trabajó tres meses o más.

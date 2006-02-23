@@ -1,0 +1,5 @@
+CAPÍTULO XXVII
+El salario, aguinaldo y cesantía
+Artículo 131.—Las categorías de los puestos y la escala salarial correspondientes a los mismos en ningún caso podrán ser inferiores a los mínimos legales establecidos por el Ministerio de Trabajo y Seguridad Social.
+La escala de salario será aprobada por el Concejo Directivo de acuerdo a lo establecido en los artículos 120, 121, 122 del Código Municipal.
+Se establece el monto por pago de anualidades en un porcentaje del 3% sobre el salario base asignado a cada uno de los puestos fijos de la institución, así mismo se podrán reconocer los años de servicio prestados por los funcionarios en otras instituciones de carácter público, conforme a las certificaciones o constancias dictadas por las instituciones donde los mismos hayan laborados, el procedimiento que debe de aplicarse en este caso se determinará conforme al tiempo total servidor por el funcionario (a) en otras instituciones, contemplando años servidos y las fracciones de meses estipuladas en la constancia o certificación respectiva, el mismo será valido para todos los efectos.

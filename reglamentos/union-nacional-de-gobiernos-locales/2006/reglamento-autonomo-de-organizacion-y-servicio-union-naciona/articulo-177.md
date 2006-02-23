@@ -1,0 +1,1 @@
+Artículo 177.—Toda citación que para los efectos del artículo anterior se curse, deberá hacerse por escrito mediando entre la fecha en que se entrega y la fecha que aquel en que comparece, un plazo lógico de convocatoria, de al menos 3 días hábiles.

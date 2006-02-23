@@ -1,0 +1,1 @@
+Artículo 98.—Transcurrido el plazo anterior y en los próximos ocho días naturales, el Órgano de procedimiento o el encargado del trámite, documentarán y abrirá el expediente que incluya toda la prueba testimonial y documental ofrecida por las partes.

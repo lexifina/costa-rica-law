@@ -1,0 +1,1 @@
+Artículo 198.—Para los efectos del artículo 67 del Código de Trabajo, este Reglamento se tendrá expuesto en forma permanente, por lo menos en un sitio visible del centro de trabajo, y se le entregará copia debidamente aprobada y publicada a cada funcionario para su conocimiento y alcances del mismo.

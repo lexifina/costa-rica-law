@@ -1,0 +1,5 @@
+Artículo 100.—En el plazo de quince días naturales después de la comparecencia y evaluación de la prueba, el Órgano de procedimiento el encargado del trámite rendirá resolución sobre las conclusiones del trámite administrativo e propondrá las sanciones disciplinarias en caso de que considere probada la falta.
+Contra la resolución del Órgano del procedimiento cabrá recurso de revocatoria con apelación en subsidio, pudiendo presentar ambos recursos o solo uno de ellos, dentro del tercer día contado a partir del día siguiente de la notificación de la resolución.
+En segunda instancia, el Director Ejecutivo (a) conocerá de la disconformidad de cualquiera de las partes disponiendo de ocho días materiales para resolver en definitiva.
+La resolución final que proceda deberá dictarse dentro de un plazo que en ningún caso podrá exceder de tres meses contados a partir de la interposición de la denuncia.
+Agotados los procedimientos internos, se puede acudir a los tribunales laborales ordinarios, de conformidad con el artículo 18 de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, Ley Nº 7476.

@@ -1,0 +1,1 @@
+Artículo 28.—La Unión Nacional de Gobiernos Locales, mantendrá actualizado un Manual de Organización y Funcionamiento, cuya aplicación será responsabilidad del Director (a) Ejecutivo, conforme lo establece el artículo 121 del Código Municipal.

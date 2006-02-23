@@ -1,0 +1,1 @@
+Artículo 64.—Corresponde a cada encargado evaluar el desempeño de sus subalternos inmediatos, en caso de tenerlos con la Asesoría de la Unidad de Recursos Humanos y será notificada al servidor (a) dentro de los tres días hábiles siguientes de obtenido los resultados correspondientes.

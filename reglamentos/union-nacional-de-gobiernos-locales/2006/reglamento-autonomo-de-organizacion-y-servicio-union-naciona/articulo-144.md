@@ -1,0 +1,1 @@
+Artículo 144.—Cualquier mal uso o empleo de este recurso y que vayan en contra de la buena administración afectando los intereses institucionales contravendrá lo establecido en el artículo 147 del Código Municipal, inciso a) quedando tipificado como falta grave y conllevando las sanciones respectivas.

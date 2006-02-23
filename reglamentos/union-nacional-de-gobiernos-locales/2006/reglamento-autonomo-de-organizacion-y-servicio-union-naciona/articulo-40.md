@@ -1,0 +1,1 @@
+Artículo 40.—La publicación del concurso interno deberá consignar los requisitos del puesto, características y salario, que imprimirá en caracteres legibles y se colocará en los sitios más visibles de todos los funcionarios que trabajan para la institución, donde se mantendrá por un plazo no inferior a quince días anteriores a la fecha del cierre del concurso.

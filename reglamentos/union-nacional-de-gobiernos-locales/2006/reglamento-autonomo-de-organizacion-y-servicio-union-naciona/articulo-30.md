@@ -1,0 +1,1 @@
+Artículo 30.—La modificación de las relaciones de trabajo se efectuará mediante acción de personal expedida por la Dirección Ejecutiva o quien esta designe para tal efecto y autorizadas por el Director (a) Ejecutiva o el funcionario que éste (a) designe con la autoridad respectiva.

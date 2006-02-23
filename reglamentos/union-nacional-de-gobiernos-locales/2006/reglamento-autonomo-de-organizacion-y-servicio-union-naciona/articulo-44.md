@@ -1,0 +1,1 @@
+Artículo 44.—El expediente personal deberá contener todos aquellos documentos y datos que sirvan para determinar el historial de la relación de servicios y será responsabilidad del funcionario (a) el actualizar su expediente.

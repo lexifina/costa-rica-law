@@ -1,0 +1,1 @@
+Artículo 39.—Cuando resulte necesario realizar un concurso interno por oposición, la unidad especializada en Recursos Humanos publicará su apertura en el momento que lo considere conveniente y a solicitud de la Dirección Ejecutiva o el Concejo Directivo según corresponda.

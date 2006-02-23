@@ -1,0 +1,1 @@
+Artículo 110.—La concesión de un asueto lo dispone el Concejo Directivo de conformidad con la Ley y el Director Ejecutivo (a) lo comunicará a los trabajadores. En ningún caso se considera dicho otorgamiento como un derecho adquirido.
