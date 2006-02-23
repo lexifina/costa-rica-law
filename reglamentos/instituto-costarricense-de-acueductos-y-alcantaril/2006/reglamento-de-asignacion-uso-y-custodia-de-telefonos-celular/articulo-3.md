@@ -1,0 +1,6 @@
+CAPITULO II
+De la asignación del teléfono celular y/o radiolocalizador
+Artículo 3º—Quedan autorizados en razón de los puestos que desempeñan, para la asignación de teléfonos celulares y/o radiolocalizadores propiedad del AYA, los siguientes funcionarios: Presidente Ejecutivo, Gerente General, Subgerente General, Auditor y Subauditor.
+Si en razón de sus funciones, otros funcionarios requieren contar con un teléfono celular y/o radiolocalizador propiedad del AYA, éste debe ser autorizado por la Gerencia; para lo cual es necesario fundamentar debidamente los motivos de necesidad y conveniencia institucional.
+Las solicitudes para otorgar telefonía móvil y/o radiolocalizador, deben ser suscritas por el Superior Jerárquico del funcionario que va a ser el responsable, demostrando la necesidad evidente y manifiesta, que el mismo constituye un instrumento de trabajo para facilitar el mejor desempeño de sus funciones. Queda a criterio de la Gerencia, valorar si procede cualquier solicitud formulada por el mismo servidor que va a ser responsable.
+La asignación y uso de teléfonos celulares y/o radiolocalizadores, se debe sujetar a los principios de razonabilidad, racionalidad y en general a las prácticas de una sana administración de los fondos públicos.

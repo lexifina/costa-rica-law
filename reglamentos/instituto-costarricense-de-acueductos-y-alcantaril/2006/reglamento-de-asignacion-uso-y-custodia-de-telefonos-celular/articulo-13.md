@@ -1,0 +1,1 @@
+Artículo 13.—El teléfono celular y/o radiolocalizador es de uso exclusivo del funcionario responsable, por lo cual, el incumplimiento comprobado de esta obligación se considerará falta grave, y se le suspenderá inmediatamente el otorgamiento del mismo, sin perjuicio de cualquier otro tipo de responsabilidad que conforme al ordenamiento jurídico le sean endilgadas.
