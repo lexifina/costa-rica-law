@@ -1,0 +1,1 @@
+Artículo 7º—Lo equipos de cómputo no podrán ser trasladados a oficinas externas a la Municipalidad, así como los programas originales informáticos, exceptuando el equipo portátil que por su naturaleza es específico para dicha función.

@@ -1,0 +1,1 @@
+Artículo 17.—El jefe de cada oficina, en cualquier momento, podrá inspeccionar en compañía del Encargado de la Oficina de Cómputo, los equipos y programas almacenados en las computadoras ubicadas bajo su jefatura.

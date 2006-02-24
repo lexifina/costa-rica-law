@@ -1,0 +1,1 @@
+Artículo 19.—El Alcalde Municipal podrá solicitar a la Oficina de Cómputo una revisión técnica del equipo informático en las oficinas donde existan indicios de la utilización de programas utilizados sin la licencia correspondiente o contra lo dispuesto en este Reglamento.

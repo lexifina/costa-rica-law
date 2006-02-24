@@ -1,0 +1,1 @@
+Artículo 29.—Si el hecho se repitiere, se informará al Alcalde Municipal y a la Oficina de Recursos Humanos a fin de que se inicie el respectivo procedimiento disciplinario contra el funcionario responsable, de acuerdo con lo dispuesto en el Código Municipal.

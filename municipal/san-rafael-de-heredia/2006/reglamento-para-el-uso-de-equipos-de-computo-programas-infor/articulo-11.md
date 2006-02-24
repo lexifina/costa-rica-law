@@ -1,0 +1,1 @@
+Artículo 11.—Los archivos que se encuentran en el disco duro serán respaldados en un medio de almacenamiento externo de manera periódica por parte del Encargado de la Oficina de Cómputo al menos dos veces al año. No obstante, en algún momento a criterio del funcionario encargado de algún equipo podrá solicitarse a la Oficina de Cómputo un respaldo extraordinario.

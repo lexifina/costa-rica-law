@@ -1,0 +1,1 @@
+Artículo 14.—La Oficina de Cómputo será la encargada de instalar o fiscalizar la instalación de software, quedando bajo su criterio la desinstalación de los programas que considere no sean necesarios para los diferentes departamentos.

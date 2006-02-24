@@ -1,0 +1,1 @@
+Artículo 16.—Todos lo monitores de los equipos instalados en la institución deberán de utilizar como fondo de pantalla alguno que no pueda considerarse de carácter ofensivo y/o pornográfico, que atente contra la moral y las buenas costumbres o en caso contrario se deberán utilizar las imágenes incluidas por defecto en los sistemas operativos.

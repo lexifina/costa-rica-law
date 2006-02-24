@@ -1,0 +1,1 @@
+Artículo 27.—Los jefes de departamentos y demás oficinas de la Municipalidad velarán por el uso adecuado y el cuidado del equipo de cómputo, los programas y las herramientas informáticas que tienen asignado. Cuando se compruebe negligencia de su parte, será responsable conjuntamente con el usuario final por el uso inadecuado del equipo.

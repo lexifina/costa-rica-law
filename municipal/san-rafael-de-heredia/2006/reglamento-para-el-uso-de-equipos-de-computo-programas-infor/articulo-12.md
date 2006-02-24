@@ -1,0 +1,1 @@
+Artículo 12.—Los daños o atrasos ocasionados por la pérdida de información, serán responsabilidad absoluta del usuario final responsable de custodiarla; esto hasta el momento de la realización de los respaldos generales que son responsabilidad del Encargado de Cómputo.

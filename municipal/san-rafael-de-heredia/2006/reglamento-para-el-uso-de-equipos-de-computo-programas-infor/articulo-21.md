@@ -1,0 +1,1 @@
+Artículo 21.—Los accesos a cualquier recurso compartido dentro de la Red Municipal, deberán mantenerse protegidos mediante contraseñas y estas serán de conocimiento únicamente del Encargado de asignarlas, usuario final y jefe inmediato.

@@ -1,0 +1,1 @@
+Artículo 25.—Las actividades en línea serán controladas y/ o eliminadas, a solicitud de la jefatura respectiva, cuando se tenga conocimiento de que un funcionario esta desacatando alguna de las anteriores disposiciones.

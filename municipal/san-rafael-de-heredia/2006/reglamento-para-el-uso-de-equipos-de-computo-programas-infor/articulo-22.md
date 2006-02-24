@@ -1,0 +1,1 @@
+Artículo 22.—Los servicios de Internet y Correo Electrónico son herramientas de exclusiva utilización institucional. El acceso a estos servicios se encuentra instalado en la Red del Sistema principal y será responsabilidad de la jefatura de la dependencia su justificación y del Encargado de la Oficina de Cómputo su configuración, control y fiscalización.

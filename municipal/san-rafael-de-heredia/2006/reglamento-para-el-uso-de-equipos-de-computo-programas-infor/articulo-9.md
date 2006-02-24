@@ -1,0 +1,1 @@
+Artículo 9º—El hardware instalado en la Institución no podrá ser utilizado para la creación de respaldos de programas informáticos, sean estos propiedad de la Municipalidad, funcionarios o de terceros ajenos a la misma.
