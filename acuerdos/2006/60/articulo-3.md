@@ -1,0 +1,1 @@
+Artículo 3º—El interesado deberá presentar en forma personal, el formulario de Registro de Embarcaciones, debidamente lleno, en la Oficina de INCOPESCA más cercana a la base de operación de la embarcación, en un plazo no mayor de dos meses calendario contados a partir de su publicación.

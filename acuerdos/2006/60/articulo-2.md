@@ -1,0 +1,20 @@
+Artículo 2º—Además de la Boleta de Registro los permisionarios deberán de presentar los siguientes requisitos:
+1) Personas físicas:
+a. Fórmula de registro debidamente llena y firmada por el interesado.
+b. Presentar documento de identidad idóneo, vigente, en original y aportar fotocopia por ambos lados.
+c. Aportar una Certificación del Registro Nacional de Buques con un máximo de un mes de haber sido expedida, que demuestre que la embarcación está inscrita a su nombre, con un mínimo de dos años de haber sido inscrita
+d. Presentar Certificado de Navegabilidad vigente, o inspección técnica del MOPT, emitida en el último mes calendario, en original y aportar fotocopia.
+e. Presentar Carné de Pesca Comercial Vigente, en original y aportar fotocopia.
+f. Presentar Carta de Recomendación debidamente firmada por el Representante Legal de la Organización Pesquera respectiva.
+g. Certificación emitida por la Caja Costarricense de Seguro Social, con un Estudio de Planillas de los últimos dos años.
+h. Únicamente en aquellos casos en que la Licencia de Pesca Comercial se hubiese vencido, el interesado deberá aportar una fotocopia de la misma.
+2) Personas jurídicas
+a. Fórmula de registro debidamente llena y firmada por el interesado.
+b. Presentar cédula de identidad vigente en original y aportar fotocopia por ambos lados, del Representante Legal.
+c. Presentar cédula de persona jurídica vigente en original y aportar fotocopia.
+d. Presentar Certificación de Personería Jurídica con un mínimo de tres meses calendario de haber sido expedida e indicando el Objeto y Capital Social (en caso de personas de capital social el 51% debe de estar en poder de ciudadanos costarricenses).
+e. Aportar una Certificación del Registro Nacional de Buques, con un máximo de tres meses calendario, de haber sido expedida, y con un mínimo de dos años de haber sido inscrita.
+f. Presentar Certificado de Navegabilidad vigente, en original y aportar fotocopia.
+g. Presentar Carta de Recomendación debidamente firmada por el Representante Legal de la Organización Pesquera respectiva.
+h. Certificación emitida por la Caja Costarricense de Seguro Social, con un Estudio de Planillas de los dos últimos años.
+i. Únicamente en aquellos casos en que la Licencia de Pesca Comercial se hubiese vencido, el interesado deberá aportar una fotocopia de la misma.
