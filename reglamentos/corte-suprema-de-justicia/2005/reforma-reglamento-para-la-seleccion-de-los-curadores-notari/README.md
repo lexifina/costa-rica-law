@@ -13,3 +13,4 @@ Reforma Reglamento para la selección de los curadores, notarios inventariadores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-28 | la propia norma |
+| 2 | 2006-02-27 | Reglamento 3 (2006-02-27) |

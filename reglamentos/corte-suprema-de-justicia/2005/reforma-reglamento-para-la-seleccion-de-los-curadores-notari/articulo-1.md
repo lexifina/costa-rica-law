@@ -17,14 +17,15 @@ Al participar en el respectivo concurso deben presentar una certificación exped
 En todos los casos deberán ser personas de capacidad y honradez reconocidas y en la selección se le dará preferencia a quienes ostenten una mayor preparación académica y experiencia específica en el campo del derecho concursal o empresarial, según los atestados que se presenten con la oferta respectiva.
 Artículo 4º—Vigencia de la designación. Las personas que se escojan se mantendrán en las listas durante cinco años, a partir de la firmeza del acto de designación, pudiendo ser designadas para nuevos períodos.
 Artículo 5º—Exclusión. Quienes figuren en los roles se excluirán:
-1) Por renuncia.
-2) Por fallecimiento.
-3) Por ocupar algún cargo incompatible con las funciones de curador, notario o interventor.
-4) Por negarse a aceptar una designación o negase a continuar su ejercicio de manera injustificada.
-5) Por haber sido removida la persona del cargo de curador, notario inventariador o interventor, por incumplimiento de sus obligaciones.
-6) Por vencimiento de la designación, salvo en caso de reelección.
+1. Por renuncia.
+2. Por fallecimiento.
+3. Por ocupar al cargo incompatible con las funciones de curador, notario o interventor.
+4. Por negarse a aceptar una designación o negarse a continuar su ejercicio de manera injustificada.
+5. Por haber sido removida la persona del cargo de curador, notario inventariador o interventor, por incumplimiento de sus obligaciones.
+6. Por vencimiento de la designación, salvo en caso de reelección.
 Cuando suceda alguna de las situaciones señaladas en los dos incisos anteriores, el juez del proceso comunicará el hecho a la Dirección Ejecutiva, para lo de su cargo.
-La exclusión se realizará en forma inmediata, debiendo dejarse una razón en el respectivo registro o rol, salvo el caso del inciso 4) en el que deberá seguirse el debido proceso ante el Consejo Superior.
+La exclusión se realizará en forma inmediata, debiendo dejarse una razón en el respectivo registro o rol, salvo en el caso del inciso 4) el que deberá seguirse el debido proceso ante la Dirección Ejecutiva.
+(Así reformado en sesión N° 3 del 27 de febrero del 2006)
 Artículo 6º—Concursos. Para las listas se publicará en el Boletín Judicial y en un periódico de circulación nacional un concurso cada dos años, en el cual se indicarán los requisitos legales, los atestados que deben presentarse y la fecha de cierre, que será de quince días a partir de la publicación.
 Las ofertas podrán hacerse mediante comunicación escrita remitidas por cualquier medio que resulte fidedigno, y serán absolutamente ineficaces las que se presenten fuera del plazo señalado.
 Las ofertas deberán presentarse en los términos que se indicarán en el respectivo cartel, y oportunamente podrán complementarse con algún atestado omitido dentro de los cinco días hábiles siguientes a la expiración del plazo. Caso contrario serán absolutamente ineficaces.
