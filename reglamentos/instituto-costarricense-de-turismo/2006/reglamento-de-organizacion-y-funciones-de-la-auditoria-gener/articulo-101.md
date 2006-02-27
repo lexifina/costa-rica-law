@@ -1,0 +1,1 @@
+Artículo 101.—Supervisión. Cada auditoría o estudio especial de auditoría deberá ser supervisado para asegurar su conformidad con las normas de la Auditoría General, las políticas y los programas de auditoría.

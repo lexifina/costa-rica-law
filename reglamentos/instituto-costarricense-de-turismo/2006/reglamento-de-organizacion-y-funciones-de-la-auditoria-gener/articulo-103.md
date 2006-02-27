@@ -1,0 +1,1 @@
+Artículo 103.—Evaluaciones externas. Deberán realizarse evaluaciones externas, tales como revisiones de aseguramiento de calidad, al menos una vez cada tres años por un revisor o equipo de revisión calificado e independiente, proveniente de fuera del Instituto.

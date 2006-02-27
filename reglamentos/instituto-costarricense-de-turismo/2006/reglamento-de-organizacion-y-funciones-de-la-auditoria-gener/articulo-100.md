@@ -1,0 +1,1 @@
+Artículo 100.—Evaluaciones internas. Las evaluaciones internas deberán incluir tanto revisiones continuas del desempeño de la actividad de Auditoría General como revisiones periódicas mediante Autoevaluación o mediante otras personas dentro del Instituto, con conocimiento de las prácticas de Auditoría General y de las Normas.

@@ -1,0 +1,1 @@
+Artículo 104.—Revisor externo. Las revisiones externas deberán ser realizadas por personas calificadas, independientes del Instituto y que no tengan conflictos de intereses ni reales ni aparentes. El revisor externo podrá incluir en su equipo auditores internos de fuera del Instituto o proveedores de servicios externos.

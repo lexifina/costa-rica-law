@@ -1,0 +1,1 @@
+Artículo 23.—Apoyo a evaluaciones o auditorías externas. La Auditoría General servirá de coordinadora y apoyo en las evaluaciones y auditorías externas, realizadas por la Contraloría o por despachos contratados por el Instituto.

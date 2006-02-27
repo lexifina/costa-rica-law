@@ -1,0 +1,1 @@
+Artículo 53.—Desarrollo profesional. Los funcionarios de la Auditoría General deben perfeccionar y actualizar sus conocimientos, aptitudes y otras competencias mediante la capacitación profesional continua.

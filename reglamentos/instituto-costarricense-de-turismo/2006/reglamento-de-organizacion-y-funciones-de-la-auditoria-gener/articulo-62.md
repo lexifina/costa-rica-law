@@ -1,0 +1,1 @@
+Artículo 62.—Comunicación verbal de los resultados de los servicios de auditoría. El Auditor General debe disponer la discusión verbal de los resultados con los funcionarios responsables de ordenar la implantación de recomendaciones y con el responsable principal de ponerlas en práctica.

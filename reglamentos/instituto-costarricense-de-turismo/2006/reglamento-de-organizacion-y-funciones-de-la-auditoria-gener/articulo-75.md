@@ -1,0 +1,2 @@
+Artículo 75.—Recordatorio plazo. El Auditor General debe recordar expresamente en el informe a enviar a la Junta Directiva, sobre el plazo de treinta días hábiles, con que cuenta la Junta Directiva para emitir el acuerdo respectivo en relación con las recomendaciones formuladas, y le hará saber que puede formular sus objeciones -dentro de ese mismo plazomediante acuerdo motivado.
+En caso de aceptación de las recomendaciones, la Junta Directiva debe emitir un acuerdo ordenando la puesta en práctica de las mismas.

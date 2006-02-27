@@ -1,0 +1,1 @@
+Artículo 31.—El sistema de control interno en la desconcentración de competencias y la contratación de servicios de apoyo. El Auditor General debe tomar en cuenta lo indicado en el artículo Nº 11 de la Ley Nº 8292.

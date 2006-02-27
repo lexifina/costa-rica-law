@@ -1,0 +1,1 @@
+Artículo 11.—Reglamento de Organización y Funciones. La Auditoría General dispondrá de un reglamento, acorde con la normativa que rige su actividad. Dicho reglamento será aprobado por la Junta Directiva y la Contraloría, y se publicará en el Diario Oficial La Gaceta y se divulgará en el ámbito institucional.

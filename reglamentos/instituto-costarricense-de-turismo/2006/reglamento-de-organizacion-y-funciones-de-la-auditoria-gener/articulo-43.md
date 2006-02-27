@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Personal de Auditoría General
+Artículo 43.—Protección al personal de la Auditoría General. Cuando el personal de la Auditoría General, en el cumplimiento de sus funciones, se involucre en un conflicto legal o una demanda, el Instituto dará todo su respaldo tanto jurídico como técnico y cubrirá los costos para atender ese proceso hasta su resolución final. Lo anterior de conformidad con lo indicado en el artículo 26 de la Ley Nº 8292.

@@ -1,0 +1,1 @@
+Artículo 17.—Asistencia del Auditor General a Junta Directiva. El Auditor General asistirá a las sesiones de la Junta Directiva, según lo establecido en el artículo 25 de la Ley Nº 1917, y con las salvedades que la misma norma indica.

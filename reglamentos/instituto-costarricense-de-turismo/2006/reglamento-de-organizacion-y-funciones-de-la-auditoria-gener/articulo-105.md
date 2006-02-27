@@ -1,0 +1,1 @@
+Artículo 105.—Informes sobre las evaluaciones realizadas. Los resultados de las evaluaciones internas y externas deben constar en un informe dirigido a la Junta Directiva. En ese mismo informe el Auditor General debe presentar un plan de mejoras, sí así lo requieren esos resultados. El Auditor General es responsable de dar seguimiento adecuado al plan de mejoras.
