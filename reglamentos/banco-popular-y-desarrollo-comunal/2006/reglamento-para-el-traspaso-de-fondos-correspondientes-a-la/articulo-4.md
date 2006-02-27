@@ -1,0 +1,7 @@
+Artículo 4º—Dentro del plazo establecido en el artículo 18 inciso a) de la Ley de Asociaciones Solidaristas, el respectivo patrono depositará el equivalente al 5.33% del salario bruto de cada trabajador correspondiente al mes anterior al depósito, siempre y cuando el trabajador así lo haya solicitado expresamente mediante solicitud dirigida al área de recursos humanos de la entidad que corresponda, la cual contendrá:
+a) Las calidades del empleado.
+b) El nombre de la organización autorizada en cuya cuenta corriente desea que se depositen sus haberes.
+c) Manifestación expresa de que el empleado, con el depósito, da por recibida, y en consecuencia, cancelada por parte de su patrono, la cesantía en el monto correspondiente a los depósitos que éste hubiese realizado, sin que ello exonere a la respectiva entidad de la responsabilidad que de conformidad con la ley pueda caberle por el monto de la eventual diferencia entre lo que le corresponda al trabajador como auxilio de cesantía y lo que el respectivo patrono hubiere aportado.
+d) Manifestación expresa de que el empleado exime a su patrono de cualquier responsabilidad que resulte de una administración culposa o dolosa de los fondos acreditados.
+e) Certificación que lo acredite como asociado activo de la organización autorizada en cuya cuenta corriente desea que se depositen las sumas.
+El giro del 3% de las sumas indicadas en el artículo 1 de este Reglamento, que corresponden al Fondo de Capitalización Laboral, se regirá por lo dispuesto en la Ley de Protección al Trabajador.

@@ -1,0 +1,3 @@
+Artículo 2º—Las sumas indicadas en el artículo anterior serán administradas por las siguientes organizaciones:
+a) Las que de conformidad con el artículo 8º de la Ley de Protección al Trabajador correspondan al Fondo de Capitalización Laboral, por cualquier persona jurídica autorizada legalmente al efecto.
+b) Las demás sumas, por las asociaciones solidaristas y las cooperativas de ahorro y crédito integradas mayoritariamente por empleados de alguna de las entidades, siempre y cuando el órgano competente haya expresamente consentido en el control por parte de la entidad de la que el interesado sea empleado, en los términos indicados en el artículo 8 de este Reglamento.
