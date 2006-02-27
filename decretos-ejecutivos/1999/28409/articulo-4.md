@@ -1,5 +1,7 @@
 CAPITULO II
 Del Departamento de Recursos Humano;
-Artículo 4°—Existirá un Departamento de Recursos Humanos dentro de la Organización del Ministerio, para atender debidamente todos los asuntos referentes al personal,
-Este Departamento contará con la colaboración de Oficinas Auxiliares, que dependerán de cada Dirección General o Área de Conservación, siendo el director el jefe inmediato y podrán realizar trámites de personal.
-El Departamento de Recursos Humanos y las Oficinas Auxiliares, tendrán las funciones que les asigne este Reglamento y la demás normativa sobre la materia,
+Artículo 4º—Existirá un Departamento de Recursos Humanos dentro de la Organización del Ministerio, para atender debidamente todos los asuntos referentes al personal.
+Éste Departamento contará con la colaboración de Oficinas Auxiliares, que dependerán de cada Dirección General. Asimismo, el Sistema Nacional de Áreas de Conservación (SINAC) contará en forma independiente con una oficina de Recursos Humanos, la cual dependerá administrativamente del Director Superior y técnicamente de la Dirección General de Servicio Civil, de conformidad con el artículo 8 del Reglamento al Estatuto del Servicio Civil; y ésta contará con el apoyo y cooperación de oficinas auxiliares en las diferentes Áreas de Conservación a nivel nacional; las cuales dependerán técnicamente de la Oficina de Recursos Humanos del SINAC y administrativamente de la Dirección del Área de Conservación.
+El Departamento de Recursos Humanos y sus oficinas auxiliares, la Oficina de Recursos Humanos del SINAC y sus respectivas oficinas auxiliares tendrán las funciones que les asigne este Reglamento y la demás normativa sobre la materia.
+El contenido de éste Reglamento y demás normativa relacionada con la materia, donde implique al Departamento de Recursos Humanos, debe entenderse intrínsecamente a la Oficina de Recursos Humanos del SINAC para los mismos efectos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 33030 del 27 de febrero de 2006)

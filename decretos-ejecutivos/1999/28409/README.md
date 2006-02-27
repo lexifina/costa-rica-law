@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicios del Ministerio del Ambiente y Energía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-17 | la propia norma |
+| 2 | 2006-02-27 | Decreto Ejecutivo 33030 (2006-02-27) |
