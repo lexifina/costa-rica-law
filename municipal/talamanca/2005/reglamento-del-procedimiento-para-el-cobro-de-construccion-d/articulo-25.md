@@ -1,0 +1,1 @@
+Artículo 25.—Serán aplicables a este Reglamento, las disposiciones del Código Procesal Civil en cuanto se refiere al procedimiento sumario para el cobro en sede judicial, Código Municipal, Ley General de la Administración Pública, Ley Orgánica de la Jurisdicción Contenciosa Administrativa, así como cualquier otra disposición normativa que resulte aplicable en función de materia.

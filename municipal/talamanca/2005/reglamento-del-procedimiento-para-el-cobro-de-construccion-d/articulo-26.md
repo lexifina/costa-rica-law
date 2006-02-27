@@ -1,0 +1,1 @@
+Artículo 26.—La Municipalidad de Talamanca destinará un 30% del total recaudado por aplicación de este Reglamento por concepto de multas y utilidades para ser utilizado en la erradicación del dengue y malaria.
