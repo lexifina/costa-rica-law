@@ -1,0 +1,1 @@
+Artículo 2º—A efectos de determinar el rango en el cual se ubicará cada institución según su presupuesto de adquisición de bienes y servicios, regirá lo dispuesto en la resolución Nº R-SC-02-2006 del 15 de febrero del dos mil seis.

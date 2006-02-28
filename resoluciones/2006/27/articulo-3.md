@@ -1,0 +1,1 @@
+Artículo 3º—Aquellas instituciones cuyos presupuestos no se encuentren incluidos en la citada resolución Nº R-SC-02-2006, ni hayan sido incorporados a sus regulaciones por otros medios, deberán remitir para refrendo contralor aquellas contrataciones cuyo monto sea igual o superior a quince millones de colones (¢15.000.000.00).
