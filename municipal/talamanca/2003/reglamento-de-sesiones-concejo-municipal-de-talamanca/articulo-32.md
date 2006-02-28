@@ -1,0 +1,1 @@
+Artículo 32.—Las Comisiones Permanentes estarán integradas al menos por tres miembros como mínimo, escogidos necesariamente de entre los Regidores Propietarios y Suplentes. Los funcionarios municipales y los particulares podrán participar en las sesiones que celebren estas únicamente con carácter de asesores.

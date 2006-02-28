@@ -1,0 +1,1 @@
+Artículo 34.—Las Comisiones despacharán los asuntos de su cargo con la mayor brevedad, salvo en los casos especiales en los que el Presidente del Concejo, en forma expresa, fije un término menor o superior, las Comisiones deberán rendir sus dictámenes en un plazo no mayor de quince días naturales, prorrogables por única vez, a juicio del Presidente.

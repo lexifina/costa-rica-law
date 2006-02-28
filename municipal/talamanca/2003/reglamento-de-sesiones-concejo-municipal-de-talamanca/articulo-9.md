@@ -1,0 +1,1 @@
+Artículo 9º—El Presidente Municipal está obligado, después de transcurridos quince minutos contados a partir de la hora señalada para iniciar la sesión, a realizar la sustitución del Regidor Propietario que incurriera en la falta, perderá el derecho a devengar la dieta y su derecho a voto, no obstante conservará su derecho a voz.
