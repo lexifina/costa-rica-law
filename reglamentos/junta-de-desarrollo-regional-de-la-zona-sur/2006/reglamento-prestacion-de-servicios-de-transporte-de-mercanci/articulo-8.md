@@ -1,0 +1,1 @@
+Artículo 8º—Será responsabilidad de los propietarios de las empresas autorizadas por JUDESUR para la prestación de este servicio el velar por que éste se preste guardando todos los cuidados y prevenciones requeridas para estos efectos.

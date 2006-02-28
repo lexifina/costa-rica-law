@@ -1,0 +1,1 @@
+Artículo 9º—Cada uno de los prestatarios de estos servicios se comprometen a mantener en condiciones óptimas de limpieza y dar el mantenimiento y conservación adecuada al espacio cedido por JUDESUR y asimismo a recoger la basura que producto de su labor pueda originarse.

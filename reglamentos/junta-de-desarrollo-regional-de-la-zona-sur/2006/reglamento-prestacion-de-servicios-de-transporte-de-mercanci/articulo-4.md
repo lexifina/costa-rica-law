@@ -1,0 +1,2 @@
+Artículo 4º—Los prestatarios de los servicios se comprometen a tener las pólizas vigentes de seguro correspondientes sobre los furgones y las mercancías que transporten, con el fin de que en caso de ocurrir algún imprevisto ya sea accidente, robo y otra causa no se vean afectados los compradores dueños de estas mercancías.
+Este seguro debe cubrir inclusive la manipulación de estas mercancías dentro del Depósito por parte de los empleados de cada una de las empresas.

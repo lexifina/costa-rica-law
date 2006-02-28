@@ -1,0 +1,1 @@
+Artículo 5º—Los prestatarios de dichos servicios se comprometen a cobrar a los compradores un 3% sobre el costo de la mercadería para el traslado de estas de Golfito hasta sus bodegas en San José y el transporte desde las bodegas hasta el lugar o casa de cada comprador será un acuerdo entre el comprador y la empresa prestataria del servicio.

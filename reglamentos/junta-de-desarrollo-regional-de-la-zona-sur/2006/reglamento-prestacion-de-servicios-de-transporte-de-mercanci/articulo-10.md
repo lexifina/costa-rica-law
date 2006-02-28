@@ -1,0 +1,2 @@
+Artículo 10.—Las empresas adjudicadas se comprometen a mantener a todos sus empleados debidamente asegurados contra riesgos del trabajo y asimismo incluidos en las planillas de la CCSS.
+Además deberán mantener vigentes y actualizadas las pólizas del Instituto Nacional de Seguros que protegen los camiones y containers de carga donde se transportan las diferentes mercancías y siendo que el faltar a este requisito provocaría la rescisión de la concesión otorgada, sin ninguna responsabilidad para JUDESUR.
