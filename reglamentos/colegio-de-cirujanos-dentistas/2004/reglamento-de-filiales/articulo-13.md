@@ -1,0 +1,1 @@
+Artículo 13.—Cualquier conflicto que se presente en la filial o en su Junta Directiva será sometido a conocimiento de la Junta Directiva del Colegio para su solución. Siendo ésta de acatamiento obligatorio para la filial, su Junta Directiva y los miembros de esta y de la filial.

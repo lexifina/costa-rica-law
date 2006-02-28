@@ -1,0 +1,1 @@
+Artículo 10.—Por carecer la filial de personería jurídica propia, no podrá adquirir compromiso de ninguna índole, y sus actuaciones no comprometen al Colegio de Cirujanos Dentistas de Costa Rica, razón por la que si la Junta Directiva de la Filial o alguno de sus miembros contraen obligaciones, ellos responden en lo personal por dichos compromisos.

@@ -1,0 +1,1 @@
+Artículo 4º—Serán miembros de la filial los Cirujanos Dentistas residentes permanentes en la zona o región que voluntariamente manifiesten por escrito a la Junta Directiva del Colegio su deseo de pertenecer a la filial y una vez creada ésta los que así lo manifiesten ante la Junta Directiva de la Filial.

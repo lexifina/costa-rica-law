@@ -1,0 +1,3 @@
+Artículo 8º—Los miembros de la filial podrán contribuir económicamente para sufragar los gastos de ella, previo acuerdo de la Junta Directiva de la Filial. También podrán realizar actividades profesionales, científicas, culturales o sociales que le permitan allegar fondos, siempre que éstas hayan sido aprobadas por la Junta Directiva del Colegio.
+La Junta Directiva de la filial será la responsable del manejo y administración de los fondos debiendo rendir cuenta de ello directamente a la Junta Directiva del Colegio, en el mes de marzo de cada año o bien cuando ella se lo solicite o lo solicitare un miembro de la filial.
+El manejo de los fondos se hará conforme a las instrucciones de la Junta Directiva del Colegio.

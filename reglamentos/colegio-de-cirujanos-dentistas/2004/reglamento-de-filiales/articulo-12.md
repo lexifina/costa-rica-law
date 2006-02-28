@@ -1,0 +1,1 @@
+Artículo 12.—La filial tendrá duración permanente y podrá ser disuelta por la Junta Directiva del Colegio por iniciativa propia o a solicitud de cualquier afiliado. En caso de disolución todos los archivos, bienes y fondos de la filial pasarán a propiedad del Colegio.
