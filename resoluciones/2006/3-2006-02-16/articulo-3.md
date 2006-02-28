@@ -1,0 +1,1 @@
+III.—Aquellos procedimientos que al entrar en vigencia esta resolución ya tienen la publicación o la invitación del aviso a participar realizado, continuarán su trámite -hasta su finalización- según las formalidades propias del procedimiento iniciado.
