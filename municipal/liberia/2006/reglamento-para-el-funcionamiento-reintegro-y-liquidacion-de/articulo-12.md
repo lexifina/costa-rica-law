@@ -1,0 +1,1 @@
+Artículo 12.—Exoneración del pago de impuesto de ventas. Para el trámite de compra por el fondo de caja chica, el funcionario que lo gestione para la adquisición de bienes y servicios, deberá solicitar en la Secretaría de la Alcaldía Municipal el correspondiente comprobante de exoneración del pago del impuesto de ventas.

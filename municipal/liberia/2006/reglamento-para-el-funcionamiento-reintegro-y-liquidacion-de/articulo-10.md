@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del vale o adelanto
+Artículo 10.—Del vale de Caja Chica. El vale de Caja Chica debe emitirse en original y copia, debidamente prenumerado en forma consecutiva. El talonario con los vales consecutivamente numerados será suministrado por el Departamento de Tesorería Municipal y permanecerá en custodia de la Secretaría de la Alcaldía Municipal, donde los funcionarios municipales llegarán a iniciar su tramitación y posterior firma del vale, por parte del Coordinador del Proceso, Subproceso o Actividad General del departamento al cual pertenece y al Alcalde o Alcaldesa Municipal. Todos los funcionarios deben velar por el buen uso y utilización consecutiva de los vales de caja chica.

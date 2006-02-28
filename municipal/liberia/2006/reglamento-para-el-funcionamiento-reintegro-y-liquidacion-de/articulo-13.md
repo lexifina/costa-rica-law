@@ -1,0 +1,1 @@
+Artículo 13.—Impedimento para la tramitación de vales. Por ningún motivo se entregará un vale de Caja Chica a aquellos funcionarios o funcionarias municipales que tenga pendiente la liquidación de un vale anterior.

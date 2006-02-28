@@ -1,0 +1,1 @@
+Artículo 27.—Auditorías sin previo aviso. Sin previo aviso la Auditoría Interna está facultada para proceder a realizar arqueos en forma sorpresiva al fondo fijo de caja chica, con el propósito de verificar, supervisar y controlar la aplicación de las normas y principios de auditoría vigentes y de las sanas prácticas de administración.

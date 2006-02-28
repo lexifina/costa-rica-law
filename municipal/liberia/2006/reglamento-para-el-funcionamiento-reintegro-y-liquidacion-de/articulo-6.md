@@ -1,0 +1,1 @@
+Artículo 6º—Función de la Caja Chica. La Caja Chica Municipal funcionará mediante dinero en efectivo para atender exclusivamente la adquisición de bienes y servicios de urgente necesidad y de conformidad con el artículo 9 de este Reglamento, así como para pagar adelanto por concepto de viáticos y gastos de viaje de funcionarios municipales.

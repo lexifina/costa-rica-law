@@ -1,0 +1,1 @@
+Artículo 28.—Faltantes o sobrantes de dinero. Si realizado el arqueo, resulta una diferencia, ésta debe ser justificada por el Tesorero o Tesorera Municipal, quien además deberá en forma inmediata depositar el sobrante o reintegrar el faltante, según corresponda.

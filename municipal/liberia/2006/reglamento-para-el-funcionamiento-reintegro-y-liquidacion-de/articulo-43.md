@@ -1,0 +1,5 @@
+Artículo 43.—Sanciones disciplinarias. Los funcionarios municipales serán sancionados disciplinariamente, de conformidad con las siguientes disposiciones:
+Se considerará falta leve a sus deberes, y en consecuencia, será sancionado con amonestación escrita, los siguientes supuestos:
+a) El funcionario que no liquide el vale de Caja Chica dentro de los tres días siguientes a la entrega del dinero en efectivo, de conformidad con lo que establece el artículo 15 de este Reglamento.
+c) La Jefatura que al firmar el vale no constate el ingreso de los bienes y/o servicios adquiridos.
+Sin embargo, la reincidencia por más de tres veces consecutivas en un término de seis meses, producirá que la falta se considere como grave y ameritará la suspensión del trabajo por un término de ocho días hábiles. Una cuarta reincidencia dentro del plazo indicado, por el incumplimiento a cualquiera de las disposiciones citadas, será considerada falta grave a sus obligaciones y será causal para el despido inmediato.
