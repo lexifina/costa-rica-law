@@ -15,3 +15,4 @@ Reglamento para la Administración de los Bienes y Derechos de Propiedad Intelec
 | --- | --- | --- |
 | 1 | 2004-09-07 | la propia norma |
 | 2 | 2005-05-11 | Reglamento 40 (2005-05-11) |
+| 3 | 2006-02-28 | Resolución 29 (2006-02-28) |
