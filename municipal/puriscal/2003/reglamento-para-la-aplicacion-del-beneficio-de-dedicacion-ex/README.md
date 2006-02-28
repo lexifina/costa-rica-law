@@ -14,3 +14,4 @@ Reglamento para la aplicación del beneficio de dedicación exclusiva de la Muni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-04-29 | la propia norma |
+| 2 | 2006-02-28 | Reglamento municipal 222 (2006-02-28) |
