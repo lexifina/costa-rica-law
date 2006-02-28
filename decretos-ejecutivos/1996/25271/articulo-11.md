@@ -4,3 +4,5 @@ b) Concurso Interno: es el acto mediante el cual el Ministerio, a través de la 
 (Así modificada nomenclatura por el artículo 1° del decreto ejecutivo N° 26144 del 12 de junio de 1997)
 c) Concurso Externo: trámite que se hará de acuerdo con el Artículo 25 y siguientes del Estatuto de Servicio Civil y los correspondientes de su Reglamento.
 (Así reformado por el artículo 1° del decreto ejecutivo N°. 25941 del 14 de marzo de 1997)
+d) Cuando se trate de nombramientos en puestos del Régimen Policial corresponde al Consejo de Personal, mediante resolución, definir el procedimiento de carrera administrativa aplicable al mencionado régimen.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33081 del 28 de febrero de 2006)

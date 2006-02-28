@@ -20,3 +20,4 @@ Reglamento Autónomo de Servicios del Ministerio de Hacienda
 | 5 | 2003-12-19 | Decreto Ejecutivo 31661 (2003-12-19) |
 | 6 | 2004-01-12 | Decreto Ejecutivo 31691 (2004-01-12) |
 | 7 | 2004-03-09 | Decreto Ejecutivo 31720 (2004-03-09) |
+| 8 | 2006-02-28 | Decreto Ejecutivo 33081 (2006-02-28) |

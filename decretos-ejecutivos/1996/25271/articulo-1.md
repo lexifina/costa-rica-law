@@ -16,4 +16,5 @@ TÍTULO I
 DISPOSICIONES GENERALES
 CAPÍTULO I
 Definiciones
-Artículo 1°—El presente Reglamento Autónomo de Servicio regulará las relaciones de servicio entre el Ministerio de Hacienda y sus funcionarios (as), de conformidad con el ordenamiento jurídico vigente.
+Artículo 1º—El presente Reglamento Autónomo de Servicios, regulará las relaciones de servicio entre el Ministerio de Hacienda y sus funcionarios (as), incluyendo los funcionarios nombrados en puestos de la Policía de Control Fiscal y que pertenecen al Régimen Policial, de conformidad con el ordenamiento jurídico vigente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 33081 del 28 de febrero de 2006)

@@ -43,6 +43,7 @@ articulo-42.md
 articulo-43.md
 articulo-44.md
 articulo-45.md
+articulo-45-bis.md
 articulo-46.md
 articulo-47.md
 articulo-48.md
@@ -67,6 +68,7 @@ articulo-66.md
 articulo-67.md
 articulo-68.md
 articulo-69.md
+articulo-69-bis.md
 articulo-70.md
 articulo-71.md
 articulo-72.md
@@ -114,10 +116,12 @@ articulo-112.md
 articulo-113.md
 articulo-114.md
 articulo-115.md
+articulo-115-bis.md
 articulo-116.md
 articulo-117.md
 articulo-118.md
 articulo-119.md
+articulo-119-bis.md
 articulo-120.md
 articulo-121.md
 articulo-122.md
@@ -127,6 +131,7 @@ articulo-125.md
 articulo-126.md
 articulo-127.md
 articulo-128.md
+articulo-128-bis.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md

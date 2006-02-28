@@ -9,3 +9,5 @@ e) Jubilación del servidor(a).
 f) Invalidez total o permanente del servidor(a), debidamente declarada.
 g) Nulidad del nombramiento.
 h) Cuando el servidor(a) se acoja a un programa de movilidad laboral voluntario.
+i) Para puestos del Régimen Policial, además de las anteriores, exceptuando el inciso b); despido por parte del Consejo de Personal, para lo que debe existir resolución razonada del mencionado Consejo, previo cumplimiento del debido proceso, de conformidad con lo normado en el artículo 81 de la Ley General de Policía.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33081 del 28 de febrero de 2006)

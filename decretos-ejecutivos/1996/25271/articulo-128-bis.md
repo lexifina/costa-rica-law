@@ -1,0 +1,2 @@
+Artículo 128 bis.—Tratándose de puestos del Régimen Policial, en lo no regulado expresamente en este Reglamento se aplicarán las disposiciones que emita el Consejo de Personal, las establecidas en la Ley General de Policía, así como las que se apliquen a los demás funcionarios del Ministerio de Hacienda, éstas últimas en lo que fueren compatibles.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 33081 del 28 de febrero de 2006)

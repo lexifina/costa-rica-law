@@ -7,3 +7,5 @@ e) Renuncia del servidor(a), debidamente aceptada.
 f) Fallecimiento del servidor(a).
 g) Jubilación del servidor(a).
 h) Invalidez total o permanente del funcionario(a), debidamente declarada.
+i) Además de las anteriores, para puestos del Régimen Policial, el funcionario nombrado provisionalmente, exceptuando el inciso d), puede ser despedido por parte del Consejo de Personal, para lo que debe existir resolución razonada del mencionado consejo, previo cumplimiento del debido proceso.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33081 del 28 de febrero de 2006)
