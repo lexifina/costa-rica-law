@@ -1,0 +1,1 @@
+II.—Las juntas administrativas de colegios y las juntas de educación deberán remitir, para refrendo contralor, todas aquellas contrataciones cuyo monto sea igual o superior a quince millones de colones (¢.15.000.000,00).
