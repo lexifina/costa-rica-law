@@ -1,0 +1,1 @@
+Artículo 8º—Del conocimiento de esta normativa. Nadie podrá alegar desconocimiento de la presente normativa y el hecho de participar en el programa resupone su conocimiento por parte del participante.

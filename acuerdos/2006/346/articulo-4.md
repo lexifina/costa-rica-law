@@ -1,0 +1,2 @@
+Artículo 4º—Del período de participación y fecha de la premiación. El período de participación es de un mes calendario a partir de la publicación y hasta tanto no salga la edición del mes siguiente. Lo anterior con excepción del mes de enero en el cual no existe tiraje de la Revista. En ese caso, se hará la premiación en el mes de febrero y participarán solo los correos electrónicos recibidos en el mes de diciembre.
+La fecha de la premiación será el último miércoles de cada mes.

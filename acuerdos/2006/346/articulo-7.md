@@ -1,0 +1,1 @@
+Artículo 7º—De la comunicación del resultado de la promoción.El resultado de la promoción mensual se publicará en la edición de la Revista Medicina Vida & Salud del mes próximo siguiente a la fecha de realización de ésta.
