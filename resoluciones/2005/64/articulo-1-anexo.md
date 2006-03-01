@@ -1,0 +1,3 @@
+ANEXO N° 1:
+DIAGRAMA SISTEMA ESPECÍFICO DE VALORACIÓN DEL RIESGO INSTITUCIONAL
+Ver diagrama en La Gaceta impresa N° 134 del 12 de julio del 2005.
