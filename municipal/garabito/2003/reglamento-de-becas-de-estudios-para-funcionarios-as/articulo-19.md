@@ -1,1 +1,0 @@
-Artículo 19.—Comprobada la revisión de fondos, la Oficina del Alcalde, remitirá la solicitud a la Comisión de Becas, y esta la conocerá en la reunión siguiente y remitirá al Concejo el listado de los favorecidos para su aprobación final.

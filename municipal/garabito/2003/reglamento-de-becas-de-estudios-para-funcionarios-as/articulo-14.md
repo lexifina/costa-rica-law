@@ -1,1 +1,0 @@
-Artículo 14.—La Comisión de Becas, estará integrada por el Alcalde Municipal, el Encargado Administrativo, dos Regidores y dos funcionarios de la Municipalidad, en representación de los empleados, los cuales uno será nombrado por el Alcalde y otro por el Concejo Municipal.
