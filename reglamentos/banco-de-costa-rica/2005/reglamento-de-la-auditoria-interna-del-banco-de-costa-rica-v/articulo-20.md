@@ -1,0 +1,3 @@
+CAPÍTULO IX
+De la comunicación de resultados y del seguimiento
+Artículo 20.—Sin perjuicio de los memorandos o informes parciales que fuere necesario emitir, cuando proceda, se emitirá un informe final de control interno, de relaciones de hechos o de estudio especial, según corresponda, con los hallazgos, conclusiones y recomendaciones pertinentes. Este será dirigido al jerarca, o a los titulares subordinados de la administración activa, con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones, de conformidad con las disposiciones establecidas en el artículo 35 de la Ley general de control interno. Estos informes deberán ser precisos, objetivos, claros, concisos, constructivos, completos y oportunos.
