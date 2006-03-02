@@ -1,0 +1,1 @@
+4) En el caso de los convenios de aseguramiento colectivo que se suscriban, a partir del 1º de febrero del año 2006, con organizaciones o gremios de profesionales, los ingresos de referencia no deben ser inferiores al establecido en la categoría Nº 5 de esa modalidad de aseguramiento y serán definidos por la Gerencia de la División Financiera.

@@ -1,0 +1,1 @@
+5) En el caso de los convenios de aseguramiento colectivo que se suscriban a partir del 1º de febrero del año 2006, con organizaciones o gremios que no sean pequeños y medianos agricultores, ni profesionales, los ingresos de referencia no deben ser inferiores al establecido en la categoría Nº 3 y serán definidos por la Gerencia de la División Financiera.

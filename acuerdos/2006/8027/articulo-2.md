@@ -1,0 +1,1 @@
+2) Aplicar a partir del 1º de febrero del 2006 un incremento del 14% en todos los ingresos de referencia de los trabajadores independientes y asegurados voluntarios afiliados al 31 de enero del año 2006.
