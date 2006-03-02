@@ -1,5 +1,6 @@
-CAPÍTULO III
-De la custodia
-Artículo 55.—Custodia de valores
-Los valores adquiridos con recursos de los fondos administrados deberán mantenerse siempre bajo la custodia de una institución de custodia.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 383-2003, celebrada el 05 de agosto de 2003, publicada en La Gaceta N° 162 de 25 de agosto de 2003.)
+Artículo 55.—De los excesos de inversión
+Se define como exceso el monto de las inversiones del fondo administrado que sobrepase los límites establecidos en el presente Reglamento.
+En el evento de que se produzca un exceso en los límites establecidos deberá procederse conforme lo establecido en los Artículos 64 y 65 de la Ley Nº 7983.
+Si el exceso de límites es atribuible a la entidad regulada los costos que el fondo hubiere asumido deberán ser reintegrados por aquella. En este caso la entidad estará obligada a remitir un informe a la Superintendencia de Pensiones comunicando el detalle de los recursos reintegrados.
+(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°52 al N°55 actual).

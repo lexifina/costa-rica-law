@@ -1,2 +1,3 @@
-Transitorio II.—De la implementación del libro de actas electrónico. A vigencia de los Artículos 45 y 46 del Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el Funcionamiento de los Fondos de Pensiones, Capitalización Laboral y Ahorro Voluntario previstos en la Ley del Protección al Trabajador derogada en este reglamento mantendrán su vigencia hasta tanto no se implemente el libro de actas electrónico.
-El plazo de entrada en vigencia del uso del libro electrónico será de 30 días naturales posteriores a la publicación de este reglamento en el Diario Oficial.
+Transitorio II. De la implementación del libro de actas electrónico.
+Los Regímenes tendrán un plazo de tres meses para poner en funcionamiento el libro de actas electrónico del Comité de Inversiones y del Comité de Riesgos. Dicho plazo correrá a partir de que se les comunique oficialmente los aspectos operativos, se les suministre la capacitación, así como el manual técnico respectivo para su uso.
+(Así reformado mediante sesión N°562 del 02 de marzo del 2006).

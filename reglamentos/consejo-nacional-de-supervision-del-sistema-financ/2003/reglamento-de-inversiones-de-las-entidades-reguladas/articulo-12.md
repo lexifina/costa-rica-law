@@ -1,11 +1,13 @@
-Artículo 12.—Manual de Políticas y Procedimientos para la Administración Integral de Riesgos. El Manual de Políticas y Procedimientos para la Administración Integral de Riesgos deberá contemplar, cuando menos, los siguientes aspectos:
-a) Los objetivos sobre la exposición al riesgo y el establecimiento explícito como principal objetivo de la entidad administrar prudentemente los recursos de los trabajadores afiliados.
-b) Una estructura organizacional diseñada para llevar a cabo la Administración de Riesgos. Dicha estructura deberá establecerse de manera que exista independencia entre la Unidad para la Administración Integral de Riesgos y aquellas otras áreas de control de operaciones, así como clara delimitación de funciones y perfil de puestos en todos sus niveles.
-c) Las facultades y responsabilidades en función del cargo que se desempeñe cuando este último implique la toma de riesgos para los fondos que opere la entidad.
-d) La determinación o procedimiento para calcular los límites para la toma de riesgos que establezca cada entidad a nivel global y por tipo de riesgo, así como la política de revisión de límites.
-e) La forma y periodicidad con la que se deberá informar a los Órganos de dirección de las entidades, a los Comités de Riesgos y de Inversiones, al responsable de la realización de las inversiones y la ejecución de la estrategia que dicte el Comité de Inversiones y los de las distintas áreas involucradas en la operación que derivado de sus funciones impliquen la toma de riesgos, sobre la exposición al riesgo de cada fondo.
-f) Las medidas de control interno, así como las correspondientes para corregir las desviaciones que se observen sobre los límites de exposición al riesgo.
-g) El proceso para la aprobación de propuestas, estrategias o iniciativas de Administración de Riesgos y, en su caso, de coberturas. Dichas propuestas deberán contar, entre otros aspectos, con una descripción general de la nueva operación, el análisis de sus riesgos implícitos, el procedimiento a utilizar para identificar, medir, monitorear, controlar, informar y revelar tales riesgos, así como una opinión sobre la viabilidad jurídica de la propuesta.
-h) Los planes de acción en caso de contingencias por caso fortuito o fuerza mayor.
-i) El proceso para la autorización de cada entidad del exceso a los límites de exposición al riesgo.
-El Manual deberá ir acompañado de los modelos y metodologías para la valuación de los distintos tipos de riesgo, aprobados por el Comité de Riesgos, así como de los requerimientos de los sistemas de procesamiento de información y para el análisis de riesgos.
+Artículo 12.—Funciones de la Unidad de Administración Integral de Riesgos
+La Unidad para la Administración Integral de Riesgos desempeñará, al menos, las siguientes funciones:
+a) Vigilar que la administración de riesgos sea integral y considere los riesgos en que incurra la entidad regulada y los fondos administrados propiedad de terceros.
+b) Proponer al Comité de Riesgos de cada entidad regulada la metodología, y aplicarla una vez aprobada, para identificar, medir y monitorear los distintos tipos de riesgos a que se encuentren expuestas, así como los límites máximos de riesgo permitidos.
+c) Informar al Comité de Riesgos, al de Inversiones y al Gerente o Administrador sobre:
+i) La exposición global y por tipo de riesgo de los fondos administrados. Los informes sobre la exposición de riesgo deberán incluir análisis de sensibilidad y pruebas bajo condiciones extremas.
+ii) Las desviaciones que, en su caso, se presenten con respecto a los límites de exposición al riesgo establecidos proponiendo, cuando así corresponda, las acciones correctivas necesarias.
+d) Los informes a que se refiere este artículo deberán presentarse al Comité de Riesgos y a la administración de la entidad supervisada dentro de los primeros diez días hábiles posteriores al cierre del mes, como mínimo.
+e) Investigar y documentar las causas que originen desviaciones a los límites de exposición al riesgo establecidos, identificando si dichas desviaciones se presentan en forma reiterada e informar de manera oportuna sus resultados al Comité de Riesgos, de Inversiones y al Órgano de Dirección.
+f) Recomendar la variación de los límites de exposición al riesgo previamente aprobados, cuando lo considere pertinente.
+g) Definir y aplicar metodologías de medición de rentabilidades ajustadas por riesgo y presentarlos al Comité de Riesgos y de Inversiones para su discusión y evaluación.
+(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°11 al N°12 actual).

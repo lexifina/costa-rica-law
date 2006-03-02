@@ -16,3 +16,4 @@ Reglamento de Inversiones de las Entidades Reguladas
 | 1 | 2003-02-20 | la propia norma |
 | 2 | 2003-08-05 | Reglamento 383 (2003-08-05) |
 | 3 | 2004-04-13 | Reglamento 431 (2004-04-13) |
+| 4 | 2006-03-02 | Reglamento 562 (2006-03-02) |

@@ -1,7 +1,3 @@
-Transitorio VI.—Cumplimiento del límite máximo estipulado en el Artículo 34. El límite máximo de inversión en valores extranjeros autorizado en el Artículo 34 tendrá la siguiente gradualidad:
-i) A partir de la vigencia del reglamento y hasta el 31 de diciembre del 2004:
-Corto Plazo Largo Plazo Porcentaje máximo
-F1 / P-1 / A-1 AAA / Aaa 20%
-F2 / P-2 / A-2 AA / Aa 10%
-F3 / P-3 A 5%
-ii) A partir del 1 de enero del 2005 los límites establecidos en el Artículo 34 adquieren plena vigencia.
+Transitorio VI. Cumplimiento de condiciones estipuladas en el Artículo 48, correspondientes a las inversiones del capital mínimo de funcionamiento.
+Las entidades autorizadas deberán contar con la política de inversión y definición de límites establecida en el Artículo 48, a más tardar el 1° de julio del 2006.
+(Así reformado mediante sesión N°562 del 02 de marzo del 2006).

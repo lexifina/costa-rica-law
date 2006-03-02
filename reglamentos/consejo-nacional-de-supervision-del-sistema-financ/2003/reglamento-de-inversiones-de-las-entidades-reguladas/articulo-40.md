@@ -1,1 +1,3 @@
-Artículo 40.—De la responsabilidad de las entidades autorizadas. Las entidades autorizadas serán responsables de las inversiones realizadas con independencia de la modalidad de administración de inversiones en mercados internacionales.
+Artículo 40.—Modalidades de adquisición no permitidas. Las entidades reguladas* no podrán suscribir contratos con la modalidad de cuentas de requerimiento de margen (margin accounts) ni realizar inversiones financiadas.
+*(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°38 al N°40 actual).

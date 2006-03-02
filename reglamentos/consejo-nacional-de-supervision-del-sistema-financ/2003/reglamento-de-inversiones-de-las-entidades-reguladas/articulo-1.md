@@ -1,6 +1,6 @@
 El Consejo Nacional de Supervisión del Sistema Financiero mediante Artículo 6, literal A., del Acta de la sesión 355-2003, celebrada el 11 de febrero del 2003,
 dispuso lo siguiente:
-En lo concerniente a la propuesta de "Reglamento de Inversiones para las Entidades Autorizadas"*, con base en la propuesta remitida por el M.Sc. Javier Cascante E., Superintendente de Pensiones, mediante su oficio SP-258 del 5 de febrero del 2003,
+En lo concerniente a la propuesta de "Reglamento de Inversiones para las Entidades Reguladas"*, con base en la propuesta remitida por el M.Sc. Javier Cascante E., Superintendente de Pensiones, mediante su oficio SP-258 del 5 de febrero del 2003,
 Considerando:
 a) que el Artículo 171 de la Ley Reguladora del Mercado de Valores, Ley 7732, en su literal q), modificado por la Ley de Protección al Trabajador, Ley 7983, establece como una función del CONASSIF aprobar las normas garantes de la supervisión y resguardo de la solidez financiera de los regímenes de pensiones del Poder Judicial y cualesquiera otros creados por ley o convenciones colectivas,
 b) que el Artículo 33 del "Régimen Privado de Pensiones Complementarias", Ley 7523, reformado por la Ley de Protección al Trabajador, Ley 7983, estipula que la Superintendencia de Pensiones regulará, supervisará y fiscalizará los fondos y regímenes contemplados en esta Ley, así como aquellos que le sean encomendados en virtud de otras leyes,
@@ -127,11 +127,14 @@ Transitorio V.—Cumplimiento del límite máximo estipulado en el literal b) de
 Transitorio VI.—Cumplimiento del límite máximo estipulado en el Artículo 34
 Transitorio VII.—Cumplimiento del límite máximo estipulado en el Artículo 48, para las inversiones del capital mínimo de funcionamiento
 Vigencia. 36
-REGLAMENTO DE INVERSIONES PARA LAS ENTIDADES AUTORIZADAS*
+REGLAMENTO DE INVERSIONES PARA LAS ENTIDADES REGULADAS*
+*(Así modificada su denominación por la Sesión N° 562 del 02 de marzo del 2006)
 TÍTULO I
 Disposiciones generales
 CAPÍTULO I
 Alcance y definiciones
-Artículo 1º—Alcance de la normativa. El presente reglamento norma la inversión, en valores emitidos por emisores nacionales y extranjeros de los recursos administrados por las Operadoras de Pensión Complementaria y las Organizaciones Sociales autorizadas para administrar el Fondo de Capitalización Laboral de conformidad con lo establecido en la Ley de Protección al Trabajador, Ley 7983.
-Asimismo, contempla la inversión en valores emitidos por emisores nacionales y extranjeros de los recursos correspondientes al capital mínimo de funcionamiento.
-*(Así MODIFICADA su denominación por la Sesión N° 383-2003, celebrada el 05 de agosto de 2003, publicada en La Gaceta N° 162 de 25 de agosto de 2003, la cual lo cambió de Reglamento de Inversiones para las Operadoras de Pensiones a Reglamento de Inversiones de las Entidades Autorizadas.)
+Artículo 1º—Alcance de la normativa.
+El presente Reglamento norma la inversión de los recursos administrados por las entidades reguladas, de conformidad con lo establecido en la Ley 7983, Ley de Protección al Trabajador, así como la inversión de los recursos correspondientes al capital mínimo de funcionamiento de las entidades autorizadas.
+Se exceptúan de la aplicación de este Reglamento: a) la Junta de Pensiones del Magisterio Nacional, en relación con las inversiones y administración del fondo administrativo, de conformidad con lo establecido en el Artículo 107 de la Ley Nº 7531; b) los límites de inversión, políticas de diversificación o estructuras y procedimientos establecidos en leyes especiales.
+Tratándose de entidades reguladas y fondos en proceso de liquidación, así como de fondos de pensiones creados por ley especial cerrados a nuevas afiliaciones, el Superintendente podrá, mediante acuerdo debidamente razonado y motivado, eximirlos parcialmente de la aplicación de las disposiciones contenidas en este Reglamento.
+(Así reformado mediante sesión N°562 del 02 de marzo del 2006).

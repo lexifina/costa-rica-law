@@ -1,5 +1,5 @@
-Artículo 19.—Auditoría de Riesgos. Las entidades deberán encomendar a un experto independiente o auditor externo que lleve a cabo, cuando menos una vez al año, una auditoría de Administración de Riesgos. El experto independiente o el auditor externo deberá cumplir con las siguientes características:
-a) No tener antecedentes negativos reportados en la Superintendencia de Pensiones o en cualquier otra autoridad del sistema financiero.
-b) Acreditar experiencia mínima de cuatro años en Administración de Riesgos, estadística, valuación financiera y sistemas informáticos.
-c) No podrá auditar en materia de riesgos a una misma entidad durante más de cinco años seguidos.
-d) El experto independiente o auditor a que se refiere este Artículo deberá ser elegido por la Junta Directiva o el Consejo de Administración de la entidad.
+Artículo 19.—Riesgos de mercado. Las entidades, en la administración del riesgo de mercado, deberán como mínimo:
+a) Evaluar y dar seguimiento a todas las posiciones sujetas a riesgo de mercado, utilizando para tal efecto modelos que permitan medir la pérdida potencial en dichas posiciones asociada a movimientos de precios, tasas de interés o tipos de cambio, con un nivel de probabilidad dado y horizonte definido.
+b) Definir normas cuantitativas y cualitativas para la elaboración y uso de los modelos para evaluar la diversificación del riesgo de mercado de sus posiciones.
+c) Comparar las estimaciones de riesgo de mercado con los resultados efectivamente observados. En caso de que los resultados proyectados y los observados difieran significativamente se deberá analizar los supuestos y modelos utilizados para realizar las proyecciones y, en su caso, modificar dichos supuestos o modelos.
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°18 al N°19 actual).

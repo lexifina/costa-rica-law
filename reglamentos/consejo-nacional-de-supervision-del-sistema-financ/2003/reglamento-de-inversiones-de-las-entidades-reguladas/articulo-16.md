@@ -1,5 +1,4 @@
-Artículo 16.—Riesgo legal. Las entidades autorizadas deberán valorar como mínimo:
-a) Las políticas y procedimientos en busca de una adecuada instrumentación de los convenios y contratos en los que participen, delimitando claramente sus derechos y obligaciones contractuales.
-b) Determinar las consecuencias legales producto de la actividad de la entidad en función de la administración de ahorro público según los términos que establecen la legislación aplicable.
-c) Difundir ampliamente entre los funcionarios y empleados, las disposiciones legales y administrativas aplicables a sus operaciones, así como las implicaciones que conllevan su ejercicio.
-d) Establecer las acciones jurídicas y administrativas pertinentes que permitan tutelar el riesgo de contraparte, ante el evento de incumplimiento de un emisor, de modo que se logre la máxima recuperabilidad de la inversión mediante la ejecución de colaterales u otras garantías.
+Artículo 16.—Riesgo de crédito. La evaluación del riesgo de crédito debe contemplar la estimación de por lo menos dos elementos:
+a) La probabilidad de deterioro o de cambio en la calificación de riesgo del título valor, y consecuentemente la posibilidad de impago de la prestación.
+b) La estimación o cuantificación de la pérdida potencial de la entidad en caso de que se produzca el evento anterior.
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°15 al N°16 actual).

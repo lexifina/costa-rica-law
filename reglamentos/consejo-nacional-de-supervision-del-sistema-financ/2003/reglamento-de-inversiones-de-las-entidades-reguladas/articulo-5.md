@@ -1,3 +1,9 @@
-Artículo 5º—De los libros de actas. La entidad autorizada llevará los acuerdos tomados por su Comité de Inversiones en un libro de actas electrónico con los requisitos que para tal efecto dicte el Superintendente.
-Las políticas y decisiones de inversión se consignarán en el libro de actas, en el cual se debe indicar con claridad a qué fondo o fondos corresponde la decisión tomada. Las actas deberán ser firmadas por el Presidente y el Secretario. Los miembros del comité son igualmente responsables de que el contenido de las actas corresponde a lo discutido y aprobado en cada sesión.
-El libro de actas, así como la información en la que se respalden las decisiones de inversión, deberá estar disponible para la Superintendencia.
+Artículo 5º—Funciones del Comité de Inversiones
+El Comité de Inversiones desempeñará al menos las siguientes funciones:
+a) Proponer, para discusión y aprobación del Órgano de Dirección, la política de inversiones para la gestión de cada uno de los fondos administrados. Dicha política deberá ser revisada, al menos, anualmente por parte del Órgano de Dirección.
+La política de inversiones deberá incluir, cuando menos, los objetivos y políticas de inversión de la cartera administrada, criterios de diversificación por título, plazo, moneda, emisión y emisor, concentración de emisores y emisión colocada, liquidez y demás que consideren pertinentes, así como los procedimientos y prácticas de inversión. La política y sus revisiones periódicas deberán documentarse en el libro de actas.
+b) Deberá sesionar, al menos, una vez al mes con el objeto de determinar la estrategia de inversión, la composición de los activos de los fondos gestionados e informar y documentar al Órgano de Dirección de las decisiones tomadas por el Comité.
+El Comité de Inversiones de cada entidad deberá establecer los mecanismos necesarios para verificar el cumplimiento de las políticas de inversión dictadas, la sujeción al régimen de inversión previsto y a los límites de riesgos vigentes.
+c) Aprobar y dar seguimiento a los planes de reducción de riesgos correspondientes a excesos de inversión.
+(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°4 al N°5 actual).

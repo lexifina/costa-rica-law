@@ -1,1 +1,5 @@
-Artículo 65.—Derogatoria. Se deroga el Capítulo VII. y el párrafo final del Artículo 17 del Reglamento sobre la apertura y funcionamiento de las entidades autorizadas y el funcionamiento de los fondos de pensiones, capitalización laboral y ahorro voluntario previstos en la Ley de Protección al Trabajador y sus reformas, Publicado en el Diario Oficial "La Gaceta" N° 78, Alcance 30 del 24 de abril del 2001.
+Artículo 65.—Cuentas corrientes de custodia.
+Las entidades reguladas abrirán una cuenta corriente para cada fondo administrado en un banco nacional o extranjero, según las indicaciones de la entidad de custodia. Estas cuentas se utilizarán únicamente para completar las transacciones efectuadas con los instrumentos de inversión.
+Estas cuentas deberán cumplir en con las disposiciones establecidas en la regulación emitida por el CONASSIF para la actividad de custodia de valores.
+(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°62 al N°65 actual).

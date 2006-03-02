@@ -1,10 +1,9 @@
-Artículo 11.—Funciones de la Unidad de Administración de Riesgos. La Unidad para la Administración Integral de Riesgos desempeñará las siguientes funciones:
-a) Vigilar que la administración de riesgos sea integral y considere los riesgos en que incurran las entidades en ejercicio de sus funciones de administración.
-b) Proponer al Comité de Riesgos de cada entidad la metodología, y aplicarla una vez aprobada, para identificar, medir y monitorear los distintos tipos de riesgos a que se encuentren expuestas, así como los límites por tipo de riesgo establecidos internamente.
-c) Informar al Comité de Riesgos, al de Inversiones y al Gerente o Administrador sobre:
-i) La exposición global y por tipo de riesgo de los fondos administrados. Los informes sobre la exposición de riesgo deberán incluir análisis de sensibilidad y pruebas bajo condiciones extremas.
-ii) Las desviaciones que, en su caso, se presenten con respecto a los límites de exposición al riesgo establecidos, proponiendo cuando así corresponda las acciones correctivas necesarias.
-d) Los informes a que se refiere este Artículo deberán presentarse al menos mensualmente, o bien, con mayor frecuencia, cuando esto se requiera en atención al dinamismo de los riesgos.
-e) Investigar y documentar las causas que originen desviaciones a los límites de exposición al riesgo establecidos, identificando si dichas desviaciones se presentan en forma reiterada e informar de manera oportuna sus resultados al Comité de Riesgos, de Inversiones y la alta dirección.
-f) Recomendar la disminución de la exposición al riesgo a los límites previamente aprobados cuando lo considere pertinente.
-g) Calcular el rendimiento ajustado por riesgo que se tenga de los activos de cada fondo administrado y presentarlos al Comité de Riesgos y de Inversiones para su discusión y evaluación.
+Artículo 11.—De la Unidad para la Administración Integral de Riesgos.
+El Comité de Riesgos se apoyará en una unidad especializada cuyo objeto será identificar, medir, monitorear e informar a dicho comité y a los órganos y funcionarios a que se refiere el literal c) del artículo anterior, los riesgos cuantificables que enfrenten las entidades reguladas* en sus operaciones. La Unidad para la Administración Integral de Riesgos deberá constituirse dentro de la estructura de la entidad o bien podrá contratar a un tercero para que preste este servicio.
+En caso de que la unidad se constituya dentro de la entidad, deberá ser independiente de las áreas de operación, a fin de evitar conflictos de interés y asegurar una adecuada separación de responsabilidades.
+Si la prestación de este servicio se contrata con un tercero, dicha persona o entidad no deberá tener conflictos de interés con la entidad, y el grupo financiero si es del caso, y acreditar capacidad técnica, experiencia en la materia y solvencia moral.
+Podrán también utilizar la unidad de riesgo de su grupo financiero siempre y cuando ésta cumpla con los requisitos técnicos y de experiencia que la faculten para realizar tal labor.
+En estos casos la responsabilidad del cumplimiento de la normativa contenida en este reglamento seguirá siendo de la Gerencia o Administración.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 383-2003, celebrada el 05 de agosto de 2003, publicada en La Gaceta N° 162 de 25 de agosto de 2003.)
+*(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+(Corrida su numeración mediante sesion N°562 del 02 de marzo del 2006, que lo pasó del anterior N°10 al N°11 actual).

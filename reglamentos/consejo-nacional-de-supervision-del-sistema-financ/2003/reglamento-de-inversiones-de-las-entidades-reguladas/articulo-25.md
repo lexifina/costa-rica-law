@@ -1,15 +1,14 @@
-CAPÍTULO II
-De los límites
-Artículo 25.—De los límites por sector. Las inversiones del fondo deberán cumplir con los siguientes límites máximos, expresados como porcentaje total de inversiones:
-a) En valores emitidos por el Banco Central de Costa Rica y el Ministerio de Hacienda: hasta el 50% de las inversiones del fondo.
-b) En valores emitidos por el resto del Sector Público No Financiero: hasta el 5% de las inversiones del fondo.
-c) En valores emitidos por el resto del Sector Público Financiero: hasta el 20% de las inversiones del fondo.
-d) En valores emitidos por empresas del Sector Privado: hasta un 70% de las inversiones del fondo, en función de la calidad crediticia de las emisiones, a saber:
-Calificación Porcentaje del fondo
-AAA 70%
-AA 50%
-A 20%
-El Superintendente establecerá mediante disposición, y con el objeto de equiparar las calificaciones de las empresas calificadoras locales, las respectivas equivalencias entre las escalas vigentes.
-e) Los fondos del Régimen Obligatorio de Pensiones Complementarias deberán destinar como mínimo un 15% de estos a la inversión en títulos valores con garantía hipotecaria emitidos por las entidades del Sistema Financiero Nacional para la Vivienda. Como parte de este 15% podrá adquirir valores provenientes de procesos de titularización hipotecaria cuyo subyacente provenga de créditos destinados para la construcción o adquisición de vivienda. Para tales efectos, el rendimiento de dichos valores deberá ser igual o mayor que el rendimiento promedio de las otras inversiones que las operadoras de pensiones realicen en este régimen.
-El rendimiento promedio de las inversiones de las operadoras de pensiones se determinará según la metodología que al efecto emita el Superintendente.
-f) Se computará como valores privados las participaciones de fondos de inversión, las recompras y los reportos.
+Artículo 25.—De los tipos de valores.
+Para el caso de emisiones del mercado de valores costarricense, los recursos administrados por las entidades reguladas podrán ser invertidos, dentro de los límites fijados en este reglamento, en los siguientes valores e instrumentos:
+a) Valores representativos de deuda emitidos en serie.
+b) Valores individuales de deuda con plazo de vencimiento de hasta 180 días emitidos por las entidades financieras supervisadas por la Superintendencia General de Entidades Financieras.
+c) Bonos u obligaciones convertibles en acciones comunes o preferentes.
+d) Acciones comunes o preferentes de sociedades anónimas.
+e) Valores o instrumentos de inversión estructurados producto de procesos de titularización.
+f) Operaciones de recompra y reportos, realizados en los recintos y bajo las regulaciones establecidas por las bolsas de valores autorizadas por la Superintendencia General de Valores, en tanto el activo financiero subyacente cumpla con los requisitos indicados en este reglamento.
+Únicamente se permitirá este tipo de operaciones como instrumento de inversión. Los fondos deberán mantener, exclusivamente, posiciones de venta a plazo.
+La moneda en la que se realicen estas operaciones deberá ser aquella en la que esté denominada el subyacente respectivo.
+g) Títulos de participación emitidos por fondos de inversión.
+El Régimen de Capitalización Colectiva de Pensiones y Jubilaciones del Magisterio Nacional deberá también observar las disposiciones contenidas en el Artículo 21 de la Ley Nº 7531, Reforma Integral del Sistema de Pensiones y Jubilaciones del Magisterio Nacional.
+(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°23 al N°25 actual).

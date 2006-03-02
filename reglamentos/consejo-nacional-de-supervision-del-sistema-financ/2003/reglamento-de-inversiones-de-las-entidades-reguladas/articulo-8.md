@@ -1,9 +1,8 @@
-Artículo 8º—Comité integral de riesgos. La entidad autorizada deberá constituir un comité encargado de la identificación, estimación, administración y control de los riesgos inherentes al negocio.
-El Comité de Riesgos deberá estar constituido como mínimo por:
-a) El gerente o administrador de la entidad autorizada o el administrador de la organización social autorizada.
-b) Un miembro independiente, que no puede formar parte del Comité de Inversiones, nombrado por la Junta Directiva de la entidad autorizada.
-c) El responsable de la Unidad para la Administración Integral de Riesgos.
-Los responsables de la realización de las inversiones y la ejecución de la estrategia que dicte el Comité de Inversión y de las distintas áreas involucradas en la operación que impliquen la toma de riesgos podrán participar en el Comité de Riesgos con voz pero sin voto.
-El Comité de Riesgos se deberá reunir cuando menos una vez al mes. Todas las sesiones y acuerdos de los Comités de Riesgos deberán hacerse constar en actas debidamente razonadas en un libro de actas electrónico que será diferente al utilizado por el Comité de Inversiones. Las actas deberán ser firmadas por el Presidente y el Secretario. Los miembros del comité son igualmente responsables de que el contenido de las actas corresponde a lo discutido y lo aprobado en cada sesión.
-Para estos efectos, al libro de actas del Comité de Riesgos le será aplicable lo establecido en los artículos 5º y 6º de este Reglamento.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 383-2003, celebrada el 05 de agosto de 2003, publicada en La Gaceta N° 162 de 25 de agosto de 2003.)
+CAPÍTULO II
+Administración del riesgo
+Artículo 8º—Gestión del riesgo
+La gestión interna del riesgo por parte de las entidades reguladas deberá estar orientada a generar una cultura y prácticas de alto nivel técnico.
+Es obligación fundamental de las entidades reguladas mantener, permanentemente, una adecuada evaluación, administración y valoración de los riesgos. Los Órganos de Dirección de las entidades deben establecer políticas claras y precisas que definan los criterios bajo los cuales la organización en general debe evaluar, calificar y controlar los riesgos de la entidad y de los fondos administrados. Igualmente, deberán adoptar las políticas y acciones necesarias para asegurar el cumplimiento estricto de las instrucciones mínimas que se han definido. Por su parte, los Órganos de Control deberán velar por el correcto cumplimiento de esas políticas en procura de un adecuado control de la exposición al riesgo.
+La Superintendencia, mediante visitas de inspección periódicas o por cualquier otro medio, evaluará regularmente la aplicación de las metodologías y procedimientos adoptados por las entidades reguladas para el análisis y manejo del riesgo.
+(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°7 al N°8 actual).

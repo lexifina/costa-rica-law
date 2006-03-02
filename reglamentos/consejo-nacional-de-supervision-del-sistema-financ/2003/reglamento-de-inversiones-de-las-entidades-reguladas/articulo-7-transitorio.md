@@ -1,4 +1,4 @@
-Transitorio VII.—Cumplimiento del límite máximo estipulado en el artículo 48, para las inversiones del capital mínimo de funcionamiento
-El cumplimiento de los requisitos de inversión del capital de funcionamiento serán de acatamiento obligatorio a más tardar el 30 de junio del 2004.
-Vigencia. El presente reglamento rige a partir de su publicación en el Diario Oficial "La Gaceta".
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 383-2003, celebrada el 05 de agosto de 2003, publicada en La Gaceta N° 162 de 25 de agosto de 2003.)
+Transitorio VII. Plazo para acreditar ante la SUPEN la certificación exigida en el Artículo 52.
+Para cumplir con la certificación establecida en el Artículo 52 las entidades reguladas contarán con un plazo de 24 meses a partir de que el mercado cuente con una norma producto vigente.
+La Superintendencia coordinará las actividades necesarias a efecto de que dicha norma sea emitida por un organismo normalizador reconocido a nivel internacional.
+(Así reformado mediante sesión N°562 del 02 de marzo del 2006).

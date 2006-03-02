@@ -1,3 +1,5 @@
-Artículo 48.—De los límites a la inversión
-La inversión de los recursos del capital de funcionamiento podrán como máximo concentrarse en un 50% en los valores establecidos en el inciso a) del artículo 46. Adicionalmente, no podrá concentrarse más de un 10% en cada uno de los otros emisores elegibles para este tipo de recursos.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 383-2003, celebrada el 05 de agosto de 2003, publicada en La Gaceta N° 162 de 25 de agosto de 2003.)
+Artículo 48.—Valores elegibles
+El órgano de dirección de la entidad autorizada emitirá la política de inversión y límites de riesgo para los recursos que respalden el capital de funcionamiento.
+Las entidades autorizadas podrán invertir en los mercados autorizados establecidos en el Artículo 32 y en los valores e instrumentos dispuestos en este Reglamento.
+(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°46 al N°48 actual).

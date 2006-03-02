@@ -1,7 +1,9 @@
-Artículo 20.—Requisitos mínimos de la auditoría de riesgos. La auditoría en Administración de Riesgos deberá contemplar, entre otros, los siguientes aspectos:
-a) El desarrollo de la Administración de Riesgos de conformidad con lo establecido en las presentes disposiciones y en el Manual de Políticas y Procedimientos para la Administración Integral de Riesgos de la entidad.
-b) La organización de la Unidad para la Administración Integral de Riesgos y su independencia de las demás áreas, o en caso de que este servicio lo preste un tercero el cumplimiento del contrato celebrado entre las partes.
-c) Programas de revisión del cumplimiento de objetivos, procedimientos y controles en la celebración de operaciones, así como de los límites de exposición al riesgo, semestralmente, o bien, con una mayor frecuencia cuando por las condiciones del mercado se justifique.
-d) Sistemas de almacenamiento, procesamiento y manejo de información que permitan el desarrollo de una Administración de Riesgos.
-e) Aplicación y difusión de los planes de acción para casos de contingencia, por caso fortuito o fuerza mayor, que impidan el cumplimiento de los límites de exposición al riesgo establecidos.
-f) Programas de capacitación para el personal de la Unidad para la Administración Integral de Riesgos, tanto para el caso de que ésta forme parte de la estructura de la Administradora como para cuando se contrate con un tercero, y para todo aquel involucrado en las operaciones que impliquen riesgo para los fondos administrados.
+Artículo 20º—Auditoría de Riesgos.
+Las entidades reguladas deberán encomendar a un experto independiente o auditor externo que lleve a cabo, cuando menos una vez al año, una auditoría de administración de riesgos.
+Dicha labor podrá ser parte integral del trabajo realizado por la firma de Auditores Externos o bien contratarse a un experto independiente, debiendo presentarse en un informe separado. El experto independiente o el auditor externo deberán cumplir con los siguientes requisitos:
+a) No haber sido sancionado por la Superintendencia de Pensiones o por cualquier otra autoridad del sistema financiero en los cinco años anteriores.
+b) Contar con conocimientos y experiencia demostrables en medición y administración de riesgos, estadística, valuación financiera y sistemas informáticos.
+El órgano de dirección nombrará, mediante acuerdo, al responsable de la auditoría de riesgos a quien se aplicarán las incompatibilidades que se establecen en la normativa relativa a las auditorías externas.
+Adicionalmente, el órgano de dirección deberá establecer una política de rotación de firmas, así como de su personal, que sea congruente con la definida para la contratación de otras instancias de control externo.
+(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°19 al N°20 actual).

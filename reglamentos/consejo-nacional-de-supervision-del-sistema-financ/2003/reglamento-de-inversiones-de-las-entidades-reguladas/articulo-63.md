@@ -1,1 +1,5 @@
-Artículo 63.—De las comisiones de custodia. Las comisiones por los servicios de custodia serán pactadas entre la entidad autorizada y la entidad que le preste el servicio y serán cubiertos en su totalidad por la entidad.
+Artículo 63.—Autorización para operar con un custodio internacional
+De previo a la remisión del contrato a la Superintendencia, el órgano de dirección deberá comprobar el cumplimiento de los requisitos y aprobar el convenio mediante acuerdo debidamente motivado. Este último deberá ser comunicado a la Superintendencia de Pensiones dentro de los siguientes tres días hábiles contados a partir de su firmeza, quien procederá conforme establece el Artículo 66 de la Ley 7983.
+Es responsabilidad de las entidades supervisadas verificar que los requisitos establecidos se mantengan y custodiar, para fines de supervisión, la documentación probatoria relativa a su cumplimiento. Cualquier variación o pérdida de requisitos deberá ser comunicada a la Superintendencia dentro del plazo de dos días hábiles, contados a partir del conocimiento del hecho. A la comunicación deberá adjuntarse el respectivo plan de acción.
+(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°60 al N°63 actual).

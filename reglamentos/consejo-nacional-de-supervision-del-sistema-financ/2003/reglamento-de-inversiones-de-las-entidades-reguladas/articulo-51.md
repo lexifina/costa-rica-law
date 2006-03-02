@@ -1,3 +1,2 @@
-CAPÍTULO II
-Valoración y tratamiento de excesos
-Artículo 51.—De la valoración de las inversiones. Las entidades autorizadas deberán valorar los títulos y valores de los fondos administrados conforme al Reglamento de Valoración de Carteras Mancomunadas emitido por el Consejo Nacional de Supervisión del Sistema Financiero.
+Artículo 51.—Prohibición. Queda prohibido invertir los recursos del capital mínimo de funcionamiento mediante operaciones de recompra o reporto, derivados financieros o realizar cualquier otra operación que implique pignorar o dar en garantía los títulos que respaldan el capital de funcionamiento.
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°49 al N°51 actual).

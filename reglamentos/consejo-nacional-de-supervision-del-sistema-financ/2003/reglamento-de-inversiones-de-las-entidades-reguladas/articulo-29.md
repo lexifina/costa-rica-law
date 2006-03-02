@@ -1,9 +1,15 @@
-TÍTULO IV
-Inversión en valores de emisores extranjeros
-CAPÍTULO I
-Disposiciones generales
-Artículo 29.—Condiciones para invertir en valores extranjeros. Las entidades autorizadas podrán realizar inversiones en emisores extranjeros en mercados de valores internacionales o nacionales de conformidad con lo dispuesto en la Ley de Protección al Trabajador. La entidad autorizada deberá aportar a la Superintendencia los documentos que respalden el cumplimiento de los requisitos siguientes:
-a) Disponer de un sistema de información en tiempo real, reconocido por la Superintendencia General de Valores, que les permita monitorear los precios y hechos relevantes de los instrumentos que negocian.
-b) Cumplir con los requisitos establecidos para el Comité Integral de Riesgos y de la Unidad de Administración de Riesgo.
-c) Remitir a la Superintendencia una copia del contrato definitivo debidamente firmado con el (los) intermediario(s) elegido(s). Se exigirá una traducción oficial al castellano del documento en caso de no estar en este idioma.
-La Superintendencia establecerá, por acuerdo general, los términos en que se verificará la vigencia del cumplimiento de los requisitos enumerados en este Artículo. El incumplimiento posterior de cualquiera de ellos dará lugar a la revocatoria de la autorización.
+Artículo 29.—Límites por emisión y por emisor.
+Tratándose de valores de emisores locales, emitidos en el mercado costarricense, las entidades reguladas deberán cumplir los siguientes límites máximos de concentración expresados como porcentaje del total de inversiones del fondo:
+a) Un máximo del 10% de las inversiones del fondo administrado en un mismo emisor de los contemplados en el Artículo 27 de este Reglamento. Para el cómputo de ese máximo se considerará la siguiente tabla de límites intermedios según la calificación de riesgo de la emisión:
+Calificación | Porcentaje de las inversiones
+AAA | 10%
+AA | 7,5%
+A | 5%
+En el caso de que una emisión presente dos calificaciones de riesgos distintas se tomará la más baja.
+b) Hasta un máximo del 5% en un mismo fondo de inversión y un máximo de un 10% de las inversiones del fondo en títulos de participación de fondos de inversión administrados por una misma sociedad administradora.
+c) Hasta un 10% de las inversiones del fondo en valores emitidos por un mismo grupo, conglomerado financiero o empresas vinculadas por propiedad o control.
+d) Hasta un máximo de un 20% de una misma emisión en circulación entre todos los fondos administrados de una misma entidad regulada.
+e) Hasta un máximo de un 5% por emisor, tratándose de inversiones en acciones comunes o preferentes.
+No se contemplan dentro de estos límites las inversiones realizadas en valores según el literal a) del Artículo 27 de este reglamento.
+(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°27 al N°29 actual).

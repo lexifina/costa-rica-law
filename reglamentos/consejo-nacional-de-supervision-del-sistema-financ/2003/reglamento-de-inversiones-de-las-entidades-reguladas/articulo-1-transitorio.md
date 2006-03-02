@@ -1,6 +1,9 @@
-TÍTULO VIII
+TÍTULO IX
 Transitorios
-(NOTA DE SINALEVI: en sesión N°562 del 02 de marzo del 2003, se reforma el presente Reglamento, dicha reforma contiene disposiciones transitorias, las cuales se pueden consultar en el sistema).
-Transitorio I.—Del plazo para los ajustes. Las entidades autorizadas deberán tener en funcionamiento el sistema de administración integral de riesgos, así como la organización administrativa contemplada en esta normativa en materia de riesgos, a más tardar el 31 de diciembre de 2003. Dentro de los 30 días hábiles siguientes a la publicación de esta normativa en el Diario Oficial, las operadoras de pensiones deberán presentar a la Superintendencia de Pensiones un plan de acción para ajustarse a lo dispuesto en este reglamento.
-Sin embargo, las entidades podrán realizar inversiones en valores contenidos en este reglamento siempre y cuando demuestren correcta y adecuadamente la realización de estudios técnicos sobre el riesgo de los mismos, a excepción de los valores emitidos por emisores extranjeros, en cuyo caso deberá cumplir con todos los requisitos y condiciones establecidos en esta normativa.
-Por otra parte, las entidades autorizadas deberán adecuar los contratos vigentes, con intermediarios y custodios, a las normas que este reglamento establece en un plazo de 60 días naturales después de la aprobación de esta normativa.
+(Así corrida su numeración mediante sesión N° 1049 del 02 de julio de 2013, que lo traspasó del antiguo título VIII al IX)
+Transitorio I. Del plazo para los ajustes al funcionamiento del sistema de administración de riesgos en los Regímenes o Regímenes Especiales.
+Los Regímenes Especiales deberán tener en funcionamiento el sistema de administración integral de riesgos, así como la organización administrativa contemplada en esta normativa en materia de riesgos, a más tardar el 31 de diciembre del 2006.
+Dentro de los 40 días hábiles siguientes a la publicación de esta normativa en el diario oficial, los Regímenes Especiales deberán presentar a la Superintendencia de Pensiones un plan de acción para ajustarse a lo dispuesto en este reglamento.
+Los Regímenes podrán realizar inversiones en valores extranjeros y operaciones de derivados de conformidad con los requisitos y condiciones establecidos en este Reglamento.
+Asimismo, deberán adecuar, a esta normativa, los contratos suscritos con intermediarios y custodios dentro de un plazo de 120 días naturales contados a partir de su vigencia.
+(Así reformado mediante sesión N° 562 del 02 de marzo del 2006).
