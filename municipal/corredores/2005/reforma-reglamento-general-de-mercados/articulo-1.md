@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE CORREDORES
+Por medio del acuerdo Nº 8, de la sesión ordinaria Nº 51, celebrada el día 19 de diciembre del año 2005, el Concejo Municipal de Corredores acuerda aprobar la modificación del artículo 9º del Reglamento General de Mercados de la Municipalidad de Corredores, publicado en La Gaceta Nº 52 del 14 de marzo de 1985, para que se lea así.
+Artículo 9º—Salvo disposición legal especial, los puestos o locales permanentes, se adjudicarán siguiendo las normas pertinentes contenidas en la Ley de Administración Financiera de la República, la Ley de Contratación Administrativa y su Reglamento y este Reglamento. Para la estimación del precio del arrendamiento, se tomará como base el monto de seis mensualidades a tono con el principio que para fines de cuantía establece el inciso c) del artículo 169 de la Ley Orgánica del Poder Judicial.
+Se rebajará en un cuarenta por ciento el monto de la tasa de alquiler de locales del mercado municipal, a aquellas entidades reconocidas a nivel nacional como de bienestar social sin fines de lucro que a la fecha hayan solicitado el arrendamiento de un local permanente.
+Del acto de adjudicación se levantará un acta que será firmada por el Alcalde Municipal, conteniendo todos los detalles necesarios para la identificación del favorecido.
+Corredores, 17 de febrero del 2006
