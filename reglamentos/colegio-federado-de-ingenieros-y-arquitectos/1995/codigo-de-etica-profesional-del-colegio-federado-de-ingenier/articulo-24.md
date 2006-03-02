@@ -1,1 +1,5 @@
-Artículo 24.—Cuando con una misma conducta se violen varias disposiciones del presente Código, se aplicará la sanción establecida para la falta más grave.
+Artículo 24.—La Junta Directiva General, en aquellos casos en que la situación especial del sancionado así lo amerite, podrá imponer una ejecución condicional de la sanción, siempre que la falta cometida no amerite una inhabilitación superior a los doce meses.
+En estos casos, se suspenderá la ejecución de la sanción impuesta y el sancionado deberá cumplir, por el término que ordene la Junta Directiva General y sin que sea menor a la inhabilitación decretada, con un servicio comunal que será determinado por la Dirección Ejecutiva.
+Si el sancionado no cumpliere con las condiciones establecidas por la Junta Directiva General, se revocará el beneficio concedido y se procederá a aplicar la sanción establecida, en forma íntegra.
+Vencido el plazo de la ejecución condicional concedido al sancionado, y habiendo cumplido en forma satisfactoria las condiciones que le fueron impuestas, se tendrá por extinguida la sanción.
+(Así reformado mediante acuerdo N°3, publicado en la Gaceta N°60 del 24 de marzo del 2006, que adiciona el presente texto y unifica el anterior al artículo 25).
