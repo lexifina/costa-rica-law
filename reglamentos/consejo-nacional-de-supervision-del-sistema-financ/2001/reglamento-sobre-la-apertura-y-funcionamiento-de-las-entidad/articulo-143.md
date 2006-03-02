@@ -2,5 +2,5 @@ Capítulo XVII
 Disposiciones Finales
 Artículo 143.—De la información a los afiliados. Las entidades autorizadas deberán comunicar a sus afiliados los medios de información disponibles para informarles acerca de los movimientos registrados en sus cuentas.
 Se deberá enviar, al menos cada 6 meses, un estado de cuenta a los afiliados, en los formatos que establezca el Superintendente. No obstante lo anterior, esa información deberá estar siempre disponible para el afiliado.
-El estado de cuenta será acompañado de la composición del portafolio de inversiones con fecha de corte mensual para los últimos seis meses. El Superintendente definirá por acuerdo general el nivel de detalle que dicha información requiera.
-(Así reformado mediante sesion 488 del 6 de enero del 2005)
+El estado de cuenta será acompañado de un resumen de las inversiones realizadas para cada fondo administrado. Dicho resumen deberá incluir, para cada fondo administrado, la diversificación por plazo, por moneda, por instrumento, por mercado (local o extranjero), por sector (público o privado) y por emisor. Asimismo, la entidad regulada deberá declarar, en dicho resumen, que la información es congruente con la política de inversión y el manual de gestión de riesgos aprobados por el Órgano de Dirección. Si el afiliado al fondo desea mayor información sobre la política de inversiones vigente, la entidad deberá entregársela a la brevedad posible y sin costo alguno.
+(Así reformado mediante sesion N°562 del 02 de marzo del 2006).
