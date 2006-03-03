@@ -14,3 +14,4 @@ Obligación del Transportista Aduanero que efectúe operaciones en las Aduanas d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-14 | la propia norma |
+| 2 | 2006-03-03 | Resolución 151 (2006-03-03) |

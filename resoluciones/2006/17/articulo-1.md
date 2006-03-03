@@ -1,3 +1,5 @@
+(Suspendida)
+(Mediante resolución N°151 de las ocho horas del tres de marzo del dos mil seis, la Dirección General de Aduanas acordó suspender en forma indefinida la fecha de exigibilidad del precinto electrónico para las unidades de transporte, establecida en esta resolución)
 DIRECCIÓN GENERAL DE ADUANAS
 RES-DGA-Nº 017-06.—San José, a las diecisiete horas con treinta minutos del veinticinco de enero del dos mil seis.
 Considerando:
