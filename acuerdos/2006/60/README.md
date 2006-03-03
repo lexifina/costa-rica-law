@@ -14,3 +14,4 @@ Registro Nacional de Embarcaciones pertenecientes a la Flota Pequeña Escala, Me
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-24 | la propia norma |
+| 2 | 2006-03-03 | Acuerdo 98 (2006-03-03) |
