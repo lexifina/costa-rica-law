@@ -1,0 +1,1 @@
+Artículo 15.—Información de los cursos de inducción. Cuando se requiera información que trate sobre los cursos de inducción al nuevo trabajador, esta será solicitada en las oficinas de recursos humanos de cada centro de salud.

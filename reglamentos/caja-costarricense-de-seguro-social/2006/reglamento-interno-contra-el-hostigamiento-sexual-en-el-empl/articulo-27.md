@@ -1,0 +1,1 @@
+Artículo 27.—De la citación a la comparecencia. El órgano director citará a las partes a un única comparecencia, oral y privada, en el plazo de cinco días hábiles, posterior a la notificación de la resolución inicial. Podrá el Órgano Director, ampliar este plazo, justificando lo actuado ante la jefatura que solicitó la apertura del procedimiento.

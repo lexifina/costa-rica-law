@@ -1,0 +1,1 @@
+Artículo 35.—De la improrrogabilidad de los plazos. Los plazos establecidos para realizar el procedimiento, por parte del órgano director, son improrrogables, salvo disposición en contrario. Cualquier prórroga se solicitará a la jefatura inmediata, con anterioridad al vencimiento del plazo principal, debidamente justificada.

@@ -1,0 +1,1 @@
+Artículo 19.—De la subsanación de defectos. Los defectos u omisiones que pudiera contener la denuncia, no darán lugar para su rechazo. El funcionario(a) que la recibe, deberá verificar los datos indicados en el formulario diseñado al efecto, el cual se anexa a este Reglamento.

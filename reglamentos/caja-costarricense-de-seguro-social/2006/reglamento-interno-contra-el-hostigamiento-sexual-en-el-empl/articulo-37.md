@@ -1,0 +1,1 @@
+Artículo 37.—De la comunicación del acto final a la Defensoría de los Habitantes. Cuando el acto final adquiera firmeza, este debe ser comunicado a la Defensoría de los Habitantes, por parte de la jefatura inmediata.

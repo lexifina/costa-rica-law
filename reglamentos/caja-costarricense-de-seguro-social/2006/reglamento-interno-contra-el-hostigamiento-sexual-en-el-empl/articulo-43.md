@@ -1,0 +1,1 @@
+Artículo 43.—Modificaciones. Cualquier modificación en este Reglamento será presentada por la Gerencia de División Administrativa a la Junta Directiva, para la aprobación; ésta deberá publicarse, a través de los medios pertinentes.

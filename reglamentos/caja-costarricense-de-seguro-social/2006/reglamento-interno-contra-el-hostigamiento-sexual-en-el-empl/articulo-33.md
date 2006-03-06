@@ -1,0 +1,1 @@
+Artículo 33.—De la presentación del alegato de conclusiones. Transcurrido el plazo para evacuar la prueba, el órgano director concederá a las partes un plazo de 5 días para que presenten su alegato de conclusiones.

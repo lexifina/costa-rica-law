@@ -1,0 +1,1 @@
+Artículo 31.—De la participación de diferentes disciplinas en el procedimiento. Siempre y cuando resulte pertinente para el buen desarrollo del procedimiento, el Órgano Director solicitará la participación de disciplinas como Psicología, Trabajo Social, Salud Ocupacional y otras dependencias institucionales.
