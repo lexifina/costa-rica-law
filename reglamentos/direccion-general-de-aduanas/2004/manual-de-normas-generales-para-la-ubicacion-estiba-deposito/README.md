@@ -14,3 +14,4 @@ Manual de Normas Generales para la Ubicación, Estiba, Depósito, Movilización 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-31 | la propia norma |
+| 2 | 2006-03-06 | Resolución 165 (2006-03-06) |
