@@ -1,0 +1,2 @@
+Artículo 89.—En caso de que se presenten diferencias de criterios en algún tópico, propio de la Contratación Administrativa, entre las diferentes dependencias involucradas en un procedimiento de contratación, prevalecerá el criterio de la dependencia especialista según la temática del diferendo. En caso de permanecer la diferencia, el asunto será resuelto en forma definitiva por la Gerencia General.
+(Así adicionado y publicado en La Gaceta N° 51 del 13 de marzo del 2006)
