@@ -1,0 +1,1 @@
+Artículo 4º—La Refinadora Costarricense de Petróleo S. A., repondrá los árboles en las zonas afectadas en una proporción de uno a diez árboles reforestados de especies nativas de la zona, con el fiel interés de asegurar un desarrollo sustentable en sus proyectos de desarrollo.

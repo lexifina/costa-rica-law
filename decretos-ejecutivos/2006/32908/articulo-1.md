@@ -1,0 +1,13 @@
+Nº 32908
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DEl AMBIENTE Y ENERGÍA
+Con fundamento en las facultades que les confieren los incisos 3) y 18) de los artículos 140 y 146 de la Constitución Política y el artículo 27 de la Ley General de la Administración Pública, N° 6227 de mayo de 1978 y
+Considerando:
+1º—Que en diversas zonas del país, la Refinadora Costarricense de Petróleo S. A. requiere ejecutar proyectos en lo referente a importación refinación, transporte, almacenamiento y comercialización de hidrocarburos con el fin de afrontar la demanda cada día mayor en el consumo de los mismos.
+2º—Que las políticas de desarrollo del país proyectadas por el Estado conllevan necesariamente el mejoramiento de la calidad de vida de los costarricenses, lo cual depende, entre otras cosas, del suministro eficiente y oportuno de los combustibles.
+3º—Que con el propósito de alcanzar los objetivos propuestos por dicha Refinadora, se debe promover planificada y activamente la construcción de obras de inversión para desarrollar proyectos de importación, refinación trasiego de combustible y almacenamiento de hidrocarburos, con el fin de satisfacer las necesidades del país.
+4º—Que con el fin de llevar a cabo tales cometidos, se requiere en algunas ocasiones, consideradas de excepciones, la corta de árboles que se encuentren dentro del área determinada para realizar obras que atiendan la demanda nacional de hidrocarburos, así como para su transporte entre sus diferentes planteles distribuidos a lo largo y ancho del país, siendo que en algunos casos estas áreas se encuentran comprendidas por terrenos de patrimonio natural del Estado y en áreas de protección de propiedad estatal o privada.
+5º—El artículo 1° de la Ley Forestal, N° 7575 establece como función esencial y prioritaria del Estado, velar por la conservación, protección, administración de los bosques naturales y por la producción, aprovechamiento, la industrialización y el fomento de los recursos forestales del país destinados a ese fin, de acuerdo con el principio de uso adecuado sostenible de los recursos naturales renovables, estableciéndose a ese efecto como órgano rector a la materia al Ministerio del Ambiente y Energía.
+6º—Que de conformidad con el artículo 34 de la supra citada ley, Administración Forestal del Estado puede autorizar la corta de los árboles en las áreas de protección en los casos de proyectos declarados por el Poder Ejecutivo como de conveniencia nacional. Por tanto,
+DECRETAN:
+Artículo 1º—Declárase de interés público los proyectos de la Refinadora Costarricense de Petróleo S. A., en lo referente a importación, refinación, transporte, almacenamiento y comercialización de hidrocarburos.
