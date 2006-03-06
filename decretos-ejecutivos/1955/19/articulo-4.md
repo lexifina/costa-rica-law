@@ -13,6 +13,15 @@ Compra de casa nueva o usada ¢41.000.000,00
 Construcción en lote propio ¢29.000.000.00
 Compra de terreno y construcción ¢41.000.000,00
 Cancelación de hipoteca total o parcial Según los planes de inversión que la originaron respetando los topes.
+(NOTA DE SINALEVI: mediante sesión N°5534 del 06 de marzo del 2006, se acuerda "fijar el nuevo tope máximo por contratos del Sistema de Ahorro y Préstamo, en ¢62.000.000,00 (sesenta y dos millones exactos) y el mínimo en ¢1.000.000,00 (un millón de colones exactos)...
+Establecer los topes mínimos de los contratos del Sistema de Ahorro y Préstamo, por unidad habitacional de los siguientes montos:
+Finalidades | Monto Propuesto*
+Compra de terreno | ¢22.000.000
+Ampliaciones, reparaciones o mejoras | ¢15.000.000
+Compra de casa nueva o usada | ¢62.000.000
+Construcción en lote propio | ¢40.000.000
+Compra de terreno y construcción | ¢62.000.000
+Cancelación de hipoteca total o parcial | Según los planes de inversión que la originaron respetando los topes...").
 d) El monto máximo de cada contrato, así como el mínimo, los fijará la Junta Directiva, previa recomendación del Área de Ahorro y Préstamo, estos al cumplir con las condiciones para respaldar créditos, pueden fraccionarse hasta un mínimo de un 25%. Se permite la suscripción de cualquier número de contratos y monto, siempre y cuando se respete el monto mínimo y máximo por contrato.
 e) La Junta Directiva del Instituto, será la que previa recomendación del Área de Ahorro y Préstamo, contando con los criterios técnicos necesarios, definirá los topes máximos por solución.
 Para todos los casos la tasa de interés por aplicar a los préstamos es del 9% anual fijo sobre los saldos.
