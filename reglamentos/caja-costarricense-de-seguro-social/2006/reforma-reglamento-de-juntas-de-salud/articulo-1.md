@@ -1,0 +1,11 @@
+CAJA COSTARRICENSE DE SALUD
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 39º de la sesión 8021, celebrada el 5 de enero de 2006, acordó reformar los artículos 28º, 30º y 35º del Reglamento de Juntas de Salud, para que en adelante se lean así:
+REGLAMENTO DE JUNTAS DE SALUD
+“Artículo 28.—Puestos vacantes y empates. En caso de que no se llenen los puestos vacantes porque no se presentaron candidatos o por empates en las votaciones, los mismos serán nombrados por la Asesoría Técnica de Desconcentración y Juntas de Salud, de la lista de candidatos que le presente el establecimiento de salud donde exista el puesto vacante o el empate. Siempre se procurará respetar la representatividad de los sectores que componen la Junta de Salud para ocupar las plazas vacantes”.
+“Artículo 30.—Declaración en firme de los resultados. La Asesoría de Desconcentración y Juntas de Salud o quien la Junta Directiva delegue, realizará un consolidado de los resultados finales de la totalidad de Asambleas realizadas y las nóminas para llenar puestos vacantes, con el fin de ratificar en los puestos a las personas electas. Este acto le dará declaratoria firme a los resultados de las Asambleas Electorales.
+De lo anterior debe informarse por escrito a la Junta Directiva.”
+“Artículo 35.—Mecanismo para la sustitución de Miembros de Juntas de Salud. En todos aquellos casos en que existan puestos vacantes en una Junta de Salud, ya sea porque no se eligieron en el proceso de elección respectivo o por pérdida de la condición de miembro, la Asesoría de Desconcentración y Juntas de Salud o a quien la Junta Directiva delegue, atenderá la solicitud que al respecto le formule la Junta de Salud respectiva o en su defecto, el Director de establecimiento correspondiente.
+La Asesoría de Desconcentración y Juntas de Salud o a quien la Junta Directiva delegue, verificará de previo a realizar la sustitución, que se cumplen las siguientes condiciones:
+a) Que sea quien sigue en cantidad de votos obtenidos en la Asamblea respectiva.
+b) Que represente al sector al que pertenecía el miembro sustituido.
+c) De existir imposibilidad o extrema dificultad en el cumplimiento de los anteriores criterios, deberá ser una persona que cumpla con los requisitos generales de los participantes”.
