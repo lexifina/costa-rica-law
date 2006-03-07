@@ -1,0 +1,2 @@
+Artículo 4º—Condiciones de la evaluación. De previo a la realización del concurso, el Departamento de Recursos Humanos del Ministerio de Economía, Industria y Comercio elaborará una propuesta que contendrá los descriptores con los cuales se evaluarán las ofertas presentadas por los oferentes y sus ponderaciones, así como un cronograma de actividades. Esta propuesta deberá ser aprobada por la administración superior.
+Se podrá coordinar con otras instituciones para la asesoría en el diseño, confección de material de evaluación específica y otros cuando se requiera.

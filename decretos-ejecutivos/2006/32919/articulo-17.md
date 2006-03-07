@@ -1,0 +1,1 @@
+Artículo 17.—Sobre los supuesto en los cuales se caduca el Registro de Elegibles. Se caducará el Registro de Elegibles en caso que se varíen sustancialmente los requisitos u otras condiciones en relación con las que dieron origen al Concurso Público con el que se constituyó dicho Registro.

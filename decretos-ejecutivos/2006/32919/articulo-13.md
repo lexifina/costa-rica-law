@@ -1,0 +1,3 @@
+Artículo 13.—Aprobación por parte de la Contraloría General de la República. El Expediente del Concurso y la terna correspondiente serán sometidos a conocimiento de la Contraloría General de la República, quien aprobará o improbará el concurso realizado.
+Si la Contraloría General de la República aprueba el proceso efectuado, el Departamento de Recursos Humanos presentará la terna respectiva al Ministro de Economía, Industria y Comercio con el propósito de escoger la persona que se nombrará en el puesto en Concurso.
+Si la Contraloría General de la República imprueba el concurso realizado, se iniciará nuevamente este proceso, de conformidad con lo que al respecto señale el ente contralor.

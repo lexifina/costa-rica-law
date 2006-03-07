@@ -1,0 +1,1 @@
+Artículo 7º—Sobre las ofertas incompletas. Cuando una oferta presentada esté incompleta, se podrá conceder un plazo de hasta tres días hábiles posteriores al período de recepción de ofertas, para que los interesados puedan completar su solicitud, a criterio del Departamento de Recursos Humanos.

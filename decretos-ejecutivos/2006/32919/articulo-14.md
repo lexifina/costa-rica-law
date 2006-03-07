@@ -1,0 +1,1 @@
+Artículo 14.—Del período de prueba. Una vez nombrado el Auditor Interno, este será sujeto a un período de prueba de tres meses, pasado este plazo, el Ministro de Economía, Industria y Comercio, comunicará a la Contraloría General de la República su conformidad o disconformidad del desempeño del funcionario nombrado.

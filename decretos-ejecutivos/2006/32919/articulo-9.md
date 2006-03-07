@@ -1,0 +1,2 @@
+Artículo 9º—Convocatoria para el proceso de evaluación. Solamente las personas que cumplan con los requisitos de la clase del puesto en concurso y cuyas ofertas hayan sido aceptadas, recibirán la convocatoria para el proceso de evaluación.
+La convocatoria o convocatorias respectivas deberán especificar el día, hora y el lugar en que se realizarán las pruebas o actividades previstas, de conformidad con el artículo 4º del presente Reglamento.

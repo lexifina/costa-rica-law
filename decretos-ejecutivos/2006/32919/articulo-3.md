@@ -1,0 +1,1 @@
+Artículo 3º—Requisitos del puesto. Los requisitos para optar por el puesto de Auditor Interno se describen el documento denominado “Lineamientos para la descripción de las funciones y requisitos de los cargos de Auditor y subauditor internos”, emitidos por la Contraloría General de la República, publicado en La Gaceta número 205 del 24 de octubre del 2003.

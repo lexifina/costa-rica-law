@@ -1,0 +1,1 @@
+Artículo 2º—Responsable del Proceso de Selección. El proceso de concurso público para el nombramiento del cargo de Auditor Interno del MEIC, será desarrollado e implementado por la Dirección Administrativa Financiera y el Departamento de Recursos Humanos.

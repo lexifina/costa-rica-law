@@ -1,0 +1,1 @@
+Artículo 11.—La comunicación de los resultados. Los resultados del concurso serán comunicados a los participantes por el Director Administrativo Financiero, mediante telegrama. Contra esta comunicación podrá interponerse recurso de revocatoria, el de apelación o ambos, de conformidad con lo que establece la Ley General de Administración Pública para estos efectos.

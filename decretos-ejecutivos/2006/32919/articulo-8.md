@@ -1,0 +1,1 @@
+Artículo 8º—Supuestos de exclusión de ofertas. Los interesados que, vencido el plazo concedido en el artículo anterior, no hayan cumplido con las prevenciones realizadas por el Departamento de Recursos Humanos serán excluidos del proceso. Igualmente se excluirán del proceso a quienes no se presenten a la evaluación convocada en la fecha, hora y lugar informados oportunamente.
