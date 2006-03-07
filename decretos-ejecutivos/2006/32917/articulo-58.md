@@ -1,0 +1,8 @@
+Artículo 58.—Normas de reparación de hardware. Para la reparación de equipo de cómputo, se tomará en cuenta lo siguiente:
+a) La reparación de equipo de cómputo será solicitada a la Dirección, aún encontrándose en garantía.
+b) Cuando el equipo se encuentra en garantía, la Dirección procederá a comunicarse con el proveedor del equipo, teniendo la responsabilidad de velar que el equipo sea reparado o cambiado.
+c) Cuando el equipo no se encuentre en garantía, será reparado por la Dirección o enviado a un taller especializado, en cuyo caso iniciará el trámite para el envío. Toda solicitud de reparación será firmada por el encargado de la Dirección. El costo de la reparación se cargará al programa presupuestario respectivo.
+d) Una vez reparado el equipo de cómputo, la Dirección deberá hacer la revisión respectiva y la reubicación posterior.
+e) El usuario será el único responsable de que los equipos enviados a reparar, no lleven información sensible, confidencial o crítica que ponga en peligro sus funciones o las del Ministerio.
+f) Debe existir un inventario detallado por partes de los equipos ingresados o en propiedad de Ministerio, que sirva de parámetro y control de los equipos que sean llevados a mantenimiento. Este listado debe actualizarse periódicamente y verificarse con un conteo físico al menos una vez al año.
+g) El equipo sustituído en el proceso de mantenimiento debe tenerse inventariado, si es colocado en otro equipo debe quedar debidamente justificado y catalogado en el inventario. Si el mantenimiento es dado a una organización externa al Ministerio, según el contrato respectivo, el contratado debe entregar las partes sustituidas.

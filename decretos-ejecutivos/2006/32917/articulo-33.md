@@ -1,0 +1,6 @@
+Artículo 33.—Contenido del plan estratégico. El plan estratégico quinquenal y anual contendrá el desarrollo de lo siguiente:
+a) Parte Informática: Contendrá todas las necesidades de hardware y software y requerimientos que se han de desarrollar a mediano y largo plazo. Es responsabilidad de la Comisión el desarrollar y mantener actualizado la parte informática.
+b) Parte Operativa: Es la planificación del trabajo que desarrollará la Dirección en el plazo de un año, según el respectivo presupuesto asignado por el Ministerio de Hacienda. El mismo deberá ser aprobado por la Comisión y responderá según las directrices de la Parte Informática contemplado en el plan estratégico.
+c) Parte de Contingencias (continuidad, respaldo y recuperación de operaciones): Será presentado por la Dirección a la Comisión para su respectiva aprobación, el cual será desarrollado tomando en cuenta eventos naturales y errores humanos que puedan afectar el normal accionar de todos los bienes informáticos y la información contenida en ellos, pertenecientes al Ministerio. El mismo tomará en cuenta:
+Procedimientos de respaldo, internos y externos, diarios, semanales, mensuales y anuales, mecanismos para la seguridad de los equipos, así como la capacitación para contingencias tanto a usuarios, técnicos de seguridad y auditores de TI.
+En dicho desarrollo habrá una valoración de riesgos.

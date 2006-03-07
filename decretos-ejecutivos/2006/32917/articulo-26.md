@@ -1,0 +1,1 @@
+Artículo 26.—División en departamentos. La Dirección estará dividida en los siguientes departamentos: Sistemas, Telemática, Soporte Técnico y Administrativo, sin perjuicio de la creación de otras secciones que puedan coadyuvar en una mejor distribución y rendimiento en la labor de la Dirección.

@@ -1,0 +1,2 @@
+Artículo 23.—Informes de los grupos de trabajo: Los grupos de trabajo presentarán sus informes escritos con sus respectivas alternativas. Para esto finiquitarán los asuntos a su cargo a la brevedad posible.
+El plazo máximo para rendir un informe será de un mes. Si la naturaleza del caso lo amerita, de previo al vencimiento del término para la presentación informe, y el mismo no se encontrare concluido, el Coordinador del grupo de trabajo, deberá manifestar el motivo del atraso y solicitar una ampliación del plazo a la Comisión, que no podrá exceder de otro mes.
