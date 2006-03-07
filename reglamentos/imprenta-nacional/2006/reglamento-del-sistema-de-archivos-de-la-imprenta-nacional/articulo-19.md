@@ -1,0 +1,1 @@
+Artículo 19.—Este Comité de Selección y Eliminación se organizará según lo que dispone el artículo 138 del Reglamento 24023- C de la Ley del Sistema Nacional de Archivos, Nº 7202 y los artículos 49 y 50 de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 17.—Se podrán hacer reproducciones de los documentos mientras la Imprenta Nacional no haya declarado lo contrario, o mientras el Archivista no indique oposición, por ser a favor de la conservación de los mismos.

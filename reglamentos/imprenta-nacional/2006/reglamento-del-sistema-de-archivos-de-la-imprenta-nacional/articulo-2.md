@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento regula el Sistema de Archivos de la Imprenta Nacional, todo conforme a la Ley del Sistema Nacional de Archivos, Nº 7202 del 24 de octubre de 1990, y su Reglamento. El Archivo Central estará a cargo de un profesional en Archivística, además de los técnicos y asistentes necesarios para el cumplimiento de sus objetivos y funciones.

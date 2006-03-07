@@ -1,0 +1,1 @@
+Artículo 15.—Para el préstamo de los documentos en el Archivo Central, tanto para los funcionarios, como también a particulares, se deben cumplir con los requisitos que los funcionarios solicitarán en el área de consulta del Archivo Central.

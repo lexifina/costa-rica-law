@@ -1,0 +1,1 @@
+Artículo 21.—Los acuerdos del Comité se tomarán por mayoría simple y se consignarán en un libro de actas, sellado en su primera página por la Dirección General, indicando el número de páginas que lleva este libro, regulándose según el inciso 1 del artículo 56 de la Ley General de la Administración Pública.

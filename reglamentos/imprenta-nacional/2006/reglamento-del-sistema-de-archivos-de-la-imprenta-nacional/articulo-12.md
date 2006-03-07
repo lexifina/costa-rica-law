@@ -1,0 +1,2 @@
+Artículo 12.—En caso de que alguna unidad o sección de la Imprenta Nacional sea eliminada de la estructura orgánica, la documentación será transferida en su totalidad al Archivo Central, para lo cual la Dirección General deberá comunicar la disposición de manera oportuna.
+En caso de fusión de una o varias unidades, la unidad receptora asumirá la totalidad de la documentación que se integra, conjuntamente con la administración y responsabilidad sobre la información contenida y trasladada.

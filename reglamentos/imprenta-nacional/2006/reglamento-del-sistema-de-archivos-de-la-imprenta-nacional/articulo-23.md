@@ -1,0 +1,1 @@
+Artículo 23.—Los encargados de los archivos de gestión son los responsables de levantar la información requerida en el formulario de las tablas de plazos de conservación, todo esto con la asesoría del Archivo Central.

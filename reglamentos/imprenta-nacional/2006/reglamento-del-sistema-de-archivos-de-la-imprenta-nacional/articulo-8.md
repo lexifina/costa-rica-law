@@ -1,0 +1,1 @@
+Artículo 8º—El encargado del Archivo Central vigilará para que se disponga de las condiciones óptimas para la conservación de los documentos tanto en los archivos de gestión como en el Archivo Central.

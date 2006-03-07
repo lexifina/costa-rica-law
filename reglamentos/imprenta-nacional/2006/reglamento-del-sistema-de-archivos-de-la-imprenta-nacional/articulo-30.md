@@ -1,0 +1,1 @@
+Artículo 30.—Este Reglamento deroga el artículo 9 del Manual de Normas y Procedimientos de Publicaciones en los Diarios Oficiales, publicado en el Alcance Nº 70, de La Gaceta Nº 201 del 20 de octubre del 2000 y cualquier otra disposición contraria.
