@@ -1,0 +1,27 @@
+Nº 32914
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, artículos 25 inciso 1) y 28 inciso 2) numeral b) de la Ley General de la Administración Pública, el artículo 15 de la Ley de Disolución del Banco Anglo Costarricense Nº 7471 del 20 de diciembre de 1994, artículo 2 de la Ley Orgánica de la Procuraduría General de la República Nº 6815 del 27 de setiembre de 1982, artículos 1, 8 y 9 de la Ley Orgánica de la Contraloría General de la República Nº 7428 del 7 de setiembre de 1994, artículo 2, inciso h) de la Ley de Contratación Administrativa, Ley Nº 7494 del 2 de mayo de 1995, artículo 83 del Reglamento de la Ley de la Contratación Administrativa, Decreto Ejecutivo 25038-H del 6 de marzo de 1996, artículo 1º del Decreto Ejecutivo Nº 25185-H del 30 de abril de 1996.
+Considerando:
+I.—Que el artículo 15 de la Ley de Disolución del Banco Anglo Costarricense Nº 7471 del 20 de diciembre de 1994, publicada en La Gaceta Nº 246 del 27 de diciembre de 1994, dispuso que los activos y bienes de cualquier naturaleza que al finalizar el proceso de liquidación de dicha institución bancaria no hayan sido vendidos, ni transferidos a otras entidades, pasarán a ser propiedad del Estado.
+II.—Que la Junta Liquidadora del Banco Anglo Costarricense, en cumplimiento de lo dispuesto en el artículo 15 de la Ley de Disolución del Banco Anglo Costarricense, finiquitó el inventario de bienes que pertenecían a ese Banco, comprobándose la cantidad de 107 (ciento siete) bienes inmuebles que no fueron traspasados, ni vendidos como resultado del Proceso de Liquidación.
+III.—Que el Departamento de Organismos Descentralizados de la Dirección General de Auditoria de la Contraloría General de la República, mediante oficio Nº 008665 (AOD-1351) del 15 de julio de 1997 refrenda parcialmente el inventario de 107 bienes inmuebles realizado por la Junta Liquidadora del Banco Anglo Costarricense.
+IV.—Que de conformidad con lo establecido en el artículo 1º del Decreto Ejecutivo Nº 25185-H del 30 de abril de 1996, los bienes que no hayan sido vendidos o traspasados como resultado del Proceso de Liquidación del Banco Anglo Costarricense, serán asumidos y administrados por el Ministerio de Hacienda.
+V.—Que la Procuraduría General de la República, en varios pronunciamientos, entre ellos el dictamen C-044-96 del 14 de mayo y en el C-182-96 del 6 de noviembre, ambos de 1996, señaló que el Poder Ejecutivo definirá el destino final de los bienes que no hayan sido traspasados, ni vendidos mediante el acto correspondiente.
+VI.—Que mediante oficio Nº DAJ-2384 de fecha 17 de diciembre de 1997, la Contraloría General de la República señaló:
+“ (…) Al respecto hemos de indicarle que luego de examinar la normativa aplicable al caso (Ley 7471 del 27 de diciembre de 1994, Decreto Ejecutivo Nº 25185-H del 11 de junio de 1996 y Decreto Ejecutivo Nº 26033-H-SP-MEP de 27 de mayo de 1997) prohijamos las consideraciones que sobre el particular formulan tanto en el criterio externado por la Asesoría Jurídica de ese Ministerio ... como en el dictamen de la Procuraduría General de la República Nº C-199-97 del 21 de octubre de 1997, en el sentido de que puede recurrirse a la figura del Decreto Ejecutivo para definir el destino final que se habrá de dar a dichos bienes inmuebles.(…)
+(...) Cualquier traslado a entes privados, que no venga autorizado por ley, deberá ajustarse a las disposiciones de la Ley de Contratación Administrativa y su Reglamento (…)”.
+VII.—Que dentro de los bienes inventariados y refrendados, al amparo de lo dispuesto por el artículo 15 de la Ley de Disolución del Banco Anglo Costarricense, se incluye un derecho sobre el bien inmueble inscrito en el Partido de Heredia, Folio Real Nº 29137-008.
+VIII.—Que conforme con el Avalúo del citado inmueble Nº AV.ADM.07-2004, el derecho sobre la finca 4-029137-008 corresponde a un doceavo del total de la finca, por lo que el valor del mismo asciende a la suma de ¢1.296.875,00 (un millón doscientos noventa y seis mil ochocientos setenta y cinco colones).
+IX.—Que como se indicó en el V Considerando del presente decreto, corresponde al Poder Ejecutivo definir el destino final del bien inmueble supracitado.
+X.—Que la Contraloría General de la República, en oficio 11829 DAGJ-2828-2005 del 22 de setiembre del 2005, denegó la autorización para realizar la venta directa de un derecho sobre el bien inmueble inscrito en el Partido de Heredia, Folio Real Nº 29137-008, por estimar que de previo a realizar cualquier acto de enajenación del mismo, debe definirse el destino final, decisión que tal y como se estableció previamente compete al Poder Ejecutivo.
+XI.—Que atendiendo a lo expuesto, así como a las razones de interés público que inspiran el artículo 15 de la Ley Nº 7471, el Poder Ejecutivo estima que resulta procedente destinar el derecho sobre el bien inmueble inscrito en el Partido de Heredia, Folio Real Nº 29137-008, a la venta. Por tanto,
+DECRETAN:
+Artículo 1º—Disponer del derecho sobre el bien inmueble inscrito en el Partido de Heredia, Folio Real Nº 29137-008, cuyas características de seguido se detallan, que es propiedad en abstracto del Estado, asignándolo para la venta.
+Partido de Heredia |
+Folio Real | 29137-008
+Cantón | Santa Bárbara
+Distrito | San Pedro
+Nº avalúo | AV. ADM. Nº 07-2004
+Monto del derecho | ¢1.296.875.00
+Dirección | 100 metros al sur, 25 metros al oeste de la esquina suroeste de la Iglesia
