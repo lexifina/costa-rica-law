@@ -1,0 +1,1 @@
+Artículo 3º—Las obras presentadas a concurso, deberán tomar en cuenta que el montaje se realizará en la Sala de Teatro “Vargas Calvo” del Teatro Nacional, por lo que deberán adaptarse a las dimensiones del escenario de dicha Sala y no podrán ser representadas por más de cinco actores. Las obras presentadas a concurso deberán tener una duración mínima de una hora con diez minutos.
