@@ -37,3 +37,4 @@ Directrices de política presupuestaria para las entidades públicas, ministerio
 | 22 | 2006-02-15 | Decreto Ejecutivo 32939 (2006-02-15) |
 | 23 | 2006-02-21 | Decreto Ejecutivo 32936 (2006-02-21) |
 | 24 | 2006-03-08 | Decreto Ejecutivo 32938 (2006-03-08) |
+| 25 | 2006-03-08 | Decreto Ejecutivo 33064 (2006-03-08) |
