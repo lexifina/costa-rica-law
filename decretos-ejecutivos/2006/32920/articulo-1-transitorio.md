@@ -1,0 +1,2 @@
+Transitorio I.—Para todo efecto, los jubilados en disfrute de su prestación con derecho a este beneficio, que a la entrada en vigencia de este Reglamento no hayan ejercido este derecho, sea durante la relación laboral, producto de la liquidación o como solicitud de pensión por vejez, tendrá el plazo de 6 meses a partir de la publicación del presente Reglamento, para hacerlos valer mediante la respectiva solicitud.
+Dado en la Presidencia de la República.—San José, a los veinticinco días del mes de enero de dos mil seis.
