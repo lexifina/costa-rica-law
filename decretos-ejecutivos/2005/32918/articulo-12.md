@@ -1,0 +1,1 @@
+Artículo 12.—En casos de emergencia debidamente justificados, el plazo de presentación previo señalado en el artículo anterior, será no menor de cinco días hábiles, contados a partir de la presentación de la documentación. Sin embargo, en la solicitud, la empresa deberá realizar una fundamentación real de las circunstancias que reviste la urgencia.

@@ -1,0 +1,1 @@
+Artículo 20.—De conformidad con lo indicado en el artículo 20 de la Ley General de Migración y Extranjería, el extranjero a favor de quien se le otorgó este tipo de visa, deberá presentar ante el Cónsul, pasaporte o documento de viaje con fecha de vencimiento no menor a los seis meses siguientes a la solicitud y tiquete aéreo de regreso o de continuación de viaje.

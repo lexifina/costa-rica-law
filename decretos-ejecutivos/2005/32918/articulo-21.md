@@ -1,0 +1,3 @@
+SECCIÓN SEGUNDA
+De las visas en calidad provisional de residente
+Artículo 21.—Las empresas debidamente inscritas en el Registro de Empresas de la Dirección General de Migración y Extranjería deberán solicitar directamente ante la oficina del Director General la visa en calidad provisional de residente cuando uno de sus trabajadores la requiera en virtud de su nacionalidad y de lo dispuesto en las Directrices Generales de Ingreso y Permanencia para Extranjeros, cuando su pretensión sea obtener residencia temporal para laborar en Costa Rica como científico, profesional, técnico o personal especializado, o realizar actividades como empresario, hombres de negocios y personal directivo, al amparo del artículo 36 incisos a) y b) de la Ley General de Migración y Extranjería.

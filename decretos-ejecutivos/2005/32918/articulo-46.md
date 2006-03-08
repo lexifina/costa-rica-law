@@ -1,0 +1,6 @@
+CAPÍTULO TERCERO
+Residencia temporal para trabajadores de empresas inscritas
+en el registro de empresas de la Dirección General
+de Migración y Extranjería
+Artículo 46.—Las empresas inscritas ante la Dirección General de Migración y Extranjería podrán solicitar directamente en las oficinas de ese órgano, residencia temporal para sus trabajadores extranjeros que no requieran para su ingreso al país de visa autorizada por el Director General de Migración y Extranjería, cuando vayan a laborar en Costa Rica como científicos, profesionales, técnicos o personal especializado, o realizar actividades como empresarios, hombres de negocios y personal directivo, al amparo del artículo 36 incisos a) y b) de la Ley General de Migración y Extranjería.
+Esa Dirección, de conformidad con el artículo 39 de esa misma Ley, podrá autorizar la apertura del expediente administrativo correspondiente, siempre que la solicitud cumpla con lo indicado en el presente reglamento. Dicha autorización de apertura de expediente se realizará a través de la Dirección Técnica Operativa del referido órgano. Para esos efectos, estos trabajadores serán conceptualizados como ejecutivos de empresas y la actividad laboral a desempeñar se entenderá como avalada por el Ministerio de Trabajo y Seguridad Social sin necesidad de realizar estudio específico.

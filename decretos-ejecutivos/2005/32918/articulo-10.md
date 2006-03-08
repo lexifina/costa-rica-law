@@ -1,0 +1,3 @@
+SECCIÓN PRIMERA
+De las visas restringidas para viajes cortos
+Artículo 10.—Las empresas debidamente inscritas en el Registro de Empresas de la Dirección General de Migración y Extranjería, deberán solicitar directamente ante la oficina del Director General de Migración y Extranjería la visa correspondiente, cuando uno de sus trabajadores la requiera en virtud de su nacionalidad y de lo dispuesto en las Directrices Generales de Ingreso y Permanencia para Extranjeros, cuando sean personas de especial relevancia en el ámbito científico, profesional o económico, que en función de su especialidad, fueren invitadas por una empresa inscrita en dicho registro.

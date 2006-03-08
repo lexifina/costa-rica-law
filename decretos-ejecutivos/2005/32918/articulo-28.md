@@ -1,0 +1,1 @@
+Artículo 28.—Para presentar los requisitos indicados en el artículo anterior, la Dirección General de Migración y Extranjería establecerá dentro de su Gestión de Extranjería, una ventanilla especial, en que se atenderá al extranjero y a sus familiares.

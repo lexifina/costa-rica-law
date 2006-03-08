@@ -1,0 +1,1 @@
+Artículo 39.—La visa múltiple otorgará la posibilidad de ingresar al territorio nacional en todas las ocasiones que el beneficiario lo requiera durante el período de su vigencia. Sin embargo, el plazo de permanencia que dará derecho esta visa estará sujeto a las “Directrices Generales de Ingreso y Permanencia para Extranjeros”, según la nacionalidad del foráneo.

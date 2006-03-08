@@ -1,0 +1,1 @@
+Artículo 49.—La eventual residencia temporal para cónyuge e hijos menores, no implicará la posibilidad de realizar labores remuneradas por cuenta propia o en relación de dependencia, en virtud de autorizarse su residencia temporal como acompañantes.

@@ -1,0 +1,1 @@
+Artículo 53.—Habiendo sido presentada la documentación de conformidad y siendo positivo su análisis, se procederá a la renovación del documento de permanencia correspondiente, el cual deberá entregar en un plazo que no excederá los diez días hábiles contados a partir del recibo de la petición.

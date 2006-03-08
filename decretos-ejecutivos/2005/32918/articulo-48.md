@@ -1,0 +1,5 @@
+Artículo 48.—En caso de que la solicitud de residencia temporal contemple la de cónyuge e hijos menores, se deberá además aportar lo siguiente:
+1. Solicitud, en la que se deberá indicar los mismos datos que se requieren para el trabajador.
+2. En el caso de cónyuge, original de certificación de matrimonio debidamente legalizada, de conformidad con lo que establezca el Reglamento a la Ley General de Migración y Extranjería.
+3. En el caso de hijos menores, original de certificación de nacimiento en la que conste el nombre de los padres, debidamente legalizada, de conformidad con lo que establezca el Reglamento a la Ley General de Migración y Extranjería.
+En casos excepcionales, en que para el extranjero sea imposible materialmente presentar las certificaciones de matrimonio y de nacimiento con el nombre de sus padres, estipuladas en el presente artículo, por razones debidamente fundamentadas, podrá omitirse de este requisito, señalando dicha circunstancia en la solicitud antes referida. En su lugar deberá presentarse una copia certificada por notario público de tales documentos.
