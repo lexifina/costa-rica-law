@@ -1,1 +1,0 @@
-Artículo 10.—Plazo. La Contraloría General de la República atenderá las gestiones de refrendo de contratos en un plazo que no podrá exceder de treinta días hábiles, a partir de la fecha en que la administración interesada haya satisfecho la totalidad de los requisitos necesarios para resolver la gestión.

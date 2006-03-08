@@ -1,1 +1,0 @@
-Artículo 11.—Eficacia contractual. La Administración interesada deberá gestionar y obtener el refrendo, previo a ordenar el inicio de ejecución del respectivo contrato. La inexistencia o denegación del refrendo, impedirá la eficacia jurídica del contrato y su ejecución quedará prohibida, bajo pena de sanción de nulidad absoluta.

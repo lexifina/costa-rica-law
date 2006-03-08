@@ -1,1 +1,0 @@
-Artículo 6º—Formalización de contratos. Las contrataciones que de conformidad con este Reglamento deben se aprobados por la Contraloría General, se formalizarán en simple documento. Unicamente requerirán formalizarse en escritura pública los negocios jurídicos que tengan impuesto este requisito por ley.
