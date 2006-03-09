@@ -8,6 +8,8 @@ No están afectos a éste tributo:
 1) Los vehículos internados con exoneraciones sobre los que, al transferirse, se deban pagar todos los derechos e impuestos.
 2) Los adquirientes de los vehículos propiedad del Estado y de las municipalidades.
 3) La transferencia entre personas que gocen de igual beneficio fiscal.
+*3) Los vehículos usados propiedad de la Asociación Cruz Roja Costarricense, que hayan pertenecido a dicha Institución por lo menos durante cinco años.
+(*Así adicionado el subinciso 3 anterior por el artículo único de la Ley N° 8493 del 9 de marzo de 2006)
 4) DEROGADO.-( DEROGADO por el artículo 32 de la ley Nº 7293 de 31 de marzo de 1992)
 5) DEROGADO.- ( DEROGADO por el artículo 32 de la ley Nº 7293 de 31 de marzo de 1992)
 6) DEROGADO.- ( DEROGADO por el artículo 32 de la ley Nº 7293 de 31 de marzo de 1992)
