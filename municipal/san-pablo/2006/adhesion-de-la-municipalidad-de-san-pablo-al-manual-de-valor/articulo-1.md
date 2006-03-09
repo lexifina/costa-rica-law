@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE SAN PABLO
+El Concejo Municipal de San Pablo de Heredia, en su sesión ordinaria número ciento noventa y cinco - dos mil seis, celebrada el día seis de febrero del mismo año, acordó mediante resolución número cuatro mil doscientos veintisiete - dos mil seis, por unanimidad y en firme adherirse a la publicación del Manual de Valores Base Unitarios por Tipología Constructiva, publicado en el Alcance 48 de La Gaceta Nº 243 del 16 de diciembre del 2005, por parte del Órgano de Normalización Técnica del Ministerio de Hacienda. Con dispensa del trámite de Comisión.
+San Pablo de Heredia, 9 de febrero del 2006.
