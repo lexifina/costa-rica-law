@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 32909
+
+Reglamento al Artículo 10 de la Ley N°1038 de Tarifas de Honorarios Profesionales para los Contadores Públicos Autorizados
+
+- Tipo: Decreto Ejecutivo
+- Número: 32909
+- Fecha: 2005-11-10
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 49 del 2006-03-09
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=56668&param2=62154&param3=1 (ficha 56668)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2006-03-09 | la propia norma |

@@ -1,0 +1,1 @@
+Artículo 6º—Libro de servicios profesionales. En el Libro de Servicios Profesionales deberán incluirse en todo caso los honorarios reales cobrados, conforme al Artículo 15 del Reglamento General a la Ley N° 1038 de 19 de agosto de 1947.
