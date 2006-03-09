@@ -14,3 +14,4 @@ Reglamento para el Funcionamiento de las Comisiones Técnicas de Normalización 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-25 | la propia norma |
+| 2 | 2006-03-09 | Reglamento 8040 (2006-03-09) |
