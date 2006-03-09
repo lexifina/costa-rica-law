@@ -22,3 +22,4 @@ Reglamento para Juzgar la Situación Económica-Financiera de las Entidades Fisc
 | 7 | 2002-12-10 | Reglamento 345 (2002-12-10) |
 | 8 | 2003-09-16 | Reglamento 393 (2003-09-16) |
 | 9 | 2003-12-09 | Reglamento 408 (2003-12-09) |
+| 10 | 2006-03-09 | Reglamento 564 (2006-03-09) |
