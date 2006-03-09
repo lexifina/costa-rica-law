@@ -1,0 +1,1 @@
+Artículo 22.—La comunicación de resultados se deberá hacer por escrito. Podrá efectuarse durante el desarrollo de la Auditoría o estudio especial de Auditoría, mediante memorando o informe parcial y al finalizar la labor, por medio de memorando o informe final.

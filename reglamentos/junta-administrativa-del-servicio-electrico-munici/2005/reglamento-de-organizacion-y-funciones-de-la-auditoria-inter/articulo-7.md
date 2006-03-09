@@ -1,0 +1,2 @@
+Artículo 7º—La Unidad de Auditoría Interna estará bajo la responsabilidad de un Auditor General y dos Subauditores Internos, uno para cada sector: Energía y Telecomunicaciones. Estos tres funcionarios deben ser contadores Públicos Autorizados y conocer además, las disposiciones legales que rigen en general a la Administración Pública y específicamente la JASEC.
+El Auditor General asistirá a las sesiones de la Junta Directiva, cuando así lo disponga este órgano colegiado. En dichas sesiones tendrá voz pero no voto.

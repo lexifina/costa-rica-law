@@ -1,0 +1,1 @@
+Artículo 38.—Las disposiciones de este Reglamento son de aplicación en todas las unidades de procesos que conforman la organización de la JASEC, en lo que corresponda según sea el caso. Cualquier discrepancia que se presente en cuanto a su interpretación y ejecución, será resuelta por la Junta Directiva de común acuerdo con el Auditor General.

@@ -1,0 +1,1 @@
+Artículo 27.—El funcionamiento ejecutivo responsable de disponer la implantación de las recomendaciones comunicadas por la Auditoría Interna, dispondrá de un plazo máximo de treinta días calendario, contados a partir del día siguiente de su recibo, para informar sobre la aceptación de tales recomendaciones o peticiones de la Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 20.—El personal de la Auditoría Interna deberá actuar con dependencia de criterio en la ejecución de los estudios de Auditoría y en la presentación de los informes correspondientes. Asimismo deberá mantener buenas relaciones con los demás funcionarios de la Institución, sin que esto influya en la objetividad de su labor.

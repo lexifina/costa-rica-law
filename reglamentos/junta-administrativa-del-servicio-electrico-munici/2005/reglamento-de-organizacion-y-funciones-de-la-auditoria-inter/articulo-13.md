@@ -1,0 +1,2 @@
+Artículo 13.—La Auditoría deberá contar con los recursos humanos, materiales, tecnológicos, asesoría técnica, capacitación para el desarrollo profesional de sus funcionarios e instalaciones físicas necesarias para el adecuado cumplimiento de sus funciones. Para tales propósitos planteará sus necesidades ante la Junta Directiva.
+No podrán hacerse modificaciones presupuestarias que afecten los recursos asignados a la actividad de su Auditoría, sin contarse con la anuencia del Auditor General o de los Subauditores en caso de que el titular este ausente.

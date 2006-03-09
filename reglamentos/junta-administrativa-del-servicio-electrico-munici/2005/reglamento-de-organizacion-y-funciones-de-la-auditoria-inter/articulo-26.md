@@ -1,0 +1,1 @@
+Artículo 26.—Si esta conferencia final no se pudiera realizar por causas ajenas a la Auditoría, se procederá a emitir el informe o memorando final. Si los hechos encontrados pueden llegar a afectas, de cualquier forma, derechos subjetivos o intereses legítimos de alguna persona, la Auditoría dará oportunidad de hacer las aclaraciones pertinentes a los presuntos responsables.

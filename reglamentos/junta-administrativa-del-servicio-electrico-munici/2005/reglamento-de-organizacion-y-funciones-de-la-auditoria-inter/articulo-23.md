@@ -1,0 +1,1 @@
+Artículo 23.—En cuanto a los requisitos, partes, revisión y emisión de los informes, se aplicará principalmente lo dispuesto sobre el particular en el "Manual para el Ejercicio de la Auditoría Interna".
