@@ -1,0 +1,1 @@
+Artículo 2º—Se deja sin efecto la resolución Nº 13-05 de las diez horas, cuarenta y cinco minutos, del día siete de febrero de dos mil cinco, de la Dirección General de Hacienda, publicada en La Gaceta N° 65 del cinco de abril del 2005.
