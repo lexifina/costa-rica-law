@@ -1,0 +1,9 @@
+Artículo 27 bis.—Requisitos para la solicitud de subcontratación. La solicitud de subcontratación deberá cumplir los siguientes requisitos:
+1. Que la empresa subcontratada se encuentre debidamente registrada ante PROCOMER.
+2. Que el beneficiario y la empresa subcontratada aporte certificación emitida por Contador Público Autorizado Independiente que certifique la existencia de inventarios de materias primas, producto en proceso y producto terminado actualizados. Dicha certificación deberá presentarse con la primera solicitud de subcontratación.
+3. Certificación de Contador Público Autorizado Independiente, que indique en forma detallada en cantidades y unidad de medida, todos los inventarios de mercancías enviadas a la empresa subcontratada producto de la subcontratación en cuestión; asimismo debe certificar, que todas las mercancías fueron devueltas a la empresa subcontratante, detallando los productos recibidos en cantidad y unidad de medida, así como el desecho generado y entregado producto del proceso, si lo hubiese. Dicha certificación deberá presentarse durante los 15 días hábiles siguientes a la presentación del informe sobre las operaciones subcontratadas establecido en el artículo 27 del presente reglamento.
+4. Que la subcontratación no exceda los porcentajes establecidos en el artículo 27 de este Reglamento.
+5. Que el beneficiario rinda prenda aduanera en los términos establecidos en el artículo 28 de este Reglamento.
+6. Que el beneficiario y la empresa subcontratada se encuentren al día en el cumplimiento de sus obligaciones tributarias, lo cual se verificará a través de declaración jurada. Asimismo, la empresa deberá estar al día en el pago de sus obligaciones con la Caja Costarricense de Seguro Social.
+7. Que el beneficiario no tenga pendiente el informe que se presenta al final de una subcontratación.
+(Así adicionado mediante el artículo 2 del decreto ejecutivo N°32982 del 10 de marzo del 2006).

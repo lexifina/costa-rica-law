@@ -1,0 +1,2 @@
+Artículo 28 bis.—Suspensión de la subcontratación. En cualquier momento en que una autoridad competente determine el incumplimiento de algún requisito u obligación inherente al régimen, a alguna de las condiciones de autorización de la subcontratación, o bien a cualesquiera otra aplicable, lo comunicará a las instancias competentes para el inicio del procedimiento administrativo que legalmente corresponda.
+(Así adicionado mediante el artículo 2 del decreto ejecutivo N°32982 del 10 de marzo del 2006).
