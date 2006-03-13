@@ -14,3 +14,4 @@ Reglamento para regular la función de los Ejecutores y Peritos en el Poder Judi
 | --- | --- | --- |
 | 1 | 2004-09-29 | la propia norma |
 | 2 | 2005-07-11 | Reglamento 22 (2005-07-11) |
+| 3 | 2006-03-13 | Reglamento 4 (2006-03-13) |
