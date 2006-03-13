@@ -13,3 +13,4 @@ Reforma Reglamento para regular la función de los ejecutores y peritos en el po
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-22 | la propia norma |
+| 2 | 2006-03-13 | Reglamento 4 (2006-03-13) |
