@@ -1,1 +1,1 @@
-Artículo 17.—Todos los actos dictados y suscritos por el Director Ejecutivo obligan al Servicio Fitosanitario del Estado y solidariamente al Ministerio de Agricultura y Ganadería, sin perjuicio de las responsabilidades civiles, penales o administrativas que se puedan derivar de sus actos.
+Artículo 17.— (Derogado mediante el artículo 27 del decreto ejecutivo N°32994 del 14 de marzo del 2006).

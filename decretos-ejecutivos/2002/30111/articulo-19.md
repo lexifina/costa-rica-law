@@ -1,1 +1,1 @@
-Artículo 19.—El Servicio Fitosanitario del Estado, contará con los servicios de una Auditoría Interna, la cual ejercerá sus funciones de acuerdo con lo estipulado en el marco jurídico vigente y disposiciones de la Contraloría General de la República.
+Artículo 19.— (Derogado mediante el artículo 27 del decreto ejecutivo N°32994 del 14 de marzo del 2006).

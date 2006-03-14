@@ -1,1 +1,1 @@
-Artículo 16.—El Director Ejecutivo será el superior técnico y administrativo del personal del Servicio Fitosanitario del Estado.
+Artículo 16.— (Derogado mediante el artículo 27 del decreto ejecutivo N°32994 del 14 de marzo del 2006).

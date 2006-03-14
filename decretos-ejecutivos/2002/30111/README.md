@@ -14,3 +14,4 @@ Reglamento de la Estructura Organizativa, Técnica y Administrativa del Servicio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-25 | la propia norma |
+| 2 | 2006-03-14 | Decreto Ejecutivo 32994 (2006-03-14) |

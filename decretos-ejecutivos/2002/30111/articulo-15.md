@@ -1,1 +1,1 @@
-Artículo 15.—El Director Ejecutivo del Servicio Fitosanitario del Estado tendrá facultades amplias y suficientes para firmar actos o gestiones de naturaleza administrativa u operativa para el normal funcionamiento del Servicio Fitosanitario del Estado y conforme a la naturaleza jurídica de éste.
+Artículo 15.— (Derogado mediante el artículo 27 del decreto ejecutivo N°32994 del 14 de marzo del 2006).
