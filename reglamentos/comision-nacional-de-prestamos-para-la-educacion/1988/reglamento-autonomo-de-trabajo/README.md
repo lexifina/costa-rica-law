@@ -14,3 +14,4 @@ Reglamento Autónomo de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-01-28 | la propia norma |
+| 2 | 2006-03-14 | Reglamento 10 (2006-03-14) |
