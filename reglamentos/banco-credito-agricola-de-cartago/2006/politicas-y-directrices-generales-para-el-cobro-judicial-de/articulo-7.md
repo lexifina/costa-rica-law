@@ -1,0 +1,3 @@
+7. De los saldos al descubierto
+7.1. El Centro de Negocios y la Oficina de Cobro Judicial correspondiente, serán las que determinen la cuantía de los saldos en descubierto e informar al Abogado para que solicite al juez su declaratoria. Dicha gestión se debe realizar inmediatamente después de obtenida la firmeza del remate. Estas oficinas serán las que lleven a cabo el seguimiento de las gestiones del Abogado para recuperar esos saldos, para lo cual deberán tomar las medidas de control necesarias.
+7.2. El Gerente del Centro de Negocios, junto con la Oficina de Cobro Judicial correspondiente, llevarán un registro de los deudores con saldos en descubierto para el debido control e información.
