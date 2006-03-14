@@ -15,3 +15,4 @@ Reglamento sobre Producción y Venta de Mantequillas, Margarinas y Grasa para Pa
 | --- | --- | --- |
 | 1 | 1962-01-13 | la propia norma |
 | 2 | 1968-07-02 | Decreto Ejecutivo 4 (1968-07-02) |
+| 3 | 2006-03-14 | Decreto Ejecutivo 33118 (2006-03-14) |

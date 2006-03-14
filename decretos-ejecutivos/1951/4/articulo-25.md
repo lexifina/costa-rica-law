@@ -1,1 +1,1 @@
-Artículo 25.—Las margarinas sólo podrán servirse en los hoteles, restaurantes, cafés, etc. si se coloca una etiqueta bien visible indicando que el producto es margarina o cortando los trochos en forma triangular.
+Artículo 25.—(Derogado mediante el artículo 5° del decreto ejecutivo N° 33118 del 14 de marzo del 2006).
