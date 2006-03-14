@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-19 | la propia norma |
+| 2 | 2006-03-14 | Decreto Ejecutivo 32977 (2006-03-14) |
