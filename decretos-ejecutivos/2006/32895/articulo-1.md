@@ -13,4 +13,5 @@ Considerando:
 8º—Que mediante el Decreto Ejecutivo Nº 32526-H, publicado en La Gaceta Nº 148 de 03 de agosto de 2005, se modificó el gasto presupuestario máximo autorizado al ICODER para el año 2006.
 9º—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado al ICODER para el año 2006. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase el gasto presupuestario máximo del año 2006 establecido al Instituto Costarricense del Deporte y la Recreación (ICODER), en el artículo 1° del Decreto Ejecutivo Nº 32526-H, publicado en La Gaceta Nº 148 de 3 de agosto de 2005, fijándolo en ¢ 3,849.8 millones en ese período.
+Artículo 1º—Modifícase el gasto presupuestario máximo del año 2006 establecido al Instituto Costarricense del Deporte y la Recreación (ICODER), en el artículo 1° del Decreto Ejecutivo Nº 32526-H, publicado en La Gaceta Nº 148 de 3 de agosto de 2005, fijándolo en ¢ 5,462.10 millones en ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 32954 del 14 de marzo del 2006)
