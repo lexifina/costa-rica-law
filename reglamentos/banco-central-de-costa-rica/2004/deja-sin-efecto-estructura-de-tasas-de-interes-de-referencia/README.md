@@ -14,3 +14,4 @@ Deja sin efecto estructura de tasas de interés de referencia para operaciones d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-13 | la propia norma |
+| 2 | 2006-03-15 | Reglamento 5270 (2006-03-15) |
