@@ -1,0 +1,2 @@
+Artículo 9º—La determinación del tipo de beca a otorgar, su clasificación y monto, estará en función del resultado del estudio académico y del estudio socio-económico realizado por el Departamento de Bienestar Estudiantil y Calidad de Vida. Su resolución corresponde a la Comisión de Becas.
+La valoración de las aptitudes y habilidades deportivas o artísticas, esto último al tratarse de Becas Representativas, debe ser realizada y certificada por el respectivo promotor a cargo.

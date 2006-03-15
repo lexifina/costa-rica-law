@@ -1,0 +1,1 @@
+Artículo 14.—Una vez dictaminada la solicitud y otorgada la beca, el Departamento de Bienestar Estudiantil y Calidad de Vida expedirá una Carta Compromiso que el alumno beneficiario deberá firmar, en la que se indican las condiciones que debe cumplir.

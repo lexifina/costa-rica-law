@@ -1,0 +1,2 @@
+Artículo 22.—Como complemento de su formación integral, el becario con beca 0 deberá cumplir con el servicio becario consistente en cooperar en las actividades administrativas, académicas de proyectos de investigación, laboratorios, biblioteca, asistencia al personal docente y otras actividades afines al quehacer educativo de la propia Institución.
+El estudiante deberá brindar este servicio becario en forma ad honórem en alguna dependencia de la Institución, por 40 (cuarenta) horas por cuatrimestre.

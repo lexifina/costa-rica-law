@@ -1,0 +1,2 @@
+Artículo 23.—Con base en las solicitudes hechas por los departamentos u oficinas institucionales, el Departamento de Bienestar Estudiantil y Calidad de Vida, propondrá ante la Comisión de Becas, los candidatos idóneos para cada una de las actividades solicitadas. Esta última será la que resolverá en definitiva.
+El Departamento de Bienestar Estudiantil y Calidad de Vida, deberá llevar el control en el cumplimiento del servicio brindado, velar por la seguridad del estudiante y servir de enlace entre el departamento u oficina asignada y éste.
