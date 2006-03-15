@@ -1,0 +1,5 @@
+Artículo 13.—Disposiciones derogatorias
+1. Se derogan las siguientes resoluciones emitidas por la Contraloría General:
+a) La Resolución de las ocho horas del veintiocho de enero de dos mil, "Reglamento sobre el refrendo de las contrataciones de la Administración Pública", publicada en La Gaceta Nº 28 del 9 de febrero de 2000, así como sus modificaciones hechas mediante Resolución del Despacho del Contralor, de las quince horas del siete de diciembre del dos mil dos, publicada en La Gaceta Nº 1 del 2 de enero del 2003 y resolución Nº CO-10 de las quince horas del nueve de febrero del dos mil cinco, publicada en La Gaceta Nº 34 del 17 de febrero del 2005.
+b) La Resolución de las diez horas del cinco de noviembre de dos mil cuatro, relativa a lineamientos sobre estudios de razonabilidad de precios aplicables en el trámite de los procedimientos de contratación administrativa, publicada en La Gaceta Nº 221 del 11 de noviembre de 2004.
+c) La Resolución Nº R-CO-27 de las quince horas del veinte de febrero de dos mil seis, publicada en el Alcance Nº 10 a La Gaceta Nº 42 del 28 de febrero de 2006.

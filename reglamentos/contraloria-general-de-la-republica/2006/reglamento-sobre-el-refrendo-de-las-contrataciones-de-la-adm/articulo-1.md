@@ -1,0 +1,17 @@
+CONTRALORÍA GENERAL DE LA REPÚBLICA
+REGLAMENTO SOBRE EL REFRENDO DE LAS
+CONTRATACIONES DE LA ADMINISTRACIÓN PÚBLICA
+R-CO-33.—Despacho de la Contralora General.—San José, a las catorce horas del ocho de marzo de dos mil seis.
+Considerando:
+I.—Que, el artículo 184 de la Constitución Política dispone que no constituirá obligación para el Estado la que no haya sido refrendada por la Contraloría General de la República.
+II.—Que, la Sala Constitucional en el voto Nº 5947-98 del 19 de agosto de 1998, Considerando VIII, señaló que el refrendo a que hace relación el artículo 184 constitucional "...es de aplicación para toda la Administración Pública, sin excepción alguna, al no distinguir la norma
+constitucional si se trata de una institución de gobierno central, institución autónoma, u órgano desconcentrado".
+III.—Que, en virtud de solicitud planteada por la Contraloría General, la Sala Constitucional, en sentencia Nº 9524-99 del 3 de diciembre de 1999, adicionó su voto Nº 5947-98, antes mencionado, aclarando "... que es constitucionalmente posible que en atención a la naturaleza, objeto y cuantía de la contratación de que se trate, la Contraloría General de la República establezca condiciones razonables, proporcionadas y acordes con los principios constitucionales que rigen la contratación administrativa y sus propias competencias a la facultad que el artículo 184 de la Constitución Política le confiere para refrendar los contratos del Estado, con lo que comprende a toda la Administración Pública sin excepción alguna, con miras a no crear mecanismos que afecten una expedita gestión administrativa, y en atención al interés público".
+IV.—Que, en atención a lo anterior, este órgano contralor estima razonable, proporcional y ajustado a los principios constitucionales que rigen la contratación administrativa, conocer por la vía del refrendo, en punto a su cuantía, aquellos contratos que representan un volumen significativo del gasto presupuestado por las administraciones públicas, para la adquisición de bienes y servicios no personales, considerando las diferencias presupuestarias existentes entre las distintas entidades, excluyendo aquellos que por su baja cuantía, objeto o naturaleza, pueden ser ejecutados sin el refrendo contralor.
+V.—Que, a los señalados propósitos, se hace necesario establecer estratos institucionales, de conformidad con el presupuesto para la adquisición de bienes y servicios no personales y, dentro de cada uno de esos estratos, fijar los límites a partir de los cuales las distintas administraciones deben someter sus contrataciones al refrendo contralor.
+VI.—Que, efectuados los estudios técnicos respectivos y con fundamento en los artículos 183 y 184 inciso 1) de la Constitución Política y 20 de la Ley Orgánica de la Contraloría General de la República, se emite el siguiente:
+REGLAMENTO SOBRE EL REFRENDO DE LAS
+CONTRATACIONES DE LA ADMINISTRACIÓN PÚBLICA
+Artículo 1º—Ámbito de aplicación.
+1. Con las excepciones que se dirán, requerirán del refrendo de la Contraloría General de la República, las contrataciones o convenios, interinstitucionales y con sujetos de derecho privado, que celebren los entes y órganos que integran la Administración Pública, en el tanto comprometan fondos públicos.
+2. Para los efectos anteriores, se entiende que la Administración Pública está constituida por el Estado, el sector descentralizado territorial e institucional, los entes públicos no estatales y las empresas públicas.

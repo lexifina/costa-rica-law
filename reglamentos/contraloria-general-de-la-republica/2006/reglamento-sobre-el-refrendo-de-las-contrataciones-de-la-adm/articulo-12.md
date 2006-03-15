@@ -1,0 +1,4 @@
+Artículo 12.—Eficacia contractual y responsabilidad
+1. La Administración interesada deberá gestionar y obtener el refrendo, previo a ordenar el inicio de ejecución del respectivo contrato. La inexistencia o denegación del refrendo, impedirán la eficacia jurídica del contrato y su ejecución quedará prohibida y sujeta a sanción de nulidad absoluta.
+2. Si a pesar de la inexistencia o denegación del refrendo la ejecución contractual se realiza mediante actividades o actuaciones, éstas generarán responsabilidad personal del servidor que las ordene o ejecute, así como de quienes pudiendo impedirlo no lo hicieron. Igual disposición será aplicable para el caso de modificaciones alos elementos esenciales del contrato, ejecutadas sin contar con el refrendo contralor, según lo establecido en este Reglamento.
+3. Todo lo anterior de conformidad con el artículo 20 de la Ley Orgánica de la Contraloría General de la República Nº 7428.

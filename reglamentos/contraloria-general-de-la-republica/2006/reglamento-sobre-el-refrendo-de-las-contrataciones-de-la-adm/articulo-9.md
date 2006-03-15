@@ -1,0 +1,3 @@
+Artículo 9º—Modificación contractual
+1. Los documentos en que consten modificaciones a los elementos esenciales de los contratos refrendados, deberán contar con el respectivo refrendo, de forma previa a su ejecución, salvo en los casos indicados en el artículo 4º de este Reglamento relativos a modificaciones a contratos de obra.
+2. La cesión de los derechos y obligaciones del contratista, que no implique modificaciones al contrato correspondiente, no estará sujeta al refrendo contralor, sino al régimen de autorización previsto en la Ley de Contratación Administrativa Nº 7494 o en la legislación especial respectiva.
