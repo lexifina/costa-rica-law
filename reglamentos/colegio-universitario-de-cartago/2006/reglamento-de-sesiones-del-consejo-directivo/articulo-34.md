@@ -1,0 +1,5 @@
+Artículo 34.—Lectura, discusión, aprobación y firma de las actas. Las actas de las sesiones deberá leerse en la sesión ordinaria inmediata siguiente, salvo que lo impidan circunstancias especiales en cuyo caso su lectura y aprobación se pospondrá para la inmediata siguiente sesión ordinaria.
+Podrá tenerse por leída el acta si las copias fieles de la misma se hubieren repartido a los miembros del Consejo Directivo dos días hábiles anteriores al de la sesión respectiva.
+Leída o tenida por leída una acta, procederá su discusión la cual se limitará a poner en claro el resumen de las deliberaciones o (a votación de los acuerdos respectivos, y consignar tales aclaraciones si fueren aprobadas, no procediendo nuevas manifestaciones ni deliberaciones sobre el asunto, las que solo cabrán con motivo de revisión de acuerdos.
+Discutida un acta, hechas las aclaraciones del caso y resueltas las revisiones, será aprobada y firmada por el Presidente y sus acuerdos tendrán vigencia el día hábil siguiente a la trascripción escrita del acta.
+Las actas serán firmadas por aquellos miembros que hubieren hecho constar su voto disidente.

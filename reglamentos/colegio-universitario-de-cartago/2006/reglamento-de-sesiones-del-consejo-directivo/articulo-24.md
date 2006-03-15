@@ -1,0 +1,1 @@
+Artículo 24.—Modificaciones de mociones. Toda proposición puede ser modificada por sus autores o interesados en cualquier momento antes de resolverse sobre su modificación o antes de votar sobre ella si no se hubiera presentado moción para variarla, o antes del dictamen de Comisión.

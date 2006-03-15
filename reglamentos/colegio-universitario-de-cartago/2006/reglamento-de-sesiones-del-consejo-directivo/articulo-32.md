@@ -1,0 +1,1 @@
+Artículo 32.—Copias de las actas. De cada acta aprobada se obtendrán copias fieles para ser entregadas al Decano, a cada uno de los miembros del Consejo Directivo, Dirección Administrativa, Dirección Académica, Dirección de Planificación y Desarrollo, Biblioteca, Comunicación y Relaciones Públicas así como para los expedientes, archivos y demás efectos necesarios.

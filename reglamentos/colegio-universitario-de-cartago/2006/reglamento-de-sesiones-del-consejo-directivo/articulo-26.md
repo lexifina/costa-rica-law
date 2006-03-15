@@ -1,0 +1,1 @@
+Artículo 26.—Mociones improcedentes. El Presidente no dará curso o declarará fuera de orden, aquellas proposiciones o mociones que fueren ilegales, absurdas, dilatorias o frívolas o improcedentes por otro motivo o que obviamente tiendan a obstruir el curso normal de los asuntos. Igualmente lo serán las mociones escritas sin firma.
