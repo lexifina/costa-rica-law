@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE POÁS
+La suscrita secretaria municipal, hace constar que el Concejo Municipal del cantón de Poás, en sesión ordinaria Nº 197, acuerdo Nº 2640-02-2006, celebrada el día 21 de febrero del 2006, en forma unánime y con base en el oficio Nº AT-13-2006 de la Administración Tributaria de esta corporación, acordó: Adherirse a la publicación realizada por el Ministerio de Hacienda, La Gaceta Nº 243, Alcance Nº 48 del 16 de diciembre del 2005, donde se aprobó el Manual de Valores Base Unitarios por Tipología Constructiva, para su aplicación efectiva en el cantón de Poás.
+San Pedro de Poás, 1º de marzo del 2006.
