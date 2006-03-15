@@ -1,0 +1,1 @@
+Artículo 3º—Declarar de interés público todos los actos relativos a la Transmisión de Mando Presidencial, así como las actividades que en ejercicio de sus funciones, desempeñe la Comisión de Traspaso de Poderes.
