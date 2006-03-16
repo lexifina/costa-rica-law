@@ -1,0 +1,1 @@
+3) Solicitarle a la comisión de reglamentos abocarse a la elaboración de un Reglamento para Capacitaciones a Funcionarios Municipales, y que la encargada del Departamento de Recursos Humanos, haga llegar a esa comisión las necesidades de capacitación que tiene esta Municipalidad en todos los niveles.
