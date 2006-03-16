@@ -1,1 +1,1 @@
-Artículo 23.—En cuanto a los requisitos, partes, revisión y emisión de los informes, se aplicará principalmente lo dispuesto sobre el particular en el "Manual para el Ejercicio de la Auditoría Interna".
+Artículo 23.—Cumplimiento de disposiciones. El Auditor Interno y los demás funcionarios de Auditoría Interna, se encuentran sujetos a cumplir con las disposiciones de carácter general que dicte el jerarca y la Contraloría General en su carácter de Órgano Rector del Sistema de Control y Fiscalización Superior de la Deuda Pública.

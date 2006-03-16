@@ -1,0 +1,1 @@
+Artículo 45.—Comunicación de resultados. Los resultados que obtiene la Auditoría Interna en las investigaciones que realiza deben ser comunicados a los titulares subordinados correspondientes, a efecto de que se implementen las recomendaciones del caso en tiempo y espacio conveniente.

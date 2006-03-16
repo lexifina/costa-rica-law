@@ -1,1 +1,4 @@
-Artículo 38.—Las disposiciones de este Reglamento son de aplicación en todas las unidades de procesos que conforman la organización de la JASEC, en lo que corresponda según sea el caso. Cualquier discrepancia que se presente en cuanto a su interpretación y ejecución, será resuelta por la Junta Directiva de común acuerdo con el Auditor General.
+CAPÍTULO IV
+De la ejecución de la Auditoría
+Artículo 38.—Independencia de funciones y de criterio. La Auditoría Interna es la actividad independiente, objetiva y asesora encargada de verificar que las operaciones contables, financieras, administrativas y técnicas, se ejecuten de acuerdo con la normativa legalmente estipulada.
+Los funcionarios de la auditoría interna ejercerán sus atribuciones con total independencia funcional y de criterio respecto del jerarca y de los demás funcionarios de la administración activa.

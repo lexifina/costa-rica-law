@@ -14,3 +14,4 @@ Reglamento de Organización y Funciones de la Auditoría Interna de Junta Admini
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-09 | la propia norma |
+| 2 | 2006-03-16 | Reglamento 4055 (2006-03-16) |

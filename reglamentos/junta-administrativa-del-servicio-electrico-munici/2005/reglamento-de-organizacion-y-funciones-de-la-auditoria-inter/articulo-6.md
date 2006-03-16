@@ -1,3 +1,1 @@
-CAPÍTULO II
-De la organización
-Artículo 6º—La Auditoría Interna es un Órgano Asesor en materia propia de su competencia, dependiente del Consejo Directivo, y coordinará con el Presidente de ese Consejo los asuntos de interés institucional que corresponda.
+Artículo 6º—Potestad de la Auditoría Interna. La Auditoría Interna debe informar, asesorar, advertir y recomendar a la Administración Activa de JASEC sobre las posibles consecuencias de determinadas conductas y decisiones en nivel individual o institucional, cuando sean de su conocimiento. Siendo responsabilidad de ésta última, velar porque se ejecuten las medidas preventivas y correctivas pertinentes.

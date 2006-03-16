@@ -1,0 +1,1 @@
+Artículo 63.—Potestad para modificaciones. El presente reglamento puede ser modificado mediante recomendación de la Auditoría Interna y acuerdo específico de la Junta Directiva, el cual debe ser remitido para su aprobación a la Contraloría General de la República.

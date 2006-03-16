@@ -1,3 +1,1 @@
-CAPÍTULO III
-Del objeto, deberes, funciones y atribuciones
-Artículo 14.—El objetivo fundamental de la Auditoría Interna es prestar un servicio de asesoría constructiva y de protección a la Administración, para coadyuvar en el logro de las metas y objetivos con mayor eficiencia, economicidad y eficacia proporcionándole en forma oportuna información, análisis, evaluaciones, comentarios u recomendaciones pertinentes sobre las operaciones que examine en forma posterior.
+Artículo 14.—Protección de Personal de Auditoría. La Institución es responsable de brindarle apoyo jurídico y técnico al personal de Auditoría Interna, en caso que éste se vea involucrado en algún conflicto legal en el cumplimiento de sus funciones, de esta manera la Institución cubrirá los costos totales del proceso hasta la resolución final.

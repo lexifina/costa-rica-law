@@ -1,1 +1,1 @@
-Artículo 33.—El informe de Auditoría contendrá los elementos necesarios para identificar los presuntos partícipes responsables contra los cuales enderezar las acciones que se recomiendan y precisar los hechos anómalos o irregulares que servirá de base a la intimación de cargos.
+Artículo 33.—Componentes del Plan Anual de Trabajo de Auditoría Interna. El Plan Anual de Actividades estará enfocado a abarcar actividades relacionadas con las áreas de Auditoría Financiero- Contable y Auditoría Técnico-Operativa y demás estudios extraordinarios de Auditoría.

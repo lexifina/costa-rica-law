@@ -1,4 +1,1 @@
-CAPÍTULO V
-De la comunicación de resultados
-Artículo 21.—La Auditoría Interna deberá comunicar los resultados de su auditorías o estudios especiales de Auditoría, a efecto de que se tomen las decisiones del caso en tiempo, a propósito y conveniencia.
-Dicha comunicación se dirigirá con ese propósito al funcionario ejecutivo del nivel que corresponda; a la Junta Directiva sólo cuando la gravedad o importancia de los hechos lo ameriten y que las decisiones a tomar sean de su exclusiva competencia, o que así lo soliciten.
+Artículo 21.—Movilidad del auditor. El Auditor debe ser destituido o suspendido de su cargo por causa justa y por decisión emanada por el jerarca, previa elaboración del expediente y habiéndose brindado a éste la oportunidad de audiencia y defensa a su favor así como dictamen favorable de la Contraloría General de la República. En todo caso se procederá conforme a lo dispuesto por el artículo 15 de la Ley Orgánica de la Contraloría General de la República.

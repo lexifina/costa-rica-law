@@ -1,4 +1,4 @@
-Artículo 41.—El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deroga el Reglamento anterior y aquellas disposiciones internas que se le opongan.
-c-) Comisionar a la Administración para que realice los trámites correspondientes a la publicación del reglamento que se apruebe con el presente acuerdo.
-d-) El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
-Acuerdo Firme.
+CAPÍTULO V
+De la comunicación de resultados
+Artículo 41.—Elaboración de informes. Los informes sobre los servicios de Auditoría Interna versarán sobre diversos asuntos de su competencia y sobre asuntos de los que puedan derivarse posibles responsabilidades. Los primeros denominados de Control Interno que contienen hallazgos con sus correspondientes conclusiones y recomendaciones, los segundos llamados relaciones de hechos con la recomendación sobre la apertura de un procedimiento administrativo o sobre la denuncia al Ministerio Público y a la Contraloría General según corresponda. Dicho informe debe realizarse de manera precisa y objetiva.
+Así mismo, los funcionarios de la Auditoría Interna deberán reconocer en las comunicaciones del trabajo el desempeño satisfactorio de la administración, cuando así lo determinen.

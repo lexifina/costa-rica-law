@@ -1,0 +1,1 @@
+Artículo 54.—Deberes de la Auditoría Interna en cuanto al Ambiente de Control. La Auditoría Interna velará porque la Administración Activa establezca y mantenga una actitud positiva y de apoyo hacia el Control Interno, de tal forma que ésta se convierta en una herramienta que oriente al logro de los objetivos institucionales.
