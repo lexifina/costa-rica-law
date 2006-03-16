@@ -1,0 +1,1 @@
+5) Establecer que las tasas de interés a 7, 15 y 30 días en el SICP serán determinadas por la Administración del Banco Central de Costa Rica, de acuerdo con las condiciones del mercado y comunicadas al medio financiero. La revisión del nivel de dichas tasas se hará semanalmente y se modificarán cuando se considere conveniente.
