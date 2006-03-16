@@ -1,0 +1,1 @@
+Artículo 9º—Para el préstamo de documentos se debe llenar las boletas de préstamo, para así tener un mayor control de la salida de documentos, evitando la pérdida de información por extravío, además de conocer a quién y a cuál departamento se le hace el préstamo.

@@ -1,0 +1,1 @@
+Artículo 5º—El local destinado deberá contar con las condiciones necesarias que garanticen la conservación óptima del acervo documental, en aspectos a cuidar como: humedad, temperatura, polución, luz, polvo e insectos. Además de contar con medidas en contra de incendios como extintores y contra robos.

@@ -1,0 +1,1 @@
+Artículo 7º—El Archivo Central de la Municipalidad de San Rafael de Heredia, recibirá debidamente organizados los documentos que le remitan los diferentes departamentos de la Institución, tomando en cuenta la vigencia administrativa establecida en la Tabla de Plazos de Conservación y Eliminación de Documentos.

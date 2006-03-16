@@ -1,0 +1,1 @@
+Artículo 2º—Las disposiciones establecidas en el siguiente Reglamento, regularán las diferentes actividades del Archivo Central de esta Municipalidad, el cuál tiene como objetivo tener un funcionamiento eficiente y eficaz en la administración, como en la custodia de la documentación utilizada tanto para actividades de gestión, la investigación, la información y la cultura.
