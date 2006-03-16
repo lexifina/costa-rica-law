@@ -14,3 +14,4 @@ Reglamento para la Contratación de Servicios de Consultoría en Ingeniería y A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-10-25 | la propia norma |
+| 2 | 2006-03-16 | Reglamento 14 (2006-03-16) |
