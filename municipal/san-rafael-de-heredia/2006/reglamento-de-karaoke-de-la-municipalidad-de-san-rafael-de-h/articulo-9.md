@@ -1,0 +1,1 @@
+Artículo 9º—Sistemas de Recaudación: La Municipalidad de San Rafael de Heredia, podrá establecer cualquier sistema diferente de recaudar audiencia a los interesados, con la aprobación del Concejo Municipal.

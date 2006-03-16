@@ -1,0 +1,1 @@
+Artículo 6º—Cada establecimiento comercial podrá realizar hasta un máximo de tres actividades tipo karaoke a la semana. Podrá realizar más de este número de ocasiones en casos excepcionales y con previa autorización del Alcalde Municipal.

@@ -1,0 +1,1 @@
+Artículo 2º—Como actividad comercial únicamente podrán realizarse karaokes en establecimientos comerciales como: restaurantes, bares, salones de baile, salas de fiestas, discotecas y cualquier otro establecimiento que cuente con patente de licores, siempre y cuando se cumpla con los requisitos aquí estipulados.

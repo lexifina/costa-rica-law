@@ -1,0 +1,1 @@
+Artículo 5º—Cuando se realicen actividades con karaoke, los patentados o dueños del establecimiento, deberán cancelar un monto de ¢2.000,00 (dos mil colones exactos), por actividad, dicho monto será revisado anualmente de acuerdo al aumento de los índices del consumidor.
