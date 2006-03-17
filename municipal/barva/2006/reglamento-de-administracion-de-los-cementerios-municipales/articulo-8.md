@@ -1,0 +1,1 @@
+Artículo 8º—La Municipalidad cobrará derecho por inhumación y por exhumación, el primero llamado también derecho por servicio de defunción. Igualmente se cobrará derecho de traspaso cuando este proceda.

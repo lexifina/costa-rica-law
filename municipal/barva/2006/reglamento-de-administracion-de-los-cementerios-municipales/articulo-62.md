@@ -1,0 +1,1 @@
+Artículo 62.—El Concejo Municipal podrá autorizar la exoneración el pago de derechos siempre y cuando concurran razones excepcionales de indigencia, salubridad e interés público. Lo anterior se hará mediante acuerdo municipal debidamente motivado.

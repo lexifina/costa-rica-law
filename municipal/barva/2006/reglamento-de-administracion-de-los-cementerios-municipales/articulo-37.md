@@ -1,0 +1,1 @@
+Artículo 37.—Las exhumaciones ordinarias se realizaran dentro del horario establecido para de la jornada ordinaria de los empleados municipales. Las extraordinarias se realizaran en el momento en que la autoridad que la solicite así lo indique.

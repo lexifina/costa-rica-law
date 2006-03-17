@@ -1,0 +1,1 @@
+Artículo 56.—Con el fin de preservar el derecho a la intimidad y a la propia imagen de los usuarios no se podrán obtener fotografías, filmaciones, etc. en las dependencias de los Cementerios. Las vistas generales o parciales de los Cementerios quedarán sujetas en todo caso, a la concesión de autorización especial por parte del Concejo Municipal.

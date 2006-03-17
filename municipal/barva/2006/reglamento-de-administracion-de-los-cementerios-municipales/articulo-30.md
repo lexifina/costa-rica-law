@@ -1,0 +1,1 @@
+Artículo 30.—Tanto para exhumaciones ordinarias como extraordinarias se deberá presentar toda la documentación requerida con al menos ocho días hábiles de anticipación. Excepto en casos de mandato judicial o de orden sanitaria resuelta por el Ministerio de Salud.

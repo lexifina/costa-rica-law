@@ -1,0 +1,1 @@
+Artículo 35.—Las exhumaciones que realice la administración producto del vencimiento del plazo de arrendamiento en nichos de alquiler o las realizadas de falta de pago serán consideradas de carácter ordinario.

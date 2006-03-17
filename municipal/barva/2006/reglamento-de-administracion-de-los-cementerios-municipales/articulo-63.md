@@ -1,0 +1,1 @@
+Artículo 63.—De los recursos. Contra las resoluciones o actos dictados con motivo de la aplicación del presente reglamento, procederán los recursos de revocación y apelación, los cuales deberán hacerse valer en la forma y términos previstos en el Código Municipal.

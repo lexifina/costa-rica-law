@@ -1,0 +1,1 @@
+Artículo 33.—En el caso de exhumaciones extraordinarias los restos serán trasladados donde indiquen las autoridades respectivas. El traslado correrá a cargo y bajo responsabilidad de la autoridad que ordena la exhumación para lo cual deberá aportar cajas o recipientes y un medio de transporte adecuados que no ponga en riesgo la salud pública.

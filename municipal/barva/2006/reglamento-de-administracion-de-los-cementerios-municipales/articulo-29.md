@@ -1,0 +1,1 @@
+Artículo 29.—Las exhumaciones ordinarias y extraordinarias deberán hacerse en presencia del encargado del cementerio y de al menos dos testigos. De este acto se levantará un acta que deberá ser firmada por los presentes.
