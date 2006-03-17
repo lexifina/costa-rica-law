@@ -13,3 +13,4 @@ Propuestas formuladas por la Comisión de Usuarios, que deben seguir los Tribuna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-02 | la propia norma |
+| 2 | 2006-03-17 | Circular 31 (2006-03-17) |

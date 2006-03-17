@@ -1,5 +1,6 @@
 CIRCULAR No 181 –05
-ASUNTO: Propuestas formuladas por la Comisión de Usuarios, que deben seguir los Tribunales de Cartago como plan piloto.
+ASUNTO: Propuestas formuladas por la Comisión de Usuarios, que deben seguir los Tribunales del *Primer Circuito Judicial de la Zona Zur (Pérez Zeledón) como plan piloto.
+(*Así reformado mediante circular N° 31 del 17 de marzo del 2006, en el sentido de que en lugar de los Tribunales de Cartago serán los Tribunales del Primer Circuito Judicial de la Zona Sur (Pérez Zeledón), en los que se implementarán como plan piloto las propuestas formuladas por la Comisión de Usuarios)
 A TODOS LOS DESPACHOS JUDICIALES
 DE LOS TRIBUNALES DE CARTAGO
 SE LES HACE SABER QUE:
