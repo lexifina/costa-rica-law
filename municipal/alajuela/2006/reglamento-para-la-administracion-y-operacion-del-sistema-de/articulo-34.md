@@ -1,0 +1,1 @@
+Artículo 34.—Motocicletas. Las motocicletas que se estacionen en espacios de estacionamiento autorizado, quedarán sujetas al pago del impuesto correspondiente y las sanciones que prevé este Reglamento.

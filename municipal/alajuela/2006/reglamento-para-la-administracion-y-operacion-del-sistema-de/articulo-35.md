@@ -1,0 +1,1 @@
+Artículo 35.—Anulación de boletas de infracción. La competencia para la anulación de boletas de parte será, respectivamente, de la Actividad de Parquímetros al resolver los recursos de revocatoria y del alcalde al resolver los recursos de apelación presentados en tiempo.
