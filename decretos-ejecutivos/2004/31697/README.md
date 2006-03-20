@@ -14,3 +14,4 @@ Reglamento al fondo de garantías creado por el artículo 8 del capítulo III, d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-03-22 | la propia norma |
+| 2 | 2006-03-20 | Decreto Ejecutivo 33112 (2006-03-20) |
