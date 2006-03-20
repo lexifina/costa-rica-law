@@ -1,0 +1,1 @@
+Artículo 5º—Derogatorias al Reglamento a la Ley General de Aduanas. Deróguense los incisos d) e i) del artículo 152 del Decreto Ejecutivo Nº 25270-H de 14 de junio de 1996, Reglamento a la Ley General de Aduanas.

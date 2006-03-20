@@ -1,0 +1,10 @@
+Artículo 4.—Adiciones al Reglamento a la Ley General de Aduanas Adiciónense los artículos 152 bis, 416 bis y 416 ter del Decreto Ejecutivo Nº 25270-H de 14 de junio de 1996, Reglamento a la Ley General de Aduanas para que en lo sucesivo se lean así:
+“Artículo 152 bis.—Respaldo de información que debe conservar la empresa de entrega rápida. Las empresas de entrega rápida deberán conservar bajo su responsabilidad y bajo su custodia directa o por medio de terceros, un respaldo del archivo del manifiesto de entrega rápida, la declaración simplificada transmitida electrónicamente y los siguientes documentos:
+a) Factura comercial original.
+b) Conocimientos de embarque.
+c) Documentos que utilice en su giro normal como comprobante de la entrega de mercancías despachadas o entregadas al depósito fiscal.”
+“Artículo 416 bis.—Operaciones de redistribución y trasbordo de mercancías de entrega rápida (operación HUB). Las operaciones de redistribución y trasbordo de mercancías de entrega rápida (operación HUB), regulada en el artículo 236 inciso d) la realizará la empresa solicitante en los lugares designados para tal efecto y bajo control aduanero.”
+“Artículo 416 ter.—Plazo para desalmacenar envíos de las categorías a) y c). La empresa de entrega rápida contará con un plazo de seis horas hábiles, posteriores a la recepción de la unidad de transporte en las instalaciones del depositario, para finiquitar el trámite de despacho de las mercancías correspondientes a las categorías a) y c).
+De no haberse finiquitado el despacho de las mercancías en el plazo indicado, éstas deberán trasladarse al régimen de depósito fiscal.
+En el caso de las categorías b) y d), y las que aplican en la modalidad de “pequeños envíos sin carácter comercial”, deben ser entregadas en forma inmediata al Depositario Aduanero al finalizar el proceso de desconsolidación.
+En todos los casos, en que las mercancías no hayan sido entregadas al depositario aduanero, la empresa de entrega rápida deberá responder por las obligaciones tributarias respectivas, sin menoscabo a la aplicación de las sanciones respectivas.”
