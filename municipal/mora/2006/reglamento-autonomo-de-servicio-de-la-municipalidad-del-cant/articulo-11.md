@@ -1,0 +1,1 @@
+Artículo 11.—El Departamento de Recursos Humanos de la municipalidad será responsable de elaborar y custodiar el expediente personal de cada uno de los funcionarios y de mantener al día los archivos de los documentos pertinentes que estos aportan, así como de preservar su confidencialidad.

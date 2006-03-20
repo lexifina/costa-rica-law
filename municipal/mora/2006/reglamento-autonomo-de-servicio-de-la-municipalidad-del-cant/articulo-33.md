@@ -1,0 +1,1 @@
+Artículo 33.—Los puestos de confianza, ubicados en Servicios Especiales y de acuerdo con el artículo 118 del Código Municipal, estarán sometidos a los requisitos establecidos en el Manual Descriptivo de Puestos.

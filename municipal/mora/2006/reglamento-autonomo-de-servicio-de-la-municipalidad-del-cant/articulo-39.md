@@ -1,0 +1,1 @@
+Artículo 39.—Con el fin de elevar la eficiencia en la prestación de servicios, la municipalidad procurará implantar un programa de incentivos salariales por productividad, la cual estará regulada dentro del reglamento.

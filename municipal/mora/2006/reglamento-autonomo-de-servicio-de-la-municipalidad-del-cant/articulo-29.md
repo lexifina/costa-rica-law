@@ -1,0 +1,1 @@
+Artículo 29.—Son servidores municipales los nombrados de acuerdo con el artículo 125 del Código Municipal y que satisfacen los requisitos que establece el Manual Descriptivo de Puestos de la municipalidad, el artículo 111 de la Ley General de la Administración Pública, y lo estipulado en el artículo 118 del Código Municipal.

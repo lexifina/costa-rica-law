@@ -1,0 +1,1 @@
+Artículo 67.—El funcionario que efectúe un registro de asistencia cuando sea el suyo, incurrirá en falta grave; de la misma manera, aquel que consienta o solicite a otro que le registre su marca de asistencia.

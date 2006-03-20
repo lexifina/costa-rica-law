@@ -1,0 +1,1 @@
+Artículo 58.—En los casos que estén debidamente justificados o al presentarse alguna emergencia de tipo familiar, la jefatura de cada departamento o dirección estará facultada para otorgar el permiso correspondiente, siempre que no exceda de un día.

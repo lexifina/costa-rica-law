@@ -1,0 +1,1 @@
+Artículo 43.—El aguinaldo o decimotercer mes se pagará en la primera quincena del mes de diciembre, de acuerdo con lo que establece el decreto 1835, sobre la Regulación de Pago de Aguinaldo, o cualquier otra disposición legal reglamentaria que lo mejore.

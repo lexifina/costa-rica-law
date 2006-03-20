@@ -1,0 +1,1 @@
+Artículo 26.—Al funcionario del que demuestre haber estado utilizando para juegos, el equipo informático, se le sancionará en la forma prevista por el Código Municipal, con sanción que puede ir desde apercibimiento escrito hasta el despido, dependiendo de la dimensión de la acción.

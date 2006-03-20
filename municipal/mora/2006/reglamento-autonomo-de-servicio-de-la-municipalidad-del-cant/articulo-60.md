@@ -1,0 +1,1 @@
+Artículo 60.—Como excepción de lo antes señalado, si un funcionario municipal fuera nombrado en un puesto de elección popular, podrá otorgársele permiso sin goce de salario hasta por el período que le corresponda ejercerlo. Todo permiso sin goce de sueldo deberá solicitarse con un mínimo de tres días hábiles de antelación.

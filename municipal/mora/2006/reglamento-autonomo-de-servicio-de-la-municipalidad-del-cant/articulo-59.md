@@ -1,0 +1,1 @@
+Artículo 59.—El Alcalde podrá conceder permisos sin goce salario hasta por seis meses, prorrogables una sola vez, por un plazo igual con previa consulta de la jefatura superior del solicitante y verificación de que no se perjudicará el funcionamiento municipal.
