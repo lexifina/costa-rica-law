@@ -14,3 +14,4 @@ Creación de la Comisión Nacional Asesora Técnica Mixta de la Secretaría Téc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-19 | la propia norma |
+| 2 | 2006-03-20 | Decreto Ejecutivo 32992 (2006-03-20) |
