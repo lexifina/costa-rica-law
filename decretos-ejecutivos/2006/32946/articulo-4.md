@@ -1,0 +1,1 @@
+Artículo 4º—Para la regulación de los aspectos de carácter específico, no contemplados en este decreto, las instituciones participantes podrán suscribir convenios de cooperación interinstitucional, bilaterales o multilaterales.

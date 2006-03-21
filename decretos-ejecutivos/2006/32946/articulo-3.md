@@ -1,0 +1,1 @@
+Artículo 3º—Se constituye la Comisión Interinstitucional para la ejecución del Programa Interinstitucional Aula Móvil, la cual estará conformada por un representante nombrado por cada una de las Instituciones participantes, quienes elegirán de su seno, y por el periodo que estimen conveniente un Coordinador General.
