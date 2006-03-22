@@ -1,0 +1,6 @@
+Artículo 47.—Confirmación.
+1. Cuando en una muestra, tras los procesos de detección, se haya realizado en el proceso analítico una identificación previa de una sustancia considerada como prohibida o de alguno de los metabolitos, o se recaben indicios evidentes de que se haya podido cometer un método de dopaje, se ha de proceder a confirmar dichos hallazgos.
+2. Se debe buscar una identificación suplementaria con alguna de las otras metodologías desarrolladas.
+3. Con otra fracción de la misma muestra, se ha de proceder a una nueva preparación modificando si es posible el procedimiento de preparación tratando de obtener un extracto más limpio y más concentrado, e incluyendo un proceso de derivatización.
+4. La confirmación de la identificación de cualquier sustancia dopantes y/o de sus metabolitos presentes en la orina ha de realizarse mediante espectrometría de masas por SCAN, tras obtener un tiempo de retención y un espectro de masas correctos en CG/EM por control selectivo de iones, con los criterios adecuados para la identificación.
+5. Los datos analíticos obtenidos deben compararse, siempre que sea posible, con los procedentes de un patrón y con los de la orina de referencia que se analice simultáneamente verificando que todas las informaciones de recolección corresponden con los datos de la estructura del agente dopante y/o de su/s metabolitos.

@@ -1,0 +1,1 @@
+Artículo 10.—El Consejo Nacional del Deporte y la Recreación, La Comisión Contra el Dopaje en el Deporte (CCDD), las Federaciones y Asociaciones Deportivas, El Comité Olímpico Nacional y otras organizaciones deportivas podrán requerir a cualquier deportista, con licencia para participar en competiciones oficiales de ámbito estatal o internacional, pasar al control antidopaje.

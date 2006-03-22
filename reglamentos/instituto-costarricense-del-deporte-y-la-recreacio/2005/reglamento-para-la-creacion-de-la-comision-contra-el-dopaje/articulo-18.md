@@ -1,0 +1,1 @@
+Artículo 18.—Las federaciones u organizadores de los eventos están obligadas a comunicar al deportista sometido al control el resultado del mismo tanto si es positivo como si es negativo. También se comunicará la anulación en caso de producirse.

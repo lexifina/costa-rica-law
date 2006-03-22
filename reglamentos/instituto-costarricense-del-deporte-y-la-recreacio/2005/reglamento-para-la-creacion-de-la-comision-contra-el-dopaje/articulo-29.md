@@ -1,0 +1,1 @@
+Artículo 29.—Cuando se fija una cita para la recolección de la muestra, debe acordarse un lugar y una hora para el encuentro. La muestra debe ser recibida tan pronto como sea posible y en cualquier caso antes de que transcurran veinticuatro horas desde la recepción del aviso.

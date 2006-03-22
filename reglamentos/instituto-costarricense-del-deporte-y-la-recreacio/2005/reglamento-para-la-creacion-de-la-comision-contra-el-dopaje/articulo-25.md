@@ -1,0 +1,1 @@
+Artículo 25.—La CCDD o las comisiones antidopaje de las federaciones u organizaciones deportivas correspondientes, entregarán una notificación al deportista elegido para el control antidopaje, mediante un procedimiento que deje constancia de su recepción.

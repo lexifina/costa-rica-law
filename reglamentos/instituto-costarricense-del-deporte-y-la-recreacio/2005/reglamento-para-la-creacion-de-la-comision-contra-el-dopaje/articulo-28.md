@@ -1,0 +1,1 @@
+Artículo 28.—Cuando un deportista ha sido seleccionado para pasar al control antidopaje fuera de competición, el jefe del control podrá fijar una cita con el deportista o llegar sin anunciarse al lugar de sus entrenamientos.

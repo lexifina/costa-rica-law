@@ -1,0 +1,1 @@
+Artículo 20.—La documentación relativa a un hallazgo de sustancia prohibida es propiedad del laboratorio que realiza el análisis y quedará en poder del mismo para su custodia. Pero podrá ser revisada, en el mismo laboratorio, por una persona calificada y autorizada por la CCDD, ante solicitud de la federación u organización deportiva correspondiente.
