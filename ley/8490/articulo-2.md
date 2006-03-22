@@ -12,7 +12,8 @@ OBJETIVOS DE MEJORA INSTITUCIONALES:
 4.Dotar a la Asamblea Legislativa, mediante el proceso de modernización, de las herramientas tecnológicas y de organización funcional, que den capacidad a la institución de hacer frente a los retos de una democracia más participativa y una nación inmersa en un mundo globalizado que demanda decisiones adecuadas y oportunas
 5. Lograr una mayor eficiencia y eficacia de las unidades técnicas legislativas y administrativas, estableciendo planes institucionales que permitan brindar el apoyo requerido por los legisladores.
 6.Promoverlacapacitación del personal, conforme a los requerimientos de la integración del Parlamento para el actual período gubernamental.
-Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 49 a La Gaceta N° 253 del 30 de diciembre de 2005.
+Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 49 a La Gaceta N° 253 del 30 de diciembre de 2005
 (Modificado por el artículo 1° del decreto ejecutivo N° 32859 del 9 de enero del 2006)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32866 del 17 de enero del 2006)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32884 del 24 de enero del 2006)
+(Modificado por el artículo 1° del decreto ejecutivo N° 32937 del 2 de marzo del 2006)
