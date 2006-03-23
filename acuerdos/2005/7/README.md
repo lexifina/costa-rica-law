@@ -14,3 +14,4 @@ Procedimiento para dar solución habitacional a las familias que han adquirido u
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-11 | la propia norma |
+| 2 | 2006-03-23 | Acuerdo 2 (2006-03-23) |
