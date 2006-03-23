@@ -1,0 +1,5 @@
+CAPÍTULO VII
+Supervisión y acompañamiento técnico
+Artículo 20.—Supervisión y acompañamiento técnico de los créditos. Es potestad del INFOCOOP supervisar los créditos en las fases de implementación y operación para lo cual los prestatarios deberán aportar toda la información y colaboración que se les solicite.
+Cuando medie un plan de estabilización o de reconversión, como parte del justificante del crédito, el Consejo de Administración deberá enviar copia al INFOCOOP de la evaluación trimestral del dicho plan. En caso que el Organismo Cooperativo no permita que se concrete la supervisión, se hará exigible la obligación.
+De acuerdo al plan de inversión y a la problemática a resolver en el organismo cooperativo, se incluirá un componente de asistencia técnica y financiamiento con cargo a la cooperativa, para lo cual se deberá contar por parte del INFOCOOP con una base de datos de consultores, debidamente registrados que podrían prestar dichos servicios, bajo los lineamientos que se establezcan técnicamente.

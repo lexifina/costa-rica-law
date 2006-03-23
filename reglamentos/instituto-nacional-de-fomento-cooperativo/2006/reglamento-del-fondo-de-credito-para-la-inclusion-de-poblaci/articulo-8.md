@@ -1,0 +1,2 @@
+Artículo 8º—Límites y monto máximo de financiamiento por medio del Fondo de Crédito para la Inclusión de Poblaciones Vulnerables. El monto total de los financiamientos (saldos por crédito, conversión, participación asociativa y otros) por Organismo Cooperativo, no deben sobrepasar el 10% del patrimonio del INFOCOOP ni el 20% del presupuesto anual de colocaciones.
+Los saldos de los créditos que se otorguen a un mismo organismo cooperativo, con recursos de éste Fondo, no podrán ser superiores en su conjunto a ¢ 50 millones.
