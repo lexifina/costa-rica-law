@@ -1,5 +1,4 @@
-Artículo 40.De las comisiones por pago de beneficios por parte de las Operadoras
-Por la administración de los planes de beneficio del régimen obligatorio de pensión complementaria, sea renta permanente o retiro programado, las Operadoras podrán cobrar una comisión calculada sobre la base de un porcentaje aplicable sobre el rendimiento bruto de las inversiones del Fondo. Tal porcentaje será como máximo el que aplica sobre los rendimientos para los fondos obligatorios, según lo dispuesto en el artículo 37 de este Reglamento. En el caso de Planes Voluntarios de Beneficio, las comisiones serán establecidas según el numeral 2 del artículo 37.
-Cuando la Operadora actúe como intermediario en la contratación y prestación de los servicios de rentas vitalicias, no podrá cobrar comisiones a su asegurado pensionado
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 346-2002, celebrada el 19 de diciembre de 2002, publicada en La Gaceta N° 33 de 17 de febrero de 2003.)
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 396-2003, celebrada el 07 de octubre de 2003, publicada en La Gaceta N° 200 de 17 de octubre de 2003.)
+Artículo 40.— De las comisiones de las operadoras por la administración de planes de beneficio. La base de cálculo de la comisión será un porcentaje máximo del 8% de los rendimientos brutos obtenidos por las inversiones realizadas con los recursos del fondo.
+En el caso de planes voluntarios de beneficio las comisiones serán establecidas según el numeral 3 del artículo 37.
+Cuando la operadora actúe como intermediario en la contratación y prestación de los servicios de rentas vitalicias deberá informar al afiliado las comisiones que recibirá por parte de la aseguradora. La operadora no podrá cobrar comisiones por este servicio al afiliado si hubiere recibido algún pago por parte de la aseguradora.
+(Así reformado en sesión N° 567 del 23 de marzo del 2006)

@@ -1,11 +1,19 @@
-Artículo 37. - De la comisión por administración. La comisión por administración debe ser la misma para todos lo afiliados pertenecientes a un mismo Fondo. No obstante lo anterior, podrán cobrarse comisiones uniformes más bajas de acuerdo con el monto acumulado o la antigüedad, para estimular la permanencia de los afiliados en el Fondo e incentivar el ahorro voluntario, según las disposiciones que para tal efecto dicte el Superintendente de Pensiones.
-La comisión por administración de los fondos se determinará de la siguiente forma:
-1) Para los fondos de pensiones complementarias obligatorios y los fondos de capitalización laboral la comisión por administración podrá estar compuesta por:
+Artículo 37.—De la comisión por administración. La comisión por administración deberá ser la misma para todos los afiliados pertenecientes a un mismo Fondo.
+La comisión por administración de los fondos administrados por las entidades autorizadas se regirá por las siguientes reglas:
+1. Fondo de Capitalización Laboral. La base de cálculo de la comisión será un porcentaje del saldo administrado definido, este último, como la diferencia entre el activo total y el pasivo total. El límite máximo de comisión que las entidades podrán cobrar a los afiliados, sobre la base de cálculo antes indicada, será de un 2% anual.
+2. Régimen Obligatorio de Pensiones Complementarias. La base de cálculo de la comisión estará compuesta por los siguientes parámetros:
 a) Un máximo del 8% de los rendimientos brutos obtenidos por las inversiones realizadas con los recursos del fondo.
-b) Un máximo del 4% sobre los aportes al fondo en el momento de su registro. Esta comisión no será aplicable a los traslados que se realicen al Régimen de Pensiones Complementarias provenientes del Fondo de Capitalización Laboral.
-c) La comisión que cobre la operadora de la CCSS se regirá por lo dispuesto en el artículo 49 de la Ley de Protección al Trabajador.
-2) Para los fondos voluntarios la operadora determinará la comisión por administración como un porcentaje de los rendimientos obtenidos por las inversiones realizadas con los recursos del fondo.
-Los porcentajes máximos mencionados anteriormente son determinados por el Consejo Nacional de Supervisión del Sistema Financiero y serán revisados cuando a criterio del Superintendente existan condiciones financieras en el Sistema de Pensiones que ameriten su modificación.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 245-2001, celebrada el 13 de agosto de 2001, publicada en La Gaceta N° 191 de 04 de octubre de 2001.)
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 346-2002, celebrada el 19 de diciembre de 2002, publicada en La Gaceta N° 33 de 17 de febrero de 2003.)
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 396-2003, celebrada el 07 de octubre de 2003, publicada en La Gaceta N° 200 de 17 de octubre de 2003, la cuál reformó el inciso b) del presente artículo.)
+b) Un máximo del 4% sobre los aportes al fondo en el momento de su registro. Para el cálculo de la comisión se aplicará este porcentaje de manera uniforme a todos los incisos del artículo 13 de la Ley Nº 7983.
+Las operadoras de pensiones podrán solicitar la autorización de una estructura de comisión con fundamento en cualquiera de las siguientes opciones: i) exclusivamente, en alguno de los parámetros definidos en los incisos a) o b), anteriores, ii) una combinación de los parámetros definidos en los incisos a) y b), anteriores.
+Los aportes pendientes de traslado o acreditación en las cuentas al momento de solicitarse la pensión o jubilación del afiliado no serán tomados en cuenta al calcular la comisión que contenga el parámetro de aportes en la estructura autorizada.
+3. Régimen Voluntario de Pensiones Complementarias. La base de cálculo de la comisión estará compuesta por los siguientes parámetros:
+a) Los rendimientos brutos obtenidos por las inversiones realizadas con los recursos del fondo.
+b) El saldo administrado definido como la diferencia entre el activo total y el pasivo total.
+Las operadoras de pensiones podrán solicitar la autorización de una estructura de comisiones con fundamento, exclusivamente, en alguno de los parámetros definidos en los incisos a) o b). La entidad autorizada definirá el porcentaje aplicado al parámetro escogido.
+4. Comisión por administración para la operadora de pensiones de la CCSS. La comisión que cobre la operadora de la CCSS por la administración del Fondo de Capitalización Laboral, deberá sujetarse a lo dispuesto en el último párrafo del artículo 49 de la Ley de Protección al Trabajador.
+La operadora deberá contratar un estudio de costos independiente y realizar una solicitud de autorización de comisión a la Superintendencia de Pensiones, a más tardar el 30 de junio de cada año. En caso de que el estudio o la solicitud no se realice la Superintendencia establecerá, para el siguiente año, la menor comisión que resulte del último estudio remitido y la aplicación de la siguiente fórmula:
+Ver fórmula en página N° 17 a La Gaceta impresa N° 69 del 6 de abril de 2006.
+Donde: GO: es el gasto operativo reportado a la SUPEN.
+F: es el fondo administrado a la fecha señalada.
+T: corresponde al mes de mayo del año en que no se cumplió la remisión del estudio. A falta de esta información se realizará una estimación con la información más reciente.
+(Así reformado en sesión N° 567 del 23 de marzo del 2006)

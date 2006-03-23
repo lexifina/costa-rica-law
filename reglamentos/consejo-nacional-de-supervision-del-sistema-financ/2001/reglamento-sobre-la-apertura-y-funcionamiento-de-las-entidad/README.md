@@ -31,3 +31,4 @@ Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el 
 | 16 | 2005-01-20 | Reglamento 492 (2005-01-20) |
 | 17 | 2006-01-12 | Reglamento 550 (2006-01-12) |
 | 18 | 2006-03-02 | Reglamento 562 (2006-03-02) |
+| 19 | 2006-03-23 | Reglamento 567 (2006-03-23) |
