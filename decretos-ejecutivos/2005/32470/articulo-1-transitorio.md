@@ -1,0 +1,1 @@
+NOTA DE SINALEVI: La reforma realizada a este artículo por el artículo 2° del decreto ejecutivo N° 33076 del 24 de marzo del 2006, quedo sin efecto, al ser derogado este último por el artículo 2° del decreto ejecutivo N° 34189 del 4 de octubre de 2007.

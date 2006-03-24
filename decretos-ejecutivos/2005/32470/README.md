@@ -14,3 +14,4 @@ Reglamento para el registro sanitario de los medicamentos que requieren demostra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-04 | la propia norma |
+| 2 | 2006-03-24 | Decreto Ejecutivo 33076 (2006-03-24) |
