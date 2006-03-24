@@ -169,17 +169,17 @@ CARNÉ DE IDENTIFICACIÓN DE PESCA COMERCIAL (Por año / Por trámite) | * |
 Pesca Comercial (Nacionales y Residentes) | Carné | 4.000,00
 Venta de Huevos de Tortuga | Carné | 4.000,00
 Venta productos pesqueros en Feria del Agricultor (Venta Directa o Auxiliar) | Carné | 9.500,00
-CARNÉ DE IDENTIFICACIÓN DE PESCA DEPORTIVA CONTINENTAL O MARINA (Por año / Por trámite) | * |
+CARNÉ DE IDENTIFICACIÓN DE PESCA DEPORTIVA CONTINENTAL O MARINA, CUANDO MEDIE UNA EMBARCACIÓN PARA REALIZAR LA ACTIVIDAD (Por año / Por trámite) (Así reformado mediante acuerdo N°AJDIP 153 del 24 de marzo del 2006) | * |
 Pesca Deportiva (Nacionales y Residentes) | Carné | 8.000,00
 Pesca Deportiva (Extranjeros) | Carné | $24,00 (Así reformado mediante acuerdo N° AJDIP 603 del 13 de diciembre del 2005).
 Pesca Subacuática Deportiva | Carné | 11.300,00
 Pesca Deportiva (tripulante) | Carné | 4.000,00
-CARNÉ DE IDENTIFICACIÓN DE PESCA TURÍSTICA CONTINENTAL O MARINA (Por año / Por trámite) | * |
+CARNÉ DE IDENTIFICACIÓN DE PESCA TURÍSTICA CONTINENTAL O MARINA, CUANDO MEDIE UNA EMBARCACIÓN PARA REALIZAR LA ACTIVIDAD (Por año / Por trámite) (Así reformado mediante acuerdo N°AJDIP 153 del 24 de marzo del 2006) | * |
 Pesca Turística (Nacionales y Residentes) | Carné | 8.000,00
-Pesca Turística (Extranjeros) | Carné | $30,00
+Pesca Turística (Extranjeros) | Carné | $24,00 (Así reformado mediante acuerdo N°AJDIP 153 del 24 de marzo del 2006)
 Pesca Subacuática Turística | Carné | 11.300,00
 Pesca Turística (tripulante) | Carné | 4.000,00
-CARNÉ DE IDENTIFICACIÓN DE PESCA DEPORTIVA Y TURÍSTICA EN AGUAS MARINAS Y CONTINENTALES (Por año / Por trámite) | * |
+CARNÉ DE IDENTIFICACIÓN DE PESCA DEPORTIVA Y TURÍSTICA EN AGUAS CONTINENTALES O MARINAS CUANDO MEDIE UNA EMBARCACIÓN PARA REALIZAR ACTIVIDAD (Por año / Por trámite) (Así reformado mediante acuerdo N°AJDIP 153 del 24 de marzo del 2006) | * |
 Pesca Deportiva y Turística (Nacionales y Residentes) | Carné | 14.000,00
 Pesca Turística (Extranjeros) | Carné | $45,00
 Pesca Subacuática Turística | Carné | 19.000,00
@@ -215,3 +215,9 @@ Suministro de Agua Potable | Metro cúbico | 1.250,00
 Utilización del muelle para embarcaciones extranjeras (según montos establecidos en el Puerto de Caldera) | * |
 Embarque y desembarque de pasajeros de embarcaciones de placer (en dólares U. S.) | Persona | $2,50
 Movilización para carga de vehículos | Entrada | 1.500,00
+Carné de identificación de pesca deportiva o turística, en aguas marinas o continentales, cuando la actividad se realice desde tierra (por año/por trámite) (Así adicionado mediante acuerdo N°AJDIP 153 del 24 de marzo del 2006). | |
+Nacional o residente | Carné | ¢4.000,00
+Extranjero | Carné | $24,00
+Carné de identificación de pesca deportiva y turística, en aguas marinas o continentales, cuando la actividad se realice desde tierra (por año/por trámite) (Así adicionado mediante acuerdo N°AJDIP 153 del 24 de marzo del 2006). | |
+Nacional o residente | Carné | ¢7.000,00
+Extranjero | Carné | $45,00
