@@ -15,3 +15,4 @@ Establecen mecanismos de control para garantizar la permanencia temporal de veh�
 | --- | --- | --- |
 | 1 | 2005-03-10 | la propia norma |
 | 2 | 2005-07-28 | Resolución 403 (2005-07-28) |
+| 3 | 2006-03-24 | Resolución 547 (2006-03-24) |
