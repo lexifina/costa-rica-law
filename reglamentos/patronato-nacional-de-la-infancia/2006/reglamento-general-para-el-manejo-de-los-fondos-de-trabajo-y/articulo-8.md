@@ -1,0 +1,4 @@
+Artículo 8º—Para la ejecución de los gastos por medio del Fondo de Trabajo, se deberá respetar los límites económicos de gastos establecidos, pudiendo cancelar en dinero efectivo hasta el monto autorizado por la Gerencia de Administración, y mediante cheque hasta un monto igualmente establecido por la Gerencia de Administración.
+Para modificaciones a los topes indicados le corresponderá al Departamento Financiero Contable realizar las estimaciones económicas pertinentes en concordancia con la asignación presupuestaria anual de las partidas de servicios y la de materiales y suministros.
+Las Cajas Chicas Auxiliares, podrán realizar gastos en efectivo hasta por un veinte por ciento del total de recursos económicos asignados en este concepto.
+Los Albergues contarán con una Caja Chica Auxiliar cuyo monto será autorizado por la Gerencia de Administración previa solicitud a la Dirección Regional o Gerencia Técnica.

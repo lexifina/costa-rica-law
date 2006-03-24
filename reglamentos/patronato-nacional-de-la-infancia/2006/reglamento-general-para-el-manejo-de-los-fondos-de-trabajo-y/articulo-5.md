@@ -1,0 +1,3 @@
+Artículo 5º—El responsable del Fondo de Trabajo será el Director Regional o el funcionario que haga las veces de este por delegación escrita.
+En caso de utilizar Cajas Chicas Auxiliares el responsable será el Coordinador de la Oficina Local o el funcionario a quien él delegue, también por escrito.
+Al funcionario a quien se le hará entrega de los recursos económicos para una adecuada administración y custodia, deberá advertírsele de las obligaciones correspondiente a sus funciones de ejecutor del presupuesto y las implicaciones administrativas y legales por el mal funcionamiento del mismo, sin exclusión de la responsabilidad que le corresponde al delegante.

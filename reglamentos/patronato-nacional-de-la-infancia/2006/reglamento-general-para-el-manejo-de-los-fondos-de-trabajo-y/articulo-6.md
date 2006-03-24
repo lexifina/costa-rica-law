@@ -1,0 +1,2 @@
+Artículo 6º—El Director Regional como ejecutor comunicará al Departamento Financiero Contable, por escrito, el nombre, número de cédula y registro de firmas del funcionario que lo sustituirá en casos de ausencia.
+Asimismo el Coordinador de la Oficina Local, deberá comunicar de la misma forma y a esa misma instancia, las calidades del encargado de la administración de los Cajas Chicas Auxiliares de la Oficina a su cargo.

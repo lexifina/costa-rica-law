@@ -1,0 +1,2 @@
+Artículo 23.—En caso de que el Departamento Financiero Contable detecte incumplimiento de las disposiciones contenidas en el artículo 7 de este Reglamento, y que se observe un inadecuado manejo de los Fondos y Cajas Chicas Autorizados, será motivo suficiente para proceder, a la suspensión temporal o definitiva del Fondo o la Caja Chica.
+Lo anterior, sin perjuicio de las sanciones disciplinarias administrativas, civiles o penales correspondientes a los servidores responsables del mismo.

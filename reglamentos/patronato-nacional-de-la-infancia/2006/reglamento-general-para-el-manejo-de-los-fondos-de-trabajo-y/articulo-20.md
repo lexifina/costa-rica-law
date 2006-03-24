@@ -1,0 +1,1 @@
+Artículo 20.—Los sobrantes que resulten de las operaciones ordinarias del Fondo de Trabajo, que sean debidamente comprobados al efectuar un arqueo, deben ser depositados en la Caja Central de la Oficina de Tesorería o en la cuenta corriente que le indique esa instancia, a más tardar al día siguiente hábil de realizado el arqueo.

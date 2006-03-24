@@ -1,0 +1,1 @@
+Artículo 14.—El Fondo de Trabajo y la Caja Chica Auxiliar correspondiente, deberán responder de conformidad al monto asignado únicamente con efectivo en moneda nacional, cheques, los comprobantes que respalden los trámites de compra de bienes y servicios, adelantos y gastos por viáticos efectuados por este Fondo o la Caja Chica.
