@@ -1,0 +1,2 @@
+Artículo 3º—Una vez recibida la documentación a que hace referencia el artículo uno, la Fiscalía procederá a verificar el cumplimiento de todos los requisitos. En caso de faltar uno o varios requisitos, procederá dentro del plazo de los tres días naturales siguientes a prevenir al solicitante su cumplimiento, otorgándole al efecto un plazo que no podrá ser menor a los diez días hábiles.
+A los interesados que no cumplieren en el plazo dado, podrá declarárseles de oficio o a gestión de parte, sin derecho al correspondiente trámite.

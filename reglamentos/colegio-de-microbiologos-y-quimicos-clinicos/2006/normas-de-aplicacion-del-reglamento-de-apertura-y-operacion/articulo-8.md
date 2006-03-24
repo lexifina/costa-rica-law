@@ -1,0 +1,2 @@
+Artículo 8º—Traslado de laboratorio. Para trasladar de sitio un establecimiento de microbiología y química clínica, el interesado deberá presentar ante la Fiscalía del Colegio, una solicitud de traslado debidamente llena. En caso de variaciones en el funcionamiento del establecimiento, se deberá presentar nuevamente la información que corresponda según el artículo uno. El interesado deberá cancelar los derechos correspondientes.
+El procedimiento para su tramitación, será el mismo que se establece en los artículos tres a cinco de este manual.

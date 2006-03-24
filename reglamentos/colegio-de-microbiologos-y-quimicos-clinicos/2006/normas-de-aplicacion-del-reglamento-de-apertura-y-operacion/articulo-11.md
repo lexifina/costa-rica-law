@@ -1,0 +1,1 @@
+Artículo 11.—Tiempo de funcionamiento. Los establecimientos de microbiología y química clínica, funcionan como tales, mientras el regente se encuentre presente, pues es él, quien debe supervisar la labor técnica profesional que se realiza.

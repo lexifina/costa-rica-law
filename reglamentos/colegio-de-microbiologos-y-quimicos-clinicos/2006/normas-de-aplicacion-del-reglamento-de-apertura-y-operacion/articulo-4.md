@@ -1,0 +1,2 @@
+Artículo 4º—Cumplidos los requisitos anteriores, la Fiscalía procederá a realizar una visita de inspección al establecimiento, con el fin de corroborar in situ, el cumplimiento de la información suministrada por el interesado. En caso de no corresponder lo informado con lo hallado en el lugar, se prevendrá de una vez al interesado su cumplimiento, otorgándole al efecto un plazo que no podrá ser menor a los diez días hábiles.
+A los interesados que no cumplieren en el plazo dado, podrá declarárseles de oficio o a gestión de parte, sin derecho al correspondiente trámite.
