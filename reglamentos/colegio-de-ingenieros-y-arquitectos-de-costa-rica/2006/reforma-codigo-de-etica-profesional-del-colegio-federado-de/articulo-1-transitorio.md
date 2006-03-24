@@ -1,0 +1,1 @@
+Transitorio I.—En todos los procesos disciplinarios que al momento de entrada en vigencia de esta reforma, se encuentren pendientes de rendir el informe final, los tribunales de honor deberán tomar en consideración lo estipulado en esta reforma y hacer la respectiva recomendación a la Junta Directiva General.
