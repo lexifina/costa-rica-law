@@ -1,0 +1,1 @@
+Artículo 21.—La comunicación de resultados se deberá hacer por escrito durante el desarrollo de la auditoría o estudio especial de auditoría, mediante memorando, oficio o informe parcial, y al finalizar la labor de campo, por medio del informe final, cuando el caso lo amerite.
