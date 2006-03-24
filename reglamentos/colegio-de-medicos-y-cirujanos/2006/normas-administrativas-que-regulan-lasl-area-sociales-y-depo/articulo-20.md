@@ -1,0 +1,1 @@
+Artículo 20.—En caso de que los usuarios de las instalaciones, edificios y terrenos del Colegio, incurran en faltas de orden, disciplina, moralidad y daños, corresponde al Comité Deportivo realizar la investigación y trasladar el resultado a la Junta de Gobierno para que lo corresponda.
