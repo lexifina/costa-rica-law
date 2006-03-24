@@ -1,0 +1,1 @@
+Artículo 5º—Todo atleta que solicite una beca de estudios deberá suscribir un contrato con el Comité donde se compromete a participar con sus equipos representativos durante el periodo que cubra la beca aprobada y hasta dos años después de haber expirado la misma. En caso de menor de edad, dicho contrato debe ser suscrito por el padre o persona legalmente encargada.

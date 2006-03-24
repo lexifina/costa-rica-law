@@ -1,0 +1,1 @@
+Artículo 7º—El Comité podrá interrumpir la beca de estudios por indisponibilidad de recursos o por incumplimiento de los requisitos que este Reglamento establece para el atleta. El otorgamiento de una beca por un periodo determinado, no significa que el Comité asuma responsabilidad alguna con su continuidad.

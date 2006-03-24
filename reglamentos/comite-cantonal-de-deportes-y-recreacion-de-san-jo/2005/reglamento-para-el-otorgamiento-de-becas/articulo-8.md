@@ -1,0 +1,2 @@
+Artículo 8º—Se extiende el beneficio de becas a los atletas del cantón, empleados y funcionarios del Comité Cantonal y órganos adscritos.
+Este Reglamento fue aprobado por la Junta Directiva del Comité Cantonal de Deportes y Recreación de San José, en Sesión Ordinaria Nº 02-2001, artículo VII, acuerdo 1, y modificado en la sesión extraordinaria Nº 07-2005, artículo III, acuerdo 1 del 5 de setiembre de 2005.
