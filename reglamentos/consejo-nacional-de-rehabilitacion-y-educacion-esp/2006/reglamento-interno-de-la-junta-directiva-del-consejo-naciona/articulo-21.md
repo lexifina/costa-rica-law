@@ -1,0 +1,1 @@
+Artículo 21.—El Presidente, el Vicepresidente y el Secretario, serán electos por mayoría absoluta en la última sesión ordinaria de cada año, y desempeñarán sus cargos por un periodo de un año, pudiendo ser reelectos hasta por tres periodos consecutivos.

@@ -1,0 +1,1 @@
+Artículo 30.—En caso de urgencia la convocatoria la realizará el Presidente de la Junta Directiva o al menos dos miembros del Comité Directivo. En todo caso las razones de urgencia deberán consignarse en el acta correspondiente.

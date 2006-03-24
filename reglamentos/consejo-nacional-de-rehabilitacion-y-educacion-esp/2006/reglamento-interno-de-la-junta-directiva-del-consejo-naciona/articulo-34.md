@@ -1,0 +1,1 @@
+Artículo 34.—De los acuerdos. Los acuerdos de la Junta Directiva se tomarán por mayoría absoluta de los votos de los miembros presentes. Se exceptúa de esta medida el nombramiento y remoción del Director Ejecutivo, para lo cual se requerirá de un mínimo de ocho votos. Se exceptúa además el caso establecido en los artículos 43 del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 17.—Se aplicará el régimen de responsabilidad previsto en la Ley General de la Administración Pública a aquellos delegados que en ocasión de su cargo hayan actuado con dolo o culpa grave en el desempeño de sus deberes.

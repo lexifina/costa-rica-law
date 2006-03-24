@@ -1,0 +1,1 @@
+Artículo 49.—El delegado estará sujeto a responsabilidad disciplinaria por sus acciones contrarias al ordenamiento jurídico. Para determinar la sanción disciplinaria aplicable, necesariamente deberá iniciarse un procedimiento ordinario administrativo en el cual se cumpla con el debido proceso y se brinde al delegado la oportunidad de ejercer efectivamente el derecho de defensa.

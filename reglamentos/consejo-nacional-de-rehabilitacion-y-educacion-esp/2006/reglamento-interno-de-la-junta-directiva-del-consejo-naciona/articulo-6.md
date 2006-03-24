@@ -1,0 +1,1 @@
+Artículo 6º—El delegado suplente asumirá temporalmente la representación del miembro cuando el delegado titular se vea imposibilitado para asistir a una sesión. El suplente en ejercicio tendrá los mismos derechos y funciones del titular.
