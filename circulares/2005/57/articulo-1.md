@@ -29,3 +29,8 @@ Como medida excepcional y mientras no entre a regir el reglamento de inopias que
 4. Las autorizaciones de inscripciones a que se refieren los apartados anteriores, tendrán una vigencia transitoria máxima de un año”.
 Por lo extenso de su contenido y tipo de formato, ver Boletín Judicial N° 5 del 6 de enero del 2006.
 San José, 16 de diciembre del 2005.
+(NOTA DE SINALEVI: Por circular N° 16 del 27 de marzo de 2006, se amplia la lista Oficial de Peritos, así como exclusiones y correcciones de números telefónicos de la lista general)
+NOTA DE SINALEVI: Por circular N° 20 del 18 de abril de 2006, se excluye por un período de 3 meses de la Lista Oficial de Peritos del Poder Judicial a:
+Moya Mena Franklin E. | Telfax 661-2102 Tel 661-0895 Cel 381-9168 | Lic. Arquitectura
+Así mismo se excluye por un período de 6 meses de la Lista Oficial de Peritos del Poder Judicial a:
+Rivas Li Luis F. | Tel 665-0367 Fax 666-5233 | Economista

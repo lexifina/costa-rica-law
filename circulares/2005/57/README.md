@@ -13,3 +13,4 @@ Lista Oficial de Peritos (En el Boletín Judicial N° 191 del 5 de octubre del 2
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-06 | la propia norma |
+| 2 | 2006-03-27 | Circular 16 (2006-03-27) |
