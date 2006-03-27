@@ -14,3 +14,4 @@ Reglamento Corporativo para la Asignación, Uso y Control de equipos de telefon�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-12-10 | la propia norma |
+| 2 | 2006-03-27 | Reglamento 4382 (2006-03-27) |
