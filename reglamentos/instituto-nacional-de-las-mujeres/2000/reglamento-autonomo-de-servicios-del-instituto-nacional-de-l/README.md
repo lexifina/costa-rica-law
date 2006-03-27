@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicios del Instituto Nacional de la Mujer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-12-06 | la propia norma |
+| 2 | 2006-03-27 | Reglamento 8 (2006-03-27) |
