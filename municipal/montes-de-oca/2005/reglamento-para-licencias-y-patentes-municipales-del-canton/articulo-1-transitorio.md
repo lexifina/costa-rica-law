@@ -1,0 +1,1 @@
+Transitorio I.—Toda solicitud relativa al otorgamiento de patentes y licencias municipales, que haya sido presentada antes de la publicación y entrada en vigencia de este Reglamento, será tramitada de acuerdo a las normas vigentes; pero una vez resueltas y comunicadas a los interesados; será de aplicación obligatoria las disposiciones del presente Reglamento.

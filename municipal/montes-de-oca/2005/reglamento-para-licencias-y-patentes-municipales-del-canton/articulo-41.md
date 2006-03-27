@@ -1,0 +1,1 @@
+Artículo 41.—Impuesto a los espectáculos públicos. Cuando las actividades lucrativas se refieren a espectáculos públicos, serán aplicables los alcances del Reglamento para el Cobro de los Impuesto de Espectáculos Públicos, publicado en La Gaceta Nº 12 del 19/01/1999.

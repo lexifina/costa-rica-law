@@ -1,0 +1,2 @@
+Artículo 45.—Vigencia del impuesto. El impuesto de patentes tendrá vigencia para el ciclo fiscal anual, y será revisado anualmente, a partir de la información suministrada a través de la Declaración Jurada para el Impuesto a las Patentes.
+Además, el impuesto se pagará durante todo el tiempo en que se haya ejercido la actividad lucrativa, o por el tiempo en que se haya poseído la licencia, aunque la actividad no se haya realizado.

@@ -1,0 +1,1 @@
+Artículo 80.—Regulaciones aplicables a los anuncios y rótulos. Para la licencia y cobro por la instalación de los anuncios y rótulos, se aplica las disposiciones definidas en el Reglamento de Anuncios y Rótulos de la Municipalidad de Montes de Oca publicado en el Diario Oficial La Gaceta Nº 98 del 23 de mayo del 2001.

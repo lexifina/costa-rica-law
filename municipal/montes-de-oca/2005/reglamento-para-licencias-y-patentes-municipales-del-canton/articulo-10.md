@@ -1,0 +1,1 @@
+Artículo 10.—Expedientes. La Municipalidad se obliga a abrir y mantener en orden y debidamente foliado y custodiado un expediente con toda la información y atestados relacionados con todas las solicitudes de patentes que tramite, sea que se aprueben o no.

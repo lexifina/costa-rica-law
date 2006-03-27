@@ -1,0 +1,1 @@
+Artículo 13.—Obligación de los funcionarios. Los funcionarios municipales responsables de la aplicación de este Reglamento, en caso de incumplimiento serán merecedores de las sanciones disciplinarias que correspondan según la normativa aplicable.

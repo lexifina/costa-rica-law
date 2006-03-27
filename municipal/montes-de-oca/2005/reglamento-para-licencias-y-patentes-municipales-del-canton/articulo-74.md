@@ -1,0 +1,1 @@
+Artículo 74.—Notificación de la aplicación de sanciones. Una vez cumplido el Debido Proceso a favor del Administrado, la suspensión o cancelación de licencias o patentes comerciales se realizará mediante resolución administrativa motivada, la que será debidamente notificada al Patentado.

@@ -1,0 +1,1 @@
+Transitorio IV.—Los establecimientos comerciales que ofrezcan o desarrollen actividades relacionadas con karaokes, discomóviles, música en vivo y similares, sea que cuenten o no, con el respectivo permiso de funcionamiento del Ministerio de Salud, se les concede un plazo de noventa días para que cumplan con los requisitos que establece el artículo 78 del presente Reglamento.

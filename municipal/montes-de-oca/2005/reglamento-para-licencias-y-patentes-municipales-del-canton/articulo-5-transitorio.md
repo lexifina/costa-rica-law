@@ -1,0 +1,1 @@
+Transitorio V.—Se otorga un plazo de un año a todos los patentados del cantón para que cumplan con lo indicado en el artículo 20 de este Reglamento, en cuanto a condiciones de operación. Una vez transcurrido el plazo, se dará inicio al debido proceso para la aplicación las sanciones que corresponda.

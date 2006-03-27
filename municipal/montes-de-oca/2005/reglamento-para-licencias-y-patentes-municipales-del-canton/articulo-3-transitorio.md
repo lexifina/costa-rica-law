@@ -1,0 +1,1 @@
+Transitorio III.—Los establecimientos cuya actividad lucrativa sea recalificada, deberán cumplir con los requisitos y condiciones propios de tal actividad; caso contrario, se procederá con la aplicación de las sanciones que sean aplicables.

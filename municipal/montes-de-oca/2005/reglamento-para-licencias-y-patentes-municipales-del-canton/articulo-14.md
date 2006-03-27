@@ -1,0 +1,1 @@
+Artículo 14.—Confidencialidad de la información. La información suministrada a la Municipalidad por los contribuyentes del impuesto a las patentes, tiene el carácter de confidencial a que se refiere el artículo 117 del Código de Normas y Procedimientos Tributarios.

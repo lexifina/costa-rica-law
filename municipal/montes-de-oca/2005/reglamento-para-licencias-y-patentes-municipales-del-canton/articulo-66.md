@@ -1,0 +1,2 @@
+Artículo 66.—Multa del 10% del impuesto anual de patentes. De acuerdo a lo establecido en el artículo 13 de la Ley Nº 7462 serán sancionadas con una multa del 10% del impuesto anual de patentes pagado durante el período inmediato anterior a todo aquel patentado que no presente la declaración jurada para la determinación del Impuesto a las Patentes Municipales dentro del término establecido en la ley y este Reglamento.
+Para los casos de las patentes de licores aplicará lo que establece la Ley Nº 7881 actualmente vigente.

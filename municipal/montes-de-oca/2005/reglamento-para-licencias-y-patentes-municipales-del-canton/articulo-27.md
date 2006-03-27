@@ -1,0 +1,2 @@
+Artículo 27.—Recurso de revocatoria. La resolución que deniegue o apruebe la solicitud de permiso tendrá Recurso de Revocatoria dentro del quinto día, después de notificado, para ante la instancia que emitió la resolución. Deberá presentarse en escrito motivado en que consten los antecedentes del caso, los hechos, los argumentos, criterios, opiniones y fundamentos legales y probatorios del recurso.
+La resolución que resuelva este recurso deberá contener los mismos requisitos formales que se describen en el artículo 26 anterior de este Reglamento.

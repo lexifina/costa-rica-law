@@ -1,0 +1,1 @@
+Artículo 75.—Otras sanciones. Lo dispuesto en los artículos previos de este capítulo no limita la facultad de la Municipalidad de aplicar otras sanciones establecidas en otras normas del Ordenamiento Jurídico vigente, en especial aquellas que determina el Código de Normas y Procedimientos Tributarios y el Código Penal.

@@ -1,0 +1,3 @@
+Artículo 55.—Reposición de Títulos de Licencia Comercial. En razón del deterioro, extravío o destrucción del Titulo de Licencia Comercial, los patentados podrán solicitar la emisión de un nuevo título ante el Departamento de Gestión Tributaria, para lo cual aportarán lo siguientes documentos:
+a) Solicitud de emisión de nuevo Título de Licencia Comercial por deterioro del anterior, extravío o destrucción del mismo, señalándose en dicha nota lugar para recibir notificaciones. En el caso de que se solicite la emisión por deterioro del título anterior, debe adjuntarse a la solicitud el antiguo título sujeto a reposición.
+b) Cédula o personería jurídica vigente según corresponda.

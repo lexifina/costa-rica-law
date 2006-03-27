@@ -1,0 +1,15 @@
+Artículo 78.—Regulaciones especiales aplicables a karaokes, discomóviles, música en vivo y similares. Se definen las siguientes regulaciones especiales y excepcionales para las actividades de karaoke, discomóvil, música en vivo y similares:
+a) Toda actividad social con karaoke, música en vivo, discomóviles o similares que se programe en establecimientos comerciales, deberá contar con el correspondiente permiso municipal para su realización.
+b) Para presentar la solicitud de permiso, se deberá obtener de previo la autorización del Ministerio de Salud.
+c) Las solicitudes de permiso para la realización de dichas actividades en locales comerciales, deberán presentarse cumpliendo con los requisitos de los artículos 17 y 19 del presente Reglamento, con no menos de diez días hábiles de antelación a la realización de la actividad.
+d) La solicitud debe tramitarse ante Gestión Tributaria, que tramitará ante el Concejo la respectiva aprobación o rechazo de acuerdo a lo que ésta materia dispone en los artículos 80 y 81 del Código Municipal.
+e) Se establece que en ningún caso la Administración autorizará el desarrollo de actividades de karaoke, más allá de las 11:00 p. m., por lo que con ésta hora como límite deberán cesar completamente todas las actividades de este tipo. En virtud de que la Corporación Municipal debe actuar con sentido restrictivo, resguardando el interés público.
+f) La actividad con karaoke deberá respetar en todo momento la normativa que establece la Ley General de Salud, específicamente en lo referente a los niveles autorizados de sonido y confinamiento de ruido.
+g) Para la solicitud de realización de las actividades citadas, los interesados deberán cumplir con los siguientes requisitos:
+i. Permiso del Ministerio de Salud, para realizar la actividad respectiva.
+ii. Nota de solicitud a máquina o a mano en letra de molde, dirigida al Departamento de Gestión Tributaria, en la que se indique la fecha, hora, lugar del acto y nombre del patentado.
+iii. Nombre y firma del patentado del negocio, autenticado por un abogado.
+h) Las violaciones al presente Reglamento acarrearán las sanciones establecidas en el artículo 81 bis del Código Municipal y en este Reglamento.
+i) Por la celebración de actividades con karaoke, discomóvil, música en vivo o similares, se deberá pagar el impuesto sobre espectáculos públicos cuando aquellas se enmarquen en la definición que del hecho generador de la obligación hace el artículo 1º del Reglamento para la aplicación del Impuesto sobre Espectáculos Públicos, Ley Nº 6844 del 11 de enero de 1983.
+j) Si un patentado cuenta con su propio sistema de karaoke, discomóvil, música en vivo o similares, deberá ajustarse a lo dispuesto por el artículo 79 del Código Municipal y todas las disposiciones aplicables del presente Reglamento.
+k) Las personas físicas o jurídicas que se dediquen a brindar servicio de karaoke, discomóviles, música en vivo o similares a los patentados de negocios en este cantón deberán contar con una licencia Municipal de acuerdo con las disposiciones del artículo 79 del Código Municipal y los alcances de este Reglamento.

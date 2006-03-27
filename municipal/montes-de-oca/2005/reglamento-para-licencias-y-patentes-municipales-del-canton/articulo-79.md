@@ -1,0 +1,1 @@
+Artículo 79.—Regulaciones para ventas ambulantes y estacionarias. En estos casos se aplica las disposiciones del Reglamento sobre Ventas Ambulantes y Estacionarias, publicado en La Gaceta Nº 243 del 13/12/2004, el cual es complementado por el presente Reglamento, en todos aquellos aspectos no regulados por el Reglamento de Ventas Ambulantes y Estacionarias.
