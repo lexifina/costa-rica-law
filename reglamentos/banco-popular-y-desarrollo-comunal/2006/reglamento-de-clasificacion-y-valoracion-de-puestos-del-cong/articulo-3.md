@@ -1,0 +1,1 @@
+Artículo 3º—La Unidad de Recursos Humanos respectiva es responsable de la administración de la Clasificación y Valoración de Puestos del Conglomerado del Banco Popular y tendrá la competencia para analizar y recomendar a la Gerencia General respectiva, la implantación de mejoras técnicas que contribuyan a la eficiencia y eficacia del sistema.

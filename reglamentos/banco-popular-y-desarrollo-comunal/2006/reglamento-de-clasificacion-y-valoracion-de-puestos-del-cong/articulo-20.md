@@ -1,0 +1,1 @@
+Artículo 20.—Este Reglamento entrará en vigencia un mes después de su publicación en el Diario Oficial y deroga el Reglamento de Clasificación y Valoración de Puestos del Banco Popular aprobado por la Junta Directiva Nacional en Sesión No. 4270 del 14 de enero del 2005 y publicado en La Gaceta Nº 18 del 26 de enero del 2005.”
