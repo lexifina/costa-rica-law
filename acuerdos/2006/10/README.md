@@ -14,3 +14,4 @@ Declara de interés cultural el DVD "Imágenes y Sonidos de Costa Rica"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-20 | la propia norma |
+| 2 | 2006-03-27 | Acuerdo 22 (2006-03-27) |
