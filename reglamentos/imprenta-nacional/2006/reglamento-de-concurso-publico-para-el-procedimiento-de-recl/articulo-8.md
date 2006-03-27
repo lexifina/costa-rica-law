@@ -1,0 +1,1 @@
+Artículo 8º—De la declaración jurada. Cada concursante debe aportar -con su oferta- una declaración jurada en la que se acredite la ausencia de impedimentos legales, administrativos y de incompatibilidad para ocupar los puestos de Auditor o Subauditor Interno.

@@ -1,0 +1,1 @@
+Artículo 3º—Requisitos del puesto. Los requisitos mínimos para ocupar los puestos de Auditor o Subauditor Interno, son los definidos en los “Lineamientos para la descripción de las funciones y requisitos de los puestos de Auditor y Subauditor Internos”, emitidos por la Contraloría General de la República, publicados en La Gaceta Nº 205 del 24 de octubre del 2003.

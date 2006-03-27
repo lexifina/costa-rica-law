@@ -1,0 +1,1 @@
+Artículo 18.—Del período de prueba. Una vez nombrado el Auditor o Subauditor Interno, será sujeto a un período de prueba de tres meses. Concluido el período de prueba la Junta Administrativa de la Imprenta Nacional procederá a comunicar a la Contraloría General de la República su conformidad o disconformidad con el desempeño del funcionario nombrado.

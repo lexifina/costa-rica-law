@@ -1,0 +1,1 @@
+Artículo 16.—Del nombramiento del Auditor o Subauditor Interno. Recibida la aprobación por parte de la Contraloría, la comisión competente del procedimiento procederá con cinco días de anticipación a convocar por escrito a entrevista a los integrantes de la terna, a efectos de que la Junta Administrativa de la Imprenta Nacional escoja al candidato más idóneo.
