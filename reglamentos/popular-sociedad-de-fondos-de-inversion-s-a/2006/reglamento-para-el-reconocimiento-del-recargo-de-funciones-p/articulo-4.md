@@ -1,0 +1,1 @@
+Artículo 4º—El recargo de funciones se reconocerá salarialmente al funcionario a quien se recarga, pagándole la diferencia de salario existente entre el salario propio y el salario de su superior por el período del recargo, siempre que la ausencia del superior sea mayor a tres días hábiles.

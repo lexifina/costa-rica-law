@@ -1,0 +1,1 @@
+Artículo 3º—En el evento en el que el trabajo del supervisor sea asignado parcialmente a varios funcionarios, no procederá el recargo y consecuentemente no existirá ningún reconocimiento salarial por el desempeño de las funciones encargadas.
