@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE VÁZQUEZ DE CORONADO
+Acuerdo N° 2006-203-021.—La Municipalidad de Vázquez de Coronado, se adiciona al Manual de Valores Base Unitarios por Tipología Constructiva, publicado en La Gaceta N° 243, Alcance N° 48, del 16 de diciembre del 2005. Acuerdo, cuenta con siete votos afirmativos.
+Acuerdo Nº 2006-203-022.—La Municipalidad de Vázquez de Coronado, comunica a los sujetos pasivos del impuesto sobre bienes inmuebles del cantón, que en cumplimiento del artículo Nº 12 de la Ley de Impuesto sobre Bienes Inmuebles Nº 7509 y sus reformas y el artículo 24 del Reglamento, que en La Gaceta Nº 243 Alcance Nº 48 del 16 de diciembre del 2005, fue publicado por parte del Órgano de Normalización Técnica de la Dirección General de Tributación del Ministerio de Hacienda, el “Manual de Valores Base Unitarios por Tipología Constructiva”, el cual será aplicado por la Municipalidad a partir de la fecha de la presente publicación en las valoraciones de las construcciones existentes en los respectivos inmuebles.
+Publíquese en el Diario Oficial La Gaceta. Acuerdo cuenta con siete votos afirmativos. Acuerdo definitivamente aprobado.
+Tomado en la sesión ordinaria Nº 203-2006 del lunes 6 de marzo del 2006.
+21 de marzo del 2006.
