@@ -1,0 +1,1 @@
+43.—Modificar el Reglamento de Vialidad, para establecer que el derecho de vía mínimo de las servidumbres urbanas y rurales será el que señala el Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones.

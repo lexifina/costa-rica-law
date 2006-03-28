@@ -1,0 +1,2 @@
+15.—Modificar el artículo 45 para que se lea de la siguiente forma:
+“Artículo 45.—Para el caso de fraccionamientos en la Zona Rural Concentrada, la Municipalidad otorgará el Certificado de Uso Conforme del Suelo sólo en predios que cumplan con las regulaciones mínimas establecidas en el Plan Regulador y complementariamente con las normas establecidas en el Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones.”

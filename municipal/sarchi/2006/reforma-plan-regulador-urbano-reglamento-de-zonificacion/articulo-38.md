@@ -1,0 +1,1 @@
+38.—Modificar la lámina de zonificación de Sarchí Norte, a fin de incorporar los terrenos adquiridos por la asociación ASOTROJAS como zona de expansión urbana, la cual se regirá por los requisitos ya establecidos para esta zona. La modificación se observa en la lámina 20b del anexo 2.

@@ -1,0 +1,2 @@
+45.—Para el caso del uso 109 Mueblería y/o Colchonería (fabricación), aclarar que incluye la fabricación de espumas y colchones; de esta forma se leerá el inciso 109 del artículo 47 de la siguiente forma:
+“109. Mueblería, Colchonería, Espumas (fabricación).” Asimismo, incluir este uso (109) como permitido para la Zona Mixta Residencial Comercial (ZMRC), siempre y cuando cumpla con un área mínima de 1000 m2, frente mínimo de lote de 15 m, retiro frontal de 3 m, retiros laterales de 3 m, retiro posterior de 3 m, altura máxima de 12 m y cobertura máxima del 50%.

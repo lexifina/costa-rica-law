@@ -1,0 +1,1 @@
+33.—Corregir los límites cantonales indicados en el Plan Regulador para el distrito Rodríguez, de acuerdo a la delimitación oficial comunicada por el Instituto Geográfico Nacional mediante las hojas cartográficas 1:50000. Las modificaciones se observan en las láminas 24ª, 24b y 24c del anexo 3.

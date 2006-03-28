@@ -1,0 +1,1 @@
+48.—Ampliar los límites del cuadrante urbano de la ciudad de Sarchí Norte, hasta alcanzar la zona de protección del río Trojas y el límite con el Centro Recreativo. La propuesta se observa en la lámina 20b del anexo 2.

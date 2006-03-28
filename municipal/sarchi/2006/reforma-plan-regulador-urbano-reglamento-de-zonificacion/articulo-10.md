@@ -1,0 +1,2 @@
+10.—En el artículo 31, modificar lo señalado con respecto a la vigencia de los permisos o certificados que otorga la DDU de conformidad con la Resolución dada al respecto por la Procuraduría General de la República. El artículo se leerá de la siguiente forma:
+“…Artículo 31.—Los permisos otorgados por la DDU establecen la condición de la actividad o proyecto dado al momento en que se ejecuta o realiza el trámite respectivo y no actúa en detrimento de las modificaciones y/o actualizaciones que puedan realizarse al Plan Regulador.”

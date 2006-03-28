@@ -1,0 +1,2 @@
+9º—En el artículo 27, aclarar que la presentación del anteproyecto es optativa y que su visto bueno no otorga o genera ningún derecho. El artículo se leerá de la siguiente forma:
+“…Artículo 27.—Para el caso de nuevas construcciones o proyectos, el interesado podrá presentar de forma optativa, anteproyectos para su valoración por parte de la DDU, no obstante, dicha presentación no otorga o genera ningún derecho para el administrado.”

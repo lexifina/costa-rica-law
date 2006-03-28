@@ -1,0 +1,1 @@
+19.—En la Zona Mixta Residencial Comercial (ZMRC) establecer como área mínima de lote residencial 200 m2, con 8 m de frente mínimo y retiro posterior de 3 m. En los usos comerciales y de servicios un frente mínimo de 8 m, retiro frontal de 3 m, o 6 m en lotes mayores a 300 m2, y cobertura máxima de 75%.

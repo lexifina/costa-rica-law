@@ -1,0 +1,2 @@
+24.—Modificar el artículo 70 por ser discriminatorio. Se leerá de la siguiente forma:
+“Los usos permitidos de tipo residencial en la Zona Rural Concentrada que se vayan a desarrollar como parte de proyectos de fraccionamiento, deberán cumplir con las disposiciones del Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones en cuanto a la cesión de áreas públicas, así como los todos los requisitos que señale el Plan Regulador y otra legislación vigente que no se le oponga.”.

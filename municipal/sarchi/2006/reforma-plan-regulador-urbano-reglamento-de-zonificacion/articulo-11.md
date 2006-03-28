@@ -1,0 +1,2 @@
+11.—En el artículo 32, modificar lo señalado con respecto a la vigencia de los permisos o certificados que otorga la DDU de conformidad con la Resolución dada al respecto por la Procuraduría General de la República.
+“…Artículo 32.—En el caso de los proyectos tramitados y no ejecutados antes de la entrada en vigencia del Plan Regulador, deberán tramitar la renovación correspondiente a fin de ajustarse a las normas del Plan Regulador.”

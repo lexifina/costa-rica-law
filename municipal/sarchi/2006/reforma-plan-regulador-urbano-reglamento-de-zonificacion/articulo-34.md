@@ -1,0 +1,1 @@
+34.—Ampliar el alineamiento de la Calle Coopeutava y consecuentemente de la Zona Rural Concentrada a ambos lados, con base en la comprobación de campo realizada por la Dirección de Desarrollo Urbano y que se muestra en el anexo 4.
