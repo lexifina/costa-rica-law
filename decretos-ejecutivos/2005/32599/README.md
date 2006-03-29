@@ -14,3 +14,4 @@ Reglamento del Colegio de Periodistas de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-19 | la propia norma |
+| 2 | 2006-03-29 | Decreto Ejecutivo 33092 (2006-03-29) |
