@@ -1,0 +1,3 @@
+Artículo 16.—Trámite de la denuncia. Recibida la denuncia o cumplido el trámite previsto en el artículo anterior, la Comisión Investigadora dará traslado de ésta al denunciado (a), señalándole hora y fecha para una comparecencia con al menos 15 días hábiles de antelación, en la cual ejerza su defensa y aporte todas las pruebas de descargo pertinentes.
+En dicha comparecencia se recibirá la prueba ofrecida por las partes y la que estime oportuna la Comisión Investigadora, para determinar la verdad real de los hechos. Cualquiera de las partes podrá hacerse acompañar de un abogado si así lo considera necesario.
+La Comisión Investigadora podrá de oficio o a petición de parte, solicitar las pruebas que estimen necesarias para una mejor resolución del asunto.

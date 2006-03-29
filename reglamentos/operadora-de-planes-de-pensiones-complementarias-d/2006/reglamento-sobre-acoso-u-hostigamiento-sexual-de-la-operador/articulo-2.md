@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de Aplicación. El presente Reglamento regirá para todos (as) los (as) colaboradores (as) de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal Sociedad Anónima, en sus relaciones de trabajo en el ámbito interno o servicio con oferentes, proveedores, clientes u otros terceros.

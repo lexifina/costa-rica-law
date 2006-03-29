@@ -1,0 +1,2 @@
+Artículo 19.—Dictado del acto final. Para emitir y comunicar a las partes la resolución final la Gerencia General o el órgano competente contarán con un plazo no mayor de ocho días hábiles, contados a partir del recibo del expediente.
+El acto final recaído fuera de plazo no causa nulidad y será válido para todo efecto legal, no obstante genera la responsabilidad disciplinaria de la Comisión Investigadora, de la Gerencia General o el órgano competente según corresponda.

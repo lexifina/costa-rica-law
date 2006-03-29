@@ -1,0 +1,1 @@
+Artículo 15.—Ratificación, Aclaración y Adición de la Denuncia. Cuando lo estime necesario, la Comisión Investigadora podrá solicitar la comparecencia del denunciante para que ratifique, aclare o amplíe la denuncia. En caso de que la víctima no sea la denunciante, la ratificación de la denuncia será obligatoria.

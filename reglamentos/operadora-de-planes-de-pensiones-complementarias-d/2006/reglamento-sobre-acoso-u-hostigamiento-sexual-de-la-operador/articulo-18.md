@@ -1,0 +1,3 @@
+Artículo 18.—Plazo para instruir y concluir la investigación administrativa. El término para instruir y concluir la investigación administrativa no podrá exceder de dos meses calendario contados a partir del momento en que la Comisión Investigadora recibe la denuncia. Dicho plazo podrá ser prorrogado por un plazo igual si la complejidad del caso así lo requiere y por una única vez.
+Dentro del término antes citado, la Comisión Investigadora deberá remitir el Proyecto de Resolución Final a la Gerencia General el cual contendrá el “Por Tanto” respectivo.
+Tratándose de las excepciones a que hace referencia el inciso b) del artículo 14 de este Reglamento deberá remitirse dentro de ese mismo plazo el Proyecto de Resolución al órgano competente para dictar el acto final.
