@@ -1,4 +1,7 @@
-CAPITULO VI*
-De la Junta Directiva
-*(Así corrida su numeración por el artículo 3º de Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del anterior capítulo III al VI actual.)
-Artículo 96.—(Derogado Art. 73 original por Artículo 1° del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002 y corrida su numeración por el artículo 3º de la mismo decreto , que lo traspasó del antiguo 73 al 96 actual.
+Artículo 96.—De la emisión de votos. Cuando el representante acreditado se haga presente al Centro de Votación para emitir su voto, se seguirá el siguiente procedimiento:
+1. Verificar que está acreditado por un ente que figura en el respectivo padrón electoral.
+2. Los miembros de la Junta Escrutadora de Votos entregarán al representante dos papeletas debidamente firmadas por todos sus miembros, una para la elección de Delegados al Congreso y otra para terna de candidatos a la Junta Directiva de ICAFE.
+3. Los representantes votarán en forma secreta en las papeletas marcando con una X en la casilla correspondiente. En la papeleta para elegir Delegados al Congreso, debe votar hasta por la cantidad de Delegados que haya que elegir en representación del correspondiente sector. En la papeleta para elegir terna de candidatos a Junta Directiva debe votar hasta por tres de los candidatos postulados.
+4. Los votos serán depositados en cajas destinadas al efecto, las cuales estarán debidamente identificadas.
+Al ser las dieciocho horas, se cerrará el centro electoral, indiferentemente de que hayan o no personas afuera del recinto, procediendo solamente a aceptar el voto de la persona que en ese momento se encontrara dentro del recinto en proceso de votación.
+(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo que lo traspasó del antiguo 73 al 96 actual y posteriormente reformado por el artículo 1 del decreto ejecutivo N°33062 del 29 de marzo del 2006).

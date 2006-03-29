@@ -1,2 +1,5 @@
-Artículo 112.—El Director Ejecutivo sera el Jefe superior de todas las dependencias del Instituto del Café. excepto de la Auditoría, y el responsable ante la Junta Directiva del eficiente y correcto funcionamiento de la Institución, sin perjuicio de la responsabilidad civil o penal que le corresponda. El Subdirector Ejecutivo será el Subjefe superior y actuara bajo la autoridad jerárquica del Director.
-(Así corrida su numeración por el artículo 3º de Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 89 al 112.)
+CAPÍTULO VI
+De la Dirección Ejecutiva
+Artículo 112.—La Junta Directiva designará con el voto de no menos de cinco de sus miembros a un Director Ejecutivo, en quien delegara la administración del Instituto del Café. Designará también en la misma forma al Subdirector Ejecutivo.
+Estos funcionarios deberán reunir los mismos requisitos exigidos a los miembros de la Junta Directiva, en cuanto les fuere racionalmente aplicable.
+(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 89 al 112 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).

@@ -1,2 +1,6 @@
-Artículo 100.—La separación de cualquiera de los miembros de la Junta Directiva, no lo libra de las responsabilidades legales en que pudiere haber incurrido, durante la gestión, por incumplimiento de alguna de las disposiciones de las leyes, decretos o reglamentos aplicables al Instituto del Café.
-(Así corrida su numeración por el artículo 3º del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 77 al 100).
+CAPÍTULO V
+De la Junta Directiva
+Artículo 100.—Para ser parte de una tema será necesario:
+a) Tener relación directa con la actividad cafetalera que lo propone.
+b) Ser de reconocida solvencia moral.
+(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 77 al 100 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).

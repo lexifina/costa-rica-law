@@ -1,4 +1,2 @@
-Artículo 98.—Para ser parte de una tema será necesario:
-a) Tener relación directa con la actividad cafetalera que lo propone.
-b) Ser de reconocida solvencia moral.
-(Así corrida su numeración por el artículo 3º del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 75 al 98).
+Artículo 98.—Del conteo final de votos. Una vez en el ICAFE, la Dirección Ejecutiva, junto con la Jefatura de la Unidad de Asuntos Jurídicos, el día hábil posterior a la realización de la respectiva asamblea, procederá al recuento de los votos, emitiendo un acta final de resultados. Este resultado final será publicado mediante circular al sector cafetalero, y serán expuestos en las Oficinas Centrales y Oficinas Regionales del ICAFE, siendo a su vez comunicado a las empresas beneficiadoras a fin de que los expongan en las diferentes plantas de beneficio. La Auditoria Interna del ICAFE fiscalizará conforme a sus potestades el conteo final.
+(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 75 al 98 actual y posteriormente reformado por el artículo 1 del decreto ejecutivo N°33062 del 29 de marzo del 2006).

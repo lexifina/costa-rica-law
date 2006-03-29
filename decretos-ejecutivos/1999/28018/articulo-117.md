@@ -1,5 +1,15 @@
-Artículo 117.—La Unidad de Auditoría ejecutará sus labores de acuerdo con los siguientes lineamientos:
-a) Plan de Auditoría.
-b) Estudios y evaluación del Sistema de Control Interno.
-c) Programa de Auditoría.
-(Así corrida su numeración por el artículo 3º de Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 94 al 117.)
+Artículo 117.—La Unidad de Auditoría tendrá las siguientes funciones y atribuciones, respecto de vigilar los bienes y fiscalizar las operaciones económicas del Instituto del Café, debiendo informar a la Junta Directiva, los resultados obtenidos:
+a) Revisar en forma posterior las operaciones contables, financieras, administrativas y de otra naturaleza que considere pertinentes y formular conclusiones y recomendaciones:
+b) Informar de los acuerdos y resoluciones de la Junta Directiva que no hayan sido pronta y fielmente cumplidos;
+c) Verificar que la marcha general de las actividades y los asuntos ejecutivos y administrativos del Instituto se ajusten a las leyes y reglamentos correspondientes e informar inmediatamente a la Junta Directiva, cuando detecte alguna irregularidad;
+d) Refrendar toda constancia emitida por el Instituto del Café, que por su naturaleza requiera de la intervención de la Auditoría;
+e) Revisar y evaluar la eficiencia con que se han utilizado los recursos institucionales;
+f) Evaluar el grado de eficacia y eficiencia de la organización y dirección de las diferentes dependencias de la Institución en cuanto al cumplimiento de los programas y objetivos preestablecidos;
+g) Practicar auditorías y estudios especiales de auditoría y asesorar en la materia de su especialidad a la Junta Directiva, a las diferentes unidades de la Institución y demás entes del sector cafetalero;
+h) Verificar que los funcionarios del Instituto del Café que manejen o administren bienes, recursos o valores, propiedad de la Institución, tengan al día las finanzas de ley;
+i) Verificar la existencia de bienes, valores y demás activos del Instituto del Café;
+j) Ejercer las demás funciones y atribuciones que le corresponden, de conformidad con las leyes, decretos ejecutivos, reglamentos y otras disposiciones aplicables al Instituto del Café y aquellas otras que le fije la Junta Directiva; y
+k) Ejecutar el programa de asesoría e inspección de personas físicas o jurídicas del sector cafetalero, conforme el artículo 121 de la Ley.
+Los funcionarios de la Unidad de Auditoría desempeñarán sus labores por delegación del Auditor y no como atribución propia del cargo, teniendo libre acceso y en cualquier momento, a todos loslibros, archivos, valores y documentos del Instituto, así como a otras fuentes de información relacionadas con su actividad; solicitarán de funcionarios y empleados de la Institución, de cualquier nivel jerárquico, la colaboración, asesoría y facilidades necesarias que demande el ejercicio de la labor de Auditoría. La Unidad de Auditoría elaborará un programa de seguimiento para las recomendaciones que haya formulado a la Junta Directiva y a la Dirección Ejecutiva, a través de memorandos, oficios e informes.
+La Dirección Ejecutiva tendrá un plazo de 15 días hábiles para remitir a la Auditoría las observaciones que estime necesarias, de no hacerlo, las recomendaciones se considerarán acogidas. En caso de formales discrepancias o incumplimiento, corresponderá a la Junta Directiva dilucidar la divergencia.
+(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 94 al 117 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).

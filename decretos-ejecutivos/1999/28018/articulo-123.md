@@ -1,2 +1,2 @@
-Artículo 123.—A más tardar, dentro de los primeros seis meses de cada año. el Instituto del Café publicará una memoria anual en la que dará a conocer su situación económica y las operaciones y labores que hubiere efectuado en el curso del período anterior.
-(Así corrida su numeración por el artículo 3º de Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 100 al 123.)
+Artículo 123.—Los balances y estados del Instituto deberán ser firmados por el Director Ejecutivo y el Gerente de Administración y Finanzas, siendo solidariamente responsables por la exactitud y corrección de esos documentos.
+(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 100 al 123 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).

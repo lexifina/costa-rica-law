@@ -20,3 +20,4 @@ Reglamento a la Ley de Relaciones entre Productores, Beneficiadores y Exportador
 | 5 | 2002-05-13 | Decreto Ejecutivo 30474 (2002-05-13) |
 | 6 | 2004-12-02 | Decreto Ejecutivo 32183 (2004-12-02) |
 | 7 | 2006-02-15 | SINALEVI (sin norma nombrada) |
+| 8 | 2006-03-29 | Decreto Ejecutivo 33062 (2006-03-29) |

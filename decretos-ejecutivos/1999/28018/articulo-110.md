@@ -1,6 +1,3 @@
-CAPITULO VII*
-De la Dirección Ejecutiva
-*(Así corrida su numeración por el artículo 3º del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del anterior capítulo IV al VII actual).
-Artículo 110.—La Junta Directiva designará con el voto de no menos de cinco de sus miembros a un Director Ejecutivo, en quien delegara la administración del Instituto del Café. Designará también en la misma forma al Subdirector Ejecutivo.
-Estos funcionarios deberán reunir los mismos requisitos exigidos a los miembros de la Junta Directiva, en cuanto les fuere racionalmente aplicable.
-(Así corrida su numeración por el artículo 3º del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 87 al 110).
+Artículo 110.—Ningún miembro de la Junta Directiva podrá estar presente cuando se voten asuntos en que esté interesado él personalmente o algún pariente suyo hasta el tercer grado de consanguinidad o segundo por afinidad, ambos inclusive, o que interesen a sociedades en que él o sus parientes dichos sean socios colectivos, comanditados, comanditarios, directores o gerentes. Igual prohibición existirá cuando la Junta Directiva tenga que conocer de una reclamación o conflicto en que sea parte alguna de las personas mencionadas en este artículo.
+Los acuerdos tomados en contravención a lo dispuesto por este artículo, estarán viciados de nulidad absoluta y se tendrán por inexistentes.
+(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 87 al 110 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
