@@ -1,0 +1,1 @@
+Artículo 15.—El incumplimiento de lo dispuesto en estos procedimientos, podrá acarrear la aplicación del régimen de responsabilidad de la Ley Nº 8131, establecido en el título X, artículos 107 y siguientes.
