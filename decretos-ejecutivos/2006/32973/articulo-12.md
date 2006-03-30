@@ -1,0 +1,1 @@
+Artículo 12.—De conformidad con lo establecido en el artículo 4º de la Ley Nº 8131 sobre el Plan Nacional de Desarrollo, las entidades públicas, ministerios y demás órganos según corresponda, encargarán la coordinación del proceso de planificación institucional a una unidad o área responsable para el cumplimiento de lo establecido en dicha disposición.

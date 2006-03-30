@@ -1,0 +1,1 @@
+Artículo 11.—Las entidades públicas cuando presenten una propuesta de reestructuración orgánica ante MIDEPLAN, (de acuerdo con el artículo 8º de las Directrices de política salarial, empleo y clasificación de puestos) deberán contemplar los costos que ésta genere, en el gasto presupuestario máximo estipulado en el artículo 1° de estas directrices.
