@@ -15,3 +15,4 @@ Reglamento para el Cobro del Impuesto de Espectáculos Públicos
 | --- | --- | --- |
 | 1 | 1991-04-19 | la propia norma |
 | 2 | 2004-04-15 | Reglamento municipal 158 (2004-04-15) |
+| 3 | 2006-03-30 | Reglamento municipal 327 (2006-03-30) |
