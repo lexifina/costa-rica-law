@@ -1,5 +1,1 @@
-ARTÍCULO 123.- Para los efectos del inciso b) del artículo anterior,
-las municipalidades enviarán a la Contraloría General de la República,
-para su aprobación, una relación de puestos con el detalle de categorías,
-asignaciones a estas, clasificaciones y salarios de cada puesto, agrupados
-por unidades administrativas.
+Artículo 123.—(Derogado por el inciso c) del artículo 1 de la Ley N° 8494 del 30 de marzo del 2006, “Reformas del Marco Legal que Asigna Competencias a la Contraloría General de la República en el Régimen Municipal (Ref. Cód. Municipal, Ley sobre Nombramiento Comisiones de Festejos Populares y Ley de Impuesto sobre Bienes Inmuebles)”)

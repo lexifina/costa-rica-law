@@ -1,10 +1,3 @@
-ARTICULO 3º.- Deberá la Contraloría General de la República rechazar
-aquellos egresos que no contengan la documentación completa y los que a su
-juicio no tengan relación con los eventos realizados o no hayan sido
-indispensables o necesarios para los festejos.
-Los que fueren rechazados o no aceptados por la Contraloría, serán
-asumidos proporcionalmente por los integrantes de la comisión y
-reintegrados dentro del plazo de un mes a partir de la fecha de resolución
-que así lo ordene. Quedarán a salvo de esta sanción, únicamente, aquellos
-miembros cuyo voto negativo para el gasto impugnado conste en el acta
-respectiva de la comisión.
+Artículo 3º—El concejo municipal deberá rechazar los egresos que no contengan la documentación completa y los que no se relacionen con los festejos.
+Los egresos rechazados por el concejo serán asumidos, proporcionalmente, por los miembros de la comisión y reintegrados dentro del plazo de un mes a partir de la fecha de resolución que así lo ordene; de lo contrario, la municipalidad deberá gestionar las acciones legales correspondientes. Se exceptúan de esta sanción los miembros cuyo voto negativo para el gasto impugnado conste en el acta respectiva de la comisión.
+(Así reformado por el artículo 2° punto "b" de la Ley N° 8494 del 30 de marzo del 2006)

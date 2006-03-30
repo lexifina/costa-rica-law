@@ -1,0 +1,2 @@
+Transitorio.—En el término de dos meses, la Contraloría General de la República comunicará a la administración y a la auditoría de las municipalidades, así como a los concejos municipales de distrito el Manual de operaciones para las comisiones de festejos populares, a fin de que cada vez que se nombren los miembros de esas comisiones les sea comunicado oportunamente por la auditoría. En caso de que no exista esa unidad, la comunicación la realizará la contaduría municipal.
+(Así adicionado por el artículo 2° punto "i" de la Ley N° 8494 del 30 de marzo de 2006)
