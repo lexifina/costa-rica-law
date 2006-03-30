@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-13 | la propia norma |
+| 2 | 2006-03-30 | Reglamento 1771 (2006-03-30) |
