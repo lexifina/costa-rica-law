@@ -1,0 +1,1 @@
+Artículo 11.—La normativa contenida en el artículo 10 anterior para el caso de vacantes por reestructuración organizacional no se aplicará cuando las vacantes se originen en cambios en el perfil del puesto producto de un estudio integral, vacantes por homologaciones y conversión de sistemas o cambios en el manual institucional por reestructuración y creación de clases.

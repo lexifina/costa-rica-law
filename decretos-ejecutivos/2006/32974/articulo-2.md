@@ -1,0 +1,1 @@
+Artículo 2°—A los puestos de Servicios Especiales se les aplicará el mismo sistema de clasificación y valoración utilizado para los de cargos fijos.
