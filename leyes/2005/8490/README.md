@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2006
 
-Ley N° 8490 del 2005-12-15. SINALEVI, ficha 56266: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=56266&param2=61656&param3=1>.
+Ley N° 8490 del 2005-12-15. SINALEVI, ficha 56266: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=56266&param2=61657&param3=1>.
 
 Publicada en La Gaceta N° 253 del 2005-12-30.
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 25 | 2006-03-22 | Decreto Ejecutivo 32937 (2006-03-02) | 2006-03-02 |
 | 6 de 25 | 2006-03-31 | Decreto Ejecutivo 32977 (2006-03-14) | 2006-03-14 |
 | 7 de 25 | 2006-03-31 | Decreto Ejecutivo 32986 (2006-03-28) | 2006-03-28 |
+| 8 de 25 | 2006-03-31 | Decreto Ejecutivo 33005 (2006-03-31) | 2006-03-31 |
