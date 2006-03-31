@@ -14,3 +14,4 @@ División Territorial Electoral que regirá para las elecciones del 5 de febrero
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-24 | la propia norma |
+| 2 | 2006-03-31 | Decreto TSE 4 (2006-03-31) |
