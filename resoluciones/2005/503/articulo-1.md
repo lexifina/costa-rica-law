@@ -10,8 +10,10 @@ VII.—Que el transitorio único del Decreto Ejecutivo Nº 32456-H de 29 de juni
 Con fundamento en las consideraciones de hecho y derecho citadas:
 EL DIRECTOR GENERAL DE ADUANAS, RESUELVE:
 1. Es obligación del transportista aduanero que opera en la Aduana de Caldera el utilizar el precinto electrónico en las unidades de transporte que ingresen vía marítima al territorio aduanero nacional, de conformidad con las siguientes directrices.
-2. Mediante la aplicación de criterios de riesgo y a través del sistema informático del Servicio Nacional de Aduanas se determinará las unidades de transporte conteniendo mercancías, que deben movilizarse fuera de la zona portuaria portando el precinto electrónico. Para esa determinación, el sistema informático utilizará funciones matemáticas y seleccionará una cantidad que no sobrepase el diez por ciento (10%) de la totalidad de las unidades de transporte con mercancías declaradas en cada manifiesto de carga.
-3. Si por transmisiones posteriores a la inicial, el manifiesto de carga es modificado en cuanto a la cantidad de unidades contenedoras, el porcentaje arriba indicado de unidades de transporte que deberán portar el precinto electrónico, será aplicado a esa nueva cantidad.
+2. Mediante la aplicación de criterios de riesgo y a través del sistema informático del Servicio Nacional de Aduanas se determinará cuáles unidades de transporte que contienen mercancías, deben movilizarse fuera de la zona portuaria, portando el precinto electrónico.
+(Así reformado el punto anterior mediante resolución N°274 del 31 de marzo del 2006).
+3. Si por transmisiones posteriores a la inicial, el manifiesto de carga es modificado, en cuanto a la cantidad de unidades contenedoras, los criterios de riesgo serán aplicados a esa nueva cantidad.
+(Así reformado el punto anterior mediante resolución N°274 del 31 de marzo del 2006).
 4. El sistema informático generará un reporte con el detalle de cada una de las unidades de transporte que en caso de movilizarse fuera de la zona portuaria deben portar el precinto electrónico.
 5. El reporte con el número de contenedor y la cantidad de las unidades de transporte que requieren de precinto electrónico para su movilización fuera del área portuaria será comunicado por los siguientes medios:
 a) Enviado al casillero electrónico del TIC@ correspondiente al transportista aduanero que transmitió el manifiesto de carga.

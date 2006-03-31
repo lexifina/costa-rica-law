@@ -14,3 +14,4 @@ Obligación del Transportista Aduanero que Opera en la Aduana de Caldera de util
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-28 | la propia norma |
+| 2 | 2006-03-31 | Resolución 274 (2006-03-31) |
