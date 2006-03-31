@@ -18,3 +18,4 @@ Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 49 a 
 (Modificado por el artículo 1° del decreto ejecutivo N° 32884 del 24 de enero del 2006)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32937 del 2 de marzo del 2006)
 (Modificado por el artículo 1° y 3° del decreto ejecutivo N° 32977 del 14 de marzo del 2006)
+(Modificado por el artículo 1° del decreto ejecutivo N° 32986 del 28 de marzo del 2006)
