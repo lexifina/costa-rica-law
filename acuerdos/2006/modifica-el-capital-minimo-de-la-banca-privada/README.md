@@ -14,3 +14,4 @@ Modifica el capital mínimo de la banca privada
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-01 | la propia norma |
+| 2 | 2006-04-01 | Acuerdo 0 (2006-03-30) |
