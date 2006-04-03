@@ -9,4 +9,5 @@ Considerando:
 4º—Que mediante el oficio STAP-Circular-0475-05 de 5 de abril de 2005, se comunicó al Instituto el gasto presupuestario máximo autorizado para el año 2006, el cual no contempla los gastos adicionales que la entidad requiere realizar.
 5º—Que por lo anterior, resulta necesario aumentar el gasto presupuestario máximo fijado al Instituto para el año 2006. Por tanto;
 DECRETAN:
-Artículo 1º—Modifícase al Instituto Costarricense de Turismo el gasto presupuestario máximo fijado para el año 2006, establecido según lo dispuesto en el artículo 1° del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 de marzo de 2005 y sus reformas, de manera que este no podrá exceder la suma de ¢7,387.0 millones en ese período.
+Artículo 1º—Modifícase al Instituto Costarricense de Turismo el gasto presupuestario máximo fijado para el año 2006, establecido según lo dispuesto en el artículo 1° del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 de marzo de 2005 y sus reformas, de manera que este no podrá exceder la suma de ¢10.803,1 millones en ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 33019 del 3 de abril del 2006)

@@ -14,3 +14,4 @@ Modifica al Instituto Costarricense de Turismo, el gasto presupuestario máximo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-14 | la propia norma |
+| 2 | 2006-04-03 | Decreto Ejecutivo 33019 (2006-04-03) |
