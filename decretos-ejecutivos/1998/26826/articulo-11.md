@@ -1,1 +1,0 @@
-Artículo 11.- La tabla de artículo anterior se revisará anualmente en el mes de abril por la Comisión de Zonaje del MINAE, para que sus recomendaciones, previa modificación del presente reglamento, rijan a partir del primero de enero del año siguiente.

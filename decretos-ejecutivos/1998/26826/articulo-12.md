@@ -1,1 +1,0 @@
-Artículo 12.- El Departamento de Recursos Humanos será el encargado de ejecutar y velar por el fiel cumplimiento de las disposiciones del presente reglamento quedando obligados todos los funcionarios de este Ministerio a observar y acatar los procedimientos que a tal efecto se dicte.

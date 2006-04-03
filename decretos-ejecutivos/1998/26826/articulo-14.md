@@ -1,1 +1,0 @@
-Artículo 14.- El presente decreto deroga el reglamento de zonaje de los funcionarios del Ministerio de Recursos Naturales, Energía y Mina, dictado mediante Decreto Ejecutivo N° 21826-MIRENEM, publicado en La Gaceta N° 34 del 4 de febrero de 1993.
