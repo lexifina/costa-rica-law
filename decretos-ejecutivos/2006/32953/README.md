@@ -14,3 +14,4 @@ Modifica al Instituto Costarricense sobre Drogas, el gasto presupuestario máxim
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-24 | la propia norma |
+| 2 | 2006-04-03 | Decreto Ejecutivo 33069 (2006-04-03) |
