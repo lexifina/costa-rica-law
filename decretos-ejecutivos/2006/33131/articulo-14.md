@@ -1,0 +1,1 @@
+Artículo 14.—El Jurado recibirá en la instalaciones del Consejo Nacional de la Persona Adulta Mayor (CONAPAM), toda la información, documentación y demás elementos que respalden y den fe de la gestión de los postulantes, así como toda la documentación referente al concurso.

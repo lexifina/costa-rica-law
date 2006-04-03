@@ -1,0 +1,1 @@
+Artículo 24.—Si a juicio del Jurado ninguna propuesta de determinada categoría llena satisfactoriamente los requisitos fijados por el reglamento en el proceso de selección, el reconocimiento en la categoría propuesta será declarado desierto.

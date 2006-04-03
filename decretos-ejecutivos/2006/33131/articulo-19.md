@@ -1,0 +1,1 @@
+Artículo 19.—Para la corrección de defectos formales el Jurado señalará en primera instancia los defectos de forma que presenten las candidaturas. Para lo cual los postulantes tendrán un plazo de diez días hábiles para subsanar los defectos señalados.

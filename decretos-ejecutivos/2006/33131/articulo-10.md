@@ -1,0 +1,1 @@
+Artículo 10.—El Jurado podrá, si así lo considera oportuno, otorgar el premio de forma individual o compartida o bien declararlo desierto en cualquiera de las categorías del concurso. La decisión del Jurado será inapelable.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Comunicación de resultado
+Artículo 27.—Dado el veredicto final por parte del Jurado del Concurso, la Junta Rectora del Consejo Nacional de la Persona Adulta Mayor (CONAPAM) dará a conocer en un medio de comunicación los ganadores por categoría del premio "Dr. DIEGO FERNANDO TREJOS CORRALES POR EL MEJORAMIENTO DE LA CALIDAD DE VIDA DE LA POBLACIÓN ADULTA MAYOR". Esta difusión se deberá hacer pública al menos cinco días antes de llevarse a cabo el acto de premiación, siempre y cuando el Consejo Nacional de la Persona Adulta Mayor cuente con disponibilidad presupuestaria para tales efectos.

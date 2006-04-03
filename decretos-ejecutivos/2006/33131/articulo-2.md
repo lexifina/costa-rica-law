@@ -1,0 +1,1 @@
+Artículo 2º—Para los efectos de este Reglamento y del Concurso, se entiende por calidad de vida de la población adulta mayor las condiciones favorables en salud, aptitudes funcionales, recursos económicos, relaciones sociales, actividad, servicios sociales y de salud, calidad en casa y en el contexto próximo, satisfacción de vida, y oportunidades culturales y educacionales.

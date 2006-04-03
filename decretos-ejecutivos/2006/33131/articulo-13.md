@@ -1,0 +1,4 @@
+Artículo 13.—El quorum para que el Jurado pueda sesionar válidamente será de tres del total de sus miembros, por mayoría simple:
+a) En cada sesión se levantará un acta que contendrá la asistencia de los miembros del Jurado, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos.
+b) Las actas serán aprobadas en la siguiente sesión ordinaria. Antes de la aprobación de las actas los acuerdos tomados en sesión carecerán de firmeza, a menos que los miembros presentes acuerden su firmeza por votación de mayoría simple.
+c) Las actas serán firmadas por todos los miembros del Jurado y por aquellos miembros que hubieren hecho constar su voto negativo, abstinencia o que deseen presentar un dictamen de mimoría, todos debidamente justificados, quedando en tal caso exento de las responsabilidades que pudieren derivarse de esos acuerdos.

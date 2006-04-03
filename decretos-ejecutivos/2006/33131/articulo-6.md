@@ -1,0 +1,1 @@
+Artículo 6º—Las personas integrantes del Jurado deben poseer una intachable conducta moral y ética con amplia experiencia profesional en temática relacionada con población adulta mayor y atinentes en las áreas del concurso.

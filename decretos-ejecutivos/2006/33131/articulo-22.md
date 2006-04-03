@@ -1,0 +1,1 @@
+Artículo 22.—El sistema de evaluación de las propuestas se realizará a través de la asignación de puntos en la matriz de evaluación para cada una de las variables básicas contenidas en la fórmula de inscripción, a la que se refiere el artículo 20, inciso f) del presente Reglamento.

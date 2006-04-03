@@ -1,0 +1,7 @@
+Artículo 20.—En términos generales la propuesta debe contener la documentación siguiente:
+a) Características del candidato propuesto (nombre, número de cédula, dirección, personería jurídica; según sea el caso, actividad a la que se dedica, experiencia, logros y referencias personales y profesionales).
+b) Obras que puedan ser debidamente verificadas y que muestren su aporte al mejoramiento de la calidad de vida de la población adulta mayor nacional.
+c) Actividades representadas en hechos o actuaciones que demuestren efectivamente su contribución al mejoramiento de la calidad de vida de la población adulta mayor.
+d) Todo tipo de evidencia que ayude al candidato a dar a conocer su verdadero impacto sobre la calidad de vida de la población adulta mayor. Esta información puede estar constituida por videos (documentales o reportajes), documentación escrita como revistas, periódicos, manuales, entre otros, folletos, afiches, libros, fotografías y todo material que el participante considere necesario para su objetivo.
+e) Características de quien presenta la propuesta (nombre, número de cédula o personería jurídica, dirección).
+f) Los postulante al concurso deberán llenar bajo la fe de juramento la fórmula de inscripción "CONCURSO Dr. DIEGO FERNANDO TREJOS CORRALES POR EL MEJORAMIENTO DE LA CALIDAD DE VIDA DE LA POBLACION ADULTA MAYOR", que se distribuirá en las oficinas del Consejo Nacional de la Persona Adulta Mayor (CONAPAM) o en la página Web www.conapam. go.cr, de dicho Consejo.
