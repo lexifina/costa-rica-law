@@ -1,0 +1,1 @@
+Artículo 5º—Trámite legislativo. El proyecto deberá tramitarse por los procedimientos legislativos ordinarios. Iniciará el trámite legislativo sin necesidad de ser publicado. En todo caso, deberá publicarse un extracto de referencia que permita ubicarlo en la corriente legislativa.
