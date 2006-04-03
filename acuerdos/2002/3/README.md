@@ -14,3 +14,4 @@ Normativa aplicable al presidente, a los Vicepresidentes, Ministros. Viceministr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-08 | la propia norma |
+| 2 | 2006-04-03 | Acuerdo 1086 (2006-04-03) |
