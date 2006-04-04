@@ -1,0 +1,1 @@
+Artículo 18.—Formalidades de la comunicación de la convocatoria. La comunicación del TSE deberá contener el proyecto o los proyectos sometidos a referéndum, la fecha y los lugares de votación, así como las preguntas que se efectuarán. El Tribunal ubicará los textos en lugares visibles, en las municipalidades y las instituciones públicas que considere oportuno y necesario.

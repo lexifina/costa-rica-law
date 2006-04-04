@@ -1,0 +1,3 @@
+SECCIÓN III
+Referéndum en reformas constitucionales
+Artículo 14.—Convocatoria del referéndum de reforma constitucional. Para reformar parcialmente la Constitución, el referéndum podrá ser convocado al menos por un cinco por ciento (5%) de los ciudadanos inscritos en el padrón electoral; por la Asamblea Legislativa, mediante la aprobación de las dos terceras partes del total de sus miembros, o por el Poder Ejecutivo junto con la mayoría absoluta de la totalidad de los miembros de la Asamblea Legislativa. El referéndum únicamente podrá realizarse después de que el proyecto de reforma haya sido aprobado en la primera legislatura y antes de la segunda, de conformidad con el inciso 8) del artículo 195 de la Constitución Política.

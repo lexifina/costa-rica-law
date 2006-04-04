@@ -1,0 +1,1 @@
+Artículo 33.—Gastos de transporte. El día en que se celebre el referéndum, el transporte publico será gratuito para todos los ciudadanos en todas las líneas y rutas nacionales, las cuales no podrán ser modificadas ese día. Estos gastos correrán por cuenta del Tribunal.

@@ -1,0 +1,5 @@
+Artículo 2º—Materias no sujetas a referéndum. De conformidad con el artículo 105 de la Constitución Política, no podrán someterse a referéndum proyectos de ley sobre materias presupuestaria, tributaria, fiscal, monetaria, crediticia, de pensiones, seguridad, aprobación de empréstitos y contratos, ni actos de naturaleza administrativa.
+(*)No podrá convocarse a más de un referéndum al año, tampoco durante los seis meses anteriores ni posteriores a la elección presidencial.
+(*)(Nota de Sinalevi: Sobre este tema consultar la resolución del Tribunal Supremo de Elecciones, N° 3006 del 25 de junio del 2013, "Interpretación del inciso 9) del artículo 102 de la Constitución Política referente al referéndum")
+El Tribunal Supremo de Elecciones (TSE) velará por el cumplimiento de esta norma.
+De declararse estado de emergencia, necesidad pública u otras circunstancias igualmente calificadas que imposibiliten la realización del referéndum, será potestad del TSE decretar su suspensión y reprogramación.

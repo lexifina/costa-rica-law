@@ -1,0 +1,1 @@
+Artículo 30.—Infracción a límite del gasto. Será sancionado con multa hasta de tres veces el monto infringido, sin perjuicio de las sanciones penales que determine la ley, quien sobrepase el límite máximo establecido en el artículo 20 de esta Ley.
