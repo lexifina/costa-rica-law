@@ -1,0 +1,2 @@
+Artículo 17.—Comunicación y publicación de la convocatoria y el proyecto. El TSE, en un acto formal, comunicará la convocatoria a referéndum y la publicará en La Gaceta, junto con el texto normativo que será sometido a la consulta popular y las preguntas que lo acompañen.
+La celebración del referéndum tendrá que efectuarse, a más tardar, dentro de los noventa días naturales posteriores a la comunicación de la convocatoria.

@@ -1,0 +1,2 @@
+Artículo 27.—Vigencia y publicación del texto aprobado mediante referéndum. La ley o reforma constitucional promulgada mediante referéndum será obligatoria y surtirá efectos desde el día en que ella lo designe o, en su defecto, diez días después de su publicación en La Gaceta.
+La Imprenta Nacional contará con Un plazo hasta de cinco días hábiles para realizar la publicación respectiva, a partir de la comunicación correspondiente del Poder Ejecutivo.
