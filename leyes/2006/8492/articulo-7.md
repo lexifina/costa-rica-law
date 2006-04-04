@@ -1,0 +1,6 @@
+Artículo 7º—Admisión de la solicitud para iniciar la recolección de firmas. Admitida la solicitud por el TSE, este autorizará los formularios para la recolección de las firmas, los cuales deberán contener lo siguiente:
+a) Espacios para consignar, de manera clara, la siguiente información: los nombres, las firmas y los números de cédula de identidad de los ciudadanos que respalden la convocatoria.
+b) Una explicación del texto objeto del referéndum, con la indicación de la fecha de publicación del proyecto y, adjunto, el número suficiente de copias del texto que será sometido a referéndum, el cual podrá imprimirse en el reverso del formulario.
+El ciudadano que apoye la convocatoria a referéndum deberá escribir, de su propia mano y legible, su nombre, número de cédula y la firma registrada en esta. En caso de que el ciudadano no pueda o no sepa hacerlo, un tercero podrá firmar, a su ruego, en presencia de dos testigos, y dejará constancia en el formulario de las razones por las que realiza así la firma, así como las calidades y las firmas del tercero y los testigos.
+Cada ciudadano podrá firmar solo una vez la convocatoria. Si el ciudadano firma varias veces, solamente una de esas firmas será admitida.
+Una vez que un ciudadano haya firmado la convocatoria a un referéndum, no podrá retirar su firma.

@@ -1,0 +1,1 @@
+Artículo 19.—Difusión del texto sometido a referéndum. El aviso de convocatoria al referéndum y su texto serán publicados en La Gaceta por el TSE, que podrá difundir, además, en la medida de sus posibilidades, una síntesis del texto, por medio de las estaciones de televisión y radio nacionales y regionales y los periódicos de circulación nacional y regional.

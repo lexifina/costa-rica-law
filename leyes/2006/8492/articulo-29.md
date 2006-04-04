@@ -1,0 +1,1 @@
+Artículo 29.—Registro de las erogaciones. Los medios de comunicación colectiva informarán al TSE quien ha contratado la publicación de campos pagados a favor o en contra del proyecto sometido a referéndum, así como el costo de la publicación. El Tribunal llevará un registro de las publicaciones, con indicación de su costo, a fin de corroborar el gasto incurrido por cada persona.

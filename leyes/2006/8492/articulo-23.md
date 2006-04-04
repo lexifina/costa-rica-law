@@ -1,0 +1,2 @@
+Artículo 23.—Juntas receptoras de votos. Las juntas receptoras de votos se constituirán, para el desempeño de sus funciones, dentro de los treinta días naturales ‘siguientes a la publicación de la convocatoria a referéndum realizada por el TSE. El número de juntas en cada cantón y distrito, así como el lugar de su asiento, serán establecidos por el Tribunal, el cual también designará a un delegado suyo, que estará a cargo de la junta receptora de votos correspondiente.
+En todo lo que sea compatible, se aplicarán las disposiciones que contiene, al efecto, el Código Electoral.
