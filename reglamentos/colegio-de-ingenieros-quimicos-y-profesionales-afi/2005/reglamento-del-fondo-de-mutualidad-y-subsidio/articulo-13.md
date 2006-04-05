@@ -1,0 +1,1 @@
+Artículo 13.—Póliza de fidelidad. Todo integrante de la Junta Administrativa del Fondo, tan pronto sea electo en su cargo, deberá obtener una póliza de fidelidad ante el Instituto Nacional de Seguros, la cual será costeada por el propio Fondo.

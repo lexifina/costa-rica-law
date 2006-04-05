@@ -1,0 +1,1 @@
+Artículo 18.—Pago del beneficio. La Junta Administrativa del Fondo aprobará el pago de los beneficios comprendidos en este reglamento, una vez recibida y analizada la documentación pertinente. La falta de cumplimiento de los requisitos establecidos reglamentariamente ocasionará la suspensión de los beneficios acordados a los beneficiarios y herederos.

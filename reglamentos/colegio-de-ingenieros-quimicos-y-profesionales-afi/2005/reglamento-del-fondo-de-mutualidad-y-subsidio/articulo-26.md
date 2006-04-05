@@ -1,0 +1,1 @@
+Artículo 26.—Pólizas o seguros complementarios. La Junta Directiva podrá hacer negociaciones con el Instituto Nacional de Seguros, con el propósito de obtener una póliza a favor del Fondo, que cubra la muerte accidental de hasta un máximo de diez colegiados, por el monto del beneficio establecido por el Fondo. Asimismo podrá gestionar seguros o pólizas complementarias.

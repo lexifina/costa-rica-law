@@ -1,0 +1,1 @@
+Artículo 24.—Reserva del fondo. El fondo deberá contar con una reserva suficiente para cubrir la indemnización correspondiente de hasta 5 miembros del Colegio y deberán ser depositadas en una cuenta corriente, o en depósitos a la vista, en uno de los Bancos del Sistema Bancario Nacional.

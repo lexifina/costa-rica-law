@@ -1,0 +1,1 @@
+Artículo 19.—Lugar del pago. Todo pago por concepto de los beneficios que establece este reglamento se efectuará en las oficinas del Colegio de Químicos. Todo recibo de dinero deberá necesariamente ser firmado por quien legalmente debe recibirlo.

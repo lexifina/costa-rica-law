@@ -1,0 +1,1 @@
+Artículo 6º—Revisión de la cuota y el beneficio. El monto de la cuota así como el beneficio será revisado periódicamente, por lo menos cada tres años, por parte de la Junta Directiva con base en el resultado de un estudio actuarial sobre las finanzas del Fondo. Toda disposición sobre cambio de cuota o beneficio debe ser aprobada por la Asamblea.

@@ -1,0 +1,1 @@
+Artículo 2º—Obligatoriedad de pertenencia. Los miembros del Colegio estarán obligados a pagar una cuota que se destinará íntegramente a formar el Fondo, el cual será administrado de acuerdo con las normas que este Reglamento establece.

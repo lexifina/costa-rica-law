@@ -1,0 +1,1 @@
+Artículo 14.—Preservación de derechos para miembros ausentes. Cuando un miembro del Colegio sea declarado “Miembro Ausente”, podrá conservar los beneficios del Fondo, sujeto a la continuación del pago de las cuotas según lo dispone este reglamento.
