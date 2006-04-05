@@ -1,2 +1,2 @@
-Articulo 5º—El monto máximo para desembolsos por medio de Caja Chica será de sesenta mil colones (¢60.000,00).
-(Así reformado en sesión N° 12 del 7 de julio del 2004)
+Artículo 5º—El monto máximo para desembolsos por medio de Caja Chica será de ciento cincuenta mil colones (¢150.000,00), y para el Fondo de Escenario de cien mil colones (¢100.000,00).
+(Así reformado mediante sesión N°04 del 05 de abril del 2006).

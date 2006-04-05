@@ -16,3 +16,4 @@ Reglamento para las cajas chicas y fondos especiales del Teatro Nacional de Cost
 | 1 | 2003-02-11 | la propia norma |
 | 2 | 2004-07-07 | Reglamento 12 (2004-07-07) |
 | 3 | 2005-06-22 | Reglamento 9 (2005-06-22) |
+| 4 | 2006-04-05 | Reglamento 4 (2006-04-05) |
