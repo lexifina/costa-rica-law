@@ -15,3 +15,4 @@ Reglamento de Tesorería
 | --- | --- | --- |
 | 1 | 2002-08-05 | la propia norma |
 | 2 | 2005-07-27 | Reglamento 3305 (2005-07-27) |
+| 3 | 2006-04-05 | Reglamento 3342 (2006-04-05) |
