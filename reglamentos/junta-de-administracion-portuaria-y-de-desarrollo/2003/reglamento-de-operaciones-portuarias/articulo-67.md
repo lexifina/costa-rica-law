@@ -1,4 +1,4 @@
 ARTÍCULO 67
-De la comparación de documentos
-Si al efectuar el cotejo de documentos, se encuentra alguna diferencia; la nave no podrá dar inicio a las labores de carga y descarga sin que antes las diferencias sean aclaradas y corregidas. Las demoras o tiempo de espera que se produzcan por este motivo, correrá por cuenta del naviero o su representante.
-En caso de que exista carga, fuera de manifiesto, se cobrará la tarifa establecida por JAPDEVA; y las Intendencias de Limón y Moín reportarán de forma inmediata a las autoridades aduaneras de la presencia de esta carga.
+De la disponibilidad de vehículos de transporte terrestre
+JAPDEVA no se hará responsable por cuenta de terceras personas, de gestionar servicios de transporte de cualquier clase a clientes o usuarios que requieran trasladar mercaderías de o hacia los muelles de Limón y Moín.
+(Así corrida su numeración mediante acuerdo N° 288 tomado en sesión Nº 14 del 6 de abril del 2006, que lo traspaso del antiguo 64 al 67 actual del artículo)

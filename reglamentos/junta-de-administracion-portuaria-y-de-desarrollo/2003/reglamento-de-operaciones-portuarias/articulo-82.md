@@ -1,8 +1,13 @@
 ARTÍCULO 82
-Del control de ingreso de vehículos
-a) Tipos de pases:
-1. Marbete de pase permanente: Los vehículos de estado, particulares o comerciales que requieran el otorgamiento de marbetes, de pase permanente por la naturaleza de sus actividades, dentro del recinto portuario presentarán la solicitud a la Autoridad Portuaria suministrando los datos requeridos.
-2. Marbete de pase temporal: Los marbetes de pase temporal serán emitidos, siguiendo el trámite establecido para los marbetes de pase permanente en lo que se refiere a la solicitud e información del vehículo, y deberá indicar la fecha límite de su validez.
-3. Tarjeta de control de vehículos comerciales: Además de los marbetes de pase permanente o temporal, los vehículos comerciales que ingresen, recibirán y entregarán a la salida del recinto portuario la tarjeta de control al vigilante de la Autoridad Portuaria.
-b) JAPDEVA confeccionará una lista de vehículos (permanentes-temporales), con el fin de que el Resguardo Portuario lo tenga en un lugar visible, esto para no demorar la entrada a los que tengan derecho.
-Siempre se procederá a la anotación del número de la placa y a revisar el vehículo, tanto en la entrada, como en la salida.
+De los deberes y obligaciones
+Son deberes y obligaciones del Resguardo Portuario:
+a) Impedir el acceso a las zonas portuarias de personas o vehículos sin la identificación y permiso respectivos.
+b) Aprehender y conducir ante la Jefatura del Resguardo a toda persona que sea sorprendida dentro del recinto portuario sin identificación o que aún teniéndola, haya infringido las leyes o los reglamentos de JAPDEVA.
+c) Impedir el acceso de personas o vehículos a las diferentes bodegas, cuando no tengan relación alguna con los trabajos que allí se llevan a cabo, o con las mercaderías o cosas allí existentes.
+d) Velar por el cumplimiento de las disposiciones de tránsito dentro del recinto portuario.
+e) Revisar toda persona o vehículo que ingrese o salga de las zonas portuarias, poniendo de inmediato a la orden de las autoridades correspondientes, a aquellas personas en cuyo poder se encuentren mercaderías u objetos sin el respaldo de los documentos legales o reglamentarios, para ser introducidos o sacados de allí.
+f) Prohibir e impedir la portación de armas de toda clase, dentro del recinto portuario.
+g) Impedir la limpieza de vagones, camiones y vehículos de toda clase, dentro del recinto portuario; la eventual reparación de vehículos dentro del área portuaria, solo se realizará con la autorización previa del Gerente Portuario.
+h) Velar porque los equipos de seguridad no sean obstaculizados por personas, vehículos u objetos.
+i) Cualquier otra que por su índole sea competencia del Resguardo Portuario.
+(Así corrida su numeración mediante acuerdo N° 288 tomado en sesión Nº 14 del 6 de abril del 2006, que lo traspaso del antiguo 79 al 82 actual del artículo)

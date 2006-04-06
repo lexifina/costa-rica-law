@@ -1,9 +1,11 @@
-ARTÍCULO 54
-De las reservas y obligaciones de las concesionarias y permisionarias
-a) Las empresas navieras, sus capitanes, sus agentes o representantes, las empresas estibadoras y las empresas privadas en general que brindan servicio dentro de las instalaciones portuarias, asumirán las responsabilidades civiles, comerciales, laborales y de cualquier otra índole, de acuerdo con las leyes vigentes, sin que por ello JAPDEVA asuma por tales conceptos, responsabilidad alguna, todo con relación a su personal, a terceras personas, equipo o daño a las instalaciones físicas.
-b) La Presidencia Ejecutiva de JAPDEVA, se reserva el derecho y la facultad de revocar y dejar sin efecto ni valor el permiso concedido a una empresa, si ésta incumple alguna, varias o todas las cláusulas del contrato por ella suscrita. Podrán elevar el recurso de apelación ante el Concejo de Administración de acuerdo con los plazos señalados en la Ley General de la Administración Pública.
-c) En caso de conflicto entre la empresa y sus trabajadores, JAPDEVA se reserva el derecho de asumir las labores con el personal que al efecto contrate o contratar con cualquier otra compañía la prestación del servicio. Esto con el único propósito de garantizar a los usuarios de las instalaciones portuarias la continuidad del servicio. Lo anterior, no dará derecho a reclamo o indemnización en contra de JAPDEVA, por alguna de las partes involucradas en el conflicto.
-d) JAPDEVA, se reserva el derecho de supervisar las operaciones de carga y descarga en los muelles, es obligación para las compañías que operan en los muelles, atender las indicaciones que JAPDEVA emite en apoyo de una eficiente y futura operación.
-e) La no atención de estas indicaciones podrá acarrear la suspensión de la autorización para operar en las instalaciones portuarias, sin lugar a reclamo o indemnización.
-f) Las compañías de estiba y demás usuarios de JAPDEVA, quedan obligados a utilizar los equipos de carga y descarga que JAPDEVA mantenga en sus instalaciones; para tal efecto, pagarán las tarifas correspondientes.
-g) Es obligación ineludible de los supervisores y personal de las compañías estibadoras, velar porque las mercancías reciban el trato adecuado, vigilar el cumplimiento de las clasificaciones, de manera que productos químicos y tóxicos no sean cargados con productos de consumo humano o animal; de igual manera se procederá con materiales explosivos u otras materias peligrosas.
+Artículo 54.—Para los efectos del artículo anterior el rango o promedio de tiempo estimado como razonable para un desempeño adecuado de los trabajadores operativos serán los siguientes:
+Clase de Trabajador | Función | Rango
+Guarda | Permitir el ingreso o salida del contenedor o furgón una vez verificado el cumplimiento de los requisitos de ingreso o salida de las instalaciones portuarias. | 1 a 2 minutos.
+Oficiales de Documentación | Verificar y comprobar la autencidad de los documentos para la autorización del ingreso o salida de mercancías. | 1 a 3 minutos. .
+Cheques | Realizar el registro con relación al ingreso y/o salida del número de contenedores, marchamo del mismo y condiciones (daños). | 1 a 3 minutos
+Operador de Montacargas | Movilización de la carga (recepción o entrega en la operación al costado del barco). | 1 a 3 minutos. .
+Operador del Cabezal | Traslado de contenedores dentro de la zona portuaria en el ciclo de transferencia (mercancía de importación o exportación). | 1 a 4 minutos
+Operador de Straddle Carrier | Recepción y entrega de contenedores en el patio. | 1 a 3 minutos.
+Operador de grúa Puente | Movilización de contenedores, en carga y descarga de la nave dentro de zona portuaria. | 15 a 20 movimientos por hora.
+El trabajo realizado fuera de los rangos descritos será considerado inaceptable y se constatará mediante acta notarial levantada conjuntamente con la jefatura respectiva y sancionable directamente por el Presidente Ejecutivo conforme el Reglamento Interior de Trabajo.
+(Así adicionado mediante sesión Nº 14 del 6 de abril del 2006)

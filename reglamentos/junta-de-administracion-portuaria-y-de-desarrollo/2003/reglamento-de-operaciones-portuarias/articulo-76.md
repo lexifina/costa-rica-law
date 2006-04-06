@@ -1,8 +1,8 @@
 ARTÍCULO 76
-De los recursos
-Los recursos serán ordinarios y extraordinarios; serán ordinarios el de revocatoria y el de apelación, será extraordinario el de revisión.
-a) Los actos administrativos dictados por la Autoridad Portuaria tendrán el recurso de revocatoria o de reposición ante el mismo órgano que dictó el acto, y el de apelación ante el Superior Jerárquico.
-b) Los actos del Gerente Portuario pueden ser apelados ante el Presidente Ejecutivo; los actos del Presidente Ejecutivo serán apelados ante el Consejo de Administración.
-c) Dictado el acto administrativo se tendrá un término de tres días para presentar los recursos ordinarios de revocatoria, y un plazo de ocho días para presentar el recurso de apelación, o el extraordinario de revisión dentro de los plazos que indica, el artículo 354 de la Ley General de Administración Pública.
-d) Lo resuelto por el Consejo de Administración, se basará en los recursos que estipula la Ley General de la Administración Pública.
-e) Las resoluciones administrativas que se emitan, en razón del presente Reglamento de Operaciones Portuarias, serán firmadas por el Gerente de la Administración.
+Del despacho de mercaderías de exportación
+Para el despacho de la carga de exportación, JAPDEVA exigirá los siguientes documentos:
+- Manifiesto de exportación debidamente tramitado.
+- Memorial debidamente legalizado por la aduana.
+- Constancia de la Caja de JAPDEVA, donde conste el pago de los servicios prestados.
+- No se prestará ningún servicio a la carga, si falta alguno de los documentos señalados anteriormente.
+(Así corrida su numeración mediante acuerdo N° 288 tomado en sesión Nº 14 del 6 de abril del 2006, que lo traspaso del antiguo 73 al 76 actual del artículo)

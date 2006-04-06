@@ -1,5 +1,2 @@
-CAPÍTULO VIII
-Arrendamiento de equipo y su uso
-ARTÍCULO 55
-De las condiciones para el arrendamiento
-El arrendamiento de los equipos a los usuarios está condicionado a la disponibilidad del mismo para el momento en que se requiera; de esta manera, JAPDEVA autorizará o no, el alquiler del equipo de su propiedad.
+Artículo 55.—Sin perjuicio de lo dispuesto en el artículo 190 y siguientes de la Ley General de la Administración Pública, los trabajadores descritos en el presente capítulo cuya labor no se lleve a cabo dentro de los rangos señalados, tal y como lo dispone el artículo 33 inciso b) del Reglamento Interior de Trabajo de JAPDEVA, podrán ser sancionados conforme lo establece el artículo 43 inciso b) de este mismo Reglamento según la gravedad de la falta”.
+(Así adicionado mediante sesión Nº 14 del 6 de abril del 2006)

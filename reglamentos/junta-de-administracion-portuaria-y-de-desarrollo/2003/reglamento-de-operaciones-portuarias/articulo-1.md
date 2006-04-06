@@ -44,3 +44,5 @@ Cuando hay mercancía peligrosa se requiere que el manifiesto exprese dicha cond
 34) Vía directa: Modalidad de la operación portuaria, que comprende el traslado de la carga de o hacia las embarcaciones, directamente del o al medio de transporte terrestre utilizado, sin que permanezca dentro del área portuaria.
 35) Recinto portuario: Son las superficies marítimas y terrestres delimitadas por puntos reconocidos en el mar y en tierra, donde JAPDEVA tenga jurisdicción.
 36) Movimiento: Se entiende como movimiento el manejo de un contenedor, furgón, chasis, plataforma u otra unidad de carga de un lugar a otro, dentro del recinto portuario y en un solo sentido.
+37) Rangos: Espacio intermedio entre un mínimo definido y un máximo de tiempo.
+(Así adicionado el punto anterior mediante sesión Nº 14 del 6 de abril del 2006)

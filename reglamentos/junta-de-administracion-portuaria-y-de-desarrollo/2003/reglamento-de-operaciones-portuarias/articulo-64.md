@@ -1,3 +1,4 @@
 ARTÍCULO 64
-De la disponibilidad de vehículos de transporte terrestre
-JAPDEVA no se hará responsable por cuenta de terceras personas, de gestionar servicios de transporte de cualquier clase a clientes o usuarios que requieran trasladar mercaderías de o hacia los muelles de Limón y Moín.
+Del derecho de almacenar, remover, reestibar y trasladar mercaderías
+La mercancía de importación que permanezca en los almacenes, muelles o patios, y la mercadería de exportación que haya dejado la nave al zarpar, podrá ser estibada, reestibada o trasladada por JAPDEVA, a otros locales dentro del recinto portuario. Los gastos en que incurra la institución por dichos motivos, correrán por cuenta de los propietarios, embarcadores, consignatarios o representantes de las líneas navieras. La mercancía peligrosa o perjudicial será manipulada según el código IMDG y la OMI. Debido, a que por su naturaleza pueda sufrir o causar daños a otras mercancías; podrán ser removidas a criterio de JAPDEVA, sin oposición del propietario o su representante; quien correrá con los gastos que esta acción ocasione.
+(Así corrida su numeración mediante acuerdo N° 288 tomado en sesión Nº 14 del 6 de abril del 2006, que lo traspaso del antiguo 61 al 64 actual del artículo)

@@ -1,5 +1,9 @@
+CAPÍTULO XII
+Resguardo portuario
 ARTÍCULO 80
-Del ingreso al recinto portuario
-a) Solamente se permitirá la entrada al recinto portuario a las personas que de alguna manera estén ligadas a las operaciones y servicios portuarios, previa autorización de la unidad competente.
-b) Pase al recinto portuario: Todos los usuarios o clientes deberán solicitar por escrito a la Autoridad Portuaria las tarjetas de pase al recinto portuario, de las personas involucradas con las operaciones portuarias; la persona a la que se extienda la tarjeta de pase será responsable por las faltas que cometa dentro del recinto; así mismo, será responsable solidariamente el usuario que haya solicitado el pase.
-La Autoridad Portuaria podrá autorizar la entrada de un determinado número de visitantes, a solicitud de los usuarios.
+De las funciones del resguardo portuario
+a) Es función del Resguardo Portuario garantizar el orden, la seguridad y tranquilidad en el recinto portuario, prevenir la violación de las leyes en general y en particular de los reglamentos de operación vigentes en ese recinto.
+b) Dicho Resguardo debe proteger tanto las mercaderías en custodia pertenecientes a terceros, que se encuentren en los almacenes, patios, bodegas, cobertizos y demás sectores del recinto portuario; así como todos los bienes de JAPDEVA.
+c) El Resguardo debe ejercer control preventivo de la población que ingrese al recinto portuario, con apego estricto al control de identificación en cuanto a personas, y demás documentos, en cuanto a bienes.
+d) El Resguardo debe determinar la organización de la prestación de servicios; implantando, revisando y modificando los sistemas tendentes a ejercer los controles necesarios, del mejor modo posible.
+(Así corrida su numeración mediante acuerdo N° 288 tomado en sesión Nº 14 del 6 de abril del 2006, que lo traspaso del antiguo 77 al 80 actual del artículo)

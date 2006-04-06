@@ -1,5 +1,5 @@
 CAPÍTULO VII
-Otorgamiento de permisos de uso
-ARTÍCULO 53
-Del otorgamiento de permisos a particulares
-De conformidad con lo establecido en la Ley Orgánica de JAPDEVA Nº 5337 del 27 de agosto de 1973, en su artículo 17, inciso i, JAPDEVA podrá otorgar permisos de uso y prestación de servicios sujetos a cánones sobre determinados espacios y actividades portuarias. En este sentido las actividades concedidas al sector privado según el procedimiento legal al efecto, se dictará mediante la resolución administrativa emitida por el Concejo de Administración para cada actividad, en donde se definan claramente los aspectos que regularán el otorgamiento del permiso por la administración.
+De la responsabilidad de JAPDEVA en el manejo
+de la Operación Portuaria
+Artículo 53.—Se considerarán demoras imputables a JAPDEVA, aquellos atrasos en las operaciones y/o servicios portuarios correspondientes a la prestación de los mismos fuera de los rangos o promedios establecidos por la administración, según se señalarán en el siguiente artículo, con ocasión del desempeño adecuado de los trabajadores operativos (entendiéndose como tales: guardas, oficiales de documentación, cheques, operadores de montacargas, operadores de cabezal, operadores de stradle carriers, operadores de grúa puente.)
+(Así adicionado mediante sesión Nº 14 del 6 de abril del 2006)

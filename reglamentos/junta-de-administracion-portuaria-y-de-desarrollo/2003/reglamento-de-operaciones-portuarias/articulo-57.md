@@ -1,14 +1,10 @@
-CAPÍTULO IX
-Manejo de las mercaderías que transitan por el puerto
 ARTÍCULO 57
-De las disposiciones generales
-a) Todas las mercaderías que lleguen a las terminales portuarias de JAPDEVA, deben estar provistas de un embalaje, empaque o envase fuerte y apropiado con la naturaleza de su contenido, por las condiciones normales de manipulación y manejo a las que será sometido en las labores portuarias con las características ambientales del puerto.
-b) Todo cargamento debe tener perfectamente claras y legibles las marcas, pesos, distintivos, códigos y demás datos indicativos, anotados en los documentos de embarque y con tinta o pintura perdurable, que permita su identificación, durante todo el tiempo que permanezca en la Zona Portuaria. De igual modo, deben darse las indicaciones sobre el grado de peligrosidad del cargamento, de conformidad con las normas internacionales (clasificación del I.M.C.O.).
-c) JAPDEVA no se hará responsable de extravío, pérdida, daños, mermas y otros de los cargamentos que no se le entreguen debidamente embalados, en envases fuertes, apropiados y debidamente marcados para su identificación; como se ordena en los incisos a) y b) que preceden.
-d) JAPDEVA no dará curso ni tramitará ningún documento para la entrega de mercaderías de importación, exportación o cabotaje, que no haya cumplido con todos y cada uno de los requisitos de la Ley General de Aduanas y sus reglamentos para control fiscal, la Ley de Sanidad Vegetal y Animal, y demás leyes conexas.
-e) La inobservancia de cualquiera de las normas establecidas en el presente Reglamento; sobre carga peligrosa, explosiva, inflamable o por razones de seguridad, autoriza a la Autoridad Portuaria para tomar alguna de las siguientes medidas:
-1. Negarse a prestar total o parcialmente los servicios portuarios.
-2. Suspender operaciones.
-3. Desamarre de la nave.
-4. Ordenar el zarpe de la nave.
-5. Ordenar el desalojo del recinto portuario de vehículos y/o carga.
+De las reservas y obligaciones de las concesionarias y permisionarias
+a) Las empresas navieras, sus capitanes, sus agentes o representantes, las empresas estibadoras y las empresas privadas en general que brindan servicio dentro de las instalaciones portuarias, asumirán las responsabilidades civiles, comerciales, laborales y de cualquier otra índole, de acuerdo con las leyes vigentes, sin que por ello JAPDEVA asuma por tales conceptos, responsabilidad alguna, todo con relación a su personal, a terceras personas, equipo o daño a las instalaciones físicas.
+b) La Presidencia Ejecutiva de JAPDEVA, se reserva el derecho y la facultad de revocar y dejar sin efecto ni valor el permiso concedido a una empresa, si ésta incumple alguna, varias o todas las cláusulas del contrato por ella suscrita. Podrán elevar el recurso de apelación ante el Concejo de Administración de acuerdo con los plazos señalados en la Ley General de la Administración Pública.
+c) En caso de conflicto entre la empresa y sus trabajadores, JAPDEVA se reserva el derecho de asumir las labores con el personal que al efecto contrate o contratar con cualquier otra compañía la prestación del servicio. Esto con el único propósito de garantizar a los usuarios de las instalaciones portuarias la continuidad del servicio. Lo anterior, no dará derecho a reclamo o indemnización en contra de JAPDEVA, por alguna de las partes involucradas en el conflicto.
+d) JAPDEVA, se reserva el derecho de supervisar las operaciones de carga y descarga en los muelles, es obligación para las compañías que operan en los muelles, atender las indicaciones que JAPDEVA emite en apoyo de una eficiente y futura operación.
+e) La no atención de estas indicaciones podrá acarrear la suspensión de la autorización para operar en las instalaciones portuarias, sin lugar a reclamo o indemnización.
+f) Las compañías de estiba y demás usuarios de JAPDEVA, quedan obligados a utilizar los equipos de carga y descarga que JAPDEVA mantenga en sus instalaciones; para tal efecto, pagarán las tarifas correspondientes.
+g) Es obligación ineludible de los supervisores y personal de las compañías estibadoras, velar porque las mercancías reciban el trato adecuado, vigilar el cumplimiento de las clasificaciones, de manera que productos químicos y tóxicos no sean cargados con productos de consumo humano o animal; de igual manera se procederá con materiales explosivos u otras materias peligrosas.
+(Así corrida su numeración mediante acuerdo N° 288 tomado en sesión Nº 14 del 6 de abril del 2006, que lo traspaso del antiguo 54 al 57 actual del artículo)

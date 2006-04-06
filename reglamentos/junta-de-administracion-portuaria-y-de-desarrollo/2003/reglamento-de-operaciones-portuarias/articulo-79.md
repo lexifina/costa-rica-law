@@ -1,12 +1,9 @@
 ARTÍCULO 79
-De los deberes y obligaciones
-Son deberes y obligaciones del Resguardo Portuario:
-a) Impedir el acceso a las zonas portuarias de personas o vehículos sin la identificación y permiso respectivos.
-b) Aprehender y conducir ante la Jefatura del Resguardo a toda persona que sea sorprendida dentro del recinto portuario sin identificación o que aún teniéndola, haya infringido las leyes o los reglamentos de JAPDEVA.
-c) Impedir el acceso de personas o vehículos a las diferentes bodegas, cuando no tengan relación alguna con los trabajos que allí se llevan a cabo, o con las mercaderías o cosas allí existentes.
-d) Velar por el cumplimiento de las disposiciones de tránsito dentro del recinto portuario.
-e) Revisar toda persona o vehículo que ingrese o salga de las zonas portuarias, poniendo de inmediato a la orden de las autoridades correspondientes, a aquellas personas en cuyo poder se encuentren mercaderías u objetos sin el respaldo de los documentos legales o reglamentarios, para ser introducidos o sacados de allí.
-f) Prohibir e impedir la portación de armas de toda clase, dentro del recinto portuario.
-g) Impedir la limpieza de vagones, camiones y vehículos de toda clase, dentro del recinto portuario; la eventual reparación de vehículos dentro del área portuaria, solo se realizará con la autorización previa del Gerente Portuario.
-h) Velar porque los equipos de seguridad no sean obstaculizados por personas, vehículos u objetos.
-i) Cualquier otra que por su índole sea competencia del Resguardo Portuario.
+De los recursos
+Los recursos serán ordinarios y extraordinarios; serán ordinarios el de revocatoria y el de apelación, será extraordinario el de revisión.
+a) Los actos administrativos dictados por la Autoridad Portuaria tendrán el recurso de revocatoria o de reposición ante el mismo órgano que dictó el acto, y el de apelación ante el Superior Jerárquico.
+b) Los actos del Gerente Portuario pueden ser apelados ante el Presidente Ejecutivo; los actos del Presidente Ejecutivo serán apelados ante el Consejo de Administración.
+c) Dictado el acto administrativo se tendrá un término de tres días para presentar los recursos ordinarios de revocatoria, y un plazo de ocho días para presentar el recurso de apelación, o el extraordinario de revisión dentro de los plazos que indica, el artículo 354 de la Ley General de Administración Pública.
+d) Lo resuelto por el Consejo de Administración, se basará en los recursos que estipula la Ley General de la Administración Pública.
+e) Las resoluciones administrativas que se emitan, en razón del presente Reglamento de Operaciones Portuarias, serán firmadas por el Gerente de la Administración.
+(Así corrida su numeración mediante acuerdo N° 288 tomado en sesión Nº 14 del 6 de abril del 2006, que lo traspaso del antiguo 76 al 79 actual del artículo)

@@ -1,6 +1,9 @@
 ARTÍCULO 85
-De las puertas y estaciones de ingreso y salida
-a) Casetas de vigilancia: En la caseta de vigilancia estarán en función todo el tiempo el Jefe de Grupo de Turno, salvo los momentos de sus patrullajes de control por el recinto portuario y los vigilantes asignados para el control del ingreso de vehículos y personas.
-b) Pasillo de personas: El ingreso y salida de personas se hará por pasillos de acceso para la verificación de identificación e inspección de las personas que ingresen al puerto, siguiendo el procedimiento establecido.
-c) Puertas de ingreso y salida de vehículos: Estarán localizadas a los lados de la caseta de vigilancia y en línea directa de tránsito, desde los sitios de control vehicular de ingreso y salida.
-d) Mecanismo de control: Las estaciones de control de ingreso, casetas y pasillos estarán equipadas con sistemas de comunicación telefónica u otros sistemas; señales de parada y tránsito de vehículos y las estaciones para inspección y registro de vehículos y personas.
+Del control de ingreso de vehículos
+a) Tipos de pases:
+1. Marbete de pase permanente: Los vehículos de estado, particulares o comerciales que requieran el otorgamiento de marbetes, de pase permanente por la naturaleza de sus actividades, dentro del recinto portuario presentarán la solicitud a la Autoridad Portuaria suministrando los datos requeridos.
+2. Marbete de pase temporal: Los marbetes de pase temporal serán emitidos, siguiendo el trámite establecido para los marbetes de pase permanente en lo que se refiere a la solicitud e información del vehículo, y deberá indicar la fecha límite de su validez.
+3. Tarjeta de control de vehículos comerciales: Además de los marbetes de pase permanente o temporal, los vehículos comerciales que ingresen, recibirán y entregarán a la salida del recinto portuario la tarjeta de control al vigilante de la Autoridad Portuaria.
+b) JAPDEVA confeccionará una lista de vehículos (permanentes-temporales), con el fin de que el Resguardo Portuario lo tenga en un lugar visible, esto para no demorar la entrada a los que tengan derecho.
+Siempre se procederá a la anotación del número de la placa y a revisar el vehículo, tanto en la entrada, como en la salida.
+(Así corrida su numeración mediante acuerdo N° 288 tomado en sesión Nº 14 del 6 de abril del 2006, que lo traspaso del antiguo 82 al 85 actual del artículo)
