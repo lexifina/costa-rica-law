@@ -14,3 +14,4 @@ Modifica al Consejo de Seguridad Vial, el gasto presupuestario máximo fijado pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-08 | la propia norma |
+| 2 | 2006-04-06 | Decreto Ejecutivo 33083 (2006-04-06) |
