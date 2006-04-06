@@ -13,3 +13,4 @@ Plan de Vacaciones 2005-2006 y Plan de atención a las Oficinas del Poder Judici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-13 | la propia norma |
+| 2 | 2006-04-06 | Acuerdo 0 (2006-04-06) |
