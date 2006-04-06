@@ -1,0 +1,1 @@
+Artículo 25.—La Comisión se reunirá con la frecuencia que sea necesaria, y será convocada por el Director de la División de Logística, por el Gerente de Control de Activos o por Supervisor de la Unidad de Bienes Adquiridos en Pago de Obligaciones.
