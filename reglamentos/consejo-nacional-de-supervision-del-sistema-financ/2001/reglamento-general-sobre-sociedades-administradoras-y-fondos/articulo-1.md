@@ -1,3 +1,5 @@
+(Derogado)
+(El presente Reglamento fue Derogado mediante sesión 569 celebrada 6 de abril del 2006)
 REGLAMENTO GENERAL SOBRE
 SOCIEDADES ADMINISTRADORAS Y
 FONDOS DE INVERSIÓN
