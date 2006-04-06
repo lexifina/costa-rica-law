@@ -14,3 +14,4 @@ Solicitudes de Financiamiento para el Desarrollo de Proyectos de Vivienda del a√
 | Versi√≥n | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-16 | la propia norma |
+| 2 | 2006-04-06 | Acuerdo 8 (2006-04-06) |

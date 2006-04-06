@@ -100,3 +100,12 @@ Osa | Sierpe
 Parrita | Parrita
 Puntarenas | Barranca
 Puntarenas | Chomes
+NOTA DE SINALEVI: Mediante acuerdo N° 8, de la sesión 27-2006, artículo 9, del 6 de abril de 2006, se incorporan las siguientes comunidades y proyectos de vivienda a la lista de localidades de las solicitudes de financiamiento para proyectos de vivienda al amparo del artículo 59 de la Ley del Sistema Financiero Nacional:
+1. Cantón de Goicoechea: proyectos Vista de Mar y La Estefanía (solicitados por el IMAS).
+2. Guápiles de Pococí: proyecto El Rótulo (solicitado por el IMAS).
+3. Cantón de Nicoya: proyecto Calderón Fournier (solicitado por el IMAS).
+4. Cantón de Aserrí: proyecto Mollejones (solicitado por el INVU).
+5. Desamparados de Alajuela: proyecto Nueva Jerusalén (solicitado por el INVU).
+6. San Pablo de Nandayure: proyecto La Uvita (solicitado por el INVU).
+7. Florencia de San Carlos: proyecto La Giralda (solicitado por el INVU).
+8. Cantón de Corredores: casos de emergencia.
