@@ -45,9 +45,24 @@ En la etiqueta de alimentos preenvasados deberá aparecer la siguiente informaci
 4.2.1 Salvo cuando se trate de alimentos de un único ingrediente, deberá figurar en la etiqueta una lista de ingredientes.
 4.2.1.1 La lista de ingredientes deberá ir encabezada o precedida por un título apropiado que consiste en el término “ingrediente” o lo incluya.
 4.2.1.2 Deberán enumerarse todos los ingredientes por orden decreciente de peso inicial (m/m) en el momento de la fabricación del alimento.
-4.2.1.3 Cuando un ingrediente sea a su vez producto de dos o más ingredientes, dicho ingrediente compuesto podrá declararse como tal en la lista de ingredientes, siempre que vaya acompañado inmediatamente de una lista entre paréntesis de sus ingredientes por orden decreciente de proporciones (m/m). Cuando un ingrediente compuesto, para el que se ha establecido un nombre en una Norma Nacional o del Codex Alimentarius, constituya menos del 25 por ciento del alimento, no será necesario declarar los ingredientes, salvo los aditivos alimentarios que desempeñan una función tecnológica en el producto acabado.
-4.2.1.4 En la lista de ingredientes deberá indicarse el agua añadida, excepto cuando el agua forme parte de ingredientes tales como la salmuera, el jarabe o el caldo empleados en un alimento compuesto y declarados como tales en la lista de ingredientes. No será necesario declarar el agua u otros ingredientes volátiles que se evaporan durante la fabricación.
-4.2.1.5 Como alternativa a las disposiciones generales de esta sección, cuando se trate de alimentos deshidratados o condensados destinados a ser reconstituidos, podrá enumerarse sus ingredientes por orden de proporciones (m/m) en el producto reconstituido, siempre que se incluya una indicación como la que sigue: “ingredientes del producto cuando se prepara según las instrucciones de la etiqueta”.
+4.2.1.3 Cuando un ingrediente sea a su vez producto de dos o más ingredientes dicho ingrediente compuesto podrá declararse como tal en la lista de ingredientes, siempre que vaya acompañado inmediatamente de una lista entre paréntesis de sus ingredientes por orden decreciente de proporciones (m/m). Cuando un ingrediente compuesto, para el que se ha establecido un nombre en una norma nacional o del Codex Alimentarius, constituya menos del cinco por ciento (5%) del alimento, no será necesario declarar los ingredientes, salvo los aditivos alimentarios que desempeñan una función tecnológica en el producto acabado y los ingredientes que puedan causar reacciones alérgicas a personas con hipersensibilidad de conformidad con el punto 4.2.1.4 siguiente.
+(Así reformado el numeral anterior mediante el artículo 2° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
+4.2.1.4 Se ha comprobado que los siguientes alimentos e ingredientes causan hipersensibilidad (1) y deberán declararse por su nombre:
+(1) La lista de ingredientes y aditivos que puedan causar hipersensibilidad, será actualizada de conformidad a las recomendaciones que el Codex Alimentarius a futuro añadan o elimine.
+- cereales que contienen gluten, por ejemplo, trigo, centeno, cebada, avena, espelta o sus cepas híbridas, y productos de éstos,
+- crustáceos y sus productos,
+- huevos y productos de los huevos ,
+- pescado y productos pesqueros,
+- maní, soja y sus productos,
+- leche y productos lácteos (incluida lactosa),
+- nueces de árboles y sus productos derivados,
+- sulfito en concentraciones de 10 mg/kg o más."
+Si alguno de los ingredientes o aditivos del punto anterior pudiera estar presente en el producto final aunque sea en forma no intencional y no se menciona en la lista de ingredientes, deberá colocarse luego de la misma una frase que indique claramente la posibilidad de su presencia, por ejemplo: "contiene…", "podría contener…", "podría contener trazas de…", entre otros."
+(Así adicionado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
+4.2.1.5 En la lista de ingredientes deberá indicarse el agua añadida, excepto cuando el agua forme parte de ingredientes tales como la salmuera, el jarabe o el caldo empleados en un alimento compuesto y declarados como tales en la lista de ingredientes. No será necesario declarar el agua u otros ingredientes volátiles que se evaporan durante la fabricación.
+(Así corrida la numeración del numeral anterior mediante el artículo 1° del decreto ejecutivo N° 33117 del 6 de abril del 2006, que lo traspaso del numeral 4.2.1.4 al 4.2.1.5 actual)
+4.2.1.6 Como alternativa a las disposiciones generales de esta sección, cuando se trate de alimentos deshidratados o condensados destinados a ser reconstituidos, podrá enumerarse sus ingredientes por orden de proporciones (m/m) en el producto reconstituido, siempre que se incluya una indicación como la que sigue: “ingredientes del producto cuando se prepara según las instrucciones de la etiqueta”.
+(Así corrida la numeración del numeral anterior mediante el artículo 1° del decreto ejecutivo N° 33117 del 6 de abril del 2006, que lo traspaso del numeral 4.2.1.5 al 4.2.1.6 actual)
 4.2.2 En la lista de ingredientes deberá emplearse un nombre específico de acuerdo con lo previsto en la subsección 4.1 (nombre del alimento), con la excepción de que:
 4.2.2.1 Podrán emplearse los siguientes nombres genéricos para los ingredientes que pertenecen a la clase correspondiente:
 Clases de ingredientes | Nombres genéricos
@@ -97,7 +112,8 @@ Almidón(es) modificado (s)
 La expresión “aromas” podrá estar calificada con los términos “naturales”, “idénticos a los naturales”, “artificiales” o con una combinación de los mismos.
 4.2.3 Coadyuvantes de elaboración y transferencia de aditivos alimentarios:
 4.2.3.1 Todo aditivo alimentario que, por haber sido empleado en las materias primas u otros ingredientes de un alimento, se transfiera a este alimento en cantidad notable o suficiente para desempeñar en él una función tecnológica, será incluido en la lista de ingredientes.
-4.2.3.2 Los aditivos alimentarios transferidos a los alimentos en cantidades inferiores a las necesarias para lograr una función tecnológica, y los coadyuvantes de elaboración, estarán exentos de la declaración en la lista de ingredientes.
+4.2.3.2 Los aditivos alimentarios transferidos a los alimentos en las cantidades inferiores a las necesarias para lograr una función tecnológica, y los coadyuvantes de elaboración, estarán exentos de la declaración en la lista de ingredientes. Esta excepción no se aplica a los aditivos alimentarios y coadyuvantes de elaboración mencionados en la sección 4.2.1.4.
+(Así reformado el numeral anterior mediante el artículo 2° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
 4.3 Contenido neto y peso escurrido.
 4.3.1 Deberá declararse el contenido neto en unidades del S. I. (“Systéme intemational”).
 4.3.2 El contenido neto deberá declararse de la siguiente forma:
@@ -165,7 +181,8 @@ Cuando se empleen designaciones de calidad, estas deberán ser fácilmente compr
 8.2.2 Cuando se aplique una nueva etiqueta o una etiqueta complementaría, la información obligatoria que se facilite deberá reflejar totalmente y con exactitud la información que figura en la etiqueta original.
 9 CORRESPONDENCIA
 Este documento es una homologación de:
-ITALIA. Comisión del Codex Alimentarius. Programa Conjunto FAO/OMS sobre Normas Alimentarías. CODEX STAN 1-1985 (Rev 1-1991) Norma General del Codex para el Etiquetado de los Alimentos reensados (Norma Mundial). Codex Alimentarius Volumen 1, Roma,
+ITALIA. Comisión del Codex Alimentarius. Programa Conjunto FAO/OMS sobre Normas Alimentarias. CODEX STAN 1-1985 (Rev. 1-1991) revisada en sus 16º y 19º períodos de sesiones (1985 y 1991), y enmendada en su 23º y 24º período de sesiones (1999 y 2001). (Norma Mundial).
+(Así reformado el numeral anterior mediante el artículo 2° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
 APÉNDICE A
 (NORMATIVO)
 DIRECTRICES GENERALES SOBRE DECLARACIÓN DE

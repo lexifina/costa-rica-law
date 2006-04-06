@@ -1,1 +1,1 @@
-Artículo 9°—A toda persona que haciendo uso de este reglamento, encuentre razón sustentada para pedir su revisión, se le solicita notificarlo a la Oficina Nacional de Normas y Unidades de Medida, sin demora, aportando, de ser posible, la información correspondiente para hacer las investigaciones necesarias y tomar las previsiones del caso.
+Artículo 9°—(Derogado mediante el artículo 3° del decreto ejecutivo N° 33117 del 6 de abril del 2006).

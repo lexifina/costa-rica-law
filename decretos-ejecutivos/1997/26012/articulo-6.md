@@ -1,1 +1,1 @@
-Artículo 6°—De acuerdo con lo que disponen los artículos 9° y 12 del decreto ejecutivo N 3892-MEIC del 18 de junio de 1974, la norma oficial a que se refiere este decreto es de cumplimiento obligatorio.
+Artículo 6°—(Derogado mediante el artículo 3° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
