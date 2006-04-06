@@ -1,1 +1,0 @@
-Artículo 9º—Los representantes señalados en el inciso h) del artículo 8 de este Reglamento, serán escogidos por la UCCAEP de entre los presidentes y vicepresidentes de las cámaras y organizaciones que la componen.

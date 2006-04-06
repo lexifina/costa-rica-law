@@ -1,1 +1,0 @@
-Artículo 6º—Las instituciones encargadas de tramitar y otorgar los diferentes beneficios mencionados en esta Ley establecerán los mecanismos necesarios para asegurar el cumplimiento de los requisitos de la Ley y de sus respectivos Reglamentos.

@@ -1,1 +1,0 @@
-Artículo 7º—En caso de que la Administración determine que las empresas tratan de inducir a error o engaño para obtener los beneficios contemplados en la Ley, se les suspenderá el goce de estos. Lo anterior sin perjuicio de plantear las denuncias penales correspondientes ante el Ministerio Público.

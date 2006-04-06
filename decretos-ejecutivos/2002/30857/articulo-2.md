@@ -1,1 +1,0 @@
-Artículo 2º—De las competencias: En su carácter de ente rector, corresponde al Ministerio de Economía, Industria y Comercio, coordinar las políticas públicas de apoyo para las PYME y establecer los mecanismos de coordinación interinstitucional, necesarios para impulsar los distintos programas tendentes a fortalecer integralmente a las PYME.
