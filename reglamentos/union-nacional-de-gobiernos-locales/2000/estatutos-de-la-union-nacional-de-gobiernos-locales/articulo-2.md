@@ -8,7 +8,8 @@ f. Mantener una constante divulgación e información de las actividades y gesti
 g. Canalizar los esfuerzos e inquietudes de las Municipalidades y Federaciones de Municipalidades ante los poderes Legislativo y Ejecutivo, procurando un efectivo cumplimiento y atención a las demandas de los gobiernos municipales.
 h. Gestionar, elaborar y canalizar ante organismos internacionales y países amigos, mecanismos de cooperación externa con las Municipalidades y Federaciones de Municipalidades.
 i. Informar a las Municipalidades y Federaciones de Municipalidades de las actividades, cursos y seminarios que se realizan anualmente en diversos países, procurando que el cuerpo político y administrativo de las Municipalidades y Federaciones de Municipalidades participen de esas actividades.
-j. Promover una activa y consciente participación de los Regidores, Alcaldes y Directores Ejecutivos de Federaciones de Municipalidades en las actividades de la Unión Nacional de Gobiernos Locales y en otros eventos del régimen municipal.
+j.Promover una activa y consciente participación de los Regidores, Regidoras, Alcaldes, Alcaldesas Síndicos, Síndicas, Intendentes, Intendentas, integrantes de los Concejos de distrito y Concejos Municipales de Distrito, y Directores Ejecutivos de Federaciones de Municipalidades en las actividades de la Unión Nacional de Gobiernos Locales y en otros eventos del régimen municipal.
+(Así reformado el inciso anterior mediante asamblea nacional extraordinaria del 07 de abril del 2006).
 k. Consolidar la Carrera Administrativa Municipal.
 l. Fomentar actividades que los órganos de la UNIÓN establezcan en pro del desarrollo y fortalecimiento de los gobiernos locales.
 m. Promover y gestionar la participación activa del gobierno central y de las instituciones nacionales e internacionales en asistencia técnica y financiera, con el fin de impulsar el mejoramiento de los gobiernos locales.

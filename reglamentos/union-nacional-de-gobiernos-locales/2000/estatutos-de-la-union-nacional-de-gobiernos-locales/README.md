@@ -14,3 +14,4 @@ Estatutos de la Unión Nacional de Gobiernos locales.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-26 | la propia norma |
+| 2 | 2006-04-07 | Reglamento 0 (2006-04-07) |
