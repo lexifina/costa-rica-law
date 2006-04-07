@@ -1,0 +1,3 @@
+Artículo 12.—Disposiciones generales obligatorias. Las disposiciones de este Reglamento son de aplicación vinculante y obligatoria para las unidades que conforman la organización de la Imprenta Nacional y para todos los funcionarios (as) de la Institución, encargados de recaudar, custodiar o administrar fondos y valores públicos, así como aquellos que no siendo empleados de la Imprenta se estén desempeñando en calidad de servidores públicos, según lo establece el artículo 2 de este Reglamento.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Acuerdo Firme Nº 49 de sesión extraordinaria N° 84 del 29 de marzo del 2006 de Junta Administrativa de la Imprenta Nacional, San José, a los veintinueve días del mes de marzo del dos mil seis.

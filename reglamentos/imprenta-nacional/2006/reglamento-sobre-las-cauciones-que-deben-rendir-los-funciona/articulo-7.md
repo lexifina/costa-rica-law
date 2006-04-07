@@ -1,0 +1,1 @@
+Artículo 7º—De los deberes del funcionario (a). Los funcionarios (as), llamados a caucionar deberán tomar las precauciones adecuadas y constantes para controlar la exactitud de las cuentas del dinero y de los valores a su cargo, y dar aviso inmediatamente de la pérdida, defraudación o situación ocurrida que afecte a la Hacienda Pública.

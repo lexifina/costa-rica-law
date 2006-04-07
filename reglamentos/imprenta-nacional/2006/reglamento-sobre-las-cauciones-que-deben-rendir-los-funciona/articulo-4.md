@@ -1,0 +1,1 @@
+Artículo 4º—De la forma de caucionar. Las únicas formas aceptables como garantías serán: depósito en efectivo o en bonos del Estado y las pólizas de Fidelidad que extienda el Instituto Nacional de Seguros.

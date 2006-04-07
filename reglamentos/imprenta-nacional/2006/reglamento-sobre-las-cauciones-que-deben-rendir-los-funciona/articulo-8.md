@@ -1,0 +1,1 @@
+Artículo 8º—Control de garantías. El Departamento Financiero y la Sección de Proveeduría deberán mantener un registro actualizado de los funcionarios (as) que deben rendir caución y de las garantías rendidas.
