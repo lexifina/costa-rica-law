@@ -16,3 +16,4 @@ Registro Nacional de Embarcaciones pertenecientes a la Flota Pequeña Escala, Me
 | 1 | 2006-02-24 | la propia norma |
 | 2 | 2006-03-03 | Acuerdo 98 (2006-03-03) |
 | 3 | 2006-03-31 | Acuerdo 158 (2006-03-31) |
+| 4 | 2006-04-07 | Acuerdo 174 (2006-04-07) |
