@@ -1,0 +1,2 @@
+Artículo 11.—Objetos permitidos. Las personas privadas de libertad podrán conservar únicamente en sus celdas o en su poder, los artículos que la Dirección General de Adaptación Social enuncie en una circular sobre el tema.
+Será obligación de los funcionarios penitenciarios velar por el cumplimiento de lo estipulado en esa circular, y la inobservancia de ese mandato constituirá falta grave para efectos disciplinarios.

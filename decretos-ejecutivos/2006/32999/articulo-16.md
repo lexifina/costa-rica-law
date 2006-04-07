@@ -1,0 +1,1 @@
+Artículo 16.—Educación. Es el principal instrumento de atención técnica en ese ámbito y estará orientado a la formación, educación académica y educación no formal. Se desarrollará en forma individual o en grupos de máximo cuatro personas, de manera sistemática y programada y en condiciones adecuadas de seguridad.

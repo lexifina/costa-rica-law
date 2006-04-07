@@ -1,0 +1,1 @@
+Artículo 3º—Objetivo. El régimen de máxima seguridad tiene como principal objetivo contener y atender a aquellas personas privadas de libertad que presenten un perfil criminológico con importante déficit de comportamiento individual y social, significativos niveles de conducta violenta y procesos de delincuencia organizada.

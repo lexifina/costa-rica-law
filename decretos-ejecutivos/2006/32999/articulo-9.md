@@ -1,0 +1,1 @@
+Artículo 9º—Sobre el egreso. El egreso del régimen de máxima seguridad será ordenado por el Consejo de Valoración del Régimen de Máxima Seguridad mediante acuerdo fundado, de acuerdo con la normativa vigente en esa materia.
