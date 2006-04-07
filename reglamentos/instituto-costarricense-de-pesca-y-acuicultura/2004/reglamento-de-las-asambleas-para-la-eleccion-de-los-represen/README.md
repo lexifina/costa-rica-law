@@ -14,3 +14,4 @@ Reglamento de las Asambleas para la Elección de los Representantes de los Pesca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-10 | la propia norma |
+| 2 | 2006-04-07 | Reglamento 0 (2006-04-07) |

@@ -1,1 +1,2 @@
-Artículo 11.—Los Representantes designados por las organizaciones descritas en el artículo 10, deberán aportar al momento de su registro ante la asamblea, el acuerdo de la organización representada, en el cual se consigne si asiste en calidad de propietario o de suplente.
+Artículo 11.—El Representante suplente designado por las organizaciones descritas en el artículo 10, deberá aportar al momento de su registro ante la Asamblea, el acuerdo de su nombramiento por parte de la organización que representa.
+(Así reformado mediante acuerdo AJDIP/173 del 07 de abril del 2006).

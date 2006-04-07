@@ -1,1 +1,2 @@
-Artículo 14.—La asamblea general para el nombramiento de los Representantes de los Pescadores y de los Acuicultores se llevará a cabo en el mes de diciembre, debiéndose convocar con al menos 22 días calendario de anticipación.
+Artículo 14.—La Asamblea General para el nombramiento de los Representantes de los Pescadores y de los Acuicultores se llevará a cabo en la primera quincena del mes de diciembre, debiéndose convocar con al menos 22 días calendario de anticipación. Para todos los efectos restantes se procederá conforme a lo establecido en éste Reglamento.
+(Así reformado mediante acuerdo AJDIP/173 del 07 de abril del 2006).
