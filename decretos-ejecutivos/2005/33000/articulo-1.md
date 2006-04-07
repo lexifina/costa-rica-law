@@ -1,0 +1,15 @@
+Nº 33000
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE EDUCACIÓN PÚBLICA
+Con fundamento en las atribuciones conferidas por el artículo 140, incisos 3) y 18), todos de la Constitución Política.
+Considerando:
+1º—Que Costa Rica ha procurado establecer un sistema educativo eficiente en cumplimiento de sus ideales por mejorar la educación, para lo cual se han tomado acciones como la Contextualización Curricular, que es el esfuerzo por integrar dentro del currículo planeado y administrado, los elementos de la realidad más cercana al alumno, para extraer de ella en un grado mayor de concreción, objetivos y actividades del proceso de enseñanza-aprendizaje.
+2º—Que la Ley Fundamental de Educación establece como fines de la educación costarricense “Conservar y ampliar la herencia cultural...”, “La formación de ciudadanos amantes de su Patria...” y, asimismo, impone la obligación del Estado de ofrecer la educación “en la forma más amplia y adecuada.”
+3º—Que para lograr esa contextualización curricular se debe acercar el currículo nacional a los intereses, motivaciones y expectativas de los diferentes grupos poblacionales, valorando la identidad cultural propia de los diferentes grupos poblacionales, dentro del esquema nacional y considerando las culturas específicas de esos grupos, como material significativo para los procesos de enseñanza-aprendizaje.
+4º—Que en la Provincia de Guanacaste se requiere ofrecer a su población estudiantil una contextualización curricular de los programas de estudio del sistema educativo que incluya todos los aspectos posibles que sean propios de su cultura e identidad, y que correspondan al concepto de “Guanacastequidad”.
+5º—Que la identidad del guanacasteco debe ser preservada, de manera que se refuerce su condición de amante, defensor y conocedor de la tierra que forjaron sus antepasados.
+6º—Que la Guanacastequidad se define como el conjunto de características, singulares que conforman el ser guanacasteco, su idiosincrasia, su identidad, su personalidad cultural, que se ha forjado en el cotidiano discurrir y en los acontecimientos trascendentales, floreciendo con fervor en el surco insomne del Guanacaste Eterno y que se expresa en variadas manifestaciones autóctonas, como su música, danza y literatura, comidas y bebidas, su lenguaje, las bombas, tallas y retahílas, la cultura sabanera, sus símbolos y hechos históricos fundamentales.
+7°—Que para conocer y defender todas esas realidades, la educación es la piedra angular que puede fortalecer la guanacastequidad por lo que se pretende guanacastequizar todos los Programas de Estudio. Por tanto,
+DECRETAN:
+Creación del Programa “Vivamos la Guanacastequidad”
+Artículo 1º—Declárese de interés educativo la promoción de la Contextualización Curricular en la provincia de Guanacaste, por medio del Programa “Vivamos la Guanacastequidad”, con el fin de fortalecer la cultura autóctona, mediante la incorporación de la guanacastequidad en la vivencia de sus valores y en la aprobación, modificación o adaptación de los Programas de Estudio a cargo del Consejo Superior de Educación.

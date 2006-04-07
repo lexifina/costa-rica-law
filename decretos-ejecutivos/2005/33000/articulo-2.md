@@ -1,0 +1,1 @@
+Artículo 2º—Para la elaboración de las propuestas curriculares cuya aprobación corresponda al Consejo Superior de Educación y sus respectivos materiales didácticos, el Ministro de Educación Pública conformará un Comité Provincial integrado por los Directores Regionales de Educación de Guanacaste, uno de los cuales coordinará según acuerdo interno.
