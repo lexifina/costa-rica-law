@@ -14,3 +14,4 @@ Reglamento para Celebrar Contratos para la Instalación y Operación de Ventanil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-10 | la propia norma |
+| 2 | 2006-04-10 | Reglamento 4381 (2006-03-23) |
