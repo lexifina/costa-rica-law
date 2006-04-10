@@ -1,0 +1,14 @@
+Nº 33002
+LA PRIMERA VICEPRESIDENTA EN EJERCICIO
+DE LA PRESIDENCIA DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA A. Í
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001 y su Reglamento, el Decreto Ejecutivo Nº 30058-H-MP-PLAN de 19 de diciembre del 2001; la Ley Nº 6289 de Creación de la Oficina Nacional de Semillas de 4 de diciembre de 1978 y el Decreto Ejecutivo Nº 32270-H de 1º de marzo del 2005 y sus reformas.
+Considerando:
+1º—Que mediante la Ley Nº 6289, publicada en La Gaceta Nº 7 del 10 de enero de 1979, se creó la Oficina Nacional de Semillas (ONS), adscrita al Ministerio de Agricultura y Ganadería, la cual tiene a su cargo la promoción y protección, el mejoramiento, control, y el uso de semillas de calidad superior, con el objeto de fomentar su uso.
+2º—Que la ONS requiere la ampliación del gasto presupuestario máximo autorizado para este año, con el propósito de renovar la flotilla de vehículos, actualizar el software, contratar consultorías y al auditor interno, acondicionar sus instalaciones y otros gastos que permitan a la entidad el cumplimiento de sus actividades normales.
+3º—Que mediante el Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 de marzo del 2005 y sus reformas, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el año 2006, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Poder Ejecutivo, estableciendo en el artículo 1º del citado Decreto, el gasto presupuestario máximo del presente año, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+4º—Que mediante el oficio STAP CIRCULAR 0496-05 del 7 de abril del 2005, se comunicó a la ONS el gasto presupuestario máximo fijado para el año 2006, el cual no contempla los gastos indicados en el considerando 2 anterior.
+5º—Que la mejora en los servicios de la ONS así como la cobertura en la demanda de los mismos, requiere de una ampliación del gasto presupuestario máximo autorizado a dicha oficina, para lo cual no serán requeridas transferencias de recursos por parte del Gobierno Central.
+6º—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo de la ONS para el 2006. Por tanto,
+DECRETAN:
+Artículo 1º—Modifícase para la Oficina Nacional de Semillas, el gasto presupuestario máximo fijado para el año 2006, establecido según lo dispuesto en el artículo 1º del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 del 17 de marzo del 2005 y sus reformas, de manera que éste no podrá exceder la suma de ¢306.2 millones en ese período.
