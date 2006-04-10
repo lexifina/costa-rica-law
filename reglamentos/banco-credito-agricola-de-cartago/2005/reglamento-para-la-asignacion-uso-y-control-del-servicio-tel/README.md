@@ -14,3 +14,4 @@ Reglamento para la Asignación, Uso y Control del Servicio Telefónico Celular, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-05 | la propia norma |
+| 2 | 2006-04-10 | Reglamento 7924 (2006-04-10) |
