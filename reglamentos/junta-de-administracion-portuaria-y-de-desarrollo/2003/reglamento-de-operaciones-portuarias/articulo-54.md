@@ -7,5 +7,5 @@ Operador de Montacargas | Movilización de la carga (recepción o entrega en la 
 Operador del Cabezal | Traslado de contenedores dentro de la zona portuaria en el ciclo de transferencia (mercancía de importación o exportación). | 1 a 4 minutos
 Operador de Straddle Carrier | Recepción y entrega de contenedores en el patio. | 1 a 3 minutos.
 Operador de grúa Puente | Movilización de contenedores, en carga y descarga de la nave dentro de zona portuaria. | 15 a 20 movimientos por hora.
-El trabajo realizado fuera de los rangos descritos será considerado inaceptable y se constatará mediante acta notarial levantada conjuntamente con la jefatura respectiva y sancionable directamente por el Presidente Ejecutivo conforme el Reglamento Interior de Trabajo.
-(Así adicionado mediante sesión Nº 14 del 6 de abril del 2006)
+El trabajo realizado inferior al rango descrito será considerado inaceptable y se constatará mediante acta notarial levantada conjuntamente con la jefatura respectiva y sancionable directamente por el Presidente Ejecutivo conforme el Reglamento Interior de Trabajo.
+(Así adicionado mediante sesión Nº 14 del 6 de abril del 2006 y posteriormente reformado mediante sesión N° 15 del 11 de abril del 2006)
