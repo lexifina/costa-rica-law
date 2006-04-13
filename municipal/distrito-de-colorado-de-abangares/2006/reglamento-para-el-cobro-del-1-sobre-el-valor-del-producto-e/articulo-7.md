@@ -1,0 +1,1 @@
+Artículo 7º—Pago del impuesto. El impuesto correspondiente será cancelado en la Tesorería Municipal, o en la cuenta corriente de la Municipalidad dentro de los treinta días posteriores a la fecha de cada exportación.

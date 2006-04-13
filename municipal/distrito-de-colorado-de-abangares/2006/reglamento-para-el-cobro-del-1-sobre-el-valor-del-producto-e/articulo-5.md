@@ -1,0 +1,1 @@
+Artículo 5º—El contribuyente o responsable podrá impugnar por escrito las observaciones o cargos formulado por la Municipalidad dentro del plazo de treinta días hábiles, contados a partir del día hábil siguiente de efectuada la notificación.

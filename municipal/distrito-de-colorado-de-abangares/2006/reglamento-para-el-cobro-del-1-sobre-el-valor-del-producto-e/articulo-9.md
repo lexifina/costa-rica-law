@@ -1,0 +1,1 @@
+Artículo 9º—Fiscalización. La Municipalidad tiene la facultad en cualquier tiempo por medio de sus inspectores, verificar y fiscalizar las declaraciones que se presenten, con el fin de constatar el correcto cumplimiento de las obligaciones tributarias a que se refiere este Reglamento.

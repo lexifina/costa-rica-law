@@ -1,0 +1,1 @@
+Artículo 8º—Infracciones. Conforme lo estipulado en el Código Municipal artículo 69, la falta o atraso en el pago del impuesto dentro del plazo legalmente establecido, generará un cobro de intereses moratorios que se calcularán según el Código de Normas y Procedimientos Tributarios.
