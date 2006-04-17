@@ -1,0 +1,6 @@
+CAPÍTULO II
+Del nombramiento de los representantes
+Artículo 3º—Nombramiento: El nombramiento de ambos representantes será competencia de la Junta Directiva del INFOCOOP. El cual será aprobado por mayoría simple:
+A. El nombramiento del o de los representantes será competencia de la Junta Directiva del INFOCOOP. El cual será aprobado por mayoría simple.
+B. El nombramiento de representante con perfil técnico, será realizado mediante un procedimiento que respete los principios de la Contratación Administrativa, que deberá ser realizado por el Proceso de Desarrollo Humano quien preparará una terna para que la Junta Directiva escoja la persona que representará al Instituto basado en la recomendación que emita dicha dependencia. En cuanto al nombramiento del representante de la Junta Directiva, que proceda de su seno se dará por medio de designación por uno de sus miembros para tal puesto. En caso de que se escoja un represente institucional de la planilla se deberá modificar temporalmente la carga de trabajo de dicha persona a fin de que pueda ejercer la representación institucional. Para dicha selección la Administración presentará a Junta Directiva una terna, señalando el perfil y experiencia de cada postulante.
+C. El período de nombramiento será de dos años.

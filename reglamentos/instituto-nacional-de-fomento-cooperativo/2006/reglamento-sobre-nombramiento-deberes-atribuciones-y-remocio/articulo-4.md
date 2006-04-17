@@ -1,0 +1,2 @@
+Artículo 4º—Reelección y prórroga. El representante con perfil técnico podrá ser reelegido para nuevos períodos para lo cual se elaborará un dictamen técnico, por parte del Proceso de Desarrollo Humano, sobre su desempeño y basado en ese dictamen se podrá realizar la respectiva prórroga contractual o iniciar un nuevo proceso de selección de acuerdo a la metodología de selección, evaluación y reclutamiento que siga dicho Proceso.
+En el caso del representante elegido del seno de la Junta Directiva su reelección será decidida a discreción de ese Órgano Colegiado
