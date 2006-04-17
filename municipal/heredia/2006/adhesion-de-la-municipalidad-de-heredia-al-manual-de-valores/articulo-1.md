@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE HEREDIA
+El Concejo Municipal de la Municipalidad de Heredia, de conformidad con lo acordado en sesión ordinaria Nº 319-2006, celebrada el día 13 de marzo del 2006, se acuerda por mayoría y en firme autorizar a la Municipalidad de Heredia, para que se adhiera a la publicación del documento Manual de Valores Base Unitarios por Tipología Constructiva, publicado en el Alcance Nº 48 a La Gaceta Nº 243 del 16 de diciembre del 2005, por parte del Órgano de Normalización Técnica del Ministerio de Hacienda, lo anterior para ser utilizado en todos los procesos relacionados con el impuesto sobre bienes inmuebles.
+Heredia, 27 de marzo del 2006.
