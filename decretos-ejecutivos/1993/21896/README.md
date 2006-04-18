@@ -24,3 +24,4 @@ Reglamento de Organización Administrativa de las Oficinas Centrales Ministerio 
 | 9 | 2002-11-18 | Decreto Ejecutivo 30850 (2002-11-18) |
 | 10 | 2003-10-17 | Decreto Ejecutivo 31579 (2003-10-17) |
 | 11 | 2005-06-07 | Decreto Ejecutivo 32568 (2005-06-07) |
+| 12 | 2006-04-18 | Decreto Ejecutivo 33059 (2006-04-18) |
