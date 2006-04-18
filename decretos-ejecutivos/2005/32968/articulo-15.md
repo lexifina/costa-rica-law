@@ -1,0 +1,1 @@
+Artículo 15.—En la primera quincena del mes de junio del año correspondiente a la elección de delegados a la Asamblea General, la Junta Directiva de la Corporación convocará a los productores e industriales al proceso eleccionario, que se desarrollará durante los meses de julio y agosto, para que elijan sus representantes ante la Asamblea General por un periodo de dos años.

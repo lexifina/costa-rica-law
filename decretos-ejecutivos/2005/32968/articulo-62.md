@@ -1,0 +1,1 @@
+Artículo 62.—Los miembros de la Junta Directiva serán responsables administrativa, civil y penalmente, por su gestión. Únicamente quedarán exentos de responsabilidad quienes hayan hecho constar su voto negativo en el acta correspondiente.

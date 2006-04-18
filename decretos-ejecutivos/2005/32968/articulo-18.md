@@ -1,0 +1,1 @@
+Artículo 18.—La convocatoria a la asamblea deberá ser enviada al domicilio de sus miembros, mediante carta circular, certificada o por medios electrónicos, debiendo enviarse la comunicación ocho días naturales antes del día de la sesión. Además, dicha convocatoria deberá publicarse con la misma antelación, en dos de los periódicos de mayor circulación nacional del país.

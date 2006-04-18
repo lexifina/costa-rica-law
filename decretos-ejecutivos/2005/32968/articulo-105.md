@@ -1,0 +1,5 @@
+Artículo 105.—La Corporación deberá destinar los recursos captados mediante la contribución obligatoria, a realizar las siguientes actividades:
+a. Sufragar los gastos de funcionamiento y operación, incluyendo gastos de inversión necesarios para el óptimo y eficiente funcionamiento de la Corporación.
+b. Fomentar, desarrollar y fortalecer las organizaciones y asociaciones de productores y agroindustriales inscritas en los registros de la Corporación.
+c. Cooperar, promover y financiar la identificación, elaboración, evaluación y ejecución de planes, programas y proyectos de investigación, capacitación, innovación y transferencia de tecnología, que se consideren pertinentes e idóneos a nivel nacional y regional, considerando el porcentaje de participación de cada región en la actividad arrocera nacional, tanto en la fase agrícola como en la agroindustrial.
+d. Promover y fomentar el desarrollo de la infraestructura agroindustrial en las regiones productoras de arroz, con el fin de minimizar las pérdidas postcosecha, disminuir los costos de transporte y generar nuevas fuentes de empleo en las zonas rurales.

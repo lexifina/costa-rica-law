@@ -1,0 +1,2 @@
+Transitorio único.—A los efectos de ajustar el período de vigencia en cuanto al nombramiento y funcionamiento de los diferentes órganos e instancias de elección de la Corporación, a lo dispuesto en la Ley Nº 8285, los miembros de los órganos de la Corporación que se encuentren en ejercicio de sus cargos se mantendrán en sus funciones hasta el 30 de setiembre del año 2006.
+Dado en la Presidencia de la República.—San José, a los veintiséis días del mes de octubre del dos mil cinco.

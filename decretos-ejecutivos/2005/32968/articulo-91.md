@@ -1,0 +1,4 @@
+Artículo 91.—El Registro de Importadores será anual y deberá mantenerse actualizado, funcionará en la sede central de la Corporación y deberá contener la siguiente información:
+a. Nombre completo del importador, detallando domicilio legal, número de cédula o cédula jurídica en caso de ser persona jurídica, número de teléfono, fax y correo electrónico.
+b. Información de las importaciones, indicando los siguientes datos: fecha, volumen, país de origen, valor, lugar de ingreso o aduana, tipo de arroz (granza pilado, integral, precocido, otros) y cualquier otra información que la Junta Directiva considere que es necesaria para los intereses de la actividad arrocera.
+La información anterior deberá ser suministrada por el importador directamente a la Corporación, al realizar el pago de la contribución obligatoria estipulada en el artículo Nº 103 de este Reglamento y en el artículo Nº 30 de la Ley Nº 8225.

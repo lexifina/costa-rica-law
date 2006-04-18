@@ -1,0 +1,1 @@
+Artículo 124.—El régimen común de sanciones aplicable en cuanto a la imposición de multas por transgresiones a las prohibiciones definidas legalmente para los agroindustriales y los productores, será el contenido en los artículos números 49 a 52 inclusive de la Ley Nº 8285.

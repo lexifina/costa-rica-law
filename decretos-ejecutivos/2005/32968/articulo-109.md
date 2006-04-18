@@ -1,0 +1,1 @@
+Artículo 109.—Los precios de toda la cadena productiva del arroz nacional serán establecidos por el MEIC, para lo cual la Corporación suministrará a éste los informes de costos de producción agrícola (arroz granza) y de industrialización (arroz pilado), además de cualquier otra información que éste requiera para mejor resolver.

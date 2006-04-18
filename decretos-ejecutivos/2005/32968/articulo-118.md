@@ -1,0 +1,1 @@
+Artículo 118.—El Decreto Ejecutivo mediante el cual se promulgue el desabastecimiento de arroz deberá indicar la partida y subpartidas, el inciso arancelario, la tarifa arancelaria reducida y el plazo durante el cual deberán realizarse las importaciones de arroz granza.

@@ -1,0 +1,1 @@
+Artículo 93.—Las relaciones de las asociaciones y organizaciones citadas en el artículo anterior con la Corporación deberán hacerse en forma obligatoria a través de los órganos formales de ésta, o sea, en el caso de los agroindustriales por medio de la asamblea de agroindustriales y en el caso de los productores por medio de las Juntas Regionales.

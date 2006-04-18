@@ -1,0 +1,1 @@
+Artículo 50.—El nombramiento como miembro de la Junta Directiva Regional será por un período de dos años, asumirán sus funciones y ejercerán las mismas durante los dos años agrícolas siguientes a su nombramiento.

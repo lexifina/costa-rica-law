@@ -1,0 +1,1 @@
+Artículo 75.—El superior jerárquico de la Auditoría Interna será el Auditor Interno, quien será nombrado o removido por la Junta Directiva, por mayoría simple de la totalidad de los miembros de Junta Directiva, o sea que se requiere por lo menos el voto favorable de seis directivos.

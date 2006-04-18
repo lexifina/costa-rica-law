@@ -1,0 +1,2 @@
+De la Asamblea General
+Artículo 13.—La Asamblea General es el órgano superior de la Corporación, responsable de dictar las políticas de CONARROZ. Estará compuesta por trece representantes de los agroindustriales; dieciséis representantes de los productores, y los Ministros de Agricultura y Ganadería y de Economía y Comercio, o sus respectivos Viceministros, estos últimos podrán participar con voz pero sin voto.

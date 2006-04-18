@@ -1,0 +1,1 @@
+Artículo 49.—La Junta Directiva Regional estará integrada por cinco miembros propietarios y cinco suplentes, los cuales deberán ser miembros de la Asamblea Regional de Productores y serán electos por ésta para integrar la Junta Regional de Productores respectiva.

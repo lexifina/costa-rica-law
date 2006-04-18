@@ -1,0 +1,1 @@
+Artículo 111.—La Junta Directiva de la Corporación, deberá conocer y aprobar los informes técnicos orientados a determinar los precios recomendados, los cuales deberán ser notificados al MEIC, para que éste decida sobre la fijación definitiva.

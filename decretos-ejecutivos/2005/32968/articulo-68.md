@@ -1,0 +1,1 @@
+Artículo 68.—En forma específica la Junta Directiva de la Corporación, podrá asesorar a su requerimiento, al Gobierno y a las instituciones del Estado en la negociación de convenios y tratados comerciales internacionales, que involucren o vinculen en forma directa o indirecta a la actividad arrocera nacional.

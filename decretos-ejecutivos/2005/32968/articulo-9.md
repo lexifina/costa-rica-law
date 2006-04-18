@@ -1,0 +1,2 @@
+Del Congreso Nacional
+Artículo 9º—El Congreso Nacional Arrocero, de conformidad con la Ley N° 8285 es un Foro permanente y válido para el Gobierno de la República, integrado por productores y agroindustriales, para analizar, estudiar y proponer soluciones a las situaciones científicas, técnicas, económicas y sociales que afecten la actividad arrocera costarricense y realizar propuestas de planes, programas y proyectos, que permitan el desarrollo, fomento, consolidación y sostenibilidad de la actividad arrocera nacional.

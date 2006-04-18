@@ -1,0 +1,1 @@
+Artículo 19.—La Asamblea podrá celebrarse; en la primera convocatoria, con la presencia del sesenta por ciento de los asambleístas . Si no se reuniere el quórum legal a la hora señalada, la sesión se celebrará una hora después con la asistencia de por lo menos el cuarenta por ciento de la totalidad de los miembros.

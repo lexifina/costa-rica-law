@@ -1,0 +1,1 @@
+Artículo 72.—El Director Ejecutivo será nombrado y removido por mayoría calificada de los miembros de la Junta Directiva, en votación realizada en forma específica para este fin, o sea que para elegir o destituir al Director Ejecutivo, se requieren al menos ocho votos a favor.

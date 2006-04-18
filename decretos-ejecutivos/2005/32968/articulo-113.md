@@ -1,0 +1,1 @@
+Artículo 113.—En ambos casos, la Corporación deberá informar al MAG y al MEIC, en detalle las situaciones anómalas y su origen, indicando las cantidades de arroz granza que se deberán exportar o importar y las fechas, en que estas transacciones deberán efectuarse para evitar problemas en el mercado interno.

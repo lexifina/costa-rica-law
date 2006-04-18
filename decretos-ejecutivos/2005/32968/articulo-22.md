@@ -1,0 +1,1 @@
+Artículo 22.—Las resoluciones y acuerdos se tomarán de conformidad con las disposiciones del artículo Nº 12 de la Ley Nº 8285 Ley de Creación de la Corporación Arrocera Nacional. Corresponderá a la Asamblea General, en forma soberana, definir los procedimientos y mecanismos de elección y votación, en respeto a los principios y disposiciones de la Ley y del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 37.—La convocatoria a la Asamblea Nacional de Productores, para cumplir lo dispuesto en este Reglamento, deberá ser enviada al domicilio de sus miembros, mediante carta circular, certificada o por medios electrónicos, debiendo enviarse la comunicación por lo menos ocho días naturales antes del día de la sesión.

@@ -1,0 +1,1 @@
+Artículo 128.—Los procedimientos se iniciarán de oficio o por atención de alguna denuncia, mediante acuerdo de la Junta Directiva, debidamente justificado. Además, la Junta Directiva procederá a nombrar al Órgano Director del Procedimiento y a ordenar el inicio del mismo.

@@ -1,0 +1,1 @@
+Artículo 67.—Serán obligaciones y atribuciones de la Junta Directiva, las expresamente mencionadas en el artículo Nº 20 de la Ley Nº 8285, y aquellas que siendo inherentes a su naturaleza y funciones, tiendan al cumplimiento de los fines y objetivos de la Corporación.

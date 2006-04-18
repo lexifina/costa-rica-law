@@ -1,0 +1,2 @@
+Del Régimen de Sanciones y Debido Proceso
+Artículo 125.—El procedimiento ante CONARROZ que pueda resultar en la imposición de alguna de las sanciones previstas en los artículos números 46 y 48 de la Ley, se iniciará por denuncia o de oficio. Las denuncias por infracción a la Ley podrán ser presentadas ante la oficina central o ante cualquier sucursal regional de la Corporación la que deberá remitirla de inmediato y sin más trámite a la Dirección Ejecutiva.

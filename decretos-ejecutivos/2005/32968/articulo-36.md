@@ -1,0 +1,1 @@
+Artículo 36.—La Asamblea Nacional de Productores, para los fines indicados en el artículo anterior, podrá celebrarse en primera convocatoria, con la presencia de por lo menos el sesenta por ciento de sus miembros. Si no se reuniere el quórum legal a la hora señalada, la sesión se celebrará una hora después con los delegados que estuvieren presentes.

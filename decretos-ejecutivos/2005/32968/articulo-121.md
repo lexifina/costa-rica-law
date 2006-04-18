@@ -1,0 +1,1 @@
+Artículo 121.—Los recursos y las utilidades que la Corporación obtenga, deberán ser utilizados e invertidos para el logro de sus fines y objetivos, de conformidad con las disposiciones establecidas en la Ley Nº 8285 y el presente Reglamento.

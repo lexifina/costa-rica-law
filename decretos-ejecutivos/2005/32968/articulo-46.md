@@ -1,0 +1,6 @@
+Artículo 46.—Las Asambleas Regionales de Productores son un órgano de la Corporación y tendrán, entre otras, las siguientes funciones:
+a. Nombrar las Juntas Directivas Regionales integradas por cinco miembros propietarios y cinco suplentes, los cuales actuarán como Junta Directiva de la Sucursal Regional de Productores en cada región y además son miembros de la Asamblea General de Productores.
+b. Elegir de entre los miembros de la Junta Directiva Regional y comunicar a la Asamblea Nacional de Productores, los delegados y suplentes que representarán a los productores de cada región, ante la Asamblea General.
+c. Elegir dentro de los miembros de la junta regional y comunicar a la Asamblea Nacional de Productores, los delegados y suplentes que representarán a los productores de cada región, ante la Junta Directiva.
+d. Conocer los asuntos propios de la actividad arrocera a nivel regional, nacional e internacional, relacionados con la actividad agrícola, elevar sus criterios y consideraciones a la Junta Directiva y la Asamblea General, especialmente aquellos que corresponden a su región.
+e. Otras funciones que les encomienden la Asamblea General o la Junta Directiva de la Corporación y aquellas que se encuentren dentro de los ámbitos de su competencia, las cuales serán definidas en el reglamento interno correspondiente.

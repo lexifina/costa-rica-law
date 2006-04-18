@@ -1,0 +1,1 @@
+Artículo 83.—Para que los productores de arroz y las agroindustrias arroceras puedan acogerse a las condiciones y prerrogativas de la Ley Nº 8285 y de este Reglamento deben inscribirse en los registros de productores y de agroindustriales de la Corporación Arrocera.
