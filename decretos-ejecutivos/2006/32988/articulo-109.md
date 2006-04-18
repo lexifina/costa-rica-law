@@ -1,0 +1,1 @@
+Artículo 109.—Colocación. La Tesorería Nacional definirá las estrategias de mercadeo e información de los productos financieros del Ministerio de Hacienda, conforme a los principios de publicidad, seguridad y transparencia. La colocación de los valores que conforman la cartera de la Tesorería Nacional se realizará a través de los diferentes mecanismos que ésta determine.

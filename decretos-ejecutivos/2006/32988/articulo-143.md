@@ -1,0 +1,1 @@
+Artículo 143.—Conservación. Todo bien que integra el patrimonio del Estado deberá ser conservado en condiciones apropiadas de uso, de acuerdo con su naturaleza, para lo que se le brindará mantenimiento preventivo, correctivo y sistemático, según corresponda.

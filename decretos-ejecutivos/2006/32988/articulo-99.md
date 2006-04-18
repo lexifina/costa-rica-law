@@ -1,0 +1,1 @@
+Artículo 99.—Liquidación de pagos. Los cajeros auxiliares deben hacer la liquidación por concepto de salarios, pensiones, proveedores, transferencias, alquileres y deducciones, de conformidad con las disposiciones aplicables del Sistema Interbancario de Negociación y Pagos Electrónicos del Banco Central y las normas operativas que emita la Tesorería Nacional.

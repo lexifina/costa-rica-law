@@ -1,0 +1,1 @@
+Artículo 86.—Cajas chicas y otros fondos autorizados por ley. La Tesorería Nacional emitirá la normativa y los procedimientos específicos para regular la operación de los fondos de caja chica y otros que la legislación autorice, dentro del marco de respeto al principio de caja única.

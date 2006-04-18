@@ -1,0 +1,1 @@
+Artículo 122.—Suministro de información. En el ejercicio de su competencia; corresponde a la Contabilidad Nacional proporcionar la información sobre la gestión financiera, patrimonial y presupuestaria de la Administración Central, y financiera consolidada del Sector Público.

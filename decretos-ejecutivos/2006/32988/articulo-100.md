@@ -1,0 +1,1 @@
+Artículo 100.—Cuota de pago. La Tesorería Nacional asignará semanalmente a los ministerios y al Tribunal Supremo de Elecciones las cuotas de pago a acreedores. Con base en dichas cuotas, estos órganos deberán realizar una propuesta de pago de sus obligaciones pendientes e informará a la Tesorería para que proceda a su pago.

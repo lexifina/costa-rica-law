@@ -1,0 +1,1 @@
+Artículo 25.—Órgano rector. La Dirección General de Presupuesto Nacional es el órgano rector del Subsistema de Presupuesto, que estará a cargo de un Director y un Subdirector Generales. El Director General será nombrado de conformidad con lo que se dispone en el artículo 177 de la Constitución Política.

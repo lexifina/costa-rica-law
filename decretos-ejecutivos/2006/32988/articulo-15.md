@@ -1,0 +1,1 @@
+Artículo 15.—Responsabilidad de cumplimiento. El máximo jerarca de cada órgano o entidad componente del Sector Público, cubierto por el ámbito de la Autoridad Presupuestaria, será responsable del cumplimiento de las directrices o lineamientos, generales y específicos, que estén vigentes.

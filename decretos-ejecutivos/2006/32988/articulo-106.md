@@ -1,0 +1,1 @@
+Artículo 106.—Instrumentos de financiamiento. El Ministerio de Hacienda, por medio de la Tesorería Nacional, podrá financiarse a través de la emisión de valores en los mercados locales o internacionales, conforme a los procedimientos del mercado financiero y en estricto apego al ordenamiento jurídico vigente.

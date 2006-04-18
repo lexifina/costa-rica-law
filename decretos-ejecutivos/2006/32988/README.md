@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 32988
+
+Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos
+
+- Tipo: Decreto Ejecutivo
+- Número: 32988
+- Fecha: 2006-01-31
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 74 del 2006-04-18
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=56874&param2=62375&param3=1 (ficha 56874)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2006-04-18 | la propia norma |

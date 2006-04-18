@@ -1,0 +1,1 @@
+Artículo 112.—Anticipos. Cuando por disposición legal la Tesorería Nacional deba financiar en forma anticipada, parte de los recursos requeridos para atender las necesidades de los diferentes proyectos financiados con préstamos externos, deberá velar por que los montos cargados a cuenta de la caja única sean reintegrados en los plazos fijados para tales efectos.

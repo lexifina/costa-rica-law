@@ -1,0 +1,1 @@
+Artículo 16.—Control y seguimiento. Corresponderá a la Secretaría Técnica de la Autoridad Presupuestaria mantener un control del cumplimiento de las directrices o lineamientos, generales y específicos.

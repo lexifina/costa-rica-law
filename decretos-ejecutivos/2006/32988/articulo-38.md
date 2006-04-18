@@ -1,0 +1,1 @@
+Artículo 38.—Asignación de recursos financieros. A más tardar el 15 de abril de cada año, previa presentación ante el Consejo de Gobierno, el Ministerio de Hacienda comunicará a los órganos de la Administración Central los lineamientos generales y específicos para la asignación de los recursos financieros del siguiente ejercicio económico.

@@ -1,0 +1,1 @@
+Artículo 118.—Deber de colaboración. La Dirección de Crédito Público podrá solicitar a las entidades públicas y privadas y a las Unidades Ejecutoras de proyectos financiados con endeudamiento público, el suministro de cualquier información que requiera para el ejercicio de sus funciones en el ámbito de su competencia.

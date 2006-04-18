@@ -1,0 +1,1 @@
+Artículo 12.—Suministro de información. Las entidades y órganos componentes del Sistema de Administración Financiera del Sector Público, estarán obligados a suministrar la información que se les solicite para elaborar la programación macroeconómica.

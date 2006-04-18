@@ -1,0 +1,1 @@
+Artículo 60.—Incorporación de saldos. A más tardar el 15 de abril de cada año, mediante Decreto Ejecutivo, el Ministerio de Hacienda incorporará los saldos disponibles de las fuentes de financiamiento del crédito público externo, previa certificación que emitirá la Contabilidad Nacional sobre la efectividad de esos recursos.

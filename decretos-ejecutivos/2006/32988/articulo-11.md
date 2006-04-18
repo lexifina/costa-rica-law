@@ -1,0 +1,1 @@
+Artículo 11.—Contenido de la programación macroeconómica. La programación macroeconómica considerará la elaboración de escenarios macroeconómicos que contendrán información relevante sobre el funcionamiento de los sectores fiscal, real, monetario y de balanza de pagos de la economía costarricense.

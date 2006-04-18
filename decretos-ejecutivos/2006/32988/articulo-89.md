@@ -1,0 +1,1 @@
+Artículo 89.—Suscripción de contratos. En los contratos con los cajeros auxiliares, el Ministerio de Hacienda estipulará los derechos y las obligaciones que asumen las partes, en los que se entenderán incorporados las normas técnicas que dicte la Tesorería Nacional y las que emita el Banco Central para el Sistema Interbancario de Negociación y Pagos Electrónicos (SINPE).

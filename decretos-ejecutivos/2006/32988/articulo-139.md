@@ -1,0 +1,2 @@
+Artículo 139.—Control y fiscalización. Corresponde a la Dirección General de Administración de Bienes y Contratación Administrativa velar por el correcto cumplimiento de las operaciones que se relacionen con los procedimientos de contratación, almacenamiento y distribución o tráfico de bienes.
+Para los efectos de lo dispuesto en el párrafo anterior, podrá solicitar la información pertinente a los órganos de la Administración Central, los que estarán obligadas a brindarla, de conformidad con lo señalado en los artículos 57 y 99, inciso b) de la Ley Nº 8131.

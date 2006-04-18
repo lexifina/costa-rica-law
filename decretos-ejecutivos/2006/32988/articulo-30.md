@@ -1,0 +1,1 @@
+Artículo 30.—Normativa técnica. La Dirección General de Presupuesto Nacional dictará la normativa técnica y las disposiciones adicionales que estime pertinentes para el proceso de programación, formulación, ejecución, control y evaluación del Presupuesto de la República.

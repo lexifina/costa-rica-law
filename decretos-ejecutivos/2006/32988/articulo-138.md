@@ -1,0 +1,1 @@
+Artículo 138.—Conformación. La Dirección General de Administración de Bienes y Contratación Administrativa contará con el personal que sea necesario para el cumplimiento de sus labores y tendrá la estructura organizativa que defina el Poder Ejecutivo, mediante Reglamento, a propuesta del Director General del Sistema Complementario.

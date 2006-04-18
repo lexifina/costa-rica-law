@@ -1,0 +1,1 @@
+Artículo 85.—Información al Ministro. La Tesorería Nacional mantendrá informado al Ministro de Hacienda sobre la situación de caja del Gobierno de la República, mediante el acceso en línea a sus sistemas de información.

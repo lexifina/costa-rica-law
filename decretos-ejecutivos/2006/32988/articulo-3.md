@@ -1,0 +1,1 @@
+Artículo 3º—Órgano rector. El Ministerio de Hacienda es el órgano rector del Sistema de Administración Financiera del Sector Público, para lo cual emitirá la normativa técnica y disposiciones adicionales que estime pertinentes para el cumplimiento de los objetivos del Sistema.

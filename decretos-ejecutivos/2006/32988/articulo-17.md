@@ -1,0 +1,2 @@
+Artículo 17.—Nombramiento de representante. El Presidente de la República nombrará el Ministro a que se refiere el inciso c) del artículo 22 de la Ley Nº 8131, mediante acuerdo ejecutivo. Igual procedimiento se seguirá en aquellos casos en que el Ministro de Planificación Nacional y Política Económica, designe un representante.
+El órgano se encontrará inhabilitado para sesionar mientras no esté debidamente integrado.

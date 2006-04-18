@@ -1,0 +1,2 @@
+Artículo 144.—Bienes en mal estado o desuso. Son susceptibles de donación o venta los bienes muebles declarados en desuso o en mal estado, para lo cual deberá contarse con un avalúo previo de los bienes, realizado por el órgano competente.
+Las donaciones sólo podrán efectuarse hasta por el monto y en las condiciones que fije la Dirección General del Sistema de Administración Bienes y Contratación Administrativa. Para los casos de venta, ésta se hará únicamente por medio de remate público y la base será la fijada en el avalúo respectivo.

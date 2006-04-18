@@ -1,0 +1,2 @@
+Artículo 105.—Gestión de riesgos. La Tesorería Nacional también será responsable de utilizar, en consulta con el Banco Central de Costa Rica, los instrumentos formalmente definidos en los mercados internacionales para la cobertura del riesgo cambiario o de tasas de interés, o bien adquirir divisas anticipadamente, para lo que estará sujeta a lo que defina en forma previa el Poder Ejecutivo, mediante Decreto.
+En las distintas operaciones a que se refiere este artículo deberán imperar los principios de publicidad, seguridad y transparencia.

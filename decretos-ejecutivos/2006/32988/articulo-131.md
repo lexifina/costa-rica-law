@@ -1,0 +1,1 @@
+Artículo 131.—Integración entre contabilidad presupuestaria y patrimonial. La Contabilidad Nacional diseñará e implementará los mecanismos necesarios para convertir automáticamente los registros presupuestarios en patrimoniales, de manera que, a partir del registro único de cada transacción presupuestaria, se generen las diferentes afectaciones en los demás registros contables.

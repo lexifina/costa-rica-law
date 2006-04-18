@@ -1,0 +1,1 @@
+Artículo 93.—Obligatoriedad del pago. Los montos incluidos en los presupuestos nacionales no constituyen una obligación indefectible de pago para la Tesorería Nacional, por lo que estarán sujetos para su disposición efectiva, a la situación fiscal del país y a la disponibilidad de recursos en el Tesoro Público.

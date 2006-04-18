@@ -1,0 +1,1 @@
+Artículo 18.—Normas de funcionamiento. En lo relativo a su funcionamiento, la Autoridad Presupuestaria se regirá por lo dispuesto en los artículos 49, siguientes y concordantes de la Ley General de la Administración Pública, que regulan los órganos colegiados.

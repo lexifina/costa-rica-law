@@ -1,0 +1,1 @@
+Artículo 77.—Responsabilidad. El cumplimiento de las metas establecidas será responsabilidad de la máxima autoridad de la unidad ejecutora del respectivo programa y subprograma. El incumplimiento será sancionado de conformidad con lo dispuesto en el Título X, Régimen de Responsabilidad, establecido en la Ley Nº 8131, sin perjuicio de otra normativa aplicable.

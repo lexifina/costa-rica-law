@@ -1,0 +1,1 @@
+Artículo 150.—Deber de colaboración. La Dirección General de Administración de Bienes y Contratación Administrativa podrá solicitar a las proveedurías institucionales, el suministro de cualquier información que requiera para el ejercicio de sus funciones en el ámbito de su competencia.

@@ -1,0 +1,1 @@
+Artículo 14.—Obligatoriedad. Las directrices o lineamientos, generales y específicos, a que se refiere el artículo anterior, una vez publicados serán de acatamiento obligatorio, debiendo ser tomados en cuenta en la elaboración de los proyectos de presupuesto.

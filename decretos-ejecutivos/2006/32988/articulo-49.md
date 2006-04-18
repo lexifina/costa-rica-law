@@ -1,0 +1,1 @@
+Artículo 49.—Apoyo técnico. El Ministerio de Hacienda, por medio de la Dirección General de Presupuesto Nacional, brindará la colaboración y la asesoría técnica que la Asamblea Legislativa le requiera para el proceso de discusión y aprobación del proyecto de ley de Presupuesto Nacional.

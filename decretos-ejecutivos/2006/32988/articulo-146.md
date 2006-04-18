@@ -1,0 +1,1 @@
+Artículo 146.—Descarga del registro. Toda donación, venta o destrucción de bienes implica una descarga del registro de bienes de la Administración Central, para lo cual se seguirán los procedimientos que al efecto establezca la Dirección General de Administración de Bienes y Contratación Administrativa, en coordinación con la Contabilidad Nacional.

@@ -1,0 +1,4 @@
+Artículo 55.—Firmeza de los registros. El registro de las operaciones contables que se realizan durante el proceso de ejecución presupuestaria, adquirirá su firmeza cuando:
+a) Haya sido completado satisfactoriamente el procedimiento establecido para su registro electrónico en los sistemas de información que autorice el ente rector del Sistema de Administración Financiera.
+b) Los documentos que se generan en el proceso cumplan con los requerimientos técnicos y jurídicos establecidos en los Manuales de Procedimientos del Sistema Integrado de la Gestión de la Administración Financiera y la normativa legal vigente.
+Previo a la adquisición de bienes o servicios que no estén determinados dentro del Diccionario de Imputaciones Presupuestarias vigente; el responsable de la Unidad Financiera del árgano de que se trate, canalizará la consulta ante la Dirección General de Presupuesto Nacional, quien en definitiva resolverá sobre la clasificación presupuestaria pertinente.

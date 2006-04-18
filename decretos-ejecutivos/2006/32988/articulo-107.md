@@ -1,0 +1,1 @@
+Artículo 107.—Política de endeudamiento. Para los efectos del artículo anterior, la Tesorería Nacional estará sujeta a la política de endeudamiento público, de mediano y largo plazo, aprobada por la Autoridad Presupuestaria.

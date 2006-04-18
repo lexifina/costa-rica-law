@@ -1,0 +1,1 @@
+Artículo 32.—Presupuesto extraordinario. El presupuesto extraordinario contendrá los ingresos extraordinarios que se presuman durante el ejercicio económico de que se trate, así como los egresos que se financiarán durante el ejercicio con dichos ingresos.
