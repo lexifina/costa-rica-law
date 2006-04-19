@@ -3,7 +3,8 @@ a) Solicitud de reparación, ampliación o construcción en el formulario que la
 b) Presentar una certificación del Registro de la Propiedad.
 c) Presentar fotocopia del plano catastrado de la propiedad.
 d) La solicitud debe venir con los respectivos timbres fiscales y municipales.
-e) No se tramitarán permisos municipales de construcción, reparación, ampliación, remodelación, demolición, excavación o relleno de un terreno, si el interesado no demuestra a la oficina de Ingeniería Municipal, mediante constancia emitida por el Departamento de Rentas y Patentes, estar al día en el pago de los diferentes impuestos y tasas municipales, así como no tener ningún asunto pendiente con la municipalidad sea cual sea su naturaleza, como son: traspaso de bienes pendientes a la Municipalidad, desarrollo de urbanizaciones pendientes, entre otros.
+e) No se tramitarán permisos municipales de construcción, reparación, ampliación, remodelación, demolición, excavación o relleno de un terreno, si el interesado no demuestra a la oficina de Ingeniería Municipal, visto bueno del Departamento de Rentas y Cobranzas que demuestre estar al día en el pago de los tributos municipales, así como no tener ningún asunto pendiente con la municipalidad sea cual sea su naturaleza, como son: traspaso de bienes pendientes a la Municipalidad, desarrollo de urbanizaciones pendientes, entre otros.
+(Así reformado el inciso anterior en sesión N° 424 del 4 de abril de 2006)
 f) Presentar planos de los trabajos debidamente firmados por un ingeniero responsable o arquitecto; sea construcción de vivienda nueva o ampliación hasta una segunda planta, deberá tramitarse previo a la aprobación municipal, la aprobación de:
 1. Colegio de Ingenieros y Arquitectos.
 2. Centro de Salud de Santa Bárbara.
