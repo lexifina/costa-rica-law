@@ -1,0 +1,1 @@
+Artículo 7º—Las construcciones ubicadas en zonas de control especial, en calles o plazas donde existan construcciones declaradas monumentos nacionales de valor excepcional, histórico o arquitectónico, deben armonizar con el ambiente general del lugar.
