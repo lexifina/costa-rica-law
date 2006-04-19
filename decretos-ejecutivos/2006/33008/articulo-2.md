@@ -1,0 +1,1 @@
+Artículo 2º—Se deroga el RAC-119 Reglamento de Certificados de Operador Aéreo (COA) Certificados Operativos y Autorizaciones de Operación, publicado mediante Decreto Ejecutivo número 28262-MOPT, en La Gaceta número 234, del 2 de diciembre de 1999.
