@@ -11,3 +11,4 @@ Considerando:
 6º—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado al Sistema Nacional de Radio y Televisión Cultural S. A. (SINART S. A.) para el año 2006. Por tanto,
 DECRETAN:
 Artículo 1º—Modifícase el gasto presupuestario máximo del año 2006 establecido al Sistema Nacional de Radio y Televisión Cultural S. A. (SINART S. A.), en el artículo 1° del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 de marzo del 2005, fijándolo en ¢1.247.9 millones en ese período.
+(El presente decreto fue modificado por Art ° del Decreto Ejecutivo N° 33064 del 8 de marzo del 2006 en el siguiente sentido: "Modifícase el gasto presupuestario máximo del año 2006 establecido al Sistema Nacional de Radio y Televisión Cultural S. A. (Sinart S. A.), en el artículo 1° del Decreto Ejecutivo Nº 32991-H, publicado en La Gaceta Nº 66 de 3 de abril del 2006, fijándolo en ¢1.346.8 millones en ese período.")

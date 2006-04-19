@@ -14,3 +14,4 @@ Modifica al Sistema Nacional de Radio y Televisión Cultural S.A. (SINART S.A.),
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-03 | la propia norma |
+| 2 | 2006-04-19 | Decreto Ejecutivo 33067 (2006-04-19) |
