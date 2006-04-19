@@ -1,0 +1,1 @@
+Artículo 4º—Las distintas instancias del MINAE, del Estado y Gobiernos locales tramitarán, con la debida agilidad otros trámites y autorizaciones que gestione la CNFL para el adecuado desarrollo del Proyecto Hidroeléctrico El Encanto.
