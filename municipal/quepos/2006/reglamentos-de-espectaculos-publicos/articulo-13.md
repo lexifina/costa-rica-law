@@ -1,0 +1,1 @@
+Artículo 13.—Pago del tributo. El impuesto deberá ser cancelado únicamente en las cajas recaudadoras de la Municipalidad. Los espectáculos públicos permanentes deberán cancelar el impuesto, el último día hábil del mes que se trate, en tanto que los espectáculos públicos ocasionales, deberán cancelar el impuesto, el día hábil posterior a la realización del evento.

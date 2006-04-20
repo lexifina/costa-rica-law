@@ -1,0 +1,1 @@
+Artículo 34.—Se otorga un plazo de tres meses, a partir de la publicación de este Reglamento, para que las personas físicas o jurídicas que cuenten con permiso de espectáculo público, cumplan con este Reglamento.

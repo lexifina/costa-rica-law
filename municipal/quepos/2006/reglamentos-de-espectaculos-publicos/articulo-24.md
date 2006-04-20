@@ -1,0 +1,1 @@
+Artículo 24.—Deber de informar sobre conductas sancionables. Es deber de los funcionarios municipales asignados, así como de la Fuerza Pública o de la Policía Municipal, informar a la Municipalidad de las personas físicas o jurídicas que contravengan lo dispuesto en el presente Reglamento. Dichos informes serán canalizados por medio del Departamento Legal de la Municipalidad.
