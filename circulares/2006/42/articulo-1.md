@@ -1,0 +1,7 @@
+CIRCULAR Nº 42-2006
+ASUNTO: Sobre Ejecuciones de Sentencias.
+A TODAS LAS AUTORIDADES JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior, en Sesión Nº 12-06, celebrada el 23 de febrero de dos mil seis, artículo LII, dispuso comunicarles que en adelante, deben indicar claramente en las ejecuciones de sentencia en que una de las partes es el Estado, si el dinero correspondiente a los daños y perjuicios e intereses, debe ser depositado en la cuenta corriente del despacho o cancelado directamente a los interesados por parte de la administración de la institución de que se trate. En este último supuesto, en el caso de la Administración del Poder Judicial, deberá informar al Despacho Judicial que corresponda, del detalle del pago realizado. En cualquiera de los dos casos, el dinero que corresponda a las costas necesariamente deberá ser depositado en la cuenta corriente del despacho.
+Los dineros de costas a favor del Estado, sólo se depositarán en la Cuenta Corriente Nº 27497-6 del Banco de Costa Rica, denominada “Fondo de Costas a favor del Estado” y cuando se condene al Estado al pago de costas con cargo al “Fondo de Costas a favor del Estado”, su pago será tramitado por el Departamento Financiero Contable siempre y cuando se adjunte la orden de giro debidamente cumplimentada y el documento que demuestre que la Procuraduría General de la República fue notificada de este giro de recursos contra la cuenta corriente citada.
+San José, 27 de marzo del 2006.
