@@ -14,3 +14,4 @@ Clasificador Presupuestario Institucional de uso generalizado para el Sector Pú
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-04-23 | la propia norma |
+| 2 | 2006-04-20 | Decreto Ejecutivo 33086 (2006-04-20) |

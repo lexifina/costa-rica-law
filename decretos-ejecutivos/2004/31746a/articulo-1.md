@@ -1,4 +1,6 @@
+(Derogado)
 Nº 31746-H
+(Este decreto fue derogado por el artículo 5° del decreto ejecutivo N° 33086 del 20 de abril de 2006, “Emite documento denominado "Clasificador Institucional del Sector Público")
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; artículo 25 inciso 1), artículo 27 inciso 1), artículo 28 inciso 2) acápite b) de la Ley Nº 6227 o Ley General de la Administración Pública del 2 de mayo de 1978, Ley Nº 8131 o Ley de la Administración Financiera de la República y Presupuestos Públicos y sus reformas del 18 de setiembre de 2001, y el Decreto Ejecutivo Nº 30058-H-MP-PLAN y sus reformas de 19 de diciembre del 2001.
@@ -90,7 +92,6 @@ f.- Finalmente, los últimos tres dígitos del sexto nivel son de uso de control
 [imagen]
 ESTRUCTURA
 La estructura base del clasificador parte de un primer nivel denominado Sector Público con dos grandes ramificaciones que dan origen al Sector Público No Financiero y Sector Público Financiero, los cuales se van subdividiendo hasta llegar al nivel de Instituciones en que se identifica cada entidad en forma individual con su respectivo código, por medio de la utilización de los tres dígitos del quinto nivel. A continuación se presenta esquemáticamente la estructura del sector público de acuerdo al clasificador institucional:
-[imagen]
 DETALLE DEL CLASIFICADOR INSTITUCIONAL
 [imagen]
 1.0.0.0.000.000 SECTOR PÚBLICO
