@@ -1,0 +1,11 @@
+Nº 32941
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+En uso de las facultades que les confieren los artículos 140, incisos 3), 8), 18) y 20) y 146 de la Constitución Política, los artículos 25, 27.1, 28.2b de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública y la Ley Nº 7064 del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería.
+Considerando:
+1º—Que la agricultura orgánica en los sistemas de producción agrícola se ha convertido paulatinamente en una excelente alternativa y opción para los productores agrícolas, con la finalidad de obtener mejores rendimientos por el valor agregado a los productos, el acceso a mercados internacionales importantes y la armonía entre la producción sustentable y la conservación y protección del ambiente.
+2º—Que los productores agrícolas orgánicos nacionales necesitan obtener conocimientos e información, que les permita mantener una continúa preparación, para enfrentar los nuevos retos que surgen producto de un mundo globalizado y poder así atender las exigencias y los desafíos mundiales en materia de producción, rentabilidad, eficiencia, calidad, competitividad, sanidad, control de plagas y mercadeo de productos.
+3º—Que del 27 de marzo al 1° de abril del año 2006, se estará realizando en nuestro país, el Taller de Agricultura Orgánica Sustentable en Pequeña Escala, promocionado por organizaciones nacionales e internacionales, como el Movimiento de Agricultura Orgánica Costarricense (MAOCO), el Programa Nacional de Agricultura Orgánica del MAG, el IICA, Ecology Action de Estados Unidos y EcoPol de México.
+4º—Que el Taller indicado contará con la participación de expositores internacionales y en él se tratarán importantes temas relacionados con la agricultura orgánica, entre ellos: Como mejorar la productividad a pequeña escala de fincas diversificadas en producción orgánica, producción de semillas orgánicas, seguridad alimentaria y elaboración de abonos orgánicos. Por tanto;
+DECRETAN:
+Artículo 1º—Se declara de interés público y nacional, la realización del Taller de Agricultura Orgánica Sustentable en Pequeña Escala, que se celebrará en nuestro país, del 27 de marzo al 1° de abril del año 2006.
