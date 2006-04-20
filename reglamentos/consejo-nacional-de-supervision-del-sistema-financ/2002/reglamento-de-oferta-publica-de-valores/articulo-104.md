@@ -1,2 +1,0 @@
-Artículo 104.—Sujetos autorizados. Además de los emisores de valores autorizados para oferta pública, en relación con tales valores, los puestos de bolsa podrán realizar oferta pública de valores, siempre y cuando cumplan con los trámites de autorización establecidos en el presente Título.
-(Así MODIFICADA su numeración en las Sesiones Ordinarias No. 376-2003 y 377-2003, celebradas el 17 de junio de 2003, publicadas en La Gaceta No. 125 de 01 de julio de 2003, por las cuales el artículo 106 pasó a ser el 104.)

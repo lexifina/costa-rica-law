@@ -1,4 +1,0 @@
-Artículo 50.—Colocaciones directas
-Se consideran colocaciones directas las que realiza el emisor sin intervención de un intermediario financiero o bursátil y los contratos de colocación en firme, en garantía o a mejor esfuerzo que suscriba el emisor con un intermediario autorizado. Para estos efectos se consideran intermediarios autorizados los puestos de bolsa y los bancos, estos últimos con las limitaciones que les impone su legislación específica.
-En el caso de fondos de inversión, se considerará colocación directa la que se realice por medio de los agentes colocadores designados por la sociedad administradora correspondiente.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por las Sesiones Ordinarias No. 376-2003 y 377-2003, celebradas el 17 de junio de 2003, publicadas en La Gaceta No. 125 de 01 de julio de 2003.)

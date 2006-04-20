@@ -1,3 +1,0 @@
-Artículo 111.—Atribución del Superintendente de incorporar leyendas adicionales. Además de las leyendas que aquí se establecen, el Superintendente podrá, por acuerdo motivado, solicitar la inclusión de leyendas adicionales en la publicidad sobre la oferta pública de valores, cuando así lo estime necesario para la correcta revelación de los riesgos existentes en un producto o una entidad.
-Igualmente podrá establecer normas de diseño y estética para las leyendas, con el propósito de asegurar que éstas sean legibles.
-(Así MODIFICADA su numeración en las Sesiones Ordinarias No. 376-2003 y 377-2003, celebradas el 17 de junio de 2003, publicadas en La Gaceta No. 125 de 01 de julio de 2003, por las cuales el artículo 113 pasó a ser el 111.)

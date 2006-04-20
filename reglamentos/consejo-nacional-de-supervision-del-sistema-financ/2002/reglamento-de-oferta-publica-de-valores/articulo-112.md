@@ -1,3 +1,0 @@
-Artículo 112.—Disponibilidad de la publicidad realizada. Los emisores de valores autorizados, así como las personas autorizadas para realizar oferta pública de valores, deberán mantener disponible en sus oficinas una copia de toda la publicidad realizada.
-El Superintendente podrá solicitarles la remisión de una copia de cualquier publicidad impresa que realicen, así como de los textos de los avisos de radio y televisión. Estos envíos se realizarán en los plazos que éste indique.
-(Así MODIFICADA su numeración en las Sesiones Ordinarias No. 376-2003 y 377-2003, celebradas el 17 de junio de 2003, publicadas en La Gaceta No. 125 de 01 de julio de 2003, por las cuales el artículo 114 pasó a ser el 112.)

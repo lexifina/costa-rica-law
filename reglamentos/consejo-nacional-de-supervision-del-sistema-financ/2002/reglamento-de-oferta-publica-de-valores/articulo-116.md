@@ -1,2 +1,0 @@
-Artículo 116.—Información de precios. Las estadísticas de las bolsas de valores deberán detallar estas operaciones en forma separada de las que se realicen con títulos inscritos.
-(Así MODIFICADA su numeración en las Sesiones Ordinarias No. 376-2003 y 377-2003, celebradas el 17 de junio de 2003, publicadas en La Gaceta No. 125 de 01 de julio de 2003, por las cuales el artículo 118 pasó a ser el 116.)

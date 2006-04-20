@@ -1,1 +1,0 @@
-Artículo 53.—Información sobre las captaciones en ventanilla. Los emisores deberán remitir a la Superintendencia y a la bolsa de valores, un informe sobre las colocaciones realizadas en ventanilla, con el contenido y la periodicidad que determine el Superintendente.

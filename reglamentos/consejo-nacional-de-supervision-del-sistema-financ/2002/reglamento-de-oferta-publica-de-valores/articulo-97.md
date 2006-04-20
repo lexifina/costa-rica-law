@@ -1,2 +1,0 @@
-Artículo 97.—Obligatoriedad de una oferta pública de adquisición por exclusión en casos de fusión. La fusión que conlleve a la desaparición de una sociedad cuyas acciones se encuentren autorizadas para oferta pública, requerirá de la presentación de una oferta pública de adquisición por exclusión dirigida a los accionistas en desacuerdo con la fusión.
-(Así MODIFICADA su numeración en las Sesiones Ordinarias No. 376-2003 y 377-2003, celebradas el 17 de junio de 2003, publicadas en La Gaceta No. 125 de 01 de julio de 2003, por las cuales el artículo 99 pasó a ser el 97.)

@@ -1,1 +1,0 @@
-Artículo 121.—Las Sesiones Ordinarias No. 376-2003 y 377-2003, celebradas el 17 de junio de 2003, publicadas en La Gaceta No. 125 de 01 de julio de 2003, derogaron los antiguos artículos 93 y 94. A la vez corren la numeración de los Capítulos y artículos siguientes, pasando el antiguo numeral 121 a ser el actual 119.
