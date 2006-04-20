@@ -1,0 +1,1 @@
+Artículo 12.—Financiación de gastos por investigaciones e inspecciones. La ANAQ financiará los gastos resultantes de las investigaciones e inspecciones, sin perjuicio de los reembolsos de tales gastos que efectúe la OPAQ de acuerdo con la Convención.

@@ -1,0 +1,2 @@
+Artículo 8º—Registro de Actividades y Sujetos Obligados Organización del Registro. Se crea un Registro de Actividades y Sujetos Obligados, dependiente de ANAQ.
+El Registro tendrá por objeto la inscripción de la información relativa a las actividades industriales, comerciales, investigadoras y de seguridad afectadas por la Convención, así como la referida a los sujetos obligados que fuera necesaria para el ejercicio de las competencias atribuidas a la ANAQ y para colaborar con la OPAQ. La inscripción se realizará de oficio por la Secretaría Técnica de la ANAQ.

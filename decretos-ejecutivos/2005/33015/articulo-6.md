@@ -1,0 +1,1 @@
+Artículo 6º—Declaraciones y otras comunicaciones. La Secretaría Técnica elaborará las Declaraciones y las otras comunicaciones a que obliga la Convención y las remitirá, oportunamente a la ANAQ para que ésta las apruebe o realice las observaciones pertinentes y luego las remita a la OPAQ u otros Estados Partes mediante los canales diplomáticos establecidos, según corresponda.

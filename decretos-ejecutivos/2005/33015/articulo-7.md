@@ -1,0 +1,1 @@
+Artículo 7º—Confidencialidad de la Información. La información confidencial se rige de acuerdo a lo establecido en la Ley Nº 7975 Ley de Información No Divulgada, publicada en La Gaceta Nº 12 del 18 de enero de 2000.
