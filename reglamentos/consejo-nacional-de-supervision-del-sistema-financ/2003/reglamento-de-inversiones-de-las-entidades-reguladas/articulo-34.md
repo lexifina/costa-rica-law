@@ -11,10 +11,9 @@ ii) La sociedad administradora del fondo deberá contar con, al menos, cinco añ
 iii) El patrimonio del fondo deberá ser de, al menos, cien millones de dólares, o su equivalente en euros o yenes.
 iv) El Superintendente podrá definir, por medio de acuerdo, la comisión máxima anual sobre el saldo invertido que podrá imputarse al fondo administrado por la inversión en esta figura. Dicho acuerdo deberá considerar las clases de activos, zona geográfica, región, tipo de empresa, sector o estilo de inversión y volúmenes de inversión.
 c) Requisitos de las notas estructuradas:
-i) La emisión deberá poseer un valor no menor a cincuenta millones de dólares, o su equivalente en euros o yenes.
-ii) El emisor deberá estar registrado y supervisado en alguno de los mercados autorizados, según lo dispuesto en el Artículo 32 del presente Reglamento.
-iii) El emisor deberá contar con, al menos, cinco años de experiencia en el giro. Además, deberá contar con una calificación de riesgo crediticio mínima de "A".
-iv) Las notas estructuradas deberán garantizar, explícitamente, el 100% del capital invertido a su vencimiento.
+i) El emisor deberá estar registrado y supervisado en alguno de los mercados autorizados, según lo dispuesto en el Artículo 32 del presente Reglamento.
+ii) El emisor deberá contar con, al menos, cinco años de experiencia en el giro. Además, deberá contar con una calificación de riesgo crediticio mínima de "A".
+iii) Las notas estructuradas deberán garantizar, explícitamente, el 100% del capital invertido a su vencimiento.
+(Así derogado el numeral i del inciso "c" y corrida su numeración mediante sesión N°570 del 20 de abril del 2006)
 El Superintendente desarrollará mediante acuerdo los aspectos operativos de información que deben cumplir los fondos de inversión.
-(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
-(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°32 al N°34 actual).
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°32 al N°34 actual)
