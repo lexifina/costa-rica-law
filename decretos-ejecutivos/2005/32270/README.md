@@ -45,3 +45,4 @@ Directrices de política presupuestaria para las entidades públicas, ministerio
 | 30 | 2006-04-03 | Decreto Ejecutivo 33063 (2006-04-03) |
 | 31 | 2006-04-06 | Decreto Ejecutivo 33083 (2006-04-06) |
 | 32 | 2006-04-20 | Decreto Ejecutivo 33055 (2006-04-20) |
+| 33 | 2006-04-20 | Decreto Ejecutivo 33098 (2006-04-20) |
