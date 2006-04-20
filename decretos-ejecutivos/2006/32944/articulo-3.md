@@ -1,0 +1,1 @@
+Artículo 3º—Se establece y reconoce la figura del (la) Bombero(a) Forestal, como aquella persona que participa y apoya en las labores de prevención, mitigación, control y liquidación de fuego, capacitada y entrenada para trabajar en forma segura y eficiente.
