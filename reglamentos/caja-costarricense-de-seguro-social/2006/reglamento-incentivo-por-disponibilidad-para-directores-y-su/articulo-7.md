@@ -1,0 +1,1 @@
+Artículo 7º—El médico que ejerza el cargo de director o subdirector de los centros de salud que estén bajo desconcentración máxima, no podrá cobrar tiempo extraordinario por las labores realizadas fuera del tiempo ordinario.

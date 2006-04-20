@@ -1,0 +1,1 @@
+Artículo 8º—Al aprobarse el debido contenido presupuestario para el pago de este incentivo, la oficina de gestión de recursos humanos respectiva deberá realizar las gestiones pertinentes para hacer efectivo dicho incentivo, en la partida presupuestaria y cuenta contable correspondiente.

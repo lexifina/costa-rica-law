@@ -1,0 +1,1 @@
+Artículo 2º—Se otorgará el incentivo a los directores y subdirectores médicos (en este último caso debidamente aprobado por la Junta Directiva) de hospitales y directores médicos de áreas de salud bajo desconcentración máxima por acto administrativo, válido y eficaz que haya sido investido para desempeñar dicho cargo y lo ejerza de manera real y efectiva.

@@ -1,0 +1,1 @@
+Artículo 10.—Al aprobarse el incentivo por "Disponibilidad para Directores y Subdirectores Médicos de Hospitales y Directores Médicos de Áreas de Salud bajo desconcentración máxima" deja sin efecto lo establecido mediante circular número 011796 de fecha 29 de mayo de 1993 y número 007027 de fecha 22 de marzo de 1995.

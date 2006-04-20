@@ -1,0 +1,1 @@
+Artículo 5º—El médico que ostente un cargo de dirección o subdirección de los centros de salud bajo desconcentración máxima, queda obligado al desplazamiento al lugar de trabajo en horas fuera de su jornada ordinaria, cuando así lo requiera las circunstancias del establecimiento de salud.
