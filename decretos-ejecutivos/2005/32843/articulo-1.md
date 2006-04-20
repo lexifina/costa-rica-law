@@ -12,4 +12,5 @@ VI.—Que mediante el Decreto Ejecutivo Nº 32270-H y sus reformas, publicado en
 VII.—Que mediante el oficio STAP-0503-05 de 8 de abril del 2005, se comunicó a la entidad el gasto presupuestario máximo para el año 2006.
 VIII.—Que por lo anterior, resulta necesario modificar el gasto presupuestario máximo fijado a la entidad para el año 2006. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase el gasto presupuestario máximo establecido al Patronato Nacional de la Infancia (PANI) para el año 2006, establecido según el artículo 1º del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 marzo del 2005 y sus reformas, fijando el mismo en ¢9.479,2 millones durante ese período.
+Artículo 1º—Modifícase el gasto presupuestario máximo establecido al Patronato Nacional de la Infancia (PANI) para el año 2006, establecido según el artículo 1º del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 marzo del 2005 y sus reformas, fijando el mismo en ¢*10.958.8 millones durante ese período.
+(*Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 33084 del 20 de abril de 2006)

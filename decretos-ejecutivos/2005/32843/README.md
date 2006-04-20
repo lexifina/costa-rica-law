@@ -14,3 +14,4 @@ Modifica al Patronato Nacional de la Infancia, el gasto presupuestario máximo d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-01 | la propia norma |
+| 2 | 2006-04-20 | Decreto Ejecutivo 33084 (2006-04-20) |
