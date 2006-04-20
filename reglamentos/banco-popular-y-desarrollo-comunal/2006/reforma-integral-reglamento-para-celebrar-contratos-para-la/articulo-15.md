@@ -1,0 +1,2 @@
+Artículo 15.—Del plazo de los contratos. Los contratos que se suscriban con fundamento en el presente Reglamento serán de dos años, prorrogables de manera automática si alguna de las partes no comunica a la otra por escrito su deseo de no continuar la relación contractual, con al menos dos meses calendario de anticipación a su vencimiento.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
