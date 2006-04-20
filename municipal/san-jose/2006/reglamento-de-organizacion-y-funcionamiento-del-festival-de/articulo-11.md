@@ -1,0 +1,1 @@
+Artículo 11.—Del recorrido del festival. El recorrido del Festival será definido anualmente por la Comisión, siguiendo parámetros de seguridad ciudadana, orden y comodidad para el desarrollo del espectáculo y del público.
