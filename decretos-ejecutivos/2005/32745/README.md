@@ -14,3 +14,4 @@ Modifica al Teatro Popular Melico Salazar, el gasto presupuestario máximo del a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-09 | la propia norma |
+| 2 | 2006-04-20 | Decreto Ejecutivo 33085 (2006-04-20) |
