@@ -1,0 +1,6 @@
+Artículo 14.—Equipo propiedad de terceros. Corresponde a la Dirección Ejecutiva en coordinación con el Departamento de Tecnología de Información, autorizar el ingreso a las oficinas del Poder Judicial, de equipos computacionales propiedad de terceros, que se pondrá al servicio de la institución.
+La solicitud de ingreso deberá remitirla el Jefe del Despacho con los documentos que acrediten al tercero como propietario del equipo informático, así como las licencias respectivas de los programas (software) instalados en ese equipo.
+Si la solicitud fuere aprobada, se comunicará a los Departamentos de Tecnología de Información y Seguridad, brindando la información suficiente para crear los mecanismos necesarios que autoricen una ubicación oportuna de ese equipo.
+Se podrá aprobar la instalación de otro programa (software) que se requiera para un aprovechamiento óptimo del recurso informático, pero no obstante, el mantenimiento del equipo siempre correrá por cuenta del propietario.
+Para la salida de un equipo informático propiedad de terceros, de las instalaciones del Poder Judicial, autorizado conforme lo anterior, los programas (software) pertenecientes a la institución deberán ser desinstalados por personal autorizado.
+En cualquier caso, esta gestión debe ponerse de previo, en conocimiento del Departamento de Tecnología de Información.

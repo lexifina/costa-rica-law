@@ -1,0 +1,1 @@
+Artículo 8º—Programa antivirus. El Departamento de tecnología de información velará porque todo recurso computacional asignado, cuente con el programa antivirus en funcionamiento. Al efecto, el Departamento citado coordinará la instalación correspondiente.
