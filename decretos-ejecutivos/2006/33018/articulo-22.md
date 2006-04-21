@@ -1,0 +1,1 @@
+Artículo 22.—Actualización permanente de datos. Los certificadores deberán mantener permanentemente actualizada la información que requieran la DCFD y el ECA para el cumplimiento de sus funciones. Cualquier cambio de domicilio físico o electrónico, o de cualquier otro dato relevante, deberá ser comunicado de inmediato al ECA, que a su vez lo notificará a la DCFD.

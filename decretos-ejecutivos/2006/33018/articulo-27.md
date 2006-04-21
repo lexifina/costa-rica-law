@@ -1,0 +1,1 @@
+Artículo 27.—Régimen interior. El régimen de servicio al que estará sujeto el personal de la DCFD será el establecido en el reglamento autónomo de servicio del Ministerio de Ciencia y Tecnología, que se aplicará también al Director en lo que legalmente sea procedente.

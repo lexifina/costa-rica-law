@@ -1,0 +1,1 @@
+Artículo 33.—Revocatoria de la inscripción. Para los efectos del artículo 30, inciso a) de la Ley, se entenderá por “certificado falso” aquel que no esté respaldado por una solicitud previa demostrable del correspondiente suscriptor o cuyo trámite no haya seguido los procedimientos de seguridad establecidos para la clase de certificado de que se trate.

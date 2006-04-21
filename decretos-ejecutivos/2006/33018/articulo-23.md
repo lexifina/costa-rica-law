@@ -1,0 +1,4 @@
+CAPÍTULO CUARTO
+Dirección de Certificadores de Firma Digital
+Artículo 23.—Responsabilidad. La Dirección de Certificadores de Firma Digital -perteneciente al Ministerio de Ciencia y Tecnología- será el órgano administrador y supervisor del sistema nacional de certificación digital. Tendrá el carácter de órgano de desconcentración máxima y las resoluciones dictadas en los asuntos de su competencia agotarán la vía administrativa.
+La DCFD tendrá, de pleno derecho, el carácter de certificador raíz. No obstante, para garantizar una óptima efectividad en el cumplimiento de esta función, podrá gestionar el apoyo de otro órgano, entidad o empresa del Estado, a los efectos de que supla la infraestructura material y el personal idóneo necesarios para operar la raíz, debiendo satisfacer los mismos requisitos de acreditación y evaluaciones periódicas por parte del ECA que debe cumplir todo certificador.

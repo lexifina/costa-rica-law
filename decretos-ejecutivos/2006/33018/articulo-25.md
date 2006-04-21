@@ -1,0 +1,1 @@
+Artículo 25.—Cooperación interinstitucional. Se autoriza a las instituciones del Estado para presupuestar y girar recursos, en la medida de sus posibilidades jurídicas y materiales, a fin de contribuir a lograr los objetivos de la DCFD.

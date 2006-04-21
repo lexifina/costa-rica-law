@@ -1,0 +1,1 @@
+Artículo 8º—Plazo de suspensión de certificados. La suspensión de un certificado digital, en aplicación del artículo 14 de la Ley, se mantendrá por todo el plazo en que subsista la causal que le dio origen.

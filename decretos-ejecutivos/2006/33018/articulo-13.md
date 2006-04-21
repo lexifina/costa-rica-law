@@ -1,0 +1,2 @@
+Artículo 13.—Caución. La caución a que se refiere el artículo anterior será rendida preferiblemente por medio de póliza de fidelidad expedida por el Instituto Nacional de Seguros. El monto –de acuerdo con la Ley- será fijado por la DCFD en consulta con el INS, tomando en consideración los riesgos y responsabilidades inherentes en la labor de certificación digital.
+Cuando la caución esté sujeta a vencimiento, necesariamente deberá ser renovada por el interesado al menos dos meses antes de la fecha de expiración.

@@ -1,0 +1,1 @@
+Artículo 9º—Revocación por cese de actividades. Para los efectos del artículo 16 de la Ley, en el caso del cese de actividades de un certificador, éste mismo –o la DCFD en su defecto– gestionarán el traslado de la cartera de suscriptores que así lo hayan consentido a otro certificador, que expedirá los nuevos certificados.

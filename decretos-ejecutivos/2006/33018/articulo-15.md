@@ -1,0 +1,3 @@
+Artículo 15.—Oposiciones. Recibida en orden la solicitud y obtenida la acreditación correspondiente por parte del ECA, el solicitante publicará en el Diario Oficial La Gaceta un resumen que le entregará la DCFD, sin perjuicio de que ésta lo haga también en los medios electrónicos establecidos en la Ley y este Reglamento.
+Dentro de los cinco días hábiles siguientes a la publicación impresa, quien se sintiere legítimamente perjudicado por la solicitud planteada o que dispusiera de alguna información que pueda contribuir a calificarla, deberá hacerlo presentando las pruebas pertinentes a la DCFD, la cual conferirá audiencia al interesado por un plazo de cinco días hábiles.
+No se aplicará lo dispuesto en este artículo cuando la gestión corresponda a una dependencia pública.

@@ -1,0 +1,3 @@
+Artículo 14.—Trámite de la solicitud. Recibida la solicitud de inscripción, la DCFD procederá a:
+1) Apercibir al interesado en un plazo no mayor de diez días y por una única vez, sobre cualquier falta u omisión que deba ser subsanada para dar inicio a su trámite. Al efecto, se aplicará lo dispuesto en la “Ley de protección al ciudadano del exceso de requisitos y trámites administrativos”, número 8220 de 4 de marzo del 2002; y –en cuanto fuere necesario– lo dispuesto en el artículo 340 de la LGAP.
+2) Remitir la solicitud al ECA una vez cumplido lo indicado en el inciso 1), para efectos de analizar la idoneidad técnica y administrativa del gestionante.

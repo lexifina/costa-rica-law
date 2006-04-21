@@ -1,0 +1,1 @@
+Artículo 11.—Comprobación de idoneidad técnica y administrativa. Para obtener la condición de certificador registrado, se requiere poseer idoneidad técnica y administrativa, que serán valoradas por el ECA de acuerdo con los lineamientos técnicos del anexo de este Reglamento y los restantes requisitos que esa dependencia establezca, de conformidad con su normativa específica.
