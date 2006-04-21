@@ -1,0 +1,1 @@
+Artículo 25.—Del refrendo de la Contraloría General de la República. Una vez concluido el proceso anterior, la Comisión Especial someterá ante la Contraloría General de la República el expediente del concurso, para su aprobación, de conformidad con lo establecido en el inciso j) del artículo 13 de este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 11.—Comunicación del nombramiento. El nombramiento interino del Auditor(a) General o Subauditor(a) deberá ser comunicado a la Contraloría General de la República, a más tardar el primer día hábil del inicio de funciones en el respectivo cargo.
+El acuerdo que tome la Junta Directiva deberá contener como mínimo la siguiente información: nombre y apellidos de la persona nombrada, grado académico, fecha a partir de la cual empieza a desempeñar el puesto, tipo de nombramiento, periodo del nombramiento, jornada laboral y horario.

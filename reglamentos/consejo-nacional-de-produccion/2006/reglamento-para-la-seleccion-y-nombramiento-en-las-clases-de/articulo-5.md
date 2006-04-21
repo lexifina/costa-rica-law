@@ -1,0 +1,1 @@
+Artículo 5º—Prohibiciones. En el ejercicio de sus funciones, el Auditor(a) General y Subauditor(a) tendrán las prohibiciones establecidas en el artículo Nº 27 de la Ley Orgánica del CNP y en el articulo 34º de la Ley General de Control Interno.

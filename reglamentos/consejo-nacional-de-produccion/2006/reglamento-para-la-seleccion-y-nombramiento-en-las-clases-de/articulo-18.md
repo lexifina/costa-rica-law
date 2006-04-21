@@ -1,0 +1,1 @@
+Artículo 18.—Plazo para la recepción de ofertas. El plazo para la presentación de ofertas no podrá ser menor a ocho días hábiles, contado a partir de la fecha de la última publicación del aviso del concurso.

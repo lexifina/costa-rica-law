@@ -1,0 +1,1 @@
+Artículo 33.—Finalización del nombramiento. En caso de inconformidad en el desempeño del funcionario(a) en el período de prueba, se cesará el nombramiento; y se procederá a realizar un nuevo nombramiento entre los oferentes elegibles de la terna o nómina, según corresponda. El cese del nombramiento deberá estar debidamente sustentado.

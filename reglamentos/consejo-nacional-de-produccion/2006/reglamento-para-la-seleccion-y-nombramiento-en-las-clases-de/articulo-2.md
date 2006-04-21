@@ -1,0 +1,1 @@
+Artículo 2º—Facultad de nombramiento. Compete a la Junta Directiva del CNP nombrar por tiempo definido o indefinido al Auditor(a) General o Subauditor(a), bajo las normas establecidas en el presente Reglamento.

@@ -1,0 +1,3 @@
+Artículo 23.—Aplicación de la entrevista. Los oferentes que hayan aprobado la prueba psicométrica, a que hace referencia el artículo anterior, serán entrevistados por la Comisión Especial y su grupo asesor; con el propósito de calificar sus actitudes y aptitudes según los siguientes criterios de valoración:
+Por el tipo de formato ver cuadro referente a “Factores de evaluación de la entrevista”, en página N° 54 a La Gaceta impresa N° 77 del 21 de abril del 2006.
+Los oferentes que tengan los tres mayores puntajes en la entrevista serán los que la Comisión Especial recomendará a la Junta Directiva.

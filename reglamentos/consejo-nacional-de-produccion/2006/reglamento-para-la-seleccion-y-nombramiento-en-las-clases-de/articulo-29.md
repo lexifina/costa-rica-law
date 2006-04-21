@@ -1,0 +1,1 @@
+Artículo 29.—Nombramiento por inopia. En caso de inopia derivada del procedimiento anterior, se convocará nuevamente a concurso público, en las mismas condiciones ya definidas y de persistir la inopia, la Junta Directiva, previa autorización de la Contraloría, aprobará la modificación de los requisitos establecidos para la clase, antes de iniciar un nuevo concurso público.
