@@ -1,0 +1,3 @@
+Artículo 3º—Modifíquese en lo conducente el Capítulo XXII, del Régimen Disciplinario y del Procedimiento de Aplicación, artículo 113 inciso b) del Decreto Ejecutivo número 28409-MINAE, el que en lo sucesivo se leerá de la siguiente manera:
+“Artículo 113:
+b) Para funcionarios (as) con una relación no estatutaria, en lo referente a la instrucción de despido, lo realizará la Unidad legal del Departamento de Recursos Humanos del Ministerio y para los funcionarios (as) del SINAC, la Oficina de Recursos Humanos correspondiente; con el conocimiento y la aprobación del Viceministro o Director Superior (a) respectivamente, siguiendo el mismo procedimiento señalado en los artículos anteriores.”
