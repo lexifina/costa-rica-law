@@ -1,0 +1,4 @@
+CAPÍTULO III
+De los adelantos para gastos de viaje y transporte
+Artículo 17.—Cuando se tratare de adelantos de viáticos en el territorio nacional, para aquellos casos en que esté autorizado dicho gasto, la solicitud se hará en el formulario denominado "Adelanto para Viáticos", el que deberá ser completado correctamente, deberá contar con la firma y el sello del Tesorero Municipal haciendo constar la disponibilidad presupuestaria para realizarlo, y la autorización del Alcalde. Los adelantos para gastos de viaje y transporte dentro del territorio nacional, se autorizarán sin que supere el monto autorizado a pagar por medio de caja chica.
+Los adelantos deberán solicitarse, a más tardar, el día inmediato anterior a la gira, y deberán cumplir con los requisitos establecidos en el Reglamento de Gastos de Viaje y de Transporte para funcionarios públicos de la Contraloría General de la República.

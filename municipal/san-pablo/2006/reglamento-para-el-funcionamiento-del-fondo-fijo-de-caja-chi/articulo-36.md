@@ -1,0 +1,1 @@
+Artículo 36.—No se reintegrarán facturas con fecha anterior al último reintegro, salvo en caso excepcional en que la persona encargada de la Caja Chica lo justifique satisfactoriamente por escrito, y no se contravenga lo dispuesto en el presente Reglamento.

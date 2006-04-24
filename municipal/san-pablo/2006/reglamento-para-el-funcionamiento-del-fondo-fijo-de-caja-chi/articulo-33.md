@@ -1,0 +1,1 @@
+Artículo 33.—Las solicitudes de reintegro deberán efectuarse mediante un documento formal, que describa detalladamente los rubros por cuenta contable y gasto de caja chica que se realizaron. Este documento deberá ser numerado de acuerdo a su consecutivo y fecha de origen y archivado por el tesorero (a) en un ampo, para justificar cualquier duda de la contabilidad.

@@ -1,0 +1,1 @@
+Artículo 11.—La custodia de la caja chica permanecerá exclusivamente en poder del Tesorero (a) Municipal, únicamente este funcionario tocará estos fondos y rendirá cuentas del mismo a su superior jerárquico.

@@ -1,0 +1,1 @@
+Artículo 4º—El monto máximo del vale de Caja Chica, se establece en la suma de ¢25.000 (veinticinco mil colones) por lo que el monto de lo gastado no lo podrá exceder al mismo. Cualquier gasto mayor a ese monto, deberá cubrirse a través de cheque.

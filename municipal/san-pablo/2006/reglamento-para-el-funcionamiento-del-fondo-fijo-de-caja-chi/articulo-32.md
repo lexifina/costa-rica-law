@@ -1,0 +1,1 @@
+Artículo 32.—Los cheques de reintegro deberán solicitarse al agotar un ochenta por ciento (80%) del total del fondo de caja chica, es decir cuando se acumulen vales y facturas que superen los ciento veinte mil colones.
