@@ -1,0 +1,3 @@
+Transitorio Único.—Los peritos valuadores que actualmente presten sus servicios al Banco, gozarán del término de un mes a partir de la publicación de este Reglamento, para que actualicen la información del Registro de Proveedores y gozarán de un plazo de tres meses, para rendir la póliza de fidelidad establecida en este Reglamento.
+El incumplimiento de este transitorio, implicará la imposibilidad de asignarles nuevos avalúos y serán excluidos del Registro de Proveedores. Aprobado por Junta Directiva General, sesión N° 7916/06, artículo 15, celebrada el 14 de marzo del 2006. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Cartago, 3 de abril del 2006.

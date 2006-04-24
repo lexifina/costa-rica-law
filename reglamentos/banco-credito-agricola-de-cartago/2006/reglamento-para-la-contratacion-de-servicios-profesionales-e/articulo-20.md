@@ -1,0 +1,1 @@
+Artículo 20.—Del documento de cobro. Para el pago de honorarios por la realización de avalúos y peritajes, el perito valuador presentará una factura timbrada por el cobro del servicio prestado, la cual contendrá el nombre del caso(s) sometidos a cobro. Debe constar la firma del perito valuador y el monto total a pagar.

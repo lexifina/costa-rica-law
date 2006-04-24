@@ -1,0 +1,1 @@
+Artículo 18.—Otras consideraciones técnicas. En todos los casos, debe utilizarse el Sistema Métrico Decimal. El avalúo debe expresarse en colones, moneda nacional. Cuando se requiera la conversión a moneda extranjera, debe utilizarse el tipo de cambio contable de la moneda que se trate a la fecha del avalúo y hacerse la indicación precisa en el mismo avalúo.

@@ -1,0 +1,1 @@
+Artículo 21.—Prohibiciones. Es absolutamente prohibido a los peritos valuadores recibir pagos o cualquier estipendio, por parte de las personas propietarias de los bienes o interesadas en que el avalúo o peritazgo les favorezca, por realización de avalúos que el Banco contrate.

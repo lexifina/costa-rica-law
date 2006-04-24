@@ -1,0 +1,1 @@
+Artículo 16.—De las fuentes de información. En los datos que son referencias de mercado con respecto a la tierra, así como con relación al costo de reposición nuevo del bien, se debe indicar la fuente de donde se obtuvo la referencia, la fecha de consulta y el medio por el cual se puede verificar.

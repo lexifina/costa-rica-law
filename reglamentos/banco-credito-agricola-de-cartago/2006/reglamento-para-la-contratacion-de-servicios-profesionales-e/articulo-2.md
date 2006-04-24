@@ -1,0 +1,1 @@
+Artículo 2º—Alcances. Este Reglamento establece el marco de referencia que regirá la realización de avalúos y peritajes de bienes muebles, inmuebles e intangibles en el Banco Crédito Agrícola de Cartago.

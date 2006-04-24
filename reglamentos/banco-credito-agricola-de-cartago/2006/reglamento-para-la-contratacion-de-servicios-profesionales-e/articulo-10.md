@@ -1,0 +1,1 @@
+Artículo 10.—Del control de la gestión. Será responsabilidad de las dependencias administrativas que requieran servicios profesionales en avalúos y peritajes, velar por el fiel cumplimiento de este Reglamento y demás disposiciones que sobre la materia dicte el Banco, sin perjuicio de la labor de fiscalización de la Auditoria Interna u otros órganos de supervisión.

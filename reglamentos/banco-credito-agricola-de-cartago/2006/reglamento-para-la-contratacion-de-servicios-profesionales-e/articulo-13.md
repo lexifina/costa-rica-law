@@ -1,0 +1,3 @@
+Artículo 13.—Metodología de valuación. Todos los avalúos deben proporcionar una estimación del Valor de Mercado del bien que se solicita valorar.
+El avalúo que manifiesta la estimación del Costo Neto de Reposición o Costo de Reposición Depreciado, también debe contener una alusión específica al valor de mercado, al menos en términos de distinguir claramente entre ambos conceptos de valor y previniendo al Banco con respecto a lo que podría esperar en la eventual venta del bien valorado.
+No se admite como expresión de valor, cualquier otra que no sea el Valor de Mercado o el Costo de Reposición Neto. La aplicación de cualquier otra metodología distinta a estas dos, debe ser previamente autorizada por la Subgerencia Comercial del Banco.
