@@ -1,0 +1,1 @@
+Artículo 43.—Del acceso al Registro. Los proveedores y los funcionarios municipales, que por las responsabilidades inherentes a su cargo y cuando así lo requieran, tendrán acceso a este Registro. Para ello, deberán realizar la gestión escrita directamente ante el Departamento de Proveeduría.

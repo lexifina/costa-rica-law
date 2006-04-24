@@ -1,0 +1,1 @@
+Artículo 32.—Licitaciones Restringidas. La Unidad administrativa competente para la tramitación, adjudicación y formalización de los procedimientos licitatorios restringidos será la Unidad de Proveeduría Municipal.

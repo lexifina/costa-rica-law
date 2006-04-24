@@ -1,0 +1,1 @@
+Artículo 26.—Apertura de las cotizaciones. Las cotizaciones se abrirán y revisarán el día y hora señalados en la invitación o el cartel, con la presencia del Coordinador de la Unidad de Proveeduría y en caso de que se requiera del Jefe de Área respectiva y del encargado del órgano solicitante.

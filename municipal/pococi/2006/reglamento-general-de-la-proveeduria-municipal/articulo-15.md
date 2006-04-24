@@ -1,0 +1,1 @@
+Artículo 15.—De la Calificación de las Ofertas. La Proveeduría Municipal calificará las ofertas de acuerdo a los parámetros establecidos en el cartel o la invitación que originó la contratación. De todos modos lo que resuelva, deberá quedar plasmado documentalmente en el expediente a través de un Cuadro de Análisis y de un Acta firmada y sellada por el Proveedor.

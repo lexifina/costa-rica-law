@@ -1,0 +1,1 @@
+Artículo 27.—Plazo para resolver. Las cotizaciones recibidas por la Unidad de Proveeduría serán analizadas y adjudicadas en un plazo no mayor a cinco días hábiles, en caso necesario si el monto de la contratación requieren de refrendo interno o bien acuerdo de pago por parte del Concejo el plazo de adjudicación serán de quince días naturales.

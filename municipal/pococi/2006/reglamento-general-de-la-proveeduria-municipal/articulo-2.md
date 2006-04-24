@@ -1,0 +1,10 @@
+Artículo 2º—De las funciones de la Unidad de Proveeduría Municipal. Son funciones de la Unidad de Proveeduría: Desarrollar los procesos de Planificación Estratégica que se refieran a las labores relacionadas con la adquisición de bienes y servicios bajo los principios generales de la sana administración de los recursos públicos.
+Desarrollar y llevar a cabo los procedimientos de Contratación Administrativa para la adquisición de Bienes y Servicios que requiera la institución bajo los principios de eficiencia, eficacia y oportunidad.
+Recibir y tramitar las solicitudes de Materiales y/o Servicios que requieran los diferentes órganos de la Municipalidad.
+Llevar un registro completo y actualizado de proveedores de bienes y servicios. Esta actualización deberá efectuarse al menos una vez al año, mediante un aviso que se publicará en el Diario Oficial La Gaceta.
+Verificar que los proveedores se ajusten a la calidad, cantidad, precio y tiempo de entrega de los bienes y servicios ofrecidos a la Institución, así como al cumplimiento de las garantías ofrecidas. Para esto será necesario hacer una calificación de los Proveedores de conformidad con las normas de este Reglamento.
+Tramitar la inscripción y desinscripción en los respectivos Registros Públicos de los bienes muebles e inmuebles, propiedad de la Institución.
+Publicar en el mes de enero el programa de adquisiciones del periodo presupuestario que corresponda, conforme a lo establecido en el Artículo 7 del Reglamento General de la Contratación Administrativa.
+Preparar informes periódicos de la Unidad hacia las diferentes instancias municipales dentro del marco de los Planes Anuales Operativos de la institución.
+Preparar y aprobar los Manuales Operativos de Procedimientos de las diferentes funciones de la Unidad de acuerdo con el inciso anterior.
+Las demás derivadas de su propia naturaleza de conformidad con el Artículos 1 y 14 de este Reglamento, las que le impongan las otras normas vigentes del Ordenamiento Jurídico y las que le deleguen las autoridades municipales facultadas para ello.

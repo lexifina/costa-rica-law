@@ -1,0 +1,1 @@
+Artículo 51.—Del plazo para actualizar el Registro de Proveedores. A partir de la vigencia de este Reglamento se establece un término de 24 meses para que la Proveeduría Municipal actualice y someta el Registro de Proveedores a los criterios de este Reglamento.

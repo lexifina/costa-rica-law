@@ -1,0 +1,1 @@
+Artículo 39.—Registro de Existencias en Bodega. La Bodega Municipal llevará un registro actualizado sobre las existencias y condición de las mismas. Dicho registro lo remitirá a la Unidad de Proveeduría cuando esta se los solicite.

@@ -1,0 +1,1 @@
+Artículo 17.—De la preparación de los requisitos necesarios para el Refrendo. La Proveeduría Municipal procederá a recolectar los requisitos necesarios para obtener el refrendo respectivo para la contratación que tramita. Para ello deberá ajustarse a lo que señala el presente Reglamento en específico acerca de esta materia.

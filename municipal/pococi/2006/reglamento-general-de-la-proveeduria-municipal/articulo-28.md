@@ -1,0 +1,2 @@
+Artículo 28.—Disposiciones acerca del refrendo a la contratación.
+Lo relacionado con los refrendos internos y externos de los procesos de contratación correspondientes, se regirá por lo dispuesto en el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública, emitido por la Contraloría General de la República el día veintiocho de enero del año dos mil y publicado en La Gaceta Nº 28 del 9 de febrero de ese mismo año.

@@ -1,0 +1,1 @@
+Artículo 21.—De la emisión del anexo. Recibidos de conformidad los bienes y servicios contratados, la Unidad de Proveeduría trasladará a la Unidad de Tesorería Municipal las facturas junto con los anexos necesarios para que se proceda al pago de los mismos al contratante.

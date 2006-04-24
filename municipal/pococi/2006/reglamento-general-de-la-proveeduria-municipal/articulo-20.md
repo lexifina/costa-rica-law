@@ -1,0 +1,1 @@
+Artículo 20.—De la entrega de la factura. Con la orden de compra recibida, el contratante emitirá la factura correspondiente a la Unidad de Proveeduría y procederá a la entrega de los bienes contratados en la Bodega Municipal, debiendo el encargado de este Departamento enviar oficio a la Proveeduría en donde conste el recibido conforme o no de los materiales.

@@ -1,0 +1,1 @@
+Artículo 4º—De la obligación de Elaborar el Plan Anual de Adquisiciones. De acuerdo al procedimiento que se describirá en el capítulo siguiente, la Proveeduría Municipal deberá preparar el Plan Anual de Adquisiciones el cual deberá quedar publicado en el Diario Oficial La Gaceta a más tardar en la primera quincena del mes de Enero de cada año.

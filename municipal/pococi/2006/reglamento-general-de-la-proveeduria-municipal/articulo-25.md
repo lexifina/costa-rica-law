@@ -1,0 +1,2 @@
+Artículo 25.—Formalidades de entrega de las cotizaciones.
+Cuando así se disponga, las cotizaciones serán recibidas por la Unidad de Proveeduría en sobre cerrado. En caso contrario, se aceptará su remisión por medio de fax o de correo certificado, de forma tal que ingresen en el momento indicado en la oferta.

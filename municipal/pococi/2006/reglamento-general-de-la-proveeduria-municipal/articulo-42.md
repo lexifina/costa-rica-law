@@ -1,0 +1,5 @@
+CAPÍTULO VIII
+Del registro de proveedores, su actualización
+y evaluación periódicas
+Artículo 42.—Del Registro Municipal de Proveedores. El Registro Municipal de Proveedores es un instrumento administrativo para la toma de decisiones. Su gestión y administración estará bajo la responsabilidad de la Unidad de Proveeduría Municipal. En éste constarán las certificaciones, datos generales y específicos, declaraciones juradas, documentos certificados y/o originales que demuestren la existencia de la personería física o jurídica y la vigencia de la misma y la idoneidad para la contratación o cualquier otro dato de interés para la toma de decisiones, de cada uno de los proveedores, todo de conformidad con lo que establece el Artículo 108 de la Ley de Contratación Administrativa y su respectivo Reglamento.
+Cada proveedor tendrá asignada una carpeta o expediente administrativo dentro de este Registro y la documentación a ésta incorporada deberá estar foliada consecutivamente tal y como es presentada a la Unidad respectiva.
