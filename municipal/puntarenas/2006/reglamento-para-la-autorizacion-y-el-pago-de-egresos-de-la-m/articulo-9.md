@@ -1,0 +1,1 @@
+Artículo 9º—Todo pago deberá hacerse con cargo a la partida presupuestaria respectiva y en ajuste a lo contemplado en los artículos 101 y 103 del Código Municipal para esos efectos. Los Departamentos de Tesorería, Proveeduría y Dirección de Hacienda deberá hacerse constar de previo, que existe el respectivo contenido presupuestario en relación con el pago de que se trate.

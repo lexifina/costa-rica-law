@@ -1,0 +1,1 @@
+Artículo 4º—Tanto en el caso de los egresos autorizados por el Alcalde Municipal según lo señalado en el artículo 1º de este reglamento como de los autorizados por el Consejo Municipal según lo dispuesto en el artículo 2º de este reglamento los pagos deberán ser ordenados por el Alcalde o por la Directora de Hacienda conforme a lo establecido en el artículo 1° de este reglamento.
