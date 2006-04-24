@@ -108,14 +108,11 @@ Para todos los efectos legales, se presumirá que las construcciones y edificaci
 16.4. Zonas de control especial de áreas vulnerables.
 En el cantón existen zonas especialmente vulnerables a desastres naturales, donde los materiales se deslizan, desagregan y reptan, situaciones que afectan tanto construcciones existentes y futuras, como las actividades correlacionadas en esos sectores. Por esto, cualquier construcción dentro de estas zonas y en los casos en que la propiedad esté afectada por el Mapa de Amenazas Potenciales del Cantón de Escazú, suministrado por dicha Comisión y que se incluye como documento de este Plan, se requerirá de previo el visto bueno de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.
 El Plan Regulador define estas áreas y las regula de la forma como se detalla a continuación.
-16.4.1. Zona de Control Especial Alto Carrizal (ZCEAC).
-Según lo indica el plano de Zonificación, está ubicada al oeste del distrito central; es un sector de pendientes fuertes que oscilan entre el 30% y el 40%; además, presenta escorrentía rápida; topográficamente está constituida por superficies aplanadas a diferentes niveles, colinas denudadas y conos de deyección que convierten la zona en poco apta para efectuar grandes remociones de tierra, altas densidades de construcción y cualquier edificación sin las debidas obras de mitigación.
-- Requisitos:
-Área mínima de lote, 1500 metros cuadrados; frente mínimo de 12 metros; altura máxima de 7 metros; cobertura máxima edificable del 30%.
+16.4.1. Zona de Control Especial Alto Carrizal (ZCEAC). Según lo indica el plano de zonificación, está ubicada al oeste del distrito central; es un sector de pendientes fuertes que oscilan entre el 30% y el 40%; además, presenta escorrentía rápida; topográficamente está constituida por superficies aplanadas a diferentes niveles, colinas denudadas y conos de deyección que convierten la zona en poco apta para efectuar grandes remociones de tierra, altas densidades de construcción y cualquier edificación sin las debidas obras de mitigación.
+- Requisitos: Área mínima de lote, 1500 metros cuadrados; frente mínimo de 12 metros; altura máxima de 7 metros; cobertura máxima edificable del 30%. La densidad permitida en toda la zona será la misma que la permitida para la Zona Residencial de Baja Densidad (17 unidades de vivienda por hectárea).
 Para cualquier edificación, deberá presentarse un estudio geotécnico completo, que incluya estabilidad de taludes y recomendaciones para las obras de retención, así como el dictamen de la SETENA de acuerdo con el Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental (EIA), (La Gaceta Nº 125 del 28/06/04).
-En casos de terrenos de dos o más hectáreas que se ubiquen en sectores con pendientes promedio de menos del 25% , la Administración podrá autorizar el desarrollo de proyectos de condominios residenciales, proyectos hoteleros que incorporen la construcción de condominios residenciales en altura complementarios a su desarrollo, centros corporativos, centros de convenciones y otras actividades de bajo impacto ambiental que favorezcan el desarrollo social y económico de la población, siempre que la cobertura edificable no pase del 20%, que por lo menos un 60% del terreno sea arborizado y que la altura no sobrepase los 21 metros. En estos casos, el diseño del desarrollo planteado debe armonizar con el paisaje de la zona, lo que implica que la situación, masa constructiva, altura de los edificios, muros y cierres o la instalación de otros elementos no limite el campo visual para contemplar las bellezas naturales, no rompa la armonía del paisaje o desfigure la perspectiva propia de este.
-- Retiros:
-El retiro frontal deberá ser de tres metros; acerca de los retiros laterales y el posterior, ver el artículo 9.5.
+En casos de terrenos de dos o más hectáreas que se ubiquen en sectores con pendientes promedio de menos del 25%, la Administración podrá autorizar el desarrollo de proyectos de condominios residenciales, proyectos hoteleros que incorporen la construcción de condominios residenciales en altura complementarios a su desarrollo, centros corporativos, centros de convenciones y otras actividades de bajo impacto ambiental que favorezcan el desarrollo social y económico de la población, siempre que la cobertura edificable no pase del 25%, que por lo menos un 60% del terreno sea arborizado y que la altura no sobrepase los 21 metros. En estos casos, el diseño del desarrollo planteado debe armonizar con el paisaje de la zona, lo que implica que la situación, masa constructiva, altura de los edificios, muros y cierres o la instalación de otros elementos no limite el campo visual para contemplar las bellezas naturales, no rompa la armonía del paisaje o desfigure la perspectiva propia de este.
+- Retiros: El retiro frontal deberá ser de tres metros; acerca de los retiros laterales y el posterior, ver el artículo 9.5.
 - Usos conformes.
 a. Vivienda unifamiliar.
 b. Conservación y protección del recurso hídrico y forestal.
@@ -130,60 +127,80 @@ Todos los usos anteriores deberán demostrar que no ocasionarán problemas fuera
 a. Urbanizaciones.
 b. Vallas publicitarias.
 c. Todos los usos no contemplados en los usos conformes y condicionales.
-16.4.2. Zona de Control Especial Bello Horizonte (ZCEBH).
-Según el plano de Zonificación, está ubicada al nordeste del distrito central. Es un sector de fuertes pendientes que oscilan entre el 30% y el 40%; además, presenta escorrentía rápida. Topográficamente está constituida por colinas denudadas que la convierten en una zona poco apta para efectuar grandes remociones de tierra, altas densidades de construcción y en general cualquier edificación sin las debidas obras de mitigación.
-- Requisitos.
-Área mínima de 1000 metros cuadrados; frente mínimo de 20 metros; altura máxima de 14 metros; cobertura edificable del 50 %.
-Para realizar cualquier edificación deberá presentarse un estudio geotécnico completo, que incluya estabilidad de taludes y recomendaciones para las obras de retención.
-- Retiros.
-El retiro frontal deberá ser de tres metros; acerca de los retiros laterales y el posterior, ver el artículo 9.5.
+(Así reformado punto 16.4.1 mediante sesión Nº 208, celebrada el 24 de abril del 2006)
+16.4.2. Zona de Control Especial Bello Horizonte (ZCEBH). Según el plano de zonificación, está ubicada al nordeste del distrito central. Es un sector de fuertes pendientes que oscilan entre el 30% y el 40%; además, presenta escorrentía rápida. Topográficamente está constituida por colinas denudadas que la convierten en una zona poco apta para efectuar grandes remociones de tierra, altas densidades de construcción y en general cualquier edificación sin las debidas obras de mitigación.
+- Requisitos. Área mínima de 1000 metros cuadrados; frente mínimo de 20 metros; altura máxima de 14 metros; cobertura edificable del 50%. La densidad permitida para esta zona es de 10 unidades de vivienda por hectárea.
+Para realizar cualquier edificación deberá presentarse un estudio geotécnico completo, que incluya estabilidad de taludes y recomendaciones para las obras de retención, salvo si los terrenos son con pendientes promedio menores a 15% y/o si se trata de una obra menor (tal y como se define en el artículo 5.4. de este mismo Reglamento).
+- Retiros. El retiro frontal deberá ser de tres metros; acerca de los retiros laterales y el posterior, ver el artículo 9.5.
 - Usos conformes.
 a. Vivienda unifamiliar.
 b. Conservación y protección del recurso hídrico y forestal.
--Usos condicionales.
+- Usos condicionales.
 a. Vivienda multifamiliar.
 b. Condominios residenciales.
 c. Hotel tipo "cama y desayuno" de hasta 5 habitaciones.
 d. Oficinas de servicio técnico profesional (área no mayor de 50 m2).
 e. Apertura de caminos.
 Todos los anteriores deberán demostrar que no ocasionarán problemas fuera de su propiedad en lo relacionado con el manejo de aguas servidas, movimientos de tierra y otros.
--Usos no conformes.
+- Usos no conformes.
 a. Urbanizaciones.
 b. Vallas publicitarias.
 c. Todos los usos no contemplados en los usos conformes o condicionales.
-16.5. Zona de control especial de áreas de interés patrimonial.
-16.5.1. Definición.
-Dentro de la gran variedad de la arquitectura de integración, que es la que vincula los inmuebles históricos con los contemporáneos en una zona de interés especial, siempre puede encontrarse la estrategia adecuada para resaltar la identidad de la villa o poblado por revitalizar.
-Escazú, el distrito primero, principalmente el sector del cuadrante urbano original colonial, tiene una serie de características particulares que lo diferencian y que tipifican sus problemas en relación con los demás distritos. La propia evolución del cantón trajo consigo que el distrito primero quedara en medio de dos situaciones muy particulares de desarrollo urbano; por una parte, el crecimiento comercial y habitacional de San Rafael, y por la otra, en San Antonio, la existencia de una zona agrícola y una reserva biológica de vital importancia para el Valle Central.
-En medio de estas dos realidades, Escazú centro ha ido perdiendo su identidad, ha venido sufriendo un acelerado proceso de pérdida de funcionalidad y afeamiento de su casco central; los problemas de vialidad han generado saturación vehicular, inseguridad peatonal y alta contaminación sónica; el parque central no ha logrado consolidarse como el eje de atracción que debería tener en tanto punto principal de encuentro para la comunidad; la proliferación de rótulos perpendiculares provoca un negativo impacto visual; la construcción de algunas edificaciones desafían, por altura y criterio estético, a un lugar con una herencia histórica, cultural y paisajística de muy añeja data.
+(Así reformdo punto 16.4.2 mediante sesión Nº 208, celebrada el 24 de abril del 2006)
+16.5. Zona de control especial de áreas de valor patrimonial.
+16.5.1. Definición. Dentro de la gran variedad de la arquitectura de integración, que es la que vincula los inmuebles históricos con los contemporáneos en una zona de interés especial, siempre puede encontrarse la estrategia adecuada para resaltar la identidad de la villa o poblado por revitalizar.
+Escazú, el distrito primero, principalmente el sector del cuadrante urbano original colonial, tiene una serie de características particulares que lo diferencian y que tipifican sus problemas en relación con los demás distritos.
+La propia evolución del cantón trajo consigo que el distrito primero quedara en medio de dos situaciones muy particulares de desarrollo urbano; por una parte, el crecimiento comercial y habitacional de San Rafael, y por la otra, en San Antonio, la existencia de una zona agrícola y una reserva biológica de vital importancia para el Valle Central.
+En medio de estas dos realidades, Escazú Centro ha ido perdiendo su identidad, ha venido sufriendo un acelerado proceso de pérdida de funcionalidad y afeamiento de su casco central; los problemas de vialidad han generado saturación vehicular, inseguridad peatonal y alta contaminación sónica; el parque central no ha logrado consolidarse como el eje de atracción que debería tener en tanto punto principal de encuentro para la comunidad; la proliferación de rótulos perpendiculares provoca un negativo impacto visual; la construcción de algunas edificaciones desafían, por altura y criterio estético, a un lugar con una herencia histórica, cultural y paisajística de muy añeja data.
 El panorama definido en el párrafo anterior ha desembocado en el reconocimiento por parte de la comunidad de que debe plantearse con urgencia la recuperación del valor cultural del centro de Escazú, es decir, dotar nuevamente al cantón de una imagen propia que lo personalice e identifique en el contexto nacional; esto es lo que se conoce, tanto en Costa Rica como en otras partes del mundo, como rescate de cascos urbanos o desarrollo de áreas peatonales que devuelvan la ciudad a las personas.
-En concordancia con estos conceptos, el Plan Regulador plantea que el cuadrante urbano de Escazú sea una zona de control especial patrimonial (ver artículo 16.5.3.).
-Además, se propone una serie de zonas de control especial a lo largo de la llamada vía de articulación, en las cuales deben existir tanto edificaciones y sitios contemporáneos como aquellos con valor histórico; y que la llamada arquitectura de integración sea la encargada de buscar la armonía entre ambos.
-Las zonas de interés especial son las siguientes:
-a. Escazú: Cuadrante urbano de San Miguel.
+En concordancia con estos conceptos, el Plan Regulador plantea que el cuadrante urbano de Escazú sea una zona de control de valor patrimonial (ver artículo 16.5.3.).
+Además, se propone una serie de zonas de control de valor patrimonial a lo largo de la llamada vía de articulación, en las cuales deben existir tanto edificaciones y sitios contemporáneos como aquellos con valor histórico; y que la llamada arquitectura de integración sea la encargada de buscar la armonía entre ambos.
+Las zonas de interés de control de valor patrimonial son las siguientes:
+a. Escazú: cuadrante urbano de San Miguel.
 b. San Rafael: Plaza Central, su entorno y la Calle Real.
-c. San Antonio: Plaza Central, su entorno y marco agrícola (ver artículo 12.3.2.).
-d. Segmentos históricos en los Cerros de Escazú.
-La vía de articulación es la vía principal que conecta el Puente de los Anonos con los Cerros de Escazú. Tanto en las zonas de control especial como en la vía de articulación, la Municipalidad elaborará una estrategia con criterios basados en cuatro tipos de intervención:
-a. Rescate de edificaciones históricas.
-b. Revitalización de zonas comerciales.
-c. Renovación paisajística, que incluye acondicionamiento de recorridos urbanos y usos peatonales.
+c. San Antonio: Plaza Central, su entorno, marco agrícola y trapiches (ver artículo 12.3.2.).
+d. Segmentos históricos y veredas tradicionales en las zonas protegidas de los Cerros de Escazú.
+Para esta zona de interés especial de valor patrimonial el Comité Consultivo de Patrimonio Histórico Arquitectónico del Plan Regulador y la Municipalidad elaborarán una estrategia con criterios basados en cuatro tipos de intervención:
+a. Rescate y conservación de edificaciones con valor patrimonial.
+b. Programas de educación sobre la importancia de los recursos patrimoniales del cantón.
+c. Revitalización paisajística, que incluye acondicionamiento de recorridos urbanos y usos peatonales.
 d. Emplazamiento de la arquitectura de integración.
-16.5.2. Requisitos adicionales a los requisitos generales.
-Las construcciones que estén identificadas como de valor patrimonial de acuerdo con el levantamiento que para tal efecto realizó el Centro de Investigación y Conservación del Patrimonio Cultural del Ministerio de Cultura, en 1992, para Escazú (documentos en poder de la Municipalidad), serán motivo de especial estudio en caso de una solicitud de demolición, intervención o restauración, con el objetivo de que el Comité Consultivo de Patrimonio de la Comisión del Plan Regulador analice las posibilidades y emita recomendaciones a la Municipalidad para salvaguardar el patrimonio arquitectónico, las cuales serán vinculantes para la Municipalidad.
-16.5.3. Zona de interés especial patrimonial del cuadrante urbano de Escazú.
-De acuerdo con lo descrito en el art. 16.5.1, en esta zona se desea rescatar el casco urbano por medio de las siguientes acciones:
+16.5.2. Requisitos adicionales a los requisitos generales. Las construcciones, rasgos arquitectónicos o espacios urbanos y rurales que estén identificados como de valor patrimonial por parte del Centro de Investigación del Patrimonio Cultural del Ministerio de Cultura para Escazú o por el Plan Regulador, así como los sitios arqueológicos identificados por el Museo Nacional, serán motivo de especial estudio en caso de solicitud de demolición, intervención, restauración o movilización de tierras; con el objetivo de que el Comité Consultivo de Patrimonio Histórico Arquitectónico del Plan Regulador analice las posibilidades y emita recomendaciones a la Municipalidad y a la Comisión de Trabajo u Oficina Municipal del Plan Regulador para salvaguardar el patrimonio arquitectónico, las cuales serán vinculantes para la Municipalidad.
+16.5.3. Zona de interés especial de valor patrimonial del cuadrante urbano de Escazú.
+De acuerdo con lo descrito en el artículo 16.5.1, en esta zona se desea rescatar el casco urbano por medio de las siguientes acciones:
 a. Peatonización de calles y avenidas específicamente:
-La avenida central en sentido este - oeste, en una extensión que incluiría desde el puente sobre el Río Chiquero (100 metros al oeste del Centro Comercial El Oriente) hasta la entrada del Cementerio Quesada).
-La avenida 2ª, en sentido este - oeste, en una extensión que incluiría desde el edificio SINA hasta 100 metros al oeste de la Agencia del Banco Nacional.
-La avenida 1ª, en sentido este- oeste, en una extensión que incluiría desde la esquina ubicada 200 metros al este del edificio de Correos de Costa Rica, hasta 300 metros al oeste del puente sobre el río La Cruz.
-Cinco calles en sentido norte - sur, incluyendo las que pasan por: un costado este de la Bomba Shell, costado este del edificio Segura, costado este de la Municipalidad, costado este del Centro Comercial Plaza Escazú y costado este del nuevo edificio de Acueductos y Alcantarillados.
+• La avenida central en sentido este-oeste, en una extensión que incluiría desde el puente sobre el Río Chiquero (100 metros al oeste del Centro Comercial El Oriente) hasta la entrada del Cementerio Quesada).
+• La avenida 2da., en sentido este-oeste, en una extensión que incluiría desde el edificio SINA hasta 100 metros al oeste de la Agencia del Banco Nacional.
+• La avenida 1era., en sentido este-oeste, en una extensión que incluiría desde la esquina ubicada 200 metros al este del edificio de Correos de Costa Rica, hasta 300 metros al oeste del puente sobre el río La Cruz.
+• Cinco calles en sentido Norte-Sur, incluyendo las que pasan por un costado este de la Bomba Shell, costado este del edificio Segura, costado este de la Municipalidad, costado este del Centro Comercial Plaza Escazú y costado este del nuevo edificio de Acueductos y Alcantarillados.
 b. Limitación de la circulación de vehículos pesados de servicio público, carga y descarga de mercancías y transporte de materiales (vagonetas y furgones) en las áreas citadas.
 c. Aplicación real y efectiva de la prohibición de estacionamiento en línea amarilla en toda la zona citada, aplicable a vehículos que presten servicio de transporte, sea este formal o informal.
 d. Prohibición en toda el área citada, de la utilización de rótulos comerciales o de otro tipo, en forma perpendicular, y control de su tamaño y número.
-e. Intervención directa en el área del parque central, de la siguiente forma: El parque central del distrito debe servir de manera polifuncional (descanso, recreación, deporte, cultura) como elemento integrador en la comunidad de puntos de reunión como lo son: iglesia, municipalidad, escuela, banco; todo bajo un concepto de acceso fácil y permanencia agradable y segura. Esta intervención deberá tomar muy en cuenta la eliminación de barreras arquitectónicas existentes, la provisión de espacios para actividades culturales, canalización adecuada de aguas, aseo, ornato, arborización y seguridad.
-16.5.4. Comité Consultivo de Patrimonio.
-Deberá crearse un Comité Consultivo para la Comisión del Plan Regulador que vigile, promueva y recomiende las medidas necesarias para salvaguardar el patrimonio arquitectónico - histórico del cantón en las áreas designadas como de valor patrimonial. Este Comité será convocado por la Municipalidad y deberá contar con los siguientes miembros: un delegado del Centro de Investigación y Conservación del Patrimonio Cultural del Ministerio de Cultura; el Director de Cultura de la Municipalidad de Escazú, un delegado del Departamento de Desarrollo Urbano de la Municipalidad y dos personas de la comunidad con amplia trayectoria y conocimiento en aspectos históricos y culturales en el cantón, quienes deberán ser escogidos por la Comisión de Cultura de la Municipalidad.
+e. Intervención directa en el área del parque central, de la siguiente forma: el parque central del distrito debe servir de manera polifuncional (descanso, recreación, deporte, cultura) como elemento integrador en la comunidad de puntos de reunión como lo son: iglesia, municipalidad, escuela, banco; todo bajo un concepto de acceso fácil y permanencia agradable y segura. Esta intervención deberá tomar muy en cuenta la eliminación de barreras arquitectónicas existentes, la provisión de espacios para actividades culturales, canalización adecuada de aguas, aseo, ornato, arborización y seguridad.
+Usos no permitidos: actividad industrial, salas de masajes, discotecas, bares, karaoke, casinos, salas de juegos electrónicos y los usos no conformes del artículo 12.3.1.
+Usos condicionales: parqueos públicos y privados que no acensen por el área de paseo peatonal.
+Cobertura máxima: 80%.
+Retiros lateral y posterior: igual al artículo 9.5.
+Retiro frontal: igual artículo 12.3.1.
+Marquesinas: todos los edificios en esta zona deberán tener una marquesina. El Departamento de Desarrollo Urbano generará un diseño adecuado al entorno urbano para estandarizar la colocación de las marquesinas, el cual deberá ser acatado en los diseños de edificaciones en el sector. El Departamento de Desarrollo Urbano tomará las previsiones presupuestarias necesarias para el diseño y el dibujo del elemento "marquesina", al que deberán ajustarse los propietarios de los predios incluidos en el área de Rescate del Casco Urbano en Escazú centro.
+Ochavas: son exigibles en cada esquina y son de interés público. Se forman a partir del planteamiento de un triángulo virtual cuyo ángulo recto es la esquina límite de la propiedad privada; el triángulo con dos lados iguales de 2,50 metros de longitud, señalan los vértices a partir del cual se traza la línea diagonal que genera la ochava. El trámite de la compra del área para la ochava se hará de la siguiente manera:
+- el propietario indica por escrito que al presentar su proyecto para trámite de permiso de construcción deja en el diseño la ochava correspondiente, la cual tiene un valor en colones que de seguido se expresará.
+- el área total de la ochava no será mayor a 3,125 m2.
+- el costo de la compra de dicha área se rebajará de oficio del impuesto de construcción a cancelar por el permiso de construcción.
+- el costo por m2 del terreno, en que el interesado venda a la Municipalidad la ochava servirá de base para la retasación del Impuesto de Bienes Inmuebles.
+- el desarrollador puede donar esa área a la ciudad.
+Plantas de tratamiento de aguas residuales deben ser del tipo anaeróbicas.
+(Así reformado punto 16.5 mediante sesión Nº 208, celebrada el 24 de abril del 2006)
+16.5.4 Comisión de Rescate Urbano Centro de Escazú. Se creará una comisión que se constituya en foro representativo e interactivo de la comunidad y la Municipalidad para discusión y análisis de propuestas para el rescate del centro urbano de Escazú. La Comisión tendrá la labor de recomendar al Concejo Municipal con copia a la Alcaldía Municipal y a la Comisión u Oficina Municipal del Plan Regulador las directrices sobre las cuales se podrá desarrollar un anteproyecto de "Propuesta para el Rescate Urbano considerando el Valor Patrimonial, Cultural, Social y Económico del cuadrante Urbano de Escazú", en un lapso no mayor de un año.
+Esta Comisión estará integrada por:
+- el síndico o su suplente de cada uno de los distritos del cantón.
+- dos representantes de los comerciantes con establecimientos en el sector descrito en el artículo 16.5.3, inciso a. Del Reglamento del Plan Regulador, nombrados por la asociación de comerciantes o en su defecto por una asamblea de comerciantes convocada para tal efecto.
+- un representante nombrado por el Concejo Municipal.
+- dos representantes de la Municipalidad (uno del Departamento de Desarrollo Urbano y uno de la Dirección de Cultura).
+(Así adicionado punto 16.5.4 mediante sesión Nº 208, celebrada el 24 de abril del 2006)
+16.5.5. Comité Consultivo de Patrimonio. Deberá crearse un Comité Consultivo para la Comisión del Plan Regulador que vigile, promueva y recomiende las medidas necesarias para salvaguardar el patrimonio arquitectónico-histórico del cantón en las áreas designadas como de valor patrimonial. Este Comité será convocado por la Municipalidad y deberá contar con los siguientes miembros: un delegado del Centro de Investigación y Conservación del Patrimonio Cultural del Ministerio de Cultura; el Director de Cultura de la Municipalidad de Escazú, un delegado del Departamento de Desarrollo Urbano de la Municipalidad y dos personas de la comunidad con amplia trayectoria y conocimiento en aspectos históricos y culturales en el cantón, quienes deberán ser escogidos por la Comisión de Cultura de la Municipalidad.
+El comité se regirá por el Reglamento del Comité Consultivo de Patrimonio Histórico Arquitécnico para la Comisión de Trabajo u Oficina del Plan Regulador de Escazú.
+(Así reformado punto 16.5.5 mediante sesión Nº 208, celebrada el 24 de abril del 2006)
 16.6. Zona de Control Especial Río Tiribí (ZCERT).
 16.6.1. Definición.
 El área que bordea la margen del Río Tiribí delimitada por la carretera Próspero Fernández y la Zona Industrial de Guachipelín ha modificado drásticamente su uso; ha pasado de ser una área de cafetales a una zona comercial y de servicios (hotel, bomba de gasolina, comercios, centro comercial, etc.). Sin embargo, siempre se hace necesaria la preservación de las márgenes del río como zona de protección, por lo que esta se propone dentro del Plan Regulador como una zona de protección, aunque con parámetros menos restrictivos en las áreas propiamente de comercio y servicios.
@@ -218,10 +235,8 @@ a. Residencial.
 b. Usos semiindustriales como talleres, parqueos para autobuses, furgones y similares.
 c. Vallas publicitarias.
 16.7. Zona de Control Especial Costa Rica Country Club (ZCECRCC).
-16.7.1. Definición.
-Esta zona se crea con el .n de conservar la forma urbana generada a partir del uso recreativo actual de la zona, y para proveer un eventual cambio de uso en el futuro; para esto se establece la siguiente normativa:
-16.7.2. Requisitos.
-No se autorizan fraccionamientos menores a una hectárea; la cobertura máxima autorizada será del 30% del área del terreno y la cobertura boscosa no será menor al 40% del terreno.
+16.7.1. Definición. Esta zona se crea con el fin de conservar la forma urbana generada a partir del uso recreativo actual de la zona, y para proveer un eventual cambio de uso en el futuro; para esto se establece la siguiente normativa.
+16.7.2. Requisitos. No se autorizan fraccionamientos menores a 2000 metros cuadrados; la cobertura máxima autorizada será del 30% del área del terreno y la cobertura boscosa no será menor al 40% del terreno.
 16.7.3. Usos conformes.
 a. Club campestre.
 b. Campus universitario.
@@ -235,6 +250,7 @@ La actividad se condiciona a no provocar contaminación sónica y deberá cumpli
 16.7.5. Usos no conformes.
 a. Todos los no enumerados en los usos conformes y condicionales.
 b. Vallas publicitarias.
+(Así reformados punto 16.7 mediante sesión Nº 208, celebrada el 24 de abril del 2006)
 16.8. Renovación urbana.
 16.8.1. Erradicación de tugurios.
 a. Al ser aprobado este Plan Regulador, el Concejo Municipal, por votación calificada y para efectos de expropiación, podrá proceder a declarar de interés público los terrenos que han sido destinados por sus propietarios u ocupantes a tugurios, entendidos estos como aquellos desarrollos destinados a la habitación, cuyas parcelaciones no puedan cumplir con los requisitos mínimos establecidos en este Plan o que aún cumpliendo tales requisitos se encuentren asentados en zonas de riesgo, definidas en este mismo Plan.

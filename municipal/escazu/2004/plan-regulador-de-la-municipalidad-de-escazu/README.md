@@ -14,3 +14,4 @@ Plan Regulador de la Municipalidad de Escazú
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-03 | la propia norma |
+| 2 | 2006-04-24 | Reglamento municipal 208 (2006-04-24) |

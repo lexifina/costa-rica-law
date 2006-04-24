@@ -1,29 +1,18 @@
-Artículo 22.—Vías locales. Tomando en cuenta que la definición de calles locales en la Ley de Caminos Públicos es escueta y confusa, el Plan Regulador propone la siguiente clasificación, reflejada en el Mapa de Vialidad:
+Artículo 22.—Vías locales o cantonales. Tomando en cuenta que la definición de calles locales en la Ley de Caminos Públicos es escueta y confusa, el Plan Regulador propone la siguiente clasificación, reflejada en el Mapa de Vialidad.
 22.1. Caminos vecinales.
-22.1.1. Camino rural.
-Camino público que suministra acceso directo a fincas y a otras actividades económicas rurales; une caseríos y poblados con la red vial nacional y calles primarias. Se caracterizan por tener bajos volúmenes de tránsito y viajes locales de corta distancia. Tendrán una previsión vial total de 14 metros, con 9 metros de calzada, 1 metro con 50 centímetros de acera y 1 metro de franjas verdes. Podrá habilitarse un número ilimitado de lotes.
-22.1.2. Calle primaria.
-Es aquella que sirve para canalizar el tránsito entre los distritos o entre centros de población importantes por su concentración de servicios. Estos caminos constituyen una red vial continua y sirven de enlace hacia carreteras de la red vial nacional y caminos rurales. Tendrán una previsión vial total de 14 metros en zonas no industriales, con 9 metros de calzada, 1 metro con cincuenta centímetros de acera y 1 metro de franjas verdes. Podrá habilitarse un número ilimitado de lotes. En la zona industrial la previsión vial será de 17 metros con 11 metros de calzada, 2 metros de acera, y 1 metro de franja verde.
+22.1.1. Camino rural. Camino público que suministra acceso directo a fincas y a otras actividades económicas rurales; une caseríos y poblados con la red vial nacional y calles primarias. Se caracterizan por tener bajos volúmenes de tránsito y viajes locales de corta distancia. Tendrán una previsión vial total de 14 metros, con 9 metros de calzada, 1 metro con 50 centímetros de acera y 1 metro de franjas verdes. Podrá habilitarse un número ilimitado de lotes.
+22.1.2. Calle primaria. Es aquella que sirve para canalizar el tránsito entre los distritos o entre centros de población importantes por su concentración de servicios. Estos caminos constituyen una red vial continua y sirven de enlace hacia carreteras de la red vial nacional y caminos rurales. Tendrán una previsión vial total de 14 metros en zonas no industriales, con 9 metros de calzada, 1 metro con cincuenta centímetros de acera y 1 metro de franjas verdes. Podrá habilitarse un número ilimitado de lotes. En la zona industrial la previsión vial será de 17 metros con 11 metros de calzada, 2 metros de acera, y 1 metro de franja verde.
 22.2. Calles locales.
-22.2.1. Calle urbana.
-Es aquella vía ubicada dentro del sistema de cuadrícula vial de las cabeceras de los distritos, en los llamados cuadrantes urbanos tal y como se definen en este Reglamento. Tienen una previsión vial variable y en ellas se exigirá únicamente un alineamiento municipal de 2 metros hacia adentro de la línea de propiedad en calles, y de 2 metros con 50 centímetros en avenidas, para efectos de construcción de aceras. Estas se medirán desde el cordón y caño existente, y el ancho correspondiente para completar el ancho de acera requerido deberá remeterse dentro de la línea de propiedad.
+22.2.1. Calle urbana. Es aquella vía ubicada dentro del sistema de cuadrícula vial de las cabeceras de los distritos, en los llamados cuadrantes urbanos tal y como se definen en este reglamento. Tienen una previsión vial variable y en ellas se exigirá únicamente un alineamiento municipal de 2 metros hacia adentro de la línea de propiedad en calles, y de 2 metros con 50 centímetros en avenidas, para efectos de construcción de aceras. Estas se medirán desde el cordón y caño existente, y el ancho correspondiente para completar el ancho de acera requerido deberá remeterse dentro de la línea de propiedad.
 22.3. Otros caminos.
-22.3.1. Calle secundaria.
-Es aquella vía que sirve de enlace entre el sistema de cuadrícula vial de las cabeceras de los distritos y las calles primarias, o carreteras nacionales; tendrá una previsión vial de 11 metros, la calzada será de 7 metros y el resto se repartirá entre aceras y zonas verdes.
-22.3.2. Calle terciaria.
-Vía que atiende movimientos vehiculares dentro de barrios pequeños. Comprende caminos en herradura, calles de continuidad limitada o sin salida, sendas y veredas que proporcionan acceso a muy pocos usuarios, quienes sufragarán los costos de mantenimiento y mejoramiento. Este tipo de calles tendrán una previsión vial de 9 metros, con una calzada de 6 metros y el resto se repartirá entre aceras y zonas verdes.
-22.3.3. Calle de uso restringido.
-Se llama así a las calles terciarias que, por sus características de continuidad limitada, tendrán un derecho de vía de 7 metros, una calzada de 5 metros y el resto podrá ser acera o zona verde. Su longitud máxima será de 120 metros.
+22.3.1. Calle secundaria. Es aquella vía que sirve de enlace entre el sistema de cuadrícula vial de las cabeceras de los distritos y las calles primarias, o carreteras nacionales; tendrá una previsión vial de 11 metros, la calzada será de 7 metros y el resto se repartirá entre aceras y zonas verdes.
+22.3.2. Calle terciaria. Vía que atiende movimientos vehiculares dentro de barrios pequeños. Comprende caminos en herradura, calles de continuidad limitada o sin salida, sendas y veredas que proporcionan acceso a muy pocos usuarios, quienes sufragarán los costos de mantenimiento y mejoramiento. Este tipo de calles tendrán una previsión vial de 9 metros, con una calzada de 6 metros y el resto se repartirá entre aceras y zonas verdes.
+22.3.3. Calle de uso restringido. Se llama así a las calles terciarias que, por sus características de continuidad limitada, tendrán un derecho de vía de 7 metros, una calzada de 5 metros y el resto podrá ser acera o zona verde. Su longitud máxima será de 120 metros.
 22.4. Definiciones.
-22.4.1. Derecho de vía.
-Será el ancho total de la calle o vía pública, esto es, la distancia entre líneas de propiedad, incluyendo en su caso, calzada, aceras y franjas verdes.
-22.4.2. Previsión vial.
-Es el ancho de vía fijado por el presente Reglamento para las diferentes categorías de calles y caminos públicos en él definidos; incluye calzada, aceras a ambos lados y franjas verdes a ambos lados. La previsión vial será la regulación con base en la cual se aplicará la normativa establecida para la aceptación de fraccionamientos en calles que no cumplan con las dimensiones reglamentarias aquí establecidas para todos los efectos de las respectivas ampliaciones viales.
-22.4.3. Calzada.
-Franja comprendida entre cordones de caño, cunetas o zanjas de drenaje, destinada al tránsito de vehículos.
-22.4.4. Acera.
-Parte de la vía pública, ubicada normalmente en sus orillas, que se reserva al tránsito de peatones.
-22.4.5. Alameda.
-Vía pública de uso exclusivamente peatonal.
-22.5. Alcance.
-Estas normas rigen para todas las vías públicas de la red vial cantonal que no se hayan originado por procesos de urbanización debidamente ajustados al Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones del Instituto Nacional de Vivienda y Urbanismo (INVU).
+22.4.1. Derecho de vía. Será el ancho total de la calle o vía pública, esto es, la distancia entre líneas de propiedad, incluyendo en su caso, calzada, aceras y franjas verdes.
+22.4.2. Previsión vial. Es el ancho de vía fijado por el presente reglamento para las diferentes categorías de calles y caminos públicos en él definidos; incluye calzada, aceras a ambos lados y franjas verdes a ambos lados. La previsión vial será la regulación con base en la cual se aplicará la normativa establecida para la aceptación de fraccionamientos en calles que no cumplan con las dimensiones reglamentarias aquí establecidas para todos los efectos de las respectivas ampliaciones viales.
+22.4.3. Calzada. Franja comprendida entre cordones de caño, cunetas o zanjas de drenaje, destinada al tránsito de vehículos.
+22.4.4. Acera. Parte de la vía pública, ubicada normalmente en sus orillas, que se reserva al tránsito de peatones.
+22.4.5. Alameda. Vía pública de uso exclusivamente peatonal.
+22.5. Alcance. Estas normas rigen para todas las vías públicas de la red vial cantonal que no se hayan originado por procesos de urbanización debidamente ajustados al Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones del Instituto Nacional de Vivienda y Urbanismo (INVU).
+(Así reformado mediante sesión Nº 208, celebrada el 24 de abril del 2006)

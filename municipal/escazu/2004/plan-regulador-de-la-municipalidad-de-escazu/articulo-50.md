@@ -1,0 +1,37 @@
+Artículo 50.—Definición de los términos.
+• Alameda: vía de tránsito exclusivamente peatonal para usos recreativos, espirituales y físicos de sus ocupantes.
+• Alineamiento: línea, fijada por la Municipalidad o el MOPT, con límite o aproximación máxima de la construcción con respecto a la vía pública.
+• Altura total: en una edificación, corresponde a la distancia entre el nivel del piso principal (vestíbulo) y la viga corona del último piso.
+• Altura de piso: para efectos de este reglamento se toma una medida de tres metros, cincuenta centímetros como la altura máxima de un piso.
+• Antejardín: espacio comprendido entre la línea de propiedad y la línea de construcción, fijado por la Municipalidad o el MOPT.
+• Anuncio: todo letrero, escritura, impreso, pintura, emblema, dibujo u otro medio cuyo propósito sea hacer una propaganda comercial o llamar la atención hacia un producto, artículo o marca de fábrica, o hacia una actividad comercial o negocio, servicio, recreación, profesión u ocupación domiciliaria que se ofrece, vende o lleva a cabo en un sitio, distinto de aquel donde aparece el anuncio.
+• Área Metropolitana: el conjunto de áreas urbanas correspondientes a distintas jurisdicciones municipales y que, al desarrollarse en torno a un centro principal de población, funciona como una sola unidad urbana. El Área Metropolitana de San José involucra 12 cantones, vecinos del cantón de San José.
+• Avenida: vía pública, con orientación predominante de este a oeste.
+• Aviso: todo letrero que no tenga fines de publicidad comercial.
+• Aviso de tránsito: todo letrero instalado para dirigir el tránsito.
+• Área residencial: zonas urbanas con características residenciales pero que no son proyectos aprobados como urbanización, en estas zonas predomina el uso residencial pero se caracteriza por mezcla de usos en mayor o menor grado tales como oficinas, comercios y servicios. Son áreas que en su mayoría se desarrollan dentro del proceso natural de crecimiento de las ciudades, sin haber sido aprobadas como urbanizaciones formales por el INVU.
+• En caso de duda de si una zona es residencial o no debe consultarse al INVU.
+• Cabida: área de un lote.
+• Calzada: es la franja comprendida entre cordones, cunetas o zanjas de drenaje, destinada al tránsito de vehículos.
+• Calle: vía pública con orientación predominante de norte a sur.
+• Calles de retorno: vía pública sin salida, diseñada para viraje en un solo sentido.
+• Certificado catastral: es el documento expedido por el Catastro mediante el cual se certifica que el plano del inmueble ha sido debidamente inscrito en esa oficina, con la indicación de si la zona donde se localiza el inmueble es zona catastral o zona catastrada.
+• Cobertura del área libre de restricciones (en ZCERT): es el área total del terreno restando el área comprometida como zona de no construcción o protección del margen del río, área que no puede ser contabilizada dentro del área construible de un proyecto.
+• Cobertura de edificación: se define como el área cubierta por la construcción de la edificación así como las áreas impermeables tales como parqueos, piscinas, canchas de tenis y senderos peatonales asfaltados. el área libre de cobertura es el área verde o inclusive la que tiene pavimentos permeables.
+• Condominio: inmueble susceptible de aprovechamiento independiente por parte de distintos propietarios, con elementos comunes de carácter indivisible.
+• Condominio vertical: modalidad mediante la cual cada condominio es propietario exclusivo de parte de la edificación conformada por varios pisos y en común de todo el terreno y edificaciones o instalaciones de uso general.
+• Condominio horizontal: la modalidad donde cada condómino es propietario exclusivo de un terreno propio y de la edificación construida sobre él y copropietario de las áreas comunes.
+• Condominio mixto: son aquellos donde pueden presentarse en una misma finca matriz, condominios verticales y horizontales.
+• Condominio combinado: es un proyecto donde se combinan diferentes usos y tipos de edificaciones, deben ser compatibles entre sí y deben ajustarse a la normativa que regula la zona donde se localicen.
+• Condominio de condominios: proyecto donde las fincas filiales se conforman a partir de la subdivisión de una finca filial matriz. Lo anterior debe permitirse en los reglamentos de condominio y administración, tanto de la finca matriz inicial como de la finca filial matriz; debiendo contener ambos reglamentos las normas que regulen la relación entre los condominios y de cómo se ejercerán los derechos y obligaciones de los propietarios y / o condóminos.
+• Condominios de lotes: son aquellos donde las fincas filiales corresponden a predios horizontales, que pueden ser destinados a uso agrícola, industrial, pecuario, turístico, comercial, habitacional, de recreo y/o cualquier otro propósito lícito. Pueden estar destinados a la prestación de servicios o para construir edificaciones. En los condominios horizontales de lotes cada finca filial será denominada finca filial primaria individualizada (FFPI).
+• Conjunto: desarrollo inmobiliario conformado por varios edificios levantados sobre un o varios lotes, que comparten área y servicios de uso y utilidad general, como las vías internas, los estacionamientos, zonas verdes, los muros de cerramiento, y otras áreas. Puede conformarse también por varias edificaciones de vivienda, comercio o industria, estructuralmente independientes.
+• Condohotel: modalidad de operación de hospedaje en que la propiedad del inmueble esta acogida a la Ley Reguladora de la Propiedad en Condominio, o aplica principios contenidos en ésta y en el que la explotación hotelera está garantizada mediante un contrato de administración, con una empresa operadora hotelera que asuma las funciones correspondientes a los administradores según la Ley y las que se derivan del carácter hotelero de la operación. El 70% del tiempo al año debe de dedicarse el establecimiento como mínimo al servicio de hospedaje, del 30% puede ser utilizado por los condóminos.
+• Densidad neta residencial (o Densidad Inmobiliaria): relación entre el número de viviendas y el área destinada al uso residencial con sus respectivos patios y servicios conexos. No se incluyen las áreas de vías parques u otros usos.
+• Densidad bruta residencial: relación entre el número de viviendas de un proyecto residencial y la superficie total del terreno donde este se desarrolla. Se incluyen áreas de vías y de otros usos complementarios del proyecto.
+• Edificios multifuncionales: proyectos de uso mixto comercial, residencial y servicios con un edificio o varios, que integren en forma arquitectónica adecuada los diferentes usos y áreas verdes y espacios de integración tales como plazoletas, vestíbulos, terrazas y similares.
+• Urbanización: el fraccionamiento y habilitación de un terreno para fines urbanos, mediante la construcción de calles y provisión de servicios. (Definición de la Ley de Planificación Urbana).
+• Los planos de urbanización deben ser aprobados como tales por el Instituto nacional de Vivienda y Urbanismo (INVU) con base en las normas del Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones.
+Este Reglamento rige a partir del día de su publicación.
+(Así adicionado mediante sesión Nº 208, celebrada el 24 de abril del 2006)
+(Ver Croquis del Plan Regulador de Escazú, en la página No. 37 de La Gaceta No. 90 del 11de mayo del 2006.)

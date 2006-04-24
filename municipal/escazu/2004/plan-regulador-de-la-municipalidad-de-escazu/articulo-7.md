@@ -23,5 +23,5 @@ Zona de Control Especial Río Tiribí (ZCERT).
 Zona de Control Especial Costa Rica Country Club (ZCECRCC).
 7.7. Zonas para edificaciones en altura.
 Las zonas antes citadas están delimitadas gráficamente en el Plano de Zonificación que se integra al presente Plan Regulador.
-7.8. Límites entre zonas.
-Cuando un inmueble quede dividido por un límite entre las zonas, las regulaciones de cualquiera de ellas pueden extenderse hasta 50 metros más, a partir de la línea divisoria siempre que el uso que se generaliza afecte más del 75% del área del inmueble y por tanto este último pueda destinarse para tal uso en su totalidad. En los sectores para edificios en altura (17,5 metros o más) será imprescindible contar con un estudio geotécnico que demuestre la seguridad de que las características del suelo sean apropiadas para dar soporte a los edificios.
+7.8. Límites entre zonas. Cuando un predio (siempre que cumpla con frente y área reglamentaria en la zona en que se ubique) esté ubicado sobre la línea divisoria entre dos o más usos, se puede generalizar cualquiera de ellos a solicitud del propietario. Cuando se trata de fincas con dos o más frentes, con atributos de usos diferentes dando uno de los frentes a uso residencial, se permitirá el desarrollo de la actividad ajena a la residencia en un 100% de la finca, bajo el condicionante de que el acceso y/o egreso de esa actividad, no sea con frente a la zona residencial.
+(Así reformado el punto anterior mediante sesión Nº 208, celebrada el 24 de abril del 2006)
