@@ -1,0 +1,23 @@
+Artículo 4º—Regulación por zonas.
+Zona silvestre (ZS)
+Propósito: En esta zona se procura mantener el área del Refugio que cuenta con cobertura boscosa como una zona en donde los procesos naturales siguen su curso con la menor intervención posible por parte del hombre en materia de infraestructura.
+Localización. Esta zona corresponde al sector identificado por las siglas (ZS), que se ubica en el Mapa de Zonificación.
+Usos permitidos. Investigación científica y Senderos que permitan un disfrute y aprendizaje seguro por parte de los visitantes, la visitación será en bajo número y con guía a los sitios de atractivo natural. Se permitirá adicionalmente la extracción de agua del subsuelo para
+consumo humano.
+Zona de uso moderado (ZUM).
+Propósito. Se pretende la utilización de dos sectores de bosque que presentan pendientes menores al 40% para el desarrollo de módulos con infraestructura básica que facilite a los turistas la apreciación de la dinámica natural del bosque tanto durante el día como durante la noche.
+Localización. Esta zona corresponde al sector identificado por las siglas ZUM, que se ubican en el Mapa de Zonificación.
+Usos permitidos. Senderos, Miradores, Escampaderos, Puentes Rústicos, Módulos para Acampar y Servicios Sanitarios con sus respectivos sistemas de tratamiento de aguas residuales.
+Dosificación de uso del suelo. La dosificación de uso del suelo será de un módulo de acampar por cada 3000 m2 como máximo.
+Limitaciones constructivas:
+a. La construcción en esta zona debe ser dispersa de manera que las unidades de acampar se encuentren disgregadas por toda la zona. Se establece lo anterior, con el objetivo de mantener el entorno, propiciando una distribución de las construcciones que minimicen el impacto visual y ambiental. Las obras deben desarrollarse adaptándose a la morfología del terreno y en caso de ser techadas su altura no sobrepasará cinco metros.
+b. No se permite el movimiento de tierra que altere la topografía, sólo se permitirá hacer excavaciones para enterrar estructuras como: cimientos, tuberías, y tanques. Las obras deberán adaptarse a la topografía por medio de pilotes, evitándose en todo momento la modificación de la forma del terreno.
+c. Los residuos de tierra obtenidos de las excavaciones aquí autorizadas, deberán extenderse sobre el terreno de la misma propiedad de donde fueron excavados, en una única capa uniforme no mayor a 30 centímetros. Bajo ninguna circunstancia se permitirá el conservarlos en un único volumen o en capas superiores a los 30 centímetros arriba mencionados.
+d. Los módulos que se desarrollen deben estar insertos dentro del dosel, no se permite la corta de árboles.
+Zona para manejo (ZPM)
+Propósito. Esta zona es la menos sensible dentro del Refugio, por encontrarse desprovista de bosque, por lo que se usará para el enriquecimiento con especies que produzcan frutos, facilitando con ello alimentación para la avifauna, sin pretender desarrollar una sucesión natural ni inducida hacia bosque. Las especies recomendadas son:
+ANACARDIACEAE: Spondias mombin, Anacardium excelsum, ARECACEAE: Astrocaryum alatum, ARECACEAE: Attalea rostrata, CARICACEAE: Carica papaya, CECROPIACEAE: Cecropia peltata, CLUSIACEAE: Calophyllum brasiliense, CLUSIACEAE: Garcinia madruno, COSTACEAE: Costus sp, EUPHORBIACEAE: Mabea excelsa, Sapium glandulosum, FABAC./CAES: . Phyllocarpus riedelii, FABAC./MIM.: Enterolobium cyclocarpum, Inga punctata, Samanea saman, MALVACEAE: Malvaviscus arboreus, MELASTOMATACEAE: Miconia argentea, Clidemia quinquenervia, Mouriri myrtilloides, MORACEAE: Batocarpus costaricensis, Clarisia racemosa, Ficus americana, Ficus crassivenosa, Pseudolmedia rigida, Sorocea pubivena, MYRTACEAE: Eugenia acapulcensis, Myrcianthes fragrans, Psidium guajava, RUBIACEAE: Calycophyllum candidissimum, Genipa americana, Posoqueria latifolia, SAPOTACEAE: Pouteria juruana, Pouteria reticulata, STERCULIACEAE: Guazuma ulmifolia, VITACEAE: Cissus alata, VITACEAE: Cissus biformifolia, HELICONIACEAE: Heliconia latispatha, MYRISTICACEAE: Otoba novogranatensis, Virola koschnyi, Virola surinamensis, MYRTACEAE: Myrciaria floribunda, COMMELINACEAE: Dichorisandra hexandra, MYRSINACEAE: Ardisia revoluta, PASSIFLORACEAE: Passiflora biflora, SAPOTACEAE: Manilkara Chicle, URTICACEAE: Myriocarpa Longipes.
+Localización. Corresponde a la zona identificada por las siglas ZPM del Mapa de Zonificación.
+Usos permitidos. Senderos, puentes rústicos, vialidad, miradores, escampaderos y enriquecimiento con especies arbustivas y arbóreas que produzcan frutos comestibles para las aves.
+Limitaciones constructivas
+Ver artículo 5 sobre senderos y vialidad.

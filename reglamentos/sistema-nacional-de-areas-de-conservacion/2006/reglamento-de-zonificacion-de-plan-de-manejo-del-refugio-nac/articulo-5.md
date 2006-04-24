@@ -1,0 +1,4 @@
+Artículo 5º—Aspectos generales.
+Viabilidad Ambiental: Todas las obras que se desarrollen, deberán contar previo al inicio, además de la autorización de la Administración del Refugio con la Viabilidad Ambiental de la SETENA, sin menoscabo de cualesquiera otro procedimiento que la actividad demande. Construcción de Senderos y vialidad:
+a) Senderos: Se entiende que la construcción de senderos dadas las condiciones de topografía del Refugio, buscan facilitar un disfrute seguro a los visitantes, por lo anterior, cuando estos sean elevados sobre el nivel del terreno su ancho no será mayor a 2 mts y su construcción será liviana, (madera certifícada o plástico reciclado).
+b) Vialidad: La vialidad que se construya, en las zonas en que sea permitido buscará la interconexión entre zonas ya existentes dentro del Refugio o con sus colindancias, en cualesquiera de los casos tendrán un máximo de 5 mts de calzada.
