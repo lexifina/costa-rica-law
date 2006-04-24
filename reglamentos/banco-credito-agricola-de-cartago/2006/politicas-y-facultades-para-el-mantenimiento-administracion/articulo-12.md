@@ -1,0 +1,1 @@
+12.—Los órganos autorizados para aprobar la venta de bienes adquiridos en pago de obligaciones, serán la Comisión de Venta de Bienes, el Gerente General y los Subgerentes Generales y el Gerente del Centro de Negocios respectivo.

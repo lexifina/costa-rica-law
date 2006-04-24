@@ -1,0 +1,1 @@
+3º—Será responsabilidad de la Oficina de Mantenimiento de Bienes Adjudicados, mantener actualizado el inventario de los bienes en depósito judicial y proveer del espacio físico necesario, para ubicar y resguardar los bienes muebles recibidos bajo este concepto.

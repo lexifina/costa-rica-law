@@ -1,0 +1,1 @@
+18.—Cuando medie una solicitud de financiamiento para la adquisición de un bien, por parte de un adjudicatario, éste deberá aportar de contado, al menos un 30% del monto adjudicado. Sólo la Comisión de Venta de Bienes, indistintamente del monto y por conveniencia institucional, podrá negociar un porcentaje de prima inferior, mismo que no podrá ser menor al 10% de dicho monto.

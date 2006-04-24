@@ -1,0 +1,3 @@
+17.—El Banco exigirá a las personas interesadas en la compra de bienes adquiridos en pago de obligaciones, dos tipos de garantía: la garantía de participación y la garantía de cumplimiento.
+La garantía de participación respaldará el mantenimiento y seguridad de la oferta y la garantía de cumplimiento asegurará el resarcimiento de cualquier daño o perjuicio ocasionado por el adjudicatario.
+Tanto la garantía de participación como la de cumplimiento, se establece entre un 2.5% y un 5% tomando como base el precio de referencia de venta, a criterio de la Oficina de Mantenimiento de Bienes Adjudicados.

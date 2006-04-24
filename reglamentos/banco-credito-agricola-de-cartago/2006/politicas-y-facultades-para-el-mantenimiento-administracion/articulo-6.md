@@ -1,0 +1,1 @@
+6º—Para la venta de bienes, se debe calcular la estimación por antigüedad de bienes adjudicados, a partir de la fecha de adquisición del bien, en un plazo máximo de dos años, la cual puede registrarse contablemente al término de dicho plazo o también, puede registrarse en la forma y periodicidad que recomiende la Dirección de Finanzas, sin sobrepasar un plazo de dos años.
