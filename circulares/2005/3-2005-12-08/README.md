@@ -14,3 +14,4 @@ Directriz para la Correcta Descripción de las Importaciones de Calzado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-24 | la propia norma |
+| 2 | 2006-04-24 | Circular 1 (2006-02-16) |

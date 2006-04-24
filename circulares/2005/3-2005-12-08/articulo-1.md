@@ -26,4 +26,5 @@ Materia constitutiva | Se refiere al material del que está confeccionado el cal
 Medida | Comprende el tamaño del calzado, por ejemplo: número 40 o número 7½.
 Código de referencia | Se indicará el código con el que el exportador identifica el artículo en la factura comercial o en la lista de empaque.
 Las consultas sobre la aplicación de esta circular, pueden dirigirse a la Dirección Órgano Nacional de Valoración y Verificación Aduanera de la Dirección General de Aduanas.
-Rige a partir del 1º de marzo del 2006.
+Rige a partir del 3º de Abril del 2006.
+(Así reformada la fecha de vigencia de ésta circular por circular ONVVA-001-2006 del 16 de febrero del 2006)
