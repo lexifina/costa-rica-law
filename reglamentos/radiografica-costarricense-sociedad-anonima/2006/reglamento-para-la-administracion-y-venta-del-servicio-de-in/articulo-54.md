@@ -1,0 +1,1 @@
+Artículo 54.—Racsa cobrará al agente autorizado por mes vencido, el total del tráfico generado en la cuenta especial por motivo de la programación de cuentas del servicio de Internet conmutado a los clientes; si el agente autorizado no ha presentado el respectivo contrato a Racsa en el tiempo estipulado, según el artículo 6 del presente reglamento.

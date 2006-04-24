@@ -1,0 +1,1 @@
+Artículo 27.—El agente autorizado recopilará, en primera instancia, todos los requisitos necesarios de acuerdo al paquete de Internet conmutado adquirido por el cliente, para realizar la programación de la cuenta.

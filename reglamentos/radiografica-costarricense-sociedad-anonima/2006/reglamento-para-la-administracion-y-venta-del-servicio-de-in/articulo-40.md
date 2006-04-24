@@ -1,0 +1,1 @@
+Artículo 40.—El agente autorizado presentará a Racsa, en un plazo máximo de tres días hábiles, a partir de la notificación de Racsa para que presenten la factura correspondiente por concepto de pago de comisión de los paquetes vendidos del servicio de Internet conmutado.

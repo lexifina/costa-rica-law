@@ -1,0 +1,2 @@
+Artículo 71.—El agente autorizado deberá de dar a conocer al cliente la dirección de la página Web de Racsa (www.racsa.co.cr) como referencia de acceso, e indicarle la conveniencia de visitarla, con la finalidad de que el cliente cuente con información de interés sobre el servicio que se le presta.
+En el caso de que el agente autorizado cuente con su propia página Web, éste podrá programarla con un enlace a la página de Racsa. Este enlace debe estar totalmente visible. Racsa dará su consentimiento por escrito para que en el mismo se incluya el logotipo de Racsa.

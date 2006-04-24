@@ -1,0 +1,1 @@
+Artículo 61.—Al no presentar la factura en el plazo estipulado, según en el articulo anterior, quedará pendiente de pago para el próximo mes, y habrá un margen de tiempo con sesenta días naturales para cancelar las comisiones de ventas al Agente Autorizado.

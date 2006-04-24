@@ -1,0 +1,1 @@
+Artículo 53.—Racsa cobrará por mes vencido, el excedente de tráfico generado por la cuenta de Internet Conmutado asignada al agente autorizado, de conformidad con los montos establecidos por la empresa para el tipo de servicio utilizado.

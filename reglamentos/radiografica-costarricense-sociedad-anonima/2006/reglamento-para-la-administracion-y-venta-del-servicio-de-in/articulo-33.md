@@ -1,0 +1,1 @@
+Artículo 33.—El agente autorizado deberá entregar a Racsa todos los contratos vendidos del servicio de Internet conmutado en el plazo máximo de los ocho días naturales a partir del día de su programación.
