@@ -20,5 +20,5 @@ b) la renovación de licencias de conducir expedida por cinco años, tendrá un 
 c) el duplicado de la licencia de conducir expedida, tendrá un costo de cinco mil colones (¢5.000,00).
 d) los cursos de matrícula que imparta la Dirección General de Educación Vial, tendrá un costo de cinco mil colones (¢5.000,00).
 e) las pruebas prácticas de manejo, impartidas por la Dirección General de Educación Vial tendrán un costo de cinco mil colones (¢5.000,00).
-f) la renovación de licencias de conducir a las personas de sesenta y cinco o más años, de la licencia para el servicio público y de la licencia para conducir equipo especial, tendrá un costo de cinco mil colones (¢5.000,00).
-(Así AMPLIADO por el artículo 1 del Decreto Ejecutivo No. 31218 de 31 de marzo de 2003, publicado en La Gaceta No. 124 de 30 de junio de 2003, el cual adicionó el inciso f) al presente artículo.)
+f) se establece un plazo de un mes, contado a partir de la fecha de expedición del documento, para presentar reclamos a la administración por defectos en la calidad del material utilizado para la elaboración de licencias y permisos de aprendizaje.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 33113 del 24 de abril de 2006)

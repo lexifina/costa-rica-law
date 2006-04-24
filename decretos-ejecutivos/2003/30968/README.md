@@ -15,3 +15,4 @@ Fija tarifas a cancelar por concepto de derecho de licencias de conducir, matrí
 | --- | --- | --- |
 | 1 | 2003-02-07 | la propia norma |
 | 2 | 2003-03-31 | Decreto Ejecutivo 31218 (2003-03-31) |
+| 3 | 2006-04-24 | Decreto Ejecutivo 33113 (2006-04-24) |
