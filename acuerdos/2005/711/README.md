@@ -14,3 +14,4 @@ Calendario Anual de Sorteos de Loterías 2006
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-31 | la propia norma |
+| 2 | 2006-04-25 | Acuerdo 188 (2006-04-25) |
