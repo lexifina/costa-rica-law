@@ -1,0 +1,2 @@
+MUNICIPALIDAD VÁZQUEZ DE CORONADO
+Se acuerda 2006-206-24. Incluir el siguiente Transitorio en el Reglamento de Becas de la Municipalidad Vázquez de Coronado para que se lea: Ampliar el plazo de entrega y recepción de formularios de becas especiales al 30 de setiembre del 2006. Rige a partir de su publicación en el Diario Oficial La Gaceta. Publíquese. Acuerdo cuenta con siete votos afirmativos. Acuerdo definitivamente aprobado.
