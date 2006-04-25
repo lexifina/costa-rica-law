@@ -1,0 +1,1 @@
+Artículo 15.—El presente reglamento deroga cualquier otra disposición que sobre esta materia exista, incluido el Reglamento de Dedicación Especial aprobado por la Junta Directiva General del Banco en la sesión N° 6411/90, artículo 18 del 31 de mayo de 1990.

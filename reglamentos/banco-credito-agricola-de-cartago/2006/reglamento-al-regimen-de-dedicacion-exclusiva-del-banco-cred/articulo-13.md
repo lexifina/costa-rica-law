@@ -1,0 +1,2 @@
+Artículo 13.—El incumplimiento por parte del beneficiario, de lo establecido en el presente reglamento en cuanto a la dedicación exclusiva, se considerará como infracción grave a la relación de servicio y por lo tanto, será causal de despido sin responsabilidad patronal, sin perjuicio de la responsabilidad penal, civil o administrativa que pudiere generarse con base en dicho Reglamento.
+Para la determinación de la verdad real, se seguirá el Debido Proceso.
