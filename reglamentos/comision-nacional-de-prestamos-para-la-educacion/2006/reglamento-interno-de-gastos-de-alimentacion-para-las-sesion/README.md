@@ -14,3 +14,4 @@ Reglamento Interno de gastos de Alimentación para las Sesiones del Consejo Dire
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-15 | la propia norma |
+| 2 | 2006-04-25 | Reglamento 15 (2006-04-25) |
