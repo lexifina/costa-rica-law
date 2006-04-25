@@ -1,0 +1,1 @@
+Artículo 28.—Normas supletorias. En lo no previsto en este Reglamento se aplicarán supletoriamente el Código de Normas y Procedimientos Tributarios, la Ley General de la Administración Pública y la Ley General de Aduanas Nº 7557, del 20 de octubre de 1995 y sus reformas.

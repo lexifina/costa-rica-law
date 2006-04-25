@@ -1,0 +1,1 @@
+Artículo 8º—Facultades y deberes de los inspectores. Los inspectores sujetarán su actuación a las facultades y deberes inherentes a la Administración Tributaria, previstos en el Código de Normas y Procedimientos Tributarios, en cuanto fueren aplicables.

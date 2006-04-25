@@ -1,0 +1,2 @@
+Artículo 14.—Resolución del tesorero. Interpuesta o no la impugnación, el Tesorero del Colegio dictará y firmará la resolución que corresponda, resolviendo las cuestiones debatidas en el reclamo si lo hubiere, o en su defecto, con lo que conste en el expediente.
+Dicha resolución se dictará dentro del mes siguiente al vencimiento del plazo de treinta días para interponer el reclamo a que se refiere el artículo anterior.

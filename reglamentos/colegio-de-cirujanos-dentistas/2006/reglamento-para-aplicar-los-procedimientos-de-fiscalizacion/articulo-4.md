@@ -1,0 +1,1 @@
+Artículo 4º—Pago del timbre en las ventas locales. Los timbres que lleven las facturas deberán ser agregados a éstas y cancelados o matados por el vendedor de los materiales o instrumentos odontológicos.

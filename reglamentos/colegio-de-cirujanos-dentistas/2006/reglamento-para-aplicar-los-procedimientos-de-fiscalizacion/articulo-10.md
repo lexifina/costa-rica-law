@@ -1,0 +1,3 @@
+Artículo 10.—Información de los interesados y de terceros.
+Los depósitos dentales, establecimientos comerciales, importadores y, en general, cualquier persona física o jurídica, que compre y venda materiales, medicinas o instrumentos para el ejercicio de la odontología, presentarán a los inspectores, cuando éstos les soliciten, los libros, los archivos, los registros contables y toda otra información que interese para verificar si se ha pagado correctamente o no el Timbre Odontológico.
+Les suministrarán también copia de los documentos que los inspectores requieran, cuyo costo correrá a cargo del Colegio.
