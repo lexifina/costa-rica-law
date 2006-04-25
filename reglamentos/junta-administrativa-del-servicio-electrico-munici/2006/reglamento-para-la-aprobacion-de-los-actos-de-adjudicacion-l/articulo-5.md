@@ -1,0 +1,1 @@
+Artículo 5º—Tratándose de Licitaciones cuyo monto sea superior a ¢80.00 millones, corresponderá el acto de adjudicación a la Junta Directiva, previa recomendación de adjudicación suscrita por el Coordinador de Contratar Bienes y Servicios y el Líder de la UEN de Apoyo.

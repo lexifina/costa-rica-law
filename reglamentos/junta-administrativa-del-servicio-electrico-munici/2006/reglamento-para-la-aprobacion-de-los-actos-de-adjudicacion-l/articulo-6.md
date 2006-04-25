@@ -1,0 +1,1 @@
+Artículo 6º—Igualmente corresponderá a la junta directiva la aprobación de los actos de adjudicación de cualesquiera otros procedimientos concursarles dispuestos por la Ley de Contratación Administrativa.
