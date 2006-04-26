@@ -1,2 +1,0 @@
-Artículo 2º—De las escalas salariales y el envío de información.
-En el momento de verificarse una revalorización de los trabajadores activos, los departamentos de recursos humanos de la administración pública, deben remitir a la Dirección Nacional de Pensiones, en el plazo de diez días hábiles contados a partir de la fecha en que la disposición es oficializada por parte de la instancia competente, las nuevas escalas salariales y cualquier otra modificación que se verifique dentro de su estructura de clases y puestos.

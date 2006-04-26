@@ -1,2 +1,0 @@
-Artículo 3º—De la modificación de puestos del Servicio Civil.
-La Dirección General de Servicio Civil deberá enviar a la Dirección Nacional de Pensiones en el plazo improrrogable de diez días hábiles, a partir de la fecha en que la disposición es oficializada por parte de la instancia competente, las modificaciones de las escalas salariales que se verifiquen por condiciones de costo de vida o de cualquier otra causa.

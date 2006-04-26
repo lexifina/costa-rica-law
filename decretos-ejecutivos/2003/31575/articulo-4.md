@@ -1,2 +1,0 @@
-Artículo 4º—De los pluses salariales, convenciones colectivas y laudos arbitrales.
-Los departamentos de recursos humanos de las diferentes instituciones públicas deberán enviar a la Dirección Nacional de Pensiones las condiciones específicas sobre los diferentes pluses salariales, su fundamento legal y los colectivos de trabajadores a los que se aplican, así como su metodología de cálculo. De la misma forma se procederá en los pluses salariales introducidos por Convenciones Colectivas o Laudos arbitrales.

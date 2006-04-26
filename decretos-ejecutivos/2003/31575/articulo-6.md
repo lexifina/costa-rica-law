@@ -1,1 +1,0 @@
-Artículo 6º—La Dirección Nacional de Pensiones informará a los jerarcas respectivos, en los casos en que los Departamentos o Direcciones de Recursos Humanos no envíen, o no envíen oportunamente, la información requerida, a fin de que se tomen las medidas disciplinarias que corresponda.

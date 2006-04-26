@@ -1,2 +1,0 @@
-Artículo 5º—La Dirección Nacional de Pensiones, definirá cuales son las instituciones públicas obligadas a suministrar la información indicada en los artículos anteriores, y se le comunicará a cada una de ellas. Asimismo, les indicará el formato bajo el cual deberán remitir la información solicitada.
-La comunicación deberá realizarse en un plazo máximo de 30 días calendario, a partir de la fecha de rige de este Decreto.
