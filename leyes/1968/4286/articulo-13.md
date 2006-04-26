@@ -1,5 +1,2 @@
-ARTICULO 13.- Para celebrar festejos populares en plazas usadas en
-deportes, debe obtenerse previa autorización de la Dirección General de
-Educación Física y Deportes o del respectivo Comité Cantonal de Deportes,
-quién podrá conceder el permiso con la garantía de que la plaza quedará en
-perfectas condiciones después del evento.
+Artículo 13.—Para celebrar festejos populares en plazas o campos de deportes, deberá contarse con una autorización previa del Instituto Costarricense del Deporte y la Recreación o del comité cantonal de deportes, respectivo, los cuales podrán conceder el permiso con la garantía de que la plaza o el campo deportivo quedará en perfecto estado después de la actividad.
+(Así reformado por el artículo 2° punto "h" de la Ley N° 8494 del 30 de marzo de 2006)

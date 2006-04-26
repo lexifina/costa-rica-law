@@ -1,5 +1,2 @@
-ARTICULO 10.- A los miembros de las comisiones le son aplicables las
-prohibiciones y sanciones consagradas en el artículo 102 de la Ley de la
-Administración Financiera de la República. Asimismo, el reglamento
-determinará los trámites a que deban sujetarse los contratos que celebren
-esas comisiones.
+Artículo 10.—A los miembros de la comisión les serán aplicables, en lo que corresponda, las prohibiciones y sanciones consagradas en el artículo 22 y en el capítulo X de la Ley Nº 7494, Contratación administrativa, de 2 de mayo de 1995. Asimismo, las contrataciones que promueva la comisión se regirán, en lo conducente, por dicha Ley y su Reglamento.
+(Así reformado por el artículo 2° punto "f" de la Ley N° 8494 del 30 de marzo de 2006)

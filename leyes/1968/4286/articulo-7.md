@@ -1,5 +1,2 @@
-ARTICULO 7º.- Los integrantes de las comisiones podrán devengar
-dietas durante los dos meses anteriores a la fecha en que se inician los
-festejos populares y el mes siguiente. No podrán celebrar más de cuatro
-sesiones remuneradas en el mes y el monto de cada dieta será iguala la que
-devengan los regidores municipales del respectivo cantón.
+Artículo 7º—Los miembros de la comisión podrán devengar dietas durante los dos meses anteriores a la fecha de inicio de los festejos populares y en el mes siguiente; no podrán celebrar más de cuatro sesiones remuneradas por mes y el monto de cada dieta será igual al cincuenta por ciento (50%) de la dieta que reciban los regidores propietarios del cantón respectivo.
+(Así reformado por el artículo 2° punto "e" de la Ley N° 8494 del 30 de marzo de 2006)
