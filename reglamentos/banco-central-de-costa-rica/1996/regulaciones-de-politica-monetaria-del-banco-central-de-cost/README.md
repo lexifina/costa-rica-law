@@ -67,3 +67,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | 52 | 2005-06-15 | Reglamento 5235 (2005-06-15) |
 | 53 | 2005-10-12 | Reglamento 5250 (2005-10-12) |
 | 54 | 2006-03-15 | Reglamento 5270 (2006-03-15) |
+| 55 | 2006-04-26 | Reglamento 5276 (2006-04-26) |
