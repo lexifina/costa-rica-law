@@ -1,3 +1,4 @@
 Artículo 41: Sanción.
 Ante el incumplimiento de los beneficiarios de cualquiera de sus obligaciones, el Instituto asumirá la administración de los sistemas, conforme con el artículo 2, incisos G y J de la Ley Constitutiva de AyA.
 Para la verificación de los incumplimientos AyA instaurará el procedimiento legal, conforme lo regula la Ley General de la Administración Pública.
+(La Sala Constitucional mediante resolución N° 5606-06, de las quince horas y veintiún minutos del veintiséis de abril del dos mil seis, interpretó este artículo en el sentido de que "...en caso de asumir el Instituto Costarricense de Acueductos y Alcantarillados la administración del acueducto en poder de la Municipalidad, por deficiencia en el servicio, deberá hacerse cargo de los activos y pasivos que conlleva la administración del mismo, lo que implica asumir las obligaciones financieras pendientes, adquiridas por ésta e invertidas en aquél.")

@@ -16,3 +16,4 @@ Reglamento de Crédito y Asistencia Técnica a las Municipalidades Beneficiadas 
 | 1 | 1993-04-22 | la propia norma |
 | 2 | 1994-08-30 | Reglamento 0 (1994-01-05) |
 | 3 | 1995-03-16 | Reglamento 0 (1995-03-16) |
+| 4 | 2006-04-26 | SINALEVI (sin norma nombrada) |
