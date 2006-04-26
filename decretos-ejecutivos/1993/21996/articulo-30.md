@@ -1,3 +1,0 @@
-Artículo 30.— Anulado.
-(Por Resolución de la Sala Contitucional N° 10380 de las 14.49 del 10 de agosto de 2005, se anuló el presente artículo, cuyo texto disponía: " La Dirección Nacional de Pensiones notificará al interesado de la resolución que inicia el procedimiento indicado en el artículo anterior inmediato y le concederá un plazo de cinco días hábiles, a partir de la notificación para que manifieste las consideraciones de hecho y derecho y las pruebas de descargo que considere convenientes.
-La Dirección Nacional de Pensiones dictará el informe correspondiente en un plazo no mayor a dos meses, y lo trasladará al Jerarca del Régimen General de Pensiones, para que resuelva en definitiva lo que en Derecho corresponda, en igual plazo.")

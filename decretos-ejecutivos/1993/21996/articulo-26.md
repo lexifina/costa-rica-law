@@ -1,1 +1,0 @@
-Artículo 26.—Estos incrementos se harán de oficio por la Dirección Nacional de Pensiones. Dicho reajuste de calculará sobre el monto total de la pensión, sujeta su efectividad a la existencia del contenido presupuestario correspondiente.

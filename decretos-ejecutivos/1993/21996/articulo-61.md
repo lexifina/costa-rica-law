@@ -1,2 +1,0 @@
-Artículo 61.—La Junta de Pensiones y Jubilaciones del Magisterio Nacional, deberá informar a los afiliados el estado de su cuenta incluidos las cotizaciones hechas y todos los movimientos registrados en la misma. Dicha comunicación deberá hacerse anualmente.
-Así mismo la Junta de Pensiones deberá publicar en un diario de circulación nacional, al menos tres veces al año, los estados financieros del Fondo, especificando los rendimientos obtenidos de las inversiones realizadas.

@@ -1,1 +1,0 @@
-Artículo 51.—De lo resuelto por la Junta cabrá recurso de apelación ante el Ministro de Trabajo, el cual deberá interponerse dentro de los quince días hábiles siguientes a la fecha en que se notificó la resolución respectiva, sino hubiere apelación uncido este plazo, la resolución debe ser pasada en consulta a dicho funcionario.

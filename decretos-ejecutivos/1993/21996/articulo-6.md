@@ -1,1 +1,0 @@
-Artículo 6.—Las pensiones o jubilaciones que se otorguen al amparo de cualesquiera de los regímenes creados por la ley No 7302 del 8 de julio de 1992, serán inembargables, excepto por pensión alimenticia.

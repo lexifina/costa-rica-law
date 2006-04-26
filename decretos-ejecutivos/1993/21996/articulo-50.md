@@ -1,1 +1,0 @@
-Artículo 50.—Corresponde al Ministerio de Trabajo y Seguridad Social, tramitar la solicitud de pensión a través de la Dirección Nacional de Pensiones, previa gestión del interesado. Las mismas serán resueltas por la Junta Nacional de Pensiones o Indemnizaciones de Guerra.

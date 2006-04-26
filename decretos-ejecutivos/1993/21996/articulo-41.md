@@ -1,1 +1,0 @@
-Artículo 41 .—Solamente podrán optar por la modificación de su jubilación por el régimen que más les favorezca, aquellos ex diputados pensionados por el régimen de Hacienda - Diputado o de cualquier otro régimen especial, que suspendan el disfrute del derecho, por reingreso a la Administración Pública.

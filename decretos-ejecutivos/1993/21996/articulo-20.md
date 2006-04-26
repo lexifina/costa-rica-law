@@ -1,2 +1,0 @@
-Artículo 20.—Para la aplicación del capítulo II de la ley 7302, en el caso de los parientes y beneficiarios directos de los beneméritos de la patria y los galardonados con el Premio Magón, deberán presentar ante la Dirección Nacional de Pensiones la solicitud correspondiente, certificaciones de matrimonio, de estado y defunción.
-Los causahabientes de los beneficiarios directos disfrutarán de este be acuerdo con las disposiciones que establece el Reglamento de Invalidez Muerte que administra la Caja Costarricense de Seguro Social.

@@ -1,1 +1,0 @@
-Artículo 56.--Las hipótesis y los supuestos de tipo financiero rentable, económico, demográfico y biométrico en general, que sirven de base a los estudios actuariales, deberán ajustarse a las condiciones reales y expectativas medias económicas y sociales del país.

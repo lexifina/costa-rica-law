@@ -1,1 +1,0 @@
-Artículo 17.—Las plazas de las personas que se acojan a los beneficios que señala la ley quedarán vacantes en forma definitiva, debiéndose suprimir el código respectivo salvo que la Autoridad Presupuestaria por resolución razonada las declare imprescindibles.

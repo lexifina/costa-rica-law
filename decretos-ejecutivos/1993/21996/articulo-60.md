@@ -1,1 +1,0 @@
-Artículo 60.—Los montos a que se refiere el artículo anterior y las retenciones efectuadas a los nuevos ingresantes a este Fondo de Pensiones se girarán periódicamente conforme a la información que se reciba de la Junta de Pensiones y Jubilaciones, tanto para las Instituciones Públicas y Privadas obligadas a contribuir.

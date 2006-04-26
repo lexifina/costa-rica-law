@@ -1,1 +1,0 @@
-Artículo 15.—El Ministerio de Hacienda, incluirá en la Ley de Presupuesto ordinario y extraordinario de la República del ejercicio fiscal correspondiente de cada año recursos necesarios que se requiera para cumplir con el pago de los beneficios otorguen al amparo de este régimen.
