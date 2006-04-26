@@ -14,3 +14,4 @@ Crea el Consejo Directivo en materia de Pensiones y Jubilaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-28 | la propia norma |
+| 2 | 2006-04-26 | Decreto Ejecutivo 33080 (2006-04-26) |
