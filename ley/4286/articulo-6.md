@@ -1,9 +1,2 @@
-ARTICULO 6º.- Las comisiones nombrarán de su seno un secretario que
-tendrá la obligación de llevar un libro de actas debidamente legalizado
-por la Contraloría General de la República, en el cual se harán constar
-todas las sesiones de la comisión con sus incidencias, los egresos que
-autoriza y los demás extremos que se crean convenientes o que la
-Contraloría exija. También nombrará un tesorero contador, quien tendrá la
-obligación de llevar los registros contable que la comisión estime
-necesarios y deberá rendir garantía que cubra la responsabilidad en que
-pueda incurrir por el manejo de fondos.
+Artículo 6º—La comisión nombrará de su seno un secretario, quien tendrá la obligación de llevar un libro de actas en el que deberán constar todas las sesiones de la comisión con sus incidencias, los egresos que autoriza y demás extremos convenientes. Asimismo, nombrará un tesorero que se encargará del manejo de los fondos, así como un contador que tendrá la obligación de llevar los registros contables. El libro de actas y los libros contables que se requieran deberán estar debidamente legalizados por la auditoría municipal, conforme al inciso e) del artículo 22 de la Ley Nº 8292, Ley general de control interno. En caso de que no exista auditoría, serán legalizados por la Contralor/a General de la República. El tesorero deberá rendir garantía que cubra la responsabilidad en que pueda incurrir por el manejo de los fondos.
+(Así reformado por el artículo 2° punto "d" de la Ley N° 8494 del 30 de marzo de 2006)

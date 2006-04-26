@@ -1,7 +1,3 @@
-ARTICULO 11.- Las utilidades que produzcan los festejos populares de
-finales de año en la ciudad de San José, corresponderán en un 50% al
-Hospicio de Huérfanos de esta ciudad, quien tendrá derecho a nombrar uno
-de los miembros de la comisión que para tales efectos integre. La
-Municipalidad de San José deberá girar las sumas correspondientes a más
-tardar treinta días después de que la Contraloría haya aprobado las
-cuentas respectivas.
+Artículo 11.—De las utilidades que generen los festejos populares del cantón Central de San José, un cincuenta por ciento (50%) corresponderá al Hospicio de Huertanos de San José, que tendrá derecho a nombrar a uno de los miembros de la comisión que para tales efectos se integre.
+La Municipalidad de San José deberá presupuestar primero y girar después las sumas correspondientes al Hospicio de Huertanos, a más tardar setenta y cinco días después de que el Concejo haya aprobado la liquidación.
+(Así reformado por el artículo 2° punto "g" de la Ley N° 8494 del 30 de marzo de 2006)
