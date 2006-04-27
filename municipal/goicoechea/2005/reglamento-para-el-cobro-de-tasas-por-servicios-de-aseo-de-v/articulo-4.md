@@ -1,4 +1,5 @@
-Artículo 4º—La base para el cálculo de la Tasa por el Servicio de Limpieza de Parques y Zonas Verdes, será el frente a vía pública del inmueble, independientemente de su uso, de conformidad con los siguientes criterios.
+Artículo 4º—La base para el cálculo del cobro de la tasa por el servicio de limpieza de parques y zonas verdes, será el frente a vía pública del inmueble, independientemente de su uso, de conformidad con los siguientes criterios.
+(Así reformado el párrafo anterior mediante sesión N° 9 del 27 de abril del 2006).
 a) El cobro mínimo, será equivalente a un inmueble de 8.00 metros de frente, el cobro máximo será equivalente a un inmueble de 40.00 metros.
 b) Los inmuebles cuyos frentes no dan a vías públicas (servidumbre), se cobrarán con base en el frente real sobre la servidumbre.
 c) Los inmuebles con más de un frente, se cobrarán con base al frente principal o fachada.

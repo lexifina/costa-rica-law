@@ -14,3 +14,4 @@ Reglamento para el Cobro de Tasas por Servicios de Aseo de Vías y Limpieza de P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-16 | la propia norma |
+| 2 | 2006-04-27 | Reglamento municipal 9 (2006-04-27) |
