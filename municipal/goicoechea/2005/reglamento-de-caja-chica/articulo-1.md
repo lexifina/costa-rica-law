@@ -10,7 +10,8 @@ CAPÍTULO I
 Definiciones
 Artículo 1º—Entiéndase en el presente Reglamento las siguientes definiciones:
 a) Arqueo de Caja Chica: Verificación del cumplimiento de la normativa y reglamentación que rige el manejo del fondo de caja chica, por parte del Tesorero o la persona que éste designe como responsable del Fondo de Caja Chica, a través de la revisión de los comprobantes de pago.
-b) Arqueos de Caja Chica sorpresivos y periódicos: Los arqueos de caja chica sorpresivos corresponde realizados a la Unidad de Auditoria Interna y a través de la Dirección Financiera o la Unidad que designe el Alcalde. En este último caso deberán practicarlos, al menos una vez por mes.
+b) Arqueos de Caja Chica sorpresivos y periódicos: Los arqueos de caja chica sorpresivos corresponde realizarlos a la Unidad de Auditoria Interna y a través de la Dirección Administrativa Financiera o la Unidad que designe el Alcalde. En este último caso deberán practicarlos, al menos una vez por mes.
+(Así reformado el inciso anterior mediante sesión N°9 del 27 de abril del 2006).
 c) Caso Fortuito: Suceso que sin poder preverse o que previsto no puede evitarse, producido por la naturaleza o por hechos del hombre.
 d) Compra menor: Es la adquisición de bienes y servicios de menor cuantía que no superen los límites preestablecidos para los vales de caja chica y cuya necesidad sea urgente y requiera atención inmediata.
 e) Fondos de Caja Chica: Fondo que contiene recursos para la adquisición de bienes y servicios que no son de uso común o que no hay en existencia en el Departamento de Proveeduría.
