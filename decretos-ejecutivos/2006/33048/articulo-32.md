@@ -1,0 +1,1 @@
+Artículo 32.—Si el beneficiario no acepta la decisión tomada por la dependencia de Recursos Humanos, podrá recurrir ante ella de conformidad con los recursos y plazos señalados en la Ley General de la Administración Pública.

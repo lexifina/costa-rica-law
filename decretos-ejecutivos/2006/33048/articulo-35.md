@@ -1,0 +1,1 @@
+Artículo 35.—Si alguna institución tiene en práctica un sistema similar de reconocimiento de carrera profesional y deba adoptar el que aquí se reglamenta, por su carácter excluyente, lo podrá hacer, siempre y cuando los funcionarios beneficiados disfruten de sólo uno de ellos.
