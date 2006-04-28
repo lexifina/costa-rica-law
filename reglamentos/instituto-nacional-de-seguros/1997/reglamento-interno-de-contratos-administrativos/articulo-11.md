@@ -1,11 +1,15 @@
 TÍTULO III
 CAPÍTULO ÚNICO
 Niveles de competencia para adjudicar
-Artículo 11.—El órgano competente tanto para adjudicar , como para aprobar daños emergentes y resolver los recursos que procedan contra las adjudicaciones, lo determina el monto total de las adjudicaciones recomendadas en cada procedimiento y/o el monto económico del daño, conforme a la siguiente tabla:
-Hasta ¢ 4.500.000,00 la Jefatura del Departamento de Proveeduría
-Más de ¢ 500.000,00 y hasta ¢ 20.000.000.00 la Jefatura Dirección Administrativa.
-Más de ¢ 20.000.000,00 y hasta ¢ 50.000.000,00. El Gerente o Subgerente.
-Más de ¢ 50.000.000,00 la Junta Directiva.
-Los recursos de objeción en procedimientos de licitación por registro y el de revocatoria o de apelación conforme a la Ley de Contratación Administrativa, cuando el recurrente solicite que lo resuelva el Jerarca, serán resueltos por la Gerencia. Si de ordinario, el recurso corresponde resolverlo a la Gerencia y el recurrente solicita que se tramite como apelación ante el Jerarca, corresponderá resolverlo entonces a la Junta Directiva.
-El órgano interno que resuelva el recurso de revocatoria incoado contra el acto adjudicatario, dará por agotada la vía administrativa conforme al artículo 92 de la Ley de Contratación Administrativa, sin que sea necesario que tal agotamiento sea conocido o ratificado por la Junta Directiva.
-Ref. Variado mediante acuerdo de junta directiva No XIII, sesión 8123 del 19-05-97.
+Artículo 11.—El Órgano competente tanto para adjudicar y resolver los recursos que procedan contra las adjudicaciones, lo determina el monto total de las adjudicaciones recomendadas y/o el monto total de las adjudicaciones que se objetan, conforme a la siguiente tabla, salvo las excepciones contenidas en el artículo 3).
+Jefe y Subjefe de Proveeduría: Hasta el límite máximo de contratos directos de escasa cuantía.
+Jefe de la Dirección Administrativa: Hasta el límite máximo de la licitación restringida.
+Gerente o Subgerente: Hasta el límite máximo de la licitación por registro.
+Junta Directiva: Todo negocio por sobre el límite mínimo para las licitaciones públicas.
+Lo anterior sin perjuicio de la avocación de competencia de los órganos superiores hacia los inferiores.
+En los casos de contratos directos al amparo de causales diferentes a la de escasa cuantía adjudicará el órgano competente según el monto del contrato.
+En las contrataciones cuyo nivel de adjudicación sea de Junta Directiva y se tramiten en dos o más etapas, concluida cada una de éstas, se remitirá un informe ilustrativo a dicho Órgano Colegiado, sin perjuicio del informe definitivo de adjudicación.
+Los Recursos de Objeción que corresponda se presentan ante la Administración y el de Revocatoria, serán resueltos por el nivel que le corresponda adjudicar, de acuerdo con los límites establecidos.
+Si el recurrente solicita que el Recurso se conozca en alzada, será resuelto por la Gerencia.
+El órgano interno que resuelva el Recurso de Revocatoria incoado contra el acto adjudicatario, dará por agotada la vía administrativa conforme al Artículo N° 92 de la Ley de Contratación Administrativa, sin la necesidad de que tal agotamiento sea conocido o ratificado por la Junta Directiva.
+(Así reformado y publicado en La Gaceta N° 86 del 5 de mayo de 2006)
