@@ -1,11 +1,3 @@
-ARTICULO 410.- Formalidades de interposición
-La revisión será interpuesta, por escrito, ante el tribunal de
-casación penal correspondiente. Contendrá, bajo pena de inadmisibilidad,
-la concreta referencia de los motivos en que se basa y las disposiciones
-legales aplicables. Se acompañará, además, la prueba documental que se
-invoca, indicando, en su caso, el lugar o archivo donde ella está.
-Asimismo, deberán ofrecerse los elementos de prueba que acreditan la
-causal de revisión que se invoca.
-En el escrito inicial, deberá nombrarse a un abogado defensor. Si no
-lo hace, el tribunal lo prevendrá, sin perjuicio de nombrar un defensor
-público en caso de ser necesario.
+Artículo 410.—Formalidades de interposición. La revisión será interpuesta, por escrito, ante el Tribunal de Casación Penal correspondiente. Contendrá, la referencia concreta de los motivos en que se basa y las disposiciones legales aplicables. Se adjuntará, además, la prueba documental que se invoca, y se indicará, en su caso, el lugar o archivo donde ella está. Asimismo, deberán ofrecerse los elementos de prueba que acrediten la causal de revisión invocada.
+En el escrito inicial, deberá nombrarse a un abogado defensor. De no hacerlo, el tribunal lo prevendrá, sin perjuicio de nombrar a un defensor público, en caso de ser necesario.
+(Así reformado por el artículo 1° de la Ley N° 8503 del 28 de abril de 2006)
