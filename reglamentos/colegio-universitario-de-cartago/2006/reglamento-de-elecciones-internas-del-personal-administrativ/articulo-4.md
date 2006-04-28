@@ -1,0 +1,1 @@
+Artículo 4º—El escrutinio de los votos lo hará el Tribunal. Una vez contados los votos, levantará un acta en la que emitirán su veredicto. Esta acta será pasada al Decano y éste deberá elevarla al Consejo Superior de Educación para lo que proceda.

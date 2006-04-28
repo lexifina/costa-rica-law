@@ -1,0 +1,1 @@
+Artículo 20.—Cualquier fraude o intento de fraude, irrespeto a las disposiciones de este Reglamento o del Reglamento de Orden Académico, o del Reglamento Autónomo de Trabajo serán causal para anular la postulación del candidato infractor; después de la aplicación del debido proceso.

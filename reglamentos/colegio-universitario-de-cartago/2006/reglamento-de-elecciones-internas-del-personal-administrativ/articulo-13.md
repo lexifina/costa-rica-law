@@ -1,0 +1,1 @@
+Artículo 13.—Los Miembros del personal administrativo y del docente y docente-administrativo que disfrutan de sus vacaciones, suspendidos o con permiso sin goce de salario o están incapacitados por el Seguro Social o por el médico de la institución, no tendrán derecho a voto.

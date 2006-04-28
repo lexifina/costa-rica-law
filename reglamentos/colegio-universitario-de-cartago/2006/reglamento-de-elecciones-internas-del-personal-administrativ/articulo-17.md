@@ -1,0 +1,1 @@
+Artículo 17.—No podrán ser miembros del Consejo Directivo los siguientes funcionarios: el Auditor Interno, el Asesor Legal, el Director de Planificación y Desarrollo, el Director Administrativo, el Director Académico, el Director de Educación Comunitaria y Asistencia Técnica y la Secretaria del Consejo Directivo.
