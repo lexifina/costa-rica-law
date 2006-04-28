@@ -1,0 +1,3 @@
+CAPÍTULO SEGUNDO
+Del Departamento de Operaciones Tecnológicas
+Artículo 7º—Del Departamento de Operaciones Tecnológicas. El Departamento de Operaciones Tecnológicas es el encargado de coordinar con la Dirección de Informática del Ministerio, la administración y coordinación de la investigación, diseño, implementación, mantenimiento, control de calidad, seguridad de la información y documentación de los diferentes sistemas automatizados, para optimizar el uso pleno de los recursos informáticos relacionados con la administración de los sistemas de la Dirección General de Administración de Bienes y Contratación Administrativa y de aquellos que, producto del proceso de modernización, sean trasladados a la Administración Central.

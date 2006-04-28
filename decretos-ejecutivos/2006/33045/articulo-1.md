@@ -1,0 +1,22 @@
+Nº 33045
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En ejercicio de las atribuciones que les confieren los artículos 140, incisos 3), 18) y 146 de la Constitución Política, así como los artículos 27 inciso 1) y 28 inciso b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 mayo de 1978 y en cumplimiento de lo dispuesto por los artículos 99 inciso j) y 129 de la Ley Nº 8131 del 18 de setiembre del 2001, Ley de la Administración Financiera de la República y Presupuestos Públicos, y 103 de la Ley Nº 7494 de 2 de mayo de 1995, Ley de la Contratación Administrativa, Ley Nº 7494 del 2 de mayo de 1995, en el Decreto Ejecutivo Nº 30058-H-MP-PLAN de fecha 19 de diciembre del 2001, se emitió el Reglamento de la Ley de Administración Financiera de la República y Presupuestos Públicos.
+Considerando:
+1º—Que el artículo 103 de la Ley de Contratación Administrativa Nº 7494, atribuye a la Proveeduría Nacional las funciones que “le asignen otras leyes y reglamentos”.
+2º—Que según lo estipula el inciso e) del artículo 1º de la Ley Nº 6106 denominada Ley de Donaciones, el mobiliario, equipo de oficina y otros objetos, que no sean ocupados por las instituciones autónomas y semiautónomas, serán donados por la Proveeduría Nacional.
+3º—Que el numeral 128 de la Ley de la Administración Financiera de la República y Presupuestos Públicos Nº 8131, señala que a su entrada en vigencia, toda referencia en la legislación vigente a la Proveeduría Nacional corresponderá a la Dirección General de Administración de Bienes y Contratación Administrativa.
+4º—Que el Ministerio de Planificación Nacional y Política Económica, aprobó mediante oficio DVM-001-2002 de fecha 7 de enero del 2002, la estructura organizacional de la Dirección General de Administración de Bienes y Contratación Administrativa.
+5º—Que el Reglamento de Creación de la Autoridad Certificadora del Ministerio de Hacienda, Nº 32457-H, en su artículo 22 expresa:
+“…La Autoridad de Registro es la encargada de autorizar el uso del certificado digital para el sistema informático respectivo para este fin deberá registrar y validar la identidad de los usuarios (Proveedores, Auxiliares de la Función Pública, Contribuyentes; entre otros) de certificados digitales para su posterior emisión; igualmente es la encargada de recibir y dar trámite a las solicitudes de vencimientos anticipo y renovación de los certificados, todo lo anterior de acuerdo con las políticas y procedimientos establecidos para tales efectos por la Autoridad Certificadora.
+La Autoridad de Registro tendrá las áreas especializadas en cada uno de las dependencias del Ministerio de Hacienda, dedicadas a autorizar el uso del certificado digital para éstos…”
+6º—Que la Oficialía Mayor y Dirección General Administrativa y Financiera de este Ministerio, mediante oficio DGAF-AL-208-2005 del 18 de febrero del 2005, manifestó que de conformidad con lo señalado en el resultando cuarto, la estructura organizativa dé la Dirección General de Administración de Bienes y Contratación Administrativa ya fue debidamente aprobada, de acuerdo con los trámites establecidos al efecto, así como que el presente Reglamento se ajusta a dicha estructura.
+7º—Que mediante oficio DM-112-2005 de fecha 20 de julio del 2005, el Ministerio de Planificación y Política Económica aprobó la reorganización de la Dirección Administrativa y Financiera del Ministerio centralizando las funciones administro-financieras del Ministerio en la mencionada Dirección.
+8º—Que resulta de interés público el dotar a la Dirección General de Administración de Bienes y Contratación Administrativa de una estructura y organización acorde a lo dispuesto en el inciso j) del artículo 99 de la Ley Nº 8131. Por tanto,
+DECRETAN:
+El siguiente:
+Reglamento de Organización de la Dirección General de
+Administración de Bienes y Contratación Administrativa
+TÍTULO I
+Estructura administrativa
+Artículo 1º—De la Dirección General de Administración de Bienes y Contratación Administrativa. La Dirección General es el órgano rector del Sistema de Administración de Bienes y Contratación Administrativa que estará a cargo de un Director(a) y un Subdirector(a). El Director General es un funcionario de confianza, cuyo nombramiento lo hará el Ministro de Hacienda. El cargo de Subdirector(a) estará sometido a las disposiciones del Estatuto del Servicio Civil, su Reglamento, legislación conexa y a las del Reglamento Autónomo de Servicios del Ministerio de Hacienda.
