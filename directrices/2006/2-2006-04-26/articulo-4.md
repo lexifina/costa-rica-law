@@ -1,0 +1,1 @@
+Artículo 4º—Orientaciones para el Funcionamiento del SEVRI. El funcionamiento del SEVRI en el Ministerio de Hacienda se ajustará a lo dispuesto en el documento ORIENTACIONES GENERALES PARA EL FUNCIONAMIENTO DEL SISTEMA DE VALORACIÓN DE RIESGO INSTITUCIONAL EN EL MINISTERIO DE HACIENDA, el cual se adjunta y es parte integrante de la presente directriz.
