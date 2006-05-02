@@ -1,0 +1,6 @@
+Artículo 14.—Plan de Adquisiciones.
+14.1 Los programas de adquisiciones de cada año, deberán ser confeccionados conjuntamente con el Plan Operativo anual y el Plan Presupuesto, todo de acuerdo a los lineamientos que se establezcan al respecto.
+14.2 Proveeduría, consolidará los programas de adquisiciones, conteniendo la información solicitada en el Artículo 7.3, del Reglamento General de Contratación Administrativa, y coordinará la publicación en el Diario Oficial La Gaceta, en el primer mes de cada periodo presupuestario.
+14.3 Cualquier modificación al programa de adquisiciones, deberá remitirse al Departamento de Proveeduría, mediante solicitud formal autorizada por el Director de cada área, en la que consten las razones que motivan la modificación.
+14.4 La Proveeduría, no tramitará las necesidades no incluidas en el programa de adquisiciones y sus modificaciones, en todo caso, los funcionarios que promuevan un trámite de contratación sin que la necesidad estuviere contemplada en el programa de adquisiciones quedarán sujetos al régimen disciplinario respectivo.
+A lo dispuesto en la presente norma, le será aplicable lo preceptuado en el artículo 7º del presente cuerpo normativo.
