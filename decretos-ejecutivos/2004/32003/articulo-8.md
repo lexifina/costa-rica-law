@@ -1,0 +1,1 @@
+Artículo 8º—Deróguense los Decretos Nº 20517-MIRENEM del 5 de junio de 1991, Nº 21221-MIRENEM del 3 de marzo de 1992, Nº 22731-MIRENEM del 19 de noviembre de 1993, Nº 22821-MIRENEM del 6 de enero de 1994, Nº 23126MIRENEM del 7 de abril de 1994, y Nº 24311-MIRENEM del 8 de mayo de 1995.

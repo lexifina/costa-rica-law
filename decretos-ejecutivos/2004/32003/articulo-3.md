@@ -1,0 +1,1 @@
+Artículo 3º—La administración y protección del Parque Nacional Diriá le corresponderá al Ministerio del Ambiente y Energía, a través del Sistema Nacional de Áreas de Conservación y más concretamente al Área de Conservación Tempisque.
