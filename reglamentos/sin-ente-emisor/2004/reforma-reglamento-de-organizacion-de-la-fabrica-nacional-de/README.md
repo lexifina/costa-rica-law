@@ -13,3 +13,4 @@ Reforma Reglamento de Organización de la Fábrica Nacional de Licores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-23 | la propia norma |
+| 2 | 2006-05-03 | Acuerdo 36593 (2006-05-03) |
