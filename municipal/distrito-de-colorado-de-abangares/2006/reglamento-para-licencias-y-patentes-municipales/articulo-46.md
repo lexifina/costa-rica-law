@@ -1,0 +1,1 @@
+Artículo 46.—Notificación: La calificación de oficio o la recalificación efectuada por la Administración Tributaria, deberá ser notificada por esta al contribuyente en el local donde se realiza la actividad, mediante los mecanismos establecidos por la Ley al efecto, con las observaciones o los cargos que se le formulen, y en su caso, las infracciones que se estime ha cometido.

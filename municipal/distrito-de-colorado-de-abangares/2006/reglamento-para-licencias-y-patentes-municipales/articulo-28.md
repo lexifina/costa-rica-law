@@ -1,0 +1,1 @@
+Artículo 28.—Los propietarios, administradores, concesionarios, permisionarios y cualquier persona que de una u otra forma explote una actividad comercial, están en la obligación de brindar toda la colaboración a estos funcionarios, asimismo, tienen la obligación de mostrar todos los documentos requeridos por los inspectores.

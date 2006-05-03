@@ -1,0 +1,1 @@
+Artículo 17.—En ningún caso, las actividades temporales que regula este reglamento, podrán desarrollarse después de las veinticuatro horas, en caso de que esto suceda, la Fuerza Pública, podrá proceder a cesar la actividad.

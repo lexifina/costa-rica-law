@@ -1,0 +1,3 @@
+CAPÍTULO X
+Del procedimiento de cobro del impuesto de patente
+Artículo 33.—Las personas físicas o jurídicas que se dediquen al ejercicio de cualquier tipo de actividades lucrativas, en el distrito de Colorado, estarán obligadas a pagar a la Municipalidad, un impuesto de patentes, de conformidad con lo que establece la Ley de Tarifas de Impuestos Municipales del Distrito de Colorado, N° 7368 del 10 de diciembre de 1993. Los interesados en la aplicación de cualquier exención o beneficio tributario deberán solicitarlo y demostrar dicho beneficio, la mismo no se realiza de oficio. No obstante en estos casos se mantiene la obligación de solicitar la licencia municipal.

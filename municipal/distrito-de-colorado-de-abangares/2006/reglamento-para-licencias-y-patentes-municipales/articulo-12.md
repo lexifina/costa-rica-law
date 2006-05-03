@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Procedimiento para el otorgamiento de las licencias municipales
+Licencias permanentes
+Artículo 12.—Las solicitudes de las licencias serán gestionadas ante la Municipalidad, el Encargado de Cobro y patentes constatará previamente si la solicitad cuenta con todos los requisitos legales y reglamentarios, de lo contrario, prevendrá mediante resolución, el cumplimiento de los requisitos omisos y de ser el caso, procederá al rechazo de la solicitud mediante resolución que deberá estar debidamente motivada. La prevención deberá ser realizada una sola vez por parte del responsable de verificar los requisitos, y contemplará todos los defectos que deban subsanarse por parte del gestionante. La autorización final de la explotación de la licencia comercial respectiva, la otorga la Municipalidad.

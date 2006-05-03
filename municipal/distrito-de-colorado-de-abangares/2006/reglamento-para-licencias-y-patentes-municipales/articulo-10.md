@@ -1,0 +1,5 @@
+CAPÍTULO III
+Tipos de licencias
+Artículo 10.—La Municipalidad podrá otorgar según la actividad, licencias permanentes, licencias temporales, de conformidad con los siguientes criterios:
+a) Licencias permanentes: son aquellas que se otorgan para ejercer una actividad de forma continua y permanente. No deben ser renovadas por el patentado, sin embargo, pueden ser canceladas por la Administración Municipal, cuando el establecimiento comercial no reúna los requisitos mínimos establecidos por la ley para su explotación, haya variado el giro de su actividad, o su actividad se esté desarrollando en evidente violación a la ley o al orden.
+c) Licencias temporales: son otorgadas por la Municipalidad para el ejercicio de actividades lucrativas de carácter temporal, tales como las fiestas cívicas y patronales, turnos, ferias y afines. Se podrán otorgar hasta por un mes y podrán ser canceladas cuando la explotación de la actividad autorizada, sea variada o cuando la misma implique una violación a la ley y/o al orden público.

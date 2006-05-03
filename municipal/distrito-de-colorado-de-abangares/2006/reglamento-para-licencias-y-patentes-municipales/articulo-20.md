@@ -1,0 +1,1 @@
+Artículo 20.—Efectos del traspaso o traslado de licencia. Ningún traslado o traspaso de licencia municipal, afectará los intereses municipales, hasta tanto no sea aceptado por la Municipalidad, si el nuevo local reúne los requisitos exigidos, y si ambas partes están al día en el pago de tasas, contribuciones o impuestos municipales.

@@ -1,0 +1,1 @@
+Artículo 41.—Los contribuyentes que no presenten la declaración jurada municipal, dentro del término establecido en el artículo 39, serán sancionados con una multa del diez por ciento del impuesto de patentes, correspondiente a todo el año anterior, el cual será cancelado en el primer trimestre del año inmediato siguiente.
