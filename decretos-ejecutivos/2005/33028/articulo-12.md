@@ -1,0 +1,3 @@
+Artículo 12.—Frecuencia de las sesiones, quórum y votación. El Consejo celebrará una sesión ordinaria una vez al mes, en el día y hora que se defina en la primera reunión celebrada después de la entrada en vigencia de este Reglamento.
+Se tendrá por constituido el quórum con la asistencia de la mitad más uno de sus miembros.
+Los acuerdos del Consejo se tomarán por mayoría simple, salvo que este reglamento establezca alguna mayoría especializada para algún acto específico. El Consejo deberá enviar copia de sus actas en firme a la Presidencia de la República para efectos informativos y de seguimiento.

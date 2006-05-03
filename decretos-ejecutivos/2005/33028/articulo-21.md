@@ -1,0 +1,1 @@
+Artículo 21.—Comisión Técnico Asesora. El Consejo contará con una comisión permanente que se denominará Comisión Técnico Asesora, constituida por los asesores mencionados en el artículo 11 del presente Reglamento, y será coordinada por la Secretaría Técnica del Consejo.

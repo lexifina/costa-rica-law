@@ -1,0 +1,1 @@
+Artículo 10.—Suplentes en el Consejo. En caso de ausencia definitiva del propietario, éste será sustituido por el suplente designado, hasta que se reponga el nombramiento, lo cual se hará siguiendo el procedimiento regulado en los artículos anteriores. El nombramiento del nuevo propietario lo será por el resto del período correspondiente.
