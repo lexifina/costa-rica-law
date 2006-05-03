@@ -1,0 +1,1 @@
+Artículo 22.—El ICE podrá hacer efectiva la garantía de cumplimiento ante cualquier incumplimiento contractual, siguiendo el procedimiento establecido, tanto en el artículo 36 del Reglamento General de Contratación Administrativa, como en el artículo 75 del capítulo I sobre las sanciones a los contratistas, del Reglamento Interno de Contratación Administrativa.

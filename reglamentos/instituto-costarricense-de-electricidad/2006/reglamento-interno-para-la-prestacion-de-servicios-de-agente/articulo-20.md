@@ -1,0 +1,1 @@
+Artículo 20.—Dada la naturaleza de los contratos de recaudación, el agente recaudador está obligado a rendir una garantía colateral que asegure la recuperación de los fondos públicos que el recaudador tendrá bajo su custodia, por un período determinado. Las características de esta garantía se establecen en el Manual de Recaudadores.
