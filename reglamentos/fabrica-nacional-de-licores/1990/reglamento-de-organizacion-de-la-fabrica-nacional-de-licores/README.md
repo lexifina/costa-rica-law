@@ -16,3 +16,4 @@ Reglamento de Organización de la Fábrica Nacional de Licores
 | 1 | 1990-04-30 | la propia norma |
 | 2 | 1999-03-10 | Reglamento 2073 (1999-03-10) |
 | 3 | 2004-01-28 | Reglamento 2498 (2004-01-28) |
+| 4 | 2006-05-03 | Acuerdo 36593 (2006-05-03) |
