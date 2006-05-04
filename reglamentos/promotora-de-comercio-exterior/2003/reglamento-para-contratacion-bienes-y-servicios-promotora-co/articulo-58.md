@@ -1,7 +1,9 @@
 CAPÍTULO VII
 Contratación directa
 Artículo 58.—Contratación directa. Se podrá utilizar el procedimiento de contratación directa en los siguientes supuestos:
-a) Contrataciones de escasa cuantía. Aquellas contrataciones inferiores a seis millones de colones. En este caso, cuando el monto de la contratación supere los dos mil dólares de los Estados Unidos de América y sea inferior a seis millones de colones, o se trate de la compra de boletos aéreos a agencia de viajes, sin importar su monto, se debe solicitar la cotización de al menos tres proveedores del bien o servicio a contratar.
+a) Contrataciones de escasa cuantía. Aquellas contrataciones inferiores a ¢.7.780.000,00 (siete millones setecientos ochenta mil colones.) En este caso, cuando el monto de la contratación supere los dos mil dólares de los Estados Unidos de América y sea inferior a ¢.7.780.000,00 (siete millones setecientos ochenta mil colones, o se trate de la compra de boletos aéreos a agencia de viajes, sin importar su monto), se debe solicitar la cotización de al menos tres proveedores del bien o servicio a contratar.
+La Administración considerará únicamente las ofertas de proveedores a los que haya cursado invitación.
+(Así reformado el inciso anterior en sesión N° 166 del 4 de mayo de 2006)
 b) Contrataciones con líneas aéreas nacionales que cubran la totalidad o parte de la ruta del viajero. Se dará preferencia a la línea que ofrezca el mayor descuento en el precio de los pasajes o el menor precio de éstos.
 c) Contratos que tengan por objeto prestaciones que solo una persona puede cumplir tales como la venta de repuestos genuinos, bienes o servicios de carácter artístico o literario, provisión de artículos fabricados o distribuidos en el país por un sólo proveedor o servicios que sólo pueden ser brindados por una única persona física o jurídica.
 d) Cuando la prestación del objeto se relacione con materias que requieran seguridades calificadas por lo que no convenga interesar a una persona o personas determinadas.

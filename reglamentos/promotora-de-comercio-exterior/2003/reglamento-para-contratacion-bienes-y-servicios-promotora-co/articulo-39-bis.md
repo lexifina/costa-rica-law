@@ -1,0 +1,2 @@
+Artículo 39 Bis.—Sistema de evaluación de las ofertas. El Sistema de evaluación de las ofertas establecido en el cartel o pliego de condiciones estará orientado a que la Administración escoja la oferta que mejor satisfaga el interés público. La Administración deberá motivar en el expediente, la incorporación al sistema de evaluación, de otros factores de calificación adicionales al precio, tales como plazo, calidad, entre otros, que en principio deben regularse en cláusulas de requisitos de cumplimiento obligatorio.
+(Así adicionado en sesión N° 166 del 4 de mayo de 2006)
