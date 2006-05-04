@@ -1,0 +1,2 @@
+Artículo 5°—Del lugar donde estará dispuesta la información.
+Todos los documentos contenidos en los Anexos 1, 2 y 3 del presente decreto ejecutivo, se ponen a disposición del público '65n la sede de la Secretaría Técnica Nacional Ambiental – SETENA y en el sitio WEB del Ministerio de Economía, Industria y Comercio, y del Colegio Federado de Ingenieros y Arquitectos, sin detrimento que la SETENA de común acuerdo con organismos internacionales, cámaras o grupos gremiales y universidades, lo puedan también poner a disposición en otras páginas web.
