@@ -1,0 +1,3 @@
+Artículo 8º—Cuando en un centro educativo exista interés de conformar una cooperativa escolar o juvenil se deberán atender las siguientes condiciones:
+a) Contar con un número no menor de 20 estudiantes interesados en formar parte de la organización. Cuando en un centro educativo no se logre ese número mínimo podrá recurrirse a la incorporación de personas de otro centro educativo cercano.
+b) Uno o más docentes, padres de familia o personal de la institución que estén dispuestos a facilitar y apoyar el proceso de constitución, promoción y organización de la cooperativa, así como asumir la representación legal.

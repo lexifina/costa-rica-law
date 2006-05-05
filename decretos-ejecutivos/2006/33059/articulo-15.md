@@ -1,0 +1,1 @@
+Artículo 15.—El Departamento de Cooperativas Estudiantiles del Ministerio de Educación Pública será el responsable de tramitar la obtención de la personería jurídica de la cooperativa escolar o juvenil.

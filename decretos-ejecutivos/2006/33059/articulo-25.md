@@ -1,0 +1,5 @@
+Artículo 25.—Las cooperativas escolares y juveniles deberán cumplir con los siguientes requisitos:
+a) Llevar los libros de Asamblea, Consejo y Comités, registro de asociados, así como los libros contables (Diario, Mayor, Inventarios y Balances) en idioma español, dichos libros serán debidamente sellados y autorizados por el Departamento de Cooperativas Estudiantiles del Ministerio de Educación Pública.
+b) Proporcionar al Departamento de Cooperativas Estudiantiles del Ministerio de Educación Pública, los datos y elementos que estimen pertinentes, de cara al seguimiento de los planes operativos de estas asociaciones cooperativas.
+c) Comunicar al Departamento de Cooperativas Estudiantiles del Ministerio de Educación Pública, dentro de los 15 días siguientes a la elección los cambios ocurridos en el Consejo de Administración, Comité de Vigilancia, Comité de Educación y Bienestar Social y Comité Asesor.
+d) Iniciar dentro de los 15 días siguientes a la celebración de la asamblea que acordó reformar los estatutos, los trámites necesarios para su aprobación legal y respectivo registro.
