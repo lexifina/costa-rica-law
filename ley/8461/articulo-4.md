@@ -1,0 +1,1 @@
+Artículo 4º—En el eventual caso de que el otorgamiento de una concesión a sujetos privados implique una reducción de la planilla del Incop, el pago de la indemnización respectiva a los trabajadores se hará en la fecha establecida en el contrato respectivo para la orden de iniciar las operaciones de los concesionarios.

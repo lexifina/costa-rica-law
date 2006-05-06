@@ -1,43 +1,19 @@
-Artículo 9º.- Los miembros de la Junta Directiva durarán en su cargo
-cuatro años y podrán ser reelectos indefinidamente, salvo la situación
-especial del Ministro de Obras Públicas o su delegado. Cada año se
-renovará un Director. Los directivos serán inamovibles durante el período
-para el que fueron designados.
-Sin embargo cesará de ser miembro de la Junta Directiva:
-a) El que perdiere su ciudadanía costarricense, su capacidad para el
-cargo, fuere condenado por delito contra la propiedad o llegare a
-encontrarse en algunas de las prohibiciones o incompatibilidades que se
-indican en el artículo 12 y en el párrafo final del artículo 13 de esta
-ley;
-b) El que se ausentare del país por más de tres meses sin
-autorización de la Directiva o con ella por más de un año;
-c) El que por cualquier causa no justificada debidamente, a juicio
-de la Junta, hubiere dejado de concurrir a tres sesiones ordinarias
-consecutivas;
-d) El que infringiere alguna de las disposiciones contenidas en las
-leyes, decretos o reglamentos aplicables al Instituto o consintiere en su
-infracción;
-e) El que, por incapacidad física o moral, no haya podido desempeñar
-sus funciones durante un año;
-f) El que renunciare a su cargo o se incapacite legalmente. En el
-primer caso la renuncia debe ser presentada a la Junta; y
-g) El que fuere destituido por el Consejo de Gobierno por
-comprobársele, mediante expediente creado al efecto, ineptitud o
-procederes incorrectos.
-En todos esos casos y en el de muerte de un miembro de la Directiva,
-ésta dará cuenta al Poder Ejecutivo para que proceda en Consejo de
-Gobierno a declarar la separación y a hacer el reemplazo respectivo, sin
-que la pérdida de su puesto libre a la persona separada de las
-responsabilidades en que hubiere podido incurrir. Si algún miembro de la
-Junta Directiva incurriere en alguna de las causales previstas en este
-artículo, entre los incisos a) y f) y esto llegare a conocimiento del
-Consejo de Gobierno por cualquier otro medio que no sea el de la Junta,
-éste podrá proceder a la destitución correspondiente.
-La reposición se hará dentro de los quince días siguientes a aquel
-en que ocurrió la vacante y el nuevo nombrado ejercerá el cargo por el
-resto del período legal de su antecesor.
-( Así reformado por el artículo 2º de la Ley Nº 4964 de 21 de marzo
-de 1972).
-( TACITAMENTE REFORMADO, en lo opuesto, por los artículos 5º de la
-Ley Nº 4646 de 20 de octubre de 1970 y 3º de la Nº 5507 de 19 de abril de
-1974).
+Artículo 9º—Los miembros de la Junta Directiva del Instituto permanecerán en sus cargos cuatro años y podrán ser reelegidos indefinidamente. Los directores serán inamovibles durante el período para el que fueron designados, excepto el presidente ejecutivo, quien será de libre remoción por parte del Consejo de Gobierno.
+No podrán ostentar el cargo de miembros de la Junta Directiva:
+a. Quienes, a la fecha de su postulación para ocupar un cargo en esta Junta Directiva, se encuentren condenados en sentencia firme por los delitos contemplados en los títulos VII, VIII, XI, XII, XV secciones 2, 3 y 5, y títulos XVI y XVII del Código Penal, Ley Nº 4573, y sus reformas.
+b. Quienes formen parte de otras juntas directivas de instituciones del Estado.
+c. Quienes estén ligados por consanguinidad o afinidad hasta el tercer grado con el presidente de la República o los vicepresidentes de la República, los diputados y los ministros.
+d. Quienes estén ligados por interés directo, indirecto o parentesco, por consanguinidad o afinidad incluso hasta el tercer grado, con miembros de juntas directivas, gerentes o similares de las empresas que suscriban cualquier tipo de contrato con el Incop.
+Las prohibiciones anteriores regirán hasta seis meses después de la finalización de la condición de miembro de la Junta Directiva, excepto para el caso del inciso a) anterior. La violación de las prohibiciones anteriores constituirá falta grave del servidor y dará lugar a su destitución por causa justa sin perjuicio de otras responsabilidades civiles o penales que eventualmente correspondan.
+Perderá su condición de miembro de la Junta Directiva:
+1. Quien pierda su capacidad para el cargo, sea condenado en sentencia firme por un delito contra la propiedad o se encuentre en algunas de las prohibiciones o incompatibilidades indicadas en el artículo 12 y en el párrafo final del artículo 13 de esta Ley.
+2. Quien se ausente del país por más de tres meses sin la autorización de la Junta Directiva o quien, con dicha autorización, se ausente por más de un año.
+3. Quien, por cualquier causa no justificada debidamente a juicio de la Junta Directiva, haya dejado de concurrir a tres sesiones ordinarias consecutivas.
+4. Quien infrinja alguna de las disposiciones contenidas en las leyes, los decretos o los reglamentos aplicables al Instituto o consienta en su infracción.
+5. Quien no haya podido desempeñar sus funciones durante un año, por incapacidad física.
+6. Quien renuncie a su cargo o haya sido declarado en estado de interdicción por la autoridad judicial competente. En el primer caso, la renuncia deberá ser presentada al Consejo de Gobierno.
+7. Quien sea destituido por el Consejo de Gobierno, por comprobársele, mediante expediente creado al efecto, ineptitud o procederes incorrectos.
+8. Quien incumpla las disposiciones establecidas por la Ley sobre el enriquecimiento ilícito de los servidores públicos, Nº 6872, de 16 de junio de 1983, y sus reformas.
+En todos esos casos, así como en el caso de muerte de un miembro de la Junta Directiva, esta dará cuenta al Poder Ejecutivo para que, en Consejo de Gobierno, proceda a declarar la separación y efectúe el reemplazo respectivo, sin que la pérdida de su puesto libere, a la persona separada, de las responsabilidades en que haya podido incurrir Si algún miembro de la Junta Directiva incurre en alguna de las causales previstas en los incisos 1) y 6) de este artículo y el asunto llega al conocimiento del Consejo de Gobierno, por cualquier otro medio que no sea la Junta, el Consejo podrá proceder a la destitución correspondiente.
+La reposición se hará dentro de los quince días siguientes a la fecha en que ocurrió la vacante y el nuevo miembro nombrado ejercerá el cargo por el resto del período legal de su antecesor.
+(Así reformado por el artículo 1° punto 1 de la Ley N° 8461 del 20 de octubre de 2005)
