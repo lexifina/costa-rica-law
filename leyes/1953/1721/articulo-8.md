@@ -1,6 +1,7 @@
-Artículo 8º.- La Junta Directiva elegirá de su seno un Presidente y
-un Vicepresidente que fungirán por un año, pudiendo ser reelectos. El
-Vicepresidente actuará como Presidente en ausencia de éste y a su vez
-será sustituido por los vocales en orden de edad.
-( TACITAMENTE REFORMADO por los artículos 3º y 6º de la Ley Nº 5507
-de 19 de abril de 1974).
+Artículo 8º—El presidente ejecutivo tendrá los siguientes deberes y atribuciones:
+a. Ocupar la posición de mayor jerarquía del Instituto en representación del Poder Ejecutivo.
+b. Presidir la Junta Directiva del Instituto.
+c. Velar por que se ejecuten las decisiones tomadas por la Junta Directiva y coordinar internamente la acción del Instituto, así como las acciones de este con los demás entes y órganos públicos.
+d. Cumplir sus funciones a tiempo completo y con dedicación exclusiva, por lo que no podrá desempeñar otro cargo público ni ejercer profesiones liberales.
+e. Ejercer la representación judicial y extrajudicial del Instituto, con el carácter de apoderado generalísimo.
+(Así reformado por el artículo 1° punto 1 de la Ley N° 8461 del 20 de octubre de 2005)

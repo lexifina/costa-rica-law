@@ -1,51 +1,18 @@
-Artículo 15.- Son deberes y atribuciones de la Junta Directiva:
-a) Dirigir el Instituto, fiscalizar sus operaciones y trazar la
-política económica del mismo,
-b) Nombrar al Gerente General y Auditor del Instituto y removerlos
-por acuerdo por lo menos del mismo número de votos requeridos para su
-nombramiento:
-( Así reformado por el artículo 1º de la Ley Nº 1797 de 30 de
-setiembre de 1964).
-c) Aprobar, a más tardar el día último de setiembre de cada año, el
-presupuesto general de gastos que le presente el Gerente e introducirle
-las modificaciones que juzgue convenientes. Este presupuesto deberá
-ceñirse a los porcentajes fijados en un plan financiero previamente
-aprobado por la Junta en los aspectos de administración, operación,
-mantenimiento y fondo de reconstrucción o de reserva;
-d) Aprobar los presupuestos extraordinarios que deberán hacerse con
-base en los superávit del presupuesto ordinario anual o en las entradas
-extraordinarias o adicionales que concretamente se señalen;
-e) Aprobar y examinar todos los balances del Instituto;
-f) Autorizar la publicación y adjudicar o rechazar las licitaciones
-públicas que deba hacer de conformidad con las leyes;
-( Así reformado por el artículo 1º de la Ley Nº 1797 de 30 de
-setiembre de 1964).
-g) Aprobar compras, hacer transacciones judiciales o extrajudiciales
-y arrendamientos por acuerdo, por lo menos, de cuatro de sus miembros;
-( Así reformado por el artículo 1º de la Ley Nº 1797 de 30 de
-setiembre de 1964).
-h) Conocer previamente y aprobar o improbar todo acto de la gerencia
-que implique una obligación futura del Instituto, excepto aquellas que se
-refieren a previsiones corrientes de mantenimiento calculadas hasta por
-un año y sujetas al presupuesto respectivo;
-i) Aprobar ventas, celebrar emprésitos y constituir gravámenes hasta
-por la suma de quinientos mil colones (¢ 500,000.00), por acuerdo de
-cuatro de sus miembros, por lo menos. Si la operación excede de esa suma,
-deberá solicitarse autorización de la Asamblea Legislativa.
-( Así reformado por el artículo 1º de la Ley Nº 1797 de 30 de
-setiembre de 1964).
-j) Dictar, reformar y derogar los reglamentos necesarios para el
-mejor desarrollo de todos los fines que persigue la Institución,
-relativos a trabajo, administración de sus diversas actividades y
-tarifas en general sobre todos los servicios que presta.
-( Así reformado por el artículo 1º de la Ley Nº 4040 de 3 de enero
-de 1968).
-( COMPLEMENTADO, el inciso j), por el artículo 4º de la Ley Nº 3065
-de 20 de noviembre de 1962).
-k) Fijar los sueldos del Gerente y Auditor y concederles licencia y
-nombrar a quien les reemplace interinamente; y
-l) Conocer en alzada de las apelaciones que se presenten por
-resoluciones del Gerente o el Auditor y dar por agotada la vía
-administrativa cuando esto se le solicite.
-( Así reformado por el artículo 2º de la Ley Nº 4964 de 21 de marzo
-de 1972).
+Artículo 15º—Son deberes y atribuciones de la Junta Directiva:
+a. Dirigir al Instituto, fiscalizar sus operaciones y definir sus políticas generales.
+b. Establecer y fiscalizar las políticas y actividades del Instituto concernientes a la prestación de los servicios portuarios y las facilidades conexas, incluso la atención de los cruceros y turistas que arriben a los puertos del litoral pacífico.
+c. Fijar parámetros y fiscalizar que la prestación de los servicios portuarios y las facilidades conexas se realicen con base en estándares internacionales que garanticen su calidad y competitividad.
+d. Establecer las políticas económicas y financieras del Instituto, procurando el uso óptimo de sus recursos materiales y humanos.
+e. Nombrar al gerente general, al auditor general del Instituto y al secretario fiscalizador de concesiones, y removerlos, por acuerdo de al menos el mismo número de votos requerido para nombrarlos, salvo en el caso del auditor general, el cual deberá ser removido según las disposiciones del artículo 31 de la Ley general de control interno, Nº 8292, y sus reformas, y del artículo 15 de la Ley orgánica de la Contraloría General de la República, Nº 7428, y sus reformas.
+f. Aprobar, a más tardar el último día de setiembre de cada año, el presupuesto general de gastos que le presente el gerente general e introducirle las modificaciones que juzgue convenientes. Este presupuesto deberá ceñirse a los porcentajes fijados en un plan financiero previamente aprobado por la Junta Directiva, en los aspectos de administración, operación, mantenimiento y fondos de reconstrucción o reserva. En el caso del presupuesto de la Junta Promotora de Turismo de la Ciudad de Puntarenas, esta remitirá un presupuesto detallado a la Junta Directiva del Incop para su aprobación y esta última deberá incluir el contenido económico necesario para cumplir los deberes y las atribuciones, establecidos en el artículo 25 de esta Ley.
+g. Aprobar los presupuestos extraordinarios, los cuales deberán hacerse con base en los superávit del presupuesto ordinario anual o en las entradas extraordinarias o adicionales señaladas concretamente.
+h. Examinar y aprobar todos los balances del Instituto.
+i. Autorizar la publicación y adjudicar o declarar desiertas o infructuosas las licitaciones públicas, concesiones y contrataciones que el Instituto deba hacer para el mejor cumplimiento de sus fines; todo ello de conformidad con las leyes vigentes.
+j. Aprobar las compras, los finiquitos, las transacciones, los arreglos judiciales o extrajudiciales y los arrendamientos necesarios para el mejor logro de los objetivos del Instituto; todo ello mediante el acuerdo de por lo menos cinco de sus miembros.
+k. Conocer previamente y aprobar o improbar todo acto del gerente general que implique una obligación futura del Instituto, excepto las referentes a previsiones corrientes de mantenimiento calculadas hasta por un año y sujetas al presupuesto respectivo.
+l. Aprobar ventas, celebrar empréstitos y constituir gravámenes hasta por una suma equivalente a cien mil dólares en moneda de los Estados Unidos de América (US$100.000,00), por el acuerdo de al menos cinco de sus miembros. Si la operación excede de esa suma, deberá solicitar autorización de la Asamblea Legislativa.
+m. Dictar, reformar y derogar los reglamentos necesarios para el mejor desarrollo de todos los fines que persigue la Institución, relativos al trabajo, la administración de sus diversas actividades y las tarifas, en general, sobre todos los servicios que el Instituto preste.
+n. Conceder licencia con goce de sueldo o sin él al gerente general, el asesor jurídico, el auditor general y el secretario fiscalizador, de conformidad con los principios del Estatuto del Servicio Civil, su Reglamento y la demás normativa aplicable a los casos de los puestos de auditoría.
+ñ. Conocer en alzada de las apelaciones que se presenten contra las resoluciones del gerente o del auditor general y dar por agotada la vía administrativa en todos los casos que no correspondan en forma exclusiva a la Junta Promotora de Turismo de la Ciudad de Puntarenas.
+o. Tomar oportunamente las disposiciones necesarias para que las partes firmantes en los contratos de concesión, se ajusten al estricto cumplimiento de las condiciones, las especificaciones y los plazos establecidos en el contrato y a las demás obligaciones implícitas en este, para la explotación de los servicios concesionados; todo con el fin de garantizar la seguridad, eficiencia y calidad de los servicios prestados.
+(Así reformado por el artículo 1° punto 1 de la Ley N° 8461 del 20 de octubre de 2005)

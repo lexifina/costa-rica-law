@@ -1,12 +1,22 @@
-ARTICULO 17.- Se establece un impuesto de diecinueve colones
-(¢19,00), por cada tonelada que se movilice en el Puerto de Caldera,
-el cual será administrado por el Instituto Costarricense de Puertos
-del Pacífico.
-De este impuesto se destinarán quince colones (¢15,00) a la
-Municipalidad de Esparza, para utilizarlos en obras de ese Cantón, de
-acuerdo con el plan de desarrollo general que elaboren, en forma
-conjunta, la citada Municipalidad y el Instituto de Fomento y Asesoría
-Municipal. Igualmente, se girará al Hogar Cristiano y al Hogar
-Monserrat de Puntarenas, la suma de dos colones (¢2,00) a cada uno.
-(Así reformado por el artículo 1º de la ley No.7353 del 10 de
-agosto de 1993. Ver observaciones de la ley)
+Artículo 17.—Para atender el financiamiento de las obligaciones a que se refiere esta Ley, en relación con el desarrollo socioeconómico del cantón de Esparza, se establece un gravamen de veinte centavos de dólar en moneda de los Estados Unidos de América (US$0,20) por cada tonelada de carga que se movilice en los puertos de los cantones Central y Esparza; dicho gravamen será pagado directamente a la Municipalidad del cantón de Esparza. La aduana no tramitará ninguna póliza, si el importe del gravamen establecido en esta Ley no ha sido entregado previamente a la Municipalidad, la cual estará facultada para fiscalizar el cobro efectivo de este tributo. Los recursos derivados del cobro de este gravamen serán incorporados en el presupuesto de la Municipalidad y asignados de la siguiente manera:
+a) Un veinte por ciento (20%) a las juntas de educación y juntas administrativas públicas del cantón de Esparza, para el mantenimiento y la construcción de infraestructura educativa y la compra de mobiliario, equipo y útiles para educación preescolar, primaria y secundaria.
+b) Un diez por ciento (10%) para comedores escolares de los centros educativos de Esparza.
+c) Un siete por ciento (7%) a la Municipalidad del cantón de Esparza, para la creación de un fondo de becas para educación preescolar, primaria, secundaria, parauniversitaria y universitaria. Para este efecto, la Municipalidad conformará una comisión que estudie cada una de las solicitudes. El trámite para la obtención de las becas será definido mediante reglamento.
+d) El cincuenta y nueve coma cinco por ciento (59,5%) a la Municipalidad de Esparza para lo siguiente:
+1. La construcción, el asfaltado, el relastreo, y el mantenimiento de los caminos y puentes cantonales de todos sus distritos.
+2. El mantenimiento y la construcción de infraestructura deportiva y la compra de artículos deportivos.
+3. Proyectos de desarrollo propuestos por los concejos municipales de distrito y los concejos de distrito.
+4. La creación de un fondo para la compra de terrenos destinados a actividades de carácter comunal.
+5. La compra y el mantenimiento de maquinaria y equipo, incluso la requerida para la recolección de basura.
+6. La compra, la instalación y el mantenimiento de la señalización vial vertical, con el fin de promover los sitios de interés turístico del cantón de Esparza, lo cual se realizará en coordinación con el ICT, el MOPT y la Cámara de turismo de Esparza. Los fondos que se asignen para el cumplimiento de los fines establecidos en este acápite, no serán inferiores al uno coma cinco por ciento (1,5%) del monto recaudado por concepto del impuesto establecido en este artículo.
+e) Un uno por ciento (1%) a los comités de la Cruz Roja Costarricense del cantón de Esparza para gastos de operación, compra y mantenimiento de maquinaria y equipo.
+f) Un dos coma cinco por ciento (2,5%) a los hogares de ancianos del cantón de Esparza, sin fines de lucro.
+La distribución de las asignaciones establecidas en los incisos a) y b) de este artículo, se realizará con base en la población estudiantil de cada centro educativo; para ello, la Municipalidad reglamentará la clasificación de los centros educativos, de acuerdo con las categorías que establezca el MEP.
+La asignación establecida en el inciso d) de este artículo, será definida anualmente por la Municipalidad, de acuerdo con el siguiente proceso: los concejos de distrito, mediante acuerdo de la mayoría simple de sus miembros, priorizarán y concretarán los proyectos que contribuyan a la generación o el fortalecimiento de planes productivos que beneficien a las comunidades y presentarán a la Municipalidad para su aprobación los proyectos y las obras, que serán financiados con estos recursos. La Municipalidad convocará, una vez al año, a los ciudadanos del respectivo cantón, por los distintos medios de comunicación, para obtener el criterio colectivo acerca de los proyectos presentados.
+Para tal efecto, realizará una asamblea pública que se celebrará en un sábado de junio de cada año, en un sitio de acceso público; a dicha asamblea concurrirán los regidores, los síndicos y el alcalde o la alcaldesa municipal, y se levantará un acta en la cual se consignarán las observaciones de los ciudadanos del cantón que concurran.
+Posteriormente, el Concejo Municipal definirá la asignación de los recursos, atendiendo a los criterios de población, pobreza y extensión geográfica de cada distrito; para ello, consultará al Ministerio de Planificación y Política Económica, y acto seguido incluirá los proyectos correspondientes en el Plan anual cantonal.
+Los recursos incluidos en el inciso d) anterior no podrán utilizarse para cubrir salarios, ni para crear nuevas plazas.
+La Municipalidad publicará en La Gaceta los reglamentos necesarios, para garantizar que los fondos establecidos en este artículo sean asignados y utilizados conforme a la ley.
+La Municipalidad deberá rendir cuentas anualmente ante los órganos fiscalizadores del Estado y ante las comunidades del cantón, sobre la utilización y distribución de los recursos establecidos en el presente artículo y deberá publicar la rendición de cuentas en un medio de circulación nacional.
+Para lo no dispuesto por este artículo, se aplicarán supletoriamente las disposiciones establecidas en el artículo 4 de la Ley Nº 7755, Control de partidas específicas con cargo al presupuesto nacional.
+(Así reformado por el artículo 3° de la Ley N° 8461 del 20 de octubre de 2005)

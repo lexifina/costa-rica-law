@@ -1,16 +1,6 @@
-Artículo 7º.- La Junta Directiva estará integrada por cinco
-miembros propietarios de la siguiente manera:
-a) El Ministro de Obras Públicas o un Delegado, que será ex-oficio,
-miembro de la Junta Directiva; y
-b) Cuatro personas escogidas entre elementos que por sus
-conocimientos, experiencia y capacidades, puedan atender las necesidades
-económicas, técnicas y sociales del Instituto, incluyendo necesariamente
-entre ellas a un obrero sindicalizado y un ciudadano del distrito primero
-del Cantón Central de Puntarenas que tenga cinco años de residencia en
-ese distrito, como mínimo. Todos deben ser costarricenses de reconocida
-honorabilidad.
-( Así reformado por el artículo 1º de la Ley Nº 2481 de 7 de
-diciembre de 1959 y 2º de la Nº 4964 de 21 de marzo de 1972).
-( TACITAMENTE REFORMADO por los artículos 5º, párrafo final, de la
-Ley Nº 4646 de 20 de octubre de 1970 y 3º de la Nº 5507 de 19 de abril de
-1974).
+Artículo 7º—La Junta Directiva estará integrada por los siguientes miembros:
+a. Un presidente ejecutivo, quien será un profesional universitario costarricense, con experiencia laboral mínima comprobada de cinco años en las actividades correspondientes al Instituto.
+b. Seis ciudadanos costarricenses, con amplios conocimientos académicos y experiencia laboral mínima comprobada de tres años en las actividades correspondientes al Instituto.
+Todos los integrantes de la Junta Directiva deberán ser de reconocida honorabilidad.
+La violación de los requisitos establecidos en este artículo constituirá falta grave y dará lugar a la destitución del integrante sin responsabilidad para la Institución
+(Así reformado por el artículo 1° punto 1 de la Ley N° 8461 del 20 de octubre de 2005)

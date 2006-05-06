@@ -1,0 +1,1 @@
+Transitorio IV.—El plazo para dictar el reglamento establecido en el artículo 19 de la Ley Nº 1721, de 28 de diciembre de 1953, y sus reformas, será de tres meses, contados a partir de su publicación.

@@ -1,6 +1,6 @@
 # Préstamo para Puerto Caldera con EXIMBANK de Japón Banco Exportación e Importación de Japón
 
-Ley N° 5582 del 1974-10-11. SINALEVI, ficha 22199: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=22199&param2=23549&param3=1>.
+Ley N° 5582 del 1974-10-11. SINALEVI, ficha 22199: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=22199&param2=23550&param3=1>.
 
 Publicada en La Gaceta N° 207 del 1974-10-31.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1980-05-29 | SINALEVI (2 normas) | 1974-10-11 |
 | 2 de 3 | 1999-10-05 | SINALEVI (14 normas) | 1974-10-11 |
+| 3 de 3 | 2006-05-06 | Ley 8461 | 2005-10-20 |

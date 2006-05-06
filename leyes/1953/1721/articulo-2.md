@@ -1,58 +1,22 @@
-Artículo 2º.- Como institución autónoma de derecho público, con
-personería jurídica y patrimonio propios, el Instituto Costarricense de
-Puertos del Pacífico gozará de la autonomía administrativa establecida
-por la Constitución Política, la que le confiere completa independencia
-en materia de administración, debiendo guiarse exclusivamente por las
-decisiones emanadas de su Junta Directiva, cuyos miembros actuarán
-conforme a su criterio, con apego a la Constitución, a las leyes y
-reglamentos pertinentes y a los principios de la técnica, siendo
-responsables de su gestión en forma total e ineludible.
-En el cumplimiento de sus funciones el Instituto tendrá las
-siguientes facultades:
-a) Realizar la planificación específica de las obras e instalaciones
-portuarias que requiera el desarrollo económico del país en el litoral
-del Pacífico, de conformidad con la planificación general y la política
-de desarrollo portuario que determine el Poder Ejecutivo;
-b) Construir, previa aprobación del Ministerio de Obras Públicas y
-Transportes, las obras que se requieran para un eficiente servicio
-portuario, así como mejorar, mantener, operar y administrar los servicios
-e instalaciones que estén a su cargo;
-c) Establecer los sistemas de trabajo y administración en todos los
-servicios en que intervenga, así como en el uso de las instalaciones,
-equipo y facilidades a su cargo;
-d) Adquirir y administrar los bienes que necesite para el buen logro
-de sus objetivos, contrayendo las obligaciones que le permita la presente
-ley;
-e) Recibir y controlar directamente los barcos que entren o salgan
-de los puertos del litoral del Pacífico;
-f) Recibir, trasladar dentro de los recintos portuarios y ubicar en
-los almacenes, patios, ferrocarriles y demás instalaciones destinadas al
-efecto, las mercancías y otros bienes que se desembarquen o que estén
-destinados a embarcarse por los puertos del litoral del Pacífico;
-g) Vigilar, custodiar, almacenar y entregar las mercancías y otros
-bienes a los consignatarios o a quienes sus derechos representen, en la
-forma y condiciones que los reglamentos del Instituto determinen.
-En ningún caso hará entrega de la carga desembarcada a los
-consignatarios o sus agentes, ni permitirá el embarque de carga, sin el
-previo trámite aduanal y de conformidad en lo que al respecto determinen
-las leyes y los reglamentos, con excepción de los equipajes, cuya
-recepción, vigilancia, custodia y entrega, corresponderá a la Aduana;
-h) Comprar los terrenos y propiedades que sean necesarios para el
-desarrollo de sus actividades, de acuerdo con la ley. En cuanto los casos
-de expropiación que pudieran presentarse, se aplicarán, en lo conducente,
-los procedimientos señalados en las leyes Nº 1371 de 10 de noviembre de
-1951 y Nº 3842 de 4 de enero de 1967;
-i) Coordinar el desenvolvimiento de las actividades portuarias y de
-transporte conexas;
-j) Dictar los reglamentos internos, acuerdos y demás medidas
-necesarias que se requieran para lograr los objetivos de esta ley;
-k) Establecer tarifas, cánones o cobrar por los servicios públicos
-que realice, previa aprobación del Poder Ejecutivo, de acuerdo con la
-ley; y
-l) Vigilar el fiel cumplimiento de los contratos del Estado con
-terceros, por servicios portuarios y ferroviarios en el litoral del
-Pacífico.
-( Así reformado por el artículo 1º de la Ley Nº 4964 de 21 de marzo
-de 1972).
-( NOTA: La administración de los ferrocarriles del Estado fue
-transferida al INCOFER mediante Ley Nº 7001 de 19 de setiembre de 1985).
+Artículo 2º.- Como institución autónoma de derecho público, con personería jurídica y patrimonio propios, el Instituto Costarricense de Puertos del Pacífico gozará de la autonomía administrativa establecida por la Constitución Política, la que le confiere completa independencia en materia de administración, debiendo guiarse exclusivamente por las decisiones emanadas de su Junta Directiva, cuyos miembros actuarán conforme a su criterio, con apego a la Constitución, a las leyes y reglamentos pertinentes y a los principios de la técnica, siendo responsables de su gestión en forma total e ineludible.
+Para cumplir los objetivos, corresponderán al Instituto los siguientes deberes y atribuciones:
+a. Establecer los lineamientos estratégicos, de conformidad con las previsiones del Plan nacional de desarrollo y las directrices de carácter general emitidas por el Poder Ejecutivo, en materia de desarrollo portuario.
+b. Ejercer, en cumplimiento de los lineamientos establecidos en el inciso a) anterior, las atribuciones de autoridad portuaria superior y de coordinación en materia funcional y administrativa, sobre las labores que se desarrollen en los puertos de Puntarenas, Caldera, Quepos, Golfito y Punta Morales en la provincia de Puntarenas, así como en cualquier otro que se establezca en el litoral pacífico del país.
+c. Realizar la planificación específica de las obras, instalaciones portuarias y facilidades conexas necesarias para la prestación de los servicios portuarios en el litoral pacífico del país, así como coordinar y fiscalizar el desenvolvimiento de las actividades portuarias y de transporte dentro de los recintos portuarios.
+d. Mantener, operar y administrar, cuando no hayan sido concesionados o contratados con terceros, los siguientes servicios portuarios:
+i. Recibir, trasladar dentro de los recintos portuarios y ubicar en los almacenes, patios y demás instalaciones destinados al efecto, las mercancías y otros bienes que se desembarquen o estén destinados a embarcarse por los puertos del litoral pacífico del país.
+ii. Vigilar, custodiar, almacenar y entregar las mercancías y otros bienes a los consignatarios o a sus representantes legales, en la forma y las condiciones que determinen los reglamentos correspondientes. En ningún caso hará entrega de la carga desembarcada a los consignatarios o a sus agentes, ni permitirá el embarque de carga sin el previo trámite aduanal y de conformidad con lo que dispongan en ese sentido las leyes y los reglamentos, con excepción de los equipajes, cuya recepción, vigilancia, custodia y entrega corresponderá a la aduana.
+iii. Prestar cualquier otro servicio portuario o actividad conexa no concesionados, incluso los servicios de ayuda para la navegación.
+e. Garantizar que el embarque, desembarque y el traslado de pasajeros, tripulantes y visitantes a los buques y demás embarcaciones, se realicen en condiciones que aseguren su integridad, seguridad y comodidad. El traslado de pasajeros referido en el presente inciso, deberá ser coordinado con la Policía Especial de Migración, de acuerdo con el procedimiento establecido en el capítulo III del título I de la Ley Nº 7033, de 28 de julio de 1986, y sus reformas.
+f. Construir, de acuerdo con los lineamientos establecidos en el inciso a) de este artículo, nuevos puertos, instalaciones portuarias y facilidades conexas que se requieran para la prestación eficiente de servicios portuarios en el litoral pacífico del país o, en su caso, concesionar su construcción o la prestación del servicio público respectivo. Los contratos de concesión suscritos con personas privadas, en ningún caso podrán abarcar actividades que excedan las competencias en materia de servicio público que el Incop tiene asignadas por ley. Las empresas concesionarias tampoco podrán realizar actividades comerciales en condiciones que les restrinjan a otros agentes privados la libre competencia, entre ellos a los armadores, las agencias de vapores, las agencias de aduanas y los transportistas. Las empresas concesionarias que infrinjan las disposiciones establecidas en este inciso, serán sancionadas de conformidad con lo establecido por el artículo 10 de la Ley de la promoción de la competencia y defensa efectiva del consumidor, Nº 7472, de 20 de diciembre de 1994.
+g. Ejercer, por medio de la Secretaría Fiscalizadora de Concesiones, establecida en el artículo 5 de esta Ley, las labores de regulación y fiscalización sobre las concesiones que otorgue, para los efectos del inciso f) del presente artículo, de acuerdo con las disposiciones del inciso 14 del artículo 121 de la Constitución Política; la Ley general de concesión de obra pública, Nº 7762, de 14 de mayo de 1998, y sus reformas; la Ley Nº 7494, Contratación administrativa, de 2 de mayo de 1995, y sus reformas; la Ley de arrendamientos urbanos y suburbanos, Nº 7527, de 10 de julio de 1995, y sus reformas; esta Ley y los respectivos Reglamentos, así como en los contratos de concesión correspondientes. Para ello, coordinará sus funciones con el Ministerio de Obras Públicas y Transportes (MOPT), el cual estará autorizado para destinar, a esos efectos, recursos humanos, bienes y servicios. En las concesiones que se realicen al amparo de la Ley Nº 7762, las funciones indicadas se desempeñarán conforme a lo estipulado en dicha Ley. h) Velar por el más adecuado y eficiente uso de los muebles, los terrenos, los edificios, los equipos y las instalaciones portuarias y, en general, por todos aquellos bienes, muebles e inmuebles, los derechos y las obligaciones transferidos por leyes anteriores al Instituto o adquiridos por este en virtud del cumplimiento de sus obligaciones y cometidos legales, así como los ingresos provenientes del arrendamiento de los inmuebles y las instalaciones de su propiedad, concernientes al recibo y la atención del turismo nacional e internacional, incluso los bienes que se encuentren bajo la administración de la Junta Administradora de la Plaza del Pacífico, de acuerdo con lo dispuesto en el artículo 23 y en el inciso c) del artículo 25 de la presente Ley. Cuando se trate de puertos cuyos servicios hayan sido otorgados en concesión, las labores de dragado corresponderán a los concesionarios, si así se ha establecido en el contrato respectivo; en su defecto, estas labores le corresponderán al Estado.
+i. Establecer los mecanismos de coordinación necesarios, con las autoridades fiscales, de migración, sanidad y policía, para que estas puedan cumplir sus respectivas funciones en los puertos del litoral pacífico del país.
+j. Establecer los sistemas de trabajo y administración para todos los servicios portuarios y las facilidades conexas que preste directamente, así como ejercer, sin perjuicio de las competencias otorgadas al Consejo Nacional de Concesiones y su Secretaría por los artículos 8 y 9 de la Ley Nº 7762, la fiscalización sobre los servicios portuarios y las actividades conexas que legalmente se concesionen o contraten con terceros, incluso el arrendamiento de los bienes del Incop.
+k. Adquirir los terrenos y las propiedades necesarios para el desarrollo de sus actividades, de acuerdo con las leyes correspondientes, la disponibilidad presupuestaria, los planes y los lineamientos que se dicten de conformidad con el inciso a) del artículo 2 de la presente Ley. Cuando para ello sea pertinente realizar expropiaciones, se aplicarán, en lo conducente, los procedimientos señalados en la Ley de expropiaciones, Nº 7495, de 3 de mayo de 1995.
+l. Adquirir y administrar los demás bienes que necesite para el buen logro de sus objetivos, de acuerdo con las leyes correspondientes, la disponibilidad presupuestaria, los planes y los lineamientos que se fijen de acuerdo con el inciso a) del artículo 2 de la presente Ley.
+m. Proponer, a la Autoridad Reguladora de los Servicios Públicos (Aresep), las tarifas y los cánones que se cobrarán por los servicios públicos portuarios y las facilidades conexas que se presten, directa o indirectamente, en el litoral pacífico del país.
+n. Dictar los reglamentos internos, los acuerdos y las demás medidas necesarios para lograr sus objetivos, conforme a la presente Ley.
+ñ. Destinar los ingresos provenientes de concesiones otorgadas por medio de la Ley Nº 7762, en un cien por ciento (100%) al financiamiento de obras y equipo para proyectos de mantenimiento, construcción de infraestructura, ornato, limpieza y seguridad ciudadana, con énfasis en la actividad turística. A estos proyectos también se destinará al menos un veinticinco por ciento (25%) de los ingresos provenientes de las concesiones otorgadas o de las que sean otorgadas directamente por el Incop en el futuro; su Junta Directiva quedará autorizada para aumentar este porcentaje hasta alcanzar el cincuenta por ciento (50%) de estos ingresos. Los ingresos definidos en este inciso, en ningún caso podrán utilizarse para financiar proyectos o actividades relacionados con las concesiones otorgadas.
+o. Elaborar y publicar semestralmente, en La Gaceta, previa consulta facultativa al Instituto Costarricense de Turismo (ICT) y a la Junta Promotora de Turismo de la Ciudad de Puntarenas, de acuerdo con las respectivas competencias, un plan que incluya los proyectos concretos por impulsar, así como un informe detallado de los resultados obtenidos durante el semestre anterior, con los recursos indicados en el inciso ñ) de este artículo.
+(Así reformado el párrafo segundo por el artículo 1° punto 1 de la Ley N° 8461 del 20 de octubre de 2005)
+( NOTA: La administración de los ferrocarriles del Estado fue transferida al INCOFER mediante Ley Nº 7001 de 19 de setiembre de 1985).
