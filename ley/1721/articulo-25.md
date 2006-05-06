@@ -1,19 +1,10 @@
-CAPITULO II
-Beneficios de que disfrutará la Empresa
-Artículo 25.- El Instituto contará con los siguientes beneficios:
-a) Exoneración de derechos de importación y sus recargos sobre las
-maquinarias, repuestos, accesorios, herramientas, implementos, materiales
-de toda clase, combustibles y mercaderías que deba importar para el
-cumplimiento de sus fines; y
-b) Exención de impuestos directos o indirectos, presentes o futuros,
-y franquicia postal y telegráfica, excepto los tributos a favor de
-municipalidades por extracción de materiales de que el Instituto se
-aprovecha, o por patentes sobre el Balneario de Ojo de Agua.
-( Así reformado por el artículo 1º de la Ley Nº 3909 de 18 de julio
-de 1967 y por el 2º de la Ley Nº 4964 de 21 de marzo de 1972).
-( TACITAMENTE REFORMADO por Ley Nº 2151 de 13 de agosto de 1957).
-( TACITAMENTE DEROGADO, en forma parcial, por las leyes números 5870
-de 11 de diciembre de 1975, artículo 15 (suprime franquicia postal); 4513
-de 2 de enero de 1970, artículo 9º (suprime franquicia telegráfica); 7088
-de 30 de noviembre de 1987 (importación de vehículos), y 7293 de 31 de
-marzo de 1992, artículos 50 y 55 (exención de pago de futuros impuestos).
+Artículo 25.—La Junta Promotora de Turismo de la Ciudad de Puntarenas tendrá los siguientes deberes y atribuciones:
+a) Diseñar e implementar, en coordinación con el ICT, en su calidad de órgano rector en materia turística, la estrategia de atracción de cruceros al puerto de Puntarenas, incluso las acciones relacionadas con la promoción turística.
+b) Promover, en coordinación con el ICT, la Cámara de Turismo de Puntarenas y la Municipalidad de Puntarenas, la actividad y prestación de servicios turísticos a nacionales y extranjeros, e impulsar el desarrollo de actividades de índole educativa, cultural, ambiental y deportiva, especialmente relacionadas con actividades acuáticas de otro tipo, tales como ferias gastronómicas y cualesquiera otras que promuevan el turismo en las zonas aledañas con potencial turístico de la ciudad de Puntarenas.
+c) Administrar la Plaza del Pacífico, el edificio conocido como Capitanía de Puerto, el vehículo denominado Manuel Emilio y los trolebuses adquiridos como parte del proyecto Puntarenas por siempre, así como la denominada Casa de la Loma, que podrá ser arrendada o prestada para actividades de carácter comunal, de acuerdo con el Reglamento de uso y administración de los bienes muebles e inmuebles, que dictará al efecto la Junta Promotora, previa consulta a la Junta Directiva del Incop.
+d) Coordinar con las demás autoridades del Incop, así como con otras instituciones públicas o privadas, la atención de los cruceros y turistas que arriben al puerto de Puntarenas.
+e) Determinar el destino de los locales de la Plaza del Pacífico para su arrendamiento o préstamo; para ello, podrá suscribir contratos, con personas físicas o jurídicas, así como emitir los reglamentos requeridos para la correcta administración de los bienes confiados mediante esta Ley.
+f) Suscribir convenios de cooperación con organismos públicos y privados dedicados a la promoción del turismo, actividades educativas, culturales y ambientales, así como a la limpieza y el ornato de la playa y las zonas aledañas con potencial turístico.
+g) Formular y presentar, con el apoyo de los órganos especializados del Incop, para conocimiento y aprobación de su Junta Directiva, el Plan de inversiones y el presupuesto anual necesario para el cumplimiento de sus fines, incluso los fondos necesarios para el mantenimiento, la operación y la vigilancia de las obras existentes y la construcción de nueva infraestructura, así como las labores de promoción, nacional e internacional, destinadas a la atracción del turismo y a proyectos de promoción de actividades educativas, culturales, ambientales y deportivas, así como a la limpieza y el ornato de la playa y las zonas aledañas con potencial turístico de la ciudad de Puntarenas; lo anterior, de conformidad con lo dispuesto por el inciso f), del artículo 15 de la presente Ley.
+h) Dar por agotada la vía administrativa en los procedimientos en que correspondan, de acuerdo con el inciso c) del artículo 126 de la Ley General de la Administración Pública Nº 6227, de 2 de enero de 1978.
+(Así adicionado por el artículo 1° punto 2 de la Ley N° 8461 del 20 de octubre de 2005)

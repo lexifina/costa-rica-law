@@ -2,13 +2,9 @@ TITULO II
 DIRECCION Y ADMINISTRACION
 CAPITULO I
 Definición General
-Artículo 5º.- La función Administradora del Instituto comprenderá la
-dirección y la administración propiamente dicha. La primera corresponde a
-la Junta Directiva y la segunda estará a cargo del Gerente General, el
-cual ejercerá estas funciones de acuerdo con la ley y los reglamentos, y
-con las instrucciones que le imparta la Junta Directiva. Habrá además un
-Auditor General que, con el carácter de delegado directo de la Junta
-Directiva, ejercerá la contraloría financiera del Instituto, careciendo
-de funciones ejecutivas, salvo las relacionadas con su departamento.
-( Así reformado por el artículo 2º de la Ley Nº 4964 de 21 de marzo
-de 1972).
+Artículo 5º—El régimen de funcionamiento del Instituto comprenderá la dirección y administración propiamente dichas. La primera corresponderá a la Junta Directiva y la segunda estará a cargo de un gerente general, en lo que se refiera a la ejecución de las políticas establecidas por la Junta Directiva y la realización de las labores ordinarias que el Instituto desarrolle en el cumplimiento de sus deberes y atribuciones; lo anterior sin perjuicio de las atribuciones que, de conformidad con esta Ley, correspondan a la Junta Promotora de Turismo de la Ciudad de Puntarenas.
+Existirá un auditor general, amparado en la Ley orgánica de la Contraloría General de la República, Nº 7428, y sus reformas, y en la Ley general de control interno. Nº 8292, y sus reformas; será nombrado y removido de acuerdo con lo dispuesto por los artículos 15 y 62 de la Ley orgánica de la Contraloría General de la República, Nº 7428, de 7 de setiembre de 1994, y sus reformas, y ejercerá la función contralora del Instituto, según la normativa vigente en materia de control interno, pero carecerá de funciones ejecutivas, salvo las relacionadas con su despacho.
+También se contará con una secretaría fiscalizadora de concesiones bajo la supervisión de la Junta Directiva, a la cual rendirá cuentas, pero con independencia funcional; esta secretaría coordinará sus actividades con el Consejo Nacional de Concesiones, cuando corresponda, y será la encargada de fiscalizar los actos preparatorios previos a cualquier contratación, incluso la propuesta del cartel, así como el cumplimiento de las obligaciones adquiridas por los concesionarios. Para ello, tendrá la facultad de efectuar las inspecciones que considere oportunas, en cualquier fase de la ejecución contractual. Los concesionarios deberán colaborar con la secretaría en el cumplimiento de sus funciones y esta procurará cumplir los principios y las disposiciones establecidos por la Ley de la Autoridad Reguladora de los Servicios Públicos, Nº 7593.
+La secretaría citada estará a cargo de un secretario, quien será nombrado y removido por mayoría de cinco de los miembros de la Junta Directiva. Para ser secretario, se requiere ostentar un grado profesional acorde con la materia, y amplios conocimientos en contratación administrativa, concesiones de servicios u obras públicas y trámites portuarios; asimismo, se deberá acreditar una experiencia laboral mínima de tres años en este campo. El secretario remitirá copia de todos los documentos que realice a la Junta Directiva, al gerente general, a la Auditoría General del Incop, a la Contraloría General de la República, a la Defensoría de los Habitantes y a la Comisión para el Control del Ingreso y Gasto Públicos de la Asamblea Legislativa. La Junta Directiva asignará el personal, los materiales y el equipo necesarios para que la secretaría cumpla adecuadamente con funciones.
+La Institución tendrá también un asesor jurídico, quien se regirá por los artículos 17 ter y 20 de la presente Ley.
+(Así reformado por el artículo 1° punto 1 de la Ley N° 8461 del 20 de octubre de 2005)

@@ -1,0 +1,1 @@
+Artículo 5º—El IMAS podrá instalar puestos o tiendas de venta de artículos libres de impuestos, invertir en ellos, tanto en el inmueble denominado Plaza de Pacífico como en sus alrededores, para el cumplimiento de sus objetivos de carácter social.

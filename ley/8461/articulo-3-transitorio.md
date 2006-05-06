@@ -1,0 +1,1 @@
+Transitorio III.—El Ministerio de Trabajo y Seguridad Social establecerá en un plazo de sesenta días a partir de la publicación de esta Ley, una escala de salarios que cubra todos los servicios especializados, administrativos, técnicos y profesionales que presten los trabajadores en actividades relacionadas con materia portuaria.
