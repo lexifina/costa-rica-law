@@ -1,0 +1,1 @@
+Artículo 4º—El desarrollo de las Auditorías en Seguridad Vial será competencia del Consejo de Seguridad Vial y se ejecutará a través de la Dirección General de Ingeniería de Tránsito. Lo anterior, sin perjuicio de la coordinación necesaria con otras instancias ya establecidas, cuya labor pueda integrarse y complementarse con los objetivos aquí establecidos.
