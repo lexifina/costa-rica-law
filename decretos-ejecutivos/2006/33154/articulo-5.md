@@ -1,0 +1,1 @@
+Artículo 5º—Instituciones participantes. Bajo la rectoría del Ministro Rector del Sector Social y de Lucha contra la Pobreza, participarán en este programa el Ministerio de Educación Pública, el Instituto Nacional de Aprendizaje (INA), el Instituto Mixto de Ayuda Social (IMAS) y la Dirección de Asignaciones Familiares (DESAF) del Ministerio de Trabajo y Seguridad Social.
