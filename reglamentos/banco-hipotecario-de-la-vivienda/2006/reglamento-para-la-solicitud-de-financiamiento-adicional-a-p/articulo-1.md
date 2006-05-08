@@ -1,0 +1,23 @@
+BANCO HIPOTECARIO DE LA VIVIENDA
+La Junta Directiva del Banco Hipotecario de la Vivienda en su sesión 25-2006, artículo 6º, del 30 de marzo del presente año, tomó el acuerdo Nº 2, que indica lo siguiente:
+"ACUERDO Nº 2:
+Considerando:
+Primero.—Que el Sistema Financiero Nacional para la Vivienda tiene como objetivo procurar la solución del problema habitacional del país, incluido el aspecto de los servicios.
+Segundo.—Que el artículo 59 de la Ley del Sistema Financiero Nacional para la Vivienda permite que, con recursos del Fondo de Subsidios para la Vivienda se puedan financiar proyectos especiales de vivienda destinados a la erradicación de tugurios, emergencias y extrema necesidad.
+Tercero.—Que dicho financiamiento se lleva a cabo por medio de contratos de crédito o de líneas de crédito que el BANHVI concede a las Entidades Autorizadas del Sistema Financiero Nacional para la Vivienda, para que éstas hagan lo propio con los respectivos Desarrolladores de los proyectos de vivienda.
+Cuarto.—Que la norma citada en el Considerando anterior permite por consiguiente el financiamiento extraordinario con recursos del Fondo de Subsidios para la Vivienda.
+Quinto.—Que por aprobado un proyecto de vivienda, su ejecución puede sufrir atrasos por causas no imputables al desarrollador, lo cual tiene como resultado que el monto del financiamiento originalmente aprobado para atender dicho proyecto se desactualice por un incremento imprevisible e incontrolable de los precios de los materiales de construcción no contemplado en el presupuesto original.
+Sexto.—Que bajo esas circunstancias el interés del Sistema Financiero Nacional para la Vivienda es el de que las viviendas se construyan y entreguen a los beneficiarios, por lo que sería procedente la aprobación de financiamiento adicional y en relación únicamente a las obras faltantes correspondientes a las viviendas.
+Sétimo.—Que es necesario contar con un procedimiento debidamente reglamentado para otorgar el financiamiento adicional de tal forma que se proteja la normal conclusión de las operaciones del Sistema Financiero Nacional para la Vivienda y los programas de vivienda que interesan al Estado.
+Octavo.—Que de conformidad con los artículos 26 inciso d), 46 y 65 de la Ley del Sistema Financiero Nacional para la Vivienda, corresponde a la Junta Directiva del Banco Hipotecario de la Vivienda dictar los reglamentos que regirán el funcionamiento de dicho Sistema y de los diferentes programas de financiamiento que aplicará esta entidad, lo mismo que reglamentar el funcionamiento del Fondo de Subsidios para la Vivienda y lo relativo al Bono Familiar de Vivienda, de tal manera que en cuanto a su operación cumpla cabalmente con el objetivo de que las familias de escasos ingresos puedan ser propietarios de una vivienda acorde con sus necesidades y que el Estado les garantice este beneficio.
+Noveno.—Que es de interés público, del Banco Hipotecario de la Vivienda y del Estado la pronta y correcta construcción de los proyectos habitacionales de interés social financiados con fondos públicos, dado que el atraso en la construcción de las obras o en la entrega a los beneficiarios por causas ajenas a los respectivos desarrolladores o constructores produciría otros problemas o distorsiones sociales.
+Décimo.—Que sobre el presente reglamento se procedió a otorgar la audiencia prevista en el artículo 361 de la Ley General de la Administración Pública. Por tanto,
+SE ACUERDA:
+Aprobar y emitir el siguiente:
+REGLAMENTO PARA LA SOLICITUD DE FINANCIAMIENTO
+ADICIONAL A PROYECTOS DE VIVIENDA TRAMITADOS
+AL AMPARO DEL ARTÍCULO 59 DE LA LEY DEL
+SISTEMA FINANCIERO NACIONAL PARA
+LA VIVIENDA
+Artículo 1º—Objetivo. El Banco Hipotecario de la Vivienda, en adelante BANHVI, mediante acuerdo razonado de su Junta Directiva y previo informe técnico de su Gerencia General, de la Dirección del Fondo de Subsidios para la Vivienda y de la respectiva Entidad Autorizada, podrá otorgar por excepción financiamiento adicional a un proyecto de vivienda tramitado al amparo del artículo 59 de la Ley del Sistema Financiero Nacional para la Vivienda y de conformidad con las siguientes disposiciones, las cuales no podrán ser modificadas ni derogadas para casos específicos.
+Las presentes normas no son aplicables a aquellos proyectos de vivienda desarrollados mediante el mecanismo de obra determinada o de locación de obra en terrenos propiedad del BANHVI o propiedad de ésta entidad pero administrados en Fideicomiso. En esos casos, tanto la forma de financiar la construcción del proyecto como el correspondiente reajuste de precios se regirá por lo dispuesto en la respectiva contratación.
