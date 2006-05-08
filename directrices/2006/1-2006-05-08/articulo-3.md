@@ -1,0 +1,1 @@
+Artículo 3º—No se emitirán por un período de un año nuevas regulaciones, cuando establezcan nuevos trámites, requisitos y procedimientos que deba cumplir el administrado ante la Administración Pública central y descentralizada. Únicamente, se emitirán modificaciones a las regulaciones existentes en la medida que éstas busquen mejorar y simplificar los trámites vigentes.

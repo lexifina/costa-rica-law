@@ -1,0 +1,1 @@
+Artículo 6º—En casos de emergencia nacional los Ministerios del Estado y las Instituciones descentralizadas del Estado podrán emitir nuevas regulaciones que establezcan nuevos trámites, requisitos y procedimientos de conformidad con lo que establece la Ley Nacional de Emergencias.

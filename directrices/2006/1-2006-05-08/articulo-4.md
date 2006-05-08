@@ -1,0 +1,1 @@
+Artículo 4º—Las regulaciones de la naturaleza contemplada en el artículo 361 de la Ley General de Administración Pública que sean emitidos por los Ministerios y las Instituciones Descentralizadas, deberán ajustarse a lo establecido en dicho artículo.
