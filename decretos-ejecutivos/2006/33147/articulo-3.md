@@ -1,0 +1,1 @@
+Artículo 3º—Créase la Secretaría Técnica de Gobierno Digital como órgano adscrito a la Presidencia de la República e instrumento ejecutor, responsable de incrementar la eficiencia y la transparencia en el sector público a través del uso estratégico de las tecnologías digitales con el fin de empoderar a los habitantes en el uso de servicios.

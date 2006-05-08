@@ -1,0 +1,1 @@
+Artículo 6º—Se declaran de interés público las actividades que realice la Secretaría de Gobierno Digital. La Administración Pública e instituciones privadas, dentro de sus posibilidades y el marco legal correspondiente, podrán brindar su ayuda para el mejor logro de los objetivos de esta Comisión.
