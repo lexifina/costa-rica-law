@@ -1,0 +1,8 @@
+Artículo 51.—Activos autorizados. Los fondos de inversión deben invertir sus activos en valores estandarizados autorizados para oferta pública. Solo los fondos de inversión del mercado de dinero, pueden invertir en valores individuales emitidos por las entidades sujetas a la supervisión de la Superintendencia General de Entidades Financieras.
+Así mismo, los fondos de inversión pueden invertir en los valores extranjeros que cuenten con precios diarios para su valoración y que cumplan con las siguientes condiciones:
+a) Valores de deuda emitidos en serie, por emisores soberanos o emisores con garantía soberana, de países que cuenten con una calificación de riesgo de una entidad calificadora reconocida como nacional por la Comisión de Valores de Estados Unidos.
+b) Valores de deuda emitidos en serie por emisores privados que cuenten con una calificación de riesgo de una entidad calificadora reconocida como nacional por la Comisión de Valores de Estados Unidos.
+c) Valores accionarios de emisores privados.
+d) Productos estructurados, de emisores que cuenten con una calificación de riesgo de grado de inversión, por una entidad calificadora reconocida como nacional por la Comisión de Valores de Estados Unidos. Los tipos de notas autorizadas serán las que defina el Superintendente mediante acuerdo.
+e) Fondos extranjeros que cumplan con los mismos requisitos establecidos en el Artículo 95.
+Los valores extranjeros deben estar admitidos a negociación en un mercado organizado extranjero, que se entiende aquel que cuenta con un conjunto de normas y reglamentos que determinan su funcionamiento.

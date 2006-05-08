@@ -1,0 +1,1 @@
+Artículo 19.—Idioma. El prospecto debe presentarse en idioma español. La sociedad puede publicar el prospecto en otros idiomas. Estos prospectos deben respetar el contenido mínimo establecido en Artículo anterior. En todo caso se debe dejar constancia de que la versión en idioma español es el documento oficial del fondo, que prevalece sobre las otras versiones.

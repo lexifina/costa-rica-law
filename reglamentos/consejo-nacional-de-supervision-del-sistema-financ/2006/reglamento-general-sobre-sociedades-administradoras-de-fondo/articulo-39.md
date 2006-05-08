@@ -1,0 +1,6 @@
+CAPÍTULO VIII
+Comisiones y premios
+Artículo 39.—Comisión de administración. Las sociedades administradoras pueden percibir una comisión de administración como remuneración de los servicios de administración que prestan al fondo. El monto máximo de dicha comisión se debe fijar en el prospecto del fondo en función de su activo neto, de sus rendimientos, o de ambas variables.
+La comisión se calcula sobre los saldos diarios y es pagadera con la periodicidad establecida en el prospecto.
+La comisión se aplica con carácter general a todos los inversionistas de una misma serie y su importe exacto, dentro del límite máximo establecido en el prospecto, no puede variarse en plazos inferiores a un mes. El porcentaje de comisión inicial y las sucesivas modificaciones deben hacerse públicas, de conformidad con lo que establezca el Superintendente.
+En el prospecto de los fondos se deben revelar todos los costos que tengan relación directa con el mantenimiento y administración de los activos que formen parte de la cartera del fondo. En el prospecto debe revelarse la política de asignación de costos entre los fondos, cuando estos sean asumidos y distribuidos por la sociedad administradora. Los costos en que incurra el fondo deben ser comunicados al inversionista con el contenido y plazos que defina el Superintendente mediante acuerdo.

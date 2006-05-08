@@ -1,0 +1,2 @@
+Artículo 97.—Responsabilidad de las sociedades administradoras.
+La relación entre la sociedad administradora y la entidad comercializadora se rige por los contratos que suscriban. No obstante, las entidades comercializadoras actúan en nombre, por cuenta y bajo la responsabilidad de la sociedad administradora, para lo cual la sociedad debe verificar que las entidades que contrate cumplan con los requisitos humanos y técnicos que considere necesarios.

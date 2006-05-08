@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Suscripción y reembolso de participaciones
+Artículo 33.—Nuevas suscripciones en fondos cerrados. En los fondos cerrados, la sociedad administradora puede realizar emisiones de certificados de participación, posteriores a la inicial, siempre que se cuente con el acuerdo de la asamblea de inversionistas del fondo. Las emisiones posteriores a la inicial, deben tener una fecha de vencimiento igual a la del fondo. Cada emisión debe colocarse en el plazo máximo de dos años para fondos financieros y tres años para fondos no financieros, de conformidad con lo establecido en el Artículo 17 de este Reglamento.
+En el caso de fondos garantizados, además del acuerdo de la asamblea de inversionistas se debe contar con la aceptación por parte de la entidad financiera garante para aumentar el monto autorizado.

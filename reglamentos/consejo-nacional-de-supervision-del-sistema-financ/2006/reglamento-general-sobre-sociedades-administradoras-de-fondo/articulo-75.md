@@ -1,0 +1,1 @@
+Artículo 75.—Limitaciones en materia de ingresos. No más de un 25% de los ingresos mensuales del fondo puede provenir de una misma persona física o jurídica o de personas pertenecientes al mismo grupo financiero o económico.

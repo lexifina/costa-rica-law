@@ -1,0 +1,1 @@
+Artículo 93.—Condiciones en la venta de los proyectos. La venta de un proyecto a través de un mecanismo que no fue previsto en su addendum, requiere de la autorización de la asamblea de inversionistas.

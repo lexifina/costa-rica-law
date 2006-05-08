@@ -1,0 +1,3 @@
+Artículo 72.—Monto mínimo de la participación. El monto mínimo de la participación para los fondos que solo invierten en bienes inmuebles ubicados en el territorio nacional, es de mil dólares de los Estados Unidos de América o su equivalente en colones costarricenses al tipo de cambio de referencia de compra del Banco Central de Costa Rica.
+En el caso de los fondos que inviertan en bienes inmuebles ubicados fuera del territorio costarricense, el monto mínimo de la participación es de cinco mil dólares de los Estados Unidos de América o su equivalente en colones costarricenses al tipo de cambio de referencia de compra del Banco Central de Costa Rica.
+La cantidad mínima que un inversionista puede adquirir es de una participación.

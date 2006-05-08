@@ -1,0 +1,6 @@
+Artículo 14.—Requisitos de autorización. La autorización para realizar oferta pública de un fondo de inversión o megafondo constituidos bajo la legislación costarricense está sujeta a la presentación de la siguiente documentación:
+a) Solicitud suscrita por el representante legal, de conformidad con el formulario que defina el Superintendente mediante acuerdo.
+b) Certificación notarial del acta de la junta directiva que haya acordado la constitución del fondo o megafondo, de conformidad con el contenido que defina el Superintendente. La junta directiva puede delegar expresamente en el acta a la administración para que defina las características del fondo o megafondo. En este caso debe adjuntarse el documento con el contenido que defina el Superintendente.
+c) Prospecto y resumen del prospecto, de conformidad con lo establecido en los Artículos 18 y 19 de este Reglamento. Este puede ser presentado en borrador.
+d) Código ISIN emitido por la entidad codificadora autorizada, para el caso de fondos cerrados. El código se presenta conforme lo establecido en el Artículo 15 de este Reglamento.
+En el caso de fondos cerrados cuando se suscriban contratos de suscripción en firme, en garantía o a mejor esfuerzo, la sociedad debe cumplir con lo dispuesto en el Reglamento de Oferta Pública.

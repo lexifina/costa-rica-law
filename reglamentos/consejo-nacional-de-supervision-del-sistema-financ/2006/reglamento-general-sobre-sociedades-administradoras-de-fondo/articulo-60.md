@@ -1,0 +1,5 @@
+Artículo 60.—Límites a la suscripción de nuevas participaciones.
+En los prospectos de los fondos de inversión abiertos, se pueden establecer políticas en cuanto a la suspensión para suscribir nuevas participaciones, tanto para nuevos inversionistas como los que ya participan en el fondo.
+En el caso de que no se establezca un límite en este sentido, se debe revelar dicha situación.
+La suspensión de la suscripción de nuevas participaciones no impide la reapertura del fondo una vez que se superen las condiciones establecidas.
+La sociedad administradora debe comunicar a los inversionistas la suspensión de suscripciones de las participaciones y la reapertura del fondo, con no menos de dos días hábiles de antelación, a través de un Comunicado de hechos relevantes.

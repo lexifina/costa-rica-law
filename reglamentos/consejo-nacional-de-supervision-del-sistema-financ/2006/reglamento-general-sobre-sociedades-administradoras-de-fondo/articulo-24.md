@@ -1,0 +1,7 @@
+CAPÍTULO IV
+Comité de inversión
+Artículo 24.—Comité de inversión. La junta directiva debe nombrar un comité de inversión, conformado por un mínimo de tres miembros, al menos uno debe ser independiente de la sociedad administradora y de su grupo económico de conformidad con lo definido en el Artículo 104 de este Reglamento.
+A este comité corresponde definir las directrices generales de inversión del fondo, supervisar la labor del gestor del portafolio, evaluar si las recomendaciones de la unidad de gestión integral de riesgos son acogidas y justificar los casos en que no se implanten. Además, debe velar por el desempeño adecuado del portafolio.
+Los miembros del comité deben contar con experiencia en materia de inversiones, este requisito se comprueba por medio de la presentación de los currículos correspondientes.
+La junta directiva debe aprobar un reglamento para el comité, el cual debe contener como mínimo los deberes, obligaciones, periodicidad de las reuniones, políticas para selección de los miembros del comité, número de miembros, esquema de votación, mecanismos o indicadores de análisis, y la periodicidad y contenido mínimo de los informes que debe presentar el gestor del portafolio. La documentación de los acuerdos del comité deben ser llevados en libros electrónicos de conformidad con los lineamientos que definan el Superintendente por medio de acuerdo.
+El comité debe presentar a la junta directiva un resumen de sus actuaciones, con la periodicidad que esta última defina.
