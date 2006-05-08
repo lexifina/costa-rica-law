@@ -1,0 +1,2 @@
+Artículo 8º—Secretaría Ejecutiva. La Secretaría Ejecutiva estará bajo la coordinación general del Vicepresidente del Consejo Directivo. Fungirá como el órgano principal de apoyo gerencial, técnico y administrativo del Consejo Nacional de Competitividad. Además, ejecutará todas las acciones necesarias para lograr el correcto desempeño de las funciones asignadas a este Consejo.
+La Secretaría contará con el apoyo de un grupo asesor en materia de competitividad que será designado por el Vicepresidente del Consejo Directivo.

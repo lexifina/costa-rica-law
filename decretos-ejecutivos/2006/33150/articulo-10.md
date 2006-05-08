@@ -1,0 +1,2 @@
+Artículo 10.—Interés Público. Se declara de interés público nacional, la Creación de la Comisión Nacional de Competitividad y las funciones y actividades que ésta lleve adelante en materia de competitividad.
+Las dependencias tanto del sector público como privado podrán contribuir con recursos económicos y humanos dentro del marco legal respectivo, sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa labor del Consejo Nacional de la Competitividad.
