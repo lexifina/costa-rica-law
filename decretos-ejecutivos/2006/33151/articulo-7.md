@@ -1,0 +1,7 @@
+Artículo 7º—De los Ministros con cartera
+1) Salvo lo que dispone la Constitución Política respecto del Poder Ejecutivo propiamente dicho, el Ministro será el órgano jerárquico superior del respectivo Ministerio, sin perjuicio de la potestad del Presidente de avocar el conocimiento conjuntamente con aquel, de cualquiera de los asuntos de su competencia.
+2) Corresponderá a los Ministros con cartera, conjuntamente con el Presidente de la República, las atribuciones que señala la Constitución Política y las leyes, así como las de dirigir y coordinar la Administración Pública, tanto central como, en su caso, descentralizadas, del respectivo sector.
+3) Asimismo, corresponderá a ambos las atribuciones señaladas en el artículo 27 de la Ley General de la Administración Pública.
+4) Los Ministros responsables de cada sector dictarán directrices, conjuntamente con el Presidente de la República, en los términos señalados por los artículos 99 y siguientes de la Ley General de la Administración Pública, para que las políticas que fijen conjuntamente del respectivo sector sean ejecutadas y acatadas por las diferentes instituciones centralizadas y descentralizadas que lo integran.
+5) Asimismo, velarán por la coordinación interinstitucional y fiscalizarán que las políticas de su sector sean efectivamente ejecutadas por las instituciones centralizadas y descentralizadas que forman parte de él.
+6) Corresponderá exclusivamente a los Ministros las funciones contempladas en el artículo 28 de la Ley General de la Administración Pública.
