@@ -1,0 +1,1 @@
+Artículo 9º—El Archivo Central y los Archivos de Gestión deberán observar las medidas de preservación y seguridad de los documentos e instalaciones, establecidas en el artículo 71 del Reglamento a la Ley 7202.

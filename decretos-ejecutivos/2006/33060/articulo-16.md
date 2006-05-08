@@ -1,0 +1,1 @@
+Artículo 16.—El acceso a la información contenida en los documentos custodiados por el Archivo Central, sólo podrá darse dentro de las instalaciones del Archivo Central, y será regulado por los manuales y procedimientos establecidos por la UAI.

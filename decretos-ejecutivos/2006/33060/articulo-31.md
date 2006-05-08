@@ -1,0 +1,1 @@
+Artículo 31.—Los usuarios del servicio serán responsables de los daños o pérdidas ocasionados a los documentos o materiales proporcionados para su consulta, asumiendo el costo de la reparación y las sanciones penales según corresponda.

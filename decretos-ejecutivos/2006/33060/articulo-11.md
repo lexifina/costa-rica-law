@@ -1,0 +1,1 @@
+Artículo 11.—Los archivos de gestión deberán contar con el material, el espacio, equipo y mobiliario suficiente, que permitan una adecuada conservación, integridad y contenido informativo de los documentos.

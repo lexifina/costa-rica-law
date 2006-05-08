@@ -1,0 +1,1 @@
+Artículo 37.—El proceso de selección y eliminación, será regulado por el Comité Institucional de Selección y Eliminación de Documentos, en coordinación con el Archivo Central y los Archivos de Gestión.

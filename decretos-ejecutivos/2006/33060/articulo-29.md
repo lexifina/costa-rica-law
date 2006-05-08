@@ -1,0 +1,1 @@
+Artículo 29.—Los expedientes personales en custodia del Archivo Central de los funcionarios inactivos son de carácter restringido, por consiguiente se prestarán únicamente al interesado, a la Unidad de Recursos Humanos, a la Asesoría Jurídica y a las autoridades judiciales que lo soliciten.

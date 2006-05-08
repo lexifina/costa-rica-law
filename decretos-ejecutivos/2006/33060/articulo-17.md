@@ -1,0 +1,1 @@
+Artículo 17.—El préstamo de documentos se realizará a los funcionarios del MEIC, y los particulares pero no podrán salir de la institución, salvo regulación específica reglamentaria y en los casos de exposición o requerimiento por los Tribunales de Justicia, de la Contraloría General de la República u otras instancias administrativas facultadas por ley.

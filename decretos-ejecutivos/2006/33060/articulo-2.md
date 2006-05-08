@@ -1,0 +1,13 @@
+Artículo 2º—Este Reglamento deberá ser interpretado de acuerdo con las siguientes definiciones:
+a. Archivo Central: Unidad administrativa que reúne, conserva, organiza y selecciona los documentos producidos por los archivos de gestión del MEIC, da las directrices a los archivos de gestión, fortalece el Sistema Institucional de Archivos y el vínculo con el sistema Nacional de Archivos. Forma parte del Sistema Nacional de Archivos. Da los lineamientos generales sobre el funcionamiento del Sistema Institucional de Archivos.
+b. Archivo de Gestión: Aquellos que custodian los documentos desde su producción hasta que finaliza el trámite que les dio origen. Son utilizados y conservados en las secretarías u oficinas, por un período determinado.
+c. Comité Institucional de Selección y Eliminación de Documentos:
+Órgano interno encargado de analizar y determinar la vigencia legal y administrativa de los documentos, y someter a consideración de la Comisión Nacional, la aprobación y modificación de las Tablas de Plazos, así como los documentos a eliminar contemplados en las Tablas de Plazos.
+d. Documento: Cualquier testimonio material escrito, gráfico, los escritos, los impresos, materiales legibles por máquina, y en generaltodo objeto mueble que tenga carácter representativo o declarativo que ha sido producido o recibido por el MEIC, y que se custodia con una finalidad administrativa, jurídica, o científica cultural.
+e. Expediente administrativo concluido: Aquel que custodia el Archivo Central y que concentra toda la información original debidamente foliada, relativa a un trámite para resolver cualquier petición.
+f. Fondo documental: Toda la documentación producida o recibida por el MEIC en función de todas las actividades que ejecuta.
+g. MEIC: Ministerio de Economía, Industria y Comercio.
+h. Tabla de plazos de conservación de documentos: Instrumento en el que constan todos los tipos documentales producidos o recibidos en cada una de las oficinas del MEIC, en el cual se anotan todas las características y se fija el valor administrativo, legal y científico cultural. Deberán ser sometidas a revisión cada cinco años, para determinar la validez de los criterios originales utilizados.
+i. Tipo documental: La forma en que se encuentra expuesta la información en el soporte, responde a funciones, actividades e incluso a la legislación de una institución o de un país (cheques, presupuestos, memorando, informes, correspondencia).
+j. UAI: Unidad Asesora de Información.
+k. Usuarios: Entiéndase como usuarios a todo funcionario del MEIC, funcionarios de otras instituciones públicas o privadas y público en general.
