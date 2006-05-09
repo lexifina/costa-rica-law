@@ -1,0 +1,4 @@
+Artículo 40.—Requisitos que deben presentarse en caso de fusiones y escisiones. Aquellas entidades que con emisiones de oferta pública inscritas en el RNVI realicen un proceso de fusión o escisión, una vez tomados los acuerdos por las sociedades, deberán presentar ante esta Superintendencia lo siguiente:
+a) Certificación notarial o registral del acuerdo de fusión o escisión aprobado por la asamblea extraordinaria de accionistas correspondiente. En caso de que se cree una nueva sociedad presentar certificación notarial o registral de la escritura social de la entidad prevaleciente, debidamente inscrita en el Registro Mercantil.
+b) Documentación requerida para la modificación de emisiones según lo establecido en este Reglamento.
+En todos los casos, los procesos de fusión deberán regirse por lo estipulado en Capítulo X del Título I del Libro Primero del Código de Comercio y considerar lo establecido en el Artículo 110 de este Reglamento.

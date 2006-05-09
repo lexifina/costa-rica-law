@@ -1,0 +1,5 @@
+Artículo 38.—Requisitos para la inscripción de modificaciones de emisiones de acciones y aumentos de capital para mercado primario. La autorización de modificaciones de emisiones de acciones y aumentos de capital para mercado primario requerirá que se cumpla con las condiciones señaladas en los Artículos 9 y 11 de este Reglamento y adicionalmente con lo siguiente:
+a) Documentación requerida en el inciso a. del Artículo 35 de este Reglamento. El requerimiento sobre la calificación de riesgo aplica para las emisiones de acciones preferentes que califican como pasivo.
+b) Certificación notarial del acta de asamblea extraordinaria de accionistas en la cual se acordó la modificación, con la indicación expresa de la decisión, el quorum, el monto del aumento del capital social. En el caso de modificación de emisiones de acciones preferentes, se deberá remitir adicionalmente la certificación notarial del acta de la asamblea especial de socios.
+c) En caso de modificación de acciones preferentes, certificación notarial del acta de la asamblea especial de socios.
+d) En caso de recompra rige lo establecido en los incisos b. y c. del Artículo 36 de este Reglamento.

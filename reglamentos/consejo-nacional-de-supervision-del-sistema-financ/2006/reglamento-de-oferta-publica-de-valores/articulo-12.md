@@ -1,0 +1,1 @@
+Artículo 12.—Prohibición de limitaciones a la transmisibilidad de los valores. En las emisiones de valores de oferta pública, no podrán acordarse limitaciones o restricciones en el régimen de transmisión de los valores que dificulten o impidan su transmisión impersonal excepto en el caso de la oferta pública restringida.

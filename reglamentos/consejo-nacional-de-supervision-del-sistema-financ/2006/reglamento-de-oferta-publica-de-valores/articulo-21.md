@@ -1,0 +1,1 @@
+Artículo 21.—Actualización de la información contenida en el prospecto. El emisor será responsable de mantener la información suministrada en el prospecto actualizada mediante Comunicados de Hechos Relevantes. La información que se actualiza en forma anual se presentará mediante un formulario conforme las disposiciones que emita el Superintendente por acuerdo de alcance general.

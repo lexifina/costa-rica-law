@@ -1,0 +1,1 @@
+Artículo 49.—Deberes de comunicación. Los emisores y los colocadores deberán remitir a la Superintendencia y estos últimos también a la bolsa de valores, un informe sobre las colocaciones realizadas, con el contenido y la periodicidad que determine el Superintendente.

@@ -1,0 +1,1 @@
+Artículo 101.—Distribución y prorrateo. Cuando el número total de valores comprendidos en las declaraciones de aceptación supere el límite máximo de la oferta, a cada aceptación se adjudicará un número de valores que represente el porcentaje fijado como límite máximo para esa aceptación en particular.

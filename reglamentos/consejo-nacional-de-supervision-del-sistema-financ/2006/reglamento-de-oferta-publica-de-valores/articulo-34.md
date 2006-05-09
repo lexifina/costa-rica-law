@@ -1,0 +1,3 @@
+SECCIÓN IV
+Modificación de emisiones
+Artículo 34.—Condiciones para la modificación de emisiones. Las características de las emisiones de valores únicamente podrán modificarse conforme las disposiciones establecidas en esta Sección. Se exceptúan de dichas disposiciones las emisiones provenientes de productos estructurados señalados en el Artículo 71 que por su naturaleza se regirán por lo dispuesto en el prospecto de la emisión. La modificación de emisiones de acciones se regirá por lo establecido en los Artículos 37,38y39de este Reglamento. En todo caso las emisiones que se modifiquen deberán respetar los lineamientos establecidos en el Artículo 9 y 11 de este Reglamento.

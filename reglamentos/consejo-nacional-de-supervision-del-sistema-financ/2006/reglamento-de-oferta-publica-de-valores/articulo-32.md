@@ -1,0 +1,5 @@
+Artículo 32.—Requisitos para el registro de emisiones de instituciones públicas no bancarias costarricenses. Las emisiones de entidades públicas no bancarias costarricenses que demuestren que cuentan con la garantía solidaria del Estado deberán presentar los requisitos establecidos en el Artículo anterior. En caso contrario deberán cumplir con los siguientes requisitos:
+a) Documentación requerida en el Artículo 18 de este reglamento excepto lo dispuesto en el inciso c.
+b) Información financiera de acuerdo con lo dispuesto en el Artículo 23. En este caso no se requerirá cumplir con las disposiciones del Reglamento de auditores extemos y medidas de gobierno corporativo aplicable a los sujetos fiscalizados por SUGEVAL, SUGEF y SUPEN.
+c) Documentación legal y de orden administrativo requerida en el Artículo 24 excepto lo dispuesto en el inciso a.
+d) Documentación donde conste la autorización de la emisión por parte de las autoridades competentes, según lo establezcan sus leyes de creación u otras normativas aplicables. Esta documentación deberá presentarse mediante certificación de notario público.

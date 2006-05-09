@@ -1,0 +1,5 @@
+Artículo 6°—Supuestos de Oferta Pública de Valores. Se presumirá Oferta Pública de Valores:
+a) El ofrecimiento de valores que se realice en medios de comunicación colectiva, tales como prensa, radio, televisión e intemet o cualquier otro procedimiento de divulgación.
+b) El ofrecimiento por parte de un emisor de valores accionarios de una misma emisión o de características análogas a otros valores de oferta pública del mismo emisor.
+c) El ofrecimiento de valores emitidos en forma estandarizada de conformidad con lo establecido en el Capítulo I del Título II de este Reglamento, independientemente del medio utilizado.
+d) El ofrecimiento o colocación de los valores de una emisión entre un número mayor de cincuenta inversionistas que no formen parte del grupo de interés económico del emisor, de conformidad con la definición contenida en la regulación correspondiente de la Superintendencia General de Entidades Financieras (SUGEF), independientemente del porcentaje que representen de la emisión.
