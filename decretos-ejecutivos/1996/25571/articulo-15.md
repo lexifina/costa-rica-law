@@ -1,1 +1,0 @@
-Artículo 15.—La Junta gozará de independencia técnica en sus funciones, sin embargo, sus acuerdos podrán ser apelables ante el Ministro conforme a los procedimientos señalados en los artículos del 52 al 55 de la Ley Orgánica del Ministerio.

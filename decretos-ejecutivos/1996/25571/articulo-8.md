@@ -1,2 +1,0 @@
-Artículo 8°—La Junta sesionará en la Sede Central del Ministerio ordinariamente una vez por semana y en forma extraordinaria cuantas veces sea necesario. El día y hora de sus sesiones ordinarias será fijado por acuerdo de la Junta.
-La asistencia a sesiones será remunerada mediante dietas que en monto y cantidad fije la Ley del Presupuesto Nacional. Las sesiones extraordinarias no se remunerarán cuando excedan de cuatro al mes.

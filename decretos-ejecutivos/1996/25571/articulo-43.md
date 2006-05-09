@@ -1,1 +1,0 @@
-Artículo 43.—Se podrá proceder al decomiso de toda la mercadería que contenga estupefacientes, sicotrópicos, sustancias precursoras y disolventes, que hayan sido importados sin el permiso previo de la Junta y toda aquella que no se ajuste a lo estipulado en el certificado correspondiente o a lo dispuesto en este Reglamento.

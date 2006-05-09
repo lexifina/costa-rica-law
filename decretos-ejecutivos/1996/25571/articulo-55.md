@@ -1,1 +1,0 @@
-Artículo 55.—Será responsabilidad de la Junta revisar, analizar y presentar ante la Junta Internacional de Fiscalización de Estupefacientes, con sede en Ginebra, Suiza (J.I.F.E.) y ante cualquier otro organismo con que el Gobierno esté comprometido, la información a que se refiere el artículo anterior.

@@ -1,1 +1,0 @@
-Artículo 16.—Los Poderes del Estado, las instituciones autónomas o semiautónomas, así como las municipalidades, estarán obligadas, conforme a la ley, a prestar oportuna y eficaz colaboración a la Junta y a los Inspectores del Departamento para el mejor cumplimiento de sus funciones, así como dar toda clase de facilidades para ayudar a las campañas y programas de la Junta.

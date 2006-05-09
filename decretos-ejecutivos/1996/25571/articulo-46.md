@@ -1,1 +1,0 @@
-Artículo 46.—Los funcionarios del Ministerio, debidamente identificados y autorizados para este fin, realizarán inspecciones a establecimientos farmacéuticos, industriales, comerciales y de depósito a fin de llevar a cabo el efectivo control de los estupefacientes, sicotrópicos, sustancias precursoras y disolventes.

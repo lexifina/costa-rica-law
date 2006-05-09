@@ -1,1 +1,0 @@
-Artículo 47.—Durante las inspecciones, los funcionarios del Ministerio autorizados podrán tomar las muestras requeridas y verificar las condiciones de la producción, tráfico, tenencia, almacenamiento y suministro de medicamentos estupefacientes, sicotrópicos, productos químicos precursores y disolventes.

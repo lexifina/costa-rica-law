@@ -1,1 +1,0 @@
-Artículo 41.—La exportación de estupefacientes, sicotrópicos, sustancias precursoras y disolventes, será fiscalizada por la Junta, mediante el Departamento, verificando las salidas de los productos. Adicionalmente, se realizara controles cruzados con los países importadores.
