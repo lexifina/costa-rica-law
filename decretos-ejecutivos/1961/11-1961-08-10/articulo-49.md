@@ -1,1 +1,0 @@
-Artículo 49.—Para que ese título sea admisible, es preciso presentar el programa de estudios de la Escuela de que procede; ésta debe ser reconocida oficialmente por el Gobierno del país respectivo. Tales documentos deben estar debidamente autenticados conforme a la Ley.

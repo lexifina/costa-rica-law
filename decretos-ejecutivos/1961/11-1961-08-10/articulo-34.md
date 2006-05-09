@@ -1,1 +1,0 @@
-Artículo 34. — En caso de fraude comprobado, que haga variar el resultado de una elección, deberá convocarse a Asamblea General Extraordinaria, llenando los requisitos que la ley indica en el Capítulo IV, artículo 7° y ésta podrá anular la elección parcial o totalmente por mayoría de votos.

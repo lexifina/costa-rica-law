@@ -1,1 +1,0 @@
-Artículo 28, — Al ingresar al recinto de votación, cada votante recibirá cuatro papeletas de distinto color e igual tamaño, con indicación del cargo a elegir impreso con un espacio en blanco donde la votante consignará libremente el nombre de la candidata inscrita específicamente para ese puesto.

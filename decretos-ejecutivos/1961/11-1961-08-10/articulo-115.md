@@ -1,1 +1,0 @@
-Artículo 115. —Todas las Colegiadas gozarán de los beneficios de un sistema de préstamos v ahorros cuyas disposiciones sobre plazo, tasa y amortización, serán debidamente reguladas en reglamento aparte.

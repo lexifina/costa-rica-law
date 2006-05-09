@@ -1,2 +1,0 @@
-Artículo 105.—Las personas que hayan aprobado los Cursos de Enfermería Médico-Quirúrgico, Enfermería Materno Infantil y Enfermería Salud Comunitaria en la Escuela de Enfermería de la Universidad de Costa Rica, se les otorgará la licencia de Auxiliar de Enfermería igualándolas así a quienes hayan realizado el Curso Oficial.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 6863 del 10 de marzo de 1977)

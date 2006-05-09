@@ -1,1 +1,0 @@
-Artículo 119.—Para su validez, la reforma o reformas, deberán ser ‘iyjrobadas por la Asamblea General por dos tercios de votos presentes, en sesión a que concurran por lo menos setenta y cinco miembros del Colegio.

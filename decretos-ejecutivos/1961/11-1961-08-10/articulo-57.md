@@ -1,3 +1,0 @@
-Artículo 57. — Los derechos de incorporación para los casos no contemplados en el artículo anterior, serán de ¢300.00 (trescientos colones) que engrosarán los fondos del Colegio.
-Transitorio. — Los derechos de exámenes para las Enfermeras Graduadas en los Hospitales Max Peralta de Cartago y Clínica Bíblica de San José que presenten ,su examen de acuerdo con el Transitorio I de la ley N° 2343 del 4 de mayo de 1959, serán de trescientos colones . El recibo se agregará a la nota de petición de “examen.
-De los trescientos colones se distribuirán cien colones, como honorarios a las examinadoras, quienes recibirán veinte colones cada una; el resto, para cubrir los gastos y para engrosar los fondos del Colegio.

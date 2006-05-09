@@ -1,2 +1,0 @@
-Artículo 5°—La .Asamblea General designará a las personas que integrarán los Tribunales Examinador y de Moral Profesional, de acuerdo con el artículo 7°, inciso f) y artículo 8° del Capítulo IV de la Ley Orgánica del Colegio. Durarán dos años en sus funciones, no pudiendo ser reelectas para períodos sucesivos.
-La elección parcial de los miembros se llevará a cabo el segundo jueves del mes de julio, en la forma que este reglamento indica.

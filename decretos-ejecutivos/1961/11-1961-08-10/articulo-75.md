@@ -1,1 +1,0 @@
-Artículo 75.—La Enfermera evitará con sus actos, gestos y palabras todo lo que pueda obrar desfavorablemente en el ánimo del enfermo o de su familia; pero si la. enfermedad fuere grave o tuviere complicación o desenlace fatal, debe comunicarlo oportunamente al Médico o en su ausencia, al pariente más cercano.

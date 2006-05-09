@@ -1,1 +1,0 @@
-Artículo 83. — Los honorarios en la práctica privada de la enfermería y la obstetricia, variarán según las horas de trabajo, la naturaleza de la enfermedad, el tiempo para el cual sean contratados sus servicios, y, de acuerdo con las posibilidades económicas del paciente o sus familiares.

@@ -1,1 +1,0 @@
-Artículo 25.—La Directiva dará a cada fiscal una tarjeta de identificación con su nombre y el de la Institución o Instituciones que representa; cada fiscal podrá tener hasta dos suplentes para que pueda alternarse en sus funciones el día de la elección.

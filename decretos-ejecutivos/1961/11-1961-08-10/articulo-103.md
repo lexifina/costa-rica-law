@@ -1,1 +1,0 @@
-Artículo 103.—El uniforme oficial para los Auxiliares de Enfermería (mujeres y varones) será el establecido por la Dirección General de Asistencia Médico Social, y el Ministerio de Salubridad Pública.

@@ -1,1 +1,0 @@
-Artículo 80. — Sin la previa autorización del Ministerio de Salubridad Pública y la Dirección General de Asistencia Médico-Social, las enfermeras Obstétricas graduadas, no podrán establecer clínicas particulares o privadas.

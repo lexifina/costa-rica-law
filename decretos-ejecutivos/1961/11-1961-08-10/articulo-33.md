@@ -1,1 +1,0 @@
-Artículo 33. — Después de darse el resultado de las elecciones, las Colegiadas tendrán derecho a revisar las papeletas cuando lo crean conveniente, siempre que sea dentro del tiempo comprendido entre los cinco días hábiles siguientes a la elección.

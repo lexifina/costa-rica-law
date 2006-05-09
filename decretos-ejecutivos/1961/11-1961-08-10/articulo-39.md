@@ -1,2 +1,0 @@
-Artículo 39.—Para imponer cualquier corrección, la Presidenta por sí o por medio de uno de los miembros de la Directiva, levantará la información del caso y hechas las averiguaciones se oirá, dentro de un plazo de ocho días, a la interesada. Este término podrá aumentarse cuando fuere necesario a juicio de la Junta Directiva.
-Necesariamente deberá oírse el informe y consideraciones que haga la Fiscal, haciendo las recomendaciones que estime pertinentes para el pronunciamiento de la Junta Directiva.

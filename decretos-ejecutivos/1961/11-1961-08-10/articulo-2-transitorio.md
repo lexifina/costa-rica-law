@@ -1,2 +1,0 @@
-Transitorio II.—Cuando el Colegio de Enfermeras de Costa Rica, obtenga sus fondos propios, previo acuerdo de la Junta Directiva, devolverá a la A.N.E.O. (Asociación Nacional de Enfermeras y Obstétricas) de Costa Rica, el préstamo hecho de $ 2,569.40 (dos mil quinientos sesenta y nueve colones con cuarenta céntimos), al iniciar el Colegio su organización y funcionamiento.
-Dado en la Casa Presidencial.—San José, a los diez días del mes de agosto de mil novecientos sesenta y uno.

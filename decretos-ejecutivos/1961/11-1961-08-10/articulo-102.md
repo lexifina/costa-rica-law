@@ -1,1 +1,0 @@
-Artículo 102.—La Licencia de Auxiliar deberá renovarse cada dos años y la interesada pagará la primera vez ¢ 25.00 (veinticinco colones) por ella y ¢ 5.00 (cinco colones) al renovarla cada dos años, previa constancia del servicio de enfermería.

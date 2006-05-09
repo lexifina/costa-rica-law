@@ -1,1 +1,0 @@
-Artículo 100. — Toda persona que desee trabajar como Auxiliar de Enfermería. deberá tener el Curso Oficial de Capacitación, atendiendo los requisitos del artículo anterior. Será reconocido el Curso Oficial de capacitación establecido por la Dirección General de Asistencia Médico Social del Ministerio de Salubridad Pública, cuyos programas hayan sido aprobados por este Colegio.

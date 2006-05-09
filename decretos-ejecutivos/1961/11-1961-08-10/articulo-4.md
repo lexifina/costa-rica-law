@@ -1,2 +1,0 @@
-Artículo 4°—El Colegio ejercerá sus funciones a través cíe los organismos representativos, constituidos por la -Asamblea General, Junta Directiva, Tribunal Examinador, Tribunal de Moral Profesional, Comités Especiales y Delegaciones.
-La Asamblea General se reunirá ordinariamente el tercer jueves del mes de julio para conocer los informes de la Secretaria y Tesorera; aprobar el presupuesto del año siguiente y hacer las recomendaciones necesarias para el mejor, ejercicio de la profesión.
