@@ -1,0 +1,1 @@
+Artículo 7°—El contrato que dispone el artículo anterior no podrá ser menor a un mes ni mayor a seis meses, sin perjuicio de su renovación fundamentada en un nuevo estudio técnico. Además dicho contrato estipulará el compromiso del funcionario de permanecer disponible de manera continua en horas y días inhábiles a servicio de la institución.
