@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad de Belén,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-18 | la propia norma |
+| 2 | 2006-05-09 | Reglamento municipal 27 (2006-05-09) |
