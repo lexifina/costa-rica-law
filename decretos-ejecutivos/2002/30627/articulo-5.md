@@ -1,2 +1,0 @@
-Artículo 5º—Las subcomisiones deberán presentar al Consejo Nacional de Competitividad la agenda de trabajo, el cronograma y las prioridades.
-Cada subcomisión tendrá un coordinador de parte del sector público y otro del sector productivo, designados por el Consejo. El jerarca de la institución pública que le corresponda la coordinación de la subcomisión deberá nombrar una Secretaría Técnica que brinde todo el apoyo técnico a las comisiones.

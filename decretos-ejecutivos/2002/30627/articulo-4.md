@@ -1,1 +1,0 @@
-Artículo 4º—La Secretaría Técnica del Consejo Nacional de Competitividad será el Ministerio de Economía, Industria y Comercio. La Secretaría Técnica deberá convocar las sesiones del Consejo, llevar las actas, darle seguimiento a los acuerdos y brindarle todo el apoyo técnico que el Consejo requiera; monitorear las subcomisiones y otros programas.
