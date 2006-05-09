@@ -1,1 +1,0 @@
-Artículo 3º—El control del servicio de notariado, estará a cargo del Departamento de Créditos. A tal efecto, contará con la asesoría del Departamento Legal y se llevarán los registros que sean necesarios.

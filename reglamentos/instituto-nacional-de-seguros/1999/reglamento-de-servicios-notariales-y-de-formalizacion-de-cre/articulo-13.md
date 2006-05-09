@@ -1,1 +1,0 @@
-Artículo 13.—Los Notarios serán responsables de cualquier pérdida o perjuicio para la Institución que se origine en la falta de presentación oportuna de una escritura o porque la misma contenga errores o defectos atribuibles al Notario que no hubieran sido advertidos o subsanados por él.
