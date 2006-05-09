@@ -14,3 +14,4 @@ Reglamento para uso de Teléfonos Celulares y Beepers Propiedad de la Municipali
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-03-07 | la propia norma |
+| 2 | 2006-05-09 | Reglamento municipal 2 (2006-05-09) |
