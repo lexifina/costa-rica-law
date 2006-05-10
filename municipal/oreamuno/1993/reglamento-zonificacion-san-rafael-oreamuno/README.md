@@ -15,3 +15,4 @@ Reglamento Zonificación San Rafael Oreamuno
 | --- | --- | --- |
 | 1 | 1993-09-20 | la propia norma |
 | 2 | 1999-09-01 | Reglamento municipal 0 (1999-09-01) |
+| 3 | 2006-05-10 | SINALEVI (sin norma nombrada) |
