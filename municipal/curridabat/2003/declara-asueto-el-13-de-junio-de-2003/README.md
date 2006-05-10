@@ -14,3 +14,4 @@ Declara Asueto el 13 de junio de 2003.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-12 | la propia norma |
+| 2 | 2006-05-10 | SINALEVI (sin norma nombrada) |

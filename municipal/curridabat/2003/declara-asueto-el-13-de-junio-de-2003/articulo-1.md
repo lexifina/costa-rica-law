@@ -1,1 +1,1 @@
-El Concejo de Curridabat, avisa que mediante artículo único, capítulo 5°, del acta de la sesión ordinaria Nº 58-2003, celebrada por el Concejo de Curridabat el 5 de junio del 2003, se acordó, declarar asueto el día 13 de junio del 2003 para todo el personal de la Municipalidad y de aquellas instituciones públicas establecidas en el cantón de Curridabat, que deseen acogerse a la presente disposición. Lo anterior, en virtud de las celebraciones del día del Santo Patrono.
+Texto de artículo no encontrado
