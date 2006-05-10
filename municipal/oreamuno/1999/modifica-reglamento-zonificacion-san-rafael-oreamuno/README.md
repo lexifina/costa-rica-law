@@ -14,3 +14,4 @@ Modifica Reglamento Zonificación San Rafael Oreamuno
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-09-13 | la propia norma |
+| 2 | 2006-05-10 | SINALEVI (sin norma nombrada) |
