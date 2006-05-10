@@ -1,0 +1,15 @@
+Artículo 2º—Instrumentos internacionales aplicables.
+*1. Para los propósitos de esta Convención, se entiende por "delito" aquellos establecidos en los instrumentos internacionales que se indican a continuación:
+a. Convenio para la represión del apoderamiento ilícito de aeronaves, firmado en La Haya el 16 de diciembre de 1970.
+b. Convenio para la represión de actos ilícitos contra la seguridad de la aviación civil, firmado en Montreal el 23 de setiembre de 1971.
+c. Convención sobre la prevención y el castigo de delitos contra personas internacionalmente protegidas, inclusive los agentes diplomáticos, aprobada por la Asamblea General de las Naciones Unidas el 14 de diciembre de 1973.
+d. Convención Internacional contra la toma de rehenes, aprobada por la Asamblea General de las Naciones Unidas el 17 de diciembre de 1979.
+e. Convenio sobre la protección física de los materiales nucleares, firmado en Viena el 3 de marzo de 1980.
+f. Protocolo para la represión de actos ilícitos de violencia en los aeropuertos que prestan servicios a la aviación civil internacional, complementario del Convenio para la represión de actos ilícitos contra la seguridad de la aviación civil, firmado en Montreal el 24 de febrero de 1988.
+g. Convenio para la represión de actos ilícitos contra la seguridad de la navegación marítima, hecho en Roma el 10 de marzo de 1988.
+h. Protocolo para la represión de actos ilícitos contra la seguridad de las plataformas fijas emplazadas en la plataforma continental, hecho en Roma el 10 de marzo de 1988.
+i. Convenio Internacional para la represión de los atentados terroristas cometidos con bombas, aprobado por la Asamblea General de las Naciones Unidas el 15 de diciembre de 1997.
+j. Convenio Internacional para la represión de la financiación del terrorismo, aprobado por la Asamblea General de las Naciones Unidas el 9 de diciembre de 1999.
+(Nota de Sinalevi: Mediante el artículo 2° del Tratado Internacional "Aprueba la Convención Interamericana Contra el Terrorismo", N° 8446 del 24 de mayo del 2005 el Gobierno de Costa Rica interpretó lo siguiente: "...los mecanismos y procedimientos establecidos en esta Convención para los supuestos del inciso 1 del artículo 2, serán aplicables en tanto cada uno de los actos descritos en las convenciones relacionadas esté tipificado como delito en la legislación penal costarricense.")
+2. Al depositar su instrumento de ratificación a la presente Convención, el Estado que no sea parte de uno o más de los instrumentos internacionales enumerados en el párrafo 1 de este artículo podrá declarar que, en la aplicación de esta Convención a ese Estado parte, ese instrumento no se considerará incluido en el referido párrafo. La declaración cesará en sus efectos cuando dicho instrumento entre en vigor para ese Estado Parte, el cual notificará al depositario de este hecho.
+3. Cuando un Estado parte deje de ser parte de uno de los instrumentos internacionales enumerados en el párrafo 1 de este artículo, podrá hacer una declaración con respecto a ese instrumento, tal como se dispone en el párrafo 2 de este artículo.

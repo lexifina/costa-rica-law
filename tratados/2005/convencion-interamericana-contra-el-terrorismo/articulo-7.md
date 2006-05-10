@@ -1,0 +1,4 @@
+Artículo 7º—Cooperación en el ámbito fronterizo
+1. Los Estados Parte, de conformidad con sus respectivos regímenes jurídicos y administrativos internos, promoverán la cooperación y el intercambio de información con el objeto de mejorar las medidas de control fronterizo y aduanero para detectar y prevenir la circulación internacional de terroristas y el tráfico de armas u otros materiales destinados a apoyar actividades terroristas.
+2. En este sentido, promoverán la cooperación y el intercambio de información para mejorar sus controles de emisión de los documentos de viaje e identidad y evitar su falsificación, alteración ilegal o utilización fraudulenta.
+3. Dichas medidas se llevarán a cabo sin perjuicio de los compromisos internacionales aplicables al libre movimiento de personas y a la facilitación del comercio.

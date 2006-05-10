@@ -1,0 +1,3 @@
+Artículo 5º—Embargo y decomiso de fondos u otros bienes
+1. Cada Estado Parte, de conformidad con los procedimientos establecidos en su legislación interna, adoptará las medidas necesarias para identificar, congelar, embargar y, en su caso, proceder al decomiso de los fondos u otros bienes que constituyan el producto de la comisión o tengan como propósito financiar o hayan facilitado o financiado la comisión de cualquiera de los delitos establecidos en los instrumentos internacionales enumerados en el artículo 2 de esta Convención.
+2. Las medidas a que se refiere el párrafo 1 serán aplicables respecto de los delitos cometidos tanto dentro como fuera de la jurisdicción del Estado Parte.

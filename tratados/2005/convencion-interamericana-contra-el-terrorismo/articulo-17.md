@@ -1,0 +1,1 @@
+Artículo 17.—Cooperación a través de la Organización de los Estados Americanos. Los Estados Parte propiciarán la más amplia cooperación en el ámbito de los órganos pertinentes de la Organización de los Estados Americanos, incluido el Comité Interamericano contra el Terrorismo (CICTE), en materias relacionadas con el objeto y los fines de esta Convención.
