@@ -1,0 +1,1 @@
+Artículo 14.—Por cada sesión celebrada por la Junta Directiva, se confeccionará un acta, que deberá entregarse a cada miembro de Junta Directiva por lo menos veinticuatro horas antes de la celebración de la sesión en que debe aprobarse.

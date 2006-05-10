@@ -1,0 +1,1 @@
+Artículo 25.—La Dirección General es el órgano ejecutor de la Dirección Superior y en consecuencia le corresponde planificar, organizar, coordinar, ejecutar, controlar y evaluar todas las acciones relacionadas con el Instituto.

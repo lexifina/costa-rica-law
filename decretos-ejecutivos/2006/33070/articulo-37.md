@@ -1,0 +1,1 @@
+Artículo 37.—El Coordinador del Área de Apoyo Institucional deberá poseer Licenciatura en Ciencias Económicas y/o Administrativas, preferiblemente con experiencia en el campo de la Comunicación Colectiva, debidamente incorporado al Colegio Profesional respectivo.

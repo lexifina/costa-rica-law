@@ -1,0 +1,1 @@
+Artículo 34.—Le corresponde al Auditor, entre otras funciones, fiscalizar las operaciones económicas, administrativas operativas, mediante la evaluación sistemática de la estructura de control interno implementada por la administración, para lo cual revisará los sistemas, procedimientos, registros, así como el manejo de los fondos y bienes del Instituto.

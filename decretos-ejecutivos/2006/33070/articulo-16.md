@@ -1,0 +1,3 @@
+Artículo 16.—La convocatoria para sesión extraordinaria, cuando ésta no sea dispuesta en sesión ordinaria, deberá hacerse a todos los miembros por cualquier medio idóneo y deberá acompañarse copia del orden del día, salvo casos de urgencia. Entre la comunicación y la sesión deberán mediar veinticuatro horas cuando menos. Tanto a las sesiones ordinarias como extraordinarias concurrirá el Director General con voz pero sin voto, excepto cuando un directivo solicite sesionar sin él.
+Tanto los miembros de la Junta Directiva como el Director General, tendrán derecho a hacer que se les consigne en el acta sus opiniones, y los directivos las razones que hayan expuesto en apoyo a sus votos.
+Las actas serán firmadas por el Presidente y el Secretario de la Junta Directiva.

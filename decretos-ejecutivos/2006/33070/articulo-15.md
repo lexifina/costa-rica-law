@@ -1,0 +1,1 @@
+Artículo 15.—Los acuerdos se tomarán por mayoría absoluta de los miembros asistentes. Si hubiere empate, el asunto será decidido mediante el voto privilegiado del Presidente. Este procedimiento opera también cuando se trate de una votación secreta, cuando así lo disponga la Junta Directiva, por mayoría absoluta.

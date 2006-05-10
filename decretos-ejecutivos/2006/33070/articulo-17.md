@@ -1,0 +1,1 @@
+Artículo 17.—El Presidente determinará el orden en que hayan de tratarse los asuntos y dirigirá los debates y votaciones. Los acuerdos que tome la Junta Directiva quedarán firmes al aprobarse el acta respectiva, sin embargo, serán firmes los acuerdos de nombramientos y los que determine la Junta Directiva por mayoría absoluta.
