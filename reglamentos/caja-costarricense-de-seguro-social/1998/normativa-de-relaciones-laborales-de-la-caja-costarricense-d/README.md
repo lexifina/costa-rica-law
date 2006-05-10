@@ -14,3 +14,4 @@ Normativa de Relaciones Laborales de la Caja Costarricense de Seguro Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-16 | la propia norma |
+| 2 | 2006-05-10 | SINALEVI (sin norma nombrada) |
