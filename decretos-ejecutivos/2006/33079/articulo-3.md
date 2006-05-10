@@ -1,0 +1,1 @@
+Artículo 3º—Instrumento oficial de gobierno. Se reconoce al Sistema de Información de la Población Objetivo (SIPO) como el instrumento oficial del Estado Costarricense para el registro, y como referente para la selección de los potenciales beneficiarios de programas y servicios sociales que se ejecutan con recursos públicos destinados a la atención y superación de la pobreza.

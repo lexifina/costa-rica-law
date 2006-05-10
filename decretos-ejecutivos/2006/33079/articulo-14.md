@@ -1,0 +1,1 @@
+Artículo 14.—Aportes del INEC. De conformidad con el Artículo 11 de la Ley de Creación del Sistema de Estadística Nacional Nº 7839, el Instituto Nacional de Estadísticas y Censos (INEC) suministrará la información de sus bases de datos al Instituto Mixto de Ayuda Social sin costo alguno, con el fin de mantener y fortalecer el SIPO.
