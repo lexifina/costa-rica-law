@@ -1,0 +1,1 @@
+Artículo 3º—Sólo podrán viajar en los vehículos de la Municipalidad de Montes de Oro, los funcionarios de la corporación y los miembros del Concejo Municipal, Síndicos Propietarios y Suplentes, salvo casos en que el trabajo de la administración así lo requiera y así lo autorice el señor Alcalde.
