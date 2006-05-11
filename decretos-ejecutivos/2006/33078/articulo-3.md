@@ -1,0 +1,1 @@
+Artículo 3º—El TESINART se reunirá ordinariamente en las fechas, horas y lugares que acuerde, y extraordinariamente cuando sea convocado por el Presidente con al menos veinticuatro horas de antelación, indicando los asuntos que se tratarán.

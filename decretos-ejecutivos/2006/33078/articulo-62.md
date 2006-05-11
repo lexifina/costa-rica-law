@@ -1,0 +1,1 @@
+Artículo 62.—El TESINART destruirá las boletas de votación que tengan más de un año. Las actas del TESINART, los expedientes de los candidatos y la declaratoria de elección y el resto de la documentación electoral con excepción de las boletas y la propaganda utilizada, será remitido al archivo central del SINART S. A.

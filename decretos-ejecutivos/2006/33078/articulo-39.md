@@ -1,0 +1,1 @@
+Artículo 39.—Queda prohibido realizar cualquier tipo de actividad proselitista, el día de la elección. La actividad electoral de los candidatos y grupos interesados se limitará ese día a las diligencias necesarias para acercar a los electores a los centros de votación.

@@ -1,0 +1,1 @@
+Artículo 7º—De toda sesión se levantará un acta, la cual firmarán el Presidente y el Secretario. Una vez aprobadas y a más tardar cinco días naturales después de concluido el proceso electoral serán enviadas al Archivo Central del SINART S. A.

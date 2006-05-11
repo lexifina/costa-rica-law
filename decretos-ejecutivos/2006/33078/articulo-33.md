@@ -1,0 +1,1 @@
+Artículo 33.—La solicitud de inscripción como candidato deberá ser firmada por el interesado. Si otra persona firmare, lo hará a título de apoderado, aportando la documentación que demuestre esta condición.

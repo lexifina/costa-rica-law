@@ -1,0 +1,1 @@
+Artículo 41.—El TESINART podrá, en cualquier momento del proceso electoral, retirar la propaganda de aquel candidato que no acate lo establecido en este Reglamento. La resolución del TESINART será inapelable.

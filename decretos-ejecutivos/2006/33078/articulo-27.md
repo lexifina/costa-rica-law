@@ -1,0 +1,1 @@
+Artículo 27.—No podrán emitir el voto en la elección del representante de los trabajadores ante el Consejo Ejecutivo, aquellos funcionarios que se encuentren nombrados como Presidente Ejecutivo, Director General, Subdirector General, Directores de área, Subdirectores y el personal nombrado bajo el régimen de confianza.

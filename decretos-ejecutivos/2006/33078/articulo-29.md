@@ -1,0 +1,1 @@
+Artículo 29.—El representante electo al Consejo Ejecutivo del SINART S. A., durará en su cargo dos años. Las elecciones deberán realizarse en el mes de abril de cada dos años y podrá ser reelegido en forma sucesiva, una vez, y en forma alterna, indefinidamente.

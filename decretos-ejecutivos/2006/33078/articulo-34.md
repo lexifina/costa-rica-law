@@ -1,0 +1,1 @@
+Artículo 34.—De la solicitud de inscripción, el Secretario del TESINART entregará un recibo que contendrá, al menos, el nombre del solicitante, el puesto para el cual se postula, día y hora en que la solicitud se presenta, una descripción somera de los documentos que aporta, la firma de la persona que recibe y el sello del TESINART.

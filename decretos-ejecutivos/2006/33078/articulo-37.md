@@ -1,0 +1,1 @@
+Artículo 37.—El contenido de la propaganda impresa deberá referirse únicamente al candidato que la gestiona y no contener alusiones contrarias al honor o la dignidad de las personas o las instituciones democráticas del país.

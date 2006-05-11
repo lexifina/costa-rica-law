@@ -1,0 +1,1 @@
+Artículo 44.—El votante deberá firmar el acta que lleva el Secretario de la Junta Receptora de Votos. El Secretario anotará en ella todas las incidencias de importancia que sobrevengan en el transcurso de la votación.

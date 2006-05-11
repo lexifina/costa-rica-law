@@ -1,0 +1,1 @@
+Artículo 35.—El TESINART examinará las solicitudes e inscribirá a todos los candidatos que reúnan los requisitos establecidos dentro de los 8 días naturales antes de la elección y procederá a informar al interesado sobre la resolución.

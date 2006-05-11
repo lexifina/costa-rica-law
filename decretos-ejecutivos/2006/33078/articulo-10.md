@@ -1,0 +1,1 @@
+Artículo 10.—En ausencia del Presidente será sustituido por el Vicepresidente, y en ausencia de ambos presidirá el Secretario, para lo cual se designará como Secretario para esa sesión, a uno de los Vocales.

@@ -1,0 +1,1 @@
+Artículo 53.—El TESINART en resolución firme e inapelable hará la declaratoria oficial del resultado de la elección y la comunicará al Consejo Ejecutivo, en forma escrita, firmada por el Presidente y el Secretario del Tribunal.

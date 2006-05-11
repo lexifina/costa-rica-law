@@ -1,0 +1,1 @@
+Artículo 20.—El escrutinio final realizado por el TESINART podrá ser presenciado por los Fiscales Generales de los candidatos, quienes podrán interponer recursos en forma escrita, sin perjuicio de solicitar audiencia escrita ante el TESINART.

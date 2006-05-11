@@ -1,0 +1,1 @@
+Artículo 5º—Para alcanzar la firmeza de los acuerdos que se tomen, se requiere la aprobación del acta en la sesión siguiente, salvo en el caso de las resoluciones o acuerdos que sean declarados firmes en el acto en que se dictan, por lo menos por cuatro votos.

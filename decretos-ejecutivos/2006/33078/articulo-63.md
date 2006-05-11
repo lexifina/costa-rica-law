@@ -1,0 +1,1 @@
+Artículo 63.—El nombramiento del representante de los trabajadores ante el Consejo Ejecutivo del SINART S. A., será efectivo en el momento en que sea entregada la comunicación oficial del TESINART ante la secretaría de actas de este Consejo.

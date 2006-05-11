@@ -1,0 +1,1 @@
+Artículo 49.—Una vez contados los votos y firmado el formulario, el Presidente de la Junta Receptora, en presencia de los demás miembros de la Junta, depositará todos los documentos en la urna, sellará la misma, y la entregará al Tribunal en el lugar designado para este efecto.

@@ -1,0 +1,1 @@
+Artículo 45.—El elector que en el momento de emitir su voto lo muestre a los miembros de la Junta Receptora o a cualquier otra persona, será anulado por la Junta. En este caso no se permitirá al votante depositar la papeleta. Esto se hará constar en el acta, en el reverso de la papeleta se anotará la palabra "anulado", y luego la papeleta se depositará en la urna respectiva.

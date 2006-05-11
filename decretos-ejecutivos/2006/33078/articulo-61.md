@@ -1,0 +1,1 @@
+Artículo 61.—Durante los diez días hábiles anteriores a la celebración de las elecciones los trabajadores del TESINART y los candidatos inscritos dispondrán de permiso de media jornada laboral para dedicarse a actividades propias de la elección.

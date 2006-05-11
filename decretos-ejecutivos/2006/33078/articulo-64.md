@@ -1,0 +1,1 @@
+Artículo 64.—La administración del SINART S. A. deberá brindar las facilidades necesarias para que se realice el proceso electoral, así como destinar los recursos necesarios para la impresión de las boletas de votación, actas de apertura y cierre de las Juntas Receptoras, y actas del TESINART.
