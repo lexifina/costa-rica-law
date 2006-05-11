@@ -13,3 +13,4 @@ NORMA 1
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-10 | la propia norma |
+| 2 | 2006-05-11 | SINALEVI (sin norma nombrada) |
