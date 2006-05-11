@@ -1,0 +1,1 @@
+Artículo 2º—Rendir con esta declaratoria un homenaje póstumo y el reconocimiento a Sergio Vieira de Mello, quien representa un ejemplo para los estudiantes que participan en la Cátedra que llevará su nombre, y constituye una fuente de inspiración frente al compromiso de protección de los Derechos Humanos.
