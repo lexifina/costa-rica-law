@@ -1,0 +1,1 @@
+Artículo 3º—Monto del fondo de Caja Chica. Se establece un fondo de caja chica por un monto de ¢150.000,00 (ciento cincuenta mil colones exactos), cuyo monto será aumentado por el Concejo Municipal, mediante acuerdo municipal semestralmente, con el objeto de que la suma establecida sea adecuada a las necesidades de la institución.
