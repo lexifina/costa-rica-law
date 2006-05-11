@@ -1,0 +1,1 @@
+Artículo 2°—La Municipalidad de Barva cobrará tarifa, cuando tenga que prestar servicios a los propietarios de bienes inmuebles que omitan el cumplimiento de los deberes indicados en el artículo anterior.

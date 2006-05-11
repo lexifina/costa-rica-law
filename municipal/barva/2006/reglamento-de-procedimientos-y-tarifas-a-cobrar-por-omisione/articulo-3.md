@@ -1,0 +1,1 @@
+Articulo 3°—De previo a la efectiva prestación del servicio respectivo, la Municipalidad notificará por una única vez al propietario correspondiente del inmueble para que proceda por su cuenta a cumplir con su obligación legal, concediéndole al efecto el plazo prudencial perentorio, pasado el cual la Municipalidad procederá de conformidad.
