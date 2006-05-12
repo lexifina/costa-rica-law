@@ -1,0 +1,1 @@
+2- Sustitúyase en todo el texto del Reglamento de las Asambleas para la Elección de los Representantes de los Pescadores y Acuicultores ante el Comité Director del Fideicomiso Pesquero, la palabra "Director" por la palabra "Especial".
