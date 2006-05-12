@@ -13,3 +13,4 @@ Constituye el Consejo Técnico Asesor en Minería del Poder Ejecutivo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-04 | la propia norma |
+| 2 | 2006-05-12 | Decreto Ejecutivo 33238 (2006-05-12) |
