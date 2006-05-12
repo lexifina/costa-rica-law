@@ -1,0 +1,1 @@
+Artículo 2º—La cuota de importación indicada en el artículo anterior deberá negociarse de la siguiente forma: 20.000 TM en tractos de doscientas cincuenta toneladas métricas (250 TM), y 3800 TM en tractos de cien toneladas métricas (100 TM), hasta que se agote la cuota establecida y el producto deberá ingresar al país a más tardar el 30 de junio del 2006.
