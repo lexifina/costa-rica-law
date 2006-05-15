@@ -15,3 +15,4 @@ Reglamento de Sesiones, Acuerdos y Mociones
 | --- | --- | --- |
 | 1 | 1996-01-01 | la propia norma |
 | 2 | 1998-07-16 | Reglamento municipal 22 (1998-07-16) |
+| 3 | 2006-05-15 | Reglamento municipal 3 (2006-05-15) |
