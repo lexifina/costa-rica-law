@@ -14,3 +14,4 @@ Concede asueto a los empleados públicos del cantón de Nandayure de la provinci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-15 | la propia norma |
+| 2 | 2006-05-15 | SINALEVI (sin norma nombrada) |
