@@ -1,0 +1,1 @@
+Artículo 3º—El Poder Ejecutivo; por medio del MOPT y el INCOFER, establecerá los mecanismos necesarios para coordinar, señalizar y determinar los horarios para la utilización conjunta de la nueva carretera ampliada de acceso a Puntarenas y, en su caso, del ferrocarril, a efecto de garantizar la mayor seguridad de los usuarios y administrados.
