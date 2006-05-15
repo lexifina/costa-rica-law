@@ -1,0 +1,1 @@
+Artículo 2°—El prestador del servicio público de que se trate, no podrá incluir en el recibo al cobro, las facturaciones anteriores, correspondientes a otros períodos, que estén pendientes de pago. Para el cobro de sumas pendientes, el prestador del servicio deberá realizar el procedimiento correspondiente, ya sea en vía administrativa o judicial.
