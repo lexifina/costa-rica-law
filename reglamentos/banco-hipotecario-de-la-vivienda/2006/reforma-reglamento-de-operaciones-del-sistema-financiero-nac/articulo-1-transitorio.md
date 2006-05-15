@@ -1,0 +1,2 @@
+Transitorio.—La modificación indicada se podrá aplicar a todos los inmuebles financiados con recursos del bono familiar de vivienda, que hubieren sido rematados o recibidos en dación en pago por las entidades autorizadas del Sistema Financiero Nacional para la Vivienda, y respecto a los cuales éstas aún no hubieren efectuado la liquidación del Bono Familiar ante el BANHVI a la fecha de publicación de la presente reforma.
+Acuerdo unánime y firme”.
