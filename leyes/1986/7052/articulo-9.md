@@ -1,5 +1,2 @@
-Artículo 9º.- El Banco Hipotecario de la Vivienda no estará
-facultado para hacer operaciones financieras directamente con el público.
-Conforme con esta ley, sólo las entidades autorizadas podrán conceder
-préstamos a las personas calificadas como usuarios del Sistema, para la
-construcción o adquisición de viviendas o de lotes.
+Artículo 9º—El Banco Hipotecario de la Vivienda no estará facultado para hacer operaciones financieras directamente con el público. Conforme con esta Ley, las entidades autorizadas y las instituciones, públicas o privadas, dedicadas al financiamiento de vivienda podrán conceder préstamos a las personas calificadas como usuarios del Sistema, para la construcción, o adquisición de viviendas o la adquisición de lotes. Sin embargo, podrán participar en operaciones de compra de activos hipotecarios o de activos financieros de otro tipo a las entidades autorizadas, tendientes a generar operaciones de titularización hipotecaria, operaciones fiduciarias o de cualquier otro tipo, que permitan la movilización de dichos activos para generar nuevos recursos financieros. Los activos hipotecarios o financieros en general que compre o adquiera el Banco Hipotecario de la Vivienda según esta disposición, serán fideicometidos en la forma que establezcan los respectivos reglamentos del Sistema y los correspondientes contratos, de acuerdo con la necesidad de la operación.
+(Así reformado por el artículo 1° sub-artículo 24 de la Ley N° 8507 del 28 de abril de 2006)
