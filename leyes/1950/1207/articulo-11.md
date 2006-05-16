@@ -1,1 +1,0 @@
-Artículo 11.-El Ministerio de Salubridad Pública exigirá a los dueños de hatos de ganado lechero una licencia oficial, sin la cual el ganadero no podrá expender la leche o sus derivados. Dicha licencia no podrá ser extendida si el hato, en todo o en parte, estuviere infectado de tuberculosis.

@@ -1,4 +1,0 @@
-Artículo Transitorio.-Tendrán derecho a ser indemnizados, en el tanto señalado en el artículo 7° de esta ley, aquellos ganaderos a quienes hasta la fecha de la emisión de esta ley se les hubiere sacrificado ganado por orden de los Ministerio de Agricultura e Industrias o Salubridad Pública, siempre que el avalúo haya sido hecho por los peritos del Banco Nacional de Costa Rica. La partida correspondiente en el presente año, se tomará del Capítulo XI, Título II, del Presupuesto del Ministerio de Agricultura.
-Comuníquese al Poder Ejecutivo
-Dado en el Salón de Sesiones de la Asamblea Legislativa.-Palacio Nacional.-San José, a los cuatro días del mes de octubre de mil novecientos cincuenta.-Marcial Rodríguez C., Presidente.-Fernando Lara, Primer Secretario. Gonzalo Ortiz M., Segundo Secretario.
-Casa Presidencial.-San José, a los nueve días del mes de octubre de mil novecientos cincuenta.-Ejecútese.-OTILIO ULATE.-El Ministro de Agricultura,-C. A. Volio.
