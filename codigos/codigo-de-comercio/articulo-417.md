@@ -1,1 +1,2 @@
-ARTÍCULO 417.- En los contratos mercantiles no se reconocerán términos de gracia o de cortesía, y en los cómputos de días, meses y años, se entenderán: el día hábil, de veinticuatro horas; los meses, según están designados en el calendario gregoriano; y el año, de trescientos sesenta y cinco días.
+Artículo 417.—En los contratos mercantiles no se reconocerán términos de gracia o de cortesía, y en los cómputos de días, meses y años, se entenderán: el día hábil, de veinticuatro horas; los meses, según están designados en el calendario gregoriano, y el año, podrá establecerse de trescientos sesenta y cinco días o de trescientos sesenta días, según lo acuerden las partes.
+(Así reformado por el artículo 1° sub-artículo 25 de la Ley N° 8507 del 28 de abril de 2006)
