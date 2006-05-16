@@ -1,1 +1,0 @@
-Artículo 9°-Los importadores de ganado vacuno, para cría o engorde, deberán dar aviso al Ministerio de Agricultura e Industrias o al de Salubridad Pública, por lo menos con tres días de anticipación, de la llegada de los animales a los puestos fronterizos o lugares de desembarque.

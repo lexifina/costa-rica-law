@@ -1,1 +1,0 @@
-Artículo 12.-Las fincas en las cuales se hayan descubierto casos de tuberculosis bovina, una vez sacrificados los animales tuberculosos, permanecerán en cuarentena, debiendo su propietario acatar las medidas de profilaxis que aconsejan los técnicos oficiales.

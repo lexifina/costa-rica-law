@@ -1,1 +1,0 @@
-Artículo 2°-Se declara obligatoria la prueba de la tuberculina, para todos los animales vacunos, las veces que se considere convenientes, la cual será practicada por los funcionarios debidamente capacitados que designen los Ministerios de Agricultura e Industrias y Salubridad Pública.
