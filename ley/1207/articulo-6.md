@@ -1,1 +1,0 @@
-Artículo 6°-Una vez levantada el acta notarial del avalúo rendido por los peritos del Banco Nacional se procederá en presencia de un veterinario oficial a sacrificar el animal o animales infectados de tuberculosis, hecho del cual dará fe el mismo notario.

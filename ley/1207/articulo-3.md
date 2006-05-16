@@ -1,1 +1,0 @@
-Artículo 3°-Los animales vacunos en los cuales la prueba de tuberculina hubiere dado resultado positivo serán aislados inmediatamente y sacrificados una vez llenados los requisitos a que se refieren los artículos siguientes.
