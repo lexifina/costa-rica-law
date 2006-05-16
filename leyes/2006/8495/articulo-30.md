@@ -1,0 +1,1 @@
+Artículo 30.—Régimen de prohibición. El Senasa determinará cuáles cargos requerirán la prohibición absoluta del ejercicio liberal de la profesión, con el objetivo de garantizar la objetividad en el desempeño de las funciones oficiales asignadas a los servidores públicos. Para tal efecto, el Área de Recursos Humanos coordinará con la Dirección General de Servicio Civil.

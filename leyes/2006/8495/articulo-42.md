@@ -1,0 +1,1 @@
+Artículo 42.—Declaración de plagas o enfermedades de combate obligatorio. El Poder Ejecutivo, previa recomendación del Senasa declarará las plagas o enfermedades de combate obligatorio, estatal o particular, cuando se conozcan y puedan determinarse los procedimientos y las medidas por aplicar.

@@ -1,0 +1,1 @@
+Artículo 70.—Sistema Oficial de Información. Créase el Sistema Oficial de Información, administrado por el Senasa, con el fin de facilitar la aplicación de los sistemas de trazabilidad/rastreabilidad de los animales, productos y subproductos contemplados en esta Ley. La información que será incluida en el Sistema se definirá en el Reglamento de esta Ley.

@@ -1,0 +1,1 @@
+Artículo 88.—Procedimiento. Las resoluciones del Senasa, emitidas en un proceso sancionatorio, tendrán el recurso de revocatoria que será resuelto por el órgano que dictó el acto y, el de apelación, por el ministro de Agricultura y Ganadería. El trámite de estos recursos se regirá por lo dispuesto en el título VIII del libro II de la Ley general de la Administración Pública.

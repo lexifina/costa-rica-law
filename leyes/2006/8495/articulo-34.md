@@ -1,0 +1,1 @@
+Artículo 34.—Monto de los servicios y las tarifas. El monto de las tarifas por los servicios que brinde el Senasa se fijará mediante decreto ejecutivo, según estudios técnicos y con base en el principio de servicio al costo, previa consulta a los usuarios. Los ingresos percibidos deberán ser reinvertidos de conformidad con la presente Ley.

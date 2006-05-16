@@ -1,5 +1,7 @@
-Artículo 3°—La Dirección de Salud Animal del Ministerio de Agricultura y Ganadería, creada mediante la ley N° 6243 del 2 de mayo de 1978, se denominará en lo sucesivo la Dirección de Salud y Producción Pecuaria. La citada Dirección, en acción coordinada con los organismos del sub sector pecuario, será la responsable de ejecutar el PROGASA, el cual será dirigido por una junta administrativa adscrita al Ministerio de Agricultura y Ganadería.
-1. Los objetivos y las funciones de la Dirección de Salud y Producción Pecuaria serán:
+Artículo 3º—La Dirección de Salud Animal del Ministerio de Agricultura y Ganadería, creada mediante la Ley Nº 6243, de 2 de mayo de 1978, se denominará en lo sucesivo el Servicio Nacional de Salud Animal. Este, en coordinación con los organismos del subsector pecuario, será el responsable de ejecutar el Progasa, el cual será dirigido por una junta administrativa adscrita al Ministerio de Agricultura y Ganadería.
+(Así reformado el párrafo anterior por el artículo 102 (actual 108) aparte "a" de la Ley General del Servicio Nacional de Salud Animal, N° 8495 del 6 de abril de 2006)
+1. Los objetivos y las funciones del Servicio Nacional de Salud Animal serán los establecidos en su Ley de creación.
+(Así reformado el inciso anterior por el artículo 102 (actual 108) aparte "b" de la Ley General del Servicio Nacional de Salud Animal, N° 8495 del 6 de abril de 2006)
 (a) Crear y adaptar la tecnología que lleve al establecimiento de sistemas rentables de producción animal.
 (b) Transmitir los conocimientos tecnológicos en aspectos de mejoramiento genético, prácticas de manejo, nutrición, reproducción, administración pecuaria, medicina preventiva y medicina productiva, que permitan la superación del productor pecuario.
 (c) Apoyar el diagnóstico clínico y epidemiológico de salud animal.
@@ -7,7 +9,7 @@ Artículo 3°—La Dirección de Salud Animal del Ministerio de Agricultura y Ga
 (d) Dictar pautas y ejecutar acciones de prevención, control y erradicación de enfermedades que afectan a los animales.
 (e) Contribuir a que los productores del subsector pecuario incrementen sus conocimientos, habilidades y destrezas, para generar en ellos aptitudes que les permitan su incorporación al proceso de desarrollo.
 (f) Ejecutar acciones que tiendan a controlar la higiene y sanidad de los productos de origen animal en cuanto a captura, granjas, fincas, matanza, plantas procesadoras, almacenamiento, transporte y expendio.
-(g) Cumplir con las disposiciones comprendidas en la Ley de Salud Animal. N9 6243 del 2 de mayo de 1978.
+(g) Cumplir con las disposiciones comprendidas en la Ley de Salud Animal. N° 6243 del 2 de mayo de 1978.
 2. La Junta Administrativa estará integrada por:
 (a) Dos miembros del Ministerio de Agricultura y Ganadería, uno de los cuales será el Ministro o su representante, quien la presidirá.
 (b) Un representante de la Federación de Cámaras de Ganaderos de Costa Rica.
@@ -18,7 +20,8 @@ Artículo 3°—La Dirección de Salud Animal del Ministerio de Agricultura y Ga
 Ninguno de los representantes del sector privado podrá ser empleado público.
 Las organizaciones indicadas en los incisos (b), (c) y (ch), harán directamente la designación de sus representantes. Estos durarán en sus puestos un año pero sus nombramientos podrán renovarse por períodos consecutivos.
 3. El miembro que dejare de concurrir a más de tres sesiones consecutivas o seis alternas, sin causa justificada, será considerado como renunciante a su caigo. En este caso, se pedirá su reposición al organismo que represente en la Junta Administrativa.
-4. El director de Salud y Producción Pecuaria será el director ejecutivo de la Junta. Este funcionario coordinará con cada uno de los directores de las dependencias del Ministerio de Agricultura y Ganadería lo que a sus propias funciones se refiere. El director ejecutivo no podrá ser miembro de la Junta, asistirá a las sesiones y tendrá voz pero no voto. No devengará dietas y estará sujeto a la reglamentación vigente para este tipo de órganos.
+4. El Director General de Salud Animal será el director ejecutivo de la Junta. Este funcionario, junto con cada uno de los directores de las dependencias del Ministerio de Agricultura y Ganadería, coordinará lo referido a sus propias funciones. El director ejecutivo no podrá ser miembro de la Junta; asistirá a las sesiones y tendrá voz pero no voto; asimismo, no devengará dietas y estará sujeto a la reglamentación vigente para este tipo de órganos.
+(Así reformado el inciso anterior por el artículo 102 (actual 108) aparte "b" de la Ley General del Servicio Nacional de Salud Animal, N° 8495 del 6 de abril de 2006)
 Le corresponde al presidente de la Junta Administrativa la re-presentación judicial y extra judicial de la Junta.
 5. Son funciones de la Junta Administrativa:
 (a) Dictar las políticas de organización y funcionamiento.

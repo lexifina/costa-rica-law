@@ -1,0 +1,1 @@
+Artículo 7º—Ejecución de los actos. En la ejecución de los actos administrativos derivados de la aplicación de esta Ley, el Senasa contará con un equipo de funcionarios y profesionales calificados, quienes actuarán con fundamento en criterios técnicos.

@@ -1,0 +1,2 @@
+Artículo 13.—Coordinación de entidades. Las dependencias y entidades de la Administración Pública, centralizada y descentralizada, las universidades y las municipalidades, así como todas las organizaciones públicas y privadas relacionadas con lo establecido en la presente Ley, deberán colaborar y coordinar sus actividades con el Senasa.
+Los funcionarios del Senasa y las demás autoridades sanitarias deberán ejecutar las actividades de control y protección sanitaria de manera coordinada, bajo pena de despido sin responsabilidad patronal.

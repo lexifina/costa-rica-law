@@ -1,0 +1,1 @@
+Artículo 62.—Publicación oficial de los establecimientos autorizados y registrados. Una vez al año, el Senasa publicará en La Gaceta la lista de los establecimientos dedicados a las actividades mencionadas en el artículo 56 de esta Ley; dichos establecimientos deberán estar registrados y debidamente autorizados.

@@ -1,0 +1,1 @@
+Artículo 45.—Bienestar animal. Los propietarios o encargados de un animal estarán en la obligación de proporcionarle bienestar para conservarlo en buenas condiciones de salud, y deberán respetar las normas legales, técnicas, éticas y profesionales vigentes.

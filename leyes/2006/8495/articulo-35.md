@@ -1,0 +1,2 @@
+Artículo 35.—Exoneración de pago. El Poder Ejecutivo podrá autorizar la exoneración parcial o total del pago de servicios que presta esta Institución mediante un decreto ejecutivo. Para ello, seguirá los criterios de interés público, científico o de fomento al sector productivo. El acto mediante el cual se autorice deberá estar motivado.
+Los colegios técnicos agropecuarios quedarán exonerados del pago por los servicios que soliciten al Senasa, para el desarrollo de sus actividades académicas.

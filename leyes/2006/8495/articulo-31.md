@@ -1,0 +1,1 @@
+Artículo 31.—Vacantes. Autorízase al Senasa para que ocupe y disponga de la manera más apropiada, para alcanzar los fines de esta Ley, las vacantes producto de renuncias, pensiones, despidos, permisos sin goce de salario y fallecimientos; estas vacantes serán ocupadas conforme a los procedimientos establecidos por el Estatuto de Servicio Civil.

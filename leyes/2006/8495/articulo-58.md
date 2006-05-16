@@ -1,0 +1,1 @@
+Artículo 58.—Retiro del certificado veterinario de operación. El Senasa podrá retirar el certificado veterinario de operación, si determina, previa inspección, que el establecimiento no cumple los requisitos sanitarios fijados para las actividades autorizadas. En caso de que el certificado se retire, el interesado deberá solicitarlo de nuevo.

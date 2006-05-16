@@ -1,0 +1,2 @@
+Artículo 39.—Certificaciones oficiales y equivalencia. El Senasa podrá certificar el cumplimiento que hagan los administrados de los controles veterinarios, las normas técnicas, las condiciones de producción y cualquier otra actividad que esté bajo su supervisión y control.
+De igual manera, el Senasa podrá determinar y acordar la aplicación del principio de equivalencia de las medidas y garantías sanitarias que consten en los certificados emitidos por las autoridades de otros países.

@@ -1,0 +1,1 @@
+Artículo 59.—Controles. El Senasa deberá realizar, periódicamente, las inspecciones y demás actividades de control a los establecimientos, con el fin de verificar el cumplimiento de los requisitos sanitarios.

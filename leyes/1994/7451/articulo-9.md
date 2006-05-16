@@ -1,5 +1,2 @@
-ARTICULO 9.- Trato a los animales para deportes.
-Los animales utilizados para deportes no deberán someterse a la
-disciplina respectiva bajo el efecto de ninguna droga o medicamento
-perjudicial para su salud e integridad; tampoco deberán ser forzados más
-allá de su capacidad.
+Artículo 9.—Trato para los animales utilizados en deportes o espectáculos públicos. Los animales utilizados en deportes o espectáculos públicos no deberán someterse, a la disciplina respectiva, bajo el efecto de ninguna droga o medicamento perjudicial para su salud e integridad; tampoco deberán ser forzados más allá de su capacidad ni deberán utilizarse objetos que puedan dañar su integridad física.
+(Así reformado por el artículo 102 (actual 108) aparte "g" de la Ley General del Servicio Nacional de Salud Animal, N° 8495 del 6 de abril de 2006)

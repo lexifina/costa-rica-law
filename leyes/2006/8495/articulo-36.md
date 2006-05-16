@@ -1,0 +1,3 @@
+Artículo 36.—Suspensión de los servicios por falta de pago. El pago de las tarifas por los servicios deberá ser cancelado por el interesado en el momento de requerir el servicio o inmediatamente después de que este sea brindado.
+Cuando por el carácter propio de la actividad comercial no se permita el pago inmediato, el Senasa quedará autorizado para que establezca otros mecanismos con plazos máximos de quince días naturales sujetos a una garantía satisfactoria, de acuerdo con las disposiciones reglamentarias que serán establecidas al efecto.
+La no cancelación de los montos correspondientes facultará al Senasa para cancelar el trámite respectivo y no prestar servicios adicionales, hasta tanto el interesado no realice el pago total de lo adeudado.

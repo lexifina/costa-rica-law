@@ -1,0 +1,1 @@
+Artículo 76.—Programas coordinados de vigilancia. El Senasa podrá establecer programas coordinados de vigilancia con otras instituciones públicas y del Sector Privado, en especial cuando existan necesidades específicas para evaluar riesgos o fijar valores de referencia en relación con las zoonosis o los agentes zoonóticos.

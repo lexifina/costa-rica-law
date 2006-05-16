@@ -1,0 +1,1 @@
+Artículo 23.—Exoneración. Decláranse de interés público las operaciones del fideicomiso regulado en esta Ley; por tanto, se exoneran de todo pago por concepto de timbres, impuestos de inscripción de la constitución, endoso, cancelación de hipotecas, impuestos de contratos de prenda, pago por avalúos, así como del pago de derechos de registro.

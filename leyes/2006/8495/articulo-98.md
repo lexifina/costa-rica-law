@@ -1,0 +1,2 @@
+Artículo 98.—Fondos especiales para indemnización en casos de emergencia. Para cubrir las indemnizaciones en casos de emergencia, los productores podrán crear un fondo para ese fin, según las características y posibilidades de cada sector.
+En caso de emergencia o ante una situación de alto riesgo sanitario debidamente calificada por el Senasa, el Ministerio de Agricultura y Ganadería podrá establecer una tabla de porcentajes de indemnización a los productores.

@@ -1,0 +1,3 @@
+Artículo 51.—Documentación para transportar. Las personas físicas o jurídicas, así como las compañías dedicadas al transporte internacional, nacional y en tránsito, estarán obligadas a requerir, de los interesados, los documentos y requisitos que imponen la presente Ley y su Reglamento, antes de recibirlos a bordo.
+De no portar esos documentos, el Senasa podrá disponer el sacrificio de los animales, la desnaturalización de los productos, o bien, la devolución al país o lugar de origen, según proceda, sin perjuicio de cualquier otra medida que la legislación disponga.
+Los gastos por la aplicación de las medidas anteriores correrán por cuenta del importador, del particular interesado o de su representante.
