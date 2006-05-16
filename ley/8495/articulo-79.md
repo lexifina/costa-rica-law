@@ -1,0 +1,1 @@
+Artículo 79.—Criterios para la aplicación de las sanciones. Quienes infrinjan la presente Ley, serán sancionados considerando el riesgo sanitario que su actuación u omisión pueda representar para la salud pública, la salud animal o el medio ambiente, así como la gravedad de la infracción y los antecedentes del infractor.

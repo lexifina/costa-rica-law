@@ -1,0 +1,1 @@
+Artículo 74.—Vigilancia en la cadena de producción alimentaria. La vigilancia se llevará a cabo en las fases de la cadena alimentaria más apropiadas para su control, según las zoonosis o el agente zoonótico en cuestión.

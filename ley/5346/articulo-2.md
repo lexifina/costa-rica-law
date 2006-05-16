@@ -1,9 +1,3 @@
-Artículo 2º.- Los animales a que se refiere el artículo anterior,
-serán recogidos o sacrificados por las autoridades cantonales del
-Ministerio de Gobernación, Policía, Justicia y Gracia y las
-Municipalidades respectivas, con la colaboración, cuando proceda, del
-Ministerio de Obras Públicas y Transportes. En el primer caso serán
-depositados en los sitios escogidos al efecto y en el segundo entregados
-a una institución de beneficencia, para su consumo. Queda a juicio de
-los delegados de la Guardia de Asistencia Rural emplear un sistema u
-otro.
+Artículo 2º—Los animales a que se refiere el artículo anterior serán recogidos o sacrificados por las autoridades de los Ministerios de Gobernación y Policía, de Agricultura y Ganadería y de las municipalidades respectivas. Cuando proceda, tendrán la colaboración de los funcionarios del Ministerio de Obras Públicas y Transportes.
+De ser sacrificados, los productos derivados del animal serán entregados a una institución de beneficencia, si su consumo no representa riesgo para la salud humana o animal.
+(Así reformado por el artículo 102 (actual 108) aparte "c" de la Ley General del Servicio Nacional de Salud Animal, N° 8495 del 6 de abril de 2006)

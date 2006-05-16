@@ -1,0 +1,1 @@
+Artículo 47.—Resultados del laboratorio oficial. Los resultados de los análisis brindados por el laboratorio oficial serán definitivos para la concesión y cancelación de permisos, autorizaciones y registros. En materia contenciosa, sea en sede administrativa o judicial, estos resultados constituyen plena prueba, de conformidad con las leyes pertinentes.

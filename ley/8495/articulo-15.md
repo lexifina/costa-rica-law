@@ -1,0 +1,1 @@
+Artículo 15.—Autorización para recibir donaciones. Autorízase a las instituciones, las corporaciones y los Poderes del Estado para que otorguen donaciones a favor del Senasa y para que este las reciba de ellos, así como de otras personas e instituciones privadas, nacionales, internacionales o extranjeras, por cualquier suma o concepto.

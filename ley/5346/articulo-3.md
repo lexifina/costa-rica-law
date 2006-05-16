@@ -1,5 +1,2 @@
-Artículo 3º.- La infracción al artículo 1º constituye contravención
-a la seguridad pública y el propietario del animal será sancionado con
-multa de cien a doscientos cincuenta colones. La pena será una multa
-fija de quinientos colones si el animal se aprehendiere o fuere
-sacrificado en aeropuertos o carreteras nacionales.
+Artículo 3º—La infracción al artículo 1 de la presente Ley constituye una infracción contra la salud pública veterinaria y el propietario del animal será sancionado con una multa de entre uno y veinte salarios base de un profesional licenciado universitario. El monto será fijado por el Servicio Nacional de Salud Animal, tomando en consideración las disposiciones contenidas en su ley de creación.
+(Así reformado por el artículo 102 (actual 108) aparte "d" de la Ley General del Servicio Nacional de Salud Animal, N° 8495 del 6 de abril de 2006)

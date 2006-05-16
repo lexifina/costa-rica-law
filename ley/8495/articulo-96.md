@@ -1,0 +1,1 @@
+Artículo 96.—Excepción al ordenamiento fiscal. Los gastos por insumos y personal o ambos, en que incurra el Senasa, provenientes del fondo para emergencias, no estarán sometidos a las leyes de ordenamiento fiscal.

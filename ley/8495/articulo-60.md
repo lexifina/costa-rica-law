@@ -1,0 +1,1 @@
+Artículo 60.—Registro de establecimientos. Todo establecimiento autorizado a ejercer una o más actividades de las indicadas en el artículo 56 de esta Ley, deberá estar inscrito en el registro que para tal efecto creará y administrará el Senasa.

@@ -1,0 +1,1 @@
+Artículo 20.—Prohibición de nombramiento. Ningún nombramiento de personal o contratación de servicios profesionales, con cargo a los recursos del fideicomiso podrá recaer en cónyuges o parientes del Director General del Senasa, hasta el tercer grado de parentesco por consanguinidad o afinidad.

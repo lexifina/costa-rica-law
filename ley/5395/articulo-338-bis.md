@@ -1,0 +1,2 @@
+Artículo 338 bis.—Coordinación entre las autoridades sanitarias. Los funcionarios del Ministerio de Salud y las demás autoridades sanitarias deberán ejecutar las actividades de control y protección sanitaria de manera coordinada, bajo pena de despido sin responsabilidad patronal.
+(Así adicionado por el artículo 102 (actual 108) aparte "f" de la Ley General del Servicio Nacional de Salud Animal, N° 8495 del 6 de abril de 2006)
