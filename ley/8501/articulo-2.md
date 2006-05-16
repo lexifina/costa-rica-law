@@ -1,0 +1,1 @@
+Artículo 2º—Una vez aprobada esta autorización legislativa, el ICE se compromete a levantar y catastrar el plano de la propiedad que se donará. Se autoriza a la Notaría del Estado para que realice todos los trámites de formalización e inscripción en el Registro Nacional de la Propiedad.
