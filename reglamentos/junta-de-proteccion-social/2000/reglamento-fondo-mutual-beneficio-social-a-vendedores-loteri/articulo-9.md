@@ -17,3 +17,5 @@ d.5) Para verificar la transparencia del proceso, la JPS nombrará un tribunal e
 d.6) El día fijado, se dispondrán las papeletas en las instalaciones de la JPS, y se recibirán los votos de todos los interesados cuyo nombre conste en el padrón.
 d.7) Los funcionarios designados procederán a la revisión de los votos, cuyo resultado consignarán en un acta. Las tres personas con mayor cantidad de votos integrarán la terna de candidatos.
 d.8) Una vez determinada la terna, la JPS entrevistará a los candidatos y examinará sus currículum vitae, después de lo cual designará al representante de los vendedores independientes ante la Junta Directiva de FOMUVEL por el periodo de ley.
+e) Los vendedores de loterías que se postulen para un puesto en la Junta Directiva de FOMUVEL, deberán estar al momento de la elección, al día en sus pagos con esa entidad.
+(Así adicionado el inciso anterior en sesión N° 18 del 16 de mayo de 2006)
