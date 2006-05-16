@@ -1,0 +1,3 @@
+Artículo 52.—Importación ilegal. Los animales domésticos, silvestres, acuáticos u otros, su material genético, sus productos, subproductos, derivados, sus desechos, las sustancias peligrosas, los alimentos para animales y medicamentos veterinarios importados en contravención de la legislación, serán sacrificados, destruidos, decomisados o reembarcados inmediatamente, a su país de origen, según proceda.
+Los animales sacrificados y los productos o subproductos que se destruyan, deberán desecharse de conformidad con las normas técnicas que se emitan al respecto, de manera que no dañen la salud pública ni el medio ambiente.
+Los gastos por la aplicación de las medidas anteriores, correrán por cuenta del importador o su representante.

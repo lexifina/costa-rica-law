@@ -1,0 +1,1 @@
+Artículo 65.—Programa nacional de trazabilidad/rastreabilidad. El Senasa establecerá, reglamentará y aplicará el Programa nacional de trazabilidad/rastreabilidad para todos los animales, productos y subproductos de origen animal, así como para los insumos y materias primas bajo su tutela. Este Programa estará constituido por varios sistemas de trazabilidad/rastreabilidad.

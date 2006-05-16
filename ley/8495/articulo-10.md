@@ -1,0 +1,1 @@
+Artículo 10.—Estructura orgánica. Para cumplir lo establecido en esta Ley, el Senasa contará con los funcionarios necesarios para el cumplimiento de sus funciones. La estructura técnica y administrativa del Senasa será definida en el Reglamento de esta Ley, de acuerdo con la legislación vigente.

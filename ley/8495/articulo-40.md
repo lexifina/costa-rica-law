@@ -1,0 +1,1 @@
+Artículo 40.—Certificados veterinarios. El Senasa dictará las normas sobre los requisitos y los procedimientos administrativos necesarios para emitir los certificados, las constancias, las guías veterinarias, los reportes de laboratorio y equivalentes.

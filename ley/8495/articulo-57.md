@@ -1,0 +1,3 @@
+Artículo 57.—Certificado veterinario de operación. Por certificado veterinario de operación se entenderá el documento otorgado por el Senasa, mediante el cual se hará constar la autorización, a fin de que la persona física o jurídica solicitante se dedique a una o varias actividades de las mencionadas en el artículo 56 de esta Ley.
+En un solo certificado podrá indicarse la autorización para ejercer diferentes actividades; será solicitado y otorgado por una única vez y no será necesario renovarlo, mientras se cumpla, constantemente, con los requisitos sanitarios.
+Dicha autorización implicará cumplir los requisitos sanitarios establecidos por el Senasa, para llevar a cabo la actividad.

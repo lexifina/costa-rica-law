@@ -1,0 +1,2 @@
+Artículo 17.—Fiduciario. El fiduciario será un banco público, seleccionado de acuerdo con la mejor oferta entre las recibidas, a partir de la invitación que realice el fideicomitente a los bancos comerciales del Estado.
+El fiduciario, además de las obligaciones que las disposiciones legales vigentes y aplicables al contrato de fideicomiso le imponen, tendrá las obligaciones establecidas en el correspondiente contrato.

@@ -1,0 +1,4 @@
+Artículo 67.—Ejecución de los sistemas de trazabilidad/ rastreabilidad. Los sistemas de trazabilidad podrán ser puestos en práctica de manera paulatina y progresiva, asegurando siempre la adecuada gestión de los riesgos sanitarios.
+El Senasa deberá destinar los recursos necesarios para desarrollar las capacidades que le permitan aplicar, dentro de sus competencias, los sistemas de trazabilidad/rastreabilidad, así como supervisarlos y vigilarlos adecuadamente.
+Para la efectiva ejecución de los sistemas de trazabilidad/ rastreabilidad, los administrados tendrán la obligación de suministrar la información requerida. De forma correlativa, el Senasa deberá verificar la información suministrada.
+Los diversos agentes económicos y productivos estarán obligados a aplicar los sistemas de trazabilidad/rastreabilidad, dentro de los plazos y las condiciones que se estipulen, para cada caso, en el respectivo Reglamento de esta Ley.

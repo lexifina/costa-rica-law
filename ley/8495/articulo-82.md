@@ -1,0 +1,1 @@
+Artículo 82.—Límites de las sanciones administrativas. El Senasa deberá considerar la situación económica del infractor. En todo caso, el límite superior de las multas previstas anteriormente podrá superarse hasta en el doble del beneficio obtenido por el infractor, cuando dicho beneficio exceda la cuantía máxima de la multa.

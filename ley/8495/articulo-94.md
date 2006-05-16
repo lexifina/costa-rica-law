@@ -1,0 +1,1 @@
+Artículo 94.—Autorización a entes autónomos. Facúltase a los entes autónomos para que dispongan de las partidas y de otros recursos que consideren necesarios para auxiliar al Senasa, cuando se declare emergencia nacional o regional.

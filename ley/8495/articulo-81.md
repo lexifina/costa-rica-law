@@ -1,0 +1,2 @@
+Artículo 81.—Aumento de la sanción. Cuando se trate de un infractor reincidente, la sanción podrá aumentarse en un tercio.
+Para lo anterior, deberán considerarse las circunstancias del responsable, las características de la explotación o del sistema de producción, el grado de dolo o culpa, el beneficio obtenido o el que se esperaba obtener, el número de animales afectados, el daño o riesgo en que se haya puesto a las personas o al patrimonio pecuario, así como el incumplimiento de las advertencias previas y la alteración social que pueda provocarse.

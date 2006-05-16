@@ -1,0 +1,1 @@
+Transitorio II.—Los funcionarios que forman parte del Programa de erradicación del gusano barrenador y que actualmente son pagados mediante ese convenio, en adelante podrán ser incluidos en la planilla del Ministerio de Agricultura y Ganadería y pagados con fondos del Presupuesto Nacional.

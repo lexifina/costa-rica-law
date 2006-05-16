@@ -1,0 +1,1 @@
+Transitorio III.—El Senasa sustituirá en sus funciones, obligaciones y atribuciones a la Dirección de Salud y Producción Pecuaria, creada por medio de la Ley general de salud animal, Nº 6243, de 2 de mayo de 1978. Los contratos, convenios y los demás acuerdos en los que la Dirección de Salud y Producción Pecuaria sea parte, a la entrada en vigencia de esta Ley, seguirán vigentes.

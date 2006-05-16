@@ -1,0 +1,1 @@
+Artículo 38.—Medidas sanitarias. Los funcionarios del Senasa y los que este designe, quedan facultados para que realicen inspecciones o visitas, así como para que apliquen las medidas sanitarias dentro de la propiedad privada o pública, en caso de que las mercancías pongan en riesgo la salud pública veterinaria o la salud animal.
