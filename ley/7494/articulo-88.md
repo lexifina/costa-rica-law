@@ -1,3 +1,3 @@
-ARTICULO 88.-
-Fundamentación del recurso.
-El recurso de apelación deberá indicar, con precisión, la infracción sustancial del ordenamiento jurídico que se alega, como fundamento de la impugnación. Cuando se discrepe de las valoraciones técnicas o apreciaciones científicas que sirven de motivo a la Administración para adoptar su decisión, el apelante deberá rebatir de forma razonada esos antecedentes, de ser posible mediante la presentación de dictámenes y estudios, emitidos por profesionales calificados para opinar sobre la pericia de que se trate.
+Artículo 88.—Fundamentación del recurso. El recurso de apelación deberá indicar, con precisión, la infracción sustancial del ordenamiento jurídico que se alegue como fundamento de la impugnación. Cuando se discrepe de los estudios que sirven de motivo a la administración para adoptar su decisión, el apelante deberá rebatir, en forma razonada, esos antecedentes; para ello, deberá aportar los dictámenes y estudios emitidos por profesionales calificados.
+En los casos en que se apele un acto de readjudicación, la impugnación, únicamente deberá girar contra las actuaciones realizadas con posterioridad a la resolución anulatoria, y cualquier situación que se haya conocido desde que se dictó el acto de adjudicación estará precluída.
+(Así reformado mediante el artículo 1° de la ley N° 8511 del 16 de mayo del 2006).

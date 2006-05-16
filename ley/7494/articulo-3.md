@@ -1,7 +1,8 @@
-ARTICULO 3.-
-Régimen jurídico.
+Artículo 3.-Régimen jurídico.
 La actividad de contratación administrativa se somete a las normas y los principios del ordenamiento jurídico administrativo.
 Cuando lo justifique la satisfacción del fin público, la Administración podrá utilizar, instrumentalmente, cualquier figura contractual que no se regule en el ordenamiento jurídico-administrativo.
 En todos los casos, se respetarán los principios, los requisitos y los procedimientos ordinarios establecidos en esta Ley, en particular en lo relativo a la formación de la voluntad administrativa.
 El régimen de nulidades de la Ley General de la Administración Pública se aplicará a la contratación administrativa.
 Las disposiciones de esta Ley se interpretarán y se aplicarán, en concordancia con las facultades de fiscalización superior de la hacienda pública que le corresponden a la Contraloría General de la República, de conformidad con su Ley Orgánica y la Constitución Política.
+Para el mejor ejercicio de sus potestades de fiscalización en la materia regulada en esta Ley, la Contraloría General de la República podrá requerir el criterio técnico de asesores externos; para ello, estará facultada para recurrir al procedimiento previsto en el inciso h), del artículo 2 de esta Ley, independientemente de la cuantía de la contratación. En caso de que tal requerimiento se formule ante un ente u órgano público, su atención será obligatoria, de conformidad con lo dispuesto en el artículo 12 de la Ley orgánica de la Contraloría General de la República.
+(Así adicionado el párrafo anterior mediante el artículo 3° de la ley N° 8511 del 16 de mayo del 2006).

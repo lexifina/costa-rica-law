@@ -1,13 +1,15 @@
-ARTICULO 42.-
-Estructura mínima.
-El procedimiento de licitación pública se desarrollará reglamentariamente, respetando los criterios mínimos siguientes:
-a) El cumplimiento de los requisitos previos de la contratación.
-b) La preparación del cartel de licitación, con las condiciones generales y las especificaciones técnicas requeridas, el cual contendrá las bases para calificar y comparar las ofertas.
-c) La publicación, en el Diario Oficial, del aviso de licitación que invita a participar.
-d) La posibilidad, para cualquier oferente potencial, de objetar el cartel cuando considere que se viola alguno de los principios generales de la contratación.
-e) La publicidad de todos los trámites del procedimiento y el acceso a todos los estudios técnicos, preparados por la Administración o para ella.
-f) La motivación del acto de adjudicación.
-g) La presunción del sometimiento pleno del oferente al ordenamiento jurídico costarricense y a las reglas generales y particulares de la licitación.
-h) La rendición de garantías de participación y cumplimiento.
-i) La posibilidad de subsanar los defectos insustanciales en que incurran los oferentes o la Administración.
-j) La posibilidad de recurrir el acto de adjudicación, en los términos que señala esta Ley.
+Artículo 42.—Estructura mínima. El procedimiento de licitación pública se desarrollará reglamentariamente, y se respetarán los siguientes criterios mínimos:
+a) El cumplimiento de los requisitos previos de la contratación. Para tomar la decisión administrativa de promover el concurso, la administración deberá realizar los estudios suficientes que demuestren que los objetivos del proyecto de contratación serán alcanzados con eficiencia y seguridad razonables.
+b) La preparación del cartel de licitación, con las condiciones generales así como las especificaciones técnicas, financieras y de calidad. La administración podrá celebrar audiencias con oferentes potenciales, a fin de recibir observaciones que permitan la más adecuada elaboración del pliego de condiciones; para ello, deberá hacer invitación pública y levantar un acta de las audiencias, todo lo cual deberá constar en el expediente.
+c) El desarrollo, en el cartel, de un sistema de evaluación de las ofertas, orientado a que la administración escoja la oferta que satisfaga mejor el interés público. La administración deberá motivar en el expediente, la incorporación al sistema de evaluación de otros factores de calificación adicionales al precio, tales como plazo y calidad, entre otros, que en principio deberán regularse en cláusulas de requisitos de cumplimiento obligatorio.
+d) La publicación, en La Gaceta, de la invitación a participar, así como de las modificaciones del cartel y del acto de adjudicación; para ello, la Imprenta Nacional estará obligada a hacer las publicaciones dentro de los tres días hábiles siguientes al recibo de la solicitud que le presente la administración. El incumplimiento de dicha obligación constituirá falta grave por parte del funcionario responsable. El director de la Imprenta deberá ordenar las medidas que garanticen el cumplimiento de esta disposición. Una vez publicado el aviso a concursar, la administración dispondrá únicamente de tres oportunidades para modificar de oficio el pliego de condiciones o para conferir prórrogas al plazo de recepción de las ofertas.
+e) La publicidad de todos los trámites del procedimiento y el acceso a todos los estudios técnicos, preparados por la administración o para ella, incluso los registros y las actas de las audiencias que se celebren de conformidad con el inciso b), de este artículo. En caso de que se utilicen medios electrónicos o sitios en Internet, deberán garantizarse la seguridad e integridad de la información. Por el mismo medio que se comunique la invitación, será comunicada la adjudicación.
+f) El plazo mínimo para recibir ofertas será de quince días hábiles, contados desde el día siguiente de la publicación del aviso a participar y hasta el día de la apertura de las ofertas, inclusive.
+g) La posibilidad de objetar el cartel cuando se considere que viola algunos de los principios generales o las disposiciones normativas que rigen la contratación, sin perjuicio de lo dispuesto en el segundo párrafo del artículo 82 de esta Ley.
+h) La presunción del sometimiento pleno del oferente tanto al ordenamiento jurídico costarricense como a las reglas generales y particulares de la licitación.
+i) La rendición de la garantía de cumplimiento. La garantía de participación deberá otorgarse en los casos en que la administración lo solicite, de conformidad con lo dispuesto en el artículo 33 de esta Ley.
+j) La posibilidad de subsanar los defectos de las ofertas en el plazo que indique el Reglamento de esta Ley, siempre y cuando con ello no se conceda una ventaja indebida, en relación con los demás oferentes. Podrán ser objeto de subsanación, el plazo de vigencia de la oferta, así como el plazo de vigencia y el monto de la garantía de participación, cuando tales extremos no se hayan ofrecido por menos del ochenta por ciento (80%) de lo fijado en el cartel. Los demás extremos de la garantía de participación podrán ser objeto de subsanación, conforme lo que disponga el Reglamento.
+k) La motivación del acto de adjudicación, el cual deberá ser dictado de conformidad con lo previsto en el artículo 42 bis de esta Ley.
+l) La posibilidad de recurrir el acto de adjudicación, en los términos señalados en esta Ley.
+m) La obligación de readjudicar o declarar desierto el concurso cuando, por la interposición de recursos, se anule el acto de adjudicación; todo de conformidad con lo previsto en el artículo 42 bis de esta Ley.
+(Así reformado mediante el artículo 1° de la ley N° 8511 del 16 de mayo del 2006).
