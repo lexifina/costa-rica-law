@@ -60,9 +60,9 @@ En la etiqueta de alimentos preenvasados deberá aparecer la siguiente informaci
 Si alguno de los ingredientes o aditivos del punto anterior pudiera estar presente en el producto final aunque sea en forma no intencional y no se menciona en la lista de ingredientes, deberá colocarse luego de la misma una frase que indique claramente la posibilidad de su presencia, por ejemplo: "contiene…", "podría contener…", "podría contener trazas de…", entre otros."
 (Así adicionado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
 4.2.1.5 En la lista de ingredientes deberá indicarse el agua añadida, excepto cuando el agua forme parte de ingredientes tales como la salmuera, el jarabe o el caldo empleados en un alimento compuesto y declarados como tales en la lista de ingredientes. No será necesario declarar el agua u otros ingredientes volátiles que se evaporan durante la fabricación.
-(Así corrida la numeración del numeral anterior mediante el artículo 1° del decreto ejecutivo N° 33117 del 6 de abril del 2006, que lo traspaso del numeral 4.2.1.4 al 4.2.1.5 actual)
+(Así corrida la numeración del numeral anterior mediante el artículo 1° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
 4.2.1.6 Como alternativa a las disposiciones generales de esta sección, cuando se trate de alimentos deshidratados o condensados destinados a ser reconstituidos, podrá enumerarse sus ingredientes por orden de proporciones (m/m) en el producto reconstituido, siempre que se incluya una indicación como la que sigue: “ingredientes del producto cuando se prepara según las instrucciones de la etiqueta”.
-(Así corrida la numeración del numeral anterior mediante el artículo 1° del decreto ejecutivo N° 33117 del 6 de abril del 2006, que lo traspaso del numeral 4.2.1.5 al 4.2.1.6 actual)
+(Así corrida la numeración del numeral anterior mediante el artículo 1° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
 4.2.2 En la lista de ingredientes deberá emplearse un nombre específico de acuerdo con lo previsto en la subsección 4.1 (nombre del alimento), con la excepción de que:
 4.2.2.1 Podrán emplearse los siguientes nombres genéricos para los ingredientes que pertenecen a la clase correspondiente:
 Clases de ingredientes | Nombres genéricos
@@ -127,32 +127,36 @@ iii) en peso, para los alimentos semisólidos o viscosos.
 4.5.1 Deberá indicarse el país de origen.
 4.5.2 Cuando un alimento se someta en un segundo país a una elaboración que cambie su naturaleza, el país en el que se efectúe la elaboración deberá considerarse como país de origen para los fines del etiquetado.
 4.6 Identificación del lote. Cada envase deberá llevar grabada o marcada de cualquier otro modo, pero de forma indeleble, una indicación en clave o en lenguaje claro, que permita identificar el lote. Puede usarse la fecha de vencimiento como identificación del lote.
-4.7 Marcado de la fecha e instrucciones para la conservación.
-4.7.1 Si no está determinado de otra manera en un reglamento técnico nacional o del Codex Alimentarius, se usará preferentemente el siguiente marcado de la fecha.
-(Así reformado el párrafo anterior mediante el artículo 1° del decreto ejecutivo N° 26829 del 9 de marzo de 1998).
-i) Se declarará la “fecha de duración mínima”
-ii) Esta constará por lo menos de:
-· el día y el mes para los productos que tengan una duración mínima no superior a tres meses;
-· el mes y el año para productos que tengan una duración mínima de más de tres meses. Si el mes es diciembre, bastará indicar el año.
-iii) La fecha deberá declararse con las palabras:
-· “Consumir preferentemente antes del “ cuando se indica el día
-· “Consumir preferentemente antes del final de...” en los demás. casos.
-iv) Las palabras prescritas en el apartado (iii) deberán ir acompañadas de:
-· la fecha misma; o
-· una referencia al lugar donde aparece la fecha.
-v) El día, mes y año deberán declararse en orden numérico no codificado, con la salvedad de que podrá indicarse el mes con letras.
-vi) No obstante lo prescrito en la disposición 4.7.1 (i), no se requerirá la indicación de la fecha de duración mínima para:
-· frutas y hortalizas frescas, incluidas las patatas, que no hayan sido peladas, cortadas o tratadas de otra forma análoga;
-· vinos, vinos de licor, vinos espumosos, vinos aromatizados, vinos de frutas y vinos espumosos de fruta;
-· bebidas alcohólicas que contengan 10% o más de alcohol por volumen;
-· productos de panadería y pastelería que, por la naturaleza de su contenido, se consumen por lo general dentro de las 24 horas siguientes a su fabricación;
-· vinagre;
-· sal de calidad alimentaria;
-· azúcar sólido;
-· productos de confitería consistentes en azúcares aromatizados y coloreados;
-· goma de mascar;
-· productos específicos que han sido eximidos por los Comités sobre Productos, ya sean nacionales o del Codex.
-4.7.2 Además de la fecha de duración mínima, se indicarán en la etiqueta cualesquiera condiciones especiales que se requieran para la conservación del alimento, si de su cumplimiento depende la validez de la fecha.
+*4.7 Marcado de la fecha de vencimiento e instrucciones para la conservación
+4.7.1 La fecha de vencimiento debe ser colocada directamente por el fabricante y no ser alterada ni estar oculta. En caso de que no se indique esta fecha en las condiciones antes mencionadas, el formato podrá ser ajustado y colocado por el importador, según la información técnica del fabricante o proveedor para la indicación de la fecha de vencimiento. Dicha información será aportada por el importador en caso de que la autoridad competente lo solicite.
+4.7.2 Regirá el siguiente marcado de la fecha:
+i) Se declarará la fecha empleando una de las siguientes frases:
+- Fecha de vencimiento
+- Consumirse antes de
+- Fecha de caducidad
+- Expira el
+- O cualquier otra frase que indique claramente al consumidor la fecha de vencimiento.
+ii) Las frases prescritas en el apartado i) deberán ir acompañadas de:
+- La fecha misma; o
+- Una referencia al lugar donde aparece la fecha. Esta fecha deberá ser declarada de modo que no induzca a error o confusión al consumidor. Cuando se incluya otra información numérica en el mismo lugar de referencia y la misma induce error al consumidor se deberá expresar con claridad cual de ellas es la fecha de vencimiento.
+En ese sentido se permitirá el uso de las palabras “vence”, “caduca”, “expira” entre otras y únicamente se podrá utilizar la abreviatura “Exp” como indicación reconocida la cual se interpretará para todos los efectos legales como “Expira”. En todo caso, la fecha deberá expresarse conforme a lo dispuesto en los apartados iii) y iv) siguientes.
+iii) Esta constará por lo menos de:
+- Día, mes y año para los productos que tengan una fecha de vencimiento no superior a tres meses;
+- Mes y año para productos que tengan una fecha de vencimiento de más de tres meses. En este caso deberá indicarse de la siguiente manera: “Al final de...”
+iv) El día, mes y año deberán declararse en orden numérico no codificado separado por guiones, punto o barra inclinada, con la salvedad de que podrá indicarse el mes con letras, inclusive en forma abreviada en formato de tres letras.
+v) No obstante lo prescrito en la disposición 4.7.1 (i), no se requerirá la indicación de la fecha de vencimiento para:
+- frutas y hortalizas frescas, incluidas las patatas, que no hayan sido peladas, cortadas o tratadas de otra forma análoga;
+- vinos, vinos de licor, vinos espumosos, vinos aromatizados, vinos de frutas y vinos espumosos de fruta;
+- bebidas alcohólicas que contengan 10% o más de alcohol por volumen;
+- productos de panadería y pastelería que por la naturaleza de su contenido, se consumen por lo general dentro de las 24 horas siguientes a su fabricación;
+- vinagre;
+- sal de calidad alimentaria;
+- azúcar sólido;
+- productos de confitería consistentes en azúcares aromatizados y coloreados;
+- goma de mascar;
+- productos específicos que han sido eximidos por los Comités sobre Productos, ya sean nacionales o del CODEX.
+Además de la fecha de vencimiento o caducidad se indicarán en la etiqueta cualesquiera condiciones especiales que se requieran para la conservación del alimento, si de su cumplimiento depende la validez de la fecha.
+*(Así reformado mediante el artículo 1° del decreto ejecutivo N° 33180 del 16 de mayo del 2006).
 4.8 Instrucciones para el uso. La etiqueta deberá contener las instrucciones que sean necesarias sobre el modo de empleo, incluida la reconstitución, si es el caso, para asegurar una correcta utilización del alimento.
 5 REQUISITOS OBLIGATORIOS ADICIONALES
 5.1 Etiquetado Cuantitativo de los Ingredientes
