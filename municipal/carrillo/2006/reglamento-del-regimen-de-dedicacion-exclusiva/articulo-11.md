@@ -1,0 +1,8 @@
+CAPÍTULO IV
+Excepciones, renuncias y sanciones
+Artículo 11º—El servidor que se acoja al Régimen de Dedicación Exclusiva podrá ejercer excepcionalmente su profesión comprometida en el respectivo contrato en los siguientes casos:
+a. Cuando se trate de práctica profesional en el ejercicio de la docencia, en establecimientos de educación superior oficiales o privados, en seminarios, cursos y congresos organizados e impartidos por estos centros educativos.
+b. Cuando se trate de impartir cursos de capacitación en instituciones públicas, siempre que sean auspiciados y organizados por dichas instituciones.
+c. Cuando se trate de asuntos personales, de los de su cónyuge o compañero(a), (si convive en unión libre, comprado esto mediante declaración jurada otorgada ante notario público) ascendiente o descendientes hasta el tercer grado de consaguinidad, hermanos, suegros, yernos y cuñados, siempre que no exista conflicto, interés lucrativo por parte del funcionario o de sus familiares aquí mencionados. Para los efectos anteriores el servidor, con la debida antelación, debe solicitar por escrito y recibir la autorización del Alcalde para acogerse a las excepciones indicadas, señalando el tipo de trabajo que efectuará así como las fechas de inicio y de finalización de la prestación del servicio y ubicación y esperar respuesta.
+d. Cuando sea necesaria su colaboración al Estado, en forma adhonoren en la atención de desastres naturales, siempre que lo hagan a nombre y con el respaldo de la Municipalidad de Carrillo.
+e. Cuando se trate del desempeño de cargos de Juntas Directivas siempre que exista conflicto de intereses con el puesto que desempeña, salvo los casos en que la Ley expresa así se establezca.

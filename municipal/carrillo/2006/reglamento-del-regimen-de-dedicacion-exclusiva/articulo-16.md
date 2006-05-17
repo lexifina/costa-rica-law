@@ -1,0 +1,1 @@
+Artículo 16.—El Departamento de Recursos Humanos debe velar por el cumplimiento de las disposiciones establecidas en el presente reglamento y en los contratos respectivos. Cuando comprobare incumplimiento de las obligaciones contraídas por los servicios suscriptores, deben tomar las medidas que estimen convenientes.
