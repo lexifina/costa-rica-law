@@ -1,0 +1,19 @@
+N° 33114
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+En el ejercicio de las facultades y atribuciones que les confieren la Constitución Política en sus artículos 140, incisos 3) y 18), y 146; el inciso 2.b) del artículo 28 de la Ley General de la Administración Pública y sus reformas, N° 6227 del 2 de mayo de 1977; los artículos 1° y 18 de la Ley de Contratación Administrativa, Nº 7494 y sus reformas del 1° de mayo de 1996; el artículo 20 del Reglamento General de Contratación Administrativa, Decreto Ejecutivo N° 25038-H del 6 de marzo de 1996; la Ley Orgánica del Ministerio de Economía, Industria y Comercio y sus reformas, N° 6054 del 14 de junio de 1977; el Reglamento a la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Decreto Ejecutivo Nº 32475-MEIC del 18 de mayo del 2005; la Ley del Sistema Nacional de Estadística y sus reformas, N° 7839 del 15 del octubre de 1998; el artículo 48 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 del 03 de noviembre de 1995; y los Votos Nº 6432-98 y 8551-99 de la Sala Constitucional de la Corte Suprema de Justicia, y
+Considerando:
+1º—Que los procesos inflacionarios de la economía afectan el equilibrio económico de los contratos de los sujetos privados con la Administración Pública, transgrediendo los principios de justicia, equidad, intangibilidad patrimonial, y equilibrio de la ecuación económica financiera de los contratos.
+2º—Que la figura del reajuste de precios se convierte en el mecanismo idóneo por medio del cual la Administración Pública garantiza al co contratante el principio de equilibrio económico en los contratos de obra pública de construcción y mantenimiento de obras, para asegurar que las partes no se vean perjudicadas.
+3º—Que en las contrataciones en que el precio se establece en moneda extranjera, en muchos de los casos el equilibrio económico se mantiene automáticamente por la variación del colón con respecto a dicha moneda. No obstante, para aquellos casos en que algunos de los elementos que componen el precio sufren variaciones diferentes que la devaluación, debe establecerse procedimientos para calcular y tramitar por parte de la Administración Contratante el reajuste del precio a efecto de mantener el equilibrio económico del contrato.
+4º—Que el artículo 18 de la Ley de Contratación Administrativa señala la necesidad de establecer mediante Reglamento los criterios técnicos por seguir para garantizar la determinación objetiva del reajuste de precios.
+5º—Que el artículo 20 del Reglamento General de Contratación Administrativa señala que el derecho al mantenimiento económico del contrato se ejercerá de conformidad con las disposiciones del Reglamento de reajustes y revisión de precios promulgado por el Poder Ejecutivo.
+6º—Que en la actualidad no está vigente ningún Reglamento que establezca los criterios técnicos necesarios ni las reglas del reajuste de precios que garanticen el equilibrio económico de los contratos de los sujetos privados con la Administración Pública. Por tanto,
+DECRETAN:
+El siguiente:
+Reglamento para el Reajuste de Precios en los Contratos
+de Obra Pública de Construcción y Mantenimiento
+CAPÍTULO I
+Generalidades
+Artículo 1º—Objeto. El presente Reglamento tiene por objeto fijar las bases y establecer las condiciones necesarias para la aplicación clara, transparente y expedita del artículo 18 de la Ley de la Contratación Administrativa N° 7494 del 1º de mayo de 1996, en lo correspondiente a los contratos de ejecución de obra pública de construcción y mantenimiento.
+Mediante este Reglamento se establecen los componentes de cálculo, procedimiento, requisitos de información y demás parámetros indispensables, a fin de obtener y cuantificar la cobertura para el mantenimiento del equilibrio económico de los contratos de ejecución de obra pública de construcción y mantenimiento, utilizando el mecanismo del reajuste de precios.

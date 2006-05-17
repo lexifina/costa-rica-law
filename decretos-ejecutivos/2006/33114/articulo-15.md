@@ -1,0 +1,1 @@
+Artículo 15.—La Cámara suministrará oportunamente al INEC, cuando así lo requiera, el apoyo técnico-profesional vinculado a su ámbito de acción para lograr un adecuado diseño y ejecución estadístico de los índices de precios requeridos en el presente Reglamento, específicamente en los artículos 13 y 14.

@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación. Este Reglamento rige para todos los contratos de obra pública de construcción y mantenimiento, entre órganos o entes del Estado y los contratistas privados, sean personas físicas o jurídicas, tal y como se define en el Artículo 1° de la Ley de Contratación Administrativa.
+Cuando en este Reglamento se utilice el término “Administración”, se entenderá que se refiere a cualquiera de los sujetos destinatarios de sus regulaciones.

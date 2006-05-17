@@ -1,0 +1,4 @@
+Artículo 13.—Utilización de los Índices. El índice de precios utilizado para el cálculo del reajuste de precios del total de costos de mano de obra directa es el índice de precios de mano de obra directa para construcción, elaborado por el INEC.
+El índice de precios utilizado para el cálculo del reajuste de precios de costos de insumos directos de edificaciones es el índice de precios de edificaciones, elaborado por el INEC.
+El índice de precios utilizado para el cálculo del reajuste de precios del total de costos de mano de obra indirecta es el índice de precios de mano de obra indirecta para construcción, suministrado por el INEC.
+El índice de precios utilizado para el cálculo del reajuste de precios del total de costos de insumos indirectos es el índice de precios al consumidor (IPC), suministrado por el INEC.
