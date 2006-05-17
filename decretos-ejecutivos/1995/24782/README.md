@@ -13,3 +13,4 @@ Reglamento Régimen Contratación Personal Escuela Liceo Laboratorio UCR
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-12-18 | la propia norma |
+| 2 | 2006-05-17 | SINALEVI (sin norma nombrada) |

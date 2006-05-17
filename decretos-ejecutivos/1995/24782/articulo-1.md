@@ -1,7 +1,9 @@
+(Anulada)
 Nº 24782-MEP
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE LA PRESIDENCIA
 Y DE EDUCACION PUBLICA,
+(Anulado este Decreto Ejecutivo, mediante resolución de la Sala Constitucional N° 6734-06 de las 14:45 horas.)
 En uso de las facultades y atribuciones que les confieren los incisos 3) y 18 del artículo 140 de la Constitución Política y,
 Considerando:
 1º.. Que mediante el artículo 83 de la ley Nº 7015 del 22 de noviembre de 1985, "La Gaceta" Nº 229 del 29 de noviembre de 1985, reformada
