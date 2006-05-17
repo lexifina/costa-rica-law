@@ -1,0 +1,1 @@
+Artículo 6º—Sobre las sesiones. La Comisión de Becas se reunirá al menos una vez al mes y extraordinariamente cuando la convoque el Presidente de la Comisión o a solicitud de dos de sus miembros. La asistencia de al menos dos de sus miembros formará quórum.

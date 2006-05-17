@@ -1,0 +1,1 @@
+Artículo 5º—Miembros de la Comisión. La Comisión de Becas estará conformada por los miembros que a tal efecto designe la Junta Directiva y que se encuentren debidamente juramentados como tales; debiendo existir al menos un miembro de la Junta Directiva entre sus miembros. La Comisión será asistida por la Dirección Académica.

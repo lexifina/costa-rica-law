@@ -1,0 +1,2 @@
+Artículo 11.—Áreas de interés. Se entienden como áreas de interés del Colegio de Abogados aquellas que promueven ideas y acciones para alcanzar el desarrollo del país en todos los niveles, contribuyendo a la realización efectiva de los valores fundamentales de la identidad costarricense, la democracia, el Estado Social de Derecho, la dignidad esencial del ser humano, el sistema de libertad y la paz social.
+El Colegio se reserva el derecho de interpretar oportunamente cuales son las temáticas de interés nacional en el estudio del derecho para cada convocatoria anual.

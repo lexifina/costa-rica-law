@@ -1,0 +1,1 @@
+Artículo 22.—Impedimento o Causal sobrevenida. Si las condiciones del becario que ameritaron la asignación de la beca cambiasen antes de que se inicie el disfrute de la beca, sin que ello se hubiese contemplado al momento de la aprobación de la misma, la Comisión de Becas analizará si se mantiene o revoca unilateralmente la ayuda económica.

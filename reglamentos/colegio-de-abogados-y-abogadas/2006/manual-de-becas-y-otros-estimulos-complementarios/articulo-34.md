@@ -1,0 +1,1 @@
+Artículo 34.—Retribución al Colegio. Por la ayuda económica, el beneficiario deberá ofrecer sus servicios de forma gratuita en los cursos de actualización del Colegio, en seminarios de capacitación o escribiendo un artículo para la Revista Foro.

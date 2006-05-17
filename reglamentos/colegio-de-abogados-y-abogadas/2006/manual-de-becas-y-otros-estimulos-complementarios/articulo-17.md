@@ -1,0 +1,1 @@
+Artículo 17.—Prohibiciones. No podrán optar a la concesión de una beca, los miembros de la Comisión de Becas, los miembros de la Junta Directiva ni sus parientes hasta el tercer grado de consanguinidad o afinidad.

@@ -1,0 +1,1 @@
+Artículo 31.—Requisitos. El petente deberá presentar toda la documentación relativa al evento académico y el detalle de la ayuda requerida, así como los demás requisitos que sean pertinentes, indicados en el artículo 15 de este Manual que permitan a la Comisión valorar la pertinencia de la capacitación y el provecho que ésta signifique para el petente.
