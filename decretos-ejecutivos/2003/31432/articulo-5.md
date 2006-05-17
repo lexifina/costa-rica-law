@@ -1,1 +1,0 @@
-Artículo 5º—En lo no contemplado en este decreto, la Comisión coordinadora para la búsqueda de la solución integral al manejo de los desechos sólidos se regirá por las disposiciones que regulan a los órganos colegiados, contenidas en los artículos 49 y siguientes de la Ley General de la Administración Pública.
