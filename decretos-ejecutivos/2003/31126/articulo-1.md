@@ -20,26 +20,30 @@ e) Alejandra Aguilar Schramm, representante del Ministro de Comercio Exterior.
 (Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
 f) Rafael Salazar Murillo, representante de la Asociación Mesa Nacional Campesina.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32993 del 6 de febrero del 2006)
-g) Señor Reynaldo González Segura, representante de la Asociación Mesa Nacional Indígena.
+g) Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33162 del 17 de mayo del 2006).
 h) Ana Rita Vásquez Arias, representante del Instituto Costarricense de Pesca y Acuicultura.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32819 del 22 de noviembre de 2005)
 i. Señora Mariela Herrera Morera, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
 (Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
 j) Fiorella Donato Calderón, representante del Consejo Nacional de Rectores.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32803 del 4 de noviembre de 2005)
-k) Señor Isaac Rojas Ramírez, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
+k) Isaac Rojas Ramírez, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
 2. Miembros suplentes:
 a) Señor Daniel León Núñez, representante del Viceministro del Ambiente y Energía.
 (Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
-b) Señora Lesbia Sevilla Estrada, representante del Director Superior del Sistema Nacional de Áreas de Conservación.
+b) Lesbia Sevilla Estrada, representante del Director Superior del Sistema Nacional de Áreas de Conservación.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
 c) Señor Carlos Cordero Morales, representante del Ministro de Agricultura y Ganadería.
 (Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
 d) Señor Jorge Mena Arce, representante del Ministro de Salud.
 e) Natalia Hernández Ramírez, representante del Ministro de Comercio Exterior.
 (Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
 f) Félix Díaz Rivera, representante de la Asociación Mesa Nacional Campesina.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32993 del 6 de febrero del 2006)
-g) Señor Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32993 del 6 de febrero del 2006).
+g) Geyner Blanco Acosta, representante de la Asociación Mesa Nacional Indígena.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
 h) Berny Marín Alpízar, representante del Instituto Costarricense de Pesca y Acuicultura.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32819 del 22 de noviembre de 2005)
 i) Señora Irina Ramos Arrocha, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
