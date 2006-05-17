@@ -1,0 +1,1 @@
+Artículo 13.—Los miembros del Comité podrán ser destituidos por la Municipalidad en forma exclusiva, siempre y cuanto exista causa de justificación para dicho acto, previa investigación de los hechos con apego al debido proceso y derecho de defensa, conforme a lo dispuesto en el artículo 17 de este Reglamento.

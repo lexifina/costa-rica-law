@@ -1,0 +1,1 @@
+Artículo 52.—Los dineros provenientes de actividades deportivas, y de cualquier otra actividad recreativa, no podrán utilizarse en actividades de índole personal, y el incumplimiento de esta disposición acarreará las responsabilidades disciplinarias, administrativas, civiles y eventualmente penales para quienes hayan incurrido en dicha falta.

@@ -1,0 +1,3 @@
+CAPÍTULO V
+De las actas
+Artículo 46.—Tanto el Comité, como sus órganos adscritos, incluidas las comisiones, deberán llevar un libro de actas en el cual se asentarán en forma suscinta, clara y sin borrones o tachaduras, los acuerdos o resoluciones que se tomen, asimismo las incidencias que los miembros del Órgano soliciten consignar en el acta. El libro de actas del Comité deberá ser autorizado por la Auditoria de la Municipalidad, y los de los Órganos adscritos al Comité, por el Tesorero del Comité. En todos los casos las hojas de los libros deberán estar debidamente foliadas y llevar el sello de la oficina autorizante. Las actas una vez aprobadas por la Junta Directiva o por el Comité deberán ser firmadas por el Presidente (a) y el secretario (a).

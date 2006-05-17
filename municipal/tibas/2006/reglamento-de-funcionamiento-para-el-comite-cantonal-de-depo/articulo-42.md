@@ -1,0 +1,1 @@
+Artículo 42.—Toda resolución tomada por el Comité se considerará Acuerdo, y así se consignará en el acta respectiva asentada en el libro legalizado al efecto. Los acuerdos podrán declararse firmes en el acto por votación calificada de los miembros presentes en la Sesión, caso contrario adquirirá firmeza al aprobarse el acta en la sesión ordinaria siguiente.

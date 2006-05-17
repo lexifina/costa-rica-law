@@ -1,0 +1,1 @@
+Artículo 59.—Los reglamentos de administración de las instalaciones deportivas propiedad del Comité, o bajo su administración por convenio, serán aprobados en sesión ordinaria del Comité por mayoría calificada de sus miembros.

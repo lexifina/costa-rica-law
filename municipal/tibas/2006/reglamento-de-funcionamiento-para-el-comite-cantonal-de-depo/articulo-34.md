@@ -1,0 +1,1 @@
+Artículo 34.—Cuando se realicen torneos internos, el Comité Comunal según sea el caso deberá confeccionar los respectivos reglamentos, los cuales serán ratificados por el Comité.

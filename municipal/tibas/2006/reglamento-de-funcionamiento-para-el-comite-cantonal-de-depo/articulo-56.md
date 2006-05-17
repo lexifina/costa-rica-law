@@ -1,0 +1,1 @@
+Artículo 56.—El Comité deberá delegar en los comités comunales la administración y mantenimiento de las instalaciones deportivas existentes en su jurisdicción. Caso de no existir un Comité Comunal, se podrá delegar dicha función a una Junta Administradora, integrada por vecinos del distrito.

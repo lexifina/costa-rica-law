@@ -1,0 +1,1 @@
+Artículo 14.—El Comité sesionará en forma ordinaria por lo menos cuatro veces al mes, y extraordinariamente cuando sea convocada por el Presidente, o en su defecto por dos de sus miembros. El día, hora y lugar de las sesiones será acordado por la Junta Directiva nombrada, y comunicada a la Municipalidad, y a la comunidad del cantón por medio de un boletín informativo.

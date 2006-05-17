@@ -1,0 +1,1 @@
+Artículo 30.—Los miembros de los Comités Comunales podrán ser destituidos de sus cargos por el Comité, siempre y cuando existan causales para tal efecto, en cuyo caso se procederá a realizar una investigación del caso, con apego al debido proceso y derecho de defensa. Las causas de destitución serán las mismas aplicadas para el Comité.

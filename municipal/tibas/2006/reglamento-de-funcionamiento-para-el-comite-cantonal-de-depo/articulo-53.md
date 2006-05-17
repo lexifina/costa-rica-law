@@ -1,0 +1,1 @@
+Artículo 53.—Todos los recursos que perciba el Comité para la aplicación de los planes y programas bajo su competencia, deberán ser objeto de liquidación en la forma, términos y ante las instancias que corresponda.

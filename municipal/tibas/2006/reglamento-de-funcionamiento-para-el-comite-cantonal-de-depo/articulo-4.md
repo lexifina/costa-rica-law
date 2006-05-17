@@ -1,0 +1,1 @@
+Artículo 4º—El Comité goza de personería jurídica instrumental para construir, administrar, y mantener las instalaciones deportivas, sean éstas de su propiedad, o bajo su administración en virtud de convenios interinstitucionales, así como para el cumplimiento de los fines que la Ley y este Reglamento le autoricen.
