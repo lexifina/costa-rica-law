@@ -1,0 +1,6 @@
+3) Modificar los Transitorios III y IX para que, en lo sucesivo, se lean de la siguiente forma:
+"Transitorio III.—Del plazo para el cumplimiento de requisitos de los fondos de inversión admisibles.
+Respecto de las inversiones adquiridas con anterioridad a la publicación de este reglamento en el diario oficial, los Regímenes Especiales tendrán un plazo de nueve meses para dar cumplimiento a los requisitos establecidos en el literal b) del Artículo 23. Las nuevas inversiones en estos instrumentos se ajustarán a la presente regulación a partir de su vigencia.
+Transitorio IX.—Operaciones con derivados, notas estructuradas y fondos de inversión del exterior.
+Las entidades reguladas podrán realizar este tipo de operaciones una vez cumplidos los requisitos que para ello se establece en este reglamento. Sin embargo, para el caso de las notas estructuradas estas operaciones no podrán realizarse antes del 30 de junio del 2006 y para las operaciones con productos derivados su autorización será a partir del 30 de setiembre del 2006.
+Para el caso de la inversión en fondos de inversión del extranjero, cuyo subyacente no sea un índice accionario, la misma se autoriza a partir del 30 de junio del 2006".
