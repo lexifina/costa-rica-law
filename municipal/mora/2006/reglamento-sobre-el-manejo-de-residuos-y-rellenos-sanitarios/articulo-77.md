@@ -1,0 +1,1 @@
+Artículo 77.—La localización de bodegas, centros de acopio y plantas de recuperación de basuras, deberá ubicarse de acuerdo con las normas de planeamiento urbano vigentes en el cantón y de conformidad con las directrices que señale el Ministerio de Salud.

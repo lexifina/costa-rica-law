@@ -1,0 +1,1 @@
+Artículo 10.—Los planes de manejo se presentarán ante la Municipalidad y serán aprobados por ella en un plazo máximo de un mes. El plan de manejo será requisito para la renovación de la patente de funcionamiento en el caso de los negocios y empresas de que trata este aparte.

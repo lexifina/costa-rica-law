@@ -1,0 +1,2 @@
+De los permisos
+Artículo 52.—Todo proyecto de relleno sanitario requiere de los siguientes permisos: a) De Ubicación. b) De Construcción. c) De Funcionamiento. Para el trámite de cada uno de estos permisos, que serán otorgados si procede, por el Concejo Municipal, el interesado deberá presentar la documentación correspondiente ante el Departamento de Ingeniería y Urbanismo de la Administración Municipal, que corroborará la existencia de la documentación y requisitos indicados en el presente Reglamento, así como la comprobación práctica y técnica de cada uno de estos.

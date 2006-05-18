@@ -1,0 +1,1 @@
+Artículo 49.—El relleno sanitario manual se utilizará excepcionalmente como método de disposición final de los desechos ordinarios por motivos técnicos o económicos y tendrá una capacidad máxima de 10 toneladas diarias de estos desechos.

@@ -1,0 +1,1 @@
+Artículo 60.—Los desechos industriales podrán ser dispuestos en el relleno sanitario, previo tratamiento o neutralización que los haga asimilables a desechos ordinarios o inocuos, en las celdas para desechos ordinarios.

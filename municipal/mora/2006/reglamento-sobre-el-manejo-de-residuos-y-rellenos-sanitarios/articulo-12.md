@@ -1,0 +1,1 @@
+Artículo 12.—La Municipalidad elaborará y difundirá informes periódicos, sobre los aspectos relevantes contenidos en los sistemas de información a los que se hace referencia en el presente reglamento.

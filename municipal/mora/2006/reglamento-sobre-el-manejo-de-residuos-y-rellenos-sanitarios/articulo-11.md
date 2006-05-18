@@ -1,0 +1,2 @@
+Derecho a la información
+Artículo 11.—La Municipalidad, en el ámbito de sus respectivas competencias, integrará el Sistema de información sobre la gestión integral de residuos, que contendrá la información relativa a la situación local, los inventarios de residuos generados, la infraestructura disponible para su manejo, las disposiciones jurídicas aplicables a su regulación y control y otros aspectos que faciliten el logro de los objetivos de este Reglamento y los ordenamientos que de ella deriven, y demás disposiciones aplicables.

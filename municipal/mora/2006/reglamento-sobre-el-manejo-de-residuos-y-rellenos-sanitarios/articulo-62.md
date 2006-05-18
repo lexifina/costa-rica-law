@@ -1,0 +1,1 @@
+Artículo 62.—El ente administrador del relleno sanitario presentará trimestralmente al Departamento de Ingeniería y Urbanismo de la Administración Municipal copia de los reportes que debe presentar ante la Dirección de Protección al Ambiente Humano del Ministerio de Salud, sobre la operación del relleno sanitario.

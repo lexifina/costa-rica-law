@@ -1,0 +1,2 @@
+Del servicio de manejo de basura
+Artículo 15.—Para que el servicio brindado por la Municipalidad sea económicamente factible y sostenible, esta incluirá en las tarifas por recolección de residuos, todos los gastos en que incurra. Deberá tomarse en cuenta como mínimo los costos de recolección, transporte, almacenamiento, valorización y disposición final adecuados. La tarifa deberá fijarse en función del peso del residuo.

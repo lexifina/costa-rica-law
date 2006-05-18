@@ -1,0 +1,1 @@
+Artículo 83.—La Municipalidad establecerá un programa de recolección eficiente de las basuras almacenadas en los recipientes a que hace referencia el artículo anterior. En caso de programas de reciclaje los recipientes tendrán colores diferentes de acuerdo al tipo de material a recibir.

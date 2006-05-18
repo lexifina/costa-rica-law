@@ -1,0 +1,1 @@
+Artículo 7º—Se encuentran obligados a la formulación y ejecución de los planes de manejo, según corresponda: a) Los productores de los bienes que posterior a su consumo generen algún tipo de residuo y que tengan su operación en el cantón. b) Los grandes generadores de residuos que tengan su operación en el cantón, según lo contemplado en este reglamento.

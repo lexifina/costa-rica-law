@@ -1,0 +1,1 @@
+Artículo 79.—La operación de las bodegas, centro de acopio y plantas de recuperación de basuras, deberán realizar sus actividades bajo las condiciones que establezca el Ministerio de Salud y los respectivos reglamentos.
