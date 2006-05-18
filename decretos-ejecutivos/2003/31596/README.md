@@ -14,3 +14,4 @@ Reglamento Orgánico del Centro de Formación de Formadores y de Personal Técni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-23 | la propia norma |
+| 2 | 2006-05-18 | Decreto Ejecutivo 33284 (2006-05-18) |
