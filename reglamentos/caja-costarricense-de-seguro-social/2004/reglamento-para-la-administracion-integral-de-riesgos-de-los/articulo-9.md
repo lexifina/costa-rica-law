@@ -6,4 +6,5 @@ d) Los informes a que se refiere este Artículo deberán presentarse al menos me
 e) Investigar y documentar las causas que originen desviaciones de los límites de exposición al riesgo establecidos, identificando si dichas desviaciones se presentan en forma reiterada e informar de manera oportuna sus resultados al Comité de Riesgos, de Inversiones y si fuese necesario, a la Junta Directiva.
 f) Recomendar la disminución de la exposición al riesgo a los límites previamente aprobados cuando lo considere pertinente.
 g) Calcular el rendimiento ajustado por riesgo que se tenga de los activos de los Fondos Institucionales y presentarlos al Comité de Riesgos para los Fondos Institucionales y de Inversiones para su discusión y evaluación.
-h) Elaborar programas de capacitación para el personal de la Unidad para la Administración Integral de Riesgos, para miembros del Comité de Riesgo para los Fondos Institucionales, y para todo aquél involucrado en el manejo de riesgos.
+h) Elaborar programas de capacitación para el personal del Departamento Administración de Riesgos, para miembros del Comité de Riesgo para los Fondos Institucionales, y para todo aquél involucrado en el manejo de riesgos.
+(Así reformado el inciso anterior mediante sesión N°8058 del 18 de mayo del 2006).

@@ -2,8 +2,9 @@ Artículo 5º—Constitución del Comité de Riesgos. El Comité de Riesgos ser�
 a) Un representante de la Gerencia División de Pensiones, el cual presidirá el Comité.
 b) Un representante de la Gerencia División Financiera.
 c) Un miembro independiente. Para tales efectos el Gerente de Pensiones deberá presentar una terna a la Junta Directiva, de la cual se escogerá uno de los candidatos, donde la selección se hará en función de la formación y características adecuadas para el puesto.
-d) El Jefe de la Unidad de Riesgo de la Institución.
-El Jefe de la Unidad de Riesgo de la Institución deberá participar en calidad de miembro con voz pero sin voto.
+d) El Jefe del Departamento Administración de Riesgo de la Gerencia División Pensiones.
+El Jefe del Departamento Administración de Riesgo de la Gerencia División Pensiones deberá participar en calidad de miembro con voz pero sin voto.
+(Así reformado el inciso anterior mediante sesión N°8058 del 18 de mayo del 2006).
 Los responsables de la realización de las inversiones y la ejecución de la estrategia que dicte el Comité de Inversiones y de las distintas áreas involucradas en la operación que impliquen la toma de riesgos podrán participar en el Comité de Riesgos con voz pero sin voto.
 El Comité Integral de Riesgos se deberá reunir cuando menos una vez al mes. Todas las sesiones y acuerdos del Comité de Riesgos deberán hacerse constar en actas debidamente razonadas en un libro de actas.
 En caso de que alguno de los miembros se ausente de las sesiones por más de tres veces consecutivas e injustificadas, el Comité de Riesgos deberá poner por escrito un aviso de atención a dicho miembro, con copia a la Gerencia División de Pensiones. La respuesta al aviso deberá contener: las causas de las ausencias y si podrá continuar como miembro del Comité de Riesgos. En caso de omisión a lo anterior, el Comité de Riesgos deberá comunicar a Junta Directiva lo acontecido, para que tome las medidas correctivas.

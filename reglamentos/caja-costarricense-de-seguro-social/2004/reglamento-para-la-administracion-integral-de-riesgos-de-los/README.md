@@ -14,3 +14,4 @@ Reglamento para la Administración Integral de Riesgos de los Fondos Institucion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-11 | la propia norma |
+| 2 | 2006-05-18 | Reglamento 8058 (2006-05-18) |
