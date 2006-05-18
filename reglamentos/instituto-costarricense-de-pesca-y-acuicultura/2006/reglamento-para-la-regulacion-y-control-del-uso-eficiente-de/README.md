@@ -14,3 +14,4 @@ Reglamento para la Regulación y Control del Uso Eficiente del Combustible a Pre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-18 | la propia norma |
+| 2 | 2006-05-18 | Reglamento 0 (2006-05-04) |

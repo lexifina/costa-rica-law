@@ -2,7 +2,8 @@ Artículo 14.—El beneficiario o la persona que éste designe según lo regulad
 a. Formulario de solicitud de combustible con una copia (opcional) debidamente firmada por el permisionario o por terceras personas debidamente autorizadas, según lo establecido en el presente reglamento.
 b. Dos fotocopias de la Factura o Constancia de Venta del producto desembarcado (adjuntando copia(s) para el expediente de combustible y para el Departamento de Estadísticas Pesqueras del INCOPESCA), conforme a las estipulaciones del INCOPESCA y del Ministerio de Hacienda, para embarcaciones cuyos beneficiarios estén inscritos en el Régimen de Tributación Simplificado o en el régimen tradicional.
 c. Una fotocopia confrontada con su original de la (s) Factura (s) de Compra del combustible del (los) viaje (s) de pesca anterior (es), emitida (s) por RECOPE, estación de servicio, centros de almacenamiento y distribución debidamente autorizados o por una organización pesquera con tanques propios para almacenamiento de combustible a precio preferencial, la cual deberá llevar el sello de cancelado y de la asociación.
-d. Una fotocopia confrontada o el original del Zarpe Nacional.
+d. Una fotocopia confrontada o el original del Zarpe Nacional o Declaración Jurada de días de pesca, conforme a las estipulaciones del INCOPESCA.
+(Así reformado el inciso anterior mediante el artículo 1 del acuerdo AJDIP/232 del 04 de mayo del 2006).
 e. Fotocopia de la boleta de control de saldos en la estación de servicio, tanques de almacenamiento y distribución debidamente autorizados, organizaciones pesqueras con tanques propios o en tanques de la embarcación, debidamente firmada por el beneficiario o persona debidamente autorizada, en cada retiro.
 f. Algún otro documento que la SCAC considere necesario para atender alguna ocasión especial u ocasional, de conformidad con lo que la ley contemple.
 De los documentos anteriores una vez revisados, se devolverán al interesado:

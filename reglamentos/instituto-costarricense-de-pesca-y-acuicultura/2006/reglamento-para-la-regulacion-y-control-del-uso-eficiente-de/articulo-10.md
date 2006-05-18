@@ -1,5 +1,6 @@
 Artículo 10.—La SCAC con base en las tablas que se detallan en el artículo 12 del presente Reglamento, autorizará la venta para el combustible a precio preferencial, de la siguiente forma:
-- Para las embarcaciones de la flota en pequeña escala la solicitud se recibirá durante los primeros veinte días posteriores al(los) último(s) viaje (es) anterior(es), para lo que se reconocerá un máximo de 25 días de ausencia.
+- Para las embarcaciones de la flota en PEQUEÑA ESCALA la solicitud se recibirá durante los primeros veinte días hábiles posteriores al(los) último(s) viaje(es) anterior(es), para lo que se reconocerá un máximo de 25 días de ausencia.
+(Así reformado el inciso anterior mediante el artículo 1 del acuerdo AJDIP/232 del 04 de mayo del 2006).
 - Para las embarcaciones de mediana escala y avanzada que demuestren que su solicitud se fundamenta en el (los) viaje (s) de pesca inmediato (s) anterior (es), se les reconocerá un máximo de 60 y 90 días de pesca por viaje respectivamente.
 - Para las embarcaciones pertenecientes a la Flota Semi-Industrial dedicadas a la captura de camarón, se les reconocerá un máximo de 60 días por viaje de pesca.
 - Para las embarcaciones pertenecientes a la Flota Semi-Industrial dedicadas a la captura de sardina con red de cerco por la naturaleza de la pesca que realizan, se les podrá recibir su solicitud semanalmente para que en ella se incluya hasta un máximo de 6 días de pesca por semana.

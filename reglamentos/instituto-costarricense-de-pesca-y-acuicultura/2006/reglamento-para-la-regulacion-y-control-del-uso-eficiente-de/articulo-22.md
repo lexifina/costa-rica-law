@@ -1,1 +1,1 @@
-Artículo 22.—Rige a partir de 30 días calendario después de su publicación en el Diario Oficial La Gaceta.
+Artículo 22.—(Derogado mediante el artículo 2 del acuerdo AJDIP/232 del 04 de mayo del 2006).
