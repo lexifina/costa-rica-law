@@ -1,0 +1,1 @@
+Artículo 16.—La SCAC con el apoyo de la Asesoría Legal Interna deberá en un plazo no mayor a dos meses contados a partir de la vigencia del presente reglamento, revisar y ajustar a las condiciones actuales, los contratos que se suscriben con los beneficiarios y organizaciones pesqueras, como consecuencia del otorgamiento de combustible a precio preferencial.

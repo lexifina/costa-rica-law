@@ -1,0 +1,1 @@
+Artículo 18.—Este Reglamento deja sin efecto cualquier otra disposición anterior referente a la regulación y control del uso de combustible a precio preferencial destinado a la Flota Pesquera Nacional No Deportiva o turística en aguas jurisdiccionales o fuera de ellas.

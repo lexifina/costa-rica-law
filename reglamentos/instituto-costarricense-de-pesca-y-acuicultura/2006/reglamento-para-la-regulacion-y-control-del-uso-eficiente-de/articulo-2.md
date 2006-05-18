@@ -1,0 +1,1 @@
+Artículo 2º—En cumplimento de lo dispuesto en el artículo 45 de la Ley Nº 7384, de 16 de marzo de 1994, RECOPE venderá el combustible (gasolina regular y diesel) a la flota pesquera nacional, excepto para la actividad de pesca deportiva, a un precio competitivo con el precio internacional.
