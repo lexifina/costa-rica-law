@@ -21,3 +21,4 @@ Reglamento Interno de la Junta Directiva.
 | 6 | 2004-02-05 | Reglamento 3224 (2004-02-05) |
 | 7 | 2004-07-28 | Reglamento 3253 (2004-07-28) |
 | 8 | 2005-10-19 | Reglamento 3318 (2005-10-19) |
+| 9 | 2006-05-18 | Reglamento 3348 (2006-05-18) |
