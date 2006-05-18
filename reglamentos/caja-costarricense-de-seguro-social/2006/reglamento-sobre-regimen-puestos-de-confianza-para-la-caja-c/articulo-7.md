@@ -1,0 +1,1 @@
+Artículo 7º—Inclusión de otros puestos de confianza. La Dirección de Recursos Humanos por medio de su área técnica correspondiente, con la debida aprobación de la Junta Directiva de la Institución, determinará a través del estudio pertinente la necesidad de creación y valoración de otros puestos de confianza.

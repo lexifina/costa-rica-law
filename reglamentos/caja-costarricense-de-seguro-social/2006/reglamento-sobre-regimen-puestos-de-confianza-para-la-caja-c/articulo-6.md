@@ -1,0 +1,1 @@
+Artículo 6º—Cantidad de puestos de confianza. El número de puestos de confianza en la Caja será de dos Asesores de Junta Directiva y tres Asesores, un Jefe de Despacho y un chofer para la Presidencia Ejecutiva.

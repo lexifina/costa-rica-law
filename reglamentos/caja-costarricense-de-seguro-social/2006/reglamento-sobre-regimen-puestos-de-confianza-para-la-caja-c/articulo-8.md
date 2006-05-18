@@ -1,0 +1,1 @@
+Artículo 8º—Estructura salarial. La estructura salarial de los puestos de confianza estará compuesta por un salario nominal total con derecho a los incrementos semestrales por costo de vida decretados por el Gobierno Central y por estudios salariales adicionales que efectúe la Institución.

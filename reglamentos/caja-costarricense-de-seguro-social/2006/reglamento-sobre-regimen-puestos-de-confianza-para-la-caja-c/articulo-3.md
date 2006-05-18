@@ -1,0 +1,1 @@
+Artículo 3º—Libre remoción. La instancia que nombre el empleado bajo puesto de confianza podrá prescindir en cualquier momento de los servicios, por lo cual tiene libertad de remoción por las características propias del régimen de confianza.

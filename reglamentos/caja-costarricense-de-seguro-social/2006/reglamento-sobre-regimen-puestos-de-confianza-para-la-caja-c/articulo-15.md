@@ -1,0 +1,1 @@
+Artículo 15.—Nueva contratación. El servidor(a) que laboró en un puesto de confianza y es contratado(a) de nuevo por la Caja, en un puesto propio de la relación de empleo público, deberá cumplir con todas las disposiciones legales para el reclutamiento y selección según la naturaleza de la plaza para la cual es oferente.
