@@ -1,0 +1,2 @@
+Artículo 25.—Efectuado el nombramiento del perito, el despacho lo comunicará directamente a éste para que dentro de tercero día comparezca a aceptar el cargo y a juramentarse. Si el perito no comparece dentro de ese plazo, se tendrá como que no aceptó la designación y de inmediato se designará al que por turno o rol corresponda.
+El Juzgador estará en la obligación de comunicar de inmediato a la Oficina de Peritos Valuadores y Ejecutores la no aceptación del nombramiento por parte del perito para lo de su cargo.

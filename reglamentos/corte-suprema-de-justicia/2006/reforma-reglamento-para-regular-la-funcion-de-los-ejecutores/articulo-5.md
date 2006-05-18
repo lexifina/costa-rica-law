@@ -1,0 +1,1 @@
+Artículo 5º—Una vez cumplidos los requisitos estipulados en el presente Reglamento y aprobada su designación, todo Auxiliar Ejecutor deberá ser debidamente juramentado por el Jefe de la Oficina de Ejecutores y Peritos Valuadores.

@@ -1,0 +1,1 @@
+Artículo 10.—El Ejecutor coordinará con el despacho judicial lo correspondiente al giro de sus honorarios, de conformidad con la tabla aprobada por el Consejo Superior. Queda terminantemente prohibido que soliciten suma alguna por ese concepto a la parte interesada en forma adelantada o como adición a lo girado por el despacho.
