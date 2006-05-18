@@ -1,0 +1,18 @@
+CIRCULAR Nº 62-2006
+ASUNTO: Sobre la entrega de drogas a autoridades foráneas.
+A TODOS LOS DESPACHOS JUDICIALES
+DEL PAÍS SE LES HACE SABER QUE:
+El Consejo Superior, en sesión N° 18-06, celebrada el 14 de marzo del 2006, artículo LXXXV, hacerles del conocimiento el siguiente acuerdo:
+"...acerca de la posición del Juzgado Penal de San Joaquín de flores, en punto a que corresponde al Consejo Superior del Poder Judicial disponer la entrega de muestras de droga decomisada a autoridades foráneas, cuando esas las solicitan para efectos probatorios en sus respectivos países. De este modo cuando –con el propósito dicho- el Ministerio Público ha canalizado la solicitud de gobiernos extranjeros ante el Juzgado herediano -por tener en su poder la droga confines de destrucción-, se le ha recomendado acudir ante el Consejo.
+No obstante, entre las atribuciones y facultades del Consejo Superior del Poder Judicial (art. 81, L. O.P.J.) no se enumera la competencia para disponer la entrega de evidencias de ningún tipo, ya a autoridades nacionales, ya a autoridades extranjeras, pues el Consejo es una autoridad administrativa. En consecuencia, la posición del Juzgado Penal de San Joaquín de Flores no tiene base legal alguna.
+Es el Ministerio Público, durante la fase preparatorio del proceso penal ordinario, la autoridad encargada de asegurar la prueba (1), de modo que -cuando actúa bajo el concepto de cooperación internacional- podría disponer la entrega de elementos de prueba a autoridades extranjeras para ser utilizados en otros países; esto último, conforme lo establecido por el artículo 8.e de la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado y actividades conexas. (2)
+((1) Artículo 291.—Facultad de Investigación. El Ministerio Público podrá realizar las diligencias que permitan asegurar los elementos de prueba esenciales sobre el hecho punible y determinar a sus autores y partícipes, aún cuando se haya suspendido el proceso a prueba o se haya aplicado un criterio de oportunidad. (Código Procesal Penal).
+(2) Artículo 8º—Para facilitar las investigaciones y actuaciones policiales o judiciales referentes a los delitos tipificados en la presente Ley, las autoridades nacionales podrán prestar su cooperación a las autoridades extranjeras y recibirla de ellas para lo siguiente:
+a) (...)
+b) Facilitar la información y los elementos de prueba debidamente certificados.
+f) (...)
+(Ley sobre estupefacientes, sustancias y psicotrópicas, drogas de uso no autorizado y actividades conexas)).
+Cuando las solicitudes de autoridades extranjeras se presentan al Ministerio Público de Costa Rica, antes de remitir la droga al Juzgado Penal de San Joaquín de Flores para su destrucción, podría el Fiscal a cargo de la investigación disponer la entrega de muestras como elementos de prueba, con la intervención de un Juez Penal para documentar el acto. No obstarte, si la solicitud se presenta al Ministerio Público cuando la droga se ha remitido al citado tribunal con el fin dicho, el Fiscal -como encargado del aseguramiento de la prueba según se dijo- podría formular la solicitud ante el Juzgado.
+Este debe resolver conforme a derecho y, de acuerdo a la ley, no es fundamento válido de resolución alguna declinar la competencia a favor de un órgano administrativo incompetente en asuntos judiciales.
+Por consiguiente, para resolver el diferendo, en términos generales y para todos los casos, ruego al Consejo acordar que no le compete la entrega de elementos de prueba a autoridades extranjeras, pues no es la autoridad a que se refiere el artículo 8.e de la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado y actividades conexas.
+San José, 18 de abril del 2006.
