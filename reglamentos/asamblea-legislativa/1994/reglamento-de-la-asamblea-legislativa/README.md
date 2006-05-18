@@ -30,3 +30,4 @@ Reglamento de la Asamblea Legislativa
 | 15 | 2003-06-23 | Reglamento 0 (2003-06-23) |
 | 16 | 2003-08-18 | Reglamento 0 (2003-08-18) |
 | 17 | 2005-03-08 | Reglamento 6231 (2005-03-08) |
+| 18 | 2006-05-18 | Reglamento 13 (2006-05-18) |

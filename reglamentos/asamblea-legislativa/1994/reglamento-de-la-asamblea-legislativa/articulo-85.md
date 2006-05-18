@@ -1,6 +1,5 @@
-Artículo 85.- Atribuciones
-Las comisiones de Honores, Redacción, Relaciones Internacionales y Comercio Exterior, de la Mujer, de la Juventud, de Nombramientos y de Ambiente tendrán a su cargo:
-(Modificado mediante acuerdo N° 6108, del 15-05-2003)
+Artículo 85.—Atribuciones. Las comisiones de Honores, Redacción, Relaciones Internacionales y de Comercio Exterior, de la Mujer, de la Juventud, de Nombramientos, de Ambiente y deTurismo, tendrán a su cargo:
+(Así reformado el párrafo anterior mediante sesión N°13 del 18 de mayo del 2006).
 a) Comisión de Honores:
 Los asuntos indicados en el artículo 195 de este Reglamento.
 b) Comisión de Redacción:
@@ -29,3 +28,8 @@ g) Comisión de Ambiente:
 1. Estudiará, analizará e investigará los problemas relacionados con el medio ambiente y el desarrollo sostenible. Propondrá las soluciones y medidas correctivas correspondientes.
 2. Conocerá y dictaminará todos los proyectos de ley sobre el ambiente y el desarrollo sostenible.
 (Modificado mediante acuerdo N° 5020, del 8-11-99)
+h) Comisión de Turismo:
+1. Identificará, estudiará e investigará, todo lo relacionado con la actividad turística, los obstáculos que la afecten, así como los estímulos necesarios que requiere este sector.
+2. Impulsará y presentará la legislación necesaria para remover los obstáculos y promover los estímulos necesarios.
+3. Conocerá y dictaminará todos los proyectos de ley que estén relacionados con la actividad turística.
+(Así adicionado el inciso anterior mediante sesión N°13 del 18 de mayo del 2006).
