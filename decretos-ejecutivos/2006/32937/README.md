@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-22 | la propia norma |
+| 2 | 2006-05-18 | Decreto Ejecutivo 33161 (2006-05-18) |
