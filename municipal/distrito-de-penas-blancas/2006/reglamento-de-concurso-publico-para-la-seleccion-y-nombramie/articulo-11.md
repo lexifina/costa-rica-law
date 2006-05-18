@@ -1,0 +1,2 @@
+Artículo 11.—Sobre la comunicación de los resultados. Los resultados de las etapas del concurso serán comunicados a los participantes, al medio o lugar señalado por el interesado a través de la Secretaría del concejo y una lista de los resultados que se exhibirá en dicha Secretaría.
+Contra esta comunicación podrá interponerse el recurso de revocatoria, el de apelación o ambos, de conformidad con lo que establece el Código Municipal para estos efectos.

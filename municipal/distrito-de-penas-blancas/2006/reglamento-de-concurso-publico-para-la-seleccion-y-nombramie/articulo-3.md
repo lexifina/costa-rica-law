@@ -1,0 +1,1 @@
+Artículo 3º—Requisitos de los puestos: los requisitos del puesto del auditor interno, son los establecidos en los lineamientos para la descripción de las funciones y requisitos del cargo de auditor interno, emitidos por la Contraloría General de la República, las cuales actualizan automáticamente el manual descriptivo de puestos de este Concejo Municipal.
