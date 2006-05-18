@@ -11,3 +11,4 @@ Considerando:
 Decretan
 Artículo 1°—Modificanse los artículos 2°,4°,5° y 6° de la Ley No. 8490, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2006, publicada en el Alcance No.49 a La Gaceta No. 253 de 30 de diciembre de 2005, en la forma que se indica a continuación:
 Por lo extenso de su contenido y tipo de formato ver Alcance N° 17 a La Gaceta impresa N° 65 del 31 de marzo del 2006.
+(Así recodificado por el artículo 3° del decreto ejecutivo N° 33161 del 18 de mayo de 2006)
