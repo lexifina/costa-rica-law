@@ -1,0 +1,1 @@
+Artículo 15.—Reasignación de becas libres. En caso de cancelarse el beneficio a un becado por las causales anteriores, la Comisión de Becas hará una recomendación para ocupar la beca libre. Esta recomendación se hará seleccionando de los formularios que quedaron sin asignación de beca en su oportunidad, conforme al orden de presentación.
