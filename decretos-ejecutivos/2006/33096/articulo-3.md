@@ -1,0 +1,1 @@
+Artículo 3º—Se establece la tarifa de 10 por ciento (10%) en el Impuesto Selectivo de Consumo, para las motocicletas nuevas con motor de émbolo (pistón) alternativo, de combustión interna de cuatro tiempos, de cilindrada superior a 50 centímetros cúbicos pero inferior o igual a 250 centímetros cúbicos, de la subpartida arancelaria 8711.20.
