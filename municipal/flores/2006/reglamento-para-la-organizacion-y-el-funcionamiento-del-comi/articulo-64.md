@@ -1,0 +1,2 @@
+Artículo 64.—El proyecto de acta de cada sesión deberá entregarse a los miembros del Comité Cantonal o Comités Distritales según se trate, a más tardar veinticuatro horas antes de la sesión en que serán discutidas y aprobadas.
+La Secretaría Ejecutiva responderá del cumplimiento de lo antes dispuesto y en la elaboración de las actas contará con la colaboración del Secretario y el Presidente de la Junta Directiva, quienes harán las revisiones, modificaciones o aclaraciones del caso según corresponde.

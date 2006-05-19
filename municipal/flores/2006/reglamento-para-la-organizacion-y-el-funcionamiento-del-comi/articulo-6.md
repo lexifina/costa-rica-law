@@ -1,0 +1,1 @@
+Artículo 6º—El Comité Cantonal y los órganos que él designe son los encargados del deporte y la recreación en el cantón de Flores, Heredia, según los planes municipales y nacionales que en esta materia dicten la Municipalidad y el ICODER de acuerdo a las leyes vigentes.

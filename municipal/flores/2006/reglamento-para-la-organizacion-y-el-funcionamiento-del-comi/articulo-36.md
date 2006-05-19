@@ -1,0 +1,1 @@
+Artículo 36.—Los Comités Distritales y Distritos Deportivos deberán rendir informes trimestrales de labores y de resultados obtenidos ante el Comité Cantonal, a más tardar quince días hábiles después de cerrado el trimestre.

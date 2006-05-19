@@ -1,0 +1,1 @@
+Artículo 65.—Las actas aprobadas, deberán llevar obligatoriamente las firmas del Presidente y del Secretario del Comité. El libro de actas será autorizado por el Auditor Municipal y las hojas serán selladas y foliados por éste.

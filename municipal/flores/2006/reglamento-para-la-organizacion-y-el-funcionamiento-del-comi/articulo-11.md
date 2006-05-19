@@ -1,0 +1,1 @@
+Artículo 11.—No podrán formar parte del Comité Cantonal: Los concejales, el alcalde, los alcaldes suplentes, el tesorero, el auditor y el contador, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive; ni aquellas personas que tengan alguna relación contractual privada y que reciban cualquier clase de estipendio del Comité Cantonal.

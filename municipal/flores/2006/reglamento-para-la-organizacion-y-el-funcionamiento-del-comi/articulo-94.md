@@ -1,0 +1,1 @@
+Artículo 94.—Los nombramientos de los Comités Comunales y de los Subcomités de Deportes y Subcomités de Campos Deportivos, deben ser comunicados a la Dirección General de Deportes y a la Municipalidad por el Comité Cantonal.
