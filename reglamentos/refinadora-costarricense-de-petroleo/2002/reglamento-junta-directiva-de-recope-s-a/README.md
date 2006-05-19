@@ -14,3 +14,4 @@ Reglamento Junta Directiva de RECOPE, S.A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-12 | la propia norma |
+| 2 | 2006-05-19 | Reglamento 4045 (2006-05-19) |
