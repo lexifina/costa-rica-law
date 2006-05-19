@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE TURRIALBA
+REGLAMENTO DE CAJA RECAUDADORA
+El Concejo Municipal de Turrialba, acuerda Modificar el Reglamento de la Caja Recaudadora de la Municipalidad de Turrialba, con el fin exclusivo de recibir ingresos municipales, de acuerdo al artículo 108, artículo 13, inciso d), del Código Municipal Ley Nº 7794, que se regirá por las normas del presente Reglamento.
+CAPÍTULO PRIMERO
+Del Funcionamiento
+Artículo 1º—Definición de Caja Recaudadora: Lugar autorizado y designado por la Municipalidad para recibir dineros relacionados con los bienes y servicios que brinda el ente Municipal, sean estos relacionados con el cobro de impuestos municipales, pago de patentes y licencias comerciales, partes de parquímetros, permisos de construcción, certificaciones del Registro de la Propiedad, pagos por concepto de garantías del participación y garantías de cumplimiento, alquileres, venta de bienes muebles o inmuebles, y todo tipo de transacciones que se deriven de los servicios que brinda la Institución.

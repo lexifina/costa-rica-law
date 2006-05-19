@@ -1,0 +1,1 @@
+Artículo 2º—El monto de dinero con que se operará la Caja Recaudadora será de ¢ 150.000,00 (ciento cincuenta mil colones con cero centavos), y será exclusivamente para el buen funcionamiento de la Caja Recaudadora.

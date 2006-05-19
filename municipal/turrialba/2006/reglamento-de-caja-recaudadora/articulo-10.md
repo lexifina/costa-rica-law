@@ -1,0 +1,1 @@
+Artículo 10.—Las ausencias del Cajero(a) deben ser suplidas por el auxiliar del departamento de Tesorería, quien estará adiestrado para ese fin, el cual deberá rendir garantía fiduciaria, a este funcionario se le debe equiparar el salario base, mientras ocupe temporalmente ese puesto.

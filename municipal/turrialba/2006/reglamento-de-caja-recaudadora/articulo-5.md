@@ -1,0 +1,1 @@
+Artículo 5º—Al final del día, procede a hacer el cierre por lo que se debe imprimir los reportes de Ingresos del Día, Recibos Emitidos e Ingresos por Rubro, una vez revisado que todos los reportes cierren correctamente, se procede a preparar el depósito.

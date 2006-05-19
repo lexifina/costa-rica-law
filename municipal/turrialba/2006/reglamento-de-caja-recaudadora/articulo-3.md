@@ -1,0 +1,1 @@
+Artículo 3º—La Unidad Sección Cobranzas y Rentas, es la oficina encargada de atender los usuarios, los cuales proceden a enviar la impresión a la Caja Recaudadora de los recibos de comprobantes de Ingresos, estos deben realizarse en el original y en una copia.
