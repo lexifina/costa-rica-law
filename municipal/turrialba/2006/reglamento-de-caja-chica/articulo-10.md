@@ -1,0 +1,1 @@
+Artículo 10.—Todo justificante que el interesado presente en el momento de liquidación deberá contar con la aprobación del Tesorero Municipal, y cuyas características se detallan en el procedimiento adjunto: salvo liquidaciones de viáticos para la cual existe otro procedimiento.
