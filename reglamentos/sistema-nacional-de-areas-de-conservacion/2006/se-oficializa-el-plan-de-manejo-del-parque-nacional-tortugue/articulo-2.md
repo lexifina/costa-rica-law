@@ -1,0 +1,7 @@
+2. Zona primitiva. Tiene una extensión total de 3.761 Ha., un 5,2% del total del parque. Se localiza bordeando la zona de protección absoluta, con un ancho de 500 metros. Comprende áreas naturales que han sufrido alteraciones en algunas partes. Se inicia en la playa Tortuguero, a partir de milla 5, desde donde sigue rumbo sur, hasta 2 Km. antes de la desembocadura de la laguna Jalova; con el mismo ancho bordea por completo la zona de uso público de Jalova hasta encontrar el límite del parque en el caño California. Desde este punto sigue aguas arriba la línea limítrofe del parque que va sobre ese caño, el río Sierpe, el río Agua Fría y el río Tortuguero encontrando a su paso la zona de uso especial de Sierpe y Agua Fría. Del punto donde el río Tortuguero se adentra en el parque, sigue la línea limítrofe hasta encontrar la zona de uso público ubicada en Cuatro Esquinas, a la cual bordea hasta llegar al punto de inicio en milla 5.
+a. Objetivos.
+- Servir de zona de amortiguamiento a la zona de protección absoluta.
+- Proporcionar actividades de investigación científica y monitoreo.
+b. Normas.
+- Las visitas serán permitidas en casos excepcionales, para pequeños grupos con fines educativos y científicos, y únicamente con la autorización de la administración del parque.
+- La investigación que se realice deberá estar autorizada de acuerdo con la política y reglamento de investigación y seguimiento (monitoreo) de la institución.
