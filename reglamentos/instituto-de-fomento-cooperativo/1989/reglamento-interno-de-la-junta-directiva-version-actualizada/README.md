@@ -20,3 +20,4 @@ Reglamento Interno de la Junta Directiva (Versión Actualizada)
 | 5 | 1995-02-03 | Reglamento 2427 (1995-02-03) |
 | 6 | 1996-11-07 | Reglamento 2595 (1996-11-07) |
 | 7 | 1999-09-06 | Reglamento 2873 (1999-09-06) |
+| 8 | 2006-05-22 | Reglamento 3544 (2006-05-22) |
