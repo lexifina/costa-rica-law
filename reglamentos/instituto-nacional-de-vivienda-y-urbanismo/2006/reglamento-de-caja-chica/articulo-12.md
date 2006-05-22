@@ -1,0 +1,1 @@
+Artículo 12.—Los adelantos para gastos de viaje y transporte dentro del territorio nacional, se autorizarán tomando en cuenta el tiempo de duración de la gira y hasta un monto de gastos que cubran un máximo de cinco días continuos y para la liquidación contarán con un plazo igual al anterior. Estos adelantos sólo podrán ser aprobados por la Caja Chica General.

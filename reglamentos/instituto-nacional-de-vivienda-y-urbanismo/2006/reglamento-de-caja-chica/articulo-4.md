@@ -1,0 +1,2 @@
+Artículo 4º—La Gerencia General fijará el monto máximo de dinero que se usará por caja chica.
+La revisión de los montos se hará anualmente, una vez que la Contraloría General de La República publique en el Diario Oficial La Gaceta, el Reglamento de Gastos de Viaje y de Transporte para funcionarios Públicos. Esta se hará por parte de la Tesorería quien la remitirá al Área Administrativa Financiera para su informe y a la Gerencia General para su aprobación
