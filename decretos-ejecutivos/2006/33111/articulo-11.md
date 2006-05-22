@@ -1,0 +1,1 @@
+Artículo 11.—Cualquier cambio en la información o requisitos señalados en el formulario, deberá ser comunicado anualmente a DIGEPYME. Las modificaciones anteriores se realizarán en las oficinas centrales o regionales del MEIC o bien en aquella entidad que se encuentre autorizada para el llenado del formulario.

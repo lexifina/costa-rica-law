@@ -1,0 +1,1 @@
+Artículo 25.—Los convenios Marco que el MEIC suscriba con cada institución u organización para ser adscrito a la Red, establecerá las diferentes áreas de cooperación interinstitucional; asimismo, preverá la elaboración de planes de trabajo que contengan las acciones y programas especializados en atención a la PYME.

@@ -1,0 +1,1 @@
+Artículo 5º—Con el fin de que los beneficios derivados de la Ley únicamente se otorguen a la PYME, las empresas constituidas como persona jurídica, deberán demostrar por medio de una certificación notarial, que su capital social accionario no pertenece en más de un 25% a una empresa grande (que obtenga un valor de P mayor de 100, según la definición del artículo 3°).

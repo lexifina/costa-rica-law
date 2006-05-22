@@ -1,0 +1,1 @@
+Artículo 6º—Las instituciones encargadas de tramitar y otorgar los diferentes beneficios mencionados en la Ley N° 8262, establecerán los mecanismos necesarios para asegurar el cumplimiento de los requisitos establecidos en la ley supra y sus Reglamentos.
