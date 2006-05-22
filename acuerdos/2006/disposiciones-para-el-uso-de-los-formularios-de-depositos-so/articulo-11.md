@@ -1,0 +1,1 @@
+Artículo 11.—En el caso de que los formularios reportados como extraviados o robados aparezcan, el agente o la persona encargada deberá entregarlos a la Dirección de Mercadeo y Ventas, Unidad de Atención de Agentes para su posterior anulación o en el Departamento de Riesgos del Trabajo, para el caso de los Gestores de Cobro. Municipalidades y Colegios Profesionales.

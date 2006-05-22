@@ -1,0 +1,3 @@
+Artículo 15.—Régimen de Responsabilidad. Las presentes disposiciones son de acatamiento obligatorio para todas las partes involucradas y el incumplimiento de las mismas dará lugar a las sanciones establecidas en el Reglamento para la operación de Entidades Comercializadoras de Seguros, el Reglamento de Concesión de Licencias de Agentes Vendedores, Clausulado de cada uno de los contratos de Gestores de Cobro, Municipalidades y Colegios Profesionales, Convención Colectiva de Trabajo y Ley General de Control Interno.
+Referencias: Modificación integral mediante oficio G-0385-2006 del 5 de abril 2006.
+9 de mayo del 2006.

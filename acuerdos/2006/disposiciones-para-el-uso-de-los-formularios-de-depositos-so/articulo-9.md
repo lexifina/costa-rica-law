@@ -1,0 +1,11 @@
+Artículo 9º—Extravío de formularios. En caso de extravío de talonarios o formularios prenumerados, la Agencia Comercializadora, el Agente de Seguros Independiente, el Gestor de Cobro, la Municipalidad o el Colegio Profesional deberá:
+A) El día hábil siguiente al evento, presentar ante el Departamento de Administración de Ventas o el Departamento de Riesgos del Trabajo, para el caso de los Gestores de Cobro. Municipalidades y Colegios Profesionales; una carta con copia al Despacho que entregó los formularios extraviados. Dicha nota debe indicar:
+1. Circunstancias del extravió de los formularios como fecha, hora y los pormenores.
+2. Descripción de los formularios extraviados (tipo de formulario y su numeración correspondiente) e indicar cuales habían sido utilizados con anterioridad al evento.
+3. Cualquier otro detalle importante.
+B) Adjuntar a la nota citada en el inciso anterior una declaración jurada protocolizada, rendida por la persona que extravió los documentos; indicando las circunstancias del extravío, descripción de formularios extraviados y dejando constancia de que se releva al Instituto Nacional de Seguros por el uso que se le dé a esos formularios.
+C) Publicar en un periódico de circulación masiva nacional la anulación de dichas fórmulas, previa autorización del texto por parte del Departamento de Administración de Ventas o el Departamento de Riesgos del Trabajo, para el caso de los Gestores de Cobro. Municipalidades y Colegios Profesionales.
+De no ejecutar dichas acciones, recaerá la responsabilidad por el eventual uso de dichos documentos a la Agencia Comercializadora, el Agente Independiente, Gestor de Cobro, Municipalidades o Colegios Profesionales.
+La reposición de los talonarios extraviados quedará sujeta al cumplimiento del procedimiento aquí establecido.
+La omisión de lo anterior facultará al Instituto a adoptar las medidas correspondientes al amparo de la normativa que rige el sistema de intermediación de seguros.
+Corresponderá a la Agencia Comercializadora, Agente de Seguros Independiente, Gestor de Cobro, Municipalidades y Colegios Profesionales, asumir la responsabilidad por el eventual uso indebido que se le dé a la papelería extraviada.

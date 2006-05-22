@@ -1,0 +1,8 @@
+CAPÍTULO IV
+Control
+Artículo 14.—Control de formularios. Toda dependencia que administre formularios de Seguros Autoexpedibles, Recibos de Depósito sobre Primas y Recibos de Depósitos sobre Casos No Asegurados, asignará un funcionario que vele por su control y adopte todas las medidas de control interno para que estos documentos sean correctamente registrados, resguardados, distribuidos y descargados.
+Los controles se llevarán para los formularios de Seguros Autoexpedibles, los Recibos de Depósitos sobre Primas y los Recibos de Depósito sobre Casos No Asegurados por separado de la siguiente manera:
+- Mantener una tarjeta de control para cada una de las Agencias Comercializadoras, Agentes Independientes, Gestores de Cobro, Municipalidades y Colegios Profesionales donde se anote: la numeración de los formularios entregados, la fecha de entrega, la firma de la persona que lo retira, la fecha de devolución, la firma de la persona que lo entrega y recibido conforme. En caso de recibos anulados deberá revisar que se encuentren el recibo original y todos sus tantos. Además debe verificar que el talonario mantenga la consecutividad correspondiente.
+- Mantener una bitácora por orden consecutivo y numérico, donde sea posible controlar cada uno de los formularios.
+- Realizar revisiones periódicas sobre los formularios en poder de los intermediarios, Gestores de Cobro, Municipalidades y Colegios Profesionales, para que su tenencia no sobrepase los 6 meses después de entregados.
+- Mantener depurado y actualizado el registro de los formularios prenumerados de los departamentos del área de producción en el sistema SIAS.

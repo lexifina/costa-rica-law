@@ -1,0 +1,5 @@
+Artículo 5º—Número de formularios por entrega. El número máximo de formularios que se estregarán a las personas mencionadas en el artículo anterior será:
+A) Para los Agentes de Seguros Independientes dos bloques de recibos de depósitos sobre primas y depósitos sobre casos no asegurados e igual cantidad de talonarios de Seguros Autoexpedibles.
+B) Para las Agencias Comercializadoras se entregará hasta el doble del número de agentes acreditados (2 bloques por agente).
+C) En el caso del seguro de riesgos del trabajo, los Gestores de Cobro, Municipalidades y Colegios Profesionales, dos bloques de recibos de depósitos sobre primas y depósitos sobre casos no asegurados. En los casos anteriores los formularios serán entregados contra devolución de los usados previamente.
+Cada Dependencia responsable del suministro, velará por que en poder de los Intermediarios no exista un número mayor de formularios al indicado en los incisos A), B) y C) de este artículo, salvo que previa valoración se considere conveniente el aumento de dicha cantidad.
