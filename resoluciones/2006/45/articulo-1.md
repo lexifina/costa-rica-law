@@ -1,0 +1,11 @@
+CONTRALORÍA GENERAL DE LA REPÚBLICA
+R-CO-45-2006.—Despacho de la Contralora General.—San José, a las doce horas del once de mayo del dos mil seis.
+Considerando:
+I.—Que de conformidad con el numeral 86 del Código Municipal vigente, Ley Nº 7794 del 30 de abril de 1998, publicado en La Gaceta Nº 94 del 18 de mayo de 1998, las municipalidades y cualesquiera formas de asociación entre ellas podrán celebrar toda clase de préstamos, los cuales requerirán la aprobación de al menos dos terceras partes de la totalidad de los miembros del Concejo Municipal respectivo. Asimismo, los préstamos gestionados por asociaciones municipales requerirán aprobación de todas las municipalidades participantes.
+II.—Que el numeral 105 del anterior Código Municipal, Ley Nº 4574 del 4 de mayo de 1970 y sus reformas, establecía la competencia de la Contraloría General de la República de autorización para que las municipalidades pudieran contratar empréstitos. Durante su vigencia, dicha atribución de la Contraloría resultaba constitucional en cuanto el control ejercido lo era de legalidad, de conformidad con el voto de la Sala Constitucional Nº 5445-99 del 14 de julio de 1999.
+III.—Que a partir de un nuevo análisis jurídico del actual Código Municipal Nº 7794, se establece que la autorización de los préstamos municipales constituye una competencia exclusiva del Concejo Municipal respectivo. Así, las municipalidades y cualesquiera asociaciones entre ellas, deberán ejercer la atribución establecida en el numeral 86 de cita, bajo estrictas normas de control, que garanticen la debida salvaguarda de los recursos públicos y su correcta aplicación, todo conforme a nuestro ordenamiento jurídico.
+IV.—Que las competencias de esta Contraloría General respecto de los préstamos gestionados en el ámbito municipal, se desarrollarán en la materia de control presupuestario, refrendo y fiscalización posterior, cuando corresponda.
+RESUELVE:
+1º—A partir de lo anterior, las municipalidades del país y cualesquiera formas de asociación entre ellas, no deberán remitir gestiones tendentes a obtener una autorización de esta Contraloría General para la contratación de préstamos municipales.
+2º—Se deroga lo establecido en la circular Nº 5987 de fecha 20 de junio de 2000.
+Rige a partir de su publicación.
