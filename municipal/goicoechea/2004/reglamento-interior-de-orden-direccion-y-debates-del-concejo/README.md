@@ -15,3 +15,4 @@
 | --- | --- | --- |
 | 1 | 2001-11-02 | la propia norma |
 | 2 | 2005-04-18 | Reglamento municipal 16 (2005-04-18) |
+| 3 | 2006-05-22 | Reglamento municipal 20 (2006-05-22) |
