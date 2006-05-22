@@ -1,0 +1,1 @@
+Artículo 2º—Para el óptimo desarrollo de este Proyecto, se insta a todas las dependencias del Gobierno, ministerios e instituciones públicas, para que brinden toda la ayuda y colaboración al mismo, dentro del marco de sus posibilidades materiales y el ámbito de sus respectivas competencias.
