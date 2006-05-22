@@ -1,0 +1,1 @@
+Artículo 16.—Gastos de funcionamiento. El COLOSEVI podrá disponer de dichos fondos, hasta en un diez por ciento, para sufragar sus gastos de funcionamiento, en partidas tales como servicios no personales, materiales y suministros y maquinaria y equipo.

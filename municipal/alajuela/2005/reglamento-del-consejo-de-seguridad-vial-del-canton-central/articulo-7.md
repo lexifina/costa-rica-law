@@ -1,0 +1,1 @@
+Artículo 7º—Estructura interna. Para su efectivo funcionamiento, el COLOSEVI, en la sesión inmediata siguiente a su instalación, designará de su seno un presidente, un vicepresidente y un secretario. Dichos nombramientos deberán renovarse anualmente.

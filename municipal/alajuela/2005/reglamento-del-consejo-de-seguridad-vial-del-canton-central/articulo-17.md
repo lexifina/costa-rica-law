@@ -1,0 +1,1 @@
+Artículo 17.—Administración de los recursos. La Administración de los Recursos indicados en el artículo 15 de este Reglamento, serán administrados por la Municipalidad en una cuenta específica en la cual se acreditarán también los intereses que ellos generen.

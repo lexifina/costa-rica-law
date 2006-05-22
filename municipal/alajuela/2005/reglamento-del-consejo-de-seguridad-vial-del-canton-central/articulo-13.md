@@ -1,0 +1,1 @@
+Artículo 13.—Trámite de necesidades. Las solicitudes sobre necesidades relacionadas con la seguridad vial del cantón, serán por medio de la Alcaldía Municipal, quien las remitirá al COLOSEVI para su respectivo estudio.

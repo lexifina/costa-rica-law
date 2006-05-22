@@ -1,0 +1,1 @@
+Artículo 18.—Supervisión y control. Corresponderá a la Municipalidad, por medio de sus respectivas dependencias y de acuerdo con los procedimientos establecidos, supervisar y controlar el gasto presupuestario que se derive de la gestión administrativa y operativa del COLOSEVI.

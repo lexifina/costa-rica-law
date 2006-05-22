@@ -1,0 +1,1 @@
+Artículo 8º—Suplencias. En caso de ausencia temporal del presidente, corresponderá al presidente asumir la dirección de las sesiones. Las ausencias temporales del secretario, serán suplidas por la persona que designe el presidente. En caso de ausencia del presidente y del vicepresidente, las sesiones las presidirá el integrante que para tal efecto designe el propio COLOSEVI.
