@@ -1,0 +1,2 @@
+Artículo 2º—Se deroga el RAC-39 "Directivas de Aeronavegabilidad" publicado mediante Decreto Ejecutivo Nº 27788-MOPT*, en La Gaceta Nº 75, del 20 de abril de 1999.
+*(NOTA DE SINALEVI: El decreto ejecutivo que contiene el RAC 39 es el N°27786 del 19 de marzo de 1999, publicado en La Gaceta N°75 del 20 de abril de 1999 y no el decreto ejecutivo N°27788 del 19 de marzo de 1999, como se consignó en el presente artículo, razón por la cual la derogación correspondiente será realizada una vez se corrija el error y se publique).
