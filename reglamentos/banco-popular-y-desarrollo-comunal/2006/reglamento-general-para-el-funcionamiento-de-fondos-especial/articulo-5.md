@@ -1,0 +1,1 @@
+Artículo 5º—Sobre la programación de los recursos: La Administración del Banco deberá presentar anualmente a la Junta Directiva Nacional, dentro de los tres primeros meses del año, un programa que permita la adecuada planificación de los recursos de los Fondos Especiales, procurando alcanzar el mejor impacto y al mayor número de beneficiarios.

@@ -1,0 +1,14 @@
+CAPÍTULO VI
+Sobre el destino de los recursos
+Artículo 10.—Destino: los recursos que componen los Fondos podrán utilizarse para operaciones en los siguientes fines:
+a) Fondo de capital riesgo (FOCARI), cuyos propósitos sean los siguientes:
+1. Otorgar financiamiento a personas físicas, MYPES, grupos y organizaciones de la economía social del sector informal que disponen de recursos humanos y materiales para desempeñar una actividad productiva y que pertenezcan a la población objetivo, de conformidad con al capítulo 4 de este Reglamento.
+2. Otorgar crédito a organizaciones intermediarias, de conformidad con el Reglamento operativo correspondiente.
+3. Otorgar financiamiento a emprendedores del sector informal que estén desarrollando su empresa o a aquellos que sin tenerla, tengan un proyecto económicamente viable, en concordancia con la normativa que para ese efecto se especifique en el Reglamento Operativo FOCARI.
+4. Otorgar avales a MYPES, grupos y organizaciones de la economía social del sector informal que tengan una actividad productiva, y a emprendedores que estén dentro de la población objetivo, además deberán estar inscritos en el Programa de Cultura Empresarial y Generación de Empleo y que cumplan con los requisitos y condiciones que para ese efecto se estipulen en el Reglamento Operativo FOCARI.
+5. Transferir recursos a entidades u organizaciones públicas y privadas, para apoyar el desarrollo de programas o proyectos por financiar mediante el FOCARI, tendientes a generar o fortalecer las MYPES, grupos con ideas o proyectos productivos y organizaciones de la economía social del sector informal, en áreas tales como: seguimiento, transferencia tecnológica, capacitación, asistencia técnica, investigación y acompañamiento no financiero, propiciando la generación de empresas y fuentes de empleo. Las entidades u organizaciones, para ser beneficiarias de esas transferencias, deberán cumplir con los requisitos establecidos en el Reglamento Operativo FOCARI.
+b) Fondo Especial de Vivienda: destinado a solucionar el problema habitación familiar.
+1. Otorgar financiamiento hasta en un 100% a personas físicas no sujetas de crédito de vivienda de conformidad con el Reglamento General de Crédito del Banco Popular y que no han resuelto su problema de vivienda.
+2. Financiar hasta un 20% del crédito de vivienda con el fin de completar el 100% del monto del préstamo de vivienda en el Banco Popular, siempre y cuando el monto del avalúo permita una cobertura del 100% del monto del préstamo.
+c) Fondo Especial de Recuperación de Deudores. Otorgar financiamiento a personas físicas no sujetas de crédito, conforme lo establezca el Reglamento operativo correspondiente
+d) Otros Fondos Especiales: Fondos constituidos por la Junta Directiva Nacional, en el marco del artículo 40, inciso b) de la Ley Orgánica del Banco Popular y de Desarrollo Comunal.

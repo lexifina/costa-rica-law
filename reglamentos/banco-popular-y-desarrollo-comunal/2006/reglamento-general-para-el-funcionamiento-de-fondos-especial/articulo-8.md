@@ -1,0 +1,1 @@
+Artículo 8º—Aprobación de reglamentos: la Junta Directiva Nacional aprobará los reglamentos operativos que sean necesarios para el funcionamiento y ejecución de los objetivos de los Fondos Especiales.
