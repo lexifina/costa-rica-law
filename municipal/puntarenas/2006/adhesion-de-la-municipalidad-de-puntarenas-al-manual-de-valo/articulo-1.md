@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE PUNTARENAS
+Acuerdo tomado en sesión ordinaria N° 339 del día 18 de abril del 2006, Artículo 3, inciso A, que dice: La Municipalidad de Puntarenas acordó: Adherirse al Manual de Valores Base Unitarios por Tipología Constructiva publicado en el Alcance N° 48 de La Gaceta Nº 243 del 16 de diciembre de 2005, por parte del Órgano de Normalización Técnica del Ministerio de Hacienda, para efectos de ser utilizado en el cálculo de los valores de las construcciones, instalaciones y obras complementarias con el objetivo del cobro del impuesto sobre bienes, todo conforme a la ley N° 7509 y sus reformas. Acuerdo Aprobado unánime y en firme.
+Puntarenas, 11 de mayo del 2006
