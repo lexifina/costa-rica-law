@@ -1,0 +1,1 @@
+Artículo 57.—Del estudio técnico. La Dirección Nacional de Pensiones procederá a realizar un estudio técnico contable y técnico legal en el que se determine la condición de las sumas pagadas de más. Para todos los efectos se seguirá el procedimiento establecido en el Código de Procedimientos Tributarios.

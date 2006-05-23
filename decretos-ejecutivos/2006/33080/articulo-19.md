@@ -1,0 +1,1 @@
+Artículo 19.—De los máximos de pensión y jubilación: del monto de la prestación por invalidez y sobrevivencia. En el caso de la prestación por invalidez o sobrevivencia, ésta no podrá ser superior al máximo establecido por los artículos respectivos del Reglamento de Invalidez, Vejez y Muerte de la Caja Costarricense de Seguro Social.

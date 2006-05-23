@@ -1,0 +1,3 @@
+CAPÍTULO II
+Derechos adquiridos
+Artículo 6º—Derechos adquiridos. Las pensiones y jubilaciones otorgadas al amparo de las leyes indicadas en el artículo 4º de este Reglamento, dentro de los plazos de su vigencia o del plazo señalado por el transitorio III de la Ley Nº 7302 que se reglamenta, continuarán reguladas por las normas vigentes al momento de su adquisición en todos sus elementos, salvo lo relativo a las cotizaciones a cargo de los pensionados. Las contingencias de invalidez y sobrevivencia (muerte) se regirán por la legislación vigente al momento de ocurrencia de la causa para obtener el beneficio.

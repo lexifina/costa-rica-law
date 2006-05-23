@@ -1,0 +1,1 @@
+Artículo 17.—Del monto de las prestaciones por invalidez y muerte. El monto de las prestaciones de invalidez y muerte se regirán en un todo por lo establecido en los artículos respectivos del Reglamento de Invalidez, Vejez y Muerte de la Caja Costarricense de Seguro Social.

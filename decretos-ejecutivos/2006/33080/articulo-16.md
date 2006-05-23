@@ -1,0 +1,2 @@
+Artículo 16.—De la prestación por vejez: monto. En los casos de prestaciones por vejez el monto de la jubilación será un cien por ciento (100%) del salario de referencia, de conformidad con el artículo catorce anterior.
+En el caso que se jubilen al amparo de los transitorios de la Ley Nº 7302, y cuyo tiempo de servicio sea inferior a treinta años, el monto de la jubilación será proporcional al número de años servidos en relación con el máximo de treinta años.

@@ -1,0 +1,6 @@
+Artículo 10.—De la prestación por vejez. Las prestaciones por vejez cubrirán a aquellas personas incluidas dentro del régimen general de conformidad con lo establecido por la Ley Nº 7302 de 8 de julio de 1992 y sus reformas, y que además cumplan con los siguientes requisitos:
+a) Poseer derecho de pertenencia a alguno de los regímenes regulados por Ley Nº 7302.
+b) Contar al menos con sesenta años de edad cumplidos.
+c) Que hayan servido al Estado en algunas de las instituciones cubiertas por los regímenes unificados por Ley Nº 7302 al menos por treinta años.
+d) Los o las servidoras que tengan más de sesenta y cinco años de edad y que hayan servido y cotizado para el régimen especial al que pertenezcan por más de veinte años.
+No obstante lo anterior y para aquellas personas cuya edad para pensionarse o jubilarse quede establecida a los sesenta años y que, a la entrada en vigencia de la Ley Nº 7302, sean o hayan sido servidores de los regímenes contemplados en esta norma, podrán descontar de la edad de retiro un año por cada dos de los años servidos y cotizados para la Administración Pública. En todo caso, para poder pensionarse o jubilarse, se requerirá tener un mínimo de cincuenta y cinco años de edad y los años servidos que determine su régimen.

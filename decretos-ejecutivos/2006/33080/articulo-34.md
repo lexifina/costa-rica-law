@@ -1,0 +1,1 @@
+Artículo 34.—Del procedimiento del recurso. Recibido el recurso de reposición, la Dirección Nacional en forma inmediata lo trasladará sin trámite alguno al Consejo Directivo de Pensiones, que lo instruirá y realizará la recomendación correspondiente, para el Ministro de Trabajo y Seguridad Social, quien resolverá el recurso.

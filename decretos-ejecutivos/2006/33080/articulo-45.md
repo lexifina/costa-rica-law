@@ -1,0 +1,1 @@
+Artículo 45.—De la definición de las instituciones obligadas. La Dirección Nacional de Pensiones, definirá y comunicará cuales son las entidades y órganos públicos obligados a suministrar la información indicada en los artículos anteriores, y se le comunicará a cada una de ellas. Asimismo, les indicará el formato bajo el cual deberán remitir la información solicitada.

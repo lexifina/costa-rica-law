@@ -1,0 +1,2 @@
+Artículo 38.—Del trámite de la revisión. Cuando la petición del administrado o administrada ante la Dirección Nacional de Pensiones pretendiera la consideración de elementos nuevos, no tomados en cuenta o no existentes, en la solicitud de pensión o jubilación original, se tramitará de la misma forma que la gestión original.
+La Dirección Nacional de Pensiones tendrá un plazo de noventa días a fin de resolver en forma definitiva tal gestión.

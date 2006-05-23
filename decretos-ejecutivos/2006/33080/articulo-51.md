@@ -1,0 +1,1 @@
+Artículo 51.—De la información suministrada a la Dirección Nacional de Pensiones. El Ministerio de Hacienda comunicará mensualmente a la Dirección Nacional de Pensiones sobre los casos en donde se verifique el disfrute de pensión y salario simultáneamente.

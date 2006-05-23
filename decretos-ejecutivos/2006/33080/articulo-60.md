@@ -1,0 +1,2 @@
+Artículo 60.—Del procedimiento. La Dirección Nacional de Pensiones deberá emitir resolución que deberá ser notificada personalmente al interesado o su representante, en la que se establecerá claramente los motivos de la suspensión o retención temporal, así como el plazo de la misma y sus objetivos.
+Para todos los efectos se seguirá el procedimiento establecido en el artículo 308 de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 18.—De los máximos de pensión y jubilación: del monto de la prestación por vejez. El monto de la prestación por vejez no podrá ser superior al monto del salario más bajo pagado dentro de la escala de Servicio Civil, para los funcionarios del Estado multiplicado por diez.

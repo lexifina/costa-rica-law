@@ -1,0 +1,1 @@
+Artículo 24.—Del deber de información. En aquellos casos en que se utilicen cotizaciones de otros regímenes de pensiones o jubilaciones la Dirección Nacional de Pensiones deberá informar a la Tesorería Nacional o la institución que corresponda, para lo de su cargo.

@@ -1,0 +1,1 @@
+Artículo 15.—Del salario ordinario. Se entenderá por salario ordinario la suma del salario base más los ingresos que, por anualidades, dedicación exclusiva, prohibición y gastos de representación, así como los sueldos recibidos por tiempo extraordinario, haya percibido el o la beneficiaria.

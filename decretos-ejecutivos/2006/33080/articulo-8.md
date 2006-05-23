@@ -1,0 +1,1 @@
+Artículo 8º—Prohibición de discriminaciones e intimaciones. Queda prohibido expresamente cualquier acto de intimación o discriminación o cualquier otra forma de presión u hostigamiento para que el o la trabajadora se jubile en forma obligatoria por exclusivas razones de edad.

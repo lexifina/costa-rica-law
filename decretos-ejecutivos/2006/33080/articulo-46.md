@@ -1,0 +1,1 @@
+Artículo 46.—Del informe por parte de la Dirección Nacional de Pensiones. La Dirección Nacional de Pensiones informará a los jerarcas respectivos, en los casos en que los Departamentos o Direcciones de Recursos Humanos no envíen, o no envíen oportunamente, la información requerida, a fin de que se tomen las medidas disciplinarias correspondientes.

@@ -1,0 +1,1 @@
+Artículo 14.—Del salario de referencia. El salario de referencia será el promedio de los doce mejores salarios mensuales ordinarios de entre los últimos veinticuatro salarios mensuales ordinarios que la persona haya devengado.

@@ -1,0 +1,2 @@
+Artículo 7º—Derechos de revalorización. Los derechos de revalorización de los regímenes en que se adquirió el derecho que se unifican por la Ley Nº 7302 y establecidos en el artículo 4º de este Reglamento, se regirán por lo establecido por sus leyes de origen.
+En el caso del Régimen de Hacienda, Ley Nº 148 de 23 de agosto de 1943 y sus reformas se regirá por las consideraciones que sobre el mismo estableció la Sala Constitucional de la Corte Suprema de Justicia en la resolución Nº 2136 de 14:00 horas del 23 de octubre de 1991.

@@ -1,0 +1,1 @@
+Artículo 36.—De las revalorizaciones: Resolución General. Previo a la aplicación de la revalorización general, la Dirección Nacional de Pensiones emitirá resolución general en la que se ordena la aplicación del aumento respectivo, su fecha de rige, monto y los regímenes específicos a los que se aplica.

@@ -1,0 +1,2 @@
+Artículo 3º—Obligatoriedad. La Dirección Nacional de Pensiones, como órgano director del proceso, además de los requisitos señalados en la ley, deberá cumplir con los trámites o procedimientos establecidos en este Reglamento.
+El Consejo Directivo de Pensiones como órgano asesor del Ministro de Trabajo estará en la obligación de asesorar a éste en los procesos de supervisión y fiscalización del accionar de la Dirección Nacional de Pensiones tanto en el aspecto administrativo como técnico.

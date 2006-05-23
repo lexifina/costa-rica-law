@@ -1,0 +1,1 @@
+Artículo 61.—De la apelación. Contra la resolución anterior podrá presentar por el solicitante recurso de apelación para ante el Ministro de Trabajo y Seguridad Social, que agotará la vía administrativa.
