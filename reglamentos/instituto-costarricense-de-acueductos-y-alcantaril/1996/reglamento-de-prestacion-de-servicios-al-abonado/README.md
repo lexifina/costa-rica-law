@@ -23,3 +23,4 @@ Reglamento de Prestación de Servicios al Abonado
 | 8 | 2004-05-05 | Reglamento 247 (2004-05-05) |
 | 9 | 2004-11-30 | Reglamento 85 (2004-11-30) |
 | 10 | 2005-02-22 | Reglamento 7 (2005-02-22) |
+| 11 | 2006-05-23 | Reglamento 28 (2006-05-23) |
